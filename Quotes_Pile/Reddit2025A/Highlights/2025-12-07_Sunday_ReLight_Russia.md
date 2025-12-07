@@ -60,3 +60,6 @@ https://www.bbc.com/news/technology-43255285
 Today, December 7, we are coming around to December 11 again:
 
 "Putin is clearly winning Russia’s hybrid war against the U.S. because Americans don’t understand how they are being manipulated." - December 11, 2020 - "The Heritage Foundation" https://www.heritage.org/defense/commentary/putin-winning-russias-hybrid-war-against-america
+
+Also note: December 11, 2020 statement about [Russia manipulation](https://old.reddit.com/r/QAnonRussia/comments/ot5wk0/qanon_posts_promoted_by_russialinked_accounts/) comes shortly before January 6, 2021 [QAnon](https://www.independent.co.uk/news/world/americas/us-election-2020/qanon-russia-conspiracy-theory-trump-2020-election-b1536946.html) attack of Washington D.C. government / vote assembly.
+
