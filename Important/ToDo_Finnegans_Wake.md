@@ -529,3 +529,13 @@ https://old.reddit.com/r/todayilearned/comments/1pglu5k/til_at_the_beginning_of_
 
 Unnamed work in progress liking by Joyce    
 Character names ALP / HCE / symbols in wildcard Wake   
+
+&nbsp;
+
+https://old.reddit.com/r/Weird/comments/1pgixgd/a_52yearold_woman_from_the_netherlands_has_spent/
+
+"There vbe dragons" on maps ends.
+
+ in Ulysses where Bloom points out constellations like Draco (the Dragon) and in Finnegans Wake, describing "dragonscaly folds," connecting them to ancient myths, the subconscious, and guarding hidden knowledge or treasure, reflecting broader literary traditions 
+
+ 
