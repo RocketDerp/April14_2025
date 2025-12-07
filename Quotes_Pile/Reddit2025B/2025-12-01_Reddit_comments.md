@@ -1016,3 +1016,7 @@ https://old.reddit.com/r/soccercirclejerk/comments/1pf16gc/what_type_of_woke_non
 
 Content for meme makers, billionares content for Reddit audience to mock away at all day every day. Total mockery USA leadership of Trump / Putin / Surkov.
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pg5zmv/mass_extinction_goal/nspca8p/
+
+Predictions abound in this posting.
+
