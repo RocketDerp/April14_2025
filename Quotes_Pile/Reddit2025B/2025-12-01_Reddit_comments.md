@@ -1088,6 +1088,8 @@ https://old.reddit.com/r/pics/comments/1pg8c1j/donald_trump_with_the_dells_micha
 
 https://old.reddit.com/r/ProgressiveHQ/comments/1pgau65/this_account_on_twitter_has_13_million_followers/nsq1stm/
 
+Note the Reddit account creation date, this year.
+
 https://old.reddit.com/r/ProgressiveHQ/comments/1pgau65/this_account_on_twitter_has_13_million_followers/nsqaksw/
 
 Gun worship USA. NRA Russian messaging. https://www.npr.org/2019/09/27/764879242/nra-was-foreign-asset-to-russia-ahead-of-2016-new-senate-report-reveals ANYTHING to avoid learning Russian information warfare, Surkov's name, nonfiction learning.
