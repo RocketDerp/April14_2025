@@ -8,7 +8,7 @@ Power-tripping. Like [Trump "moderator" shutting down Jimmy Kimmel](https://en.w
 
 3. Other users on Reddit are reporting similar moderator abuse: muted / silenced https://old.reddit.com/r/Pluribus_TVshow/comments/1pg3180/banned_and_muted_for_asking_a_question/
 
-4. USA Reddit Hive Mind is a long established concept on social media / media ecology: February 6, 2013 /r/psychology posting on Reddit https://old.reddit.com/r/psychology/comments/181smu/is_the_reddit_hive_mind_wrong_about_video_games/
+4. USA Reddit Hive Mind is a long established concept on social media / media ecology: February 6, 2013 /r/psychology posting on Reddit https://old.reddit.com/r/psychology/comments/181smu/is_the_reddit_hive_mind_wrong_about_video_games/ - "It seems that most of the peer reviewed articles on violence in video games indicate that it causes aggressive behavior in children and young adults yet most of reddit rejects this conclusion. What do the psychologists of reddit think of the conclusion? Is it wrong? If so, why?" - you know like agresive moderator muting *detachment from reality* OPERA_A ARG [games people play](https://www.youtube.com/watch?v=SLi7Ljcy6n8) with audience of Reddit minds wearing their masked-identity I.C.E. admiration secret police identity!
 
 &nbsp;
 
