@@ -1084,3 +1084,11 @@ https://old.reddit.com/r/pics/comments/1pg8c1j/donald_trump_with_the_dells_micha
 
 <img width="820" height="720" alt="image" src="https://github.com/user-attachments/assets/db1d6df7-d530-40ac-a430-1f53cd2046cf" /> I had to GitHub the patterns of how saturated dehumanization prizing has become in USA year 2025.  Surely no person would spend free time and spare time since June 16, 2015 on Reddit adopting Putin and Trump mocking and dehumanization. Surely this one person isn't the most important urgent use of free time and spare time in fixing MAGA. Adopting MAGA values, the simulation of resistance. Surkov won since year 2013. Reddit superficial prizing audience is the boot stomping on Women's Faces (Orwell). Rick Roderick was projecting the risk into the future in hope we wouldn't march into the brain exploit that was clear in year 1993: ... ... ...       
 "On the other hand, I don’t want it to not be funny, because part of the postmodern trajectory itself is a rather humorous joke on the human race which laboured for millennia to reduce working hours in order to produce leisure so we could enjoy this very leisure that then turns in a kind of vengeful act against us absorbing our leisure time, which was to be our living time, into time now spent in the service of what can only be called this inhuman spectacle. I mean, it’s a very bizarre and twisted fate to which postmodernity has led us." - Duke University, 1993 https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
+
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1pgau65/this_account_on_twitter_has_13_million_followers/nsq1stm/
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1pgau65/this_account_on_twitter_has_13_million_followers/nsqaksw/
+
+Gun worship USA. NRA Russian messaging. https://www.npr.org/2019/09/27/764879242/nra-was-foreign-asset-to-russia-ahead-of-2016-new-senate-report-reveals ANYTHING to avoid learning Russian information warfare, Surkov's name, nonfiction learning.
+
