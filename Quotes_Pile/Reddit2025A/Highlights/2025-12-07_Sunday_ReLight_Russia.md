@@ -1,8 +1,9 @@
-# Sunday Relight Russia
+# Sunday ReLight Russia
 
 &nbsp;
 
-Sunday December 7, 2025
+Sunday December 7, 2025      
+{ Sun-Light, High-Light, Re-Light metaphors }     
 
 &nbsp;
 
