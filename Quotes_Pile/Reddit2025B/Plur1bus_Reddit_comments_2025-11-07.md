@@ -945,3 +945,11 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pg2xuk/why_the_hive_is_an_evo
 
 Hive intentions discussion.
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pfr7lm/ep_6_hdp_theory/nslphf3/
+
+Need to put this in ToDo: FAQ per episode
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pfr7lm/ep_6_hdp_theory/nsn4ux1/
+
+This Reddit user has paremently blocked me for discussing a TV show on a public forum. Reddit media ecology of "Reddit Hive Mind". The media ecology of abuse / rape by a doctor. The media ecology of Breaking Bad doctor fandom on Reddit. Year 2013 baseline "hive Mind" media ecology tribal filter-bubble topic (addicts to digital media systems filtering out persons / humanity): https://old.reddit.com/r/psychology/comments/181smu/is_the_reddit_hive_mind_wrong_about_video_games/
+
