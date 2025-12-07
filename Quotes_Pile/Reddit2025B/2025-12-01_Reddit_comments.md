@@ -1016,3 +1016,39 @@ https://old.reddit.com/r/soccercirclejerk/comments/1pf16gc/what_type_of_woke_non
 
 Content for meme makers, billionares content for Reddit audience to mock away at all day every day. Total mockery USA leadership of Trump / Putin / Surkov.
 
+https://old.reddit.com/r/AskAChristian/comments/1np3uus/why_is_charlie_kirk_being_spread_in_church/nhvyl14/
+
+Capturing some old comments for possible later study of Reddit influence operations
+
+https://old.reddit.com/r/AskAChristian/comments/1np3uus/why_is_charlie_kirk_being_spread_in_church/nhzkjb7/
+
+Context of being Christian: inclusiveness. Bible verse Matthew 25:40, "least of these" doing, actively "what you do for" Matthew 25:40.
+
+https://old.reddit.com/r/AskAChristian/comments/1np3uus/why_is_charlie_kirk_being_spread_in_church/nfz67rq/
+
+From a meeia ecology perspective: a preacher is a popular person. Unlike my brain damaged autistim writing and speech, a preacher draws a crowd like a television entertainer / commedian. The Reddit comment has a format and tone of appealing to audiences. Pandering. See next comment.
+
+https://old.reddit.com/r/AskAChristian/comments/1np3uus/why_is_charlie_kirk_being_spread_in_church/ng0vs57/
+
+So it was a comment given extra care.
+
+https://old.reddit.com/r/AskAChristian/comments/1np3uus/why_is_charlie_kirk_being_spread_in_church/ngmu0qh/
+
+The Reddit profile of this person says: "I Love Books & Jesus", which are BOTH the topic of Bible verse "1 John 4:20"- Jesus "God" is a fiction bookcharacter, and "I love Jesus" is wrong. Loving real alive human persons, having no hate, is what is *important*. Not loving Jesus, but loving the enemy.
+
+https://old.reddit.com/r/AskAChristian/comments/1np3uus/why_is_charlie_kirk_being_spread_in_church/nfy064v/
+
+Yes "TP Faith" year 2021. Although note the coment on Reddit does not have a link, author name, quote from book, etc. Evidence is largely abandoned. Getting on the same page avoided, in favor of disposable commenting.
+
+https://old.reddit.com/r/AskAChristian/comments/1np3uus/why_is_charlie_kirk_being_spread_in_church/ngc25ti/
+
+https://old.reddit.com/r/AskAChristian/comments/1np3uus/why_is_charlie_kirk_being_spread_in_church/ng1nlsu/
+
+It may be true in year 2025 that hate is popular. That hate is prized. That is true and truth. That's the problem. Hate acts get funded and attention. Hate is the faith itself. MAGA hates, people hate MAGA - everyone in agreement on truth of hate. Parents making Trump hate a role model for children since June 16, 2015. Charlie Kirk's truth is true: popularity of hate. That's the problem. 
+
+https://old.reddit.com/r/AskAChristian/comments/1np3uus/why_is_charlie_kirk_being_spread_in_church/ng6t3lg/
+
+People who think personal ability to be clam in hate is what matters. Systemic, macro hate of Muslims,  is OK - if you dress it up with patence. Martin Luther King Jr. called this NATIONAL USA behavior out: ... ... ...      
+"That's the attitude. That's the prevailing attitude in our culture. No matter what you do, just do it with a bit of finesse. You know, a sort of attitude of the survival of the slickest. Not the Darwinian survival of the fittest, but the survival of the slickest — whoever can be the slickest is the one who right. It's all right to lie, but lie with dignity. ... It's all right to steal and to rob and extort, but do it with a bit of finesse. It's even all right to hate, but just dress your hate up in the garments of love and make it appear that you are loving when you are actually hating. Just get by! That's the thing that's right according to this new ethic. My friends, that attitude is destroying the soul of our culture! It's destroying our nation!"
+
+
