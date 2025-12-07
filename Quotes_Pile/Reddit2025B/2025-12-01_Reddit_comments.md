@@ -1051,4 +1051,36 @@ https://old.reddit.com/r/AskAChristian/comments/1np3uus/why_is_charlie_kirk_bein
 People who think personal ability to be clam in hate is what matters. Systemic, macro hate of Muslims,  is OK - if you dress it up with patence. Martin Luther King Jr. called this NATIONAL USA behavior out: ... ... ...      
 "That's the attitude. That's the prevailing attitude in our culture. No matter what you do, just do it with a bit of finesse. You know, a sort of attitude of the survival of the slickest. Not the Darwinian survival of the fittest, but the survival of the slickest — whoever can be the slickest is the one who right. It's all right to lie, but lie with dignity. ... It's all right to steal and to rob and extort, but do it with a bit of finesse. It's even all right to hate, but just dress your hate up in the garments of love and make it appear that you are loving when you are actually hating. Just get by! That's the thing that's right according to this new ethic. My friends, that attitude is destroying the soul of our culture! It's destroying our nation!"
 
+https://old.reddit.com/r/pics/comments/1pg8c1j/donald_trump_with_the_dells_michael_and_susan_at/nspf3ca/
 
+Trump images blowing minds of Reddit audience. Very popular comment, front-page posting all Saturday night in USA. TIny-short mind-blown comment messages. Superficial, shallow insulting of women as witches / devils. A witch hunt, which Trump calls out messaging: a woman is being accused of having demonic powers on Reddit. The satire-washing amusent-wrapping of Reddit society / social media society to serious problem. People normalize it in the name of entertainment comment ona Saturday night, like SNL NYC Weekend Update. Fiction outselsl nonfiction. This woman does not have supernatural powers, nor does Trump. Fiction storytelling outsells nonfiction. Supernatural magic.
+
+https://old.reddit.com/r/pics/comments/1pg8c1j/donald_trump_with_the_dells_michael_and_susan_at/nspvp2c/
+
+Looking. Looks. Shallow, superficial, banal. Exactly the crisis. Amusement of Trump audience on Reddit. "Good looks" media ecology. ... ... ...         
+“Americans no longer talk to each other, they entertain each other. They do not exchange ideas, they exchange images. They do not argue with propositions; they argue with good looks, celebrities and commercials.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, year 1985
+
+https://old.reddit.com/r/pics/comments/1pg8c1j/donald_trump_with_the_dells_michael_and_susan_at/nsql3s5/
+
+Superficial banal shallow. What Russian Internet Research Agency programmed into Reddit minds, USA society, since year 2013. Neil Postman 1985 was describing it based on his young students in New York City who could afford the latest television media devices (multiple per person). That was 1985. With Reddit commenting, and Reddit comment voting, you can see the exact message and thinking that attracts people. The pairing of Surkov Russian ideas and Donald Trump. On a policy and self-harm level, all of MAGA is bad. Morality reformation: bad is bad. But Reddit users feed the shallow superficial values of Trump / gold plating / as such an enteratining and amusing social screen game / ARG. Abandoning authentic joy in life for images to mock. The popularity of mocking itself is Surkov's information warfare that was distilled out of Levant religion out-group patterns.
+
+https://old.reddit.com/r/pics/comments/1pg8c1j/donald_trump_with_the_dells_michael_and_susan_at/nspnaw1/
+
+Superficai shallow Trump black hole. Attraction to shallowness. Orange skin prizing. That's what USA prizeds since June 16, 2015. The high speed messaging about shit. Attraction to shit.
+
+https://old.reddit.com/r/pics/comments/1pg8c1j/donald_trump_with_the_dells_michael_and_susan_at/nsqcl2q/
+
+Russia's "War Against Reality", war FOR artificial. Media consumers, Reddit users, who play so many video games and consume so much fiction...don't see reality of real people as human. Menace of media-induced unreality. September 9, 2014 : https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/pics/comments/1pg8c1j/donald_trump_with_the_dells_michael_and_susan_at/nspduzw/
+
+<img width="1088" height="208" alt="image" src="https://github.com/user-attachments/assets/22c6e5c6-e8d2-415c-84b3-f45e4ec5cf78" /> The person who posted this on Reddit. The desire wwas to attack women. The Trump symbol of attacking women, grab by pussy, rape, Epstein women: For Reddit entertainment, attacking a woman from Reddit systems. Active normalization of Putin and Trump values: shallow face concerns. Attraction to the images. Abandonment of non-superficial media engagement. Just as the comments are banal and superficial as Rick Roderick 1993 defines. But now itis every aspect of USA socieety... (Putin) Trump being the center leader of shallowness and women hate since June 16, 2015.  The November 8, 2013 showing of women's faces in Moscow being the training ground for the White House leadership of how ugly Kamala and how ugly Hillary Clinton is. Reddit audiences have followed this orange-skin superficial lead and published it over and over in creen game loops, a game loop. 
+
+https://old.reddit.com/r/pics/comments/1pg8c1j/donald_trump_with_the_dells_michael_and_susan_at/nspeerk/
+
+<img width="896" height="382" alt="image" src="https://github.com/user-attachments/assets/4eb88787-047b-4d7e-b3ee-627e3dcf3217" /> Donald Trump insulting women leadership. Reddit following. Trump *has a following*. Groupies to hate, normalizing hate. Hyper Normalizing hate. Surkov won since year 2013.
+
+https://old.reddit.com/r/pics/comments/1pg8c1j/donald_trump_with_the_dells_michael_and_susan_at/nspjslh/
+
+<img width="820" height="720" alt="image" src="https://github.com/user-attachments/assets/db1d6df7-d530-40ac-a430-1f53cd2046cf" /> I had to GitHub the patterns of how saturated dehumanization prizing has become in USA year 2025.  Surely no person would spend free time and spare time since June 16, 2015 on Reddit adopting Putin and Trump mocking and dehumanization. Surely this one person isn't the most important urgent use of free time and spare time in fixing MAGA. Adopting MAGA values, the simulation of resistance. Surkov won since year 2013. Reddit superficial prizing audience is the boot stomping on Women's Faces (Orwell). Rick Roderick was projecting the risk into the future in hope we wouldn't march into the brain exploit that was clear in year 1993: ... ... ...       
+"On the other hand, I don’t want it to not be funny, because part of the postmodern trajectory itself is a rather humorous joke on the human race which laboured for millennia to reduce working hours in order to produce leisure so we could enjoy this very leisure that then turns in a kind of vengeful act against us absorbing our leisure time, which was to be our living time, into time now spent in the service of what can only be called this inhuman spectacle. I mean, it’s a very bizarre and twisted fate to which postmodernity has led us." - Duke University, 1993 https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
