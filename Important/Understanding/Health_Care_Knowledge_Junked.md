@@ -51,3 +51,11 @@ https://old.reddit.com/r/CringeTikToks/comments/1peimy2/this_dementia_patient_ha
 Specific education and nonfiction learning of dementia. Not just saying the word "dementia" in a comment on Blueksy or Reddit, but actually learning. You see avoidance of this during COVID-19 too. People who insult and mock but won't link / quote / cite sources and teerminology and debate improtant seirous topics with intelligent science information and intellectual discource. Not just jokes, chanting, amusement memes.
 
 Same day on Reddit, will social media finally start repeating serious links instead of just repeating "Epstein List" messages over and over? https://old.reddit.com/r/politics/comments/1pf25zz/trump_showing_signs_hes_battling_major_medical/
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/Wellthatsucks/comments/1pgjcuq/woman_sneaks_into_back_of_restaurant_and_films/
+
+So much bullshit in society drowns out peer to peer important assertions. Public health. Public House vs. Private House eating asserted. Customer right to see how the sausage is made. Reddit DROWNS important shit in disposable posting and commenting and not confronting the Trumpism Corporate America FDA system of dehumanzing the consumers / fleecing consumers with bad education / Department of Education. Reddit hive mind asserts so much brainrot into the shit since year 2013 that important Wiki-style organized assert is wrecked internet wide.
