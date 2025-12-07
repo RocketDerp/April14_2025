@@ -1231,3 +1231,13 @@ Cultural remix, sampling media culture, post post-production localization.
 Going viral, memes, and books are now abandoned by the children. Reading levels, meme video clips / TikTok short-length video clip levels.
 
 https://old.reddit.com/r/TikTokCringe/comments/1pfxxzz/she_teaches_eighth_grade_and_has_more_than_100/
+
+&nbsp;
+
+### Sound Waves, Public Speakers
+
+Downgrades.
+
+https://old.reddit.com/r/SipsTea/comments/1pglnji/biggest_downgrade/
+
+Head jacks. Jacking in. Jacking off in public. [Grab a Jack[(https://www.youtube.com/watch?v=aRB1iLEv7Uo).
