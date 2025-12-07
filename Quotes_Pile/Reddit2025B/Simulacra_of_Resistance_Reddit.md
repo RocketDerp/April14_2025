@@ -313,3 +313,17 @@ Saturday December 6, 2025
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1pfo94t/she_is_a_hypocrite/
 
 A keep-alive of the fake resistance. The simulacra simulation of resistance on Reddit and Bluesky platforms. Charlie Kirk is not an elected government ruler, had soft power, not hard power. This resistance puts people to focus on the Reddit culture of banal / supefical / shallow mocking. Context of { Saturday Israel posting date / Palestine, Sunday tomorrow Charlie Kirk "Talking Point FAITH" religion since year 2021 that Kirk family etablished for televaglism, Christmas holidays December }. Anything and everything on Reddit society to avoid serious non-mocking non-LOL non-insulting study of Putin's "Internet Research Agency" and Russian orthodox information warfare techniques and details. Nonfiction trash abandoned in favor of JD Vance "couch sex" topics, white men private jet sex lives, and Charlie Kirk's ex-wife sex life with Vance. South Park ficton trash, avoiding **SERIOUS IMPORTANT NONFICTION ABOUT THE SIMULACRA:** https://www.atlanticcouncil.org/blogs/ukrainealert/russian-orthodox-church-declares-holy-war-against-ukraine-and-west/ Surkov won since March 2013 via Reddit using IRA. And this is super-deep Reddit audience mind fuck: Telling women to be in kitchen. telling women to shut the fuck up. Very popular Gamergate Reddit Pizzagate (Epstein Pizzagate QAnon bullshit https://www.bbc.com/news/world-us-canada-38231532 "list" of who does pizza basement lies when there is no basement to the Russia QAnon shit on Reddit: https://old.reddit.com/r/QAnonRussia )
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1pg0kfb/the_new_formula_for_success/
+
+Simulation of resting "the cult". Where is the nonfiction teaching about cults? Why isn't there a 3 page document, like a Wiki with citations, on cults? Why can't the screen-shot social media society (4chan and Twitter both in the screen shot) see the embeded anti-intellectual? MAGA calls "Libtards a cult", do you not see it? Everone is calling everyone else a cult.
+
+Tha'ts the simulacra. Cult vs. cult. Thought-ending phrase. https://en.wikipedia.org/wiki/Thought-terminating_clich%C3%A9 How long, how many years as the MAGA cult of /r/The_Donald been going? How long has Fox News HDTV cult been going? How long has the Chritian university science fiction story cult been going? The university student is expliting media popularity, media coverage, of antics. The univesity student is expaloiting "God did it", just like this 4chan message is exploiting "Cult did it", thought-ending phrases. https://en.wikipedia.org/wiki/Thought-terminating_clich%C3%A9
+
+ABSENT: is serious lengthy quotes and Wiki about MAGA cult characteristics. Fox News HTV cult. Jen Senko's 2015 / year 2016 film: https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad an organized Wiki with citations quotes of rael USA family members, quotes about cult issues.
+
+This is just simple little looping of "God did it", "Cult did it" back and forth.
