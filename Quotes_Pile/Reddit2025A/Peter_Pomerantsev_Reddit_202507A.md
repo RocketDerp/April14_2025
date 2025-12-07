@@ -1647,3 +1647,13 @@ Why oh why does social media socity ignore factual hard evidene about vacination
 https://old.reddit.com/r/politics/comments/1n5rek2/trump_is_wiping_out_unions_why_are_they_so_quiet/
 
 Unions have been manipulated by the IRA and CA since March 2013. Deep mind-fucking of the population to self-harm.
+
+&nbsp;
+
+&nbsp;
+
+# Sunday December 7, 2025
+
+https://old.reddit.com/r/BaldursGate3/comments/1pgri08/people_accusing_me_of_posting_ai_so_here_is_my/
+
+Peter P. TOLD US the menace of unreality / anti-reality warfare. September 9, 2014: https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
