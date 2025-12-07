@@ -522,3 +522,10 @@ The action film heroes, the bragging fathers to thdir sons. Men killing men...wo
 https://old.reddit.com/r/technicallythetruth/comments/1pg29s8/marlon_brando_is_not_in_heat/
 
 LLM overloaded meaning of words. Finnegans Wake overloaded. "heat" movie, actor in the story. Context bewilderment media ecology of F Wake.
+
+&nbsp;
+
+https://old.reddit.com/r/todayilearned/comments/1pglu5k/til_at_the_beginning_of_british_rock_band_jethro/
+
+Unnamed work in progress liking by Joyce    
+Character names ALP / HCE / symbols in wildcard Wake   
