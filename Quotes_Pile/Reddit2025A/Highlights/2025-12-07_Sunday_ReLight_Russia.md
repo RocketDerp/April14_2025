@@ -48,3 +48,15 @@ Why don't you ask yourself,  fellow Americans:
 
 We are living in a nation in massive psychological denial. NATO is in denial of ongoing measles.     
 https://www.bbc.com/news/technology-43255285
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+## GitHub addition 
+
+Today, December 7, we are coming around to December 11 again:
+
+"Putin is clearly winning Russia’s hybrid war against the U.S. because Americans don’t understand how they are being manipulated." - December 11, 2020 - "The Heritage Foundation" https://www.heritage.org/defense/commentary/putin-winning-russias-hybrid-war-against-america
