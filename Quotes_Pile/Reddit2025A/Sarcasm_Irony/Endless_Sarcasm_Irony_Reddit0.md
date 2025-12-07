@@ -1789,3 +1789,12 @@ https://old.reddit.com/r/MurderedByWords/comments/1pg9k7g/get_to_the_point/
 
 Reddit society front page in morning / sunrise Sunday: Promoting Charlie Kirk. Also note the removal of dates from these suspicious screen shots. The eternal metaphors of Jesus-leader / holy cult figure Charlie Kirk. A USA Jesus white saint has been created by clergy / ritual / Reddit consumers. People believe they are being clever and mocking, when what is heppening in real world media ecology: constant assertion of what is important topics. Extreme low-efort commenting, exgtreme mocking, following of Truth Social media behaviors, following of Fox News behaviors. "Gotcha" insulting / mocking / thoughtless mindless  eating out of Kremlin informaiton warfare. Normalizatio through joke-washing  entertainment-wrapping.  THis is what blows the mindsof Reddit consumers, dumb content. I did not say "dumb people", or "physically retarded brains"... I said content itself, media ecology, as Carl Sagan saidof"Celebration of Ignorance" about media in his 1995 book. Sunday, Church Day, alsomakes a *talkig point* of religion leader / sait Charlie Kirk. "Talking Point Faith" destablished year 2021. *Turning Point*, turning into, talking points mind langauge patterns. https://old.reddit.com/r/AskAChristian/comments/1np3uus/why_is_charlie_kirk_being_spread_in_church/
 
+&nbsp;
+
+#nbsp;
+
+# Endless Iterating age 12
+
+https://old.reddit.com/r/shittymoviedetails/comments/1pgkb0n/in_l%C3%A9on_the_professional_1994_there_is_a_scene/
+
+Endlessly iterating the list. How many times does Reddit have to flock to the "When you are a media star, you can grab them by the pussy" entertainment-washing wells? Yes, Epstein, yes it's on the Reddit hive mind all the time. Iterating little girl topics over and over. Active Measures from Putin and Trump against media addicts of Hollywood pros. Reddit eats it up. Why not make Pussy Riot the constant repeating topic on Reddit, adult women speaking and givig voice to young girls? Why not Malala from Swat Valley having former abused girls for adult topic discussions sent to Reddit for AMA?
