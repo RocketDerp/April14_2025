@@ -516,3 +516,9 @@ https://old.reddit.com/r/CuratedTumblr/comments/1pf1754/on_rituals/
 https://old.reddit.com/r/interestingasfuck/comments/1pfk5u2/british_officer_adrian_carton_de_wiart_was_shot/
 
 The action film heroes, the bragging fathers to thdir sons. Men killing men...world over. The Geramny killers have the same attitudes of "good" and "strong". The nightmare of history of cheering on self-harm of leaders into more  self-harm. The language barriers and hate prizing.
+
+&nbsp;
+
+https://old.reddit.com/r/technicallythetruth/comments/1pg29s8/marlon_brando_is_not_in_heat/
+
+LLM overloaded meaning of words. Finnegans Wake overloaded. "heat" movie, actor in the story. Context bewilderment media ecology of F Wake.
