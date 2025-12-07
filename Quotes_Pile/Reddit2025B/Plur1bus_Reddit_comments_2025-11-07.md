@@ -913,3 +913,19 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pg3180/banned_and_muted_for_a
 
 Like Carol to the hive mind.
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pg3180/banned_and_muted_for_asking_a_question/nsof8lr/
+
+The themes of the Pluribus show. The hive minds that fight. How humanity can't even listen to each other on a Unicode message platform, let alone world peace and harmony. And how few see the forest for the trees of of trialism egoism. USA 2025 I.C.E. raids against outsiders.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pg3180/banned_and_muted_for_asking_a_question/nsp0ibr/
+
+Permanent, and if you accidently use another account, Reddit wide banned permanent. Anti-humanism, dehumanizing with power machines.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pg3180/banned_and_muted_for_asking_a_question/nso943b/
+
+Helen on her social device at minute 22 of Episode One, the touchy USA social media topics of "trans gender" character transitions / gender moves. J. K. Harry Potter backlash topics. Media ecology metaphors abound, flexible poetry, not rigid meanings of orothodox "show means only this".
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pg3180/banned_and_muted_for_asking_a_question/nsolc34/
+
+-3 downvote by Reddit raging hive mind community against on-topic discussions. Downvote-disagree Reddit culture 2025.
+
