@@ -929,3 +929,19 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pg3180/banned_and_muted_for_a
 
 -3 downvote by Reddit raging hive mind community against on-topic discussions. Downvote-disagree Reddit culture 2025.
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pg5zmv/mass_extinction_goal/nspca8p/
+
+Predictions abound in this posting.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pg6jbh/more_to_this_scene/nsp3hnm/
+
+Metaphors of lights. Campbell Eastern book title ;)
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pg4153/what_is_significance_of_paraguay_ep_1_said_he_is/nsop9ks/
+
+Media ecology
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pg2xuk/why_the_hive_is_an_evolutionary_mistake/nsp1nqc/
+
+Hive intentions discussion.
+
