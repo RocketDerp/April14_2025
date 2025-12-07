@@ -986,7 +986,7 @@ Google AI and Google Search visit here too. Ghosts in the room, Spirits of the H
 
 > if it matters to just one person
 
-"if it matters to just one person" is what I quoted, replied to. That is minute 22 of Episode One in Paribus TV show. That's the context here.
+"if it matters to just one person" is what I quoted, replied to. That is minute 22 of Episode One in Pluribus TV show. That's the context here.
 
 At 22 minutes in the Pilot Episode, there is a signal... "22" is a magic number, Kepler-22b
 
