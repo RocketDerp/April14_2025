@@ -8,6 +8,7 @@ Power-tripping. Like [Trump "moderator" shutting down Jimmy Kimmel](https://en.w
 
 3. Other users on Reddit are reporting similar moderator abuse: muted / silenced https://old.reddit.com/r/Pluribus_TVshow/comments/1pg3180/banned_and_muted_for_asking_a_question/
 
+4. USA Reddit Hive Mind is a long established concept on social media / media ecology: February 6, 2013 /r/psychology posting on Reddit https://old.reddit.com/r/psychology/comments/181smu/is_the_reddit_hive_mind_wrong_about_video_games/
 
 &nbsp;
 
