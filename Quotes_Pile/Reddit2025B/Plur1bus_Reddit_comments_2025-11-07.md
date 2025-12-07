@@ -953,3 +953,23 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pfr7lm/ep_6_hdp_theory/nsn4ux
 
 This Reddit user has paremently blocked me for discussing a TV show on a public forum. Reddit media ecology of "Reddit Hive Mind". The media ecology of abuse / rape by a doctor. The media ecology of Breaking Bad doctor fandom on Reddit. Year 2013 baseline "hive Mind" media ecology tribal filter-bubble topic (addicts to digital media systems filtering out persons / humanity): https://old.reddit.com/r/psychology/comments/181smu/is_the_reddit_hive_mind_wrong_about_video_games/ The media ecology metaphors of Dublin Finnegans Wake Protestant vs. Catholic peer blocking over The BIble media science fiction interpretations. Finnegans Wake McLuhan electric media ecology. Carol blocking the hive mind, the hive mind leaving the city and fleeing Vegas to avoid Carol. Egoism in the Reddit hive mind / Pluribus hive mind. Media ["True King of Pop" Trump Truth Social and Jimmy Kimmel blocking, leadership of USA](/Grim_Blunt/Donald_Trump_SuperStar.md) of a Reddit USA user that blocks serious discourse about Vince Gilligan media ecology origns. Media ecology history lesson: Reddit did not even HAVE "peer to peer" user to user, end-user to end-user, blocking until Donald Trump became the role model of Reddit social media user behavior. https://old.reddit.com/r/blog/comments/s71g03/announcing_blocking_updates/
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pfr7lm/ep_6_hdp_theory/nsm80s8/
+
+Media ecology. "Observation of Reddit Hive Mind: your comment got downvoted to -1 A "Thank you" comment got downvoted by two people."
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pfr7lm/ep_6_hdp_theory/nsmzdjd/
+
+Media ecology of extreme fear of being downvoted / silenced / blocked for "bad words" on the subreddit. Hive mind enforcers / conformity enforcers are why people self-censor and are incredibly guraded in how they comment in the high-speed reactionary Reddit media environment.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pfr7lm/ep_6_hdp_theory/nslw6q5/
+
+A user who purged thier comment because of the hostility of the Reddit Pluribus media environment street gangs of media hive minds.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pfr7lm/ep_6_hdp_theory/nsnqyxo/
+
+Reddit hive mind down-voted this on-topic stem cells comment, raging peer to peer street fighting over USA "stem cells" touchy subject on Reddit USA / Apple TV+ USA. https://www.bbc.com/news/world-us-canada-11079667
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pgdb62/its_simple/nsqy6be/
+
+Multiple meanings, meaning overloaded, [language overloading science](https://www.adaic.org/resources/add_content/standards/05rat/html/Rat-2-7.html) metaphors, interpretation overloading layers of trickle-out storytelling Pluribis show has been.
+
