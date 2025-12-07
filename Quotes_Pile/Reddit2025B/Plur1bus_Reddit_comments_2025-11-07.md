@@ -900,3 +900,16 @@ Tiny-short iPhone screen banality messaging about Pluribus metaphors.
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pfu7ac/can_you_guys_please_chill_on_the_semi_spoilers_in/nso3u97/
 
 "Bot", The ELIZA effect. Turning test failure.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pg3180/banned_and_muted_for_asking_a_question/nso8u9p/
+
+More ARG Reddit hive mind ban-happy mute-happy behaviors of power seekers
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pg3180/banned_and_muted_for_asking_a_question/nsoa7ko/
+
+Reddit December 2025 Apple computer "walled garden" "one and only one app store" "jailbreak" customer attitudes. On-brand USA anti-immigrant face-masked I.C.E. deport-happy 2025 attitudes.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pg3180/banned_and_muted_for_asking_a_question/nsohqi7/
+
+Like Carol to the hive mind.
+
