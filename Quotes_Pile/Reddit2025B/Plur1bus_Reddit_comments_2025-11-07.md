@@ -1029,3 +1029,7 @@ ToDo: check out that music album!
 https://old.reddit.com/r/Pluribus_TVshow/comments/1phcgpy/i_cant_shake_this_to_those_who_claim_that_the/nsys8zy/
 
 My comment. Reddit site doesn't like metaphors that hit too close to Carol's home. Mr White Breaking Bad, Carol's Betty WHite TV shows.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1phcgpy/i_cant_shake_this_to_those_who_claim_that_the/nsyxply/
+
+Reddit audeince minds easiily blown into *meme stupor* loops.
