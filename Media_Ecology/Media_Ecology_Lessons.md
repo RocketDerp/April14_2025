@@ -1260,4 +1260,6 @@ How Star Wars Broke Red Letter Media
 
 https://www.youtube.com/watch?v=gBQtL5krmpA
 
-Mocking Joseph Campbell Power of Myth 1988 away.
+Mocking Joseph Campbell Power of Myth 1988 away. Red Letter drunk on mocking / mockery (Neil Postman 1985 Amused to Death, at time of Campbell's interviews)
+
+@7:09 obligatory context of Star Wars / Skywalker Ranch. 1988 filmed by George Lucas, Power of Myth: "Shakespeare said that art is a mirror held up to nature. And that’s what it is. The nature is your nature, and all of these wonderful poetic images of mythology are referring to something in you. When your mind is simply trapped by the image out there so that you never make the reference to yourself, you have misread the image. The inner world is the world of your requirements and your energies and your structure and your possibilities that meets the outer world. And the outer world is the field of your incarnation. That’s where you are. You’ve got to keep both going. As Novalis said, “The seat of the soul is there where the inner and outer worlds meet.” - age 83 Sarah Lawrence College professor
