@@ -1252,3 +1252,12 @@ Keyboarding / typing / data-typing Chinese characters.
 
 https://www.youtube.com/watch?v=cPYK8s2OdMY
 
+#nbsp;
+
+### Halloween year 1517 Letter to Hollywood
+
+How Star Wars Broke Red Letter Media
+
+https://www.youtube.com/watch?v=gBQtL5krmpA
+
+Mocking Joseph Campbell Power of Myth 1988 away.
