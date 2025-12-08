@@ -1053,3 +1053,8 @@ More about block-happy hive mind Reddit power tripping / egoism / raging egomani
 https://old.reddit.com/r/Pluribus_TVshow/comments/1phidno/hello_carol_we_are_dolan_dark_and_were_to_address/nsz5ro3/
 
 People who crave using ChatGPT summary of books, boil a whole book down ... *ChatGPT*... to one paragraph. Reddit hive mind conformtiy enforcement media street gang members.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1phidno/hello_carol_we_are_dolan_dark_and_were_to_address/nsyy3f6/
+
+Media ecology! 
+
