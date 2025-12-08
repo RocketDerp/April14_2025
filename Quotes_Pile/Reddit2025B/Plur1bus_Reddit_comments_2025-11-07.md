@@ -1003,3 +1003,7 @@ Reference also the posting, not just this comment target link.
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pgtl33/episode_4_2min_28_3min_46_78_seconds/nsuj0q0/
 
 CONTEXT ASSERTION: Vince Gilligan public education https://youtu.be/kFrffEktluo?t=3315 Very key mythology storytelling concept. "Since **you have distanced yourselves from them** and what they worship" https://quran.com/al-kahf/9-26
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1phe3kh/we_need_some_space_from_rpluribustv/nsxzix8/
+
+My public response to power-drunk moderators of Reddit.
