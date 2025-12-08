@@ -115,3 +115,6 @@ Sagan's Ashes (book burning, Neil Postman no need to burn a book, Pussy Riot Put
 Modern Meta Metaphors    
 Modern Life Metaphors    
 Modern Livin' Metaphors (missing "'" from Finnegans Wake title, Enter Shakari song)    
+
+"Hittin' the hard stuff" (Joyce the boozer, Earwicker booze bar, the missing " ' " in Finnegans Wake title)    
+
