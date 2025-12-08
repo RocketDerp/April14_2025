@@ -4,7 +4,7 @@ Which came first, the Moscow chicken or the Manhattan egghead?
 
 Neil Postman, Huxly, Brave New World    
 Vlad Surkov, Zero Point Energy    
-Rich Roderick, half way to Surkov in 1993.   
+Rick Roderick, half way to Surkov in 1993.   
 
 1986 summer, in the realm of Postman: 
 
