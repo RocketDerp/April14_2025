@@ -15,3 +15,10 @@ February 28, 1954: "Most people can't stand up for their convictions, because th
 
 Numerical interpretation Truth: Likes, Fox News audience size, Subscribes, Votes.      
 February 28, 1954: "a sort of numerical interpretation" of Likes / Subscribes / Viewership / Votes.    
+
+&nbsp;
+
+# Republished Revivals
+
+https://bsky.app/profile/roundsparrow.bsky.social/post/3m7i3heibbs2d     
+https://autistics.life/@RoundSparrow/115684062747079042     
