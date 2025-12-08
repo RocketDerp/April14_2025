@@ -1128,3 +1128,19 @@ https://old.reddit.com/r/RedditForGrownups/comments/1luz9lb/is_it_just_me_or_is_
 
 Media Ecology 130? Reddit literacy media ecology URL clicking / URL touching. Anti-Wiki "enagement". Twitter vs. Reddit.
 
+https://old.reddit.com/r/todayilearned/comments/1phe82c/til_that_an_ai_company_which_raised_450m_in/nsxyzu9/
+
+And evidence of how many corporate executives, corporate lawyers in aranging investment, can't pass "The Turing Test" and fall for "The ELIZA effect" interactions from across the ocean. The "Chinese room of cultural exchange" metaphors abound.
+
+https://old.reddit.com/r/technology/comments/1phc3yu/microsoft_has_a_problem_nobody_wants_to_buy_or/nsxlifz/
+
+Pluribus hive mind LLM forced metaphors.
+
+https://old.reddit.com/r/WorkReform/comments/1pf2g71/bezos_bought_wapo_to_yell_at_the_poors_to_quit/nsgwh4r/
+
+This comment creator had a front-page male day care, anti-men anti-USA posting, parenting of Donald Trump society - that Reddit removed. Removed posting: https://old.reddit.com/r/TwoXChromosomes/comments/1phf4ly/i_stopped_packing_my_daughters_daycare_bag_and/
+
+https://old.reddit.com/r/TwoXChromosomes/comments/1phf4ly/i_stopped_packing_my_daughters_daycare_bag_and/nsygzha/
+
+(banned posting / owners of Reddit removed it) age 12 mocking. Just like people keep declaring Trump age 12, Elon Musk age 12, not facing the hive mind of Reddit, Rupert Murdoch age hive mind. Mockery-washing and insult-washing like Truth Social media audiences. Age 12 Malala, anti-Malala messages, anti-education, anti-teaching of Malala - pro-Mocking of { Newsmax, Fox News / Musk Twitter / Truth Social / Reddit audience }.
+
