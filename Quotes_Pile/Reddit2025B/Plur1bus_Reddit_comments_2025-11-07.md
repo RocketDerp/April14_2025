@@ -1007,3 +1007,7 @@ CONTEXT ASSERTION: Vince Gilligan public education https://youtu.be/kFrffEktluo?
 https://old.reddit.com/r/Pluribus_TVshow/comments/1phe3kh/we_need_some_space_from_rpluribustv/nsxzix8/
 
 My public response to power-drunk moderators of Reddit.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1phcgpy/i_cant_shake_this_to_those_who_claim_that_the/nsyf6ab/
+
+My message on sex abuse of children subtext.
