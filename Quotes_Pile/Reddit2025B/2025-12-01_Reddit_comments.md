@@ -1144,3 +1144,6 @@ https://old.reddit.com/r/TwoXChromosomes/comments/1phf4ly/i_stopped_packing_my_d
 
 (banned posting / owners of Reddit removed it) age 12 mocking. Just like people keep declaring Trump age 12, Elon Musk age 12, not facing the hive mind of Reddit, Rupert Murdoch age hive mind. Mockery-washing and insult-washing like Truth Social media audiences. Age 12 Malala, anti-Malala messages, anti-education, anti-teaching of Malala - pro-Mocking of { Newsmax, Fox News / Musk Twitter / Truth Social / Reddit audience }.
 
+https://old.reddit.com/r/news/comments/1phdf7s/mexico_freezes_miss_universe_coowners_bank/nsxw2zb/
+
+<img width="828" height="564" alt="image" src="https://github.com/user-attachments/assets/74b9023e-432c-4e9b-aa45-f4487593de62" /> November 8, 2013 Moscow connection. Before the world wide organized Putin crime syndicate announced December 20, 2013 weeks later: https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/ Note the age of the Reddit account that made this comment.
