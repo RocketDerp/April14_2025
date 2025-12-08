@@ -109,7 +109,8 @@ P.S. P.R.  (Police State / Post Script: Public Relations)
 
 1995 Nation of Suckers    
 Nation of Suckers    
-Sagan Saga  
+Sagan Saga   
+Sagan's Ashes (book burning, Neil Postman no need to burn a book, Pussy Riot Putin's Ashes IRA aftermath, Putin Haunted book ttile metaphors)     
 
 Modern Meta Metaphors    
 Modern Life Metaphors    
