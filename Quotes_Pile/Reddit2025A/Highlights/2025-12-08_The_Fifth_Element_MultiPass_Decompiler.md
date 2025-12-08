@@ -1,4 +1,4 @@
-# THe Fifth Element Multi-Pass Decompiler   
+# The Fifth Element Multi-Pass Decompiler   
 
 https://old.reddit.com/r/ProgrammerHumor/comments/1ph0im3/whatelseprogrammingrelatedcanconvertyouintobelieve/nsxjjwk/
 
