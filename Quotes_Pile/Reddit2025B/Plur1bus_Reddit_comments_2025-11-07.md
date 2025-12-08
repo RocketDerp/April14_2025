@@ -1033,3 +1033,7 @@ My comment. Reddit site doesn't like metaphors that hit too close to Carol's hom
 https://old.reddit.com/r/Pluribus_TVshow/comments/1phcgpy/i_cant_shake_this_to_those_who_claim_that_the/nsyxply/
 
 Reddit audeince minds easiily blown into *meme stupor* loops.
+
+https://old.reddit.com/r/Pluribus_TV/comments/1m989fs/meaning_of_pluribus/nsyzmgs/
+
+My comment to wake up a 4 month stale subreddit.
