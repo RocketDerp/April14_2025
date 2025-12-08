@@ -109,3 +109,6 @@ Onion Eaturs
 Nation of Suckers    
 Sagan Saga  
 
+Modern Meta Metaphors    
+Modern Life Metaphors    
+Modern Livin' Metaphors (missing "'" from Finnegans Wake title, Enter Shakari song)    
