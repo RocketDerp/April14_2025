@@ -32,6 +32,23 @@ Hanging Trees: Return to sender messenger trees
 
 &nbsp;
 
+## Trees Of  
+
+Tree of Life    
+Tree of Death (Hanging public display, sending message, intimidation)    
+Tree of notice (death note) (Halloween year 1517 message TO: John 1:1)    
+Tree of Death (shade tree. ToDo: Erin Ivy song aboug pastor with coins)    
+Tree of Kknowledge     
+Binary Tree data structures    
+Tree of Godot    
+["Just Joshin'"](https://old.reddit.com/r/AskReddit/comments/57o1de/where_did_the_phrase_im_just_joshin_around_with/) tree ("Just a plank" (trespassing planking), "Just a prank" tree metaphors)    
+Tree of Olives (Olive oil treating wounds. Olive branch metaphors)   
+
+Fig tree. "Fig it out", figures.    
+
+&nbsp;
+
+
 ## Notes A
 
 Oak tree meaning? https://en.wikipedia.org/wiki/Elon_(name)
