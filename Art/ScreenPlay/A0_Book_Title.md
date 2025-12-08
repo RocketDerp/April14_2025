@@ -119,3 +119,7 @@ Modern Livin' Metaphors (missing "'" from Finnegans Wake title, Enter Shakari so
 "Hittin' the hard stuff" (Joyce the boozer, Earwicker booze bar, the missing " ' " in Finnegans Wake title)    
 Skeleton Key to PLUR1BUS   
 
+&nbsp;
+
+Borrow a Metaphor     
+Can I Borrow a Metaphor?  (Simpsons song)     
