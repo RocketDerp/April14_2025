@@ -1064,5 +1064,8 @@ In the context of a TV show about Carol's *pirating fanatsies* .. audience membe
 
 https://old.reddit.com/r/pluribustv/comments/1p38hnb/potential_symbolism_ep_4/nq2ziin/
 
-Skeleton Key to PLUR1BUS (Campbell). OPERA_A Southern Cross metaphors abound. Pirate Lady / Pirate Man / Gender Crossing / Audience concealing inspiration of Carol's book series. https://www.youtube.com/watch?v=Bw9gLjEGJrw = got out of town for a book tour opening of song lyrics and TV show pilot episode. Piloting a ship. Sail boats old tech, Pirates. is Avalon in Carol's writing? Midnight watch - Zero Hour Public House in bar in Avalon. Hive mind spirits, forgetting Helen, calling Carl and 12 to join. Looking for that Helen girl that love can endure. Happy / hive mind / love one another. And you know it will!
+<img width="832" height="516" alt="image" src="https://github.com/user-attachments/assets/443a99fd-8a8a-42de-81ed-615e0c38fc87" /> Skeleton Key to PLUR1BUS (Campbell). OPERA_A Southern Cross metaphors abound. Pirate Lady / Pirate Man / Gender Crossing / Audience concealing inspiration of Carol's book series. https://www.youtube.com/watch?v=Bw9gLjEGJrw = got out of town for a book tour opening of song lyrics and TV show pilot episode. Piloting a ship. Sail boats old tech, Pirates. is Avalon in Carol's writing? Midnight watch - Zero Hour Public House in bar in Avalon. Hive mind spirits, forgetting Helen, calling Carl and 12 to join. Looking for that Helen girl that love can endure. Happy / hive mind / love one another. And you know it will!
 
+https://old.reddit.com/r/pluribustv/comments/1p38hnb/potential_symbolism_ep_4/nq4ggqz/
+
+Reddit audience downvoted comment to -2 for saying that serious is desired. Hive mind against the 13 free thinkers who are facing reality metaphors. Reddit hive mind conformity.
