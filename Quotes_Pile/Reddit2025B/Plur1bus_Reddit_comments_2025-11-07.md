@@ -1025,3 +1025,7 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1phhckr/forbidden_posting_on_t
 My comment. BONUS: First to introduce to Reddit hive mind. <img width="1658" height="1018" alt="image" src="https://github.com/user-attachments/assets/46382d2b-c070-4b55-a0b7-2bbe54ee7c4a" />
  This is the FIRST TIME in Reddit history a link has been posted to this Wikipedia page. Despite all the I.C.E. protests, this book being published in April 2021 after January 6, 2021 is a HUGE thing to be discussing on Reddit and Bluesky all year 2025. The book page is linked as a "See Also" on a Wiki Pluribus page https://en.wikipedia.org/wiki/E_pluribus_unum <img width="2356" height="648" alt="image" src="https://github.com/user-attachments/assets/471d8af5-c59a-43ce-934e-f746510028ba" /> 
 ToDo: check out that music album!
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1phcgpy/i_cant_shake_this_to_those_who_claim_that_the/nsys8zy/
+
+My comment. Reddit site doesn't like metaphors that hit too close to Carol's home. Mr White Breaking Bad, Carol's Betty WHite TV shows.
