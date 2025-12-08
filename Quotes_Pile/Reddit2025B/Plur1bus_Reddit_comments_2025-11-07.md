@@ -1058,3 +1058,6 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1phidno/hello_carol_we_are_dol
 
 Media ecology! 
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1phidno/hello_carol_we_are_dolan_dark_and_were_to_address/nsyzcw0/
+
+In the context of a TV show about Carol's *pirating fanatsies* .. audience members wanting secret I,C.E. police of copyright takedowns.
