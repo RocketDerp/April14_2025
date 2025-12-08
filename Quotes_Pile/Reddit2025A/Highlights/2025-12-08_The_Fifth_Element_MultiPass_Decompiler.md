@@ -37,7 +37,7 @@ The Tower of Babel translator.
 
 4. OPTIONAL pass three: commentary source code. A module for the Apple //+ and Commodore 64. CHOICE of *commentary writers / commentary editors* modules for different human written languages. Different choices of "schools of thought" on verbose link-filled (Wiki links) citations vs. more old-school terse code commenting. A super beautify of the C and macro assembler code.
 
-5. OPTIONAL pass four: source-code optimization modules.  ifferent choices of "schools of thought". Best practices schools / styles. Should C code do loops a certain way? Strings a certain way? Known poor-performing code replaced with the "best of StackExchange debate" techniques. A source-code rewrite but still compatible behavior "fix old 1970's and 1980's source code techniques" with learned automated rewriting.
+5. OPTIONAL pass four: source-code optimization modules.  Different choices of "schools of thought". Best practices schools / styles. Should C code do loops a certain way? Strings a certain way? Known poor-performing code replaced with the "best of StackExchange debate" techniques. A source-code rewrite but still compatible behavior "fix old 1970's and 1980's source code techniques" with learned automated rewriting.
 
 Then once you have these two hardware device (C64 Apple 2+) mastered at the 99% level... add Ada as the next language beyond C.  Then add 80286 8086 16-bit CPU of the IBM PC and IBM PC AT with CGA and Hercules graphics card. So the August 14, 1984 technology level.
 
