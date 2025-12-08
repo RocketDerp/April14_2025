@@ -1072,5 +1072,6 @@ Reddit audience downvoted comment to -2 for saying that serious is desired. Hive
 
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pheaew/episode_six_carol_plus_twelve_mormon_foundations/nsywhg2/
 
-One month recent Reddit account. Profile of the account has a message about being a block-happy reddit who prizes egoism. Like the hive mind blocking Carol - fleeing Carol. Reddit egoism to have to silence comments to a human person because you can't tolerate someone else's ideas. Calling for censorship, profile that promotes censoring via blocking.
+One month recent Reddit account. Profile of the account has a message about being a block-happy reddit who prizes egoism. Like the hive mind blocking Carol - fleeing Carol. Reddit egoism to have to silence comments to a human person because you can't tolerate someone else's ideas. Calling for censorship, profile that promotes censoring via blocking. A hive mind user of Reddit who makes no comment about the Pluribus TV show storytelling, that is the posting, and the comment is only about their Reddit media concern, not the Vince Gilligan media topic. People are unable to engage serious discussion about Pluribus Reddit hive mind, media ecology, other than deporting (blocking) people that upset the Truth Social MAGA values egoism.
+
 
