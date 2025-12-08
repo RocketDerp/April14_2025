@@ -1044,4 +1044,4 @@ Yep, I nailed it. Single word "What", mockery of complex 9/11 Terrorism Islamic 
 
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pf094d/very_serious_reddit_posting_about_vince_gilligan/nsz0902/
 
-<img width="1044" height="492" alt="image" src="https://github.com/user-attachments/assets/8ec04fa4-93a9-4b5f-ac62-b07b3aac5095" /> Wow signal! A Reddit modertor who UNBOCKED what the automated defense sheilds of the Hive Mind egoism defends against! The manipulated filters to prevent serious discourse of unusuual writing against the bland hive-mind expectations of seasoned creativity!
+<img width="1044" height="492" alt="image" src="https://github.com/user-attachments/assets/8ec04fa4-93a9-4b5f-ac62-b07b3aac5095" /> Wow signal! A Reddit moderator who UNBOCKED what the automated defense sheilds of the Hive Mind egoism defends against! The manipulated filters to prevent serious discourse of unusuual writing against the bland hive-mind expectations of seasoned creativity!
