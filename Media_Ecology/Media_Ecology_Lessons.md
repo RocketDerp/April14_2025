@@ -1244,3 +1244,11 @@ Head jacks. Jacking in. Jacking off in public. [Grab a Jack](https://www.youtube
 
 Bonus topic: media ecology of tip-ring jacks. https://en.wikipedia.org/wiki/Tip_and_ring - devices with polarity protocol and transgender connector issues https://en.wikipedia.org/wiki/Polarity_symbols
 
+#nbsp;
+
+### Chinese Writing, Typing 
+
+Keyboarding / typing / data-typing Chinese characters.
+
+https://www.youtube.com/watch?v=cPYK8s2OdMY
+
