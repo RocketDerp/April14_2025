@@ -104,6 +104,8 @@ P. R. Pee Tapes
 Pee Tapes P. R.    
 Death Onion Eaters   
 Onion Eaturs   
+Epstein Pee VHS P.R.     
+P.S. P.R.  (Police State / Post Script: Public Relations)    
 
 1995 Nation of Suckers    
 Nation of Suckers    
