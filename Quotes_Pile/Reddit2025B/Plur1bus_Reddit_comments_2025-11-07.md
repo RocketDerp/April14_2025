@@ -1011,3 +1011,7 @@ My public response to power-drunk moderators of Reddit.
 https://old.reddit.com/r/Pluribus_TVshow/comments/1phcgpy/i_cant_shake_this_to_those_who_claim_that_the/nsyf6ab/
 
 My message on sex abuse of children subtext.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pheaew/episode_six_carol_plus_twelve_mormon_foundations/nsygdaj/
+
+You get these replies on Reddit, but they don't upvote the post. David Gray? https://www.facebook.com/davidgray/videos/a-mighty-wind-is-blowingits-blowing-you-and-mejuicy-little-snippet-of-hurricane-/408595599840764/ "'A mighty wind is blowing, It's blowing you and me' Juicy little snippet of "Hurricane Season" from production rehearsals"
