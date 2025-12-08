@@ -996,3 +996,6 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pfga8e/if_it_matters_to_just_
 
 If your "CONTEXT ASSERTION" reaches evern one single reader...
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pgtl33/episode_4_2min_28_3min_46_78_seconds/nstz5pw/
+
+Reference also the posting, not just this comment target link.
