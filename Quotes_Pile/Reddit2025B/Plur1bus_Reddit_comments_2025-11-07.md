@@ -1069,3 +1069,8 @@ https://old.reddit.com/r/pluribustv/comments/1p38hnb/potential_symbolism_ep_4/nq
 https://old.reddit.com/r/pluribustv/comments/1p38hnb/potential_symbolism_ep_4/nq4ggqz/
 
 Reddit audience downvoted comment to -2 for saying that serious is desired. Hive mind against the 13 free thinkers who are facing reality metaphors. Reddit hive mind conformity.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pheaew/episode_six_carol_plus_twelve_mormon_foundations/nsywhg2/
+
+One month recent Reddit account. Profile of the account has a message about being a block-happy reddit who prizes egoism. Like the hive mind blocking Carol - fleeing Carol. Reddit egoism to have to silence comments to a human person because you can't tolerate someone else's ideas. Calling for censorship, profile that promotes censoring via blocking.
+
