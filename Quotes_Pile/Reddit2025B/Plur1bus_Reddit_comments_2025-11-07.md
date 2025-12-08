@@ -1041,3 +1041,7 @@ My comment to wake up a 4 month stale subreddit.
 https://old.reddit.com/r/Pluribus_TVshow/comments/1phcgpy/i_cant_shake_this_to_those_who_claim_that_the/nsyznub/
 
 Yep, I nailed it. Single word "What", mockery of complex 9/11 Terrorism Islamic Terrorism / Police State themes in the show. Then they BLOCK YOU to prevent furhter reply messages on Reddit. Blocking the whole thread. "Mock and block" drive-by simple one-word attack information warfare techniques.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pf094d/very_serious_reddit_posting_about_vince_gilligan/nsz0902/
+
+Wow signal! A Reddit modertor who UNBOCKED what the automated defense sheilds of the Hive Mind egoism defends against! The manipulated filters to prevent serious discourse of unusuual writing against the bland hive-mind expectations of seasoned creativity!
