@@ -30,3 +30,8 @@ https://www.youtube.com/watch?v=UBxZFadp9Pw
 &nbsp;
 
 Was Surkov simply the one in year 2011 out in front of the Before Hollywood Caves of Altamira mythology waves? The water wakes of Finnegans Wakes?
+
+Surkov is concerned with the world.
+
+Malala is concerned about the followers of Surkov and followers of the Taliban and the followers of Trump. "This is the problem for today. Is the hero of a given state or people what we need today, when the whole planet should be our field of concern?"
+
