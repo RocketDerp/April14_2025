@@ -96,4 +96,11 @@ Bonfire of Reality
 Bonfire of Sincerity    
  (Intentional or otherwise, misinforming)
 
-
+Public Relations Opera     
+Everything Is P. R.    
+P. R. Opera     
+P. R. P. U.    
+P. R. Pee Tapes     
+Pee Tapes P. R.    
+Death Onion Eaters   
+Onion Eaturs   
