@@ -29,3 +29,10 @@ https://en.wikipedia.org/wiki/Waiting_for_Godot
 Gallows    
 Gallows humor     
 Hanging Trees: Return to sender messenger trees     
+
+&nbsp;
+
+## Notes A
+
+Oak tree meaning? https://en.wikipedia.org/wiki/Elon_(name)
+
