@@ -104,3 +104,8 @@ P. R. Pee Tapes
 Pee Tapes P. R.    
 Death Onion Eaters   
 Onion Eaturs   
+
+1995 Nation of Suckers    
+Nation of Suckers    
+Sagan Saga  
+
