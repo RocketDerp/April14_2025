@@ -1049,3 +1049,7 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pf094d/very_serious_reddit_po
 https://old.reddit.com/r/Pluribus_TVshow/comments/1phidno/hello_carol_we_are_dolan_dark_and_were_to_address/nsyyyek/
 
 More about block-happy hive mind Reddit power tripping / egoism / raging egomania. Karens / Carols
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1phidno/hello_carol_we_are_dolan_dark_and_were_to_address/nsz5ro3/
+
+People who crave using ChatGPT summary of books, boil a whole book down ... *ChatGPT*... to one paragraph. Reddit hive mind conformtiy enforcement media street gang members.
