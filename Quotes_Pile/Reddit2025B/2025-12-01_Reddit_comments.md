@@ -1114,4 +1114,17 @@ https://old.reddit.com/r/ProgrammerHumor/comments/1ph0im3/whatelseprogrammingrel
 
 So much of this Reddit posting comments are avoiding the topic: Consoles have a history of anemic RAM and no virtual memory. It is Personal Computer users who expand RAM. The Nintendo 64 RAM slot to double was pretty rare. And some bloat can be removed because compiler-time conditions for different consoles. Not having to have different run-time code paths for different GPU models and generations. And low-level assembly bit-banging on console is consistent... where diffrerent CPU capabilities and performance on a AMD vs. Intel personal computer can make assembly a mess. Laptop CPU vs. desktop, multi-cores vs single core. 
 
+https://old.reddit.com/r/mildlyinfuriating/comments/1ph4pdl/ai_slop_on_netflix_doc_a_very_pagan_christmas/nswmwgh/
+
+Media Ecology 130 self-publishing with no editors / publisher gatekeeping.
+
+https://old.reddit.com/r/mildlyinfuriating/comments/1ph4pdl/ai_slop_on_netflix_doc_a_very_pagan_christmas/nswhoo1/
+
+Walmart retailers too. Very high priced items that are scams. Food products, SD cards / USB sticks
+
+https://old.reddit.com/r/mildlyinfuriating/comments/1ph4pdl/ai_slop_on_netflix_doc_a_very_pagan_christmas/nswdllq/
+
+https://old.reddit.com/r/RedditForGrownups/comments/1luz9lb/is_it_just_me_or_is_that_people_dont_actually/n21upd5/
+
+Media Ecology 130? Reddit literacy media ecology URL clicking / URL touching. Anti-Wiki "enagement". Twitter vs. Reddit.
 
