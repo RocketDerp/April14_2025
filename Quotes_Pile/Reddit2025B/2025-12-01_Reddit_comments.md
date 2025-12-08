@@ -1094,3 +1094,24 @@ https://old.reddit.com/r/ProgressiveHQ/comments/1pgau65/this_account_on_twitter_
 
 Gun worship USA. NRA Russian messaging. https://www.npr.org/2019/09/27/764879242/nra-was-foreign-asset-to-russia-ahead-of-2016-new-senate-report-reveals ANYTHING to avoid learning Russian information warfare, Surkov's name, nonfiction learning.
 
+https://old.reddit.com/r/ProgrammerHumor/comments/1ph0im3/whatelseprogrammingrelatedcanconvertyouintobelieve/nsw0qtj/
+
+Media Ecology: Windows Start Menu evolution
+
+https://old.reddit.com/r/ProgrammerHumor/comments/1ph0im3/whatelseprogrammingrelatedcanconvertyouintobelieve/nswaebw/
+
+Like a society without good public transportation and clergy who teaches sharing. Instaed, a clergy of factory owners who teach over-consumption and independence via clergy of advertising and Edward Bernays influencers behaving as Lady Liberty.
+
+https://old.reddit.com/r/ProgrammerHumor/comments/1ph0im3/whatelseprogrammingrelatedcanconvertyouintobelieve/nsvc75j/
+
+Browsers are basically operating system on top of operating system. Chromebook, WebTV
+
+https://old.reddit.com/r/ProgrammerHumor/comments/1ph0im3/whatelseprogrammingrelatedcanconvertyouintobelieve/nsvns7p/
+
+Rent culture, streaming monthly subscription vs. physical media collection. Public library shared vs. home delviery.
+
+https://old.reddit.com/r/ProgrammerHumor/comments/1ph0im3/whatelseprogrammingrelatedcanconvertyouintobelieve/nswfulq/
+
+So much of this Reddit posting comments are avoiding the topic: Consoles have a history of anemic RAM and no virtual memory. It is Personal Computer users who expand RAM. The Nintendo 64 RAM slot to double was pretty rare. And some bloat can be removed because compiler-time conditions for different consoles. Not having to have different run-time code paths for different GPU models and generations. And low-level assembly bit-banging on console is consistent... where diffrerent CPU capabilities and performance on a AMD vs. Intel personal computer can make assembly a mess. Laptop CPU vs. desktop, multi-cores vs single core. 
+
+
