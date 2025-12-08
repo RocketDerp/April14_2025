@@ -37,7 +37,7 @@ Hanging Trees: Return to sender messenger trees
 Tree of Life    
 Tree of Death (Hanging public display, sending message, intimidation)    
 Tree of notice (death note) (Halloween year 1517 message TO: John 1:1)    
-Tree of Death (shade tree. ToDo: Erin Ivy song aboug pastor with coins)    
+Tree of Death (shade tree. ToDo: Erin Ivey song about pastor with coins)    
 Tree of Kknowledge     
 Binary Tree data structures    
 Tree of Godot    
@@ -45,6 +45,8 @@ Tree of Godot
 Tree of Olives (Olive oil treating wounds. Olive branch metaphors)   
 
 Fig tree. "Fig it out", figures.    
+Tree of ships. Wooden Ships (CSNY)     
+Trees and Ivy interactions     
 
 &nbsp;
 
