@@ -1074,4 +1074,19 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pheaew/episode_six_carol_plus
 
 One month recent Reddit account. Profile of the account has a message about being a block-happy reddit who prizes egoism. Like the hive mind blocking Carol - fleeing Carol. Reddit egoism to have to silence comments to a human person because you can't tolerate someone else's ideas. Calling for censorship, profile that promotes censoring via blocking. A hive mind user of Reddit who makes no comment about the Pluribus TV show storytelling, that is the posting, and the comment is only about their Reddit media concern, not the Vince Gilligan media topic. People are unable to engage serious discussion about Pluribus Reddit hive mind, media ecology, other than deporting (blocking) people that upset the Truth Social MAGA values egoism.
 
+https://old.reddit.com/r/television/comments/1pha2m9/pluribus_episode_6_my_patience_is_running_out_not/nsx5exj/
+
+People who can't watch shows that aren't released all episodes at once and fast-forward and skip hours they find boring. Media ecology of time-release episodes. Helen didn't even read all the chapters of Carol's Bitter book, skipped to the end.
+
+https://old.reddit.com/r/television/comments/1pha2m9/pluribus_episode_6_my_patience_is_running_out_not/nsx5hzq/
+
+Slow burning of minds, mental burn-outs like Carol.
+
+https://old.reddit.com/r/television/comments/1pha2m9/pluribus_episode_6_my_patience_is_running_out_not/nsxpwvp/
+
+Buddy cops, 2 police car driving out of 13. Season One, True Detectives as Carol goes into the milk factory.
+
+https://old.reddit.com/r/television/comments/1pha2m9/pluribus_episode_6_my_patience_is_running_out_not/nsx6pe8/
+
+"After she woke up", Finnegans Wake / Woke Carol!
 
