@@ -1101,3 +1101,7 @@ My message. What Donald Trump / Mr.Walter White is doing to the USA and world is
 https://old.reddit.com/r/cinematography/comments/1pf3zzi/anybody_watching_the_new_vince_gilligan_show/nt2az5g/
 
 A visual TV fan who can't process written English language and click hyperlinks to Wikipedia. Responds in image macro. Doesn't even know what a "copypasta" is?
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pi66sx/post_episode_six_post_apoca_lypse_hello_carol/nt3pbcu/
+
+My message about my posting. Steely Dandom Holiday Drummer Boy music.
