@@ -21,3 +21,11 @@ Reddit community can't believe the reality / real of Murdoch, Putin and Musk and
 https://old.reddit.com/r/PoliticalHumor/comments/1oocxdi/many_people_are_tweeting_it/
 
 Twitter sets Reality. November 4, 2025 front page and people keep forgetting this problem of Reddit and Twitter high-speed media overwriting reality.
+
+&nbsp;
+
+# Disbelief until it "became reality"
+
+Time shifting reality.
+
+https://youtu.be/FLGdg7N6Ve4?t=9862
