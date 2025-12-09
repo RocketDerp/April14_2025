@@ -128,4 +128,6 @@ Hang-on Chad (George Bush election Hanging Chad, April 2021 book paper)
 The Hanging Chad Papers     
 The Media Ecology Papers ( Paper book metaphors / paper election papers )     
 The Paper Ecology Chasing (The Paper Chase / Newspaper media ecology, Metaphors in motion)    
+George Bush Corrected (Ambigious which Bush like Finnegans Wake title plurals, Correct NOW, Correct the Record of achievement with April 2021 book about Pluribus, Senior Central Intelligence Agency vs. Internet Research Agency, final page: "Surkov won :(" )     
+
 
