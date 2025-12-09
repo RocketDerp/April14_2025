@@ -1113,3 +1113,8 @@ The Headless Horse-Man of the Episode Six Appco-Lypse
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pekj61/pluribus_1x06_hdp_episode_discussion/nsdd4ih/
 
 Media ecology. Medium is the Messenger. Medium downgrade / medium langauge subttile translations / medium transfer / format translation. OPERA_A At the week of the show airing / streaming, a relevant VHS media ecology... https://www.youtube.com/watch?v=OTOChbbTRgs 63,894 views December 5, 2025 
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pf094d/very_serious_reddit_posting_about_vince_gilligan/nt5ufo4/
+
+"Very serious" posting title, warning opening paragraph about banality replies. Predictable "Reddit Hive Mind" of video gamers. Audience video gamer hive mind mindsets, screen cape of Apple iPhone Apple iPad addicts: https://old.reddit.com/r/psychology/comments/181smu/is_the_reddit_hive_mind_wrong_about_video_games/
+
