@@ -1267,3 +1267,14 @@ Mocking Joseph Campbell Power of Myth 1988 away. Red Letter drunk on mocking / m
 https://www.youtube.com/watch?v=YqR1_c52ZRE
 
 Red Letter Media vs. Shelby Oaks: What Everyone’s Missing
+
+&nbsp;
+
+# Resource consumption 
+
+Why recycle of water is complex.
+
+A.I. water consumption.
+
+https://www.youtube.com/watch?v=H_c6MWk7PQc
+
