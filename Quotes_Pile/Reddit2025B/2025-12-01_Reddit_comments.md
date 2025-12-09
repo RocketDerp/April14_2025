@@ -1178,3 +1178,6 @@ https://old.reddit.com/r/AdviceAnimals/comments/1phj8l6/chappell_roan_priorities
 
 Surkov students won since year 2013. People can't rally around a book or Wiki of "everyone get on the same page", drowning in disposable low-effort unimportant commenting all on different pages.
 
+https://old.reddit.com/r/LivestreamFail/comments/1phq92r/thestockguy_talks_about_what_tylil_wanted_to_do/nt0io75/
+
+Following the media leadership of New York Fox News stramer Donald Trump. Role model parents and elderly give to their children, Trump family.
