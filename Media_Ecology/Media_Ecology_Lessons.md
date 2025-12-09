@@ -1278,3 +1278,15 @@ A.I. water consumption.
 
 https://www.youtube.com/watch?v=H_c6MWk7PQc
 
+&nbsp;
+
+# Fiction vs. Nonfiction for Littles 
+
+Mr. Rogers / Ms. Rachel lessons for littles. 
+
+Fiction vs. nonfiction. Character stereotyping of humans.
+
+ToDo: Campbell lecture on Jung / President / Persona mask / "stuffed shirt" - in this GitHub already?   
+
+https://old.reddit.com/r/todayilearned/comments/1pi93vx/til_mister_rogers_invited_margaret_hamilton_the/
+
