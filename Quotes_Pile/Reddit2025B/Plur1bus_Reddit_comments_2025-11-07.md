@@ -1109,3 +1109,7 @@ My message about my posting. Steely Dandom Holiday Drummer Boy music.
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pekj61/pluribus_1x06_hdp_episode_discussion/nsd5t2b/
 
 The Headless Horse-Man of the Episode Six Appco-Lypse 
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pekj61/pluribus_1x06_hdp_episode_discussion/nsdd4ih/
+
+Media ecology. Medium is the Messenger. Medium downgrade / medium langauge subttile translations / medium transfer / format translation. OPERA_A At the week of the show airing / streaming, a relevant VHS media ecology... https://www.youtube.com/watch?v=OTOChbbTRgs 63,894 views December 5, 2025 
