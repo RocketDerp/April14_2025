@@ -78,3 +78,37 @@ Donald Trump is first and foremost a charming entertainer. No matter if people d
 3. Trump inspires egomania
 
 And we have a nation of total mockery. People who flock to Donald Trump content and walk away with more hate and more mocking than ever before. A total avoidance of nonfiction and constant trash media engagement. Trump can charm the wealth and power out of people by his unique communications, outstanding mannerisms and style. Donald Trump plays a perfect Tony Clifton act and the USA population eats it up  - regardless of personal preference on media platform they favor and what political party they join.
+
+
+&nbsp;
+
+&nbsp;
+
+# Social Media Society / MAGA / Trumpism
+
+Mocking how dumb MAGA is, and MAGA mocking how retared libtards are. Back and forth feedback loop from year 2013 onward conditioned by Cambridge Analytica and IRA... and nobody seeking nonfiction learning about the IRA.  
+
+Se are drowning in burned-out reactionary mindsets, mob mentality against mafia mentality. Putin won / Surkov won - peole are resisting the "engagement" of mocking back and forth.
+
+<img width="1538" height="636" alt="image" src="https://github.com/user-attachments/assets/8a41a7d5-45b3-4b84-b551-3c2a4969c1d4" />
+
+"I kinda hate that so much of film criticism has become so tediously meta 
+
+We have conversations about conversations about conversations about art, rather than just discussing the art
+
+Anyway, I appreciate your analysis"
+
+...
+
+"Isn't it because the "art" is so boring that the meta is the only thing interesting to talk about."
+
+&nbsp;
+
+It's boring because everyone is on different pages slinging Truth Social reaction pot-shots, Truth Social signal leadership of { banal, shock, jump scares, any time day or night breaking news atncis from Truth socail }. All media systems follow the leader of shock jock Tony Clifton President performances / acts.
+
+Saturation of the same echos. Echo chambers all have Trump as core Super Star. Epstein list, is just a list, give the GIRLS a voice, they are outside the white men { Musk / Trump / Murdoch / Putin / Epstein } echoing pee tapes worship / diaper orange skin worship media ecological disasters. Trum is a Disaster Artists of Echo Rooms, Echo Ballrooms, Big Balls to make everyone into out-group hate. Putin won, again I say it!
+
+Nothing breaks the conditioned bouncing echo patterns of MAGA vs. hate MAGA.
+
+
+
