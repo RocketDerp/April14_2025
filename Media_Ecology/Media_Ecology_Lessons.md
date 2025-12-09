@@ -1291,3 +1291,4 @@ ToDo: Campbell lecture on Jung / President / Persona mask / "stuffed shirt" - in
 
 https://old.reddit.com/r/todayilearned/comments/1pi93vx/til_mister_rogers_invited_margaret_hamilton_the/
 
+BONUS_A OPERA_A The Pluribus bus up and down the Great Seal USA pyramid steps: https://youtu.be/bOiYN7iU-W8?t=87
