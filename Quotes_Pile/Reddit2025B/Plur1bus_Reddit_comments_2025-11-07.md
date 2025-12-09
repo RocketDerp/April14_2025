@@ -1090,3 +1090,14 @@ https://old.reddit.com/r/television/comments/1pha2m9/pluribus_episode_6_my_patie
 
 "After she woke up", Finnegans Wake / Woke Carol!
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pf094d/very_serious_reddit_posting_about_vince_gilligan/nt29kkg/
+
+Next message is my reply. before 5am - this message reply came in days after my posting, came in late-night message. 
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pf094d/very_serious_reddit_posting_about_vince_gilligan/nt3jxr1/
+
+My message. What Donald Trump / Mr.Walter White is doing to the USA and world is serious. Reddit is a banality-worship center. Neil Postman's 1985 book "Amusing Ourselves To Death" is now November 2025 USA."Great Seal of the United States of America" is where Pluribus show title comes from. Reddit readers are the book readers of Carol'sbook tour being addressed by the Pluribus television show. Reactionary, humor-washing of Donald Trump, MAGA and ICE washing as thrilling amusemeent LOL mockery of serious learning. Elon Musk Twitter leading a nation of memes into Trump's hands with Reddit lauhgin all the way in Saint Trump's north pole / northern TV lights sleigh fiction pirate stories.
+
+https://old.reddit.com/r/cinematography/comments/1pf3zzi/anybody_watching_the_new_vince_gilligan_show/nt2az5g/
+
+A visual TV fan who can't process written English language and click hyperlinks to Wikipedia. Responds in image macro. Doesn't even know what a "copypasta" is?
