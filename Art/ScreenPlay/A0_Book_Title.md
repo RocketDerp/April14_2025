@@ -123,3 +123,9 @@ Skeleton Key to PLUR1BUS
 
 Borrow a Metaphor     
 Can I Borrow a Metaphor?  (Simpsons song)     
+
+Hang-on Chad (George Bush election Hanging Chad, April 2021 book paper) 
+The Hanging Chad Papers     
+The Media Ecology Papers ( Paper book metaphors / paper election papers )     
+The Paper Ecology Chasing (The Paper Chase / Newspaper media ecology, Metaphors in motion)    
+
