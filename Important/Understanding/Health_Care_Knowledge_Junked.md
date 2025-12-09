@@ -59,3 +59,11 @@ Same day on Reddit, will social media finally start repeating serious links inst
 https://old.reddit.com/r/Wellthatsucks/comments/1pgjcuq/woman_sneaks_into_back_of_restaurant_and_films/
 
 So much bullshit in society drowns out peer to peer important assertions. Public health. Public House vs. Private House eating asserted. Customer right to see how the sausage is made. Reddit DROWNS important shit in disposable posting and commenting and not confronting the Trumpism Corporate America FDA system of dehumanzing the consumers / fleecing consumers with bad education / Department of Education. Reddit hive mind asserts so much brainrot into the shit since year 2013 that important Wiki-style organized assert is wrecked internet wide.
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/science/comments/1phmymd/insufficient_sleep_associated_with_decreased_life/
+
+And all the wealth that goes into keep Reddit end-users addicted to content, not sleeping. Viego game industry, sports industry, slepless nights from Trump anxiety, Elon Musk Twitter mocking people who sleep, etc. Information oveerload, drowning important stories like this, with addictions to kitten images on /r/All along sidethe Middle East Formula 1 star worship (comedy washing / sports-washing Middle East wealth on Reddit /r/All). Constant marketing to make content consumption lifestyle anti-sleep, keeping up with the Jonses on memes in the high-speed media junkie fast lanes.
