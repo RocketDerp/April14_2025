@@ -1284,7 +1284,8 @@ https://www.youtube.com/watch?v=H_c6MWk7PQc
 
 Mr. Rogers / Ms. Rachel lessons for littles. 
 
-Fiction vs. nonfiction. Character stereotyping of humans.
+Fiction vs. nonfiction. Character stereotyping of humans.     
+***The BIG Lesson: "1 John 4:20" Levant*** trillogy, 2000 years ago. Adult lesson of "seen the character she plays" (Mr. Rogers is Christian clergy, Bible verse "1 John 4:20" teacher).
 
 ToDo: Campbell lecture on Jung / President / Persona mask / "stuffed shirt" - in this GitHub already?   
 
