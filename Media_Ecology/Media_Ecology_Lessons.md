@@ -1307,4 +1307,4 @@ OPERA_A Cars Living in stereo channels / left vs. right. Crashing in stereo / mo
 
 OPERA_A Distant Early Warning are annoying. Visual starts with pilots. Silencing the warnings / whistle blowers in aviation, silencing the automation systems. https://www.youtube.com/watch?v=wrDj5XvZXX4
 
-( 8-bit overrun 255 ) 
+( 8-bit overrun 255, Detroit - Mowtown - Recording studios of [sampling cockpit record](https://www.youtube.com/watch?v=ZbbTmR6Xaag)ings shipping ) 
