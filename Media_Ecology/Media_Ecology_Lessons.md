@@ -1293,4 +1293,18 @@ https://old.reddit.com/r/todayilearned/comments/1pi93vx/til_mister_rogers_invite
 
 BONUS_A OPERA_A The Pluribus bus up and down the Great Seal USA pyramid steps: https://youtu.be/bOiYN7iU-W8?t=87 and CHAINED_LIGHTNING_TRACK We Built this "Town" Pluri-Bus grand touring bus on Rock Music metaphors of row row row the rocking boat. https://youtu.be/K1b8AhIsSYQ?t=73 John One One metaphors abound. For Littles ;)
 
+&nbsp;
 
+# Airplaines Cars Stereo 
+
+Media ecology of cockpit voice recording echo / echoland! caution! Wake-up warnings.    \
+"What Investigators **Didn't Hear** on Flight 255 | Mayday: Air Disaster"    
+https://youtu.be/mOARW37N-Ng?t=2060
+
+P40 breaker.   Breaker 19 metaphors. Silencing an alarm, Woke / Wake alarms.    
+
+OPERA_A Cars Living in stereo channels / left vs. right. Crashing in stereo / mono moving in stereo. https://www.youtube.com/watch?v=y5oPZFDci80
+
+OPERA_A Distant Early Warning are annoying. Visual starts with pilots. Silencing the warnings / whistle blowers in aviation, silencing the automation systems. https://www.youtube.com/watch?v=wrDj5XvZXX4
+
+( 8-bit overrun 255 ) 
