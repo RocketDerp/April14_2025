@@ -1181,3 +1181,8 @@ Surkov students won since year 2013. People can't rally around a book or Wiki of
 https://old.reddit.com/r/LivestreamFail/comments/1phq92r/thestockguy_talks_about_what_tylil_wanted_to_do/nt0io75/
 
 Following the media leadership of New York Fox News stramer Donald Trump. Role model parents and elderly give to their children, Trump family.
+
+https://old.reddit.com/r/StrangerThings/comments/1phup98/a_bittersweet_moment_between_millie_and_jimmy/nt1os9h/
+
+MAGA values USA. Jimmy Fallon dislike, egoism that you have to actively mock and insult like Truth Social that people don't conform to personal good taste. Promoting of hate, promoting of MAGA. Readdit society conditioned by IRA since year 2013 to hate against sincere Americans like Jimmy Fallon in favor of bullshitters with disposable banal superficial commenting.
+
