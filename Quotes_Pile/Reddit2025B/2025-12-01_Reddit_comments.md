@@ -1157,3 +1157,24 @@ https://old.reddit.com/r/minnesota/comments/1phg7xt/hope_walz_what_world_are_we_
 <img width="860" height="694" alt="image" src="https://github.com/user-attachments/assets/baa897a5-ba14-4e15-ad6e-e036b15ec39a" /> Serious? This Reddit comment doesn't have any links, author names, book titles, quotes. Everything is turned into jokes and memes about Trump. Diapers, orange skin, golfing. Russian IRA has turned the USA into a back and forth comedy-washing via meme machines / meme devices. Wide-cracking humor-wrapping LOL at Trump the fatty is the entire profiting off Reddit. The engagement of mock-back. Surkov won since March 2013. Neil Postman media ecology self-awareness of the high-speed electric feedback loops of MAGA vs. non-MAGA. ... ... ...      
 “Everything in our background has prepared us to know and resist a prison when the gates begin to close around us . . . But what if there are no cries of anguish to be heard? Who is prepared to take arms against a sea of amusements? To whom do we complain, and when, and in what tone of voice, when **serious discourse dissolves into giggles**? What is the antidote to a culture's being drained by laughter?”
 ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
+
+https://old.reddit.com/r/MurderedByWords/comments/1phkf5y/donating_millions_to_a_millionaire_has_to_be_peak/nszgl75/
+
+Reddit audiences love bamboozle and ignorance. Celebration of Ignorance as Carl Sagan wrote of media in 19985.
+
+https://old.reddit.com/r/MurderedByWords/comments/1phkf5y/donating_millions_to_a_millionaire_has_to_be_peak/nszm11x/
+
+Ut is for Reddit audiences and constantly on front page of Reddit for consumers.
+
+https://old.reddit.com/r/AdviceAnimals/comments/1phj8l6/chappell_roan_priorities/nsz1z3o/
+
+Russia won since year 2013. Lost hearts and minds of USA into attacking Americans. People can't even name "Internet Research Agency" and describe the timelines.
+
+https://old.reddit.com/r/AdviceAnimals/comments/1phj8l6/chappell_roan_priorities/nszrtas/
+
+Social media hasn't even had sustained protesting to shut down entertainment and get newspaper coverage for all the Bluesky and Reddit postings calling out { Fox News, Facebook, Elon Musk Twitter, Newsmax, Jen Senko's resistance, Truth Social, Sports Team Owners }. Trump is entertainment for mocking addicts.
+
+https://old.reddit.com/r/AdviceAnimals/comments/1phj8l6/chappell_roan_priorities/nsz8mgu/
+
+Surkov students won since year 2013. People can't rally around a book or Wiki of "everyone get on the same page", drowning in disposable low-effort unimportant commenting all on different pages.
+
