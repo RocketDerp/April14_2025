@@ -1105,3 +1105,7 @@ A visual TV fan who can't process written English language and click hyperlinks 
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pi66sx/post_episode_six_post_apoca_lypse_hello_carol/nt3pbcu/
 
 My message about my posting. Steely Dandom Holiday Drummer Boy music.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pekj61/pluribus_1x06_hdp_episode_discussion/nsd5t2b/
+
+The Headless Horse-Man of the Episode Six Appco-Lypse 
