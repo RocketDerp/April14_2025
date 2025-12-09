@@ -92,6 +92,8 @@ Se are drowning in burned-out reactionary mindsets, mob mentality against mafia 
 
 <img width="1538" height="636" alt="image" src="https://github.com/user-attachments/assets/8a41a7d5-45b3-4b84-b551-3c2a4969c1d4" />
 
+Image source: https://www.youtube.com/watch?v=YqR1_c52ZRE
+
 "I kinda hate that so much of film criticism has become so tediously meta 
 
 We have conversations about conversations about conversations about art, rather than just discussing the art
