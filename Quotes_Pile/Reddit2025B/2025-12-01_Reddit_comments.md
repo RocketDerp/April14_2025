@@ -1219,3 +1219,18 @@ https://old.reddit.com/r/NoFilterNews/comments/1pilev5/trump_admin_sending_talib
 
 Tiny-short Reddit commenting that is a media laugh track for Reddit audiences.  Everything Trump so comedic and funny to people. Blows minds.
 
+https://old.reddit.com/r/youtube/comments/1pikvtn/all_youtube_rewinds_have_been_unlisted/nt763mg/
+
+Again, this is the media power of what puts Donald Trump and Elon Musk and others at the power center. People enjoy insulting and hating, the Truth Social leadership of insutling. It never burns out, it attracts people again and again. We The People have such terrible taste in media insulting, it's become a lossto Russian information war. Badness attracts, blows minds, resets brains.
+
+https://old.reddit.com/r/youtube/comments/1pikvtn/all_youtube_rewinds_have_been_unlisted/nt84d2n/
+
+Being Universally hated: Donald Trump, Putin, Musk, Murdoch audience. USA society media addiction in a nutshell.
+
+https://old.reddit.com/r/youtube/comments/1pikvtn/all_youtube_rewinds_have_been_unlisted/nt7nymv/
+
+Live in a filter bubble, non-stop feedback loops of insult vs. insult at high speed over TCP/IP networking.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1pimz2e/jared_kushner_is_now_one_of_the_key_money_men/nt7e8um/
+
+Russia won, Surkov won, Putin won. Since year 2013. [Everything Is Media Ecology](/Media_Ecology/Everything_is_ME.md) around MAGA / Fox News HDTV / Truth Social Internet / White House media coverage / Reddit / Jimmy Kimmel / CNN Bluesky / Musk Twitter takeover /  Trump atacked Taylor Swift, now she falls in line / etc.
