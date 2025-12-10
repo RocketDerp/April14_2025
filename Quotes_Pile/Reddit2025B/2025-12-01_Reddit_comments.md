@@ -1198,3 +1198,24 @@ People LOVE the Hybrid war win. 2 days December 11 coming up. No-identity mocker
 "Putin is clearly winning Russia’s hybrid war against the U.S. because Americans don’t understand how they are being manipulated." - December 11, 2020 - "The Heritage Foundation" https://www.heritage.org/defense/commentary/putin-winning-russias-hybrid-war-against-america (Before January 6, 2021 - by weeks. QAnon was Russian Hybrid warfare, QAnon flags on January 6 https://old.reddit.com/r/QAnonRussia/ QAnonRussia subreddit) ... ... ...     
 "I Love this dissoance" ... ... ...          
 "For all his perspicacity, George Orwell would have been stymied by this situation; there is nothing “Orwellian” about it. The President does not have the press under his thumb. The New York Times and The Washington Post are not Pravda; the Associated Press is not Tass. And there is no Newspeak here. Lies have not been defined as truth nor truth as lies. **All that has happened is that the public has adjusted to incoherence and been amused** into indifference. Which is why Aldous Huxley would not in the least be surprised by the story. Indeed, he prophesied its coming. He believed that it is far more likely that the Western democracies will dance and dream themselves into oblivion than march into it, single file and manacled. Huxley grasped, as Orwell did not, that it is not necessary to conceal anything from a public insensible to **contradiction and narcoticized** by technological diversions. Although Huxley did not specify that television would be our main line to the drug, he would have no difficulty accepting Robert MacNeil’s observation that “Television is the soma of Aldous Huxley’s Brave New World.” Big Brother turns out to be Howdy Doody." ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, **year 1985**, page 111
+
+https://old.reddit.com/r/NoFilterNews/comments/1pilev5/trump_admin_sending_taliban_45m_sparks_republican/nt6w96x/
+
+More than a year later, Reddit audiences singing along to the "Trump the Entertainer", Tony Clifton performances. Constantly amused and waiting for more Trump media content images / words / news to mock and insult.
+
+https://old.reddit.com/r/NoFilterNews/comments/1pilev5/trump_admin_sending_taliban_45m_sparks_republican/nt72tz7/
+
+Reddit society could be promoting and name-dropping Malala against the Taliban, Jen Senko against Fox News...but too entangled with Trump's content mockery.
+
+https://old.reddit.com/r/NoFilterNews/comments/1pilev5/trump_admin_sending_taliban_45m_sparks_republican/nt7440c/
+
+Yep. Non-stop never-ending bullshit. Simulation of resitance, simulacra screen game ARG on Bluesky and Reddit declaring "million accomplished", "we win", "Trump defeated" over and over and over in high-speed media feedback loops. People will not study nonfiction media ecology and Surkov techniques and break-free of the touch screen alternate reality screen gaming.
+
+https://old.reddit.com/r/NoFilterNews/comments/1pilev5/trump_admin_sending_taliban_45m_sparks_republican/nt74f5d/
+
+Recent Reddit account. Joke-washing amusement-washing satire-washing Donald Trump / White House as routine comedy for Reddit audiences.
+
+https://old.reddit.com/r/NoFilterNews/comments/1pilev5/trump_admin_sending_taliban_45m_sparks_republican/nt73weg/
+
+Tiny-short Reddit commenting that is a media laugh track for Reddit audiences.  Everything Trump so comedic and funny to people. Blows minds.
+
