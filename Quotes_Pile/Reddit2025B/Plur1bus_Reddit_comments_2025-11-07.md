@@ -1149,3 +1149,17 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pipdyw/the_shows_premise_is_i
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pioin9/rat_bit_lady/nt7rpxz/
 
 This audience goes to extremes to avoid FAQ and the Wiki features of Reddit, or an off-Reddit Wiki or FAQ. Episode One stuff gets upvoted on this posting while serious topics of the show Title fingerprints of book authoring / book tour and April 2021 book title by President George W. Bush go ignored / avoided / undiscovered.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pimwsn/one_assumed_but_not_necessarily_true_detail_about/nt782yo/
+
+Again, a FAQ / Wiki. And even people linking the thousands of websites and YouTubee videos discussing this show ideas / content / story. Or even previous Reddit postings about Episode One observations.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pimwsn/one_assumed_but_not_necessarily_true_detail_about/nt7a80b/
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pimwsn/one_assumed_but_not_necessarily_true_detail_about/nt78766/
+
+They used very exact counts of dead and size of hive to try and cover that. Some of my GitHub (2nd GitHub GreatSealUSA) or comments here brought up: https://www.theguardian.com/commentisfree/2025/may/31/earth-population-billions-decline-birthrate-west - it was a news story this year, start of 2025
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pimwsn/one_assumed_but_not_necessarily_true_detail_about/nt7a9m7/
+
+That's been the core of six episodes and marketing. Very little information, wildcard possibilities in every direction on where the show might go. Aliens controlling the hive, the hive having subconsious / unawareof itself? Some alien vs. alien war that Earth is now dragged into like Luke on his planet opening of "A New Hope"? they are planning 4 seasons of show (many years), a lot of poosibility for story to change scope and characters. Last Man on Earth started with one person, two people, and went all over the place.
