@@ -1134,3 +1134,18 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pirdz1/carol_will_be_the_last
 
 Reddit hive mind downvoted this comment rapidly.
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pipllk/carol_needs_to_save_the_immune_little_girl_who/nt7zsu7/
+
+this is a lot of the entertainment on Reddit society. Predicting what will happen. Applying the title to April 2021 book about I.C.E. and police carl Carol "police state" against illegal aliens... little interest, people want speed into new story and not actually exit the show and address the police state USA 2025 topics.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pipllk/carol_needs_to_save_the_immune_little_girl_who/nt85zzl/
+
+Parenting ecology.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pipdyw/the_shows_premise_is_impossible_unless/nt7x0qr/
+
+"The BINGO rat" idea more, about humans doing stuff with the RNA, like combining it with Herpes Simplex virus.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pioin9/rat_bit_lady/nt7rpxz/
+
+This audience goes to extremes to avoid FAQ and the Wiki features of Reddit, or an off-Reddit Wiki or FAQ. Episode One stuff gets upvoted on this posting while serious topics of the show Title fingerprints of book authoring / book tour and April 2021 book title by President George W. Bush go ignored / avoided / undiscovered.
