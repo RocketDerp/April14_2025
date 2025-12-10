@@ -1204,3 +1204,10 @@ https://old.reddit.com/r/TrueLit/comments/1pjd9g8/an_american_screenplay_writer_
 
 Will this float on /r/TrueLit  like a Led Zepplin? OPERA_A  English John 1:1 breakdown. Page 3 breakdown Wake. https://www.youtube.com/watch?v=2atkj_KWLl0
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pfv66p/carol_the_dry_drunk_landlocked_pirate_lady/ntdaofx/
+
+Someone responded with a serious comment. Time to reply with the Pirate metaphors Ahoy! The Kidnapped Helen character of the Irish Pirate Lady... 
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pfv66p/carol_the_dry_drunk_landlocked_pirate_lady/ntdcyxl/
+
+My reply. My message. Could have even went more: ++ the detox hospital dialog when Carol goes to visit Pirate Lady after the drunk bomb murder/suicide Jihad against a Muslim immigrant to ABQ.
