@@ -1187,3 +1187,8 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pj5mpa/whats_the_backstory_wi
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pj5mpa/whats_the_backstory_with_the_alcohol_check_on/ntb8f84/
 
 My reply like Carol screaming to the hive mind of Reddit about LLM addicts. The ELIZA testing, Turing test flunkee Walter White students / teacher relationships. Pirate shipping. Low-effort tiny-short commenting.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pj5mpa/whats_the_backstory_with_the_alcohol_check_on/ntb9wbo/
+
+Book, printing on paper, video screen gaming Reddit reading Unicode audience member in meme stupor. "WTF" mind blown bewildered by a paper book from year 1923 Irish writer.
+
