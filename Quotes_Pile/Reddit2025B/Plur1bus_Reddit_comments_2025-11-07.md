@@ -1176,3 +1176,6 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pj5mpa/whats_the_backstory_wi
 
 My comment. Wake assertion, Wake up the hive mind, Reddit hive mind wake up to Pilot Minute 22 / Kepler 22.
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pj5mpa/whats_the_backstory_with_the_alcohol_check_on/ntb06y1/
+
+Well... well drinks. It's possible to imagine that a creative book writer came up with a self-imposed way to not give up being a pussy-pirate rummy out of Helen's concern. Helen takes the keys at the airport. They have money for airport gift shops, but Carol is too frugal and Helen intervenes with mail-order solutions. Unity married couple, work together, like that. Perhaps Carol didn't want to give up her Joycean book writing heavy drinking mindsets, but Helen came up with the compromise of a technical device to measure BAC in the Range Rover so that they don't argue over "too much" like at the airport arguing. + CopyPasta + Space Pope LLM footer.
