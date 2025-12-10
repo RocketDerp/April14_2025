@@ -1163,3 +1163,16 @@ They used very exact counts of dead and size of hive to try and cover that. Some
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pimwsn/one_assumed_but_not_necessarily_true_detail_about/nt7a9m7/
 
 That's been the core of six episodes and marketing. Very little information, wildcard possibilities in every direction on where the show might go. Aliens controlling the hive, the hive having subconsious / unawareof itself? Some alien vs. alien war that Earth is now dragged into like Luke on his planet opening of "A New Hope"? they are planning 4 seasons of show (many years), a lot of poosibility for story to change scope and characters. Last Man on Earth started with one person, two people, and went all over the place.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pj5mpa/whats_the_backstory_with_the_alcohol_check_on/ntaym99/
+
+Bland description Twitter-length ;)
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pj5mpa/whats_the_backstory_with_the_alcohol_check_on/ntb1wv6/
+
+Range Rover driver. Wealth / Mr. White / Betty White Carol / prescription pills / high life metaphors.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pj5mpa/whats_the_backstory_with_the_alcohol_check_on/ntb0hj5/
+
+My comment. Wake assertion, Wake up the hive mind, Reddit hive mind wake up to Pilot Minute 22 / Kepler 22.
+
