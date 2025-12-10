@@ -1190,5 +1190,4 @@ My reply like Carol screaming to the hive mind of Reddit about LLM addicts. The 
 
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pj5mpa/whats_the_backstory_with_the_alcohol_check_on/ntb9wbo/
 
-Book, printing on paper, video screen gaming Reddit reading Unicode audience member in meme stupor. "WTF" mind blown bewildered by a paper book from year 1923 Irish writer.
-
+Book, printing on paper, video screen gaming Reddit reading Unicode audience member in meme stupor. "WTF" mind blown bewildered by a paper book from year 1923 Irish writer. Meme stupor, left speechless, one word only.
