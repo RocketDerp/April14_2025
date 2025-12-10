@@ -35,3 +35,6 @@ https://old.reddit.com/r/popculturechat/comments/1piv8e7/jacob_elordi_needs_some
 
 My comment.
 
+https://old.reddit.com/r/MadeMeSmile/comments/1pj2j16/never_seen_a_skateboard/ntabodp/
+
+Like having sincere content all over the Internet that isn't a booby-trap by billionares like Elon Musk, Rupert Murdoch. That Truth Social is true. That Wikipedia isn't manipulated by strangers who want to make people get diseases (measles) and spread information wrfare. https://www.bbc.com/news/world-us-canada-45294192 That Reddit comments aren't the most sophisticated doctors from Cambridge Analytica. That a woman on the street feels safe. That attraction to a skate board is safe. Although I suggest people have a helmet just like a bike. Training wheels on bikes are also a real thing. Ice skating / roller skating / skateboard / surf board / tight rope walking take some balance experience. OPERA_A February 19, 1977 live broadcast. The year 1. (see top of this GitHub markdown file topic) https://www.youtube.com/watch?v=FOhD-VGIt_8
