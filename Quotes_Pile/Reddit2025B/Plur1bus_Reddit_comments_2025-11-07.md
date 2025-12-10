@@ -1180,3 +1180,7 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pj5mpa/whats_the_backstory_wi
 
 Well... well drinks. It's possible to imagine that a creative book writer came up with a self-imposed way to not give up being a pussy-pirate rummy out of Helen's concern. Helen takes the keys at the airport. They have money for airport gift shops, but Carol is too frugal and Helen intervenes with mail-order solutions. Unity married couple, work together, like that. Perhaps Carol didn't want to give up her Joycean book writing heavy drinking mindsets, but Helen came up with the compromise of a technical device to measure BAC in the Range Rover so that they don't argue over "too much" like at the airport arguing. + CopyPasta + Space Pope LLM footer. ++ Regarding the self-imposed driving restrictions... "Maybe they had a close call in the past (you call drinking special)." would be another good one.
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pj5mpa/whats_the_backstory_with_the_alcohol_check_on/ntb84ty/
+
+9-year user of Reddit blows mind out when getting an off-Reddit book reference. Minute 22 Episode One, graduate study warning to Breaking Bad and Saul audiences. Boozing stoners who can't read a book, unlike that mushrum / fungus "Stoned Ape" Finnegans Wake Guy!
+
