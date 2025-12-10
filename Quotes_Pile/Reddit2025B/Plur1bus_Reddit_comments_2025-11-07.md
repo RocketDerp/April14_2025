@@ -1211,3 +1211,8 @@ Someone responded with a serious comment. Time to reply with the Pirate metaphor
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pfv66p/carol_the_dry_drunk_landlocked_pirate_lady/ntdcyxl/
 
 My reply. My message. Could have even went more: ++ the detox hospital dialog when Carol goes to visit Pirate Lady after the drunk bomb murder/suicide Jihad against a Muslim immigrant to ABQ.
+
+https://old.reddit.com/r/breakingbad/comments/14g2wp9/can_someone_explain_to_me_the_death_threats_anna/jp3it7b/
+
+Breaking Bad audience / Saul fandom. Women getting pissed drunk to piss on the grave of audiene fandom of bad chemistry relation-shipping of who deserves Mr. White as a spouse. The Saloon that Helen falls and dies upon, after post-graduate Finnegans Wake discussion, is the grave site / graveyard of Walter White fiction character. Bad guy that people admire and attack real humans over.
+
