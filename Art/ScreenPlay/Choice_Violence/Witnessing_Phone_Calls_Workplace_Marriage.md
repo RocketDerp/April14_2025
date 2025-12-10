@@ -6,7 +6,7 @@ I worked in a call center for Microsoft and Cheyenne Tape Backup. Software Spect
 
 Microsoft was afraid of government breakup like IBM after screwing IBM over OS/2 partnership. So they were contracting third-parties for independent resellers MCSE support engeineers.
 
-I wrote Exchange Server book chapters while working there. Anyway... I hated the non-creative rutine of a desk-job call center. They (Garland Texas accounting owners of Software Spectrum) even made us wear shirt and tie to take phone calls.
+I wrote Exchange Server book chapters while working there. Anyway... I hated the non-creative ruotine of a desk-job call center. They (Garland Texas accounting owners of Software Spectrum) even made us wear shirt and tie to take phone calls.
 
 Strict lunch break, call coverage schedule, etc.
 
