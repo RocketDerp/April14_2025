@@ -14,7 +14,7 @@ I only took the job because the were so desperate for new MCSE certificaion prog
 
 Anyway... working in a call center with 40 to 60 people in cubicles.
 
-One thing you start to notce: Angry people at work who would change personality on a DIME for money. They would be aruging with another co-worker about sports or their children or marriage or dating - and be angry for 20 minutes. And as soon as the phone rings, they were a different person for $x/hour paid money. This REALLY made an 18 month stint impression on me about how people could turn on a dime with media ecology of a telephone. How they could be hostile and hate-filled towards a co-worker trying to explain an idea to them, and turn totally on a dime because they were paid money to talk to strangers.
+One thing you start to notce: Angry people at work who would change personality on a DIME for money. They would be arguging with another co-worker about sports or their children or marriage or dating - and be angry for 20 minutes. And as soon as the phone rings, they were a different person for $x/hour paid money. This REALLY made an 18 month stint impression on me about how people could turn on a dime with media ecology of a telephone. How they could be hostile and hate-filled towards a co-worker trying to explain an idea to them, and turn totally on a dime because they were paid money to talk to strangers.
 
 My first wife, met in Dallas those same years... she was a 911 operator / call center dispatcher too. Carolton Texas. She lived in Anna Texas and drove past Garland on her way home.
 
