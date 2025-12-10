@@ -1182,5 +1182,8 @@ Well... well drinks. It's possible to imagine that a creative book writer came u
 
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pj5mpa/whats_the_backstory_with_the_alcohol_check_on/ntb84ty/
 
-9-year user of Reddit blows mind out when getting an off-Reddit book reference. Minute 22 Episode One, graduate study warning to Breaking Bad and Saul audiences. Boozing stoners who can't read a book, unlike that mushrum / fungus "Stoned Ape" Finnegans Wake Guy!
+9-year user of Reddit blows mind out when getting an off-Reddit book reference. Minute 22 Episode One, graduate study warning to Breaking Bad and Saul audiences. Boozing stoners who can't read a book, unlike that mushrum / fungus "Stoned Ape" Finnegans Wake Guy! Anti-book anti-Malala anti-Education MAGA USA 2025. nti-intellectaul book author topics.
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pj5mpa/whats_the_backstory_with_the_alcohol_check_on/ntb8f84/
+
+My reply like Carol screaming to the hive mind of Reddit about LLM addicts. The ELIZA testing, Turing test flunkee Walter White students / teacher relationships. Pirate shipping. Low-effort tiny-short commenting.
