@@ -1191,3 +1191,11 @@ My reply like Carol screaming to the hive mind of Reddit about LLM addicts. The 
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pj5mpa/whats_the_backstory_with_the_alcohol_check_on/ntb9wbo/
 
 Book, printing on paper, video screen gaming Reddit reading Unicode audience member in meme stupor. "WTF" mind blown bewildered by a paper book from year 1923 Irish writer. Meme stupor, left speechless, one word only.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pj5mpa/whats_the_backstory_with_the_alcohol_check_on/ntbqh6l/
+
+Reddit hive nind police (Carol) cruiser enforcer. Anti-Wiki, Anti-Hyperlink, anti "Context wokeness" conformtiy over a fiction television show comment. The Breaking Bad / Saul low-effort audience bridge hanger out anti-Author anti-Literacy Carl and Helen book themes not grasped.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pj5mpa/whats_the_backstory_with_the_alcohol_check_on/ntbqyan/
+
+My reply to previous comment.
