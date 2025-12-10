@@ -27,3 +27,11 @@ https://old.reddit.com/r/popculturechat/comments/1piv8e7/jacob_elordi_needs_some
 <img width="1090" height="962" alt="image" src="https://github.com/user-attachments/assets/e984ca1d-73c0-4f4c-a72b-173445f051b1" />
 Sex symbol. How Putin won Americans. The fetish for Donald Trump content: orange skin color, humiliation of men, humiliation of status symbols. Abusive is in this comment, Trump's Reality TV "The Apprentice" attracted abuse / humiliation audiences "You are fired!" aggression.
 
+https://old.reddit.com/r/popculturechat/comments/1piv8e7/jacob_elordi_needs_someone_to_tell_him_they_love/nt931a7/
+
+People learn from fiction. Nonfiction serious learning / lectures are abandoned and ignored in favor of fiction. See my next comment, a reply.
+
+https://old.reddit.com/r/popculturechat/comments/1piv8e7/jacob_elordi_needs_someone_to_tell_him_they_love/ntaifzn/
+
+My comment.
+
