@@ -1124,5 +1124,13 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pihnmi/the_4th_book_in_her_wi
 
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pihnmi/the_4th_book_in_her_winds_of_wycaro_trilogy/nt6zemh/
 
-Downvoted comment for older Reddit user that doesn't play peer to peer pranks and insults on Reddit.
+Reddit hive-mind downvoted comment from older Reddit user that doesn't play peer to peer pranks and insults on Reddit.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pihnmi/the_4th_book_in_her_winds_of_wycaro_trilogy/nt67sio/
+
+Media Ecology / Proximity.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pirdz1/carol_will_be_the_last_one_left_alive_on_earth/nt8624x/
+
+Reddit hive mind downvoted this comment rapidly.
 
