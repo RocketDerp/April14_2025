@@ -1118,3 +1118,11 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pf094d/very_serious_reddit_po
 
 <img width="1606" height="1386" alt="image" src="https://github.com/user-attachments/assets/4155712b-fafa-47e0-80d2-5fd69f74ca9e" /> "Very serious" posting title opening words, warning opening paragraph about banality replies. Predictable "Reddit Hive Mind" of video gamers. Audience video gamer hive mind mindsets, screen cape of Apple iPhone Apple iPad addicts: https://old.reddit.com/r/psychology/comments/181smu/is_the_reddit_hive_mind_wrong_about_video_games/
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pihnmi/the_4th_book_in_her_winds_of_wycaro_trilogy/nt6dtpn/
+
+1923 Finn's Hotel story of how the manuscript was lost, has to fit in somewhere ;) Fandom. Does Carol and Helen have an office, I find it interesting they didn't have any promo material at home. I guess they are obscenely wealty (dual income, no kids DINKs) - but spend modestly on house, Range Rover car (but only 1? Haven't looked hard), but maybe spend big time on promo stuff delivered idependent of any cottage small business approach? Or no promo material at all, fora best seller at the airport frot-visible stand? Electrinic Apple store media ecology, the print purchases are small now?
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pihnmi/the_4th_book_in_her_winds_of_wycaro_trilogy/nt6zemh/
+
+Downvoted comment for older Reddit user that doesn't play peer to peer pranks and insults on Reddit.
+
