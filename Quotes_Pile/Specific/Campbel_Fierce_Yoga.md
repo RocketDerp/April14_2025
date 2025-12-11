@@ -40,7 +40,12 @@ And some lady in the window tosses out a coin—that means she will feed the bug
 
 # Monday, March 7, 2011
 
-I Google searched a sentence about the apple, found only one public hit, me:
+I Google searched a sentence about the apple, found **only one public hit**, me:
+
+<img width="2392" height="770" alt="image" src="https://github.com/user-attachments/assets/1b687f58-bb34-41d9-a142-60e3b20a6c3f" />
+
+&nbsp;
+
 
 March 7, 2011 (On that day... I was living the Arab Spring in Amman Jordan, just relocated from Algeria. Media ecology and Levant comparative mythology - lived in Amman for years before going to Hindu Indonesia - Bali)                   
 https://old.reddit.com/r/Buddhism/comments/fylty/comment/c1jo4ha/
