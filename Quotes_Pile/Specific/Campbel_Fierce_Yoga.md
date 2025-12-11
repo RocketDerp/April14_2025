@@ -15,9 +15,10 @@ TRACK 10: Letting Go: the Fierce Yoga of Jainism
 Now, in the last fifteen minutes, I want to speak about the various ways of quitting and coming back, which I think will indicate something about the Oriental ideas of the individual.
 
 The first idea is that this reincarnating monad—this reincarnating principle—is in essence absolutely pure. It is like a pure bubble; it has no quality, it has no individuality, it has no character. But it is contaminated by karmic matter—by the stuff of the world. And the whole world in fact is nothing but a seething mass of these monads, trapped in the substance of the world.
+
 There are two principles here. This is a strict dualism. This is the point of view of the Jains—Jainism. There is a strict dualism. There is the pure self, and there is that self in play in the world. All action contaminates that self, even what we call pure action. There are said to be six colors that pour into the soul—into this monad—through action. The grossest roughest color activity is the color black to the soul. Next comes the color dark blue, then comes the color of smoke, then comes the color of fire, then yellow color, and then white. The soul itself is translucent; it isn’t even white.
 
-Now, these colors weigh the soul down, and souls that are black are born in the lower regions of the cosmic body. Souls that are light are born further up. And souls that are white are born up in the brain—this would be heaven.[ii]
+Now, these colors weigh the soul down, and souls that are black are born in the lower regions of the cosmic body. Souls that are light are born further up. And souls that are white are born up in the brain—this would be heaven.
 
 So you have this cosmic being with the different stages of development indicated in various parts of its body. In order to get above that, and rise to a place that is called slightly tilted—it’s an enormous umbrella up above this being—yet to go up there as a pure bubble, you have to perform certain very strict yogic exercises. And this yoga of the Jains is based on the idea that you must stop acting, stop moving, stop eating, stop thinking, stop feeling—finally, stop breathing. [laughter]
 
