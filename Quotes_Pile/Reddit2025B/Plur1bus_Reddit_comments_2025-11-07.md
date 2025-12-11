@@ -1404,3 +1404,7 @@ https://old.reddit.com/r/TrueLit/comments/1pjd9g8/an_american_screenplay_writer_
 
 In USA 2025, "Dementia mocking Don", "Dmentia Don" chanting society - everyone is a mental disorder when they discuss James Joyce's Finnegans Wake. True Literary people have drowned themselves in Reddit memes on Reddit touch device apps.
 
+https://old.reddit.com/r/TrueLit/comments/1pjd9g8/an_american_screenplay_writer_spoke_at_the_wga/ntjk8z5/
+
+<img width="1548" height="1152" alt="image" src="https://github.com/user-attachments/assets/cd017e7c-f924-4c64-ad7b-4b9a395bbd11" /> People on Reddit are projecting Donald Trump "dementia chanting" on everyone. It's a endless game of blow your mind when Finnegans Wake language gets discussed. Who are these people who use Reddit and hide their real identity?
+
