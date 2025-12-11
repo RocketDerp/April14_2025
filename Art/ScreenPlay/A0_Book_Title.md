@@ -130,4 +130,10 @@ The Media Ecology Papers ( Paper book metaphors / paper election papers )
 The Paper Ecology Chasing (The Paper Chase / Newspaper media ecology, Metaphors in motion)    
 George Bush Corrected (Ambigious which Bush like Finnegans Wake title plurals, Correct NOW, Correct the Record of achievement with April 2021 book about Pluribus, Senior Central Intelligence Agency vs. Internet Research Agency, final page: "Surkov won :(" )     
 
+Shrodinger's Cathouse    
+Plurible Meanings     (Information overload, Meaning word choice, Jean's "Coach wtih the six insides" intro to Wake about 20 meanings each word John 1:1)      
+Plural Meanings    
+Insider Jobs  (Helen on the inside, inward journey)     
+
+
 
