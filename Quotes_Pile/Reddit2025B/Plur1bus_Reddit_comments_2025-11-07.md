@@ -1395,3 +1395,12 @@ Hard science discussion on Reddit. Wish it had a link off-Reddit. "Parthenote st
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pjycz8/potential_solution_lsd/nti2opg/
 
 <img width="1022" height="570" alt="image" src="https://github.com/user-attachments/assets/6193bb3a-d3b0-4fc6-8e81-e79dfc2b35da" /> Anyone who uses McLuhan media ecology to Reddit meme addictions: "You on DRUGS!" You on Breaking Bad Meth! www.LazyWake.com lazy drug users. Lazy show ecology mindsets.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pjiq9z/karl_g_jansky_very_large_array_vla_is_getting_rna/ntjewft/
+
+<img width="2580" height="1052" alt="image" src="https://github.com/user-attachments/assets/d299ceae-b692-47c6-9163-61cc5485834a" /> Cyber-bully at it again on Reddit. Anti-book cruisaders, pro-MAGA meme addicts.
+
+https://old.reddit.com/r/TrueLit/comments/1pjd9g8/an_american_screenplay_writer_spoke_at_the_wga/ntji2iw/
+
+In USA 2025, "Dementia mocking Don", "Dmentia Don" chanting society - everyone is a mental disorder when they discuss James Joyce's Finnegans Wake. True Literary people have drowned themselves in Reddit memes on Reddit touch device apps.
+
