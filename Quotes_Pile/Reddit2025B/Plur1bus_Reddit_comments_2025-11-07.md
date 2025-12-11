@@ -1315,7 +1315,10 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pjkrjj/theory_but_contains_re
 
 Organized mutli-account signal jaming against George W. Bush April 2021 book.
 
-My message reply to the one-word jamming signal. The echo-chamber one-word echos Echoland! Caution! ;)
-
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pjkrjj/theory_but_contains_real_spoilers_this_post/ntekfm7/
 
+My message reply to the one-word jamming signal. The echo-chamber one-word echos Echoland! Caution! ;)
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pjkrjj/theory_but_contains_real_spoilers_this_post/ntecl7w/
+
+4Chan hivemind...
