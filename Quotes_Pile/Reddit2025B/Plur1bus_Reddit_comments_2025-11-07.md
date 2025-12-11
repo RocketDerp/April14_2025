@@ -1354,3 +1354,9 @@ An actual sincere reply!
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pjkrjj/theory_but_contains_real_spoilers_this_post/ntewe1o/
 
 <img width="1576" height="1212" alt="image" src="https://github.com/user-attachments/assets/3cda2a26-479e-4a2f-b2b2-d5acb7d635de" /> "Take your meds" (drink your milk, hive mind). Hive of attacking still. Off-topic comments of blown minds crying out for drugs. Breaking Bad meth drug users who have cravings for non-serious political discourse and drug-fueled Braeking Bad stories. People who aspire to be like Walter White ane Jesse the druggie. Drug pushers. New Reddit account this year https://old.reddit.com/user/bugge-mane - 
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pjkrjj/theory_but_contains_real_spoilers_this_post/ntey2ht/
+
+<img width="1594" height="678" alt="image" src="https://github.com/user-attachments/assets/0b52437d-b825-44db-91e7-caa6ef07ed8a" />
+Escelated to gun threats. Real Hesisenberg Breaking Bad fanatics here. Fiction fantasy people. The kind who attack actresses for being Mr's White's fiction wife.
+
