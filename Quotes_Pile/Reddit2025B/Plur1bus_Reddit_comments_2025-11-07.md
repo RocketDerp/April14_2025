@@ -1285,3 +1285,8 @@ My response message. What nonsense "behavior". No-identtiy Reddit users who coul
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pjkrjj/theory_but_contains_real_spoilers_this_post/ntef02q/
 
 Those kind of information warfare where you sign up an enemy for subscriptions to magazines / pizza delivery attacks.  Video gamers sports mentality, logic of out-group hate. https://www.cbc.ca/news/canada/ottawa/it-just-got-progressively-darker-alleged-swatting-victim-says-1.2851462 - is that what this reply is? Someone just jamming April 2021 George W. Bush book title of "Pluribus" with noise message subscriptions?
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pjkrjj/theory_but_contains_real_spoilers_this_post/ntefodl/
+
+Posted a criical book about "Pluribus" and President George W. Bush from April 2021... and this is what you get on Reddit as reply messages. ... ... ...   
+"Russia-watcher Catherine Fitzpatrick, who documents Kremlin disinformation for InterpreterMag . com, says just as Moscow uses vague Internet laws to encourage self-censorship, trolls inhibit informed debate by using **crude dialogue to change "the climate of discussion."** "If you show up at The Washington Post or New Republic sites, where there's an article that's critical of Russia, and you see that **there are 200 comments that sound like they were written by 12-year-olds**, then you just don't bother to comment," she says.  "You don't participate. It's a way of just **driving discussion away** completely," she adds. "Those **kinds of tactics are meant to stop democratic debate**, and they work." - **year 2014** https://www.theatlantic.com/international/archive/2014/08/the-kremlins-troll-army/375932/
