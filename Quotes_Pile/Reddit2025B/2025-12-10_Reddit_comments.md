@@ -43,3 +43,18 @@ https://old.reddit.com/r/worldnews/comments/1pjn1y3/seized_tanker_owned_by_russi
 
 Amused to death nation. Trump and Putin, so funny to people. Surkov won.
 
+https://old.reddit.com/r/europe/comments/1pjzz27/leaked_files_show_us_wants_to_persuade_four/nth9x4u/
+
+<img width="972" height="390" alt="image" src="https://github.com/user-attachments/assets/31c5fdba-5d5a-4c9c-bf2f-9a28ae928d4d" /> People in LOL land USA rage only for more memes. Not actual humanism and unity of spiritual meaning. Just joking away here in amusement land about others suffering. Out-group mockery. The social media society (all media platforms) "fuck around and find out" is the very basis of I.C.E. and Putin power. Wrecking humanism of people who "fuck around" with those who worship power, worship Putin's prizing of power. Social media society turns it into entertainment about falling out of a window for LOL memes. OPERA_A Social media addicts and other people mocky away "Only A Fool Would Say that' about John Lennons Imagine. https://www.youtube.com/watch?v=6KgWEGnJTJc
+
+https://old.reddit.com/r/europe/comments/1pjzz27/leaked_files_show_us_wants_to_persuade_four/nthadce/
+
+<img width="814" height="318" alt="Screenshot from 2025-12-11 10-23-32" src="https://github.com/user-attachments/assets/f4fdfbd5-3986-4d73-918c-0456d6bd6258" /> Out-group hate abounds. Putin won, Surkov won since March 2013.
+
+https://old.reddit.com/r/europe/comments/1pjzz27/leaked_files_show_us_wants_to_persuade_four/ntha31x/
+
+<img width="1024" height="1094" alt="image" src="https://github.com/user-attachments/assets/352d2b08-1525-4da8-857b-751e87018be5" /> runaway simulacra, Surkov monomyth is in runaway, LLM systems amplifying now what was seeded year 2013 onward. OPERA_A It is too late... https://www.youtube.com/watch?v=HLdurSmOf4E
+
+https://old.reddit.com/r/europe/comments/1pjzz27/leaked_files_show_us_wants_to_persuade_four/nthebgt/
+
+<img width="916" height="246" alt="image" src="https://github.com/user-attachments/assets/f114b99d-f39d-41ea-8bb7-6db530281443" /> I woke up into a nightmare. Now the die is cast, my friend. Christ, what a mess.
