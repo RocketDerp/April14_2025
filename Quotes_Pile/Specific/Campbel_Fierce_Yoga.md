@@ -33,3 +33,18 @@ The other variety of monk is much less strict. This is known as svetambara,  dre
 There is a very funny story connected with this order. You know, pious people are strange everywhere. [laughter] In this particular case, two chaps come along through the streets of Bombay with a cart full of bed bugs. And they call, “Who will feed the bugs? Who will feed the bugs?”
 
 And some lady in the window tosses out a coin—that means she will feed the bugs. So one of the chaps lies down in the bed for a rupee, and the bugs have their dinner, and she has gained credit for assisting this inferior type of life to have its little enjoyment and move on, you know—it will be up in about eighty-four more incarnations perhaps going around with the cart saying, “Who will feed the bugs?”
+
+&nbsp;
+
+&nbsp;
+
+# Monday, March 7, 2011
+
+I Google searched a sentence about the apple, found only one public hit, me:
+
+March 7, 2011 (On that day... I was living the Arab Spring in Amman Jordan, just relocated from Algeria. Media ecology and Levant comparative mythology - lived in Amman for years before going to Hindu Indonesia - Bali)                   
+https://old.reddit.com/r/Buddhism/comments/fylty/comment/c1jo4ha/
+
+"Reminds me of a lecture from Joseph Campbell. February 20, 1961"
+
+Absurd that JCF keeps these 1960's lectures behind paywalls and hadn't public domain them for all humanity.
