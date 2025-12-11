@@ -1248,7 +1248,7 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pjiq9z/karl_g_jansky_very_lar
 
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pjiq9z/karl_g_jansky_very_large_array_vla_is_getting_rna/nte5qib/
 
-Mob mentality of anti-intellectaul anti-book Reddit users. Meme cultists, science fiction writers (Pluribus is Sci Fi) wote about this in 1980: https://aphelis.net/wp-content/uploads/2012/04/ASIMOV_1980_Cult_of_Ignorance.pdf
+Mob mentality of anti-intellectual anti-book Reddit users. Meme cultists, science fiction writers (Pluribus is Sci Fi) wrote about this in 1980: https://aphelis.net/wp-content/uploads/2012/04/ASIMOV_1980_Cult_of_Ignorance.pdf
 
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pjiq9z/karl_g_jansky_very_large_array_vla_is_getting_rna/nte67rg/
 
