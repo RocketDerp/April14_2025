@@ -136,4 +136,9 @@ Plural Meanings
 Insider Jobs  (Helen on the inside, inward journey)     
 
 
+Mechanics of Progress    
+Unmechanized Progress    
+Without Progress (Inward / within journey. [Without Love](https://www.youtube.com/watch?v=m4tJSn0QtME)?)     
+Unmechanical Husbands (McLuhan references)    
+Unmechanical Gauchos (Men who admire the industrial steam powered men replacement topics, phalic Naked Lunch)    
 
