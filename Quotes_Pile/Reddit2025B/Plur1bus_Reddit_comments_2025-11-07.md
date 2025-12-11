@@ -1306,3 +1306,7 @@ Fox News mob mentality, Reddit mob mentality.
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pjiq9z/karl_g_jansky_very_large_array_vla_is_getting_rna/ntehq0v/
 
 My message, my reply Pluribus TV mob mentality, Apple TV mob mentality, Fox News mob mentality, Reddit audience mob mentality, USA 2025 Truth Social leadership! Elon Musk Twitter mob mentality leadership.
+
+https://old.reddit.com/r/hypotheticalsituation/comments/1pji8am/can_you_become_the_oldest_person_alive/nte21j0/
+
+This is the account that tried to jam my George W. Bush April 2021 title assertions 3 times so far. Seems to have stopped for the moment. 
