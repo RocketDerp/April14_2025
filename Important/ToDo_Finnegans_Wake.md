@@ -538,4 +538,10 @@ https://old.reddit.com/r/Weird/comments/1pgixgd/a_52yearold_woman_from_the_nethe
 
  in Ulysses where Bloom points out constellations like Draco (the Dragon) and in Finnegans Wake, describing "dragonscaly folds," connecting them to ancient myths, the subconscious, and guarding hidden knowledge or treasure, reflecting broader literary traditions 
 
- 
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1pk03i8/literal_truth/
+
+Rich detailed sciene fiction trillogy. Metaphor to metaphor translations. Fandom to fandom translation, like spoken written lanugage Thunder Words Finnegns Wake langauge. John 1:1 Tower of Babel metaphors of langauges.
+
+
