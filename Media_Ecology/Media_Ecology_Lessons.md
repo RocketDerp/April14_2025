@@ -1308,3 +1308,15 @@ OPERA_A Cars Living in stereo channels / left vs. right. Crashing in stereo / mo
 OPERA_A Distant Early Warning are annoying. Visual starts with pilots. Silencing the warnings / whistle blowers in aviation, silencing the automation systems. https://www.youtube.com/watch?v=wrDj5XvZXX4
 
 ( 8-bit overrun 255, Detroit - Mowtown - Recording studios of [sampling cockpit record](https://www.youtube.com/watch?v=ZbbTmR6Xaag)ings shipping ) 
+
+&nbsp;
+
+# USA values: Confusing the elderly with messages
+
+Predatory marketing, agressive messaging targeting people with money.
+
+https://old.reddit.com/r/mildlyinfuriating/comments/1pjco79/they_never_stop/
+
+The young people in society do not vote to protect the elderly and use technology to track down these predators. The mobile phone networks have the money to identify it, but they don't do it. Same with junk mail and postal system in USA society. Profit-seeking with scams and exploitation are encouraged by media networks of postal delivery and telephone delivery an even YouTube, etc. "Elsa Gate" on YouTube, for example: https://en.wikipedia.org/wiki/Elsagate
+
+USA created the Internet and much of the moral values of competitive agressive salesmen.
