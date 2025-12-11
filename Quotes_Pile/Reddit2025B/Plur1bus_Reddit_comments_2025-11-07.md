@@ -1327,4 +1327,15 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pjkrjj/theory_but_contains_re
 
 Saving Hellen... one could ponder if Hellen is the "mindset" that arranged to go to such extremes to pluck from the Apple tree the fruit of life... a woman all the way in Africa. We have learned little of her pre assimilation life. Fan of Carol's books? Fan of the Africa pyramid study? So many possibilities.
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pjkrjj/theory_but_contains_real_spoilers_this_post/nteguqf/
+
+MAGA USA December 2025. Vince Gilligan dumb stupid. Everything that can't be crammed into a iPhone meme screen size is stupid. Anti-learning, anti-department of education. Breaking Badn and Saul audiences chasing / aspiring for the bad guys?
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pjkrjj/theory_but_contains_real_spoilers_this_post/nteewt8/
+
+Because declaring "Trump stupid" is the peak of December 2025 Reddit. Calling serious problems stupid. Trivializing. USA stem cell / health care topics of real-world. Not wanting a popular show to touch the third-rail of Christian Mr. White Science Teacher of ABQ drug-dosing how many people... and gun worship Mr. White the science teacher education values.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pjkrjj/theory_but_contains_real_spoilers_this_post/nteiqtf/
+
+Standing up to the Reddit consesus, Reddit hive mind! Getting downvoted for it.
 
