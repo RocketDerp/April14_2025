@@ -1216,3 +1216,11 @@ https://old.reddit.com/r/breakingbad/comments/14g2wp9/can_someone_explain_to_me_
 
 Breaking Bad audience / Saul fandom. Women getting pissed drunk to piss on the grave of audiene fandom of bad chemistry relation-shipping of who deserves Mr. White as a spouse. The Saloon that Helen falls and dies upon, after post-graduate Finnegans Wake discussion, is the grave site / graveyard of Walter White fiction character. Bad guy that people admire and attack real humans over.
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pjiq9z/karl_g_jansky_very_large_array_vla_is_getting_rna/ntdyaag/
+
+10-year Reddit account user can't read books anymore. Quotes of a Reddit message or quotes of a printed book from 1986 bewilders into tiny-short reply messages.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pjiq9z/karl_g_jansky_very_large_array_vla_is_getting_rna/ntdyyq8/
+
+My response, my message to this tiny-short noise signal from the antenna array.
+
