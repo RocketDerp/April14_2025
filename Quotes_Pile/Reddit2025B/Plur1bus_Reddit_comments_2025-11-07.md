@@ -1347,3 +1347,6 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pjkrjj/theory_but_contains_re
 
 If Carol's father or a brother was a sperma donor (frozen or alive)... would that resolve the technical gap? Incest metaphors?
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pjkrjj/theory_but_contains_real_spoilers_this_post/nter7pi/
+
+An actual sincere reply!
