@@ -1815,3 +1815,9 @@ Americans have adjusted to endless mocking. Day after day compaling and complain
 https://old.reddit.com/r/UnderReportedNews/comments/1pjgx60/its_official_trump_breaking_off_the_most/
 
 Front page. Reddit society saw last month about Twitter being manipulated with account origins. But Reddit society won't engage nonficiton learning about these matters and stay sustained focus. It isn't one single man, Trump, it's far too many people who can't be bothered to break fiction addictions and learn about "Internet Research Agency" and techniques.
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1pjxsr0/danish_intelligence_classifies_trumps_america_as/
