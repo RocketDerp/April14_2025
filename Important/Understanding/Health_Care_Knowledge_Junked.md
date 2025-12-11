@@ -67,3 +67,12 @@ So much bullshit in society drowns out peer to peer important assertions. Public
 https://old.reddit.com/r/science/comments/1phmymd/insufficient_sleep_associated_with_decreased_life/
 
 And all the wealth that goes into keep Reddit end-users addicted to content, not sleeping. Viego game industry, sports industry, slepless nights from Trump anxiety, Elon Musk Twitter mocking people who sleep, etc. Information oveerload, drowning important stories like this, with addictions to kitten images on /r/All along sidethe Middle East Formula 1 star worship (comedy washing / sports-washing Middle East wealth on Reddit /r/All). Constant marketing to make content consumption lifestyle anti-sleep, keeping up with the Jonses on memes in the high-speed media junkie fast lanes.
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1pjndhs/south_carolina_measles_outbreak_is_accelerating/
+
+Russia won information warfare to self-harm USA. People prize misunderstandings, prize out-group hate patterns. August 24, 2018 Russia: https://www.bbc.com/news/world-us-canada-45294192
+
