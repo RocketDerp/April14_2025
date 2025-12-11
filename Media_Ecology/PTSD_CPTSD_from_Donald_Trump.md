@@ -46,7 +46,7 @@ Seeing a red hat, regardless of what it says or images on it.
 
 ## Hearing or reading names
 
-"Donald Trump".
+"Donald Trump". OPERA_A Katy Lied lyrics from a NYC band / Trump home town: "Five **names that I can hardly stand to hear**... Including yours and mine and one more chimp who isn't here. I can see the ladies talking how the **times are getting hard**" https://www.youtube.com/watch?v=MiBfhFvJdvc
 
 ## Encountering Fox News
 
