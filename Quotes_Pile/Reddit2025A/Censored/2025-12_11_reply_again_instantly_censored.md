@@ -1,6 +1,6 @@
 https://old.reddit.com/r/TrueLit/comments/1pjd9g8/an_american_screenplay_writer_spoke_at_the_wga/ntjobxw/
 
-Tried 4 variatons of replies, eeach one got censored, incluidig this one.
+Tried 4 variatons of replies, each one got censored, incluidig this one.
 
 THe bullies can gate=keep people with brain and mental disorder, but you can't reply back - it is silenced and cnesored by the owners of Reddit. Documented here.
 
