@@ -1246,4 +1246,11 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pjiq9z/karl_g_jansky_very_lar
 "o say that a great genius is half-mad, while recognizing his artistic prowess, is worth as much as saying that he was rheumatic, or that he suffered from diabetes. Madness, in fact, is a medical expression to which a balanced critic should pay no more heed than he would to the accusation of heresy brought by the theologian, or to the accusation of immorality brought by the public prosecutor." - James Joyce  ... ... ...    
 "Writing in English is the most ingenious torture ever devised for sins committed in previous lives. The English reading public explains the reason why." - James Joyce
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pjiq9z/karl_g_jansky_very_large_array_vla_is_getting_rna/nte5qib/
+
+Mob mentality of anti-intellectaul anti-book Reddit users. Meme cultists, science fiction writers (Pluribus is Sci Fi) wote about this in 1980: https://aphelis.net/wp-content/uploads/2012/04/ASIMOV_1980_Cult_of_Ignorance.pdf
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pjiq9z/karl_g_jansky_very_large_array_vla_is_getting_rna/nte67rg/
+
+My reply comment, my message. They really think dehumanzing people over a TV show in public is not anti-intellctual behavior. Lots of virtue signaling about writing and **imigrants to USA** not "writing English" good enough on Reddit at play. Reddit hive  mind conditioned to be pro-MAGA while chanting "I hate that girl, I don't love that girl, I just talk about that girl all the time" (MAGA / Trumpism since June 16, 2015 endlessly on Reddit for over a decade).
 
