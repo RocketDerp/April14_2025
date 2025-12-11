@@ -1266,3 +1266,10 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pjkrjj/theory_but_contains_re
 
 <img width="1702" height="1136" alt="image" src="https://github.com/user-attachments/assets/522add1e-ef93-44c1-92b5-13da6a992db5" /> This is the audience message you get as a reply in public when a book is linked on Wikipedia with the Pluribus TV show title. Blown minds like Carol / Karents in "WTF" meme stupors.
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pii2xl/can_someone_help_me_understand_what_the_heck_am_i/nt78phs/
+
+The preview / trailer leaks
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pii2xl/can_someone_help_me_understand_what_the_heck_am_i/nt7g9h2/
+
+More leaks. 
