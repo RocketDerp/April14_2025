@@ -1232,3 +1232,10 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pjiq9z/karl_g_jansky_very_lar
 
 My reply comment to this bewildered socail touch device user.
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pjiq9z/karl_g_jansky_very_large_array_vla_is_getting_rna/nte0s5d/
+
+Outside their "comfort zone" reading level / reading comprehension. Citing a paper printed book and reading a whole book is too much, blows minds into Truth Social attacking other people as "Low I.Q." like Trump.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pjiq9z/karl_g_jansky_very_large_array_vla_is_getting_rna/nte11vb/
+
+My reply message about their inability to quote or cite ANY SPECIFIC problems and just throwing general shade insuting, one-upmanship bullshit.
