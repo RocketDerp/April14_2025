@@ -1257,3 +1257,7 @@ My reply comment, my message. They really think dehumanzing people over a TV sho
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pjkrjj/theory_but_contains_real_spoilers_this_post/nte6ww0/
 
 Read the posting, "The Wow" signal. 
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pjkrjj/theory_but_contains_real_spoilers_this_post/nte952j/
+
+My reply message, lay it on thick. George W. Bush stood up to MAGA's worst values! The wow signal. April 2021 book of what the whole world sees of Americans and how they treat women. How people treat visitors coming into USA. Visas, etc.
