@@ -1408,3 +1408,13 @@ https://old.reddit.com/r/TrueLit/comments/1pjd9g8/an_american_screenplay_writer_
 
 <img width="1548" height="1152" alt="image" src="https://github.com/user-attachments/assets/cd017e7c-f924-4c64-ad7b-4b9a395bbd11" /> People on Reddit are projecting Donald Trump "dementia chanting" on everyone. It's a endless game of blow your mind when Finnegans Wake language gets discussed. Who are these people who use Reddit and hide their real identity?
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pkc2sq/episode_6_titled_hdp_carol_says_pluck_hdp_helen/ntjxesv/
+
+<img width="2492" height="684" alt="image" src="https://github.com/user-attachments/assets/9400fc6e-7831-4da6-af38-fb65a37f576c" /> Constnatly bragging they are the smartest and most clever joke-tellers in the world when Finnegans Wake is running all around MAGA and Reddit and Fox News with humor. Dumb drug jokes about Walter White meth are dumb. Praising Walter White and Saul and Elon Musk and Trump as entertainment. Anti-citation, anti book quote, anti-clicking off-reddit at every turn. My username is "bird" and they think cum swalling dose jokes of Carol's eggs or whatever is super-clever like Donald Trump and Epstein poop diaper jokes, pee tape shit (for years and years).
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pkc2sq/episode_6_titled_hdp_carol_says_pluck_hdp_helen/ntjzcgk/
+
+I quoted a lecture from February 20, 1961. Thinks I am age 17.
+
+
+
