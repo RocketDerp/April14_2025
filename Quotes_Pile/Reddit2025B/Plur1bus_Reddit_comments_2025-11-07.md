@@ -1280,5 +1280,6 @@ Living under Donald Trump in December 2025 - and MAGA meme consumers on Reddit c
 
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pjiq9z/karl_g_jansky_very_large_array_vla_is_getting_rna/ntedb10/
 
-My response message. What nonsense "behavior". No-identtiy Reddit users who could be from anywhere in the world. The whole Twitter location wake-up last month doesn't seem to connect with Reddit users. https://www.bbc.com/news/articles/cj38m11218xo George W. Bush politics of a April 2021 book with the same title as Pluribus TV show.
+My response message. What nonsense "behavior". No-identtiy Reddit users who could be from anywhere in the world. The whole Twitter location wake-up last month doesn't seem to connect with Reddit users. https://www.bbc.com/news/articles/cj38m11218xo George W. Bush politics of a April 2021 book with the same title as Pluribus TV show. "Face-masked I.C.E. people" interrogating in public gets attention all year 2025, but Reddit users insutling your intelligence and interrogating you / cyber-bullying you on Reddit... people pile-on like it's pro-Trump pro-MAGA pro-Fox News sports game. Smell Immigrant-English writing, people go for blood, I.C.E. agent anonymous face-masked Reddit accounts behavior. USA 2025 society. Truth Social values.
+
 
