@@ -1350,3 +1350,8 @@ If Carol's father or a brother was a sperma donor (frozen or alive)... would tha
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pjkrjj/theory_but_contains_real_spoilers_this_post/nter7pi/
 
 An actual sincere reply!
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pjkrjj/theory_but_contains_real_spoilers_this_post/ntewe1o/
+
+Hive of attacking still. Off-topic comments of blown minds crying out for drugs. Breaking Bad meth drug users who have cravings for non-serious political discourse and drug-fueled Braeking Bad stories. People who aspire to be like Walter White ane Jesse the druggie. Drug pushers.
+
