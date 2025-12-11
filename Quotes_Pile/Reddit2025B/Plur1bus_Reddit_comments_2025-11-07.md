@@ -1239,3 +1239,11 @@ Outside their "comfort zone" reading level / reading comprehension. Citing a pap
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pjiq9z/karl_g_jansky_very_large_array_vla_is_getting_rna/nte11vb/
 
 My reply message about their inability to quote or cite ANY SPECIFIC problems and just throwing general shade insuting, one-upmanship bullshit.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pjiq9z/karl_g_jansky_very_large_array_vla_is_getting_rna/nte1n24/
+
+<img width="1718" height="722" alt="image" src="https://github.com/user-attachments/assets/ad6c2186-628d-4587-83d8-47c7f4dc454f" /> ... Carol book author a heavy drinker, Joyce book author a heavy drinker. I don't drink like that. My mother did, maybe that's how she coped with audiences. ... ... ...    
+"o say that a great genius is half-mad, while recognizing his artistic prowess, is worth as much as saying that he was rheumatic, or that he suffered from diabetes. Madness, in fact, is a medical expression to which a balanced critic should pay no more heed than he would to the accusation of heresy brought by the theologian, or to the accusation of immorality brought by the public prosecutor." - James Joyce  ... ... ...    
+"Writing in English is the most ingenious torture ever devised for sins committed in previous lives. The English reading public explains the reason why." - James Joyce
+
+
