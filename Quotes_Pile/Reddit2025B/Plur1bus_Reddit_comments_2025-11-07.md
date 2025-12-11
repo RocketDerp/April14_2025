@@ -1360,3 +1360,18 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pjkrjj/theory_but_contains_re
 <img width="1594" height="678" alt="image" src="https://github.com/user-attachments/assets/0b52437d-b825-44db-91e7-caa6ef07ed8a" />
 Escelated to gun threats. Real Hesisenberg Breaking Bad fanatics here. Fiction fantasy people. The kind who attack actresses for being Mr's White's fiction wife.
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pjkrjj/theory_but_contains_real_spoilers_this_post/ntesap6/
+
+<img width="850" height="382" alt="image" src="https://github.com/user-attachments/assets/bd9dc23d-418d-4d72-a1ed-ea193174b91d" /> The fandom creates so much hate over *multiple interpretations*. So much like Catholic vs. Protestant in Northern Ireland over a science fiction story, The Bible. So much hate agaisnt the idea of "love everyone" stories. A better hive mind than hate vs. hate that Fox News nation / MAGA values Reddit fantatics of Walter White and Saul getting rich poisoning people with addictions in the mind.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pjkrjj/theory_but_contains_real_spoilers_this_post/ntevj8s/
+
+<img width="1368" height="212" alt="image" src="https://github.com/user-attachments/assets/d57f6435-42bf-40e6-a4b6-d65d0a3b6256" /> Exactly. The media ecology of the fandom of Vince Gilligan is wilding in hate and anti-learning anti-thinking, so reactionary to turn on humanism and study. Vince at WGA 2025 speech described the USA society was in bad shape, and people just want to keep on that path. 
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pix8lw/new_rule_real_spoilers_from_a_leak_or_whatsoever/ntezzm4/
+
+<img width="1682" height="1164" alt="image" src="https://github.com/user-attachments/assets/718e2168-538e-44fa-b036-a703a0524218" /> Media ecology all around this show is wild.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pi8tb5/i_want_you_to_build_a_machine_that_can_harvest/nt4tlfm/
+
+<img width="1948" height="274" alt="image" src="https://github.com/user-attachments/assets/f3f2ef22-b67a-4ab2-82f5-34dbfbc089ae" /> "All of you" FAQ. This holiday everyone will talk about the show, new waves of viewers, people who adore asking / writing comments and not researching. This is the society that can't face up to media ecology of national leadership / Fox News HDTV influence because people are so driven by craving low-effort commenting.The people with the talents to create FAQ become territorial and gatekeeping - instead of creating a FAQ and asserting RTFM. The desire to get on the same page / good same pages - like published books about the Pluribus Founding Father ideas... is drowned in desires to write-only commenting. I'm trapped trying to get people to see Neil Postman's 1985 book "Amusing Ourselves to Death" about this society-wide behavior. I had hopes this TV show would put focus on founding fathers and Latin... we are so anti-FAQ anti-Wiki as a society now. long day.
