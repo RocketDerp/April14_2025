@@ -39,11 +39,3 @@ https://old.reddit.com/r/MadeMeSmile/comments/1pj2j16/never_seen_a_skateboard/nt
 
 Like having sincere content all over the Internet that isn't a booby-trap by billionares like Elon Musk, Rupert Murdoch. That Truth Social is true. That Wikipedia isn't manipulated by strangers who want to make people get diseases (measles) and spread information wrfare. https://www.bbc.com/news/world-us-canada-45294192 That Reddit comments aren't the most sophisticated doctors from Cambridge Analytica. That a woman on the street feels safe. That attraction to a skate board is safe. Although I suggest people have a helmet just like a bike. Training wheels on bikes are also a real thing. Ice skating / roller skating / skateboard / surf board / tight rope walking take some balance experience. OPERA_A February 19, 1977 live broadcast. The year 1. (see top of this GitHub markdown file topic) Tim Finnegan Opera / WAKE UP to Year One MonoMyth patterns! https://www.youtube.com/watch?v=FOhD-VGIt_8
 
-https://old.reddit.com/r/Pluribus_TVshow/comments/1pjiq9z/karl_g_jansky_very_large_array_vla_is_getting_rna/ntdyaag/
-
-10-year Reddit account user can't read books anymore. Quotes of a Reddit message or quotes of a printed book from 1986 bewilders into tiny-short reply messages.
-
-https://old.reddit.com/r/Pluribus_TVshow/comments/1pjiq9z/karl_g_jansky_very_large_array_vla_is_getting_rna/ntdyyq8/
-
-My response, my message to this tiny-short noise signal from the antenna array.
-
