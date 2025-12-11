@@ -1310,3 +1310,12 @@ My message, my reply Pluribus TV mob mentality, Apple TV mob mentality, Fox News
 https://old.reddit.com/r/hypotheticalsituation/comments/1pji8am/can_you_become_the_oldest_person_alive/nte21j0/
 
 This is the account that tried to jam my George W. Bush April 2021 title assertions 3 times so far. Seems to have stopped for the moment. 
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pjkrjj/theory_but_contains_real_spoilers_this_post/ntebirv/
+
+Organized mutli-account signal jaming against George W. Bush April 2021 book.
+
+My message reply to the one-word jamming signal. The echo-chamber one-word echos Echoland! Caution! ;)
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pjkrjj/theory_but_contains_real_spoilers_this_post/ntekfm7/
+
