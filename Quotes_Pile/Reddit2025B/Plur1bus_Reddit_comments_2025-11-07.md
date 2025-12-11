@@ -1342,3 +1342,8 @@ Standing up to the Reddit consesus, Reddit hive mind! Getting downvoted for it.
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pjkrjj/theory_but_contains_real_spoilers_this_post/nteq1p5/
 
 My message. Asserting the Finnegans-*way* braek in the "PLURI 1 BUS" word shape-shifting. Minute 22 of Episode One, Finnegans Wake. The prefix suffix word John 1:1 remix of Latin to English and back again via Google Translate that Joyce was doin' in Finn's Hotel year 1923...
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pjkrjj/theory_but_contains_real_spoilers_this_post/nten6c1/
+
+If Carol's father or a brother was a sperma donor (frozen or alive)... would that resolve the technical gap? Incest metaphors?
+
