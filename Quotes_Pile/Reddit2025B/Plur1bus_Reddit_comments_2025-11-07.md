@@ -1282,4 +1282,6 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pjiq9z/karl_g_jansky_very_lar
 
 My response message. What nonsense "behavior". No-identtiy Reddit users who could be from anywhere in the world. The whole Twitter location wake-up last month doesn't seem to connect with Reddit users. https://www.bbc.com/news/articles/cj38m11218xo George W. Bush politics of a April 2021 book with the same title as Pluribus TV show. "Face-masked I.C.E. people" interrogating in public gets attention all year 2025, but Reddit users insutling your intelligence and interrogating you / cyber-bullying you on Reddit... people pile-on like it's pro-Trump pro-MAGA pro-Fox News sports game. Smell Immigrant-English writing, people go for blood, I.C.E. agent anonymous face-masked Reddit accounts behavior. USA 2025 society. Truth Social values.
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pjkrjj/theory_but_contains_real_spoilers_this_post/ntef02q/
 
+Those kind of information warfare where you sign up an enemy for subscriptions to magazines / pizza delivery attacks.  Video gamers sports mentality, logic of out-group hate. https://www.cbc.ca/news/canada/ottawa/it-just-got-progressively-darker-alleged-swatting-victim-says-1.2851462 - is that what this reply is? Someone just jamming April 2021 George W. Bush book title of "Pluribus" with noise message subscriptions?
