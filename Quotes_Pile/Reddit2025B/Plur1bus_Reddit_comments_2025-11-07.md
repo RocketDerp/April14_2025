@@ -1273,3 +1273,12 @@ The preview / trailer leaks
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pii2xl/can_someone_help_me_understand_what_the_heck_am_i/nt7g9h2/
 
 More leaks. 
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pjiq9z/karl_g_jansky_very_large_array_vla_is_getting_rna/ntecuw3/
+
+Living under Donald Trump in December 2025 - and MAGA meme consumers on Reddit can't even talk about 1986 printed books on paper, can't discuss a TV show without invoking some "everyone has dementia" or something. Trump has cooked this society. The George W. Bush April 2021 book blows their minds into stupors that the show *just might* be about peace on Earth and USA President's book title / show title.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pjiq9z/karl_g_jansky_very_large_array_vla_is_getting_rna/ntedb10/
+
+My response message. What nonsense "behavior". No-identtiy Reddit users who could be from anywhere in the world. The whole Twitter location wake-up last month doesn't seem to connect with Reddit users. https://www.bbc.com/news/articles/cj38m11218xo George W. Bush politics of a April 2021 book with the same title as Pluribus TV show.
+
