@@ -83,3 +83,11 @@ Russia won information warfare to self-harm USA. People prize misunderstandings,
 https://old.reddit.com/r/MurderedByWords/comments/1pjvk9z/i_think_this_goes_here/
 
 So many fixated on one golfing man with his orange skin and "dementia" diagnosis. That people can't see the forest of We The People for the golf trees. The abandonment of science. Why Dr. Bandy X Lee isn't a household name / Reddit asserted in comments like "Epstein" name... because Dr. Bandy X Lee isn't entertainment Reality TV like Epstein private jet Private Fantasy Island entertainment of Trump MAGA Tony Clifton performances. Health care / mental health knowledge junked and drowned by more mockery psotings that will push it off the front page.
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/interestingasfuck/comments/1pk06jn/what_russia_does_to_ukrainian_children/
+
+Reddit front page. USA Reddit front page of the World Wide Web, Human Species. This story will get drowned out in all the memenoise and kitten images. The earth is over 8 billion humans, the time is NOW to confront the MOST OBVIOUS, BLINDING BRIGHT, Egoism of Putin and MAGA leadership, Musk Twitter, Reddit Musk influence, Truth Socail media, Murdoch Fox News. The avoidance of Jen Senko, the avoidance of nonfiction learning about Surkov and being able to name Surkov students and the IRA. Reddit is entertainment-washing these serious health postings about children's future, just as it does with Malala year 2012 and year 2013... will not sustain focus and asserting of improtance. We do not require digital images of kittens and cats every hour on the front page - we need a sense of improtance of human children / human species. Egomania / egoism run wilde, concern only for friends, while hating out-groups like Russia does to Ukraine and USA does to Mexico and Canada.
