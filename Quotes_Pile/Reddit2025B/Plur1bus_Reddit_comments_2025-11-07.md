@@ -1261,3 +1261,8 @@ Read the posting, "The Wow" signal.
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pjkrjj/theory_but_contains_real_spoilers_this_post/nte952j/
 
 My reply message, lay it on thick. George W. Bush stood up to MAGA's worst values! The wow signal. April 2021 book of what the whole world sees of Americans and how they treat women. How people treat visitors coming into USA. Visas, etc.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pjkrjj/theory_but_contains_real_spoilers_this_post/nteavwz/
+
+<img width="1702" height="1136" alt="image" src="https://github.com/user-attachments/assets/522add1e-ef93-44c1-92b5-13da6a992db5" /> This is the audience message you get as a reply in public when a book is linked on Wikipedia with the Pluribus TV show title. Blown minds like Carol / Karents in "WTF" meme stupors.
+
