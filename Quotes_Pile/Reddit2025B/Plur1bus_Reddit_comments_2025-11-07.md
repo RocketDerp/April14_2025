@@ -1299,3 +1299,10 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pjkrjj/theory_but_contains_re
 
 My reply to that jam message. Re-assert context of target of jamming. George W. Bush April 2021.
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pjiq9z/karl_g_jansky_very_large_array_vla_is_getting_rna/nteci9f/
+
+Fox News mob mentality, Reddit mob mentality.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pjiq9z/karl_g_jansky_very_large_array_vla_is_getting_rna/ntehq0v/
+
+My message, my reply Pluribus TV mob mentality, Apple TV mob mentality, Fox News mob mentality, Reddit audience mob mentality, USA 2025 Truth Social leadership! Elon Musk Twitter mob mentality leadership.
