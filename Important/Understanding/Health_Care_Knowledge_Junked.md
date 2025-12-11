@@ -76,3 +76,10 @@ https://old.reddit.com/r/news/comments/1pjndhs/south_carolina_measles_outbreak_i
 
 Russia won information warfare to self-harm USA. People prize misunderstandings, prize out-group hate patterns. August 24, 2018 Russia: https://www.bbc.com/news/world-us-canada-45294192
 
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1pjvk9z/i_think_this_goes_here/
+
+So many fixated on one golfing man with his orange skin and "dementia" diagnosis. That people can't see the forest of We The People for the golf trees. The abandonment of science. Why Dr. Bandy X Lee isn't a household name / Reddit asserted in comments like "Epstein" name... because Dr. Bandy X Lee isn't entertainment Reality TV like Epstein private jet Private Fantasy Island entertainment of Trump MAGA Tony Clifton performances. Health care / mental health knowledge junked and drowned by more mockery psotings that will push it off the front page.
