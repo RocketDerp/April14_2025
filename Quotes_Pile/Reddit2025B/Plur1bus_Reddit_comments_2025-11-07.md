@@ -1322,3 +1322,9 @@ My message reply to the one-word jamming signal. The echo-chamber one-word echos
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pjkrjj/theory_but_contains_real_spoilers_this_post/ntecl7w/
 
 4Chan hivemind...
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pjkrjj/theory_but_contains_real_spoilers_this_post/nte9lk8/
+
+Saving Hellen... one could ponder if Hellen is the "mindset" that arranged to go to such extremes to pluck from the Apple tree the fruit of life... a woman all the way in Africa. We have learned little of her pre assimilation life. Fan of Carol's books? Fan of the Africa pyramid study? So many possibilities.
+
+
