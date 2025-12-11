@@ -1,6 +1,6 @@
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pjiq9z/karl_g_jansky_very_large_array_vla_is_getting_rna/ntjf4ul/
 
-There are real people with schizophrenia who are allowed to use English on Reddit, except when they are bullied, but in "Dementa Don" mocking of USA 2025 MAGA society, calling someone mental disorders is a way to "win" predisent and Truth Social debates. It is key to 2025 popularirty to hate people with meme device machines.
+There are real people with schizophrenia who are allowed to use English on Reddit, except when they are bullied, but in "Dementia Don" mocking of USA 2025 MAGA society, calling someone mental disorders is a way to "win" President and Truth Social debates. It is key to 2025 popularirty to hate people with meme device machines. People are attracted to "Dementia Don" so they can go on the Internet every hour and mock him. It's a very very sick society in year 2025, lead by Fox News mockery.
 
 &nbsp;
 
