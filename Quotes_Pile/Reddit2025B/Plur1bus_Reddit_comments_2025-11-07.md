@@ -1224,3 +1224,11 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pjiq9z/karl_g_jansky_very_lar
 
 My response, my message to this tiny-short noise signal from the antenna array.
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pjiq9z/karl_g_jansky_very_large_array_vla_is_getting_rna/ntdzwxt/
+
+Book on paper, Reddit video gamers don't even seemto know what a paper book is or a public library. Only streaming Apple video games on an iPad and Apple TV+ streaming. A book, a VHS video tape... bewildered.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pjiq9z/karl_g_jansky_very_large_array_vla_is_getting_rna/nte05nu/
+
+My reply comment to this bewildered socail touch device user.
+
