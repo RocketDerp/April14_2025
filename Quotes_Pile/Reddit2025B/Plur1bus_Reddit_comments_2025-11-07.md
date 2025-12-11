@@ -1375,3 +1375,23 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pix8lw/new_rule_real_spoilers
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pi8tb5/i_want_you_to_build_a_machine_that_can_harvest/nt4tlfm/
 
 <img width="1948" height="274" alt="image" src="https://github.com/user-attachments/assets/f3f2ef22-b67a-4ab2-82f5-34dbfbc089ae" /> "All of you" FAQ. This holiday everyone will talk about the show, new waves of viewers, people who adore asking / writing comments and not researching. This is the society that can't face up to media ecology of national leadership / Fox News HDTV influence because people are so driven by craving low-effort commenting.The people with the talents to create FAQ become territorial and gatekeeping - instead of creating a FAQ and asserting RTFM. The desire to get on the same page / good same pages - like published books about the Pluribus Founding Father ideas... is drowned in desires to write-only commenting. I'm trapped trying to get people to see Neil Postman's 1985 book "Amusing Ourselves to Death" about this society-wide behavior. I had hopes this TV show would put focus on founding fathers and Latin... we are so anti-FAQ anti-Wiki as a society now. long day.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pf094d/very_serious_reddit_posting_about_vince_gilligan/ntfq6rm/
+
+<img width="756" height="208" alt="image" src="https://github.com/user-attachments/assets/31f417f6-9580-472b-b6ff-0582adcca5dd" /> Short "thank you" messages aren't noise. Posting title of "very serious Reddit posting" isn't mocked.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pjkrjj/theory_but_contains_real_spoilers_this_post/ntfrfga/
+
+I replied about POTUS Great Seal and George W. Bush book.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pjkrjj/theory_but_contains_real_spoilers_this_post/ntfjv12/
+
+Be dumb messages, anti-intellectual messages on Reddit media, "The Media" saying be a dumb TV watcher and consume Apple iPhone / iPad products like an American. 
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pjkrjj/theory_but_contains_real_spoilers_this_post/ntfc2cg/
+
+Hard science discussion on Reddit. Wish it had a link off-Reddit. "Parthenote stem cells are pluripotent stem cells derived from unfertilized egg cells (oocytes)" You LEFT OUT the most important part, the show title! A "bus" of themes about "pluri".  **pluri-potent** - meaning "(of an immature or stem cell) capable of giving rise to several different cell types."  https://www.bedfordresearch.org/stem-cells/stem-cell-research/parthenote-stem-cells/
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pjycz8/potential_solution_lsd/nti2opg/
+
+<img width="1022" height="570" alt="image" src="https://github.com/user-attachments/assets/6193bb3a-d3b0-4fc6-8e81-e79dfc2b35da" /> Anyone who uses McLuhan media ecology to Reddit meme addictions: "You on DRUGS!" You on Breaking Bad Meth! www.LazyWake.com lazy drug users. Lazy show ecology mindsets.
