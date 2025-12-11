@@ -1254,3 +1254,6 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pjiq9z/karl_g_jansky_very_lar
 
 My reply comment, my message. They really think dehumanzing people over a TV show in public is not anti-intellctual behavior. Lots of virtue signaling about writing and **imigrants to USA** not "writing English" good enough on Reddit at play. Reddit hive  mind conditioned to be pro-MAGA while chanting "I hate that girl, I don't love that girl, I just talk about that girl all the time" (MAGA / Trumpism since June 16, 2015 endlessly on Reddit for over a decade).
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pjkrjj/theory_but_contains_real_spoilers_this_post/nte6ww0/
+
+Read the posting, "The Wow" signal. 
