@@ -1505,3 +1505,6 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pkeywi/pluribus_1x07_the_gap_
 
 Media ecology of second-screen audiences. I expect once it is all over, many people will binge-watch and skip huge parts. Some may even turn to feed it into ChatGPT and ask for 10 minute versions of episodes. People may very well cram the entire 13 episodes into something like 85 minutes https://www.slashfilm.com/520125/topher-grace-edited-star-wars-prequels-85minute-movie/ - Who Watches the Watchers of a TV show, media ecology...
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pkeywi/pluribus_1x07_the_gap_episode_discussion/ntkyu1c/
+
+Walter White and Saul fans are expecting action thrill violence gun shootouts, more Carol doing murder-suicide and police car rushing. People could wait until getting a 1-month Apple TV+ on Christmas day and jam-binge the whole thing. Cool Black Friday gift. Skip entire episodes, speed-run it. I'm sure people will have it cut way down to 85 minutes for the whole season soon enough. https://www.slashfilm.com/520125/topher-grace-edited-star-wars-prequels-85minute-movie/
