@@ -1570,4 +1570,7 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pkrjct/episode_7_carol_singin
 
 <img width="1182" height="1358" alt="image" src="https://github.com/user-attachments/assets/5a147ec1-6073-4132-8df6-9d59bbd2379b" /> More attacks personal. Over TV show. <img width="1640" height="1324" alt="image" src="https://github.com/user-attachments/assets/c6b56bee-12f5-42f9-bd72-e7ad36db4d43" />
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pkrjct/episode_7_carol_singing_hive_mind_songs/ntny5y6/
+
+<img width="1756" height="1396" alt="image" src="https://github.com/user-attachments/assets/a1f80611-785e-4856-94c2-6b0c3ed03a74" /> They diagnose me in public on Reddit, I say I am diagnonsed with "HyperLexia" - and then they run away like a coward. Attacking but won't listen to the response of "HyperLexia".
 
