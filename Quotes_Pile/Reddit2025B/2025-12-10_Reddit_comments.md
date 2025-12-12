@@ -58,3 +58,9 @@ https://old.reddit.com/r/europe/comments/1pjzz27/leaked_files_show_us_wants_to_p
 https://old.reddit.com/r/europe/comments/1pjzz27/leaked_files_show_us_wants_to_persuade_four/nthebgt/
 
 <img width="916" height="246" alt="image" src="https://github.com/user-attachments/assets/f114b99d-f39d-41ea-8bb7-6db530281443" /> I woke up into a nightmare. Now the die is cast, my friend. Christ, what a mess.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pkrjct/episode_7_carol_singing_hive_mind_songs/ntnw8sl/
+
+
+<img width="1182" height="1358" alt="image" src="https://github.com/user-attachments/assets/5a147ec1-6073-4132-8df6-9d59bbd2379b" /> More attacks personal. Over TV show.
+
