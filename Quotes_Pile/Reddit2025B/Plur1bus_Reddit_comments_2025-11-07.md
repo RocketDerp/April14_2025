@@ -1560,3 +1560,7 @@ Reddit never published my reply to this message, censored. Documented elsewhere 
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pkeywi/pluribus_1x07_the_gap_episode_discussion/ntnvu2m/
 
 Here is the key: They can't engage the Ted Talk from Nina Paley. They can't say a word about it on Reddit. They can't discuss Howard Bloom's writing. They FIXATE on Reddit and ONLY reddit. Addiction to high-speed TCP/IP messages.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pkeywi/pluribus_1x07_the_gap_episode_discussion/ntnwru5/
+
+The minds are so blown on Reddit, they can't tell LLM hive mind, bot meme-speak stupors. My reply (that Reddit censored): "You flunk the Turning Test and you suffer from extreme low literacy. "The ELIZA effect", seek treatment from MIT university."
