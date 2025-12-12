@@ -1410,11 +1410,16 @@ https://old.reddit.com/r/TrueLit/comments/1pjd9g8/an_american_screenplay_writer_
 
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pkc2sq/episode_6_titled_hdp_carol_says_pluck_hdp_helen/ntjxesv/
 
-<img width="2492" height="684" alt="image" src="https://github.com/user-attachments/assets/9400fc6e-7831-4da6-af38-fb65a37f576c" /> Constnatly bragging they are the smartest and most clever joke-tellers in the world when Finnegans Wake is running all around MAGA and Reddit and Fox News with humor. Dumb drug jokes about Walter White meth are dumb. Praising Walter White and Saul and Elon Musk and Trump as entertainment. Anti-citation, anti book quote, anti-clicking off-reddit at every turn. My username is "bird" and they think cum swalling dose jokes of Carol's eggs or whatever is super-clever like Donald Trump and Epstein poop diaper jokes, pee tape shit (for years and years).
+<img width="2492" height="684" alt="image" src="https://github.com/user-attachments/assets/9400fc6e-7831-4da6-af38-fb65a37f576c" /> Constnatly bragging they are the smartest and most clever joke-tellers in the world when Finnegans Wake is running all around MAGA and Reddit and Fox News with humor. Dumb drug jokes about Walter White meth are dumb. Praising Walter White and Saul and Elon Musk and Trump as entertainment. Anti-citation, anti book quote, anti-clicking off-reddit at every turn. My username is "bird" and they think cum swalling dose jokes of Carol's eggs or whatever is super-clever like Donald Trump and Epstein poop diaper jokes, pee tape shit (for years and years). The Reddit hive mind since year 2013 thinks pranking people all the time, mocking people, is progress. Eating right out of Cambridge Analytica hands and unable to describe the psycological mechanics and names of the people at CA. An entire nation amused to death, a joke, humiliated by Putin since year 2013.
 
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pkc2sq/episode_6_titled_hdp_carol_says_pluck_hdp_helen/ntjzcgk/
 
-I quoted a lecture from February 20, 1961. Thinks I am age 17.
+I quoted a lecture from February 20, 1961. Thinks I am age 17. I even mentioned "The Gratest Generation" in the 2025 lecture from Vince Gilligan in my Reddit posting. Still thinks I am age 17, that's what the kids talk about along with "6 7" and "South Park, right? 1961 lectures that are behind a paywall.
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pkc2sq/episode_6_titled_hdp_carol_says_pluck_hdp_helen/ntjyxae/
 
+EXACTLY! People here give far too much credit to ChatGPT and can't fathom "Turing Tests" and "The ELIZA effect". https://old.reddit.com/r/videos/comments/1k4vrqm/dont_date_robots/
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pkc2sq/episode_6_titled_hdp_carol_says_pluck_hdp_helen/ntk2dhe/
+
+Why? So agressive. Gate-keeping 6-day old Reddit account.
