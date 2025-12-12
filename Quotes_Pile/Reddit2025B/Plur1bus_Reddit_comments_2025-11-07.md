@@ -1524,3 +1524,9 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pimwsn/one_assumed_but_not_ne
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pkrjct/episode_7_carol_singing_hive_mind_songs/ntn8aj3/
 
 Media literacy of F.M. radio is so absent from TV programming audiences.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pkeywi/pluribus_1x07_the_gap_episode_discussion/ntnbpkt/
+
+So many youth these days can't read long-form content. They have to feed entire PDF files and books into ChatGPT and cram it down into one-line Twitter-length. Elon Musk is the pied piper of GrokAI doing the same.
+
+Keyboarding is disappearing, iPad and iPhone don't have 10-finger keyboard for most people / typewriter gone. And people no longer want books in any way, they want Tweets.
