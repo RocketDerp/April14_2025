@@ -12,3 +12,11 @@ The agression, the motivation people have to declare something is simple, dumb, 
 
 It's the attiude I expeirenced living inthe Middle East towards non-believers. Not like Malala and MLK Jr: who view people as poorly educated or prizing misunerstandings. But an agressive insulting and mocking of the others.
 
+&nbsp;
+
+# The Simpsons Grift
+
+Excellent short but serious discussion of grifting / tricking / gaming / manipulaiton topics on The Simpsons.
+
+https://www.youtube.com/watch?v=wFNaTJfZiaQ
+
