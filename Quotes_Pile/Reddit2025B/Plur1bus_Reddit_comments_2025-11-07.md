@@ -1503,4 +1503,5 @@ Can't engage anything non-fiction serious, on a posting about post-doctorae lear
 
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pkeywi/pluribus_1x07_the_gap_episode_discussion/ntkv4mb/
 
-Media ecology of second-screen audiences. I expect once it is all over, many people will binge-watch and skip huge parts. Some may even turn to feed it into ChatGPT and ask for 10 minute versions of episodes. People may very well cram the entire 13 episodes into something like 85 minutes https://www.slashfilm.com/520125/topher-grace-edited-star-wars-prequels-85minute-movie/
+Media ecology of second-screen audiences. I expect once it is all over, many people will binge-watch and skip huge parts. Some may even turn to feed it into ChatGPT and ask for 10 minute versions of episodes. People may very well cram the entire 13 episodes into something like 85 minutes https://www.slashfilm.com/520125/topher-grace-edited-star-wars-prequels-85minute-movie/ - Who Watches the Watchers of a TV show, media ecology...
+
