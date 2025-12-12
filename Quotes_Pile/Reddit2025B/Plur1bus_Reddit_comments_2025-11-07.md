@@ -1545,3 +1545,6 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pkeywi/pluribus_1x07_the_gap_
 
 My reply: What does this mean? You a Reddit hive minded person commanding free thinkers with messages like the hive mind is programming television and radio against Elvis fans at West Gate and Carol? February 7, 2013 - over a decade ago https://old.reddit.com/r/psychology/comments/181smu/is_the_reddit_hive_mind_wrong_about_video_games/
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pkrjct/episode_7_carol_singing_hive_mind_songs/ntnndt7/
+
+Extremely over-confident Reddit meme fandom of Breaking Bad Walter White and Saul that greak out about book author Carl and book publisher Helen and book tour ideas.
