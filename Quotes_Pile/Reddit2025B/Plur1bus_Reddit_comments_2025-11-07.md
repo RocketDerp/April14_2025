@@ -1609,4 +1609,15 @@ My reply to this comment, emphasizing Finnegans Wake and Carol being the ONLY ON
 
 I've **been relucant to write it**, but now that I have introduced the idea of "probing commands" to the hive mind about the gas station drone drink delivery coldness. Probing for a hotel room at West Gate and saying it was only sarcasm (the whole issue of "sarcasm" over the loaded weapon home delivery murder/suicide of a Islamic Africa immigrant)... "Butt-pirate" is assoicated with homosexual sex. And popular science fiction film (R rated) with pirate-leg "pegging" https://www.refinery29.com/en-us/2016/02/102804/ryan-reynolds-deadpool-review-full-frontal-nudity - so "pegging" / "peg leg" pirates and metaphors of "butt pirates" for anal sex. Which leads to **alien invasion stories** about probing the Human Body. Like probing for *stem cells* inside the body causing pain discussed in Episode Six. So now Episode Seven - Carol is probing hostility towards commandments on precise cold drink delivery. She is probing... "butt-priate" / Peg leg / Pirate Lady / Carol being a Pirate story creator. Aleins doing anal probes. Young CHILDREN getting anal probes is USA headline / title: https://en.wikipedia.org/wiki/Cartman_Gets_an_Anal_Probe
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pkp33v/i_feel_vindicated/ntoforh/
+
+And now at this time of this reply... Reddit owners suspended me site-wide for 7 days. Not a subreddit, but entire site. These attacks on me for discussing media ecology of MAGA "ICE" raids and piracy metaphors. 
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pkc2sq/episode_6_titled_hdp_carol_says_pluck_hdp_helen/ntk9eyo/
+
+The NEW reddit code now removes your offeding post. I have no idea what the comment was. <img width="2316" height="1172" alt="image" src="https://github.com/user-attachments/assets/0ca25500-593e-4a30-ab97-7d078b9b70ba" /> I expect it is standing up to bully accounts without using the secret Reddit admin police instead. I want the bully issues PUBLIC, not hidden away on Reddit. It's active measures. I see a parallel reply of mine. Next link:
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pkc2sq/episode_6_titled_hdp_carol_says_pluck_hdp_helen/ntka4ft/
+
+"You’re just posting a lot, and it looks like word salad bot activity, or someone having a tough time mentally. If you need any help, just say so. Otherwise, relax on the pattern matching." from the 7-day new account. Yep, active measures, bran new Reddit account got me site-wide banned. https://old.reddit.com/user/Same_Bike_4497 commandingme to 'relax" on pattern matching the show to Finnegans Wake. Coded messages. These guys have Reddit wrapped around their finger with the report button. "Note: This content was flagged by Reddit's automated systems. This decision was made using automation." these active measures attackers NOW how to trigger the automated system.
 
