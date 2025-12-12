@@ -1461,3 +1461,8 @@ Minute 22 of Episode One. Listen close. There is even tapping on the microphone.
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pkc2sq/episode_6_titled_hdp_carol_says_pluck_hdp_helen/ntk7kpu/
 
 Alraedy reported me to the moderators, like calling I.C.E. on immigrants for "speak American" dumb memes.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pkc2sq/episode_6_titled_hdp_carol_says_pluck_hdp_helen/ntkf3kw/
+
+Trump is the gold standard of intelligence to USA / Americans / Pluribus society 2025.  Yes, and the same Reddit-using people can't criticize the behavior of Walter White, Teacher and educator of youth. And can't criticize the leader of their nation for his wild ideas and theories of economics.
+
