@@ -1517,3 +1517,6 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pkeywi/pluribus_1x07_the_gap_
 
 Vince Gilligan's WGA speech at the start of the year was pretty direct: People who think it is sexy and exciting to have bad guys like Saul and Walter White and are copying the behavior. https://deadline.com/2025/02/vince-gilligan-wga-award-speech-1236291243/
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pimwsn/one_assumed_but_not_necessarily_true_detail_about/ntn2ehd/
+
+<img width="1626" height="576" alt="image" src="https://github.com/user-attachments/assets/8b32f9fc-0f62-4cae-8016-0a677e1662cd" /> The agressive hostility of MAGA Americans in December 2025 when the topic of immigration and women's right to choose over rape and borth. Hostile people, male agression over TV show.
