@@ -1584,4 +1584,4 @@ My reply - I'm surprised Reddit didn't black-hole censor it.
 
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pkrjct/episode_7_carol_singing_hive_mind_songs/nto0jv3/
 
-Machine lovers who message yuu, block you so you can't reply, on Ted Talk about the show. Mock and block warfare tactic. Insult you, won't let you reply tactic.
+Machine lovers who message yuu, block you so you can't reply, on Ted Talk about the show. Mock and block warfare tactic. Insult you, won't let you reply tactic. My blocked reply: "You announcing your departure like the Hive Mind does in ABQ to Carol and all the voice mail greetings."
