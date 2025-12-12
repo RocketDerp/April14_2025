@@ -337,3 +337,11 @@ Friday December 12, 2025 afternoon
 https://old.reddit.com/r/AdviceAnimals/comments/1pkxreg/scumbagarella/
 
 Front page of Reddit. South Park, simulating South Park "winning" over MAGA / Trump Fox News entertainment. By mocking and entertaining additions to Fox News entertaining. Constnatly mockery-washing Trump as a source of South Park and other stories. How does this in any way address the sustained pattern of falsehoods, fiction? Adding more fiction has been the path sine June 16, 2015 regarding MAGA. The abandonment of serious non-fiction leadership gets worse every day for over a decade. I've brought up a "top 10 list" of subjects to face on and have intelligent discourse, but that just does not rise with enough people.
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1pkub1v/sorry_but_you_had_to_be_an_idiot_to_believe_trump/
+
+Hunreds of millions of people are attracted to and believe Trump. It's not somee short heeat-of-the-moment attraction, it grows and grows with time. People want to be abused by white men. People are copying the abuse, in every area of society. Seeing the power and money that comes from Trump's methods. It isn't a fire that burned itself out, it's been over a decade of people not addressing that name calling idiot isn't enough. Why since year 2012 and year 2013 do people think Mallaa's books and speches about educaiton and learning don't matter? People don't even give the idea dicusion or lip service. People are so competitive over "idiot", "dumb, "stupid" - they want it arund as proof of their intelligence. I WANT TO ADDRESSS the education and understanding issues. USA is nothing like year 2012 and earlier, it's name-calling day after day afer day. Dentia Don, yes - how about we find some 38 year old honest person, are thre none left in USA?
