@@ -1621,3 +1621,6 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pkc2sq/episode_6_titled_hdp_c
 
 "You’re just posting a lot, and it looks like word salad bot activity, or someone having a tough time mentally. If you need any help, just say so. Otherwise, relax on the pattern matching." from the 7-day new account. Yep, active measures, bran new Reddit account got me site-wide banned. https://old.reddit.com/user/Same_Bike_4497 commandingme to 'relax" on pattern matching the show to Finnegans Wake. Coded messages. These guys have Reddit wrapped around their finger with the report button. "Note: This content was flagged by Reddit's automated systems. This decision was made using automation." these active measures attackers NOW how to trigger the automated system.
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pkrjct/episode_7_carol_singing_hive_mind_songs/ntp6t33/
+
+Doesn't think Elon Musk manipulates peopel, or Fox News, or advertising or marketing. Explains a lot of MAGA USA 2025 - Breaking Bad / Saul fandom.
