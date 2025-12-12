@@ -1513,3 +1513,7 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pkeywi/pluribus_1x07_the_gap_
 
 A person who thinks skipping fast-forward is a *good idea* in Church for Christmas spirit lessons.
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pkeywi/pluribus_1x07_the_gap_episode_discussion/ntlwyev/
+
+Vince Gilligan's WGA speech at the start of the year was pretty direct: People who think it is sexy and exciting to have bad guys like Saul and Walter White and are copying the behavior. https://deadline.com/2025/02/vince-gilligan-wga-award-speech-1236291243/
+
