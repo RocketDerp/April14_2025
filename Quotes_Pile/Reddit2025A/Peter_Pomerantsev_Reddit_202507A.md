@@ -1657,3 +1657,12 @@ Unions have been manipulated by the IRA and CA since March 2013. Deep mind-fucki
 https://old.reddit.com/r/BaldursGate3/comments/1pgri08/people_accusing_me_of_posting_ai_so_here_is_my/
 
 Peter P. TOLD US the menace of unreality / anti-reality warfare. September 9, 2014: https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+&nbsp;
+
+# Firday December 12, 2025
+
+https://old.reddit.com/r/pics/comments/1pks9yo/zelenskyy_taking_a_selfie_in_kupiansk_city_after/
+
+What better Peter P learning about the "War Against Reality" that started March 2013 before February 2014 Ukraine invasion.
+
