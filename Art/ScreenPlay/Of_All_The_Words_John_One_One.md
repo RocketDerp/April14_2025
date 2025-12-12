@@ -95,3 +95,12 @@ God is our education, our input, our senses, our hearing, our reading, our seein
 
 * "The first principle of value that we need to rediscover is this: that all reality hinges on moral foundations. In other words, that this is a moral universe, and that there are moral laws of the universe just as abiding as the physical laws. I'm not so sure we all believe that."
 
+&nbsp;
+
+# How do you use words?
+
+https://youtu.be/Rnpozvy2gSQ?t=6950
+
+The technology words - people  and health care in USA. The glee Fox News HDTV audiences cheer on suffering based on gender / liberal vs. conservative / outside nation / outside relition.
+
+HOw do you use John One One. Beyond words.
