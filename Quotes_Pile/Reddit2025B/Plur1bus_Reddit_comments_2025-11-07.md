@@ -1589,3 +1589,8 @@ Machine lovers who message yuu, block you so you can't reply, on Ted Talk about 
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pkrjct/episode_7_carol_singing_hive_mind_songs/nto1ywb/
 
 Insincere Walter White and Saul manipulators.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pkrjct/episode_7_carol_singing_hive_mind_songs/nto59ry/
+
+<img width="2222" height="764" alt="image" src="https://github.com/user-attachments/assets/77383796-d471-439e-aa83-1b9f9bb93890" /> These attackers use tiny-short messages that get past the context filters (censorshp) of reddit. My reply gets censored.
+
