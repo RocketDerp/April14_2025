@@ -1447,3 +1447,8 @@ Domestic inner reaches, the Christmas season ending story. Romans 11:32 - WHO is
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pkc2sq/episode_6_titled_hdp_carol_says_pluck_hdp_helen/ntkd2zn/
 
 Reddit addicts only want to talk about Reddit and their comment has zero to do with the apple-plucking topic of Episode Six that was posted. Just fixated on Reddit and can't read books.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pkc2sq/episode_6_titled_hdp_carol_says_pluck_hdp_helen/ntkf9ei/
+
+Can't quote one single error or mistake (of which there are several). But can thorw shade with low-effort commetning of Reddit hive-mind shit-talking Twitter-thinking.
+
