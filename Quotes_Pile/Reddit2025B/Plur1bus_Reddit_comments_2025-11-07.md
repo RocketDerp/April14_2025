@@ -1452,3 +1452,8 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pkc2sq/episode_6_titled_hdp_c
 
 Can't quote one single error or mistake (of which there are several). But can thorw shade with low-effort commetning of Reddit hive-mind shit-talking Twitter-thinking.
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pkc2sq/episode_6_titled_hdp_carol_says_pluck_hdp_helen/ntkg33o/
+
+My reply: All you can talk about is your personal egoism. None of what you said has a thing to do with the apple tree plucking that is in Episode Six. A full week ago. You just comment and message about your self, not about Vince Gilligan, Joseph Campbell, the show characters and "HDP" from not being willing to pluck an apple off the Tree Of Knowledge, Post-doctorate post-doc education of Helen.
+
+Minute 22 of Episode One. Listen close. There is even tapping on the microphone.
