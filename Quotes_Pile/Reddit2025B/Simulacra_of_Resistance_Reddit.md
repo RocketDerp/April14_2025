@@ -332,7 +332,7 @@ This is just simple little looping of "God did it", "Cult did it" back and forth
 
 &nbsp;
 
-Friday Decembe 12, 2025 afternoon
+Friday December 12, 2025 afternoon
 
 https://old.reddit.com/r/AdviceAnimals/comments/1pkxreg/scumbagarella/
 
