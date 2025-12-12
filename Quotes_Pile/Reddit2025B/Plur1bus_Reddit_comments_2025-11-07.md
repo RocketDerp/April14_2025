@@ -1479,3 +1479,6 @@ https://old.reddit.com/r/okbuddypluribus/comments/1pkdtxn/guys_get_in_here_befor
 
 Reply: "It is you that can't get over someone quoting things with citations. A show about intelligent women brings this kind of Eve apple attacking from Walter White and Saul fandoms. Your reply comment message has nothing to do with the Pluribus TV show, the Helen post-doctorate topic, etc. You are just here to create noise and be anti-intellectual against a woman having doctorate education. USA 2025, women are under attack by Musk Twitter / Truth Social, etc. Walter White types of men aggressive and attacking the idea of Eve plucking the apple from a fruit tree."
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pkcupb/the_hive_wouldnt_care/ntkmeel/
+
+December 2025: Role model of Donald Trump USA egoism, egomania raging Musk is the Walter White "science man, oh yha!" leader of fandoms of Saul and Breaking Bad.
