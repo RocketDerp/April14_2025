@@ -1501,3 +1501,6 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pkc2sq/episode_6_titled_hdp_c
 
 Can't engage anything non-fiction serious, on a posting about post-doctorae learning by Helen... Walter White mad sciene thrills audiences and Saul audiences engage for mockery-washing of RFK Jr science in the real world.
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pkeywi/pluribus_1x07_the_gap_episode_discussion/ntkv4mb/
+
+Media ecology of second-screen audiences. I expect once it is all over, many people will binge-watch and skip huge parts. Some may even turn to feed it into ChatGPT and ask for 10 minute versions of episodes. People may very well cram the entire 13 episodes into something like 85 minutes https://www.slashfilm.com/520125/topher-grace-edited-star-wars-prequels-85minute-movie/
