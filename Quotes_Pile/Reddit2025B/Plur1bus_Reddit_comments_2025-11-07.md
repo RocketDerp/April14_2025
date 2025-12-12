@@ -1540,3 +1540,8 @@ The hive mind is programming her / puppeting her brain with media content. Influ
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pkeywi/pluribus_1x07_the_gap_episode_discussion/ntnk83k/
 
 James Joyce's 1923 Finn's Hotel is generations ahead of where we are now. This 1968 book, LONG after 1923 Finn's Hotel... explains. https://en.wikipedia.org/wiki/War_and_Peace_in_the_Global_Village
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pkeywi/pluribus_1x07_the_gap_episode_discussion/ntnnk3h/
+
+My reply: What does this mean? You a Reddit hive minded person commanding free thinkers with messages like the hive mind is programming television and radio against Elvis fans at West Gate and Carol? February 7, 2013 - over a decade ago https://old.reddit.com/r/psychology/comments/181smu/is_the_reddit_hive_mind_wrong_about_video_games/
+
