@@ -1495,3 +1495,9 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pkc2sq/episode_6_titled_hdp_c
 
 Reddit know-it-alls that claim their brain is a hive mind of all-knowing intelligence that when you quote a book or a source, claims they already knew it all along. They alraedy knew: Lecture I.1.2 - The Individual in Oriental Mythology By Joseph Campbell Date: February 20, 1961 ....
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pkc2sq/episode_6_titled_hdp_carol_says_pluck_hdp_helen/ntkrqmp/
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pkc2sq/episode_6_titled_hdp_carol_says_pluck_hdp_helen/ntkspjs/
+
+Can't engage anything non-fiction serious, on a posting about post-doctorae learning by Helen... Walter White mad sciene thrills audiences and Saul audiences engage for mockery-washing of RFK Jr science in the real world.
+
