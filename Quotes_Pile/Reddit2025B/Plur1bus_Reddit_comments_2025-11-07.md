@@ -1482,3 +1482,7 @@ Reply: "It is you that can't get over someone quoting things with citations. A s
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pkcupb/the_hive_wouldnt_care/ntkmeel/
 
 December 2025: Role model of Donald Trump USA egoism, egomania raging Musk is the Walter White "science man, oh yha!" leader of fandoms of Saul and Breaking Bad.
+
+https://old.reddit.com/r/okbuddypluribus/comments/1pkdtxn/guys_get_in_here_before_the_smart_persons_post/ntkngix/
+
+RFK Jr. running CDC science spreading measles with entertainment mocking is thrilling to Reddit audiences. Can't take serious topics of education and USA Science Teacher Walter White (role model, like RFK Jr in reality) metaphors seriously.
