@@ -1625,3 +1625,9 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pkrjct/episode_7_carol_singin
 
 Doesn't think Elon Musk manipulates peopel, or Fox News, or advertising or marketing. Explains a lot of MAGA USA 2025 - Breaking Bad / Saul fandom. More to the direct point of Great Seal PLuribus meaning... have the same religion and can't translate to another religion. Watch the same religion science fiction shows / televagelism hive mind.
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pkc2sq/episode_6_titled_hdp_carol_says_pluck_hdp_helen/ntq3mzi/
+
+<img width="1802" height="1000" alt="image" src="https://github.com/user-attachments/assets/0abe6fa8-3671-4622-93a0-0239be03c27e" /> This is the fandom. Claims the never messaged, on a phone appp not able to see the 3 message context on a tiny device screen. Mocking LOL at people, USA favorite from year 2024 election "wierdo", https://www.vox.com/politics/458025/trump-new-right-claremont-integralists-maga-laura-field And the reply message does not discuss the apple-plucking topic in Episode 6 of the show. Gatekeeping replies just to drive people off that post serious topics (1961 lecture behind paywall).Note the elapsed 20 hours of time, reply fixated on just the comment, not the posting and previous messages from 20 hours earlier. Context bewilderment.
+
+
+
