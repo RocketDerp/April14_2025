@@ -1623,4 +1623,5 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pkc2sq/episode_6_titled_hdp_c
 
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pkrjct/episode_7_carol_singing_hive_mind_songs/ntp6t33/
 
-Doesn't think Elon Musk manipulates peopel, or Fox News, or advertising or marketing. Explains a lot of MAGA USA 2025 - Breaking Bad / Saul fandom.
+Doesn't think Elon Musk manipulates peopel, or Fox News, or advertising or marketing. Explains a lot of MAGA USA 2025 - Breaking Bad / Saul fandom. More to the direct point of Great Seal PLuribus meaning... have the same religion and can't translate to another religion. Watch the same religion science fiction shows / televagelism hive mind.
+
