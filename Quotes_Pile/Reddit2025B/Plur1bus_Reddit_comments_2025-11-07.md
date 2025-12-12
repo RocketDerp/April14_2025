@@ -1431,3 +1431,8 @@ Anti-intellectuals who hate NYC university quotes.
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pkc2sq/episode_6_titled_hdp_carol_says_pluck_hdp_helen/ntk59x3/
 
 Someone gets the Great Seal metaphors
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pk9d2a/episode_7_preview/ntk7j5p/?context=3
+
+Hive mind counting upvoters of conformity.
+
