@@ -8,6 +8,6 @@ https://old.reddit.com/r/cats/comments/1pl1j5f/my_cat_got_crazy_and_bit_me_like_
 
 2. Brain chemistry and behavior changed for long period of time.
 
-This is the kind of long-term pandemic trama, Fox News audience, Islamic terrorism clergy / expeiences - people can't seem to discuss other than in flippiant dismissive trivialiing ways.
+This is the kind of long-term pandemic trauma, Fox News audience, Islamic terrorism clergy / expeiences - people can't seem to discuss other than in flippiant dismissive trivialiing ways.
 
 WHY people over-eat, alocohol, drug use, the underlying mind changes
