@@ -1439,3 +1439,7 @@ Hive mind counting upvoters of conformity.
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pkc2sq/episode_6_titled_hdp_carol_says_pluck_hdp_helen/ntk8qpc/
 
 Language gate-keeping Reddit MAGA USA 2025, Trumpland USA December 2025 after soaking in Trumpism Fox News Nation for 11 months.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pkcupb/the_hive_wouldnt_care/ntk5mqd/
+
+Domestic inner reaches, the Christmas season ending story. Romans 11:32 - WHO is the source of sin again, is Eden forcing sin upon Earthlings? ;)
