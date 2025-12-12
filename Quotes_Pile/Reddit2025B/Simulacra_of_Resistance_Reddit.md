@@ -327,3 +327,13 @@ Tha'ts the simulacra. Cult vs. cult. Thought-ending phrase. https://en.wikipedia
 ABSENT: is serious lengthy quotes and Wiki about MAGA cult characteristics. Fox News HTV cult. Jen Senko's 2015 / year 2016 film: https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad an organized Wiki with citations quotes of rael USA family members, quotes about cult issues.
 
 This is just simple little looping of "God did it", "Cult did it" back and forth.
+
+&nbsp;
+
+&nbsp;
+
+Friday Decembe 12, 2025 afternoon
+
+https://old.reddit.com/r/AdviceAnimals/comments/1pkxreg/scumbagarella/
+
+Front page of Reddit. South Park, simulating South Park "winning" over MAGA / Trump Fox News entertainment. By mocking and entertaining additions to Fox News entertaining. Constnatly mockery-washing Trump as a source of South Park and other stories. How does this in any way address the sustained pattern of falsehoods, fiction? Adding more fiction has been the path sine June 16, 2015 regarding MAGA. The abandonment of serious non-fiction leadership gets worse every day for over a decade. I've brought up a "top 10 list" of subjects to face on and have intelligent discourse, but that just does not rise with enough people.
