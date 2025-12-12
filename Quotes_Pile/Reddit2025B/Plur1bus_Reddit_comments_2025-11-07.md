@@ -1423,3 +1423,11 @@ EXACTLY! People here give far too much credit to ChatGPT and can't fathom "Turin
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pkc2sq/episode_6_titled_hdp_carol_says_pluck_hdp_helen/ntk2dhe/
 
 Why? So agressive. Gate-keeping 6-day old Reddit account.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pkc2sq/episode_6_titled_hdp_carol_says_pluck_hdp_helen/ntk5ui6/
+
+Anti-intellectuals who hate NYC university quotes.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pkc2sq/episode_6_titled_hdp_carol_says_pluck_hdp_helen/ntk59x3/
+
+Someone gets the Great Seal metaphors
