@@ -1486,3 +1486,8 @@ December 2025: Role model of Donald Trump USA egoism, egomania raging Musk is th
 https://old.reddit.com/r/okbuddypluribus/comments/1pkdtxn/guys_get_in_here_before_the_smart_persons_post/ntkngix/
 
 RFK Jr. running CDC science spreading measles with entertainment mocking is thrilling to Reddit audiences. Can't take serious topics of education and USA Science Teacher Walter White (role model, like RFK Jr in reality) metaphors seriously.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pkc2sq/episode_6_titled_hdp_carol_says_pluck_hdp_helen/ntko1bl/
+
+My reply to an off-topic mocking of me that's gone on, cyber-stalker on Reddit after me: You are mentally fixated on a person that you find unique and creative. You are having mental problems fixation. Proposing marriage weddings to me and not discussing a TV show, you are fixated on a real human that you have dehumanized into your object of kidnapping and marriage. You are a sex pest. You mentally can't tell your fantasy is bad, and using it to fixate on a real person because machine media / hyper reality of television and Reddit meme touch devices stimulate into super-fantasy / hyper-fantasy.
+
