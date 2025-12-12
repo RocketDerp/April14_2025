@@ -1564,3 +1564,10 @@ Here is the key: They can't engage the Ted Talk from Nina Paley. They can't say 
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pkeywi/pluribus_1x07_the_gap_episode_discussion/ntnwru5/
 
 The minds are so blown on Reddit, they can't tell LLM hive mind, bot meme-speak stupors. My reply (that Reddit censored): "You flunk the Turning Test and you suffer from extreme low literacy. "The ELIZA effect", seek treatment from MIT university."
+
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pkrjct/episode_7_carol_singing_hive_mind_songs/ntnw8sl/
+
+<img width="1182" height="1358" alt="image" src="https://github.com/user-attachments/assets/5a147ec1-6073-4132-8df6-9d59bbd2379b" /> More attacks personal. Over TV show. <img width="1640" height="1324" alt="image" src="https://github.com/user-attachments/assets/c6b56bee-12f5-42f9-bd72-e7ad36db4d43" />
+
+
