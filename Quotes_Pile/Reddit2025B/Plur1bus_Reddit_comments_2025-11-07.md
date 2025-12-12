@@ -1436,3 +1436,6 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pk9d2a/episode_7_preview/ntk7
 
 Hive mind counting upvoters of conformity.
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pkc2sq/episode_6_titled_hdp_carol_says_pluck_hdp_helen/ntk8qpc/
+
+Language gate-keeping Reddit MAGA USA 2025, Trumpland USA December 2025 after soaking in Trumpism Fox News Nation for 11 months.
