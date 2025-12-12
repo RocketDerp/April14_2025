@@ -1578,3 +1578,6 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pkrjct/episode_7_carol_singin
 
 MAGA usa Reddit users December 2025. See: September 16, 2020 The Atlantic By Megan Garber  https://www.theatlantic.com/culture/archive/2020/09/fox-news-trump-language-stelter-hoax/616309/
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pkrjct/episode_7_carol_singing_hive_mind_songs/nto0222/
+
+My reply - I'm surprised Reddit didn't black-hole censor it.
