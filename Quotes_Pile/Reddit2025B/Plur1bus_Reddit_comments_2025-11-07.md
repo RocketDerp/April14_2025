@@ -1530,3 +1530,10 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pkeywi/pluribus_1x07_the_gap_
 So many youth these days can't read long-form content. They have to feed entire PDF files and books into ChatGPT and cram it down into one-line Twitter-length. Elon Musk is the pied piper of GrokAI doing the same.
 
 Keyboarding is disappearing, iPad and iPhone don't have 10-finger keyboard for most people / typewriter gone. And people no longer want books in any way, they want Tweets.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pkrjct/episode_7_carol_singing_hive_mind_songs/ntnjuwr/
+
+In the hospital scene when she first steals the police car and drives it likes she stole it, the hive mind talks to her through the radio.
+
+The hive mind is programming her / puppeting her brain with media content. Influencing her. She and the Elvis fan are puppets on a string. OPERA_A Kepler-22 B signals like the milk carton seeking, Earth is a puppet https://www.youtube.com/watch?v=cfm4L0TGDrw&t=173s
+
