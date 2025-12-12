@@ -58,3 +58,9 @@ https://old.reddit.com/r/europe/comments/1pjzz27/leaked_files_show_us_wants_to_p
 https://old.reddit.com/r/europe/comments/1pjzz27/leaked_files_show_us_wants_to_persuade_four/nthebgt/
 
 <img width="916" height="246" alt="image" src="https://github.com/user-attachments/assets/f114b99d-f39d-41ea-8bb7-6db530281443" /> I woke up into a nightmare. Now the die is cast, my friend. Christ, what a mess.
+
+
+https://old.reddit.com/r/tf2/comments/1pkzmvw/someone_spent_money_on_this/ntotsvi/
+
+Trump content, the name Trump, blows minds. It never ends!
+
