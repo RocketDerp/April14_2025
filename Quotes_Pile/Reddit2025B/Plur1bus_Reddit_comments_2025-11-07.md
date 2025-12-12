@@ -1537,3 +1537,6 @@ In the hospital scene when she first steals the police car and drives it likes s
 
 The hive mind is programming her / puppeting her brain with media content. Influencing her. She and the Elvis fan are puppets on a string. OPERA_A Kepler-22 B signals like the milk carton seeking, Earth is a puppet https://www.youtube.com/watch?v=cfm4L0TGDrw&t=173s
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pkeywi/pluribus_1x07_the_gap_episode_discussion/ntnk83k/
+
+James Joyce's 1923 Finn's Hotel is generations ahead of where we are now. This 1968 book, LONG after 1923 Finn's Hotel... explains. https://en.wikipedia.org/wiki/War_and_Peace_in_the_Global_Village
