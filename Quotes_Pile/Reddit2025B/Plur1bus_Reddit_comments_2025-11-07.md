@@ -1574,3 +1574,7 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pkrjct/episode_7_carol_singin
 
 <img width="1756" height="1396" alt="image" src="https://github.com/user-attachments/assets/a1f80611-785e-4856-94c2-6b0c3ed03a74" /> They diagnose me in public on Reddit, I say I am diagnonsed with "HyperLexia" - and then they run away like a coward. Attacking but won't listen to the response of "HyperLexia".
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pkrjct/episode_7_carol_singing_hive_mind_songs/ntnywer/
+
+MAGA usa Reddit users December 2025. See: September 16, 2020 The Atlantic By Megan Garber  https://www.theatlantic.com/culture/archive/2020/09/fox-news-trump-language-stelter-hoax/616309/
+
