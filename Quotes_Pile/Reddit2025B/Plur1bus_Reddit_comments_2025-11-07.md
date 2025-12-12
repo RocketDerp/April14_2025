@@ -1594,3 +1594,6 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pkrjct/episode_7_carol_singin
 
 <img width="2222" height="764" alt="image" src="https://github.com/user-attachments/assets/77383796-d471-439e-aa83-1b9f9bb93890" /> These attackers use tiny-short messages that get past the context filters (censorshp) of reddit. My reply gets censored.
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pkp33v/i_feel_vindicated/nto9nmu/
+
+My comment, my message. 
