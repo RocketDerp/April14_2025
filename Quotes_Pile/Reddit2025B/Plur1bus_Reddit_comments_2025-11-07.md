@@ -1556,3 +1556,7 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pkeywi/pluribus_1x07_the_gap_
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pkrjct/episode_7_carol_singing_hive_mind_songs/ntnt0a2/
 
 Reddit never published my reply to this message, censored. Documented elsewhere in this very github.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pkeywi/pluribus_1x07_the_gap_episode_discussion/ntnvu2m/
+
+Here is the key: They can't engage the Ted Talk from Nina Paley. They can't say a word about it on Reddit. They can't discuss Howard Bloom's writing. They FIXATE on Reddit and ONLY reddit. Addiction to high-speed TCP/IP messages.
