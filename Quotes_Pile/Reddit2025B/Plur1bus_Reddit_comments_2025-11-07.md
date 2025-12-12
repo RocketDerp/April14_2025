@@ -1553,3 +1553,6 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pkeywi/pluribus_1x07_the_gap_
 
 <img width="2526" height="1478" alt="image" src="https://github.com/user-attachments/assets/50f25890-baf6-4eaf-91c9-43bc1cb32278" /> I'm not smoking anything.  Are you a Walter White blue meth user who can't think outside the box? you can't read between the lines? Are you a square like Charlie Brown is a square that Lucky runs circles around with the football? OPER_A If you have such problems with Unicode messages on Reddit and comprehending them, why don't you try song lyrics? https://www.youtube.com/watch?v=aRsEYUAfk3E
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pkrjct/episode_7_carol_singing_hive_mind_songs/ntnt0a2/
+
+Reddit never published my reply to this message, censored. Documented elsewhere in this very github.
