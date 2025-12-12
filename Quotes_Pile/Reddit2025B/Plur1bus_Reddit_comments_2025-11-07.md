@@ -1519,4 +1519,4 @@ Vince Gilligan's WGA speech at the start of the year was pretty direct: People w
 
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pimwsn/one_assumed_but_not_necessarily_true_detail_about/ntn2ehd/
 
-<img width="1626" height="576" alt="image" src="https://github.com/user-attachments/assets/8b32f9fc-0f62-4cae-8016-0a677e1662cd" /> The agressive hostility of MAGA Americans in December 2025 when the topic of immigration and women's right to choose over rape and borth. Hostile people, male agression over TV show.
+<img width="1626" height="576" alt="image" src="https://github.com/user-attachments/assets/8b32f9fc-0f62-4cae-8016-0a677e1662cd" /> The agressive hostility of MAGA Americans in December 2025 when the topic of immigration and women's right to choose over rape and birth / Carol's egg fertilization source themes. Pro-choice. Hostile people, male agression over TV show.
