@@ -100,3 +100,9 @@ I have followed Mo Gawdat seriously the past 3 years. He is INCIREDBLY excited a
 
 I think what people are DOING with each other on the Internet is horrible, people trying to exploit people. or doing it out of Eternal September behaviors. But the A.I. system I am in no way dismissing our discounting. The money has spent, and the talent of people trying to make it work is very high. 
 
+# This shit
+
+<img width="81" height="81" alt="Screenshot from 2025-12-12 21-20-30" src="https://github.com/user-attachments/assets/5fec0fab-4e9d-4831-a7a8-9bd7897f8c43" />
+
+"ARE YOU HGIH" - earlier in the video he SAYS he gets manic / bi-polar.
+
