@@ -40,3 +40,8 @@ The hope was for hate of the targeted people. The hope during the Arab Spring wa
 
 God I find it so difficult in writing this message
 
+Pluribus is great, but the society is "cooked" as peole use the term. The enshitification of attitudes and disapeparing messages. I see EXCELLENT organized videos about Pluribus on YouTube... but youtube commenting has way too many disappearing messages and extreme low-effort comments. Reddit now has disappapering messages and people are so anti-book (at least on YouTube there is one book writer making videos about Pluribus, and I expect more - but it was not hard to find - on Reddit, it's so agressive about being against James Joyce / Joseph Campbell / Marshall McLuhan / Neil Postman ).
+
+Pluribus is still the best thing to come along, but it's very alarmiing how it looks like Trump is going to be removed not for seeding hate all over the world, the rejection of hate, but his divorces / sex life / economic prices. I really hope GOODNESS age 40 people rise up and become young Bernie Sanders and Malala in addressing ALL HATE, icnluding hate of Trump fueling the bonfires of reacctionary pro-Russia mindsets.
+
+god, this can't be written
