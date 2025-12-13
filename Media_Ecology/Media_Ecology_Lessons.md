@@ -1334,3 +1334,15 @@ https://news.artnet.com/art-world/jim-carrey-done-painting-political-cartoons-no
 "I don't know who they're trying to convince us that is, but that's definitely not Jim Carrey." concerns of audience.
 
 https://www.yahoo.com/entertainment/celebrity/articles/jim-carrey-sets-tongues-wagging-001542883.html
+
+&nbsp;
+
+# China Only Fans
+
+China society has caught up to the USA originated Internet media ecology.
+
+https://old.reddit.com/r/SipsTea/comments/1pljuoh/china_bans_onlyfans/
+
+Topics: Economics of women. Building a popularity career / brand / name fame with good looks using own self without joining a modeling agency or having an "agent" run branding. Decling birth rates but over-consumption of humanism. "The West" media or "The West" sex (or has the cology of media made "The West" so engtagled in remote image delivery systems like Only Fans and Reddit front page /r/All pussy-kkitten image fandoms). Is there a crackdown on phycial in-person sex work? Modeling work? 
+
+Machine generate images by artificial intelligence repalcing human persons showing human flesh.  Is this china's Generative A.I. Industry push against "The West" humanism, in favor of machines in year 2026? https://themesetfs.com/insights/inside-chinas-ambitions-of-a-38-billion-generative-ai-industry
