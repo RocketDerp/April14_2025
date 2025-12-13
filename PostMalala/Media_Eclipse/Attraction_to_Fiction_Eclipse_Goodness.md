@@ -4,6 +4,14 @@ This is probably one of the most difficult messages I have ever created.
 
 Since I predicted the Arab Spring on December 16, 2009 - and traveled to Algeria at the start of December 2010 - I have been focused on media ecology.
 
+# Sexy Bad Guys
+
+https://www.usatoday.com/story/entertainment/tv/2025/02/16/breaking-bad-creator-vince-gilligan-bad-guys/78856929007/
+
+USA Today.  'Breaking Bad' creator fears Hollywood has glamorized bad guys: 'They become aspirational'
+
+That's exactly what I have witnessed, experienced, seen since January 2014 onward.
+
 But am facing repeat experience with:
 
 1. Enshitification https://en.wikipedia.org/wiki/Enshittification
