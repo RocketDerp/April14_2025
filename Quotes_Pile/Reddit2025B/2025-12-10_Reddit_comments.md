@@ -118,3 +118,13 @@ I get called "Shitzo" and mocked all over Reddit. And people want secret police 
 https://old.reddit.com/r/notinteresting/comments/1pl4dly/what_do_i_do_in_this_situation/ntr4c73/
 
 Media ecology of taking a photo then screen-shot of it.
+
+https://old.reddit.com/r/mildlyinfuriating/comments/1plfkrz/my_13yo_brother_wont_stop_using_these_slangs/nts7iap/
+
+Age 13, raised under Donald Trump. Meme-speak "isn’t an option lmaooo" - machine lovers of touch devices and Reddit dehumanization power both. MAGA USA 2025 alnguage leadership by Fox News parenting / Donald Trump Truth Social message content as power and cool. And the kids have power, they are NOT alright being lead by Fox News Language since June 16, 2015. https://www.theatlantic.com/culture/archive/2020/09/fox-news-trump-language-stelter-hoax/616309/
+
+https://old.reddit.com/r/mildlyinfuriating/comments/1plfkrz/my_13yo_brother_wont_stop_using_these_slangs/nts4ub9/
+
+<img width="1046" height="474" alt="image" src="https://github.com/user-attachments/assets/c51588ef-f8dc-4020-a09f-735e743583cd" /> Reading messages on Reddit causes audience memebers to feel like their brain had a stroke. A stroke of anti-gusiness of 13 years a child living under Trump parenting USA. LISTEN to what this Reddit user is saying: reading a combination of words on a touch device screen makes their brain go into "stroke" patterns. This is what MAGA USA is driven by, Trump's distinctive language, Fox News dictinctive language. These meme device users are consuming this non-stop and parroting it / repeating it nonstop on meme mills. Read this articile in The Atlantic about what parents have made a leader of society with, Rupert Murodch, Putin, Donald Trump, Elon Musk parenting. https://www.theatlantic.com/culture/archive/2020/09/fox-news-trump-language-stelter-hoax/616309/ Infinite jest Mechanis. Surkovian assult on hearts and *minds* into stroke states. We are a nation, a state, of brain-stroke attraction to "attractive neusance" of Fox News Murdoch, Truth Social Trump parenting! It'is so deep into USA MAGA minds / mindsets! Putin won, Surkov won, since March 2013 :( https://bsky.app/profile/roundsparrow.bsky.social/post/3m7umpy24qk2b https://autistics.life/@RoundSparrow/115712300434641886
+
+
