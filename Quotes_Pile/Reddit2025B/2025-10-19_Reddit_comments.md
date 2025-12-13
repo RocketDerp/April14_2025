@@ -3681,14 +3681,3 @@ https://old.reddit.com/r/shittymoviedetails/comments/1olbzai/in_hocus_pocus_1993
 Shallow, suprficial, mocking is prized. "Hot" rules people into Donald Trump leadership of society. ... ... ...          
 "If I were running 'The View,' I'd fire Rosie O'Donnell. I mean, I'd look at her right in that **fat, ugly face** of hers, I'd say, 'Rosie, you're fired.'" - year 2006. This kind of mindset is what attracted people to Donald J. Trump, "hot or not" binary logic. https://theweek.com/politics/things-donald-trump-has-said-about-women
 
-https://old.reddit.com/r/Pluribus_TVshow/comments/1pkrjct/episode_7_carol_singing_hive_mind_songs/ntqi9py/
-
-I clipped 1 minute from a full Ted Talk, and people on Reddit can't even respond to the one single minute. Deflecting wiht questions. As if nobody has ever witnessed someone who sings in the car and finds the scene relatable. The ability to get people to focus on media ecology of the real non-fiction USA nation is impossible. Nina Paley in year 2015 isn't about my personal singing or carol's. It is about the thoughts and ideas programmed into the mind the title of "Brain Damage" to Nina Paley's lectur. As in "hive mind" virus. People can not read between the lines of these topics applying to { MAGA, Donald Trump, Elon Musk, Rupert Murdoch } power over society. Trump is so normal to a media addiction society that mocks teachers like Carl Sagan over bad-ass cience teacher Walter White fiction (with RFK Jr, no so fiction  science communicator and leader).
-
-https://old.reddit.com/r/Pluribus_TVshow/comments/1pimwsn/one_assumed_but_not_necessarily_true_detail_about/ntqdazh/
-
-<img width="1802" height="1458" alt="image" src="https://github.com/user-attachments/assets/a08ac77d-f0fa-4ad6-8e8d-8f21a0962f4d" /> Low-effort deflecting coomenting. Tiny-short message. "What the hell are you talking about?" with a numbered list.  Ok, so non-famous non-wealthy shizophrenic people are to be ridiculed and insulted in public, but Donald Trump "dementia" mocking entertains the population all day every day on Reddit in 2025. The Fox News language issue ignored: https://www.theatlantic.com/culture/archive/2020/09/fox-news-trump-language-stelter-hoax/616309/  - the whole topic of 1776 democracy "Pluribus", seems to terrify people that billions of peopel world wide don't all comunicate in identical ways on Rddit commenting! The person can't engage professional populat songs linked on YouTube either, fixated on the Reddit comment wihtout any abilty to ask specific questions or quote what they don't understand or are confused about. Addicts to /r/All memes on Reddit can not engage serious discourse. Bring up I.C.E. raiding house metaphors, can't associate with real huamn person writing or real-world political books by George W. Bush being cited. Nor the mixing of Latin "Pluribus" and Bush book title.
-
-
-
-
