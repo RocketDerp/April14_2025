@@ -102,7 +102,11 @@ I think what people are DOING with each other on the Internet is horrible, peopl
 
 # This shit
 
-<img width="81" height="81" alt="Screenshot from 2025-12-12 21-20-30" src="https://github.com/user-attachments/assets/5fec0fab-4e9d-4831-a7a8-9bd7897f8c43" />
+<img width="1635" height="530" alt="image" src="https://github.com/user-attachments/assets/25a11119-074d-4fa4-8eca-fd69bd7e47e8" />
+
+https://youtu.be/RMUPjq-rnTk?t=919
 
 "ARE YOU HGIH" - earlier in the video he SAYS he gets manic / bi-polar.
 
+Are you shizo comments on Reddit nobody quotes a book, nobody mentions an author, people claling everyone dementia and retarted.  https://en.wikipedia.org/wiki/Touched_with_Fire_(book)
+\
