@@ -1320,3 +1320,17 @@ https://old.reddit.com/r/mildlyinfuriating/comments/1pjco79/they_never_stop/
 The young people in society do not vote to protect the elderly and use technology to track down these predators. The mobile phone networks have the money to identify it, but they don't do it. Same with junk mail and postal system in USA society. Profit-seeking with scams and exploitation are encouraged by media networks of postal delivery and telephone delivery an even YouTube, etc. "Elsa Gate" on YouTube, for example: https://en.wikipedia.org/wiki/Elsagate
 
 USA created the Internet and much of the moral values of competitive agressive salesmen.
+
+&nbsp;
+
+# Jim Carey military training on egoism 
+
+https://old.reddit.com/r/movies/comments/1pl5blh/jim_carrey_offered_to_return_20_million_grinch/
+
+This and how it relates to Andy Kaufman focus and Jim's shift to abstract art after military educaiton on how to control minds and suffer under horrible circumstances. 
+
+https://news.artnet.com/art-world/jim-carrey-done-painting-political-cartoons-now-hes-mangos-1766871       
+
+"I don't know who they're trying to convince us that is, but that's definitely not Jim Carrey." concerns of audience.
+
+https://www.yahoo.com/entertainment/celebrity/articles/jim-carrey-sets-tongues-wagging-001542883.html
