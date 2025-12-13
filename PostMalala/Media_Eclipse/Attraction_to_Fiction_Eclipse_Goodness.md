@@ -26,6 +26,23 @@ I don't want it. I traveled, I lived in Africa, I lived in the Middle East, I li
 
 Focusing on the Levant religions and Dr. Martin Luther King's year 1954 learning (his education perspective of Christian killing Jewish in World War Two, and war between Christians such as Germans killing French Christians / London Christians)....
 
+# Reddit Pluribus November 2025
+
+Ok, the problem is Power of Myth with Reddit Star Wars fandom and Pluribus fandom both now. It used to be me keeping an eye on Reddit and YouTube Star Wars Fandom criticism... I was never that serious about social media and breaking bad / Saul... but Pluribus Great Seal. I was already working with the society avoidance of learning the nile river front-side green plants since 2009.
+
+Not a person is quotin power of myth. Even Bill Moyers revisited it in interviews with Lucas. But the book, nobody on Reddit or YouTube quotes and references it. And Inner Reaches of Outer Space, even less so!
+
+What Power of Myth 1988 book does is outtright criticize REAL RELIGION.
+
+* Reddit Pluribus community in November 2025 won't criticize Trump holding the Bible. Even selling $59.99 Bible. And what Power of Myth says about Levant religionss being disqualified for the future. "Monster State" in Power of Myth never gets mentioned or quoted - despite the book clealry covering the Great Seal. Why are no Star Wars fans reading non-fiction books besides "behind the scenes", but about meaning?
+
+Even Musk posed with the Bible before going into the White House in January 2025. Right before the election in year 2024 https://www.the401stprophet.com/elon-musk-the-world-s-richest-man-says-he-is-a-christian
+
+This is what disurbs me deeply. Nobody is discussing the Christian Nationlism and **PEOPLE BELIEVING SCENCE FICTION STAR WARS IS FACTAUL REALITY! OR QURAN OR TORAH OR BIBLE!! EVEN AFTER OCTOBER 7, 2023!  Nobody mentions the "future Levant" statement in 1988 Power of Myth, despite constant /r/All Star Wars memes.
+
+...
+
+
 I mean: The GOOD NEWS is that religion does teach "Love one Another". But I can't find anyone who asserts the connection to MLK Jr on the world stage high enough... other than Bernie Sandards and Malala from Pakistan. And Malala seems to want to be a mother and not continue her year 2011 ideals - and frankly, society is so toxic that gun worship played a part in why she even was listened to in the first palce. But her language is articulate and descriptive enough that I can see where she is coming from. Bernie Sanders, he almost made President and wanted to really reform the Middle East attitudes on violence and often cites MLK Jr.
 
 But people wont' rally around Bernie Sanders for MLK Jr and his promotion of the Second Bill of Rights January 1944 as a *learning lesson* at the very least (What Second Bill of Rights predicted in direct langauge). but people want to focus this past 12 months on Lugii - not Bernie promtoing MLK Jr. and health care via Second Bill of Rights.
