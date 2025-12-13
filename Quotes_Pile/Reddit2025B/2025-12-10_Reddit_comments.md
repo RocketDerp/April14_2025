@@ -114,3 +114,7 @@ Because it got so big on social media, under non-Trump it would have likely gott
 https://old.reddit.com/r/TwoXChromosomes/comments/1pl5zyb/got_yelled_at_for_being_in_the_womens_locker_room/ntq82mv/
 
 I get called "Shitzo" and mocked all over Reddit. And people want secret police to raid and ban others for their bad mental attitudes and out-group hat. people are under siege from billionares on transgender issues. Putin announced it in December 2013 - and people won't stay focusred on the same page and keep asserting it as organized military warfare against goodness / love / compassion / forgivness itself.  December 20, 2013 https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/ - right after Trump was in Moscow November 8, 2013 - and right before February 20, 2014 Ukraine war.
+
+https://old.reddit.com/r/notinteresting/comments/1pl4dly/what_do_i_do_in_this_situation/ntr4c73/
+
+Media ecology of taking a photo then screen-shot of it.
