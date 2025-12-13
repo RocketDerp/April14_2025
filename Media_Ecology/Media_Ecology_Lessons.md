@@ -1346,3 +1346,13 @@ https://old.reddit.com/r/SipsTea/comments/1pljuoh/china_bans_onlyfans/
 Topics: Economics of women. Building a popularity career / brand / name fame with good looks using own self without joining a modeling agency or having an "agent" run branding. Decling birth rates but over-consumption of humanism. "The West" media or "The West" sex (or has the cology of media made "The West" so engtagled in remote image delivery systems like Only Fans and Reddit front page /r/All pussy-kkitten image fandoms). Is there a crackdown on phycial in-person sex work? Modeling work? 
 
 Machine generate images by artificial intelligence repalcing human persons showing human flesh.  Is this china's Generative A.I. Industry push against "The West" humanism, in favor of machines in year 2026? https://themesetfs.com/insights/inside-chinas-ambitions-of-a-38-billion-generative-ai-industry
+
+## Not New Fandom "Fans" Selling 
+
+Now does the actress get the money in these fandom relationships? Age 12 to 22 of a man, and tells her in person.
+
+https://old.reddit.com/r/okbuddycinephile/comments/1pletdw/carrie_fisher_described_a_meeting_with_a/
+
+China credo / Empire of media control / Disney media empire. People trafficing for the best most attractive profit-making Hollywood / Disney California content theme parks. Gatekeeping reality of what makes casting attractive to a 10-year loyal audience. 
+
+Are people loyal to the Power of Myth 1988 bookk learning of Star Wars, or the weaopn light saber images and actor images? Poer of Myth 1988 book interviewer: https://billmoyers.com/story/joseph-campbell-say-donald-trump/
