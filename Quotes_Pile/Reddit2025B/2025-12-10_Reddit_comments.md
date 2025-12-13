@@ -64,3 +64,53 @@ https://old.reddit.com/r/tf2/comments/1pkzmvw/someone_spent_money_on_this/ntotsv
 
 Trump content, the name Trump, blows minds. It never ends!
 
+https://old.reddit.com/r/CringeTikToks/comments/1pl6bm3/racist_marine_fucked_around_and_found_out/ntqc15c/
+
+Mocking with thought-terminating word patterns just keeps going on back and forth betwen left vs. right brainrot. ... ... ...      
+"People are taking the piss out of you everyday. They butt into your life, take a cheap shot at you and then disappear. They leer at you from tall buildings and make you feel small. They make flippant comments from buses that imply you're not sexy enough and that all the fun is happening somewhere else. They are on TV making your girlfriend feel inadequate. They have access to the most sophisticated technology the world has ever seen and they bully you with it. They are The Advertisers and they are laughing at you. You, however, are forbidden to touch them. Trademarks, intellectual property rights and copyright law mean advertisers can say what they like wherever they like with total impunity." - Banksy
+
+https://old.reddit.com/r/CringeTikToks/comments/1pl6bm3/racist_marine_fucked_around_and_found_out/ntqiv7w/
+
+On the Pluribus subreddit I bring up I.C.E. metaphors and the April 2021 President George W. Bush book, on a show about book author / publisher / book airport order changing / book tours - and people can't engage. Television fans of Vince Gilligan seem to "Celebrate Ignorance" as Carl Sagan described in 1995. How do we get people to realize the forest for the trees. That avoiding the religion clergy, spiritual values of the nation (which is the spiritual value of the word "Pluribus" and great seal) is progressive, allowing Second Bill of Rights January 1944 and Dr. Martin Luther King's public dream reformations. But we are flocking to Muskk / Trump / ICE mocking, total mockery.
+
+https://old.reddit.com/r/CringeTikToks/comments/1pl6bm3/racist_marine_fucked_around_and_found_out/ntqgp2j/
+
+So raise children to hate black skin color because it is enteratinting to shoot guns and simulate murder. This is what normalizes child abuse, billionares create games like Call of Duty... to have poorly educated book-avoiding hate people in their military like this video topic.
+
+https://old.reddit.com/r/CringeTikToks/comments/1pl6bm3/racist_marine_fucked_around_and_found_out/ntqhfyo/
+
+"consequences". Why not just teach equality, Pluribus ideals, Geroge W. Bush's April 2021 book instead of teacching murder and gunplay.
+
+https://old.reddit.com/r/CringeTikToks/comments/1pl6bm3/racist_marine_fucked_around_and_found_out/ntqo8yt/
+
+Like Reddit hive mind uses "shizo" as a slur to me. How screaming "dementia" at Trump every day iwthout citing professional organized writing such as Dr. Bandy X. Lee is considered good. Adults, not just children. 
+
+https://old.reddit.com/r/CringeTikToks/comments/1pl6bm3/racist_marine_fucked_around_and_found_out/ntqcigd/
+
+See how thrilled people are wtih MAGA / Trump values entertaining. More and more terrible behaviors to cheer on because the **real-time** car chase / action of "brining down bad guys" is so exciting thrills to see on Reddit video streaming.
+
+https://old.reddit.com/r/CringeTikToks/comments/1pl6bm3/racist_marine_fucked_around_and_found_out/ntqdupg/
+
+MAGA bad I.C.E. agents and military values, Fox News HDTV nation that people on social media won't address with bottom-up promotion of Jen Senko since year 2015 / 2016. Mocking and insulting promoted everywhere. Blocking and dehumanization growing and growing as billioinares feed ChatGPT and GrokAI and all the other sytems. This is why we have Trump for over a decade, the thrill of seeing hot women next to men. The image discussion on meme platforms. ... ... ...     
+“Americans no longer talk to each other, they entertain each other. They do not exchange ideas, they exchange images. They do not argue with propositions; they argue with good looks, celebrities and commercials.”
+― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
+
+https://old.reddit.com/r/CringeTikToks/comments/1pl6bm3/racist_marine_fucked_around_and_found_out/ntqlpfb/
+
+over 20 years ago. USA changed with the IRA media invasion of Reddit and other social message systems since March 2013. And nobody will name or stay focused on the rise of Trump and MAGA and CA and IRA. Can't even name Surkov or "Internet Research Agency". You can't escape the Trump hate worship, leadership of hate and mocking that Truth Social has become.
+
+https://old.reddit.com/r/CringeTikToks/comments/1pl6bm3/racist_marine_fucked_around_and_found_out/ntqedfg/
+
+Not calling for more people disclosing health care problems, promoting Jen Senko family details of racisim programming from billionare media. But one by one takedowns, like I.C.E. doing raid hour after hour one at a time, and not addressing the hate problems itself. Even at Christmas time, people want hate to see take-downs and don't want to bring up MLK Jr's teachings. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
+
+https://old.reddit.com/r/CringeTikToks/comments/1pl6bm3/racist_marine_fucked_around_and_found_out/ntqg9pw/
+
+Enjoying that racism exists to mock. Not alarmed at the forest of MAGA and Elon Musk Twitter and Rupert Murdoch Fox News programming of hate, and TikTok - just the single person being taken out. The factory billionares of media content creation are programming the out-group hate into minds in the first place. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
+
+https://old.reddit.com/r/CringeTikToks/comments/1pl6bm3/racist_marine_fucked_around_and_found_out/ntqdeal/
+
+Because it got so big on social media, under non-Trump it would have likely gotten one person fired. But with Trump, it may be a poster figure of agression military / like the ocean boat attacks.
+
+https://old.reddit.com/r/TwoXChromosomes/comments/1pl5zyb/got_yelled_at_for_being_in_the_womens_locker_room/ntq82mv/
+
+I get called "Shitzo" and mocked all over Reddit. And people want secret police to raid and ban others for their bad mental attitudes and out-group hat. people are under siege from billionares on transgender issues. Putin announced it in December 2013 - and people won't stay focusred on the same page and keep asserting it as organized military warfare against goodness / love / compassion / forgivness itself.  December 20, 2013 https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/ - right after Trump was in Moscow November 8, 2013 - and right before February 20, 2014 Ukraine war.
