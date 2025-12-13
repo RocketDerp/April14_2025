@@ -45,3 +45,20 @@ Pluribus is great, but the society is "cooked" as peole use the term. The enshit
 Pluribus is still the best thing to come along, but it's very alarmiing how it looks like Trump is going to be removed not for seeding hate all over the world, the rejection of hate, but his divorces / sex life / economic prices. I really hope GOODNESS age 40 people rise up and become young Bernie Sanders and Malala in addressing ALL HATE, icnluding hate of Trump fueling the bonfires of reacctionary pro-Russia mindsets.
 
 god, this can't be written
+
+# Artificial Intelligence
+
+I am not one of those technical people who downplays large langauge models. I think if you wire one up to an applicaiton that commands it, you can create loops and validation routines and do some really interesting things. Google Search has been amazing in my Pluribus searches.
+
+Let me be clear: I was using Google Search to locate NEW content about Pluribus. YouTube video titles, fandom websites, science fiction wiki, Great Seal USA teachings, articles, actor / creator interviews, reviews, etc. I've been doing that with search engines since 1995. Heavy on ideals of the Arab Spring in 2009 / 2010 / 2011  / 2012 the way I'm looking at Pluribus show now in 2025.
+
+But I have been pretty amazed at how I can throw 10 words of James Joyce's Finngans Wake and a Pluribis scene or episode context - and what Google Search AI simmary / AI tab responds. Same with song meanings.
+
+You DO have to throw the right keywords to make it connect the topics you want - but it does do it. If you don't know to key on certain distinctive keywords (long time skill for me going back to 1999)... the jargon-words that filter out overloaded meanings of non-jargon words... you get good hints.
+
+It very intelligently matches up 1970's song lyrics / 1980's song lyrics to concepts and Joseph campbell quotes if I feed it the right patterns - it writes excellent.  I haven't been using much of what it writes out of some anti-AI sentiment, but I've witnessed and seem impressed. Google Search A.I. in December 2025 is vastly improved over what I saw in Febraury 2025 in terms of fresh / latest topics.
+
+I have followed Mo Gawdat seriously the past 3 years. He is INCIREDBLY excited about where it will be in 10 years, he considers it inevitable that super intelligence / really incredible physics discoveries and such will come. I don't agree with him, but I don't disagree with him either. But I can't dismiss him.
+
+I think what people are DOING with each other on the Internet is horrible, people trying to exploit people. or doing it out of Eternal September behaviors. But the A.I. system I am in no way dismissing our discounting. The money has spent, and the talent of people trying to make it work is very high. 
+
