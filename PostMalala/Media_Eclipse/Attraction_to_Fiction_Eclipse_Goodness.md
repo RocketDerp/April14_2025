@@ -109,4 +109,4 @@ https://youtu.be/RMUPjq-rnTk?t=919
 "ARE YOU HGIH" - earlier in the video he SAYS he gets manic / bi-polar.
 
 Are you shizo comments on Reddit nobody quotes a book, nobody mentions an author, people claling everyone dementia and retarted.  https://en.wikipedia.org/wiki/Touched_with_Fire_(book)
-\
+(OH yha, Carol being a heavy boozer and taking pills doesn't get discussed much either in November / December 2025 so far! But people call others crazy dementia shizo at the drop of a hat - without discussing Carol's CLEAR alcohol abuse for sleep / and the crazy boozing at the Air Force One luch causing harm to others - egoism / egomania! Being concerned about her OWN SELF above world peace, so common with Musk Truth Murdch USA 2025)
