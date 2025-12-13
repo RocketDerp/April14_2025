@@ -42,6 +42,19 @@ This is what disurbs me deeply. Nobody is discussing the Christian Nationlism an
 
 ...
 
+# Charlie Kirk shooting September 2025
+
+NOBODY BRINGS UP POWER OF MYTH! Christian Charlie Kirk being treated as a super-hero God figure. Saint.
+
+REAL WORLD, NOT FICTION!!! POWER OF MYTH BOOK 1988 IS NON-FICTION!!!!!
+
+Right as PLURIBUS show is approach!!! People reading books before the show comes on! getting excited.
+
+Marshall McLuhan and Beruit quotes are not fiction characters, McLuhan is a REALITY Professor history, not a character like Darth Vader! Charlie Kirk was being made into BELIEVABLE SUPERMAN!
+
+And this is All Pluribus topics nobody is discussing...
+
+
 
 I mean: The GOOD NEWS is that religion does teach "Love one Another". But I can't find anyone who asserts the connection to MLK Jr on the world stage high enough... other than Bernie Sandards and Malala from Pakistan. And Malala seems to want to be a mother and not continue her year 2011 ideals - and frankly, society is so toxic that gun worship played a part in why she even was listened to in the first palce. But her language is articulate and descriptive enough that I can see where she is coming from. Bernie Sanders, he almost made President and wanted to really reform the Middle East attitudes on violence and often cites MLK Jr.
 
