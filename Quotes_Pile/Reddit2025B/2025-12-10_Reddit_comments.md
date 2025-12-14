@@ -157,5 +157,9 @@ Reddit audience messaging technique of winning, copying Truth Social and Rupert 
 
 https://old.reddit.com/r/wisconsin/comments/1pmox5g/comment/nu1nwd6/
 
-Those who live in MAGA glass houses throw stones at the "poor part of town", "bad side of the tracks" culture - on Reddit with no-identity Russian IRA infiltration since year 2013.
+Those who live in MAGA glass houses throw stones at the "poor part of town", "bad side of the tracks" culture - on Reddit with no-identity Russian IRA infiltration since year 2013. Newly created Reddit account. See NRA Russian manipulation: https://www.bbc.com/news/world-us-canada-44885633
+
+https://old.reddit.com/r/wisconsin/comments/1pmox5g/comment/nu1qn5c/
+
+Instant timing on this reply, and all the word-games "draw audience in" with wildcard mind reading of what the Reddit hive mind is thinking and encouraging people to jump to rapid high-speed media low-effort anti-comprehension reactions.
 
