@@ -1830,3 +1830,10 @@ https://old.reddit.com/r/MurderedByWords/comments/1pkrt31/debt_up_23_trillion/
 
 The issue isn't silence on these topics. Left right brainrot aside. The issue is sustained focus. People scream and react loud at Trump behaior, but it's like all year 2025 with Luigi murder in Manhattan. People could have spent year 2025 posting actual insurance papework, one person every 6 hours, on Bluesky and Reddit. But that's organized and intelligent and not gun-worship murder thrill-seeking. Fox News and Newsmax repeat their anti-goodness messages. And silence isn't the issue vs. screaming rage... the screaming rage from MAGA / Fox News audience is what got us here! People need to be able to assert humanism and quality in dialog and not dehumanize / *Hate harder* messages. We have to all agree that goodness is actually good. Putin and Trump meeting in Alaska and all now the anti-EU  topics of the past week - we are so far lost in Putin's information warfare. People don't even see that goodness isn't being asserted. Endess mocking. Epstein chanting (worship icon) created so much noise and loudness.
 
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/nottheonion/comments/1pm0oai/jd_vance_is_sick_of_67_ban_these_numbers_forever/
+
+Making the front page of Reddit is trivial if you are a non-stop source of popular culture mockery engagement. People eat up JD Vance as a source of mocking just like the Reddit comment secitons are peer to peer mocking and anti-intellectual celebration of ignorance. Top of the front page.
