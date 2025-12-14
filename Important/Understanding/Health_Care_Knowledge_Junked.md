@@ -97,3 +97,19 @@ Reddit front page. USA Reddit front page of the World Wide Web, Human Species. T
 https://old.reddit.com/r/science/comments/1pl4y51/vaccinating_boys_against_hpv_could_lead_to_the/
 
 Will get drowned in Epstein rich people photographs sex images.
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1pm8f16/a_lesson_in_what_you_think_v_reality/
+
+Billionares replaced nonfiction education and learning systems, Wikipedia, with meme mills. Wikipedia doesn't make the owners billionares: Twitter does, Fox News HDTV does, Facebook does, Twitch does, fiction outsells nonfiction. STD is nonfiction. That isn't popular except as jokes and insults in fiction storytelling and on meme mills like Reddit. Ha ha ha lol lol amused to death audience that thinks calling poltiicans with STD brain dmaage all day every day is thrilling politics. https://www.forbes.com/sites/brianbushard/2024/01/31/trump-speaks-out-on-red-hand-marks-maybe-its-ai/ - social media is a anti-education anti-nonfiction culture of Truth Social / Reality TV "The Apprentice" followers to Rupert Murdoh "Fox News Nation" https://www.nytimes.com/2018/11/26/business/media/fox-news-nation-streaming.html
+
+And don't be fooled. Even when these services fail, even when people don't go to Fox News HDTV or Truth Social, Reddit constantly screen shots it for anti-intelligence anti-intellectual low-effort disposable commenting. Anti-wikipedia on important medical knowedge.
+
+Just like the front-page screen shot says these words are about. "Murder by words", no, the killing of people with COVID-2019 spreading is due to Reddit society not making front-page SUSTAINED every day the spreading of disease by Putin. August 24, 2018 https://www.bbc.com/news/world-us-canada-45294192  mental disease to LOL LOL LOL mockery simulacra of debate. https://www.bbc.com/news/world-us-canada-45294192
+
+Important Wiki style assertion of "ok, let's be serious 2 or 3 days a week" nonfiction learning gets abandoned by adults who dial into video games, kitten images (not kittens, IMAGES photo attraction screen games, simualcra), Trump news on /r/All all the fucking time for over 10 years, since June 6, 2015. Commenting that attacks nonfiction books and metaphor teaching in favor of "Duh, this is a wendy's where we praise Trump as a soure of hate and mocking leadership!" 
+
+This shit kind of debate: https://www.bbc.com/news/world-us-canada-45294192 back and forth without any concern to make a wikipedia / FAQ / important meetings eveyr 3 days to assrt improtance of adult educaiton not drowning in entertainment. https://www.northjersey.com/story/opinion/columnists/2024/03/27/us-politics-2024-predicted-media-expert-neil-postman/73022583007/
+
+RFK Jr leadership is a source of entertainment to meme audiences. People who will not "call to INTELLECTUAL arms" of sustained every 6 hours on front page - call for metnal reformation and stop seeking liars as LOL enteratianment governing. Stop being govered by whims of mockery that RFK Jr and Trump and Pentagon 2025 military provides. Be serious about life and death StD diseases and COVID-2019 diseases and actaully FIGHT Russia by making Surkov a household name. AGAIN August 24, 2018 George Washington Namesake FIGHt University https://www.bbc.com/news/world-us-canada-45294192 
