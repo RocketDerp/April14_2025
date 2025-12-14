@@ -24,3 +24,5 @@ One reason it's so bad is I don't promote Trump / Fox News mocking.
 
 5. LOL LOL LAMO YOU IDIOT replies
 
+6. "you don't know what you are talking about" one-upmanship / insulting. Instead of asking for a source, author, link. People who prize reply commenting of mocking others. Not analysis, not showing examples of a pattern, but actually spending TIME with mocking people they consider weak or just in a hurry - didn't spend much time on their messages and ideas.
+
