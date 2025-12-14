@@ -147,3 +147,6 @@ People like to comfort their own self with self-deception that it is cowrdly. It
 https://old.reddit.com/r/australia/comments/1pma7b1/footage_unarmed_hero_disarms_bondi_shooter_give/ntyi642/
 
 
+https://old.reddit.com/r/Whatcouldgowrong/comments/1pmklsx/wcgw_abruptly_slowing_down_the_tow_car_while_the/nu0v43h/
+
+Conditioned reactionary mindsets. High-speed information delivery backwash.
