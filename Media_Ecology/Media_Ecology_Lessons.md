@@ -1356,3 +1356,16 @@ https://old.reddit.com/r/okbuddycinephile/comments/1pletdw/carrie_fisher_describ
 China credo / Empire of media control / Disney media empire. People trafficing for the best most attractive profit-making Hollywood / Disney California content theme parks. Gatekeeping reality of what makes casting attractive to a 10-year loyal audience. 
 
 Are people loyal to the Power of Myth 1988 bookk learning of Star Wars, or the weaopn light saber images and actor images? Poer of Myth 1988 book interviewer: https://billmoyers.com/story/joseph-campbell-say-donald-trump/
+
+&nbsp;
+
+# Year 1776 language reading
+
+Language has changed dramatically since year 1776
+
+https://old.reddit.com/r/confidentlyincorrect/comments/1pmlpx2/youve_read_the_entire_thing/
+
+"left" and "right", very basic English words used daily by people to indicate direction, have entirely changed meaning since year 1789. And monoarcy supporters would not be the USA, which was anti-monarchy intetionally. "monarchist supporters preferring tradition sitting to the right"
+
+So declaring "it is remarkably short" and "I have read it" does not demonstrate comprehension or understanding of the langauge issues. This is why the Great Seal of the United States of America was created - about *interprtation and understanding* sklls. Printed all over the place on the Dollar Bill currency. The pyramid with the eye at top. The pyramid on the Nile river, and intentional references to the Library of Alexandria at higher steps of the pyramid. Without knowing the history of Tower of Babel and langauge itself in Bible verse John 1:1 - understanding and comprehension via The Great Seal of the Untied States of America age 21 art and metaphor literacy education. Without that, reading words is likely to yeild substanial errors and misunderstandings.
+
