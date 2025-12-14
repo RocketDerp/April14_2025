@@ -544,4 +544,8 @@ https://old.reddit.com/r/MurderedByWords/comments/1pk03i8/literal_truth/
 
 Rich detailed sciene fiction trillogy. Metaphor to metaphor translations. Fandom to fandom translation, like spoken written lanugage Thunder Words Finnegns Wake langauge. John 1:1 Tower of Babel metaphors of langauges.
 
+&nbsp;
 
+https://old.reddit.com/r/DnD/comments/1plz17g/power_word_kill_oc/
+
+Egoism of words don't matter, but words can kill. Not just games. Wrong communications over health matters, piloting transportation, climate change... believing fiction is reality - and electiong self-harm leaders...
