@@ -135,3 +135,15 @@ Living in Surkov Stage 15 and beyond. Surkov students won since March 2013. Post
 https://old.reddit.com/r/PeterExplainsTheJoke/comments/1pli35p/peter/ntsnrii/
 
 Media ecology teaching. Comparing to Corporate America Disney. Link to actual lyrics. Educational / informative. Not mocking and banality.
+
+https://old.reddit.com/r/australia/comments/1pma7b1/footage_unarmed_hero_disarms_bondi_shooter_give/ntyfnr2/
+
+The attraction to the phalic machine that shoots power domination over other people. The augmentation devices of men to control and manipulate the behavior of others.
+
+https://old.reddit.com/r/australia/comments/1pma7b1/footage_unarmed_hero_disarms_bondi_shooter_give/ntyjtwo/
+
+People like to comfort their own self with self-deception that it is cowrdly. It is agressive, hostile, and promoting hate. Like so many messages out of Truth Socil leadership of Reddit social commenting: agressive, dehumanizing machines. Not cowardly, time spent in service to badness and praising of badness and spreading "the word" of badness. Anti-goodness lovers of machines and agressive pro-hate pro-dehumanizing messengers who follow the leadership on Reddit - leadership of Truth Social. Without being willing to discuss the message leadership issues of Truth Soial and Reddit infiltrated by military Internet Research Agency since year 2013. Being a host and adopting behavior of Russia male agression against Ukraine https://www.bbc.com/news/technology-43301643
+
+https://old.reddit.com/r/australia/comments/1pma7b1/footage_unarmed_hero_disarms_bondi_shooter_give/ntyi642/
+
+
