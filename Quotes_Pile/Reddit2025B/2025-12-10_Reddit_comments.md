@@ -150,3 +150,12 @@ https://old.reddit.com/r/australia/comments/1pma7b1/footage_unarmed_hero_disarms
 https://old.reddit.com/r/Whatcouldgowrong/comments/1pmklsx/wcgw_abruptly_slowing_down_the_tow_car_while_the/nu0v43h/
 
 Conditioned reactionary mindsets. High-speed information delivery backwash.
+
+https://old.reddit.com/r/wisconsin/comments/1pmox5g/comment/nu1phip/
+
+Reddit audience messaging technique of winning, copying Truth Social and Rupert Murdoch methods, weapon worship concerns and topics.
+
+https://old.reddit.com/r/wisconsin/comments/1pmox5g/comment/nu1nwd6/
+
+Those who live in MAGA glass houses throw stones at the "poor part of town", "bad side of the tracks" culture - on Reddit with no-identity Russian IRA infiltration since year 2013.
+
