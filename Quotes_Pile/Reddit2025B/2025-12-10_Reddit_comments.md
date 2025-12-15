@@ -163,3 +163,10 @@ https://old.reddit.com/r/wisconsin/comments/1pmox5g/comment/nu1qn5c/
 
 Instant timing on this reply, and all the word-games "draw audience in" with wildcard mind reading of what the Reddit hive mind is thinking and encouraging people to jump to rapid high-speed media low-effort anti-comprehension reactions.
 
+https://old.reddit.com/r/whatisit/comments/1pmp2ey/what_is_that_thing_on_the_uber_drivers_hand/nu1nbpt/
+
+Taxi drivers in the Middle East almost always were doing counting on prayer beads to religion radio. Electronic, not on the Sabbath ;) It's an eletronic touch-self device like modern Star Wars monomyth audiences wear or hold on Reddit. 
+
+https://old.reddit.com/r/whatisit/comments/1pmp2ey/what_is_that_thing_on_the_uber_drivers_hand/nu1n96y/
+
+"modern Jews use them as personal spiritual aids, often adapting designs like 19 beads (for 613 mitzvot) or incorporating symbols like the Star of David" - OPERA_A Year 1977 USA Levant DOUBLE imported Bible (Levant to Rome, Rome to Spain, Spain to USA year 1492 ocean crossing, however you count double-improted and beyond) "You didn't count on me when you were counting on your rosary" beads or electronic counting app beyond year 1977... All you Levant faith girls and fate https://www.youtube.com/watch?v=ATkeiLbBGQc Only the good ignore verse Romans 11:32 from James Joyce Pluribus studies ;) 29,264 views  May 3, 2024 - "Melissa Etheridge Covers Billy Joel’s “Only the Good Die Young” (2014)"
