@@ -7,6 +7,9 @@ blah blah, how does one desxribe such systemic dehumanization? The weight of so 
 Dental and General health     
 https://old.reddit.com/r/science/comments/1p0a1xu/root_canal_treatment_could_significantly_lower/
 
+Reddit audience for over a year cheering on Luigi murder for gun worship... but repeating and staying focused on consistely asserting "Second Bill of Rights January 1944" avoided. Even the BOOK that is on the Manhattan murder bullet casings hasn't been asserted all year 2025.        
+https://old.reddit.com/r/politics/comments/1pmqbgn/twothirds_of_americans_say_government_should/
+
 Reseaerch and Development now focused on greed    
 https://www.ajmc.com/view/nih-grant-terminations-disrupt-1-in-30-clinical-trials-impacting-over-74-000-participants      
 https://old.reddit.com/r/science/comments/1p0183j/study_finds_recent_nih_cuts_by_trump/
