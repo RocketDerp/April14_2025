@@ -1879,3 +1879,10 @@ USA society is hate-filled dehumanizing - driven by media addiction to entertain
 https://old.reddit.com/r/complaints/comments/1pnas00/dear_trump_maga_what_the_fuck_is_wrong_with_you/
 
 Reddit front page screaming what is wrong with Trump? Television. Fox News. Jen Senko's 2015 / 2016 film "Brainwashing of my Dad" applies to Donald Trump. He is a Twitter addict / TV news addiction / Truth Social addict who rages and avoids nonfiction science learning. Russia has manipulated Reddit society. Trump, Musk, MAGA - and people will not educate our way out of media induced fiction. People say "cult" and won't seriously study and stay focused on the history of cults. Hey, Christmas Santa cult in 10 days USA! anything TO AVOID nonfiction learning of media ecology: Neil Postman, Marshall McLuhan, Joseph Campbell, Jean E, Peter P, study of Surkov students in Russia.
+
+&nbsp;
+
+https://old.reddit.com/r/Snorkblot/comments/1pncyow/it_seems_he_doesnt_need_new_money/
+
+Reddit front page. Age 54 Elon Musk does not have DEMENTIA. He isn't 79 years old. And yet, Musk wants what Rupert Murdoch Fox News HDTV and been promoting since year 1996. High-speed television media that mind-fucked people into worshiping Murdoch values and Musk. And you know what Elon Musk invests in: Twitter. Meme mill, entertainment site, Russian infiltrated TWITTER. See this from August 24, 2018 BEFORE COVID-2019 pandemic. https://www.bbc.com/news/world-us-canada-45294192 { Twitter, Truth Social, Reddit, Facebook, YouTube, TikTok, Instagram, GrokAI, ChatGPT } all the most powerful people in the world will not repeat and keep repeating SUSTAINED, focused, every 12 hours.  Musk age 54 does not have DEMNTIA. JD Vance does not have DEMENTIA. Stop avoiding the elephants in the social media rooms! We The People need to keep repeating over and over, get on the same page of this September 9, 2014 story about Twitter / Reddit information warfare! Musk Twitter, Trump Truth Social: https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
