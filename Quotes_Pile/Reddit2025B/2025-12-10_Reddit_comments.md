@@ -263,3 +263,8 @@ Audiences flock to entertainment. Fiction outsells nonfiction. Reddit users can'
 https://old.reddit.com/r/worldnews/comments/1pn23rg/leaked_us_strategy_draft_reportedly_proposed/nu4kmf4/
 
 Recently created Reddit account. No links, no author names, no book titles. Just serious topics being given short message disposable comment to wash it away with more and more low-effort comments tied to no name or sustained focus on serious problems.
+
+https://old.reddit.com/r/AITAH/comments/1pn0ccu/aitah_for_hiding_the_fact_that_my_youngest_son_is/nu44wde/
+
+Choice marriage honesty, arranged marriage honesty. Read the whole story about drunken hookup. Sexless adult life for two. Family that does not love based on sexuality / origins of children. Treating people you live with (children / grandfather) as like enemy nation / war / enemy religion. Non-person. Anti-goodness.
+
