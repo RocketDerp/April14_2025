@@ -1270,7 +1270,7 @@ https://www.youtube.com/watch?v=feO1Sl--Hg0
 
 Campbell: 
 
-Diagnosing the same disease over and over. https://youtu.be/feO1Sl--Hg0?t=224 (Me, Stephen Gutknecht, Neil Postman disease) https://youtu.be/feO1Sl--Hg0?t=285 stable unwell mental hygiene in USA society. https://youtu.be/feO1Sl--Hg0?t=330 "most reliable thing in your life" https://youtu.be/feO1Sl--Hg0?t=356 "being profoundly unwell" sane response to situation. 
+Diagnosing the same disease over and over. https://youtu.be/feO1Sl--Hg0?t=224 (Me, Stephen Gutknecht, Neil Postman disease) https://youtu.be/feO1Sl--Hg0?t=285 stable unwell mental hygiene in USA society. https://youtu.be/feO1Sl--Hg0?t=330 "most reliable thing in your life" https://youtu.be/feO1Sl--Hg0?t=356 "being profoundly unwell" sane response to situation.  https://youtu.be/feO1Sl--Hg0?t=895 seeing parts of yourself as you look at at humanity and the Pale Blue Dot and Cosmos is concerns of the { Great Seal, mystic, Religion, Spiritual life, Pliribus unity of humanity and even other non-human life on Earth } 
 
 &nbsp;
 
