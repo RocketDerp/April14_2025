@@ -211,3 +211,16 @@ In Russia, millions of people vote for Putin to murder and kill and butcher peop
 https://old.reddit.com/r/movies/comments/1pmxczv/legendary_director_rob_reiner_this_is_spinal_tap/nu3j155/
 
 Sunday, December 14, 2025. All year people have witnessed Americans / USA society cheer on deaths by dramatic hate of "US Aid" - and people normalize it, amusement-washing it on Reddit, LOL entertainment washing it on Reddit. And shocked with 2 people die and don't even recognize systemic warfare and killing worship values / gun worship / systemic health care dehumanization worship in USA medical system, sharing medical knowledge with people all over world, food starvation issues, etc. Harvard school of public health: https://hsph.harvard.edu/news/usaid-shutdown-has-led-to-hundreds-of-thousands-of-deaths/ and Canadian artist "PizzaCake" just had on front page of Reddit this weekend the dehumanizing abuse of "Reddit Cares" machines / AI / corporate America systemic dehumanization that people do as hate sport on Reddit. https://old.reddit.com/r/comics/comments/1ply4mo/reddit_cares/ Which I experience regularly. People who cheer on "Leopards Ate MAGA USA faces" constantly on Reddit, cheering on suffering "to teach", while avoiding everything they can about nonfiction learning of high-speed media addiction mob mentality behaviors. Nonfiction books from Marshall McLuhan and Neil Postman, etc. 
+
+https://old.reddit.com/r/news/comments/1pmvid5/2_found_dead_at_brentwood_mansion_that_belongs_to/nu3deph/
+
+A link to nonfiction good to see. https://www.bostonglobe.com/2021/07/01/arts/rob-reiner-creating-trump-putin-limited-series/ listed as Unrealized https://en.wikipedia.org/wiki/Rob_Reiner%27s_unrealized_projects#2020s
+
+https://old.reddit.com/r/news/comments/1pmvid5/2_found_dead_at_brentwood_mansion_that_belongs_to/nu3p68l/
+
+self-harm is an unsolved problem of humanity, humans butchering their planet Earth on a massive scale and promoting war and hate as exciting bad-guy entertainment and thrills. Many that Putin has wrecked suffer horrible lives for year after year being tortured by lies and bullshit and information warfare. Wrecking their health, health care systems, wrecking solvable problems of food needs / housing needs / health care needs in favor of constant feeding Putin war against reality year after year. September 9, 2014 : https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/news/comments/1pmvid5/2_found_dead_at_brentwood_mansion_that_belongs_to/nu3g4m2/
+
+Holidays are high stress for family, all the bombardment of consumerism and marketing crammed into minds. Billionaires inducing frenzy in audiences of consumerism culture. Technology of streaming delivery and adverting and marketing keeps advancing to more and more aggressive promotion mind manipulations. People do not study the science and statistics of this.
+
