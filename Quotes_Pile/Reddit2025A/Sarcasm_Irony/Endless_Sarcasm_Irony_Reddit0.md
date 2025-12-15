@@ -1867,3 +1867,9 @@ Sunday Chruch criticisn of Texas entertainment Christmas show.  **All that spare
 https://old.reddit.com/r/shittymoviedetails/comments/1pn4xgg/in_fallout_season_2_2025_an_ai_recap_of_season_1/
 
 Amazon billionaires network. People can't connect this type of junk to Rupert Murdoch and Truth Social and Elon Musk Twitter. Donald Trump fighter jet "Danger Zone" video is leading society. Leadership of anti-reality, machine love, human hate. 
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1pn580k/us_engaging_in_extreme_rightwing_tropes/
+
+USA society is hate-filled dehumanizing - driven by media addiction to entertainment leader Reality TV star Donald Trump. And people so thrilled to have hate and mocking all the time, abandoned nonfiction learning of media ecology / Neil Postman. NOTHING CAN STOP IT. Neil Postman is not UNKNOWN. And gets recent cover in Time magazine. September 10, 2025 https://time.com/7313999/neil-postman-trump-prediction/
