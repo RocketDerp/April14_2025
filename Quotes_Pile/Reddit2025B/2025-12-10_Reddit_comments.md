@@ -16,7 +16,7 @@ Neil Postman 1985 quote about media ecology and trivial. Carl Sagan 1995 and the
 
 https://old.reddit.com/r/Damnthatsinteresting/comments/1pj00k2/rare_footage_of_last_sunset_of_the_20th_century/nt9xr2w/
 
-Also when streaming video was new... people would have commented as to the video framing. So much black space, the mood music, links to the original. People just consume junk recording of a social media recording. Reddit used to have media ecology self-awareness. People scream "AI slop" and people used to claim this kind of video as slop with all the black / rereworking (too much jpeg).
+Also when streaming video was new... people would have commented as to the video framing. So much black space, the mood music, links to the original. People just consume junk recording of a social media recording. Reddit used to have media ecology self-awareness. People scream "AI slop" and people used to claim this kind of video as slop with all the black / reworking (too much jpeg).
 
 https://old.reddit.com/r/popculturechat/comments/1piv8e7/jacob_elordi_needs_someone_to_tell_him_they_love/nt9xmum/
 
@@ -37,7 +37,7 @@ My comment.
 
 https://old.reddit.com/r/MadeMeSmile/comments/1pj2j16/never_seen_a_skateboard/ntabodp/
 
-Like having sincere content all over the Internet that isn't a booby-trap by billionares like Elon Musk, Rupert Murdoch. That Truth Social is true. That Wikipedia isn't manipulated by strangers who want to make people get diseases (measles) and spread information wrfare. https://www.bbc.com/news/world-us-canada-45294192 That Reddit comments aren't the most sophisticated doctors from Cambridge Analytica. That a woman on the street feels safe. That attraction to a skate board is safe. Although I suggest people have a helmet just like a bike. Training wheels on bikes are also a real thing. Ice skating / roller skating / skateboard / surf board / tight rope walking take some balance experience. OPERA_A February 19, 1977 live broadcast. The year 1. (see top of this GitHub markdown file topic) Tim Finnegan Opera / WAKE UP to Year One MonoMyth patterns! https://www.youtube.com/watch?v=FOhD-VGIt_8
+Like having sincere content all over the Internet that isn't a booby-trap by billionaires like Elon Musk, Rupert Murdoch. That Truth Social is true. That Wikipedia isn't manipulated by strangers who want to make people get diseases (measles) and spread information warfare. https://www.bbc.com/news/world-us-canada-45294192 That Reddit comments aren't the most sophisticated doctors from Cambridge Analytica. That a woman on the street feels safe. That attraction to a skate board is safe. Although I suggest people have a helmet just like a bike. Training wheels on bikes are also a real thing. Ice skating / roller skating / skateboard / surf board / tight rope walking take some balance experience. OPERA_A February 19, 1977 live broadcast. The year 1. (see top of this GitHub markdown file topic) Tim Finnegan Opera / WAKE UP to Year One MonoMyth patterns! https://www.youtube.com/watch?v=FOhD-VGIt_8
 
 https://old.reddit.com/r/worldnews/comments/1pjn1y3/seized_tanker_owned_by_russian_oligarch_flying/nteptx9/
 
@@ -45,7 +45,7 @@ Amused to death nation. Trump and Putin, so funny to people. Surkov won.
 
 https://old.reddit.com/r/europe/comments/1pjzz27/leaked_files_show_us_wants_to_persuade_four/nth9x4u/
 
-<img width="972" height="390" alt="image" src="https://github.com/user-attachments/assets/31c5fdba-5d5a-4c9c-bf2f-9a28ae928d4d" /> People in LOL land USA rage only for more memes. Not actual humanism and unity of spiritual meaning. Just joking away here in amusement land about others suffering. Out-group mockery. The social media society (all media platforms) "fuck around and find out" is the very basis of I.C.E. and Putin power. Wrecking humanism of people who "fuck around" with those who worship power, worship Putin's prizing of power. Social media society turns it into entertainment about falling out of a window for LOL memes. OPERA_A Social media addicts and other people mocky away "Only A Fool Would Say that' about John Lennons Imagine. https://www.youtube.com/watch?v=6KgWEGnJTJc
+<img width="972" height="390" alt="image" src="https://github.com/user-attachments/assets/31c5fdba-5d5a-4c9c-bf2f-9a28ae928d4d" /> People in LOL land USA rage only for more memes. Not actual humanism and unity of spiritual meaning. Just joking away here in amusement land about others suffering. Out-group mockery. The social media society (all media platforms) "fuck around and find out" is the very basis of I.C.E. and Putin power. Wrecking humanism of people who "fuck around" with those who worship power, worship Putin's prizing of power. Social media society turns it into entertainment about falling out of a window for LOL memes. OPERA_A Social media addicts and other people mocky away "Only A Fool Would Say that' about John Lennon's Imagine. https://www.youtube.com/watch?v=6KgWEGnJTJc
 
 https://old.reddit.com/r/europe/comments/1pjzz27/leaked_files_show_us_wants_to_persuade_four/nthadce/
 
@@ -66,24 +66,24 @@ Trump content, the name Trump, blows minds. It never ends!
 
 https://old.reddit.com/r/CringeTikToks/comments/1pl6bm3/racist_marine_fucked_around_and_found_out/ntqc15c/
 
-Mocking with thought-terminating word patterns just keeps going on back and forth betwen left vs. right brainrot. ... ... ...      
+Mocking with thought-terminating word patterns just keeps going on back and forth between left vs. right brainrot. ... ... ...       
 "People are taking the piss out of you everyday. They butt into your life, take a cheap shot at you and then disappear. They leer at you from tall buildings and make you feel small. They make flippant comments from buses that imply you're not sexy enough and that all the fun is happening somewhere else. They are on TV making your girlfriend feel inadequate. They have access to the most sophisticated technology the world has ever seen and they bully you with it. They are The Advertisers and they are laughing at you. You, however, are forbidden to touch them. Trademarks, intellectual property rights and copyright law mean advertisers can say what they like wherever they like with total impunity." - Banksy
 
 https://old.reddit.com/r/CringeTikToks/comments/1pl6bm3/racist_marine_fucked_around_and_found_out/ntqiv7w/
 
-On the Pluribus subreddit I bring up I.C.E. metaphors and the April 2021 President George W. Bush book, on a show about book author / publisher / book airport order changing / book tours - and people can't engage. Television fans of Vince Gilligan seem to "Celebrate Ignorance" as Carl Sagan described in 1995. How do we get people to realize the forest for the trees. That avoiding the religion clergy, spiritual values of the nation (which is the spiritual value of the word "Pluribus" and great seal) is progressive, allowing Second Bill of Rights January 1944 and Dr. Martin Luther King's public dream reformations. But we are flocking to Muskk / Trump / ICE mocking, total mockery.
+On the Pluribus subreddit I bring up I.C.E. metaphors and the April 2021 President George W. Bush book, on a show about book author / publisher / book airport order changing / book tours - and people can't engage. Television fans of Vince Gilligan seem to "Celebrate Ignorance" as Carl Sagan described in 1995. How do we get people to realize the forest for the trees. That avoiding the religion clergy, spiritual values of the nation (which is the spiritual value of the word "Pluribus" and great seal) is progressive, allowing Second Bill of Rights January 1944 and Dr. Martin Luther King's public dream reformations. But we are flocking to Musk / Trump / ICE mocking, total mockery.
 
 https://old.reddit.com/r/CringeTikToks/comments/1pl6bm3/racist_marine_fucked_around_and_found_out/ntqgp2j/
 
-So raise children to hate black skin color because it is enteratinting to shoot guns and simulate murder. This is what normalizes child abuse, billionares create games like Call of Duty... to have poorly educated book-avoiding hate people in their military like this video topic.
+So raise children to hate black skin color because it is entertaining to shoot guns and simulate murder. This is what normalizes child abuse, billionaires create games like Call of Duty... to have poorly educated book-avoiding hate people in their military like this video topic.
 
 https://old.reddit.com/r/CringeTikToks/comments/1pl6bm3/racist_marine_fucked_around_and_found_out/ntqhfyo/
 
-"consequences". Why not just teach equality, Pluribus ideals, Geroge W. Bush's April 2021 book instead of teacching murder and gunplay.
+"consequences". Why not just teach equality, Pluribus ideals, George W. Bush's April 2021 book instead of teaching murder and gunplay.
 
 https://old.reddit.com/r/CringeTikToks/comments/1pl6bm3/racist_marine_fucked_around_and_found_out/ntqo8yt/
 
-Like Reddit hive mind uses "shizo" as a slur to me. How screaming "dementia" at Trump every day iwthout citing professional organized writing such as Dr. Bandy X. Lee is considered good. Adults, not just children. 
+Like Reddit hive mind uses "shizo" as a slur to me. How screaming "dementia" at Trump every day without citing professional organized writing such as Dr. Bandy X. Lee is considered good. Adults, not just children. 
 
 https://old.reddit.com/r/CringeTikToks/comments/1pl6bm3/racist_marine_fucked_around_and_found_out/ntqcigd/
 
@@ -91,7 +91,7 @@ See how thrilled people are with MAGA / Trump values entertaining. More and more
 
 https://old.reddit.com/r/CringeTikToks/comments/1pl6bm3/racist_marine_fucked_around_and_found_out/ntqdupg/
 
-MAGA bad I.C.E. agents and military values, Fox News HDTV nation that people on social media won't address with bottom-up promotion of Jen Senko since year 2015 / 2016. Mocking and insulting promoted everywhere. Blocking and dehumanization growing and growing as billionaires feed ChatGPT and GrokAI and all the other systems. This is why we have Trump for over a decade, the thrill of seeing hot women next to men. The image discussion on meme platforms. ... ... ...     
+MAGA bad I.C.E. agents and military values, Fox News HDTV nation that people on social media won't address with bottom-up promotion of Jen Senko since year 2015 / 2016. Mocking and insulting promoted everywhere. Blocking and dehumanization growing and growing as billionaires feed ChatGPT and GrokAI and all the other systems. This is why we have Trump for over a decade, the thrill of seeing hot women next to men. The image discussion on meme platforms. ... ... ...      
 “Americans no longer talk to each other, they entertain each other. They do not exchange ideas, they exchange images. They do not argue with propositions; they argue with good looks, celebrities and commercials.”
 ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
 
@@ -267,4 +267,17 @@ Recently created Reddit account. No links, no author names, no book titles. Just
 https://old.reddit.com/r/AITAH/comments/1pn0ccu/aitah_for_hiding_the_fact_that_my_youngest_son_is/nu44wde/
 
 Choice marriage honesty, arranged marriage honesty. Read the whole story about drunken hookup. Sexless adult life for two. Family that does not love based on sexuality / origins of children. Treating people you live with (children / grandfather) as like enemy nation / war / enemy religion. Non-person. Anti-goodness.
+
+https://old.reddit.com/r/nottheonion/comments/1pn1ixc/new_bill_that_would_ban_chemtrails_advances_in/nu555p8/
+
+Predatory billionaires provide Formula 1 racing for Reddit audience, "Red Bull" racing constantly on the front page of Reddit - racing team names. Anti-nature anti-health care, billionaires like Rupert Murdoch use high-speed information networks to drive audiences into frenzy over entertainment and out-group hate. And Reddit users eat this up on touch devices form billionaire media device corporations. There is no organized movement to resist the falsehoods and misunderstandings that come from Rupert Murdoch's Fox News and advertising and marketing networks. Instead, people cheer on that low-educated rural people are ignorant about how billionaires like Rupert Murdoch and Putin wreck minds - people on Reddit treat t as as funny jokes and mock back and forth in feedback loops based on their choice of HDTV channel or subreddit. Serious nonfiction and study of the problem is avoided, Humor and jokes constantly drowning out any effort to rescue or progress beyond this exploitation of brains. ... ... ...          
+“Today, reports of the day’s events are conveyed to the viewing public by way of alternate universes, The Fox News cable channel conveys its version of reality, while at the other end of the ideological spectrum MSNBC presents its version. They and their many counterparts on radio are more the result of an economic dynamic than a political one. Dispatching journalists into the field to gather information costs money; hiring a glib bloviator is relatively cheap, and inviting opinionated guests to vent on the air is entirely cost-free. It wouldn’t work if it weren’t popular, and audiences, it turns out, are endlessly absorbed by hearing amplified echoes of their own biases. It’s divisive and damaging to the healthy functioning of our political system, but it’s also indisputably inexpensive and, therefore, good business.” ― Ted Koppel. Lights Out: A Cyberattack, A Nation Unprepared, Surviving the Aftermath. October 27, 2015. Page 13.
+
+https://old.reddit.com/r/nottheonion/comments/1pn1ixc/new_bill_that_would_ban_chemtrails_advances_in/nu4df6l/
+
+No-identity Reddit comments mocking the discourse of Americans who use real names on media.
+
+https://old.reddit.com/r/nottheonion/comments/1pn1ixc/new_bill_that_would_ban_chemtrails_advances_in/nu4ph9b/
+
+Yes, there is a conspiracy by corporations to exploit the population. Putin's invasion of Twitter with the Internet Research Agency. FACTUAL evidence validated by Johns Hopkins University, George Washington University  https://www.bbc.com/news/world-us-canada-45294192 - but Reddit society mocks and encourages anti-learning for the sake of more mocking and calls "bots" without being able to name timelines, "Internet Research Agency", "Cambridge Analytica" or even name "Rupert Murdoch".
 
