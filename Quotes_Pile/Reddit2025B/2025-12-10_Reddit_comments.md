@@ -170,3 +170,7 @@ Taxi drivers in the Middle East almost always were doing counting on prayer bead
 https://old.reddit.com/r/whatisit/comments/1pmp2ey/what_is_that_thing_on_the_uber_drivers_hand/nu1n96y/
 
 "modern Jews use them as personal spiritual aids, often adapting designs like 19 beads (for 613 mitzvot) or incorporating symbols like the Star of David" - OPERA_A Year 1977 USA Levant DOUBLE imported Bible (Levant to Rome, Rome to Spain, Spain to USA year 1492 ocean crossing, however you count double-improted and beyond) "You didn't count on me when you were counting on your rosary" beads or electronic counting app beyond year 1977... All you Levant faith girls and fate https://www.youtube.com/watch?v=ATkeiLbBGQc Only the good ignore verse Romans 11:32 from James Joyce Pluribus studies ;) 29,264 views  May 3, 2024 - "Melissa Etheridge Covers Billy Joel’s “Only the Good Die Young” (2014)"
+
+https://old.reddit.com/r/whatisit/comments/1pmp2ey/what_is_that_thing_on_the_uber_drivers_hand/nu1vw29/
+
+Stroke it stroke it, counting, beats per minute. OPERA_A order up, technology fandom Everybody have you heard of the monomyth counting? The 13 steps of the Great Seal of the United States of America. Put your right hand out, handshake of the counting. Both far and wide. https://www.youtube.com/watch?v=69fPof-ZTnU Lyrics "You got your number down" - 15,860,300 views  September 12, 2012
