@@ -10,4 +10,4 @@ My attempt to build upon Ms. Rachel and Mr. Rogers metaphors of 2025 Ms. Rachel 
 
 &nbsp;
 
-I started over paralle with "Pluribus Learning", less poetic.
+I started over parallel with "Pluribus Learning", less poetic.
