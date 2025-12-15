@@ -1837,3 +1837,14 @@ The issue isn't silence on these topics. Left right brainrot aside. The issue is
 https://old.reddit.com/r/nottheonion/comments/1pm0oai/jd_vance_is_sick_of_67_ban_these_numbers_forever/
 
 Making the front page of Reddit is trivial if you are a non-stop source of popular culture mockery engagement. People eat up JD Vance as a source of mocking just like the Reddit comment secitons are peer to peer mocking and anti-intellectual celebration of ignorance. Top of the front page.
+
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1pmn51o/guns_dont_fix_stupid/
+
+Front page top. JD Vance age 41 does not have dementia. After all this time, Reddit thinks that social media of the White House is accidental stupid. Reddit audience eats the Surkovian onions, just as conditioned since year 2013. The entertainment of mocking "couch couch JD vance, South Park Fantasy Epstein Island vance character!" in all the mockery variations of fiction storytelling to the fiction Kremlin and White House social screenplay writers.... ... audience ... Reddit ... how many times have I covered this since April 14, 2025 on this GitHub alone? Age 41, dementia-washing.... amusement LOL content... Neil Postman's media study / NYC Trump / SNL Trump / Kremlin Surkov students / Ukraine War / Internet Research Agency on Reddit since year 2013... Anti-reality nonsense atni=truth anti-fact anti-science anti-goodness information warfare about Australia devices of weapons and Islamic monomyth Malala and post 9/11 2001 mind-fuck guns that Surkov witnessed with the year 2010 Arab Spring - "War of /r/All against /r/All" --- my own poting and subreddit /r/WarAll - https://old.reddit.com/r/WarAll/comments/1msqs1t/war_of_all_against_all_since_march_2013_war/ - peer against peer, Austraila against USA, puppeted by runaway Russia mindsets of audiences who mock in feedback looops of { South Park, Kremlin, Ukraine, White House, NATO, Australia, NRA Russia July 17, 2018 down under ARRRGH https://www.smh.com.au/world/europe/russian-nra-member-arrested-by-us-for-conspiracy-20180717-p4zrup.html } OPERA_A Levant MonoMyth mind-fucking Surkov cracked since around year 2011 past his non-fiction writing and his students ran with a gun of NRA icon MAGA status symbol waving / brandishing with Lugar in hand - https://www.youtube.com/watch?v=k2-y0nxdBAM
+
+
