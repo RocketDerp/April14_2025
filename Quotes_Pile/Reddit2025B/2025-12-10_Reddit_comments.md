@@ -234,8 +234,32 @@ Out-group hate of immigrants, other genders, other skin colors. Carl Sagan's 199
 
 https://old.reddit.com/r/popculturechat/comments/1pmxw2m/rob_reiner_and_his_wife_michele_were_killed_by/nu3wktd/
 
-People don't take Fox News HDTV audience anti-reality / break with reality problems serious. Hollywood fiction and TV entertainment, Reality TV star Donald Trump of "The Apprentice" break with reality on a mass scale. Billionaires creating ChatGPT anti-reality while Wikipedia free open learning is Langley underfunded and not encouraged as leadership for the whole world. Almost no ability people have to articulate these abandonment of reality concerns and organized information warfare that has wrecked USA. On a macro scale, people mock and insult and belittle the problem with "LOL cow" milking of Trump for over a decade. September 9, 2014 : https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ - knowing your doctor and military people believe fiction is stressful and alarming every hour of every day and it has wrecked goodness. But people are so thrilled with the high-speed messaging to discuss breaking news - they don't see the entire mob mentality of society / forest for the trees at the macro level. The Reddit comment talks about "Relapse", Fox News audiences, re-election of Trump to a second term in office. 
+<img width="896" height="870" alt="image" src="https://github.com/user-attachments/assets/5d6001be-660f-4202-99fe-df4fc5f0b306" /> People don't take Fox News HDTV audience anti-reality / break with reality problems serious. Hollywood fiction and TV entertainment, Reality TV star Donald Trump of "The Apprentice" break with reality on a mass scale. Billionaires creating ChatGPT anti-reality while Wikipedia free open learning is Langley underfunded and not encouraged as leadership for the whole world. Almost no ability people have to articulate these abandonment of reality concerns and organized information warfare that has wrecked USA. On a macro scale, people mock and insult and belittle the problem with "LOL cow" milking of Trump for over a decade. September 9, 2014 : https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ - knowing your doctor and military people believe fiction is stressful and alarming every hour of every day and it has wrecked goodness. But people are so thrilled with the high-speed messaging to discuss breaking news - they don't see the entire mob mentality of society / forest for the trees at the macro level. The Reddit comment talks about "Relapse", Fox News audiences, re-election of Trump to a second term in office. 
 
 Serious matters drowned out with amusement and entertainment engagement. It is seriously extreme to be attacking Canada as "51 state" in aggressive anti-goodness mob mentality. Public discussion and focus on group behaviors is how you address the organized hate and dehumanization going on. But people are more interested in famous people being killed in a bloody dramatic way as entertainment topic about entertainers. Like putting innocent people inside an aggressive hostile prison to live changes them into a worse person. the whole society is a pressure-cooker of anti-health care, anti-reality, fiction addiction and Trump is a symptom of Putin's organized greed and war against Ukraine since February 20, 2014. Mental health of mass mind, crowds, mob mentality, audiences is not seriously discussed with non-fiction learning. 
 
 "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M
+
+https://old.reddit.com/r/worldnews/comments/1pn23rg/leaked_us_strategy_draft_reportedly_proposed/nu4hqii/
+
+Notice the avoidance of links, quotes from books, author names. Russia has invaded Reddit social media since year 2013 and nobody sees it as a We The People information war. Instead, population fixated on Trump and the entertainment of his golf outings and orange skin and distinctive use of language and media networks. September 9, 2014 : https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/worldnews/comments/1pn23rg/leaked_us_strategy_draft_reportedly_proposed/nu4jvzi/
+
+In line with Reddit since overrun by IRA since year 2013. Reddit audience can't even name Surkov techniques and "Internet Research Agency". One-line disposable commenting messages are taken seriously while people avoid the elephant in the room on Reddit with real names and real organized manipulation of touch device users. https://www.bbc.com/news/technology-43301643
+
+https://old.reddit.com/r/worldnews/comments/1pn23rg/leaked_us_strategy_draft_reportedly_proposed/nu4hqo4/
+
+One-line satire-washing of serious problems. Mockery in the face of Kremlin and White House leadership using Surkov student techniques of total mockery governing.
+
+https://old.reddit.com/r/worldnews/comments/1pn23rg/leaked_us_strategy_draft_reportedly_proposed/nu4xl16/
+
+Recently created Reddit account. No links, no book authors, no quotes. No effort to organize and defend NATO / Poland / USA against mass man manipulation. Even before 2025 when Twitter revealed account origins... the anti-Wiki anti *all together on the same page for important topics* social media users had factual information: "November 14, 2017 — Concern about Russian influence in British politics has intensified as it emerged that more than 400 fake Twitter accounts"  https://www.theguardian.com/world/2017/nov/14/how-400-russia-run-fake-accounts-posted-bogus-brexit-tweets
+
+https://old.reddit.com/r/worldnews/comments/1pn23rg/leaked_us_strategy_draft_reportedly_proposed/nu4stkr/
+
+Audiences flock to entertainment. Fiction outsells nonfiction. Reddit users can't even name Surkov techniques. People keep marching to the antics politics and pro-mocking leadership. 
+
+https://old.reddit.com/r/worldnews/comments/1pn23rg/leaked_us_strategy_draft_reportedly_proposed/nu4kmf4/
+
+Recently created Reddit account. No links, no author names, no book titles. Just serious topics being given short message disposable comment to wash it away with more and more low-effort comments tied to no name or sustained focus on serious problems.
