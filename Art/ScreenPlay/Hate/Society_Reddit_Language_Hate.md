@@ -2,6 +2,8 @@
 
 Don't step out of line "Speak American" Reddit. I have been attaccked and attacked on Reddit for my language. Tower of Babel confict worshipers of Reddit touch devices.
 
+SEE ALSO: [Your_Grammar_Your_Word_Salad.md](Your_Grammar_Your_Word_Salad.md)
+
 &nbsp;
 
 # "sorry for any grammar mistake"
