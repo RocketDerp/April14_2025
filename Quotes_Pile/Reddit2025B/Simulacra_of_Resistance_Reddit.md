@@ -351,3 +351,12 @@ Hunreds of millions of people are attracted to and believe Trump. It's not somee
 https://old.reddit.com/r/MurderedByWords/comments/1pl4ixk/evil_is_evil_no_matter_what_name_it_bears/
 
 "The Left" rainrot vs. "the right". The entir Twitter image debate is the brainrot of politics. This anti-intelelctual behavor. All year 2025 people debating about "lists" and "photos" of Epstein. Not prventing billionars from harming nature / Earth, women still, ongoing in year 2025 - but photos from years and years ago and the *attraction* to Trump for his sexual domination over women and girls. November 8, 2013 Trump is in Moscow to parade women for male gaze. An entertainer of the population who rose to pwoer on this reputaiton of showing off women to audiences at Miss Universe Moscow. Image addictions / audience addiction to Miss Universe Moscow - isn't a left vs. right, it is not the a governing method. It's a way to wreck the world with entertainment addictions. Epstein's power was brain-exploiting people with desires and cravings. Just like Trump has done since June 16, 2015 to the whole nation. People who crave and desire out-group hate and "left vs. right" brainrot instead of remedial morality and actaully supporting Malala in Swat Valley Pkkistain sine year 2012 and year 2013 on giving young girls power and voice against elder ment / Taliban / etc.
+
+
+&nbsp;
+
+# Monday December 15, 2025
+
+https://old.reddit.com/r/MurderedByWords/comments/1pn40ao/the_smugness_didnt_last_long/
+
+Shit-talk "murdered by words" entertainment on front page on Monday morning. Back and forth mocking. Russia and NRA not discussed, serious books avoided. Just low-effort high-speed messaging system worship to turn serious problems into simulation of resistance along side the formula 1 entertainment messages and other sports and games topics. Why isn't serious topic about media addition to junk commenting on social platforms a sustained topic? NRA and Russia? "March 28, 2019 — An undercover Australian journalist from Al Jazeera spent three years inside the National Rifle Association of America." https://www.abc.net.au/listen/programs/if-youre-listening/maria-butina-russian-in-the-nra/10950764
