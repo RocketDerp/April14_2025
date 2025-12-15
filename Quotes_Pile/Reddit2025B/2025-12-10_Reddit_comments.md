@@ -210,9 +210,4 @@ In Russia, millions of people vote for Putin to murder and kill and butcher peop
 
 https://old.reddit.com/r/movies/comments/1pmxczv/legendary_director_rob_reiner_this_is_spinal_tap/nu3j155/
 
-Sunday, December 14, 2025. All year people have witnessed Americans / USA society cheer on deaths by dramatic hate of "US Aid" - and people normalize it, amusement-washing it on Reddit, LOL entertainment washing it on Reddit. And shocked with 2 people die and don't even recognize systemic warfare and killing worship values / gun worship / systemic health care dehumanization worship in USA medical system, sharing medical knowledge with people all over world, food starvation issues, etc. Harvard school of public health: https://hsph.harvard.edu/news/usaid-shutdown-has-led-to-hundreds-of-thousands-of-deaths/
-
-
-
-
-
+Sunday, December 14, 2025. All year people have witnessed Americans / USA society cheer on deaths by dramatic hate of "US Aid" - and people normalize it, amusement-washing it on Reddit, LOL entertainment washing it on Reddit. And shocked with 2 people die and don't even recognize systemic warfare and killing worship values / gun worship / systemic health care dehumanization worship in USA medical system, sharing medical knowledge with people all over world, food starvation issues, etc. Harvard school of public health: https://hsph.harvard.edu/news/usaid-shutdown-has-led-to-hundreds-of-thousands-of-deaths/ and Canadian artist "PizzaCake" just had on front page of Reddit this weekend the dehumanizing abuse of "Reddit Cares" machines / AI / corporate America systemic dehumanization that people do as hate sport on Reddit. https://old.reddit.com/r/comics/comments/1ply4mo/reddit_cares/ Which I experience regularly. People who cheer on "Leopards Ate MAGA USA faces" constantly on Reddit, cheering on suffering "to teach", while avoiding everything they can about nonfiction learning of high-speed media addiction mob mentality behaviors. Nonfiction books from Marshall McLuhan and Neil Postman, etc. 
