@@ -303,3 +303,27 @@ https://old.reddit.com/r/Fauxmoi/comments/1pn9k7q/trump_continues_to_be_a_disgus
 
 New Reddit account focusing all attention on one and only one person, the status symbol figurehead. Anything to avoid learning about Russian information warfare / PTSD CPTSD from Surkov students mob mentality manipulation. September 9, 2014 : https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
 
+https://old.reddit.com/r/Music/comments/1pne68c/jack_white_rips_trump_over_his_reaction_to_rob/nu72c9i/
+
+People can't remember reality of what happened in recent months except to meme and comment about. Charlie Kirk was a media content creator media star. Donald Trump is a Reality TV media star. Rob Reiner and spouse that Trump attacks is a media star. The whole fucking society is flocking from media star to media star and everyday We The People are heading all power over to entertainment all the time! Surkov won! We all need to sober up from nonstop notification stimulation, Russia won an information war and everyone is in computer-driven high speed feedback loops against each other! Stop ignoring the Putin Trump anti-Ukraine anti-EU anti-Canada anti-health care USA, anti-food affordability USA self-harm that started in Russia. STUDY December 20, 2013, study November 8, 2013. Charlie Kirk needed RESCUE from Putin's mind-fucking to self-harm USA.
+
+https://old.reddit.com/r/Music/comments/1pne68c/jack_white_rips_trump_over_his_reaction_to_rob/nu71h2l/
+
+People in audiences fall for the President Tony Clifton - they won't remove it, they have death-wish fantasy that requires no We The People governing ourselves out of our media addiction. Media society reformation, we need a Germany Martin Luther to EVERY media addiction in USA. Nail Neil Postman's books to every door in USA.
+
+https://old.reddit.com/r/Music/comments/1pne68c/jack_white_rips_trump_over_his_reaction_to_rob/nu6z4tl/
+
+Tiny-short messages. Nobody wanting to discuss Fox News HDTV and "The Apprentice" audience behaviors of power being concentrated by vile leadership. People are attracted to vile hate-filled leadership signals. Putin mind-fucked the entire population since year 2913. IRA won.
+
+https://old.reddit.com/r/Music/comments/1pne68c/jack_white_rips_trump_over_his_reaction_to_rob/nu6zces/
+
+People are attracted to an icon of self-harm and hate. The People, everyone, is the problem. People CHANGED in year 2013 to admire and seek out hate leaders.
+
+https://old.reddit.com/r/Music/comments/1pne68c/jack_white_rips_trump_over_his_reaction_to_rob/nu71kl5/
+
+Recent Reddit account. Cheering on *more hate for Christmas*, *Hate Harder*. There is no high road at all, quoting MLK Jr... it's all low road race to bottom competitive hate for hate.
+
+https://old.reddit.com/r/Music/comments/1pne68c/jack_white_rips_trump_over_his_reaction_to_rob/nu71uoj/
+
+And since June 16, 2015 - for over a decade, the audience of touch devices can't get enough Putin and Trump shit. Nonfiction learning about Surkov and IRA avoided at all cost by society. Even Pluribus TV show on year 1776 hive mind teaching concepts ignored in favor of superficial and shallow non-concern for using art as a way to communicate and salvage good foundation of USA founding.
+
