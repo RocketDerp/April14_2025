@@ -327,3 +327,19 @@ https://old.reddit.com/r/Music/comments/1pne68c/jack_white_rips_trump_over_his_r
 
 And since June 16, 2015 - for over a decade, the audience of touch devices can't get enough Putin and Trump shit. Nonfiction learning about Surkov and IRA avoided at all cost by society. Even Pluribus TV show on year 1776 hive mind teaching concepts ignored in favor of superficial and shallow non-concern for using art as a way to communicate and salvage good foundation of USA founding.
 
+https://old.reddit.com/r/interestingasfuck/comments/1pngo8d/germanys_plan_to_invade_france_through_the/nu7jgt6/
+
+For it to be "dumb", you have to thin hate and murder and organized killing is dumb. Humanity is not addressing the global problem, prizing of hate. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)!!!
+
+https://old.reddit.com/r/interestingasfuck/comments/1pngo8d/germanys_plan_to_invade_france_through_the/nu7kln8/
+
+People who wish murders and killers were more organized and made better plans to destroy and wreck lives.
+
+https://old.reddit.com/r/NoFilterNews/comments/1pnbl9g/trumps_own_fans_left_repulsed_by_heartless_rob/nu6itf5/
+
+It only makes sense if you study the September 9, 2014 story about the year 2013 onward War Against Reality that Russia is waging via media systems. Including Reddit media. https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/NoFilterNews/comments/1pnbl9g/trumps_own_fans_left_repulsed_by_heartless_rob/nu6mus0/
+
+<img width="1024" height="534" alt="image" src="https://github.com/user-attachments/assets/d14efdc4-cacf-4d23-b5f7-b8898a101431" /> They aren't turning away from hate. Prizing hate is the entire USA society. Blocking each other on social, high-speed messaging addictions running the nation into machine love and persons hated.
+
