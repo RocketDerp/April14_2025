@@ -1264,8 +1264,17 @@ Mocking Joseph Campbell Power of Myth 1988 away. Red Letter drunk on mocking / m
 
 @7:09 obligatory context of Star Wars / Skywalker Ranch. 1988 filmed by George Lucas, Power of Myth: "Shakespeare said that art is a mirror held up to nature. And that’s what it is. The nature is your nature, and all of these wonderful poetic images of mythology are referring to something in you. When your mind is simply trapped by the image out there so that you never make the reference to yourself, you have misread the image. The inner world is the world of your requirements and your energies and your structure and your possibilities that meets the outer world. And the outer world is the field of your incarnation. That’s where you are. You’ve got to keep both going. As Novalis said, “The seat of the soul is there where the inner and outer worlds meet.” - age 83 Sarah Lawrence College professor
 
-https://www.youtube.com/watch?v=YqR1_c52ZRE
+&nbsp;
 
+https://www.youtube.com/watch?v=feO1Sl--Hg0
+
+Campbell: 
+
+Diagnosing the same disease over and over. https://youtu.be/feO1Sl--Hg0?t=224 (Me, Stephen Gutknecht, Neil Postman disease) https://youtu.be/feO1Sl--Hg0?t=285 stable unwell mental hygiene in USA society. https://youtu.be/feO1Sl--Hg0?t=330 "most reliable thing in your life" https://youtu.be/feO1Sl--Hg0?t=356 "being profoundly unwell" sane response to situation. 
+
+&nbsp;
+
+https://www.youtube.com/watch?v=YqR1_c52ZRE        
 Red Letter Media vs. Shelby Oaks: What Everyone’s Missing
 
 &nbsp;
