@@ -183,3 +183,36 @@ https://old.reddit.com/r/nottheonion/comments/1pmt0h6/texas_trans_bathroom_ban_l
 
 Top voted comment on front page Reddit posting. Audience of Reddit calling for more entertainment shows around Trumpism / MAGA / Texas leadership. Satire-washing, mockery-washing, irony-washing humor-washing. Wrapping serious dehumanization problems up on amusement. Neil Postman's 1985 book "Amusing Ourselves to Death" explains these short message addictions to making everything electric media content. Reddit for a decade has been language-enforcers "don't write or use English in any way schizophrenic" / creative metaphors / mixed metaphors / follow James Joyce in composing comment participation - as the guards / gate-keepers in USA will badger you and call you mentally sick. While worshiping Donald Trump's writing on Twitter and Truth Social as the greatest entertainment messages ever created for Total Mockery audiences. ... ... ...      
 * "As I write, the **President of the United States is a former Hollywood movie actor**. One of his principal challengers in 1984 was once a featured player **on television**’s most glamorous show of the 1960’s, that is to say, an astronaut. Naturally, a movie has been made about his extraterrestrial adventure. Former nominee George McGovern has hosted the popular television show “Saturday Night Live.” So has a candidate of more recent vintage, the Reverend Jesse Jackson." ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. Chapter 1: The Medium is The Metaphor. Page 26 of 291 pages (modern edition with context intro). November 25, 1985
+
+https://old.reddit.com/r/movies/comments/1pmxczv/legendary_director_rob_reiner_this_is_spinal_tap/nu3k0jw/
+
+Media ecology of audience.
+
+https://old.reddit.com/r/movies/comments/1pmxczv/legendary_director_rob_reiner_this_is_spinal_tap/nu3jivb/
+
+Good communications skills from talented parents and vast friendships and wealth to apply to problems...
+
+https://old.reddit.com/r/movies/comments/1pmxczv/legendary_director_rob_reiner_this_is_spinal_tap/nu3jutp/
+
+Common is people using automobile machines to stare into social media and kill pedestrians and other car drivers, but huge labor over the past decades has made cars safer for the drivers / safety features like seat belts and airbags and crumple zones. But the egoism of aggressive driving, drink driving, etc. At least now the day of Uber / Lift point to point taxi pricing with communications networks can solve drink driving, but the egoism of competition of drink driving persists. It is the rarity, less common, that people don't see stabbing deaths - it isn't common. "Car accident and pedestrian deaths vastly outnumber stabbing deaths in the U.S.; in 2023, around 40,000 people died in crashes (with over 7,000 pedestrians), while stabbing homicides are typically in the 1,500-1,700 range, showing that vehicle-related fatalities are about 20-25 times higher than knife homicides annually." - Google Search summary 2025-12-14 All hate in all the world needs to be dealt with through global attitude change / learning / education. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md) - and health care related stress and deaths from the USA medical system red tape and punishment system of power (mocking those without health care as punishment, dehumanizing in the name of competition and egoism).
+
+https://old.reddit.com/r/movies/comments/1pmxczv/legendary_director_rob_reiner_this_is_spinal_tap/nu3l64h/
+
+Parents driving cars kill their children in accidents every year. Accidental giving toxic / food poisoning to their children, etc. It is the entertainment violence of Hollywood that has people focus more on film directors and famous people.
+
+https://old.reddit.com/r/movies/comments/1pmxczv/legendary_director_rob_reiner_this_is_spinal_tap/nu3l3tw/
+
+I am terrified at watching Russia murder strangers. Bombs falling from the sky like god or aliens are killing neighbors, friends, family. Nuclear war and Putin and Trump mania of people cheering on the Second Coming of Jesus with weapons of mass destruction in the hands of people who promote hate and mass dehumanization. Children without health care and media knowledge because people are so entertained watching sports and games that open sourcing medicines and having athletic talent going to organize construction of medial education and hospital systems, etc, etc.
+
+https://old.reddit.com/r/movies/comments/1pmxczv/legendary_director_rob_reiner_this_is_spinal_tap/nu3l2jf/
+
+In Russia, millions of people vote for Putin to murder and kill and butcher people in Ukraine since February 20, 2014 and still ongoing now December 14, 2025. They vote, go about their day watching sports games / TV / video games / chatting about how their mass killer Putin is a cool guy. Same thing with those manipulated by Russia's Internet Research Agency since year 2013 - who think it would be great in the USA to have the values of the Taliban and Putin and constantly be threatening disliked people with killing and death like Ukraine has lived under. People who think pushing a vote button or writing on a voting paper for self-harm leaders / killers / murders like Putin in Russia is good times! No blood on their hands, just cheering on the horrors of faith in hate, religion values of hate thy neighbor.
+
+https://old.reddit.com/r/movies/comments/1pmxczv/legendary_director_rob_reiner_this_is_spinal_tap/nu3j155/
+
+Sunday, December 14, 2025. All year people have witnessed Americans / USA society cheer on deaths by dramatic hate of "US Aid" - and people normalize it, amusement-washing it on Reddit, LOL entertainment washing it on Reddit. And shocked with 2 people die and don't even recognize systemic warfare and killing worship values / gun worship / systemic health care dehumanization worship in USA medical system, sharing medical knowledge with people all over world, food starvation issues, etc. Harvard school of public health: https://hsph.harvard.edu/news/usaid-shutdown-has-led-to-hundreds-of-thousands-of-deaths/
+
+
+
+
+
