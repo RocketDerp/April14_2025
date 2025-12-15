@@ -174,3 +174,8 @@ https://old.reddit.com/r/whatisit/comments/1pmp2ey/what_is_that_thing_on_the_ube
 https://old.reddit.com/r/whatisit/comments/1pmp2ey/what_is_that_thing_on_the_uber_drivers_hand/nu1vw29/
 
 Stroke it stroke it, counting, beats per minute. OPERA_A order up, technology fandom Everybody have you heard of the monomyth counting? The 13 steps of the Great Seal of the United States of America. Put your right hand out, handshake of the counting. Both far and wide. https://www.youtube.com/watch?v=69fPof-ZTnU Lyrics "You got your number down" - 15,860,300 views  September 12, 2012
+
+https://old.reddit.com/r/AmIOverreacting/comments/1pmnu9d/aio_my_father_ruined_my_drawing/nu1n6d4/
+
+Drawings and writing pass the Reddit entertainment desires. Just like Donald J Trump since June 16, 2015 provides constant stimulation of art work / writing / communcations entertainment. If you aren't entertaining and are in any way not what the Reddit Hive Mind desires for art images and word chocie of English writing... yuu will be downvoted and insulted and dehumanized "Speak American". That's why the message on front page of Reddit has to have "(ps: sorry for any grammar mistakes, english is not my first language)" becaues Reddit California USA culture is MAGA values USA December 2025 on "Speak Reddit! Speak Hive Mind! Speak American! Speak ego pleasing entertainment and content creation!" like Reality TV actor Donald J. Trump constantly leads with President Tony Clifton gifts for Reddit amusement and mockery.
+
