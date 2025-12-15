@@ -1861,3 +1861,9 @@ Never ends. Since June 16, 2015 - over a decade - Reddit society / Reddit touch 
 https://old.reddit.com/r/CringeTikToks/comments/1pmzsvh/all_that_money_but_wont_donate_baby_formula_to_a/
 
 Sunday Chruch criticisn of Texas entertainment Christmas show.  **All that spare time and free time pent on Reddit commenting about Jesus and Bible and wealth**... but nobody in USA promoting name-dropping Bible verse "1 John 3:17" and making it known to ever person over age 12. One sentence known to every person and applied to Elon Musk D.O.G.E. in year 2025, and Donald Trump seeling Bible and posing with Bible (Matthew 6:5). But the entertainment of video and low-effort disposable commenting by Reddit society is prized... when being serious about Bible literacy problems wrecking the USA is not welcome or practiced. Amusement and entertainment addiction isn't just driving Bible reading in the Church venue for toy consumerism Christmas. It is Reddit every day all day all year in 2025 that creates MAGA, Texas governing  Elon Musk in Texas wealth admiration. 
+
+&nbsp;
+
+https://old.reddit.com/r/shittymoviedetails/comments/1pn4xgg/in_fallout_season_2_2025_an_ai_recap_of_season_1/
+
+Amazon billionaires network. People can't connect this type of junk to Rupert Murdoch and Truth Social and Elon Musk Twitter. Donald Trump fighter jet "Danger Zone" video is leading society. Leadership of anti-reality, machine love, human hate. 
