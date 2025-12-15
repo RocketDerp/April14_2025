@@ -1873,3 +1873,9 @@ Amazon billionaires network. People can't connect this type of junk to Rupert Mu
 https://old.reddit.com/r/worldnews/comments/1pn580k/us_engaging_in_extreme_rightwing_tropes/
 
 USA society is hate-filled dehumanizing - driven by media addiction to entertainment leader Reality TV star Donald Trump. And people so thrilled to have hate and mocking all the time, abandoned nonfiction learning of media ecology / Neil Postman. NOTHING CAN STOP IT. Neil Postman is not UNKNOWN. And gets recent cover in Time magazine. September 10, 2025 https://time.com/7313999/neil-postman-trump-prediction/
+
+&nbsp;
+
+https://old.reddit.com/r/complaints/comments/1pnas00/dear_trump_maga_what_the_fuck_is_wrong_with_you/
+
+Reddit front page screaming what is wrong with Trump? Television. Fox News. Jen Senko's 2015 / 2016 film "Brainwashing of my Dad" applies to Donald Trump. He is a Twitter addict / TV news addiction / Truth Social addict who rages and avoids nonfiction science learning. Russia has manipulated Reddit society. Trump, Musk, MAGA - and people will not educate our way out of media induced fiction. People say "cult" and won't seriously study and stay focused on the history of cults. Hey, Christmas Santa cult in 10 days USA! anything TO AVOID nonfiction learning of media ecology: Neil Postman, Marshall McLuhan, Joseph Campbell, Jean E, Peter P, study of Surkov students in Russia.
