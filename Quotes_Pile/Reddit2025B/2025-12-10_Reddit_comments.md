@@ -348,3 +348,46 @@ https://old.reddit.com/r/interesting/comments/1pnid69/til_snow_doesnt_melt_in_a_
 Note the absence of author names, links, book titles, etc.
 
 https://old.reddit.com/r/interesting/comments/1pnid69/til_snow_doesnt_melt_in_a_microwave_this_prompted/nu807us/
+
+https://old.reddit.com/r/law/comments/1pnog4b/the_president_has_signed_an_executive_order/nu9okgk/
+
+https://old.reddit.com/r/law/comments/1pnog4b/the_president_has_signed_an_executive_order/nu9etfx/
+
+https://old.reddit.com/r/law/comments/1pnog4b/the_president_has_signed_an_executive_order/nu98rph/
+
+<img width="892" height="404" alt="image" src="https://github.com/user-attachments/assets/fa0d1068-73fa-4292-a6c2-1fb2384dce0f" /> United States of America social media addicts with their disposable high-speed commenting that drown out serious and important understanding with attraction to clown performers of Tony Clifton acts have over-run all serious nonfiction learning with mockery / mocking / clowning content addictions. Surkov students, Russian information warfare, the Internet Research Agency... ran off the thoughtful nonfiction participants. ... ... ...       
+“Everything in our background has prepared us to know and resist a prison when the gates begin to close around us . . . But what if there are no cries of anguish to be heard? Who is prepared to take arms against a sea of amusements? To whom do we complain, and when, and in what tone of voice, when serious discourse dissolves into giggles? What is the antidote to a culture's being drained by laughter?”
+― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
+
+https://old.reddit.com/r/law/comments/1pnog4b/the_president_has_signed_an_executive_order/nu9aa5y/
+
+The dumbing down of USA is due to people preferring entertainment fiction content. It's cool to write no-citation disposable high-speed comments that drown spare time and free time. The prizing of rapid conversation over serious non-fiction teaching and learning. The anti-Malala entertainment-first meme exchange society. Leadership that is sincere and honest is driven away by mobs of practiced fast reactionary mindset touch device users. ... ... ...        
+“Science is more than a body of knowledge; it is a way of thinking. I have a (year 1995) foreboding of an America in my children’s or grandchildren’s time—when the United States is a service and information economy; when nearly all the key manufacturing industries have slipped away to other countries; when awesome technological powers are in the hands of a very few, and no one representing the public interest can even grasp the issues; when the people have lost the ability to set their own agendas or knowledgeably question those in authority; when, clutching our crystals and nervously consulting our horoscopes, our critical faculties in decline, unable to distinguish between what feels good and what’s true, we slide, almost without noticing, back into superstition and darkness. The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the **30-second** sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but especially a kind of [celebration of ignorance](https://www.youtube.com/watch?v=wcY-x1VuWtE). As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning—not just of science, but of anything—are avoidable, even undesirable.”
+― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995, page 59
+
+https://old.reddit.com/r/law/comments/1pnog4b/the_president_has_signed_an_executive_order/nu9dbo4/
+
+Mythological John 1:1 - people won't stand up for words of Christmas wealth lords, words like "1 John 4;20" to those who hate with Bible science fiction storytelling. "1 John 3:17" mention whenever Murdoch, Musk, Trump, Apple computers Apple TV comes up, Amazon, etc.
+
+https://old.reddit.com/r/law/comments/1pnog4b/the_president_has_signed_an_executive_order/nu9admu/
+
+Sincere and honest people are driven off in favor of manipulators who please crowds. The attraction to Murdoch media empire gets no sustained effort, Reddit users can't name "Jen Senko" and question why Reddit peers don't promote *The Little Gal* standing up to the media crisis since year 2015 / 2016. People won't blame Russia for turning memes into mind-fucking and hate-promoting. The Internet Research Agency can't be named by Bluesky and Reddit users and be taken seriously. Honest and sincere people largely gave up and adopted meme-think reactionary media usage.
+
+https://old.reddit.com/r/law/comments/1pnog4b/the_president_has_signed_an_executive_order/nu9h3tt/
+
+People in society believe blocking each other on meme mills solves the underlying hate. This is organized hate technology and mindsets. Russia won an information warfare against USA and people can't even see the absence of Peter Pomerantsev quotes on Reddit, who should be mentioned constantly in defense of USA. Peter Pomerantsev is't name dropped, quotes from his books and public speaking are ignored and unknown. The silence of Peter Pomerantsev's name and information is deafening on Reddit and Bluesky.
+
+https://old.reddit.com/r/law/comments/1pnog4b/the_president_has_signed_an_executive_order/nu98os2/
+
+Better television and better entertainment for Reddit front page. Everything MAGA / Trump is prime content for meme addicts who avoid learning and staying focused on cult behaviors to high-speed media systems.
+
+https://old.reddit.com/r/law/comments/1pnog4b/the_president_has_signed_an_executive_order/nu9ag4w/
+
+Tiny-short Reddit comments that are popular. Mockery-washing, satire-washing, eating right out of the hands of the war against reality. Parroting the Russian techniques of anti-reality. No links, no author names, no book titles on serious subjects. Just miking the LOL cow of White House falsehoods as Reddit-style "wins" of jokes and amusement.
+
+https://old.reddit.com/r/law/comments/1pnog4b/the_president_has_signed_an_executive_order/nu9tnz6/
+
+The tone of amusement and mockery "Leopards ate MAGA faces" feedback loops with "libtards are crying, tears of USA people prized" that people eat up on meme mills (including Reddit) works. A population that prizes trash information and shallowness over seriousness. Amusement and jokes win power, and Trump provides Tony Clifton absurd surreal comedy for social touch device users. ... ... ...       
+“Everything in our background has prepared us to know and resist a prison when the gates begin to close around us . . . But what if there are no cries of anguish to be heard? Who is prepared to take arms against a sea of amusements? To whom do we complain, and when, and in what tone of voice, when serious discourse dissolves into giggles? What is the antidote to a culture's being drained by laughter?”
+― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
+
