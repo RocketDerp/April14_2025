@@ -1385,5 +1385,6 @@ So declaring "it is remarkably short" and "I have read it" does not demonstrate 
 # Red Letter Media 1 hour on society
 
 Media Ecology 230 course     
+Situation awareness, state of the WWW unions. 2025-12-16     
 PLEASE SEE: https://github.com/GreatSealUSA/GreatSealUSA_Art/blob/main/Experience_Pluribus_Project/Social_Media_Falling_Bigger_Cliff.md
 
