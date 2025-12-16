@@ -96,3 +96,6 @@ Telling the audience to stand up to media addictions from a media addiction WWE 
 If people could sustain focus on this peaceful stopping of entertainment (this GitHub page)...     
 https://old.reddit.com/r/SquaredCircle/comments/1po4zze/mick_foley_has_informed_wwe_he_will_refuse_to/
 
+Stand Up Hear! Hear!        
+https://autistics.life/@RoundSparrow/115730459267201801     
+https://bsky.app/profile/roundsparrow.bsky.social/post/3ma4osqupzs2m    
