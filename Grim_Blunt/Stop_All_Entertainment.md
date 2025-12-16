@@ -78,10 +78,16 @@ Proverbs 14:31  - Whoever oppresses a poor man insults his Maker, but he who is 
 
 ### Social media did not stand up
 
-People on socal media using spare time and free time did not "stand up" for seirous situations. Entertainment and mocking is what people prize, mockery messaging. Amusement messaging. Humor-washing the serious situation.
+People on social media using spare time and free time did not "stand up" for serious situations. Entertainment and mocking is what people prize, mockery messaging. Amusement messaging. Humor-washing the serious situation.
 
 #### October 1, 2025
 
 https://autistics.life/@RoundSparrow/115299985532975924    
 https://bsky.app/profile/did:plc:rwyn2e7jpkbhgnmruwj5tqoq/post/3m25jgse2bs2i    
 https://old.reddit.com/r/politics/comments/1nvb3ts/pritzker_calls_for_trumps_removal_from_office/   
+
+#### December 16, 2025
+
+June 16, 2025 to December 16, 2025 MAGA Trumpism Fox News Nation      
+Entertainment addicts drive the USA, and Donald Trump is the master of leading addicts to electric media.    
+https://old.reddit.com/r/Music/comments/1po0htg/fbi_director_kash_patel_faces_backlash_over/
