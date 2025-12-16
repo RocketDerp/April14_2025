@@ -343,3 +343,8 @@ https://old.reddit.com/r/NoFilterNews/comments/1pnbl9g/trumps_own_fans_left_repu
 
 <img width="1024" height="534" alt="image" src="https://github.com/user-attachments/assets/d14efdc4-cacf-4d23-b5f7-b8898a101431" /> They aren't turning away from hate. Prizing hate is the entire USA society. Blocking each other on social, high-speed messaging addictions running the nation into machine love and persons hated.
 
+https://old.reddit.com/r/interesting/comments/1pnid69/til_snow_doesnt_melt_in_a_microwave_this_prompted/nu82bwe/
+
+Note the absence of author names, links, book titles, etc.
+
+https://old.reddit.com/r/interesting/comments/1pnid69/til_snow_doesnt_melt_in_a_microwave_this_prompted/nu807us/
