@@ -1659,3 +1659,7 @@ Trolling me with tiny-short banal comments. People are entirely unable to think 
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pkeywi/pluribus_1x07_the_gap_episode_discussion/ntupti3/
 
 People can't understand how lottery works, how state-run gas station lotteery tickets money is lost to the government to pay for schools and other projects. People who can't process Egnlish unless they run it thorugh ChatGPT to format it just the way they expect. Ideas and words about taxes and the mathmatics of lottery gambling seems lost on many people.
+
+https://old.reddit.com/r/jamesjoyce/comments/1or08bk/anyone_watch_pluribus/nnza41u/
+
+<img width="1760" height="1298" alt="Screenshot from 2025-12-15 18-21-51" src="https://github.com/user-attachments/assets/341e8edd-32fa-4313-8b24-3c4fad7c7c6e" /> Not my comment, but core Finnegans Wake.
