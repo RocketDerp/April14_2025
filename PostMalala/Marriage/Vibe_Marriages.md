@@ -33,3 +33,13 @@ CAMPBELL: What we’ve got on our hands. If you want to find out what it means t
 
 Monster State: Swat Valley Pakistan January 2009 blogger.    
 Monster State: Parenting as Donald Trump Truth Social leadership. Divorced manipulative role model for parenting and employment rulers.   
+
+&nbsp;
+
+&nbsp;
+
+# Choice Marriage Honesty
+
+### Choice Marriage ToDo 
+
+1. https://old.reddit.com/r/todayilearned/comments/1pnxc52/til_study_found_that_women_rated_the_same_man_as/
