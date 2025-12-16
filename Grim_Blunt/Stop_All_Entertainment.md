@@ -91,3 +91,8 @@ https://old.reddit.com/r/politics/comments/1nvb3ts/pritzker_calls_for_trumps_rem
 June 16, 2025 to December 16, 2025 MAGA Trumpism Fox News Nation      
 Entertainment addicts drive the USA, and Donald Trump is the master of leading addicts to electric media.    
 https://old.reddit.com/r/Music/comments/1po0htg/fbi_director_kash_patel_faces_backlash_over/
+
+Telling the audience to stand up to media addictions from a media addiction WWE platform.    
+If people could sustain focus on this peaceful stopping of entertainment (this GitHub page)...     
+https://old.reddit.com/r/SquaredCircle/comments/1po4zze/mick_foley_has_informed_wwe_he_will_refuse_to/
+
