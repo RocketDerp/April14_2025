@@ -391,3 +391,14 @@ The tone of amusement and mockery "Leopards ate MAGA faces" feedback loops with 
 “Everything in our background has prepared us to know and resist a prison when the gates begin to close around us . . . But what if there are no cries of anguish to be heard? Who is prepared to take arms against a sea of amusements? To whom do we complain, and when, and in what tone of voice, when serious discourse dissolves into giggles? What is the antidote to a culture's being drained by laughter?”
 ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
 
+https://old.reddit.com/r/NoFilterNews/comments/1pnmn51/number_of_republicans_that_identify_as_maga_takes/nu94xir/
+
+Always faith in more hate. Billionaire Rupert Murdoch sets fires of hate, and everyone jumps on with their touch media devices. Messages of *hate harder, hate USA people* all over. Anything to avoid confronting the Fox News media addiction and Internet Research Agency infiltration of no-identity Twitter and Reddit.
+
+https://old.reddit.com/r/NoFilterNews/comments/1pnmn51/number_of_republicans_that_identify_as_maga_takes/nu99ydl/
+
+Satire-washing, Trump provides constant stimulating entertainment. This has been going on with Reddit audiences for over a full decade. Tomorrow will be December 16 - making it TEN YEARS AND SIX MONTHS of non-stop mocking in feedback loops with MAGA / Trump / Putin. Never-ending *mock harder* amusement-washing of Trump as a great source of Reddit entertainment.
+
+https://old.reddit.com/r/NoFilterNews/comments/1pnmn51/number_of_republicans_that_identify_as_maga_takes/nu90n7w/
+
+Honest and sincere people are silenced and dishonest leaders like Rupert Murdoch praised. Reddit society is a hate breeding ground that runs of any attempt at sincere addressing of mob mentality. Why does nobody on Reddit know Peter Pomerantsev - despite 3 published books and (Trump relevant / MAGA relevant) articles going back to year 2010 all over the Internet? "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M
