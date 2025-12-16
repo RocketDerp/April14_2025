@@ -94,7 +94,8 @@ https://old.reddit.com/r/Music/comments/1po0htg/fbi_director_kash_patel_faces_ba
 
 Telling the audience to stand up to media addictions from a media addiction WWE platform.    
 If people could sustain focus on this peaceful stopping of entertainment (this GitHub page)...     
-https://old.reddit.com/r/SquaredCircle/comments/1po4zze/mick_foley_has_informed_wwe_he_will_refuse_to/
+https://old.reddit.com/r/SquaredCircle/comments/1po4zze/mick_foley_has_informed_wwe_he_will_refuse_to/      
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1po82ko/mick_foley_is_going_to_be_be_maga_enemy_1_for_a/
 
 Stand Up Hear! Hear!        
 https://autistics.life/@RoundSparrow/115730459267201801     
