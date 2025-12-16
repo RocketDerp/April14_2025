@@ -1663,3 +1663,7 @@ People can't understand how lottery works, how state-run gas station lotteery ti
 https://old.reddit.com/r/jamesjoyce/comments/1or08bk/anyone_watch_pluribus/nnza41u/
 
 <img width="1760" height="1298" alt="Screenshot from 2025-12-15 18-21-51" src="https://github.com/user-attachments/assets/341e8edd-32fa-4313-8b24-3c4fad7c7c6e" /> Not my comment, but core Finnegans Wake.
+
+https://old.reddit.com/r/TrueLit/comments/1pjd9g8/an_american_screenplay_writer_spoke_at_the_wga/nucifh7/
+
+<img width="1064" height="506" alt="image" src="https://github.com/user-attachments/assets/8d021594-e6b5-4adb-a628-e3656fc24a89" /> Mind blown Reddit user "what the hell" extreme blow-out mind reaction. People unable to contain that a book page number of "Inner Reaches of Outer Space" media ecology of mythology ecology is being referenced. Context bewilderment / context blindness of Reddit touch device users who can't read a book or comprehend February 15, 2025 WGA presentation. People who start out with "what the hell" blown minds are rarely sincere in seeking understanding and the comment isn't intended to actually be addressed in the reactionary media environment of Reddit... with that mindset of "what the hell".  Also... the **"bot" machine bewilderment** of all social media / Internet media since year 2022 with ChatGPT that saturates Reddit end-user minds.
