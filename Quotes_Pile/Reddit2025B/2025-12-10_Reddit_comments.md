@@ -1,6 +1,6 @@
 https://old.reddit.com/r/Damnthatsinteresting/comments/1pj00k2/rare_footage_of_last_sunset_of_the_20th_century/nt9um8j/
 
-Media ecology on percepiton of dates. 
+Media ecology on perception of dates. 
 
 https://old.reddit.com/r/Damnthatsinteresting/comments/1pj00k2/rare_footage_of_last_sunset_of_the_20th_century/nt9tncu/
 
@@ -8,7 +8,7 @@ https://old.reddit.com/r/Damnthatsinteresting/comments/1pj00k2/rare_footage_of_l
 
 https://old.reddit.com/r/Damnthatsinteresting/comments/1pj00k2/rare_footage_of_last_sunset_of_the_20th_century/nt9v7q3/
 
-And human city vs. empty ocean choice. The year itself is nothing matical about movement of naturee and planets. Nobody seems to be discussing this. Birth of Jesus is a popularity topic. And it rarely seems to come up in anti-Jewish / Hollocaust criticisms. And that unified media and travel is why Jesus religion now dominates calendar systems of India / Japan / China that Jesus wasn't center of. Let alone year 1492 and Americas.
+And human city vs. empty ocean choice. The year itself is nothing magical about movement of nature and planets. Nobody seems to be discussing this. Birth of Jesus is a popularity topic. And it rarely seems to come up in anti-Jewish / Holocaust criticisms. And that unified media and travel is why Jesus religion now dominates calendar systems of India / Japan / China that Jesus wasn't center of. Let alone year 1492 and Americas.
 
 https://old.reddit.com/r/Damnthatsinteresting/comments/1pj00k2/rare_footage_of_last_sunset_of_the_20th_century/nta2chq/
 
@@ -45,7 +45,7 @@ Amused to death nation. Trump and Putin, so funny to people. Surkov won.
 
 https://old.reddit.com/r/europe/comments/1pjzz27/leaked_files_show_us_wants_to_persuade_four/nth9x4u/
 
-<img width="972" height="390" alt="image" src="https://github.com/user-attachments/assets/31c5fdba-5d5a-4c9c-bf2f-9a28ae928d4d" /> People in LOL land USA rage only for more memes. Not actual humanism and unity of spiritual meaning. Just joking away here in amusement land about others suffering. Out-group mockery. The social media society (all media platforms) "fuck around and find out" is the very basis of I.C.E. and Putin power. Wrecking humanism of people who "fuck around" with those who worship power, worship Putin's prizing of power. Social media society turns it into entertainment about falling out of a window for LOL memes. OPERA_A Social media addicts and other people mocky away "Only A Fool Would Say that' about John Lennon's Imagine. https://www.youtube.com/watch?v=6KgWEGnJTJc
+<img width="972" height="390" alt="image" src="https://github.com/user-attachments/assets/31c5fdba-5d5a-4c9c-bf2f-9a28ae928d4d" /> People in LOL land USA rage only for more memes. Not actual humanism and unity of spiritual meaning. Just joking away here in amusement land about others suffering. Out-group mockery. The social media society (all media platforms) "fuck around and find out" is the very basis of I.C.E. and Putin power. Wrecking humanism of people who "fuck around" with those who worship power, worship Putin's prizing of power. Social media society turns it into entertainment about falling out of a window for LOL memes. OPERA_A Social media addicts and other people mock away "Only A Fool Would Say that' about John Lennon's Imagine. https://www.youtube.com/watch?v=6KgWEGnJTJc
 
 https://old.reddit.com/r/europe/comments/1pjzz27/leaked_files_show_us_wants_to_persuade_four/nthadce/
 
@@ -83,7 +83,7 @@ https://old.reddit.com/r/CringeTikToks/comments/1pl6bm3/racist_marine_fucked_aro
 
 https://old.reddit.com/r/CringeTikToks/comments/1pl6bm3/racist_marine_fucked_around_and_found_out/ntqo8yt/
 
-Like Reddit hive mind uses "shizo" as a slur to me. How screaming "dementia" at Trump every day without citing professional organized writing such as Dr. Bandy X. Lee is considered good. Adults, not just children. 
+Like Reddit hive mind uses "shitzo" as a slur to me. How screaming "dementia" at Trump every day without citing professional organized writing such as Dr. Bandy X. Lee is considered good. Adults, not just children. 
 
 https://old.reddit.com/r/CringeTikToks/comments/1pl6bm3/racist_marine_fucked_around_and_found_out/ntqcigd/
 
@@ -113,7 +113,7 @@ Because it got so big on social media, under non-Trump it would have likely gott
 
 https://old.reddit.com/r/TwoXChromosomes/comments/1pl5zyb/got_yelled_at_for_being_in_the_womens_locker_room/ntq82mv/
 
-I get called "Shitzo" and mocked all over Reddit. And people want secret police to raid and ban others for their bad mental attitudes and out-group hat. people are under siege from billionares on transgender issues. Putin announced it in December 2013 - and people won't stay focusred on the same page and keep asserting it as organized military warfare against goodness / love / compassion / forgivness itself.  December 20, 2013 https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/ - right after Trump was in Moscow November 8, 2013 - and right before February 20, 2014 Ukraine war.
+I get called "Shitzo" and mocked all over Reddit. And people want secret police to raid and ban others for their bad mental attitudes and out-group hat. people are under siege from billionaires on transgender issues. Putin announced it in December 2013 - and people won't stay focused on the same page and keep asserting it as organized military warfare against goodness / love / compassion / forgiveness itself.  December 20, 2013 https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/ - right after Trump was in Moscow November 8, 2013 - and right before February 20, 2014 Ukraine war.
 
 https://old.reddit.com/r/notinteresting/comments/1pl4dly/what_do_i_do_in_this_situation/ntr4c73/
 
@@ -121,7 +121,7 @@ Media ecology of taking a photo then screen-shot of it.
 
 https://old.reddit.com/r/mildlyinfuriating/comments/1plfkrz/my_13yo_brother_wont_stop_using_these_slangs/nts7iap/
 
-Age 13, raised under Donald Trump. Meme-speak "isn’t an option lmaooo" - machine lovers of touch devices and Reddit dehumanization power both. MAGA USA 2025 alnguage leadership by Fox News parenting / Donald Trump Truth Social message content as power and cool. And the kids have power, they are NOT alright being lead by Fox News Language since June 16, 2015. https://www.theatlantic.com/culture/archive/2020/09/fox-news-trump-language-stelter-hoax/616309/
+Age 13, raised under Donald Trump. Meme-speak "isn’t an option lmaooo" - machine lovers of touch devices and Reddit dehumanization power both. MAGA USA 2025 language leadership by Fox News parenting / Donald Trump Truth Social message content as power and cool. And the kids have power, they are NOT alright being lead by Fox News Language since June 16, 2015. https://www.theatlantic.com/culture/archive/2020/09/fox-news-trump-language-stelter-hoax/616309/
 
 https://old.reddit.com/r/mildlyinfuriating/comments/1plfkrz/my_13yo_brother_wont_stop_using_these_slangs/nts4ub9/
 
