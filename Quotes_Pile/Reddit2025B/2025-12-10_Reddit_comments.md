@@ -505,3 +505,12 @@ Over TEN YEARS AND SIX MONTHS of meme addicts flocking to Trump for entertainmen
 https://old.reddit.com/r/nottheonion/comments/1pp7nsb/white_house_adds_plaques_below_biden_and_obama/nukvoxp/
 
 <img width="982" height="1320" alt="image" src="https://github.com/user-attachments/assets/a9d6e194-e846-4689-a4ab-cf01c29492b6" /> Death wishing. So people don't have to face nonfiction book learning of media ecology and why Fox News hDTV, Facebook, Twitter Musk, Truth Social, etc. wrecked USA society.
+
+https://old.reddit.com/r/whenthe/comments/1pp8ia1/i_will_say_no_more/nul4inr/
+
+The society of meme addicts who can't tell real people from bots or realize Putin has defeated the USA with war against nonfiction since March 2013. Death-wishing people who spend all spare time and free time creating junk content to celebrate the ignorance that Trump provides as LOL entertainment and amusements.
+
+https://old.reddit.com/r/whenthe/comments/1pp8ia1/i_will_say_no_more/nul2vw5/
+
+As nobody wants to be known as We The People of Reddit readership who stood up and removed Trump with reality and nonfiction science. Instead, follow the Trump leadership of garbage media content and cheer on the entire nation following Trump. Not just MAGA, not just Republicans, not just conservatives, but an entire nation that prizes a social media addict leading addictions to hate and death-wishing messages.
+
