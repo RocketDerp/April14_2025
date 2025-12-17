@@ -24,3 +24,9 @@ Not for exploitation: Jerry Springer, a pioneer of "tabloid talk" who filmed his
 More like Dr. Ruth.
 
 Why won't USA society connect to the [Malala Swat Valley story about girls? All this Epstein / Epstein List topics, but ignoring the humankind issues and excellent you years of January 2009 onward from Malala](/PostMalala/Marriage/World_Malala_Timeline_Year_2012.md). Real-world comparison to USA 2024 / USA 2025 elder exploitation of youth (Murdoch / Trump elders like Swat Valley Pakistan elders).
+
+## Billy Joel Pressure
+
+Channel 13 (Great Seal) Pressures / Society Public Dream / society Mythos.
+
+Measuring sticks abound.
