@@ -3,9 +3,9 @@
 Wednesday, December 17, 2025 morning USA
 https://old.reddit.com/r/complaints/comments/1povm7q/being_a_maga_is_a_dealbreaker/
 
-1. "A lot of men seem genuinely confused about why dating feels harder for them, while loudly aligning with politics that undermine women’s rights and autonomy."
+1. "A lot of men seem genuinely confused about why dating feels harder for them, while loudly aligning with politics that undermine women’s rights and autonomy." - December 17, 2025
 
-2. "a reflection of values and empathy. When someone supports movements that trivialize women’s safety or agency, it’s not surprising that women lose interest. That isn’t intolerance. It’s discernment."
+2. "a reflection of values and empathy. When someone supports movements that trivialize women’s safety or agency, it’s not surprising that women lose interest. That isn’t intolerance. It’s discernment." - December 17, 2025
 
 &nbsp;
 
