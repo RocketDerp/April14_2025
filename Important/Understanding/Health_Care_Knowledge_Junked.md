@@ -126,3 +126,12 @@ RFK Jr leadership is a source of entertainment to meme audiences. People who wil
 https://old.reddit.com/r/science/comments/1porgtp/frog_gut_bacterium_eliminates_cancer_tumors_in/
 
 Front page of Reddit. Society could be organizing a top 40 development of health improvements list to review every 3 weeks and encourage progress to the scientists doing difficult work. Educate society on our connection with nature, bacteria and frogs in this example. Instead, fiction runs the Kremlin and White House and abandonment of serious nonfiction science topics wins people into self-harm at the hands of Putin. [Carl Sagan's 1995 book about "Dumb and Dumb" and "Beavis and Buthead" winning over people](/Quotes_Pile/Carl_Sagan_Quotes.md) topic is worse than ever.
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1pouw3m/epa_alters_official_website_to_erase_fossil_fuels/
+
+Health of the entire planet. Human health issues caused by stress of being deceived, lied to, manipulated by billionaires in their private jets and sports team ownerships.  Social media society won't stand up in sustained repeating to reform morality and science nonfiction learning. Too busy on /r/All getting Formula 1 racing car by billionaire owners. Too busy with Apple billionaire iPad iPhone devices and video game systems. Too busy engaging Truth Social mockery and hate leadership, mass dehumanization via media systems / meme platforms. Society engaged in FIFA / NFL / NBA / baseball - everything video games and entertainment to mock away at life on Earth. Sickening the planet with toxic egoism worship of Trump as a role model of entertaining meme (Reddit society milking the LOL cow of Trump for memes and clap-back audience mockery of President Tony Clifton performances for meme audiences)
+
