@@ -35,7 +35,7 @@ Let's go over that again from the top
 
 3. 2013 January 3 - Malala discharged from hospital
 
-4. 2013 October 7 - Malala book published
+4. 2013 October 8 - Malala book published
 
 5. 2013 November 8 - Donald Trump in Moscow Russia to { parade women, dominate women, show women for entertainment and gooning }
 
