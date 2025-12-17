@@ -360,3 +360,13 @@ https://old.reddit.com/r/MurderedByWords/comments/1pl4ixk/evil_is_evil_no_matter
 https://old.reddit.com/r/MurderedByWords/comments/1pn40ao/the_smugness_didnt_last_long/
 
 Shit-talk "murdered by words" entertainment on front page on Monday morning. Back and forth mocking. Russia and NRA not discussed, serious books avoided. Just low-effort high-speed messaging system worship to turn serious problems into simulation of resistance along side the formula 1 entertainment messages and other sports and games topics. Why isn't serious topic about media addition to junk commenting on social platforms a sustained topic? NRA and Russia? "March 28, 2019 — An undercover Australian journalist from Al Jazeera spent three years inside the National Rifle Association of America." https://www.abc.net.au/listen/programs/if-youre-listening/maria-butina-russian-in-the-nra/10950764
+
+&nbsp;
+
+&nbsp;
+
+# Wednesday December 17, 2025 morning USA
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1powvu1/someones_seen_the_files/
+
+Front page top of Reddit. "Shitting on Trump" and others is evidence to meme audiences that they are resisting. [IT IS POPULARITY ON MEDIA VENUES to shit upon Donald Trump!](/Grim_Blunt/Pop/Popularity_Cravings_USA_2025.md) It is a big part of the infinite jest mechanisms! No concept of simulation of resistance. "The brilliance of this new type of authoritarianism is that instead of simply oppressing opposition, as had been the case with twentieth-century strains, it climbs inside all ideologies and movements, exploiting and rendering them absurd." - sentence from **year 2014** undiscovered and not grasped by audiences of Reddit and Bluesky. Where the bodies are buried: every person without health care in USA who has touch devices praising Trump as a source of mockery and entertainment since March 2013. This is both Reddit and screenshot media platform (Twitter?) [Eating the Surkovian Onions](../../Reddit2025A/Surkovian_Onion_Eating.md) with a shit-eating grin about how awesome it is to out-smart Surkov students! How awesome it is to be in a video screen game on touch devices / meme outlets and act like winning FOR OVER TEN YEARS AND SIX MONTHS of never-ending simulacras of resistance. Never escaping to Neil Postman's 1985 "Amusing Ourselves To Death" comprehension of high-speed electric media addictions. 
