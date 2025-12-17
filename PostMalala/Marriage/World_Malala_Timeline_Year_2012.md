@@ -88,7 +88,7 @@ The attraction in USA is to old white men. Look over the timelines again and aga
 
 # Trump Male FIFA peace prize
 
-This is a REAL woman with a REAL peace prize. Not "FIFA peace prize" garbage.
+This is a REAL woman with a REAL peace prize. Not ["FIFA peace prize" sports-mentality domination men](https://en.wikipedia.org/wiki/2015_FIFA_corruption_case) garbage. "Old Boys Club" attracted to dominating women with aggression. ["Peace prize" for Trump taking away / abusing women's rights](https://www.theguardian.com/us-news/2019/oct/27/all-the-presidents-women-review-donald-trump-sexual-predator).
 
 Malala even came to USA    
 Malala for the FIRST TIME in her life, went into a Christian Church and spoke. In the USA.    
