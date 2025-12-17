@@ -37,3 +37,9 @@ We have a gullibility crisis.
 
 "When one person suffers from gullibility to charming lairs, it is laughed at. When many people suffer from a delusion and gullibility it is called a **Fox News** Audience and **Political Party for Putin**." - me, my adaptation
 
+&nbsp;
+
+Mass manipulation, organized trickery. Following the mind patterns of religions.
+
+"Prosperos, conjure up **puppet political parties** and the simulacra of civic movements", "In the philosophy of these political technologists, information precedes essence. “I remember creating the idea of the ‘Putin majority’ and hey, presto, it appeared in real life,” Gleb Pavlovsky, a political technologist who worked on Putin's election campaigns but has since left the Kremlin, told me recently. “Or the idea that ‘there is no alternative to Putin.’ We invented that. And suddenly there really was no alternative.”"       
+https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
