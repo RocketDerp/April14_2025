@@ -1891,3 +1891,9 @@ Reddit front page. Age 54 Elon Musk does not have DEMENTIA. He isn't 79 years ol
 https://old.reddit.com/r/complaints/comments/1po920r/it_baffles_me_how_many_men_cant_figure_out_that/
 
 Front page of Reddit. Bewildered baffled society even since June 16, 2015 - TEN YEAS AND SIX MONTHS today, people can't see the entertainment addiction of NFL sports, NBA sports, men wrestling. Fox News HDTV and the woman Jen Senko about her father's addiction in year 2015 and year 2016 that is largely ignored. People who think it is entertaining and fun to mock women, belittle what Malala brought on the world stage in terms of equality of education and teaching of men vs. women in year 2012 and year 2013. Malala's book released October 8, 2013 - shortly before Trump's Macho MAGA values Miss Universe show in Moscow with Kremlin media presentation feedback on how to use showing of women on media networks to lead a nation. Surkov students techniques. Trump's November 8, 2013 domination of women via image and superficial content creation.
+
+&nbsp;
+
+https://old.reddit.com/r/CuratedTumblr/comments/1poxuzw/i_really_hate_this_coin_flip/
+
+The endless { Sarcasm, Mocking, Jokes } on meme mills FOR OVER TEN YEARS AND SIX MONTHS - at the serious problems. Reddit he joke-wrapping audience comment section that cheers on Donald Trump and MAGA as the most thrilling source of hate and mockery motivations. Every day, day after day, endless, never-ending mocking away at orange skin and golf outings for meme life.
