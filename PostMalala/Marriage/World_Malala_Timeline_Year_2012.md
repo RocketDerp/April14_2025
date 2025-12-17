@@ -31,7 +31,7 @@ Let's go over that again from the top
 
 1. 2009 January 3 - Malala on World Wide Web media blogging about { Women, Girls, Systemic Abuse by Taliban men }
 
-2. 2012 October 9 - 15 year old Malala bullet in head on school bus
+2. 2012 October 9 - 15 year old Malala bullet in head on school bus with friends (also shot)
 
 3. 2013 January 3 - Malala discharged from hospital
 
