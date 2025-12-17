@@ -145,3 +145,4 @@ Unmechanical Gauchos (Men who admire the industrial steam powered men replacemen
 Post-Truth Postman  (Revival of Andrew Postman, Post-truth messenger, Great Seal Revival)     
 Post-Truth Post-Fix  (Revival of Andrew Post-man, Biological post-fix treatment, MTA Info Overload, OpenSMTPD)     
 
+Adventures In The War Against Goodness (Surkov MonoMyth, Peter P. Title)   
