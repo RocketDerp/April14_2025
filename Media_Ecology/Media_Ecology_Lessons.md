@@ -1400,7 +1400,7 @@ The video clip on Reddit mentions "white supremacy", a valid topic in December 2
 
 * “Americans no longer talk to each other, they entertain each other. They do not exchange ideas, they exchange images. They do not argue with propositions; they **argue with good looks, celebrities** and commercials.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, year 1985
 
-* "been sucked into this system of images and so on. Now this sounds extreme but think of how we are socialised – all of us – continually bombarded with images from magazines, TVs, newspapers, videotapes." - Rick Roderick 1993 https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
+* "been sucked into this system of images and so on. Now this sounds extreme but think of how we are **socialised** – all of us – **continually bombarded with images** from magazines, TVs, newspapers, videotapes." - Rick Roderick 1993 https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
 
 * "I think that one of the greatest examples of this – for me – is the discourse concerning body weight in women; bulimia, anorexia and so on. It’s as though a male dominant society was able in the Middle Ages to, you know, put a chastity belt on a woman, to put, you know, to… keep food away from her and starve her if she misbehaved. But today we accomplish the same feat **through images that are constantly bombarded** into the conscious and into the unconscious of women, and they perform the wonderfully humanistic task of starving themselves to death while male therapists teach them how to get on twelve step programs to eat." - Rick Roderick 1993 https://rickroderick.org/306-foucault-and-the-disappearance-of-the-human-1993/
 
