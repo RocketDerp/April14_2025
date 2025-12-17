@@ -129,4 +129,12 @@ https://old.reddit.com/r/Music/comments/1p6h2gs/taylor_swift_branded_a_coward_fo
 
 Front page of Reddit. People calling out the icons they fixate on, status symbols, for not standing up. When did Reddit start a "Day 25 of x until Trump is impeached / removed / Fox News understood as fiction. Cult and fictio addiction problemin USA addressed" posting every 12 hours? People are more concerned about kitten photos, Formula 1 races, and Nintedo Switch 2025 vs. Steam hardware 2025. Trump and MAGA is a global threat to humanity. Russia winning an information war is a thrat to all humanism, it is self-harm to even domestic Russia what Surkov unleashed.
 
+&nbsp;
 
+# Tuesday, December 16, 2025
+
+https://old.reddit.com/r/KitchenConfidential/comments/1pojs1e/cutting_a_couple_of_chives_almost_every_day_until/
+
+TEN FULL YEARS AND SIX MONTHS since June 16, 2015 Trump. And front page of Reddit you see sustained focus on a joke, trivial "chives" movement. Not a call for Donald Trump to be removed from office / MAGA Bible literacy repeating for 66 days. Bible verse "1 John 3:17" lessons to apply to { Musk, Trump, Murdoch, Putin } audiences. Not Bible literacy lessons of verse "1 John 4:20" on prizing hate of Mexicans / immigrants. The sustained focus on social platforms is people flocking to { Formula 1 billionaire petrol consumption / private fleets of jets to fly around cars to race. NFL, NBA, baseball, video games, trivialities }. We The People did not use social media to say "Day 66 of important serious organization to call for Trump removal for the goodness of mankind and future". ... ... ...     
+
+"Huxley feared we would become a trivial culture, preoccupied with some equivalent of the feelies, the orgy porgy, and the centrifugal bumblepuppy." ... "This book is about the possibility that Huxley, not Orwell, was right.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
