@@ -381,6 +381,7 @@ Jack Smith had proof of what everyone saw with Georgia. https://en.wikipedia.org
 
 https://old.reddit.com/r/law/comments/1pp1ocz/jack_smith_claims_he_had_proof_beyond_reasonable/     
 https://old.reddit.com/r/politics/comments/1pp0z40/jack_smith_testifies_doj_had_proof_trump_tried_to/    
+https://old.reddit.com/r/NoFilterNews/comments/1pp299n/jack_smith_testifies_doj_had_proof_trump_tried_to/    
 
 QAnon was raging in October 2020, November 2020, December 2020, January 2020. The elephants in the room of Russia's Internet Research Agency. I personally educated Reddit society that QAnon was a simulacra (Who is "Q", a bunch of message patterns, no real person. Monomyth storytelling, Bible verse "1 John 4:20" about *Seen God*, *Seen Q / QAnon* unseen leader - "1 John 4:20", please read it and repeat it. https://old.reddit.com/r/QAnonRussia/ 
 
@@ -395,6 +396,8 @@ People are avoidant of staying on the same page. Being serious, treating topics 
 Why is Trump and "Q" on the same flag? Who is "Q"? https://old.reddit.com/r/QAnonRussia/
 
 QAnon and Trump flag waving. Do I repeat, yes. https://www.bbc.com/news/53498434 BBC non-domestic news about 2021 QAnon Trumpism MAGA Q QAnon. Repeating...
+
+&nbsp;
 
 &nbsp;
 
