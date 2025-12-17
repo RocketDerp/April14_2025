@@ -402,3 +402,8 @@ Satire-washing, Trump provides constant stimulating entertainment. This has been
 https://old.reddit.com/r/NoFilterNews/comments/1pnmn51/number_of_republicans_that_identify_as_maga_takes/nu90n7w/
 
 Honest and sincere people are silenced and dishonest leaders like Rupert Murdoch praised. Reddit society is a hate breeding ground that runs of any attempt at sincere addressing of mob mentality. Why does nobody on Reddit know Peter Pomerantsev - despite 3 published books and (Trump relevant / MAGA relevant) articles going back to year 2010 all over the Internet? "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M
+
+https://old.reddit.com/r/AmItheAsshole/comments/1pogmwr/aita_for_telling_my_mil_her_son_and_i_are_always/nuf54kf/
+
+Choice marriage honesty. Family honesty choices.
+
