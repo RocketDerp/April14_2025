@@ -3,12 +3,11 @@ Fiction NonFiction crisis
 1. Science Fiction
 2. Nonfiction, facts, evidence
 3. Metaphors not understood crisis (Joseph Campbell equation)
-4. Generative AI year 2022 has been mostly fiction machines. To avoid copyright, it generates unique responses to identical promots (same quesiton, get a different answer each time), and it does not provide exact quotes / references for copyright payment issues either.
+4. Generative AI year 2022 has been mostly fiction machines. To avoid copyright, it generates unique responses to identical prompts (same question, get a different answer each time), and it does not provide exact quotes / references for copyright payment issues either.
 
 ## Longstanding crisis
 
-“Half the people in the world think that the metaphors of their religious traditions, for example, are facts. And the other half contends that they are not facts at all. As a result we have people who consider themselves believers because they accept metaphors as facts, and we have others who classify themselves as atheists because they think religious metaphors are lies.”
-― Joseph Campbell, Thou Art That: Transforming Religious Metaphor
+“Half the people in the world think that the metaphors of their religious traditions, for example, are facts. And the other half contends that they are not facts at all. As a result we have people who consider themselves believers because they accept metaphors as facts, and we have others who classify themselves as atheists because they think religious metaphors are lies.” ― Joseph Campbell, Thou Art That: Transforming Religious Metaphor
 
 ## Carl Sagan 1995
 
@@ -36,7 +35,7 @@ https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
 I think we have to admit how badly we fucked up ignoring Neil Postman in 1985 and 1992 - his observations about New York City modern (wealthy) live and his wealthy New York University students. They were ahead of the curve, just as Donald Trump was living that lifestyle in 1985.
 
 Neil Postman was correct in 1985.  
-Neil Postamn was correct in 1992.   
+Neil Postman was correct in 1992.   
 
 ## What To Do: Admit it
 
@@ -52,7 +51,7 @@ Label Future vs. Past
 ## What To Do: Everything Wiki Values 
 
 Wiki systems have edit history, progress history      
-Wiki systems link topics and assocations   
+Wiki systems link topics and associations   
 Wiki systems favor public domain knowledge / common understanding    
 Wiki systems favor translation to all world languages   
 
@@ -84,4 +83,17 @@ https://old.reddit.com/r/shittymoviedetails/comments/1l7y9r8/despite_claims_that
 
 There needs to be a world-wide convention for sarcasm / fiction quotes / mocking quotes. Such as this use of quotation marks: https://old.reddit.com/r/PublicFreakout/comments/1l80kdh/i_dont_want_a_civil_war_civil_war_would_happen_if/mx162ee/
 
+&nbsp;
 
+### Wednesday December 17, 2025
+
+Alien Apocalypse Fantasies Will Get People Killed    
+Rebecca Watson     
+4,695 views     
+https://www.youtube.com/watch?v=vnSJXcUGD1o
+
+https://youtu.be/vnSJXcUGD1o?t=249 Shit is getting serious.   
+
+Pluribus alien invasion show popularity too.
+
+https://youtu.be/vnSJXcUGD1o?t=328 Dark Forest    
