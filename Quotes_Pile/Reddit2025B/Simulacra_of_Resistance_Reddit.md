@@ -396,3 +396,8 @@ Why is Trump and "Q" on the same flag? Who is "Q"? https://old.reddit.com/r/QAno
 
 QAnon and Trump flag waving. Do I repeat, yes. https://www.bbc.com/news/53498434 BBC non-domestic news about 2021 QAnon Trumpism MAGA Q QAnon. Repeating...
 
+&nbsp;
+
+https://old.reddit.com/r/complaints/comments/1poxseg/supporting_maga_is_unchristlike_and_unamerican/
+
+No Bible literacy lessons. Bible verse "1 John 3:17" should be a household name via Reddit and Bluesky. Apply "1 John 3:17" to Musk, Murdoch, Putin, Trump. "1 John 4:20". People keep declaring a crisis but will not turn to serious teaching and learning. [Malala timeline / Trump timeline / Putin timeline / MAGA timeline](/PostMalala/Marriage/World_Malala_Timeline_Year_2012.md)...
