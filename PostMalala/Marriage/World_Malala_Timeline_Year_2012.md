@@ -94,3 +94,12 @@ Malala even came to USA
 Malala for the FIRST TIME in her life, went into a Christian Church and spoke. In the USA.    
 375,759 views  September 4, 2017
 https://youtu.be/okGlFU3YW_k?t=528        
+
+&nbsp;
+
+**Assert Malala**    
+
+Assert her old January 3, 2009 writing up to June 16, 2015 writing and interviews / book tours. Contrast MAGA men flocking to Malala avoidance of World Wide Web / social media society.  
+
+https://bsky.app/profile/roundsparrow.bsky.social/post/3ma6z47dxfs2h     
+https://autistics.life/tags/NotGoodEnoughMalala4    
