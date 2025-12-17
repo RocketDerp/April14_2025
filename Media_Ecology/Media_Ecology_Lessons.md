@@ -1388,3 +1388,22 @@ Media Ecology 230 course
 Situation awareness, state of the WWW unions. 2025-12-16     
 PLEASE SEE: https://github.com/GreatSealUSA/GreatSealUSA_Art/blob/main/Experience_Pluribus_Project/Social_Media_Falling_Bigger_Cliff.md
 
+&nbsp;
+
+# White Supremacy Body Types   
+
+https://old.reddit.com/r/TikTokCringe/comments/1pomtnm/what_happened_to_real_faces_on_screen/
+
+The issue was articulated and identified in 1985 as trending
+
+The video clip on Reddit mentions "white supremacy", a valid topic in December 2025 Reddit USA / Hollywood USA.
+
+* “Americans no longer talk to each other, they entertain each other. They do not exchange ideas, they exchange images. They do not argue with propositions; they **argue with good looks, celebrities** and commercials.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, year 1985
+
+* "been sucked into this system of images and so on. Now this sounds extreme but think of how we are socialised – all of us – continually bombarded with images from magazines, TVs, newspapers, videotapes." - Rick Roderick 1993 https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
+
+* "I think that one of the greatest examples of this – for me – is the discourse concerning body weight in women; bulimia, anorexia and so on. It’s as though a male dominant society was able in the Middle Ages to, you know, put a chastity belt on a woman, to put, you know, to… keep food away from her and starve her if she misbehaved. But today we accomplish the same feat **through images that are constantly bombarded** into the conscious and into the unconscious of women, and they perform the wonderfully humanistic task of starving themselves to death while male therapists teach them how to get on twelve step programs to eat." - Rick Roderick 1993 https://rickroderick.org/306-foucault-and-the-disappearance-of-the-human-1993/
+
+USA health care system favors wealthy competition over appearances. Not inclusion for all people. This is the underlying reason so many billionaires are investing in artificial intelligence capable of generating images. The demand for "good looks" exceeds any demand for normalcy. Ugly people are considered worthless in such a society. Ugly people are treated almost as if another kind of animal / species on Earth. Images and every social device having a camera / photographs with touch-up enhancement digital abilities.
+
+The whole change to be famous - is also somethings not always looked at. These women would not be world famous / staring roles if they did not do everything they could to compete on superficial and shallow beauty standard. Audiences and popularity / attraction to selling their content and images.
