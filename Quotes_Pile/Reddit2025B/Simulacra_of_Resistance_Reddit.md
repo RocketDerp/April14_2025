@@ -406,3 +406,12 @@ QAnon and Trump flag waving. Do I repeat, yes. https://www.bbc.com/news/53498434
 https://old.reddit.com/r/complaints/comments/1poxseg/supporting_maga_is_unchristlike_and_unamerican/
 
 No Bible literacy lessons. Bible verse "1 John 3:17" should be a household name via Reddit and Bluesky. Apply "1 John 3:17" to Musk, Murdoch, Putin, Trump. "1 John 4:20". People keep declaring a crisis but will not turn to serious teaching and learning. [Malala timeline / Trump timeline / Putin timeline / MAGA timeline](/PostMalala/Marriage/World_Malala_Timeline_Year_2012.md)...
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/whenthe/comments/1pp8ia1/i_will_say_no_more/
+
+Christmas season death-wishing. The entertainment that Donald Trump provides to the meme addicted audience of Reddit and Bluesky. Every hour of every day FOR OVER TEN YEARS AND SIX MONTHS, people just go on and on with stimulating memes and music. Anything and everything to avoid non-fiction learning about media addiction and out-group religion holiday hate-patterns of the Levant monomyth stories. A population of learning-avoidant people engaged with feedback loops of Truth Social mass dehumanization leadership.
+
