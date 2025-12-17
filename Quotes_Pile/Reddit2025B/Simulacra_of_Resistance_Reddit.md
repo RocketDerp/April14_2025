@@ -370,3 +370,29 @@ Shit-talk "murdered by words" entertainment on front page on Monday morning. Bac
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1powvu1/someones_seen_the_files/
 
 Front page top of Reddit. "Shitting on Trump" and others is evidence to meme audiences that they are resisting. [IT IS POPULARITY ON MEDIA VENUES to shit upon Donald Trump!](/Grim_Blunt/Pop/Popularity_Cravings_USA_2025.md) It is a big part of the infinite jest mechanisms! No concept of simulation of resistance. "The brilliance of this new type of authoritarianism is that instead of simply oppressing opposition, as had been the case with twentieth-century strains, it climbs inside all ideologies and movements, exploiting and rendering them absurd." - sentence from **year 2014** undiscovered and not grasped by audiences of Reddit and Bluesky. Where the bodies are buried: every person without health care in USA who has touch devices praising Trump as a source of mockery and entertainment since March 2013. This is both Reddit and screenshot media platform (Twitter?) [Eating the Surkovian Onions](../Reddit2025A/Surkovian_Onion_Eating.md) with a shit-eating grin about how awesome it is to out-smart Surkov students! How awesome it is to be in a video screen game on touch devices / meme outlets and act like winning FOR OVER TEN YEARS AND SIX MONTHS of never-ending simulacras of resistance. Never escaping to Neil Postman's 1985 "Amusing Ourselves To Death" comprehension of high-speed electric media addictions. 
+
+&nbsp;
+
+&nbsp;
+
+# Jack Smith vs. We The People / Kremlin
+
+Jack Smith had proof of what everyone saw with Georgia. https://en.wikipedia.org/wiki/Georgia_election_racketeering_prosecution
+
+https://old.reddit.com/r/law/comments/1pp1ocz/jack_smith_claims_he_had_proof_beyond_reasonable/     
+https://old.reddit.com/r/politics/comments/1pp0z40/jack_smith_testifies_doj_had_proof_trump_tried_to/    
+
+QAnon was raging in October 2020, November 2020, December 2020, January 2020. The elephants in the room of Russia's Internet Research Agency. I personally educated Reddit society that QAnon was a simulacra (Who is "Q", a bunch of message patterns, no real person. Monomyth storytelling, Bible verse "1 John 4:20" about *Seen God*, *Seen Q / QAnon* unseen leader - "1 John 4:20", please read it and repeat it. https://old.reddit.com/r/QAnonRussia/ 
+
+Warning Reddit about QAnon https://old.reddit.com/r/QAnonRussia/
+
+Repeating. QAnon active measures by Russia / Kremlin / Putin. https://www.independent.co.uk/news/world/americas/us-election-2020/qanon-russia-conspiracy-theory-trump-2020-election-b1536946.html
+
+The issue here isn't Jack Smith's evidence, is the rat races within the society, We The People. People can no longer accept real-world evidence. September 9, 2014 explained https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ - what started in March 2013. 
+
+People are avoidant of staying on the same page. Being serious, treating topics seriously, about NATO against Russia since March 2013. People instead { LOL, mock, LMAO, amused, joke, meme life } about the Putin Trump Epstein relationships as entertainment. Ignoring the obvious Georgia calls from Trump and QAnon activities going on / QAnon flag wavings.
+
+Why is Trump and "Q" on the same flag? Who is "Q"? https://old.reddit.com/r/QAnonRussia/
+
+QAnon and Trump flag waving. Do I repeat, yes. https://www.bbc.com/news/53498434 BBC non-domestic news about 2021 QAnon Trumpism MAGA Q QAnon. Repeating...
+
