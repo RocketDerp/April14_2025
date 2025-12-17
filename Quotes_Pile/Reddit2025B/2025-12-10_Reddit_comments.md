@@ -462,3 +462,10 @@ https://old.reddit.com/r/law/comments/1pp1ocz/jack_smith_claims_he_had_proof_bey
 
 <img width="834" height="1044" alt="image" src="https://github.com/user-attachments/assets/345f9f31-3742-4d46-8d5a-c3dacc14d329" /> Note age of Reddit account. Year 2009. Still no author name, no link, no book title, no quote from a book. Casual conversation-washing with Reddit community commenting. Anything to avoid promoting serious nonfiction books on Russian information warfare. Surkov won since year 2013. { https://autistics.life/@RoundSparrow/115736377663033299 https://bsky.app/profile/roundsparrow.bsky.social/post/3ma7cveiyh223 }
 
+https://old.reddit.com/r/worldnews/comments/1pp21x7/putin_calls_european_leaders_piglets_declares_war/nujkosc/
+
+["Everything Is Media Ecology"](/Media_Ecology/Everything_is_ME.md) Kremlin / Fox News / Russia Today / White House / Truth Social / Reddit infiltrated by Internet Research Agency since year 2013.
+
+https://old.reddit.com/r/worldnews/comments/1pp21x7/putin_calls_european_leaders_piglets_declares_war/nujs12a/
+
+<img width="996" height="1090" alt="image" src="https://github.com/user-attachments/assets/b4d9b927-ff91-42a7-857b-235a518374a1" /> Still no link, book author, book title, quote from a book. Surkov won since March 2013. Russia won hearts and minds. "Operation Matthew 4:19" defeated NATO / USA. Endless time wasted on Ukraine and Russia because free thinking people sold out goodness for meme trash out of the IRA and CA. Avoidance of serious nonfiction, such as Neil Postman's library of books, avoided while social media draws people to self-harm mind-fuck since year 2013. { https://bsky.app/profile/roundsparrow.bsky.social/post/3ma7dpx4ls223 https://autistics.life/@RoundSparrow/115736436715198467 }
