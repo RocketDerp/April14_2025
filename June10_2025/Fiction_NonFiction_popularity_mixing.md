@@ -97,3 +97,6 @@ https://youtu.be/vnSJXcUGD1o?t=249 Shit is getting serious.
 Pluribus alien invasion show popularity too.
 
 https://youtu.be/vnSJXcUGD1o?t=328 Dark Forest    
+
+Radio Mullah science fiction Quran storytelling topic. Radio talk show normalizing alternate reality. Jen Senko's father brainwashing nonfiction film.    
+https://youtu.be/vnSJXcUGD1o?t=621
