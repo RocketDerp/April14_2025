@@ -489,3 +489,19 @@ https://old.reddit.com/r/NoFilterNews/comments/1pp299n/jack_smith_testifies_doj_
 
 <img width="882" height="212" alt="image" src="https://github.com/user-attachments/assets/ad9a49cb-f477-4793-8414-85e7a23e97be" /> Nothing matters messages on Reddit. ANYTHING to avoid year 2014 book that title means this comment message. ... ... ...      
 "Nothing Is True and Everything Is Possible: The Surreal Heart of the New Russia is a 2014 book by Peter Pomerantsev. It focuses on the political developments in Russia in the early 21st century and the culture of Russian media." - https://en.wikipedia.org/wiki/Nothing_Is_True_and_Everything_Is_Possible
+
+https://old.reddit.com/r/nottheonion/comments/1pp7nsb/white_house_adds_plaques_below_biden_and_obama/nuky9mx/
+
+Trump doesn't criticize Russia society or freedom in Russia. How women are treated in Russia.
+
+https://old.reddit.com/r/nottheonion/comments/1pp7nsb/white_house_adds_plaques_below_biden_and_obama/nukt6tq/
+
+Reddit and Bluesky flock to the noise. Unable to name "Internet Research Agency" or "Cambridge Analytica" mind-fucking methods or players.
+
+https://old.reddit.com/r/nottheonion/comments/1pp7nsb/white_house_adds_plaques_below_biden_and_obama/nuktqao/
+
+Over TEN YEARS AND SIX MONTHS of meme addicts flocking to Trump for entertainment jokes and amusement. Children raised as role model of leadership and how to draw audience, wealth, power. Surkov won since March 2013.
+
+https://old.reddit.com/r/nottheonion/comments/1pp7nsb/white_house_adds_plaques_below_biden_and_obama/nukvoxp/
+
+Death wish. So people don't have to face nonfiction book learning of media ecology and why Fox News hDTV, Facebook, Twitter Musk, Truth Social, etc. wrecked USA society.
