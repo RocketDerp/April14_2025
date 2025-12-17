@@ -549,3 +549,8 @@ Rich detailed sciene fiction trillogy. Metaphor to metaphor translations. Fandom
 https://old.reddit.com/r/DnD/comments/1plz17g/power_word_kill_oc/
 
 Egoism of words don't matter, but words can kill. Not just games. Wrong communications over health matters, piloting transportation, climate change... believing fiction is reality - and electiong self-harm leaders...
+
+&nbsp;
+
+1985 Ronald. Neil Postman book, "Amusing Ourselves To Death" about POTUS 1985 second term in office.      
+https://old.reddit.com/r/Scotland/comments/1podhg7/yup_this_is_pretty_much_it/
