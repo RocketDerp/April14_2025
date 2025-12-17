@@ -454,3 +454,11 @@ https://old.reddit.com/r/pcmasterrace/comments/1povjfp/nvidia_to_cut_gaming_gpu_
 
 Intel's GPU investment failed. "consumer GPU initiative, the Intel Arc line, started in 2019 and faced significant challenges and was considered to have failed to meet expectations by around 2022-2024."
 
+https://old.reddit.com/r/law/comments/1pp1ocz/jack_smith_claims_he_had_proof_beyond_reasonable/nujhu3u/
+
+<img width="974" height="362" alt="image" src="https://github.com/user-attachments/assets/c93279ce-c115-409b-b686-9348c9df5247" /> Note age of Reddit account, over 14 years. But still no author name, no link, no book title. This is one of the most negative events in USA history - and people just toss one-line Twitter-think commenting at it. Again and again, people can't face Trump with serious nonfiction fact-checked edited author-named books!
+
+https://old.reddit.com/r/law/comments/1pp1ocz/jack_smith_claims_he_had_proof_beyond_reasonable/nujo2l4/
+
+<img width="834" height="1044" alt="image" src="https://github.com/user-attachments/assets/345f9f31-3742-4d46-8d5a-c3dacc14d329" /> Note age of Reddit account. Year 2009. Still no author name, no link, no book title, no quote from a book. Casual conversation-washing with Reddit community commenting. Anything to avoid promoting serious nonfiction books on Russian information warfare. Surkov won since year 2013. { https://autistics.life/@RoundSparrow/115736377663033299 https://bsky.app/profile/roundsparrow.bsky.social/post/3ma7cveiyh223 }
+
