@@ -83,7 +83,7 @@ https://old.reddit.com/r/CringeTikToks/comments/1pl6bm3/racist_marine_fucked_aro
 
 https://old.reddit.com/r/CringeTikToks/comments/1pl6bm3/racist_marine_fucked_around_and_found_out/ntqo8yt/
 
-Like Reddit hive mind uses "shitzo" as a slur to me. How screaming "dementia" at Trump every day without citing professional organized writing such as Dr. Bandy X. Lee is considered good. Adults, not just children. 
+Like Reddit hive mind uses "shitzo" as a slur to me. How screaming "dementia" at Trump every day without citing professional organized writing such as Dr. Bandy X. Lee is considered good. Adults, not just children.
 
 https://old.reddit.com/r/CringeTikToks/comments/1pl6bm3/racist_marine_fucked_around_and_found_out/ntqcigd/
 
@@ -92,8 +92,7 @@ See how thrilled people are with MAGA / Trump values entertaining. More and more
 https://old.reddit.com/r/CringeTikToks/comments/1pl6bm3/racist_marine_fucked_around_and_found_out/ntqdupg/
 
 MAGA bad I.C.E. agents and military values, Fox News HDTV nation that people on social media won't address with bottom-up promotion of Jen Senko since year 2015 / 2016. Mocking and insulting promoted everywhere. Blocking and dehumanization growing and growing as billionaires feed ChatGPT and GrokAI and all the other systems. This is why we have Trump for over a decade, the thrill of seeing hot women next to men. The image discussion on meme platforms. ... ... ...      
-“Americans no longer talk to each other, they entertain each other. They do not exchange ideas, they exchange images. They do not argue with propositions; they argue with good looks, celebrities and commercials.”
-― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
+“Americans no longer talk to each other, they entertain each other. They do not exchange ideas, they exchange images. They do not argue with propositions; they argue with good looks, celebrities and commercials.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
 
 https://old.reddit.com/r/CringeTikToks/comments/1pl6bm3/racist_marine_fucked_around_and_found_out/ntqlpfb/
 
@@ -469,3 +468,24 @@ https://old.reddit.com/r/worldnews/comments/1pp21x7/putin_calls_european_leaders
 https://old.reddit.com/r/worldnews/comments/1pp21x7/putin_calls_european_leaders_piglets_declares_war/nujs12a/
 
 <img width="996" height="1090" alt="image" src="https://github.com/user-attachments/assets/b4d9b927-ff91-42a7-857b-235a518374a1" /> Still no link, book author, book title, quote from a book. Surkov won since March 2013. Russia won hearts and minds. "Operation Matthew 4:19" defeated NATO / USA. Endless time wasted on Ukraine and Russia because free thinking people sold out goodness for meme trash out of the IRA and CA. Avoidance of serious nonfiction, such as Neil Postman's library of books, avoided while social media draws people to self-harm mind-fuck since year 2013. { https://bsky.app/profile/roundsparrow.bsky.social/post/3ma7dpx4ls223 https://autistics.life/@RoundSparrow/115736436715198467 }
+
+https://old.reddit.com/r/NoFilterNews/comments/1pp299n/jack_smith_testifies_doj_had_proof_trump_tried_to/nujq6c3/
+
+Entertainment addicts nation thrilled to have Reality TV stimualtion.
+
+https://old.reddit.com/r/NoFilterNews/comments/1pp299n/jack_smith_testifies_doj_had_proof_trump_tried_to/nujm271/
+
+Television fiction. Russia won the War Against NonFiction since March 2013. Reddit society denial abounds, people who compose comment after comment without being able to cite any teachers or organized serious writing on media ecology / informatio warfare.
+
+https://old.reddit.com/r/NoFilterNews/comments/1pp299n/jack_smith_testifies_doj_had_proof_trump_tried_to/nujn0bt/
+
+Low-effort tiny-short Reddit comments claiming that memes are not part of the intellectual problems of high-speed media delivery. People who can't name the "Internet Research Agency" invasion of Reddit: https://www.bbc.com/news/technology-43301643 - nobody can link or quote a book or be serious about resolving and fixing the issues. Jen Senko not asserted like "Epstein" is since year 2015 / 2016.
+
+https://old.reddit.com/r/NoFilterNews/comments/1pp299n/jack_smith_testifies_doj_had_proof_trump_tried_to/nukdu16/
+
+Character names like Magoo. Fiction outsells nonfiction. Trump provides fiction storytelling that feeds audience addictions. People who are anti-Wikipedia anti nonfiction learning and serious real-identity real author names.
+
+https://old.reddit.com/r/NoFilterNews/comments/1pp299n/jack_smith_testifies_doj_had_proof_trump_tried_to/nujlntc/
+
+<img width="882" height="212" alt="image" src="https://github.com/user-attachments/assets/ad9a49cb-f477-4793-8414-85e7a23e97be" /> Nothing matters messages on Reddit. ANYTHING to avoid year 2014 book that title means this comment message. ... ... ...      
+"Nothing Is True and Everything Is Possible: The Surreal Heart of the New Russia is a 2014 book by Peter Pomerantsev. It focuses on the political developments in Russia in the early 21st century and the culture of Russian media." - https://en.wikipedia.org/wiki/Nothing_Is_True_and_Everything_Is_Possible
