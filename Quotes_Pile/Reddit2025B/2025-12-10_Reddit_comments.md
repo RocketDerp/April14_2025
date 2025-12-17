@@ -441,3 +441,16 @@ https://old.reddit.com/r/worldnews/comments/1poi44b/trump_orders_naval_blockade_
 
 <img width="1106" height="398" alt="image" src="https://github.com/user-attachments/assets/7b8e0040-2051-412d-af56-b59d276104f5" /> Because of the entertainment addictions to sex topics of the entire USA population. Attraction to Reality TV superficial shallowness. "Files" are a paper-chase, meme audiences who are **not calling for impeachment** and removal. Instead of asserting impeachment and removal of dishonest insincere leaders... you witness non-stop "information list" addictions for content... similar to cravings for ["Q Drops" PizzaGate like "Q" information releases](https://www.washingtonpost.com/news/powerpost/paloma/daily-202/2019/08/12/daily-202-epstein-conspiracy-theories-showcase-the-paranoid-style-in-american-politics/5d50de4a602ff1306728b13d/) of "lists" of sex acts. Audiences of meme platforms (Reddit) that can't be serious or quote elders with intelligence and focus on important world war experiences. ... ... ...     
 "I'm 94 years old, I fought in the Second World War and I have a serious warning about **where 2017 is headed**. I am an old man in the apogee of my days and that’s why I know we are on the cusp of war – if not in North Korea then somewhere else – simply **because of the way we have allowed society to become**. As a young man in uniform, I witnessed destruction, and I can't stand impotently by while it happens again"; "self-interest of the few lead the many into the cul-de-sac of war. It doesn’t take a prophet to know that as long as Britain, America, Canada, China or Russia profit handsomely from the arms industry while ignoring the refugee crisis, the housing crisis, the wage crisis and the crisis for affordable health care, the world is sitting on a powder keg"; "Make no mistake: the only check and balance that will control **Donald Trump’s urge to ignite the world into war** through his grotesque arrogance and incompetence is **impeachment**." - Harry Leslie Smith; Wednesday 6 **September 2017**" https://www.independent.co.uk/voices/donald-trump-kim-jong-un-second-world-war-94-years-old-harry-leslie-smith-nuclear-warning-a7932276.html
+
+https://old.reddit.com/r/pcmasterrace/comments/1povjfp/nvidia_to_cut_gaming_gpu_production_by_3040/nui9qzl/
+
+It seems to be a pattern lead by USA society / Corporate America. Outside manufacturing overseas. Then outsource customer support / call centers. Then start making everything subscription / DRM / licensed / renting. To make higher profits, financial instruments of renting / leasing works on almost any area of society from farm equipment to housing to entertainment movies. Financial instruments and red tape and paperwork to control consumers.
+
+https://old.reddit.com/r/pcmasterrace/comments/1povjfp/nvidia_to_cut_gaming_gpu_production_by_3040/nui8gpo/
+
+Media ecology cycles of 1923 Finn's Hotel by James Joyce, as explained by University of Toronto's media studies / Marshall McLuhan.
+
+https://old.reddit.com/r/pcmasterrace/comments/1povjfp/nvidia_to_cut_gaming_gpu_production_by_3040/nuiei4u/
+
+Intel's GPU investment failed. "consumer GPU initiative, the Intel Arc line, started in 2019 and faced significant challenges and was considered to have failed to meet expectations by around 2022-2024."
+
