@@ -2,19 +2,19 @@
 
 USA society by not focusing on Wiki style sharing of the best refined medical information.... and instead focused on secrets / trade practice / high priced closed-admission schools for brand-name degrees...
 
-blah blah, how does one desxribe such systemic dehumanization? The weight of so many people who want to watch other people be sick and suffering so they can have the goism of a better life. "Better choices" competition.
+blah blah, how does one describe such systemic dehumanization? The weight of so many people who want to watch other people be sick and suffering so they can have the egoism of a better life. "Better choices" competition.
 
 Dental and General health     
 https://old.reddit.com/r/science/comments/1p0a1xu/root_canal_treatment_could_significantly_lower/
 
-Reddit audience for over a year cheering on Luigi murder for gun worship... but repeating and staying focused on consistely asserting "Second Bill of Rights January 1944" avoided. Even the BOOK that is on the Manhattan murder bullet casings hasn't been asserted all year 2025.        
+Reddit audience for over a year cheering on Luigi murder for gun worship... but repeating and staying focused on constantly asserting "Second Bill of Rights January 1944" avoided. Even the BOOK that is on the Manhattan murder bullet casings hasn't been asserted all year 2025.        
 https://old.reddit.com/r/politics/comments/1pmqbgn/twothirds_of_americans_say_government_should/
 
-Reseaerch and Development now focused on greed    
+Research and Development now focused on greed    
 https://www.ajmc.com/view/nih-grant-terminations-disrupt-1-in-30-clinical-trials-impacting-over-74-000-participants      
 https://old.reddit.com/r/science/comments/1p0183j/study_finds_recent_nih_cuts_by_trump/
 
-Measles spread, harm to children medical attitutes of USA.   
+Measles spread, harm to children medical attitudes of USA.   
 https://old.reddit.com/r/technology/comments/1p0uxej/cdc_data_confirms_us_is_2_months_away_from_losing/
 
 Advertising and marketing to factory ultra-processed food.    
@@ -28,7 +28,7 @@ https://old.reddit.com/r/todayilearned/comments/1p41co5/til_that_sexual_inactivi
 CDC and cause of autism      
 https://old.reddit.com/r/news/comments/1p423v5/cdc_website_changed_to_contradict_scientific/
 
-health improvement though less polution.    
+Health improvement though less pollution.    
 https://old.reddit.com/r/UpliftingNews/comments/1p732vv/uruguays_power_grid_runs_99_on_renewablesat_half/
 
 Social media is not standing up and calling for removal of pro-disease stances, autism lies.     
@@ -51,7 +51,7 @@ Will scroll off as RFK Jr entertains people with autism attacking and pro-diseas
 
 https://old.reddit.com/r/CringeTikToks/comments/1peimy2/this_dementia_patient_has_three_to_five_months/
 
-Specific education and nonfiction learning of dementia. Not just saying the word "dementia" in a comment on Blueksy or Reddit, but actually learning. You see avoidance of this during COVID-19 too. People who insult and mock but won't link / quote / cite sources and teerminology and debate improtant seirous topics with intelligent science information and intellectual discource. Not just jokes, chanting, amusement memes.
+Specific education and nonfiction learning of dementia. Not just saying the word "dementia" in a comment on Blueksy or Reddit, but actually learning. You see avoidance of this during COVID-19 too. People who insult and mock but won't link / quote / cite sources and terminology and debate important serious topics with intelligent science information and intellectual discourse. Not just jokes, chanting, amusement memes.
 
 Same day on Reddit, will social media finally start repeating serious links instead of just repeating "Epstein List" messages over and over? https://old.reddit.com/r/politics/comments/1pf25zz/trump_showing_signs_hes_battling_major_medical/
 
@@ -61,7 +61,7 @@ Same day on Reddit, will social media finally start repeating serious links inst
 
 https://old.reddit.com/r/Wellthatsucks/comments/1pgjcuq/woman_sneaks_into_back_of_restaurant_and_films/
 
-So much bullshit in society drowns out peer to peer important assertions. Public health. Public House vs. Private House eating asserted. Customer right to see how the sausage is made. Reddit DROWNS important shit in disposable posting and commenting and not confronting the Trumpism Corporate America FDA system of dehumanzing the consumers / fleecing consumers with bad education / Department of Education. Reddit hive mind asserts so much brainrot into the shit since year 2013 that important Wiki-style organized assert is wrecked internet wide.
+So much bullshit in society drowns out peer to peer important assertions. Public health. Public House vs. Private House eating asserted. Customer right to see how the sausage is made. Reddit DROWNS important shit in disposable posting and commenting and not confronting the Trumpism Corporate America FDA system of dehumanizing the consumers / fleecing consumers with bad education / Department of Education. Reddit hive mind asserts so much brainrot into the shit since year 2013 that important Wiki-style organized assert is wrecked internet wide.
 
 &nbsp;
 
@@ -69,7 +69,7 @@ So much bullshit in society drowns out peer to peer important assertions. Public
 
 https://old.reddit.com/r/science/comments/1phmymd/insufficient_sleep_associated_with_decreased_life/
 
-And all the wealth that goes into keep Reddit end-users addicted to content, not sleeping. Viego game industry, sports industry, slepless nights from Trump anxiety, Elon Musk Twitter mocking people who sleep, etc. Information oveerload, drowning important stories like this, with addictions to kitten images on /r/All along sidethe Middle East Formula 1 star worship (comedy washing / sports-washing Middle East wealth on Reddit /r/All). Constant marketing to make content consumption lifestyle anti-sleep, keeping up with the Jonses on memes in the high-speed media junkie fast lanes.
+And all the wealth that goes into keep Reddit end-users addicted to content, not sleeping. Video game industry, sports industry, sleepless nights from Trump anxiety, Elon Musk Twitter mocking people who sleep, etc. Information overload, drowning important stories like this, with addictions to kitten images on /r/All alongside the Middle East Formula 1 star worship (comedy-washing / sports-washing Middle East wealth on Reddit /r/All). Constant marketing to make content consumption lifestyle anti-sleep, keeping up with the Joneses on memes in the high-speed media junkie fast lanes.
 
 &nbsp;
 
@@ -85,7 +85,7 @@ Russia won information warfare to self-harm USA. People prize misunderstandings,
 
 https://old.reddit.com/r/MurderedByWords/comments/1pjvk9z/i_think_this_goes_here/
 
-So many fixated on one golfing man with his orange skin and "dementia" diagnosis. That people can't see the forest of We The People for the golf trees. The abandonment of science. Why Dr. Bandy X Lee isn't a household name / Reddit asserted in comments like "Epstein" name... because Dr. Bandy X Lee isn't entertainment Reality TV like Epstein private jet Private Fantasy Island entertainment of Trump MAGA Tony Clifton performances. Health care / mental health knowledge junked and drowned by more mockery psotings that will push it off the front page.
+So many fixated on one golfing man with his orange skin and "dementia" diagnosis. That people can't see the forest of We The People for the golf trees. The abandonment of science. Why Dr. Bandy X Lee isn't a household name / Reddit asserted in comments like "Epstein" name... because Dr. Bandy X Lee isn't entertainment Reality TV like Epstein private jet Private Fantasy Island entertainment of Trump MAGA Tony Clifton performances. Health care / mental health knowledge junked and drowned by more mockery postings that will push it off the front page.
 
 &nbsp;
 
@@ -93,7 +93,7 @@ So many fixated on one golfing man with his orange skin and "dementia" diagnosis
 
 https://old.reddit.com/r/interestingasfuck/comments/1pk06jn/what_russia_does_to_ukrainian_children/
 
-Reddit front page. USA Reddit front page of the World Wide Web, Human Species. This story will get drowned out in all the memenoise and kitten images. The earth is over 8 billion humans, the time is NOW to confront the MOST OBVIOUS, BLINDING BRIGHT, Egoism of Putin and MAGA leadership, Musk Twitter, Reddit Musk influence, Truth Socail media, Murdoch Fox News. The avoidance of Jen Senko, the avoidance of nonfiction learning about Surkov and being able to name Surkov students and the IRA. Reddit is entertainment-washing these serious health postings about children's future, just as it does with Malala year 2012 and year 2013... will not sustain focus and asserting of improtance. We do not require digital images of kittens and cats every hour on the front page - we need a sense of improtance of human children / human species. Egomania / egoism run wilde, concern only for friends, while hating out-groups like Russia does to Ukraine and USA does to Mexico and Canada.
+Reddit front page. USA Reddit front page of the World Wide Web, Human Species. This story will get drowned out in all the memenoise and kitten images. The earth is over 8 billion humans, the time is NOW to confront the MOST OBVIOUS, BLINDING BRIGHT, Egoism of Putin and MAGA leadership, Musk Twitter, Reddit Musk influence, Truth Soc ail media, Murdoch Fox News. The avoidance of Jen Senko, the avoidance of nonfiction learning about Surkov and being able to name Surkov students and the IRA. Reddit is entertainment-washing these serious health postings about children's future, just as it does with Malala year 2012 and year 2013... will not sustain focus and asserting of importance. We do not require digital images of kittens and cats every hour on the front page - we need a sense of importance of human children / human species. Egomania / egoism run wild, concern only for friends, while hating out-groups like Russia does to Ukraine and USA does to Mexico and Canada.
 
 &nbsp;
 
@@ -103,16 +103,26 @@ Will get drowned in Epstein rich people photographs sex images.
 
 &nbsp;
 
+&nbsp;
+
 https://old.reddit.com/r/MurderedByWords/comments/1pm8f16/a_lesson_in_what_you_think_v_reality/
 
-Billionares replaced nonfiction education and learning systems, Wikipedia, with meme mills. Wikipedia doesn't make the owners billionares: Twitter does, Fox News HDTV does, Facebook does, Twitch does, fiction outsells nonfiction. STD is nonfiction. That isn't popular except as jokes and insults in fiction storytelling and on meme mills like Reddit. Ha ha ha lol lol amused to death audience that thinks calling poltiicans with STD brain dmaage all day every day is thrilling politics. https://www.forbes.com/sites/brianbushard/2024/01/31/trump-speaks-out-on-red-hand-marks-maybe-its-ai/ - social media is a anti-education anti-nonfiction culture of Truth Social / Reality TV "The Apprentice" followers to Rupert Murdoh "Fox News Nation" https://www.nytimes.com/2018/11/26/business/media/fox-news-nation-streaming.html
+Billionaires replaced nonfiction education and learning systems, Wikipedia, with meme mills. Wikipedia doesn't make the owners billionaires: Twitter does, Fox News HDTV does, Facebook does, Twitch does, fiction outsells nonfiction. STD is nonfiction. That isn't popular except as jokes and insults in fiction storytelling and on meme mills like Reddit. Ha ha ha lol lol amused to death audience that thinks calling politicians with STD brain damage all day every day is thrilling politics. https://www.forbes.com/sites/brianbushard/2024/01/31/trump-speaks-out-on-red-hand-marks-maybe-its-ai/ - social media is a anti-education anti-nonfiction culture of Truth Social / Reality TV "The Apprentice" followers to Rupert Murdoch "Fox News Nation" https://www.nytimes.com/2018/11/26/business/media/fox-news-nation-streaming.html
 
-And don't be fooled. Even when these services fail, even when people don't go to Fox News HDTV or Truth Social, Reddit constantly screen shots it for anti-intelligence anti-intellectual low-effort disposable commenting. Anti-wikipedia on important medical knowedge.
+And don't be fooled. Even when these services fail, even when people don't go to Fox News HDTV or Truth Social, Reddit constantly screen shots it for anti-intelligence anti-intellectual low-effort disposable commenting. Anti-Wikipedia on important medical knowledge.
 
 Just like the front-page screen shot says these words are about. "Murder by words", no, the killing of people with COVID-2019 spreading is due to Reddit society not making front-page SUSTAINED every day the spreading of disease by Putin. August 24, 2018 https://www.bbc.com/news/world-us-canada-45294192  mental disease to LOL LOL LOL mockery simulacra of debate. https://www.bbc.com/news/world-us-canada-45294192
 
-Important Wiki style assertion of "ok, let's be serious 2 or 3 days a week" nonfiction learning gets abandoned by adults who dial into video games, kitten images (not kittens, IMAGES photo attraction screen games, simualcra), Trump news on /r/All all the fucking time for over 10 years, since June 6, 2015. Commenting that attacks nonfiction books and metaphor teaching in favor of "Duh, this is a wendy's where we praise Trump as a soure of hate and mocking leadership!" 
+Important Wiki style assertion of "ok, let's be serious 2 or 3 days a week" nonfiction learning gets abandoned by adults who dial into video games, kitten images (not kittens, IMAGES photo attraction screen games, simulacra), Trump news on /r/All all the fucking time for over 10 years, since June 6, 2015. Commenting that attacks nonfiction books and metaphor teaching in favor of "Duh, Sir this is a Wendy's where we praise Trump as a constant source of hate and mocking leadership!" 
 
-This shit kind of debate: https://www.bbc.com/news/world-us-canada-45294192 back and forth without any concern to make a wikipedia / FAQ / important meetings eveyr 3 days to assrt improtance of adult educaiton not drowning in entertainment. https://www.northjersey.com/story/opinion/columnists/2024/03/27/us-politics-2024-predicted-media-expert-neil-postman/73022583007/
+This shit kind of debate: https://www.bbc.com/news/world-us-canada-45294192 back and forth without any concern to make a Wikipedia / FAQ / important meetings every 3 days to asset importance of adult education not drowning in entertainment. https://www.northjersey.com/story/opinion/columnists/2024/03/27/us-politics-2024-predicted-media-expert-neil-postman/73022583007/
 
-RFK Jr leadership is a source of entertainment to meme audiences. People who will not "call to INTELLECTUAL arms" of sustained every 6 hours on front page - call for metnal reformation and stop seeking liars as LOL enteratianment governing. Stop being govered by whims of mockery that RFK Jr and Trump and Pentagon 2025 military provides. Be serious about life and death StD diseases and COVID-2019 diseases and actaully FIGHT Russia by making Surkov a household name. AGAIN August 24, 2018 George Washington Namesake FIGHt University https://www.bbc.com/news/world-us-canada-45294192 
+RFK Jr leadership is a source of entertainment to meme audiences. People who will not "call to INTELLECTUAL arms" of sustained every 6 hours on front page - call for mental + moral reformation and stop seeking liars as LOL entertainment governing. Stop being governed by whims of mockery that RFK Jr and Trump and Pentagon 2025 military provides. Be serious about life and death STD diseases and COVID-2019 diseases and actually FIGHT Russia by making Surkov a household name. AGAIN August 24, 2018 George Washington Namesake FIGHT University https://www.bbc.com/news/world-us-canada-45294192 
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/science/comments/1porgtp/frog_gut_bacterium_eliminates_cancer_tumors_in/
+
+Front page of Reddit. Society could be organizing a top 40 development of health improvements list to review every 3 weeks and encourage progress to the scientists doing difficult work. Educate society on our connection with nature, bacteria and frogs in this example. Instead, fiction runs the Kremlin and White House and abandonment of serious nonfiction science topics wins people into self-harm at the hands of Putin. [Carl Sagan's 1995 book about "Dumb and Dumb" and "Beavis and Buthead" winning over people](/Quotes_Pile/Carl_Sagan_Quotes.md) topic is worse than ever.
