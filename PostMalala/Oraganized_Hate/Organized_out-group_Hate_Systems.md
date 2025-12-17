@@ -4,8 +4,7 @@ Organize people who will not translate religion to religion like { spoken, writt
 
 Science fiction vs. nonfiction. Science fiction fighting with fandoms of competing science fiction.
 
-October 8, 2013: “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.”
-― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban
+October 8, 2013: “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.” ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. Page 107.
 
 And this addiction to storytelling of one favorite storybook goes way beyond year 635 Quran and Levant { Torah, Bible, Quran } science fiction trilogy. [Ted Kopoel year 2015 about TV channel viewers storytelling vs. TV channel viewers](/Quotes_Pile/Ted_Koppel.md)
 
@@ -21,5 +20,4 @@ Generative artificial intelligence since year 2022 has saturated media systems w
 
 The danger of addiction / attraction to science fiction over science nonfiction.
 
-Repeating: October 8, 2013: “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.”
-― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban
+Repeating: October 8, 2013: “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.” ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. Page 107.
