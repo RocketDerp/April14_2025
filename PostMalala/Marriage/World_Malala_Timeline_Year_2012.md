@@ -1,4 +1,4 @@
-# World Malala Timeline Year
+# World Malala Timeline Year 2012
 
 Wednesday, December 17, 2025 morning USA
 https://old.reddit.com/r/complaints/comments/1povm7q/being_a_maga_is_a_dealbreaker/
