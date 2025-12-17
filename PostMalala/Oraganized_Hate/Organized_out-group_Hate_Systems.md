@@ -21,3 +21,19 @@ Generative artificial intelligence since year 2022 has saturated media systems w
 The danger of addiction / attraction to science fiction over science nonfiction.
 
 Repeating: October 8, 2013: “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.” ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. Page 107.
+
+&nbsp;
+
+&nbsp;
+
+# More Blunt
+
+https://bsky.app/profile/roundsparrow.bsky.social/post/3ma6d5ido5c25    
+https://autistics.life/@RoundSparrow/115734139850246454    
+
+We have a gullibility crisis.
+
+"When one person suffers from a delusion, it is called insanity. When many people suffer from a delusion it is called a Religion." - Robert M. Pirsig
+
+"When one person suffers from gullibility to charming lairs, it is laughed at. When many people suffer from a delusion and gullibility it is called a **Fox News** Audience and **Political Party for Putin**." - me, my adaptation
+
