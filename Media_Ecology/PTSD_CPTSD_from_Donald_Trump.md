@@ -160,3 +160,8 @@ https://old.reddit.com/r/MurderedByWords/comments/1pjvk9z/i_think_this_goes_here
 "Murder by words, Words of constant stress ruling / lording stress by Fox News audience / Murdoch / Twitter Musk stress lords power, Real Estate lords"     
 https://autistics.life/@RoundSparrow/115701259526828961     
 https://bsky.app/profile/roundsparrow.bsky.social/post/3m7pputcx2k2p    
+
+&nbsp;
+
+https://old.reddit.com/r/Wellthatsucks/comments/1polpls/chronic_stress_is_real/     
+Symptoms. Chronic Donald Trump / MAGA / Rupert Murdoch stress lording. Falsehoods, manipulation, praise of Putin.    
