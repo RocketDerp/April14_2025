@@ -1,0 +1,73 @@
+
+
+From owner-thinkpad@cs.utk.edu Sat May 10 18:04:32 1997
+Received: from CS.UTK.EDU by martigny.ai.mit.edu with ESMTP
+	(1.40.112.8/16.2) id AA073231870; Sat, 10 May 1997 18:04:30 -0400
+Return-Path: <owner-thinkpad@cs.utk.edu>
+Received: from localhost (daemon@localhost) 
+        by CS.UTK.EDU with SMTP (cf v2.9s-UTK)
+	id SAA14634; Sat, 10 May 1997 18:03:27 -0400
+Received: by CS.UTK.EDU (bulk_mailer v1.7); Sat, 10 May 1997 18:01:23 -0400
+Received:  
+        by CS.UTK.EDU (cf v2.9s-UTK)
+	id SAA14206; Sat, 10 May 1997 18:01:21 -0400
+Received: from baker.vnw.com (baker.vnw.com [192.220.175.88]) 
+        by CS.UTK.EDU with SMTP (cf v2.9s-UTK)
+	id SAA14195; Sat, 10 May 1997 18:01:16 -0400
+Received: by baker.vnw.com with SMTP (Microsoft Exchange Server Internet Mail Connector Version 4.0.995.52)
+	id <01BC5D53.468A78C0@baker.vnw.com>; Sat, 10 May 1997 15:03:10 -0700
+Message-Id: <c=US%a=_%p=PAG%l=HURRICANE-970510220213Z-7790@baker.vnw.com>
+From: Stephen Gutknecht <StephenG@vnw.com>
+To: "'Steve Parker'" <sparker@morgana.punk.net>,
+        "'Thinkpad Mailing List'"
+	 <thinkpad@cs.utk.edu>
+Subject: RE: Possible 560 newbie
+Date: Sat, 10 May 1997 15:02:13 -0700
+X-Mailer:  Microsoft Exchange Server Internet Mail Connector Version 4.0.995.52
+Mime-Version: 1.0
+Content-Type: text/plain; charset="us-ascii"
+Content-Transfer-Encoding: 7bit
+Comment: to {un}subscribe, send mail to thinkpad-REQUEST@cs.utk.edu
+
+Kingston and another vendor are selling a 64MB upgrade for the TP 560.
+I just got a new 2GB/133 560 and am holding out for the 64MB upgrade
+(72MB total).  They are supposed to ship this week...  The price was
+about double that of a 32MB...
+
+Anyone purchasing new today should look at the total cost of their
+investment... \
+
+RAM is cheap compared to what it used to be (9 months ago for laptops),
+and 72MB on a laptop isn't that far fetched.  If you think you could be
+running Windows 97 or Windows NT Workstation.... the $200 to $400
+difference would seem  a given...   For others, even on Windows 95,
+there is only one expansion module (and you would have to throw away or
+sell to get new).  A new purchaser should consider the 2 to 3 year
+lifespan of a typical laptop.... and think about it...
+
+  Stephen Gutknecht
+
+>-----Original Message-----
+>From:	Steve Parker [SMTP:sparker@morgana.punk.net]
+>Sent:	Tuesday, May 06, 1997 4:33 PM
+>To:	Thinkpad Mailing List
+>Subject:	Re: Possible 560 newbie
+>
+>[quote snip]
+>
+>  I have a TP560-120 and it benchmarks at about an equivalent of a Pentium
+>90 desktop.  A TP560-133 should approximately match a Pentium 100
+>desktop system.
+>
+>  The TP560 comes with 8MB and can take one memory module at either 8MB,
+>16MB, or 32MB which gives you memory options of 8MB, 16MB, 24MB and 40MB.
+>I bought my TP560 with 24MB installed and then upgraded it to 40MB.  With
+>my light use of Photoshop 3.05 on it I didn't notice much difference.  I
+>do most of my Photoshop work on my 64MB RAM desktop since it is a bit more
+>capable, and that is where my scanner is..  =)
+>
+>
+>Steve
+>
+
+
