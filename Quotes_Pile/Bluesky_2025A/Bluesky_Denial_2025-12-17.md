@@ -396,6 +396,8 @@ I said it was about women, linked #TheAtlantic article, then you started "playin
 
 &nbsp;
 
+&nbsp;
+
 
 # Unblocked me 
 
@@ -405,7 +407,14 @@ Unblocked me to play mind games of denial. Denial was in my opening replies. USA
 
 https://bsky.app/profile/corvid.bsky.social/post/3mabraa6vi22w
 
-Re-blocked me before I could even get the screen shot! Bit I did quote one sentence of the reply. Extremely fast reactionary, against any off-Bluesky links.
+Re-blocked me ~~before I could even get the screen shot!`` Bit I did quote one sentence of the reply. Extremely fast reactionary, against any off-Bluesky links. - Ok, I somehow managed to get screen shot with back button (browser cache didn't clear, eh?)
+
+<img width="1814" height="1362" alt="image" src="https://github.com/user-attachments/assets/ecc7ea73-cd48-421b-ba14-b85c08dcce88" />
+
+Capturing Unicode since now blocked: "You just posted a link to an article and gave no context for what point you wanted it to make. You said nothing about women. You claim that racism doesn’t exist in America, and that we all need to find God.
+
+You are not having a good faith discussion, so this conversation is over for me."
+
 
 &nbsp;
 
