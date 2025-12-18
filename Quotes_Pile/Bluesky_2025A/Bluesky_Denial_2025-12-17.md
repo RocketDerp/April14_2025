@@ -458,6 +458,14 @@ I have never blocked this person in any way shape or form. They have blocked and
 
 &nbsp;
 
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
 
 # Concealed public postings
 
@@ -469,3 +477,33 @@ They conceal thier public messages from search engines / non-users of Bluesky. V
 &nbsp;
 
 <img width="1752" height="492" alt="image" src="https://github.com/user-attachments/assets/73bb5cdd-2749-4099-b0a0-4279ce788948" />
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+
+&nbsp;
+
+# Past the Mock-Block Bird-Mocking
+
+<img width="1230" height="326" alt="image" src="https://github.com/user-attachments/assets/6202fce7-fb8b-4dc7-b8ba-d8e96c8e962c" />
+
+https://bsky.app/profile/corvid.bsky.social/post/3mabrhm7ruc2w
+
+(User profile of this mocking-blocking user is a bird with dark username meanings)
+
+Every reply on the thread about USA MAGA was denial that Rupert Murdoch manipulates MAGA / psychological operations against MAGA. Musk, Putin, Trump, MAGA - it's all gas-lighting of Americans. And this woman admits it and feels abused by her government / billionaires.  
+
+1. May 30, 2022 - how billionaires are forming a MAGA alliance to manipulate people into believing MAGA is good for them: https://www.theguardian.com/news/2022/may/03/billionaires-extra-power-media-ownership-elon-musk
+
+2. Past 5 days: https://www.nytimes.com/2025/12/13/opinion/gop-women-misogyny-problem.html "The Republican Party has a misogyny problem. Congressional members like Marjorie Taylor Greene, Lauren Boebert and Nancy Mace have been"
+
+&nbsp;
+
+And about a MAGA woman being manipulated by white men: "Psyops, lol, nope, these people are just gullible and selfish bigots." started this whole conversation. Denial abounds that women are being systemically manipulated / psychological operations to put power and wealth in Trump / Musk / Murdoch / Putin hands.
+
