@@ -407,7 +407,7 @@ Unblocked me to play mind games of denial. Denial was in my opening replies. USA
 
 https://bsky.app/profile/corvid.bsky.social/post/3mabraa6vi22w
 
-Re-blocked me ~~before I could even get the screen shot!`` Bit I did quote one sentence of the reply. Extremely fast reactionary, against any off-Bluesky links. - Ok, I somehow managed to get screen shot with back button (browser cache didn't clear, eh?)
+Re-blocked me ~~before I could even get the screen shot!~~ Bit I did quote one sentence of the reply. Extremely fast reactionary, against any off-Bluesky links. - Ok, I somehow managed to get screen shot with back button (browser cache didn't clear, eh?)
 
 <img width="1814" height="1362" alt="image" src="https://github.com/user-attachments/assets/ecc7ea73-cd48-421b-ba14-b85c08dcce88" />
 
