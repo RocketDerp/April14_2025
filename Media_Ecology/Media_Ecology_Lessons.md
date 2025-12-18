@@ -1436,3 +1436,17 @@ New research shows for first time the impact influencers have on politics. Key f
 
 https://www.wired.com/story/the-most-powerful-politics-influencers-barely-post-about-politics/
 
+&nbsp;
+
+&nbsp;
+
+# Publicity events, People business 
+
+The relationships of "blockbuster opening weekend" for film premiers. Creating a blockbusting feeding frenzy fandom. So much money on the opening days counted towards "success" of storytelling.    
+
+"Indian actress Nidhi Agarwal being mobbed by fans at movie premiere."
+
+https://old.reddit.com/r/TikTokCringe/comments/1ppxex1/indian_actress_nidhi_agarwal_being_mobbed_by_fans/
+
+OPERA_A Show Biz children making movies of themselves at the Movie Premier. Attractions to https://www.youtube.com/watch?v=EPIaw-MgNzM outside the premier stadium. Crowd-pleasing performers.
+
