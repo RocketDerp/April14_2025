@@ -76,3 +76,33 @@ https://time.com/7313999/neil-postman-trump-prediction/
 
 &nbsp;
 
+&nbsp;
+
+# Reply about racial
+
+How this is only about race / racial
+
+https://bsky.app/profile/corvid.bsky.social/post/3mabhcndhu22c    
+
+<img width="1795" height="854" alt="image" src="https://github.com/user-attachments/assets/e5297841-084e-400a-bada-f536875244a9" />
+
+&nbsp;
+
+My response:
+
+"We all have a responsibility to not be racists. It’s not always easy, but MAGA embraced it. They are not victims."
+
+The problem is #Christmas 
+
+You don't need to have a skin color or #racial difference to form hate-groups like Bluesky ( Hate MAGA) vs. Twitter (MAGA)
+
+"1 John 4:20" Bible verse issue
+
+I have lived in north Africa #ArabSpring2010 and Middle East to study this.
+
+The #Islamic terrorists in #Algeria don't have a different skin color / race from those they { hate butcher murder deport }
+
+Racial and skin color is superficial / shallow. "Orange Skin" fxiation.
+
+1. Fox News fiction vs.
+
