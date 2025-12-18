@@ -73,8 +73,18 @@ https://bsky.app/profile/stlcatfishmike.bsky.social/post/3maa3bbfoqs26
 
 &nbsp;
 
+&nbsp;
 
-# Reply Trump Voters not victims, Trump good for voters
+&nbsp;
+
+
+# Reply Trump Voters *not victims*, Trump good for voters
+
+Ok, so this reply tries to make that case (assertion) that Trump leading the USA is good for ANYONE. Outside of mind-fucked self-owned people like Putin / Musk / Murdoch - I do not think Trump is in any way good for any person. Even Putin is self-harming with Trump, Russia is in danger with Trump's runaway faith in fiction storytelling. Anyone can feed Trump fiction and he has access to the USA military. The very idea that ANYONE living on Earth, or USA, is not victims to Trump is a gross misunderstanding of the "forest for the trees" of the situation. It is to be so fixated on Trump that you think he actually is winning. Which is Trump's very own propaganda: That he is a winner. “We will have so much winning if I get elected that you may get bored with winning" - March 2, 2016 - before November 2016 election. https://macleans.ca/politics/washington/how-donald-trump-happened/
+
+No, every person on Earth is not winning when Trump has the power over the population and systems of the USA. This is not a minor or trivial topic here. And the whole messaging response is to trivialize the topic of billionaire psychological operations against "We The People" (just as Neil Postman discuses: "Therein is our problem, for television is at its most trivial and, therefore, most dangerous" ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985, page 16).
+
+&nbsp;
 
 https://bsky.app/profile/corvid.bsky.social/post/3maazwdlwys2t
 
@@ -90,7 +100,9 @@ https://time.com/7313999/neil-postman-trump-prediction/
 
 &nbsp;
 
-# Reply about racial
+&nbsp;
+
+# Reply about racial (not women)
 
 How this is only about race / racial
 
