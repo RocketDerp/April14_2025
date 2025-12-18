@@ -514,3 +514,19 @@ https://old.reddit.com/r/whenthe/comments/1pp8ia1/i_will_say_no_more/nul2vw5/
 
 As nobody wants to be known as We The People of Reddit readership who stood up and removed Trump with reality and nonfiction science. Instead, follow the Trump leadership of garbage media content and cheer on the entire nation following Trump. Not just MAGA, not just Republicans, not just conservatives, but an entire nation that prizes a social media addict leading addictions to hate and death-wishing messages.
 
+https://old.reddit.com/r/interestingasfuck/comments/1pp5kpm/everyones_heard_of_the_dead_sea_scrolls_but_most/nukg27q/
+
+As Joyce Geek says in Thunder Word tutorials, James Joyce's work is a celebration of the confounding of tongues. Unique language expressions and our own voice. Unlike the "Bot!" screechers on Reddit who are conformity enforcers to language, who think Fox News speak is the ultimate entertainment. 
+
+https://old.reddit.com/r/interestingasfuck/comments/1pp5kpm/everyones_heard_of_the_dead_sea_scrolls_but_most/nukih2h/
+
+So, they think Torah Bible Quran are not all creative science fiction, fandom of oral traditions? Fiction outsells nonfiction. Science nonfiction wasn't published much in Levant at that period.
+
+https://old.reddit.com/r/interestingasfuck/comments/1pp5kpm/everyones_heard_of_the_dead_sea_scrolls_but_most/nukw1yf/
+
+Bible verse "1 John 4:20" about proving to "see God" is pretty serious fandom reformation.
+
+https://old.reddit.com/r/interestingasfuck/comments/1pp5kpm/everyones_heard_of_the_dead_sea_scrolls_but_most/nul3kxb/
+
+Kevin Smiht's DOGMA movie fandom is pretty good.
+
