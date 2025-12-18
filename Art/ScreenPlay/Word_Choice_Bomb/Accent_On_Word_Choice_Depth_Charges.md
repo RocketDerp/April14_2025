@@ -2,6 +2,7 @@
 
 Hyperlexia    
 Hyper Caetextia    
+Hypercontextus    
 
 Finn's Hotel year 1923     
 Dreamer's Hotel February 10, 2020   
