@@ -537,3 +537,21 @@ I'm capturing this comment to capture the posting itself. Note the Reddit langua
 https://old.reddit.com/r/politics/comments/1pp8r9v/retired_cop_jailed_for_37_days_over_charlie_kirk/nul1efh/
 
 Reddit audiences live in such denial of how much hate goes on since June 16, 2015 on social platforms. People are deporting and calling ICE on people they don't like. Swat team raids are a tactic of media addicts, video game players (Reddit society full of gamer addicts in huge denial of toxic gaming culture like swatting / ICE raiding as Trump does with his Truth Social gaming ARG platform).  You start teaching about Marshall McLuhan, Neil Postman, Egoism, Egomania in USA on Bluesky or Reddit - confronting bullying and "bot!" dehumanization (conditioned by billionaires, richest people in the world - Elon Musk creating language bots at Memphis data center). People on Reddit dehumanize other Reddit users and other social media users as bots because Elon Musk GrokAI is dehumanizing them. It is a common faith in abuse and dehumanization that Reddit audience members share with Elon Musk. Same with Fox News audience behavior towards dehumanizing and punching-down on poor people as programmed by the Fox News programming messages. Putin has all the billionaires eating out of his mass dehumanization and Ukraine wrecking war since March 2013. Surkov won! People block with systems (jail systems, Reddit cloud computing systems) out of egoism over words around fandoms of Charlie Kirk and Vince Gilligan fandoms. All fiction vs. fiction, monomyth vs. monomyth stree gangs! Anything to avoid serious nonfiction learning and coming together to rescue Trump and MAGA from Surkov students! Nonfiction such as this November 7, 2014 story on The Atlantic will trigger silencing / blocking / avoidance. https://www.theatlantic.com/international/archive/2014/11/hidden-author-putinism-russia-vladislav-surkov/382489/
+
+https://old.reddit.com/r/pics/comments/1ppatqq/new_plaques_added_to_the_presidential_hall_of/nulkeph/
+
+Reddit audience members will do ANYTHING and EVERYTHING to bend over backwards to not blame { Rupert Murdoch, Putin, Internet Research Agency, Cambridge Analytica, Elon Musk Twitter } and assert repeating of nonfiction learning of Kremlin media and Neil Postman / Marshall McLuhan media ecology. Trump is entertaining to Reddit audiences. This is TRUMP's ART WORK that people on Reddit have upvoted to the top of the front page. All the jokes about Hitler being an artists are flying right over the Reddit home page audience. Donald Trump is a influencer and Reddit consumers are flocking to be influenced. Hate motivates. Trump is a leader of mocking Trump and hate of Trump. Leading signals of hate and mockery, Reddit follows!
+
+https://old.reddit.com/r/pics/comments/1ppatqq/new_plaques_added_to_the_presidential_hall_of/nulgzpn/
+
+Reddit messages, audience programming: sit around and wait. Don't stand up to Putin and Trump. Just sit on your meme devices and keep commenting on the turds of images from the White House. [The Reddit society of turd-grading and ranking of Trump's shitting on goodness.](/Grim_Blunt/Society_of_grading_and_ranking_turds.md)
+
+https://old.reddit.com/r/pics/comments/1ppatqq/new_plaques_added_to_the_presidential_hall_of/nulgmz0/
+
+Surkov student techniques blow Reddit audience minds. Meme consumers have mind blown by Trump antics. Into meme stupors.
+
+https://old.reddit.com/r/pics/comments/1ppatqq/new_plaques_added_to_the_presidential_hall_of/nulkbi5/
+
+<img width="874" height="752" alt="image" src="https://github.com/user-attachments/assets/fc318573-29a7-44a4-9473-10cf4e402e29" />
+It isn't hard to explain if you turn to a year 2014 book about Putin's White House / Kremlin: "Nothing Is True and Everything Is Possible: The Surreal Heart of the New Russia is a 2014 book by Peter Pomerantsev. It focuses on the political developments in Russia in the early 21st century and the culture of Russian media." https://en.wikipedia.org/wiki/Nothing_Is_True_and_Everything_Is_Possible
+
