@@ -426,3 +426,21 @@ https://old.reddit.com/r/MurderedByWords/comments/1ppaizq/history_didnt_stutter/
 Front page of Reddit. "Murdered by Words!"  framing again that nothing at all can be done in year 2025. Making the problem "The Confederacy"' with simple-think Twitter-think mindsets. Anything and everything to not blame immigrant billionaire Rupert Murdoch https://en.wikipedia.org/wiki/Rupert_Murdoch . Billionaire Putin and the Internet Research Agency since year 2013 https://www.buzzfeednews.com/article/maxseddon/documents-show-how-russias-troll-army-hit-america not blame immigrant billionaire Elon Musk purchase of Twitter media empire. https://en.wikipedia.org/wiki/December_2022_Twitter_suspensions 
 
 No, the Reddit front-page simulation of resisting is to tell everyone that nothing can be done today in current times, because a war that ended April 9, 1865 is the problem of Putin in Russia / Ukraine war. This is hoghwash, unreality, Russian. Reddit mind-fucking information warfare to Americans to do nothing at all to educate and defend against Russia. September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+# Thursday December 18, 2025
+
+Number 7 and 8 on /r/All front page of Reddit 
+
+<img width="1596" height="514" alt="image" src="https://github.com/user-attachments/assets/cc7cef12-d613-4dee-a006-307849734462" />
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1pprkf5/the_past_coming_in_handy/
+
+Twitter. vs. Reddit simulacra of resisting MAGA values of low-effort Fox News HDTV media ecology. Like shooting fish in a barrel. The very Reddit posting title amplifies the simplicity of the Kremlin ARG quests. How "handy" it is to give logical bi-polar (USA vs. USA trivial, never complex Russia vs. USA / Russia vs. NATO) responses to [Surkov Contradictory Kremlin / White House patterns described New Years Eve 2014 ... Adam Curtis, BBC](https://www.youtube.com/watch?v=h9_L9GRRsQo).
