@@ -595,3 +595,7 @@ https://old.reddit.com/r/politics/comments/1ppfesc/trump_holds_national_address_
 
 Just like TV shows have laugh-tracks, this message on Reddit is a social media laugh track. "LOL" at end of message. This is how Trump has so much power and wealth now, people blow-out their minds in attraction to his unique style and entertainment. People no longer able to imagine a normal sincere honest scientific nonfiction leadership / governing. It has to be "meme life" / meme like Reality TV The Apprentice Trump, or "The Office" characters.
 
+https://old.reddit.com/r/politics/comments/1ppfesc/trump_holds_national_address_speech_to_blame/nummetp/
+
+Over TEN YEARS AND SIX MONTHS of this engagement from Trump. People who comedy-wash amusement-wash humor-wash everything Trump does for meme audiences. Nobody else can make powerful symbols so entertaining to audiences. Addiction to junk media is the very mechanism of Trumpism / MAGA / Surkov's defeat of USA society.
+
