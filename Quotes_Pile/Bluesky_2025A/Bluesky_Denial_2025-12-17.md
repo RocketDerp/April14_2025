@@ -106,3 +106,20 @@ Racial and skin color is superficial / shallow. "Orange Skin" fxiation.
 
 1. Fox News fiction vs.
 
+&nbsp;
+
+# Given a page from 2 nonfiction books
+
+https://bsky.app/profile/corvid.bsky.social/post/3mabhydld3c2c
+
+<img width="1844" height="1314" alt="image" src="https://github.com/user-attachments/assets/6c982d5b-0871-46e6-bd3e-cb1322981337" />
+
+My response:
+
+"I don’t even know what you’re talking about."
+
+Yes, because social media is the very problem. High-speed reactionary, you are programmed to be as fast as possible and not ask sincere earnest questions.
+
+That's what you don't get about Neil Postman's work, high-speed electric media, #Bluesky
+
+
