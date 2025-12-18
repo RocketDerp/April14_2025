@@ -156,3 +156,11 @@ Decent News Programs
 Post-Truth Uncle Fuclwad    
 Post-Truth Enslaved    
 Post Truth Wake Up    
+
+Osmosis Is Not Working     
+Learned Monsters    
+Avoided Writings    
+
+Touch devices    
+Meme devices    
+Naked Dinner   
