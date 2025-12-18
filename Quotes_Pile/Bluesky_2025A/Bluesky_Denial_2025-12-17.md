@@ -386,3 +386,33 @@ I said it was about women, linked #TheAtlantic article, then you started "playin
 
 &nbsp;
 
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+
+# Unblocked me 
+
+Unblocked me to play mind games of denial. Denial was in my opening replies. USA denial as conditioned by Surkov students and the Newsweek article from February 2019 gloating by Surkov.
+
+&nbsp;
+
+https://bsky.app/profile/corvid.bsky.social/post/3mabraa6vi22w
+
+Re-blocked me before I could even get the screen shot! Bit I did quote one sentence of the reply. Extremely fast reactionary, against any off-Bluesky links.
+
+&nbsp;
+
+My reply:
+
+"You just posted a link to an article and gave no context for what point you wanted it to make." #projection
+
+You linked #Tolstoy War & Peace book in the #context of my #Bluesky profile.
+
+I opened the topic of Russia, and you start playing #Russian #SurkovMonoMyth warfare right with me  on Bluesky
