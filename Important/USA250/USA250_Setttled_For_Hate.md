@@ -24,6 +24,6 @@ Confusing people and stunning people became organized and weaponized.
 
 https://www.cbsnews.com/news/cambridge-analytica-ceo-alexander-nix-data-firm-describes-shadow-election-tactics-2018-03-19/
 
-* "The two fundamental human driver when it comes to taking information on board effectively are hopes and fears, and many of those are unspoken and the even unconscious -- you didn't know that was a fear until you saw something that just evoked that reaction from you," Turnbull explained in a meeting with a reporter posing as "Ranjan," a prospective client from Sri Lanka. He continued, "And our job is to get, is to **drop the bucket further down the well than anybody else** to understand what are those really deep-seated underlying fears, concerns. There is no good fighting an election campaign on the facts because actually it's all about emotion."
+* "The two fundamental human driver when it comes to taking information on board effectively are hopes and fears, and many of those are **unspoken and the even unconscious** -- you didn't know that was a fear until you saw something that just evoked that reaction from you," Turnbull explained in a meeting with a reporter posing as "Ranjan," a prospective client from Sri Lanka. He continued, "And our job is to get, is to **drop the bucket further down the well than anybody else** to understand what are those really deep-seated underlying fears, concerns. There is no good fighting an election campaign on the facts because actually it's all about emotion."
 
 
