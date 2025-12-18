@@ -6,17 +6,17 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pkrjct/episode_7_carol_singin
 
 &nbsp;
 
-1. I quote Martin Luther King Jr during Christmas season December 2025
+1. I quote Martin Luther King Jr during Christmas season December 2025. Try to assert context outside of 2025 MAGA USA Reddit high-speed reactionary hive mind media environment. See the reply I get.
 
-2. The commenting context is Vince Gilligan's television show "Pluribus"
+2. The commenting context is Vince Gilligan's television show "Pluribus". What Vince Gilligan said on February 15, 2025 this year about Reddit and other social media users: "there's no simple answer for how we might change that. Though, if there were, I bet it would have something to do with climbing up out of the cesspool that is social media and actually listening to each other" https://youtu.be/TkteSxVIM1A?t=648
 
-3. Person chazzer20mystic completely against the idea of hive mind mental equality of the Founding Fathers being taken seriously, the Latin moto of the real nation United States of America.
+3. Person chazzer20mystic completely against the idea of hive mind mental equality of the Founding Fathers being taken seriously, the Latin motto of the real nation United States of America.
 
 4. chazzer20mystic views mental disorders and stress living under Donald Trump all year 2025, MAGA nation, as a weakness to attack in public in Reddit.
 
 5. chazzer20mystic is a 9+ year Reddit account (July 12, 2016). Very territorial. Breaking Bad fandom? Saul manipulative lawyers fandom?
 
-6. "mystic" in their username, but anti-mysic on neurodiversity / mind peering of free-thinking individuals.
+6. "mystic" in their username, but anti-mystic on neurodiversity / mind peering of free-thinking individuals.
 
 7. Hides their Reddit profile history despite 9+ year account history. Very suspicious on Reddit. This new enshitification 2025 feature wasn't available 9 years ago. see: https://old.reddit.com/r/help/comments/1nrzzkm/how_long_has_reddit_had_the_feature_that_enables/
 
