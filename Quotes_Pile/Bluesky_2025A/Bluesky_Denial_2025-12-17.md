@@ -259,3 +259,20 @@ screen shot of my reply:
 
 https://bsky.app/profile/corvid.bsky.social/post/3mablop7hck2m
 
+&nbsp;
+
+my reply:
+
+Just as you didn't #look at 
+
+1. @theatlantic.com article form December 20, 2013 about #gender
+
+2. You won't discuss women.  Hillary Clinton, Woman Kampala Harris
+
+3. A MAGA woman who admits she fell for psychological operations against woman
+
+All #SkinColor to you { black, white, simple, orange }
+
+https://www.usatoday.com/story/opinion/columnist/2024/08/14/trump-sexist-vance-republican-misogyny-women/74631430007/
+
+(Typos: "from", "Kamala")
