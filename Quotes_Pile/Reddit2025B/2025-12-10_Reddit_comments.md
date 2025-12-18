@@ -660,3 +660,8 @@ https://old.reddit.com/r/NoFilterNews/comments/1ppr918/new_audio_emerges_of_trum
 
 New Reddit account this year.
 
+https://old.reddit.com/r/politics/comments/1ppqor1/house_republicans_call_early_christmas_break/nuorx2o/
+
+<img width="840" height="404" alt="Screenshot from 2025-12-18 12-21-34" src="https://github.com/user-attachments/assets/62ab40f7-32ab-4125-a822-83683f4d000f" /> What would the Kremlin do? "Reality Kremlin" since March 2013. Interrobang! "WWPD‽"
+
+
