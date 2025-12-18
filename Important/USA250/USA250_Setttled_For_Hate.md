@@ -54,3 +54,60 @@ After World War Two, in Atlanta where the war did not wreck as many lives. Some 
 [/Quotes_Pile/Martin_Luther_King_Jr_quotes0.md](https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Martin_Luther_King_Jr_quotes0.md)
 
 Really rushed this, writing this is incredibly painful and hard. Because people prize and cheer on hate so much in December 2025.
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+# Year End 2025 USA Hate Canada
+
+https://bsky.app/profile/roundsparrow.bsky.social/post/3mab72gkaq22e    
+https://autistics.life/@RoundSparrow/115740604886977097    
+
+United States of Hate
+
+1. Elon Musk Twitter: Teaching hate to  Americans
+
+2. Rupert Murdoch Fox News: Teaching hate
+
+3. Trump White House: Teaching Hate
+
+4. Reddit teaching Hate to children
+
+HASHTAGS: #Christmas #ToxicClergy that can't teach Bible verses "1 John 3:17" and "1 John 4:20" teaching "Hate Mexicans", "hate blacks", worship Trump / Worship MAGA. 
+
+HASHTAGS: Everyone is teaching hate. Nobody is teaching compassion. #NotGoodEnoughMalala4
+
+&nbsp;
+
+“If Christians, Hindus or Jews are really our enemies, as so many say, why are we Muslims fighting with each other?”
+― Malala Yousafzai, I am Malala: The Story of the Girl Who Stood Up for Education and was Shot by the Taliban. October 8, 2013 #BeforeOctober7
+
+&nbsp;
+
+“If Mexicans, Blacks, Transgenders or Jews are really our enemies, as so many say, why are we White Christians fighting with each other?” - RoundSparrow 
+
+Toxic clergy that won't teach #Bible verse "1 John 4:20" #SeenGod ? Bible verse "1 John 4:20" - God is a #fiction character. Real human hate is bad. - "1 John 4:20"
+
+&nbsp;
+
+“If Mexicans, Blacks, Transgenders or Jews are really our enemies, as so many say, why are we White Christians fighting with each other?” - RoundSparrow
+
+Why in year 2025 are USA White Christians fighting with Canada White Christians as directed by #Trump #Musk #Murdoch ? #Canadians? Really?
+
+https://www.theatlantic.com/ideas/archive/2025/03/us-canada-relations-trump/682046/
+
+&nbsp;
+
+The only way year 2025 #USA attacking #Canada  with #HateHarder makes any sense is #NATOlost 
+
+1. NATO USA vs. NATO Canada 
+
+2. #Putin  
+
+#CrisisOfNotKnowingPeterPomerantsev #PeterPomerantsev  /\ 
+
+https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
