@@ -628,3 +628,35 @@ https://old.reddit.com/r/LivestreamFail/comments/1ppi540/nina_lin_permanently_ba
 
 Shoplifting crime as a content. Only wealthy Elon Musk D.O.G.E. with a chainsaw on stage can do love-streaming crime. Because he owns the media platform and isn't using someone else's like Twitch. https://www.bbc.com/news/articles/cly25yny3ego
 
+https://old.reddit.com/r/NoFilterNews/comments/1ppr918/new_audio_emerges_of_trump_directing_republicans/nuoon5l/
+
+New Reddit account this year. Mind-blown, tiny-short commenting. Most popular comment.
+
+https://old.reddit.com/r/NoFilterNews/comments/1ppr918/new_audio_emerges_of_trump_directing_republicans/nuopfk3/
+
+Surkov won. Popular Reddit comment: { Americans Hate Americans, Death-wishing Americans who were mind-fucked by Internet Research Agency since year 2013, Anything to attack USA people and NOT confront the no-identity social media Reddit / Twitter problems of Putin's media invasion, Death-wishing as answer to problems instead of confronting information systems usage - avoidance of reality with fiction addictions }
+
+https://old.reddit.com/r/NoFilterNews/comments/1ppr918/new_audio_emerges_of_trump_directing_republicans/nuoq3js/
+
+New Reddit account commenting on USA politics.
+
+https://old.reddit.com/r/NoFilterNews/comments/1ppr918/new_audio_emerges_of_trump_directing_republicans/nuoq4z2/
+
+New Reddit account this year. Promoting reactionary punishment. ICE style punishment of people. Anything to turn away from nonfiction about Russian's information war since March 2013 (leading up to November 2016 election).
+
+https://old.reddit.com/r/NoFilterNews/comments/1ppr918/new_audio_emerges_of_trump_directing_republicans/nuor6cb/
+
+Short-tiny messages screaming rage. Minds blown into tiny-short thinking reaction patterns, as conditioned by the IRA in social media environments.  
+
+https://old.reddit.com/r/NoFilterNews/comments/1ppr918/new_audio_emerges_of_trump_directing_republicans/nuor5ja/
+
+Reddit audience members describing how they expect the next episode of fiction storytelling will unfold. No call to end the fiction, entertained and thrilled to have Kremlin and White House techniques of Surkov students.
+
+https://old.reddit.com/r/NoFilterNews/comments/1ppr918/new_audio_emerges_of_trump_directing_republicans/nuor3dj/
+
+<img width="994" height="744" alt="image" src="https://github.com/user-attachments/assets/08468830-9c55-4220-95cb-204340f74b0e" /> { "bots", "AI", "Artificial Intelligence", "Fake News" } is how factual nonfiction information is treated in USA society of social media consumers (Reddit and Bluesky inclusive). Billionaires like Elon Musk GrokAI Twitter / ChatGPT / Google (paying Reddit owners) feeding fiction storytelling all over society and bewildered citizens who can't face the Russian war against reality. September 9, 2014 nonfiction: https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ Media cults to fiction storytelling abound.
+
+https://old.reddit.com/r/NoFilterNews/comments/1ppr918/new_audio_emerges_of_trump_directing_republicans/nuot978/
+
+New Reddit account this year.
+
