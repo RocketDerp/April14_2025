@@ -1407,3 +1407,15 @@ The video clip on Reddit mentions "white supremacy", a valid topic in December 2
 USA health care system favors wealthy competition over appearances. Not inclusion for all people. This is the underlying reason so many billionaires are investing in artificial intelligence capable of generating images. The demand for "good looks" exceeds any demand for normalcy. Ugly people are considered worthless in such a society. Ugly people are treated almost as if another kind of animal / species on Earth. Images and every social device having a camera / photographs with touch-up enhancement digital abilities.
 
 The whole change to be famous - is also somethings not always looked at. These women would not be world famous / staring roles if they did not do everything they could to compete on superficial and shallow beauty standard. Audiences and popularity / attraction to selling their content and images.
+
+&nbsp;
+
+&nbsp;
+
+# Taylor swift Big Budget Heavy Duty Live
+
+https://old.reddit.com/r/dataisbeautiful/comments/1ppaqfe/oc_how_the_taylor_swift_eras_tour_makes_money/
+
+Analysis of Taylor Swift touring economics.
+
+Contrast with Mary Spender https://www.youtube.com/watch?v=C9FyZcozdOE  
