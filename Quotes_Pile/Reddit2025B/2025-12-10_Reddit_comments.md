@@ -683,3 +683,11 @@ https://old.reddit.com/r/politics/comments/1pq1cir/trump_79_falls_asleep_after_s
 
 <img width="870" height="334" alt="image" src="https://github.com/user-attachments/assets/dfb32fb8-be2a-4a51-8cbe-e00d4f667541" /> No other person in the world, in all human history, can provide meme addicts with their content. Normal governing has been abandoned FOR OVER TEN YEARS AND SIX MONTHS to antics politics / Twitter mania / short-message Tweet-thinking. Russia won, Surkov students won. Trump digital electric media stimulation day and night goes right to the Reddit front page FOR OVER A DECADE! Reddit society has never been more thrilled than with mocking back at Trump. President Tony Clifton SNL is the entertainer of all times! We The People adore the { hate, dehumanization, mocking } Putin has put into the Twitter / Truth Social spotlights / meme lights.
 
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1ppzf6y/trump_has_rescheduled_marijuana_to_schedule_3/nuqstgh/
+
+Reddit audience: declaring that basically previous non-Trump governments don't provide the { memes, electric media stimulation, fiction storytelling, Kremlin techniques, Surkov student methods, saturation coverage on every media platform } that MAGA Trump provides. Never educating or learning about We The People problems of being attracted to Trump Reality TV.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1ppzf6y/trump_has_rescheduled_marijuana_to_schedule_3/nuqnv9q/
+
+Easy without red tape and power to tangle up citizens with laws and red tape isn't in Putin and Trump desires.
+
