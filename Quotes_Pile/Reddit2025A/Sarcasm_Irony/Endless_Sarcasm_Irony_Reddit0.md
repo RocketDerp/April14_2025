@@ -1897,3 +1897,12 @@ Front page of Reddit. Bewildered baffled society even since June 16, 2015 - TEN 
 https://old.reddit.com/r/CuratedTumblr/comments/1poxuzw/i_really_hate_this_coin_flip/
 
 The endless { Sarcasm, Mocking, Jokes } on meme mills FOR OVER TEN YEARS AND SIX MONTHS - at the serious problems. Reddit he joke-wrapping audience comment section that cheers on Donald Trump and MAGA as the most thrilling source of hate and mockery motivations. Every day, day after day, endless, never-ending mocking away at orange skin and golf outings for meme life.
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/nba/comments/1ppa8iu/dillon_brooks_takes_shots_at_lebron_hes_a_social/
+
+There it is *again*, front page of Reddit. That maybe the problem is social media leadership of Donald Trump Entertainer "Reality TV" leading sports stars and an entire nation with Truth Social role models. That now everything is who is the biggest bullshit thrower with a meme touch device.  And that eating the shit Donald Trump throws at Reddit and Bluesky isn't RESISTING the shitshow. People need to face up to media addiction behaviors. Sports stars are not immune to Twitter any more than Reddit front page avoids Twitter content and Truth Social messages. Media addiction is how Russia / Surkov students defeated USA. This isn't a basketball game, this is real-world media stars telling you about media addiction. Trump is a Fox News and Putin Russia Today media addict! And so is the whole population addicted to the signals of junk noise that Trump stimulates the population with constantly. Neil Postman's library of books on education and media ecology explain Trump and how serious this problem is for the USA society. Not just MAGA, but everyone.
+
