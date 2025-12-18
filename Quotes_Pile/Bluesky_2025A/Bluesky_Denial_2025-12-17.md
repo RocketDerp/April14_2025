@@ -341,3 +341,25 @@ February 15, 2025
 2. Your reply about women: "Psyops, lol, nope"
 
 HASHTAGS: #FWakeBanalAgent #Gaslighting Women #MAGAwomen
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+# Playing Dumb 
+
+https://bsky.app/profile/corvid.bsky.social/post/3mabqog6uss2w
+
+<img width="1794" height="448" alt="image" src="https://github.com/user-attachments/assets/7f5c664b-664a-4c84-ae78-936f1879bae3" />
+
+&nbsp;
+
+My reply:
+
+You said everything was about #racial / skin color {black, white, orange, brown} 
+
+I said it was about women, linked #TheAtlantic article, then you started "playing dumb". Then you linked me "War and Peace" and "played dumb" that Marshall McLuhan's #WarAndPeaceGlobalVillage isn't my #Bluesky profile
