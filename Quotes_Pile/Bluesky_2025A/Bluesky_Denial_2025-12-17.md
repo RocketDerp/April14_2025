@@ -275,4 +275,4 @@ All #SkinColor to you { black, white, simple, orange }
 
 https://www.usatoday.com/story/opinion/columnist/2024/08/14/trump-sexist-vance-republican-misogyny-women/74631430007/
 
-(Typos: "from", "Kamala")
+(Typos: number 1 "from", number 2 "Kamala", the number 3 final "woman" vs. "women"... maybe for emphasis and anti dark-arts mind-fuck breaking context bewilderment)
