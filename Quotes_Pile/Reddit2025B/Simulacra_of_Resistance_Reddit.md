@@ -415,3 +415,12 @@ https://old.reddit.com/r/whenthe/comments/1pp8ia1/i_will_say_no_more/
 
 Christmas season death-wishing. The entertainment that Donald Trump provides to the meme addicted audience of Reddit and Bluesky. Every hour of every day FOR OVER TEN YEARS AND SIX MONTHS, people just go on and on with stimulating memes and music. Anything and everything to avoid non-fiction learning about media addiction and out-group religion holiday hate-patterns of the Levant monomyth stories. A population of learning-avoidant people engaged with feedback loops of Truth Social mass dehumanization leadership.
 
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1ppaizq/history_didnt_stutter/
+
+Front page of Reddit. "Murdered by Words!"  framing again that nothing at all can be done in year 2025. Making the problem "The Confederacy"' with simple-think Twitter-think mindsets. Anything and everything to not blame immigrant billionaire Rupert Murdoch https://en.wikipedia.org/wiki/Rupert_Murdoch . Billionaire Putin and the Internet Research Agency since year 2013 https://www.buzzfeednews.com/article/maxseddon/documents-show-how-russias-troll-army-hit-america not blame immigrant billionaire Elon Musk purchase of Twitter media empire. https://en.wikipedia.org/wiki/December_2022_Twitter_suspensions 
+
+No, the Reddit front-page simulation of resisting is to tell everyone that nothing can be done today in current times, because a war that ended April 9, 1865 is the problem of Putin in Russia / Ukraine war. This is hoghwash, unreality, Russian. Reddit mind-fucking information warfare to Americans to do nothing at all to educate and defend against Russia. September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
