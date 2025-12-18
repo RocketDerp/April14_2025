@@ -58,3 +58,21 @@ https://bsky.app/profile/stlcatfishmike.bsky.social/post/3maa35hyeoc26
 https://bsky.app/profile/stlcatfishmike.bsky.social/post/3maa3bbfoqs26
 
 <img width="1788" height="500" alt="image" src="https://github.com/user-attachments/assets/a8ed2f40-b791-4f1e-b119-a9f35f7ce519" />
+
+
+&nbsp;
+
+&nbsp;
+
+https://bsky.app/profile/corvid.bsky.social/post/3maazwdlwys2t
+
+<img width="1786" height="818" alt="image" src="https://github.com/user-attachments/assets/50715f6c-6c3f-4f49-ae8d-066efd9786fa" />
+
+My response: "MAGA is based on feelings of self-victimhood, and the term Psyops implies that Trump voters are victims. They're not. "
+
+Rupert Murdoch #FoxNews and Elon Musk #Twitter against a low-education rural MAGA culture. Study media ecology and face up to Blueksy. #NeilPostman 
+
+https://time.com/7313999/neil-postman-trump-prediction/
+
+&nbsp;
+
