@@ -19,5 +19,9 @@ Dreamer's Hotel February 10, 2020
 
 * "You can put an accent on it that way, but I think it’s a little too strong because there were the great female saints. Hildegarde of Bingen—she was a match for Innocent III. And Eleanor of Aquitaine—I don’t think there is anybody in the Middle Ages who has the stature to match hers. One now can look back and quarrel with the whole situation, but the situation of women was not that bad by any means."
 
-* "t was important in that it gave the West this accent on the individual, that one should have faith in his experience and not simply mouth terms handed down to him by others."
+* "It was important in that it gave the West this accent on the individual, that one should have faith in his *experience* and not simply mouth terms handed down to him by others."
+
+Experience Music Project 1996 Bellevue Washington social information systems experienced.    
+https://digitalcollections.lib.washington.edu/digital/collection/buildings/id/6912/
+
 
