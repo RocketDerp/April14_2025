@@ -1419,3 +1419,20 @@ https://old.reddit.com/r/dataisbeautiful/comments/1ppaqfe/oc_how_the_taylor_swif
 Analysis of Taylor Swift touring economics.
 
 Contrast with Mary Spender https://www.youtube.com/watch?v=C9FyZcozdOE  
+
+&nbsp;
+
+&nbsp;
+
+# Choice of Media analysis 2025 
+
+https://bsky.app/profile/davidgilbert.bsky.social/post/3ma7365iubs2i
+
+New research shows for first time the impact influencers have on politics. Key findings:
+
+• Creators are more impactful than traditional media
+• Apolitical influencers have more impact than political ones
+• Regular social media use pushes users to the right
+
+https://www.wired.com/story/the-most-powerful-politics-influencers-barely-post-about-politics/
+
