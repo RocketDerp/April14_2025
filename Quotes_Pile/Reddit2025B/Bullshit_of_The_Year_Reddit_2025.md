@@ -30,6 +30,14 @@ USA MAGA 2025 Reddit society / Trump Truth Social values on Reddit / immigration
 
 &nbsp;
 
+A big reason I witnessing these "bot", "you had a stroke" kind of Reddit behaviors *as bullshit* (bad) behaviors:
+
+Since the IRA invasion of year 2013 onward, people don't say the most obvious and common examples: Are you tired, lack of sleep. Distracted by a song on the radio or talking to another person while writing a message on Reddit. Things I have experienced with people my entire life. Writing while on an airplane. Parenting a child. 
+
+The competitive *hate harder* contest of social media is a big part of Vince Gilligan's WGA February 15, 2025 call-out. The high-speed loss of personal identity (of everyone) that Marshall McLuhan described in 1977. https://www.organism.earth/library/document/mcluhan-mcmanus "Everybody tends to merge his identity with other people at the speed of light. It’s called being mass man. It began quite a long time ago."
+
+Vince Gilligan said it was "not his wheelhouse", but it became mine December 16, 2009 with the Internet Arab Spring and my travel to Algeria in Africa to study media ecology. And Malala's January 3, 20009 blogging from Swat Valley, Pakistan.  The hate people have over September 11, 2001 religion science fiction (Pluribus is science fiction) storytelling observations and interpretations. 
+
 &nbsp;
 
 &nbsp;
