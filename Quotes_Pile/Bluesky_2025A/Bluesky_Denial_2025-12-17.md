@@ -303,7 +303,7 @@ With this image emphasis: https://cdn.bsky.app/img/banner/plain/did:plc:rwyn2e7j
 
 &nbsp;
 
-War and Peace in Global Bluesky WWW... **"these people are just gullible"**, sure. But NOT YOU on Bluesky, right? Just the WOMAN who is being mocked with "LOL", Americans are dumb and got fucked over by Trump - cheer-leading! People cheering on as amusement that USA people have fallen for { Trump, Murdoch, MAGA, Putin } bullshit.
+War and Peace in Global Bluesky \W\W\W... **"these people are just gullible"**, sure. But NOT YOU on Bluesky, right? Just the WOMAN who is being mocked with "LOL", Americans are dumb and got fucked over by Trump - cheer-leading! People cheering on as amusement that USA people have fallen for { Trump, Murdoch, MAGA, Putin } bullshit.
 
 &nbsp;
 
