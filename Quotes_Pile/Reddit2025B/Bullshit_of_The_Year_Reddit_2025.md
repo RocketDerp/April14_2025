@@ -12,7 +12,7 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pkrjct/episode_7_carol_singin
 
 3. Person chazzer20mystic completely against the idea of hive mind mental equality of the Founding Fathers being taken seriously, the Latin motto of the real nation United States of America.
 
-4. chazzer20mystic views mental disorders and stress living under Donald Trump all year 2025, MAGA nation, as a weakness to attack in public in Reddit.
+4. chazzer20mystic views mental disorders and stress living under Donald Trump all year 2025, MAGA nation, as a weakness to attack in public with Reddit's powerful computer machines.
 
 5. chazzer20mystic is a 9+ year Reddit account (July 12, 2016). Very territorial. Breaking Bad fandom? Saul manipulative lawyers fandom?
 
