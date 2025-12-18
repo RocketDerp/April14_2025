@@ -204,3 +204,27 @@ https://bsky.app/profile/corvid.bsky.social/post/3mabkdznbj22o
 
 <img width="1814" height="706" alt="image" src="https://github.com/user-attachments/assets/d6383168-1561-4d74-aa4d-5823543af292" />
 
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+
+# Freaking out of my Bluesky User Profile
+
+On my Bluesky user profile I have "War and Peace", so now they are gong for that. Also playing the Hillary Clinton trigger of "You the Puppet" Trump response, turning tables that I'm the Russian since I called out Putin's IRA PSYOP on Bluesky.
+
+https://bsky.app/profile/corvid.bsky.social/post/3mabkyvskok2o
+
+<img width="1818" height="810" alt="image" src="https://github.com/user-attachments/assets/9703a882-be4b-40f7-89c0-71023a6e9b35" />
+
+&nbsp;
+
+Look at the great context, this is their reply after linking the December 20, 2013 article on The Atlantic about gender / women and not it being race / orange skin / black skin / white skin that is the basis of Putin's information war. See the image context of asserting The Atlantic article.
+
+<img width="1812" height="1344" alt="image" src="https://github.com/user-attachments/assets/78252a69-ca19-436b-9830-42d4de0fa727" />
+
