@@ -567,3 +567,14 @@ https://old.reddit.com/r/CringeTikToks/comments/1ppd4ym/trump_explains_venezuela
 
 <img width="938" height="560" alt="image" src="https://github.com/user-attachments/assets/e033fa54-977c-451b-b77d-ec3c7a5c4040" /> Recent Reddit account. Trump trusts Putin. Trump family believes Fox News. Trump is attracted to and believes fiction. And many people flock to every fiction story they can find, including Trump's fiction storytelling. Fiction outsells nonfiction. Trump cares only that it's popular and thrilling information, not is it is science nonfiction / reality. Russia won, Surkov won since March 2013. Rescue Donald Trump from Russia's war against reality. September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
 
+https://old.reddit.com/r/NoFilterNews/comments/1pp61ej/maga_insider_leaks_trumps_mystery_announcement/nukotg3/
+
+Such content is very popular on Reddit with audiences.
+
+https://old.reddit.com/r/NoFilterNews/comments/1pp61ej/maga_insider_leaks_trumps_mystery_announcement/nukdoxe/
+
+Fiction storytelling is key to streaming engagement. New episodes drop. Reddit flocks. This whole Reddit posting that is linked is rumors about the next big Trump information event.
+
+https://old.reddit.com/r/NoFilterNews/comments/1pp61ej/maga_insider_leaks_trumps_mystery_announcement/nukhz1h/
+
+<img width="972" height="852" alt="image" src="https://github.com/user-attachments/assets/3710a989-3c38-4a21-aa85-60c662e6316a" /> Audiences no longer desire nonfiction. Nobody wants to resist Kremlin Surkov student techniques. They are thrilled to complain how bad President Tony Clifton is in his bragging. Hate leadership, hate of Trump is the very basis of power. People won't assert nonfiction from Neil Postman and be serious. People want to write high quantities of high-speed low-effort comments that get thrown away after 36 hours. Millions and millions of Reddit comments, not be on the same page of a serious nonfiction book with common mindset (Pluribus) learning.
