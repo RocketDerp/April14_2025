@@ -19,3 +19,27 @@ https://bsky.app/profile/kingofthefraggles.bsky.social/post/3ma7tnapo322h
 <img width="1812" height="782" alt="image" src="https://github.com/user-attachments/assets/5245129c-4013-422b-9846-b5fc68d2111c" />
 
 
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+# Reply to me
+
+https://bsky.app/profile/stlcatfishmike.bsky.social/post/3maa2jfcbgs26
+
+<img width="1838" height="1220" alt="image" src="https://github.com/user-attachments/assets/07018860-d2cb-45fa-a039-02d50d777145" />
+
+&nbsp;
+
+"Whatevs bro. Bigots. And Morons"
+
+An entire nation of people who welcome Russian information warfare into their home, feed it to their children since March 2013 without resisting in any way. #SinceMarch2013 
+
+#OutGroupMoron MAGA calls you moron. Everyone a moron nation.
+
+https://www.bbc.com/news/world-us-canada-45294192
+
