@@ -608,3 +608,23 @@ https://old.reddit.com/r/memes/comments/1ppmaud/truth_is_relative_to_everyone_th
 <img width="762" height="438" alt="image" src="https://github.com/user-attachments/assets/a84e1626-972a-4b12-81d1-ccabfb0e5d78" /> New Reddit user account. [Context bewilderment abounds on Reddit / anti-Wiki values of comments that flow away after 12 or so hours](/Media_Ecology/Context_Bewilderment.md). It isn't just missing information, it is the speed of learning. University to become a doctorate is a very very slow process. Learning takes incredible amounts of time. Not high speed racing to comment with Twitter-length messages on Reddit. Emphasis this was written in year 1992: ... ... ...     
 “a peek-a-boo world, where now this event, now that, pops into view for a moment, then vanishes again. It is an improbable world. It is a world in which the idea of human progress, as Bacon expressed it, has been replaced by the idea of technological progress. The aim is not to reduce ignorance, superstition, and suffering but to accommodate ourselves to the requirements of new technologies. We tell ourselves, of course, that such accommodations will lead to a better life, but that is only the rhetorical residue of a vanishing technocracy. We are a culture consuming itself with information, and many of us do not even wonder how to control the process. We proceed under the assumption that information is our friend, believing that cultures may suffer grievously from a lack of information, which, of course, they do. **It is only now (1992) beginning to be understood that cultures may also suffer grievously from information glut**, information without meaning, information without control mechanisms.” ― Neil Postman, Technopoly: The Surrender of Culture to Technology, 1992
 
+https://old.reddit.com/r/LivestreamFail/comments/1ppi540/nina_lin_permanently_banned_from_twitch_after_too/nuno2za/
+
+The "point of" Reddit isn't love thy neighbor. People who love machines and speedy delivery of junk while raging at people. Reddit is a USA site that rages abut ICE secret police while having both people and messages disappeared in front of them all the time. Vince Gilligan had to say about social median at the start of year 2025. https://youtu.be/TkteSxVIM1A?t=648 "there's no simple answer for how we might change that. Though, if there were, I bet it would have something to do with climbing up out of the cesspool that is social media and actually listening to each other" - speedy commenting that seeks hate, prizes hate, lead by hate-signaling leader Donald Trump all year 2025. Breeding round for those who admire hate.
+
+https://old.reddit.com/r/LivestreamFail/comments/1ppi540/nina_lin_permanently_banned_from_twitch_after_too/nun1ziv/
+
+Corporate America normal. Trump leading social media since June 16, 2015. **Over a decade of "Fake News" winning** debate. People raise their children on Trump role model.
+
+https://old.reddit.com/r/LivestreamFail/comments/1ppi540/nina_lin_permanently_banned_from_twitch_after_too/nun23ko/
+
+Has Reddit. I have Reddit account permanently banned /u/RoundSparrow from Russian information warfare back in Trump's first term. Reddit didn't face up when IRA became disclosed. There are children who got banned on Reddit when age 16 who are now age 24. Amnesty doesn't exist. It creates a very toxic non-learning society when people divorce / ban / child custody battle like Donald Trump says "fake news" and lives in alternate reality. Secret Reddit police who wear face masks / no identity. Just like ICE. Not done in public, people don't film Reddit banning / censorship of people. They just disappear*. What a nightmare culture where love and compassion lessons are non-existent. The Christian Clergy in USA can't make Bible verse "1 John 3:17" front page and apply it to Elon Musk D.O.G.E. in White House and apply "1 John 3:17" during the government shutdown in 2025.
+
+https://old.reddit.com/r/LivestreamFail/comments/1ppi540/nina_lin_permanently_banned_from_twitch_after_too/nun349q/
+
+So Twitch is policing car driving. Like an Amazon driver being policed for toilet breaks.
+
+https://old.reddit.com/r/LivestreamFail/comments/1ppi540/nina_lin_permanently_banned_from_twitch_after_too/nunmnte/
+
+Shoplifting crime as a content. Only wealthy Elon Musk D.O.G.E. with a chainsaw on stage can do love-streaming crime. Because he owns the media platform and isn't using someone else's like Twitch. https://www.bbc.com/news/articles/cly25yny3ego
+
