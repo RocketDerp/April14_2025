@@ -38,7 +38,14 @@ Received: by baker\.vnw\.com with SMTP (Microsoft Exchange Server Internet Mail 
 
 <img width="2000" height="761" alt="image" src="https://github.com/user-attachments/assets/da94441b-3669-428c-8b91-ed3e955915d6" />
 
-INTERESTING NOTE: this got removed from MIT public internet since I last checked 2024-11-26 despite been public Internet since 1997-05-01
+INTERESTING NOTE: this got removed from MIT public internet since I last checked 2024-11-26 despite been public Internet since 1997-05-01 -- ok mailing list still there and Google Search hit https://groups.csail.mit.edu/mac/ftpdir/thinkpad/old-archive/HTML/tp-1997/msg03547.html 
+
+Ok, I found it!     
+https://groups.csail.mit.edu/mac/ftpdir/thinkpad/old-archive/1997/1997_05.txt   
+
+text file: [thinkpad_1997-05-10_StephenG_vnw.txt](thinkpad_1997-05-10_StephenG_vnw.txt)
+
+Why has Google Search removed it in the past year?
 
 &nbsp;
 
