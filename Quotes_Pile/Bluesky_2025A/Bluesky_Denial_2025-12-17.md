@@ -4,4 +4,6 @@ https://bsky.app/profile/corvid.bsky.social/post/3ma7xvaamuk2t
 
 "Psyops, lol, nope, these people are just gullible and selfish bigots." - Russia is laughing away at your "LOL, nope" denial of the Ukraine war and direct warfare on Twitter and Reddit and Facebook and YouTube and Bluesky and.... Denial USA. Russia won. #SurkovSaysA  #Psyops gloating in #Newsweek https://www.newsweek.com/russia-president-vladimir-putin-election-americans-1327793
 
-* This Bluesky posting made it to the front page top of Reddit in under 90 minutes. https://old.reddit.com/r/LeopardsAteMyFace/comments/1ppazqc/maga_was_the_greatest_psyop_ever_perpetrated_on/ - with little engagement on Bluesky itself. onl 9 / 4 / 37 in 2 hours <img width="994" height="172" alt="image" src="https://github.com/user-attachments/assets/32cf656a-5079-4851-aef1-53135966d4ae" />
+&nbsp;
+
+* This is a reply to a Bluesky posting that made it to the front page top of Reddit in under 90 minutes. https://old.reddit.com/r/LeopardsAteMyFace/comments/1ppazqc/maga_was_the_greatest_psyop_ever_perpetrated_on/ - with little engagement on Bluesky itself. On Blueksy only 9 / 4 / 37 in 2 hours <img width="994" height="172" alt="image" src="https://github.com/user-attachments/assets/32cf656a-5079-4851-aef1-53135966d4ae" />
