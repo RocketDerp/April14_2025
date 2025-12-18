@@ -12,7 +12,7 @@ Bill Moyers, George Lucas, Joseph Campbell, Neil Postman. THEY ALL fell. No book
 
 Rick Roderick fell.
 
-Malala came to USA and she fell too! One of the brightest young women in year 2017 at that time. She has since (now in 2025) backed off to become a family - but in 2018 when she came to MLK senior / MLK junior church.... she made it clear that this was a very bad situation with Trump.
+Malala came to USA and she fell too! One of the brightest young women in year 2017 at that time. She has since (now in 2025) backed off to become a family - but in 2017 when she came to MLK senior / MLK junior church.... she made it clear that this was a very bad situation with Trump.
 
 Sunday, September 3, 2017
 
