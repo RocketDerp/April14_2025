@@ -450,3 +450,22 @@ I can not access this message. Information warfare tactic on Russia PsyOps discu
 
 I have never blocked this person in any way shape or form. They have blocked and unblocked multiple times against me.
 
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+
+# Concealed public postings
+
+
+https://bsky.app/profile/corvid.bsky.social
+
+They conceal thier public messages from search engines / non-users of Bluesky. Very suspicious. Especially when going around on MAGA topics and saying hyper-banal tiny-short messages that MAGA is NOT being manipulated by { Musk (richest man in the world [going after "Woke Women"](https://www.lemonde.fr/en/international/article/2024/08/13/elon-musk-s-ambition-repopulating-the-planet-and-destroying-the-woke-virus_6714239_4.html)), Putin, Murdoch } : "Psyops, lol, nope, these people are just gullible and selfish bigots." - As if Elon Musk "mind virus" isn't a Psyops information / psycological warfare decleration.
+
+&nbsp;
+
+<img width="1752" height="492" alt="image" src="https://github.com/user-attachments/assets/73bb5cdd-2749-4099-b0a0-4279ce788948" />
