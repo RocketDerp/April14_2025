@@ -276,3 +276,34 @@ All #SkinColor to you { black, white, simple, orange }
 https://www.usatoday.com/story/opinion/columnist/2024/08/14/trump-sexist-vance-republican-misogyny-women/74631430007/
 
 (Typos: number 1 "from", number 2 "Kamala", the number 3 final "woman" vs. "women"... maybe for emphasis and anti dark-arts mind-fuck breaking context bewilderment)
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+# Re-asserting Context
+
+The conversation started as a reply to: **"Psyops, lol, nope, these people are just gullible and selfish bigots."**
+
+Downplaying Russia. "lol, nope!" and every off-Bluesky link about Russia was played. And the "War and Peace" reply being the ace in the hole to downplay everything as a simulacra game / ARG. This Bluesky user expects me to be "these people are just gullible" when quoting War and Peace book to me when this is my Bluesky profile:
+
+&nbsp;
+
+<img width="2062" height="1228" alt="image" src="https://github.com/user-attachments/assets/6f2e93d9-d49c-40b6-adeb-e0349961d788" />
+
+With this image emphasis: https://cdn.bsky.app/img/banner/plain/did:plc:rwyn2e7jpkbhgnmruwj5tqoq/bafkreigesgtpmsweveyoywhyqc4dtnxunaliitw7gvfbf5quq4fnh4gbgm@jpeg
+
+&nbsp;
+
+War and Peace in Global Bluesky WWW... **"these people are just gullible"**, sure. But NOT YOU on Bluesky, right? Just the WOMAN who is being mocked with "LOL", Americans are dumb and got fucked over by Trump - cheer-leading! People cheering on as amusement that USA people have fallen for { Trump, Murdoch, MAGA, Putin } bullshit.
+
+&nbsp;
+
