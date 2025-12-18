@@ -293,7 +293,7 @@ https://www.usatoday.com/story/opinion/columnist/2024/08/14/trump-sexist-vance-r
 
 The conversation started as a reply to: **"Psyops, lol, nope, these people are just gullible and selfish bigots."**
 
-Downplaying Russia. "lol, nope!" and every off-Bluesky link about Russia was played. And the "War and Peace" reply being the ace in the hole to downplay everything as a simulacra game / ARG. This Bluesky user expects me to be "these people are just gullible" when quoting War and Peace book to me when this is my Bluesky profile:
+Downplaying Russia. "lol, nope!" and every off-Bluesky reply factual link about Russia was downplayed (or "played dumb" about women and MAGA Christian motivations). And the "War and Peace" reply being the ace in the hole to downplay everything as a simulacra game / ARG. This Bluesky user expects me to be "these people are just gullible" when quoting War and Peace book to me when this is my Bluesky profile:
 
 &nbsp;
 
