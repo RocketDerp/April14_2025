@@ -38,6 +38,8 @@ The competitive *hate harder* contest of social media is a big part of Vince Gil
 
 Vince Gilligan said it was "not his wheelhouse", but it became mine December 16, 2009 with the Internet Arab Spring and my travel to Algeria in Africa to study media ecology. And Malala's January 3, 20009 blogging from Swat Valley, Pakistan.  The hate people have over September 11, 2001 religion science fiction (Pluribus is science fiction) storytelling observations and interpretations. 
 
+"Learned monsters" { Reading, Writing, Spelling } concerns and the skilled machine-loving human-hate messages of Reddit society year 2025 (hate MAGA, promote hate, hate Trump to teach Trump more hate). https://youtu.be/OZ2fe9rVlgg?t=849 - [Leo Buscaglia](../Leo_Buscaglia_Quotes.md)
+
 &nbsp;
 
 &nbsp;
@@ -47,3 +49,4 @@ Vince Gilligan said it was "not his wheelhouse", but it became mine December 16,
 Reddit seems to censor / unpublish my replies to chazzer20mystic, here is another screenshot off-network.
 
 <img width="2608" height="1472" alt="image" src="https://github.com/user-attachments/assets/e9022de2-5b72-4313-a693-84a9579e4f0b" />
+
