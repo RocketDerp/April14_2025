@@ -40,7 +40,8 @@ Received: by baker\.vnw\.com with SMTP (Microsoft Exchange Server Internet Mail 
 
 INTERESTING NOTE: this got removed from ~~MIT public Internet since~~ Google Search since I last checked 2024-11-26 despite been public Internet since 1997-05-01 -- OK mailing list still there. Why has Google Search removed the one file with my username  in the past year?
 
-https://groups.csail.mit.edu/mac/ftpdir/thinkpad/old-archive/HTML/tp-1997/msg03547.html 
+https://groups.csail.mit.edu/mac/ftpdir/thinkpad/old-archive/1997/1997_05.txt   
+Has it.
 
 text file: [thinkpad_1997-05-10_StephenG_vnw.txt](thinkpad_1997-05-10_StephenG_vnw.txt)
 
