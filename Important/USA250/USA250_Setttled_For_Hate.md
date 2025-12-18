@@ -16,7 +16,7 @@ Settled for Fox News NFL sports-inspired anti-comprehension.
 
 What Neil Postman was describing in year 1992 was mostly accidental. Machines / hardware advances. It was new. Like automobiles being new and an absence of gasoline / petrol refill stations.
 
-Then it became recognized. Exploited, manipulated, the central concern.
+Then it became recognized. Exploited, manipulated, the central concern. Once all the rural population had admiration for an Apple iPhone and Apple iPad in hand, around year 2012.
 
 Confusing people and stunning people became organized and weaponized.
 
