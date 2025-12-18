@@ -679,3 +679,7 @@ BILL MOYERS: So when we dream, we are fishing in some vast ocean of mythology th
 
 JOSEPH CAMPBELL: — that goes down and down and down. You can get all mixed up with complexes, you know, things like that, but really, as the Polynesian saying goes, you are then “standing on a whale fishing for minnows.” We are standing on a whale. The ground of being is the ground of our being, and when **we simply turn outward**, we see all of these little problems here and there. But, if we look inward, we see that we are the source of them all.
 
+https://old.reddit.com/r/politics/comments/1pq1cir/trump_79_falls_asleep_after_signing_marijuana/nuqtkdj/
+
+<img width="870" height="334" alt="image" src="https://github.com/user-attachments/assets/dfb32fb8-be2a-4a51-8cbe-e00d4f667541" /> No other person in the world, in all human history, can provide meme addicts with their content. Normal governing has been abandoned FOR OVER TEN YEARS AND SIX MONTHS to antics politics / Twitter mania / short-message Tweet-thinking. Russia won, Surkov students won. Trump digital electric media stimulation day and night goes right to the Reddit front page FOR OVER A DECADE! Reddit society has never been more thrilled than with mocking back at Trump. President Tony Clifton SNL is the entertainer of all times! We The People adore the { hate, dehumanization, mocking } Putin has put into the Twitter / Truth Social spotlights / meme lights.
+
