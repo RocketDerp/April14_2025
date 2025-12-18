@@ -556,3 +556,14 @@ Every reply on the thread about USA MAGA was denial that Rupert Murdoch manipula
 
 And about a MAGA woman being manipulated by white men: "Psyops, lol, nope, these people are just gullible and selfish bigots." started this whole conversation. Denial abounds that women are being systemically manipulated / psychological operations to put power and wealth in Trump / Musk / Murdoch / Putin hands.
 
+&nbsp;
+
+&nbsp;
+
+# I was getting many "likes"
+
+I did get 22 Likes so far on one of my comments.   
+
+https://bsky.app/profile/roundsparrow.bsky.social/post/3ma7zroo5is2g
+
+<img width="1424" height="382" alt="image" src="https://github.com/user-attachments/assets/145836c2-6735-4ff8-a158-ff1cf23dac4c" />
