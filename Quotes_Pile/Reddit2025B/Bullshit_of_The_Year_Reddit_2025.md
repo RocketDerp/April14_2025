@@ -18,11 +18,11 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pkrjct/episode_7_carol_singin
 
 6. "mystic" in their username, but anti-mystic on neurodiversity / mind peering of free-thinking individuals.
 
-7. Hides their Reddit profile history despite 9+ year account history. Very suspicious on Reddit. This new enshitification 2025 feature wasn't available 9 years ago. see: https://old.reddit.com/r/help/comments/1nrzzkm/how_long_has_reddit_had_the_feature_that_enables/
+7. Hides their Reddit profile history despite 9+ year account history. Very suspicious on Reddit. This new enshitification 2025 feature wasn't available 9 years ago. see: https://old.reddit.com/r/help/comments/1nrzzkm/how_long_has_reddit_had_the_feature_that_enables/ "Plus, the ability to look at someone's post and comment history was a big advantage in a debate because you could use something they said against them with an undeniable proof. Also, when I first joined the site, learning about the fact that you cannot make your post and comment history private stood to me as one of the defining features of Reddit — it was something that I really liked. With the ability to hide one's post and comment history, I believe there will be a huge influx of bots and karma farmers on all the big subs due to the leeway they get to post anything without any consequences."
 
 8. When chazzer20mystic is asked directly to provide evidence of their public claims "What hostility? Quote it? You can't read tone and body language, eh?" - the reply ignores the question and attacks again.
 
-9. No Reddit bystanders intervene and call out that chazzer20mystic is attacking a person for their use of English in public, a personal attack, and not discussing the public topic of the Apple TV+ show "Pluribus" (which even the message with my MLK Jr quote is in the themes of a USA hive mind programming / Christian hive mind values)
+9. No Reddit bystanders intervene and call out that chazzer20mystic is attacking a person for their use of English writing in public, a personal attack, and not discussing the public topic of the Apple TV+ show "Pluribus" (which even the message with my MLK Jr quote is in the themes of a USA hive mind programming / Christian hive mind values)
 
 &nbsp;
 
