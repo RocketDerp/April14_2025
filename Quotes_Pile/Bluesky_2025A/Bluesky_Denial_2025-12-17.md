@@ -170,13 +170,23 @@ https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conserv
 
 &nbsp;
 
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+
 # "Both sides"
 
 After playing the "race card" to turn topic away from gender:
 
 https://bsky.app/profile/corvid.bsky.social/post/3mabk5aqc6k2o
 
-<img width="1774" height="442" alt="image" src="https://github.com/user-attachments/assets/f003c37d-9915-44aa-a5c7-f1936200d088" />
+<img width="1442" height="382" alt="image" src="https://github.com/user-attachments/assets/89d7301f-b37a-434a-b955-393145071908" />
+
+&nbsp;
+
 
 My reply:
 
@@ -189,6 +199,16 @@ Explain, detai? Since you can't get past skin color GENDER of Hillary Kamala
 2. Are you also a victim?
 
 Yes. of course. Billionaires #Putin #Trump #Musk are fucking over my life with bullshit messages on every media platform, #Bluesky too #GrokAI #TruthSocial
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
 
 # MAGA response
 
@@ -214,6 +234,11 @@ December 20, 2013 right after November 8
 &nbsp;
 
 &nbsp;
+
+&nbsp;
+
+&nbsp;
+
 
 # Pro-Putin Banality Agent
 
