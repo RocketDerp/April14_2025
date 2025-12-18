@@ -248,3 +248,14 @@ screen shot of my reply:
 
 &nbsp;
 
+&nbsp;
+
+&nbsp;
+
+
+# "War and Peace" book deflecting
+
+<img width="1104" height="478" alt="image" src="https://github.com/user-attachments/assets/f03ee050-4f03-425d-a366-f8042d5480c0" />
+
+https://bsky.app/profile/corvid.bsky.social/post/3mablop7hck2m
+
