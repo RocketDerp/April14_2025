@@ -22,7 +22,7 @@ Dreamer's Hotel February 10, 2020
 * "It was important in that it gave the West this accent on the individual, that one should have faith in his *experience* and not simply mouth terms handed down to him by others."
 
 Experience Music Project 1996 Bellevue Washington social information systems experienced.    
-https://digitalcollections.lib.washington.edu/digital/collection/buildings/id/6912/
+https://digitalcollections.lib.washington.edu/digital/collection/buildings/id/6912/      
 "Date of Construction:	1996-2000"       
 
 &nbsp;
