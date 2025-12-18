@@ -578,3 +578,20 @@ Fiction storytelling is key to streaming engagement. New episodes drop. Reddit f
 https://old.reddit.com/r/NoFilterNews/comments/1pp61ej/maga_insider_leaks_trumps_mystery_announcement/nukhz1h/
 
 <img width="972" height="852" alt="image" src="https://github.com/user-attachments/assets/3710a989-3c38-4a21-aa85-60c662e6316a" /> Audiences no longer desire nonfiction. Nobody wants to resist Kremlin Surkov student techniques. They are thrilled to complain how bad President Tony Clifton is in his bragging. Hate leadership, hate of Trump is the very basis of power. People won't assert nonfiction from Neil Postman and be serious. People want to write high quantities of high-speed low-effort comments that get thrown away after 36 hours. Millions and millions of Reddit comments, not be on the same page of a serious nonfiction book with common mindset (Pluribus) learning.
+
+https://old.reddit.com/r/politics/comments/1ppfesc/trump_holds_national_address_speech_to_blame/numu74m/
+
+Content-wrapping. For Reddit audiences, the same Trump speeches are meme-wrapped, amusement-wrapped, people starving for Trump content to insult and hate upon. Trump is a leader of hate and mass dehumanization and Reddit users are constantly engaged with the thrilling entertainment a Reality TV star provides. High speed information networks deliver the latest mocking and insulting.
+
+https://old.reddit.com/r/politics/comments/1ppfesc/trump_holds_national_address_speech_to_blame/numgl4m/
+
+Reddit audiences now often think everything is anti-reality, non-real, irreal, Artificial intelligence. Repeating Trump / MAGA talking points. https://www.france24.com/en/tv-shows/truth-or-fake/20250603-yes-trump-reposted-a-conspiracy-theory-that-biden-is-a-robotic-clone
+
+https://old.reddit.com/r/politics/comments/1ppfesc/trump_holds_national_address_speech_to_blame/numeex3/
+
+President Tony Clifton, making carrot juice. It blows audience minds to have a status symbol doing Surkov student techniques. People never get enough of what Trump provides. Audiences don't want to remove Trump from office, remove MAGA, because it is such a source of stimulating mockery and hate-watching engagement / amusement to mock-back.
+
+https://old.reddit.com/r/politics/comments/1ppfesc/trump_holds_national_address_speech_to_blame/numeinb/
+
+Just like TV shows have laugh-tracks, this message on Reddit is a social media laugh track. "LOL" at end of message. This is how Trump has so much power and wealth now, people blow-out their minds in attraction to his unique style and entertainment. People no longer able to imagine a normal sincere honest scientific nonfiction leadership / governing. It has to be "meme life" / meme like Reality TV The Apprentice Trump, or "The Office" characters.
+
