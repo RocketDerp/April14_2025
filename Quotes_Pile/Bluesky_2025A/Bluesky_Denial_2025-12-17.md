@@ -307,3 +307,37 @@ War and Peace in Global Bluesky \W\W\W... **"these people are just gullible"**, 
 
 &nbsp;
 
+&nbsp;
+
+## Looked at profile / history
+
+Found this posting.
+
+<img width="1746" height="762" alt="image" src="https://github.com/user-attachments/assets/e92f78ff-ea3d-4774-b07a-6d1bd83ffb79" />
+
+Reposted by Gaspard de la Nuit
+
+‪Bridget Hunnicutt‬ @bridgethunnicutt.bsky.social‬ · 10mo
+Replied to  kalenaaleka.bsky.social
+
+
+Women have a long history of being courageous truth-tellers.  Dictators, oligarchs and their allies lie, smear and attack women who hold them accountable.
+
+Women’s rights fall as authoritarian regimes rise. 
+
+Hold the line.  
+
+Stand with these women.
+
+&nbsp;
+
+* my reply:
+
+"Reposted by Gaspard de la Nuit"     
+February 15, 2025  
+
+1. Posting is about a MAGA woman saying “MAGA was the greatest PSYOP ever perpetrated on the American people.  And I fucking fell for it”
+
+2. Your reply about women: "Psyops, lol, nope"
+
+HASHTAGS: #FWakeBanalAgent #Gaslighting Women #MAGAwomen
