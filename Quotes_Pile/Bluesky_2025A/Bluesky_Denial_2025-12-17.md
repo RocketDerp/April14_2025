@@ -247,7 +247,7 @@ December 20, 2013 right after November 8
 3. Tool for corporate Truth Social / Twitter / Murdoch?
 4. Gullible USA?
 
-I already hash-tagged a reply with "Context Bewilderment" and noted they reply only to 1st message in multi-message replies. And keep deflecting away from { Russia, Putin, Gender / Transgender / Women / Abortion }.
+My answer is number 1. I already hash-tagged a reply with "Context Bewilderment" and noted they reply only to 1st message in multi-message replies. And keep deflecting away from { Russia, Putin, Gender / Transgender / Women / Abortion }.
 
 https://bsky.app/profile/corvid.bsky.social/post/3mabkdznbj22o
 
