@@ -377,8 +377,10 @@ Front page top of Reddit. "Shitting on Trump" and others is evidence to meme aud
 
 # Jack Smith vs. We The People / Kremlin
 
-Jack Smith had proof of what everyone saw with Georgia. https://en.wikipedia.org/wiki/Georgia_election_racketeering_prosecution
+Jack Smith had proof of what everyone saw with Georgia. https://en.wikipedia.org/wiki/Georgia_election_racketeering_prosecution      
+https://old.reddit.com/r/NoFilterNews/comments/1ppr918/new_audio_emerges_of_trump_directing_republicans/    
 
+Coverage of Jack on December 17, 2025 front-page       
 https://old.reddit.com/r/law/comments/1pp1ocz/jack_smith_claims_he_had_proof_beyond_reasonable/     
 https://old.reddit.com/r/politics/comments/1pp0z40/jack_smith_testifies_doj_had_proof_trump_tried_to/    
 https://old.reddit.com/r/NoFilterNews/comments/1pp299n/jack_smith_testifies_doj_had_proof_trump_tried_to/    
@@ -391,7 +393,7 @@ Me.. warning Reddit about QAnon https://old.reddit.com/r/QAnonRussia/
 
 Repeating. QAnon active measures by Russia / Kremlin / Putin. https://www.independent.co.uk/news/world/americas/us-election-2020/qanon-russia-conspiracy-theory-trump-2020-election-b1536946.html
 
-The issue here isn't Jack Smith's evidence, is the rat races within the society, We The People. People can no longer accept real-world evidence. September 9, 2014 explained https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ - what started in March 2013. 
+The **issue here isn't Jack Smith's evidence, is the rat races within the society for junk information**, We The People. People can no longer accept / process real-world evidence. September 9, 2014 story in The Atlantic explains this https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ - what started in March 2013. 
 
 People are avoidant of staying on the same page. Being serious, treating topics seriously, about NATO against Russia since March 2013. People instead { LOL, mock, LMAO, amused, joke, meme life } about the Putin Trump Epstein relationships as entertainment. Ignoring the obvious Georgia calls from Trump and QAnon activities going on / QAnon flag wavings.
 
