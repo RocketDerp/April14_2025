@@ -7,7 +7,7 @@ Hypercontextus
 Finn's Hotel year 1923     
 Dreamer's Hotel February 10, 2020   
 
-1923's Finn's Hotel: "Caution! Echoland!" EchoPlex!
+1923's Finn's Hotel: "Caution! Echoland!" EchoPlex! *Eaerworms*
 
 <img width="3226" height="2419" alt="image" src="https://github.com/user-attachments/assets/9519b1f9-d8bd-4640-97eb-9294336ec39b" />
 
