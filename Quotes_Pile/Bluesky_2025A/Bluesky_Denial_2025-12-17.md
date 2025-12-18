@@ -166,3 +166,23 @@ Explain, detai? Since you can't get past skin color GENDER of Hillary Kamala
 
 Yes. of course. Billionaires #Putin #Trump #Musk are fucking over my life with bullshit messages on every media platform, #Bluesky too #GrokAI #TruthSocial
 
+# MAGA response
+
+https://bsky.app/profile/corvid.bsky.social/post/3mabk6y6gnc2o
+
+<img width="886" height="512" alt="image" src="https://github.com/user-attachments/assets/16fd349a-605b-49c8-aa82-4e8884523a49" />
+
+Look at the immediate context
+
+<img width="1828" height="1354" alt="image" src="https://github.com/user-attachments/assets/3be0968f-a807-4d92-95dc-7aeaa9ec291f" />
+
+My reply (with that last screen shot to assert context harder):
+
+Your low-effort reply to a professional published edited article on #TheAtlantic
+
+"Vladimir Putin, Conservative Icon"
+"The Russian president is positioning himself as the world's leading defender of traditional values."
+By Brian Whitmore
+December 20, 2013
+
+December 20, 2013 right after November 8
