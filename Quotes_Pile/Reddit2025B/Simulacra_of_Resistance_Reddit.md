@@ -444,3 +444,14 @@ Number 7 and 8 on /r/All front page of Reddit
 https://old.reddit.com/r/MurderedByWords/comments/1pprkf5/the_past_coming_in_handy/
 
 Twitter. vs. Reddit simulacra of resisting MAGA values of low-effort Fox News HDTV media ecology. Like shooting fish in a barrel. The very Reddit posting title amplifies the simplicity of the Kremlin ARG quests. How "handy" it is to give logical bi-polar (USA vs. USA trivial, never complex Russia vs. USA / Russia vs. NATO) responses to [Surkov Contradictory Kremlin / White House patterns described New Years Eve 2014 ... Adam Curtis, BBC](https://www.youtube.com/watch?v=h9_L9GRRsQo).
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/AdviceAnimals/comments/1ppq9ic/unhinged_ragebait_lunatic/
+
+This Reddit posting is to mind-fuck the Reddit audience { Unhinged, RageBait, Lunatic } people with such deep recency bias in high-speed messaging systems , the last postings they consume are the keywords they hold. Recency Bias abounds, mindsets of tiny-short Twitter-thinking. { Rage Bait } is the entire Surkov governing system. Surkov Contradictory Kremlin / White House patterns described New Years Eve 2014 ... Adam Curtis, BBC](https://www.youtube.com/watch?v=h9_L9GRRsQo). - AGAIN, repeating repeating repeat: Year 2014. FAR BEFORE the June 16, 2015 announcement by MAGA, far before November 2016 election with defeat of Hillary Clinton. Rage Bait to get Reddit and Facebook and Twitter commenting engagement is the entire basis of the paradoxical contradictory mind-fucking Surkov students do.
+
+For over TEN YEARS AND SIX MONTHS, Reddit simulacra (of resisting) against MAGA Trumpism / President Tony Clifton NYC SNL acting is to scream "shut up!". It feeds the fire. Screaming back at the Rage Bait as intended like Lunatics. As programmed by the Putin Media Invasion since March 2013 against Reddit and Twitter and all media environments: https://washingtonmonthly.com/2017/11/24/a-trumprussia-confession-in-plain-sight/ - this is in no way resisting the conditioned mindsets Putin has seeded. This is simple-think programming that "SHUT UP!" is all one needs to do. Reddit community has truly fallen as conditioned: https://www.bbc.com/news/technology-43301643
+
