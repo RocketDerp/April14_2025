@@ -53,6 +53,11 @@ https://bsky.app/profile/stlcatfishmike.bsky.social/post/3maa35hyeoc26
 
 <img width="1804" height="648" alt="image" src="https://github.com/user-attachments/assets/b9ce162c-3175-4be0-b44d-16578d32ecdd" />
 
+&nbsp;
+
+&nbsp;
+
+
 # Banal agent replies again
 
 https://bsky.app/profile/stlcatfishmike.bsky.social/post/3maa3bbfoqs26
@@ -63,6 +68,13 @@ https://bsky.app/profile/stlcatfishmike.bsky.social/post/3maa3bbfoqs26
 &nbsp;
 
 &nbsp;
+
+&nbsp;
+
+&nbsp;
+
+
+# Reply Trump Voters not victims, Trump good for voters
 
 https://bsky.app/profile/corvid.bsky.social/post/3maazwdlwys2t
 
