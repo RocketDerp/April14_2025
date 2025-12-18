@@ -34,7 +34,7 @@ https://www.amrein.com/apps/views.asp?Q=5733&T=Pages&V=1&skip=400
 
 StephenG @ VNW .com
 
-Received: by baker\.vnw\.com with SMTP (Microsoft Exchange Server Internet Mail Connector Version 4.0.995.52) id <01BC5D53.468A78C0@baker\.vnw\.com>; Sat, 10 May 1997 15:03:10 -0700
+Received: by baker\.vnw\.com with SMTP (Microsoft Exchange Server Internet Mail Connector Version 4.0.995.52) id <01BC5D53.468A78C0@ baker\.vnw\ .com>; Sat, 10 May 1997 15:03:10 -0700
 
 <img width="2000" height="761" alt="image" src="https://github.com/user-attachments/assets/da94441b-3669-428c-8b91-ed3e955915d6" />
 
