@@ -23,5 +23,11 @@ Dreamer's Hotel February 10, 2020
 
 Experience Music Project 1996 Bellevue Washington social information systems experienced.    
 https://digitalcollections.lib.washington.edu/digital/collection/buildings/id/6912/
+"Date of Construction:	1996-2000"       
+
+&nbsp;
+
+https://www.amrein.com/apps/views.asp?Q=5733&T=Pages&V=1&skip=400   
+<img width="1550" height="512" alt="image" src="https://github.com/user-attachments/assets/b71daffd-2bc9-4475-a2a3-282cc0bb6474" />
 
 
