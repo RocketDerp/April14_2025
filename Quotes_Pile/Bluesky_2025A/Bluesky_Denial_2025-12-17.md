@@ -363,3 +363,26 @@ My reply:
 You said everything was about #racial / skin color {black, white, orange, brown} 
 
 I said it was about women, linked #TheAtlantic article, then you started "playing dumb". Then you linked me "War and Peace" and "played dumb" that Marshall McLuhan's #WarAndPeaceGlobalVillage isn't my #Bluesky profile
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+# Mock you, then block you
+
+1. Falsehoods / mocking you with "War and Peace" book linking, playing dumb mocking
+
+2. Block you when you call out the manipulation of "War and Peace" book linking
+
+3. This posting is all about **MAGA and PsyOps** and a user claiming "NOPE"that there is no MAGA / anti-women psychological operations. When an USA woman admits she fell for the psychological mind-fucking.
+
+&nbsp;
+
+<img width="1840" height="1262" alt="image" src="https://github.com/user-attachments/assets/4c866694-dfae-47a3-89b7-a7cbb51d49f8" />
+
+&nbsp;
+
