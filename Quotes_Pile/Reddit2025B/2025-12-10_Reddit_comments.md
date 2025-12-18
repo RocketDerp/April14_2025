@@ -532,5 +532,7 @@ Kevin Smiht's DOGMA movie fandom is pretty good.
 
 https://old.reddit.com/r/AITAH/comments/1pp58fp/aitah_for_threatening_to_divorce_my_wife_if_she/nukcvsg/
 
-I'm capturing this comment to capture the posting itself. Note the Reddit language experience defensive Hive Mind issues with attacking non-native speakers in MAGA USA (Reddit USA) December 2025. "Hello. I'm a 31 year old man. I mostly only use reddit to ask about hardware questions, so this is a throw away account. Also, **I'm Hispanic so excuse any mistakes**." - Tower of Babel Trump hate leadership values wars rage on Reddit.
+I'm capturing this comment to capture the posting itself. Note the Reddit language experience defensive Hive Mind issues with attacking non-native speakers in MAGA USA (Reddit USA) December 2025. "Hello. I'm a 31 year old man. I mostly only use reddit to ask about hardware questions, so this is a throw away account. Also, **I'm Hispanic so excuse any mistakes**." - Tower of Babel Trump hate leadership values wars rage on Reddit. Also note the monomyth fiction story naming of a child. And choice marriage with this values of age 31 adults: "I said I could never forgive her". Word choice, language, more important than love / compassion / forgiveness. Toxic Clergy values there. People who prize language word choice of "I'm Hispanic so excuse any mistakes" society over love of eternal marriage from age 30 to age 120.
+
+
 
