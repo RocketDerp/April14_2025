@@ -7,3 +7,15 @@ https://bsky.app/profile/corvid.bsky.social/post/3ma7xvaamuk2t
 &nbsp;
 
 * This is a reply to a Bluesky posting that made it to the front page top of Reddit in under 90 minutes. https://old.reddit.com/r/LeopardsAteMyFace/comments/1ppazqc/maga_was_the_greatest_psyop_ever_perpetrated_on/ - with little engagement on Bluesky itself. On Blueksy only 9 / 4 / 37 in 2 hours <img width="994" height="172" alt="image" src="https://github.com/user-attachments/assets/32cf656a-5079-4851-aef1-53135966d4ae" />
+
+&nbsp;
+
+&nbsp;
+
+# Another on same
+
+https://bsky.app/profile/kingofthefraggles.bsky.social/post/3ma7tnapo322h
+
+<img width="1812" height="782" alt="image" src="https://github.com/user-attachments/assets/5245129c-4013-422b-9846-b5fc68d2111c" />
+
+
