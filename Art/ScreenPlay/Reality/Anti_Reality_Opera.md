@@ -29,3 +29,13 @@ Twitter sets Reality. November 4, 2025 front page and people keep forgetting thi
 Time shifting reality.
 
 https://youtu.be/FLGdg7N6Ve4?t=9862
+
+&nbsp;
+
+&nbsp;
+
+# Faith in Fiction Storytelling: South Korea 
+
+"How out of touch with reality in general"    
+The Ferry Sewol Part 2: Never-Ending Heartbreak     
+https://youtu.be/LMZIwHxVTtc?t=1145
