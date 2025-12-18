@@ -27,3 +27,15 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pkrjct/episode_7_carol_singin
 &nbsp;
 
 USA MAGA 2025 Reddit society / Trump Truth Social values on Reddit / immigration ICE lives billionaire-funded inside Reddit audiences heads. Hate thy neighbor, hate thy enemy. Anti love. The 1954 Equation posting in December 2025 people can't even see how much USA society is being lead by a President / POTUS of "Pluribus" that is a hate-nation Truth Social leadership.
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+## Alt shot
+
+Reddit seems to censor / unpublish my replies to chazzer20mystic, here is another screenshot off-network.
+
+<img width="2608" height="1472" alt="image" src="https://github.com/user-attachments/assets/e9022de2-5b72-4313-a693-84a9579e4f0b" />
