@@ -238,3 +238,13 @@ Oh, you looked at my #BlueskyProfile and saw I posted "War and Peace" book.  So 
 
 https://en.wikipedia.org/wiki/War_and_Peace_in_the_Global_Village
 
+screen shot of my reply:
+
+&nbsp;
+
+<img width="1794" height="1306" alt="image" src="https://github.com/user-attachments/assets/a5b187d0-d2c7-4ade-88e1-434261ebff9c" />
+
+&nbsp;
+
+&nbsp;
+
