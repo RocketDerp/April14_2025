@@ -228,3 +228,13 @@ Look at the great context, this is their reply after linking the December 20, 20
 
 <img width="1812" height="1344" alt="image" src="https://github.com/user-attachments/assets/78252a69-ca19-436b-9830-42d4de0fa727" />
 
+&nbsp;
+
+My reply:
+
+"Here’s War and Peace."
+
+Oh, you looked at my #BlueskyProfile and saw I posted "War and Peace" book.  So your #ContextBewilderment information warfare #MindFuckingOpera operations continue. "War and Peace" - #MarshallMcLuhan 1968 #JamesJoyce 1939
+
+https://en.wikipedia.org/wiki/War_and_Peace_in_the_Global_Village
+
