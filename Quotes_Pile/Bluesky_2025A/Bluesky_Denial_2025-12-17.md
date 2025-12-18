@@ -144,3 +144,25 @@ https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conserv
 
 <img width="1782" height="454" alt="image" src="https://github.com/user-attachments/assets/1ed87bea-1f80-4cdd-aa53-b4e8f531cd5f" />
 
+&nbsp;
+
+# "Both sides"
+
+After playing the "race card" to turn topic away from gender:
+
+https://bsky.app/profile/corvid.bsky.social/post/3mabk5aqc6k2o
+
+<img width="1774" height="442" alt="image" src="https://github.com/user-attachments/assets/f003c37d-9915-44aa-a5c7-f1936200d088" />
+
+My reply:
+
+I notice you skip multi-message repels and only reply to the 1st every time, you have media blindness issues of seeing the reply threads are not just the first message.
+
+1. Bothsidesism is what you’re doing
+
+Explain, detai? Since you can't get past skin color GENDER of Hillary Kamala 
+
+2. Are you also a victim?
+
+Yes. of course. Billionaires #Putin #Trump #Musk are fucking over my life with bullshit messages on every media platform, #Bluesky too #GrokAI #TruthSocial
+
