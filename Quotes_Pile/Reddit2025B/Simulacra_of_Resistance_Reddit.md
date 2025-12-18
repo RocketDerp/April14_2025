@@ -455,3 +455,11 @@ This Reddit posting is to mind-fuck the Reddit audience { Unhinged, RageBait, Lu
 
 For over TEN YEARS AND SIX MONTHS, Reddit simulacra (of resisting) against MAGA Trumpism / President Tony Clifton NYC SNL acting is to scream "shut up!". It feeds the fire. Screaming back at the Rage Bait as intended like Lunatics. As programmed by the Putin Media Invasion since March 2013 against Reddit and Twitter and all media environments: https://washingtonmonthly.com/2017/11/24/a-trumprussia-confession-in-plain-sight/ - this is in no way resisting the conditioned mindsets Putin has seeded. This is simple-think programming that "SHUT UP!" is all one needs to do. Reddit community has truly fallen as conditioned: https://www.bbc.com/news/technology-43301643
 
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/complaints/comments/1pptfdq/we_call_you_nazis_because_your_orange_god_talks/
+
+This isn't resisting the "War Against Reality", it's going at it with "easy mode" of a Reddit ARG. The favorites of Reddit audience: "Orange" skin color, eating out of Putin / Trump hands of {Black, White, Brown, Orange} concerns of superficial shallow mindsets against Obama. Surkov students keep winning right here right now December 18, 2025 Reddit. Blown minds wide-open to simulations! no resistance to touch screen gaming. OPERA_A https://www.youtube.com/watch?v=gU7d2EHV_OQ Don't want to wait to make Neil Postman a constant ("More than Epstein") repeating topic 4,683,282 views October 6, 2023 - turn this thing around! Come on, make Postman's name and books household topics every day!
+
