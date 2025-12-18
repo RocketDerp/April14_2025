@@ -30,6 +30,17 @@ https://digitalcollections.lib.washington.edu/digital/collection/buildings/id/69
 https://www.amrein.com/apps/views.asp?Q=5733&T=Pages&V=1&skip=400   
 <img width="1550" height="512" alt="image" src="https://github.com/user-attachments/assets/b71daffd-2bc9-4475-a2a3-282cc0bb6474" />
 
+&nbsp;
+
+StephenG @ VNW .com
+
+Received: by baker\.vnw\.com with SMTP (Microsoft Exchange Server Internet Mail Connector Version 4.0.995.52) id <01BC5D53.468A78C0@baker\.vnw\.com>; Sat, 10 May 1997 15:03:10 -0700
+
+<img width="2000" height="761" alt="image" src="https://github.com/user-attachments/assets/da94441b-3669-428c-8b91-ed3e955915d6" />
+
+INTERESTING NOTE: this got removed from MIT public internet since I last checked 2024-11-26 despite been public Internet since 1997-05-01
+
+&nbsp;
 
 &nbsp;
 
