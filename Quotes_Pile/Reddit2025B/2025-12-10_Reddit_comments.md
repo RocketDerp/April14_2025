@@ -664,4 +664,18 @@ https://old.reddit.com/r/politics/comments/1ppqor1/house_republicans_call_early_
 
 <img width="840" height="404" alt="Screenshot from 2025-12-18 12-21-34" src="https://github.com/user-attachments/assets/62ab40f7-32ab-4125-a822-83683f4d000f" /> What would the Kremlin do? "Reality Kremlin" since March 2013. Interrobang! "WWPD‽"
 
+https://old.reddit.com/r/TikTokCringe/comments/1ppxex1/indian_actress_nidhi_agarwal_being_mobbed_by_fans/nuq1zio/
+
+<img width="886" height="1092" alt="Screenshot from 2025-12-18 13-38-57" src="https://github.com/user-attachments/assets/6ed1eeec-cf55-4fff-8cea-948e7bc01edb" /> Media ecology. Bollywood, TikTok, Reddit, smartphone fandoms: Audience of Audience. { https://autistics.life/@RoundSparrow/115742510639886146 https://bsky.app/profile/roundsparrow.bsky.social/post/3mabzzzrobc2k }
+
+https://old.reddit.com/r/TikTokCringe/comments/1ppxex1/indian_actress_nidhi_agarwal_being_mobbed_by_fans/nuq5yih/
+
+<img width="810" height="696" alt="image" src="https://github.com/user-attachments/assets/83e1c347-fa50-4cf0-931e-9b601a4ef9bc" /> Hindu too... the film premier promotion, the Android phones... "And when that belief disintegrated, the culture disintegrated; it has disintegrated now. We are in what is called a wasteland. T.S. Eliott put his finger on it, back there in 1922, I think it was. What is a wasteland? It is a wasteland of people living without aspiration, going through the routine of their lives, doing things they are told to do because they don’t have the courage to do something they want to do, which would be a little bit insane. **We are in a realm that I would describe as a terminal moraine of myths. There are no end of destroyed mythologies around us**." - 1974? Campbell Cooper Union.
+
+https://old.reddit.com/r/TikTokCringe/comments/1ppxex1/indian_actress_nidhi_agarwal_being_mobbed_by_fans/nuq8kwv/
+
+Skywalker Ranch lessons for Skywalkers: ... ... ...         
+BILL MOYERS: So when we dream, we are fishing in some vast ocean of mythology that —
+
+JOSEPH CAMPBELL: — that goes down and down and down. You can get all mixed up with complexes, you know, things like that, but really, as the Polynesian saying goes, you are then “standing on a whale fishing for minnows.” We are standing on a whale. The ground of being is the ground of our being, and when **we simply turn outward**, we see all of these little problems here and there. But, if we look inward, we see that we are the source of them all.
 
