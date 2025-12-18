@@ -555,3 +555,15 @@ https://old.reddit.com/r/pics/comments/1ppatqq/new_plaques_added_to_the_presiden
 <img width="874" height="752" alt="image" src="https://github.com/user-attachments/assets/fc318573-29a7-44a4-9473-10cf4e402e29" />
 It isn't hard to explain if you turn to a year 2014 book about Putin's White House / Kremlin: "Nothing Is True and Everything Is Possible: The Surreal Heart of the New Russia is a 2014 book by Peter Pomerantsev. It focuses on the political developments in Russia in the early 21st century and the culture of Russian media." https://en.wikipedia.org/wiki/Nothing_Is_True_and_Everything_Is_Possible
 
+https://old.reddit.com/r/CringeTikToks/comments/1ppd4ym/trump_explains_venezuela_they_took_all_of_our_oil/nulz2am/
+
+Superficial and banal attraction to Trump's unique style / body / communications. This is why he has so much power, people let the must unimportant matters about other people rule their life. This is like being upset that other adults have homosexual sex with consenting partners. So concerned about every word and image coming out of Trump's mouth... this is Trump's power over crowds. Banality and unimportant anti-goodness superficial concerns.
+
+https://old.reddit.com/r/CringeTikToks/comments/1ppd4ym/trump_explains_venezuela_they_took_all_of_our_oil/num2a0t/
+
+Despite 2007 year context, note the Reddit comment: no link, no book title, no author name, no quote from a book. Just prizing of unverified no-name author information. It is open season on people who seek out information with zero concern for fact-checking and sources.
+
+https://old.reddit.com/r/CringeTikToks/comments/1ppd4ym/trump_explains_venezuela_they_took_all_of_our_oil/num3cdl/
+
+<img width="938" height="560" alt="image" src="https://github.com/user-attachments/assets/e033fa54-977c-451b-b77d-ec3c7a5c4040" /> Recent Reddit account. Trump trusts Putin. Trump family believes Fox News. Trump is attracted to and believes fiction. And many people flock to every fiction story they can find, including Trump's fiction storytelling. Fiction outsells nonfiction. Trump cares only that it's popular and thrilling information, not is it is science nonfiction / reality. Russia won, Surkov won since March 2013. Rescue Donald Trump from Russia's war against reality. September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
