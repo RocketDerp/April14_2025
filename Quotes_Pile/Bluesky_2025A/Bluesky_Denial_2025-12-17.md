@@ -425,3 +425,28 @@ My reply:
 You linked #Tolstoy War & Peace book in the #context of my #Bluesky profile.
 
 I opened the topic of Russia, and you start playing #Russian #SurkovMonoMyth warfare right with me  on Bluesky
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+# Last Word Hit and Run
+
+Last Word Hit and run - they replied one more time, while I was composing on GitHub I saw the notification appear then disappear on Bluesky notification flag.
+
+1. They unblock
+
+2. They reply message to get last word
+
+3. Instantly block again
+
+See the count of replies on the message is "1"
+
+<img width="692" height="878" alt="image" src="https://github.com/user-attachments/assets/a09c5166-e47b-4fd7-bb67-fa1bcb5af477" />
+
+I can not access this message. Information warfare tactic on Russia PsyOps discussin.
+
+I have never blocked this person in any way shape or form. They have blocked and unblocked multiple times against me.
+
