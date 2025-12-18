@@ -122,4 +122,25 @@ Yes, because social media is the very problem. High-speed reactionary, you are p
 
 That's what you don't get about Neil Postman's work, high-speed electric media, #Bluesky
 
+# Playing Race Card against Putin invasion
+
+https://bsky.app/profile/corvid.bsky.social/post/3mabiontfmc2o
+
+My response:
+
+"We’re talking about the USA, which has been racist since before it was founded."
+
+No, I am talking about #PsyOps against #MAGA from the very start of this thread, but you have #ContextBewilderment 
+
+Your fixation on "orange skin color", black skin color, brown is missing the entire point. 
+
+Context of post thread: “MAGA was the greatest PSYOP ever perpetrated on the American people.  And I fucking fell for it”
+
+Anti-woman Hillary Clinton, anti-woman Kamala Harris,  anti woman sex rights, anti gender, anti homosexual is driving USA from #Christian #Muslim #Religion as much as any #race
+
+https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/
+
+
+
+<img width="1782" height="454" alt="image" src="https://github.com/user-attachments/assets/1ed87bea-1f80-4cdd-aa53-b4e8f531cd5f" />
 
