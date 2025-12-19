@@ -135,3 +135,11 @@ https://old.reddit.com/r/news/comments/1pouw3m/epa_alters_official_website_to_er
 
 Health of the entire planet. Human health issues caused by stress of being deceived, lied to, manipulated by billionaires in their private jets and sports team ownerships.  Social media society won't stand up in sustained repeating to reform morality and science nonfiction learning. Too busy on /r/All getting Formula 1 racing car by billionaire owners. Too busy with Apple billionaire iPad iPhone devices and video game systems. Too busy engaging Truth Social mockery and hate leadership, mass dehumanization via media systems / meme platforms. Society engaged in FIFA / NFL / NBA / baseball - everything video games and entertainment to mock away at life on Earth. Sickening the planet with toxic egoism worship of Trump as a role model of entertaining meme (Reddit society milking the LOL cow of Trump for memes and clap-back audience mockery of President Tony Clifton performances for meme audiences)
 
+&nbsp;
+
+&nbsp;
+
+So much bullshit and falsehoods and crap like RFK Jr and autism and measles / Russian information warfare August 24, 2018 about measles... gets stuffed into our brains and we do not organize important understandings into every mind. We junk good knowledge with trash information. 
+
+https://old.reddit.com/r/todayilearned/comments/1pqlywo/til_that_the_first_noticeable_symptom_of_heart/
+
