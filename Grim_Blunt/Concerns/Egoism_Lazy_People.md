@@ -8,7 +8,7 @@ Walter White character of only being a high school teacher who has to wash the c
 
 The mathematics of how many people can win competition, how many best-selling household names can exist. How many number one musicians.
 
-ToDo: Trump calling Africa shit-hole. USA was founded on an entire continent with gold waiting in Alaska and 1948 California. Trees, Buffalo. Fur trapping. Fish supply. Land ownership language and laws of native peoples. https://en.wikipedia.org/wiki/Passenger_pigeon Oil industry timing / discovery. Corn (maize) being Americas.
+ToDo: Trump calling Africa shit-hole. USA was founded on an entire continent with gold waiting in Alaska and 1948 California. (ToDo: Dreams of finding gold was a big part of Spaniards year 1492 onward trips to Americas) Trees, Buffalo. Fur trapping. Fish supply. Land ownership language and laws of native peoples. https://en.wikipedia.org/wiki/Passenger_pigeon Oil industry timing / discovery. Corn (maize) being Americas.
 
 # Devon Price year 2021
 
