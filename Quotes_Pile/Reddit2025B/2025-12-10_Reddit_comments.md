@@ -711,3 +711,23 @@ https://old.reddit.com/r/politics/comments/1pq2fto/there_is_something_deeply_wro
 
 The Twitter / Reddit amusements that day June 16. 2015 never were the same. Everyone laughing away and unable to describe the forest for the trees. That something is very wrong and people are prizing horrible and dehumanizing choices "for the laughs". Neil Postman's 1985 book "Amusing Ourselves To Death" about high-speed media driving people into badness ... gets ignored.
 
+https://old.reddit.com/r/news/comments/1pq9d50/brown_university_shooting_suspect_found_dead_fox/nusuxp6/
+
+Media ecology studies
+
+https://old.reddit.com/r/news/comments/1pq9d50/brown_university_shooting_suspect_found_dead_fox/nusl1a3/
+
+https://old.reddit.com/r/instant_regret/comments/1pqawkw/joe_rogan_is_all_in_on_ai_music_until_katie/nusy6sb/
+
+Trump is wildly entertaining content until everyone is dead and the LOL LOL book by Neil Postman "Amusing Ourselves to Death" from 40 years ago spins in the grave along with all the dead who never even got a grave.
+
+https://old.reddit.com/r/instant_regret/comments/1pqawkw/joe_rogan_is_all_in_on_ai_music_until_katie/nutbv4u/
+
+https://old.reddit.com/r/instant_regret/comments/1pqawkw/joe_rogan_is_all_in_on_ai_music_until_katie/nutisah/
+
+"War on Normal People" book title sounds cool. Surkov's "War of All Against ALL"
+
+https://old.reddit.com/r/instant_regret/comments/1pqawkw/joe_rogan_is_all_in_on_ai_music_until_katie/nusxubz/
+
+Joe Rogan entertains Reddit audience into welcoming Trump and other self-harm choices. Funny comedy to Reddit users.
+
