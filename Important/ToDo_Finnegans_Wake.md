@@ -566,3 +566,9 @@ https://old.reddit.com/r/comics/comments/1pqr9uz/the_end_of_the_world_gator_days
 3. End of the World, Funeral Rituals of Tim's Wake
 4. Lenka song: Live like you are dying. https://www.youtube.com/watch?v=BJ8S_u1RhS4 lots of numbers in lyrics.
 
+&nbsp;
+
+ALP / Choice Marriage Honesty, back to recirculation of ALP     
+
+https://old.reddit.com/r/SipsTea/comments/1pqs8ry/doctors_gave_her_months_she_gave_society_a_plot/
+
