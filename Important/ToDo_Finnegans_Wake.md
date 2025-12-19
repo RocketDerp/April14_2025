@@ -572,3 +572,12 @@ ALP / Choice Marriage Honesty, back to recirculation of ALP
 
 https://old.reddit.com/r/SipsTea/comments/1pqs8ry/doctors_gave_her_months_she_gave_society_a_plot/
 
+&nbsp;
+
+Another **Big One Today**     
+
+Metaphors of language recompile and relinking, Finnegans Wake iterations.    
+
+https://old.reddit.com/r/todayilearned/comments/1pqrnov/til_that_the_most_holy_shrine_in_the_shinto/
+
+Rituals of teaching the Finn cycle.
