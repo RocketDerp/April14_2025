@@ -691,3 +691,23 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1ppzf6y/trump_has_reschedul
 
 Easy without red tape and power to tangle up citizens with laws and red tape isn't in Putin and Trump desires.
 
+https://old.reddit.com/r/politics/comments/1pq2afs/new_york_times_columnist_david_brooks_appears_in/nuraow9/
+
+https://old.reddit.com/r/politics/comments/1pq2afs/new_york_times_columnist_david_brooks_appears_in/nusq5r8/
+
+https://old.reddit.com/r/politics/comments/1pq4uia/trumps_announcement_for_patriot_games_instantly/nurnhvx/
+
+Mind-blown Reddit audience into meme stupor. Unable to turn to nonfiction and learn about Sturkov entertainment-based governing.
+
+https://old.reddit.com/r/politics/comments/1pq2fto/there_is_something_deeply_wrong_with_donald/nurc1zs/
+
+June 16, 2015 and watching the IRA do /r/The_Donald on Reddit.
+
+https://old.reddit.com/r/politics/comments/1pq2fto/there_is_something_deeply_wrong_with_donald/nur3ak1/
+
+Social media meme mill Reddit "LOL cow" milks Trump for amusement. Wrapping Trump up as humor and comedy. Every day all day, people adopt Trump standard for Truth Social attitudes and behaviors. All part of the never-ending amusement so video games, formula 1 on Reddit, NBA / NFL / famous people. Trump is the most entertaining for people who prize hate leadership and mocking leadership. Anything to avoid serious nonfiction learning about Russian information warfare since year 2013.
+
+https://old.reddit.com/r/politics/comments/1pq2fto/there_is_something_deeply_wrong_with_donald/nur2z2c/
+
+The Twitter / Reddit amusements that day June 16. 2015 never were the same. Everyone laughing away and unable to describe the forest for the trees. That something is very wrong and people are prizing horrible and dehumanizing choices "for the laughs". Neil Postman's 1985 book "Amusing Ourselves To Death" about high-speed media driving people into badness ... gets ignored.
+
