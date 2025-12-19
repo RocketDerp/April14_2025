@@ -1676,3 +1676,14 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1ppyrs6/sneak_peek_ep_8_charm_
 
 Reddit hive mind down-vote disagree to on-topic discussions (cis-cussions).
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pqc2xb/pluribus_1x08_charm_offensive_episode_discussion/nuttujj/
+
+Downvotee disagree hive mind of Reddit
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pqc2xb/pluribus_1x08_charm_offensive_episode_discussion/nutzbpq/
+
+Zosia traveled and dressed up as Pirate Lady for Carol from the start of the story. Any familiar Albuquerque person such as the mayor could have been an ambassador agent for the hive. The hive instead got very intimate when Carol was grief-stricken and digging the grave.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pqc2xb/pluribus_1x08_charm_offensive_episode_discussion/nutzaer/
+
+I think the show is doing a good job of raising real-world issues of stardom and parasocial relationships with chemistry of fiction characters. "1 John 4:20" love and even the virgin Mary Christmas birth community behavior mindsets of fandom ' popular people (when you are popular star, you can claim divine pregnancy or grab women by the pussy or other outrageous showbiz kids (child making) behaviors).  Life on earth, Darwin evolution, had a lot of unusual sex hookups between species. Finding compatible DNA patterns.
