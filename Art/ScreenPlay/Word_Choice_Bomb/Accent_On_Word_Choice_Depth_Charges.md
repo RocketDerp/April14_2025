@@ -54,3 +54,5 @@ text file: [thinkpad_1997-05-10_StephenG_vnw.txt](thinkpad_1997-05-10_StephenG_v
 # Spellchoice 
 
 Joyce Finn's Hotel 1923    
+
+"Caution! Echoland!" OPERA_A https://www.youtube.com/watch?v=kM8QJAlHlR4 "People with Accents"
