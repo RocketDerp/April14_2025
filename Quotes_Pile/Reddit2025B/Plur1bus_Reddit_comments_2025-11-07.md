@@ -1672,4 +1672,7 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pkc2sq/episode_6_titled_hdp_c
 
 A small number of people are associating Pluribus TV to Earwocker HCE! Finnegans Wake Minute Twenty Two / Kepler Twenty Two.
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1ppyrs6/sneak_peek_ep_8_charm_offensive/nuqii3d/
+
+Reddit hive mind down-vote disagree to on-topic discussions (cis-cussions).
 
