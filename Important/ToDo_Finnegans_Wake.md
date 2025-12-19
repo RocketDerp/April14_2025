@@ -554,3 +554,15 @@ Egoism of words don't matter, but words can kill. Not just games. Wrong communic
 
 1985 Ronald. Neil Postman book, "Amusing Ourselves To Death" about POTUS 1985 second term in office.      
 https://old.reddit.com/r/Scotland/comments/1podhg7/yup_this_is_pretty_much_it/
+
+&nbsp;
+
+# Big one today
+
+https://old.reddit.com/r/comics/comments/1pqr9uz/the_end_of_the_world_gator_days/
+
+1. Daily prayers purpose
+2. Romans 11:32 sinners, Sin Boldly
+3. End of the World, Funeral Rituals of Tim's Wake
+4. Lenka song: Live like you are dying. https://www.youtube.com/watch?v=BJ8S_u1RhS4 lots of numbers in lyrics.
+
