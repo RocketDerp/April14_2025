@@ -1452,3 +1452,15 @@ OPERA_A Show Biz children making movies of themselves at the Movie Premier. Attr
 
 OPERA_A fork(); I seen your film, your photograph - your big film debut. (Aja / India) - https://www.youtube.com/watch?v=u_pt3khMRFs
 
+&nbsp;
+
+# Ecology of Living Online 
+
+Living the online mind.
+
+https://old.reddit.com/r/Weird/comments/1prj0gx/chinese_gamer_addicted_to_video_games_holed_up_in/
+
+OPERA_A Holed up, eh? https://www.youtube.com/watch?v=bPXzBj7AZvk "I decline to walk the line... they tell me that I'm lazy. Worldly-wise, I realize that everybody's crazy!", 
+"Am I myself, or just another freak?",
+"You know, there's fire in the hole and nothing left to burn", 
+"I'd love to run out now... There's nowhere left to turn, no, no" 5,912 views February 23, 2020 Should I hide? My life is boiling over! I wish someone would open up the door! Oh yha!
