@@ -743,5 +743,7 @@ We are fork-bombing John One One. Hell, the SAME PERSON at age 65 can't make sen
 
 https://old.reddit.com/r/politics/comments/1pqqlv2/its_time_to_kick_trump_79_out_of_the_white/nuwk1kq/
 
-Shared Psychosis of a hive mind, Reddit hive mind. Pluribus Episode Eight topic today / last night. "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M Do you notice this high voted Reddit comment doesn't link anything? no book author, no book title. Dr. Bandy x Lee, she has a name, on Bluesky. Not many followers given how important the topic is to get on the same pge. But the toxic IRA infiltrated the Reddit hive mind to avoid getting on important same-page topics.
+Shared Psychosis of a hive mind, Reddit hive mind. Pluribus Episode Eight topic today / last night. "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M Do you notice this high voted Reddit comment doesn't link anything? ~~no book author, no book title. Dr. Bandy x Lee, she has a name~~, on Bluesky. Not many followers given how important the topic is to get on the same pge. But the toxic IRA infiltrated the Reddit hive mind to avoid getting on important same-page topics. Correction: her name was mentioned. But it's way more important right here and now than Epstein name. OPER_A NOW NOW FRONT PAGE EVERY DAY NOW. Dr. Bandy X. Lee!! Jen Senko!!! https://www.youtube.com/watch?v=gU7d2EHV_OQ
+
+
 
