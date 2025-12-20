@@ -113,4 +113,45 @@ Saturation of the same echos. Echo chambers all have Trump as core Super Star. E
 Nothing breaks the conditioned bouncing echo patterns of MAGA vs. hate MAGA.
 
 
+&nbsp;
 
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+# .
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+# So out of hand
+
+&nbsp;
+
+Saturday, December 20, 2025       
+https://autistics.life/@RoundSparrow/115752436442271850      
+https://bsky.app/profile/roundsparrow.bsky.social/post/3magh3npsks2s    
+
+HASHTAGS: #FWake20251220 #Anal1812 #RoundSparrowAsserts     
+HASHTAGS: #DonaldTrumpSuperStar     
+
+HASHTAGS: Donald J. Trump is the most gifted talented { #SalesPerson #Salesman #SalesDepartment #Seller } the world has ever seen. Trump, with Putin's assistance, can sell any negative idea to #WeThePeopleUSA again and again #SinceMarch2013E     
+
+&nbsp;
+
+HASHTAGS: "I did try and fuck her. She was married. And I moved on her very heavily." #AndFuckHer    
+
+"I moved on her like a bitch." - Donald Trump, Super Star Entertainer 
+
+"And when you're a star, they let you do it. You can do anything. Grab 'em by the pussy. You can do anything."
+
+HASHTAGS: #Christmas #Christmas2025 /\ https://www.youtube.com/watch?v=SKicGSYSwKY     
