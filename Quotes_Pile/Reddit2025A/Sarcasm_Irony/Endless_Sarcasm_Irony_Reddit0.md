@@ -1906,3 +1906,16 @@ https://old.reddit.com/r/nba/comments/1ppa8iu/dillon_brooks_takes_shots_at_lebro
 
 There it is *again*, front page of Reddit. That maybe the problem is social media leadership of Donald Trump Entertainer "Reality TV" leading sports stars and an entire nation with Truth Social role models. That now everything is who is the biggest bullshit thrower with a meme touch device.  And that eating the shit Donald Trump throws at Reddit and Bluesky isn't RESISTING the shitshow. People need to face up to media addiction behaviors. Sports stars are not immune to Twitter any more than Reddit front page avoids Twitter content and Truth Social messages. Media addiction is how Russia / Surkov students defeated USA. This isn't a basketball game, this is real-world media stars telling you about media addiction. Trump is a Fox News and Putin Russia Today media addict! And so is the whole population addicted to the signals of junk noise that Trump stimulates the population with constantly. Neil Postman's library of books on education and media ecology explain Trump and how serious this problem is for the USA society. Not just MAGA, but everyone.
 
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1prpbxu/at_least_16_files_have_disappeared_from_the_doj/
+
+Trump is yanking the chain / heart strings of the people who believe QAnon "Q" stuff without even realizing they are chasing Epstein / Trump Jr. / programming. Remove Trump, reform MAGA, THEN go after Epstein files. Starting with the Epstein files is a flash dance / sexual strip tease of information and only information. "Q Drops" are practices with the MAGA audience, and now it is MAGA everywhere Reddit. The denial on Reddit of addiction to Pizza Gate fantasy topics / Q information strip tease drips is now extreme in year 2025. 
+
+* “a peek-a-boo world, where now this event, now that, pops into view for a moment, then vanishes again. It is an improbable world. It is a world in which the idea of human progress, as Bacon expressed it, has been replaced by the idea of technological progress. The aim is not to reduce ignorance, superstition, and suffering but to accommodate ourselves to the requirements of new technologies. We tell ourselves, of course, that such accommodations will lead to a better life, but that is only the rhetorical residue of a vanishing technocracy. We are a culture consuming itself with information, and many of us do not even wonder how to control the process. We proceed under the assumption that information is our friend, believing that cultures may suffer grievously from a lack of information, which, of course, they do. It is only now beginning to be understood that cultures may also suffer grievously from information glut, information without meaning, information without control mechanisms.” ― Neil Postman, Technopoly: The Surrender of Culture to Technology, 1992
+
+Reddit society is the washing meme mill of turning Trump into a topic of mockery entertainment. White house mocks, Reddit mocks back, feedback looping over and over since June 16, 2015. In or out of office, golf course or Mar-A-Lago or anywhere, Reddit chases images of Trump to mock and insult his President Tony Clifton SNL performances. Reddit audiences eat and pre-digest it for the rest of the Internet to regurgitate. 
+
+
