@@ -761,3 +761,8 @@ QAnon Pizza Gate sex stuff is what people were in a frenzy for. A list, a photo 
 https://old.reddit.com/r/news/comments/1pqm9f9/german_man_found_guilty_of_drugging_raping_and/nuvv298/
 
 Popularity is toxic.
+
+https://old.reddit.com/r/worldnews/comments/1pqknmz/gaza_no_longer_has_famine_says_global_hunger/nuygsuu/
+
+All this diet information but no author name, no link, no book title, no quotes. As if any of this information isn't confusing or confuses anyone. More than 8 billion living people on Earth that this nutrition information applies to, but original sounding Reddit commenting that avoids nonfiction book sources or university links. This is how people prize information now, anonymous "sounds good" unique writing that avoids quoting a real named author.
+
