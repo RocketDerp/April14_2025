@@ -131,6 +131,12 @@ https://autistics.life/@RoundSparrow/115752087749768319
 
 &nbsp;
 
+HASHTAGS: #Epstein knew how to make entertainment leaders, business leaders, political leaders follow him. Epstein knew how to make terrible men avoid #MalalaYousafzai leadership of men to women / girls. USA population follows #Putin abuse of #women  
+
+HASHTAGS: #MaximumPutinization USA
+
+&nbsp;
+
 <img width="1724" height="1516" alt="Screenshot from 2025-12-20 06-25-31" src="https://github.com/user-attachments/assets/d443eda9-c19a-4f39-8214-236218c9bf42" />
 
 Google Search
@@ -147,6 +153,14 @@ Donald J. Trump (@realDonaldTrump). 547 likes 214 replies. I'm in Moscow for Mis
 Facebook · Donald J. Trump     
 2.8K+ reactions     
 I'm in Moscow for Miss Universe tonight - picking a winner is very hard, they are all winners. Total sellout of arena. Big night in Russia!     
+
+&nbsp;
+
+&nbsp;
+
+HASHTAGS: #Epstein #EpsteinIsland #EpsteinList #TrumpEpstein  
+
+HASHTAGS: Epstein knew how to make men businessmen politician men President leader men #Executive leader men followed Epstein. Just like male leaders in USA follow #Putin and #Russia in abusing #girls #women - aggressive dominating males admire Putin
 
 &nbsp;
 
@@ -167,3 +181,16 @@ qz.com
 Trump now claims he hasn't called Russia “in 10 years.” That's ...    
 https:// qz.com › donald-trump-just-claimed-he-hasnt-ca...     
 Jun 18, 2013 — Second, Trump actually held a Miss Universe pageant in Moscow in 2013 (it was before, during and after this pageant that he made most of the statements about ... Read more    
+
+&nbsp;
+
+&nbsp;
+
+HASHTAGS: Trump #OldBestFriend : #Epstein     
+HASHTAGS: Trump #NewBestFriend : #Putin       
+
+HASHTAGS: { Men, Males, Boys } Think Trump is #hilarious in his #DogWhistlePolitics about { #Women #Girls }
+
+#HASHTAGS: Facebook: "I'm in Moscow for Miss Universe tonight - picking a winner is very hard" - Donald J Trump, #Moscow 
+
+HASHTAGS: /\ #PenisHard #HardPenis /\ #ArnoldPalmer men
