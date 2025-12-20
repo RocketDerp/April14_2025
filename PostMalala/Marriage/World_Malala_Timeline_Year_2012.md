@@ -156,11 +156,11 @@ Google Search
 
 november 8, 2013 trump moscow
 
-X · realDonaldTrump
-42.6K+ likes
-if so, will he become my new best friend?
-Do you think Putin will be going to The Miss Universe Pageant in November in Moscow - if so, will he become my new best friend? Read more
-Missing: 8, ‎| Show results with: 8,
+X · realDonaldTrump     
+42.6K+ likes      
+if so, will he become my new best friend?       
+Do you think Putin will be going to The Miss Universe Pageant in November in Moscow - if so, will he become my new best friend? Read more     
+Missing: 8, ‎| Show results with: 8,     
 
 
 qz.com     
