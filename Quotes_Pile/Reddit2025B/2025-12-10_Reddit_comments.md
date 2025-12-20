@@ -766,3 +766,15 @@ https://old.reddit.com/r/worldnews/comments/1pqknmz/gaza_no_longer_has_famine_sa
 
 All this diet information but no author name, no link, no book title, no quotes. As if any of this information isn't confusing or confuses anyone. More than 8 billion living people on Earth that this nutrition information applies to, but original sounding Reddit commenting that avoids nonfiction book sources or university links. This is how people prize information now, anonymous "sounds good" unique writing that avoids quoting a real named author.
 
+https://old.reddit.com/r/confidentlyincorrect/comments/1pr26ha/dude_slept_through_grade_school/nuz2f66/
+
+The word "dumb" is such a thought-terminating choice for most people. People don't just believe any idea out of the public library is untrue. Flat Earth seems to be a flaw in the human brain or education system. Like people who don't see the danger in automobile driving.
+
+https://old.reddit.com/r/confidentlyincorrect/comments/1pr26ha/dude_slept_through_grade_school/nuzhptv/
+
+Just like people never learned the meaning of "We The People" and Latin language "Pluribus" in USA. But they know the brand of a McDonald's hamburger or automobile.
+
+https://old.reddit.com/r/confidentlyincorrect/comments/1pr26ha/dude_slept_through_grade_school/nuyv9lh/
+
+Who is unafraid of large media systems: Fox News HDTV impact on USA society. Mecca media system impact on terrorism in global society. Elon Musk seeking power and dehumanization via purchase of Twitter media system. Donald Trump creating Truth Social media system. But Reddit and Bluesky users can't criticize their own behavior with media systems, it's only Fox News and Truth Social and Twitter media system that's the problem.
+
