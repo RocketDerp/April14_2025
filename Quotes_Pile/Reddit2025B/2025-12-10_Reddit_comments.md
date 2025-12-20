@@ -754,3 +754,7 @@ https://old.reddit.com/r/ProgressiveHQ/comments/1pqzocr/now_the_coverup_is_out_i
 People are. It isn't the magical power that everyone thinks it is. People have so much meme entertainment mocking back and forth with President Tony Clifton acts. It does not matter if people "get the joke" or not. People are laughing all the time at anything serious. Surkov won since March 2013. Runaway information warfare. Nobody has any sense of how long they have been laughing "QAnon! Epstein!" ... ... ...     
 “For in the end, he was trying to tell us what afflicted the people in 'Brave New World' was not that they were laughing instead of thinking, but that they did not know what they were laughing about and why they had stopped thinking.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business
 
+https://old.reddit.com/r/pics/comments/1pqz5oo/cant_say_i_was_expecting_to_see_this_photo/nuy49bx/
+
+QAnon Pizza Gate sex stuff is what people were in a frenzy for. A list, a photo list, some kind of list. Honest sincere leaders to govern the nation towards progressive is not what We The People are asking for. People want entertainment, not sincerity. Image addiction runaway cravings.
+
