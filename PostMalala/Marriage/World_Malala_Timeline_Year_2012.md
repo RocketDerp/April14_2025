@@ -114,6 +114,11 @@ https://autistics.life/tags/NotGoodEnoughMalala4
 
 &nbsp;
 
+=================================      
+---------------------------------          
+
+&nbsp;
+
 &nbsp;
 
 &nbsp;
@@ -194,3 +199,21 @@ HASHTAGS: { Men, Males, Boys } Think Trump is #hilarious in his #DogWhistlePolit
 #HASHTAGS: Facebook: "I'm in Moscow for Miss Universe tonight - picking a winner is very hard" - Donald J Trump, #Moscow 
 
 HASHTAGS: /\ #PenisHard #HardPenis /\ [#ArnoldPalmer](https://chicago.suntimes.com/columnists/2024/10/20/arnold-palmer-penis-donald-trump-rally-pennsylvania-2024-election) men
+
+&nbsp;
+
+&nbsp;
+
+HASHTAGS: #AssertMalala #Epstein #Trump #Musk     
+
+HASHTAGS: #SkywalkerRanchMetaphorUniverse #PowerOfMyth 1988 book: "So it’s an **extreme case that we have in the Bible, and our own Western subjugation of the female is a function of biblical thinking**."
+
+&nbsp;
+
+HASHTAGS: #FWakeMalalaA /\ #Taliban #Muslims #Christians #WomenRights #Iran     
+HASHTAGS: #Afghanistan #Pakistan #USA #MAGAvalues     
+
+“We felt like the Taliban saw us as like little dolls to control, telling us what to do and how to dress. I thought if God wanted us to be like that He would not have made us all different.”
+― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. October 8, 2013
+
+<img width="2226" height="732" alt="Screenshot from 2025-12-20 07-08-25" src="https://github.com/user-attachments/assets/f7b69392-2e15-4738-a2fa-d141b14e5033" />
