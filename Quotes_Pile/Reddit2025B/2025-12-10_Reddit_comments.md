@@ -758,3 +758,6 @@ https://old.reddit.com/r/pics/comments/1pqz5oo/cant_say_i_was_expecting_to_see_t
 
 QAnon Pizza Gate sex stuff is what people were in a frenzy for. A list, a photo list, some kind of list. Honest sincere leaders to govern the nation towards progressive is not what We The People are asking for. People want entertainment, not sincerity. Image addiction runaway cravings.
 
+https://old.reddit.com/r/news/comments/1pqm9f9/german_man_found_guilty_of_drugging_raping_and/nuvv298/
+
+Popularity is toxic.
