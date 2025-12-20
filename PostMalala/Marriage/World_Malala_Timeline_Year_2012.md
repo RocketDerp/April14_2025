@@ -193,4 +193,4 @@ HASHTAGS: { Men, Males, Boys } Think Trump is #hilarious in his #DogWhistlePolit
 
 #HASHTAGS: Facebook: "I'm in Moscow for Miss Universe tonight - picking a winner is very hard" - Donald J Trump, #Moscow 
 
-HASHTAGS: /\ #PenisHard #HardPenis /\ #ArnoldPalmer men
+HASHTAGS: /\ #PenisHard #HardPenis /\ [#ArnoldPalmer](https://chicago.suntimes.com/columnists/2024/10/20/arnold-palmer-penis-donald-trump-rally-pennsylvania-2024-election) men
