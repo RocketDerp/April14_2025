@@ -751,6 +751,6 @@ My message to the Reddit hive mind.
 
 https://old.reddit.com/r/ProgressiveHQ/comments/1pqzocr/now_the_coverup_is_out_in_the_open/nuy5qac/
 
-People are. It isn't the magical power that everyone thinks it is. People have so much meme entertainment mocking back and forth with President Tony Clifton acts. It odes not matter if people "get the joke" or not. People are laughing all the time at anything serous. Surkov won since March 2013. Runaway information warfare. Nobody has any sense of how long they have been laughing "QAnon! Epsiten!" ... ... ...     
+People are. It isn't the magical power that everyone thinks it is. People have so much meme entertainment mocking back and forth with President Tony Clifton acts. It does not matter if people "get the joke" or not. People are laughing all the time at anything serious. Surkov won since March 2013. Runaway information warfare. Nobody has any sense of how long they have been laughing "QAnon! Epstein!" ... ... ...     
 “For in the end, he was trying to tell us what afflicted the people in 'Brave New World' was not that they were laughing instead of thinking, but that they did not know what they were laughing about and why they had stopped thinking.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business
 
