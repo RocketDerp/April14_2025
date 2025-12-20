@@ -1660,9 +1660,18 @@ Peter P. TOLD US the menace of unreality / anti-reality warfare. September 9, 20
 
 &nbsp;
 
-# Firday December 12, 2025
+# Friday December 12, 2025
 
 https://old.reddit.com/r/pics/comments/1pks9yo/zelenskyy_taking_a_selfie_in_kupiansk_city_after/
 
 What better Peter P learning about the "War Against Reality" that started March 2013 before February 2014 Ukraine invasion.
+
+&nbsp;
+
+# Saturday December 20, 2025
+
+https://old.reddit.com/r/worldnews/comments/1prfbkl/us_quietly_removes_sanctions_from_firms_accused/
+
+Front page of Reddit. We The People USA are so entertained and amused as Neil Postman described in his 1985 book. People can't escape the conditioned feedback loops, runaway simulations of resistance. Just as February 2019 Newsweek story mocking USA population, the White House is mocking We The People that the impeachment over Russia / Putin ties of Trump was reality itself. The self-harm of USA and NATO is in the public. People can't interpret or understand or find Peter's books and face up to the media ecology of Peter's TV production experience. "The Apprentice" Moscow flop, USA Surkov students have mastered the runaway USA screenplays. Addict won't stop craving liars / fiction as leaders, it is truly in runaway beyond death of Trump himself. None of this can be put into words, people really need to start reading all of Peter's year 2011 writings forward. 
+
 
