@@ -164,3 +164,12 @@ Avoided Writings
 Touch devices    
 Meme devices    
 Naked Dinner   
+
+Plays on Origin of Species 1859 with the Great Seal Eye perspective:    
+Origin of Dialects   
+Origin of Accents   
+Origin of Language    
+Origin of Memes    
+Origin of Pluribus     
+inspired by: https://old.reddit.com/r/interestingasfuck/comments/1psd1bd/organ_transplant_rules_hit_different_in_singapore/ - origin of dead body reuse hive mind choices.     
+
