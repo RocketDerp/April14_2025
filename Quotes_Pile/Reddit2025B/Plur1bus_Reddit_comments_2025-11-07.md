@@ -1687,3 +1687,7 @@ Zosia traveled and dressed up as Pirate Lady for Carol from the start of the sto
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pqc2xb/pluribus_1x08_charm_offensive_episode_discussion/nutzaer/
 
 I think the show is doing a good job of raising real-world issues of stardom and parasocial relationships with chemistry of fiction characters. "1 John 4:20" love and even the virgin Mary Christmas birth community behavior mindsets of fandom ' popular people (when you are popular star, you can claim divine pregnancy or grab women by the pussy or other outrageous showbiz kids (child making) behaviors).  Life on earth, Darwin evolution, had a lot of unusual sex hookups between species. Finding compatible DNA patterns.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1ps75xj/the_arabic_text_on_the_truck_in_episode_2/nv8b228/
+
+The very title of the Reddit posting is "Arabic text", and still people on Reddit behave like Carol / Karens in English First! American exceptionalism, language entitlement. Christmas holiday spirits.
