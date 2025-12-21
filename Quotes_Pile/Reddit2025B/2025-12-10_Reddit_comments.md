@@ -807,3 +807,6 @@ https://old.reddit.com/r/movies/comments/1psewuz/james_ransone_the_wire_it_chapt
 
 Age 12, left a message behind on the reality of bad parenting. Parents today have made Donald Trump the role model and leader of success and domination of children since June 15, 2015. Putin and Trump are the leadership parents prize. [Malala stood up for domination by old-men elders with outdated Levant traditions and morality. But people (instead)](/PostMalala/Marriage/World_Malala_Timeline_Year_2012.md) flock to { Murdoch, Epstein, Putin, Gates, Musk, Trump } leadership, mass dehumanization is popular and thrilling to touch device high-speed content consumers. Christmas Season. OPERA_A Christmas in Atlanta while Trump was in office: 50 years after year 1964. https://www.youtube.com/watch?v=okGlFU3YW_k&t=9s
 
+https://old.reddit.com/r/PublicFreakout/comments/1psh123/nicki_minaj_freezes_after_calling_jd_vance_an/nv9h94j/
+
+Reddit audience can not grasp what the Internet Research Agency has done to *everyone* in USA since March 2013. Fiction outsells nonfiction. Minds get blown, but **people on meme sites can't turn to nonfiction learning of media ecology** / media stardom (Neil Postman) and politics.
