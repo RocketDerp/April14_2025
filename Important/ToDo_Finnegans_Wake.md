@@ -581,3 +581,9 @@ Metaphors of language recompile and relinking, Finnegans Wake iterations.
 https://old.reddit.com/r/todayilearned/comments/1pqrnov/til_that_the_most_holy_shrine_in_the_shinto/
 
 Rituals of teaching the Finn cycle.
+
+&nbsp;
+
+https://old.reddit.com/r/Damnthatsinteresting/comments/1prtvxv/the_last_words_of_soul_music_legend_marvin_gaye/
+
+Choice marriage family honesty to everyone. "Death by Father" (God strikes you down, Father above metaphors, Finnegans Wake ladder height to Tim) - Suicide by father / suicide by cop. Tortured artist. The opening of Howard Blooms August 2000 book talks about nurses neglecting patients who don't socialize.
