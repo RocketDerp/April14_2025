@@ -798,3 +798,7 @@ https://old.reddit.com/r/formula1/comments/1przrp4/formula_1_will_see_the_use_of
 
 Marketing, advertising, public relations, mental manipulation is why Donald Trump rules Reddit society. People think they are not cheering on badness by adding hate to hate. Yet it goes on for over 10 years and 6 months with non-stop hate motivation and mass dehumanization. It isn't an accidental day or two, it's sustained power concentration and badness / anti-goodness for over a decade. Entertainer / Reality TV star entertains people with hate of out-groups. Different groups hate different groups, but hate drives it / self-harm drives it. Parents have made Trump a role model for thinking, business, success, winning. And Vince Gilligan February 15, 2025 about social media cesspool is correct of the society that thinks hate is not the core value of Trump and that hate of Trump and hate of MAGA isn't prizing hate / teaching hate / originating hate. Living in this social media cesspool that took over the White House is Hell itself. Sunday morning Christmas lesson: We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)!
 
+https://old.reddit.com/r/pics/comments/1psieyu/donald_trump_with_a_child/nv9pj7l/
+
+September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ "Russia and the Menace of Unreality:
+How Vladimir Putin is revolutionizing information warfare" - Reddit lives in it. Since March 2013. https://www.bbc.com/news/technology-43301643
