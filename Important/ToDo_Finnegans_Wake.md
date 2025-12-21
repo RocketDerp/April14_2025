@@ -600,3 +600,10 @@ Civil war reenactment theater?
 Do women get married because of ring of eternal meaning and no love?   
 Christian, love Jesus, "1 John 4:20" ?    
 https://old.reddit.com/r/TikTokCringe/comments/1prwzlb/dad_proposes_to_20yearold_daughter_with_a_purity/
+
+&nbsp;
+
+&nbsp;
+
+The 1132 equations of the origin of sin. Outer space Eden or our own damed free choices? The networked hive mind behaviors. 1132 vs. the clergy teaching of Dublin. And taking on John 1:1 as Joyce did so bravely climb the Babel towers against the audience anti-waves / upstream from established pop culture.    
+https://old.reddit.com/r/todayilearned/comments/1ps9w18/til_that_the_achoo_sound_is_a_learned_cultural/
