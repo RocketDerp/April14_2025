@@ -782,3 +782,19 @@ https://old.reddit.com/r/complaints/comments/1prl8nh/exhausted_of_emboldened_sup
 
 My message. Against the Reddit hive mind manipulation that violence isn't the desired entertainment answer to Russia's win of hearts and minds and Reddit invasion by the IRA. Anything to avoid confronting the avoidance of nonfiction about information warfare and Christmas symbolism.
 
+https://old.reddit.com/r/formula1/comments/1przrp4/formula_1_will_see_the_use_of_100_sustainable/nv5v0eo/
+
+Taylor Swift private jet gets constant Reddit criticism. But F1 big money racing entertainment with machines / technology praised. Social machine devices. Personally I think sports and entertainment in a world of June 16, 2015 onward is why we have Epstein / Murdoch / Musk / Trump / Putin ruling society. Show girls and coverage of Epstein girl showing. Machine lust lovers and Epstein lust lovers flock and create fandoms. The mindless mocking of Trump as entertainment on meme mills is why Trump has so much power. Mocking isn't thinking. Casino not for gambling profits, but the entertainment environment talents that meme addicts can't see they are attracted to. the glitz of gaming machines, the glitz of racing machines. Life in nature considered boring, need racing cars or casino noises like race car noises.
+
+https://old.reddit.com/r/formula1/comments/1przrp4/formula_1_will_see_the_use_of_100_sustainable/nv5wagy/
+
+It's like in USA culture ever since the 1970's oil crisis. People can cheer on housing / rents going from $1,200 a month to $2,800 a month inflation. But gasoline going up from $3.20 gallon to $4.10 gallon and USA people notice. (And people who don't use that much fuel in a week only see this one item increase. So $40 extra a week on gasoline is big mental observation, while health care or housing can go up 4300 a week and people cheer it on). Changing the fuel but burning jet fuel to move race stuff around isn't seen by people who need every clothing item of a race performer to be spotless on camera. Describing how people prize burning anything to make noises and to promote more burning to heat up the earth with gasses is an emotional writing impossibility. It's been written by so many great writers and teachers and people still don't get it. Roger Water on Amusing To Death.
+
+https://old.reddit.com/r/formula1/comments/1przrp4/formula_1_will_see_the_use_of_100_sustainable/nv5udtl/
+
+...
+
+https://old.reddit.com/r/formula1/comments/1przrp4/formula_1_will_see_the_use_of_100_sustainable/nv5xnbs/
+
+Marketing, advertising, public relations, mental manipulation is why Donald Trump rules Reddit society. People think they are not cheering on badness by adding hate to hate. Yet it goes on for over 10 years and 6 months with non-stop hate motivation and mass dehumanization. It isn't an accidental day or two, it's sustained power concentration and badness / anti-goodness for over a decade. Entertainer / Reality TV star entertains people with hate of out-groups. Different groups hate different groups, but hate drives it / self-harm drives it. Parents have made Trump a role model for thinking, business, success, winning. And Vince Gilligan February 15, 2025 about social media cesspool is correct of the society that thinks hate is not the core value of Trump and that hate of Trump and hate of MAGA isn't prizing hate / teaching hate / originating hate. Living in this social media cesspool that took over the White House is Hell itself. Sunday morning Christmas lesson: We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)!
+
