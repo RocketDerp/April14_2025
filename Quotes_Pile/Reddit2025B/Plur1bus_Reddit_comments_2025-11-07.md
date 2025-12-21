@@ -1699,3 +1699,7 @@ Capture comment in case comment message disappears.
 https://old.reddit.com/r/Pluribus_TVshow/comments/1ps75xj/the_arabic_text_on_the_truck_in_episode_2/nv7l05u/
 
 Yes. طنجة / Tangier climate ["The summers are relatively hot and sunny and the winters are wet and mild."](https://en.wikipedia.org/wiki/Tangier). Keeping the bodies from decomposing makes them fresher for butchering and processing.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pscs5s/if_you_havent_yet_try_calling_5057966933_and/nv8h3bg/
+
+ARG for Pluribus, media ecology reach out and touch the hive mind Reddit audience.
