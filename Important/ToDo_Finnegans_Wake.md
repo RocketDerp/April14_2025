@@ -589,3 +589,14 @@ https://old.reddit.com/r/Damnthatsinteresting/comments/1prtvxv/the_last_words_of
 Choice marriage family honesty to everyone. "Death by Father" (God strikes you down, Father above metaphors, Finnegans Wake ladder height to Tim) - Suicide by father / suicide by cop. Tortured artist. The opening of Howard Blooms August 2000 book talks about nurses neglecting patients who don't socialize.
 
 "Humans are apparently the same. Investigations have revealed that the hospital **patients who need help the most — those submerged in depression — are the least likely to receive their doctors’ and nurses’ tender, loving attention**. Careful scrutiny indicates that the sufferers are unwittingly triggering their own rejection. **Depressed patients whine, snarl, or turn their faces to the wall** 21 in ways that alienate their doctors and nurses. They upset their caregivers through every means from facial expression and verbal intonation to body language. 22 An individual selectionist would explain that such self-damaging behavior must be the result of an adaptive response—one with a hidden benefit. The patient’s death might boost the genetic success of close relatives by relieving them of a burden or by enriching them with insurance and bequests. In addition, by subtly doing themselves in the patients might benefit friends who could return the favor to their family someday."
+
+&nbsp;
+
+&nbsp;
+
+Age 20, USA? Choice marriage honesty. Ritual of virginity / purity.    
+Is mother filming and uploading to Internet?    
+Civil war reenactment theater?     
+Do women get married because of ring of eternal meaning and no love?   
+Christian, love Jesus, "1 John 4:20" ?    
+https://old.reddit.com/r/TikTokCringe/comments/1prwzlb/dad_proposes_to_20yearold_daughter_with_a_purity/
