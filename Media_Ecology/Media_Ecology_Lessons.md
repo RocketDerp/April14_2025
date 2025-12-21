@@ -1464,3 +1464,13 @@ OPERA_A Holed up, eh? https://www.youtube.com/watch?v=bPXzBj7AZvk "I decline to 
 "Am I myself, or just another freak?",
 "You know, there's fire in the hole and nothing left to burn", 
 "I'd love to run out now... There's nowhere left to turn, no, no" 5,912 views February 23, 2020 Should I hide? My life is boiling over! I wish someone would open up the door! Oh yha!
+
+&nbsp;
+
+# Prime numbers encryption 
+
+Mario Maker challenge, trivial to solve 
+
+254,621 views  December 11, 2025    
+https://www.youtube.com/watch?v=JrBemdhNGyk
+
