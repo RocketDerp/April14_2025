@@ -778,3 +778,7 @@ https://old.reddit.com/r/confidentlyincorrect/comments/1pr26ha/dude_slept_throug
 
 Who is unafraid of large media systems: Fox News HDTV impact on USA society. Mecca media system impact on terrorism in global society. Elon Musk seeking power and dehumanization via purchase of Twitter media system. Donald Trump creating Truth Social media system. But Reddit and Bluesky users can't criticize their own behavior with media systems, it's only Fox News and Truth Social and Twitter media system that's the problem.
 
+https://old.reddit.com/r/complaints/comments/1prl8nh/exhausted_of_emboldened_supremacist/nv4ah5i/
+
+My message. Against the Reddit hive mind manipulation that violence isn't the desired entertainment answer to Russia's win of hearts and minds and Reddit invasion by the IRA. Anything to avoid confronting the avoidance of nonfiction about information warfare and Christmas symbolism.
+
