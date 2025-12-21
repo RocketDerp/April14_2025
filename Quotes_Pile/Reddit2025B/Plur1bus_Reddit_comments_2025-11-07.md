@@ -1691,3 +1691,7 @@ I think the show is doing a good job of raising real-world issues of stardom and
 https://old.reddit.com/r/Pluribus_TVshow/comments/1ps75xj/the_arabic_text_on_the_truck_in_episode_2/nv8b228/
 
 The very title of the Reddit posting is "Arabic text", and still people on Reddit behave like Carol / Karens in English First! American exceptionalism, language entitlement. Christmas holiday spirits.
+
+https://old.reddit.com/r/Christianity/comments/qjnlxo/has_anyone_elsed_noticed_that_homosexuality_is/hiszgi0/
+
+Capture comment in case comment message disappears.
