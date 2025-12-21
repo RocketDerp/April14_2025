@@ -1695,3 +1695,7 @@ The very title of the Reddit posting is "Arabic text", and still people on Reddi
 https://old.reddit.com/r/Christianity/comments/qjnlxo/has_anyone_elsed_noticed_that_homosexuality_is/hiszgi0/
 
 Capture comment in case comment message disappears.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1ps75xj/the_arabic_text_on_the_truck_in_episode_2/nv7l05u/
+
+Yes. طنجة / Tangier climate ["The summers are relatively hot and sunny and the winters are wet and mild."](https://en.wikipedia.org/wiki/Tangier). Keeping the bodies from decomposing makes them fresher for butchering and processing.
