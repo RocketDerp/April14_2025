@@ -1674,4 +1674,11 @@ https://old.reddit.com/r/worldnews/comments/1prfbkl/us_quietly_removes_sanctions
 
 Front page of Reddit. We The People USA are so entertained and amused as Neil Postman described in his 1985 book. People can't escape the conditioned feedback loops, runaway simulations of resistance. Just as February 2019 Newsweek story mocking USA population, the White House is mocking We The People that the impeachment over Russia / Putin ties of Trump was reality itself. The self-harm of USA and NATO is in the public. People can't interpret or understand or find Peter's books and face up to the media ecology of Peter's TV production experience. "The Apprentice" Moscow flop, USA Surkov students have mastered the runaway USA screenplays. Addict won't stop craving liars / fiction as leaders, it is truly in runaway beyond death of Trump himself. None of this can be put into words, people really need to start reading all of Peter's year 2011 writings forward. 
 
+&nbsp;
+
+https://euromaidanpress.com/2025/12/20/us-intelligence-say-putin-wants-ukraine-baltics-poland-and-more-trumps-team-says-russia-wants-peace/
+
+It is no longer a intelligence war in which secret information / public information matters. It is /r/WarAll of Surkov description. https://old.reddit.com/r/WarAll/comments/1msqs1t/war_of_all_against_all_since_march_2013_war/ It is mind-fucking people into loyalty to self-harm and badness. Russia itself is self-harm domestic motivations. Ukraine is still seeking world peace and not just "hate thy enemy". Reddit army of end-user meme addicts is seeking entertainment, and war is considered thrilling content. Surkov students won since March 2013 in winning Reddit hearts and minds, USA hearts and minds.
+
+
 
