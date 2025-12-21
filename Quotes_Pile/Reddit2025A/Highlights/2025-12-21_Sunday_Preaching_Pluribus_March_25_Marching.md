@@ -24,6 +24,8 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1ps75xj/the_arabic_text_on_the
 
 There has been a lot of [out-of-band information](https://youtu.be/kFrffEktluo?t=3315) from Vince Gilligan and cast / crew.
 
+> Can you please elaborate on this? 
+
 Vince has used his extreme popularity and success to stand at the WGA on Febraury 15, 2025 and preach about online fandoms "there's no simple answer for how we might change that. Though, if there were, I bet it would have something to do with climbing up out of the cesspool that is social media and actually listening to each other" https://youtu.be/TkteSxVIM1A?t=648
 
 Despite people having machines that can easily translate Arabic to English quickly, an accomplishment of humanity in coming together, people are nasty and hate-filled towards outsiders and people they perceive to be diverse or unique.
@@ -50,4 +52,6 @@ I think Vince Gilligan is sending a message from Earth to Kepler and beyond. [Ma
 
 &nbsp;
 
-عيد ميلاد مبارك
+عيد ميلاد مبارك       
+ميلاد مجيد، مريم العذراء
+
