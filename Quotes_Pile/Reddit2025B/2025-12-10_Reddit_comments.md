@@ -802,3 +802,8 @@ https://old.reddit.com/r/pics/comments/1psieyu/donald_trump_with_a_child/nv9pj7l
 
 September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ "Russia and the Menace of Unreality:
 How Vladimir Putin is revolutionizing information warfare" - Reddit lives in it. Since March 2013. https://www.bbc.com/news/technology-43301643
+
+https://old.reddit.com/r/movies/comments/1psewuz/james_ransone_the_wire_it_chapter_two_actor_dead/nv8xnff/
+
+Age 12, left a message behind on the reality of bad parenting. Parents today have made Donald Trump the role model and leader of success and domination of children since June 15, 2015. Putin and Trump are the leadership parents prize. [Malala stood up for domination by old-men elders with outdated Levant traditions and morality. But people (instead)](/PostMalala/Marriage/World_Malala_Timeline_Year_2012.md) flock to { Murdoch, Epstein, Gates, Musk, Trump } leadership, mass dehumanization is popular and thrilling to touch device high-speed content consumers. Christmas Season. OPERA_A Christmas in Atlanta while Trump was in office: 50 years after year 1964. https://www.youtube.com/watch?v=okGlFU3YW_k&t=9s
+
