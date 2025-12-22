@@ -750,7 +750,7 @@ USA society is a hate orgy right now.
 
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pbl1a6/what_does_hive_do_with_the_sick_injured_or_people/nruvq4i/
 
-"The show has a simple plot." - Finnegans Wake is about media ecology self-awareness of the audience. Being "woke" isn't about the plot. It's about the medium. Marshall McLuhan topics. The Woke / Wake about about a Bible story that says Jesus came back to life, a science fiction story (like Pluribus is a science fiction story). The reply message entirely misses the point of Tim Finnegan being undead. And that Helen's memory is preserved. No human in the real world has ever had their memeories upoaded into a hive mind like Helen did. To Carol, this is a new human experience / a change in life on Earth that the dead are not undead. This person thinks that the topic is about the body of Hellen, the physical, and not the "spirit" and afterlife concepts of science fiction stories by the clergy. Likebeing able to ask the hive mind if Helen liked Carol's unpublished book. This is a very human emotional experience like Church Clergy creates messages from outer-space God, or at least *claims* to.
+"The show has a simple plot." - Finnegans Wake is about media ecology self-awareness of the audience. Being "woke" isn't about the plot. It's about the medium. Marshall McLuhan topics. The Woke / Wake about about a Bible story that says Jesus came back to life, a science fiction story (like Pluribus is a science fiction story). The reply message entirely misses the point of Tim Finnegan being undead. And that Helen's memory is preserved. No human in the real world has ever had their memories uploaded into a hive mind like Helen did. To Carol, this is a new human experience / a change in life on Earth that the dead are not undead. This person thinks that the topic is about the body of Helen, the physical, and not the "spirit" and afterlife concepts of science fiction stories by the clergy. Like being able to ask the hive mind if Helen liked Carol's unpublished book. This is a very human emotional experience like Church Clergy creates messages from outer-space God, or at least *claims* to.
 
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pexzhr/the_depiction_of_nonwhite_characters_in_pluribus/nsftiyd/
 
@@ -1760,6 +1760,12 @@ Christmas week, many people are busy going here to there. I understand, tit's a 
 
 >  I will give you Carol asking Zosia to translate into Sanskrit caught my eye because it's a very Holly language. Most don't know that.
 
-The science fiction audience lessons from Luke Skywaker Ranch, published in year 1988, filmed by George Lucas:
+The science fiction audience lessons from Luke Skywalker Ranch, published in year 1988, filmed by George Lucas:
 
 "Now, I came to this idea of bliss **because in Sanskrit, which is the great spiritual language of the world**, there are three terms that represent the brink, the jumping-off place to the ocean of transcendence: Sat, Chit, Ananda. The word “Sat” means being. “Chit” means consciousness. “Ananda” means bliss or rapture. I thought, “I don’t know whether my consciousness is proper consciousness or not; I don’t know whether what I know of my being is my proper being or not; but I do know where my rapture is. So let me hang on to rapture, and that will bring me both my consciousness and my being.” I think it worked." - 1988, The Power of Myth
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pt3nw5/s1e9_and_complications_ensue/nve7g8f/
+
+>  For watch enthusiasts “complications“ are any mechanical function beyond simple time telling.
+
+One button simplicity, relationships with over 7 billion people is very complicated. Christmas Eve [birthing complications](https://en.wikipedia.org/wiki/Lady_Day) time storytelling. Kepler Christmas Star messengers and avatars with complex special delivery postings.
