@@ -810,3 +810,7 @@ Age 12, left a message behind on the reality of bad parenting. Parents today hav
 https://old.reddit.com/r/PublicFreakout/comments/1psh123/nicki_minaj_freezes_after_calling_jd_vance_an/nv9h94j/
 
 Reddit audience can not grasp what the Internet Research Agency has done to *everyone* in USA since March 2013. Fiction outsells nonfiction. Minds get blown, but **people on meme sites can't turn to nonfiction learning of media ecology** / media stardom (Neil Postman) and politics.
+
+https://old.reddit.com/r/politics/comments/1pslazu/60_minutes_suddenly_drops_segment_on_major_trump/nvai2vw/
+
+At least someone stands up to the constant downplaying messaging. "Weak", "cowards". The no-identity Reddit society that can't face nonfiction book learning. Aggressive desire to dominate others and labor hard at wrecking the Earth isn't cowardly, it's cheered on by media networks. CBS / Truth Social / Reddit. Pave over the world for rich people car racing and golf course parking lots.
