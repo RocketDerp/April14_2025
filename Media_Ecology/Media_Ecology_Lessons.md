@@ -1474,3 +1474,12 @@ Mario Maker challenge, trivial to solve
 254,621 views  December 11, 2025    
 https://www.youtube.com/watch?v=JrBemdhNGyk
 
+&nbsp;
+
+# Long standing Fast Food critic
+
+Reviewing the YouTube videos and fast food culture / *You Tube / Hollywood / Hot Ones You Tube creator food product*.
+
+December 22, 2025 15,871 views     
+https://www.youtube.com/watch?v=IVMOqir_q0I     
+"What's the Point?"     
