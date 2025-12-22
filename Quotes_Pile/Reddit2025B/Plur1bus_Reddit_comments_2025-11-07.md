@@ -1731,3 +1731,16 @@ People don't get the connection because they don't see that Carol does not know 
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pss99g/so_who_is_charming_whom_exactly/nvdanv6/
 
 February 15, 2025 Vince Gilligan said social media is a cesspool. People can not hear the foghorn calling at them. Can't talk Christmas story of virgin birth on Reddit. People defect and swim in the cesspool of anti-Jesus science fiction story. Bible science fiction story has outsold Breaking Bad as science fiction storytelling. Christmas Day ending isn't clear enough. Reading outside the lines, between the lines, really difficult for MAGA USA December 2025 society. Truth Social caducei. Fox News nation USA, ICE raids.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pss99g/so_who_is_charming_whom_exactly/nvdi2of/
+
+I replied:
+
+> Timestamp on the egg conversation? Watch Ep3. It's rt there at the beginning when she is talking to Helen as they check out their ice hotel room.
+
+You didn't read my message correctly, some kind of time-shift comprehension issue.
+
+My entire point was that the audience watching the show sees the title "Pluribus" that Carol and nobody else sees. Out of band audience clues. The ICE hotel / flashing northern police lights scene was years and years earlier.
+
+
+After the Zero Hour, I do not recall any depiction that Carol has thought about her eggs as a source of the stem cells for the hive mind to create a takeover of her body / biology / forced conversion to the hive mind (like her forced interment in a "camp" at age 16 by Christian parents)
