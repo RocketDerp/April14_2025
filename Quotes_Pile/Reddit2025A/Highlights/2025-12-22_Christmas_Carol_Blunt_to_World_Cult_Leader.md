@@ -2,6 +2,12 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pss99g/so_who_is_charming_who
 
 A cult to creative fiction storytelling author. A religion prophet. A leader in USA that a community hangs on every word.
 
+ToDo: add more. This is a "petri dish" story, emphasizes throughout the show to the audience. Carol doesn't know of the petri dishes. Another way to describe a "petri dish" story is "sandboxed" story in video games. https://en.wikipedia.org/wiki/Sandbox_game "Albuquerque (ABQ) soil is typically sandy, alkaline, and low in organic matter". People aren't getting the scope of Kepler life on other planets. REFERNCE: "Oats Studios - Volume 1 - God: Serengeti" https://www.youtube.com/watch?v=Q1_HfhtB5eo /\ "Oats Studios - God: City" https://www.youtube.com/watch?v=w4AGocVq7-w - again, Carol does not have what we see from above (like in the Oats Studios, we see from above) the petri dish emphasis to *the audience* to look above / look beyond Kepler. To Christmas day power that Vince Gilligan can choose and pick with his extreme power and charm of streaming venues. His Breaking Bad and Saul street cred to turn an audience. Vince Gilligan's petri dish campaign is not for Carol to see, she is inside the sandbox of Oats Studio Volumes. We, The People, the audience are having our head turned to the petri dish perspective https://en.wikipedia.org/wiki/Distracted_boyfriend - Vince Gilligan has that power to control the marketing / the show dates / the February 15, 2025 lecture about the **cesspool of social media**. You cultivate diseases of a cesspool in a petri dish.
+
+&nbsp;
+
+&nbsp;
+
 &nbsp;
 
 &nbsp;
