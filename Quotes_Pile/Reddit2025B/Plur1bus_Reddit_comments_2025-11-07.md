@@ -1727,3 +1727,7 @@ People aren't seeing the out of story context, the title of the show, Carol does
 https://old.reddit.com/r/pluribustv/comments/1osq6ci/pluribus_s01e01_has_an_obscure_tie_to_both_bb_and/nnz0jwo/
 
 People don't get the connection because they don't see that Carol does not know of the petri dishes. The audience is being handed the petri dishes, but Carol does not see that symbolism. You have to go to the writers guild February 15, 2025 Vince Gilligan declarations about social media cesspool. Reddit is social media, non-identity cesspool 2025. MAGA normalization land 2025. Social media cesspool. https://old.reddit.com/r/Vince_Gilligan_WGA/comments/1po2r0w/vince_gilligan_wga_theres_no_simple_answer_for/
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pss99g/so_who_is_charming_whom_exactly/nvdanv6/
+
+February 15, 2025 Vince Gilligan said social media is a cesspool. People can not hear the foghorn calling at them. Can't talk Christmas story of virgin birth on Reddit. People defect and swim in the cesspool of anti-Jesus science fiction story. Bible science fiction story has outsold Breaking Bad as science fiction storytelling. Christmas Day ending isn't clear enough. Reading outside the lines, between the lines, really difficult for MAGA USA December 2025 society. Truth Social caducei. Fox News nation USA, ICE raids.
