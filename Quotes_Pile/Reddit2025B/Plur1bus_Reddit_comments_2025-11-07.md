@@ -1744,3 +1744,8 @@ My entire point was that the audience watching the show sees the title "Pluribus
 
 
 After the Zero Hour, I do not recall any depiction that Carol has thought about her eggs as a source of the stem cells for the hive mind to create a takeover of her body / biology / forced conversion to the hive mind (like her forced interment in a "camp" at age 16 by Christian parents)
+
+
+&nbsp;
+
+EDIT: Even MORE BLUNT: if Carol thought her eggs were a risk, why didn't she write "my eggs" on the white board?
