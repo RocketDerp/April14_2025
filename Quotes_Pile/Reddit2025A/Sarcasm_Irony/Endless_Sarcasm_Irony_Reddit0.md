@@ -1925,3 +1925,9 @@ The social relationships of Reddit audience with Trump / Truth Social (Untrue so
 https://old.reddit.com/r/MurderedByWords/comments/1pruyp7/where_is_your_god_now/
 
 Reddit front page. { Christmas Days away, "Pastor" in username of image, Entertainer like Donald Trump (fighting is a casino owner hosting), Men who support taking away women's rights and Epstein list cheering on as power violence promoted, Religion entertainment of promoting violence, Religion entertainment of worship to a god to "win" a fandom of a storybook instead of seeing the mob mentality of pro-violence and anti-goodness that Clergy manipulates } Trump MAGA power of drawing popular voting and mindsets of inverted religion. ["It's all here on the" Reddit front page](https://youtu.be/OhuLhcbY_08?t=123). The very amusement entertainment of Trump is the very entertainment of attraction to abusive men and abusive Trump $59.99 Bible clergy. 
+
+&nbsp;
+
+https://old.reddit.com/r/Music/comments/1pt57np/nicki_minaj_is_not_a_good_role_model_for_black/
+
+MAGA blows the Reddit and Bluesky Pluribus minds out again with paradox from the dead man. People will not study media ecology of podcast entertainer Charlie Kirk and Niki Minaj lead by Reality TV Trump superstar. Neil Postman spins in his grave, Charlie Kirk keeps exploiting Reddit audience hive minded mockery chamber. Avoiding nonfiction of McLuhan / Postman. Surkov won, unstoppable runaway monomyth.
