@@ -1724,3 +1724,6 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pss99g/so_who_is_charming_who
 
 People aren't seeing the out of story context, the title of the show, Carol does not have the title.
 
+https://old.reddit.com/r/pluribustv/comments/1osq6ci/pluribus_s01e01_has_an_obscure_tie_to_both_bb_and/nnz0jwo/
+
+People don't get the connection because they don't see that Carol does not know of the petri dishes. The audience is being handed the petri dishes, but Carol does not see that symbolism. You have to go to the writers guild February 15, 2025 Vince Gilligan declarations about social media cesspool. Reddit is social media, non-identity cesspool 2025. MAGA normalization land 2025. Social media cesspool. https://old.reddit.com/r/Vince_Gilligan_WGA/comments/1po2r0w/vince_gilligan_wga_theres_no_simple_answer_for/
