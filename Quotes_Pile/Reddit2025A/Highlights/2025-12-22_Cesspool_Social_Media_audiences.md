@@ -43,7 +43,7 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pss99g/so_who_is_charming_who
 
 Christmas day season Apple Computers icon mythology. Vince Gilligan said he is making a mythology science fiction story like The Bible. "Pluck an Apple" - Carol.  Vince Gilligan interview: https://youtu.be/kFrffEktluo?t=3315
 
-A lot of people really struggle reading between the lines (drawing outside the lines to Vince Gilligan's February 15, 2015 guild poiints) with shows not written for second-screen audiences of December 2025. https://www.theguardian.com/tv-and-radio/2025/jan/17/not-second-screen-enough-is-netflix-deliberately-dumbing-down-tv-so-people-can-watch-while-scrolling
+A lot of people really struggle reading between the lines (drawing outside the lines to Vince Gilligan's February 15, 2025 guild points) with shows not written for second-screen audiences of December 2025. https://www.theguardian.com/tv-and-radio/2025/jan/17/not-second-screen-enough-is-netflix-deliberately-dumbing-down-tv-so-people-can-watch-while-scrolling
 
 
 &nbsp;
