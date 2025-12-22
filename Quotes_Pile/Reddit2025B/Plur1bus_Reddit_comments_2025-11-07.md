@@ -1703,3 +1703,24 @@ Yes. طنجة / Tangier climate ["The summers are relatively hot and sunny and t
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pscs5s/if_you_havent_yet_try_calling_5057966933_and/nv8h3bg/
 
 ARG for Pluribus, media ecology reach out and touch the hive mind Reddit audience.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1psswu2/symbolism_behind_and_then_there_were_none/nvc0471/
+
+Book writing, book publishing, book arranging, book post-doctorate thesis (Helen) are huge in this show.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1psswu2/symbolism_behind_and_then_there_were_none/nvcasco/
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1psswu2/symbolism_behind_and_then_there_were_none/nvcczri/
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pssaxa/note_to_carol_leave_the_world_as_it_is_now/nvc9hq1/
+
+Technology dependence and addiction on the scale we have is new.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pss99g/so_who_is_charming_whom_exactly/nvbvae5/
+
+Yes. Episode Eight we learned that they rebuilding of the shrine to Carol's authoring / writing on yellow pads was behind the scene front of charm offensive. And we have seen Carol's secret white-board of her concerns / priorities.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pss99g/so_who_is_charming_whom_exactly/nvch1mb/
+
+People aren't seeing the out of story context, the title of the show, Carol does not have the title.
+
