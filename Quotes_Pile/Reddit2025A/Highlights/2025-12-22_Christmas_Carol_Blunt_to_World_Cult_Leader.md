@@ -46,7 +46,7 @@ Carol is *Bigger than Jesus*. Vince Gilligan could have scheduled his show to be
 
 It is no accident that he gave a lecture at the guild on February 15, 2025 and that the season ends on Christmas. Carol does not see these things, she is just one person / one brain. But we the audience can rewind / rematch / create clips and see a bigger picture.
 
-Carol does not know that her own name is taken from a Twilight Zone episode. Carol does not know Breaking Bad is where the Zero Hour grave site of Walter white is in Episode One of Pluribus. Carol does not know the on-screen countdown and countup timers. 
+Carol does not know that her own name is taken from a Twilight Zone episode. Carol does not know Breaking Bad is where the Zero Hour grave site of Walter White is in Episode One of Pluribus. Carol does not know the on-screen countdown and countup timers. 
 
 On Air Force One, Carol says we have all seen these "pod people" alien invasion stories and they don't end well. The elephant in the room is why wouldn't the aliens just murder / kill the 13 people. Lock them up in a guided prison cell where they can't escape. You don't hand them bombs and atomic devices on a platter when they ask.
 
