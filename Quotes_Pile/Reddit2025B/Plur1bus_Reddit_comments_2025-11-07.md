@@ -1749,3 +1749,17 @@ After the Zero Hour, I do not recall any depiction that Carol has thought about 
 &nbsp;
 
 EDIT: Even MORE BLUNT: if Carol thought her eggs were a risk, why didn't she write "my eggs" on the white board?
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pss99g/so_who_is_charming_whom_exactly/nvdknr9/
+
+My reply:
+
+> Ok I'm done with this... out of time ok.
+
+Christmas week, many people are busy going here to there. I understand, tit's a hectic high-stress season. And I live in USA under Donald Trump rule, not sure where you live, but it's real harsh year 2025.
+
+>  I will give you Carol asking Zosia to translate into Sanskrit caught my eye because it's a very Holly language. Most don't know that.
+
+The science fiction audience lessons from Luke Skywaker Ranch, published in year 1988, filmed by George Lucas:
+
+"Now, I came to this idea of bliss **because in Sanskrit, which is the great spiritual language of the world**, there are three terms that represent the brink, the jumping-off place to the ocean of transcendence: Sat, Chit, Ananda. The word “Sat” means being. “Chit” means consciousness. “Ananda” means bliss or rapture. I thought, “I don’t know whether my consciousness is proper consciousness or not; I don’t know whether what I know of my being is my proper being or not; but I do know where my rapture is. So let me hang on to rapture, and that will bring me both my consciousness and my being.” I think it worked." - 1988, The Power of Myth
