@@ -1774,3 +1774,23 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1ptdmlk/ok_confused/nvg8jav/
 
 Vince Gilligan's audiences of { Breaking Bad, Better Call Saul } online are such a social media cesspool that admire Musk, Murdoch, Trump as leaders in USA real world that you can't tell if they are misunderstanding, not comprehending, or just mocking and cesspool loving. The February 15, 2025 speech at the WGA seems the only media-woke person in USA 2025.
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1ptdmlk/ok_confused/nvg8m7f/
+
+The media ecology of this show is wild.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1ptdmlk/ok_confused/nvgdl36/
+
+And unlike any time period in history, there are now dozens of chatbots created by billionaires being marketed and promoted / product placement all over social media where you can post every variation of simple question like this posting. People who behave as if one simple question and the first answer is how you get full comprehension to topics. Scripted fiction shows were people become bored with "too much exposition" if lengthy dialog is given.
+
+https://old.reddit.com/r/pluribustv/comments/1pew9dm/8613_mhz_radio_frequency/nsfgay7/
+
+Numeric poetry would be very James Joyce. 11 32
+
+https://old.reddit.com/r/pluribustv/comments/1pew9dm/8613_mhz_radio_frequency/nsjaywe/
+
+Radio model.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pt6h4f/pluribus_season_1_discussion_megathread/nvgoe43/
+
+Downvotes of anything intelligent and organized. Anti-Wiki society, anti-FAQ cesspool social media fandom as Vince Gilligan described at WGA on February 15, 2025.
+
