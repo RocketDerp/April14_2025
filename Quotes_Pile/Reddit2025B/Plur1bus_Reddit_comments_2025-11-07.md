@@ -2216,7 +2216,14 @@ New Mexico, Wind talking, why don't you get a symbolism translator?
 
 "Pluribus' is encoded. It isn't English prose.
 
+
 https://old.reddit.com/r/Pluribus_TVshow/comments/1ptj5kt/latin_pluribus_language_pronouns_carol_all_the/nvkbvyv/
+
+My reply:
+
+> Man, I am trying very hard to understand you. 
+
+Read. The. 1988. book. Stop trying to understand me on Reddit. Book on paper. Carol is a book author, book tour, book writer. Go read book, please, 1988. Not Reddit comments on screen.
 
 https://old.reddit.com/r/Pluribus_TVshow/comments/1ptj5kt/latin_pluribus_language_pronouns_carol_all_the/nvke3uq/
 
@@ -2242,3 +2249,26 @@ there's no simple answer for how *we* might change that. Though, if there were, 
 11:07        
 But I don't know how to make that happen. So, I'll stick to my wheelhouse as
 a writer speaking to a room full of writers. I have a proposal.
+
+&nbsp;
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1ptj5kt/latin_pluribus_language_pronouns_carol_all_the/nvkedgv/
+
+My reply:
+
+> What does this book have to do with the show?
+
+Vince Gilligan explained in February 15, 2025 writers guild speech. Darth Vader in 1988 book!
+ Latin language in 1988 book! Published 1988 book, "The Power of Myth"
+
+Not Reddit comment cesspool. Please, *listen to* Vince Gilligan.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1ptj5kt/latin_pluribus_language_pronouns_carol_all_the/nvkeyj7/
+
+My reply:
+
+> Do you really not understand that you are not making sense?
+
+That's why it is in drawings (symbols) and Latin language. The 1988 book "Power of Myth" explains the eagle symbol / pyramid symbol / Latin meaning. The book is what I keep pointing to. The book makes perfect sense. Sarah Lawrence College professor with White House communications director Bill Moyers. George Lucas filmed it before it was printed in a book on paper.
+
+Reading, on paper, a book from year 1988. It explains the Latin and themes of the Pluribus Apple TV+ show of December 2025.
