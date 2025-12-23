@@ -2610,3 +2610,16 @@ Mind blown Reddit users. They seek adults, cry for ICE and MAGA help from Daddy 
 Adult content of lesbian hot sex too much for you? Better Call Saul and Breaking Bad fandom's don't know their Brandy drinking stories, Carol boozing, pirate *port* drinking!
 
 A Toast to Carol, adults drink, buddy! Carol is a trusted adult. Just don't trust her with weapon systems.  https://www.youtube.com/watch?v=DVx8L7a3MuE
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1ptj5kt/latin_pluribus_language_pronouns_carol_all_the/nvm8n09/
+
+> Explain how it relates to Jesus Christ and not Santa Claus?
+
+1. Jesus isn't real
+
+2. Santa isn't real
+
+3. Pirate Lady isn't real, fiction character like Santa
+
+Fiction storytelling. Carol is a fiction author in Pluribus. A lot of anti-Woke people here.
+
