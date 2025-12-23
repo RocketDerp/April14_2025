@@ -2080,3 +2080,11 @@ The Police car / Northern Lights flashing and Windows / White board non-computer
 The Nuclear Football was on Air Force One, command and control, New Mexico assets. There is a lot here people can't seem to recognize at the symbolic Latin "Pluribus" level.
 
 Merry Christmas, Luke 2:14 ( Koine Greek language ) - outer space pregnancy decoding and VLA signal intelligence of RNA. Hive Mind Policing Cars https://www.youtube.com/watch?v=oaZl12Z5P7g
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1ptj5kt/latin_pluribus_language_pronouns_carol_all_the/nvjy7lz/
+
+A story about plebs in a book store audience to a writer in a book store is lost on Read-It Read-It Reddit users. Escape the social media commenting, read the book, between the lines reading! My reply:
+
+> i just rewrote each sentence in your title, hoping it would make more sense for both of us, to understand.
+
+That's what ChatGPT users do all the time. Very very very popular in December 2025 USA. "ChatGPT, rewrite other people's original writings so it is meaningful just to me"! The magic of Large Language Models and how the Pluribus TV story hive mind all can read and write in any of the world's languages. Bible verse John 1:1 ( originally written in Koine Greek  language ) Christmas Day symbolism of *birth of a language* - John 1:1 season ending of episode 9.  Carol has her new set of magic markers delivered on demand, just in time, to pen new lesbian introductions to John 1:1 storytelling for All of Us, We is Us, Pluribus.
