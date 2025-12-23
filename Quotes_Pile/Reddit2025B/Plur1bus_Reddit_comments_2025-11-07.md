@@ -2426,3 +2426,17 @@ My reply:
 https://old.reddit.com/r/Pluribus_TVshow/comments/1ptj5kt/latin_pluribus_language_pronouns_carol_all_the/nvl1ppl/
 
 Visual images. Television show audience. Apple TV show, Apple iPhone screen audience. Images. Anything to mock printed books on paper and declare the smartphone and streaming television TCP/IP better. 
+
+&nbsp;
+
+https://old.reddit.com/r/Pluribus13/comments/1pshhnf/episode_eight_minute_8_christmas_with_cousin/nvl3p1d/
+
+> A couple concerns: 1. Some Americans, like myself, only watch PBS News... I avoid, as in never watch, Fox or MSNBC. 
+
+That was covered in minute 22 of Pluribus Episode One. Carol takes up smoking for the first time, even if you don't smoke directly, there is a concept of "second hand smoke" and the peer pressure to drink booze (Helen is pressured by Carol to take a  Taxi and booze up with her at the public house).
+
+People are unable to understand these elements of the story about a book author, book publlisher, book tour, and Helen's statement at 
+
+Both women step outdoors and burn the world down. Lady liberty, statue of liberty flames in hand. Helen, being the person who understood the point James Joyce was making in Finn's Hotel year 1923 - fell and cracked her skull like Tim. This flies right over the heads of second screen audiences on Apple iPad / iPhone devices. https://en.wikipedia.org/wiki/Torches_of_Freedom  Easter Sunday, 1929. Helen and Carol and "second hand smoking" of Carol's virgin lungs. March 31, 1929 and how it relates to the season ending with Carol's frozen eggs on ice... and December 24 / December 25 fertilization from an outer-space message. The two ladies smoking, influencers, "second hand smoke" of even PBS being influenced by Rupert Murdoch's Fox News. It's a rich and deep topic, Finn's Hotel year 1923 Dublin writings.
+
+Merry Christmas 2025!
