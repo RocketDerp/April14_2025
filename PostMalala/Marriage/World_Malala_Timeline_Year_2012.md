@@ -217,3 +217,17 @@ HASHTAGS: #Afghanistan #Pakistan #USA #MAGAvalues
 ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. October 8, 2013
 
 <img width="2226" height="732" alt="Screenshot from 2025-12-20 07-08-25" src="https://github.com/user-attachments/assets/f7b69392-2e15-4738-a2fa-d141b14e5033" />
+
+&nbsp;
+
+&nbsp;
+
+# Putin confirms December 2025
+
+December 20, 2013 "Conservative International" values / Taliban values / Epstein values confirmed in late 2025.
+
+Monday, December 22, 2025     
+"Putin praises child marriages, citing Kadyrov family and North Caucasus traditions"     
+https://old.reddit.com/r/nottheonion/comments/1ptc2mc/putin_praises_child_marriages_citing_kadyrov/       
+
+War, murder, rape, killing, conquest, slavery. All can be justified by "tradition".    
