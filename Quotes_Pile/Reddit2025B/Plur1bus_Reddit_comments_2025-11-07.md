@@ -2215,3 +2215,30 @@ New Mexico, Wind talking, why don't you get a symbolism translator?
 &nbsp;
 
 "Pluribus' is encoded. It isn't English prose.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1ptj5kt/latin_pluribus_language_pronouns_carol_all_the/nvkbvyv/
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1ptj5kt/latin_pluribus_language_pronouns_carol_all_the/nvke3uq/
+
+My reply:
+
+> this guy is batshit crazy bro
+
+Merry Christmas. What nasty way to talk about people. Where is your Christmas Spirit this December 23, 2025? Are you looking forward to Episode Nine?
+
+&nbsp;
+
+
+
+Vince Gillian    
+Creator of Pluribus, Breaking Bad, Better Call Saul, X-Files episodes     
+Writers Guild of America    
+February 15, 2025     
+https://youtu.be/TkteSxVIM1A?t=648   
+
+10:48    
+there's no simple answer for how *we* might change that. Though, if there were, I bet it would have something to do with climbing up out of the cesspool that is social media and actually listening to each other
+
+11:07        
+But I don't know how to make that happen. So, I'll stick to my wheelhouse as
+a writer speaking to a room full of writers. I have a proposal.
