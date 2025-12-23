@@ -1865,3 +1865,18 @@ A similar post-doctorate thesis from a professor at University of Toronto:
 
 The entire theme of the show is around the concept of making *one single person not be the most miserable in the world*, Helen's spouse.
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1ptg18u/are_we_ignoring_that_the_government_started_this/nvhfeph/
+
+My message:
+
+> Seriously, why does it feel like people gloss over the fact that our own government caused all of this?
+
+I witness all over the fandom. Just as I witness people ignoring the Air Force One symbolism of Carol assembling command and control defenses (and standing next to the POTUS Seal).
+
+It's very surprising to me how almost nobody brings up a military virus leak story about the USA military doing lab experiments: The Stand by Stephen King. One of the most famous science fiction creators in human history! Especially with all the { book author, book publicist, book tour, book store } opening of the show, Stephen King is a natural connection to the story!
+
+> our own government caused all of this?
+
+Our own New Mexico VLA on the Plains of San Agustin. Further, Vegas location, Fallout Vegas, and **The Stand** with Carol's request for an atomic bomb (made in New Mexico, USA). I mean, The Stand had two different television series and the book too! Do people not get all the ICE bed... Northern Lights flashing away above the bed, police state car Carol drives, USA symbols and signs? Is symbolism [*dead*](https://www.youtube.com/watch?v=mzvk0fWtCs0)? Countdowns on the screen? ***Hello***, Carol? *Jornada del Muerto* **New Mexico** Trinity, Christmas Eve Day ending, [Trinity](https://en.wikipedia.org/wiki/Trinity_(nuclear_test)?
+
+Did nobody hear the [microphone taps / tapping](https://mymythos.org/archetype/microphone/) at minute 22 Zero Hour, is this microphone working? Hello, Anyone?
