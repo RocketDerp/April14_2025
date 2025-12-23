@@ -2699,7 +2699,7 @@ Are you the hive mind commanding Carol? Or is Carol commanding the hive mind? Wh
 
 I don't know how to be more clear to you about your hive mind issues here with Reddit hive mind. This r /  psychology link might help you with understanding people who can't relate to video games / touch Apple iPhone / Apple iPad devices and reality of fiction vs. non-fiction influences:
 
-https://old.reddit.com/r/psychology/comments/181smu/is_the_reddit_hive_mind_wrong_about_video_games/
+LINK: https://old.reddit.com/r/psychology/comments/181smu/is_the_reddit_hive_mind_wrong_about_video_games/
 
 &nbsp;
 
