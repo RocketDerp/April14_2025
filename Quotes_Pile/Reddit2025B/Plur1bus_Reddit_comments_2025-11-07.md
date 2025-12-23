@@ -1794,3 +1794,19 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pt6h4f/pluribus_season_1_disc
 
 Downvotes of anything intelligent and organized. Anti-Wiki society, anti-FAQ cesspool social media fandom as Vince Gilligan described at WGA on February 15, 2025.
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pt801g/what_happened_to_evil/nvfsnjg/
+
+When I made a Reddit posting with a lecture quote on this very topi. People are very afraid on cesspool (WGA Vince Gilligan February 15, 2025) social media to quote facts and cite sources. https://old.reddit.com/r/Pluribus_TVshow/comments/1pkc2sq/episode_6_titled_hdp_carol_says_pluck_hdp_helen/ "One vows not to eat anything that has life in it — that is to say even an apple that has been picked from a tree. You eat only dead things." - Joseph Campbell, Sarah Lawrence College for women, Cooper Union; February 20, 1961
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pt801g/what_happened_to_evil/nvgdsp7/
+
+My reply:
+
+> No human being would starve to death rather than pick an apple from a tree.
+
+सल्लेखना / sallekhanā https://en.wikipedia.org/wiki/Sallekhana (Wiki Hive Mind of Pluribus)
+
+"It is the religious practice of voluntarily fasting to death by gradually reducing the intake of food and liquids." ... "It is not considered a suicide by Jain scholars because it is not an act of passion, nor does it employ poisons or weapons." ... "Historic evidence such as nishidhi engravings suggest sallekhana was observed by both men and women, including queens, in Jain history."
+
+Merry Christmas.
+
