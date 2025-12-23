@@ -1939,3 +1939,51 @@ Does nobody here read science fiction books like Carol writes? X - Files, Dana S
 https://old.reddit.com/r/Pluribus_TVshow/comments/1ptj5kt/latin_pluribus_language_pronouns_carol_all_the/nvjbcw5/
 
 <img width="1746" height="1098" alt="image" src="https://github.com/user-attachments/assets/99c5562a-f7fd-463a-92d7-ce57fd32dadf" /> All at the same time (within seconds), Reddit notified me I got 3 downvoted comments and this reply. Christmas time USA downvoting of women from Breaking Bad / Better Call Saul fandom. A tiny-short low-effort reply comment message and 3 downvotes from a social media user. Anna Gunn's experience with the Breaking Bad fandom: https://www.vulture.com/2018/07/breaking-bads-anna-gunn-looks-back-on-bizarre-fan-hate.html I also notice / observe that Vince Gilligan has really made { book store, book authoring, book publishing, book arrangement at the airport, books } a core focus for the Pluribus story opening of the story. But social media audiences flee and downvote aggressively with low-effort commenting when you quote a 1988 book. Visual / Breaking Bad anti-book fandom?
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1ptj5kt/latin_pluribus_language_pronouns_carol_all_the/nvjm6cd/
+
+Every reply to this Reddit user gets instant downvoted at the same time they reply back. Even bigger guns and bluntness in my reply to them:
+
+> How does it relate to that? 
+
+WOW, a very fast reply! Oh Boy, I get downvotes every time I comment to you. The timing is being measured by some software I use on another off-Reddit platform.
+
+Whenever women's right issues get brought up in *Breaking Bad* fandoms, some really odd behavior happens with media audiences.  https://www.vulture.com/2018/07/breaking-bads-anna-gunn-looks-back-on-bizarre-fan-hate.html
+
+> You aren't really making a case for anything directly, just posting a bunch of sources. 
+
+"making the case"  about the Founding Fathers of the United States of America and their specific use of Latin language. It's right in the titel of my posting?
+
+What don't you comprehend or understand?
+
+Do you think people use Latin on social media regularly, that the Constitution or Deceleration of Independence was authored in Latin language?
+
+I just don't garsp why you are giving me these low-effort comment replies?
+
+> Joseph Campbell, womens right to vote, you are not connecting any of these in a way I understand.
+
+ICE, MAGA, abortion rights? Year 1776 value of men and women not having the right to vote, but having an *ideal* of [Novus ordo seclorum](https://en.wikipedia.org/wiki/Novus_ordo_seclorum) - hive mind proposal from year 1776 USA foundations... in contrast to the established **old world order** of Mecca / year 635 Mohammad?
+
+I really suggest you read the entire book for science fiction fandoms to better comprehend the depth of these issues.
+
+&nbsp;
+
+# Carol, American independent from Hive Mind
+
+&nbsp;
+
+* "America's independence, with the most prominent often cited as George Washington, John Adams, Thomas Jefferson, James Madison, Alexander Hamilton, Benjamin Franklin, and John Jay, though the group can also include others like Samuel Adams and Patrick Henry, who signed key documents like the Declaration of Independence and Constitution, and led the nation's formation."
+
+&nbsp;
+
+The Old World Order with a book pen and her white board in hand against year 635 Mecca / Mohammad's "Old World Order" left behind on the other side of the Atlantic ocean in year 1776.
+
+&nbsp;
+
+Hello, Carol! New World, Hello World! The ideals in Latin phrases, foundations. "“We felt like the Taliban saw us as like little dolls to control, telling us what to do and how to dress. I thought if God wanted us to be like that He would not have made us all different.” ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban
+
+Carol is the authoring of an American revolution against the Pluribus interpretations. She is a Lady Pirate. I really suggest you read the book from 1988 that George Lucas created for education to science fiction fandoms.
+
+&nbsp;
+
+Merry Christmas. Love to All. Luke 2:14  Skywalkers, *may the force* be with you All!
