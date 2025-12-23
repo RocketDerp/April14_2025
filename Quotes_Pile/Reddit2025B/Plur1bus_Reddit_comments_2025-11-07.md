@@ -2493,3 +2493,21 @@ Given this show ends on December 24 / December 25 and is about a woman who is go
 
 Again, do you consider The Bible fiction or non-fiction storytelling? As a lot of Americans seem incredibly confused on this comprehension / understanding of literacy / book reading. Many (age 21 and over) people in USA think Santa is science fiction, yet can't see the *influence of Santa storytelling* on society behavior.
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1ptj5kt/latin_pluribus_language_pronouns_carol_all_the/nvlwbeh/
+
+ <img width="1276" height="1412" alt="image" src="https://github.com/user-attachments/assets/d5ad9a4f-3cdd-4181-ae24-b44a62f252a1" />
+Oh, Breaking Bad Mr. White teacher students fandom / Better Call Saul lawyer fandom can't keep their booze (like Carol) and drugs (Meth Mr. White) and holiday drinking projection off other **cesspool social media** (Vince Gilligan; February 15, 2025 WGA) PUBLIC messages away. My reply:
+
+> I mean this with all sincerity and compassion: you need to talk to a doctor. You are showing extreme shizophrenia symptons in your comment history and need help from someone
+
+Why didn't you message this in private, do you go up to strangers you find obese on the street and tell them to go see a doctor? To show you their prescriptions and interrogate them?
+
+Do you know me in person?
+
+Are mentally unwell people not allowed to create content on Reddit? Do you work for the government, European Union, or something?
+
+https://old.reddit.com/r/Pluribus13/comments/1pshhnf/episode_eight_minute_8_christmas_with_cousin/nvlw290/
+
+My reply, short, since didn't like the longer one they replied to:
+
+What did you do { NSA agent } you said you were. MAGA USA 2025? What did you do to USA?
