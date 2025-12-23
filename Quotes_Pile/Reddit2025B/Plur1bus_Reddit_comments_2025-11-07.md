@@ -2623,3 +2623,18 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1ptj5kt/latin_pluribus_languag
 
 Fiction storytelling. Carol is a fiction author in Pluribus. A lot of anti-Woke people here.
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1ptj5kt/latin_pluribus_language_pronouns_carol_all_the/nvmacby/
+
+Circle around ABQ in my reply:
+
+> Jesus is real. 
+
+I believe *you* believe that.
+
+I live in the United States of America. My wife lived  / grew up in New Mexico. Ruidoso and Farmington. Amazing what she believed about Jesus too. 
+
+We got a lot of magic believers out there. Who can't tell Pirate Lady is Fiction construct of a book author. Jesus Christ, Christmas.
+
+> Literally most documented person on earth
+
+Literally most printed science fiction *literature* outer-space "who is the father", Carol? story.
