@@ -2435,7 +2435,7 @@ https://old.reddit.com/r/Pluribus13/comments/1pshhnf/episode_eight_minute_8_chri
 
 That was covered in minute 22 of Pluribus Episode One. Carol takes up smoking for the first time, even if you don't smoke directly, there is a concept of "second hand smoke" and the peer pressure to drink booze (Helen is pressured by Carol to take a  Taxi and booze up with her at the public house).
 
-People are unable to understand these elements of the story about a book author, book publlisher, book tour, and Helen's statement at 
+People are unable to understand these elements of the story about a book author, book publisher, book tour, and Helen's statement at the Zero Hour countdown.
 
 Both women step outdoors and burn the world down. Lady liberty, statue of liberty flames in hand. Helen, being the person who understood the point James Joyce was making in Finn's Hotel year 1923 - fell and cracked her skull like Tim. This flies right over the heads of second screen audiences on Apple iPad / iPhone devices. https://en.wikipedia.org/wiki/Torches_of_Freedom  Easter Sunday, 1929. Helen and Carol and "second hand smoking" of Carol's virgin lungs. March 31, 1929 and how it relates to the season ending with Carol's frozen eggs on ice... and December 24 / December 25 fertilization from an outer-space message. The two ladies smoking, influencers, "second hand smoke" of even PBS being influenced by Rupert Murdoch's Fox News. It's a rich and deep topic, Finn's Hotel year 1923 Dublin writings.
 
