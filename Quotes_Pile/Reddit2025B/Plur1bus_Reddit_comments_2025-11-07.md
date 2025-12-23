@@ -2272,3 +2272,44 @@ My reply:
 That's why it is in drawings (symbols) and Latin language. The 1988 book "Power of Myth" explains the eagle symbol / pyramid symbol / Latin meaning. The book is what I keep pointing to. The book makes perfect sense. Sarah Lawrence College professor with White House communications director Bill Moyers. George Lucas filmed it before it was printed in a book on paper.
 
 Reading, on paper, a book from year 1988. It explains the Latin and themes of the Pluribus Apple TV+ show of December 2025.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1ptj5kt/latin_pluribus_language_pronouns_carol_all_the/nvkgzbs/
+
+My reply:
+
+> damn we got pluribus schizoposting now?
+
+
+
+To be fair, Helen at minute [22](https://science.nasa.gov/exoplanet-catalog/kepler-22b/) of Episode One said that in graduate school she struggled with James Joyce's book. The on-screen clock-[watch](https://old.reddit.com/r/interstellar/comments/10kz6kt/recently_acquired_the_murph_watch_a_daily/) upsidedownside counting timers at the Zero Hour in the [bar](https://youtu.be/5XcKBmdfpWs?t=88) until [smoke](https://youtu.be/5XcKBmdfpWs?t=33) outside breaks, 78 seconds single-stranded 'NA, are a Skeleton Key. The Pluribus TV viewer has to put down the [iPhone second screen](https://www.theguardian.com/tv-and-radio/2025/jan/17/not-second-screen-enough-is-netflix-deliberately-dumbing-down-tv-so-people-can-watch-while-scrolling) to have a very high reading comprehension to understand this ApplePlus show. The Apps humor is extremely subtle, and without a solid grasp of [theoretical physics / quantum mechanics](http://www.concentric-literature.url.tw/issues/Idealism/7.pdf) most of the j[ok](https://www.youtube.com/watch?v=xS_GtwrPBWg)es will go over a typical reader's head. There's also Helen's nihilistic death-rattle outlook, which is deftly woven into their marriage characterisation - their personal philosophy draws heavily from { Twilight Zone, Ice Station Zebra, and Golden Girls } media assortments; [four instances](https://old.reddit.com/r/IrishHistory/comments/btisnn/collected_book_of_the_four_irish_mythological/). Like Rick in *Rick and Morty*, to understand Carol, you need to drink heavily, like Joyce. The /r/TrueLit fans understand this stuff; they have the intellectual capacity to truly appreciate the [depths](https://en.wikipedia.org/wiki/Out_of_Many,_One:_Portraits_of_America%27s_Immigrants) of these overloaded puns. Most won't even have the spare time to delve too greedily and too deep to awaken from the night hours of Dublin... to realize that Joyce's writings are not [just *funny-odd* - they say something deep about LIFE](https://www.goodreads.com/quotes/504662-my-sweet-little-whorish-nora-i-did-as-you-told). This is deep [space](https://youtu.be/K1b8AhIsSYQ?t=35) shit, not for cosmos cowards! As a consequence people who dislike The Founding Fathers [proposed democratic socialism hive](https://en.wikipedia.org/wiki/E_pluribus_unum) mind concepts truly ARE [*Global Village Idiots*](https://www.youtube.com/watch?v=2JIj0Bqbdhk) - of course they wouldn't appreciate, for instance, the humour in peer art of Rick's existencial catchphrase "Wubba Lubba Dub Dub," *Dublin* stuttering... which itself is a [cryptic reference](https://www.youtube.com/watch?v=TV3vT5nW_I4) to Joyce's Irish epic Finn's Hotel. Many think that Joyce's far-out metaphors are not in the [habitable zone](https://old.reddit.com/r/nasa/comments/dvy8cs/is_kepler_22b_habitable/). Maybe special-K22 is [beyond too many asleep](https://www.youtube.com/watch?v=k_JnCWT-_O8) fans.  The show creators are smirking right now just imagining one of those addlepated simpletons scratching their heads in confusion as Vince Gilligans's island genius ["Word Copy Pasta Salads"](https://www.goodreads.com/quotes/96477-schizophrenia-may-be-a-necessary-consequence-of-literacy-p-32) processing of Joyce's writing [unfolds itself](https://www.wired.com/2011/07/pollock-physics/) on their touch screens. Fractal iterative storytelling; [Daft Punks afraid of Kepler-22b virtue-signaling](https://www.youtube.com/watch?v=ZbbTmR6Xaag); Wiki system nets and RNA decoding will at least learn some  Elvis appreciation. What pirate [ships of fools](https://youtu.be/K1b8AhIsSYQ?t=187)... how I pity them. 😂 Only a /r/TrueReddit user can understand the music started before the smoke breaking, that Helen fell off Carol's { [barstool, TV news](https://www.youtube.com/watch?v=5XcKBmdfpWs), ladder, waggon, touring }. I can't say it enough: you have to get [bomb](https://en.wikipedia.org/wiki/Hand_Grenade_\(cocktail\))ed like Carol's drinking to get this show! And, yes, by the way, I DO have a Jean Erdman animated [dancing tattoo](https://old.reddit.com/r/reddit.com/comments/65iby/futurama_benders_big_score_tattoo_binary_code/). And no, you cannot see it (private parts, part of a work in progress, not yet published). [Dancing coach](https://www.youtube.com/watch?v=WoiJVkdDbOo), on the booze bottles, how drunk for that tattoo? It's special reserve for the [ladies' eyes](https://theinfosphere.org/images/cache/5/5e/Amy%2527s_Obscene_Tattoo.html) only - And even *they* have to demonstrate that they're within 5 DUI license points of my own (preferably higher BAC) beforehand.
+
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+
+&nbsp;
+
+&nbsp;
+
+
+&nbsp;
+
+&nbsp;
+
+
+&nbsp;
+
+&nbsp;
+
+
+“The difference between the man of print and the man of scribal culture is nearly as great as that between the non-literate and the literate.”
+― Marshall McLuhan, The Gutenbery Galaxy
+
+https://www.goodreads.com/quotes/96477-schizophrenia-may-be-a-necessary-consequence-of-literacy-p-32
+
