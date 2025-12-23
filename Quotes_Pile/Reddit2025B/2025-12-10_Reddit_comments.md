@@ -827,3 +827,7 @@ https://old.reddit.com/r/worldnews/comments/1pt2y6d/to_make_greenland_a_part_of_
 
 <img width="858" height="342" alt="image" src="https://github.com/user-attachments/assets/3a2dcd23-0a67-4ee6-9c6e-7ed15a7ae589" />
 This is why University of Toronto's Marshall McLuhan media study on Finnegans Wake iteration (page 628) is so critical. Surkov cracked the monomyth around year 2011. Surkov Governing is loops and loops. Wake Waves go up and down, Finn Wakes media waves. { https://bsky.app/profile/roundsparrow.bsky.social/post/3mam5lahngs2z https://autistics.life/@RoundSparrow/115765277604666544 }
+
+https://old.reddit.com/r/whatisit/comments/1ptg96e/my_husband_receives_this_every_year_as_a/nvh4kv5/
+
+Yes. That's what animals do on our home planet, Earth. They smell food gifts to gather information before putting it into their mouth.
