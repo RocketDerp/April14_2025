@@ -2471,7 +2471,7 @@ P.S. Star Wars Day, May 4  - is referenced by Helen at the Zero Hour countdown w
 
 https://old.reddit.com/r/Pluribus13/comments/1pshhnf/episode_eight_minute_8_christmas_with_cousin/nvlijoc/
 
-Oh, an NSA intelligence agent hand-waving away Russia topics (USA National Security Agency employee, discussing Russian Internet Research Agency year 2013, **IRA and NRA** (clearly the names are Russian intentional associations) topic mixed on Reddit in previous message thread context).
+Oh, an NSA intelligence agent hand-waving away Russia topics (USA National Security Agency employee, discussing Russian Internet Research Agency year 2013, **IRA and NSA** (clearly the names are Russian intentional associations) topic mixed on Reddit in previous message thread context).
 
 I didn't want to make the interrogation quiz too long, so **I left out "5. Do you consider Hans Christian Andersen's 1838 story The Storks about baby conception** to be fiction or non-fiction?". Anyway, my reply:: 
 
