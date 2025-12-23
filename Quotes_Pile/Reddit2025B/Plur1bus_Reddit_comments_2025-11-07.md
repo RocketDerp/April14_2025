@@ -1769,3 +1769,8 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pt3nw5/s1e9_and_complications
 >  For watch enthusiasts “complications“ are any mechanical function beyond simple time telling.
 
 One button simplicity, relationships with over 7 billion people is very complicated. Christmas Eve [birthing complications](https://en.wikipedia.org/wiki/Lady_Day) time storytelling. Kepler Christmas Star messengers and avatars with complex special delivery postings.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1ptdmlk/ok_confused/nvg8jav/
+
+Vince Gilligan's audiences of { Breaking Bad, Better Call Saul } online are such a social media cesspool that admire Musk, Murdoch, Trump as leaders in USA real world that you can't tell if they are misunderstanding, not comprehending, or just mocking and cesspool loving. The February 15, 2025 speech at the WGA seems the only media-woke person in USA 2025.
+
