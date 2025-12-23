@@ -2680,3 +2680,27 @@ what mental breakdown? I'm doing deconstruction breakdown of the Pluribus Apple 
 Do you think Jesus is real? Do you hear Christmas Jesus speaking to you? You a big "fan" of Jesus stories?
 
 People around me in **MAGA United States of America December 2025** think Jesus voices come from Charlie Kirk and his wife! We got serious literacy problems / book reading issues with The Bible this time of year in USA!
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1ptj5kt/latin_pluribus_language_pronouns_carol_all_the/nvmejxh/
+
+Donald Trump America, USA. MAGA land USA. Where people think Truth Social is sincere and RFK Jr is a qualified expert on autism (and Tylenol drug being cause in year 2025). Marshall McLuhan "mass man" lost on Reddit audience of Walter White fandom here. My reply:
+
+> No you just keep throwing stuff in there. Stop throwing in links. Stop referencing things.
+
+Are you the hive mind commanding Carol? Or is Carol commanding the hive mind? Why are you directing me like I work for you?
+
+> Please for a moment think critically, please please please.
+
+1. You can't tell satire
+
+2. You can't tell sarcasm
+
+3. You have a problem believing the Internet is reality and people on Reddit are sincere and honest.
+
+I don't know how to be more clear to you about your hive mind issues here with Reddit hive mind. This r /  psychology link might help you with understanding people who can't relate to video games / touch Apple iPhone / Apple iPad devices and reality of fiction vs. non-fiction influences:
+
+https://old.reddit.com/r/psychology/comments/181smu/is_the_reddit_hive_mind_wrong_about_video_games/
+
+&nbsp;
+
+Episode 9 is coming out Christmas Eve! This is a thrilling time in media storytelling!
