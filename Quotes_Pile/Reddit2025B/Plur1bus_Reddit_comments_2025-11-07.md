@@ -2422,3 +2422,7 @@ My reply:
 2. Rupert Murdoch media systems
 
 3. Elon Musk Twitter social
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1ptj5kt/latin_pluribus_language_pronouns_carol_all_the/nvl1ppl/
+
+Visual images. Television show audience. Apple TV show, Apple iPhone screen audience. Images. Anything to mock printed books on paper and declare the smartphone and streaming television TCP/IP better. 
