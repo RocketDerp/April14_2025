@@ -92,7 +92,7 @@ This is a REAL woman with a REAL peace prize. Not ["FIFA peace prize" sports-men
 
 Malala even came to USA    
 Malala for the FIRST TIME in her life, went into a Christian Church and spoke. In the USA.    
-375,759 views  September 4, 2017
+375,759 views  September 4, 2017      
 https://youtu.be/okGlFU3YW_k?t=528        
 
 &nbsp;
