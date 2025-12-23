@@ -2479,12 +2479,15 @@ We are dealing with "Pluribus", a fiction story published on Apple TV+ and clear
 
 When I see a response like this from a Reddit cloud computing user, I tend to quiz their intelligence about science fiction storytelling influence on society. It helps a lot to establish the meaning of English wordchoice.
 
-1. Saturday October 7, 2023 - Palestine terrorism day. Do you know this is Putin's birthday? or not? (I've lived in Palestine lands in Jordan for the Arab Spring after relocation from Africa before)
+1. Saturday October 7, 2023 - Palestine Quran terrorism day. Do you know this is Putin's birthday? or not? (I've lived in Palestine lands in Jordan for the Arab Spring after relocation from Africa before)
 
 2. Do you believe the Bible is non-fiction or fiction storytelling? 
 
 3. Do you consider "Truth Social" media network to be fiction or non-fiction?
 
-Given this show ends on December 24 / December 25 and is about a woman who is going to produce a child (frozen eggs / stem cells) without having a male impregnating here. We are deep into particular kind of baby-conception storytelling.
+4. Do you consider Santa Claus to be a fiction or non-fiction story?
 
-Again, do you consider The Bible fiction or non-fiction storytelling? As a lot of Americans seem incredibly confused on this comprehension / understanding of literacy / book reading.
+Given this show ends on December 24 / December 25 and is about a woman who is going to produce a child (frozen eggs / stem cells) without having a male impregnating *her*. We are deep into a particular kind of baby-conception storytelling.
+
+Again, do you consider The Bible fiction or non-fiction storytelling? As a lot of Americans seem incredibly confused on this comprehension / understanding of literacy / book reading. Many (age 21 and over) people in USA think Santa is science fiction, yet can't see the *influence of Santa storytelling* on society behavior.
+
