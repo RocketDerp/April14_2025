@@ -1483,3 +1483,20 @@ Reviewing the YouTube videos and fast food culture / *You Tube / Hollywood / Hot
 December 22, 2025 15,871 views     
 https://www.youtube.com/watch?v=IVMOqir_q0I     
 "What's the Point?"     
+
+&nbsp;
+
+# Year end 2025 - Reality Artificial 
+
+Front page of Reddit:    
+https://old.reddit.com/r/notinteresting/comments/1pu167j/got_downvoted_because_my_english_sounded_like_ai/
+
+Media ecology lessons:
+
+1. The ELIZA effect https://en.wikipedia.org/wiki/ELIZA_effect MIT University, 1960's. I have been educated on this topic since I put ELIZA app on my Commodore 128 computer running CP/M operating system. Year 1985. I put it on social media and was amazed how many people blow their minds on computer screens and can't tell real humans in 1985, let alone now in December 2025!
+
+2. The Turing Test. If a person or computer is on the other end of a message system like Reddit or Bluesky or SMS text messages on a phone: https://en.wikipedia.org/wiki/Turing_test
+
+&nbsp;
+
+Real human people can no longer tell A.I. from reality / human persons. Breakdown of society in year 2024 and year 2025, getting worse in USA every day. Billionaires funding extremely powerful media messaging systems like ChatGPT / GrokAI / etc.
