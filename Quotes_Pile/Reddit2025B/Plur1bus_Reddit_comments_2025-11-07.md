@@ -2468,3 +2468,23 @@ Virus outbreak story, military lab, measles. Even on Star Wars Day, May 4 year 2
 &nbsp;
 
 P.S. Star Wars Day, May 4  - is referenced by Helen at the Zero Hour countdown when speaking to Carol. Inceptions abound. Vince Gilligan mentioned Darth Vader on February 15, 2025 speech. Science Fiction Outer Space messages.
+
+https://old.reddit.com/r/Pluribus13/comments/1pshhnf/episode_eight_minute_8_christmas_with_cousin/nvlijoc/
+
+My reply to an NSA agent (USA National Security Agency employee, discussing Russian Internet Research Agency year 2013, **IRA and NRA** (clearly the names are Russian intentional associations) topic mixed on Reddit in previous message thread context): 
+
+> Sorry not biting the conspiracy tale
+
+We are dealing with "Pluribus", a fiction story published on Apple TV+ and clearly labeled as science fiction.
+
+When I see a response like this from a Reddit cloud computing user, I tend to quiz their intelligence about science fiction storytelling influence on society. It helps a lot to establish the meaning of English wordchoice.
+
+1. Saturday October 7, 2023 - Palestine terrorism day. Do you know this is Putin's birthday? or not? (I've lived in Palestine lands in Jordan for the Arab Spring after relocation from Africa before)
+
+2. Do you believe the Bible is non-fiction or fiction storytelling? 
+
+3. Do you consider "Truth Social" media network to be fiction or non-fiction?
+
+Given this show ends on December 24 / December 25 and is about a woman who is going to produce a child (frozen eggs / stem cells) without having a male impregnating here. We are deep into particular kind of baby-conception storytelling.
+
+Again, do you consider The Bible fiction or non-fiction storytelling? As a lot of Americans seem incredibly confused on this comprehension / understanding of literacy / book reading.
