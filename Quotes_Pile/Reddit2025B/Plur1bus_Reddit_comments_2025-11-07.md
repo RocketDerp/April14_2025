@@ -2406,7 +2406,7 @@ Learning and education about media systems drives a lot of conflicts. Fox News A
 "Downvote-disagree" hive mind behaviors. Piling on down votes because television show audiences don't like book stores and book reading (Carol and Helen). On space topics, outer-space such as Kepler 22B VLA New Mexico, it has been discussed here on Reddit.
 
 "I wanted to downvote/disagree, but you are correct. It also helps to have a large influx of foreigners who are willing to do just about any job."       
-https://old.reddit.com/r/space/comments/df79r/dubais_palm_islands_and_world_islands_palm_jebel/c0zsz9k/      
+LINK: https://old.reddit.com/r/space/comments/df79r/dubais_palm_islands_and_world_islands_palm_jebel/c0zsz9k/      
 Friday, September 17, 2010    
 
 A long-standing concern.
