@@ -2372,3 +2372,13 @@ This is not a "ELI3", "ELI5" story. Vince Gilligan and his writing staff made th
 &nbsp;
 
 "Then it becomes a set of theological works in which everything is reduced to a code, to a creed." - 1988 book "Power of Myth" describing the Pluribus hive mind behaviors, story points of season one of this Apple TV+ show.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1ptj5kt/latin_pluribus_language_pronouns_carol_all_the/nvkrvdc/
+
+My reply:
+
+> Dumb each sentence down ELI5 PLEASE?
+
+There. Was. a Book. Published. In 1988. That Explains Latin "Pluribus" meaning.
+
+ELI5: Book on paper, year 1988. Deep!
