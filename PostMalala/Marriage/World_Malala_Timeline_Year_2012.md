@@ -230,4 +230,4 @@ Monday, December 22, 2025
 "Putin praises child marriages, citing Kadyrov family and North Caucasus traditions"     
 https://old.reddit.com/r/nottheonion/comments/1ptc2mc/putin_praises_child_marriages_citing_kadyrov/       
 
-War, murder, rape, killing, conquest, slavery. All can be justified by "tradition".    
+War, murder, rape, killing, conquest, slavery, [Russian disease spreading](https://www.bbc.com/news/world-us-canada-45294192). All can be justified by "tradition".    
