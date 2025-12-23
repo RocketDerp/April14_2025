@@ -2411,3 +2411,14 @@ Friday, September 17, 2010
 
 A long-standing concern.
 
+https://old.reddit.com/r/Pluribus13/comments/1pshhnf/episode_eight_minute_8_christmas_with_cousin/nvky4x6/
+
+My reply:
+
+> Btw, who in this structure decides what is knowledge or not?
+
+1. Truth Social
+
+2. Rupert Murdoch media systems
+
+3. Elon Musk Twitter social
