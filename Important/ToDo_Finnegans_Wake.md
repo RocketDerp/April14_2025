@@ -614,3 +614,9 @@ https://old.reddit.com/r/todayilearned/comments/1ps9w18/til_that_the_achoo_sound
 
 My father's birthplace, city by same name in Georgia is my birthplace, deep south. North vs. South. ICE in Springfield Ohio pet eating.Springfield Simpsons Everywhere. Dublin Everywhere.  Columbus historic changer of Americas into Spanish-speaking language (Wake Language) and Roman Catholic (Mexico). Both spoken and written changed, both religion and language changed, year 1492 fame for exporting Levant misunderstandings in conquest against "1 John 4:20" Bible verse. Joyce is all about the Pope Pop Culture. Christmas 2025 Columbus Ohio, Jesus was an Immigrant. And Jesus was an alien from outer space (Pluribus TV fertilization metaphors abound). This is the Christmas spirit, ICE snow falling / fallout.           
 https://old.reddit.com/r/CringeTikToks/comments/1ps84bt/community_members_make_noise_outside_a_hotel/
+
+&nbsp;
+
+https://old.reddit.com/r/CuratedTumblr/comments/1ptfe7k/in_case_anyone_is_wondering_panini_is_for/
+
+James Joyce was banned in USA with his English language book. Finn's Hotel 1923 and Finnegans Wake were heavily encrypted, even more than { Quran and Bible } encryption to bypass censors.
