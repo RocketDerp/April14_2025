@@ -1993,3 +1993,42 @@ ______
 4 accounts have downvoted now. (my +1 self-vote removed in that math)  
 <img width="2436" height="292" alt="image" src="https://github.com/user-attachments/assets/64404125-bd0a-4c7b-aa2f-2be40b330567" />
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1ptj5kt/latin_pluribus_language_pronouns_carol_all_the/nvjtkcx/
+
+Low-effort Breaking Bad fandom comments against women. My reply message:
+
+> Oh, of course. that's so obvious in hindsight. The pronouns mean... all of that.
+
+MAGA USA 2025. Cult of ignorance USA ICE 2025.
+
+Science fiction show Pluribus about stars and New Mexico. Carol driving around in a police car. Air Force One meeting table. Nuclear football.
+
+I really think people can't *read between the lines* of the Great Seal of the United States of America anymore. Audiences just can't fathom the depths of reading symbolic storytelling / reading between the drawings and lines.
+
+&nbsp;
+
+Science Fiction X-Files    
+Science Fiction Pluribus Apple TV+    
+Book author of science fiction, Asimov.     
+Book tour opening of a TV Pilot in a book store.   
+*Reading between the lines*    
+
+SOURCE LINK: https://old.reddit.com/r/quotes/comments/1g3xhzf/there_is_a_cult_of_ignorance_in_the_united_states/
+
+"Asimov really hit the nail on the head! It's like some people took "knowledge is power" as a personal challenge to stay powerless. Democracy" - Monday, October 14, 2024. Reddit
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1ptj5kt/latin_pluribus_language_pronouns_carol_all_the/nvjt9vs/
+
+> I’ve read this entire post and every one of your comments and I have zero clue 
+
+1. Pluribus Episode One, Pilot Episode opening: **Book Store**
+
+2. Pluribus story: Book tour, book authors, book writing
+
+> Can you try explaining your reasoning in a different way? I
+
+Please, stop commenting on electric media , please *Go read a book* from 1988: https://en.wikipedia.org/wiki/Joseph_Campbell_and_the_Power_of_Myth
+
+&nbsp;
+
+I don't know how to possibly be more clear that Pluribus story is telling you to read specific books. Darth Vader was specifically mentioned by Vince Gilligan in his public statements to *writers* on February 15, 2025.
