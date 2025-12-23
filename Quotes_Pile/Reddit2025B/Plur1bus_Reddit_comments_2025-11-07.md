@@ -2336,3 +2336,39 @@ There are a lot of "Second Screen Audiences" https://www.theguardian.com/tv-and-
 https://old.reddit.com/r/okbuddypluribus/comments/1pty2uq/this_post_oh/nvkmru6/
 
 My comment. To the organized audience, subreddit community, of anti-lesbian "pronoun" USA 2025 pro-MAGA society promoters.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1ptj5kt/latin_pluribus_language_pronouns_carol_all_the/nvksszx/
+
+Reading a book isn't the same as taking a book seriously or comprehending or understanding. Like MAGA USA December 2025 who celebrates The Bible book for Christmas while cheering on { Rupert Murdoch, Elon Musk, Donald Trump } billionaires. They wave around and celebrate Jesus the character from a science fiction book without reading or comprehending Bible page "1 John 3:17" about D.O.G.E. cutting of helping poor people by the rich billionaires. The anti-comprehension anti-understanding of MAGA USA Fox News fandom nation. My reply:
+
+> I've read the book and I don't understand
+
+I've read the book since I got it in year 1988, at least a dozen times. The TV show Pluribus is all called out in the book. Vince Gilligan on February 15, 2025 mentioned "Darth Vader" in his writers guild speech.
+
+&nbsp;
+
+> I've read the book and I don't understand
+
+"The fact that the evil power is not identified with any specific nation on this earth means you’ve got an abstract power, which represents a principle, not a specific historical situation. The story has to do with an operation of principles, not of this nation against that. The monster masks that are put on people in Star Wars represent the real monster force in the modern world. When the mask of Darth Vader is removed, you see an unformed man, one who has not developed as a human individual. What you see is a strange and pitiful sort of undifferentiated face." - Skywaker Ranch, California. 1988 book "Power of Myth"
+
+&nbsp;
+
+"The monster masks that are put on people in Star Wars represent the real monster force in the modern world" - the *pronoun* mask (and anti-pronoun masks) people put ion with "Pirate Lady" / "Pirate Man" represents the real monster force in the modern USA nation.
+
+&nbsp;
+
+"Darth Vader has not developed his own humanity. He’s a robot. He’s a bureaucrat, living not in terms of himself but in terms of an imposed system. This is the threat to our lives that we all face today. Is the system going to flatten you out " - George Lucas filming lessons for science fiction fandoms, published in the book "Power of Myth" 1988
+
+&nbsp;
+
+"in terms of an imposed system. This is the threat to our lives that we all face today." - that is what Carol is facing to the hive mind. A alien system imposed about ABQ, with an enemy Pirate Lady facing her as we approach Episode Nine on Christmas Eve / Christmas Day.
+
+The "It", "He", "She" Latin of Christmas Day forces and the assertion of American New Mexico independence against the imposing hive mind.
+
+> Can you answer in like 5 words?
+
+This is not a "ELI3", "ELI5" story. Vince Gilligan and his writing staff made this clear with minute 22 of Episode One (the Pluribus Pilot) and dialog about Finnegans Wake. That scene between Helen and Carol is also in the 1988 book. Helen and Carol discuss writing for "the plebs" fandom and doing reveals on social media before Helen falls backwards an dies (hitting her head).
+
+&nbsp;
+
+"Then it becomes a set of theological works in which everything is reduced to a code, to a creed." - 1988 book "Power of Myth" describing the Pluribus hive mind behaviors, story points of season one of this Apple TV+ show.
