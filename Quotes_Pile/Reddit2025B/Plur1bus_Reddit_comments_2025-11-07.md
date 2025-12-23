@@ -2648,3 +2648,23 @@ my Christmas week reply message:
 Most documented science fiction *character* in a story, maybe, and I don't agree with that.
 
 Allah / Yahweh / "The Word" (John 1:1 meme metaphors) of creativity is most documented science fiction character, maybe. But the Upanishads give that a run for the money.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1ptj5kt/latin_pluribus_language_pronouns_carol_all_the/nvmbz00/
+
+My reply:
+
+> Where do you think the year 2025 comes from?
+
+Fiction storytelling.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1ptj5kt/latin_pluribus_language_pronouns_carol_all_the/nvmd042/
+
+<img width="1336" height="1352" alt="image" src="https://github.com/user-attachments/assets/af1dd71b-43b5-4bef-9729-317ad1a30a30" /> My reply:
+
+> I'm sorry you don't have the resources to get out of this 💔 I feel for you 
+
+Is this some kind of sales-pitch, come-on via Reddit computer systems?
+
+People here on Reddit have real problems { "reading between the lines", fiction vs. nonfiction War Against Reality /r/WarAll since year 2013 on Reddit, satire, sarcasm } like Carol can't tell a  hand grenade is toy or real. Metaphors and Steely Dan lyrics fly past the audience here.
+
+Merry Christmas, drunk like Carol drinks booze. Steely Dan song for Christmas: "Book of Fiction Storytellers" https://www.youtube.com/watch?v=E_-1BZTWdsc
