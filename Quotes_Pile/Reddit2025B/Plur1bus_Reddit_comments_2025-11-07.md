@@ -2048,3 +2048,35 @@ Anti-book worms on touch devices coming out of the paperworks. My reply:
 I'm not the one saying it, Carol is saying it. Carol is a book author creating a book revolution in the television story of Pluribus.
 
 I really don't know how to make it more clear than say: Go read the book! Read-it, *read it*, Reddit!
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1ptj5kt/latin_pluribus_language_pronouns_carol_all_the/nvjw9o8/
+
+My reply. Not going to fix the "screens avers" misplaced outer inner space ;)
+
+> What do you think Carol driving around in a police car, and the use of the Air Force One meeting table signify?
+
+On Air Force one, she stands **where the Eagle points** on the POTUS seal. https://en.wikipedia.org/wiki/Seal_of_the_president_of_the_United_States - note that it was a digital POTUS symbol, on a HDTV screen.
+
+The ice bed hot sex lesbian night, the police lights were flashing in the sky to give the audience a message about screen savers. Carol said it looked like a HDTV screen window / Windows screens aver. https://www.ScreenSaversPlanet.com/screensavers/northern-lights-1394/
+
+> You've been mentioning specific aspects of the show, or certain things that you think have thematic or ideological links to the show
+
+1. New Mexico atomic bomb
+
+2. New Mexico array gets the 78 second outer space message
+
+3. New Mexico wild animals eating the treasured art works, Carol commands to be procted.
+
+4. Carol handcuffs the immigrant to her wheelchair after blowing her up in murder-suicide
+
+5. Carol is driving around a police car patrolling.
+
+6. Pussy, lesbian, Pirate Lady / Pirate Man...  Vegas West Gate [Elvis](https://www.youtube.com/watch?v=gj0Rz-uP4Mk) music, pussy seeking by the man in Vegas and by all the lesbian lovers.
+
+&nbsp;
+
+The Police car / Northern Lights flashing and Windows / White board non-computer writing (against using a Windows computer / Northern Lights screen saver) to think and reason out the situation.
+
+The Nuclear Football was on Air Force One, command and control, New Mexico assets. There is a lot here people can't seem to recognize at the symbolic Latin "Pluribus" level.
+
+Merry Christmas, Luke 2:14 ( Koine Greek language ) - outer space pregnancy decoding and VLA signal intelligence of RNA. Hive Mind Policing Cars https://www.youtube.com/watch?v=oaZl12Z5P7g
