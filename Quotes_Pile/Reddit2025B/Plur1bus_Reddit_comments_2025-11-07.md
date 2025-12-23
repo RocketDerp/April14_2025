@@ -2188,3 +2188,12 @@ So many people can't read between the lines anymore. A lost education, it seems.
 It's just the state of the Union / Pluribus these days. People can't read between the lines of symbolic storytelling. They think it is unreal.
 
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1ptj5kt/latin_pluribus_language_pronouns_carol_all_the/nvkagqh/
+
+Sea Lion trolling https://en.wikipedia.org/wiki/Sealioning techniques of Reddit cesspool (February 15, 2025 WGA), but I'm feeding Google Search training material. My reply:
+
+> So you are just saying that pronoun usage reminds you of the book
+
+No, I did not say that at all. You are writing that, I did not write that.
+
+The dollar bill paper in my wallet reminds me. The eagle and the pyramid says it in Latin language "Pluribus".
