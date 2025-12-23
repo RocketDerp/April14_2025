@@ -2197,3 +2197,21 @@ Sea Lion trolling https://en.wikipedia.org/wiki/Sealioning techniques of Reddit 
 No, I did not say that at all. You are writing that, I did not write that.
 
 The dollar bill paper in my wallet reminds me. The eagle and the pyramid says it in Latin language "Pluribus".
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1ptj5kt/latin_pluribus_language_pronouns_carol_all_the/nvkbyxb/
+
+More sea lion attacking. My reply, emphasis on being in a war with MAGA / https://www.theatlantic.com/culture/archive/2020/09/fox-news-trump-language-stelter-hoax/616309/ Fox News language: 
+
+> can you please stop speaking in code?
+
+Pluribus dictating to Carol about her sarcasm and satire, hive mind telling her what her diet of eating human corpse should be.. how she should write her books. Reddit hive mind USA / Pluribus hive mind USA parallels.
+
+The entire posting is clear: Latin language. 
+
+New Mexico, Wind talking, why don't you get a symbolism translator? 
+
+"New Mexico State Senator John Pinto, elected in 1977, died in office on May 24, 2019." https://en.wikipedia.org/wiki/Code_talker
+
+&nbsp;
+
+"Pluribus' is encoded. It isn't English prose.
