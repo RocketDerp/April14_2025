@@ -2170,3 +2170,21 @@ there's no simple answer for how *we* might change that. Though, if there were, 
 11:07        
 But I don't know how to make that happen. So, I'll stick to my wheelhouse as
 a writer speaking to a room full of writers. I have a proposal.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1ptj5kt/latin_pluribus_language_pronouns_carol_all_the/nvk9e0k/
+
+the tactical cleverness of MAGA over and over.  My reply:
+
+> Can you just describe in one direct sentence with no sources, what the point of this post is? One english sentence summarizing the argument you are trying to justify with the sources and references.
+
+I'm not arguing anything, a book published in 1988 is the point of the posting. One sentence ELI3: Read book from 1988.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1ptj5kt/latin_pluribus_language_pronouns_carol_all_the/nvk8rbc/
+
+> how are you real bro
+
+So many people can't read between the lines anymore. A lost education, it seems.  We The *People*  consume so much ChatGPT / GrokAI content and Truth Social memes in December 2025 that they can no longer understand a story of Carol and Helen at a book store with "the plebs" fandom to their pirate man story.
+
+It's just the state of the Union / Pluribus these days. People can't read between the lines of symbolic storytelling. They think it is unreal.
+
+
