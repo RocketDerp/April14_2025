@@ -2668,3 +2668,15 @@ Is this some kind of sales-pitch, come-on via Reddit computer systems?
 People here on Reddit have real problems { "reading between the lines", fiction vs. nonfiction War Against Reality /r/WarAll since year 2013 on Reddit, satire, sarcasm } like Carol can't tell a  hand grenade is toy or real. Metaphors and Steely Dan lyrics fly past the audience here.
 
 Merry Christmas, drunk like Carol drinks booze. Steely Dan song for Christmas: "Book of Fiction Storytellers" https://www.youtube.com/watch?v=E_-1BZTWdsc
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1ptj5kt/latin_pluribus_language_pronouns_carol_all_the/nvm7id9/
+
+I might have already replied to this message, but here is another. My reply now:
+
+> Do you have a lady friend or family member in your life that you can show this too so you can get an irl help for your mental breakdown
+
+what mental breakdown? I'm doing deconstruction breakdown of the Pluribus Apple TV+ show.
+
+Do you think Jesus is real? Do you hear Christmas Jesus speaking to you? You a big "fan" of Jesus stories?
+
+People around me in **MAGA United States of America December 2025** think Jesus voices come from Charlie Kirk and his wife! We got serious literacy problems / book reading issues with The Bible this time of year in USA!
