@@ -2558,3 +2558,19 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1ptj5kt/latin_pluribus_languag
 Can you quote and indicate which things are not connected so I can correct the misinformation posted on Reddit public social media. Thank you.
 
 Merry Christmas 2025!
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1ptj5kt/latin_pluribus_language_pronouns_carol_all_the/nvm4hpg/
+
+My reply message:
+
+> You go off on unrelated things, you can't talk about one thing.
+
+So you need everything to be written ELI3 ELI5, or tiny short Twitter-length replies or Bluesky length? 
+
+I don't understand specifically which things *you* find unrelated. We are not in a shared hive mind and I can't tell specifically what you find is the problem.
+
+> John 1 Christmas Star? Like what the hell
+
+Where to begin on this one. Carol is a book author. Are you familiar with the best selling book of science fiction storytelling, "The Bible"?
+
+Let me ask *you* a question: Do you think Baby Jesus was born with a father from outer space, an alien who made Jesus, without a man providing sperm? Do you consider that story fiction or non-fiction like Carol's pirate novels? Do you think stem cells and a woman's frozen egg cells have something to do with the Pluribus Apple TV+ science fiction story?
