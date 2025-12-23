@@ -1844,3 +1844,24 @@ Carol being a boozer to change and alter her mind is a key theme of the story. L
 Which points us back at Kepler 22 signaling of Minute 22 in the Public House. A story of an undead man who isn't dead. Merry Christmas / Resurrection stories are human origin. Boozing Carol has the bottle of life giving always handy.  https://www.youtube.com/watch?v=YdizZtOddC8
 
 Helen's post-doctorate thesis is the most amazing scene in Western culture. The "TLDR" *of a  western world cultural lifetime*!
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pt801g/what_happened_to_evil/nvgy0zd/
+
+<img width="1812" height="1478" alt="image" src="https://github.com/user-attachments/assets/a9f0eca4-ea72-441c-966e-880a1805fdc2" /> My reply:
+
+> What is "Helen's post-doctorate thesis"?
+
+Minute 22, at the Zero Hour (Kepler "22"). Pilot episode.
+
+Helen's post-doctorate thesis to Carol is in a bar, a public house, to say James Joyce's Finnegans Wake has the answers to your unpublished book, "Bitter Chrysalis". Her thesis is that even if only one person in the entire world is *made happy* then it is a different category of art.
+
+Like commercial art vs. religious art category. The most amazing thesis delivery ever! Short, to the point, and entirely true to James Joyce's work.
+
+A similar post-doctorate thesis from a professor at University of Toronto: 
+
+* "Finnegans Wake is the greatest guidebook to media study ever fashioned by man." - Marshall McLuhan, Newsweek Magazine, p.56, February 28, 1966
+
+&nbsp;
+
+The entire theme of the show is around the concept of making *one single person not be the most miserable in the world*, Helen's spouse.
+
