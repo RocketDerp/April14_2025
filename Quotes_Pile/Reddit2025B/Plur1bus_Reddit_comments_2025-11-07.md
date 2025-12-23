@@ -2538,6 +2538,9 @@ Then explain to me why you poo-poo and hand wave away factual evidence validated
 
 https://www.bbc.com/news/world-us-canada-45294192
 
+REMINDER : Pluribus is a fiction TV show about a virus spreading around the world. A pandemic. Measles outbreak, stuff like that. The context is here in the subreddit.
+
+
 https://old.reddit.com/r/Pluribus_TVshow/comments/1ptj5kt/latin_pluribus_language_pronouns_carol_all_the/nvlzrfy/
 
 My reply:
