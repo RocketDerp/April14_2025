@@ -2590,3 +2590,14 @@ Calendar. The final episode, Episode 9, airs on December 24 Christmas Eve / Dece
 > What are you saying
 
 Helen and Carol are lesbians and who is the father of Carol's baby? Christmas story. RNA from deep space, lesbians having sex and Kepler 22B messages of 78 seconds.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1ptj5kt/latin_pluribus_language_pronouns_carol_all_the/nvm6ykn/
+
+The Better Call Saul / Walter White fandom can't grasp pirate stories. Egg piracy. Fruit of the looms. My reply: 
+
+> What baby? There is no baby in pluribus
+
+The *love baby* that Helen and Carol talked about on the ice bed with the hot lesbian sex night and boozing. Brandy booze. $100,000 spent to put Carol's eggs on ice.
+
+Pirate lady / Pirate man stories. Nobody here knows American art and music? A three-way love on a ship port of Brandy drinking to toast to the Pirate book being published? Hello, Carol! "Looking Glass", see those northern lights from outer-space flashing in the northern sky, Carol? It isn't a Windows Screen Saver... https://www.youtube.com/watch?v=DVx8L7a3MuE
+
