@@ -2495,7 +2495,7 @@ Again, do you consider The Bible fiction or non-fiction storytelling? As a lot o
 
 https://old.reddit.com/r/Pluribus_TVshow/comments/1ptj5kt/latin_pluribus_language_pronouns_carol_all_the/nvlwbeh/
 
- <img width="1276" height="1412" alt="image" src="https://github.com/user-attachments/assets/d5ad9a4f-3cdd-4181-ae24-b44a62f252a1" />
+<img width="1276" height="1412" alt="image" src="https://github.com/user-attachments/assets/d5ad9a4f-3cdd-4181-ae24-b44a62f252a1" />
 Oh, Breaking Bad Mr. White teacher students fandom / Better Call Saul lawyer fandom can't keep their booze (like Carol) and drugs (Meth Mr. White) and holiday drinking projection off other **cesspool social media** (Vince Gilligan; February 15, 2025 WGA) PUBLIC messages away. My reply:
 
 > I mean this with all sincerity and compassion: you need to talk to a doctor. You are showing extreme shizophrenia symptons in your comment history and need help from someone
