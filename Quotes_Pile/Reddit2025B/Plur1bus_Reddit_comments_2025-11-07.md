@@ -2089,3 +2089,41 @@ A story [about plebs](https://en.wikipedia.org/wiki/Plebeians) in a book store a
 > i just rewrote each sentence in your title, hoping it would make more sense for both of us, to understand.
 
 That's what ChatGPT users do all the time. Very very very popular in December 2025 USA. "ChatGPT, rewrite other people's original writings so it is meaningful just to me"! The magic of Large Language Models and how the Pluribus TV story hive mind all can read and write in any of the world's languages. Bible verse John 1:1 ( originally written in Koine Greek  language ) Christmas Day symbolism of *birth of a language* - John 1:1 season ending of episode 9.  Carol has her new set of magic markers delivered on demand, just in time, to pen new lesbian introductions to John 1:1 storytelling for All of Us, We is Us, Pluribus.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1ptj5kt/latin_pluribus_language_pronouns_carol_all_the/nvk4l2l/
+
+I avoided [TUll's "Thick as a Brick" part one (1997 remastered)](https://www.youtube.com/watch?v=ldXdnZtTWp8), maybe both parts? My Christmas season reply:
+
+> I’m really not getting the points you are making here.
+
+I really don't know how to be more clear and direct to you. A 1988 book was published by George Lucas / White House staffer Bill Moyers / Sarah Lawrence college professor.
+
+It is a book, printed on paper, I can not give you every page of the book here on Reddit electronic media due to copyright regulations and rules.
+
+# Carol is a Book Author, who uses white board
+
+Not computers for her most serious deep work.
+
+"A book titled The Power of Myth was published in the same year based on the interviews featured in the documentary." https://en.wikipedia.org/wiki/Joseph_Campbell_and_the_Power_of_Myth
+
+&nbsp;
+
+Maybe you need poetry to better understand Bill Moyer's and George Lucas getting together with a women's collage educator. His wife was a dancer, one of his students, I also recommend "The Coach With the Six Insides" dance she created.  Pluribus pairs well with this song:
+
+&nbsp;
+
+&nbsp;
+
+https://www.youtube.com/watch?v=b7k0a5hYnSI      
+Natasha Bedingfield - Unwritten (Official Video) (as featured in Anyone But You)     
+178,760,139 views  October 25, 2009    
+
+I am unwritten (Bitter Pupa)     
+Can't read my mind (Hive Mind "Wall Facer" 3-body, "White Board" covers)   
+I'm undefined (Gender of Pirate Man)   
+I'm just beginning ( Bible verse John One One )    
+The pen's in my hand (Yellow pad of paper in Carol's diner)   
+Ending unplanned ( Wildcard, Repeater 78 seconds and beyond VLA)    
+Staring at the blank page before you ( "Novus ordo seclorum" Latin wildcards )     
+Open up the dirty window ( Carol's back yard to Helen grave)     
+Let the sun illuminate the words that you could not find ( John 1;1 child, Christmas star )
