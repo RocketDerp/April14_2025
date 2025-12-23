@@ -2032,3 +2032,19 @@ Please, stop commenting on electric media , please *Go read a book* from 1988: h
 &nbsp;
 
 I don't know how to possibly be more clear that Pluribus story is telling you to read specific books. Darth Vader was specifically mentioned by Vince Gilligan in his public statements to *writers* on February 15, 2025.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1ptj5kt/latin_pluribus_language_pronouns_carol_all_the/nvjv6wz/
+
+Anti-book worms on touch devices coming out of the paperworks. My reply:  
+
+> > Carol: "All the brains in the world, and you can't navigate a fuckin' pronoun?"
+
+# .
+
+> what are you even saying bro
+
+# .
+
+I'm not the one saying it, Carol is saying it. Carol is a book author creating a book revolution in the television story of Pluribus.
+
+I really don't know how to make it more clear than say: Go read the book! Read-it, *read it*, Reddit!
