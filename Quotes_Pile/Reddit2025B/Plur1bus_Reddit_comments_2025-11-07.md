@@ -2440,3 +2440,31 @@ People are unable to understand these elements of the story about a book author,
 Both women step outdoors and burn the world down. Lady liberty, statue of liberty flames in hand. Helen, being the person who understood the point James Joyce was making in Finn's Hotel year 1923 - fell and cracked her skull like Tim. This flies right over the heads of second screen audiences on Apple iPad / iPhone devices. https://en.wikipedia.org/wiki/Torches_of_Freedom  Easter Sunday, 1929. Helen and Carol and "second hand smoking" of Carol's virgin lungs. March 31, 1929 and how it relates to the season ending with Carol's frozen eggs on ice... and December 24 / December 25 fertilization from an outer-space message. The two ladies smoking, influencers, "second hand smoke" of even PBS being influenced by Rupert Murdoch's Fox News. It's a rich and deep topic, Finn's Hotel year 1923 Dublin writings.
 
 Merry Christmas 2025!
+
+https://old.reddit.com/r/Pluribus13/comments/1pshhnf/episode_eight_minute_8_christmas_with_cousin/nvl4zy2/
+
+My reply message:
+
+> Btw, I was thinking more broad I guess but the fantastic pt here is about how easily the populace is manipulated/guided by these maniacs.
+
+A USA military base released the virus, under command. United States Army Medical Research Institute of Infectious Diseases (USAMRIID)
+
+Friday, August 15, 2025, at Joint Base Elmendorf–Richardson is a very significant date in United States of America history. Carol being on Air Force One and *All*...
+
+&nbsp;
+
+> social media I have explored besides Reddit
+
+There are influencers all over Reddit /r/WarAll 
+
+1. March 2, 2018 it *all came out*. https://www.bbc.com/news/technology-43255285
+
+2. August 24, 2018 it *all came out* gong back to year 2014 https://www.bbc.com/news/world-us-canada-45294192
+
+&nbsp;
+
+Virus outbreak story, military lab, measles. Even on Star Wars Day, May 4 year 2019... Colbert ([canceled by media empires](https://www.theguardian.com/tv-and-radio/2025/nov/03/stephen-colbert-late-show-cancellation-cbs) this year 2025) spelled it all out. Use *the force* Luke 2:14 - Merry Christmas! https://www.youtube.com/watch?v=Ju7Yt0LMiVk
+
+&nbsp;
+
+P.S. Star Wars Day, May 4  - is referenced by Helen at the Zero Hour countdown when speaking to Carol. Inceptions abound. Vince Gilligan mentioned Darth Vader on February 15, 2025 speech. Science Fiction Outer Space messages.
