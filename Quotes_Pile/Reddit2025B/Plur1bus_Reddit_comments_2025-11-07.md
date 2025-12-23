@@ -1880,3 +1880,41 @@ It's very surprising to me how almost nobody brings up a military virus leak sto
 Our own New Mexico VLA on the Plains of San Agustin. Further, Vegas location, Fallout Vegas, and **The Stand** with Carol's request for an atomic bomb (made in New Mexico, USA). I mean, The Stand had two different television series and the book too! Do people not get all the ICE bed... Northern Lights flashing away above the bed, police state car Carol drives, USA symbols and signs? Is symbolism [*dead*](https://www.youtube.com/watch?v=mzvk0fWtCs0)? Countdowns on the screen? ***Hello***, Carol? *Jornada del Muerto* **New Mexico** Trinity, Christmas Eve Day ending, [Trinity](https://en.wikipedia.org/wiki/Trinity_\(nuclear_test\))?
 
 Did nobody hear the [microphone taps / tapping](https://mymythos.org/archetype/microphone/) at minute 22 Zero Hour, is this microphone working? Hello, Anyone?
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1ptj5kt/latin_pluribus_language_pronouns_carol_all_the/nvhk6x0/
+
+<img width="826" height="316" alt="image" src="https://github.com/user-attachments/assets/d85303d3-cd94-4a8b-aad7-634b8e9613a1" /> My reply:
+
+> Pronoun use and its insistence to do so are markers of Depersonalization Derealization Disorder.
+
+They sure are! Women like Carol were not even given the right to vote in the USA with the "Pluribus* Latin on the Great Seal.
+
+&nbsp;
+
+&nbsp;
+
+[Year 1988 "Power of Myth"](https://billmoyers.com/series/joseph-campbell-and-the-power-of-myth-1988/) filmed by George Lucas, lessons for science fiction (Star Wars / Hollywood) fandoms:
+
+
+&nbsp;
+
+JOSEPH CAMPBELL: **Women are booty, they are goods**. With the fall of a city, every woman in the city would be raped.
+
+BILL MOYERS: There’s this ethical contradiction mentioned in your book, quoting Exodus: “Thou shalt not kill, thou shalt not covet thy neighbor’s wife—except abroad. Then you should put all males to the sword, and the women you shall take as booty to yourself.” That’s right out of the Old Testament.
+
+CAMPBELL: Deuteronomy. Those are fierce passages.
+
+MOYERS: And what do they say to you about women?
+
+CAMPBELL: They say more about Deuteronomy than about women. The Hebrews were absolutely ruthless with respect to their neighbors. But this passage is an extreme statement of something that is inherent in most sociologically oriented mythologies. That is to say, love and compassion are reserved for the in-group, and aggression and abuse are projected outward on others. Compassion is to be reserved for members of your own group. The out-group is to be treated in a way described there in Deuteronomy.
+
+Now, today there is no out-group anymore on the planet. And the problem of a modern religion is to have such compassion work for the whole of humanity. But then what happens to the aggression? This is a problem that the world is going to, have to face—because aggression is a natural instinct just as much as, and more immediate than, compassion, and it is always going to be there. It’s a biological fact. Of course, in biblical times, when the Hebrews came in, they really wiped out the Goddess. The term for the Canaanite goddess that’s used in the Old Testament is “the Abomination.” Apparently, throughout the period represented in the Book of Kings, for example, there was a back and forth between the two cults. Many of the Hebrew kings were condemned in the Old Testament for having worshiped on the mountaintops. Those mountains were symbols of the Goddess. And there was a very strong accent against the Goddess in the Hebrew, which you do not find in the Indo-European mythologies. Here you have Zeus marrying the Goddess, and then the two play together. So it’s an extreme case that we have in the Bible, and **our own Western subjugation of the female is a function of biblical thinking**.
+
+MOYERS: Because when you substitute the male for the female, you get a different psychology,
+
+&nbsp;
+
+&nbsp;
+
+*Merry Christmas*!
+
