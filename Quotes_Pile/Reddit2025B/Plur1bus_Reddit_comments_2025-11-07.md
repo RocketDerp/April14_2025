@@ -2574,3 +2574,19 @@ I don't understand specifically which things *you* find unrelated. We are not in
 Where to begin on this one. Carol is a book author. Are you familiar with the best selling book of science fiction storytelling, "The Bible"?
 
 Let me ask *you* a question: Do you think Baby Jesus was born with a father from outer space, an alien who made Jesus, without a man providing sperm? Do you consider that story fiction or non-fiction like Carol's pirate novels? Do you think stem cells and a woman's frozen egg cells have something to do with the Pluribus Apple TV+ science fiction story?
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1ptj5kt/latin_pluribus_language_pronouns_carol_all_the/nvm6cwp/
+
+Audiences (Breaking Bad / Call Saul fandoms) who can't understand the story on Apple TV+ can't seem to understand messages on Reddit comments either. Same problem, they can't grasp a television show media, can't grasp a Reddit comment media. Magical pregnancy of a lesbian woman without a man to provide sperm. RNA signals from outer space that alter the human bodies into magic capabilities. My reply:
+
+> Yes but how the hell did Jesus Christ and the Bible get involved into a post on pluribus?
+
+Calendar. The final episode, Episode 9, airs on December 24 Christmas Eve / December 25 Christmas Day.
+
+1. Bible science fiction story
+
+2. Pluribus TV science fiction story
+
+> What are you saying
+
+Helen and Carol are lesbians and who is the father of Carol's baby? Christmas story. RNA from deep space, lesbians having sex and Kepler 22B messages of 78 seconds.
