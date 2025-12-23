@@ -2083,7 +2083,8 @@ Merry Christmas, Luke 2:14 ( Koine Greek language ) - outer space pregnancy deco
 
 https://old.reddit.com/r/Pluribus_TVshow/comments/1ptj5kt/latin_pluribus_language_pronouns_carol_all_the/nvjy7lz/
 
-A story about plebs in a book store audience to a writer in a book store is lost on Read-It Read-It Reddit users. Escape the social media commenting, read the book, between the lines reading! My reply:
+<img width="1580" height="1374" alt="image" src="https://github.com/user-attachments/assets/0efc1586-ff76-40f8-b1f8-8043ed757d66" />
+A story [about plebs](https://en.wikipedia.org/wiki/Plebeians) in a book store audience to a writer in a book store is lost on Read-It Read-It Reddit users. Escape the social media commenting, read the book, between the lines reading! My Reddit reply comment:
 
 > i just rewrote each sentence in your title, hoping it would make more sense for both of us, to understand.
 
