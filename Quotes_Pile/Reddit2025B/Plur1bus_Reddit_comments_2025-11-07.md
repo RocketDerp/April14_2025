@@ -2527,3 +2527,13 @@ RFK Jr says the help people need relates to the drug Tylenol. What help do you t
 Carol, can you tell { satire and sarcasm } when the Reddit hive mind thinks a bomb is a toy and not real in New Mexico, or is a creative writer over your head, Reddit user? https://en.wikipedia.org/wiki/Rust_shooting_incident
 
 People around me think Jesus is factual true, MAGA USA.
+
+https://old.reddit.com/r/Pluribus13/comments/1pshhnf/episode_eight_minute_8_christmas_with_cousin/nvlzcft/
+
+My reply:
+
+> Btw, Im no Trump fan. Not a MAGAHead or whatever they call it.
+
+Then explain to me why you poo-poo and hand wave away factual evidence validated by two American universities; George Washington University and Johns Hopkins University when I linked it here on Reddit?
+
+https://www.bbc.com/news/world-us-canada-45294192
