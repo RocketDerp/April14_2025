@@ -71,7 +71,7 @@ More timelines:
 
 Malala even came to USA    
 Malala for the FIRST TIME in her life, went into a Christian Church and spoke. In the USA.    
-375,759 views  September 4, 2017
+375,759 views September 4, 2017     
 https://www.youtube.com/watch?v=okGlFU3YW_k       
 
 And how many people repeat this as much as "Epstein List" chanting?
