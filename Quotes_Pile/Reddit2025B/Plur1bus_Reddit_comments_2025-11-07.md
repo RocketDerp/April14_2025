@@ -1918,3 +1918,7 @@ MOYERS: Because when you substitute the male for the female, you get a different
 
 *Merry Christmas*!
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1psirfj/sorry_im_just_not_team_manousos_he_just_seems/nvf9kr8/
+
+A comment about the social media audience fandoms.
+
