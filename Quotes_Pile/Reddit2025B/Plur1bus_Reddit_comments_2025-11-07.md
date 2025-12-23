@@ -2704,3 +2704,28 @@ LINK: https://old.reddit.com/r/psychology/comments/181smu/is_the_reddit_hive_min
 &nbsp;
 
 Episode 9 is coming out Christmas Eve! This is a thrilling time in media storytelling!
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1ptj5kt/latin_pluribus_language_pronouns_carol_all_the/nvmfilz/
+
+<img width="2442" height="624" alt="image" src="https://github.com/user-attachments/assets/bcb8da12-1361-49c7-a393-d669cb1bb9e6" />  my reply:
+
+> So you're actually racist? Youre anti immigrant then?
+
+No, I veneer said that. It is in fact *you* who just wrote that sentence.
+
+Reddit hive mind is very powerful.
+
+People here need to learn and study and not jump to wild statements that are factually not true. Falsehoods abound on Reddit. A huge source of misinformation and deception.
+
+&nbs;
+
+# September 18, 1977
+
+"EVERYBODY TENDS TO **MERGE HIS
+IDENTITY WITH OTHER PEOPLE** AT
+THE SPEED OF LIGHT.
+IT'S CALLED BEING MASS MANNED.
+IT BEGAN QUITE A LONG TIME AGO."
+
+That's Pluribus hive mind, Reddit hive mind, September 1977 non-fiction University of Toronto teaching.  https://www.tvo.org/transcript/155847/marshall-mcluhan-in-conversation-with-mike-mcmanus
+
