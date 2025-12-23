@@ -2127,3 +2127,46 @@ Ending unplanned ( Wildcard, Repeater 78 seconds and beyond VLA)
 Staring at the blank page before you ( "Novus ordo seclorum" Latin wildcards )     
 Open up the dirty window ( Carol's back yard to Helen grave)     
 Let the sun illuminate the words that you could not find ( John 1;1 child, Christmas star )
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1ptj5kt/latin_pluribus_language_pronouns_carol_all_the/nvk5s58/
+
+My reply:
+
+> Care to explain what about my comment made you bring up MAGA?
+
+I am the one who made this posting on Reddit. The title of my posting is:      
+**Latin "Pluribus" language. Pronouns. Carol: "All the brains in the world, and you can't navigate a fuckin' pronoun?"**
+
+> what about my comment made you bring up MAGA?
+
+1. USA created story
+
+2. Filmed in New Mexico, ABQ and all over
+
+3. Carol is driving a police car from USA
+
+> what about my comment 
+
+You seem to have *context fixation* to your own self. I've seen this is common these days on social media. I'm talking about the Air Force One show symbolism / New Mexico VLA outer-space messages. The Great Seal of the United States of America word "Pluribus"
+
+&nbsp;
+
+I suggest reading and listening outside of Reddit social media commenting context for greater understanding and comprehension of the show.
+
+&nbsp;
+
+&nbsp;
+
+
+Vince Gillian    
+Creator of Pluribus, Breaking Bad, Better Call Saul, X-Files episodes     
+Writers Guild of America    
+February 15, 2025     
+https://youtu.be/TkteSxVIM1A?t=648   
+
+10:48    
+there's no simple answer for how *we* might change that. Though, if there were, I bet it would have something to do with climbing up out of the cesspool that is social media and actually listening to each other
+
+11:07        
+But I don't know how to make that happen. So, I'll stick to my wheelhouse as
+a writer speaking to a room full of writers. I have a proposal.
