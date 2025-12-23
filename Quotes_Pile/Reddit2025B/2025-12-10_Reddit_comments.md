@@ -831,3 +831,8 @@ This is why University of Toronto's Marshall McLuhan media study on Finnegans Wa
 https://old.reddit.com/r/whatisit/comments/1ptg96e/my_husband_receives_this_every_year_as_a/nvh4kv5/
 
 Yes. That's what animals do on our home planet, Earth. They smell food gifts to gather information before putting it into their mouth.
+
+https://old.reddit.com/r/law/comments/1ptlms6/some_epstein_files_can_be_unredacted/nvi60bg/
+
+Epstein promises from Donald Trump Junior / QAnon Pizza Gate sex topics of Clinton fantasy / private jet sex life very well drove men into MAGA / Trump. All this *information strip tease* and thrills people have over "stars that grab pussy" and power of rich white men is a big part of the force of power here. The paper chase, electronic documents chasing. Secret sordid naughty information about the private jet lives of the rich white guys. Addiction to celebrity sex tapes and lives. “Secrets of Celebrity Sex Tapes” offers an in-depth exploration of some of the most infamous celebrity sex tapes of our time including Pamela Anderson" https://www.aetv.com/shows/secrets-of-celebrity-sex-tapes
+
