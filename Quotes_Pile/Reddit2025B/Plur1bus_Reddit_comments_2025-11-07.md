@@ -2313,3 +2313,22 @@ To be fair, Helen at minute [22](https://science.nasa.gov/exoplanet-catalog/kepl
 
 https://www.goodreads.com/quotes/96477-schizophrenia-may-be-a-necessary-consequence-of-literacy-p-32
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1ptj5kt/latin_pluribus_language_pronouns_carol_all_the/nvkfnuc/
+
+Anti-book. My reply:
+
+> you replied with something that again makes no sense
+
+I can only do so much about Carol's book publishing, book writing, book tour, and the "plebs" at the book store that read her pirate romance fiction stories. Literacy isn't universal, We Is Us, doesn't always work for people who author comments. Helen understood that with her Finnegans Wake assertion at minute 22 in episode one. 
+
+Have a great Christmas, I'm looking forward to Episode Nine and the story of Carol the book author and her Chapter 2 drafting.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1ptj5kt/latin_pluribus_language_pronouns_carol_all_the/nvkdt2x/
+
+Second screen audiences. My reply:
+
+> but they are not telling her how to write, what to eat or how to speak?
+
+*They are* bombing the entire planet with an infection / disease / biological warfare (from a USA military lab, Episode One / Pilot Episode)  to tell her what to eat and how to speak as "We" instead of "I".
+
+There are a lot of "Second Screen Audiences" https://www.theguardian.com/tv-and-radio/2025/jan/17/not-second-screen-enough-is-netflix-deliberately-dumbing-down-tv-so-people-can-watch-while-scrolling who don't seem to pay attention to the show. The agents of the hive mind have infiltrated Carol's homestead to biologically convince her to join their biological warfare against other planets (pay it forward, Episode Eight). Intergalactic biological warfare!!
