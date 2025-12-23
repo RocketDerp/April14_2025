@@ -2382,3 +2382,32 @@ My reply:
 There. Was. a Book. Published. In 1988. That Explains Latin "Pluribus" meaning.
 
 ELI5: Book on paper, year 1988. Deep!
+
+https://old.reddit.com/r/Pluribus13/comments/1pshhnf/episode_eight_minute_8_christmas_with_cousin/nvkyjsq/
+
+My reply:
+
+> Sorry but what are you talking about with down votes and stuff? I'm a long time redditer but new to some new stuff
+
+Learning and education about media systems drives a lot of conflicts. Fox News Audience vs. MSNBC audience, for example. Different "hive minds" and "alternate universes" (or from "another planet" like Kepler 22B).
+
+&nbsp;
+
+“Today, reports of the day’s events are conveyed to the viewing public by way of alternate universes, The Fox News cable channel conveys its version of reality, while at the other end of the ideological spectrum MSNBC presents its version. They and their many counterparts on radio are more the result of an economic dynamic than a political one. Dispatching journalists into the field to gather information costs money; hiring a glib bloviator is relatively cheap, and inviting opinionated guests to vent on the air is entirely cost-free. It wouldn’t work if it weren’t popular, and audiences, it turns out, are endlessly absorbed by hearing amplified echoes of their own biases. It’s divisive and damaging to the healthy functioning of our political system, but it’s also indisputably inexpensive and, therefore, good business.”
+― Ted Koppel. Lights Out: A Cyberattack, A Nation Unprepared, Surviving the Aftermath. October 27, 2015. Page 13.
+
+“If all information is seen as part of a war, out go any dreams of a global information space where ideas flow freely, bolstering deliberative democracy. Instead, the best future one can hope for is an ‘information peace’, in which each side respects the other’s ‘information sovereignty’: a favoured concept of both Beijing and Moscow, and essentially a cover for enforcing censorship.”
+― Peter Pomerantsev, This Is Not Propaganda: Adventures in the War Against Reality, 2019
+
+&nbsp;
+
+> what are you talking about with down votes and stuff? I'm a long time redditer but new to some new stuff
+
+"Downvote-disagree" hive mind behaviors. Piling on down votes because television show audiences don't like book stores and book reading (Carol and Helen). On space topics, outer-space such as Kepler 22B VLA New Mexico, it has been discussed here on Reddit.
+
+"I wanted to downvote/disagree, but you are correct. It also helps to have a large influx of foreigners who are willing to do just about any job."       
+https://old.reddit.com/r/space/comments/df79r/dubais_palm_islands_and_world_islands_palm_jebel/c0zsz9k/      
+Friday, September 17, 2010    
+
+A long-standing concern.
+
