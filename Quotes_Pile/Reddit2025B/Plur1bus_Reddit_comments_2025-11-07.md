@@ -2332,3 +2332,7 @@ Second screen audiences. My reply:
 *They are* bombing the entire planet with an infection / disease / biological warfare (from a USA military lab, Episode One / Pilot Episode)  to tell her what to eat and how to speak as "We" instead of "I".
 
 There are a lot of "Second Screen Audiences" https://www.theguardian.com/tv-and-radio/2025/jan/17/not-second-screen-enough-is-netflix-deliberately-dumbing-down-tv-so-people-can-watch-while-scrolling who don't seem to pay attention to the show. The agents of the hive mind have infiltrated Carol's homestead to biologically convince her to join their biological warfare against other planets (pay it forward, Episode Eight). Intergalactic biological warfare!!
+
+https://old.reddit.com/r/okbuddypluribus/comments/1pty2uq/this_post_oh/nvkmru6/
+
+My comment. To the organized audience, subreddit community, of anti-lesbian "pronoun" USA 2025 pro-MAGA society promoters.
