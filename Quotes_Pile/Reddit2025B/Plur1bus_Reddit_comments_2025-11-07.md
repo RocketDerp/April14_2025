@@ -2675,7 +2675,7 @@ I might have already replied to this message, but here is another. My reply now:
 
 > Do you have a lady friend or family member in your life that you can show this too so you can get an irl help for your mental breakdown
 
-what mental breakdown? I'm doing deconstruction breakdown of the Pluribus Apple TV+ show.
+what mental breakdown? I'm doing deconstruction breakdown of the Pluribus Apple TV+ *science fiction* story / show.
 
 Do you think Jesus is real? Do you hear Christmas Jesus speaking to you? You a big "fan" of Jesus stories?
 
