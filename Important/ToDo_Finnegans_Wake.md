@@ -620,3 +620,9 @@ https://old.reddit.com/r/CringeTikToks/comments/1ps84bt/community_members_make_n
 https://old.reddit.com/r/CuratedTumblr/comments/1ptfe7k/in_case_anyone_is_wondering_panini_is_for/
 
 James Joyce was banned in USA with his English language book. Finn's Hotel 1923 and Finnegans Wake were heavily encrypted, even more than { Quran and Bible } encryption to bypass censors.
+
+&nbsp;
+
+https://old.reddit.com/r/NonPoliticalTwitter/comments/1ptotay/the_odasity/
+
+Wordchoice, spellchoice, Finnegans Wake / Finn's Hotel year 1923 onward. Knowing less, understanding less, comprehending less. Audio / oral tradition / caustic space. Anti-accent, enforcers of who is accepted, Tower of Babel of humanity making language variations. "Just as he does with the “vacuum”, McLuhan takes “abcedmindedness” in two different ways, one seemingly only negative, reflecting literal (ABC…) thought, the other a difficult positive, enabling complex insight into “the gestures of being itself”.  But where he treats the “vacuum” first in negative (empty) fashion, then in positive (replete), here the order is reversed to treat “abcedmindedness” first in its positive aspect (“to be abced-minded is to be part of the dream of history that is Finnegans Wake“), then in its negative one (“just alphabetically controlled”)." https://mcluhansnewsciences.com/mcluhan/2016/10/abcedmindedness/ anti-diversity.
