@@ -1922,3 +1922,16 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1psirfj/sorry_im_just_not_team
 
 A comment about the social media audience fandoms.
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1ptqfup/is_zosia_gestating/nviu4ro/
+
+My December 23 comment reply:
+
+> Where has the father been discussed?
+
+Nobody seems to want to discuss the science fiction parallels. The Christmas Day ending of the season. Who is the "father" to Jesus?
+
+Outer space stories of magical stars sending messages, a fiction woman from fantasy stories *Winds of Wycaro* coming to life in front of Carol's house. This magical woman gifts digging equipment with air delivery to Carol.
+
+Does nobody here read science fiction books like Carol writes? X - Files, Dana Scully's pregnancy? https://variety.com/2024/tv/global/x-files-scully-pregnancy-chris-carter-1235992349/
+
+"Joseph was *totally cucked*, even took care of the son that was not his. Always gave me bad vibes. Also you know that realistically his reputation would just..."  https://old.reddit.com/r/unpopularopinion/comments/fdmksk/even_while_i_was_a_christian_i_always_thought/
