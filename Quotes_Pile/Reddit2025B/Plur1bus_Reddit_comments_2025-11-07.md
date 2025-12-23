@@ -2601,3 +2601,12 @@ The *love baby* that Helen and Carol talked about on the ice bed with the hot le
 
 Pirate lady / Pirate man stories. Nobody here knows American art and music? A three-way love on a ship port of Brandy drinking to toast to the Pirate book being published? Hello, Carol! "Looking Glass", see those northern lights from outer-space flashing in the northern sky, Carol? It isn't a Windows Screen Saver... https://www.youtube.com/watch?v=DVx8L7a3MuE
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1ptj5kt/latin_pluribus_language_pronouns_carol_all_the/nvm97w5/
+
+Mind blown Reddit users. They seek adults, cry for ICE and MAGA help from Daddy Trump MAGA USA December 2025. My reply:
+
+> You have made two other subreddits to post about this?? TALK TO A TRUSTED ADULT RIGHT NOW
+
+Adult content of lesbian hot sex too much for you? Better Call Saul and Breaking Bad fandom's don't know their Brandy drinking stories, Carol boozing, pirate *port* drinking!
+
+A Toast to Carol, adults drink, buddy! Carol is a trusted adult. Just don't trust her with weapon systems.  https://www.youtube.com/watch?v=DVx8L7a3MuE
