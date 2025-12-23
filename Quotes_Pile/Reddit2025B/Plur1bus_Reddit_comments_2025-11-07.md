@@ -2548,3 +2548,13 @@ My reply:
 > Ironic. Carol's the one who can't seem to master "y'all."
 
 Excellent point. And she abusively calls "Pirate Lady" and such... as was pointed out by Koumba Diabaté after the Air Force One meeting that she hadn't even bothered yet to learn Zosia's name when she was so big on asserting free identity of her own self.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1ptj5kt/latin_pluribus_language_pronouns_carol_all_the/nvm46pu/
+
+<img width="1068" height="1046" alt="image" src="https://github.com/user-attachments/assets/bdcfac85-0024-4943-8e54-986ad9867a0c" /> Better Call Saul / Breaking Bad fandoms of meth cheering and lawyers who deceive. (Vince Gilligan February 2025: social media cesspool statement rings true again.) Banality replies that are non-specific. My reply message:
+
+> Not all those things are connected.
+
+Can you quote and indicate which things are not connected so I can correct the misinformation posted on Reddit public social media. Thank you.
+
+Merry Christmas 2025!
