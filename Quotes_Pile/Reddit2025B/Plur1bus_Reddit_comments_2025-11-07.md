@@ -1877,6 +1877,6 @@ It's very surprising to me how almost nobody brings up a military virus leak sto
 
 > our own government caused all of this?
 
-Our own New Mexico VLA on the Plains of San Agustin. Further, Vegas location, Fallout Vegas, and **The Stand** with Carol's request for an atomic bomb (made in New Mexico, USA). I mean, The Stand had two different television series and the book too! Do people not get all the ICE bed... Northern Lights flashing away above the bed, police state car Carol drives, USA symbols and signs? Is symbolism [*dead*](https://www.youtube.com/watch?v=mzvk0fWtCs0)? Countdowns on the screen? ***Hello***, Carol? *Jornada del Muerto* **New Mexico** Trinity, Christmas Eve Day ending, [Trinity](https://en.wikipedia.org/wiki/Trinity_(nuclear_test)?
+Our own New Mexico VLA on the Plains of San Agustin. Further, Vegas location, Fallout Vegas, and **The Stand** with Carol's request for an atomic bomb (made in New Mexico, USA). I mean, The Stand had two different television series and the book too! Do people not get all the ICE bed... Northern Lights flashing away above the bed, police state car Carol drives, USA symbols and signs? Is symbolism [*dead*](https://www.youtube.com/watch?v=mzvk0fWtCs0)? Countdowns on the screen? ***Hello***, Carol? *Jornada del Muerto* **New Mexico** Trinity, Christmas Eve Day ending, [Trinity](https://en.wikipedia.org/wiki/Trinity_\(nuclear_test\))?
 
 Did nobody hear the [microphone taps / tapping](https://mymythos.org/archetype/microphone/) at minute 22 Zero Hour, is this microphone working? Hello, Anyone?
