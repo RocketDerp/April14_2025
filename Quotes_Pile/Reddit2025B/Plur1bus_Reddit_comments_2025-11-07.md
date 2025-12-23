@@ -2537,3 +2537,11 @@ My reply:
 Then explain to me why you poo-poo and hand wave away factual evidence validated by two American universities; George Washington University and Johns Hopkins University when I linked it here on Reddit?
 
 https://www.bbc.com/news/world-us-canada-45294192
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1ptj5kt/latin_pluribus_language_pronouns_carol_all_the/nvlzrfy/
+
+My reply:
+
+> Ironic. Carol's the one who can't seem to master "y'all."
+
+Excellent point. And she abusively calls "Pirate Lady" and such... as was pointed out by Koumba Diabaté after the Air Force One meeting that she hadn't even bothered yet to learn Zosia's name when she was so big on asserting free identity of her own self.
