@@ -1944,3 +1944,9 @@ https://old.reddit.com/r/worldnews/comments/1ptjqv6/you_cannot_annex_other_count
 
 When everything is Reality TV entertainment and leaders of stardom, you can grab women, grab immigrants, grab nations, grab Ukraine, grab whatever you want and script your own screenplay. Reddit society mocks back at tree after tree and will not study non-fiction Vlad Surkov forest since year 2007. And stay *focused* and repeat focus on Surkov and educate people who media addiction of star power has taken over USA society / White House. Mocking Elon Musk for purchasing Twitter was avoiding the power of social media to take over the USA.
 
+&nbsp;
+
+https://old.reddit.com/r/memes/comments/1ptr61n/always_intresting/
+
+Front page of Reddit approaching Christmas / Jesus birthday parties. This is the very mechanism of power for Putin and Trump. [Putin just came out this week saying child sex marriages were long-standing tradition](/PostMalala/Marriage/World_Malala_Timeline_Year_2012.md#putin-confirms-december-2025) (like Christmas rituals traditions). Trump hosts teenage sex media events. This is what attracts loyalty awake audiences. This media content behavior is why Donald Trump has more power than anyone in world history for over a full decade. His legendary sex life that audiences want, celebrity sex tapes of discussing play by play of his conquest of babies and children. Look at the [year 2012 timeline of what draws an audience on little girls being sexually targeted](/PostMalala/Marriage/World_Malala_Timeline_Year_2012.md) and abused with media consumers / popular audience attraction and engagement. Trump is the World Wide Web content leader of global attraction to little girl predatory action for hours of hours per day of touch device audiences.
+
