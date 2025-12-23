@@ -2638,3 +2638,13 @@ We got a lot of magic believers out there. Who can't tell Pirate Lady is Fiction
 > Literally most documented person on earth
 
 Literally most printed science fiction *literature* outer-space "who is the father", Carol? story.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1ptj5kt/latin_pluribus_language_pronouns_carol_all_the/nvmb3t1/
+
+my Christmas week reply message:
+
+> Jesus is the most documented person on earth.
+
+Most documented science fiction *character* in a story, maybe, and I don't agree with that.
+
+Allah / Yahweh / "The Word" (John 1:1 meme metaphors) of creativity is most documented science fiction character, maybe. But the Upanishads give that a run for the money.
