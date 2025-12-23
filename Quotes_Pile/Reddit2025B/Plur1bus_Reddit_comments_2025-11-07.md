@@ -1935,3 +1935,7 @@ Outer space stories of magical stars sending messages, a fiction woman from fant
 Does nobody here read science fiction books like Carol writes? X - Files, Dana Scully's pregnancy? https://variety.com/2024/tv/global/x-files-scully-pregnancy-chris-carter-1235992349/
 
 "Joseph was *totally cucked*, even took care of the son that was not his. Always gave me bad vibes. Also you know that realistically his reputation would just..."  https://old.reddit.com/r/unpopularopinion/comments/fdmksk/even_while_i_was_a_christian_i_always_thought/
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1ptj5kt/latin_pluribus_language_pronouns_carol_all_the/nvjbcw5/
+
+<img width="1746" height="1098" alt="image" src="https://github.com/user-attachments/assets/99c5562a-f7fd-463a-92d7-ce57fd32dadf" /> All at the same time (within seconds), Reddit notified me I got 3 downvoted comments and this reply. Christmas time USA downvoting of women from Breaking Bad / Better Call Saul fandom. A tiny-short low-effort reply comment message and 3 downvotes from a social media user. Anna Gunn's experience with the Breaking Bad fandom: https://www.vulture.com/2018/07/breaking-bads-anna-gunn-looks-back-on-bizarre-fan-hate.html I also notice / observe that Vince Gilligan has really made { book store, book authoring, book publishing, book arrangement at the airport, books } a core focus for the Pluribus story opening of the story. But social media audiences flee and downvote aggressively with low-effort commenting when you quote a 1988 book. Visual / Breaking Bad anti-book fandom?
