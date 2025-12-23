@@ -1810,3 +1810,37 @@ My reply:
 
 Merry Christmas.
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pt801g/what_happened_to_evil/nvfk1co/
+
+My reply:
+
+I agree this is one of the things the show is demonstrating. There are conclusions that seem hive-mind thought out, such as declaring that Kepler world is probably dead already and pay-it-forward to other civilizations has been the choice of the Earth hive mind as opposed to being concerned with a reply message to the sender (see also: Three Body Problem Chinese science fiction reply message).
+
+&nbsp;
+
+Carol: So, what are the people like on Kepler-22b?     
+Zosia: We'll probably never learn the first thing about them. They're too far away. But we know we love them. And we're grateful to them. And we'll pay it forward, however long that may take.     
+Carol: What does that mean?    
+Zosia: We have to share their gift. With whoever else might be out there.
+
+&nbsp;
+
+>  It rewrote some brain genes so that all minds communicated instantly over a radio frequency. And when all brains communicated and linked up, this is the result.
+
+1. Classical ideas of school and teaching are eliminated. At the Air Fore One lunch gathering... Carol demonstrates that the hive mind child Ravi has adult knowledge.
+
+2. All spoken / written language skills are accessible. Favoring non-satire non-sarcasm but a kind of legal technicalities focus on language. With the Christmas Day Eve ending of the season, I would assert the context of Genesis 11:7 idea of humanity from science fiction stories { Torah, Bible }. The Tower of Babel. https://en.wikipedia.org/wiki/Tower_of_Babel
+
+3. Context of { Kepler 22, Minute 22} Episode One... Helen in a [*Public House*](https://www.thefreedictionary.com/Irish+Public+House) delivers the world-ending post-doctorate thesis of all times: James Joyce's Finnegans Wake book, Finn's Hotel year 1923. This is given as advice to Carol about happiness and fandoms. There is microphone tapping, and [both liberated lesbian women go outside to smoke a cigarette](https://en.wikipedia.org/wiki/Torches_of_Freedom) - Carol with her virgin lungs. This is the Zero Hour of the countdown, on top of [the grave site of Walter White](https://old.reddit.com/r/pluribustv/comments/1osq6ci/pluribus_s01e01_has_an_obscure_tie_to_both_bb_and/) in ABQ.
+
+Lots more.
+
+> The core premise of the show (as I see it, admittedly) is what if humanity changed?
+
+Carol being a boozer to change and alter her mind is a key theme of the story. Like Walter White's substance chemistry lab work. 
+
+* “Very similar to the Latin aqua vitae, literally 'water of life,' which becomes the Scandinavian aquavit” - Hive Mind  via Zosia
+
+Which points us back at Kepler 22 signaling of Minute 22 in the Public House. A story of an undead man who isn't dead. Merry Christmas / Resurrection stories are human origin. Boozing Carol has the bottle of life giving always handy.  https://www.youtube.com/watch?v=YdizZtOddC8
+
+Helen's post-doctorate thesis is the most amazing scene in Western culture. The "TLDR" *of a  western world cultural lifetime*!
