@@ -1987,3 +1987,9 @@ Carol is the authoring of an American revolution against the Pluribus interpreta
 &nbsp;
 
 Merry Christmas. Love to All. Luke 2:14  Skywalkers, *may the force* be with you All!
+
+______
+
+4 accounts have downvoted now. (my +1 self-vote removed in that math)  
+<img width="2436" height="292" alt="image" src="https://github.com/user-attachments/assets/64404125-bd0a-4c7b-aa2f-2be40b330567" />
+
