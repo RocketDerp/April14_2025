@@ -2511,3 +2511,19 @@ https://old.reddit.com/r/Pluribus13/comments/1pshhnf/episode_eight_minute_8_chri
 My reply, short, since didn't like the longer one they replied to:
 
 What did you do { NSA agent } you said you were. MAGA USA 2025? What did you do to USA?
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1ptj5kt/latin_pluribus_language_pronouns_carol_all_the/nvlxux7/
+
+<img width="1408" height="1480" alt="image" src="https://github.com/user-attachments/assets/626e9995-cc0c-43a8-ba84-dc88969531dc" /> The reply to me does not address private vs. public message question that I asked. Skips past the question. My Christmas week response:
+
+>  I had a neighbor who behaved very similar to you: yes
+
+I live in the United States of America, and I have neighbors who believe RFK Jr is a credible source of information and behave like you on social media systems. MAGA neighbors.
+
+>  I just hope that you can find help.
+
+RFK Jr says the help people need relates to the drug Tylenol. What help do you think the CDC is offering this week to MAGA USA December 2025 social media / Truth Social fandoms?
+
+Carol, can you tell { satire and sarcasm } when the Reddit hive mind thinks a bomb is a toy and not real in New Mexico, or is a creative writer over your head, Reddit user? https://en.wikipedia.org/wiki/Rust_shooting_incident
+
+People around me think Jesus is factual true, MAGA USA.
