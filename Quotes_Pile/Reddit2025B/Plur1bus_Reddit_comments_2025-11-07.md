@@ -2742,3 +2742,8 @@ Show predictions on when next season.
 https://old.reddit.com/r/Pluribus_TVshow/comments/1puagkc/why_a_nuclear_bomb_theory/nvn51yc/
 
 My Nuke Bomb symbolism comment.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pu9fnh/this_sub_needs_leadership/nvn4rcn/
+
+The season is over tonight, and this is the posting. The Breaking Bad and Saul social media fandom are anti-organization, anti-wiki, anti-FAQ. Very hostile to organizing information to get people on the same page (Wiki style). Instead, commenting over and over with the same low-effort information.
+
