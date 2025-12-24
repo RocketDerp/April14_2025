@@ -843,3 +843,8 @@ People prize Fox News HDTV. People prize tiny-short low-effort disposable Reddit
 https://old.reddit.com/r/politics/comments/1pulj45/magas_biggest_fear_is_coming_true_and_trump_wont/nvpclf6/
 
 And Reddit with meme-wash MAGA and Trump with amusement-washing humor-washing it all as great entertainment. The Second Coming of Jesus was the 9 episodes of Pluribus TV series delivered on Christmas Eve. Take on the cesspool hive mind of Reddit, what Vince Gilligan described as Reddit - cesspool social media. February 15, 2025 writers guild speech.
+
+https://old.reddit.com/r/popculturechat/comments/1puviq4/former_the_lion_king_star_imani_dia_smith_has/nvrwi6e/
+
+Yet, [nobody wants to support Malala as this year 2012 onward timeline shows the flocking to Trump](/PostMalala/Marriage/World_Malala_Timeline_Year_2012.md) - all over Reddit people have Trump images, Trump name, Trump speak / speech / writing style. People addicted to trash Putin and Epstein leadership and won't support Malala leadership. Girls are abused / marriages are taught by Musk Murdoch Trump Epstein role models. Trump age 79 role model for boys and men, even older role model Rupert Murdoch who cheers on manipulation and mind-fucking. Putin has them all eating out of his information warfare manipulation feedbag. People will not face up to the machines of social media male owners feeding mania by men against women. Abortion rights USA, Planned Parenthood attacked, people won't stand up for goodness. Fiction bullshit sells from Truth Social, Reddit, Fox News HDTV, Facebook and nonfiction of Malala's teaching gets abandoned and starved.
+
