@@ -463,3 +463,14 @@ https://old.reddit.com/r/complaints/comments/1pptfdq/we_call_you_nazis_because_y
 
 This isn't resisting the "War Against Reality", it's going at it with "easy mode" of a Reddit ARG. The favorites of Reddit audience: "Orange" skin color, eating out of Putin / Trump hands of {Black, White, Brown, Orange} concerns of superficial shallow mindsets against Obama. Surkov students keep winning right here right now December 18, 2025 Reddit. Blown minds wide-open to simulations! no resistance to touch screen gaming. OPERA_A https://www.youtube.com/watch?v=gU7d2EHV_OQ Don't want to wait to make Neil Postman a constant ("More than Epstein") repeating topic 4,683,282 views October 6, 2023 - turn this thing around! Come on, make Postman's name and books household topics every day!
 
+&nbsp;
+
+&nbsp;
+
+# Tuesday, December 23, 2024 night USA
+
+https://old.reddit.com/r/complaints/comments/1pubnfx/i_cannot_believe_that_evidence_supporting_that/
+
+Reddit has made it all low-effort comment entertainment.
+
+People on Reddit didn't care about a pandemic that killed people when there was evidence of Trump's buddy Putin from 15 months earlier. How do you let him get elected a second time and ignore August 24, 2018 story year after year on social media? Social media ITSELF was the mechanism Putin exploited and people can't cite serious { Johns Hopkins University, George Washington University } and immediate family members in the same Russia mind cult as RFK Jr. https://www.bbc.com/news/world-us-canada-45294192 - people only want sex content about old white men. Why can't serious intelligent science information from university be a topic? Because there is no "forbidden sex tape" and "secret private jet" and "secret private island" of white men involved. Everything about Trump is about Reality TV Truth Social entertainment addiction to bad dumb television "The Apprentice" audiences. Like social media behaves.
