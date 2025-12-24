@@ -1506,3 +1506,5 @@ Media ecology lessons:
 A Charlie Brown Christmas (1965): 21 CRAZY Facts You Didn't Know!    
 https://www.youtube.com/watch?v=m78G3sW3tBQ     
 
+https://youtu.be/m78G3sW3tBQ?t=276 to https://www.youtube.com/watch?v=K1b8AhIsSYQ     
+"We Built This City" from the 1985 album 'Knee Deep in the Hoopla'.
