@@ -1498,3 +1498,11 @@ Media ecology lessons:
 2. The Turing Test. If a person or computer is on the other end of a message system like Reddit or Bluesky or SMS text messages on a phone: https://en.wikipedia.org/wiki/Turing_test
 
 &nbsp;
+
+&nbsp;
+
+# Charlie Brown Christmas
+
+A Charlie Brown Christmas (1965): 21 CRAZY Facts You Didn't Know!    
+https://www.youtube.com/watch?v=m78G3sW3tBQ     
+
