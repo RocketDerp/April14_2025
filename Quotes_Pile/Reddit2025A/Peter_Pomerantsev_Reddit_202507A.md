@@ -1680,5 +1680,15 @@ https://euromaidanpress.com/2025/12/20/us-intelligence-say-putin-wants-ukraine-b
 
 It is no longer a intelligence war in which secret information / public information matters. It is /r/WarAll of Surkov description. https://old.reddit.com/r/WarAll/comments/1msqs1t/war_of_all_against_all_since_march_2013_war/ It is mind-fucking people into loyalty to self-harm and badness. Russia itself is self-harm domestic motivations. Ukraine is still seeking world peace and not just "hate thy enemy". Reddit army of end-user meme addicts is seeking entertainment, and war is considered thrilling content. Surkov students won since March 2013 in winning Reddit hearts and minds, USA hearts and minds.
 
+&nbsp;
+
+&nbsp;
+
+# Christmas Eve 2025
+
+https://old.reddit.com/r/technology/comments/1puu34p/president_rages_over_pathetic_trainwreck_stephen/
+
+Front page of Reddit. Everything is jokes, comedians, joke-washing Trump. Right in front of jokeland Reddit face. Everything is about stardom, fame, celebrity, SNL NYC comedy, Andy Kaufman. President Tony Clifton playing Surkov screenplays for Bluesky and Reddit audiences to mock over and over and over since June 16, 2015. How Russia won, how Putin won, how Surkov won since March 2013.
+
 
 
