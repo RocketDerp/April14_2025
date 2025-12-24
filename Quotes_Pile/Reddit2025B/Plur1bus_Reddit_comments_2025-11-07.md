@@ -2754,3 +2754,7 @@ So far, 4 of the comments out of 15 on this Reddit posting are a user who mocked
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pudmwq/now_im_upset/nvon2at/
 
 Me calling this out in public, how the person at Christmas is more upset about a fiction story than their own behavior on Reddit messaging systems towards human persons.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pubkas/pluribus_1x09_la_chica_o_el_mundo_episode/nvnrest/
+
+Cool. Book tour, book author, library themes.
