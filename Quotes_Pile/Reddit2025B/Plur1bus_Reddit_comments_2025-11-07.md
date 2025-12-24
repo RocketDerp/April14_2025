@@ -2758,3 +2758,21 @@ Me calling this out in public, how the person at Christmas is more upset about a
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pubkas/pluribus_1x09_la_chica_o_el_mundo_episode/nvnrest/
 
 Cool. Book tour, book author, library themes.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1puagkc/why_a_nuclear_bomb_theory/nvnt44q/
+
+My reply:
+
+> I think it’s Carol’s form of MAD. They refused to stop work on her eggs
+
+She can shock the hive, they both know how to do it now.
+
+The hive should be developing defenses against emotional shock. Hardening their global neural network. Instead, they are focused on the 13 people (counting down, Peru woman now joined).
+
+The story as it is being told does not exist if they hive isn't incredibly obsessed with the 13 free people. As if it is programmed to view them as a key to their own plan.
+
+It is Christmas Eve Day. Ask yourself, why have a switch in Eden. Carol has said twice now that they won't pluck an apple. Why does the Torah /  Bible / Quran science fiction trilogy have an apple tree in the first place?
+
+It is part of plan of the universe to give mankind free will. Repeating: Why isn't the hive mind developing defense against the emotional shocks that crash the neural network? Why are they so concerned for 13 people they could imprison or kill. 
+
+Again, Christmas Eve, there is only ONE animal in Eden planet that switches the Apple plucking button to nuke Eden.
