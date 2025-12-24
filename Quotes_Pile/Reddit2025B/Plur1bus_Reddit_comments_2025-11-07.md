@@ -2846,14 +2846,16 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1puagkc/why_a_nuclear_bomb_the
 
 > Oh shoot, I was right, they are schizophrenic. 
 
-"they*? *We*? You? Projecting.
+"they"? *We The People*? You... ? Projecting your self? Your ego?
 
-"We is Us", Episode One of Pluribus, title of the Pilot. Oh shoot, I was right, they are schizophrenic. 
+"We is Us",  Episode One of Pluribus, title of the Pilot.
 
-"They", "it", dehumanizing abuser who loves Reddit cloud computing machines and hates human diversity of thought and free thinking.
+"They", "it", dehumanizing abuser who loves Reddit cloud computing machines and hates human diversity of thought and free thinking. Can't grasp poetry and blows their mind out when people step out of lines, draw outside the lines.
+
+&nbsp;
 
 > It was just very word salad-y which reminds me of listening to other people rant about religious iconography
 
 Christmas Eve religion enforcers.
 
-You rant about human beings who don't use American English as white men dictate on Fox News USA / Truth Social USA communications networks. Your problem is *individuals* who step out of the English language hive mind conformity to the British empire. James Joyce of Ireland is at Minute 22 of the Pilot Episode to address your very behavior and concerns of language usage on Christmas Eve. Speak Fox News Rupert Murdoch MAGA? https://www.theatlantic.com/culture/archive/2020/09/fox-news-trump-language-stelter-hoax/616309/
+You rant about human beings who don't use American English as white men dictate (Mr. White, Breaking Bad) in Fox News USA / Truth Social USA communications networks (Reddit USA context). Your concern and problem is *individuals* who step out of the English language hive mind conformity to the British empire. James Joyce of Ireland is at Minute 22 of the Pilot Episode to address your very behavior and concerns of language usage on Christmas Eve. Speak Fox News Rupert Murdoch MAGA? https://www.theatlantic.com/culture/archive/2020/09/fox-news-trump-language-stelter-hoax/616309/
