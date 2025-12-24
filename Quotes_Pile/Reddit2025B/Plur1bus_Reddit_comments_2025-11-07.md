@@ -2805,3 +2805,53 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1puhdk8/this_scene_was_really_
 
 My comment message.
 
+<img width="1396" height="1460" alt="image" src="https://github.com/user-attachments/assets/084877a3-ff81-4800-a8d1-9d4c780d837b" /> [Reddit hive mind conformity enforcers step in](../Howard_Bloom.md), I poetically stepped *out of line* with the hive minded. Christmas Eve I.C.E. snow patrol seeking out immigrants to cheer on God Jesus Trump MAGA Fox News. My reply message:
+
+> You know, this starts to sound a little.... idk, not quite schizo
+
+The Reddit *hive mind* plays the schizophrenic card on me again. Going around on Christmas Eve declaring loudly in public cyber-bullying me that an *outsider* to the hive mind doesn't use Spanish or English correct. MAGA USA I.C.E. conditioned December 24, 2025. Truth Social leadership of social media USA. https://www.youtube.com/watch?v=s-bKFo30o2o
+
+&nbsp;
+
+> Im so glad we dont any long term consequences for downvotes, 
+
+Your English  has language mistakes.
+
+&nbsp;
+
+> just a little strange in some places at the end but maybe its just the way its written.
+
+&nbsp;
+
+&nbsp;
+
+To be fair, Helen at minute [22](https://science.nasa.gov/exoplanet-catalog/kepler-22b/) of Episode One said that in graduate school she struggled with James Joyce's book. The on-screen clock-[watch](https://old.reddit.com/r/interstellar/comments/10kz6kt/recently_acquired_the_murph_watch_a_daily/) upsidedownside counting timers at the Zero Hour in the [bar](https://youtu.be/5XcKBmdfpWs?t=88) until [smoke](https://youtu.be/5XcKBmdfpWs?t=33) outside breaks, 78 seconds single-stranded 'NA, are a Skeleton Key. The Pluribus TV viewer has to put down the [iPhone second screen](https://www.theguardian.com/tv-and-radio/2025/jan/17/not-second-screen-enough-is-netflix-deliberately-dumbing-down-tv-so-people-can-watch-while-scrolling) to have a very high reading comprehension to understand this ApplePlus show. The Apps humor is extremely subtle, and without a solid grasp of [theoretical physics / quantum mechanics](http://www.concentric-literature.url.tw/issues/Idealism/7.pdf) most of the j[ok](https://www.youtube.com/watch?v=xS_GtwrPBWg)es will go over a typical reader's head. There's also Helen's nihilistic death-rattle outlook, which is deftly woven into their marriage characterisation - their personal philosophy draws heavily from { Twilight Zone, Ice Station Zebra, and Golden Girls } media assortments; [four instances](https://old.reddit.com/r/IrishHistory/comments/btisnn/collected_book_of_the_four_irish_mythological/). Like Rick in *Rick and Morty*, to understand Carol, you need to drink heavily, like Joyce. The /r/TrueLit fans understand this stuff; they have the intellectual capacity to truly appreciate the [depths](https://en.wikipedia.org/wiki/Out_of_Many,_One:_Portraits_of_America%27s_Immigrants) of these overloaded puns. Most won't even have the spare time to delve too greedily and too deep to awaken from the night hours of Dublin... to realize that Joyce's writings are not [just *funny-odd* - they say something deep about LIFE](https://www.goodreads.com/quotes/504662-my-sweet-little-whorish-nora-i-did-as-you-told). This is deep [space](https://youtu.be/K1b8AhIsSYQ?t=35) shit, not for cosmos cowards! As a consequence people who dislike The Founding Fathers [proposed democratic socialism hive](https://en.wikipedia.org/wiki/E_pluribus_unum) mind concepts truly ARE [*Global Village Idiots*](https://www.youtube.com/watch?v=2JIj0Bqbdhk) - of course they wouldn't appreciate, for instance, the humour in peer art of Rick's existencial catchphrase "Wubba Lubba Dub Dub," *Dublin* stuttering... which itself is a [cryptic reference](https://www.youtube.com/watch?v=TV3vT5nW_I4) to Joyce's Irish epic Finn's Hotel. Many think that Joyce's far-out metaphors are not in the [habitable zone](https://old.reddit.com/r/nasa/comments/dvy8cs/is_kepler_22b_habitable/). Maybe special-K22 is [beyond too many asleep](https://www.youtube.com/watch?v=k_JnCWT-_O8) fans.  The show creators are smirking right now just imagining one of those addlepated simpletons scratching their heads in confusion over *The Trinity Project*... as Vince Gilligans's island genius ["Word Copy Pasta Salads"](https://www.goodreads.com/quotes/96477-schizophrenia-may-be-a-necessary-consequence-of-literacy-p-32) processing of Joyce's writing [unfolds itself](https://www.wired.com/2011/07/pollock-physics/) on their touch screens. Fractal iterative storytelling; [Daft Punks afraid of Kepler-22b virtue-signaling](https://www.youtube.com/watch?v=ZbbTmR6Xaag); Wiki system nets and RNA decoding will at least learn some  Elvis appreciation. What pirate [ships of fools](https://youtu.be/K1b8AhIsSYQ?t=187)... how I pity them. 😂 Only a /r/TrueReddit user can understand the music started before the smoke breaking, that Helen fell off Carol's { [barstool, TV news](https://www.youtube.com/watch?v=5XcKBmdfpWs), ladder, waggon, touring }. I can't say it enough: you have to get [bomb](https://en.wikipedia.org/wiki/Hand_Grenade_\(cocktail\))ed like Carol's drinking to get this show! And, yes, by the way, I DO have a Jean Erdman animated [dancing tattoo](https://old.reddit.com/r/reddit.com/comments/65iby/futurama_benders_big_score_tattoo_binary_code/). And no, you cannot see it (private parts, part of a work in progress, not yet published). [Dancing coach](https://www.youtube.com/watch?v=WoiJVkdDbOo), on the booze bottles, how drunk for that tattoo? It's special reserve for the [ladies' eyes](https://theinfosphere.org/images/cache/5/5e/Amy%2527s_Obscene_Tattoo.html) only - And even *they* have to demonstrate that they're within 5 DUI license points of my own (preferably higher BAC) beforehand.
+
+&nbsp;
+
+# .
+
+&nbsp;
+&nbsp;
+
+**Merry Christmas, Love to All**. Luke 2:14 *Skywalkers* *Force Be With You, Always*!
+
+&nbsp;
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1puagkc/why_a_nuclear_bomb_theory/nvquyn6/
+
+<img width="1838" height="674" alt="image" src="https://github.com/user-attachments/assets/b9fc42e3-ad74-43c3-b659-86bc9d095558" /> The abuse continues for Christmas Eve flogging. My reply message:
+
+> Oh shoot, I was right, they are schizophrenic. 
+
+"they*? *We*? You? Projecting.
+
+"We is Us", Episode One of Pluribus, title of the Pilot. Oh shoot, I was right, they are schizophrenic. 
+
+"They", "it", dehumanizing abuser who loves Reddit cloud computing machines and hates human diversity of thought and free thinking.
+
+> It was just very word salad-y which reminds me of listening to other people rant about religious iconography
+
+Christmas Eve religion enforcers.
+
+You rant about human beings who don't use American English as white men dictate on Fox News USA / Truth Social USA communications networks. Your problem is *individuals* who step out of the English language hive mind conformity to the British empire. James Joyce of Ireland is at Minute 22 of the Pilot Episode to address your very behavior and concerns of language usage on Christmas Eve. Speak Fox News Rupert Murdoch MAGA? https://www.theatlantic.com/culture/archive/2020/09/fox-news-trump-language-stelter-hoax/616309/
