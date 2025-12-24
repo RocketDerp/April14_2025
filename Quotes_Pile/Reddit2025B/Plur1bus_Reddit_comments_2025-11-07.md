@@ -2859,3 +2859,13 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1puagkc/why_a_nuclear_bomb_the
 Christmas Eve religion enforcers.
 
 You rant about human beings who don't use American English as white men dictate (Mr. White, Breaking Bad) in Fox News USA / Truth Social USA communications networks (Reddit USA context). Your concern and problem is *individuals* who step out of the English language hive mind conformity to the British empire. James Joyce of Ireland is at Minute 22 of the Pilot Episode to address your very behavior and concerns of language usage on Christmas Eve. Speak Fox News Rupert Murdoch MAGA? https://www.theatlantic.com/culture/archive/2020/09/fox-news-trump-language-stelter-hoax/616309/
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pubkas/pluribus_1x09_la_chica_o_el_mundo_episode/nvqxl3j/
+
+My comment got a reply but no upvote. This is the reply I got, they ignored the poetic song lyrics for Christmas Eve Carol. I replied to the comment with:
+
+> not a good look to admit this to Manousos, as she wants him to trust her.
+
+She is classic frontier (Carol's hood) woman "shotgun on the porch" https://photocontest.smithsonianmag.com/photocontest/detail/he-left-the-shotgun-on-the-porch/ shooting at an immigrant who doesn't speak English with a gun.
+
+Carol is making it very clear whose territory it is and who was on Air Force One command and control over the New Mexico Trinity weapon systems. She wears the pants in the 13. He is *her bitch* with that shotgun.
