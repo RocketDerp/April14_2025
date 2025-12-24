@@ -2747,3 +2747,10 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pu9fnh/this_sub_needs_leaders
 
 The season is over tonight, and this is the posting. The Breaking Bad and Saul social media fandom are anti-organization, anti-wiki, anti-FAQ. Very hostile to organizing information to get people on the same page (Wiki style). Instead, commenting over and over with the same low-effort information.
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pudmwq/now_im_upset/nvo11v1/
+
+So far, 4 of the comments out of 15 on this Reddit posting are a user who mocked and blocked me over a science fiction television show. They are more concerned about a fiction story. The actors get paid well, they are famous for being on TV, but this Reddit users dehumanizes people for commenting about a TV show on Reddit. When they block you, you can't reply to ANY other person on the entire comment thread.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pudmwq/now_im_upset/nvon2at/
+
+Me calling this out in public, how the person at Christmas is more upset about a fiction story than their own behavior on Reddit messaging systems towards human persons.
