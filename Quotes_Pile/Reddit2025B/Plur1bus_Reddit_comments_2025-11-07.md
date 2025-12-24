@@ -2801,4 +2801,7 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pufhpp/anyone_else_think_the_
 
 **MAGA Trump in office a second time around** provides the level of constant drama and stimulation people have normalized now. No goodness leader emerges because goodness doesn't stimulate like meth Walter White stimulates. Carol is depicted as waking up dropping her bottle from the couch after vodka, not meth ambitions. Book writing, book touring, book storytelling, airport book arranging / sorting. As Campbell said, it's already there. "And then comes an interesting thing, just as in the Old Testament — all we have heard is **the story of this particular group**, the Navaho, let’s say. But when they come out, **the Pueblo people are already there**. It’s like the problem of where did Adam’s sons get their wives? There is the creation of these people, and the rest of the world is somehow there by another accident." ... ... ... "Each needs its own myth, all the way. Love thine enemy. Open up. Don’t judge. All things are Buddha things. It is there in the myth. It is already there."
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1puhdk8/this_scene_was_really_dark_actually/nvqg7n8/
+
+My comment message.
 
