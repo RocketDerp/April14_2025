@@ -1498,9 +1498,3 @@ Media ecology lessons:
 2. The Turing Test. If a person or computer is on the other end of a message system like Reddit or Bluesky or SMS text messages on a phone: https://en.wikipedia.org/wiki/Turing_test
 
 &nbsp;
-
-Real human people can no longer tell A.I. from reality / human persons. Breakdown of society in year 2024 and year 2025, getting worse in USA every day. Billionaires funding extremely powerful media messaging systems like ChatGPT / GrokAI / etc.
-
-https://old.reddit.com/r/Pluribus_TVshow/comments/1ptzpnc/todays_the_day_yall/nvkut1l/
-
-Breaking Bad / Better Call Saul fandoms on social sites.
