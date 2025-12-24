@@ -626,3 +626,9 @@ James Joyce was banned in USA with his English language book. Finn's Hotel 1923 
 https://old.reddit.com/r/NonPoliticalTwitter/comments/1ptotay/the_odasity/
 
 Wordchoice, spellchoice, Finnegans Wake / Finn's Hotel year 1923 onward. Knowing less, understanding less, comprehending less. Audio / oral tradition / caustic space. Anti-accent, enforcers of who is accepted, Tower of Babel of humanity making language variations. "Just as he does with the “vacuum”, McLuhan takes “abcedmindedness” in two different ways, one seemingly only negative, reflecting literal (ABC…) thought, the other a difficult positive, enabling complex insight into “the gestures of being itself”.  But where he treats the “vacuum” first in negative (empty) fashion, then in positive (replete), here the order is reversed to treat “abcedmindedness” first in its positive aspect (“to be abced-minded is to be part of the dream of history that is Finnegans Wake“), then in its negative one (“just alphabetically controlled”)." https://mcluhansnewsciences.com/mcluhan/2016/10/abcedmindedness/ anti-diversity.
+
+&nbsp;
+
+https://old.reddit.com/r/KidsAreFuckingStupid/comments/1pufz9f/at_least_she_knows_now/
+
+Concerns of Finnegans Joyce teaching. Hyperlexia and quoting factual books give you this experience in USA 2025 where people are extremely concerned and programmed to confront immigrant English / not speaking in Fox News speak and call you ChatGPT / bots. https://www.theatlantic.com/culture/archive/2020/09/fox-news-trump-language-stelter-hoax/616309/
