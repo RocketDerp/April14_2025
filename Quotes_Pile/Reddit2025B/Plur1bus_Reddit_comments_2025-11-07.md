@@ -2777,4 +2777,24 @@ It is part of plan of the universe to give mankind free will. Repeating: Why isn
 
 Again, Christmas Eve, there is only ONE animal in Eden planet that switches the Apple plucking button to nuke Eden.
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pufhpp/anyone_else_think_the_finale_was_a_bit_of_a_let/nvp44mq/
+
+We The People of United States of America don't want a Christmas "Love everyone" story.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pufhpp/anyone_else_think_the_finale_was_a_bit_of_a_let/nvo8s5c/
+
+The phone call again when the hive mind crashed I think shows this is going for global mythology. We have Elvis in the wings... Hindu / Buddhism. We were told Zosia lost someone, but not sure why she is in Africa dressed like Islam. The Peruvian woman represented native non-Levant cultures.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pufhpp/anyone_else_think_the_finale_was_a_bit_of_a_let/nvoyrir/
+
+<img width="1472" height="1266" alt="image" src="https://github.com/user-attachments/assets/cb8ac1d3-2a41-40cc-b472-0e352f26a82c" /> My experiences of anti-intellectual anti-poetry (song lyrics) anti-individual in the fandom is horrific! Social media ignores people (Bluesky), blocks people, don't tie all the I.C.E. D.O.G.E. themes to the Christmas ending real-world timeline. My reply:
+
+I think that's the heart of the story we are getting.
+
+Vince Gilligan's marketing campaign for the story was very serious. About world misery and the monster society. Calling social media a cesspool at the start of the year and taking on the inspirational elements of his Breaking Bad and Better Call Saul fandoms.
+
+I see a man who cashed in all his popularity and street credibility as a meth amp story dealer to save the world from pop culture's horrible outcomes.
+
+Merry Christmas!
+
 
