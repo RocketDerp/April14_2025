@@ -836,3 +836,10 @@ https://old.reddit.com/r/law/comments/1ptlms6/some_epstein_files_can_be_unredact
 
 Epstein promises from Donald Trump Junior / QAnon Pizza Gate sex topics of Clinton fantasy / private jet sex life very well drove men into MAGA / Trump. All this *information strip tease* and thrills people have over "stars that grab pussy" and power of rich white men is a big part of the force of power here. The paper chase, electronic documents chasing. Secret sordid naughty information about the private jet lives of the rich white guys. Addiction to celebrity sex tapes and lives. “Secrets of Celebrity Sex Tapes” offers an in-depth exploration of some of the most infamous celebrity sex tapes of our time including Pamela Anderson" https://www.aetv.com/shows/secrets-of-celebrity-sex-tapes
 
+https://old.reddit.com/r/politics/comments/1pulj45/magas_biggest_fear_is_coming_true_and_trump_wont/nvpcwag/
+
+People prize Fox News HDTV. People prize tiny-short low-effort disposable Reddit comments. Anti-Wikipedia, anti-book. Surkov won since year 2013.
+
+https://old.reddit.com/r/politics/comments/1pulj45/magas_biggest_fear_is_coming_true_and_trump_wont/nvpclf6/
+
+And Reddit with meme-wash MAGA and Trump with amusement-washing humor-washing it all as great entertainment. The Second Coming of Jesus was the 9 episodes of Pluribus TV series delivered on Christmas Eve. Take on the cesspool hive mind of Reddit, what Vince Gilligan described as Reddit - cesspool social media. February 15, 2025 writers guild speech.
