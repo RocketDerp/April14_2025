@@ -2734,3 +2734,7 @@ Real human people can no longer tell A.I. from reality / human persons. Breakdow
 https://old.reddit.com/r/Pluribus_TVshow/comments/1ptzpnc/todays_the_day_yall/nvkut1l/
 
 Breaking Bad / Better Call Saul fandoms on social sites.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1ptzpnc/todays_the_day_yall/nvlpqdl/
+
+Show predictions on when next season.
