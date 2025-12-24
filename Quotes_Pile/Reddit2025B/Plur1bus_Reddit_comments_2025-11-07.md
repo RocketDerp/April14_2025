@@ -2813,6 +2813,8 @@ The Reddit *hive mind* plays the schizophrenic card on me again. Going around on
 
 &nbsp;
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1puagkc/why_a_nuclear_bomb_theory/nvqok12/
+
 > Im so glad we dont any long term consequences for downvotes, 
 
 Your English  has language mistakes.
