@@ -2738,3 +2738,7 @@ Breaking Bad / Better Call Saul fandoms on social sites.
 https://old.reddit.com/r/Pluribus_TVshow/comments/1ptzpnc/todays_the_day_yall/nvlpqdl/
 
 Show predictions on when next season.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1puagkc/why_a_nuclear_bomb_theory/nvn51yc/
+
+My Nuke Bomb symbolism comment.
