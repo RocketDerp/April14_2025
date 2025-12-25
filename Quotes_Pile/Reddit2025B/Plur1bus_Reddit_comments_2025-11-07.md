@@ -2911,3 +2911,12 @@ Take orders from the Reddit cloud computing machines. Take orders from machine l
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pv403y/rpluribustv_mods_are_out_of_control/nvtig8w/
 
 Carol: Pluck an Apple. Eat a human. Dehumanize with machine hive mind powers.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pvdjb9/the_container_whats_in_the_box/nvvb8g2/
+
+Breaking Bad and Better Call Saul fans can't follow complex stories about { book author, lesbians, book writing, book publish, graduate school Helen's statements, book tour, book arranging at the airport, Air Force One command and control meetings and POTUS Seal symbol }
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pvdjb9/the_container_whats_in_the_box/nvvcx5n/
+
+My own message. the A. B. C. countup we all think of. It's even wore than it appears. ABC minded, Finnegans Wake fandoms needed everywhere! https://mcluhansnewsciences.com/mcluhan/2016/10/abcedmindedness/
+
