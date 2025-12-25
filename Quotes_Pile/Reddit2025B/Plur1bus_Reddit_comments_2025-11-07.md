@@ -2869,3 +2869,45 @@ My comment got a reply but no upvote. This is the reply I got, they ignored the 
 She is classic frontier (Carol's hood) woman "shotgun on the porch" https://photocontest.smithsonianmag.com/photocontest/detail/he-left-the-shotgun-on-the-porch/ shooting at an immigrant who doesn't speak English with a gun.
 
 Carol is making it very clear whose territory it is and who was on Air Force One command and control over the New Mexico Trinity weapon systems. She wears the pants in the 13. He is *her bitch* with that shotgun.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pv403y/rpluribustv_mods_are_out_of_control/nvth9hh/
+
+It isn't only the moderators, it's the users who are reporting comments and posts to the automated systems and rules in place. Artificial intelligence enshitification. Only 9 episodes, 2 of which were released the first day, so 8 weeks. And they turn it over to machines that don't grasp a complex story like this. Vince Gilligan on February 15, 2025 called out social media shitholes / cesspools behaviors to climb out of, and the Pluribus subreddits are horrific. Breaking Bad and Better Call Saul fandoms some of the worst social media experiences I have ever encountered since I started participating in social media at age 13 in Christmas 1982. Truth Social USA, MAGA USA December 2025 is horrific on Reddit!
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pv403y/rpluribustv_mods_are_out_of_control/nvujqle/
+
+Ban-happy block-happy face-masked no-identity mods, following Donald Trump MAGA lead of I.C.E / Immigration banning people from the USA. "We is Us" Pluribus idea of the Great Seal Latin is trashed by media systems. Truth Social, Fox News, Reddit - people who are unable to tolerate or comprehend diverse ideas from multiple individuals. MAGA hive mind, ICE raiding immigrants dramatically - deport-happy block-happy hive mind.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pv403y/rpluribustv_mods_are_out_of_control/nvthhv5/
+
+Carol raped the hive mind just like the man in Vegas in the Elvis suite. They were both seduced by the alien invader virus. Just like Reddit moderators are seduced being a secret police (no real world identity on Reddit) to silence real American people about rape topics of USA Persistent Trump with their "no politics" policy on Pluribus TV show. "PLURIBUS" is from the FOUNDING FATHERS year 1776, you can't possibly be more political of a show, it's right in the title!
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pv403y/rpluribustv_mods_are_out_of_control/nvtk0vn/
+
+<img width="990" height="564" alt="image" src="https://github.com/user-attachments/assets/2c9883e6-c315-4b71-b07f-fa33e3176716" /> Exactly. They "shipped" the Pirate Lady to her for comfort. The naked washing at the ABQ airport, dressed her up. Relation-shipping for carol. Fandoms on Reddit can't see to grasp anything but Breaking Bad gun shootouts, Better Call Saul bingo games and other simple themes. Women being manipulated and raped and seduced by corporate hive minds like Reddit and Elon Musk Twitter... not grasped as media ecology. Author Neil Postman is in the grave like Helen in this story! The countdown timers up and down on the screen don't seem to communicate to people that most of the story is about "when" and "matter of time". We have a massive media literacy issue with people on second screens using Reddit and not grasping fundamentals of Founding Fathers "PLURIBUS" Latin language that is on the *Dollar Bill*! People just want Jessie and Walter White's "fat stacks" and don't even grasp the Latin written on the USA currency!
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pv403y/rpluribustv_mods_are_out_of_control/nvtnz0r/
+
+Yes. People are avoiding real-world connections to topics like Epstein because Reddit power-happy moderators and owners are disappearing comments and banning people who make any serious associations with the "PLURIBUS" Latin language word that is FROM THE FOUNDING FATHERS OF USA year 1776 ideals!!
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pv403y/rpluribustv_mods_are_out_of_control/nvtk8r0/
+
+In fiction, rape and murder and having sex with 12 year old girls is all acceptable to audiences. That is why Russia uses fiction storytelling to lead their nation and lead USA Donald Trump. Because fiction Reality TV content allows anything and everything. Non-fiction isn't what people prize. 
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pv403y/rpluribustv_mods_are_out_of_control/nvtjgzu/
+
+Masked secretive (ICE police masked) USA society values of Reddit California USA 2025. Steal posts from end-users for power socially over plebs / plurbs.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pv403y/rpluribustv_mods_are_out_of_control/nvtgsj8/
+
+I get down-voted and attacked constantly over discussing Carol and this show on Reddit. Aggressive men who think Saul Goodman and Walter White and Elon Musk are their daddy / father figures for Musk Twitter behaviors.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pv403y/rpluribustv_mods_are_out_of_control/nvth0fw/
+
+Take orders from the Reddit cloud computing machines. Take orders from machine lovers who don't want human earnest efforts to comprehend humanism themes in a pandemic virus story. End-users on Reddit are just to be mined for advertisers and not try to sort out actual world peace / Christmas Episode Nine behavior topics of Bible hive mind problems.
+
+“Technopoly is a state of culture. It is also a state of mind. It consists in the deification of technology, which means that the culture seeks its authorization in technology, finds its satisfactions in technology, and takes its orders from technology.” ― Neil Postman, Technopoly: The Surrender of Culture to Technology, 1992
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pv403y/rpluribustv_mods_are_out_of_control/nvtig8w/
+
+Carol: Pluck an Apple. Eat a human. Dehumanize with machine hive mind powers.
