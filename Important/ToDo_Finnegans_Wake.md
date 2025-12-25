@@ -632,3 +632,9 @@ Wordchoice, spellchoice, Finnegans Wake / Finn's Hotel year 1923 onward. Knowing
 https://old.reddit.com/r/KidsAreFuckingStupid/comments/1pufz9f/at_least_she_knows_now/
 
 Concerns of Finnegans Joyce teaching. Hyperlexia and quoting factual books give you this experience in USA 2025 where people are extremely concerned and programmed to confront immigrant English / not speaking in Fox News speak and call you ChatGPT / bots. https://www.theatlantic.com/culture/archive/2020/09/fox-news-trump-language-stelter-hoax/616309/
+
+&nbsp;
+
+https://old.reddit.com/r/Funnymemes/comments/1pvmg2q/yes_marry_him/
+
+Joyce's concern. People who marry Allah, their "Father" in outer space Heaven / Eden. People who reject life on living Earth for after-life science fiction stories. People who marry the father Yahweh and fund clergy storytelling to Dublin people.
