@@ -863,3 +863,7 @@ NOTE: the posting this is on is about Putin / Trump. Capturing Also note the age
 https://old.reddit.com/r/CringeTikToks/comments/1puyz3k/trump_i_am_fine_you_sound_beautiful_and_cute_how/nvsekst/
 
 Because Russia wan an information war against the USA and people won't turn to nonfiction anymore. September 9, 2014 : https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1puwhh9/yes_theres_new_evidence_that_they_hacked_the_2024/nvsjlae/
+
+<img width="866" height="630" alt="image" src="https://github.com/user-attachments/assets/afc2e757-f4b3-4254-8a72-46d207bfcc1c" /> Yes. Simulacra of resistance. All part of the Russian mind-fuck games to just insult back and forth and prize the entertainment and high-speed social machine networks.
