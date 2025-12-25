@@ -890,3 +890,15 @@ This is how the society of { Android, Apple iPhone / iPad / computers } behaves 
 
 "popular (and influential) with young TV viewers. The plain lesson is that study and learning—not just of science, but of anything — are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995, page 59
 
+https://old.reddit.com/r/LivestreamFail/comments/1pv4w6o/longer_video_kick_streamer_clavicular_crashes/nvu52eu/
+
+<img width="1244" height="974" alt="image" src="https://github.com/user-attachments/assets/91a38fdd-41f2-46b6-9155-0b62a679c6e6" /> 1. Rick Roderick 1993 https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
+
+2. How Russia defeated the USA by turning domestic Russia into Reality TV with Surkov students, then exporting it to USA since March 2013 via Internet Research Agency. September 9, 2014 : https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+We are living in the reality that fiction outsells nonfiction. Reality TV isn't real, but it has real consequences. Audiences will not face up that We The People give power to Trump and Putin.
+
+#MediaEcologyOpera 
+
+OPERA_A " "Show Biz Kids" is a song composed by Walter Becker and Donald Fagen and performed by Steely Dan with Rick Derringer on slide guitar. It was the first single from Steely Dan's 1973 album Countdown to Ecstasy" https://www.youtube.com/watch?v=-h-crmBPHb4
+
