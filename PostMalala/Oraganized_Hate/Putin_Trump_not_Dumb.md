@@ -5,9 +5,9 @@ https://bsky.app/profile/roundsparrow.bsky.social/post/3matnituvts24
 
 &nbsp;
 
-Putin is not dumb.
-Hitler was not dumb.
-Trump is not dumb.
+Putin is not dumb.     
+Hitler was not dumb.     
+Trump is not dumb.     
 
 HASHTAGS: All three, Putin / Trump / Hitler, knew the Torah + Bible were #ScienceFiction and how audiences worship bow to #Fiction Storytellers. Rupert Murdoch knows too. Not stupid people.
 
