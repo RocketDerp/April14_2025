@@ -867,3 +867,6 @@ Because Russia wan an information war against the USA and people won't turn to n
 https://old.reddit.com/r/UnderReportedNews/comments/1puwhh9/yes_theres_new_evidence_that_they_hacked_the_2024/nvsjlae/
 
 <img width="866" height="630" alt="image" src="https://github.com/user-attachments/assets/afc2e757-f4b3-4254-8a72-46d207bfcc1c" /> Yes. Simulacra of resistance. All part of the Russian mind-fuck games to just insult back and forth and prize the entertainment and high-speed social machine networks.
+
+https://old.reddit.com/r/Steam/comments/1puz434/steam_for_the_past_2_hours/nvsengp/
+
