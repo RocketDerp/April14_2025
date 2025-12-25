@@ -902,3 +902,19 @@ We are living in the reality that fiction outsells nonfiction. Reality TV isn't 
 
 OPERA_A " "Show Biz Kids" is a song composed by Walter Becker and Donald Fagen and performed by Steely Dan with Rick Derringer on slide guitar. It was the first single from Steely Dan's 1973 album Countdown to Ecstasy" https://www.youtube.com/watch?v=-h-crmBPHb4
 
+https://old.reddit.com/r/LivestreamFail/comments/1pv4w6o/longer_video_kick_streamer_clavicular_crashes/nvuq0m2/
+
+My reply comment:
+
+> so used to being recorded that I bet they would allow the Surveillance State to be implemented without much push back.
+
+First off, Merry Christmas!
+
+&nbsp;
+
+"because we now have  the means to keep everybody under surveillance. No matter what part of the world they’re in, we can put them under surveillance. It has become one of the main occupations of mankind: just watching other people and keeping a record of their goings-on. This is the way most businesses are run. Every business has a huge espionage sector, and this is called public relations and it’s called audience research. And this is around the clock. And this has become the main business of mankind: just watching the other guy." - University of Toronto. Marshall McLuhan media studies. September 19, 1977       
+https://www.organism.earth/library/document/mcluhan-mcmanus
+
+It's been building up for a long time. All the mobile providers  / wire tapping / "The Wire" that these camera phones are connected to have been under the thumbs of corporations peering and governments. 
+
+AT&T Wireless year 2003: https://en.wikipedia.org/wiki/Room_641A
