@@ -855,3 +855,8 @@ https://old.reddit.com/r/NoFilterNews/comments/1puw1sj/newly_released_epstein_fi
 https://old.reddit.com/r/politics/comments/1puy8xc/trump_watched_as_girls_newborn_was_murdered/nvs9e6l/
 
 Age of Reddit account making comment has let all this sink in since the Arab Spring 2010. Putin hosting Trump as a student November 8, 2013 to parade women. So many "leaders" like Bill Gates, Bill Clinton, Donald Trump, Elon Musk follow sex-lords Putin and Trump who offer baby-child forbidden Jesus sacrifces to virgin 13 year old mothers for their Biblical carnical desires. Romans 11:32 mind fucked all, avoidant of "1 John 3:17" in the Elon Musk / Bill Gates / Trump family / Putin wealth leadership of males / male aggression. Anti-Malala since October 8, 2023 all! Jimmy Carter POTUS was promoting the women problem and male { Putin Epstein } leadership of men around him. http://WomensOrdinationCampaign.org/blog-working-for-womens-equality-and-ordination-in-the-catholic-church/2020/3/4/jimmy-carter-losing-my-religion-for-equality "Women and girls have been discriminated against for too long in a twisted interpretation of the word of God."
+
+https://old.reddit.com/r/complaints/comments/1putkk8/im_tired_of_a_compromised_president_of_the_united/nvr86np/
+
+NOTE: the posting this is on is about Putin / Trump. Capturing Also note the age of this account for the comment.
+
