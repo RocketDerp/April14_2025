@@ -2920,3 +2920,6 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pvdjb9/the_container_whats_in
 
 My own message. the A. B. C. countup we all think of. It's even wore than it appears. ABC minded, Finnegans Wake fandoms needed everywhere! https://mcluhansnewsciences.com/mcluhan/2016/10/abcedmindedness/
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pvdjb9/the_container_whats_in_the_box/nvx9t1v/
+
+Got a one-word reply on Christmas afternoon. A meth appreciating Walter White fan, Saul Goodman fan?
