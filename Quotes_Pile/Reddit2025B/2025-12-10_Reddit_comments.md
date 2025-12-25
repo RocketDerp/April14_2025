@@ -860,3 +860,6 @@ https://old.reddit.com/r/complaints/comments/1putkk8/im_tired_of_a_compromised_p
 
 NOTE: the posting this is on is about Putin / Trump. Capturing Also note the age of this account for the comment.
 
+https://old.reddit.com/r/CringeTikToks/comments/1puyz3k/trump_i_am_fine_you_sound_beautiful_and_cute_how/nvsekst/
+
+Because Russia wan an information war against the USA and people won't turn to nonfiction anymore. September 9, 2014 : https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
