@@ -1691,4 +1691,18 @@ https://old.reddit.com/r/technology/comments/1puu34p/president_rages_over_pathet
 Front page of Reddit. Everything is jokes, comedians, joke-washing Trump. Right in front of jokeland Reddit face. Everything is about stardom, fame, celebrity, SNL NYC comedy, Andy Kaufman. President Tony Clifton playing Surkov screenplays for Bluesky and Reddit audiences to mock over and over and over since June 16, 2015. How Russia won, how Putin won, how Surkov won since March 2013.
 
 
+&nbsp;
 
+&nbsp;
+
+# Christmas Day 2025
+
+https://old.reddit.com/r/SipsTea/comments/1pvfku4/hear_me_out/
+
+Sex with Hillary Clinton in her "prime" is front page of Reddit on Christmas Day. With Epstein Sex being all over the front page all week leading up to Christmas, this is outright worship of Putin values to dehumanize women. Treat political leaders as sex objects. This is why so many men bow down to Donald Trump and sacrifice their children to Donald Trump. Jesus God Levant Male symbol leadership. Allah / Yahweh is Trump to dominate all "alpha men" USA computer addicts (like Trump is a social media addict, so are men in USA who use Reddit) and won't touch an "ugly chick" in favor of super-model wife and hottest November 8, 2013 Moscow sex showing values.
+
+This trash-prizing values of images and lust for women's images to drool over is why so many drool when following Donald Trump leadership, MAGA style, values of Taliban and MAGA [The anti-Malala year 2012 timeline rules social media users in USA](/PostMalala/Marriage/World_Malala_Timeline_Year_2012.md) who prize strong aggressive dehumanizing men who follow Putin and Epstein for pussy bandwagon riding.
+
+What a "All ruling Daddy impregnated a virgin and she gave birth of a son" Christmas day message to represent all of MAGA land MAGA values USA 2025 year-end summary of the mindsets and behaviors of Einstein fantasy island audience. Vince Gilligan at February 15, 2025 writers guild was right about social media cesspool. Reddit is the cesspool training camp of Walter White and Saul Goodman men who admire { Trump, Epstein, Putin } anti-women leadership. "Hear me out" on Christmas day is even a very specific Christmas Carol song: https://www.youtube.com/watch?v=Vs9FPx3_Slk Bring silver and gold, especially gold, for Trump to decorate. That's what the Reddit programming references with that title ""Hear me out" about how to judge women on Judgement Day Christmas Jesus coming day.
+
+God did not seek consent for forcing the pregnancy, nor does Donald Trump get consent from women. Do you hear what I hear "hear me out" of Reddit front page image? https://old.reddit.com/r/exmormon/comments/144g38w/so_god_just_like_totally_cuckolded_joseph_of_new/
