@@ -870,3 +870,7 @@ https://old.reddit.com/r/UnderReportedNews/comments/1puwhh9/yes_theres_new_evide
 
 https://old.reddit.com/r/Steam/comments/1puz434/steam_for_the_past_2_hours/nvsengp/
 
+https://old.reddit.com/r/LivestreamFail/comments/1pv4w6o/longer_video_kick_streamer_clavicular_crashes/nvts1iw/
+
+I am an inmate where Reality TV leader Donald Trump promos Elon Musk automobiles as content at the White House and Reddit audiences consider all this the mot exciting entertainment. I am an inmate in a nation of media addiction, cults to Musk and Trump symbols and icons, all manipulated (including Reddit audience) by Putin's Internet Research Agency that *did the research* and found that inmates never ever get enough hate and mocking of humanism (crave for bad-ass Trump antics, repulsed by goodness and learning). Live streaming running a person over with a car is like that Grandma Christmas morning song - https://en.wikipedia.org/wiki/Grandma_Got_Run_Over_by_a_Reindeer ... the attraction USA touch device inmates have to anything but nonfiction learning and leaders who are sincere and don't prize content creation of mass dehumanization media programming as constant streaming simulation. No words can describe the hell Reddit audiences have made of USA role models. Meme trash nation.
+
