@@ -175,3 +175,5 @@ Origin of Pluribus
 inspired by: https://old.reddit.com/r/interestingasfuck/comments/1psd1bd/organ_transplant_rules_hit_different_in_singapore/ - origin of dead body reuse hive mind choices.     
 
 Sufraintelligent - Steely Dan reference, Word (John 1:1) that sounds insulting but isn't.    
+
+Convincing Woke   
