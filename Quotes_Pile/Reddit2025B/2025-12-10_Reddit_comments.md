@@ -877,3 +877,9 @@ I am an inmate where Reality TV leader Donald Trump promos Elon Musk automobiles
 https://old.reddit.com/r/LivestreamFail/comments/1pv4w6o/longer_video_kick_streamer_clavicular_crashes/nvtvpww/
 
 Parents have made Donald Trump a role model for children since June 16, 2015. Content creator Trump is prized for constant stimulation of touch device end-users. "Interesting" is what brings Reddit audiences to their knees in meme prayers, "real interesting" more and more high-speed image delivery. Reddit is the cause, Trump is the symptom, Russia had amused the touch device audiences into meme stupor mindsets that find self-harm and anti-goodness as "real interesting" trending to tune into. Trump nation USA, Reddit MAGA prizing for desire to mock away goodness.
+
+https://old.reddit.com/r/StupidFood/comments/1pv6ug3/extremely_moldy_cheese_from_konyaturkey/nvufjvi/
+
+https://old.reddit.com/r/StupidFood/comments/1pv6ug3/extremely_moldy_cheese_from_konyaturkey/nvuiodm/
+
+<img width="1028" height="490" alt="image" src="https://github.com/user-attachments/assets/b1f11638-a183-48e0-b23f-8ce4b518de6d" /> MAGA brains, Bluesky brains, Fox News brains, Reddit brains, Apple iPhone brains, Apple iPad brains, Breaking Bad brains, Better Call Saul brains. Vince Gilligan on February 15, 2205: social media is a cesspool. Anti-understand anti-comprehension anti-learning image consumption and prizing of ignorance. What in 1995 Carl Sagan called "especially a kind of Celebration of Ignorance". All lead by Truth Social values and { Putin / Epstein } male fantasy leaderships. Wealthy old men, Putin /  Epstein / Trump values of Reddit audiences.
