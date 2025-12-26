@@ -2931,3 +2931,7 @@ Someone who notices the down votes on Reddit for posting their (not mine) organi
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pw2wy8/so_manousos_learned_more_in_2_hours_than_carol/nw1yn0g/
 
 My message. To the Reddit Hive Mind about piracy high seas tails of Dublin Stephen's Hero, Finn's Hotel shagging year 1923 onward... Taking on Hive Minds with Romans 11:32 knowledge, and encoding ++ with Romans 11:33 techniques!
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pwejhv/why_was_manousos_in_carol_trunk/nw2yn4w/
+
+My Pluribus poetry, ACE BABY! 
