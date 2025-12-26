@@ -179,3 +179,6 @@ Sufraintelligent - Steely Dan reference, Word (John 1:1) that sounds insulting b
 Convincing Woke   
 
 Surfing Cesspools ( Surfing the WWW, Vince Gilligan 2025: Social media cesspools )    
+
+CrawSake ( Finnegans Wake reference, Web Crawling / Matthew 4:19 trolling sake, Japanese Wake boozing / Tim Drunk all in there and more )    
+
