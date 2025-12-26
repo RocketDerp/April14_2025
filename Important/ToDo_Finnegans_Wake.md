@@ -657,7 +657,12 @@ Christmas 2025 Out of Africa images
 
 https://old.reddit.com/r/Damnthatsinteresting/comments/1pw5ixz/we_dont_have_snow_here_in_africa_but_we_had_this/
 
-I had Crawfish delivered to front door by touring sellers in Arica, Chile for Christmas eve (Wednesday too) year 2014 knock on my door. My wife Tristan and I met at a crawfish (Dallas, Nate's) restaurant https://www.natesseafood.com/  (she was my waitress) ... so, so perfect! Christmas memories! おもひでぽろぽろ
+I had Crawfish delivered to front door by touring sellers in Arica, Chile for Christmas eve (Wednesday too) year 2014 knock on my door. My wife Tristan and I met at a crawfish (Dallas, Nate's) restaurant https://www.NatesSeaFood.com/  (she was my waitress... "Nate's Seafood & Steakhouse has been family owned since it's opening in 1988.") ... so, so perfect! Christmas memories!
+
+おもひでぽろぽろ ... 14951 Midway Rd, Addison, TX. Right next to CompUSA. I met her the day I purchased my first digital camera, an Epson. Sometime on or after October 27, 1995 because I remember the cinema showings. "Epson PhotoPC (Sanyo VPC-G1) was effectively Epson's first consumer digital camera in the USA"? Long lost are the first photos I took of Tristan before asking her out for a date ;) https://www.youtube.com/watch?v=0hYDc_UbZDA
+
+https://groups.google.com/g/dfw.singles/c/5ps2m24UcbI/m/XLDpM2m9gcsJ Tristan and I went to this rock concert - took photos, but also long lost. <img width="1758" height="1282" alt="image" src="https://github.com/user-attachments/assets/9bb1fd05-1d77-4915-ac9e-3b219e38f6bb" />
+
 
 * the word "crawsake," which is a pun on "Christ's sake" and may allude to the animal, appears in Book I, Chapter 1, in the following passage: "So pool the begg and pass the kish for crawsake. Omen. So sigh us. Grampupus is fallen down but grinny sprids the boord. Whase on the joint of a desh? Finfoefom the Fush"
 
