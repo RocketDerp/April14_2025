@@ -4,6 +4,7 @@ https://autistics.life/@RoundSparrow/115782161758430947
 https://bsky.app/profile/roundsparrow.bsky.social/post/3matnituvts24    
 https://old.reddit.com/r/BrainDamageAbounds/comments/1pvmv18/christmas_day_putin_trump_hitler_were_not_dumb/nvxexm3/    
 https://midwest.social/post/40832839      
+https://groups.google.com/g/wwwopera/c/ZHBT9nfOq1o      
 
 &nbsp;
 
