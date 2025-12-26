@@ -2935,3 +2935,7 @@ My message. To the Reddit Hive Mind about piracy high seas tails of Dublin Steph
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pwejhv/why_was_manousos_in_carol_trunk/nw2yn4w/
 
 My Pluribus poetry, ACE BABY! 
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pwejhv/why_was_manousos_in_carol_trunk/nw33nud/
+
+Reddit comment calling "Circle Bird 12" a Navajo Chief. 
