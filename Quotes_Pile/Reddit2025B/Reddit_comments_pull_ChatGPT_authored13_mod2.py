@@ -244,7 +244,7 @@ def fetch_comment_data(url, idx=None, args=None):
         replies.decompose()
 
 
-	try:
+    try:
         body_div = comment_div.select_one(".usertext-body .md")
         comment_md = None
         if body_div:
