@@ -918,3 +918,15 @@ https://www.organism.earth/library/document/mcluhan-mcmanus
 It's been building up for a long time. All the mobile providers  / wire tapping / "The Wire" that these camera phones are connected to have been under the thumbs of corporations peering and governments. 
 
 AT&T Wireless year 2003: https://en.wikipedia.org/wiki/Room_641A
+
+https://old.reddit.com/r/TrumpOnionFans/comments/1mtn1ai/people_keep_saying_over_and_over_donald_trump_has/nvz9jm4/
+
+Russian business time zone after Christmas. A low-effort reply to me, then the Reddit account deletes as soon as this low-effort message is created. I replied for the search engines.
+
+https://old.reddit.com/r/TrumpOnionFans/comments/1mtn1ai/people_keep_saying_over_and_over_donald_trump_has/nvzp2yt/
+
+My reply.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pt6h4f/pluribus_season_1_discussion_megathread/nvz5jkv/
+
+Someone who notices the down votes on Reddit for posting their (not mine) organization efforts. And responds to happy holidays, gets some of the points of Pluribus group dynamics applied to Reddit! 
