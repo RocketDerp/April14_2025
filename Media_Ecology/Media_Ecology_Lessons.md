@@ -1511,3 +1511,25 @@ https://youtu.be/m78G3sW3tBQ?t=276 to https://www.youtube.com/watch?v=K1b8AhIsSY
 "We Built This City" from the 1985 album 'Knee Deep in the Hoopla'.
 
 https://youtu.be/m78G3sW3tBQ?t=651 2025 pluribus    
+
+&nbsp;
+
+&nbsp;
+
+# Bitpattern Purple
+
+https://old.reddit.com/r/ProgrammerHumor/comments/1pvnncw/themoreyouknow/
+
+It is Christmas day as I do this Git Commit. December 25, 2025 Thursday.  
+
+My my reckoning, Reddit society (the link context here in this media ecology lesson authored on Christmas Day in USA). doesn't memorialize goodness much at all.
+
+"Aaron Swartz, a co-founder of Reddit and a prominent internet activist, died by suicide on January 11, 2013, at the age of 26. He was found in his Brooklyn apartment by his girlfriend, Taren Stinebrickner-Kauffman." - Copyright is Brain Damage Ted Talk by Nina Paley came out not much longer. ""Copyright is Brain Damage" is a 2015 TEDxMaastricht talk by Nina Paley, an American cartoonist, animator, and free culture activist." ... "Swartz’s focus: He fought against "paywalls" for human knowledge and political censorship (like SOPA)."
+
+Good news is I'm here to stir the pot of Christmas metaphors and wonder if the Bible had copyright and paywalls how popular that story would be? 
+
+* "The Trash Stratum: The protagonist, Horselover Fat (a fictionalized version of Dick himself), believes that the "Empire" (the repressive Roman reality he believes we are still living in) hides the divine from us. He concludes that God communicates through "junk"—low-level pop culture, discarded items, and profane imagery."
+
+*  The phrase "THE VIRGIN MARY HAD STRETCH MARKS" is the opening sentence of Philip K. Dick's 1981 novel The Divine Invasion.
+
+The Word of Jesus is out now, that's a media ecology study.
