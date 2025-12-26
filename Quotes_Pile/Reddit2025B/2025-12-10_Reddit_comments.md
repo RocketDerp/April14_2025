@@ -930,3 +930,7 @@ My reply.
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pt6h4f/pluribus_season_1_discussion_megathread/nvz5jkv/
 
 Someone who notices the down votes on Reddit for posting their (not mine) organization efforts. And responds to happy holidays, gets some of the points of Pluribus group dynamics applied to Reddit! 
+
+https://old.reddit.com/r/TrumpOnionFans/comments/1mtn1ai/people_keep_saying_over_and_over_donald_trump_has/nvzqa3i/
+
+A second reply message from me. After reading the context of the message: It mentions Elon Musk, it mentions Putin. The whole deleted account message fixates on one single 78 year old person and can't grasp Fox News HDTV media addiction and Facebook media addiction and Reality TV / Reality social media issues - even with a Neil Postman quote in the message being replied to.
