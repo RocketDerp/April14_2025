@@ -2927,3 +2927,7 @@ Got a one-word reply on Christmas afternoon. A meth appreciating Walter White fa
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pt6h4f/pluribus_season_1_discussion_megathread/nvz5jkv/
 
 Someone who notices the down votes on Reddit for posting their (not mine) organization efforts. And responds to happy holidays, gets some of the points of Pluribus group dynamics applied to Reddit! 
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pw2wy8/so_manousos_learned_more_in_2_hours_than_carol/nw1yn0g/
+
+My message. To the Reddit Hive Mind about piracy high seas tails of Dublin Stephen's Hero, Finn's Hotel shagging year 1923 onward... Taking on Hive Minds with Romans 11:32 knowledge, and encoding ++ with Romans 11:33 techniques!
