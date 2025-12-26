@@ -31,3 +31,12 @@ Trump is issuing substitution / rewrites / retcon of Christmas story.
 
 https://old.reddit.com/r/50501/comments/1pvqtsg/ummm/   
 
+&nbsp;
+
+# Christmas Day, Reality not Popular
+
+Reality was also posted on Reddit Christmas Day - this posting:
+
+https://old.reddit.com/r/CringeTikToks/comments/1pvrzqj/jasmine_crockett_we_may_be_heading_towards_the/
+
+Putin has the USA in an information world war, trusting Putin. People who won't stand up for non-fiction learning and stay focused on nonfiction education. Instead, reacting to Trump all day and every day and not seeing that mob mentality has taken over the USA. Mentality, mindsets, of entertainment and attraction to Trump fiction storytelling. Stimulation by Putin and Trump. High-speed messages off Truth Social rewrite reality because f the speed, because fiction thrills the population. Nonfiction has been left behind in the dust as "boring". Donald Trump entertainment and fantasy storytelling has wrecked the USA.
