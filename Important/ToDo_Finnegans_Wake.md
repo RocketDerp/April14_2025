@@ -644,3 +644,44 @@ Joyce's concern. People who marry Allah, their "Father" in outer space Heaven / 
 https://old.reddit.com/r/todayilearned/comments/1pw64gn/til_that_a_fictional_language_wenja_was_created/
 
 Front page of Reddit: Europe languages a far cry, James Joyce John 1:1 concerns.
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+Funeral Wake Rituals    
+Birthday Christ Rituals   
+Christmas 2025 Out of Africa images    
+
+https://old.reddit.com/r/Damnthatsinteresting/comments/1pw5ixz/we_dont_have_snow_here_in_africa_but_we_had_this/
+
+I had Crawfish driveled to door by touring sellers in Arica, Chile for Christmas eve year 2014 knock on my door. My wife Tristan and I met at a crawfish (Dallas, Nate's) resultant (she was my waitress) so perfect.
+
+* the word "crawsake," which is a pun on "Christ's sake" and may allude to the animal, appears in Book I, Chapter 1, in the following passage: "So pool the begg and pass the kish for crawsake. Omen. So sigh us. Grampupus is fallen down but grinny sprids the boord. Whase on the joint of a desh? Finfoefom the Fush"
+
+* "River Liffey (Anna Livia Plurabelle): The river is personified as ALP, and crawfish live in rivers, so they're natural inhabitants of her watery domain in Dublin."
+
+* "Backwards Motion: Crawfish often move backward, a key theme in the Wake, where history repeats and language flows in reverse (e.g., "riverleafy" for Liffey)."
+
+* https://clanecommunity.ie/wild-about-clane/aquatic-life/white-clawed-crayfish/ "River Liffey at Clane. Our stretch of the river is also home to a remarkable lobster-like animal: the White-Clawed Crayfish."
+
+* Mud bugs, craw fish / cray fish / etc, all the English words for these fresh-water recirculating creatures. Very Joyce to word-shift. 
+
+* The water quality upstream of Dublin toxins is better, that is why they are rare in Dublin with all the pollution. Austropotamobius pallipes. "The section of the River Liffey in central Dublin, near locations like the Adam and Eve's Church on Merchant's Quay, is less likely to support crayfish populations due to historical water quality issues and other urban factors." church-goers poison Eden near Adam and Eve's
+
+* "Crayfish Plague: The native populations are under significant threat from crayfish plague, which has caused mass mortality events in other Irish river catchments (e.g., the River Blackwater and River Nore). Strict biosecurity measures are in place to prevent its spread."
+
+* "It is illegal to introduce any non-native species of crayfish to Ireland, and anyone intending to work with the native species requires a license from the National Parks & Wildlife Service (NPWS)."
+
+* "The "mamafesta" letter, a central element of the narrative (Book I, Chapter 5), is famously uncovered from a mound of mud by a hen scratching at the ground. This letter, written by ALP to defend her husband, is described as being stained and having "accretions of terricious matter" (earthy material)." (Mud bugs, mud hills, mud creatures)
+
+* "ALP attempting to wash away the "dirt" or guilt of her husband's rumored scandal. The water of the Liffey is frequently described as "brown and dirty," reflecting the real river's appearance and the debris of history it carries."
+
+* "The main character, HCE (Humphrey Chimpden Earwicker), is associated with an earwig (a type of bug) through a pun on his name and the German word for earwig, Ohrwurm."
+
+* "Biblical Allusion: Joyce incorporated a legend that "Cain got the idea of burial from watching an earwig beside his dead brother Abel". This links the insect to themes of guilt, original sin, and the cycle of life and death central to the book's plot."
+
+* "she recalled that a Yorkshire name for earwig is 'twitchbell'. 'Will you give me that?' said Joyce, much pleased. He remarked that an old legend recounted that Cain got the idea of burial from watching an earwig beside his dead brother Abel." - https://peterchrisp.blogspot.com/2014/01/the-earwicker-graves-in-sidlesham.html
+    * ""Twitchbell" isn't a single common term but can refer to a specific fly-fishing lure, a historical/dialect word for a small bell or clockwork sound, or even the title of a fantasy book, with its meaning depending heavily on context, but in modern digital life, it's likely associated with sound alerts for Twitch streams." ToDo: media ecology of McLuhan to Twitch streaming platform. "specific fly-fishing lure" Matthew 4:19 lure.
