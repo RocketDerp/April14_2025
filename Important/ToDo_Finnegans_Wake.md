@@ -638,3 +638,9 @@ Concerns of Finnegans Joyce teaching. Hyperlexia and quoting factual books give 
 https://old.reddit.com/r/Funnymemes/comments/1pvmg2q/yes_marry_him/
 
 Joyce's concern. People who marry Allah, their "Father" in outer space Heaven / Eden. People who reject life on living Earth for after-life science fiction stories. People who marry the father Yahweh and fund clergy storytelling to Dublin people.
+
+&nbsp;
+
+https://old.reddit.com/r/todayilearned/comments/1pw64gn/til_that_a_fictional_language_wenja_was_created/
+
+Front page of Reddit: Europe languages a far cry, James Joyce John 1:1 concerns.
