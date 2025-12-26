@@ -657,7 +657,7 @@ Christmas 2025 Out of Africa images
 
 https://old.reddit.com/r/Damnthatsinteresting/comments/1pw5ixz/we_dont_have_snow_here_in_africa_but_we_had_this/
 
-I had Crawfish driveled to door by touring sellers in Arica, Chile for Christmas eve year 2014 knock on my door. My wife Tristan and I met at a crawfish (Dallas, Nate's) resultant (she was my waitress) so perfect.
+I had Crawfish delivered to front door by touring sellers in Arica, Chile for Christmas eve (Wednesday too) year 2014 knock on my door. My wife Tristan and I met at a crawfish (Dallas, Nate's) restaurant https://www.natesseafood.com/  (she was my waitress) ... so, so perfect! Christmas memories! おもひでぽろぽろ
 
 * the word "crawsake," which is a pun on "Christ's sake" and may allude to the animal, appears in Book I, Chapter 1, in the following passage: "So pool the begg and pass the kish for crawsake. Omen. So sigh us. Grampupus is fallen down but grinny sprids the boord. Whase on the joint of a desh? Finfoefom the Fush"
 
