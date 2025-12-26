@@ -177,3 +177,5 @@ inspired by: https://old.reddit.com/r/interestingasfuck/comments/1psd1bd/organ_t
 Sufraintelligent - Steely Dan reference, Word (John 1:1) that sounds insulting but isn't.    
 
 Convincing Woke   
+
+Surfing Cesspools ( Surfing the WWW, Vince Gilligan 2025: Social media cesspools )    
