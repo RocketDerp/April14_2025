@@ -27,7 +27,7 @@ from html_to_markdown import convert_to_markdown
 
 # Global variables
 
-HEADERS = {"User-Agent": "Mozilla/5.0"}
+HEADERS = {"User-Agent": "Pluribus TV project"}
 errorCountB = 0
 
 
