@@ -690,3 +690,44 @@ https://groups.google.com/g/dfw.singles/c/5ps2m24UcbI/m/XLDpM2m9gcsJ Tristan and
 
 * "she recalled that a Yorkshire name for earwig is 'twitchbell'. 'Will you give me that?' said Joyce, much pleased. He remarked that an old legend recounted that Cain got the idea of burial from watching an earwig beside his dead brother Abel." - https://peterchrisp.blogspot.com/2014/01/the-earwicker-graves-in-sidlesham.html
     * ""Twitchbell" isn't a single common term but can refer to a specific fly-fishing lure, a historical/dialect word for a small bell or clockwork sound, or even the title of a fantasy book, with its meaning depending heavily on context, but in modern digital life, it's likely associated with sound alerts for Twitch streams." ToDo: media ecology of McLuhan to Twitch streaming platform. "specific fly-fishing lure" Matthew 4:19 lure.
+
+&nbsp;
+
+&nbsp;
+
+# Year 1210 Troubadours German
+
+* "Troubadours flourished in the 12th century, with their "golden age" specifically between roughly 1170 and 1213, though the broader movement started earlier (late 11th century) and extended into the 13th century"
+
+https://old.reddit.com/r/interestingasfuck/comments/1pwc3ww/in_1140_a_german_king_captured_a_castle_and_made/    
+Day after Christmas, front page of Reddit.       
+
+"Power of Myth" 1988 book that George Lucas filmed:    
+
+JOSEPH CAMPBELL: I’d begin with the troubadours in the twelfth century.
+
+BILL MOYERS: And who were they?
+
+CAMPBELL: The troubadours were the nobility of Provence and then later other parts of France and Europe. **In Germany they’re known as the Minnesingers, the singers of love. Minne** is the medieval German word for love.
+
+MOYERS: Were they the poets of their age?
+
+...
+
+CAMPBELL: The tests that were given then involved, for example, sending a chap out to guard a bridge. The traffic in the Middle Ages was somewhat encumbered by these youths guarding bridges. But also the tests included going into battle. A woman who was too ruthless in asking her lover to risk real death before she would acquiesce in anything was considered sauvage or “savage.” Also, the woman who gave herself without the testing was “savage.” There was a very nice psychological estimation game going on here.
+
+MOYERS: The troubadours weren’t aiming, were they, to dissolve marriages or the world, nor was their aim carnal intercourse, lust, or even the quenching of the soul of God. You write, “Rather, they celebrated life directly in the experience of love as a refining, sublimating force, opening the heart to the sad bittersweet melody of being through love, one’s own anguish and one’s own joy.” They weren’t trying to destroy things, were they?
+
+CAMPBELL: No, you see, that motive of power was not what was in them. It was the motive of personal experience and sublimation. It’s quite different. There was no direct attack on the Church. The idea was to sublimate life into a spiritual plane of experiences.
+
+MOYERS: Love is right in front of me. Amor is the path directly before me, the eyes—
+
+CAMPBELL: —the meeting of the eyes, that idea. “So through the eyes love attains the heart: / For the eyes are the scouts of the heart.”
+
+MOYERS: What was it that the troubadours learned about the psyche? We’ve heard about the psyche—Eros loved Psyche—and we’re told in our day that you must understand your psyche. What did the troubadours discover about the human psyche?
+
+CAMPBELL: What they discovered was a certain individual aspect of it that cannot be talked about in purely general terms. The individual experience, the individual commitment to experience, the individual believing in his experience and living it—that is the main point here.
+
+MOYERS: So love is not love in general, it is love for that woman?
+
+CAMPBELL: For that one woman. That’s right.
