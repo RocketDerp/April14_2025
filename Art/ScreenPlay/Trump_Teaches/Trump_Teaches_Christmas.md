@@ -21,3 +21,13 @@ https://www.rawstory.com/alternet-posts/trump-truth-social-christmas/
 The Daily Beast: "Nearly 200 Times"     
 https://www.thedailybeast.com/trump-posts-nearly-200-times-in-unhinged-christmas-day-spree/
 
+&nbsp;
+
+&nbsp;
+
+# Overwriting Bible concepts
+
+Trump is issuing substitution / rewrites / retcon of Christmas story.
+
+https://old.reddit.com/r/50501/comments/1pvqtsg/ummm/   
+
