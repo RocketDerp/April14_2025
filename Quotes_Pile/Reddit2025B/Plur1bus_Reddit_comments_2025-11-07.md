@@ -2923,3 +2923,7 @@ My own message. the A. B. C. countup we all think of. It's even wore than it app
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pvdjb9/the_container_whats_in_the_box/nvx9t1v/
 
 Got a one-word reply on Christmas afternoon. A meth appreciating Walter White fan, Saul Goodman fan?
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pt6h4f/pluribus_season_1_discussion_megathread/nvz5jkv/
+
+Someone who notices the down votes on Reddit for posting their (not mine) organization efforts. And responds to happy holidays, gets some of the points of Pluribus group dynamics applied to Reddit! 
