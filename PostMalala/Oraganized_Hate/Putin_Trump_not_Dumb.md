@@ -36,3 +36,21 @@ The word "Myth" is right in there, as is the 1980's. On the Christmas Day Reddit
 # Christmas Today 
 
 Donald Trump isn't *dumb*. Trump understands that magical **Christmas "baby-daddy" stories** of outer-space alien pregnancy outsell science and nonfiction. Donald Trump isn't stupid, he knows that fiction is way more popular to his fandoms. Merry Christmas, who is the Baby-Daddy of Jesus? Trump understand people want Truth Social to be fiction wild sex stories. Putin understands, Murdoch understands, Musk understands. They are not dumb about fiction vs. nonfiction when it comes to audience popularity.
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+# The Day After
+
+The Day After Christmas     
+Morning USA Friday December 26, 2025
+
+Google Search shows the Reddit posting. And look at the next result, nonsense about how other art work supports anti-goodness messages. Romans 11:32 Bible verse, Jesus is the very source of sinners, the father fro outer-space who magically got Mary pregnant with the baby Jesus. Hollywood isn't allowed to make science fiction stories like Star Wars according to this Facebook preacher who got into Google Search results! Apparently, only ONE science fiction book is perfect, the Levant Bible from 2,000 years ago and James Joyce's Finnegans Wake science fiction story from year 1923 / 1924 onward isn't able to outdo the Bible after 1,900 years. A Christian Preacher that says ONLY the story of Christ is the true science fiction storytelling.
+
+Anyway... layered enough redundancy on this Christmas Day message about { Putin, Trump, Murdoch, Musk } and their science fiction Twitter and Truth Social venues. Reddit and Facebook need to be woke to science fiction fandom behaviors on Christmas Day and Trump $59.99 Bible imported from the Middle East. Thomas Jefferson year 1820 Bible edits from 200 years ago aren't even known to Americans who wave the flag! Anyway... enough layered redundancy on this Christmas garlic / onion?
+
+<img width="2582" height="1282" alt="image" src="https://github.com/user-attachments/assets/506c05d4-7467-47ba-a339-4c695a62f096" />
+
