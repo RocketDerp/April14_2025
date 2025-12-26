@@ -25,6 +25,10 @@ from html_to_markdown import convert_to_markdown
 #   NSFW postings comment links error the code. I've just been interactively ending the error timing.
 #
 
+# **********
+# ***** Hacky checkin with lots of commented junk
+# **********
+
 # Global variables
 
 HEADERS = {"User-Agent": "Pluribus TV project"}
