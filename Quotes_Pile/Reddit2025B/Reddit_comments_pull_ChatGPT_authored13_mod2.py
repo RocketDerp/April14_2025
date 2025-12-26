@@ -25,10 +25,6 @@ from html_to_markdown import convert_to_markdown
 #   NSFW postings comment links error the code. I've just been interactively ending the error timing.
 #
 
-# **********
-# ***** Hacky checkin with lots of commented junk
-# **********
-
 # Global variables
 
 HEADERS = {"User-Agent": "Pluribus TV project"}
@@ -236,15 +232,54 @@ def fetch_comment_data(url, idx=None, args=None):
     soup = BeautifulSoup(html_text, "html.parser")
 
 
-    comment_div = soup.find("div", id=comment_div_id)
-    if not comment_div:
-        print("using fallback method to find comment")
-        comment_div = soup.find("div", attrs={"data-fullname": f"t1_{comment_id}"})
+    #comment_div = soup.find("div", id=comment_div_id)
+    #comment_div = soup.select_one(f"#{comment_div_id} > .entry .md")
+    #comment_div = soup.select_one(f"#{comment_div_id} > .entry")
+    # comment_div = soup.select_one(f"div#{comment_div_id} > .entry")
+    
+    # will contain reply comments too:
+    #wrapper_div = soup.find("div", id=comment_div_id)
+    
+    #comment_div = soup.find("div", class_="entry", recursive=False)
+    
+    
+    
+    
+    comment_div = soup.find("div", attrs={"data-fullname": f"t1_{comment_id}"})
+    # comment_div = soup.select_one(f'div[data-fullname="t1_{comment_id}"] .usertext-body')
+    # comment_div = soup.find("div", attrs={"data-fullname": f"t1_{comment_id} > .entry"})
+    
+
+
+    #if not comment_div:
+        #print(f"using fallback method to find comment {comment_id}")
+        #comment_div = soup.find("div", attrs={"data-fullname": f"t1_{comment_id}"})
+        
+        
             
     if not comment_div:
         raise ValueError(f"Could not find comment div with id t1_{comment_id} on page {url}")
 
-    print("processing comment")
+    print(f"processing comment {comment_id}")
+    
+    
+    
+    # Find the nested div that contains all child/reply comments and remove it
+    replies = comment_div.find("div", class_="child")
+    if replies:
+        replies.decompose()
+    
+    
+    # here is the problem. If the comment has a reply...
+    #   the reply is also in this chunk of html
+    #   cut off at <ul class="flat-list buttons">
+    
+    #print(comment_div)
+    #print("checkpoint examine exit");
+    #sys.exit()
+    
+    
+        
     try:
         body_div = comment_div.select_one(".usertext-body .md")
         comment_md = None
