@@ -1551,7 +1551,7 @@ Saturday December 27, 2025 Christmas Season USA MAGA 2025 values
 
 Media ecology discussions on this Reddit front page posting:
 
-* Rick Roderick 1993: "a book in the sixties called “The Society of the Spectacle“. And what it was about, was about how when capitalism reached a certain level of accumulation, commodities began to detach themselves and become images. And citizens who formerly had played roles as political actors began to detach themselves from their own lives and become spectators." https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
+* Rick Roderick 1993: "a book in the sixties called “The Society of the Spectacle“. And what it was about, was about how when capitalism reached a certain level of accumulation, commodities began to **detach themselves and become images**. And citizens who formerly had played roles as political actors began to **detach themselves from their own lives and become spectators**." https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
 
 * NYU Neil Postman's 1985 book: “In courtrooms, classrooms, operating rooms, board rooms, churches and even airplanes, Americans no longer talk to each other, they entertain each other. They do not exchange ideas, **they exchange images**. They do not argue with propositions; **they argue with good looks**, celebrities and commercials.” ― [Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. Year 1985. Page 92](https://books.google.com/books?id=zGkhbPEjkRoC&pg=PA92&dq=Americans+no+longer+talk+to+each+other,+they+entertain+each+other.+They+do+not+exchange+ideas,+they+exchange+images+inauthor:postman&hl=en&newbks=1&newbks_redir=1&sa=X)
 
