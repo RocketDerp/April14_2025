@@ -3060,3 +3060,8 @@ I think it's a very deep show about how audiences interact with a story about le
 > If Carol detonates a Nuke, she kills herself 
 
 Carol seems more like the drunk diving self-harm type. At least she lets the hive mind fly the airplanes and helicopters for her.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1px7owu/i_really_like_the_show/nw9o1bu/
+
+My comment message.
+
