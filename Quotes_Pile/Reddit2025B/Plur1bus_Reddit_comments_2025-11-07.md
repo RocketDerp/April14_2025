@@ -3002,6 +3002,8 @@ I could go on, but I've already spent over 25 minutes thinking and composing thi
 
 Maybe a story about the last man on earth based on The Twilight Zone is making a point about books?  Maybe a point about people's values at the end of the world concerning books? Maybe how some books are considered perfect and all other books are considered errors and imperfect? And you would end such a story season on Christmas Eve Day holiday season, about one of the most legendary science fiction books of all mankind? The Bible book? A story about an alien who invades Earth and gets a virgin pregnant...
 
-Or, maybe book is mentioned every single episode.... inspired by Twilight Zone... "That famous Twilight Zone episode is "Time Enough at Last," featuring bookish bank teller Henry Bemis (played by Burgess Meredith), who survives a nuclear apocalypse"
+Or, maybe book is mentioned every single episode.... inspired by Twilight Zone... "That famous Twilight Zone episode is "Time Enough at Last," featuring bookish bank teller Henry Bemis (played by Burgess Meredith), who survives a nuclear apocalypse" 
+
+* the actress of the character Carol in published public interviews even said if the world ended she would want to read books. https://youtu.be/kFrffEktluo?t=3083
 
 February 15, 2025 writers guild of America the screenplay writer of the show gave a lecture about cesspools.
