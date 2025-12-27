@@ -2962,7 +2962,7 @@ Let's start from the very top of the show
 
 7. Airport on the way home, they re-arrange the order of books on display
 
-8. After the book tour ends.. they go to a public house for drinks and discuss an unpublished book "Bitter Chrysalis"
+8. After the book tour ends.. they go to a public house for drinks and smokes and discuss an unpublished book "Bitter Chrysalis"
 
 9. Wife talks about graduate school at a university where the most difficult book ever created in all human history is discussed. At the Zero Hour of the countdown, a specific book - the most legendary book in modern times. The world ends.
 
