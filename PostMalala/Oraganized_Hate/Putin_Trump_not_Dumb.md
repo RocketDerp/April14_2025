@@ -59,7 +59,7 @@ Anyway... layered enough redundancy on this Christmas Day message about { Putin,
 
 &nbsp;
 
-# Dependent of Homeland Security (DHS)
+# Department of Homeland Security (DHS)
 
 Friday, December 26, 2025 Reddit Home Page     
 Twitter tweet by the DHS     
