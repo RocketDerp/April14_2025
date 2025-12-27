@@ -55,3 +55,23 @@ Anyway... layered enough redundancy on this Christmas Day message about { Putin,
 
 <img width="2582" height="1282" alt="image" src="https://github.com/user-attachments/assets/506c05d4-7467-47ba-a339-4c695a62f096" />
 
+&nbsp;
+
+&nbsp;
+
+# Dependent of Homeland Security (DHS)
+
+Friday, December 26, 2025 Reddit Home Page     
+Twitter tweet by the DHS     
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1pwazi6/those_who_do_not_learn_the_lessons_of_history/
+
+The New Republic     
+https://newrepublic.com/post/204766/trump-dhs-christmas-posts-first-amendment     
+By Edith Olmsted on December 26, 2025/3:46 p.m. ET                 
+"The Department of Homeland Security’s tasteless holiday shitposting may have just violated the United States Constitution. The federal agency’s official X account published multiple posts Thursday that appeared to violate the Establishment Clause, which prohibits government actions that favor one religion over another."
+
+&nbsp;
+
+Putin is not stupid dumb, Trump is not stupid dumb / Twitter owner Elon Musk where this was posted is not stupid dumb. We The People are not Woke to media ecology that Jesus science fiction and Santa Claus science fiction outsell nonfiction sincere leadership. Donald Trump governs by fiction storytelling. He can say anything and do anything he wishes, because in fiction anything goes. It isn't dumb, it's what Putin mastered and how Putin leads the nation. Audiences, We The People, flock to shitpostings and fictions.
+
