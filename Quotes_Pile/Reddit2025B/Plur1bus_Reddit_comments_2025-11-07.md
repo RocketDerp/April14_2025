@@ -3007,3 +3007,11 @@ Or, maybe book is mentioned every single episode.... inspired by Twilight Zone..
 * the actress of the character Carol in published public interviews even said if the world ended she would want to read books. https://youtu.be/kFrffEktluo?t=3083
 
 February 15, 2025 writers guild of America the screenplay writer of the show gave a lecture about cesspools.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pwxnwn/pluribus_is_at_its_core_a_prestige_tv_lesbian/nw6zz0w/
+
+My comment message.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pwxnwn/pluribus_is_at_its_core_a_prestige_tv_lesbian/nw6zfpm/
+
+Media ecology, someone finally noticed!
