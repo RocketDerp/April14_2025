@@ -2939,3 +2939,69 @@ My Pluribus poetry, ACE BABY!
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pwejhv/why_was_manousos_in_carol_trunk/nw33nud/
 
 Reddit comment calling "Circle Bird 12" a Navajo Chief. 
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pwjys8/getting_something_off_my_chest_ep9/nw43wq0/
+
+The entire posting, this comment is by the creator of the posting. [Carl (Carol) Sagan wrote a book about social media in 1995, Science as a Candle book, where he described electric media consumers as "Celebration of Ignorance" - television fandoms of "Dumb and Dumber.](../Carl_Sagan_Quotes.md) My reply:
+
+>  that one is possible, but I would say it would be better to get the science figured out first, translate it after. And yes - I’m nitpicking a TV show.
+
+Let's start from the very top of the show
+
+1. Book store, book selling
+
+2. Book fandom
+
+3. Book signing
+
+4. Book tour
+
+5. Book author
+
+6. Wife of a book publicist / book promoter
+
+7. Airport on the way home, they re-arrange the order of books on display
+
+8. After the book tour ends.. they go to a public house for drinks and discuss an unpublished book "Bitter Chrysalis"
+
+9. Wife talks about graduate school at a university where the most difficult book ever created in all human history is discussed. At the Zero Hour of the countdown, a specific book - the most legendary book in modern times. The world ends.
+
+10. Author character, protagonist, is depicted at a swimming pool reading a book by Ursula K. Le Guin
+
+11. Author character, protagonist, is depicted reading a book before going to bed. Agatha Christie
+
+12. Author is depicted writing a new book. Draft of chapter one, and interacting with a worldwide fandom of the book.
+
+I would make the bold assertion: this is a television story that is making a point about reading, books, writing, Gutenberg printing press, etc. It also seems to make a point about recording video and mailing them out to strangers. And ham radio / "A Radio Shack", listening to outer space radio messages, etc.
+
+&nbsp;
+
+>  I would say it would be better to get the science figured out first, translate it after. 
+
+1. I would say it would be better to trust people who say you can have gasoline than put it into your mouth. It is highly toxic
+
+2. I would say it would be better to hitch-hike and trust a stranger for a ride in a car or a flying machine than grind like life is a video game of avoiding human contact.
+
+3. I would say it is better to love and forgive your mother and be glad she is alive, even if she got a disease like dementia or Alzheimer's and lost her mind. Better than calling your mother a collection of horrible words
+
+4. When Carol, who steals police cars, says in dialog in front of the audience that you have odd set of values stealing an ambulance... maybe the writers of a story are trying to make a point.
+
+5. When you don't trust any packaged or canned food anywhere except from your own personal stash or cans of dog food from your own familiar storage unit - but think every grocery store and person you encounter is out to poison you and only you - that you eat dog food from a can...
+
+6. I would say if you have to park your car, burning it with gasoline in a ritual fashion seems destructive and damaging to the environment and a dozen other points I won't write on a Reddit comment very few people will read because my comment isn't "TlDR", "ELI4".
+
+7. I would say a modern smartphone can translate English to other languages and that the main character made this point while standing under a pink umbrella. Even in offline mode, humanity has created tools like ham radios in a "Radio Shack" and translation tools.
+
+I could go on, but I've already spent over 25 minutes thinking and composing this Reddit reply.
+
+&nbsp;
+
+* "Religious masochism involves finding spiritual meaning or benefit in self-inflicted suffering, pain, or humiliation, often through practices like extreme fasting, self-flagellation, or intense guilt, to achieve spiritual purification, express devotion, atone for sin, or emulate Christ, though it can also manifest as psychological obsession with transgression (scrupulosity) or theological frameworks that glorify powerlessness. It bridges psychological concepts of finding pleasure or purpose in pain with religious motivations"
+
+&nbsp;
+
+Maybe a story about the last man on earth based on The Twilight Zone is making a point about books?  Maybe a point about people's values at the end of the world concerning books? Maybe how some books are considered perfect and all other books are considered errors and imperfect? And you would end such a story season on Christmas Eve Day holiday season, about one of the most legendary science fiction books of all mankind? The Bible book? A story about an alien who invades Earth and gets a virgin pregnant...
+
+Or, maybe book is mentioned every single episode.... inspired by Twilight Zone... "That famous Twilight Zone episode is "Time Enough at Last," featuring bookish bank teller Henry Bemis (played by Burgess Meredith), who survives a nuclear apocalypse"
+
+February 15, 2025 writers guild of America the screenplay writer of the show gave a lecture about cesspools.
