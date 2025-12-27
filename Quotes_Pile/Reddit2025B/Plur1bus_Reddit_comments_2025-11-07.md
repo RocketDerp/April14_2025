@@ -3015,3 +3015,7 @@ My comment message.
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pwxnwn/pluribus_is_at_its_core_a_prestige_tv_lesbian/nw6zfpm/
 
 Media ecology, someone finally noticed!
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1px5t9h/pluribus_is_a_libertarians_wet_dream/nw8tuqm/
+
+My comment message to assert the social media fandom behaviors towards women and why women characters have no respect for fandoms.
