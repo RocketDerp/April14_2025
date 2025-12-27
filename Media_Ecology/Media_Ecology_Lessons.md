@@ -1542,7 +1542,7 @@ The Word of Jesus is out now, that's a media ecology study.
 
 # Reddit Male Device Gaze
 
-Masked as "Just a joke" like USA Reddit leader Truth Social is "just joking" about women / girls by a Reality TV leader....
+Masked as "Just a joke" like USA Reddit society that follows *the leader* Truth Social USA is "just joking" (satire, sarcasm, jokes, memes, amusement mill) about women / girls by a Reality TV leader...
 
 The Male Gaze of: not entertaining enough. Women must express their emotions to my television expectations, to my Reddit image consumption and grading of emotions allowed. The machine touch device gaze of Apple iPhone / Apple iPad and the knock-off Android brands of behaving like an android media consumer of women.
 
