@@ -946,3 +946,7 @@ People don't get the celebrity influence of Donald Trump since June 16, 2015 upo
 https://old.reddit.com/r/Fauxmoi/comments/1pwj9no/which_star_from_a_huge_netflix_tv_show_is_rumored/nw4ggpd/
 
 Like the USA attraction to the hate and mocking of Trump. Hate itself is an attraction to people like buildings burning down and fireworks / explosions. People admire and think war heroes are the greatest people on earth for murdering and killing while mocking away serious nonfiction learning as "boring" and "unattractive". Trump is a force people don't realize they are driven by, as Marshall McLuhan's media ecology teaching has been abandoned about the force of television shows like Stranger Things and Reddit high-speed electric media.
+
+https://old.reddit.com/r/ExplainTheJoke/comments/1px1che/whats_wrong_with_the_frame/nw92z3n/
+
+People only seem to think images can be manipulated or distorted by computers. That humanity hasn't had techniques and problems and misreadings / misinterpretations before generative A.I. became mainstream in late year 2022.
