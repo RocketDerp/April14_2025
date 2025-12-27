@@ -3065,3 +3065,10 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1px7owu/i_really_like_the_show
 
 My comment message.
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1px3v64/temporal_compass/nw8grdj/
+
+People on Reddit seem incredibly avoidant of books about the show. Vince Gilligan knows his audience, the cesspools of social media he declared February 15, 2025. My reply comment:
+
+> have you read the excerpt from Carol's book?
+
+Audience here seems very avoidant of book reading and gives responses like you got, "What, excuse me, the fuck?" when you cite a book.
