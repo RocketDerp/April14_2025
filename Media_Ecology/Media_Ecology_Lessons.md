@@ -1540,6 +1540,8 @@ The Word of Jesus is out now, that's a media ecology study.
 
 &nbsp;
 
+&nbsp;
+
 # Reddit Male Device Gaze
 
 Masked as "Just a joke" like USA Reddit society that follows *the leader* Truth Social USA is "just joking" (satire, sarcasm, jokes, memes, amusement mill) about women / girls by a Reality TV leader...
@@ -1548,6 +1550,9 @@ The Male Gaze of: not entertaining enough. Women must express their emotions to 
 
 https://old.reddit.com/r/shittymoviedetails/comments/1pwx8hi/stanger_things_2025_what_emotion_is_this/    
 Saturday December 27, 2025 Christmas Season USA MAGA 2025 values     
+**"Stanger Things [2025] What emotion is this?"**    
+
+&nbsp;
 
 Media ecology discussions on this Reddit front page posting:
 
