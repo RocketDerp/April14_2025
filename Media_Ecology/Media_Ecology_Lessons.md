@@ -1533,3 +1533,32 @@ Good news is I'm here to stir the pot of Christmas metaphors and wonder if the B
 *  The phrase "THE VIRGIN MARY HAD STRETCH MARKS" is the opening sentence of Philip K. Dick's 1981 novel The Divine Invasion.
 
 The Word of Jesus is out now, that's a media ecology study.
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+# Reddit Male Device Gaze
+
+Masked as "Just a joke" like USA Reddit leader Truth Social is "just joking" about women / girls by a Reality TV leader....
+
+The Male Gaze of: not entertaining enough. Women must express their emotions to my television expectations, to my Reddit image consumption and grading of emotions allowed. The machine touch device gaze of Apple iPhone / Apple iPad and the knock-off Android brands of behaving like an android media consumer of women.
+
+https://old.reddit.com/r/shittymoviedetails/comments/1pwx8hi/stanger_things_2025_what_emotion_is_this/    
+Saturday December 27, 2025 Christmas Season USA MAGA 2025 values     
+
+Media ecology discussions on this Reddit front page posting:
+
+* Rick Roderick 1993: "a book in the sixties called “The Society of the Spectacle“. And what it was about, was about how when capitalism reached a certain level of accumulation, commodities began to detach themselves and become images. And citizens who formerly had played roles as political actors began to detach themselves from their own lives and become spectators." https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
+
+* NYU Neil Postman's 1985 book: “Americans no longer talk to each other, they entertain each other. They do not exchange ideas, they exchange images. They do not argue with propositions; they argue with good looks, celebrities and commercials.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. Year 1985. Page x
+
+Men on Reddit paid for their Netflix subscription and want women who perform sexually as women should emote for them... that's the joking humor amusement of Reddit culture of alpha males [following MAGA](https://www.youtube.com/watch?v=s-bKFo30o2o) values of what's good in obedient women for consumers.
+
+Interesting media experience: an explicit exact search on YouTube does not return the result in the first 10 or beyond... 2025-12-27 morning USA
+
+<img width="2598" height="1464" alt="Screenshot from 2025-12-27 08-22-32" src="https://github.com/user-attachments/assets/60c5b10a-e531-4942-a1e9-1dc4b0d0be5a" />
+
+&nbsp;
