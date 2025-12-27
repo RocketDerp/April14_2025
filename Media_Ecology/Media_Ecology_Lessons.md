@@ -1569,3 +1569,31 @@ Interesting media experience: an explicit exact search on YouTube does not retur
 <img width="2598" height="1464" alt="Screenshot from 2025-12-27 08-22-32" src="https://github.com/user-attachments/assets/60c5b10a-e531-4942-a1e9-1dc4b0d0be5a" />
 
 &nbsp;
+
+&nbsp;
+
+&nbsp;
+
+# Imagining Languages: Ears Eyes
+
+https://old.reddit.com/r/todayilearned/comments/1pwyyr7/til_that_when_people_born_deaf_develop/     
+Saturday, December 27, 2025 front page of Reddit    
+
+Media ecology study:
+
+1. “Schizophrenia may be a necessary consequence of literacy.” ― Marshall McLuhan, La galaxia Gutenberg: Génesis del homo typographicus. Page 32.
+
+2. 1970 lecture at Cooper Union in New York by a professor of Sarah Lawrence College for women. "National Educational Radio presents the Cooper Union Forum, a program recorded at the Great Hall of the Cooper Union in New York City by station WNYC. This presentation, a lecture by Dr. Joseph Campbell entitled "Inward Journey: Schizophrenia and Mythology" is introduced by Dr. Johnson Fairchild." https://www.wnyc.org/story/dr-joseph-campbell-inward-journey-schizophrenia-and-mythology/
+
+&nbsp;
+
+"The Gutenberg Galaxy: The Making of Typographic Man is a **1962 book** by Marshall McLuhan, in which he analyzes the effects of mass media, especially the printing press, on European culture and human consciousness. It popularized the term global village" https://en.wikipedia.org/wiki/The_Gutenberg_Galaxy
+
+Google Books search does not return the page number. And does not have earlier editions of a book about books. 
+
+<img width="2370" height="952" alt="image" src="https://github.com/user-attachments/assets/6edd5a3d-227d-445b-855b-dfd5317f1e47" />
+
+&nbsp;
+
+Imagine sign languages, symbolism languages: Earwicker, Eyewicker, James Joyce's "Here Comes Everybody" story. "In the dream-world of the *Wake*, senses are dormant except for hearing, which Joyce believed "is always awake" because you cannot close your ears." OPERA_A Visual paintings, dreamer in the mind.
+The boats sailing away, all the row of re-circulation out of Noah's Ark stories... https://www.youtube.com/watch?v=2CZ8ossU4pc  All the languages, Latin. How to sing from a Joyce book of ReJoyce, SingSong. 5,202,934 views March 28, 2012
