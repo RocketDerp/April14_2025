@@ -1950,3 +1950,8 @@ https://old.reddit.com/r/memes/comments/1ptr61n/always_intresting/
 
 Front page of Reddit approaching Christmas / Jesus birthday parties. This is the very mechanism of power for Putin and Trump. [Putin just came out this week saying child sex marriages were long-standing tradition](/PostMalala/Marriage/World_Malala_Timeline_Year_2012.md#putin-confirms-december-2025) (like Christmas rituals traditions). Trump hosts teenage sex media events. This is what attracts loyalty awake audiences. This media content behavior is why Donald Trump has more power than anyone in world history for over a full decade. His legendary sex life that audiences want, celebrity sex tapes of discussing play by play of his conquest of babies and children. Look at the [year 2012 timeline of what draws an audience on little girls being sexually targeted](/PostMalala/Marriage/World_Malala_Timeline_Year_2012.md) and abused with media consumers / popular audience attraction and engagement. Trump is the World Wide Web content leader of global attraction to little girl predatory action for hours of hours per day of touch device audiences.
 
+&nbsp;
+
+https://old.reddit.com/r/memes/comments/1px4h9z/youd_be_arrested_but_it_would_be_funny_as_hell/
+
+Front page of Reddit. Funny-washing comedy-washing Epstein document topics. Isn't it funny as hell to joke and meme about all the entertainment Putin / Epstein provide leading around male leaders like Trump! How young girls are depicted in this Reddit image and how young girls are abused by old powerful white men like Epstein and Putin to lead the Reddit audience of meme addicts. So funny, so amusing, the great comedy that Surkov students provide to Reddit audiences!
