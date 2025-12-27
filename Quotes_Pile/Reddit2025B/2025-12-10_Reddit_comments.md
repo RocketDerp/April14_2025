@@ -939,3 +939,6 @@ https://old.reddit.com/r/northcounty/comments/1pmtsly/just_had_a_very_odd_and_sc
 
 The content consumers spiritual church...
 
+https://old.reddit.com/r/northcounty/comments/1pmtsly/just_had_a_very_odd_and_scary_interaction_with/nushtiz/
+
+People don't get the celebrity influence of Donald Trump since June 16, 2015 upon the population. Trump loves the spotlight, and audiences adore his attraction to media systems / media machines. People prize hate and prize high-speed media power.
