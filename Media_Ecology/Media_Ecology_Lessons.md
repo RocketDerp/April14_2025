@@ -1553,7 +1553,7 @@ Media ecology discussions on this Reddit front page posting:
 
 * Rick Roderick 1993: "a book in the sixties called “The Society of the Spectacle“. And what it was about, was about how when capitalism reached a certain level of accumulation, commodities began to detach themselves and become images. And citizens who formerly had played roles as political actors began to detach themselves from their own lives and become spectators." https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
 
-* NYU Neil Postman's 1985 book: “Americans no longer talk to each other, they entertain each other. They do not exchange ideas, they exchange images. They do not argue with propositions; they argue with good looks, celebrities and commercials.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. Year 1985. Page x
+* NYU Neil Postman's 1985 book: “Americans no longer talk to each other, they entertain each other. They do not exchange ideas, they exchange images. They do not argue with propositions; they argue with good looks, celebrities and commercials.” ― [Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. Year 1985. Page 92](https://books.google.com/books?id=zGkhbPEjkRoC&pg=PA92&dq=Americans+no+longer+talk+to+each+other,+they+entertain+each+other.+They+do+not+exchange+ideas,+they+exchange+images+inauthor:postman&hl=en&newbks=1&newbks_redir=1&sa=X)
 
 Men on Reddit paid for their Netflix subscription and want women who perform sexually as women should emote for them... that's the joking humor amusement of Reddit culture of alpha males [following MAGA](https://www.youtube.com/watch?v=s-bKFo30o2o) values of what's good in obedient women for consumers.
 
