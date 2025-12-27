@@ -942,3 +942,7 @@ The content consumers spiritual church...
 https://old.reddit.com/r/northcounty/comments/1pmtsly/just_had_a_very_odd_and_scary_interaction_with/nushtiz/
 
 People don't get the celebrity influence of Donald Trump since June 16, 2015 upon the population. Trump loves the spotlight, and audiences adore his attraction to media systems / media machines. People prize hate and prize high-speed media power.
+
+https://old.reddit.com/r/Fauxmoi/comments/1pwj9no/which_star_from_a_huge_netflix_tv_show_is_rumored/nw4ggpd/
+
+Like the USA attraction to the hate and mocking of Trump. Hate itself is an attraction to people like buildings burning down and fireworks / explosions. People admire and think war heroes are the greatest people on earth for murdering and killing while mocking away serious nonfiction learning as "boring" and "unattractive". Trump is a force people don't realize they are driven by, as Marshall McLuhan's media ecology teaching has been abandoned about the force of television shows like Stranger Things and Reddit high-speed electric media.
