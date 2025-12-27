@@ -1542,7 +1542,7 @@ The Word of Jesus is out now, that's a media ecology study.
 
 &nbsp;
 
-# Reddit Male Device Gaze
+# Reddit Male [*Χ-Mas](https://en.wikipedia.org/wiki/Xmas) Device* Gaze
 
 Masked as "Just a joke" like USA Reddit society that follows *the leader* Truth Social USA is "just joking" (satire, sarcasm, jokes, memes, amusement mill) about women / girls by a Reality TV leader...
 
