@@ -1560,7 +1560,9 @@ Media ecology discussions on this Reddit front page posting:
 
 * NYU Neil Postman's 1985 book: “In courtrooms, classrooms, operating rooms, board rooms, churches and even airplanes, Americans no longer talk to each other, they entertain each other. They do not exchange ideas, **they exchange images**. They do not argue with propositions; **they argue with good looks**, celebrities and commercials.” ― [Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. Year 1985. Page 92](https://books.google.com/books?id=zGkhbPEjkRoC&pg=PA92&dq=Americans+no+longer+talk+to+each+other,+they+entertain+each+other.+They+do+not+exchange+ideas,+they+exchange+images+inauthor:postman&hl=en&newbks=1&newbks_redir=1&sa=X)
 
-Men on Reddit paid for their Netflix subscription and want women who perform sexually as women should emote for them... that's the joking humor amusement of Reddit culture of alpha males [following MAGA](https://www.youtube.com/watch?v=s-bKFo30o2o) values of what's good in obedient women for consumers.
+* Christmas Jesus context of MAGA: "So, it’s an extreme case that we have in the Bible, and our own Western subjugation of the female is a function of biblical thinking." - George Lucas filmed lessons for world Star Wars male fandom (original 1977 trilogy) [year 1988 book "Power of Myth" teaching book. Page 216](https://books.google.com/books?id=2GOIGuh5GJ4C&pg=PA216&dq=%22So,+it%E2%80%99s+an+extreme+case+that+we+have+in+the+Bible,+and+our+own+Western+subjugation+of+the+female+is+a+function+of+biblical+thinking.%22&hl=en&newbks=1&newbks_redir=1).
+
+Men on Reddit paid for their Netflix touch device subscription and want women who perform sexually as women should emote for them... that's the joking humor amusement of Reddit culture of alpha males [following MAGA](https://www.youtube.com/watch?v=s-bKFo30o2o) values of what's good in obedient women for consumers.
 
 Interesting media experience: an explicit exact search on YouTube does not return the result in the first 10 or beyond... 2025-12-27 morning USA
 
