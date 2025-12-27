@@ -934,3 +934,8 @@ Someone who notices the down votes on Reddit for posting their (not mine) organi
 https://old.reddit.com/r/TrumpOnionFans/comments/1mtn1ai/people_keep_saying_over_and_over_donald_trump_has/nvzqa3i/
 
 A second reply message from me. After reading the context of the message: It mentions Elon Musk, it mentions Putin. The whole deleted account message fixates on one single 78 year old person and can't grasp Fox News HDTV media addiction and Facebook media addiction and Reality TV / Reality social media issues - even with a Neil Postman quote in the message being replied to.
+
+https://old.reddit.com/r/northcounty/comments/1pmtsly/just_had_a_very_odd_and_scary_interaction_with/nu8zilz/
+
+The content consumers spiritual church...
+
