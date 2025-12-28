@@ -3153,3 +3153,9 @@ Walter White, mad science man, ABQ grave site at Minute 22 Zero Hour.
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pxrjtt/theory_pluribus_is_the_sequel_to_better_call_saul/nwdgn93/
 
 Reddit hive mind downvoted -2 very rapidly to this comment.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pxrjtt/theory_pluribus_is_the_sequel_to_better_call_saul/nwdjuzd/
+
+<img width="1256" height="952" alt="image" src="https://github.com/user-attachments/assets/3ba5106b-608a-470b-b701-e32377348caa" /> To a Reddit meme addict who hangs out on Reddit for Sunday morning post-Christmas Church, the church of memes website, the religion cult of memes, the meme is out-smarting the non-memes. Note the tiny length of this comment. "Celebration of Ignorance" as Carl Sagan described in year 1985. The meme-drunk meme-addled Sunday morning Carol drunkards  / Walter White meth abuse fandoms.
+
+
