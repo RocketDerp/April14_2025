@@ -51,49 +51,31 @@ https://youtu.be/xtsTB3U8AeE?t=882
 
 
 is nothing that's a one-liner
-14:45
 it's all we have time for attention span
-14:47
 gets
-14:48
 very weak at the speed of light and uh
-14:52
 that goes along with a very weak
-14:53
 identity
-14:55
 and religion which involves ideas
-14:57
 requires a little more time well
-14:58
-religion is a form of indoctrination
-15:01
+**religion is a form of indoctrination
 which requires a considerable amount of
-15:02
-literacy
-15:04
+literacy**
 you cannot get religion into people
-15:06
 minus literacy
-15:09
 and as literacy weakens people lose
-15:11
 their religious
-15:12
 affiliations you've written to or been
-15:16
 quoted as saying something to do with
 **criminals in jail** who have watched
-endless hours of television was that a
-put on
+endless hours of television.
+
+was that a put on?
 
 15:22      
 no that's a little mixed up
-15:24
 what i was referring to was a recent
-15:26
 study made in **colorado of the boys behind bars**
-15:30
 and the discovery was **that every one of them is a dyslexic!
 this is behind prison bars yes in penitentiaries in in colorado**
 100 dyslexic that is people with
