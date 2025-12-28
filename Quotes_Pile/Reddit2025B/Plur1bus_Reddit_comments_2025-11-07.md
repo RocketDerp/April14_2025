@@ -3136,5 +3136,8 @@ Reporting people to the secret police of Reddit who mask their identity like fac
 
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pxknsh/does_carol_smoke/nwbtj3w/
 
-A bunch of MAGA USA parrots. Donald J. Trump: Senator Lindsey Graham, "in the private sector he couldn't get a job. Believe me. Couldn't get a job". As in MAGA USA, if you don't worship rich people like Elon Musk Twitter, Truth Social Donald Trump wealth playboy icon, Jeff Epstein billionaire, Bill Gates who was with Jeff Epstein... you are unimportant. Having a job and hoarding money is prized in USA since June 16, 2015 when Trump became the central parenting role model for children. Rupert Murdoch another outlet for informing, and the Facebook and Apple and Amazon owners. Apple TV programming audience the subreddit. Gold gifts for Trump and Trump audiences who prize hate and billionaires: https://old.reddit.com/r/technology/comments/1mjs96c/apple_made_a_24k_gold_and_glass_statue_for_donald/
+A bunch of MAGA USA programmed hive mind USA parrots. Donald J. Trump: Senator Lindsey Graham, "in the private sector he couldn't get a job. Believe me. Couldn't get a job". As in MAGA USA, if you don't worship rich people like Elon Musk Twitter, Truth Social Donald Trump wealth playboy icon, Jeff Epstein billionaire, Bill Gates who was with Jeff Epstein... you are unimportant. Having a job and hoarding money is prized in USA since June 16, 2015 when Trump became the central parenting role model for children. Rupert Murdoch another outlet for informing, and the Facebook and Apple and Amazon owners. Apple TV programming audience the subreddit. Gold gifts for Trump and Trump audiences who prize hate and billionaires: https://old.reddit.com/r/technology/comments/1mjs96c/apple_made_a_24k_gold_and_glass_statue_for_donald/
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pxknsh/does_carol_smoke/nwd10sr/
+
+My message. Books and more books and escaping Reddit.
