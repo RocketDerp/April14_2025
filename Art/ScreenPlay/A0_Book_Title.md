@@ -186,3 +186,8 @@ CrawSake ( Finnegans Wake reference, Web Crawling / Matthew 4:19 trolling sake, 
 
 Rockabill Booby     
 
+* https://en.wikipedia.org/wiki/Rockabilly
+* "Rock a legal bill", "legislature bill"
+* Payment bill rocking / red tape breaking
+* Boob-tube metaphors / media ecology McLuhan Postman
+
