@@ -3146,3 +3146,10 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pxt18g/pluribus_season_one_ca
 
 Reddit audiences insist on "What' one-word response when a book quote is presented. Blows minds of Vince Gilligan's Breaking Bad / Saul evidence when book reading is a topic.
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pxrjtt/theory_pluribus_is_the_sequel_to_better_call_saul/nwdewov/
+
+Walter White, mad science man, ABQ grave site at Minute 22 Zero Hour.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pxrjtt/theory_pluribus_is_the_sequel_to_better_call_saul/nwdgn93/
+
+Reddit hive mind downvoted -2 very rapidly to this comment.
