@@ -3089,3 +3089,24 @@ https://old.reddit.com/r/pluribustv/comments/1pl63r4/anyone_else_catch_this_deta
 
 Like Carol's JUST MARRIED car and ACEBABY plates.
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pxplp9/theory_pluribus_is_the_breaking_bad_sequel_and/nwcqjgr/
+
+<img width="1024" height="558" alt="image" src="https://github.com/user-attachments/assets/db3408a2-a07a-4f08-9fb5-55478b0023f2" /> Note the posting with the Bluesky account in image. This is the anti-literacy pro-thoughtless sub. "Celebration of Ignorance" subreddit as Carl Sagan described in his 1995 book.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pxplp9/theory_pluribus_is_the_breaking_bad_sequel_and/nwcs210/
+
+And people are overlooking the themes of substance abuse.
+
+1. Breaking Bad - meth
+
+2. Better Call Saul all the bar games with the magical brand of tequila.  Zafiro Añejo
+
+3. Carol having DUI device on her car. Drinking on the night of the Zero Hour. Goes home and gets drunk after Helen dies and before magical fiction Pirate Lady character shows up at her door. Drunk when she thinks a loaded Chekhov's gun is a Rust prop / toy and blows up her house in a murder-suicide attack on an immigrant.
+
+The devastating outcomes of Delirium tremens  and N,α-dimethylbenzeneethanamine
+business ventures  on a community.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pxnae9/what_manusos_learned_from_his_books_about/nwc9klf/
+
+Note that this user got 2 comments and a posting all upvoted... because they say almost no words. The shorter and less your Reddit message says, the more the standing people who hang-out don't downvote. The Reddit posting and comment really don't explain much at all and just promote YouTube videos without even describing them other than "standing waves".
+
