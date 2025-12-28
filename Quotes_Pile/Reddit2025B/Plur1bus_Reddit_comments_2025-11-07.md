@@ -3199,3 +3199,21 @@ You give a message, and people can't click links or quote words they don't grasp
 Reading books helps.
 
 Please re-watch the Kepler 22 countdown to Minute 22 Pilot Episode of the "00:00:00:00" on-screen clock countdown and what Helen says to Carol about James Joyce. A book.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pt6h4f/pluribus_season_1_discussion_megathread/nvwo6cn/
+
+Anti-Woke anti-Wake MAGA USA December 2025 Reddit USA meme society. Entirely against reading nonfiction books. My reply comment message:
+
+> is some serious weirdo Republican anti-woke vibe nonsense.
+
+Everything is Fox News HDTV now in USA 2025, all year long 2025.     
+Everything is *Truth Social* attitudes and mindsets, the messages get screenshot onto every media system in the planet.    
+Everything is Elon Musk media platforms.  *SpaceX* Musk screenshot signals of science fiction fantasy stories like Apple TV+.     
+
+Second term in office, it is the biggest fandom to fiction storytelling in the world, Truth Social media.
+
+&nbsp;
+
+> anti-woke vibe nonsense
+
+At the "00:00:00:00" countdown in the show, Helen tells Carol to *get Woke* with her graduate work reminder. There is even microphone tapping in the audio track to draw attention to the book Helen introduces to Carol.
