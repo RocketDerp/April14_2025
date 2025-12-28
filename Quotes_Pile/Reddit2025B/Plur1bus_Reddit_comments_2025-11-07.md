@@ -3084,3 +3084,8 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pxcwkd/pluribus_1x09_the_book
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pxdzlu/manousos_is_not_human/nwag9zj/
 
 My comment message. The whole *dog* thing is pretty well thought out.
+
+https://old.reddit.com/r/pluribustv/comments/1pl63r4/anyone_else_catch_this_detail_about_el_fritz/ntq8c8w/
+
+Like Carol's JUST MARRIED car and ACEBABY plates.
+
