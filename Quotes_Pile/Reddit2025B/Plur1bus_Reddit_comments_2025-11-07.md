@@ -3158,4 +3158,7 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pxrjtt/theory_pluribus_is_the
 
 <img width="1256" height="952" alt="image" src="https://github.com/user-attachments/assets/3ba5106b-608a-470b-b701-e32377348caa" /> To a Reddit meme addict who hangs out on Reddit for Sunday morning post-Christmas Church, the church of memes website, the religion cult of memes, the meme is out-smarting the non-memes. Note the tiny length of this comment. "Celebration of Ignorance" as Carl Sagan described in year 1985. The meme-drunk meme-addled Sunday morning Carol drunkards  / Walter White meth abuse fandoms.
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pxrjtt/theory_pluribus_is_the_sequel_to_better_call_saul/nwdh2vy/
+
+These types of low-effort Sunday Morning Drivers on Reddit. Who can not discuss exactly what the themes of the show are: Drinking Carol, boozing Carol, who takes a loaded weapon into her house and drinks alcohol and blows up a bomb in her house. Getting bombed all the time. Book writing, book publishing, book authoring, the books mentioned in the story. Instead. low-effort Reddit commenting is prized.
 
