@@ -3162,3 +3162,28 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pxrjtt/theory_pluribus_is_the
 
 These types of low-effort Sunday Morning Drivers on Reddit. Who can not discuss exactly what the themes of the show are: Drinking Carol, boozing Carol, who takes a loaded weapon into her house and drinks alcohol and blows up a bomb in her house. Getting bombed all the time. Book writing, book publishing, book authoring, the books mentioned in the story. Instead. low-effort Reddit commenting is prized.
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pxn5aq/when_they_figure_it_out/nwduhtl/
+
+A tiny-short dismissive Finnegans Wake encoding avoidance. My reply: > 78 seconds can transmit a ton of data. That assumption re short message length seems faulty.
+
+Did you study the encoding? Very short lazy reply commenting, very short message of yours.
+
+Book tour opening, book author, book publishing wife, book writing. Have you read Carl Sagan's book "Contact" about the density of the message that the same New Mexico VLA gets?
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pxt18g/pluribus_season_one_carol_is_drunk_driving_dui/nwdu52c/
+
+You give a message, and people can't click links or quote words they don't grasp. Just extremely tiny-short reply message without any clue of what they don't grasp about book reading and book authoring of Pluribus story / TV show. My reply message:
+
+> I don’t get it
+
+1. Book tour opening of Season One of Pluribus
+
+2. Book author
+
+3. Wife / Spouse is a book publicist / book promoter
+
+4. Book fandom
+
+Reading books helps.
+
+Please re-watch the Kepler 22 countdown to Minute 22 Pilot Episode of the "00:00:00:00" on-screen clock countdown and what Helen says to Carol about James Joyce. A book.
