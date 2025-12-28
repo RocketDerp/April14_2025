@@ -3141,3 +3141,8 @@ A bunch of MAGA USA programmed hive mind USA parrots. Donald J. Trump: Senator L
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pxknsh/does_carol_smoke/nwd10sr/
 
 My message. Books and more books and escaping Reddit.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pxt18g/pluribus_season_one_carol_is_drunk_driving_dui/nwddr0t/
+
+Reddit audiences insist on "What' one-word response when a book quote is presented. Blows minds of Vince Gilligan's Breaking Bad / Saul evidence when book reading is a topic.
+
