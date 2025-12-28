@@ -3072,3 +3072,7 @@ People on Reddit seem incredibly avoidant of books about the show. Vince Gilliga
 > have you read the excerpt from Carol's book?
 
 Audience here seems very avoidant of book reading and gives responses like you got, "What, excuse me, the fuck?" when you cite a book.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1px7wl4/dont_see_the_point_of_the_atom_bomb/nwa1kxu/
+
+Repeating: "Are tv series and films just too advanced for the general audience?"
