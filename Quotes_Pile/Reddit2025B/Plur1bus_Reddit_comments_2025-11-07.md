@@ -3233,3 +3233,7 @@ More attacking of nonfiction book quoting.
 https://old.reddit.com/r/Pluribus_TVshow/comments/1px5t9h/pluribus_is_a_libertarians_wet_dream/nwesz5m/
 
 Someone connects the show to MAGA Fox News HDTV Breaking Bad HDTV Saul HDTV fandom behaviors of MAGA USA December 2025 USA Reddit USA! Reality HDTV star "The Apprentice".
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1py2h3j/plur1bus_apple_tv_episode_two_minute_37_air_force/nwfgxby/
+
+I'm getting instant downvotes on posting when this user replied, and then I replied to them, the reply got instantly downvoted.
