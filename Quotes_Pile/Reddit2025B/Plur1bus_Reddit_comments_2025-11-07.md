@@ -3226,3 +3226,6 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pxt18g/pluribus_season_one_ca
 
 Dehumanizes again with the ELIZA effect that MIT described. Can't pass "The Turing Test" on Reddit.
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pxt18g/pluribus_season_one_carol_is_drunk_driving_dui/nwen50s/
+
+More attacking of nonfiction book quoting.
