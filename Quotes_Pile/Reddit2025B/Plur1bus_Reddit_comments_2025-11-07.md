@@ -3237,3 +3237,8 @@ Someone connects the show to MAGA Fox News HDTV Breaking Bad HDTV Saul HDTV fand
 https://old.reddit.com/r/Pluribus_TVshow/comments/1py2h3j/plur1bus_apple_tv_episode_two_minute_37_air_force/nwfgxby/
 
 I'm getting instant downvotes on posting when this user replied, and then I replied to them, the reply got instantly downvoted.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1py2h3j/plur1bus_apple_tv_episode_two_minute_37_air_force/nwfm2c8/
+
+Breaking Bad / Better Call Saul audience who can't even recognize a link and lyric line in a message they reply to. A link to YouTube was right in the message to the song they suggest.
+
