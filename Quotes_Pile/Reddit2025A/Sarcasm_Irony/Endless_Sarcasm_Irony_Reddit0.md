@@ -1955,3 +1955,9 @@ Front page of Reddit approaching Christmas / Jesus birthday parties. This is the
 https://old.reddit.com/r/memes/comments/1px4h9z/youd_be_arrested_but_it_would_be_funny_as_hell/
 
 Front page of Reddit. Funny-washing comedy-washing Epstein document topics. Isn't it funny as hell to joke and meme about all the entertainment Putin / Epstein provide leading around male leaders like Trump! How young girls are depicted in this Reddit image and how young girls are abused by old powerful white men like Epstein and Putin to lead the Reddit audience of meme addicts. So funny, so amusing, the great comedy that Surkov students provide to Reddit audiences!
+
+&nbsp;
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1px8drr/gavin_newsom_the_hell_is_going_on_in_this_country/
+
+I don't think people grasp the questions being asked "what is going on", mindsets that are self-harm. People won't take media ecology and information warfare topics seriously. Fox News influence used to be remarked about in 2015 and 2016, Jen Seko's nonfiction film came out those years. But now people just accept as normal the Fox News fiction addictions. You have a headline of "wake up", but people don't even understand what that means. It means wake up from fiction addiction. Christmas just happened, the Bible is fiction. Fox News is fiction. Truth Social is fiction. People are not facing up to real reality and the problems of ego-driven choice-driven media consumption filter bubbles. Fiction vs. fiction conflicts.
