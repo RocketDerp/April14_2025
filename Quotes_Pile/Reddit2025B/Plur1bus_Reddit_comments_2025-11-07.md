@@ -3221,3 +3221,8 @@ At the "00:00:00:00" countdown in the show, Helen tells Carol to *get Woke* with
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pxt18g/pluribus_season_one_carol_is_drunk_driving_dui/nwej8wr/
 
 <img width="2630" height="1502" alt="image" src="https://github.com/user-attachments/assets/787216c7-fc46-4fa0-9f8c-352be9096fcf" /> I almost never downvote, rare. The Reddit cesspool audience. Vince Gilligan called it at the writers guild February 15, 2025 about the cesspool social media Reddit has become. This is "Celebration of Ignorance" as Carl Sagan described in his 1995 book about "Science as a Candle" in media darkness.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pxt18g/pluribus_season_one_carol_is_drunk_driving_dui/nwemcud/
+
+Dehumanizes again with the ELIZA effect that MIT described. Can't pass "The Turing Test" on Reddit.
+
