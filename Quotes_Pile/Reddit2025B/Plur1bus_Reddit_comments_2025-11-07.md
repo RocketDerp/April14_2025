@@ -3076,3 +3076,7 @@ Audience here seems very avoidant of book reading and gives responses like you g
 https://old.reddit.com/r/Pluribus_TVshow/comments/1px7wl4/dont_see_the_point_of_the_atom_bomb/nwa1kxu/
 
 Repeating: "Are tv series and films just too advanced for the general audience?"
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pxcwkd/pluribus_1x09_the_book_scene_is_the_skeleton_key/nwa4y5h/
+
+<img width="1024" height="693" alt="image" src="https://github.com/user-attachments/assets/6787a00a-428d-44a0-aa38-848634451c31" /> My message. No key jokes or Key images of a key shall be missed. "i saw this scene, and i wondered if there was potential symbolism in the way they're standing, which kindve looking like a keyhole." - https://old.reddit.com/r/pluribustv/comments/1p38hnb/potential_symbolism_ep_4/
