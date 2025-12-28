@@ -3229,3 +3229,7 @@ Dehumanizes again with the ELIZA effect that MIT described. Can't pass "The Turi
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pxt18g/pluribus_season_one_carol_is_drunk_driving_dui/nwen50s/
 
 More attacking of nonfiction book quoting.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1px5t9h/pluribus_is_a_libertarians_wet_dream/nwesz5m/
+
+Someone connects the show to MAGA Fox News HDTV Breaking Bad HDTV Saul HDTV fandom behaviors of MAGA USA December 2025 USA Reddit USA! Reality HDTV star "The Apprentice".
