@@ -3202,7 +3202,7 @@ Please re-watch the Kepler 22 countdown to Minute 22 Pilot Episode of the "00:00
 
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pt6h4f/pluribus_season_1_discussion_megathread/nvwo6cn/
 
-Anti-Woke anti-Wake MAGA USA December 2025 Reddit USA meme society. Entirely against reading nonfiction books. My reply comment message:
+<img width="1410" height="1452" alt="image" src="https://github.com/user-attachments/assets/6796beae-7fbf-4f35-a9cf-d7c1bb6d25f3" /> Anti-Woke anti-Wake MAGA USA December 2025 Reddit USA meme society. Entirely against reading nonfiction books. My reply comment message:
 
 > is some serious weirdo Republican anti-woke vibe nonsense.
 
