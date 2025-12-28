@@ -951,3 +951,25 @@ https://old.reddit.com/r/ExplainTheJoke/comments/1px1che/whats_wrong_with_the_fr
 
 People only seem to think images can be manipulated or distorted by computers. That humanity hasn't had techniques and problems and misreadings / misinterpretations before generative A.I. became mainstream in late year 2022.
 
+https://old.reddit.com/r/todayilearned/comments/1pxba6g/til_each_episode_of_stranger_things_season_5/nwa3elk/
+
+Which Pluribus seems to have made Season One all about, books.
+
+https://old.reddit.com/r/todayilearned/comments/1pxba6g/til_each_episode_of_stranger_things_season_5/nwatcnr/
+
+Trump entertainment empire, antics politics machine, has been growing at a steady pace. People keep yelling out for more wild and thrilling content.
+
+https://old.reddit.com/r/todayilearned/comments/1pxba6g/til_each_episode_of_stranger_things_season_5/nwa597v/
+
+People can't tell Trump is acting. His unusual behavior blows minds. 
+
+https://old.reddit.com/r/todayilearned/comments/1pxba6g/til_each_episode_of_stranger_things_season_5/nw9s7z8/
+
+Notice how there are no book quotes, no links, no author names, no book titles. Just short message that says this.
+
+https://old.reddit.com/r/todayilearned/comments/1pxba6g/til_each_episode_of_stranger_things_season_5/nw9ygxi/
+
+They can sell the show to other networks. Publish physical media. And there is a ton of fandom merchandise. The content engagement of this show over the 10 years... the brand... 
+
+https://old.reddit.com/r/todayilearned/comments/1pxba6g/til_each_episode_of_stranger_things_season_5/nw9w2kz/
+
