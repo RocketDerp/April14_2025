@@ -3248,4 +3248,10 @@ My message. Every time I comment, they instantly down-vote my factual reply comm
 
 https://old.reddit.com/r/Pluribus_TVshow/comments/1py2h3j/plur1bus_apple_tv_episode_two_minute_37_air_force/nwfyy5g/
 
-My comment didn't get instantly downvoted this time! My reply is to bring in the **4 missing stars** in the POTUS Seal that Carol stands next to at minute 37... and Kepler star planetary system concerns.
+My comment didn't get instantly downvoted this time! My reply is to bring in the **4 missing stars** in the POTUS Seal that Carol stands next to at minute 37... and Kepler star planetary system concerns. But they blocked me after this reply. The cesspool of low-effort social media users who won't discuss the show and block people like ICE immigrants are blocked / deported in USA. MAGA values Reddit USA December 2025. Deport those people you disagree with when discussing the symbolic meaning of "Pluribus" on the POTUS Symbol. My reply about Episode Two minute 37 show content... that they blocked me for:
+
+> great find. now we know for sure they are manipulative. thanks for the info.
+
+The hive mind removed 4 of the 13 stars from the USA POTUS Seal symbol, the ones on the side of the Eagle's head are missing at Minute 37 of Episode Two.
+
+Has the alien hive mind already blanked out 4 planetary systems, and Earth is next?
