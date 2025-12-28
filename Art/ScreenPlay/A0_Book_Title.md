@@ -182,3 +182,7 @@ Surfing Cesspools ( Surfing the WWW, Vince Gilligan 2025: Social media cesspools
 
 CrawSake ( Finnegans Wake reference, Web Crawling / Matthew 4:19 trolling sake, Japanese Wake boozing / Tim Drunk all in there and more )    
 
+* *the legendary Irish pirate queen Grace O'Malley, whom Joyce names as "her grace o'malice" and other river/sea-related titles (like ["Rockabill Booby in the Wave Trough"](https://www.finnegansweb.com/wiki/index.php/Page_104)), embodying the river-goddess ALP (Anna Livia Plurabelle) and symbolizing female power, trickery, and the flow of history/water, contrasting with the "rogue" HCE (Humphrey Chimpden Earwicker), a figure of patriarchal failure often associated withthe "Seabeastius" or "Hesterday" figures, all linked through the novel's cyclic dream logic and wordplay. )*
+
+Rockabill Booby     
+
