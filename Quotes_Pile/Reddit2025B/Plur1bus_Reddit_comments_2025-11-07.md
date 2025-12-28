@@ -3110,3 +3110,31 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pxnae9/what_manusos_learned_f
 
 Note that this user got 2 comments and a posting all upvoted... because they say almost no words. The shorter and less your Reddit message says, the more the standing people who hang-out don't downvote. The Reddit posting and comment really don't explain much at all and just promote YouTube videos without even describing them other than "standing waves".
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pxn5aq/when_they_figure_it_out/nwc9ecw/
+
+The experience of world peace and understanding other people changing things. And Carol choosing to use writing and her white board organization skills (brainstorming) over her Great Seal eagle arrows.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pxknsh/does_carol_smoke/nwbthsr/
+
+And they (QaddafiDuck01) with a 2-month new Reddit account have blocked me. Which means I can not comment on any of these messages because blocks are forever and prevent replies. They are extremely Reddit territorial and attack (mock individuals) and block you.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pxknsh/does_carol_smoke/nwbrezz/
+
+The Reddit literacy problems about a show of book authoring and book tours is a huge problem. Cesspool social media.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pxknsh/does_carol_smoke/nwby3lg/
+
+Addiction to media. that's why Donald Trump, world famous addict to Twitter and cameras and Truth Social leads. Low-quality Reddit commenting is prized over reading serious and organized books. Neil Postman / Marshall McLuhan teachings explain so much of MAGA White House Truth Social USA December 2025. Anti-boo, meme life Trump the role model. Elon Musk purchasing Twitter was mocked by Reddit audiences - when he controls the mental patterns of tiny-think TLDR consumers. People have ignored Jen Senko's non-fiction film and book about right-wing media and the terrible attitudes that it produces. Malala about Radio Mullah.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pxknsh/does_carol_smoke/nwcl50p/
+
+Deport-happy USA. Blocking immigrants, blocking other races. That's the ICE USA values.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pxknsh/does_carol_smoke/nwcweij/
+
+Reporting people to the secret police of Reddit who mask their identity like face masks of ICE. Instead of educating and informing people about the anti-diversity shallowness issues openly. This is the mental attitude of *hate thy neighbor* / *hate thy enemy* that USA society that votes for Trump and cheers on Trump as a source of entertainment and "fuck around and find out" anti-compassion *hate thy enemy* values.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pxknsh/does_carol_smoke/nwbtj3w/
+
+A bunch of MAGA USA parrots. Donald J. Trump: Senator Lindsey Graham, "in the private sector he couldn't get a job. Believe me. Couldn't get a job". As in MAGA USA, if you don't worship rich people like Elon Musk Twitter, Truth Social Donald Trump wealth playboy icon, Jeff Epstein billionaire, Bill Gates who was with Jeff Epstein... you are unimportant. Having a job and hoarding money is prized in USA since June 16, 2015 when Trump became the central parenting role model for children. Rupert Murdoch another outlet for informing, and the Facebook and Apple and Amazon owners. Apple TV programming audience the subreddit. Gold gifts for Trump and Trump audiences who prize hate and billionaires: https://old.reddit.com/r/technology/comments/1mjs96c/apple_made_a_24k_gold_and_glass_statue_for_donald/
+
