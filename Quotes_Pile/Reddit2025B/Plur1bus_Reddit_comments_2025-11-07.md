@@ -3217,3 +3217,7 @@ Second term in office, it is the biggest fandom to fiction storytelling in the w
 > anti-woke vibe nonsense
 
 At the "00:00:00:00" countdown in the show, Helen tells Carol to *get Woke* with her graduate work reminder. There is even microphone tapping in the audio track to draw attention to the book Helen introduces to Carol.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pxt18g/pluribus_season_one_carol_is_drunk_driving_dui/nwej8wr/
+
+The Reddit cesspool audience. Vince Gilligan called it at the writers guild February 15, 2025 about the cesspool social media Reddit has become. This is "Celebration of Ignorance" as Carl Sagan described in his 1995 book about "Science as a Candle" in media darkness.
