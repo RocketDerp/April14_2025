@@ -3242,3 +3242,6 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1py2h3j/plur1bus_apple_tv_epis
 
 Breaking Bad / Better Call Saul audience who can't even recognize a link and lyric line in a message they reply to. A link to YouTube was right in the message to the song they suggest.
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1py2h3j/plur1bus_apple_tv_episode_two_minute_37_air_force/nwfngjc/
+
+My message. Every time I comment, they instantly down-vote my factual reply comments. Reddit hive mind is hive minding conformity and fiction over nonfiction of the image of POTUS Seal being manipulated. Not a single person has replied about the minute 377 of Episode Two image. Sister Golden Hair also opens with "Sunday" weekday, today.
