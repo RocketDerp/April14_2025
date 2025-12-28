@@ -3164,11 +3164,23 @@ These types of low-effort Sunday Morning Drivers on Reddit. Who can not discuss 
 
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pxn5aq/when_they_figure_it_out/nwduhtl/
 
-A tiny-short dismissive Finnegans Wake encoding avoidance. My reply: > 78 seconds can transmit a ton of data. That assumption re short message length seems faulty.
+A tiny-short dismissive Finnegans Wake encoding Breaking Bad / Saul / Apple iPhone touch device... audience book avoidance. My reply:
+
+> 78 seconds can transmit a ton of data. That assumption re short message length seems faulty.
 
 Did you study the encoding? Very short lazy reply commenting, very short message of yours.
 
-Book tour opening, book author, book publishing wife, book writing. Have you read Carl Sagan's book "Contact" about the density of the message that the same New Mexico VLA gets?
+Book tour opening, book author, book publishing wife, book writing. Have you **read Carl Sagan's book "Contact"** about the density of the message that the same New Mexico VLA gets?
+
+* "The **great radio telescopes of the world** are constructed in remote locations for the same reason Paul Gauguin sailed to Tahiti: For them to work well, they must be far from civilization. As civilian and military radio traffic has increased, radio telescopes had to hide — sequestered in an obscure valley in Puerto Rico, say, or exiled to a **vast scrub desert in New Mexico** or Kazakhstan. As radio interference continues to grow, it makes increasing sense to build the telescopes off the Earth altogether. The scientists who work at these isolated observatories tend to be dogged and determined. **Spouses abandon** them" - [Contact is a **1985 hard science** fiction](https://en.wikipedia.org/wiki/Contact_\(novel\))
+
+&nbsp;
+
+# .
+
+* Friday, November 7, 2025 (and the Thursday hours leading up in USA) Episode One / PIlot Episode of Pluribus Apple TV+ show: "Looks like **simple pulse-width modulation. Old-school, like Morse code**. Maybe somehow, it’s the time signal out of Fort Collins. They use pulse-width modulation."
+
+They even say it explicitly in the dialog that it it is low information data rate. Like Truth Social media signals. I encourage you'all (We) to seek more rich and vast learning, such as Wikipedia hive mind. ["Signals intelligence (SIGINT) is the act and field of intelligence-gathering by interception of signals"](https://en.wikipedia.org/wiki/Signals_intelligence). They even clue people in with the military "Fort Collins" in that dialog.
 
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pxt18g/pluribus_season_one_carol_is_drunk_driving_dui/nwdu52c/
 
