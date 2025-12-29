@@ -981,3 +981,7 @@ https://old.reddit.com/r/Music/comments/1py3ecz/is_nicki_minaj_an_illegal_immigr
 https://old.reddit.com/r/Music/comments/1py3ecz/is_nicki_minaj_an_illegal_immigrant_netizens/nwfypwc/
 
 <img width="1068" height="240" alt="image" src="https://github.com/user-attachments/assets/07c63df9-856b-4303-ab8c-ce76e23130ea" /> The entire nation. Not just Reddit hive mind. Bluesky thinks it is better than Twitter. A very low bar to measure. Truth Social gets copied into every media system.
+
+https://old.reddit.com/r/Music/comments/1py3ecz/is_nicki_minaj_an_illegal_immigrant_netizens/nwfoqhv/
+
+Donald Trump leads Reddit audience. *Hate thy Enemy, Hate thy Neighbor, Hate Harder*. The Internet Research Agency since March 2013 has conditioned the entire USA to hate people in North America and not stand up to Surkov students in Russia or learn any nonfiction on the techniques of Putin with media warfare.
