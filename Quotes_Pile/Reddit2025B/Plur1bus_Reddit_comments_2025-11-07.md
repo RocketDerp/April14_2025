@@ -3350,3 +3350,45 @@ My comment, as I'm putting it here in context with the Pluribus TV show and the 
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pyl8gc/is_pluribus_actually_this/nwjh2el/
 
 More dream Wake Finn's Hotel 1923...
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1px3v64/temporal_compass/nwl1oof/
+
+I can't reply to this message to me, because another (different person) user has [blocked-bombed me on the entire thread](https://old.reddit.com/r/help/comments/1jgm0w1/why_does_someone_blocking_you_prevent_you_from/)... about TV show commentary (Breaking Bad fandom). People can't even share a Pluribus dialog with strangers in Trumpland MAGA USA December 2025 Truth Social admiration Reddit society. Fox News HDTV values nation. People claim [to **hate** Trump for over 10 years](../Martin_Luther_King_Jr_quotes0.md) while adopting / mimicking all of Trump's online behaviors and toxic hate. Anyway... 
+I would reply to this user that I do not WISH to conform to the Reddit hive mind. Because toxic popularity since the March 2013 invasion by the Internet Research Agency. People who banalize https://old.reddit.com/r/HyperBanalisation/ and amusement-wash ICE raids and hate messaging leadership. Rubble of one-line jokes and amusement over very serious nonfiction learning. Such as Neil Postman's 1985 nonfiction book (Book tour, Book author, Book writing - very core in Pluribus TV Season One) "Amusing Ourselves To Death: Public Discourse" all about MAGA / Trump in year 1985. 
+How an entire hive mind like an entire religion or social media platform or USA nation... "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pyl8gc/is_pluribus_actually_this/nwkupt6/
+
+A serious comment! My reply to this message:
+
+>  what does it all mean? Is there any hint at the story that might unfold in Finnigan’s Wake?
+
+My answer:
+
+1. It means that Vince Gilligan is very serious in targeting Social Media Behaviors. Including White House *Truth Social*.
+   * Writers Guild of America, Vince Gilligan speech. February 15, 2025
+https://youtu.be/TkteSxVIM1A?t=648 at 10:48 "climbing up out of the cesspool that is social media"
+
+2. Look at Minute 37 of Episode Two (which came out with the Pilot Episode). There are 4 stars missing on the POTUS Seal and the eagle is pointing the wrong way ("PLURIBUS" Latin langauge on Seal) on Air Force One.  People here are ignoring this extremely important detail that  **4 stars are missing of 13 stars**, the 13 free thinking individuals outside the hive mind.
+
+&nbsp;
+
+This is no ordinary book, it is the most important book in modern times. Nothing else compares.
+
+* "Finnegans Wake is the greatest **guidebook to media study** ever fashioned by man." - Marshall McLuhan, Newsweek Magazine, page 56, February 28, 1966
+
+&nbsp;
+
+Helen gave this as the most important graduate work ever in her life to Carol at the "00:00:00:00" countdown time.
+
+&nbsp;
+
+# .
+
+>  Is there any hint at the story that might unfold in Finnigan’s Wake?
+
+ALP character in the James Joyce book is named *Livia* "Plurabelle", very similar to the show title of the Apple TV+ show.
+
+&nbsp;
+
+* "What? Corpus. Body. Corpse. Good idea the Latin. Stupifies them first"
