@@ -3316,3 +3316,11 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pyfrtl/carols_drug_habits/nwi
 
 The mental health problem in the room is your fucking nation USA elected RFK Jr to lead health.
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pyfrtl/carols_drug_habits/nwikn1h/
+
+Reddit community can't tolerate any ideas out of the Reddit hive mind conformity peer pressure. Look at the downvotes on these comments. Downvote-disagree.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pyfrtl/carols_drug_habits/nwiolcr/
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pyfrtl/carols_drug_habits/nwim9lr/
+
