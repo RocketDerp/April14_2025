@@ -3437,3 +3437,7 @@ Notice the one infected person standing behind the bar with the traditional **te
 The emphasis on the Radio Shack man and [his Ham Radio](https://www.youtube.com/watch?v=XOGWbaOOeCM) kit  / Storage Unit Manager (old school tech like VHS tapes) is all about wireless... and they tell Carol that wireless is down and use land lines / cable TV.
 
 OPERA_A I can't be no highway man! Like the man coming up to the Rio Grande crossing... he doesn't want to steal from people and insists on paying for medical services, etc.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pyl8gc/is_pluribus_actually_this/nwle5hk/
+
+Positive feedback! Lynch TV series can seem slow and boring unless you are into Great Seal symbolism decoding.
