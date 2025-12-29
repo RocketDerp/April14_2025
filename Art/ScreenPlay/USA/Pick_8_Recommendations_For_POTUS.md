@@ -19,7 +19,7 @@ Mine?
 4. Research: Reesa Kossoff
 5. Lady Gaga ?
 6. Research:  Jenny Mattingley
-7. ?
+7. Vince Gilligan WGA February 15, 2025 convinced me
 8. ?
 
 I need help on this list!
