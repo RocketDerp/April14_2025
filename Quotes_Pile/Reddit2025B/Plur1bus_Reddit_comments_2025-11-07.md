@@ -3332,4 +3332,4 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pyl8gc/is_pluribus_actually_t
 
 The very scene being discussed mentions Finnegans Wake book... but people on social meme sites just say tiny-short "dream" message instead of being able to analyze the scenes and story of the show.
 
-https://old.reddit.com/r/Pluribus_TVshow/comments/1pyl8gc/is_pluribus_actually_this/nwje8if/
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pyl8gc/is_pluribus_actually_this/nwjh9a7/
