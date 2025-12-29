@@ -3269,3 +3269,8 @@ Carol is a Pirate author... ship rummy drunk, vodka drunk.  Carol is a DUI drivi
 https://old.reddit.com/r/Pluribus_TVshow/comments/1py80k1/the_others_are_not_inherently_nice_they_are/nwh3kdo/
 
 My message. This Reddit posting is just a one-liner, only a posting title. No link, no body to the posting. So I at least added some words to get people to see the Christmas Eve Day symbolism topics.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pybwmf/pluribus_is_the_bcs_prequel_heres_13_pieces_of/nwhv5s1/
+
+There are multiple circle-jerk / mockery communities on Reddit for the show. In general the fandom of Breaking Band and Better Call Saul can't see the book tour, book authoring, book reading, book selling aspects of the show. This behavior has elevated Donald Trump anti-comprehension entertainment to the top of society for over a decade. Bad guys are considered entertaining and desirable if they make a mockery of comprehension and meaning. Fox News audience is convinced that billionaires need even more money. The attraction to ignorance isn't just one TV show, it's the very leadership of the nation now and has been for a long time.
+
