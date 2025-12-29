@@ -3255,3 +3255,13 @@ My comment didn't get instantly downvoted this time! My reply is to bring in the
 The hive mind removed 4 of the 13 stars from the USA POTUS Seal symbol, the ones on the side of the Eagle's head are missing at Minute 37 of Episode Two.
 
 Has the alien hive mind already blanked out 4 planetary systems, and Earth is next?
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pxt18g/pluribus_season_one_carol_is_drunk_driving_dui/nwgg323/
+
+ABQ meth drug. I pointed out Carol is a drunk James Joyce author. My reply message comment on cloud computing:
+
+> when the meth is 96% pure instead of 70%
+
+Carol is a Pirate author... ship rummy drunk, vodka drunk.  Carol is a DUI driving woman.
+
+"typically high-proof vodkas, reaching up to 95-96% ABV (190-192 proof) with brands like Spirytus or Everclear (though Everclear faces state restrictions). For rum, "overproof" varieties push well past standard 40%, with common bottlings hitting 75.5% ABV (151 proof) (like the discontinued Bacardi 151) and some special or artisanal rums exceeding 80% ABV, sometimes reaching into the mid-80s."
