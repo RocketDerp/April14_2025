@@ -3265,3 +3265,7 @@ ABQ meth drug. I pointed out Carol is a drunk James Joyce author. My reply messa
 Carol is a Pirate author... ship rummy drunk, vodka drunk.  Carol is a DUI driving woman.
 
 "typically high-proof vodkas, reaching up to 95-96% ABV (190-192 proof) with brands like Spirytus or Everclear (though Everclear faces state restrictions). For rum, "overproof" varieties push well past standard 40%, with common bottlings hitting 75.5% ABV (151 proof) (like the discontinued Bacardi 151) and some special or artisanal rums exceeding 80% ABV, sometimes reaching into the mid-80s."
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1py80k1/the_others_are_not_inherently_nice_they_are/nwh3kdo/
+
+My message. This Reddit posting is just a one-liner, only a posting title. No link, no body to the posting. So I at least added some words to get people to see the Christmas Eve Day symbolism topics.
