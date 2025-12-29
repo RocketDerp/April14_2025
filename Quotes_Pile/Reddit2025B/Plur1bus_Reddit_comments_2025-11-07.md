@@ -3282,3 +3282,8 @@ https://old.reddit.com/r/Pluribus_Sucks/comments/1pc218p/pluribus_rating_1_star_
 
 Vince Gilligan's name.. his experience with bad-guy worshiping fandoms. Anti-women. The February 15, 2025 was the nice way of saying it. 
 
+https://old.reddit.com/r/Pluribus_Sucks/comments/1pyf3qe/a_bad_ripoff_of_watchmen/nwi82sz/
+
+Dehumanizing people as non-persons, "bots". Dog Whistle in 2025 to non-person immigrants or non-MAGA in USA. The billionaires all fund GrokAI, meta AI, Google AI, ChatGPT and then everyday people dehumanize real persons in the name of the creations billionaires made. Non-famous people are belittled and bullied into silence while famous people are respected for being "real'. Trump's power mechanism, among others.
+
+
