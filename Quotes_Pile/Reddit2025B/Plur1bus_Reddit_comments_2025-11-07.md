@@ -3441,3 +3441,29 @@ OPERA_A I can't be no highway man! Like the man coming up to the Rio Grande cros
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pyl8gc/is_pluribus_actually_this/nwle5hk/
 
 Positive feedback! Lynch TV series can seem slow and boring unless you are into Great Seal symbolism decoding.
+
+https://old.reddit.com/r/pluribustv/comments/1phqjsv/where_is_val/nt2pf2r/
+
+So many Deleted Reddit Accounts and such around this show. Social media by a computer industry company, Apple, and Elon Musk now running against Great Seal Pluribus education ideals for the White House, who knows what's real. Or just people so sick of the Reddit USA enviornment. This is a thoughtful comment, observant, and account self-nuked.
+
+https://old.reddit.com/r/pluribustv/comments/1phqjsv/where_is_val/nt0m5my/
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pyl8gc/is_pluribus_actually_this/nwly4du/
+
+My reply to this message, go deeper on media ecology:
+
+> Who did Helen interact with? Only Carol.
+
+There are traces of real-wold dinner locations ... "Remember your trip to The Inn at Little Washington, fall of 1998? They served that pepper bacon you still talk about. We flew it in for you. And your favorite crispy brioche from Les Crayères." (France)
+
+&nbsp;
+
+* "In the fall of 1998, Vince Gilligan was working as a writer and co-executive producer for the sixth season of The X-Files, and his film Home Fries was released"
+
+
+I've done a lot of travel in this world, and I see a story with deep footprints. They are making a point to go back to "the fall" of 1998 (Finnegans Wake is all about the Fall, Helen's fall backwards, Tim's ladder fall - in this Reddit thread reply context).
+
+
+&nbsp;
+
+. "Well I've been around the world... And I've been in the Washington Zoo. And in all my travels as the facts unravel I've found this to be true" ... *Dirty Logic* ... https://www.youtube.com/watch?v=a_1HRTJ5Hv8
