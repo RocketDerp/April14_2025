@@ -23,7 +23,7 @@ Both of them point to a superior truth through the story, but for one the story 
 My own personal definition of mythology — of religion — is religion is a popular misunderstanding of poetry.
 Well now the poetry works, and so does the true-story magazine.
 
-And I have reviewed very briefly the working—the operation of these images now in organizing the society by telling you that this is the good society, and that it is good to do this, and not good to do that, and that that is the bad society, and you are doing a good thing when you kill its members.
+And I have reviewed very briefly the working — the operation of these images now in organizing the society by telling you that this is the good society, and that it is good to do this, and not good to do that, and that that is the bad society, and you are doing a good thing when you kill its members.
 
 The other function which the fictions serve is that of balancing, coordinating, and giving enriching imagery and food to the psyche. 
 
