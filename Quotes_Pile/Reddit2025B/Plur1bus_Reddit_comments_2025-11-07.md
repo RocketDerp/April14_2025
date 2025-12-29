@@ -3286,4 +3286,33 @@ https://old.reddit.com/r/Pluribus_Sucks/comments/1pyf3qe/a_bad_ripoff_of_watchme
 
 Dehumanizing people as non-persons, "bots". Dog Whistle in 2025 to non-person immigrants or non-MAGA in USA. The billionaires all fund GrokAI, meta AI, Google AI, ChatGPT and then everyday people dehumanize real persons in the name of the creations billionaires made. Non-famous people are belittled and bullied into silence while famous people are respected for being "real'. Trump's power mechanism, among others.
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pyfrtl/carols_drug_habits/nwic5cp/
+
+Pluribus fandom, Vince Gilligan fandom, seems to blow their minds out on discussions of the show. Drug use and medication use seems to be trigger topics. Walter White meth fandom that Vince Gilligan shows attract? My reply message:
+
+> Idk if you’re taking too much adderall 
+
+There seems to be a large population of people here on Reddit that don't want to discuss the substance abuse Walter White meth issues, Carol's heavy boozing and pill abuse. Whenever these tropics come up, drug abuse gets projected from fandom as a deflection from serious topics.
+
+Carol has a DUI device on her car. 
+
+> are using ChatGPT to come up with this shit but goddamn
+
+I live in the United States of America, USA, and a lot of people get their mind blown out by Donald Trump images and messages every hour of every day. Many people here use medication because they can't even deal with messages about a fiction television show, let alone Fox News HDTV and Elton Musk Twitter messages. December 2025 United States of MAGA and ICE raids is a mentally sick nation.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pyfrtl/carols_drug_habits/nwiop1y/
+
+A Reddit comment got downvoted for saying a simple fact in the face of "drugs" comment.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pyfrtl/carols_drug_habits/nwidrlg/
+
+The Reddit hive mind is raging at free thinking and diverse ideas. Look at the downvotes on this comment calling out how many Reddit users go into raging censorship desires calling for people to silence and self-deport from Reddit. Booze and drug abuse, blue meth concerns, trigger the fandom of meme addicts on touch Apple iPhone / iPad devices.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pyfrtl/carols_drug_habits/nwifp5a/
+
+Silencing people and censoring content is the concern of the Reddit hive mind.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pyfrtl/carols_drug_habits/nwils93/
+
+The mental health problem in the room is your fucking nation USA elected RFK Jr to lead health.
 
