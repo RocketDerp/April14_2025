@@ -143,3 +143,8 @@ So much bullshit and falsehoods and crap like RFK Jr and autism and measles / Ru
 
 https://old.reddit.com/r/todayilearned/comments/1pqlywo/til_that_the_first_noticeable_symptom_of_heart/
 
+&nbsp;
+
+https://old.reddit.com/r/science/comments/1py408z/brains_of_autistic_people_have_fewer_of_a/
+
+Autism information. Drowned and forgotten like any serious learning in society.
