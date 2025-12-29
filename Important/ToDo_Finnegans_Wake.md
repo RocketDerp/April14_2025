@@ -741,3 +741,8 @@ Why can't people name "1 John 3:17" Bible verse about poverty?
 Great overall video about the drowning in snark, satire-washing, humor-washing that Neil Postman 1985 book calls out, amusement-washing     
 https://old.reddit.com/r/CringeTikToks/comments/1pxzgl6/poes_law/     
 Sunday posting on Reddit after Christmas to boot! Sunday school. Just we need "1 John 3:17" to be known by every person in USA age 12 to age 120.    
+
+&nbsp;
+
+Marie Wilcox realized she was the last person on Earth who could speak the Wukchumni language fluently, so at 82, she taught herself to use a computer and spent seven years typing a 6,000-word Wukchumni dictionary, the first written record of the language in history, to save it from extinction     
+https://old.reddit.com/r/Damnthatsinteresting/comments/1py8w0n/marie_wilcox_realized_she_was_the_last_person_on/     
