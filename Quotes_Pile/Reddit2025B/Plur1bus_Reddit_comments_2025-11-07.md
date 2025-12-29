@@ -3274,3 +3274,11 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pybwmf/pluribus_is_the_bcs_pr
 
 There are multiple circle-jerk / mockery communities on Reddit for the show. In general the fandom of Breaking Band and Better Call Saul can't see the book tour, book authoring, book reading, book selling aspects of the show. This behavior has elevated Donald Trump anti-comprehension entertainment to the top of society for over a decade. Bad guys are considered entertaining and desirable if they make a mockery of comprehension and meaning. Fox News audience is convinced that billionaires need even more money. The attraction to ignorance isn't just one TV show, it's the very leadership of the nation now and has been for a long time.
 
+https://old.reddit.com/r/Pluribus_Sucks/comments/1pc218p/pluribus_rating_1_star_out_of_10_one_of_the_worst/nvg4asb/
+
+These people are not joking, this is exactly how audiences behave. The women in Stranger Things are being attacked. A lesbian married couple and lesbian lover scene in MAGA USA 2025 people are masking all their Trump programming by saying "bad quality". The show is about books, books, books, and people complain that nothing is happening. This is like trying to get a Fox News audience to see the problem with the "action news" of hate messaging that they have. The idea that aliens have to be the ones to bring world peace seems lost on so many audience members who want to gang up and attack other audience members. That's Newsmax, Fox News, Truth Social, that's what Trump the role model is doing with Jimmy Kimmel and Stephen Colbert and women! Trump said Rosie O'Donnell was a national security threat! This isn't a joke. Trump being removed does not address this every area of anti-book anti-women behaviors.
+
+https://old.reddit.com/r/Pluribus_Sucks/comments/1pc218p/pluribus_rating_1_star_out_of_10_one_of_the_worst/nsbmuby/
+
+Vince Gilligan's name.. his experience with bad-guy worshiping fandoms. Anti-women. The February 15, 2025 was the nice way of saying it. 
+
