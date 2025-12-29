@@ -731,3 +731,13 @@ CAMPBELL: What they discovered was a certain individual aspect of it that cannot
 MOYERS: So love is not love in general, it is love for that woman?
 
 CAMPBELL: For that one woman. That’s right.
+
+&nbsp;
+
+&nbsp;
+
+Bible literacy crisis    
+Why can't people name "1 John 3:17" Bible verse about poverty?   
+Great overall video about the drowning in snark, satire-washing, humor-washing that Neil Postman 1985 book calls out, amusement-washing     
+https://old.reddit.com/r/CringeTikToks/comments/1pxzgl6/poes_law/     
+Sunday posting on Reddit after Christmas to boot! Sunday school. Just we need "1 John 3:17" to be known by every person in USA age 12 to age 120.    
