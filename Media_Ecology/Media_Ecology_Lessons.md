@@ -1597,3 +1597,22 @@ Google Books search does not return the page number. And does not have earlier e
 
 Imagine sign languages, symbolism languages: Earwicker, Eyewicker, James Joyce's "Here Comes Everybody" story. "In the dream-world of the *Wake*, senses are dormant except for hearing, which Joyce believed "is always awake" because you cannot close your ears." OPERA_A Visual paintings, dreamer in the mind.
 The boats sailing away, all the row of re-circulation out of Noah's Ark stories... https://www.youtube.com/watch?v=2CZ8ossU4pc  All the languages, Latin. How to sing from a Joyce book of ReJoyce, SingSong. 5,202,934 views March 28, 2012
+
+&nbsp;
+
+# Celebration of Jargon
+
+The 1978 film "Convoy" is a celebration of language jargon. Street gangs of machine transportation.
+
+https://en.wikipedia.org/wiki/Convoy_(1978_film)    
+Wednesday, June 28, 1978   
+Japan got film release weeks before USA, they loved USA content and **wild west** Arizona opening themes.   
+"The truckers drive across Arizona and New Mexico"   
+
+I was so inspired by this movie at age 9, I got a CB Radio in Fort Wayne, Indiana - my first social media communications system at age 13 / Christmas 1982 Radio Shack with a 2-story high base antenna on the side of my upstairs bedroom. Fort Wayne is a trucking hub. *International Harvester (IH) plant, North American Van Lines*
+
+The film really celebrates the common medium of channel 19 public messaging. You had to have a license back then in 1978 (my license is "KBRV0896") to use social media. They deregulated and opened social media up to anyone. My 40 channel citizen band radio experience inspired me to program an original from-scratch BBS (Bulletin Board System, Public Messaging) system for the Commodore 128 computer with "subreedits" like categories for the "40  public channels" over telephone dial-up modems. I sold the software commercially in 1985. "ZBBS", "The Fortress", "219 area code".
+
+I also had a battery-operated Walkie Talkie, also a Radio Shack. Adults in the Fort Wayne area where nice to me as a child, helped me out with radio hardware (my family knew nothing). Traded equipment / used deals at times. My username was "Big Red" because my father worked in soda business and I liked that style of soda. Some of the adults thought it meant I was a red-head child, but that was my older brother, I was blonde and blue eyed.
+
+
