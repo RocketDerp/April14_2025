@@ -1,7 +1,6 @@
 # Campbell: True Story Magazines
 
-So there is this next problem of mythology—to help the individual face the approaching darkness and mystery of death. 
-Man is the only animal in the world that knows and anticipates his own death and must face it in his mind, lest he become disoriented. And you know what all of the myths do? 
+So there is this next problem of mythology — to help the individual face the approaching darkness and mystery of death.  Man is the only animal in the world that knows and anticipates his own death and must face it in his mind, lest he become disoriented. And you know what all of the myths do? 
 
 They place a happy land beyond death so that the individual may go through that door with confidence. 
 
@@ -11,7 +10,7 @@ This is — pragmatically considered — a valuable image. It enables the indivi
 
 TRACK 10:  Myths Work as Poetry
 
-These functions then, mythology serves. For all individuals, there have been functions to this day. And it does not matter whether the stories told are true or false — they work, just the way the movie or a play works upon you. I know that many of us like to feel that the stories that we read are true stories. There are, for example, [true-story magazines](https://en.wikipedia.org/wiki/True_Story_\(magazine\)). But many of the stories in True Story Magazine are not true at all. [laughter] And yet we enjoy them that way just as well. Now I would like to propose that mythologies serve whether they are true or false.
+These functions then, mythology serves. For all individuals, there have been functions to this day. And it does not matter whether the stories told are true or false — they work, just the way the movie or a play works upon you. I know that many of us like to feel that the stories that we read are true stories. There are, for example, [true-story magazines](https://en.wikipedia.org/wiki/True_Story_\(magazine\)). But many of the stories in True Story Magazine are not true at all. And yet we enjoy them that way just as well. Now I would like to propose that mythologies serve whether they are true or false.
 
 Dante, in [his analytical work the Convivio](https://en.wikipedia.org/wiki/Convivio), said that there are two ways of regarding the literal aspect of a mythological image: one is the way of the poet, and the other is the way of the theologian.
 
