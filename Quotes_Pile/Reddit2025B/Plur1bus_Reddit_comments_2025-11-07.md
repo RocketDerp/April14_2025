@@ -3333,3 +3333,7 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pyl8gc/is_pluribus_actually_t
 The very scene being discussed mentions Finnegans Wake book... but people on social meme sites just say tiny-short "dream" message instead of being able to analyze the scenes and story of the show.
 
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pyl8gc/is_pluribus_actually_this/nwjh9a7/
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pym8ox/when_they_went_to_the_ice_hotel_is_it_possible/nwjivcf/
+
+It's not just rude, it is abusive. The I.C.E. USA MAGA **gate-keeping** of people to self-deport from the turf wars of Reddit fandom.
