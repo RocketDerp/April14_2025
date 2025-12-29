@@ -977,3 +977,7 @@ https://old.reddit.com/r/Music/comments/1py3ecz/is_nicki_minaj_an_illegal_immigr
 
 <img width="1374" height="502" alt="image" src="https://github.com/user-attachments/assets/219a1384-8b03-4bf2-9e78-f59016c2b95d" /> The popularity of this Reddit comment. https://www.wired.com/1997/04/netizen-3/ April 1, 1997. I was using the term in Bellevue, Washington working for Paul Allen Group / Vulcan Northwest. ... ... ...      
 "The world's information is being liberated, and so, as a consequence, are we. My journey. Early last year, writer John Heilemann and I set out on parallel media journeys for HotWired's The Netizen, originally created to explore political issues and the media during the election year. One concept behind The Netizen - a conceit, perhaps - was that we would watch the impact of the Web on the political process in the first wired election. Heilemann was to cover the candidates, the conventions, and the campaigns. I would write about the media covering them."
+
+https://old.reddit.com/r/Music/comments/1py3ecz/is_nicki_minaj_an_illegal_immigrant_netizens/nwfypwc/
+
+<img width="1068" height="240" alt="image" src="https://github.com/user-attachments/assets/07c63df9-856b-4303-ab8c-ce76e23130ea" /> The entire nation. Not just Reddit hive mind. Bluesky thinks it is better than Twitter. A very low bar to measure. Truth Social gets copied into every media system.
