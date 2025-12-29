@@ -3392,3 +3392,48 @@ ALP character in the James Joyce book is named *Livia* "Plurabelle", very simila
 &nbsp;
 
 * "What? Corpus. Body. Corpse. Good idea the Latin. Stupifies them first"
+
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pyl8gc/is_pluribus_actually_this/nwl79et/
+
+Another serious reply! Monday isn't like yesterday. Sister Golden Hair, America, lyrics rang true! My reply:
+
+> This just got me thinking regarding Helen - why did she immediately fall backward when infected by the virus, yet when Carol goes back into the bar, the patrons were still standing/convulsing?
+
+WARNING: Deep symbolism topics ahoy, pirates
+
+&nbsp;
+
+>  what does it all mean? Is there any hint at the story that might unfold in Finnigan’s Wake?
+
+My answer:
+
+It means that Vince Gilligan is very serious in targeting Social Media Behaviors...     
+
+   * Writers Guild of America, Vince Gilligan speech. February 15, 2025
+https://youtu.be/TkteSxVIM1A?t=648 at 10:48 "climbing up out of the cesspool that is social media"
+
+&nbsp;
+
+Helen was thrown backwards because she was using a wireless phone device, a touch screen device, with [social media](https://youtu.be/TkteSxVIM1A?t=648). Helen was touching the third-rail of USA society topics; trans-gender at the "00:00:00:00" singularity of countdown time. 
+
+&nbsp;
+
+This is no ordinary book we are talking about here, it is the most important book in modern times. Nothing else compares.
+
+* "Finnegans Wake is the greatest **guidebook to media study** ever fashioned by man." - Marshall McLuhan, Newsweek Magazine, page 56, February 28, 1966
+
+
+&nbsp;
+
+# .
+
+&nbsp;
+
+> when Carol goes back into the bar, the patrons were still standing/convulsing?
+
+Notice the one infected person standing behind the bar with the traditional **telephone, landline**, not the touch wireless phone like Helen... is still standing fine, not blown away (from the social media touch screen) by the wireless device like Helen was....
+
+The emphasis on the Radio Shack man and [his Ham Radio](https://www.youtube.com/watch?v=XOGWbaOOeCM) kit  / Storage Unit Manager (old school tech like VHS tapes) is all about wireless... and they tell Carol that wireless is down and use land lines / cable TV.
+
+OPERA_A I can't be no highway man! Like the man coming up to the Rio Grande crossing... he doesn't want to steal from people and insists on paying for medical services, etc.
