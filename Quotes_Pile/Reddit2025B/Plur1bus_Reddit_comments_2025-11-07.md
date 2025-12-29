@@ -3327,3 +3327,7 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pyfrtl/carols_drug_habits/nwi
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pyl8gc/is_pluribus_actually_this/nwje8if/
 
 I think the book focus is key. My message.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pyl8gc/is_pluribus_actually_this/nwjdbm0/
+
+The very scene being discussed mentions Finnegans Wake book... but people on social meme sites just say tiny-short "dream" message instead of being able to analyze the scenes and story of the show.
