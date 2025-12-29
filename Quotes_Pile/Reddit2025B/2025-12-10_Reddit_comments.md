@@ -1012,3 +1012,15 @@ https://old.reddit.com/r/clevercomebacks/comments/1pygzd2/deflecting_the_epstein
 
 Reddit audiences don't care about reality and sincerity, just that it's back and forth feedback loops of Americans mocking Americans. "They don't care", mocking "they". Anything to avoid nonfiction learning about Russian information warfare methods since March 2013. June 2, 2014 https://www.buzzfeednews.com/article/maxseddon/documents-show-how-russias-troll-army-hit-america
 
+https://old.reddit.com/r/law/comments/1py6qy9/watergate_lawyer_makes_bombshell_claim_donald/nwgtzjf/
+
+The Reddit audience thinking is that if Trump were smarter, more strategic, the "fallout" of Epstein wouldn't be public. People don't care about billionaires like Putin, Epstein leading Bill Gates and Trump and Bill Clinton around... meme site consumers don't care about the girls being abused by the Taliban in Swat Valley Pakistan and Afghanistan... or Ukraine having people killed by Russia's Putin. Instead, people are only concerned that Trump has "fallout" from real estate deals. Always concerned only about white men and not shifting power away from the value of prizing this as leaders. We the People flock to leaders like this, serious sincere people get ignored while abusers like Putin, Trump, Epstein are treated as gods. The ATTRACTION to abuse like Trump is a population-wide, We the People, citizen everyone problem.
+
+https://old.reddit.com/r/law/comments/1py6qy9/watergate_lawyer_makes_bombshell_claim_donald/nwgt000/
+
+Fantasy images in the brain of Reddit audiences. the minds of Reddit consumers are attracted to the Darth Vader bad-ass character. Like Water White or Saul Goodman, entertainment addicts to Reality TV super-star Donald Trump are thrilled about his gestures, makeup (Orange), fashion of diapers, all to "LOL cow' milk Donald Trump for over TEN YEARS AND SIX MONTHS on Reddit, over and over, "Donald Trump hand gestures, ha ha ha ha, LOL LOL, so amusing!!!" It is touch device addicts who can't get enough of how unique and outstanding Trump is on camera and in photographs and when Trump writes or speaks! High speed image addiction runs the USA society. Trash Reality TV audiences of Reddit.  https://time.com/7313999/neil-postman-trump-prediction/
+
+https://old.reddit.com/r/law/comments/1py6qy9/watergate_lawyer_makes_bombshell_claim_donald/nwhaoen/
+
+Look how popular Santa and the magic baby-daddy pregnancy story of Jesus are. Fiction sex stories about magical virgin pregnancy far outsells nonfiction. Reddit flocks to fiction and novelty amusement on any topic, and Trump consistently provides addicts to junk content their fix.
+
