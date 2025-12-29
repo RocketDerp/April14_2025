@@ -232,3 +232,9 @@ i've never had that experience describe
 your conversion to roman catholicism in
 1938 as a long
 pilgrimage and a solitary one done
+
+&nbsp;
+
+# Medical on Autism 
+
+https://old.reddit.com/r/science/comments/1py408z/brains_of_autistic_people_have_fewer_of_a/
