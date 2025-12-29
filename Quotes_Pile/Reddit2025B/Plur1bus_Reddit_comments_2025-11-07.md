@@ -3324,3 +3324,6 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pyfrtl/carols_drug_habits/nwi
 
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pyfrtl/carols_drug_habits/nwim9lr/
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pyl8gc/is_pluribus_actually_this/nwje8if/
+
+I think the book focus is key. My message.
