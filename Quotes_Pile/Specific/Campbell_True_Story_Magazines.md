@@ -21,7 +21,7 @@ The theologian sees the story as a fact through which a truth is communicated.
 Both of them point to a superior truth through the story, but for one the story must be true — he likes True Story magazines; the theologians like True Story magazines. And artists like fiction.
 
 My own personal definition of mythology — of religion — is religion is a popular misunderstanding of poetry.
-Well now the poetry works, and so does the true-story magazine.
+Well now the poetry works, and so does the True Story magazine.
 
 And I have reviewed very briefly the working — the operation of these images now in organizing the society by telling you that this is the good society, and that it is good to do this, and not good to do that, and that that is the bad society, and you are doing a good thing when you kill its members.
 
