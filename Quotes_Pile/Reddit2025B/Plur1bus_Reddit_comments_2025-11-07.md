@@ -3776,3 +3776,12 @@ I'm talking THOUSANDS of ways this story can go, that's just  a trinity of 3 bra
 
 OPERA_A Carol in her Police Car, she is THE MAN! Defending America, Fuck Yha! Happy New Years 2026, Carol and We The People! Carol is THE MAN NOW! https://www.youtube.com/watch?v=E6l5ezErGuw
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pzr55q/third_from_the_sun_twilight_zone_atom_bomb/nwsfpt7/
+
+Twitter-length replies that **only scratch the surface** of thinking here. People complain the show is slow paced when they aren't absorbing just how huge the technology change of instant skill downloads wireless is for humanity. It leaves the invention of the Gutenberg Printing Press and Internet in the dust! Extreme high speed information networking that uses almost no more energy than a regular human body does. My reply message:
+
+> I don't think the hive has knowledge beyond what humans know.
+
+A waitress can instantly learn to fly perfect an airplane. 
+
+Ravi, the child of  Laxmi in India, can instantly learn and skip all school and education. They can also organize, wait in lines, work way faster than old-school humans.
