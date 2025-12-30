@@ -57,3 +57,8 @@ My Carl Sagan nonfiction assertions
 https://old.reddit.com/r/HyperBanalisation/comments/bjf6ys/under_the_surkov_media_invasion_of_russia_usa/eo5ddzb/
 
 Another message in same post worth capture. Behavior of banal messaging worshipers.
+
+https://old.reddit.com/r/HyperBanalisation/comments/bjf6ys/under_the_surkov_media_invasion_of_russia_usa/eo5ox1y/
+
+The user came into the Subreddit (I linked them) and made this comment. This is what is prized non-stop under Reddit society.
+
