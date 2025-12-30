@@ -3528,3 +3528,22 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pz1owh/pilot_order_of_events/
 
 Pluribus audience, Breaking Bad fandom, can't escape claiming any idea outside the Reddit hive mind of dumb jokes and stupid humor flocking is on drugs. Russia is waking war with Ukraine since February 2014. Reddit audiences just imagine every thing in the world is driven by drug use or druggies. Unable to comprehend human behavior when drugs aren't the center of their media consumption. Blue meth, Walter White. the pandemic of COVID-2019 wasn't drug users. It was pro-ignorant LOL joke-driven anti-science people.
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pufhpp/anyone_else_think_the_finale_was_a_bit_of_a_let/nwppfgx/
+
+Got a reply 5 days later, someone is at least reading. My response:
+
+>  this show didn't exactly deliver the punch of BB s1 at all.
+
+That is what L like about the show.
+
+Breaking Bad is extremely light on science fiction. It bends some rules about pure meth being the color blue. Some stuff like that.
+
+Pluribus - the magic ability for human brains to wireless download the best skills without { teaching, education, learning } is far-out science. Even if the world had made high-quality John Cena education videos on how to fly an airplane, the memorization and muscle memory of being able to even do a poor job of the task would take practice time and be dangerous.
+
+I also like that this show is about book tour, book fandom, book authoring, book reading, book comparison. This is one of the largest USA social issues of our time, people abandoning long-form learning and study in favor of TLDR and Apple iPhone screen size content. 
+
+* "the audience was being conditioned to get its information faster, in a way that was less nuanced and, of course, image-based. As my father pointed out, a written sentence has a level of verifiability to it: it is true or not true – or, at the very least, we can have a meaningful discussion over its truth. (This was pre-truthiness, pre-“alternative facts”.) But an image? One never says a picture is true or false. It either captures your attention or it doesn’t." - [My dad predicted Trump in 1985 – it's not Orwell, he warned, it's Brave New World; Andrew Postman. Thursday 2 Feb 2017](https://www.theguardian.com/media/2017/feb/02/amusing-ourselves-to-death-neil-postman-trump-orwell-huxley)
+
+Manousos Oviedo in Episode Nine depicted learning to read English and study a pile of books.
+
+Happy New Year!
