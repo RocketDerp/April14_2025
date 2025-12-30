@@ -3505,3 +3505,13 @@ repeating: "The main subs for the show are littered with schizoposts from people
 
 One more time (from the top). This show opens with the idea of a room full of people, highly educated, at the New Mexico VLA radio station - trying to decode and ponder symbolism messages of a media broadcast. OPERA_A Lyrics "Waking up is harder than it seems." "dusty books" https://www.youtube.com/watch?v=mjg43nzSYck Lyrics: "We were we like a pair of thieves, **tumbled locks and broken codes**.
 You cannot take that from me" 4,790,153 views June 16, 2015
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1ptj5kt/latin_pluribus_language_pronouns_carol_all_the/nwnewj2/
+
+My reply message:
+
+> Meanwhile Carol is insistent on disrespecting the hive's chosen they/them pronouns
+
+Keep in mind that the show story itself never discusses the Great Seal of the United States of America. The symbols on the Dollar Bill are not discussed in the show. The word "Pluribus" never shown, written, spoken. https://en.wikipedia.org/wiki/E_pluribus_unum
+
+Much of the story is to the audience, the title of the show, the opening graphics of sound waves pulsing through the word "Pluribus" that the characters inside the story have no line to, the context isn't there for them.
