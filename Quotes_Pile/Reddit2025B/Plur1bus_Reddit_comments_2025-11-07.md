@@ -3810,3 +3810,31 @@ I suggest you study information systems. This is the most amazing technology in 
 "Information Loss in Black Holes" (July 2005)     
 Stephen William Hawking      
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pzr55q/third_from_the_sun_twilight_zone_atom_bomb/nwt0hnz/
+
+I think in "The Stand" by Stephen King, the wild trash can man who gets the nuclear bomb and calls it a fire theft, the "big fire", as he is a pyro? IIRC. Anyway, my reply:
+
+[nonfiction 1988 book from Luke Skywalker Ranch California for science fiction audiences. Page 156.](https://books.google.com/books?id=2GOIGuh5GJ4C&pg=PA156&dq=%22is+as+much+a+hero+as+the+American+who+was+sent+over+there+to+kill+him.%22&hl=en&newbks=1&newbks_redir=1&sa=X)  This book explains the Latin of "PLURIBUS". 
+
+&nbsp;
+
+&nbsp;
+
+
+BILL MOYERS: Ah, yes. The German soldier who dies —
+
+CAMPBELL: — is as much a hero as the American who was sent over there to kill him.
+
+MOYERS: So does heroism have a moral objective?
+
+CAMPBELL: The moral objective is that of saving a people, or saving a person, or supporting an idea. The hero sacrifices himself for something—that’s the morality of it. Now, from another position, of course, you might say that the idea for which he sacrificed himself was **something that should not have been respected**. That’s a judgment from the other side, but it doesn’t destroy the intrinsic heroism of the deed performed.
+
+MOYERS: That’s a different angle on heroes from what I got as a young boy, when I read the story of Prometheus going after fire and bringing it back, benefiting humanity and suffering for it.
+
+CAMPBELL: Yes, Prometheus brings fire to mankind and consequently civilization. **The fire theft, by the way, is a universal mythic theme. Often, it’s a trickster animal or bird that steals the fire and then passes it along to a relay team of birds** or animals who run with it. Sometimes the animals are burned by the flames as they pass the fire along, and this is said to account for their different colorings. The fire theft is a very popular, worldwide story.
+
+* [Circle Bird 12, Air Force One Eagle, 13 free...  checking in!](https://www.youtube.com/watch?v=fAUuzrWdgNo)
+
+MOYERS: The people in each culture are trying to explain where fire came from?
+
+CAMPBELL: The story isn’t really trying to explain it, it has to do **more with the value of fire. The fire theft sets man apart** from the animals. When you’re in the woods at night, you light a fire, and that keeps the animals away. You can see their eyes shining, but they’re outside **the fire range**.
