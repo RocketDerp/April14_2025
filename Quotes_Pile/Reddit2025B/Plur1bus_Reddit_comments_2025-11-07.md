@@ -3467,3 +3467,25 @@ I've done a lot of travel in this world, and I see a story with deep footprints.
 &nbsp;
 
 . "Well I've been around the world... And I've been in the Washington Zoo. And in all my travels as the facts unravel I've found this to be true" ... *Dirty Logic* ... https://www.youtube.com/watch?v=a_1HRTJ5Hv8
+
+&nbsp;
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pym8ox/when_they_went_to_the_ice_hotel_is_it_possible/nwjrwqw/
+
+<img width="1838" height="1308" alt="image" src="https://github.com/user-attachments/assets/c7c03e7e-7490-4e58-94f3-7a675053bfed" /> I'm linking this comment because it is on a posting by user https://old.reddit.com/user/p_yth ... I was reviewing my comments for activity and replies I might have missed. And this is some of the weirdest shit I've seen. Huge activity on this account by the numbers... but after posting Pluribus topics they deleted every comment and posting on their account. They were really getting abused by the Breaking Bad / Better Call Saul fandom.
+
+I think with the encoding of the show, and opening message of "decode space signal into biological change RNA"... that this weekend I finally came to terms and analyzed the Minute 37 Episode Two POTUS Seal closely. 4 stars are missing, the eagle is turned the opposite way, and the olive branch and arrows are swapped so that the obvious meaning of "war over peace" isn't changed. Those background Air Force One screens I assume can't be filmed in camera, so are post-production. 
+
+* "Department of War" was authorized as a secondary title for the Department of Defense (DoD) on September 5, 2025
+
+Again, I am saying this is NOT the more obvious emphasis that they *could have* gone for that more people are educated to look for. But 4 of the 13 stars are missing, only 9 of the 13 appear. It really took me until yesterday Sunday, December 28, 2025 to review old Reddit activity and play with Google Search to see that I can't find anyone else who has noted this difference. I only dropped hits of it way back at Episode One + Episode 2 air time. November 7, 2025 - and when I opened a new posting on it after the final Episode 9 on Reddit, nobody took it seriously.
+
+I'm going to repeat myself: This is a show that OPENS with a bunch of scientists / university educated people trying to make meaning of symbols and codes. Code-breaking and symbolism are the very theme of the show. Add on top that Carol emphasizes at the zero hour "00:00:00:00" that *graduate school* work on James Joyce Finnegans Wake is difficult... and the general slower pace low-octane engagement of the show. It is like more about a married lesbian woman and her sex and domestic life than any raging alien invasion story. It feels *domestic* coded as a show, she flies normal coach in airline, she goes to Sprouts (which I personally shopped at at times when I lived in Austin Texas), her house is modest subdivision. Her trips favorite food places are not that outrageous, especially since she works at home and could declare trips as business expenses if she did some book related promoting.
+
+Dual income, no kids, DINK. Not hurting for money. Established in life, not n her first book, but established. Already put in 4.5 years on a book that didn't earn a single penny of income and helped her write off expenses on taxes. We are talking dedicated labor: "plugging away at it for five years". She has the money and living within her financial means. Not starting off at book one when she had to steal office supplies for her first book.
+
+Again, again, again like Finnegans Wake page 628 you go back to iterate page 3. This is a slow-burning TV show that is about cerebral slow-burning spending 4.5 years on a draft copy of a book... zero time spent on holidays with family, how has custom build for white boards, a lot of *do as you please* in this character Carol. And the show OPENS WITH CRYPTOGRAPHY DECODING OF MEDIA MESSAGES.
+
+People ignoring the Air Force One Symbolism with the eagle beak holding the word "Pluribus" in it is shocking. The audience can't focus on a slow-burning Latin language show. But i guarantee you who isn't ignoring this show because of my GitHub - Putin / Kremlin / NSA / Intelligence agencies. This GitHub is so stuffed with trigger-words of terrorism topics / October 7, 2023...
+
+Isn't that Reddit user account behavior really odd? https://old.reddit.com/user/p_yth every comment gone after getting negative attention on Pluribus posting? And I caught it in first 12 hours...
