@@ -3,7 +3,9 @@ The Gutenberg Galaxy: The Making of Typographic Man
 Marshall McLuhan    
 
 Chapter    
-Schizophrenia may be a necessary consequence of literacy.
+Schizophrenia may be a necessary consequence of literacy.     
+Google Books:     
+https://www.google.com/books/edition/The_Gutenberg_Galaxy/VWspDwAAQBAJ?hl=en&gbpv=1&dq=%22Carothers+stresses+that+until+phonetic+writing+split+apart+thought+and+action,+there+was+no+alternative+but+to+hold+all+men+responsible+for+their+thoughts%22&pg=PP110&printsec=frontcover
 
 Carothers stresses that until phonetic writing split apart thought and action, there was no alternative but to hold all men responsible for their thoughts as much as their actions. His great contribution has been to point to the breaking apart of the magical world of the ear and the neutral world of the eye, and to the emergence of the detribalized individual from this split. It follows, of course, that literate man, when we meet him in the Greek world, is a split man, a schizophrenic, as all literate men have been since the invention of the phonetic alphabet. Mere writing, however, has not the peculiar power of the phonetic technology to detribalize man. Given the phonetic alphabet with its abstraction of meaning from sound and the translation of sound into a visual code, and men were at grips with an experience that transformed them. No pictographic or ideogrammic or hieroglyphic mode of writing has the detribalizing power of the phonetic alphabet. No other kind of writing save the phonetic has ever translated man out of the possessive world of total interdependence and interrelation that is the auditory network. From that magical resonating world of simultaneous relations that is the oral and acoustic space there is only one route to the freedom and independence of detribalized man. That route is via the phonetic alphabet, which lands men at once in varying degrees of dualistic schizophrenia. Here is how Bertrand Russell describes (in his *History of Western Philosophy*, p. 39) this condition of the Greek world in the early throes of dichotomy and the trauma of literacy:
 
