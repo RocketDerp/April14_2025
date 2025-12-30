@@ -3785,3 +3785,15 @@ Twitter-length replies that **only scratch the surface** of thinking here. Peopl
 A waitress can instantly learn to fly perfect an airplane. 
 
 Ravi, the child of  Laxmi in India, can instantly learn and skip all school and education. They can also organize, wait in lines, work way faster than old-school humans.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pzr55q/third_from_the_sun_twilight_zone_atom_bomb/nwsjhw1/
+
+Riff on Reddit hive mind replies and mindsets, inception of Thunder One, Page 3 of Finengans Wake, Babel Tower Climbing... my reply message:
+
+> Did the hive mind end all cults?
+
+Almost all cults are based on language. L Ron Hubbard writing, Heaven's gate storytelling, Jonestown story telling, Rupert Murdoch Fox News HDTV cult, etc. https://www.theatlantic.com/culture/archive/2020/09/fox-news-trump-language-stelter-hoax/616309/
+
+All languages are now merged, The Tower of Babel has been climbed now.  The science fiction story of Torah Genesis 11:1 is now cracked for humanity by Kepler 22B message payload. All pass-**words**, all secrets, gone. John 1:1 broken.
+
+Carol being a pirate book author is a key. The entire hive is her fandom now, hanging on her every word. Helen's graduate school book work at Minute 22 of Episode One is key... And Carol has a Pirate Radio / Radio Shack buddy too... so it isn't just Pirate Book publishing, but also Pirate Radio tools. https://en.wikipedia.org/wiki/Pirate_radio
