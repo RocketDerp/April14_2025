@@ -3670,3 +3670,29 @@ Luke Skywalker Ranch California, nonfiction science lessons for science fiction 
 > We focus on 12 survivors
 
 "The number **thirteen** is the number of transformation **and rebirth**." - [1988 book, page 32](https://books.google.com/books?id=2GOIGuh5GJ4C&pg=PA32&dq=%22The+number+thirteen+is+the+number+of+transformation+and+rebirth.%22&hl=en&newbks=1&newbks_redir=1&sa=X)
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pzmhbp/part_2_of_the_the_unified_gilligan_theory_bugonia/nwr72vw/
+
+A downvoted Reddit comment calling out the constant attacks on serious people on Reddit over this show. People who hang out and instantly reply with mocking "ok, BUDDY, ha ha har ha" [Celebration of Ignorance](../Carl_Sagan_Quotes.md) messages. My reply public electronic message:
+
+> Not funny
+
+the Reddit hive mind really dislikes being told that Vince Gilligan has a message for Reddit hive mind attitudes of mocking and insulting and manipulating people. Elon Musk followers here from StarLink and his other corporations.
+
+&nbsp;
+
+Writers Guild of America    
+Vince Gilligan speech    
+February 15, 2025     
+https://youtu.be/TkteSxVIM1A?t=648   
+
+10:48    
+there's no simple answer for how *we* might change that. Though, if there were, I bet it would have something to do with climbing up out of the cesspool that is social media and [actually listening](https://youtu.be/QkF3oxziUI4?t=427) to each other
+
+11:07        
+But I don't know how to make that happen. So, I'll stick to my wheelhouse. As
+a writer speaking to a room full of writers, I have a proposal...
+
+&nbsp;
+
+Happy New Year 2026!
