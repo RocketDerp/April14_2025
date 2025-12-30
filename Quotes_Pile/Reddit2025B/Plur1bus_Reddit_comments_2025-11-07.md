@@ -3512,6 +3512,7 @@ My reply message:
 
 > Meanwhile Carol is insistent on disrespecting the hive's chosen they/them pronouns
 
-Keep in mind that the show story itself never discusses the Great Seal of the United States of America. The symbols on the Dollar Bill are not discussed in the show. The word "Pluribus" never shown, written, spoken. https://en.wikipedia.org/wiki/E_pluribus_unum
+Keep in mind that the show story itself never discusses the Great Seal of the United States of America. The symbols on the Dollar Bill are not discussed in the show. The word "Pluribus" is only shown on Air Force One in Episode Two, not noted by any of the characters. https://en.wikipedia.org/wiki/E_pluribus_unum
 
 Much of the story is to the audience, the title of the show, the opening graphics of sound waves pulsing through the word "Pluribus" that the characters inside the story have no line to, the context isn't there for them.
+
