@@ -3749,3 +3749,7 @@ My message. Trying to suggest book reading is central to a TV show about { book 
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pzqv5h/just_finished_my_3rd_rewatchi_do_see_the_goat/nws9g96/
 
 My message. Will people connect the song with Mr. White and dancing on his grave with a Mr. Black Parade against Mr. White? The summer being a metaphor for after Mr. White and the white supremacy of Breaking Bad? And how at Minute 22 of Episode One, the two Torches of Freedom of Lady Liberty lesbians are standing at the Public House that is Walter White's grave site? Is Helen watching over Carol, through it all, the Rise and Fall?
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pzr55q/third_from_the_sun_twilight_zone_atom_bomb/nws6oz3/
+
+PREDICTION_A My personal message with a possible story plot / arc of the story like the Twilight Zone family. Interstellar 2014 ending with frozen eggs. The gumbo of metaphors are there { frozen eggs, world war, atomic bomb employee from family name, escape to a new planet } that Dr. Brand does on her new planet mothering frozen eggs. It's not an outcome of the story I'm married to or anything, but it is in the realm of good listening to Vince Gilligan and cast at the end of Season One.
