@@ -3722,3 +3722,24 @@ Nonfiction lessons for science fiction fandoms, Luke Skywalker Ranch (California
 &nbsp;
 
 Thank you. Happy New Year 2026!
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pzp0mu/theory_the_mouse_is_the_hive_minds_core/nwrw6s9/
+
+Many short messages on Reddit that don't go outside Reddit for learning. My reply to this short Reddit comment message:
+
+> Radio signals come from radio transmitters. 
+
+Biological building blocks can build radio signals. Even the sun and pulsars create radio signals and they are not the kind of electronics that humans create at the VLA in New Mexico.
+
+https://old.reddit.com/r/askscience/comments/jiqrh/would_a_biological_radio_be_possible/
+
+&nbsp;
+
+Pluribus theory     
+Water planet, biological radio    
+https://www.youtube.com/watch?v=Q86BVlLrx-Q      
+Sunday, December 28, 2025 morning USA    
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pzp0mu/theory_the_mouse_is_the_hive_minds_core/nwrw1pw/
+
+My message. Trying to suggest book reading is central to a TV show about { book authors, book tours, book writing, book reading, book fandoms }
