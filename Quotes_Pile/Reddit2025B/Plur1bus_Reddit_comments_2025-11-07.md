@@ -3703,4 +3703,22 @@ They downvoted the user's comment too for providing a link to information. All t
 
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pzmhbp/part_2_of_the_the_unified_gilligan_theory_bugonia/nwrg2b0/
 
-My message to We The People of Reddit hive mind.
+My message to We The People of Reddit hive mind. I just now edited it (this GitHub timestamp of this commit) that won't get picked up, so here is after revision:
+
+> This failure of the biological defense vindicates the "Sensitive" archetype, proving that Teddy Gatz (Jesse Plemons) is the spiritual successor to Chuck McGill. In Better Call Saul, Chuck claimed to be allergic to electricity and wrapped himself in space blankets, which acted as a primitive Faraday cage to block the incoming Kepler frequency. Bugonia presents the exact same mechanic adapted for a different alien signature. Teddy Gatz is dismissed by society as a conspiracy theorist, yet he correctly identifies Michelle as an alien and discovers that covering her body in antihistamine cream prevents her from sending a "distress signal" to her mothership. Both men were dismissed as mentally ill
+
+My assertions to the general public, We The People, All of us, *Plur-i-Bus* All...
+
+Nonfiction lessons for science fiction fandoms, Luke Skywalker Ranch (California, USA), published in 1988 book Power off Myth:
+
+&nbsp;
+
+* "personal experience of that **deep, dark ground that is the support of our conscious** lives, and a myth is the society’s dream. The myth is the **public dream** and the dream is the private myth. If your private myth, your dream, happens to coincide with that of the society, you are in good accord with your group. If it isn’t, you’ve got an **adventure in the Dark Forest** ahead of you." - [year 1988 book, page fourty-eight](https://books.google.com/books?id=2GOIGuh5GJ4C&pg=PA48&dq=%22If+your+private+myth,+your+dream,+happens+to+coincide+with+that+of+the+society%22&hl=en&newbks=1&newbks_redir=1&sa=X)
+
+* "what is unfortunate for us is that a lot of the people who write these stories do not have the sense of their responsibility. **These stories are making and breaking lives**. But the movies are made simply to make money. The kind of responsibility that goes into a priesthood with a ritual is not there. That is one of our problems today." - [Year 1988 book, page one-hundred and three](https://books.google.com/books?id=2GOIGuh5GJ4C&pg=PA103&dq=%22But+the+movies+are+made+simply+to+make+money.+The+kind+of+responsibility+that+goes+into+a+priesthood+with+a+ritual+is+not+there.%22&hl=en&newbks=1&newbks_redir=1&sa=X)
+
+* **Vince Gilligan has clearly articulated** in interviews that Pluribus on Apple TV+ show is a *mythology*, public dream, myth show. https://youtu.be/kFrffEktluo?t=3315
+
+&nbsp;
+
+Thank you. Happy New Year 2026!
