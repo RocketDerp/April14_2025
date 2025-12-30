@@ -3740,6 +3740,6 @@ Water planet, biological radio
 https://www.youtube.com/watch?v=Q86BVlLrx-Q      
 Sunday, December 28, 2025 morning USA    
 
-https://old.reddit.com/r/Pluribus_TVshow/comments/1pzp0mu/theory_the_mouse_is_the_hive_minds_core/nwrw1pw/
+LINK: https://old.reddit.com/r/Pluribus_TVshow/comments/1pzp0mu/theory_the_mouse_is_the_hive_minds_core/nwrw1pw/
 
 My message. Trying to suggest book reading is central to a TV show about { book authors, book tours, book writing, book reading, book fandoms }
