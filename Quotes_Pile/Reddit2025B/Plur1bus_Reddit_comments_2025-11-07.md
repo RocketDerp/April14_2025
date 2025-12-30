@@ -3634,3 +3634,11 @@ CAMPBELL: "A new order of the world." This is a new order of the world. And the 
 &nbsp;
 
 Carol has the eye of Dog and God training! Carol is the only true Patriot who has survived, and she is building the rebellion against the outer-space empire.  Keep reading books like Carol and Manousos! Not every interpretation of books have been found!
+
+https://old.reddit.com/r/amateurradio/comments/1pt261d/nice_kenwood_setup_on_the_show_pluribus/nvfc9yv/
+
+Capturing copy of message about VLA signal. Google Search Summary referenced this Reddit comment message about 400 baud.
+
+https://old.reddit.com/r/amateurradio/comments/1pt261d/nice_kenwood_setup_on_the_show_pluribus/nvfs5ep/
+
+Capturing copy of message about VLA signal. Google Search Summary referenced this Reddit comment message about 400 baud.
