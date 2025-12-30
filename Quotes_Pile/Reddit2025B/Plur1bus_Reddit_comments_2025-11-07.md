@@ -3838,3 +3838,8 @@ CAMPBELL: Yes, Prometheus brings fire to mankind and consequently civilization. 
 MOYERS: The people in each culture are trying to explain where fire came from?
 
 CAMPBELL: The story isn’t really trying to explain it, it has to do **more with the value of fire. The fire theft sets man apart** from the animals. When you’re in the woods at night, you light a fire, and that keeps the animals away. You can see their eyes shining, but they’re outside **the fire range**.
+
+&nbsp;
+
+* That's also what Carol does with the city lights of ABQ once the wild animals come at night to eat Helen's dead body. "What? Corpus. Body. Corpse. Good idea **the Latin. Stupifies them first**. Hospice for the dying. They don't seem to chew it: only swallow it down. Rum idea: eating bits of a corpse. Why the cannibals cotton to it" [- James Joyce[(https://www.online-literature.com/james_joyce/ulysses/5/) - lots of Pluribus Minute 22 Episode One in that line. Rum pirate booze of Carol's writing. The Milk carton body eating themes.
+  
