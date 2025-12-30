@@ -3555,3 +3555,17 @@ Found Carol doing alien invasion hive mind of Reddit damage control. Found Vince
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pzefrv/shows_like_pluribus/nwpvui8/
 
 My message.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pze9ch/they_cant_hurt_any_organic_living_beings/nwpjlq7/
+
+Many Walter White fandom / Breaking Bad fandom of drug use around this show. My reply message:
+
+> This is Xanax. People take it every day for anxiety. It’s a very common drug. It can be addictive however if used too frequently.
+
+A large number of people taking a mind-altering drug in a world of warfare, horrors, mutually assured destruction... who think Fox News HDTV is nonfiction. People [who are gullible and easily manipulated by Rupert Murdoch](https://www.axios.com/2024/10/19/musk-ackman-election-misinformation)... I think maybe the routine drug use should be taken seriously.
+
+We got some real hive mind Walter White blue meth drug issues to consider. Pluribus Episode One Zero Hour countdown of "00:00:00:00" is even on the grave site of Walter White.
+
+&nbsp;
+
+Timothy Leary; How to Operate Your Brain (1994); "Throughout human history, as our species has faced the frightening, terrorizing fact that we do not know who we are, or where we are going in this ocean of chaos, it has been the authorities — the political, the religious, the educational authorities — who attempted to comfort us by giving us order, rules, regulations, informing — forming in our minds — their view of reality. To think for yourself you must question authority and learn how to put yourself in a state of vulnerable open-mindedness, chaotic, confused vulnerability to inform yourself."
