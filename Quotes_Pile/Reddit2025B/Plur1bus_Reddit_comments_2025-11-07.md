@@ -3591,3 +3591,46 @@ I see very little sincere discussion of this in the past two months.
 4. An object from space can crash into Earth and cause fear and emotional reactions. Life on earth evolved with terrible explosions and dangers. Chicxulub Impact Event
 
 We have no idea if this network problem is limited to Earth, or the history of this RNA message on other planets, etc.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pz300t/more_clues_about_manousos/nwpklqt/
+
+Reddit audiences crave more Twitter-think one-line commenting messages. Crying out "more more more* low-effort questions with simple replies. Anti-wiki Anti-FAQ, prizing repetitive low-effort high-speed messaging above all else. OPERA_A Help From Above, In the "00:00:00:00" Zero Midnight Hour of the World Ending Pluribus Episode One... https://www.youtube.com/watch?v=VdphvuyaV_I
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pz300t/more_clues_about_manousos/nwpo5u8/
+
+My poetry reading book pages torn out reply:
+
+Dog spelled backwards is God.
+
+He speaks Spanish and he left his home to meet Gods in USA, immigrant who seeks freedom and liberty of Lady Liberty VHS tape delivery.  He left his home to come to USA [just like the little Polish girl who liked a man selling ice cream](https://youtu.be/kqcwKnjMffw?t=43)!
+
+"And, of course, all God's dogs     
+Sit when the angels say "sit."    
+Every dog becomes a good    
+Dog in Dog Heaven."     http://www.pekeatzurescue.com/links/dogheaven.htm
+
+&nbsp;
+
+Carl the only American, USA person, the *Dog Trainer, God Trainer*. The lesbian dominatrix, Queen of the Pirates. [Carol, captain my captain](https://www.youtube.com/watch?v=j64SctPKmqk), of the Pirate Tales! (*" the legendary Irish pirate queen Grace O'Malley (Gráinne Ní Mháille) as a significant figure, weaving her tales of seafaring, challenging English rule, and meeting Queen Elizabeth I into the book's dense, multilingual narrative, often as "her grace o'malice," blending historical fact with myth to explore themes of Irish identity, power, and defiance."* - Minute 22 of Plirubus Pilot Episode at the "00:00:00:00" countdown Zero Hour)
+
+&nbsp;
+
+# Caro: *Novus Ordo Sedorum*
+
+1988 Luke Skywalker lessons for science fiction fandoms:
+
+CAMPBELL: Yes, but wasn't that symbolic? This is not simply coincidental. This is the thirteen states as themselves symbolic of what they were.
+
+BILL MOYERS: That would explain the other inscription down there, "Novus Ordo Sedorum."
+
+CAMPBELL: "A new order of the world." This is a new order of the world. And the saying above, "Annuit Coeptis," means "He has smiled on our accomplishments" or "our activities."
+
+ MOYERS: He --
+
+ CAMPBELL: He, the eye, what is represented by the eye. Reason. In Latin you wouldn't have to say "he," it could be "it" or "she" or "he." But the divine power has smiled on our doings. And so this new world has been built in the sense of God's original creation, and the reflection of God's original creation, through reason, has brought this about.
+
+&nbsp;
+
+&nbsp;
+
+Carol has the eye of Dog and God training!
