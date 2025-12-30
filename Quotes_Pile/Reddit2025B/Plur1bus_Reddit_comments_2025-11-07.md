@@ -3489,3 +3489,19 @@ Again, again, again like Finnegans Wake page 628 you go back to iterate page 3. 
 People ignoring the Air Force One Symbolism with the eagle beak holding the word "Pluribus" in it is shocking. The audience can't focus on a slow-burning Latin language show. But i guarantee you who isn't ignoring this show because of my GitHub - Putin / Kremlin / NSA / Intelligence agencies. This GitHub is so stuffed with trigger-words of terrorism topics / October 7, 2023...
 
 Isn't that Reddit user account behavior really odd? https://old.reddit.com/user/p_yth every comment gone after getting negative attention on Pluribus posting? And I caught it in first 12 hours...
+
+https://old.reddit.com/r/okbuddypluribus/comments/1pymhyo/when_they_went_to_the_ice_hotel_is_it_possible/nwjm6uj/
+
+Here is the mockery brigade on another subreddit discussing https://old.reddit.com/user/p_yth posting.
+
+https://old.reddit.com/r/okbuddypluribus/comments/1pymhyo/when_they_went_to_the_ice_hotel_is_it_possible/nwjqwsj/
+
+<img width="892" height="478" alt="image" src="https://github.com/user-attachments/assets/c5106bed-c70c-461b-9b2d-7bd44bc586ab" />
+See the hate dehumanization fandom right here in this message, an organized group, organized hate club. "The main subs for the show are littered with schizoposts from people who desperately want to be taken seriously. Everything from “I just watched the show and only I noticed this very-not-subtle detail” or fan theories that read like they were produced by the decaying brain of a media illiterate redditor."
+
+The popular subreddit (of which is outside the context of this posting linking 2 that are *not* the popular one) has a wild "no politics" policy on a TV show that has Air Force One and illegal aliens being handcuffed by Carol after bombing illegal aliens at her house. A show with 3 lesbian women as center character has a *no politics* policy in USA December 2025. Very sus, suspicious as all fuck to have such a policy about a show.
+
+repeating: "The main subs for the show are littered with schizoposts from people"- yha, as if living under MAGA Trump White house persecuting homosexuals is driving hundreds of millions of people in USA into mental distress! As if Epstein sexual abuse of 16 year old girl's isn't the story of Carol's parents forcing her into torture with "Camp Freedom Falls" in *Tennessee* MAGA land? ["When Carol was 16, her mother sent her away to a conversion camp called Freedom Falls. As she recalls her time there"](https://www.vulture.com/article/pluribus-carol-mental-health-recap.html) ... how about MANY people freaking out in December 2025 USA. **"MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL"** https://www.youtube.com/watch?v=09maaUaRT4M
+
+One more time (from the top). This show opens with the idea of a room full of people, highly educated, at the New Mexico VLA radio station - trying to decode and ponder symbolism messages of a media broadcast. OPERA_A Lyrics "Waking up is harder than it seems." "dusty books" https://www.youtube.com/watch?v=mjg43nzSYck Lyrics: "We were we like a pair of thieves, **tumbled locks and broken codes**.
+You cannot take that from me" 4,790,153 views June 16, 2015
