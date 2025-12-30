@@ -1018,7 +1018,7 @@ The Reddit audience thinking is that if Trump were smarter, more strategic, the 
 
 https://old.reddit.com/r/law/comments/1py6qy9/watergate_lawyer_makes_bombshell_claim_donald/nwgt000/
 
-Fantasy images in the brain of Reddit audiences. the minds of Reddit consumers are attracted to the Darth Vader bad-ass character. Like Water White or Saul Goodman, entertainment addicts to Reality TV super-star Donald Trump are thrilled about his gestures, makeup (Orange), fashion of diapers, all to "LOL cow' milk Donald Trump for over TEN YEARS AND SIX MONTHS on Reddit, over and over, "Donald Trump hand gestures, ha ha ha ha, LOL LOL, so amusing!!!" It is touch device addicts who can't get enough of how unique and outstanding Trump is on camera and in photographs and when Trump writes or speaks! High speed image addiction runs the USA society. Trash Reality TV audiences of Reddit.  https://time.com/7313999/neil-postman-trump-prediction/
+Fantasy images in the brain of Reddit audiences. the minds of Reddit consumers are attracted to the Darth Vader bad-ass character. Like Water White or Saul Goodman, entertainment addicts to Reality TV super-star Donald Trump are thrilled about his gestures, makeup (Orange), fashion of diapers, all to "LOL cow' milk Donald Trump for over TEN YEARS AND SIX MONTHS on Reddit, over and over, "Donald Trump hand gestures, ha ha ha ha, LOL LOL, so amusing!!!" It is touch device addicts who can't get enough of how unique and outstanding Trump is on camera and in photographs and when Trump writes or speaks! High speed image addiction runs the USA society. Trash Reality TV audiences of Reddit. https://time.com/7313999/neil-postman-trump-prediction/
 
 https://old.reddit.com/r/law/comments/1py6qy9/watergate_lawyer_makes_bombshell_claim_donald/nwhaoen/
 
@@ -1034,3 +1034,6 @@ https://old.reddit.com/r/politics/comments/1pz7fyv/gen_z_men_are_moving_away_fro
 
 On Lemmy and Reddit, you can't find a single person wiling to stand up that Vince Gilligan's TV show "Pluribus" with Air Force One and Carol driving a Police Car has a single thing to do with politics.. Anti-engagement on nonfiction learning of the meaning of the Great Seal of the United States of america abounds. People are entirely unwilling to read serious books from Carl Sagan, Bill Moyers - even if they were raised on Star wars. Anti-engagement to goodness is extreme. Hate and mocking is all people truly prize. trump provides endless hate leadership. People enjoy hate of trump.
 
+https://old.reddit.com/r/okbuddycinephile/comments/1pzioku/favorite_actor_that_unnecessarily_made_themselves/nwqip4p/
+
+MAGA USA December 2025. Lead by { Putin, Epstein } prizing of women are to serve men like Musk and Trump and Putin. Women self-harm to please men, and men gang up on Truth Social and Reddit Social to belittle and insult women for not pleasing them with images. Addictions to machines, love for meme machines, hate for persons. The women are under siege by Putin and Trump and the anti-Malala (avoid giving girls power, waste time instead posting 12 year old actresses faces that now adult don't please Reddit touch-device men).
