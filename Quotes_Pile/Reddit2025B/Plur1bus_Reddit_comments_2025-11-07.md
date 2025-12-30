@@ -3700,3 +3700,7 @@ Happy New Year 2026!
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pzmhbp/part_2_of_the_the_unified_gilligan_theory_bugonia/nwr8e9i/
 
 They downvoted the user's comment too for providing a link to information. All the comments are tiny-short hyper-banal Reddit. Elon Musk tiny-short Tweet-think patterns to attack serious complex ideas. May 4, 2019 I created this https://old.Reddit.com/r/HyperBanalisation/ Subreddit to document the behavior. And boy, when December 2019 COVID-2019 came to the world stage, did Reddit mock and banalize science on that topic! LOL anti-mask anti-human cheering on Trump leadership as a "LOL cow" to milk for thrills and amusement.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pzmhbp/part_2_of_the_the_unified_gilligan_theory_bugonia/nwrg2b0/
+
+My message to We The People of Reddit hive mind.
