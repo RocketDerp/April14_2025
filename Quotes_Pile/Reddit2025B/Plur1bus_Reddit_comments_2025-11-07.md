@@ -3569,3 +3569,7 @@ We got some real hive mind Walter White blue meth drug issues to consider. Pluri
 &nbsp;
 
 Timothy Leary; How to Operate Your Brain (1994); "Throughout human history, as our species has faced the frightening, terrorizing fact that we do not know who we are, or where we are going in this ocean of chaos, it has been the authorities — the political, the religious, the educational authorities — who attempted to comfort us by giving us order, rules, regulations, informing — forming in our minds — their view of reality. To think for yourself you must question authority and learn how to put yourself in a state of vulnerable open-mindedness, chaotic, confused vulnerability to inform yourself."
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pzc9nd/pluribus_is_built_on_a_premise_with_a_lot_of/nwq5tzp/
+
+My message. My experience with Break Bad and Better Call Saul fandoms the past 60 days observing social media on this show are horrific. Horror show. Hate-filled MAGA USA Truth Social followers. Many obvious to their hive mind of Rupert Murdoch creation.
