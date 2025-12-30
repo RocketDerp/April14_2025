@@ -3642,3 +3642,31 @@ Capturing copy of message about VLA signal. Google Search Summary referenced thi
 https://old.reddit.com/r/amateurradio/comments/1pt261d/nice_kenwood_setup_on_the_show_pluribus/nvfs5ep/
 
 Capturing copy of message about VLA signal. Google Search Summary referenced this Reddit comment message about 400 baud.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pzc9nd/pluribus_is_built_on_a_premise_with_a_lot_of/nwqx1wu/
+
+Wow, another Reddit user who is now serious! Much more thoughtful comments after the weekend / high speed streaming Apple TV+ airing on Christmas Eve. My reply:
+
+> Nobody ever asked why a virus which claims being unable to do harm, chose to take 800 million people into the seizure state without them emerging at the other side of it.
+
+I've been asking it since the first episode. It is a metaphor for women giving birth
+
+1. A child is not responsible for killing the host, mother. It is very common in nature. https://www.campop.geog.cam.ac.uk/blog/2024/09/19/childbirth-in-the-past/
+
+2. The child once birthed outside the mothership, is now free floating in space with free will and able to navigate and create new values.
+
+3. It is no subtle coincidence that lesbian women are married and could very well be virgin women who write about *seamen* Pirates.
+
+4. It is no subtle coincidence that the season ending is on December 24, December 25. Again, childbirth kills mothers frequently. 
+
+Rebirth metaphors abound.
+
+# .
+
+&nbsp;
+
+Luke Skywalker Ranch California, nonfiction science lessons for science fiction fandoms:
+
+> We focus on 12 survivors
+
+"The number **thirteen** is the number of transformation **and rebirth**." - [1988 book, page 32](https://books.google.com/books?id=2GOIGuh5GJ4C&pg=PA32&dq=%22The+number+thirteen+is+the+number+of+transformation+and+rebirth.%22&hl=en&newbks=1&newbks_redir=1&sa=X)
