@@ -3611,19 +3611,19 @@ Dog in Dog Heaven."     http://www.pekeatzurescue.com/links/dogheaven.htm
 
 &nbsp;
 
-Carl the only American, USA person, the *Dog Trainer, God Trainer*. The lesbian dominatrix, Queen of the Pirates. [Carol, captain my captain](https://www.youtube.com/watch?v=j64SctPKmqk), of the Pirate Tales! (*" the legendary Irish pirate queen Grace O'Malley (Gráinne Ní Mháille) as a significant figure, weaving her tales of seafaring, challenging English rule, and meeting Queen Elizabeth I into the book's dense, multilingual narrative, often as "her grace o'malice," blending historical fact with myth to explore themes of Irish identity, power, and defiance."* - Minute 22 of Plirubus Pilot Episode at the "00:00:00:00" countdown Zero Hour)
+Carol, the only surviving American, USA independent person, the *Dog Trainer, God Trainer*. The lesbian dominatrix, Queen of the Pirates. [Carol, captain my captain](https://www.youtube.com/watch?v=j64SctPKmqk), of the Pirate Tales! (*" the legendary Irish pirate queen Grace O'Malley (Gráinne Ní Mháille) as a significant figure, weaving her tales of seafaring, challenging English rule, and meeting Queen Elizabeth I into the book's dense, multilingual narrative, often as "her grace o'malice," blending historical fact with myth to explore themes of Irish identity, power, and defiance."* - Minute 22 of Plirubus Pilot Episode at the "00:00:00:00" countdown Zero Hour)
 
 &nbsp;
 
-# Caro: *Novus Ordo Sedorum*
+# Carol Pirate *Fleet Admiral*: ***Annuit Coeptis***
 
-1988 Luke Skywalker lessons for science fiction fandoms:
+1988 Luke [Skywalker Ranch California science nonfiction lessons for science fiction](https://en.wikipedia.org/wiki/Joseph_Campbell_and_the_Power_of_Myth) fandoms. [Book page 32](https://books.google.com/books?id=2GOIGuh5GJ4C&pg=PA32&dq=%22but+wasn%27t+that+symbolic?+This+is+not+simply+coincidental.%22&hl=en&newbks=1&newbks_redir=1&sa=X):
 
 CAMPBELL: Yes, but wasn't that symbolic? This is not simply coincidental. This is the thirteen states as themselves symbolic of what they were.
 
 BILL MOYERS: That would explain the other inscription down there, "Novus Ordo Sedorum."
 
-CAMPBELL: "A new order of the world." This is a new order of the world. And the saying above, "Annuit Coeptis," means "He has smiled on our accomplishments" or "our activities."
+CAMPBELL: "A new order of the world." This is a new order of the world. And the saying above, "Annuit Coeptis," means "He has smiled on our accomplishments" or "our activities.".
 
  MOYERS: He --
 
@@ -3633,4 +3633,4 @@ CAMPBELL: "A new order of the world." This is a new order of the world. And the 
 
 &nbsp;
 
-Carol has the eye of Dog and God training!
+Carol has the eye of Dog and God training! Carol is the only true Patriot who has survived, and she is building the rebellion against the outer-space empire.  Keep reading books like Carol and Manousos! Not every interpretation of books have been found!
