@@ -3745,3 +3745,7 @@ Sunday, December 28, 2025 morning USA
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pzp0mu/theory_the_mouse_is_the_hive_minds_core/nwrw1pw/
 
 My message. Trying to suggest book reading is central to a TV show about { book authors, book tours, book writing, book reading, book fandoms }
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pzqv5h/just_finished_my_3rd_rewatchi_do_see_the_goat/nws9g96/
+
+My message. Will people connect the song with Mr. White and dancing on his grave with a Mr. Black Parade against Mr. White? The summer being a metaphor for after Mr. White and the white supremacy of Breaking Bad? And how at Minute 22 of Episode One, the two Torches of Freedom of Lady Liberty lesbians are standing at the Public House that is Walter White's grave site? Is Helen watching over Carol, through it all, the Rise and Fall?
