@@ -13,6 +13,8 @@ The LSD thing is is fascinating in relation to this. It is a intentionally achie
 
 https://www.google.com/books/edition/Consciousness_Brain_States_of_Awareness/Hi8QAQAAIAAJ?hl=en&gbpv=1&bsq=%22And+so,+with+that+challenge+before+us,+let+us+try+to+become+acquainted+with+some+of+the+tides+and+undertows+of+our+inward+sea.%22&dq=%22And+so,+with+that+challenge+before+us,+let+us+try+to+become+acquainted+with+some+of+the+tides+and+undertows+of+our+inward+sea.%22&printsec=frontcover
 
+https://www.goodreads.com/quotes/7297224-the-lsd-phenomenon-on-the-other-hand-is-to-me-at
+
 And so, with that challenge before us, let us try to become acquainted with some of the tides and undertows of our inward sea. Let me tell you something of what I have recently heard about the wonders of the inward schizophrenic plunge.
 
 The first experience is of a sense of splitting. The person sees the world going in two: one part of it moving away; himself in the other part. This is the beginning of the regressus, the crack-off and backward flow. He may see himself, for a time, in two roles. One is the role of the clown, the ghost, the witch, the queer one, the outsider. That is the outer role that he plays, making little of himself as the fool, a joke, the one kicked around, the patsy. Inside, however, he is the savior, and he knows it. He is the hero chosen for a destiny. Recently one such savior did me the honor of paying me three visits: a tall, beautful young man with the beard and gentle eyes and manner of a Christ; LSD was his sacrament -- LSD and sex. "I have seen my Father," he told me on the second occasion. "He is old now and has told me just to wait. I shall know when the time comes for me to take over."
