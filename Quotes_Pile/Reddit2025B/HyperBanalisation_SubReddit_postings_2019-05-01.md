@@ -1,3 +1,7 @@
+https://old.reddit.com/r/HyperBanalisation/comments/q404zz/rlouderwithcrowder_disguises_election/hy33m9o/
+
+duplicate link (1st and 2nd identical) to deal with current Python parser app.
+
 # HyperBanalisation subreddit capture
 
 Capturing the postings on that community of my previous work to inform people of the mental outcomes of Cambridge Analytica and Russia's Internet Research Agency.
