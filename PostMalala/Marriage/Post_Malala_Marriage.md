@@ -32,3 +32,20 @@ The 1954 Equation from MLK Jr.
 How ANYBODY can think they have escaped the toxic worship of guns and weapon systems. The Mutually Assured Destrucion that men like Putin and Trump rely upon to terrorize humanity.
 
 Your one marriage overcoming all the hate oceans and all the hate lakes and all the hate ponds isn't made better by being a lucky person who overcame allthe shit.
+
+&nbsp;
+
+&nbsp;
+
+# December 29, 2025
+
+Front page of Reddit. Islamic child marriage laws are popular now.  Iraq.    
+
+https://old.reddit.com/r/TikTokCringe/comments/1pz4g5v/this_is_horrifying/
+
+The answer to Iran women being wrecked, Afghanistan being wrecked for girls and women, is more anti-Malala movement. More praise of older men like Epstein and Putin leading society.
+
+People spend all their time chanting "Epstein, LIST!" - which does not address the education problems of young girls and power of older men wrecking young girls lives. A "List" is about fantasy of rich white men and private islands and private jets. Putin lifestyle leadership. Killing people in Ukraine for no good purpose other than audiences thrilled by power. 
+
+Education, learning, world peace, all people getting education. What Malala has pointed out since January 2009 - all mocked and considered boring, People far more concerned with "Lists" of Epstein men attraction. And sports games, video games, than actually using social media sustained focus on learning / study / nonfiction non-entertainment non-amusement concerns of humanity.
+
