@@ -1024,3 +1024,13 @@ https://old.reddit.com/r/law/comments/1py6qy9/watergate_lawyer_makes_bombshell_c
 
 Look how popular Santa and the magic baby-daddy pregnancy story of Jesus are. Fiction sex stories about magical virgin pregnancy far outsells nonfiction. Reddit flocks to fiction and novelty amusement on any topic, and Trump consistently provides addicts to junk content their fix.
 
+https://old.reddit.com/r/politics/comments/1pz7fyv/gen_z_men_are_moving_away_from_maga_in_droves/nwo64sx/
+
+I grew up in Fort Wayne, Indiana. The problem is Reddit, Facebook, every area of life. People have no idea who "The Internet Research Agency" or any sense of how advertising, marketing, "Cambridge Analytica" work. In Indiana, they have since year 1996 been raised by Rupert Murdoch's Fox News and talk radio shows that blame all their problems on California, USA. And they all adopted Apple iPhone / iPad from California, Google Android from California... and let Facebook billionaire and Twitter Musk immigrant billionaire feed the fires that Rupert Murdoch immigrant billionaire created.
+
+People who act like USA is fun and enjoyable like it was can't face that a *city slicker* golf course Donald Trump leader has sold their nation to Putin. Just today Ukraine being sold-out at the White House. 
+
+https://old.reddit.com/r/politics/comments/1pz7fyv/gen_z_men_are_moving_away_from_maga_in_droves/nwoatct/
+
+On Lemmy and Reddit, you can't find a single person wiling to stand up that Vince Gilligan's TV show "Pluribus" with Air Force One and Carol driving a Police Car has a single thing to do with politics.. Anti-engagement on nonfiction learning of the meaning of the Great Seal of the United States of america abounds. People are entirely unwilling to read serious books from Carl Sagan, Bill Moyers - even if they were raised on Star wars. Anti-engagement to goodness is extreme. Hate and mocking is all people truly prize. trump provides endless hate leadership. People enjoy hate of trump.
+
