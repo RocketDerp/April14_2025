@@ -3753,3 +3753,26 @@ My message. Will people connect the song with Mr. White and dancing on his grave
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pzr55q/third_from_the_sun_twilight_zone_atom_bomb/nws6oz3/
 
 PREDICTION_A My personal message with a possible story plot / arc of the story like the Twilight Zone family. Interstellar 2014 ending with frozen eggs. The gumbo of metaphors are there { frozen eggs, world war, atomic bomb employee from family name, escape to a new planet } that Dr. Brand does on her new planet mothering frozen eggs. It's not an outcome of the story I'm married to or anything, but it is in the realm of good listening to Vince Gilligan and cast at the end of Season One.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pzr55q/third_from_the_sun_twilight_zone_atom_bomb/nwsdr3f/
+
+At least it's a serious reply. Here is my response message: 
+
+> How does she leave earth? We don't have interstellar travel.
+
+We have only gotten 1 out of 4 seasons of story.
+
+There are thousands of paths this show can go, just some simple examples:
+
+1. The hive mind building the radio signal to "pay it forward" the 78-second RNA may develop some **newly developed experimental** technology that Carol can use. In the Twilight Zone episode: "Sturka realizes that there is only one way to escape — steal an **experimental**, top-secret spacecraft" - say in year 2029 timeline of the show.
+
+2. It turns out there are other alien planets sending messages and it isn't only Kepler 22B "pay it forward".  Carol gets technology or personal help from competing aliens. HHGTTG pickup or help.
+
+3. Carol's last name turns out to be she is an alien on earth and her immune system defends against the Kepler 22B RNA 78-second attack. Jupiter Ascending (2015) plot about Carol having special genetics. "she's the genetic reincarnation of an alien queen and the rightful owner of Earth"
+
+I'm talking THOUSANDS of ways this story can go, that's just  a trinity of 3 branches on the tree of what four full seasons and external supporting material could deliver.
+
+&nbsp;
+
+OPERA_A Carol in her Police Car, she is THE MAN! Defending America, Fuck Yha! Happy New Years 2026, Carol and We The People! Carol is THE MAN NOW! https://www.youtube.com/watch?v=E6l5ezErGuw
+
