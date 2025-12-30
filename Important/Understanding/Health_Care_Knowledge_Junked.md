@@ -148,3 +148,9 @@ https://old.reddit.com/r/todayilearned/comments/1pqlywo/til_that_the_first_notic
 https://old.reddit.com/r/science/comments/1py408z/brains_of_autistic_people_have_fewer_of_a/
 
 Autism information. Drowned and forgotten like any serious learning in society.
+
+&nbsp;
+
+https://old.reddit.com/r/NoStupidQuestions/comments/1pzmifi/do_americans_actually_avoid_calling_an_ambulance/
+
+so much trash information will drown out sustained focus on critical important issues. A society of USA where constant stimulation by Truth Social / actors of Reality TV in White House keep Reddit audience jumping from meme to meme. Anti-Wiki, anti calling for organized repeat sustained repeating focus of important topics. Health Care system topics get drowned in gun worship "Luigi!!!!" cheering all year 2025. Instead of repeating and repeat of topics like this with details and dates and receipts.
