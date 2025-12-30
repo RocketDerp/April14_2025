@@ -18,3 +18,6 @@ https://old.reddit.com/r/HyperBanalisation/comments/emrv7q/chaos_is_the_point_ru
 
 Documenting new Reddit accounts with noise-jamming banality messages.
 
+https://old.reddit.com/r/HyperBanalisation/comments/e0ii2j/russia_is_playing_with_the_wests_minds_says_putin/f8e5od8/
+
+The weeks right before COVID-2019 Global Pandemic. This Reddit Hyper Banalisation public posting I created is dated November 23, 2019. By that point, Russia had mind-fucked Reddit into total back and forth feedback loops about pandemic outbreaks. Since year 2014. **Factual evidence about Russia from Johns Hopkins University and George Washington University disclosed globally August 24, 2018**. https://www.bbc.com/news/world-us-canada-45294192
