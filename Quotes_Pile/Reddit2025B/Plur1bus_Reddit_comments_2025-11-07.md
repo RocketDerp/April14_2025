@@ -3516,3 +3516,15 @@ Keep in mind that the show story itself never discusses the Great Seal of the Un
 
 Much of the story is to the audience, the title of the show, the opening graphics of sound waves pulsing through the word "Pluribus" that the characters inside the story have no line to, the context isn't there for them.
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pz963o/ive_noticed_on_average_people_who_binged_the_show/nwordxd/
+
+Note the age of the account. In a nation where President Donald Trump and White House provide constant stimulation and entertainment every hour of every day in year, the only thing people seem to find non-boring about Pluribus is low-effort mindless commenting on Reddit. The anti-goodness people seek out and prize in USA 2025 can't be described. It is a horror nightmare and people just keep sports and games and amusements as usual. 
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pz9ol9/we_are_i_am_the_hive_mind_i_wish_to_ease_your/nwopc9g/
+
+This low-effort mockery is what gets engagement. 
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pz1owh/pilot_order_of_events/nwne58l/
+
+Pluribus audience, Breaking Bad fandom, can't escape claiming any idea outside the Reddit hive mind of dumb jokes and stupid humor flocking is on drugs. Russia is waking war with Ukraine since February 2014. Reddit audiences just imagine every thing in the world is driven by drug use or druggies. Unable to comprehend human behavior when drugs aren't the center of their media consumption. Blue meth, Walter White. the pandemic of COVID-2019 wasn't drug users. It was pro-ignorant LOL joke-driven anti-science people.
+
