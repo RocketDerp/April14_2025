@@ -3573,3 +3573,21 @@ Timothy Leary; How to Operate Your Brain (1994); "Throughout human history, as o
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pzc9nd/pluribus_is_built_on_a_premise_with_a_lot_of/nwq5tzp/
 
 My message. My experience with Break Bad and Better Call Saul fandoms the past 60 days observing social media on this show are horrific. Horror show. Hate-filled MAGA USA Truth Social followers. Many obvious to their hive mind of Rupert Murdoch creation.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pzc9nd/pluribus_is_built_on_a_premise_with_a_lot_of/nwp71cf/
+
+My reply messages encourage people to think outside of the Apple iPhone viewing screen rectangle box. Real world issues of real Earth:
+
+> it is the instinctive reaction of being shouted at by the drone being shouted at. Wich is the instinctive release of adrenaline. The hive cannot control instinctive responses. This is a fatal flaw.
+
+I see very little sincere discussion of this in the past two months.
+
+1. Earthquakes would trigger instinctive emotional reactions
+
+2. Animals attacking a person can be even more intense than a human screaming like Carol does. Our bodies evolved on earth to climb trees and flee predators.
+
+3. A volcanic eruption.
+
+4. An object from space can crash into Earth and cause fear and emotional reactions. Life on earth evolved with terrible explosions and dangers. Chicxulub Impact Event
+
+We have no idea if this network problem is limited to Earth, or the history of this RNA message on other planets, etc.
