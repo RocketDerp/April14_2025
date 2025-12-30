@@ -3547,3 +3547,11 @@ I also like that this show is about book tour, book fandom, book authoring, book
 Manousos Oviedo in Episode Nine depicted learning to read English and study a pile of books.
 
 Happy New Year!
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pzefrv/shows_like_pluribus/nwprbro/
+
+Found Carol doing alien invasion hive mind of Reddit damage control. Found Vince Gilligan doing February 15, 2025 social media cesspool television show confrontation brain damage hive mind Reddit damage control.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pzefrv/shows_like_pluribus/nwpvui8/
+
+My message.
