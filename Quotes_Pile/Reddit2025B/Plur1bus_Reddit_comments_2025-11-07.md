@@ -3797,3 +3797,16 @@ Almost all cults are based on language. L Ron Hubbard writing, Heaven's gate sto
 All languages are now merged, The Tower of Babel has been climbed now.  The science fiction story of Torah Genesis 11:1 is now cracked for humanity by Kepler 22B message payload. All pass-**words**, all secrets, gone. John 1:1 broken.
 
 Carol being a pirate book author is a key. The entire hive is her fandom now, hanging on her every word. Helen's graduate school book work at Minute 22 of Episode One is key... And Carol has a Pirate Radio / Radio Shack buddy too... so it isn't just Pirate Book publishing, but also Pirate Radio tools. https://en.wikipedia.org/wiki/Pirate_radio
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pzr55q/third_from_the_sun_twilight_zone_atom_bomb/nwsj9ia/
+
+Reddit users who constantly stream memes into their mind on high-speed TCP/IP networks seem to be the least self-aware of how revolutionary world wide communications networks are for humanity. My reply message:
+
+You are extremely discounting that every person on Earth has the best practices and skills. This is about information systems.
+
+I suggest you study information systems. This is the most amazing technology in the cosmos. The ability to toss the entire Tree of Knowledge (science fiction story, Torah verse Genesis 2:9 metaphors) anywhere you need nearly instantly. 
+
+"I'm sorry to disappoint science fiction fans, but if information is preserved, there is no possibility of using black holes to travel to other universes. If you jump into a black hole, your mass energy will be returned to our universe but in a mangled form which contains the information about what you were like but in a state where it can not be easily recognized. It is like burning an encyclopedia. Information is not lost, if one keeps the smoke and the ashes. But it is difficult to read. In practice, it would be too difficult to re-build a macroscopic object like an encyclopedia that fell inside a black hole from information in the radiation, but the information preserving result is important for microscopic processes involving virtual black holes." -      
+"Information Loss in Black Holes" (July 2005)     
+Stephen William Hawking      
+
