@@ -3890,3 +3890,46 @@ The comment itself echos Neil Postman! ... ... ...
 https://old.reddit.com/r/Pluribus_TVshow/comments/1q0eoqq/so_many_questions/nwy0o14/
 
 My message to the Reddit hive mind logic.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q035as/question_what_do_you_think_is_different_with_the/nwy0wmd/
+
+My response to low-effort short Twitter-think messages is emphasize media ecology. My reply:
+
+> I really doubt this. The show has been pretty hard sci gi so far, I doubt they will introduce aliens that look like
+
+How can a signal that took so long to travel have the same RNA systems we have life on Earth? Unless life on multiple planets is connected. Intelligence could have developed in dolphins (HHGTTG) or dinosaurs, etc. But this RNA seems to have been very specific to the human brain. 
+
+I don't consider it accidental they ended the show on Christmas with all the themes of two lesbians (likely virgins to men) having a child and the $100,000 frozen egg commitment.  An alien "who is the Baby-Daddy" of *Jesus* is in both the Quran and Bible, the best-selling science fiction stories in human history over the magic alien message causes pregnancy story. The fandom for that story is wild, we had days off WORK dedicated to that science fiction!
+
+&nbsp;
+
+> The show has been pretty hard sci gi so far
+
+Pluribus story has been about **pirate ships** with magical rebirth of a killed main character and pirate ladies. That's fiction. They are fiction book authors and sellers, Helen and Carol. I think you are missing the fiction focus.
+
+Book tour, book store, book fandom, book author, wife is book publicist, new book chapter 1 written in-story. Fiction boos all around until the Radio Shack storage manager pulls out the first non-fiction books on electronics and English learning.
+
+> The show has been pretty hard sci gi so far
+
+Kepler 22    
+Minute 22 of Episode One is when the "00:00:00:00" Zero hour countdown hits. 
+You know where they are at the zero hour? A public house, drunking booze.    
+They have a serious heart to heart discussion at minute 22: Helen tells carol she went to **graduate school** and one fiction book is the most important in the future of middle-age life foward: James Joyce's Finnegans Wake.
+
+I'll keep this brief: James Joyce was a drunkard who authored fiction about pirate lady in Finnegans Wake.  Carol is a drunkard fiction author about pirate lady.
+
+&nbsp;
+
+
+> The show has been pretty hard sci gi 
+
+It is a factual reality that people believe science fiction trilogy of the Levant { Torah, BIble, Quran, Book of Mormon, etc }  is reality. That Eden and Heaven are in outer-space.
+
+Have you read Carl Sagan's book "Contact" that gets a signal from another star system - right in New Mexico where Pluribus gets the message from Kepler 22B?
+
+Vince Gilligan comes from the X-Files science fiction television writing (where he met the actor for Walter White) where aliens hybrid pregnancy of the main character woman is a storyline.
+
+&nbsp;
+
+Happy New Year 2026. [Saturday in the park](https://www.youtube.com/watch?v=kqcwKnjMffw), July 4, 2026!
+
