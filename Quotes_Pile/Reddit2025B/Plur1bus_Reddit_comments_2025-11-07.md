@@ -3933,3 +3933,6 @@ Vince Gilligan comes from the X-Files science fiction television writing (where 
 
 Happy New Year 2026. [Saturday in the park](https://www.youtube.com/watch?v=kqcwKnjMffw), July 4, 2026!
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q0k69h/the_hivemind_is_an_extinction_machine/nwyxs72/
+
+My message, New Years Eve to We The People, to Reddit to wake the fuck up, USS!
