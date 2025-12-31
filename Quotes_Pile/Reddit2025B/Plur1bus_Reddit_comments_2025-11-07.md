@@ -3871,3 +3871,10 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1q035as/question_what_do_you_t
 
 Story that ends on Christmas. "Jesus Fucking Christ". Cryptic tiny-short messages is how social media users behave in year 2025. Dominate a topic with commenting like this. This is popular, gets engagement. Celebration of Ignorance.
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q035as/question_what_do_you_think_is_different_with_the/nwwj3gb/
+
+My message, one possible answer to the question. 
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q035as/question_what_do_you_think_is_different_with_the/nwwk0w0/
+
+My message, emphasizing "BINGO Rat" idea that RNA may have been combined with Earth virus.
