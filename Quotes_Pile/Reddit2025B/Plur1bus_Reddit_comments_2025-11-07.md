@@ -3952,3 +3952,7 @@ Tiny-short hyper banality message from Elon Musk Twitter fandom. New Years Eve p
 https://old.reddit.com/r/Pluribus_TVshow/comments/1q0mfhu/possible_positive_endings_hinted_at_in_ep_1/nwzngcp/
 
 A half-word message, not even a full word. Meme stupor Breaking Bad meth content junkies of anti-thinking gun worship of gunfights.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q0mfhu/possible_positive_endings_hinted_at_in_ep_1/nwzpr0s/
+
+MAGA dog-whistle politics to dehumanize liberals / free thinking individuals.
