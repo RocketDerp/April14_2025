@@ -3850,3 +3850,7 @@ New Years eve reply to this shit.
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pzr55q/third_from_the_sun_twilight_zone_atom_bomb/nwty2hr/
 
 Worship celebrator of Ignorance.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pzp0mu/theory_the_mouse_is_the_hive_minds_core/nwu3te5/
+
+Check out link
