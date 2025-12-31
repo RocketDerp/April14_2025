@@ -3862,3 +3862,7 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pzp0mu/theory_the_mouse_is_th
 https://old.reddit.com/r/Pluribus_TVshow/comments/1q08j60/theory_the_plurb_virus_is_an_engineered_bioweapon/nwweew6/
 
 Yes. Anti-Wiki society of yer 2025. Anti-FAQ. Anti getting on the same page. People entirely do not grasp that this is the outcome of an information war. Egoism of people not LISTENING to each other. That's What Vince Gilligan on February 15, 2025 emphasized: 1) social media is a cesspool, 2) climb out of cesspool, 3) listening to each other. It's all so often write-only domination. Trump rewrites reality with Putin by ignoring We The People and just over-writing goodness with egoism. And Reddit society has followed the Truth Social leadership. Anti-Wiki values.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q05ftk/connection_to_black_mirror_episode_plaything/nwviv9q/
+
+Media ecology of translating monomyth story to monomyth story!
