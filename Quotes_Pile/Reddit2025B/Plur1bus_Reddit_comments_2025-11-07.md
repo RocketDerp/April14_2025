@@ -3854,3 +3854,7 @@ Worship celebrator of Ignorance.
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pzp0mu/theory_the_mouse_is_the_hive_minds_core/nwu3te5/
 
 Check out link
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pzp0mu/theory_the_mouse_is_the_hive_minds_core/nwu418t/
+
+4 minutes later, duplicates same reply?
