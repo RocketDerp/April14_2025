@@ -3878,3 +3878,12 @@ My message, one possible answer to the question.
 https://old.reddit.com/r/Pluribus_TVshow/comments/1q035as/question_what_do_you_think_is_different_with_the/nwwk0w0/
 
 My message, emphasizing "BINGO Rat" idea that RNA may have been combined with Earth virus.
+
+https://old.reddit.com/r/islam/comments/p5ppoy/adam_from_a_intelligent_design_and_evolution/h98375k/
+
+Targeting the posting save, but using this comment given how my Python page works.      
+Alien life is not new to Earth. Story ends on Christmas Eve, and the science fiction trilogy of the Levant { Torah, Bible, Quran, Book of Mormon, etc } claims that life is from an outer space planet named "Eden" and that two aliens Adam and Eve were delivered to Earth to start human life. the "Intelligent design" science fiction story arc.      
+The comment itself echos Neil Postman! ... ... ...        
+
+“Educators may bring upon themselves unnecessary travail by taking a tactless and unjustifiable position about the relation between scientific and religious narratives. We see this, of course, in the conflict concerning creation science. Some educators representing, as they think, the conscience of science act much like those legislators who in 1925 prohibited by law the teaching of evolution in Tennessee. In that case, anti-evolutionists were fearful that a scientific idea would undermine religious belief. Today, pro-evolutionists are fearful that a religious idea will undermine scientific belief. The former had insufficient confidence in religion; the latter insufficient confidence in science. **The point is that profound but contradictory ideas may exist side by side**, if they are constructed from different materials and methods and have different purposes. Each tells us something important about where we stand in the universe, and it is foolish to insist that they must despise each other.” ― Neil Postman, The End of Education: Redefining the Value of School. September 1995. Eternal September Year One.
+
