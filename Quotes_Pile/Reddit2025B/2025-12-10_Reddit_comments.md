@@ -1037,3 +1037,11 @@ On Lemmy and Reddit, you can't find a single person wiling to stand up that Vinc
 https://old.reddit.com/r/okbuddycinephile/comments/1pzioku/favorite_actor_that_unnecessarily_made_themselves/nwqip4p/
 
 MAGA USA December 2025. Lead by { Putin, Epstein } prizing of women are to serve men like Musk and Trump and Putin. Women self-harm to please men, and men gang up on Truth Social and Reddit Social to belittle and insult women for not pleasing them with images. Addictions to machines, love for meme machines, hate for persons. The women are under siege by Putin and Trump and the anti-Malala (avoid giving girls power, waste time instead posting 12 year old actresses faces that now adult don't please Reddit touch-device men).
+
+https://old.reddit.com/r/memes/comments/1q07l6r/not_cool_man/nww3jjx/
+
+Reddit society lives in denial. Nobody can explain the timeline or name the "Internet Research Agency", was blind to the IRA during pandemic. Follows male pedophile leaders and constantly puts up Epstein and Trump as worship images to mock and insult, without any self-awareness of their own attraction to Trump and Epstein images. (Teachers) Neil Postman and Marshall McLuhan levels of self-awareness that USA had in the 1970's and 1980's is completely abandoned.
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1q0bntl/a_fox_news_host_just_debunked_many_of_the_maga/nwwp5nj/
+
+And the anti-MAGA Americans on Reddit will watch as billionaires Rupert Murdoch has made MAGA Americans only care about hating Americans. It is feedback loops of hate vs. hate, hate for hate, out-group hate. People will do anything but turn to media ecology lessons of Reddit audience vs. Fox News audience. Jen Senko's 2015 / 2016 nonfiction film should be a household name on Reddit, but it's just mocking all the time of nonfiction.
