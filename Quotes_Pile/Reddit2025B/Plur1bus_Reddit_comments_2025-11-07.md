@@ -3945,3 +3945,6 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1q0mfhu/possible_positive_endi
 
 IMPORTANT, IMPORTANT: George Bailey is mentioned by Vince Gilligan in his February 15, 2025 writer's guild speech https://youtu.be/TkteSxVIM1A?t=648 about cesspool social media. 
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q0mfhu/possible_positive_endings_hinted_at_in_ep_1/nwzlbi0/
+
+Tiny-short hyper banality message from Elon Musk Twitter fandom. New Years Eve party time and they are spreading hate messages against book readers on Reddit.
