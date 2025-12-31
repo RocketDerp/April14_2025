@@ -3866,3 +3866,8 @@ Yes. Anti-Wiki society of yer 2025. Anti-FAQ. Anti getting on the same page. Peo
 https://old.reddit.com/r/Pluribus_TVshow/comments/1q05ftk/connection_to_black_mirror_episode_plaything/nwviv9q/
 
 Media ecology of translating monomyth story to monomyth story!
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q035as/question_what_do_you_think_is_different_with_the/nwvlp0m/
+
+Story that ends on Christmas. "Jesus Fucking Christ". Cryptic tiny-short messages is how social media users behave in year 2025. Dominate a topic with commenting like this. This is popular, gets engagement. Celebration of Ignorance.
+
