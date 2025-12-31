@@ -3843,3 +3843,7 @@ CAMPBELL: The story isn’t really trying to explain it, it has to do **more wit
 
 * That's also what Carol does with the city lights of ABQ once the wild animals come at night to eat Helen's dead body. "What? Corpus. Body. Corpse. Good idea **the Latin. Stupifies them first**. Hospice for the dying. They don't seem to chew it: only swallow it down. Rum idea: eating bits of a corpse. Why the cannibals cotton to it" [- James Joyce[(https://www.online-literature.com/james_joyce/ulysses/5/) - lots of Pluribus Minute 22 Episode One in that line. Rum pirate booze of Carol's writing. The Milk carton body eating themes.
   
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pzp0mu/theory_the_mouse_is_the_hive_minds_core/nwtsiul/
+
+New Years eve reply to this shit.
+
