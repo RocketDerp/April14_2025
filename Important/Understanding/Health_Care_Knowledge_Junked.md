@@ -154,3 +154,15 @@ Autism information. Drowned and forgotten like any serious learning in society.
 https://old.reddit.com/r/NoStupidQuestions/comments/1pzmifi/do_americans_actually_avoid_calling_an_ambulance/
 
 so much trash information will drown out sustained focus on critical important issues. A society of USA where constant stimulation by Truth Social / actors of Reality TV in White House keep Reddit audience jumping from meme to meme. Anti-Wiki, anti calling for organized repeat sustained repeating focus of important topics. Health Care system topics get drowned in gun worship "Luigi!!!!" cheering all year 2025. Instead of repeating and repeat of topics like this with details and dates and receipts.
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1q0138m/not_very_feminine_of_them/
+
+End of year 2025. Sex, sex, sex with children. Ignore health care USA abuse of children. Ignore that food safety due to deregulation. Ignore the education of children that are handed over to predatory billionaires to exploit with worship-men media systems. Only sex turn-on topics for people to flock to all year 2025.  https://www.statnews.com/2025/12/22/american-food-safety-funding-cuts-foodnet/ it's ok to poison children age 11, but the only thing the Reddit society wants to keep repeating and stay focused on is sex / pleasure of sex / beauty of sex / sex sells. Instead of addressing that the problem is ant-learning, anti-honest, anti-truth, anti-goodness, anti-sincerity, anti-integrity - it is only sex that attracts sex-addicted (sex content addicts) media consumers of Reddit society. 
+
+Children can be sickened and enslaved by dishonest and manipulative USA society leaders - but only the sex acts attract the front page of /r/All reporting. That's why adults do it, the whole society is thrilled and titillated with sex acts and power over sex - having sex that other people don't have. That's how Putin and Epstein lead so many powerful men - because sex conquest turns heads. Sex conquest gets you to the front page of Reddit /r/All every hour of every day in year 2025. Being a liar and manipulator and not taking all serious topics seriously is ignored - only the sexy children attraction topic is what Reddit audiences crave. 
+
+Jen Senko's 2015 / 2016 film about taking on EVERY abuse by elders in power to harm the future of children gets ignored. Sustained focus on media addiction / media empires / media systems addictions that lead to these children being abused doesn't want to be taken seriously. the media consumers want to consume media about sex from these abusive billionaire that wreck Every AREA OF LIFE WITH MANIPULATION OF MINDS. Sustained focus on the people who cover up mind abuse. https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad
+
+
