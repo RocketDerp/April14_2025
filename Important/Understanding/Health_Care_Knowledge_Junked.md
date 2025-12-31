@@ -165,4 +165,8 @@ Children can be sickened and enslaved by dishonest and manipulative USA society 
 
 Jen Senko's 2015 / 2016 film about taking on EVERY abuse by elders in power to harm the future of children gets ignored. Sustained focus on media addiction / media empires / media systems addictions that lead to these children being abused doesn't want to be taken seriously. the media consumers want to consume media about sex from these abusive billionaire that wreck Every AREA OF LIFE WITH MANIPULATION OF MINDS. Sustained focus on the people who cover up mind abuse. https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad
 
+&nbsp;
 
+https://old.reddit.com/r/UnderReportedNews/comments/1q0e0bi/greg_casar_millions_of_kids_that_lose_their/
+
+children without health care, front page on New Years Eve. People on Reddit will not face that worshiping murder Luigi is not addressing the anti-goodness in society, it is furthering it. Children are being raised to worship Luigi's weapon system, gun worship USA, more of the same gun worship. Instead of social media being a force of nonfiction serious learning and repeating on critical health care and life topics of USA... people make it action gun violence content worship. Serious nonfiction thought gets drowned in junk memes and weapon system worship values. MAGA USA values.
