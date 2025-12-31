@@ -3940,3 +3940,8 @@ My message, New Years Eve to We The People, to Reddit to wake the fuck up, USS!
 https://old.reddit.com/r/Pluribus_TVshow/comments/1q0mfhu/possible_positive_endings_hinted_at_in_ep_1/nwzhz4j/
 
 My comment to assert NYE Bloomsday.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q0mfhu/possible_positive_endings_hinted_at_in_ep_1/nwz41vp/
+
+IMPORTANT, IMPORTANT: George Bailey is mentioned by Vince Gilligan in his February 15, 2025 writer's guild speech https://youtu.be/TkteSxVIM1A?t=648 about cesspool social media. 
+
