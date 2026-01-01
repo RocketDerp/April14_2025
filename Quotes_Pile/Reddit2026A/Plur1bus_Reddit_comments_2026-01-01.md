@@ -374,3 +374,17 @@ Context of Thank You message to Vince Gilligan. Reddit users do not now how to c
 > Or maybe you're the one who's worse off than ever!
 
 Yes, January 1, 2026 living in USA. It is worse off than ever in USA history. Elon Musk owning Twitter has ruined the USA. People follow Elon Musk leadership. A nation of over 300 million people who prize Tweet messages. They are all over /r/All every hour of every day.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q1c6og/is_it_possible_that_zozia_and_manousos_might_fall/nx5q2s2/
+
+MAGA USA just goes around repeating "dementia Don" over and over for years on meme mill Reddit. Simple-think tiny-length Tweet messages, following Elon Musk Twitter lead White House. My reply message:
+
+> > A Television Show, HDTV content, about book authoring and book touring blows so many TV addict minds in USA.
+
+# .
+
+> 😂 Schizo
+
+This is the fandom of meth-seller Walter White character. Anti-intellectual people who follow MAGA USA RFK Jr leadership about mental health. "Tylenol causes autism" Americans who are gullible and ignorant. MAGA USA 2026 nation of Reddit California.
+
+This is the cesspool of social media values. What people think is smart and clever on New Years Day holiday.
