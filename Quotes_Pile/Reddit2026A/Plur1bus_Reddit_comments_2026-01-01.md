@@ -103,3 +103,11 @@ The [social media cesspool that Vince Gilligan described last year, the year of 
 https://old.reddit.com/r/Pluribus_TVshow/comments/1q0lmw9/what_the_colors_mean/nx477vt/
 
 "Reddit cares" nonsense. People are so insincere and can't read anything that isn't dumb mocking. New Years Day 2026... Carol is boozing all day and night in the Season One of Plurius, today is a holiday weekend of the whole world... anti-woke people with their banal concern trolling. Anti-humanism like the insincere "caring" of the hive mind baby Carol mothering. Half in the Bag described it well yesterday. "Everybody being pleasant, nice" https://youtu.be/GfsDYu7OKns?t=2069
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q0cyip/the_most_annoying_character_in_pluribus/nwwy3ol/
+
+Yes. And this is emphasized as she returns from the book tour. At the ABQ airport, her spouse Helen has to take away the car keys. Casually drunk driving when another solution was easily handy. And the posting context is anti-immigrant dog-whistle of Reddit machine messaging: Hindi bad. Accents bad.
+
+The immigrant from the Radio Shack / Storage Unit is so terrorized by audiences of media in USA that he is cramming English into his brain and trying to not be rejected by the social society of USA when he gets to Carol's suburban ABQ Mr. White / Betty white hood. He recognizes the natural Blonde Hair Blue Eye North American current value https://old.reddit.com/r/AskHistorians/comments/fnwtxg/why_was_the_nazi_aryan_race_blonde_hair_blue_eyes/ in the VHS video tame images. https://www.splcenter.org/resources/hatewatch/neo-nazi-vinlander-member-convicted-murder-hire/ - you better have the right accent on that Hindi language is the Reddit anti-humanism anti-diversity audience cesspool concern and focus!
+
+Television audiences on their intimate touch devices dong mass dehumanization. "What happens when accent discrimination" Pervasive sustained problems, why MAGA leads the USA, why Elon Musk concerns himself with Reddit to make sure anti-diversity is driving the USA New Years 2026 messaging. https://www.bbc.com/worklife/article/20210528-the-pervasive-problem-of-linguistic-racism
