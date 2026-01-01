@@ -135,3 +135,11 @@ The gate-keeping here on Reddit is constant.
 &nbsp;
 
 The self-deport messages and intimidation here against people is sickening. MAGA 2026 machine lovers, people haters, USA Reddit California 2026 values of Rupert Murdoch fandoms.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q1c6og/is_it_possible_that_zozia_and_manousos_might_fall/nx4h6pv/
+
+More casual dehumanization tiny-short parroting of MAGA values on Reddit Pluribus subreddits. My reply message:
+
+> Bot level post
+
+dog-whistle politics MAGA USA Reddit California 2026 messaging: non-person. *Hate thy enemy* by non-person intimidation... Elon Musk immigrant from South Africa messaging of 2026. Machine lover dog fog-horn of non-person cloud computing messaging. New years fucking day, the holiday of USA hates humanism.
