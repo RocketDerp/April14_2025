@@ -746,3 +746,8 @@ Sunday posting on Reddit after Christmas to boot! Sunday school. Just we need "1
 
 Marie Wilcox realized she was the last person on Earth who could speak the Wukchumni language fluently, so at 82, she taught herself to use a computer and spent seven years typing a 6,000-word Wukchumni dictionary, the first written record of the language in history, to save it from extinction     
 https://old.reddit.com/r/Damnthatsinteresting/comments/1py8w0n/marie_wilcox_realized_she_was_the_last_person_on/     
+
+&nbsp;
+
+Predatory Levant avoidance of "1 John 4:20" teachings.     
+https://old.reddit.com/r/Snorkblot/comments/1q16thy/personally_ive_never_seen_the_attraction_but_to/
