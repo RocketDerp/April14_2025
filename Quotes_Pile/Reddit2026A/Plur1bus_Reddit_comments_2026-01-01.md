@@ -223,3 +223,7 @@ You can't stand free-speech free-thinking people in MAGA USA  hive run by billio
 https://old.reddit.com/r/Pluribus_TVshow/comments/1q0mfhu/possible_positive_endings_hinted_at_in_ep_1/nx53sfd/
 
 More questions. Carol dumb stupid, show dumb stupid, etc.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q0mfhu/possible_positive_endings_hinted_at_in_ep_1/nx539iz/
+
+Apple iPhone user? who has comprehension troubles of both the show and Reddit messages of any complexity about James Joyce...
