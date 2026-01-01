@@ -388,3 +388,11 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1q1c6og/is_it_possible_that_zo
 This is the fandom of meth-seller Walter White character. Anti-intellectual people who follow MAGA USA RFK Jr leadership about mental health. "Tylenol causes autism" Americans who are gullible and ignorant. MAGA USA 2026 nation of Reddit California.
 
 This is the cesspool of social media values. What people think is smart and clever on New Years Day holiday.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q1hqjd/vince_called_his_viewers_idiots_and_he_was_right/nx5oq3g/
+
+Asserting meme-think Twitter followers of Elon Musk signaling. Gang signs / Gang messages against book readers. MAGA dog whistle codes.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q1hqjd/vince_called_his_viewers_idiots_and_he_was_right/nx5p2z0/
+
+People who think USA 2026 being lead by RFK Jr and Donald Trump is intelligent and smart and that the problem is people on Reddit saying television has made people idiots. Donald Trump thinks Fox News HDTV (television) is intelligent, like so many on Reddit in January 2026.
