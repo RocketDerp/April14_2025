@@ -77,3 +77,13 @@ https://old.reddit.com/r/pluribustv/comments/1pewgff/hdp_as_ending_line_wordplay
 Yes. He is calling himself a "son of a bitch", and his *behavior* is indeed that.
 
 * "In American cultures (both North and South), the phrase "son of a bitch" is a severe insult directed at men who display behaviors generally considered to be highly objectionable, untrustworthy, and contemptible. The specific behaviors associated with the term typically revolve around a lack of moral character and decency" - Google Search summary 2026-01-01 morning USA
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q17gy5/manousos_was_infected_and_came_back/nx3ghox/
+
+Wikipedia rejected edit in under 4 minutes. ja ja. Here is my public teachable moment reply to this Reddit comment:
+
+> I think it's the obvious thing: he was living alone
+
+Emphasized by his interaction with his mother when he departs for ABQ to meet the goddess Carol. 
+
+Eating dog food cans, Manousos refusing to accept help from the chaperone the Others sent to help him, his mother. He insults his mother's legacy by yelling "mi mama es una cabrona", associating himself as a "Hijo de Puta" (HDP).
