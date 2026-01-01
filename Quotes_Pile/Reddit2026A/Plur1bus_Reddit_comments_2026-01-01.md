@@ -68,3 +68,12 @@ Observe the media ecology of Reddit hive mind: No link, no title, no quotes. Jus
 
 "Force begets force, hate begets hate, toughness begets toughness. And it is all a descending spiral, ultimately ending in destruction for all and everybody. Somebody must have sense enough and morality enough to cut off the chain of hate and the chain of evil in the universe. And you do that by love." - November 17, 1957.
 
+https://old.reddit.com/r/pluribustv/comments/1pemibb/hdp_son_of_a_bitch_in_spanish/nsdryw2/
+
+The Spanish "dog" metaphors that some have asserted, "bitch" mother.
+
+https://old.reddit.com/r/pluribustv/comments/1pewgff/hdp_as_ending_line_wordplay/nsg6h8w/
+
+Yes. He is calling himself a "son of a bitch", and his *behavior* is indeed that.
+
+* "In American cultures (both North and South), the phrase "son of a bitch" is a severe insult directed at men who display behaviors generally considered to be highly objectionable, untrustworthy, and contemptible. The specific behaviors associated with the term typically revolve around a lack of moral character and decency" - Google Search summary 2026-01-01 morning USA
