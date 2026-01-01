@@ -339,3 +339,17 @@ You can't even listen to the YouTube song I linked you. You fixate on Reddit mes
 
 Repeating: Live in Cambodia, Pluribus Latin teacher: https://www.youtube.com/watch?v=Q6ZRGzx31iQ
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q0mfhu/possible_positive_endings_hinted_at_in_ep_1/nx5bsr3/
+
+My reply comment electronic message:
+
+> How old are you? 
+
+As I shared on this subreddit last night, New Years Eve:
+
+I have personally been a social media user since Christmas 1982. And this is the worst year I have ever seen. Musk Twitter leads a nation of terrible values in year 2025. **Thank You to Vince Gilligan** for making *book-reading* and authoring the core theme of a prestige television show!
+
+&nbsp;
+
+* "1979: First to offer electronic mail (email) to personal computer users."; "February 1980: Launched the CB Simulator, the first commercial multi-user chat, introducing terms like "IMHO" and emoticons." - [CompuServe Information Service, Inc.: It opened in 1969 in Columbus, Ohio](https://en.wikipedia.org/wiki/CompuServe) - the year I was born, in city "Columbus". My father was born in Columbus Ohio.
+
