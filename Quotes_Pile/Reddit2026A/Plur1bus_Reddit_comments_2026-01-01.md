@@ -33,3 +33,7 @@ This is street gangs of information warfare speak on New Years Day. Pro-Musk moc
 https://old.reddit.com/r/Pluribus_TVshow/comments/1q0lmw9/what_the_colors_mean/nx2z8lv/
 
 My YELLOW BADGE color symbols gang colors message. My message.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q165u8/pluribus_is_a_giant_ripoff_of_to_serve_man/nx37cfx/
+
+My message. Twilight Zone assertions.
