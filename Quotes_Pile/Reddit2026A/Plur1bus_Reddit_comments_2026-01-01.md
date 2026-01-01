@@ -87,3 +87,7 @@ Wikipedia rejected edit in under 4 minutes. ja ja. Here is my public teachable m
 Emphasized by his interaction with his mother when he departs for ABQ to meet the goddess Carol. 
 
 Eating dog food cans, Manousos refusing to accept help from the chaperone the Others sent to help him, his mother. He insults his mother's legacy by yelling "mi mama es una cabrona", associating himself as a "Hijo de Puta" (HDP).
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q18zs2/anyone_else_couldnt_stop_crying_after_the_finale/nx3rs7s/
+
+This Reddit user is getting massively attacked on New Years Day for having emotions over founding fathers education and teaching of the Great Seal of the United States of America. Aggressive Breaking Bad Walter White fandom attacking good emotions over learning. The Reddit posting got slaughtered in public on New Years holiday with "0 points (19% upvoted)" in first 30 minutes!
