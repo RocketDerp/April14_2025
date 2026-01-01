@@ -45,3 +45,7 @@ My reply message at root of posting comments addresses this. Vince Gilligan NAME
 https://old.reddit.com/r/Pluribus_TVshow/comments/1q165u8/pluribus_is_a_giant_ripoff_of_to_serve_man/nx36ccx/
 
 January 1, 2026 Finnegans Wake Media Ecology "Woke Wake" award of the day goes to this comment! A link even!
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q17gy5/manousos_was_infected_and_came_back/nx3g5u7/
+
+People complain.. but do not organize a numbered FAQ and link and say "number 7 on the FAQ". The anti-Wiki behaviors of Reddit society / Reddit hive mind is anti-Wiki (despite it being built into each subreddit). https://old.reddit.com/r/pluribustv/comments/1ostufo/did_that_one_person_free_themselves_from_the_hive/ November 9, 2025 with 175 upvotes on Reddit itself.
