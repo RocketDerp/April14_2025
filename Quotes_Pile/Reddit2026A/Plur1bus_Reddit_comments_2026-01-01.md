@@ -143,3 +143,21 @@ More casual dehumanization tiny-short parroting of MAGA values on Reddit Pluribu
 > Bot level post
 
 dog-whistle politics MAGA USA Reddit California 2026 messaging: non-person. *Hate thy enemy* by non-person intimidation... Elon Musk immigrant from South Africa messaging of 2026. Machine lover dog fog-horn of non-person cloud computing messaging. New years fucking day, the holiday of USA hates humanism.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q0lmw9/what_the_colors_mean/nx4tm1v/
+
+There seems to be a real issue with Apple iPhone users, fandom of Apple TV+ show Pluribus, who can't seem to grasp more than one iPhone screen-size worth of reading. My reply message to this comment:
+
+> Whats with all the Vince Gillian quotes in response? Im so lost.
+
+So many people who come from Apple iPhone and Apple iPad society who don't understand a story about paper book writing, book publishing, book stores, book fandom are incredibly lost!
+
+>  Whats with all the Vince Gillian quotes
+
+Vince Gilligan is the creator / originator of this science fiction show. He is a huge fan of the Twilight Zone, he used to work on the Fox TV show "X-Files" that had a story about an alien pregnant woman.
+
+Are you so lost that this subreddit topic, "Pluribus TV Show" - you don't know the name of the creator / author? The media ecology of the situation? Have you read much nonfiction?
+
+* "Any literate man resents such a heavy demand for his total attention, because he has long been accustomed to fragmentary attention."  - [Marshall McLuhan's book Understanding Media: The Extensions of Man, Page 234, Year 1964](https://books.google.com/books?id=1qVADF2rZIAC&q=%22Any+literate+man+resents+such+a+heavy+demand+for+his+total+attention,+because+he+has+long+been+accustomed+to+fragmentary+attention.%22&dq=%22Any+literate+man+resents+such+a+heavy+demand+for+his+total+attention,+because+he+has+long+been+accustomed+to+fragmentary+attention.%22&hl=en&newbks=1&newbks_redir=1&printsec=frontcover&sa=X)
+
+The current situation in USA regarding printed books on paper is an absolute horror show! Monster state USA!
