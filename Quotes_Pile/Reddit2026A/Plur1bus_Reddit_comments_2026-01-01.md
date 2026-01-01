@@ -209,3 +209,14 @@ Did you hear the message at minute 22 of Episode One?
 &nbsp;
 
 Helen falls backwards, like Tim Finnegan, and is holding a wireless phone. And then all the wireless networks go down, and the lady inside the bar on a land-line phone does not fall?  This is all media metaphors of Finnegans Wake book by James Joyce, Helen's graduate school lessons.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q0mfhu/possible_positive_endings_hinted_at_in_ep_1/nx51qic/
+
+Reddit intimidation and attacks for the New Years Day holiday. Dehumanize Americans who speak of media literacy and Rupert Murdoch self-awareness of influence on hive minds. My reply message:
+
+> Shut up, 
+
+That is your goal here. To silence, run people off your turf of Reddit subreddit territory. To gate-keep people, run away anyone who understand James Joyce's works. Joyce was censored in USA.
+
+You can't stand free-speech free-thinking people in MAGA USA  hive run by billionaires who are against everything "Pluribus" in the 1776 ideals stands for. Machine lust, *shut up human* hate.
+
