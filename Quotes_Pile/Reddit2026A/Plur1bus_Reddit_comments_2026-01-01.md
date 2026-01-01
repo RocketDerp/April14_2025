@@ -245,3 +245,8 @@ Yha, you think "NASA", is what my message said. A TV show about authoring books,
 > Shut up,
 
 That's you commanding me. Dictatorship lover, Musk D.O.G.E. dictatorship values USA 2026.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q0mfhu/possible_positive_endings_hinted_at_in_ep_1/nx54zu6/
+
+"A video", but not the one (in threaded reply context) about Reddit social media from Vince Gilligan behaviors of cesspools as Reddit comment community is behaving.
+
