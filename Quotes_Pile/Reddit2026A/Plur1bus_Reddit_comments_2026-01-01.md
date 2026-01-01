@@ -17,3 +17,7 @@ Mocking "LOL", insincere "sorry".
 https://old.reddit.com/r/Pluribus_TVshow/comments/1q0v8jc/new_theory_pet_microchip/nx1er1g/
 
 Autistic person speaks up why they were bullied.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q0v8jc/new_theory_pet_microchip/nx2ojvg/
+
+My comment about 2026 USA for New Years Day.
