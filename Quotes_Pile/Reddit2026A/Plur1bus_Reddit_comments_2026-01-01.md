@@ -115,3 +115,23 @@ Television audiences on their intimate touch devices dong mass dehumanization. "
 https://old.reddit.com/r/Pluribus_TVshow/comments/1q0lmw9/what_the_colors_mean/nx4gqef/
 
 The two-month recently created Reddit account plays the "acting dumb" message about the social media cesspool message of Vince Gilligan at the writers guild. Ignoring point number 1 of my message they replied to. New Years Day 2026 is full of people who want to generate tiny-short messages like Elon Musk Twitter does to the USA.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q1c6og/is_it_possible_that_zozia_and_manousos_might_fall/nx4h9ug/
+
+The New Years day tiny-short message Twitter-think of Reddit messaging. Dehumanize the aliens. That's the takeaway. Carol takes the shotgun to the man who is abusing the man next door... because dehumanizing them with the Great Seal Eagle arrows tactic instead of diplomacy, the other claw of the Eagle is out...
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q1c6og/is_it_possible_that_zozia_and_manousos_might_fall/nx4j3yi/
+
+Hate thy enemy values on Reddit New Years Day 2026. MAGA values. Hate over love domination. Organized hate on Reddit, hive mind mob mentality of MAGA USA 2025 Reddit California USA society.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q1c6og/is_it_possible_that_zozia_and_manousos_might_fall/nx4h9h6/
+
+My reply message to this comment:
+
+> Are you okay? Maybe this show is a bit much for you.
+
+The gate-keeping here on Reddit is constant.
+
+&nbsp;
+
+The self-deport messages and intimidation here against people is sickening. MAGA 2026 machine lovers, people haters, USA Reddit California 2026 values of Rupert Murdoch fandoms.
