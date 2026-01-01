@@ -400,3 +400,9 @@ People who think USA 2026 being lead by RFK Jr and Donald Trump is intelligent a
 https://old.reddit.com/r/Pluribus_TVshow/comments/1q1hqjd/vince_called_his_viewers_idiots_and_he_was_right/nx5qkpl/
 
 Americans are wrapped in MAGA clothing, MAGA messaging, parroting the Russian Internet Research Agency patterns without being able to discuss media ecology and { Marshall McLuhan, Neil Postman, Joseph Campbell, Jean Erdman, Bill Moyers, James Joyce } teachings. Jean Erdman called out the multiple interpretations of Finnegans Wake in her dance. But Reddit audience doesn't want to connect to intelligent university teachers like Postman and McLuhan. Helen talks about graduate school and James Joyce. 
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q1hqjd/vince_called_his_viewers_idiots_and_he_was_right/nx5rhpz/
+
+This Reddit user thinks the metaphor crisis is only one single person on one single TV show and can't grasp the metaphor of why Pluribus is from the Great Seal of the United States of America in the first place. Why year 1776 values are put into Latin and all the other symbols that are on the Great Seal USA. A person who thinks the metaphor problem is just the fixation on one Reddit user. Nope. They don't offer a link for teaching, any quotes from nonfiction books, just mocking and insulting one person as conditioned by Reddit society (Reddit hive mind culture of anti-book citations). ... ... ...      
+
+“Half the people in the world think that the metaphors of their religious traditions, for example, are facts. And the other half contends that they are not facts at all. As a result we have people who consider themselves believers because they accept metaphors as facts, and we have others who classify themselves as atheists because they think religious metaphors are lies.” ― Joseph Campbell, Thou Art That: Transforming Religious Metaphor
