@@ -3956,3 +3956,8 @@ A half-word message, not even a full word. Meme stupor Breaking Bad meth content
 https://old.reddit.com/r/Pluribus_TVshow/comments/1q0mfhu/possible_positive_endings_hinted_at_in_ep_1/nwzpr0s/
 
 MAGA dog-whistle politics to dehumanize liberals / free thinking individuals.
+
+https://old.reddit.com/r/pluribustv/comments/1osy12i/the_clock_that_broke_the_world_a_theory_about/no4wmpy/
+
+This is a HUGE HUGE HUGE point of Carl Sagan's Contact book and film. Which gets the signal at the same New Mexico VLA site as Pluribus. The USA federal government brings in military and is alarmed that Australia was told about the signal after Earth rotation. There is a lot of Pluribus backfill story / skipped time in Season One as to what happened on an International level regarding the message. It is sad how people on Reddit social can't bring up the major storyline of Contact book. In a Pluribus story about book touring, book authors, book publishing, book writing, book fandom.
+
