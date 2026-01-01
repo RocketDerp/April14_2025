@@ -299,3 +299,22 @@ What magical help? You keep pestering me because your literacy is ELI3 level rea
 I can only respond to your need for remedial lessons so fast. Your grasp of the Pluribus Latin show one sentence at a time. Your reading comprehension is terrible!
 
 A Television Show, HDTV content, about book authoring and book touring blows so many TV addict minds in USA.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q0mfhu/possible_positive_endings_hinted_at_in_ep_1/nx5ax8d/
+
+Tiny-shirt Twitter-think Bluesky-length message. Swimming in the Twitter values of tiny-short idea think and mocking Wikipedia vast constantly evolving citations and links to paper books that Wikipedia represents. My reply message:
+
+> You're like a hive mind, never a truer word spoken. Sending Wikipedia links,
+
+I'm self-aware of what hive mind I subscribe to.
+
+My religion is the Great Seal of the United States of America.   
+My faith is the Great Seal of the United States of America.   
+
+Your faith is lack of self-awareness to your own addiction of television show and social media.
+
+Explain to me where the pyramid is on the Dollar Bill, USA currency? You can't. Just like nobody here on Reddit can.
+
+Not one single person on this here Subreddit has studied Free Mason symbolism of the Founding Fathers. It is a total ignorance cesspool of meme addicts.
+
+Live in Cambodia, Pluribus Latin teacher: https://www.youtube.com/watch?v=Q6ZRGzx31iQ
