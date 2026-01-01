@@ -60,4 +60,11 @@ My message.
 
 https://old.reddit.com/r/Pluribus_TVshow/comments/1q17gy5/manousos_was_infected_and_came_back/nx3hhiw/
 
-People need to call for a subreddit (hashtag equal in Twitter / Bluesky) for serious people who are caught up. Spoiler-allowed people who have read the FAQ common ground / same page topics.
+People need to call for a subreddit (hashtag equal in Twitter / Bluesky) for serious people who are caught up. Spoiler-allowed people who have read the FAQ common ground / same page topics. Note the age of Reddit account.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q17gy5/manousos_was_infected_and_came_back/nx3gs5a/
+
+Observe the media ecology of Reddit hive mind: No link, no title, no quotes. Just saying low-effort that it was discussed months ago. This is the feedback loop of what Carl Sagan pointed to in 1995, "Dumb and Dumber", a dumb comment idea sets a very low bar of react-commenting to the previous comment. This New Years day of USA 250, it brings to mind a great educating teacher: ... ... ...     
+
+"Force begets force, hate begets hate, toughness begets toughness. And it is all a descending spiral, ultimately ending in destruction for all and everybody. Somebody must have sense enough and morality enough to cut off the chain of hate and the chain of evil in the universe. And you do that by love." - November 17, 1957.
+
