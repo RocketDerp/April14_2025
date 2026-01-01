@@ -318,3 +318,24 @@ Explain to me where the pyramid is on the Dollar Bill, USA currency? You can't. 
 Not one single person on this here Subreddit has studied Free Mason symbolism of the Founding Fathers. It is a total ignorance cesspool of meme addicts.
 
 Live in Cambodia, Pluribus Latin teacher: https://www.youtube.com/watch?v=Q6ZRGzx31iQ
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q0mfhu/possible_positive_endings_hinted_at_in_ep_1/nx5byv3/
+
+My reply message to this anti-Wikipedia who claims to have never seen a dollar bill printed and traveled all over the world:  
+
+>  Sending Wikipedia links,
+
+# .
+
+> I am Spanish, I don't know the dollar
+
+You are anti-Wikipedia, you can't be bothered to read Wikipedia. You are attracted to the worst information source in the world, low effort commenting on Reddit.
+
+>  I don't know the dollar
+
+You must never watch television close or step outside your town, as Dollar Bill is most printed paper all over the world. It is the most printed art work all over in history. A paper with an eagle and pyramid.
+
+You can't even listen to the YouTube song I linked you. You fixate on Reddit messages.
+
+Repeating: Live in Cambodia, Pluribus Latin teacher: https://www.youtube.com/watch?v=Q6ZRGzx31iQ
+
