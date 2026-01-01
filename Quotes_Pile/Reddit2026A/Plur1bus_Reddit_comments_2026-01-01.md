@@ -96,3 +96,6 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1q18zs2/anyone_else_couldnt_st
 
 New Years Day holiday, the hate flows on Reddit. Deport-happy society of blocking immigrants, deporting "the others" with machine power / systemic power. Machine lovers who hate human emotions and expressions.
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q18zs2/anyone_else_couldnt_stop_crying_after_the_finale/nx3u0pj/
+
+The [social media cesspool that Vince Gilligan described last year, the year of the Pluribus Television show](https://old.reddit.com/r/Pluribus_TVshow/comments/1q0rwfi/vince_gilligan_year_2025/). Breaking Bad meth fanatics, Walter White supremacy fans? Saul manipulating "good man" fandom? Here to attack lesbian / women power of Pluribus by spreading hate / Trump MAGA values on Reddit?
