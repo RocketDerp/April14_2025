@@ -17,19 +17,15 @@ import traceback
 from html_to_markdown import convert_to_markdown
 
 # ToDo:
-#   I overlooked that ChatGPT's code put the index in the filename of the saved HTML.
-#   Now I have a large library of files in that convention. 
-#   This is fragile and there is is no good reason for it. The ID of the Reddit comment is good enough
-#   for the filename. Current scheme would not allow inserting a new comment entry into source file
-#   in the middle, as the index could would be off.
 #
-#   NSFW postings comment links error the code. I've just been interactively ending the error timing.
+#   1. NSFW postings comment links error the code. I've just been interactively ending the error timing.
 #
 
 # Global variables
 
 HEADERS = {"User-Agent": "Pluribus TV project"}
 errorCountB = 0
+fetchRedditCountA = 0
 
 
 def pause_with_quit(total_seconds):
@@ -113,6 +109,7 @@ def convert_html_to_md(div):
 
 
 def fetch_comment_data(url, idx=None, args=None):
+    global fetchRedditCountA
 	
     # params
     # save_html_folder=None, check_saved_first=True
@@ -158,6 +155,7 @@ def fetch_comment_data(url, idx=None, args=None):
 
     if html_text is None:
 		# no HTML loaded from local storage, do live Internet fetch
+        fetchRedditCountA += 1
         res = requests.get(url, headers=HEADERS)
         fetch_time_epoch = int(time.time())
         res.raise_for_status()
@@ -245,56 +243,113 @@ def fetch_comment_data(url, idx=None, args=None):
 
 
 def fetch_user_info_hover(username, args=None):
+    global fetchRedditCountA
+
     url = f"https://old.reddit.com/user/{username}/about.json"
     
     account_filename = None
     account_text = None
-    data = None
+    reddit_account_data = None
     live_fetch = False
     
     if args.fetched_account_folder:
         os.makedirs(args.fetched_account_folder, exist_ok=True)
-        account_filename = os.path.join(args.fetched_account_folder, f"{username}.json")
 
-        if args.check_saved_first and os.path.exists(account_filename):
-            print(f"[cached] Using saved account JSON for {username}")
-            with open(account_filename, "r", encoding="utf-8") as f:
-                # account_text = f.read()
-                data = json.load(f)
+        if args.check_saved_first:
+            # WARNING
+            #  The Reddit message comment identifier is machine generated and follows a
+            #  non-creative pattern. Usernames, on the other hand, serve the end-suer more
+            #  and allow underscores in the filenames.
+            #  Personally I think a unique unicode character should be designated
+            #     1. spaces in filenames should have a UNIQUE Unicode value that allow console rendering
+            #         to distinguish from space between parameters. Such a filename-space character
+            #         could even be rendered visibliy in computer system console fonts.
+            #     2.  Same goes with URL links with spaces
+            #     3.  Maybe tabs too?
+            #     4.  Underscore in filenames too?
+            #     5.  All these conventions for filenames also make standard for source code
+            #         variable and function / method names. And source code editing tools
+            #         and viewing tools could use fonts to render them as visible
+            #     6.  The essential idea is that "space" and "underscore" be returned to the common
+            #         human language use. And that "spaces in filenames" and "space in variable names"
+            #         get their own special Unicode character for all the technical reasonsons of clarity
+            #         of technical usage and mistakes in parsing /etc.
+            #     7.  While we are at it... a new set of Unicode characters for made-up quotations of people
+            #         In USA culture / English speakers tend to use "quoted phrases" as a way to express
+            #         sound-alike write-alike mockery and sarcasm of the thinking of someone. But it is bad.
+            #         It is bad, because it is represented in the same way as if you are factaully qooting
+            #         another person or organization and isn't clealry marked as a "fbricated quote" usage.
+            #         Since year 2013, the Internet has been overrun with misinformation and disinformation
+            #         And having a convention of "this quote is a fiction representation of an idea"
+            #         emphasizes the importance of quoting other people or organizes sincerely. 
+            #     8.  Similar to number 7 on this list. A new set of Unicode values for begin and end of a quote
+            #         that is used for EMPHASIS, "Air Quotes". Like bold or italics or underline, but a convention
+            #         of English speakers using "QUOTE THIS MOTHER FUCCKER" as a way to "SO CALLED" draw extra
+            #         attention to emphasize a word. It's a usage like ALL CAPS on a word or MiXedCaps mocking.
+            #     9.  Happy New Year 2026. All of Us, We The People, Pale Blue Dot Pride, Pluribus! go Earth!
+            #     Thank you.
+            #
+            #  I've decided △ - Great Seal Pyramid. CURRENTLY as of January 1, 2026 - Reddit doesn't allow this
+            #      character in a username. Also note that path such as "/" isn't allowed in username either
+            #      so there isn't any defense against ".." attacks or "/" root path start of a username.
+            #
+            filename_pattern = os.path.join(args.fetched_account_folder, f"{username}△*.json")
+            existing_files_all = glob.glob(filename_pattern)
 
-    if data is None:
+            if existing_files_all:
+
+                found_count = len(existing_files_all)
+                # epoc number filenames should sort highest (freshest, most recent)
+                account_filename = max(existing_files_all)
+            
+                # reference above print(f"[cached] Using saved HTML for {url} file {html_filename} found count: {found_count}")
+                print(f"[cached] Using saved JSON for {username} file {account_filename} found count: {found_count}")
+                with open(account_filename, "r", encoding="utf-8") as f:
+                    # account_text = f.read()
+                    reddit_account_data = json.load(f)
+
+
+    if reddit_account_data is None:
         print(f"live-fetch for user_info_hover {url}")
+        fetchRedditCountA += 1
         res = requests.get(url, headers=HEADERS)
+        fetch_time_epoch = int(time.time())
         if res.status_code != 200:
             return None, None, None, None, False
-        data = res.json()["data"]
+        reddit_account_data = res.json()["data"]
         live_fetch = True
-    
+
+        # account_filename = os.path.join(args.fetched_account_folder, f"{username}.json")
+        account_filename = os.path.join(args.fetched_account_folder, f"{username}△{fetch_time_epoch}.json")
+
         if account_filename:
             with open(account_filename, "w", encoding="utf-8") as f:
                 # f.write(data)
-                json.dump(data, f, indent=4) # indent=4 makes the JSON output more readable
+                json.dump(reddit_account_data, f, indent=4) # indent=4 makes the JSON output more readable
                 print(f"Saved fresh fetched account JSON to {account_filename}")
 
-    if "is_suspended" in data:
-        if data["is_suspended"]:
+    if "is_suspended" in reddit_account_data:
+        if reddit_account_data["is_suspended"]:
              print("suspended account encountered")
              quit_request = pause_with_quit(3)
              return None, None, None, None, False
 
-    created = datetime.datetime.utcfromtimestamp(data["created_utc"]).isoformat() + "Z"
-    bio = data.get("subreddit", {}).get("public_description")
-    user_title = data.get("subreddit", {}).get("title")
+    created = datetime.datetime.utcfromtimestamp(reddit_account_data["created_utc"]).isoformat() + "Z"
+    bio = reddit_account_data.get("subreddit", {}).get("public_description")
+    user_title = reddit_account_data.get("subreddit", {}).get("title")
     if user_title:
         bio = user_title + " : " + bio
-    link_karma = data.get("link_karma")
-    comment_karma = data.get("comment_karma")
+    link_karma = reddit_account_data.get("link_karma")
+    comment_karma = reddit_account_data.get("comment_karma")
     return created, bio, link_karma, comment_karma, live_fetch
 
 
 def fetch_user_info_full(username):
+    global fetchRedditCountA
+
     url = f"https://old.reddit.com/user/{username}/"
     print(f"live-fetch for user_info_full {url}")
+    fetchRedditCountA += 1
     res = requests.get(url, headers=HEADERS)
     res.raise_for_status()
     
@@ -403,6 +458,8 @@ def main():
     if errorCountA + errorCountB > 0:
         print(f"\nERRORS encountered! Final error counts, A: {errorCountA} B: {errorCountB}")
 
+    if (fetchRedditCountA > 0):
+        print(f"Live fetch to Reddit count: {fetchRedditCountA}")
 
 
 if __name__ == "__main__":
