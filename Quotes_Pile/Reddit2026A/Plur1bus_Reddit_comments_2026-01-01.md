@@ -99,3 +99,7 @@ New Years Day holiday, the hate flows on Reddit. Deport-happy society of blockin
 https://old.reddit.com/r/Pluribus_TVshow/comments/1q18zs2/anyone_else_couldnt_stop_crying_after_the_finale/nx3u0pj/
 
 The [social media cesspool that Vince Gilligan described last year, the year of the Pluribus Television show](https://old.reddit.com/r/Pluribus_TVshow/comments/1q0rwfi/vince_gilligan_year_2025/). Breaking Bad meth fanatics, Walter White supremacy fans? Saul manipulating "good man" fandom? Here to attack lesbian / women power of Pluribus by spreading hate / Trump MAGA values on Reddit?
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q0lmw9/what_the_colors_mean/nx477vt/
+
+"Reddit cares" nonsense. People are so insincere and can't read anything that isn't dumb mocking. New Years Day 2026... Carol is boozing all day and night in the Season One of Plurius, today is a holiday weekend of the whole world... anti-woke people with their banal concern trolling. Anti-humanism like the insincere "caring" of the hive mind baby Carol mothering. Half in the Bag described it well yesterday. "Everybody being pleasant, nice" https://youtu.be/GfsDYu7OKns?t=2069
