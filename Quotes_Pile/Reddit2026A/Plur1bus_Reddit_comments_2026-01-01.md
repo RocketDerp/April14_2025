@@ -353,3 +353,16 @@ I have personally been a social media user since Christmas 1982. And this is the
 
 * "1979: First to offer electronic mail (email) to personal computer users."; "February 1980: Launched the CB Simulator, the first commercial multi-user chat, introducing terms like "IMHO" and emoticons." - [CompuServe Information Service, Inc.: It opened in 1969 in Columbus, Ohio](https://en.wikipedia.org/wiki/CompuServe) - the year I was born, in city "Columbus". My father was born in Columbus Ohio.
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q0mfhu/possible_positive_endings_hinted_at_in_ep_1/nx5dhoa/
+
+Explaining Reddit fixation to a social media addict who is taking hits off memes is very very difficult. Media ecology. My reply comment message:
+
+> Are you crazy? Don't you understand that I've never seen a dollar bill?
+
+I understand that you mocked a Wikipedia link. That you are anti-learning anti-Wikipedia.
+
+You have a **FIXATION** on Reddit users and won't escape Reddit.  https://en.wikipedia.org/wiki/Great_Seal_of_the_United_States
+
+It is a very common problem with meme addicts here on Reddit. Who won't read paper books, won't look at Wikipedia, etc.
+
+You said it earlier "Sending Wikipedia links", mocking "Checkmate!" at Wikipedia.
