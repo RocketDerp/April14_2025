@@ -29,3 +29,7 @@ Musk Worship Message from me. My message.
 https://old.reddit.com/r/Pluribus_TVshow/comments/1q0v8jc/new_theory_pet_microchip/nx19j2o/
 
 This is street gangs of information warfare speak on New Years Day. Pro-Musk mockery teams to do everything possible to steer people away from analysis and original thinking. Mobs of people who worship MAGA USA year 2026 values use these gang signs and symbols to bully anyone that has independent thought or thinking. OPERA_A https://www.youtube.com/watch?v=uiYJeRjpX4E  1,556,159 views October 13, 2015. From The Simpsons season 7 episode 5: Lisa the Vegetarian
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q0lmw9/what_the_colors_mean/nx2z8lv/
+
+My YELLOW BADGE color symbols gang colors message. My message.
