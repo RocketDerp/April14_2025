@@ -37,3 +37,7 @@ My YELLOW BADGE color symbols gang colors message. My message.
 https://old.reddit.com/r/Pluribus_TVshow/comments/1q165u8/pluribus_is_a_giant_ripoff_of_to_serve_man/nx37cfx/
 
 My message. Twilight Zone assertions.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q165u8/pluribus_is_a_giant_ripoff_of_to_serve_man/nx38tjv/
+
+My reply message at root of posting comments addresses this. Vince Gilligan NAMED Carol after Twilight Zone character.
