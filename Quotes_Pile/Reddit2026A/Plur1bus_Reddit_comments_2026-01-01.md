@@ -408,3 +408,7 @@ This Reddit user thinks the metaphor crisis is only one single person on one sin
 “Half the people in the world think that the metaphors of their religious traditions, for example, are facts. And the other half contends that they are not facts at all. As a result we have people who consider themselves believers because they accept metaphors as facts, and we have others who classify themselves as atheists because they think religious metaphors are lies.” ― Joseph Campbell, Thou Art That: Transforming Religious Metaphor
 
 OPERA_A Reddit user won't cite any off-Reddit discussion of the metaphor crisis. "I've told you. Many times." - Reddit, January 1, 2026. https://www.youtube.com/watch?v=v4L8L43GieE 1,006,110 views September 13, 2012 Lyrics: "And freedom taste of reality", "you've been **told many times before**, Messiah's pointed to the door... No one had the guts to leave the temple". Recorded between September 19, 1968, and March 7, 1969
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q1hqjd/vince_called_his_viewers_idiots_and_he_was_right/nx5uh6g/
+
+"Over-thinking" is a thought-ending phrase, a thought-terminating cliché pattern. Hive-mind thought ending Reddit society. Elon Musk Twitter-think meme-think followers. Anti-book. A story about book touring, book authors, book fandoms, seems to not get the book topic across. Which books are in the story? James Joyce, Finnegans Wake. Wake the fuck up, USA. You are bamboozled by Trump and Elon Musk! Putin won, Surkov won!
