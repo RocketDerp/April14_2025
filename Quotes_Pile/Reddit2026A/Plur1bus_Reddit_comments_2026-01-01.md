@@ -287,3 +287,15 @@ My reply message to this low-effort dismissive comment:
 > You need as much help as OP.
 
 I am helping. The cesspool that Vince Gilligan called out February 15, 2025 at the writers guild. Right here, Elon-Musk Tweet-think USA. Happy New Years: https://www.youtube.com/watch?v=gU7d2EHV_OQ Right HERE, right this *here* subreddit, Right here in River City!
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q1c6og/is_it_possible_that_zozia_and_manousos_might_fall/nx5965j/
+
+MAGA USA January 2026, anti-literacy, anti-book. Needs serious book help. Stop banning books and read books. My reply message comment:
+
+> What??? Get help
+
+What magical help? You keep pestering me because your literacy is ELI3 level reading?
+
+I can only respond to your need for remedial lessons so fast. Your grasp of the Pluribus Latin show one sentence at a time. Your reading comprehension is terrible!
+
+A Television Show, HDTV content, about book authoring and book toruing blows so many TV addict minds in USA.
