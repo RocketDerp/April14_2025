@@ -366,3 +366,11 @@ You have a **FIXATION** on Reddit users and won't escape Reddit.  https://en.wik
 It is a very common problem with meme addicts here on Reddit. Who won't read paper books, won't look at Wikipedia, etc.
 
 You said it earlier "Sending Wikipedia links", mocking "Checkmate!" at Wikipedia.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q0mfhu/possible_positive_endings_hinted_at_in_ep_1/nx5dt3i/
+
+Context of Thank You message to Vince Gilligan. Reddit users do not now how to call out the billionaires influencers on Reddit. Reddit users attack "The Little Guy" and praise the billionaire takeover of USA since Musk got Twitter. My reply message:
+
+> Or maybe you're the one who's worse off than ever!
+
+Yes, January 1, 2026 living in USA. It is worse off than ever in USA history. Elon Musk owning Twitter has ruined the USA. People follow Elon Musk leadership. A nation of over 300 million people who prize Tweet messages. They are all over /r/All every hour of every day.
