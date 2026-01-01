@@ -41,3 +41,7 @@ My message. Twilight Zone assertions.
 https://old.reddit.com/r/Pluribus_TVshow/comments/1q165u8/pluribus_is_a_giant_ripoff_of_to_serve_man/nx38tjv/
 
 My reply message at root of posting comments addresses this. Vince Gilligan NAMED Carol after Twilight Zone character.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q165u8/pluribus_is_a_giant_ripoff_of_to_serve_man/nx36ccx/
+
+January 1, 2026 Finnegans Wake Media Ecology "Woke Wake" award of the day goes to this comment! A link even!
