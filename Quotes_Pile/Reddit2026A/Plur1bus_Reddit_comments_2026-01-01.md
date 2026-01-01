@@ -250,3 +250,26 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1q0mfhu/possible_positive_endi
 
 "A video", but not the one (in threaded reply context) about Reddit social media from Vince Gilligan behaviors of cesspools as Reddit comment community is behaving.
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q0mfhu/possible_positive_endings_hinted_at_in_ep_1/nx56bzy/
+
+You can lead a Reddit end-user to a paper book, but you can't make them read the book. Horse and water, meet thirty! My reply comment:
+
+> I could only read NASA because it was in all caps.
+
+Which is the very point I'm making. The ENTIRE SHOW of PLUR1BUS is about that behavior of social media users. Tiny iPhone screens.
+
+Helen dies because she is holding a social media device touch screen, wireless, at the zero hour. She falls backwards like Tim Finnegans.
+
+# Minute 22 Episode One
+
+Helen introduces the book "Finnegans Wake".
+
+The most powerful book ever created by all humanity, the world over.
+
+The book is about REDDIT, the website of Reddit, is what Finnegans Wake is about! I can not spell it out more clearly.
+
+> Please be clearer so I can understand you.
+
+REPEATING: The entire show is about Reddit commenting and posting. Shit-posting. [Cesspool of social media](https://old.reddit.com/r/Pluribus_TVshow/comments/1q0rwfi/vince_gilligan_year_2025/). Helen does at the "00:00:00:00" countdown reading social media. That's the themes.
+
+* "War and Peace in the Global Village is a 1968 book by Marshall McLuhan and Quentin Fiore. It contains a collage of images and text that illustrates **the effects of electronic media and new technology on man**. Marshall McLuhan used James Joyce's Finnegans Wake as a major inspiration for this study of war throughout history as an indicator as to how war may be conducted in the future." https://en.wikipedia.org/wiki/War_and_Peace_in_the_Global_Village
