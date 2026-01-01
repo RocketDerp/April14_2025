@@ -161,3 +161,15 @@ Are you so lost that this subreddit topic, "Pluribus TV Show" - you don't know t
 * "Any literate man resents such a heavy demand for his total attention, because he has long been accustomed to fragmentary attention."  - [Marshall McLuhan's book Understanding Media: The Extensions of Man, Page 234, Year 1964](https://books.google.com/books?id=1qVADF2rZIAC&q=%22Any+literate+man+resents+such+a+heavy+demand+for+his+total+attention,+because+he+has+long+been+accustomed+to+fragmentary+attention.%22&dq=%22Any+literate+man+resents+such+a+heavy+demand+for+his+total+attention,+because+he+has+long+been+accustomed+to+fragmentary+attention.%22&hl=en&newbks=1&newbks_redir=1&printsec=frontcover&sa=X)
 
 The current situation in USA regarding printed books on paper is an absolute horror show! Monster state USA!
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q0lmw9/what_the_colors_mean/nx4v45e/
+
+Situation is way worse than I thought, ELIZA effect hive mind end-user. My reply message to this comment:
+
+> What is this bot trying to do?
+
+You some ChatGPT addict like so many on Reddit, who thinks everyone is a video game NPC and dehumanizes like MAGA does and I.C.E. does to anyone who steps out of line? 
+
+You the hive mind who can't think and understand a person outside your Reddit hive mind of anti free thinking?
+
+You fail the Turing Test and fall for the ELIZA effect and lost in the billionaires created Grok AI world?
