@@ -270,7 +270,7 @@ The book is about REDDIT, the website of Reddit, is what Finnegans Wake is about
 
 > Please be clearer so I can understand you.
 
-REPEATING: The entire show is about Reddit commenting and posting. Shit-posting. [Cesspool of social media](https://old.reddit.com/r/Pluribus_TVshow/comments/1q0rwfi/vince_gilligan_year_2025/). Helen does at the "00:00:00:00" countdown reading social media. That's the themes.
+REPEATING: The entire show is about Reddit commenting and posting. Shit-posting. [Cesspool of social media](https://old.reddit.com/r/Pluribus_TVshow/comments/1q0rwfi/vince_gilligan_year_2025/). Helen dies at the "00:00:00:00" countdown reading social media. That's the themes.
 
 * "War and Peace in the Global Village is a 1968 book by Marshall McLuhan and Quentin Fiore. It contains a collage of images and text that illustrates **the effects of electronic media and new technology on man**. Marshall McLuhan used James Joyce's Finnegans Wake as a major inspiration for this study of war throughout history as an indicator as to how war may be conducted in the future." https://en.wikipedia.org/wiki/War_and_Peace_in_the_Global_Village
 
