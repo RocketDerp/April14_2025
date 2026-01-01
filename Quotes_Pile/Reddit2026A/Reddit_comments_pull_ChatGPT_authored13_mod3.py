@@ -20,6 +20,12 @@ from html_to_markdown import convert_to_markdown
 #
 #   1. NSFW postings comment links error the code. I've just been interactively ending the error timing.
 #
+#   2. My Python is incredibly rusty. I don't know standard convention for variable names and camel case
+#      vs. underscore. And this app source code mixes both.
+#      Variable name renaming all across the board
+#   3. Pass the whole arg to functions / methods as is done with the JSON page fetch
+#      the HTML page fetch doesn't use app args variables the same way
+#
 
 # Global variables
 
