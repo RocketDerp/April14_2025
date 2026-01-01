@@ -220,3 +220,6 @@ That is your goal here. To silence, run people off your turf of Reddit subreddit
 
 You can't stand free-speech free-thinking people in MAGA USA  hive run by billionaires who are against everything "Pluribus" in the 1776 ideals stands for. Machine lust, *shut up human* hate.
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q0mfhu/possible_positive_endings_hinted_at_in_ep_1/nx53sfd/
+
+More questions. Carol dumb stupid, show dumb stupid, etc.
