@@ -185,3 +185,27 @@ There is a massive street gang here that are intimidating anyone who is serious 
 >  so much annoyed reactions
 
 They are anti-goodness across the board here.  Lesbian women on the show seems to really have them motivated here on male-dominated Reddit. If they even get the slightest whiff that you don't bow to  Linda McMahon mindsets and hive mind thinking... you will get all kinds of low-effort reply comments and attempts at gatekeeping their gang turf of this Latin language Great Seal of the United States of America teaching show.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q0mfhu/possible_positive_endings_hinted_at_in_ep_1/nx4zreo/
+
+Social media cesspool, Vince Gilligan SPELLED IT OUT February 15, 2025. My reply to this message that ignores grief emotions and booze addictions of Carol:
+
+> Is Carol intelligent? She might have the imagination to write her books, but intelligent?
+
+Yes. But many hive minded people who favor high speed messaging machines can't recognize grief process, that she lost her wife Helen and her thinking is under the influence of chemical dependence and truama.
+
+Many people behave as if they have lived through an event where over 8 billion people changed in one night. They don't seem to understand a mythology / monomyth story  of *extreme depth*.
+
+No TV show has ever been this deep in all history. That is spelled out at Minute 22 of Episode One, the Zero Hour countdown of "00:00:00:00" in the show. Kepler 22 is emphasized to make the 22 Minute mark a focus.
+
+if you listen to the audio track of Minute 22 you will even hear microphone tapping, a symbol for the audience to really listen to the graduate school message Helen has for Carol. https://mymythos.org/archetype/microphone/
+
+&nbsp;
+
+Did you hear the message at minute 22 of Episode One?
+
+* "Finnegans Wake is the **greatest guidebook to media study** ever fashioned by man." - Marshall McLuhan, Newsweek Magazine, p.56, February 28, 1966
+
+&nbsp;
+
+Helen falls backwards, like Tim Finnegan, and is holding a wireless phone. And then all the wireless networks go down, and the lady inside the bar on a land-line phone does not fall?  This is all media metaphors of Finnegans Wake book by James Joyce, Helen's graduate school lessons.
