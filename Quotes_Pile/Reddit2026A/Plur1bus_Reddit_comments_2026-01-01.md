@@ -298,4 +298,4 @@ What magical help? You keep pestering me because your literacy is ELI3 level rea
 
 I can only respond to your need for remedial lessons so fast. Your grasp of the Pluribus Latin show one sentence at a time. Your reading comprehension is terrible!
 
-A Television Show, HDTV content, about book authoring and book toruing blows so many TV addict minds in USA.
+A Television Show, HDTV content, about book authoring and book touring blows so many TV addict minds in USA.
