@@ -91,3 +91,8 @@ Eating dog food cans, Manousos refusing to accept help from the chaperone the Ot
 https://old.reddit.com/r/Pluribus_TVshow/comments/1q18zs2/anyone_else_couldnt_stop_crying_after_the_finale/nx3rs7s/
 
 This Reddit user is getting massively attacked on New Years Day for having emotions over founding fathers education and teaching of the Great Seal of the United States of America. Aggressive Breaking Bad Walter White fandom attacking good emotions over learning. The Reddit posting got slaughtered in public on New Years holiday with "0 points (19% upvoted)" in first 30 minutes!
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q18zs2/anyone_else_couldnt_stop_crying_after_the_finale/nx3t3n4/
+
+New Years Day holiday, the hate flows on Reddit. Deport-happy society of blocking immigrants, deporting "the others" with machine power / systemic power. Machine lovers who hate human emotions and expressions.
+
