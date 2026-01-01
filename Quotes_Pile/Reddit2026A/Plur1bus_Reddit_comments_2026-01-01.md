@@ -377,7 +377,7 @@ Yes, January 1, 2026 living in USA. It is worse off than ever in USA history. El
 
 https://old.reddit.com/r/Pluribus_TVshow/comments/1q1c6og/is_it_possible_that_zozia_and_manousos_might_fall/nx5q2s2/
 
-MAGA USA just goes around repeating "dementia Don" over and over for years on meme mill Reddit. Simple-think tiny-length Tweet messages, following Elon Musk Twitter lead White House. My reply message:
+<img width="1724" height="1392" alt="image" src="https://github.com/user-attachments/assets/4be401ef-7935-4eb3-96df-2d1932633c49" />  MAGA USA just goes around repeating "dementia Don" over and over chanting for years on meme mill Reddit. Simple-think tiny-length Tweet messages, following Elon Musk Twitter lead White House. My reply message:
 
 > > A Television Show, HDTV content, about book authoring and book touring blows so many TV addict minds in USA.
 
