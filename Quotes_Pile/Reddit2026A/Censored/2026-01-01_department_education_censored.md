@@ -2,15 +2,16 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1q17gy5/manousos_was_infected_
 
 &nbsp;
 
-&nbps;
+&nbsp;
 
 &nbsp;
 
-&nbps;
 
 &nbsp;
 
-&nbps;
+&nbsp;
+
+&nbsp;
 
 
 
