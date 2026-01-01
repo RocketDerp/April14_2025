@@ -412,3 +412,29 @@ OPERA_A Reddit user won't cite any off-Reddit discussion of the metaphor crisis.
 https://old.reddit.com/r/Pluribus_TVshow/comments/1q1hqjd/vince_called_his_viewers_idiots_and_he_was_right/nx5uh6g/
 
 "Over-thinking" is a thought-ending phrase, a thought-terminating cliché pattern. Hive-mind thought ending Reddit society. Elon Musk Twitter-think meme-think followers. Anti-book. A story about book touring, book authors, book fandoms, seems to not get the book topic across. Which books are in the story? James Joyce, Finnegans Wake. Wake the fuck up, USA. You are bamboozled by Trump and Elon Musk! Putin won, Surkov won!
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q1g7j9/the_way_gilligan_uses_the_background_extras_to/nx5dxig/
+
+The anti-intellectual Reddit meme society of MAGA USA 2026. My reply to this comment:
+
+> Vince giligan fans are the worst dude. 
+
+Vince Gilligan has put the Great Seal of the United States front and center against Elon Musk, immigrant from South Africa teaching. And you think Gilligan standing up against Musk D.O.G.E. makes *him the worst* ever.
+
+Have you seen the fandom of StarLink media, Grok media, and Twitter social? You really think Vince Gilligan is the one leading the Celebration of Ignorance, the tiny-short 9 second message "sound bites" of society? Or is Twitter world famous for 3-second "sound bites" thinking?
+
+> Vince giligan fans are the worst 
+
+Measure how many seconds a Twitter message from Elon Musk fandom is. Go ahead, get out a stopwatch.
+
+* &nbsp;
+
+* “Science is more than a body of knowledge; it is a way of thinking. I have a (year 1995) foreboding of an America in my children’s or grandchildren’s time — when the United States is a service and information economy; when nearly all the key manufacturing industries have slipped away to other countries; when awesome technological powers are in the hands of a very few, and no one representing the public interest can even grasp the issues; when the people have lost the ability to set their own agendas or knowledgeably question those in authority; when, clutching our crystals and nervously consulting our horoscopes, our critical faculties in decline, unable to distinguish between what feels good and what’s true, we slide, almost without noticing, back into superstition and darkness. The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the **30-second** sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but especially a kind of [celebration of ignorance](https://www.youtube.com/watch?v=wcY-x1VuWtE). As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning — not just of science, but of anything — are avoidable, even undesirable.”
+― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995, page 59
+
+&nbsp;
+
+A decade before Carl Sagan:
+
+"Disinformation does not mean false information. It means misleading information -- misplace, irrelevant, fragmented or superficial information -- **information that creates the illusion of knowing something** but which in fact leads one away from knowing", "Ignorance is always correctable. But what shall we do if we take ignorance to be knowledge?”
+― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
