@@ -227,3 +227,21 @@ More questions. Carol dumb stupid, show dumb stupid, etc.
 https://old.reddit.com/r/Pluribus_TVshow/comments/1q0mfhu/possible_positive_endings_hinted_at_in_ep_1/nx539iz/
 
 Apple iPhone user? who has comprehension troubles of both the show and Reddit messages of any complexity about James Joyce...
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q0mfhu/possible_positive_endings_hinted_at_in_ep_1/nx539iz/
+
+Repeating link. Here is my reply message:
+
+> > You can't stand free-speech free-thinking people in MAGA USA hive run by billionaires who are against everything "Pluribus" in the 1776 ideals stands for.
+
+.
+
+&nbsp;
+
+> I can't read half of what you write because you start talking about Musk and NASA 
+
+Yha, you think "NASA", is what my message said. A TV show about authoring books, book tours, book selling, book writing... literacy...
+
+> Shut up,
+
+That's you commanding me. Dictatorship lover, Musk D.O.G.E. dictatorship values USA 2026.
