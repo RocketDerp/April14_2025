@@ -396,3 +396,7 @@ Asserting meme-think Twitter followers of Elon Musk signaling. Gang signs / Gang
 https://old.reddit.com/r/Pluribus_TVshow/comments/1q1hqjd/vince_called_his_viewers_idiots_and_he_was_right/nx5p2z0/
 
 People who think USA 2026 being lead by RFK Jr and Donald Trump is intelligent and smart and that the problem is people on Reddit saying television has made people idiots. Donald Trump thinks Fox News HDTV (television) is intelligent, like so many on Reddit in January 2026.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q1hqjd/vince_called_his_viewers_idiots_and_he_was_right/nx5qkpl/
+
+Americans are wrapped in MAGA clothing, MAGA messaging, parroting the Russian Internet Research Agency patterns without being able to discuss media ecology and { Marshall McLuhan, Neil Postman, Joseph Campbell, Jean Erdman, Bill Moyers, James Joyce } teachings. Jean Erdman called out the multiple interpretations of Finnegans Wake in her dance. But Reddit audience doesn't want to connect to intelligent university teachers like Postman and McLuhan. Helen talks about graduate school and James Joyce. 
