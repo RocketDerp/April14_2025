@@ -273,3 +273,17 @@ The book is about REDDIT, the website of Reddit, is what Finnegans Wake is about
 REPEATING: The entire show is about Reddit commenting and posting. Shit-posting. [Cesspool of social media](https://old.reddit.com/r/Pluribus_TVshow/comments/1q0rwfi/vince_gilligan_year_2025/). Helen does at the "00:00:00:00" countdown reading social media. That's the themes.
 
 * "War and Peace in the Global Village is a 1968 book by Marshall McLuhan and Quentin Fiore. It contains a collage of images and text that illustrates **the effects of electronic media and new technology on man**. Marshall McLuhan used James Joyce's Finnegans Wake as a major inspiration for this study of war throughout history as an indicator as to how war may be conducted in the future." https://en.wikipedia.org/wiki/War_and_Peace_in_the_Global_Village
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q0mfhu/possible_positive_endings_hinted_at_in_ep_1/nx57kt8/
+
+You the Putin Puppet, Hilary Clinton Trump 2016. You the parrot. You the media regurgitator turntable turnaround.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q1c6og/is_it_possible_that_zozia_and_manousos_might_fall/nx57g27/
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q1c6og/is_it_possible_that_zozia_and_manousos_might_fall/nx58uej/
+
+My reply message to this low-effort dismissive comment:
+
+> You need as much help as OP.
+
+I am helping. The cesspool that Vince Gilligan called out February 15, 2025 at the writers guild. Right here, Elon-Musk Tweet-think USA. Happy New Years: https://www.youtube.com/watch?v=gU7d2EHV_OQ Right HERE, right this *here* subreddit, Right here in River City!
