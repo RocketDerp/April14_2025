@@ -1,0 +1,7 @@
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1q13bq4/shes_a_grifter/nx2op8a/
+
+Front page of Reddit posting. Twitter screen shots, Elon Musk Twitter content on Reddit. Simulacra of "resisting" the promotion of Charlie Kirk and Erika.
+
+Reddit audience is deeply attracted to the Bible mocking leadership that Turning Point Faith provides. Mocking Reddit audience follows Twitter mocking leadership signals, MAGA mocking leadership, Turning Point mocking leadership. It is all a pattern of following signals of mocking and dehumanization.
+
+There is no demonstration on Reddit of self-awareness of being lead by the nose / leash lead, by Elon Musk Twitter media systems. All signs and behaviors indicate a mob mentality of thinking they have out-smarted the out-groups ( Twitter, Turning Point, Internet Research Agency seeding since March 2013 }... no invocation of { Media Ecology, Neil Postman, Marshall McLuhan }. Despite the long-established Time Magazine just months ago re-asserting Neil Postman's 1985 media ecology about addict self-awareness (Reddit high sped electric media audience). September 10, 2025: https://time.com/7313999/neil-postman-trump-prediction/ only 113 days ago! The "Mass Man" (group think, term from University of Toronto's Marshall McLuhan) keeps jumping from mockery leading signal to the next signal without any self-awareness of compulsive following. Tree after tree can't recognize the forest patterns of being lead by Putin's Kremlin since March 2013 into total *friendly-fire* of Americans mocking Americans in feedback loops.
