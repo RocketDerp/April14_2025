@@ -840,5 +840,12 @@ You are so detached from the real world, reality itself, with your meme and tele
 
 https://old.reddit.com/r/Pluribus_TVshow/comments/1q17gy5/manousos_was_infected_and_came_back/nx9coqp/
 
-1. Ask question, 2. block me so I can't reply, 3. unblocks, 4. asks another question, 5. instantly blocks again. Unable to be serious about important topics. Loves machines to lock humans, ICE immigrant blocking people USA values.
-2. 
+Pattern: 1. Ask question, 2. block me so I can't reply, 3. unblocks, 4. asks another question, 5. instantly blocks again. Unable to be serious about important topics. Loves machines to lock humans, ICE immigrant blocking people USA values.
+ 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q1yu6z/is_anyone_hoping_the_next_season_they_were_be/nx949vi/
+
+Vince Gilligan has audiences in low expectations for emerging seasons of hyper reality... 
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q1yu6z/is_anyone_hoping_the_next_season_they_were_be/nx9pit5/
+
+My message.
