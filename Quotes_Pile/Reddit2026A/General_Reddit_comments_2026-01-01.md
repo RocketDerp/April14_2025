@@ -21,3 +21,9 @@ Elon Musk is following the October 7, 1996 onward Rupert Murdoch lead. By creati
 https://old.reddit.com/r/CringeTikToks/comments/1q270uw/israeli_billionaire_shlomo_kramer_its_time_to/nxaw1p5/
 
 A sort-of citation. Far better than most audience claims on Reddit.
+
+https://old.reddit.com/r/politics/comments/1q226qn/elon_musk_indicates_hes_going_all_in_on_financing/nx9xydk/
+
+Left vs. right has become brainrot. People can't grasp the Great Seal USA Pluribus meaning, that it requires mythological thinking. Not binary logic of left vs. right, one-bit polarity, bi-polar. ... ... ...     
+
+"What explains the relationship between these symbols and the Masons, and the fact that so many of these founding fathers belonged to the Masonic order? Is the Masonic order an expression somehow of **mythological thinking**?" - Bill Moyers, [The Power of Myth, year 1988 book, page 37](https://books.google.com/books?id=2GOIGuh5GJ4C&pg=PA37&dq=%22Is+the+Masonic+order+an+expression+somehow+of+mythological+thinking%22&hl=en&newbks=1&newbks_redir=1&sa=X)
