@@ -464,3 +464,15 @@ So many "alternate medication" sellers on Reddit. www.LazyWake.com - my reply me
 > Take your meds
 
 What medication is that? Are you a drug dealer, drug pusher like so many meth sellers of Walter White fandom are here on Reddit? You pushing meth on me? Or are you a dope user of some other drug you are pushing and trying to sell to me?
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q1jncd/vince_gilligan_is_the_only_person_in_the_world_to/nx69dqz/
+
+Musk hive mind follower. My first reply message:
+
+> If you can't, I'll assume the rest of your claims are equally poorly researched.
+
+Tiny-short Twitter-think USA 2026. Cheap-shots, pot-shots. Don't do your own book raeding. MAGA thinking values. "Oh, there is a single fly in my soup, all the government needs D.O.G.E because one single mistake!"
+
+That's your logic. Anti-reason thinking, ONE SINGLE mistake of another human being, humans make mistakes. Carol makes plenty of mistakes, but you want to promote messages for [Elon Musk hive mind ("Woke Mind Virus" killer)](https://www.lemonde.fr/en/international/article/2024/08/13/elon-musk-s-ambition-repopulating-the-planet-and-destroying-the-woke-virus_6714239_4.html) of ANY MISTAKE get out the D.O.G.E. chainsaw! Kill the whole nation, we found 3 mistakes1
+
+I will respond a second time or more on your first low-effort sentence. Twitter-length thinking message.
