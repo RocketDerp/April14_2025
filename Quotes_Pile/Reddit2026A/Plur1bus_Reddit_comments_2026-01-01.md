@@ -831,3 +831,9 @@ Donald Trump leads a nation in year 2026 with egoism. Egomania USA. And so many 
 https://old.reddit.com/r/Pluribus_TVshow/comments/1q17gy5/manousos_was_infected_and_came_back/nx99l1e/
 
 There is an important passage in the recently discovered Gnostic Gospel According to St. Thomas: “ ‘When will the kingdom come?’ Christ’s disciples ask.” In Mark 13, I think it is, we read that the end of the world is about to come. That is to say, a mythological image—that of the end of the world—is there taken as predicting an actual, physical, historical fact to be. But in Thomas’ version, Jesus replies: “The kingdom of the Father will not come by expectation. The kingdom of the Father is spread upon the earth and men do not see it”—so I look at you now in that sense, and the radiance of the presence of the divine is known to me through you.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q17gy5/manousos_was_infected_and_came_back/nx9c2ge/
+
+> Not sure why you keep posting weird stuff unrelated to anything.
+
+You are so detached from the real world, reality itself, with your meme and television addiction you think none of this has to do with anything. Nihilist. 
