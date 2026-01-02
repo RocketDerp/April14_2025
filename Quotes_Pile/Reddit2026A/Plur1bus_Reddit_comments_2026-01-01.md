@@ -837,3 +837,8 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1q17gy5/manousos_was_infected_
 > Not sure why you keep posting weird stuff unrelated to anything.
 
 You are so detached from the real world, reality itself, with your meme and television addiction you think none of this has to do with anything. Nihilist. 
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q17gy5/manousos_was_infected_and_came_back/nx9coqp/
+
+1. Ask question, 2. block me so I can't reply, 3. unblocks, 4. asks another question, 5. instantly blocks again. Unable to be serious about important topics. Loves machines to lock humans, ICE immigrant blocking people USA values.
+2. 
