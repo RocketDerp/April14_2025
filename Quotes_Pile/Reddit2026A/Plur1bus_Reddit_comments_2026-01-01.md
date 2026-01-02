@@ -878,3 +878,8 @@ BILL MOYERS: "And yet we all have lived a life that had a purpose. Do you believ
 
 Again, this is the book that teaches the meaning of the Latin word "PLURIBUS" in year 1988. And the meaning of "Plurabelle" in same 1988 book. I  consider Jean Erdman to be one of the greatest on the meaning of "Plurabelle".
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q22ezf/what_are_the_ruled_the_plurbs_follow/nxa1zkw/
+
+My reply in next link:
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q22ezf/what_are_the_ruled_the_plurbs_follow/nxa6uwm/
