@@ -827,3 +827,7 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1q1oqk3/warning_this_pluribus_
 https://old.reddit.com/r/Pluribus_TVshow/comments/1q17gy5/manousos_was_infected_and_came_back/nx94ukx/
 
 Donald Trump leads a nation in year 2026 with egoism. Egomania USA. And so many in Reddit think every message is an ego contest. World peace and unity is mocked away with banal "you so dumb" messages. Lead by Truth Social Trump and Twitter Musk... Rupert Murdoch too. Reddit is a hive mind of following Trump now. Neil Postman's Amusing Ourselves To Death.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q17gy5/manousos_was_infected_and_came_back/nx99l1e/
+
+There is an important passage in the recently discovered Gnostic Gospel According to St. Thomas: “ ‘When will the kingdom come?’ Christ’s disciples ask.” In Mark 13, I think it is, we read that the end of the world is about to come. That is to say, a mythological image—that of the end of the world—is there taken as predicting an actual, physical, historical fact to be. But in Thomas’ version, Jesus replies: “The kingdom of the Father will not come by expectation. The kingdom of the Father is spread upon the earth and men do not see it”—so I look at you now in that sense, and the radiance of the presence of the divine is known to me through you.
