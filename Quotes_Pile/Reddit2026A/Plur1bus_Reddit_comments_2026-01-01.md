@@ -796,3 +796,6 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1q1oqk3/warning_this_pluribus_
 
 https://old.reddit.com/r/Pluribus_TVshow/comments/1q1oqk3/warning_this_pluribus_subreddit_is_full_of/nx7io6v/
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q1oqk3/warning_this_pluribus_subreddit_is_full_of/nx7h6ma/
+
+My message, screaming in public as to the problem of drug-pushers around Walter White fandom! Instead of discussing sincerely and earnestly the MAGA USA problems of "PLURIBUS" politics (PLURIBUS is a political word from USA founding fathers)... pushing medications. And badgering me.
