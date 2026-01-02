@@ -785,3 +785,6 @@ A video is on my REDDIT PROFILE from Peter Pomerantsev, which you say a Johns Ho
 https://old.reddit.com/r/Pluribus_TVshow/comments/1q1oqk3/warning_this_pluribus_subreddit_is_full_of/nx7hpq4/
 
 https://old.reddit.com/r/Pluribus_TVshow/comments/1q1oqk3/warning_this_pluribus_subreddit_is_full_of/nx7hbwt/
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q1oqk3/warning_this_pluribus_subreddit_is_full_of/nx7iaq2/
+
