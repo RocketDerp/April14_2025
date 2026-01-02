@@ -920,3 +920,7 @@ It's been 10 hours and nobody answers specific questions. Fact-checking / unders
 https://old.reddit.com/r/Pluribus_TVshow/comments/1q1smcb/zosia_is_a_doppelganger_but_not/nxbcjwa/
 
 My message. Nothing the media ecology focus of the posting.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q29hbn/hive_rules_explained/nxbfty8/
+
+my comment. Funeral Wake / Finnegans Wake concerns.
