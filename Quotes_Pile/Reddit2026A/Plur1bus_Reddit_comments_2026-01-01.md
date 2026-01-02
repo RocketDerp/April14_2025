@@ -544,3 +544,21 @@ A you against *free thinking* and in a Elon Musk or Rupert Murdoch hive mind tha
 it's been nearly 250 years, there are books all over in the past 250 years. Go ahead, discuss Free Masons, I'm here!
 
 Do you not even know Free Masons created  the show title Vince Gilligan built the show around?
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q1jncd/vince_gilligan_is_the_only_person_in_the_world_to/nx6ng9q/
+
+Reddit audience loves machines, hates persons. MAGA anti Founding Fathers hive mind. My reply message:
+
+> Your mom's worried about you.
+
+You are a horrible person with your MAGA mental hive mind programming mindsets. My mother is dead, and you abuse me with that message. What monsters here! Hate-filled dehumanizing MAGA people of USA California Reddit USA.
+
+Machine lovers who hate persons! So many people here who worship Trump and Musk hate systems! Machine lust lovers who hate humans. So fucked up, what a thing to say on New Years Day holiday!
+
+&nbsp;
+
+# The 1954 Equation
+
+February 28, 1954: "Most people can't stand up for their convictions, because the majority of people might not be doing it. See, everybody's not doing it, so it must be wrong. And since everybody is doing it, it must be right. So a sort of numerical interpretation of what's right. But I'm here to say to you this morning that some things are right and some things are wrong. Eternally so, absolutely so. **It's wrong to hate.** It always has been wrong and it always will be wrong. It's wrong in America, it's wrong in Germany, it's wrong in Russia, it's wrong in China. It was wrong in 2000 B.C., and it's wrong in 1954 A.D. It always has been wrong, and it always will be wrong." - Martin Luther King Jr.
+
+"For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the **true becomes false and the false becomes true**. That's what hate does. You can't see right. **The symbol of objectivity** is lost." - Martin Luther King Jr.
