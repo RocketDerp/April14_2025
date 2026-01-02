@@ -528,3 +528,19 @@ Fucking Reddit has a long form message legacy going back over TWENTY YEARS. This
 # Minute 22 of Episode ONE
 
 Heard of Kepler 22 in the show? Minute 22 of the show. **GRADUATE SCHOOL**?
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q1jncd/vince_gilligan_is_the_only_person_in_the_world_to/nx6hbp1/
+
+Reddit owners never published my first reply message, censored by secret police of Reddit. My second reply message:
+
+> There was no discussion. 
+
+"We The People" takes more than 1 person. Episode One title ["We is U.S.A."](https://en.wikipedia.org/wiki/We_Is_Us)
+
+You want a monologue? Where is your discussion? Why won't you talk about free masons and "PLURIBUS" - which was created by Free masons?
+
+A you against *free thinking* and in a Elon Musk or Rupert Murdoch hive mind that won't discuss Free Masons?
+
+it's been nearly 250 years, there are books all over in the past 250 years. Go ahead, discuss Free Masons, I'm here!
+
+Do you not even know Free Masons created  the show title Vince Gilligan built the show around?
