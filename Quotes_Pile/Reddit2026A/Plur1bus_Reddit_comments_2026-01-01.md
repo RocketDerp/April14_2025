@@ -708,3 +708,19 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1q1oqk3/warning_this_pluribus_
 Anti-morality fandom. Fanatics of Saul Goodman fiction. Normalize it, it's all normal messages on Reddit. Epstein normal. Walter White drug profits, normal. My reply to this:
 
 Oh, ok, you aren't a 15 year old girl who is being manipulated by old white men like Putin and Epstein, so not your concern. USA 2026 MAGA Reddit values. Very popular attitude, as long as there is Walter White barrels of cash money profits! MAGAland USA nation. Fox News nation media values.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q1oqk3/warning_this_pluribus_subreddit_is_full_of/nx7a69e/
+
+My reply message:
+
+> You don't know where I live
+
+I know where Reddit lives. California USA. And an ABQ fiction story empire.
+
+> How about you link your GitHub buddy?
+
+I would have done that in the posting. I would have shared if it I wanted to. But I'm warning people because there are drug pushers active right now.
+
+> Whole account is insane
+
+Why don't you actually tell me what is wrong with my profile, why don't you link it?  My profile is wide open to the public Internet, the World Wide Web. Tell me what's "insane', Internet tough guy.
