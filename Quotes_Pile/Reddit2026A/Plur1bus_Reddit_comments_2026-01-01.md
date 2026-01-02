@@ -928,3 +928,7 @@ my comment. Funeral Wake / Finnegans Wake concerns.
 https://old.reddit.com/r/Pluribus_TVshow/comments/1q1g5kk/the_visual_rhetoric_of_pluribus_a_chromatic/nx6u3s2/
 
 The MAGA USA 2026 culture: dog-whistle politics that a "non-person", undesirable human, is in the room. No evidence, no details, just saying "outsider" in MAGA anti-diversity coded values.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q2cwfa/i_genuinely_feel_empty_inside_now_that_its_over/nxc3oht/
+
+Are the comments saying it is not real, real? Or is there is a simulation of conversations going on. Anti-reality back and forth.
