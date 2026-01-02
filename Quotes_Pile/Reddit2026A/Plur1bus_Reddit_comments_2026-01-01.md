@@ -799,3 +799,8 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1q1oqk3/warning_this_pluribus_
 https://old.reddit.com/r/Pluribus_TVshow/comments/1q1oqk3/warning_this_pluribus_subreddit_is_full_of/nx7h6ma/
 
 My message, screaming in public as to the problem of drug-pushers around Walter White fandom! Instead of discussing sincerely and earnestly the MAGA USA problems of "PLURIBUS" politics (PLURIBUS is a political word from USA founding fathers)... pushing medications. And badgering me.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q1qknn/is_carol_at_rock_bottom/nx7kp02/
+
+Substance abuse is a core topic to every series. Better Call Saul and the magical Tequila bottle they manipulate others with.
+
