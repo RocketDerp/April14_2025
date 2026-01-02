@@ -539,7 +539,7 @@ Reddit owners never published my first reply message, censored by secret police 
 
 You want a monologue? Where is your discussion? Why won't you talk about free masons and "PLURIBUS" - which was created by Free masons?
 
-A you against *free thinking* and in a Elon Musk or Rupert Murdoch hive mind that won't discuss Free Masons?
+Are *you*  here now to be against *free thinking* and in a Elon Musk or Rupert Murdoch hive mind that won't discuss Free Masons?
 
 it's been nearly 250 years, there are books all over in the past 250 years. Go ahead, discuss Free Masons, I'm here!
 
