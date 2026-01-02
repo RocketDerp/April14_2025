@@ -591,3 +591,23 @@ So many Jesus Freaks MAGA voice hears who can't learn or grasp Bible Verse "1 Jo
 
 Breaking Bad fandom that can't tell fiction from nonfiction. Hearing voices from outer-space in their imagination and think it is somebody's dead mother. Fox News HDTV audience of USA 2026.
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q1jncd/vince_gilligan_is_the_only_person_in_the_world_to/nx70pzb/
+
+So many Americans who scream "get help", "Dementia Don!" over and over on Reddit. Unable to discuss anything outside their meme attraction to Breaking Bad Walter White fiction. Television fiction addicts who blow their mind when you talk factual history of the USA founding fathers. My reply message:
+
+> Okay. Hope you get some help!
+
+Canadians are doing everything they can. So many people in USA (Reddit California) who think "take drugs, take blue meth" in Breaking Bad fandom... and that Donald Trump is a sincere and honest person.
+
+You seem incredibly gullible and anti-education. You consume a lot of Reddit and avoid nonfiction books. You really need to learn from better sources than Reddit garbage information.
+
+You can't discuss one single Founding Father, all you do is "get help!" in your weak mind who can't imagine being a free mason / free thinker against Elon Musk hive mind.
+
+You going to help deal with the Elon Musk twitter addiction of USA population? Oh, you only want to sell meth drugs to "fix" problems of Elon Musk.
+
+&nbsp;
+
+"Elon Musk's ambition: Repopulating the planet and 'destroying the woke virus'
+By Arnaud Leparmentier (New York (United States) correspondent)
+Published on August 13, 2024, at 4:01 am (Paris), updated on August 14, 2024, at 9:59 am"
+https://www.lemonde.fr/en/international/article/2024/08/13/elon-musk-s-ambition-repopulating-the-planet-and-destroying-the-woke-virus_6714239_4.html
