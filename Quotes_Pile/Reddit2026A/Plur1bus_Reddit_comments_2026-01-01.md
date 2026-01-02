@@ -643,3 +643,11 @@ my reply message:
 >  What?? Id love to see any evidence of this
 
 I will get banned from Reddit if I link another Reddit user's messages. Look at my profile. It's out of control the drug dealers who keep pushing drugs. I'm documenting it off-Reddit on Github.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q1oqk3/warning_this_pluribus_subreddit_is_full_of/nx778b3/
+
+>  I'm pretty active in the sub and browsing I've never seen this
+
+Look at my profile. I'm documenting it on Github for the past month, since Episode One.
+
+There is a drug dealer here who says he hears voices of my dead mother. It is out of control the addicts here.
