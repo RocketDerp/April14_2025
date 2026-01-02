@@ -651,3 +651,13 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1q1oqk3/warning_this_pluribus_
 Look at my profile. I'm documenting it on Github for the past month, since Episode One.
 
 There is a drug dealer here who says he hears voices of my dead mother. It is out of control the addicts here.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q1oqk3/warning_this_pluribus_subreddit_is_full_of/nx77r1x/
+
+My reply message:
+
+Given the private messages i'm getting, I think I should contact law enforcement. You should read my profile.
+
+# "I'm a medium and talking to your mom on the other side." - this subreddit, 2026-01-02 02:33:53 UTC
+
+People here are heavy meth addicts. Or some cocktail of drugs. They keep pushing drugs.
