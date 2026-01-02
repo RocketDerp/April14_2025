@@ -577,7 +577,7 @@ So many meth dealers. My reply on New Years Day holiday:
 
 https://old.reddit.com/r/Pluribus_TVshow/comments/1q1jncd/vince_gilligan_is_the_only_person_in_the_world_to/nx6pkok/
 
-Reddit meth users of Breaking Bad Walter White fandom? my reply:   
+<img width="1710" height="1468" alt="image" src="https://github.com/user-attachments/assets/1d19cd75-e677-49f7-8b56-55ce5b12164a" /> Reddit meth users of Breaking Bad Walter White fandom? my reply:   
 
 > I'm a medium and talking to your mom on the other side. She says to take your meds.
 
