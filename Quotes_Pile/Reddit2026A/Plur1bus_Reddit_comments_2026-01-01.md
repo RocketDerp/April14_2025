@@ -661,3 +661,15 @@ Given the private messages i'm getting, I think I should contact law enforcement
 # "I'm a medium and talking to your mom on the other side." - this subreddit, 2026-01-02 02:33:53 UTC
 
 People here are heavy meth addicts. Or some cocktail of drugs. They keep pushing drugs.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q1oqk3/warning_this_pluribus_subreddit_is_full_of/nx77c55/
+
+My reply message:
+
+> your reply times are suspiciously quick. 
+
+oh, well, that's evidence that of what? Not being slow-minded like Donald Trump MAGA Americans? That I use a computer keyboard and not an Apple iPhone with a tiny screen? 
+
+> I don't know if you need help or are an AI bot
+
+Oh, you flunk the Turing Test, you under The ELIZA effect. A MAGA believer? Gullible American?
