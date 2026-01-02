@@ -26,7 +26,7 @@ You don't want "freedom". You want hive mind slavery to Musk and "free masons" w
 
 # [Give a Fuck](https://www.youtube.com/watch?v=eZyuerioHtM)
 
-You give a fuck about following South African immigrant Elon Musk StarLink signals who is telling you to speak in Twitter-length tiny-short terse extremely banal message of Twitter.
+You give a fuck about following South African immigrant Elon Musk StarLink signals who is telling you to message on social servers in Twitter-length tiny-short terse extremely banal message of Twitter.
 
 Fucking Reddit has a long form message legacy going back over TWENTY YEARS. This isn't the land of your tiny-shirt messaging that banalizes everything into dumb jokes and memes. Wake the fuck up, people!
 
