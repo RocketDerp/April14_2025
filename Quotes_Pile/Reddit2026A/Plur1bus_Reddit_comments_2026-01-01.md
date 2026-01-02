@@ -781,3 +781,7 @@ Reference: September 9, 2014 - Johns Hopkins University information expert is au
 * "At the NATO summit in Wales last week, General Philip Breedlove, the military alliance’s top commander, made a bold declaration. Russia, he said, is waging “the most amazing information warfare blitzkrieg we have ever seen in the history of information warfare.” It was something of an underestimation. The new Russia doesn’t just deal in the petty disinformation, forgeries, lies, leaks, and cyber-sabotage usually associated with information warfare. It reinvents reality, creating mass hallucinations" - https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
 
 A video is on my REDDIT PROFILE from Peter Pomerantsev, which you say a Johns Hopkins University expert is "insane" on my profile. You can't be specific what exactly is non-factual and untrue! You just toss around words like an ignorant person who can't quote and be precise! You are anti-Woke, not Woke to information warfare.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q1oqk3/warning_this_pluribus_subreddit_is_full_of/nx7hpq4/
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q1oqk3/warning_this_pluribus_subreddit_is_full_of/nx7hbwt/
