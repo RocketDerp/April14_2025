@@ -724,3 +724,17 @@ I would have done that in the posting. I would have shared if it I wanted to. Bu
 > Whole account is insane
 
 Why don't you actually tell me what is wrong with my profile, why don't you link it?  My profile is wide open to the public Internet, the World Wide Web. Tell me what's "insane', Internet tough guy.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q1oqk3/warning_this_pluribus_subreddit_is_full_of/nx7cj9q/
+
+Oh, a message editor who prizes simple ideas. My reply message:
+
+> Edit: where reddit lives??? There are people on reddit from like everywhere
+
+Yes, did you just learn that fact today?
+
+> Whole account is insane
+
+Go on, give a quote, name exactly what is insane.
+
+So insane you don't know Reddit has people from all over Earth.
