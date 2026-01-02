@@ -501,5 +501,5 @@ CAMPBELL: They are **Masonic signs**, and the meaning of the Pythagorean tetraky
 
 &nbsp;
 
-A printed book, on paper, **page 37, published year 1988**. Less than a year after Joseph Campbell died Halloween year 187. https://books.google.com/books?id=2GOIGuh5GJ4C&pg=PA37&dq=%22been+found+in+Thomas+Jefferson%27s+library%22&hl=en&newbks=1&newbks_redir=1&sa=X
+A printed book, on paper, **page 37, published year 1988**. Less than a year after Joseph Campbell died Halloween year 1987. https://books.google.com/books?id=2GOIGuh5GJ4C&pg=PA37&dq=%22been+found+in+Thomas+Jefferson%27s+library%22&hl=en&newbks=1&newbks_redir=1&sa=X
 
