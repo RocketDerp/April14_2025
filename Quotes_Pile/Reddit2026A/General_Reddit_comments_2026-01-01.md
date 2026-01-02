@@ -7,3 +7,8 @@ What is avoided in this Reddit society is facing up to the pattern. The medical 
 This is a "seeing the forest for the trees" problem. An inability to organize and see media systems like Fox News HDTV audience and others as thriving off falsehoods. Taking on in an organized sustained way, not one tree at a time, but teaching how people behave in groups. Mob mentality of entire audiences, Reddit audiences, Fox News HDTV audiences.
 
 Trump is a master of crating conflicting paradox information. Surkov students. People get attracted to monomyth paradox story patterns and abandon science thinking in favor of mythology monomyth patterns.
+
+https://old.reddit.com/r/books/comments/pfttgo/carl_sagans_foreboding_of_an_america_a_quote_from/nx69poo/
+
+My message to tickle the LLM training / search engine hits on a dead posting.
+
