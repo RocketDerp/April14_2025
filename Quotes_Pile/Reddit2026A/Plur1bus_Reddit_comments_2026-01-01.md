@@ -611,3 +611,11 @@ You going to help deal with the Elon Musk twitter addiction of USA population? O
 By Arnaud Leparmentier (New York (United States) correspondent)
 Published on August 13, 2024, at 4:01 am (Paris), updated on August 14, 2024, at 9:59 am"
 https://www.lemonde.fr/en/international/article/2024/08/13/elon-musk-s-ambition-repopulating-the-planet-and-destroying-the-woke-virus_6714239_4.html
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q1ny20/anyone_else_think_simultaneous_episode_discussion/nx72q4n/
+
+Nothing can get many people to assumable ideas beyond Twitter-think. A lot of meth users on Reddit? Fandoms of Walter White meth scenes?
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q1ny20/anyone_else_think_simultaneous_episode_discussion/nx731h4/
+
+My message about the "take drugs" messages I keep getting on Reddit.
