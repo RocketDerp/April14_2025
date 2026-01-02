@@ -804,3 +804,6 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1q1qknn/is_carol_at_rock_botto
 
 Substance abuse is a core topic to every series. Better Call Saul and the magical Tequila bottle they manipulate others with.
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q1qknn/is_carol_at_rock_bottom/nx7mqb9/
+
+More Vince Gilligan drug use themes. Forgot.
