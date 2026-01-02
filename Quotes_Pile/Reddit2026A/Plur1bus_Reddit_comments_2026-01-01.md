@@ -476,3 +476,30 @@ Tiny-short Twitter-think USA 2026. Cheap-shots, pot-shots. Don't do your own boo
 That's your logic. Anti-reason thinking, ONE SINGLE mistake of another human being, humans make mistakes. Carol makes plenty of mistakes, but you want to promote messages for [Elon Musk hive mind ("Woke Mind Virus" killer)](https://www.lemonde.fr/en/international/article/2024/08/13/elon-musk-s-ambition-repopulating-the-planet-and-destroying-the-woke-virus_6714239_4.html) of ANY MISTAKE get out the D.O.G.E. chainsaw! Kill the whole nation, we found 3 mistakes1
 
 I will respond a second time or more on your first low-effort sentence. Twitter-length thinking message.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q1jncd/vince_gilligan_is_the_only_person_in_the_world_to/nx69dqz/
+
+<img width="1716" height="1222" alt="image" src="https://github.com/user-attachments/assets/766d4197-1b04-4802-92a7-d88ca5beb3d2" /> My second reply to this message:
+
+Second reply
+
+> If you have evidence that Thomas Jefferson was a Freemason, present it.
+
+
+
+# 83 year old professor, Sarah Lawrence College, retired.
+
+Born in year 1904. Knows a little more about Founding Fathers than your Reddit hive mind "oh one mistake, one strike, you are OUT" Elon Musk logic.
+
+www.GreatSealUSA.com 
+
+# White House staff Bill Moyers, West Texan
+
+BILL MOYERS: Aren't a lot of these Masonic symbols?
+
+CAMPBELL: They are **Masonic signs**, and the meaning of the Pythagorean tetrakys has been known for centuries. The information would have been found in **Thomas Jefferson's library**. These were, after all, learned men. The eighteenth-century Enlightenment was a world of learned gentlemen. We haven't had men of that quality in politics very much. It's an enormous good fortune for our nation that that cluster of gentlemen had the power and were in a position to influence events at that time.
+
+&nbsp;
+
+A printed book, on paper, **page 37, published year 1988**. Less than a year after Joseph Campbell died Halloween year 187. https://books.google.com/books?id=2GOIGuh5GJ4C&pg=PA37&dq=%22been+found+in+Thomas+Jefferson%27s+library%22&hl=en&newbks=1&newbks_redir=1&sa=X
+
