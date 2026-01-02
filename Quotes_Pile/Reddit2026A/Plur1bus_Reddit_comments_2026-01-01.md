@@ -738,3 +738,15 @@ Yes, did you just learn that fact today?
 Go on, give a quote, name exactly what is insane.
 
 So insane you don't know Reddit has people from all over Earth.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q1oqk3/warning_this_pluribus_subreddit_is_full_of/nx7dksg/
+
+my reply:
+
+> Whole account is insane
+
+You can't quote a single thing. But you shade-throw like a MAGA fanatic.
+
+MAGA believers all over the world:. Cults of Ignorance. MAGA has fans down under, Australia https://www.crikey.com.au/2025/02/12/australian-donald-trump-supporters-tariffs-gina-rinehart-anthony-pratt/
+
+What's on my profile, name one thing, you won't.
