@@ -751,3 +751,8 @@ https://old.reddit.com/r/Damnthatsinteresting/comments/1py8w0n/marie_wilcox_real
 
 Predatory Levant avoidance of "1 John 4:20" teachings.     
 https://old.reddit.com/r/Snorkblot/comments/1q16thy/personally_ive_never_seen_the_attraction_but_to/
+
+&nbsp;
+
+James Joyce Finnegans Wake, Language Fun!    
+https://old.reddit.com/r/interestingasfuck/comments/1q20u1l/guy_teaches_how_to_read_korean_alphabets_with_a/
