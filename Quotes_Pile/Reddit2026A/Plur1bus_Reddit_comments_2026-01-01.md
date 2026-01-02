@@ -682,3 +682,13 @@ Never specific. 4-word magic messages like Twitter Elon Musk fandom of tiny-shor
 
 
 Can you be specific, or is 4 words your only ability? non-specific no-identity person who says others are insane while you live in USA MAGA land under RFK Jr and Donald Trump at age 79.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q1oqk3/warning_this_pluribus_subreddit_is_full_of/nx78li7/
+
+Attitudes of "Just ignore problems' MAGA USA 2025. Just ignore the Fox News media problems, the Elon Musk Twitter media problems, the Reddit people who constantly push drugs. My reply message:
+
+> Also can't you disable dms??
+
+Wow, the people here who want to live in denial, who say "stick your head in the sand, ignore what is going on with society". The hive mind conformity.
+
+The people who are pushing drugs are a threat to society. You have no concern for this being a drug den of addicts who push drugs day after day because a Walter White is so cool of a bad guy.
