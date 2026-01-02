@@ -438,3 +438,7 @@ A decade before Carl Sagan:
 
 "Disinformation does not mean false information. It means misleading information -- misplace, irrelevant, fragmented or superficial information -- **information that creates the illusion of knowing something** but which in fact leads one away from knowing", "Ignorance is always correctable. But what shall we do if we take ignorance to be knowledge?”
 ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q1j6yn/gay_women_exists_this_guy/nx5zsb3/
+
+Hate-women MAGA USA messaging values. Lead by Epstein "list" fandoms who worship the sex lives and dirty details of private jet white men.
