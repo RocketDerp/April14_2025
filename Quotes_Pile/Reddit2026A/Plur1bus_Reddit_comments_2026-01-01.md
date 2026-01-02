@@ -442,3 +442,17 @@ A decade before Carl Sagan:
 https://old.reddit.com/r/Pluribus_TVshow/comments/1q1j6yn/gay_women_exists_this_guy/nx5zsb3/
 
 Hate-women MAGA USA messaging values. Lead by Epstein "list" fandoms who worship the sex lives and dirty details of private jet white men.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q1jncd/vince_gilligan_is_the_only_person_in_the_world_to/nx62zgw/
+
+Instead of discussing the topic, messages to self-deport from Reddit. People who want to do EVERYTHING POSSIBLE to avoid the title of the show being discussed seriously. My reply message (which they downvoted in 3 seconds flat):
+
+> If you're not going to explain what you mean, what's the point of this post?
+
+What's the point of your ignorance and asking this question in such a odd way?
+
+Do you even know who George Washington is? Because most people here seem to have the education level of ELI3.
+
+Have you ever studied Free Masons at all? Or are you here just to run-off people who understand what Vince Gilligan is doing about the cesspool here?
+
+You a Jesus believer here to drive off Free Masons discussions of the show ?
