@@ -17,3 +17,7 @@ https://old.reddit.com/r/PeterExplainsTheJoke/comments/1q1w9fr/help_me_petah/nx8
 Elon Musk is following the October 7, 1996 onward Rupert Murdoch lead. By creating small mindset patterns that shrink the world away from the over 8 billion minds. By focusing on Elon Musk South Africa white supremacy values, Rupert Murdoch *wealth televangelism, praise the rich* - a combined "Stand Up For the BIG GUY" programming... it makes people seem smarter. It's a small mindset. ... ... ...     
 
 “How is it that hardly any major religion has looked at science and concluded, “This is better than we thought! The Universe is much bigger than our prophets said, grander, more subtle, more elegant?” Instead they say, “No, no, no! **My god is a little god**, and I want him to stay that way.” A religion, old or new, that stressed the magnificence of the Universe as revealed by modern science might be able to draw forth reserves of reverence and awe hardly tapped by the conventional faiths.” ― Carl Sagan, [Pale Blue Dot: A Vision of the Human Future in Space. Published November 8, 1994. Page 50.](https://books.google.com/books?id=rTCr0H6sRSoC&pg=PA50&dq=%22that+hardly+any+major+religion+has+looked+at+science+and+concluded%22+inauthor:sagan&hl=en&newbks=1&newbks_redir=1&sa=X)
+
+https://old.reddit.com/r/CringeTikToks/comments/1q270uw/israeli_billionaire_shlomo_kramer_its_time_to/nxaw1p5/
+
+A sort-of citation. Far better than most audience claims on Reddit.
