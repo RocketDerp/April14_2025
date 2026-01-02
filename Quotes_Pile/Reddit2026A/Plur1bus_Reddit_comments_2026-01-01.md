@@ -934,3 +934,11 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1q2cwfa/i_genuinely_feel_empty
 Are the comments saying it is not real, real? Or is there is a simulation of conversations going on. Anti-reality back and forth.
 
 https://old.reddit.com/r/Pluribus_TVshow/comments/1q2cwfa/i_genuinely_feel_empty_inside_now_that_its_over/nxc4b63/
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q2cwfa/i_genuinely_feel_empty_inside_now_that_its_over/nxc5940/
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q2cwfa/i_genuinely_feel_empty_inside_now_that_its_over/nxc4yp7/
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q2cwfa/i_genuinely_feel_empty_inside_now_that_its_over/nxc5he8/
+
+-2 downvotes in 3 minutes on comment.
