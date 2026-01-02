@@ -750,3 +750,20 @@ You can't quote a single thing. But you shade-throw like a MAGA fanatic.
 MAGA believers all over the world:. Cults of Ignorance. MAGA has fans down under, Australia https://www.crikey.com.au/2025/02/12/australian-donald-trump-supporters-tariffs-gina-rinehart-anthony-pratt/
 
 What's on my profile, name one thing, you won't.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q1oqk3/warning_this_pluribus_subreddit_is_full_of/nx7br8a/
+
+> I'm not maga??
+
+Denial isn't just a river in Egypt. You have all the same denial behaviors. 
+
+> I literally can not do anything to change the situation the United States is in
+
+yes, you can. You can use Reddit to educate and teach instead of calling people "Insane" that you don't grasp or comprehend out of your celebration of ignorance behavior.
+
+Winy can't you post this YouTube video and educate MAGA people who believe Jesus is magic, and Trump is Jesus? What's preventing you?
+
+
+https://www.youtube.com/watch?v=09maaUaRT4M&t=744s
+
+# "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL"
