@@ -908,3 +908,15 @@ One huge pile of stories, starting with the one that truly extends The Bible / Q
 
 Happy New Year 2026!      
 Saturday July 4, 2026 [in the park](https://www.youtube.com/watch?v=kqcwKnjMffw) *coming soon*!
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q1smcb/zosia_is_a_doppelganger_but_not/nx8239z/
+
+The anti-book, anti-reading, anti-understanding, anti-comprehension social media cesspool audience. What kind of reply message is this? it's worse than ZERO reply. It serves only to alienate people, use the Reddit hive mind of "Celebration of Ignorance" values that Carl Sagan described in his year 1995 book... celebrating that people can not understand any ideas off a 1 page post. The whole "there is a fly in my soup" mentality of any flaw in any way, a person gets hate comments like this Reddit one. It is a hive mind of belittling those who think outside the box, think outside the Reddit hive mind.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q1smcb/zosia_is_a_doppelganger_but_not/nx86mo2/
+
+It's been 10 hours and nobody answers specific questions. Fact-checking / understanding peer to peer. It's just Reddit hive mind domination against "The Little Guy" who is thinking outside the box.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q1smcb/zosia_is_a_doppelganger_but_not/nxbcjwa/
+
+My message. Nothing the media ecology focus of the posting.
