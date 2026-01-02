@@ -456,3 +456,11 @@ Do you even know who George Washington is? Because most people here seem to have
 Have you ever studied Free Masons at all? Or are you here just to run-off people who understand what Vince Gilligan is doing about the cesspool here?
 
 You a Jesus believer here to drive off Free Masons discussions of the show ?
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q1jncd/vince_gilligan_is_the_only_person_in_the_world_to/nx63jld/
+
+So many "alternate medication" sellers on Reddit. www.LazyWake.com - my reply message:
+
+> Take your meds
+
+What medication is that? Are you a drug dealer, drug pusher like so many meth sellers of Walter White fandom are here on Reddit? You pushing meth on me? Or are you a dope user of some other drug you are pushing and trying to sell to me?
