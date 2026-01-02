@@ -924,3 +924,7 @@ My message. Nothing the media ecology focus of the posting.
 https://old.reddit.com/r/Pluribus_TVshow/comments/1q29hbn/hive_rules_explained/nxbfty8/
 
 my comment. Funeral Wake / Finnegans Wake concerns.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q1g5kk/the_visual_rhetoric_of_pluribus_a_chromatic/nx6u3s2/
+
+The MAGA USA 2026 culture: dog-whistle politics that a "non-person", undesirable human, is in the room. No evidence, no details, just saying "outsider" in MAGA anti-diversity coded values.
