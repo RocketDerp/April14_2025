@@ -29,8 +29,11 @@ It's all MAGA values all the time now. People hand-wave "both sides", but do not
 
 Prizing deport as punishment is Putinsim since year 2013. "a child is compelled to give up its childhood and become an adult—to die, you might say, to its infantile personality and psyche and come back as a responsible adult. This is a fundamental psychological transformation that everyone has to undergo. We are in childhood in a condition of dependency under someone’s protection and supervision for some fourteen to twenty-one years—and if you’re going on for your Ph. D., this may continue to perhaps thirty-five. You are in no way a self-responsible, free agent, but an obedient dependent, expecting and receiving punishments and rewards. To evolve out of this position of psychological immaturity to the courage of self-responsibility and assurance requires a death and a resurrection." - 1988, Power of Myth
 
-https://old.reddit.com/r/clevercomebacks/comments/1q1zih8/conservatives_finding_out_love_exists/
+https://old.reddit.com/r/clevercomebacks/comments/1q1zih8/conservatives_finding_out_love_exists/nxaftyr/
 
 This isn't just *any* simulation here. Twitter messages are programming the Reddit audience to prize hate. That's hard-core MAGA year 2013 programming for the Internet Research Agency that keeps echoing / repeating / retweeting over and over in loops! People are behaving just like MAGA in January 2026, programmed to prize hate and find joy in the suffering of other people. This is hard-core mind-fuck programming, the deepest year renewal symbolism to *hate harder* USA.
 
 Machine message programming of audiences on Reddit touch devices. That's the ARG here, hate humans, love Twitter power to express hate at high speed instant light-speeds. OPERA_A https://www.youtube.com/watch?v=zuuObGsB0No 91,862,547 views August 29, 2013
+
+Putin has EVERYONE, ALL 100% of We The People, in these hate vs. hate, hate for hate, feedback loops.
+
