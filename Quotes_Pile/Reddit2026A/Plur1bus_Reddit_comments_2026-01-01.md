@@ -807,3 +807,7 @@ Substance abuse is a core topic to every series. Better Call Saul and the magica
 https://old.reddit.com/r/Pluribus_TVshow/comments/1q1qknn/is_carol_at_rock_bottom/nx7mqb9/
 
 More Vince Gilligan drug use themes. Forgot.
+
+https://old.reddit.com/r/okbuddypluribus/comments/1q1rbj3/is_carol_at_rock_bottom/nx7ohuu/
+
+My message. Using comedy "OK buddy, ha ha ha ha" like Trump uses SNL "Weekend Update" real news (and all real news is "Fake News") to cover drug worship, Walter White drug lord fandom?
