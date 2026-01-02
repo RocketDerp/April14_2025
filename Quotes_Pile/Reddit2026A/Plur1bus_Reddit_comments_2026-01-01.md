@@ -623,3 +623,15 @@ My message about the "take drugs" messages I keep getting on Reddit.
 https://old.reddit.com/r/Pluribus_TVshow/comments/1q1oqk3/warning_this_pluribus_subreddit_is_full_of/nx75cdw/
 
 My message on my posting. So many MAGA USA Trump fanatics in deep south / New Mexico South of USA MAGA land, drug users. Texas drug users next door to New Mexico. it is out of control on Reddit! Anything for profit and money, that's the USA 2026 - if it makes money, high-profit like Walter White. What a fandom! RFK Jr fanatics!
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q1oqk3/warning_this_pluribus_subreddit_is_full_of/nx76biy/
+
+My reply message:
+
+> There is something very, very wrong with this subreddit. Maybe it should go away.
+
+Very sick mindsets. Mass psychosis, group think psychosis.  The "hive mind" really must be breaking MAGA hive minds USA 2026 or something.
+
+https://www.youtube.com/watch?v=09maaUaRT4M&t=744s
+
+Please watch: "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL"
