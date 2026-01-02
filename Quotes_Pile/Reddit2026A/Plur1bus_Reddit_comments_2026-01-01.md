@@ -635,3 +635,11 @@ Very sick mindsets. Mass psychosis, group think psychosis.  The "hive mind" real
 https://www.youtube.com/watch?v=09maaUaRT4M&t=744s
 
 Please watch: "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL"
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q1oqk3/warning_this_pluribus_subreddit_is_full_of/nx76voj/
+
+my reply message:
+
+>  What?? Id love to see any evidence of this
+
+I will get banned from Reddit if I link another Reddit user's messages. Look at my profile. It's out of control the drug dealers who keep pushing drugs. I'm documenting it off-Reddit on Github.
