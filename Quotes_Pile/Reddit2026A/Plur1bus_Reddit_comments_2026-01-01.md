@@ -619,3 +619,7 @@ Nothing can get many people to assumable ideas beyond Twitter-think. A lot of me
 https://old.reddit.com/r/Pluribus_TVshow/comments/1q1ny20/anyone_else_think_simultaneous_episode_discussion/nx731h4/
 
 My message about the "take drugs" messages I keep getting on Reddit.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q1oqk3/warning_this_pluribus_subreddit_is_full_of/nx75cdw/
+
+My message on my posting. So many MAGA USA Trump fanatics in deep south / New Mexico South of USA MAGA land, drug users. Texas drug users next door to New Mexico. it is out of control on Reddit! Anything for profit and money, that's the USA 2026 - if it makes money, high-profit like Walter White. What a fandom! RFK Jr fanatics!
