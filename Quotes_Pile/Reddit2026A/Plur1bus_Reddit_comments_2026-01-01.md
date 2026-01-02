@@ -702,3 +702,9 @@ Ignore moral society problems. My reply message:
 No. I don't think Internet drug dealers hanging out in a drug den to push meth and other drugs is cool. You one of those who think a President who has sex with under-age girls should not be a topic for law enforcement? You only care about your own self and not predatory profit seeking people who promote drugs? Walter White people who want fat stacks of cash by messaging that drugs fix society problems of Fox News HDTV, Elon Musk Twitter, and Reddit drug pushing meth fanatics?
 
 Brainrot moral rot nation USA MAGA 2026. People who think morals don't matter. As long as there is Walter White barrels of money to be made!
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q1oqk3/warning_this_pluribus_subreddit_is_full_of/nx7bb3u/
+
+Anti-morality fandom. Fanatics of Saul Goodman fiction. Normalize it, it's all normal messages on Reddit. Epstein normal. Walter White drug profits, normal. My reply to this:
+
+Oh, ok, you aren't a 15 year old girl who is being manipulated by old white men like Putin and Epstein, so not your concern. USA 2026 MAGA Reddit values. Very popular attitude, as long as there is Walter White barrels of cash money profits! MAGAland USA nation. Fox News nation media values.
