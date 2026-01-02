@@ -849,3 +849,11 @@ Vince Gilligan has audiences in low expectations for emerging seasons of hyper r
 https://old.reddit.com/r/Pluribus_TVshow/comments/1q1yu6z/is_anyone_hoping_the_next_season_they_were_be/nx9pit5/
 
 My message.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q1yu6z/is_anyone_hoping_the_next_season_they_were_be/nx94myp/
+
+The Season One show is crafted for book-reading, rewatching, the kind of book you re-read every year that some people do. Half in the Bag, Red Letter Media, expressed they saw the rich content in it.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q1yu6z/is_anyone_hoping_the_next_season_they_were_be/nx93ped/
+
+A tight season of 9 episodes people think has "filler". I consider this to be a core thing many billionaires are hoping to do for audiences. Create a profile what sexual desires you want of characters, what egoism considers boring, feed an entire series into artificial intelligence systems (that billionaires have invested in like crazy for years now, huge investment of wealth and power)... people who's ego desires are Carol to be taller or look 4 years younger, etc. Automate for meme audiences: "Topher Grace is famous for creating fan edits, most notably a condensed version of the Star Wars prequel trilogy (often called "Star Wars: Episode I-III in 85 Minutes" or similar) and later re-editing The Hobbit trilogy into a single two-hour film"
