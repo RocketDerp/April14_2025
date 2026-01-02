@@ -883,3 +883,28 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1q22ezf/what_are_the_ruled_the
 My reply in next link:
 
 https://old.reddit.com/r/Pluribus_TVshow/comments/1q22ezf/what_are_the_ruled_the_plurbs_follow/nxa6uwm/
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q22ezf/what_are_the_ruled_the_plurbs_follow/nxanbrb/
+
+My reply comment:
+
+>  Love the "one story fits all" theme.
+
+One huge pile of stories, starting with the one that truly extends The Bible / Quran story beyond year 635:
+
+* "The big moment in the medieval myth is the awakening of the heart to compassion, the transformation of passion into compassion. That is the whole problem of the Grail stories, compassion for the wounded king. And out of that you also get the notion that Abelard offered as an explanation of the crucifixion: that the Son of God came down into this world to be crucified to awaken our hearts to compassion, and thus to turn our minds from the gross concerns of raw life in the world to the specifically human values of self-giving in shared suffering. In that sense the wounded king, the maimed king of the Grail legend, is a counterpart of the Christ. He is there to evoke compassion and thus bring a dead wasteland to life. There is a mystical notion there of the spiritual function of suffering in this world. The one who suffers is, as it were, the Christ, come before us to evoke the one thing that turns the human beast of prey into a valid human being. That one thing is compassion. This is the theme that **James Joyce takes over and develops** in Ulysses — the awakening " - [The Power of Myth boo, page 144](https://books.google.com/books?id=2GOIGuh5GJ4C&pg=PA144&dq=%22That+one+thing+is+compassion.+This+is+the+theme+that+James+Joyce+takes+over%22&hl=en&newbks=1&newbks_redir=1&sa=X)
+
+&nbsp;
+
+      GOTO James Joyce! 
+      Minute 22 of Pluribus Episode One     
+      The Zero Hour "00:00:00:00" in Pluribus TV show
+
+&nbsp;
+
+> Cool, a Joe Campbell evangelist. 
+
+Great Seal of the Untied States Latin Free Masons Library of Alexandria / Founding Fathers USA evangelist. The Latin word "Pluribus" is covered in the same 1988 nonfiction book.
+
+Happy New Year 2026!      
+Saturday July 4, 2026 [in the park](https://www.youtube.com/watch?v=kqcwKnjMffw) *coming soon*!
