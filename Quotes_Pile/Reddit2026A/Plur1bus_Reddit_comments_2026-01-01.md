@@ -904,7 +904,7 @@ One huge pile of stories, starting with the one that truly extends The Bible / Q
 
 > Cool, a Joe Campbell evangelist. 
 
-Great Seal of the Untied States Latin Free Masons Library of Alexandria / Founding Fathers USA evangelist. The Latin word "Pluribus" is covered in the same 1988 nonfiction book.
+*Great Seal of the Untied States of America*... Latin language... Free Masons... Library of Alexandria sea port / Founding Fathers USA evangelist. The Latin word "Pluribus" is covered in the same 1988 nonfiction book.
 
 Happy New Year 2026!      
 Saturday July 4, 2026 [in the park](https://www.youtube.com/watch?v=kqcwKnjMffw) *coming soon*!
