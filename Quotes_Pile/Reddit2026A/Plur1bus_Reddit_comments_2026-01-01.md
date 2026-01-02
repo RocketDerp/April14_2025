@@ -791,3 +791,8 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1q1oqk3/warning_this_pluribus_
 https://old.reddit.com/r/Pluribus_TVshow/comments/1q1oqk3/warning_this_pluribus_subreddit_is_full_of/nx7gtu1/
 
 The proud Celebration of Ignorance, anti-reading, that Carl Sagan described in his year 1995 book.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q1oqk3/warning_this_pluribus_subreddit_is_full_of/nx7is0m/
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q1oqk3/warning_this_pluribus_subreddit_is_full_of/nx7io6v/
+
