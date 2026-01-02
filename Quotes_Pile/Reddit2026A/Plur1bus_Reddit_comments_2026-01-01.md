@@ -692,3 +692,13 @@ Attitudes of "Just ignore problems' MAGA USA 2025. Just ignore the Fox News medi
 Wow, the people here who want to live in denial, who say "stick your head in the sand, ignore what is going on with society". The hive mind conformity.
 
 The people who are pushing drugs are a threat to society. You have no concern for this being a drug den of addicts who push drugs day after day because a Walter White is so cool of a bad guy.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q1oqk3/warning_this_pluribus_subreddit_is_full_of/nx7arr8/
+
+Ignore moral society problems. My reply message:
+
+> It seems you are upset about being harassed
+
+No. I don't think Internet drug dealers hanging out in a drug den to push meth and other drugs is cool. You one of those who think a President who has sex with under-age girls should not be a topic for law enforcement? You only care about your own self and not predatory profit seeking people who promote drugs? Walter White people who want fat stacks of cash by messaging that drugs fix society problems of Fox News HDTV, Elon Musk Twitter, and Reddit drug pushing meth fanatics?
+
+Brainrot moral rot nation USA MAGA 2026. People who think morals don't matter. As long as there is Walter White barrels of money to be made!
