@@ -823,3 +823,7 @@ What does this mean? you think you can read my private messages? you one of the 
 https://old.reddit.com/r/Pluribus_TVshow/comments/1q1oqk3/warning_this_pluribus_subreddit_is_full_of/nx7tdmi/
 
 "Use your words", don't provide professional words, don't cite nonfiction books, do the Reddit thing of low-effort crap commenting words. Addict to trash media. Real books, no wanted, only "your words" shit.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q17gy5/manousos_was_infected_and_came_back/nx94ukx/
+
+Donald Trump leads a nation in year 2026 with egoism. Egomania USA. And so many in Reddit think every message is an ego contest. World peace and unity is mocked away with banal "you so dumb" messages. Lead by Truth Social Trump and Twitter Musk... Rupert Murdoch too. Reddit is a hive mind of following Trump now. Neil Postman's Amusing Ourselves To Death.
