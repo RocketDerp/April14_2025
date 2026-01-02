@@ -586,6 +586,8 @@ Oh, a Jesus freak of MAGA USA 2026. A Trump believer. A gullible American who th
 October 19, 2024     
 https://www.axios.com/2024/10/19/musk-ackman-election-misinformation
 
-So many Jesus Freaks MAGA voice hears who can't learn or grasp Bible Verse "1 John 4:20".
+So many Jesus Freaks MAGA voice hears who can't learn or grasp Bible Verse "1 John 4:20". Ignorant, anti-education people who think Trump's voice is their Jesus. Ignorant of "1 John 4:20" comprehension. Anti-learning.  This is the audience of MAGA United States of America hive mind: "current U.S. Secretary of Education is Linda E. McMahon, a business executive best known for co-founding and leading World Wrestling Entertainment (WWE), which falls under the entertainment/media umbrella, where she served as CEO for decades"
 
-Breaking Bad fandom that can't tell fiction from nonfiction.
+
+Breaking Bad fandom that can't tell fiction from nonfiction. Hearing voices from outer-space in their imagination and think it is somebody's dead mother. Fox News HDTV audience of USA 2026.
+
