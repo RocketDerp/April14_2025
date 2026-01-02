@@ -575,3 +575,17 @@ So many meth dealers. My reply on New Years Day holiday:
 
 3. You a junkie to "blue meth" and pushing drugs on Americans?
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q1jncd/vince_gilligan_is_the_only_person_in_the_world_to/nx6pkok/
+
+Reddit meth users of Breaking Bad Walter White fandom? my reply:   
+
+> I'm a medium and talking to your mom on the other side. She says to take your meds.
+
+Oh, a Jesus freak of MAGA USA 2026. A Trump believer. A gullible American who thinks Trump is Jesus. That's why you can't stand Free Masons title of the "PLURIBUS" show and Vince Gilligan. 
+
+October 19, 2024     
+https://www.axios.com/2024/10/19/musk-ackman-election-misinformation
+
+So many Jesus Freaks MAGA voice hears who can't learn or grasp Bible Verse "1 John 4:20".
+
+Breaking Bad fandom that can't tell fiction from nonfiction.
