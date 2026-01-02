@@ -811,3 +811,11 @@ More Vince Gilligan drug use themes. Forgot.
 https://old.reddit.com/r/okbuddypluribus/comments/1q1rbj3/is_carol_at_rock_bottom/nx7ohuu/
 
 My message. Using comedy "OK buddy, ha ha ha ha" like Trump uses SNL "Weekend Update" real news (and all real news is "Fake News") to cover drug worship, Walter White drug lord fandom?
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q1oqk3/warning_this_pluribus_subreddit_is_full_of/nx7rzfk/
+
+My reply message:
+
+> The private messages you're receiving through your tinfoil hat?
+
+What does this mean? you think you can read my private messages? you one of the druggies here who thinks Walter White is super-hero of meth? Or are you just ignorant and think you can magically read my private messages?  Your magical thinking? do you hear "Jesus' in your head when you read the Quran or Bible? Like you can magically read Reddit messages?
