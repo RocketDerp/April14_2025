@@ -673,3 +673,12 @@ oh, well, that's evidence that of what? Not being slow-minded like Donald Trump 
 > I don't know if you need help or are an AI bot
 
 Oh, you flunk the Turing Test, you under The ELIZA effect. A MAGA believer? Gullible American?
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q1oqk3/warning_this_pluribus_subreddit_is_full_of/nx77p96/
+
+Never specific. 4-word magic messages like Twitter Elon Musk fandom of tiny-short messages. My reply:
+
+> Whole account is insane
+
+
+Can you be specific, or is 4 words your only ability? non-specific no-identity person who says others are insane while you live in USA MAGA land under RFK Jr and Donald Trump at age 79.
