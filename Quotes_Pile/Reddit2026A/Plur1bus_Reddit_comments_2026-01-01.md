@@ -864,4 +864,17 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1q1yu6z/is_anyone_hoping_the_n
 
 The billionaires are taking this Reddit wish-list and training the artificial intelligence generative systems how to rewrite it for each person in the audience. Nobody ever has to listen to another person directly, run it through the rewrite AI engines and have everything TLDR ELI2 as audiences desire. Second screen, third screen, array of screens. OPERA_A Doctor it up bartender, cocktail me! https://www.youtube.com/watch?v=sD9igYnVzXI 7,302,739 views March 20, 2020 Pink-Floyd API: Change Carol to a Japanese woman, spectrum of billionaire services of media. 
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q22ezf/what_are_the_ruled_the_plurbs_follow/nx9xfgj/
+
+My reply message:
+
+> The hive exists to spread itself. That's it's only purpose.
+
+From the book that explains the Latin word "PLURIBUS", published in year 1988.
+
+White House former employee, director of communications    
+BILL MOYERS: "And yet we all have lived a life that had a purpose. Do you believe that?" ... CAMPBELL: "I don’t believe life has a **purpose. Life is a lot of protoplasm with an urge to reproduce and continue in being.** "       
+["The Power of Myth", year 1988 book, Page 284](https://books.google.com/books?id=2GOIGuh5GJ4C&pg=PA284&dq=%22Life+is+a+lot+of+protoplasm+with+an+urge+to+reproduce+and+continue+in+being.%22&hl=en&newbks=1&newbks_redir=1&sa=X)
+
+Again, this is the book that teaches the meaning of the Latin word "PLURIBUS" in year 1988. And the meaning of "Plurabelle" in same 1988 book. I  consider Jean Erdman to be one of the greatest on the meaning of "Plurabelle".
 
