@@ -942,3 +942,9 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1q2cwfa/i_genuinely_feel_empty
 https://old.reddit.com/r/Pluribus_TVshow/comments/1q2cwfa/i_genuinely_feel_empty_inside_now_that_its_over/nxc5he8/
 
 -2 downvotes in 3 minutes on comment.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q2cwfa/i_genuinely_feel_empty_inside_now_that_its_over/nxc78nr/
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q2cwfa/i_genuinely_feel_empty_inside_now_that_its_over/nxc7s2m/
+
+These are *gang signs* of Reddit turf wars over mocking and insulting people. A domination fandom like Fox News HDTV audience does over nonfiction shows and learning. These Reddit hive minded people do not want free and independent thinking outside the conditioned hive mind to not be serious or emotional about patriotism ideals of the USA.
