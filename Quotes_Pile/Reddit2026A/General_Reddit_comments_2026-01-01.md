@@ -107,3 +107,5 @@ https://old.reddit.com/r/news/comments/1q2qjus/trump_says_venezuelas_maduro_has_
 Very popular Reddit comment message. FIVE WORDS long. Insane mob mentality of USA nation in self-harm and mass dehumanization year after year since June 16, 2015. What kind of "insane" is this? Media-driven entertainment thrills. https://www.youtube.com/watch?v=09maaUaRT4M "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" - but people just crave low-effort commenting on how it is insane, like a weather report of the day. Actually addressing through learning and teaching and education is avoided. Nonfiction is avoided by meme addict society that prizes 5-word messages.
 
 https://old.reddit.com/r/worldnews/comments/1q2xqht/france_condemns_us_operation_to_capture_maduro/nxgfwuq/
+
+https://old.reddit.com/r/worldnews/comments/1q2xqht/france_condemns_us_operation_to_capture_maduro/nxgzn5v/
