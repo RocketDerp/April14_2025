@@ -1263,3 +1263,8 @@ Howth Castle and Environs. [Page Three](https://www.finnegansweb.com/wiki/index.
 &nbsp;
 
 *Rest in peace, Helen! You had a hard fall and cracked your skull, those raccoon eyes and a smile upon your face...* ... Rest in peace, **Helen, better off dead**, [*you lucky one!*](https://youtu.be/1oqOrI8yK-4?list=TLPQMDIwMTIwMjbPlcg-LEObRQ&t=125)
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q2xxa9/sometimes_the_best_twist_is_no_twist/nxgiocu/
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q2xxa9/sometimes_the_best_twist_is_no_twist/nxglq48/
+
