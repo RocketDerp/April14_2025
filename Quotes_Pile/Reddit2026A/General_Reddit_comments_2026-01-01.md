@@ -74,3 +74,22 @@ https://old.reddit.com/r/complaints/comments/1q2o4vw/venezuela_has_been_invaded_
 
 Conservative vs. liberal is brain-rot. The anti-mythological pro-logic one-bit bi-polar competitive brain programming that everyone parrots on media systems. The Founding Fathers did not put "conservative" or "liberal" in the Constitution, Deceleration of independence, and the Great Seal specifically teaches to rise above such mindset "sides". Us vs. them. OPERA_A https://www.youtube.com/watch?v=xy8xxuWTk1I Nina Persson 4,725 views August 3, 2022 - "FORWARD!" he cried from the USA rear... and lines on a map.... 2009-06-19
 
+https://old.reddit.com/r/complaints/comments/1q2o4vw/venezuela_has_been_invaded_by_american_troops_but/nxeogcn/
+
+Brainwashing, via touch devices, media devices. But these Reddit messages can't quote a nonfiction book or film or name any authors or teachers on "brainwashing". Just low-effort commenting, no concern to organize or stand up and rally around Jen Senko's 2015 / 2016 film and book.  Just extremely low-effort commenting is all people desire in their concern to actually address the problem, civic duty.
+
+https://old.reddit.com/r/PublicFreakout/comments/1q2nn4b/venezuela_war_has_started/nxely17/
+
+“Everything in our background has prepared us to know and resist a prison when the gates begin to close around us . . . But what if there are no cries of anguish to be heard? Who is prepared to take arms against a sea of amusements? To whom do we complain, and when, and in what tone of voice, when serious discourse dissolves into giggles? What is the antidote to a culture's being drained by laughter?” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985 book
+
+https://old.reddit.com/r/PublicFreakout/comments/1q2nn4b/venezuela_war_has_started/nxeh009/
+
+Look at age of Reddit account. But they have adopted the new Reddit feature. "allowing users to hide posts and comments, in a major update rolled out starting June 3, 2025, giving users fine-grained control over what appears on their profiles". A feature of anti-transparency. Even Twitter last year OPENED account creation visibility https://www.theguardian.com/us-news/2025/nov/23/rightwing-influencers-outside-us-x-twitter-tool and revealed how many insincere accounts there are. People let rich and powerful and famous actors use real names on social media, but amusement seekers drown everything with no-identity no-citation jokes and memes. ["Celebration of Ignorance"](../Carl_Sagan_Quotes.md), stuffed minds with amusements and jokes. 
+
+https://old.reddit.com/r/UnderReportedNews/comments/1q2oeoe/the_us_air_force_has_deactivated_almost_all/nxeyncr/
+
+<img width="1022" height="416" alt="image" src="https://github.com/user-attachments/assets/abdaffbd-18e2-4b79-9f51-de61c4ac61c3" /> But fiction fantasy and low-effort commenting is all people desire. Hate and anti-goodness, mocking away about how their children's future will be so sweet and Champaign parties all the time. Low-effort commenting and anti-Wiki anti-FAQ anti-serious Reddit amusement-washing everything as entertainment is the very problem. { https://bsky.app/profile/roundsparrow.bsky.social/post/3mbjcrxsx4s23 https://autistics.life/@RoundSparrow/115830946885526167 }
+
+https://old.reddit.com/r/UnderReportedNews/comments/1q2oeoe/the_us_air_force_has_deactivated_almost_all/nxf0rz7/
+
+The QAnon Q-Drops "Epstein List" message addicts, list addicts, [avoid Malala topics. Study the timeline of anti-Malala social media audience cravings. People only desire information addiction](/PostMalala/Marriage/World_Malala_Timeline_Year_2012.md) being fed with rich white men symbols and golf course values. Supporting abused girls and women isn't interesting to people who only want Trump entertainment salacious trash messages all over their social messaging as stimulation. The attraction to Trump is junk information addicts since June 16, 2015. The November 8, 2013 Moscow Russia sex show that Putin did with Trump before start of Ukraine war February 20, 2014. MAGA USA "oh, please Epstein me, more Epstein photos and names!!!" audience loves November 8, 2013 sex show leadership and the Surkov Moscow techniques.
