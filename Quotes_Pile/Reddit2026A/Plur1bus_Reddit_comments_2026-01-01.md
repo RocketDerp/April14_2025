@@ -1037,3 +1037,7 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1q2fox9/spit_creation_date_err
 
 Anti-curiosity, anti-book, anti-learning. “Curiosity and the urge to solve problems are the
 emotional hallmarks of our species” ― Carl Sagan, The Dragons of Eden: Speculations on the Evolution of Human Intelligence. Published April 12, 1977
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q2enla/mahahaha_bravo_vince/nxcibdr/
+
+MAGA USA January 2026 Reddit California. MAGA values of conformity, anti-diversity, anti-immigrants, **MAGA hive mind** enforcers. All over Reddit in 2026 who want to drive away anyone the find standing up to the MAGA system values. The reply comment has zero to do with Pluribus show or Vince Gilligan, just insulting and mocking a human person who created the message. The profile for the user has a mocking message on it: "lol were you bullshitting" - a professional mocker.
