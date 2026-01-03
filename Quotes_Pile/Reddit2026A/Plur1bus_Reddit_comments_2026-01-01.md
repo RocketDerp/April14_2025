@@ -1443,3 +1443,14 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1q32tc1/helen_the_invisible_vi
 My reply message: 
 
 I think people are really not grasping that this show is about a book author and book fandom. A group of people, fanatics of pirate story books. The Breaking Bad fandom, metaphors...
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q2n4jq/does_zosias_you_havent_experienced_it_argument/nxiyrft/
+
+<img width="1458" height="1246" alt="image" src="https://github.com/user-attachments/assets/2d49a32a-372f-4e6f-9bb4-be00ba28502e" /> my reply was unpublished, censored by Reddit, as so often when MAGA hive mind people dehumanize you. Reddit machine love, human person hate. My reply that went unpublished:
+
+> If you could please refrain from posting AI garbage at me and try using your own brain. 
+
+Ahh, the MAGA street gang signs and signals. "free thinker", a non-human non-person. That's what MAGA USA people do in year 2026. "Undesirable" you call me. Organized dehumanize, lover of cloud computing Reddit servers, but hate human people! MAGA USA, Reddit California values.
+
+I do not use A.I. to write my posts. You are in a Reddit hive mind. You fail "the TURING test".
+
