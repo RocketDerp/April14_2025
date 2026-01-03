@@ -121,3 +121,11 @@ Surkov students know: fiction **outsells** nonfiction.
 https://old.reddit.com/r/MurderedByAOC/comments/1q2xae6/truth_nuke/nxgde9e/
 
 A Reddit audience member who eats the Surkovian onions. [Playing President Tony Clifton, acting dumb, acting erratic, acting odd, is exactly how the hive mind of Reddit meme addicts are "owned" by Surkov students. Eating the onions, thinking it is accidental or a mistake for Trump to be outrageous and unusual in his antics.](../Reddit2025A/Surkovian_Onion_Eating.md)
+
+https://old.reddit.com/r/MurderedByWords/comments/1q2wi37/could_this_country_look_anymore_ridiculous/nxglwbj/
+
+Reddit audience, comment section of Reddit social, I consider to be the main source of { amusement-washing, "LOL cow milking", humor-washing, satire-washing, mockery-flocking, addiction Trump as entertainment, entertainment-washing } of the White House, Elon Musk, Trump, Putin. ANYTHING AND EVERYTHING on Reddit to avoid SUSTAINED FOCUS on Jen Senko's nonfiction film and book since year 2015 / 2016. Just mocking away as LOL LOL LOL giggles at Trump all the time since June 16, 2015. Neil Postman's 1985 book "Amusing Ourselves To Death" about a second-term POTUS in year 1985 explains Reddit audience comedy-washing Trump as "Reality TV" entertainment. People glued to their touch pad / touch phones thrilled to mock at antics leaders.
+
+https://old.reddit.com/r/MurderedByWords/comments/1q2wi37/could_this_country_look_anymore_ridiculous/nxgn7rq/
+
+Yep. QAnon "Pizza Gate list", bullshit fiction monomyth "who is Q" been feeding this for so long. Sex Clinton / Epstein. PLEASE MIND THE DATE: January 9, 2024 - that is more than aw FULL YEAR before Trump took office January 20, 2025! https://www.politico.com/news/magazine/2024/01/09/why-maga-is-obsessed-with-jeffrey-epstein-00134394 "Pizzagate, QAnon and the ‘Epstein List’: Why the Far Right Is Obsessed with Sex Trafficking. An expert on conspiracy theories explains why MAGA figures are embracing the latest twist in the Jeffrey Epstein saga." - this bullshit mindset of "oh, Trump MURDERED BY WORDS!" subreddit, eating right out of the hands of Putin and Trump with Surkov student techniques. 
