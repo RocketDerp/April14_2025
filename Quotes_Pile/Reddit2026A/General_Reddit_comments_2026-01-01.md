@@ -93,3 +93,15 @@ https://old.reddit.com/r/UnderReportedNews/comments/1q2oeoe/the_us_air_force_has
 https://old.reddit.com/r/UnderReportedNews/comments/1q2oeoe/the_us_air_force_has_deactivated_almost_all/nxf0rz7/
 
 The QAnon Q-Drops "Epstein List" message addicts, list addicts, [avoid Malala topics. Study the timeline of anti-Malala social media audience cravings. People only desire information addiction](/PostMalala/Marriage/World_Malala_Timeline_Year_2012.md) being fed with rich white men symbols and golf course values. Supporting abused girls and women isn't interesting to people who only want Trump entertainment salacious trash messages all over their social messaging as stimulation. The attraction to Trump is junk information addicts since June 16, 2015. The November 8, 2013 Moscow Russia sex show that Putin did with Trump before start of Ukraine war February 20, 2014. MAGA USA "oh, please Epstein me, more Epstein photos and names!!!" audience loves November 8, 2013 sex show leadership and the Surkov Moscow techniques.
+
+https://old.reddit.com/r/videos/comments/1q2opbb/our_president_will_start_a_war_because_he_has_no/nxejupe/
+
+Sports addicts of Reddit, gaming addicts, games addicts, Formula 1, NFL, all over Reddit, FIFA fandom. People stimulated and attracted to gaming and entertainment (Trump Reality TV "The Apprentice"). Satire-washing, sarcasm-washing, cynical-washing it over and over as amusement and humor. Low-effort anti-learning anti-understanding messaging, popular and top of Reddit comment section.
+
+https://old.reddit.com/r/law/comments/1q2ojxn/cnn_we_have_major_breaking_news_cnn_just_learning/nxejzu7/
+
+Social media users blame media. Media addicts blame media. Where did We The People use social media to rise up? When did people stop praising FIFA sports games, video games, billionaire content? Reddit is constantly full of rich wealth content of world traveling Formula 1 races. When do people stand up on social media and address their addiction to Trump images? When do Reddit audience members face their meme addicts to Trump-speak and Truth Social and Twitter images?
+
+https://old.reddit.com/r/news/comments/1q2qjus/trump_says_venezuelas_maduro_has_been_captured/nxevet4/
+
+Very popular Reddit comment message. FIVE WORDS long. Insane mob mentality of USA nation in self-harm and mass dehumanization year after year since June 16, 2015. What kind of "insane" is this? Media-driven entertainment thrills. https://www.youtube.com/watch?v=09maaUaRT4M "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" - but people just crave low-effort commenting on how it is insane, like a weather report of the day. Actually addressing through learning and teaching and education is avoided. Nonfiction is avoided by meme addict society that prizes 5-word messages.
