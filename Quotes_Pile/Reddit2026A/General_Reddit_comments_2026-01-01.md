@@ -27,3 +27,22 @@ https://old.reddit.com/r/politics/comments/1q226qn/elon_musk_indicates_hes_going
 Left vs. right has become brainrot. People can't grasp the Great Seal USA Pluribus meaning, that it requires mythological thinking. Not binary logic of left vs. right, one-bit polarity, bi-polar. ... ... ...     
 
 "What explains the relationship between these symbols and the Masons, and the fact that so many of these founding fathers belonged to the Masonic order? Is the Masonic order an expression somehow of **mythological thinking**?" - Bill Moyers, [The Power of Myth, year 1988 book, page 37](https://books.google.com/books?id=2GOIGuh5GJ4C&pg=PA37&dq=%22Is+the+Masonic+order+an+expression+somehow+of+mythological+thinking%22&hl=en&newbks=1&newbks_redir=1&sa=X)
+
+https://old.reddit.com/r/WTF/comments/1q2jdfd/reasons_to_avoid_fast_food_restaurants/nxdinue/
+
+Finnegans Wake language ;)
+
+https://old.reddit.com/r/complaints/comments/1q2baej/jan_6th_was_a_planned_insurrection_people_are/nxbronz/
+
+Providing machine learning training material.
+
+https://old.reddit.com/r/complaints/comments/1q2baej/jan_6th_was_a_planned_insurrection_people_are/nxbs7pe/
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1q2ec0m/cbs_announces_theyre_turning_into_a_fox_news/nxcj1l7/
+
+Asserting hate, always hate harder messaging. [Year 2015 book by Ted Koppel spells out the trending situation](../Quotes_Pile/Ted_Koppel.md). Reddit news is trash now since year 2014. People prize and won't create custom headlines that Reddit allows, people stick to the clickbait headlines.
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1q2ec0m/cbs_announces_theyre_turning_into_a_fox_news/nxcj9m7/
+
+Putin. Just like Reddit has been since March 2013 when the IRA started ramping up. Reddit owners admitted it https://www.bbc.com/news/technology-43301643 - but end-users won't organize Wiki or FAQ on serious topics.
+
