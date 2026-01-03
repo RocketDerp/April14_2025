@@ -170,3 +170,9 @@ Jen Senko's 2015 / 2016 film about taking on EVERY abuse by elders in power to h
 https://old.reddit.com/r/UnderReportedNews/comments/1q0e0bi/greg_casar_millions_of_kids_that_lose_their/
 
 children without health care, front page on New Years Eve. People on Reddit will not face that worshiping murder Luigi is not addressing the anti-goodness in society, it is furthering it. Children are being raised to worship Luigi's weapon system, gun worship USA, more of the same gun worship. Instead of social media being a force of nonfiction serious learning and repeating on critical health care and life topics of USA... people make it action gun violence content worship. Serious nonfiction thought gets drowned in junk memes and weapon system worship values. MAGA USA values.
+
+&nbsp;
+
+https://old.reddit.com/r/justgalsbeingchicks/comments/1q2ur40/senator_elissa_slotkin_says_the_real_reason_our/
+
+But people on meme mills like Reddit will get this off the front page of Reddit with kitten photos, cat photos, Formula One race car rich folks! There is no call for weekly "get rid of bad MAGA government" on social media, there is reactions, reacting, amusement, LOL land.
