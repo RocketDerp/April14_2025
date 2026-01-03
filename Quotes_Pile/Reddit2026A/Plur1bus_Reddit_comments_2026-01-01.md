@@ -1043,3 +1043,7 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1q2enla/mahahaha_bravo_vince/n
 <img width="1493" height="733" alt="image" src="https://github.com/user-attachments/assets/72940231-9026-4812-ab5e-8f6d2dcbc1a5" /> This image as a reference to ["Vanilla Sky" seems to be the post concern](https://old.reddit.com/r/Pluribus_TVshow/comments/1q2fjif/pluribus_is_vanilla_sky/).
 
 As for the comment linked: **MAGA USA** January 2026 Reddit California society. MAGA values of conformity, anti-diversity, anti-immigrants, "inside the box" thinking, **MAGA hive mind** enforcers. All over Reddit in 2026 who want to drive away anyone the find standing up to the MAGA system values. The reply comment has zero to do with Pluribus show or Vince Gilligan, just insulting and mocking a human person who created the message. The profile for the user has a mocking message on it: "lol were you bullshitting" - a professional mocker.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q2j4up/temporal_compass_font_of_truth/nxdeykg/
+
+The posting itself has interesting subtitle observations. Finnegans Wake media ecology...
