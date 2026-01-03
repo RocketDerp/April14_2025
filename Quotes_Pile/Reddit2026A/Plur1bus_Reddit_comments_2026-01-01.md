@@ -1049,3 +1049,7 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1q2j4up/temporal_compass_font_
 The posting itself has interesting subtitle observations. Finnegans Wake media ecology...
 
 https://old.reddit.com/r/Pluribus_TVshow/comments/1q2j4up/temporal_compass_font_of_truth/nxdka45/
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q2kci7/carols_sexual_preference/nxdotjt/
+
+My comment.
