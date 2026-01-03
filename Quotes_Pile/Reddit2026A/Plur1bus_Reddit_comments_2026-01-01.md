@@ -1225,3 +1225,7 @@ https://en.wikipedia.org/wiki/Spit_(card_game)
 https://old.reddit.com/r/Pluribus_TVshow/comments/1q2fox9/spit_creation_date_error/nxfvdl4/
 
 <img width="1676" height="1332" alt="image" src="https://github.com/user-attachments/assets/e199a308-91da-4b08-b30c-f39aed18274e" /> People have YEARS until episode 10, and the writers throw in these things for meaning! People watch, rewind rewatch, upload clips to YouTube and Reddit and TikTok. Person on Reddit thinks it is some massive stretch!
+
+https://old.reddit.com/r/TrueLit/comments/10ii4hr/the_official_truelit_finnegans_wake_readalong/j5em6a0/
+
+Capture for record of Reddit comment explains "Pluck an Apple" Carol metaphors. See my new comment: https://old.reddit.com/r/Pluribus13/comments/1q2wwif/plur1bus_hive_mind_children_no_longer_need/nxg7qc9/
