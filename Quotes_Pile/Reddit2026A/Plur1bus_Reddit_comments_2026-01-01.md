@@ -1117,3 +1117,21 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1q2otwh/zosia_is_helens_neighb
 https://old.reddit.com/r/Pluribus_TVshow/comments/1q2otwh/zosia_is_helens_neighbour/nxeor96/
 
 Anti-PLURIBUS Latin founding fathers. These "seek help" messages. People who have their mind blown by creative mythology about a Vince Gilligan end of of the world show where over 800,000 million people die in an hour, and humans become Reddit hive mind like. MAGA hive mind metaphors of USA "PLURIBUS" Founding Fathers year 1776 concepts. A show about USA politics and government ideals.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q2n4jq/does_zosias_you_havent_experienced_it_argument/nxe8qxh/
+
+CONTEXT ASSERTION: Minute 22 Episode One, graduate school Helen about James Joyce's Finnegans Wake book. The show opens with { book store, book tour, book fandom, book publishing }. 
+
+CONTEXT ASSERTION: "Camp Freedom Falls" where smiling people, "Conversion Therapy". Again, book assertion. A specific set of books from the Levant, imported to USA: { Bible, Torah, Qurna, Book of Mormon }. Carol at age 16 was abused by book readers, book fandom.
+
+* "conversion therapy in the United States, including for lesbians, is predominantly rooted in Christian, often evangelical, fundamentalist ideology. Religious leaders and religiously affiliated organizations are the primary providers of these practices." - Google Search Summary 2026-01-03 morning USA
+
+So the metaphor here is addiction and hive mind conformity of book fandoms. That's the opening of the show. Carol being an author introducing / selling a new book to a fandom that she loathes. Minute 22 of Episode One is the "00:00:00:00" countdown where James Joyce's Finnegans Wake book is introduced by Helen as the most important book to measure against for every form of art known to humanity.
+
+People are still not grasping this Pluribus show... getting the USA Government "PLURIBUS" origin, politics metaphors. Minute 37 of Episode Two (which is PAIRED pilots, two episodes released instantly). The only time the word "PLURIBUS" ever appears in the show is on **Air Force One, POTUS Seal**. It is a doctored POTUS Seal image, with the eagle pointing the wrong way (to the right-wing, not left-wing). 
+
+It's like telling someone "You shouldn't knock **Fox News HDTV fandom** until you try it. Sure, you'll lose all trace of your original personality, let everything you once valued in your life wither away, and definitely climate change denial and harm your children, but you'll love it, it's the best feeling in the world."
+
+People are entirely not grasping the metaphor mythology of the free masons origins of "PLRUIBUS" Latin word. It is at Minute 37 of Episode Two, the **POTUS Seal on Air Force One**. It is flying right over the audience / fandom head like Carol's books are at the book store / book tour.
+
+We have YEARS until Episode Ten. And not one person here wants to discuss the free mason "PLURIBUS" seal of the President of the United States of America on Air Force One at **Minute 37 of Episode Two**, the co-pilot opening of Season One!  Where else in the entire show has the word "PLURIBUS" been shown or spoken other than that scene with the eagle point right-wing instead of left-wing (eagle bird wing free masons symbolism).
