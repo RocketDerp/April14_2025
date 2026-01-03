@@ -46,3 +46,6 @@ https://old.reddit.com/r/ProgressiveHQ/comments/1q2ec0m/cbs_announces_theyre_tur
 
 Putin. Just like Reddit has been since March 2013 when the IRA started ramping up. Reddit owners admitted it https://www.bbc.com/news/technology-43301643 - but end-users won't organize Wiki or FAQ on serious topics.
 
+https://old.reddit.com/r/politics/comments/1q2ep93/calls_for_legal_consequences_grow_after_musk_ai/nxckpn2/
+
+Musk / Twitter.
