@@ -160,3 +160,7 @@ https://old.reddit.com/r/worldnews/comments/1q2ztsn/we_are_going_to_run_the_coun
 
 Police / Sting Song Russians, about putting words into POTUS mouth... Cold War... OPERA_A well, here is the song! https://www.youtube.com/watch?v=wHylQRVN2Qs 38,875,896 views April 16, 2010 - Arab Spring 2010, was sharing this music video online to Tunisia and Algeria!
 
+https://old.reddit.com/r/worldnews/comments/1q30kxx/after_venezuela_attack_trump_says_something_must/nxh5cw7/
+
+"JOSEPH CAMPBELL: then we canceled the Declaration of Independence and rejoined the British **conquest of the planet**. And so we are now on one side of the pyramid. We’ve moved from one to two. We are politically, historically, now a member of one side of an argument. We do not represent that principle of the eye up there. And all of our concerns have to do with economics and politics and not with the voice and sound of reason. BILL MOYERS: The voice of reason — is that the philosophical way suggested by these mythological symbols? JOSEPH CAMPBELL: That’s right." - [book The Power Of Myth, year 1988, Page 35](https://books.google.com/books?id=2GOIGuh5GJ4C&pg=PA35&dq=%22And+so+we+are+now+on+one+side+of+the+pyramid.+We%E2%80%99ve+moved+from+one+to+two.%22&hl=en&newbks=1&newbks_redir=1&sa=X) Bill Moyers worked in the White House, Director of Communications for POTUS.
+
