@@ -109,3 +109,7 @@ Very popular Reddit comment message. FIVE WORDS long. Insane mob mentality of US
 https://old.reddit.com/r/worldnews/comments/1q2xqht/france_condemns_us_operation_to_capture_maduro/nxgfwuq/
 
 https://old.reddit.com/r/worldnews/comments/1q2xqht/france_condemns_us_operation_to_capture_maduro/nxgzn5v/
+
+https://old.reddit.com/r/pics/comments/1q2yw51/nicolas_maduro_on_board_the_uss_iwo_jima_via/nxgz5gl/
+
+Self-harm to USA on the world stage and domestic self-harm (Russia domestic self-harm, USA domestic self-harm) is the outcome of the runaway Surkov monomyth meme patterns since March 2013. Nothing can stop it! September 9, 2014 (18 months after it started): https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
