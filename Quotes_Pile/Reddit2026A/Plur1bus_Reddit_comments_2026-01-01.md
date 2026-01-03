@@ -1177,3 +1177,15 @@ We have YEARS until Episode Ten. And not one person here wants to discuss the fr
 TLDR; Read Finnegans Wake, Minute 22 Episode 1 of Pluribus
 
 ELI5: Minute 37 of Episode 2 of Pluribus. The Air Force One eagle image **points right-wing bird wing**, doctored image by the hive mind.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q2n4jq/does_zosias_you_havent_experienced_it_argument/nxeur4e/
+
+Analogy, metaphors, meaning, free mason symbolism, meanings
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q2n4jq/does_zosias_you_havent_experienced_it_argument/nxeylp3/
+
+A resistance (rebels) and The Empire metaphor.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q2n4jq/does_zosias_you_havent_experienced_it_argument/nxeat0i/
+
+Howard Blooms book, in a story about { book author, book tour, book store, book fandom } I've mentioned, but no bites. "Global Brain" book from August 2000. 
