@@ -1397,7 +1397,7 @@ Some books are not about joy. Helen makes that very point about happy / joy (pet
 
 > I did not enjoy this show, could have just been a movie.
 
-They are planning 4 seasons. And no way would I want to watch a 9 hour movie with even high production cost. The lavish quality is already obscene. The Las Vegas Elvis West Gate *singsong* licensing, etc.
+They are planning 4 seasons. And no way would I want to watch a 9 hour movie with even higher production cost. The lavish quality is already obscene. The Las Vegas Elvis West Gate *singsong* licensing, etc.
 
 &nbsp;
 
