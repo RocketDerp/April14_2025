@@ -49,3 +49,28 @@ Putin. Just like Reddit has been since March 2013 when the IRA started ramping u
 https://old.reddit.com/r/politics/comments/1q2ep93/calls_for_legal_consequences_grow_after_musk_ai/nxckpn2/
 
 Musk / Twitter.
+
+https://old.reddit.com/r/pics/comments/1q2oh3q/fullscale_military_operations_appear_to_be/nxehb99/
+
+Social media users never stand up for impeachment in any serious sustained way. [Halting entertainment, which is non-essential, and being serious. Address the fiction addictions](/Grim_Blunt/Stop_All_Entertainment.md) with nonfiction seriousness.
+
+https://old.reddit.com/r/CringeTikToks/comments/1q2oelq/american_bombers_in_venezuela/nxek0uv/
+
+Internet Research Agency of Russia defeated the USA to self-harm and harm others. [Operation Matthew 4:19  has wrecked the world](/Operation_Matthew_4_19_on_monday_2024-03-31.md) and nothing is stopping the runaway monomyth mind patterns.
+
+https://old.reddit.com/r/CringeTikToks/comments/1q2oelq/american_bombers_in_venezuela/nxejqkk/
+
+People block neighbors on Reddit at the drop of a hat. I get blocked for discussing a television show with peers. Downvoting to silence people. Toxic popularity. People can't even name the Internet Research Agency or Cambridge Analytica on Reddit. People can't name Jen Senko or her film since year 2015 / 2016. But every dumb joke and meme people stuff their minds with while consuming Russian messaging.
+
+https://old.reddit.com/r/CringeTikToks/comments/1q2oelq/american_bombers_in_venezuela/nxeogcq/
+
+Note the lack of links, specific names, quotes, book titles, article titles. Just sounds-good claims about serious topic with zero serious effort to address the oceans of bullshit low-effort information addicts. 
+
+https://old.reddit.com/r/complaints/comments/1q2o4vw/venezuela_has_been_invaded_by_american_troops_but/nxeeytx/
+
+The top-voted comment, the most popular message. A laugh-track for Reddit audiences, observe the "LOL" message. Chuckehead mindsets, reset audience brains into meme stupor, amusement-washing serious problems of cults with LOL cult behaviors. Surkov students defeated USA since March 2013 using these techniques.
+
+https://old.reddit.com/r/complaints/comments/1q2o4vw/venezuela_has_been_invaded_by_american_troops_but/nxeip5k/
+
+Conservative vs. liberal is brain-rot. The anti-mythological pro-logic one-bit bi-polar competitive brain programming that everyone parrots on media systems. The Founding Fathers did not put "conservative" or "liberal" in the Constitution, Deceleration of independence, and the Great Seal specifically teaches to rise above such mindset "sides". Us vs. them. OPERA_A https://www.youtube.com/watch?v=xy8xxuWTk1I Nina Persson 4,725 views August 3, 2022 - "FORWARD!" he cried from the USA rear... and lines on a map.... 2009-06-19
+
