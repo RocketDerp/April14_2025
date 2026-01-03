@@ -1412,3 +1412,29 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1q2xxa9/sometimes_the_best_twi
 
 Tiny-short messages, not even Elon Musk Twitter-length. The Breaking Bad fandom seems to have big troubles with a complex show about { book authoring, book publishing, book tours, book releases, book writing, book reading, book analysis, books }. Tiny-short meme messages rule the Reddit hive mind.
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q32tc1/helen_the_invisible_villain/nxietxh/
+
+This show is about *hive mind*, mob mentality, group thinking. People fixate on one single person, not the "corporation" behavior. Team sports, hive minded. Fox News audience. My reply comment:
+
+> Carol is a malignant narcissist. A normal person would never be in a relationship with a malignant narcissist. Because their behaviour is unacceptable
+
+An entire nation just elected Donald Trump to office for a second term. Elon Musk has a huge Twitter audience and fandom. Mark Zuckerberg has a huge customer hive mind on Instagram, Facebook, etc.
+
+I see people admire and want their children to grow up like Donald Trump and have all the admiration, respect. This has been going on since June 16, 2015 that parents have raised their children with Rupert Murdoch's Fox News and told their children Donald Trump is going to be the best future for all the world!
+
+&nbsp;
+
+Do people here not realize that "PLURIBUS" is Free Masons from the founding fathers? Vince Gilligan picked this word from the USA government!
+
+The only time IN THE TELEVISION SHOW "Pluribus" that the word appears is at Minute 37 of Episode Two on Air Force One when the POTUS Seal is shown. Carol is standing next o a eagle pointing the wrong direction on the POTUS Seal, to the right-wing that says "PLURIBUS" on the screen. And the eagle is supposed to be pointing to the left-wing (*bird* wing). And 4 out of 13 stars are missing from the POTUS Seal. The hive mind corrupted it!
+
+This show is about politics, Minute 37 of Episode Two.
+
+> a normal person would set boundaries, which a narcissist always loves to cross.
+
+Did the USA just "cross boundaries" of another nation in the past 24 hours?
+
+&nbsp;
+
+Vince Gilligan choose a word from Free Mason symbols. { George Washington, Benjamin Franklin, Paul Revere, John Hancock, James Madison, Thomas Jefferson, and Samuel Adams }
+
