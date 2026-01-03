@@ -1311,3 +1311,7 @@ Much Ado About? Book store, book touring testing, book fandoms. "is a comedy" "t
 
 Quoting a book: " That which is beyond even the concept of reality, that which transcends all thought. The myth puts you there all the time, gives you a line to connect with that mystery which you are.
 Shakespeare said that art is a mirror held up to nature. And that’s what it is. The nature is your nature, and all of these wonderful poetic images of mythology are referring to something in you. When **your mind is simply trapped** by the image out there so that you never make the reference to yourself, you have misread the image." - book The Power of Myth, published [year 1988 on paper, Page sixty-eight](https://books.google.com/books?id=2GOIGuh5GJ4C&pg=PA68&dq=%22Shakespeare+said+that+art+is+a+mirror+held+up+to+nature.+And+that%E2%80%99s+what+it+is.%22&hl=en&newbks=1&newbks_redir=1&sa=X).
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q2xxa9/sometimes_the_best_twist_is_no_twist/nxgyj22/
+
+Someone responded to the Walter White meth drug dealer Reddit user. Cool to see!
