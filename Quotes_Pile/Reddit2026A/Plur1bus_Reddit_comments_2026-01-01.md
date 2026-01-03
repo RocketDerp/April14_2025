@@ -1114,3 +1114,6 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1q2otwh/zosia_is_helens_neighb
 
 "the current United States Secretary of Education is Linda McMahon, a businesswoman who previously served as the CEO of the professional wrestling company World Wrestling Entertainment (WWE). The acronym "WWE" stands for World Wrestling Entertainment."
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q2otwh/zosia_is_helens_neighbour/nxeor96/
+
+Anti-PLURIBUS Latin founding fathers. These "seek help" messages. People who have their mind blown by creative mythology about a Vince Gilligan end of of the world show where over 800,000 million people die in an hour, and humans become Reddit hive mind like. MAGA hive mind metaphors of USA "PLURIBUS" Founding Fathers year 1776 concepts. A show about USA politics and government ideals.
