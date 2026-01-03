@@ -152,3 +152,11 @@ https://old.reddit.com/r/WorkReform/comments/1q2whpk/billionaire_propaganda_is_t
 
 I keep trying to tell the fandom of Pluribus 2025 TV show that the Helen graduate school message and the suburb lifestyle of dual-income no kids (DINK) is a big part of the story. The writers of the television series are highly educated (and have good money). But audience members keep avoiding Minute 22 of Episode 1 discussion from Helen about grad school.
 
+https://old.reddit.com/r/worldnews/comments/1q2ztsn/we_are_going_to_run_the_country_trump_says_us/nxgvrv9/
+
+Putin in March 2013 unleashed the Surkov monomyth and is no longer in control since Q4 2022. ChatGPT and all the other artificial intelligence learning models have been trained on Surkov monomyth patterns now, humanity is in self-harm mode. And Trump may very well wreck Russia because everyone keeps blaming Trump and Putin pairing, so in wild egomania of the Surkov monomyth outcomes... Putin is so fucking deep into the White House and MAGA subconscious... the backlash waves...
+
+https://old.reddit.com/r/worldnews/comments/1q2ztsn/we_are_going_to_run_the_country_trump_says_us/nxh9t9j/
+
+Police / Sting Song Russians, about putting words into POTUS mouth... Cold War... OPERA_A well, here is the song! https://www.youtube.com/watch?v=wHylQRVN2Qs 38,875,896 views April 16, 2010 - Arab Spring 2010, was sharing this music video online to Tunisia and Algeria!
+
