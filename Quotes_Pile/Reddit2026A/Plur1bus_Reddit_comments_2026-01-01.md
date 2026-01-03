@@ -1286,3 +1286,16 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1q2xxa9/sometimes_the_best_twi
 https://old.reddit.com/r/Pluribus_TVshow/comments/1q2xxa9/sometimes_the_best_twist_is_no_twist/nxgozzs/
 
 Yes, you don't grasp that inkblots are really used with audiences. Art is art. pyramid Free Mason symbols, etc. POTUS symbol.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q2xxa9/sometimes_the_best_twist_is_no_twist/nxgqmap/
+
+<img width="1630" height="1022" alt="image" src="https://github.com/user-attachments/assets/1a0c8f29-5e6b-4656-8930-18aeaf5c3ee5" /> MAGA USA hive mind. Reddit hive mind. They mock you, block you, and you can't reply. Mock and block USA MAGA society. Deport those immigrants values. My reply message, which I am blocked from posting now anywhere on that thread:
+
+> you are a bot
+
+MAGA USA January 2026. Non-person immigrants and "undesirables". USA!!! Reddit California!!!!
+
+> or I am just dealing with someone off their meds.
+
+Another Walter White drug dealer on Vince Gilligan fandom. Pushing drugs. Drug sellers all over here.
+
