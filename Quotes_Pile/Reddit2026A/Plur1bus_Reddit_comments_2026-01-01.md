@@ -1331,3 +1331,7 @@ Finnegans Wake reply, great!
 https://old.reddit.com/r/Pluribus_TVshow/comments/1q1jncd/vince_gilligan_is_the_only_person_in_the_world_to/nxhai30/
 
 ToDo: bring music in to Great Seal USA project!
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q31la0/all_of_mankind_becomes_united_pluribus_fans_are/nxhgmjs/
+
+https://old.reddit.com/r/jamesjoyce/comments/1q31nme/all_of_mankind_becomes_united_pluribus_fans_are/nxhgdd5/
