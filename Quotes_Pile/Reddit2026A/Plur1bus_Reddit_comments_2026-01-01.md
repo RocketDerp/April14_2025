@@ -1130,8 +1130,8 @@ So the metaphor here is addiction and hive mind conformity of book fandoms. That
 
 People are still not grasping this Pluribus show... getting the USA Government "PLURIBUS" origin, politics metaphors. Minute 37 of Episode Two (which is PAIRED pilots, two episodes released instantly). The only time the word "PLURIBUS" ever appears in the show is on **Air Force One, POTUS Seal**. It is a doctored POTUS Seal image, with the eagle pointing the wrong way (to the right-wing, not left-wing). 
 
-It's like telling someone "You shouldn't knock **Fox News HDTV fandom** until you try it. Sure, you'll lose all trace of your original personality, let everything you once valued in your life wither away, and definitely climate change denial and harm your children, but you'll love it, it's the best feeling in the world."
+* It's like telling someone "You shouldn't knock **Fox News HDTV fandom** until you try it. Sure, you'll lose all trace of your original personality, let everything you once valued in your life wither away, and definitely climate change denial and harm your children, but you'll love it, it's the best feeling in the world."
 
-People are entirely not grasping the metaphor mythology of the free masons origins of "PLRUIBUS" Latin word. It is at Minute 37 of Episode Two, the **POTUS Seal on Air Force One**. It is flying right over the audience / fandom head like Carol's books are at the book store / book tour.
+People are entirely not grasping the metaphor mythology of the free masons origins of "PLRUIBUS" Latin word. It is at Minute 37 of Episode Two, the **POTUS Seal on Air Force One**. It is *flying* right over the audience / fandom heads like Carol's books are at the book store / book tour.
 
 We have YEARS until Episode Ten. And not one person here wants to discuss the free mason "PLURIBUS" seal of the President of the United States of America on Air Force One at **Minute 37 of Episode Two**, the co-pilot opening of Season One!  Where else in the entire show has the word "PLURIBUS" been shown or spoken other than that scene with the eagle point right-wing instead of left-wing (eagle bird wing free masons symbolism).
