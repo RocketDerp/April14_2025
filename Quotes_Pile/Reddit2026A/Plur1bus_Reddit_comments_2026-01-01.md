@@ -1268,3 +1268,17 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1q2xxa9/sometimes_the_best_twi
 
 https://old.reddit.com/r/Pluribus_TVshow/comments/1q2xxa9/sometimes_the_best_twist_is_no_twist/nxglq48/
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q2xxa9/sometimes_the_best_twist_is_no_twist/nxgl8yw/
+
+> If the expectation was for the show to be entertaining
+
+Smells like teenage spirit.     
+https://www.youtube.com/watch?v=hTWKbfoikeg    
+"She's over-bored, and self-assured"     
+"With the lights out, it's less dangerous"    
+
+&nbsp;
+
+Carol *commands and insists* that the ABQ lights be turned on for her, *she's* alone.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q2xxa9/sometimes_the_best_twist_is_no_twist/nxglgio/
