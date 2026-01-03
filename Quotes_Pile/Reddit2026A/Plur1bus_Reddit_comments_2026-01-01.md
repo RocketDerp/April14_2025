@@ -1047,3 +1047,5 @@ As for the comment linked: **MAGA USA** January 2026 Reddit California society. 
 https://old.reddit.com/r/Pluribus_TVshow/comments/1q2j4up/temporal_compass_font_of_truth/nxdeykg/
 
 The posting itself has interesting subtitle observations. Finnegans Wake media ecology...
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q2j4up/temporal_compass_font_of_truth/nxdka45/
