@@ -1486,3 +1486,8 @@ Political parties, teams of sports, groups, mob mentality.
 https://www.scientificamerican.com/article/the-shared-psychosis-of-donald-trump-and-his-loyalists/     
 The ‘Shared Psychosis’ of Donald Trump and His Loyalists     
 Forensic psychiatrist Bandy X. Lee explains the outgoing president’s pathological appeal and how to wean people from it
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q38ohc/zosia_helen_are_enablers/nxixawf/
+
+Liars are OK. The front page full of /r/All Trump content (deception leadership) all OK. But if a "Little Guy", "The Little Guy" has comments you don't like, Then Reddit stand up against "The Little Guy" while LOL cow milking "The Big Guy" famous people. All ass-backwards!!! "Stand Up For The Big Guy" MAGA USA 2026. It wasn't always like this in USA. Reddit year 2012 and earlier.
+
