@@ -1299,3 +1299,6 @@ MAGA USA January 2026. Non-person immigrants and "undesirables". USA!!! Reddit C
 
 Another Walter White drug dealer on Vince Gilligan fandom. Pushing drugs. Drug sellers all over here.
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q2xxa9/sometimes_the_best_twist_is_no_twist/nxgswz7/
+
+A non-hate message on Reddit. someone who doesn't seek hate and prize hate under Donald Trump role model of hate power!
