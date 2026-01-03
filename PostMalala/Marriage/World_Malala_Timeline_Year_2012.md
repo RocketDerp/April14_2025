@@ -24,7 +24,8 @@ https://old.reddit.com/r/complaints/comments/1povm7q/being_a_maga_is_a_dealbreak
 6. October 8, 2013 Malala's book published. “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.”
 ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban.
 
-9. November 8, 2013
+9. November 8, 2013. Donald Trump establishes his public concerns. Moscow Russia arrival in private jet. Sex show of girls / women - leading women for entertainment and stimulation of audiences. Old white men will use young girls and women to engage media audiences, consumers of HDTV and Internet media. https://en.wikipedia.org/wiki/Miss_Universe_2013 Sex Show of women by dirty old white men values society, MAGA USA society, United States of America and Moscow Russia Putin joined. Friday, October 8, 2013 private jet arrival. https://qz.com/920189/donald-trump-just-claimed-he-hasnt-called-russia-in-10-years-thats-not-what-hes-said-before
+   
 
 
 Let's go over that again from the top
