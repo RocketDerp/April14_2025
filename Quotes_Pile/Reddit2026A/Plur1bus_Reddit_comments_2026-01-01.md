@@ -1319,3 +1319,7 @@ Someone responded to the Walter White meth drug dealer Reddit user. Cool to see!
 https://old.reddit.com/r/Pluribus_TVshow/comments/1q2xxa9/sometimes_the_best_twist_is_no_twist/nxh0qqr/
 
 <img width="2300" height="1052" alt="image" src="https://github.com/user-attachments/assets/91956718-2f94-4c06-ae4e-a3fe18d25545" /> Non-person MAGA USA again. Dog-whistle politics, "undesirables" are "bots", non-persons. Right in public about me. MAGA hive mind.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q2xxa9/sometimes_the_best_twist_is_no_twist/nxh2lj1/
+
+Hate is the *hive mind*, Reddit hive mind. Machine lovers, person haters. Lead by Donald J. Trump, POTUS, with hate leadership and mocking leadership.
