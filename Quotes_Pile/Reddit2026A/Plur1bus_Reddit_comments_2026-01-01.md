@@ -1122,7 +1122,7 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1q2n4jq/does_zosias_you_havent
 
 CONTEXT ASSERTION: Minute 22 Episode One, graduate school Helen about James Joyce's Finnegans Wake book. The show opens with { book store, book tour, book fandom, book publishing }. 
 
-CONTEXT ASSERTION: "Camp Freedom Falls" where smiling people, "Conversion Therapy". Again, book assertion. A specific set of books from the Levant, imported to USA: { Bible, Torah, Qurna, Book of Mormon }. Carol at age 16 was abused by book readers, book fandom.
+* CONTEXT ASSERTION: "Camp Freedom Falls" where smiling people, "Conversion Therapy". Again, book assertion. A specific set of books from the Levant, imported to USA: { Bible, Torah, Quran, Book of Mormon }. Carol at age 16 was abused by book readers, book fandom.
 
 * "conversion therapy in the United States, including for lesbians, is predominantly rooted in Christian, often evangelical, fundamentalist ideology. Religious leaders and religiously affiliated organizations are the primary providers of these practices." - Google Search Summary 2026-01-03 morning USA
 
@@ -1149,7 +1149,7 @@ Ok, Air Force One bombs away. I published on Reddit comment. Here is my message 
 
 * CONTEXT ASSERTION: Minute 22 Episode One, graduate school Helen about James Joyce's Finnegans Wake book. The show opens with { book store, book tour, book fandom, book publishing }. 
 
-* CONTEXT ASSERTION: "Camp Freedom Falls" where smiling people, "Conversion Therapy". Again, book assertion. A specific set of books from the Levant, imported to USA: { Bible, Torah, Qurna, Book of Mormon }. Carol at age 16 was abused by book readers, book fandom.
+* CONTEXT ASSERTION: "Camp Freedom Falls" where smiling people, "Conversion Therapy". Again, book assertion. A specific set of books from the Levant, imported to USA: { Bible, Torah, Quran, Book of Mormon }. Carol at age 16 was abused by book readers, book fandom.
 
 * "conversion therapy in the United States, including for lesbians, is predominantly rooted in Christian, often evangelical, fundamentalist ideology. Religious leaders and religiously affiliated organizations are the primary providers of these practices." - Google Search Summary 2026-01-03 morning USA
 
