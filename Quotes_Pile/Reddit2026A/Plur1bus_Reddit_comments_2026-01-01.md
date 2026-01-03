@@ -1188,4 +1188,13 @@ A resistance (rebels) and The Empire metaphor.
 
 https://old.reddit.com/r/Pluribus_TVshow/comments/1q2n4jq/does_zosias_you_havent_experienced_it_argument/nxeat0i/
 
-Howard Blooms book, in a story about { book author, book tour, book store, book fandom } I've mentioned, but no bites. "Global Brain" book from August 2000. 
+Howard Blooms book, in a story about { book author, book tour, book store, book fandom } I've mentioned, but no bites. "Global Brain" book from August 2000.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q2n4jq/does_zosias_you_havent_experienced_it_argument/nxfoojd/
+
+Free masons 13 keeps getting ignored, people have had time to ponder.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q2n4jq/does_zosias_you_havent_experienced_it_argument/nxfrgsc/
+
+My message. Big bombshells today. Non-Sober Carol.
+
