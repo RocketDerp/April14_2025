@@ -129,3 +129,9 @@ Reddit audience, comment section of Reddit social, I consider to be the main sou
 https://old.reddit.com/r/MurderedByWords/comments/1q2wi37/could_this_country_look_anymore_ridiculous/nxgn7rq/
 
 Yep. QAnon "Pizza Gate list", bullshit fiction monomyth "who is Q" been feeding this for so long. Sex Clinton / Epstein. PLEASE MIND THE DATE: January 9, 2024 - that is more than aw FULL YEAR before Trump took office January 20, 2025! https://www.politico.com/news/magazine/2024/01/09/why-maga-is-obsessed-with-jeffrey-epstein-00134394 "Pizzagate, QAnon and the ‘Epstein List’: Why the Far Right Is Obsessed with Sex Trafficking. An expert on conspiracy theories explains why MAGA figures are embracing the latest twist in the Jeffrey Epstein saga." - this bullshit mindset of "oh, Trump MURDERED BY WORDS!" subreddit, eating right out of the hands of Putin and Trump with Surkov student techniques. 
+
+https://old.reddit.com/r/complaints/comments/1q2vlik/this_feels_like_libya_20/nxg13oi/
+
+The entire USA, EVERY PERSON, NOT JUST MAGA, NOT JUST CONSERVATIVES... won't study and learn Russian information warfare methods and techniques. Mocking in feedback loops, American mocking American, all avoiding nonfiction learning and all avoiding Neil Postman's library of books. Manhattan NYU, Trump's home town, book library about mocking feedback loop problems. People are entirely addicted to the Russian information warfare since March 2013. 
+
+"Putin is clearly winning Russia’s hybrid war against the U.S. because Americans don’t understand how they are being manipulated." - December 11, 2020 - "The Heritage Foundation" https://www.heritage.org/defense/commentary/putin-winning-russias-hybrid-war-against-america (Before January 6, 2021 - by weeks. QAnon was Russian Hybrid warfare, QAnon flags on January 6 https://old.reddit.com/r/QAnonRussia/ QAnonRussia subreddit)
