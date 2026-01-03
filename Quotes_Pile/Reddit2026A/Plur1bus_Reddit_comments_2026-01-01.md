@@ -1406,3 +1406,9 @@ Reddit book discussion: https://old.reddit.com/r/books/comments/120qr1r/i_read_f
 
 P.S. March 24 is the night Jesus mother gets pregnant from magical outer space baby-daddy! Romans 11:32 Joyce and all...
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q2xxa9/sometimes_the_best_twist_is_no_twist/nxiu9c8/
+
+<img width="1074" height="460" alt="image" src="https://github.com/user-attachments/assets/946271fd-be50-402b-9a3d-e1f76fa79fe7" /> Reddit hive mind street-gang language, I have no idea what this means. Is it about Vince Gilligan? or the Reddit subreddit? Or about Donald Trump today starting a war with other nations? Or that Carol wants the street lights turned on in Albuquerque in the show?
+
+Tiny-short messages, not even Elon Musk Twitter-length. The Breaking Bad fandom seems to have big troubles with a complex show about { book authoring, book publishing, book tours, book releases, book writing, book reading, book analysis, books }. Tiny-short meme messages rule the Reddit hive mind.
+
