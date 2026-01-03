@@ -1302,3 +1302,12 @@ Another Walter White drug dealer on Vince Gilligan fandom. Pushing drugs. Drug s
 https://old.reddit.com/r/Pluribus_TVshow/comments/1q2xxa9/sometimes_the_best_twist_is_no_twist/nxgswz7/
 
 A non-hate message on Reddit. someone who doesn't seek hate and prize hate under Donald Trump role model of hate power!
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q2xxa9/sometimes_the_best_twist_is_no_twist/nxgr6e9/
+
+> "about this show but its so simple, nothing happens and the pilot fooled you into thinking" - Reddit California USA; Saturday, January 3, 2026
+
+Much Ado About? Book store, book touring testing, book fandoms. "is a comedy" "thought to have been written in 1598 and 1599" … 
+
+Quoting a book: " That which is beyond even the concept of reality, that which transcends all thought. The myth puts you there all the time, gives you a line to connect with that mystery which you are.
+Shakespeare said that art is a mirror held up to nature. And that’s what it is. The nature is your nature, and all of these wonderful poetic images of mythology are referring to something in you. When **your mind is simply trapped** by the image out there so that you never make the reference to yourself, you have misread the image." - book The Power of Myth, published [year 1988 on paper, Page sixty-eight](https://books.google.com/books?id=2GOIGuh5GJ4C&pg=PA68&dq=%22Shakespeare+said+that+art+is+a+mirror+held+up+to+nature.+And+that%E2%80%99s+what+it+is.%22&hl=en&newbks=1&newbks_redir=1&sa=X).
