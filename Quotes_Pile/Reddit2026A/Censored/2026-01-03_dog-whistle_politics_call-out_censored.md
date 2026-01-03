@@ -2,19 +2,19 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1q2xxa9/sometimes_the_best_twi
 
 &nbsp;
 
-&nbps;
+&nbsp;
+
+&nbsp;
 
 &nbsp;
 
 &nbsp;
 
-&nbps;
-
 &nbsp;
 
 &nbsp;
 
-&nbps;
+&nbsp;
 
 &nbsp;
 
