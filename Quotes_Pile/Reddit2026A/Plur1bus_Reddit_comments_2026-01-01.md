@@ -1454,3 +1454,12 @@ Ahh, the MAGA street gang signs and signals. "free thinker", a non-human non-per
 
 I do not use A.I. to write my posts. You are in a Reddit hive mind. You fail "the TURING test".
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q2n4jq/does_zosias_you_havent_experienced_it_argument/nxj0azp/
+
+This reply message did get published:
+
+> If you could please refrain from posting AI garbage
+
+Yha, a 1979 article isn't Artificial Intelligence. You are really ignorant. Anti-book, anti-learning.
+
+Apirl 15, 1979 New York
