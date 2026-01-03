@@ -1390,3 +1390,19 @@ My reply comment:
 The historical figure's real native Irish language name is Gráinne Ní Mháille (pronounced approximately as GRAWN-ya Nee VWAIL-ya), commonly known in Irish folklore by the nickname Gráinne Mhaol (pronounced GRAWN-ya VWAIL). This nickname, often anglicized as Granuaile (/ˌɡrɔːnjuˈeɪl/), literally means "Gráinne the Bald" or "Gráinne of Umhall," and comes from a legend that she cropped her hair as a girl to go to sea with her father." - Google Search summary 2026-01-03 afternoon USA
 
 Cut her hair to be a *Tom Boy* ALP?
+
+https://old.reddit.com/r/jamesjoyce/comments/1q31nme/all_of_mankind_becomes_united_pluribus_fans_are/nxihdjs/
+
+Some books are not about joy. Helen makes that very point about happy / joy (petri dish smiles of show) at Minute 22 of Episode one. My reply comment message:
+
+> I did not enjoy this show, could have just been a movie.
+
+They are planning 4 seasons. And no way would I want to watch a 9 hour movie with even high production cost. The lavish quality is already obscene. The Las Vegas Elvis West Gate *singsong* licensing, etc.
+
+&nbsp;
+
+Reddit book discussion: https://old.reddit.com/r/books/comments/120qr1r/i_read_finnegans_wake_so_you_dont_have_to/     
+"Finnegan's Wake, and I can tell you, I DO NOT recommend it. It is a total waste of time. " - March 24, 2023    
+
+P.S. March 24 is the night Jesus mother gets pregnant from magical outer space baby-daddy! Romans 11:32 Joyce and all...
+
