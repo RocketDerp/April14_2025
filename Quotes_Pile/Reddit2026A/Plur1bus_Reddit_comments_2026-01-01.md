@@ -1219,3 +1219,9 @@ https://en.wikipedia.org/wiki/Spit_(card_game)
 "1973 book Deal Me In! The Use of Playing Cards in Learning and Teaching by Margie Golick, who was based at McGill University, Montreal."
 
 * "the university bears the name of James McGill"
+
+&nbsp;
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q2fox9/spit_creation_date_error/nxfvdl4/
+
+<img width="1676" height="1332" alt="image" src="https://github.com/user-attachments/assets/e199a308-91da-4b08-b30c-f39aed18274e" /> People have YEARS until episode 10, and the writers throw in these things for meaning! People watch, rewind rewatch, upload clips to YouTube and Reddit and TikTok. Person on Reddit thinks it is some massive stretch!
