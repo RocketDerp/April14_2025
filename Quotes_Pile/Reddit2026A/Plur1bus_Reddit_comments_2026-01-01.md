@@ -1438,3 +1438,8 @@ Did the USA just "cross boundaries" of another nation in the past 24 hours?
 
 Vince Gilligan choose a word from Free Mason symbols. { George Washington, Benjamin Franklin, Paul Revere, John Hancock, James Madison, Thomas Jefferson, and Samuel Adams }
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q32tc1/helen_the_invisible_villain/nxiy7fm/
+
+My reply message: 
+
+I think people are really not grasping that this show is about a book author and book fandom. A group of people, fanatics of pirate story books. The Breaking Bad fandom, metaphors...
