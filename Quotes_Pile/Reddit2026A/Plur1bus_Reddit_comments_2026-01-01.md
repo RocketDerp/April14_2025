@@ -1323,3 +1323,11 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1q2xxa9/sometimes_the_best_twi
 https://old.reddit.com/r/Pluribus_TVshow/comments/1q2xxa9/sometimes_the_best_twist_is_no_twist/nxh2lj1/
 
 Hate is the *hive mind*, Reddit hive mind. Machine lovers, person haters. Lead by Donald J. Trump, POTUS, with hate leadership and mocking leadership.
+
+https://old.reddit.com/r/jamesjoyce/comments/1q31nme/all_of_mankind_becomes_united_pluribus_fans_are/nxhgbk2/
+
+Finnegans Wake reply, great!
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q1jncd/vince_gilligan_is_the_only_person_in_the_world_to/nxhai30/
+
+ToDo: bring music in to Great Seal USA project!
