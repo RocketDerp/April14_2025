@@ -135,3 +135,20 @@ https://old.reddit.com/r/complaints/comments/1q2vlik/this_feels_like_libya_20/nx
 The entire USA, EVERY PERSON, NOT JUST MAGA, NOT JUST CONSERVATIVES... won't study and learn Russian information warfare methods and techniques. Mocking in feedback loops, American mocking American, all avoiding nonfiction learning and all avoiding Neil Postman's library of books. Manhattan NYU, Trump's home town, book library about mocking feedback loop problems. People are entirely addicted to the Russian information warfare since March 2013. 
 
 "Putin is clearly winning Russia’s hybrid war against the U.S. because Americans don’t understand how they are being manipulated." - December 11, 2020 - "The Heritage Foundation" https://www.heritage.org/defense/commentary/putin-winning-russias-hybrid-war-against-america (Before January 6, 2021 - by weeks. QAnon was Russian Hybrid warfare, QAnon flags on January 6 https://old.reddit.com/r/QAnonRussia/ QAnonRussia subreddit)
+
+https://old.reddit.com/r/DiscussionZone/comments/1q30w2p/trump_the_peace_president_invades_our_neighbor/nxhmnxq/
+
+https://old.reddit.com/r/DiscussionZone/comments/1q30w2p/trump_the_peace_president_invades_our_neighbor/nxh46al/
+
+https://old.reddit.com/r/DiscussionZone/comments/1q30w2p/trump_the_peace_president_invades_our_neighbor/nxh3lv1/
+
+https://old.reddit.com/r/politics/comments/1q2zyxc/senate_to_vote_next_week_to_block_trumps_military/nxgxbv4/
+
+https://old.reddit.com/r/politics/comments/1q2zyxc/senate_to_vote_next_week_to_block_trumps_military/nxgvfsg/
+
+https://old.reddit.com/r/WorkReform/comments/1q2whpk/billionaire_propaganda_is_telling_our_kids_to/nxg5at9/
+
+https://old.reddit.com/r/WorkReform/comments/1q2whpk/billionaire_propaganda_is_telling_our_kids_to/nxg86sv/
+
+I keep trying to tell the fandom of Pluribus 2025 TV show that the Helen graduate school message and the suburb lifestyle of dual-income no kids (DINK) is a big part of the story. The writers of the television series are highly educated (and have good money). But audience members keep avoiding Minute 22 of Episode 1 discussion from Helen about grad school.
+
