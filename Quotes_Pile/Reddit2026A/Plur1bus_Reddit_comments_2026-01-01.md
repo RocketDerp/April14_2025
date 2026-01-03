@@ -1347,3 +1347,32 @@ There is a very serious ELIZA effect crisis with Reddit meme mill end-users! It 
 https://old.reddit.com/r/Pluribus_TVshow/comments/1q32tc1/helen_the_invisible_villain/nxhpnp6/
 
 Cool to see the mixed-language Pluribus show inspires! So symbolic!
+
+https://old.reddit.com/r/jamesjoyce/comments/1q31nme/all_of_mankind_becomes_united_pluribus_fans_are/nxi38ki/
+
+A sincere Comparative Mythology reply! Show vs. Show, MonoMyth vs. MonoMyth! Rolling release going on here, Steely Dan NYC Heavy Rollers. My reply message:
+
+> My take on Pluribus is it’s a mirror image of the walking dead. In the walking dead the infected are horrible and in Pluribus they are really nice.
+
+In The Walking Dead, they have no health care system (Atlanta USA location). In Pluribus they all read books and are "Pluck an Apple" Carol Tree of Knowledge informed. The CDC is supposed to save people in The Walking Dead TV series, but they find it corrupted and broken (see RFK Jr today). Like Walter White cancer, USA health care themes. 
+
+The zombies are so ignorant and stupid. That's the theme.
+
+Where Pluribus, book author, book writing, book touring, book publishing, book fandom, book analysis, etc.
+
+&nbsp;
+
+> the infected want to infect the non infected.
+
+That is the **FREE MASONS Public Dream**, the year 1776 values put into free mason symbolism art. "Heaven" is on "Earth" of the USA. The show title "Pluribus" appears at Minute 37 of Episode Two (the co-pilot released as paired episodes)... on Air Force One, the POTUS Seal. But it is corrupted, damaged, stars have fallen out of the sky!
+
+&nbsp;
+
+> it’s a mirror image of the walking dead
+
+Yes. Intelligent, educated, smart, not dumb-ass moaning monsters. But thoughtful intelligent society.
+
+* “Apocalypse does not point to a fiery Armageddon but to the fact that **our ignorance and our complacency are coming to an end**… The exclusivism of there being only one way in which we can be saved, the idea that there is a single religious group that is in sole possession of the truth — that is the world as we know it that must pass away. What is the kingdom? It lies in **our realization of the ubiquity of the divine presence** in our neighbors, in our enemies, in **all of us**.” ― Joseph Campbell, *Thou Art That*: Transforming Religious Metaphor. [Page 107. Published year 2001, but Campbell died Halloween 1987](https://books.google.com/books?id=RSuGAAAAQBAJ&pg=PA107&dq=%22fiery+Armageddon+but+to+the+fact+that+our+ignorance+and+our+complacency+are+coming+to+an+end%22&hl=en&newbks=1&newbks_redir=1&sa=X)
+     * The source of the seems to be https://www.nytimes.com/1979/04/15/archives/earthrise-the-dawning-of-a-new-spiritual-awareness.html April 15, 1979 New York Times interview with Professor Eugene Kennedy "EARTHRISE".
+     * Worth nothing that Joseph Campbell was a rock star James Joyce teacher,, so was his wife Jean Erdman who taught James Joyce to the public! A married couple of James Joyce experts!
+ 
