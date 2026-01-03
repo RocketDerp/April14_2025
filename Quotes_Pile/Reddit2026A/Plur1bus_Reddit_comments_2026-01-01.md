@@ -1282,3 +1282,7 @@ https://www.youtube.com/watch?v=hTWKbfoikeg
 Carol *commands and insists* that the ABQ lights be turned on for her, *she's* alone.
 
 https://old.reddit.com/r/Pluribus_TVshow/comments/1q2xxa9/sometimes_the_best_twist_is_no_twist/nxglgio/
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q2xxa9/sometimes_the_best_twist_is_no_twist/nxgozzs/
+
+Yes, you don't grasp that inkblots are really used with audiences. Art is art. pyramid Free Mason symbols, etc. POTUS symbol.
