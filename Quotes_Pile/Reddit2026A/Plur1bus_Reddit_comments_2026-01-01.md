@@ -1198,3 +1198,24 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1q2n4jq/does_zosias_you_havent
 
 My message. Big bombshells today. Non-Sober Carol.
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q2fox9/spit_creation_date_error/nxfppft/
+
+Dazzle them with Better Call Saul and Wikipedia! My reply message:
+
+>  I wouldn’t be surprised if they retcon it to mean something.
+
+They already did put deep meaning into it. It is a Better Call Saul *Easter Egg*
+
+&nbsp;
+
+&nbsp;
+
+This is the most rich mythology television show anyone has ever created! And that's just Season One! Ahoy, Pirates!
+
+&nbsp;
+
+https://en.wikipedia.org/wiki/Spit_(card_game)
+
+"1973 book Deal Me In! The Use of Playing Cards in Learning and Teaching by Margie Golick, who was based at McGill University, Montreal."
+
+* "the university bears the name of James McGill"
