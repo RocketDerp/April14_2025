@@ -1229,3 +1229,37 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1q2fox9/spit_creation_date_err
 https://old.reddit.com/r/TrueLit/comments/10ii4hr/the_official_truelit_finnegans_wake_readalong/j5em6a0/
 
 Capture for record of Reddit comment explains "Pluck an Apple" Carol metaphors. See my new comment: https://old.reddit.com/r/Pluribus13/comments/1q2wwif/plur1bus_hive_mind_children_no_longer_need/nxg7qc9/
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q2xxa9/sometimes_the_best_twist_is_no_twist/nxgjjjr/
+
+My comment. Reproduced markdown here:
+
+> the rhythms of serialized streaming TV. “We are all attuned to the ebb and flow of
+
+        Page 628 GOTO Page 3
+
+Let Us repeat that, We:     
+
+> the rhythms of serialized **stream**ing TV. “We are all attuned to the **ebb and flow** of
+
+&nbsp;
+
+of, of, of Helen's graduate work on a book. Helen's serious advice right before she dies. Minute twenty-two of of of of the show opening episode.
+
+&nbsp;
+
+        Page 628 GOTO Page 3
+
+Let Us repeat that, We:     
+
+> the rhythms of serialized **stream**ing TV. “We are all attuned to the **ebb and flow** of
+
+&nbsp;
+
+of of of riverrun, past Eve and Adam's, from swerve of shore to bend    
+of bay, brings us by a commodius vicus of recirculation back to  
+Howth Castle and Environs. [Page Three](https://www.finnegansweb.com/wiki/index.php/Page_3)
+
+&nbsp;
+
+*Rest in peace, Helen! You had a hard full and cracked your skull, those raccoon eyes and a smile upon your face...* ... Rest in peace, **Helen, better off dead**, [*you lucky one!*](https://youtu.be/1oqOrI8yK-4?list=TLPQMDIwMTIwMjbPlcg-LEObRQ&t=125)
