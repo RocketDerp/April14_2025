@@ -1293,7 +1293,7 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1q2xxa9/sometimes_the_best_twi
 
 > you are a bot
 
-MAGA USA January 2026. Non-person immigrants and "undesirables". USA!!! Reddit California!!!!
+MAGA USA January 2026. Non-person immigrants and "undesirables". USA!!! Reddit California!!!! Dog-whistle, dog fog-horn messaging.
 
 > or I am just dealing with someone off their meds.
 
