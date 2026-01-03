@@ -1103,3 +1103,14 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1q2otwh/zosia_is_helens_neighb
 Yeo. Dehumanization, hate, negativity! People who mock and hate, follow Truth Social and Elon Musk Twitter values. This is the cesspool values (turd prizing) of social media that Vince Gillian talked about February 15, 2025. https://youtu.be/TkteSxVIM1A?t=648 "I bet it would have something to do with climbing up out of the cesspool that is social media and actually listening to each other."
 
 https://old.reddit.com/r/Pluribus_TVshow/comments/1q2otwh/zosia_is_helens_neighbour/nxemf3a/
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q2otwh/zosia_is_helens_neighbour/nxen64t/
+
+People get their mind blown out, "what the fuck!", "WTF" is how Reddit members behave when their mind is blown by any idea outside the MAGA hive mind / Reddit hive mind of Trump USA January 2026. Creative mythology blows their minds into "WTF" meme stupor mindsets. They defend the MAGA USA 2026 hive-mind values of not grasping "PLURIBUS" Latin of the Great Seal of the United States of America art symbolism / metaphors.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q2otwh/zosia_is_helens_neighbour/nxfcgbv/
+
+"telling you they're confused". No. They are *mocking* like the White House mocks, they are following MAGA and Truth Social leadership. They are following the leader and power gained by insulting and mocking that USA January 2026 society follows. Mocking immigrants and mocking educated people. USA media behaviors, education values, society prizing in January 2026.
+
+"the current United States Secretary of Education is Linda McMahon, a businesswoman who previously served as the CEO of the professional wrestling company World Wrestling Entertainment (WWE). The acronym "WWE" stands for World Wrestling Entertainment."
+
