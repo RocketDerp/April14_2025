@@ -1343,3 +1343,7 @@ My message. Someone who KNOWS on Reddit you get dehumanized as "immigrant bot", 
 * "In Venezuela (often linked to "Venusalia" in searches), Spanish is overwhelmingly dominant (nearly 80% speak it at home), with English having a much smaller percentage"
 
 There is a very serious ELIZA effect crisis with Reddit meme mill end-users! It is raging hate, warpath dehumanization following Trump / Fox News HDTV language consumers. "Do You Speak Fox? The Atlantic. September 16, 2020 — Fox, for many of its fans, is an identity shaped by an ever-expanding lexicon: mob, PC police, Russiagate, deep state, MSM, MS-13, socialist agenda, Dems, libs..." https://www.theatlantic.com/culture/archive/2020/09/fox-news-trump-language-stelter-hoax/616309/
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q32tc1/helen_the_invisible_villain/nxhpnp6/
+
+Cool to see the mixed-language Pluribus show inspires! So symbolic!
