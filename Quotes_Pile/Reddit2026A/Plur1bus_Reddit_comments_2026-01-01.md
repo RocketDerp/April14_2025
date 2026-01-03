@@ -1075,3 +1075,13 @@ https://old.reddit.com/r/jamesjoyce/comments/1or08bk/anyone_watch_pluribus/nnr6j
 https://old.reddit.com/r/pluribustv/comments/1pshguf/whats_the_deal_with_peter_gould/nv9le2x/
 
 see here about James Joyce interview connection: https://github.com/GreatSealUSA/GreatSealUSA_Art/blob/main/PLUR1BUS/A_Wake_Wakening/Vince_Gilligant_Irish_Decent.md#interesting-interview
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q2ra3q/something_strange_happens_when_you_watch_scenes/nxf25xr/
+
+Half-word literacy. People who can't understand mythology and metaphors. Half a word comments on Reddit social systems. ["Schizophrenia may be a necessary consequence of literacy." - year 1962, University of Toronto, Marshall McLuhan, media studies](../Specific/Marshall_McLuhan_Schizophrenia_Literacy.md). Pluribus TV show is very often about { book author, book title, book fandom, book reading, book writing, language learning and translation, book analysis }. And people still can't connect the show to Marshall McLuhan and James Joyce. Minute 22 of Episode One.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q2ra3q/something_strange_happens_when_you_watch_scenes/nxf25tw/
+
+Walter White blue meth drug, methamphetamine / crystal meth, fandoms of Breaking Bad that are "drug enthusiasts" in their commenting.
+
+
