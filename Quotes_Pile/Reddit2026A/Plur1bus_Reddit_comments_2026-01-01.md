@@ -994,3 +994,46 @@ This Wikipedia section was added December 21 2025 https://en.wikipedia.org/w/ind
 ...
 
 * GlitteringAnimal4179 first and only Reddit creation. 2022-03-27 account creation.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pqav6d/spit/nve83j0/
+
+This is wild. The very 24 hour period of the Wikipedia edit. The same non-main Reddit community for these comments.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pqav6d/spit/nve8cyo/
+
+A second comment by this Reddit users to draw attention to 1973 book.
+
+https://old.reddit.com/r/exmormon/comments/1q0pa2y/all_of_the_most_patriarchal_mormons_in_my_life/nx0yw4c/
+
+Interesting Reddit user.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pqav6d/spit/nuua2nh/
+
+Discussion of Wikipedia PRE-edit, this is wild! The same non-main Reddit community for these comments.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pqav6d/spit/nuzbqdf/
+
+So first it was purged...
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pqav6d/spit/nuvkyel/
+
+2025-12-02 (Pluribus Season One) Reddit account joking like this, creator of the posting...
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pqav6d/spit/nuvmctx/
+
+Study this... timing... "alter the past". Well, the Mr. Robot ARG created Reddit back-dated content!
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q2fox9/spit_creation_date_error/nxcpcnb/
+
+Repeated link. I want to note that someone in the Reddit hive mind downvoted a simple comment about Wikipedia. The cesspool behavior is so toxic on Reddit!
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q2fox9/spit_creation_date_error/nxd34j5/
+
+"As simple aas that!"
+
+1. Wikipedia has Jimmu McGill university
+
+2. Wikipedia article added December 21, 2025 during Pluribus Season One.
+
+Anti-curiosity, anti-book, anti-learning. “Curiosity and the urge to solve problems are the
+emotional hallmarks of our species” ― Carl Sagan, The Dragons of Eden: Speculations on the Evolution of Human Intelligence. Published April 12, 1977
