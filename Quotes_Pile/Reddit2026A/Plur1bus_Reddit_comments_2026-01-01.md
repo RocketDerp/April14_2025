@@ -1463,3 +1463,26 @@ This reply message did get published:
 Yha, a 1979 article isn't Artificial Intelligence. You are really ignorant. Anti-book, anti-learning.
 
 Apirl 15, 1979 New York
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q38ohc/zosia_helen_are_enablers/nxj2hpt/
+
+My message. Here is the markdown:
+
+> Carol is a malignant narcissist. A normal person would never be in a relationship with a malignant narcissist. Because their behaviour is unacceptable, 
+
+People go into relationships all the time with business owners, their job, run by malignant narcissist
+
+this is about "corporations", "churches", groups of people, "street gangs".
+
+Carol even emphasizes this with the "Camp Freedom Falls" cult. Cults of people she was abused by at age 16.
+
+https://www.youtube.com/watch?v=09maaUaRT4M       
+**"MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL"**    
+
+Political parties, teams of sports, groups, mob mentality.
+
+&nbsp;
+
+https://www.scientificamerican.com/article/the-shared-psychosis-of-donald-trump-and-his-loyalists/     
+The ‘Shared Psychosis’ of Donald Trump and His Loyalists     
+Forensic psychiatrist Bandy X. Lee explains the outgoing president’s pathological appeal and how to wean people from it
