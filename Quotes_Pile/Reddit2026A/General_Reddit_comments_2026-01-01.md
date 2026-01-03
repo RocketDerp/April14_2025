@@ -113,3 +113,11 @@ https://old.reddit.com/r/worldnews/comments/1q2xqht/france_condemns_us_operation
 https://old.reddit.com/r/pics/comments/1q2yw51/nicolas_maduro_on_board_the_uss_iwo_jima_via/nxgz5gl/
 
 Self-harm to USA on the world stage and domestic self-harm (Russia domestic self-harm, USA domestic self-harm) is the outcome of the runaway Surkov monomyth meme patterns since March 2013. Nothing can stop it! September 9, 2014 (18 months after it started): https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/law/comments/1q2ziem/we_will_control_the_country/nxgsm3o/
+
+Surkov students know: fiction **outsells** nonfiction.
+
+https://old.reddit.com/r/MurderedByAOC/comments/1q2xae6/truth_nuke/nxgde9e/
+
+A Reddit audience member who eats the Surkovian onions. [Playing President Tony Clifton, acting dumb, acting erratic, acting odd, is exactly how the hive mind of Reddit meme addicts are "owned" by Surkov students. Eating the onions, thinking it is accidental or a mistake for Trump to be outrageous and unusual in his antics.](../Reddit2025A/Surkovian_Onion_Eating.md)
