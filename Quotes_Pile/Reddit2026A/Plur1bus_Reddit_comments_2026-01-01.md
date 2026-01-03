@@ -1376,3 +1376,17 @@ Yes. Intelligent, educated, smart, not dumb-ass moaning monsters. But thoughtful
      * The source of the seems to be https://www.nytimes.com/1979/04/15/archives/earthrise-the-dawning-of-a-new-spiritual-awareness.html April 15, 1979 New York Times interview with Professor Eugene Kennedy "EARTHRISE".
      * Worth nothing that Joseph Campbell was a rock star James Joyce teacher,, so was his wife Jean Erdman who taught James Joyce to the public! A married couple of James Joyce experts!
  
+https://old.reddit.com/r/jamesjoyce/comments/1q31nme/all_of_mankind_becomes_united_pluribus_fans_are/nxi93zs/
+
+My reply comment:
+
+> Anna Livia Pluribus?
+
+# *[Pirate Lady](https://en.wikipedia.org/wiki/Pirate_Lady)?* ALP.. at *sea*...
+
+&nbsp;
+
+"James Joyce refers to the Irish pirate queen primarily through allusions and a pun on her anglicized name, using the phrase "her grace o'malice". 
+The historical figure's real native Irish language name is Gráinne Ní Mháille (pronounced approximately as GRAWN-ya Nee VWAIL-ya), commonly known in Irish folklore by the nickname Gráinne Mhaol (pronounced GRAWN-ya VWAIL). This nickname, often anglicized as Granuaile (/ˌɡrɔːnjuˈeɪl/), literally means "Gráinne the Bald" or "Gráinne of Umhall," and comes from a legend that she cropped her hair as a girl to go to sea with her father." - Google Search summary 2026-01-03 afternoon USA
+
+Cut her hair to be a *Tom Boy* ALP?
