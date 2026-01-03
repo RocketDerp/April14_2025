@@ -1335,3 +1335,11 @@ ToDo: bring music in to Great Seal USA project!
 https://old.reddit.com/r/Pluribus_TVshow/comments/1q31la0/all_of_mankind_becomes_united_pluribus_fans_are/nxhgmjs/
 
 https://old.reddit.com/r/jamesjoyce/comments/1q31nme/all_of_mankind_becomes_united_pluribus_fans_are/nxhgdd5/
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q32tc1/helen_the_invisible_villain/nxi2t6r/
+
+My message. Someone who KNOWS on Reddit you get dehumanized as "immigrant bot", non-person by MAGA hive minded USA January 2026 as war is being waged against Spanish-Speaking languages, and I.C.E. raids hive mind against Spanish-Speaking writing. non-human, non-person, if you don't speak MAGA / Fox News language on Reddit in January 2026. It wasn't like this before year 2024, I'll tell you that! The dog-whistle of "bot" by MAGA hive mind is horrific in year 2026!
+
+* "In Venezuela (often linked to "Venusalia" in searches), Spanish is overwhelmingly dominant (nearly 80% speak it at home), with English having a much smaller percentage"
+
+There is a very serious ELIZA effect crisis with Reddit meme mill end-users! It is raging hate, warpath dehumanization following Trump / Fox News HDTV language consumers. "Do You Speak Fox? The Atlantic. September 16, 2020 — Fox, for many of its fans, is an identity shaped by an ever-expanding lexicon: mob, PC police, Russiagate, deep state, MSM, MS-13, socialist agenda, Dems, libs..." https://www.theatlantic.com/culture/archive/2020/09/fox-news-trump-language-stelter-hoax/616309/
