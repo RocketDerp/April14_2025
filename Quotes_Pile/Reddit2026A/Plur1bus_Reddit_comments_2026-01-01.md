@@ -1053,3 +1053,25 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1q2j4up/temporal_compass_font_
 https://old.reddit.com/r/Pluribus_TVshow/comments/1q2kci7/carols_sexual_preference/nxdotjt/
 
 My comment.
+
+https://old.reddit.com/r/pluribustv/comments/1orbld3/theory_weve_already_been_told_how_the_show_ends/nodxg09/
+
+Finnegans Wake topic
+
+https://old.reddit.com/r/pluribustv/comments/1orbld3/theory_weve_already_been_told_how_the_show_ends/nonjpoi/
+
+Finnegans Wake topic
+
+https://old.reddit.com/r/pluribustv/comments/1orbld3/theory_weve_already_been_told_how_the_show_ends/nsxprti/
+
+Finnegans Wake. Not the posting itself too
+
+https://old.reddit.com/r/pluribustv/comments/1orbld3/theory_weve_already_been_told_how_the_show_ends/nsxohgh/
+
+https://old.reddit.com/r/jamesjoyce/comments/1or08bk/anyone_watch_pluribus/nnr6j3n/
+
+<img width="1388" height="382" alt="image" src="https://github.com/user-attachments/assets/41178bdb-b24a-4954-be3d-92126bf6d586" /> I got linked on that page! https://www.soapcentral.com/shows/all-mankind-becomes-united-pluribus-fans-convinced-show-takes-inspiration-classic-novel-finnegans-wake
+
+https://old.reddit.com/r/pluribustv/comments/1pshguf/whats_the_deal_with_peter_gould/nv9le2x/
+
+see here about James Joyce interview connection: https://github.com/GreatSealUSA/GreatSealUSA_Art/blob/main/PLUR1BUS/A_Wake_Wakening/Vince_Gilligant_Irish_Decent.md#interesting-interview
