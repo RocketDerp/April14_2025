@@ -1084,4 +1084,22 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1q2ra3q/something_strange_happ
 
 Walter White blue meth drug, methamphetamine / crystal meth, fandoms of Breaking Bad that are "drug enthusiasts" in their commenting.
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q2otwh/zosia_is_helens_neighbour/nxepwrv/
 
+<img width="914" height="536" alt="image" src="https://github.com/user-attachments/assets/a31287a1-f2a4-4c8a-b0ec-bd8b0917a150" /> This is the cesspool values (turd prizing) of social media that Vince Gillian talked about February 15, 2025. https://youtu.be/TkteSxVIM1A?t=648 "I bet it would have something to do with climbing up out of the cesspool that is social media and actually listening to each other."
+
+Just read what people are saying here... to the entertained people prize.
+
+1. [Rudy Giuliani entertained Reddit society](https://www.theguardian.com/film/2020/oct/21/rudy-giuliani-faces-questions-after-compromising-scene-in-new-borat-film) because of his style of communications and thinking. This is the very mechanism of power concentration, attraction of Reddit audience.
+
+2. Donald J Trump, POTUS, how Trump communicates and behaves. https://www.rollingstone.com/music/music-features/trump-pennsylvania-dj-set-disaster-1235138028/ this is what attracts Reddit fandom / Reddit audience to Trump!
+
+Meme addicts, the audience on Reddit, people are so thrilled and entertained, that is why they flock to Trump! That's the basis of Surkov information warfare since March 2013 (and earlier for domestic Surkov students, really going back to 1999).
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q2otwh/zosia_is_helens_neighbour/nxemmh9/
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q2otwh/zosia_is_helens_neighbour/nxen07d/
+
+Yeo. Dehumanization, hate, negativity! People who mock and hate, follow Truth Social and Elon Musk Twitter values. This is the cesspool values (turd prizing) of social media that Vince Gillian talked about February 15, 2025. https://youtu.be/TkteSxVIM1A?t=648 "I bet it would have something to do with climbing up out of the cesspool that is social media and actually listening to each other."
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q2otwh/zosia_is_helens_neighbour/nxemf3a/
