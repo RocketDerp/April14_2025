@@ -1262,4 +1262,4 @@ Howth Castle and Environs. [Page Three](https://www.finnegansweb.com/wiki/index.
 
 &nbsp;
 
-*Rest in peace, Helen! You had a hard full and cracked your skull, those raccoon eyes and a smile upon your face...* ... Rest in peace, **Helen, better off dead**, [*you lucky one!*](https://youtu.be/1oqOrI8yK-4?list=TLPQMDIwMTIwMjbPlcg-LEObRQ&t=125)
+*Rest in peace, Helen! You had a hard fall and cracked your skull, those raccoon eyes and a smile upon your face...* ... Rest in peace, **Helen, better off dead**, [*you lucky one!*](https://youtu.be/1oqOrI8yK-4?list=TLPQMDIwMTIwMjbPlcg-LEObRQ&t=125)
