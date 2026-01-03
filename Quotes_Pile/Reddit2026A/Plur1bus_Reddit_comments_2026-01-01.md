@@ -1029,9 +1029,9 @@ Repeated link. I want to note that someone in the Reddit hive mind downvoted a s
 
 https://old.reddit.com/r/Pluribus_TVshow/comments/1q2fox9/spit_creation_date_error/nxd34j5/
 
-"As simple aas that!"
+"Simple as that!" attitude. High-speed commenting prized, deflecting and dismissing as fast as possible.
 
-1. Wikipedia has Jimmu McGill university
+1. Wikipedia has Jimmy McGill university
 
 2. Wikipedia article added December 21, 2025 during Pluribus Season One.
 
