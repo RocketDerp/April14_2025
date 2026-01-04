@@ -1698,3 +1698,8 @@ https://www.google.com/books/edition/The_Gutenberg_Galaxy/VWspDwAAQBAJ?hl=en&gbp
 >  push harmful rhetoric such as schizophrenics
 
 Literacy, books. University of Toronto, Canada.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q3cp4x/warning_massive_systemic_censorship_on_this/nxjv9tb/
+
+My reply message:
+
