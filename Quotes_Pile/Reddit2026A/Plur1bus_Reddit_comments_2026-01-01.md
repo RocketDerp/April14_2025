@@ -1508,3 +1508,17 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1q3cp4x/warning_massive_system
 My post, my comment. Censored! Network Censors!
 
 https://old.reddit.com/r/Pluribus_TVshow/comments/1q3cp4x/warning_massive_systemic_censorship_on_this/nxjr7p8/
+
+My reply, nothing the user profile content relates to hive mindedness:
+
+> Please message Vince lolllllll
+
+Can you help me? is Google Android competitor paying Reddit, is Elon Musk StarLink wanting to sabotage non-SpaceX Apple network?
+
+How are you doing this new year?
+
+&nbsp;
+
+> The monument of granite sent a beam into my eye.
+
+Wow, interesting message. Reference to Matthew 7:3-5 and also in Luke 6:41-42 ***Levant hive minds***?
