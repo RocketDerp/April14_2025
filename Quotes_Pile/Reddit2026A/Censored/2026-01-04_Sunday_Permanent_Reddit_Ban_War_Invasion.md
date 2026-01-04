@@ -376,3 +376,45 @@ The momentum of what Neil Postman described in year 1985: USA Today newspaper, C
 During the government shutdown food concerns in November 2025, every person knows of The Bible, yet nobody wants to bother with being the repeater and reminder all the time "Epstein List" of Bible Verse "1 John 3:17".  Instead, repeating and asserting 'Epstein List" has only made the legend of sexual power of Trump even bigger. Fundamentals of WHY you don't bully people with food and housing and diseases / bad health care system in "1 John 3:17" seems is not understood. Like Leo B said, osmosis isn't working!
 
 "You know what occurred to me? We teach everything in the world to people, except the most essential thing. And that is life. Nobody teaches you about life. You're supposed to know about it. Nobody teaches you how to be a human being and what it means to be a human being, and the dignity that it means when you say, "I am a human being." Everyone assumes this is something you have, or you should have gotten by osmosis. We'll it's not working by osmosis!"
+
+
+&nbsp;
+
+&nbsp;
+
+# Out in a blaze of glory
+
+My final Reddit comment before I went to sleep and was banned in the morning before I could comment again and answer messages / reply to people.
+
+&nbsp;
+
+<img width="1738" height="504" alt="image" src="https://github.com/user-attachments/assets/022bc2cb-e092-4f6a-be06-afbb43c2ee86" />
+
+...    
+
+> Outplurbed
+
+One word mocking, so fucking easy. One single word. Anti-understanding. Putin won. USA lost. We are super fucked.
+
+The god damn show name is year 1776 meanings, free masons. Russia won. We are mind-fucked idiots.
+
+...    
+
+<img width="1217" height="1136" alt="image" src="https://github.com/user-attachments/assets/8d3a778d-8bce-4ba9-b754-37ab20ff655e" />
+
+...    
+
+Reddit society coined a new world in 2025, "Outplurbed". Mocking the Founding Fathers, Mocking "The Little Guy" with big machine power and repetition. 
+
+The phrase I assert is "Surkov won", and this is exactly it. Celebration of Ignorance, Celebration of Trump. Not because people LIKE Trump, but because they Like hate of Trump. People like *hate itself* and Trump inspires it. The hate of Trump, the prizing of hate is the nation values that are retained. You don't apologize for hate. You don't feel regret like hate was a bad idea. Since March 2013, *hate harder every day*, *hate harder again* is the mindset. If you can find a very one-word think idea like Trump demonstrates all the time, if you can find weakness in poor people or people needing health care and global trade stability, you go for the weakness. You prize that hate works!
+
+* "And we get for the first time a phenomenon never known in polling which is the phenomenon of not liking a person, but of **liking liking** a person. This is a sign you are dealing with the hyperreal. **Let me go over that again**: Reagan’s popularity was popular. When you went through the various traits of Reagan and what Reagan stood for and his policies and so on, ah, vast numbers of people disliked nearly all of them. What was popular was his popularity." https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
+
+Liking hating a person. And all peoople. United States of deepest faith: Anti-Pluribus https://old.reddit.com/r/WarAll/
+
+&nbsp;
+
+And as I created the first line of this GitHub MarkDown page... the war of All Against All is yesterday. The invasion of Venezuela for Reddit audiences and mood of male 79 year old rich man aggression to the Reddit hive minded people. And people on notice that { Panama, Canada, Mexico, Greenland, Etc } are next. Hell, Israel may join the United States of America. [That's the Putin game of October 7 - Putin's Birthday. That's the Surkov Internet Research Agency *hate harder* outcomes.](/Bloomsday_2025/Donald_Trump_Hate_Watching_Reality_Twitter.md) Because people don't want to be *preachy* and preach world peace, they want to mock mock mock and repeat Trump's hate with *hate harder*.
+
+... "he phenomenon of not liking a person, but of liking liking a person."
+
