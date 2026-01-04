@@ -418,3 +418,7 @@ And as I created the first line of this GitHub MarkDown page... the war of All A
 
 ... "the phenomenon of not liking a person, but of liking liking a person."
 
+My Reddit account "CircleBird12" was created July 24, 2024   
+Few too close to the Pluribus great seal eye for standing up to bullies who scream "mental disorder" at you for not tolerating the Putin Surkov Russian Internet Research Agency March 2013 onward conditioned hate of Americans.
+12 was a reference to Pluribus 13. 0-12, 13 total.
+
