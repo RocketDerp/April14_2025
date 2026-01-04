@@ -227,3 +227,16 @@ https://old.reddit.com/r/politics/comments/1q3rp3o/trump_boasts_of_new_donroe_do
 Surkov won.
 
 The phrase "alternative facts" originated on January 22, 2017, when Kellyanne Conway, then Counselor to President Trump, used it on NBC's Meet the Press to defend White House Press Secretary Sean Spicer's false claims about the attendance numbers at Donald Trump's inauguration. Chuck Todd, the interviewer, challenged this, stating, "Look, alternative facts are not facts. They're falsehoods," highlighting the moment as a pivotal instance of political rhetoric"
+
+https://old.reddit.com/r/politics/comments/1q3w4f9/walz_condemns_trumps_depraved_remarks_implying/nxo769r/
+
+This discussion parallels my horror with Pluribus TV show audience since the series started. People *choose* the worst possible interpretation of the Great Seal of the United States. Banality. Star Wars fans and teachers have all ignored Joseph Campbell's two books from 1987 and 1988. People have no desire to read nonfiction of what motivates people after September 11, 2001 terrorism attacks. Even Howard Bloom's books get ignored. The avoidance of books on serious meanings.
+
+Even the avoidance of learning Bible verses in the face of horrific misunderstandings of The Bible in USA. 
+
+https://old.reddit.com/r/politics/comments/1q3w4f9/walz_condemns_trumps_depraved_remarks_implying/nxohc8d/
+
+"The liberal elites", un-named, non-specific, tiny-short messages of who to blame.
+
+Rupert Murdoch Fox news HDTV audience, Newsmax audience, Rush Limbaugh audience. All the things Jen Senko's year 2015 / 2016 film described. Russia Internet Research Agency audience!
+
