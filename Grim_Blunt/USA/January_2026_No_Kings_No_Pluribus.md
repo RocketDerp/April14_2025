@@ -23,7 +23,13 @@ Because that's it. That's what we mastered.
 Edward Bernays and Surkov anti-thinking is what we mastered.  
 We have mastered Enter Shikari "Discovery of Strings"    
 We have mastered how to manipulate the brain with Celebration of Ignorance.   
-We have mastered how to make junk information, Trump White House antics, the center of all language and understanding.
+We have mastered how to make junk information, Trump White House antics, the center of all language and understanding.    
+We have mastered how to shit-talk so good, to advertise and market and create low-importance sports entertainment, we created the "FIFA world peace prize"     
+We are so good at creating stadiums and product of television of sports events, "Celebration of Ignorance" anti-learning anti-teaching anti-school, for the sports players of the school, that the Great Seal became less important, eclipsed by "FIFA world peace prize".
+
+This isn't a joke. No joke can out-joke "Celebration of Ignorance" and what we have become, We the People, all of us, Pluribus. It isn't a joke, Infinite Jest joking out-jokes any joke. There is no satire, there is no sarcasm. The Pluribus TV series even tried to highlight that satire and sarcasm of a drunken woman playing with a loaded weapon she took zero time to study or analyze.
+
+People don't get the spirit of terrorism. https://www.lemonde.fr/disparitions/article/2007/03/06/l-esprit-du-terrorisme-par-jean-baudrillard_879920_3382.html - I did it, after 9, 11, 2001 (September 11, 2001) I had enough of seeing USA adopt what was delivered on 9/11. Shallow chanting, advertising of Levant religions in such a "Celebration of Ignorance" way... 
 
 This year 2020 story was late to describe what has already happened since June 16, 2015
 
