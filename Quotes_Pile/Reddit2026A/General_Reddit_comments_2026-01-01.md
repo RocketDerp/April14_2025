@@ -211,3 +211,7 @@ It's so entertaining, funny, amusing to people. Very popular comment. Trivializi
 Mocking that people can't find the good pages of The Bible on Sunday... when reading literacy of what people CHOOSE from the Bible is the problem. Just like Pluribus fandom on social media, chooses to not engage the spiritual goodness of the Founding Fathers ideals or lean what it means.
 
 https://github.com/GreatSealUSA/GreatSealUSA_Art/blob/main/PLUR1BUS/PLUR1BUS_Season_One/Bible_Book_Rorschach_Inkblot_Test.md
+
+https://old.reddit.com/r/news/comments/1q3vnsi/canadian_officials_say_us_health_institutions_no/nxnpxuw/
+
+Sickening. It's made me sick. And it isn't just "in charge". Bad information and junk is prized learning now. The worst information is desired as a "trigger" against other human persons. This is the War of All Against All. https://old.reddit.com/r/WarAll/
