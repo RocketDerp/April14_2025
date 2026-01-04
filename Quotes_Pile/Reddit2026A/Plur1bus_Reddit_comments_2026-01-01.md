@@ -1850,3 +1850,15 @@ My reply message:
 I'm getting all these "medical doctors" on Reddit who keep badgering me when I talk about Carol, Helen, Vince Gilligan, ABQ, Pirate Lady, a fiction television show meaning and ideas.
 
 I posted a message of a **medical doctor"* message I got on Reddit. Is this what people do on 4-day holiday weekends, Saturday Nigh in USA 2026?
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q3ez7j/a_television_show_plur1bus_creativity/nxkoq5v/
+
+Everyone is "rambling", what does that mean? never specific, just crying out that they don't grasp-comprehend. My reply message:
+
+> Seems like incoherent rambling
+
+Can you be specific and precise what you don't comprehend, grasp, understand? Is English your first language? Do you regularly have understanding issues?
+
+> Edited spelling 
+
+Language difficulties?
