@@ -1647,3 +1647,15 @@ Yes. There are a lot of MAGA anti- "Free Masons", "Free Thinkers" in this subred
 
 Thank you.
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q3cp4x/warning_massive_systemic_censorship_on_this/nxjwqqh/
+
+My reply message:
+
+> My brother has been diagnosed with paranoid schizophrenia for 14 years now. He is 33.
+
+Good for you and your brother. But that doesn't cure your gullibility and technology ignorance.
+
+
+Show me a screenshot of the censored messages? Do it! Stop acting like computers don't have records of censoship.
+
+Facts of URL proving censorship are not open to interpretation!
