@@ -1528,3 +1528,7 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1q3cp4x/warning_massive_system
 > This is a jerk sub pretending its not
 
 is Reddit site censoring your public PLUR1BUS messages, those censor jerks? Can you give me a link please? Thank you! *Happy new year 2026* also!!!
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q3cp4x/warning_massive_systemic_censorship_on_this/nxjso75/
+
+Reddit hive mind gaslighting.
