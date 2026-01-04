@@ -41,3 +41,29 @@ This is political debate in a democracy. No it’s not. It’s the simulation of
 In any case, the current political structures are way behind this curve. They don’t understand it well at all in spite of all the talk about “The Selling of the President“."
 
 https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
+
+&nbsp;
+
+&nbsp;
+
+# Last updated October 30, 2025
+
+The GitHub records show this document was updated 2025-10-30
+
+"media environment programming of politics being mocking, sports-think, sports mentality. Then goodness disappears" - **October 30, 2025**
+
+emphasized that enough? ;)
+
+1. "The FIFA Peace Prize was announced on November 5, 2025, by FIFA President Gianni Infantino during the America Business Forum in Miami. The award, meant to recognize exceptional efforts for peace, was presented for the first time at the 2026 World Cup draw in Washington D.C. in December 2025."
+
+2. "The recent large-scale U.S. military operation in Venezuela began with airstrikes in the early morning hours of January 3, 2026. This operation resulted in the capture of Venezuelan President Nicolás Maduro, who was flown to New York to face narcoterrorism charges."
+
+October 30, 2025 - " programming of politics being mocking, sports-think, sports mentality"    
+November 5, 2025 - a newly invented sports-origin FIFA "world peace award" mockery of diplomacy.        
+January 2, 2025 - Weapon systems on way to take over a nation's leader, anti-diplomacy   
+
+This is what it has become line, the trending social media induced behavior patterns. The sports-thinking mentality of politics as "team sports" and that "defeating the other teams" is a win for humanity.
+
+* "we canceled the Declaration of Independence and rejoined the British conquest of the planet. And so we are now on one side of the pyramid. We’ve moved from one to two. We are politically, historically, now a member of one side of an argument. **We do not represent that principle of the eye up there**. And all of our concerns have to do **with economics and politics** and not with the voice and sound of reason." - Before Campbell's death October 30, 1987
+
+I am beyond sickened. It has gotten so terrible since year 2012, worse and worse, trending the same badness way.
