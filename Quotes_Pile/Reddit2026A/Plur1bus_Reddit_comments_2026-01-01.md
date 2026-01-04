@@ -1732,3 +1732,18 @@ Well, "OP", me, which they showed shift works, uppercase works Why is "Christ" t
 
 This is the bullshit I get all the time here!
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q3ez7j/a_television_show_plur1bus_creativity/nxkbbgm/
+
+My reply message:
+
+> Hope you get the help you clearly need. Good luck.
+
+What does this message mean?
+
+The help I need is for people to stick to the topic of the Pluribus TV show on Reddit, and not insult and call me brain damaged and "need help" gas-lighting liars.
+
+# Do you abuse people all the time like this or only on holiday weekends?
+
+Do you go up to strangers in public and say "Hope you get the help you clearly need" every day? Is it your paid profession? 
+
+Why are you not discussing on a subreddit about a TV show, the actual TV show story?
