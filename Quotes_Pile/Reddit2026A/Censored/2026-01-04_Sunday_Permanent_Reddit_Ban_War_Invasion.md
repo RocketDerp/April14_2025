@@ -343,6 +343,8 @@ Nerds and autistic people build the internet, but now the "you need help" discus
 
 * Reddit ban message: "We don't tolerate any behaviors that discourage others from participating in communities, conversations, or the Reddit platform through harassment, bullying, intimidation, sexualizing someone without their consent, or abuse. Any communities or people that incite or engage in harassment or abuse towards an individual or group will be banned."
 
+The constant messages of "ok buddy cinema", "circle jerk" are all about doing exactly that.
+
 But apparently ceiling people "schizophrenic" in public and "go seek medical doctors" messages is allowed. You aren't allowed to call someone a cyber-bully. The deeper problem is people won't engage quotes from books that explain themes of the show. They just downvote or ignore them completely. They start talking about the person who shares comments instead of actually discussing the show themes and concepts. And you are supposed to just ignore the anti-intellectual behavior of avoiding the show discussion.
 
 I don't report people for personal insults. Because I don't think it should be swept under the rug. My entire point is describing the cesspool so people actually understand the problem. I think the behaviors should be discussed openly and people face up to the very issues of "Pluribus" world peace. 
