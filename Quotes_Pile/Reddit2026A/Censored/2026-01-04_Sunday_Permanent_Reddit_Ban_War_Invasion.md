@@ -199,7 +199,7 @@ Language difficulties?
 
 * what if I am incoherently rambling. What if that is all the language I can do with brain damage? Why are you bullying me for it?
 * The dog whistle of "send him to a RFK Jr autism camp" is all over Reddit towards me.
-* "Wellness farms" https://nursingclio.org/2025/05/08/rfks-ideas-about-wellness-farms-for-young-people-are-eugenic-and-unconstitutional/ - taht is year 2025, that is the world I live in, of Reddit society values. USA California Reddit. USA ABQ Pluribus TV show with Carol! that is the hive mind pressure I am under! That is REALITY. Not denial of reality.
+* "Wellness farms" https://nursingclio.org/2025/05/08/rfks-ideas-about-wellness-farms-for-young-people-are-eugenic-and-unconstitutional/ - that is year 2025, that is the world I live in, of Reddit society values. USA California Reddit. USA ABQ Pluribus TV show with Carol! that is the hive mind pressure I am under! That is REALITY. Not denial of reality. It has been **trending** since year 2013. Mass dehumanization and **worship billionaires**, anti-individual (poor people),  values.
 
 What people want is what they get. To silence outsiders, deviants, homosexuals, women, to drive people crazy enough they just leave Reddit.  They are non-specific...
 
