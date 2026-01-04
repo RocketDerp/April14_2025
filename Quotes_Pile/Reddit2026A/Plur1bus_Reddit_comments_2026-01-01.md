@@ -2072,3 +2072,12 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1q3j62e/the_best_hope_to_save_
 Yes. Daring to disagree with a thinking pattern and even trying to compare (comparative mythology, comparing government and social systems, even health care systems). Information warfare isn't new, billionaires manipulating people with Twitter isn't new. But we aren't asserting goodness of trying to address this. 
 
 https://old.reddit.com/r/Pluribus_TVshow/comments/1q3j62e/the_best_hope_to_save_the_world_is_actually_peer/nxliyv9/
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q3ob5n/new_rules/nxm2t7p/
+
+I am linking this comment to show the posting itself got downvoted! The downvoting to oppress any love one another and organization. The anti-wiki anti-FAQ values. The hate leadership of Donald Trump in USA, elected for a second term in office, is a real and serious problems. This show is about USA government ideals, morality and love and understanding. It isn't just an entertainment show.
+
+The main paribus sub is even worse! I've logged here how many people got banned. How can you have a TV show bout USA government ideals and say "no politics". The free masons are overrun by Christians who want to make war with Jewish, Muslims, and atheists. It's like having "The West Wing" an not being able to talk about politics! Or a show about a church and not being able to talk religion. The word "Pluribus" is a religious / spiritual ideal! Teaching!
+
+We aren't even being honest that hate is motivating people. When people wont' acknowledge that Trump leads by hate, people are attracted to hate... like, here, join our team-Christian so we can hate all non-Christina. It's entirely discarding authentic compassion and love. Its like a NFL sports game.
+
