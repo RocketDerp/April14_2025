@@ -240,3 +240,11 @@ https://old.reddit.com/r/politics/comments/1q3w4f9/walz_condemns_trumps_depraved
 
 Rupert Murdoch Fox news HDTV audience, Newsmax audience, Rush Limbaugh audience. All the things Jen Senko's year 2015 / 2016 film described. Russia Internet Research Agency audience!
 
+https://old.reddit.com/r/politics/comments/1q3w4f9/walz_condemns_trumps_depraved_remarks_implying/nxog911/
+
+"do not want us to pull back the veil to see we have all been duped." - Nothing can stop it! September 9, 2014 (18 months after it started): https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/politics/comments/1q3w4f9/walz_condemns_trumps_depraved_remarks_implying/nxob8hb/
+
+Always these suggestions on Reddit. The answer to ChatGPT and Grok AI filling the Internet with fiction, the answer to Rupert Murdoch fiction entertainment news network: **Add more fiction**! Always more fiction. That is the meme addiction of Reddit audience, cravings for more fiction storytelling. [This desire and attitude is cheering it on, it is "Celebration of Ignorance" as defined in year 1995 by Carl Sagan. Quote from Carl Sagan on this link](../Quotes_Pile/Carl_Sagan_Quotes.md). Since June 16, 2015 it has been endlessly expanding more and more faith that additional fiction and adding more tragedy to the information commons is a good thing. 
+
