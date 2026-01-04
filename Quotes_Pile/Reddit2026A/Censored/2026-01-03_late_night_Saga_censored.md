@@ -181,7 +181,7 @@ https://old.reddit.com/r/okbuddypluribus/comments/1q3ie2p/im_gonna_bus_a_plurib_
 2026-01-04  08:16:35 UTC     
 https://old.reddit.com/r/Pluribus_Sucks/comments/1q3jibz/vince_gilligan_waiting_until_halfway_through_the/nxlcx3o/
 
-* "Pluribus Sucks" subreddit. an organized anti-goodness fandom, and organised mocking club, hate group. where people weaponize that the "show sucks" hate mocking and insulting. A pro-ignorance echo-chamber.
+* "Pluribus Sucks" subreddit. an organized anti-goodness fandom, and organised mocking club, hate group. where people weaponize that the "show sucks" hate mocking and insulting people who discuss the show. A pro-ignorance echo-chamber.
 
 They slept for 3.5 hours?, got right back up after late-night mocking me. And went into their organized mocking training grounds for more mental hive mind heart hardening against the Founding Fathers / Vince Gilligan being taken seriously. Professional pro-ignorance agent. Declaring that outsiders live in a different reality. A person thriving in the MAGA USA cynical mocking.
 
