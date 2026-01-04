@@ -1826,3 +1826,17 @@ Your intimate come-on about my family is unwanted. You are very aggressive like 
 
 You can't even talk about Carol, ABQ, Helen, etc. You fixate on your social machine device touch fantasy!
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q3ez7j/a_television_show_plur1bus_creativity/nxkmd6s/
+
+"My last", ultimatum. Dictatorship "my final". MAGA Trump "my final warning rule commandment" against independently thinking diversity of any kind. Such egomania USA Trump behaviors of machine lovers of Reddit cloud computing systems. "I'm NOT HERE FOR YOU, I WILL NEVER EVER EVER EVER REPLY AGAIN!" dictators that praise USA Trump January 2026. Didn't used to be this way, society-wise. My reply:
+
+> I'm badgering you
+
+# "I'm badgering you"
+
+You can't not stand "Free Masons", Pluribus Latin origins   
+"Free thinking"  
+
+> I hope you get help soon
+
+From your entirely inappropriate abuse? You have been abusing me over and over.
