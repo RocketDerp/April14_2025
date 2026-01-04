@@ -15,7 +15,12 @@ https://click.redditmail.com/CL0/https:%2F%2Fwww.reddit.com%2Fr%2FPluribus_TVsho
 
 No evidence required!
 
-This is the message that got me banned for "harassment" Glad I preserved it, because the new Reddit owner technique is that even the login of the account can not be shown evidence of the message that caused the ban. Yes, you got that right, the secret police of Reddit ban you from replying to anyone who messages you and does not even provide evidence of your "crime". The message is removed from Reddit to even your own self, the author of the comment. Terrible policy.
+This is the message that got me banned for "harassment" Glad I preserved it, because the new Reddit owner technique is that even the login of the account can not be shown evidence of the message that caused the ban. Yes, you got that right, the secret police of Reddit ban you from replying to anyone who messages you and does not even provide evidence of your "crime". The message is removed from Reddit to even your own self, the author of the comment. Terrible policy. 
+
+Lucky I pasted a copy here when it was instantly censored by the automated A.I. of Reddit.. You can see the timestamp of saving at time of comment. Before I was band and I can no longer get a copy off Reddit now.
+
+<img width="1295" height="326" alt="image" src="https://github.com/user-attachments/assets/c253133c-4960-4b60-8c47-8953db074a9b" />
+
 
 &nbsp;
 
