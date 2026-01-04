@@ -1701,5 +1701,34 @@ Literacy, books. University of Toronto, Canada.
 
 https://old.reddit.com/r/Pluribus_TVshow/comments/1q3cp4x/warning_massive_systemic_censorship_on_this/nxjv9tb/
 
-My reply message:
+Exhausted. Can't keep up.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q3ez7j/a_television_show_plur1bus_creativity/nxkaf71/
+
+
+This is the messages I get on this subreddit. This is my Reddit hive mind encounters.
+
+A "doctorate" who can't capitalize any of their English sentences. A doctor that writes "ive" instead of "I've"
+
+The gas-lighting hive mind here is absurd wilding! 
+
+Is this a Jesus freak? Someone who hers God and Jesus in their head and doesn't want to discuss "Cam Freedom Falls" that had a "conversation therapy"  for Carol at age 16 by Jesus freaks (Bible hive mind) in Pluribus fiction story?
+
+> Christianity
+
+"Christ" is the ONLY WORD in the entire Reddit comment message that they capitalized. Look at the whole message. Sounds like Jesus freak!
+
+Well, "OP", me, which they showed shift works, uppercase works Why is "Christ" the ONLY word they get correct out of all the sentences? Smells like a "Jesus" freak, anti-lesbian Pluribus messaging.
+
+&nbsp;
+
+> to know exactly what is going on
+
+# KNOW EXACTLY WHAT IS GOING ON
+
+1. Incredibly gullible person on Reddit app?
+
+2. Thinks you can see magically from a few Reddit messages?
+
+This is the bullshit I get all the time here!
 
