@@ -142,3 +142,76 @@ There is no audience. Neil Postman's books rot on the shelf. And when people do 
 
 People do not call to "make the USA think like Carl Sagan 1995 book again"... I do! But I do not see it. I see hate for hate, mock for mock, hate vs. hate, mock vs. mock, a contest of *race to the bottom* of more hate, mocking, and machine dehumanization (blocking, banning), more deport-others, self-deport, chilling effect. I even mentioned chilling effect as my last message before being silenced on Reddit.
 
+...    
+...    
+...   
+...    
+
+# Reddit cesspool
+
+You are not allowed to be "unwell"     
+The Reddit media enviornment is toxic, and act like toxic is normal    
+The Reddit media environment is dehumanizing, and act like that's OK and "well"    
+
+Vince Gilligan February 15, 2025 called social media a cesspoool. And Reddit is part of the worst of it, so is Twitter and Facebook. 
+
+Being unwell on the day Trump is waging war on a nation because of his toxic mindsets and Fox News HDTV consumption... 
+
+<img width="1306" height="890" alt="image" src="https://github.com/user-attachments/assets/fdf80af1-0f96-4416-8cb7-c0f672a46ddd" />
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q3ez7j/a_television_show_plur1bus_creativity/nxkaf71/
+
+...   
+....    
+....    
+
+Other people sense weakness, vulnerability, oddity (my autism) and weakness on social media Trump Truth Social values MAGA USA 2025... (slamming the articulation context hard with all those words, the PRESSURE billionaires are pushing fro White House and Truth Social down upon everyday We The People, my own self included) 
+
+<img width="1105" height="1016" alt="image" src="https://github.com/user-attachments/assets/d99b8562-f47f-470e-96d1-e3e25fae45dd" />
+
+...
+
+Seems like incoherent rambling... think he is speaking about overstressed moderators. I'm not exactly sure.
+
+Edited spelling 
+
+...
+
+They say my writing is "incoherent" without citing one single word or quote of what they need help with understanding. Typical gaslighting and bullying tactic. "Your mom buys you ugly clothes", "you shirt isn't new and the latest fashion", "you are age 56 and you don't speak Fox News Language property", "you don't write in cool exiting ways like Donald Trump thrills us on social media", it is all *corner the little guy who is showing weakness* mob mentality.
+
+....
+
+....
+
+> Seems like incoherent rambling
+
+Can you be specific and precise what you don't comprehend, grasp, understand? Is English your first language? Do you regularly have understanding issues?
+
+Edited spelling
+
+Language difficulties?
+
+...
+
+....
+
+....
+
+* what if I am incoherently rambling. What if that is all the language I can do with brain damage? Why are you bullying me for it?
+* The dog whistle of "send him to a RFK Jr autism camp" is all over Reddit towards me.
+* "Wellness farms" https://nursingclio.org/2025/05/08/rfks-ideas-about-wellness-farms-for-young-people-are-eugenic-and-unconstitutional/ - taht is year 2025, that is the world I live in, of Reddit society values. USA California Reddit. USA ABQ Pluribus TV show with Carol! that is the hive mind pressure I am under! That is REALITY. Not denial of reality.
+
+What people want is what they get. To silence outsiders, deviants, homosexuals, women, to drive people crazy enough they just leave Reddit.  They are non-specific...
+
+# Everyday People Programmed
+
+On every media site, programmed since year 2014 to bully, seek out "libtard" weaknes messages, any kind of emotions, financial, weakness and corner people and gang up with mob mentality.
+
+To silence non-believers in Putin and Trump. In 2014, Putin was the richest man in the entire world who made is own laws, no restrictions on his domestic power! And he invaded Reddit, and altered behaviors to turn people into predators. even if they vote against Trump, hate Trump, hate itself distorts their mind. They Attack AMERICANS, they attack MAGA people with /r/LeopardsAteMyFace - and on Pluribus show, the idea of free  masons or founding fathers origins gets driven off.
+
+* "Russia-watcher Catherine Fitzpatrick, who documents Kremlin disinformation for InterpreterMag . com, says just as Moscow uses vague Internet laws to encourage self-censorship, trolls inhibit informed debate by using crude dialogue to change "the climate of discussion." "If you show up at The Washington Post or New Republic sites, where there's an article that's critical of Russia, and you see that there are 200 comments that sound like they were written by 12-year-olds, then you just don't bother to comment," she says.  "You don't participate. It's a way of just driving discussion away completely," she adds. "Those kinds of tactics are meant to stop democratic debate, and they work." - **year 2014** https://www.theatlantic.com/international/archive/2014/08/the-kremlins-troll-army/375932/
+
+...
+
+[Year 2014 description: Our Programmable Minds](/Art/ScreenPlay/Our_Programmable_Minds/Year_2014_Description.md)
+
