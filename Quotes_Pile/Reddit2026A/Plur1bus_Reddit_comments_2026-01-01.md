@@ -1811,3 +1811,18 @@ You are incredibly ignorant.
 > psychotic episodes,
 
 I don't hear you "Talking" in "voices" like your mindset, your system of wild thinking.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q3ez7j/a_television_show_plur1bus_creativity/nxklgcu/
+
+Wow, Breaking Bad and Saul fandom. Vince Gilligan was so right about cesspool in February 15, 2025! My reply:
+
+> Have you spoken to family and friends about Pluribus?
+
+No. Why are you *probing* like an *alien encounter* as to my personal intimate life? Are you a Donald Trump supporter, sexual deviant, who wants to get into my personal relationships?
+
+Why won't you talk about the TV show that is the community topic, why are you badgering me?
+
+Your intimate come-on about my family is unwanted. You are very aggressive like a USA person who supports Donald Trump hive mind attitudes without even realizing it!
+
+You can't even talk about Carol, ABQ, Helen, etc. You fixate on your social machine device touch fantasy!
+
