@@ -1785,3 +1785,15 @@ Exactly what have I "done wrong", police state person?
 https://old.reddit.com/r/Pluribus_TVshow/comments/1q3ez7j/a_television_show_plur1bus_creativity/nxkj9l0/
 
 My reply was censored. Insincere badger.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q3ez7j/a_television_show_plur1bus_creativity/nxkjdv3/
+
+First reply censored, this reply cleared censorship. My reply comment:
+
+> recover from and prevent future episodes
+
+You are trying to keep me away from Episode TEN, Season Two?
+
+Do you work for Netflix, sabotaging Apple TV+? Work for HBO Max?
+
+What a load of bullshit you live in. Reddit users are so ignorant.
