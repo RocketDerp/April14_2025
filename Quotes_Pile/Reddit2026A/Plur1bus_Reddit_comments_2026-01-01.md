@@ -1564,3 +1564,7 @@ Another who is anti-book anti-literacy. My reply:
 > they're just a good ol fashioned gang-stalked schizo 
 
 What gang are you imagining in your mind? Are you hearing voices of this "gang" you write about?
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q3cp4x/warning_massive_systemic_censorship_on_this/nxjvtlb/
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q3cp4x/warning_massive_systemic_censorship_on_this/nxjv9tb/
