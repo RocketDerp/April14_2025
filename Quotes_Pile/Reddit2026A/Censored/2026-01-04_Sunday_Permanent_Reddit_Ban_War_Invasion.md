@@ -253,3 +253,77 @@ My message was pretty clear about how cesspool and toxic Reddit social media was
 I'm getting all these "medical doctors" on Reddit who keep badgering me when I talk about Carol, Helen, Vince Gilligan, ABQ, Pirate Lady, a fiction television show meaning and ideas.
 
 I posted a message of a **medical doctor"* message I got on Reddit. Is this what people do on 4-day holiday weekends, Saturday Nigh in USA 2026?
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+...    
+...     
+
+# Badgering personal probes
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q3ez7j/a_television_show_plur1bus_creativity/nxklwje/
+
+...   
+....    
+....   
+
+<img width="1679" height="1481" alt="image" src="https://github.com/user-attachments/assets/608082f7-dd4d-4424-ae33-853d6a6cc7eb" />
+
+
+...    
+
+My message:
+
+...     
+...    
+
+> Have you spoken to family and friends about Pluribus?
+
+No. Why are you *probing* like an *alien encounter* as to my personal intimate life? Are you a Donald Trump supporter, sexual deviant, who wants to get into my personal relationships?
+
+Why won't you talk about the TV show that is the community topic, why are you badgering me?
+
+Your intimate come-on about my family is unwanted. You are very aggressive like a USA person who supports Donald Trump hive mind attitudes without even realizing it!
+
+You can't even talk about Carol, ABQ, Helen, etc. You fixate on your social machine device touch fantasy!
+
+...   
+....    
+....    
+
+Reddit audience reply message I get:   
+
+....    
+... https://old.reddit.com/user/lexaril    
+
+I'm badgering you because you're expressing signs of schizophrenia. Schizophrenia and the Internet do not mix well together. You need to seek help from family/friends/a doctor.
+
+This will be my last reply. I tried to get through to you but it didn't work. I hope you get help soon and I wish you the best
+
+...     
+...    
+...    
+
+My reply to this:
+
+... 
+....   
+....    
+
+> I'm badgering you
+
+# "I'm badgering you"
+
+You can't stand "Free Masons", Pluribus Latin origins   
+"Free thinking"    
+Intolerance is what you practice on Reddit.   
+
+> I hope you get help soon
+
+From your entirely inappropriate abuse? You have been abusing me over and over.
+
+&nbsp;
