@@ -1908,3 +1908,13 @@ My reply:
 Exactly and precisely WHAT on my profile is so terrible? Russian information warfare pinned posts?
 
 Is it this link at the top of my Reddit profile that freaks you out? https://old.reddit.com/r/WarAll/comments/1msqs1t/war_of_all_against_all_since_march_2013_war/ a video clip about information warfare from Putin and Surkov in year 2014?
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q3hg7h/is_the_plur1bus_hive_mind_schizophrenia_is_helen/nxktvki/
+
+Reply comment:
+
+> I think you're putting multiple questions into one sentence.
+
+Yes. Because I can't understand why so many people here ... (Reddit) comment: "schizo" post over the past months.
+
+Why are people so avoidant of book reading and so many comment "schizo" all over this electronic media system?
