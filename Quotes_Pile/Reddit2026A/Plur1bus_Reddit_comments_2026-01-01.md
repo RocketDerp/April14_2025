@@ -1672,4 +1672,4 @@ I posted URL evidence, where is your evidence I am wrong?
 
 Computers give **RECEIPTS**, prove I am wrong!
 
-https://old.reddit.com/r/Pluribus_TVshow/comments/1q1jncd/vince_gilligan_is_the_only_person_in_the_world_to/nx6i2g0/
+CENSORED: https://old.reddit.com/r/Pluribus_TVshow/comments/1q1jncd/vince_gilligan_is_the_only_person_in_the_world_to/nx6i2g0/
