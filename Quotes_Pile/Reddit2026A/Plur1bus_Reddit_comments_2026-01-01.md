@@ -1535,6 +1535,8 @@ Reddit hive mind gaslighting.
 
 https://old.reddit.com/r/Pluribus_TVshow/comments/1q3cp4x/warning_massive_systemic_censorship_on_this/nxjt2xp/
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q3cp4x/warning_massive_systemic_censorship_on_this/nxjufp3/
+
 "Bot" dehumanize, MAGA USA Reddit audience. My reply message:    
 
 > This dudes half bot. 
