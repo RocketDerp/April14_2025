@@ -2014,3 +2014,27 @@ Mocking is what Internet Research Agency did to USA. Hive mind, Marshall McLuhan
 September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
 
 You are in massive denial with the USA hive mind.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q3hg7h/is_the_plur1bus_hive_mind_schizophrenia_is_helen/nxl1rwb/
+
+Full unpopular direct. My reply:
+
+> I am not even talking about politics
+
+The magic word "politics" that has no specific meaning. Never precise, never accurate, just "anything"
+
+The fucking FOUNDING FATHERS MASONS is the title of Pluribus show.
+
+The USA is a hell hole in 2026. We are in HELL.
+
+Hell is not a place under the earth, it is a mindset.
+
+Wake the fuck up. Minute 22 of Episode One. Finnegans Wake. Stop acting like I am dumb or stupid and actually listen.
+
+The entire world is going into another world war.
+
+That is a RELIGION, FAITH concern. You dismiss it as "politics"
+
+# Democracy WILL NOT WORK without "Love thy Neighbor"
+
+hate the Spanish speakers is not love.
