@@ -1767,3 +1767,17 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1q3ez7j/a_television_show_plur
 Wont' talk about the TV show.
 
 https://old.reddit.com/r/Pluribus_TVshow/comments/1q3ez7j/a_television_show_plur1bus_creativity/nxkffm6/
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q3ez7j/a_television_show_plur1bus_creativity/nxkht0a/
+
+Nothing about the posting of the "doctor"...
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q3ez7j/a_television_show_plur1bus_creativity/nxkhqxb/
+
+My reply message:
+
+> You should really tell a family member 
+
+You sound like the Pluribus hive mind.
+
+Exactly what have I "done wrong", police state person?
