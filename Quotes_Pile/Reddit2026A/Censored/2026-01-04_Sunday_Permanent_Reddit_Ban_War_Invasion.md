@@ -327,3 +327,8 @@ Intolerance is what you practice on Reddit.
 From your entirely inappropriate abuse? You have been abusing me over and over.
 
 &nbsp;
+
+&nbsp;
+
+* Of course, Reddit censored this reply instantly, never published it.
+* The Reddit desire is to have I.C.E. secret police remove trouble-makers silently in the night. Masked people who "enforce" the removal of users. No-identity Reddit throw-away accounts, no-identity policing force. A nightmare of people disappeared in front f you every day. Millions of accounts, then people go create new ones. People have no sense of history, that long-distance communication allows people to be disappeared, body-less minds. Marshall McLuhan was teaching about this in the 1970's openly to the public. Now, people have no concept of the power they have handed and how being deport-happy USA is a result of TV channel blocking, social media blocking, book blocking, book censoring, book burning. James Joyce's books were banned in USA... not allowed.
