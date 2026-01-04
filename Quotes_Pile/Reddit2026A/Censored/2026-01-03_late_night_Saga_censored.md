@@ -29,7 +29,7 @@ I'm so sickened by this shit since the Russian Internet Research Agency invaded 
 
 * September 9, 2014 "Russia and the Menace of Unreality" - "How Vladimir Putin is revolutionizing information warfare" By Peter Pomerantsev https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
 
-* "The war zone, in other words, may not be – in defending the self – may not be any of the classical ones. Like the working class versus the ruling class, the slaves against the masters, oppressed women against, ah, patriarchal society, blacks against whites. No, the struggle in the future may be to maintain the real against the unreal or the hyperreal or the irreal."
+* "The war zone, in other words, may not be – in defending the self – may not be any of the classical ones. Like the working class versus the ruling class, the slaves against the masters, oppressed women against, ah, patriarchal society, blacks against whites. No, the struggle in the future may be to maintain the real against the unreal or the hyperreal or the irreal." - year 1993. Rick Roderick. https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
 
 * The very hours USA is invading Venezuela because of what that September 9, 2014 The Atlantic article by Peter Pomerantsev. The entire nation in denial of Hyper Reality taken over every level of society from Twitter to the White House.
 
