@@ -13,6 +13,9 @@ Chanting:
 3. Love one another
 4. February 28, 1954 a teacher from Atlanta USA cracked the code on hate. And we don't desire hate.
 5. Open and free medical knowledge and school teaching information, training, courseware
+6. We see the errors of our way: Fox News isn't just one man Murdoch, it's an attraction like Neil Postman wrote 11 years before Fox News, in 1985 book vs. October 7, 1996 Fox.
+7. We can't chant: we see an error, we are learning our error, "Amused To Death" is Fox News. We let it go for nearly 30 years since October 7, 1996 and we were way too slow to recognize what [prizing "Celebration of Ignorance" does to us](/Quotes_Pile/Carl_Sagan_Quotes.md), we all, we the people, Pluribus.
+
 
 Instead, we are so good at marketing and advertising Trump rules and so do hundreds of other aggressive men next in in for Trump.
 
