@@ -203,3 +203,11 @@ it is so much fucking worse in "Trump FIFA peace prize" 2026 now.
 https://old.reddit.com/r/politics/comments/1q3nwxy/defying_trump_venezuela_vp_says_we_will_never/nxme4hh/
 
 Top most popular comment on front page. Subreddit vs. Subreddit. Mocking group A mocking Group B. Americans mocking Americans. the brainrot of liberal vs. conservative, both of which are NOT what the founding fathers described. "then we canceled the Declaration of Independence and rejoined the British conquest of the planet. And so we are now on one side of the pyramid. **We’ve moved from one to two. We are politically, historically, now a member of one side of an argument**. We do not represent that principle of the eye up there. And all of our concerns have to do with economics and politics and not with the voice and sound of reason." - 1988 book, Power of Myth
+
+https://old.reddit.com/r/worldnews/comments/1q3py0c/pope_leo_calls_for_venezuela_to_remain_an/nxmhkx4/
+
+It's so entertaining, funny, amusing to people. Very popular comment. Trivializing our spiritual leaders teaching what USA nation doesn't grasp. The morality problems of raping another nation. Rich people do events like this because it keeps focus away from the poor and everyone today is commenting and engaged with Trump and Putin's Kremlin and White House. Surkov won. We are in runaway entertainment Reality TV thrills. More I.C.E. raids, South Park episodes to repeat.
+
+Mocking that people can't find the good pages of The Bible on Sunday... when reading literacy of what people CHOOSE from the Bible is the problem. Just like Pluribus fandom on social media, chooses to not engage the spiritual goodness of the Founding Fathers ideals or lean what it means.
+
+https://github.com/GreatSealUSA/GreatSealUSA_Art/blob/main/PLUR1BUS/PLUR1BUS_Season_One/Bible_Book_Rorschach_Inkblot_Test.md
