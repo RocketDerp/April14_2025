@@ -2116,3 +2116,24 @@ I consider the Great Seal to be exactly how McLuhan describes Finnegans Wake!
 https://github.com/GreatSealUSA/GreatSealUSA_Art/blob/main/PLUR1BUS/PLUR1BUS_Season_One/Bible_Book_Rorschach_Inkblot_Test.md
 
 https://github.com/GreatSealUSA/GreatSealUSA_Art/blob/main/Dreamrot/Dreamrot_Art_Measuring_Tools.md
+
+
+
+
+https://old.reddit.com/r/DnDcirclejerk/comments/1q3f4nq/this_subreddit_is_leaking/nxkn4av/
+
+This is the user I called pro-ignorance and got banned for saying that to them.
+
+* an organized "circle jerk" mocking club, where people weaponize mocking and insulting. A pro-ignorance echo-chamber.
+
+https://old.reddit.com/r/okbuddypluribus/comments/1q3ie2p/im_gonna_bus_a_plurib_in_my_pants/nxlcqqk/
+
+This is the user I called pro-ignorance and got banned for saying that to them.
+
+* "ok buddy, Pluribs" subreddit. an organized "circle jerk" mocking club, where people weaponize mocking and insulting. A pro-ignorance echo-chamber. "I'm gonna bus a plurib in my pants" topic
+
+https://old.reddit.com/r/Pluribus_Sucks/comments/1q3jibz/vince_gilligan_waiting_until_halfway_through_the/nxlcx3o/
+
+This is the user I called pro-ignorance and got banned for saying that to them.
+
+* "Pluribus Sucks" subreddit. an organized anti-goodness fandom, and organised mocking club, hate group. where people weaponize that the "show sucks" hate mocking and insulting. A pro-ignorance echo-chamber.
