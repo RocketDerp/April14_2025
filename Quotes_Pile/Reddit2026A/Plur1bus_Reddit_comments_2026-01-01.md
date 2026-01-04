@@ -2056,3 +2056,13 @@ At Minute 22 of Episode one of Pluribus, the James Joyce book "Finnegans Wake" i
 Am I loud enough?
 
 Woke? Year 1923? WOKE, "Being Woke" over 100 years ago?
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q3j62e/the_best_hope_to_save_the_world_is_actually_peer/nxl64rg/
+
+Message reply:
+
+> Outplurbed
+
+One word mocking, so fucking easy. One single word. Anti-understanding. Putin won. USA lost. We are super fucked.
+
+The god damn show name is year 1776 meanings, free masons. Russia won. We are mind-fucked idiots.
