@@ -1659,3 +1659,17 @@ Good for you and your brother. But that doesn't cure your gullibility and techno
 Show me a screenshot of the censored messages? Do it! Stop acting like computers don't have records of censoship.
 
 Facts of URL proving censorship are not open to interpretation!
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q3cp4x/warning_massive_systemic_censorship_on_this/nxjydl9/
+
+My reply message:
+
+>  no matter how many games you try to play
+
+You are the gamer here on Reddit machines playing games.
+
+I posted URL evidence, where is your evidence I am wrong?
+
+Computers give **RECEIPTS**, prove I am wrong!
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q1jncd/vince_gilligan_is_the_only_person_in_the_world_to/nx6i2g0/
