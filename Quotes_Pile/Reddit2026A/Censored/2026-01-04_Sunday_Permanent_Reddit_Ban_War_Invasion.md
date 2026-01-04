@@ -338,3 +338,15 @@ Ultimately everyone is copying the massive financial and power success of Donald
 Nerds and autistic people build the internet, but now the "you need help" discussion of a TV show and a real-world Founding Fathers Free Masons symbolism system gets people mocking and insulting you. Even TRYING to stand up for your convictions is mocked. The mental anguish of living under Donald Trump and not finding hate amusing and funny all the time... is horrific.  "Hurts like heck" 
 
 * "1:11:04 thirdly, there is the individual who rises above these and becomes the conscious choice maker. Less you think this kind of person has a wonderful time all the time. 1:11:27 and to be conscious hurts. [it hurts like heck. it hurts like hell. Because, to make those decisions, that's worse than anything."](../../Stephan_A_Hoeller_Quotes.md)
+
+&nbsp;
+
+* Reddit ban message: "We don't tolerate any behaviors that discourage others from participating in communities, conversations, or the Reddit platform through harassment, bullying, intimidation, sexualizing someone without their consent, or abuse. Any communities or people that incite or engage in harassment or abuse towards an individual or group will be banned."
+
+But apparently ceiling people "schizophrenic" in public and "go seek medical doctors" messages is allowed. You aren't allowed to call someone a cyber-bully. The deeper problem is people won't engage quotes from books that explain themes of the show. They just downvote or ignore them completely. They start talking about the person who shares comments instead of actually discussing the show themes and concepts. And you are supposed to just ignore the anti-intellectual behavior of avoiding the show discussion.
+
+I don't report people for personal insults. Because I don't think it should be swept under the rug. My entire point is describing the cesspool so people actually understand the problem. I think the behaviors should be discussed openly and people face up to the very issues of "Pluribus" world peace. 
+
+Bullies and warmongers end up in power because people prize hate. I can't find anyone wanting to prize MLK Jr's teachings from February 28, 1954. And people don't even want to discuss the ideas.
+
+Vince Gilligan is doing what everyone desires. Go spend millions of dollars per episode and create a 9 hour presentation that takes 3 years to create. And send your message in a nice wrapped package. But people entirely do not get the point. Nor do people find Joseph Campbell's two books attractive. Goodness itself is not attractive.
