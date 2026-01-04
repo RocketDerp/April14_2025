@@ -1496,3 +1496,9 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1q32tc1/helen_the_invisible_vi
 This is an important point, the peer pressure and the second hand smoke that Carol takes up smoking peer pressure. Copycat behaviors etc. These are all "hive mind" forces.
 
 BTW: this user just now blocked me in the last 30 minutes, without any comment. People are so dehumanizing with the power of Reddit servers. People can't even tolerate different interpretations of a TV show in a FORUM dedicated to public discussion. They have to go out of their way to block people and make it clear they can't stand / tolerate many voices. Anti-democracy, anti-goodness MAGA USA behaviors of deporting immigrants, etc.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q37ahf/after_what_happened/nxirk5w/
+
+<img width="1674" height="766" alt="image" src="https://github.com/user-attachments/assets/7b0ba5ba-8a6f-40f1-a47f-e3def18dc4b2" /> This user account https://old.reddit.com/user/Real_ZAnon creates the most recent 3 postings on the subreddit (the 4th isn't about Pluribus, is an advertisement). So the ONLY discussions the past 2 hours, are all by this user. WHO now BLOCKED ME! SO they literally are "sucking all the oxygen" out of the room / subreddit!
+
+This means that ANY other person who comments on any of the 3 postings, I can't reply to. The Reddit system blocks entire threads from the account on down. So there are say 25 people, I can't reply to ANY of 3 postings because of 1 single person!
