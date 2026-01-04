@@ -1522,3 +1522,9 @@ How are you doing this new year?
 > The monument of granite sent a beam into my eye.
 
 Wow, interesting message. Reference to Matthew 7:3-5 and also in Luke 6:41-42 ***Levant hive minds***?
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q3cp4x/warning_massive_systemic_censorship_on_this/nxjrv2v/
+
+> This is a jerk sub pretending its not
+
+is Reddit site censoring your public PLUR1BUS messages, those censor jerks? Can you give me a link please? Thank you! *Happy new year 2026* also!!!
