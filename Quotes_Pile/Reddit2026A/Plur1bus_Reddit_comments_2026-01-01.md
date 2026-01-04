@@ -1960,3 +1960,9 @@ cool. When that happens fictional bad guys stop being the cautionary tales that 
 
 12:07       
 Greatest [Generation](https://youtu.be/I0fGxujeJbY?t=70) types who give more than they take. Who ***think*** **that kindness tolerance and sacrifice aren't strictly for** ***Chumps!***
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q3hg7h/is_the_plur1bus_hive_mind_schizophrenia_is_helen/nxkvq3f/
+
+> This is exactly what I'm talking about.
+
+What is "this"? Me as a human person? your anti-forgiveness, your anti-compassion, your hate and intolerance for human persons based on text on a screen you get?
