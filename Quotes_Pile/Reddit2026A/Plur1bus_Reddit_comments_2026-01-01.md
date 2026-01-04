@@ -2136,4 +2136,4 @@ https://old.reddit.com/r/Pluribus_Sucks/comments/1q3jibz/vince_gilligan_waiting_
 
 This is the user I called pro-ignorance and got banned for saying that to them.
 
-* "Pluribus Sucks" subreddit. an organized anti-goodness fandom, and organised mocking club, hate group. where people weaponize that the "show sucks" hate mocking and insulting. A pro-ignorance echo-chamber.
+* "Pluribus Sucks" subreddit. an organized anti-goodness fandom, and organised mocking club, hate group. where people weaponize that the "show sucks" hate mocking and insulting people who discuss the show. A pro-ignorance echo-chamber.
