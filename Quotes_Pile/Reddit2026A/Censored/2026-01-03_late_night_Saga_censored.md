@@ -25,7 +25,15 @@ More than anything, it is quoting of nonfiction books that are serious that real
 
 I'm so sickened by this shit since the Russian Internet Research Agency invaded Reddit commenting and programmed minds to prize hate and prize dehumanization. that's why people prize Trump. It's so sick and sickening to be living under these audience values of "as long as we can call Trump orange and share his photo every day, and videos of him dancing", etc.
 
+**"your own lil reality"** from a Reddit user. Mocking away. With the abbreviated "little" for added charm.
 
+* September 9, 2014 "Russia and the Menace of Unreality" - "How Vladimir Putin is revolutionizing information warfare" By Peter Pomerantsev https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+* "The war zone, in other words, may not be – in defending the self – may not be any of the classical ones. Like the working class versus the ruling class, the slaves against the masters, oppressed women against, ah, patriarchal society, blacks against whites. No, the struggle in the future may be to maintain the real against the unreal or the hyperreal or the irreal."
+
+* The very hours USA is invading Venezuela because of what that September 9, 2014 The Atlantic article by Peter Pomerantsev. The entire nation in denial of Hyper Reality taken over every level of society from Twitter to the White House.
+
+&nbsp;
 
 &nbsp;
 
@@ -73,7 +81,7 @@ But people would rather deny the Internet Research Agency impact on White House,
 
 &nbsp;
 
-
+&nbsp;
 
 &nbsp;
 
