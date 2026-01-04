@@ -106,6 +106,14 @@ In my experience and witness and study: This is often how Muslims Christians beh
 
 Exactly WHAT? Quote it, be precise, stop gaslighting me because you are in Reddit hive mind!
 
+...
+
+Oakianus 3 points 12 hours ago    
+
+That you appear to be exhibiting signs of a mental health crisis and you should seek assistance.
+
+It's okay! There's nothing wrong with having a crisis any more than there's something wrong with stepping on a nail. It's just that it's a problem that is unlikely to get better without the intervention of a medical professional.
+
 ...    
 ...   
 ...   
@@ -118,4 +126,8 @@ Exactly WHAT? Quote it, be precise, stop gaslighting me because you are in Reddi
 
 * there is no **medical treatment from a doctor because Donald Trump is invading Venezuela** and causing anxiety! The fact so many people are avoiding the spiritual topics of the TV show, the spiritual meaning of "Pluribus" just adds t the MAGA USA 2026 reality. USA wasn't like this at all in 2013, nor was Reddit society like this in conversations.
 
+* "There's nothing wrong with having a crisis any more than there's something wrong with stepping on a nail." Oh, what a message, **normalize anything** with that 1-bit logic. Step on nails, is' ok. Donald Trump is invading Venezuela and putting people in the hospital for no good reason, that's just something we should all not have any emotions or reaction to! ""There's nothing wrong with having a crisis" o October 7, 2023 Muslims who can't read the Quran, a science fiction story, properly and people who are MAGA who can't read Fox News HDTV as fiction properly.... yha "There's nothing wrong with having a crisis" with the celebration of Jinadi invasion of Israel on October 7 morning and killing 1,200 people! Or world leaders invading other nations with no serious effort of diplomacy or even interest in anything *goodness*. Don't be disturbed with how USA people are prizing war and on a warpath and doing everything they can to not grasp teaching of the Great Seal of the United States of America ideals of world peace and unity. No, wage war, cheer it on, don't be upset / disturbed / alarmed / or behave in any way with desires for the Founding Fathers symbolism to be understood as they were intended!
+
+* If Reddit society wouldn't shut me down with false reports even more for being "crazy" because Donald Trump and Rupert Murdoch and Putin are driving EVERYONE crazy, I'm just more open and honest about the situaiton! I would post this on EVERY comment in Pluribus of mine. But they would call it spam or something else to AVOID the context of where I am coming from and how serious I am about this show's topic of Latin word Pluribus borrowed from the Founding Fathers of the USA.
+     *  ::::=== "the entire philosophy the early republic was based upon. And how utterly deplorable and regrettable and terrible it is that all of this has been virtually totally forgotten by our days. And that we have held, The American People, have held in their very hands, handed to them by people like Franklin and Jefferson and all kinds of others... One of the most splendid treasures of spiritual philosophy - applicable to all manner of human purposes. And we have discarded it. And we are running around like beggars, the world over, picking up crumbs from every kind of anarchists, Marxists, this thing, fascists, this thing that thing, all over the world. All of which, put together, could never come close to the psychological spiritual wisdom that was given to us to begin with... and that we have simply forgotten about and thrown away. And how incredibly unfortunate and terrible this is." https://youtu.be/08R1kPdfrHA?t=4427 - Dr. Stephan A. Hoeller (immigrant to USA), 1987 ===:::
 
