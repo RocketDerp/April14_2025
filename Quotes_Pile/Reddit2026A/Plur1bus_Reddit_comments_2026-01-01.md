@@ -1568,3 +1568,32 @@ What gang are you imagining in your mind? Are you hearing voices of this "gang" 
 https://old.reddit.com/r/Pluribus_TVshow/comments/1q3cp4x/warning_massive_systemic_censorship_on_this/nxjvtlb/
 
 https://old.reddit.com/r/Pluribus_TVshow/comments/1q3cp4x/warning_massive_systemic_censorship_on_this/nxjv9tb/
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q3cp4x/warning_massive_systemic_censorship_on_this/nxjw4o3/
+
+My reply comment:
+
+> Are "massive, systemic" actions taken by individuals or do they require a group?
+
+plural individuals is a group? Do you mean one person or many persons?
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q3cp4x/warning_massive_systemic_censorship_on_this/nxjvk0m/
+
+No sense of civic duty? My reply comment:
+
+> Please seek help!!
+
+What help are you offering? 
+
+Do you know the USA nation is waging war against other nations, invading people with lies and falsehoods? Can you help me with that crisis of gullibility in United States of America nation? Please?
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q3cp4x/warning_massive_systemic_censorship_on_this/nxjvhx3/
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q3cp4x/warning_massive_systemic_censorship_on_this/nxjvhx3/
+
+My reply message: 
+
+> You aren’t being censored. You are being disregarded
+
+Are you a lawyer, legal representative of Reddit? Is this the corporation in California's answer? Or do you bullshit and deceive people? Do you know the difference between a fiction TV show and reality Reddit that is non-fiction lings to censored messages?
+
