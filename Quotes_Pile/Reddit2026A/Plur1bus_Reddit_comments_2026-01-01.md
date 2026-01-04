@@ -1862,3 +1862,12 @@ Can you be specific and precise what you don't comprehend, grasp, understand? Is
 > Edited spelling 
 
 Language difficulties?
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q3ez7j/a_television_show_plur1bus_creativity/nxkp2ej/
+
+> Dang bird, lighten up.
+
+Why don't you tell that to the "medical doctors" who keep badgering me for quoting a book published in year 1988?
+
+Based on my extensive study of Reddit society, /r/All, people consume Donald Trump images and photography so much of Donald Trump that they are meme stupid! An entire community that drowns in bullshit of Trump messaging. Meme stupors abound! They stumble into anything non Trump-MAGA and go on warpaths and start waging wars!
+
