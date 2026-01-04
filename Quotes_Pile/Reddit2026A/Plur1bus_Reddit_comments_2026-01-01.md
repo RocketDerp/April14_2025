@@ -1907,4 +1907,4 @@ My reply:
 
 Exactly and precisely WHAT on my profile is so terrible? Russian information warfare pinned posts?
 
-Is it this link at the top of my Reddit profile that freaks you out? https://old.reddit.com/r/WarAll/comments/1msqs1t/war_of_all_against_all_since_march_2013_war/https://old.reddit.com/r/WarAll/comments/1msqs1t/war_of_all_against_all_since_march_2013_war/
+Is it this link at the top of my Reddit profile that freaks you out? https://old.reddit.com/r/WarAll/comments/1msqs1t/war_of_all_against_all_since_march_2013_war/ a video clip about information warfare from Putin and Surkov in year 2014?
