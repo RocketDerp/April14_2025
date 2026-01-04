@@ -1966,3 +1966,25 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1q3hg7h/is_the_plur1bus_hive_m
 > This is exactly what I'm talking about.
 
 What is "this"? Me as a human person? your anti-forgiveness, your anti-compassion, your hate and intolerance for human persons based on text on a screen you get?
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q3hg7h/is_the_plur1bus_hive_mind_schizophrenia_is_helen/nxkxh86/
+
+My reply:
+
+> I think the issue is you are disconnecting and reconnecting lines that may not exist.
+
+Maybe they are just really heavy and difficult lines you can't grasp?
+
+1. How much do you know James Joyce's Finnegans Wake?
+
+2. Do you recognize the symbolism issues at minute 37 of Episode Two of Pluribus with the POTUS Seal? The eagle pointing to the "right bird wing" instead of the "left wing"? 4 out of 13 stars missing?
+
+3. Do you have any education on free mason symbolism? Who are your teachers?
+
+4. At minute 22 of Episode One, Helen introduces graduate study of Finnegans Wake.
+
+5. Do you know who Marshall McLuhan is and what he had to say about Finnegans Wake? What he had to say about literacy and schizophrenia? Book reading and schizophrenia?
+
+>  please reflect on your post title
+
+I'm reflecting on Founding Fathers, Free Masons. And Donald Trump and Putin's buddy relationship. The ignorance of an entire nation of over 300 million people! That's my 250 year USA reflection.
