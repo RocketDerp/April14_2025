@@ -87,3 +87,35 @@ KEYWORDS: Information Warfare, Public Relations, Marshall McLuhan, Neil Postman,
 ...   
 ...    
 ...    
+
+this is the way the information warfare game plays.
+
+1. You ask for exact quotes of what disturbs the person so badly
+
+2. They do not provide any quotes or specific, vague and non-specific gaslight of what is so alarming and disturbing.
+
+In my experience and witness and study: This is often how Muslims Christians behave towards homosexual. Some implied "crime" that they won't describe. Some alarming disturbing thing that a person has done t that they won't articulate. You can see this in the fandom of shows, like Pluribus, with lesbians. 
+
+...    
+...    
+...   
+
+<img width="1748" height="798" alt="image" src="https://github.com/user-attachments/assets/29ad8036-9937-4461-a66e-053f9656a94b" />
+
+> Yeah, OP, this is just an observable fact.
+
+Exactly WHAT? Quote it, be precise, stop gaslighting me because you are in Reddit hive mind!
+
+...    
+...   
+...   
+
+* that's the game. "it is fact", "i can see fact" - I can see into your brain "fact" in a TV show community about a hive mind seeing into each other's brain.
+
+* Is anyone being threatened? Is self-harm threatened? no. Just disturbing world peace ideas and concepts being discuss. The idea of equality, universal love, compassion for all mankind. That's what disturbs competitive people who live in Donald Trump 2026 egoism / egomania Musk internet culture. To question egoism, to BE attracted to the show because of the Great Seal of the United States of America progressive 13 step thinking system - seems insane to people who thin a war 7 hours earlier is not impacting the minds of the entire planet via news reporting systems! World war is being sparked by people who prize greed and power, oil and attention seeking. Anti-goodness, anti-health care
+
+* This person very well knows the medical system in USA is a insurance money nightmare. And it is a holiday weekend when services are taxed. By invoking "medical" they are trying to shove you into Donald Trump RFK Jr help plan. It is all non-specific stress attacks, to try to find your weak points as an American and manipulate them. I even called out manipulated, which you can see the word repeated in the reply.
+
+* there is no **medical treatment from a doctor because Donald Trump is invading Venezuela** and causing anxiety! The fact so many people are avoiding the spiritual topics of the TV show, the spiritual meaning of "Pluribus" just adds t the MAGA USA 2026 reality. USA wasn't like this at all in 2013, nor was Reddit society like this in conversations.
+
+
