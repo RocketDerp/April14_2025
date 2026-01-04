@@ -1532,3 +1532,25 @@ is Reddit site censoring your public PLUR1BUS messages, those censor jerks? Can 
 https://old.reddit.com/r/Pluribus_TVshow/comments/1q3cp4x/warning_massive_systemic_censorship_on_this/nxjso75/
 
 Reddit hive mind gaslighting.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q3cp4x/warning_massive_systemic_censorship_on_this/nxjt2xp/
+
+"Bot" dehumanize, MAGA USA Reddit audience. My reply message:    
+
+> This dudes half bot. 
+
+HALF-bot? HALF-BREED. MAGA USA Dog Whistle, DOG fog-horn message against Free Thinkers in the USA! You *are the cesspool* Vince Gilligan talked about February 15, 2025 - the MAGA hive-minded person! Programmed to non-person free thinkers, free masons!
+
+.> half bot
+
+https://www.youtube.com/watch?v=uc6f_2nPSX8
+
+LYRICS:    
+"My heart is human, my blood is boiling, my brain IBM..."
+So if you see me acting strangely, don't be surprised"
+
+Artist: Styx    
+Released: 1983    
+Album: Kilroy Was Here    
+
+1983 24-bit IBM mainframe!
