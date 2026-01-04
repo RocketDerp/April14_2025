@@ -1886,3 +1886,13 @@ My reply:
 > Hey why are you jumping on me?
 
 Why are you asking me permission? Questions?
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q3hg7h/is_the_plur1bus_hive_mind_schizophrenia_is_helen/nxks1pv/
+
+My reply:
+
+> can someone ban this guy already he's been doing this for a while
+
+You hate me? Why do you hate me? Are you the "Bigot" values I asked about?
+
+Is having any thought outside of "normal" Reddit *hive mind* an emotional hate trigger for you to ban and dehumanize people? Do you reach for ban button any time, plea to authority to deport and ban people, to dehumanize them using powerful cloud computing machines?
