@@ -215,3 +215,24 @@ To silence non-believers in Putin and Trump. In 2014, Putin was the richest man 
 
 [Year 2014 description: Our Programmable Minds](/Art/ScreenPlay/Our_Programmable_Minds/Year_2014_Description.md)
 
+&nbsp;
+
+&nbsp;
+
+# On topic of the show
+
+People are talking about me, but when I bring up the "hive mind" metaphors of the show and apply it to Reddit, they don't get the connection of the show being about the real USA nation values, concepts, ideas.
+
+This is in the thread about me being "unwell", that this person replied to. I didn't just message them out of the blue, they were in the "unwell" tree of messages.
+
+<img width="1503" height="1404" alt="image" src="https://github.com/user-attachments/assets/6b5e65a9-5af6-46b7-a55d-6e53abbf0472" />
+
+* "Wake up man, free thinking, free society, free masons is what USA is about. Stop seeking Reddit hive mind permission!"
+
+The Reddit hive mind is telling me to use USA medical system because I am "unwell" because RFK Jr and Donald Trump are the most popular people. Hate of Trump is popular. His every power is hate.
+
+Hate itself has made me unwell since June 15, 2015 (Trump became center of society attention and people marveled at the entertainment and anti-goodness Trump originates) and I called the Pentagon in August 17, 2015. All hate is bad, and my hyper-empathy has been pummeled by the mob mentality of people thinking team sports, find a weak person, defeat them with banning / blocking / deportation. Instead of helping immigrants with the legal paperwork in USA, it's an aggressive mocking and "treatment" system. And people on Reddit can't see that gong to RFK Jr controlled "mental health" is just as toxic. I do not get a thrill from MAGA USA nation. Not just MAGA, but the people who *seek* hate on Reddit to mock and hate MAGA. All hate is toxic to me, swimming in a toxic cesspool of social media like Vince Gilligan described February 15, 2025 at his writers guild speech. 
+
+I don't want to hate MAGA, I don't want to hate Putin, I don't want to hate Trump, I don't want to hate my self as a human on planet Earth. I want Pale Blue Dot Pride and I believe, it is my faith, that we the people must address hate itself and end hate. Not waiting of a magical Kepler 22B signal or Eden signal of science fiction story to *fix it for us* from outside Earth. We The People, All of Us, Pluribus - must work hard and hammer past the egoism to recognize the programming since year 2014 [Year 2014 description: Our Programmable Minds](/Art/ScreenPlay/Our_Programmable_Minds/Year_2014_Description.md) that has wrecked the USA and beyond. The poisoning of the Great Seal of the Untied States of America messages, including Latin word "PLURIBUS". 
+
+
