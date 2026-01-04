@@ -37,3 +37,18 @@ Machine message programming of audiences on Reddit touch devices. That's the ARG
 
 Putin has EVERYONE, ALL 100% of We The People, in these hate vs. hate, hate for hate, feedback loops.
 
+https://old.reddit.com/r/TikTokCringe/comments/1q3tuyb/this_is_america_with_our_new_oil/nxn9lt6/
+
+I honestly just can't take this any more. Front page of Reddit. People are humor-washing, entertainment-washing, artificial intelligence praising, dreaming they could tweak him fatter in the AI video. 
+
+The experience of being media awake to Neil Postman's 1985 book "Amusing Ourselves To Death" and the rise of MAGA. People are so attracted to MAGA images. The 2025 South Park entertainment of MAGA, this video. It isn't even just one person, Trump.
+
+Neil Postman already wrote the book, and I did everything speaking in the streets that this was Trump's power. And Time magazine published it last fall too, and people just keep feeding the desires for more and more fiction content. Fiction of watching White House dance. Trump shares these fiction videos himself. Because he knows mobs of Reddit and Twitter will rush to it and drown out Neil Postman.
+
+What really bothers me now is that the bar is so low, the slightest non-Trump leader will be ruled. And the Pluribus hive mind concept will never have taken off. Carl Sagan's 1995 book really was right. And my hopes (the Elvis song in Pluribus trailer of hope) is gone. Social media addictions, what Neil Postman described, created this Trump invading nations. People prize mocking at him as fat. that's it. Like they prize mocking people as dumb and stupid. It's not teaching. And when you promote teaching, as Malala did back in year 2012 and year 2013, it gets ignored.
+
+* [Timeline of Donald Trump being center of attention vs. Malala's girls, young people (millions, not just one Malala) being center of attention year 2012 onward](/PostMalala/Marriage/World_Malala_Timeline_Year_2012.md)
+
+* "The plain lesson is that study and learning — not just of science, but of anything — are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995, page 59
+
+This was correct in year 1995, and we are living in the outcomes of that. And Carl Sagan people listened to, but still the Apple iPhone in year 2007 set prizing of tiny-short dancing Trump or dancing whoever is next entertainment. 
