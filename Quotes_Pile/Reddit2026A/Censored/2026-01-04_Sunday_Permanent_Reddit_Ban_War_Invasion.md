@@ -428,3 +428,13 @@ I could not stand the attitudes people had that guns were cool. The Luigi Decemb
 Star Wars The Force Day 1939. We finally from Paris had *the big picture*, but we still marched into World War Two with Christians in Church burning down the Jewish people and Synagogue in Germany. *hate harder* is so powerful. 
 
 * “Joyce is, in the Wake, making his own Altamira cave drawings of the entire history of the human mind, in terms of its basic gestures and postures during all the phases of human culture and technology. As his title indicates, he saw that the wake of human progress can disappear again into the night of sacral or auditory man. The Finn cycle of tribal institutions can return in the electric age, but if again, then let’s make it a wake or awake or both. Joyce could see no advantage in our remaining locked up in each cultural cycle as in a trance or dream. He discovered the means of living simultaneously in all cultural modes while quite conscious.” — Marshall McLuhan
+
+&nbsp;
+
+# Religions ideals
+
+the GOODNESS religion ideals have disappeared. Malala was the last one to get to speak them, and she has given up in her adult years. Her 2013 book records them.
+
+"they don’t know how to apply their religious ideas to contemporary life, and to human beings rather than just to their own community. It’s a terrible example of the failure of religion to meet the modern world."
+
+The modern word has given in to large language models and billionaires. Neil Postman's Technology year 1992 book. We are beyond the 1985 Amusing Ourselves To Death realization.
