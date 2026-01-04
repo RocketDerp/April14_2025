@@ -1597,3 +1597,42 @@ My reply message:
 
 Are you a lawyer, legal representative of Reddit? Is this the corporation in California's answer? Or do you bullshit and deceive people? Do you know the difference between a fiction TV show and reality Reddit that is non-fiction lings to censored messages?
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q3cp4x/warning_massive_systemic_censorship_on_this/nxjx8l8/
+
+> There are people who care about you and will help you get help, please just reach out to them.
+
+Can you name them? Why are you not helping me? You seem manipulative, as if you are insincere and very dishonest. Who are you? Are you unable to fact-check, work for a Reddit public relations or marketing team?
+
+Have you been tested for gullibility to corporations like Reddit California?
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q3cp4x/warning_massive_systemic_censorship_on_this/nxjyf2t/
+
+Thinks I am the one deleting, not Reddit site.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q3cp4x/warning_massive_systemic_censorship_on_this/nxjydl9/
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q3cp4x/warning_massive_systemic_censorship_on_this/nxjxf4j/
+
+They can't fact-check that messages are censored. They stand up for Corporate America, "The Big Guy", and gas-light the "The Little Guy?
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q3cp4x/warning_massive_systemic_censorship_on_this/nxjxf4j/
+
+Again, my reply:
+
+gas-light the "The Little Guy" with Corporate America (Reddit) public relations messaging.  Hive minded Reddit "Reddit Cares" gas-lighting messages. "nothing is happening, don't be alarmed" about Trumpism / Putinism.
+
+Your idea; "PLURIBUS" doesn't come for Free Masons, has nothing to do with national values of USA. Minute 37 of Episode Two isn't the only time in the show the word "PLURIBUS" appears or is in dialog / otherwise.
+
+>  the United States is doing terrible shit. 
+
+And you are heartless person who is anti-empathy anti-compassion. Wave your USA flag, MAGA addict. Amused and find it all entertaining funny for you. Not alarmed, not disturbed, you normalize it.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q3cp4x/warning_massive_systemic_censorship_on_this/nxjzgmr/
+
+Published reply message:
+
+prove it. Show em the screenshot that the censorship isn't factually real. Computers don't follow your gas-lighting public relations for Reddit Corporation, your fandom behavior,
+
+Prove it:
+
+CENSORED: https://old.reddit.com/r/Pluribus_TVshow/comments/1q3cp4x/warning_massive_systemic_censorship_on_this/nxjzv3d/
