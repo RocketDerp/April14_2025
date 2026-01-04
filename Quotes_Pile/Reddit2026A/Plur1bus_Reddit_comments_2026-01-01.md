@@ -1797,3 +1797,17 @@ You are trying to keep me away from Episode TEN, Season Two?
 Do you work for Netflix, sabotaging Apple TV+? Work for HBO Max?
 
 What a load of bullshit you live in. Reddit users are so ignorant.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q3ez7j/a_television_show_plur1bus_creativity/nxkkw65/
+
+MEDIA PSYCHOSIS, MEDIA ECOLOGY "1 John 4:20" Bible verse teachings. Vince Gilligan: Social media cesspool February 15, 2025. My reply:
+
+> I'm talking about recovering and preventing yourself from psychotic episodes, not TV episodes
+
+You aren't talking verbally at all. You are hearing imaginary voices. You think you are verbally talking when it is written Unicode messages.
+
+You are incredibly ignorant.
+
+> psychotic episodes,
+
+I don't hear you "Talking" in "voices" like your mindset, your system of wild thinking.
