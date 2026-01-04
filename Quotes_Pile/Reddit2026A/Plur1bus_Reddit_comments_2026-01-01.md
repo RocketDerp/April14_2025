@@ -1755,3 +1755,15 @@ My reply message:
 > Yeah, OP, this is just an observable fact.
 
 Exactly WHAT? Quote it, be precise, stop gaslighting me because you are in Reddit hive mind!
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q3ez7j/a_television_show_plur1bus_creativity/nxkehfg/
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q3ez7j/a_television_show_plur1bus_creativity/nxkffm6/
+
+what a mess
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q3ez7j/a_television_show_plur1bus_creativity/nxkgfcy/
+
+Wont' talk about the TV show.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q3ez7j/a_television_show_plur1bus_creativity/nxkffm6/
