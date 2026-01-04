@@ -1924,3 +1924,39 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1q3hg7h/is_the_plur1bus_hive_m
 > It's more the erratic gibberish 
 
 And you think that isn't your bigotry and hate for people in any way divergent or different? Like gender, skin color, age, and other bigotry? You think language usage isn't why you hate me? "Tower of Babel", have you studied it? Seriously?
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q3hg7h/is_the_plur1bus_hive_mind_schizophrenia_is_helen/nxkurpc/
+
+My reply:
+
+> What are you trying to ask relating to the Plur1bus show exactly?
+
+I'm really focused on what Pluribus creator Vince Gilligan said:
+
+# Vince Gilligan: Climbing out of Social Media Cesspool
+
+Writers Guild of America    
+Vince Gilligan speech    
+February 15, 2025     
+https://youtu.be/TkteSxVIM1A?t=648   
+
+10:48        
+there's no simple answer for how *we* might change that. Though, if there were, I [bet](https://youtu.be/Ne2vIoVc7mo?t=55) it would have *something to do with [climbing](https://youtu.be/J4_wXPZ1Bnk?t=102) up out of* the cesspool that is social media and [actually listening](https://youtu.be/QkF3oxziUI4?t=427) to each *other*.
+
+11:07        
+But I don't know how to make that happen. So, I'll stick to my wheelhouse. As
+a writer speaking to a room full of writers, [I have](https://old.reddit.com/r/ToolBand/comments/7nf5rv/new_a_perfect_circle_song_disillusioned/) a proposal...
+
+&nbsp;
+
+## "God Help *Us*"
+
+["We Is *Us*"](https://en.wikipedia.org/wiki/We_Is_Us), Pluribus Pilot Episode.   
+
+https://youtu.be/TkteSxVIM1A?t=713     
+82,805 views October 23, 2008     
+
+cool. When that happens fictional bad guys stop being the cautionary tales that they were intended to to be. **God help us**, they become *aspirational*! So [maybe](https://youtu.be/e7olfvXs2R4?t=140) what the [world needs *now*](https://www.youtube.com/watch?v=FfHAs9cdTqg) are some good old fashion
+
+12:07       
+Greatest [Generation](https://youtu.be/I0fGxujeJbY?t=70) types who give more than they take. Who ***think*** **that kindness tolerance and sacrifice aren't strictly for** ***Chumps!***
