@@ -29,7 +29,16 @@ We are so good at creating stadiums and product of television of sports events, 
 
 This isn't a joke. No joke can out-joke "Celebration of Ignorance" and what we have become, We the People, all of us, Pluribus. It isn't a joke, Infinite Jest joking out-jokes any joke. There is no satire, there is no sarcasm. The Pluribus TV series even tried to highlight that satire and sarcasm of a drunken woman playing with a loaded weapon she took zero time to study or analyze.
 
-People don't get the spirit of terrorism. https://www.lemonde.fr/disparitions/article/2007/03/06/l-esprit-du-terrorisme-par-jean-baudrillard_879920_3382.html - I did it, after 9, 11, 2001 (September 11, 2001) I had enough of seeing USA adopt what was delivered on 9/11. Shallow chanting, advertising of Levant religions in such a "Celebration of Ignorance" way... 
+People don't get the spirit of terrorism. https://www.lemonde.fr/disparitions/article/2007/03/06/l-esprit-du-terrorisme-par-jean-baudrillard_879920_3382.html - I did it, after 9, 11, 2001 (September 11, 2001) I had enough of seeing USA adopt what was delivered on 9/11. Shallow chanting, advertising of Levant religions in such a "Celebration of Ignorance" way... living in Texas, of all Trump places, in year 2007 and 2008, I saw "Celebration of Ignorance" from the Linux community. An anti-Pluribus attitude of we need to make it stable on laptops and all get on Ubuntu and stop being so diverse, or even consider OpenBSD - until hardware and operating system drivers settle down. But ultimately, Google Android and phones replaced desktop multi-media Linux and laptops. 
+
+I purchased a cheap Walmart (not even one they sell, but through their online store) laptop out of a kind of stupid choice. And it runs Ubuntu.. but sound does not work. That's exaclty the shit I was owrking on in 2007 at Linux users groups in Austin. WiFi chips and sounds, which Linux servers don't use. Touchpads. My god is the Touchpad in Linux a mess still.  Server farms don't have touchpad drivers like laptops do. WiFi, sound, touchpad... these drivers are constantly a mess. and nobody wants to pay. 
+
+But that's because we don't take on copyright laws / consumer laws. Closed source drivers for Windows shouldn't be allowed.  Copyright law should require certification process and documentation for device drivers for hardware sellers. A consumer right to not be bamboozled by hardware with shitty drivers that can't be fixed / patched.
+
+I realized in 2007 that Linux wasn't progressing on laptops, not since 1997 / 1998 when I experimented seriously with desktop Linux. But Austin community didn't want to lead a movement of technical writing and organizing efforts to address { touchpad, power management / resume suspend, WiFi, sound drivers } that non-servers had, desktops and laptops had. Give up all the exotic distros and make Ubuntu great. The IDEAL in the name of Ubuntu, a spiritual ideal. But Austin didn't want to do it.
+
+* "Debian became usable as a real distribution with its first public releases in the 0.9x series during 1994-1995, but truly solidified as a stable, widely-known OS with the first official 1.0 release, Debian 1.1 (Buzz), in June 1996"
+
 
 This year 2020 story was late to describe what has already happened since June 16, 2015
 
