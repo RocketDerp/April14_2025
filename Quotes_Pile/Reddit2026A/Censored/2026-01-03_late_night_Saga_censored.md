@@ -1,5 +1,12 @@
 https://old.reddit.com/r/Pluribus_TVshow/comments/1q3ez7j/a_television_show_plur1bus_creativity/nxkg643/
 
+this is the link I got in Reddit mail, that's this I saved before banning
+
+nxkg643
+
+https://click.redditmail.com/CL0/https:%2F%2Fwww.reddit.com%2Fr%2FPluribus_TVshow%2Fcomments%2F1q3ez7j%2Fcomment%2Fnxkg643/1/0100019b899a9c23-6d99627b-128c-4e1c-a089-ed9f2f318cfc-000000/sRGSYswrxvvSA3nEojPR5OgD6TmcxU22dxUznDg2lEA=438
+
+
 &nbsp;
 
 &nbsp;
