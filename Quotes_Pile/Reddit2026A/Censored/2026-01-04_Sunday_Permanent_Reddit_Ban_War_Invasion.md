@@ -418,7 +418,13 @@ And as I created the first line of this GitHub MarkDown page... the war of All A
 
 ... "the phenomenon of not liking a person, but of liking liking a person."
 
-My Reddit account "CircleBird12" was created July 24, 2024   
+My Reddit account "CircleBird12" was created **July 24**, 2024   
+After: "On **July 13**, 2024, Donald Trump, then a former president of the United States and the presumptive nominee of the Republican Party in the 2024 presidential election, survived an assassination attempt"    
 Few too close to the Pluribus great seal eye for standing up to bullies who scream "mental disorder" at you for not tolerating the Putin Surkov Russian Internet Research Agency March 2013 onward conditioned hate of Americans.
-12 was a reference to Pluribus 13. 0-12, 13 total.
+12 was a reference to Pluribus 13. 0-12, 13 total.    
+July 13 inspired my choice of "bakers dozen"    
+I could not stand the attitudes people had that guns were cool. The Luigi December 2, 2024 attitude. Write your message on a bullet shit. All you end up doing is teaching your children that military is your back-pocket final answer to all problems. That humanity couldn't face what is inside Finnegans Wake.    
 
+Star Wars The Force Day 1939. We finally from Paris had *the big picture*, but we still marched into World War Two with Christians in Church burning down the Jewish people and Synagogue in Germany. *hate harder* is so powerful. 
+
+* “Joyce is, in the Wake, making his own Altamira cave drawings of the entire history of the human mind, in terms of its basic gestures and postures during all the phases of human culture and technology. As his title indicates, he saw that the wake of human progress can disappear again into the night of sacral or auditory man. The Finn cycle of tribal institutions can return in the electric age, but if again, then let’s make it a wake or awake or both. Joyce could see no advantage in our remaining locked up in each cultural cycle as in a trance or dream. He discovered the means of living simultaneously in all cultural modes while quite conscious.” — Marshall McLuhan
