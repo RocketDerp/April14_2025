@@ -352,3 +352,27 @@ I don't report people for personal insults. Because I don't think it should be s
 Bullies and warmongers end up in power because people prize hate. I can't find anyone wanting to prize MLK Jr's teachings from February 28, 1954. And people don't even want to discuss the ideas.
 
 Vince Gilligan is doing what everyone desires. Go spend millions of dollars per episode and create a 9 hour presentation that takes 3 years to create. And send your message in a nice wrapped package. But people entirely do not get the point. Nor do people find Joseph Campbell's two books attractive. Goodness itself is not attractive.
+
+&nbsp;
+
+&nbsp;
+
+# Trump Values Reddit
+
+The Trump Values, what people prize have become what Reddit prizes. Hate messages. Seeking out things to block, deport, ridicule, mock. The front page of /r/All is a celebration of hate. Celebration of mocking.
+
+People do not see it as a world war breeding ground of raising children to hate and disrespect other races and nations and Spanish language. What attracts the Reddit audience is that "Trump bad" so he is an easy target to bully and mock. And endless June 16, 2015 onward practice of mocking, dehumanize thy enemy Trump, hate thy enemy, hate thy neighbor Trump, has made it all like military training of the entire audience.
+
+On this GitHub will find me raise again and again last year "cult" keyword. People say brainwashing and cult, but won't assert Jen Senko's 2015 / 2016 independent film efforts! Rally around a book, film, goodness! Assert goodness. But instead... people copycat the huge success of Trump.
+
+People can not see that they will not admit that Trump is a success. You see so many messages calling people { losers, failures, drunks at the Pentagon, etc } but that isn't cult deprogramming. That's actually just teaching every person in the nation to mock every other out-group. Every person AGREES to mocking and hate.
+
+The 1954 Equation from February 28, 1954 by MLK jr on Hate. People want mutually assured destruction, to keep promoting hate. Vince Gilligan spoke up about the cesspool of social media February 16, 2025... but people in the audience of the show didn't bring that up. I was the only one remembering 10 or 11 months earlier. Everyone lives like Trump in the *now* of *past goodness does not matter*. In fact, "great again" is all about bring past *badness*. Hate, racism, rock music stars getting girls age 12 and girls age 13. 
+
+Campbell told me: "The momentum of history behind it is too great for anything really significant to evolve from that kind of action."
+
+The momentum of what Neil Postman described in year 1985: USA Today newspaper, CNN news... local TV news... became 11 years later Fox News 1996... and now Reddit is super super super Fox News. And the trend never stopped. The momentum of cravings for decorated President in meme packages...
+
+During the government shutdown food concerns in November 2025, every person knows of The Bible, yet nobody wants to bother with being the repeater and reminder all the time "Epstein List" of Bible Verse "1 John 3:17".  Instead, repeating and asserting 'Epstein List" has only made the legend of sexual power of Trump even bigger. Fundamentals of WHY you don't bully people with food and housing and diseases / bad health care system in "1 John 3:17" seems is not understood. Like Leo B said, osmosis isn't working!
+
+"You know what occurred to me? We teach everything in the world to people, except the most essential thing. And that is life. Nobody teaches you about life. You're supposed to know about it. Nobody teaches you how to be a human being and what it means to be a human being, and the dignity that it means when you say, "I am a human being." Everyone assumes this is something you have, or you should have gotten by osmosis. We'll it's not working by osmosis!"
