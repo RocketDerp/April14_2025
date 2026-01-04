@@ -1988,3 +1988,13 @@ Maybe they are just really heavy and difficult lines you can't grasp?
 >  please reflect on your post title
 
 I'm reflecting on Founding Fathers, Free Masons. And Donald Trump and Putin's buddy relationship. The ignorance of an entire nation of over 300 million people! That's my 250 year USA reflection.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q3hg7h/is_the_plur1bus_hive_mind_schizophrenia_is_helen/nxkzqty/
+
+> It's that you're being incomprehensible. 
+
+Nope. Your reply is just more mocking. You follow Trump leadership, you are a sheep to Trump and know mocking always wins.
+
+You can't see 300 million people mocking away. You fixate on one.
+
+Forest of 300 million, you see one Reddit comment single tree.
