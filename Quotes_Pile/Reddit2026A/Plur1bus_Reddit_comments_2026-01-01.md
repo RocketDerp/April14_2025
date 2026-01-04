@@ -1747,3 +1747,11 @@ The help I need is for people to stick to the topic of the Pluribus TV show on R
 Do you go up to strangers in public and say "Hope you get the help you clearly need" every day? Is it your paid profession? 
 
 Why are you not discussing on a subreddit about a TV show, the actual TV show story?
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q3ez7j/a_television_show_plur1bus_creativity/nxkb6kc/
+
+My reply message:
+
+> Yeah, OP, this is just an observable fact.
+
+Exactly WHAT? Quote it, be precise, stop gaslighting me because you are in Reddit hive mind!
