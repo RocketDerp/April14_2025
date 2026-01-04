@@ -1840,3 +1840,13 @@ You can't not stand "Free Masons", Pluribus Latin origins
 > I hope you get help soon
 
 From your entirely inappropriate abuse? You have been abusing me over and over.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q3ez7j/a_television_show_plur1bus_creativity/nxko8ho/
+
+My reply message:
+
+> Okkkk I'm a little confused as to what you're saying. 
+
+I'm getting all these "medical doctors" on Reddit who keep badgering me when I talk about Carol, Helen, Vince Gilligan, ABQ, Pirate Lady, a fiction television show meaning and ideas.
+
+I posted a message of a **medical doctor"* message I got on Reddit. Is this what people do on 4-day holiday weekends, Saturday Nigh in USA 2026?
