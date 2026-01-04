@@ -235,4 +235,21 @@ Hate itself has made me unwell since June 15, 2015 (Trump became center of socie
 
 I don't want to hate MAGA, I don't want to hate Putin, I don't want to hate Trump, I don't want to hate my self as a human on planet Earth. I want Pale Blue Dot Pride and I believe, it is my faith, that we the people must address hate itself and end hate. Not waiting of a magical Kepler 22B signal or Eden signal of science fiction story to *fix it for us* from outside Earth. We The People, All of Us, Pluribus - must work hard and hammer past the egoism to recognize the programming since year 2014 [Year 2014 description: Our Programmable Minds](/Art/ScreenPlay/Our_Programmable_Minds/Year_2014_Description.md) that has wrecked the USA and beyond. The poisoning of the Great Seal of the Untied States of America messages, including Latin word "PLURIBUS". 
 
+&nbsp;
 
+&nbsp;
+
+# One person took stress seriously
+
+I was standing up to the hive mind, like Carol. And one person actually responded and didn't pile on with the mob mentality.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q3ez7j/a_television_show_plur1bus_creativity/nxko8ho/     
+<img width="1729" height="958" alt="image" src="https://github.com/user-attachments/assets/686bfbe8-f47a-4ad4-95c1-dd398efffd97" />
+
+My message was pretty clear about how cesspool and toxic Reddit social media was:    
+
+> Okkkk I'm a little confused as to what you're saying. 
+
+I'm getting all these "medical doctors" on Reddit who keep badgering me when I talk about Carol, Helen, Vince Gilligan, ABQ, Pirate Lady, a fiction television show meaning and ideas.
+
+I posted a message of a **medical doctor"* message I got on Reddit. Is this what people do on 4-day holiday weekends, Saturday Nigh in USA 2026?
