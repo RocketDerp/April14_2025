@@ -1636,3 +1636,14 @@ prove it. Show in public the screenshot that the censorship isn't factually real
 Prove it:
 
 CENSORED: https://old.reddit.com/r/Pluribus_TVshow/comments/1q3cp4x/warning_massive_systemic_censorship_on_this/nxjzv3d/
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q3cp4x/warning_massive_systemic_censorship_on_this/nxjx1q5/
+
+<img width="1356" height="1456" alt="image" src="https://github.com/user-attachments/assets/eb0f0f44-5616-4964-88ae-3bbc5c1d3b58" /> hey, someone willing to stand up in public against the Corporate Reddit California hive mindedness! My reply message:
+
+> No actual doctor would diagnose someone
+
+Yes. There are a lot of MAGA anti- "Free Masons", "Free Thinkers" in this subreddit because PLURIBUS comes from the founding fathers of the USA. A lot  of bullshit deception here. Organized gas-lighting.
+
+Thank you.
+
