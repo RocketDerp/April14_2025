@@ -131,3 +131,11 @@ It's okay! There's nothing wrong with having a crisis any more than there's some
 * If Reddit society wouldn't shut me down with false reports even more for being "crazy" because Donald Trump and Rupert Murdoch and Putin are driving EVERYONE crazy, I'm just more open and honest about the situaiton! I would post this on EVERY comment in Pluribus of mine. But they would call it spam or something else to AVOID the context of where I am coming from and how serious I am about this show's topic of Latin word Pluribus borrowed from the Founding Fathers of the USA.
      *  ::::=== "the entire philosophy the early republic was based upon. And how utterly deplorable and regrettable and terrible it is that all of this has been virtually totally forgotten by our days. And that we have held, The American People, have held in their very hands, handed to them by people like Franklin and Jefferson and all kinds of others... One of the most splendid treasures of spiritual philosophy - applicable to all manner of human purposes. And we have discarded it. And we are running around like beggars, the world over, picking up crumbs from every kind of anarchists, Marxists, this thing, fascists, this thing that thing, all over the world. All of which, put together, could never come close to the psychological spiritual wisdom that was given to us to begin with... and that we have simply forgotten about and thrown away. And how incredibly unfortunate and terrible this is." https://youtu.be/08R1kPdfrHA?t=4427 - Dr. Stephan A. Hoeller (immigrant to USA), 1987 ===:::
 
+...    
+...    
+...    
+
+There is no audience. Neil Postman's books rot on the shelf. And when people do read them, they describe the book like a movie rating. They do not connect Neil Postman's writing with the very force of MAGA USA, Rupert Murdoch Fox News audience, Elon Musk Twitter audience, etc.
+
+People do not call to "make the USA think like Carl Sagan 1995 book again"... I do! But I do not see it. I see hate for hate, mock for mock, hate vs. hate, mock vs. mock, a contest of *race to the bottom* of more hate, mocking, and machine dehumanization (blocking, banning), more deport-others, self-deport, chilling effect. I even mentioned chilling effect as my last message before being silenced on Reddit.
+
