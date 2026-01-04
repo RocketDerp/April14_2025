@@ -1998,3 +1998,19 @@ Nope. Your reply is just more mocking. You follow Trump leadership, you are a sh
 You can't see 300 million people mocking away. You fixate on one.
 
 Forest of 300 million, you see one Reddit comment single tree.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q3hg7h/is_the_plur1bus_hive_mind_schizophrenia_is_helen/nxl0xhl/
+
+My reply:
+
+> Nobody is mocking you
+
+Biggest liar of the year. Biggest false statement in the world.
+
+Donald Trump is mocking everything I am saying, People mock endlessly on Reddit society to anything authentic or sincere.
+
+Mocking is what Internet Research Agency did to USA. Hive mind, Marshall McLuhan Mass Mind terminology, mockery as entertainment.
+
+September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+You are in massive denial with the USA hive mind.
