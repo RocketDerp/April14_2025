@@ -1673,3 +1673,28 @@ I posted URL evidence, where is your evidence I am wrong?
 Computers give **RECEIPTS**, prove I am wrong!
 
 CENSORED: https://old.reddit.com/r/Pluribus_TVshow/comments/1q1jncd/vince_gilligan_is_the_only_person_in_the_world_to/nx6i2g0/
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q3cp4x/warning_massive_systemic_censorship_on_this/nxjx1q5/
+
+Another reply:
+
+>  they push harmful rhetoric such as schizophrenics being inherently dangerous
+
+Exactly. They are here to gaslight people!
+
+The Gutenberg Galaxy: The Making of Typographic Man     
+1962 book    
+Marshall McLuhan    
+
+Chapter    
+Schizophrenia may be a necessary consequence of literacy.     
+Google Books:     
+https://www.google.com/books/edition/The_Gutenberg_Galaxy/VWspDwAAQBAJ?hl=en&gbpv=1&dq=%22Carothers+stresses+that+until+phonetic+writing+split+apart+thought+and+action,+there+was+no+alternative+but+to+hold+all+men+responsible+for+their+thoughts%22&pg=PP110&printsec=frontcover
+
+&nbsp;
+
+# Carol is a BOOK writer, Book author
+
+>  push harmful rhetoric such as schizophrenics
+
+Literacy, books. University of Toronto, Canada.
