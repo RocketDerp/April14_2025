@@ -176,14 +176,14 @@ https://old.reddit.com/r/DnDcirclejerk/comments/1q3f4nq/this_subreddit_is_leakin
 2026-01-04  08:14:58 UTC     
 https://old.reddit.com/r/okbuddypluribus/comments/1q3ie2p/im_gonna_bus_a_plurib_in_my_pants/nxlcqqk/
 
-* "ok buddy, Pluribs" subreddit. an organized "circle jerk" mocking club, where people weaponize mocking and insulting. A pro-ignorance echo-chamber. "I'm gonna bus a plurib in my pants" topic
+* "ok buddy, Pluribus" subreddit. an organized "circle jerk" mocking club, where people weaponize mocking and insulting. A pro-ignorance echo-chamber. "I'm gonna bus a plurib in my pants" topic
 
 2026-01-04  08:16:35 UTC     
 https://old.reddit.com/r/Pluribus_Sucks/comments/1q3jibz/vince_gilligan_waiting_until_halfway_through_the/nxlcx3o/
 
 * "Pluribus Sucks" subreddit. an organized anti-goodness fandom, and organised mocking club, hate group. where people weaponize that the "show sucks" hate mocking and insulting. A pro-ignorance echo-chamber.
 
-They slept for 4 hours, got right back up after late-night mocking me. And went into their organized mocking training grounds for more mental hive mind against the Founding Fathers / Vince Gilligan being taken seriously. Professional pro-ignorance agent. Declaring that outsiders live in a different reality. A person thriving in the MAGA USA cynical mocking.
+They slept for 3.5 hours?, got right back up after late-night mocking me. And went into their organized mocking training grounds for more mental hive mind heart hardening against the Founding Fathers / Vince Gilligan being taken seriously. Professional pro-ignorance agent. Declaring that outsiders live in a different reality. A person thriving in the MAGA USA cynical mocking.
 
 MAGA USA nation of Saturday January 3, 2026... where mocking authenticity on a day the USA started a unnecessary war is fun sport for people who think the memes on Twitter should take over the White house. Where rich men like Trump should be great with greed, and Vince Gilligan stand up to the cesspool of Internet fandom behaviors should be Celebration of Ignorance. Celebration of Trump MAGA nation of Twitter-thinking logic polarity of left vs. right.
 
