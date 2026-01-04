@@ -2081,3 +2081,29 @@ The main paribus sub is even worse! I've logged here how many people got banned.
 
 We aren't even being honest that hate is motivating people. When people wont' acknowledge that Trump leads by hate, people are attracted to hate... like, here, join our team-Christian so we can hate all non-Christina. It's entirely discarding authentic compassion and love. Its like a NFL sports game.
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q3j62e/the_best_hope_to_save_the_world_is_actually_peer/nxmm84n/
+
+Repeating it. it is "MAGA!" chanting messages. One-world anti-goodness. "FIFA peace prize" cheering audience. People so "go touch grass, go off the Internet" that's the problem. Trump is the golf course grass, Trump is the offline. Pluribus is free masons teaching, we have become Trump real estate "FIFA peace prize" sports mentality. One-word "MAGA!!!" cheering on of Elon Musk and all the other billionaires and no equality ideals any more. People can't even recognize Pluribus is a show about shared goodness and quality! The idea of equality offends people, trump entertains people. A world whiteout Trump is considered too boring. Like the hive mind not having / making war in the Pluribus television show. Too boring. Carol has to drive golf balls into building windows to destroy things.
+
+That's the problem with star trek and star wars. People want outer-space ships to have more of the same, wars and weapon systems. that's the religion. "Big God" big war... big weapons. Wreck whole planet weapons, Death Stars, cool. Not boring.
+
+Actually talking and teaching about world peace isn't boring to me. But mocking it with sports mentality and MAGA seems to be a thrill I can not grasp or relate to. The thrill of being in a hate-drive mob just hasn't been fun the time I have been around it. Blocking people I disagree with doesn't make me feel life on Earth just got better.
+
+We don't have to make Trump leader of the USA. He could just be retired golfing with his friends. But we the people insist on having "FIFA peace prize" sports mentality and team-sports of terrible political parties. Love one another, share, Second Bill of Rights share.
+
+In the land of Trump FIFA peace prize sports mentality Super Bowl coming up faith... working out how to get the best of what Pluribus show is depicting seems impossible for people to comprehend. People want to live in billionaire worship even if they claim otherwise. 
+
+i still have such a hard time facing Neil Postman's 1985 book is meaningless to people. People actually desire "out-mocked" "MAGA" messages like the one I'm commenting on.
+
+it isn't just one or two people. We the society elected Trump a second time! "Celebration of Ignorance' isn't just a word in 1995 book, it's beyond what Carl Sagan imagined. And he was great at imagining futures.
+
+One-word "MAGA!" (wins)< ignorance wins, anti-free masons ideals. Not just Neil Postman, dead author 1985 book. But Jen Senko's 2015 / 2016 film. that's what these one-world Fox News media means on Reddit media. people actually DESIRE Fox News media, they don't desire preaching against in organized ways of making Jen Senko a household name and sustained focuses.
+
+There is no resistance. Mock vs. mock, mocking vs. mocking, isn't a resistance. It's mocking. Fox News mocking the world becomes the world. Any goodness gets replaced by mocking. Trying to organize Finnegans Wake and Jean Eardman's work into an understanding of a goodness Pluribus USA nation hive mid goes nowhere when people actually think it is great to have no health care and Luigi gun murders, because it creates images and content of gun weapons. Like star Trek and Star Wars, it creates things blowing up. Ignorance provides death and destruction images. That's why people are prizing ignorance.
+
+I don't find Trump entertaining. That's why the religion / spiritual tool of USA, "Pluribus" Great Seal of the United States of America mattered. But there are zero people here. The James Joyce fandom doesn't want to address the Romans 11:32 ignorance of the church, it wan't to measure and taste the language sentences for language itself. Not what the art is pointing to.
+
+People watch Jen Senko's film and then go on to another film. It's just a 1 hour experience. There is no desire to make Jen Senko world famous, "stand up for the little guy" against Rupert Murdoch. MAGA one, celebration of ignorance is a DESIRE people have. The Pluribus subreddits of "no politics" over a free masons government symbol... "no government talk".... MAGA won. Celebration of Ignorance won. Racism and women inequality and worship billionaires whit ignorance chanting... won!
+
+this Trump "department of war" was telegraphed. September 5, 2025 https://www.cbsnews.com/live-updates/trump-department-of-war-announcements-live-updates/ - and people don't thing that has anything to do with Minute 37 of Episode two of Pluribus show. POTUS Seal being right-wing bird-wing instead of left-wing bird wing symbolism. Nobody even noticed!!!!
+
