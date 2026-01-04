@@ -21,6 +21,11 @@ Lucky I pasted a copy here when it was instantly censored by the automated A.I. 
 
 <img width="1295" height="326" alt="image" src="https://github.com/user-attachments/assets/c253133c-4960-4b60-8c47-8953db074a9b" />
 
+More than anything, it is quoting of nonfiction books that are serious that really gets the bullies and Reddit automated system both triggered. People in the nation of Donald Trump do not like humanities education that promotes an intelligent and educated USA. They are far too thrilled having people to mock and insult.
+
+I'm so sickened by this shit since the Russian Internet Research Agency invaded Reddit commenting and programmed minds to prize hate and prize dehumanization. that's why people prize Trump. It's so sick and sickening to be living under these audience values of "as long as we can call Trump orange and share his photo every day, and videos of him dancing", etc.
+
+
 
 &nbsp;
 
