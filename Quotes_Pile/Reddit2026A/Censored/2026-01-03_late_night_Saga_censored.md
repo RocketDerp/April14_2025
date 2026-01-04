@@ -8,16 +8,43 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1q3ez7j/a_television_show_plur
 
 No evidence required!
 
-&nbsp;
-
-&nbsp;
-
-
-
+This is the message that got me banned for "harassment" Glad I preserved it, because the new Reddit owner technique is that even the login of the account can not be shown evidence of the message that caused the ban. Yes, you got that right, the secret police of Reddit ban you from replying to anyone who messages you and does not even provide evidence of your "crime". The message is removed from Reddit to even your own self, the author of the comment. Terrible policy.
 
 &nbsp;
 
 &nbsp;
+
+I could see they were trying to corner me, so I put those keywords into the previous message. Because making insulting claims in the name of "this is for your own good" to shut down conversation.
+
+<img width="1925" height="1658" alt="image" src="https://github.com/user-attachments/assets/fd67cb02-e827-4c1f-801a-c8f59696e470" />
+
+"I'm just a commenter." - that's the loaded gun that they are going report me to Reddit as a harassment. And they reported the message you see below. Calling a person ignorant isn't a hate message. Especially when you back it up with comment about television show audiences from Carl Sagan. 
+
+In the age of RFK Jr and Donald Trump, calling someone "ignorant" is no longer safe. Willful ignorance. It isn't calling someone { stupid, dumb, idiot } - because *Ignorance* can be fixed with learning and education. That's what I always emphasize about Donald Trump. I don't think he is stupid, I think he swims in Fox News HDTV. And I don't think Rupert Murdoch is stupid, Murdoch has found that a certain hate-filled television programming draws very loyal audiences. Jen Senko's film is about that topic. Terrorist mosques and anti-equality clergy find people are very loyal.
+
+IF ANYTHING, people are anti-loyal, repulsed, by the very ideals of "Love All People", the February 28, 1954 equation from Dr. Martin Luther King Jr. People have every incentive with Donald trump and Elon Musk on constant attention for the last decade plus to say... hey that quote by MLK Jr what we need now before world war three! And we should be putting that in front of every person in Russia vs. Ukraine! Alas, that is exactly what people avoid doing. Instead, citing the excitement of hate upon Donald Trump and hate upon Twitter audiences, and hate upon people.
+
+* "This simply means that there is some good in the worst of us and some evil in the best of us. When we discover this, we are less prone to hate our enemies. When we look beneath the surface, beneath the impulsive evil deed, we see within our enemy-neighbor a measure of goodness and know that the viciousness and evilness of his acts are not quite representative of all that he is. We see him in a new light. We recognize that his hate grows out of fear, pride, **ignorance, prejudice, and misunderstanding**" - Martin Luther King Jr.
+
+It is exactly this aggressive misunderstanding and prizing of Trump as a symbol of Ignorance, the thrill people have using Trump as a punching bag - their attract to  throw insults over and over and over every day as a form of entertainment and amusement-washing of Trump. But MAGA society doesn't just do it to Trump, MAGA USA society does it to ANYONE who is suffering. /r/LeopardsAteMyFace social movement of mocking and insulting those injured and mind-fucked by Russia. And I am one of the most mind-fucked by Russia.
+
+But people would rather deny the Internet Research Agency impact on White House, Twitter, Musk, Trump than face up to the patterns of out-group hate in our religions, television networks (Fox News vs. MSNBC), newspapers, and social media cesspools (Vince Gilligan's term).
+
+* "There is little hope for us until we become toughminded enough to break loose from the shackles of prejudice, half-truths, and downright ignorance." - Martin Luther King Jr. this Sunday January 4, 2026.
+
+&nbsp;
+
+
+&nbsp;
+
+
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
 
 &nbsp;
 
