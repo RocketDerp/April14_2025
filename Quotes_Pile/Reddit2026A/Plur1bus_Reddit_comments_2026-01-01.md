@@ -1631,7 +1631,7 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1q3cp4x/warning_massive_system
 
 Published reply message:
 
-prove it. Show em the screenshot that the censorship isn't factually real. Computers don't follow your gas-lighting public relations for Reddit Corporation, your fandom behavior,
+prove it. Show in public the screenshot that the censorship isn't factually real. Computers don't follow your gas-lighting public relations for Reddit Corporation, your fandom behavior,
 
 Prove it:
 
