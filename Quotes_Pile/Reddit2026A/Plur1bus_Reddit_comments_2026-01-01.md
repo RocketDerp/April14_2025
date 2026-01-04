@@ -1781,3 +1781,7 @@ My reply message:
 You sound like the Pluribus hive mind.
 
 Exactly what have I "done wrong", police state person?
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q3ez7j/a_television_show_plur1bus_creativity/nxkj9l0/
+
+My reply was censored. Insincere badger.
