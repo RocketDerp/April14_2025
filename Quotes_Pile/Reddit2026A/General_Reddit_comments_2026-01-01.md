@@ -167,3 +167,14 @@ https://old.reddit.com/r/worldnews/comments/1q30kxx/after_venezuela_attack_trump
 https://old.reddit.com/r/law/comments/1q39ssl/homan_president_trump_doesnt_have_a_limitation_on/nxja58f/
 
 Freedom to hate. Freedom to dehumanize.
+
+https://old.reddit.com/r/Damnthatsinteresting/comments/1q3mk4z/angel_falls_in_venezuela_the_worlds_tallest/nxlrnd2/
+
+Yha, I see this on the top of the front page on a Sunday after what went on Saturday... and this is like "hey USA people, your new home and property you own". Neil Postman again. Everything is Trump entertainment. Nothing can stop people from putting entertainment of harming others and dominating others above all else. Weapon systems to remove people, natives, existing population. Conquest of of the planet as Campbell wrote in 1988 book. 
+
+All this USA anti-goodness went too far in year 2015 for me. I've never recovered. What people prize, prizing hate, prizing racism, prizing women being slaves to billionaires and play-toys.
+
+I've not been able to get over people putting so much desire for Epstein and not bottom-up reformation of morality. Malala being so ignored. I can't go 24 hours without seeing a need for people to grasp that love and peace is enjoyable. But I guess people want war movies, star wars laser battles and Call of Duty and whatever Steam combat games. Repetitive warfare / fighting things.
+
+Why does goodness have to be beyond words. Why do people prize hate and racism. It's a mistake.Hate isn't something people should want to continue and further. It's terrible, unenjoyable. . Hate sucks!
+
