@@ -416,5 +416,5 @@ Liking hating a person. And all peoople. United States of deepest faith: Anti-Pl
 
 And as I created the first line of this GitHub MarkDown page... the war of All Against All is yesterday. The invasion of Venezuela for Reddit audiences and mood of male 79 year old rich man aggression to the Reddit hive minded people. And people on notice that { Panama, Canada, Mexico, Greenland, Etc } are next. Hell, Israel may join the United States of America. [That's the Putin game of October 7 - Putin's Birthday. That's the Surkov Internet Research Agency *hate harder* outcomes.](/Bloomsday_2025/Donald_Trump_Hate_Watching_Reality_Twitter.md) Because people don't want to be *preachy* and preach world peace, they want to mock mock mock and repeat Trump's hate with *hate harder*.
 
-... "he phenomenon of not liking a person, but of liking liking a person."
+... "the phenomenon of not liking a person, but of liking liking a person."
 
