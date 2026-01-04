@@ -2066,3 +2066,9 @@ Message reply:
 One word mocking, so fucking easy. One single word. Anti-understanding. Putin won. USA lost. We are super fucked.
 
 The god damn show name is year 1776 meanings, free masons. Russia won. We are mind-fucked idiots.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q3j62e/the_best_hope_to_save_the_world_is_actually_peer/nxm2ja8/
+
+Yes. Daring to disagree with a thinking pattern and even trying to compare (comparative mythology, comparing government and social systems, even health care systems). Information warfare isn't new, billionaires manipulating people with Twitter isn't new. But we aren't asserting goodness of trying to address this. 
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q3j62e/the_best_hope_to_save_the_world_is_actually_peer/nxliyv9/
