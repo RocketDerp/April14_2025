@@ -756,3 +756,8 @@ https://old.reddit.com/r/Snorkblot/comments/1q16thy/personally_ive_never_seen_th
 
 James Joyce Finnegans Wake, Language Fun!    
 https://old.reddit.com/r/interestingasfuck/comments/1q20u1l/guy_teaches_how_to_read_korean_alphabets_with_a/
+
+&nbsp;
+
+ABCD minded, Joyce    
+https://old.reddit.com/r/oddlyspecific/comments/1q3nq3t/he_kind_of_makes_sense_though/
