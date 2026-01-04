@@ -1878,3 +1878,11 @@ My reply message:
 > Dang, maybe a reddit break is needed. 
 
 Do you ask people permission to go to the toilet? You don't need my permission. Wake up man, free thinking, free society, free masons is what USA is about. Stop seeking Reddit hive mind permission!
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q3ez7j/a_television_show_plur1bus_creativity/nxkr6lp/
+
+My reply:
+
+> Hey why are you jumping on me?
+
+Why are you asking me permission? Questions?
