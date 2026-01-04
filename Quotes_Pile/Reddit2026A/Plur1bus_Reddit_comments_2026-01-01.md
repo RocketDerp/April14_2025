@@ -2107,3 +2107,12 @@ People watch Jen Senko's film and then go on to another film. It's just a 1 hour
 
 this Trump "department of war" was telegraphed. September 5, 2025 https://www.cbsnews.com/live-updates/trump-department-of-war-announcements-live-updates/ - and people don't thing that has anything to do with Minute 37 of Episode two of Pluribus show. POTUS Seal being right-wing bird-wing instead of left-wing bird wing symbolism. Nobody even noticed!!!!
 
+https://old.reddit.com/r/jamesjoyce/comments/1q31nme/all_of_mankind_becomes_united_pluribus_fans_are/nxmyabc/
+
+I consider this to be *the point* of James Joyce's work. And why University of Toronto media studies of Marshall McLuhan and others is so important. All that McLuhan and Jean Eardman had to say about Joyce. Because it all relates to { Upanishads, L Ron Hubbard, Book of Mormon, Torah, Bible, Quran, Fox News entertainment HDTV, Putin Kremlin, Trump White house, etc } - inkblot books. Finnegans Wake is inkblots. It's purpose is to make you self-aware of The Bible, the Clergy, etc. But not just 1,900 year old Bible and year 380 on Roman Empire use of the Bible, but ALL media. Including the Great Seal of the United States of America meaning as a master-tool of all media.
+
+I consider the Great Seal to be exactly how McLuhan describes Finnegans Wake!
+
+https://github.com/GreatSealUSA/GreatSealUSA_Art/blob/main/PLUR1BUS/PLUR1BUS_Season_One/Bible_Book_Rorschach_Inkblot_Test.md
+
+https://github.com/GreatSealUSA/GreatSealUSA_Art/blob/main/Dreamrot/Dreamrot_Art_Measuring_Tools.md
