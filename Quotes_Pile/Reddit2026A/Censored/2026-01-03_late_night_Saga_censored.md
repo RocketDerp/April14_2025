@@ -128,3 +128,64 @@ You are Jesus believer? Hear god in your magical prayers? Hear voices of Jesus p
 # Nation of Suckers
 
 "Finding the occasional straw of truth awash in a great ocean of confusion and bamboozle requires vigilance, dedication and courage. But if we don’t practice these tough habits of thought, we cannot hope to solve the truly serious problems that face us and we risk becoming a nation of suckers" ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995, page 38 (page 82?)
+
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+
+&nbsp;
+
+
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+
+&nbsp;
+
+
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+# Pro-Ignorance confirmed
+
+Look from the bottom up, the bottom of the screen shot is the comment to me. Which I said they sounded "pro-ignorance".
+
+<img width="1752" height="1326" alt="image" src="https://github.com/user-attachments/assets/64293ef9-8957-4625-9d00-1c27e29a8135" />
+
+2026-01-04 04:01:34 UTC      
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q3ez7j/a_television_show_plur1bus_creativity/nxkffm6/  
+2026-01-04 04:51:23 UTC
+https://old.reddit.com/r/DnDcirclejerk/comments/1q3f4nq/this_subreddit_is_leaking/nxkn4av/
+
+* an organized "circle jerk" mocking club, where people weaponize mocking and insulting. A pro-ignorance echo-chamber.
+
+2026-01-04  08:14:58 UTC     
+https://old.reddit.com/r/okbuddypluribus/comments/1q3ie2p/im_gonna_bus_a_plurib_in_my_pants/nxlcqqk/
+
+* "ok buddy, Pluribs" subreddit. an organized "circle jerk" mocking club, where people weaponize mocking and insulting. A pro-ignorance echo-chamber. "I'm gonna bus a plurib in my pants" topic
+
+2026-01-04  08:16:35 UTC     
+https://old.reddit.com/r/Pluribus_Sucks/comments/1q3jibz/vince_gilligan_waiting_until_halfway_through_the/nxlcx3o/
+
+* "Pluribus Sucks" subreddit. an organized anti-goodness fandom, and organised mocking club, hate group. where people weaponize that the "show sucks" hate mocking and insulting. A pro-ignorance echo-chamber.
+
+They slept for 4 hours, got right back up after late-night mocking me. And went into their organized mocking training grounds for more mental hive mind against the Founding Fathers / Vince Gilligan being taken seriously. Professional pro-ignorance agent. Declaring that outsiders live in a different reality. A person thriving in the MAGA USA cynical mocking.
+
+MAGA USA nation of Saturday January 3, 2026... where mocking authenticity on a day the USA started a unnecessary war is fun sport for people who think the memes on Twitter should take over the White house. Where rich men like Trump should be great with greed, and Vince Gilligan stand up to the cesspool of Internet fandom behaviors should be Celebration of Ignorance. Celebration of Trump MAGA nation of Twitter-thinking logic polarity of left vs. right.
+
+* "Greed has poisoned men’s souls, has barricaded the world with hate, has goose-stepped us into misery and bloodshed. We have developed speed, but we have shut ourselves in. Machinery that gives abundance has left us in want. Our knowledge has made us cynical. Our cleverness, hard and unkind. We think too much and feel too little. More than machinery we need humanity. More than cleverness we need kindness and gentleness. Without these qualities, life will be violent and all will be lost…" https://www.charliechaplin.com/en/articles/29-the-final-speech-from-the-great-dictator-
+
