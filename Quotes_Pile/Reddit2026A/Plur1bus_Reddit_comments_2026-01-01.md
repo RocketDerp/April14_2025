@@ -1491,3 +1491,8 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1q38ohc/zosia_helen_are_enable
 
 Liars are OK. The front page full of /r/All Trump content (deception leadership) all OK. But if a "Little Guy", "The Little Guy" has comments you don't like, Then Reddit stand up against "The Little Guy" while LOL cow milking "The Big Guy" famous people. All ass-backwards!!! "Stand Up For The Big Guy" MAGA USA 2026. It wasn't always like this in USA. Reddit year 2012 and earlier.
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q32tc1/helen_the_invisible_villain/nxj2n4t/
+
+This is an important point, the peer pressure and the second hand smoke that Carol takes up smoking peer pressure. Copycat behaviors etc. These are all "hive mind" forces.
+
+BTW: this user just now blocked me in the last 30 minutes, without any comment. People are so dehumanizing with the power of Reddit servers. People can't even tolerate different interpretations of a TV show in a FORUM dedicated to public discussion. They have to go out of their way to block people and make it clear they can't stand / tolerate many voices. Anti-democracy, anti-goodness MAGA USA behaviors of deporting immigrants, etc.
