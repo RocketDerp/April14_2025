@@ -1896,3 +1896,15 @@ My reply:
 You hate me? Why do you hate me? Are you the "Bigot" values I asked about?
 
 Is having any thought outside of "normal" Reddit *hive mind* an emotional hate trigger for you to ban and dehumanize people? Do you reach for ban button any time, plea to authority to deport and ban people, to dehumanize them using powerful cloud computing machines?
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q3hg7h/is_the_plur1bus_hive_mind_schizophrenia_is_helen/nxkt9hh/
+
+My reply:
+
+> Just looked into their posting history and I don't even know what to say.
+
+.Because you are so ignorant and can't quote or say anything specific? Because you are usable to relate to people outside your bigotry values?
+
+Exactly and precisely WHAT on my profile is so terrible? Russian information warfare pinned posts?
+
+Is it this link at the top of my Reddit profile that freaks you out? https://old.reddit.com/r/WarAll/comments/1msqs1t/war_of_all_against_all_since_march_2013_war/https://old.reddit.com/r/WarAll/comments/1msqs1t/war_of_all_against_all_since_march_2013_war/
