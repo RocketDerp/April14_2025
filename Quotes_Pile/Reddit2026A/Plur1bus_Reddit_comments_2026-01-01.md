@@ -1502,3 +1502,7 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1q37ahf/after_what_happened/nx
 <img width="1674" height="766" alt="image" src="https://github.com/user-attachments/assets/7b0ba5ba-8a6f-40f1-a47f-e3def18dc4b2" /> This user account https://old.reddit.com/user/Real_ZAnon creates the most recent 3 postings on the subreddit (the 4th isn't about Pluribus, is an advertisement). So the ONLY discussions the past 2 hours, are all by this user. WHO now BLOCKED ME! SO they literally are "sucking all the oxygen" out of the room / subreddit!
 
 This means that ANY other person who comments on any of the 3 postings, I can't reply to. The Reddit system blocks entire threads from the account on down. So there are say 25 people, I can't reply to ANY of 3 postings because of 1 single person!
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q3cp4x/warning_massive_systemic_censorship_on_this/nxjqu8u/
+
+My post, my comment. Censored! Network Censors!
