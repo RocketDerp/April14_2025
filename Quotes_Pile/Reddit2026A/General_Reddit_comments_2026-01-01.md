@@ -215,3 +215,15 @@ https://github.com/GreatSealUSA/GreatSealUSA_Art/blob/main/PLUR1BUS/PLUR1BUS_Sea
 https://old.reddit.com/r/news/comments/1q3vnsi/canadian_officials_say_us_health_institutions_no/nxnpxuw/
 
 Sickening. It's made me sick. And it isn't just "in charge". Bad information and junk is prized learning now. The worst information is desired as a "trigger" against other human persons. This is the War of All Against All. https://old.reddit.com/r/WarAll/
+
+https://old.reddit.com/r/politics/comments/1q3rp3o/trump_boasts_of_new_donroe_doctrine_but_what_is_it/nxnw3mb/
+
+https://old.reddit.com/r/politics/comments/1q3rp3o/trump_boasts_of_new_donroe_doctrine_but_what_is_it/nxolnoz/
+
+https://old.reddit.com/r/politics/comments/1q3rp3o/trump_boasts_of_new_donroe_doctrine_but_what_is_it/nxon0ge/
+
+https://old.reddit.com/r/politics/comments/1q3rp3o/trump_boasts_of_new_donroe_doctrine_but_what_is_it/nxongnb/
+
+Surkov won.
+
+The phrase "alternative facts" originated on January 22, 2017, when Kellyanne Conway, then Counselor to President Trump, used it on NBC's Meet the Press to defend White House Press Secretary Sean Spicer's false claims about the attendance numbers at Donald Trump's inauguration. Chuck Todd, the interviewer, challenged this, stating, "Look, alternative facts are not facts. They're falsehoods," highlighting the moment as a pivotal instance of political rhetoric"
