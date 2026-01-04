@@ -438,3 +438,15 @@ the GOODNESS religion ideals have disappeared. Malala was the last one to get to
 "they don’t know how to apply their religious ideas to contemporary life, and to human beings rather than just to their own community. It’s a terrible example of the failure of religion to meet the modern world."
 
 The modern word has given in to large language models and billionaires. Neil Postman's Technology year 1992 book. We are beyond the 1985 Amusing Ourselves To Death realization.
+
+&nbsp;
+
+# Banned Again 10 minutes ago
+
+At the time of this commit message on GitHub, 10 minutes ago.
+
+See the earlier message from 8 hours ago.
+
+
+<img width="2638" height="1150" alt="image" src="https://github.com/user-attachments/assets/511a914f-23e1-426c-a005-22ebd0ba840e" />
+
