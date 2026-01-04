@@ -1506,3 +1506,5 @@ This means that ANY other person who comments on any of the 3 postings, I can't 
 https://old.reddit.com/r/Pluribus_TVshow/comments/1q3cp4x/warning_massive_systemic_censorship_on_this/nxjqu8u/
 
 My post, my comment. Censored! Network Censors!
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q3cp4x/warning_massive_systemic_censorship_on_this/nxjr7p8/
