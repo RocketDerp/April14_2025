@@ -1918,3 +1918,9 @@ Reply comment:
 Yes. Because I can't understand why so many people here ... (Reddit) comment: "schizo" post over the past months.
 
 Why are people so avoidant of book reading and so many comment "schizo" all over this electronic media system?
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q3hg7h/is_the_plur1bus_hive_mind_schizophrenia_is_helen/nxkuyt7/
+
+> It's more the erratic gibberish 
+
+And you think that isn't your bigotry and hate for people in any way divergent or different? Like gender, skin color, age, and other bigotry? You think language usage isn't why you hate me? "Tower of Babel", have you studied it? Seriously?
