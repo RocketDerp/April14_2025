@@ -178,3 +178,24 @@ I've not been able to get over people putting so much desire for Epstein and not
 
 Why does goodness have to be beyond words. Why do people prize hate and racism. It's a mistake.Hate isn't something people should want to continue and further. It's terrible, unenjoyable. . Hate sucks!
 
+https://old.reddit.com/r/europe/comments/1q3p43r/map_of_greenland_under_us_flag_sparks_danish/nxm9rtj/
+
+Yep. Reddit is now the force of mass dehumanization following Trump. These are the people with the free time and intelligence and long-form messaging. But it is so anti-wiki, anti-FAQ, anti-goodness following Trump's lead of just removing history by high-speed media content. By doing antics like this flag event, or addressing drug abuse issues with military weapons. Rich people still get recreational drugs, this is about dominating poor nations and poor drug users. It's about luxuries (drugs and entertainment) for the rich and prison for the poor. 
+
+https://old.reddit.com/r/europe/comments/1q3p43r/map_of_greenland_under_us_flag_sparks_danish/nxm8tx8/
+
+yes. "Stand up for the Little Guy" is exactly the value that has been discarded. Today is Sunday: the "least of these" Christian values. Competition to "win" sports values on map lines and concentrate with as a high score for out of control men...
+
+It is like cheering on a sports star to win. It doesn't benefit your life, but the human mind can witness it. A rectangle basketball or football field isn't creating housing or health care for perplex. It's just exploiting some pattern in the brain. And people cheer on MAGA billionaires in USA like they are sports players winning a high score of more wealth than anyone else. More military kills or whatever negative terrible values people are cheering on.
+
+The "FIFA sports peace prize"... I mean it's what is happening! 
+
+Like Palestine attacking Israel for a god they imagine in outer space, willing to murder and die and create constant fear of another attack. And the amount of labor put into begging or something better (supporting Malala's year 2013 writings and ideas) 
+
+I can see cheering on a team taking a space ship to mars or beyond, but cheering on a rich man's sports players in a rectangle while others are homeless and without health care. "FIFA pica prize". 
+
+Neil postman's 1985 book and people not seeing that *watching* FIFA and *watching billionaires*,some sickness of amusement / entertainment. It isn't enjoyable.
+
+"be wary of the… overquick reduction of complexity. If some of this lecture has seemed a little weird or to go a little too far, it’s because I don’t want to reduce quite all of this to slogans. On the other hand, I don’t want it to not be funny, because part of the postmodern trajectory itself is a rather humorous joke on the human race which laboured for millennia to reduce working hours in order to produce leisure so we could enjoy this very leisure that then turns in a kind of vengeful act against us absorbing our leisure time, which was to be our living time, into **time now spent in the service of what can only be called this inhuman spectacle**. I mean, it’s a very bizarre and twisted fate to which postmodernity has led us. So I would be wary of simple answers to this." - Rick Roderick, 1993
+
+it is so much fucking worse in "Trump FIFA peace prize" 2026 now.
