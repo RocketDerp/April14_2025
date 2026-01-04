@@ -176,3 +176,7 @@ children without health care, front page on New Years Eve. People on Reddit will
 https://old.reddit.com/r/justgalsbeingchicks/comments/1q2ur40/senator_elissa_slotkin_says_the_real_reason_our/
 
 But people on meme mills like Reddit will get this off the front page of Reddit with kitten photos, cat photos, Formula One race car rich folks! There is no call for weekly "get rid of bad MAGA government" on social media, there is reactions, reacting, amusement, LOL land.
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1q3vnsi/canadian_officials_say_us_health_institutions_no/
