@@ -2038,3 +2038,21 @@ That is a RELIGION, FAITH concern. You dismiss it as "politics"
 # Democracy WILL NOT WORK without "Love thy Neighbor"
 
 hate the Spanish speakers is not love.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q3hg7h/is_the_plur1bus_hive_mind_schizophrenia_is_helen/nxl3ufe/
+
+My wild reply:
+
+>  Again, I am asking why you think iPhone users are bigotted?
+
+I don't think that. That seems like a misunderstanding.
+
+I think misunderstandings are common and caused by major avoidance of Finnegans Wake.
+
+At Minute 22 of Episode one of Pluribus, the James Joyce book "Finnegans Wake" is invoked.
+
+# Finnegan Wake
+
+Am I loud enough?
+
+Woke? Year 1923? WOKE, "Being Woke" over 100 years ago?
