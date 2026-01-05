@@ -108,3 +108,13 @@ https://old.reddit.com/r/MurderedByWords/comments/1q4wzzk/top_g_heading_for_gree
 
 "For all his perspicacity, George Orwell would have been stymied by this situation; there is nothing “Orwellian” about it. The President does not have the press under his thumb. The New York Times and The Washington Post are not Pravda; the Associated Press is not Tass. And there is no Newspeak here. Lies have not been defined as truth nor truth as lies. **All that has happened is that the public has adjusted to incoherence and been amused** into indifference. Which is why Aldous Huxley would not in the least be surprised by the story. Indeed, he prophesied its coming. He believed that it is far more likely that the Western democracies will dance and dream themselves into oblivion than march into it, single file and manacled. Huxley grasped, as Orwell did not, that it is not necessary to conceal anything from a public insensible to contradiction and narcoticized by technological diversions. Although Huxley did not specify that television would be our main line to the drug, he would have no difficulty accepting Robert MacNeil’s observation that “Television is the soma of Aldous Huxley’s Brave New World.” Big Brother turns out to be Howdy Doody."
 ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, **year 1985**, page 111
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1q4puix/i_cant_believe_this_is_america_us_veteran_who/nxue02x/
+
+Sounds-good long form Reddit.But witness: no book quotes, no author names, no book titles, no links. Just "engagement" commenting to get everyone on **different pages**. Avoiding Neil Postman, Marshall McLuhan, anything and everything about Russia's Internet Research Agency since year 2013.
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1q4puix/i_cant_believe_this_is_america_us_veteran_who/nxug6zl/
+
+"The media", Reddit media empire is over two decades old. This is a virgin Reddit account doing everything it can to say "The Media', but not *here* in a mocking American echo-chamber of out-group hate. Don't rescue MAGA! Just mock MAGA and mock USA media systems, but don't quote an article from the BBC about Reddit! Don't escape the screen simulation / simualcra Putin put everyone into on Reddit!
+
+A Reddit message mocking "real", and "reality" and "The Real People" on a Reddit servers full of non-identity Russians since March 2013. https://www.bbc.com/news/technology-43301643
