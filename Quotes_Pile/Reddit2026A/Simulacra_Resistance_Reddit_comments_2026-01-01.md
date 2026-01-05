@@ -60,3 +60,8 @@ Tiny-shirt Twitter-length thinking. Twitter-bird repeating, parroting, of Russia
 * “The display, which was called **'Can Democracy Survive the Internet?'** was dedicated to a 'global election management' company called Cambridge Analytica. Cambridge Analytica claimed to have gathered 5,000 data points on every American voter online: what you liked and what you shared on social media; how and where you shopped; who your friends were... They claimed to be able to take this imprint of your online self, use it to understand your deepest drives and desires, and then draw on that analysis to change your voting behaviour. The boast seemed to be backed up by success: Cambridge Analytica had worked on the victorious American presidential campaign of Donald Trump; it had also run successful campaigns for US Senator Ted Cruz (twice); and others all across Africa, Asia, the Caribbean, Latin America.” ― Peter Pomerantsev, This Is Not Propaganda: Adventures in the War Against Reality, 2019
 
 Russia has gotten deep into the minds with entertainment. Not just voting days, but every upvote and retweet.
+
+https://old.reddit.com/r/clevercomebacks/comments/1q3yjp2/his_past_has_shown_exactly_that/nxoy7n2/
+
+Reddit audiences will do ANYTHING and EVERYTHING but turn to Neil Postman's 1985 book "Amusing Ourselves To Death" and focus on it every until it is memorized or what. And LOOK AT REDDIT through the Neil Postman 1985 perspective and Brave New World 1930's perspective. And sober up from the meme-think garbage learning. Anti-learning. People are not resisting it, they are incredibly attracted to Fox News HDTV and White House Antics to mock and talk about. It is exactly what Postman was saying about second term President in year 1985!!!
+
