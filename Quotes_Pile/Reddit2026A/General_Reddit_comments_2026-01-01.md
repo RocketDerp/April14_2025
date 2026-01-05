@@ -370,3 +370,22 @@ We are RACING to the bottom. Engines at full power pointed downward! Surkov won 
 
 https://old.reddit.com/r/complaints/comments/1q46dl8/we_are_a_laughingstock/nxqe0mk/
 
+https://old.reddit.com/r/UnderReportedNews/comments/1q49gpw/colombian_president_gustavo_petro_a_clan_of/nxqwd63/
+
+Understanding on Reddit is difficult. 
+
+https://old.reddit.com/r/UnderReportedNews/comments/1q49gpw/colombian_president_gustavo_petro_a_clan_of/nxqydiw/
+
+There hasn't even been any serious attempt of popular people having a social media uprising of protest.  Everyone on social media, media for social, saying that "The Media" is the problem. People can go create a GitHub page or a Subreddit and point to their efforts to stand up. But nobody wants to. Not even a semi-famous person calling for mass social media focus on important topics. Everyone has their favorite flavor of sports and video games to invest their free time and spare time into.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1q49gpw/colombian_president_gustavo_petro_a_clan_of/nxqyhy4/
+
+People don't sustain stand up for a better future unless it Grand Theft Auto 6 or a new sports game. Just look at the topics on every social media platform.
+
+https://old.reddit.com/r/politics/comments/1q4cnia/gov_walz_likely_to_drop_out_of_2026_mn_governors/nxroeno/
+
+Trump attacks people because people like sports, entertainment.
+
+https://old.reddit.com/r/politics/comments/1q4acmw/trump_says_us_needs_total_access_to_postmaduro/nxrc2uq/
+
+As Adam Curtis said way back NYE 2014. Contradiction is the game. Choose your own anti-reality adventure. A Reddit audience member who eats the Surkovian onions. [Playing President Tony Clifton, acting dumb, acting erratic, acting odd, is exactly how the hive mind of Reddit meme addicts are "owned" by Surkov students. Eating the onions, thinking it is accidental or a mistake for Trump to be outrageous and unusual in his antics.](../Reddit2025A/Surkovian_Onion_Eating.md). It is planned, organized. Surkov students.
