@@ -408,3 +408,6 @@ https://old.reddit.com/r/therewasanattempt/comments/1q4srlz/to_speak_out_against
 
 Mocking away at Putin as a "nothingburger". Surkov won since March 2013.
 
+https://old.reddit.com/r/ProgressiveHQ/comments/1q4pxu9/breaking_tim_walz_has_just_dropped_out_of_the/nxvms8b/
+
+Reddit media ecology. How the cloud computing systems are manipulated to attack individuals who pull alarms against { MAGA, Putin influence over Trump, Putin influence over Musk }. Organized mob mentality, entire subreddit street gangs who want factual reporting of reality removed off Reddit so it can be more fiction Kremlin / Surkov monomyth. Russia won since year 2013.
