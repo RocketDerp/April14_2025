@@ -153,6 +153,10 @@ Again and again, We The People will not use social media to halt entertainment a
 
 * "It will take 1,128 hours (47 days, or approximately 1.55 months) until every possible hour of the day is covered by a meeting start time." - Google Search summary. 2026-01-04 night USA
 
+* I was thinking the 1 to 4 hours, 60 minutes to 4 hours, could be random? One time the meetings be 1 hour, another 2.5 hours, another 3.5 hours, etc.
+
+* Every meeting assigned a sequence, meeting number 1, 2, 3 and the date and UTC time of the meeting. Like a every 47 hour state of the world wide crisis, state of the We The Social Media Unions. Make a summary of the top 5 issues that meeting, what topics need more attention and assertion.
+
 ## Pushed hashtags on social
 
 https://autistics.life/@RoundSparrow/115840217895333761      
