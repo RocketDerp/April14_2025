@@ -248,3 +248,57 @@ https://old.reddit.com/r/politics/comments/1q3w4f9/walz_condemns_trumps_depraved
 
 Always these suggestions on Reddit. The answer to ChatGPT and Grok AI filling the Internet with fiction, the answer to Rupert Murdoch fiction entertainment news network: **Add more fiction**! Always more fiction. That is the meme addiction of Reddit audience, cravings for more fiction storytelling. [This desire and attitude is cheering it on, it is "Celebration of Ignorance" as defined in year 1995 by Carl Sagan. Quote from Carl Sagan on this link](../Quotes_Pile/Carl_Sagan_Quotes.md). Since June 16, 2015 it has been endlessly expanding more and more faith that additional fiction and adding more tragedy to the information commons is a good thing. 
 
+https://old.reddit.com/r/politics/comments/1q40cq1/trump_renews_push_to_annex_greenland_hours_after/nxos8op/
+
+Top voted comment, top of page. Tiny-short twiter-length blueksy-length message. Promotes *hate harder* as is very popular on Reddit. That the answer to MAGA hate is always add more hate. Sunday today, this is the Church of fiction (Bible also fiction) that people go to: *hate hate hate, mock mock mock* tracks. This is an audience laugh-track message of *fuck humans, hate harder*. Exactly what Putin's IRA conditioned in Reddit minds since March 2013. More hate, more war, more dehumanization, more mental attitudes and messages to consume on how great "fuck you" is.
+
+https://old.reddit.com/r/politics/comments/1q40cq1/trump_renews_push_to_annex_greenland_hours_after/nxospfc/
+
+Simplistic comparisons "like Hitler", "Epstein List" over and over. That do not point to any book title, author name, etc. People do not fundamentally grasp morality. We have to educate and teach morality. We have to mace the case for a peaceful loving Pluribus world. People have made the case for billionaires ruling with advertising and marketing, and people can't promote The Little Gal Jen Senko on Reddit comments. Hitler is dead, there is no need to promote Hitler's name over and over. Everyone knows Hitler. What people do not know is Jen Senko's name and her film. 
+
+https://old.reddit.com/r/politics/comments/1q40cq1/trump_renews_push_to_annex_greenland_hours_after/nxoy1pl/
+<img width="2321" height="476" alt="image" src="https://github.com/user-attachments/assets/080a52df-8042-4aa8-a80c-89e3f2bd3994" /> With that exact phrasing, it now only appears in one single place. Reddit. This demonstrates the influence Reddit has over society. Instantly on Google Search.
+
+https://old.reddit.com/r/politics/comments/1q40cq1/trump_renews_push_to_annex_greenland_hours_after/nxosrkc/
+
+<img width="1176" height="307" alt="image" src="https://github.com/user-attachments/assets/53f7f179-5c0e-4263-8331-6c8c318f79ae" /> Everyone supporting the Pluribus show and asserting Minute 37 of Episode Two POTUS eagle pointing to the right-wing bird-wing instead of left-wing bird-wing on Air Force One would be a great rally call. Joseph Campbell's book discussing the eagle claws and meanings. Make it the most pirated television episode. Civil copyright disobedience. The very show is about sea pirates!
+
+https://old.reddit.com/r/politics/comments/1q40cq1/trump_renews_push_to_annex_greenland_hours_after/nxpn31o/
+
+<img width="1152" height="592" alt="image" src="https://github.com/user-attachments/assets/aafa194a-61ec-4354-8cf8-1551f3ec3af0" /> USA is already now known world wide, in history, for bring him back after Joe Biden. People can see that there never was a world-famous Internet rising up against Donald Trump and war. People din't to their video games, sports games, Formula 1 world travelers on private jets, their kitten images (or at least do a kitten image that says "impeach Trump and reform MAGA, no more hate!", the FIFA World Cup and FIFA peace prize, the mocking of actresses on Strangers Things.
+
+The world won't remember that Bluesky and Reddit people protested day and night and halted all entertainment. Because people were so amused mocking and laughing and insulting the orange skin of Donald Trump that they didn't want to remove him from the center of attention! The world will have images of all the memes and nobody will remember what never happened: treating a serious problem seriously. Calling for emergency measures... no more entertainment. Be serious, teach about morality, teach about Bible verse "1 John 3:17" and how it applies to rich wealthy men treating health care for the poor.
+
+https://old.reddit.com/r/politics/comments/1q40cq1/trump_renews_push_to_annex_greenland_hours_after/nxpaed4/
+
+Note the age of the Reddit account, over 19 years. people on Reddit can't even make front page of CNN or Washington Post for staging a protest calling for Trump impeachment and removal. People will not use social media to LEAD the nation towards goodness, instead Twitter social (Musk) and Truth Social and Fox News HDTV lead the nation to self-harm with the programming of Russia's mindsets. Social media users will call you sick and say you need mental treatment for being alarmed / disturbed about Donald Trump leading the nation and what he is dong / and what RFK Jr is doing, etc. 
+
+People are so addicted to Trump, they can't even see and witness their "LOL cow milking" is a marketing and advertising machine for a Walter White bad-ass called Donald Trump. and more jump on the MAGA values because they work! Being a criminal and being a fiction content creator far outsells nonfiction!
+
+https://old.reddit.com/r/politics/comments/1q40cq1/trump_renews_push_to_annex_greenland_hours_after/nxp527i/
+
+<img width="1222" height="452" alt="image" src="https://github.com/user-attachments/assets/e56b587b-05a6-4551-a705-66f016d700f2" /> Exactly the pro-punishment pro-blocking pro-deportation pro-keep-people-out anti-diversity pro-self-deport pro-badness that the Breaking Bad / Better Call Saul fandom desires. Bad-asses who want to punish and wreck as much as they can because the find it so jolly entertaining to LOL at suffering others. The "ok-buddy plurius" group, the circle-jerk groups, the MAGA groups, the anti-goodness groups all over. "Oh the Illuminati, har har meme meme meme", won't read nonfiction books or learn nonfiction ideas! A nation that prizes chucklehead leadership, jokes and Truth Social and Fox News HDTV style.
+
+* “Chaos and disruption, I later learned, are central tenets of Bannon's animating ideology. Before catalyzing America's dharmic rebalancing, his movement would first need to instill chaos through society so that a new order could emerge. He was an avid reader of a computer scientist and armchair philosopher who goes by the name Mencius Moldbug, a hero of the alt-right who writes long-winded essays attacking democracy and virtually everything about how modern societies are ordered. Moldbug’s views on truth influenced Bannon, and what Cambridge Analytica would become. Moldbug has written that “nonsense is a more effective organizing tool than the truth,” and Bannon embraced this. “Anyone can believe in the truth,” Moldbug writes, “to believe in nonsense is an unforgettable demonstration of loyalty. It serves as a political uniform. And if you have a uniform, you have an army.”
+― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the [Plot to Break America, page 85](https://books.google.com/books?id=8OW2DwAAQBAJ&pg=PA85&dq=%22serves+as+a+political+uniform.+And+if+you+have+a+uniform,+you+have+an+army.%E2%80%9D&hl=en&newbks=1&newbks_redir=1&sa=X). **year 2019**
+
+https://old.reddit.com/r/politics/comments/1q3u7re/npr_investigation_shows_how_the_government_tried/nxp54uw/
+
+It is a big /r/Politics game to delete comments shortly after, disappear information. Few people seem to even notice it.
+
+* "Media ecology is the study of media as environments." — Neil Postman, “The Reformed English Curriculum.” in A.C. Eurich, ed., High School 1980: The Shape of the Future in American Secondary Education (1970). https://media-ecology.org/What-Is-Media-Ecology
+
+https://old.reddit.com/r/politics/comments/1q3u7re/npr_investigation_shows_how_the_government_tried/nxp8834/
+
+People will not discuss Russian information warfare on Reddit. How Russia attacked the citizens of the nation. The population. The smartphone users, social media users, news media Internet users. Reddit user is saying they are shocked, surprised, mind blown what happened with Trump popularity. But popularity itself has become toxic.
+
+* "we get for the first time a phenomenon never known in polling which is the phenomenon of not liking a person, but of liking liking a person. This is a sign you are dealing with the hyperreal. Let me go over that again: Reagan’s popularity was popular. When you went through the various traits of Reagan and what Reagan stood for and his policies and so on, ah, vast numbers of people disliked nearly all of them. What was popular was his popularity. And I don’t think that Reagan’s alone in this. Show business figures had this same thing go on for years." - Rick Roderick, Duke University, year 1993 https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
+
+Donald Trump is show business figure! Putin and Surkov in Russia mastered this hyper reality mind programming with IRA since March 2013.
+
+https://old.reddit.com/r/politics/comments/1q3u7re/npr_investigation_shows_how_the_government_tried/nxpkbyh/
+
+New Reddit account in /r/Politics - note that absence of book titles, links, author names, quotes from a book. 
+
+* “Today, reports of the day’s events are conveyed to the viewing public by way of alternate universes, The Fox News cable channel conveys its version of reality, while at the other end of the ideological spectrum MSNBC presents its version. They and their many counterparts on radio are more the result of an economic dynamic than a political one. Dispatching journalists into the field to gather information costs money; hiring a glib bloviator is relatively cheap, and inviting opinionated guests to vent on the air is entirely cost-free. It wouldn’t work if it weren’t popular, and audiences, it turns out, are endlessly absorbed by hearing amplified echoes of their own biases. It’s divisive and damaging to the healthy functioning of our political system, but it’s also indisputably inexpensive and, therefore, good business.”
+― Ted Koppel. Lights Out: A Cyberattack, A Nation Unprepared, Surviving the Aftermath. October 27, 2015. Page 13.
