@@ -3,6 +3,8 @@
 very draft, scratch notes, barely awake.    
 all this media machines generating Russian hate messages and worship of Donald Trump hate faith has given me extreme brain damage.   
 
+Another [page with another parallel attempt June 19, 2025: ](/June19_2025/Social_Media_Did_Not_Stand_Up.md)
+
 &nbsp;
 
 # Social Media Society Did Not
@@ -11,10 +13,10 @@ all this media machines generating Russian hate messages and worship of Donald T
 
 People like to say "capitalism caused this", which I'm not disagreeing with. But I think "Late stage capitalism" gets plenty of criticism and coverage.
 
-What does not get much criticized is free time / spare time / what pases for entertainment.   
-Not much critial thinking.
+What does not get much criticized is free time / spare time / what passes for entertainment.   
+Not much critical thinking.
 
-Donald Trump is an entertainer. People are motivated to hate, meme, mock Donald Trump. This has been going on for a decade sinceJune 2015.
+Donald Trump is an entertainer. People are motivated to hate, meme, mock Donald Trump. This has been going on for a decade since June 16, 2015.
 
 &nbsp;
 
@@ -33,7 +35,7 @@ I've seen coverage of "No Kings" protest, but not an online protest.
 
 # So much reaction
 
-Living in USA has been sheer reaction to Donald Trump. I think many have lost sense of life before Donald Trump being the center of attentin. The 4 years of Joe Biden were not an escape from Donald Trump, it did not return to year 2012 
+Living in USA has been sheer reaction to Donald Trump. I think many have lost sense of life before Donald Trump being the center of attention. The 4 years of Joe Biden were not an escape from Donald Trump, it did not return to year 2012 
 
 The Red Hat MAGA:   
 July 2015    
@@ -53,14 +55,14 @@ It has been an ocean of mockery and hate. Mocking MLK Jr's lessons on hate. "Gre
 
 ### Mueller coming  
 
-The Reddit society adopted chanting like MAAGA, such as The Wire TV show fiction phrase taken to "Mueller coming" to give payback on Trump. Reacting to every rumor of Trump impeachment over Russia issues. 
+The Reddit society adopted chanting like MAAGA, such as The Wire TV show fiction phrase taken to "Mueller coming" to give payback on Trump. Reacting to every rumor of Trump impeachment over Russia issues.
 
-Soccial media did not stand up and shut down entertainment and CALL for. There are people who telephpone politicians, representatives, but not a dispaly that We The People were harmed by Russia and Trumpism and wanted the removal - not on the scale of other social media events like major football games or the release of a major new video game - or outage of a social media platform.
+Social media did not stand up and shut down entertainment and CALL for. There are people who telephone politicians, representatives, but not a sustained public display that We The People were harmed by Russia and Trumpism and wanted the removal - not on the scale of other social media events like major football games or the release of a major new video game - or outage of a social media platform.
 
-Donald Trumpdraws haters into reaction, exploits hate mindsets. People seem to drain away any idea of bottom-up progress. The society in total realy needs a morality preacher, a MLK Jr. Donald Trump is a force of hate and dehumanization. Worship the rich and wealthy, worship power attraction of Donald Trump. A MLK jr or Malala (Pakistan) force.  Jen Senko March 2016, before November 2016, film was not that rise - and it should have been. Jen Senko, the baby boomer who stood up to Fox News, did not get the attention that the topic needed. Just like social media didn't stand for sustained Entertainment "The Apprentice" crticisim.
+Donald Trumpdraws haters into reaction, exploits hate mindsets. People seem to drain away any idea of bottom-up progress. The society in total really needs a morality preacher, a MLK Jr. Donald Trump is a force of hate and dehumanization. Worship the rich and wealthy, worship power attraction of Donald Trump. A MLK jr or Malala (Pakistan) force.  Jen Senko March 2016, before November 2016, film was not that rise - and it should have been. Jen Senko, the baby boomer who stood up to Fox News, did not get the attention that the topic needed. Just like social media didn't stand for sustained Entertainment "The Apprentice" criticism.
 
-1. Carl Sagan on Dumb and Dumber
-2. Neil Postman, entertaining ourselves to death politics of Ronald Regan and I vidily remember my high school classs in the 2nd term of Ronald Reagan in 1985. The celebrity charm and worship. Rick Roderick in 1993 saw this with his Duke University students looking back a few short year after... how it was such a Hyper Real social experience.
+1. [Carl Sagan on Dumb and Dumber year 1995](/Quotes_Pile/Carl_Sagan_Quotes.md)
+2. Neil Postman, entertaining ourselves to death politics of Ronald Reagan and I vividly remember my high school classes in the 2nd term of Ronald Reagan in 1985. The celebrity charm and worship. Rick Roderick in 1993 saw this with his Duke University students looking back a few short year after... how it was such a Hyper Real social experience.
 
 &nbsp;
 
@@ -108,7 +110,7 @@ Sponge Bob... https://www.wendysueswanson.com/fast-paced-media-and-4-year-olds-c
 
 Monday November 10, 2025 situation    
 
-I agree, "We The People" have not stood up to Fox News (support Jen Senko), we did not stand up to the media addiction / Rescue MAGA / Russian information war. Putin won. People are entertained by Trump, entertainment wins. "No Kings" expressed emotion but it did not present a plan to take on Surkov information warfare / IRA / Fox News addiction / media ecology crisis. People don't even recognize we are in Neil Postman's 1985 book "Amusing Ourself To Death" situation around a entertiner (Realty TV The Apprentice). People are standing up to name-call and insult Trump (fat, diaper poop, orange skin, speeaks funny, all caps Twitter, idiot, dumb, stupid, moron). None of this addresses Surkov information warfare since year 2013. People are inside the simulation, not calling out the origins of the simulation.
+I agree, "We The People" have not stood up to Fox News (support Jen Senko), we did not stand up to the media addiction / Rescue MAGA / Russian information war. Putin won. People are entertained by Trump, entertainment wins. "No Kings" expressed emotion but it did not present a plan to take on Surkov information warfare / IRA / Fox News addiction / media ecology crisis. People don't even recognize we are in Neil Postman's 1985 book "Amusing Ourselves To Death" situation around a entertiner (Realty TV The Apprentice). People are standing up to name-call and insult Trump (fat, diaper poop, orange skin, speaks funny, all caps Twitter, idiot, dumb, stupid, moron). None of this addresses Surkov information warfare since year 2013. People are inside the simulation, not calling out the origins of the simulation.
 
 https://old.reddit.com/r/politics/comments/1otiwkw/senator_who_caved_on_shutdown_says_standing_up_to/
 
@@ -119,7 +121,7 @@ https://old.reddit.com/r/politics/comments/1otiwkw/senator_who_caved_on_shutdown
 
 https://old.reddit.com/r/NoFilterNews/comments/1p2zlx1/donald_trump_faces_articles_of_impeachment_before/nq0wz2p/
 
-Why isn't social media, Reddit / Bluesky, calling every 6 hours for a new posting / hashtag that Trump be impeached. A sustained repeating focus on social media that people want Trump gone. Way bigger than No Kings? My alarming answer is people are extremely addicted (for over 10 years and 5 months) to Trump as a "LOL cow" to milk for memes and entertainment. People who go to meme mills like Bluesky and Reddit but don't want to use information systems to organized sustained online protests (seriouis calls for removal). Addicts to the non-boring leadership that Trump provides that Biden did not provide (Biden was boring to meme addicts, antics addicts, Trump provides stimulation... Trump gives entertainment thrills).
+Why isn't social media, Reddit / Bluesky / Lemmy / Mastodon, calling every 6 hours for a new posting / hashtag that Trump be impeached. A sustained repeating focus on social media that people want Trump gone. Way bigger than No Kings? My alarming answer is people are extremely addicted (for over 10 years and 5 months) to Trump as a "LOL cow" to milk for memes and entertainment. People who go to meme mills like Bluesky and Reddit but don't want to use information systems to organized sustained online protests (serious calls for removal). Addicts to the non-boring leadership that Trump provides that Biden did not provide (Biden was boring to meme addicts, antics addicts, Trump provides stimulation... Trump gives entertainment thrills).
 
 &nbsp;
 
@@ -127,7 +129,7 @@ Why isn't social media, Reddit / Bluesky, calling every 6 hours for a new postin
 
 https://old.reddit.com/r/Music/comments/1p6h2gs/taylor_swift_branded_a_coward_for_staying_silent/
 
-Front page of Reddit. People calling out the icons they fixate on, status symbols, for not standing up. When did Reddit start a "Day 25 of x until Trump is impeached / removed / Fox News understood as fiction. Cult and fictio addiction problemin USA addressed" posting every 12 hours? People are more concerned about kitten photos, Formula 1 races, and Nintedo Switch 2025 vs. Steam hardware 2025. Trump and MAGA is a global threat to humanity. Russia winning an information war is a thrat to all humanism, it is self-harm to even domestic Russia what Surkov unleashed.
+Front page of Reddit. People calling out the icons they fixate on, status symbols, for not standing up. When did Reddit start a "Day 25 of x until Trump is impeached / removed / Fox News understood as fiction. Cult and fiction addiction problem in USA addressed" posting every 12 hours? People are more concerned about kitten photos, Formula 1 races, and Nintendo Switch 2025 vs. Steam hardware 2025. Trump and MAGA is a global threat to humanity. Russia winning an information war is a threat to all humanism, it is self-harm to even domestic Russia what Surkov unleashed. 
 
 &nbsp;
 
@@ -135,7 +137,7 @@ Front page of Reddit. People calling out the icons they fixate on, status symbol
 
 https://old.reddit.com/r/KitchenConfidential/comments/1pojs1e/cutting_a_couple_of_chives_almost_every_day_until/
 
-TEN FULL YEARS AND SIX MONTHS since June 16, 2015 Trump. And front page of Reddit you see sustained focus on a joke, trivial "chives" movement. Not a call for Donald Trump to be removed from office / MAGA Bible literacy repeating for 66 days. Bible verse "1 John 3:17" lessons to apply to { Musk, Trump, Murdoch, Putin } audiences. Not Bible literacy lessons of verse "1 John 4:20" on prizing hate of Mexicans / immigrants. The sustained focus on social platforms is people flocking to { Formula 1 billionaire petrol consumption / private fleets of jets to fly around cars to race. NFL, NBA, baseball, video games, trivialities }. We The People did not use social media to say "Day 66 of important serious organization to call for Trump removal for the goodness of mankind and future". ... ... ...     
+TEN FULL YEARS AND SIX MONTHS since June 16, 2015 Trump. And front page of Reddit you see sustained focus on a joke, trivial "chives" movement. Not a call for Donald Trump to be removed from office / MAGA Bible literacy repeating for 66 days. Bible verse "1 John 3:17" lessons to apply to { Musk, Trump, Murdoch, Putin } audiences. Not Bible literacy lessons of verse "1 John 4:20" on prizing hate of Mexicans / immigrants. The sustained focus on social platforms is people flocking to { Formula 1 billionaire petrol consumption / private fleets of jets to fly around cars to race. NFL, NBA, baseball, video games, trivialities }. We The People did not use social media to say "Day 66 of important serious organization to call for Trump removal for the goodness of mankind and future". ... ... ...      
 
 "Huxley feared we would become a trivial culture, preoccupied with some equivalent of the feelies, the orgy porgy, and the centrifugal bumblepuppy." ... "This book is about the possibility that Huxley, not Orwell, was right.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
 
@@ -147,4 +149,4 @@ TEN FULL YEARS AND SIX MONTHS since June 16, 2015 Trump. And front page of Reddi
 
 2026-01-04
 
-Again and again, We The People will not use social media to halt entertainment and tell all children in the entire world that the USA is in trouble and we need mental health professionals to organize around Dr. Bandy X Lee. But instead, we get social media comments like this all the time every day, tree after tree, and nobody seeing the forest problem. Every 47 hour all social media sites dedicate between 1 to 4 hours to make a FAQ / Wiki on what priorities are. The 47 hours being inspired by Trump's term. **The BrainRot society 47**. And that also shifts it to different times of the day for the whole world to get daytime and nighttime coverage over months and years.
+Again and again, We The People will not use social media to halt entertainment and tell all children in the entire world that the USA is in trouble and we need mental health professionals to organize around Dr. Bandy X Lee. But instead, we get social media comments like this all the time every day, tree after tree, and nobody seeing the forest problem. Every 47 hour all social media sites dedicate between 1 to 4 hours to make a FAQ / Wiki on what priorities are. The 47 hours being inspired by Trump's term. **The BrainRot Society 47**. And that also shifts it to different times of the day for the whole world to get daytime and nighttime coverage over months and years.
