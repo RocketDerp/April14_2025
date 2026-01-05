@@ -2137,3 +2137,27 @@ https://old.reddit.com/r/Pluribus_Sucks/comments/1q3jibz/vince_gilligan_waiting_
 This is the user I called pro-ignorance and got banned for saying that to them.
 
 * "Pluribus Sucks" subreddit. an organized anti-goodness fandom, and organised mocking club, hate group. where people weaponize that the "show sucks" hate mocking and insulting people who discuss the show. A pro-ignorance echo-chamber.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q3hg7h/is_the_plur1bus_hive_mind_schizophrenia_is_helen/nxl27ff/
+
+My message, worth repeating as my 2nd to last before being banned:
+
+> I am not even talking about politics
+
+The magic word "politics" that has no specific meaning. Never precise, never accurate, just "anything"
+
+The fucking FOUNDING FATHERS MASONS is the title of Pluribus show.
+
+The USA is a hell hole in 2026. We are in HELL.
+
+Hell is not a place under the earth, it is a mindset.
+
+Wake the fuck up. Minute 22 of Episode One. Finnegans Wake. Stop acting like I am dumb or stupid and actually listen.
+
+The entire world is going into another world war.
+
+That is a RELIGION, FAITH concern. You dismiss it as "politics"
+
+# Democracy WILL NOT WORK without "Love thy Neighbor"
+
+hate the Spanish speakers is not love.
