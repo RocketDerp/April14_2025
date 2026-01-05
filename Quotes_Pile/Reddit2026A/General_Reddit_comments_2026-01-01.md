@@ -395,3 +395,8 @@ https://old.reddit.com/r/justgalsbeingchicks/comments/1q4lxax/liz_cheney_i_say_t
 <img width="980" height="423" alt="image" src="https://github.com/user-attachments/assets/0efa79e1-117b-478f-a601-c3c993a0ae63" /> Fiction outsells non-fiction. Popular to consume fiction fantasy shit. Reddit audiences love shitsohows for entertainment / amusement. Neil Postman's 1985 book explains. Reddit users (meme consumers) celebrating the ignorance of USA 2026.
 
 Social media: { https://Autistics.Life/@RoundSparrow/115843608679343870 https://bsky.app/profile/roundsparrow.bsky.social/post/3mbowpw2pu22m }
+
+https://old.reddit.com/r/worldnews/comments/1q4oizw/un_says_us_raid_on_venezuela_violated/nxu1vk4/
+
+The constantly repeated message on Reddit: **Nothing can be one about Putin + Donald Trump, Elon Musk and MAGA**, back to amusement memes on /r/All as usual! Tiny-short Reddit comments that are highly upvoted to top of pages, giving a banality track to the Reddit audience that they should prize the do-nothing attitude. The slackers who spend spare time and free time mocking away the world. [To give up comedy and LOL all day is not possible! That's the message on Reddit, always.](/Grim_Blunt/Stop_All_Entertainment.md)
+
