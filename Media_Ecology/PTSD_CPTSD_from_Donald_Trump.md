@@ -152,9 +152,9 @@ https://old.reddit.com/r/complaints/comments/1orumug/i_cant_do_3_more_years_of_t
 
 Thursday December 11, 2025 (Quote about Russia Hybrid wrfare day)    
 
-Media Ecology is this page organization on GitHub. And you see social media "The Media" ecology of flippant mockery and dismissal of Decleration of Independence meaning of "self-evident" 1776 year.
+Media Ecology is this page organization on GitHub. And you see social media "The Media" ecology of flippant mockery and dismissal of Deceleration of Independence meaning of "self-evident" 1776 year.
 
-CPTSD / PTSD of Trumpism / Fox News nation / Putin hybird warfare and Putin since year 1999 enduring techniques. Putinsim WORKS, PROVEN SYSTEM! And terrorzing stress-lording / PTSD. Ukraine war since February 2014 - STILL ONGOING into year 2026. IT WORKS. Surkovian methods WORK in wrecking goodness, CPTSD. How many families and marriages broken by Fox News HDTV anti-reality / Kremlin War Against Relaity since March 2013?
+CPTSD / PTSD of Trumpism / Fox News nation / Putin hybrid warfare and Putin since year 1999 enduring techniques. Putinsim WORKS, PROVEN SYSTEM! And terrorizing stress-lording / PTSD. Ukraine war since February 2014 - STILL ONGOING into year 2026. IT WORKS. Surkovian methods WORK in wrecking goodness, CPTSD. How many families and marriages broken by Fox News HDTV anti-reality / Kremlin War Against Reality since March 2013?
 
 https://old.reddit.com/r/MurderedByWords/comments/1pjvk9z/i_think_this_goes_here/      
 "Murder by words, Words of constant stress ruling / lording stress by Fox News audience / Murdoch / Twitter Musk stress lords power, Real Estate lords"     
@@ -165,3 +165,8 @@ https://bsky.app/profile/roundsparrow.bsky.social/post/3m7pputcx2k2p
 
 https://old.reddit.com/r/Wellthatsucks/comments/1polpls/chronic_stress_is_real/     
 Symptoms. Chronic Donald Trump / MAGA / Rupert Murdoch stress lording. Falsehoods, manipulation, praise of Putin.    
+
+&nbsp;
+
+
+https://old.reddit.com/r/antiwork/comments/1q4u4qv/aint_that_the_truth_majority_of_my_mental_health/
