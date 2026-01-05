@@ -118,3 +118,9 @@ https://old.reddit.com/r/LeopardsAteMyFace/comments/1q4puix/i_cant_believe_this_
 "The media", Reddit media empire is over two decades old. This is a virgin Reddit account doing everything it can to say "The Media', but not *here* in a mocking American echo-chamber of out-group hate. Don't rescue MAGA! Just mock MAGA and mock USA media systems, but don't quote an article from the BBC about Reddit! Don't escape the screen simulation / simualcra Putin put everyone into on Reddit!
 
 A Reddit message mocking "real", and "reality" and "The Real People" on a Reddit servers full of non-identity Russians since March 2013. https://www.bbc.com/news/technology-43301643
+
+https://old.reddit.com/r/law/comments/1q4vui7/unnamed_source_in_viral_minnesota_somali_daycare/nxvpxc2/
+
+It works because Reddit users refuse to discuss details and facts about Russian information warfare. Kremlin techniques and methods of media systems / information systems warfare. 
+
+"Putin is clearly winning Russia’s hybrid war against the U.S. because Americans don’t understand how they are being manipulated." - December 11, 2020 - "The Heritage Foundation" https://www.heritage.org/defense/commentary/putin-winning-russias-hybrid-war-against-america (Before January 6, 2021 - by weeks. QAnon was Russian Hybrid warfare, QAnon flags on January 6 https://old.reddit.com/r/QAnonRussia/ QAnon-Russia subreddit)
