@@ -323,4 +323,33 @@ https://old.reddit.com/r/ProgressiveHQ/comments/1q403qe/it_was_never_about_the_p
 
 Brand new Reddit account /r/Politics, promoting Russia over Ukraine. 
 
+https://old.reddit.com/r/ProgressiveHQ/comments/1q403qe/it_was_never_about_the_president_being_a_cruel/nxpcqk8/
+
+Look at the message on the user profile. It is pro-banality pro-mockery. See this https://old.reddit.com/r/HyperBanalisation/ subreddit I created to tray and describe this behavior on Reddit.
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1q403qe/it_was_never_about_the_president_being_a_cruel/nxoy3mz/
+
+The founding fathers did not teach conservative vs. liberal. It's brainrot measure. 13 steps up the pyramid of the Great Seal USA is ignored.
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1q403qe/it_was_never_about_the_president_being_a_cruel/nxqakaj/
+
+Dublin seems to fall for it so much that year 1923 "Finn's Hotel"... James Joyce made a book called "Finnegans Wake" about USA and Dublin and falling down and learning in the mind to overcome bamboozle.
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1q403qe/it_was_never_about_the_president_being_a_cruel/nxoz9nn/
+
+In all the talk about Epstein List, why aren't people discussing January 2009 onward blogging by Malala in Swat Valley, Pakistan and her labor to give girls voices ALL OVER EARTH - and teach girls to network with each other, become stronger, and face up to abusive old men like Taliban leaders? Supporting Malala is addressing the roots of the Epstein List behavior. How much more abuse do you need to see than a girl on a school bus having her and friends shot, in the head, for blogging against old men? How can you possibly not see the need to mention Malala's name as often as people mention Epstein name? Don't let men run all around the world abusing women. It is not a NATIONAL issue, it is a human species evolution of society issue! It is an EDUCATION issue to see this is a problem with girls / women being abused systemically everywhere on Earth! Russia, Ukraine, South Africa, Pakistan, Palestine, Saudi Arabia, USA. Support Malala's year 2013 book ideas.
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1q403qe/it_was_never_about_the_president_being_a_cruel/nxp9hoi/
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1q403qe/it_was_never_about_the_president_being_a_cruel/nxpsfui/
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1q403qe/it_was_never_about_the_president_being_a_cruel/nxqiibj/
+
+Calling people "mentally sick", give up on "too far gone" American people in /r/Politics. New Reddit account. This is the messaging of Reddit platform. Give up on people that are "too far gone" and block them, tell them to go get medical services, don't dialog and quote nonfiction books or link articles. Just insult people as worthless, not worth savings, give up on humanism messages.
+
+https://old.reddit.com/r/politics/comments/1q4257u/democrats_begin_to_call_for_trumps_impeachment/nxpcmqv/
+
+[Social media did not stand up in any focused and sustained way. People can only organize when there is a new release of a video game or movie or TV show on social media](/Grim_Blunt/Pop/Social_Media_Society_did_not.md). Again and again, We The People will not use social media to halt entertainment and tell all children in the entire world that the USA is in trouble and we need mental health professionals to organize around Dr. Bandy X Lee. But instead, we get social media comments like this all the time every day, tree after tree, and nobody seeing the forest problem. Every 47 hour all social media sites dedicate between 1 to 4 hours to make a FAQ / Wiki on what priorities are. The 47 hours being inspired by Trump's term. The BrainRot society 47. And that also shifts it to different times of the day for the whole world to get daytime and nighttime coverage over months and years.
+
+
 
