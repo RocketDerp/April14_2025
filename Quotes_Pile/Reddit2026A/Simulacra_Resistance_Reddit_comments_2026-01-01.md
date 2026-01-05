@@ -91,3 +91,20 @@ Reddit addicts to screaming at the press won't bother to use Google Search and f
 https://old.reddit.com/r/50501/comments/1q4u5mm/we_are_looking_more_like_russia_every_day/nxv5q0a/
 
 Simualcra of resistance. "this shit is not ok", tiny-short messages. Elon Musk tweet-thinking patterns in the minds. Russia is in the front page of Reddit posting today. But nobody on Reddit wants **to seriously** an actually address the invasion of Reddit by Russia. Because serious discussions aren't tiny-short messages of a few words. Americans will not put down the toys and amusements and games... and stand up to Putin / Kremlin / Russia in an information war. Reddit is "owned" by Putin fanatics. https://www.bbc.com/news/technology-43301643
+
+https://old.reddit.com/r/MurderedByWords/comments/1q4wzzk/top_g_heading_for_greenland/nxvrctg/
+
+1. A Twitter (Elon Musk) screenshot on Reddit
+
+2. Dumb shit vs. dumb shit
+
+3. Reddit audience eats this shit up. EVERY TIME from MAGA shit.
+
+4. Thrilled at how amusing it is to watch their nation be dumb and stupid
+
+5. Reddit meme fandom (Twitter message fandom too) of how glorious it is that the White House provides such mockery. "associated with WWE (World Wrestling Entertainment) is Linda McMahon, who became the U.S. Secretary of Education in March 2025 under President Trump, bringing her business background (including leading WWE) into the role, aligning with a focus on school choice and parental rights in education."
+
+&nbsp;
+
+"For all his perspicacity, George Orwell would have been stymied by this situation; there is nothing “Orwellian” about it. The President does not have the press under his thumb. The New York Times and The Washington Post are not Pravda; the Associated Press is not Tass. And there is no Newspeak here. Lies have not been defined as truth nor truth as lies. **All that has happened is that the public has adjusted to incoherence and been amused** into indifference. Which is why Aldous Huxley would not in the least be surprised by the story. Indeed, he prophesied its coming. He believed that it is far more likely that the Western democracies will dance and dream themselves into oblivion than march into it, single file and manacled. Huxley grasped, as Orwell did not, that it is not necessary to conceal anything from a public insensible to contradiction and narcoticized by technological diversions. Although Huxley did not specify that television would be our main line to the drug, he would have no difficulty accepting Robert MacNeil’s observation that “Television is the soma of Aldous Huxley’s Brave New World.” Big Brother turns out to be Howdy Doody."
+― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, **year 1985**, page 111
