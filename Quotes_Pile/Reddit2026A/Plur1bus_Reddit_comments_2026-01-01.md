@@ -2327,6 +2327,7 @@ OPERA_A Pink Floyd API, lesbian characters colors, prisms metaphors. Pirate ship
 
 It is beyond words to describe the dehumanizing impact of a war against persons for drug dealers Walter White product consumers this past weekend. The competitive high-seas piracy of national leaders, the attitudes of out-group. Language and English and Spanish metaphors of the Pluribus 3 characters, trinity, in USA just won't cut it. The Postman / Jolly Rogers Waters "is beyond words, beyond images, beyond that bounding rim", the worship praise people have for Mr. White and MAGA fandoms. The aspiring mocking brain chemistry. The worker bees of the hive mind swarms of students of Vince Gilligan's past mourning plays out on the device screens. I've been screened out from the community, outcast from society, for not showing the proper gang intimidation short-message colours.
 
-OPERA_A https://www.youtube.com/watch?v=l8pEjmZVx3k 1,941,049 views Premiered June 2, 2023 digital remastering of the unwated and undesired errors and mistakes of humanity.
+OPERA_A https://www.youtube.com/watch?v=l8pEjmZVx3k 1,941,049 views Premiered June 2, 2023 digital remastering of the unwanted and undesired humanism; this street gang member left on their Reddit profile calling card, graffiti messages in public "Jewish. LGBTQ. Am yisrael chai!" digital mastery reerrors and remakes remistakes of humanity. Anti-Pluribus anti-free anti-masonic, not the Brick Hod of Finn's Hotel 19233 confrontation of the holocaust against autism values. Anti-diversity of Reddit machine intimations. The Celebration of Banning party will further in the extermination camp of goodness.
+
 
 
