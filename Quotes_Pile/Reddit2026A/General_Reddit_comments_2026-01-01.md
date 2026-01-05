@@ -307,3 +307,20 @@ https://old.reddit.com/r/github/comments/1njhdzi/can_i_trace_a_userattachments_d
 
 <img width="1383" height="703" alt="image" src="https://github.com/user-attachments/assets/930ef8e6-e5f3-49c9-a268-49ff156d822c" /> The anti-learning anti-goodness behavior of USA 2025 society. This comment is last year, but ran across it researching an issue. Note they are reporting the anti-goodness behavior happened at similar times on multiple social media platforms. It is a society-wide shift towards hate via computing platforms / machines to dehumanize people.
 
+https://old.reddit.com/r/ProgressiveHQ/comments/1q403qe/it_was_never_about_the_president_being_a_cruel/nxqlwhb/
+
+[Read page: Donald Trump is so Obviously Bad](/Grim_Blunt/Donald_Trump_is_so_Obvious.md). It is in no way difficult to see Trump is a "city slicker", a "New York Playboy" who lives off golden spoon desires and does sex shows, showing women off in beauty pageants, to get attention. Standing next to lavish things and beautiful women gets Trump attention for what he stands next to! This is not difficult to demonstrate across his entire life.
+
+But do you witness people addressing the problem like that? That Donald Trump flashes cash, lives "bling life", with private jets and women he pays to be in television shows on November 8, 2013 in Moscow? https://en.wikipedia.org/wiki/Miss_Universe_2013 Nope. And how November 2013 is [right before February 2014 Ukraine war, normalizing Russia](/Operation_Matthew_4_19_on_monday_2024-03-31.md) on the Miss Universe attention stage? I see low-effort Reddit comments that don't actually discuss that the audience itself has a problem. OPERA_A https://www.youtube.com/watch?v=xYikyYL0S00 1,951,249 views January 20, 2009 - I remember sharing this song link to North Africa in 2010 during Arab Spring, the opening image.
+
+The entire nation needs to face up to the avoidance of Bible verse "1 John 3:17" - it doesn't matter if you believe in science fiction stories. You can learn a quote and apply it to MAGA voters and Trump / Musk values. Is it difficult? no. Is it outside the thinking people are locked into on social sites? yes. Promoting Bible verse "1 John 3:17" is authentic goodness. Which people find repulsive and unattractive since year 2013.
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1q403qe/it_was_never_about_the_president_being_a_cruel/nxpbuiy/
+
+This comment got 2 replies but not a single upvote. Reddit society...
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1q403qe/it_was_never_about_the_president_being_a_cruel/nxpy41q/
+
+Brand new Reddit account /r/Politics, promoting Russia over Ukraine. 
+
+
