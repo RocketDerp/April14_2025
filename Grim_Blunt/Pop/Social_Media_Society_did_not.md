@@ -138,3 +138,13 @@ https://old.reddit.com/r/KitchenConfidential/comments/1pojs1e/cutting_a_couple_o
 TEN FULL YEARS AND SIX MONTHS since June 16, 2015 Trump. And front page of Reddit you see sustained focus on a joke, trivial "chives" movement. Not a call for Donald Trump to be removed from office / MAGA Bible literacy repeating for 66 days. Bible verse "1 John 3:17" lessons to apply to { Musk, Trump, Murdoch, Putin } audiences. Not Bible literacy lessons of verse "1 John 4:20" on prizing hate of Mexicans / immigrants. The sustained focus on social platforms is people flocking to { Formula 1 billionaire petrol consumption / private fleets of jets to fly around cars to race. NFL, NBA, baseball, video games, trivialities }. We The People did not use social media to say "Day 66 of important serious organization to call for Trump removal for the goodness of mankind and future". ... ... ...     
 
 "Huxley feared we would become a trivial culture, preoccupied with some equivalent of the feelies, the orgy porgy, and the centrifugal bumblepuppy." ... "This book is about the possibility that Huxley, not Orwell, was right.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
+
+&nbsp;
+
+&nbsp;
+
+# Brainrot Society 47
+
+2026-01-04
+
+Again and again, We The People will not use social media to halt entertainment and tell all children in the entire world that the USA is in trouble and we need mental health professionals to organize around Dr. Bandy X Lee. But instead, we get social media comments like this all the time every day, tree after tree, and nobody seeing the forest problem. Every 47 hour all social media sites dedicate between 1 to 4 hours to make a FAQ / Wiki on what priorities are. The 47 hours being inspired by Trump's term. **The BrainRot society 47**. And that also shifts it to different times of the day for the whole world to get daytime and nighttime coverage over months and years.
