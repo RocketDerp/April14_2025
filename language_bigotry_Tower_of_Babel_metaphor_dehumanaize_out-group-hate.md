@@ -28,3 +28,15 @@
 &nbsp;
 
 "James Joyce is renowned for his extensive and inventive use of neologisms, or newly coined words, particularly in his novels Ulysses and Finnegans Wake. He experimented with language, creating words that often combined existing words, prefixes, and suffixes to achieve specific effects, such as humor, ambiguity, or symbolic meaning." [!JamesJoyceExperience@lemm.ee](https://lemm.ee/c/JamesJoyceExperience) 
+
+&nbsp;
+
+&nbsp;
+
+# Monday, January 5, 2026
+
+ToDo: find all the "Fox news language" The Atlantic links and pair up
+
+Reddit Front Page. Word choice, John One One     
+
+https://old.reddit.com/r/coolguides/comments/1q4uu2y/a_cool_guide_to_translating_trump/
