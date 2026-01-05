@@ -352,4 +352,10 @@ https://old.reddit.com/r/politics/comments/1q4257u/democrats_begin_to_call_for_t
 [Social media did not stand up in any focused and sustained way. People can only organize when there is a new release of a video game or movie or TV show on social media](/Grim_Blunt/Pop/Social_Media_Society_did_not.md). Again and again, We The People will not use social media to halt entertainment and tell all children in the entire world that the USA is in trouble and we need mental health professionals to organize around Dr. Bandy X Lee. But instead, we get social media comments like this all the time every day, tree after tree, and nobody seeing the forest problem. Every 47 hour all social media sites dedicate between 1 to 4 hours to make a FAQ / Wiki on what priorities are. The 47 hours being inspired by Trump's term. The BrainRot society 47. And that also shifts it to different times of the day for the whole world to get daytime and nighttime coverage over months and years.
 
 
+https://old.reddit.com/r/Music/comments/1p6h2gs/taylor_swift_branded_a_coward_for_staying_silent/nqqn7me/
 
+If we feed famous people the right scripts, speeches, screenplays and credit the authors, we get the message out! They have the free time and wealth to help. But We The People have to speak up and stand up.. Social media has not stood up! Reddit has not stood up, Bluesky has not stood up, Lemmy has not stood up, etc. [Social media did not stand up in any focused and sustained way. People can only organize when there is a new release of a video game or movie or TV show on social media](/Grim_Blunt/Pop/Social_Media_Society_did_not.md).
+
+https://old.reddit.com/r/politics/comments/1q47rqj/elon_musk_falls_for_fake_video_of_venezuelans/nxqjjjs/
+
+We must Rescue Elon Musk from Russian Twitter / Internet Research Agency. Musk believes fiction and falsehoods out of Kremlin. September 9, 2014 (18 months after it started): https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
