@@ -302,3 +302,8 @@ New Reddit account in /r/Politics - note that absence of book titles, links, aut
 
 * “Today, reports of the day’s events are conveyed to the viewing public by way of alternate universes, The Fox News cable channel conveys its version of reality, while at the other end of the ideological spectrum MSNBC presents its version. They and their many counterparts on radio are more the result of an economic dynamic than a political one. Dispatching journalists into the field to gather information costs money; hiring a glib bloviator is relatively cheap, and inviting opinionated guests to vent on the air is entirely cost-free. It wouldn’t work if it weren’t popular, and audiences, it turns out, are endlessly absorbed by hearing amplified echoes of their own biases. It’s divisive and damaging to the healthy functioning of our political system, but it’s also indisputably inexpensive and, therefore, good business.”
 ― Ted Koppel. Lights Out: A Cyberattack, A Nation Unprepared, Surviving the Aftermath. October 27, 2015. Page 13.
+
+https://old.reddit.com/r/github/comments/1njhdzi/can_i_trace_a_userattachments_download_link_back/neqp2w4/
+
+<img width="1383" height="703" alt="image" src="https://github.com/user-attachments/assets/930ef8e6-e5f3-49c9-a268-49ff156d822c" /> The anti-learning anti-goodness behavior of USA 2025 society. This comment is last year, but ran across it researching an issue. Note they are reporting the anti-goodness behavior happened at similar times on multiple social media platforms. It is a society-wide shift towards hate via computing platforms / machines to dehumanize people.
+
