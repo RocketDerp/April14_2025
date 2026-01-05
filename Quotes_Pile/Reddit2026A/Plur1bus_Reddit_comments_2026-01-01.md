@@ -2288,3 +2288,31 @@ February 28, 1954: "Most people can't stand up for their convictions, because th
 &nbsp;
 
 P.S. You have not criticized the "doctor" who badgered me on this subreddit at all. You are adding to the attack, piling on, jumping on the anti-individual free-thinking bandwagon.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q31la0/all_of_mankind_becomes_united_pluribus_fans_are/nxkz8ng/
+
+<img width="800" height="450" alt="image" src="https://github.com/user-attachments/assets/d3633ad1-67e2-4f60-8c99-7db248c55e6c" /> This person is commenting on my posting about Finnegans Wake and Pluribus with a sponge bob image. South Park is how people stand up to Trump. Antics vs.antics. Mocking vs. mocking. Always more animated junk instead of discussing what is in books.  The Constitution is not animated junk. And the ART WORK SYMBOL is the free masons "PLURIBUS" work, the Latin and pyramid and eagle and stars. But people won't discuss that on Reddit, you get sponge bob images about adult books.
+
+They are throwing SHADE at me, who is commented on in the article, and MY posting. They are saying "Hey, I doubt it" with sponge bomb to insult my posting and my assertions of this being a show about { book readers, book fandoms, book selling, book touring, Finnegans Wake book, pirate story books, etc }
+
+This is a hyper-banality attack to turn serious focus and serious thinking into memes. This is a show about POLTICS, the USA free masons founding fathers is the Title. And trying to mock the free-mason teachings inside James Joyce's Finnegans Wake is a anti-USA politics messaging on Reddit. https://old.reddit.com/r/HyperBanalisation/
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q31la0/all_of_mankind_becomes_united_pluribus_fans_are/nxkzka5/
+
+My reply message:
+
+> The average Pluribus theorycrafter having read Finnegan’s Wake, or any book for adults for that matter:
+
+
+
+Sponge Bob child content. The most dumb idiot content there was ever to be raised on. Flashy bright images, anti-reading. Anti Finnegans Wake in every way.
+
+All yo do is insult human intelligence, none of your reply addresses the world peace crisis! None of your reply addresses the Free Masons Free Thinking Pluribus concept. It's just dumb as hell meme think Reddit-stupid shit.
+
+&nbsp;
+
+# Sponge Bob Reddit society
+
+“Science is more than a body of knowledge; it is a way of thinking. I have a (year 1995) foreboding of an America in my children’s or grandchildren’s time — when the United States is a service and information economy; when nearly all the key manufacturing industries have slipped away to other countries; when awesome technological powers are in the hands of a very few, and no one representing the public interest can even grasp the issues; when the people have lost the ability to set their own agendas or knowledgeably question those in authority; when, clutching our crystals and nervously consulting our horoscopes, our critical faculties in decline, unable to distinguish between what feels good and what’s true, we slide, almost without noticing, back into superstition and darkness. The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the **30-second** sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but especially a kind of [celebration of ignorance](https://www.youtube.com/watch?v=wcY-x1VuWtE). As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning — not just of science, but of anything — are avoidable, even undesirable.”
+― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995, page 59
+
