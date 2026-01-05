@@ -393,3 +393,5 @@ As Adam Curtis said way back NYE 2014. Contradiction is the game. Choose your ow
 https://old.reddit.com/r/justgalsbeingchicks/comments/1q4lxax/liz_cheney_i_say_this_to_my_republican_colleagues/nxtgu09/
 
 <img width="980" height="423" alt="image" src="https://github.com/user-attachments/assets/0efa79e1-117b-478f-a601-c3c993a0ae63" /> Fiction outsells non-fiction. Popular to consume fiction fantasy shit. Reddit audiences love shitsohows for entertainment / amusement. Neil Postman's 1985 book explains. Reddit users (meme consumers) celebrating the ignorance of USA 2026.
+
+Social media: { https://Autistics.Life/@RoundSparrow/115843608679343870 https://bsky.app/profile/roundsparrow.bsky.social/post/3mbowpw2pu22m }
