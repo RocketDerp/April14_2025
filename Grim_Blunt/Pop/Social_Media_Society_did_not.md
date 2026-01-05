@@ -1,4 +1,4 @@
-### very draft
+### very draft / drafty
 
 very draft, scratch notes, barely awake.    
 all this media machines generating Russian hate messages and worship of Donald Trump hate faith has given me extreme brain damage.   
