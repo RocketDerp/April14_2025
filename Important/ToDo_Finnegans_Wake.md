@@ -767,3 +767,9 @@ https://old.reddit.com/r/oddlyspecific/comments/1q3nq3t/he_kind_of_makes_sense_t
 https://old.reddit.com/r/TikTokCringe/comments/1q4nygz/a_mob_of_300_men_surround_a_woman_who_is_accused/
 
 Front page of reddit. Anti-Malala on camera. outside the hive mind of society. Romans 11:32 Joyce.
+
+&nbsp;
+
+Language bigotry, Tower of Babel, China     
+Media profit of selling out-group misunderstandings, "content". Media Ecology of Marshall McLuhan's 1968 book "War And Peace In the Global World Wide Web"    
+https://old.reddit.com/r/LivestreamFail/comments/1q4pyi2/a_chinese_person_saw_a_black_couple_and_went_live/
