@@ -74,3 +74,16 @@ https://old.reddit.com/r/justgalsbeingchicks/comments/1q4lxax/liz_cheney_i_say_t
 Lives were killed by COVID-2019 - and people can't be bothered to link to warnings of measles and COVID spreading on Twitter and Reddit by Internet Research Agency, evidence going back to year 2014! https://www.bbc.com/news/world-us-canada-45294192 Johns Hopkins University and George Washing *fucking founding father* University is not good enough for people to repeat and repeat. Except white men private sex "Epstein" "PizzaGate" "QAnon" "GamerGate" shit gets repeated all the time! Why will people on Reddit not repeat George Washington University August 24, 2018? No defense against the mind-washing of MAGA / *rural less-educated* USA people! The Moscow city slicker and New York City slicker have defeated the farmers and heartland of USA, and people on Reddit are complicit for not asserting and defending with intellectual messaging every hour of every day until the egomania of the White House and rural population MAGA is resolved! Why is Dr. Bandy X Lee not named drooped **MORE THAN EPSTEIN** on REDDIT!? Such fucking god-damn avoidance of civic duty and Patriotism... PUTIN FUCKING WON RURAL POPULATION HEARTS AND MINDS, RESCUE THEM WITH EDUCATION AND TEACHING! GEORGE WASHINGTON UNIVERSITY!! LISTEN!!!!
 
 Social media link to this section here on GitHub: { https://midwest.social/post/41370135 https://Autistics.Life/@RoundSparrow/115843429795288213 https://bsky.app/profile/roundsparrow.bsky.social/post/3mbou7kx5ik2w }
+
+https://old.reddit.com/r/justgalsbeingchicks/comments/1q4lxax/liz_cheney_i_say_this_to_my_republican_colleagues/nxtjkyd/
+
+Meme addicts... *cowering behind* intimate touch Apple iPhone and iPad screens avoiding asserting and mounting nonfiction rescue operations of mind-fucked MAGA! Surkov won! Putin won, since March 2013!
+
+https://old.reddit.com/r/justgalsbeingchicks/comments/1q4lxax/liz_cheney_i_say_this_to_my_republican_colleagues/nxtsz7s/
+
+Screaming at the USA press instead of using Reddit social media systems to fight back against the Internet Research Agency that has mind-fucked the rural population of the USA who is less-literate on media ecology of New York City / Manhattan professor Neil Postman! Rural people were mind-fucked by Moscow, Saint Pete IRA! Nobody on Reddit will discuss it and mount a rescue operation of MAGA Americans! People just mock and screen a "The Press" instead of posting facts and repeating news on Reddit systems. 
+
+June 2, year 2014.   
+https://www.buzzfeednews.com/article/maxseddon/documents-show-how-russias-troll-army-hit-america
+
+Reddit addicts to screaming at the press won't bother to use Google Search and fucking rescue Americans from Putin's military mind-fucking of our rural farmers in the heartland! OPERA_A I grew up in Fort Wayne Indiana, I went to public high school. This singer from Indiana speaks the education crisis we have, that Putin / Kremlin / Surkov mind-fucked. https://www.youtube.com/watch?v=joNzRzZhR2Y
