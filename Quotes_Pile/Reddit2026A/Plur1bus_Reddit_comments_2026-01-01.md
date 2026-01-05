@@ -2161,3 +2161,63 @@ That is a RELIGION, FAITH concern. You dismiss it as "politics"
 # Democracy WILL NOT WORK without "Love thy Neighbor"
 
 hate the Spanish speakers is not love.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q3hg7h/is_the_plur1bus_hive_mind_schizophrenia_is_helen/nxl429q/
+
+One of my last messages, worth repeating:
+
+>  Again, I am asking why you think iPhone users are bigotted?
+
+I don't think that. That seems like a misunderstanding.
+
+I think misunderstandings are common and caused by major avoidance of Finnegans Wake.
+
+At Minute 22 of Episode One of Pluribus, the James Joyce book "Finnegans Wake" is invoked.
+
+# Finnegan Wake
+
+Am I loud enough?
+
+Woke? Year 1923? WOKE, "Being Woke" over 100 years ago?    
+
+This 1968 book is what I have *settled on*, it bridges the gap to year 1923 "Finn's Hotel" by James Joyce. https://en.wikipedia.org/wiki/War_and_Peace_in_the_Global_Village
+
+We all better wake the fuck up, it is already too late!
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q3hg7h/is_the_plur1bus_hive_mind_schizophrenia_is_helen/nxl6jm3/
+
+> St. Augustine wrote
+
+# I NEED HELP, HELP!!
+
+> St. Augustine wrote
+
+1. How did Season One End, Home delivery driveway Bomb?
+
+2. What is the City? New Mexico..
+
+3. Where was bomb invited3, New Mexico...
+
+4. Count how many are in USA. Elvis, Carol, Radio Shack Storage man. 3. Trinity.
+
+5. Kepler 22
+
+6. the Karl G. Jansky Very Large Array (VLA), a world-renowned radio telescope facility located on the Plains of San Agustin in New Mexico
+
+> I don't think he gets on Reddit that much to look at your comments.
+
+I think you are clueless about hive minds. "Mass man", but you can learn.
+
+Marshall says YES.
+EVERYBODY TENDS TO MERGE HIS
+IDENTITY WITH OTHER PEOPLE AT
+THE SPEED OF LIGHT.
+IT'S CALLED BEING MASS MANNED.
+IT BEGAN QUITE A LONG TIME AGO.
+https://www.tvo.org/transcript/155847/marshall-mcluhan-in-conversation-with-mike-mcmanus
+
+# Massive learning ahead
+
+I"m beyond burned out.
+
+MLK Jr teaching failed. Every teacher failed.
