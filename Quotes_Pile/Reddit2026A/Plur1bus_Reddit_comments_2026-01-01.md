@@ -2336,3 +2336,7 @@ To a person with profile gang signs against equality blueprints in the Great Sea
 NOTE: the timing of the reply comment would be very late in USA, but Israel or Moscow morning.
 
 Reflecting with a morning cup of coffee, on Sunday (Levant Bible Day) August 17, 2025 when I pinned this video on my Reddit profile: https://old.reddit.com/r/WarAll/comments/1msqs1t/war_of_all_against_all_since_march_2013_war/ ... " I contacted Samantha at the Pentagon; Monday, August 17, 2015 afternoon". Ten years of every day MAGA nation (I do not mean "just some 30 percent" of people, I could mean the *real*ity of the Internet values, 100% of mindsets, Surkov monomyth patterns) worse than the last. The organized programming of audiences, television programmers.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q3j62e/the_best_hope_to_save_the_world_is_actually_peer/nxtpuuf/
+
+The context is "Pluribus_TVshow", the context of the conversation. "We The People", All of Us, Pluribus. And calling out two individuals, two people, that the society is chasing and following and trending - riding the waves of Putin and Trump. And there is no reason to message if there is no key out. But We The People are self-harming on a scale that needs to be bluntly stated and alarmingly written in English short sentences... but there is a greater context, the Greater Sealing of values.
