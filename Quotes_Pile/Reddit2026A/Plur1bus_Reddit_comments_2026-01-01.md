@@ -2329,5 +2329,6 @@ It is beyond words to describe the dehumanizing impact of a war against persons 
 
 OPERA_A https://www.youtube.com/watch?v=l8pEjmZVx3k 1,941,049 views Premiered June 2, 2023 digital remastering of the unwanted and undesired humanism; this street gang member left on their Reddit profile calling card, graffiti messages in public "Jewish. LGBTQ. Am yisrael chai!" digital mastery reerrors and remakes remistakes of humanity. Anti-Pluribus anti-free anti-masonic, not the Brick Hod of Finn's Hotel 19233 confrontation of the holocaust against autism values. Anti-diversity of Reddit machine intimations. The Celebration of Banning party will further in the extermination camp of goodness.
 
+* [“Am Yisrael Chai” is a “war cry”](https://www.reddit.com/r/Jewish/comments/1e0tgpm/am_yisrael_chai/) against autism people and neuro_diveriity in this case, a pyramid of prism coloursets, Pluribus founding fathers new world order, free masons against any single God authority, Yahweh or Allah or Jesus. OPERA_A https://www.youtube.com/watch?v=8tIdCsMufIY This Reddit subreddit gang signs symbols. 5,188,894 views  November 20, 2012
 
-
+To a person with profile gang signs against equality blueprints in the Great Seal, the anti-Pluribus knifing in public is ritual. And so much beyond words. "Everything that’s transitory is but a metaphorical reference. That’s what *We All are.", masonic All of us, We the People, Pluribus. 
