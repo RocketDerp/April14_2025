@@ -87,3 +87,7 @@ June 2, year 2014.
 https://www.buzzfeednews.com/article/maxseddon/documents-show-how-russias-troll-army-hit-america
 
 Reddit addicts to screaming at the press won't bother to use Google Search and fucking rescue Americans from Putin's military mind-fucking of our rural farmers in the heartland! OPERA_A I grew up in Fort Wayne Indiana, I went to public high school. This singer from Indiana speaks the education crisis we have, that Putin / Kremlin / Surkov mind-fucked. https://www.youtube.com/watch?v=joNzRzZhR2Y Take me to *The Promised Land* in Indiana, John! 9,628,150 views October 5, 2009 - I saw John in concert back in high school. And I shared this YouTube link during the Arab Spring to North Africa! I think about my grandpa! He was a farmer in Columbus, Ohio! Killed himself, suicide over his farm! Produce farmers.
+
+https://old.reddit.com/r/50501/comments/1q4u5mm/we_are_looking_more_like_russia_every_day/nxv5q0a/
+
+Simualcra of resistance. "this shit is not ok", tiny-short messages. Elon Musk tweet-thinking patterns in the minds. Russia is in the front page of Reddit posting today. But nobody on Reddit wants **to seriously** an actually address the invasion of Reddit by Russia. Because serious discussions aren't tiny-short messages of a few words. Americans will not put down the toys and amusements and games... and stand up to Putin / Kremlin / Russia in an information war. Reddit is "owned" by Putin fanatics. https://www.bbc.com/news/technology-43301643
