@@ -761,3 +761,9 @@ https://old.reddit.com/r/interestingasfuck/comments/1q20u1l/guy_teaches_how_to_r
 
 ABCD minded, Joyce    
 https://old.reddit.com/r/oddlyspecific/comments/1q3nq3t/he_kind_of_makes_sense_though/
+
+&nbsp;
+
+https://old.reddit.com/r/TikTokCringe/comments/1q4nygz/a_mob_of_300_men_surround_a_woman_who_is_accused/
+
+Front page of reddit. Anti-Malala on camera. outside the hive mind of society. Romans 11:32 Joyce.
