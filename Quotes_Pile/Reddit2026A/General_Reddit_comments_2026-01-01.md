@@ -411,3 +411,7 @@ Mocking away at Putin as a "nothingburger". Surkov won since March 2013.
 https://old.reddit.com/r/ProgressiveHQ/comments/1q4pxu9/breaking_tim_walz_has_just_dropped_out_of_the/nxvms8b/
 
 Reddit media ecology. How the cloud computing systems are manipulated to attack individuals who pull alarms against { MAGA, Putin influence over Trump, Putin influence over Musk }. Organized mob mentality, entire subreddit street gangs who want factual reporting of reality removed off Reddit so it can be more fiction Kremlin / Surkov monomyth. Russia won since year 2013.
+
+https://old.reddit.com/r/technology/comments/1q4uwr5/board_votes_to_dissolve_corporation_for_public/nxvgjpq/
+
+Reddit audience says "Project 2025" so predictably. This is Trump's second term in office, not first. [A nonfiction book was published in 2019 that spelled out the trade wars Trump did in year 2025. And a whole bunch more.](../Cambridge_Analytica_Quotes.md) But Reddit community meme-washes everything into jokes. Avoiding nonfiction serious books at all cost.
