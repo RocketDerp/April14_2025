@@ -359,3 +359,14 @@ If we feed famous people the right scripts, speeches, screenplays and credit the
 https://old.reddit.com/r/politics/comments/1q47rqj/elon_musk_falls_for_fake_video_of_venezuelans/nxqjjjs/
 
 We must Rescue Elon Musk from Russian Twitter / Internet Research Agency. Musk believes fiction and falsehoods out of Kremlin. September 9, 2014 (18 months after it started): https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/complaints/comments/1q46dl8/we_are_a_laughingstock/nxqbtsz/
+
+Star Wars fandom didn't want to take George Lucas seriously with the 1988 book "Power of Myth", that's before Iraq war, before September 11, 2001, before Afghanistan war, before October 7, 2023 war. People do not want to face up to the over-due reformation of science fiction literacy of The Bible in United States of America. People in USA do not know how to read The Bible and go wage wars out of mental wilding over belief in Heaven after death. We have a fiction vs. nonfiction crisis of storytelling! Skywalker Ranch California lessons on book and film! Summer of year 1988.
+
+https://old.reddit.com/r/complaints/comments/1q46dl8/we_are_a_laughingstock/nxqu4ev/
+
+We are RACING to the bottom. Engines at full power pointed downward! Surkov won since March 2013.
+
+https://old.reddit.com/r/complaints/comments/1q46dl8/we_are_a_laughingstock/nxqe0mk/
+
