@@ -51,7 +51,7 @@ What really bothers me now is that the bar is so low, the slightest non-Trump le
 
 * "The plain lesson is that study and learning — not just of science, but of anything — are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995, page 59
 
-This was correct in year 1995, and we are living in the outcomes of that. And Carl Sagan people listened to, but still the Apple iPhone in year 2007 set prizing of tiny-short dancing Trump or dancing whoever is next entertainment. 
+This was correct in year 1995, and we are living in the outcomes of that. And Carl Sagan people listened to, but *still*... the Apple iPhone in year 2007 set prizing of tiny-short dancing Trump, or dancing whoever is next, entertainment. 
 
 https://old.reddit.com/r/news/comments/1q3vnsi/canadian_officials_say_us_health_institutions_no/nxoe74f/
 
