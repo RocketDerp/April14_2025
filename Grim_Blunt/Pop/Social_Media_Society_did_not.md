@@ -162,3 +162,4 @@ Again and again, We The People will not use social media to halt entertainment a
 https://autistics.life/@RoundSparrow/115840217895333761      
 https://bsky.app/profile/roundsparrow.bsky.social/post/3mbngkl7iak2w    
 https://midwest.social/post/41341030    
+https://www.youtube.com/post/UgkxPLlQw7DAuAi_xUMrNXk3kGpHwPozxNvr    
