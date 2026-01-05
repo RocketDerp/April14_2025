@@ -400,3 +400,11 @@ https://old.reddit.com/r/worldnews/comments/1q4oizw/un_says_us_raid_on_venezuela
 
 The constantly repeated message on Reddit: **Nothing can be one about Putin + Donald Trump, Elon Musk and MAGA**, back to amusement memes on /r/All as usual! Tiny-short Reddit comments that are highly upvoted to top of pages, giving a banality track to the Reddit audience that they should prize the do-nothing attitude. The slackers who spend spare time and free time mocking away the world. [To give up comedy and LOL all day is not possible! That's the message on Reddit, always.](/Grim_Blunt/Stop_All_Entertainment.md)
 
+https://old.reddit.com/r/therewasanattempt/comments/1q4srlz/to_speak_out_against_us_action_in_venezuela/nxutrgj/
+
+<img width="1001" height="493" alt="image" src="https://github.com/user-attachments/assets/b4b6af76-cc27-4604-beb3-52affeb6d0bd" /> Reddit audience constantly has mind blown in to meme stupor, "WTF" is all that can be written. Hyper media addictions, images blow their mind. Elon Musk Tweeting, Trump Truth Social, mind-blowing content, meme drunks.
+
+https://old.reddit.com/r/therewasanattempt/comments/1q4srlz/to_speak_out_against_us_action_in_venezuela/nxuudnp/
+
+Mocking away at Putin as a "nothingburger". Surkov won since March 2013.
+
