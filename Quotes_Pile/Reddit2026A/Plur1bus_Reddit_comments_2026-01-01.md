@@ -2250,3 +2250,41 @@ Just maybe, the problem isn't me the little guy on Reddit, but Rupert Murdoch Fo
 My concern is people have a smudge on their iPhone screen and that is why they say in a message they are concerned. Or they just read a /r/LeopardsAteMyFace meme to attack Americans, and that is the mindset that is still lingering when they read my comments. Hangover from the constant amusement environment whatever mocking mind programming subreddit people were in minutes earlier.
 
 * "Media ecology is the study of media as environments." — Neil Postman, “The Reformed English Curriculum.” in A.C. Eurich, ed., High School 1980: The Shape of the Future in American Secondary Education (1970). https://media-ecology.org/What-Is-Media-Ecology
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q3ez7j/a_television_show_plur1bus_creativity/nxkgfcy/
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q3ez7j/a_television_show_plur1bus_creativity/nxkhfyi/
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q3ez7j/a_television_show_plur1bus_creativity/nxkht0a/
+
+I actually didn't say there were a manipulator, I said that their message *sounds like*, which gives hem a chance out, to admit they are confronting a person. I am not afraid to call people liars to their face like Bible verse "1 John 4:20" says, but did not do it. "A television show about creativity" is my context of the posting title, and people are anti-creative anti- out of the box. Openly mucking on Reddit with dedicated mocking communities
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q3ez7j/a_television_show_plur1bus_creativity/nxkj9l0/
+
+Calling me a troll. Mocking sincerity. Reddit is trolling for audiences. Advertising are trolling. What did I just troll the person with, a 1954 quote from Martin Luther King Jr about world love of the Pluribus meaning?
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q3ez7j/a_television_show_plur1bus_creativity/nxkii9h/
+
+People will not say simple easy to speak words: "All hate is bad", because they prize hate for people they don't like. They block, they burn books, it is a global problem of humanity that the PLURIBUS TV show is the first to associate with the Free Masons Founding Fathers of the USA. "jumping on the anti-individual free-thinking bandwagon" My message:
+
+> You calling me a manipulator based on nothing is pretty beligerent. Where are your quotes or evidence to prove I am a manipulator?
+
+This quote right here. You hate people. I love all people I love you very much. But you can't tolerate that attitude, you badger and seek out "weak" people in your MAGA USA warmongering "Make America USA great" attitudes.
+
+The only crime is free thinking, independence from Reddit hive mind.
+
+People are intolerant, find an ugly person, they corner then to keep the riff-raff out!
+
+Love of ALL PEOPLE, ALWAYS is condemned. You want to badger me into your faith in MAGA hate USA January 2026 society values. **YOU DENY THE PEER PRESSURE YOU ARE!**
+
+&nbsp;
+
+# The 1954 Equation
+
+February 28, 1954: "Most people can't stand up for their convictions, because the majority of people might not be doing it. See, everybody's not doing it, so it must be wrong. And since everybody is doing it, it must be right. So a sort of numerical interpretation of what's right. But I'm here to say to you this morning that some things are right and some things are wrong. Eternally so, absolutely so. **It's wrong to hate.** It always has been wrong and it always will be wrong. It's wrong in America, it's wrong in Germany, it's wrong in Russia, it's wrong in China. It was wrong in 2000 B.C., and it's wrong in 1954 A.D. It always has been wrong, and it always will be wrong." - Martin Luther King Jr.
+
+"For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the **true becomes false and the false becomes true**. That's what hate does. You can't see right. **The symbol of objectivity** is lost." - Martin Luther King Jr.
+
+&nbsp;
+
+P.S. You have not criticized the "doctor" who badgered me on this subreddit at all. You are adding to the attack, piling on, jumping on the anti-individual free-thinking bandwagon.
