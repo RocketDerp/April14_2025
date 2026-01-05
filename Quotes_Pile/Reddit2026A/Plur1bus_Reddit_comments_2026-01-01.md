@@ -2221,3 +2221,32 @@ https://www.tvo.org/transcript/155847/marshall-mcluhan-in-conversation-with-mike
 I"m beyond burned out.
 
 MLK Jr teaching failed. Every teacher failed.
+
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q3hg7h/is_the_plur1bus_hive_mind_schizophrenia_is_helen/nxktgqr/
+
+The non-specific gaslighting about some magic wildcard on my profile. My message:
+
+> Just looked into their posting history and I don't even know what to say.
+
+.Because you are so ignorant and can't quote or say anything specific? Because you are usable to relate to people outside your bigotry values?
+
+Exactly and precisely WHAT on my profile is so terrible? Russian information warfare pinned posts?
+
+Is it this link at the top of my Reddit profile that freaks you out? https://old.reddit.com/r/WarAll/comments/1msqs1t/war_of_all_against_all_since_march_2013_war/ a video clip about information warfare from Putin and Surkov in year 2014?
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q3hg7h/is_the_plur1bus_hive_mind_schizophrenia_is_helen/nxkt9hh/
+
+The message I was replying to.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q3hg7h/is_the_plur1bus_hive_mind_schizophrenia_is_helen/nxkvq3f/
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q3hg7h/is_the_plur1bus_hive_mind_schizophrenia_is_helen/nxkuyt7/
+
+Concerned trolling. https://en.wiktionary.org/wiki/concern_troll even uses the world "concerning". Epstein **List followers**, paper chasers, are leading the nation, people who prize private jet sex acts and celebrity smut. Can not explain or quote language. Exactly *what* words have I said on Reddit that are so "concerning".... people are so afraid of listening to other people. They shut down at anyone speaking Spanish, or having ideas that are any way critical thinking. 
+
+Just maybe, the problem isn't me the little guy on Reddit, but Rupert Murdoch Fox News that should be the concern. Is that what the person saw on my Reddit profile? A mention of Jen Senko's name?
+
+My concern is people have a smudge on their iPhone screen and that is why they say in a message they are concerned. Or they just read a /r/LeopardsAteMyFace meme to attack Americans, and that is the mindset that is still lingering when they read my comments. Hangover from the constant amusement environment whatever mocking mind programming subreddit people were in minutes earlier.
+
+* "Media ecology is the study of media as environments." — Neil Postman, “The Reformed English Curriculum.” in A.C. Eurich, ed., High School 1980: The Shape of the Future in American Secondary Education (1970). https://media-ecology.org/What-Is-Media-Ecology
