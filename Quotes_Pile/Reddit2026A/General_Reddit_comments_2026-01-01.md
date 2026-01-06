@@ -647,3 +647,7 @@ https://old.reddit.com/r/politics/comments/1q5qj69/doj_admits_that_maduro_drug_c
 https://old.reddit.com/r/politics/comments/1q5qj69/doj_admits_that_maduro_drug_cartel_trump_cited_to/ny3dbwi/
 
 Reddit messages instructing the audience that information overload and not comprehending world events is trivial, joke, fiction "Alex" show. Messages to condition the Reddit consumers that this is Reality TV rules and not nonfiction.
+
+https://old.reddit.com/r/politics/comments/1q5qj69/doj_admits_that_maduro_drug_cartel_trump_cited_to/ny2jhco/
+
+Reality TV. Fiction outsells nonfiction.
