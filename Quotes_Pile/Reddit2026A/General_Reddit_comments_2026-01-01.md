@@ -593,3 +593,15 @@ https://old.reddit.com/r/ProgressiveHQ/comments/1q5ngkp/trump_you_gotta_win_the_
 
 https://old.reddit.com/r/ProgressiveHQ/comments/1q5ngkp/trump_you_gotta_win_the_midterms_because_if_we/ny1rhvn/
 
+https://old.reddit.com/r/europe/comments/1q5vc3y/us_discussing_options_to_acquire_greenland/ny2ykiy/
+
+Yes, I remember all the Reddit messages saying Putin is a "Nothing Burger". And all the LOL on Reddit commenting about the red carpet out in Alaska at the Trump Putin meeting. Constant Reddit messages washing and rinsing Trump and Putin with { funny, ha ha ha, LOL / comedy / jokes / satire / sarcasm }.
+
+https://old.reddit.com/r/europe/comments/1q5vc3y/us_discussing_options_to_acquire_greenland/ny2y4co/
+
+Surreal. That's a keyword. Surreal is right in this year 2014 URL:
+
+https://www.goodreads.com/work/quotes/40714614-nothing-is-true-and-everything-is-possible-the-surreal-heart-of-the-new
+
+“That unique Moscow mix of tackiness and menace. One time I see a poster advertising a new property development that captures the tone nicely. Got up in the style of Nazi propaganda, it shows two Germanic-looking youths against a glorious alpine mountain over the slogan "Life is Getting Better". It would be wrong to say the ad is humorous, but it's not quite serious either. It's sort of both. It's saying this is the society we live in (a dictatorship), but we're just playing at it (we can make jokes about it), but playing in a serious way (we're making money playing it and won't let anyone subvert its rules).”
+― Peter Pomerantsev, Nothing Is True and Everything Is Possible: The Surreal Heart of the New Russia. Year 2014.
