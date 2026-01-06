@@ -179,4 +179,13 @@ But people on meme mills like Reddit will get this off the front page of Reddit 
 
 &nbsp;
 
+This will get forgotten and drowned in unimportant entertainment LOL society.
+
 https://old.reddit.com/r/news/comments/1q3vnsi/canadian_officials_say_us_health_institutions_no/
+
+&nbsp;
+
+Now USA people will spread war and disease when they travel overseas. American export now is hate and fiction addictions. Russia won the information war. August 24, 2018 before COVID-2019 https://www.bbc.com/news/world-us-canada-45294192
+
+https://old.reddit.com/r/news/comments/1q4w9uq/us_drops_the_number_of_vaccines_it_recommends_for/
+
