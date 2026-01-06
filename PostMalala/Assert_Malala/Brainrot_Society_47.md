@@ -12,4 +12,5 @@ Details on BrainRot 47
 Details on BrainRot 47 society   
 Every 47 hours working together     
 
-https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Reddit2026A/Simulacra_Resistance_Reddit_comments_2026-01-01.md#reddit-complicit-2026
+https://github.com/RocketDerp/April14_2025/blob/main/Grim_Blunt/Pop/Social_Media_Society_did_not.md#brainrot-society-47
+
