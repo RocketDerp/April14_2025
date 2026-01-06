@@ -484,6 +484,22 @@ Let me say it again repeating: this isn't a joke. These are actual serious messa
 
 https://old.reddit.com/r/PoliticalHumor/comments/1q56g86/mark_kellys_official_response_to_hegseths_threats/nxy1bwt/
 
-RFK Jr threatens real people. Putin threatens Ukraine. Fox News threatens blue states. Real killers do make threats. Even animals bark and threaten before they kill. Donald Trump has been threatening people for decades and harming real people. It is as if people in USA year 2026 don't grasp how billionaires (Putin, Trump, Muroch all cited in this paragraph) kill people and use communications right to their face.
+RFK Jr threatens real people. Putin threatens Ukraine. Fox News threatens blue states. Real killers do make threats. Even animals bark and threaten before they kill. Donald Trump has been threatening people for decades and harming real people. It is as if people in USA year 2026 don't grasp how billionaires (Putin, Trump, Murdoch all cited in this paragraph) kill people and use communications right to their face.
 
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1q54vk8/dont_stop_talking_about_the_epstein_files/nxxf9df/
 
+These Reddit values of "celebrating violence"... don't teach why. There is no education of morality as to why violence is bad. On Pluribus subreddit, people celebrate mocking intelligent people with "outplurbed" and similar street-gangs of celebrating ignorance. The pro-ignorance Fox News society far dominates the world now. Malala's pro-education didn't win. Only a tiny fraction, say 3 or 5%, of people think intelligent nonfiction learning is desirable. Others want to drown the world in ignorance that leads to violence and health care system diseases and death (another form of violence, economic violence, red tape health insurance papers violence).
+
+Vince Gilligan in his February 15, 2025 speech was spot on.  Social media is a diseased cesspool spreading vector of creating pro-war pro-power MAGA values. Being a pro-Putin Russian to some may seem like just a political choice (Vince Gilligan said in his speech he had two family members die, one pro-Trump pro-Putin killing of Ukraine people)... but that's the problem.
+
+Having family members who drive their car drunk, or elderly people who drive their cars when their body and mind can't keep up... is a REAL WORLD danger. Yet, the attitude of cutting off dialog (which Gilligan is criticizing, I think) doesn't address it. The drunk drivers still drive drunk even if their family members cut them off from their life. News reports of accidents show this! Drug abusers, Walter White meth, don't get addressed. There are people, predators, selling and making these drugs. Walter White lives his normal predatory teaching life. Running education camps on killing and hate.
+
+Not standing up against actual drunk drivers, actual Putin lovers who murder in Ukraine, actual terrorists in Algeria who butcher families... isn't a good thing. It's worshiping meme sites and touch Apple iPhone and iPad devices to a point that you don't grasp how a military boot camp and chain of command military values actually work. Human beings can be raised to be military murders and follow killing orders. Putin has proven that with Ukraine since February 20, 2014. And Putin is FAR FROM the only military organized teacher and killer in the world.
+
+But people can't be bothered to quote nonfiction books and nonfiction articles and learning about real-world terrorism, war, pro-diseases that a cesspool spreads. WikiQuote is one click away.
+
+* "The trouble isn't so much that we don't know enough, but it's as if we aren't good enough. The trouble isn't so much that our scientific genius lags behind, but our moral genius lags behind. The great problem facing modern man is that, that the means by which we live have outdistanced the spiritual ends for which we live. So we find ourselves caught in a messed-up world." - https://en.wikiquote.org/wiki/Martin_Luther_King_Jr.
+
+Go show me how many social messages, writers, shared that link in the past 3 days. There are very few people teaching goodness, educating on goodness. 
+
+* "You know what occurred to me? We teach everything in the world to people, except the most essential thing. And that is life. Nobody teaches you about life. You're supposed to know about it. Nobody teaches you how to be a human being and what it means to be a human being, and the dignity that it means when you say, "I am a human being." [Everyone assumes this is something you have, or you should have gotten by osmosis. We'll it's not working by osmosis!"](../Leo_Buscaglia_Quotes.md) - From the chapter "The Art of Being Fully Human" page 127 of "Living, Loving & Learning" by Leo Buscaglia, Ph. D. (published June 1, 1982)
