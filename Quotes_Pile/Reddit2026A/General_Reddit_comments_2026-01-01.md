@@ -471,3 +471,7 @@ https://old.reddit.com/r/politics/comments/1q4ocgu/isnt_trumps_obvious_mental_il
 The issue isn't ONE person, it's all the people who think it is funny and amusing and thrilling entertainment. People follow the hate leadership of Trump. Trump leads a nation of mocking. Joe Biden was far too unattractive as a source of humor and jokes for Reddit audiences.
 
 USA has lost mind, including Donald Trump. "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M
+
+https://old.reddit.com/r/goodnews/comments/1q4v50h/walz_make_no_mistake_about_it_if_republicans/nxxh37l/
+
+It is impossible to convince Reddit media addicts that the entire nation is media addicts. Nonfiction learning about Surkov information warfare methods is repulsive to addicts. we aren't the only nation in the world. These comparisons of behavior of "high energy Fox News leadership" can be made to previous Presidents like Obama or world leaders in Canada. But Reddit meme consumers will not face that MAGA is driven by mockery and hate, just now as anti-MAGA is motivated.
