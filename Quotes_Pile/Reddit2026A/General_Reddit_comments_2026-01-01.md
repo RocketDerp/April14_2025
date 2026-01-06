@@ -533,6 +533,8 @@ https://old.reddit.com/r/politics/comments/1q5i7y2/preschool_teacher_22_arrested
 
 <img width="2669" height="1425" alt="image" src="https://github.com/user-attachments/assets/623f1ec8-5bfc-4c73-a00e-f3d7c4ae2372" /> See: subreddit https://old.reddit.com/r/RemedialMorality - Wednesday, **April 9, 2025. Last year** before this January opening weekend of 2026 war started. I personally used Reddit's free website hosting to create **Remedial Moral Teachings** for USA population. But it is not popular. Popularity is hate. Popularity is mocking morality and LOL-washing Trump. Popularity is toxic. Just like Russia has been under Putin. Toxic hate for humans. Addicts to hate. Surkov won since March 2013.
 
+Social post { https://midwest.social/post/41421827 
+
 https://old.reddit.com/r/politics/comments/1q5i7y2/preschool_teacher_22_arrested_on_tv_after/ny06dwl/
 
 <img width="850" height="387" alt="Screenshot from 2026-01-06 09-14-16" src="https://github.com/user-attachments/assets/5b240bfd-afb6-49f7-9c34-80eacd3c4c88" /> Constantly messaging on Reddit to downplay the situation "could not be bothered", trivializing the most powerful media empire in the entire  world. Rupert Murdoch, Elon Musk, manipulating people. Training grounds for hate and dehumanization every hour of every day.
@@ -542,3 +544,11 @@ Since year 1776, foundation of the nation, no media systems have ever been this 
 Last year, year 2025, was the 40th year since a book was published on this crisis of the ENTIRE NATION of image addicts. Time Magazine, a long established news source in USA before Reddit was ever created. Before Twitter was able to be purchased by Elon Musk! Before fiction addictions took over nonfiction learning. September 10, 2025 https://Time.com/7313999/neil-postman-trump-prediction/
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mbre23ezcc2p https://autistics.life/@RoundSparrow/115849048359512065 }
+
+https://old.reddit.com/r/europe/comments/1q5fixp/stephen_miller_asserts_us_has_right_to_take/nxzn7jb/
+
+Reddit community speaks and upvotes. Two-words. Simple-think, anti-thinking behaviors. Apple iPhone tiny-screen tiny-think Elon Musk Twitter-like speaks on Reddit.
+
+See: subreddit https://old.reddit.com/r/RemedialMorality - Wednesday, **April 9, 2025. Last year** before this January opening weekend of 2026 war started. I personally used Reddit's free website hosting to create **Remedial Moral Teachings** for USA population. But it is not popular. Popularity is hate. Popularity is mocking morality and LOL-washing Trump. Popularity is toxic. Just like Russia has been under Putin. Toxic hate for humans. Addicts to hate. Surkov won since March 2013.
+
+So much brain damage being caused by Reddit meme addicts who think this is all { amusing, funny, LOL, entertainment } because it's high speed messaging delivery.
