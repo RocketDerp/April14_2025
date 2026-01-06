@@ -566,3 +566,18 @@ Denial abounds. Avoidance (on Reddit comment community) of non-fiction learning 
 https://old.reddit.com/r/nottheonion/comments/1q5uy81/white_house_unveils_jan_6_webpage_saying/ny2tiw1/
 
 Reddit account creation date on Putin's Birthday, October 7. Same day in year 1996 as Fox News. But hey, nobody wants to learn non-fiction and wants to comment at every move and shake of the Kremlin defeated. OPERA_A Rescue Trump! Rescue MAGA! Rescue Republican political party! https://www.youtube.com/watch?v=RRKJiM9Njr8 400,944,697 views October 26, 2009  Arab Spring 2009 / 2010 great track to share with North Africa... Would you be the Great Seal USA saviors, all us We The People, Pluribus teachers! Your **inner** daemons, inward Journey spiritual Marshall McLuhan self-awareness to John One One science fiction Romans 11:32 Joyce teachings!
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1q5ufwl/the_most_asked_question_in_the_world/ny2qyh1/
+
+Reddit amusement-rinses Trump every year, more each year. LOL washing mill of entertainment. 
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1q5ufwl/the_most_asked_question_in_the_world/ny2t4nr/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1q5ufwl/the_most_asked_question_in_the_world/ny2wsbn/
+
+**Rescue Donald Trump from the Kremlin** simulacras created by Surkov students since year 2012.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1q5ufwl/the_most_asked_question_in_the_world/ny2x4e4/
+
+Reddit satire-washing, sarcasm-washing away the Great Seal of the USA values with shit-commenting. Reddit addicts who can't stop their mocking. Internet Research Agency mind-fucked Reddit audience into never-ending chasing of mock mock mockery mocking.
+
