@@ -1,4 +1,4 @@
-# Donald J Trump plays Tony Cifton
+# Donald J Trump plays Tony Clifton
 
 The character of Tony Clifton is being played by Donald J Trump.   
 Surkov techniques of Kremlin governing year 2011 applied to United States of America year 2025.   
@@ -32,7 +32,7 @@ A conversation between Zmuda and Kaufman about the subject is played in the docu
 
 ### Thank You Very Much
 
-at 8 minutes, being cringe, the power of cringe. Donld Trump and his followers have learned thepower of shock reality.
+At 8 minutes, being cringe, *the power* of cringe. Donald Trump and his followers have learned the power of shock reality. As NYC man Joseph Campbell's 1988 book called *it*, "The Power of Myth", fiction outsells! Bill Moyers grasped SNL Kaufman like no other!      
 
 Enter Shakari uses "Ambush Reality" label?
 
