@@ -615,3 +615,14 @@ https://old.reddit.com/r/europe/comments/1q5vc3y/us_discussing_options_to_acquir
 https://old.reddit.com/r/europe/comments/1q5vc3y/us_discussing_options_to_acquire_greenland/ny35xda/
 
 https://old.reddit.com/r/europe/comments/1q5vc3y/us_discussing_options_to_acquire_greenland/ny3cbm1/
+
+https://old.reddit.com/r/europe/comments/1q5vc3y/us_discussing_options_to_acquire_greenland/ny362gs/
+
+Tiny-short Tweet-think Twitter-length commenting. Prizing low-effort. Avoiding nonfiction books. Observe: No links, no author names, no book titles, no quotes from a book, etc.
+
+https://old.reddit.com/r/europe/comments/1q5vc3y/us_discussing_options_to_acquire_greenland/ny3bm7h/
+
+Trump and Putin had a meeting in Alaska https://en.wikipedia.org/wiki/2025_Russia%E2%80%93United_States_summit to agree on the East and West Squeezeplays, and Reddit warm-up mind-fucking. Pluribus TV show as a huge threat, George Lucas / Bill Moyers teaching in 1988 book. But the Kremlin and Pentagon crushed the discourse. We The People of Pale Blue Dot, not conquest.
+
+* "canceled the Declaration of Independence and rejoined the British conquest of the planet. And so we are now on one side of the pyramid. We’ve moved from one to two. We are politically, historically, now a member of one side of an argument. We do not represent that principle of the eye up there. And all of our concerns have to do with economics and politics and not with the voice and sound of reason." - 1988 book on paper; "The Power of Myth", Pluribus Apple TV+ interpretation guide.
+
