@@ -16,6 +16,9 @@ People are not connecting what they are writing and saying as common issues.
 
 7. Democracy does not work without love
 
+8. Media addicts say Elon Musk, richest person in world, following Putin was { stupid, idiot, dumb, loss of money and power } in Twitter purchase. A complete failure to grasp Marshall McLuhan. https://old.reddit.com/r/TrueUnpopularOpinion/comments/1nyw3du/the_purchase_of_twitter_paid_off_massively_for/
+    * The **medium is the message. The Twitter is the message** of mind-fuck. University of Toronto's Marshall McLuhan teaching abandoned in favor of addicts to Reddit and Facebook and Twitter. Russia: https://www.BBC.com/news/world-us-canada-45294192 proved it with people not able to face that August 24, 2018 before December COVID-2019.
+
 &nbsp;
 
 # Democracy does not work
