@@ -415,3 +415,8 @@ Reddit media ecology. How the cloud computing systems are manipulated to attack 
 https://old.reddit.com/r/technology/comments/1q4uwr5/board_votes_to_dissolve_corporation_for_public/nxvgjpq/
 
 Reddit audience says "Project 2025" so predictably. This is Trump's second term in office, not first. [A nonfiction book was published in 2019 that spelled out the trade wars Trump did in year 2025. And a whole bunch more.](../Cambridge_Analytica_Quotes.md) But Reddit community meme-washes everything into jokes. Avoiding nonfiction serious books at all cost.
+
+https://old.reddit.com/r/NewsOfTheStupid/comments/1q4xzmz/hacker_deletes_tinder_for_nazis_and_leaks/nxw0ae4/
+
+Walks like a duck, quacks like a duck. Did the Reddit user think it was artificial intelligence?
+
