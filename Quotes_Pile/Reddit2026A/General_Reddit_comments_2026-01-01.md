@@ -552,3 +552,9 @@ Reddit community speaks and upvotes. Two-words. Simple-think, anti-thinking beha
 See: subreddit https://old.reddit.com/r/RemedialMorality - Wednesday, **April 9, 2025. Last year** before this January opening weekend of 2026 war started. I personally used Reddit's free website hosting to create **Remedial Moral Teachings** for USA population. But it is not popular. Popularity is hate. Popularity is mocking morality and LOL-washing Trump. Popularity is toxic. Just like Russia has been under Putin. Toxic hate for humans. Addicts to hate. Surkov won since March 2013.
 
 So much brain damage being caused by Reddit meme addicts who think this is all { amusing, funny, LOL, entertainment } because it's high speed messaging delivery.
+
+https://old.reddit.com/r/law/comments/1q5ount/trump_says_election_should_be_canceled_and_warns/ny1keby/
+
+I call it the "Surkov Shuffle" media technique. Adam Curtis, BBC broadcast: NYE year 2014. About Surkov. "Everything we're told by journalists and politicians is confusing and contradictory. Of course, there is no Mr. Surkov in charge, but it is an odd, non-linear world that plays into the hands of those in power."
+
+"title of this course has been “The Self Under Siege”. If I didn’t think it was a real, virulent technological siege and just some thought up philosopher’s dream, which would not have interested me. I mean, I have no interest in that." - Texan Roderick, Duke University, 1993
