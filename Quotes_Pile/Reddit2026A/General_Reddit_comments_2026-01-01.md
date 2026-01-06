@@ -587,6 +587,8 @@ https://old.reddit.com/r/ProgressiveHQ/comments/1q5ngkp/trump_you_gotta_win_the_
 
 <img width="985" height="677" alt="image" src="https://github.com/user-attachments/assets/59affe06-0ebd-44ed-a448-66190501f4a2" /> Surkovian onion eater with tiny-short Tweet-thinking reactionary mindset. Reddit audience falls for it every time for over ten years. Trump { Stupid, Idiot, Dumb, Dementia, Crazy, Insane, Unintelligent, etc }. [Playing President Tony Clifton, acting dumb, acting erratic, acting odd, is exactly how the hive mind of Reddit meme addicts are "owned" by Surkov students. Eating the onions, thinking it is accidental or a mistake for Trump to be outrageous and unusual in his antics.](../Reddit2025A/Surkovian_Onion_Eating.md)
 
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mbs25henas2g https://autistics.life/@RoundSparrow/115850603500213209 }
+
 https://old.reddit.com/r/ProgressiveHQ/comments/1q5ngkp/trump_you_gotta_win_the_midterms_because_if_we/ny1v5am/
 
 https://old.reddit.com/r/ProgressiveHQ/comments/1q5ngkp/trump_you_gotta_win_the_midterms_because_if_we/ny1rhvn/
