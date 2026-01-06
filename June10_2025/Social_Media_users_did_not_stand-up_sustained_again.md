@@ -57,3 +57,13 @@ Social media could do...
 "Isn’t Trump’s Obvious Mental Illness a National Emergency?"     
 https://old.reddit.com/r/politics/comments/1q4ocgu/isnt_trumps_obvious_mental_illness_a_national/
 
+&nbsp;
+
+More Monday night:
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1q54vk8/dont_stop_talking_about_the_epstein_files/
+
+It is as if people can't make a real "copypasta", a copy-mix of critical important topics. From 2 to 5 topics in one paragraph.
+
+EXAMPLE: Epstein abusing girls, Dr. Bandy X. Lee on organizing mental health workers. Internet Research Agency has manipulated minds. Jen Senko's film about right-wing media. Every 47 hours "Brainrot 47" group meets online to organize intellectual education and teaching instead of just complaining about Fox News and WWE Education. Please don't stop avoiding the root causes of problems.
+
