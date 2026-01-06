@@ -581,3 +581,13 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1q5ufwl/the_most_asked_ques
 
 Reddit satire-washing, sarcasm-washing away the Great Seal of the USA values with shit-commenting. Reddit addicts who can't stop their mocking. Internet Research Agency mind-fucked Reddit audience into never-ending chasing of mock mock mockery mocking.
 
+https://old.reddit.com/r/ProgressiveHQ/comments/1q5ngkp/trump_you_gotta_win_the_midterms_because_if_we/ny1iaog/
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1q5ngkp/trump_you_gotta_win_the_midterms_because_if_we/ny1edtk/
+
+<img width="985" height="677" alt="image" src="https://github.com/user-attachments/assets/59affe06-0ebd-44ed-a448-66190501f4a2" /> Surkovian onion eater with tiny-short Tweet-thinking reactionary mindset. Reddit audience falls for it every time for over ten years. Trump { Stupid, Idiot, Dumb, Dementia, Crazy, Insane, Unintelligent, etc }. [Playing President Tony Clifton, acting dumb, acting erratic, acting odd, is exactly how the hive mind of Reddit meme addicts are "owned" by Surkov students. Eating the onions, thinking it is accidental or a mistake for Trump to be outrageous and unusual in his antics.](../Reddit2025A/Surkovian_Onion_Eating.md)
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1q5ngkp/trump_you_gotta_win_the_midterms_because_if_we/ny1v5am/
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1q5ngkp/trump_you_gotta_win_the_midterms_because_if_we/ny1rhvn/
+
