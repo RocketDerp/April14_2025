@@ -1615,4 +1615,9 @@ The film really celebrates the common medium of channel 19 public messaging. You
 
 I also had a battery-operated Walkie Talkie, also a Radio Shack. Adults in the Fort Wayne area where nice to me as a child, helped me out with radio hardware (my family knew nothing). Traded equipment / used deals at times. My username was "Big Red" because my father worked in soda business and I liked that style of soda. Some of the adults thought it meant I was a red-head child, but that was my older brother, I was blonde and blue eyed.
 
+&nbsp;
+
+# Organized Education
+
+https://old.reddit.com/r/europe/comments/1q4oq2w/after_decades_of_teaching_media_literacy_finland/
 
