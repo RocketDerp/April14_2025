@@ -558,3 +558,8 @@ https://old.reddit.com/r/law/comments/1q5ount/trump_says_election_should_be_canc
 I call it the "Surkov Shuffle" media technique. Adam Curtis, BBC broadcast: NYE year 2014. About Surkov. "Everything we're told by journalists and politicians is confusing and contradictory. Of course, there is no Mr. Surkov in charge, but it is an odd, non-linear world that plays into the hands of those in power."
 
 "title of this course has been “The Self Under Siege”. If I didn’t think it was a real, virulent technological siege and just some thought up philosopher’s dream, which would not have interested me. I mean, I have no interest in that." - Texan Roderick, Duke University, 1993
+
+https://old.reddit.com/r/law/comments/1q5ount/trump_says_election_should_be_canceled_and_warns/ny1lurb/
+
+Denial abounds. Avoidance (on Reddit comment community) of non-fiction learning about Surkov and Putin's past 26 years is evidence. You don't see nonfiction learning about Russia's media techniques and Surkov governing organized progression... avoiding this: Sunday (Church values learning day) April 28, 2018 https://old.reddit.com/r/WhiteHouseSurkovMedia
+
