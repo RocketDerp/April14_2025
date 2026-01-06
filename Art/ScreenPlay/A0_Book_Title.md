@@ -200,3 +200,6 @@ We Fall (We Fall)
 But it is You who Have further to fall (Titanium lyrics)      
 Not Bulletproof    
 Great Non-Expectations (Great Seal banality)    
+
+Suicide of a Nation   (Birth Of A Nation: Rebirth Laughed Away, subtitle)    
+Self-Harm of a Nation    
