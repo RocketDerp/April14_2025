@@ -123,4 +123,11 @@ https://old.reddit.com/r/law/comments/1q4vui7/unnamed_source_in_viral_minnesota_
 
 It works because Reddit users refuse to discuss details and facts about Russian information warfare. Kremlin techniques and methods of media systems / information systems warfare. 
 
-"Putin is clearly winning Russia’s hybrid war against the U.S. because Americans don’t understand how they are being manipulated." - December 11, 2020 - "The Heritage Foundation" https://www.heritage.org/defense/commentary/putin-winning-russias-hybrid-war-against-america (Before January 6, 2021 - by weeks. QAnon was Russian Hybrid warfare, QAnon flags on January 6 https://old.reddit.com/r/QAnonRussia/ QAnon-Russia subreddit)
+"Putin is clearly winning Russia’s hybrid war against the U.S. because Americans don’t understand how they are being manipulated." - December 11, 2020 - "The Heritage Foundation" https://www.Heritage.Org/defense/commentary/putin-winning-russias-hybrid-war-against-america (Before January 6, 2021 - by weeks. QAnon was Russian Hybrid warfare, QAnon flags on January 6 https://old.reddit.com/r/QAnonRussia/ QAnon-Russia subreddit)
+
+https://old.Reddit.com/r/PublicFreakout/comments/1q5i8g3/the_correct_way_to_deal_with_maga_americans/ny0h0c3/
+
+Reddit is a hate-training ground. Russia owns Reddit hearts and minds since March 2013. Reddit users can not discuss the Internet Research Agency. Putin won, Surkov won. People hate Texans instead of screaming about Surkov and Putin in the streets, they are saying "I will end you" to Americans. Instead of rescuing people in USA with / and [teaching Dr. Martin Luther King Jr. from Atlanta USA](../Martin_Luther_King_Jr_quotes0.md), people behave like Russians against "Ukraine is Nazi Germany" mind-fucked bu Internet Research Agency / Russia Today HDTV networks / etc. Reddit society will not discuss nonfiction learning. https://www.GoodReads.com/author/quotes/8035579.Peter_Pomerantsev
+
+And on Reddit avoided, where I personally created this teaching community to educate Reddit audiences / Reddit USA people what is happening. https://old.reddit.com/r/QAnonRussia and https://old.reddit.com/r/CounterSurkov fact-based reality-based real world education and learning about how Russia mind-fucked USA since March 2013 using the Internet Research Agency.
+
