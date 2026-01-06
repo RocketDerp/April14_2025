@@ -503,3 +503,16 @@ But people can't be bothered to quote nonfiction books and nonfiction articles a
 Go show me how many social messages, writers, shared that link in the past 3 days. There are very few people teaching goodness, educating on goodness. 
 
 * "You know what occurred to me? We teach everything in the world to people, except the most essential thing. And that is life. Nobody teaches you about life. You're supposed to know about it. Nobody teaches you how to be a human being and what it means to be a human being, and the dignity that it means when you say, "I am a human being." [Everyone assumes this is something you have, or you should have gotten by osmosis. We'll it's not working by osmosis!"](../Leo_Buscaglia_Quotes.md) - From the chapter "The Art of Being Fully Human" page 127 of "Living, Loving & Learning" by Leo Buscaglia, Ph. D. (published June 1, 1982)
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1q54vk8/dont_stop_talking_about_the_epstein_files/nxxkf0c/
+
+
+<img width="857" height="858" alt="image" src="https://github.com/user-attachments/assets/f16b7d5a-5985-43a7-9597-9a1131635a35" /> [Everything is media ecology](/Media_Ecology/Everything_is_ME.md).
+
+Reddit users would never know about Epstein if it were not for media. Did any of the people in Reddit comment section fly on Epstein's jet and witness the girls being abused? I really doubt there are few if any people. What people are reacting to is social media Reddit postings. Photographs of Epstein. Information systems, long-distance information, recorded information of images. This is a paper chase. This is Fox News vs. Twitter vs. Reddit. Bluesky vs. Twitter.
+
+social media { https://bsky.app/profile/roundsparrow.bsky.social/post/3mbqqdfudek2m https://autistics.life/@RoundSparrow/115847658864176306 }
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1q54vk8/dont_stop_talking_about_the_epstein_files/nxxq7d3/
+
+This is why we need to focus on: Brainrot Society 47 / Brainrot 47 gatherings and meetings to organize](/PostMalala/Assert_Malala/Brainrot_Society_47.md)
