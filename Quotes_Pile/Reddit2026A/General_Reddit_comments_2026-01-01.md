@@ -535,8 +535,10 @@ https://old.reddit.com/r/politics/comments/1q5i7y2/preschool_teacher_22_arrested
 
 https://old.reddit.com/r/politics/comments/1q5i7y2/preschool_teacher_22_arrested_on_tv_after/ny06dwl/
 
-Constantly messaging on Reddit to downplay the situation "could not be bothered", trivializing the most powerful media empire in the entire  world. Rupert Murdoch, Elon Musk, manipulating people. Training grounds for hate and dehumanization every hour of every day.
+<img width="850" height="387" alt="Screenshot from 2026-01-06 09-14-16" src="https://github.com/user-attachments/assets/5b240bfd-afb6-49f7-9c34-80eacd3c4c88" /> Constantly messaging on Reddit to downplay the situation "could not be bothered", trivializing the most powerful media empire in the entire  world. Rupert Murdoch, Elon Musk, manipulating people. Training grounds for hate and dehumanization every hour of every day.
 
 Since year 1776, foundation of the nation, no media systems have ever been this fast. Colors have never been this bright, images have never been this this vibrant and common! The denial of the power of billionaires running press / the richest man in the world purchasing Twitter and the impact on human behavior. Reddit image addicts are the worst at recognizing what has changed: A HDTV television star, a man on television every single day since June 16, 2015 - has driven a television society, television audience into mindless brain rot and cheering up hate and war as entertainment and amusement!
 
 Last year, year 2025, was the 40th year since a book was published on this crisis of the ENTIRE NATION of image addicts. Time Magazine, a long established news source in USA before Reddit was ever created. Before Twitter was able to be purchased by Elon Musk! Before fiction addictions took over nonfiction learning. September 10, 2025 https://Time.com/7313999/neil-postman-trump-prediction/
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mbre23ezcc2p https://autistics.life/@RoundSparrow/115849048359512065 }
