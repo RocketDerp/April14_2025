@@ -1804,3 +1804,5 @@ Choice marriage honesty
 
 https://old.reddit.com/r/BrandNewSentence/comments/1pdmfx0/the_first_act_of_racism_my_brother_ever/ns6g2ff/
 
+Parenting in Palestine:    
+https://old.reddit.com/r/memes/comments/1q57g7i/mosted_gifted_generation/
