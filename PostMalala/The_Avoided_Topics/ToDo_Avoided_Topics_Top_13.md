@@ -14,7 +14,7 @@ People are not connecting what they are writing and saying as common issues.
 5. Normal Putin, Normal Russia. Putin is a billionaire. He isn't an elected politician. He was blessed and appointed by Yeltson. He is a King. King Putin billionaire. Getting wealth and power like a king is how he rules Russia. It isn't democracy like USA 1990.
 6. Billionaires own sports teams. Entertaining games, gaming, gamers. Sports, games. Team owners. FIFA Peace Prize. Olympics, World Cup, Super Bowl. Own audiences, own fandoms.
 
-7. Democracy does not work without love
+7. Democracy does not work **without love**. "Hate One Another" is a terrorism state. September 11, 2001 experience brushed under the rug, 9/11 forgotten. "Hate One Another" is not democracy, it's brutality and terrorist monster state. OPERA_A Without Love of Neighbors, USA is shit. https://www.youtube.com/watch?v=m4tJSn0QtME 22,488,086 views September 1, 2010
 
 8. Media addicts say Elon Musk, richest person in world, following Putin was { stupid, idiot, dumb, loss of money and power } in Twitter purchase. A complete failure to grasp Marshall McLuhan. https://old.reddit.com/r/TrueUnpopularOpinion/comments/1nyw3du/the_purchase_of_twitter_paid_off_massively_for/
     * The **medium is the message. The Twitter is the message** of mind-fuck. University of Toronto's Marshall McLuhan teaching abandoned in favor of addicts to Reddit and Facebook and Twitter. Russia: https://www.BBC.com/news/world-us-canada-45294192 proved it with people not able to face that August 24, 2018 before December COVID-2019.
