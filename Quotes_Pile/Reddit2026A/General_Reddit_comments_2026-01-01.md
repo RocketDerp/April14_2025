@@ -516,3 +516,12 @@ social media { https://bsky.app/profile/roundsparrow.bsky.social/post/3mbqqdfude
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1q54vk8/dont_stop_talking_about_the_epstein_files/nxxq7d3/
 
 This is why we need to focus on: Brainrot Society 47 / Brainrot 47 gatherings and meetings to organize](/PostMalala/Assert_Malala/Brainrot_Society_47.md)
+
+https://old.reddit.com/r/europe/comments/1q5cqq6/retired_us_general_says_us_needs_europe_to_save/nxz6704/
+
+Meme addicts on Reddit are very concerned and care a whole lot about the latest movie memes, sports memes, comic memes, White House memes, Elon Musk memes, Trump golf memes, TV memes, video game memes. The attraction to tiny-short patterns of thinking is short-term short-think.
+
+High speed messaging systems, super fast Reddit comment delivery, instant notification of a reply is what has created Donald Trump fandoms. A celebrity Reality TV star has created a Reality TV White House that people { worship, praise, desire, crave, demand, want, are married to, are loyal to } because it's high speed entertainment. It's meme White House, meme Pentagon, meme military ideals.
+
+Reddit users, Reddit audience, does not want to face reality: Saudi Arabia Mecca isn't nonfiction, it isn't science. It's memes. Mohammad's Quran story is a book of memes. Meme poetry. Popularity of nonfiction. Same with the Roman Empire since year 380, the Christian meme book of Jesus storytelling and Bible. Fiction outsells nonfiction. **The very same attraction Reddit earns money from, meme attraction, is the very same attraction Donald Trump White House / Trump President profits from.** The very same mind / brain / attraction to Reddit memes is the same high-speed content Trump provides. The 5G and 6G promise of high-speed memes. That's the United States of America year 2026. Reality and real is **5G meme delivery** that Trump leads with.
+
