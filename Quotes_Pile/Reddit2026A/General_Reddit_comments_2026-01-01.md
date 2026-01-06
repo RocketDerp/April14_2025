@@ -563,3 +563,6 @@ https://old.reddit.com/r/law/comments/1q5ount/trump_says_election_should_be_canc
 
 Denial abounds. Avoidance (on Reddit comment community) of non-fiction learning about Surkov and Putin's past 26 years is evidence. You don't see nonfiction learning about Russia's media techniques and Surkov governing organized progression... avoiding this: Sunday (Church values learning day) April 28, 2018 https://old.reddit.com/r/WhiteHouseSurkovMedia
 
+https://old.reddit.com/r/nottheonion/comments/1q5uy81/white_house_unveils_jan_6_webpage_saying/ny2tiw1/
+
+Reddit account creation date on Putin's Birthday, October 7. Same day in year 1996 as Fox News. But hey, nobody wants to learn non-fiction and wants to comment at every move and shake of the Kremlin defeated. OPERA_A Rescue Trump! Rescue MAGA! Rescue Republican political party! https://www.youtube.com/watch?v=RRKJiM9Njr8 400,944,697 views October 26, 2009  Arab Spring 2009 / 2010 great track to share with North Africa... Would you be the Great Seal USA saviors, all us We The People, Pluribus teachers! Your **inner** daemons, inward Journey spiritual Marshall McLuhan self-awareness to John One One science fiction Romans 11:32 Joyce teachings!
