@@ -626,3 +626,24 @@ Trump and Putin had a meeting in Alaska https://en.wikipedia.org/wiki/2025_Russi
 
 * "canceled the Declaration of Independence and rejoined the British conquest of the planet. And so we are now on one side of the pyramid. We’ve moved from one to two. We are politically, historically, now a member of one side of an argument. We do not represent that principle of the eye up there. And all of our concerns have to do with economics and politics and not with the voice and sound of reason." - 1988 book on paper; "The Power of Myth", Pluribus Apple TV+ interpretation guide.
 
+https://old.reddit.com/r/politics/comments/1q5qj69/doj_admits_that_maduro_drug_cartel_trump_cited_to/ny1v66e/
+
+https://old.reddit.com/r/politics/comments/1q5qj69/doj_admits_that_maduro_drug_cartel_trump_cited_to/ny1w4am/
+
+https://old.reddit.com/r/politics/comments/1q5qj69/doj_admits_that_maduro_drug_cartel_trump_cited_to/ny2ez3n/
+
+https://old.reddit.com/r/politics/comments/1q5qj69/doj_admits_that_maduro_drug_cartel_trump_cited_to/ny23zn2/
+
+https://old.reddit.com/r/politics/comments/1q5qj69/doj_admits_that_maduro_drug_cartel_trump_cited_to/ny288z7/
+
+https://old.reddit.com/r/politics/comments/1q5qj69/doj_admits_that_maduro_drug_cartel_trump_cited_to/ny2451n/
+
+https://old.reddit.com/r/politics/comments/1q5qj69/doj_admits_that_maduro_drug_cartel_trump_cited_to/ny2h2or/
+
+https://old.reddit.com/r/politics/comments/1q5qj69/doj_admits_that_maduro_drug_cartel_trump_cited_to/ny396oc/
+
+https://old.reddit.com/r/politics/comments/1q5qj69/doj_admits_that_maduro_drug_cartel_trump_cited_to/ny2e803/
+
+https://old.reddit.com/r/politics/comments/1q5qj69/doj_admits_that_maduro_drug_cartel_trump_cited_to/ny3dbwi/
+
+Reddit messages instructing the audience that information overload and not comprehending world events is trivial, joke, fiction "Alex" show. Messages to condition the Reddit consumers that this is Reality TV rules and not nonfiction.
