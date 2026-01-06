@@ -445,3 +445,23 @@ Politics too. It has something to do with the size and shape of an iPhone screen
 https://old.reddit.com/r/LeopardsAteMyFace/comments/1q4puix/i_cant_believe_this_is_america_us_veteran_who/nxu7g0q/
 
 Reddit users have turned everything into entertainment, "Leopards ate faces" / Americans suffering, LOL LOL cow milking. { Parody, comedy venue nation, satire, sarcasm, irony, inverted, ass-backwards, for the laughs, for the lulz, just a prank bro, just a billionaire Rupert Murdoch prank bro, just a Reddit humor posting } . Russia won, the outcome of the runaway Surkov monomyth meme patterns since March 2013. Nothing can stop it! September 9, 2014 (18 months after it started): https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/politics/comments/1q4zxsn/trump_admin_says_its_cutting_welfare_funds_to/nxwdax5/
+
+The social media audience, Reddit users, war against long-form commenting with links, author names, quotes form books, book titles, page numbers continues. Tiny-short junk learning dominates USA mindsets.
+
+https://old.reddit.com/r/politics/comments/1q4zxsn/trump_admin_says_its_cutting_welfare_funds_to/nxwe504/
+
+Satire-washing Donald Trump / White House. Sarcasm-washing. Trump gets away with everything because audiences flock to his every move to tell jokes and share memes about Trump. I live in an economy of Trump media content.
+
+https://old.reddit.com/r/politics/comments/1q4zxsn/trump_admin_says_its_cutting_welfare_funds_to/nxwow3r/
+
+Reddit users can't stand up to Russia's invading Reddit. Can't even name the Internet Research Agency and timeline leading up to Trump's election.
+
+https://old.reddit.com/r/politics/comments/1q4zxsn/trump_admin_says_its_cutting_welfare_funds_to/nxwdwhu/
+
+Reddit society will find any way to avoid nonfiction books. Blue vs. Red brainrot is all people desire. Simplistic screen games that can fit on tiny-short Reddit comment messages. Trump plays checkers of "Blue bad" and Reddit eats it up with "Red" in the name. The less words, like "outplurbed", the more powerful.
+
+Anything to avoid learning and education of nonfiction. Rick Roderick, Duke University:
+
+"::: the way people deal with this is interesting. They deal with it as a form of complexity, a word I have used probably too many times. It makes the people caught in this cusp between an old world and an old paradigm that is dying and a new one that cannot really yet be born. And we find ourselves in that space. And it draws us to people like Ross Perot who say “It’s just that simple… it’s just that simple… it’s just that simple”. That’s **the most powerful political rhetoric in a world** with a postmodern trajectory. God, how we would love it if someone could tell us anything was “just that simple” :::" - https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
