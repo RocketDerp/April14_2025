@@ -465,3 +465,9 @@ Reddit society will find any way to avoid nonfiction books. Blue vs. Red brainro
 Anything to avoid learning and education of nonfiction. Rick Roderick, Duke University:
 
 "::: the way people deal with this is interesting. They deal with it as a form of complexity, a word I have used probably too many times. It makes the people caught in this cusp between an old world and an old paradigm that is dying and a new one that cannot really yet be born. And we find ourselves in that space. And it draws us to people like Ross Perot who say “It’s just that simple… it’s just that simple… it’s just that simple”. That’s **the most powerful political rhetoric in a world** with a postmodern trajectory. God, how we would love it if someone could tell us anything was “just that simple” :::" - https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
+
+https://old.reddit.com/r/politics/comments/1q4ocgu/isnt_trumps_obvious_mental_illness_a_national/nxtw8s0/
+
+The issue isn't ONE person, it's all the people who think it is funny and amusing and thrilling entertainment. People follow the hate leadership of Trump. Trump leads a nation of mocking. Joe Biden was far too unattractive as a source of humor and jokes for Reddit audiences.
+
+USA has lost mind, including Donald Trump. "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M
