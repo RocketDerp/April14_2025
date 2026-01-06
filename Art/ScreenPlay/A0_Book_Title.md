@@ -191,3 +191,12 @@ Rockabill Booby
 * Payment bill rocking / red tape breaking
 * Boob-tube metaphors / media ecology McLuhan Postman
 
+&nbsp;
+
+Serious Shit    
+Unserious Shit  (Drowning serious in shit)   
+Serious Pluribus (Serious Plura- us)    
+We Fall (We Fall)    
+But it is You who Have further to fall (Titanium lyrics)      
+Not Bulletproof    
+Great Non-Expectations (Great Seal banality)    
