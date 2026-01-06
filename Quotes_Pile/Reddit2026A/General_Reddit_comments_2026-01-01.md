@@ -605,3 +605,13 @@ https://www.goodreads.com/work/quotes/40714614-nothing-is-true-and-everything-is
 
 “That unique Moscow mix of tackiness and menace. One time I see a poster advertising a new property development that captures the tone nicely. Got up in the style of Nazi propaganda, it shows two Germanic-looking youths against a glorious alpine mountain over the slogan "Life is Getting Better". It would be wrong to say the ad is humorous, but it's not quite serious either. It's sort of both. It's saying this is the society we live in (a dictatorship), but we're just playing at it (we can make jokes about it), but playing in a serious way (we're making money playing it and won't let anyone subvert its rules).”
 ― Peter Pomerantsev, Nothing Is True and Everything Is Possible: The Surreal Heart of the New Russia. Year 2014.
+
+https://old.reddit.com/r/europe/comments/1q5vc3y/us_discussing_options_to_acquire_greenland/ny2zrlx/
+
+https://old.reddit.com/r/europe/comments/1q5vc3y/us_discussing_options_to_acquire_greenland/ny30wvj/
+
+https://old.reddit.com/r/europe/comments/1q5vc3y/us_discussing_options_to_acquire_greenland/ny323kk/
+
+https://old.reddit.com/r/europe/comments/1q5vc3y/us_discussing_options_to_acquire_greenland/ny35xda/
+
+https://old.reddit.com/r/europe/comments/1q5vc3y/us_discussing_options_to_acquire_greenland/ny3cbm1/
