@@ -475,3 +475,15 @@ USA has lost mind, including Donald Trump. "MASS PSYCHOSIS - How an Entire Popul
 https://old.reddit.com/r/goodnews/comments/1q4v50h/walz_make_no_mistake_about_it_if_republicans/nxxh37l/
 
 It is impossible to convince Reddit media addicts that the entire nation is media addicts. Nonfiction learning about Surkov information warfare methods is repulsive to addicts. we aren't the only nation in the world. These comparisons of behavior of "high energy Fox News leadership" can be made to previous Presidents like Obama or world leaders in Canada. But Reddit meme consumers will not face that MAGA is driven by mockery and hate, just now as anti-MAGA is motivated.
+
+https://old.reddit.com/r/PoliticalHumor/comments/1q56g86/mark_kellys_official_response_to_hegseths_threats/nxxwn26/
+
+Over 10 years and 6 months of never-ending Donald Trump antics politics. Russian information warfare since March 2013 based on Surkov techniques. And the same problem is wrong with the supposed "opposition to Trump" that Trump supporters have. Entertainment addition. Wanting Trump and MAGA and everyone to provide meme behaviors. Neil Postman's 1985 book, Carl Sagan's 1995 book, Rick Roderick's 1993 lectures describe the possibility of this society.
+
+Let me say it again repeating: this isn't a joke. These are actual serious messages from Reddit audience wishing that every single hour of every single day is amusement and entertainment. A Fox News Pentagon leader who triggers responses like this, is the sports mentality the audience is calling for. Never-ending dumb as fuck satire and sarcasm running society into the ground. Meme drunks in never-ending state of chuckles and giggles all the time. That's the unstoppable situaiton we are in, audiences who come to Reddit to give their wealth, power, energy over for more bad-ass copypasta memes.
+
+https://old.reddit.com/r/PoliticalHumor/comments/1q56g86/mark_kellys_official_response_to_hegseths_threats/nxy1bwt/
+
+RFK Jr threatens real people. Putin threatens Ukraine. Fox News threatens blue states. Real killers do make threats. Even animals bark and threaten before they kill. Donald Trump has been threatening people for decades and harming real people. It is as if people in USA year 2026 don't grasp how billionaires (Putin, Trump, Muroch all cited in this paragraph) kill people and use communications right to their face.
+
+
