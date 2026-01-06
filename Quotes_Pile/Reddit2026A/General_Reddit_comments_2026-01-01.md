@@ -420,3 +420,25 @@ https://old.reddit.com/r/NewsOfTheStupid/comments/1q4xzmz/hacker_deletes_tinder_
 
 Walks like a duck, quacks like a duck. Did the Reddit user think it was artificial intelligence?
 
+https://old.reddit.com/r/GetNoted/comments/1q4yieo/subway/nxwfhcf/
+
+<img width="918" height="347" alt="image" src="https://github.com/user-attachments/assets/f2886eca-e128-4584-abe5-34ed2abf24ca" /> The Reddit Language Nazi. Anti-immigrant political dog whistle / dog fog horn. Year 2026 Reddit USA MAGA values, non-native language users should not correct or speak up when someone tells lies about the New York City subway system. Because, somehow, English language rules and English language usage is Jesus and God rules above all other decency in society. If you slur your speech or forget a spacebar-tap on your keyboard, you have lost your human rights to speak the truth and facts in the face of Elon Musk Twitter platform lies.
+
+Is this Reddit comment bigotry-bait? Celebration of ignorance bait? Anti-fact-checking bait? Egoism bait?
+
+https://old.reddit.com/r/GetNoted/comments/1q4yieo/subway/nxwn3rl/
+
+All Reddit users do anymore...
+
+https://old.reddit.com/r/GetNoted/comments/1q4yieo/subway/nxwdg5q/
+
+Riled up at how { dumb, stupid, idiot, orange, fat, golfing } Donald Trump is. It made him the most powerful man on Earth, so why wouldn't people use Twitter the same way Trump abuses Twitter?
+
+https://old.reddit.com/r/GetNoted/comments/1q4yieo/subway/nxwoe4t/
+
+Reddit account that is less than 1 year old. With a message that does not even go longer than Twitter length.
+
+https://old.reddit.com/r/Music/comments/1q4nxkf/nicki_minaj_could_be_at_the_end_of_her_career_as/nxtvp0k/
+
+Politics too. It has something to do with the size and shape of an iPhone screen, as I don't remember before year 2007 that people were all staring into devices whenever I try to cross a street or witness people at a restaurant together. But nobody wants to discuss Reddit meme addiction and compulsive meme consumption behaviors. A nation who follows a leader who live-Twitter messages Fox News HDTV. March 4, 2019 https://www.newyorker.com/magazine/2019/03/11/the-making-of-the-fox-news-white-house
+
