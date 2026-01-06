@@ -442,3 +442,6 @@ https://old.reddit.com/r/Music/comments/1q4nxkf/nicki_minaj_could_be_at_the_end_
 
 Politics too. It has something to do with the size and shape of an iPhone screen, as I don't remember before year 2007 that people were all staring into devices whenever I try to cross a street or witness people at a restaurant together. But nobody wants to discuss Reddit meme addiction and compulsive meme consumption behaviors. A nation who follows a leader who live-Twitter messages Fox News HDTV. March 4, 2019 https://www.newyorker.com/magazine/2019/03/11/the-making-of-the-fox-news-white-house
 
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1q4puix/i_cant_believe_this_is_america_us_veteran_who/nxu7g0q/
+
+Reddit users have turned everything into entertainment, "Leopards ate faces" / Americans suffering, LOL LOL cow milking. { Parody, comedy venue nation, satire, sarcasm, irony, inverted, ass-backwards, for the laughs, for the lulz, just a prank bro, just a billionaire Rupert Murdoch prank bro, just a Reddit humor posting } . Russia won, the outcome of the runaway Surkov monomyth meme patterns since March 2013. Nothing can stop it! September 9, 2014 (18 months after it started): https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
