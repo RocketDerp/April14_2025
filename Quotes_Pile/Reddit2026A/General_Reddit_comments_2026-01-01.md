@@ -715,3 +715,15 @@ https://old.reddit.com/r/politics/comments/1q5yh02/trumps_plan_to_own_the_wester
 https://old.reddit.com/r/politics/comments/1q5yh02/trumps_plan_to_own_the_western_hemisphere_and/ny3pazx/
 
 Reddit street gangs /r/Conservative and other subreddits. Many many many.
+
+https://old.reddit.com/r/politics/comments/1q5vd43/department_of_justice_quietly_admits_terrorist/ny2xdqb/
+
+Reddit is ground zero for the addiction to fiction. No-identity user accounts that feed addictions to low-quality commenting.
+
+https://old.reddit.com/r/politics/comments/1q5vd43/department_of_justice_quietly_admits_terrorist/ny2xwh5/
+
+Downplaying the war against reality, that it's trivial, trivializing the situaiton of Putin's information warfare defeating USA since March 2013. September 9, 2014 (18 months after it started): https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/politics/comments/1q5s6ar/trump_successfully_murders_us_public_media/ny2s56a/
+
+Yes. The entire population that won't confront media addiction. Neil Postman's 1985 book rotting on the shelf. Last year, year 2025, was the 40th year since a book was published on this crisis of the ENTIRE NATION of image addicts. Time Magazine, a long established news source in USA before Reddit was ever created. Before Twitter was able to be purchased by Elon Musk! Before fiction addictions took over nonfiction learning. September 10, 2025 https://Time.com/7313999/neil-postman-trump-prediction/
