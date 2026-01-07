@@ -671,3 +671,12 @@ https://old.reddit.com/r/politics/comments/1q5yh02/trumps_plan_to_own_the_wester
 https://old.reddit.com/r/politics/comments/1q5yh02/trumps_plan_to_own_the_western_hemisphere_and/ny43rct/
 
 Messages from reddit machine lovers: self-deport, hide your self, don't stand up and describe the stress and anti-goodness MAGA / White House / Russia / Putin has caused.
+
+https://old.reddit.com/r/politics/comments/1q5yh02/trumps_plan_to_own_the_western_hemisphere_and/ny3wg8h/
+
+Yep, mocking humanism on reddit /r/Politics - just like Pluribus mocking community of humanism.
+
+https://old.reddit.com/r/politics/comments/1q5yh02/trumps_plan_to_own_the_western_hemisphere_and/ny3p1ge/
+
+Banal agent, mocking agent. USA 2026 MAGA values. Mock "The Little Guy" in favor of Big Big MAGA Trumpism.
+
