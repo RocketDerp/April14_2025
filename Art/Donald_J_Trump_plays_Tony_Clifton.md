@@ -5,6 +5,8 @@ Surkov techniques of Kremlin governing year 2011 applied to United States of Ame
 
 https://bsky.app/profile/roundsparrow.bsky.social/post/3lxmpc33ctc2f   
 https://autistics.life/@RoundSparrow/115118006699148095   
+https://bsky.app/profile/roundsparrow.bsky.social/post/3mbtxbunwn22l   
+https://autistics.life/@RoundSparrow/115854902528945532   
 
 &nbsp;
 
