@@ -38,3 +38,15 @@ and there was no one left to speak for me."
 ### "no one left to speak for me"
 
 As an autistic person knowing the history of Nazi behaviors towards autistsm and the language communications issues of being outside the Tower of Babel with autism langauge disorders. Everyhing Donald Trump has been since June 2015 with language, and even before in year 2012 with Donald Trump and language:  https://abcnews.go.com/Politics/donald-trumps-2012-election-tweetstorm-resurfaces-popular-electoral/story?id=43431536
+
+&nbsp;
+
+&nbsp;
+
+# Wednesday January 7, 2026
+
+Reddit comment:
+
+https://old.reddit.com/r/politics/comments/1q6cgwb/were_the_bad_guys_now/ny6hq6u/
+
+Science fiction vs. Science fiction won. Nonfiction science, ]Carl Sagan spelled out in his 1995 book](/Quotes_Pile/Carl_Sagan_Quotes.md), lost. Malala's [science education message lost to Epstein fanatics / QAnon fandom](/PostMalala/Marriage/World_Malala_Timeline_Year_2012.md) since year 2012.
