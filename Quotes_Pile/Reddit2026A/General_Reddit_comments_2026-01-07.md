@@ -176,4 +176,13 @@ https://old.reddit.com/r/politics/comments/1q6k1tu/trump_suggests_insane_new_mot
 
 https://old.reddit.com/r/politics/comments/1q6k1tu/trump_suggests_insane_new_motive_for_invading/ny8fu31/
 
-Palestine October 7, 2023 is Putin's birthday. I was planned years in advance. Reddit people are so gullible that they (reddit no-identity commenting) are invaded by Kremlin.  Anything to avoid defending against Putin with nonfiction learning about "Internet Research Agency" that infiltrated Reddit. https://www.BBC.com/news/technology-43301643
+Palestine October 7, 2023 is Putin's birthday. I was planned years in advance. Reddit people are so gullible that they (Reddit society of no-identity commenting) are invaded by Kremlin.  Anything to avoid defending against Putin with nonfiction learning about "Internet Research Agency" that infiltrated Reddit. https://www.BBC.com/news/technology-43301643
+
+https://old.reddit.com/r/politics/comments/1q6ut66/trump_isnt_just_defending_ice_for_killing_a_woman/nyam3o9/
+
+The not-reading, not-understanding, reactionary mindsets keep getting worse as they have since March 2013. 
+
+https://old.reddit.com/r/politics/comments/1q6ut66/trump_isnt_just_defending_ice_for_killing_a_woman/nyan2hm/
+
+<img width="867" height="300" alt="image" src="https://github.com/user-attachments/assets/acb7abfd-6f11-4b4e-94bf-86fbfae4af23" /> People are marching to the drum-beat of Trump media / White House Kremlin media / Surkov students. Wildly reacting. Gullible population that will not stand up to the media addiction that is the foundation of Fox News Pentagon values and Celebrity Reality TV stardom attraction. 
+
