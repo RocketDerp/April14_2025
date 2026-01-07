@@ -8,7 +8,7 @@ https://old.reddit.com/r/fixedbytheduet/comments/1ojyzi7/this_ai_thing_has_gone_
 
 # John One One Warfare
 
-People obsserve and crack joke that the word is being repuprosed and rewritten. Alas, not taking the topic seriously as information warfare.   
+People observe and crack joke that the word is being repurposed and rewritten. Alas, not taking the topic seriously as information warfare.   
 
 https://old.reddit.com/r/nottheonion/comments/1oo7kud/greg_abbott_threatens_100_tariff_on_new_yorkers/
 
