@@ -1019,3 +1019,11 @@ https://old.reddit.com/r/politics/comments/1q6dj2u/sorry_gop_theres_no_christian
 Donald Trump learns from mistakes. That being a bad-guy aspiration for people sells. What Vince Gilligan realized after making Breaking Bad and Better Call Saul. That USA audiences prize white men who manipulate, lie, self-harm their city (ABQ). Or their nation, self-harming humanity. Trump provides the leadership that Reddit audiences crave, thrilling wild crazy fiction storytelling.
 
 * https://youtu.be/TkteSxVIM1A?t=713 82,805 views October 23, 2008 "cool. When that happens fictional bad guys stop being the cautionary tales that they were intended to to be. God help us, they become aspirational! So maybe what the world needs now are some good old fashion Greatest Generation types who give more than they take. Who think that kindness tolerance and sacrifice aren't strictly for Chumps!"
+
+https://old.reddit.com/r/politics/comments/1q64mz3/bolton_on_trump_venezuela_plan_i_dont_think_he/ny51cde/
+
+# Rescue Donald Trump + Friends
+
+<img width="887" height="872" alt="image" src="https://github.com/user-attachments/assets/394134f4-532d-4122-9cad-b3fff21e5257" /> That's why RESCUE Donald Trump. I mounted an effort. February 17, 2025 https://old.reddit.com/r/RescueFriends/ - Putin has mind-fucked rural population and Donald Trump and mind-fucked Fox News audience into self-harm of humanity. Surkov won since March 2013.
+
+Social post { https://autistics.life/@RoundSparrow/115854662722077248 https://bsky.app/profile/roundsparrow.bsky.social/post/3mbttskmu6c2l }
