@@ -660,3 +660,14 @@ https://old.reddit.com/r/news/comments/1q5uk7c/hilton_hotels_removing_minneapoli
 
 38% approval for leading, but 100% approval for Reddit content entertainment. People mock, hate, do everything but confront media addiction to Fox News HDTV with Jen Senko's nonfiction... and media addiction of Reddit commenting about Trump / MAGA with Neil Postman's nonfiction. Addicts to Trump-junk don't want to admit and go first on the massive USA society-wide addiction to a Reality TV "The Apprentice" superstar / celebrity. 
 
+https://old.reddit.com/r/politics/comments/1q5yh02/trumps_plan_to_own_the_western_hemisphere_and/ny3ltft/
+
+Rule by stress. Stress lording. Ans so many social media addicts who have adopted Truth Social / Trump behaviors. So many Elon Musk Twitter addicts on Reddit pushing machine lust with human hate pairings.
+
+https://old.reddit.com/r/politics/comments/1q5yh02/trumps_plan_to_own_the_western_hemisphere_and/ny3mktf/
+
+https://old.reddit.com/r/politics/comments/1q5yh02/trumps_plan_to_own_the_western_hemisphere_and/ny3ngmu/
+
+https://old.reddit.com/r/politics/comments/1q5yh02/trumps_plan_to_own_the_western_hemisphere_and/ny43rct/
+
+Messages from reddit machine lovers: self-deport, hide your self, don't stand up and describe the stress and anti-goodness MAGA / White House / Russia / Putin has caused.
