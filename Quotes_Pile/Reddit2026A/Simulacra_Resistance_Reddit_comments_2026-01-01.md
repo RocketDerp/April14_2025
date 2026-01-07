@@ -145,3 +145,13 @@ A police-cop or I.C.E. or landlord-raider of the homeless is cheered on by Reddi
 https://old.reddit.com/r/CringeTikToks/comments/1q5n8n4/whats_wrong_with_him/ny14usk/
 
 Reddit audiences, the intimate touch device iPhone / iPad / Android users of Reddit, they love that they [(a crowd of cloud computing) can mock President Tony Clifton over and over](/Art/Donald_J_Trump_plays_Tony_Clifton.md). SNL techniques of NYC home town of Donald Trump and his father. Audiences are incredibly engaged with the mind-blowing Surkov student adaptations of Tony Clifton performances. And not just one single actor plays Clifton, as tradition goes, but DJT is by far the most entertaining to the mindsets and attractions of Reddit hate and Reddit mocking fandoms.
+
+https://old.reddit.com/r/complaints/comments/1q6ff9j/trump_is_hitler_and_america_is_turning_into_1930s/ny75n0z/
+
+ANYTHING and EVERYTHING on Reddit comment section to avoid naming "Internet Research Agency" and putting two and two together about Putin and Trump meeting in Alaska in the summer of year 2025. [And Trump's November 8, 2013 trip to Moscow, Russia LONG BEFORE the 2016 voting day](/Operation_Matthew_4_19_on_monday_2024-03-31.md) in November 2016. People comment tiny-short incredibly popular dumb messaging on Reddit, and audiences eat it up. ANYTHING to avoid nonfiction study of factual real information and timelines.
+
+This commenting you see all over Reddit isn't resisting, it is being right in the IRA simulation! It is being a tool of the Kremlin to not focus and organize. Anti-Wiki anti-FAQ anti quoting from books. Just low-effort Twitter-length garbage into minds, garbage out of minds on Reddit.
+
+https://old.reddit.com/r/complaints/comments/1q6ff9j/trump_is_hitler_and_america_is_turning_into_1930s/ny7ipm9/
+
+Yes. This is correct. Needs links off-Reddit, needs quotes from books, need author names. But it is correct. Putin and Trump are not { idiot, dumb, moron, stupid, baby, child, toddler } - they have out-smarted the entire Reddit community. I created this subreddit to educate: April 29, 2019 https://old.reddit.com/r/WhiteHouseSurkovMedia
