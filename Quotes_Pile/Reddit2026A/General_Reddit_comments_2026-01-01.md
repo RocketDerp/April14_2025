@@ -747,3 +747,12 @@ Banality message.  It is pro-banality pro-mockery. See this https://old.reddit.c
 https://old.reddit.com/r/law/comments/1q5ynv6/resolution_to_block_president_trump_from_invading/ny3o56e/
 
 Top voted, top of page, Reddit commenting. Promoting how "LOL" wins power. How behaving like a Twitter and Reddit user is the USA government in year 2026. It is pro-banality pro-mockery. See this https://old.reddit.com/r/HyperBanalisation/ subreddit I created many years ago to try and describe this emerging behavior on Reddit and now society in total in 2026.
+
+https://old.reddit.com/r/pics/comments/1q5yzu6/ussrlevel_statesponsored_propaganda_from_the/ny3qvjv/
+
+Reddit audiences LOL-gas laughing gas away all serious topics with "LOL cow" milking of MAGA / Trump / White House / Putin's USSR methods. Surkov won since March 2013. Hearts and minds lost.
+
+https://old.reddit.com/r/pics/comments/1q5yzu6/ussrlevel_statesponsored_propaganda_from_the/ny3xqwo/
+
+QAnon ... nobody ever links the subreddit I created on this topic. https://old.reddit.com/r/QAnonRussia/
+
