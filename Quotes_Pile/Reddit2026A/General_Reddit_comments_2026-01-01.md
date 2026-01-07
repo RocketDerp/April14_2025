@@ -963,3 +963,46 @@ https://old.reddit.com/r/politics/comments/1q6cgwb/were_the_bad_guys_now/ny6slg3
 https://old.reddit.com/r/politics/comments/1q6cgwb/were_the_bad_guys_now/ny6hq6u/
 
 * "I tell you, freedom and human rights in America are doomed. The U.S. government will lead the American people in — and the West in general — into an unbearable hell and a choking life." [- أسامةبنلادن Al-Jazeera interview, 21 October 2001](/Grim_Blunt/Concerns/Unbearable_Hell_Choking_Life.md)
+
+https://old.reddit.com/r/worldnews/comments/1q6dso7/trumps_former_adviser_says_russia_offered_us/ny6t8uj/
+
+https://old.reddit.com/r/worldnews/comments/1q6dso7/trumps_former_adviser_says_russia_offered_us/ny6zohc/
+
+https://old.reddit.com/r/worldnews/comments/1q6dso7/trumps_former_adviser_says_russia_offered_us/ny77ze0/
+
+https://old.reddit.com/r/worldnews/comments/1q6dso7/trumps_former_adviser_says_russia_offered_us/ny6xi17/
+
+Observe: no link, no quote, tiny-short comment message, no author name, no book title.
+
+https://old.reddit.com/r/worldnews/comments/1q6dso7/trumps_former_adviser_says_russia_offered_us/ny765gn/
+
+If the USA starts giving weapons to Russia too.
+
+https://old.reddit.com/r/worldnews/comments/1q6dso7/trumps_former_adviser_says_russia_offered_us/ny76cqf/
+
+https://old.reddit.com/r/worldnews/comments/1q6dso7/trumps_former_adviser_says_russia_offered_us/ny6uqtl/
+
+It is impossible. There is much bullshit commenting streaming out of Reddit into the world that every person is playing interactive fiction games of filter-bubbles. https://en.wikipedia.org/wiki/Filter_bubble  Anti-Wiki, anti-FAQ, anti same page. Misunderstanding vs. misunderstanding. People are so addicted to fiction bullshit. That's what Donald Trump provides as a leader, strong focus on fiction techniques of Surkov students.
+
+Martin Luther King Jr's messages on hate are famous enough. They are there in the public library for people who want the end of hate. Malala since year 2012 is famous enough. People are attracted to fiction video games, fiction Reddit ARG on intimate touch iPhone / iPad / Android screens. Nonfiction gets mocked and neglected, nonfiction gets bullied off of social media Reddit.
+
+https://old.reddit.com/r/worldnews/comments/1q6dso7/trumps_former_adviser_says_russia_offered_us/ny6zty3/
+
+https://old.reddit.com/r/worldnews/comments/1q6dso7/trumps_former_adviser_says_russia_offered_us/ny7e9v9/
+
+The USA stock market implosion over Artificial Intelligence silicon chips.
+
+https://old.reddit.com/r/worldnews/comments/1q6dso7/trumps_former_adviser_says_russia_offered_us/ny757bs/
+
+Reddit society thinks runaway fiction addiction on /r/All of Reddit isn't a threat to humanity. Donald Trump photos and Trump words and Trump entertainment stimulation constantly.
+
+https://old.reddit.com/r/pics/comments/1q6f1bj/iran_facing_its_biggest_protest_in_three_years/ny73lgj/
+
+https://old.reddit.com/r/pics/comments/1q6f1bj/iran_facing_its_biggest_protest_in_three_years/ny7oaap/
+
+What bullshit messages you see on Reddit. No quote from a book or Wikipedia, no link off-Reddit, no author name, no book title. Just tiny-short commenting people prize.
+
+https://old.reddit.com/r/pics/comments/1q6f1bj/iran_facing_its_biggest_protest_in_three_years/ny7gscl/
+
+Russia / Putin already did. But the LOL-washing it so amusing entertaining to Reddit that alternate reality gaming has taken over. Subreddit by subreddit ARG, every flavor of anti-reality in every comment section even on a single post. Freedom to adore fiction, freedom do deny reality is Reddit community behavior. Anti-Wiki anti-FAQ, anti same page.
+
