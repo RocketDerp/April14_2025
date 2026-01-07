@@ -901,3 +901,27 @@ People love fiction. Reddit /r/All has all kinds of unimportant (given the crisi
 https://old.reddit.com/r/technology/comments/1q661vq/president_white_house_launches_new_website_to/ny5briw/
 
 Every day Reddit front page has no call for social media to stop entertainment and be serious. People mock away and LOL away at superficial unimportant jokes about { orange skin, fat, golf playing, word choice }. Meme addicts society won't be serious. [Begging / Telling everyone to stop racing in their video game site Reddit and to please use all available spare time and free time to be serious and focus on important relevant nonfiction. Halting entertainment, the Reality TV entertainer star attraction basis of power.](/Grim_Blunt/Stop_All_Entertainment.md)
+
+https://old.reddit.com/r/news/comments/1q647qe/trump_administration_freezes_childcare_food_aid/ny515dx/
+
+# Morbidly Amusing
+
+this describes the entire June 16, 2015 onward Reddit society attraction to Trump, Neil Postman's 1985 book "Amusing Ourselves to Death". the self-harm to LOL LOL LOL at Trump actions every day. To amusement-wash Trump, to humor-wash, joke-wash, "orange skin" over and over and over. It's sickening, a very sick society that has wasted so much goodness just for dumb amusement jokes.
+
+* Time magazine. September 10, 2025 https://Time.com/7313999/neil-postman-trump-prediction/
+
+We The People who train on Reddit to joke-away goodness with amusements are the problem. Trump is the symptom. There was no "high road", there was endless humor-based mocking and insulting. Surkov won since March 2013 via Reddit and Twitter. People mock Fox News and Reddit, mocking is the problem. Joking and insulting and name-calling is Trump values. RESCUE of Trump, RESCUE of MAGA is what is joked away / laughed away by Reddit laughing organized LOL site.
+
+https://old.reddit.com/r/news/comments/1q647qe/trump_administration_freezes_childcare_food_aid/ny4xpjp/
+
+https://old.reddit.com/r/news/comments/1q647qe/trump_administration_freezes_childcare_food_aid/ny5ekxe/
+
+https://old.reddit.com/r/news/comments/1q647qe/trump_administration_freezes_childcare_food_aid/ny5iguo/
+
+Trump comes from "The Apprentice" Reality TV and "Home Alone". Reddit flocks to entertainment and amusements. Money isn't the core motive, comedy and jokes is what drives Reddit millions and millions of people.
+
+https://old.reddit.com/r/news/comments/1q647qe/trump_administration_freezes_childcare_food_aid/ny4vesn/
+
+<img width="873" height="237" alt="image" src="https://github.com/user-attachments/assets/f2b70c8e-fc23-48a8-8443-3b90af0cc258" /> Russia won a hearts and minds war, via Reddit, since March 2013. This is self-harm of USA on the world stage. Absurd surreal comedy behavior. Surkov won, Putin won! Entertainment addiction runs Reddit USA. That is what happened to the USA, intimate touch Apple iPhone / iPad addictions to junk memes took over. AGAIN: Surkov won.
+
+Social post: { https://autistics.life/@RoundSparrow/115853385228206198 https://bsky.app/profile/roundsparrow.bsky.social/post/3mbtbnqwuz22g }
