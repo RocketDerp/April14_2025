@@ -743,3 +743,7 @@ Tiny-short Twitter-think Tweet-length commenting on Reddit. Anything and everyth
 https://old.reddit.com/r/politics/comments/1q5q8ps/mad_kings_dont_stop_themselves_they_must_be/ny3a141/
 
 Banality message.  It is pro-banality pro-mockery. See this https://old.reddit.com/r/HyperBanalisation/ subreddit I created to try and describe this behavior on Reddit.
+
+https://old.reddit.com/r/law/comments/1q5ynv6/resolution_to_block_president_trump_from_invading/ny3o56e/
+
+Top voted, top of page, Reddit commenting. Promoting how "LOL" wins power. How behaving like a Twitter and Reddit user is the USA government in year 2026. It is pro-banality pro-mockery. See this https://old.reddit.com/r/HyperBanalisation/ subreddit I created many years ago to try and describe this emerging behavior on Reddit and now society in total in 2026.
