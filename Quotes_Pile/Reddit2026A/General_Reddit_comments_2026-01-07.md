@@ -86,7 +86,7 @@ No book quotes, no author names, no link off-Reddit, just Twitter-length shit-ta
 
 https://old.reddit.com/r/complaints/comments/1q6l556/we_are_the_baddies_thanks_conservatives/ny8mv01/
 
-Just like Reddit users are block-happy aggressive addicts to dehumanization people with machine systems. Just like Bluesky. Masked, no-identity moderators and users who report and have others banned and blocked out of egomania / egoism values (Trump leads Truth Social society of egomania). What changed since year 2013 is the Internet Research Agency invading Reddit. https://www.BBC.com/news/technology-43301643 And everyday people abandoning nonfiction learning about Kremlin media techniques and Putin values. 
+Just like Reddit users are block-happy aggressive addicts to dehumanization people with machine systems. Just like Bluesky. Masked, no-identity moderators and users who report and have others banned and blocked out of egomania / egoism values (Trump leads Truth Social society of egomania). Tech industry society, technopoly worshipers / cults of tech. What changed since year 2013 is the Internet Research Agency invading Reddit. https://www.BBC.com/news/technology-43301643 And everyday people abandoning nonfiction learning about Kremlin media techniques and Putin values. 
 
 https://old.reddit.com/r/complaints/comments/1q6l556/we_are_the_baddies_thanks_conservatives/ny8eyxl/
 
@@ -104,4 +104,4 @@ https://old.reddit.com/r/mildlyinfuriating/comments/1q6hcv2/processing_the_loss_
 
 https://old.reddit.com/r/videos/comments/1q6ihtt/trump_announces_dc_triumphal_arch_claims_it_will/ny7tcha/
 
-It's high priority to front page top-voted comment of /r/All - to mock and insult Donald Trump. People who are so incredibly gullible that they think Trump is not an actor doing scenes of ballrooms and locations for photographs. Reddit lives for images / photographs of Trump. This is a media addict leading a media addiction society of Hollywood garbage, Reality TV celebrity, sex private jet lives of Mar-A-Largo society. Truth Social Reddit audience, *meme aficionados, that follows** hate leadership signals.
+It's high priority to front page top-voted comment of /r/All - to mock and insult Donald Trump. People who are so incredibly gullible that they think Trump is not an actor doing scenes of ballrooms and locations for photographs. Reddit lives for images / photographs of Trump. Tech worship center, of high-speed image mocking. This is a media addict leading a media addiction society of Hollywood garbage, Reality TV celebrity, sex private jet lives of Mar-A-Largo society. Truth Social Reddit audience, *meme aficionados, that follows** hate leadership signals.
