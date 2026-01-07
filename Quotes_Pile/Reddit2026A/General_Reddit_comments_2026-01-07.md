@@ -141,3 +141,8 @@ I personally worked for the richest people in the entire world in Bellevue Washi
 Audiences eat the "Trickle Down Content" from billionares. People think economic money is "Trickle Down", but it is images of Trump and images of sports assets that trickle down. All highly manipulated by public relationships industry.
 
 * Stand up to "Big Sports" wealth lording over poor people, the "FIFA Peace Prize" global empires... "Beginning in August 2016, some American athletes, most of whom are African Americans, have protested against systemic racism in the United States by kneeling" https://en.Wikipedia.org/wiki/U.S._national_anthem_kneeling_protests
+
+https://old.reddit.com/r/NFLv2/comments/1q6oqx8/dave_ramsey_on_sports_betting_the_fastest_growing/ny96whm/
+
+Hyper-reality sports detachment. Players have armies of medical doctors, sports body engineering and food science, while the rest of the nation has shit health care driven by the same sports teas owners / billionaire sports owners.
+
