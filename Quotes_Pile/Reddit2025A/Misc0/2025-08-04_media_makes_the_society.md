@@ -1,4 +1,4 @@
-The Media Makes the Society   
+# The Media Makes the Society   
 
 Garbage media into human minds, is garbage education and teaching into human minds. Garbage in, garbage out, and people in USA flock to shit garbage junk media. You see it all over /r/All and in every echo chamber you read- people flocking to trash media.
 
@@ -25,7 +25,7 @@ That is how teaching works. That is how learning works. Repetitive ideas from Do
 
 Instead of sharing Carl Sagan, Malala Yousafzai, Hannah Arendt, and other excellent good content in the face of Donald Trump since year 2015, we in the USA society have flocked to the shit and hate and put them into our minds. That is how education and learning works, and the USA has learned to *become Donald Trump in total*, a nation with attraction to hate and misunderstandings of a 79 year old mind. Junk shit /r/All role model teacher.
 
-It is impossible to think clearly any more, there is no thinking, there is enslavement in USA to junk messages and trash ideas and foul understandings. We have become since year 2025 to behave like Donald Trump and saturate each other with the terrible ideas and thinking. No writing, no teacher, no book from all the public library written in any year of all humanity, has been able to stop this cycle. We are a wasteland now in the USA. The only thing you can communiate is hate and trash ideas, languge only serves to repeat and mirror Donald Trump's media spotlight. All messages and ideas orbig around Donald Trump and anyone you communicate to only accepts shit and trash ideas. USA society in total has adopted hate and dehumanization as deepest faith, hate for Donald Trump, hate from Donald Trump.
+It is impossible to think clearly any more, there is no thinking, there is enslavement in USA to junk messages and trash ideas and foul understandings. We have become since year 2025 to behave like Donald Trump and saturate each other with the terrible ideas and thinking. No writing, no teacher, no book from all the public library written in any year of all humanity, has been able to stop this cycle. We are a wasteland now in the USA. The only thing you can communicate is hate and trash ideas, language only serves to repeat and mirror Donald Trump's media spotlight. All messages and ideas orbit around Donald Trump and anyone you communicate to only accepts shit and trash ideas. USA society in total has adopted hate and dehumanization as deepest faith, hate for Donald Trump, hate from Donald Trump.
 
 The Media Makes the Society
 
