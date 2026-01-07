@@ -841,3 +841,8 @@ It is always a joke for meme audiences. Has been endlessly Since June 16, 2015.
 https://old.reddit.com/r/politics/comments/1q63pqq/gop_shows_little_interest_in_limiting_trumps_war/ny4sgut/
 
 Terrorized from saying "shit" on Reddit. Self-censoring.
+
+https://old.reddit.com/r/politics/comments/1q640ie/the_list_of_countries_trump_is_threatening_with/ny4tjxu/
+
+Entire nation views it as entertainment, fiction. Reddit community isn't willing to face up to meme addictions all around. Dr. Bandy X Lee can describe Trump madness, but people will not repeat her name like "Epstein" name repeating. Diagnose all of MAGA with Dr. Bandy X Lee, she has books... Quote them, get her name all over Reddit. She has only 3,000 followers on Bluesky... and she is lucky to get 4 people share her posts.
+
