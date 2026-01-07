@@ -40,3 +40,15 @@ https://old.reddit.com/r/politics/comments/1q6k2p1/has_anyone_checked_on_j_d_van
 
 Message to lead the audience that jokes are what matters most. Couch couch couch chanting on serious governing issues and analysis. Anything to make the USA programmed to be ignorant and banal. I created this Reddit learning community May 1, 2019 before pandemic on this "just a joke, bro" humor-washing of MAGA. https://old.reddit.com/r/HyperBanalisation
 
+https://old.reddit.com/r/politics/comments/1q6k1tu/trump_suggests_insane_new_motive_for_invading/ny85njv/
+
+A "rock", a stone on the ground, does not provide the entertainment content. Trump feeds EVERY PERSON, all sides, not just TWO / BOTH sides, but every person's touch-device media addiction stimulation dreams. People ignore Marshall McLuhan from University of Toronto.
+
+https://old.reddit.com/r/politics/comments/1q6k1tu/trump_suggests_insane_new_motive_for_invading/ny83plz/
+
+Nobody on Reddit has the balls to confront low-effort Twitter-length comment message addictions. The addicts to saying Donald Trump { toddler, dumb, idiot, baby, stupid, moron } over and over in a loop every day on Reddit commenting sections. This is the very mechanism of power for Trump. ]Audiences who eat the Surkovian Onions](../Reddit2025A/Surkovian_Onion_Eating.md) and think the onion taste great! [Shit-eating LOL LOL amusement audience on Reddit, people grading the turds of Trump as they pour down / trickle down from the wealthy media empires](/Grim_Blunt/Society_of_grading_and_ranking_turds.md).
+
+Reddit meme addicts do not realize Trump is an actor. Trump has been an actor decades before he went into the White House in early year 2017. Trump is acting. President Tony Clifton, live every day all day. Acting to Surkov screenplays, SNL NYC home town of Trump, Tony Clifton improvisation and scripting hybrid Russian warfare. ACTOR that Reddit community of meme addicts eat up, fall for.
+
+Reddit audience comment contribution has now become the very source of Trump / MAGA / Fox News normal making, normalization... prizing shit as thrilling content. Billionaires hoover it up into LLM training to continue the billionaire trickle-down feedback loops for shit-loving toxic ocean meme addicts.
+
