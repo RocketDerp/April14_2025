@@ -19,3 +19,12 @@ https://old.reddit.com/r/politics/comments/1q60t6k/maga_granny_who_refused_trump
 This Reddit comment, the one linked, is celebrating Rupert Murdoch as the "deeply seated issue". Bamboozled Rural less-education population. Reddit users with the ability to write paragraphs like this will not engage Neil Postman's library of books. High Speed HDTV and Reddit messages are a risk to humanity and Neil Postman called it out in his 1985 book "Amusing Ourselves To Death", that is the deep-seated issue. October 7, 1996 Fox News, and then Reddit and Twitter came along, Facebook, etc. Elon Musk purchasing Twitter wasn't an accident and Reddit mocked away. Rupert Murdoch, Elon Musk, Truth Social, Russia Today, Internet Research Agency. This Reddit comment **wants to sell $180/hour one on one mind doctors and [does not want to face the Cambridge Analytica doctors](../Cambridge_Analytica_Quotes.md)** since year 2013 / Dr. Abraham Brill doctor issues! Neil Postman and Marshall McLuhan explains Reddit and Truth Social addict behaviors. 
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mbtv2qmnls2l https://autistics.life/@RoundSparrow/115854751146421033 }
+
+https://old.reddit.com/r/politics/comments/1q60t6k/maga_granny_who_refused_trumps_january_6_pardon/ny49486/
+
+https://old.reddit.com/r/politics/comments/1q6aj9c/when_it_comes_to_trumps_behaviour_the_most/ny651i3/
+
+The USA **entire population is mentally unwell**. Trump content makes people mentally sick. This is a sick society, sicko nation. Media addiction to Russian information warfare since March 2013. Hate vs. hate, mock vs mock, hate for hate, mocking against mocking. Feedback loops of social media, "The Media" is the mass-age. Abandoned understanding of Marshall McLuhan. 
+
+* https://www.youtube.com/watch?v=09maaUaRT4M&t=743s Please watch: "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL"
+
