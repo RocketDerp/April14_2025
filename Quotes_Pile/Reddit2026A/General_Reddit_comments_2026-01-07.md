@@ -77,3 +77,17 @@ https://old.reddit.com/r/MurderedByWords/comments/1q6ld2a/so_the_right_suddenly_
 Simple-short messages. Prizing of Twitter content. Simulation against Twitter screenshots. Anything to not quote nonfiction books. No author name, no links, no thought-out analysis quoted. Just perpetual rounds of mocking back and forth with junk images of South America and other image trash. Fiction storytelling with low-effort commenting. Media addiction now runs USA society, flocking to MAGA mindsets on Reddit.
 
 * Twitter entertainment screenshots for Reddit audiences. “When a population becomes distracted by trivia, when **cultural life is redefined as a perpetual round of entertainments**, when serious public conversation becomes a form of baby-talk, when, in short, a people become an audience, and their public business a vaudeville act...” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
+
+https://old.reddit.com/r/complaints/comments/1q6l556/we_are_the_baddies_thanks_conservatives/ny8fgxh/
+
+No book quotes, no author names, no link off-Reddit, just Twitter-length shit-talk about how only one nation is the problem. Anything and everything to avoid how things changed with the lead-up to the February 20, 2014 Ukraine war. Changed with the invasion of Reddit since March 2013 by the Internet Research Agency. No-identity cowards of media, Reddit users who block / ban anyone who dissents to the Reddit toxic hive mind that Russia manipulates and owns for Putin.
+
+* "the real danger confronting civilization today is that atomic bomb which lies in the hearts and souls of men, capable of **exploding into the vilest of hate and into the most damaging selfishness** — that's the atomic bomb that we've got to fear today. Problem is **with the men**. Within the **heart and the souls of men**. That is the real basis of our problem." - [February 28, 1954](../Martin_Luther_King_Jr_quotes0.md)
+
+https://old.reddit.com/r/complaints/comments/1q6l556/we_are_the_baddies_thanks_conservatives/ny8mv01/
+
+Just like Reddit users are block-happy aggressive addicts to dehumanization people with machine systems. Just like Bluesky. Masked, no-identity moderators and users who report and have others banned and blocked out of egomania / egoism values (Trump leads Truth Social society of egomania). What changed since year 2013 is the Internet Research Agency invading Reddit. https://www.BBC.com/news/technology-43301643 And everyday people abandoning nonfiction learning about Kremlin media techniques and Putin values. 
+
+https://old.reddit.com/r/complaints/comments/1q6l556/we_are_the_baddies_thanks_conservatives/ny8eyxl/
+
+Russia is not the concern as the enemy (who owns MAGA, owns Trump, owns White House mentally) on Reddit. Always Americans in rural farm areas who are poorly educated. Never is Neil Postman's nonfiction books the cure to Fox News billionaires manipulating rural people with memes and HDTV content. And Putin's manipulation of rural less-educated people. On Reddit, the enemy is "The Little Guy" fucked over by Truth Social and Elon Musk Twitter. Reddit audience won't face up to the denial: https://www.BBC.com/news/technology-43301643 - Surkov won since March 2013. Reddit users can't see when it all turned sour, went to hell. Russia won. [Operation Matthew 4:19 won against Reddit / MAGA / Twitter / everyone audiences.](/Operation_Matthew_4_19_on_monday_2024-03-31.md)
