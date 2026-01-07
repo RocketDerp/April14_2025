@@ -46,3 +46,21 @@ Topic suggestions:
 
 https://Bsky.app/profile/roundsparrow.bsky.social/post/3mbtyq345fc2lv    
 https://Autistics.Life/@RoundSparrow/115855006671560585   
+
+&nbsp;
+
+&nbsp;
+
+# Wednesday January 7, 2025 
+
+&nbsp;
+
+<img width="877" height="767" alt="image" src="https://github.com/user-attachments/assets/fe05b34c-c54e-4926-b1c2-9e6ed33f8f95" />
+
+https://old.reddit.com/r/BlueskySkeets/comments/1q6lfjf/e_fucking_xactly/
+
+&nbsp;
+
+https://autistics.life/@RoundSparrow/115855751660694969      
+https://bsky.app/profile/roundsparrow.bsky.social/post/3mbudc2lfak2q    
+
