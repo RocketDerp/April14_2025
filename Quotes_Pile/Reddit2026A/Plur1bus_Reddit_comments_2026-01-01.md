@@ -2346,3 +2346,23 @@ Also note the Reddit username "getting the drift" "catch my drift" that murder k
 https://old.reddit.com/r/comedyheaven/comments/1q4utko/cannibalism/nxvjyux/
 
 Pluribus
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q32tc1/helen_the_invisible_villain/ny5wurq/?context=3
+
+Reddit profile says "East Coast" person, replying at 4am on weekday.
+
+What I don't grasp about a reply like this is the avoidance of Free Mason Founding Fathers ideals. And Christian is mentioned, but the word "Heaven" and "Eden" avoided. Reddit society takes away the most basic of associations. A man who tortures is a "breath of fresh air".. a man who would not have been allowed to get past I.C.E. to Carol's house is overlooked. 
+
+It his a Libertarian promotion? Reddit itself doesn't even allow freedom in the commenting section, people are disappeared and comments removed all the time in front of anyone who looks close.
+
+Context assertion on Reddit is essential. Minute 37 of the co-pilot Episode Two on Air Force One is the ONLY place in the show I have seen visually or heard the word "PLURIBUS", and it is on a doctored damaged POTUS Seal. This is not just any title, and for the title of the show to appear on-screen is held significant in almost any story. Further this show that ends on Christmas Eve Day also appears on the eve of USA year 250... the build-up to July 4, 2026. With six months for people to pause, rewind, take screen shots, video clips, and analyze the meaning of every scene and dialog.
+
+The concept that you can't force housing and can't force food supply on others I think ignores peer pressure. Carol's dramatic message in front of her house for companionship. By this libertarian logic, marriage age shouldn't have men wanting sex with age 11 boys and girls not lead to punishment or re-education? Epstein Ghislaine Maxwell shouldn't have to follow any kind of "hive mind" legal rules, given they feel recreational sex and pregnancy is based on attraction? 
+
+Hunt down tall the pilot pigeons and buffalo to a point of extinction? Cut down all the trees. Displace all the first peoples out of legal paperworks / red tape systems / greed for Carol's golf club sport? Every man a king, ordering around servants and home delivery. Carol is a storyteller like Vince Gilligan, living off the fantasy that is sold to an audience. What if my popularity with audiences isn't even good enough to earn daily bread? Don't want to tax Carol into equality with me as a less-popular author of commenting on peer to peer writing platforms, would we?
+
+Greed and damaging the environment and wildlife isn't considered a crime. Trees that took thousands of years to create a forest can be overrun with machines in a decade or less. History shows that time and time gain, people are motivated to cross oceans and journey like the Radio Shack man. But what has been the result, torturing out-groups who live in peace and are considered "weak" in not violently defending.
+
+I could go a lot of directions in this message. And maybe I will revisit it. Since Christian was mentioned in the reply message, I will toss this quote upon Reddit media system:
+
+* "There are certain things in our nation and in the world which I am proud to be maladjusted and which I hope all men of good-will will be maladjusted until the good societies realize — I say very honestly that I never intend to become adjusted to — segregation and discrimination. I never intend to become adjusted to religious bigotry. I never intend to adjust myself to economic conditions that will take necessities from the many to give luxuries to the few. I never intend to adjust myself to the madness of militarism, to self-defeating effects of physical violence." -  Western Michigan University (18 December 1963).
