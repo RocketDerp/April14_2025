@@ -49,4 +49,4 @@ Reddit comment:
 
 https://old.reddit.com/r/politics/comments/1q6cgwb/were_the_bad_guys_now/ny6hq6u/
 
-Science fiction vs. Science fiction won. Nonfiction science, ]Carl Sagan spelled out in his 1995 book](/Quotes_Pile/Carl_Sagan_Quotes.md), lost. Malala's [science education message lost to Epstein fanatics / QAnon fandom](/PostMalala/Marriage/World_Malala_Timeline_Year_2012.md) since year 2012.
+Science fiction vs. Science fiction won. Nonfiction science, [Carl Sagan spelled out in his 1995 book](/Quotes_Pile/Carl_Sagan_Quotes.md), lost. Malala's [science education message lost to Epstein fanatics / QAnon fandom](/PostMalala/Marriage/World_Malala_Timeline_Year_2012.md) since year 2012.
