@@ -325,7 +325,7 @@ Brand new Reddit account /r/Politics, promoting Russia over Ukraine.
 
 https://old.reddit.com/r/ProgressiveHQ/comments/1q403qe/it_was_never_about_the_president_being_a_cruel/nxpcqk8/
 
-Look at the message on the user profile. It is pro-banality pro-mockery. See this https://old.reddit.com/r/HyperBanalisation/ subreddit I created to tray and describe this behavior on Reddit.
+Look at the message on the user profile. It is pro-banality pro-mockery. See this https://old.reddit.com/r/HyperBanalisation/ subreddit I created to try and describe this behavior on Reddit.
 
 https://old.reddit.com/r/ProgressiveHQ/comments/1q403qe/it_was_never_about_the_president_being_a_cruel/nxoy3mz/
 
@@ -727,3 +727,19 @@ Downplaying the war against reality, that it's trivial, trivializing the situait
 https://old.reddit.com/r/politics/comments/1q5s6ar/trump_successfully_murders_us_public_media/ny2s56a/
 
 Yes. The entire population that won't confront media addiction. Neil Postman's 1985 book rotting on the shelf. Last year, year 2025, was the 40th year since a book was published on this crisis of the ENTIRE NATION of image addicts. Time Magazine, a long established news source in USA before Reddit was ever created. Before Twitter was able to be purchased by Elon Musk! Before fiction addictions took over nonfiction learning. September 10, 2025 https://Time.com/7313999/neil-postman-trump-prediction/
+
+https://old.reddit.com/r/politics/comments/1q5s6ar/trump_successfully_murders_us_public_media/ny433nx/
+
+6 month old Reddit account promoting left vs. right brainrot logic.
+
+https://old.reddit.com/r/politics/comments/1q5q8ps/mad_kings_dont_stop_themselves_they_must_be/ny2wypx/
+
+It is incredibly painful to confront the machine-lust egoism / egomania that people chase Trump after. Trump provides hate signals, the entire society prizes hate. People are thrilled to hate upon Donald Trump, it's entertainment to many people to prize hate. I find it all sick / very sickening that people promote hate. [The February 28, 1954 equation, right after World War Two, from Dr. Martin Luther King Jr rots on the shelf while people flock to hate leadership of Trump.](../Martin_Luther_King_Jr_quotes0.md)
+
+https://old.reddit.com/r/politics/comments/1q5q8ps/mad_kings_dont_stop_themselves_they_must_be/ny3z49s/
+
+Tiny-short Twitter-think Tweet-length commenting on Reddit. Anything and everything to program audiences to avoid nonfiction teaching about Russia information warfare. Surkov won since March 2013.
+
+https://old.reddit.com/r/politics/comments/1q5q8ps/mad_kings_dont_stop_themselves_they_must_be/ny3a141/
+
+Banality message.  It is pro-banality pro-mockery. See this https://old.reddit.com/r/HyperBanalisation/ subreddit I created to try and describe this behavior on Reddit.
