@@ -651,3 +651,12 @@ Reddit messages instructing the audience that information overload and not compr
 https://old.reddit.com/r/politics/comments/1q5qj69/doj_admits_that_maduro_drug_cartel_trump_cited_to/ny2jhco/
 
 Reality TV. Fiction outsells nonfiction.
+
+https://old.reddit.com/r/news/comments/1q5uk7c/hilton_hotels_removing_minneapolis_franchise/ny2rm8h/
+
+No quotes from a book, no author names, no links, no book titles. Just street-gang lingo of political gang vs political gang while everyone avoids Russian information warfare topic. Nonfiction-books rot on the shelf. Serious discourse not linked in favor of satire-washing humor-wrapping sarcasm-washing on Reddit comment section.
+
+https://old.reddit.com/r/news/comments/1q5uk7c/hilton_hotels_removing_minneapolis_franchise/ny2v4gw/
+
+38% approval for leading, but 100% approval for Reddit content entertainment. People mock, hate, do everything but confront media addiction to Fox News HDTV with Jen Senko's nonfiction... and media addiction of Reddit commenting about Trump / MAGA with Neil Postman's nonfiction. Addicts to Trump-junk don't want to admit and go first on the massive USA society-wide addiction to a Reality TV "The Apprentice" superstar / celebrity. 
+
