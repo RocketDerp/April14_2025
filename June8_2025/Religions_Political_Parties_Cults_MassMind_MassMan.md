@@ -1,3 +1,5 @@
+# Cults MasMan MassMind
+
 Marshall McLuhan spent a lifetime trying to get people to study James Joyce's works, 1924 on to 1938 Finnegans Wake.
 
 Why: Because of mass mind concepts, mob mentality, group thinking.
@@ -9,16 +11,16 @@ Why: Because of mass mind concepts, mob mentality, group thinking.
 5. Sports Teams
 6. Mass Mind (Howard Bloom August 2000 terminology)
 7. Mass Man (Marshall McLuhan terminology)
-8. Collective Unconsious
+8. Collective Unconscious
 9. Street gangs, clothing / colors, like religions
 
 &nbsp;
 
 # Military Boot Camp
 
-Military boot camp, the world over, in wartime. Be it Japan 1943 or USA 1944 - very different cultures and religions, yet militay boot camp of turning everyday rice farmers (Japan) and everyday corn farmers (USA) into murders and killers of human beings wearing diffeerent uniforms and waving different national flags.
+Military boot camp, the world over, in wartime. Be it Japan 1943 or USA 1944 - very different cultures and religions, yet military boot camp of turning everyday rice farmers (Japan) and everyday corn farmers (USA) into murders and killers of human beings wearing different uniforms and waving different national flags.
 
-We do not study the psycology of this sports mentality.
+We do not study the psychology of [this sports mentality](/June19_2025/Sports_Games_Fiction.md).
 
 &nbsp;
 
