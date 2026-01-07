@@ -52,3 +52,6 @@ Reddit meme addicts do not realize Trump is an actor. Trump has been an actor de
 
 Reddit audience comment contribution has now become the very source of Trump / MAGA / Fox News normal making, normalization... prizing shit as thrilling content. Billionaires hoover it up into LLM training to continue the billionaire trickle-down feedback loops for shit-loving toxic ocean meme addicts.
 
+https://old.reddit.com/r/complaints/comments/1q6ff9j/trump_is_hitler_and_america_is_turning_into_1930s/ny7l30r/
+
+Yes. And do not underestimate the influence of hanging out on Reddit where [stupid messages and images are prized as fun. Garbage into mind, garbage out.](../Reddit2025A/Misc0/2025-08-04_media_makes_the_society.md) Rupert Murdoch since October 7, 1996 has not hired stupid employees and outside firms to create his content. Billionaires are not stupid, Elon Musk is not stupid. The Twitter audience prizes stupid messages and memes. Never underestimate meme burnout, billionaire trick down content causing audience burnout / brainrot.
