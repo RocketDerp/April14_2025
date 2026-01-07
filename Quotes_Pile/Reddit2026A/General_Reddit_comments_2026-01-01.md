@@ -824,3 +824,20 @@ https://old.reddit.com/r/Broadway/comments/1q5xwt5/mamma_mia_upset_uncle_story_c
 
 All media venues are MAGA values. When the leaders of society find antics makes huge wealth and power, people follow. 
 
+https://old.reddit.com/r/politics/comments/1q63pqq/gop_shows_little_interest_in_limiting_trumps_war/ny4qt3c/
+
+Short-message commenting. No book quotes, no call for organized use of social media to resist Russia.
+
+https://old.reddit.com/r/politics/comments/1q63pqq/gop_shows_little_interest_in_limiting_trumps_war/ny4r16c/
+
+Social media meme addicts keep on doing amusement as usual. There has no been social media anti-entertainment blackout. The Reddit API change got more sustained We The People standing-up reaction than Trump wrecking the USA does.
+
+https://old.reddit.com/r/politics/comments/1q63pqq/gop_shows_little_interest_in_limiting_trumps_war/ny4rjs4/
+
+https://old.reddit.com/r/politics/comments/1q63pqq/gop_shows_little_interest_in_limiting_trumps_war/ny4rh35/
+
+It is always a joke for meme audiences. Has been endlessly Since June 16, 2015.
+
+https://old.reddit.com/r/politics/comments/1q63pqq/gop_shows_little_interest_in_limiting_trumps_war/ny4sgut/
+
+Terrorized from saying "shit" on Reddit. Self-censoring.
