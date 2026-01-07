@@ -39,3 +39,17 @@ https://youtu.be/FLGdg7N6Ve4?t=9862
 "How out of touch with reality in general"    
 The Ferry Sewol Part 2: Never-Ending Heartbreak     
 https://youtu.be/LMZIwHxVTtc?t=1145
+
+&nbsp;
+
+# We Lost Reality
+
+Overrun by technology of high-speed fiction meme delivery systems.
+
+https://Autistics.life/@RoundSparrow/115856035587363961     
+https://bsky.app/profile/roundsparrow.bsky.social/post/3mbuhdustss2q   
+
+## March 6, 2018 - Reddit
+
+"I believe the biggest risk we face as Americans is our own ability to discern reality from nonsense, and this is a burden we all bear." -  6 March 2018     
+https://www.bbc.com/news/technology-43301643      
