@@ -163,3 +163,15 @@ https://autistics.life/@RoundSparrow/115840217895333761
 https://bsky.app/profile/roundsparrow.bsky.social/post/3mbngkl7iak2w    
 https://midwest.social/post/41341030    
 https://www.youtube.com/post/UgkxPLlQw7DAuAi_xUMrNXk3kGpHwPozxNvr    
+
+&nbsp;
+
+## Dr. Bandy X Lee *herself*
+
+https://bsky.app/profile/bandylee.bsky.social/post/3mbi3bcquuc2y    
+https://BandyXLee.SubStack.com/p/donald-trump-could-have-been-exposed    
+DONALD TRUMP COULD HAVE BEEN EXPOSED AND STOPPED    
+January 2, 2026    
+3,044 followers on Bluesky    
+
+People simply do not care for science and mental health professionals who stand up to Donald Trump / MAGA. Reddit community / Bluesky community ignore these posts again and again for years and years. Nonfiction books rotting away.
