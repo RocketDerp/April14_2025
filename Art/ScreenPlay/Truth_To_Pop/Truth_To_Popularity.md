@@ -22,3 +22,12 @@ February 28, 1954: "a sort of numerical interpretation" of Likes / Subscribes / 
 
 https://bsky.app/profile/roundsparrow.bsky.social/post/3m7i3heibbs2d     
 https://autistics.life/@RoundSparrow/115684062747079042     
+
+&nbsp;
+
+# Serious New Yorker
+
+Harold Ross    
+Year 1925 New Yorker Statement of Purpose        
+
+https://youtu.be/Pp8mh8iZTe4?t=4189
