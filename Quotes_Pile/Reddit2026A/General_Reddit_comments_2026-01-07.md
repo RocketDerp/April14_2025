@@ -172,3 +172,8 @@ https://old.reddit.com/r/complaints/comments/1q6rb4p/we_knew_this_was_going_to_h
 
 Promoting and teaching ignorance harms the USA. People do everything they can on Reddit to avoid confronting the Fox News HDTV addiction and touch-device addictions that fuel MAGA / Putin / Trump / Musk Twitter / White House / Kremlin fiction content addicts / audiences. Smartphone addicts lead this nation and everyone follows Truth Social values. Garbage hive minds (mindsets) that consumes garbage junk information.
 
+https://old.reddit.com/r/politics/comments/1q6k1tu/trump_suggests_insane_new_motive_for_invading/ny85db7/
+
+https://old.reddit.com/r/politics/comments/1q6k1tu/trump_suggests_insane_new_motive_for_invading/ny8fu31/
+
+Palestine October 7, 2023 is Putin's birthday. I was planned years in advance. Reddit people are so gullible that they (reddit no-identity commenting) are invaded by Kremlin.  Anything to avoid defending against Putin with nonfiction learning about "Internet Research Agency" that infiltrated Reddit. https://www.BBC.com/news/technology-43301643
