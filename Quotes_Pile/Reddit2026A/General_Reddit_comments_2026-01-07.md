@@ -123,3 +123,11 @@ Reddit audiences are calling out for more and more amusement content / music sho
 https://old.reddit.com/r/worldnews/comments/1q6kjut/canada_to_open_consulate_in_greenland/ny8hh9v/
 
 9 month old Reddit account. Anything to avoid trying to address the media addiction to antics in USA, the Reddit addiction to Donald Trump content / and images of Trump. Instead of looking inward to USA Fox News HDTV and why Jen Senko is not constantly and regularly cited on Reddit social media entertainment platform... Jen Senko's year 2015 and 2016 film addresses the worship of Putin and praise of Epstein leaders. https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad - but Jen Senko's nonfiction film doesn't have private jet sex lives stimulation that Trump Mar-A-Largo club provides as content for Reddit meme consumers.
+
+https://old.reddit.com/r/nottheonion/comments/1q6mp42/miller_says_free_world_depends_on_us_ability_to/ny8pf65/
+
+<img width="724" height="280" alt="image" src="https://github.com/user-attachments/assets/96f2d037-752f-4092-8cff-c9cae5d43f9c" /> Reddit addictions have turned 19**85** into a road-map / daily realization. Tech addicts of Reddit drive society into Twitter-length commenting like this linked comment. Neil Postman's 1985 book. The Information roads, Superhighway of Internet, prizing anti-learning. Nonfiction book from year 1985 about Orwell's fiction story.
+
+Last year, year 2025, was the 40th year since a book was published on this crisis of the ENTIRE NATION of image addicts. Time Magazine, a long established news source in USA before Reddit was ever created. Before Twitter was able to be purchased by Elon Musk! Before fiction addictions took over nonfiction learning. September 10, 2025 https://Time.com/7313999/neil-postman-trump-prediction/
+
+Social post { https://Autistics.Life/@RoundSparrow/115855713629069055 https://bsky.app/profile/roundsparrow.bsky.social/post/3mbucra5ht22e }
