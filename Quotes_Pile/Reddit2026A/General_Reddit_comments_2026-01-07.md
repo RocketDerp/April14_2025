@@ -91,3 +91,13 @@ Just like Reddit users are block-happy aggressive addicts to dehumanization peop
 https://old.reddit.com/r/complaints/comments/1q6l556/we_are_the_baddies_thanks_conservatives/ny8eyxl/
 
 Russia is not the concern as the enemy (who owns MAGA, owns Trump, owns White House mentally) on Reddit. Always Americans in rural farm areas who are poorly educated. Never is Neil Postman's nonfiction books the cure to Fox News billionaires manipulating rural people with memes and HDTV content. And Putin's manipulation of rural less-educated people. On Reddit hive mind programming platform, the enemy is "The Little Guy" fucked over by Truth Social and Elon Musk Twitter. Reddit hive minded audience won't face up to the denial: https://www.BBC.com/news/technology-43301643 - Surkov won since March 2013. Reddit users can't see when it all turned sour, went to hell. Russia won. [Operation Matthew 4:19 won against Reddit / MAGA / Twitter / everyone audiences.](/Operation_Matthew_4_19_on_monday_2024-03-31.md)
+
+https://old.reddit.com/r/mildlyinfuriating/comments/1q6hcv2/processing_the_loss_of_a_baby_is_extra_difficult/ny7kn4h/
+
+https://old.reddit.com/r/mildlyinfuriating/comments/1q6hcv2/processing_the_loss_of_a_baby_is_extra_difficult/ny7itii/
+
+https://old.reddit.com/r/mildlyinfuriating/comments/1q6hcv2/processing_the_loss_of_a_baby_is_extra_difficult/ny7w62o/
+
+https://old.reddit.com/r/mildlyinfuriating/comments/1q6hcv2/processing_the_loss_of_a_baby_is_extra_difficult/ny8yuec/
+
+https://old.reddit.com/r/mildlyinfuriating/comments/1q6hcv2/processing_the_loss_of_a_baby_is_extra_difficult/ny7uhgt/
