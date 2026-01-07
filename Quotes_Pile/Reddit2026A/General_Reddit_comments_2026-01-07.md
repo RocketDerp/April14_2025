@@ -111,3 +111,15 @@ https://old.reddit.com/r/worldnews/comments/1q6kjut/canada_to_open_consulate_in_
 Notice the absence of quotes from books, author names, book titles, link to off-Reddit. Top upvoted comment feeds the cult of Reddit. The technology love of big tech Reddit, to message to MAGA USA people that they are wrong, without in any way educating and teaching nonfiction facts and timelines of the Russia War Against Reality. Feedback loops of mocking, Americans mocking Americans, all avoiding nonfiction teaching with spare time and free time. Tech addiction Reddit central. Reference: September 9, 2014 - Johns Hopkins University information expert is author of this article: By Peter Pomerantsev
 
 * "At the NATO summit in Wales last week, General Philip Breedlove, the military alliance’s top commander, made a bold declaration. Russia, he said, is waging “the most amazing information warfare blitzkrieg we have ever seen in the history of information warfare.” It was something of an underestimation. The new Russia doesn’t just deal in the petty disinformation, forgeries, lies, leaks, and cyber-sabotage usually associated with information warfare. It reinvents reality, creating mass hallucinations" - https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/worldnews/comments/1q6kjut/canada_to_open_consulate_in_greenland/ny8mnh1/
+
+Perpetual Donald Trump entertainer followers. Trump has been a TV star for decades. 
+
+* "This Old House" (year 1983): Trump appeared briefly in an episode of this PBS series to discuss the construction of Trump Tower in New York City. https://en.Wikipedia.org/wiki/Media_career_of_Donald_Trump
+
+Reddit audiences are calling out for more and more amusement content / music shows. Tech addiction / media addiction is the deepest drive that Surkov students have targeted in human minds since March 2013. Removing Trump isn't the deepest desire, because the anti-NATO pro-takeover provides so much new entertainment to often-bored and meme drowned hive mind audience of Reddit.
+
+https://old.reddit.com/r/worldnews/comments/1q6kjut/canada_to_open_consulate_in_greenland/ny8hh9v/
+
+9 month old Reddit account. Anything to avoid trying to address the media addiction to antics in USA, the Reddit addiction to Donald Trump content / and images of Trump. Instead of looking inward to USA Fox News HDTV and why Jen Senko is not constantly and regularly cited on Reddit social media entertainment platform... Jen Senko's year 2015 and 2016 film addresses the worship of Putin and praise of Epstein leaders. https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad - but Jen Senko's nonfiction film doesn't have private jet sex lives stimulation that Trump Mar-A-Largo club provides as content for Reddit meme consumers.
