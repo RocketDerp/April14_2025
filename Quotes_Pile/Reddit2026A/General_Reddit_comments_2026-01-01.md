@@ -846,3 +846,17 @@ https://old.reddit.com/r/politics/comments/1q640ie/the_list_of_countries_trump_i
 
 Entire nation views it as entertainment, fiction. Reddit community isn't willing to face up to meme addictions all around. Dr. Bandy X Lee can describe Trump madness, but people will not repeat her name like "Epstein" name repeating. Diagnose all of MAGA with Dr. Bandy X Lee, she has books... Quote them, get her name all over Reddit. She has only 3,000 followers on Bluesky... and she is lucky to get 4 people share her posts.
 
+https://old.reddit.com/r/CuratedTumblr/comments/1q65k28/so_true/ny5cy74/
+
+The disrespect for nonfiction learning, understanding, comprehension is on every media system. Advertising and marketing and public relations does not want an audience to stand up to billionaire manipulation of the mind. As Neil Postman said about Sesame Street, everyday people can't possibly compete with the product of the most talented and funded art work.
+
+People who share "meme" video clips from lavish films, the best actors, animation, etc. Who find any serous idea to be mocked and insulted. Programmed by the billionaires to insult and mock progress in the name of funneling wealth and power into those who already own land and want everyone else to be captured servants to fund a lifestyle way above the 99%. A real estate lord king prizing values.
+
+How many people can have as much land and property as Donald Trump? how many people can cook all the food and clean all the rooms working for one man, Trump? Airport staff, maintenance on all his property and transports. Accounting and paperwork to follow rules. How many people can have their image and content shared as much as Trump? How many household famous people can we put into our brain in a day?
+
+Trump doesn't scale. It's a meme fantasy life for meme consumers. Trump labors hard to stimulate and entertain audiences of Reddit and other media platforms.
+
+* "Now simulation in this society didn’t just come from nowhere. This society of simulations and of spectacles. Baudrillard actually builds his work on a foundation again that comes out of the Marxist tradition. Guy Debord wrote a book in the sixties called “The Society of the Spectacle“. And what it was about, was about how when capitalism reached **a certain level of accumulation, commodities began to detach themselves and become images**. And citizens who formerly had played roles as political actors began to detach themselves from their own lives and become spectators." - Rick Roderick, 1993, Duke University https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
+
+Reddit /r/All images of Trump ballroom, Trump golf courses, a lifestyle of iPhone and iPad consumption of Trump life. That's what I see on Reddit /r/All and the mindsets on every subreddit. I don't see people quoting Rick Roderick. I see Elon Musk images, Rupert Murdoch audiences. People who share images of kittens. And wealthy race car teams and sports / gamers / images.
+
