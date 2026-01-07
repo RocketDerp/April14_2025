@@ -58,4 +58,6 @@ Yes. And do not underestimate the influence of hanging out on Reddit where [stup
 
 https://old.reddit.com/r/minnesota/comments/1q6k2hh/ice_just_shot_a_woman_in_minneapolis_in_the_face/ny89oy2/
 
-Reddit audience is so stimulated and trilled to have constant "BREAKING NEWS" on top of Reddit /r/All about thrills and violence. The addiction to Trump content. Hate prizing, dehumanization, all to feed low-effort commenting addiction and intimate-touch screen devices / iPhone / iPad / Android ARG mindsets of Reddit consumers. Mob mindsets, mentality. 
+Reddit audience is so stimulated and trilled to have constant "BREAKING NEWS" on top of Reddit /r/All about thrills and violence. The addiction to Trump content. Hate prizing, dehumanization, all to feed low-effort commenting addiction and intimate-touch screen devices / iPhone / iPad / Android ARG mindsets of Reddit consumers. Mob mindsets, mentality. Look at the Reddit username, "Timely Influencer" / Influence. Sexual attraction to Epstein and I.C.E. stimulation images / stories.
+
+ANYTHING to avoid **nonfiction learning** about Russian information warfare methods / [cult creation by Kremlin to media content. Media cults](/June8_2025/Religions_Political_Parties_Cults_MassMind_MassMan.md). Reddit cults, Elon Musk Twitter cults, Fox News HDTV cults, etc.
