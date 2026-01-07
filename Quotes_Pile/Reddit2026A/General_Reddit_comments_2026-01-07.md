@@ -167,3 +167,8 @@ Dehumanizing persons, twitter-think short messaging. Wrapping it in an entertain
 https://old.reddit.com/r/IThinkYouShouldLeave/comments/1q6o7wr/if_you_keep_talking_about_shooting_an_innocent/ny9q48m/
 
 Audience has to get more murder content. Instead of confronting MAGA's addiction to Fox News with Jen Senko's nonfiction book and film from year 2015 / 2016, wanting more Reddit killing images for stimulation. Anything to avoid defending against Putin with nonfiction learning about "Internet Research Agency" that infiltrated Reddit. https://www.BBC.com/news/technology-43301643
+
+https://old.reddit.com/r/complaints/comments/1q6rb4p/we_knew_this_was_going_to_happen_fuck_ice_fuck/ny9w3qy/
+
+Promoting and teaching ignorance harms the USA. People do everything they can on Reddit to avoid confronting the Fox News HDTV addiction and touch-device addictions that fuel MAGA / Putin / Trump / Musk Twitter / White House / Kremlin fiction content addicts / audiences. Smartphone addicts lead this nation and everyone follows Truth Social values. Garbage hive minds (mindsets) that consumes garbage junk information.
+
