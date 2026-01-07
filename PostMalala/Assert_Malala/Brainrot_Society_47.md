@@ -42,3 +42,7 @@ Topic suggestions:
 
 5. Any lesson about Newsmax, Fox News, Facebook, Elon Musk Twitter
 
+&nbsp;
+
+https://Bsky.app/profile/roundsparrow.bsky.social/post/3mbtyq345fc2lv    
+https://Autistics.Life/@RoundSparrow/115855006671560585   
