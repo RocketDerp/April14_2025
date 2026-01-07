@@ -163,3 +163,7 @@ Media addiction isn't just men, the women are in the same hive mind of MAGA USA,
 https://old.reddit.com/r/IThinkYouShouldLeave/comments/1q6o7wr/if_you_keep_talking_about_shooting_an_innocent/ny9e83k/
 
 Dehumanizing persons, twitter-think short messaging. Wrapping it in an entertainment television show dialog. Following Trump fiction of wrapping mass dehumanization as entertainment for the masses.
+
+https://old.reddit.com/r/IThinkYouShouldLeave/comments/1q6o7wr/if_you_keep_talking_about_shooting_an_innocent/ny9q48m/
+
+Audience has to get more murder content. Instead of confronting MAGA's addiction to Fox News with Jen Senko's nonfiction book and film from year 2015 / 2016, wanting more Reddit killing images for stimulation. Anything to avoid defending against Putin with nonfiction learning about "Internet Research Agency" that infiltrated Reddit. https://www.BBC.com/news/technology-43301643
