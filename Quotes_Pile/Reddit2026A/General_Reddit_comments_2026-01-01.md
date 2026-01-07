@@ -1013,3 +1013,9 @@ Social media is full of people, especially Reddit, who think jokes and humor are
 https://old.reddit.com/r/politics/comments/1q6i681/america_first_maga_wants_to_be_a_colonial_power/ny7pu90/
 
 Not reality. Not believable. Exactly what Surkov Students know wins all debate. Fiction outsells nonfiction. Non-reality wins. September 9, 2014 (18 months after it started): https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/politics/comments/1q6dj2u/sorry_gop_theres_no_christian_revival/ny6tpqk/
+
+Donald Trump learns from mistakes. That being a bad-guy aspiration for people sells. What Vince Gilligan realized after making Breaking Bad and Better Call Saul. That USA audiences prize white men who manipulate, lie, self-harm their city (ABQ). Or their nation, self-harming humanity. Trump provides the leadership that Reddit audiences crave, thrilling wild crazy fiction storytelling.
+
+* https://youtu.be/TkteSxVIM1A?t=713 82,805 views October 23, 2008 "cool. When that happens fictional bad guys stop being the cautionary tales that they were intended to to be. God help us, they become aspirational! So maybe what the world needs now are some good old fashion Greatest Generation types who give more than they take. Who think that kindness tolerance and sacrifice aren't strictly for Chumps!"
