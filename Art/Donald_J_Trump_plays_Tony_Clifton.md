@@ -14,7 +14,7 @@ https://autistics.life/@RoundSparrow/115118006699148095
 
 &nbsp;
 
-https://people.com/andy-kaufman-s-best-friend-shares-thoughts-on-whether-comedian-faked-death-11704040
+https://People.com/andy-kaufman-s-best-friend-shares-thoughts-on-whether-comedian-faked-death-11704040
 
 Asked about longstanding rumors that the comedian didn't actually die in 1984, his best friend, writer Bob Zmuda, says, "So this is where I have to watch what I say, guard myself here."
 
