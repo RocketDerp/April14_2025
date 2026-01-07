@@ -48,6 +48,8 @@ Overrun by technology of high-speed fiction meme delivery systems.
 
 https://Autistics.life/@RoundSparrow/115856035587363961     
 https://bsky.app/profile/roundsparrow.bsky.social/post/3mbuhdustss2q   
+https://midwest.social/post/41490892    
+
 
 ## March 6, 2018 - Reddit
 
