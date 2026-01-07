@@ -756,3 +756,33 @@ https://old.reddit.com/r/pics/comments/1q5yzu6/ussrlevel_statesponsored_propagan
 
 QAnon ... nobody ever links the subreddit I created on this topic. https://old.reddit.com/r/QAnonRussia/
 
+https://old.reddit.com/r/goodnews/comments/1q608kt/breaking_friedrich_merz_just_announced_germany/ny41wf2/
+
+https://old.reddit.com/r/goodnews/comments/1q608kt/breaking_friedrich_merz_just_announced_germany/ny3zvwi/
+
+https://old.reddit.com/r/goodnews/comments/1q608kt/breaking_friedrich_merz_just_announced_germany/ny490g4/
+
+Yep. Celebrity power of Cosby and Trump.
+
+https://old.reddit.com/r/goodnews/comments/1q608kt/breaking_friedrich_merz_just_announced_germany/ny4bh83/
+
+https://old.reddit.com/r/goodnews/comments/1q608kt/breaking_friedrich_merz_just_announced_germany/ny43q4h/
+
+https://old.reddit.com/r/goodnews/comments/1q608kt/breaking_friedrich_merz_just_announced_germany/ny42vrm/
+
+Entire population lost mind to fiction addiction. Surkov won since March 2013.
+
+https://old.reddit.com/r/goodnews/comments/1q608kt/breaking_friedrich_merz_just_announced_germany/ny4382x/
+
+1933 Germany didn't have nuclear weapons and Internet. Things are far far far worse, technology and economics are very different.
+
+https://old.reddit.com/r/goodnews/comments/1q608kt/breaking_friedrich_merz_just_announced_germany/ny44rdr/
+
+https://old.reddit.com/r/goodnews/comments/1q608kt/breaking_friedrich_merz_just_announced_germany/ny46z7w/
+
+Musk supports AfD
+
+https://old.reddit.com/r/goodnews/comments/1q608kt/breaking_friedrich_merz_just_announced_germany/ny4761p/
+
+Audiences like fiction. Nonfiction is not popular.
+
