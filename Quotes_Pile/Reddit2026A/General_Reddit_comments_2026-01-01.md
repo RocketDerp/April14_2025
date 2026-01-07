@@ -786,3 +786,10 @@ https://old.reddit.com/r/goodnews/comments/1q608kt/breaking_friedrich_merz_just_
 
 Audiences like fiction. Nonfiction is not popular.
 
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1q5x4jv/conservative_reddit_posters_coming_dangerously/ny3bb0t/
+
+Mocking on high-speed messaging networks back and forth with 1-bit logic brainrot of conservative vs. liberal. All avoiding nonfiction learning of Kremlin information warfare. Surkov won since March 2013 via Reddit.
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1q5x4jv/conservative_reddit_posters_coming_dangerously/ny3c3rh/
+
+Social media laugh-track, like television laugh track, "LOL" message opening.
