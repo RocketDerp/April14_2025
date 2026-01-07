@@ -802,3 +802,25 @@ https://old.reddit.com/r/inflation/comments/1q5wyel/all_of_magat_world_right_now
 
 Billionaires Murdoch, Trump, Musk Twitter fucked-over Rural people... and Reddit audience is calling to fuck-over Americans with even more mockery and Luigi United Health Care paperwork. Everyone is following the hate-signal leaders. Hate humanism, mock Bible verse "1 John 3:17" with jokes and telephone call manipulation of people bewildered by Murdoch HDTV Fox News network.
 
+https://old.reddit.com/r/news/comments/1q5xrkq/dhs_deploys_2000_federal_agents_to_minneapolis/ny3fw9p/
+
+Top voted comment on front page of Reddit. The simulation continues. The ARG for touch device addicts who write 4-word responses to Russia's defeat of the USA in information warfare. Just normalizing it with avoidance of asserting important study, learning, education on defense against mindwashing / Putin techniques of brainwashing audiences into meme-stupor behaviors. Surkov won since March 2013.
+
+https://old.reddit.com/r/news/comments/1q5xrkq/dhs_deploys_2000_federal_agents_to_minneapolis/ny3mem2/
+
+No author name, no book quotes, no links off-Reddit, no dates, nothing to back up serious and important claims. A tone of sports fandoms. Following Trump-lead with bold claims but wanting to set a tone of not fact-checking or finding important details and patterns.
+
+https://old.reddit.com/r/news/comments/1q5xrkq/dhs_deploys_2000_federal_agents_to_minneapolis/ny4cefi/
+
+Reddit audience always laughing and thrilled at MAGA antics defeating all goodness in USA. 
+
+* “For in the end, he was trying to tell us what afflicted the people in 'Brave New World' was not that they were laughing instead of thinking, but that they did not know what they were laughing about and why they had stopped thinking.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. Year 1985
+
+https://old.reddit.com/r/news/comments/1q5xrkq/dhs_deploys_2000_federal_agents_to_minneapolis/ny3itqi/
+
+Off-Reddit citation. Escape the LOL laugh-track other messages set about everything around MAGA / Putin / Trump / Musk.
+
+https://old.reddit.com/r/Broadway/comments/1q5xwt5/mamma_mia_upset_uncle_story_continues/ny3ytm0/
+
+All media venues are MAGA values. When the leaders of society find antics makes huge wealth and power, people follow. 
+
