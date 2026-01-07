@@ -529,7 +529,7 @@ Social posting { https://bsky.app/profile/roundsparrow.bsky.social/post/3mbqs6to
 
 https://old.reddit.com/r/politics/comments/1q5i7y2/preschool_teacher_22_arrested_on_tv_after/ny07ouo/
 
-<img width="1003" height="433" alt="image" src="https://github.com/user-attachments/assets/dcbc961f-0270-4b4b-95e1-c95c3812e2be" /> Reddit audiences love this. An out-group to hate upon. Donald Trump hates. Trump provides hate leadership and Reddit end-users hate! Nobody quoting Dr. Martin Luther King Jr's February 28, 1954 writings or anything like that. It's high speed messaging and video addiction. Trump is a creator of Reality TV video and with Putin's media invasion since March 2013, invasion of hate, people have eaten the hate-prizing that Putin and Trump have conditioned in the audience. Facts, details, of the Internet Research Agency and any discussion of organizing morality lessons for all USA population are ignored.
+<img width="1003" height="433" alt="image" src="https://github.com/user-attachments/assets/dcbc961f-0270-4b4b-95e1-c95c3812e2be" /> Reddit audiences love this. An out-group to hate upon. Donald Trump hates. Trump provides hate leadership and Reddit end-users hate! Nobody [quoting Dr. Martin Luther King Jr's February 28, 1954 writings](../Martin_Luther_King_Jr_quotes0.md) or anything like that. It's high speed messaging and video addiction. Trump is a creator of Reality TV video and with Putin's media invasion since March 2013, invasion of hate, people have eaten the hate-prizing that Putin and Trump have conditioned in the audience. Facts, details, of the Internet Research Agency and any discussion of organizing morality lessons for all USA population are ignored.
 
 <img width="2669" height="1425" alt="image" src="https://github.com/user-attachments/assets/623f1ec8-5bfc-4c73-a00e-f3d7c4ae2372" /> See: subreddit https://old.reddit.com/r/RemedialMorality - Wednesday, **April 9, 2025. Last year** before this January opening weekend of 2026 war started. I personally used Reddit's free website hosting to create **Remedial Moral Teachings** for USA population. But it is not popular. Popularity is hate. Popularity is mocking morality and LOL-washing Trump. Popularity is toxic. Just like Russia has been under Putin. Toxic hate for humans. Addicts to hate. Surkov won since March 2013.
 
@@ -860,3 +860,44 @@ Trump doesn't scale. It's a meme fantasy life for meme consumers. Trump labors h
 
 Reddit /r/All images of Trump ballroom, Trump golf courses, a lifestyle of iPhone and iPad consumption of Trump life. That's what I see on Reddit /r/All and the mindsets on every subreddit. I don't see people quoting Rick Roderick. I see Elon Musk images, Rupert Murdoch audiences. People who share images of kittens. And wealthy race car teams and sports / gamers / images.
 
+https://old.reddit.com/r/technology/comments/1q661vq/president_white_house_launches_new_website_to/ny59znm/
+
+The top of the page of Reddit. The  most popular comment. Extreme tiny-short messages, following Elon Musk Twitter lead, following the leader. The disaster is in the mind, the belief in Russian unreality. I posted this https://old.reddit.com/r/QAnonRussia/comments/ot5wk0/qanon_posts_promoted_by_russialinked_accounts/ posting on Reddit, the disaster is the drowning of important information in favor of junk noise and "engagement" commenting of tiny-short messages. Minds that will not organize. [I have called for Briainrot Society 47 meetings](/PostMalala/Assert_Malala/Brainrot_Society_47.md).
+
+People choosing the news give them every opportunity to skip past the difficult problems of cults and fiction addiction. [I have called for Briainrot Society 47 meetings](/PostMalala/Assert_Malala/Brainrot_Society_47.md) because I witness the avoidance of organized priorities. How come others, with popularity and followings, aren't doing the same? Why isn't there a top-13 issues of MAGA and Trump problems list we all reference daily?
+
+https://old.reddit.com/r/technology/comments/1q661vq/president_white_house_launches_new_website_to/ny5aqpb/
+
+Reddit users are proud of "outplurbed", mocking, insulting, proud of "leopards eating faces" Anything to avoid nonfiction learning of Internet Research Agency and Russian information warfare.
+
+https://old.reddit.com/r/technology/comments/1q661vq/president_white_house_launches_new_website_to/ny5a18t/
+
+Fox News billionaire Rupert Murdoch. Reddit low-effort, prizing ignorant burning, hate-commenting. Elon Musk purchasing Twitter media empire was not an accident, but Reddit society LOL LOL LOL amusement washed it. Reddit has people with the spare time and free time, but refuses t make media ecology one of the most important education campaigns in USA society. { Neil Postman, Marshall McLuhan, and Bible Literacy reformation that the Bible is science fiction like Star Wars - via Bill Moyers }. Reddit can't face what it has witnessed with year 2025 D.O.G.E. in the oval office. https://old.reddit.com/r/TrueUnpopularOpinion/comments/1nyw3du/the_purchase_of_twitter_paid_off_massively_for/ - Twitter purchase was not "dumb", our entire society is high-speed Tweet and junk Reddit commenting. What Neil Postman had to say about computers and "news" networks like Reddit.
+
+https://old.reddit.com/r/technology/comments/1q661vq/president_white_house_launches_new_website_to/ny593x5/
+
+Save us from Reddit comments that entertainment-wrap and amusement-wash and milk Trump for engagement. 
+
+https://old.reddit.com/r/technology/comments/1q661vq/president_white_house_launches_new_website_to/ny5b9ib/
+
+We the People are too busy mocking away at the free masons ideals and turning all goodness into banality with Reddit meme mill.
+
+https://old.reddit.com/r/technology/comments/1q661vq/president_white_house_launches_new_website_to/ny5bi3x/
+
+And Reddit society promotes hate. Hate for hate. hate vs. hate. everybody in USA promotes one idea: *Hate Harder*.  Trump provides hate leadership and Reddit end-users hate! Nobody [quoting Dr. Martin Luther King Jr's February 28, 1954 writings](../Martin_Luther_King_Jr_quotes0.md) or anything like that. It's high speed messaging and video addiction.
+
+https://old.reddit.com/r/technology/comments/1q661vq/president_white_house_launches_new_website_to/ny5hupq/
+
+Reddit addicts want Reddit shit media just like Fox News HDTV addicts want their shit media. Just like Musk Twitter media addicts want their shit media. The problem is social media. The audience. We The People will not face up to the reality of Neil Postman and Russian information warfare.
+
+https://old.reddit.com/r/technology/comments/1q661vq/president_white_house_launches_new_website_to/ny5i5lp/
+
+Fiction outsells nonfiction. Look at the Reddit engagement. People who can't quote nonfiction books on the problems of fiction addictions.
+
+https://old.reddit.com/r/technology/comments/1q661vq/president_white_house_launches_new_website_to/ny5b3we/
+
+People love fiction. Reddit /r/All has all kinds of unimportant (given the crisis of MAGA / Trump / USA government abandoning reality) fiction entertainments.
+
+https://old.reddit.com/r/technology/comments/1q661vq/president_white_house_launches_new_website_to/ny5briw/
+
+Every day Reddit front page has no call for social media to stop entertainment and be serious. People mock away and LOL away at superficial unimportant jokes about { orange skin, fat, golf playing, word choice }. Meme addicts society won't be serious. [Begging / Telling everyone to stop racing in their video game site Reddit and to please use all available spare time and free time to be serious and focus on important relevant nonfiction. Halting entertainment, the Reality TV entertainer star attraction basis of power.](/Grim_Blunt/Stop_All_Entertainment.md)
