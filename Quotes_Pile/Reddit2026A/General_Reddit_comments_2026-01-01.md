@@ -925,3 +925,23 @@ https://old.reddit.com/r/news/comments/1q647qe/trump_administration_freezes_chil
 <img width="873" height="237" alt="image" src="https://github.com/user-attachments/assets/f2b70c8e-fc23-48a8-8443-3b90af0cc258" /> Russia won a hearts and minds war, via Reddit, since March 2013. This is self-harm of USA on the world stage. Absurd surreal comedy behavior. Surkov won, Putin won! Entertainment addiction runs Reddit USA. That is what happened to the USA, intimate touch Apple iPhone / iPad addictions to junk memes took over. AGAIN: Surkov won.
 
 Social post: { https://autistics.life/@RoundSparrow/115853385228206198 https://bsky.app/profile/roundsparrow.bsky.social/post/3mbtbnqwuz22g }
+
+https://old.reddit.com/r/therewasanattempt/comments/1q66yb2/to_distract_the_country_with_wars_instead_of/ny5g65l/
+
+Rich white men private jets, private islands, audiences love celebrity sex shit. Girls are not being given voices, support Malala. The QAnon Q-Drops "Epstein List" message addicts, list addicts, [avoid Malala topics. Study the timeline of anti-Malala social media audience cravings. People only desire information addiction](/PostMalala/Marriage/World_Malala_Timeline_Year_2012.md) being fed with rich white men symbols and golf course values.
+
+https://old.reddit.com/r/therewasanattempt/comments/1q66yb2/to_distract_the_country_with_wars_instead_of/ny5yvk5/
+
+They are both real issues. But instead of promoting "Epstein" name constantly on Reddit: promote every hour Dr. Bandy X Lee. Get honest, sincere, goodness people leading. Deal with the issues Dr. Bandy X Lee is leading. Deal with male egomania values of rulers / representatives being prized.
+
+https://old.reddit.com/r/therewasanattempt/comments/1q66yb2/to_distract_the_country_with_wars_instead_of/ny5ik79/
+
+https://old.reddit.com/r/therewasanattempt/comments/1q66yb2/to_distract_the_country_with_wars_instead_of/ny5ibsg/
+
+https://old.reddit.com/r/therewasanattempt/comments/1q66yb2/to_distract_the_country_with_wars_instead_of/ny60mg8/
+
+https://old.reddit.com/r/therewasanattempt/comments/1q66yb2/to_distract_the_country_with_wars_instead_of/ny6cndh/
+
+<img width="1046" height="808" alt="image" src="https://github.com/user-attachments/assets/216eebce-5335-4bf5-ae91-03ed988499cb" /> Celebrity information strip tease. 
+
+Social post { https://autistics.life/@RoundSparrow/115853451474941908 https://bsky.app/profile/roundsparrow.bsky.social/post/3mbtcmfmmtc2l }
