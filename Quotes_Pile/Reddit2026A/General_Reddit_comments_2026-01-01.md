@@ -688,3 +688,30 @@ https://old.reddit.com/r/politics/comments/1q5yh02/trumps_plan_to_own_the_wester
 
 Another gang sign message / signaling.
 
+https://old.reddit.com/r/politics/comments/1q5yh02/trumps_plan_to_own_the_western_hemisphere_and/ny3n4s6/
+
+Reject reality. Reject non-fiction. Reject science. Reject goodness. Constant experience on Reddit social media platform, the avoidance of nonfiction facts and study.
+
+https://old.reddit.com/r/politics/comments/1q5yh02/trumps_plan_to_own_the_western_hemisphere_and/ny3r7dw/
+
+Notice the lack of book titles, author names, links to off-Reddit, quotes from a book. Just short commenting like  rumor mill. A tone of simple shit-talking... to make any resistance not concern itself with backing up claims. MAGA behaviors all around. Prizing no-evidence no-citation anti-Wiki anti-FAQ anti-organization in favor of high-speed TCP/IP comment messaging.
+
+https://old.reddit.com/r/politics/comments/1q5yh02/trumps_plan_to_own_the_western_hemisphere_and/ny3lstc/
+
+Reddit has been online for over two decades. The Media is Reddit. And these short low-quality messages that can't quote Neil Postman on media ecology, Marshall McLuhan on media ecology... are cover-file for Trumpism junk information addicts.
+
+https://old.reddit.com/r/politics/comments/1q5yh02/trumps_plan_to_own_the_western_hemisphere_and/ny3qgd3/
+
+Recent Reddit account in /r/Politics
+
+https://old.reddit.com/r/politics/comments/1q5yh02/trumps_plan_to_own_the_western_hemisphere_and/ny3rcsq/
+
+Reddit us "useful idiot" behavior that people won't educate and teach about. Neil Postman's books rot on the shelf.
+
+https://old.reddit.com/r/politics/comments/1q5yh02/trumps_plan_to_own_the_western_hemisphere_and/ny3pd61/
+
+https://old.reddit.com/r/politics/comments/1q5yh02/trumps_plan_to_own_the_western_hemisphere_and/ny4152y/
+
+https://old.reddit.com/r/politics/comments/1q5yh02/trumps_plan_to_own_the_western_hemisphere_and/ny3pazx/
+
+Reddit street gangs /r/Conservative and other subreddits. Many many many.
