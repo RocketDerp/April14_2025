@@ -773,3 +773,11 @@ Front page of reddit. Anti-Malala on camera. outside the hive mind of society. R
 Language bigotry, Tower of Babel, China     
 Media profit of selling out-group misunderstandings, "content". Media Ecology of Marshall McLuhan's 1968 book "War And Peace In the Global World Wide Web"    
 https://old.reddit.com/r/LivestreamFail/comments/1q4pyi2/a_chinese_person_saw_a_black_couple_and_went_live/
+
+&nbsp;
+
+
+so much good
+
+https://www.youtube.com/watch?v=TJ8QWLrFHSA
+
