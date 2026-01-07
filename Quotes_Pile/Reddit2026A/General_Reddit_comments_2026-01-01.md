@@ -680,3 +680,11 @@ https://old.reddit.com/r/politics/comments/1q5yh02/trumps_plan_to_own_the_wester
 
 Banal agent, mocking agent. USA 2026 MAGA values. Mock "The Little Guy" in favor of Big Big MAGA Trumpism.
 
+https://old.reddit.com/r/politics/comments/1q5yh02/trumps_plan_to_own_the_western_hemisphere_and/ny3tw5a/
+
+Gun worship USA prizing, "guns are cool" secret Reddit street-gang messages of violence against the out-group street gangs of Fox News HDTV and Musk Twitter street gangs.
+
+https://old.reddit.com/r/politics/comments/1q5yh02/trumps_plan_to_own_the_western_hemisphere_and/ny3uoop/
+
+Another gang sign message / signaling.
+
