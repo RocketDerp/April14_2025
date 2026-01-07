@@ -28,3 +28,15 @@ The USA **entire population is mentally unwell**. Trump content makes people men
 
 * https://www.youtube.com/watch?v=09maaUaRT4M&t=743s Please watch: "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL"
 
+https://old.reddit.com/r/politics/comments/1q6aj9c/when_it_comes_to_trumps_behaviour_the_most/ny65tzh/
+
+Observe: absence of book quotes, book titles, author names, links to off-Reddit sources. Just promoting the addiction to Reddit commenting instead of getting on *the same page* of printed books and articles. Anti-Wiki anti-FAQ, anything to just feed commenting over and over and over about Donald Trump's behavior (the title of the Reddit posting).
+
+https://old.reddit.com/r/politics/comments/1q6k2p1/has_anyone_checked_on_j_d_vance_and_tulsi_gabbard/ny856j9/
+
+Level the standing government and population, blow all their minds with Entertainment that Reddit spreads all over the Internet... then step in and bey not-Trump and blame Trump. People will be so drunk on memes when Trump is gone, so much celebration of ignorance in USA... Anything to avoid facing the media addiction issues and the failure to grasp media ecology (and Russian information warfare on Twitter and Reddit study since March 2013).
+
+https://old.reddit.com/r/politics/comments/1q6k2p1/has_anyone_checked_on_j_d_vance_and_tulsi_gabbard/ny83p68/
+
+Message to lead the audience that jokes are what matters most. Couch couch couch chanting on serious governing issues and analysis. Anything to make the USA programmed to be ignorant and banal. I created this Reddit learning community May 1, 2019 before pandemic on this "just a joke, bro" humor-washing of MAGA. https://old.reddit.com/r/HyperBanalisation
+
