@@ -793,3 +793,12 @@ Mocking on high-speed messaging networks back and forth with 1-bit logic brainro
 https://old.reddit.com/r/LeopardsAteMyFace/comments/1q5x4jv/conservative_reddit_posters_coming_dangerously/ny3c3rh/
 
 Social media laugh-track, like television laugh track, "LOL" message opening.
+
+https://old.reddit.com/r/inflation/comments/1q5wyel/all_of_magat_world_right_now/ny3dmvj/
+
+Reddit meme image addicts love it that ignorance has taken over the nation with social media Tweet-think on every platform and in every 5G area of the nation.
+
+https://old.reddit.com/r/inflation/comments/1q5wyel/all_of_magat_world_right_now/ny3dd0s/
+
+Billionaires Murdoch, Trump, Musk Twitter fucked-over Rural people... and Reddit audience is calling to fuck-over Americans with even more mockery and Luigi United Health Care paperwork. Everyone is following the hate-signal leaders. Hate humanism, mock Bible verse "1 John 3:17" with jokes and telephone call manipulation of people bewildered by Murdoch HDTV Fox News network.
+
