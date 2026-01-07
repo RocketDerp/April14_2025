@@ -63,4 +63,5 @@ https://old.reddit.com/r/BlueskySkeets/comments/1q6lfjf/e_fucking_xactly/
 
 https://autistics.life/@RoundSparrow/115855751660694969      
 https://bsky.app/profile/roundsparrow.bsky.social/post/3mbudc2lfak2q    
+https://MidWest.social/post/41488304    
 
