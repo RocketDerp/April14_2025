@@ -131,3 +131,13 @@ https://old.reddit.com/r/nottheonion/comments/1q6mp42/miller_says_free_world_dep
 Last year, year 2025, was the 40th year since a book was published on this crisis of the ENTIRE NATION of image addicts. Time Magazine, a long established news source in USA before Reddit was ever created. Before Twitter was able to be purchased by Elon Musk! Before fiction addictions took over nonfiction learning. September 10, 2025 https://Time.com/7313999/neil-postman-trump-prediction/
 
 Social post { https://Autistics.Life/@RoundSparrow/115855713629069055 https://bsky.app/profile/roundsparrow.bsky.social/post/3mbucra5ht22e }
+
+https://old.reddit.com/r/NFLv2/comments/1q6oqx8/dave_ramsey_on_sports_betting_the_fastest_growing/ny9f9h6/
+
+Addiction to the exciting thrilling sports entertainment, online high-speed punishment and reward via money and living rent-paid in minds. Billionaires control the audience, puppet people to worship the Elon Musk / Murdoch / Trump / Putin leaders (all multi-billionaires).
+
+I personally worked for the richest people in the entire world in Bellevue Washington, year 1996. NBA team owner, I was part of the owner's representatives in purchasing / takeover of NFL Seattle Seahawks. Having access to the owner's inside research and planning was very eye opening how "The Little Guy" in the audience is delivered big content. Apps empire, Dreamworks film empire, music producer empire / Jimi Hendrix museum, NFL, NBA, brain study institution,  fleet or private jets and private cruise ships, private homes all over the world. Wired World. People are deeply programmed from childhood to prize the branding and owners of their players.
+
+Audiences eat the "Trickle Down Content" from billionares. People think economic money is "Trickle Down", but it is images of Trump and images of sports assets that trickle down. All highly manipulated by public relationships industry.
+
+* Stand up to "Big Sports" wealth lording over poor people, the "FIFA Peace Prize" global empires... "Beginning in August 2016, some American athletes, most of whom are African Americans, have protested against systemic racism in the United States by kneeling" https://en.Wikipedia.org/wiki/U.S._national_anthem_kneeling_protests
