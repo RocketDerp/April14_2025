@@ -146,3 +146,20 @@ https://old.reddit.com/r/NFLv2/comments/1q6oqx8/dave_ramsey_on_sports_betting_th
 
 Hyper-reality sports detachment. Players have armies of medical doctors, sports body engineering and food science, while the rest of the nation has shit health care driven by the same sports teas owners / billionaire sports owners.
 
+https://old.reddit.com/r/IThinkYouShouldLeave/comments/1q6o7wr/if_you_keep_talking_about_shooting_an_innocent/ny92b15/
+
+Gun worshipers are so cool with the idea of guns solving mind-fucking Reddit content problems. Putin owns the USA since March 2013. "Internet Research Agency" nonfiction learning avoided.
+
+https://old.reddit.com/r/IThinkYouShouldLeave/comments/1q6o7wr/if_you_keep_talking_about_shooting_an_innocent/ny97ddf/
+
+https://old.reddit.com/r/IThinkYouShouldLeave/comments/1q6o7wr/if_you_keep_talking_about_shooting_an_innocent/ny9lp4f/
+
+Reddit audience thrilled to promote hate and nonsense, instead of teaching Neil Postman about media addiction to fiction. Fiction addiction is running USA, Donald Trump the fiction content creator with Putin's help. Surkov won since March 2013.
+
+https://old.reddit.com/r/IThinkYouShouldLeave/comments/1q6o7wr/if_you_keep_talking_about_shooting_an_innocent/ny9bh2v/
+
+Media addiction isn't just men, the women are in the same hive mind of MAGA USA, over 300 million media addicts who won't study and learn nonfiction from Marshall McLuhan.
+
+https://old.reddit.com/r/IThinkYouShouldLeave/comments/1q6o7wr/if_you_keep_talking_about_shooting_an_innocent/ny9e83k/
+
+Dehumanizing persons, twitter-think short messaging. Wrapping it in an entertainment television show dialog. Following Trump fiction of wrapping mass dehumanization as entertainment for the masses.
