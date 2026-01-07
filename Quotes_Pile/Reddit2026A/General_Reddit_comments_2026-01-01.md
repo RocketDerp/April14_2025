@@ -945,3 +945,21 @@ https://old.reddit.com/r/therewasanattempt/comments/1q66yb2/to_distract_the_coun
 <img width="1046" height="808" alt="image" src="https://github.com/user-attachments/assets/216eebce-5335-4bf5-ae91-03ed988499cb" /> Celebrity information strip tease. 
 
 Social post { https://autistics.life/@RoundSparrow/115853451474941908 https://bsky.app/profile/roundsparrow.bsky.social/post/3mbtcmfmmtc2l }
+
+https://old.reddit.com/r/politics/comments/1q6cgwb/were_the_bad_guys_now/ny6mzbn/
+
+<img width="924" height="238" alt="image" src="https://github.com/user-attachments/assets/61913c04-df80-4601-b705-5a6d43c81254" /> Top-most upvoted comment on the page. Snark-washing, satire-washing, sarcasm-washing Trump as entertainment. I'm shocked that people think it is actually enjoyable to harm their children and neighbors after we had Carl Sagan's 1995 book. It shocks me every time I paste this quote and people don't front-page it on Reddit every hour and walk away from posting any more:
+
+* “Science is more than a body of knowledge; it is a way of thinking. I have a (year 1995) foreboding of an America in my children’s or grandchildren’s time — when the United States is a service and information economy; when nearly all the key manufacturing industries have slipped away to other countries; when awesome technological powers are in the hands of a very few, and no one representing the public interest can even grasp the issues; when the people have lost the ability to set their own agendas or knowledgeably question those in authority; when, clutching our crystals and nervously consulting our horoscopes, our critical faculties in decline, unable to distinguish between what feels good and what’s true, we slide, almost without noticing, back into superstition and darkness. The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the **30-second** sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but especially a kind of [celebration of ignorance](https://www.youtube.com/watch?v=wcY-x1VuWtE). As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning — not just of science, but of anything — are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995, page 59
+
+You know what dumb and dumber fans and Hang Hill fans I get on Reddit... they are the only ones to take the quote seriously the last couple years. Instead of saying: wow, this is our problem dumb memes. I've started to say it: Malala has given up. She has, at least for now, forgotten how bad it is being around a community who won't stand up in Pakistan. Or she is burned out, where she doesn't want to look burned out. Knowing people, they would blame the bullet injury instead of the bullshit with Palestine. Why can't Palestine hold her book up and call for no more terrorism world-wide, no more war? Because people think it is funny.
+
+I've seen so many celebrate ignorance and celebrate harm to Israel. I've seen so many celebrate "Leopards Eating Faces" on Reddit. Oh look, Israel Leopards Eating Faces! Oh look, Palestine terrorists fucked around and found out. IT IS ALL: Celebration of Ignorance. And it **still fucking shocks me and damages my brain** every time I know it is real reality that people think it is funny when parents fight child custody battles and nations team-sport for hate. Earth Pride, Pale Blue Dot Pride, is in the toilet!
+
+https://old.reddit.com/r/politics/comments/1q6cgwb/were_the_bad_guys_now/ny6oqt8/
+
+https://old.reddit.com/r/politics/comments/1q6cgwb/were_the_bad_guys_now/ny6slg3/
+
+https://old.reddit.com/r/politics/comments/1q6cgwb/were_the_bad_guys_now/ny6hq6u/
+
+* "I tell you, freedom and human rights in America are doomed. The U.S. government will lead the American people in — and the West in general — into an unbearable hell and a choking life." [- أسامةبنلادن Al-Jazeera interview, 21 October 2001](/Grim_Blunt/Concerns/Unbearable_Hell_Choking_Life.md)
