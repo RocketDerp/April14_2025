@@ -61,3 +61,19 @@ https://old.reddit.com/r/minnesota/comments/1q6k2hh/ice_just_shot_a_woman_in_min
 Reddit audience is so stimulated and trilled to have constant "BREAKING NEWS" on top of Reddit /r/All about thrills and violence. The addiction to Trump content. Hate prizing, dehumanization, all to feed low-effort commenting addiction and intimate-touch screen devices / iPhone / iPad / Android ARG mindsets of Reddit consumers. Mob mindsets, mentality. Look at the Reddit username, "Timely Influencer" / Influence. Sexual attraction to Epstein and I.C.E. stimulation images / stories.
 
 ANYTHING to avoid **nonfiction learning** about Russian information warfare methods / [cult creation by Kremlin to media content. Media cults](/June8_2025/Religions_Political_Parties_Cults_MassMind_MassMan.md). Reddit cults, Elon Musk Twitter cults, Fox News HDTV cults, etc.
+
+https://old.reddit.com/r/MurderedByWords/comments/1q6ld2a/so_the_right_suddenly_wants_30_million_more/ny8enow/
+
+Right vs. left brainrot. Out-group brainrot mindsets. Human beings behave like this all over the world and throughout history. Out-group domination. Long before "left vs. right" was framing it. If other nations had the wealth, power, military, technology of the USA - Reddit users wouldn't grasp it is driven by masculine domination / power drives that we are not facing. If Russia had twice the power and 10 times the wealth, war with Ukraine and others would be worse. Reddit community mindset (mob mentality of left vs. right USA only) is to avoid American from Atlanta 1954 learning. Stuck in 1931 logic polarity mindsets, Us vs. Them / Left vs. Right. team-sport, gaming, gamer, screen gamer logic of "enemy" humans. That others people are aliens to war against gaming strategy mindsets. MAGA mindsets, Putinism. Surkov won since March 2013.
+
+* "the real danger confronting civilization today is that atomic bomb which lies in the hearts and souls of men, capable of **exploding into the vilest of hate and into the most damaging selfishness** — that's the atomic bomb that we've got to fear today. Problem is **with the men**. Within the **heart and the souls of men**. That is the real basis of our problem." - [February 28, 1954](../Martin_Luther_King_Jr_quotes0.md)
+
+https://old.reddit.com/r/MurderedByWords/comments/1q6ld2a/so_the_right_suddenly_wants_30_million_more/ny8o25c/
+
+That is what is important on Reddit. Twitter messages screenshots on Reddit to mock and mockery away at. Constant simulation by Elon Musk media platform on Reddit. ANYTHING and EVERYTHING to avoid using spare time and free time to learn nonfiction cult behavior issues to Reddit media and Tweet media.
+
+https://old.reddit.com/r/MurderedByWords/comments/1q6ld2a/so_the_right_suddenly_wants_30_million_more/ny8fn4r/
+
+Simple-short messages. Prizing of Twitter content. Simulation against Twitter screenshots. Anything to not quote nonfiction books. No author name, no links, no thought-out analysis quoted. Just perpetual rounds of mocking back and forth with junk images of South America and other image trash. Fiction storytelling with low-effort commenting. Media addiction now runs USA society, flocking to MAGA mindsets on Reddit.
+
+* Twitter entertainment screenshots for Reddit audiences. “When a population becomes distracted by trivia, when **cultural life is redefined as a perpetual round of entertainments**, when serious public conversation becomes a form of baby-talk, when, in short, a people become an audience, and their public business a vaudeville act...” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
