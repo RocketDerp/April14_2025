@@ -55,3 +55,7 @@ Reddit audience comment contribution has now become the very source of Trump / M
 https://old.reddit.com/r/complaints/comments/1q6ff9j/trump_is_hitler_and_america_is_turning_into_1930s/ny7l30r/
 
 Yes. And do not underestimate the influence of hanging out on Reddit where [stupid messages and images are prized as fun. Garbage into mind, garbage out.](../Reddit2025A/Misc0/2025-08-04_media_makes_the_society.md) Rupert Murdoch since October 7, 1996 has not hired stupid employees and outside firms to create his content. Billionaires are not stupid, Elon Musk is not stupid. The Twitter audience prizes stupid messages and memes. Never underestimate meme burnout, billionaire trick down content causing audience burnout / brainrot.
+
+https://old.reddit.com/r/minnesota/comments/1q6k2hh/ice_just_shot_a_woman_in_minneapolis_in_the_face/ny89oy2/
+
+Reddit audience is so stimulated and trilled to have constant "BREAKING NEWS" on top of Reddit /r/All about thrills and violence. The addiction to Trump content. Hate prizing, dehumanization, all to feed low-effort commenting addiction and intimate-touch screen devices / iPhone / iPad / Android ARG mindsets of Reddit consumers. Mob mindsets, mentality. 
