@@ -101,3 +101,7 @@ https://old.reddit.com/r/mildlyinfuriating/comments/1q6hcv2/processing_the_loss_
 https://old.reddit.com/r/mildlyinfuriating/comments/1q6hcv2/processing_the_loss_of_a_baby_is_extra_difficult/ny8yuec/
 
 https://old.reddit.com/r/mildlyinfuriating/comments/1q6hcv2/processing_the_loss_of_a_baby_is_extra_difficult/ny7uhgt/
+
+https://old.reddit.com/r/videos/comments/1q6ihtt/trump_announces_dc_triumphal_arch_claims_it_will/ny7tcha/
+
+It's high priority to front page top-voted comment of /r/All - to mock and insult Donald Trump. People who are so incredibly gullible that they think Trump is not an actor doing scenes of ballrooms and locations for photographs. Reddit lives for images / photographs of Trump. This is a media addict leading a media addiction society of Hollywood garbage, Reality TV celebrity, sex private jet lives of Mar-A-Largo society. Truth Social Reddit audience, *meme aficionados, that follows** hate leadership signals.
