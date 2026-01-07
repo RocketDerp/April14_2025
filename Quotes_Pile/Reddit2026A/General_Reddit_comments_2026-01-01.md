@@ -1006,3 +1006,10 @@ https://old.reddit.com/r/pics/comments/1q6f1bj/iran_facing_its_biggest_protest_i
 
 Russia / Putin already did. But the LOL-washing it so amusing entertaining to Reddit that alternate reality gaming has taken over. Subreddit by subreddit ARG, every flavor of anti-reality in every comment section even on a single post. Freedom to adore fiction, freedom do deny reality is Reddit community behavior. Anti-Wiki anti-FAQ, anti same page.
 
+https://old.reddit.com/r/politics/comments/1q6i681/america_first_maga_wants_to_be_a_colonial_power/ny7qp63/
+
+Social media is full of people, especially Reddit, who think jokes and humor are the answer to all Trump jokes and humor. People run off almost anyone who is serious. And those who are serious have to stick to a mocking tone of team sports against other teams. Martin Luther King Jr writing isn't valued. Malala on world war and peace ignored. Marshall McLuhans 1968 book on Reddit media war and peace ignored.
+
+https://old.reddit.com/r/politics/comments/1q6i681/america_first_maga_wants_to_be_a_colonial_power/ny7pu90/
+
+Not reality. Not believable. Exactly what Surkov Students know wins all debate. Fiction outsells nonfiction. Non-reality wins. September 9, 2014 (18 months after it started): https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
