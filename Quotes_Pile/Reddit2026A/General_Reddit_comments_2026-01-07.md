@@ -520,3 +520,17 @@ https://old.reddit.com/r/politics/comments/1q7mqgp/ice_agent_who_shot_renee_nico
 https://old.reddit.com/r/politics/comments/1q7mqgp/ice_agent_who_shot_renee_nicole_good_identified/nygsr8f/
 
 Reddit tech loving messages, machine think: *Hate harder*, *Hate thy Enemy*, *Hate thy Neighbor* all in one message. Morality from no-identity Reddit society, monster state values.
+
+https://old.reddit.com/r/Fauxmoi/comments/1q7myad/mayor_jacob_frey_on_backlash_from_republicans_for/nygs5zs/
+
+Reddit audiences messaging MAGA values.
+
+https://old.reddit.com/r/Fauxmoi/comments/1q7myad/mayor_jacob_frey_on_backlash_from_republicans_for/nygsg8q/
+
+A complete misunderstanding of what MAGA prizes and cares for. Simple-think that doesn't grasp that MAGA prizes Trump dialog just as Reddit reacts and comments on every Trump dialog and Trump photograph. It is media addiction for 100.000% of the nation. Nobody excluded from the constant prizing of Trump messages and memes. President Tony Clifton performance for ALL, for over 0.34 billion people in USA and even more beyond USA! Surkov won since March 2013.
+
+https://old.reddit.com/r/Fauxmoi/comments/1q7myad/mayor_jacob_frey_on_backlash_from_republicans_for/nygthf0/
+
+https://old.reddit.com/r/Fauxmoi/comments/1q7myad/mayor_jacob_frey_on_backlash_from_republicans_for/nygudlq/
+
+Reddit community should halt all entertainment and repeat and keep repeating lessons on Bible literacy. "1 John 3:17" should be known by every person in USA age 12 to age 120. Instead of commenting all on different pages, repeat the same Bible literacy teaching and help rescue MAGA from Putin Trumpism.
