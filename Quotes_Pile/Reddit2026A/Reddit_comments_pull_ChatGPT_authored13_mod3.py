@@ -252,10 +252,18 @@ def fetch_comment_data(url, idx=None, args=None):
         if top_matter:
             body_div = top_matter.find("div", class_="usertext-body")
 
-        if body_div:
-            post_body = body_div.get_text(strip=True)
+            if body_div:
+                post_body = body_div.get_text(strip=True)
+            else:
+                post_body = "No body text (link-only post)"
+
         else:
-            post_body = "No body text (link-only post)"
+            print("no post body top_matter found")
+        
+            # wget of comment specific URL reveals that the posting text is absent.
+            #   https://old.reddit.com/r/c64/comments/1q7asvi/cli_for_c64_ultimate_rest_api/nye0maj/
+            #   only if you fetch the posting URL directly do you get the posting text
+            #   https://old.reddit.com/r/c64/comments/1q7asvi/cli_for_c64_ultimate_rest_api/
 
 
     return {
