@@ -343,3 +343,16 @@ I used to work for gaming leader Microsoft co-founder at Paul Allen Group / Vulc
 The burnout of audience minds is very real. Neil Postman was very correct in 1985 book, 1992 book. Such mob mentality burnout of USA society at hands of sports-owners, "Entertainment" Fox News HDTV since year 1996, Reddit hive mind, Musk Twitter hive mind, Facebook Mark Z hivemind, Putin Internet Research Agency mental insurgency since March 2013. All a cluster-fuck of mind-fucking, FUBAR nation USA! "FIFA Peace Prize World Cup" overlay of July 4, 1776 / 250 years. What symbolism mind-fucking by the billionaire media empires! Sports technology, sports medical technology, sports media relations technology to audiences.
 
 * “Technopoly is a state of culture. It is also a state of mind. It consists in the deification of technology, which means that the culture seeks its authorization in technology, finds its satisfactions in technology, and takes its orders from technology." ― Neil Postman, Technopoly: The Surrender of Culture to Technology, **year 1992**
+
+https://old.reddit.com/r/Fauxmoi/comments/1q7enqy/the_protesters_set_up_a_memorial_for_renee_good/nyewn8y/
+
+Reddit audience eating right out of the hands of the media content creators, billionaires who run all the media systems and control Reddit with NSA / Pentagon. Putin won them all, hearts and minds lost to runaway Surkov monomyth patterns!
+
+Russia and the **Menace of Unreality**   
+How Vladimir Putin is revolutionizing information warfare   
+Peter Pomerantsev   
+September 9 2014, 3:42 PM ET   
+
+* “If previous authoritarian regimes were three parts violence and one part propaganda,” argues Igor Yakovenko, a professor of journalism at the Moscow State Institute of International Relations, “this one is **virtually all propaganda and relatively little violence**. Putin only needs to make a few arrests—and then amplify the message through his total control of television.”
+
+Translated from 2013 Russia to USA 2025: I.C.E. raids are very little violence and a lot of showboating. A lot of Reddit front-page I.C.E. raids for visual meme addicts / meme consumers. No recognition that Kremlin and White House has the Reddit total control of media amplifiers. Reddit is amplifying media from all over the Internet. Eating the onions that Trump and Musk is dementia stupid dumb idiot, Reddit society unable to engage and comprehend and understand off-Reddit... September 9, 2014: https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
