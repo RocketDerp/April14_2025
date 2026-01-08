@@ -490,3 +490,22 @@ https://old.reddit.com/r/complaints/comments/1q7mqcc/jonathan_ross_is_a_fucking_
 Reddit machine messages of anti-forgiveness. MAGA values of *never forgive* programming on Reddit. Short-length Tweet-length messaging for tech society lovers. Technical mindsets of logic of welding hate permanently and not addressing the *Hate Harder* programming Russia has fed into Reddit since March 2013. Simple-think reactionary out-group hate gaming / screen gaming / sports gaming / sports mentality. Playing right into Kremlin hands.
 
 * "the real danger confronting civilization today is that atomic bomb which lies in the hearts and souls of men, capable of **exploding into the vilest of hate and into the most damaging selfishness** — that's the atomic bomb that we've got to fear today. Problem is **with the men**. Within the **heart and the souls of men**. That is the real basis of our problem." - [February 28, 1954](../Martin_Luther_King_Jr_quotes0.md)
+
+https://old.reddit.com/r/50501/comments/1q7m3nt/find_the_murderer/nygo4zv/
+
+Intimidation.
+
+https://old.reddit.com/r/50501/comments/1q7m3nt/find_the_murderer/nygoeul/
+
+https://old.reddit.com/r/50501/comments/1q7m3nt/find_the_murderer/nygokm8/
+
+https://old.reddit.com/r/50501/comments/1q7m3nt/find_the_murderer/nygr5dp/
+
+https://old.reddit.com/r/50501/comments/1q7m3nt/find_the_murderer/nygrroq/
+
+Reddit community amusement-washing JD Vance. Satire-washing, sane-washing, sarcasm-washing, wrapping MAGA leaders in entertainment and *LOL cow milking*. Anything but quote serious nonfiction books on paper about information warfare. Anything to avoid learning from Marshall McLuhan / University of Toronto.
+
+https://old.reddit.com/r/50501/comments/1q7m3nt/find_the_murderer/nygqib0/
+
+Reddit audiences eat up their favorite "FAFO" street-gang language of out-group intimidation and out-group hate. Gang signs, gang language. Street gangs of messaging and removing "undesirables". 
+
