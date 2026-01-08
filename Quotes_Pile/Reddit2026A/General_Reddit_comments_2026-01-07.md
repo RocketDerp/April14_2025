@@ -281,3 +281,23 @@ https://old.reddit.com/r/complaints/comments/1q71uo7/i_am_icelandic_watching_the
 
 * "For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the **true becomes false and the false becomes true**. That's what hate does. You can't see right. **The symbol of objectivity** is lost." - Martin Luther King Jr.
 
+https://old.reddit.com/r/mildlyinfuriating/comments/1q6yssm/hi_i_speak_for_all_women_named_annie_when_i_say/nybn1ql/
+
+Almost every time I step into social media, assholes repeat the same things; you write funny, you have language problems, you are a person from outside the USA, you are an immigrant, you are a robot, you are a non-person machine. Bullying of autism. People think they are the only one to ever notice you are unusual / atypical / different / neurodivergent. It was not like that before year 2013. When hate and mocking and bullying became core values of USA society. When bullies and snark run the entire nation now, people do it even more. United States of prizing Trump-think, Musk-think, Murdoch-think.
+
+https://old.reddit.com/r/LosAngeles/comments/1q6zmlk/she_could_have_been_any_one_of_us/nycfeui/
+
+The posting says how is it supposed to be joy. People flock to billionaire sports game owners, video game creators, Trump amusement. People will not face up to their addiction to unimportant and non-essential entertainment. Humans can live without television and video games and discuss nonfiction serious matters. Not just Twitter-length comments all on different pages, either. Actually prize meetings and getting on the same page instead of mocking office meetings as a joke all the time.
+
+https://old.reddit.com/r/LosAngeles/comments/1q6zmlk/she_could_have_been_any_one_of_us/nybwc4x/
+
+Black Lives Matter... not very much. Brown lives matter... not very much. But a pretty white woman in a nice suburb area with a nice car... now that's got Reddit alarmed!
+
+Standing up against ALL HATE in ALL PLACES is not a concern. Russia has mind-fucked the population into such predictable patterns of media addiction. The entire point of "Black Lives Matter" is this behavior. The entire planet, all of Earth, is being terrorized by meme addicts / one nation that will not confront horrific smartphone and television **cults and addictions**. Marshall McLuhan and Neil Postman books and videos are the intelligent educated way to deal with Trump / MAGA / Fox News HDTV / Newsmax / Elon Musk Twitter / Russia Today / Kremlin / White House values problems.
+
+
+* February 28, 1954: "Most people can't stand up for their convictions, because the majority of people might not be doing it. See, everybody's not doing it, so it must be wrong. And since everybody is doing it, it must be right. So a sort of numerical interpretation of what's right. But I'm here to say to you this morning that some things are right and some things are wrong. Eternally so, absolutely so. **It's wrong to hate.** It always has been wrong and it always will be wrong. It's wrong in America, it's wrong in Germany, it's wrong in Russia, it's wrong in China. It was wrong in 2000 B.C., and it's wrong in 1954 A.D. It always has been wrong, and it always will be wrong." - Martin Luther King Jr.
+
+* "For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the **true becomes false and the false becomes true**. That's what hate does. You can't see right. **The symbol of objectivity** is lost." - Martin Luther King Jr.
+
+
