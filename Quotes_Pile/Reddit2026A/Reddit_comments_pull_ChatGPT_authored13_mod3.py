@@ -462,25 +462,31 @@ def main():
                 sys.exit(1)
             continue
 
+        # Markdown formatted output
+
         output_lines = [
             "\n",
-            "="*80,
-            f"Entry {idx} ({idx - start}/{total}) - URL: {url}",
-            f"Comment ID:      {data['comment_id']}",
-            f"Author:          {data['author']}",
-            f"Bio:             {data['bio']}",
-            f"Account Created: {data['account_created']}",
-            f"Link Karma:      {data['link_karma']}",
-            f"Comment Karma:   {data['comment_karma']}",
-            f"Comment Age:     {data['comment_age']}",
-            f"Timestamp:       {data['comment_timestamp']}",
-            f"Score:           {data['score']}",
-            f"Post Title:      {data['post_title']}",
-            f":::::: Reddit User Comment: ======\n{data['comment']}"
+            "="*13,
+            "  ",
+            f"## Reddit comment {data['comment_id']}\n",
+            f"    entry {idx} ({idx - start}/{total})\n",
+            f"Comment URL: {url}  ",
+            f"Comment ID:      {data['comment_id']}  ",
+            f"Author:          {data['author']}  ",
+            f"Bio:             {data['bio']}  ",
+            f"Account Created: {data['account_created']}  ",
+            f"Link Karma:      {data['link_karma']}  ",
+            f"Comment Karma:   {data['comment_karma']}  ",
+            f"Comment Age:     {data['comment_age']}  ",
+            f"Timestamp:       {data['comment_timestamp']}  ",
+            f"Score:           {data['score']}  ",
+            f"Post Title:      {data['post_title']}  ",
+            f":::::: Reddit User Comment: ======  \n{data['comment']}"
         ]
 
         if commentary:
-            output_lines.append(f":::::: RoundSparrow Commentary: ======\n{commentary}")
+            output_lines.append(f":::::: Analysis_Thoughts Commentary: ======  \n{commentary}")
+
 
         # Console output
         print("\n".join(output_lines))
