@@ -512,7 +512,7 @@ def main():
 
     with open('Output/run_summary0.txt', 'a') as summaryfile:
         summaryfile.write(f"{args.output}\n")
-        summaryfile.write(f"{endtime_iso_with_ms}\n")
+        summaryfile.write(f"    end {endtime_iso_with_ms}\n")
         
         if errorCountA + errorCountB > 0:
             print(f"\nERRORS encountered! Final error counts, A: {errorCountA} B: {errorCountB}")
@@ -521,7 +521,6 @@ def main():
         if (fetchRedditCountA > 0):
             print(f"Live fetch to Reddit count: {fetchRedditCountA}")
             summaryfile.write(f"Live fetch to Reddit count: {fetchRedditCountA}\n")
-
 
 
 if __name__ == "__main__":
