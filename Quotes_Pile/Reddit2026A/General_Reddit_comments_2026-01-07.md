@@ -369,3 +369,5 @@ https://old.reddit.com/r/nottheonion/comments/1q7ehav/texas_becomes_first_state_
 
 Audience Reddit dream: "Shut up", self-deport, block, silence, crush those you disagree with into inability to get into filter-bubble of media. "Shut up" nation. MAGA power values on Reddit, masked as anti-MAGA. Silencing "The Little Guy" with Reddit power blocking and banning! Toxic social media USA export. https://en.wikipedia.org/wiki/Filter_bubble
 
+The tech lover Reddit hive mind attitude: follow the billionaires, silence the poor people suffering under the Elon Musk Austin Texas leadership of law and legal for the richest and most powerful! The constant promotion of silencing troubled and brain damaged people that Musk and Murdoch media empires fuck-over for Putin since March 2013!
+
