@@ -234,3 +234,9 @@ Charlie Kirk was cheered on. All bad, all the time. People prizing teams of hate
 https://old.reddit.com/r/videos/comments/1q6w0ew/he_told_us_nearly_10_years_ago_i_could_stand_in/nyb97pv/
 
 Fiction addiction drives the USA. Nonfiction reality was too boring. Book quotes get attacked on Reddit.
+
+https://old.reddit.com/r/Amazing/comments/1q6tg68/this_dad_is_a_legend/nyablwd/
+
+Imagine how many lives the bullying of autistic people on Reddit and gaming systems has ruined. I get "you a bot", "you ChatGPT", "you LLM" all over Reddit in year 2025. Language bigots who can't pass a turning test of real human diversity / neurodiversity. People who react as the billionaires who create LLM systems program people to react. To turn against human persons with Reddit machine lust. The power to use Reddit to humanize diverse people.
+
+
