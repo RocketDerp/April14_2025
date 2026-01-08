@@ -382,3 +382,7 @@ Daddy trump feeds the Reddit audience hive mind. Constantly mocking away at Dadd
 https://old.reddit.com/r/IThinkYouShouldLeave/comments/1q7cpuo/charlie_kirk_gets_shot_in_the_neck_conservatives/nyg160n/
 
 Front page of Reddit. The posting is FULL of meme-washing comments. Using fiction Television to meme-wash sane-wash ICE and MAGA. Audience members so engaged to have ICE / MAGA / Surkov students (Surkov monomyth patterns) to mock and insult. Feedback loops of hate vs. hate, hate for hate, *hate harder* between Reddit and Fox News HDTV media platform / Truth Social audience. An entire nation, over 300 million people, of meme addicts to fiction trash that prize Trump for hate leadership signals.
+
+https://old.reddit.com/r/science/comments/1q7lh8z/sudden_drop_in_fentanyl_overdose_deaths_linked_to/nygkjgm/
+
+Audiences prize insane high-energy Twitter messaging. All over /r/All front page, screenshots of Tweets. [Everything is now Media Ecology self-awareness. Billionaires know insane messaging works on Reddit meme consumers.](/Media_Ecology/Everything_is_ME.md)
