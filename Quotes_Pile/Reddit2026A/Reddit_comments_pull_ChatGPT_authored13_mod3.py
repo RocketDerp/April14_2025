@@ -516,11 +516,12 @@ def main():
         
         if errorCountA + errorCountB > 0:
             print(f"\nERRORS encountered! Final error counts, A: {errorCountA} B: {errorCountB}")
-            summaryfile.write(f"\nERRORS encountered! Final error counts, A: {errorCountA} B: {errorCountB}")
+            summaryfile.write(f"\nERRORS encountered! Final error counts, A: {errorCountA} B: {errorCountB}\n")
 
         if (fetchRedditCountA > 0):
             print(f"Live fetch to Reddit count: {fetchRedditCountA}")
-            summaryfile.write(f"Live fetch to Reddit count: {fetchRedditCountA}")
+            summaryfile.write(f"Live fetch to Reddit count: {fetchRedditCountA}\n")
+
 
 
 if __name__ == "__main__":
