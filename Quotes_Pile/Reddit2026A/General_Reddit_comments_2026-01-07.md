@@ -327,3 +327,8 @@ https://old.reddit.com/r/Fauxmoi/comments/1q7enqy/the_protesters_set_up_a_memori
 <img width="1257" height="212" alt="image" src="https://github.com/user-attachments/assets/5f9e780a-1374-4c62-8c9d-2d59b0c65871" /> Street gangs. Mob mentality. Sanity, Insane. World. World Wide Web / WWW induced media right from Internet Research Agency mind-fuck since March 2013. Mass insanity. Surkov students exported the Kremlin systems. https://www.youtube.com/watch?v=09maaUaRT4M&t=744s Please watch: "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL"
 
 Social post { https://autistics.life/@RoundSparrow/115860739111162264 https://bsky.app/profile/roundsparrow.bsky.social/post/3mbwk7k35cc2a }
+
+https://old.reddit.com/r/Fauxmoi/comments/1q7enqy/the_protesters_set_up_a_memorial_for_renee_good/nyeyfxe/
+
+Similar to the street gangs on Reddit social and their behavior. They get in your face, call you a "bot", dehumanize you, call you "mentally unwell" - when you say that Fox News HDTV is the very *billionaire cause* of your mental unwellness as a everyday USA citizen. Communicate that **Musk Twitter and Truth Social have sickened every mind around you** in January 2026 - the street gangs of Reddit organized bullying come after you to get your comments removed. Right in the public Reddit streets, with secret masked moderators who don't reveal names and faces or public logging of their disappearing / removal of persons and comments.
+
