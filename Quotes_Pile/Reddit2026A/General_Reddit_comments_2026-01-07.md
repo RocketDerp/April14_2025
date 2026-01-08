@@ -313,3 +313,17 @@ https://old.reddit.com/r/pics/comments/1q7g66n/he_didnt_start_the_fire/nyfak68/
 On Reddit, people call you "mentally unwell" if you disagree with the current year 2026 situation on New Years weekend. People on Reddit get you silenced and shut up, masked moderators and owners, who cover up such removal of messages and people banned from discourse for standing up against mass dehumanization technology billionaire values (Murdoch billionaire, Trump, Putin billionaire, Musk billionaire, all get prized coverage on Reddit social). Hive minded Reddit society with no-identity, masked like I.C.E. that mob mentality / cult programming to Putin media rules. Surkov won since March 2013.
 
 The ENTIRE NATION of United States of America is mentally unwell. Hive mind of Reddit programmed to ignore nonfiction learning and serious study of Kremlin / Putin / Russia information warfare since March 2013. https://www.youtube.com/watch?v=09maaUaRT4M&t=744s Please watch: "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL"
+
+https://old.reddit.com/r/pics/comments/1q7g66n/he_didnt_start_the_fire/nyf9taa/
+
+Mindset. Mentally. The ENTIRE NATION of United States of America is mentally unwell. Hive mind of Reddit programmed to ignore nonfiction learning and serious study of Kremlin / Putin / Russia information warfare since March 2013. https://www.youtube.com/watch?v=09maaUaRT4M&t=744s Please watch: "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL"
+
+https://old.reddit.com/r/pics/comments/1q7g66n/he_didnt_start_the_fire/nyfnaji/
+
+Links and education about nations outside USA to hive minded people.
+
+https://old.reddit.com/r/Fauxmoi/comments/1q7enqy/the_protesters_set_up_a_memorial_for_renee_good/nyew5un/
+
+<img width="1257" height="212" alt="image" src="https://github.com/user-attachments/assets/5f9e780a-1374-4c62-8c9d-2d59b0c65871" /> Street gangs. Mob mentality. Sanity, Insane. World. World Wide Web / WWW induced media right from Internet Research Agency mind-fuck since March 2013. Mass insanity. Surkov students exported the Kremlin systems. https://www.youtube.com/watch?v=09maaUaRT4M&t=744s Please watch: "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL"
+
+Social post { https://autistics.life/@RoundSparrow/115860739111162264 https://bsky.app/profile/roundsparrow.bsky.social/post/3mbwk7k35cc2a }
