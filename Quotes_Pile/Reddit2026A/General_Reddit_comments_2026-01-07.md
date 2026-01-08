@@ -610,3 +610,16 @@ https://old.reddit.com/r/PoliticalHumor/comments/1q7nvsp/im_so_very_very_tired/n
 
 Yes. Attraction to hate leaders. Attraction to anti-goodness.
 
+https://old.reddit.com/r/MurderedByWords/comments/1q7pn7w/those_pearly_gates/nyhh3o8/
+
+https://old.reddit.com/r/MurderedByWords/comments/1q7pn7w/those_pearly_gates/nyhf9nt/
+
+https://old.reddit.com/r/MurderedByWords/comments/1q7pn7w/those_pearly_gates/nyhmns5/
+
+https://old.reddit.com/r/MurderedByWords/comments/1q7pn7w/those_pearly_gates/nyhhwto/
+
+Anti-forgiveness, *Hate Harder*. Tech love Reddit, person hate, forgiveness hate.
+
+https://old.reddit.com/r/MurderedByWords/comments/1q7pn7w/those_pearly_gates/nyhi4wt/
+
+Bible literacy remedial teaching is essential. Science fiction story literacy is i very bad shape in USA society.
