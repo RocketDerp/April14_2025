@@ -458,3 +458,23 @@ https://old.reddit.com/r/PublicFreakout/comments/1q7bgjo/dhsice_agents_in_sacram
 https://old.reddit.com/r/PublicFreakout/comments/1q7bgjo/dhsice_agents_in_sacramento_ca_kicks_over_a/nyen7m5/
 
 denial abounds
+
+https://old.reddit.com/r/news/comments/1q7m9ic/ice_officer_who_fatally_shot_woman_in_minneapolis/nygm92l/
+
+https://old.reddit.com/r/news/comments/1q7m9ic/ice_officer_who_fatally_shot_woman_in_minneapolis/nygmexh/
+
+https://old.reddit.com/r/news/comments/1q7m9ic/ice_officer_who_fatally_shot_woman_in_minneapolis/nygn85g/
+
+inception
+
+https://old.reddit.com/r/news/comments/1q7m9ic/ice_officer_who_fatally_shot_woman_in_minneapolis/nygxzne/
+
+MAGA is PTSD, CPTSD living under the billionaire messaging systems. Rupert Murdoch HDTV network Fox News causes brain damage / CPTSD. Detachment and avoidance of goodness programmed by the richest people on Earth. Twitter owner Musk feeding hate and cheering on voting for hate. Lots of traumatic mind manipulation. [Operation Matthew 4:19 won against Reddit / MAGA / Twitter / Facebook / everyone audiences.](/Operation_Matthew_4_19_on_monday_2024-03-31.md)
+
+https://old.reddit.com/r/news/comments/1q7m9ic/ice_officer_who_fatally_shot_woman_in_minneapolis/nygu1xs/
+
+Mixing film ICE Age branding / subconscious audience previous associations with anti-reality Trump Kremlin messaging.
+
+https://old.reddit.com/r/news/comments/1q7m9ic/ice_officer_who_fatally_shot_woman_in_minneapolis/nygma21/
+
+[Self-harm USA behavior, *hate harder* programming from Kremlin](/PostMalala/Surkovian/Self_Harm_for_Everyone.md). Exactly what Kremlin has induced with social information systems. I bet he uses social media since year 2013 at least a few times. 
