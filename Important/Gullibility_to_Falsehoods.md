@@ -1,3 +1,7 @@
+# Gullibility to Falsehoods
+
+Fiction addictions, attraction to fiction so strong that gullibility is constant in USA population.
+
 https://autistics.life/@RoundSparrow/115004366110193318   
 https://bsky.app/profile/roundsparrow.bsky.social/post/3lw2ag6dhuk2n   
 
