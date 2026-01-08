@@ -1008,7 +1008,7 @@ Russia / Putin already did. But the LOL-washing it so amusing entertaining to Re
 
 https://old.reddit.com/r/politics/comments/1q6i681/america_first_maga_wants_to_be_a_colonial_power/ny7qp63/
 
-Social media is full of people, especially Reddit, who think jokes and humor are the answer to all Trump jokes and humor. People run off almost anyone who is serious. And those who are serious have to stick to a mocking tone of team sports against other teams. Martin Luther King Jr writing isn't valued. Malala on world war and peace ignored. Marshall McLuhans 1968 book on Reddit media war and peace ignored.
+Social media is full of people, especially Reddit, who think jokes and humor are the answer to all Trump jokes and humor. People run off almost anyone who is serious. And those who are serious have to stick to a mocking tone of team sports against other teams. Martin Luther King Jr writing isn't valued. Malala on world war and peace ignored. Marshall McLuhan's 1968 book on Reddit media war and peace ignored.
 
 https://old.reddit.com/r/politics/comments/1q6i681/america_first_maga_wants_to_be_a_colonial_power/ny7pu90/
 
@@ -1027,3 +1027,37 @@ https://old.reddit.com/r/politics/comments/1q64mz3/bolton_on_trump_venezuela_pla
 <img width="887" height="872" alt="image" src="https://github.com/user-attachments/assets/394134f4-532d-4122-9cad-b3fff21e5257" /> That's why RESCUE Donald Trump. I mounted an effort. February 17, 2025 https://old.reddit.com/r/RescueFriends/ - Putin has mind-fucked rural population and Donald Trump and mind-fucked Fox News audience into self-harm of humanity. Surkov won since March 2013.
 
 Social post { https://autistics.life/@RoundSparrow/115854662722077248 https://bsky.app/profile/roundsparrow.bsky.social/post/3mbttskmu6c2l }
+
+https://old.reddit.com/r/news/comments/1q6viwm/trump_pulls_us_out_of_66_international_bodies/nyatb60/
+
+Reddit society top upvoted comment on page. Satire-washing, sane-washing, comedy-washing, sarcasm-washing Trump as entertainment. As Reddit customers have been doing since June 16, 2025. Turning everything related to { Trump, MAGA } into entertainment to snark about. Handing power over to Surkov techniques, by playing right into the unreality / fiction tone and mindsets. Neil Postman's 1985 book explains why this is a horrible idea, and why Reddit culture is destroying the nation with "amusement" media.
+
+https://old.reddit.com/r/news/comments/1q6viwm/trump_pulls_us_out_of_66_international_bodies/nyatfme/
+
+Extremely serious global affairs topic. No link, no book quote, no author name, no book title, nothing but tiny-short Elon Musk Twitter-style short messages. Very popular, anti-teaching low-effort commenting in the face of Trump entertainment warfare / attention-seeking antics.
+
+https://old.reddit.com/r/news/comments/1q6viwm/trump_pulls_us_out_of_66_international_bodies/nyawbgi/
+
+https://old.reddit.com/r/news/comments/1q6viwm/trump_pulls_us_out_of_66_international_bodies/nyb6n6p/
+
+A link to a book. But Neil Postman's media book of Reddit high-speed amusement systems is more the problem. Trump is a product of Tweet-culture, Internet antics LOL cow milking.
+
+https://old.reddit.com/r/news/comments/1q6viwm/trump_pulls_us_out_of_66_international_bodies/nyau5f2/
+
+https://old.reddit.com/r/news/comments/1q6viwm/trump_pulls_us_out_of_66_international_bodies/nyauhuk/
+
+https://old.reddit.com/r/news/comments/1q6viwm/trump_pulls_us_out_of_66_international_bodies/nyatple/
+
+Putin. Meeting last year in Alaska with Trump + Putin is never enough for Reddit to remember ALL the times Putin has been buddies and Trump's wild respect for the Kremlin.
+
+https://old.reddit.com/r/news/comments/1q6viwm/trump_pulls_us_out_of_66_international_bodies/nyb3dfj/
+
+Again, this isn't just one man, this is millions. Factual evidence of Putin gets ignored by Reddit society again and again. Elon Musk is doing this, Twitter addict Musk. All this shit started with the lead-up to the February 20, 2014 Ukraine invasion / Ukraine war. Self-harm to USA on the world stage and domestic self-harm (Russia domestic self-harm, USA domestic self-harm) is the outcome of the runaway Surkov monomyth meme patterns since March 2013. Nothing can stop it! September 9, 2014 (18 months after it started): https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/news/comments/1q6viwm/trump_pulls_us_out_of_66_international_bodies/nyayby6/
+
+Joe Biden was too boring for people to teach cult deprogramming from nonfiction books. Trump provides constant Reddit stimulation and action content.
+
+https://old.reddit.com/r/news/comments/1q6viwm/trump_pulls_us_out_of_66_international_bodies/nyb32lt/
+
+The American People will not get to claim they solved the problem by old-age death. All the media addiction and the lack of legendary protest of Reddit audience all becoming serious and organized never happened. People on Reddit and Blue do amusement as usual, sports games, video games, F1 racing, [anything but halt entertainment and say "this problem must be solved! now! Before other priorities!"](/Grim_Blunt/Stop_All_Entertainment.md)
