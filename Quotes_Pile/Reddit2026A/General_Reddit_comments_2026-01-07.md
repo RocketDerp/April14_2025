@@ -239,4 +239,7 @@ https://old.reddit.com/r/Amazing/comments/1q6tg68/this_dad_is_a_legend/nyablwd/
 
 Imagine how many lives the bullying of autistic people on Reddit and gaming systems has ruined. I get "you a bot", "you ChatGPT", "you LLM" all over Reddit in year 2025. Language bigots who can't pass a turning test of real human diversity / neurodiversity. People who react as the billionaires who create LLM systems program people to react. To turn against human persons with Reddit machine lust. The power to use Reddit to humanize diverse people.
 
+https://old.reddit.com/r/SteelyDan/comments/1q6ltjo/the_nightfly_album_cover_edited_with_ai_on_apple/ny8hrfr/
+
+Steely Dan. Apple TV+, Apple Music, Apple iPad, Apple iPhone. Apple News feed.
 
