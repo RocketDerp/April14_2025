@@ -593,3 +593,13 @@ https://old.reddit.com/r/CrazyFuckingVideos/comments/1q7j4do/ice_escalates_viole
 Hive mind Reddit. Mob mentality of tech lovers, technology lust.
 
 * https://www.youtube.com/watch?v=09maaUaRT4M&t=743s Please watch: "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL"
+
+https://old.reddit.com/r/BatmanArkham/comments/1q7lh5k/lets_try_this_again/nygy47a/
+
+https://old.reddit.com/r/todayilearned/comments/1q7kpih/til_about_the_wide_awakes_a_youth_organization/nygovnx/
+
+Back when the eye on top of the Great Seal meant progress "Woke". When ideals and founding fathers were not forgotten.
+
+https://old.reddit.com/r/todayilearned/comments/1q7kpih/til_about_the_wide_awakes_a_youth_organization/nyhbcr2/
+
+Media ecology.
