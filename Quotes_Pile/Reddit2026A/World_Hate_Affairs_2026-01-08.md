@@ -69,3 +69,7 @@ The most weaponized **clergy out-group hate** has been programmed by Surkov stud
 https://old.reddit.com/r/europe/comments/1q7djse/german_president_says_us_is_destroying_world_order/nyfbwg4/
 
 The Internet Research Agency was ramping up in March 2013. It took about 18 months of programming and manipulating content on Reddit / Twitter / Facebook / news comment section audiences (all patterns of filter-bubble hive minds) to fully **prize out-group hate** patterns *every day, all day, not just voting days, not just election topics*. [Surkov won since March 2013. Operation Matthew 4:19 defeated NATO and USA](/Operation_Matthew_4_19_on_monday_2024-03-31.md) and even domestic Russia!
+
+https://old.reddit.com/r/europe/comments/1q7djse/german_president_says_us_is_destroying_world_order/nyeu5mv/
+
+The competitive Cold War with Russia advanced weapon systems and hate mindsets. I worked for TELOS Federal Systems of Santa Monica California in year 1986 when the Cold War was in full force. https://en.wikipedia.org/wiki/Telos_Corporation At the Fort Wayne Indiana office, serving Maxgnavox military hardware projects. I was an apprentice in weapon systems software engineering. A lab student for development of Ada programming education for in-house employees. Very eye opening to have full access to military industry journals and Pentagon contractor training systems. I learned a lot about cyber defense, command and control, etc. The Digital Equipment Corporation (DEC) VAX/VMS days. 
