@@ -509,3 +509,6 @@ https://old.reddit.com/r/50501/comments/1q7m3nt/find_the_murderer/nygqib0/
 
 Reddit audiences eat up their favorite "FAFO" street-gang language of out-group intimidation and out-group hate. Gang signs, gang language. Street gangs of messaging and removing "undesirables". 
 
+https://old.reddit.com/r/comicbooks/comments/1q7bx46/posting_this_for_no_reason_batman_2025_2/nyew0yn/
+
+Reddit audience member incredibly entertained, finds it amusing and funny, when Americans don't understand basic morality lessons. Mocking away at the ignorant people instead of realizing media empires and comics have taught generations to favor action violence. People who prize others being ignorant and celebrating ignorance so they can chuckle how funny the situation is.
