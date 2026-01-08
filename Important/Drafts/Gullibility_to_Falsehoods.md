@@ -20,7 +20,7 @@ My use of English, my language, may seem unusual and broken to people
 
 But my god, hundred of millions of people in United States of America think Donald Trump's language is excellent and trustworthy!  People are so gullible in USA that they believe and trust Donald Trump is accurate and factual. No wonder so many people with autism, autistic persons, are so bewildered.
 
-When an entire society thinks Donald Trump at age 79 is accurate for information, what chance does a 23 year old person with autism have? When everyone in USA society treats Donald Trump as hilarious and funny - something is very sick with EACH and EVERY PERSON in the world who isn't alarmed and disturbed that a liar is being trusted by everyone around them! 
+When an entire society thinks Donald Trump at age 79 is accurate for information, what chance does a 23 year old person with autism have? When everyone in USA society treats Donald Trump as hilarious and funny - something is very sick with EACH and EVERY PERSON in the world who isn't alarmed and disturbed that a liar is being trusted by everyone around them!
 
 Of all the people in the United States of America, people trust Donald Trump above all else for the future of their children. Gullibility of social media consumers is horrific and terrible! People trust RFK Jr too, it is out of control how gullible every person in USA has become.
 
@@ -60,3 +60,13 @@ People are attracted to fiction and falsehoods.
 
 https://www.youtube.com/watch?v=k_JnCWT-_O8
 
+&nbsp;
+
+&nbsp;
+
+# October 19, 2024
+
+Zachary Basu     
+https://www.Axios.com/2024/10/19/musk-ackman-election-misinformation   
+
+[“The truth is, it’s getting harder to describe the extent to which a meaningful percentage of Americans have dissociated from reality,” Charlie Warzel wrote “I’m Running Out of Ways to Explain How Bad This Is.”](https://www.axios.com/2024/10/19/musk-ackman-election-misinformation) - October 19, 2024 - America’s gullibility crisis, Zachary Basu
