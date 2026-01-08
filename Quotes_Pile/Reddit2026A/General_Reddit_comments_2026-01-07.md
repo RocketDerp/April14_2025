@@ -371,3 +371,10 @@ Audience Reddit dream: "Shut up", self-deport, block, silence, crush those you d
 
 The tech lover Reddit hive mind attitude: follow the billionaires, silence the poor people suffering under the Elon Musk Austin Texas leadership of law and legal for the richest and most powerful! The constant promotion of silencing troubled and brain damaged people that Musk and Murdoch media empires fuck-over for Putin since March 2013!
 
+https://old.reddit.com/r/complaints/comments/1q7bmx0/the_rule_says_get_out_of_the_way_he_fired/nye74jx/
+
+Freshly minted Reddit account at the top of comments, incredibly popular comment from new account.
+
+https://old.reddit.com/r/complaints/comments/1q7bmx0/the_rule_says_get_out_of_the_way_he_fired/nye6hs4/
+
+Daddy trump feeds the Reddit audience hive mind. Constantly mocking away at Daddy Figure in the Internet cloud computing images and messaging. Monomyth screenplay of fiction storytelling. Surkov monomyth patterns won since March 2013.
