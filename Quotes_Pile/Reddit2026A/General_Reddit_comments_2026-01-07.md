@@ -538,3 +538,13 @@ Reddit community should halt all entertainment and repeat and keep repeating les
 https://old.reddit.com/r/IASIP/comments/1q7lg7y/how_it_feels_lately/nygfoky/
 
 What's happening here in USA: Russia won an information warfare. Putin and Trump being in a hive mind of anti-USA is no joke! But washing it away with fiction television and meme-think is all Reddit can do. Russia has won. Surkov won since March 2013. Hearts and mins lost, lost minds to Kremlin!
+
+https://old.reddit.com/r/ThatsInsane/comments/1q7hnu7/no_one_can_stop_what_is_coming_we_executed_one_of/nyfltvd/
+
+https://old.reddit.com/r/ThatsInsane/comments/1q7hnu7/no_one_can_stop_what_is_coming_we_executed_one_of/nyflyzv/
+
+https://old.reddit.com/r/ThatsInsane/comments/1q7hnu7/no_one_can_stop_what_is_coming_we_executed_one_of/nyfpwhh/
+
+<img width="784" height="348" alt="image" src="https://github.com/user-attachments/assets/b382fffe-c70d-4110-8dc6-66b80a36ed77" /> Pluribus meaning from Free Masons. Founding fathers meaning **corrupted by QAnon**. Mob mentality anti-reason thinking programming. https://old.reddit.com/r/QAnonRussia <<<<===--- my subreddit to educate Reddit community.
+
+Social post { https://autistics.life/@RoundSparrow/115861786107309430 https://bsky.app/profile/roundsparrow.bsky.social/post/3mbwz22cbtc22 }
