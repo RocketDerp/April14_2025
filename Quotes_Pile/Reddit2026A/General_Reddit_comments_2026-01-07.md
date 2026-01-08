@@ -603,3 +603,10 @@ Back when the eye on top of the Great Seal meant progress "Woke". When ideals an
 https://old.reddit.com/r/todayilearned/comments/1q7kpih/til_about_the_wide_awakes_a_youth_organization/nyhbcr2/
 
 Media ecology.
+
+https://old.reddit.com/r/PoliticalHumor/comments/1q7nvsp/im_so_very_very_tired/nyh2yw8/
+
+https://old.reddit.com/r/PoliticalHumor/comments/1q7nvsp/im_so_very_very_tired/nyhguzg/
+
+Yes. Attraction to hate leaders. Attraction to anti-goodness.
+
