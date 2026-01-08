@@ -548,3 +548,19 @@ https://old.reddit.com/r/ThatsInsane/comments/1q7hnu7/no_one_can_stop_what_is_co
 <img width="784" height="348" alt="image" src="https://github.com/user-attachments/assets/b382fffe-c70d-4110-8dc6-66b80a36ed77" /> Pluribus meaning from Free Masons. Founding fathers meaning **corrupted by QAnon**. Mob mentality anti-reason thinking programming. https://old.reddit.com/r/QAnonRussia <<<<===--- my subreddit to educate Reddit community.
 
 Social post { https://autistics.life/@RoundSparrow/115861786107309430 https://bsky.app/profile/roundsparrow.bsky.social/post/3mbwz22cbtc22 }
+
+https://old.reddit.com/r/clevercomebacks/comments/1q7ew3k/she_was_murdered_by_your_officers/nyey1oj/
+
+https://old.reddit.com/r/clevercomebacks/comments/1q7ew3k/she_was_murdered_by_your_officers/nyey2gc/
+
+https://old.reddit.com/r/clevercomebacks/comments/1q7ew3k/she_was_murdered_by_your_officers/nyf30yn/
+
+https://old.reddit.com/r/clevercomebacks/comments/1q7ew3k/she_was_murdered_by_your_officers/nyf3bb8/
+
+https://old.reddit.com/r/clevercomebacks/comments/1q7ew3k/she_was_murdered_by_your_officers/nyezf3o/
+
+https://old.reddit.com/r/clevercomebacks/comments/1q7ew3k/she_was_murdered_by_your_officers/nyf0hbo/
+
+https://old.reddit.com/r/clevercomebacks/comments/1q7ew3k/she_was_murdered_by_your_officers/nyfajgt/
+
+https://old.reddit.com/r/clevercomebacks/comments/1q7ew3k/she_was_murdered_by_your_officers/nyf170l/
