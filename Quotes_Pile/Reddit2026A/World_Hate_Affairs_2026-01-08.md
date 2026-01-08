@@ -8,6 +8,6 @@ https://old.reddit.com/r/worldnews/comments/1q7c02b/macron_us_is_turning_away_fr
 
 <img width="1070" height="464" alt="image" src="https://github.com/user-attachments/assets/4d071d62-ab6c-4d33-92a1-9f227438a321" /> Surkov won!
 
-* “World War III is a guerrilla information war with no division between military and civilian participation.” – Marshall McLuhan (1970), University of Toronto, Culture is Our Business, page 66
+* “World War III is a guerrilla information war with no division between military and civilian participation.” – [Marshall McLuhan (1970), University of Toronto, Culture is Our Business, page 66](https://McLuhanGalaxy.WordPress.com/2015/01/26/marshall-mcluhan-predicted-the-emerging-infowar/)
 
 Social post { https://autistics.life/@RoundSparrow/115860148216136958 https://bsky.app/profile/roundsparrow.bsky.social/post/3mbwbrbydp22y }
