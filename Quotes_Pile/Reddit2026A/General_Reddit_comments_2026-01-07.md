@@ -300,4 +300,16 @@ Standing up against ALL HATE in ALL PLACES is not a concern. Russia has mind-fuc
 
 * "For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the **true becomes false and the false becomes true**. That's what hate does. You can't see right. **The symbol of objectivity** is lost." - Martin Luther King Jr.
 
+https://old.reddit.com/r/pics/comments/1q7g66n/he_didnt_start_the_fire/nyf9iy2/
 
+https://old.reddit.com/r/pics/comments/1q7g66n/he_didnt_start_the_fire/nyfgt5m/
+
+https://old.reddit.com/r/pics/comments/1q7g66n/he_didnt_start_the_fire/nyf8lze/
+
+The Media. Reddit "The Media" social has been online for over two full decades. Denial of current year 2026 reality abounds on Reddit. As if they are in an echo-chamber / filter-bubble that a Reddit sustained protest would not be covered globally. World Wide Web, WWW, denial itself. As if it is January 1988 and Reddit hasn't been created yet and it's only Slashdot and Fark. So many low-effort commenting thought patterns programmed into Reddit community hive mind.
+
+https://old.reddit.com/r/pics/comments/1q7g66n/he_didnt_start_the_fire/nyfak68/
+
+On Reddit, people call you "mentally unwell" if you disagree with the current year 2026 situation on New Years weekend. People on Reddit get you silenced and shut up, masked moderators and owners, who cover up such removal of messages and people banned from discourse for standing up against mass dehumanization technology billionaire values (Murdoch billionaire, Trump, Putin billionaire, Musk billionaire, all get prized coverage on Reddit social). Hive minded Reddit society with no-identity, masked like I.C.E. that mob mentality / cult programming to Putin media rules. Surkov won since March 2013.
+
+The ENTIRE NATION of United States of America is mentally unwell. Hive mind of Reddit programmed to ignore nonfiction learning and serious study of Kremlin / Putin / Russia information warfare since March 2013. https://www.youtube.com/watch?v=09maaUaRT4M&t=744s Please watch: "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL"
