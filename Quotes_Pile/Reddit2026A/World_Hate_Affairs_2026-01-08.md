@@ -27,3 +27,31 @@ https://old.reddit.com/r/worldnews/comments/1q7dk6r/german_president_says_us_is_
 The faith that it is only a tiny amount of terrorists in Palestine or Pakistan. Makes the whole nation a terrorist nation when people don't actually educate out of terrorists Mosque / terrorists Newsmax / terrorist subreddits / terrorist Facebook training camp / terrorist Fox News HDTV programming of audience minds. 
 
 USA society will not face up that Quran, Bible, Torah, Book of Mormon, L Ron Hubbard are ALL science fiction storytelling. And Truth Social is a fiction-based media venue, as is Reddit a fiction-based media venue. Fiction addiction runs the USA society now. Science thinking and nonfiction abandoned.
+
+https://old.reddit.com/r/worldnews/comments/1q7dk6r/german_president_says_us_is_destroying_world_order/nyeojno/
+
+<img width="817" height="378" alt="image" src="https://github.com/user-attachments/assets/fd8bc25c-3bda-48fb-af1a-88c88405696a" /> Surkov won since March 2013. Woke to *What*, Exactly?
+
+https://old.reddit.com/r/worldnews/comments/1q7dk6r/german_president_says_us_is_destroying_world_order/nyepta7/
+
+New Reddit account.
+
+https://old.reddit.com/r/worldnews/comments/1q7dk6r/german_president_says_us_is_destroying_world_order/nyf0rti/
+
+Putin, Trump - both cheering on denial of science, denial of climate change and over-consumption issues.
+
+https://old.reddit.com/r/worldnews/comments/1q7dk6r/german_president_says_us_is_destroying_world_order/nyevmsm/
+
+Classic long-form Reddit commenting, not Bluesky-length. Alas: no author name, no book title, no URL off-Reddit, no quote from a nonfiction book. People prize Reddit commenting all on scattered different pages and threads within the page. Anti-Wiki, Anti-FAQ, anti "getting on the same page" of critical important topics in favor of commenting.
+
+https://old.reddit.com/r/worldnews/comments/1q7dk6r/german_president_says_us_is_destroying_world_order/nyeu43b/
+
+Surkov won since March 2013. Reddit population can't think to name the "Internet Research Agency" or discuss the timeline of Putin's mental manipulation / executive function mind manipulation of USA.
+
+https://old.reddit.com/r/worldnews/comments/1q7dk6r/german_president_says_us_is_destroying_world_order/nyeoz6k/
+
+https://old.reddit.com/r/worldnews/comments/1q7dk6r/german_president_says_us_is_destroying_world_order/nyeo4d9/
+
+A toxic world of hate seeded by Putin fandom, Putin believers. Gullible nation. [Nation of suckers](../Carl_Sagan_Quotes.md#nation-of-suckers).
+
+* [“The truth is, it’s getting harder to describe the extent to which a meaningful percentage of Americans have dissociated from reality,” Charlie Warzel wrote “I’m Running Out of Ways to Explain How Bad This Is.”](https://www.axios.com/2024/10/19/musk-ackman-election-misinformation) - October 19, 2024 - America’s gullibility crisis, Zachary Basu
