@@ -65,3 +65,7 @@ Social post { https://autistics.life/@RoundSparrow/115860416831256219 https://bs
 https://old.reddit.com/r/europe/comments/1q7djse/german_president_says_us_is_destroying_world_order/nyepjpn/
 
 The most weaponized **clergy out-group hate** has been programmed by Surkov students into new Internet { monomyth / meme / message / John 1:1 } patterns since late 2012, early 2013. [Surkov won since March 2013. Operation Matthew 4:19 defeated NATO and USA](/Operation_Matthew_4_19_on_monday_2024-03-31.md) and even domestic Russia!
+
+https://old.reddit.com/r/europe/comments/1q7djse/german_president_says_us_is_destroying_world_order/nyfbwg4/
+
+The Internet Research Agency was ramping up in March 2013. It took about 18 months of programming and manipulating content on Reddit / Twitter / Facebook / news comment section audiences (all patterns of filter-bubble hive minds) to fully **prize out-group hate** patterns *every day, all day, not just voting days, not just election topics*. [Surkov won since March 2013. Operation Matthew 4:19 defeated NATO and USA](/Operation_Matthew_4_19_on_monday_2024-03-31.md) and even domestic Russia!
