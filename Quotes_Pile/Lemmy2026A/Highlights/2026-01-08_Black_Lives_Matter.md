@@ -2,6 +2,11 @@ https://midwest.social/post/41522603
 
 &nbsp;
 
+<img width="981" height="1618" alt="Screenshot 2026-01-08 at 07-37-50 Celebrities react to Minneapolis shooting &#39;FUCK Ice Forever&#39; - Remember world this went on all year - Black Lives Matter - A White Suburb Woman was killed this time! MAGA values USA media celebrity - midwest soci" src="https://github.com/user-attachments/assets/518033d0-8237-4120-9101-0ab818dd0c3d" />
+
+
+&nbsp;
+
 &nbsp;
 
 Celebrities react to Minneapolis shooting: 'FUCK Ice Forever' - Remember world, this went on all year - Black Lives Matter - A White Suburb Woman was killed this time! MAGA values USA media celebrity
