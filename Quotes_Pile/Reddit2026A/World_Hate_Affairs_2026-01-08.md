@@ -52,6 +52,12 @@ https://old.reddit.com/r/worldnews/comments/1q7dk6r/german_president_says_us_is_
 
 https://old.reddit.com/r/worldnews/comments/1q7dk6r/german_president_says_us_is_destroying_world_order/nyeo4d9/
 
-A toxic world of hate seeded by Putin fandom, Putin believers. Gullible nation. [Nation of suckers](../Carl_Sagan_Quotes.md#nation-of-suckers).
+A toxic world of hate seeded by Putin fandom, Putin believers. Gullible nation. [Nation of suckers](../Carl_Sagan_Quotes.md#nation-of-suckers). Russia has been self-harm to domestic Russia since year 2013, and people can't get mental health professionals to address a whole nation.
 
 * [“The truth is, it’s getting harder to describe the extent to which a meaningful percentage of Americans have dissociated from reality,” Charlie Warzel wrote “I’m Running Out of Ways to Explain How Bad This Is.”](https://www.axios.com/2024/10/19/musk-ackman-election-misinformation) - October 19, 2024 - America’s gullibility crisis, Zachary Basu
+
+https://old.reddit.com/r/worldnews/comments/1q7dk6r/german_president_says_us_is_destroying_world_order/nyf0dp6/
+
+<img width="986" height="298" alt="image" src="https://github.com/user-attachments/assets/6bd408b8-30a6-424b-b461-8cbd6c3945d5" /> Trump is a media content creator since year 1983, leading a nation of media addicts to content. [Surkov won since March 2013. Operation Matthew 4:19 defeated NATO and USA](/Operation_Matthew_4_19_on_monday_2024-03-31.md) and even domestic Russia!
+
+Social post { https://autistics.life/@RoundSparrow/115860416831256219 https://bsky.app/profile/roundsparrow.bsky.social/post/3mbwflfklb22y }
