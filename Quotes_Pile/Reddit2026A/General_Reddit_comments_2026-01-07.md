@@ -360,3 +360,12 @@ Translated from 2013 Russia to USA 2025: I.C.E. raids are very little violence a
 https://old.reddit.com/r/BatmanArkham/comments/1q7elrt/removed_by_reddit/nyf2cv5/
 
 Reddit **audience is wilding**. People so high-energy amped up on high-speed White House action content. Eating right out of the hands of Putin. MAGA is so mind-fucked and everyone on Reddit follows the hate signals and dehumanization billionaire leadership.  Reddit hive minded audience won't face up to the denial: https://www.BBC.com/news/technology-43301643 - Surkov won since March 2013. Reddit users can't see when it all turned sour, went to hell. Russia won. [Operation Matthew 4:19 won against Reddit / MAGA / Twitter / everyone audiences.](/Operation_Matthew_4_19_on_monday_2024-03-31.md)
+
+https://old.reddit.com/r/nottheonion/comments/1q7ehav/texas_becomes_first_state_to_end_american_bar/nyeux27/
+
+Right vs. Left billionaire programmed brainrot. 1-bit logic.
+
+https://old.reddit.com/r/nottheonion/comments/1q7ehav/texas_becomes_first_state_to_end_american_bar/nyex19k/
+
+Audience Reddit dream: "Shut up", self-deport, block, silence, crush those you disagree with into inability to get into filter-bubble of media. "Shut up" nation. MAGA power values on Reddit, masked as anti-MAGA. Silencing "The Little Guy" with Reddit power blocking and banning! Toxic social media USA export. https://en.wikipedia.org/wiki/Filter_bubble
+
