@@ -243,3 +243,41 @@ https://old.reddit.com/r/SteelyDan/comments/1q6ltjo/the_nightfly_album_cover_edi
 
 Steely Dan. Apple TV+, Apple Music, Apple iPad, Apple iPhone. Apple News feed.
 
+https://old.reddit.com/r/complaints/comments/1q71uo7/i_am_icelandic_watching_the_usa_ice_murder/nycsk5c/
+
+Gun worship / gun stroking USA. Never used social media seriously to take on Fox News media. Social media thrives on garbage just like Fox News media thrives on garbage. Reddit addicts, Fox News media addicts.
+
+https://old.reddit.com/r/complaints/comments/1q71uo7/i_am_icelandic_watching_the_usa_ice_murder/nycwbqw/
+
+https://old.reddit.com/r/complaints/comments/1q71uo7/i_am_icelandic_watching_the_usa_ice_murder/nyczfna/
+
+The "something" to do never seems to address that a Television star, an addict to television and Twitter, uses media systems. Trump did not take over this nation with guns, brainrot is the problem. People bitch and bitch about Facebook behavior and Fox News behavior, but will not be serious about nonfiction learning about media systems. Professor Marshall McLuhan, Professor Neil Postman not being taught on Reddit and Bluesky. People do not stand up for education, they do not organize with intellectual teaching of adults.
+
+https://old.reddit.com/r/complaints/comments/1q71uo7/i_am_icelandic_watching_the_usa_ice_murder/nyd0c24/
+
+Anything but turn to nonfiction books on paper.
+
+https://old.reddit.com/r/complaints/comments/1q71uo7/i_am_icelandic_watching_the_usa_ice_murder/nycum5j/
+
+Since year 1983, Trump raised children who are now the "adults in the room". Year 1983, television addicts. Trump is a television addict leading meme addicts. https://www.newyorker.com/magazine/2017/07/31/the-tv-that-created-donald-trump
+
+https://old.reddit.com/r/complaints/comments/1q71uo7/i_am_icelandic_watching_the_usa_ice_murder/nycczj7/
+
+Insane raging hate-filled hate-worshiping population. It all started March 3013 with a Russian media invasion of Reddit that Reddit users will never blame. Surkov won!!!
+
+https://old.reddit.com/r/complaints/comments/1q71uo7/i_am_icelandic_watching_the_usa_ice_murder/nyciog2/
+
+Nothing would entertain television addicts more than Reality TV behaviors. Anything to avoid nonfiction learning and study of Russian information warfare since year 2013.
+
+https://old.reddit.com/r/complaints/comments/1q71uo7/i_am_icelandic_watching_the_usa_ice_murder/nycgrz1/
+
+6 months new Reddit account.
+
+https://old.reddit.com/r/complaints/comments/1q71uo7/i_am_icelandic_watching_the_usa_ice_murder/nycddzq/
+
+<img width="986" height="247" alt="image" src="https://github.com/user-attachments/assets/5e333abf-642f-4b70-aaab-a7a2e5a84ca1" /> The majority of Americans hate. Cults of hate. Worship of hate. Show me the ones who don't hate. show me the people who recognize hate is the very problem of USA.
+
+* February 28, 1954: "Most people can't stand up for their convictions, because the majority of people might not be doing it. See, everybody's not doing it, so it must be wrong. And since everybody is doing it, it must be right. So a sort of numerical interpretation of what's right. But I'm here to say to you this morning that some things are right and some things are wrong. Eternally so, absolutely so. **It's wrong to hate.** It always has been wrong and it always will be wrong. It's wrong in America, it's wrong in Germany, it's wrong in Russia, it's wrong in China. It was wrong in 2000 B.C., and it's wrong in 1954 A.D. It always has been wrong, and it always will be wrong." - Martin Luther King Jr.
+
+* "For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the **true becomes false and the false becomes true**. That's what hate does. You can't see right. **The symbol of objectivity** is lost." - Martin Luther King Jr.
+
