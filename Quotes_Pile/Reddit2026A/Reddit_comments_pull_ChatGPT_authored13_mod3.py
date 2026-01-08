@@ -91,7 +91,7 @@ def parse_markdown_entries(filepath):
 #   https://github.com/Goldziher/html-to-markdown
 def convert_html_to_md(div):
     global errorCountB
-	
+    
     if div is None:
         print("got empty div, missing comment?")
         errorCountB += 1
@@ -116,15 +116,15 @@ def convert_html_to_md(div):
 
 def fetch_comment_data(url, idx=None, args=None):
     global fetchRedditCountA
-	
+    
     # params
     # save_html_folder=None, check_saved_first=True
     use_hover=True
     fetch_user_info=not args.no_user_info
     save_html_folder=args.fetched_html_folder
     check_saved_first=args.check_saved_first
-	
-	
+    
+    
     path_parts = urlparse(url).path.strip("/").split("/")
     if len(path_parts) < 6:
         raise ValueError(f"URL does not appear to include a comment ID: {url}")
@@ -160,7 +160,7 @@ def fetch_comment_data(url, idx=None, args=None):
 
 
     if html_text is None:
-		# no HTML loaded from local storage, do live Internet fetch
+        # no HTML loaded from local storage, do live Internet fetch
         fetchRedditCountA += 1
         res = requests.get(url, headers=HEADERS)
         fetch_time_epoch = int(time.time())
@@ -185,7 +185,7 @@ def fetch_comment_data(url, idx=None, args=None):
 
     print(f"processing comment {comment_id}")
 
-	# Find the nested div that contains all child/reply comments and remove it
+    # Find the nested div that contains all child/reply comments and remove it
     replies = comment_div.find("div", class_="child")
     if replies:
         replies.decompose()
@@ -231,6 +231,32 @@ def fetch_comment_data(url, idx=None, args=None):
         else:
             live_fetch = True
             account_date, bio = fetch_user_info_full(author)
+            
+    post_title, post_account, post_body = None, None, None
+    # for now, there is no applicaiton param to control, so hard-ware to true
+    if 1:
+        # 1. Get the Posting Title
+        # On old.reddit, the post title is typically an <a> tag with class "title"
+        title_tag = soup.find("a", class_="title")
+
+        if title_tag:
+            post_title = title_tag.get_text()
+        else:
+            post_title = "Title not found"
+
+        # 2. Get the Posting Body (Self-text)
+        # The main post text is usually inside a 'usertext-body' div within 'topmatter'
+        top_matter = soup.find("div", class_="topmatter")
+        body_div = None
+
+        if top_matter:
+            body_div = top_matter.find("div", class_="usertext-body")
+
+        if body_div:
+            post_body = body_div.get_text(strip=True)
+        else:
+            post_body = "No body text (link-only post)"
+
 
     return {
         "url": url,
@@ -245,6 +271,8 @@ def fetch_comment_data(url, idx=None, args=None):
         "link_karma": link_karma,
         "comment_karma": comment_karma,
         "live_fetch": live_fetch,
+        "post_title": post_title,
+        "post_body": post_body,
     }
 
 
@@ -431,13 +459,15 @@ def main():
             f"Entry {idx} ({idx - start}/{total}) - URL: {url}",
             f"Comment ID:      {data['comment_id']}",
             f"Author:          {data['author']}",
+            f"Bio:             {data['bio']}",
             f"Account Created: {data['account_created']}",
             f"Link Karma:      {data['link_karma']}",
             f"Comment Karma:   {data['comment_karma']}",
-            f"Bio:             {data['bio']}",
             f"Comment Age:     {data['comment_age']}",
             f"Timestamp:       {data['comment_timestamp']}",
             f"Score:           {data['score']}",
+            f"Post Title:      {data['post_title']}",
+            f"Post Body:       {data['post_body']}",            
             f":::::: Reddit User Comment: ======\n{data['comment']}"
         ]
 
