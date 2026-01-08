@@ -173,7 +173,7 @@ September 9 2014, 3:42 PM ET
 
 Translated from 2013 Russia to USA 2025: I.C.E. raids are very little violence and a lot of showboating. A lot of Reddit front-page I.C.E. raids for visual meme addicts / meme consumers. Simple-think logic polarity minds. Snark bout "reality" on the audience commenting mind, but no recognition that Kremlin and White House has the Reddit total control of media amplifiers. Reddit is amplifying media from all over the Internet. Eating the onions that Trump and Musk is dementia stupid dumb idiot, Reddit society unable to engage and comprehend and understand off-Reddit... September 9, 2014: https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ - joking to "imagine" / dream up fiction of anti-reality, dreamland. Anything to avoid learning / grasping nonfiction Russian information warfare history and techniques.
 
-Peter Pomerantsev boos on paper since year 2014, NOBODY on Reddit quoting nonfiction books!!!
+Peter Pomerantsev books on paper since year 2014, NOBODY on Reddit quoting nonfiction books!!!
 
 https://old.reddit.com/r/clevercomebacks/comments/1q77svm/abolish_the_rogue_agency_ice_now/nydfncm/
 
