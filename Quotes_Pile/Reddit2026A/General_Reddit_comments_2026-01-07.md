@@ -564,3 +564,20 @@ https://old.reddit.com/r/clevercomebacks/comments/1q7ew3k/she_was_murdered_by_yo
 https://old.reddit.com/r/clevercomebacks/comments/1q7ew3k/she_was_murdered_by_your_officers/nyfajgt/
 
 https://old.reddit.com/r/clevercomebacks/comments/1q7ew3k/she_was_murdered_by_your_officers/nyf170l/
+
+https://old.reddit.com/r/ABoringDystopia/comments/1q7mqoz/jonathan_ross_ice_agent_who_murdered_an_american/nyh3ov2/
+
+fork() bombing Reddit audiences with new Fox News HDTV clips to mock and insult. Endless prizing of hate leaders.
+
+https://old.reddit.com/r/ABoringDystopia/comments/1q7mqoz/jonathan_ross_ice_agent_who_murdered_an_american/nygv7vh/
+
+Putin won an information war against social media systems, Reddit inclusive, but people are in massively deep psychological denial. Anonymous no-identity Reddit commenting mind-fucked the audience into predictable reaction patterns. Year 2014:
+
+Russia and the **Menace of Unreality**   
+How Vladimir Putin is revolutionizing information warfare   
+Peter Pomerantsev   
+September 9 2014, 3:42 PM ET   
+
+* “If previous authoritarian regimes were three parts violence and one part propaganda,” argues Igor Yakovenko, a professor of journalism at the Moscow State Institute of International Relations, “this one is **virtually all propaganda and relatively little violence**. Putin only needs to make a few arrests—and then amplify the message through his total control of television.”
+
+Translated from 2013 Russia to USA 2025: I.C.E. raids are very little violence and a lot of showboating. A lot of Reddit front-page I.C.E. raids for visual meme addicts / meme consumers. No recognition that Kremlin and White House has the Reddit total control of media amplifiers. Reddit is amplifying media from all over the Internet. Eating the onions that Trump and Musk is dementia stupid dumb idiot, Reddit society unable to engage and comprehend and understand off-Reddit... September 9, 2014: https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
