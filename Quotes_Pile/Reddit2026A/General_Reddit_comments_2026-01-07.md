@@ -432,3 +432,29 @@ https://old.reddit.com/r/CuratedTumblr/comments/1q7gv00/we_need_to_reject_antiin
 https://old.reddit.com/r/CuratedTumblr/comments/1q7gv00/we_need_to_reject_antiintellectualism_as_the_tool/nyfkb6p/
 
 https://old.reddit.com/r/CuratedTumblr/comments/1q7gv00/we_need_to_reject_antiintellectualism_as_the_tool/nyflx5e/
+
+https://old.reddit.com/r/CuratedTumblr/comments/1q7gv00/we_need_to_reject_antiintellectualism_as_the_tool/nyfgrh5/
+
+mocking
+
+https://old.reddit.com/r/PublicFreakout/comments/1q7bgjo/dhsice_agents_in_sacramento_ca_kicks_over_a/nye9edq/
+
+https://old.reddit.com/r/PublicFreakout/comments/1q7bgjo/dhsice_agents_in_sacramento_ca_kicks_over_a/nye5gxc/
+
+https://old.reddit.com/r/PublicFreakout/comments/1q7bgjo/dhsice_agents_in_sacramento_ca_kicks_over_a/nyeh5xf/
+
+https://old.reddit.com/r/PublicFreakout/comments/1q7bgjo/dhsice_agents_in_sacramento_ca_kicks_over_a/nyebib4/
+
+https://old.reddit.com/r/PublicFreakout/comments/1q7bgjo/dhsice_agents_in_sacramento_ca_kicks_over_a/nye65di/
+
+mass man
+
+https://old.reddit.com/r/PublicFreakout/comments/1q7bgjo/dhsice_agents_in_sacramento_ca_kicks_over_a/nyeoohv/
+
+https://old.reddit.com/r/PublicFreakout/comments/1q7bgjo/dhsice_agents_in_sacramento_ca_kicks_over_a/nye6smv/
+
+https://old.reddit.com/r/PublicFreakout/comments/1q7bgjo/dhsice_agents_in_sacramento_ca_kicks_over_a/nye82l3/
+
+https://old.reddit.com/r/PublicFreakout/comments/1q7bgjo/dhsice_agents_in_sacramento_ca_kicks_over_a/nyen7m5/
+
+denial abounds
