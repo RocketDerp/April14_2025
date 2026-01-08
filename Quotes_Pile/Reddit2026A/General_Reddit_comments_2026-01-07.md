@@ -478,3 +478,15 @@ Mixing film ICE Age branding / subconscious audience previous associations with 
 https://old.reddit.com/r/news/comments/1q7m9ic/ice_officer_who_fatally_shot_woman_in_minneapolis/nygma21/
 
 [Self-harm USA behavior, *hate harder* programming from Kremlin](/PostMalala/Surkovian/Self_Harm_for_Everyone.md). Exactly what Kremlin has induced with social information systems. I bet he uses social media since year 2013 at least a few times. 
+
+https://old.reddit.com/r/complaints/comments/1q7mqcc/jonathan_ross_is_a_fucking_murderer/nygvpec/
+
+https://old.reddit.com/r/complaints/comments/1q7mqcc/jonathan_ross_is_a_fucking_murderer/nygzdq7/
+
+https://old.reddit.com/r/complaints/comments/1q7mqcc/jonathan_ross_is_a_fucking_murderer/nyh00yd/
+
+https://old.reddit.com/r/complaints/comments/1q7mqcc/jonathan_ross_is_a_fucking_murderer/nygwhc1/
+
+Reddit machine messages of anti-forgiveness. MAGA values of *never forgive* programming on Reddit. Short-length Tweet-length messaging for tech society lovers. Technical mindsets of logic of welding hate permanently and not addressing the *Hate Harder* programming Russia has fed into Reddit since March 2013. Simple-think reactionary out-group hate gaming / screen gaming / sports gaming / sports mentality. Playing right into Kremlin hands.
+
+* "the real danger confronting civilization today is that atomic bomb which lies in the hearts and souls of men, capable of **exploding into the vilest of hate and into the most damaging selfishness** — that's the atomic bomb that we've got to fear today. Problem is **with the men**. Within the **heart and the souls of men**. That is the real basis of our problem." - [February 28, 1954](../Martin_Luther_King_Jr_quotes0.md)
