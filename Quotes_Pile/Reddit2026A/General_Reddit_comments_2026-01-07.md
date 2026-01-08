@@ -534,3 +534,7 @@ https://old.reddit.com/r/Fauxmoi/comments/1q7myad/mayor_jacob_frey_on_backlash_f
 https://old.reddit.com/r/Fauxmoi/comments/1q7myad/mayor_jacob_frey_on_backlash_from_republicans_for/nygudlq/
 
 Reddit community should halt all entertainment and repeat and keep repeating lessons on Bible literacy. "1 John 3:17" should be known by every person in USA age 12 to age 120. Instead of commenting all on different pages, repeat the same Bible literacy teaching and help rescue MAGA from Putin Trumpism.
+
+https://old.reddit.com/r/IASIP/comments/1q7lg7y/how_it_feels_lately/nygfoky/
+
+What's happening here in USA: Russia won an information warfare. Putin and Trump being in a hive mind of anti-USA is no joke! But washing it away with fiction television and meme-think is all Reddit can do. Russia has won. Surkov won since March 2013. Hearts and mins lost, lost minds to Kremlin!
