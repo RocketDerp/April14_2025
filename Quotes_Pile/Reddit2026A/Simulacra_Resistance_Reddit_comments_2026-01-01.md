@@ -160,4 +160,16 @@ https://old.reddit.com/r/PublicFreakout/comments/1q6sd6t/things_are_getting_seri
 
 Headline on Reddit: "things are getting serious". They have been serious crisis since June 16, 2015 - people are attracted to the chaos and self-harm of Trump. What's serious is that We The People on social media won't turn to nonfiction teaching and nonfiction education to address the addictions to fiction and drama content on meme sites.
 
+https://old.reddit.com/r/clevercomebacks/comments/1q77svm/abolish_the_rogue_agency_ice_now/nyderuk/
+
+"Roasted by Reality", Reddit prizing Elon Musk content to mock back. This is eating right out of the hands of Twitter owner Musk with a low-effort junk information Twitter message. [Everything Carl Sagan said i 1995 book is in this Twitter message on front page top of /r/All Reddit](/April14_2025/blob/main/Quotes_Pile/Carl_Sagan_Quotes.md). This is low-effort "we win, Reddit!" ignorance.
+
+Russia and the **Menace of Unreality**   
+How Vladimir Putin is revolutionizing information warfare   
+Peter Pomerantsev   
+September 9 2014, 3:42 PM ET   
+
+“If previous authoritarian regimes were three parts violence and one part propaganda,” argues Igor Yakovenko, a professor of journalism at the Moscow State Institute of International Relations, “this one is **virtually all propaganda and relatively little violence**. Putin only needs to make a few arrests—and then amplify the message through his total control of television.”
+
+Translated from 2013 Russia to USA 2025: I.C.E. raids are very little violence and a lot of showboating. A lot of Reddit front-page I.C.E. raids for visual meme addicts / meme consumers. Simple-think logic polarity minds. Self-deport from Corporate America, Costco is the Reddit total control of media amplifiers. Reddit is amplifying media from all over the Internet. Eating the onions that Trump is stupid dumb, Reddit society unable to engage and comprehend and understand off-Reddit... September 9, 2014: https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ - cheering on the mental patterns of I.C.E. deporting immigrants, self-deporting of Americans from Costco. Anything to avoid learning / grasping nonfiction Russian information warfare history and techniques.
 
