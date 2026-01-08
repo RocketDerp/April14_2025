@@ -400,3 +400,19 @@ Liberal vs. conservative brainrot. Founding Fathers did not put it into Constitu
 https://old.reddit.com/r/PoliticalHumor/comments/1q7iegf/everyday_is_getting_sadder_and_sadder/nygk5ii/
 
 Denial abounds. Media addiction (to fiction) mindsets wipe out reality.
+
+https://old.reddit.com/r/PoliticalHumor/comments/1q7iegf/everyday_is_getting_sadder_and_sadder/nyfui0m/
+
+https://old.reddit.com/r/PoliticalHumor/comments/1q7iegf/everyday_is_getting_sadder_and_sadder/nygaztu/
+
+https://old.reddit.com/r/politics/comments/1q7jham/hours_after_us_citizen_shot_dead_by_ice_jd_vance/nyfz428/
+
+https://old.reddit.com/r/politics/comments/1q7jham/hours_after_us_citizen_shot_dead_by_ice_jd_vance/nyg0442/
+
+https://old.reddit.com/r/politics/comments/1q7jham/hours_after_us_citizen_shot_dead_by_ice_jd_vance/nyg3esj/
+
+6 month recent Reddit account.
+
+https://old.reddit.com/r/politics/comments/1q7jham/hours_after_us_citizen_shot_dead_by_ice_jd_vance/nyg4ydo/
+
+6 month recent Reddit account.
