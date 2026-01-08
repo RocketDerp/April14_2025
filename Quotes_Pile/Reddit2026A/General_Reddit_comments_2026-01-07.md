@@ -392,3 +392,7 @@ https://old.reddit.com/r/PoliticalHumor/comments/1q7iegf/everyday_is_getting_sad
 So often... *only under the mask of humor subreddit* does the media addiction message from across the Atlantic ocean come to the Reddit hive mind. Everyone hiding from the media addiction Fox News HDTV and Reddit live streaming fiction addictions. Neil Postman inspired Roger Waters.
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mbwtqzdqcc2l https://autistics.life/@RoundSparrow/115861413163120589 }
+
+https://old.reddit.com/r/PoliticalHumor/comments/1q7iegf/everyday_is_getting_sadder_and_sadder/nyfr34h/
+
+Liberal vs. conservative brainrot. Founding Fathers did not put it into Constitution, Deceleration, Free Masons Great Seal USA teaching. A hive mind system from monarchy King of France mindsets.
