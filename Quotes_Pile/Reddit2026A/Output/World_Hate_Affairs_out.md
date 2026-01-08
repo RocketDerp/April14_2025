@@ -1,12 +1,12 @@
 
 
-================================================================================
+=============
   
 ## Reddit comment nyedmjs
 
-    entry {idx} ({idx - start}/{total})
+    entry 1 (1/2)
 
-Comment URL: {url}  
+Comment URL: https://old.reddit.com/r/worldnews/comments/1q7c02b/macron_us_is_turning_away_from_allies/nyedmjs/  
 Comment ID:      nyedmjs  
 Author:          Complex-Sherbert9699  
 Bio:               
@@ -27,13 +27,13 @@ It's exactly what Putin wants and has been trying to do for some time.
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mbwbil7qpk2y https://autistics.life/@RoundSparrow/115860127467565015 }
 
 
-================================================================================
+=============
   
 ## Reddit comment nyehey7
 
-    entry {idx} ({idx - start}/{total})
+    entry 2 (2/2)
 
-Comment URL: {url}  
+Comment URL: https://old.reddit.com/r/worldnews/comments/1q7c02b/macron_us_is_turning_away_from_allies/nyehey7/  
 Comment ID:      nyehey7  
 Author:          bgdvvllr  
 Bio:               
