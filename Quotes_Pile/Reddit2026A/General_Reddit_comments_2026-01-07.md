@@ -386,3 +386,9 @@ Front page of Reddit. The posting is FULL of meme-washing comments. Using fictio
 https://old.reddit.com/r/science/comments/1q7lh8z/sudden_drop_in_fentanyl_overdose_deaths_linked_to/nygkjgm/
 
 Audiences prize insane high-energy Twitter messaging. All over /r/All front page, screenshots of Tweets. [Everything is now Media Ecology self-awareness. Billionaires know insane messaging works on Reddit meme consumers.](/Media_Ecology/Everything_is_ME.md)
+
+https://old.reddit.com/r/PoliticalHumor/comments/1q7iegf/everyday_is_getting_sadder_and_sadder/nyfuf39/
+
+So often... *only under the mask of humor subreddit* does the media addiction message from across the Atlantic ocean come to the Reddit hive mind. Everyone hiding from the media addiction Fox News HDTV and Reddit live streaming fiction addictions. Neil Postman inspired Roger Waters.
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mbwtqzdqcc2l https://autistics.life/@RoundSparrow/115861413163120589 }
