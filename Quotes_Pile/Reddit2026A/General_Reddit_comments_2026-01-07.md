@@ -396,3 +396,7 @@ Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mbwtqzdqcc
 https://old.reddit.com/r/PoliticalHumor/comments/1q7iegf/everyday_is_getting_sadder_and_sadder/nyfr34h/
 
 Liberal vs. conservative brainrot. Founding Fathers did not put it into Constitution, Deceleration, Free Masons Great Seal USA teaching. A hive mind system from monarchy King of France mindsets.
+
+https://old.reddit.com/r/PoliticalHumor/comments/1q7iegf/everyday_is_getting_sadder_and_sadder/nygk5ii/
+
+Denial abounds. Media addiction (to fiction) mindsets wipe out reality.
