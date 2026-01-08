@@ -189,3 +189,10 @@ Now USA people will spread war and disease when they travel overseas. American e
 
 https://old.reddit.com/r/news/comments/1q4w9uq/us_drops_the_number_of_vaccines_it_recommends_for/
 
+&nbsp;
+
+Meme addicts of the world will drown this progressive diplomacy progress:
+
+https://old.reddit.com/r/science/comments/1q7lh8z/sudden_drop_in_fentanyl_overdose_deaths_linked_to/
+
+High-speed junk information will quickly wipe that from the hive minds (mindsets) of meme consumers.
