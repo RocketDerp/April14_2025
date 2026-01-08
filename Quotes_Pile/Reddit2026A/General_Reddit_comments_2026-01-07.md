@@ -378,3 +378,7 @@ Freshly minted Reddit account at the top of comments, incredibly popular comment
 https://old.reddit.com/r/complaints/comments/1q7bmx0/the_rule_says_get_out_of_the_way_he_fired/nye6hs4/
 
 Daddy trump feeds the Reddit audience hive mind. Constantly mocking away at Daddy Figure in the Internet cloud computing images and messaging. Monomyth screenplay of fiction storytelling. Surkov monomyth patterns won since March 2013.
+
+https://old.reddit.com/r/IThinkYouShouldLeave/comments/1q7cpuo/charlie_kirk_gets_shot_in_the_neck_conservatives/nyg160n/
+
+Front page of Reddit. The posting is FULL of meme-washing comments. Using fiction Television to meme-wash sane-wash ICE and MAGA. Audience members so engaged to have ICE / MAGA / Surkov students (Surkov monomyth patterns) to mock and insult. Feedback loops of hate vs. hate, hate for hate, *hate harder* between Reddit and Fox News HDTV media platform / Truth Social audience. An entire nation, over 300 million people, of meme addicts to fiction trash that prize Trump for hate leadership signals.
