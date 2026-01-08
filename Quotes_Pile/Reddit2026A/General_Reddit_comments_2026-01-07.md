@@ -186,3 +186,51 @@ https://old.reddit.com/r/politics/comments/1q6ut66/trump_isnt_just_defending_ice
 
 <img width="867" height="300" alt="image" src="https://github.com/user-attachments/assets/acb7abfd-6f11-4b4e-94bf-86fbfae4af23" /> People are marching to the drum-beat of Trump media / White House Kremlin media / Surkov students. Wildly reacting. Gullible population that will not stand up to the media addiction that is the foundation of Fox News Pentagon values and Celebrity Reality TV stardom attraction. 
 
+https://old.reddit.com/r/videos/comments/1q6w0ew/he_told_us_nearly_10_years_ago_i_could_stand_in/nyavaml/
+
+Because Russia won an information war since March 2013. Reddit invaded. Denial abounds. Hearts and minds programmed to cheer on self-harm as if a shootout is happening in a fiction movie. Surkov won.
+
+https://old.reddit.com/r/videos/comments/1q6w0ew/he_told_us_nearly_10_years_ago_i_could_stand_in/nyb1jak/
+
+year 2013 Reddit was much more interested in topics besides Donald Trump every hour of every day. Year 2012 and earlier Reddit was a useful service with people sharing nonfiction learning and mass mind sanity. But mob mentality of meme addiction to Trump-Putin mindsets too over when the Internet Research Agency fed their shit into Reddit since March 2013. Surkov won.
+
+https://old.reddit.com/r/videos/comments/1q6w0ew/he_told_us_nearly_10_years_ago_i_could_stand_in/nyaz1fu/
+
+And thrilling the hell out of Reddit audiences watching MAGA suffer.
+
+https://old.reddit.com/r/videos/comments/1q6w0ew/he_told_us_nearly_10_years_ago_i_could_stand_in/nyaya9d/
+
+https://old.reddit.com/r/videos/comments/1q6w0ew/he_told_us_nearly_10_years_ago_i_could_stand_in/nyayq9h/
+
+People who praise ignorance and meme junk on Reddit normalized Trump. Attraction to mocking Trump, hate messaging Trump, total high-speed media engagement.
+
+https://old.reddit.com/r/videos/comments/1q6w0ew/he_told_us_nearly_10_years_ago_i_could_stand_in/nyb1a85/
+
+Prizing hate. Love media machines of Reddit systems, hate persons. MLK Jr entirely ignored on teaching why this is terrible.
+
+https://old.reddit.com/r/videos/comments/1q6w0ew/he_told_us_nearly_10_years_ago_i_could_stand_in/nyb3qh8/
+
+https://old.reddit.com/r/videos/comments/1q6w0ew/he_told_us_nearly_10_years_ago_i_could_stand_in/nyb3htu/
+
+The ENTIRE NATION of the USA, not just One Man, looks like meme addicts. 4Chan and Reddit and Musk Twitter garbage on the world stage. Drunk on meme trash.
+
+https://old.reddit.com/r/videos/comments/1q6w0ew/he_told_us_nearly_10_years_ago_i_could_stand_in/nybacnk/
+
+MAGA is less than 50 percent, MAGA is the hate target of Reddit. Non-MAGA is the hate target of Facebook. It's all media vs. media. Fox News vs. MSNBC. Russia seeded every group to hate each other. Surkov won since March 2013. Subreddit vs. subreddit. ANYTHING to avoid hard serious nonfiction learning of Kremlin methods and media ecology.
+
+* “Today, reports of the day’s events are conveyed to the viewing public by way of alternate universes, The Fox News cable channel conveys its version of reality, while at the other end of the ideological spectrum MSNBC presents its version. They and their many counterparts on radio are more the result of an economic dynamic than a political one. Dispatching journalists into the field to gather information costs money; hiring a glib bloviator is relatively cheap, and inviting opinionated guests to vent on the air is entirely cost-free. It wouldn’t work if it weren’t popular, and audiences, it turns out, are endlessly absorbed by hearing amplified echoes of their own biases. It’s divisive and damaging to the healthy functioning of our political system, but it’s also indisputably inexpensive and, therefore, good business.”
+― Ted Koppel. Lights Out: A Cyberattack, A Nation Unprepared, Surviving the Aftermath. October 27, 2015. Page 13.
+
+https://old.reddit.com/r/videos/comments/1q6w0ew/he_told_us_nearly_10_years_ago_i_could_stand_in/nyb3fpn/
+
+Putin still has elections and voting. 25 years of voting for Putin in power. People in USA have abandoned nonfiction, truth, reality in favor of Internet Research Agency conditioned mindsets. Surkov won since March 2013.
+
+https://old.reddit.com/r/videos/comments/1q6w0ew/he_told_us_nearly_10_years_ago_i_could_stand_in/nyb89gg/
+
+https://old.reddit.com/r/videos/comments/1q6w0ew/he_told_us_nearly_10_years_ago_i_could_stand_in/nyb4k5s/
+
+Charlie Kirk was cheered on. All bad, all the time. People prizing teams of hate. Hate for hate, hate vs. hate, *hate Harder* of every person in the USA>
+
+https://old.reddit.com/r/videos/comments/1q6w0ew/he_told_us_nearly_10_years_ago_i_could_stand_in/nyb97pv/
+
+Fiction addiction drives the USA. Nonfiction reality was too boring. Book quotes get attacked on Reddit.
