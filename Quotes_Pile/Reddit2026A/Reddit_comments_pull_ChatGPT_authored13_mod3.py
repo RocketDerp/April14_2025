@@ -255,7 +255,8 @@ def fetch_comment_data(url, idx=None, args=None):
             if body_div:
                 post_body = body_div.get_text(strip=True)
             else:
-                post_body = "No body text (link-only post)"
+                # leave as "None" ... post_body = "No body text (link-only post)"
+                print("no post body top_matter usertext-body found")
 
         else:
             print("no post body top_matter found")
@@ -475,7 +476,6 @@ def main():
             f"Timestamp:       {data['comment_timestamp']}",
             f"Score:           {data['score']}",
             f"Post Title:      {data['post_title']}",
-            f"Post Body:       {data['post_body']}",            
             f":::::: Reddit User Comment: ======\n{data['comment']}"
         ]
 
