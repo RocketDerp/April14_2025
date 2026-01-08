@@ -505,11 +505,22 @@ def main():
                     print("Exiting after pause after live fetch")
                     sys.exit(0)
 
-    if errorCountA + errorCountB > 0:
-        print(f"\nERRORS encountered! Final error counts, A: {errorCountA} B: {errorCountB}")
 
-    if (fetchRedditCountA > 0):
-        print(f"Live fetch to Reddit count: {fetchRedditCountA}")
+    endtime_dt_object = datetime.datetime.now(datetime.timezone.utc)
+    # Format the datetime object into an ISO 8601 string with milliseconds
+    endtime_iso_with_ms = endtime_dt_object.isoformat(timespec='milliseconds')
+
+    with open('Output/run_summary0.txt', 'a') as summaryfile:
+        summaryfile.write(f"{args.output}\n")
+        summaryfile.write(f"{endtime_iso_with_ms}\n")
+        
+        if errorCountA + errorCountB > 0:
+            print(f"\nERRORS encountered! Final error counts, A: {errorCountA} B: {errorCountB}")
+            summaryfile.write(f"\nERRORS encountered! Final error counts, A: {errorCountA} B: {errorCountB}")
+
+        if (fetchRedditCountA > 0):
+            print(f"Live fetch to Reddit count: {fetchRedditCountA}")
+            summaryfile.write(f"Live fetch to Reddit count: {fetchRedditCountA}")
 
 
 if __name__ == "__main__":
