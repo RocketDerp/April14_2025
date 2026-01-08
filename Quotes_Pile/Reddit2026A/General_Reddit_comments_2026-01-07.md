@@ -416,3 +416,19 @@ https://old.reddit.com/r/politics/comments/1q7jham/hours_after_us_citizen_shot_d
 https://old.reddit.com/r/politics/comments/1q7jham/hours_after_us_citizen_shot_dead_by_ice_jd_vance/nyg4ydo/
 
 6 month recent Reddit account.
+
+https://old.reddit.com/r/CuratedTumblr/comments/1q7gv00/we_need_to_reject_antiintellectualism_as_the_tool/nyffky0/
+
+https://old.reddit.com/r/CuratedTumblr/comments/1q7gv00/we_need_to_reject_antiintellectualism_as_the_tool/nyfg4js/
+
+https://old.reddit.com/r/CuratedTumblr/comments/1q7gv00/we_need_to_reject_antiintellectualism_as_the_tool/nyfr3h7/
+
+https://old.reddit.com/r/CuratedTumblr/comments/1q7gv00/we_need_to_reject_antiintellectualism_as_the_tool/nygf3kx/
+
+"it is self-evident that the problem is there"
+
+https://old.reddit.com/r/CuratedTumblr/comments/1q7gv00/we_need_to_reject_antiintellectualism_as_the_tool/nyfjw3d/
+
+https://old.reddit.com/r/CuratedTumblr/comments/1q7gv00/we_need_to_reject_antiintellectualism_as_the_tool/nyfkb6p/
+
+https://old.reddit.com/r/CuratedTumblr/comments/1q7gv00/we_need_to_reject_antiintellectualism_as_the_tool/nyflx5e/
