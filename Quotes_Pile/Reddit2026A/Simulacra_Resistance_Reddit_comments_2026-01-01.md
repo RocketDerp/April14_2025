@@ -155,3 +155,9 @@ This commenting you see all over Reddit isn't resisting, it is being right in th
 https://old.reddit.com/r/complaints/comments/1q6ff9j/trump_is_hitler_and_america_is_turning_into_1930s/ny7ipm9/
 
 Yes. This is correct. Needs links off-Reddit, needs quotes from books, need author names. But it is correct. Putin and Trump are not { idiot, dumb, moron, stupid, baby, child, toddler } - they have out-smarted the entire Reddit community. I created this subreddit to educate: April 29, 2019 https://old.reddit.com/r/WhiteHouseSurkovMedia
+
+https://old.reddit.com/r/PublicFreakout/comments/1q6sd6t/things_are_getting_serious_tim_walz_is_now/nya4gbz/
+
+Headline on Reddit: "things are getting serious". They have been serious crisis since June 16, 2015 - people are attracted to the chaos and self-harm of Trump. What's serious is that We The People on social media won't turn to nonfiction teaching and nonfiction education to address the addictions to fiction and drama content on meme sites.
+
+
