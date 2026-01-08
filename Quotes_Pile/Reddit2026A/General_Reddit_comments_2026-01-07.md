@@ -512,3 +512,11 @@ Reddit audiences eat up their favorite "FAFO" street-gang language of out-group 
 https://old.reddit.com/r/comicbooks/comments/1q7bx46/posting_this_for_no_reason_batman_2025_2/nyew0yn/
 
 Reddit audience member incredibly entertained, finds it amusing and funny, when Americans don't understand basic morality lessons. Mocking away at the ignorant people instead of realizing media empires and comics have taught generations to favor action violence. People who prize others being ignorant and celebrating ignorance so they can chuckle how funny the situation is.
+
+https://old.reddit.com/r/politics/comments/1q7mqgp/ice_agent_who_shot_renee_nicole_good_identified/nygqnmn/
+
+https://old.reddit.com/r/politics/comments/1q7mqgp/ice_agent_who_shot_renee_nicole_good_identified/nygrn0p/
+
+https://old.reddit.com/r/politics/comments/1q7mqgp/ice_agent_who_shot_renee_nicole_good_identified/nygsr8f/
+
+Reddit tech loving messages, machine think: *Hate harder*, *Hate thy Enemy*, *Hate thy Neighbor* all in one message. Morality from no-identity Reddit society, monster state values.
