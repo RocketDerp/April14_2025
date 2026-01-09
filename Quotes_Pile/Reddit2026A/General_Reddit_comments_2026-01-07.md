@@ -1040,3 +1040,12 @@ https://old.reddit.com/r/Fauxmoi/comments/1q8dqb6/stephen_colbert_on_the_ice_mur
 The whole world needs to take all the mental health workers and point them to the Middle East normalization of hate. Dr. Martin Luther King Jr's reformations have been in the public library since the 1950's. Hate is toxic middle east values that people prize far too often. A woman named Dr. Bandy X. Lee is active and people ignore her teachings on MANY world leaders!
 
 * "the real danger confronting civilization today is that atomic bomb which lies in the hearts and souls of men, capable of **exploding into the vilest of hate and into the most damaging selfishness** — that's the atomic bomb that we've got to fear today. Problem is **with the men**. Within the **heart and the souls of men**. That is the real basis of our problem." - [February 28, 1954](../Martin_Luther_King_Jr_quotes0.md)
+
+https://old.reddit.com/r/pics/comments/1q8iuxy/renee_nicole_good_saying_her_final_words_to_her/nynshos/
+
+This post made the Reddit /r/All front page in 21 minutes or so.
+
+https://old.reddit.com/r/pics/comments/1q8iuxy/renee_nicole_good_saying_her_final_words_to_her/nyntf8g/
+
+Woman are to be controlled and "put in their place" under Levant male domination horrible reading (interpretation) of Christian Bible.
+
