@@ -733,3 +733,14 @@ USA mob mentality mental heath and ability to organize around mental health prof
 * "In 2017, Lee organized a conference at Yale on the mental health of Donald Trump with the participation of other psychiatrists" https://en.wikipedia.org/wiki/Bandy_X._Lee
 
 But a cat reading a newspaper is how USA society gets advice, not from a professional to rally around. Dr. Bandy X Lee.
+
+https://old.reddit.com/r/minnesota/comments/1q7s5ny/pastor_i_said_to_this_ice_agent_take_me_stop/nyi2q4d/
+
+https://old.reddit.com/r/minnesota/comments/1q7s5ny/pastor_i_said_to_this_ice_agent_take_me_stop/nyi66am/
+
+Just like the Pluribus 2025 TV show mockery subreddits. Intimidation, mocking, anti-goodness is the MAGA USA 2026 values. Founding Fathers teachings of Free Masons / Free Thinking mindsets unwelcome and systemically bullied. Organized bully street gangs of media systems.
+
+https://old.reddit.com/r/minnesota/comments/1q7s5ny/pastor_i_said_to_this_ice_agent_take_me_stop/nyij494/
+
+If you are a preacher / pastor / clergy stand up for The Little Guy in the face of billionaires - cruelty will be prized by all addicts to Trump images and Trump words. The media hive minds, media cults, are raging for hate of outer cults.
+
