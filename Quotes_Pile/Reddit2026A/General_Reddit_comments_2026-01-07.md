@@ -828,3 +828,25 @@ A nation that traded comprehension for meme jokes and mocking / mockery / endles
 https://old.reddit.com/r/TikTokCringe/comments/1q89qti/this_is_crazy/nylx5il/
 
 MLK Jr's reformations of global / world wide Levant { Torah, Bible, Quran } literacy has been tossed into trash / junked since March 2013 in USA.
+
+https://old.reddit.com/r/politics/comments/1q87lvl/it_sure_looks_like_the_trump_administration_is/nylbnij/
+
+Humor casting to the Reddit audience. Laugh-track for television audiences, Reddit social audiences laugh-track. "LOL". Washing away White House serious problems with mind resets of giggles and LOL meme-think. Casting minds in the audience into entertainment and thrilling content comedy show. Eating out of Surkov student hands since March 2013.
+
+https://old.reddit.com/r/politics/comments/1q87lvl/it_sure_looks_like_the_trump_administration_is/nylp87a/
+
+We The People, everyday people, are anti-Wiki anti-FAQ anti "named list* of specific concerns. ["Brainrot Society 47" type effort is needed, decade overdue!](/PostMalala/Assert_Malala/Brainrot_Society_47.md) OPERA_A https://youtu.be/D1QtEC5oBX4?list=PLlVsYGOydVm3q8wGSY72atkALdT05j0NN&t=223 1,785,778 views July 29, 2018 
+
+https://old.reddit.com/r/politics/comments/1q87lvl/it_sure_looks_like_the_trump_administration_is/nyl8ekg/
+
+Freshly minted Reddit account on serious USA issues.
+
+https://old.reddit.com/r/politics/comments/1q87lvl/it_sure_looks_like_the_trump_administration_is/nylf4g7/
+
+Fiction outsells to Reddit audience of fiction addicts. Every topic in the world gets drowned by fiction meme addicts. Nonfiction does not sell to people addicted to stimulation speed over understanding. The conflicts are prized, being all on different Reddit / Subreddit postings and commenting. Anti-Wiki anti-FAQ. ["Brainrot Society 47" type effort is needed, decade overdue!](/PostMalala/Assert_Malala/Brainrot_Society_47.md) 
+
+https://old.reddit.com/r/politics/comments/1q87lvl/it_sure_looks_like_the_trump_administration_is/nylc8wn/
+
+<img width="957" height="419" alt="image" src="https://github.com/user-attachments/assets/90d2b86c-949a-4928-b996-10bbdab0c724" /> Good observation of techniques. Draining situational public context of depth, shallowing it up, ultra mockery. What Reddit meme aficionado audiences prize { anti-depth. Shallowness, superficial }.
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mbyy7eiwv222 https://autistics.life/@RoundSparrow/115866233063139921 }
