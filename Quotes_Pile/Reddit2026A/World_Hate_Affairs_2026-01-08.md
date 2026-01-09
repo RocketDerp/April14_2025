@@ -145,3 +145,31 @@ Laugh track for Reddit audiences. "LOL"
 https://old.reddit.com/r/europe/comments/1q8hcpx/uk_threatened_with_sanctions_if_britain_bans/nyngea5/
 
 Bullies win in USA. Reddit thrives on no-identity bullying. Elon Musk Twitter values / Truth Social values.
+
+https://old.reddit.com/r/worldnews/comments/1q8l3rw/trump_we_are_going_to_do_something_on_greenland/nyo9s5u/
+
+https://old.reddit.com/r/worldnews/comments/1q8l3rw/trump_we_are_going_to_do_something_on_greenland/nyofp67/
+
+Reddit entertainment addicts won't stand up to entertainment addictions.
+
+https://old.reddit.com/r/worldnews/comments/1q8l3rw/trump_we_are_going_to_do_something_on_greenland/nyocjyb/
+
+https://old.reddit.com/r/worldnews/comments/1q8l3rw/trump_we_are_going_to_do_something_on_greenland/nyon79b/
+
+Fox News HDTV shit is the choice. Low-effort Reddit commenting is the choice. This problem goes so far beyond government.
+
+https://old.reddit.com/r/worldnews/comments/1q8l3rw/trump_we_are_going_to_do_something_on_greenland/nyopbby/
+
+https://old.reddit.com/r/worldnews/comments/1q8l3rw/trump_we_are_going_to_do_something_on_greenland/nyohvze/
+
+Compulsive behaviors driven by entertainment addiction. Normal healthy leaders are considered "boring" to fiction addiction audiences (like Reddit, inclusive of Blueksy and Reddit).
+
+https://old.reddit.com/r/worldnews/comments/1q8l3rw/trump_we_are_going_to_do_something_on_greenland/nyoqe8u/
+
+https://old.reddit.com/r/worldnews/comments/1q8l3rw/trump_we_are_going_to_do_something_on_greenland/nyo9o6l/
+
+Putin values, and audiences who won't cite nonfiction learning on the problem.
+
+https://old.reddit.com/r/worldnews/comments/1q8l3rw/trump_we_are_going_to_do_something_on_greenland/nyoa01h/
+
+Reddit doesn't know how to engage nonfiction anymore. We All are unable to turn to serious sustained focus on what is important.
