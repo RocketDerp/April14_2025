@@ -1095,3 +1095,13 @@ https://old.reddit.com/r/news/comments/1q8hy0a/cell_phone_video_from_ice_officer
 
 Bible is 2,000 years old and USA population can't find verse "1 John 3:17" and "1 John 4:20" and repeat it until everyone is on the same page, same sentence of the book! Let alone any other media. We can't read a 2,000 year old book that is printed everywhere, let alone the latest PLURIBUS TV show or a Reddit comment! Tower of Babel rules USA since March 2013. Surkov monomyth patterns defeated USA hearts and minds!
 
+https://old.reddit.com/r/complaints/comments/1q8hgp6/that_fucker_shot_her_in_the_face_three_times_held/nynkpqa/
+
+Being stressed around killers who are armed and hyper hate-filled is normal.
+
+https://old.reddit.com/r/complaints/comments/1q8hgp6/that_fucker_shot_her_in_the_face_three_times_held/nynik3m/
+
+https://old.reddit.com/r/complaints/comments/1q8hgp6/that_fucker_shot_her_in_the_face_three_times_held/nyniwsv/
+
+De-escalate with a person who loves the machine, loves the bullet technology, more than human persons. Tech lust nation. Elon Musk tech leadership society.
+
