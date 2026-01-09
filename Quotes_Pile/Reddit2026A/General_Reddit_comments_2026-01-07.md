@@ -811,3 +811,10 @@ https://old.reddit.com/r/TikTokCringe/comments/1q89qti/this_is_crazy/nym0el3/
 
 Bible literacy crisis. All social media users should be repeating and repeat Bible verse "1 John 3:17" and "1 John 4:20" until every person in North America and South America knows it and can recite them. Teach please!
 
+https://old.reddit.com/r/TikTokCringe/comments/1q89qti/this_is_crazy/nylv1h2/
+
+https://old.reddit.com/r/TikTokCringe/comments/1q89qti/this_is_crazy/nylrnhf/
+
+https://old.reddit.com/r/TikTokCringe/comments/1q89qti/this_is_crazy/nylx6zu/
+
+Bible literacy crisis in North America. "The "least of these" verse refers to Matthew 25:40, where Jesus states, "Truly I tell you, whatever you did for one of the least of these brothers and sisters of mine, you did for me," emphasizing that serving the poor, needy, or marginalized is serving Him directly, often interpreted as fellow believers in need, but also generally as the vulnerable." - Google Search summary 2026-01-09
