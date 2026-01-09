@@ -990,3 +990,7 @@ Tiny-short Reddit comments governing the mindsets. Conformity governing.
 https://old.reddit.com/r/law/comments/1q8dmv1/q_do_you_see_any_checks_on_your_power_on_the/nymo566/
 
 9 month Reddit account.
+
+https://old.reddit.com/r/law/comments/1q8dmv1/q_do_you_see_any_checks_on_your_power_on_the/nymnaek/
+
+The Founding Fathers crafted the Great Seal of the United States of America to teach proper interpretation of everything and anything! And Americans tossed it away in favor of Russian Surkov monomyth since March 2013! Even Vince Gilligan's PLUR1BUS TV show isn't good enough to take serious. Minute 37 of co-pilot Episode Two on Air Force One the POTUS Seal is pointing to right-wing of the eagle bird. And people can't seriously discuss this!
