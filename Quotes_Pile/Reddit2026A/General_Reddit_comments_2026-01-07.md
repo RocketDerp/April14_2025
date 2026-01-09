@@ -744,3 +744,18 @@ https://old.reddit.com/r/minnesota/comments/1q7s5ny/pastor_i_said_to_this_ice_ag
 
 If you are a preacher / pastor / clergy stand up for The Little Guy in the face of billionaires - cruelty will be prized by all addicts to Trump images and Trump words. The media hive minds, media cults, are raging for hate of outer cults.
 
+https://old.reddit.com/r/DiscussionZone/comments/1q7mc82/the_minnesota_star_tribune_has_identified_the/nygrsai/
+
+Tiny-short mocking Reddit comment messages. Reddit used to be intelligent discussion and sharing, now it's just hate Americans messaging. Don't rescue MAGA less-educated rural population, just abuse them like Rupert Murdoch abuses MAGA fandom. People give the A-OK for billionaires to fuck over their less-educated rural neighbors, because it is so amusing to meme consumers to mock other people.
+
+https://old.reddit.com/r/DiscussionZone/comments/1q7mc82/the_minnesota_star_tribune_has_identified_the/nyhk26c/
+
+He provides entertainment to so many people who prize hate. Goodness and nonfiction are not popular in USA, but teaching hate values / hate prizing from billionaire media followers keeps expanding!
+
+https://old.reddit.com/r/DiscussionZone/comments/1q7mc82/the_minnesota_star_tribune_has_identified_the/nygvcxc/
+
+Billionaires provide the A.I. that Reddit users desire. Tech addiction society.
+
+https://old.reddit.com/r/DiscussionZone/comments/1q7mc82/the_minnesota_star_tribune_has_identified_the/nyguxk0/
+
+The entire world thinks the USA follows mentally ill leaders. Multiple elections. Gun worship, guns are entertainment, society. Taking over other nations in year 2026 out of boredom and need to act tough.
