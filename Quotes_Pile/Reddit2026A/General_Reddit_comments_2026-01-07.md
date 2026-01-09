@@ -638,3 +638,23 @@ https://old.reddit.com/r/news/comments/1q7sd12/2_shot_by_federal_agents_in_portl
 
 Nobody has been able to resist the Internet Research Agency programming to hate-upon and harm USA interest. Anti-goodness anti-learning anti-understanding is prized in USA society now.
 
+https://old.reddit.com/r/minnesota/comments/1q7p6nd/mods_removed_my_last_post_conservative_counter/nyhnl3r/
+
+People do not want honest moderators or honest leaders of the USA. Audiences want to silence people outside their filter-bubble / block lists / deport immigrants / deport "the other groups" list. Free thinkers are not wanted in USA society currently. They get mocked away, driven off.
+
+https://old.reddit.com/r/minnesota/comments/1q7p6nd/mods_removed_my_last_post_conservative_counter/nyhckax/
+
+Superficial and shallow judgement based on appearances. Tiny-short technology machine lovers of computer gaming / rapid reaction gamers / sports game fandoms. It is sickening to see people gleefully dehumanize USA people with powerful government systems and powerful information systems.
+
+https://old.reddit.com/r/minnesota/comments/1q7p6nd/mods_removed_my_last_post_conservative_counter/nyhml1o/
+
+MAGA sex life fanatics. Always prizing Epstein sex details, private jet sex lives of the rich and famous and MAGA. QAnon junk information finds a ready crowd (meme audiences) waiting to hear about Pizzagate / "Q" drops about sex topics.
+
+https://old.reddit.com/r/minnesota/comments/1q7p6nd/mods_removed_my_last_post_conservative_counter/nyhn4li/
+
+It is how like MAGA can spot sexual deviants and homosexuals from glances of a photograph. MAGA values, rapid sexual sizing and value of a person base on their virginity status. Do audiences of meme sites these days have iPhone apps to measure sex life based on photographs of people?
+
+https://old.reddit.com/r/minnesota/comments/1q7p6nd/mods_removed_my_last_post_conservative_counter/nyhmug2/
+
+Organized club violence is considered a fun team sport now. The out-group hate clubs for every superficial and banal reason to promote hate and violence. A society, a nation, that prizes hate and discourages forgiveness and reformation. Anti-MLKjr USA 2026.
+
