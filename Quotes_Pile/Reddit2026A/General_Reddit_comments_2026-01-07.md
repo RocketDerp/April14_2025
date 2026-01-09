@@ -902,3 +902,16 @@ https://old.reddit.com/r/news/comments/1q8cdb6/texas_hands_over_complete_list_of
 <img width="735" height="425" alt="image" src="https://github.com/user-attachments/assets/65c65b61-4774-4258-ab94-28c1b2dc86eb" /> Internet Research Agency programmed minds to laugh on demand when self-harm USA is executive function of government. Surkov won since March 2013.
 
 Social post { https://autistics.life/@RoundSparrow/115866491174482007 https://bsky.app/profile/roundsparrow.bsky.social/post/3mbz3vmsf2c2l }
+
+https://old.reddit.com/r/news/comments/1q8cdb6/texas_hands_over_complete_list_of_registered/nyme1yf/
+
+https://old.reddit.com/r/news/comments/1q8cdb6/texas_hands_over_complete_list_of_registered/nymer7t/
+
+https://old.reddit.com/r/news/comments/1q8cdb6/texas_hands_over_complete_list_of_registered/nymfepu/
+
+5-month Reddit account. ANYTHING to avoid quoting a nonfiction book on Reddit comment section. ANYTHING to avoid the NATO wide warnings since year 2013 about Ukraine war and information warfare on Reddit itself. ANYTHING to face up that it isn't domestic. That it is social media. A massive inconvenient admission of truth to the Reddit audience: https://www.bbc.com/news/technology-43301643 of non-identity comment creators.
+
+https://old.reddit.com/r/news/comments/1q8cdb6/texas_hands_over_complete_list_of_registered/nymgva5/
+
+Reddit audience shows how rapid TCP/IP networks allow Twitter-length reaction comments. Anything to avoid getting on the same page in an information war, education war. Anti-Wiki Anti-FAQ, junk commenting at super high speeds!
+
