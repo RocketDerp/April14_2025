@@ -769,3 +769,31 @@ https://old.reddit.com/r/worldnews/comments/1q7t8y7/if_it_expires_it_expires_tru
 Recent Reddit account. Americans won't do anything because they are so narcotized by high-speed information systems, meme delivery networks like Reddit, that they can't see Trump is a meme addict too. Egoism / Egomania running the USA nation. Mass psychosis / mob mentality in many many flavors.
 
 * "For all his perspicacity, George Orwell would have been stymied by this situation; there is nothing “Orwellian” about it. The President does not have the press under his thumb. The New York Times and The Washington Post are not Pravda; the Associated Press is not Tass. And there is no Newspeak here. Lies have not been defined as truth nor truth as lies. **All that has happened is that the public has adjusted to incoherence and been amused** into indifference. Which is why Aldous Huxley would not in the least be surprised by the story. Indeed, he prophesied its coming. He believed that it is far more likely that the Western democracies will dance and dream themselves into oblivion than march into it, single file and manacled. Huxley grasped, as Orwell did not, that it is not necessary to conceal anything from a public insensible to contradiction and **narcoticized by tech**nological diversions. Although Huxley did not specify that television would be our main line to the drug, he would have no difficulty accepting Robert MacNeil’s observation that “Television is the soma of Aldous Huxley’s Brave New World.” Big Brother turns out to be Howdy Doody." ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, **year 1985**, page 111
+
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1q7x7sf/jesse_ventura_on_the_right_side_of_history_yet/nyjjzhb/
+
+Putin and Trump is a fact-based evidence-based conspiracy. Rupert Murdoch and Elon Musk manipulating the rural less-education population is a fact-based evidence-based conspiracy.
+
+https://old.reddit.com/r/worldnews/comments/1q7xwup/trump_suggests_us_will_begin_to_strike_drug/nyje6yb/
+
+Yes. So many people claim that the politicians are doing zero, nothing. Blind to the harm and cheering going on.
+
+https://old.reddit.com/r/worldnews/comments/1q7xwup/trump_suggests_us_will_begin_to_strike_drug/nyjyt9b/
+
+https://old.reddit.com/r/worldnews/comments/1q7xwup/trump_suggests_us_will_begin_to_strike_drug/nyk0fqb/
+
+https://old.reddit.com/r/worldnews/comments/1q7xwup/trump_suggests_us_will_begin_to_strike_drug/nyk1tmk/
+
+Reddit users see that people ca not interpret at 2,000 year old storybook. But somehow believe that interpretation of Reddit comments or Fox News HDTV is fine. Interpretation of EVERYTHING becomes a problem when people fail to find goodness in The Bible. MLK Jr is by no means unknown or unheard of in the world.
+
+https://old.reddit.com/r/worldnews/comments/1q7xwup/trump_suggests_us_will_begin_to_strike_drug/nykivhj/
+
+Asserting actual reality to all the meme addicts who think nothing has happened yet. So many people living in "amusement as usual", anything to deny the hate all around.
+
+https://old.reddit.com/r/worldnews/comments/1q7xwup/trump_suggests_us_will_begin_to_strike_drug/nyjkq5m/
+
+https://old.reddit.com/r/politics/comments/1q7wcff/jeopardy_host_ken_jennings_fiery_post_about_trump/nyjp5r0/
+
+Bible literacy and science fiction literacy are a huge crisis. Fiction addicts who support MAGA as a fiction entertainment source.
+
