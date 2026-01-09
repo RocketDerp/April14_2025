@@ -1049,3 +1049,16 @@ https://old.reddit.com/r/pics/comments/1q8iuxy/renee_nicole_good_saying_her_fina
 
 Woman are to be controlled and "put in their place" under Levant male domination horrible reading (interpretation) of Christian Bible.
 
+https://old.reddit.com/r/pics/comments/1q8iuxy/renee_nicole_good_saying_her_final_words_to_her/nynruwv/
+
+It makes Reddit users rage when I quote Martin Luther King Jr. February sermon about all hate being bad. Hate is prized. Tech love, machine love, lust for gun worship society. Technology gun vs. technology car mindset Shooting into the car.
+
+https://old.reddit.com/r/pics/comments/1q8iuxy/renee_nicole_good_saying_her_final_words_to_her/nynssn0/
+
+<img width="988" height="269" alt="image" src="https://github.com/user-attachments/assets/2deb8c9b-d115-4749-b2e8-a1e92ab972b3" /> Over 16 year Reddit user. Video game is it, sports mentality, gamer mentality, gaming mindset. Reddit will not face that Marshall McLuhan and Neil Postman are urgently needed to rescue USA from what the IRA seeded since March 2013! ARG / Gamers simulacra.
+
+Social post { https://autistics.life/@RoundSparrow/115867084016925166 https://bsky.app/profile/roundsparrow.bsky.social/post/3mbzedec4j22m }
+
+https://old.reddit.com/r/pics/comments/1q8iuxy/renee_nicole_good_saying_her_final_words_to_her/nyntkbc/
+
+Entertainment. Anti-reality. ARG. Gaming mindsets, sports mentality.
