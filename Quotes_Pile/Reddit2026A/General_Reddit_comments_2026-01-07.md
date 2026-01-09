@@ -623,3 +623,18 @@ Anti-forgiveness, *Hate Harder*. Tech love Reddit, person hate, forgiveness hate
 https://old.reddit.com/r/MurderedByWords/comments/1q7pn7w/those_pearly_gates/nyhi4wt/
 
 Bible literacy remedial teaching is essential. Science fiction story literacy is i very bad shape in USA society.
+
+https://old.reddit.com/r/news/comments/1q7sd12/2_shot_by_federal_agents_in_portland_sources/nyi4tye/
+
+The Reddit hive mind Twitter-length thinking pattern. That one single person is responsible for all of ICE and MAGA movement. Entire denial of Elon Musk, Rupert Murdoch, Donald Trump's huge operations. Every person in their own filter-bubble, like some who think it is "Epstein" behind all the motivations. The wild self-harm anti-learning anti-goodness movement seems tied to Cambridge Analytica and Internet Research Agency, and **the part USA people won't hear** is that MULTIPLE NATIONS have provided analysis of Cambridge Analytica and IRA activities to manipulate minds into self-harm.
+
+https://old.reddit.com/r/news/comments/1q7sd12/2_shot_by_federal_agents_in_portland_sources/nyi18ll/
+
+Fiction storytelling outsells nonfiction. Audiences have abandoned nonfiction learning.
+
+https://old.reddit.com/r/news/comments/1q7sd12/2_shot_by_federal_agents_in_portland_sources/nyi2qso/
+
+https://old.reddit.com/r/news/comments/1q7sd12/2_shot_by_federal_agents_in_portland_sources/nyi0cuu/
+
+Nobody has been able to resist the Internet Research Agency programming to hate-upon and harm USA interest. Anti-goodness anti-learning anti-understanding is prized in USA society now.
+
