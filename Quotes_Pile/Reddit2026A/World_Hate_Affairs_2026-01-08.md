@@ -81,3 +81,20 @@ https://old.reddit.com/r/europe/comments/1q7djse/german_president_says_us_is_des
 People mock and mockery about Trump's casino losses. But Trump is all about riling up media addict audiences. Hurrah's casino, NYC SNL (Trump's home city of SNL Kaufman media techniques). See Tony Clifton techniques that Donald Trump has mastered. Audiences on Reddit eat this shit and find it all hilariously entertaining and engaging: https://www.youtube.com/watch?v=JKTR8Yj5hg4 237,162 views September 3, 2006
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mbwrm2om6k2d https://autistics.life/@RoundSparrow/115861265777797718 }
+
+https://old.reddit.com/r/europe/comments/1q7njoc/a_new_poll_has_found_that_germans_now_distrust/nygwa1p/
+
+https://old.reddit.com/r/europe/comments/1q7njoc/a_new_poll_has_found_that_germans_now_distrust/nyhmkwe/
+
+Reddit loves Donald goodness. he is an actor, and entertainer, since 1938 "This Old House" on Television networks. Now on social meme networks every hour of every day. An actor and crowd pleasing media magnet providing content has always been his talent and skill. We The People, audience of over 0.34 billion Americans, have a huge massive media addiction problem to terrible information sources.
+
+https://old.reddit.com/r/europe/comments/1q7njoc/a_new_poll_has_found_that_germans_now_distrust/nyhdyx5/
+
+https://old.reddit.com/r/europe/comments/1q7njoc/a_new_poll_has_found_that_germans_now_distrust/nyh2v1m/
+
+https://old.reddit.com/r/europe/comments/1q7njoc/a_new_poll_has_found_that_germans_now_distrust/nyh9568/
+
+https://old.reddit.com/r/europe/comments/1q7njoc/a_new_poll_has_found_that_germans_now_distrust/nyh32k0/
+
+Kremlin mind-fuck is very powerful. Look at MAGA and Reddit audiences. Anti-goodness.
+
