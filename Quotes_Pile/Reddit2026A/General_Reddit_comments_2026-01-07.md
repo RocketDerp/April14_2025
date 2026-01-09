@@ -976,3 +976,17 @@ https://old.reddit.com/r/law/comments/1q8dmv1/q_do_you_see_any_checks_on_your_po
 https://old.reddit.com/r/law/comments/1q8dmv1/q_do_you_see_any_checks_on_your_power_on_the/nymm8t7/
 
 No call for intellectual defense. Avoidance of serious people like Dr. Bandy X Lee to unfuck (rescue) the nation mindsets from Russia's information warfare outcomes.
+
+https://old.reddit.com/r/law/comments/1q8dmv1/q_do_you_see_any_checks_on_your_power_on_the/nymonr3/
+
+Alas, we sold out to Twitter-length SMS-length thinking patterns. The so often parroted "brevity is wit" Hamfest Hamlet thinking (misunderstanding of Hamlet) bullshit. Diverse diversity of over 300 million people in a world of over 8 billion doesn't cram into Reddit comments that don't even scratch the surface of the problem and more polish it for shine.
+
+https://old.reddit.com/r/law/comments/1q8dmv1/q_do_you_see_any_checks_on_your_power_on_the/nyn1sq0/
+
+Tiny-short Reddit comments governing the mindsets. Conformity governing. 
+
+* "No nation keeps its word. A nation is a big, blind worm, following what? Fate perhaps. A nation has no honour, it has no word to keep. ... **Hitler is himself the nation.** That incidentally is why Hitler always has to talk so loud, even in private conversation — because he is speaking with 78 million voices." - Dr. Carl G Jung. During an interview with H. R. Knickerbocker. year 1939
+
+https://old.reddit.com/r/law/comments/1q8dmv1/q_do_you_see_any_checks_on_your_power_on_the/nymo566/
+
+9 month Reddit account.
