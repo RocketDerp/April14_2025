@@ -98,3 +98,15 @@ https://old.reddit.com/r/europe/comments/1q7njoc/a_new_poll_has_found_that_germa
 
 Kremlin mind-fuck is very powerful. Look at MAGA and Reddit audiences. Anti-goodness.
 
+https://old.reddit.com/r/UnderReportedNews/comments/1q85siy/german_president_steinmeier_the_united_states_has/nykx6hp/
+
+We Carry Each Other. *Pale Blue Dot* pride!
+
+https://old.reddit.com/r/UnderReportedNews/comments/1q85siy/german_president_steinmeier_the_united_states_has/nykvuer/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1q85siy/german_president_steinmeier_the_united_states_has/nykyrji/
+
+Epstein sex addicts only think about fucking each other. We need to RESCUE Trump, Rescue MAGA, Rescue Friends, Rescue Humanity from runaway Surkov monomyth!
+
+https://old.reddit.com/r/UnderReportedNews/comments/1q85siy/german_president_steinmeier_the_united_states_has/nykxxl4/
+
