@@ -1069,3 +1069,29 @@ https://old.reddit.com/r/pics/comments/1q8iuxy/renee_nicole_good_saying_her_fina
 
 Right vs. left mindsets, branrot one-bit logic.
 
+https://old.reddit.com/r/news/comments/1q8hy0a/cell_phone_video_from_ice_officer_shows_fatal/nynjs56/
+
+Got her shut-up. Block-happy deport-happy ICE values USA. Silencing people with blocking, banning, guns, deportation.  A nation programmed with intimate touch device BLOCK OTHERS mentality. 
+
+https://old.reddit.com/r/news/comments/1q8hy0a/cell_phone_video_from_ice_officer_shows_fatal/nynnthc/
+
+[Everything MAGA is media ecology.](/Media_Ecology/Everything_is_ME.md)
+
+https://old.reddit.com/r/news/comments/1q8hy0a/cell_phone_video_from_ice_officer_shows_fatal/nynr0gg/
+
+MAGA sexual fantasy messaging in Reddit audience.
+
+https://old.reddit.com/r/news/comments/1q8hy0a/cell_phone_video_from_ice_officer_shows_fatal/nynk77y/
+
+https://old.reddit.com/r/news/comments/1q8hy0a/cell_phone_video_from_ice_officer_shows_fatal/nynkh61/
+
+https://old.reddit.com/r/news/comments/1q8hy0a/cell_phone_video_from_ice_officer_shows_fatal/nyns4be/
+
+https://old.reddit.com/r/news/comments/1q8hy0a/cell_phone_video_from_ice_officer_shows_fatal/nynlbsg/
+
+Video of fiction is all the time on Reddit, TV, Twitter, Facebook, Cinema. Fiction is very popular. Having something on recorded video or film doesn't make it realty. Addicts to fiction discard nonfiction serious books and content. Addiction rules, meme addicts want fiction.
+
+https://old.reddit.com/r/news/comments/1q8hy0a/cell_phone_video_from_ice_officer_shows_fatal/nynl9ys/
+
+Bible is 2,000 years old and USA population can't find verse "1 John 3:17" and "1 John 4:20" and repeat it until everyone is on the same page, same sentence of the book! Let alone any other media. We can't read a 2,000 year old book that is printed everywhere, let alone the latest PLURIBUS TV show or a Reddit comment! Tower of Babel rules USA since March 2013. Surkov monomyth patterns defeated USA hearts and minds!
+
