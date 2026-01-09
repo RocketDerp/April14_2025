@@ -1150,3 +1150,25 @@ https://old.reddit.com/r/pics/comments/1q8l6vk/an_actual_christian_woman_renee_g
 Left vs. Right brain-rot. Literal vs. Metaphor is the crisis! Read James Joyce. Fiction vs. NonFiction!
 
 * “Half the people in the world think that the metaphors of their religious traditions, for example, are facts. And the other half contends that they are not facts at all. As a result we have people who consider themselves believers because they accept metaphors as facts, and we have others who classify themselves as atheists because they think religious metaphors are lies.” ― Joseph Campbell, Thou Art That: Transforming Religious Metaphor
+
+https://old.reddit.com/r/pics/comments/1q8l6vk/an_actual_christian_woman_renee_good_on_a_mission/nyocxse/
+
+My fucking God, does Reddit not stand up to the boogyman of Christ stories and Trump fiction storytelling! Trump Bible, signed! MAGA is driven by fiction Fox News HDTV and Reddit can't bring up Jen Senko either!
+
+https://old.reddit.com/r/pics/comments/1q8l6vk/an_actual_christian_woman_renee_good_on_a_mission/nyodvbg/
+
+The Great Seal of the United States of America, Deism Founding Fathers. That We the People dishonor by not standing and bearing witness of our founding fathers... the science thinking and pursuit of equality ideals.
+
+https://old.reddit.com/r/pics/comments/1q8l6vk/an_actual_christian_woman_renee_good_on_a_mission/nyod610/
+
+https://old.reddit.com/r/pics/comments/1q8l6vk/an_actual_christian_woman_renee_good_on_a_mission/nyohil2/
+
+Just look at the crap on the Reddit profile, account age.
+
+https://old.reddit.com/r/pics/comments/1q8l6vk/an_actual_christian_woman_renee_good_on_a_mission/nyok22u/
+
+https://old.reddit.com/r/pics/comments/1q8l6vk/an_actual_christian_woman_renee_good_on_a_mission/nyocqa6/
+
+<img width="1000" height="469" alt="image" src="https://github.com/user-attachments/assets/3d512229-a7ad-42f9-8043-a568af417b3b" /> Mind blown by comedy on Reddit. Finding MAGA hilarious. Symbolism blows Reddit minds into joke humor-washing MAGA and Trump, again and again. South Park serves to empower Putin and Trump. ANYTHING to avoid learning media addition behaviors of MAGA via Marshall McLuhan and Neil Postman!
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mbzmtydmdk2a https://autistics.life/@RoundSparrow/115867682088187380 }
