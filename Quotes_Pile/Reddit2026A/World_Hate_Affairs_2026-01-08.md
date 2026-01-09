@@ -119,3 +119,7 @@ https://old.reddit.com/r/goodnews/comments/1q85ut5/all_of_this_all_of_the_time_g
 https://old.reddit.com/r/goodnews/comments/1q85ut5/all_of_this_all_of_the_time_gavin_newsom_wake_up/nylgets/
 
 The problem with social media is people will not get on **the same page** of important information. There is no sense of common priority all on the same page. Anti-FAQ, Anti-Wiki, anti-organization. [**Brainrot Society 47** measures needed and long long overdue](/PostMalala/Assert_Malala/Brainrot_Society_47.md)!
+
+https://old.reddit.com/r/law/comments/1q8dmv1/q_do_you_see_any_checks_on_your_power_on_the/nymlhqa/
+
+top-voted comment. Posting: "On The World Stage", runaway Levant monomyth in Trump's media head. John 1:1 - Surkov won. Only We The People can stop the runaway Surkov monomyth patterns. Russia no longer controls them, LLM systems do. The ELIZA effect controls MAGA now, via TV news writers using [LLM systems trained on Internet Research Agency and Cambridge Analytica mindfuck messages and memes. Please, CLICK THIS LINK TO GET DETAILS!!](../Cambridge_Analytica_Quotes.md).
