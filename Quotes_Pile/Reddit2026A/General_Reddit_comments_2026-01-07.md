@@ -966,3 +966,13 @@ https://old.reddit.com/r/goodnews/comments/1q85ut5/all_of_this_all_of_the_time_g
 The anti Free Masons mindsets raging in USA, the anti-goodness. Democracy does not work without love and compassion. *Hate thy neighbor, hate thy enemy, hate harder* wrecks the world, all humanity. There has never been more powerful messaging systems spreading hate. Surkov monomyth is in runaway, mindsets are toxic and view hate as entertainment content. One-month new coined Reddit account.
 
 Social post { https://Autistics.Life/@RoundSparrow/115866738450978405 https://bsky.app/profile/roundsparrow.bsky.social/post/3mbz7g6x5n22t }
+
+https://old.reddit.com/r/law/comments/1q8dmv1/q_do_you_see_any_checks_on_your_power_on_the/nymma5r/
+
+7 month Reddit account, EXTREME tiny-short Bluesky-length Musk Twitter-length messages. No links off Reddit, no author names, no quotes from books, no book title. Just important claims made in disposable off-the-cuff commenting tine. Active measures to normalize this as fiction / anti-reality.
+
+https://old.reddit.com/r/law/comments/1q8dmv1/q_do_you_see_any_checks_on_your_power_on_the/nymzegd/
+
+https://old.reddit.com/r/law/comments/1q8dmv1/q_do_you_see_any_checks_on_your_power_on_the/nymm8t7/
+
+No call for intellectual defense. Avoidance of serious people like Dr. Bandy X Lee to unfuck (rescue) the nation mindsets from Russia's information warfare outcomes.
