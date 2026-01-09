@@ -5,12 +5,12 @@ from pathlib import Path
 
 #
 # GitHub asset mass downloader
-# Circulstances / why created:
-#    Use the online github editor to create pages
+# Circumstances / why created:
+#    Use the online GitHub editor to create pages
 #    And pasted images into GitHub that create asset
 #    images outside the git checkin / project files.
 #    This Python app downloads these out-of-project
-#    files for local ussage.
+#    files for local usage.
 #
 
 # LICENSE: Public Domain. No rights reserved.
@@ -25,7 +25,7 @@ from pathlib import Path
 SOURCE_DIRECTORY = "./April14_2025"  # Folder containing .md files
 DOWNLOAD_DIRECTORY = "./April14_2025_assets" # Where images will be saved
 
-# WARNING: only looking ofr image assets in this format
+# WARNING: only looking for image assets in this format
 # Regex to match GitHub user-attachment URLs specifically inside <img> tags
 # This RegEx captures the full URL from the src attribute
 ASSET_REGEX = r'<img [^>]*src="(https://github\.com/user-attachments/assets/[a-f0-9-]+)"'
