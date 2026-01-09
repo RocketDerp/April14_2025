@@ -759,3 +759,13 @@ Billionaires provide the A.I. that Reddit users desire. Tech addiction society.
 https://old.reddit.com/r/DiscussionZone/comments/1q7mc82/the_minnesota_star_tribune_has_identified_the/nyguxk0/
 
 The entire world thinks the USA follows mentally ill leaders. Multiple elections. Gun worship, guns are entertainment, society. Taking over other nations in year 2026 out of boredom and need to act tough.
+
+https://old.reddit.com/r/worldnews/comments/1q7t8y7/if_it_expires_it_expires_trump_tells_nyt_about/nyib0qg/
+
+The addiction to mocking Trump and mocking goodness and prizing hate leadership needs to be addressed across the entire population. Meme addicts, fiction addictions, have wrecked goodness in USA. Martin Luther King Jr's reformations against hate and mass dehumanization have been shit out / extruded / abandoned in favor of high-speed content delivery addictions.
+
+https://old.reddit.com/r/worldnews/comments/1q7t8y7/if_it_expires_it_expires_trump_tells_nyt_about/nyif4dt/
+
+Recent Reddit account. Americans won't do anything because they are so narcotized by high-speed information systems, meme delivery networks like Reddit, that they can't see Trump is a meme addict too. Egoism / Egomania running the USA nation. Mass psychosis / mob mentality in many many flavors.
+
+* "For all his perspicacity, George Orwell would have been stymied by this situation; there is nothing “Orwellian” about it. The President does not have the press under his thumb. The New York Times and The Washington Post are not Pravda; the Associated Press is not Tass. And there is no Newspeak here. Lies have not been defined as truth nor truth as lies. **All that has happened is that the public has adjusted to incoherence and been amused** into indifference. Which is why Aldous Huxley would not in the least be surprised by the story. Indeed, he prophesied its coming. He believed that it is far more likely that the Western democracies will dance and dream themselves into oblivion than march into it, single file and manacled. Huxley grasped, as Orwell did not, that it is not necessary to conceal anything from a public insensible to contradiction and **narcoticized by tech**nological diversions. Although Huxley did not specify that television would be our main line to the drug, he would have no difficulty accepting Robert MacNeil’s observation that “Television is the soma of Aldous Huxley’s Brave New World.” Big Brother turns out to be Howdy Doody." ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, **year 1985**, page 111
