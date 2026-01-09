@@ -1022,3 +1022,17 @@ https://old.reddit.com/r/law/comments/1q8fu76/bodycam_footage_of_the_ice_shootin
 https://old.reddit.com/r/minnesota/comments/1q8gbrz/ice_pov_shooting_video_leaked/nynavbc/
 
 Hate-talk, shit-talk, attacking women as female dogs, dehumanizing women as dogs, the USA society of Social Media Addicts behaviors. Truth Social addict / Fox News HDTV addict leads a nation of total shit-talk hate-prizing society USA 2026.
+
+https://old.reddit.com/r/Fauxmoi/comments/1q8dqb6/stephen_colbert_on_the_ice_murder_of_renee_nicole/nymlp8q/
+
+Posting about Stephen's title / quote... Special Revelations, exclusive top-down truth. Clergy behaviors.
+
+https://old.reddit.com/r/Fauxmoi/comments/1q8dqb6/stephen_colbert_on_the_ice_murder_of_renee_nicole/nymmst8/
+
+The entire planet. Nobody has ever had this much media addiction at their disposal. So many Reddit audience members who flock to Trump / Comedy-washing of Trump by Stephen Colbert. EVERYONE following Trump playing Tony Clifton President.
+
+https://old.reddit.com/r/Fauxmoi/comments/1q8dqb6/stephen_colbert_on_the_ice_murder_of_renee_nicole/nymmy7t/
+
+Red Flags. And the people who speak the most about "Red Flag" behavior and "You need therapy" are the ones cheering on mass psychosis as entertainment to mock other humans / persons. An entire society of media addicts who won't repeat "Dr. Bandy X Lee" name over and over and over since year 2017. https://en.wikipedia.org/wiki/Bandy_X._Lee
+
+
