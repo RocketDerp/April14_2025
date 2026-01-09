@@ -958,3 +958,11 @@ The military / Pentagon has already loudly announced / made this issue clear. Bu
 https://old.reddit.com/r/law/comments/1q8drsq/frey_i_think_vance_also_asserted_that_because_you/nympy95/
 
 We The People have to stop with the media addictions and face Marshall McLuhan's teachings. [STOP ALL ENTERTAINMENT, IT IS NOT ESSENTIAL!](/Grim_Blunt/Stop_All_Entertainment.md)
+
+https://old.reddit.com/r/goodnews/comments/1q85ut5/all_of_this_all_of_the_time_gavin_newsom_wake_up/nykxens/
+
+<img width="790" height="320" alt="image" src="https://github.com/user-attachments/assets/b2b4fcc7-09d8-4f20-9252-4415ea1eeecd" /> Posting Title: "Wake up America" - people are anti-woke. PLURI1BUS Q4 2025 TV series was the serious person's invocation of James Joyce's year 1923 "Wake", and people are avoiding it. Media woke, the addiction to fiction that has caused previous world wars. The Tower of Babel misunderstandings.
+
+The anti Free Masons mindsets raging in USA, the anti-goodness. Democracy does not work without love and compassion. *Hate thy neighbor, hate thy enemy, hate harder* wrecks the world, all humanity. There has never been more powerful messaging systems spreading hate. Surkov monomyth is in runaway, mindsets are toxic and view hate as entertainment content. One-month new coined Reddit account.
+
+Social post { https://Autistics.Life/@RoundSparrow/115866738450978405 https://bsky.app/profile/roundsparrow.bsky.social/post/3mbz7g6x5n22t }
