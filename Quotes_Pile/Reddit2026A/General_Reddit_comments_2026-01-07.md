@@ -658,3 +658,21 @@ https://old.reddit.com/r/minnesota/comments/1q7p6nd/mods_removed_my_last_post_co
 
 Organized club violence is considered a fun team sport now. The out-group hate clubs for every superficial and banal reason to promote hate and violence. A society, a nation, that prizes hate and discourages forgiveness and reformation. Anti-MLKjr USA 2026.
 
+https://old.reddit.com/r/law/comments/1q7mjma/ice_agent_in_minneapolis_killing_identified_as/nygv112/
+
+They are all brainwashed by Putin Internet Research Agency, Rupert Murdoch HDTV Fox News, Elon Musk Twitter owner. They are fed nonstop garbage lies from billionaire media empire owners. They are lied to and deceived. They should be blaming the billionaires for the mind programming / mind warping. 
+
+https://old.reddit.com/r/law/comments/1q7mjma/ice_agent_in_minneapolis_killing_identified_as/nygx1o1/
+
+JD Vance is mentally programming more harm into USA minds. Rules are being rewritten, so many Reddit addicts are in denial of the power of media presentations by JD Vance and White House podium / symbolism.
+
+https://old.reddit.com/r/law/comments/1q7mjma/ice_agent_in_minneapolis_killing_identified_as/nygwyf8/
+
+https://old.reddit.com/r/law/comments/1q7mjma/ice_agent_in_minneapolis_killing_identified_as/nyh3mp2/
+
+Self-harm to the nation and self-harm to his own life. What billionaires have programmed into minds.
+
+https://old.reddit.com/r/law/comments/1q7mjma/ice_agent_in_minneapolis_killing_identified_as/nyh2fgs/
+
+Elon Musk Twitter Austin, Texas. StarLink ISP.
+
