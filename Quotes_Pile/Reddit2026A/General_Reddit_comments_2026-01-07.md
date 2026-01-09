@@ -704,3 +704,19 @@ https://old.reddit.com/r/TwinCities/comments/1q7lq2x/active_shooter_in_minneapol
 
 Everything is joke-washed, anti-serious, anti-intellectual to meme addicts. Technology addicts who prize fiction and abandon serious non-fiction study of information warfare and psychological group manipulation.
 
+https://old.reddit.com/r/chaoticgood/comments/1q7lkuh/we_got_the_fuck_star_tribune_identifies_ice_agent/nygie3o/
+
+Hate worshipers. Always faith that more hate will make the USA a better place. Hate prized. Followers of Rupert Murdoch and Trump hate leadership.
+
+https://old.reddit.com/r/clevercomebacks/comments/1q7tr7y/when_will_americans_revolt/nyicudc/
+
+No author name, no URL off-Reddit, no quotes from a book, no book title. Just Twitter-like no-citation commenting, short-messages. Don't even name the killer. There is a Wikipedia page that could be linked, but cool popular people on Reddit are anti-Wikipedia anti-book.
+
+https://old.reddit.com/r/clevercomebacks/comments/1q7tr7y/when_will_americans_revolt/nyic595/
+
+This tiny-short twitter-length thinking. That people don't watch or read. I know people who watch nonfiction information but get wildly different interpretations. Some watch footage of a hurricane and say "Jesus caused this because of homosexuals'. It isn't a matter of watching a video, it's the comprehension.
+
+https://old.reddit.com/r/clevercomebacks/comments/1q7tr7y/when_will_americans_revolt/nyicqxs/
+
+Stupid content off Twitter is what Reddit addicts to stupid content share and comment upon. I'm so sick of this sicko society that prizes Elon Musk and Fox News HDTV and Truth Social media as a low-bar to measure intelligence against. This is sucking upon the Musk billionaire media platform teet. Media addictions to trash "The Apprentice' Reality TV and junk news has wrecked the USA. Desires for white men to lie and deceive.
+
