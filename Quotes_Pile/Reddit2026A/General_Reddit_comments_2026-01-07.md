@@ -1229,3 +1229,23 @@ https://old.reddit.com/r/worldnews/comments/1q8l3rw/trump_we_are_going_to_do_som
 <img width="947" height="466" alt="Screenshot from 2026-01-09 16-47-41" src="https://github.com/user-attachments/assets/8f3373b6-7212-4df7-bd8b-10644f4dbc4f" /> The entire World Wide Web needs to make "Dr. Bandy X. Lee" the topic every hour of every day until every mental health worker in the entire world wakes the fuck up to the situaiton of group thinking, mob mentality, stressful societies! https://en.wikipedia.org/wiki/Bandy_X._Lee
 
 Social post { https://autistics.life/@RoundSparrow/115867821029646655 https://bsky.app/profile/roundsparrow.bsky.social/post/3mbzosgr5422f }
+
+https://old.reddit.com/r/worldnews/comments/1q8l3rw/trump_we_are_going_to_do_something_on_greenland/nyoi2gz/
+
+I've been banned on Reddit for calling out the Reddit behaviors of joke-washing humor-washing Trump as a "LOL cow" to milk.
+
+https://old.reddit.com/r/worldnews/comments/1q8l3rw/trump_we_are_going_to_do_something_on_greenland/nyode1b/
+
+https://old.reddit.com/r/worldnews/comments/1q8l3rw/trump_we_are_going_to_do_something_on_greenland/nyoe3sp/
+
+Trump is MAKING the entire nation sick. The population is sickened by this system of mass dehumanization and worship of greed and power.
+
+https://old.reddit.com/r/worldnews/comments/1q8l3rw/trump_we_are_going_to_do_something_on_greenland/nyoeos8/
+
+Reddit comments, tiny-short messages: sports-washing Trump, satire-washing Trump, sarcasm-washing Trump, Making it all just more jokes for the Reddit meme audiences.
+
+https://old.reddit.com/r/worldnews/comments/1q8l3rw/trump_we_are_going_to_do_something_on_greenland/nyom18l/
+
+<img width="1082" height="538" alt="Screenshot from 2026-01-09 16-56-20" src="https://github.com/user-attachments/assets/83fed98a-baee-4d9f-87f9-27b0eca159f3" /> Serious is impossible. Neil Postman's books explain!
+
+Social Post { https://autistics.life/@RoundSparrow/115867852664928876 https://bsky.app/profile/roundsparrow.bsky.social/post/3mbzpat6fx22f }
