@@ -850,3 +850,10 @@ https://old.reddit.com/r/politics/comments/1q87lvl/it_sure_looks_like_the_trump_
 <img width="957" height="419" alt="image" src="https://github.com/user-attachments/assets/90d2b86c-949a-4928-b996-10bbdab0c724" /> Good observation of techniques. Draining situational public context of depth, shallowing it up, ultra mockery. What Reddit meme aficionado audiences prize { anti-depth. Shallowness, superficial }.
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mbyy7eiwv222 https://autistics.life/@RoundSparrow/115866233063139921 }
+
+https://old.reddit.com/r/politics/comments/1q87lvl/it_sure_looks_like_the_trump_administration_is/nylz026/
+
+For a while now. Reddit society has been doing this since March 2013. Shallowing up serious topics into banal. See subreddit I created way way *way back* in early year 2019: https://old.reddit.com/r/HyperBanalisation
+
+OPERA_A Far from the *shallows*, far from the shallow worship of superficial shit and banality washing important topics with LOL mind exploits. https://www.youtube.com/watch?v=bo_efYhYU2A&list=PLlVsYGOydVm3q8wGSY72atkALdT05j0NN&index=20 1,823,408,213 views September 27, 2018 - aren't you tired trying to fill that void of depth? 
+
