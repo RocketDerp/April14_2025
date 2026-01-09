@@ -1017,3 +1017,8 @@ https://old.reddit.com/r/law/comments/1q8fu76/bodycam_footage_of_the_ice_shootin
 
 Human species. Over 8 billion people who will not listen to and repeat the name of Dr. Bandy X Lee.
 
+https://old.reddit.com/r/law/comments/1q8fu76/bodycam_footage_of_the_ice_shooting_of_renee/nyn6kgq/
+
+https://old.reddit.com/r/minnesota/comments/1q8gbrz/ice_pov_shooting_video_leaked/nynavbc/
+
+Hate-talk, shit-talk, attacking women as female dogs, dehumanizing women as dogs, the USA society of Social Media Addicts behaviors. Truth Social addict / Fox News HDTV addict leads a nation of total shit-talk hate-prizing society USA 2026.
