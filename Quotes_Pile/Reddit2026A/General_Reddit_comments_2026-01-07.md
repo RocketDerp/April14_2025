@@ -932,3 +932,29 @@ Note the absence of author name, URL off-Reddit, quote, book title, article titl
 https://old.reddit.com/r/complaints/comments/1q8bva6/im_getting_real_tired_of_selective_empathy_from/nymb4n6/
 
 Short-length Twitter-think. *Tech lovers* society... dehumanize learning of compassion. Anti-education, *give up on USA* people is the Reddit machine-loving messaging.
+
+https://old.reddit.com/r/atheism/comments/1q89hsl/catholic_paper_calls_jd_vance_a_moral_stain_for/nylpmgo/
+
+Reddit community joke-washes laugh-washes all insane MAGA behaviors into sanity for humor.
+
+https://old.reddit.com/r/atheism/comments/1q89hsl/catholic_paper_calls_jd_vance_a_moral_stain_for/nylnowa/
+
+Extreme Bible literacy crisis in USA. And prizing of hate.
+
+https://old.reddit.com/r/law/comments/1q8drsq/frey_i_think_vance_also_asserted_that_because_you/nymojdv/
+
+Taliban doesn't have a society full of Reddit meme addicts who turn it all into comedy amusement content.
+
+https://old.reddit.com/r/law/comments/1q8drsq/frey_i_think_vance_also_asserted_that_because_you/nymp2jv/
+
+The entire nation of Fox News HDTV mindset PTSD. Surkov won since March 2013. People are *entertaining horrible ideas*, all normal. Marshall McLuhan teaching is essential to rescue the nation.
+
+https://old.reddit.com/r/law/comments/1q8drsq/frey_i_think_vance_also_asserted_that_because_you/nymp9sy/
+
+https://old.reddit.com/r/law/comments/1q8drsq/frey_i_think_vance_also_asserted_that_because_you/nyms493/
+
+The military / Pentagon has already loudly announced / made this issue clear. But short-length Reddit comment prizing drowns out important same-page common ground understandings. January 23, 2025 https://www.Stripes.com/theaters/us/2025-01-23/trump-close-pentagon-curbing-civilian-deaths%C2%A0-16583702.html Denial abounds. People are drowning serious information in Reddit noise junk humor and banal trash messaging.
+
+https://old.reddit.com/r/law/comments/1q8drsq/frey_i_think_vance_also_asserted_that_because_you/nympy95/
+
+We The People have to stop with the media addictions and face Marshall McLuhan's teachings. [STOP ALL ENTERTAINMENT, IT IS NOT ESSENTIAL!](/Grim_Blunt/Stop_All_Entertainment.md)
