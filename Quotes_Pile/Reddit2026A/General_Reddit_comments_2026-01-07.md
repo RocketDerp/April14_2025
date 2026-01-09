@@ -1035,4 +1035,8 @@ https://old.reddit.com/r/Fauxmoi/comments/1q8dqb6/stephen_colbert_on_the_ice_mur
 
 Red Flags. And the people who speak the most about "Red Flag" behavior and "You need therapy" are the ones cheering on mass psychosis as entertainment to mock other humans / persons. An entire society of media addicts who won't repeat "Dr. Bandy X Lee" name over and over and over since year 2017. https://en.wikipedia.org/wiki/Bandy_X._Lee
 
+https://old.reddit.com/r/Fauxmoi/comments/1q8dqb6/stephen_colbert_on_the_ice_murder_of_renee_nicole/nymopwj/
 
+The whole world needs to take all the mental health workers and point them to the Middle East normalization of hate. Dr. Martin Luther King Jr's reformations have been in the public library since the 1950's. Hate is toxic middle east values that people prize far too often. A woman named Dr. Bandy X. Lee is active and people ignore her teachings on MANY world leaders!
+
+* "the real danger confronting civilization today is that atomic bomb which lies in the hearts and souls of men, capable of **exploding into the vilest of hate and into the most damaging selfishness** — that's the atomic bomb that we've got to fear today. Problem is **with the men**. Within the **heart and the souls of men**. That is the real basis of our problem." - [February 28, 1954](../Martin_Luther_King_Jr_quotes0.md)
