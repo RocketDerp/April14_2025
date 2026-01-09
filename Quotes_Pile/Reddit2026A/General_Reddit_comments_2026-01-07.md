@@ -1062,3 +1062,10 @@ Social post { https://autistics.life/@RoundSparrow/115867084016925166 https://bs
 https://old.reddit.com/r/pics/comments/1q8iuxy/renee_nicole_good_saying_her_final_words_to_her/nyntkbc/
 
 Entertainment. Anti-reality. ARG. Gaming mindsets, sports mentality.
+
+https://old.reddit.com/r/pics/comments/1q8iuxy/renee_nicole_good_saying_her_final_words_to_her/nynum5z/
+
+https://old.reddit.com/r/pics/comments/1q8iuxy/renee_nicole_good_saying_her_final_words_to_her/nyntl8o/
+
+Right vs. left mindsets, branrot one-bit logic.
+
