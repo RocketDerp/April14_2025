@@ -818,3 +818,13 @@ https://old.reddit.com/r/TikTokCringe/comments/1q89qti/this_is_crazy/nylrnhf/
 https://old.reddit.com/r/TikTokCringe/comments/1q89qti/this_is_crazy/nylx6zu/
 
 Bible literacy crisis in North America. "The "least of these" verse refers to Matthew 25:40, where Jesus states, "Truly I tell you, whatever you did for one of the least of these brothers and sisters of mine, you did for me," emphasizing that serving the poor, needy, or marginalized is serving Him directly, often interpreted as fellow believers in need, but also generally as the vulnerable." - Google Search summary 2026-01-09
+
+https://old.reddit.com/r/TikTokCringe/comments/1q89qti/this_is_crazy/nyloet1/
+
+Inward failed education. You are not a child anymore, USA. "the eternal values that have to do with the centering of our lives. When you get to be older, and the concerns of the day have all been attended to, and you turn to the inner life—well, if you don’t know where it is or what it is, you’ll be sorry."
+
+A nation that traded comprehension for meme jokes and mocking / mockery / endless total mockery since year 2013. Surkov won.
+
+https://old.reddit.com/r/TikTokCringe/comments/1q89qti/this_is_crazy/nylx5il/
+
+MLK Jr's reformations of global / world wide Levant { Torah, Bible, Quran } literacy has been tossed into trash / junked since March 2013 in USA.
