@@ -127,3 +127,21 @@ top-voted comment. Posting: "On The World Stage", runaway Levant monomyth in Tru
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1q8fh0t/america_isnt_exactly_making_friends_lately/nyn86je/
 
 A nation of 0.34 billion has the most powerful media amplifying meme devices and spreading hate non-stop since March 2013 for Putin's Kremlin. Surkov won! [Operation Matthew 4:19 has defeated humanity. We are in global self-harm mindsets.](/Operation_Matthew_4_19_on_monday_2024-03-31.md)
+
+https://old.reddit.com/r/europe/comments/1q8hcpx/uk_threatened_with_sanctions_if_britain_bans/nynf1f5/
+
+Twitter-think nation.
+
+https://old.reddit.com/r/europe/comments/1q8hcpx/uk_threatened_with_sanctions_if_britain_bans/nyo6nxs/
+
+https://old.reddit.com/r/europe/comments/1q8hcpx/uk_threatened_with_sanctions_if_britain_bans/nynjr87/
+
+No off-Reddit links, etc.
+
+https://old.reddit.com/r/europe/comments/1q8hcpx/uk_threatened_with_sanctions_if_britain_bans/nyngscn/
+
+Laugh track for Reddit audiences. "LOL"
+
+https://old.reddit.com/r/europe/comments/1q8hcpx/uk_threatened_with_sanctions_if_britain_bans/nyngea5/
+
+Bullies win in USA. Reddit thrives on no-identity bullying. Elon Musk Twitter values / Truth Social values.
