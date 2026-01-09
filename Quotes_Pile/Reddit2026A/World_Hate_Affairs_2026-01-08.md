@@ -123,3 +123,7 @@ The problem with social media is people will not get on **the same page** of imp
 https://old.reddit.com/r/law/comments/1q8dmv1/q_do_you_see_any_checks_on_your_power_on_the/nymlhqa/
 
 top-voted comment. Posting: "On The World Stage", runaway Levant monomyth in Trump's media head. John 1:1 - Surkov won. Only We The People can stop the runaway Surkov monomyth patterns. Russia no longer controls them, LLM systems do. The ELIZA effect controls MAGA now, via TV news writers using [LLM systems trained on Internet Research Agency and Cambridge Analytica mindfuck messages and memes. Please, CLICK THIS LINK TO GET DETAILS!!](../Cambridge_Analytica_Quotes.md).
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1q8fh0t/america_isnt_exactly_making_friends_lately/nyn86je/
+
+A nation of 0.34 billion has the most powerful media amplifying meme devices and spreading hate non-stop since March 2013 for Putin's Kremlin. Surkov won! [Operation Matthew 4:19 has defeated humanity. We are in global self-harm mindsets.](/Operation_Matthew_4_19_on_monday_2024-03-31.md)
