@@ -720,3 +720,16 @@ https://old.reddit.com/r/clevercomebacks/comments/1q7tr7y/when_will_americans_re
 
 Stupid content off Twitter is what Reddit addicts to stupid content share and comment upon. I'm so sick of this sicko society that prizes Elon Musk and Fox News HDTV and Truth Social media as a low-bar to measure intelligence against. This is sucking upon the Musk billionaire media platform teet. Media addictions to trash "The Apprentice' Reality TV and junk news has wrecked the USA. Desires for white men to lie and deceive.
 
+https://old.reddit.com/r/AdviceAnimals/comments/1q7kjsq/living_in_the_us_right_now/nygaie9/
+
+Pro-terrorism USA state / USA society. See guns, want more guns simple-think. Wild west fantasy of video gamers / game players / action TV and films. Fox News HDTV problem to be solved with guns. This all started in year 2013. Russia was even in the NRA. But the guns being pushed on Reddit meme mill today aren't for Russians, they are for Americans vs. Americans. 
+
+* "Russian influence players like Alexander Torshin and Maria Butina cultivated ties with the NRA starting around 2011-2012, facilitated by lawyer G. Kline Preston, leading to NRA-hosted visits to Moscow and NRA leaders attending events in Russia, establishing the groundwork for broader connections before the 2016 election, with Torshin becoming an NRA lifetime member and meeting Donald Trump through the organization." - Google Search summary 2026-01-08 night USA
+
+https://old.reddit.com/r/AdviceAnimals/comments/1q7kjsq/living_in_the_us_right_now/nygs3g3/
+
+USA mob mentality mental heath and ability to organize around mental health professional Dr. Bandy X Lee since year 2017 is looking TERRIBLE! Why is Dr. Bandy X Lee not mentioned MORE THAN Epstein on Reddit? To address the ICE and MAGA issues? 
+
+* "In 2017, Lee organized a conference at Yale on the mental health of Donald Trump with the participation of other psychiatrists" https://en.wikipedia.org/wiki/Bandy_X._Lee
+
+But a cat reading a newspaper is how USA society gets advice, not from a professional to rally around. Dr. Bandy X Lee.
