@@ -1,4 +1,4 @@
-# Lemmy Adtive Banal Measures
+# Lemmy Active Banal Measures
 
 This Lemmy user replied to my message with the street-gang symbolism messages of saying GitHub posting was "cursed". And did not respond to my reply. Banality of other users seems to be the game afoot.
 
