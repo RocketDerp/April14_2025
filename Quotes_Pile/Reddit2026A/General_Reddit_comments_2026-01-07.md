@@ -1114,3 +1114,25 @@ https://old.reddit.com/r/ProgressiveHQ/comments/1q8fsu3/why_are_they_not_in_an_u
 Russia manipulated NRA. 
 
 * "Russian infiltration of the NRA centered on operatives Maria Butina and Alexander Torshin cultivating ties through gun rights advocacy, starting around 2013 with Butina's "Right to Bear Arms" group hosting NRA figures in Moscow, escalating with Torshin's official NRA lifetime membership, culminating in a 2015 Moscow trip by NRA leaders, and involving efforts to funnel influence and potential funds to the Trump campaign through these connections leading up to the 2016 election, all detailed in Senate reports revealing the NRA as a potential "foreign asset" for Russia." - Google Search summary 2026-01-09 afternoon USA
+
+https://old.reddit.com/r/AdviceAnimals/comments/1q8itr0/murdered_mere_seconds_later/nynrbbl/
+
+https://old.reddit.com/r/AdviceAnimals/comments/1q8itr0/murdered_mere_seconds_later/nyns0vh/
+
+https://old.reddit.com/r/AdviceAnimals/comments/1q8itr0/murdered_mere_seconds_later/nyntg3l/
+
+https://old.reddit.com/r/AdviceAnimals/comments/1q8itr0/murdered_mere_seconds_later/nynwqqr/
+
+https://old.reddit.com/r/AdviceAnimals/comments/1q8itr0/murdered_mere_seconds_later/nynvoat/
+
+https://old.reddit.com/r/AdviceAnimals/comments/1q8itr0/murdered_mere_seconds_later/nynw3cg/
+
+https://old.reddit.com/r/AdviceAnimals/comments/1q8itr0/murdered_mere_seconds_later/nynyf0r/
+
+https://old.reddit.com/r/AdviceAnimals/comments/1q8itr0/murdered_mere_seconds_later/nynwr5o/
+
+https://old.reddit.com/r/AdviceAnimals/comments/1q8itr0/murdered_mere_seconds_later/nynz7gg/
+
+https://old.reddit.com/r/AdviceAnimals/comments/1q8itr0/murdered_mere_seconds_later/nyo2e18/
+
+https://old.reddit.com/r/AdviceAnimals/comments/1q8itr0/murdered_mere_seconds_later/nynwwmm/
