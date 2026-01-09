@@ -8,3 +8,13 @@ Google search for "RRBFORBID0" word.
 https://midwest.social/post/40832839/21905386     
 https://beehaw.org/post/23916413/5429463    
 
+&nbsp;
+
+# Friday January 9 followup
+
+2026-01-09 afternoon USA
+
+Google search now hits this keyword!
+
+<img width="2422" height="1326" alt="image" src="https://github.com/user-attachments/assets/e7262b2a-fb8f-439e-b7cc-2e736e78065c" />
+
