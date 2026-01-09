@@ -857,3 +857,8 @@ For a while now. Reddit society has been doing this since March 2013. Shallowing
 
 OPERA_A Far from the *shallows*, far from the shallow worship of superficial shit and banality washing important topics with LOL mind exploits. https://www.youtube.com/watch?v=bo_efYhYU2A&list=PLlVsYGOydVm3q8wGSY72atkALdT05j0NN&index=20 1,823,408,213 views September 27, 2018 - aren't you tired trying to fill that void of depth? 
 
+https://old.reddit.com/r/politics/comments/1q87lvl/it_sure_looks_like_the_trump_administration_is/nyl9fql/
+
+<img width="951" height="244" alt="image" src="https://github.com/user-attachments/assets/86fa5d9d-78a2-4caf-95dd-2ae20c65e35e" /> The self-harm USA with junk information has passed all thresholds.
+
+Social post { https://autistics.life/@RoundSparrow/115866269736998457 https://bsky.app/profile/roundsparrow.bsky.social/post/3mbyyqzhog222 }
