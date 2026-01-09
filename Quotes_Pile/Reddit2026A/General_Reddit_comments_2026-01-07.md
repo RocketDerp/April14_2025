@@ -676,3 +676,31 @@ https://old.reddit.com/r/law/comments/1q7mjma/ice_agent_in_minneapolis_killing_i
 
 Elon Musk Twitter Austin, Texas. StarLink ISP.
 
+https://old.reddit.com/r/PublicFreakout/comments/1q7nh1u/a_federal_agent_pulled_his_sidearm_on_a_protestor/nygxmvd/
+
+https://old.reddit.com/r/PublicFreakout/comments/1q7nh1u/a_federal_agent_pulled_his_sidearm_on_a_protestor/nyh03dh/
+
+They are all brainwashed by Putin Internet Research Agency, Rupert Murdoch HDTV Fox News, Elon Musk Twitter owner. They are fed nonstop garbage lies from billionaire media empire owners. They are lied to and deceived. No nation has ever had as much organized manipulation with all the computer machines duplicating mind-fucking from the richest billionaires in the world investing in GrokAI, ChatGPT, Microsoft CoPilot, etc.
+
+https://old.reddit.com/r/PublicFreakout/comments/1q7nh1u/a_federal_agent_pulled_his_sidearm_on_a_protestor/nyh0ete/
+
+Recency bias abounds.
+
+https://old.reddit.com/r/PublicFreakout/comments/1q7nh1u/a_federal_agent_pulled_his_sidearm_on_a_protestor/nyh3jao/
+
+Putin authorized wrecking the USA.
+
+https://old.reddit.com/r/minnesota/comments/1q7r7dg/minneapolis_minnesota_johnny_screams_i_married_a/nyhwcfu/
+
+https://old.reddit.com/r/minnesota/comments/1q7r7dg/minneapolis_minnesota_johnny_screams_i_married_a/nyi7gnr/
+
+Machine lovers, human haters. Tech love, device love, including stroking gun technology.
+
+https://old.reddit.com/r/TwinCities/comments/1q7lq2x/active_shooter_in_minneapolis_jonathan_ross_still/nyhmqyw/
+
+Just like Epstein penis, Trump penis, Musk penis, a constant concern to Reddit audience members.
+
+https://old.reddit.com/r/TwinCities/comments/1q7lq2x/active_shooter_in_minneapolis_jonathan_ross_still/nygpvhw/
+
+Everything is joke-washed, anti-serious, anti-intellectual to meme addicts. Technology addicts who prize fiction and abandon serious non-fiction study of information warfare and psychological group manipulation.
+
