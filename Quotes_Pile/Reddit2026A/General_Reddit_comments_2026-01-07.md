@@ -899,5 +899,6 @@ There is the audience laugh track. "LMAO", har har, Trump MAGA Musk Murdoch prov
 
 https://old.reddit.com/r/news/comments/1q8cdb6/texas_hands_over_complete_list_of_registered/nymbsbv/
 
-Internet Research Agency programmed minds to laugh on demand when self-harm USA is executive function of government. Surkov won since March 2013.
+<img width="735" height="425" alt="image" src="https://github.com/user-attachments/assets/65c65b61-4774-4258-ab94-28c1b2dc86eb" /> Internet Research Agency programmed minds to laugh on demand when self-harm USA is executive function of government. Surkov won since March 2013.
 
+Social post { https://autistics.life/@RoundSparrow/115866491174482007 https://bsky.app/profile/roundsparrow.bsky.social/post/3mbz3vmsf2c2l }
