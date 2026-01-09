@@ -862,3 +862,22 @@ https://old.reddit.com/r/politics/comments/1q87lvl/it_sure_looks_like_the_trump_
 <img width="951" height="244" alt="image" src="https://github.com/user-attachments/assets/86fa5d9d-78a2-4caf-95dd-2ae20c65e35e" /> The self-harm USA with junk information has passed all thresholds.
 
 Social post { https://autistics.life/@RoundSparrow/115866269736998457 https://bsky.app/profile/roundsparrow.bsky.social/post/3mbyyqzhog222 }
+
+https://old.reddit.com/r/MurderedByWords/comments/1q89jha/those_without_form/nylmy12/
+
+Pluribus Reddit fandom (Breaking Bad / Better Call Saul fandoms) wants you to "be nice" about the avoidance of Minute 37 of Episode Two on Air Force One and the Eagle pointing to the right bird-win instead of left bird-wing... and the meaning of that POTUS Seal. the ONLY place in the show 'PLURIBUS" Latin word appears.
+
+https://old.reddit.com/r/MurderedByWords/comments/1q89jha/those_without_form/nym19mq/
+
+Our Civic Duty to tech the free masons meaning of the Great Seal of the United States of America.
+
+https://old.reddit.com/r/MurderedByWords/comments/1q89jha/those_without_form/nylogtg/
+
+Disney entertainment for meme audiences. Reddit meme consumers eat up the Surkov student cartoon behaviors.
+
+https://old.reddit.com/r/MurderedByWords/comments/1q89jha/those_without_form/nylo5ln/
+
+https://old.reddit.com/r/MurderedByWords/comments/1q89jha/those_without_form/nylp7p4/
+
+Reddit users are so programmed to imagine sex acts by leaders. What a disgusting society. What shit values in leaders, their male penis power. A society that prizes trash ideas and creates messages like this.
+
