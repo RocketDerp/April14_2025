@@ -797,3 +797,17 @@ https://old.reddit.com/r/politics/comments/1q7wcff/jeopardy_host_ken_jennings_fi
 
 Bible literacy and science fiction literacy are a huge crisis. Fiction addicts who support MAGA as a fiction entertainment source.
 
+https://old.reddit.com/r/TikTokCringe/comments/1q89qti/this_is_crazy/nym03pu/
+
+https://old.reddit.com/r/TikTokCringe/comments/1q89qti/this_is_crazy/nylz6a0/
+
+https://old.reddit.com/r/TikTokCringe/comments/1q89qti/this_is_crazy/nylqg66/
+
+https://old.reddit.com/r/TikTokCringe/comments/1q89qti/this_is_crazy/nylvkdu/
+
+https://old.reddit.com/r/TikTokCringe/comments/1q89qti/this_is_crazy/nylx682/
+
+https://old.reddit.com/r/TikTokCringe/comments/1q89qti/this_is_crazy/nym0el3/
+
+Bible literacy crisis. All social media users should be repeating and repeat Bible verse "1 John 3:17" and "1 John 4:20" until every person in North America and South America knows it and can recite them. Teach please!
+
