@@ -915,3 +915,20 @@ https://old.reddit.com/r/news/comments/1q8cdb6/texas_hands_over_complete_list_of
 
 Reddit audience shows how rapid TCP/IP networks allow Twitter-length reaction comments. Anything to avoid getting on the same page in an information war, education war. Anti-Wiki Anti-FAQ, junk commenting at super high speeds!
 
+https://old.reddit.com/r/NonPoliticalTwitter/comments/1q8bcxj/actions_speak_louder_than_words/nym24fu/
+
+https://old.reddit.com/r/complaints/comments/1q8bva6/im_getting_real_tired_of_selective_empathy_from/nymbxj8/
+
+https://old.reddit.com/r/complaints/comments/1q8bva6/im_getting_real_tired_of_selective_empathy_from/nymaqgt/
+
+Conservative vs. liberal brainrot. Nation was not founded on that thinking.
+
+https://old.reddit.com/r/complaints/comments/1q8bva6/im_getting_real_tired_of_selective_empathy_from/nymauij/
+
+https://old.reddit.com/r/complaints/comments/1q8bva6/im_getting_real_tired_of_selective_empathy_from/nymf3d4/
+
+Note the absence of author name, URL off-Reddit, quote, book title, article title, etc. Just original Reddit commenting instead of getting on the same page. Anti-FAQ, anti-Wiki values of USA 2026 meme commenting society.
+
+https://old.reddit.com/r/complaints/comments/1q8bva6/im_getting_real_tired_of_selective_empathy_from/nymb4n6/
+
+Short-length Twitter-think. *Tech lovers* society... dehumanize learning of compassion. Anti-education, *give up on USA* people is the Reddit machine-loving messaging.
