@@ -1105,3 +1105,6 @@ https://old.reddit.com/r/complaints/comments/1q8hgp6/that_fucker_shot_her_in_the
 
 De-escalate with a person who loves the machine, loves the bullet technology, more than human persons. Tech lust nation. Elon Musk tech leadership society.
 
+https://old.reddit.com/r/complaints/comments/1q8hgp6/that_fucker_shot_her_in_the_face_three_times_held/nynulzf/
+
+PLUR1BUS Q4 2025 TV show depicting two lesbian marriage blows audience minds into shallow hate-shit fandom.
