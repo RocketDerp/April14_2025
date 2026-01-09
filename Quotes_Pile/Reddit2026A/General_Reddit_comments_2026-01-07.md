@@ -881,3 +881,23 @@ https://old.reddit.com/r/MurderedByWords/comments/1q89jha/those_without_form/nyl
 
 Reddit users are so programmed to imagine sex acts by leaders. What a disgusting society. What shit values in leaders, their male penis power. A society that prizes trash ideas and creates messages like this.
 
+https://old.reddit.com/r/news/comments/1q8cdb6/texas_hands_over_complete_list_of_registered/nymds9t/
+
+Loyalty to the fiction storytelling is important to leaders. We The People will not face up to the avoidance of nonfiction learning about mob mentality. Marshall McLuhan teachings are avoided by meme addiction USA nation.
+
+https://old.reddit.com/r/news/comments/1q8cdb6/texas_hands_over_complete_list_of_registered/nymbr3j/
+
+But Bluesky society and Reddit audience turned into thousands and thousands of dumb jokes. Amusement-washing the situation over and over, hour after hour, on commenting. Anti-goodness, anti-serious, anything to make it all joke-washed MAGA / Trumpism / Puritanism. Comedy is the deep faith of We The People who prize mocking and insulting. Following the leaders who joke away goodness.
+
+https://old.reddit.com/r/news/comments/1q8cdb6/texas_hands_over_complete_list_of_registered/nymenq0/
+
+Bi-polar mass man issues are mocked away as Reddit humor. Instead of teaching Marshall McLuhan in the comment section and healing the mass man thinking problems, people mock mock mock away for amusement.
+
+https://old.reddit.com/r/news/comments/1q8cdb6/texas_hands_over_complete_list_of_registered/nymg9hh/
+
+There is the audience laugh track. "LMAO", har har, Trump MAGA Musk Murdoch provide so much comedy for Reddit audiences.
+
+https://old.reddit.com/r/news/comments/1q8cdb6/texas_hands_over_complete_list_of_registered/nymbsbv/
+
+Internet Research Agency programmed minds to laugh on demand when self-harm USA is executive function of government. Surkov won since March 2013.
+
