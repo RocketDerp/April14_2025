@@ -115,3 +115,7 @@ https://old.reddit.com/r/goodnews/comments/1q85ut5/all_of_this_all_of_the_time_g
 People discussing it casually, instead of halting all the { jokes, humor, memes, unimportant content, sports games, video games, gaming, playing around, fooling around, amusement-washing of Trump, etc }. Surkov won since March 2013. NATO lost hearts and minds to Russia self-harm messaging.
 
 https://old.reddit.com/r/goodnews/comments/1q85ut5/all_of_this_all_of_the_time_gavin_newsom_wake_up/nyl91k0/
+
+https://old.reddit.com/r/goodnews/comments/1q85ut5/all_of_this_all_of_the_time_gavin_newsom_wake_up/nylgets/
+
+The problem with social media is people will not get on **the same page** of important information. There is no sense of common priority all on the same page. Anti-FAQ, Anti-Wiki, anti-organization. [**Brainrot Society 47** measures needed and long long overdue](/PostMalala/Assert_Malala/Brainrot_Society_47.md)!
