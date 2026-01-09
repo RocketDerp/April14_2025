@@ -1000,3 +1000,20 @@ https://old.reddit.com/r/law/comments/1q8dmv1/q_do_you_see_any_checks_on_your_po
 https://old.reddit.com/r/law/comments/1q8dmv1/q_do_you_see_any_checks_on_your_power_on_the/nynad7i/
 
 https://old.reddit.com/r/law/comments/1q8dmv1/q_do_you_see_any_checks_on_your_power_on_the/nymqqkq/
+
+https://old.reddit.com/r/law/comments/1q8fu76/bodycam_footage_of_the_ice_shooting_of_renee/nyn2ymi/
+
+https://old.reddit.com/r/law/comments/1q8fu76/bodycam_footage_of_the_ice_shooting_of_renee/nyn8r3s/
+
+https://old.reddit.com/r/law/comments/1q8fu76/bodycam_footage_of_the_ice_shooting_of_renee/nyn5q47/
+
+https://old.reddit.com/r/law/comments/1q8fu76/bodycam_footage_of_the_ice_shooting_of_renee/nyn8a87/
+
+https://old.reddit.com/r/law/comments/1q8fu76/bodycam_footage_of_the_ice_shooting_of_renee/nyndgto/
+
+https://old.reddit.com/r/law/comments/1q8fu76/bodycam_footage_of_the_ice_shooting_of_renee/nyn6dvr/
+
+https://old.reddit.com/r/law/comments/1q8fu76/bodycam_footage_of_the_ice_shooting_of_renee/nyn95fy/
+
+Human species. Over 8 billion people who will not listen to and repeat the name of Dr. Bandy X Lee.
+
