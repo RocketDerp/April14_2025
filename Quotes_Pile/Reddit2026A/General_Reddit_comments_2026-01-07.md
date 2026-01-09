@@ -1172,3 +1172,60 @@ https://old.reddit.com/r/pics/comments/1q8l6vk/an_actual_christian_woman_renee_g
 <img width="1000" height="469" alt="image" src="https://github.com/user-attachments/assets/3d512229-a7ad-42f9-8043-a568af417b3b" /> Mind blown by comedy on Reddit. Finding MAGA hilarious. Symbolism blows Reddit minds into joke humor-washing MAGA and Trump, again and again. South Park serves to empower Putin and Trump. ANYTHING to avoid learning media addition behaviors of MAGA via Marshall McLuhan and Neil Postman!
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mbzmtydmdk2a https://autistics.life/@RoundSparrow/115867682088187380 }
+
+https://old.reddit.com/r/worldnews/comments/1q8l3rw/trump_we_are_going_to_do_something_on_greenland/nyoaw9z/
+
+But don't act stressed or frustrated on Reddit. You will get banned on Sunday morning while your nation is taking over another government.
+
+https://old.reddit.com/r/worldnews/comments/1q8l3rw/trump_we_are_going_to_do_something_on_greenland/nyocatv/
+
+Good. year 1994 book. Get people out of Reddit meme-think mindsets. Reddit was a decade away, and 1994 there wasn't even yet Fox News.
+
+https://old.reddit.com/r/worldnews/comments/1q8l3rw/trump_we_are_going_to_do_something_on_greenland/nyoe9d1/
+
+Reality is bullied by Reddit gamers, screen gamers, video screen gaming, sports fandoms.
+
+Putin won an information war against social media systems, Reddit inclusive, but people are in massively deep psychological denial. Anonymous no-identity Reddit commenting mind-fucked the audience into predictable reaction patterns. Year 2014:
+
+Russia and the **Menace of Unreality**   
+How Vladimir Putin is revolutionizing information warfare   
+Peter Pomerantsev   
+September 9 2014, 3:42 PM ET   
+
+* “If previous authoritarian regimes were three parts violence and one part propaganda,” argues Igor Yakovenko, a professor of journalism at the Moscow State Institute of International Relations, “this one is **virtually all propaganda and relatively little violence**. Putin only needs to make a few arrests—and then amplify the message through his total control of television.”
+
+Translated from 2013 Russia to USA 2025: I.C.E. raids are very little violence and a lot of showboating. A lot of Reddit front-page I.C.E. raids for visual meme addicts / meme consumers. No recognition that Kremlin and White House has the Reddit total control of media amplifiers. Reddit is amplifying media from all over the Internet. Eating the onions that Trump and Musk is dementia stupid dumb idiot, Reddit society unable to engage and comprehend and understand off-Reddit... September 9, 2014: https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/worldnews/comments/1q8l3rw/trump_we_are_going_to_do_something_on_greenland/nyob30n/
+
+https://old.reddit.com/r/worldnews/comments/1q8l3rw/trump_we_are_going_to_do_something_on_greenland/nyofjsr/
+
+https://old.reddit.com/r/worldnews/comments/1q8l3rw/trump_we_are_going_to_do_something_on_greenland/nyoij3a/
+
+Trump is a "LOL cow" to milk for memes and comedy. Every media network in the world is at full speed covering Trump mockery. Reddit commenting is wild over insulting and hate messaging.
+
+https://old.reddit.com/r/worldnews/comments/1q8l3rw/trump_we_are_going_to_do_something_on_greenland/nyodp9k/
+
+https://old.reddit.com/r/worldnews/comments/1q8l3rw/trump_we_are_going_to_do_something_on_greenland/nyoal0v/
+
+The population is drunk on memes. High speed information delivery has wrecked the nation. Addicts to junk sources.
+
+https://old.reddit.com/r/worldnews/comments/1q8l3rw/trump_we_are_going_to_do_something_on_greenland/nyoc1xc/
+
+https://old.reddit.com/r/worldnews/comments/1q8l3rw/trump_we_are_going_to_do_something_on_greenland/nyodgou/
+
+Russia mind-fucked the population to desire this shit since March 2013. Hate is prized. Hate leadership leads EVERYONE with Trump.
+
+https://old.reddit.com/r/worldnews/comments/1q8l3rw/trump_we_are_going_to_do_something_on_greenland/nyoesk1/
+
+https://old.reddit.com/r/worldnews/comments/1q8l3rw/trump_we_are_going_to_do_something_on_greenland/nyofqvx/
+
+https://old.reddit.com/r/worldnews/comments/1q8l3rw/trump_we_are_going_to_do_something_on_greenland/nyoeunv/
+
+The memes are what created all this mess. The cravings for fiction providers. Trump provides fiction for audiences.
+
+https://old.reddit.com/r/worldnews/comments/1q8l3rw/trump_we_are_going_to_do_something_on_greenland/nyoemvc/
+
+<img width="947" height="466" alt="Screenshot from 2026-01-09 16-47-41" src="https://github.com/user-attachments/assets/8f3373b6-7212-4df7-bd8b-10644f4dbc4f" /> The entire World Wide Web needs to make "Dr. Bandy X. Lee" the topic every hour of every day until every mental health worker in the entire world wakes the fuck up to the situaiton of group thinking, mob mentality, stressful societies! https://en.wikipedia.org/wiki/Bandy_X._Lee
+
+Social post { https://autistics.life/@RoundSparrow/115867821029646655 https://bsky.app/profile/roundsparrow.bsky.social/post/3mbzosgr5422f }
