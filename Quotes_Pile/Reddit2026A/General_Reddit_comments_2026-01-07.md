@@ -1108,3 +1108,9 @@ De-escalate with a person who loves the machine, loves the bullet technology, mo
 https://old.reddit.com/r/complaints/comments/1q8hgp6/that_fucker_shot_her_in_the_face_three_times_held/nynulzf/
 
 PLUR1BUS Q4 2025 TV show depicting two lesbian marriage blows audience minds into shallow hate-shit fandom.
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1q8fsu3/why_are_they_not_in_an_uproar/nyn1s9w/
+
+Russia manipulated NRA. 
+
+* "Russian infiltration of the NRA centered on operatives Maria Butina and Alexander Torshin cultivating ties through gun rights advocacy, starting around 2013 with Butina's "Right to Bear Arms" group hosting NRA figures in Moscow, escalating with Torshin's official NRA lifetime membership, culminating in a 2015 Moscow trip by NRA leaders, and involving efforts to funnel influence and potential funds to the Trump campaign through these connections leading up to the 2016 election, all detailed in Senate reports revealing the NRA as a potential "foreign asset" for Russia." - Google Search summary 2026-01-09 afternoon USA
