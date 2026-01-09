@@ -1136,3 +1136,17 @@ https://old.reddit.com/r/AdviceAnimals/comments/1q8itr0/murdered_mere_seconds_la
 https://old.reddit.com/r/AdviceAnimals/comments/1q8itr0/murdered_mere_seconds_later/nyo2e18/
 
 https://old.reddit.com/r/AdviceAnimals/comments/1q8itr0/murdered_mere_seconds_later/nynwwmm/
+
+https://old.reddit.com/r/pics/comments/1q8l6vk/an_actual_christian_woman_renee_good_on_a_mission/nyoahvr/
+
+Ireland and Christian and MAGA, oh my! My GitHub!
+
+https://old.reddit.com/r/pics/comments/1q8l6vk/an_actual_christian_woman_renee_good_on_a_mission/nyoi5zo/
+
+Do you ever seen Reddit users call out social media blocking and banning, "Love Thy Enemy"? Or quote MLK Jr to MAGA topics / commenting?
+
+https://old.reddit.com/r/pics/comments/1q8l6vk/an_actual_christian_woman_renee_good_on_a_mission/nyocvvs/
+
+Left vs. Right brain-rot. Literal vs. Metaphor is the crisis! Read James Joyce. Fiction vs. NonFiction!
+
+* “Half the people in the world think that the metaphors of their religious traditions, for example, are facts. And the other half contends that they are not facts at all. As a result we have people who consider themselves believers because they accept metaphors as facts, and we have others who classify themselves as atheists because they think religious metaphors are lies.” ― Joseph Campbell, Thou Art That: Transforming Religious Metaphor
