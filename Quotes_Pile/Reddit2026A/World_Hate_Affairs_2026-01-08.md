@@ -114,3 +114,4 @@ https://old.reddit.com/r/goodnews/comments/1q85ut5/all_of_this_all_of_the_time_g
 
 People discussing it casually, instead of halting all the { jokes, humor, memes, unimportant content, sports games, video games, gaming, playing around, fooling around, amusement-washing of Trump, etc }. Surkov won since March 2013. NATO lost hearts and minds to Russia self-harm messaging.
 
+https://old.reddit.com/r/goodnews/comments/1q85ut5/all_of_this_all_of_the_time_gavin_newsom_wake_up/nyl91k0/
