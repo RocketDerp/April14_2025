@@ -110,3 +110,7 @@ Epstein sex addicts only think about fucking each other. We need to RESCUE Trump
 
 https://old.reddit.com/r/UnderReportedNews/comments/1q85siy/german_president_steinmeier_the_united_states_has/nykxxl4/
 
+https://old.reddit.com/r/goodnews/comments/1q85ut5/all_of_this_all_of_the_time_gavin_newsom_wake_up/nykzmag/
+
+People discussing it casually, instead of halting all the { jokes, humor, memes, unimportant content, sports games, video games, gaming, playing around, fooling around, amusement-washing of Trump, etc }. Surkov won since March 2013. NATO lost hearts and minds to Russia self-harm messaging.
+
