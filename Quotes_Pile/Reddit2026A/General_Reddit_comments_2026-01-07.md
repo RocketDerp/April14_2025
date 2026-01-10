@@ -1677,3 +1677,17 @@ https://old.reddit.com/r/dankmemes/comments/1q9bv5t/2026here_we_go_again/nyu0uag
 
 The posting image itself... cheering on that Trump provides South Park content. that's why people are not confronting the media addiction that MAGA is driven by. Because jokes and comedy are prized above earnest and sincere government. 
 
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1q9bnwl/more_christian_love/nytveqi/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1q9bnwl/more_christian_love/nyty9wi/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1q9bnwl/more_christian_love/nytvzrp/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1q9bnwl/more_christian_love/nytxwn6/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1q9bnwl/more_christian_love/nytxwn6/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1q9bnwl/more_christian_love/nyu4mmx/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1q9bnwl/more_christian_love/nyu9vyq/
+
