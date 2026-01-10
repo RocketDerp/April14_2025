@@ -1573,3 +1573,29 @@ https://old.reddit.com/r/antiwork/comments/1q982ba/this_is_what_i_voted_for_trum
 
 Machine logic.
 
+https://old.reddit.com/r/antiwork/comments/1q982ba/this_is_what_i_voted_for_trump_supporter_loses/nytmlmb/
+
+Note the laugh-track "LOL" opening.
+
+There has been almost nobody taking the high road. The high road is standing up for goodness. Quoting Martin Luther King Jr to MAGA. Persisting in blaming Russia to give people the actual source of Trump's power. Not just saying one-word "Russia" and "Putin", but educating people on Surkov techniques and weaponized humor and mockery itself (Neil Postman's teachings). 
+
+This should be household name level information: September 9, 2014 - Johns Hopkins University information expert is author of this article: By Peter Pomerantsev
+
+* "At the NATO summit in Wales last week, General Philip Breedlove, the military alliance’s top commander, made a bold declaration. Russia, he said, is waging “the most amazing information warfare blitzkrieg we have ever seen in the history of information warfare.” It was something of an underestimation. The new Russia doesn’t just deal in the petty disinformation, forgeries, lies, leaks, and cyber-sabotage usually associated with information warfare. It reinvents reality, creating mass hallucinations" - https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+Tech addicts can't even see that We The People do not take the high road! Reddit users have not taken the EDUCATION and TEACHING and **made Jen Senko a household name** regarding billionaire media networks, Fox News! The high road is not your PERSONAL channel choice of avoiding Fox News, it is dusting off Neil Postman's 1985 book "Amusing Ourselves To Death" and teaching it, over and over, that this is the self-awareness against billionaires you stand for!
+
+We make sports stars and attractive actors household names. We need to make teachers of why Fox News is toxic to society household names and admired for bravery to stand up against massively powerful media empires!
+
+https://old.reddit.com/r/antiwork/comments/1q982ba/this_is_what_i_voted_for_trump_supporter_loses/nytid44/
+
+They have been exploited by Rupert Murdoch since October 7, 1996. Billionaires have exploited MAGA and USA in total. Aggressive hate-driving presentation of information has wrecked society. Marshall McLuhan died at the end of year 1980 and we have not been able to get the general public to mind the TV addiction issues to fantasy content like Fox News! We The People need to dust off Marshall McLuhan's teachings and get people to grasp why Elon Musk purchased Twitter and it wasn't { dumb, stupid } as so many people claimed! 
+
+The social POWER, not profit, but the POWER that Elon Musk got with Twitter is staggering! https://old.reddit.com/r/TrueUnpopularOpinion/comments/1nyw3du/the_purchase_of_twitter_paid_off_massively_for/
+
+https://old.reddit.com/r/antiwork/comments/1q982ba/this_is_what_i_voted_for_trump_supporter_loses/nyt22n0/
+
+https://old.reddit.com/r/antiwork/comments/1q982ba/this_is_what_i_voted_for_trump_supporter_loses/nyt3g1q/
+
+Exactly what powers Elon Musk, Murdoch, Trump, Putin. Ukraine tears power Putin. It is a horrible thing to prize, human suffering, and exactly the lead people are following! Leadership of { mocking, hate, mass dehumanization } as sick team sports mentality.
+
