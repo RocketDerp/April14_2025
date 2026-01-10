@@ -126,5 +126,5 @@ Look Man, You are burning your own life to stand up for younger people.
 
 Do you really know the burnout life expectancy of autistic people? To be hated all the time? 
 
-You are a UK man, listen to the one who escaped, the very few, Pete Townshend. Whose both parents were artists like you. Who was a child of two artists. Behind Blue Eye song by The Who!!
+You are a UK man, listen to the one who escaped, the very few, Pete Townshend. Whose both parents were artists like you. Who was a child of two artists. Behind Blue Eyes song by The Who!!
 
