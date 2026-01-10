@@ -1369,3 +1369,14 @@ https://old.reddit.com/r/ProgressiveHQ/comments/1q8pftl/what_goes_around_comes_a
 
 The consequences of avoiding MLK Jr messaging on Reddit messaging systems.
 
+https://old.reddit.com/r/TikTokCringe/comments/1q93rk4/that_is_unbelievable/nys6cod/
+
+The war against real, the war against reality is in the face of the Reddit audience. But people are unable to take what is happening seriously and connect when it all started. September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/TikTokCringe/comments/1q93rk4/that_is_unbelievable/nysp8sz/
+
+The result of fiction television, Reality TV stardom and Fox News entertainment fiction. Social media meme fiction.
+
+https://old.reddit.com/r/TikTokCringe/comments/1q93rk4/that_is_unbelievable/nys73sa/
+
+Audiences do not reasonably react to being filmed, on camera. All the billionaires have got into media, owning social media platforms, owning video platforms, because people are so predictable and easy to manipulate with media. Marshall McLuhan's teachings have been ignored!
