@@ -128,3 +128,9 @@ Do you really know the burnout life expectancy of autistic people? To be hated a
 
 You are a UK man, listen to the one who escaped, the very few, Pete Townshend. Whose both parents were artists like you. Who was a child of two artists. Behind Blue Eyes song by The Who!!
 
+Face up to gullibility - what do you think is autistic life expectancy when hate is prized?
+
+I have autism. Born Columbus Georgia. October 7, 1969
+"I have hours only lonely. My love is vengeance that is never free"!!!
+
+
