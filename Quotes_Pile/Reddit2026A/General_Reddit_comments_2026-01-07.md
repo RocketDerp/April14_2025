@@ -1462,3 +1462,18 @@ https://old.reddit.com/r/clevercomebacks/comments/1q94sun/only_then_would_these_
 https://old.reddit.com/r/clevercomebacks/comments/1q94sun/only_then_would_these_two_things_be_the_same/nyslvre/
 
 https://old.reddit.com/r/clevercomebacks/comments/1q94sun/only_then_would_these_two_things_be_the_same/nysgxt8/
+
+https://old.reddit.com/r/news/comments/1q97hcz/more_than_1000_events_planned_in_us_after_ice/nysyy69/
+
+https://old.reddit.com/r/news/comments/1q97hcz/more_than_1000_events_planned_in_us_after_ice/nyt60fr/
+
+https://old.reddit.com/r/news/comments/1q97hcz/more_than_1000_events_planned_in_us_after_ice/nyt6eua/
+
+https://old.reddit.com/r/news/comments/1q97hcz/more_than_1000_events_planned_in_us_after_ice/nyt0u3l/
+
+https://old.reddit.com/r/news/comments/1q97hcz/more_than_1000_events_planned_in_us_after_ice/nytga5m/
+
+https://old.reddit.com/r/news/comments/1q97hcz/more_than_1000_events_planned_in_us_after_ice/nyt9mq2/
+
+https://old.reddit.com/r/news/comments/1q97hcz/more_than_1000_events_planned_in_us_after_ice/nyt47x3/
+
