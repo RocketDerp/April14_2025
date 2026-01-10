@@ -204,3 +204,44 @@ https://old.reddit.com/r/pics/comments/1q96tbb/a_french_revolution_moment_irania
 
 https://old.reddit.com/r/pics/comments/1q96tbb/a_french_revolution_moment_iranians_burning/nysyrw5/
 
+https://old.reddit.com/r/europe/comments/1q9aq5v/italian_pm_giorgia_meloni_campaigned_in_favour_of/nyuapja/
+
+https://old.reddit.com/r/europe/comments/1q9aq5v/italian_pm_giorgia_meloni_campaigned_in_favour_of/nyuar25/
+
+https://old.reddit.com/r/europe/comments/1q9aq5v/italian_pm_giorgia_meloni_campaigned_in_favour_of/nyuka29/
+
+https://old.reddit.com/r/europe/comments/1q9aq5v/italian_pm_giorgia_meloni_campaigned_in_favour_of/nyubd9h/
+
+https://old.reddit.com/r/europe/comments/1q9aq5v/italian_pm_giorgia_meloni_campaigned_in_favour_of/nyv5qjr/
+
+People in USA think this is just Trump. Just one man. And Elon Musk should be on that list.
+
+https://old.reddit.com/r/europe/comments/1q8zjef/editorial_no_one_wants_to_discuss_swedish_nuclear/nyrc7qm/
+
+Trump and Putin are threatening all goodness on Earth.
+
+https://old.reddit.com/r/europe/comments/1q8zjef/editorial_no_one_wants_to_discuss_swedish_nuclear/nyrewgx/
+
+https://old.reddit.com/r/europe/comments/1q90szp/meloni_does_not_believe_us_will_make_military/nyrlbji/
+
+https://old.reddit.com/r/europe/comments/1q90szp/meloni_does_not_believe_us_will_make_military/nyrog6o/
+
+https://old.reddit.com/r/europe/comments/1q90szp/meloni_does_not_believe_us_will_make_military/nyrorz3/
+
+Americans are entirely addicted to Trump's style / fashion / behaviors. He provides a constant source of media content for a society driven by high-speed information systems / media networks. People prize the hate leadership and mockery leading that Trump provides. 
+
+https://old.reddit.com/r/europe/comments/1q90szp/meloni_does_not_believe_us_will_make_military/nytsw0n/
+
+Audiences respond to worse and worse titles. A race to the bottom to keep up with audience demand for terrible information.
+
+https://old.reddit.com/r/europe/comments/1q90szp/meloni_does_not_believe_us_will_make_military/nyrm257/
+
+https://old.reddit.com/r/europe/comments/1q90szp/meloni_does_not_believe_us_will_make_military/nyrlm6b/
+
+https://old.reddit.com/r/europe/comments/1q90szp/meloni_does_not_believe_us_will_make_military/nyrmwkb/
+
+https://old.reddit.com/r/europe/comments/1q8noxh/trump_ramps_up_greenland_threats_and_says_us_will/nypm4bt/
+
+<img width="867" height="462" alt="image" src="https://github.com/user-attachments/assets/452e535f-381e-4b7c-82eb-5ea330f9bf67" /> Trump's primary talent is stimulating media. Wild and crazy policy and antics.
+
+Social post { https://autistics.life/@RoundSparrow/115873294114771262 https://bsky.app/profile/roundsparrow.bsky.social/post/3mc44lbcvo22v }
