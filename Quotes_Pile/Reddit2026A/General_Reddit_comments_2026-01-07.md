@@ -1359,3 +1359,13 @@ I deeply realized something was horribly wrong in 2009. I relocated to Africa an
 OPERA_A River *Styx* - The Best of Times - World for zero. https://www.youtube.com/watch?v=_fzJGxpcenc memories of way long ago 1970's yesterday. At least we had some honest art to teach us back in 1980's. 
 11,236,801 views September 1, 2017 the world did indeed turn upside down. January 1981 as the first single from their iconic album [Paradise Theatre](https://en.wikipedia.org/wiki/Paradise_Theatre_(album)),
 
+https://old.reddit.com/r/ProgressiveHQ/comments/1q8pftl/what_goes_around_comes_around/nypgoql/
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1q8pftl/what_goes_around_comes_around/nypl1zj/
+
+Selling of hate. Retailing of hate. Hate mongering. Prizing of hate.
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1q8pftl/what_goes_around_comes_around/nype7og/
+
+The consequences of avoiding MLK Jr messaging on Reddit messaging systems.
+
