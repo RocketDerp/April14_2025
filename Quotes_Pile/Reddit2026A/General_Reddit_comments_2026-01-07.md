@@ -1691,3 +1691,14 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1q9bnwl/more_christian_love
 
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1q9bnwl/more_christian_love/nyu9vyq/
 
+https://old.reddit.com/r/politics/comments/1q99ws5/ice_barbies_latest_stunt_sent_trump_insiders_into/nyuab97/
+
+https://old.reddit.com/r/politics/comments/1q99ws5/ice_barbies_latest_stunt_sent_trump_insiders_into/nyupidr/
+
+People prize hate. Russia attacking Ukraine. Afghanistan Taliban. USA. Media coverage finds thoughtful progress to be boring and unattractive. Rupert Murdoch and Elon Musk have global media networks promoting hate! Meme consumers do not speak out against ALL hate in ALL places. That idea is considered too boring. 
+
+https://old.reddit.com/r/politics/comments/1q99ws5/ice_barbies_latest_stunt_sent_trump_insiders_into/nyu2li8/
+
+<img width="1158" height="609" alt="image" src="https://github.com/user-attachments/assets/4a9ed19e-49ab-416d-85ae-27b79029eb62" /> Fiction storytelling outsells nonfiction. Putin has been leading Reddit society with this since March 2013.
+
+Social post { https://autistics.life/@RoundSparrow/115873099127704107 https://bsky.app/profile/roundsparrow.bsky.social/post/3mc3zrvz7v223 }
