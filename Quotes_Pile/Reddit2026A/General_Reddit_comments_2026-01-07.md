@@ -1509,3 +1509,34 @@ https://old.reddit.com/r/pics/comments/1q98sb9/unbelievable_scenes_from_iran_upr
 
 https://old.reddit.com/r/dankmemes/comments/1q96ryr/priorities_am_i_right/nystbkd/
 
+https://old.reddit.com/r/politics/comments/1q972ap/the_case_for_impeaching_donald_trump_no_democrats/nyt3bd4/
+
+https://old.reddit.com/r/politics/comments/1q972ap/the_case_for_impeaching_donald_trump_no_democrats/nyt9yhv/
+
+https://old.reddit.com/r/politics/comments/1q972ap/the_case_for_impeaching_donald_trump_no_democrats/nysv4jk/
+
+https://old.reddit.com/r/politics/comments/1q972ap/the_case_for_impeaching_donald_trump_no_democrats/nyt2ate/
+
+https://old.reddit.com/r/politics/comments/1q972ap/the_case_for_impeaching_donald_trump_no_democrats/nysv7zp/
+
+https://old.reddit.com/r/politics/comments/1q9818l/a_disturbing_pattern_has_emerged_in_trumps_second/nyt1684/
+
+https://old.reddit.com/r/politics/comments/1q9818l/a_disturbing_pattern_has_emerged_in_trumps_second/nyt3nu0/
+
+https://old.reddit.com/r/politics/comments/1q9818l/a_disturbing_pattern_has_emerged_in_trumps_second/nyt3v81/
+
+https://old.reddit.com/r/politics/comments/1q9818l/a_disturbing_pattern_has_emerged_in_trumps_second/nyt2j5v/
+
+https://old.reddit.com/r/politics/comments/1q9818l/a_disturbing_pattern_has_emerged_in_trumps_second/nyt931r/
+
+https://old.reddit.com/r/politics/comments/1q9818l/a_disturbing_pattern_has_emerged_in_trumps_second/nyt6wdn/
+
+Denial Abounds. Putin's war Against Reality has been ongoing since year 2013.
+
+https://old.reddit.com/r/politics/comments/1q98lbj/tucker_carlson_slams_right_for_seeking_political/nyte4ed/
+
+https://old.reddit.com/r/politics/comments/1q8soqc/trump_administration_freezes_food_stamps_in/nypyu6p/
+
+https://old.reddit.com/r/politics/comments/1q8soqc/trump_administration_freezes_food_stamps_in/nypz496/
+
+Fiction addictions. Meme addictions. It's the entire nation who is abandoning goodness in some competitive out-group hate sports mentality. 
