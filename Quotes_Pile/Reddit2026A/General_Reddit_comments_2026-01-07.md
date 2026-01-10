@@ -1632,3 +1632,42 @@ Tiny commenting messages, nobody wants to face Neil Postman's 1985 book.
 https://old.reddit.com/r/nottheonion/comments/1q97zcz/g7_to_postpone_annual_meeting_to_accommodate/nyt634m/
 
 Entertainment addiction can be a Reddit society confrontation. Fox News HDTV addiction. Junk memes are not a good source of learning. We he People... need to face Marshall McLuhan's teachings. [STOP ALL ENTERTAINMENT, IT IS NOT ESSENTIAL!](/Grim_Blunt/Stop_All_Entertainment.md)
+
+https://old.reddit.com/r/Fauxmoi/comments/1q99r1m/zara_larssons_latest_ig_story_i_love_immigrants_i/nytia1o/
+
+https://old.reddit.com/r/Fauxmoi/comments/1q99r1m/zara_larssons_latest_ig_story_i_love_immigrants_i/nytgjja/
+
+https://old.reddit.com/r/Fauxmoi/comments/1q99r1m/zara_larssons_latest_ig_story_i_love_immigrants_i/nytid5n/
+
+https://old.reddit.com/r/Fauxmoi/comments/1q99r1m/zara_larssons_latest_ig_story_i_love_immigrants_i/nytgk71/
+
+https://old.reddit.com/r/minnesota/comments/1q9c3nj/minneapolis_mn_while_the_city_still_grieves_for/nyu4qki/
+
+https://old.reddit.com/r/minnesota/comments/1q9c3nj/minneapolis_mn_while_the_city_still_grieves_for/nyu2ibe/
+
+https://old.reddit.com/r/minnesota/comments/1q9c3nj/minneapolis_mn_while_the_city_still_grieves_for/nyu72ld/
+
+The Internet Research Agency started in March 2013.. two years before June 16, 2015 Trump announcement. So many minds favoring self-harm and mockery leadership. Following mockery.
+
+https://old.reddit.com/r/minnesota/comments/1q9c3nj/minneapolis_mn_while_the_city_still_grieves_for/nyu7mmo/
+
+https://old.reddit.com/r/minnesota/comments/1q9c3nj/minneapolis_mn_while_the_city_still_grieves_for/nyu7rln/
+
+https://old.reddit.com/r/minnesota/comments/1q9c3nj/minneapolis_mn_while_the_city_still_grieves_for/nyu6cw7/
+
+People prize power. Systemic power. Blocking people, banning people, banning books, deporting people.
+
+https://old.reddit.com/r/minnesota/comments/1q9c3nj/minneapolis_mn_while_the_city_still_grieves_for/nyu3uqc/
+
+https://old.reddit.com/r/minnesota/comments/1q9c3nj/minneapolis_mn_while_the_city_still_grieves_for/nyu3tkt/
+
+https://old.reddit.com/r/minnesota/comments/1q9c3nj/minneapolis_mn_while_the_city_still_grieves_for/nyu7lpo/
+
+Hate is what matters to people. Prizing hate and power.
+
+https://old.reddit.com/r/minnesota/comments/1q9c3nj/minneapolis_mn_while_the_city_still_grieves_for/nyu7byf/
+
+Note the "LOL" laugh track for Reddit audiences. Mocking away.
+
+https://old.reddit.com/r/minnesota/comments/1q9c3nj/minneapolis_mn_while_the_city_still_grieves_for/nyu4idz/
+
