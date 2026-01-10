@@ -93,10 +93,10 @@ Writing this shit is shit itself. But in this is why the uSA worhips and prizes 
 
 &nbsp;
 
-The utility of men, msut be entertaining (sports stars, actors, entertainers, musicians, artists, charming, military) or inner life is discarded. Unlelss, of course, you are a religon symbol: Moses, Trump, Putin, Buddha, Jesus - then people care about your marriage  / parenting / inner life and notice.    
+The utility of men, must be entertaining (sports stars, actors, entertainers, musicians, artists, charming, military) or inner life is discarded. Unless, of course, you are a religion symbol: Moses, Trump, Putin, Buddha, Jesus - then people care about your marriage  / parenting / inner life and notice.    
 https://old.reddit.com/r/Adulting/comments/1nk1nsa/whats_your_take_on_this/
 
-Then those men feel they have to *earn* digity and emotonal worth, conquest women. Arrange systems of control over women. As Malala describes in her October 8, 2013 book of bieng a girl under the Taliban.  
+Then those men feel they have to *earn* dignity and emotional worth, conquest women. Arrange systems of control over women. As Malala describes in her October 8, 2013 book of being a girl under the Taliban.  
 
 &nbsp;
 
@@ -105,3 +105,26 @@ Then those men feel they have to *earn* digity and emotonal worth, conquest wome
 Instead of preaching against hate, prizing hate. The microphone is right there to say "hate is bad".
 
 https://old.reddit.com/r/TikTokCringe/comments/1og06hy/dont_ask_the_question_if_youre_not_prepared_to/
+
+
+&nbsp;
+
+&nbsp;
+
+# Autistimatic reply
+
+https://www.autistamatic.com/
+
+2026-01-09 reply to UK
+
+<img width="1815" height="750" alt="image" src="https://github.com/user-attachments/assets/5a2d620b-910b-472d-823e-c11e763430cd" />
+
+
+https://www.YouTube.com/post/UgkxbfdDHsoL0lMvl9PDQIVBfuxTRJrP4S0d
+
+Look Man, You are burning your own life to stand up for younger people. 
+
+Do you really know the burnout life expectancy of autistic people? To be hated all the time? 
+
+You are a UK man, listen to the one who escaped, the very few, Pete Townshend. Whose both parents were artists like you. Who was a child of two artists. Behind Blue Eye song by The Who!!
+
