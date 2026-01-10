@@ -1348,3 +1348,14 @@ Page: 203-204
 Howard Bloom    
 Published: August 14, 2000    
 
+https://old.reddit.com/r/Adulting/comments/1q8nte3/why_is_this_mentality_so_prevelant_in_gen_z/nyox5yg/
+
+I'm over age 55. You are all being mind-fucked by billionaires who own Fox News, Twitter, Facebook, etc. I know, I worked for them in 1996 and didn't realize what they were doing to the hearts and minds of the population. Surkov won since March 2013. Honesty about the struggle is honesty. 
+
+https://old.reddit.com/r/Adulting/comments/1q8nte3/why_is_this_mentality_so_prevelant_in_gen_z/nyp07ht/
+
+I deeply realized something was horribly wrong in 2009. I relocated to Africa and the Middle East to see how much the media clergy, the science fiction venues of { Torah, Bible, Quran } were fucking over the audiences and populations.
+
+OPERA_A River *Styx* - The Best of Times - World for zero. https://www.youtube.com/watch?v=_fzJGxpcenc memories of way long ago 1970's yesterday. At least we had some honest art to teach us back in 1980's. 
+11,236,801 views September 1, 2017 the world did indeed turn upside down. January 1981 as the first single from their iconic album [Paradise Theatre](https://en.wikipedia.org/wiki/Paradise_Theatre_(album)),
+
