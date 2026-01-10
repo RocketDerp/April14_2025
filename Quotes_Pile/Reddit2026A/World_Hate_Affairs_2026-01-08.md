@@ -173,3 +173,27 @@ Putin values, and audiences who won't cite nonfiction learning on the problem.
 https://old.reddit.com/r/worldnews/comments/1q8l3rw/trump_we_are_going_to_do_something_on_greenland/nyoa01h/
 
 Reddit doesn't know how to engage nonfiction anymore. We All are unable to turn to serious sustained focus on what is important.
+
+https://old.reddit.com/r/worldnews/comments/1q8o7f3/britain_wont_let_us_use_its_bases_to_attack/nyozl73/
+
+Yes, it makes sense if you study February 28, 1954 teachings about hate mindsets.
+
+* "For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the true becomes false and the false becomes true. That's what hate does. You can't see right. The symbol of objectivity is lost." - Martin Luther King Jr.
+
+https://old.reddit.com/r/worldnews/comments/1q8o7f3/britain_wont_let_us_use_its_bases_to_attack/nyp2d6q/
+
+https://old.reddit.com/r/worldnews/comments/1q8o7f3/britain_wont_let_us_use_its_bases_to_attack/nypbadi/
+
+4 mouth account with massive popularity on Reddit with short messages.
+
+https://old.reddit.com/r/worldnews/comments/1q8o7f3/britain_wont_let_us_use_its_bases_to_attack/nyp30q0/
+
+If you read this from September 9, 2014 - which is more than 10 years ago, more than a decade - we could have kept repeating it and defeated Putin's takeover of USA hearts and minds: https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ "Russia and the Menace of Unreality: How Vladimir Putin is revolutionizing information warfare. By Peter Pomerantsev"
+
+https://old.reddit.com/r/worldnews/comments/1q8o7f3/britain_wont_let_us_use_its_bases_to_attack/nyp3a3n/
+
+<img width="1049" height="451" alt="image" src="https://github.com/user-attachments/assets/3d4c15c3-8879-4dbf-b04e-cd94f684ec2f" /> How pro-dumb do you have to be to see one-sentence Twitter-length thinking is ruling the ENTIRE POPULATION MINDSETS. People take seriously Twitter-messages more than entire public library of nonfiction books. How dumb-prizing do you have to be **to not take seriously Marshall McLuhan about reality television**? Neil Postman abandoned, etc.
+
+* “Science is more than a body of knowledge; it is a way of thinking. I have a (year 1995) foreboding of an America in my children’s or grandchildren’s time — when the United States is a service and information economy; when nearly all the key manufacturing industries have slipped away to other countries; when awesome technological powers are in the hands of a very few, and no one representing the public interest can even grasp the issues; when the people have lost the ability to set their own agendas or knowledgeably question those in authority; when, clutching our crystals and nervously consulting our horoscopes, our critical faculties in decline, unable to distinguish between what feels good and what’s true, we slide, almost without noticing, back into superstition and darkness. The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the **30-second** sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but especially a kind of [celebration of ignorance](https://www.youtube.com/watch?v=wcY-x1VuWtE). As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning — not just of science, but of anything — are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995, page 59
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mbzubeembk2n https://autistics.life/@RoundSparrow/115868207181212299 }
