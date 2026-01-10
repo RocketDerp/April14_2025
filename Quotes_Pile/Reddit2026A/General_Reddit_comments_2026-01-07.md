@@ -1671,3 +1671,9 @@ Note the "LOL" laugh track for Reddit audiences. Mocking away.
 
 https://old.reddit.com/r/minnesota/comments/1q9c3nj/minneapolis_mn_while_the_city_still_grieves_for/nyu4idz/
 
+https://old.reddit.com/r/Baking/comments/1q98u7l/my_bday_cake/nytzogh/
+
+https://old.reddit.com/r/dankmemes/comments/1q9bv5t/2026here_we_go_again/nyu0uag/
+
+The posting image itself... cheering on that Trump provides South Park content. that's why people are not confronting the media addiction that MAGA is driven by. Because jokes and comedy are prized above earnest and sincere government. 
+
