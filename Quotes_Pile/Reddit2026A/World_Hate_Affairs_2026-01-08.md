@@ -245,3 +245,8 @@ https://old.reddit.com/r/europe/comments/1q8noxh/trump_ramps_up_greenland_threat
 <img width="867" height="462" alt="image" src="https://github.com/user-attachments/assets/452e535f-381e-4b7c-82eb-5ea330f9bf67" /> Trump's primary talent is stimulating media. Wild and crazy policy and antics.
 
 Social post { https://autistics.life/@RoundSparrow/115873294114771262 https://bsky.app/profile/roundsparrow.bsky.social/post/3mc44lbcvo22v }
+
+https://old.reddit.com/r/pics/comments/1q9ip8w/young_women_leading_the_protests_in_iran_oc/nyvihf5/
+
+https://old.reddit.com/r/pics/comments/1q9ip8w/young_women_leading_the_protests_in_iran_oc/nyvlgbi/
+
