@@ -1249,3 +1249,15 @@ https://old.reddit.com/r/worldnews/comments/1q8l3rw/trump_we_are_going_to_do_som
 <img width="1082" height="538" alt="Screenshot from 2026-01-09 16-56-20" src="https://github.com/user-attachments/assets/83fed98a-baee-4d9f-87f9-27b0eca159f3" /> Serious is impossible. Neil Postman's books explain!
 
 Social Post { https://autistics.life/@RoundSparrow/115867852664928876 https://bsky.app/profile/roundsparrow.bsky.social/post/3mbzpat6fx22f }
+
+https://old.reddit.com/r/worldnews/comments/1q8l3rw/trump_we_are_going_to_do_something_on_greenland/nyobdef/
+
+https://old.reddit.com/r/worldnews/comments/1q8l3rw/trump_we_are_going_to_do_something_on_greenland/nyocexr/
+
+https://old.reddit.com/r/worldnews/comments/1q8l3rw/trump_we_are_going_to_do_something_on_greenland/nyogiqv/
+
+Reddit users don't grasp that rape is about power more often than about sex.
+
+https://old.reddit.com/r/worldnews/comments/1q8l3rw/trump_we_are_going_to_do_something_on_greenland/nyocohw/
+
+Social media made Trump dumber than he ever was. Social media had wrecked an entire population. Social media gives me brain damage and real people ADMIT that the junk billionaires dump upon us all gives us brain damage and sickens us!
