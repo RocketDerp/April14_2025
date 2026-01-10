@@ -1599,3 +1599,36 @@ https://old.reddit.com/r/antiwork/comments/1q982ba/this_is_what_i_voted_for_trum
 
 Exactly what powers Elon Musk, Murdoch, Trump, Putin. Ukraine tears power Putin. It is a horrible thing to prize, human suffering, and exactly the lead people are following! Leadership of { mocking, hate, mass dehumanization } as sick team sports mentality.
 
+https://old.reddit.com/r/nottheonion/comments/1q97zcz/g7_to_postpone_annual_meeting_to_accommodate/nyt18rj/
+
+Entertainment and amusement is why Trump is the constant center of all USA attention since June 16, 2015. Putin won by exploiting the deep seated faith that if it "feels good" to be part of mob mentality and entertaining - it must *be good*.
+
+* “Everything in our background has prepared us to know and resist a prison when the gates begin to close around us . . . But what if there are no cries of anguish to be heard? Who is prepared to take arms against a sea of amusements? To whom do we complain, and when, and in what tone of voice, when serious discourse dissolves into giggles? What is the antidote to a culture's being drained by laughter?” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
+
+https://old.reddit.com/r/nottheonion/comments/1q97zcz/g7_to_postpone_annual_meeting_to_accommodate/nyt1n2s/
+
+Clearly Trump and White House planned a massive January 1, 2026 series of events. Venezuela takeover, more ICE aggression, junking world organizations, aggressive Greenland posturing and notices.
+
+https://old.reddit.com/r/nottheonion/comments/1q97zcz/g7_to_postpone_annual_meeting_to_accommodate/nyt2p4m/
+
+https://old.reddit.com/r/nottheonion/comments/1q97zcz/g7_to_postpone_annual_meeting_to_accommodate/nyt2spi/
+
+Childhood television addictions run this nation. A reality TV star entertainer is what people can not resist!
+
+https://old.reddit.com/r/nottheonion/comments/1q97zcz/g7_to_postpone_annual_meeting_to_accommodate/nyt46vn/
+
+https://old.reddit.com/r/nottheonion/comments/1q97zcz/g7_to_postpone_annual_meeting_to_accommodate/nyt3syx/
+
+https://old.reddit.com/r/nottheonion/comments/1q97zcz/g7_to_postpone_annual_meeting_to_accommodate/nyt1eoz/
+
+Reddit censoring overseas news.
+
+https://old.reddit.com/r/nottheonion/comments/1q97zcz/g7_to_postpone_annual_meeting_to_accommodate/nyt677u/
+
+https://old.reddit.com/r/nottheonion/comments/1q97zcz/g7_to_postpone_annual_meeting_to_accommodate/nyt6jcs/
+
+Tiny commenting messages, nobody wants to face Neil Postman's 1985 book.
+
+https://old.reddit.com/r/nottheonion/comments/1q97zcz/g7_to_postpone_annual_meeting_to_accommodate/nyt634m/
+
+Entertainment addiction can be a Reddit society confrontation. Fox News HDTV addiction. Junk memes are not a good source of learning. We he People... need to face Marshall McLuhan's teachings. [STOP ALL ENTERTAINMENT, IT IS NOT ESSENTIAL!](/Grim_Blunt/Stop_All_Entertainment.md)
