@@ -1380,3 +1380,53 @@ The result of fiction television, Reality TV stardom and Fox News entertainment 
 https://old.reddit.com/r/TikTokCringe/comments/1q93rk4/that_is_unbelievable/nys73sa/
 
 Audiences do not reasonably react to being filmed, on camera. All the billionaires have got into media, owning social media platforms, owning video platforms, because people are so predictable and easy to manipulate with media. Marshall McLuhan's teachings have been ignored!
+
+https://old.reddit.com/r/worldnews/comments/1q94pba/cannot_be_shared_or_transferred_nobel_committee/nysdajq/
+
+Entertainment shows. Like "Jackass" film. Dumb and Dumber.
+
+https://old.reddit.com/r/worldnews/comments/1q94pba/cannot_be_shared_or_transferred_nobel_committee/nysloo3/
+
+The simplistic Twitter-think that everything is always only money. Addiction to memes all over /r/All of Reddit and people *pay money* to view content. Trump is an addict to being on camera.
+
+https://old.reddit.com/r/worldnews/comments/1q94pba/cannot_be_shared_or_transferred_nobel_committee/nyser79/
+
+https://old.reddit.com/r/complaints/comments/1q94p0w/jonathan_ross_the_minneapolis_ice_agent_who_shot/nysv3z7/
+
+https://old.reddit.com/r/complaints/comments/1q94p0w/jonathan_ross_the_minneapolis_ice_agent_who_shot/nysvadw/
+
+https://old.reddit.com/r/complaints/comments/1q94p0w/jonathan_ross_the_minneapolis_ice_agent_who_shot/nysm9hz/
+
+https://old.reddit.com/r/complaints/comments/1q94p0w/jonathan_ross_the_minneapolis_ice_agent_who_shot/nyssfem/
+
+https://old.reddit.com/r/law/comments/1q8zp5i/an_ice_agent_in_minnesota_showing_their_current/nyrerwi/
+
+https://old.reddit.com/r/law/comments/1q8zp5i/an_ice_agent_in_minnesota_showing_their_current/nyrqtsw/
+
+https://old.reddit.com/r/law/comments/1q8zp5i/an_ice_agent_in_minnesota_showing_their_current/nys9far/
+
+https://old.reddit.com/r/law/comments/1q8zp5i/an_ice_agent_in_minnesota_showing_their_current/nysbbw1/
+
+https://old.reddit.com/r/law/comments/1q8zp5i/an_ice_agent_in_minnesota_showing_their_current/nyrij8k/
+
+And people prize male "leadership" for using systems to dehumanize. Financial systems, weapon systems, transportation systems, red tape systems. 
+
+https://old.reddit.com/r/law/comments/1q8zp5i/an_ice_agent_in_minnesota_showing_their_current/nyrwo1z/
+
+https://old.reddit.com/r/law/comments/1q8zp5i/an_ice_agent_in_minnesota_showing_their_current/nys7wh8/
+
+The [timeline of people prizing Trump for showing off women at a sex show in 2013 in Moscow vs. Malala trying to organize education to girls / women](/PostMalala/Marriage/World_Malala_Timeline_Year_2012.md)....
+
+https://old.reddit.com/r/law/comments/1q8zp5i/an_ice_agent_in_minnesota_showing_their_current/nyrifyw/
+
+Even worse on Twitter and Reddit where most men don't use real identity and photographs of their real home and work. On Facebook, people tend to identify themselves.
+
+https://old.reddit.com/r/law/comments/1q8zp5i/an_ice_agent_in_minnesota_showing_their_current/nyrpvls/
+
+https://old.reddit.com/r/law/comments/1q8zp5i/an_ice_agent_in_minnesota_showing_their_current/nys2y9f/
+
+https://old.reddit.com/r/law/comments/1q8zp5i/an_ice_agent_in_minnesota_showing_their_current/nysgqop/
+
+https://old.reddit.com/r/law/comments/1q8zp5i/an_ice_agent_in_minnesota_showing_their_current/nys6o24/
+
+https://old.reddit.com/r/law/comments/1q8zp5i/an_ice_agent_in_minnesota_showing_their_current/nyrix9a/
