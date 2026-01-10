@@ -1702,3 +1702,66 @@ https://old.reddit.com/r/politics/comments/1q99ws5/ice_barbies_latest_stunt_sent
 <img width="1158" height="609" alt="image" src="https://github.com/user-attachments/assets/4a9ed19e-49ab-416d-85ae-27b79029eb62" /> Fiction storytelling outsells nonfiction. Putin has been leading Reddit society with this since March 2013.
 
 Social post { https://autistics.life/@RoundSparrow/115873099127704107 https://bsky.app/profile/roundsparrow.bsky.social/post/3mc3zrvz7v223 }
+
+https://old.reddit.com/r/politics/comments/1q99ws5/ice_barbies_latest_stunt_sent_trump_insiders_into/nyu9y2o/
+
+Reddit society has not organized and taken seriously the Fox News HDTV addiction problems. Just like Church, the addiction to fantasy information providers and fiction storytelling. It has blown up in our face and people will not choose to address the CAUSE of MAGA. Trump is self-harm to the entire world, and Fox News and junk information on Reddit is the breeding ground / toxic culture that powers toxic leaders.
+
+https://old.reddit.com/r/politics/comments/1q99ws5/ice_barbies_latest_stunt_sent_trump_insiders_into/nytp67p/
+
+https://old.reddit.com/r/politics/comments/1q99ws5/ice_barbies_latest_stunt_sent_trump_insiders_into/nytzq67/
+
+https://old.reddit.com/r/politics/comments/1q99ws5/ice_barbies_latest_stunt_sent_trump_insiders_into/nytry2s/
+
+https://old.reddit.com/r/politics/comments/1q99ws5/ice_barbies_latest_stunt_sent_trump_insiders_into/nytorvq/
+
+Fiction storytelling outsells nonfiction. The whole society prizes that you can have so many variations of storytelling. All on different pages. Anti-Wiki anti-FAQ social media, everyone writing comments that do not refine and organize information. Every person in their own filter-bubble.
+
+https://old.reddit.com/r/politics/comments/1q99ws5/ice_barbies_latest_stunt_sent_trump_insiders_into/nythp97/
+
+Trumpism / Trump behavior adopted at ever level. { insulting, nicknames, mocking, hate prizing, mockery creation }
+
+https://old.reddit.com/r/politics/comments/1q99ws5/ice_barbies_latest_stunt_sent_trump_insiders_into/nytjjm7/
+
+Audiences love the South Park content. The attraction to mockery and attraction to superficial and banal is extreme in USA society. People do not want to face up to the power that junk media has over society. Reality TV President is popular because it is run like a Reality TV show. Surkov students won since March 2013.
+
+https://old.reddit.com/r/politics/comments/1q99ws5/ice_barbies_latest_stunt_sent_trump_insiders_into/nyu53gx/
+
+But people love to put teams of sports in conflict and discuss every minor little detail. It's content creation. 
+
+Russia and the **Menace of Unreality**   
+How Vladimir Putin is revolutionizing information warfare   
+Peter Pomerantsev   
+September 9 2014, 3:42 PM ET   
+
+* “If previous authoritarian regimes were three parts violence and one part propaganda,” argues Igor Yakovenko, a professor of journalism at the Moscow State Institute of International Relations, “this one is **virtually all propaganda and relatively little violence**. Putin only needs to make a few arrests—and then amplify the message through his total control of television.”
+
+Translated from 2013 Russia to USA 2025: I.C.E. raids are very little violence and a lot of showboating. A lot of Reddit front-page I.C.E. raids for visual meme addicts / meme consumers. No recognition that Kremlin and White House has the Reddit total control of media amplifiers. Reddit is amplifying media from all over the Internet. Eating the onions that Trump and Musk is dementia stupid dumb idiot, Reddit society unable to engage and comprehend and understand off-Reddit... September 9, 2014: https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/politics/comments/1q99ws5/ice_barbies_latest_stunt_sent_trump_insiders_into/nytjq7z/
+
+That's been the whole basis of the Kremlin information warfare. To put people in so much fiction that they no longer are concerned with or attracted to nonfiction. The addiction to fiction storytelling overcomes any desire for goodness itself.
+
+https://old.reddit.com/r/politics/comments/1q99ws5/ice_barbies_latest_stunt_sent_trump_insiders_into/nytz0dc/
+
+Tech lovers are so concerned to assert the importance of dominating women with shallowness, superficial concerns. Love machines, hate humans. Do not educate humans, do not teach humans, we all must learn and seek good education. Which is to make superficial and shallow the primary topic attraction. 
+
+https://old.reddit.com/r/politics/comments/1q99ws5/ice_barbies_latest_stunt_sent_trump_insiders_into/nytn5c1/
+
+Hate for hate. Hate vs. hate. Teams of hate vs. teams of hate.
+
+https://old.reddit.com/r/politics/comments/1q99ws5/ice_barbies_latest_stunt_sent_trump_insiders_into/nytkrbp/
+
+Liberal vs. conservative brain-rot. the entire nation, including Reddit audiences, frame things with click-bait and superficial and shallow attraction. the whole economy now driven by manipulation of audiences.
+
+https://old.reddit.com/r/politics/comments/1q99ws5/ice_barbies_latest_stunt_sent_trump_insiders_into/nyuki3p/
+
+Framing everything left vs. right. It creates a team-sport mentality. There is no concern for "We The People" inclusive, it is sports-think. "Winner Takes All", "Crush and dominate" sports logic.
+
+https://old.reddit.com/r/politics/comments/1q99ws5/ice_barbies_latest_stunt_sent_trump_insiders_into/nyto0h3/
+
+https://old.reddit.com/r/politics/comments/1q99ws5/ice_barbies_latest_stunt_sent_trump_insiders_into/nyu0iri/
+
+It isn't stupid, it's the audience of Reddit that prizes this very content as a way to mock and call others "not smart". Nobody on Reddit has the balls to confront low-effort Twitter-length comment message addictions. The addicts to saying Donald Trump { toddler, dumb, idiot, baby, stupid, moron, not smart } over and over in a loop every day on Reddit commenting sections. This is the very mechanism of power for Trump. [Audiences who eat the Surkovian Onions](../Reddit2025A/Surkovian_Onion_Eating.md) and think the onion taste great! [Shit-eating LOL LOL amusement audience on Reddit, people grading the turds of Trump as they pour down / trickle down from the wealthy media empires](/Grim_Blunt/Society_of_grading_and_ranking_turds.md).
+
+Reddit meme addicts do not realize Trump is an actor. Trump has been an actor decades before he went into the White House in early year 2017. Trump is acting. President Tony Clifton, live every day all day. Acting to Surkov screenplays, SNL NYC home town of Trump, Tony Clifton improvisation and scripting hybrid Russian warfare. ACTOR that Reddit community of meme addicts eat up, fall for.
