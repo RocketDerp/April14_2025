@@ -1456,3 +1456,9 @@ Martin Luther King Jr's 1950's writings are right on WikiQuote https://en.wikiqu
 https://old.reddit.com/r/clevercomebacks/comments/1q94sun/only_then_would_these_two_things_be_the_same/nyt4hls/
 
 Note the absence of book quotes, off-Reddit links, author names, book titles. All this labor, all this free time and spare time, spent commenting on different pages. There really needs to be something like: [Brainrot Society 47](/PostMalala/Assert_Malala/Brainrot_Society_47.md) organized priorities of getting on the same *important* pages.
+
+https://old.reddit.com/r/clevercomebacks/comments/1q94sun/only_then_would_these_two_things_be_the_same/nysgxrp/
+
+https://old.reddit.com/r/clevercomebacks/comments/1q94sun/only_then_would_these_two_things_be_the_same/nyslvre/
+
+https://old.reddit.com/r/clevercomebacks/comments/1q94sun/only_then_would_these_two_things_be_the_same/nysgxt8/
