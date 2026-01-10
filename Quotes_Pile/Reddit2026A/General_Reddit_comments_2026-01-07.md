@@ -1441,3 +1441,18 @@ https://old.reddit.com/r/mildlyinfuriating/comments/1q91mux/i_just_saw_a_man_adm
 
 Men behave this way to other men. People who claim to have all kinds of values in dating and spouses I find often tolerate the absolute worst values in employers / workplace. They spend 50 hours a week at their most alert serving terrible outcomes and systems.
 
+https://old.reddit.com/r/clevercomebacks/comments/1q94sun/only_then_would_these_two_things_be_the_same/nysjo9z/
+
+https://old.reddit.com/r/clevercomebacks/comments/1q94sun/only_then_would_these_two_things_be_the_same/nyt93se/
+
+A constant problem for people.
+
+https://old.reddit.com/r/clevercomebacks/comments/1q94sun/only_then_would_these_two_things_be_the_same/nyskbvp/
+
+They aren't "normal people". I moved to the Middle East to study the great religions people claim are so perfect. This was in early 2011, before Trump became the nonstop constant center of USA society June 16, 2015. Perfect book { Torah, Quran, Bible }. People seem unwilling to break free from dogma. Be it a subreddit or a certain business organization or sport, whatever, people latch on trees and do not see the forest. Russia thinking about Ukraine is just self-harm to Russia.
+
+Martin Luther King Jr's 1950's writings are right on WikiQuote https://en.wikiquote.org/wiki/Martin_Luther_King_Jr. - but very very few people seems attracted to addressing these all to common problems as normal education and teaching for every person.
+
+https://old.reddit.com/r/clevercomebacks/comments/1q94sun/only_then_would_these_two_things_be_the_same/nyt4hls/
+
+Note the absence of book quotes, off-Reddit links, author names, book titles. All this labor, all this free time and spare time, spent commenting on different pages. There really needs to be something like: [Brainrot Society 47](/PostMalala/Assert_Malala/Brainrot_Society_47.md) organized priorities of getting on the same *important* pages.
