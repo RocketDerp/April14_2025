@@ -1540,3 +1540,36 @@ https://old.reddit.com/r/politics/comments/1q8soqc/trump_administration_freezes_
 https://old.reddit.com/r/politics/comments/1q8soqc/trump_administration_freezes_food_stamps_in/nypz496/
 
 Fiction addictions. Meme addictions. It's the entire nation who is abandoning goodness in some competitive out-group hate sports mentality. 
+
+https://old.reddit.com/r/antiwork/comments/1q982ba/this_is_what_i_voted_for_trump_supporter_loses/nyt3cud/
+
+The terrible idea is the widespread faith in mocking. Mocking is not resisting Trump. Trump makes a mockery of all goodness! Trump turns everything into a joke or a meme or a mockable situation. By mocking, people are adopting the very system of Trump's power. Anti-intellectual, anti-teaching, anti-goodness. 
+
+Mocking "Fox News dumb", and "Church is dumb" does not educate people on WHY. Gullibility is driven by billionaires mocking poor people, rural less educated people. Mocking does not educate, it does not teach. People who follow Trump consider mocking normalcy, they are attracted to the very signals of hate and mocking leadership. People can no longer imagine a society where people are sincere, honest, and not tricking them!
+
+An educated intelligent population should be encouraged, begged for, pleaded for. https://en.wikipedia.org/wiki/New_sincerity#In_philosophy
+
+https://old.reddit.com/r/antiwork/comments/1q982ba/this_is_what_i_voted_for_trump_supporter_loses/nytjk46/
+
+https://old.reddit.com/r/antiwork/comments/1q982ba/this_is_what_i_voted_for_trump_supporter_loses/nytxcjw/
+
+https://old.reddit.com/r/antiwork/comments/1q982ba/this_is_what_i_voted_for_trump_supporter_loses/nytsxxh/
+
+Billionaires are the teachers. Fox News HDTV, Elon Musk richest person in the world Twitter. All the successful athletes and stars are on these media systems and paraded. Mocking everyday people as worthless and unimportant is what billionaires do! The ecosystem of adult values is driven by dissing, humiliating, defeating, having more than others. Being more hate-filled and hate-prizing as a form of competition has become normal since year 2013.
+
+https://old.reddit.com/r/antiwork/comments/1q982ba/this_is_what_i_voted_for_trump_supporter_loses/nyt3kxj/
+
+This is fundamentally what people do not grasp that Surkov students have weaponized! It is the absolute faith people have in mocking. Russia has seen it under Putin for over 25 years. Trump today is mocking Renee Good and her wife. Entire states and cities are being systemically mocked by Trump. It i a toxic faith, and it is the very mechanism the Internet Research Agency exploited!
+
+* Stephen Colbert May 4, 2019: Russian Trolls Are Fueling The Anti Vaxxer Movement. 1,076,636 views. May 4, 2019 https://www.youtube.com/watch?v=Ju7Yt0LMiVk
+
+https://old.reddit.com/r/antiwork/comments/1q982ba/this_is_what_i_voted_for_trump_supporter_loses/nytb47o/
+
+https://old.reddit.com/r/antiwork/comments/1q982ba/this_is_what_i_voted_for_trump_supporter_loses/nytbov9/
+
+Reddit machine messages; Give up on Americans. Give up on rescuing people from Russia's manipulation. Tech lovers telling audience members to give up on education, humanism, teaching. Exactly the message Trump is saying about immigrants and liberals! To GIVE UP on humans and prize technology that Elon Musk and other billionaires create!
+
+https://old.reddit.com/r/antiwork/comments/1q982ba/this_is_what_i_voted_for_trump_supporter_loses/nyte668/
+
+Machine logic.
+
