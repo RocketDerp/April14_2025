@@ -1430,3 +1430,14 @@ https://old.reddit.com/r/law/comments/1q8zp5i/an_ice_agent_in_minnesota_showing_
 https://old.reddit.com/r/law/comments/1q8zp5i/an_ice_agent_in_minnesota_showing_their_current/nys6o24/
 
 https://old.reddit.com/r/law/comments/1q8zp5i/an_ice_agent_in_minnesota_showing_their_current/nyrix9a/
+
+https://old.reddit.com/r/mildlyinfuriating/comments/1q91mux/i_just_saw_a_man_admit_to_weaponised_incompetence/nyry78z/
+
+Why would you want a government that keeps health care from other people? Why would you poison the land, water, air and think it doesn't harm other people and animals on the planet? Why would you hoard power and wealth and wage wars to gain far more than you  need instead of sharing and promoting teachers and systems of how to share?
+
+The book "Freedom: Alchemy for a Voluntary Society" by Stephan A. Hoeller comes to mind
+
+https://old.reddit.com/r/mildlyinfuriating/comments/1q91mux/i_just_saw_a_man_admit_to_weaponised_incompetence/nysc1m7/
+
+Men behave this way to other men. People who claim to have all kinds of values in dating and spouses I find often tolerate the absolute worst values in employers / workplace. They spend 50 hours a week at their most alert serving terrible outcomes and systems.
+
