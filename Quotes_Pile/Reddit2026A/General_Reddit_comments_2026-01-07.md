@@ -1322,3 +1322,13 @@ https://old.reddit.com/r/Music/comments/1q8liho/neil_young_scorches_donald_trump
 
 https://old.reddit.com/r/Music/comments/1q8liho/neil_young_scorches_donald_trump_in_new_editorial/nyom5oh/
 
+https://old.reddit.com/r/worldnews/comments/1q8o7f3/britain_wont_let_us_use_its_bases_to_attack/nyp4hn8/
+
+https://old.reddit.com/r/worldnews/comments/1q8o7f3/britain_wont_let_us_use_its_bases_to_attack/nyp1bui/
+
+https://old.reddit.com/r/worldnews/comments/1q8o7f3/britain_wont_let_us_use_its_bases_to_attack/nyp1zwd/
+
+https://old.reddit.com/r/worldnews/comments/1q8o7f3/britain_wont_let_us_use_its_bases_to_attack/nyp2lyl/
+
+2-month Reddit account. Encouraging Reddit audience to NOT see that Reddit Itself has not made front-page world wide for sustained protest. Social media is "not THE media' or We The People mindset messaging.
+
