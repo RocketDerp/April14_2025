@@ -1293,3 +1293,15 @@ https://old.reddit.com/r/politics/comments/1q8i4mi/us_world_cup_boycotts_grow_as
 Putin turned the entire society insane since March 2013. We The People will not face up to mob mentality caused by media content.
 
 * https://www.youtube.com/watch?v=09maaUaRT4M&t=743s Please watch: "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL"
+
+https://old.reddit.com/r/AskReddit/comments/1q8jlet/how_do_you_think_the_video_ice_just_released/nynyfu2/
+
+Top-voted comment. 6-month Reddit account age. Has every sincere simple comment creator been banned into creating new accounts? or is it the short-length no-citation (Neil Postman, Marshall McLuhan avoidance) that sells?
+
+https://old.reddit.com/r/AskReddit/comments/1q8jlet/how_do_you_think_the_video_ice_just_released/nyo66kc/
+
+We The People have to stop with the media addictions and face Marshall McLuhan's teachings. [STOP ALL ENTERTAINMENT, UNIMPORTANT MEMES ARE NOT ESSENTIAL!](/Grim_Blunt/Stop_All_Entertainment.md)
+
+https://old.reddit.com/r/AskReddit/comments/1q8jlet/how_do_you_think_the_video_ice_just_released/nynyeea/
+
+Because *gun video images stimulate addicts to video storytelling, film and TV*... video gamers! Winning a high score for their sports-start team!
