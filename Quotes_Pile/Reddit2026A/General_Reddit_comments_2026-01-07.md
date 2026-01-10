@@ -1791,3 +1791,22 @@ It isn't stupid, it's the audience of Reddit that prizes this very content as a 
 https://old.reddit.com/r/MurderedByWords/comments/1q9h25q/oh_please_tell_me_more_mr_president/nyv5htt/
 
 Yes, Trump gets entirely that this works on Reddit audiences. President Tony Clifton acting.  Nobody on Reddit has the balls to confront low-effort Twitter-length comment message addictions. The addicts to saying Donald Trump { toddler, dumb, idiot, baby, stupid, moron, not smart } over and over in a loop every day on Reddit commenting sections. This is the very mechanism of power for Trump. [Audiences who eat the Surkovian Onions](../Reddit2025A/Surkovian_Onion_Eating.md) and think the onion taste great!
+
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1q9fv2h/keith_porter_was_killed_by_ice/nyvetwz/
+
+Junk information desires have taken over the USA population since March 2013. It's been ever-expanding increase for more and more trash memes and low-effort commenting. Trump provides leadership of people seeking constant media stimulation of wild and poor information sources.
+
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1q9fv2h/keith_porter_was_killed_by_ice/nyuzn05/
+
+People keep polluting good information with junk. Anti-Wiki Anti-FAQ values of all commenting over and over about situations and events instead of organizing around important information refinement.
+
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1q9fv2h/keith_porter_was_killed_by_ice/nyv5k1a/
+
+7-month old Reddit account cracking jokes.
+
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1q9fv2h/keith_porter_was_killed_by_ice/nyvcl12/
+
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1q9fv2h/keith_porter_was_killed_by_ice/nyuz2c0/
+
+https://old.reddit.com/r/news/comments/1q9gc6h/maryland_woman_who_says_she_is_us_citizen_finally/nyuvsx7/
+
