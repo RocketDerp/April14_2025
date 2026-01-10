@@ -1305,3 +1305,20 @@ We The People have to stop with the media addictions and face Marshall McLuhan's
 https://old.reddit.com/r/AskReddit/comments/1q8jlet/how_do_you_think_the_video_ice_just_released/nynyeea/
 
 Because *gun video images stimulate addicts to video storytelling, film and TV*... video gamers! Winning a high score for their sports-start team!
+
+https://old.reddit.com/r/Music/comments/1q8liho/neil_young_scorches_donald_trump_in_new_editorial/nyodca2/
+
+7-month Reddit account, top comment.
+
+Social Post { https://autistics.life/@RoundSparrow/115868034521238732 https://bsky.app/profile/roundsparrow.bsky.social/post/3mbzru22lyc2m https://midwest.social/post/41599587 }
+
+https://old.reddit.com/r/Music/comments/1q8liho/neil_young_scorches_donald_trump_in_new_editorial/nyogko9/
+
+Me fucking too! I would rather be watching entertainment instead of writing these repetitive assertions of Neil Postman and Marshall McLuhan and Joseph Campbell and James Joyce, and most of all Jean Erdman. https://www.weirduniverse.net/blog/comments/the_coach_with_six_insides
+
+Neil Postman did not want to be proven correct. Carl Sagan 1995 book did not want to be correct!
+
+https://old.reddit.com/r/Music/comments/1q8liho/neil_young_scorches_donald_trump_in_new_editorial/nyogfoc/
+
+https://old.reddit.com/r/Music/comments/1q8liho/neil_young_scorches_donald_trump_in_new_editorial/nyom5oh/
+
