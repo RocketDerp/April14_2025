@@ -1261,3 +1261,35 @@ Reddit users don't grasp that rape is about power more often than about sex.
 https://old.reddit.com/r/worldnews/comments/1q8l3rw/trump_we_are_going_to_do_something_on_greenland/nyocohw/
 
 Social media made Trump dumber than he ever was. Social media had wrecked an entire population. Social media gives me brain damage and real people ADMIT that the junk billionaires dump upon us all gives us brain damage and sickens us!
+
+https://old.reddit.com/r/technology/comments/1q8kve7/tim_cook_and_sundar_pichai_are_cowards_xs/nyo8mq6/
+
+[Everything MAGA is media ecology.](/Media_Ecology/Everything_is_ME.md). Billionaires betting on owning more hearts and minds that Putin wrecked.
+
+https://old.reddit.com/r/technology/comments/1q8kve7/tim_cook_and_sundar_pichai_are_cowards_xs/nyoeue8/
+
+https://old.reddit.com/r/technology/comments/1q8kve7/tim_cook_and_sundar_pichai_are_cowards_xs/nyo9axe/
+
+https://old.reddit.com/r/technology/comments/1q8kve7/tim_cook_and_sundar_pichai_are_cowards_xs/nyo9iso/
+
+https://old.reddit.com/r/technology/comments/1q8kve7/tim_cook_and_sundar_pichai_are_cowards_xs/nyoao1d/
+
+https://old.reddit.com/r/technology/comments/1q8kve7/tim_cook_and_sundar_pichai_are_cowards_xs/nyosbru/
+
+Reddit owners honor Musk and allow his ISP and networks invade Reddit to manipulate end-users that speak out against Musk in the most educating way. Marshall McLuhan and Neil Postman books are the true threat to media addiction empires.
+
+https://old.reddit.com/r/technology/comments/1q8kve7/tim_cook_and_sundar_pichai_are_cowards_xs/nyobn9p/
+
+Reddit tech lovers stand for more machine power. Gaming / gamers / game addicts.
+
+https://old.reddit.com/r/politics/comments/1q8i4mi/us_world_cup_boycotts_grow_as_trump_threatens/nynl2ci/
+
+Celebrity worship. And super sports medicine health care worship. Children age 2 and older indoctrinated in the cult of billionaire sports providers. Every clergy system in world history... techniques applied to selling sports icons to worship.
+
+https://old.reddit.com/r/politics/comments/1q8i4mi/us_world_cup_boycotts_grow_as_trump_threatens/nynpauq/
+
+https://old.reddit.com/r/politics/comments/1q8i4mi/us_world_cup_boycotts_grow_as_trump_threatens/nynm9vn/
+
+Putin turned the entire society insane since March 2013. We The People will not face up to mob mentality caused by media content.
+
+* https://www.youtube.com/watch?v=09maaUaRT4M&t=743s Please watch: "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL"
