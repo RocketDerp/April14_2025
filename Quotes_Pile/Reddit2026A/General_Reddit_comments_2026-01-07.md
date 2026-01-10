@@ -1490,3 +1490,22 @@ https://old.reddit.com/r/news/comments/1q97hcz/more_than_1000_events_planned_in_
 https://old.reddit.com/r/news/comments/1q97hcz/more_than_1000_events_planned_in_us_after_ice/nytf2ww/
 
 https://old.reddit.com/r/news/comments/1q97hcz/more_than_1000_events_planned_in_us_after_ice/nytffcn/
+
+https://old.reddit.com/r/pics/comments/1q98sb9/unbelievable_scenes_from_iran_uprising_oc/nyt8s6c/
+
+https://old.reddit.com/r/pics/comments/1q98sb9/unbelievable_scenes_from_iran_uprising_oc/nyte6jq/
+
+https://old.reddit.com/r/pics/comments/1q98sb9/unbelievable_scenes_from_iran_uprising_oc/nyt9xzh/
+
+https://old.reddit.com/r/pics/comments/1q98sb9/unbelievable_scenes_from_iran_uprising_oc/nyte28o/
+
+https://old.reddit.com/r/pics/comments/1q98sb9/unbelievable_scenes_from_iran_uprising_oc/nytb6ut/
+
+There is no supernatural. Torah, Quran, Bible are all popular science fiction stories. Fox News fiction addiction rules the USA. But people can't see the problem of fiction addiction as a general concern.
+
+https://old.reddit.com/r/pics/comments/1q98sb9/unbelievable_scenes_from_iran_uprising_oc/nythgic/
+
+https://old.reddit.com/r/pics/comments/1q98sb9/unbelievable_scenes_from_iran_uprising_oc/nytehzs/
+
+https://old.reddit.com/r/dankmemes/comments/1q96ryr/priorities_am_i_right/nystbkd/
+
