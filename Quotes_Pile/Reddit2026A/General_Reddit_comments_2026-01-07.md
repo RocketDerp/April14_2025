@@ -1765,3 +1765,29 @@ https://old.reddit.com/r/politics/comments/1q99ws5/ice_barbies_latest_stunt_sent
 It isn't stupid, it's the audience of Reddit that prizes this very content as a way to mock and call others "not smart". Nobody on Reddit has the balls to confront low-effort Twitter-length comment message addictions. The addicts to saying Donald Trump { toddler, dumb, idiot, baby, stupid, moron, not smart } over and over in a loop every day on Reddit commenting sections. This is the very mechanism of power for Trump. [Audiences who eat the Surkovian Onions](../Reddit2025A/Surkovian_Onion_Eating.md) and think the onion taste great! [Shit-eating LOL LOL amusement audience on Reddit, people grading the turds of Trump as they pour down / trickle down from the wealthy media empires](/Grim_Blunt/Society_of_grading_and_ranking_turds.md).
 
 Reddit meme addicts do not realize Trump is an actor. Trump has been an actor decades before he went into the White House in early year 2017. Trump is acting. President Tony Clifton, live every day all day. Acting to Surkov screenplays, SNL NYC home town of Trump, Tony Clifton improvisation and scripting hybrid Russian warfare. ACTOR that Reddit community of meme addicts eat up, fall for.
+
+https://old.reddit.com/r/MurderedByWords/comments/1q9h25q/oh_please_tell_me_more_mr_president/nyv4aoe/
+
+Reddit social media audience is always ready and waiting eagerly for the next Donald Trump image, claim, or antic, or statement to react-comment to. All spare time and free time that could be standing up to Russia's information warfare goes into Tweet-like Twitter-length messages. A constant Trump-washing joke-washing meme-washing insult-prizing community that has elevated Trump tot he top since June 15, 2015. Surkov won.
+
+https://old.reddit.com/r/MurderedByWords/comments/1q9h25q/oh_please_tell_me_more_mr_president/nyvdpak/
+
+They do care. They are attracted to the Putin self-harm and messaging. Highly concerned to keep on the self-harm path, chasing the fiction storytelling patterns.
+
+https://old.reddit.com/r/MurderedByWords/comments/1q9h25q/oh_please_tell_me_more_mr_president/nyv2u6g/
+
+A population that will not turn to Neil Postman's nonfiction books and face the media addiction to cringe and bad entertainment content, Trump values.
+
+https://old.reddit.com/r/MurderedByWords/comments/1q9h25q/oh_please_tell_me_more_mr_president/nyv1qfj/
+
+https://old.reddit.com/r/MurderedByWords/comments/1q9h25q/oh_please_tell_me_more_mr_president/nyvdreg/
+
+Fiction outsells nonfiction. Science learning and reality are avoided by meme audiences / meme followers like Trump and USA society in total.
+
+https://old.reddit.com/r/MurderedByWords/comments/1q9h25q/oh_please_tell_me_more_mr_president/nyv3olm/
+
+It isn't stupid, it's the audience of Reddit that prizes this very content as a way to mock and call others "not smart". Nobody on Reddit has the balls to confront low-effort Twitter-length comment message addictions. The addicts to saying Donald Trump { toddler, dumb, idiot, baby, stupid, moron, not smart } over and over in a loop every day on Reddit commenting sections. This is the very mechanism of power for Trump. [Audiences who eat the Surkovian Onions](../Reddit2025A/Surkovian_Onion_Eating.md) and think the onion taste great!
+
+https://old.reddit.com/r/MurderedByWords/comments/1q9h25q/oh_please_tell_me_more_mr_president/nyv5htt/
+
+Yes, Trump gets entirely that this works on Reddit audiences. President Tony Clifton acting.  Nobody on Reddit has the balls to confront low-effort Twitter-length comment message addictions. The addicts to saying Donald Trump { toddler, dumb, idiot, baby, stupid, moron, not smart } over and over in a loop every day on Reddit commenting sections. This is the very mechanism of power for Trump. [Audiences who eat the Surkovian Onions](../Reddit2025A/Surkovian_Onion_Eating.md) and think the onion taste great!
