@@ -233,49 +233,23 @@ def fetch_comment_data(url, idx=None, args=None):
         replies.decompose()
 
 
-    try:
-        body_div = comment_div.select_one(".usertext-body .md")
-        comment_md = None
-        if body_div:
-            comment_md = convert_html_to_md(body_div)
-        else:
-            print("WARNING: comment not found")
-            comment_md = "[comment not found]"
+    # onec = one_comment
+    onec = comment_do_one(comment_div)
 
-        author_tag = comment_div.select_one("a.author")
-        author = author_tag.text.strip() if author_tag else "[deleted]"
-
-        time_tag = comment_div.select_one(".tagline time")
-        comment_age = time_tag.text.strip() if time_tag else None
-        comment_timestamp = None
-    except Exception as e:
-        print(f"problem processing comment checkpoint A. {e}")
-        #print(e)
-        print(traceback.format_exc())
-        raise ValueError(f"Could not process comment {comment_id} on page {url}")
-
-    if time_tag and "title" in time_tag.attrs:
-        try:
-            dt = datetime.datetime.strptime(time_tag["title"], "%a %b %d %H:%M:%S %Y UTC")
-            comment_timestamp = dt.isoformat() + "Z"
-        except ValueError:
-            comment_timestamp = time_tag["title"]
-
-    score_tag = comment_div.select_one(".score.unvoted")
-    score_text = score_tag.text.strip() if score_tag else None
 
     account_date, bio, link_karma, comment_karma, account_live_fetch = None, None, None, None, False
-    if fetch_user_info and author != "[deleted]":
-        if use_hover:
-            account_date, bio, link_karma, comment_karma, account_live_fetch = fetch_user_info_hover(author, args)
-            if account_live_fetch:
+    if fetch_user_info:
+        if onec["author"] != "[deleted]":
+            if use_hover:
+                account_date, bio, link_karma, comment_karma, account_live_fetch = fetch_user_info_hover(onec["author"], args)
+                if account_live_fetch:
+                    live_fetch = True
+            else:
                 live_fetch = True
-        else:
-            live_fetch = True
-            account_date, bio = fetch_user_info_full(author)
+                account_date, bio = fetch_user_info_full(author)
             
     post_title, post_account, post_body = None, None, None
-    # for now, there is no applicaiton param to control, so hard-ware to true
+    # for now, there is no application param to control, so hard-ware to true
     if 1:
         # 1. Get the Posting Title
         # On old.reddit, the post title is typically an <a> tag with class "title"
@@ -311,12 +285,12 @@ def fetch_comment_data(url, idx=None, args=None):
 
     return {
         "url": url,
-        "author": author,
+        "author": onec["author"],
         "comment_id": comment_id,
-        "comment": comment_md,
-        "comment_age": comment_age,
-        "comment_timestamp": comment_timestamp,
-        "score": score_text,
+        "comment": onec["comment_md"],
+        "comment_age": onec["comment_age"],
+        "comment_timestamp": onec["comment_timestamp"],
+        "score": onec["score_text"],
         "account_created": account_date,
         "bio": bio,
         "link_karma": link_karma,
@@ -325,6 +299,7 @@ def fetch_comment_data(url, idx=None, args=None):
         "post_title": post_title,
         "post_body": post_body,
     }
+
 
 
 def fetch_user_info_hover(username, args=None):
