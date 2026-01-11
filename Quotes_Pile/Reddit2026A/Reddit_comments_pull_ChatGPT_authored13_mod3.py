@@ -579,6 +579,7 @@ def main():
                 sys.exit(1)
             continue
 
+        # Markdown formatted output
         output_lines = [
             "\n",
             "="*13,
@@ -625,8 +626,8 @@ def main():
 
     with open('Output/run_summary0.txt', 'a') as summaryfile:
         summaryfile.write(f"{args.output}\n")
-        summaryfile.write(f"{endtime_iso_with_ms}\n")
-        
+        summaryfile.write(f"    end {endtime_iso_with_ms}\n")
+
         if errorCountA + errorCountB > 0:
             print(f"\nERRORS encountered! Final error counts, A: {errorCountA} B: {errorCountB}")
             summaryfile.write(f"\nERRORS encountered! Final error counts, A: {errorCountA} B: {errorCountB}\n")
