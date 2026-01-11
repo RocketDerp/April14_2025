@@ -351,3 +351,5 @@ https://old.reddit.com/r/technology/comments/1qa39vy/uk_canada_and_australia_in_
 https://old.reddit.com/r/technology/comments/1qa39vy/uk_canada_and_australia_in_talks_to_ban_x_over/nyzxx8u/
 
 https://old.reddit.com/r/technology/comments/1qa39vy/uk_canada_and_australia_in_talks_to_ban_x_over/nz1alou/
+
+https://old.reddit.com/r/pcmasterrace/comments/1qa9vlc/epic_games_ceo_tim_sweeney_argues_banning_twitter/nz1bkb4/
