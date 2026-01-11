@@ -417,3 +417,7 @@ https://old.reddit.com/r/DiscussionZone/comments/1qa6h0w/breaking_uk_france_germ
 https://old.reddit.com/r/law/comments/1qa77qi/trump_orders_top_army_officials_to_draw_up_plan/nz0qks6/
 
 Calling it insane. But nobody wants to use social media to push the name and nonfiction books of Dr. Bandy X Lee. Free time, spare time, spent **avoiding** repeating and asserting: { Jen Senko, Marshall McLuhan, Neil Postman, Dr. Bandy X Lee, Peter Pomerantsev, Bill Moyers }
+
+https://old.reddit.com/r/worldnews/comments/1qa335j/nobel_institute_rejects_mar%C3%ADa_corina_machados/nyzq8sl/
+
+Even more "LOL cow" milk icons and status symbols for USA audiences. Prizing of mocking. Nobody wants to use social media to push the name and nonfiction books of Dr. Bandy X Lee. Free time, spare time, spent **avoiding** repeating and asserting: { Jen Senko, Marshall McLuhan, Neil Postman, Dr. Bandy X Lee, Peter Pomerantsev, Bill Moyers }
