@@ -501,7 +501,7 @@ def fetch_user_info_hover(username, args=None):
         if reddit_account_data["is_suspended"]:
              print("suspended account encountered")
              quit_request = pause_with_quit(3)
-			 if quit_request:
+             if quit_request:
                 sys.exit(1)
              return None, None, None, None, False
 
