@@ -200,3 +200,9 @@ The simulacra right in the face of Reddit. And people program it into their mind
 https://old.reddit.com/r/chaoticgood/comments/1qa5yzb/please_for_the_fucking_love_of_god_stop_calling/nz0c2px/
 
 Avoiding repeating and asserting: { Jen Senko, Marshall McLuhan, Neil Postman, Dr. Bandy X Lee, Peter Pomerantsev, Bill Moyers }
+
+
+https://old.reddit.com/r/IThinkYouShouldLeave/comments/1qa5pz3/theres_too_much_fucking_shit_on_me_i_cant_breathe/nz0nhib/
+
+Meme audiences so thrilled to have constant stimulation of White House entertainment. Super, shallow, banal society USA California Reddit. Free time, spare time, spent avoiding repeating and asserting: { Jen Senko, Marshall McLuhan, Neil Postman, Dr. Bandy X Lee, Peter Pomerantsev, Bill Moyers }
+
