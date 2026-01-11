@@ -112,6 +112,48 @@ def convert_html_to_md(div):
         return f"ERROR\nERROR on HTML to markdown. Providing raw HTML:\n{div}";
 
 
+def comment_do_one (comment_div):
+    try:
+        body_div = comment_div.select_one(".usertext-body .md")
+        comment_md = None
+        if body_div:
+            comment_md = convert_html_to_md(body_div)
+        else:
+            print("WARNING: comment not found")
+            comment_md = "[comment not found]"
+
+        author_tag = comment_div.select_one("a.author")
+        author = author_tag.text.strip() if author_tag else "[deleted]"
+
+        time_tag = comment_div.select_one(".tagline time")
+        comment_age = time_tag.text.strip() if time_tag else None
+        comment_timestamp = None
+    except Exception as e:
+        print(f"problem processing comment checkpoint A. {e}")
+        #print(e)
+        print(traceback.format_exc())
+        raise ValueError(f"Could not process comment {comment_id} on page {url}")
+        
+    if time_tag and "title" in time_tag.attrs:
+        try:
+            dt = datetime.datetime.strptime(time_tag["title"], "%a %b %d %H:%M:%S %Y UTC")
+            comment_timestamp = dt.isoformat() + "Z"
+        except ValueError:
+            comment_timestamp = time_tag["title"]
+
+    score_tag = comment_div.select_one(".score.unvoted")
+    score_text = score_tag.text.strip() if score_tag else None
+
+    return {
+        "author_tag": author_tag,
+        "author": author,
+        "time_tag": time_tag,
+        "comment_age": comment_age,
+        "comment_timestamp": comment_timestamp,
+        "comment_md": comment_md,
+        "score_tag": score_tag,
+        "score_text": score_text,
+    }
 
 
 def fetch_comment_data(url, idx=None, args=None):
