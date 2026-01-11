@@ -317,3 +317,20 @@ Crazy. https://www.youtube.com/watch?v=09maaUaRT4M&t=743s Please watch: "MASS PS
 https://old.reddit.com/r/therewasanattempt/comments/1qa7lpt/to_make_charlie_kirks_assassination_look_like_the/nz0rlrb/
 
 No off-Reddit URL, no quotes from off-Reddit, just off the cuff assertions. Meme-thinking culture, high speed messaging addictions. Free time, spare time, spent **avoiding** repeating and asserting: { Jen Senko, Marshall McLuhan, Neil Postman, Dr. Bandy X Lee, Peter Pomerantsev, Bill Moyers }
+
+https://old.reddit.com/r/therewasanattempt/comments/1qa7lpt/to_make_charlie_kirks_assassination_look_like_the/nz0uphm/
+
+https://old.reddit.com/r/therewasanattempt/comments/1qa7lpt/to_make_charlie_kirks_assassination_look_like_the/nz0ub7k/
+
+Prizing high-speed reactionary hate messaging.
+
+https://old.reddit.com/r/okbuddychicanery/comments/1qa23qf/ai_generated_posts_are_being_banned/nyzojie/
+
+https://old.reddit.com/r/MurderedByWords/comments/1qa92ul/the_white_house_on_soccer_moms/nz12emc/
+
+Imagine people making low-effort comments over and over on different pages on meme mills and doing everything they can to avoid nonfiction learning and teaching. Meme-thinking culture, high speed messaging addictions. Free time, spare time, spent **avoiding** repeating and asserting: { Jen Senko, Marshall McLuhan, Neil Postman, Dr. Bandy X Lee, Peter Pomerantsev, Bill Moyers }
+
+https://old.reddit.com/r/MurderedByWords/comments/1qa92ul/the_white_house_on_soccer_moms/nz12fk8/
+
+The audience entertainment about how this "Murdered Trump, Murdered the White House" (subreddit context name) is very real bullshit worshiping. 
+
