@@ -195,5 +195,8 @@ Low-effort tiny-short Reddit commenting to call leaders { dumb, stupid, idiot, m
 
 https://old.reddit.com/r/complaints/comments/1qa6zbk/kristi_noem_we_cant_trust_our_government_anymore/nz0ogbx/
 
-The simulacra right in the face of Reddit. And people program it into their mind and act like this is just another day of memes and amusement. When billionaires use Elon Musk richest person in the world media systems, Mark Zuckerberg Facebook / Meta media empire, Truth Social media empire, Reddit media empire... to NOT challenge the addictions to media... the induced hive mind behaviors of media cultists. Avoiding repeating and asserting: { Jen Senko, Marshall McLuhan, Neil Postman, Dr. Bandy X Lee, Peter Pomerantsev, 
-Bill Moyers }
+The simulacra right in the face of Reddit. And people program it into their mind and act like this is just another day of memes and amusement. When billionaires use Elon Musk richest person in the world media systems, Mark Zuckerberg Facebook / Meta media empire, Truth Social media empire, Reddit media empire... to NOT challenge the addictions to media... the induced hive mind behaviors of media cultists. Avoiding repeating and asserting: { Jen Senko, Marshall McLuhan, Neil Postman, Dr. Bandy X Lee, Peter Pomerantsev, Bill Moyers }
+
+https://old.reddit.com/r/chaoticgood/comments/1qa5yzb/please_for_the_fucking_love_of_god_stop_calling/nz0c2px/
+
+Avoiding repeating and asserting: { Jen Senko, Marshall McLuhan, Neil Postman, Dr. Bandy X Lee, Peter Pomerantsev, Bill Moyers }
