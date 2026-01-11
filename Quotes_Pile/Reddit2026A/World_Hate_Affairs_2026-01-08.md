@@ -250,3 +250,16 @@ https://old.reddit.com/r/pics/comments/1q9ip8w/young_women_leading_the_protests_
 
 https://old.reddit.com/r/pics/comments/1q9ip8w/young_women_leading_the_protests_in_iran_oc/nyvlgbi/
 
+https://old.reddit.com/r/news/comments/1q9k0xz/mass_killings_reported_as_security_forces_use/nyvureu/
+
+https://old.reddit.com/r/news/comments/1q9k0xz/mass_killings_reported_as_security_forces_use/nyvvdkp/
+
+https://old.reddit.com/r/news/comments/1q9k0xz/mass_killings_reported_as_security_forces_use/nyvuvts/
+
+https://old.reddit.com/r/news/comments/1q9k0xz/mass_killings_reported_as_security_forces_use/nyvtldp/
+
+https://old.reddit.com/r/news/comments/1q9k0xz/mass_killings_reported_as_security_forces_use/nyw0uva/
+
+https://old.reddit.com/r/news/comments/1q9k0xz/mass_killings_reported_as_security_forces_use/nyvt0j4/
+
+Audiences want to comment and not point everyone to a common FAQ or Wiki page.
