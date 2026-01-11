@@ -29,7 +29,7 @@ from html_to_markdown import convert_to_markdown
 
 # Global variables
 
-HEADERS = {"User-Agent": "Pluribus TV project"}
+HEADERS = {"User-Agent": "Pluribus TV project version 0.1.0"}
 errorCountB = 0
 fetchRedditCountA = 0
 error_fetch_count = 0
@@ -185,8 +185,8 @@ def walk_comment_tree(comment_div, level=0):
 
     else:
         
-        # ToDo: throw app args into global and check global args?
-        fetch_user_info = True
+        # ToDo: throw aapp rgs into global and check global args?
+        fetch_user_info = False
         use_hover=True
 
         # Old Reddit uses 'thing' class for the container
@@ -476,24 +476,35 @@ def fetch_user_info_hover(username, args=None):
         print(f"live-fetch for user_info_hover {url}")
         fetchRedditCountA += 1
         
-        if fetchRedditCountA % 7 == 0:
-            print(f"fetchRedditCountA {fetchRedditCountA} is a multiple of 7.")
-            sleep_time = random.uniform(3, 16)  # 2–8 seconds pause
+        slowdown_every = 5
+        if fetchRedditCountA % showdown_every == 0:
+            print(f"fetchRedditCountA {fetchRedditCountA} is a multiple of {slowdown_every}.")
+            sleep_time = random.uniform(7, 22)
             quit_request = pause_with_quit(sleep_time)
             if quit_request:
                 sys.exit(1)
         
         res = requests.get(url, headers=HEADERS)
         fetch_time_epoch = int(time.time())
-        if res.status_code != 200:
-            error_fetch_count += 1
-            print("Error encountered on Reddit account data fetch")
-            print(res)
-            quit_request = pause_with_quit(3)
+        if res.status_code == 404:
+            // user account deleted
+            reddit_account_data = res.json()["data"]
+            print(f("User account 404 deleted? {url}")
+            print(f("account data: {reddit_account_data}")
+            quit_request = pause_with_quit(24)
             if quit_request:
                 sys.exit(1)
-            return None, None, None, None, False
-        reddit_account_data = res.json()["data"]
+        else:
+            if res.status_code != 200:
+                error_fetch_count += 1
+                print("Error encountered on Reddit account data fetch")
+                print(res)
+                quit_request = pause_with_quit(3)
+                if quit_request:
+                    sys.exit(1)
+                return None, None, None, None, False
+            reddit_account_data = res.json()["data"]
+        
         live_fetch = True
 
         # account_filename = os.path.join(args.fetched_account_folder, f"{username}.json")
@@ -505,6 +516,7 @@ def fetch_user_info_hover(username, args=None):
                 json.dump(reddit_account_data, f, indent=4) # indent=4 makes the JSON output more readable
                 print(f"Saved fresh fetched account JSON to {account_filename}")
 
+    # ToDo: are both of these redundnat?
     if "is_suspended" in reddit_account_data:
         if reddit_account_data["is_suspended"]:
              print("suspended account encountered")
