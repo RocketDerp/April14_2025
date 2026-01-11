@@ -224,3 +224,44 @@ https://old.reddit.com/r/books/comments/1qa1y6u/gen_z_are_arriving_to_college_un
 
 Rupert Murdoch and Donald Trump and Elon Musk... are wrecking the minds of people. "Woke Mind Virus" that Musk understands https://www.lemonde.fr/en/international/article/2024/08/13/elon-musk-s-ambition-repopulating-the-planet-and-destroying-the-woke-virus_6714239_4.html more than Reddit. Finnegans Wake / Finn's Hotel year 1923 self-awareness mindsets, "Woke" to media! The pro-commenting anti-Wiki anti-FAQ values of Musk media empire lord.  https://theintercept.com/2025/11/26/grok-elon-musk-grokipedia-hitler/
 
+https://old.reddit.com/r/books/comments/1qa1y6u/gen_z_are_arriving_to_college_unable_to_even_read/nyzhl5z/
+
+https://old.reddit.com/r/books/comments/1qa1y6u/gen_z_are_arriving_to_college_unable_to_even_read/nyzo8qi/
+
+https://old.reddit.com/r/books/comments/1qa1y6u/gen_z_are_arriving_to_college_unable_to_even_read/nyzkqm0/
+
+https://old.reddit.com/r/books/comments/1qa1y6u/gen_z_are_arriving_to_college_unable_to_even_read/nz00zvu/
+
+https://old.reddit.com/r/books/comments/1qa1y6u/gen_z_are_arriving_to_college_unable_to_even_read/nyzsgax/
+
+Reddit is a for-profit corporation too. People prize junk information that billionaires trickle down. This is everything New York University professor, Manhattan, Neil Postman described as a warning in his year 1985 book. Time Magazine tried to revive it last year, but audiences of Reddit won't face the meme decoration addictions that billionaires have created. September 10, 2025 https://Time.com/7313999/neil-postman-trump-prediction/
+
+https://old.reddit.com/r/clevercomebacks/comments/1qa2ukg/lol_poor_lil_marco/nyzqep6/
+
+https://old.reddit.com/r/clevercomebacks/comments/1qa2ukg/lol_poor_lil_marco/nz0iaje/
+
+Tech lover audience of Reddit touch device hardware. Casual dog whistle political messages on Reddit. Dehumanizing person as "bots" casually to serve the billionaire ChatGPT / GrokAI creators.
+
+https://old.reddit.com/r/clevercomebacks/comments/1qa2ukg/lol_poor_lil_marco/nyzsql1/
+
+Social media never ends entertainment-wrapping Trump. The sane-washing joke-washing meme-decoration of Trump as the greatest "LOL cow" to milk over and over. President Tony Clifton acting works on social media meme addicts. Avoiding repeating and asserting: { Jen Senko, Marshall McLuhan, Neil Postman, Dr. Bandy X Lee, Peter Pomerantsev }.
+
+https://old.reddit.com/r/clevercomebacks/comments/1qa2ukg/lol_poor_lil_marco/nyzobkz/
+
+https://old.reddit.com/r/clevercomebacks/comments/1qa2ukg/lol_poor_lil_marco/nyzq8ys/
+
+Social media audiences get the mind blown by Truth Social screenshots and White House videos all the time. Reddit can't even organize a anti-entertainment **be fucking serious** movement. [Social touch-device users on Reddit will not stand up non-violent ON REDITT and BLUESKY and call out the addictions to Fox News HDTV over and over and over until all (We The) people are serious](/Grim_Blunt/Stop_All_Entertainment.md) about the junk media content problems that billionaires (Rupert Murdoch) have cultivated!
+
+https://old.reddit.com/r/clevercomebacks/comments/1qa2ukg/lol_poor_lil_marco/nyzr0lj/
+
+https://old.reddit.com/r/clevercomebacks/comments/1qa2ukg/lol_poor_lil_marco/nyzuc5d/
+
+Tiny-short commenting messages, Tweet-think simple-thinking answers. Note the Reddit comment has no off-Reddit URL, no book titles, no book author, no quotes from a book. Just serious topics turned into rubble of short-think messaging.
+
+https://old.reddit.com/r/clevercomebacks/comments/1qa2ukg/lol_poor_lil_marco/nyzuyzu/
+
+Reddit users... [eating the Surkovian Onions](../Reddit2025A/Surkovian_Onion_Eating.md).
+
+https://old.reddit.com/r/clevercomebacks/comments/1qa2ukg/lol_poor_lil_marco/nz0fe5d/
+
+The fantasy messaging on Reddit that the White House ("Current administration") is good for ANY person. So-called "Red states", "MAGA" are all being harmed. But people only are concerned about left-right brainrot thinking and can not see that indeed EVERYONE, BOTH SIDES, both LEFT AND RIGHT, are being harmed by billionaires. This is a mass dehumanization event. There are no winners in the fiction being pursued. 
