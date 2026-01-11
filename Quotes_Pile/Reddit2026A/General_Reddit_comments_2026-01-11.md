@@ -137,3 +137,23 @@ https://old.reddit.com/r/Satisfyingasfuck/comments/1q9xgu6/great_show/nyyyef0/
 Anti-reality is ORGANIZED MILITARY OPERATION against Reddit by Elon Musk, Putin, Trump! No-identity breeding ground of fiction addicts! MAGA central USA!!! September 9, 2014: https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
 
 Reddit comment "people cavalry having a good time" - Putin and White House are having a good time mocking away We The People, poor people! Mocking away with I.C.E. to "have a good time" with sophisticated fiction! Surkov won since March 2013.
+
+https://old.reddit.com/r/CuratedTumblr/comments/1q9y5xt/purity_culture_brought_to_you_by_mastercardvisa/nyynu5j/
+
+Media ecology discussion of currency. Financial power.
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1q9xewe/wake_up_usa_it_is_time_for_change_time_for_the/nyyp06u/
+
+The Internet is the very vector Putin used to mind-fuck the population. Anonymous no-identity Reddit and Twitter. Just like religion is not reality an science, but science **fiction** storytelling. The problem is the avoidance of nonfiction important learning. Avoiding repeating and asserting: { Jen Senko, Marshall McLuhan, Neil Postman, Dr. Bandy X Lee, Peter Pomerantsev }. Even when people go outdoors, the Fox News fiction storytelling still dominates behavior and mindsets.
+
+ICE is going outdoors, as programmed in the mind. ICE is going door to door.
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1q9xewe/wake_up_usa_it_is_time_for_change_time_for_the/nyzit29/
+
+Social media people use all free time and spare time to react and LOL at Trump as the greatest entertainer of all human history. President Tony Clifton acting works on social media meme addicts. Avoiding repeating and asserting: { Jen Senko, Marshall McLuhan, Neil Postman, Dr. Bandy X Lee, Peter Pomerantsev }.
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1q9xewe/wake_up_usa_it_is_time_for_change_time_for_the/nyywotz/
+
+Death-wishing a Fox News HDTV media cult. Just like Middle East media cults, out-group hate and war murder. October 7, 2023 - wanting that same organized killing of non-believers. Instead of standing up for good, wanting punishment/reward of billionaire men / male daddy figures.
+
+* "which a child is compelled to give up its childhood and become an adult—to die, you might say, to its infantile personality and psyche and come back as a responsible adult. This is a fundamental psychological transformation that **everyone has to undergo**. We are in childhood in a condition of dependency under someone’s protection and supervision for some fourteen to twenty-one years — and if you’re going on for your Ph. D., this may continue to perhaps thirty-five. You are in no way a self-responsible, free agent, but an obedient dependent, expecting and receiving punishments and rewards. To evolve out of this position of psychological immaturity to the courage of self-responsibility and assurance requires a death and a resurrection." - Power of Myth, nonfiction, year 1988
