@@ -105,3 +105,33 @@ Billionaires are feeding mass dehumanization to smartphone audiences. Often maki
 https://old.reddit.com/r/mildlyinfuriating/comments/1q9w0qg/comments_like_this/nyy95yl/
 
 Metaphors of media ecology... of spreading values from platform to platform like a virus / disease. 
+
+https://old.reddit.com/r/Satisfyingasfuck/comments/1q9xgu6/great_show/nyys3h4/
+
+Calling people "stupid" is not teaching them media ecology. Teaching books from Marshall McLuhan and Neil Postman actually addresses this behavior. Educate and teach. Instead, it is engagement to call others stupid and wallow in the celebration of ignorance society of MAGA Trumpland USA 2026.
+
+https://old.reddit.com/r/Satisfyingasfuck/comments/1q9xgu6/great_show/nyyxywv/
+
+<img width="872" height="510" alt="image" src="https://github.com/user-attachments/assets/52ccce2b-6a40-451a-a229-36b2b994ee37" /> New Reddit account. THIS IS OUR CRISIS IN US! It is out of control. "Obviously-scripted performance art"
+
+1. The Kremlin for over 25 years
+
+2. The White House candidate / President Tony Clifton since June 16, 2015
+
+3. The Bible / Torah / Quran / Book of Mormon / L Ron Hubbard (Scentology) / Fox News HDTV!!!
+
+4. Script kiddies / "bots", on Reddit, scripted commenting. Trump MAGA USA is a direct result of this inability to recognize real reality.
+
+5. Billionaires creating LLM / generative artificial intelligence content. The ELIZA effect!
+
+People can note tell / distinguish fiction from nonfiction! A toxic world of hate seeded by Putin fandom, Putin believers. Gullible nation. [Nation of suckers](../Carl_Sagan_Quotes.md#nation-of-suckers). Russia has been self-harm to domestic Russia since year 2013, and people can't get mental health professionals to address a whole nation.
+
+* [“The truth is, it’s getting harder to describe the extent to which a meaningful percentage of Americans have dissociated from reality,” Charlie Warzel wrote “I’m Running Out of Ways to Explain How Bad This Is.”](https://www.axios.com/2024/10/19/musk-ackman-election-misinformation) - October 19, 2024 - America’s gullibility crisis, Zachary Basu
+
+* "Surkov is one of President Putin's advisers, and has helped him maintain his power for 15 years, but he has done it in a very new way. He came originally from the avant-garde art world, and those who have studied his career, say that what Surkov has done, is to import ideas from conceptual art into the very heart of politics. His aim is to undermine peoples' perceptions of the world, so they never know what is really happening." - [BBC news, Adam Curtis. December 31, 2014](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html)
+
+MAGA / Trump is driven by this very failure of people to not distinguish video content from factual science reality!
+
+https://old.reddit.com/r/Satisfyingasfuck/comments/1q9xgu6/great_show/nyyyef0/
+
+Anti-reality is ORGANIZED MILITARY OPERATION against Reddit by Elon Musk, Putin, Trump! No-identity breeding ground of fiction addicts! MAGA central USA!!! September 9, 2014: https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
