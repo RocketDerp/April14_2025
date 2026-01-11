@@ -188,3 +188,12 @@ The problem that people can not see, that Barack Obama is pointing out in this p
 * "For all his perspicacity, George Orwell would have been stymied by this situation; there is nothing “Orwellian” about it. The President does not have the press under his thumb. The New York Times and The Washington Post are not Pravda; the Associated Press is not Tass. And there is no Newspeak here. Lies have not been defined as truth nor truth as lies. **All that has happened is that the public has adjusted to incoherence and been amused** into indifference. Which is why Aldous Huxley would not in the least be surprised by the story. Indeed, he prophesied its coming. He believed that it is far more likely that the Western democracies will dance and dream themselves into oblivion than march into it, single file and manacled. Huxley grasped, as Orwell did not, that it is not necessary to conceal anything from a public insensible to contradiction and narcoticized by technological diversions. Although Huxley did not specify that television would be our main line to the drug, he would have no difficulty accepting Robert MacNeil’s observation that “Television is the soma of Aldous Huxley’s Brave New World.” Big Brother turns out to be Howdy Doody." ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, **year 1985**, page 111
 
 Social post { https://midwest.social/post/41684822 }
+
+https://old.reddit.com/r/complaints/comments/1qa6zbk/kristi_noem_we_cant_trust_our_government_anymore/nz0o26s/
+
+Low-effort tiny-short Reddit commenting to call leaders { dumb, stupid, idiot, moron }. Over and over for more than 11 years and 6 months. Every day, calling people stupid. No book quotes, no education or teaching, just simulating a resistance by insulting and mocking. Followers of Trump's lead of social media: turn all commenting and ideas into stupid-prizing. Surkov won.
+
+https://old.reddit.com/r/complaints/comments/1qa6zbk/kristi_noem_we_cant_trust_our_government_anymore/nz0ogbx/
+
+The simulacra right in the face of Reddit. And people program it into their mind and act like this is just another day of memes and amusement. When billionaires use Elon Musk richest person in the world media systems, Mark Zuckerberg Facebook / Meta media empire, Truth Social media empire, Reddit media empire... to NOT challenge the addictions to media... the induced hive mind behaviors of media cultists. Avoiding repeating and asserting: { Jen Senko, Marshall McLuhan, Neil Postman, Dr. Bandy X Lee, Peter Pomerantsev, 
+Bill Moyers }
