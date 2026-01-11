@@ -156,6 +156,31 @@ def comment_do_one (comment_div):
     }
 
 
+
+def walk_comment_tree(comment_div, level=0):
+    """Recursively traverses the Reddit comment tree."""
+    
+    # Each comment content is usually within a div with class 'entry'
+    entry = comment_div.find("div", class_="entry")
+    if entry:
+        author = entry.find("a", class_="author").get_text() if entry.find("a", class_="author") else "[deleted]"
+        text = entry.find("div", class_="md").get_text(strip=True)
+        print(f"{'  ' * level}- {author}: {text[:50]}...")
+
+    # Find the nested div that contains all child/reply comments
+    replies = comment_div.find("div", class_="child")
+
+    
+    if replies:
+        # 3. Find all immediate child comment 'things' in the replies container
+        # recursive=False ensures we only get the direct children at this level
+        child_comments = replies.find_all("div", class_="thing", recursive=False)
+        
+        for child in child_comments:
+            walk_comment_tree(child, level + 1)
+
+
+
 def fetch_comment_data(url, idx=None, args=None):
     global fetchRedditCountA
     
