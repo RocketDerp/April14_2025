@@ -408,3 +408,9 @@ https://old.reddit.com/r/DiscussionZone/comments/1qa6h0w/breaking_uk_france_germ
 
 Internet Research Agency since March 2013. Right on Reddit. Mind-fucked self-harm USA population.  Free time, spare time, spent **avoiding** repeating and asserting: { Jen Senko, Marshall McLuhan, Neil Postman, Dr. Bandy X Lee, Peter Pomerantsev, Bill Moyers }
 
+https://old.reddit.com/r/DiscussionZone/comments/1qa6h0w/breaking_uk_france_germany_and_other_european/nz0h8l9/
+
+https://old.reddit.com/r/DiscussionZone/comments/1qa6h0w/breaking_uk_france_germany_and_other_european/nz10nep/
+
+https://old.reddit.com/r/DiscussionZone/comments/1qa6h0w/breaking_uk_france_germany_and_other_european/nz0imzb/
+
