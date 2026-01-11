@@ -337,3 +337,13 @@ https://old.reddit.com/r/politics/comments/1q9xmom/the_us_was_a_nation_the_world
 <img width="866" height="270" alt="image" src="https://github.com/user-attachments/assets/0a1d8a9a-e010-488e-a39a-29fae5613efd" /> Extreme tiny-short message. No book quote, no author name, no book title, no URL off-Reddit. Balalizing extremely important and serious topics with little comments. We The People can't even give a NAME to Putin's plan! Can't say "Internet Research Agency" in our tiny-short junk January 2026 commenting! [I named it: **"Operation Matthew 4:19"** - social media / mainstream media / The Media trolling operation since year 2012](/Operation_Matthew_4_19_on_monday_2024-03-31.md)
 
 Social post { https://autistics.life/@RoundSparrow/115877379287998966 https://bsky.app/profile/roundsparrow.bsky.social/post/3mc5wmznrbk25 }
+
+https://old.reddit.com/r/politics/comments/1q9xmom/the_us_was_a_nation_the_world_wanted_to_emulate/nyypj3b/
+
+USA population thinks it is all joke material. LOL on Bluesky and Reddit and across media to joke-wash Trump / humor wash-MAGA. 12 months of mocking and attacking Canada / Canadians. Surkov won since March 2013.
+
+https://old.reddit.com/r/politics/comments/1q9xmom/the_us_was_a_nation_the_world_wanted_to_emulate/nyz0eb0/
+
+<img width="1192" height="840" alt="image" src="https://github.com/user-attachments/assets/3ff7d38b-b8e0-4511-8f48-57b6de2dcbc1" /> Yep. Attraction to negative power. People on Reddit are incredibly seeking /  attracted to fiction, negative, hate leadership that Trump provides. Mocking, insulting, hate prizing. Surkov monomyth has mastered bit-flipping of values. Complete ass-backwards Bible reading / Bible literacy (today is Sunday, preaching extra hard): https://thesethingsinside.wordpress.com/2013/04/18/joseph-campbell-says-religious-literalism-sets-satan-in-the-seat-of-god/ Note the age of Reddit user, 17 year account.
+
+Social post { https://autistics.life/@RoundSparrow/115877566894579526 https://bsky.app/profile/roundsparrow.bsky.social/post/3mc5zcew4sc2f }
