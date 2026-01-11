@@ -135,3 +135,5 @@ MAGA / Trump is driven by this very failure of people to not distinguish video c
 https://old.reddit.com/r/Satisfyingasfuck/comments/1q9xgu6/great_show/nyyyef0/
 
 Anti-reality is ORGANIZED MILITARY OPERATION against Reddit by Elon Musk, Putin, Trump! No-identity breeding ground of fiction addicts! MAGA central USA!!! September 9, 2014: https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+Reddit comment "people cavalry having a good time" - Putin and White House are having a good time mocking away We The People, poor people! Mocking away with I.C.E. to "have a good time" with sophisticated fiction! Surkov won since March 2013.
