@@ -331,3 +331,9 @@ President Tony Clifton acting works on social media meme addicts. Avoiding repea
 https://old.reddit.com/r/politics/comments/1q9xmom/the_us_was_a_nation_the_world_wanted_to_emulate/nyym9zj/
 
 Having to be immersed in non-stop fiction addicts, many who spread and smear anti-intellectual LOL shit about Trump, addiction to "orange skin" and "poop diapers" of Trump.. brain damaging all the time, every fucking day! The anti-goodness prizing of shit! Neil Postman's 1985 book describes social media hell society that thinks Trump is amusing entertainment! Meme addict society.  September 10, 2025 https://Time.com/7313999/neil-postman-trump-prediction/
+
+https://old.reddit.com/r/politics/comments/1q9xmom/the_us_was_a_nation_the_world_wanted_to_emulate/nyyjkze/
+
+<img width="866" height="270" alt="image" src="https://github.com/user-attachments/assets/0a1d8a9a-e010-488e-a39a-29fae5613efd" /> Extreme tiny-short message. No book quote, no author name, no book title, no URL off-Reddit. Balalizing extremely important and serious topics with little comments. We The People can't even give a NAME to Putin's plan! Can't say "Internet Research Agency" in our tiny-short junk January 2026 commenting! [I named it: **"Operation Matthew 4:19"** - social media / mainstream media / The Media trolling operation since year 2012](/Operation_Matthew_4_19_on_monday_2024-03-31.md)
+
+Social post { https://autistics.life/@RoundSparrow/115877379287998966 https://bsky.app/profile/roundsparrow.bsky.social/post/3mc5wmznrbk25 }
