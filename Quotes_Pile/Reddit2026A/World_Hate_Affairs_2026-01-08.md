@@ -310,3 +310,24 @@ https://old.reddit.com/r/pics/comments/1q9vkx0/revolutionaries_burning_down_oppr
 
 5 month Reddit account.
 
+https://old.reddit.com/r/politics/comments/1q9xmom/the_us_was_a_nation_the_world_wanted_to_emulate/nyymbuc/
+
+Media addiction to antics and zany comedy content. Comedy-washing of Trump via Reddit and late-night SNL / Stephen Colbert is how we got here. Addicts to anything funny. President Tony Clifton act has put an entire nation into meme-think mindsets! Surkov won.
+
+https://old.reddit.com/r/politics/comments/1q9xmom/the_us_was_a_nation_the_world_wanted_to_emulate/nyys2fy/
+
+https://old.reddit.com/r/politics/comments/1q9xmom/the_us_was_a_nation_the_world_wanted_to_emulate/nyyx7gq/
+
+Donald Trump is an addict to entertainment just like the rest of USA society. Trump should be rescued from Putin's fiction storytelling. The addicts to saying Donald Trump { toddler, dumb, idiot, baby, stupid, moron, not smart } over and over in a loop every day on Reddit commenting sections. This is the very mechanism of power for Trump. [Audiences who eat the Surkovian Onions](../Reddit2025A/Surkovian_Onion_Eating.md) and think the onion taste great! [Shit-eating LOL LOL amusement audience on Reddit, people grading the turds of Trump as they pour down / trickle down from the wealthy media empires](/Grim_Blunt/Society_of_grading_and_ranking_turds.md).
+
+https://old.reddit.com/r/politics/comments/1q9xmom/the_us_was_a_nation_the_world_wanted_to_emulate/nyync7r/
+
+It isn't about ONE SINGLE VOTING DAY, it's about the trash media addiction to Fox News HDTV and joke-washing humor-washing of Trump on Reddit meme mill! It's ok to have a anti-sane leader as long as people can not halt their dumb memes and commenting and get on the same god damn fucking page! Anti-FAQ, anti-Wiki, anti-book! 
+
+* “It turns out that Republicans can accept a batshit insane candidate, so long as it’s consistent insanity.” ― Christopher Wylie, Mindf*ck: Cambridge Analytica and the Plot to Break America. Published **year 2019**
+
+President Tony Clifton acting works on social media meme addicts. Avoiding repeating and asserting: { Jen Senko, Marshall McLuhan, Neil Postman, Dr. Bandy X Lee, Peter Pomerantsev }.
+
+https://old.reddit.com/r/politics/comments/1q9xmom/the_us_was_a_nation_the_world_wanted_to_emulate/nyym9zj/
+
+Having to be immersed in non-stop fiction addicts, many who spread and smear anti-intellectual LOL shit about Trump, addiction to "orange skin" and "poop diapers" of Trump.. brain damaging all the time, every fucking day! The anti-goodness prizing of shit! Neil Postman's 1985 book describes social media hell society that thinks Trump is amusing entertainment! Meme addict society.  September 10, 2025 https://Time.com/7313999/neil-postman-trump-prediction/
