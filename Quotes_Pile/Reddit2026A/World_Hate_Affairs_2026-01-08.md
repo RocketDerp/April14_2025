@@ -393,3 +393,18 @@ https://old.reddit.com/r/ThatsInsane/comments/1qa6s48/families_of_iranian_protes
 https://old.reddit.com/r/ThatsInsane/comments/1qa6s48/families_of_iranian_protestors_identifying_the/nz0z0yy/
 
 https://old.reddit.com/r/ThatsInsane/comments/1qa6s48/families_of_iranian_protestors_identifying_the/nz0uz13/
+
+https://old.reddit.com/r/DiscussionZone/comments/1qa6h0w/breaking_uk_france_germany_and_other_european/nz0gcke/
+
+American media addicts prize Trump for the constant stimulating media headlines. High speed media systems delivering every nonsense and anti-goodness out of the White House. Second term in office to provide even more antics and bullshit for a population of intimate touch-device addictions. Tweet-length tiny-short commenting about how anti-reality USA has become. Free time, spare time, spent **avoiding** repeating and asserting: { Jen Senko, Marshall McLuhan, Neil Postman, Dr. Bandy X Lee, Peter Pomerantsev, Bill Moyers }
+
+https://old.reddit.com/r/DiscussionZone/comments/1qa6h0w/breaking_uk_france_germany_and_other_european/nz0idou/
+
+Blown minds, blown emotions in Reddit audience. Trump's media power over society.
+
+https://old.reddit.com/r/DiscussionZone/comments/1qa6h0w/breaking_uk_france_germany_and_other_european/nz0gulg/
+
+https://old.reddit.com/r/DiscussionZone/comments/1qa6h0w/breaking_uk_france_germany_and_other_european/nz0ihk5/
+
+Internet Research Agency since March 2013. Right on Reddit. Mind-fucked self-harm USA population.  Free time, spare time, spent **avoiding** repeating and asserting: { Jen Senko, Marshall McLuhan, Neil Postman, Dr. Bandy X Lee, Peter Pomerantsev, Bill Moyers }
+
