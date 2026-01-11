@@ -313,3 +313,7 @@ Reddit audiences mocking people instead of rescuing people. Drowning in commenti
 https://old.reddit.com/r/pics/comments/1qa3n7a/ice_supporter_in_mn/nz0pbfa/
 
 Crazy. https://www.youtube.com/watch?v=09maaUaRT4M&t=743s Please watch: "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL"
+
+https://old.reddit.com/r/therewasanattempt/comments/1qa7lpt/to_make_charlie_kirks_assassination_look_like_the/nz0rlrb/
+
+No off-Reddit URL, no quotes from off-Reddit, just off the cuff assertions. Meme-thinking culture, high speed messaging addictions. Free time, spare time, spent **avoiding** repeating and asserting: { Jen Senko, Marshall McLuhan, Neil Postman, Dr. Bandy X Lee, Peter Pomerantsev, Bill Moyers }
