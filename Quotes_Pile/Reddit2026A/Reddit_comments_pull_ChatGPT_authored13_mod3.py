@@ -247,9 +247,10 @@ def fetch_comment_data(url, idx=None, args=None):
             else:
                 live_fetch = True
                 account_date, bio = fetch_user_info_full(author)
-            
+        
+    # ToDo: post when time         
     post_title, post_account, post_body = None, None, None
-    # for now, there is no application param to control, so hard-ware to true
+    # for now, there is no application param to control, so hard-wire to true
     if 1:
         # 1. Get the Posting Title
         # On old.reddit, the post title is typically an <a> tag with class "title"
