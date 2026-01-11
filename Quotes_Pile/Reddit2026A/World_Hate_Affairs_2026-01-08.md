@@ -278,3 +278,20 @@ https://old.reddit.com/r/worldnews/comments/1q9x6mc/trump_asked_us_special_force
 
 The entire population is compromised. People can't stop seeking influencer individual egoism, commenting one by one. Spare time and free time has people writing social comments on page after page that scrolls constantly. People are anti-Wiki anti-FAQ anti-book in favor of trying to build a personal egoism concerned following to their unique competition to have an audience. Instead of pointing everyone to Dr. Bandy X Lee, people make comment after comment. It is so sickening / sick society.
 
+https://old.reddit.com/r/pics/comments/1q9vkx0/revolutionaries_burning_down_oppressive/nyy5p5o/
+
+https://old.reddit.com/r/pics/comments/1q9vkx0/revolutionaries_burning_down_oppressive/nyy91jp/
+
+Year 635 onward, "Old World Order" as defined by the Great Seal of the United States of America. Violence, hate. Extreme tiny-short Reddit meme-think messages, Twitter-thinking Tweet-length Musk values. Avoiding repeating and asserting: { Jen Senko, Marshall McLuhan, Neil Postman, Dr. Bandy X Lee, Peter Pomerantsev }. Avoiding nonfiction learning.
+
+* "If you look behind that pyramid, you see a desert. If you look before it, you see plants growing. The desert, the tumult in Europe, wars and wars and wars — we have pulled ourselves out of it and **created a state in the name of reason, not in the name of power**, and out of that will come the flowerings of the new life. That’s the sense of that part of the pyramid." - 1988 Power of Myth
+
+How hard is it for Reddit to make site-famous the name of Dr. Bandy X Lee? A brave woman who stands up to Trump with education and book-writing. Not flame and burning desires of meme addicts on Reddit who are thrilled to have ignorant leaders to mock.
+
+https://old.reddit.com/r/pics/comments/1q9vkx0/revolutionaries_burning_down_oppressive/nyy8o2r/
+
+https://old.reddit.com/r/pics/comments/1q9vkx0/revolutionaries_burning_down_oppressive/nyyc4g5/
+
+https://old.reddit.com/r/pics/comments/1q9vkx0/revolutionaries_burning_down_oppressive/nyycz0v/
+
+Social engineering is all people prize now. Avoiding repeating and asserting: { Jen Senko, Marshall McLuhan, Neil Postman, Dr. Bandy X Lee, Peter Pomerantsev }. Avoiding nonfiction learning.
