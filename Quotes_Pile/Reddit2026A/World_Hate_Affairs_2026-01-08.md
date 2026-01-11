@@ -263,3 +263,18 @@ https://old.reddit.com/r/news/comments/1q9k0xz/mass_killings_reported_as_securit
 https://old.reddit.com/r/news/comments/1q9k0xz/mass_killings_reported_as_security_forces_use/nyvt0j4/
 
 Audiences want to comment and not point everyone to a common FAQ or Wiki page.
+
+https://old.reddit.com/r/worldnews/comments/1q9x6mc/trump_asked_us_special_forces_to_plan_greenland/nyygjj9/
+
+The entertainment industry of USA is a threat to the whole world. Social media shows people to be constantly in a state of "Amusement As Usual" and avoiding serious discussions. Dr. Bandy X Lee has been constantly ignored since year 2017 regarding Trump. https://en.wikipedia.org/wiki/Bandy_X._Lee
+
+https://old.reddit.com/r/worldnews/comments/1q9x6mc/trump_asked_us_special_forces_to_plan_greenland/nyyom6d/
+
+The mind fuck is extreme. Trump plays that "invaders" / immigrants are the problem and is invading other nations, illegal immigrating into other nations. Sending people to the wrong nations such as Eswatini - organized illegal movements.
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mc5nichy4c2x https://autistics.life/@RoundSparrow/115876733841070683 }
+
+https://old.reddit.com/r/worldnews/comments/1q9x6mc/trump_asked_us_special_forces_to_plan_greenland/nyys3u0/
+
+The entire population is compromised. People can't stop seeking influencer individual egoism, commenting one by one. Spare time and free time has people writing social comments on page after page that scrolls constantly. People are anti-Wiki anti-FAQ anti-book in favor of trying to build a personal egoism concerned following to their unique competition to have an audience. Instead of pointing everyone to Dr. Bandy X Lee, people make comment after comment. It is so sickening / sick society.
+
