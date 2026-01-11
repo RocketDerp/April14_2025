@@ -334,3 +334,14 @@ https://old.reddit.com/r/MurderedByWords/comments/1qa92ul/the_white_house_on_soc
 
 The audience entertainment about how this "Murdered Trump, Murdered the White House" (subreddit context name) is very real bullshit worshiping. 
 
+https://old.reddit.com/r/MurderedByWords/comments/1qa92ul/the_white_house_on_soccer_moms/nz18jta/
+
+Most people don't even exclaim at the Kremlin and White House anti-reality media.
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qa6v05/oh_my_god_they_admit_it/nz0t3al/
+
+People will not organize consistent education against Fox News HDTV medium and other media problems.
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qa6v05/oh_my_god_they_admit_it/nz15ljs/
+
+Yes. Not eating the Surkov onion that it's all accidental to cast anti-reality warfare ad population / media audiences.
