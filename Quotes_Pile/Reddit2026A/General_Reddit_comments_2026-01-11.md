@@ -167,3 +167,24 @@ This is a nation drunk on junk memes, anti-information, anti-learning, anti-educ
 Notice how this top-voted popular Reddit comment has: no author name, no book title, no URL off-Reddit, no quotes from a book. Dr. Bandy X Lee since year 2017 avoided by meme-thinking "off the cuff" comment prizing.
 
 Social post { https://autistics.life/@RoundSparrow/115877610428135139 https://bsky.app/profile/roundsparrow.bsky.social/post/3mc5zw5d5r224 }
+
+https://old.reddit.com/r/TikTokCringe/comments/1q9vyw2/i_cant_believe_im_still_surrounded_by_family_and/nyy9hli/
+
+Reddit addicts to { memes, entertainment, decorated content, bright colors and flashing images } are the last in the world to grasp Neil Postman's 1985 book "Amusing Ourselves To Death". Donald Trump was no in casinos for small-time profits! He was in them to learn what he could get away with manipulating audiences and manipulating the bankruptcy systems! Trump was there to learn the entertainment and manipulation side of the corporations, not for the shakreholders! Reddit-think can't process addiction to media being prized, in a social site full of addicts to media!
+
+https://old.reddit.com/r/TikTokCringe/comments/1q9vyw2/i_cant_believe_im_still_surrounded_by_family_and/nyyas2g/
+
+Subreddit vs Subreddit entertainment concerns. Unable to promote Dr. Bandy X Lee and other critical important teachers to the WHOLE POPULATION, instead focused on the local media vs. media mindsets. Tree tree tree, not seeing the forest of Fox News HDTV, Facebook Mark Z, Twitter, Putin, NATO, etc.
+
+https://old.reddit.com/r/TikTokCringe/comments/1q9vyw2/i_cant_believe_im_still_surrounded_by_family_and/nyya4so/
+
+Directed by Putin to self-harm USA and NATO. Self-harm the Earth / world itself!
+
+https://old.reddit.com/r/TikTokCringe/comments/1q9vyw2/i_cant_believe_im_still_surrounded_by_family_and/nyy9qtc/
+
+Fiction storytelling far outsells nonfiction. People on Reddit hide their real life non-fiction reality, like Twitter users do. It is only mostly wealthy and famous people who use real names and identity on social media, people selling their self-brand for power. While everyday citizens create fiction commenting for each other while hiding identity. All exploited by the Russian military organization: Internet Research Agency since March 2013.
+
+https://old.reddit.com/r/TikTokCringe/comments/1q9vyw2/i_cant_believe_im_still_surrounded_by_family_and/nyygy3l/
+
+Cowardly running away from the problem. "Hate thy Neighbor", "Hate Harder", "Hate Thy Enemy", abandon education and teaching in favor of shunning. Exactly what Putin has programmed into electric media consumers since March 2013. Instead of standing up for goodness and being *too preachy* on a Sunday... Avoiding repeating and asserting: { Jen Senko, Marshall McLuhan, Neil Postman, Dr. Bandy X Lee, Peter Pomerantsev }. Just let Russia keep winning hearts and minds to self-harm USA! Technology lovers of Reddit hate human persons and spread dehumanization of their own family. Do not want to rescue USA using Dr. Bandy X Lee's leadership since early year 2017!
+
