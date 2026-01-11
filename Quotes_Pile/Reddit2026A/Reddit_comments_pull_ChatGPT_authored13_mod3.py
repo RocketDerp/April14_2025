@@ -473,6 +473,12 @@ def fetch_user_info_hover(username, args=None):
     if reddit_account_data is None:
         print(f"live-fetch for user_info_hover {url}")
         fetchRedditCountA += 1
+        
+        if fetchRedditCountA % 7 == 0:
+            print(f"fetchRedditCountA {fetchRedditCountA} is a multiple of 7.")
+            sleep_time = random.uniform(2, 8)  # 2–8 seconds pause
+            quit_request = pause_with_quit(sleep_time)
+        
         res = requests.get(url, headers=HEADERS)
         fetch_time_epoch = int(time.time())
         if res.status_code != 200:
