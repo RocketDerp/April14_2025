@@ -98,3 +98,10 @@ Tech-lovers, technical society of Reddit, dehumanizing Americans messags, non-pe
 
 https://old.reddit.com/r/minnesota/comments/1q9rvvh/white_house_just_posted_this_wtf/nyxvxf1/
 
+https://old.reddit.com/r/mildlyinfuriating/comments/1q9w0qg/comments_like_this/nyybq0g/
+
+Billionaires are feeding mass dehumanization to smartphone audiences. Often making "bots" a dog-whistle for unwanted / undesirables / immigrants, etc.
+
+https://old.reddit.com/r/mildlyinfuriating/comments/1q9w0qg/comments_like_this/nyy95yl/
+
+Metaphors of media ecology... of spreading values from platform to platform like a virus / disease. 
