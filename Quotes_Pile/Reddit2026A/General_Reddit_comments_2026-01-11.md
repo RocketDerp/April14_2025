@@ -279,3 +279,15 @@ https://old.reddit.com/r/Fauxmoi/comments/1qa3qsf/ilona_maher_responds_again_to_
 https://old.reddit.com/r/Fauxmoi/comments/1qa3qsf/ilona_maher_responds_again_to_man_who_body_shamed/nz0e3j4/
 
 Except when there is so much peer pressure to sort out the "fat ugly women". Conformity to billionaire values.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qa3qsf/ilona_maher_responds_again_to_man_who_body_shamed/nyzxc0i/
+
+Society belittles individuals, hive mind concerns to dominate.
+
+https://old.reddit.com/r/minnesota/comments/1qa50ty/ice_agents_smash_the_window_of_an_activists_car/nz05gec/
+
+When billionaires use Elon Musk richest person in the world media systems, Mark Z Facebook / Meta media empire, Truth Social media empire, Reddit media empire... to NOT challenge the addictions to media... the induced hive mind behaviors of media cultists. Avoiding repeating and asserting: { Jen Senko, Marshall McLuhan, Neil Postman, Dr. Bandy X Lee, Peter Pomerantsev, Bill Moyers }.
+
+https://old.reddit.com/r/minnesota/comments/1qa50ty/ice_agents_smash_the_window_of_an_activists_car/nz06zzu/
+
+And Reddit audience lines up to boo and insult and mock, as conditioned. Fox News HDTV problem is not taken seriously. No quote of nonfiction books, no link off-Reddit on the topic. Avoiding repeating and asserting: { Jen Senko, Marshall McLuhan, Neil Postman, Dr. Bandy X Lee, Peter Pomerantsev, Bill Moyers }.
