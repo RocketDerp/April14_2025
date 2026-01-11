@@ -42,3 +42,52 @@ https://old.reddit.com/r/worldnews/comments/1q9x6mc/trump_asked_us_special_force
 
 https://old.reddit.com/r/worldnews/comments/1q9x6mc/trump_asked_us_special_forces_to_plan_greenland/nyymq5r/
 
+https://old.reddit.com/r/worldnews/comments/1q9x6mc/trump_asked_us_special_forces_to_plan_greenland/nyygrhe/
+
+NO NO, NO! Wrong wrong wrong! They are brainwashed in the same way Elon Musk Twitter, Reddit audience, Bluesky audience is brainwashed! They are creating news, information, about Trump. They are calling Trump crazy without ASSERTING the name "Dr. Bandy X Lee"!!!
+
+Avoiding: { Marshall McLuhan, Neil Postman, Dr. Bandy X Lee, Peter Pomerantsev } is the Surkov simulation / Surkov techniques! To OPERA_A https://youtu.be/5Au332OG-M4?t=469 it took YEARS later to see the group-think / mob mentality.
+
+https://old.reddit.com/r/worldnews/comments/1q9x6mc/trump_asked_us_special_forces_to_plan_greenland/nyyop8y/
+
+100% of the population is not being serious. .Mocking, laughing, cracking jokes, sharing unimportant memes, sports mentality. Avoiding: { Marshall McLuhan, Neil Postman, Dr. Bandy X Lee, Peter Pomerantsev }
+
+https://old.reddit.com/r/worldnews/comments/1q9x6mc/trump_asked_us_special_forces_to_plan_greenland/nyyhu06/
+
+https://old.reddit.com/r/worldnews/comments/1q9x6mc/trump_asked_us_special_forces_to_plan_greenland/nyygcsn/
+
+Short Twitter-length idea and message.
+
+https://old.reddit.com/r/worldnews/comments/1q9x6mc/trump_asked_us_special_forces_to_plan_greenland/nyyh5lp/
+
+Note age of Reddit account, 15 years.
+
+https://old.reddit.com/r/worldnews/comments/1q9x6mc/trump_asked_us_special_forces_to_plan_greenland/nyygpd5/
+
+https://old.reddit.com/r/worldnews/comments/1q9x6mc/trump_asked_us_special_forces_to_plan_greenland/nyyhndm/
+
+Anonymous no-identity Twitter and Reddit, the Internet Research Agency since March 2013. People who come to Reddit and use spare time and free time to comment year after year about Trump. Anything and everything to avoid nonfiction important serious topics regarding entertainment addictions and bad leaders, avoiding: { Marshall McLuhan, Neil Postman, Dr. Bandy X Lee, Peter Pomerantsev }
+
+https://old.reddit.com/r/worldnews/comments/1q9x6mc/trump_asked_us_special_forces_to_plan_greenland/nyyhuto/
+
+https://old.reddit.com/r/worldnews/comments/1q9x6mc/trump_asked_us_special_forces_to_plan_greenland/nyyhaqz/
+
+If people do not address the Fox News HDTV audience, the addiction to fiction that Fox News provides, bad things are going to continue. Avoiding repeating and asserting: { Jen Senko, Marshall McLuhan, Neil Postman, Dr. Bandy X Lee, Peter Pomerantsev }. Avoiding nonfiction learning.
+
+https://old.reddit.com/r/minnesota/comments/1q9rvvh/white_house_just_posted_this_wtf/nyxivua/
+
+Why are people on Reddit not halting all entertainment and promoting Dr. Bandy X Lee's leadership and nonfiction books? https://www.youtube.com/watch?v=09maaUaRT4M&t=743s Please watch: "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL"
+
+https://old.reddit.com/r/minnesota/comments/1q9rvvh/white_house_just_posted_this_wtf/nyxi3m9/
+
+https://old.reddit.com/r/minnesota/comments/1q9rvvh/white_house_just_posted_this_wtf/nyxkz57/
+
+
+Russia and the **Menace of Unreality**   
+How Vladimir Putin is revolutionizing information warfare   
+Peter Pomerantsev   
+September 9 2014, 3:42 PM ET   
+
+* “If previous authoritarian regimes were three parts violence and one part propaganda,” argues Igor Yakovenko, a professor of journalism at the Moscow State Institute of International Relations, “this one is **virtually all propaganda and relatively little violence**. Putin only needs to make a few arrests—and then amplify the message through his total control of television.”
+
+Translated from 2013 Russia to USA 2025: I.C.E. raids are very little violence and a lot of showboating. A lot of Reddit front-page I.C.E. raids for visual meme addicts / meme consumers. No recognition that Kremlin and White House has the Reddit total control of media amplifiers. Reddit is amplifying media from all over the Internet. Eating the onions that Trump and Musk is dementia stupid dumb idiot, Reddit society unable to engage and comprehend and understand off-Reddit... September 9, 2014: https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
