@@ -91,3 +91,10 @@ September 9 2014, 3:42 PM ET
 * “If previous authoritarian regimes were three parts violence and one part propaganda,” argues Igor Yakovenko, a professor of journalism at the Moscow State Institute of International Relations, “this one is **virtually all propaganda and relatively little violence**. Putin only needs to make a few arrests—and then amplify the message through his total control of television.”
 
 Translated from 2013 Russia to USA 2025: I.C.E. raids are very little violence and a lot of showboating. A lot of Reddit front-page I.C.E. raids for visual meme addicts / meme consumers. No recognition that Kremlin and White House has the Reddit total control of media amplifiers. Reddit is amplifying media from all over the Internet. Eating the onions that Trump and Musk is dementia stupid dumb idiot, Reddit society unable to engage and comprehend and understand off-Reddit... September 9, 2014: https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/minnesota/comments/1q9rvvh/white_house_just_posted_this_wtf/nyxk6u3/
+
+Tech-lovers, technical society of Reddit, dehumanizing Americans messags, non-person, just like MAGA does to immigrants. MAGA values.
+
+https://old.reddit.com/r/minnesota/comments/1q9rvvh/white_house_just_posted_this_wtf/nyxvxf1/
+
