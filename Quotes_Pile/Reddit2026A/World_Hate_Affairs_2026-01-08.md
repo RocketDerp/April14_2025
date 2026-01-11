@@ -383,3 +383,13 @@ https://old.reddit.com/r/coolguides/comments/1qa7whc/a_cool_guide_to_how_hijab_r
 Christianity spans many races. Christianity isn't native to California Reddit USA, but imported. Same with Swat Valley, Pakistan where Malala lived. 
 
 * “We felt like the Taliban saw us as like little dolls to control, telling us what to do and **how to dress**. I thought if God wanted us to be like that He would not have made us all different.” ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. October 8, 2013
+
+https://old.reddit.com/r/ThatsInsane/comments/1qa6s48/families_of_iranian_protestors_identifying_the/nz0lrkq/
+
+https://old.reddit.com/r/ThatsInsane/comments/1qa6s48/families_of_iranian_protestors_identifying_the/nz0m4a9/
+
+https://old.reddit.com/r/ThatsInsane/comments/1qa6s48/families_of_iranian_protestors_identifying_the/nz0pfc0/
+
+https://old.reddit.com/r/ThatsInsane/comments/1qa6s48/families_of_iranian_protestors_identifying_the/nz0z0yy/
+
+https://old.reddit.com/r/ThatsInsane/comments/1qa6s48/families_of_iranian_protestors_identifying_the/nz0uz13/
