@@ -230,6 +230,19 @@ def fetch_comment_data(url, idx=None, args=None):
     # Find the nested div that contains all child/reply comments and remove it
     replies = comment_div.find("div", class_="child")
     if replies:
+        print("!!!!!!!!!!!!!")
+        print("!!!!!!!!!!!!! replies found")
+        # Locate the 'expand' link which contains the child count text when collapsed
+        expand_link = comment_div.find("a", class_="expand")
+
+        if expand_link:
+            num_children_tag = comment_div.find("a", class_="numchildren")
+            if num_children_tag:
+                child_count_text = num_children_tag.get_text(strip=True)
+                print(f"!!!!!!!!!!!!! number of replies child count text: {child_count_text}")
+  
+        walk_comment_tree(replies, 0)
+        print("!!!!!!!!!!!!! replies processed")
         replies.decompose()
 
 
@@ -247,7 +260,7 @@ def fetch_comment_data(url, idx=None, args=None):
             else:
                 live_fetch = True
                 account_date, bio = fetch_user_info_full(author)
-        
+   
     # ToDo: post when time         
     post_title, post_account, post_body = None, None, None
     # for now, there is no application param to control, so hard-wire to true
