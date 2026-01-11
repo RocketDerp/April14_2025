@@ -1839,3 +1839,17 @@ Yes. This isn't an online issue, online fiction addiction has spread to the tota
 https://old.reddit.com/r/BikiniBottomTwitter/comments/1q9d7ws/basically_the_state_of_the_nation_right_now/nyuxph4/
 
 Anything to avoid the Fox News HDTV addictions that have played a huge role in wrecking the USA. Just ignore it and don't bother repeating the names of { Jen Senko, Dr. Bandy X Lee }. Just keep repeating Sponge Bob images and commenting.
+
+https://old.reddit.com/r/comics/comments/1q9db0n/bare_stare/nyui61e/
+
+Choice marriage honesty.
+
+https://old.reddit.com/r/comics/comments/1q9db0n/bare_stare/nyupjyn/
+
+https://old.reddit.com/r/comics/comments/1q9db0n/bare_stare/nyuym3e/
+
+https://old.reddit.com/r/comics/comments/1q9db0n/bare_stare/nyv9eod/
+
+https://old.reddit.com/r/comics/comments/1q9db0n/bare_stare/nyul48c/
+
+https://old.reddit.com/r/comics/comments/1q9db0n/bare_stare/nyucei4/
