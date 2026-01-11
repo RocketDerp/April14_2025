@@ -157,7 +157,8 @@ def comment_do_one (comment_div):
 
 
 
-def walk_comment_tree(comment_div, level=0):
+
+def walk_comment_tree_first(comment_div, level=0):
     """Recursively traverses the Reddit comment tree."""
     
     # Each comment content is usually within a div with class 'entry'
@@ -178,6 +179,67 @@ def walk_comment_tree(comment_div, level=0):
         
         for child in child_comments:
             walk_comment_tree(child, level + 1)
+
+
+# Since the entire source list is comment links...
+#    some replies are already covered.
+#    check if in another tree we already processed comment.
+
+commentt_id_already = set()
+
+def check_comment_seen(comment_id):
+    # Use the 'in' operator for membership testing
+    if comment_id in commentt_id_already:
+        return True
+    else:
+        commentt_id_already.add(comment_id)
+        return False
+
+
+
+def walk_comment_tree(comment_div, level=0):
+    # level 0 already printed
+    if level == 0:
+        print("--- SKIP level 0 ")
+
+    else:
+
+        # Old Reddit uses 'thing' class for the container
+        entry = comment_div.find("div", class_="entry", recursive=False)
+        #  entry = comment_div
+        
+        if entry:
+            
+            comment_id = comment_div.get('data-fullname')
+            
+            # has the comment been previously seen in this source batch?
+            # will also note this as a new entry if unseen.
+            if check_comment_seen(comment_id) == False:
+                # Extract metadata
+                author_tag = entry.find("a", class_="author")
+                author = author_tag.get_text() if author_tag else "[deleted]"
+                
+                # 'md' class contains the user's markdown text
+                text_div = entry.find("div", class_="md")
+                text = text_div.get_text(strip=True) if text_div else ""
+                
+                print("{0}- {1}: {2}...".format("  " * level, author, text[:120]))
+            else:
+                print(f"skip, already processed comment {comment_id}")
+        else:
+            print("entry not found")
+
+    # Target the container for nested replies
+    replies_container = comment_div.find("div", class_="child", recursive=False)
+    if replies_container:
+        # Nested comments are inside another 'sitetable' within 'child'
+        nested_table = replies_container.find("div", class_="sitetable", recursive=False)
+        if nested_table:
+            child_comments = nested_table.find_all("div", class_="thing", recursive=False)
+            for child in child_comments:
+                walk_comment_tree(child, level + 1)
+    else:
+        print("no replies_container")
 
 
 
@@ -266,7 +328,7 @@ def fetch_comment_data(url, idx=None, args=None):
                 child_count_text = num_children_tag.get_text(strip=True)
                 print(f"!!!!!!!!!!!!! number of replies child count text: {child_count_text}")
   
-        walk_comment_tree(replies, 0)
+        walk_comment_tree(comment_div, 0)
         print("!!!!!!!!!!!!! replies processed")
         replies.decompose()
 
@@ -338,7 +400,6 @@ def fetch_comment_data(url, idx=None, args=None):
         "post_title": post_title,
         "post_body": post_body,
     }
-
 
 
 def fetch_user_info_hover(username, args=None):
@@ -518,8 +579,6 @@ def main():
                 sys.exit(1)
             continue
 
-        # Markdown formatted output
-
         output_lines = [
             "\n",
             "="*13,
@@ -543,7 +602,6 @@ def main():
         if commentary:
             output_lines.append(f":::::: Analysis_Thoughts Commentary: ======  \n{commentary}")
 
-
         # Console output
         print("\n".join(output_lines))
 
@@ -561,14 +619,13 @@ def main():
                     print("Exiting after pause after live fetch")
                     sys.exit(0)
 
-
     endtime_dt_object = datetime.datetime.now(datetime.timezone.utc)
     # Format the datetime object into an ISO 8601 string with milliseconds
     endtime_iso_with_ms = endtime_dt_object.isoformat(timespec='milliseconds')
 
     with open('Output/run_summary0.txt', 'a') as summaryfile:
         summaryfile.write(f"{args.output}\n")
-        summaryfile.write(f"    end {endtime_iso_with_ms}\n")
+        summaryfile.write(f"{endtime_iso_with_ms}\n")
         
         if errorCountA + errorCountB > 0:
             print(f"\nERRORS encountered! Final error counts, A: {errorCountA} B: {errorCountB}")
