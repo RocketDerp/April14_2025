@@ -344,4 +344,10 @@ People will not organize consistent education against Fox News HDTV medium and o
 
 https://old.reddit.com/r/ProgressiveHQ/comments/1qa6v05/oh_my_god_they_admit_it/nz15ljs/
 
-Yes. Not eating the Surkov onion that it's all accidental to cast anti-reality warfare ad population / media audiences.
+Yes. Not eating the Surkov onion that it is all accidental to cast anti-reality warfare at population / media audiences.
+
+https://old.reddit.com/r/technology/comments/1qa39vy/uk_canada_and_australia_in_talks_to_ban_x_over/nyzuu6u/
+
+https://old.reddit.com/r/technology/comments/1qa39vy/uk_canada_and_australia_in_talks_to_ban_x_over/nyzxx8u/
+
+https://old.reddit.com/r/technology/comments/1qa39vy/uk_canada_and_australia_in_talks_to_ban_x_over/nz1alou/
