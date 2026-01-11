@@ -265,3 +265,17 @@ Reddit users... [eating the Surkovian Onions](../Reddit2025A/Surkovian_Onion_Eat
 https://old.reddit.com/r/clevercomebacks/comments/1qa2ukg/lol_poor_lil_marco/nz0fe5d/
 
 The fantasy messaging on Reddit that the White House ("Current administration") is good for ANY person. So-called "Red states", "MAGA" are all being harmed. But people only are concerned about left-right brainrot thinking and can not see that indeed EVERYONE, BOTH SIDES, both LEFT AND RIGHT, are being harmed by billionaires. This is a mass dehumanization event. There are no winners in the fiction being pursued. 
+
+https://old.reddit.com/r/Fauxmoi/comments/1qa3qsf/ilona_maher_responds_again_to_man_who_body_shamed/nyzuwlb/
+
+Image addicts, technology digital image lovers, can create any fiction they desire.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qa3qsf/ilona_maher_responds_again_to_man_who_body_shamed/nyzv22s/
+
+Image addicted men who dehumanize women. [The anti-Malala timeline since year 2012.](/PostMalala/Marriage/World_Malala_Timeline_Year_2012.md).. men who chase and follow Putin and Epstein leadership signals.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qa3qsf/ilona_maher_responds_again_to_man_who_body_shamed/nyzvd0h/
+
+https://old.reddit.com/r/Fauxmoi/comments/1qa3qsf/ilona_maher_responds_again_to_man_who_body_shamed/nz0e3j4/
+
+Except when there is so much peer pressure to sort out the "fat ugly women". Conformity to billionaire values.
