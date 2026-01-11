@@ -478,6 +478,8 @@ def fetch_user_info_hover(username, args=None):
             print(f"fetchRedditCountA {fetchRedditCountA} is a multiple of 7.")
             sleep_time = random.uniform(2, 8)  # 2–8 seconds pause
             quit_request = pause_with_quit(sleep_time)
+            if quit_request:
+                sys.exit(1)
         
         res = requests.get(url, headers=HEADERS)
         fetch_time_epoch = int(time.time())
@@ -499,6 +501,8 @@ def fetch_user_info_hover(username, args=None):
         if reddit_account_data["is_suspended"]:
              print("suspended account encountered")
              quit_request = pause_with_quit(3)
+			 if quit_request:
+                sys.exit(1)
              return None, None, None, None, False
 
     created = datetime.datetime.utcfromtimestamp(reddit_account_data["created_utc"]).isoformat() + "Z"
