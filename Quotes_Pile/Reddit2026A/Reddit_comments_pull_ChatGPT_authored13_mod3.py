@@ -32,6 +32,7 @@ from html_to_markdown import convert_to_markdown
 HEADERS = {"User-Agent": "Pluribus TV project"}
 errorCountB = 0
 fetchRedditCountA = 0
+args = {}
 
 
 def pause_with_quit(total_seconds):
@@ -158,29 +159,6 @@ def comment_do_one (comment_div):
 
 
 
-def walk_comment_tree_first(comment_div, level=0):
-    """Recursively traverses the Reddit comment tree."""
-    
-    # Each comment content is usually within a div with class 'entry'
-    entry = comment_div.find("div", class_="entry")
-    if entry:
-        author = entry.find("a", class_="author").get_text() if entry.find("a", class_="author") else "[deleted]"
-        text = entry.find("div", class_="md").get_text(strip=True)
-        print(f"{'  ' * level}- {author}: {text[:50]}...")
-
-    # Find the nested div that contains all child/reply comments
-    replies = comment_div.find("div", class_="child")
-
-    
-    if replies:
-        # 3. Find all immediate child comment 'things' in the replies container
-        # recursive=False ensures we only get the direct children at this level
-        child_comments = replies.find_all("div", class_="thing", recursive=False)
-        
-        for child in child_comments:
-            walk_comment_tree(child, level + 1)
-
-
 # Since the entire source list is comment links...
 #    some replies are already covered.
 #    check if in another tree we already processed comment.
@@ -198,11 +176,17 @@ def check_comment_seen(comment_id):
 
 
 def walk_comment_tree(comment_div, level=0):
+    global args
+
     # level 0 already printed
     if level == 0:
         print("--- SKIP level 0 ")
 
     else:
+        
+        # ToDo: throw aapp rgs into global and check global args?
+        fetch_user_info = True
+        use_hover=True
 
         # Old Reddit uses 'thing' class for the container
         entry = comment_div.find("div", class_="entry", recursive=False)
@@ -216,8 +200,25 @@ def walk_comment_tree(comment_div, level=0):
             # will also note this as a new entry if unseen.
             if check_comment_seen(comment_id) == False:
                 # Extract metadata
+                author = None
                 author_tag = entry.find("a", class_="author")
-                author = author_tag.get_text() if author_tag else "[deleted]"
+                if author_tag:
+                    author = author_tag.get_text()
+                    
+                    account_date, bio, link_karma, comment_karma, account_live_fetch = None, None, None, None, False
+                    if fetch_user_info:
+                        if author != "[deleted]":
+                        # if onec["author"] != "[deleted]":
+                            if use_hover:
+                                account_date, bio, link_karma, comment_karma, account_live_fetch = fetch_user_info_hover(author, args)
+                                if account_live_fetch:
+                                    live_fetch = True
+                            else:
+                                live_fetch = True
+                                account_date, bio = fetch_user_info_full(author)
+   
+                else:
+                    author = "[deleted]"
                 
                 # 'md' class contains the user's markdown text
                 text_div = entry.find("div", class_="md")
@@ -525,6 +526,8 @@ def fetch_user_info_full(username):
 
 
 def main():
+    global args
+    
     parser = argparse.ArgumentParser(description="Parse Reddit comments from markdown list.")
     parser.add_argument("--file", required=True, help="Input markdown file containing Reddit comment URLs.")
     parser.add_argument("--output", help="Optional file to write fetched comment output (console pauses not included).")
