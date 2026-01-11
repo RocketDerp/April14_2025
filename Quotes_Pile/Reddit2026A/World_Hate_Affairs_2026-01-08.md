@@ -347,3 +347,39 @@ https://old.reddit.com/r/politics/comments/1q9xmom/the_us_was_a_nation_the_world
 <img width="1192" height="840" alt="image" src="https://github.com/user-attachments/assets/3ff7d38b-b8e0-4511-8f48-57b6de2dcbc1" /> Yep. Attraction to negative power. People on Reddit are incredibly seeking /  attracted to fiction, negative, hate leadership that Trump provides. Mocking, insulting, hate prizing. Surkov monomyth has mastered bit-flipping of values. Complete ass-backwards Bible reading / Bible literacy (today is Sunday, preaching extra hard): https://thesethingsinside.wordpress.com/2013/04/18/joseph-campbell-says-religious-literalism-sets-satan-in-the-seat-of-god/ Note the age of Reddit user, 17 year account.
 
 Social post { https://autistics.life/@RoundSparrow/115877566894579526 https://bsky.app/profile/roundsparrow.bsky.social/post/3mc5zcew4sc2f }
+
+https://old.reddit.com/r/exmuslim/comments/1q0ivp3/hijab_islamism_vs_real_culture/nwyh19r/
+
+Women have been turned into factories of children making. Programmed by men to obey.
+
+https://old.reddit.com/r/exmuslim/comments/1q0ivp3/hijab_islamism_vs_real_culture/nwy6z96/
+
+https://old.reddit.com/r/exmuslim/comments/1q0ivp3/hijab_islamism_vs_real_culture/nwy7atr/
+
+Yes. My experience in Algeria during the Arab Spring was still a very anti-fun, anti-joy prizing. Marriage without children is an idea that bewilders people raised by terrorist mosque and society. That humans are the origins of the Quran and origins of compassion and love... the anti-education takes over. Malala from Pakistan has been one of the few to articulate. Elif Şafak is a great educator too.
+
+https://old.reddit.com/r/exmuslim/comments/1q0ivp3/hijab_islamism_vs_real_culture/nwz64pt/
+
+I spent tine living in KUL after leaving Jordan study of the Arab Spring.
+
+https://old.reddit.com/r/exmuslim/comments/1q0ivp3/hijab_islamism_vs_real_culture/nwzc3b9/
+
+People jump from one cult to another. Here in USA, you are ridiculed and mocked if you dress out of fashion. Wealthy rulers, billionaires, advertise and market using Edward Bernays methods of manipulating factory purchased cookie-cutter seasonal trends. To listen to music from 1973 or dress like year 1973 will be mocked as stupid. Where following the latest fashion stars that Hollywood billionaires (Like Paul Allen sports owner billionaire in Seattle with investing in DreamWorks)... a lot of manufactured conformity, peer pressure.
+
+* "When conformity enforcers overwhelm diversity generators, all of us are in trouble. Spartans -- fundamentalists, militia groups, fascists, and ultra-nationalists -- can freeze the machinery of collective mind. A shutdown of urban diversity devastates that exercise of collective acumen we call an economy. Christian Fundamentalism has been shown by the research of sociologists Alfred Darnell and Darren E. Sherkat to retard the learning of children raised within its grasp. Darnell and Sherkat sum up a common Fundamentalist attitude in the following words: "No schooling is better than secular schooling." Then there's the paralysis of thought which outright battle brings. When World War I erupted, Sigmund Freud was horrified by the sudden "narrow-mindedness shown by \[even\] the best intellects, their obduracy, their inaccessibility to the most forcible arguments." Such closings of the mind may explain why authoritarians are prone to ignore it when their approaches flop. They often goose-step from one year to another rigidly glued to backfiring ways."
+
+Global Brain: The Evolution of Mass Mind from the Big Bang to the 21st Century      
+Chapter: The Kidnap of Mass Mind     
+Page: 203-204     
+Howard Bloom    
+Published: August 14, 2000    
+
+https://old.reddit.com/r/coolguides/comments/1qa7whc/a_cool_guide_to_how_hijab_ruined_clothing_of/nz0s0n5/
+
+Audiences prize hate and conflict. It is such a sick MAGA USA Reddit California USA culture now. Billionaire worshipers, cults of billionaire media systems. Saudi Royals for sponsoring sporting events, content producers, Truth Social, Musk Twitter, all sources Reddit community flocks to.
+
+https://old.reddit.com/r/coolguides/comments/1qa7whc/a_cool_guide_to_how_hijab_ruined_clothing_of/nz0udre/
+
+Christianity spans many races. Christianity isn't native to California Reddit USA, but imported. Same with Swat Valley, Pakistan where Malala lived. 
+
+* “We felt like the Taliban saw us as like little dolls to control, telling us what to do and **how to dress**. I thought if God wanted us to be like that He would not have made us all different.” ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. October 8, 2013
