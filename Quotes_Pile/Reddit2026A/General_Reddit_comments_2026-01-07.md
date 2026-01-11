@@ -1853,3 +1853,7 @@ https://old.reddit.com/r/comics/comments/1q9db0n/bare_stare/nyv9eod/
 https://old.reddit.com/r/comics/comments/1q9db0n/bare_stare/nyul48c/
 
 https://old.reddit.com/r/comics/comments/1q9db0n/bare_stare/nyucei4/
+
+https://old.reddit.com/r/politics/comments/1q9lep8/americans_are_afraid_of_authority_but_a/nywlsli/
+
+Machines and systems authority. Blocking people on social machines. Banning people. A culture of anti-learning anti-understanding in favor or removal now.
