@@ -185,7 +185,7 @@ def walk_comment_tree(comment_div, level=0):
     else:
         
         # ToDo: throw aapp rgs into global and check global args?
-        fetch_user_info = True
+        fetch_user_info = False
         use_hover=True
 
         # Old Reddit uses 'thing' class for the container
