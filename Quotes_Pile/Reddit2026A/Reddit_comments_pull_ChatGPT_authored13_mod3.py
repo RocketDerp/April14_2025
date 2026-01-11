@@ -32,6 +32,7 @@ from html_to_markdown import convert_to_markdown
 HEADERS = {"User-Agent": "Pluribus TV project"}
 errorCountB = 0
 fetchRedditCountA = 0
+error_fetch_count = 0
 args = {}
 
 
@@ -405,6 +406,7 @@ def fetch_comment_data(url, idx=None, args=None):
 
 def fetch_user_info_hover(username, args=None):
     global fetchRedditCountA
+    global error_fetch_count
 
     url = f"https://old.reddit.com/user/{username}/about.json"
     
@@ -484,6 +486,7 @@ def fetch_user_info_hover(username, args=None):
         res = requests.get(url, headers=HEADERS)
         fetch_time_epoch = int(time.time())
         if res.status_code != 200:
+            error_fetch_count += 1
             print("Error encountered on Reddit account data fetch")
             print(res)
             quit_request = pause_with_quit(3)
@@ -542,6 +545,7 @@ def fetch_user_info_full(username):
 
 def main():
     global args
+    global error_fetch_count
     
     parser = argparse.ArgumentParser(description="Parse Reddit comments from markdown list.")
     parser.add_argument("--file", required=True, help="Input markdown file containing Reddit comment URLs.")
@@ -646,15 +650,14 @@ def main():
         summaryfile.write(f"{args.output}\n")
         summaryfile.write(f"    end {endtime_iso_with_ms}\n")
 
-        if errorCountA + errorCountB > 0:
+        if errorCountA + errorCountB + error_fetch_count > 0:
             print(f"\nERRORS encountered! Final error counts, A: {errorCountA} B: {errorCountB}")
             summaryfile.write(f"\nERRORS encountered! Final error counts, A: {errorCountA} B: {errorCountB}\n")
 
-        if (fetchRedditCountA > 0):
-            print(f"Live fetch to Reddit count: {fetchRedditCountA}")
-            summaryfile.write(f"Live fetch to Reddit count: {fetchRedditCountA}\n")
+        if fetchRedditCountA + error_fetch_count > 0:
+            print(f"Live fetch to Reddit count: {fetchRedditCountA} error_fetch_count: {error_fetch_count}")
+            summaryfile.write(f"Live fetch to Reddit count: {fetchRedditCountA} error_fetch_count {error_fetch_count}\n")
 
 
 if __name__ == "__main__":
     main()
-
