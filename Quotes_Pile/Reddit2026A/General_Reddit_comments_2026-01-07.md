@@ -1810,3 +1810,32 @@ https://old.reddit.com/r/BlackPeopleofReddit/comments/1q9fv2h/keith_porter_was_k
 
 https://old.reddit.com/r/news/comments/1q9gc6h/maryland_woman_who_says_she_is_us_citizen_finally/nyuvsx7/
 
+https://old.reddit.com/r/UnderReportedNews/comments/1q9fwzr/jd_vance_just_declared_federal_agents_have/nyuwjnh/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1q9fwzr/jd_vance_just_declared_federal_agents_have/nyv092j/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1q9fwzr/jd_vance_just_declared_federal_agents_have/nyv4y3w/
+
+People are all on different pages / different URL pages - mocking away. Been going on since June 16. 2015. People think it is funny and entertaining to comment mockery. Ati-Wiki anti-FAQ anti coming together, only just reacting and reacting to Trumpism / MAGA.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1q9fwzr/jd_vance_just_declared_federal_agents_have/nyuxver/
+
+Mocking away.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1q9fwzr/jd_vance_just_declared_federal_agents_have/nyvibrl/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1q9fwzr/jd_vance_just_declared_federal_agents_have/nyuxw9x/
+
+https://old.reddit.com/r/BikiniBottomTwitter/comments/1q9d7ws/basically_the_state_of_the_nation_right_now/nyuh14g/
+
+Avoiding reality  is exactly what people have been doing. Being serious about unimportant sports games / gamers / video games and not being serious about nonfiction learning and rescuing MAGA from Russian information warfare. Things have gotten worse day after day since Jun 16, 2015. There is no end in sight to the addiction people have to denial of the Internet Research Agency mental mnipulation!
+
+https://old.reddit.com/r/BikiniBottomTwitter/comments/1q9d7ws/basically_the_state_of_the_nation_right_now/nyude0y/
+
+https://old.reddit.com/r/BikiniBottomTwitter/comments/1q9d7ws/basically_the_state_of_the_nation_right_now/nyufcwc/
+
+Yes. This isn't an online issue, online fiction addiction has spread to the total nation, People are following leaders that prize hate and mockery.
+
+https://old.reddit.com/r/BikiniBottomTwitter/comments/1q9d7ws/basically_the_state_of_the_nation_right_now/nyuxph4/
+
+Anything to avoid the Fox News HDTV addictions that have played a huge role in wrecking the USA. Just ignore it and don't bother repeating the names of { Jen Senko, Dr. Bandy X Lee }. Just keep repeating Sponge Bob images and commenting.
