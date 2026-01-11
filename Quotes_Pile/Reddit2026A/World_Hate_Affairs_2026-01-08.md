@@ -295,3 +295,18 @@ https://old.reddit.com/r/pics/comments/1q9vkx0/revolutionaries_burning_down_oppr
 https://old.reddit.com/r/pics/comments/1q9vkx0/revolutionaries_burning_down_oppressive/nyycz0v/
 
 Social engineering is all people prize now. Avoiding repeating and asserting: { Jen Senko, Marshall McLuhan, Neil Postman, Dr. Bandy X Lee, Peter Pomerantsev }. Avoiding nonfiction learning.
+
+https://old.reddit.com/r/pics/comments/1q9vkx0/revolutionaries_burning_down_oppressive/nyyaf69/
+
+Mocking and more mocking. Messaging that fire and burning is desire. Avoiding repeating and asserting: { Jen Senko, Marshall McLuhan, Neil Postman, Dr. Bandy X Lee, Peter Pomerantsev, Christopher Wylie }. Avoiding nonfiction learning with tiny-short Tweet-think mindsets and messaging.
+
+https://old.reddit.com/r/pics/comments/1q9vkx0/revolutionaries_burning_down_oppressive/nyycosu/
+
+No book quotes, no book titles, no author names, no URL off-Reddit. Just serious claims in "off the cuff" style of Reddit commenting.
+
+https://old.reddit.com/r/pics/comments/1q9vkx0/revolutionaries_burning_down_oppressive/nyyiast/
+
+https://old.reddit.com/r/pics/comments/1q9vkx0/revolutionaries_burning_down_oppressive/nyyncn9/
+
+5 month Reddit account.
+
