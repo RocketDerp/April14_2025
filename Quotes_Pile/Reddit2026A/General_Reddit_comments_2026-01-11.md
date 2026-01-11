@@ -188,3 +188,39 @@ https://old.reddit.com/r/TikTokCringe/comments/1q9vyw2/i_cant_believe_im_still_s
 
 Cowardly running away from the problem. "Hate thy Neighbor", "Hate Harder", "Hate Thy Enemy", abandon education and teaching in favor of shunning. Exactly what Putin has programmed into electric media consumers since March 2013. Instead of standing up for goodness and being *too preachy* on a Sunday... Avoiding repeating and asserting: { Jen Senko, Marshall McLuhan, Neil Postman, Dr. Bandy X Lee, Peter Pomerantsev }. Just let Russia keep winning hearts and minds to self-harm USA! Technology lovers of Reddit hate human persons and spread dehumanization of their own family. Do not want to rescue USA using Dr. Bandy X Lee's leadership since early year 2017!
 
+https://old.reddit.com/r/books/comments/1qa1y6u/gen_z_are_arriving_to_college_unable_to_even_read/nyzfvw4/
+
+It isn't that age 18 / age 19 kids can't read English. It is that they can't read it decorated on top of a famous person / photograph, meme decoration. Addiction to bright colors and childhood images. Like putting words on top of Sponge Bob images that /r/All is full of constantly. Absolutely unable to engage a nonfiction book that does not use meme images.
+
+https://old.reddit.com/r/books/comments/1qa1y6u/gen_z_are_arriving_to_college_unable_to_even_read/nyzgkkg/
+
+Reddit is a for-profit corporation too. People prize junk information that billionaires trickle down. This is everything New York University professor, Manhattan, Neil Postman described as a warning in his year 1985 book. Time Magazine tried to revive it last year, but audiences of Reddit won't face the meme decoration addictions that billionaires have created. September 10, 2025 https://Time.com/7313999/neil-postman-trump-prediction/
+
+https://old.reddit.com/r/books/comments/1qa1y6u/gen_z_are_arriving_to_college_unable_to_even_read/nyzzds0/
+
+Billionaires at Microsoft and Elon Musk funded OpenAI / ChatGPT development and deployment against the population. Trickle down fiction, trickle-down wealth in the form of anti-learning anti-education anti-understanding fiction-creating entertainment systems (ChatGPT, GrokAI, etc).
+
+https://old.reddit.com/r/books/comments/1qa1y6u/gen_z_are_arriving_to_college_unable_to_even_read/nyzhie9/
+
+https://old.reddit.com/r/books/comments/1qa1y6u/gen_z_are_arriving_to_college_unable_to_even_read/nyzhgop/
+
+* "As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that **study and learning — not just of science, but of anything — are avoidable, even undesirable**.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995, page 59
+
+https://old.reddit.com/r/books/comments/1qa1y6u/gen_z_are_arriving_to_college_unable_to_even_read/nyzkhun/
+
+People on Reddit can't escape the hive mind media culture.
+
+* »All media work us over completely. They are so pervasive in their personal, political, economic, aesthetic, psychological, moral, ethical, and social consequences that they leave no part of us untouched, unaffected, unaltered. The medium is the message. Any understanding of social and cultural change is impossible without a knowledge of the way media work as environments.« - University of Toronto. Marshall McLuhan, Quentin Fiore. March 1967
+
+https://old.reddit.com/r/books/comments/1qa1y6u/gen_z_are_arriving_to_college_unable_to_even_read/nz0g0xv/
+
+Out-group idiot. The sports people prize. Following Trunp MAGA leadership of name-calling and insulting as power source.
+
+https://old.reddit.com/r/books/comments/1qa1y6u/gen_z_are_arriving_to_college_unable_to_even_read/nz0f506/
+
+We are all drowning, ALL OF US, We The People, in a toxic ocean of noise and information deliberately crafted to harm. Surkov students won since March 2013.
+
+https://old.reddit.com/r/books/comments/1qa1y6u/gen_z_are_arriving_to_college_unable_to_even_read/nyzkh52/
+
+Rupert Murdoch and Donald Trump and Elon Musk... are wrecking the minds of people. "Woke Mind Virus" that Musk understands https://www.lemonde.fr/en/international/article/2024/08/13/elon-musk-s-ambition-repopulating-the-planet-and-destroying-the-woke-virus_6714239_4.html more than Reddit. Finnegans Wake / Finn's Hotel year 1923 self-awareness mindsets, "Woke" to media! The pro-commenting anti-Wiki anti-FAQ values of Musk media empire lord.  https://theintercept.com/2025/11/26/grok-elon-musk-grokipedia-hitler/
+
