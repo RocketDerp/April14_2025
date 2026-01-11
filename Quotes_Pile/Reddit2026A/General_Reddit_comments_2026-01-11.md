@@ -291,3 +291,25 @@ When billionaires use Elon Musk richest person in the world media systems, Mark 
 https://old.reddit.com/r/minnesota/comments/1qa50ty/ice_agents_smash_the_window_of_an_activists_car/nz06zzu/
 
 And Reddit audience lines up to boo and insult and mock, as conditioned. Fox News HDTV problem is not taken seriously. No quote of nonfiction books, no link off-Reddit on the topic. Avoiding repeating and asserting: { Jen Senko, Marshall McLuhan, Neil Postman, Dr. Bandy X Lee, Peter Pomerantsev, Bill Moyers }.
+
+https://old.reddit.com/r/news/comments/1qa6ehl/kristi_noem_vows_to_send_hundreds_more_agents_to/nz0gget/
+
+https://old.reddit.com/r/news/comments/1qa6ehl/kristi_noem_vows_to_send_hundreds_more_agents_to/nz0hhjn/
+
+Internet Research Agency, active on Reddit since March 2013, mind-fucked the population into seeing and prizing the entertainment aspect of being able to make memes about MAGA and Trump (on high-speed messaging platforms). ANYTHING but take it as serous crisis. Avoiding repeating and asserting: { Jen Senko, Marshall McLuhan, Neil Postman, Dr. Bandy X Lee, Peter Pomerantsev, Bill Moyers }.
+
+https://old.reddit.com/r/news/comments/1qa6ehl/kristi_noem_vows_to_send_hundreds_more_agents_to/nz0f5k7/
+
+Starting to, in January 2026. Satire-washing Trump / MAGA / ICE. Sarcasm-washing. Sane-washing this as comedy content for Reddit touch-device users. ANYTHING but take it as serous crisis. Avoiding repeating and asserting: { Jen Senko, Marshall McLuhan, Neil Postman, Dr. Bandy X Lee, Peter Pomerantsev, Bill Moyers }.
+
+https://old.reddit.com/r/news/comments/1qa6ehl/kristi_noem_vows_to_send_hundreds_more_agents_to/nz0h7w4/
+
+https://old.reddit.com/r/news/comments/1qa6ehl/kristi_noem_vows_to_send_hundreds_more_agents_to/nz0geqx/
+
+https://old.reddit.com/r/pics/comments/1qa3n7a/ice_supporter_in_mn/nyzuy7q/
+
+Reddit audiences mocking people instead of rescuing people. Drowning in commenting, all on different pages. Anti-FAQ, anti-Wiki, anti call to intellectual priorities on the same page. ANYTHING but take it as serous crisis. Avoiding repeating and asserting: { Jen Senko, Marshall McLuhan, Neil Postman, Dr. Bandy X Lee, Peter Pomerantsev, Bill Moyers }.
+
+https://old.reddit.com/r/pics/comments/1qa3n7a/ice_supporter_in_mn/nz0pbfa/
+
+Crazy. https://www.youtube.com/watch?v=09maaUaRT4M&t=743s Please watch: "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL"
