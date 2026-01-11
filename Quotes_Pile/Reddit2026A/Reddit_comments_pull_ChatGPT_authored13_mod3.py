@@ -476,7 +476,7 @@ def fetch_user_info_hover(username, args=None):
         
         if fetchRedditCountA % 7 == 0:
             print(f"fetchRedditCountA {fetchRedditCountA} is a multiple of 7.")
-            sleep_time = random.uniform(2, 8)  # 2–8 seconds pause
+            sleep_time = random.uniform(3, 16)  # 2–8 seconds pause
             quit_request = pause_with_quit(sleep_time)
             if quit_request:
                 sys.exit(1)
@@ -484,6 +484,11 @@ def fetch_user_info_hover(username, args=None):
         res = requests.get(url, headers=HEADERS)
         fetch_time_epoch = int(time.time())
         if res.status_code != 200:
+            print("Error encountered on Reddit account data fetch")
+            print(res)
+            quit_request = pause_with_quit(3)
+            if quit_request:
+                sys.exit(1)
             return None, None, None, None, False
         reddit_account_data = res.json()["data"]
         live_fetch = True
@@ -652,3 +657,4 @@ def main():
 
 if __name__ == "__main__":
     main()
+
