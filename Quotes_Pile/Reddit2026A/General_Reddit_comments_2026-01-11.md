@@ -371,3 +371,31 @@ Yes. There is nothing feel good that we can't rescue people from organized mass 
 https://old.reddit.com/r/WorkReform/comments/1qaf8ja/billionaires_using_gofundme_to_pay_bounties_to/nz2gogc/
 
 Playing off every childhood programmed science fiction story. The deepest mind-fuck / inception. Hunger Games, bounty hunters. Get the illegal aliens / space aliens.
+
+https://old.reddit.com/r/WorkReform/comments/1qaf8ja/billionaires_using_gofundme_to_pay_bounties_to/nz2n5s0/
+
+Love thy neighbor only if it is a heavily gated community that allows blocking / banning / deportation of undesirable neighbors.
+
+https://old.reddit.com/r/WorkReform/comments/1qaf8ja/billionaires_using_gofundme_to_pay_bounties_to/nz2gxp8/
+
+Calling human people worthless. Very popular in MAGA USA Reddit California 2026.
+
+https://old.reddit.com/r/WorkReform/comments/1qaf8ja/billionaires_using_gofundme_to_pay_bounties_to/nz2huyn/
+
+And sell it as entertainment for Reddit community to make commenting about. All billionaires have learned from Putin's Internet Research Agency (IRA) success of March 2013 onward. Social meme addicts will spend all free time, spare time, spent **avoiding** repeating and asserting: { Jen Senko, Marshall McLuhan, Neil Postman, Dr. Bandy X Lee, Peter Pomerantsev, Bill Moyers }
+
+https://old.reddit.com/r/WorkReform/comments/1qaf8ja/billionaires_using_gofundme_to_pay_bounties_to/nz2iv6a/
+
+https://old.reddit.com/r/WorkReform/comments/1qaf8ja/billionaires_using_gofundme_to_pay_bounties_to/nz2i7cm/
+
+Yes. Stranger Things *upside down* is fiction, and running the USA under the logic of entertainment and fiction for meme audiences has worked to concentrate power and wealth well since June 16, 2015!
+
+https://old.reddit.com/r/WorkReform/comments/1qaf8ja/billionaires_using_gofundme_to_pay_bounties_to/nz2hrdr/
+
+Cheering on deportation. Satire-washing, sarcasm-washing Trump's USA values. MAGA values, Reddit California 2026 society. Blocking, deporting, driving people away all cheered on. So often wrapped in { absurd, surreal, satire, sarcasm, comedy, amusement } information messaging. Laughter is the best mind-fucking.
+
+https://old.reddit.com/r/WorkReform/comments/1qaf8ja/billionaires_using_gofundme_to_pay_bounties_to/nz2o9ha/
+
+Answer: anti-goodness, humiliation, domination, media coverage, showing the power of antics politics.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qaef2u/oh_hell_yeah_id_even_go_ppv/nz2arw0/
