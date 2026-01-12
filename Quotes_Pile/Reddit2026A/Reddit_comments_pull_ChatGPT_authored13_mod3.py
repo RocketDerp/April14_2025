@@ -550,9 +550,11 @@ def fetch_user_info_hover(username, args=None):
              skip_condition = 1
 
     if skip_condition > 0:
-        quit_request = pause_with_quit(3)
-        if quit_request:
-            sys.exit(1)
+        # only pause if the first time, live fetch to Reddit
+        if live_fetch:
+            quit_request = pause_with_quit(3)
+            if quit_request:
+                sys.exit(1)
         return None, None, None, None, False
 
     created = datetime.datetime.utcfromtimestamp(reddit_account_data["created_utc"]).isoformat() + "Z"
