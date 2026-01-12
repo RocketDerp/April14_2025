@@ -45,7 +45,7 @@ I hope that now, August 16, 2025 - we are reaching a point that the saturation o
 Front page of Reddit social media site.    
 https://old.reddit.com/r/NoShitSherlock/comments/1n5oh75/jasmine_crockett_torches_maga_after_the_president/     
 “The entire WORLD can see that Trump is absolutely unqualified to lead… but those red hats shield their brains from taking in facts & data”    
-Yes, the ENTIRE WORLD can see that Trump is unqualified to lead a free-thinking democracy of educated people who understand media ecology. But what Trump is QUALIFIED to do is Reality TV "The Apprentice" and "Truth Social" meme-speak. Donald Trump is qualified to lead a society of media addicts who can not resist mocking Tony Clifton performance that Donald Trump has mastered. A blend of Surkov Russian year 2011 scripted governing methods (entertainment-based governing https://www.youtube.com/watch?v=h9_L9GRRsQo ) with Tonly Clifton audience improv. The "No Shit, Sherlock!" community of Reddit is exactly the kind of reactions a Tony Clifton performance gets from audiences. This has been going on for over ten years and two months.    
+Yes, the ENTIRE WORLD can see that Trump is unqualified to lead a free-thinking democracy of educated people who understand media ecology. But what Trump is QUALIFIED to do is Reality TV "The Apprentice" and "Truth Social" meme-speak. Donald Trump is qualified to lead a society of media addicts who can not resist mocking Tony Clifton performance that Donald Trump has mastered. A blend of Surkov Russian year 2011 scripted governing methods (entertainment-based governing https://www.youtube.com/watch?v=h9_L9GRRsQo ) with Tony Clifton audience improv. The "No Shit, Sherlock!" community of Reddit is exactly the kind of reactions a Tony Clifton performance gets from audiences. This has been going on for over ten years and two months.    
 
 &nbsp;
 
@@ -55,10 +55,18 @@ Yes, the ENTIRE WORLD can see that Trump is unqualified to lead a free-thinking 
 
 # October 29, 2025
 
-Trump synbolism is OBVIOUS. That's the mind exploit. That's the brain loophole. The blinding obvious of the signal. Signal strength over message, the medium of the signal is the message (Marshall McLuhan, University of Toronto).
+Trump symbolism is OBVIOUS. That's the mind exploit. That's the brain loophole. The blinding obvious of the signal. Signal strength over message, the medium of the signal is the message (Marshall McLuhan, University of Toronto).
 
 https://old.reddit.com/r/CringeTikToks/comments/1oj5own/trump_i_met_with_uh_mr_toyota_and_we_had_an/nm0hh2b/
 
 <img width="1010" height="296" alt="image" src="https://github.com/user-attachments/assets/22580d05-79e1-4ea8-8160-92b15fbec768" />
 
 Front page of Reddit, **top upvoted comment**. Mind blown on Reddit by media clip of Trump. How OBVIOUS the situation is. But the message is still tiny-short and reactionary. Acting like this just started in year 2025. People are attracted to self-harm, including those who hate upon Trump. Mocking a Tony Clifton performer is not resisting a Tony Clifton performer. [Hate itself wrecks the mind. (Hate of Trump, hate of MAGA) The 1954 Equation](/Quotes_Pile/Martin_Luther_King_Jr_quotes0.md).
+
+&nbsp;
+
+# Monday, January 12, 2026
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qatvnl/george_conway_donald_trump_is_a_man_who/
+
+Yes, it is all so obvious. And prizing badness is going to create bad outcomes. People unwilling to promote and quote Dr. Bandy X Lee since year 2017 when she went public... have dug a hole of mocking people who are sick of the constant cheering on of bad things.
