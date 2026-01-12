@@ -588,3 +588,21 @@ https://old.reddit.com/r/law/comments/1qaw57h/trump_79_confuses_his_truth_social
 
 Media ecology. Loss of identity at electric media speeds. So many people on Reddit have abandoned their family and aren't fighting with education on media ecology. They do not see how deep media cults run and that in USA the Church and Bible is a media system, imported and translated. Fiction venue Church rules a lot of lives. And billionaire Putin caught on and started exporting monomyth fiction in March 2013.
 
+https://old.reddit.com/r/technology/comments/1qavaiz/jensen_huang_says_relentless_negativity_around_ai/nz5utz7/
+
+https://old.reddit.com/r/technology/comments/1qavaiz/jensen_huang_says_relentless_negativity_around_ai/nz5us9h/
+
+https://old.reddit.com/r/technology/comments/1qavaiz/jensen_huang_says_relentless_negativity_around_ai/nz5w85p/
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qauhv6/ga_pastor_cody_deese_rips_maga_christianity/nz5ycqt/
+
+Fiction addiction problems go way beyond USA Christianity. People on social media flock to fiction over nonfiction, and it is far less obvious to them than the Church.
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qauhv6/ga_pastor_cody_deese_rips_maga_christianity/nz6hot0/
+
+"Love God", yha. "1 John 4:20" Bible verse directly instructs on that one.
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qauhv6/ga_pastor_cody_deese_rips_maga_christianity/nz66cr3/
+
+People prize the worst parts: https://github.com/GreatSealUSA/GreatSealUSA_Art/blob/main/PLUR1BUS/PLUR1BUS_Season_One/Bible_Book_Rorschach_Inkblot_Test.md
+
