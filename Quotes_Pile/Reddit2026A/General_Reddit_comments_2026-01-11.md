@@ -428,3 +428,38 @@ https://old.reddit.com/r/LeopardsAteMyFace/comments/1qagto4/maga_fool_rolls_coal
 
 https://old.reddit.com/r/popculturechat/comments/1qahcq5/teyana_taylors_golden_globes_speech_to_my_brown/nz307c9/
 
+https://old.reddit.com/r/law/comments/1qahn5d/in_twin_cities_area_more_peaceful_protesters_are/nz320ky/
+
+USA society is driven by entertainment. Arresting popular people protesting creates more content for Bluesky audiences to go meme crazy, The power of meme generation is the very power of Surkov students since March 2013.
+
+Social post { https://autistics.life/@RoundSparrow/115880016356755966 https://bsky.app/profile/roundsparrow.bsky.social/post/3mc7442aa4s2e }
+
+https://old.reddit.com/r/TikTokCringe/comments/1qak68e/this_would_ruin_my_entire_week/nz3mplh/
+
+People were not on the flight, they watched a video recording of the flight.
+
+https://old.reddit.com/r/politics/comments/1qaelzh/trump_says_civil_rights_led_to_white_people_being/nz2kdyj/
+
+https://old.reddit.com/r/politics/comments/1qaelzh/trump_says_civil_rights_led_to_white_people_being/nz2zv0o/
+
+The only same page everyone in USA agrees to is: *hate harder* ad promote the merit of hating out-groups.
+
+https://old.reddit.com/r/politics/comments/1qaelzh/trump_says_civil_rights_led_to_white_people_being/nz2t9n6/
+
+Millions of people say: we need more commenting on Reddit that keeps everyone on different pages. Social meme addicts will spend all free time, spare time, spent **avoiding** repeating and asserting: { Jen Senko, Marshall McLuhan, Neil Postman, Dr. Bandy X Lee, Peter Pomerantsev, Bill Moyers }
+
+https://old.reddit.com/r/politics/comments/1qaelzh/trump_says_civil_rights_led_to_white_people_being/nz2jqkx/
+
+There is no excuse for the population all over social media fr putting down the unimportant commenting. People have not stood up together for goodness and common cause. Freedom to avoid goodness is a terrible society to live in. Prizing hate leaders as a constant engagement. Free time, spare time, spent **avoiding** repeating and asserting: { Jen Senko, Marshall McLuhan, Neil Postman, Dr. Bandy X Lee, Peter Pomerantsev, Bill Moyers }
+
+https://old.reddit.com/r/politics/comments/1qaelzh/trump_says_civil_rights_led_to_white_people_being/nz2d7ji/
+
+Commenting "What the Fuck" every day instead of facing entertainment addiction to an entertainer actor.
+
+https://old.reddit.com/r/politics/comments/1qacnm0/trump_regrets_not_seizing_voting_machines_after/nz2arfh/
+
+Ignores it, drowns it with unimportant commenting, endlessly engaged in far less important activities on social media. A society that will not organize and sustain focus that billionaires are the problem and create an organized topic list: [Brainrot Society 47](/PostMalala/Assert_Malala/Brainrot_Society_47.md)
+
+https://old.reddit.com/r/politics/comments/1qacnm0/trump_regrets_not_seizing_voting_machines_after/nz1w45s/
+
+https://old.reddit.com/r/politics/comments/1qacnm0/trump_regrets_not_seizing_voting_machines_after/nz1xsqi/
