@@ -534,4 +534,6 @@ What is realistic is actually teaching love and peace. We no longer listen to go
 
 * You know what occurred to me? We teach everything in the world to people, except the most essential thing. And that is life. Nobody teaches you about life. You're supposed to know about it. Nobody teaches you how to be a human being and what it means to be a human being, and the dignity that it means when you say, "I am a human being." Everyone assumes this is something you have, or you should have gotten by osmosis. We'll it's not working by osmosis! - From the chapter "The Art of Being Fully Human" page 127 of "Living, Loving & Learning" by Leo Buscaglia, Ph. D. (published June 1, 1982) https://youtu.be/OZ2fe9rVlgg?t=792
 
+https://old.reddit.com/r/minnesota/comments/1qauntn/ice_kidnap_17yearold_us_citizen_working_at_target/nz5u7g5/
 
+Yes. so many Twitter-length comments (one being replied to) that call all these tactics dumb and accidental. It is intentional!
