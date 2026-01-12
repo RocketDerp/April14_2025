@@ -463,3 +463,24 @@ Ignores it, drowns it with unimportant commenting, endlessly engaged in far less
 https://old.reddit.com/r/politics/comments/1qacnm0/trump_regrets_not_seizing_voting_machines_after/nz1w45s/
 
 https://old.reddit.com/r/politics/comments/1qacnm0/trump_regrets_not_seizing_voting_machines_after/nz1xsqi/
+
+https://old.reddit.com/r/politics/comments/1qacnm0/trump_regrets_not_seizing_voting_machines_after/nz28cmr/
+
+Cult power. And people who say try is doing nothing, lazy,etc do not grasp how much effort he puts into charming minds and hearts to believe in Putin and Trump values. It is impossible to get people to put their attention on Dr. Bandy X Lee and actually stand up for goodness.
+
+https://old.reddit.com/r/politics/comments/1qacnm0/trump_regrets_not_seizing_voting_machines_after/nz2j5pf/
+
+He is an actor. I have never seen people so magnetically drawn to a personality. The labor people put into prizing hate leadership, hate value, mass dehumanization values. It is impossible to get people to put their attention on Dr. Bandy X Lee and actually stand up for goodness.
+
+https://old.reddit.com/r/politics/comments/1qacnm0/trump_regrets_not_seizing_voting_machines_after/nz2kc7d/
+
+Insane living with so many people who won't admit to their cult addictions to mocking and  insulting. Which is not resisting the total mockery. Insulting and mocking is joining right in with Trump values. 
+
+https://old.reddit.com/r/politics/comments/1qa8cxr/christian_dad_sued_school_to_keep_his_son_from/nz0vmqm/
+
+Anti-reality pro-fiction society. Fiction addiction runs the USA society now.
+
+https://old.reddit.com/r/politics/comments/1qa8cxr/christian_dad_sued_school_to_keep_his_son_from/nz0we3w/
+
+Undesirables is people who speak science nonfiction instead of fiction storytelling of how good it is to worship billionaires vi the latest incarnation of Fox News. Block-happy society, ban happy, deport happy, anti-diversity society. And what is prized is the worst, badness of leaders is what people follow.
+
