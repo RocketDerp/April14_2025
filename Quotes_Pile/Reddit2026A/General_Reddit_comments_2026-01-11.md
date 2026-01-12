@@ -606,3 +606,16 @@ https://old.reddit.com/r/ProgressiveHQ/comments/1qauhv6/ga_pastor_cody_deese_rip
 
 People prize the worst parts: https://github.com/GreatSealUSA/GreatSealUSA_Art/blob/main/PLUR1BUS/PLUR1BUS_Season_One/Bible_Book_Rorschach_Inkblot_Test.md
 
+https://old.reddit.com/r/politics/comments/1qaw2dm/embracing_impeachment/nz60qwg/
+
+https://old.reddit.com/r/politics/comments/1qaw2dm/embracing_impeachment/nz620k6/
+
+https://old.reddit.com/r/politics/comments/1qaw2dm/embracing_impeachment/nz6ba0n/
+
+https://old.reddit.com/r/politics/comments/1qazt2a/after_renee_good_are_you_really_going_to_keep/nz6rxd2/
+
+https://old.reddit.com/r/politics/comments/1qazt2a/after_renee_good_are_you_really_going_to_keep/nz6sw7w/
+
+https://old.reddit.com/r/politics/comments/1qazt2a/after_renee_good_are_you_really_going_to_keep/nz6uutp/
+
+https://old.reddit.com/r/politics/comments/1qazt2a/after_renee_good_are_you_really_going_to_keep/nz6vlp1/
