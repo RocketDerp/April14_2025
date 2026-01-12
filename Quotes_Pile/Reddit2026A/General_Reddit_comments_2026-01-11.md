@@ -741,3 +741,30 @@ https://old.reddit.com/r/CuratedTumblr/comments/1qb276x/this_is_normal_no_it_fuc
 https://old.reddit.com/r/CuratedTumblr/comments/1qb276x/this_is_normal_no_it_fucking_isnt/nz7khu7/
 
 Sane-washing in the comments that it is not insane. No quotes of nonfiction books, no off-Reddit URL, no book titles, no author names. Dr. Bandy X Lee ignored while people prize commenting above all else as source of information and learning.
+
+https://old.reddit.com/r/complaints/comments/1qb2ik9/fuck_every_trump_voter_who_put_this_asshole_in/nz7f2yv/
+
+Tech lovers, technology audience. Hate humans. Anti-teaching. Let toxic breeding grounds keep breeding. Billionaire Rupert Murdoch Fox News mindsets.  **Deport those you do not understand or comprehend, get rid of them from your life, deport them from the nation** messaging.
+
+https://old.reddit.com/r/complaints/comments/1qb2ik9/fuck_every_trump_voter_who_put_this_asshole_in/nz7dyby/
+
+1 month Reddit account. Highly upvoted comment.
+
+https://old.reddit.com/r/complaints/comments/1qb2ik9/fuck_every_trump_voter_who_put_this_asshole_in/nz7so9w/
+
+https://old.reddit.com/r/complaints/comments/1qb2ik9/fuck_every_trump_voter_who_put_this_asshole_in/nz7mm46/
+
+https://old.reddit.com/r/complaints/comments/1qb2ik9/fuck_every_trump_voter_who_put_this_asshole_in/nz7spyq/
+
+cramming all issues into 1-bit, "both sides". twitter-length logic, twee-thinking.
+
+https://old.reddit.com/r/complaints/comments/1qb2ik9/fuck_every_trump_voter_who_put_this_asshole_in/nz7in3g/
+
+https://old.reddit.com/r/complaints/comments/1qb2ik9/fuck_every_trump_voter_who_put_this_asshole_in/nz7n996/
+
+Hate harder, mock harder, insult harder. People who prize the hate leadership Trump provides.
+
+https://old.reddit.com/r/complaints/comments/1qb2ik9/fuck_every_trump_voter_who_put_this_asshole_in/nz7igx5/
+
+Denial of Putin, denial of Russia. Internet Research Agency can't be named by Reddit. Pro-ignorance society that will not turn to nonfiction books and teachers. Avoiding Dr. Bandy X Lee and other excellent sources of information in favor of Twitter-length junk commenting attraction.
+
