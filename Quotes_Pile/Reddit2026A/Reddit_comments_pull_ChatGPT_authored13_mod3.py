@@ -37,6 +37,12 @@ replies_users_max = 3
 args = {}
 
 
+def live_fetch_error(res, call_spot):
+    if res.status_code == 429:
+        print("detected http 429 error, immediate app exit")
+        sys.exit(3)
+    
+
 def pause_with_quit(total_seconds):
     print(f"\nPausing for {int(total_seconds)} seconds. Press 'Q' to quit app. [SPACE] to end pause.")
     fd = sys.stdin.fileno()
@@ -303,6 +309,8 @@ def fetch_comment_data(url, idx=None, args=None):
         fetchRedditCountA += 1
         res = requests.get(url, headers=HEADERS)
         fetch_time_epoch = int(time.time())
+        if res.status_code != 200:
+            live_fetch_error(res, 3)
         res.raise_for_status()
         html_text = res.text
         live_fetch = True
@@ -506,6 +514,7 @@ def fetch_user_info_hover(username, args=None):
                 sys.exit(1)
         else:
             if res.status_code != 200:
+                live_fetch_error(res, 1)
                 error_fetch_count += 1
                 print("Error encountered on Reddit account data fetch")
                 print(res)
@@ -563,6 +572,8 @@ def fetch_user_info_full(username):
     print(f"live-fetch for user_info_full {url}")
     fetchRedditCountA += 1
     res = requests.get(url, headers=HEADERS)
+    if res.status_code != 200:
+        live_fetch_error(res, 2)
     res.raise_for_status()
     
     soup = BeautifulSoup(res.text, "html.parser")
@@ -622,6 +633,7 @@ def main():
             os.makedirs(args.error_html_folder, exist_ok=True)
             html_filename = os.path.join(args.error_html_folder, f"{idx}_{url.split('/')[-1]}.html")
             try:
+                # ToDo: is this doing a new http live-fetch?
                 r = requests.get(url, headers=HEADERS)
                 with open(html_filename, "w", encoding="utf-8") as f:
                     f.write(r.text)
