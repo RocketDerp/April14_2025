@@ -429,3 +429,23 @@ Cuba.
 https://old.reddit.com/r/videos/comments/1qaaiwt/breaking_trump_warns_cuba_entertains_the_idea_of/nz1fjrt/
 
 No. But people sure are entertained with low-effort commenting on Reddit and Bluesky high-speed messaging systems! Prizing of joking and mocking. Nobody wants to use social media to push the name and nonfiction books of Dr. Bandy X Lee. Free time, spare time, spent **avoiding** repeating and asserting: { Jen Senko, Marshall McLuhan, Neil Postman, Dr. Bandy X Lee, Peter Pomerantsev, Bill Moyers }
+
+https://old.reddit.com/r/complaints/comments/1qagtoz/people_need_to_get_away/nz2wfzx/
+
+Love affairs, hate affairs. There is a society value that if you super-love your family, you go out in public and murder the "others" who you disagree with. Society mass man programming.
+
+* "The unformulated message of an assembly of news items from every quarter of the globe is that the world today is one city. All war is civil war. All suffering is our own." - Marshall McLuhan, University of Toronto
+
+https://old.reddit.com/r/complaints/comments/1qagtoz/people_need_to_get_away/nz2xk62/
+
+Toxic popularity since Q2 2013. Anti-goodness abounds, hate-prizing abounds. Block-happy, deport-happy, ban-happy egomania USA values.
+
+https://old.reddit.com/r/complaints/comments/1qagtoz/people_need_to_get_away/nz2zfij/
+
+Mind-fucked by Putin / Kremlin / Internet Research Agency... which Reddit won't name. Free time, spare time, spent commenting and **avoiding** repeating and asserting: { Jen Senko, Marshall McLuhan, Neil Postman, Dr. Bandy X Lee, Peter Pomerantsev, Bill Moyers }
+
+https://old.reddit.com/r/complaints/comments/1qagtoz/people_need_to_get_away/nz30r7l/
+
+https://old.reddit.com/r/complaints/comments/1qagtoz/people_need_to_get_away/nz2wfv2/
+
+World hate affairs in the replies to this comment.
