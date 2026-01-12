@@ -23,3 +23,11 @@ Why did I just make that list?
 
 * "Of course this would have nothing to do with banalisation. Well, of course it would. But anything that is a threat to the system can be banalised. I’ll give you two examples in the sphere of politics. The way they turned Jesse Jackson from a serious social actor, into sort of a banal caricature of himself in the media. They have banalised a real threat to the system, which was the Rainbow Coalition. A real threat – populist threat to the system – banalised into a joke." https://rickroderick.org/304-marcuse-and-one-dimensional-man-1993/
 
+&nbsp;
+
+&nbsp;
+
+# Difficulty of reasoning
+
+https://youtu.be/V2zaC8cwOk8?t=343   
+"Star Trek's The Measure of a Man is a Writing Masterclass!"    
