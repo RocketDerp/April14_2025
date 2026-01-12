@@ -516,14 +516,25 @@ def fetch_user_info_hover(username, args=None):
                 json.dump(reddit_account_data, f, indent=4) # indent=4 makes the JSON output more readable
                 print(f"Saved fresh fetched account JSON to {account_filename}")
 
-    # ToDo: are both of these redundnat?
+    skip_condition = 0
+
+    # ToDo: are both of these redundant?
     if "is_suspended" in reddit_account_data:
         if reddit_account_data["is_suspended"]:
              print("suspended account encountered")
-             quit_request = pause_with_quit(3)
-             if quit_request:
-                sys.exit(1)
-             return None, None, None, None, False
+             skip_condition = 1
+
+    if "error" in reddit_account_data:
+        if reddit_account_data["error"] == 404:
+             # since the time of the comment capture, account now deleted
+             print("since-deleted account encountered")
+             skip_condition = 1
+
+    if skip_condition > 0:
+        quit_request = pause_with_quit(3)
+        if quit_request:
+            sys.exit(1)
+        return None, None, None, None, False
 
     created = datetime.datetime.utcfromtimestamp(reddit_account_data["created_utc"]).isoformat() + "Z"
     bio = reddit_account_data.get("subreddit", {}).get("public_description")
