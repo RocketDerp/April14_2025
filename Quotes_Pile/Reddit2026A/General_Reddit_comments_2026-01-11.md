@@ -656,3 +656,18 @@ https://old.reddit.com/r/Music/comments/1qazdym/trump_is_destroying_america_neil
 
 Reddit audience members bring up brainwashing, but do not suggest support Dr. Bandy X Lee. Nor do they promote Jen Senko's nonfiction 2015 / 2016 book and film. https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad  There is no concern to turn situation around, to use education and teaching, just addiction to commenting all on different pages of social sites. 
 
+https://old.reddit.com/r/minnesota/comments/1qawjlf/ice_vehicles_are_now_ramming_civilian_cars_at_red/nz6fi8x/
+
+https://old.reddit.com/r/minnesota/comments/1qawjlf/ice_vehicles_are_now_ramming_civilian_cars_at_red/nz6fbx5/
+
+https://old.reddit.com/r/minnesota/comments/1qawjlf/ice_vehicles_are_now_ramming_civilian_cars_at_red/nz6c1ry/
+
+Absurd surreal antics, the Surkov student techniques.
+
+https://old.reddit.com/r/complaints/comments/1qavdq9/trump_supporters_are_communist/nz66mge/
+
+Simulation of topic. Wild dumb short-message dominates front page of Reddit so engagement can be correcting the tiny-short Twitter-think message mindsets. Instead of using spare time and free time to promote serious teaching leaders like Dr. Bandy X Lee, this is what audiences of intimate touch devices choose.
+
+https://old.reddit.com/r/IThinkYouShouldLeave/comments/1qaxl9f/good_christians_on_their_way_to_defend_killers/nz6cdzq/
+
+Addiction to ANY fiction storytelling is thriving. Teaching Bible verse "1 John 4:20" addresses many addicts to science fiction
