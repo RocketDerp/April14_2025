@@ -421,3 +421,11 @@ Calling it insane. But nobody wants to use social media to push the name and non
 https://old.reddit.com/r/worldnews/comments/1qa335j/nobel_institute_rejects_mar%C3%ADa_corina_machados/nyzq8sl/
 
 Even more "LOL cow" milking icons and status symbols for USA audiences. Prizing of joking and mocking. Nobody wants to use social media to push the name and nonfiction books of Dr. Bandy X Lee. Free time, spare time, spent **avoiding** repeating and asserting: { Jen Senko, Marshall McLuhan, Neil Postman, Dr. Bandy X Lee, Peter Pomerantsev, Bill Moyers }
+
+https://old.reddit.com/r/videos/comments/1qaaiwt/breaking_trump_warns_cuba_entertains_the_idea_of/nz1hiac/
+
+Cuba.
+
+https://old.reddit.com/r/videos/comments/1qaaiwt/breaking_trump_warns_cuba_entertains_the_idea_of/nz1fjrt/
+
+No. But people sure are entertained with low-effort commenting on Reddit and Bluesky high-speed messaging systems! Prizing of joking and mocking. Nobody wants to use social media to push the name and nonfiction books of Dr. Bandy X Lee. Free time, spare time, spent **avoiding** repeating and asserting: { Jen Senko, Marshall McLuhan, Neil Postman, Dr. Bandy X Lee, Peter Pomerantsev, Bill Moyers }
