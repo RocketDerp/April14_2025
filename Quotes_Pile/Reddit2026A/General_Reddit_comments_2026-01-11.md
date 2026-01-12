@@ -639,3 +639,20 @@ https://old.reddit.com/r/Fauxmoi/comments/1qazk0x/mark_ruffalo_i_gotta_be_honest
 <img width="1878" height="566" alt="image" src="https://github.com/user-attachments/assets/45a69078-083b-4d55-8988-7421acb2436c" /> People will not quote nonfiction books, off-Reddit URL absent, author names avoided. Social war has conditioned people to prize commenting on different pages above all elses.
 
 Social post { https://autistics.life/@RoundSparrow/115883353692142888 https://bsky.app/profile/roundsparrow.bsky.social/post/3mcalkpynis2y }
+
+https://old.reddit.com/r/Music/comments/1qazdym/trump_is_destroying_america_neil_young_blasts/nz6rrv8/
+
+Tech lovers, Technology addicts who want to promote giving up on people forever. For all eternity, they are a permanent enemy. Don't fight the Russian Internet Research Agency and billionaires who mind-fucked rural less-educated population. Promote that humanity can never be improved, will just keep getting worse at the hands of Fox News HDTV / Rupert Murdoch ans similar. Give up on USA messaging from gamers / sports game mentality.
+
+https://old.reddit.com/r/Music/comments/1qazdym/trump_is_destroying_america_neil_young_blasts/nz74xsu/
+
+One month old Reddit account.
+
+https://old.reddit.com/r/Music/comments/1qazdym/trump_is_destroying_america_neil_young_blasts/nz72rox/
+
+One month old account 2nd message.
+
+https://old.reddit.com/r/Music/comments/1qazdym/trump_is_destroying_america_neil_young_blasts/nz765gg/
+
+Reddit audience members bring up brainwashing, but do not suggest support Dr. Bandy X Lee. Nor do they promote Jen Senko's nonfiction 2015 / 2016 book and film. https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad  There is no concern to turn situation around, to use education and teaching, just addiction to commenting all on different pages of social sites. 
+
