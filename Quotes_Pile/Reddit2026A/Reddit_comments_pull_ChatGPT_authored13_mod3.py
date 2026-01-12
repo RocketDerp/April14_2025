@@ -33,6 +33,7 @@ HEADERS = {"User-Agent": "Pluribus TV project version 0.1.0"}
 errorCountB = 0
 fetchRedditCountA = 0
 error_fetch_count = 0
+replies_users_fetch = 0
 args = {}
 
 
@@ -175,8 +176,6 @@ def check_comment_seen(comment_id):
         return False
 
 
-replies_users_fetch = 0
-
 def walk_comment_tree(comment_div, level=0):
     global args
     global replies_users_fetch
@@ -208,9 +207,9 @@ def walk_comment_tree(comment_div, level=0):
                 if author_tag:
                     author = author_tag.get_text()
 
-                    replies_user_fetch += 1
-                    if replies_user_fetch > 16:
-                        print(f"skip fetch user info, already got {replies_user_fetch}")
+                    replies_users_fetch += 1
+                    if replies_users_fetch > 16:
+                        print(f"skip fetch user info, already got {replies_users_fetch}")
                         fetch_user_info = False
                     
                     account_date, bio, link_karma, comment_karma, account_live_fetch = None, None, None, None, False
@@ -338,7 +337,7 @@ def fetch_comment_data(url, idx=None, args=None):
                 print(f"!!!!!!!!!!!!! number of replies child count text: {child_count_text}")
 
         # reset global variable
-        replies_user_fetch = 0
+        replies_users_fetch = 0
         walk_comment_tree(comment_div, 0)
         print("!!!!!!!!!!!!! replies processed")
         replies.decompose()
