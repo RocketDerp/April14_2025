@@ -196,3 +196,7 @@ Meme addicts of the world will drown this progressive diplomacy progress:
 https://old.reddit.com/r/science/comments/1q7lh8z/sudden_drop_in_fentanyl_overdose_deaths_linked_to/
 
 High-speed junk information will quickly wipe that from the hive minds (mindsets) of meme consumers.
+
+&nbsp;
+
+https://www.theguardian.com/us-news/2026/jan/11/rsv-vaccines-trump-kennedy
