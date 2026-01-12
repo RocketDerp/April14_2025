@@ -34,7 +34,7 @@ errorCountB = 0
 fetchRedditCountA = 0
 error_fetch_count = 0
 replies_users_fetch = 0
-replies_users_max = 1
+replies_users_max = 3
 args = {}
 
 
