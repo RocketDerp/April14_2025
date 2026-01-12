@@ -494,10 +494,10 @@ def fetch_user_info_hover(username, args=None):
         print(f"live-fetch for user_info_hover {url}")
         fetchRedditCountA += 1
         
-        slowdown_every = 3
+        slowdown_every = 6
         if fetchRedditCountA % slowdown_every == 0:
             print(f"fetchRedditCountA {fetchRedditCountA} is a multiple of {slowdown_every}.")
-            sleep_time = random.uniform(7, 33)
+            sleep_time = random.uniform(5, 25)
             quit_request = pause_with_quit(sleep_time)
             if quit_request:
                 sys.exit(1)
