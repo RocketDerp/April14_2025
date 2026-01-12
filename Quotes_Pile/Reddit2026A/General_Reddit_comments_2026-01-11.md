@@ -768,3 +768,34 @@ https://old.reddit.com/r/complaints/comments/1qb2ik9/fuck_every_trump_voter_who_
 
 Denial of Putin, denial of Russia. Internet Research Agency can't be named by Reddit. Pro-ignorance society that will not turn to nonfiction books and teachers. Avoiding Dr. Bandy X Lee and other excellent sources of information in favor of Twitter-length junk commenting attraction.
 
+https://old.reddit.com/r/ProgressiveHQ/comments/1qb56qc/minneapolis_bovino_leads_the_charge_on_protesters/nz7yoyk/
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qb56qc/minneapolis_bovino_leads_the_charge_on_protesters/nz8242u/
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qb56qc/minneapolis_bovino_leads_the_charge_on_protesters/nz85dhy/
+
+The Putin meetings are never enough for USA society. It isn't just USA, it is NATO reporting the Internet Research Agency since March 2013; multiple nations. Elon Musk purchase of Twitter isn't being taken seriously with Neil Postman's writings, Marshall McLuhan's writings. People are engaged with the content that antics and hate leadership provide. Surkov won.
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qb56qc/minneapolis_bovino_leads_the_charge_on_protesters/nz81xjx/
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qb56qc/minneapolis_bovino_leads_the_charge_on_protesters/nz8cbno/
+
+https://old.reddit.com/r/news/comments/1qb4fm1/trump_administration_has_revoked_over_100000/nz8qk38/
+
+https://old.reddit.com/r/fightporn/comments/1qb712r/dude_takes_on_mob_after_be_assaulted_by_megaphone/nz8nijs/
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qb727a/kamala_harris_at_her_final_campaign_rally_donald/nz8dezm/
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qb727a/kamala_harris_at_her_final_campaign_rally_donald/nz8fqrx/
+
+2 month old Reddit account
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qb727a/kamala_harris_at_her_final_campaign_rally_donald/nz9102u/
+
+World Salad is dog-whistle anti-diversity.
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qb727a/kamala_harris_at_her_final_campaign_rally_donald/nz8ijmv/
+
+Addiction to fiction storytelling runs society now. Why aren't people promoting woman Dr. Bandy X Lee? Too engaged in commenting "cult" and "unhinged" about Trump, instead of promoting education and nonfiction books.
+
+
