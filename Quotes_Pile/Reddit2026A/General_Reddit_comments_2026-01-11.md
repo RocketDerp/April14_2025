@@ -698,3 +698,46 @@ https://old.reddit.com/r/videos/comments/1qb3lcg/mark_ruffalo_i_gotta_be_honest_
 
 Trump isn't a failure. People do not see how addicted Reddit audiences are to { hate, mock, insult } Trump. The engagement he provides for addicts to being in a total mockery. Surkov won.
 
+fhttps://old.reddit.com/r/videos/comments/1qb3lcg/mark_ruffalo_i_gotta_be_honest_im_not_feeling_so/nz7nrkv/
+
+Where is social media? Why is "Epstein" the only person being asserted? A terrible white man? Why sin't Dr. Bandy X Lee being promoted and quoted 10 times more than Epstein?
+
+https://old.reddit.com/r/videos/comments/1qb3lcg/mark_ruffalo_i_gotta_be_honest_im_not_feeling_so/nz7qn5e/
+
+https://old.reddit.com/r/videos/comments/1qb3lcg/mark_ruffalo_i_gotta_be_honest_im_not_feeling_so/nz7w0y4/
+
+Snark-washing, satire-washing, sarcasm-washing serious topics. Nearly 20 year Reddit account that banalizes important topics.
+
+https://old.reddit.com/r/CuratedTumblr/comments/1qb276x/this_is_normal_no_it_fucking_isnt/nz7epfx/
+
+Meme-washing, sane-washing, entertainment-wrapping, joke-washing, humor-washing. Audience of Reddit played a huge role in LOL away at the Internet Research Agency outcomes. All started in March 2013, lead up to February 20, 2014 Ukraine war. Anti-FAQ, anti-Wiki, anti nonfiction book attitudes.
+
+https://old.reddit.com/r/CuratedTumblr/comments/1qb276x/this_is_normal_no_it_fucking_isnt/nz7at32/
+
+Recency bias is a huge problem. Entire nation is behaving as if this is Trump's first term in office!
+
+https://old.reddit.com/r/CuratedTumblr/comments/1qb276x/this_is_normal_no_it_fucking_isnt/nz7g9f5/
+
+Entertainment charms everyone, resistance into meme mind looping.
+
+https://old.reddit.com/r/CuratedTumblr/comments/1qb276x/this_is_normal_no_it_fucking_isnt/nz7erge/
+
+Anti-progress, anti-goodness, want hate and war forever a killing devices / murder machines keep getting more powerful.
+
+https://old.reddit.com/r/CuratedTumblr/comments/1qb276x/this_is_normal_no_it_fucking_isnt/nz7fu7h/
+
+Yes. Billionaires have programmed minds to self-harm.
+
+https://old.reddit.com/r/CuratedTumblr/comments/1qb276x/this_is_normal_no_it_fucking_isnt/nz7dafo/
+
+https://old.reddit.com/r/CuratedTumblr/comments/1qb276x/this_is_normal_no_it_fucking_isnt/nz7lt8f/
+
+March 2013. [Operation Matthew 4:19 against the World Wide Web](/Operation_Matthew_4_19_on_monday_2024-03-31.md).
+
+https://old.reddit.com/r/CuratedTumblr/comments/1qb276x/this_is_normal_no_it_fucking_isnt/nz7lpjj/
+
+https://old.reddit.com/r/CuratedTumblr/comments/1qb276x/this_is_normal_no_it_fucking_isnt/nz7doro/
+
+https://old.reddit.com/r/CuratedTumblr/comments/1qb276x/this_is_normal_no_it_fucking_isnt/nz7khu7/
+
+Sane-washing in the comments that it is not insane. No quotes of nonfiction books, no off-Reddit URL, no book titles, no author names. Dr. Bandy X Lee ignored while people prize commenting above all else as source of information and learning.
