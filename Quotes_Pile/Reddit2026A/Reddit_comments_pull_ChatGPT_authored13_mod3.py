@@ -39,7 +39,7 @@ args = {}
 
 def live_fetch_error(res, call_spot):
     if res.status_code == 429:
-        print("detected http 429 error, immediate app exit")
+        print(f"detected http 429 error, immediate app exit. Call identifier {call_spot}")
         sys.exit(3)
     
 
@@ -497,7 +497,7 @@ def fetch_user_info_hover(username, args=None):
         slowdown_every = 6
         if fetchRedditCountA % slowdown_every == 0:
             print(f"fetchRedditCountA {fetchRedditCountA} is a multiple of {slowdown_every}.")
-            sleep_time = random.uniform(5, 25)
+            sleep_time = random.uniform(9, 25)
             quit_request = pause_with_quit(sleep_time)
             if quit_request:
                 sys.exit(1)
