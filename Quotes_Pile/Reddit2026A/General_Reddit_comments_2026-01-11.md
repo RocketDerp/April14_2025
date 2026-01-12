@@ -368,3 +368,6 @@ https://old.reddit.com/r/minnesota/comments/1qabuvr/icecbp_kicks_off_doortodoor_
 
 Yes. There is nothing feel good that we can't rescue people from organized mass self-harm. Following hate leadership signals. Surkov won, Putin won.
 
+https://old.reddit.com/r/WorkReform/comments/1qaf8ja/billionaires_using_gofundme_to_pay_bounties_to/nz2gogc/
+
+Playing off every childhood programmed science fiction story. The deepest mind-fuck / inception. Hunger Games, bounty hunters. Get the illegal aliens / space aliens.
