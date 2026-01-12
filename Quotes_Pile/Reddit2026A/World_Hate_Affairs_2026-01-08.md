@@ -457,3 +457,10 @@ Joke-washing sane-washing Trump behavior. The Reddit Society consistency since J
 https://old.reddit.com/r/worldnews/comments/1qajzmf/us_president_trump_posts_image_of_himself_saying/nz3m80g/
 
 The Russian Internet Research Agency went online in March 2013. Americans like function bullshit instead of factual learning.
+
+https://old.reddit.com/r/news/comments/1qaqijr/woman_shot_dead_in_head_as_body_bags_show/nz5a4or/
+
+Audience thinks these are "LOL" topics. Jokes.
+
+https://old.reddit.com/r/news/comments/1qaqijr/woman_shot_dead_in_head_as_body_bags_show/nz59d74/
+
