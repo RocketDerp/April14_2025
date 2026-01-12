@@ -689,3 +689,12 @@ Recommendations.
 https://old.reddit.com/r/ProgressiveHQ/comments/1qb0hg9/breaking_ice_agents_rammed_this_united_states/nz7546f/
 
 They are media cults. Donald Trump and his father's brand name, logo messaging cults. People who have no idea how media systems impact their behavior, there is a lack of self-awareness. University of Toronto's Marshall McLuhan has been abandoned and was essential self-awareness education.
+
+https://old.reddit.com/r/videos/comments/1qb3lcg/mark_ruffalo_i_gotta_be_honest_im_not_feeling_so/nz7o339/
+
+Reddit is overrun with hate worshipers. People who prize hate. Terrorism mindset teaching platform.
+
+https://old.reddit.com/r/videos/comments/1qb3lcg/mark_ruffalo_i_gotta_be_honest_im_not_feeling_so/nz7qnez/
+
+Trump isn't a failure. People do not see how addicted Reddit audiences are to { hate, mock, insult } Trump. The engagement he provides for addicts to being in a total mockery. Surkov won.
+
