@@ -553,3 +553,38 @@ https://old.reddit.com/r/politics/comments/1qarv5b/they_want_you_to_quit_demonst
 https://old.reddit.com/r/politics/comments/1qarv5b/they_want_you_to_quit_demonstrating/nz5fare/
 
 Social media can't assert progressive changes like Dr. Bandy X Lee name and quotes from her books. Free time and spare time is spent all on different pages and threads commenting about less important assertions.
+
+https://old.reddit.com/r/law/comments/1qaw57h/trump_79_confuses_his_truth_social_rant_with_the/nz60xl7/
+
+Donald Trump's success and the entire MAGA movement is based upon Internet Research Agency and Cambridge Analytica manipulation of audiences into fiction addiction.
+
+Russia and the **Menace of Unreality**   
+How Vladimir Putin is revolutionizing information warfare   
+Peter Pomerantsev   
+September 9 2014, 3:42 PM ET   
+https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+The denial of Fox News HDTV audience behaviors, Twitter Musk changes upon society. Avoidance of Marshall McLuhan and Neil Postman's library of books on media ecology. Trump does not deny that fiction outsells nonfiction. Rick Roderick's 1993 lecture "Self Under Siege" has proven true. Trump grasps that people abandon goodness for the sake of hate leadership that Trump provides.
+
+https://old.reddit.com/r/law/comments/1qaw57h/trump_79_confuses_his_truth_social_rant_with_the/nz5zalp/
+
+https://old.reddit.com/r/law/comments/1qaw57h/trump_79_confuses_his_truth_social_rant_with_the/nz65bs9/
+
+https://old.reddit.com/r/law/comments/1qaw57h/trump_79_confuses_his_truth_social_rant_with_the/nz60ywf/
+
+Yes. He wants his every idea to be law upon others. People in extreme denial that people behave this way towards religions with zero evidence of any Allah / Yahweh / Jesus. And they deny in USA the existence of Bible verse 11:32 meaning in this context. Let alone "1 John 4:20" 
+
+https://old.reddit.com/r/law/comments/1qaw57h/trump_79_confuses_his_truth_social_rant_with_the/nz6bpoo/
+
+No links off-Reddit, no book quotes, no author names, no book titles...
+
+https://old.reddit.com/r/law/comments/1qaw57h/trump_79_confuses_his_truth_social_rant_with_the/nz69udm/
+
+https://old.reddit.com/r/law/comments/1qaw57h/trump_79_confuses_his_truth_social_rant_with_the/nz613ao/
+
+https://old.reddit.com/r/law/comments/1qaw57h/trump_79_confuses_his_truth_social_rant_with_the/nz632fo/
+
+https://old.reddit.com/r/law/comments/1qaw57h/trump_79_confuses_his_truth_social_rant_with_the/nz64h4b/
+
+Media ecology. Loss of identity at electric media speeds. So many people on Reddit have abandoned their family and aren't fighting with education on media ecology. They do not see how deep media cults run and that in USA the Church and Bible is a media system, imported and translated. Fiction venue Church rules a lot of lives. And billionaire Putin caught on and started exporting monomyth fiction in March 2013.
+
