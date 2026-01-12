@@ -678,3 +678,14 @@ Joke-washing is what many of our most gifted and talented people do with every M
 
 https://old.reddit.com/r/okbuddycinephile/comments/1qb04ra/favourite_actor_whos_not_a_fucking_coward/nz6x7hr/
 
+https://old.reddit.com/r/SipsTea/comments/1qatki2/kudos_to_them/nz5ra80/
+
+My experience with the Breaking Bad and Better Call Saul fandom is terrible. People who revel in Walter White as a thrilling role model. Vince Gilligan's February 15, 2025 calling social media a cesspool... and people who prize terrible role model for the ways they get away with crimes...
+
+https://old.reddit.com/r/SipsTea/comments/1qatki2/kudos_to_them/nz6bivc/
+
+Recommendations.
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qb0hg9/breaking_ice_agents_rammed_this_united_states/nz7546f/
+
+They are media cults. Donald Trump and his father's brand name, logo messaging cults. People who have no idea how media systems impact their behavior, there is a lack of self-awareness. University of Toronto's Marshall McLuhan has been abandoned and was essential self-awareness education.
