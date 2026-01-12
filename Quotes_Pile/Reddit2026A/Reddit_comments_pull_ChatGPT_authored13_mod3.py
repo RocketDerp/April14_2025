@@ -34,6 +34,7 @@ errorCountB = 0
 fetchRedditCountA = 0
 error_fetch_count = 0
 replies_users_fetch = 0
+replies_users_max = 4
 args = {}
 
 
@@ -179,6 +180,7 @@ def check_comment_seen(comment_id):
 def walk_comment_tree(comment_div, level=0):
     global args
     global replies_users_fetch
+    global replies_users_max
 
     # level 0 already printed
     if level == 0:
@@ -208,8 +210,8 @@ def walk_comment_tree(comment_div, level=0):
                     author = author_tag.get_text()
 
                     replies_users_fetch += 1
-                    if replies_users_fetch > 16:
-                        print(f"skip fetch user info, already got 16, on {replies_users_fetch}")
+                    if replies_users_fetch > replies_users_max:
+                        print(f"skip fetch user info, already got {replies_users_max}, on {replies_users_fetch}")
                         fetch_user_info = False
                     
                     account_date, bio, link_karma, comment_karma, account_live_fetch = None, None, None, None, False
