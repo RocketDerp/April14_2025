@@ -205,3 +205,8 @@ Avoiding repeating and asserting: { Jen Senko, Marshall McLuhan, Neil Postman, D
 https://old.reddit.com/r/IThinkYouShouldLeave/comments/1qa5pz3/theres_too_much_fucking_shit_on_me_i_cant_breathe/nz0nhib/
 
 Attacking women, tech / technology lovers. Meme audiences so thrilled to have constant stimulation of White House entertainment. Super, shallow, banal society USA California Reddit. Free time, spare time, spent avoiding repeating and asserting: { Jen Senko, Marshall McLuhan, Neil Postman, Dr. Bandy X Lee, Peter Pomerantsev, Bill Moyers }
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qaef2u/oh_hell_yeah_id_even_go_ppv/nz2c78u/
+
+Front page of Reddit. Fiction images to talk bout "White skin color Twitter" defeating the amusement providers / entertainers. Simulation of resistance, fake images, fiction storytelling. The population using free time, spare time, spent **avoiding progressive use of information systems** repeating and asserting: { Jen Senko, Marshall McLuhan, Neil Postman, Dr. Bandy X Lee, Peter Pomerantsev, Bill Moyers }.
+
