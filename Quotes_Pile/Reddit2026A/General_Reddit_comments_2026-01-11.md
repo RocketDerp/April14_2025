@@ -524,3 +524,14 @@ Why hasn't social media made Jen Senko a household name since yer 2015 / 2016? W
 
 https://old.reddit.com/r/ProgressiveHQ/comments/1qau0eu/thank_you_abc_news_australia_who_are_always_doing/nz5qsy6/
 
+https://old.reddit.com/r/minnesota/comments/1qauntn/ice_kidnap_17yearold_us_citizen_working_at_target/nz5rllg/
+
+We The People need to RISE UP and promote Dr. Bandy X Lee and her books! Stand for something progressive and good. Just reacting to the violence without dealing with the cult problem has no moral ground. Trump enjoys the fight, audiences want action video! The case has to be made for a peaceful and loving society and people are not standing up and saying they want actual gooness.
+
+https://old.reddit.com/r/minnesota/comments/1qauntn/ice_kidnap_17yearold_us_citizen_working_at_target/nz5utb1/
+
+What is realistic is actually teaching love and peace. We no longer listen to good leaders and good teachers. Trump is a meme addict, a TV addict, and it is a common cause to confront our learning problems.
+
+* You know what occurred to me? We teach everything in the world to people, except the most essential thing. And that is life. Nobody teaches you about life. You're supposed to know about it. Nobody teaches you how to be a human being and what it means to be a human being, and the dignity that it means when you say, "I am a human being." Everyone assumes this is something you have, or you should have gotten by osmosis. We'll it's not working by osmosis! - From the chapter "The Art of Being Fully Human" page 127 of "Living, Loving & Learning" by Leo Buscaglia, Ph. D. (published June 1, 1982) https://youtu.be/OZ2fe9rVlgg?t=792
+
+
