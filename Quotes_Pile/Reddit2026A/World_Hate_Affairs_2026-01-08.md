@@ -467,3 +467,10 @@ https://old.reddit.com/r/news/comments/1qaqijr/woman_shot_dead_in_head_as_body_b
 https://old.reddit.com/r/europe/comments/1qar9f5/russias_invasion_of_ukraine_has_now_lasted_longer/nz52dy9/
 
 Adam Curtis informed the public this was the strategy. December 31, 2014: "The underlying aim, Surkov says, is not to win the war, but to use the conflict to create a constant state of destabilized perception, in order to manage and control." - and given how Trump and USA population is behaving, and NATO situation in 2026, it continue to work!
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qau0eu/thank_you_abc_news_australia_who_are_always_doing/nz5nmj3/
+
+Media ecology topic.
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qau0eu/thank_you_abc_news_australia_who_are_always_doing/nz5s6jd/
+
