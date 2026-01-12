@@ -477,7 +477,7 @@ def fetch_user_info_hover(username, args=None):
         fetchRedditCountA += 1
         
         slowdown_every = 5
-        if fetchRedditCountA % showdown_every == 0:
+        if fetchRedditCountA % slowdown_every == 0:
             print(f"fetchRedditCountA {fetchRedditCountA} is a multiple of {slowdown_every}.")
             sleep_time = random.uniform(7, 22)
             quit_request = pause_with_quit(sleep_time)
