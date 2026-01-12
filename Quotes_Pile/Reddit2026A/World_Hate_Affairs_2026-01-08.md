@@ -474,3 +474,29 @@ Media ecology topic.
 
 https://old.reddit.com/r/ProgressiveHQ/comments/1qau0eu/thank_you_abc_news_australia_who_are_always_doing/nz5s6jd/
 
+https://old.reddit.com/r/politics/comments/1qaw1gf/trump_confirms_hes_taking_greenland_one_way_or/nz5z35l/
+
+And why are people behaving as if this is entertainment and not a serious problem to organize against every hour of every day? Amusement-washing. Tiny-short popular (most upvoted) commenting. Why isn't Dr. Bandy X Lee being named and her books quoted....
+
+https://old.reddit.com/r/politics/comments/1qaw1gf/trump_confirms_hes_taking_greenland_one_way_or/nz5yu3b/
+
+The United States of America has the freedom to all point to Dr. Bandy X Lee and follow her lead, quote her books.
+
+https://old.reddit.com/r/politics/comments/1qaw1gf/trump_confirms_hes_taking_greenland_one_way_or/nz65711/
+
+People in USA, the population, We The People - never seem to get enough surreal comedy, absurd humor, that President Tony Clifton acts provide. People want more meme junk. 
+
+https://old.reddit.com/r/politics/comments/1qaw1gf/trump_confirms_hes_taking_greenland_one_way_or/nz6gg3q/
+
+Trump is a proven media provider. Content creator. The fantasy of having constant entertainment as "leader" to follow. Hate leadership that Trump provides. People won't promote Dr. Bandy X Lee and get the mental group-think issues on the table.
+
+https://old.reddit.com/r/politics/comments/1qaw1gf/trump_confirms_hes_taking_greenland_one_way_or/nz6ikgc/
+
+https://old.reddit.com/r/politics/comments/1qaw1gf/trump_confirms_hes_taking_greenland_one_way_or/nz60jj0/
+
+https://old.reddit.com/r/politics/comments/1qaw1gf/trump_confirms_hes_taking_greenland_one_way_or/nz60230/
+
+https://old.reddit.com/r/politics/comments/1qaw1gf/trump_confirms_hes_taking_greenland_one_way_or/nz5zyg3/
+
+Gamers love it. Sports game fans, video game fans, people love what Trump does best, provide entertainment. Since 1983, Trump has been on television providing audiences content. Long after Trump is dead, let it be know that game addicts / sports mentality / video game mentality - is what Trump and Putin exploited to wreck the nation. Future leaders may not use the techniques, but game sports fans are highly predictable in their praising of shit-talk as "winning". Anything to avoid nonfiction learning about progress and goodness. Free time, spare time, spent **avoiding** repeating and asserting: { Jen Senko, Marshall McLuhan, Neil Postman, Dr. Bandy X Lee, Peter Pomerantsev, Bill Moyers }
+
