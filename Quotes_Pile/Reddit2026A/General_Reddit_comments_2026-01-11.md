@@ -537,3 +537,19 @@ What is realistic is actually teaching love and peace. We no longer listen to go
 https://old.reddit.com/r/minnesota/comments/1qauntn/ice_kidnap_17yearold_us_citizen_working_at_target/nz5u7g5/
 
 Yes. so many Twitter-length comments (one being replied to) that call all these tactics dumb and accidental. It is intentional!
+
+https://old.reddit.com/r/minnesota/comments/1qauntn/ice_kidnap_17yearold_us_citizen_working_at_target/nz5udoi/
+
+Stress lording. Watching goodness be wrecked. So many drown it out with sports games, video games, gaming, mocking, joking, insulting.
+
+https://old.reddit.com/r/minnesota/comments/1qauntn/ice_kidnap_17yearold_us_citizen_working_at_target/nz5t9mg/
+
+https://old.reddit.com/r/politics/comments/1qarv5b/they_want_you_to_quit_demonstrating/nz54ya6/
+
+The whole Black Live Matter was asserting that point, about lives actually mattering and people standing up for goodness.
+
+https://old.reddit.com/r/politics/comments/1qarv5b/they_want_you_to_quit_demonstrating/nz5bro7/
+
+https://old.reddit.com/r/politics/comments/1qarv5b/they_want_you_to_quit_demonstrating/nz5fare/
+
+Social media can't assert progressive changes like Dr. Bandy X Lee name and quotes from her books. Free time and spare time is spent all on different pages and threads commenting about less important assertions.
