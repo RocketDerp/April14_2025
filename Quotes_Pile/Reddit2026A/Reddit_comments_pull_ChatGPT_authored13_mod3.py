@@ -209,7 +209,7 @@ def walk_comment_tree(comment_div, level=0):
 
                     replies_users_fetch += 1
                     if replies_users_fetch > 16:
-                        print(f"skip fetch user info, already got {replies_users_fetch}")
+                        print(f"skip fetch user info, already got 16, on {replies_users_fetch}")
                         fetch_user_info = False
                     
                     account_date, bio, link_karma, comment_karma, account_live_fetch = None, None, None, None, False
