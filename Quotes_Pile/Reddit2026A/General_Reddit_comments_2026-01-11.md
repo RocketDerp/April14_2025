@@ -522,3 +522,5 @@ https://old.reddit.com/r/TikTokCringe/comments/1qan83j/this_is_what_joining_a_cu
 
 Why hasn't social media made Jen Senko a household name since yer 2015 / 2016? Why is Jen Senko not repeated and asserted MORE THAN Epstein's name? Why are white male criminals constantly asserted while goodness leaders like Jen Senko ignored? https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad
 
+https://old.reddit.com/r/ProgressiveHQ/comments/1qau0eu/thank_you_abc_news_australia_who_are_always_doing/nz5qsy6/
+
