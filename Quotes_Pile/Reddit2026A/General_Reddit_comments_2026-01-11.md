@@ -484,3 +484,25 @@ https://old.reddit.com/r/politics/comments/1qa8cxr/christian_dad_sued_school_to_
 
 Undesirables is people who speak science nonfiction instead of fiction storytelling of how good it is to worship billionaires vi the latest incarnation of Fox News. Block-happy society, ban happy, deport happy, anti-diversity society. And what is prized is the worst, badness of leaders is what people follow.
 
+https://old.reddit.com/r/politics/comments/1qa555y/expresidents_what_more_do_you_need_to_see_before/nz06hkx/
+
+https://old.reddit.com/r/politics/comments/1qa555y/expresidents_what_more_do_you_need_to_see_before/nz05nzr/
+
+https://old.reddit.com/r/politics/comments/1qa555y/expresidents_what_more_do_you_need_to_see_before/nz0m6gf/
+
+Anyone but We the People. Anyone but blaming Reddit audience for no concern to make Dr. Bandy X Lee a constant assertion / household name and topic. People don't value goodness and learning, just meme consumption on meme sites.
+
+https://old.reddit.com/r/politics/comments/1qa555y/expresidents_what_more_do_you_need_to_see_before/nz0gvy5/
+
+https://old.reddit.com/r/politics/comments/1qanmmz/wtf_trump_mocked_after_posting_completely_insane/nz4cjzx/
+
+Donald Trump is the very source of distress and alarm! Why is Dr. Bandy X Lee not repeated and quoted constantly on social media if people have any true concern for mental health? Why is Jen Senko's name not repeated? People are not focused or agonized on serious leaders. Trump know exactly what meme addicts want with this "insane" posting on social media. Junk, garbage, worthless content is what people prize. And meme addicts on Reddit are not facing that Trump is an addict to junk media.
+
+https://old.reddit.com/r/politics/comments/1qanmmz/wtf_trump_mocked_after_posting_completely_insane/nz4eb2g/
+
+https://old.reddit.com/r/politics/comments/1qanmmz/wtf_trump_mocked_after_posting_completely_insane/nz56gg1/
+
+https://old.reddit.com/r/politics/comments/1qanmmz/wtf_trump_mocked_after_posting_completely_insane/nz4ypr6/
+
+Egomania egoism. Social media users on Reddit will do anything but turn to serious leaders like Dr. Bandy X Lee and quote her books and ask people to get on the same page.
+
