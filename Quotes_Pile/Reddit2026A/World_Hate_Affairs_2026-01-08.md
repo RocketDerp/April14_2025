@@ -449,3 +449,11 @@ https://old.reddit.com/r/complaints/comments/1qagtoz/people_need_to_get_away/nz3
 https://old.reddit.com/r/complaints/comments/1qagtoz/people_need_to_get_away/nz2wfv2/
 
 World hate affairs in the replies to this comment.
+
+https://old.reddit.com/r/worldnews/comments/1qajzmf/us_president_trump_posts_image_of_himself_saying/nz3l70f/
+
+Joke-washing sane-washing Trump behavior. The Reddit Society consistency since June 16, 2015. Treating Donald Trump as comedy entertainer extraordinaire. Selling out your whole nation with top-upvoted popular comment on best sorting of Reddit since the IRA mind-fucked everyone: Trump is the entertainer to prize, Reddit messaging!
+
+https://old.reddit.com/r/worldnews/comments/1qajzmf/us_president_trump_posts_image_of_himself_saying/nz3m80g/
+
+The Russian Internet Research Agency went online in March 2013. Americans like function bullshit instead of factual learning.
