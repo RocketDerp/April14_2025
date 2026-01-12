@@ -253,7 +253,8 @@ def walk_comment_tree(comment_div, level=0):
 
 def fetch_comment_data(url, idx=None, args=None):
     global fetchRedditCountA
-    
+    global replies_users_fetch
+
     # params
     # save_html_folder=None, check_saved_first=True
     use_hover=True
