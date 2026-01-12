@@ -500,3 +500,47 @@ https://old.reddit.com/r/politics/comments/1qaw1gf/trump_confirms_hes_taking_gre
 
 Gamers love it. Sports game fans, video game fans, people love what Trump does best, provide entertainment. Since 1983, Trump has been on television providing audiences content. Long after Trump is dead, let it be know that game addicts / sports mentality / video game mentality - is what Trump and Putin exploited to wreck the nation. Future leaders may not use the techniques, but game sports fans are highly predictable in their praising of shit-talk as "winning". Anything to avoid nonfiction learning about progress and goodness. Free time, spare time, spent **avoiding** repeating and asserting: { Jen Senko, Marshall McLuhan, Neil Postman, Dr. Bandy X Lee, Peter Pomerantsev, Bill Moyers }
 
+https://old.reddit.com/r/worldnews/comments/1qb0xn5/greenland_says_it_cannot_accept_us_takeover_under/nz73yt7/
+
+Cult word raised again. But nobody want to teach nonfiction cult deprogramming. Dr. Bandy X Lee should be far more famous world wide than Epstein. People stand up for bad shit crimes before getting on stable goodness first. You have to address the cult before you take on Epstein Hollywood star sex trafficking. Media stars and people with fandoms require cult addressing first. Even with the massive success of True Detective Season One, the writers couldn't take on the sex power themes of male leaders / power traders.
+
+https://old.reddit.com/r/worldnews/comments/1qb0xn5/greenland_says_it_cannot_accept_us_takeover_under/nz77w51/
+
+Meme life nation with shit adult prizing of sports games and video games and mocking away at everything serious. Dr. Bandy X Lee should be asserted and quoted. 
+
+https://old.reddit.com/r/worldnews/comments/1qb0xn5/greenland_says_it_cannot_accept_us_takeover_under/nz76m2u/
+
+*Hate thy neighbor* has been prized behavior since year 2013. It started as social media "pranks" and "circle jerking", anything to avoid nonfiction serious problems.
+
+https://old.reddit.com/r/worldnews/comments/1qb0xn5/greenland_says_it_cannot_accept_us_takeover_under/nz7dih5/
+
+People are too thrilled with the mocking leadership. Mocking away at MAGA and Trump all day every day for over a decade on meme mills, Reddit inclusive. Dr. Bandy X Lee stuck her neck out in year 2017 and she barely has 3,000 followers on Bluesky. People will not take the cult issues of MAGA and Fox News HDTV cult seriously. Put down the unimportant junk media and focus on intelligent leaders.
+
+https://old.reddit.com/r/worldnews/comments/1qb0xn5/greenland_says_it_cannot_accept_us_takeover_under/nz7djht/
+
+People have let trash Reality TV addiction wreck the future. Parents think Trump is a good role model. Clergy cheers Trump on in USA. So much failure of comprehension and understanding due to meme junk.
+
+https://old.reddit.com/r/worldnews/comments/1qb0xn5/greenland_says_it_cannot_accept_us_takeover_under/nz79fb6/
+
+It' cost me two marriages to say no to children. The USA is now leading the world in self-harm with Putin's runaway mind and media programming since year 2013.
+
+https://old.reddit.com/r/worldnews/comments/1qb0xn5/greenland_says_it_cannot_accept_us_takeover_under/nz72j2t/
+
+There are so many people in denial of how toxic Trump has been since June 16, 2015 on society. Who bend over backwards to say it is all jokes and not reality.
+
+https://old.reddit.com/r/worldnews/comments/1qb0xn5/greenland_says_it_cannot_accept_us_takeover_under/nz7brvl/
+
+Surkov won, hearts and minds to self-harm the world / Earth.
+
+https://old.reddit.com/r/worldnews/comments/1qb0xn5/greenland_says_it_cannot_accept_us_takeover_under/nz7coal/
+
+Passively sit by and wait for Trump to die. Don't stand up and have everyone rally behind Dr Bandy X Lee. A 55 year old woman who is using her power and skills to educate and teach, nonfiction books, but people don't want to be serious.
+
+https://old.reddit.com/r/worldnews/comments/1qb0xn5/greenland_says_it_cannot_accept_us_takeover_under/nz7i79z/
+
+Anything but teach one sentence at a time the books by Dr. Bandy X Lee. And Marshall McLuhan teaching. 
+
+https://old.reddit.com/r/worldnews/comments/1qb0xn5/greenland_says_it_cannot_accept_us_takeover_under/nz7gkk2/
+
+Short-message Twitter-think. No off-Reddit URL, no author name, no book quote, no book title. Just acting like it's no serious problem that needs serious intellectual discussion.
+
