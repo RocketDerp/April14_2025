@@ -506,3 +506,19 @@ https://old.reddit.com/r/politics/comments/1qanmmz/wtf_trump_mocked_after_postin
 
 Egomania egoism. Social media users on Reddit will do anything but turn to serious leaders like Dr. Bandy X Lee and quote her books and ask people to get on the same page.
 
+https://old.reddit.com/r/TikTokCringe/comments/1qan83j/this_is_what_joining_a_cult_does_to_you/nz4asct/
+
+Sick sick population that keeps talking about the cult behaviors but won't promote or quote Dr. Bandy X Lee or any other nonfiction source on cults. People just keep making comments on page after page without any concern to get all on *the same page* with important topics. Dr. Bandy X Lee has been leading since year 2017 on these topics. But people don't care to follow a woman or whatever shallow superficial reason that people will not support actual goodness!
+
+https://old.reddit.com/r/TikTokCringe/comments/1qan83j/this_is_what_joining_a_cult_does_to_you/nz4as4r/
+
+Russian military, Internet Research Agency, invades Reddit and other media platforms to turn people into self-harm. And the tech lovers just encourage you to give up on humanism, give up on people! As if this isn't a real threat to our real world. Like you can just turn off a video game and the problem is solved. Running away, cowards to mental health issues and cults! Coward to Russia winning an information war. Russia KNEW this would be a predictable reaction, to abandon people, to give up! That's how Russia won! That's why Trump fiction is so popular. Because loving human people and teaching serious topics is so unpopular.
+
+https://old.reddit.com/r/TikTokCringe/comments/1qan83j/this_is_what_joining_a_cult_does_to_you/nz4ax5i/
+
+You can see the audience of Reddit prize stupid content day after day. Why are people not mounting an organized rescue? A spiritual revival? Music, art, science. Dr. Bandy X Lee has been leading since year 2017!
+
+https://old.reddit.com/r/TikTokCringe/comments/1qan83j/this_is_what_joining_a_cult_does_to_you/nz4b5bx/
+
+Why hasn't social media made Jen Senko a household name since yer 2015 / 2016? Why is Jen Senko not repeated and asserted MORE THAN Epstein's name? Why are white male criminals constantly asserted while goodness leaders like Jen Senko ignored? https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad
+
