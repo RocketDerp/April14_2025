@@ -619,3 +619,23 @@ https://old.reddit.com/r/politics/comments/1qazt2a/after_renee_good_are_you_real
 https://old.reddit.com/r/politics/comments/1qazt2a/after_renee_good_are_you_really_going_to_keep/nz6uutp/
 
 https://old.reddit.com/r/politics/comments/1qazt2a/after_renee_good_are_you_really_going_to_keep/nz6vlp1/
+
+https://old.reddit.com/r/politics/comments/1qazt2a/after_renee_good_are_you_really_going_to_keep/nz6svf2/
+
+https://old.reddit.com/r/Fauxmoi/comments/1qazk0x/mark_ruffalo_i_gotta_be_honest_im_not_feeling_so/nz6qa3y/
+
+Stress lords. Not feeling great. Crazy group behaviors. https://www.youtube.com/watch?v=09maaUaRT4M&t=743s Please watch: "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL"
+
+https://old.reddit.com/r/Fauxmoi/comments/1qazk0x/mark_ruffalo_i_gotta_be_honest_im_not_feeling_so/nz6rk8n/
+
+All the social media users who spend their free time and spare time avoiding asserting important names and nonfiction books. Dr. Bandy X Lee
+
+https://old.reddit.com/r/Fauxmoi/comments/1qazk0x/mark_ruffalo_i_gotta_be_honest_im_not_feeling_so/nz6rur3/
+
+People prize the worst values in leaders. Entertainment value and mocking prized. Good leaders are ignored.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qazk0x/mark_ruffalo_i_gotta_be_honest_im_not_feeling_so/nz6x3lo/
+
+<img width="1878" height="566" alt="image" src="https://github.com/user-attachments/assets/45a69078-083b-4d55-8988-7421acb2436c" /> People will not quote nonfiction books, off-Reddit URL absent, author names avoided. Social war has conditioned people to prize commenting on different pages above all elses.
+
+Social post { https://autistics.life/@RoundSparrow/115883353692142888 https://bsky.app/profile/roundsparrow.bsky.social/post/3mcalkpynis2y }
