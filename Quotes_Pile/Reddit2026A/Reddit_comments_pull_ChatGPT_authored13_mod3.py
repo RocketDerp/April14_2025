@@ -488,7 +488,7 @@ def fetch_user_info_hover(username, args=None):
         fetch_time_epoch = int(time.time())
         if res.status_code == 404:
             # user account deleted
-            reddit_account_data = res.json()["data"]
+            reddit_account_data = res.json()
             print(f"User account 404 deleted? {url}")
             print(f"account data: {reddit_account_data}")
             quit_request = pause_with_quit(24)
