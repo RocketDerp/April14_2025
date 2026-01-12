@@ -353,3 +353,18 @@ https://old.reddit.com/r/technology/comments/1qa39vy/uk_canada_and_australia_in_
 https://old.reddit.com/r/technology/comments/1qa39vy/uk_canada_and_australia_in_talks_to_ban_x_over/nz1alou/
 
 https://old.reddit.com/r/pcmasterrace/comments/1qa9vlc/epic_games_ceo_tim_sweeney_argues_banning_twitter/nz1bkb4/
+
+https://old.reddit.com/r/minnesota/comments/1qabuvr/icecbp_kicks_off_doortodoor_raids_in_minneapolis/nz1rocz/
+
+Conservative vs. liberal has turned the nation brainrot mindsets. The funding father did not put these binary thinking systems into the Constitution or at the top of the Great Seal USA. This is not a "winner takes all" team sports logic!
+
+https://old.reddit.com/r/minnesota/comments/1qabuvr/icecbp_kicks_off_doortodoor_raids_in_minneapolis/nz1rnga/
+
+Gaming society, game mentality, gamers. Sports games, video games, everything is entertainment and mocking to dehumanize people!
+
+https://old.reddit.com/r/minnesota/comments/1qabuvr/icecbp_kicks_off_doortodoor_raids_in_minneapolis/nz1po3n/
+
+https://old.reddit.com/r/minnesota/comments/1qabuvr/icecbp_kicks_off_doortodoor_raids_in_minneapolis/nz1wfdm/
+
+Yes. There is nothing feel good that we can't rescue people from organized mass self-harm. Following hate leadership signals. Surkov won, Putin won.
+
