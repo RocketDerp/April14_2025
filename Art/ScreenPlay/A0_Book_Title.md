@@ -203,3 +203,7 @@ Great Non-Expectations (Great Seal banality)
 
 Suicide of a Nation   (Birth Of A Nation: Rebirth Laughed Away, subtitle)    
 Self-Harm of a Nation    
+
+Memes exploit Brain     
+Memes exploit Minds    
+-- focus on John 1:1 meme and avoidance of paired "1 John 4:20" unseen    
