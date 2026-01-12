@@ -671,3 +671,10 @@ Simulation of topic. Wild dumb short-message dominates front page of Reddit so e
 https://old.reddit.com/r/IThinkYouShouldLeave/comments/1qaxl9f/good_christians_on_their_way_to_defend_killers/nz6cdzq/
 
 Addiction to ANY fiction storytelling is thriving. Teaching Bible verse "1 John 4:20" addresses many addicts to science fiction
+
+https://old.reddit.com/r/okbuddycinephile/comments/1qb04ra/favourite_actor_whos_not_a_fucking_coward/nz6ykrv/
+
+Joke-washing is what many of our most gifted and talented people do with every MAGA act / Trump antic.
+
+https://old.reddit.com/r/okbuddycinephile/comments/1qb04ra/favourite_actor_whos_not_a_fucking_coward/nz6x7hr/
+
