@@ -12,7 +12,6 @@ from urllib.parse import urlparse
 import json
 import os
 import glob
-from bs4 import NavigableString, Tag
 import traceback
 from html_to_markdown import convert_to_markdown
 
