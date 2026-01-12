@@ -164,20 +164,22 @@ def comment_do_one (comment_div):
 #    some replies are already covered.
 #    check if in another tree we already processed comment.
 
-commentt_id_already = set()
+comment_id_already = set()
 
 def check_comment_seen(comment_id):
     # Use the 'in' operator for membership testing
-    if comment_id in commentt_id_already:
+    if comment_id in comment_id_already:
         return True
     else:
-        commentt_id_already.add(comment_id)
+        comment_id_already.add(comment_id)
         return False
 
 
+replies_users_fetch = 0
 
 def walk_comment_tree(comment_div, level=0):
     global args
+    global replies_users_fetch
 
     # level 0 already printed
     if level == 0:
@@ -205,6 +207,11 @@ def walk_comment_tree(comment_div, level=0):
                 author_tag = entry.find("a", class_="author")
                 if author_tag:
                     author = author_tag.get_text()
+
+                    replies_user_fetch += 1
+                    if replies_user_fetch > 16:
+                        print(f"skip fetch user info, already got {replies_user_fetch}")
+                        fetch_user_info = False
                     
                     account_date, bio, link_karma, comment_karma, account_live_fetch = None, None, None, None, False
                     if fetch_user_info:
@@ -329,7 +336,9 @@ def fetch_comment_data(url, idx=None, args=None):
             if num_children_tag:
                 child_count_text = num_children_tag.get_text(strip=True)
                 print(f"!!!!!!!!!!!!! number of replies child count text: {child_count_text}")
-  
+
+        # reset global variable
+        replies_user_fetch = 0
         walk_comment_tree(comment_div, 0)
         print("!!!!!!!!!!!!! replies processed")
         replies.decompose()
