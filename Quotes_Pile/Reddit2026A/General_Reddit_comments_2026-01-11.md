@@ -899,3 +899,10 @@ https://old.reddit.com/r/therewasanattempt/comments/1qbpw43/to_get_what_they_for
 
 And people will not use Reddit information systems to organize and stand up to professional liars / deceivers. People will not use computer systems to call for organized thoughtful rescue of elderly and youth from the intelligent clever manipulation that billionaires seed.
 
+https://old.reddit.com/r/LateStageCapitalism/comments/1qbncjy/so_ice_just_declared_war_on_blue_states_right/nzcbwnj/
+
+The war is on Reddit and other media venues. But media addicts don't want to educate and turn to non-fiction learning of media addictions. Neil Postman, Marshall McLuhan, Joseph Campbell abandoned and avoided. Dr. Bandy X Lee ignored. "Epstein" worshiped and cheered as content of rich white men private jets famous lifestyle. Dr. Bandy X Lee not *good enough* to stand up and repeat and quote!
+
+https://old.reddit.com/r/LateStageCapitalism/comments/1qbncjy/so_ice_just_declared_war_on_blue_states_right/nzbwoxh/
+
+Reddit long-form (not Bluesky or Twitter) commenting with off-Reddit link!
