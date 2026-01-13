@@ -272,4 +272,6 @@ This is not resisting at all. This is cheering on the sex lives, private jet Eps
 
 https://old.reddit.com/r/clevercomebacks/comments/1qbtm3n/this_is_all_a_distraction_by_trump_from_the/nzd317z/
 
-Top-most upvoted comment on front-page Reddit posting. How hilarious and amusing, laughing away. That's what Surkov students exploit in the Reddit audience. Blowing minds with surreal / absurd comedy. President Tony Clifton performances. Thinking it is accidental that the Kremlin and White House use media this way. Reddit users... [eating the Surkovian Onions](../Reddit2025A/Surkovian_Onion_Eating.md). People entirely unable to turn to nonfiction and learn what Trump is following.. Putin / Russia / Surkov students.
+<img width="1579" height="352" alt="Screenshot from 2026-01-13 12-40-35" src="https://github.com/user-attachments/assets/b8e8d78a-c051-4857-b5d8-7c02090608c1" /> Top-most upvoted comment on front-page Reddit posting. How hilarious and amusing, laughing away. That's what Surkov students exploit in the Reddit audience. Blowing minds with surreal / absurd comedy. President Tony Clifton performances. Thinking it is accidental that the Kremlin and White House use media this way. Reddit users... [eating the Surkovian Onions](../Reddit2025A/Surkovian_Onion_Eating.md). People entirely unable to turn to nonfiction and learn what Trump is following.. Putin / Russia / Surkov students.
+
+Social post { https://autistics.life/@RoundSparrow/115889496048877338 https://bsky.app/profile/roundsparrow.bsky.social/post/3mcdct4ale22t }
