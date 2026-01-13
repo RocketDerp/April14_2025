@@ -993,3 +993,7 @@ Entertainment for Reddit audiences. More fiction content coming for the fiction 
 https://old.reddit.com/r/politics/comments/1qbrjo6/ice_spending_100_million_on_social_media/nzcnu0s/
 
 Crazy. From media content. https://www.youtube.com/watch?v=09maaUaRT4M&t=743s Please watch: "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL"
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qc02dq/they_disabled_my_first_account_because_of_this/nzeksxt/
+
+Reddit censorship posting. Reddit owners are buddies with the advertiser billionaires, Elon Musk media platform, etc. It is the nonfiction quotes from people like Dr. Bandy X Lee that get driven off the most. Avoidance of serious nonfiction learning. 
