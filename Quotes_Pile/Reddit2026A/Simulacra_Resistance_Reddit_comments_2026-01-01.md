@@ -236,4 +236,6 @@ be much more powerful than he could ever be.”
 
 This means meme images. And Russia started it, with the Internet Research Agency in Saint Pete, March 2013 started to ramp up. And Reddit audience cheered it on /r/The_Donald and more. Nonfiction learning. June 2, 2014: https://www.buzzfeednews.com/article/maxseddon/documents-show-how-russias-troll-army-hit-america
 
-Here is a year 2013 book: https://www.google.com/books/edition/America_s_Failing_Experiment/LHlfAgAAQBAJ?hl=en&gbpv=1&dq=%22Politics+will+eventually+be+replaced+by+imagery.%22&pg=PA28&printsec=frontcover - "America's Failing Experiment. How We the People Have Become the Problem. By Kirby Goidel · 2013"
+<img width="712" height="1000" alt="image" src="https://github.com/user-attachments/assets/b6aeb0fc-1361-4a1e-9b40-23d3de0d18e0" /> Here is a year 2013 book: https://www.google.com/books/edition/America_s_Failing_Experiment/LHlfAgAAQBAJ?hl=en&gbpv=1&dq=%22Politics+will+eventually+be+replaced+by+imagery.%22&pg=PA28&printsec=frontcover - "America's Failing Experiment. How We the People Have Become the Problem. By Kirby Goidel · 2013" ... 232 pages. December 12, 2013
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mccsgbxpj22n https://autistics.life/@RoundSparrow/115888342046862427 }
