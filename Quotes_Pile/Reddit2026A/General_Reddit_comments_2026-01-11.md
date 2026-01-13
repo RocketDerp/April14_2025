@@ -934,3 +934,22 @@ https://old.reddit.com/r/news/comments/1qbvbn5/scott_adams_dilbert_creator_and_c
 
 Alas, USA meme addicts thrive on Twitter as importation for hate and mass dehumanization. The Tech lovers, technology addicts, who cheer on anti-human machine messaging. People will not face up to Marshall McLuhan and Neil Postman's library of printed books and film prints.. from the 1960's, 1970's. 1980's and recognize that MAGA values are television addiction behaviors / Twitter addiction behaviors. Educating and teaching Marshall McLuhan / University of Toronto courses - would drastically wake people up to what has ruined society. Compulsive behaviors, prizing hate at high speeds on Twitter and other media systems.
 
+https://old.reddit.com/r/AskTheWorld/comments/1qbx55g/us_citizens_to_the_world_help/nzdyz85/
+
+Russia infiltrated the NRA first. Gun culture was turned to poison USA and NOT call out Putin.
+
+* "Russian campaign to infiltrate the National Rifle Association (NRA) began in April 2011 when a Russian official first made contact with the NRA's president. The effort was led by Russian politician Alexander Torshin and his assistant Maria Butina." - Google Search summary. 2026-01-13 afternoon USA
+
+https://old.reddit.com/r/AskTheWorld/comments/1qbx55g/us_citizens_to_the_world_help/nzdwb0h/
+
+Attacking "weakness" is the MAGA USA California January 2026 society. Primary emotions encouraged by the tiny-short messaging (commenting) audience... for tech lovers and machine lovers; { hate, dehumanize, block, insult, mock, dominate }.
+
+https://old.reddit.com/r/AskTheWorld/comments/1qbx55g/us_citizens_to_the_world_help/nze0vup/
+
+Twitter mind-fucking is a known issue. Musk himself even claims **Woke Mind Virus**. Richest man in the world is admitting to mass mind programming. https://www.lemonde.fr/en/international/article/2024/08/13/elon-musk-s-ambition-repopulating-the-planet-and-destroying-the-woke-virus_6714239_4.html
+
+https://old.reddit.com/r/AskTheWorld/comments/1qbx55g/us_citizens_to_the_world_help/nzed0kq/
+
+https://old.reddit.com/r/AskTheWorld/comments/1qbx55g/us_citizens_to_the_world_help/nze1q5i/
+
+Reddit audience... minds programmed by billionaire team owners, media content creators of sports FIFA, to LOL and find it all hilarious and entertaining that USA is wrecked by billionaires. Joke, quip, mockery training ground.
