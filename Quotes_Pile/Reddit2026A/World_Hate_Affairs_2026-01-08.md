@@ -611,3 +611,17 @@ Social post { https://autistics.life/@RoundSparrow/115888788147729435 https://bs
 https://old.reddit.com/r/nottheonion/comments/1qbt38g/make_star_trek_real_hegseth_vows_military_ai/nzcznu1/
 
 Planetary hate affairs. Action violence, military leadership, leader of the Department of War. Fox News HDTV nation values, meme entertainment Reddit fandom. Mocking goodness, insulting goodness, prizing hate leadership and entertainment. Science nonfiction ignored.
+
+https://old.reddit.com/r/pics/comments/1qbwtuc/iranian_holocaust_morgue_overflowing_after_12000/nzdtar8/
+
+This is where hate leads. [Avoidance of February 28, 1954 teaching about all hate in all places.](https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Martin_Luther_King_Jr_quotes0.md) - anti-Malala behaviors on media systems. People not standing up and prizing love and understanding. The Quran / Mohammad stories are science fiction.
+
+* “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.” ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. October 8, 2013
+
+https://old.reddit.com/r/pics/comments/1qbwtuc/iranian_holocaust_morgue_overflowing_after_12000/nzdtnmz/
+
+You will be allowed to know it, and told to stay on your meme devices and turn on the latest rectangle sports game with square minded thinking. People are afraid to die for goodness itself if they are programmed to prize armies of medical doctors serving sport ball players in their predictable patterns of rules and planned scheduled performances. The prayer calls of global society, gaming, FIFA. Billionaire owners of teams for audiences.
+
+https://old.reddit.com/r/pics/comments/1qbwtuc/iranian_holocaust_morgue_overflowing_after_12000/nzdunva/
+
+Note this tiny-short Tweet-length thinking patterns. No quotes from book, no author name, no book titles, no URL off-Reddit. Just mocking away at serious learning on the subject of people being addicted to fiction storytelling.
