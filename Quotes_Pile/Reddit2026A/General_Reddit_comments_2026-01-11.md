@@ -997,3 +997,11 @@ Crazy. From media content. https://www.youtube.com/watch?v=09maaUaRT4M&t=743s Pl
 https://old.reddit.com/r/ProgressiveHQ/comments/1qc02dq/they_disabled_my_first_account_because_of_this/nzeksxt/
 
 Reddit censorship posting. Reddit owners are buddies with the advertiser billionaires, Elon Musk media platform, etc. It is the nonfiction quotes from people like Dr. Bandy X Lee that get driven off the most. Avoidance of serious nonfiction learning. 
+
+https://old.reddit.com/r/ICE_Raids/comments/1qc17i1/today_at_34th_and_park_in_minneapolis_a_woman/nzeu180/
+
+Mass dehumanization through organized nonsense. "The woman also says she's an autistic disabled person (1:21)"
+
+https://old.reddit.com/r/ICE_Raids/comments/1qc17i1/today_at_34th_and_park_in_minneapolis_a_woman/nzeyc4w/
+
+They are acting like: mob mentality, bully, street gang. Group thinking. From media content. https://www.youtube.com/watch?v=09maaUaRT4M&t=743s Please watch: "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL"
