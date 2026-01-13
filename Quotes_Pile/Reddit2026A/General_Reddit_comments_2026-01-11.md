@@ -811,3 +811,11 @@ The social media behavior of avoiding nonfiction is a problem. Russian informati
 
 https://old.reddit.com/r/politics/comments/1qbbaxj/us_attacked_boat_with_aircraft_that_looked_like_a/nz9ci8y/
 
+https://old.reddit.com/r/news/comments/1qbcvg1/four_migrants_die_in_us_immigration_custody_over/nz9own2/
+
+Surkov's realized Neil Postman's 1985 book "Amusing Ourselves To Death" entirely independent, it seems. As long as people can { ha ha, LOL, laugh, snark, mock, sarcasm, satire, absurd comedy, surreal comedy, gallows humor } over a situaiton they will just keep going with the flow. What we need is people to scream at the entire world wide web for mental health help and rally behind leader Dr. Bandy X Lee. And, of course, we all need to cram study Neil Postman and Marshall McLuhan to understand how terrible jokes and President Tony Clifton act got us on the path we are on.
+
+https://old.reddit.com/r/news/comments/1qbcvg1/four_migrants_die_in_us_immigration_custody_over/nz9mc61/
+
+https://old.reddit.com/r/news/comments/1qbcvg1/four_migrants_die_in_us_immigration_custody_over/nz9m78d/
+
