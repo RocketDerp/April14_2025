@@ -819,3 +819,14 @@ https://old.reddit.com/r/news/comments/1qbcvg1/four_migrants_die_in_us_immigrati
 
 https://old.reddit.com/r/news/comments/1qbcvg1/four_migrants_die_in_us_immigration_custody_over/nz9m78d/
 
+https://old.reddit.com/r/complaints/comments/1qbanpp/wake_up_theyre_fully_mask_off_now/nz9ld3e/
+
+I get banned from Reddit for standing up against the { deport values, deportation praising, joke-washing of serious topics }. Not that anyone would listen to the urgent need to promote Dr. Bandy X Lee, cram study Neil Postman and Marshall McLuhan. People are far too engaged going after "The Little Guy" in competitive mocking than to actually have any faith in serious education, teaching, learning.
+
+https://old.reddit.com/r/complaints/comments/1qbanpp/wake_up_theyre_fully_mask_off_now/nz9l01z/
+
+https://old.reddit.com/r/complaints/comments/1qbanpp/wake_up_theyre_fully_mask_off_now/nz9vm8m/
+
+https://old.reddit.com/r/complaints/comments/1qbanpp/wake_up_theyre_fully_mask_off_now/nz9p9nt/
+
+Fact-checking and verifying that it isn't just more Tony Clifton acts and performances. But regardless, people need to address the Fox News HDTV addiction in our everyday people. 
