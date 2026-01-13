@@ -38,12 +38,20 @@ args = {}
 
 
 def live_fetch_error(res, call_spot):
+    exitcode = 0
+    
     if res.status_code == 429:
         print(f"detected http 429 error, immediate app exit. Call identifier {call_spot}")
-        sys.exit(3)
+        exitcode = 3
     if 500 <= res.status_code <= 599:
         print(f"detected http 5xx error, immediate app exit. Call identifier {call_spot}")
-        sys.exit(4)
+        exitcode = 4
+
+    if exitcode > 0:
+        print(f"HTTP Status: {res.status_code} {res.reason}")
+        print(f"Response Time: {response.elapsed.total_seconds()}s")
+        sys.exit(exitcode)
+
 
 
 def pause_with_quit(total_seconds):
