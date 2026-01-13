@@ -200,3 +200,11 @@ High-speed junk information will quickly wipe that from the hive minds (mindsets
 &nbsp;
 
 https://www.theguardian.com/us-news/2026/jan/11/rsv-vaccines-trump-kennedy
+
+&nbsp;
+
+Tuesday January 13, 2026 Reddit front page   
+
+https://old.reddit.com/r/science/comments/1qboimo/physicians_see_1_in_6_patients_as_difficult_study/
+
+Howard Bloom used this as an example (medical staff disliking people) in his August 2000 book, Y2K book. Mass Mind / Global brain behaviors.
