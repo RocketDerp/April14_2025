@@ -930,3 +930,7 @@ Important and serious claims being made. Observe the lack of off-Reddit URL, lac
 
 https://old.reddit.com/r/minnesota/comments/1qbt8v8/fear_not_great_people_of_minnesota_the_day_of/nzczq7k/
 
+https://old.reddit.com/r/news/comments/1qbvbn5/scott_adams_dilbert_creator_and_conservative/nzdjbp3/
+
+Alas, USA meme addicts thrive on Twitter as importation for hate and mass dehumanization. The Tech lovers, technology addicts, who cheer on anti-human machine messaging. People will not face up to Marshall McLuhan and Neil Postman's library of printed books and film prints.. from the 1960's, 1970's. 1980's and recognize that MAGA values are television addiction behaviors / Twitter addiction behaviors. Educating and teaching Marshall McLuhan / University of Toronto courses - would drastically wake people up to what has ruined society. Compulsive behaviors, prizing hate at high speeds on Twitter and other media systems.
+
