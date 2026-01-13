@@ -830,3 +830,12 @@ https://old.reddit.com/r/complaints/comments/1qbanpp/wake_up_theyre_fully_mask_o
 https://old.reddit.com/r/complaints/comments/1qbanpp/wake_up_theyre_fully_mask_off_now/nz9p9nt/
 
 Fact-checking and verifying that it isn't just more Tony Clifton acts and performances. But regardless, people need to address the Fox News HDTV addiction in our everyday people. 
+
+https://old.reddit.com/r/nottheonion/comments/1qbahui/epa_no_longer_considering_lives_saved_in/nz98etz/
+
+The first thing advanced was high-speed meme delivery systems. So people no longer care about painful humanism and can tune it out. Live in a filter-bubble.
+
+https://old.reddit.com/r/nottheonion/comments/1qbahui/epa_no_longer_considering_lives_saved_in/nz9eszi/
+
+Yes. Anti-human, anti-goodness.
+
