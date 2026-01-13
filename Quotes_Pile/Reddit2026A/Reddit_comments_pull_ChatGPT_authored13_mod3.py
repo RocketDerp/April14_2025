@@ -34,6 +34,7 @@ fetchRedditCountA = 0
 error_fetch_count = 0
 replies_users_fetch = 0
 replies_users_max = 9
+age18_count = 0
 args = {}
 
 
@@ -272,6 +273,7 @@ def walk_comment_tree(comment_div, level=0):
 def fetch_comment_data(url, idx=None, args=None):
     global fetchRedditCountA
     global replies_users_fetch
+    global age18_count
 
     # params
     # save_html_folder=None, check_saved_first=True
@@ -339,6 +341,10 @@ def fetch_comment_data(url, idx=None, args=None):
     comment_div = soup.find("div", attrs={"data-fullname": f"t1_{comment_id}"})
                     
     if not comment_div:
+        age18_content = soup.find('button', attrs={'name': 'over18'})
+        if age18_content:
+            print("age 18 content detected")
+            age18_count += 1
         raise ValueError(f"Could not find comment div with id t1_{comment_id} on page {url}")
 
     print(f"processing comment {comment_id}")
@@ -603,6 +609,7 @@ def fetch_user_info_full(username):
 def main():
     global args
     global error_fetch_count
+    global age18_count
     
     parser = argparse.ArgumentParser(description="Parse Reddit comments from markdown list.")
     parser.add_argument("--file", required=True, help="Input markdown file containing Reddit comment URLs.")
@@ -715,6 +722,10 @@ def main():
         if fetchRedditCountA > 0:
             print(f"Live fetch to Reddit count: {fetchRedditCountA}")
             summaryfile.write(f"Live fetch to Reddit count: {fetchRedditCountA}\n")
+
+        if age18_count > 0:
+            print(f"Could not parse, age 18 required: {age18_count}")
+            summaryfile.write(f"Could not parse, age 18 required: {age18_count}\n")
 
 
 if __name__ == "__main__":
