@@ -544,3 +544,4 @@ https://old.reddit.com/r/worldnews/comments/1qb0xn5/greenland_says_it_cannot_acc
 
 Short-message Twitter-think. No off-Reddit URL, no author name, no book quote, no book title. Just acting like it's no serious problem that needs serious intellectual discussion.
 
+https://old.reddit.com/r/politics/comments/1qbcczo/us_accuses_russia_of_dangerous_and_inexplicable/nz9jfnf/
