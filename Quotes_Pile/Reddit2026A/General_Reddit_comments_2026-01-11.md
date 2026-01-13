@@ -858,3 +858,15 @@ https://old.reddit.com/r/Music/comments/1qbfpba/tom_morello_calls_out_trump_admi
 https://old.reddit.com/r/Music/comments/1qbfpba/tom_morello_calls_out_trump_administration_for/nzaj6za/
 
 Social media users have media addiction problems, meme addicts. Unable to quote and direct people to Dr. Bandy X Lee or other serious nonfiction learning. 
+
+https://old.reddit.com/r/Music/comments/1qbfpba/tom_morello_calls_out_trump_administration_for/nzae08a/
+
+https://old.reddit.com/r/Music/comments/1qbfpba/tom_morello_calls_out_trump_administration_for/nzakt4n/
+
+https://old.reddit.com/r/GreatBritishMemes/comments/1qbmh23/come_for_one_of_us_come_for_all_of_us/nzbn84v/
+
+https://old.reddit.com/r/GreatBritishMemes/comments/1qbmh23/come_for_one_of_us_come_for_all_of_us/nzbtbzf/
+
+What people do not recognize, celebrate ignorance, is that he is not  a toddler. People do not recognize the power of media at the level of Marshall McLuhan's teaching. Media addicts on Reddit do not recognize they flock to the tune of Musk (ISP global influence and social engineering of Reddit audience). People prize and reward terrible male behaviors. ADULT media systems, ADULT education of Rush Limbaugh, Radio Mullah, Fox News HDTV (Rupert Murdoch media empire). And how easily it is to get people to steer it toward child topics instead of adult commenting topics of Reddit.
+
+Note the lack of book quotes, author names, URL off-Reddit, book titles. Reddit is a for-profit corporation too. People prize junk information that billionaires trickle down. This is everything New York University professor, Manhattan, Neil Postman described as a warning in his year 1985 book. Time Magazine tried to revive it last year, but audiences of Reddit won't face the meme decoration addictions that billionaires have created. September 10, 2025 https://Time.com/7313999/neil-postman-trump-prediction/
