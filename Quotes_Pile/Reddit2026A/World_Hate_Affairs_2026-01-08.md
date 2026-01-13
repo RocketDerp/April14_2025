@@ -601,3 +601,9 @@ Entertainment addicts. Instead of asserting mental health workers to rescue peop
 https://old.reddit.com/r/worldnews/comments/1qbtvcq/trump_cancel_meetings_with_iranian_officials_and/nzd7olb/
 
 Satire-washing Trump, sarcasm-wrapping Trump as entertainment. President Tony Clifton fandom behaviors. Antics and mocking is being followed by mockery-prizing audience.
+
+https://old.reddit.com/r/worldnews/comments/1qbtvcq/trump_cancel_meetings_with_iranian_officials_and/nzd5rre/
+
+Notice what is absent from the list: Mental health workers. Malala. This is anti-Malala messaging. Instead of addressing the Islamic Muslim mindset crisis of terrorism and hate-prizing with mental heath... wanting to bomb and prevent immigration, etc. Turn a whole nation into a prison like Palestine. When did social media actually use information systems, cloud computing, to teach mental health of an entire society being sick... actual education and teaching: https://www.youtube.com/watch?v=09maaUaRT4M&t=743s Please watch: "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL"
+
+Social post { https://autistics.life/@RoundSparrow/115888788147729435 https://bsky.app/profile/roundsparrow.bsky.social/post/3mccysszdds2n }
