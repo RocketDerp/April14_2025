@@ -698,12 +698,12 @@ def main():
         summaryfile.write(f"    end {endtime_iso_with_ms}\n")
 
         if errorCountA + errorCountB + error_fetch_count > 0:
-            print(f"\nERRORS encountered! Final error counts, A: {errorCountA} B: {errorCountB}")
-            summaryfile.write(f"\nERRORS encountered! Final error counts, A: {errorCountA} B: {errorCountB}\n")
+            print(f"\nERRORS encountered! Final error counts, A: {errorCountA} B: {errorCountB} error_fetch_count: {error_fetch_count}")
+            summaryfile.write(f"\nERRORS encountered! Final error counts, A: {errorCountA} B: {errorCountB} error_fetch_count: {error_fetch_count}\n")
 
-        if fetchRedditCountA + error_fetch_count > 0:
-            print(f"Live fetch to Reddit count: {fetchRedditCountA} error_fetch_count: {error_fetch_count}")
-            summaryfile.write(f"Live fetch to Reddit count: {fetchRedditCountA} error_fetch_count {error_fetch_count}\n")
+        if fetchRedditCountA > 0:
+            print(f"Live fetch to Reddit count: {fetchRedditCountA}")
+            summaryfile.write(f"Live fetch to Reddit count: {fetchRedditCountA}\n")
 
 
 if __name__ == "__main__":
