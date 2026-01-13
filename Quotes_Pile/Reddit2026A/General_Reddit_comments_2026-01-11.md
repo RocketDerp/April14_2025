@@ -919,3 +919,14 @@ Punching down on poor people. Rich people can get cosmetic surgery. But punch do
 ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. October 8, 2013
 
 Ren and Stimpy Show... encoded childhood hate poor people programming recognized in the Reddit audience mindsets. Worship the rich and powerful and those who can hire artists to entertain meme audiences.
+
+https://old.reddit.com/r/minnesota/comments/1qbt8v8/fear_not_great_people_of_minnesota_the_day_of/nzd40v8/
+
+Reddit users... [eating the Surkovian Onions](../Reddit2025A/Surkovian_Onion_Eating.md). People entirely unable to turn to nonfiction and learn what Trump is following.. Putin / Russia / Surkov students.
+
+https://old.reddit.com/r/minnesota/comments/1qbt8v8/fear_not_great_people_of_minnesota_the_day_of/nzd0rxh/
+
+Important and serious claims being made. Observe the lack of off-Reddit URL, lack of book titles, like of author names, lake of quotes from books. Conditioned audience to prize commenting at high speeds above all else. Avoiding discussing speed of the media, TCP/IP networking speed, as the very power that Trump leads the nation with. Avoidance of nonfiction printed books on paper.
+
+https://old.reddit.com/r/minnesota/comments/1qbt8v8/fear_not_great_people_of_minnesota_the_day_of/nzczq7k/
+
