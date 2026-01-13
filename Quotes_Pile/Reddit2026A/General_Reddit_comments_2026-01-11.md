@@ -953,3 +953,8 @@ https://old.reddit.com/r/AskTheWorld/comments/1qbx55g/us_citizens_to_the_world_h
 https://old.reddit.com/r/AskTheWorld/comments/1qbx55g/us_citizens_to_the_world_help/nze1q5i/
 
 Reddit audience... minds programmed by billionaire team owners, media content creators of sports FIFA, to LOL and find it all hilarious and entertaining that USA is wrecked by billionaires. Joke, quip, mockery training ground.
+
+https://old.reddit.com/r/law/comments/1qbxj8j/youve_heard_about_who_ice_is_recruiting_the_truth/nze23v6/
+
+https://old.reddit.com/r/law/comments/1qbxj8j/youve_heard_about_who_ice_is_recruiting_the_truth/nze46b1/
+
