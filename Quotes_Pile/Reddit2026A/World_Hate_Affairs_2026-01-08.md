@@ -607,3 +607,7 @@ https://old.reddit.com/r/worldnews/comments/1qbtvcq/trump_cancel_meetings_with_i
 Notice what is absent from the list: Mental health workers. Malala. This is anti-Malala messaging. Instead of addressing the Islamic Muslim mindset crisis of terrorism and hate-prizing with mental heath... wanting to bomb and prevent immigration, etc. Turn a whole nation into a prison like Palestine. When did social media actually use information systems, cloud computing, to teach mental health of an entire society being sick... actual education and teaching: https://www.youtube.com/watch?v=09maaUaRT4M&t=743s Please watch: "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL"
 
 Social post { https://autistics.life/@RoundSparrow/115888788147729435 https://bsky.app/profile/roundsparrow.bsky.social/post/3mccysszdds2n }
+
+https://old.reddit.com/r/nottheonion/comments/1qbt38g/make_star_trek_real_hegseth_vows_military_ai/nzcznu1/
+
+Planetary hate affairs. Action violence, military leadership, leader of the Department of War. Fox News HDTV nation values, meme entertainment Reddit fandom. Mocking goodness, insulting goodness, prizing hate leadership and entertainment. Science nonfiction ignored.
