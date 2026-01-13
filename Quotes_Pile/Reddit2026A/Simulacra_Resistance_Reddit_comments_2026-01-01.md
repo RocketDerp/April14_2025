@@ -270,3 +270,6 @@ https://old.reddit.com/r/SipsTea/comments/1qbuwms/cornered_for_real/nzdhcs9/
 
 This is not resisting at all. This is cheering on the sex lives, private jet Epstein behaviors, of world leaders. This is addicts to images of world leaders and their hot wives. Talking about couch sex day in day out. This isn't resisting, this is video gaming mentality, sports gaming fandom thinking, sports mentality that women are booty to show / parade, and trade for powerful men. Reddit audiences line up and flock to these Trickle Down images and storytelling of sexual conquests by powerful men.
 
+https://old.reddit.com/r/clevercomebacks/comments/1qbtm3n/this_is_all_a_distraction_by_trump_from_the/nzd317z/
+
+Top-most upvoted comment on front-page Reddit posting. How hilarious and amusing, laughing away. That's what Surkov students exploit in the Reddit audience. Blowing minds with surreal / absurd comedy. President Tony Clifton performances. Thinking it is accidental that the Kremlin and White House use media this way. Reddit users... [eating the Surkovian Onions](../Reddit2025A/Surkovian_Onion_Eating.md). People entirely unable to turn to nonfiction and learn what Trump is following.. Putin / Russia / Surkov students.
