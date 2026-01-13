@@ -247,3 +247,13 @@ Stand up to the problem sincerely with nonfiction and citations... 1 single revi
 <img width="1718" height="612" alt="image" src="https://github.com/user-attachments/assets/6dc0a275-ab59-44ef-b823-13822aa136da" />
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mccsgbxpj22n https://autistics.life/@RoundSparrow/115888342046862427 }
+
+https://old.reddit.com/r/CuratedTumblr/comments/1qbq3ik/the_time_before/nzctz72/
+
+<img width="1221" height="462" alt="image" src="https://github.com/user-attachments/assets/9e1585d9-99fa-48e2-81ba-b3ec32a798b5" /> We The People, since year 2013... have been programmed by Cambridge Analytica, in an organized plot to break the USA.
+
+* "Cambridge Analytica was founded in 2013. But the company's ability to microtarget traces back to a 2010 Facebook rollout of open graph" https://bipartisanpolicy.org/article/cambridge-analytica-controversy/
+
+* “We like to think of ourselves as immune from influence or our cognitive biases, because we want to feel like we are in control, but industries like alcohol, tobacco, fast food, and gaming all know we are creatures that are subject to **cognitive and emotional vulnerabilities. And tech has caught on to this with its research into “user experience,” “gamification,” “growth hacking,” and “engagement” by activating ludic loops and reinforcement schedules in the same way slot machines do**. So far, this gamification has been contained to social media and digital platforms, but what will happen as we further integrate our lives with networked information architectures designed to **exploit evolutionary flaws in our cognition**? Do we really want to live in a “gamified” environment that engineers our obsessions and plays with our lives as if we are inside its game?” ― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the Plot to Break America, chapter 12 "Revelations", page 235, year 2019
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mccue64kcs2n https://autistics.life/@RoundSparrow/115888475805278100j }
