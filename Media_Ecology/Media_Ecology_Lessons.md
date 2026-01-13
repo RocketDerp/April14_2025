@@ -1626,5 +1626,5 @@ https://old.reddit.com/r/europe/comments/1q4oq2w/after_decades_of_teaching_media
 # junk marketing
 
 Stop Buying Magic Spoon     
-https://www.youtube.com/watch?v=j_eAYGI80HY
+https://www.youtube.com/watch?v=j_eAYGI80HY     
 91,416 views December 27, 2025    
