@@ -224,3 +224,16 @@ https://old.reddit.com/r/agedlikemilk/comments/1qbpdjc/wow_hows_that_peace_treat
 
 Front-page of Reddit. Simulation of "resisting". Eating the shit fed by billionaire media empires to call it funny. A laugh-track message for Reddit audiences to find it entertaining and amusing that they are being manipulated. Comedy-wrapping, Comedy-washing, sane-washing via humor mind-blowing. Meme addicts eating out of the hands of the meme providers. This isn't resisting, this is cheering on how "dumb" the others are when democracy does not work when everyone just calls others dumb and ignores seriously deep education from Marshall McLuhan since the 1950's. 
 
+https://old.reddit.com/r/CuratedTumblr/comments/1qbq3ik/the_time_before/nzccg9q/
+
+April 13, 2015 social posting. Dust off:
+
+* “Politics will eventually be replaced by imagery.
+The politician will be only too happy to abdicate
+in favor of his image, because the image will
+be much more powerful than he could ever be.”
+― Marshall McLuhan. Repeated March 27, 2012 https://McluhanGalaxy.wordpress.com/2012/03/27/marshall-mcluhan-on-politician-image-projection/
+
+This means meme images. And Russia started it, with the Internet Research Agency in Saint Pete, March 2013 started to ramp up. And Reddit audience cheered it on /r/The_Donald and more. Nonfiction learning. June 2, 2014: https://www.buzzfeednews.com/article/maxseddon/documents-show-how-russias-troll-army-hit-america
+
+Here is a year 2013 book: https://www.google.com/books/edition/America_s_Failing_Experiment/LHlfAgAAQBAJ?hl=en&gbpv=1&dq=%22Politics+will+eventually+be+replaced+by+imagery.%22&pg=PA28&printsec=frontcover - "America's Failing Experiment. How We the People Have Become the Problem. By Kirby Goidel · 2013"
