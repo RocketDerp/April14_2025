@@ -906,3 +906,16 @@ The war is on Reddit and other media venues. But media addicts don't want to edu
 https://old.reddit.com/r/LateStageCapitalism/comments/1qbncjy/so_ice_just_declared_war_on_blue_states_right/nzbwoxh/
 
 Reddit long-form (not Bluesky or Twitter) commenting with off-Reddit link!
+
+https://old.reddit.com/r/LateStageCapitalism/comments/1qbncjy/so_ice_just_declared_war_on_blue_states_right/nzd1p6l/
+
+Billionaires run Reddit, Elon Musk is one of Reddit's main influencers. Words like "Left" and "Liberal" are defined by the richest people in the world. And Reddit Twitter-length commenting does not offer any URL off-Reddit or book quotes, just whatever wildcard meaning of the thousands of definitions pushed by the billionaires to pollute minds with misunderstandings. Gate-keeping instead of defining. Anything to avoid getting on the same pages of progress and goodness. Tower of Babel conflicts prized, society-wide.
+
+https://old.reddit.com/r/pics/comments/1qbr0v5/unhinged/nzck7v9/
+
+Punching down on poor people. Rich people can get cosmetic surgery. But punch down with powerful media images, animation techniques, to dehumanize poor people / people without health care / etc. Anything but face up that the problem is Fox News HDTV fiction taken as nonfiction. The problem is Bible fiction storytelling for 1,900 years taken as non-fiction. Quran fiction since year 850 taken as non-fiction. 
+
+* “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.”
+― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. October 8, 2013
+
+Ren and Stimpy Show... encoded childhood hate poor people programming recognized in the Reddit audience mindsets. Worship the rich and powerful and those who can hire artists to entertain meme audiences.
