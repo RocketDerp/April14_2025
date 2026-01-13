@@ -215,3 +215,12 @@ https://old.reddit.com/r/MurderedByWords/comments/1qbofub/its_always_the_ones_wh
 Because this is what appeals to Reddit audiences. Simulation of resistance. A cartoon image, a X / Twitter screen shot. A low-effort mockery back and fort, feedback looping of mock for mock. A game loop. Gamers, sports gaming in rectangle predictable images on a screen, screen gaming, video gaming. Chidlren raised since 1979 with Atari systems, Nintendo, Playstation from Sony. Everything is simulation and cartoon images and logic prized above all else. Simple-think, Twitter is the richest man in the entire world feeding insincere content to Reddit audience. Fiction outselling nonfiction.
 
 The branding of this as "MURDER!!!!! By WORDS!!!!" is the very falsehoods and lies Reddit audiences flock to. Elon Musk Twitter, Truth Social (fiction content), Fox News, memes and junk information is what people seek out to give low-effort commenting. The population using free time, spare time, spent **avoiding progressive use of information systems** repeating and asserting: { Jen Senko, Marshall McLuhan, Neil Postman, Dr. Bandy X Lee, Peter Pomerantsev, Bill Moyers }. This is the top of the commenting page, the most prized comment! Low-effort Tweet-length anti-learning. Marshall McLuhan understanding is lost in memeland society. This is Trump's extreme power, to make people prize low bar of measure, television and meme entertainment above all else in leadership systems.
+
+https://old.reddit.com/r/therewasanattempt/comments/1qbpw43/to_get_what_they_for_some_insane_reason_paid_for/nzcau61/
+
+Mocking people as "nuts", exactly what Trump does. Insulting, name-calling, dismissing the problem. Instead of promoting and quoting nonfiction learning from Dr. Bandy X Lee, this is the top-prized low-effort mocking the out-group conditioned popularity.
+
+https://old.reddit.com/r/agedlikemilk/comments/1qbpdjc/wow_hows_that_peace_treating_us/nzc6oac/
+
+Front-page of Reddit. Simulation of "resisting". Eating the shit fed by billionaire media empires to call it funny. A laugh-track message for Reddit audiences to find it entertaining and amusing that they are being manipulated. Comedy-wrapping, Comedy-washing, sane-washing via humor mind-blowing. Meme addicts eating out of the hands of the meme providers. This isn't resisting, this is cheering on how "dumb" the others are when democracy does not work when everyone just calls others dumb and ignores seriously deep education from Marshall McLuhan since the 1950's. 
+
