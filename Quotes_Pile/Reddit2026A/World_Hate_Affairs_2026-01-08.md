@@ -587,3 +587,17 @@ https://old.reddit.com/r/AskTheWorld/comments/1qblo6l/any_of_you_feel_like_this_
 https://old.reddit.com/r/AskTheWorld/comments/1qblo6l/any_of_you_feel_like_this_or_just_me/nzbhif7/
 
 https://old.reddit.com/r/LateStageCapitalism/comments/1qbncjy/so_ice_just_declared_war_on_blue_states_right/nzcea7x/
+
+https://old.reddit.com/r/worldnews/comments/1qbtvcq/trump_cancel_meetings_with_iranian_officials_and/nzd474f/
+
+Reddit audiences feeding their high-speed information systems addictions. Trump provides constant stimulation and simplistic *I can save the world, and only Trump can* messaging that Reddit audiences consume and prize. Racing to be the top-upvoted comment (currently this linked comment is the most popular in the toxic popularity of Donald. J. Trump society January 2026). Media addict Trump is going to fight his Truth Social fiction against Quran fiction storytelling empire of Iran. Fiction vs. fiction. Monomyth vs. monomyth. Audiences cheer this on and will not call for Dr. Bandy X Lee and other nonfiction leaders to get us out of this disaster.
+
+Iran... Middle East toxic clergy systems. OPERA_A "Red, white, and blue, gaze in your looking glass... You're not a child anymore Red, white, and blue, the future is all but past... So lift up your heart, make a new start and lead us away from here!" https://www.youtube.com/watch?v=CkkQPxoxJJY 8,896,642 views July 29, 2018
+
+https://old.reddit.com/r/worldnews/comments/1qbtvcq/trump_cancel_meetings_with_iranian_officials_and/nzd4p86/
+
+Entertainment addicts. Instead of asserting mental health workers to rescue people from hate... monitoring meme subreddits.
+
+https://old.reddit.com/r/worldnews/comments/1qbtvcq/trump_cancel_meetings_with_iranian_officials_and/nzd7olb/
+
+Satire-washing Trump, sarcasm-wrapping Trump as entertainment. President Tony Clifton fandom behaviors. Antics and mocking is being followed by mockery-prizing audience.
