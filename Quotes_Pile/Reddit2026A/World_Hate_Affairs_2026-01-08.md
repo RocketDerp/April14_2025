@@ -585,3 +585,5 @@ Left vs. right one-bit logic sports-mentality brainrot. USA Founding Fathers ver
 https://old.reddit.com/r/AskTheWorld/comments/1qblo6l/any_of_you_feel_like_this_or_just_me/nzbi9wv/
 
 https://old.reddit.com/r/AskTheWorld/comments/1qblo6l/any_of_you_feel_like_this_or_just_me/nzbhif7/
+
+https://old.reddit.com/r/LateStageCapitalism/comments/1qbncjy/so_ice_just_declared_war_on_blue_states_right/nzcea7x/
