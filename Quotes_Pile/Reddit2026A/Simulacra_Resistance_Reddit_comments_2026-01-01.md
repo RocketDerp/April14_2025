@@ -287,3 +287,9 @@ Reddit audience is unable to match this behavior up to factual real-world psycho
 * "There is no question but that Hitler belongs in the category of the truly mystic medicine man. As somebody commented about him at the last Nürnberg party congress, since the time of Mohammed nothing like it has been seen in this world. His body does not suggest strength. The outstanding characteristic of his physiognomy is its dreamy look. I was especially struck by that when I saw pictures taken of him in the Czechoslovakian crisis; there was in his eyes the look of a seer. This markedly mystic characteristic of Hitler's is what makes him do things which seem to us illogical, inexplicable, and unreasonable. ... So you see, Hitler is a medicine man, a spiritual vessel, a demi-deity or, even better, a myth." - Doctor Carl G Jung. During an interview with H. R. Knickerbocker, first published in Hearst's International Cosmopolitan (**January 1939**), in which Jung was asked to diagnose Adolf Hitler, Benito Mussolini, and Joseph Stalin
 
 Social post { https://autistics.life/@RoundSparrow/115889831581407327 https://midwest.social/post/41792982 https://bsky.app/profile/roundsparrow.bsky.social/post/3mcdhj5or3k2t }
+
+https://old.reddit.com/r/worldnews/comments/1qbzf6q/us_official_says_greenland_action_could_come/nzeboxu/
+
+ANSWER: because people are not taking seriously the teachings of Marshall McLuhan from 1950 to 1980. People will not read and study Neil Postman, New York University! People are in denial that Trump is first and foremost a media icon, a symbol of media content, and people blow their minds out on media messages! Fox News HDTV audience crisis, the purchase of Twitter media by Elon Musk, Facebook alternate realities, etc. Since March 2013, Russia has been waging an information war against NATO and USA!
+
+
