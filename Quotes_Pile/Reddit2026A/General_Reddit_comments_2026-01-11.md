@@ -958,3 +958,21 @@ https://old.reddit.com/r/law/comments/1qbxj8j/youve_heard_about_who_ice_is_recru
 
 https://old.reddit.com/r/law/comments/1qbxj8j/youve_heard_about_who_ice_is_recruiting_the_truth/nze46b1/
 
+https://old.reddit.com/r/politics/comments/1qbsqkc/donald_trump_has_crossed_line_of_impeachable/nzcxiws/
+
+But people will not focus sustained attention on serious and important topics. Social media did not shut down and call for world wide support when Trump was impeached the first two times. Trump's power is media popularity and media addicts will not face up that Trump himself is a leader of media addiction. Books from Marshall McLuhan and Neil Postman should be quoted, repeated, making the best-selling lists. 1950's and 1960's media ecology explains EVERYTHING that age 79 Trump grasps that people do not grasp. Trump was 20 years old when March 1967 Marshall McLuhan package came out: https://www.themediumisthemassage.com/the-book/
+
+https://old.reddit.com/r/politics/comments/1qbsqkc/donald_trump_has_crossed_line_of_impeachable/nzcvrtl/
+
+Stop sports game entertainment, gaming entertainment, video games, halt all non-essential uses of social media except to ask the entire World Wide Web to rally around intelligent and articulate Dr. Bandy X Lee. Stand for authentic goodness and the crisis of mental health from Fox News HDTV and Truth Social memeland.
+
+https://old.reddit.com/r/politics/comments/1qbsqkc/donald_trump_has_crossed_line_of_impeachable/nzcxcle/
+
+Me sages of how Trump is super-strong and will always and forever be stronger than We The People. Extreme tiny-short length Twitter-length Bluesky-length thinking patterns to complex progress and goodness efforts. 
+
+https://old.reddit.com/r/politics/comments/1qbsqkc/donald_trump_has_crossed_line_of_impeachable/nzcz4iv/
+
+Sleep messages. Give up, don't rise up messages, go to bed messages. Anti-intellectual, anti-goodness, trying to say We The People should never use our power to criticize and get on the same page of important matters.
+
+
+
