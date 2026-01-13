@@ -654,3 +654,31 @@ Yes. Prizing love and compassion teachings instead of out-group hate education a
 https://old.reddit.com/r/pics/comments/1qbxgm5/iranian_holocaust_the_last_embrace_of_a_mother_in/nze5ly4/
 
 Actually Surkov says WW5. War of All against All. See my posting: https://old.reddit.com/r/WarAll/comments/1msqs1t/war_of_all_against_all_since_march_2013_war/ - denial abounds that Putin has been seeding deep mind-fuck to self-harm.
+
+https://old.reddit.com/r/worldnews/comments/1qbzf6q/us_official_says_greenland_action_could_come/nzecy94/
+
+https://old.reddit.com/r/worldnews/comments/1qbzf6q/us_official_says_greenland_action_could_come/nzen04y/
+
+https://old.reddit.com/r/worldnews/comments/1qbzf6q/us_official_says_greenland_action_could_come/nzejqbe/
+
+Meme addicts can't imagine shutting down the number one source of stimulation and joke. Donald Trump. To remove Trump would remove so much media content off /r/All of Reddit!
+
+https://old.reddit.com/r/worldnews/comments/1qbzf6q/us_official_says_greenland_action_could_come/nzeebjh/
+
+Won the Hearts and Minds of USA to prize mocking and prize antics above all else.
+
+https://old.reddit.com/r/worldnews/comments/1qbzf6q/us_official_says_greenland_action_could_come/nzedp0a/
+
+* “The phenomenon we have witnessed in Germany was nothing less than outbreak of epidemic insanity...  No one knew what was happening to him, least of all of the Germans, who allowed themselves to be driven to the slaughterhouse by their leading psychopaths like hypnotized sheep.”  - [Dr. Carl Jung, After the Catastrophe, 1945](../Doctors/Carl_Jung.md)
+
+https://old.reddit.com/r/worldnews/comments/1qbzf6q/us_official_says_greenland_action_could_come/nzembpw/
+
+USA population is glued to their intimate touch devices, react-commenting on every available media platform. A society lead by a Fox News media addict feeding QAnon and Putin ideas to audiences. Reddit audience inclusive.
+
+https://old.reddit.com/r/worldnews/comments/1qbzf6q/us_official_says_greenland_action_could_come/nzelwyu/
+
+Anti-goodness prized. Already the attitude on social media, to prize junk, abandon nonfiction science.
+
+https://old.reddit.com/r/worldnews/comments/1qbzf6q/us_official_says_greenland_action_could_come/nzevji4/
+
+Stress lords, rule by stress.
