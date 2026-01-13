@@ -279,3 +279,11 @@ Social post { https://autistics.life/@RoundSparrow/115889496048877338 https://bs
 https://old.reddit.com/r/IThinkYouShouldLeave/comments/1qbxg45/i_built_the_whole_back_guillotine_at_aqua/nze9stz/
 
 Using comedy television show to meme-wrap MAGA and Trump as impossible to defeat. Abandon impeachment efforts, use social media to promote for-profit television entertainment! ANYTHING and EVERYTHING on Reddit to avoid asserting Dr. Bandy X Lee and her nonfiction serious books about the problems. Just meme away and don't stand up for serious intelligent people who write important books on the crisis!
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qbzjxr/he_justgot_up_in_the_middle_of_a_press_conference/nzeelon/
+
+Reddit audience is unable to match this behavior up to factual real-world psychology doctors. Trump provides entertainment for meme audiences. Addictions to trash media run USA society. 
+
+* "There is no question but that Hitler belongs in the category of the truly mystic medicine man. As somebody commented about him at the last Nürnberg party congress, since the time of Mohammed nothing like it has been seen in this world. His body does not suggest strength. The outstanding characteristic of his physiognomy is its dreamy look. I was especially struck by that when I saw pictures taken of him in the Czechoslovakian crisis; there was in his eyes the look of a seer. This markedly mystic characteristic of Hitler's is what makes him do things which seem to us illogical, inexplicable, and unreasonable. ... So you see, Hitler is a medicine man, a spiritual vessel, a demi-deity or, even better, a myth." - Doctor Carl G Jung. During an interview with H. R. Knickerbocker, first published in Hearst's International Cosmopolitan (**January 1939**), in which Jung was asked to diagnose Adolf Hitler, Benito Mussolini, and Joseph Stalin
+
+Social post { https://autistics.life/@RoundSparrow/115889831581407327 https://midwest.social/post/41792982 https://bsky.app/profile/roundsparrow.bsky.social/post/3mcdhj5or3k2t }
