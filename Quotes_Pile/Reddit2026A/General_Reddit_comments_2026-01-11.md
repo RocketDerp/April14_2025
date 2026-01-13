@@ -974,5 +974,22 @@ https://old.reddit.com/r/politics/comments/1qbsqkc/donald_trump_has_crossed_line
 
 Sleep messages. Give up, don't rise up messages, go to bed messages. Anti-intellectual, anti-goodness, trying to say We The People should never use our power to criticize and get on the same page of important matters.
 
+https://old.reddit.com/r/politics/comments/1qbmtz1/australias_us_ambassador_resigns_after_calling/nzbqbzy/
 
+top-most upvoted comment on Reddit. Audiences on Reddit think the most important thing to do is LOL LOL amuse at an global idiot all day. Entirely engaged in Trump content, sucking down Trump images, entirely wrecking the nation with media addiction. Trump leads a nation of people who prize making a joke of USA world leadership. Marshall McLuhan of University of Toronto describes what Trump grasps that Reddit audiences do not grasp.
 
+https://old.reddit.com/r/politics/comments/1qbmtz1/australias_us_ambassador_resigns_after_calling/nzbro2i/
+
+Yes. It is a bright obvious signal that people seek. People are attracted to bright shining leadership that Trump provides. That is the problem. His audience, Reddit commenting audience!!! Trump attracts followings! An influencer!
+
+https://old.reddit.com/r/politics/comments/1qbrjo6/ice_spending_100_million_on_social_media/nzcmnnr/
+
+As programmed by social media that billionaires own and influence, repeating MAGA talking points. It isn't funny, and it never was funny. It is sick, sickened society by Trump parroting.
+
+https://old.reddit.com/r/politics/comments/1qbrjo6/ice_spending_100_million_on_social_media/nzcmacz/
+
+Entertainment for Reddit audiences. More fiction content coming for the fiction addictions.
+
+https://old.reddit.com/r/politics/comments/1qbrjo6/ice_spending_100_million_on_social_media/nzcnu0s/
+
+Crazy. From media content. https://www.youtube.com/watch?v=09maaUaRT4M&t=743s Please watch: "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL"
