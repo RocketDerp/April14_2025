@@ -839,3 +839,22 @@ https://old.reddit.com/r/nottheonion/comments/1qbahui/epa_no_longer_considering_
 
 Yes. Anti-human, anti-goodness.
 
+https://old.reddit.com/r/Music/comments/1qbfpba/tom_morello_calls_out_trump_administration_for/nzagaxl/
+
+https://old.reddit.com/r/Music/comments/1qbfpba/tom_morello_calls_out_trump_administration_for/nzacu9e/
+
+So many Reddit meme addicts can't see that corporate America and Trump have realized entertainment and memes outsell nonfiction serious discourse. President Tony Clifton wins engagement. Hate of Trump is deep emotional engagement. People learned nothing from September 11, 2011 terrorism on groups and cults, mob mentality, team sports mentality.
+
+https://old.reddit.com/r/Music/comments/1qbfpba/tom_morello_calls_out_trump_administration_for/nza9h01/
+
+https://old.reddit.com/r/Music/comments/1qbfpba/tom_morello_calls_out_trump_administration_for/nzachld/
+
+https://old.reddit.com/r/Music/comments/1qbfpba/tom_morello_calls_out_trump_administration_for/nzaehya/
+
+His original behaviors and systems are terrible. People can't see the technology reach of global internet service provider (ISP).
+
+https://old.reddit.com/r/Music/comments/1qbfpba/tom_morello_calls_out_trump_administration_for/nzaem73/
+
+https://old.reddit.com/r/Music/comments/1qbfpba/tom_morello_calls_out_trump_administration_for/nzaj6za/
+
+Social media users have media addiction problems, meme addicts. Unable to quote and direct people to Dr. Bandy X Lee or other serious nonfiction learning. 
