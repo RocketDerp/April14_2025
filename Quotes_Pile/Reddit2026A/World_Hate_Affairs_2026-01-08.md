@@ -573,3 +573,15 @@ https://old.reddit.com/r/worldnews/comments/1qbmgtz/report_iran_protests_death_t
 Do you witness Reddit and Bluesky users calling for every mental health worker in the world to start doing cult deprogramming, anti-violence education? I do not. People have no concept or education on the mental health of religion, cult, governments, societies, macro level. Dr. Bandy X Lee ignored. People have faith only in cheering on weapon systems and the availability of guns. Killing brains instead of education / teaching / learning brains. Anti-Malala society values.
 
 https://old.reddit.com/r/worldnews/comments/1qbmgtz/report_iran_protests_death_toll_hits_12000_in/nzbnxxw/
+
+https://old.reddit.com/r/AskTheWorld/comments/1qblo6l/any_of_you_feel_like_this_or_just_me/nzbiqd1/
+
+There is no social media uprising. People will not stop sports games, gaming, video games, low-effort commenting and actually teach mental health professionals, nonfiction books, from Dr. Bandy X Lee and others. People are engaged to cheer on the defeat / suffering of other people. Hate motivates. You see people talking far more about their favorite killing hardware, guns and other machines, than teaching Dr. Martin Luther King Jr's word.
+
+https://old.reddit.com/r/AskTheWorld/comments/1qblo6l/any_of_you_feel_like_this_or_just_me/nzc47ey/
+
+Left vs. right one-bit logic sports-mentality brainrot. USA Founding Fathers very specifically did not teach this as spiritual values. Believer vs. nonbeliever of religion systems. "Gentile"
+
+https://old.reddit.com/r/AskTheWorld/comments/1qblo6l/any_of_you_feel_like_this_or_just_me/nzbi9wv/
+
+https://old.reddit.com/r/AskTheWorld/comments/1qblo6l/any_of_you_feel_like_this_or_just_me/nzbhif7/
