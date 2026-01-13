@@ -545,3 +545,31 @@ https://old.reddit.com/r/worldnews/comments/1qb0xn5/greenland_says_it_cannot_acc
 Short-message Twitter-think. No off-Reddit URL, no author name, no book quote, no book title. Just acting like it's no serious problem that needs serious intellectual discussion.
 
 https://old.reddit.com/r/politics/comments/1qbcczo/us_accuses_russia_of_dangerous_and_inexplicable/nz9jfnf/
+
+https://old.reddit.com/r/worldnews/comments/1qbmgtz/report_iran_protests_death_toll_hits_12000_in/nzc6hlo/
+
+It is alarming that people see a dehumanize button, block button, burn-book button on their social system and know so little history about sports mentality, mob mentality, gang mentality.  Child custody battles, parenting, why Fox News is so incredibly popular.
+
+* "But it seems, Dr. McLuhan, that this tribal world is not friendly." 01:23 McLuhan: "Oh no. Tribal people, one of their main kinds of sport is sort of butchering each other. It’s a full-time sport in tribal societies." -  https://www.organism.earth/library/document/mcluhan-mcmanus September 19, 1977
+
+https://old.reddit.com/r/worldnews/comments/1qbmgtz/report_iran_protests_death_toll_hits_12000_in/nzbrz01/
+
+People give a lot of fuck about hate. Go out of their way to add block buttons to social sites. "Reddit operated for approximately 10 years and 10 months before a robust, site-wide block button was introduced to help tackle harassment.  Reddit was founded and launched in June 2005. The comprehensive "block user" feature, which prevented a blocked user from seeing or interacting with the blocker's posts and comments, was officially rolled out on April 6, 2016."
+
+Clergy are not teaching that hate is bad. [The February 28, 1954 equation](../Martin_Luther_King_Jr_quotes0.md). People worship killing devices, machine device, technology love. "I'm not going to put my ultimate faith in things. I'm not going to put my ultimate faith in gadgets and contrivances." - Dr. Martin Luther King Jr.
+
+https://old.reddit.com/r/worldnews/comments/1qbmgtz/report_iran_protests_death_toll_hits_12000_in/nzc98ic/
+
+12,000 could be low. Terrorism / terrorizing and disconnect from world communications. The whole faith system is based on out-group hate, nuclear bomb to fight with  other religions. Now it is directed inward. All that systemic infidel hate. People in USA are often in complete denial of how Ukraine war was driven by boredom, hate, and "glory" values. And has gone on since February 20, 2014. People do not think teaching love and compassion i important or needed. "Settle for" shit. Settle for Donald Trump, the message that sends tot he world when free people prize terrible education, anti-Wiki, anti-FAQ, bullshit made up fiction storytelling Trump as a leader.
+
+https://old.reddit.com/r/worldnews/comments/1qbmgtz/report_iran_protests_death_toll_hits_12000_in/nzc2q5f/
+
+https://old.reddit.com/r/worldnews/comments/1qbmgtz/report_iran_protests_death_toll_hits_12000_in/nzbphwj/
+
+https://old.reddit.com/r/worldnews/comments/1qbmgtz/report_iran_protests_death_toll_hits_12000_in/nzbpy6s/
+
+https://old.reddit.com/r/worldnews/comments/1qbmgtz/report_iran_protests_death_toll_hits_12000_in/nzboo6i/
+
+Do you witness Reddit and Bluesky users calling for every mental health worker in the world to start doing cult deprogramming, anti-violence education? I do not. People have no concept or education on the mental health of religion, cult, governments, societies, macro level. Dr. Bandy X Lee ignored. People have faith only in cheering on weapon systems and the availability of guns. Killing brains instead of education / teaching / learning brains. Anti-Malala society values.
+
+https://old.reddit.com/r/worldnews/comments/1qbmgtz/report_iran_protests_death_toll_hits_12000_in/nzbnxxw/
