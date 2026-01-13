@@ -646,3 +646,11 @@ yes, it sickens me. Sickening to see people are not calling for mental health pr
 https://old.reddit.com/r/pics/comments/1qbxgm5/iranian_holocaust_the_last_embrace_of_a_mother_in/nzdwezs/
 
 We need to address the mass psychosis problems of entire societies like Iran, Russia, USA. https://www.youtube.com/watch?v=09maaUaRT4M&t=743s Please watch: "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL"
+
+https://old.reddit.com/r/pics/comments/1qbxgm5/iranian_holocaust_the_last_embrace_of_a_mother_in/nzdxuky/
+
+Yes. Prizing love and compassion teachings instead of out-group hate education and media.
+
+https://old.reddit.com/r/pics/comments/1qbxgm5/iranian_holocaust_the_last_embrace_of_a_mother_in/nze5ly4/
+
+Actually Surkov says WW5. War of All against All. See my posting: https://old.reddit.com/r/WarAll/comments/1msqs1t/war_of_all_against_all_since_march_2013_war/ - denial abounds that Putin has been seeding deep mind-fuck to self-harm.
