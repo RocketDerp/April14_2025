@@ -1621,3 +1621,10 @@ I also had a battery-operated Walkie Talkie, also a Radio Shack. Adults in the F
 
 https://old.reddit.com/r/europe/comments/1q4oq2w/after_decades_of_teaching_media_literacy_finland/
 
+&nbsp;
+
+# junk marketing
+
+Stop Buying Magic Spoon     
+https://www.youtube.com/watch?v=j_eAYGI80HY
+91,416 views December 27, 2025    
