@@ -207,3 +207,25 @@ Self-Harm of a Nation
 Memes exploit Brain     
 Memes exploit Minds    
 -- focus on John 1:1 meme and avoidance of paired "1 John 4:20" unseen    
+
+&nbsp;
+
+# More Fleshed?
+
+Disturbed Nation   
+Disturbed People   
+
+Emphasis on We The people. Disturbed by Russia and digging up historical conflict patterns. New media, high speed. 1977 McLuhan on mass man, loss of identity
+
+13 pages of repeating the same video link
+
+1. Why did you not share this link with your fiends?
+2. Why not repeat it every time you see examples of mob mentality?
+3. Dr. Bandy X Lee timing, why not repeat her?
+
+This is an information system problems. Drowning out important, sincere, critical learning and teaching. Adult education not taken seriously. People do learn as adults, from junk information. YouTube is there, but why is THIS LINK not prioritized above all else? That is the topic, that is the cry of pain of this book.
+
+https://www.youtube.com/watch?v=09maaUaRT4M&t=744s   
+8,623,935 views August 3, 2021   
+
+How many millions of people have to watch since year 2021? 
