@@ -882,3 +882,20 @@ I am repeating the same comment URL, because it ***eats the Surkovian onion*** a
 https://youtu.be/5Au332OG-M4?t=785 "mafia state and oligarchy, and we’ve realized **they are illusions, that everything is PR.” “Everything is PR” has become the favorite phrase of the new Russia**; my Moscow peers are filled with a sense that they are both cynical and enlightened. When I ask them about Soviet-era dissidents, like my parents, who fought against communism, they dismiss them as naïve dreamers and my own Western attachment to such vague notions as “human rights” and “freedom” as a blunder. “Can’t you see your own governments are just as bad as ours?” they ask me. I try to protest—but they just smile and pity me. To believe in something and stand by it in this world is derided, the **ability to be a shape-shifter celebrated**. Vladimir Nabokov once described a species of butterfly that at an early stage in its development had to learn how to change colors to hide from predators. The butterfly’s predators had long died off, but still it changed its colors from the sheer pleasure of transformation. Something similar has happened to the Russian elites: during the Soviet period they learned to dissimulate in order to survive; now there is no need to constantly change their colors, but they continue to do so out of a sort of dark joy, conformism raised to the level of aesthetic act. Surkov himself is the ultimate expression of this psychology." ― Peter Pomerantsev, Nothing Is True and Everything Is Possible: The Surreal Heart of the New Russia. Year 2014 https://youtu.be/5Au332OG-M4?t=988
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mccpugssss2j https://autistics.life/@RoundSparrow/115888160664652003 }
+
+https://old.reddit.com/r/GreatBritishMemes/comments/1qbmh23/come_for_one_of_us_come_for_all_of_us/nzbngbd/
+
+Twitter-length commenting about Elon Musk, owner of Twitter. People are so ignorant of their own media-driven behavior! Marshall McLuhan (University of Toronto), Neil Postman (New York University, Manhattan, Trump's parenting). People who can not see that Trump is a product of media empire, Rupert Murdoch, Musk Twitter, and that Reddit ignorance of saying "Musk Dumb" about purchase of Twitter does not see the audience behavior shifts. See: https://old.reddit.com/r/TrueUnpopularOpinion/comments/1nyw3du/the_purchase_of_twitter_paid_off_massively_for/
+
+https://old.reddit.com/r/therewasanattempt/comments/1qbpw43/to_get_what_they_for_some_insane_reason_paid_for/nzchmak/
+
+The wrist watch is an icon, symbol, gadget, technology addictions / tech addicts. Reddit users  can't see how they are addicted to corporate America media system called Reddit. Commenting on every move and shake of Donald J Trump since June 16, 2015. Over a decade of free time and spare time in service to anti-education anti-learning anti-teaching. Commenting low-effort commentary about one man. The group, We The People, the audience of social meme sites - is the problem. For not standing up for comprehension and self-awareness at the Marshall McLuhan level.
+
+https://old.reddit.com/r/therewasanattempt/comments/1qbpw43/to_get_what_they_for_some_insane_reason_paid_for/nzcf7hl/
+
+No matter HOW OBVIOUS the signs are that simulation and simulacra are how billionaires control the Reddit media addict audiences... people are unable to find nonfiction serious learning about the topic! No matter how obvious it is that made up order numbers and account identification reveals... people who are media addicts on Reddit and other sites... still only bark at each example tree and will not address the Surkov student methods at the forest level since year 2013.
+
+https://old.reddit.com/r/therewasanattempt/comments/1qbpw43/to_get_what_they_for_some_insane_reason_paid_for/nzcenm5/
+
+And people will not use Reddit information systems to organize and stand up to professional liars / deceivers. People will not use computer systems to call for organized thoughtful rescue of elderly and youth from the intelligent clever manipulation that billionaires seed.
+
