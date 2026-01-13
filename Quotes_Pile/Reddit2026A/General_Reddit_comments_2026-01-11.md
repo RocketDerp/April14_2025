@@ -799,3 +799,15 @@ https://old.reddit.com/r/ProgressiveHQ/comments/1qb727a/kamala_harris_at_her_fin
 Addiction to fiction storytelling runs society now. Why aren't people promoting woman Dr. Bandy X Lee? Too engaged in commenting "cult" and "unhinged" about Trump, instead of promoting education and nonfiction books.
 
 
+https://old.reddit.com/r/politics/comments/1qb7lqz/vance_said_ice_will_go_doortodoor_to_check/nz8liih/
+
+The one thing Reddit community won't stay and focus on: "The extremists are afraid of books and pens. The power of education frightens them. They are afraid of women. The power of the voice of women frightens them." https://malala.org/news-and-voices/malala-un-speech
+
+https://old.reddit.com/r/politics/comments/1qb7lqz/vance_said_ice_will_go_doortodoor_to_check/nz8hxxq/
+
+https://old.reddit.com/r/politics/comments/1qb7lqz/vance_said_ice_will_go_doortodoor_to_check/nz8l9oc/
+
+The social media behavior of avoiding nonfiction is a problem. Russian information warfare is not being called out. People are not calling for health care, they are cheering on the idea that Luigi murdered a health insurance CEO.
+
+https://old.reddit.com/r/politics/comments/1qbbaxj/us_attacked_boat_with_aircraft_that_looked_like_a/nz9ci8y/
+
