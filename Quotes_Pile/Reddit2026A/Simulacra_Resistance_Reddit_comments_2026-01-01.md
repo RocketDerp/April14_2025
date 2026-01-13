@@ -238,4 +238,12 @@ This means meme images. And Russia started it, with the Internet Research Agency
 
 <img width="712" height="1000" alt="image" src="https://github.com/user-attachments/assets/b6aeb0fc-1361-4a1e-9b40-23d3de0d18e0" /> Here is a year 2013 book: https://www.google.com/books/edition/America_s_Failing_Experiment/LHlfAgAAQBAJ?hl=en&gbpv=1&dq=%22Politics+will+eventually+be+replaced+by+imagery.%22&pg=PA28&printsec=frontcover - "America's Failing Experiment. How We the People Have Become the Problem. By Kirby Goidel · 2013" ... 232 pages. December 12, 2013
 
+* "These changes were not without consequence. Where presidents once communicated at college reading levels, today they communicate at an eighth-grade reading level and in more conversational tones." - commenting junk. Page 27 / page 28. December 2013.. Trump on Twitter rising and rising.
+* "Television did not create but rather cemented these trends, adding an even more compelling and personalized visual component. With television, John F. Kennedy could lose a presidential debate based on spoken words" - page 28
+* "Worse, the campaign is not only permanent but also increasingly polarized along partisan lines, and that polarization extends to nearly every aspect of governance. Much of the blame for this state of affairs resides with Newt Gingrich, 33 the mastermind of the 1994 Republican Revolution . Prior to Gingrich's ascent, the Republican minority leader, Robert H. Michel, operated under the quaint idea that the minority party had a responsibility to work with the majority to solve problems and to forge compromises ( where possible ) to further" - page 30 / page 31
+
+Stand up to the problem sincerely with nonfiction and citations... 1 single review since December 2013, no quotes.
+
+<img width="1718" height="612" alt="image" src="https://github.com/user-attachments/assets/6dc0a275-ab59-44ef-b823-13822aa136da" />
+
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mccsgbxpj22n https://autistics.life/@RoundSparrow/115888342046862427 }
