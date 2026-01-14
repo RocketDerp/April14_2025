@@ -1156,3 +1156,5 @@ https://old.reddit.com/r/nottheonion/comments/1qci8ie/hegseth_announces_grok_acc
 
 The nation is driven by tiny-short commenting messages like the one inked on Reddit. People who are attracted to clown content, clown information systems. Billionaires are investing in networks beyond Fox News because that is what We The People keep seeking out and tuning into. Low-effort Reddit commenting drives the most active minds in the nation. Stimulation by junk information. 'Engagement" commenting with tree after tree and unable to see the others in the audience, the forest.
 
+https://old.reddit.com/r/MurderedByWords/comments/1qckmfo/she_was_and_useful_idiot/nziugcj/
+
