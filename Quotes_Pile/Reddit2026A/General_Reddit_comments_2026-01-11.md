@@ -1127,3 +1127,10 @@ https://old.reddit.com/r/Millennials/comments/1qc2a5g/im_just_gonna_say_it_the_w
 Predators are international. Twitter reach comes right next door to your neighbors.
 
 https://old.reddit.com/r/law/comments/1qc9z9t/ice_choked_out_a_10th_grader_stole_his_phone_and/nzgv604/
+
+https://old.reddit.com/r/Political_Revolution/comments/1qc9sfr/sos/nzgzlxg/
+
+Getting Mental Health Professionals to take on the mechanics of advertising, selling, marketing, branding, religions, cults of Rupert Murdoch audiences and Donald Trump audiences is something the entire world needs to face. Religions go back thousands of years and are abused for power and land ownership.
+
+https://old.reddit.com/r/Political_Revolution/comments/1qc9sfr/sos/nzgnjuc/
+
