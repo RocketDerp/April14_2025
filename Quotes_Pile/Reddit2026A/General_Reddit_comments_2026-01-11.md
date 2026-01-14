@@ -1022,3 +1022,12 @@ He mocks everyone, not just his enemies. He mocks his own self. People really ne
 
 https://old.reddit.com/r/complaints/comments/1qc47qd/breaking_trump_humiliates_himself_doing_a_mocking/nzfhdzn/
 
+https://old.reddit.com/r/news/comments/1qc58p4/madness_two_us_citizens_violently_detained_by_ice/nzfman6/
+
+Living under madness. People won't turn to professional Dr. Bandy X Lee and quote her books since year 2017. People won't follow leaders that educate and teach our way out of this mess.
+
+https://old.reddit.com/r/news/comments/1qc58p4/madness_two_us_citizens_violently_detained_by_ice/nzfo88d/
+
+Yes, **LIKE ENTERTAINMENT MOVIE**. Madness of fiction running our real nation. 
+
+https://www.politico.com/magazine/story/2015/01/putin-russia-tv-113960/ At one end of the table sat one of the country’s most famous political TV presenters. He was small and spoke fast, with a smoky voice: “We all know there will be no real politics,” he said. “But we still have to give our viewers the sense something is happening. They need to be kept entertained.” “So what should we play with?” he asked. “Shall we attack oligarchs? Who’s the enemy this week? Politics has got to feel like a movie!”
