@@ -9,3 +9,9 @@ https://mcluhan.substack.com/p/the-case-of-the-mail-order-bride
 Social post { https://autistics.life/@RoundSparrow/115894458513671913 https://bsky.app/profile/roundsparrow.bsky.social/post/3mcfjfjtdyk2k https://midwest.social/post/41836520 }
 
 YouTube audio clip: https://youtube.com/clip/UgkxkkYjYxcTXUwTRfwKMeJxyS76rPU7j8Yx 
+
+&nbsp;
+
+# Mental Rutting
+
+"Mental rutting is feeling stuck, unmotivated, and emotionally stagnant, like life is on repeat with no purpose, often characterized by boredom, low energy, and monotonous routines, but it's not a clinical disorder, though it can link to anxiety or burnout; getting out involves small changes, self-care, new experiences, and self-compassion to recharge your emotional reserves." - Google Search summary 2026-01-14 morning USA
