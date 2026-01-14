@@ -1205,3 +1205,15 @@ https://old.reddit.com/r/worldnews/comments/1qcm2xg/trump_says_anything_less_tha
 Repeat messaging on Reddit: do nothing but comment about Trump. Pray to magical Jesus in the sky to kill Trump and that way democracy does not require We The People to stand up. Just sit on the easy chair on Reddit with intimate touch device doing memes. As has been going on for OVER TEN YEARS, since June 16, 2015. Meme away at Trump as entertainment to mock. Passive, do-nothing, democracy is only one man, let magical wishes of magical thinking solve problems with prayers to sky daddy to intervene and rescue USA and Pale Blue Dot. Very proven system of audience control mindsets. Messages of "Helpless Public" conditioning of Reddit audience.
 
 * "“Ours is the first age in which many thousands of the best-trained individual minds have made it a full-time business to get inside the collective public mind. To get inside in order to manipulate, exploit, control is the object now. And to generate heat, not light, is the intention. To **keep everybody in the helpless state** engendered by prolonged mental rutting is the effect of many ads and much entertainment alike." - [Marshall McLuhan, University of Toronto](/Art/ScreenPlay/Mental_Rutting/Public_Helplessness.md)
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1qcqsxd/peta_why_are_they_so_upset_with_hulk/nzk2s83/
+
+As Vince Gilligan observed to writers / creators:
+
+Writers Guild of America    
+Vince Gilligan speech    
+February 15, 2025     
+https://youtu.be/TkteSxVIM1A?t=648   
+
+10:48        
+there's no simple answer for how *we* might change that. Though, if there were, I [bet](https://youtu.be/Ne2vIoVc7mo?t=55) it would have *something to do with [climbing](https://youtu.be/J4_wXPZ1Bnk?t=102) up out of* the cesspool that is social media and [actually listening](https://youtu.be/QkF3oxziUI4?t=427) to each *other*.
