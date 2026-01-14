@@ -768,4 +768,24 @@ Playing dumb. Conditioning Reddit audience to be dumb and ignorant and value low
 
 https://old.reddit.com/r/worldnews/comments/1qcwfxi/iceland_is_next_incoming_us_ambassador_jokes/nzlgb4u/
 
-Social media addiction, amusement addiction, is what wrecked the USA. The IRA and CA outcomes. Feedback loops of *fuck off* hate messaging. The anti-goodness prizing of shit! Neil Postman's 1985 book describes social media hell society that thinks Trump is amusing entertainment! Meme addict society.  September 10, 2025 https://Time.com/7313999/neil-postman-trump-prediction/
+Social media addiction, amusement addiction, is what wrecked the USA. The IRA and CA outcomes. Feedback loops of *fuck off* hate messaging. The anti-goodness prizing of shit! Neil Postman's 1985 book describes social media hell society that thinks Trump is amusing entertainment! Meme addict society. September 10, 2025 https://Time.com/7313999/neil-postman-trump-prediction/
+
+https://old.reddit.com/r/nottheonion/comments/1qcvuqz/nearly_a_third_of_canadians_believe_us_may_try_to/nzlm81t/
+
+Celebration of Ignorance defeats all intelligence and learning. People prize high-speed meme delivery above love of human persons in the world. Images and meme macros have wrecked humanism in the USA.
+
+https://old.reddit.com/r/nottheonion/comments/1qcvuqz/nearly_a_third_of_canadians_believe_us_may_try_to/nzlbi9i/
+
+<img width="981" height="536" alt="image" src="https://github.com/user-attachments/assets/40590cba-3b94-486c-b0a3-9a79e83e73a5" /> Short-message Twitter-think messages. That We The People should keep spending free time and spare time making this about one single person, ignoring the Fox News audience and ignorance issues of USA population. Short patterns of thoughts that are intended to keep Reddit audiences glued to shit messages instead of actually using nonfiction books to teach and educate our way out of prizing Trump as a leader of ignorance and male aggression. Magical thinking, death-wishing to solve problems without teaching and printing another bamboozle artists to defeat meme addicts society.
+
+* “One of the saddest lessons of history is this: If we’ve been bamboozled long enough, we tend to **reject any evidence of the bamboozle**. We’re no longer interested in finding out the truth. The bamboozle has captured us. It’s simply too painful to acknowledge, even to ourselves, that we’ve been taken. Once you give a charlatan power over you, you almost never get it back. So the old bamboozles tend to persist as the new ones rise.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, **1995**
+
+Social post { https://autistics.life/@RoundSparrow/115895641963241103 https://bsky.app/profile/roundsparrow.bsky.social/post/3mcg27hzmvs2r }
+
+https://old.reddit.com/r/nottheonion/comments/1qcvuqz/nearly_a_third_of_canadians_believe_us_may_try_to/nzlilw6/
+
+Gullibility and celebration of ignorance now rules meme-think nation USA.
+
+* [“The truth is, it’s getting harder to describe the extent to which a meaningful percentage of Americans have dissociated from reality,” Charlie Warzel wrote “I’m Running Out of Ways to Explain How Bad This Is.”](https://www.axios.com/2024/10/19/musk-ackman-election-misinformation) - October 19, 2024 - America’s gullibility crisis, Zachary Basu
+
+
