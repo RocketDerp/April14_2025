@@ -1060,3 +1060,8 @@ https://old.reddit.com/r/complaints/comments/1qc6nrf/conservatives_are_ruining_a
 
 Hate and domination, very often favoring men who dominate other men and women. Controlling manipulative media empire owning men like Elon Musk Twitter and Rupert Murdoch Fox News.
 
+https://old.reddit.com/r/byebyejob/comments/1qc2tyo/we_executed_one_of_you_viral_video_shows_michigan/nzf7dya/
+
+<img width="1053" height="404" alt="image" src="https://github.com/user-attachments/assets/990fc558-4408-40b5-9ad4-336b74b82fe9" /> Raised on Levant Allah / Yahweh / Father Figure fiction as children. We are not addressing the fiction addictions to magical storytelling. Radio Mullah, Taliban values. Television figures bigger than life. Daddy Putin rules all in USA.
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mcdwsc6ocs2r https://autistics.life/@RoundSparrow/115890900539643375 }
