@@ -761,3 +761,11 @@ https://old.reddit.com/r/worldnews/comments/1qcwfxi/iceland_is_next_incoming_us_
 <img width="987" height="372" alt="image" src="https://github.com/user-attachments/assets/0cd17a33-236f-49ef-b09f-6765d890d1b4" /> Meme audiences adore it. Media addicts constantly treat it all like comedy TV, TV mindset. More power than anyone in history using joke-washing, amusement. President Tony Clifton performance has defeated We The People.
 
 Social post { https://autistics.life/@RoundSparrow/115895503882550778 https://bsky.app/profile/roundsparrow.bsky.social/post/3mcfyjwgxwc2r }
+
+https://old.reddit.com/r/worldnews/comments/1qcwfxi/iceland_is_next_incoming_us_ambassador_jokes/nzlckvs/
+
+Playing dumb. Conditioning Reddit audience to be dumb and ignorant and value low-effort mockery as leadership signals. Following Trump lead (following Surkov students) of total mockery media environments. 4 month Reddit account.
+
+https://old.reddit.com/r/worldnews/comments/1qcwfxi/iceland_is_next_incoming_us_ambassador_jokes/nzlgb4u/
+
+Social media addiction, amusement addiction, is what wrecked the USA. The IRA and CA outcomes. Feedback loops of *fuck off* hate messaging. The anti-goodness prizing of shit! Neil Postman's 1985 book describes social media hell society that thinks Trump is amusing entertainment! Meme addict society.  September 10, 2025 https://Time.com/7313999/neil-postman-trump-prediction/
