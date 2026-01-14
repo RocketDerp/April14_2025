@@ -15,3 +15,5 @@ YouTube audio clip: https://youtube.com/clip/UgkxkkYjYxcTXUwTRfwKMeJxyS76rPU7j8Y
 # Mental Rutting
 
 "Mental rutting is feeling stuck, unmotivated, and emotionally stagnant, like life is on repeat with no purpose, often characterized by boredom, low energy, and monotonous routines, but it's not a clinical disorder, though it can link to anxiety or burnout; getting out involves small changes, self-care, new experiences, and self-compassion to recharge your emotional reserves." - Google Search summary 2026-01-14 morning USA
+
+SEE ALSO: [Important/Executive_Function_mental_burnout.md](/Important/Executive_Function_mental_burnout.md)
