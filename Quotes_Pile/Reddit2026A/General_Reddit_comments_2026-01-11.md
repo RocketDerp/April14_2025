@@ -1233,3 +1233,10 @@ https://old.reddit.com/r/LeopardsAteMyFace/comments/1qcpcgy/renee_nicole_goods_f
 Do many families broken by Rupert Murdoch Fox New HDTV. So many people on social media treat it a entertainment and sports mentality. Jen Senko's nonfiction book not asserted and repeated on social sites to rescue men / fathers who prize hate. Media systems have fucked-over so many men to hate their own children. So many wrecked relationships. 
 
 OPERA_A So many broken hearts into the metaphorical rivers of Dublin. Too many broken hearts have fallen into the river and [drifted out to sea (Page 628)](/hello_world.bas). https://www.youtube.com/watch?v=P0rf3_viTxk Tower of Babel is the problem to the answer! 5,095,811 views July 21, 2017
+
+https://old.reddit.com/r/fednews/comments/1qcnz0n/fbi_currently_raiding_the_home_of_a_washington/nzjg7jk/
+
+<img width="1077" height="242" alt="image" src="https://github.com/user-attachments/assets/0f10a315-b757-49c7-a95c-a678bb8ff892" /> Extreme tiny-short message, Tweet-thinking, Blueksy-length on Reddit. Directing the audience to have the mindset of a **game show**, Alex Trebek entertainment star. To wrap Donald Trump, superstar of Realty TV and Reality White House performances. To invoke a trivia memorization game as the Reddit audience mind-set. This is Reddit audience mind-fucking; to treat Trump as a source of comedy and amusement.  This is everything New York University professor, Manhattan, Neil Postman described as a warning in his year 1985 book. Time Magazine tried to revive it last year, but audiences of Reddit won't face the meme decoration addictions that billionaires have created. September 10, 2025 https://Time.com/7313999/neil-postman-trump-prediction/
+
+Television addicts, entertainment addicts, can not resist Trump / Rupert Murdoch / Surkov student systems. They go right inside the intended predictable mind patterns of treating it as stimulating television. This is how Reddit audiences have been behaving FOR OVER TEN YEARS AND SIX MONTHS!!! On Reddit itself, back on May 1, 2019 - I active was educating and teaching about this Surkov student technique. https://old.reddit.com/r/HyperBanalisation
+
