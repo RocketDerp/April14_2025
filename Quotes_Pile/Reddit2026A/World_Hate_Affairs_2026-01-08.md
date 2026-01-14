@@ -682,3 +682,12 @@ Anti-goodness prized. Already the attitude on social media, to prize junk, aband
 https://old.reddit.com/r/worldnews/comments/1qbzf6q/us_official_says_greenland_action_could_come/nzevji4/
 
 Stress lords, rule by stress.
+
+https://old.reddit.com/r/worldnews/comments/1qbzf6q/us_official_says_greenland_action_could_come/nzf6ipb/
+
+<img width="977" height="733" alt="image" src="https://github.com/user-attachments/assets/c73dd94e-5e77-47e9-8f49-c63ebb1cd4ce" /> Surkov won since March 2013.
+
+https://old.reddit.com/r/worldnews/comments/1qbzf6q/us_official_says_greenland_action_could_come/nzerjzr/
+
+People think "Woke" means to be the most meme-informed, meme pattern recognition. Wise-cracking and joke-washing Trump. Nothing at all like 1939 Finnegans Wake media ecology woke, Marshall McLuhan defined woke.
+
