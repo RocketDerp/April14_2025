@@ -345,10 +345,11 @@ def fetch_comment_data(url, idx=None, args=None):
         if age18_content:
             print("age 18 content detected")
             age18_count += 1
-        # Abadoning exceptions for known predictable failures
+        # Abandoning exceptions for known predictable failures
         # raise ValueError(f"Could not find comment div with id t1_{comment_id} on page {url}")
         return {
-           "parsed": 1,
+            "parsed": 1,
+            "live_fetch": live_fetch,
         }
 
     print(f"processing comment {comment_id}")
