@@ -1240,3 +1240,4 @@ https://old.reddit.com/r/fednews/comments/1qcnz0n/fbi_currently_raiding_the_home
 
 Television addicts, entertainment addicts, can not resist Trump / Rupert Murdoch / Surkov student systems. They go right inside the intended predictable mind patterns of treating it as stimulating television. This is how Reddit audiences have been behaving FOR OVER TEN YEARS AND SIX MONTHS!!! On Reddit itself, back on May 1, 2019 - I active was educating and teaching about this Surkov student technique. https://old.reddit.com/r/HyperBanalisation
 
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mcfp2qevuc2d https://autistics.life/@RoundSparrow/115894863738350005 }
