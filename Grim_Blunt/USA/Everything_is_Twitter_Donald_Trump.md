@@ -18,7 +18,7 @@ FOR OVER TEN YEARS AND SIX MONTHS. Today is December 17, since June 16 year 2015
 
 FOR OVER TEN YEARS AND SIX MONTHS. Today is December 17, since June 16 year 2015!
 
-The gold standard, the bencmark of all measures, is Truth Social controlled media Radio Mullah and Truth Social behaviors setting the standard.
+The gold standard, the benchmark of all measures, is Truth Social controlled media Radio Mullah and Truth Social behaviors setting the standard.
 
 Everything is bewildered USA population high on ChatGPT posted on every media platform as comments and junk.
 
@@ -32,7 +32,7 @@ FOR OVER TEN YEARS AND SIX MONTHS. Today is December 17, since June 16 year 2015
 # Everything is Donald Trump entertainment
 
 “Parents embraced “Sesame Street” for several reasons, among them that it assuaged their guilt over the fact that they could not or would not restrict their children’s access to television. “Sesame Street” appeared to justify allowing a four- or five-year-old to sit transfixed in front of a television screen for unnatural periods of time. Parents were eager to hope that television could teach their children something other than which breakfast cereal has the most crackle. At the same time, “Sesame Street” relieved them of the responsibility of teaching their pre-school children how to read—no small matter in a culture where children are apt to be considered a nuisance.... We now know that “Sesame Street” encourages children to love school only if school is like “Sesame Street.” Which is to say, we now know that “Sesame Street” undermines what the traditional idea of schooling represents.”
-― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business
+― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
 
 # Everything is Spongebob Squarepants mindsets
 
@@ -40,7 +40,7 @@ FOR OVER TEN YEARS AND SIX MONTHS. Today is December 17, since June 16 year 2015
 
 FOR OVER TEN YEARS AND SIX MONTHS. Today is December 17, since June 16 year 2015!
 
-Donald Trump leads a population of people who think it is hilarious and great to be living in a Truth Social Fox News Howdy Doody Romper Room Seasame Street bright colored Ballroom White House world. Mar-A-Largo Golf Course Clubhouse Spongebob Squarepants beside the ocean world!
+Donald Trump leads a population of people who think it is hilarious and great to be living in a Truth Social Fox News Howdy Doody Romper Room Sesame Street bright colored Ballroom White House world. Mar-A-Largo Golf Course Clubhouse Spongebob Squarepants beside the ocean world!
 
 FOR OVER TEN YEARS AND SIX MONTHS. Today is December 17, since June 16 year 2015!
 
@@ -77,3 +77,13 @@ The meme drunk population on Trump LOL and Donald Trump golf outings orange-skin
 * "We now know that “Sesame Street” encourages children **to love school only if school is like “Sesame Street.”** ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, year 1985, Manhattan NYU
 
 
+&nbsp;
+
+&nbsp;
+
+# Wednesday January 14, 2026
+
+I don't agree to ignore it, avoid it. Assert good education, quote nonfiction paper books to current mindsets.
+
+https://www.youtube.com/watch?v=dnVo6FkG94U      
+"The Fascists are Lying about ICE Murdering an Innocent Woman"    
