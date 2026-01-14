@@ -1065,3 +1065,20 @@ https://old.reddit.com/r/byebyejob/comments/1qc2tyo/we_executed_one_of_you_viral
 <img width="1053" height="404" alt="image" src="https://github.com/user-attachments/assets/990fc558-4408-40b5-9ad4-336b74b82fe9" /> Raised on Levant Allah / Yahweh / Father Figure fiction as children. We are not addressing the fiction addictions to magical storytelling. Radio Mullah, Taliban values. Television figures bigger than life. Daddy Putin rules all in USA.
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mcdwsc6ocs2r https://autistics.life/@RoundSparrow/115890900539643375 }
+
+https://old.reddit.com/r/50501/comments/1qc4uod/american_here_with_a_message_for_the/nzfs1kr/
+
+NATO members will not sustain focus on how much USA behavior changed with IRA invasion. And the monomyth fiction storytelling patterns.
+
+https://old.reddit.com/r/50501/comments/1qc4uod/american_here_with_a_message_for_the/nzfm8zz/
+
+I do not see many / any? people quoting nonfiction books about Cambridge Analytica.
+
+https://old.reddit.com/r/50501/comments/1qc4uod/american_here_with_a_message_for_the/nzftpv9/
+
+Insanity / mob mentality. Group insane. Driving people insane with organized efforts. https://www.youtube.com/watch?v=09maaUaRT4M&t=743s "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL"
+
+https://old.reddit.com/r/50501/comments/1qc4uod/american_here_with_a_message_for_the/nzfvd5k/
+
+Out-group hate patterns. Which people will not turn to nonfiction learning. Group behaviors. Team sports mentality. People all over the world need to call on mental health workers to discuss mob mentality / group dynamics ... we all globally really need to be **rallying around Dr. Bandy X Lee's leadership**, her published nonfiction books since year 2017!
+
