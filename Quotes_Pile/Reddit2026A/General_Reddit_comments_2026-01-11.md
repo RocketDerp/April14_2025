@@ -1232,7 +1232,7 @@ https://old.reddit.com/r/LeopardsAteMyFace/comments/1qcpcgy/renee_nicole_goods_f
 
 Do many families broken by Rupert Murdoch Fox New HDTV. So many people on social media treat it a entertainment and sports mentality. Jen Senko's nonfiction book not asserted and repeated on social sites to rescue men / fathers who prize hate. Media systems have fucked-over so many men to hate their own children. So many wrecked relationships. 
 
-OPERA_A So many broken hearts into the metaphorical rivers of Dublin. Too many broken hearts have fallen into the river and [drifted out to sea (Page 628)](/hello_world.bas). https://www.youtube.com/watch?v=P0rf3_viTxk Tower of Babel is the problem to the answer! 5,095,811 views July 21, 2017
+OPERA_A So many broken hearts into the metaphorical rivers of Dublin. Too many broken hearts have fallen into the river and [drifted out to sea (Page 628)](https://github.com/GreatSealUSA/GreatSealUSA_Art/blob/main/PLUR1BUS/E_pluribus_unum_Opera/zzrunme0.bas). song link... https://www.youtube.com/watch?v=P0rf3_viTxk Tower of Babel is the problem to the answer! 5,095,811 views July 21, 2017
 
 https://old.reddit.com/r/fednews/comments/1qcnz0n/fbi_currently_raiding_the_home_of_a_washington/nzjg7jk/
 
