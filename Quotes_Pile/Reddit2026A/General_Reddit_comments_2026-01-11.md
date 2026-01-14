@@ -1241,3 +1241,13 @@ https://old.reddit.com/r/fednews/comments/1qcnz0n/fbi_currently_raiding_the_home
 Television addicts, entertainment addicts, can not resist Trump / Rupert Murdoch / Surkov student systems. They go right inside the intended predictable mind patterns of treating it as stimulating television. This is how Reddit audiences have been behaving FOR OVER TEN YEARS AND SIX MONTHS!!! On Reddit itself, back on May 1, 2019 - I actively was educating and teaching about this Surkov student technique. https://old.reddit.com/r/HyperBanalisation as defense / self-awareness of USA against Russia.
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mcfp2qevuc2d https://autistics.life/@RoundSparrow/115894863738350005 }
+
+https://old.reddit.com/r/agedlikewine/comments/1qcn45k/rip_mike_gravel/nzj9ozr/
+
+Yes. Reddit audience does not want to face reality that a Reality TV superstar won. That media addiction itself is what billionaires are feeding. Elon  Musk purchasing Twitter was a media ecology recognition by Musk. Fox News HDTV addiction doesn't want to be repeat topic to take on with Reddit audience because the addiction to electric media is the same on Reddit! We The People, meme addicts, flock to Trump shit for mockery stimulation. Anti-Malala, anti-education, meme trash.
+
+"America's Failing Experiment. How We the People Have Become the Problem. By Kirby Goidel · 2013" ... 232 pages. December 12, 2013
+
+* "These changes were not without consequence. Where presidents once communicated at college reading levels, today they communicate at an eighth-grade reading level and in more conversational tones." - commenting junk. Page 27 / page 28. December 2013.. Trump on Twitter rising and rising.
+* "Television did not create but rather cemented these trends, adding an even more compelling and personalized visual component. With television, John F. Kennedy could lose a presidential debate based on spoken words" - page 28
+* "the nature of American politics as a permanent campaign has become deeply rooted. Worse, the campaign is not only permanent but also increasingly polarized along partisan lines, and that polarization extends to nearly every aspect of governance. Much of the blame for this state of affairs resides with Newt Gingrich, 33 the mastermind of the 1994 Republican Revolution. Prior to Gingrich's ascent, the Republican minority leader, Robert H. Michel, operated under the quaint idea that the minority party had a responsibility to work with the majority to solve problems and to forge compromises ( where possible ) to further" - page 30 / page 31
