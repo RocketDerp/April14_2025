@@ -1158,3 +1158,22 @@ The nation is driven by tiny-short commenting messages like the one inked on Red
 
 https://old.reddit.com/r/MurderedByWords/comments/1qckmfo/she_was_and_useful_idiot/nziugcj/
 
+https://old.reddit.com/r/MurderedByWords/comments/1qckmfo/she_was_and_useful_idiot/nzisdw3/
+
+https://old.reddit.com/r/MurderedByWords/comments/1qckmfo/she_was_and_useful_idiot/nzisdey/
+
+https://old.reddit.com/r/MurderedByWords/comments/1qckmfo/she_was_and_useful_idiot/nzj3uth/
+
+https://old.reddit.com/r/worldnews/comments/1qcjk1m/nearly_17k_fans_cancel_2026_world_cup_tickets/nzim86f/
+
+Reddit tech lovers, technology addicts, love F1 - it is on /r/All almost every day in year 2025. Machines to dominate.
+
+https://old.reddit.com/r/worldnews/comments/1qcjk1m/nearly_17k_fans_cancel_2026_world_cup_tickets/nzim394/
+
+Fiction outsells nonfiction. Someone who wants a work-at-home job, start creative fiction storytelling. The audience still gets to comment about it. People have little to no concern to clearly label nonfiction from fiction. Donald Trump provides fiction leadership that people prize, it is far more entertaining to invent and create rules and keep people stimulated commenting about it all. People have no concept of this being the meaning of the Great Seal of the United States of America, "old world order" is Mecca year 635 system of fiction storytelling.
+
+OPERA_A Don't believe the fiction driven Church and State.. and everything they tell you. Monomyth fiction addiction societies. https://youtu.be/tixWhkcpBZ4 1,894,528 views June 21, 2020
+
+https://old.reddit.com/r/worldnews/comments/1qcjk1m/nearly_17k_fans_cancel_2026_world_cup_tickets/nziqlpd/
+
+Reddit messages to audience: go back to sleep. We The People are unimportant. Only the wealthy team owners and wealthy team players with their army of spots medicine doctors are important. Give up on any resistance to Trump / MAGA movement.
