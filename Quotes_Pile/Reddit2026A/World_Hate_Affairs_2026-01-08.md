@@ -788,4 +788,14 @@ Gullibility and celebration of ignorance now rules meme-think nation USA.
 
 * [“The truth is, it’s getting harder to describe the extent to which a meaningful percentage of Americans have dissociated from reality,” Charlie Warzel wrote “I’m Running Out of Ways to Explain How Bad This Is.”](https://www.axios.com/2024/10/19/musk-ackman-election-misinformation) - October 19, 2024 - America’s gullibility crisis, Zachary Basu
 
+https://old.reddit.com/r/ProgressiveHQ/comments/1qcz4qt/breaking_in_a_stunning_moment_donald_trump_has/nzm5vi9/
 
+<img width="910" height="285" alt="image" src="https://github.com/user-attachments/assets/b7a4adb7-2b82-46fd-bba8-86931d8982b6" /> One of the many followers in the cult of Hate that Donald Trump and Putin lead. Hate leadership is entirely not being resisted in USA. Teams of hate. Hate vs. hate, hate for hate. MLK Jr's February 28, 1954 teachings abandoned in favor of Trump's signals to *hate harder*.
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qcz4qt/breaking_in_a_stunning_moment_donald_trump_has/nzm1x3y/
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qcz4qt/breaking_in_a_stunning_moment_donald_trump_has/nzm9a4l/
+
+<img width="1039" height="883" alt="image" src="https://github.com/user-attachments/assets/887a1b01-6132-40ea-8b28-7056dddc446a" /> Constant stimulation for meme addicts. Every day is exciting and thrilling when Trump plays actor of Tony Clifton performances. High-speed information systems, TCP/IP networks, deliver the latest Trump antics to media society.
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mcg76nbp5c26 https://autistics.life/@RoundSparrow/115895995345500966 }
