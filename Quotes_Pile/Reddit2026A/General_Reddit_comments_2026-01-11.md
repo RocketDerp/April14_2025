@@ -1125,3 +1125,5 @@ We have made work situations so competitive and dominating, the branding of our 
 https://old.reddit.com/r/Millennials/comments/1qc2a5g/im_just_gonna_say_it_the_whole_kids_no_kids/nzf2gzh/
 
 Predators are international. Twitter reach comes right next door to your neighbors.
+
+https://old.reddit.com/r/law/comments/1qc9z9t/ice_choked_out_a_10th_grader_stole_his_phone_and/nzgv604/
