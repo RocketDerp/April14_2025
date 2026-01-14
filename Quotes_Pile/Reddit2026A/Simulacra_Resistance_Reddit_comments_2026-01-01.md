@@ -352,3 +352,13 @@ Reddit tells anti-MAGA how to think. Fiction vs. fiction. Avengers is fiction st
 
 Following what other people tell you to think isn't a problem if it is goodness. All getting on the same page f a good ideas is not a threat. All commenting on different trees of messages on Reddit and avoiding Dr. Bandy X Lee's nonfiction book and leadership since year 2017 is a terrible behavior and terrible thinking.
 
+https://old.reddit.com/r/MurderedByWords/comments/1qckmfo/she_was_and_useful_idiot/nzj19ye/
+
+<img width="1888" height="698" alt="image" src="https://github.com/user-attachments/assets/a73ae07e-35d7-4e9f-ac0d-a8ff99ba7760" /> Yes. Because billionaires advertise on Reddit media and people do not want to confront media ecology. Marshall McLuhan education and teaching from University of Toronto has been abandoned to the general public. Billionaires have ensured that Marshall McLuhan's 1970' public education is not applied to Rupert Murdoch's public education systems since October 7, 1996. Media ecology is the absent education in a working healthy democracy. Reddit user is calling out the problem but not offering education and teaching and learning **for adults** as a solution. We can rescue USA from Putin's Internet Research Agency... if we stop commenting all on different pages of Reddit and get on serious important topics, *the same page*.
+
+This is over 10 years old, why is it not well know as subreddit vs. subreddit, filter-bubble education of self-awareness? 
+
+* “Today, reports of the day’s events are conveyed to the viewing public by way of alternate universes, The Fox News cable channel conveys its version of reality, while at the other end of the ideological spectrum MSNBC presents its version. They and their many counterparts on radio are more the result of an economic dynamic than a political one. Dispatching journalists into the field to gather information costs money; hiring a glib bloviator is relatively cheap, and inviting opinionated guests to vent on the air is entirely cost-free. It wouldn’t work if it weren’t popular, and audiences, it turns out, are endlessly absorbed by hearing amplified echoes of their own biases. It’s divisive and damaging to the healthy functioning of our political system, but it’s also indisputably inexpensive and, therefore, good business.”
+― Ted Koppel. Lights Out: A Cyberattack, A Nation Unprepared, Surviving the Aftermath. October 27, 2015. Page 13.
+
+Social post { https://autistics.life/@RoundSparrow/115894200802418897 https://bsky.app/profile/roundsparrow.bsky.social/post/3mcffpgrl2s2k }
