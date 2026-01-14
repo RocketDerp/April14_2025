@@ -1251,3 +1251,19 @@ Yes. Reddit audience does not want to face reality that a Reality TV superstar w
 * "These changes were not without consequence. Where presidents once communicated at college reading levels, today they communicate at an eighth-grade reading level and in more conversational tones." - commenting junk. Page 27 / page 28. December 2013.. Trump on Twitter rising and rising.
 * "Television did not create but rather cemented these trends, adding an even more compelling and personalized visual component. With television, John F. Kennedy could lose a presidential debate based on spoken words" - page 28
 * "the nature of American politics as a permanent campaign has become deeply rooted. Worse, the campaign is not only permanent but also increasingly polarized along partisan lines, and that polarization extends to nearly every aspect of governance. Much of the blame for this state of affairs resides with Newt Gingrich, 33 the mastermind of the 1994 Republican Revolution. Prior to Gingrich's ascent, the Republican minority leader, Robert H. Michel, operated under the quaint idea that the minority party had a responsibility to work with the majority to solve problems and to forge compromises ( where possible ) to further" - page 30 / page 31
+
+https://old.reddit.com/r/complaints/comments/1qczghc/joe_rogan_is_a_fcking_moron_and_has_done_nearly/nzm4td2/
+
+Fiction vs. nonfiction. Joe Rogan provides the same style of fiction appealing content that Reddit audiences and MAGA crave. Fiction outsells nonfiction. Serious nonfiction books and learning are avoided.
+
+https://old.reddit.com/r/complaints/comments/1qczghc/joe_rogan_is_a_fcking_moron_and_has_done_nearly/nzm2br7/
+
+Yes. it isn't accidental. Entertainment / "content", joke-wrapping is the MAGA system. Being entertained by bad events is the hook that Putin has deployed upon the nation since March 2013. Trump's extreme outstanding talent is in his ability to draw audience to watch is antics and performances. This is all topics of media ecology first, governing is almost not at all involved, media addiction exploitation of audience minds is the core Trump system.
+
+https://old.reddit.com/r/complaints/comments/1qczghc/joe_rogan_is_a_fcking_moron_and_has_done_nearly/nzm2h56/
+
+Reddit low-effort commenting that does not cite any nonfiction books, author names, book titles, quotes, off-Reddit URL. Media ecology is not understood by Reddit addicts. Time Magazine tried to revive essential media ecology teachings last year, but audiences of Reddit won't face the meme decoration addictions that billionaires have created. September 10, 2025 https://Time.com/7313999/neil-postman-trump-prediction/
+
+https://old.reddit.com/r/complaints/comments/1qczghc/joe_rogan_is_a_fcking_moron_and_has_done_nearly/nzm353p/
+
+Fiction storytelling far outsells nonfiction. Joe is a fiction experience show. alternate reality "Joe Rogan Experience" kind of amusement ride.
