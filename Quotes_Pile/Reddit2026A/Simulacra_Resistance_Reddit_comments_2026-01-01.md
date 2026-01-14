@@ -363,9 +363,11 @@ This is over 10 years old, why is it not well know as subreddit vs. subreddit, f
 
 Social post { https://autistics.life/@RoundSparrow/115894200802418897 https://bsky.app/profile/roundsparrow.bsky.social/post/3mcffpgrl2s2k }
 
+# Favorite Part
+
 https://old.reddit.com/r/PublicFreakout/comments/1qcp6rt/guy_confronts_bigot_who_told_him_go_back_to_your/nzjr8ky/
 
-THRILLED audience member of Reddit to have images / video of hate messaging delivered to intimate touch device. Eating out of Putin's hands. Eating out of Twitter owner Elon Musk hands in his HQ of Austin, Texas. Eating out of Rupert Murdoch hands. It's scripted Reality TV fiction in the public streets. Mock vs. mock. Reddit audience eats it up, an enemy to hate upon! Would not want to use Reddit to promote Dr. Bandy X Lee nonfiction book on paper to stand up to the media crisis of people parroting Fox News and mind-fucked by Putin. Also note **this is not a 79 year old man with dementia** saying the same lines MAGA is saying all over the nation. This is the outcome of mass mind manipulation.
+<img width="1006" height="362" alt="image" src="https://github.com/user-attachments/assets/d6db8dc6-5d73-4e7b-8f2c-40d29c1554c3" /> THRILLED audience member of Reddit (favorite conflict) to have images / **video of hate messaging delivered to intimate touch personal media** device. Eating out of Putin's hands. Eating out of Twitter owner Elon Musk hands in his HQ of Austin, Texas. Eating out of Rupert Murdoch hands. It's scripted Reality TV fiction in the public streets. Mock vs. mock. Reddit audience eats it up, an enemy to hate upon! Would not want to use Reddit to promote Dr. Bandy X Lee nonfiction book on paper to stand up to the media crisis of people parroting Fox News and mind-fucked by Putin. Also note **this is not a 79 year old man with dementia** saying the same lines MAGA is saying all over the nation. This is the outcome of mass mind manipulation.
 
 * "Ours is the first age in which many thousands of the best-trained individual minds have made it a full-time business to get inside the collective public mind. To get inside in order to manipulate, exploit, control is the object now. And to generate heat, not light, is the intention. To keep everybody in the helpless state engendered by prolonged mental rutting" - [University of Toronto; Marshall McLuhan](/Art/ScreenPlay/Mental_Rutting/Public_Helplessness.md)
 
