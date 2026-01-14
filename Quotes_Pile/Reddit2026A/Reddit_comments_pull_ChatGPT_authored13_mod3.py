@@ -345,7 +345,11 @@ def fetch_comment_data(url, idx=None, args=None):
         if age18_content:
             print("age 18 content detected")
             age18_count += 1
-        raise ValueError(f"Could not find comment div with id t1_{comment_id} on page {url}")
+        # Abadoning exceptions for known predictable failures
+        # raise ValueError(f"Could not find comment div with id t1_{comment_id} on page {url}")
+        return {
+           "parsed": 1,
+        }
 
     print(f"processing comment {comment_id}")
 
@@ -412,6 +416,11 @@ def fetch_comment_data(url, idx=None, args=None):
                 # leave as "None" ... post_body = "No body text (link-only post)"
                 print("no post body top_matter usertext-body found")
 
+            # ToDo: Unfinished
+            post_account = top_matter.find("a", class_="author")
+            post_author_name = post_account.get_text() if post_account else "[deleted]"
+    
+
         else:
             print("no post body top_matter found")
         
@@ -422,6 +431,7 @@ def fetch_comment_data(url, idx=None, args=None):
 
 
     return {
+        "parsed": 0,
         "url": url,
         "author": onec["author"],
         "comment_id": comment_id,
@@ -664,6 +674,11 @@ def main():
             quit_request = pause_with_quit(30)
             if quit_request:
                 sys.exit(1)
+            continue
+
+        # currently matches here if age18 required
+        if data["parsed"] > 0:
+            print(f"PARSING returned matched skip, {data['parsed']}")
             continue
 
         # Markdown formatted output
