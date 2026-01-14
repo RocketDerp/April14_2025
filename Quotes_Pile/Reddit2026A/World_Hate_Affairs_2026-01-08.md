@@ -720,5 +720,13 @@ Russia has had economic war waged by Europe since February 20, 2014 and it has n
 * “I have always been troubled by that opinion, because it appears to me to have encouraged the intellectual and professional leaders of Germany to remain silent, even in the face of enormous and unprecedented danger. It does not seem to me that the German Psychiatric Association of the 1930s deserves any honor or credit for remaining silent during Hitler’s rise to power”
 ― Bandy X. Lee, The Dangerous Case of Donald Trump: 27 Psychiatrists and Mental Health Experts Assess a President. October 3, 2017.
 
+https://old.reddit.com/r/worldnews/comments/1qcscdq/greenland_macron_warns_of_cascading_consequences/nzkn6jh/
 
+Addiction to commenting about Trump on social meme sites is the war. Denial of Cambridge Analytica is the war. Denial of Internet Research Agency influence on Reddit since March 2013 is the war. Popularity of Fox News HDTV, Newsmax, Elon Musk Twitter is the war. Right on Reddit commenting, popularity of low-effort commenting and avoiding nonfiction books on paper. High speed TCP/IP media addicts commenting away about media star Donald Trump's leadership instead of educating and teaching.
+
+* “World War III is a guerrilla information war with no division between military and civilian participation.” – Marshall McLuhan (1970), Culture is Our Business, page 66. https://mcluhangalaxy.wordpress.com/2015/01/26/marshall-mcluhan-predicted-the-emerging-infowar/
+
+https://old.reddit.com/r/worldnews/comments/1qcscdq/greenland_macron_warns_of_cascading_consequences/nzko2s6/
+
+It was not like this before year 2013. The population prizes hate leader Donald Trump. People prize hate signals of media systems and follow them in very predictable pro-hate attitudes and mindsets. Surkov won.
 
