@@ -1134,3 +1134,20 @@ Getting Mental Health Professionals to take on the mechanics of advertising, sel
 
 https://old.reddit.com/r/Political_Revolution/comments/1qc9sfr/sos/nzgnjuc/
 
+https://old.reddit.com/r/memes/comments/1qc6jgj/remember_when_we_had_multiple_pages_of_results/nzg9jq3/
+
+Media ecology of exploiting the human mind / brain exploits for longer duration / addiction.
+
+https://old.reddit.com/r/memes/comments/1qc6jgj/remember_when_we_had_multiple_pages_of_results/nzh68d1/
+
+https://old.reddit.com/r/memes/comments/1qc6jgj/remember_when_we_had_multiple_pages_of_results/nzgfx5r/
+
+https://old.reddit.com/r/memes/comments/1qc6jgj/remember_when_we_had_multiple_pages_of_results/nzg50ge/
+
+https://old.reddit.com/r/memes/comments/1qc6jgj/remember_when_we_had_multiple_pages_of_results/nzg78c5/
+
+https://old.reddit.com/r/memes/comments/1qc6jgj/remember_when_we_had_multiple_pages_of_results/nzgi770/
+
+Being able to search by time period, such as only year 2019, is a mess.
+
+https://old.reddit.com/r/memes/comments/1qc6jgj/remember_when_we_had_multiple_pages_of_results/nzgs7tm/
