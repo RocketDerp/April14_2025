@@ -292,4 +292,11 @@ https://old.reddit.com/r/worldnews/comments/1qbzf6q/us_official_says_greenland_a
 
 ANSWER: because people are not taking seriously the teachings of Marshall McLuhan from 1950 to 1980. People will not read and study Neil Postman, New York University! People are in denial that Trump is first and foremost a media icon, a symbol of media content, and people blow their minds out on media messages! Fox News HDTV audience crisis, the purchase of Twitter media by Elon Musk, Facebook alternate realities, etc. Since March 2013, Russia has been waging an information war against NATO and USA!
 
+# Audiences Thrilled
+
+https://old.reddit.com/r/pics/comments/1qc8cxe/trump_flipped_off_a_ford_worker_who_yelled/nzgakhb/
+
+Ford motor company symbol combined with rich white men private jet sex symbol, combined wit "fuck you" hate gestures and meanings. Thrills the hell out of Reddit audiences. A dozen subreddits all proclaim this as the important topic to rally around! In no way is this resisting Trump, this is Trump playing the bad guy and audiences reacting. This is President Tony Clifton performing for his fandoms. Hate leadership / readership fandom, deep symbol gumbo of American POTUS + FORD + shit-talking keys. Indeed, a man of "The People" who are all media addicts to images of Donald J. Trump. Nothing can convince people that his core power is media audiences.
+
+<img width="2124" height="2751" alt="Screenshot 2026-01-13 at 17-50-49 all subreddits" src="https://github.com/user-attachments/assets/5351018f-92f7-46fd-b249-de166b021b86" />
 
