@@ -1218,6 +1218,8 @@ https://youtu.be/TkteSxVIM1A?t=648
 10:48        
 there's no simple answer for how *we* might change that. Though, if there were, I [bet](https://youtu.be/Ne2vIoVc7mo?t=55) it would have *something to do with [climbing](https://youtu.be/J4_wXPZ1Bnk?t=102) up out of* the cesspool that is social media and [actually listening](https://youtu.be/QkF3oxziUI4?t=427) to each *other*.
 
+# Clown Audience Clifton
+
 https://old.Reddit.com/r/LeopardsAteMyFace/comments/1qcpcgy/renee_nicole_goods_father_supported_trump_and/nzk0rq3/
 
 <img width="914" height="468" alt="image" src="https://github.com/user-attachments/assets/654159ee-0730-49ac-a93c-8aeffef8a33c" /> **Tony Clifton clowning SNL comedy show, NYC Trump home town entertainment**. Reddit is a cesspool of meme-image addicts to clown shows, audience of Clifton clown mocking. People spend all their free time and spare time **mocking the acting** of President Tony Clifton. Trump is an actor. Reddit is full (We The) people who cheer on bamboozle as entertainment. Anything to avoid nonfiction learning about mob mentality and group manipulation. Reddit audience is thrilled all day every day mocking away at Trump's media show.
