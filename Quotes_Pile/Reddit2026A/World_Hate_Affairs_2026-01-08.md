@@ -705,4 +705,20 @@ Calling out the Reddit community prizing of one-sentence Twitter-think in Januar
 
 https://old.reddit.com/r/news/comments/1qcervr/iranian_man_to_be_executed_on_wednesday_will_have/nzi1b1x/
 
-Fighting against Allah. Like fighting against Fox News HDTV. Like fighting against Reddit postings. Fiction storytelling. Age 26 man being put to death for disagreeing with a crowd's fiction storytelling.
+Fighting against Allah. Like fighting against Fox News HDTV. Like fighting against Reddit postings. Fiction storytelling. Age 26 man being put to death for disagreeing with a crowd's fiction storytelling. People on Reddit are avoiding serious important teaching like this:
+
+https://old.reddit.com/r/worldnews/comments/1qcscdq/greenland_macron_warns_of_cascading_consequences/nzkfpsk/
+
+World conquest as entertainment. Such a popular theme in video games for Reddit audiences. Entertainment driven society, as described by Neil Postman in his 1985 book "Amusing Ourselves To Death" - prizes Donald Trump as a source of stimulating media content.
+
+* "Top-selling world conquest military video games often include strategy giants like Civilization VI, grand strategy from Paradox like Hearts of Iron IV, and large-scale tactics from the Total War series (especially Three Kingdoms and Warhammer), alongside FPS giants like Call of Duty and Battlefield (WWII/Modern Warfare entries), though exact "world conquest" sales figures vary by game, genre, and era. Games like Civilization VI and Total War: Three Kingdoms have sold millions" - Google Search summary, 2026-01-14 afternoon USA
+
+https://old.reddit.com/r/worldnews/comments/1qcscdq/greenland_macron_warns_of_cascading_consequences/nzklj03/
+
+Russia has had economic war waged by Europe since February 20, 2014 and it has not prevented Putin from cultivating mob mentality / organized killing. What is absent is mental health workers of the world addressing mob mentality. Dr. Bandy X Lee ignored by We The People on social meme systems.
+
+* “I have always been troubled by that opinion, because it appears to me to have encouraged the intellectual and professional leaders of Germany to remain silent, even in the face of enormous and unprecedented danger. It does not seem to me that the German Psychiatric Association of the 1930s deserves any honor or credit for remaining silent during Hitler’s rise to power”
+― Bandy X. Lee, The Dangerous Case of Donald Trump: 27 Psychiatrists and Mental Health Experts Assess a President. October 3, 2017.
+
+
+
