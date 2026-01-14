@@ -1628,3 +1628,11 @@ https://old.reddit.com/r/europe/comments/1q4oq2w/after_decades_of_teaching_media
 Stop Buying Magic Spoon     
 https://www.youtube.com/watch?v=j_eAYGI80HY     
 91,416 views December 27, 2025    
+
+&nbsp;
+
+# Fantasy about human brain flaws
+
+https://old.reddit.com/r/CuratedTumblr/comments/1qcxeyn/the_mandela_effect/
+
+Yes. It is denial of how people around you have exploitable patterns of bewilderment and confusion. It is to deny the known problems of the human mind / brain hardware to invent magical interpretations. Magical thinking.
