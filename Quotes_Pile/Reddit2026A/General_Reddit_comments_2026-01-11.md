@@ -1217,3 +1217,9 @@ https://youtu.be/TkteSxVIM1A?t=648
 
 10:48        
 there's no simple answer for how *we* might change that. Though, if there were, I [bet](https://youtu.be/Ne2vIoVc7mo?t=55) it would have *something to do with [climbing](https://youtu.be/J4_wXPZ1Bnk?t=102) up out of* the cesspool that is social media and [actually listening](https://youtu.be/QkF3oxziUI4?t=427) to each *other*.
+
+https://old.Reddit.com/r/LeopardsAteMyFace/comments/1qcpcgy/renee_nicole_goods_father_supported_trump_and/nzk0rq3/
+
+<img width="914" height="468" alt="image" src="https://github.com/user-attachments/assets/654159ee-0730-49ac-a93c-8aeffef8a33c" /> **Tony Clifton clowning SNL comedy show, NYC Trump home town entertainment**. Reddit is a cesspool of meme-image addicts to clown shows, audience of Clifton clown mocking. People spend all their free time and spare time **mocking the acting** of President Tony Clifton. Trump is an actor. Reddit is full (We The) people who cheer on bamboozle as entertainment. Anything to avoid nonfiction learning about mob mentality and group manipulation. Reddit audience is thrilled all day every day mocking away at Trump's media show.
+
+* “One of the saddest lessons of history is this: If we’ve been bamboozled long enough, we tend to **reject any evidence of the bamboozle**. We’re no longer interested in finding out the truth. The bamboozle has captured us. It’s simply too painful to acknowledge, even to ourselves, that we’ve been taken. Once you give a charlatan power over you, you almost never get it back.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, **1995**, page 241
