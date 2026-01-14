@@ -326,3 +326,15 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1qcc7kg/the_man_who_called_
 
 Exactly. I get banned from Reddit along with other people for standing up to organized bullies. Bullies are leading the nation now.
 
+https://old.reddit.com/r/nottheonion/comments/1qcc6wv/joe_rogan_criticizes_ice_tactics_are_we_really/nzh809v/
+
+The only "crazy" people think about is individuals. People write the word "cult" but are unable to cite books on media ecology / audience and crowd behaviors. Fox News HDTV problem isn't taken seriously, Jen Senko's nonfiction film not cited nearly enough. Dr. Bandy X Lee since early 2017 barely given any pubic attention. While sex monster Epstein is given nonstop repeating as important name, not even for change or arrest, just for "information list", Q Drop / QAnon style information pursuit.
+
+https://old.reddit.com/r/nottheonion/comments/1qcc6wv/joe_rogan_criticizes_ice_tactics_are_we_really/nzh687i/
+
+The adult men who admire and follow and consume Joe Rogan as a product and "experience" are far more concern than Joe Rogan himself. That people consider his content as something to follow and learn from. There are so many topics to study and analyze in this world, and Joe Rogan is an attraction to religion-like clergy for billionaires. Like Rupert Murdoch's fandom / audiences.
+
+https://old.reddit.com/r/nottheonion/comments/1qcc6wv/joe_rogan_criticizes_ice_tactics_are_we_really/nzha830/
+
+Part of a hue problem where people prize poor sources of information.
+
