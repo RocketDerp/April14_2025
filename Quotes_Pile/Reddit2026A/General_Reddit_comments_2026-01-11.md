@@ -1082,3 +1082,31 @@ https://old.reddit.com/r/50501/comments/1qc4uod/american_here_with_a_message_for
 
 Out-group hate patterns. Which people will not turn to nonfiction learning. Group behaviors. Team sports mentality. People all over the world need to call on mental health workers to discuss mob mentality / group dynamics ... we all globally really need to be **rallying around Dr. Bandy X Lee's leadership**, her published nonfiction books since year 2017!
 
+https://old.reddit.com/r/liberalgunowners/comments/1qc6a9v/i_dont_recognize_this_country/nzfv0lq/
+
+Gun worship is the concern. We have raging mental health mob mentality / group thinking issues. Dr. Bandy X Lee should be followed, asserted, quoted every 6 hours until we get mental health of aggressive men front and center as a topic! 
+
+* "Greed has poisoned men’s souls, has barricaded the world with hate, has goose-stepped us into misery and bloodshed. We have developed speed, but we have shut ourselves in. Machinery that gives abundance has left us in want. Our knowledge has made us cynical. Our cleverness, hard and unkind." - The Great Dictator, fiction that has some great language, year 1940 https://www.charliechaplin.com/en/articles/29-the-final-speech-from-the-great-dictator-
+
+https://old.reddit.com/r/liberalgunowners/comments/1qc6a9v/i_dont_recognize_this_country/nzfv8ob/
+
+Extreme Tiny-short logic thinking. Tweet-thinking, Bluesky-thinking messaging. Get people into high action high energy logical mindsets.
+
+https://old.reddit.com/r/liberalgunowners/comments/1qc6a9v/i_dont_recognize_this_country/nzfx504/
+
+Reddit messages calling the power of the USA government "soft" and "weak" and downplaying the threat to individuals and humanism. It is far easier to murder and kill human beings than teach compassion and love!
+
+https://old.reddit.com/r/liberalgunowners/comments/1qc6a9v/i_dont_recognize_this_country/nzfzrin/
+
+The behavior changes on social media with the Internet Research Agency since March 2013. The prizing of hate, the open hostility towards world peace. Surkov won. By early year 2015, the stage was set for Trump's rise / MAGA. People praise abuse as entertainment. These videos thrill people, a reason to hate. We should all be wiling in the streets calling for every mental health professional in the world to talk down the aggressive men that Putin has mind-fucked with military psychological operations. People have become hate addicted, hate motivated. Mental health leaders like Dr. Bandy X Lee have largely been ignored since sticking their neck out in early year 2017.
+
+https://old.reddit.com/r/liberalgunowners/comments/1qc6a9v/i_dont_recognize_this_country/nzfuc9h/
+
+The billionaires and tech lovers. Technology addicts. Elon Musk technology addict leading the nation. So many people prized first person shooter video games and being bad-ass criminals like Walter White... this is what people desire. People should be asserting goodness: MLK Jr quotes, Dr. Bandy X Lee's name and book quotes, Jen Senko's film, etc.
+
+https://old.reddit.com/r/liberalgunowners/comments/1qc6a9v/i_dont_recognize_this_country/nzfycjk/
+
+https://old.reddit.com/r/liberalgunowners/comments/1qc6a9v/i_dont_recognize_this_country/nzfzq1r/
+
+Yes. Black Lives Matter was all abound standing up to the inequality issues. But people are too amused on social media with memes to actually take hate as a problem. People prize hate more often than not. [We all, We The People, All of us need to view hate as a brain issue / mind issue. Stand up for MLK Jr's February 28, 1954 realization (teaching) of hate is bad in ALL places and ALL time periods.](../Martin_Luther_King_Jr_quotes0.md)
+
