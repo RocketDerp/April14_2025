@@ -1005,3 +1005,20 @@ Mass dehumanization through organized nonsense. "The woman also says she's an au
 https://old.reddit.com/r/ICE_Raids/comments/1qc17i1/today_at_34th_and_park_in_minneapolis_a_woman/nzeyc4w/
 
 They are acting like: mob mentality, bully, street gang. Group thinking. From media content. https://www.youtube.com/watch?v=09maaUaRT4M&t=743s Please watch: "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL"
+
+https://old.reddit.com/r/complaints/comments/1qc47qd/breaking_trump_humiliates_himself_doing_a_mocking/nzftb1j/
+
+Gullibility abounds. Denial abounds. So many people blow their minds out on cheap memes and junk Fox News HDTV content. Russia won, Surkov won since March 2013 and it is now a giggle-fest mockery nation.
+
+https://old.reddit.com/r/complaints/comments/1qc47qd/breaking_trump_humiliates_himself_doing_a_mocking/nzfthef/
+
+People aren't sitting on their hands. The population of the United States of America is using hands on touch devices to finger in comments and memes about Donald J. Trump and MAGA every hour of every day. Actively laboring away to an entertainment leader. Amused population as Neil Postman described in his 1985 book "Amusing Ourselves To Death" about high-speed media addictions to a 2nd-term POTUS. We could all be using social media to assert and quote Dr. Bandy X Lee, instead it is commenting all over social meme sites to joke-wash and sane-wash Trump as a source of constant stimulation for meme content.
+
+https://old.reddit.com/r/complaints/comments/1qc47qd/breaking_trump_humiliates_himself_doing_a_mocking/nzfhibi/
+
+https://old.reddit.com/r/complaints/comments/1qc47qd/breaking_trump_humiliates_himself_doing_a_mocking/nzfhjvx/
+
+He mocks everyone, not just his enemies. He mocks his own self. People really need to study the character Tony Clifton that Trump plays for Reddit audiences. Home town NYC SNL character of Trump's younger decades. It blows audience minds into meme stupors.
+
+https://old.reddit.com/r/complaints/comments/1qc47qd/breaking_trump_humiliates_himself_doing_a_mocking/nzfhdzn/
+
