@@ -1177,3 +1177,21 @@ OPERA_A Don't believe the fiction driven Church and State.. and everything they 
 https://old.reddit.com/r/worldnews/comments/1qcjk1m/nearly_17k_fans_cancel_2026_world_cup_tickets/nziqlpd/
 
 Reddit messages to audience: go back to sleep. We The People are unimportant. Only the wealthy team owners and wealthy team players with their army of spots medicine doctors are important. Give up on any resistance to Trump / MAGA movement.
+
+https://old.reddit.com/r/news/comments/1qcps67/fbi_raids_home_of_washington_post_reporter_in/nzjwjki/
+
+Yes. The addiction to fiction content and "meme lifestyle" has wrecked the nation. High-speed short-length commenting instead of turning to serious on-topic nonfiction books. Avoiding repeating and asserting: { Jen Senko, Marshall McLuhan, Neil Postman, Dr. Bandy X Lee, Peter Pomerantsev, Bill Moyers }.
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mcfhrwg63s2k https://autistics.life/@RoundSparrow/115894347631852914 }
+
+https://old.reddit.com/r/news/comments/1qcps67/fbi_raids_home_of_washington_post_reporter_in/nzjwm2z/
+
+Note the absence of off-Reddit URL, quotes from book, author name, book title. Commenting addiction runs the nation now, commenting on every action of the Kremlin and White House, Fox News audience, MAGA, etc.
+
+* "how when capitalism reached a certain level of accumulation, commodities began to detach themselves and become images. And citizens who formerly had played roles as political actors began to detach themselves from their own lives and become spectators." - Rick Roderick https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
+
+https://old.reddit.com/r/news/comments/1qcps67/fbi_raids_home_of_washington_post_reporter_in/nzjw0jy/
+
+Russia / Putin. Note the absence of off-Reddit URL, quotes from book, author name, book title. Commenting addiction runs the nation now, commenting on every action of the Kremlin and White House, Fox News audience, MAGA, etc.
+
+* "They have co-opted Western pundits on the RT (formerly Russia Today) English-language television station. And they have subsidized the research of Western academics at Russian universities. "It is a mistake to believe that Putin wants to lower a new Iron Curtain, build a new Berlin Wall and pursue a policy of isolationism," Morozov wrote in Colta.ru. "On the contrary, Putin is creating a new Comintern. This is not isolationism, but rather **the maximum Putinization of the world**. The Comintern was a complex system that worked with ideologically sympathetic intellectuals and politicians. What we are seeing now is not an attempt to restore the past, but the creation of an entirely new hegemony." The Kremlin test-drove the approach in Ukraine this fall." - December 20, 2013 (before February 20, 2014 Ukraine invasion) https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/
