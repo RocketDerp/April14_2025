@@ -730,3 +730,4 @@ https://old.reddit.com/r/worldnews/comments/1qcscdq/greenland_macron_warns_of_ca
 
 It was not like this before year 2013. The population prizes hate leader Donald Trump. People prize hate signals of media systems and follow them in very predictable pro-hate attitudes and mindsets. Surkov won.
 
+https://old.reddit.com/r/worldnews/comments/1qcscdq/greenland_macron_warns_of_cascading_consequences/nzknioc/
