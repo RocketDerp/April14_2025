@@ -799,3 +799,17 @@ https://old.reddit.com/r/ProgressiveHQ/comments/1qcz4qt/breaking_in_a_stunning_m
 <img width="1039" height="883" alt="image" src="https://github.com/user-attachments/assets/887a1b01-6132-40ea-8b28-7056dddc446a" /> Constant stimulation for meme addicts. Every day is exciting and thrilling when Trump plays actor of Tony Clifton performances. High-speed information systems, TCP/IP networks, deliver the latest Trump antics to media society.
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mcg76nbp5c26 https://autistics.life/@RoundSparrow/115895995345500966 }
+
+https://old.reddit.com/r/worldnews/comments/1qcz1gk/trump_intent_on_conquering_greenland_danish/nzm10z7/
+
+"Insane" messaging on Reddit. But Reddit users will not quote or repeat Dr. Bandy X Lee - because she is a woman leader? Because she is not 79 years old? People prize Trump's every word as entertainment on Reddit.  So much "LOL cow milking" and meme mockery originates from Trump being center of media attention, center of Reddit media empire.
+
+* “The issue that we are raising is not whether Trump is mentally ill. It is whether he is dangerous. Dangerousness is not a psychiatric diagnosis. One does not have to be “mentally ill,” as both law and psychiatry define it, in order to be dangerous.”
+― Bandy X. Lee, The Dangerous Case of Donald Trump: 27 Psychiatrists and Mental Health Experts Assess a President. October 3, 2017
+
+https://old.reddit.com/r/worldnews/comments/1qcz1gk/trump_intent_on_conquering_greenland_danish/nzm1gd3/
+
+More "insanity" commenting. Reddit audience is addicted to commenting above all else. Anything to avoid nonfiction book learning and following Dr. Bandy X Lee.
+
+* “There is considerable evidence to suggest that absolute tyranny is DT’s wet dream. The unopposed dictator is the embodiment of the ability to demand adulation on the one hand and to eradicate all perceived enemies with the simple nod”
+― Bandy X. Lee, The Dangerous Case of Donald Trump: 27 Psychiatrists and Mental Health Experts Assess a President. [Published October 3, 2017. Page 115](https://books.google.com/books?id=g0c4DwAAQBAJ&pg=PA115&dq=%E2%80%9CThere+is+considerable+evidence+to+suggest+that+absolute+tyranny+is+DT%E2%80%99s+wet+dream.%E2%80%9D&hl=en&newbks=1&newbks_redir=1&sa=X)
