@@ -747,3 +747,11 @@ Itchy violence, itchy trigger finger, itchy button for war fingers in the White 
 https://old.reddit.com/r/worldnews/comments/1qcw90q/us_military_intervention_in_iran_may_begin_within/nzldwxi/
 
 Reddit audiences race to have early comments on Reddit. Entertainment addiction drives Trump power.
+
+https://old.reddit.com/r/worldnews/comments/1qcwfxi/iceland_is_next_incoming_us_ambassador_jokes/nzlhlt0/
+
+Entertainment tone of joke-washing and mockery is unstoppable. Surkov student techniques are impossible to defend against. People blow their minds out when joke-leadership of mass dehumanization is deployed.
+
+https://old.reddit.com/r/worldnews/comments/1qcwfxi/iceland_is_next_incoming_us_ambassador_jokes/nzldhly/
+
+Surkov won since March 2013. Reddit audiences are in meme stupor at the joke wrapping that the Kremlin and White House do for meme addict USA society.
