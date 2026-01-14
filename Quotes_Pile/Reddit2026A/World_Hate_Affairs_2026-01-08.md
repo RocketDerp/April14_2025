@@ -696,3 +696,9 @@ https://old.reddit.com/r/50501/comments/1qc4uod/american_here_with_a_message_for
 MAGA International. 
 
 * "They have co-opted Western pundits on the RT (formerly Russia Today) English-language television station. And they have subsidized the research of Western academics at Russian universities. "It is a mistake to believe that Putin wants to lower a new Iron Curtain, build a new Berlin Wall and pursue a policy of isolationism," Morozov wrote in Colta.ru. "On the contrary, Putin is creating a new Comintern. This is not isolationism, but rather **the maximum Putinization of the world**. The Comintern was a complex system that worked with ideologically sympathetic intellectuals and politicians. What we are seeing now is not an attempt to restore the past, but the creation of an entirely new hegemony." The Kremlin test-drove the approach in Ukraine this fall." - December 20 2013 (before February 20, 2014 Ukraine invasion) https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/
+
+https://old.reddit.com/r/worldnews/comments/1qch2rb/denmarks_rockwool_says_russia_has_seized_four_of/nzi45rt/
+
+https://old.reddit.com/r/worldnews/comments/1qch2rb/denmarks_rockwool_says_russia_has_seized_four_of/nzi5rq3/
+
+Calling out the Reddit community prizing of one-sentence Twitter-think in January 2026. Buzzy noise commenting that trivializes serous topics into a kind of "it so obvious" screen game first-post / first-comment junk information.
