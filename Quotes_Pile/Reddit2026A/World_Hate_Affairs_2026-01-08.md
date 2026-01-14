@@ -758,6 +758,6 @@ Surkov won since March 2013. Reddit audiences are in meme stupor at the joke wra
 
 https://old.reddit.com/r/worldnews/comments/1qcwfxi/iceland_is_next_incoming_us_ambassador_jokes/nzlep6m/
 
-<img width="955" height="324" alt="image" src="https://github.com/user-attachments/assets/da3e4cb1-4fc5-4044-a220-0f870db78bae" /> Meme audiences adore it. Media addicts constantly treat it all like comedy TV, TV mindset. More power than anyone in history using joke-washing, amusement. President Tony Clifton performance has defeated We The People.
+<img width="987" height="372" alt="image" src="https://github.com/user-attachments/assets/0cd17a33-236f-49ef-b09f-6765d890d1b4" /> Meme audiences adore it. Media addicts constantly treat it all like comedy TV, TV mindset. More power than anyone in history using joke-washing, amusement. President Tony Clifton performance has defeated We The People.
 
 Social post { https://autistics.life/@RoundSparrow/115895503882550778 https://bsky.app/profile/roundsparrow.bsky.social/post/3mcfya57spk2p }
