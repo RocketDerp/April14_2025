@@ -322,3 +322,7 @@ https://old.reddit.com/r/WorkReform/comments/1qc1f73/heres_why_youve_been_seeing
 
 https://old.reddit.com/r/WorkReform/comments/1qc1f73/heres_why_youve_been_seeing_so_much_positive/nzevpai/
 
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qcc7kg/the_man_who_called_trump_a_pedophile_protector/nzh9xnz/
+
+Exactly. I get banned from Reddit along with other people for standing up to organized bullies. Bullies are leading the nation now.
+
