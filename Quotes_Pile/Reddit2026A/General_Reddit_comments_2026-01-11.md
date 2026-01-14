@@ -1042,3 +1042,21 @@ It's not unique to USA. Malala has a chapter in her year 2013 book, "Radio Mulla
 
 https://old.reddit.com/r/CringeTikToks/comments/1qc6y4w/do_not_talk_about_charlie_kirk_on_a_cruise/nzg2d5k/
 
+https://old.reddit.com/r/complaints/comments/1qc6nrf/conservatives_are_ruining_america/nzfy7sh/
+
+https://old.reddit.com/r/complaints/comments/1qc6nrf/conservatives_are_ruining_america/nzg045p/
+
+https://old.reddit.com/r/complaints/comments/1qc6nrf/conservatives_are_ruining_america/nzg8fix/
+
+https://old.reddit.com/r/complaints/comments/1qc6nrf/conservatives_are_ruining_america/nzg23ti/
+
+https://old.reddit.com/r/complaints/comments/1qc6nrf/conservatives_are_ruining_america/nzg2yby/
+
+https://old.reddit.com/r/complaints/comments/1qc6nrf/conservatives_are_ruining_america/nzg12n0/
+
+Levant God { Allah, Yahweh, Jesus } is a dictator with a big Judgement Day and Hell to punish. Commandments chief. Book of Mormon same. Belief in a dictatorship is part of the childhood indoctrination with Santa and Christmas fiction storytelling about magical pregnancy of a virgin woman.
+
+https://old.reddit.com/r/complaints/comments/1qc6nrf/conservatives_are_ruining_america/nzg3h60/
+
+Hate and domination, very often favoring men who dominate other men and women. Controlling manipulative media empire owning men like Elon Musk Twitter and Rupert Murdoch Fox News.
+
