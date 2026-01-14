@@ -87,3 +87,9 @@ I don't agree to ignore it, avoid it. Assert good education, quote nonfiction pa
 
 https://www.youtube.com/watch?v=dnVo6FkG94U      
 "The Fascists are Lying about ICE Murdering an Innocent Woman"    
+
+My comment:
+
+<img width="1480" height="445" alt="image" src="https://github.com/user-attachments/assets/277ec8fb-a2c3-43c1-bb41-94e1c2c05ff0" />
+
+"Dr Bandy X Lee has been leading since year 2017 on the mental health crisis. But social media users are too engaged with Twitter junk and Tweet trash to assert nonfiction books published October 3, 2017."
