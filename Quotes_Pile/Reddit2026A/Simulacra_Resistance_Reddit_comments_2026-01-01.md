@@ -346,3 +346,9 @@ Screen shot of Musk Twitter on Reddit, this is simulation of resistance. The com
 
 * German-Jewish poet Heinrich Heine: "Where they burn books, they will ultimately burn people also" (or "Where they burn books, they will, in the end, burn human beings too"). Originally from his **year 1821** play *Almansor*.. because of the Bible book driven *Spanish Inquisition*. People who believe there is one and only one perfect book in the entire public library: The Bible science fiction book with magical outer-space pregnancy of a virgin woman. Gullibility to confuse fiction with nonfiction. Film burning on Apple TV+ may not require flame and paper, but it is book burning. They did not have films in Germany in year 1821 for people to burn as physical media.
 
+https://old.reddit.com/r/clevercomebacks/comments/1qcn9ga/that_will_show_them/nzjeln7/
+
+Reddit tells anti-MAGA how to think. Fiction vs. fiction. Avengers is fiction storytelling. Bible is fiction storytelling. clergy vs. clergy. 
+
+Following what other people tell you to think isn't a problem if it is goodness. All getting on the same page f a good ideas is not a threat. All commenting on different trees of messages on Reddit and avoiding Dr. Bandy X Lee's nonfiction book and leadership since year 2017 is a terrible behavior and terrible thinking.
+
