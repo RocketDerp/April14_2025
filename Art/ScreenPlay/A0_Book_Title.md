@@ -208,6 +208,11 @@ Memes exploit Brain
 Memes exploit Minds    
 -- focus on John 1:1 meme and avoidance of paired "1 John 4:20" unseen    
 
+Monomyth wars (A brief History of John 1:1)    
+Monomyth warfare     
+Battles of John 1:1    
+
+
 &nbsp;
 
 # More Fleshed?
@@ -229,3 +234,4 @@ https://www.youtube.com/watch?v=09maaUaRT4M&t=744s
 8,623,935 views August 3, 2021   
 
 How many millions of people have to watch since year 2021? 
+
