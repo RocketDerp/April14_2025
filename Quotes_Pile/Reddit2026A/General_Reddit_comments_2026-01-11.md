@@ -1110,3 +1110,18 @@ https://old.reddit.com/r/liberalgunowners/comments/1qc6a9v/i_dont_recognize_this
 
 Yes. Black Lives Matter was all abound standing up to the inequality issues. But people are too amused on social media with memes to actually take hate as a problem. People prize hate more often than not. [We all, We The People, All of us need to view hate as a brain issue / mind issue. Stand up for MLK Jr's February 28, 1954 realization (teaching) of hate is bad in ALL places and ALL time periods.](../Martin_Luther_King_Jr_quotes0.md)
 
+https://old.reddit.com/r/Millennials/comments/1qc2a5g/im_just_gonna_say_it_the_whole_kids_no_kids/nzf79jm/
+
+Birth control and choice marriage honesty.
+
+https://old.reddit.com/r/Millennials/comments/1qc2a5g/im_just_gonna_say_it_the_whole_kids_no_kids/nzf10ar/
+
+https://old.reddit.com/r/Millennials/comments/1qc2a5g/im_just_gonna_say_it_the_whole_kids_no_kids/nzfmmap/
+
+https://old.reddit.com/r/Millennials/comments/1qc2a5g/im_just_gonna_say_it_the_whole_kids_no_kids/nzf0fse/
+
+We have made work situations so competitive and dominating, the branding of our employer as identity...
+
+https://old.reddit.com/r/Millennials/comments/1qc2a5g/im_just_gonna_say_it_the_whole_kids_no_kids/nzf2gzh/
+
+Predators are international. Twitter reach comes right next door to your neighbors.
