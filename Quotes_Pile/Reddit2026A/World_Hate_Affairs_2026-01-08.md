@@ -702,3 +702,7 @@ https://old.reddit.com/r/worldnews/comments/1qch2rb/denmarks_rockwool_says_russi
 https://old.reddit.com/r/worldnews/comments/1qch2rb/denmarks_rockwool_says_russia_has_seized_four_of/nzi5rq3/
 
 Calling out the Reddit community prizing of one-sentence Twitter-think in January 2026. Buzzy noise commenting that trivializes serous topics into a kind of "it so obvious" screen game first-post / first-comment junk information.
+
+https://old.reddit.com/r/news/comments/1qcervr/iranian_man_to_be_executed_on_wednesday_will_have/nzi1b1x/
+
+Fighting against Allah. Like fighting against Fox News HDTV. Like fighting against Reddit postings. Fiction storytelling. Age 26 man being put to death for disagreeing with a crowd's fiction storytelling.
