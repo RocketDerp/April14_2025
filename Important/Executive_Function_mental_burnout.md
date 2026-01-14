@@ -35,7 +35,7 @@ https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutio
 
 &nbsp;
 
-hallucinations, believing fiction as reality. Russian information warfare outcomes are people being addicted to fiction and unverified information, replulsed by authentic sincere sources of knolwedge and teaching.
+hallucinations, believing fiction as reality. Russian information warfare outcomes are people being addicted to fiction and unverified information, repulsed by authentic sincere sources of knowledge and teaching.
 
 &nbsp;
 
@@ -63,3 +63,9 @@ MAGA and Donald Trump is extreme egomania values. And mental health professional
 It's possible someone could use the Internet and rapidly prepare a treatment plan for #MAGA cult to anti-reality. It is essential to study Russian information warfare that originated back in year 2013 and was documented and written about in year 2014 
 
 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+&nbsp;
+
+# See Also
+
+[Mental Rutting usage by Marshall McLuhan](/Art/ScreenPlay/Mental_Rutting)
