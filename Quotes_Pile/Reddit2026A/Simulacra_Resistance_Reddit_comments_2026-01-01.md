@@ -300,3 +300,25 @@ Ford motor company symbol combined with rich white men private jet sex symbol, c
 
 <img width="2124" height="2751" alt="Screenshot 2026-01-13 at 17-50-49 all subreddits" src="https://github.com/user-attachments/assets/5351018f-92f7-46fd-b249-de166b021b86" />
 
+https://old.reddit.com/r/WorkReform/comments/1qc1f73/heres_why_youve_been_seeing_so_much_positive/nzescua/
+
+When I witnessed Bill Gates in year 1997 bail out his competitor Steve Jobs / Apple Computers ... to create a two-party system like Coke and Pepsi... and the Halloween document leaks from Microsoft...
+
+https://old.reddit.com/r/WorkReform/comments/1qc1f73/heres_why_youve_been_seeing_so_much_positive/nzf4oal/
+
+https://old.reddit.com/r/WorkReform/comments/1qc1f73/heres_why_youve_been_seeing_so_much_positive/nzeuiy6/
+
+https://old.reddit.com/r/WorkReform/comments/1qc1f73/heres_why_youve_been_seeing_so_much_positive/nzeudp6/
+
+Business as usual. Putin has mind-fucked the population into self-harm at every level on every topic.
+
+https://old.reddit.com/r/WorkReform/comments/1qc1f73/heres_why_youve_been_seeing_so_much_positive/nzf0uo4/
+
+We should have had 30 to 50 social leaders for goodness. Just repeating MLK Jr's teachings. Especially since October 7, 2023 terrorism and reaction to Palestine. Instead, we get people trying to sell shallow shit. Criticizing hate in the Middle East wraps around to criticizing hate in USA and Russia.
+
+https://old.reddit.com/r/WorkReform/comments/1qc1f73/heres_why_youve_been_seeing_so_much_positive/nzg2pgy/
+
+4-month old Reddit account. There isn't a social site that isn't people seeking to deport, block, dehumanize, filter-bubble.
+
+https://old.reddit.com/r/WorkReform/comments/1qc1f73/heres_why_youve_been_seeing_so_much_positive/nzevpai/
+
