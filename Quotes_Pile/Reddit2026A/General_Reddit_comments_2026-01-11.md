@@ -1151,3 +1151,8 @@ https://old.reddit.com/r/memes/comments/1qc6jgj/remember_when_we_had_multiple_pa
 Being able to search by time period, such as only year 2019, is a mess.
 
 https://old.reddit.com/r/memes/comments/1qc6jgj/remember_when_we_had_multiple_pages_of_results/nzgs7tm/
+
+https://old.reddit.com/r/nottheonion/comments/1qci8ie/hegseth_announces_grok_access_to_classified/nzibk47/
+
+The nation is driven by tiny-short commenting messages like the one inked on Reddit. People who are attracted to clown content, clown information systems. Billionaires are investing in networks beyond Fox News because that is what We The People keep seeking out and tuning into. Low-effort Reddit commenting drives the most active minds in the nation. Stimulation by junk information. 'Engagement" commenting with tree after tree and unable to see the others in the audience, the forest.
+
