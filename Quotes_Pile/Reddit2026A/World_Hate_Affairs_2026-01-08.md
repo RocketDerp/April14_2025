@@ -813,3 +813,10 @@ More "insanity" commenting. Reddit audience is addicted to commenting above all 
 
 * “There is considerable evidence to suggest that absolute tyranny is DT’s wet dream. The unopposed dictator is the embodiment of the ability to demand adulation on the one hand and to eradicate all perceived enemies with the simple nod”
 ― Bandy X. Lee, The Dangerous Case of Donald Trump: 27 Psychiatrists and Mental Health Experts Assess a President. [Published October 3, 2017. Page 115](https://books.google.com/books?id=g0c4DwAAQBAJ&pg=PA115&dq=%E2%80%9CThere+is+considerable+evidence+to+suggest+that+absolute+tyranny+is+DT%E2%80%99s+wet+dream.%E2%80%9D&hl=en&newbks=1&newbks_redir=1&sa=X)
+
+https://old.reddit.com/r/worldnews/comments/1qcz1gk/trump_intent_on_conquering_greenland_danish/nzm0bmk/
+
+<img width="854" height="660" alt="image" src="https://github.com/user-attachments/assets/93d86ae7-5b34-4d42-a152-591cfe09608f" /> Peter Pomerantsev has been ignored by social media meme addicts. Nonfiction books rotting on the shelf since year 2014, and articles before that. 
+
+Social post { https://autistics.life/@RoundSparrow/115896146610452440 https://bsky.app/profile/roundsparrow.bsky.social/post/3mcgbdkab622o }
+
