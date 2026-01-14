@@ -1031,3 +1031,14 @@ https://old.reddit.com/r/news/comments/1qc58p4/madness_two_us_citizens_violently
 Yes, **LIKE ENTERTAINMENT MOVIE**. Madness of fiction running our real nation. 
 
 https://www.politico.com/magazine/story/2015/01/putin-russia-tv-113960/ At one end of the table sat one of the country’s most famous political TV presenters. He was small and spoke fast, with a smoky voice: “We all know there will be no real politics,” he said. “But we still have to give our viewers the sense something is happening. They need to be kept entertained.” “So what should we play with?” he asked. “Shall we attack oligarchs? Who’s the enemy this week? Politics has got to feel like a movie!”
+
+https://old.reddit.com/r/CringeTikToks/comments/1qc6y4w/do_not_talk_about_charlie_kirk_on_a_cruise/nzg0avo/
+
+Media cults. Charlie Kirk is a content producer. Every time a famous person dies, the front page of /r/All has people racing to comment. Ozzy Osbourne, another content producer, dies at age 76 and there was a huge emotional reaction among the fandoms. Media audiences behave this way. Cults of media content. And instead of teaching and educating how Donald Trump and Rupert Murdoch Fox News are media cults, people ask questions in no-serious ways and don't call for ALL PEOPLE to be educated. 
+
+https://old.reddit.com/r/CringeTikToks/comments/1qc6y4w/do_not_talk_about_charlie_kirk_on_a_cruise/nzg0nme/
+
+It's not unique to USA. Malala has a chapter in her year 2013 book, "Radio Mullah". https://www.rferl.org/a/radio-mullah-new-leader/25161547.html Rush Limbaugh fandom can be comparative mythology discussion / analyzed. 
+
+https://old.reddit.com/r/CringeTikToks/comments/1qc6y4w/do_not_talk_about_charlie_kirk_on_a_cruise/nzg2d5k/
+
