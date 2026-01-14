@@ -338,3 +338,11 @@ https://old.reddit.com/r/nottheonion/comments/1qcc6wv/joe_rogan_criticizes_ice_t
 
 Part of a hue problem where people prize poor sources of information.
 
+https://old.reddit.com/r/clevercomebacks/comments/1qcn9ga/that_will_show_them/nzjb78q/
+
+They aren't "offended", they are aggressively blocking the media. Social media blocking, deporting, self-deporting, bullying away people they disagree with. It is information war, the film itself, the message egoism and egomania. It is a symptom of **information overload**, diversity, and incredibly popular on Bluesky and Reddit to **announce you are burning books, burning films, deleting film, blocking a human person with ICE**. Just like wrecking other animals or plant life on Earth, destruction. Anti-diversity, anti-goodness.
+
+Screen shot of Musk Twitter on Reddit, this is simulation of resistance. The comments are Twitter-length tweet-think binary logic. The saddest think is Reddit audience thinks it is *winning*... by repeating MAGA phrase "snowflake" throughout the comment section. That's MAGA year 2015 behavior that is now everyone USA behavior year 2026. Anti-education, anti-teaching. Just bonfire of the Tweet-think mind patterns that the IRA conditioned since March 2013. (Bonfire of education, teaching, goodness). 
+
+* German-Jewish poet Heinrich Heine: "Where they burn books, they will ultimately burn people also" (or "Where they burn books, they will, in the end, burn human beings too"). Originally from his **year 1821** play *Almansor*.. because of the Bible book driven *Spanish Inquisition*. People who believe there is one and only one perfect book in the entire public library: The Bible science fiction book with magical outer-space pregnancy of a virgin woman. Gullibility to confuse fiction with nonfiction. Film burning on Apple TV+ may not require flame and paper, but it is book burning. They did not have films in Germany in year 1821 for people to burn as physical media.
+
