@@ -731,3 +731,19 @@ https://old.reddit.com/r/worldnews/comments/1qcscdq/greenland_macron_warns_of_ca
 It was not like this before year 2013. The population prizes hate leader Donald Trump. People prize hate signals of media systems and follow them in very predictable pro-hate attitudes and mindsets. Surkov won.
 
 https://old.reddit.com/r/worldnews/comments/1qcscdq/greenland_macron_warns_of_cascading_consequences/nzknioc/
+
+https://old.reddit.com/r/worldnews/comments/1qcw90q/us_military_intervention_in_iran_may_begin_within/nzlb6rl/
+
+The clergy and mental health professionals sure didn't stand up with Malala's October 8, 2013 book. “If Christians, Hindus or Jews are really our enemies, as so many say, why are we Muslims fighting with each other?” ― Malala Yousafzai, I am Malala: The Story of the Girl Who Stood Up for Education and was Shot by the Taliban
+
+https://old.reddit.com/r/worldnews/comments/1qcw90q/us_military_intervention_in_iran_may_begin_within/nzlmego/
+
+Joined Reddit on New Years Eve...
+
+https://old.reddit.com/r/worldnews/comments/1qcw90q/us_military_intervention_in_iran_may_begin_within/nzljkwc/
+
+Itchy violence, itchy trigger finger, itchy button for war fingers in the White House. 
+
+https://old.reddit.com/r/worldnews/comments/1qcw90q/us_military_intervention_in_iran_may_begin_within/nzldwxi/
+
+Reddit audiences race to have early comments on Reddit. Entertainment addiction drives Trump power.
