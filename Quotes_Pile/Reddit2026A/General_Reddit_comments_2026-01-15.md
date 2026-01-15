@@ -46,3 +46,16 @@ The way men treat men when in front of a camera or a Internet device, is terribl
 https://old.reddit.com/r/TikTokCringe/comments/1qdflr2/why_isnt_anyone_speaking_up/nzpcx2b/
 
 MLK Jr gets ignored by all generation on the Internet. I keep looking for people quoting the February 28,1954 teaching and people to say they have seen enough hate in the world. But people instead keep promoting *hate harder* and cheering on killing (Luigi) as a solution to avoiding the Second Bill of Rights from January 1944.
+
+https://old.reddit.com/r/TikTokCringe/comments/1qdflr2/why_isnt_anyone_speaking_up/nzpbyir/
+
+I get banned on Reddit for standing up. What people want is a secret police to remove others, and reporting systems, and it all gets abused. Because nobody wants to make Dr. Bandy X Lee famous constant repeated topic (more than Epstein) and quote Bandy X Lee's books since year 2017. Nonfiction books and goodness leaders who are teaching have no attraction. Instead, people want comedians like Stephen Colbert to fix Trump problems. But entertainment-washing Trump is exactly hi source of power.
+
+https://old.reddit.com/r/TikTokCringe/comments/1qdflr2/why_isnt_anyone_speaking_up/nzpdp89/
+
+"Crazy". But people won't turn to Dr. Bandy X Lee on social media and just comment on it day after day instead of organizing serious learning for adults.
+
+https://old.reddit.com/r/TikTokCringe/comments/1qdflr2/why_isnt_anyone_speaking_up/nzpdi93/
+
+"simple", "cult". How come social media, Reddit community, doesn't quote nonfiction books on cults? Just says the magical thinking word "cult" without linking a book, author name, etc? Anti-intellectual insulting and mocking. Why is Dr. Bandy X Lee name not repeated MORE THAN EPSTEIN? Why sin't cult deprogramming a constant discussion until the Fox News audience is resolved and people abandon news sources like Fox News?
+
