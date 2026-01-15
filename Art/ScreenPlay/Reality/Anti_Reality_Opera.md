@@ -77,3 +77,9 @@ Glorification of violence
 https://youtu.be/-pwT9arjasw?t=219    
 View killings as entertainment    
 https://youtu.be/-pwT9arjasw?t=272     
+
+https://youtu.be/-pwT9arjasw?t=783
+
+It's absurd, but it isn't unknown:
+
+* "::: By a monster I mean some horrendous presence or apparition that explodes all of your standards for harmony, order, and ethical conduct. For example, Vishnu at the end of the world appears as a monster. There he is, destroying the universe, first with fire and then with a torrential flood that drowns out the fire and everything else. Nothing is left but ash. The whole universe with all its life and lives has been utterly wiped out. That’s God in the role of destroyer. Such experiences go past ethical or aesthetic judgments. Ethics is wiped out. Whereas in our religions, with their accent on the human, there is also an accent on the ethical — God is qualified as good. No, no! **God is horrific**. Any god who can invent hell is no candidate for the Salvation Army. The end of the world, think of it! But there is a **Muslim saying about the Angel of Death: “When the Angel of Death approaches, he is terrible. When he reaches you**, it is bliss.” :::" - The Power of Myth, year 1988
