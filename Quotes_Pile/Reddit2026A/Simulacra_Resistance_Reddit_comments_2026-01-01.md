@@ -407,3 +407,11 @@ https://old.reddit.com/r/politics/comments/1qdqp0k/trump_we_shouldnt_even_have_a
 Note the short Twitter-length message, banal Elon Musk Tweet, mindset of the audience who upvotes this comment.
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mcigxdzchs23 https://autistics.life/@RoundSparrow/115901048179502544 }
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qds6m8/you_are_a_leftwing_hack_karoline_leavitt_goes/nzs34b7/
+
+<img width="1062" height="323" alt="image" src="https://github.com/user-attachments/assets/db0d5cfd-417e-468d-aed1-c2c80b499bd1" /> "Insane". A Twitter-length mindset, short message comment, promoting the thinking it is ONLY half of the nation. Only a PORTION of the nation living under this nonsense since Internet Research Agency invaded USA media systems. https://www.youtube.com/watch?v=09maaUaRT4M&t=743s "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL"
+
+Media consumers who can't "see through" the low-effort commenting and Reddit account turnover / creation dates.
+
+Social post { https://autistics.life/@RoundSparrow/115901308317933178 https://bsky.app/profile/roundsparrow.bsky.social/post/3mcikoq4buc2x }
