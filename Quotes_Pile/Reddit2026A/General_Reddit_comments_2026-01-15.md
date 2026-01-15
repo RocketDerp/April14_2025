@@ -262,3 +262,12 @@ https://old.reddit.com/r/Fauxmoi/comments/1qdtf05/greenland_official_breaks_down
 Note the young age of the Reddit account. The entire world is entertaining Trump USA because so much entertainment has come out of the USA in their lifetime. Hollywood films, television shows like The Simpsons, music, comics, Twitter, Facebook, Google, Apple iPhone, iPad, XBox, Valve Steam, etc.
 
 * "According to Baudrillard’s reading of the war – **America as for Baudrillard the leading society culturally in the world, the one that leads the cultural trajectory of the world through television, movies and so on** – the war that we fought in the gulf was not directed against the enemy. I mean, as it turned out, the enemy was left not much different than we found them. It was not directed against any enemy at all. The enemy disappeared in the show business. The war was directed against reality. The war was to show us that even war isn’t real." - Rick Roderick, Duke University https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
+
+https://old.reddit.com/r/complaints/comments/1qdswr9/wtf/nzsa5sk/
+
+Prank-washing, joke-washing, casting as "just messing with", meme-washing. That's what has wrecked the entire USA. The attitude that as long as it is entertainment fiction, anything is possible. Nothing is true. As long as people prize pranks and jokes and insults above goodness itself.
+
+https://old.reddit.com/r/complaints/comments/1qdswr9/wtf/nzsjz6b/
+
+Joke-washing works on Reddit audiences every time. The front page of /r/All is a total mockery of joking about Trump. The biggest source of entertainment the USA has ever had! President Tony Clifton antics have turned everyone into joke audience.
+
