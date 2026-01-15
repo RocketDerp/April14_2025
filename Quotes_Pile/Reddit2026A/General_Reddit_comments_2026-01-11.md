@@ -1284,3 +1284,5 @@ Translated from 2013 Russia to USA 2025: I.C.E. raids are very little violence a
 Social post { https://autistics.life/@RoundSparrow/115896251727127025 https://bsky.app/profile/roundsparrow.bsky.social/post/3mcgctbbcsk2e }
 
 https://old.reddit.com/r/UnderReportedNews/comments/1qd25jd/nearly_70_of_americans_think_the_united_states_is/nzmup2k/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qd25jd/nearly_70_of_americans_think_the_united_states_is/nzmr3gl/
