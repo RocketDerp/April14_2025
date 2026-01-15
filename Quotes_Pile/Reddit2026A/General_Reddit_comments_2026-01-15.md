@@ -76,3 +76,9 @@ Sign of Twitter-think. Tiny-short messages on Reddit commenting. **"Mental illne
 * “In Donald Trump, we have a frightening Venn diagram consisting of three circles: the first is extreme present hedonism; the second, narcissism; and the third, **bullying behavior.** These three circles overlap in the middle to create an impulsive, immature, incompetent person who, when in the position of ultimate power, easily slides into the role of tyrant, complete with family members sitting at his proverbial “ruling table.” Like a fledgling dictator, he plants psychological seeds of treachery in **sections of our population that reinforce already negative attitudes**.” ― Bandy X Lee, The Dangerous Case of Donald Trump: 27 Psychiatrists and Mental Health Experts Assess a President. October 3, 2017
 
 It has gotten so much worse since year 2017!! It is year 2026!!!!!!!!!!!!
+
+https://old.reddit.com/r/TikTokCringe/comments/1qdflr2/why_isnt_anyone_speaking_up/nzpm78b/
+
+<img width="974" height="471" alt="image" src="https://github.com/user-attachments/assets/5281006c-75b5-4ab3-9438-a3fefc49a474" /> Amusement. Laughter-washing. Trump's skill and talent is entertainment of crowds. People can't wait get on the Internet and share their Trump story to the audience of Reddit to chuckle away! Neil Postman's 1985 book describes social media hell society that thinks Trump is amusing entertainment! Meme addict society. September 10, 2025 https://Time.com/7313999/neil-postman-trump-prediction/
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mchsskzjvk22 https://autistics.life/@RoundSparrow/115899628041131800 }
