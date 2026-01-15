@@ -210,3 +210,11 @@ https://old.reddit.com/r/complaints/comments/1qdo0yi/if_you_sat_out_the_2024_ele
 
 Reddit account new this year, weeks old.
 
+https://old.reddit.com/r/MurderedByWords/comments/1qdlffn/anyone_who_believed_the_cbs_report_has_negative_iq/nzqibag/
+
+And Reddit corporate California USA "independence" is fiction. I've documented some of my messages here on this GitHub that Reddit would not publish. People bark at CBS tree and not the entire forest: turn to Marshall McLuhan and Neil Postman! Start teaching https://old.reddit.com/r/CriticalMediaTheory while you still can! Get the media ecology learning material out there before it's all erase and banned. 
+
+https://old.reddit.com/r/MurderedByWords/comments/1qdlffn/anyone_who_believed_the_cbs_report_has_negative_iq/nzrhh32/
+
+Yes. Reddit audience fixates on only small picture, one man Trump or one man Musk, and not the entire forest of [Putin's Operation Matthew 4:19 against the entire world wide web](/Operation_Matthew_4_19_on_monday_2024-03-31.md)! Planet earth! Putin is an active sex trafficker of girls.
+
