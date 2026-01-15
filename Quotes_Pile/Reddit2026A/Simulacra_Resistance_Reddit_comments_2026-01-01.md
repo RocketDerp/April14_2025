@@ -399,3 +399,11 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1qdo93s/trump_says_the_2026
 ― Bandy X. Lee, The Dangerous Case of Donald Trump: 27 Psychiatrists and Mental Health Experts Assess a President. [October 3, 2017. Book on paper, off-Reddit printed book, page 79](https://books.google.com/books?id=716HDwAAQBAJ&pg=PA79&dq=%22He+then+expects+the+rest+of+society+to+accept+it%22&hl=en&newbks=1&newbks_redir=1&sa=X)
 
 Social post { https://autistics.life/@RoundSparrow/115900549178328276 https://bsky.app/profile/roundsparrow.bsky.social/post/3mci7vzv5mk2q }
+
+https://old.reddit.com/r/politics/comments/1qdqp0k/trump_we_shouldnt_even_have_an_election/nzropem/
+
+<img width="1115" height="286" alt="image" src="https://github.com/user-attachments/assets/d675055c-c8cc-46ce-8743-852dda7eb83e" /> This is not resisting in any way shape or form. This is a media addict, a touch device media addiction, craving for the next season of a Reality TV star. This is Reality Television addiction commenting on Reddit no-identity meme mill. There is zero self-awareness that Donald Trump is first and foremost an entertainer and SNL and Jimmy Kimmel performer, comedy. President Tony Clifton performance working on top-upvoted Reddit commenting audience. This isn't satire or irony, this has gone on for over a FULL DECADE of media addicts flocking to Trump's Tony Clifton SNL content! This is "eating the onion", eating up Trump shit.
+
+Note the short Twitter-length message, banal Elon Musk Tweet, mindset of the audience who upvotes this comment.
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mcigxdzchs23 https://autistics.life/@RoundSparrow/115901048179502544 }
