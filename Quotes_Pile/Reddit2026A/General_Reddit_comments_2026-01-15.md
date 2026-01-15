@@ -178,3 +178,22 @@ https://old.reddit.com/r/minnesota/comments/1qdntxz/gov_walz_message_to_minnesot
 
 Entertainment addicts of Reddit want more Trump entertainment leadership. Instead of addressing the media addiction on Reddit itself, the no-identity messaging junk. Tiny-short commenting, Twitter-thinking mindset of Elon Musk platform.
 
+https://old.reddit.com/r/complaints/comments/1qdo0yi/if_you_sat_out_the_2024_election_because_both/nzr6tzr/
+
+Observe how this posting is a message to hate upon Americans. A "Fuck you Americans" message. Anything and everything to not stand up to { Cambridge Analytica mental programming, Russia's Internet Research Agency invasion of Reddit since year 2013, Rupert Murdoch fucking the minds up of the population, Billionaire Elon Musk fucking minds with Twitter social media }. Shallow, superficial, banal messaging saying *hate harder* on Reddit.
+
+https://old.reddit.com/r/complaints/comments/1qdo0yi/if_you_sat_out_the_2024_election_because_both/nzr4inp/
+
+Anything but hold the Internet Research Agency and Russia responsible. It is MULTIPLE NATO NATIONS, even Japan (outside NATO) reporting social media manipulation! Social media addicts abuse and promote hate every hour of every day, not just election days, blind to their own enviornment. 
+
+* "'Japanese First' party rocked by suspicions of Russian interference. Party leader calls for resignations after candidate appears on state-owned media" https://asia.nikkei.com/politics/japan-election/japanese-first-party-rocked-by-suspicions-of-russian-interference
+
+Avoidance of nonfiction serious topics in favor of Reddit commenting addictions is what lead us here since year 2013.
+
+https://old.reddit.com/r/complaints/comments/1qdo0yi/if_you_sat_out_the_2024_election_because_both/nzr9r5e/
+
+Anything but blame billionaires for manipulating minds with media. Denial of the power of fiction storytelling.
+
+https://old.reddit.com/r/complaints/comments/1qdo0yi/if_you_sat_out_the_2024_election_because_both/nzr8hfu/
+
+Tech machine lovers, technology lovers, want humans to be hated. Just as the billionaire Twitter owner wants. Human persons to be hated while Grok AI and Twitter machines and Reddit machines are loved and prized. Anti-humanism messaging on Reddit to audience.
