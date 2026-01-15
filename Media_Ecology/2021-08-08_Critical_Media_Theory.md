@@ -21,6 +21,18 @@ See also: /r/QAnonRussia
 
 &nbsp;
 
+# Removed Marshall McLuhan
+
+Since the time of my posting, it was removed from YouTube:    
+https://old.reddit.com/r/CriticalMediaTheory/comments/p3u9hg/marshall_mcluhan_in_1977_we_will_know_in_50_years/    
+
+<img width="1613" height="1115" alt="image" src="https://github.com/user-attachments/assets/2be9c58a-c6db-4352-88fc-c41ea734955c" />
+
+&nbsp;
+
+&nbsp;
+
+
 # 2026-01-15 Social Posts
 
 https://autistics.life/@RoundSparrow/115900639326372429    
