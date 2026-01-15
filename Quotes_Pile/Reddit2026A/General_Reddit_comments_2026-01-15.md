@@ -124,3 +124,11 @@ https://old.reddit.com/r/ProgressiveHQ/comments/1qdlhh3/house_democrats_are_repo
 * "John Martin-Joy M.D. ... Politics, Psychiatry, and Psychoanalysis. President Donald Trump. Donald Trump and His Followers: Are They a Cult? Psychiatrist Robert Jay Lifton and others explore the issue." Posted September 27, 2020 |  Reviewed by Devon Frye - https://www.psychologytoday.com/us/blog/politics-psychiatry-and-psychoanalysis/202009/donald-trump-and-his-followers-are-they-cult
 
 Social post { https://autistics.life/@RoundSparrow/115900308510613029 https://bsky.app/profile/roundsparrow.bsky.social/post/3mci4i7cf3s2h }
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qdlhh3/house_democrats_are_reportedly_5_votes_away_from/nzqwfd3/
+
+The [*couch potatoes* mindset](https://en.wikipedia.org/wiki/Couch_potato) programming of Reddit audiences is that We The People on social media are powerless and impotent against super-star King of Media Trump. Sit back and create comments saying how it is all entertainment and the entire population should scroll to the next meme posting.
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qdlhh3/house_democrats_are_reportedly_5_votes_away_from/nzqm02r/
+
+Note the age of the Reddit account encouraging the Reddit audience to do nothing, powerless We The People, powerless PLURIBUS!
