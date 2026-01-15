@@ -848,3 +848,25 @@ https://old.reddit.com/r/worldnews/comments/1qdrfgp/greenland_minister_tearful_a
 Social media users will not turn to nonfiction books on the subject and repeat them and repeat them. Instead free time and spare time goes into repeating "Epstein" name over and over, instead of addressing the mindset problems directly.
 
 * “In Donald Trump, we have a frightening Venn diagram consisting of three circles: the first is extreme present hedonism; the second, narcissism; and the third, **bullying behavior.** These three circles overlap in the middle to create an impulsive, immature, incompetent person who, when in the position of ultimate power, easily slides into the role of tyrant, complete with family members sitting at his proverbial “ruling table.” Like a fledgling dictator, he plants psychological seeds of treachery in **sections of our population that reinforce already negative attitudes**.” ― Bandy X Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. October 3, 2017. Page 44.](https://books.google.com/books?id=g0c4DwAAQBAJ&pg=PA44&dq=%22immature,+incompetent+person+who,+when+in+the+position+of+ultimate+power,+easily+slides+into+the+role+of+tyrant%22&hl=en&newbks=1&newbks_redir=1&sa=X)
+
+https://old.reddit.com/r/CringeTikToks/comments/1qdpyqj/this_isnt_ai_its_real/nzrk3em/
+
+That is the power mechanism. It puts Reddit audiences into Twitter-think patterns, short little commenting meme stupors. People are unable to resist the Surkov student techniques!
+
+https://old.reddit.com/r/CringeTikToks/comments/1qdpyqj/this_isnt_ai_its_real/nzrke3q/
+
+This is beyond { joking, satire, sarcasm, snark }. People are ATTRACTED TO Trump White House / Putin Kremlin media. It has been ongoing since March 2013 that the Kremlin has exported their media system. NO DEFENSE WORKS, people "love" it, they are ATTRACTED to this type of media signal. Flocking on Reddit, audiences tune in and self-harm their minds!
+
+https://old.reddit.com/r/CringeTikToks/comments/1qdpyqj/this_isnt_ai_its_real/nzrjmr7/
+
+Calling Trump brain-dead within a pro-ignorance anti-book media environment. Especially nonfiction learning. This is the very mechanism of power for Trump / Steve Miller. [Audiences who eat the Surkovian Onions](../Reddit2025A/Surkovian_Onion_Eating.md) and think the onion taste great! [Shit-eating LOL LOL amusement audience on Reddit, people grading the turds of Trump as they pour down / trickle down from the wealthy media empires](/Grim_Blunt/Society_of_grading_and_ranking_turds.md). 
+
+Now how the posting on Reddit has to ASSERT this is reality, eating the anti-reality warfare. The ENTIRE POPULATION is "brain-dead, brain-rot" to Marshall McLuhan's media ecology teachings!
+
+https://old.reddit.com/r/CringeTikToks/comments/1qdpyqj/this_isnt_ai_its_real/nzrjphz/
+
+Reddit audience crying out for MORE content from the White House. More bullshit garbage junk. Addicts to the Tony Clifton players! Reddit profits selling this trash to meme addicts.
+
+https://old.reddit.com/r/CringeTikToks/comments/1qdpyqj/this_isnt_ai_its_real/nzrjzgi/
+
+As dumb as Twitter-length commenting that does not link off-Reddit to how serious a problem television news and meme addiction Reddit news are. Neil Postman's 1985 book describes social media hell society that thinks Trump is amusing entertainment! Meme addict society.  September 10, 2025 https://Time.com/7313999/neil-postman-trump-prediction/
