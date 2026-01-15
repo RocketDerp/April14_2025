@@ -32,7 +32,7 @@ Cut out sports entertainment topics, video game topics, clear the media airwaves
 
 5. Make Neil Postman 1985 book a household name. His 1992 book, his September 1995 book. There are YouTube videos, books to quote. Make this about words of a dead man, a forgotten American, and how the Apple iPhone and iPad and Internet have changed everything. Don't make this about Donald Trump and MAGA, make this about *rescuing America* from a media feedback loop, Internet-driven "the media" social media total mockery.
 
-6. If you raelly dislike Neil Postman or such, try Texan Rick Roderick of Duke University 1993 for your study and material to repeat / perspective. He too is another dead man, a forgotten American, who has a lot to say about our August 2025 situation in USA. Video and transcript: https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
+6. If you really dislike Neil Postman or such, try Texan Rick Roderick of Duke University 1993 for your study and material to repeat / perspective. He too is another dead man, a forgotten American, who has a lot to say about our August 2025 situation in USA. Video and transcript: https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
 
 &nbsp;
 
@@ -46,7 +46,9 @@ Highlight:
 
 1. There is [factual validated evidence announced August 24, 2018 from two universities: Johns Hopkins University and George Washington University. Cite the names of people in the articles](https://www.bbc.com/news/world-us-canada-45294192). Find the same 2018 articles on Fox News website, other world news sites. It is out there. Search for the names of the people cited from the universities. Show concern how during the COVID-19 pandemic, people did not trust factual reality of medical science and how people behaved "Menace of Unreality" in trusting falsehoods and misunderstandings.
 
-2. Ongoing, this isn't all just year 2014, yar 2018, this story is from October 2024 on the topic of **hurricanes**: https://www.Reuters.com/business/environment/russian-chinese-cuban-accounts-are-amplifying-hurricane-misinformation-us-2024-10-28/
+2. Ongoing, this isn't all just year 2014, year 2018, this story is from October 2024 (before Trump elected a second term as POTUS) on the topic of **hurricanes**: https://www.Reuters.com/business/environment/russian-chinese-cuban-accounts-are-amplifying-hurricane-misinformation-us-2024-10-28/
+
+3. Russia has been documented amplifying **Charlie Kirk content**. Security analysts flag rise in Russian-created misinformation posts on social media following Kirk shooting. Russian-backed groups go as far to create fake news reports, analysts found." By Ivan Pereira and Josh Margolin on **September 16, 2025** https://ABCnews.go.com/Politics/security-analysts-flag-rise-russian-created-misinformation-posts/story?id=125640078
 
 &nbsp;
 
