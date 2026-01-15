@@ -811,8 +811,7 @@ https://old.reddit.com/r/worldnews/comments/1qcz1gk/trump_intent_on_conquering_g
 
 More "insanity" commenting. Reddit audience is addicted to commenting above all else. Anything to avoid nonfiction book learning and following Dr. Bandy X Lee.
 
-* “There is considerable evidence to suggest that absolute tyranny is DT’s wet dream. The unopposed dictator is the embodiment of the ability to demand adulation on the one hand and to eradicate all perceived enemies with the simple nod”
-― Bandy X. Lee, The Dangerous Case of Donald Trump: 27 Psychiatrists and Mental Health Experts Assess a President. [Published October 3, 2017. Page 115](https://books.google.com/books?id=g0c4DwAAQBAJ&pg=PA115&dq=%E2%80%9CThere+is+considerable+evidence+to+suggest+that+absolute+tyranny+is+DT%E2%80%99s+wet+dream.%E2%80%9D&hl=en&newbks=1&newbks_redir=1&sa=X)
+* “There is considerable evidence to suggest that absolute tyranny is DT’s wet dream. The unopposed dictator is the embodiment of the ability to demand adulation on the one hand and to eradicate all perceived enemies with the simple nod” ― Bandy X. Lee, The Dangerous Case of Donald Trump: 27 Psychiatrists and Mental Health Experts Assess a President. [Published October 3, 2017. Page 115](https://books.google.com/books?id=g0c4DwAAQBAJ&pg=PA115&dq=%E2%80%9CThere+is+considerable+evidence+to+suggest+that+absolute+tyranny+is+DT%E2%80%99s+wet+dream.%E2%80%9D&hl=en&newbks=1&newbks_redir=1&sa=X)
 
 https://old.reddit.com/r/worldnews/comments/1qcz1gk/trump_intent_on_conquering_greenland_danish/nzm0bmk/
 
@@ -823,3 +822,19 @@ Social post { https://autistics.life/@RoundSparrow/115896146610452440 https://bs
 https://old.reddit.com/r/worldnews/comments/1qd1y8v/iran_closes_airspace_with_anticipated_us_attack/nzmphqj/
 
 https://old.reddit.com/r/worldnews/comments/1qd1y8v/iran_closes_airspace_with_anticipated_us_attack/nzmqqel/
+
+https://old.reddit.com/r/worldnews/comments/1qdikke/republicans_vow_to_block_trump_from_seizing/nzpx8lz/
+
+yes. We The People in USA, All of Us, PLURIBUS (not just MAGA, not just Republicans, not just conservatives) suffer from extreme recency bias. The Ukraine war has gone on since February 20, 2014 - and Trump was elected a SECOND TIME to office. Trump was removed, and put back. Because media addiction runs the USA society. Junk low-information addiction to junk Reality Kremlin / Reality White House memes and trash content.
+
+https://old.reddit.com/r/worldnews/comments/1qdikke/republicans_vow_to_block_trump_from_seizing/nzpxpcv/
+
+"Insane" - but always avoiding turning to nonfiction learning. Just commenting over and over and over on meme social systems. We need to address the mass psychosis problems of entire societies like Iran, Russia, USA. https://www.youtube.com/watch?v=09maaUaRT4M&t=743s "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL"
+
+https://old.reddit.com/r/worldnews/comments/1qdikke/republicans_vow_to_block_trump_from_seizing/nzpxe3l/
+
+Joke-washing Trump, funny-washing Trump and MAGA as comedy. Absurd comedy, satire humor, sane-washing Trump as a great source of memes. Reddit audience mind-fucking to treat all this as entertainment President Tony Clifton performance. Eating right out of Putin and Surkov students techniques.  Neil Postman's 1985 book describes social media hell society that thinks Trump is amusing entertainment! Meme addict society.  September 10, 2025 https://Time.com/7313999/neil-postman-trump-prediction/
+
+https://old.reddit.com/r/worldnews/comments/1qdikke/republicans_vow_to_block_trump_from_seizing/nzpywuc/
+
+Three words. Extreme tiny-short Twitter-think, as conditioned by Elon Musk - the owner of Twitter platform. Anything to avoid nonfiction learning about the anti-NATO efforts of { Russia, Putin, Surkov students }. Looping tiny mindsets... avoiding from September 9, 2014 - which is more than 10 years ago, more than a decade - we could have kept repeating it and defeated Putin's takeover of USA hearts and minds: https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ "Russia and the Menace of Unreality: How Vladimir Putin is revolutionizing information warfare. By Peter Pomerantsev"
