@@ -218,3 +218,17 @@ https://old.reddit.com/r/MurderedByWords/comments/1qdlffn/anyone_who_believed_th
 
 Yes. Reddit audience fixates on only small picture, one man Trump or one man Musk, and not the entire forest of [Putin's Operation Matthew 4:19 against the entire world wide web](/Operation_Matthew_4_19_on_monday_2024-03-31.md)! Planet earth! Putin is an active sex trafficker of girls.
 
+https://old.reddit.com/r/AskReddit/comments/1qdrj5h/trump_is_preparing_to_use_the_insurrection_act_in/nzry0m8/
+
+Observe: no assertion of Jen Senko's 2015 / 2016 nonfiction film https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad about the media crisis. No nonfiction books quoted, etc. People witness Fox News, but do not make an effort to get on the **same book page**, page number 13:
+
+* “Today, reports of the day’s events are conveyed to the viewing public by way of alternate universes, The Fox News cable channel conveys its version of reality, while at the other end of the ideological spectrum MSNBC presents its version. They and their many counterparts on radio are more the result of an economic dynamic than a political one. Dispatching journalists into the field to gather information costs money; hiring a glib bloviator is relatively cheap, and inviting opinionated guests to vent on the air is entirely cost-free. It wouldn’t work if it weren’t popular, and audiences, it turns out, are endlessly absorbed by hearing amplified echoes of their own biases. It’s divisive and damaging to the healthy functioning of our political system, but it’s also indisputably inexpensive and, therefore, good business.”
+― Ted Koppel. Lights Out: A Cyberattack, A Nation Unprepared, Surviving the Aftermath. October 27, 2015. Page 13.
+
+https://old.reddit.com/r/AskReddit/comments/1qdrj5h/trump_is_preparing_to_use_the_insurrection_act_in/nzs24dm/
+
+Tell every person you know, post every 6 hours on social media: Follow Dr. Bandy X Lee's leadership! Quote Dr. Bandy X Lee's 2017 book, her other nonfiction teachings! Stop posting shit-postings and shit-commenting and actually **teach cult deprogramming** from professional nonfiction teachers! Stop *reacting* to Trump, and educate about the MAGA cult.
+
+https://old.reddit.com/r/AskReddit/comments/1qdrj5h/trump_is_preparing_to_use_the_insurrection_act_in/nzrxiry/
+
+Mocking against a mockery is not resisting a total mockery! Tell every person you know, post every 6 hours on social media: Follow Dr. Bandy X Lee's leadership! Quote Dr. Bandy X Lee's 2017 book, her other nonfiction teachings! Stop posting shit-postings and shit-commenting and actually **teach cult deprogramming** from professional nonfiction teachers! Stop *reacting* to Trump, and educate about the MAGA cult.
