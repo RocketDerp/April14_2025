@@ -377,3 +377,10 @@ This is what has gone on for over 10 years. Social media audiences avoiding stan
 ― Bandy X. Lee, The Dangerous Case of Donald Trump: 27 Psychiatrists and Mental Health Experts Assess a President. [October 3, 2017. Book on paper, off-Reddit printed book, page 79](https://books.google.com/books?id=716HDwAAQBAJ&pg=PA79&dq=%22He+then+expects+the+rest+of+society+to+accept+it%22&hl=en&newbks=1&newbks_redir=1&sa=X)
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mcfmkhqqjc2c https://autistics.life/@RoundSparrow/115894680733364219 }
+
+https://old.reddit.com/r/AdviceAnimals/comments/1qcwph2/no_pressure_america/nzleypj/
+
+This is a Reddit mind-fuck operation. To turn serious complex talk into meme "Advice Animals" front page posting. Mental Health professionals from the ENTIRE WORLD, every mental health professional - can take on the cult MAGA, cult Fox News, media cult issues. Put down memes and animal toys / images, and actually ask for professional help on cult deporgramming.
+
+* "elaborated in a follow-up interview, “Trump creates his own **extreme manipulation of reality**. He insists that his spokesmen defend his false reality **as normal**. He then expects the rest of society to accept it — despite the lack of any evidence.” This leads to what Lifton calls “malignant normality” — in other words, the **gradual acceptance by a public inundated with toxic untruths** of those untruths until they pass for normal.”
+― Bandy X. Lee, The Dangerous Case of Donald Trump: 27 Psychiatrists and Mental Health Experts Assess a President. [October 3, 2017. Book on paper, off-Reddit printed book, page 79](https://books.google.com/books?id=716HDwAAQBAJ&pg=PA79&dq=%22He+then+expects+the+rest+of+society+to+accept+it%22&hl=en&newbks=1&newbks_redir=1&sa=X)
