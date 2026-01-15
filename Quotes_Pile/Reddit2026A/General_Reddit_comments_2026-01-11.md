@@ -1267,3 +1267,18 @@ Reddit low-effort commenting that does not cite any nonfiction books, author nam
 https://old.reddit.com/r/complaints/comments/1qczghc/joe_rogan_is_a_fcking_moron_and_has_done_nearly/nzm353p/
 
 Fiction storytelling far outsells nonfiction. Joe is a fiction experience show. alternate reality "Joe Rogan Experience" kind of amusement ride.
+
+https://old.reddit.com/r/AdviceAnimals/comments/1qcwph2/no_pressure_america/nzm7toc/
+
+<img width="1090" height="951" alt="image" src="https://github.com/user-attachments/assets/7925819c-d673-41f4-a0f6-2f5289d776b8" /> Yes, as the message ends. PEOPLE ARE UNDER-REACTING. Because We The People do not have any education and learning about media addiction (synonyms and behaviors when detached from real world via electric media). Trump is a Reality TV star, and audiences think this is engaging fiction. People need to wake up from their TCP/IP high speed media addictions and see what they have avoided. Dr. Bandy X Lee's nonfiction books since October 3, 2017.
+
+Russia and the **Menace of Unreality**   
+How Vladimir Putin is revolutionizing information warfare   
+Peter Pomerantsev   
+September 9 2014, 3:42 PM ET   
+
+* “If previous authoritarian regimes were three parts violence and one part propaganda,” argues Igor Yakovenko, a professor of journalism at the Moscow State Institute of International Relations, “this one is **virtually all propaganda and relatively little violence**. Putin only needs to make a few arrests—and then amplify the message through his total control of television.”
+
+Translated from 2013 Russia to USA 2025: I.C.E. raids are very little violence and a lot of showboating. A lot of Reddit front-page I.C.E. raids for visual meme addicts / meme consumers. No recognition that Kremlin and White House has the Reddit total control of media amplifiers. Reddit is amplifying media from all over the Internet. Eating the onions that Trump and Musk is dementia stupid dumb idiot, Reddit society unable to engage and comprehend and understand off-Reddit... September 9, 2014: https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+Social post { https://autistics.life/@RoundSparrow/115896251727127025 https://bsky.app/profile/roundsparrow.bsky.social/post/3mcgctbbcsk2e }
