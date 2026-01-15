@@ -64,3 +64,5 @@ https://www.bbc.com/news/technology-43301643
 https://www.youtube.com/watch?v=_Q4DKniaiAE     
 The True Crime Film That Solved What Police Didn't    
 327,222 views December 12, 2025    
+
+https://en.wikipedia.org/wiki/The_Thin_Blue_Line_(1988_film)    
