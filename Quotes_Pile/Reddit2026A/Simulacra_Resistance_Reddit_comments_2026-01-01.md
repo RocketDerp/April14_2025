@@ -415,3 +415,20 @@ https://old.reddit.com/r/UnderReportedNews/comments/1qds6m8/you_are_a_leftwing_h
 Media consumers who can't "see through" the low-effort commenting and Reddit account turnover / creation dates.
 
 Social post { https://autistics.life/@RoundSparrow/115901308317933178 https://bsky.app/profile/roundsparrow.bsky.social/post/3mcikoq4buc2x }
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qds6m8/you_are_a_leftwing_hack_karoline_leavitt_goes/nzs2len/
+
+Attraction to the White House Podium, this video on Reddit, has an addiction to high speed messaging systems behavior / symptom. Compulsive Reddit users who flock to every move and shake of the Kremlin and White House total mockery to add Tweet-think Twitter-length commenting. Anything but cite media ecology from Marshall McLuhan on the USA society-wide smartphone and iPad behaviors in January 2026.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qds6m8/you_are_a_leftwing_hack_karoline_leavitt_goes/nzs2xku/
+
+This Reddit comment is for the Reddit audience, a "LOL" laugh-along track. Like a TV laugh-track for the audience. Amusement-washing, comedy-washing the White House press conferences as SNL "Weekend Update" for TCP/IP Reddit users.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qds6m8/you_are_a_leftwing_hack_karoline_leavitt_goes/nzs3b9s/
+
+Reddit is a training ground for insult and mocking.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qds6m8/you_are_a_leftwing_hack_karoline_leavitt_goes/nzs3kfv/
+
+New 2026 Reddit account commenting about "Pretending" in Reddit audience in regard to White House press techniques. "Make believe" fiction addiction cultivation.
+
