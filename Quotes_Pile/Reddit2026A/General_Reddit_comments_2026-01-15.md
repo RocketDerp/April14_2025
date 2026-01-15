@@ -154,3 +154,27 @@ https://old.reddit.com/r/complaints/comments/1qdkx3v/trump_supposedly_raped_boys
 
 Fiction addiction, Clearance Thomas is a *believer in fiction storytelling*. People who *follow the money* chanting messages ignore that Fox News HDTV network does not **pay Fox News audience**. Fiction earns money, fiction sells! The Mosque does not PAY the attendees to the science fiction Quran story! People have learned NOTHING since September 11, 2001 - about how science fiction magical sky voices of Allah and magical pregnancy of December 25 is a MONEY MAKER, people FUND Fox News with purchasing from sponsors. Media ecology ignorance has wrecked USA. Surkov won.
 
+https://old.reddit.com/r/minnesota/comments/1qdntxz/gov_walz_message_to_minnesotans_and_president/nzr6xp0/
+
+Common hyper-banal information warfare parroting. Been describing this tactic on Reddit: https://old.reddit.com/r/HyperBanalisation
+
+https://old.reddit.com/r/minnesota/comments/1qdntxz/gov_walz_message_to_minnesotans_and_president/nzr2oxq/
+
+Reddit account is only months old. Insulting, mocking, calling men "pussy" in male aggression domination warfare (information warfare). Offers no better solution, just Trump Truth Social values of mocking goodness with high-speed messaging.
+
+https://old.reddit.com/r/minnesota/comments/1qdntxz/gov_walz_message_to_minnesotans_and_president/nzr61l7/
+
+Tiny-short Twitter-length Bluesky-length messaging to insult goodness.
+
+https://old.reddit.com/r/minnesota/comments/1qdntxz/gov_walz_message_to_minnesotans_and_president/nzr5qtm/
+
+Anti Great Seal USA values. To negotiate and offer the olive branch first. Male aggression *hate harder* messaging for tech addicts, technology machine lovers audience of Reddit.
+
+https://old.reddit.com/r/minnesota/comments/1qdntxz/gov_walz_message_to_minnesotans_and_president/nzr4mia/
+
+https://old.reddit.com/r/minnesota/comments/1qdntxz/gov_walz_message_to_minnesotans_and_president/nzrf468/
+
+https://old.reddit.com/r/minnesota/comments/1qdntxz/gov_walz_message_to_minnesotans_and_president/nzr63mn/
+
+Entertainment addicts of Reddit want more Trump entertainment leadership. Instead of addressing the media addiction on Reddit itself, the no-identity messaging junk. Tiny-short commenting, Twitter-thinking mindset of Elon Musk platform.
+
