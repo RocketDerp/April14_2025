@@ -838,3 +838,13 @@ Joke-washing Trump, funny-washing Trump and MAGA as comedy. Absurd comedy, satir
 https://old.reddit.com/r/worldnews/comments/1qdikke/republicans_vow_to_block_trump_from_seizing/nzpywuc/
 
 Three words. Extreme tiny-short Twitter-think, as conditioned by Elon Musk - the owner of Twitter platform. Anything to avoid nonfiction learning about the anti-NATO efforts of { Russia, Putin, Surkov students }. Looping tiny mindsets... avoiding from September 9, 2014 - which is more than 10 years ago, more than a decade - we could have kept repeating it and defeated Putin's takeover of USA hearts and minds: https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ "Russia and the Menace of Unreality: How Vladimir Putin is revolutionizing information warfare. By Peter Pomerantsev"
+
+https://old.reddit.com/r/worldnews/comments/1qdrfgp/greenland_minister_tearful_as_she_describes/nzruomt/
+
+Greenland topic. "Insane" word. But media addicts to commenting will not address "insane" and "crazy"  with nonfiction learning! https://www.youtube.com/watch?v=09maaUaRT4M&t=743s "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" - or the books of Dr. Bandy X. Lee!
+
+https://old.reddit.com/r/worldnews/comments/1qdrfgp/greenland_minister_tearful_as_she_describes/nzrxwy9/
+
+Social media users will not turn to nonfiction books on the subject and repeat them and repeat them. Instead free time and spare time goes into repeating "Epstein" name over and over, instead of addressing the mindset problems directly.
+
+* “In Donald Trump, we have a frightening Venn diagram consisting of three circles: the first is extreme present hedonism; the second, narcissism; and the third, **bullying behavior.** These three circles overlap in the middle to create an impulsive, immature, incompetent person who, when in the position of ultimate power, easily slides into the role of tyrant, complete with family members sitting at his proverbial “ruling table.” Like a fledgling dictator, he plants psychological seeds of treachery in **sections of our population that reinforce already negative attitudes**.” ― Bandy X Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. October 3, 2017. Page 44.](https://books.google.com/books?id=g0c4DwAAQBAJ&pg=PA44&dq=%22immature,+incompetent+person+who,+when+in+the+position+of+ultimate+power,+easily+slides+into+the+role+of+tyrant%22&hl=en&newbks=1&newbks_redir=1&sa=X)
