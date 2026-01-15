@@ -59,3 +59,20 @@ https://old.reddit.com/r/TikTokCringe/comments/1qdflr2/why_isnt_anyone_speaking_
 
 "simple", "cult". How come social media, Reddit community, doesn't quote nonfiction books on cults? Just says the magical thinking word "cult" without linking a book, author name, etc? Anti-intellectual insulting and mocking. Why is Dr. Bandy X Lee name not repeated MORE THAN EPSTEIN? Why sin't cult deprogramming a constant discussion until the Fox News audience is resolved and people abandon news sources like Fox News?
 
+https://old.reddit.com/r/TikTokCringe/comments/1qdflr2/why_isnt_anyone_speaking_up/nzpe215/
+
+Yes. People care to mock and insult. They do not care to actually assert goodness and make a stand for progress of the group. Surkov won. The entire population thinks this is all engaging entertainment to consume every hour of every day. Trump provides constant high speed messaging topics.
+
+https://old.reddit.com/r/TikTokCringe/comments/1qdflr2/why_isnt_anyone_speaking_up/nzpfs98/
+
+High-speed media addiction t junk content. Prizing { hate, mocking, insulting, name-calling, domination, men defeating girls and women } is every area of society. Fox News has been on the air since October 7, 1996. This problem is an entire population that won't stop putting shit into their brains and stand up to the Anti-WIki anti-FAQ, anti-goodness attitudes.
+
+Since June 16, 2015... it never ends! Having to be immersed in non-stop fiction addicts, many who spread and smear anti-intellectual LOL shit about Trump, addiction to "orange skin" and "poop diapers" of Trump.. brain damaging all the time, every fucking day! The anti-goodness prizing of shit! Neil Postman's 1985 book describes social media hell society that thinks Trump is amusing entertainment! Meme addict society.  September 10, 2025 https://Time.com/7313999/neil-postman-trump-prediction/
+
+https://old.reddit.com/r/TikTokCringe/comments/1qdflr2/why_isnt_anyone_speaking_up/nzpoirn/
+
+Sign of Twitter-think. Tiny-short messages on Reddit commenting. **"Mental illness"** - why are you not quoting Dr. Bandy X Lee's book from October 3, 2017? Why does she have so few followers on Bluesky? There is no sense of time on Reddit commenting, it is like a casino with noises and no clocks - people can't grasp how long ago year 2017 was with Trump in power.
+
+* “In Donald Trump, we have a frightening Venn diagram consisting of three circles: the first is extreme present hedonism; the second, narcissism; and the third, **bullying behavior.** These three circles overlap in the middle to create an impulsive, immature, incompetent person who, when in the position of ultimate power, easily slides into the role of tyrant, complete with family members sitting at his proverbial “ruling table.” Like a fledgling dictator, he plants psychological seeds of treachery in **sections of our population that reinforce already negative attitudes**.” ― Bandy X Lee, The Dangerous Case of Donald Trump: 27 Psychiatrists and Mental Health Experts Assess a President. October 3, 2017
+
+It has gotten so much worse since year 2017!! It is year 2026!!!!!!!!!!!!
