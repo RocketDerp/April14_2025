@@ -28,3 +28,7 @@ About as real as many Reddit low-effort comments. Where almost all Reddit accoun
 https://old.reddit.com/r/clevercomebacks/comments/1qd7g7l/maga_misinformation_level/nznvj95/
 
 <img width="980" height="248" alt="image" src="https://github.com/user-attachments/assets/20c925cc-b587-4a4e-99c0-c7a3014cc0e1" /> One person calls out reality that this is all Elon Musk organized information warfare. Not accidental, not dumb, it is made for Reddit audiences.
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qdc6lc/fuck_you_ice_and_fuck_you_maga_for_supporting/nzp60z8/
+
+<img width="988" height="340" alt="image" src="https://github.com/user-attachments/assets/dd8e804a-644f-4673-85ab-07b03ede8e43" /> Trump sets the tone of sarcastic government, satire leadership, comedy Tony Clifton POTUS acting. People eat it up on Reddit. ANYTHING but quote Dr. Bandy x Lee since year 2017 when her book on Trump was published. Anything to avoid nonfiction education on the cult behaviors around Trump.
