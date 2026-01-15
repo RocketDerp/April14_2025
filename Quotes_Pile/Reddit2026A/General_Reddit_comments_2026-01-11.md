@@ -1286,3 +1286,7 @@ Social post { https://autistics.life/@RoundSparrow/115896251727127025 https://bs
 https://old.reddit.com/r/UnderReportedNews/comments/1qd25jd/nearly_70_of_americans_think_the_united_states_is/nzmup2k/
 
 https://old.reddit.com/r/UnderReportedNews/comments/1qd25jd/nearly_70_of_americans_think_the_united_states_is/nzmr3gl/
+
+https://old.reddit.com/r/whennews/comments/1qd0o1f/words_cannot_get_across_how_much_i_despise_the_usa/nzmcnrp/
+
+A television Fox News HDTV addict is running the nation. And the population of entertainment addicts who think this is all LOL amusements and fiction are exhausting. 
