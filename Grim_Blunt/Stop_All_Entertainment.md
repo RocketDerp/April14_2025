@@ -22,15 +22,19 @@ Cut out sports entertainment topics, video game topics, clear the media airwaves
 
 &nbsp;
 
-1. You have studied the Ukraine war since it started in February 2014, and you can see the pattern of Russia using falsehood, lies, information manipulation, mind games. [This story about Putin's Russia was published September 9, 2014 - and you have read it](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/). Quote it. Repeat it, repeat several times a week on social media that you are alarmed this is what you are experiencing with Donald Trump and White House since January 2025.
+1. Dr. Bandy X Lee! She has a Bluesky account. She published a book October 3, 2017 about the mental health crisis of MAGA and Trump. Make Dr. Bandy X Lee into a household name, quote her, repeat her, follow her leadership! https://bsky.app/profile/bandylee.bsky.social she has only 3,078 followers!!! We The People need to follow good leaders!
 
-2. Do not insult and mock MAGA. Stop all mocking.
+2. You have studied the Ukraine war since it started in February 2014, and you can see the pattern of Russia using falsehood, lies, information manipulation, mind games. [This story about Putin's Russia was published September 9, 2014 - and you have read it](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/). Quote it. Repeat it, repeat several times a week on social media that you are alarmed this is what you are experiencing with Donald Trump and White House since January 2025.
 
-3. Instead of mocking MAGA and Donald Trump, post examples of "Menace of Unreality" behavior. How you witness people who seem to be consuming false information and repeating it, paraphrasing misunderstandings in their own words. Make this a topic about Russian war against Reality that started with the Ukraine war in 2014, not about insulting and mocking MAGA and dumb stupid idiots, but that we were outsmarted by Russia and you are alarmed, disturbed, concerned, and seeking people to be serious about the topic.
+3. Do not insult and mock MAGA. Stop all mocking.
 
-4. Make Neil Postman 1985 book a household name. His 1992 book, his September 1995 book. There are YouTube videos, books to quote. Make this about words of a dead man, a forgotten American, and how the Apple iPhone and iPad and Internet have changed everything. Don't make this about Donald Trump and MAGA, make this about *rescuing America* from a media feedback loop, Internet-driven "the media" social media total mockery.
+4. Instead of mocking MAGA and Donald Trump, post examples of "Menace of Unreality" behavior. How you witness people who seem to be consuming false information and repeating it, paraphrasing misunderstandings in their own words. Make this a topic about Russian war against Reality that started with the Ukraine war in 2014, not about insulting and mocking MAGA and dumb stupid idiots, but that we were outsmarted by Russia and you are alarmed, disturbed, concerned, and seeking people to be serious about the topic.
 
-5. If you raelly dislike Neil Postman or such, try Texan Rick Roderick of Duke University 1993 for your study and material to repeat / perspective. He too is another dead man, a forgotten American, who has a lot to say about our August 2025 situation in USA. Video and transcript: https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
+5. Make Neil Postman 1985 book a household name. His 1992 book, his September 1995 book. There are YouTube videos, books to quote. Make this about words of a dead man, a forgotten American, and how the Apple iPhone and iPad and Internet have changed everything. Don't make this about Donald Trump and MAGA, make this about *rescuing America* from a media feedback loop, Internet-driven "the media" social media total mockery.
+
+6. If you raelly dislike Neil Postman or such, try Texan Rick Roderick of Duke University 1993 for your study and material to repeat / perspective. He too is another dead man, a forgotten American, who has a lot to say about our August 2025 situation in USA. Video and transcript: https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
+
+&nbsp;
 
 &nbsp;
 
