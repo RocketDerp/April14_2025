@@ -245,3 +245,20 @@ https://old.reddit.com/r/Fauxmoi/comments/1qdtf05/greenland_official_breaks_down
 
 Intolerance of diversity and freedom of people is the USA January 2026 technology lust society. Can't have people free thinking outside the USA systemic control. That's the values of anti-diverse society.
 
+https://old.reddit.com/r/Fauxmoi/comments/1qdtf05/greenland_official_breaks_down_in_tears_on_live/nzsfk3x/
+
+Malala in Swat Valley Taliban since January 3, 2009 was a test for humanity. The Internet opened up to the most remote and backwards places in the world. A girl got shot on her school bus after standing up to aggressive men. And people do not quote her book, assert her name, etc. Instead people chat all year 2025 the name "Epstein" - for a "List". Anti-education, anti-teaching, anti-girls. Private jet white man "Epstein" name repeated over and over while Malala's excellent writings and points rot on the bookshelf. 
+
+[CLICK HERE: Timeline of Trump sex show in Moscow vs. Malala's world fame rise as blogger](/PostMalala/Marriage/World_Malala_Timeline_Year_2012.md) - people flock to and stand up for "The Big Guy" Trump, and do not sustain year after year focus on "The Little Girl" Malala's year 2009 experience.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qdtf05/greenland_official_breaks_down_in_tears_on_live/nzsf8o1/
+
+People with social media should be putting Dr. Bandy X Lee's name and nonfiction book quotes on repeat / asking people to follow her leadership.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qdtf05/greenland_official_breaks_down_in_tears_on_live/nzseu4f/
+
+https://old.reddit.com/r/Fauxmoi/comments/1qdtf05/greenland_official_breaks_down_in_tears_on_live/nzshfa1/
+
+Note the young age of the Reddit account. The entire world is entertaining Trump USA because so much entertainment has come out of the USA in their lifetime. Hollywood films, television shows like The Simpsons, music, comics, Twitter, Facebook, Google, Apple iPhone, iPad, XBox, Valve Steam, etc.
+
+* "According to Baudrillard’s reading of the war – **America as for Baudrillard the leading society culturally in the world, the one that leads the cultural trajectory of the world through television, movies and so on** – the war that we fought in the gulf was not directed against the enemy. I mean, as it turned out, the enemy was left not much different than we found them. It was not directed against any enemy at all. The enemy disappeared in the show business. The war was directed against reality. The war was to show us that even war isn’t real." - Rick Roderick, Duke University https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
