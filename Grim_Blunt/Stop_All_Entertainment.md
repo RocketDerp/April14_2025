@@ -48,7 +48,7 @@ Highlight:
 
 2. Ongoing, this isn't all just year 2014, year 2018, this story is from October 2024 (before Trump elected a second term as POTUS) on the topic of **hurricanes**: https://www.Reuters.com/business/environment/russian-chinese-cuban-accounts-are-amplifying-hurricane-misinformation-us-2024-10-28/
 
-3. Russia has been documented amplifying **Charlie Kirk content**. Security analysts flag rise in Russian-created misinformation posts on social media following Kirk shooting. Russian-backed groups go as far to create fake news reports, analysts found." By Ivan Pereira and Josh Margolin on **September 16, 2025** https://ABCnews.go.com/Politics/security-analysts-flag-rise-russian-created-misinformation-posts/story?id=125640078
+3. Russia has been documented amplifying **Charlie Kirk content**: "Security analysts flag rise in Russian-created misinformation posts on social media following Kirk shooting. Russian-backed groups go as far to create fake news reports, analysts found." By Ivan Pereira and Josh Margolin on **September 16, 2025** https://ABCnews.go.com/Politics/security-analysts-flag-rise-russian-created-misinformation-posts/story?id=125640078
 
 &nbsp;
 
