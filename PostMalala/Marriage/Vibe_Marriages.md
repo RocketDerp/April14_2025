@@ -43,3 +43,6 @@ Monster State: Parenting as Donald Trump Truth Social leadership. Divorced manip
 ### Choice Marriage ToDo 
 
 1. https://old.reddit.com/r/todayilearned/comments/1pnxc52/til_study_found_that_women_rated_the_same_man_as/
+
+2. https://old.reddit.com/r/TikTokCringe/comments/1qd4b5s/a_wife/
+
