@@ -100,3 +100,11 @@ Reddit users are playing a screen game of mocking the Daddy figure in the media 
 * “The human brain can protect us from seeing and feeling what it believes may be too uncomfortable for us to tolerate. It can lead us to deny, defend, minimize, or rationalize away something that doesn’t fit our worldview.” ― Dr. Bandy X Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. Published **October 3, 2017**. Page 273. Chapter "TRUMP'S DADDY ISSUES"](https://books.google.com/books?id=g0c4DwAAQBAJ&pg=PA273&dq=%E2%80%9CThe+human+brain+can+protect+us+from+seeing+and+feeling+what+it+believes+may+be+too+uncomfortable%22&hl=en&newbks=1&newbks_redir=1&sa=X)
 
 Social post { https://autistics.life/@RoundSparrow/115899987072171706 https://bsky.app/profile/roundsparrow.bsky.social/post/3mchxvt64ec2w }
+
+https://old.reddit.com/r/law/comments/1qdjivl/trump_threatens_to_use_the_insurrection_act_to/nzq7abz/
+
+<img width="858" height="573" alt="image" src="https://github.com/user-attachments/assets/c31c0153-e3ac-49be-b959-47eae8e98c9d" /> yes; Trump addicts. The addicts to *the rush* of TCP/IP messaging have been [*jonesing* for their stimulating Trump fix](https://Old.Reddit.com/r/DoesAnybodyElse/comments/ywvc4m/dae_ever_use_the_word_jonesing/). For more entertainment and madness content from **media** king Trump! Reality TV addicts of "The Apprentice" have their White House chaos content and memes all the time, every day, on social machines! Waiting and waiting on the intimate touch devices to see the next episode of Reality TV Kremlin / White House! Anything to avoid facing up to media addict Trump leading a nation of media addictions!
+
+* ToDo: Insert partial quote and link to https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Specific/Postman_1985_Howdy_Doody.md
+
+Social post { https://autistics.life/@RoundSparrow/115900147321320309 https://bsky.app/profile/roundsparrow.bsky.social/post/3mci26vavjs24 }
