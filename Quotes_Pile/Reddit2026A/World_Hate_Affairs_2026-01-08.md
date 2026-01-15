@@ -870,3 +870,15 @@ Reddit audience crying out for MORE content from the White House. More bullshit 
 https://old.reddit.com/r/CringeTikToks/comments/1qdpyqj/this_isnt_ai_its_real/nzrjzgi/
 
 As dumb as Twitter-length commenting that does not link off-Reddit to how serious a problem television news and meme addiction Reddit news are. Neil Postman's 1985 book describes social media hell society that thinks Trump is amusing entertainment! Meme addict society.  September 10, 2025 https://Time.com/7313999/neil-postman-trump-prediction/
+
+https://old.reddit.com/r/worldnews/comments/1qdt2tk/anger_in_iceland_over_incoming_us_ambassadors/nzs7xr9/
+
+But it is OK for media stars to do it, grab nation by the pussy when you are a famous entertainer. Fox News host or Reality TV "The Apprentice". Reddit audiences will eat that shit right up.
+
+https://old.reddit.com/r/worldnews/comments/1qdt2tk/anger_in_iceland_over_incoming_us_ambassadors/nzs9b7p/
+
+Joke-washing, the one thing Reddit jokers can't resist. Surkov student media techniques since March 2013.
+
+https://old.reddit.com/r/worldnews/comments/1qdt2tk/anger_in_iceland_over_incoming_us_ambassadors/nzs9ciu/
+
+Putin did it. Rounded up the We The People by invading Reddit. It is called the Saint Pete Internet Research Agency. But Reddit meme addicts can't name or cite who did the rounding up of people to prize the worst most self-harming leaders. https://www.bbc.com/news/technology-43301643
