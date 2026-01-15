@@ -73,3 +73,10 @@ https://bsky.app/profile/roundsparrow.bsky.social/post/3mchyvw3ays24
 https://autistics.life/@RoundSparrow/115900055052964917    
 
 First use of "#BRS47" hashtag. Seems free / open.
+
+ASSERTION: Donald Trump is a menace to the entire planet Earth. Trump is an "Attractive Nuisance" 
+
+Tuesday, June 16, 2015 **Washington Monthly**     
+::: So Trump is the classic “nuisance” candidate, understanding that sometimes a “nuisance” can be a serious matter. :::   
+
+https://washingtonmonthly.com/2015/06/16/trump-the-nuisance/
