@@ -50,7 +50,7 @@ def live_fetch_error(res, call_spot):
 
     if exitcode > 0:
         print(f"HTTP Status: {res.status_code} {res.reason}")
-        print(f"Response Time: {response.elapsed.total_seconds()}s")
+        print(f"Response Time: {res.elapsed.total_seconds()}s")
         sys.exit(exitcode)
 
 
