@@ -34,6 +34,8 @@ fetchRedditCountA = 0
 error_fetch_count = 0
 replies_users_fetch = 0
 replies_users_max = 13
+# every slowdown_every fetches kick in delay
+slowdown_every = 3
 age18_count = 0
 args = {}
 
@@ -453,6 +455,7 @@ def fetch_comment_data(url, idx=None, args=None):
 def fetch_user_info_hover(username, args=None):
     global fetchRedditCountA
     global error_fetch_count
+    global slowdown_every
 
     url = f"https://old.reddit.com/user/{username}/about.json"
     
@@ -521,8 +524,7 @@ def fetch_user_info_hover(username, args=None):
     if reddit_account_data is None:
         print(f"live-fetch for user_info_hover {url}")
         fetchRedditCountA += 1
-        
-        slowdown_every = 5
+
         if fetchRedditCountA % slowdown_every == 0:
             print(f"fetchRedditCountA {fetchRedditCountA} is a multiple of {slowdown_every}.")
             sleep_time = random.uniform(9, 25)
