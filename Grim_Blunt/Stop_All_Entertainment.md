@@ -106,3 +106,9 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1po82ko/mick_foley_is_going
 Stand Up Hear! Hear!        
 https://autistics.life/@RoundSparrow/115730459267201801     
 https://bsky.app/profile/roundsparrow.bsky.social/post/3ma4osqupzs2m    
+
+#### January 15, 2026
+
+https://midwest.social/post/41884411    
+https://bsky.app/profile/roundsparrow.bsky.social/post/3mchtuks4vk2h  
+https://autistics.life/@RoundSparrow/115899739310782031    
