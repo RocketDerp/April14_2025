@@ -212,6 +212,13 @@ Monomyth wars (A brief History of John 1:1)
 Monomyth warfare     
 Battles of John 1:1    
 
+The Brainwashing of All  
+The Brainwashing of We The People   
+The Brainwashing of WWWW   
+The Brainwashing of Everyone   
+The Brainwashing of My Nation   
+
+
 
 &nbsp;
 
