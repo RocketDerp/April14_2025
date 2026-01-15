@@ -1282,3 +1282,5 @@ September 9 2014, 3:42 PM ET
 Translated from 2013 Russia to USA 2025: I.C.E. raids are very little violence and a lot of showboating. A lot of Reddit front-page I.C.E. raids for visual meme addicts / meme consumers. No recognition that Kremlin and White House has the Reddit total control of media amplifiers. Reddit is amplifying media from all over the Internet. Eating the onions that Trump and Musk is dementia stupid dumb idiot, Reddit society unable to engage and comprehend and understand off-Reddit... September 9, 2014: https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
 
 Social post { https://autistics.life/@RoundSparrow/115896251727127025 https://bsky.app/profile/roundsparrow.bsky.social/post/3mcgctbbcsk2e }
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qd25jd/nearly_70_of_americans_think_the_united_states_is/nzmup2k/
