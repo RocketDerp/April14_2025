@@ -132,3 +132,16 @@ The [*couch potatoes* mindset](https://en.wikipedia.org/wiki/Couch_potato) progr
 https://old.reddit.com/r/ProgressiveHQ/comments/1qdlhh3/house_democrats_are_reportedly_5_votes_away_from/nzqm02r/
 
 Note the age of the Reddit account encouraging the Reddit audience to do nothing, powerless We The People, powerless PLURIBUS!
+
+https://old.reddit.com/r/minnesota/comments/1qdntxz/gov_walz_message_to_minnesotans_and_president/nzr7rbx/
+
+Billionaire meme systems audiences...  meme addicts want more chaos thrilling image  content. ANYTHING to avoid turning to serious nonfiction book learning. Books on paper:
+
+* “Chaos and disruption, I later learned, are central tenets of Bannon's animating ideology. Before catalyzing America's dharmic rebalancing, his movement would first need to instill chaos through society so that a new order could emerge. He was an avid reader of a computer scientist and armchair philosopher who goes by the name Mencius Moldbug, a hero of the alt-right who writes long-winded essays attacking democracy and virtually everything about how modern societies are ordered. Moldbug’s views on truth influenced Bannon, and what Cambridge Analytica would become. Moldbug has written that “nonsense is a more effective organizing tool than the truth,” and Bannon embraced this. “Anyone can believe in the truth,” Moldbug writes, “to believe in nonsense is an unforgettable demonstration of loyalty. It serves as a political uniform. And if you have a uniform, you have an army.”
+― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the [Plot to Break America, page 85](https://books.google.com/books?id=8OW2DwAAQBAJ&pg=PA85&dq=%22serves+as+a+political+uniform.+And+if+you+have+a+uniform,+you+have+an+army.%E2%80%9D&hl=en&newbks=1&newbks_redir=1&sa=X). **year 2019**
+
+https://old.reddit.com/r/minnesota/comments/1qdntxz/gov_walz_message_to_minnesotans_and_president/nzr8doq/
+
+Dreams programmed by Reddit media empire, Truth Social media empire, Musk Twitter media empire, Rupert Murdoch media empire, Mark Z media empire. Billionaire messages into your mind! Reddit audience addiction, Fox News HDTV addictions nation. **Audience USA that follows** and chases every Trump White House / Putin Kremlin information signal to self-harm the USA.
+
+* “We like to think of ourselves as immune from influence or our cognitive biases, because we want to feel like we are in control, but industries like alcohol, tobacco, fast food, and gaming all know we are creatures that are subject to **cognitive and emotional vulnerabilities. And tech has caught on to this with its research into “user experience,” “gamification,” “growth hacking,” and “engagement” by activating ludic loops and reinforcement schedules in the same way slot machines do**. So far, this gamification has been contained to social media and digital platforms, but what will happen as we further integrate our lives with networked information architectures designed to **exploit evolutionary flaws in our cognition**? Do we really want to live in a “gamified” environment that engineers our obsessions and plays with our lives as if we are inside its game?” ― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the Plot to Break America, chapter 12 "Revelations", page 235, year 2019
