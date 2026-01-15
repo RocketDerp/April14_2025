@@ -32,3 +32,17 @@ https://old.reddit.com/r/clevercomebacks/comments/1qd7g7l/maga_misinformation_le
 https://old.reddit.com/r/ProgressiveHQ/comments/1qdc6lc/fuck_you_ice_and_fuck_you_maga_for_supporting/nzp60z8/
 
 <img width="988" height="340" alt="image" src="https://github.com/user-attachments/assets/dd8e804a-644f-4673-85ab-07b03ede8e43" /> Trump sets the tone of sarcastic government, satire leadership, comedy Tony Clifton POTUS acting. People eat it up on Reddit. ANYTHING but quote Dr. Bandy x Lee since year 2017 when her book on Trump was published. Anything to avoid nonfiction education on the cult behaviors around Trump.
+
+https://old.reddit.com/r/TikTokCringe/comments/1qdflr2/why_isnt_anyone_speaking_up/nzpdl8j/
+
+Trump behaves like Internet users behave. People just don't get it. People who prize mocking aren't just a few, they don't stand up against it. People who prize hate are all over the world. Hate is not a USA only thing. And Bible / Jesus is supposed to be a role model for compassion education. I lived in the Middle East, they are no role model of good behavior! Parents have made Putin and Trump role models of leaders for their Children since year 2013. November 8, 2013 Trump was in Moscow, Russia showing sex beauty for attention.
+
+People avoid Malala's words, people avoid Martin Luther King Jr's words. Swat Valley Pakistan experiences of a girl since January 3, 2009 apply just as well to anywhere in the entire world! The values we put into our mind, the way we teach our brain, is terrible. People do not stand up for education about hate as a human mind issue all across the planet. They revel in their hate leaders. People don't just support Putin and trump for a day or two, it goes on and on and on year after year. 
+
+https://old.reddit.com/r/TikTokCringe/comments/1qdflr2/why_isnt_anyone_speaking_up/nzpcs6e/
+
+The way men treat men when in front of a camera or a Internet device, is terrible. In USA, the way systems like medical are used to dehumanize others. The pride people have in their home ownership competition to wall out the rest of the world.
+
+https://old.reddit.com/r/TikTokCringe/comments/1qdflr2/why_isnt_anyone_speaking_up/nzpcx2b/
+
+MLK Jr gets ignored by all generation on the Internet. I keep looking for people quoting the February 28,1954 teaching and people to say they have seen enough hate in the world. But people instead keep promoting *hate harder* and cheering on killing (Luigi) as a solution to avoiding the Second Bill of Rights from January 1944.
