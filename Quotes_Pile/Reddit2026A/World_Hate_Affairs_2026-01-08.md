@@ -820,3 +820,6 @@ https://old.reddit.com/r/worldnews/comments/1qcz1gk/trump_intent_on_conquering_g
 
 Social post { https://autistics.life/@RoundSparrow/115896146610452440 https://bsky.app/profile/roundsparrow.bsky.social/post/3mcgbdkab622o }
 
+https://old.reddit.com/r/worldnews/comments/1qd1y8v/iran_closes_airspace_with_anticipated_us_attack/nzmphqj/
+
+https://old.reddit.com/r/worldnews/comments/1qd1y8v/iran_closes_airspace_with_anticipated_us_attack/nzmqqel/
