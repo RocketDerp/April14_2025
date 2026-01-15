@@ -384,3 +384,9 @@ This is a Reddit mind-fuck operation. To turn serious complex talk into meme "Ad
 
 * "elaborated in a follow-up interview, “Trump creates his own **extreme manipulation of reality**. He insists that his spokesmen defend his false reality **as normal**. He then expects the rest of society to accept it — despite the lack of any evidence.” This leads to what Lifton calls “malignant normality” — in other words, the **gradual acceptance by a public inundated with toxic untruths** of those untruths until they pass for normal.”
 ― Bandy X. Lee, The Dangerous Case of Donald Trump: 27 Psychiatrists and Mental Health Experts Assess a President. [October 3, 2017. Book on paper, off-Reddit printed book, page 79](https://books.google.com/books?id=716HDwAAQBAJ&pg=PA79&dq=%22He+then+expects+the+rest+of+society+to+accept+it%22&hl=en&newbks=1&newbks_redir=1&sa=X)
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qdo93s/trump_says_the_2026_midterms_should_be_cancelled/nzr7jur/
+
+<img width="771" height="428" alt="image" src="https://github.com/user-attachments/assets/a15d4ed0-821e-4d2a-8285-ca30bee37ad7" /> Top-voted comment on the topic. Media addicts have been sitting on their ass waiting for this episode of the Reality White House / Reality Kremlin TCP/IP media show to stream to the intimate touch-device screens. No call to stand up to the media crap Trump keeps dropping into the mounts of the Reddit audience. Instead, just commenting like it is a television show or film or sports game to gawk at.
+
+Social post { https://autistics.life/@RoundSparrow/115900448511449298 https://bsky.app/profile/roundsparrow.bsky.social/post/3mci6hoz6q227 }
