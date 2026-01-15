@@ -197,3 +197,16 @@ Anything but blame billionaires for manipulating minds with media. Denial of the
 https://old.reddit.com/r/complaints/comments/1qdo0yi/if_you_sat_out_the_2024_election_because_both/nzr8hfu/
 
 Tech machine lovers, technology lovers, want humans to be hated. Just as the billionaire Twitter owner wants. Human persons to be hated while Grok AI and Twitter machines and Reddit machines are loved and prized. Anti-humanism messaging on Reddit to audience.
+
+https://old.reddit.com/r/complaints/comments/1qdo0yi/if_you_sat_out_the_2024_election_because_both/nzrf0hv/
+
+Billionaire Facebook owner, Mark Zuckerberg, fucks over your friend mindsets and brain and unable to critically think about Facebook itself and Reddit itself. Richest man in the whole world purchases social media and people don't turn to Marshall McLuhan books for learning and instead mock away! Meme addicts of Reddit won't question meme addictions!
+
+https://old.reddit.com/r/complaints/comments/1qdo0yi/if_you_sat_out_the_2024_election_because_both/nzr8tky/
+
+6 month old Reddit account. Blaming immigrant Muslims instead of predatory billionaires fucking-over the people who believe Levant monomyth fiction stories. Surkov monomyth won.
+
+https://old.reddit.com/r/complaints/comments/1qdo0yi/if_you_sat_out_the_2024_election_because_both/nzr78w8/
+
+Reddit account new this year, weeks old.
+
