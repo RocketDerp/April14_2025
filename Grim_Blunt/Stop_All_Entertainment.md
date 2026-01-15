@@ -6,7 +6,9 @@ Why? Please take 6 to 12 minutes:
 
 1. Recommended 6 minute video: **Amusing Ourselves to Death** 1985 book, modern introduction on YouTube: https://www.youtube.com/watch?v=ETUGwC9jXCM
 
-2. Recommend reading from March 27, 2024 - before the November 2024 election. https://www.northjersey.com/story/opinion/columnists/2024/03/27/us-politics-2024-predicted-media-expert-neil-postman/73022583007/
+2. Recommend reading from **March 27, 2024** - before the November 2024 election. https://www.NorthJersey.com/story/opinion/columnists/2024/03/27/us-politics-2024-predicted-media-expert-neil-postman/73022583007/
+
+3. Time Magazine. world famous! Neil Postman's 1985 book describes social media hell society that thinks Trump is amusing entertainment! Meme addict society. **September 10, 2025** https://Time.com/7313999/neil-postman-trump-prediction/
 
 &nbsp;
 
@@ -38,7 +40,7 @@ Beyond the [September 9, 2014 "Russia and the Menace of Unreality" story](https:
 
 Highlight:
 
-1. There is [factual validated evidence announced August 24, 2018 from two universities: Johns Hopkins University and George Washington University. Cite the names of people in the articles](https://www.bbc.com/news/world-us-canada-45294192). Find the same 2018 articles on Fox News website, other world news sites. It is out there. Search fot the names of the people cited from the universities. Show concern how during the COVID-19 pandemic, people did not trust factual reality of medical science and how people behaved "Menace of Unreality" in trusting falsehoods and misunderstandings.
+1. There is [factual validated evidence announced August 24, 2018 from two universities: Johns Hopkins University and George Washington University. Cite the names of people in the articles](https://www.bbc.com/news/world-us-canada-45294192). Find the same 2018 articles on Fox News website, other world news sites. It is out there. Search for the names of the people cited from the universities. Show concern how during the COVID-19 pandemic, people did not trust factual reality of medical science and how people behaved "Menace of Unreality" in trusting falsehoods and misunderstandings.
 
 2. Ongoing, this isn't all just 2014, 2018, this story is from October 2024 on the topic of *hurricanes**: https://www.reuters.com/business/environment/russian-chinese-cuban-accounts-are-amplifying-hurricane-misinformation-us-2024-10-28/
 
