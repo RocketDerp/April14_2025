@@ -271,3 +271,22 @@ https://old.reddit.com/r/complaints/comments/1qdswr9/wtf/nzsjz6b/
 
 Joke-washing works on Reddit audiences every time. The front page of /r/All is a total mockery of joking about Trump. The biggest source of entertainment the USA has ever had! President Tony Clifton antics have turned everyone into joke audience.
 
+https://old.reddit.com/r/AskReddit/comments/1qdxk2p/donald_trump_just_said_we_shouldnt_even_have_an/nztdjij/
+
+Reddit comments describing how people believe and trust Trump. But there is *zero benefit* to trusting Trump. Trump is self-harm on a world-wide scale. Trump trusts Putin, and people trust Trump. Social media has been manipulated mentally to not be serious about Russian information warfare. The symptoms, the outcomes, the techniques, the timelines. Surkov won.
+
+https://old.reddit.com/r/AskReddit/comments/1qdxk2p/donald_trump_just_said_we_shouldnt_even_have_an/nztepmn/
+
+There have been no winners. Even Donald Trump, it can't possibly be enjoyable to work as hard as he does, running all around. Only if you are addicted to cameras, addicted to being "on stage" and in front of an audience - influencer / stardom addiction. But that's the problem, Reddit media addicts can't see their role model of a 79 year old media addict to Fox News HDTV...
+
+https://old.reddit.com/r/AskReddit/comments/1qdxk2p/donald_trump_just_said_we_shouldnt_even_have_an/nztmgrd/
+
+<img width="1090" height="482" alt="image" src="https://github.com/user-attachments/assets/ec4b53c8-ae19-4c64-a09d-d61abea8028a" /> Sounds like a comedy hall. Out-jerk the Daily Show. Out-comedy SNL Weekend Update. A President **Tony Clifton** technique of out-late night Stephen Colbert joking. Sounds like everyone is always joking. Sounds like humor, sounds like memes, sounds like LOL sounds like funny-washing all the time, all day, all night, every day since June 16, 2015. People are UNPREPARED for Surkov student techniques!!!
+
+* “Everything in our background has prepared us to know and resist a prison when the gates begin to close around us . . . But what if there are no cries of anguish to be heard? Who is prepared to take arms against a sea of amusements? To whom do we complain, and when, and in what tone of voice, when serious discourse dissolves into giggles? What is the antidote to a culture's being drained by laughter?” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business
+
+Social post { https://autistics.life/@RoundSparrow/115901804372063988 https://bsky.app/profile/roundsparrow.bsky.social/post/3mcirqc374s2m }
+
+https://old.reddit.com/r/AskReddit/comments/1qdxk2p/donald_trump_just_said_we_shouldnt_even_have_an/nzt91gf/
+
+* "Expert Analysis: The film features interviews with historians and legal experts—such as Ruth Ben-Ghiat, an expert on strongmen and fascism, and Timothy Snyder, author of On Tyranny—who analyze Trump's rhetoric. They explain that autocrats often use humor to float extreme ideas, allowing them to claim they were "just kidding" if the backlash is too strong, while still moving the goalposts of acceptable political discourse." - Google Search 2026-01-15 afternoon USA - about "In Michael Moore’s 2018 documentary Fahrenheit 11/9, he interviews experts to discuss the concept of "trial balloons" regarding Donald Trump’s comments on serving a third term or staying in power indefinitely."
