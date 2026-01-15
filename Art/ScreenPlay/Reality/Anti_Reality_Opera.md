@@ -50,8 +50,17 @@ https://Autistics.life/@RoundSparrow/115856035587363961
 https://bsky.app/profile/roundsparrow.bsky.social/post/3mbuhdustss2q   
 https://midwest.social/post/41490892    
 
+&nbsp;
 
 ## March 6, 2018 - Reddit
 
 "I believe the biggest risk we face as Americans is our own ability to discern reality from nonsense, and this is a burden we all bear." -  6 March 2018     
 https://www.bbc.com/news/technology-43301643      
+
+&nbsp;
+
+# Agenda for cop killing
+
+https://www.youtube.com/watch?v=_Q4DKniaiAE     
+The True Crime Film That Solved What Police Didn't    
+327,222 views December 12, 2025    
