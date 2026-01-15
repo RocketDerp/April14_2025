@@ -116,3 +116,11 @@ Observe. Since June 16, 2015 - more than a decade ago. When did the World Wide W
 https://old.reddit.com/r/ProgressiveHQ/comments/1qdlhh3/house_democrats_are_reportedly_5_votes_away_from/nzqlte9/
 
 We The People keep commenting messages like that: { nothingburger, it is nothing, no big deal } over and over on meme mills. We The People keep messaging to the billionaires that we are impotent, powerless, and we will not use information networks to sustain focus and protest! Eating right out of the hands of the corrupt leaders.
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qdlhh3/house_democrats_are_reportedly_5_votes_away_from/nzqp0mb/
+
+<img width="880" height="282" alt="image" src="https://github.com/user-attachments/assets/724edbeb-a596-4ce4-bdd6-6a68ad04c8ab" /> The cult of Twitter-thinking. Tiny-short messages that say "cult" over and over. Just the magic word "cult". No book author name, no URL off-Reddit, no cal for cult deprogramming, no quotes from a book. Anything and everything to avoid cult deprogramming education and actually addressing the problem. Just sports-fandom talking about cult vs. cult, **fiction vs. fiction, all avoiding nonfiction**! Note the age of the Reddit account, recently created.
+
+* "John Martin-Joy M.D. ... Politics, Psychiatry, and Psychoanalysis. President Donald Trump. Donald Trump and His Followers: Are They a Cult? Psychiatrist Robert Jay Lifton and others explore the issue." Posted September 27, 2020 |  Reviewed by Devon Frye - https://www.psychologytoday.com/us/blog/politics-psychiatry-and-psychoanalysis/202009/donald-trump-and-his-followers-are-they-cult
+
+Social post { https://autistics.life/@RoundSparrow/115900308510613029 https://bsky.app/profile/roundsparrow.bsky.social/post/3mci4i7cf3s2h }
