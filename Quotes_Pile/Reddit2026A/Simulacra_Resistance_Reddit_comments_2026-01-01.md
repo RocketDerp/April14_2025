@@ -432,3 +432,14 @@ https://old.reddit.com/r/UnderReportedNews/comments/1qds6m8/you_are_a_leftwing_h
 
 New 2026 Reddit account commenting about "Pretending" in Reddit audience in regard to White House press techniques. "Make believe" fiction addiction cultivation.
 
+https://old.reddit.com/r/PublicFreakout/comments/1qduz9e/white_house_press_secretary_goes_ballistic_on/nzsrywc/
+
+Yes. Running a simulation of a press conference isn't dumb when it is all Reddit and Bluesy audiences crave every day. Shit-talk, junk Reality TV techniques. Surkov won.
+
+https://old.reddit.com/r/PublicFreakout/comments/1qduz9e/white_house_press_secretary_goes_ballistic_on/nzspi4h/
+
+Cheering on "good job" that MAGA is serving Putin to harm NATO. Eating right out of the hands of the Surkov students, Kremlin techniques. Reddit audience can't turn to non-fiction learning about simulation of a press conference and Surkovian methods.
+
+https://old.reddit.com/r/PublicFreakout/comments/1qduz9e/white_house_press_secretary_goes_ballistic_on/nzsngtf/
+
+Reddit audiences line up for the mockery of the White House, predictable. Surkov won.
