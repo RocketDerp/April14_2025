@@ -89,3 +89,14 @@ Trump on social media is what got us into this mess The population believes Dona
 
 Neil Postman's 1985 book describes social media hell society that thinks Trump is amusing entertainment! Meme addict society. September 10, 2025 https://Time.com/7313999/neil-postman-trump-prediction/
 
+https://old.reddit.com/r/law/comments/1qdjivl/trump_threatens_to_use_the_insurrection_act_to/nzq6ku7/
+
+<img width="888" height="281" alt="image" src="https://github.com/user-attachments/assets/aa66a5c5-7ad9-43d7-a4bb-b0785f34fe13" /> The top-voted Reddit comment on a very serious front-page of Reddit posting. Twitter-length, Bluesky-length, **proclaiming LOVE of Trumpism / MAGA values**. Disposable commenting, an audience on Reddit that prizes the antics and Tony Clifton chaos that Trump plays. Who have detached themselves from Reality and react to images and messages of Trump. This is an established pattern, it goes far beyond { satire, sarcasm } "LOVE", this is a media addict revealing their inner most motivation and desire... and is participation in a Trump controlled **Total Mockery** nation. The entire population is an audience to Trump's antics and hate campaign. 
+
+* “When a population becomes distracted by trivia, **when cultural life is redefined as a perpetual round of entertainments**, when serious public conversation becomes a form of baby-talk, when, in short, a **people become an audience, and their public business a vaudeville act, then a nation** finds itself at risk; culture-death is a clear possibility.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business
+
+Reddit users are playing a screen game of mocking the Daddy figure in the media cloud computing TCP/IP sky. They are not asserting the REMOVAL of Donald Trump, they are proclaiming in public how much they love the Tony Clifton POTUS acting that Trump does. Trump is first and foremost an actor, doing Surkov student screenplays and SNL Tony Clifton method acting.
+
+* “The human brain can protect us from seeing and feeling what it believes may be too uncomfortable for us to tolerate. It can lead us to deny, defend, minimize, or rationalize away something that doesn’t fit our worldview.” ― Dr. Bandy X Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. Published **October 3, 2017**. Page 273. Chapter "TRUMP'S DADDY ISSUES"](https://books.google.com/books?id=g0c4DwAAQBAJ&pg=PA273&dq=%E2%80%9CThe+human+brain+can+protect+us+from+seeing+and+feeling+what+it+believes+may+be+too+uncomfortable%22&hl=en&newbks=1&newbks_redir=1&sa=X)
+
+Social post { https://autistics.life/@RoundSparrow/115899987072171706 https://bsky.app/profile/roundsparrow.bsky.social/post/3mchxvt64ec2w }
