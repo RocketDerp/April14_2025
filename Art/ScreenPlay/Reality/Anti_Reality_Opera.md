@@ -66,3 +66,12 @@ The True Crime Film That Solved What Police Didn't
 327,222 views December 12, 2025    
 
 https://en.wikipedia.org/wiki/The_Thin_Blue_Line_(1988_film)    
+
+&nbsp;
+
+## Indonesia 
+
+Glorification of violence   
+https://youtu.be/-pwT9arjasw?t=219    
+View killings as entertainment    
+https://youtu.be/-pwT9arjasw?t=272     
