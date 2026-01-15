@@ -67,14 +67,14 @@ https://MidWest.social/post/41488304
 
 &nbsp;
 
-# Thursday January 15, 2026 - Attractive Nuisance 
+# Thursday January 15, 2026 - [Attractive Nuisance](https://en.wikipedia.org/wiki/Attractive_nuisance_doctrine) 
 
 https://bsky.app/profile/roundsparrow.bsky.social/post/3mchyvw3ays24   
 https://autistics.life/@RoundSparrow/115900055052964917    
 
 First use of "#BRS47" hashtag. Seems free / open.
 
-ASSERTION: Donald Trump is a menace to the entire planet Earth. Trump is an "Attractive Nuisance" 
+ASSERTION: Donald Trump is a menace to the entire planet Earth. Trump is an ["Attractive Nuisance"](https://en.wikipedia.org/wiki/Attractive_nuisance_doctrine)   
 
 Tuesday, June 16, 2015 **Washington Monthly**     
 ::: So Trump is the classic “nuisance” candidate, understanding that sometimes a “nuisance” can be a serious matter. :::   
