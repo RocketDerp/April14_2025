@@ -19,7 +19,7 @@ See also: /r/QAnonRussia
 
 &nbsp;
 
-&nbps;
+&nbsp;
 
 # 2026-01-15 Social Posts
 
