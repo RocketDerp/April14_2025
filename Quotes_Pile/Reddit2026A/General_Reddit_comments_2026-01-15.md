@@ -82,3 +82,10 @@ https://old.reddit.com/r/TikTokCringe/comments/1qdflr2/why_isnt_anyone_speaking_
 <img width="974" height="471" alt="image" src="https://github.com/user-attachments/assets/5281006c-75b5-4ab3-9438-a3fefc49a474" /> Amusement. Laughter-washing. Trump's skill and talent is entertainment of crowds. People can't wait get on the Internet and share their Trump story to the audience of Reddit to chuckle away! Neil Postman's 1985 book describes social media hell society that thinks Trump is amusing entertainment! Meme addict society. September 10, 2025 https://Time.com/7313999/neil-postman-trump-prediction/
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mchsskzjvk22 https://autistics.life/@RoundSparrow/115899628041131800 }
+
+https://old.reddit.com/r/minnesota/comments/1qdd0df/they_tell_you_its_only_immigrantsits_fcking/nzow2p9/
+
+Trump on social media is what got us into this mess The population believes Donald Trump is Jesus, a fiction character from the Middle East / Levant. Why isn't social media famous now for having months-long anti-gaming campaigns? Sports games, video games? Because media addiction to treating the USA like sports mentality is the very problem. Trump is a master of ceremony (MC) to fiction storytelling audiences. The rest of the world now knows there are Christians who believe terrible humans are Jesus! We are not ADDRESSING the book reading crisis of fiction vs. nonfiction, RIGHT ON SOCIAL MEDIA!
+
+Neil Postman's 1985 book describes social media hell society that thinks Trump is amusing entertainment! Meme addict society. September 10, 2025 https://Time.com/7313999/neil-postman-trump-prediction/
+
