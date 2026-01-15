@@ -882,3 +882,13 @@ Joke-washing, the one thing Reddit jokers can't resist. Surkov student media tec
 https://old.reddit.com/r/worldnews/comments/1qdt2tk/anger_in_iceland_over_incoming_us_ambassadors/nzs9ciu/
 
 Putin did it. Rounded up the We The People by invading Reddit. It is called the Saint Pete Internet Research Agency. But Reddit meme addicts can't name or cite who did the rounding up of people to prize the worst most self-harming leaders. https://www.bbc.com/news/technology-43301643
+
+https://old.reddit.com/r/worldnews/comments/1qdv0bo/trump_is_keeping_money_from_venezuelan_oil_sale/nzso17v/
+
+Reddit comment questing if it "is real", and "reality". Anything to void nonfiction off-Reddit learning from a nonfiction book on paper. From September 9, 2014 - which is more than 10 years ago, more than a decade - we could have kept repeating it and defeated Putin's takeover of USA hearts and minds: https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ "Russia and the Menace of Unreality: How Vladimir Putin is revolutionizing information warfare. By Peter Pomerantsev"
+
+https://old.reddit.com/r/worldnews/comments/1qdv0bo/trump_is_keeping_money_from_venezuelan_oil_sale/nzsqcak/
+
+That's the Putin information war since year 2012. Endlessly exhausting.
+
+* "But the key thing was, that Surkov then let it be known that this was what he was doing, which meant that no one was sure what was real or fake. As one journalist put it: "It is a strategy of power that keeps any opposition constantly confused." A ceaseless shape-shifting that is unstoppable because it is undefinable. It is exactly what Surkov is alleged to have done in the Ukraine this year (2014). In typical fashion, as the war began, Surkov published a short story about something he called non-linear war. A war where you never know what the enemy are really up to, or even who they are. The underlying aim, Surkov says, is not to win the war, but to use the conflict to create a constant state of destabilized perception, in order to manage and control." - BBC, Adam Curtis. December 31, 2014. https://www.RealClearPolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html
