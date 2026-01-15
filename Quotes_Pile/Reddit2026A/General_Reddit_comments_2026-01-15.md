@@ -108,3 +108,11 @@ https://old.reddit.com/r/law/comments/1qdjivl/trump_threatens_to_use_the_insurre
 * ToDo: Insert partial quote and link to https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Specific/Postman_1985_Howdy_Doody.md
 
 Social post { https://autistics.life/@RoundSparrow/115900147321320309 https://bsky.app/profile/roundsparrow.bsky.social/post/3mci26vavjs24 }
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qdlhh3/house_democrats_are_reportedly_5_votes_away_from/nzqk6ak/
+
+Observe. Since June 16, 2015 - more than a decade ago. When did the World Wide Web have a massive uprising against Trump? When was there a weeks-long blackout / sustained focused message, against Trump? The billionaires can organize media campaigns - but when did We The People, social media users - ever STOP using free time and spare time to comment on Trump - **reacting to Trump** and actually get noticed WORLD WIDE, WWW WIDE, for online protesting? It never fucking happens! Trump wins by Truth Social and Musk Twitter, and  social media users only FOLLOW and OBEY and REACT to the President Tony Clifton acting / actor performances.
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qdlhh3/house_democrats_are_reportedly_5_votes_away_from/nzqlte9/
+
+We The People keep commenting messages like that: { nothingburger, it is nothing, no big deal } over and over on meme mills. We The People keep messaging to the billionaires that we are impotent, powerless, and we will not use information networks to sustain focus and protest! Eating right out of the hands of the corrupt leaders.
