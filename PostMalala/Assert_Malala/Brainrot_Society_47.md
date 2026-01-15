@@ -51,7 +51,7 @@ https://Autistics.Life/@RoundSparrow/115855006671560585
 
 &nbsp;
 
-# Wednesday January 7, 2025 
+# Wednesday January 7, 2026 
 
 &nbsp;
 
@@ -65,3 +65,11 @@ https://autistics.life/@RoundSparrow/115855751660694969
 https://bsky.app/profile/roundsparrow.bsky.social/post/3mbudc2lfak2q    
 https://MidWest.social/post/41488304    
 
+&nbsp;
+
+# Thursday January 15, 2026 - Attractive Nuisance 
+
+https://bsky.app/profile/roundsparrow.bsky.social/post/3mchyvw3ays24   
+https://autistics.life/@RoundSparrow/115900055052964917    
+
+First use of "#BRS47" hashtag. Seems free / open.
