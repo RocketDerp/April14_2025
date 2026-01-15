@@ -232,3 +232,16 @@ Tell every person you know, post every 6 hours on social media: Follow Dr. Bandy
 https://old.reddit.com/r/AskReddit/comments/1qdrj5h/trump_is_preparing_to_use_the_insurrection_act_in/nzrxiry/
 
 Mocking against a mockery is not resisting a total mockery! Tell every person you know, post every 6 hours on social media: Follow Dr. Bandy X Lee's leadership! Quote Dr. Bandy X Lee's 2017 book, her other nonfiction teachings! Stop posting shit-postings and shit-commenting and actually **teach cult deprogramming** from professional nonfiction teachers! Stop *reacting* to Trump, and educate about the MAGA cult.
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qdunzs/the_first_amendment_under_trumps_regime/nzsvg02/
+
+Gun-worship society, weapon systems leaders of the world. A nation of 0.34 billion people that out weapons a planet of over 8 billion people. Technology addition, tech might. Strength via weapons.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qdtf05/greenland_official_breaks_down_in_tears_on_live/nzsa9yj/
+
+Bullies dominate social media. People prize bullying / cyber-bullying as a "winning" method. Disappeared people all the time on social systems. Block, book burning, anti-learning praise of gun worship and death by violence. Mocking people who stand up for intellectual progress.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qdtf05/greenland_official_breaks_down_in_tears_on_live/nzscglx/
+
+Intolerance of diversity and freedom of people is the USA January 2026 technology lust society. Can't have people free thinking outside the USA systemic control. That's the values of anti-diverse society.
+
