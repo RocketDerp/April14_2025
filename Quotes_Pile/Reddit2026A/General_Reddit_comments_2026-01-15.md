@@ -402,3 +402,11 @@ New Reddit user deweyAvenue_21 commenting and mocking the Total Mockery White Ho
 OPERA_A audience plant in a Tony Clifton performance. NYC SNL culture. https://youtu.be/1ePe7Q_zH1c?t=116 Bob Gorsky in the audience, Polish man. 545,945 views June 24, 2011 - WE ALL need to be learning these sophisticated audience engagement /  media techniques of Surkov students!!! It is now multi-media multiple platforms in feedback loops.
 
 * “One of the saddest lessons of history is this: If we’ve been bamboozled long enough, we tend to **reject any evidence of the bamboozle**. We’re no longer interested in finding out the truth. The bamboozle has captured us. It’s simply too painful to acknowledge, even to ourselves, that we’ve been taken. Once you give a charlatan power over you, you almost never get it back. So the old bamboozles tend to persist as the new ones rise.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, **1995**, page 241
+
+https://old.reddit.com/r/technology/comments/1qejnjo/x_has_stopped_working/nzxu5u4/
+
+Note the casual claims about Russia on Twitter. People do not assert serious problem. Such as this link August 24, 2018 off-Reddit link: https://www.BBC.com/news/world-us-canada-45294192 - if people would repeat these in comments... so much RFK Jr, Musk and Trump media messaging would be scrutinized with that lense!
+
+https://old.reddit.com/r/SipsTea/comments/1qek9u8/peak_united_states_moment/nzy844s/
+
+Swarm of low-effort banal mind programming. Common hyper-banal information warfare parroting. Been describing this tactic on Reddit: https://old.reddit.com/r/HyperBanalisation
