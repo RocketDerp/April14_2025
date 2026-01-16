@@ -937,3 +937,22 @@ https://old.reddit.com/r/worldnews/comments/1qejxed/trump_says_may_slap_tariffs_
 
 Note age of Reddit account.
 
+https://old.reddit.com/r/worldnews/comments/1qejxed/trump_says_may_slap_tariffs_on_nations_that_dont/nzxww8z/
+
+Russia's goal is to humiliate USA, wreck it and weaken it. Very long-term thinking of USA self-harming. Alas, the Surkov monomyth mind-fucking is self-harm to domestic Russia too. The whole world is chasing self-harming mindsets.
+
+https://old.reddit.com/r/europe/comments/1qeg8be/only_16_of_eu_citizens_now_consider_the_us_an/nzx8f3q/
+
+https://old.reddit.com/r/europe/comments/1qeg8be/only_16_of_eu_citizens_now_consider_the_us_an/nzx36q0/
+
+https://old.reddit.com/r/europe/comments/1qeg8be/only_16_of_eu_citizens_now_consider_the_us_an/nzx6ig1/
+
+https://old.reddit.com/r/europe/comments/1qeg8be/only_16_of_eu_citizens_now_consider_the_us_an/nzx48bj/
+
+https://old.reddit.com/r/europe/comments/1qeg8be/only_16_of_eu_citizens_now_consider_the_us_an/nzynqv6/
+
+There has been no world-famous social media uprising! Where can people point to weeks-long month-long messaging from American / USA social media users begging to get mental health workers to rescue MAGA and get rid of the entire self-harm anti-goodness movement? Where can people point to the month where social media users were serious and focused about Elon Musk Twitter / Fox News HDTV / Truth Social Trumpism media crisis?
+
+When did the QAnon issue get confronted on social media where there was a massive population saying "QAnon is bullshit" or ANYTHING people can point to a month or a year where EVERYDAY USA CITIZENS ruse up again Trump using social media? An "Enough is Enough, we gave Trump a chance!" messaging? Organized, sustained?
+
+NO KINGS has been photos of gatherings in public. But Trump LIVES BY MEDIA, by Twitter social media. People on social media in January 2026 don't even SEE the void, the absence, the avoidance of rising up on SOCIAL media. Look back to year 2012, November 2012 and how Donald Trump became the center of world attention WITH SOCIAL MEDIA: https://abcnews.go.com/Politics/donald-trumps-2012-election-tweetstorm-resurfaces-popular-electoral/story?id=43431536
