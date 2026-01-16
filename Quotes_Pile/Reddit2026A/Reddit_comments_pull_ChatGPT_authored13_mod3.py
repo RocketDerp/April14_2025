@@ -33,7 +33,7 @@ errorCountB = 0
 fetchRedditCountA = 0
 error_fetch_count = 0
 replies_users_fetch = 0
-replies_users_max = 24
+replies_users_max = 32
 # every slowdown_every fetches kick in delay
 slowdown_every = 2
 age18_count = 0
