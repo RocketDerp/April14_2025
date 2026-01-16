@@ -917,3 +917,16 @@ https://old.reddit.com/r/worldnews/comments/1qdwsrx/trump_given_nobel_peace_meda
 
 Trump invasion of Venezuela and antics politics put Reddit audience into LOL LOL meme stupor. That's why people do not assert Dr. Bandy X Lee and other nonfiction topics to remove Trump. Too amused, too much in meme comedy mental state. Addicted to Trump's media stimulation. Surkov students won. No defense has been found to rescue the blown minds who prize Trump symbolism / icon comedy performances.
 
+https://old.reddit.com/r/comedyheaven/comments/1qed01f/one/nzwgijs/
+
+Several posts on Reddit seem to be to propaganda Reddit audience that this Greenland topic is no big deal and just meme it away as people have done with Trump since year 2015.
+
+https://old.reddit.com/r/GreatBritishMemes/comments/1qeao62/the_uks_finest_is_on_the_case/nzw0286/
+
+Turn Trump into humor entertainment for all of NATO / EU now.
+
+https://old.reddit.com/r/worldnews/comments/1qebgt7/norway_stunned_after_machado_gifts_nobel_peace/nzw4wp8/
+
+<img width="802" height="404" alt="image" src="https://github.com/user-attachments/assets/27541df2-925e-4f1e-97c2-0724b8faa913" /> That is Trump and Putin's skill. Surkov governing. Fiction outsells nonfiction. Hpyper-fiction. 
+
+NEW page: [Mind-Blowing: Hyper-Fiction](/Art/ScreenPlay/Hyper_Fiction/Mind-Blowing_Hyper-Fiction.md)
