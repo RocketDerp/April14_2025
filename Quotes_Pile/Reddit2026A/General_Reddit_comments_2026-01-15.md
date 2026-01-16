@@ -430,3 +430,17 @@ OPERA_A They put a bounty on my *soul*!!! https://www.youtube.com/watch?v=E6l5ez
 https://old.reddit.com/r/minnesota/comments/1qensku/these_questions_need_answering_who_is_this_ice/nzyst0b/
 
 Reddit makes you black out usernames of Twitter users, but this is up for hours on front page.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qeps6f/jasmine_crockett_we_are_living_with_an_abuser/nzzbb4s/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qeps6f/jasmine_crockett_we_are_living_with_an_abuser/nzzhimu/
+
+Long-form Reddit comment... but no mention of Dr. Bandy X Lee who has been public since year 2017 on abusive leader Trump. No off-Reddit URL, no book quotes, no author names, no book titles...
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qeps6f/jasmine_crockett_we_are_living_with_an_abuser/nzzelne/
+
+Who is the magical "you know who", the style of Reddit street gang language. Gangs signs on media platforms, media streets.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qeps6f/jasmine_crockett_we_are_living_with_an_abuser/nzzgt1g/
+
+People unable to think outside brand-labels. Truth messages are true regardless of source.
