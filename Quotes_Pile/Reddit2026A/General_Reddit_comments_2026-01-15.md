@@ -448,3 +448,35 @@ People unable to think outside brand-labels. Truth messages are true regardless 
 https://old.reddit.com/r/BlackPeopleofReddit/comments/1qel83k/the_cycle_of_hate_ends_when_we_speak_up_like_rep/nzyd012/
 
 https://old.reddit.com/r/BlackPeopleofReddit/comments/1qel83k/the_cycle_of_hate_ends_when_we_speak_up_like_rep/nzyfrwa/
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qetsh6/washington_post_as_a_conservative_im_beginning_to/o00ev88/
+
+I will continue to emphasize: Fiction vs. nonfiction is a better measure than conservative vs. liberal. Fox News HDTV is like SNL Weekend Update HDTV news. The { Torah, Bible, Quran, Book of Mormon } is science fiction storytelling. [Carl Sagan's year 1995 book is essential on the values and concerns regarding nonfiction science](../Carl_Sagan_Quotes.md).
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qetsh6/washington_post_as_a_conservative_im_beginning_to/o00d4lv/
+
+Comedy mindset. That humanity preferring fiction over nonfiction is a new issue. The Church has run society, televangelism like Fox News HDTV runs society. Comedy-washing the topic, satire-washing, "The Onion", sarcasm is avoiding the most deep and serious equation humanity is facing:
+
+* “Half the people in the world think that the metaphors of their religious traditions, for example, are facts. And the other half contends that they are not facts at all. As a result we have people who consider themselves believers because they accept metaphors as facts, and we have others who classify themselves as atheists because they think religious metaphors are lies.” ― Joseph Campbell, Thou Art That: Transforming Religious Metaphor
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qetsh6/washington_post_as_a_conservative_im_beginning_to/o0097xm/
+
+The replies to this message call out the sports-team logic. "Winner takes all" politics, fundamental failure to teach the values of democracy. Great Seal USA teaching absent in society, non-comprehension of PLURIBUS meaning (inclusive mindsets, not out-group hate oriented old world order).
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qetsh6/washington_post_as_a_conservative_im_beginning_to/o00dvdc/
+
+Mocking is prized by society above all else. Insulting, mocking, name-calling. MAGA values all around. Trump is a leader in this messaging / communications: insulting, name-calling, mocking. Trump is very popular for his leadership of shit-talking.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qeus9l/trump_says_i_dont_talk_about_that_when_reporter/o00hefx/
+
+https://old.reddit.com/r/politics/comments/1qekizq/were_nearing_the_day_when_ice_thugs_just_open/nzy2h1r/
+
+Un-American, and people don't even know the very basics about free masons, desists who created The Great Seal of the United States of America. 
+
+https://old.reddit.com/r/politics/comments/1qekizq/were_nearing_the_day_when_ice_thugs_just_open/nzy1rhe/
+
+Lots of replies about "Crazy" in this thread.
+
+https://old.reddit.com/r/politics/comments/1qekizq/were_nearing_the_day_when_ice_thugs_just_open/nzzqji3/
+
+Nation that has "lost mind". People on social media are not asserting and calling for people to follow Dr. Bandy X Lee's leadership. Education is not being shared, such as  https://www.youtube.com/watch?v=09maaUaRT4M&t=743s "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL"
