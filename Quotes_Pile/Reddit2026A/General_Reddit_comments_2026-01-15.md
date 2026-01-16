@@ -374,3 +374,24 @@ There had to be a weakness somewhere. The faith in ha ha ha ha comedy. Neil Post
 https://old.reddit.com/r/UnderReportedNews/comments/1qeevkz/joe_rogan_a_man_brought_here_as_a_baby_lived_in/nzwulhp/
 
 There is a lot of good media ecology observations in the replies on this thread. [Everything Is Media Ecology - CLICK HERE](/Media_Ecology/Everything_is_ME.md)
+
+https://old.reddit.com/r/Fauxmoi/comments/1qeg8qx/rogan_a_man_brought_here_as_a_baby_lived_in_the/nzx8ogu/
+
+People in the Reddit audience not realizing that Joe Rogan is acting. It isn't accidental.  Surkov screenplays. "Joe Rogan and His Wife and Daughters Visiting President Trump in the Oval Office (circa July 1st 2025)" https://old.Reddit.com/r/Fauxmoi/comments/1pou8lx/joe_rogan_and_his_wife_and_daughters_visiting/
+
+https://old.reddit.com/r/Fauxmoi/comments/1qeg8qx/rogan_a_man_brought_here_as_a_baby_lived_in_the/nzx978l/
+
+People are confused why Trump is happening **because the [Internet Research Agency and Cambridge Analytica mind-fucked the entire population! year 2013 onward](../Cambridge_Analytica_Quotes.md)***. Everything changed regarding confusion and dogma. 
+
+https://old.reddit.com/r/Fauxmoi/comments/1qeg8qx/rogan_a_man_brought_here_as_a_baby_lived_in_the/nzx9qcs/
+
+"The Media", "Social Media" - this Reddit comment nzx9qcs by BlondeBorednBaked is doing exactly what the message says. Entertainment-washing MAGA and Trump. It's just a discussion topic. A simulation, a screen game, a podcast ARG / commenting ARG. People are not rescuing MAGA and rescuing USA future for children, they are engaged with Joe Rogan in the Reddit "The Media" social commenting. We are  not living in year 2006 anymore, social media is mainstream, the commenting eclipses the main content!
+
+https://old.reddit.com/r/Fauxmoi/comments/1qeg8qx/rogan_a_man_brought_here_as_a_baby_lived_in_the/nzxbfkd/
+
+Comedy-washing, joke-washing, turning everything into comedy memes, is the very technique of Surkovian information warfare! The Kremlin defeated USA society since March 2013, there has been no self-awareness or recognition that people are mentally enslaved by Russian information warfare. The absence of being able to name players, timelines, is evidence!
+
+The crisis is not just ONE PERSON, Donald Trump, taking bribes - but a mental mindset of self-harm to the USA and prizing of { hate, mockery, mass dehumanization } that is widespread. Everyone. Over 300 million people not just one 79 year old Putin buddy. The Internet Research Agency invaded Reddit itself! https://www.bbc.com/news/technology-43301643
+
+Here is what We The People on social media can teach about right-wing media. Published October 8, 2013: https://www.lhschools.org/Downloads/Malala%2038-65.pdf - Frankly, the tiny-short 3-word message on Reddit itself seems like people indoctrinated into the Twitter-think Tweet-length messsaging cult. Rescuing EVERYONE and ANYONE addicted to parroting the brands and logos of the Trumpism cult is goodness! Bible science fiction cult is GLOBAL! Australia, New Zealand, Canada, Russia, Germany, France, Mexico - not just USA. Indoctrination into fiction storytelling to follow deception leadership is a massive world-wide crisis!
+
