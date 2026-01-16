@@ -892,3 +892,23 @@ https://old.reddit.com/r/worldnews/comments/1qdv0bo/trump_is_keeping_money_from_
 That's the Putin information war since year 2012. Endlessly exhausting.
 
 * "But the key thing was, that Surkov then let it be known that this was what he was doing, which meant that no one was sure what was real or fake. As one journalist put it: "It is a strategy of power that keeps any opposition constantly confused." A ceaseless shape-shifting that is unstoppable because it is undefinable. It is exactly what Surkov is alleged to have done in the Ukraine this year (2014). In typical fashion, as the war began, Surkov published a short story about something he called non-linear war. A war where you never know what the enemy are really up to, or even who they are. The underlying aim, Surkov says, is not to win the war, but to use the conflict to create a constant state of destabilized perception, in order to manage and control." - BBC, Adam Curtis. December 31, 2014. https://www.RealClearPolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html
+
+https://old.reddit.com/r/europe/comments/1qdwckf/anger_in_iceland_over_incoming_us_ambassadors/nzsyijz/
+
+[CLICK HERE: "Joke of NATO" - December 5, 2014](/Art/ScreenPlay/USA/Joke_of_NATO.md)
+
+https://old.reddit.com/r/europe/comments/1qdwckf/anger_in_iceland_over_incoming_us_ambassadors/nzsyk5k/
+
+Never was a joke, people keep falling for the actor. Trump's talent, he is a well know actor, he is acting. Surkov screenplays.
+
+https://old.reddit.com/r/europe/comments/1qdwckf/anger_in_iceland_over_incoming_us_ambassadors/nzt1zma/
+
+David Foster Wallace: Infinite Jest. It never ever ends since June 16, 2015.
+
+https://old.reddit.com/r/europe/comments/1qdwckf/anger_in_iceland_over_incoming_us_ambassadors/nzt0v6i/
+
+Map game prizes. Gaming mentality, sports mentality.
+
+https://old.reddit.com/r/europe/comments/1qdwckf/anger_in_iceland_over_incoming_us_ambassadors/nzt2ljh/
+
+Putin has mastered it since year 1999.
