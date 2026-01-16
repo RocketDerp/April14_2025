@@ -318,3 +318,11 @@ Why do people think human events all start on January 1? Ukraine war started Feb
 https://old.reddit.com/r/worldnews/comments/1qdwsrx/trump_given_nobel_peace_medal_by_venezuelan/nzt2kll/
 
 Reddit account less than 2 weeks ago. Programming the Reddit consumers that this is funny, amusing, entertaining. Without Trump at the center of all media systems content, the world would be boring and unpalatable for meme addicts. Trump provides the bullshit and fiction that audiences have come to love and desire for mockery.
+
+https://old.reddit.com/r/books/comments/1qe2d4t/alabama_library_denied_funding_because_it_wont/nzu9ik9/
+
+https://old.reddit.com/r/books/comments/1qe2d4t/alabama_library_denied_funding_because_it_wont/nzubb2n/
+
+https://old.reddit.com/r/books/comments/1qe2d4t/alabama_library_denied_funding_because_it_wont/nzudikk/
+
+https://old.reddit.com/r/books/comments/1qe2d4t/alabama_library_denied_funding_because_it_wont/nzuemxq/
