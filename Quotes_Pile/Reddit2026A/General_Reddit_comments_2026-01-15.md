@@ -290,3 +290,16 @@ Social post { https://autistics.life/@RoundSparrow/115901804372063988 https://bs
 https://old.reddit.com/r/AskReddit/comments/1qdxk2p/donald_trump_just_said_we_shouldnt_even_have_an/nzt91gf/
 
 * "Expert Analysis: The film features interviews with historians and legal experts—such as Ruth Ben-Ghiat, an expert on strongmen and fascism, and Timothy Snyder, author of On Tyranny—who analyze Trump's rhetoric. They explain that autocrats often use humor to float extreme ideas, allowing them to claim they were "just kidding" if the backlash is too strong, while still moving the goalposts of acceptable political discourse." - Google Search 2026-01-15 afternoon USA - about "In Michael Moore’s 2018 documentary Fahrenheit 11/9, he interviews experts to discuss the concept of "trial balloons" regarding Donald Trump’s comments on serving a third term or staying in power indefinitely."
+
+https://old.reddit.com/r/minnesota/comments/1qdu1m2/amy_k_just_had_her_x_account_suspended/nzsgbui/
+
+A few people notice. Alas, no off-Reddit links to describe in more detail. Just a Twitter-length comment about the situation. I've created this entire GitHub.. asserting Neil Postman and Marshall McLuhan and timelines of Operation Matthew 4:19 social media fuck-over. 
+
+https://old.reddit.com/r/minnesota/comments/1qdu1m2/amy_k_just_had_her_x_account_suspended/nzsraow/
+
+Again, no off-Reddit URL, no author name, no quotes from a book. Serious claims given in conversation unimportant style.
+
+https://old.reddit.com/r/minnesota/comments/1qdu1m2/amy_k_just_had_her_x_account_suspended/nzssxfa/
+
+Last several month... since March 2013. There was a PLUR1BUS Vince Gilligan surge, since that show brought the best defense tool possible into the public topics... but people drug conversation down into the cesspool.
+
