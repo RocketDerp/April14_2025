@@ -371,4 +371,7 @@ https://old.reddit.com/r/worldnews/comments/1qebgt7/norway_stunned_after_machado
 
 There had to be a weakness somewhere. The faith in ha ha ha ha comedy. Neil Postman was correct in his 1985 book.
 
+https://old.reddit.com/r/UnderReportedNews/comments/1qeevkz/joe_rogan_a_man_brought_here_as_a_baby_lived_in/nzwulhp/
+
+There is a lot of good media ecology observations in the replies on this thread.
 
