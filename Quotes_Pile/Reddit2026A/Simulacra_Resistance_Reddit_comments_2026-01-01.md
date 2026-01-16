@@ -443,3 +443,8 @@ Cheering on "good job" that MAGA is serving Putin to harm NATO. Eating right out
 https://old.reddit.com/r/PublicFreakout/comments/1qduz9e/white_house_press_secretary_goes_ballistic_on/nzsngtf/
 
 Reddit audiences line up for the mockery of the White House, predictable. Surkov won.
+
+https://old.reddit.com/r/complaints/comments/1qefkg6/fascists_are_losing_their_grip/nzx21cy/
+
+People are INDOCTRINATED into { Torah, Quran, Bible, Book of Mormon } with national holidays. Fiction storytelling at the youngest age, Santa Christmas fantasy. Minds programmed by adults to obey male authority figures. Allah / Jesus / Judgement Day / Yahweh. Tiny-short Reddit commenting is not resisting this crisis! It is merely putting a name to a group of people! Cult deprogramming is actual resistance. Teaching from nonfiction about media addiction to the Bible / Radio Mullah.
+
