@@ -352,3 +352,15 @@ https://old.reddit.com/r/worldnews/comments/1qebgt7/norway_stunned_after_machado
 <img width="952" height="223" alt="image" src="https://github.com/user-attachments/assets/3a66e397-c626-44cf-8209-60f6491c3a81" /> South Park profits off the Kremlin information warfare mind-fucking
 
 Social post { https://autistics.life/@RoundSparrow/115904850083215194 https://bsky.app/profile/roundsparrow.bsky.social/post/3mck4z5c7ck2g }
+
+https://old.reddit.com/r/worldnews/comments/1qebgt7/norway_stunned_after_machado_gifts_nobel_peace/nzwjjsd/
+
+But people won't reach for anything like a cure: science and education, teaching. Because fiction mythology is far too exciting for audiences. The media machines delivery via TCP/IP constantly the monomyth patterns of Kremlin and White House.
+
+https://old.reddit.com/r/worldnews/comments/1qebgt7/norway_stunned_after_machado_gifts_nobel_peace/nzw5fzj/
+
+<img width="904" height="351" alt="image" src="https://github.com/user-attachments/assets/21d0a98d-fe7a-4ef0-bb09-e7b58f7fe56b" /> WhiteHouseHyperReal 
+
+Social Post { https://autistics.life/@RoundSparrow/115904897849180864 https://bsky.app/profile/roundsparrow.bsky.social/post/3mck5p2qwa22s }
+
+
