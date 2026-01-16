@@ -326,3 +326,5 @@ https://old.reddit.com/r/books/comments/1qe2d4t/alabama_library_denied_funding_b
 https://old.reddit.com/r/books/comments/1qe2d4t/alabama_library_denied_funding_because_it_wont/nzudikk/
 
 https://old.reddit.com/r/books/comments/1qe2d4t/alabama_library_denied_funding_because_it_wont/nzuemxq/
+
+https://old.reddit.com/r/pics/comments/1qe14ar/child_stares_at_the_president_of_the_united_states/nzu2rjv/
