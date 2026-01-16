@@ -373,5 +373,4 @@ There had to be a weakness somewhere. The faith in ha ha ha ha comedy. Neil Post
 
 https://old.reddit.com/r/UnderReportedNews/comments/1qeevkz/joe_rogan_a_man_brought_here_as_a_baby_lived_in/nzwulhp/
 
-There is a lot of good media ecology observations in the replies on this thread.
-
+There is a lot of good media ecology observations in the replies on this thread. [Everything Is Media Ecology - CLICK HERE](/Media_Ecology/Everything_is_ME.md)
