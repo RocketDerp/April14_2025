@@ -956,3 +956,23 @@ There has been no world-famous social media uprising! Where can people point to 
 When did the QAnon issue get confronted on social media where there was a massive population saying "QAnon is bullshit" or ANYTHING people can point to a month or a year where EVERYDAY USA CITIZENS ruse up again Trump using social media? An "Enough is Enough, we gave Trump a chance!" messaging? Organized, sustained?
 
 NO KINGS has been photos of gatherings in public. But Trump LIVES BY MEDIA, by Twitter social media. People on social media in January 2026 don't even SEE the void, the absence, the avoidance of rising up on SOCIAL media. Look back to year 2012, November 2012 and how Donald Trump became the center of world attention WITH SOCIAL MEDIA: https://abcnews.go.com/Politics/donald-trumps-2012-election-tweetstorm-resurfaces-popular-electoral/story?id=43431536
+
+https://old.reddit.com/r/europe/comments/1qeg8be/only_16_of_eu_citizens_now_consider_the_us_an/nzx6lwm/
+
+https://old.reddit.com/r/europe/comments/1qeg8be/only_16_of_eu_citizens_now_consider_the_us_an/nzx7f0k/
+
+https://old.reddit.com/r/europe/comments/1qeg8be/only_16_of_eu_citizens_now_consider_the_us_an/nzx569w/
+
+https://old.reddit.com/r/europe/comments/1qeg8be/only_16_of_eu_citizens_now_consider_the_us_an/nzxl2mt/
+
+https://old.reddit.com/r/europe/comments/1qeg8be/only_16_of_eu_citizens_now_consider_the_us_an/nzx8cyx/
+
+https://old.reddit.com/r/europe/comments/1qeg8be/only_16_of_eu_citizens_now_consider_the_us_an/nzxdyeo/
+
+https://old.reddit.com/r/europe/comments/1qeg8be/only_16_of_eu_citizens_now_consider_the_us_an/nzyjpiy/
+
+https://old.reddit.com/r/europe/comments/1qeg8be/only_16_of_eu_citizens_now_consider_the_us_an/nzyor5e/
+
+https://old.reddit.com/r/europe/comments/1qeg8be/only_16_of_eu_citizens_now_consider_the_us_an/nzz4evi/
+
+https://old.reddit.com/r/europe/comments/1qeg8be/only_16_of_eu_citizens_now_consider_the_us_an/nzxhko7/
