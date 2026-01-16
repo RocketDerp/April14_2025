@@ -930,3 +930,10 @@ https://old.reddit.com/r/worldnews/comments/1qebgt7/norway_stunned_after_machado
 <img width="802" height="404" alt="image" src="https://github.com/user-attachments/assets/27541df2-925e-4f1e-97c2-0724b8faa913" /> That is Trump and Putin's skill. Surkov governing. Fiction outsells nonfiction. Hpyper-fiction. 
 
 NEW page: [Mind-Blowing: Hyper-Fiction](/Art/ScreenPlay/Hyper_Fiction/Mind-Blowing_Hyper-Fiction.md)
+
+https://old.reddit.com/r/worldnews/comments/1qejxed/trump_says_may_slap_tariffs_on_nations_that_dont/nzxwcva/
+
+https://old.reddit.com/r/worldnews/comments/1qejxed/trump_says_may_slap_tariffs_on_nations_that_dont/nzxxoz8/
+
+Note age of Reddit account.
+
