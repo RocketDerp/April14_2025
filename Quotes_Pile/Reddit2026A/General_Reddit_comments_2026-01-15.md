@@ -339,3 +339,8 @@ We All should be teaching Bible literacy and comparative mythology.
 
 https://old.reddit.com/r/atheism/comments/1qe0dwt/christian_nationalist_matt_walsh_minneapolis_must/nzty29w/
 
+https://old.reddit.com/r/complaints/comments/1qe5zd3/i_hate_that_im_agreeing_with_mitch_mcconnell/nzv6ekf/
+
+See the posting for "self-sabotage", self-harm USA. Denial. Putin and Trump meeting in Alaska over chaos plan gets ignored again. Also note this comment: no link off-Reddit, no author name, no book quotes, no book title. Reddit society does everything it can to make the "Russia" topic casual and non-specific, follow Trump's communications leadership.
+
+
