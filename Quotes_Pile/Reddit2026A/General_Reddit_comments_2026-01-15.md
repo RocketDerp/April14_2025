@@ -410,3 +410,19 @@ Note the casual claims about Russia on Twitter. People do not assert serious pro
 https://old.reddit.com/r/SipsTea/comments/1qek9u8/peak_united_states_moment/nzy844s/
 
 Swarm of low-effort banal mind programming. Common hyper-banal information warfare parroting. Been describing this tactic on Reddit: https://old.reddit.com/r/HyperBanalisation
+
+https://old.reddit.com/r/complaints/comments/1qekdaf/fuck_trump_voters_and_fuck_people_who_didnt_vote/nzy96o6/
+
+https://old.reddit.com/r/complaints/comments/1qekdaf/fuck_trump_voters_and_fuck_people_who_didnt_vote/nzy207k/
+
+https://old.reddit.com/r/complaints/comments/1qekdaf/fuck_trump_voters_and_fuck_people_who_didnt_vote/nzy99gq/
+
+https://old.reddit.com/r/complaints/comments/1qekdaf/fuck_trump_voters_and_fuck_people_who_didnt_vote/nzyui7g/
+
+https://old.reddit.com/r/complaints/comments/1qekdaf/fuck_trump_voters_and_fuck_people_who_didnt_vote/nzy2v84/
+
+<img width="917" height="572" alt="image" src="https://github.com/user-attachments/assets/b8b55df3-082a-48f9-a58e-f48bfd7d8ed6" /> Yep. Putin in 2013 was the richest billionaire in the world when the IRA invaded Reddit media. Adding to the Fox News HDTV mind-fucking. 
+
+Social post { https://autistics.life/@RoundSparrow/115906720891597747 https://bsky.app/profile/roundsparrow.bsky.social/post/3mckxlz5kkc22 }
+
+OPERA_A They put a bounty on my *soul*!!! https://www.youtube.com/watch?v=E6l5ezErGuw 52,838,476 views June 26, 2017
