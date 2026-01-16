@@ -343,4 +343,12 @@ https://old.reddit.com/r/complaints/comments/1qe5zd3/i_hate_that_im_agreeing_wit
 
 See the posting for "self-sabotage", self-harm USA. Denial. Putin and Trump meeting in Alaska over chaos plan gets ignored again. Also note this comment: no link off-Reddit, no author name, no book quotes, no book title. Reddit society does everything it can to make the "Russia" topic casual and non-specific, follow Trump's communications leadership.
 
+https://old.reddit.com/r/worldnews/comments/1qebgt7/norway_stunned_after_machado_gifts_nobel_peace/nzw7ewg/
 
+No serious or sincere or goodness can provide the entertainment that audiences crave. Nobody can talk Reddit audiences out of their compulsive joy-washing joke-washing comedy-washing of Trump. He is the living walking talking Tweeting Infinite Jest that David Foster Wallace expounded upon.
+
+https://old.reddit.com/r/worldnews/comments/1qebgt7/norway_stunned_after_machado_gifts_nobel_peace/nzw6lzr/
+
+<img width="952" height="223" alt="image" src="https://github.com/user-attachments/assets/3a66e397-c626-44cf-8209-60f6491c3a81" /> South Park profits off the Kremlin information warfare mind-fucking
+
+Social post { https://autistics.life/@RoundSparrow/115904850083215194 https://bsky.app/profile/roundsparrow.bsky.social/post/3mck4z5c7ck2g }
