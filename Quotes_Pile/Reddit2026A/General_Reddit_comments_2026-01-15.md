@@ -303,3 +303,18 @@ https://old.reddit.com/r/minnesota/comments/1qdu1m2/amy_k_just_had_her_x_account
 
 Last several month... since March 2013. There was a PLUR1BUS Vince Gilligan surge, since that show brought the best defense tool possible into the public topics... but people drug conversation down into the cesspool.
 
+https://old.reddit.com/r/worldnews/comments/1qdwsrx/trump_given_nobel_peace_medal_by_venezuelan/nzt19tu/
+
+Tiny-short messages on Reddit. Do nothing, stay asleep, use spare time and free time to sleep away. Don't resist. Could be citing Dr Bandy X Lee's nonfiction books since October 3, 2017... but tiny-short reactions to Trump symbolism shuffle games.
+
+https://old.reddit.com/r/worldnews/comments/1qdwsrx/trump_given_nobel_peace_medal_by_venezuelan/nzt21np/
+
+Reddit is the antics fandom. People follow the hate signal leadership. Trump provides hate lessons and the Reddit audience embraces it. Addicts to Trump content, stimulated by the White House and Kremlin, don't ask others to join together in intellectual resistance to the information warfare / population manipulation.
+
+https://old.reddit.com/r/worldnews/comments/1qdwsrx/trump_given_nobel_peace_medal_by_venezuelan/nzt1zbx/
+
+Why do people think human events all start on January 1? Ukraine war started February 20, 2014 and are still ongoing today, January 15, 2026.
+
+https://old.reddit.com/r/worldnews/comments/1qdwsrx/trump_given_nobel_peace_medal_by_venezuelan/nzt2kll/
+
+Reddit account less than 2 weeks ago. Programming the Reddit consumers that this is funny, amusing, entertaining. Without Trump at the center of all media systems content, the world would be boring and unpalatable for meme addicts. Trump provides the bullshit and fiction that audiences have come to love and desire for mockery.
