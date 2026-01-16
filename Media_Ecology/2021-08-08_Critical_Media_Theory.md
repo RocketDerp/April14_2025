@@ -63,3 +63,8 @@ Without a list of important topics, it has almost all been driven by the billion
 
 * Absence of Dr. Bandy X Lee being asserted with repeating and *this is important* emphasis since October 3, 2017 by everyday citizens on social systems. [For Example](/Quotes_Pile/Bandy_X_Lee)
 
+Specific to USA and NATO nations... Even during the very serious COVID-2019 pandemic, a "top information priorities" assertion did not happen within the general population. This August 24, 2018 story was ignored when COVID-2019 came on the world stage at the start of year 2020. https://www.BBC.com/news/world-us-canada-45294192 Going back to year 2014, insincere anti-science debate was already seeded as a form of "social entertainment" and engagement on social systems. Pre-programmed reactionary attitudes to be pro-disease and not defend against the threat.
+
+Even when Elon Musk echoed the same Russian talking points, people did not call out the Kremlin information warfare. https://www.forbes.com/sites/joewalsh/2021/03/13/elon-musks-false-covid-predictions-a-timeline/ - people who claimed to hate Elon Musk and be against billionaires did not cite the August 24, 2018 story  COVID-2019 came on the world stage along-side Musk's statements. https://www.BBC.com/news/world-us-canada-45294192 - there wasn't debate about Russia's influence, there was a complete lack of recall and discussion of how world-wide-web warfare was ongoing.
+
+ToDo: lots of rewrite and editing, very tired as I write this.
