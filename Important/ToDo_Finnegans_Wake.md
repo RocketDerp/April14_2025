@@ -785,3 +785,8 @@ https://www.youtube.com/watch?v=TJ8QWLrFHSA
 
 Choice marriage honesty. How family censors information, conceals from others, conspiracy within the family between the spouses.    
 https://old.reddit.com/r/comics/comments/1qdv3pp/ocmy_grandma_still_doesnt_know_grandpa_died_3/
+
+&nbsp;
+
+Finnegans Wake English   
+https://old.reddit.com/r/NonPoliticalTwitter/comments/1qe9gdw/ok_so_today_i_learned_thats_a_nut_and_i_thought/
