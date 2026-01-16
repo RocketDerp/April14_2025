@@ -444,3 +444,7 @@ Who is the magical "you know who", the style of Reddit street gang language. Gan
 https://old.reddit.com/r/UnderReportedNews/comments/1qeps6f/jasmine_crockett_we_are_living_with_an_abuser/nzzgt1g/
 
 People unable to think outside brand-labels. Truth messages are true regardless of source.
+
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1qel83k/the_cycle_of_hate_ends_when_we_speak_up_like_rep/nzyd012/
+
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1qel83k/the_cycle_of_hate_ends_when_we_speak_up_like_rep/nzyfrwa/
