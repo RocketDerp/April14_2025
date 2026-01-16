@@ -426,3 +426,7 @@ https://old.reddit.com/r/complaints/comments/1qekdaf/fuck_trump_voters_and_fuck_
 Social post { https://autistics.life/@RoundSparrow/115906720891597747 https://bsky.app/profile/roundsparrow.bsky.social/post/3mckxlz5kkc22 }
 
 OPERA_A They put a bounty on my *soul*!!! https://www.youtube.com/watch?v=E6l5ezErGuw 52,838,476 views June 26, 2017
+
+https://old.reddit.com/r/minnesota/comments/1qensku/these_questions_need_answering_who_is_this_ice/nzyst0b/
+
+Reddit makes you black out usernames of Twitter users, but this is up for hours on front page.
