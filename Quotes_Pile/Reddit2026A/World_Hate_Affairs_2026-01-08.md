@@ -912,3 +912,8 @@ Map game prizes. Gaming mentality, sports mentality.
 https://old.reddit.com/r/europe/comments/1qdwckf/anger_in_iceland_over_incoming_us_ambassadors/nzt2ljh/
 
 Putin has mastered it since year 1999.
+
+https://old.reddit.com/r/worldnews/comments/1qdwsrx/trump_given_nobel_peace_medal_by_venezuelan/nzt1ynp/
+
+Trump invasion of Venezuela and antics politics put Reddit audience into LOL LOL meme stupor. That's why people do not assert Dr. Bandy X Lee and other nonfiction topics to remove Trump. Too amused, too much in meme comedy mental state. Addicted to Trump's media stimulation. Surkov students won. No defense has been found to rescue the blown minds who prize Trump symbolism / icon comedy performances.
+
