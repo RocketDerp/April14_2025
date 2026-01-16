@@ -363,4 +363,12 @@ https://old.reddit.com/r/worldnews/comments/1qebgt7/norway_stunned_after_machado
 
 Social Post { https://autistics.life/@RoundSparrow/115904897849180864 https://bsky.app/profile/roundsparrow.bsky.social/post/3mck5p2qwa22s }
 
+https://old.reddit.com/r/worldnews/comments/1qebgt7/norway_stunned_after_machado_gifts_nobel_peace/nzw73lj/
+
+The emotions of USA now, all compassion and love abandoned in favor of cringe and LOL.
+
+https://old.reddit.com/r/worldnews/comments/1qebgt7/norway_stunned_after_machado_gifts_nobel_peace/nzwb91b/
+
+There had to be a weakness somewhere. The faith in ha ha ha ha comedy. Neil Postman was correct in his 1985 book.
+
 
