@@ -35,7 +35,7 @@ error_fetch_count = 0
 replies_users_fetch = 0
 replies_users_max = 24
 # every slowdown_every fetches kick in delay
-slowdown_every = 3
+slowdown_every = 2
 age18_count = 0
 args = {}
 
@@ -527,7 +527,7 @@ def fetch_user_info_hover(username, args=None):
 
         if fetchRedditCountA % slowdown_every == 0:
             print(f"fetchRedditCountA {fetchRedditCountA} is a multiple of {slowdown_every}.")
-            sleep_time = random.uniform(9, 25)
+            sleep_time = random.uniform(11, 22)
             quit_request = pause_with_quit(sleep_time)
             if quit_request:
                 sys.exit(1)
