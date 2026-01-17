@@ -25,7 +25,7 @@ Again and again, the Large Language Models, which are trained on books... have n
 
 * "In 1969, a megabyte (MB) of storage was incredibly expensive, with figures suggesting a 1MB hard drive could cost around $1 million when Computerworld started, though disk packs offered cheaper (but larger) storage in the 30MB range for large systems, but overall storage was scarce, with early drives like the IBM 350 storing only a few megabytes and costing a fortune compared to today's cents-per-gigabyte rates, making MBs a massive, costly quantity." - Google Search summary. 2026-01-17 morning USA
 
-So, because of cost and labor of entry... merely the YEAR, "1968" was recorded about the book. The day and month were not put into computer databases of books.
+So, because of cost and labor of entry... merely the YEAR, "1968" was recorded about the book. The day and month were not put into computer databases of books. This creates an unintended backdating, making the book seem to be a January 1st publication... when it reality it is closer to year 1969.
 
 &nbsp;
 
