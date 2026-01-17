@@ -1,5 +1,7 @@
 # Brainrot Society 47
 
+IMPORTANT: Friday January 16, 2026 I established a dedicated GitHub Project for "Brainrot Society 47". Link here: https://github.com/GreatSealUSA/Brainrot_Society_47/tree/main
+
 1. Assert Malala's year 2013 values of education. Malala may have moved on to domestic parenting and marriage, but her year 2013 lectures and books where she understood the crisis still stand.
 
 2. Assert values of teaching and learning non-fiction
@@ -15,6 +17,16 @@ Every 47 hours working together
 https://github.com/RocketDerp/April14_2025/blob/main/Grim_Blunt/Pop/Social_Media_Society_did_not.md#brainrot-society-47
 
 [/Grim_Blunt/Pop/Social_Media_Society_did_not.md#brainrot-society-47](/Grim_Blunt/Pop/Social_Media_Society_did_not.md#brainrot-society-47)
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+# A "Please Mind Top 13 topics" list
+
+The meetings every 47 hours should be to try and have a "Most Wanted", "Please mind most", "Eye on the ball please" list. Top 5, top 13, top 25. 13 being magical Great Seal USA number... Names such as "Attention We The People", "Attention Everyone", "Priorities and common concerns list", etc.
 
 &nbsp;
 
