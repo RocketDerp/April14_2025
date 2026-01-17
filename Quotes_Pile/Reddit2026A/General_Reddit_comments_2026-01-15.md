@@ -596,3 +596,12 @@ https://old.reddit.com/r/UnderReportedNews/comments/1qex392/ted_cruz_in_2016_wer
 Joined Reddit on Putin's birthday, Palestine terror attack day.
 
 https://old.reddit.com/r/chaoticgood/comments/1qezbez/general_fucking_strike_called_12326/o01bdef/
+
+https://old.reddit.com/r/CzechCoconutCommunity/comments/1qevtcu/of_a_racist_prick_catching_a_clean_right_hook/o00kvyz/
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qetsh6/washington_post_as_a_conservative_im_beginning_to/o00ev88/
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qetsh6/washington_post_as_a_conservative_im_beginning_to/o00c62f/
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qetsh6/washington_post_as_a_conservative_im_beginning_to/o00hiir/
+
