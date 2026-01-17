@@ -530,7 +530,7 @@ def fetch_user_info_hover(username, args=None):
         fetch_reddit_count_a += 1
 
         if fetch_reddit_count_a % slowdown_every == 0:
-            print(f"fetchRedditCountA {fetch_reddit_count_a} is a multiple of {slowdown_every}.")
+            print(f"fetch_reddit_count_a {fetch_reddit_count_a} is a multiple of {slowdown_every}.")
             sleep_time = random.uniform(11, 22)
             quit_request = pause_with_quit(sleep_time)
             if quit_request:
@@ -593,15 +593,29 @@ def fetch_user_info_hover(username, args=None):
 
     try:
         created = datetime.datetime.utcfromtimestamp(reddit_account_data["created_utc"]).isoformat() + "Z"
-        bio = reddit_account_data.get("subreddit", {}).get("public_description")
-        user_title = reddit_account_data.get("subreddit", {}).get("title")
+        bio = ""
+        user_title = ""
+        account_subreddit = reddit_account_data.get("subreddit", {})
+        if (account_subreddit):
+            bio = account_subreddit.get("public_description")
+            user_title = account_subreddit.get("title")
+        else:
+            error_parse_a_count += 1
+            print("WARNING: account subreddit JSON absent")
+            print(reddit_account_data)
+            quit_request = pause_with_quit(10)
+            if quit_request:
+                sys.exit(1)
+
+        # currently user_title is not returned, so merge with bio
         if user_title:
             bio = user_title + " : " + bio
         link_karma = reddit_account_data.get("link_karma")
         comment_karma = reddit_account_data.get("comment_karma")
         return created, bio, link_karma, comment_karma, live_fetch
     except Exception as e:
-        print("error parsing account information")
+        print("error parsing account information", e)
+        print(reddit_account_data)
         error_parse_a_count += 1
         quit_request = pause_with_quit(15)
         if quit_request:
