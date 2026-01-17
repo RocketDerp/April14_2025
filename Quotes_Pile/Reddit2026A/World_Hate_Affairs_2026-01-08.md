@@ -1074,3 +1074,49 @@ Note the absence of off-Reddit URL, no author name, no book quotes, no book titl
 Donald Trump is an addict to entertainment just like the rest of USA society. Trump should be **rescued from Putin's fiction** storytelling. The addicts to saying Donald Trump { toddler, dumb, idiot, baby, stupid, moron, not smart } over and over in a loop every day on Reddit commenting sections. This is the very mechanism of power for Trump. [Audiences who eat the Surkovian Onions](../Reddit2025A/Surkovian_Onion_Eating.md) and think the onion taste great! [Shit-eating LOL LOL amusement audience on Reddit, people grading the turds of Trump as they pour down / trickle down from the wealthy media empires](/Grim_Blunt/Society_of_grading_and_ranking_turds.md).
 
 https://old.reddit.com/r/AskReddit/comments/1qfiit5/conservatives_president_trump_has_just_announced/o053sxv/
+
+https://old.reddit.com/r/worldnews/comments/1qfls39/macron_says_trump_tariff_threat_over_greenland/o05m9wz/
+
+https://old.reddit.com/r/worldnews/comments/1qfls39/macron_says_trump_tariff_threat_over_greenland/o05uexk/
+
+https://old.reddit.com/r/worldnews/comments/1qfls39/macron_says_trump_tariff_threat_over_greenland/o05mcl7/
+
+3 month account
+
+https://old.reddit.com/r/worldnews/comments/1qfls39/macron_says_trump_tariff_threat_over_greenland/o05lrzi/
+
+Surkov won.
+
+https://old.reddit.com/r/worldnews/comments/1qfls39/macron_says_trump_tariff_threat_over_greenland/o05o7uu/
+
+new account
+
+https://old.reddit.com/r/worldnews/comments/1qfls39/macron_says_trump_tariff_threat_over_greenland/o05r7v6/
+
+Surkov won. ["Operation Matthew 4:18" has wrecked EU, NATO, USA. But also domestic Russia is self-harming too.](/Operation_Matthew_4_19_on_monday_2024-03-31.md) The entire planet needs to follow leaders: Dr. Bandy X Lee, Malala's January 3, 2019 ideals to 2015 ideals. Revive MLK Jr's words and teachings. 
+
+https://old.reddit.com/r/worldnews/comments/1qfls39/macron_says_trump_tariff_threat_over_greenland/o0616zb/
+
+Gun stroking, USA Reddit California society is thrilled with school shootings, more excitement media. Russia has been preaching to audiences about nuclear bomb topics via media over and over, such as: https://uk.news.yahoo.com/times-putin-has-referenced-the-uk-as-russia-threatens-london-attack-195858501.html
+
+https://old.reddit.com/r/CringeTikToks/comments/1qfhf9c/detroit_pastor_under_fire_after_publicly/o04loj1/
+
+Simple-short Twitter-length messaging from 5 month Reddit account. Serious topics not taken seriously. No off-Reddit URL, no call to confront MAGA church abuse of society, etc.
+
+https://old.reddit.com/r/CringeTikToks/comments/1qfhf9c/detroit_pastor_under_fire_after_publicly/o04mtk2/
+
+Fiction addicts flock to message venues, Church venue for science fiction Bible storytelling. Reddit venue for fiction storytelling. People do not prize nonfiction science learning.
+
+https://old.reddit.com/r/TikTokCringe/comments/1qfe9sy/about_freedom_in_america_right_now/o0402ar/
+
+People cheer it on because it is mythology driven. The IRA since March 2013 has convinced touch-device addicts that fiction storytelling is what they are watching. Detachment from reality. The clergy of media systems, all the billionaires are repeating the CA and IRA patterns into audience minds to hand over power and wealth for images and entertainment. Reddit itself is a venue for mocking and insulting billionaires. Which is not resisting, it's playing right into the hands of the Surkov students. Authentic self-awareness resisting would be doing cult deprogramming education, asserting University of Toronto's Marshall McLuhan's 1960's teachings. That would be freeing minds to make active choices instead of chasing the billionaire content. Musk, the richest man in the world, purchasing Twitter was not dumb as Reddit hive mind commonly chants and believes. https://Old.Reddit.com/r/TrueUnpopularOpinion/comments/1nyw3du/the_purchase_of_twitter_paid_off_massively_for/
+
+https://old.reddit.com/r/TikTokCringe/comments/1qfe9sy/about_freedom_in_america_right_now/o03zw43/
+
+I got banned from Reddit this month.
+
+https://old.reddit.com/r/TikTokCringe/comments/1qfe9sy/about_freedom_in_america_right_now/o03wxqp/
+
+People can not grasp and read year 1776 language of English. People can't even read nonfiction books anymore. I mean all ages, even elderly Baby Boomers are sucking down so much HDTV.
+
+* "But in Huxley's vision, no Big Brother is required to deprive people of their autonomy, maturity and history. As he saw it, people will come to love their oppression, to adore **the technologies** that undo their capacities to think. What Orwell feared were those who would ban books. What Huxley feared was that there would be **no reason to ban a book, for there would be no one who wanted to read one**. Orwell feared those who would deprive us of information. Huxley feared those who would give us so much that we would be reduced to passivity and egoism. Orwell feared that the truth would be concealed from us. Huxley feared the truth would be **drowned in a sea of irrelevance**. Orwell feared we would become a captive culture. Huxley feared we would become a trivial culture"; "This book is about the possibility that Huxley, not Orwell, was right.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business
