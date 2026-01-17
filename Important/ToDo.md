@@ -1806,3 +1806,10 @@ https://old.reddit.com/r/BrandNewSentence/comments/1pdmfx0/the_first_act_of_raci
 
 Parenting in Palestine:    
 https://old.reddit.com/r/memes/comments/1q57g7i/mosted_gifted_generation/
+
+&nbsp;
+
+https://old.reddit.com/r/CuratedTumblr/comments/1qf5pu2/all_people_live_a_life/
+
+Choice marriage honesty. Consensual adult sex. Sexual revolution reversed. We don't need a Hell and God to Judge us, we repress ourselves even after the Church no longer rules these topics.
+
