@@ -73,3 +73,5 @@ https://old.reddit.com/r/AskReddit/comments/1qfiit5/conservatives_president_trum
 This is what the fandom of Trump wants: people to prize low-effort lazy commenting on Reddit that promotes *give up* on education, teaching, FAQ, Wiki systems to organize and teach. Encouraging maximum banality of Tweet-thinking, following Musk media leadership.
 
 * "We believed school would start again. The Taliban could take our pens and books, but they couldn’t stop our minds from thinking." ― Malala Yousafzai, I Am Malala: The [Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. Chapter 11: "The Clever Class". Published October 8, 2013.](https://books.google.com/books?id=U70sgPyfjDAC&pg=PT131&dq=%22We+believed+school+would+start+again.+The+Taliban+could+take+our+pens+and+books,+but+they+couldn%E2%80%99t+stop+our+minds+from+thinking.%22&hl=en&newbks=1&newbks_redir=1&sa=X)
+
+Social post { https://autistics.life/@RoundSparrow/115912310476853073 https://bsky.app/profile/roundsparrow.bsky.social/post/3mcngzzukqc2g }
