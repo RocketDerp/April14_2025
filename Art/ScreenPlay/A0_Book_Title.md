@@ -259,3 +259,7 @@ Inspired by: https://bsky.app/profile/roundsparrow.bsky.social/post/3mcmqmrypvc2
 Crackajolking away    
 
 Page 7 of year 1968 book references page 94 of 1939 book: "The solid man saved by his sillied woman. Crackajolking away like a hearse on fire. FW94." https://www.finnegansweb.com/wiki/index.php/Page_94
+
+* <img width="1704" height="801" alt="War And Peace in the Global Village; year 1968; Page 7" src="https://github.com/user-attachments/assets/36ae98fd-2550-4350-b345-7f917dc08106" />
+
+OPERA_A Sailing away on the thin ice of a new day. Cracking away. https://www.youtube.com/watch?v=WfEnWvVJEzc 203,944 views February 9, 2017 - back in the "year one", you didn't stand a chance Son of Allah.
