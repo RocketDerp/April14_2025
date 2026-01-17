@@ -242,3 +242,12 @@ https://www.youtube.com/watch?v=09maaUaRT4M&t=744s
 
 How many millions of people have to watch since year 2021? 
 
+&nbsp;
+
+# Just Crazy We
+
+Just Crazy We    
+Just Crazy Pluribus    
+Crazy We 
+
+Inspired by: https://bsky.app/profile/roundsparrow.bsky.social/post/3mcmqmrypvc2f
