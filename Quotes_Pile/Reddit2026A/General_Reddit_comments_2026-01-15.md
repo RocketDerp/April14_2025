@@ -626,3 +626,8 @@ https://old.reddit.com/r/AskReddit/comments/1qfiit5/conservatives_president_trum
 This chaotic GitHub I am writing on... is hope it will not take multiple decades to learn from this massive mistake: not teaching media ecology of Marshall McLuhan to audiences once he died NYE 1980.
 
 Social post { https://autistics.life/@RoundSparrow/115912409658752057 https://bsky.app/profile/roundsparrow.bsky.social/post/3mcnigznwfc2w }
+
+https://old.reddit.com/r/memzy/comments/1qd6u94/its_not_complex_sane_people_knows_it/nzxj7vd/
+
+This Reddit user made a great comment last year, year 2025, wanted to grab one of their most recent.
+
