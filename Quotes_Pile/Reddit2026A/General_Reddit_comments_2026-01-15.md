@@ -578,3 +578,20 @@ https://old.reddit.com/r/pics/comments/1qezmw6/chaos_in_north_minneapolis_after_
 Surkov students have done their job! 
 
 * Published January 2015, before Trump started run for office in June 2015: https://www.Politico.com/magazine/story/2015/01/putin-russia-tv-113960/ At one end of the table sat one of the country’s most famous political TV presenters. He was small and spoke fast, with a smoky voice: “We all know there will be no real politics,” he said. “But we still have to give our viewers the sense something is happening. They need to be kept entertained.” “So what should we play with?” he asked. “Shall we attack oligarchs? Who’s the enemy this week? **Politics has got to feel like a movie!**”
+
+https://old.reddit.com/r/law/comments/1qeylzi/we_are_america_how_could_you_possibly_target/o012a3w/
+
+https://old.reddit.com/r/law/comments/1qeylzi/we_are_america_how_could_you_possibly_target/o0115mf/
+
+Learning about the person in the video. Not so common on social media these days that people share actual nonfiction learning instead of just commenting on superficial aspects.
+
+https://old.reddit.com/r/law/comments/1qeylzi/we_are_america_how_could_you_possibly_target/o0123mh/
+
+Even posted recent parallel discussions. 
+
+https://old.reddit.com/r/law/comments/1qeylzi/we_are_america_how_could_you_possibly_target/o01blga/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qex392/ted_cruz_in_2016_were_liable_to_wake_up_one/o00uzut/
+
+Joined Reddit on Putin's birthday, Palestine terror attack day.
+
