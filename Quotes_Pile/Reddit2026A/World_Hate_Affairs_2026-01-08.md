@@ -991,3 +991,18 @@ https://old.reddit.com/r/europe/comments/1qek5r5/trump_says_he_may_punish_countr
 
 https://old.reddit.com/r/europe/comments/1qek5r5/trump_says_he_may_punish_countries_with_tariffs/nzy6g3o/
 
+https://old.reddit.com/r/pics/comments/1qfbjl8/thousands_protest_in_denmarks_capital_against/o03enl3/
+
+Why can't Reddit create /r/NewsPostTrump and BE BIGGER than the news? Instead, just Twitter-length commenting about Trump owning the media. Instead of standing up and making important serious news system. Same with Wiki Tribune.... 
+
+https://old.reddit.com/r/pics/comments/1qfbjl8/thousands_protest_in_denmarks_capital_against/o03eetw/
+
+Lonely GitHub voice here... why isn't Reddit front page being taken over by mass uprising? World famous legends? Dr. Bandy X Lee, movement against Fox News TV?
+
+# Media Woke A
+
+https://old.reddit.com/r/pics/comments/1qfbjl8/thousands_protest_in_denmarks_capital_against/o03djyz/
+
+<img width="867" height="411" alt="image" src="https://github.com/user-attachments/assets/e2524af9-68a0-45e0-bb28-f6b1f49e761a" /> Exactly. Millions of Social Media Users on Reddit and Bluesky for 21 days in a row.. NOPE! Just amusement as usual. Just sports games as usual, video games as usual.
+
+Social post { https://autistics.life/@RoundSparrow/115910733588963044 https://bsky.app/profile/roundsparrow.bsky.social/post/3mcmqmrypvc2f }
