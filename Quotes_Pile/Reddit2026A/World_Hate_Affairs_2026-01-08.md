@@ -1044,3 +1044,13 @@ https://old.reddit.com/r/worldnews/comments/1qfhy7u/trump_says_8_european_countr
 https://old.reddit.com/r/Damnthatsinteresting/comments/1qfipuj/in_1916_denmark_sold_the_danish_west_indies_to/o04wmaj/
 
 Anti-USA, Joke of NATO, message grows louder and louder. OPERA_A Russia singer. "The Call" from the world-hate messaging commenting training ground. https://www.YouTube.com/watch?v=oNsQewlFtEs "Regina Spektor was born on February 18, 1980, in Moscow, Russia (then part of the Soviet Union) to a musical Jewish family" - been this way before. [GOTO Page 628 of Finnegans Wake book](https://github.com/GreatSealUSA/GreatSealUSA_Art/blob/main/PLUR1BUS/E_pluribus_unum_Opera/zzrunme0.adb). 20,043,183 views May 15, 2008 (I shared this YouTube song during the Arab Spring over the Internet to North Africa in Q3 2010).
+
+https://old.reddit.com/r/europe/comments/1qfisui/trump_tariffs_us_president_announces_plan_to_hit/o04wfej/
+
+Joined Reddit on { Putin's Birthday, Fox News birthday }. Simple-short cheering on of world hate affairs. Trump fandom. Hate followers of Hate leader. This isn't resisting.
+
+https://old.reddit.com/r/europe/comments/1qfisui/trump_tariffs_us_president_announces_plan_to_hit/o04wtic/
+
+"Insanity", mental health words. Reddit audience programmed to do ANYTHING but quote nonfiction books on group mental health. Mob mentality / mass man / mass psychosis teachings.
+
+* “In Donald Trump, we have a frightening Venn diagram consisting of three circles: the first is extreme present hedonism; the second, narcissism; and the third, **bullying behavior.** These three circles overlap in the middle to create an impulsive, immature, incompetent person who, when in the position of ultimate power, easily slides into the role of tyrant, complete with family members sitting at his proverbial “ruling table.” Like a fledgling dictator, he plants psychological seeds of treachery in **sections of our population that reinforce already negative attitudes**.” ― Bandy X Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. October 3, 2017. Page 44.](https://books.google.com/books?id=g0c4DwAAQBAJ&pg=PA44&dq=%22immature,+incompetent+person+who,+when+in+the+position+of+ultimate+power,+easily+slides+into+the+role+of+tyrant%22&hl=en&newbks=1&newbks_redir=1&sa=X)
