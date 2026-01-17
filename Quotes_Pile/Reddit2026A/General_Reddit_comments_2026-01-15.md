@@ -605,3 +605,13 @@ https://old.reddit.com/r/ProgressiveHQ/comments/1qetsh6/washington_post_as_a_con
 
 https://old.reddit.com/r/ProgressiveHQ/comments/1qetsh6/washington_post_as_a_conservative_im_beginning_to/o00hiir/
 
+https://old.reddit.com/r/Damnthatsinteresting/comments/1qfipuj/in_1916_denmark_sold_the_danish_west_indies_to/o04z6hw/
+
+https://old.reddit.com/r/Damnthatsinteresting/comments/1qfipuj/in_1916_denmark_sold_the_danish_west_indies_to/o058z2l/
+
+Tower of Babel **ARG**
+
+https://old.reddit.com/r/europe/comments/1qfisui/trump_tariffs_us_president_announces_plan_to_hit/o04x28e/
+
+8 month old Reddit account promoting unbelievable, anti-reality. Highly upvoted.
+
