@@ -52,3 +52,11 @@ https://old.reddit.com/r/worldnews/comments/1qfhy7u/trump_says_8_european_countr
 
 Reddit media empire serves as a training round on how to satire-wash, meme-wash, sarcasm-wash Trump's mass dehumanization as a form of entertainment. Almost always avoided is serious nonfiction learning and important assertions. Tweet-length, Twitter-style, Musk Twitter short-messaging values to dilute goodness in favor of the humor aspects of Trump's antics and self-harm of USA and NATO. CONTEXT_ASSERTION: September 10, 2025 https://Time.com/7313999/neil-postman-trump-prediction/
 
+https://old.reddit.com/r/worldnews/comments/1qfhy7u/trump_says_8_european_countries_will_be_charged_a/o04pj5t/
+
+These tiny-short messages on Reddit are incredibly popular. They serve to show that the audience is treating this like a mobster film, like ["The Godfather" year 1972 American gangster fiction storytelling](https://en.wikipedia.org/wiki/The_Godfather). This is what a society of Reality TV addictions prizes as entertainment and audience conversation. Complete detachment from learning nonfiction about Russia's military information warfare against Reddit end-users. Such as: https://www.bbc.com/news/technology-43301643 story. Avoided in favor of audience peer to peer hyper-banality messaging.
+
+https://old.reddit.com/r/worldnews/comments/1qfhy7u/trump_says_8_european_countries_will_be_charged_a/o04qd43/
+
+Fandom of Trump and MAGA entertainment, with "LOL" opening of the message. Thrilled to view this all as a screen game, interactive fiction. Trump fandom. Note the age of the Reddit account; only a few months old to jump on the USA total mockery media enviornment of Reddit commenting.
+
