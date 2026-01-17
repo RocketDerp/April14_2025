@@ -638,3 +638,16 @@ Nothing is keeping Bluesky and Reddit end-users from asserting Dr. Bandy X. Lee'
 https://old.reddit.com/r/politics/comments/1qff0ny/trump_79_appears_to_forget_name_of_woman_who_just/o05172z/
 
 A rebel against a government, revels against another organization. Blows the minds of Reddit audience with the Twitter-length thinking message patterns.
+
+https://old.reddit.com/r/movies/comments/1qfmjhd/matt_damon_says_netflix_wants_movies_to_restate/o05z0cw/
+
+Brain rot / brainrot audiences of memes.
+
+https://old.reddit.com/r/movies/comments/1qfmjhd/matt_damon_says_netflix_wants_movies_to_restate/o05wzad/
+
+World Wide Web society / Social Media society is wildly anti-intellectual.
+
+https://old.reddit.com/r/movies/comments/1qfmjhd/matt_damon_says_netflix_wants_movies_to_restate/o05u0do/
+
+See replies too.
+
