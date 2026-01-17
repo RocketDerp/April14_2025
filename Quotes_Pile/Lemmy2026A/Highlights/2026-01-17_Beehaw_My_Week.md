@@ -26,7 +26,7 @@ https://beehaw.org/post/24187631/5490155
 
 Every single week of my life [has been worse since Tuesday June 16, 2015](https://en.wikipedia.org/wiki/Donald_Trump_2016_presidential_campaign) (Bloomsday year 2015). I live in the United States of America. And the cult of Donald Trump has made all family life, social life, online life terrible!
 
-Here in my home, people will not even organize an online protest. In over TEN YEARS AND SEVEN MONTHS, addicts to memes and junk will not stop their amusement cult of Donald Trump. People will not stop mocking and do an ONLINE world-famous World Wide Web protest against Donald Trump. Instead, people adopt Trump-speak, Trump-images flood every social platform, yard signs flood every street! 
+Here in my home, people will not even organize an online protest. In over TEN YEARS AND SEVEN MONTHS, addicts to memes and junk will not stop their amusement cult of Donald Trump. The **fandom of Donald Trump is horrible to live with!** People will not stop mocking Trump and parroting Trump and do an ONLINE world-famous World Wide Web protest against Donald Trump. Instead, people adopt Trump-speak, Trump-images flood every social platform, yard signs flood every street! 
 
 Donald Trump became famous because of Twitter social, and social users will not stand up and *do* the world's largest protest *from* We The People ... largest protest messaging in human history... *online* against this world-wrecking man!
 
