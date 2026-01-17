@@ -26,3 +26,15 @@ Again and again, the Large Language Models, which are trained on books... have n
 * "In 1969, a megabyte (MB) of storage was incredibly expensive, with figures suggesting a 1MB hard drive could cost around $1 million when Computerworld started, though disk packs offered cheaper (but larger) storage in the 30MB range for large systems, but overall storage was scarce, with early drives like the IBM 350 storing only a few megabytes and costing a fortune compared to today's cents-per-gigabyte rates, making MBs a massive, costly quantity." - Google Search summary. 2026-01-17 morning USA
 
 So, because of cost and labor of entry... merely the YEAR, "1968" was recorded about the book. The day and month were not put into computer databases of books.
+
+&nbsp;
+
+# Wikipedia Edits 2026-01-17
+
+I contributed to Wikipedia, a February 2025 story about global village wars. First edit today:
+
+https://en.wikipedia.org/w/index.php?title=War_and_Peace_in_the_Global_Village&diff=prev&oldid=1333409851
+
+Revision as of 16:30, 17 January 2026    
+
+I made several more edits to expand and improve the section after that first edit.
