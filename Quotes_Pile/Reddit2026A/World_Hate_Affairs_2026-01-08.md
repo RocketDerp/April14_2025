@@ -1005,4 +1005,4 @@ https://old.reddit.com/r/pics/comments/1qfbjl8/thousands_protest_in_denmarks_cap
 
 <img width="867" height="411" alt="image" src="https://github.com/user-attachments/assets/e2524af9-68a0-45e0-bb28-f6b1f49e761a" /> Exactly. Millions of Social Media Users on Reddit and Bluesky for 21 days in a row.. NOPE! Just amusement as usual. Just sports games as usual, video games as usual.
 
-Social post { https://autistics.life/@RoundSparrow/115910733588963044 https://bsky.app/profile/roundsparrow.bsky.social/post/3mcmqmrypvc2f }
+Social post { https://autistics.life/@RoundSparrow/115910733588963044 https://bsky.app/profile/roundsparrow.bsky.social/post/3mcmqmrypvc2f https://MidWest.Social/post/41985117 }
