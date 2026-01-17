@@ -1129,3 +1129,10 @@ Unite against machine-logic polarity of *us vs. them*. Unite against Elon Musk T
 
 * "In the information age it is obviously possible to decimate populations by the dissemination of information and gimmickry. There is no question here of values. It is simple information technology being used by one community to reshape another one. It is this type of aggression that we exert on our own youngsters in what we call "education." We simply impose upon them the patterns that we find convenient to ourselves and consistent with the available technologies." - War and Peace in the Global Village. Canadian Marshall McLuhan. University of Toronto. Year 1968. Page 149.
 
+https://old.reddit.com/r/worldnews/comments/1qfj3m4/trump_is_making_china_not_america_great_again/o06c56o/
+
+Operation Matthew 4:19 agreement... 
+
+https://old.reddit.com/r/worldnews/comments/1qfj3m4/trump_is_making_china_not_america_great_again/o062aaq/
+
+And USA is chasing Russian values like moth to burning flame. Surkov monomtyh worked! OPERA_A https://www.youtube.com/watch?v=JG6x4MHdTWM "The Moth (Bobby Woods & Les Deux Love Orchestra Cover) - Aimee Mann \[Mr. Robot S02E12\]" .. meme addict moths, Russia mind-fucked MAGA first, Rural less-educated population who never heard of { Marshall McLuhan and Neil Postman NYC NYU } 3,081,180 views September 21, 2016
