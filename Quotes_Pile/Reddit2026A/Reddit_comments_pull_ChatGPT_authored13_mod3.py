@@ -28,10 +28,13 @@ from html_to_markdown import convert_to_markdown
 
 # Global variables
 
+# The Python standard (defined in PEP 8, the official style guide) for variable names is to use lowercase with words separated by underscores (known as snake_case)
+
 HEADERS = {"User-Agent": "Pluribus TV project version 0.1.0"}
-errorCountB = 0
-fetchRedditCountA = 0
+error_count_b = 0
 error_fetch_count = 0
+error_parse_a_count = 0
+fetch_reddit_count_a = 0
 replies_users_fetch = 0
 replies_users_max = 40
 # every slowdown_every fetches kick in delay
@@ -113,23 +116,23 @@ def parse_markdown_entries(filepath):
 #   https://old.reddit.com/r/Python/comments/1igtrtp/htmltomarkdown_12_modern_html_to_markdown/
 #   https://github.com/Goldziher/html-to-markdown
 def convert_html_to_md(div):
-    global errorCountB
+    global error_count_b
     
     if div is None:
         print("got empty div, missing comment?")
-        errorCountB += 1
+        error_count_b += 1
         return ""
 
     if "You must be at least eighteen years old to view this content." in div:
          print("over age 18, missing comment?")
-         errorCountB += 1
+         error_count_b += 1
          return ""
 
     try:
         md_text = convert_to_markdown(div);
         return md_text;
     except Exception as e:
-        errorCountB += 1
+        error_count_b += 1
         print(f"ERROR converting HTML to markdown. {e}")
         print(div)
         return f"ERROR\nERROR on HTML to markdown. Providing raw HTML:\n{div}";
@@ -273,7 +276,7 @@ def walk_comment_tree(comment_div, level=0):
 
 
 def fetch_comment_data(url, idx=None, args=None):
-    global fetchRedditCountA
+    global fetch_reddit_count_a
     global replies_users_fetch
     global age18_count
 
@@ -321,7 +324,7 @@ def fetch_comment_data(url, idx=None, args=None):
 
     if html_text is None:
         # no HTML loaded from local storage, do live Internet fetch
-        fetchRedditCountA += 1
+        fetch_reddit_count_a += 1
         res = requests.get(url, headers=HEADERS)
         fetch_time_epoch = int(time.time())
         if res.status_code != 200:
@@ -453,9 +456,10 @@ def fetch_comment_data(url, idx=None, args=None):
 
 
 def fetch_user_info_hover(username, args=None):
-    global fetchRedditCountA
+    global fetch_reddit_count_a
     global error_fetch_count
     global slowdown_every
+    global error_parse_a_count
 
     url = f"https://old.reddit.com/user/{username}/about.json"
     
@@ -523,10 +527,10 @@ def fetch_user_info_hover(username, args=None):
 
     if reddit_account_data is None:
         print(f"live-fetch for user_info_hover {url}")
-        fetchRedditCountA += 1
+        fetch_reddit_count_a += 1
 
-        if fetchRedditCountA % slowdown_every == 0:
-            print(f"fetchRedditCountA {fetchRedditCountA} is a multiple of {slowdown_every}.")
+        if fetch_reddit_count_a % slowdown_every == 0:
+            print(f"fetchRedditCountA {fetch_reddit_count_a} is a multiple of {slowdown_every}.")
             sleep_time = random.uniform(11, 22)
             quit_request = pause_with_quit(sleep_time)
             if quit_request:
@@ -587,22 +591,29 @@ def fetch_user_info_hover(username, args=None):
                 sys.exit(1)
         return None, None, None, None, False
 
-    created = datetime.datetime.utcfromtimestamp(reddit_account_data["created_utc"]).isoformat() + "Z"
-    bio = reddit_account_data.get("subreddit", {}).get("public_description")
-    user_title = reddit_account_data.get("subreddit", {}).get("title")
-    if user_title:
-        bio = user_title + " : " + bio
-    link_karma = reddit_account_data.get("link_karma")
-    comment_karma = reddit_account_data.get("comment_karma")
-    return created, bio, link_karma, comment_karma, live_fetch
+    try:
+        created = datetime.datetime.utcfromtimestamp(reddit_account_data["created_utc"]).isoformat() + "Z"
+        bio = reddit_account_data.get("subreddit", {}).get("public_description")
+        user_title = reddit_account_data.get("subreddit", {}).get("title")
+        if user_title:
+            bio = user_title + " : " + bio
+        link_karma = reddit_account_data.get("link_karma")
+        comment_karma = reddit_account_data.get("comment_karma")
+        return created, bio, link_karma, comment_karma, live_fetch
+    except Exception as e:
+        print("error parsing account information")
+        error_parse_a_count += 1
+        quit_request = pause_with_quit(15)
+        if quit_request:
+            sys.exit(1)
 
 
 def fetch_user_info_full(username):
-    global fetchRedditCountA
+    global fetch_reddit_count_a
 
     url = f"https://old.reddit.com/user/{username}/"
     print(f"live-fetch for user_info_full {url}")
-    fetchRedditCountA += 1
+    fetch_reddit_count_a += 1
     res = requests.get(url, headers=HEADERS)
     if res.status_code != 200:
         live_fetch_error(res, 2)
@@ -623,7 +634,8 @@ def main():
     global args
     global error_fetch_count
     global age18_count
-    
+    global error_parse_a_count
+
     parser = argparse.ArgumentParser(description="Parse Reddit comments from markdown list.")
     parser.add_argument("--file", required=True, help="Input markdown file containing Reddit comment URLs.")
     parser.add_argument("--output", help="Optional file to write fetched comment output (console pauses not included).")
@@ -733,13 +745,13 @@ def main():
         summaryfile.write(f"{args.output}\n")
         summaryfile.write(f"    end {endtime_iso_with_ms}\n")
 
-        if errorCountA + errorCountB + error_fetch_count > 0:
-            print(f"\nERRORS encountered! Final error counts, A: {errorCountA} B: {errorCountB} error_fetch_count: {error_fetch_count}")
-            summaryfile.write(f"\nERRORS encountered! Final error counts, A: {errorCountA} B: {errorCountB} error_fetch_count: {error_fetch_count}\n")
+        if errorCountA + error_count_b + error_fetch_count + error_parse_a_count > 0:
+            print(f"\nERRORS encountered! Final error counts, A: {errorCountA} B: {error_count_b} error_fetch_count: {error_fetch_count} error_parse_a_count: {error_parse_a_count}")
+            summaryfile.write(f"\nERRORS encountered! Final error counts, A: {errorCountA} B: {error_count_b} error_fetch_count: {error_fetch_count} error_parse_a_count: {error_parse_a_count}\n")
 
-        if fetchRedditCountA > 0:
-            print(f"Live fetch to Reddit count: {fetchRedditCountA}")
-            summaryfile.write(f"Live fetch to Reddit count: {fetchRedditCountA}\n")
+        if fetch_reddit_count_a > 0:
+            print(f"Live fetch to Reddit count: {fetch_reddit_count_a}")
+            summaryfile.write(f"Live fetch to Reddit count: {fetch_reddit_count_a}\n")
 
         if age18_count > 0:
             print(f"Could not parse, age 18 required: {age18_count}")
