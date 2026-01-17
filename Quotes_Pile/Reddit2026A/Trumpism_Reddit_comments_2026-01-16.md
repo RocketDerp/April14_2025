@@ -47,3 +47,8 @@ Trump is a media addict leading a nation of high-speed information addicts. Enga
 https://old.reddit.com/r/politics/comments/1qf53t3/doctor_claims_trump_79_suffered_serious_medical/o02avf2/
 
 Fandom discusses this all in a casual style. This is a documented PUBLIC figure. This isn't your buddy woo works at the grocery store or gas station. This is a man at the center of attention of thousands of books. But on Reddit, the tone is casual and Twitter-like now. No link to any book, no author name, no call to organize and remove Trump. It is as if sports fans are talking about a injury of one of their entertaining sports stars and how it might impact next moth's playoffs. If anything, sports fandoms can be MORE SERIOUS about citing sources and serious analysis than We The People are about world affairs lead by Trump's White House.
+
+https://old.reddit.com/r/worldnews/comments/1qfhy7u/trump_says_8_european_countries_will_be_charged_a/o04pv26/
+
+Reddit media empire serves as a training round on how to satire-wash, meme-wash, sarcasm-wash Trump's mass dehumanization as a form of entertainment. Almost always avoided is serious nonfiction learning and important assertions. Tweet-length, Twitter-style, Musk Twitter short-messaging values to dilute goodness in favor of the humor aspects of Trump's antics and self-harm of USA and NATO. CONTEXT_ASSERTION: September 10, 2025 https://Time.com/7313999/neil-postman-trump-prediction/
+
