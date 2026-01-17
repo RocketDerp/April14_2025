@@ -4,8 +4,7 @@ War and Peace in The Global Village
 September 3, 1968    
 Page 16     
 
-Quote ::: "The pain caused by new media and new technologies tends very much to fall into the category of "referred pain," such as skin trouble caused by the appendix or the heart. As with all new technologies,
-pain creates a special form of space, just as they also create pain. It's very much a case again of Heinrich Hertz' law: "The consequences of the images will be the images of the consequences." All new technologies bring on the cultural blues, just as the old ones evoke phantom pain after they have disappeared. ::: - Page 16
+Quote ::: "The pain caused by new media and new technologies tends very much to fall into the category of "referred pain," such as skin trouble caused by the appendix or the heart. As with all new technologies, pain creates a special form of space, just as they also create pain. It's very much a case again of Heinrich Hertz' law: "The consequences of the images will be the images of the consequences." All new technologies bring on the cultural blues, just as the old ones evoke phantom pain after they have disappeared. ::: - Page 16
 
 &nbsp;
 
