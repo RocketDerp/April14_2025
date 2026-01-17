@@ -251,3 +251,11 @@ Just Crazy Pluribus
 Crazy We 
 
 Inspired by: https://bsky.app/profile/roundsparrow.bsky.social/post/3mcmqmrypvc2f
+
+&nbsp;
+
+# Crackajolking Away
+
+Crackajolking away    
+
+Page 7 of year 1968 book references page 94 of 1939 book: "The solid man saved by his sillied woman. Crackajolking away like a hearse on fire. FW94." https://www.finnegansweb.com/wiki/index.php/Page_94
