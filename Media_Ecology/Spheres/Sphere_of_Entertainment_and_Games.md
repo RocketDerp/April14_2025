@@ -27,7 +27,7 @@ University of Toronto
 Media Studies   
 Media Ecology    
 
-For example, when Reddit added image hosting and video. It gives the owners of Reddit an adult education center that does not play by the previous rules, and is judged by **fiction entertainment** and *fiction gaming** values. In Fiction, in Mythology, anything goes. /r/The_Donald
+For example, when Reddit added image hosting and video. It gives the owners of Reddit an adult education center that does not play by the previous rules, and is judged by **fiction entertainment** and **fiction gaming** values. In Fiction, in Mythology, *anything* goes. /r/The_Donald ... https://Old.Reddit.com/r/WhiteHouseSurkovMedia/
 
 What are doing to do, ban fiction storytelling? Fox News HDTV has been a fiction adaption of SNL NYC. Fox News is HQ in NYC. SNL "Weekend Update" / Fox News comedy entertainment venue. News presented as ENTERTAINMENT sphere, gaming SPHERES. Adult education, people who never return to rectangle classroom seating arrangements. But follow HDTV content of Rupert Murdoch.
 
@@ -35,7 +35,7 @@ Paul Allen / Jody Allen family with the sports team empire of Portland and Seatt
 
 OPERA_A West of Hollywood https://www.youtube.com/watch?v=A5MfjRki6Nw - sports / apps / films / music producers / connections to famous actors and actresses to get anything desired. Entertainment industry of every kind. Two of the three richest people in the entire world in year 1998. Warren Buffet was second. Steve Balmer was 5th. Within 10 miles of Mercer Island / Bellevue - you had 3 of the top 5 richest people in the entire world. I was there, as a media expert, insider on the private staff. 35,512 views October 2, 2021
 
-* "Bill Gates, chief of software giant Microsoft Corp., topped the list of the richest Americans for the fifth year in a row, Forbes magazine said in its annual listing of the Forbes 400. In June, the magazine reported that Gates, then worth $51 billion, had become **the richest man in the world, including heads of state**. The sultan of Brunei, an oil-rich country that shares the island of Borneo with Malaysia and Indonesia, was then estimated to control wealth of $36 billion. Investor Warren Buffett’s net worth was No. 2 on the domestic list, at $29.4 billion"; "**Paul Allen is No. 3**, worth $22 billion, and Steven Ballmer is No. 5, worth $12 billion." https://www.latimes.com/archives/la-xpm-1998-sep-28-fi-27203-story.html
+* "Bill Gates, chief of software giant Microsoft Corp., topped the list of the richest Americans for the fifth year in a row, Forbes magazine said in its annual listing of the Forbes 400. In June, the magazine reported that Gates, then worth $51 billion, had become **the richest man in the world, including heads of state**. The sultan of Brunei, an oil-rich country that shares the island of Borneo with Malaysia and Indonesia, was then estimated to control wealth of $36 billion. Investor Warren Buffett’s net worth was No. 2 on the domestic list, at $29.4 billion"; "**Paul Allen is No. 3**, worth $22 billion, and Steven Ballmer is No. 5, worth $12 billion." https://www.LAtimes.com/archives/la-xpm-1998-sep-28-fi-27203-story.html
 
 &nbsp;
 
@@ -56,4 +56,3 @@ Google Search results 2026-01-17 afternoon USA
 
 Lyrics: "You can't ask me to access the dreams I don't have now. Sadly for us... Our little talk is over... So together we'll endure the tyranny of the disallowed!"    
 "it was recorded from 1997 to 1999"     
-
