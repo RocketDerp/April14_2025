@@ -41,7 +41,7 @@ I made several more edits to expand and improve the section after that first edi
 
 * Observations about Wikipedia page. Originated 19:54, 3 November 2009. ONLY in English Wikipedia, despite Canada being famous for also having French as a primary language. Also, the book deals with "Global Village", and Finnegans Wake by James Joyce - WWW global topics. But only in one single Language on Wikipedia.
 * <img width="2648" height="1019" alt="image" src="https://github.com/user-attachments/assets/602a200f-dcee-4a68-9b15-b438aef160e9" /> - 2026-01-17 morning USA screenshot of languages, zilch!
-* Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mcn4owhoe22h https://autistics.life/@RoundSparrow/115911579045386827 }
+* Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mcn4owhoe22h https://autistics.life/@RoundSparrow/115911579045386827 https://MidWest.Social/post/41994239 }
 
 &nbsp;
 
