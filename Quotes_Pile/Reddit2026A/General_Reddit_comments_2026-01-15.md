@@ -615,3 +615,14 @@ https://old.reddit.com/r/europe/comments/1qfisui/trump_tariffs_us_president_anno
 
 8 month old Reddit account promoting unbelievable, anti-reality. Highly upvoted.
 
+https://old.reddit.com/r/AskReddit/comments/1qfiit5/conservatives_president_trump_has_just_announced/o055n45/
+
+Reddit audiences line up for every { breaking news, photograph of Trump, quote from Trump } to mock away at the Tony Clifton performance. Reddit meme consumers can't articulate that Trump is an actor doing acting. Performance content for meme audiences of Reddit and Blueksy. Pinning the Trump fandom into reacting to everything Trump does. Surkov won.
+
+https://old.reddit.com/r/AskReddit/comments/1qfiit5/conservatives_president_trump_has_just_announced/o04xi5j/
+
+<img width="935" height="291" alt="image" src="https://github.com/user-attachments/assets/228122d7-4b9b-43d7-97ac-e74c47d79499" /> The world wide brain-damage from Trump messaging and MAGA leadership has set humanity back to year 1910 or so mindsets. Finnegans Wake Joyce and Marshall McLuhan self-awareness has been shit out of the mass man mindsets. Surkov won since March 2013.
+
+This chaotic GitHub I am writing on... is hope it will not take multiple decades to learn from this massive mistake: not teaching media ecology of Marshall McLuhan to audiences once he died NYE 1980.
+
+Social post { https://autistics.life/@RoundSparrow/115912409658752057 https://bsky.app/profile/roundsparrow.bsky.social/post/3mcnigznwfc2w }
