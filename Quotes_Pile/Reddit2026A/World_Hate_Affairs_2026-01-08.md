@@ -1062,3 +1062,13 @@ https://old.reddit.com/r/europe/comments/1qfisui/trump_tariffs_us_president_anno
 Canadian Reddit user, anti-McLuhan messaging. Joining in (and actively promoting) the Trump fandom of mockery and mocking. Anything but turn to serious nonfiction book learning. The Reddit audience screen game of worshiping that Trump provides such a *Celebration of Ignorance* that everyone can be amused at: the Putin and Trump pairing against EU.
 
 * "Games are fashions in the same way as clothes because they involve the sensory life of **a society in a mocking and fictitious way**. To simulate one situation by means of another one, to **turn the whole working environment into a small** model, is a means of perception and control by means of public ritual. The **audience as participants*** is indispensable to most games." - [War and Peace in the Global Village. Year 1968. Page 168](/Art/ScreenPlay/All_Say/All_Say_Mocking.md#all-war-and-peace-in-the-global-village). University of Toronto. Professor Marshall McLuhan.
+
+https://old.reddit.com/r/AskReddit/comments/1qfiit5/conservatives_president_trump_has_just_announced/o054wfh/
+
+https://old.reddit.com/r/AskReddit/comments/1qfiit5/conservatives_president_trump_has_just_announced/o04xoyx/
+
+https://old.reddit.com/r/AskReddit/comments/1qfiit5/conservatives_president_trump_has_just_announced/o04ulrb/
+
+Note the absence of off-Reddit URL, no author name, no book quotes, no book titles, no quotes of a book. Calling Trump a "moron" for knowing how to peg the Reddit audience into meme submission. Reddit fiction addicts who can't tell Trump is an ***actor, who is acting*** and playing President Tony Clifton performances for the Reddit meme addled audience (who can't cite nonfiction learning or teaching).
+
+Donald Trump is an addict to entertainment just like the rest of USA society. Trump should be **rescued from Putin's fiction** storytelling. The addicts to saying Donald Trump { toddler, dumb, idiot, baby, stupid, moron, not smart } over and over in a loop every day on Reddit commenting sections. This is the very mechanism of power for Trump. [Audiences who eat the Surkovian Onions](../Reddit2025A/Surkovian_Onion_Eating.md) and think the onion taste great! [Shit-eating LOL LOL amusement audience on Reddit, people grading the turds of Trump as they pour down / trickle down from the wealthy media empires](/Grim_Blunt/Society_of_grading_and_ranking_turds.md).
