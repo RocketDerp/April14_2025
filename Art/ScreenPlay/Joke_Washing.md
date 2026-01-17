@@ -15,4 +15,12 @@ University of Toronto
 Media Studies     
 Media Ecology    
 
-Page 7 of year 1968 book references page 94 of 1939 book: "The solid man saved by his sillied woman. Crackajolking away like a hearse on fire. FW94." https://www.finnegansweb.com/wiki/index.php/Page_94
+Crackajolking away    
+
+Page 7 of year 1968 book references page 94 of 1939 book: "The solid man saved by his sillied woman. Crackajolking away like a hearse on fire. FW94." https://www.FinnegansWeb.com/wiki/index.php/Page_94
+
+* <img width="1704" height="801" alt="War And Peace in the Global Village; Year 1968; Page 7" src="https://github.com/user-attachments/assets/36ae98fd-2550-4350-b345-7f917dc08106" />
+
+OPERA_A Sailing away on the thin ice of a new day. Cracking away. https://www.youtube.com/watch?v=WfEnWvVJEzc 203,944 views February 9, 2017 - back in the "year one", you didn't stand a chance Son of Allah. [عيسى ابن مريم](https://ar.wikipedia.org/wiki/%D8%B9%D9%8A%D8%B3%D9%89_%D8%A8%D9%86_%D9%85%D8%B1%D9%8A%D9%85)
+
+SEE_ALSO: Parallel content [ScreenPlay : A0_Book_Title.md#crackajolking-away](A0_Book_Title.md#crackajolking-away)
