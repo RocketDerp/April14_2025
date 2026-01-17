@@ -77,3 +77,7 @@ This is what the fandom of Trump wants: people to prize low-effort lazy commenti
 * "We believed school would start again. The Taliban could take our pens and books, but they couldn’t stop our minds from thinking." ― Malala Yousafzai, I Am Malala: The [Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. Chapter 11: "The Clever Class". Published October 8, 2013.](https://books.google.com/books?id=U70sgPyfjDAC&pg=PT131&dq=%22We+believed+school+would+start+again.+The+Taliban+could+take+our+pens+and+books,+but+they+couldn%E2%80%99t+stop+our+minds+from+thinking.%22&hl=en&newbks=1&newbks_redir=1&sa=X)
 
 Social post { https://autistics.life/@RoundSparrow/115912310476853073 https://bsky.app/profile/roundsparrow.bsky.social/post/3mcngzzukqc2g }
+
+https://old.reddit.com/r/worldnews/comments/1qfls39/macron_says_trump_tariff_threat_over_greenland/o05xxgd/
+
+Fandom of Trump. Cheering on more nonsense and chaos against EU / USA / NATO to support Putin's plans. Always adding more mockery / satire / surreal / sarcasm / absurd to the Surkov students outcomes. Elon Musk Twitter short-message thinking banality. Banal mindsets to treat Trump as the most amazing source of amusement and total mockery show.
