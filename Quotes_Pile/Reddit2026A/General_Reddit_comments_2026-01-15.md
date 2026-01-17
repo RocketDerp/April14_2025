@@ -546,3 +546,35 @@ I worked in *digital social media* ... Bellevue Washington for the richest peopl
 https://old.reddit.com/r/politics/comments/1qemitw/at_the_root_of_all_our_problems_stands_one/nzyi0av/
 
 And campaigns have [gone to doctors of Cambridge Analytica to use military techniques](../Cambridge_Analytica_Quotes.md).
+
+https://old.reddit.com/r/politics/comments/1qemitw/at_the_root_of_all_our_problems_stands_one/nzyimil/
+
+https://old.reddit.com/r/politics/comments/1qetdfy/trumps_call_to_cancel_elections_must_be_a_wakeup/o001k8k/
+
+Joke-washing, amusement-washing. Humor-washing, comedy wrapping. Neil Postman's 1985 book is essential comprehension of second term POTUS. Trump is exploiting the meme addict society.  September 10, 2025 https://Time.com/7313999/neil-postman-trump-prediction/
+
+https://old.reddit.com/r/politics/comments/1qetdfy/trumps_call_to_cancel_elections_must_be_a_wakeup/o002b26/
+
+https://old.reddit.com/r/politics/comments/1qetdfy/trumps_call_to_cancel_elections_must_be_a_wakeup/o007xjy/
+
+Newish Reddit account with really odd profile messages.
+
+https://old.reddit.com/r/politics/comments/1qetdfy/trumps_call_to_cancel_elections_must_be_a_wakeup/o015zo2/
+
+https://old.reddit.com/r/minnesota/comments/1qf03zi/woman_in_minnesota_confirms_greg_bovinos_height/o01bpnd/
+
+Trump creates endless funny content for USA society. Neil Postman was correct in 1985 book.
+
+https://old.reddit.com/r/minnesota/comments/1qf03zi/woman_in_minnesota_confirms_greg_bovinos_height/o01d686/
+
+https://old.reddit.com/r/pics/comments/1qezmw6/chaos_in_north_minneapolis_after_federal_agent/o01bmzl/
+
+https://old.reddit.com/r/pics/comments/1qezmw6/chaos_in_north_minneapolis_after_federal_agent/o01bl74/
+
+Russia won psychological warfare since March 2013.
+
+https://old.reddit.com/r/pics/comments/1qezmw6/chaos_in_north_minneapolis_after_federal_agent/o01b5dz/
+
+Surkov students have done their job! 
+
+* Published January 2015, before Trump started run for office in June 2015: https://www.Politico.com/magazine/story/2015/01/putin-russia-tv-113960/ At one end of the table sat one of the country’s most famous political TV presenters. He was small and spoke fast, with a smoky voice: “We all know there will be no real politics,” he said. “But we still have to give our viewers the sense something is happening. They need to be kept entertained.” “So what should we play with?” he asked. “Shall we attack oligarchs? Who’s the enemy this week? **Politics has got to feel like a movie!**”
