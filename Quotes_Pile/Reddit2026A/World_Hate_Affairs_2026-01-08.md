@@ -1120,3 +1120,12 @@ https://old.reddit.com/r/TikTokCringe/comments/1qfe9sy/about_freedom_in_america_
 People can not grasp and read year 1776 language of English. People can't even read nonfiction books anymore. I mean all ages, even elderly Baby Boomers are sucking down so much HDTV.
 
 * "But in Huxley's vision, no Big Brother is required to deprive people of their autonomy, maturity and history. As he saw it, people will come to love their oppression, to adore **the technologies** that undo their capacities to think. What Orwell feared were those who would ban books. What Huxley feared was that there would be **no reason to ban a book, for there would be no one who wanted to read one**. Orwell feared those who would deprive us of information. Huxley feared those who would give us so much that we would be reduced to passivity and egoism. Orwell feared that the truth would be concealed from us. Huxley feared the truth would be **drowned in a sea of irrelevance**. Orwell feared we would become a captive culture. Huxley feared we would become a trivial culture"; "This book is about the possibility that Huxley, not Orwell, was right.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qfky6o/mark_carney_states_canada_will_go_to_war_with_the/o05zobw/
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qfky6o/mark_carney_states_canada_will_go_to_war_with_the/o05kx6w/
+
+Unite against machine-logic polarity of *us vs. them*. Unite against Elon Musk Twitter-length commenting on Reddit. Unite against simplistic shallow anti-education anti-teaching mindsets. Canadian Marshall McLuhan books from 1960's can turn the USA anti-understanding crisis around.
+
+* "In the information age it is obviously possible to decimate populations by the dissemination of information and gimmickry. There is no question here of values. It is simple information technology being used by one community to reshape another one. It is this type of aggression that we exert on our own youngsters in what we call "education." We simply impose upon them the patterns that we find convenient to ourselves and consistent with the available technologies." - War and Peace in the Global Village. Canadian Marshall McLuhan. University of Toronto. Year 1968. Page 149.
+
