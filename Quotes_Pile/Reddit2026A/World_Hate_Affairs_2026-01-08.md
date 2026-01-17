@@ -976,3 +976,18 @@ https://old.reddit.com/r/europe/comments/1qeg8be/only_16_of_eu_citizens_now_cons
 https://old.reddit.com/r/europe/comments/1qeg8be/only_16_of_eu_citizens_now_consider_the_us_an/nzz4evi/
 
 https://old.reddit.com/r/europe/comments/1qeg8be/only_16_of_eu_citizens_now_consider_the_us_an/nzxhko7/
+
+https://old.reddit.com/r/europe/comments/1qek5r5/trump_says_he_may_punish_countries_with_tariffs/nzz86nj/
+
+https://old.reddit.com/r/europe/comments/1qek5r5/trump_says_he_may_punish_countries_with_tariffs/nzy4982/
+
+https://old.reddit.com/r/europe/comments/1qek5r5/trump_says_he_may_punish_countries_with_tariffs/nzy3ac9/
+
+https://old.reddit.com/r/europe/comments/1qek5r5/trump_says_he_may_punish_countries_with_tariffs/nzyi4pd/
+
+https://old.reddit.com/r/europe/comments/1qek5r5/trump_says_he_may_punish_countries_with_tariffs/nzy8in4/
+
+https://old.reddit.com/r/europe/comments/1qek5r5/trump_says_he_may_punish_countries_with_tariffs/nzy8jdd/
+
+https://old.reddit.com/r/europe/comments/1qek5r5/trump_says_he_may_punish_countries_with_tariffs/nzy6g3o/
+
