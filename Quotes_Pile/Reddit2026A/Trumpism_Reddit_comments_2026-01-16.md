@@ -38,3 +38,12 @@ https://old.reddit.com/r/ProgressiveHQ/comments/1qf240e/sources_confirm_the_us_h
 
 One of the reply messages to this comment says "insane".
 
+https://old.reddit.com/r/politics/comments/1qf53t3/doctor_claims_trump_79_suffered_serious_medical/o02k0a2/
+
+Yes. The audience of Trump, the fandom of Trump, is all complicity and enabling. Instead of halting all the bullshit social media snark and asserting Dr. Bandy X Lee since October 3, 2017 publication of her book. It is not difficult or time consuming to repeat quotes from a nonfiction book. But people are so addicted to the constant simulation of antics from Trump that they are not only avoiding seriously standing up to take on the media addiction problems of the Fox News HDTV audience... but outright addicted to the billionaire media machines delivering the *breaking news* of every Trump public antic.
+
+Trump is a media addict leading a nation of high-speed information addicts. Engagement, influencer, influencing a population that prizes notification and commenting. Hate messaging Trump is the Reddit audience engagement. The addiction to Trump being on camera and quoted in the media is a bi-directional relationship.
+
+https://old.reddit.com/r/politics/comments/1qf53t3/doctor_claims_trump_79_suffered_serious_medical/o02avf2/
+
+Fandom discusses this all in a casual style. This is a documented PUBLIC figure. This isn't your buddy woo works at the grocery store or gas station. This is a man at the center of attention of thousands of books. But on Reddit, the tone is casual and Twitter-like now. No link to any book, no author name, no call to organize and remove Trump. It is as if sports fans are talking about a injury of one of their entertaining sports stars and how it might impact next moth's playoffs. If anything, sports fandoms can be MORE SERIOUS about citing sources and serious analysis than We The People are about world affairs lead by Trump's White House.
