@@ -629,5 +629,4 @@ Social post { https://autistics.life/@RoundSparrow/115912409658752057 https://bs
 
 https://old.reddit.com/r/memzy/comments/1qd6u94/its_not_complex_sane_people_knows_it/nzxj7vd/
 
-This Reddit user made a great comment last year, year 2025, wanted to grab one of their most recent.
-
+This [Reddit user made a great comment last year, July 2025 about Brain Rot that echos Ted K quote from year 2015](/Grim_Blunt/Hate_Itself/Prizing_Hate_Values.md#someone-else-said-it-july-2025), wanted to grab one of their most recent.
