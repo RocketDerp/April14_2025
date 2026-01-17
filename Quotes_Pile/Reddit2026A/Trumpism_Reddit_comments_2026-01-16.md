@@ -21,3 +21,20 @@ DEAR REDDIT COMMUNITY: Please help. If there were a dirty dozen reflections of a
 https://old.reddit.com/r/Fauxmoi/comments/1qeg8qx/rogan_a_man_brought_here_as_a_baby_lived_in_the/nzxgyyh/
 
 Yes. And we need to reform { Fox News HDTV media audience, Facebook media audience, Twitter Musk media audience, Newsmax HDTV media audience, Sinclair Media audience, Joe Rogan media audience, Truth Social media audience, Russia Today media audience, Church Bible media audience, Breaking Bad media audience }. Teaching Marshall McLuhan and Neil Postman to ALL audiences is a huge part of We The People being rescued from Trumpism mindsets.
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qf240e/sources_confirm_the_us_house_and_senate_now_have/o01pmht/
+
+Top voted-comment on posting of Reddit front page. Snark, sarcasm, satire. War with NATO given the Elon Musk Tweet-length billionaire Musk twitter-thinking treatment. A short message that prizes Truth Social and Twitter style of "engagement questions" that are so popular. 
+
+The same Reddit audience will claim that reporters and journalists don't ask "hard questions" or assert important topics when also making money engaging the very same audience (We The People, the citizens). There is no public cry for change in direction. No call for honest and sincere leadership. If anything, given how long Trump has lead the nation with snark and mockery, this message is **cal for* more of the same. TEN YEARS AN SEVEN MONTHS, 3,868 days fucking days of social media users treating USA government as the most entertaining jokes and media addiction.
+
+Putin and Trump create { absurd comedy situations, surreal comedy, contradictory Vaudeville, wild and crazy antics, self-harm promises and actions to USA, a joke of USA } and social media audiences are ready at any time to amplify and add to the tone of mocking / mockery / anti-serious / anti-learning / anti-teaching. AND, blame "The Media" for not standing up to Trump -when it is indeed ***We The People** who prize trash commenting "just asking questions" engagement mind-exploitation. 
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qf240e/sources_confirm_the_us_house_and_senate_now_have/o01sq7y/
+
+3 month Reddit account. Incredibly popular comment. Mocking, question. Reddit is the place where serious people think an ocean of shit commenting is good if they can find 2 or 3 edible corn kernels in the turd pile. The bar of "resisting" on social media is to be snark, which is exactly what MAGA runs the nation with. An attitude that MAGA is in on a secret joke an the out-groups (non-MAGA) don't "get the joke" of how rewarding it is to be stupid, dumb, and hate-filled.
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qf240e/sources_confirm_the_us_house_and_senate_now_have/o01tr4n/
+
+One of the reply messages to this comment says "insane".
+
