@@ -32,7 +32,7 @@ Pattern:
 
 **My ex, my ex-spouse, my ex-wife, my ex-husband, I hate them more than any other person in the entire world! More than Putin, I hate my ex, more than Hitler, I hate my ex**
 
-I have witnessed this behavior and attitude and prize of hate, the prizing of hate, over and over and over since year 1982. 
+I have witnessed this behavior and attitude and prize of hate, the prizing of hate, over and over and over since year 1982.
 
 The people that they CHOOSE, FREELY CHOOSE, to love - is the person they detest / hate / mock/ insult / despise more than any other human out of 8 billion on Earth.
 
@@ -68,7 +68,7 @@ Russia has mastered manipulating minds to be anti-reality, detached from reality
 
 I moved to the Middle East during the Arab Spring to study media ecology and religion vs. religion conflicts.
 
-Oh boy, on my, what a fucking nightmare. People who have never met each other who trust messages and stories from religion clergy who HATE with the deepest faith in HATE, people they have neve met in person.
+Oh boy, on my, what a fucking nightmare. People who have never met each other who trust messages and stories from religion clergy who HATE with the deepest faith in HATE, people they have never met in person.
 
 Plenty to write on this subject.
 
@@ -82,12 +82,12 @@ Living in United States of America year 2025.
 
 Are people enjoying hate? Why do they continue hate when living in hate? Why is hate Prized?
 
-I think people don't understand love, do not comprehend compassion, that people have not expereinced or grasped what they have experienced. That's at the heart of this page's intended expansion / further writing.
+I think people don't understand love, do not comprehend compassion, that people have not experienced or grasped what they have experienced. That's at the heart of this page's intended expansion / further writing.
 
 Why do people prize hate? They don't comprehend love and compassion.   
 People die for hate, war is death in service to hate. War killings, war deaths, military killings, military deaths, are surely not in service to compassion and love.   
-The wild idea that you love your family by going across the world to kill members of another family you never met. Even airplane pilots dropping bombs on members of families they can't even recognize from high altittue of air flight.... etc, etc, etc.   
-Writing this shit is shit itself. But in this is why the uSA worhips and prizes the Hate of Donlad Trump / MAGA / Rupert Murdoch / Putin in year 2025.
+The wild idea that you love your family by going across the world to kill members of another family you never met. Even airplane pilots dropping bombs on members of families they can't even recognize from high altitude of air flight.... etc, etc, etc.   
+Writing this shit is shit itself. But in this is why the USA worships and prizes the Hate of Donald Trump / MAGA / Rupert Murdoch / Putin in year 2025.
 
 &nbsp;
 
@@ -133,4 +133,29 @@ Face up to gullibility - what do you think is autistic life expectancy when hate
 I have autism. Born Columbus Georgia. October 7, 1969
 "I have hours only lonely. My love is vengeance that is never free"!!!
 
+&nbsp;
+
+&nbsp;
+
+# Someone else said it July 2025
+
+In July 2025, other than my shitty authored words:
+
+https://old.reddit.com/r/WaitThatsInteresting/comments/1ltygur/this_is_crazy/n1v103k/    
+
+<img width="1098" height="962" alt="image" src="https://github.com/user-attachments/assets/3b2977c6-493f-4206-b6de-2f46edce9ff7" />
+
+&nbsp;
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3ltfsuouotc24 https://autistics.life/@RoundSparrow/115912480941986473 }
+
+"FailosoRaptor 3 points 2 hours ago
+
+Brainrot. He has lost the plot. These people are all the same. Left, right, whatever. Doesn't matter. Social media broke their brain. It's going to be even more broken after Al.
+
+There's no way social media isn't incredibly toxic to our general health. I lost family to both spectrums now. One went so far left you can't speak to her unless you completely accept her boundaries of never being criticized and constantly weaponizing therapy speech. And my uncle went completely in the MAGA verse and thinks Trump will somehow change reality.
+
+I'm not letting my kids use social media. It's cancer."
+
+* IT SEEMS REDDIT OWNERS / PLATFORM now removes comments entirely if a subreddit is banned for being unmoderated? I found the user's profile of July 2025 postings... but can't find the message even on their profile! What shit. https://old.reddit.com/user/FailosoRaptor?count=275&after=t1_n2kxdg6 ... 3:17 PM · Jul 7, 2025 was Bluesky screenshot timestamp (USA west coast time zone)  
 
