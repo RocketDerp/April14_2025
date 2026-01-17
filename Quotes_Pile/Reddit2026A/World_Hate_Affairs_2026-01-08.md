@@ -1054,3 +1054,11 @@ https://old.reddit.com/r/europe/comments/1qfisui/trump_tariffs_us_president_anno
 "Insanity", mental health words. Reddit audience programmed to do ANYTHING but quote nonfiction books on group mental health. Mob mentality / mass man / mass psychosis teachings.
 
 * “In Donald Trump, we have a frightening Venn diagram consisting of three circles: the first is extreme present hedonism; the second, narcissism; and the third, **bullying behavior.** These three circles overlap in the middle to create an impulsive, immature, incompetent person who, when in the position of ultimate power, easily slides into the role of tyrant, complete with family members sitting at his proverbial “ruling table.” Like a fledgling dictator, he plants psychological seeds of treachery in **sections of our population that reinforce already negative attitudes**.” ― Bandy X Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. October 3, 2017. Page 44.](https://books.google.com/books?id=g0c4DwAAQBAJ&pg=PA44&dq=%22immature,+incompetent+person+who,+when+in+the+position+of+ultimate+power,+easily+slides+into+the+role+of+tyrant%22&hl=en&newbks=1&newbks_redir=1&sa=X)
+
+https://old.reddit.com/r/europe/comments/1qfisui/trump_tariffs_us_president_announces_plan_to_hit/o04wws8/
+
+https://old.reddit.com/r/europe/comments/1qfisui/trump_tariffs_us_president_announces_plan_to_hit/o050oxp/
+
+Canadian Reddit user, anti-McLuhan messaging. Joining in (and actively promoting) the Trump fandom of mockery and mocking. Anything but turn to serious nonfiction book learning. The Reddit audience screen game of worshiping that Trump provides such a *Celebration of Ignorance* that everyone can be amused at: the Putin and Trump pairing against EU.
+
+* "Games are fashions in the same way as clothes because they involve the sensory life of **a society in a mocking and fictitious way**. To simulate one situation by means of another one, to **turn the whole working environment into a small** model, is a means of perception and control by means of public ritual. The **audience as participants*** is indispensable to most games." - [War and Peace in the Global Village. Year 1968. Page 168](/Art/ScreenPlay/All_Say/All_Say_Mocking.md#all-war-and-peace-in-the-global-village). University of Toronto. Professor Marshall McLuhan.
