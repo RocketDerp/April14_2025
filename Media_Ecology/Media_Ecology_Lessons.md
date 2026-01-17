@@ -1648,5 +1648,4 @@ https://old.reddit.com/r/movies/comments/1qfmjhd/matt_damon_says_netflix_wants_m
 
 *Restate*, verbally, because eyes are on animations of other content, { memes images animations }.
 
-* "An oral or tribal society has the means of stability far beyond anything possible to a visual or civilized and fragmented world. The oral and auditory are structured by a total and simultaneous
-field of relations describable as "acoustic space." Quite different is the visual world where special goals and points of view are natural and inevitable." - War and Peace in the Global Village. Year 1968. Page 23.
+* "An oral or tribal society has the means of stability far beyond anything possible to a visual or civilized and fragmented world. The oral and auditory are structured by a total and simultaneous field of relations describable as "acoustic space." Quite different is the visual world where special goals and points of view are natural and inevitable." - War and Peace in the Global Village. Year 1968. Page 23.
