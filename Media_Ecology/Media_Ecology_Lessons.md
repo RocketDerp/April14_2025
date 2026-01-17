@@ -1636,3 +1636,12 @@ https://www.youtube.com/watch?v=j_eAYGI80HY
 https://old.reddit.com/r/CuratedTumblr/comments/1qcxeyn/the_mandela_effect/
 
 Yes. It is denial of how people around you have exploitable patterns of bewilderment and confusion. It is to deny the known problems of the human mind / brain hardware to invent magical interpretations. Magical thinking.
+
+&nbsp;
+
+# Directing to Actors for year 2026
+
+Year 2026 audience media ecology; behind the scenes of directing   
+
+"Matt Damon Says Netflix Wants Movies to Restate the Plot Three or Four Times in the Dialogue Because Viewers are on Their Phones While They’re Watching"    
+https://old.reddit.com/r/movies/comments/1qfmjhd/matt_damon_says_netflix_wants_movies_to_restate/
