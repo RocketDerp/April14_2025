@@ -38,3 +38,10 @@ https://en.wikipedia.org/w/index.php?title=War_and_Peace_in_the_Global_Village&d
 Revision as of 16:30, 17 January 2026    
 
 I made several more edits to expand and improve the section after that first edit.
+
+## Social Posts 
+
+https://bsky.app/profile/roundsparrow.bsky.social/post/3mcn3bsfoms2h      
+https://autistics.life/@RoundSparrow/115911479350913940    
+
+New Hashtag: **#GlobalVillageOpera** https://bsky.app/hashtag/GlobalVillageOpera    
