@@ -655,3 +655,28 @@ https://old.reddit.com/r/ProgressiveHQ/comments/1qfky6o/mark_carney_states_canad
 
 5-month Reddit account meaningless wrapping "wake up", but not citing any off-Reddit context of EXACTLY WHAT to "wake up" to. Canadian Marshall McLuhan's 1960's writings about James Joyce's "Wake" book. This is Reddit audience mind-fuck that Reddit is "media woke", when it is anything but awake at the James Joyce level of comprehension to media ecology.
 
+https://old.reddit.com/r/worldnews/comments/1qfj3m4/trump_is_making_china_not_america_great_again/o04z06s/
+
+https://old.reddit.com/r/worldnews/comments/1qfj3m4/trump_is_making_china_not_america_great_again/o055bis/
+
+https://old.reddit.com/r/worldnews/comments/1qfj3m4/trump_is_making_china_not_america_great_again/o0521zf/
+
+3 week Reddit account.
+
+https://old.reddit.com/r/worldnews/comments/1qfj3m4/trump_is_making_china_not_america_great_again/o05giih/
+
+Twitter-length banal messaging of serious topic. Feeding the shallowness of learning Surkov techniques.
+
+https://old.reddit.com/r/worldnews/comments/1qfj3m4/trump_is_making_china_not_america_great_again/o05291n/
+
+Deceased / diseased. Finnegans Wake Funeral Ritual, Fall page 3.
+
+https://old.reddit.com/r/worldnews/comments/1qfj3m4/trump_is_making_china_not_america_great_again/o056bna/
+
+https://old.reddit.com/r/worldnews/comments/1qfj3m4/trump_is_making_china_not_america_great_again/o067xy1/
+
+1980's movies, fiction. Fiction addiction to Reddit commenting and Fox News HDTV content...
+
+https://old.reddit.com/r/worldnews/comments/1qfj3m4/trump_is_making_china_not_america_great_again/o05c3ph/
+
+Slogans and meme-think. Twitter-thinking.
