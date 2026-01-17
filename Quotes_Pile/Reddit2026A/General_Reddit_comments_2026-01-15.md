@@ -480,3 +480,69 @@ Lots of replies about "Crazy" in this thread.
 https://old.reddit.com/r/politics/comments/1qekizq/were_nearing_the_day_when_ice_thugs_just_open/nzzqji3/
 
 Nation that has "lost mind". People on social media are not asserting and calling for people to follow Dr. Bandy X Lee's leadership. Education is not being shared, such as  https://www.youtube.com/watch?v=09maaUaRT4M&t=743s "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL"
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qeu2vq/wheres_the_outrage/o00kqyv/
+
+November 2026 election predictions are being made in the reply comment tree. As for the Reddit posting Title... we do not need **more rage and outrage**. We need people to be serious, organized, refining data in Wiki and FAQ style. I've tried to describe the need in my [Brainrot Society 47 documents](/PostMalala/Assert_Malala/Brainrot_Society_47.md). There needs to be a "top 13" list of issues We The People should try to focus on; keep the eye on the ball.
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qeu2vq/wheres_the_outrage/o00fu3a/
+
+https://old.reddit.com/r/politics/comments/1qewwes/grow_a_fcking_spine_critics_fume_as_newsom/o00qu3d/
+
+https://old.reddit.com/r/politics/comments/1qewwes/grow_a_fcking_spine_critics_fume_as_newsom/o00xk85/
+
+https://old.reddit.com/r/politics/comments/1qewwes/grow_a_fcking_spine_critics_fume_as_newsom/o00qjo9/
+
+https://old.reddit.com/r/politics/comments/1qewwes/grow_a_fcking_spine_critics_fume_as_newsom/o00zcuh/
+
+https://old.reddit.com/r/politics/comments/1qem1k3/majority_of_americans_call_trumps_first_year_back/nzydohp/
+
+https://old.reddit.com/r/politics/comments/1qem1k3/majority_of_americans_call_trumps_first_year_back/nzyeyp6/
+
+https://old.reddit.com/r/politics/comments/1qem1k3/majority_of_americans_call_trumps_first_year_back/nzyd70r/
+
+Newly created Reddit account. "Crazy"
+
+https://old.reddit.com/r/politics/comments/1qem1k3/majority_of_americans_call_trumps_first_year_back/nzyk9mq/
+
+Stress lording, [rule by stress. Mass man brain damage. PTSD / CPTSD.](/Media_Ecology/PTSD_CPTSD_from_Donald_Trump.md)
+
+https://old.reddit.com/r/politics/comments/1qem1k3/majority_of_americans_call_trumps_first_year_back/nzyjsit/
+
+5 month old Reddit account. "brain damage"
+
+https://old.reddit.com/r/politics/comments/1qel5ym/pritzker_likens_trumps_america_to_the_early_days/nzy6n1s/
+
+3 month old Reddit account. Top-voted popular comment.
+
+https://old.reddit.com/r/politics/comments/1qel5ym/pritzker_likens_trumps_america_to_the_early_days/nzy8m2t/
+
+Joke-washing, amusement-washing. Humor-washing, comedy wrapping. Neil Postman's 1985 book is essential comprehension of second term POTUS. Trump is exploiting the meme addict society.  September 10, 2025 https://Time.com/7313999/neil-postman-trump-prediction/
+
+https://old.reddit.com/r/politics/comments/1qel5ym/pritzker_likens_trumps_america_to_the_early_days/nzya89u/
+
+There has been no social media uprising. Nobody can point to the serious We The People using social media to LEAD "The Media". No social media blackout. [CLICK HERE: Stop All Entertainment, Be Serious idea.](/Grim_Blunt/Stop_All_Entertainment.md)
+
+https://old.reddit.com/r/politics/comments/1qel5ym/pritzker_likens_trumps_america_to_the_early_days/nzysbg7/
+
+Note the absence of off-Reddit URL, no book title, no author names. Reddit society unable to engage and comprehend and understand off-Reddit... September 9, 2014: https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/politics/comments/1qef64z/bakery_owner_facing_death_threats_over_antiice/nzwvrsy/
+
+https://old.reddit.com/r/politics/comments/1qef64z/bakery_owner_facing_death_threats_over_antiice/nzwxetu/
+
+We have been in that era since year 2013. And it was described in year 1993 (if not earlier):
+
+* "When we are less important than a Nintendo we get confused. That’s when we start thinking that we are under siege. It’s when Billy says “Oh yes, you can kill mum and dad but leave the Nintendo”, then we are rightfully upset. The postmodern trajectory **leaves us in a situation where drawing the line between the real and the unreal is no longer merely philosophical but a practical day-to-day issue**. See, this is what I want to drive home. We are not off in some fairy land, this is a practical day-to-day issue of figuring out what’s a simulation and what’s not. Is **this guy really an insurance salesman or is he here to rob me**? You know, I mean… this is no longer Cartesian doubt that one has to conjure up in a meditation. **This is a wide radical doubt about the very ground beneath our feet and the nature of whether it’s real** or not." - Duke University, Texan Rick Roderick. https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
+
+https://old.reddit.com/r/politics/comments/1qemitw/at_the_root_of_all_our_problems_stands_one/nzyh5dv/
+
+And billionaires have focused on media systems. When the richest person in the world purchased Twitter, people mocked about the financial cost and loss. The mindshare, the ability to program minds in the population, was far greater. Reddit front page has Twitter content very hour. Generative Artificial Intelligence systems are billionaires way to do 24 hours a day what previous labor could not do, addicted audiences to their services even more. We The People are driven by ENTERTAINMENT, FICTION STORYTELLING, above all else. The Fox News HDTV audience addiction to ENTERTAINMENT mocking has solidified. Fiction storytelling by Rupert Murdoch, Elon Musk Twitter, Truth Social Trump, etc.
+
+https://old.reddit.com/r/politics/comments/1qemitw/at_the_root_of_all_our_problems_stands_one/nzyiv4l/
+
+I worked in *digital social media* ... Bellevue Washington for the richest people in the entire world in the 1990's. That is why I put so much effort and attempt / trial into this GitHub. People do not recognize how much media assets capture minds of audiences. Surkov won!
+
+https://old.reddit.com/r/politics/comments/1qemitw/at_the_root_of_all_our_problems_stands_one/nzyi0av/
+
+And campaigns have [gone to doctors of Cambridge Analytica to use military techniques](../Cambridge_Analytica_Quotes.md).
