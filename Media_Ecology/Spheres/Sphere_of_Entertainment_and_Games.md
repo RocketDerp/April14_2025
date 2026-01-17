@@ -1,6 +1,6 @@
 # Sphere of Entertainment and Games
 
-"Such customs and usages, of course, are always past-oriented and the new technologies are necessarily excluded from the educational establishment until the elders have relinquished power. This, of course, leaves the new technologies entirely in the **sphere of entertainment and games**: "Wipe your sinses with what you know."    
+Quote ::: Such customs and usages, of course, are always past-oriented and the new technologies are necessarily excluded from the educational establishment until the elders have relinquished power. This, of course, leaves the new technologies entirely in the **sphere of entertainment and games**: "Wipe your sinses with what you know." :::   
 War And Peace In The Global Village    
 Year 1968   
 Page 149    
