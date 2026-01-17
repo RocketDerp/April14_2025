@@ -60,3 +60,8 @@ https://old.reddit.com/r/worldnews/comments/1qfhy7u/trump_says_8_european_countr
 
 Fandom of Trump and MAGA entertainment, with "LOL" opening of the message. Thrilled to view this all as a screen game, interactive fiction. Trump fandom. Note the age of the Reddit account; only a few months old to jump on the USA total mockery media enviornment of Reddit commenting.
 
+https://old.reddit.com/r/europe/comments/1qfisui/trump_tariffs_us_president_announces_plan_to_hit/o04wcof/
+
+Trump fandom messaging. Everything is baby-talk and join in with Trump's style of total mockery media environment of Truth Social mocking platform. Compulsive behavior. A population of touch-device addicts who can't resist following the Trump leadership, cult of Trump content and language. Media cult.
+
+* “When a population becomes distracted by trivia, when cultural life is redefined as a perpetual round of entertainments, when **serious public conversation becomes a form of baby-talk**, when, in short, a people become an audience, and their public business a vaudeville act, then a nation finds itself at risk” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business
