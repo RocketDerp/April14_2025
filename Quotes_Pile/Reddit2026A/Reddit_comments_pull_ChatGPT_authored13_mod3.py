@@ -43,6 +43,18 @@ age18_count = 0
 args = {}
 
 
+# agenda here is to not need global in every function
+# ToDo: utiize this code. Here to note future rework
+def increment_error_for(error_index):
+    global error_count_b
+    global error_fetch_count
+    global error_parse_a_count
+
+    # ToDo: a switch case or even use an array instead of unique variables?
+    # ToDo: remove the globals in the functions and call this
+
+
+
 def live_fetch_error(res, call_spot):
     exitcode = 0
     
