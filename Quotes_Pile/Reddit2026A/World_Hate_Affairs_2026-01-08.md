@@ -1021,3 +1021,16 @@ Meme addiction has wrecked the nation. People are all meme parroting away on DIF
 
 
 Social post { https://autistics.life/@RoundSparrow/115911048045483019 https://bsky.app/profile/roundsparrow.bsky.social/post/3mcmv3kavh22j }
+
+
+https://old.reddit.com/r/worldnews/comments/1qfhy7u/trump_says_8_european_countries_will_be_charged_a/o04qmjc/
+
+https://old.reddit.com/r/worldnews/comments/1qfhy7u/trump_says_8_european_countries_will_be_charged_a/o04sozx/
+
+https://old.reddit.com/r/worldnews/comments/1qfhy7u/trump_says_8_european_countries_will_be_charged_a/o04pz98/
+
+https://old.reddit.com/r/worldnews/comments/1qfhy7u/trump_says_8_european_countries_will_be_charged_a/o04r43y/
+
+Social media is *the new media*. Shit-posting social content has wrecked the nation. People are doing everything they can to avoid asserting and dusting off Marshall McLuhan's 1960's self-awareness lessons / teachings. Social posting on Truth Social is the role model for attitudes and mindsets. 
+
+* Truth Social is *the new media system, anti-truth, bullshit prizing*... "The pain caused by new media and new technologies tends very much to fall into the category of 'referred pain,' such as skin trouble caused by the appendix or the heart. As with all new technologies, pain creates a special form of space, just as they also create pain. It's very much a case again of Heinrich Hertz' law: "The consequences of the images will be the images of the consequences." All new technologies bring on the cultural blues, just as the old ones evoke phantom pain after they have disappeared. ::: - [Page 16. 1968 book, "War And Peace in the Global Village", University of Toronto](../Specific/McLuhan_Pain_Cased_by_New_Media.md)
