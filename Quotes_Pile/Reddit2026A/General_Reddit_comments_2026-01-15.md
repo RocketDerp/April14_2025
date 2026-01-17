@@ -651,3 +651,7 @@ https://old.reddit.com/r/movies/comments/1qfmjhd/matt_damon_says_netflix_wants_m
 
 See replies too.
 
+https://old.reddit.com/r/ProgressiveHQ/comments/1qfky6o/mark_carney_states_canada_will_go_to_war_with_the/o05vxqw/
+
+5-month Reddit account meaningless wrapping "wake up", but not citing any off-Reddit context of EXACTLY WHAT to "wake up" to. Canadian Marshall McLuhan's 1960's writings about James Joyce's "Wake" book. This is Reddit audience mind-fuck that Reddit is "media woke", when it is anything but awake at the James Joyce level of comprehension to media ecology.
+
