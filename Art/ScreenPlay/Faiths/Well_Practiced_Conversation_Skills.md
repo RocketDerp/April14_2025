@@ -6,7 +6,7 @@ Well practiced mocking skills, getting intelligent discourse shut down.
 
 
 * "Finding the occasional straw of truth awash in a great ocean of confusion and bamboozle requires vigilance, dedication and courage. But if we don’t practice these tough habits of thought, we cannot hope to solve the truly serious problems that face us and we risk becoming a nation of suckers" ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995, page 38
-* 
+
 &nbsp;
 
 # It work!
