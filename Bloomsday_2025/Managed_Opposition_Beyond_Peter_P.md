@@ -9,7 +9,7 @@ Augmenting the writings of Peter Pomerantsev
 
 &nbsp;
 
-Peter Pomerantsev, Nothing Is True and Everything Is Possible: The Surreal Heart of the New Russia book readingreference, 334 seconds into video
+Peter Pomerantsev, Nothing Is True and Everything Is Possible: The Surreal Heart of the New Russia book reading reference, 334 seconds into video
 
 https://youtu.be/5Au332OG-M4?t=334
 
