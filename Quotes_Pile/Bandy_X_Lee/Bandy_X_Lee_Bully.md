@@ -4,6 +4,8 @@
 
 &nbsp;
 
+## Not Just Journalists
+
 "It was not just journalists who heard Trump’s statement in these terms: “The former head of the CIA, retired Gen. Michael Hayden, told CNN’s Jake Tapper, ‘If someone else had said that outside the hall, he’d be in the back of a police wagon now with the Secret Service questioning him’” (Diamond and Collinson 2016). It is true also for medical and mental health professionals: if a patient had said that, an emergency certificate would have been signed, and the person taken to the nearest emergency room for further questioning and evaluation.
 
 Trump has said that he did not mean the statement the way it sounded. A common explanation by his defenders of aggressive and untoward remarks made by him in public settings is that what he said was a joke. This in no way discounts the dangerousness of his remark. In fact, his deeming the remark so lightly as to consider that it could be a joke would in itself be concerning. Moreover, his holding life-and-death matters themselves to be inconsequential may indicate serious pathology and risk—which cannot fully be ruled out without a detailed examination. This statement, in this context, exemplifies the “willingness to violate others” and the lack of empathy that characterize antisocial personality disorder (American Psychiatric Association 2016, pp. 659–60). In modern history, no other candidate for president of the United States has joked about his followers murdering his opponent."
