@@ -194,3 +194,6 @@ https://old.reddit.com/r/law/comments/1qgf309/noem_says_70_in_custody_have_charg
 
 And no White House has EVER had so much media audience. Audience participation, right on Reddit, Bluesky, Twitter, etc. The entire world media systems prize every fiction story out of the White House. We are dealing with a World Wide Web of media addiction to *fiction* crisis. People are in no way self-aware of heir compulsive behavior to avoid nonfiction since the Internet Research Agency and Cambridge Analytica mind-fucked everyone starting in late year 2012. ["Operation Matthew 4:19 trolling" of audiences by Kremlin](/Operation_Matthew_4_19_on_monday_2024-03-31.md). The University of Toronto teachings by Marshall McLuhan are NO LONGER OPTIONAL!!! Putin has mind-fucked everyone!
 
+https://old.reddit.com/r/pics/comments/1qgja2p/no_ones_looking_rubio/o0cp8jd/
+
+What's gong on here is a fake image. A cult of Trump facial and body images on Reddit. Fright to the top of the front page very quickly. Sexual fake images of Trump. The "Q" PizzaGate sex content audiences, Epstein sex fandom of Trump and other leaders. Entertainment culture USA, Reddit audience. Celebrity TV famous icons doing sex acts on camera, no matter how old.
