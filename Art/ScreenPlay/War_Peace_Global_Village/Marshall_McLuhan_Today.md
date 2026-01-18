@@ -31,3 +31,15 @@ packaging of familiar views. A person engaged in exposition has nothing new to s
 he cannot communicate the effects of participating in the process of discovery (McLuhan
 1970).
 
+...
+
+...
+
+McLuhan biographer Coupland (2010, p. 187) argued that rather than overlooking political and
+economic forces that McLuhan actually presaged the profound changes that took place long after
+his passing.
+
+McLuhan‘s writing was profoundly political…the changes he foretold weren‘t
+overnight phenomena. They were about changes in cognition, cultural shifts that
+would cause shifts in the evolution of humankind…such events as the collapse of
+communism and the \[emergence of\] jihad.
