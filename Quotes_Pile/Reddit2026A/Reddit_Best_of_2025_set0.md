@@ -19,6 +19,7 @@ This Reddit comment:
 
 &nbsp;
 
+There also seems to be a real attraction to older age at play. Old leaders being prized as statesmen.
 
 * "Kamala Harris was born on October 20, 1964, and as of her birthday in 2025, she is 61 years old. Dr. Bandy X. Lee was born on May 27, 1970, making her approximately 55 years old as of early 2026. Therefore, Kamala Harris is roughly 5 years and 7 months older than Dr. Bandy Lee." - Google Search summary 2026-01-19 afternoon USA
 
