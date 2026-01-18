@@ -163,3 +163,12 @@ https://old.reddit.com/r/LivestreamFail/comments/1qg2z6a/nick_fuentes_sneako_cla
 Yes. Exactly how Surkov governing works. **How Surkovian information warfare works on Reddit community**. Obvious symbolism / icon manipulation in front of the Reddit audience; Reddit meme addicts then make dumb jokes that are trivial and write... themselves. Audience in a joke stupor, meme stupor, over how obvious it all is under Kremlin media systems. Nobody turning to nonfiction books on paper and realizing that the joking via high-speed information systems is the very means of mind exploitation.
 
 * “Everything in our background has prepared us to know and resist a prison when the gates begin to close around us . . . But what if there are no cries of anguish to be heard? Who is prepared to take arms against a sea of amusements? To whom do we complain, and when, and in what tone of voice, when serious discourse dissolves into giggles? What is the antidote to a culture's being drained by laughter?” ― NYU (Trump home town) Neil Postman, [Amusing Ourselves to Death: Public Discourse in the Age of Show Business. Page 156.](https://books.google.com/books?id=oup6iagfox8C&pg=PA156&dq=%E2%80%9CEverything+in+our+background+has+prepared+us+to+know+and+resist+a+prison+when+the+gates+begin+to+close+around+us%22&hl=en&newbks=1&newbks_redir=1&sa=X)
+
+https://old.reddit.com/r/LivestreamFail/comments/1qg2z6a/nick_fuentes_sneako_clavicular_and_andrew_tate_at/o09dhsw/
+
+Not the MAGA reply message how all this is especially funny. Video / television content addicts amused and thrilled to have all this symbolism funny content! MAGA influencers provide from Florida what Reddit fandom desires!
+
+https://old.reddit.com/r/LivestreamFail/comments/1qg2z6a/nick_fuentes_sneako_clavicular_and_andrew_tate_at/o09diaa/
+
+Note the reply comment "zero self awareness". ANYTHING and EVERYTHING for media addicts to not face up to the media addiction to the song and being recorded and streamed from the nightclub. Reddit audience has ZERO self-awareness of their own media addiction to MAGA performance art, Surkov student screenplays. That Reality TV is *scripted* and *staged* with skilled actors / acting / performers / making profit $$$ / streamers / talented influencers / entertainers / surreal comedians. Reality TV MAGA is toxic popularity, ZERO SELF-AWARENESS of touch-device users on Reddit commenting media environment. SEE_ALSO https://Old.reddit.com/r/AskReddit/comments/15lro9/to_redditors_who_have_worked_in_reality_tv_how/
+
