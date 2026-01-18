@@ -67,7 +67,7 @@ https://old.reddit.com/r/TikTokCringe/comments/1qdflr2/why_isnt_anyone_speaking_
 
 High-speed media addiction t junk content. Prizing { hate, mocking, insulting, name-calling, domination, men defeating girls and women } is every area of society. Fox News has been on the air since October 7, 1996. This problem is an entire population that won't stop putting shit into their brains and stand up to the Anti-WIki anti-FAQ, anti-goodness attitudes.
 
-Since June 16, 2015... it never ends! Having to be immersed in non-stop fiction addicts, many who spread and smear anti-intellectual LOL shit about Trump, addiction to "orange skin" and "poop diapers" of Trump.. brain damaging all the time, every fucking day! The anti-goodness prizing of shit! Neil Postman's 1985 book describes social media hell society that thinks Trump is amusing entertainment! Meme addict society.  September 10, 2025 https://Time.com/7313999/neil-postman-trump-prediction/
+Since June 16, 2015... it never ends! Having to be immersed in non-stop fiction addicts, many who spread and smear anti-intellectual LOL shit about Trump, addiction to "orange skin" and "poop diapers" of Trump.. brain damaging all the time, every fucking day! The anti-goodness prizing of shit! Neil Postman's 1985 book describes social media Hell society that thinks Trump is amusing entertainment! Meme addict society.  September 10, 2025 https://Time.com/7313999/neil-postman-trump-prediction/
 
 https://old.reddit.com/r/TikTokCringe/comments/1qdflr2/why_isnt_anyone_speaking_up/nzpoirn/
 
@@ -770,3 +770,25 @@ People do not grasp or learn from nonfiction serious books. People do not unders
 https://old.reddit.com/r/ProgressiveHQ/comments/1qgaclu/i_wouldnt_believe_it_myself_if_i_wasnt_witnessing/o0az1qe/
 
 12 day Reddit account. Mocking away, mock mock mock via Reddit platform.
+
+https://old.reddit.com/r/PoliticalHumor/comments/1qg8d7f/putting_wheels_on_the_cross_to_make_it_easier_to/o0aevd0/
+
+https://old.reddit.com/r/worldnews/comments/1qg6wl6/macron_to_seek_use_of_eu_anticoercion_instrument/o0a3w9s/
+
+https://old.reddit.com/r/worldnews/comments/1qg6wl6/macron_to_seek_use_of_eu_anticoercion_instrument/o0afcpx/
+
+The addiction to commenting on high-speed time-based messaging platforms like Reddit drives the nation. A constant stimulation of Trump audiences to feed the addiction. Mental health of Trump is the topic, but observe the complete absence of citing Dr. Bandy X Lee's October 3, 2017 book... while people prize Reddit commenting instead of rallying around a leader, Dr. Lee, who has organized the case of Trump's mental health problems.
+
+https://old.reddit.com/r/worldnews/comments/1qg6wl6/macron_to_seek_use_of_eu_anticoercion_instrument/o0a4yc8/
+
+Deporting, blocking, banning, book burning, media platform burning. All Germany 1930's behaviors of magazine and book burning taken to the digital age. The media cult behaviors, the Twitter cult of fiction storytelling, is not addressed. Electric media system behaviors are not self-aware within the Twitter or Reddit audience, both of which have no-identity insincere content manipulators.
+
+Neil Postman's 1985 book describes social media Hell society that thinks Trump is amusing entertainment! Meme addict society.  September 10, 2025 https://Time.com/7313999/neil-postman-trump-prediction/
+
+https://old.reddit.com/r/worldnews/comments/1qg6wl6/macron_to_seek_use_of_eu_anticoercion_instrument/o0a2535/
+
+Yes. Apathy an inaction by Reddit users. Bluesky and Reddit users will not assert Dr. Bandy X Lee's nonfiction book. Instead, constantly fixating on dead man Epstein. Without dealing with the Kremlin cult / Putin cult of the population (and government, White House cult to Putin)... the abuse of young girls will not be treated as a serious topic. The "strong male leader" of Surkov monomyth manipulation of the executive function of minds... prizes abusing girls and women. Pussy Riot band from Russia has been spelling this out for a decade plus now.
+
+* "Pussy Riot came into the world stage in 2012 following their "Punk Prayer" performance in Moscow's Cathedral of Christ the Savior, which led to the arrest and imprisonment of several members. While the feminist punk protest group was founded in August 2011 and began performing guerrilla gigs in Moscow in late 2011, it was the international notoriety surrounding the February 2012 anti-Putin protest and subsequent trial that brought them global attention." - Google Search summary 2026-01-18 noonish USA
+
+There has been no social media uprising. The nation that created BBS social media, created TCP/IP, created the Internet can no longer imaging organizing a sustained protest movement VIA the Internet. Trump's rise to power in year 2012 was social media! Reference: July 6, 2011 https://theoutline.com/post/2445/trump-s-first-real-tweet-was-on-july-6-2011
