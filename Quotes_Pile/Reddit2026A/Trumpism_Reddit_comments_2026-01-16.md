@@ -86,3 +86,6 @@ https://old.reddit.com/r/comedyheaven/comments/1qfhgx1/milk/o04pu9k/
 
 YES! President Tony Clifton. NYC Trump NYC SNL Andy Kaufman screenplay and techniques. Reddit audiences eat up Trump's performance, play, theater methods.  The fandom of mocking, the crowds that are attracted to a mockery leader... are the very mechanism of power! Trump is DFW's Infinite Jest! Walking talking mocking bewildering Tony Clifton evolved performance artist. "The ART of the deal" is artistic Andy Kaufman realizations of status symbols, icons, and media. Trump is running circles around Reddit one-sentence learners.
 
+https://old.reddit.com/r/goodnews/comments/1qfsfad/demonstrators_in_nuuk_greenland_reach_the_area_in/o07by31/
+
+Trump fandom / Trump fanatic. Elon Musk Twitter platform commenting style on Reddit. Short-message to turn Trump into the master leader of BINGO card game. Everything is fun and games with Donald Trump as center of all USA media attention. Never boring content, always stimulating the Reddit audience. Messages designed to encourage audience to view Trump as always entertaining and engaging when it comes to video content and mockery.
