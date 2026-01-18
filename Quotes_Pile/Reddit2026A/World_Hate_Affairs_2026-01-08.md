@@ -1148,3 +1148,15 @@ https://old.reddit.com/r/worldnews/comments/1qg3ypf/leaders_of_france_uk_and_swe
 <img width="1012" height="865" alt="image" src="https://github.com/user-attachments/assets/2b4c020b-0c4c-4928-8fdd-6491b715521c" /> Loves it. Loves the Trump outcomes, Putin IRA outcomes. Loves it that USA is so ignorant and stupid about Russian information warfare since March 2013. Audience *Loves* how amusing and engaging it is on social systems to comment about the other comments and how ignorant everyone has become with meme systems.
 
 Social post { https://autistics.life/@RoundSparrow/115916427592958370 https://bsky.app/profile/roundsparrow.bsky.social/post/3mcpbjxhia22e }
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qg4d0g/copenhagen_denmark_total_unity_against_trump_and/o09w59y/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qg4d0g/copenhagen_denmark_total_unity_against_trump_and/o09o8s3/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qg4d0g/copenhagen_denmark_total_unity_against_trump_and/o09oon8/
+
+7 month account
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qg4d0g/copenhagen_denmark_total_unity_against_trump_and/o09txvw/
+
+1 month account
