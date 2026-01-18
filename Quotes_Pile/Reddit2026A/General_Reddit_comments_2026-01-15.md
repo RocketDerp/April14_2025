@@ -851,3 +851,36 @@ https://old.reddit.com/r/sports/comments/1qgm7ql/leave_greenland_alone_heckler_s
 ANSWER: No. Understanding and comprehension are the lowest they have been since the founding of the nation nearly 250 years ago. Anti-intellectual meme-lifestyle has taken over. People are entirely avoidant of nonfiction books on paper now. Only caring about the rapid commenting on high-speed meme systems.
 
 Social post { https://autistics.life/@RoundSparrow/115918608593167479 https://bsky.app/profile/roundsparrow.bsky.social/post/3mcqajybnlk27 }
+
+https://old.reddit.com/r/science/comments/1qgiwcm/younger_americans_have_grown_up_during_a_more/o0cnov2/
+
+Rupert Murdoch has been scamming and manipulating the less-educated rural population to trust Fox News since October 7, 1996. Anti-comprehension; wealth worship televangelism Fox News networks.
+
+https://old.reddit.com/r/science/comments/1qgiwcm/younger_americans_have_grown_up_during_a_more/o0cn9uc/
+
+https://old.reddit.com/r/science/comments/1qgiwcm/younger_americans_have_grown_up_during_a_more/o0cotwq/
+
+Health care stress lording.
+
+https://old.reddit.com/r/science/comments/1qgiwcm/younger_americans_have_grown_up_during_a_more/o0czkyq/
+
+What's gong on in USA. Reality itself. Fiction addictions to Fox News HDTV directing the nation. Elon Musk Twitter and Facebook anti-reality.
+
+https://old.reddit.com/r/science/comments/1qgiwcm/younger_americans_have_grown_up_during_a_more/o0cp8ed/
+
+Right vs. left brain-rot one-bit logic. Fiction vs. nonfiction exposes the Fox News problem, "Entertainment" SNL "Weekend Update" fiction is far more popular than nonfiction learning.
+
+https://old.reddit.com/r/science/comments/1qgiwcm/younger_americans_have_grown_up_during_a_more/o0d793a/
+
+https://old.reddit.com/r/science/comments/1qgiwcm/younger_americans_have_grown_up_during_a_more/o0croko/
+
+https://old.reddit.com/r/science/comments/1qgiwcm/younger_americans_have_grown_up_during_a_more/o0cnpqr/
+
+https://old.reddit.com/r/science/comments/1qgiwcm/younger_americans_have_grown_up_during_a_more/o0cqq92/
+
+Joke of Reddit commenting on the joke-mill meme site.
+
+https://old.reddit.com/r/science/comments/1qgiwcm/younger_americans_have_grown_up_during_a_more/o0d85tz/
+
+Yep. Liberal vs. Conservative has been mind-fucked by Rupert Murdoch to mean all kinds of different things to different people. It's brainrot. SPECIFIC LISTS of values. For example: wanting fiction leadership by Donald Trump vs. scientific nonfiction leadership. Donald Trump holds up a SCIENCE FICTION STORY, IMPORTED FROM THE MIDDLE EAST, "The Bible", and wants to lead with fiction stories. Fiction outsells nonfiction. Fiction is far more popular to meme society, social meme consumers.
+
