@@ -182,7 +182,9 @@ People simply do not care for science and mental health professionals who stand 
 
 # Sunday January 18, 2026 morning
 
-At least a few people notice the absence of pushback to Trump. Cheering on hate isn't pushing back against hate. Corporate Reddit media and Corporate social media engagement runs the n nation, addiction to Trump antics.
+At least a few people notice the absence of pushback to Trump. Cheering on hate isn't pushing back against hate. Corporate Reddit media and Corporate social media engagement runs the nation mindsets, addiction to Trump antics. Trump fandom (fandom of hate, fandom of mockery, fandom of wild and crazy timing of notifications).
+
+https://old.reddit.com/r/worldnews/comments/1qg85ql/trump_creates_his_own_un_countries_must_pay_us1bn/o0ach4p/
 
 <img width="927" height="1146" alt="image" src="https://github.com/user-attachments/assets/de8969b6-0bdb-4651-ae92-61e025af40f8" /> 
 
