@@ -472,3 +472,9 @@ https://old.reddit.com/r/ProgressiveHQ/comments/1qgaclu/i_wouldnt_believe_it_mys
 This is to wash the Russia topic from minds, rinse minds of the Russia word. Short Twitter-length messaging that doesn't quote any off-Reddit nonfiction books on paper. Reddit audience won't link serious authors and serious books, constant banal low-effort Tweet-thinking messaging gets upvoted highest. Anti-intellectual.
 
  * Peter Pomerantsev, Nothing Is True and Everything Is Possible: The Surreal Heart of the New Russia book reading reference, 334 seconds into video https://youtu.be/5Au332OG-M4?t=334 "imagine if it was all controlled by the Pentagon" "Incredibly choreographed from the center"
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qgaclu/i_wouldnt_believe_it_myself_if_i_wasnt_witnessing/o0ax70e/
+
+<img width="940" height="430" alt="image" src="https://github.com/user-attachments/assets/eef85434-5308-480b-8754-517eb9823a02" /> Using long-form Reddit to mimic and behave like Musk Twitter (richest man in the world) directs. Short-message addicts. This Reddit comment and the replies to it: pure simulation of resistance. "Cult", "Brainwashed", but won't even link Jen Senko's year 2015 / 2016 film! This is hyper normalizing the situaiton, just turning Trump MAGA cult into a throw-away comment! THIS IS NOT RESISTING! Cult deprogramming needs to be taken seriously. Education does not magically get into adult minds, *We The People* need to be the soldiers of teaching and troops of education to RESCUE the USA from the Kremlin Surkovian cults! https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad
+
+Social post { https://Autistics.Life/@RoundSparrow/115917320971535012 https://bsky.app/profile/roundsparrow.bsky.social/post/3mcpobnclik2z }
