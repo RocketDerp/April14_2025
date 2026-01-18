@@ -53,3 +53,20 @@ https://old.reddit.com/r/Buddhism/comments/fylty/comment/c1jo4ha/
 "Reminds me of a lecture from Joseph Campbell. February 20, 1961"
 
 Absurd that JCF keeps these 1960's lectures behind paywalls and hadn't public domain them for all humanity.
+
+&nbsp;
+
+&nbsp;
+
+# More on Yoga
+
+“The aim of yoga in India is to make the mind stand still. Our minds are spontaneously very active, in constant movement. It's as though a wind were blowing over the surface of a pond and activating all the water; the waves break up images so all you see are broken reflections that come and go. And so it is in our lives. All we see are broken images.
+
+But if you can take the wind away (that's what the word nirvana means: "de-spirated, blown out" — the wind is gone), the pond stands perfectly still.
+
+Make the wind withdraw. Let the pond stand still, and you'll see the one image that was broken in all these reflections.
+
+When the mind stands still, you see the one reflection, that Being of Beings of which YOU are a reflection. That is God. Do not identify your historical, physical body with that Being of Beings. Your body is but one of the reflections of that energy that informs the world and informs your life.”
+
+-Joseph Campbell    
+Myth and Meaning page 87    
