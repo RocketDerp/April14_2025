@@ -126,7 +126,7 @@ Jokes that join in with the Putin joke of Surkov **students** since year 2013. S
 
 https://old.reddit.com/r/StockMarketIndia/comments/1qfz0ms/tit_for_tat/o08rj11/
 
-Every social media user. Every smartphone user. Every touch device user is in their own bubble. It started to emerge shortly after the Apple iPhone in June 2009. It was named and described in year 2011. 
+<img width="1048" height="696" alt="image" src="https://github.com/user-attachments/assets/2dd4745a-69cf-4a0d-a52c-c124ce4f6256" /> Every social media user. Every smartphone user. Every touch device user is in their own bubble. It started to emerge shortly after the Apple iPhone in June 2009. It was named and described in year 2011. 
 
 * "The term filter bubble was coined by internet activist Eli Pariser circa 2010. In Pariser's influential book under the same name, The Filter Bubble (2011), it was predicted that individualized personalization by algorithmic filtering would lead to intellectual isolation and social fragmentation" https://en.wikipedia.org/wiki/Filter_bubble
 
