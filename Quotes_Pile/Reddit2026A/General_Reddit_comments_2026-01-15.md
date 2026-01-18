@@ -680,3 +680,7 @@ https://old.reddit.com/r/worldnews/comments/1qfj3m4/trump_is_making_china_not_am
 https://old.reddit.com/r/worldnews/comments/1qfj3m4/trump_is_making_china_not_america_great_again/o05c3ph/
 
 Slogans and meme-think. Twitter-thinking.
+
+https://old.reddit.com/r/nottheonion/comments/1qfs3xb/reddit_mod_demands_to_be_treated_as_celebrity/o071188/
+
+yes
