@@ -1197,3 +1197,27 @@ Ukraine. the WHOLE WORLD, the entire planet, should have been standing up and ca
 
 * "When NPD and psychopathy combine, they form a pattern of behavior called malignant narcissism. This isn’t a diagnosis, but a term coined by psychoanalyst Erich Fromm and elaborated on by personality disorder expert, Otto Kernberg, to describe people so driven by feeling special that they essentially see other people as **pawns in their game** of kill or be killed, whether metaphorically or literally. Hitler, who murdered millions, Kim Jong-un, who’s suspected of ordering his uncle’s and brother-in-law’s deaths, and **Vladimir Putin, who jokes about “liquidating journalists”** — no doubt all fall in the category of malignant narcissist (among possessing other pernicious traits, like sadism, or delight in hurting others)."
 ― Bandy X Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. PUBLISHED October 3, 2017. Page 58.](https://books.google.com/books?id=716HDwAAQBAJ&pg=PA58&dq=%22driven+by+feeling+special+that+they+essentially+see+other+people%22&hl=en&newbks=1&newbks_redir=1&sa=X)
+
+https://old.reddit.com/r/worldnews/comments/1qgheme/russia_welcomes_trumps_tariffs_on_nato_allies/o0cdz30/
+
+7-month Reddit account.
+
+https://old.reddit.com/r/worldnews/comments/1qgheme/russia_welcomes_trumps_tariffs_on_nato_allies/o0cbjgl/
+
+Twitter-length commenting on Reddit. Short message addictions have taken over in popular upvoting. Reddit society won't face the gullibility to Putin is the ENTIRE population. Over 300 million people. Not just one man, Trump. Musk is in the White House wrecking USAID all over the world last year, in 2025. Not a 79 year old Trump, but much younger Elon Musk. Gullibility to the "Internet Research Agency" is widespread in USA. Reddit was invaded, and Reddit community is in psychological denial of the executive function mind manipulation (and timelines, players, names, etc). https://www.Axios.com/2018/04/10/reddit-found-nearly-1000-1523402788 - Surkov won.
+
+https://old.reddit.com/r/worldnews/comments/1qgheme/russia_welcomes_trumps_tariffs_on_nato_allies/o0cajnr/
+
+Capturing some of these comments to see which ones later disappear.
+
+https://old.reddit.com/r/worldnews/comments/1qgheme/russia_welcomes_trumps_tariffs_on_nato_allies/o0cbi1c/
+
+https://old.reddit.com/r/worldnews/comments/1qgheme/russia_welcomes_trumps_tariffs_on_nato_allies/o0cab3q/
+
+Amusement-washing trump. Sane-washing Putin with comedy. Wrapping it all in satire and sarcasm for meme crowd of Reddit.
+
+https://old.reddit.com/r/worldnews/comments/1qgheme/russia_welcomes_trumps_tariffs_on_nato_allies/o0cd551/
+
+5-month Reddit account acting as if Kremlin and White House are { dumb, stupid, idiots } for using Surkov techniques of saying it out loudly to public. This Reddit account message is paying dumb. It is INTENTIONAL to tell people in Surkov governing methods. 
+
+"But **the key thing was, that Surkov then let it be known that this was what he was doing**, which meant that no one was sure what was real or fake. As one journalist put it: "It is a strategy of power that keeps any opposition constantly confused." A ceaseless shape-shifting that is unstoppable because it is undefinable. It is exactly what Surkov is alleged to have done in the Ukraine this year." - [year 2014, BBC, Adam Curtis](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html)
