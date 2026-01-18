@@ -1221,3 +1221,71 @@ https://old.reddit.com/r/worldnews/comments/1qgheme/russia_welcomes_trumps_tarif
 5-month Reddit account acting as if Kremlin and White House are { dumb, stupid, idiots } for using Surkov techniques of saying it out loudly to public. This Reddit account message is paying dumb. It is INTENTIONAL to tell people in Surkov governing methods. 
 
 "But **the key thing was, that Surkov then let it be known that this was what he was doing**, which meant that no one was sure what was real or fake. As one journalist put it: "It is a strategy of power that keeps any opposition constantly confused." A ceaseless shape-shifting that is unstoppable because it is undefinable. It is exactly what Surkov is alleged to have done in the Ukraine this year." - [year 2014, BBC, Adam Curtis](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html)
+
+https://old.reddit.com/r/worldnews/comments/1qgheme/russia_welcomes_trumps_tariffs_on_nato_allies/o0cd4iw/
+
+Reddit has been invaded by the IRA since March 2013. Joke-washing of Trump has been constant since June 16, 2015. People asserting and prizing that Trump as a source of { humor, comedy, laughs, entertainment, amusement, joke writing }.
+
+https://old.reddit.com/r/worldnews/comments/1qgheme/russia_welcomes_trumps_tariffs_on_nato_allies/o0cb16r/
+
+https://old.reddit.com/r/worldnews/comments/1qgheme/russia_welcomes_trumps_tariffs_on_nato_allies/o0cacaj/
+
+2-month Reddit account saying how great it is that Russia won. Tiny-short Musk Twitter-length banal commenting.
+
+https://old.reddit.com/r/worldnews/comments/1qgheme/russia_welcomes_trumps_tariffs_on_nato_allies/o0cb4sh/
+
+https://old.reddit.com/r/worldnews/comments/1qgheme/russia_welcomes_trumps_tariffs_on_nato_allies/o0cbdv4/
+
+Celebration of Putin's win.
+
+https://old.reddit.com/r/worldnews/comments/1qgheme/russia_welcomes_trumps_tariffs_on_nato_allies/o0cbx4j/
+
+In no way is this Reddit message resisting Putin / Russia. 
+
+https://old.reddit.com/r/worldnews/comments/1qgheme/russia_welcomes_trumps_tariffs_on_nato_allies/o0ccifq/
+
+And Reddit audience is thrilled to be able to comment Twitter-length messages about how holistically it is to live through destruction of USA. The comment is messaging to Reddit audience: Get to call an old 79 year old man "Cheetos" on high-speed TCP/IP messaging platforms. Video games on PlayStation 5 aren't good enough, need to turn the whole USA into a mockery video game mentality / sports game mentality.
+
+https://old.reddit.com/r/worldnews/comments/1qgheme/russia_welcomes_trumps_tariffs_on_nato_allies/o0cdx3r/
+
+https://old.reddit.com/r/worldnews/comments/1qgheme/russia_welcomes_trumps_tariffs_on_nato_allies/o0cifdo/
+
+https://old.reddit.com/r/worldnews/comments/1qgheme/russia_welcomes_trumps_tariffs_on_nato_allies/o0cmbm6/
+
+Aggressive gloating.
+
+https://old.reddit.com/r/worldnews/comments/1qgheme/russia_welcomes_trumps_tariffs_on_nato_allies/o0chx1u/
+
+https://old.reddit.com/r/worldnews/comments/1qgheme/russia_welcomes_trumps_tariffs_on_nato_allies/o0cdxp2/
+
+6 month Reddit account
+
+https://old.reddit.com/r/worldnews/comments/1qgheme/russia_welcomes_trumps_tariffs_on_nato_allies/o0cbn2o/
+
+https://old.reddit.com/r/worldnews/comments/1qgheme/russia_welcomes_trumps_tariffs_on_nato_allies/o0ccjds/
+
+Twitter-length mindset conditioning. Audience mindset messaging. Tiny-short patterns of thinking. No call for intellectual defense, no call to assert Dr. Bandy X Lee on national mental health, etc.
+
+https://old.reddit.com/r/worldnews/comments/1qgheme/russia_welcomes_trumps_tariffs_on_nato_allies/o0cb1mt/
+
+5-month Reddit account. Russia's goal is not just to win Ukraine, but destabilize NATO, EU and USA. This was spelled out December 31, 2014 (New Years Eve) on BBC by Adam Curtis; "A war where you never know what the enemy are really up to, or even who they are. The **underlying aim, Surkov says, is not to win the war**, but to use the conflict to create a constant state of destabilized perception, in order to manage and control." - the Ukraine War was already active February 20, 2014
+
+https://old.reddit.com/r/worldnews/comments/1qgheme/russia_welcomes_trumps_tariffs_on_nato_allies/o0ciqem/
+
+https://old.reddit.com/r/worldnews/comments/1qgheme/russia_welcomes_trumps_tariffs_on_nato_allies/o0ck4ne/
+
+https://old.reddit.com/r/worldnews/comments/1qgheme/russia_welcomes_trumps_tariffs_on_nato_allies/o0cnu18/
+
+2 month Reddit account. Twitter-length short message. As if the idea is original. Can't even cite John Lennon's famous song, let alone MLK Jr or Malala. These messages serve to put the Reddit audience deeper into comment prizing over off-Reddit sources.
+
+https://old.reddit.com/r/worldnews/comments/1qgheme/russia_welcomes_trumps_tariffs_on_nato_allies/o0cdze9/
+
+Never blame Reddit, never blame Facebook, never blame Rupert Murdoch media, never blame **Russian Internet Research Agency for invading Reddit**. https://www.Axios.com/2018/04/10/reddit-found-nearly-1000-1523402788 Never blame Cambridge Analytica, Steve Bannon. Why doesn't Reddit commenting crowd bring up Dr. Bandy X Lee every chance it can to call for Trump's removal?
+
+https://old.reddit.com/r/worldnews/comments/1qgheme/russia_welcomes_trumps_tariffs_on_nato_allies/o0ccids/
+
+Longer Reddit account, back to Arab Spring 2010 creation timeframe.
+
+https://old.reddit.com/r/worldnews/comments/1qgheme/russia_welcomes_trumps_tariffs_on_nato_allies/o0chhon/
+
+People seem entirely avoidant and unable to turn to nonfiction serious information sources. Dr. Bandy X Lee's October 3, 2017 book is ignored by Reddit commenting community. Dr. Lee's names and book quotes should be MORE FREQUENT than "Epstein" assertions! But... crickets
