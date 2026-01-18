@@ -696,3 +696,7 @@ https://old.reddit.com/r/ProgressiveHQ/comments/1qfoqvy/buttigieg_in_a_country_t
 https://old.reddit.com/r/ProgressiveHQ/comments/1qfoqvy/buttigieg_in_a_country_that_amended_its/o06v7jf/
 
 It would be really so much better of an off-Reddit citation and researched list of examples was popular...
+
+https://old.reddit.com/r/shittymoviedetails/comments/1qfsj7m/fallout_season_2_20252026_insulted_our/o07czb0/
+
+Circle-jerk Subreddit / Communities become concentration camps, anti-goodness training grounds. Garbage into audience minds that ends up taking over the mind. We do not have good rituals for purchasing freebase mind-fuck cynical hate out of people. It's cyber-bullying reactionary mind teaching.
