@@ -36,7 +36,7 @@ error_fetch_count = 0
 error_parse_a_count = 0
 fetch_reddit_count_a = 0
 replies_users_fetch = 0
-replies_users_max = 48
+replies_users_max = 64
 # every slowdown_every fetches kick in delay
 slowdown_every = 2
 age18_count = 0
@@ -44,7 +44,7 @@ args = {}
 
 
 # agenda here is to not need global in every function
-# ToDo: utiize this code. Here to note future rework
+# ToDo: utilize this code. Here to note future rework
 def increment_error_for(error_index):
     global error_count_b
     global error_fetch_count
