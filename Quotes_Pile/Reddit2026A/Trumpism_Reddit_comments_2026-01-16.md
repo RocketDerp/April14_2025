@@ -142,7 +142,9 @@ Trump fandom. Falling for the actor, believing the acting. Trump's skill is crow
 
 https://old.reddit.com/r/worldnews/comments/1qg3ypf/leaders_of_france_uk_and_sweden_respond_to_trumps/o09u2sh/
 
-SNL Andy Kaufman performance. Wrestling women. Trump is a master of SNL comedy, President Tony Clifton act. OPERA_A https://youtu.be/dLxpNiF0YKs?t=22 49,327,770 views  September 13, 2017 
+<img width="992" height="452" alt="image" src="https://github.com/user-attachments/assets/297334c8-e556-4d8b-a28e-fce0982f3858" /> SNL Andy Kaufman performance. Wrestling women. Trump is a master of SNL comedy, President Tony Clifton act. OPERA_A https://youtu.be/dLxpNiF0YKs?t=22 49,327,770 views September 13, 2017
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mcpco3ukdk2b https://Autistics.Life/@RoundSparrow/115916503121863578 }
 
 https://old.reddit.com/r/worldnews/comments/1qg3ypf/leaders_of_france_uk_and_sweden_respond_to_trumps/o09u8ma/
 
