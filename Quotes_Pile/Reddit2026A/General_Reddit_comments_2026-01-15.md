@@ -792,3 +792,11 @@ Yes. Apathy an inaction by Reddit users. Bluesky and Reddit users will not asser
 * "Pussy Riot came into the world stage in 2012 following their "Punk Prayer" performance in Moscow's Cathedral of Christ the Savior, which led to the arrest and imprisonment of several members. While the feminist punk protest group was founded in August 2011 and began performing guerrilla gigs in Moscow in late 2011, it was the international notoriety surrounding the February 2012 anti-Putin protest and subsequent trial that brought them global attention." - Google Search summary 2026-01-18 noonish USA
 
 There has been no social media uprising. The nation that created BBS social media, created TCP/IP, created the Internet can no longer imaging organizing a sustained protest movement VIA the Internet. Trump's rise to power in year 2012 was social media! Reference: July 6, 2011 https://theoutline.com/post/2445/trump-s-first-real-tweet-was-on-july-6-2011
+
+https://old.reddit.com/r/worldnews/comments/1qg6wl6/macron_to_seek_use_of_eu_anticoercion_instrument/o0ajihr/
+
+<img width="897" height="523" alt="image" src="https://github.com/user-attachments/assets/9051afb2-895d-414a-92fb-7dd003b8d340" /> YES! People cheering on to harm the USA are self-harming the USA! Asserting badness. Attracted to Trump's leadership of wrecking the USA!!! 
+
+OPERA_A: Lyrics... "You've been screwed AGAIN. If you let them do it to *you*...you've got *yourself to blame*. It's you who feels the pain. It's you who takes the shame!" https://www.youtube.com/watch?v=L0bqmIBczJI 54,998 views October 23, 2008 (I shared this YouTube song back in the Arab Spring revolution year 2010 to Tunisia and Algeria friends via Internet). "Should be more careful what *I say*", "I'm being beaten every day!"
+
+Social post { https://autistics.life/@RoundSparrow/115917593367274202 https://bsky.app/profile/roundsparrow.bsky.social/post/3mcps54fiic2g }
