@@ -750,3 +750,13 @@ https://old.reddit.com/r/politics/comments/1qg8bsd/growing_sense_of_embarrassmen
 Another **gullible Reddit comment creator who eats up that FIFA doesn't have an army of mass media experts** on how sports-think audiences are easily manipulated, the Reddit audience. Reddit audience members are so gullible to FIFA sports media empire that they don't grasp how two teams are played, team A vs. team B, duality of conflict in the human audience, the REDDIT audience being played. A lack of media self-awareness by this Reddit commenting community.
 
 * "The two classic drama masks, often seen together, represent Comedy (Thalia) and Tragedy (Melpomene), symbolizing the full spectrum of human emotion and experience from joy to sorrow, essential in Greek theater for embodying archetypes and exploring the psyche's duality" - Google Search summary 2026-01-19 morning USA
+
+https://old.reddit.com/r/pics/comments/1qgbokv/help_us_kendall_jenner_youre_our_only_hope/o0b7hvx/
+
+Shallow, superficial, anti-Malala values. Praise rich and famous white men leaders like Trump and Putin and Epstein as prized content.
+
+https://old.reddit.com/r/PublicFreakout/comments/1qg8439/footage_captures_cow_vigilantes_puncturing_a/o0abodm/
+
+Global monomyth crisis. Science fiction fandom crisis. It's about fiction storytelling vs. nonfiction. Addiction to fiction drives media consumers all over the world. Adults compulsively acting out their fiction storytelling that they were given as children by parents.
+
+* “Half the people in the world think that the metaphors of their religious traditions, for example, are facts. And the other half contends that they are not facts at all. As a result we have people who consider themselves believers because they accept metaphors as facts, and we have others who classify themselves as atheists because they think religious metaphors are lies.” ― Joseph Campbell, Thou Art That: Transforming Religious Metaphor
