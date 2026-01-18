@@ -150,3 +150,10 @@ https://old.reddit.com/r/worldnews/comments/1qg3ypf/leaders_of_france_uk_and_swe
 
 SURPRISINGLY similar to Putin. They met in Alaska last summer, summer of 2025. Putin and Trump's relationship is OBVIOUS. Blinding the Reddit audience.
 
+https://old.reddit.com/r/worldnews/comments/1qg85ql/trump_creates_his_own_un_countries_must_pay_us1bn/o0ach4p/
+
+<img width="927" height="1146" alt="image" src="https://github.com/user-attachments/assets/de8969b6-0bdb-4651-ae92-61e025af40f8" /> It is a TOTAL fandom to hate leadership signals. Trump leads with hate and EVERYONE follows the hate patterns. People have zero self-awareness of the compulsive addiction to Trump's acting. He is the greatest Tony Clifton actor ever!
+
+Also note the reply message about drugs. Everyone on medication to deny reality with chemicals. Like weed / cannabis users who smoke up before going to a science fiction or horror film. Trump entertainment, President Tony Clifton, has them all giggles in the streaming meme audiences. Meds, drugs, brain chemistry dependence. Dr. Bandy X Lee being actively ignored by We The People since October 3, 2017 book published.
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mcpdhmaads2b https://autistics.life/@RoundSparrow/115916565318998832 }
