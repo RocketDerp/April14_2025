@@ -130,6 +130,8 @@ https://old.reddit.com/r/StockMarketIndia/comments/1qfz0ms/tit_for_tat/o08rj11/
 
 * "The term filter bubble was coined by internet activist Eli Pariser circa 2010. In Pariser's influential book under the same name, The Filter Bubble (2011), it was predicted that individualized personalization by algorithmic filtering would lead to intellectual isolation and social fragmentation" https://en.wikipedia.org/wiki/Filter_bubble
 
-Before year 2007, people were not walking around in public staring into screens. They weren't looking at images on digital screens before year 2007 in public ALL THE TIME. People at every stoplight IN PUBLIC weren't staring into social media memes before year 2007!!! ... "The term filter bubble was coined by internet activist Eli Pariser circa 2010.'
+Before year 2007, people were not walking around in public staring into screens. They weren't looking at images on digital screens before year 2007 in public ALL THE TIME. People at every stoplight IN PUBLIC weren't staring into social media memes before year 2007!!! ... "The term filter bubble was coined by internet activist Eli Pariser circa 2010."
 
 * "The first iPhone was introduced by Steve Jobs at Macworld on January 9, 2007, but it went on sale exclusively with AT&T (then Cingular) on June 29, 2007, at Apple Stores and select AT&T locations, kicking off massive lines and marking Apple's major entry into mobile phones on the carrier's 2G network." - Google Search summary, 2026-01-18 early morning Sunday USA
+
+Social post { https://autistics.life/@RoundSparrow/115916174791293814 https://bsky.app/profile/roundsparrow.bsky.social/post/3mcp5zop2xs2n }
