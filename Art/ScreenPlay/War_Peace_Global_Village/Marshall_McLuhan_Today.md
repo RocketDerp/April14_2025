@@ -43,3 +43,17 @@ McLuhan‘s writing was profoundly political…the changes he foretold weren‘t
 overnight phenomena. They were about changes in cognition, cultural shifts that
 would cause shifts in the evolution of humankind…such events as the collapse of
 communism and the \[emergence of\] jihad.
+
+&nbsp;
+
+# Neil Postman and others
+
+https://www.Equip.org/articles/marshall-mcluhan-doin/
+
+...
+
+Shortly after publishing Understanding Media in 1964, Marshall McLuhan appeared before a New York audience and casually predicted the invention of the iPhone headset: “There might come a day when we [will]…all have portable computers, about the size of a hearing aid, to help us mesh our personal experience with the experience of the great wired brain of the outer world.”
+
+...
+
+Neil Postman, an intellectual child of McLuhan, said of him, “He was the first writer I had ever encountered who could write a sentence in which the words Plato, Erasmus, Batman, and the Beatles could find a coherent place.” - Neil Postman, “Foreword,” in Marchand, Marshall McLuhan, x. Philip Marchand's biography of media theorist Marshall McLuhan, titled Marshall McLuhan: The Medium and the Messenger
