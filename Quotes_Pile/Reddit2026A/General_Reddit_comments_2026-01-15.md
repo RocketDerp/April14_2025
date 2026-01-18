@@ -716,3 +716,14 @@ I created this GitHub out out of hope that at least somebody might want to learn
 * “Joyce is, in the *Wake*, making his own Altamira cave drawings of the entire history of the human mind, in terms of its basic gestures and postures during all the phases of human culture and technology. As his title indicates, he saw that the wake of **human progress can disappear again into the night of sacral or auditory man**. The Finn cycle of **tribal institutions can return** in the electric age, but if again, then let’s make it a wake or awake or both. Joyce could see no advantage in our remaining locked up in each cultural cycle as in a trance or dream. He discovered the means of living simultaneously in all cultural modes while quite conscious.” — the book “The Medium is the Massage: An Inventory of Effects” by media analyst Marshall McLuhan and graphic designer Quentin Fiore, and coordinated by Jerome Agel. It was published in March 1967. https://www.themediumisthemassage.com/the-book/
 
 Diversity, democracy, diverse Pale Blue Dot is more mental labor but it's good woke. Year 1923 Finn's Hotel from James Joyce is a key leap forward in world wide comprehension. Education matters. Elon Musk purchasing Twitter was the clue that media Tweeting, media social media, is exactly what McLuhan was saying up to his death NYE 1980... Please Stop mocking Tweeting and Truth Social and take it seriously. Trump is a Twitter addict an Fox News NDTV addiction runs Trump mindsets.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qfw3fw/make_no_mistake_this_is_about_selfpreservation/o08x7uy/
+
+reaction vs. reaction. Reactionary mindsets abound. Electric media feedback looping.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qfw3fw/make_no_mistake_this_is_about_selfpreservation/o083g1r/
+
+A reply to this message says "complicit". Social media meme addicts are complicit. Dr. Bandy X. Lee's October 3, 2017 book can be quoted every 6 hours . Dr. Lee should be more famous than Epstein by this point. Every person in the world, from ANYWHERE, who has capability to create a social media comment is complicit for not doing basic Google Search / Duck Duck Go search and repeating every day: "Please quote and listen to Dr. Bandy X Lee". Stop mocking and LOL LOL at Trump and be fucking serious. **LOL is complicity. We The People are entertained and amused at Trump, addicts to Trump content**.
+
+https://old.reddit.com/r/StockMarketIndia/comments/1qfz0ms/tit_for_tat/o090c54/
+
