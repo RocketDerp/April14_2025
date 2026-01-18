@@ -448,3 +448,17 @@ https://old.reddit.com/r/complaints/comments/1qefkg6/fascists_are_losing_their_g
 
 People are INDOCTRINATED into { Torah, Quran, Bible, Book of Mormon } with national holidays. Fiction storytelling at the youngest age, Santa Christmas fantasy. Minds programmed by adults to obey male authority figures. Allah / Jesus / Judgement Day / Yahweh. Tiny-short Reddit commenting is not resisting this crisis! It is merely putting a name to a group of people! Cult deprogramming is actual resistance. Teaching from nonfiction about media addiction to the Bible / Radio Mullah.
 
+https://old.reddit.com/r/worldnews/comments/1qg85ql/trump_creates_his_own_un_countries_must_pay_us1bn/o0abvj4/
+
+Imagine tiny-short Tweet-length messaging taking over your nation. Banal celebration of ignorance by the influential media of Reddit. Following Elon Musk Twitter lead of prizing low-effort commenting above every nonfiction book in the public library. Imagine that you can't imagine REALITY ITSELF, the REAL WORLD AS IT IS, because so much fiction addiction requires you *to imagine* what happened in November 2024. More than 14 months ago, REALITY ITSELF!
+
+[Everything Carl Sagan said i 1995 book is in this Twitter message on front page top of /r/All Reddit](/April14_2025/blob/main/Quotes_Pile/Carl_Sagan_Quotes.md). This is low-effort "we win, Reddit!" ignorance.
+
+Russia and the **Menace of Unreality**   
+How Vladimir Putin is revolutionizing information warfare   
+Peter Pomerantsev   
+September 9 2014, 3:42 PM ET   
+
+“If previous authoritarian regimes were three parts violence and one part propaganda,” argues Igor Yakovenko, a professor of journalism at the Moscow State Institute of International Relations, “this one is **virtually all propaganda and relatively little violence**. Putin only needs to make a few arrests — and then amplify the message through his total control of television.”
+
+Translated from 2013 Russia to USA 2025: I.C.E. raids are very little violence and a lot of showboating. A lot of Reddit front-page I.C.E. raids for visual meme addicts / meme consumers. Simple-think logic polarity minds. Snark bout "reality" on the audience commenting mind, but no recognition that Kremlin and White House has the Reddit total control of media amplifiers. Reddit is amplifying media from all over the Internet. Eating the onions that Trump and Musk is dementia stupid dumb idiot, Reddit society unable to engage and comprehend and understand off-Reddit... September 9, 2014: https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ - joking to "imagine" / dream up fiction of anti-reality, dreamland. Anything to avoid learning / grasping nonfiction Russian information warfare history and techniques.
