@@ -1165,3 +1165,6 @@ https://old.reddit.com/r/UnderReportedNews/comments/1qg4d0g/copenhagen_denmark_t
 
 Any antics are prized by meme audiences on Reddit. Entertainment sports golf antics. Goodness comes from humans who originate goodness, which is what Reddit audiences are avoiding: originating goodness. Instead of promoting Dr. Bandy X Lee and removing Trump from office, people are commenting about golf sports.
 
+https://old.reddit.com/r/UnderReportedNews/comments/1qg4d0g/copenhagen_denmark_total_unity_against_trump_and/o09pmhz/
+
+The ENTIRE world, The World Wide Web, needs to be repeating that the USA is sick, mentally sick, sickening the entire world with toxic mindsets. Social media WWW users need to be repeating and keep repeating every 12 hours: Dr. Bandy X Lee name and book quotes from her October 3, 2017 book. That is the PROTEST we need, ASAP! It is already TOO LATE, but we must salvage what we can from the terrible mob mentality mindsets.
