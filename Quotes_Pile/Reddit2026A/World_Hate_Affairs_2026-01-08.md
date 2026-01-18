@@ -1372,3 +1372,42 @@ Top-voted comment on post. Extreme tiny-short Musk Twitter messaging. No resista
 
 https://old.reddit.com/r/TrendoraX/comments/1qgfamz/french_tv_reports_that_ukraine_stopped_sharing/o0buvmc/
 
+https://old.reddit.com/r/TrendoraX/comments/1qgfamz/french_tv_reports_that_ukraine_stopped_sharing/o0bthz2/
+
+https://old.reddit.com/r/TrendoraX/comments/1qgfamz/french_tv_reports_that_ukraine_stopped_sharing/o0by3qh/
+
+Cheering on MAGA, fandom of Trump. We are so far past { satire, sarcasm, parody }. The pattern I am calling out is the avoidance of Dr. Bandy X Lee, avoidance of Peter Pomerantsev. Media addiction to COMMENTING about Trump is the concern of the nation. Creating media content. Being a super-star of media systems,.. following Trump media signals and leadership.
+
+https://old.reddit.com/r/TrendoraX/comments/1qgfamz/french_tv_reports_that_ukraine_stopped_sharing/o0bw7p7/
+
+https://old.reddit.com/r/TrendoraX/comments/1qgfamz/french_tv_reports_that_ukraine_stopped_sharing/o0cej7t/
+
+Twitter-length joke-washing. Trump is so entertaining to Reddit audience.
+
+https://old.reddit.com/r/TrendoraX/comments/1qgfamz/french_tv_reports_that_ukraine_stopped_sharing/o0cieoe/
+
+4-month Reddit account.
+
+https://old.reddit.com/r/TrendoraX/comments/1qgfamz/french_tv_reports_that_ukraine_stopped_sharing/o0bzqjk/
+
+At least a pointer off-Reddit to YouTube and real names. Alas, Dr. Bandy X Lee is the name that likely matters most. Confronting the national mental health, cult-followings to junk information.
+
+https://old.reddit.com/r/TrendoraX/comments/1qgfamz/french_tv_reports_that_ukraine_stopped_sharing/o0c258y/
+
+https://old.reddit.com/r/TrendoraX/comments/1qgfamz/french_tv_reports_that_ukraine_stopped_sharing/o0bxs4v/
+
+BINGO gaming. { Ukraine war, MAGA, Trump, Putin, EU, Russia } all just a game to play for entertainment. Goodness is not a concern to Reddit audience, just that there are games to play.
+
+https://old.reddit.com/r/TrendoraX/comments/1qgfamz/french_tv_reports_that_ukraine_stopped_sharing/o0bzi2l/
+
+https://old.reddit.com/r/TrendoraX/comments/1qgfamz/french_tv_reports_that_ukraine_stopped_sharing/o0c0ipt/
+
+https://old.reddit.com/r/TrendoraX/comments/1qgfamz/french_tv_reports_that_ukraine_stopped_sharing/o0c1frt/
+
+https://old.reddit.com/r/TrendoraX/comments/1qgfamz/french_tv_reports_that_ukraine_stopped_sharing/o0c47sq/
+
+Media ecology.
+
+https://old.reddit.com/r/TrendoraX/comments/1qgfamz/french_tv_reports_that_ukraine_stopped_sharing/o0c67te/
+
+Asserting Dr. Bandy X Lee and removing Trump and addressing the mental health on a national level, MAGA level, would be good for the whole world. And likely address cult issues, through education, of other nations. Even benefit The People of domestic Russia in how to deal with Putin.
