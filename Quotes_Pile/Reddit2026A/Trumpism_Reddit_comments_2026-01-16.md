@@ -93,3 +93,16 @@ Trump fandom / Trump fanatic. Elon Musk Twitter platform commenting style on Red
 https://old.reddit.com/r/minnesota/comments/1qfpdsm/furry_fox_taken_down_hard_in_minnesota_during_ice/o06ihnp/
 
 1 month Reddit account. Twitter-short messaging that this is all entertainment created by Trump. "LOL" laugh track for audience. Individual being crushed by the machine state systems is A-OK as long as Reddit audience gets to watch the content. The addiction to Trump antics leadership has GONE ON FOR OVER TEN YEARS AND SEVEN MONTHS, endless mob mentality of chasing down Trump's content. The nation can not resist and face up to Neil Postman's media ecology self-awareness teachings. CONTEXT_ASSERTION: September 10, 2025 https://Time.com/7313999/neil-postman-trump-prediction/
+
+https://old.reddit.com/r/pics/comments/1qg0l59/at_copenhagen_airport/o095ubg/
+
+Trump ridicules the entire world. Trump mocks and ridicules goodness. This fanatic of Trump, a member of the Trump fandom, craves EVEN MORE ridicule. ANYTHING but nonfiction learning about Kremlin information warfare. A meme audience consumer of Reddit who always has the same answer: MORE bullshit! More ridicule! Never serious, never nonfiction learning and teaching! Always more dumb shit and mockery to add to the mockery that Putin and Trump created with the entire MAGA movement. **MAGA is ridicule! calling people "libtards" (retarded mentally) is exactly RIDICULE!** Reddit audience needs to be SERIOUS about mental health and follow the lead of Dr. Bandy X Lee! People do not understand feedback loops between Reddit audience and Trump White House / Trump media.
+
+https://old.reddit.com/r/BuyFromEU/comments/1qg2s1k/eu_set_to_halt_us_trade_deal_over_new_tariff/o09krcj/
+
+Yes, Reddit.
+
+https://old.reddit.com/r/BuyFromEU/comments/1qg2s1k/eu_set_to_halt_us_trade_deal_over_new_tariff/o09bame/
+
+Trump "Politics" work when people can't stop being entrained. People become ignorant. Trump sucks all the oxygen from the room, all education halts and people spend all their time on Reddit commenting about Trump. It is sickening, I am incredibly sick that people will not assert { MLK Jr, Malala, Carl Sagan, Education for Adults, Teaching, Neil Postman } and stop this. Fox News was a subset of society in year 2012, but Putin's Internet Research Agency made every social media addict behave even WORSE than Fox News since year 2013. People will not turn to nonfiction serious books by Dr. Bandy X Lee and SERIOUSLY discuss Trump **cult mental health problems** of the MAGA nation.
+
