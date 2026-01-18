@@ -19,14 +19,15 @@ McLuhan’s Cryptic Writing Style
 
 We begin with Marshall McLuhan‘s writing style, which many readers find extremely challenging.
 A student once asked McLuhan, "Why are your letters to the newspapers so plain and your other
-writings so difficult and obscure?‖ McLuhan responded by saying,
+writings so difficult and obscure? McLuhan responded by saying,
 
 This question highlights the difference between exposition and exploration. Anything that I
 know I can explain quite simply and directly. I can package it. Nearly everything I write is
 concerned with areas of exploration in which I am actively engaged in discovery. That is
-why I say, ―I have no point of view.‖ Anyone engaged in exploration uses every available
+why I say, ― I have no point of view. Anyone engaged in exploration uses every available
 approach, every available foothold, every accessible crevice to which to cling as he scales
 the unknown rockface. The actual process of dialogue and discovery is not compatible with
 packaging of familiar views. A person engaged in exposition has nothing new to say, and
 he cannot communicate the effects of participating in the process of discovery (McLuhan
 1970).
+
