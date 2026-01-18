@@ -823,3 +823,7 @@ September 9 2014, 3:42 PM ET
 https://old.reddit.com/r/AdviceAnimals/comments/1qgb6e4/musk_is_going_all_in_financing_gop_for_midterms/o0azsfz/
 
 All the replies in this Reddit media thread are twitter-length, avoiding long-form Reddit. Avoiding author names, book quotes, off-Reddit links, just mocking away about the out-group problem. We have let Rupert Murdoch's media empire program the nation mindsets. We let Putin's Internet Research Agency manipulate minds. Right on Reddit: March 2, 2018 https://www.BBC.com/news/technology-43255285 - but you will not encounter any people in USA population who can discuss names of organizations, names of the organizers, dates, time-frames, and the behavior of a manipulated person! Instead, you see social media content addicts treating this all as entertainment and amusement. Eating right out of the Kremlin's hands. 
+
+https://old.reddit.com/r/AdviceAnimals/comments/1qgb6e4/musk_is_going_all_in_financing_gop_for_midterms/o0b6m2v/
+
+Reddit user get their mind blown at media systems... audience on Reddit can't believe that purchasing Twitter has resulted in audience that worships Twitter cloud computing Daddy-figure (Musk). That crowd that believes Jesus in the sky is there to worship also worships male leaders { Murdoch, Putin, Trump, Musk, Tucker Carlson, etc }. And ]is programmed by The Bible to dislike women](/PostMalala/Patriarchy/Patriarchy_Pussy_Riots_Everywhere.md) via parental indoctrination at a very young age (Santa, Christmas indoctrination to male leaders in cloud messaging systems at age 1).
