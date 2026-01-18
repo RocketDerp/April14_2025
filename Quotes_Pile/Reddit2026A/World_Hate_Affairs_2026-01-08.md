@@ -1160,3 +1160,8 @@ https://old.reddit.com/r/UnderReportedNews/comments/1qg4d0g/copenhagen_denmark_t
 https://old.reddit.com/r/UnderReportedNews/comments/1qg4d0g/copenhagen_denmark_total_unity_against_trump_and/o09txvw/
 
 1 month account
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qg4d0g/copenhagen_denmark_total_unity_against_trump_and/o09rwji/
+
+Any antics are prized by meme audiences on Reddit. Entertainment sports golf antics. Goodness comes from humans who originate goodness, which is what Reddit audiences are avoiding: originating goodness. Instead of promoting Dr. Bandy X Lee and removing Trump from office, people are commenting about golf sports.
+
