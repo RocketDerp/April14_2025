@@ -32,7 +32,7 @@ The other variety of monk is much less strict. This is known as svetambara, dres
 
 There is a very funny story connected with this order. You know, pious people are strange everywhere. [laughter] In this particular case, two chaps come along through the streets of Bombay with a cart full of bed bugs. And they call, “Who will feed the bugs? Who will feed the bugs?”
 
-And some lady in the window tosses out a coin—that means she will feed the bugs. So one of the chaps lies down in the bed for a rupee, and the bugs have their dinner, and she has gained credit for assisting this inferior type of life to have its little enjoyment and move on, you know — it will be up in about eighty-four more incarnations perhaps going around with the cart saying, “Who will feed the bugs?”
+And some lady in the window tosses out a coin — that means she will feed the bugs. So one of the chaps lies down in the bed for a rupee, and the bugs have their dinner, and she has gained credit for assisting this inferior type of life to have its little enjoyment and move on, you know — it will be up in about eighty-four more incarnations perhaps going around with the cart saying, “Who will feed the bugs?”
 
 &nbsp;
 
