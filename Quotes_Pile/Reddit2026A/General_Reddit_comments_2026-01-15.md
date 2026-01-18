@@ -766,3 +766,7 @@ https://old.reddit.com/r/ProgressiveHQ/comments/1qgaclu/i_wouldnt_believe_it_mys
 People do not grasp or learn from nonfiction serious books. People do not understand. Cults, media cults, Fox News HDTV cults. Church science fiction Bible quotes (today is Sunday as I write here on GitHub). We are not doing cult deprogramming!
 
 * “It is a truism that almost any sect, cult, or religion will legislate its creed into law if it acquires the political power to do so, and will follow it by suppressing opposition, subverting all education to seize early the minds of the young, and by killing, locking up, or driving underground all heretics.” ― Robert A. Heinlein, Time Enough for Love. June 1973
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qgaclu/i_wouldnt_believe_it_myself_if_i_wasnt_witnessing/o0az1qe/
+
+12 day Reddit account. Mocking away, mock mock mock via Reddit platform.
