@@ -700,3 +700,12 @@ It would be really so much better of an off-Reddit citation and researched list 
 https://old.reddit.com/r/shittymoviedetails/comments/1qfsj7m/fallout_season_2_20252026_insulted_our/o07czb0/
 
 Circle-jerk Subreddit / Communities become concentration camps, anti-goodness training grounds. Garbage into audience minds that ends up taking over the mind. We do not have good rituals for purchasing freebase mind-fuck cynical hate out of people. It's cyber-bullying reactionary mind teaching.
+
+https://old.reddit.com/r/pics/comments/1qg0l59/at_copenhagen_airport/o08z5rg/
+
+Denial that Trump does not work hard to actively serve Putin. Trump is a black hole of attract-icing Twitter-length commenting. Mocking audience to President Tony Clifton acting and performance. USA population is incredibly gullible and thinks Putin and Trump are dumb. It's actors acting. We The People are ignorant and have learned NOTHING about Surkovian techniques. Surkov won.
+
+https://old.reddit.com/r/pics/comments/1qg0l59/at_copenhagen_airport/o09tx0s/
+
+'surreal". It' even in the title of the year 2014 book by Peter P that explains this all. USA We The People keep yammering away on commenting and not turning to nonfiction learning. Celebration of Ignorance via high speed (enormously influential) Reddit media messaging.
+
