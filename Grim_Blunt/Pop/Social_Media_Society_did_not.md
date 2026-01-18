@@ -28,7 +28,7 @@ Donald Trump is an entertainer. People are motivated to hate, meme, mock Donald 
 
 https://old.reddit.com/r/LeagueOfMemes/comments/1mucpfu/day_1_of_trying_to_become_the_league_of_legends/
 
-Nott reacting to breaking news. Why isn't social media society organizing non-reactions?   
+Not reacting to breaking news. Why isn't social media society organizing non-reactions?   
 I've seen coverage of "No Kings" protest, but not an online protest.  
 
 &nbsp;
@@ -59,11 +59,11 @@ It has been an ocean of mockery and hate. Mocking MLK Jr's lessons on hate. "Gre
 
 ### Mueller coming  
 
-The Reddit society adopted chanting like MAAGA, such as The Wire TV show fiction phrase taken to "Mueller coming" to give payback on Trump. Reacting to every rumor of Trump impeachment over Russia issues.
+The Reddit society adopted chanting like MAGA, such as The Wire TV show fiction phrase taken to "Mueller coming" to give payback on Trump. Reacting to every rumor of Trump impeachment over Russia issues.
 
 Social media did not stand up and shut down entertainment and CALL for. There are people who telephone politicians, representatives, but not a sustained public display that We The People were harmed by Russia and Trumpism and wanted the removal - not on the scale of other social media events like major football games or the release of a major new video game - or outage of a social media platform.
 
-Donald Trumpdraws haters into reaction, exploits hate mindsets. People seem to drain away any idea of bottom-up progress. The society in total really needs a morality preacher, a MLK Jr. Donald Trump is a force of hate and dehumanization. Worship the rich and wealthy, worship power attraction of Donald Trump. A MLK jr or Malala (Pakistan) force.  Jen Senko March 2016, before November 2016, film was not that rise - and it should have been. Jen Senko, the baby boomer who stood up to Fox News, did not get the attention that the topic needed. Just like social media didn't stand for sustained Entertainment "The Apprentice" criticism.
+Donald Trump draws haters into reaction, exploits hate mindsets. People seem to drain away any idea of bottom-up progress. The society in total really needs a morality preacher, a MLK Jr. Donald Trump is a force of hate and dehumanization. Worship the rich and wealthy, worship power attraction of Donald Trump. A MLK jr or Malala (Pakistan) force. Jen Senko March 2016, before November 2016, film was not that rise - and it should have been. Jen Senko, the baby boomer who stood up to Fox News, did not get the attention that the topic needed. Just like social media didn't stand for sustained Entertainment "The Apprentice" criticism.
 
 1. [Carl Sagan on Dumb and Dumber year 1995](/Quotes_Pile/Carl_Sagan_Quotes.md)
 2. Neil Postman, entertaining ourselves to death politics of Ronald Reagan and I vividly remember my high school classes in the 2nd term of Ronald Reagan in 1985. The celebrity charm and worship. Rick Roderick in 1993 saw this with his Duke University students looking back a few short year after... how it was such a Hyper Real social experience.
@@ -114,7 +114,7 @@ Sponge Bob... https://www.wendysueswanson.com/fast-paced-media-and-4-year-olds-c
 
 Monday November 10, 2025 situation    
 
-I agree, "We The People" have not stood up to Fox News (support Jen Senko), we did not stand up to the media addiction / Rescue MAGA / Russian information war. Putin won. People are entertained by Trump, entertainment wins. "No Kings" expressed emotion but it did not present a plan to take on Surkov information warfare / IRA / Fox News addiction / media ecology crisis. People don't even recognize we are in Neil Postman's 1985 book "Amusing Ourselves To Death" situation around a entertiner (Realty TV The Apprentice). People are standing up to name-call and insult Trump (fat, diaper poop, orange skin, speaks funny, all caps Twitter, idiot, dumb, stupid, moron). None of this addresses Surkov information warfare since year 2013. People are inside the simulation, not calling out the origins of the simulation.
+I agree, "We The People" have not stood up to Fox News (support Jen Senko), we did not stand up to the media addiction / Rescue MAGA / Russian information war. Putin won. People are entertained by Trump, entertainment wins. "No Kings" expressed emotion but it did not present a plan to take on Surkov information warfare / IRA / Fox News addiction / media ecology crisis. People don't even recognize we are in Neil Postman's 1985 book "Amusing Ourselves To Death" situation around a entertainer (Realty TV The Apprentice). People are standing up to name-call and insult Trump (fat, diaper poop, orange skin, speaks funny, all caps Twitter, idiot, dumb, stupid, moron). None of this addresses Surkov information warfare since year 2013. People are inside the simulation, not calling out the origins of the simulation.
 
 https://old.reddit.com/r/politics/comments/1otiwkw/senator_who_caved_on_shutdown_says_standing_up_to/
 
@@ -133,7 +133,7 @@ Why isn't social media, Reddit / Bluesky / Lemmy / Mastodon, calling every 6 hou
 
 https://old.reddit.com/r/Music/comments/1p6h2gs/taylor_swift_branded_a_coward_for_staying_silent/
 
-Front page of Reddit. People calling out the icons they fixate on, status symbols, for not standing up. When did Reddit start a "Day 25 of x until Trump is impeached / removed / Fox News understood as fiction. Cult and fiction addiction problem in USA addressed" posting every 12 hours? People are more concerned about kitten photos, Formula 1 races, and Nintendo Switch 2025 vs. Steam hardware 2025. Trump and MAGA is a global threat to humanity. Russia winning an information war is a threat to all humanism, it is self-harm to even domestic Russia what Surkov unleashed. 
+Front page of Reddit. People calling out the icons they fixate on, status symbols, for not standing up. When did Reddit start a "Day 25 of x until Trump is impeached / removed / Fox News understood as fiction. Cult and fiction addiction problem in USA addressed" posting every 12 hours? People are more concerned about kitten photos, Formula 1 races, and Nintendo Switch 2025 vs. Steam hardware 2025. Trump and MAGA is a global threat to humanity. Russia winning an information war is a threat to all humanism, it is self-harm to even domestic Russia what Surkov unleashed.
 
 &nbsp;
 
