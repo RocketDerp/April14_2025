@@ -478,3 +478,9 @@ https://old.reddit.com/r/ProgressiveHQ/comments/1qgaclu/i_wouldnt_believe_it_mys
 <img width="940" height="430" alt="image" src="https://github.com/user-attachments/assets/eef85434-5308-480b-8754-517eb9823a02" /> Using long-form Reddit to mimic and behave like Musk Twitter (richest man in the world) directs. Short-message addicts. This Reddit comment and the replies to it: pure simulation of resistance. "Cult", "Brainwashed", but won't even link Jen Senko's year 2015 / 2016 film! This is hyper normalizing the situaiton, just turning Trump MAGA cult into a throw-away comment! THIS IS NOT RESISTING! Cult deprogramming needs to be taken seriously. Education does not magically get into adult minds, *We The People* need to be the soldiers of teaching and troops of education to RESCUE the USA from the Kremlin Surkovian cults! https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad
 
 Social post { https://Autistics.Life/@RoundSparrow/115917320971535012 https://bsky.app/profile/roundsparrow.bsky.social/post/3mcpobnclik2z }
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qgaclu/i_wouldnt_believe_it_myself_if_i_wasnt_witnessing/o0b0w0l/
+
+<img width="992" height="503" alt="image" src="https://github.com/user-attachments/assets/9397de5c-0cf1-4d5d-a3ae-b119203ccd0c" /> This is not RESISTING PUTIN'S INFORMATION WARFARE! This is declaring Putin as the dominating male winner. This is a simulation of resistance. Wasting free time and spare time on Reddit making extremely low-effort tiny-short comments! This has been GOING ON FOR OVER TEN YEARS AND SEVEN MONTHS!!! Endless low-effort commenting addicts! Reddit audience is OWNED PWNED mentally into tiny-short looping, endlessly commenting! In a cage... mentally!
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mcppbati6k2p https://autistics.life/@RoundSparrow/115917392014585530 }
