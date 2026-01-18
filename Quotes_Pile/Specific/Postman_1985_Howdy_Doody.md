@@ -11,7 +11,7 @@ Trump as entertainment, Howdy Doody. Tony Clifton acts entertain EVERYONE who mo
 
 Entertainment President, Ronald Reagan, was second term in 1985.
 
-"All that has happened is that the public has adjusted to incoherence and been amused into indifference." - 1985 (second term in office, sustained entetained society USA).
+"All that has happened is that the public has adjusted to incoherence and been amused into indifference." - 1985 (second term in office, sustained entertained society USA).
 
 &nbsp;
 
