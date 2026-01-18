@@ -13,9 +13,9 @@ Peter Pomerantsev, Nothing Is True and Everything Is Possible: The Surreal Heart
 
 https://youtu.be/5Au332OG-M4?t=334
 
-"imagine if it was all controled by the Pentagon"
+"imagine if it was all controlled by the Pentagon"
 
-"Incredibly coreographed from the center"
+"Incredibly choreographed from the center"
 
 &nbsp;
 
