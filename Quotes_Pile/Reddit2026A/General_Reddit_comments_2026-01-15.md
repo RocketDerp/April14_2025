@@ -684,3 +684,15 @@ Slogans and meme-think. Twitter-thinking.
 https://old.reddit.com/r/nottheonion/comments/1qfs3xb/reddit_mod_demands_to_be_treated_as_celebrity/o071188/
 
 yes
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qfoqvy/buttigieg_in_a_country_that_amended_its/o06jlul/
+
+Not going to get there with tiny-short commenting. For one, why isn't Dr. Bandy X Lee and her October 3, 2017 book not being commented more than "Epstein"? Dr Lee's book directly addresses the badness and hate that Trump inspires, all of MAGA hundreds of millions of people. Without addressing the mental health issues of MAGA fandom, how can girls be protected from Epstein revelations? If anything, MAGA takes inspiration and has made Epstein a role model (like Vince Gilligan says about bad guys at his February 15, 2025 writers guild speech).
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qfoqvy/buttigieg_in_a_country_that_amended_its/o06rgkr/
+
+3 month Reddit account. Referenced Bill Moyers...
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qfoqvy/buttigieg_in_a_country_that_amended_its/o06v7jf/
+
+It would be really so much better of an off-Reddit citation and researched list of examples was popular...
