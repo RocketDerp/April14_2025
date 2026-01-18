@@ -1289,3 +1289,32 @@ Longer Reddit account, back to Arab Spring 2010 creation timeframe.
 https://old.reddit.com/r/worldnews/comments/1qgheme/russia_welcomes_trumps_tariffs_on_nato_allies/o0chhon/
 
 People seem entirely avoidant and unable to turn to nonfiction serious information sources. Dr. Bandy X Lee's October 3, 2017 book is ignored by Reddit commenting community. Dr. Lee's names and book quotes should be MORE FREQUENT than "Epstein" assertions! But... crickets
+
+https://old.reddit.com/r/worldnews/comments/1qgheme/russia_welcomes_trumps_tariffs_on_nato_allies/o0ccb4s/
+
+https://old.reddit.com/r/worldnews/comments/1qgheme/russia_welcomes_trumps_tariffs_on_nato_allies/o0cdo3x/
+
+7 month account
+
+https://old.reddit.com/r/worldnews/comments/1qgheme/russia_welcomes_trumps_tariffs_on_nato_allies/o0ch3c5/
+
+https://old.reddit.com/r/worldnews/comments/1qgheme/russia_welcomes_trumps_tariffs_on_nato_allies/o0ch5gz/
+
+https://old.reddit.com/r/worldnews/comments/1qgheme/russia_welcomes_trumps_tariffs_on_nato_allies/o0ciqal/
+
+https://old.reddit.com/r/worldnews/comments/1qgheme/russia_welcomes_trumps_tariffs_on_nato_allies/o0citk8/
+
+https://old.reddit.com/r/worldnews/comments/1qgheme/russia_welcomes_trumps_tariffs_on_nato_allies/o0ckzlx/
+
+https://old.reddit.com/r/worldnews/comments/1qgheme/russia_welcomes_trumps_tariffs_on_nato_allies/o0cmab6/
+
+https://old.reddit.com/r/worldnews/comments/1qgheme/russia_welcomes_trumps_tariffs_on_nato_allies/o0cmj7b/
+
+https://old.reddit.com/r/worldnews/comments/1qgheme/russia_welcomes_trumps_tariffs_on_nato_allies/o0cn3zt/
+
+https://old.reddit.com/r/worldnews/comments/1qgheme/russia_welcomes_trumps_tariffs_on_nato_allies/o0coj4e/
+
+<img width="1028" height="707" alt="image" src="https://github.com/user-attachments/assets/61abe10c-1bb0-4dc6-8aa5-83f6a6208a55" />
+
+Hence why this GitHub. If we all, We The People, every person age 12 to age 120... don't go back and re-learn forgotten Marshall McLuhan understandings... 
+
