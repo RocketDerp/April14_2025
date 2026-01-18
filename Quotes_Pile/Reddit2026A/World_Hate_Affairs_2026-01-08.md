@@ -1411,3 +1411,23 @@ Media ecology.
 https://old.reddit.com/r/TrendoraX/comments/1qgfamz/french_tv_reports_that_ukraine_stopped_sharing/o0c67te/
 
 Asserting Dr. Bandy X Lee and removing Trump and addressing the mental health on a national level, MAGA level, would be good for the whole world. And likely address cult issues, through education, of other nations. Even benefit The People of domestic Russia in how to deal with Putin.
+
+https://old.reddit.com/r/MurderedByWords/comments/1qggbsb/not_shooting_blanks/o0c7yq1/
+
+Information overload symptoms abound. So much junk information and falsehoods, so much fiction being created, people can't keep up with reality and comprehending important serious issues. The rural population of the USA has weakened by Rupert Murdoch's Fox News and other fiction-based news networks. The Internet Research Agency since March 2013 has exploited this educational weakness that Fox News fed since October 7, 1996.
+
+* "Because what were these concepts anyway like… “man” and “world” except concepts by which the world was regulated, policed, mapped and controlled. All four of which are becoming more and more difficult to do under this situation of rapidly increasing complexity – which I have mentioned many times – and I mean system complexity at every level. Rapid increase in information technologies" - Texan Rick Roderick, Duke University https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
+
+https://old.reddit.com/r/MurderedByWords/comments/1qggbsb/not_shooting_blanks/o0cvcmi/
+
+Constantly focusing on competition. Conquest. Sports-think, sports-mindsets, sports game mentality, gaming.
+
+https://old.reddit.com/r/MurderedByWords/comments/1qggbsb/not_shooting_blanks/o0c6n61/
+
+Twitter-length, Musk Twitter-think. Short messages, banalize serious topics like Musk does to trivialize and make complex topics seem simple-easy. Short little messages, ignoring Reddit allows long-form messaging and quotes from nonfiction books, etc
+
+https://old.reddit.com/r/MurderedByWords/comments/1qggbsb/not_shooting_blanks/o0c5pk7/
+
+4-month Reddit account.
+
+https://old.reddit.com/r/MurderedByWords/comments/1qggbsb/not_shooting_blanks/o0c9av2/
