@@ -89,3 +89,7 @@ YES! President Tony Clifton. NYC Trump NYC SNL Andy Kaufman screenplay and techn
 https://old.reddit.com/r/goodnews/comments/1qfsfad/demonstrators_in_nuuk_greenland_reach_the_area_in/o07by31/
 
 Trump fandom / Trump fanatic. Elon Musk Twitter platform commenting style on Reddit. Short-message to turn Trump into the master leader of BINGO card game. Everything is fun and games with Donald Trump as center of all USA media attention. Never boring content, always stimulating the Reddit audience. Messages designed to encourage audience to view Trump as always entertaining and engaging when it comes to video content and mockery.
+
+https://old.reddit.com/r/minnesota/comments/1qfpdsm/furry_fox_taken_down_hard_in_minnesota_during_ice/o06ihnp/
+
+1 month Reddit account. Twitter-short messaging that this is all entertainment created by Trump. "LOL" laugh track for audience. Individual being crushed by the machine state systems is A-OK as long as Reddit audience gets to watch the content. The addiction to Trump antics leadership has GONE ON FOR OVER TEN YEARS AND SEVEN MONTHS, endless mob mentality of chasing down Trump's content. The nation can not resist and face up to Neil Postman's media ecology self-awareness teachings. CONTEXT_ASSERTION: September 10, 2025 https://Time.com/7313999/neil-postman-trump-prediction/
