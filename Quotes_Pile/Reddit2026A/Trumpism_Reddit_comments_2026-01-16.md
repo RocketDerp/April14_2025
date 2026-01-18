@@ -81,3 +81,8 @@ Social post { https://autistics.life/@RoundSparrow/115912310476853073 https://bs
 https://old.reddit.com/r/worldnews/comments/1qfls39/macron_says_trump_tariff_threat_over_greenland/o05xxgd/
 
 Fandom of Trump. Cheering on more nonsense and chaos against EU / USA / NATO to support Putin's plans. Always adding more mockery / satire / surreal / sarcasm / absurd to the Surkov students outcomes. Elon Musk Twitter short-message thinking banality. Banal mindsets to treat Trump as the most amazing source of amusement and total mockery show.
+
+https://old.reddit.com/r/comedyheaven/comments/1qfhgx1/milk/o04pu9k/
+
+YES! President Tony Clifton. NYC Trump NYC SNL Andy Kaufman screenplay and techniques. Reddit audiences eat up Trump's performance, play, theater methods.  The fandom of mocking, the crowds that are attracted to a mockery leader... are the very mechanism of power! Trump is DFW's Infinite Jest! Walking talking mocking bewildering Tony Clifton evolved performance artist. "The ART of the deal" is artistic Andy Kaufman realizations of status symbols, icons, and media. Trump is running circles around Reddit one-sentence learners.
+
