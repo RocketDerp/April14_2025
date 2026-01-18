@@ -800,3 +800,26 @@ https://old.reddit.com/r/worldnews/comments/1qg6wl6/macron_to_seek_use_of_eu_ant
 OPERA_A: Lyrics... "You've been screwed AGAIN. If you let them do it to *you*...you've got *yourself to blame*. It's you who feels the pain. It's you who takes the shame!" https://www.youtube.com/watch?v=L0bqmIBczJI 54,998 views October 23, 2008 (I shared this YouTube song back in the Arab Spring revolution year 2010 to Tunisia and Algeria friends via Internet). "Should be more careful what *I say*", "I'm being beaten every day!"
 
 Social post { https://autistics.life/@RoundSparrow/115917593367274202 https://bsky.app/profile/roundsparrow.bsky.social/post/3mcps54fiic2g }
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qge4pm/and_there_it_isprofessional_right_wing/o0bnual/
+
+We have let Rupert Murdoch's media empire program the nation mindsets. We let Putin's Internet Research Agency manipulate minds. Right on Reddit: March 2, 2018 https://www.BBC.com/news/technology-43255285 - but you will not encounter any people in USA population who can discuss names of organizations, names of the organizers, dates, time-frames, and the behavior of a manipulated person! Instead, you see social media content addicts treating this all as entertainment and amusement. Eating right out of the Surkovian screenplay systems!
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qge4pm/and_there_it_isprofessional_right_wing/o0bmnvv/
+
+Deportation, book burning, book banning, media banning society. In Germany in 1933, they didn't have "ban" buttons to silence people and their writings. They had to take flame to paper to remove information that confronted the egoism / egomania.
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qge4pm/and_there_it_isprofessional_right_wing/o0bm6iz/
+
+Reddit audience THRILLED. Gold content! Golden video recordings of MAGA and Trump! Media addiction to Trump are what has driven the nation into this terrible mental state and values. Twitter-length short-thinking.  "GOLD!!!" Low-effort mocking comments are what addicts crave, over and over, hour after hour, avoiding serious books and authors. 
+
+Russia and the **Menace of Unreality**   
+How Vladimir Putin is revolutionizing information warfare   
+Peter Pomerantsev   
+September 9 2014, 3:42 PM ET   
+
+“If previous authoritarian regimes were three parts violence and one part propaganda,” argues Igor Yakovenko, a professor of journalism at the Moscow State Institute of International Relations, “this one is **virtually all propaganda and relatively little violence**. Putin only needs to make a few arrests—and then amplify the message through his total control of television.”
+
+https://old.reddit.com/r/AdviceAnimals/comments/1qgb6e4/musk_is_going_all_in_financing_gop_for_midterms/o0azsfz/
+
+All the replies in this Reddit media thread are twitter-length, avoiding long-form Reddit. Avoiding author names, book quotes, off-Reddit links, just mocking away about the out-group problem. We have let Rupert Murdoch's media empire program the nation mindsets. We let Putin's Internet Research Agency manipulate minds. Right on Reddit: March 2, 2018 https://www.BBC.com/news/technology-43255285 - but you will not encounter any people in USA population who can discuss names of organizations, names of the organizers, dates, time-frames, and the behavior of a manipulated person! Instead, you see social media content addicts treating this all as entertainment and amusement. Eating right out of the Kremlin's hands. 
