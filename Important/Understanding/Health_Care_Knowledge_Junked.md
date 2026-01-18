@@ -210,3 +210,12 @@ https://old.reddit.com/r/science/comments/1qboimo/physicians_see_1_in_6_patients
 Howard Bloom used this as an example (medical staff disliking people) in his August 2000 book, Y2K book. Mass Mind / Global brain behaviors.
 
 * "Robert Sapolsky discovered how wild baboons who couldn’t gain status in their tribe were flooded with hormonal poisons which killed off their brain cells, made their hair fall out, invited illness to come in and stay a while, and threatened their very lives. Humans are apparently the same. **Investigations have revealed that the hospital patients who need help the most — those submerged in depression — are the least likely to receive their doctors’ and nurses’ tender, loving attention**. Careful scrutiny indicates that the sufferers are unwittingly triggering their own rejection. **Depressed patients whine, snarl, or turn their faces to the wall in ways that alienate their doctors and nurses**. They upset their caregivers through every means from facial expression and verbal intonation to body language. An individual selectionist would explain that such self-damaging behavior must be the result of an adaptive response — one with a hidden benefit. The patient’s death might boost the genetic success of close relatives by relieving them of a burden or by enriching them with insurance and bequests. In addition, by subtly doing themselves in the patients might benefit friends who could return the favor to their family someday." - Global Brain: The Evolution of Mass Mind from the Big Bang to the 21st Century. by Howard Bloom
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/science/comments/1qgiwcm/younger_americans_have_grown_up_during_a_more/
+
+Mass Psychosis. Gullible parenting who believe and put faith in Elon Musk and Rupert Murdoch to educate children as role models.
+
