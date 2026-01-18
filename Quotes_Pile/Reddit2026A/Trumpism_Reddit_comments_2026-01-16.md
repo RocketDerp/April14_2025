@@ -106,3 +106,30 @@ https://old.reddit.com/r/BuyFromEU/comments/1qg2s1k/eu_set_to_halt_us_trade_deal
 
 Trump "Politics" work when people can't stop being entrained. People become ignorant. Trump sucks all the oxygen from the room, all education halts and people spend all their time on Reddit commenting about Trump. It is sickening, I am incredibly sick that people will not assert { MLK Jr, Malala, Carl Sagan, Education for Adults, Teaching, Neil Postman } and stop this. Fox News was a subset of society in year 2012, but Putin's Internet Research Agency made every social media addict behave even WORSE than Fox News since year 2013. People will not turn to nonfiction serious books by Dr. Bandy X Lee and SERIOUSLY discuss Trump **cult mental health problems** of the MAGA nation.
 
+https://old.reddit.com/r/StockMarketIndia/comments/1qfz0ms/tit_for_tat/o08p8t5/
+
+All of Reddit is meme-washing Trump. Fandom of Trump for "LOL cow" milking. Amusement and entertainment fandom of Trump antics. Instead of REMOVING Trump with online protest, people are cheering: Celebration of Ignorance with enormously influential media, Reddit commenting media. **Reddit commenting is a FAN CLUB of sports-think Twitter-think ignorance that Trump leads**, a FANDOM of Trump club.
+
+* “Science is more than a body of knowledge; it is a way of thinking. I have a (year 1995) foreboding of an America in my children’s or grandchildren’s time — when the United States is a service and information economy; when nearly all the key manufacturing industries have slipped away to other countries; when awesome technological powers are in the hands of a very few, and no one representing the public interest can even grasp the issues; when the people have lost the ability to set their own agendas or knowledgeably question those in authority; when, clutching our crystals and nervously consulting our horoscopes, our critical faculties in decline, unable to distinguish between what feels good and what’s true, we slide, almost without noticing, back into superstition and darkness. The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the **30-second** sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but especially a kind of [celebration of ignorance](https://www.youtube.com/watch?v=wcY-x1VuWtE). As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning — not just of science, but of anything — are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995, page 59
+
+https://old.reddit.com/r/StockMarketIndia/comments/1qfz0ms/tit_for_tat/o09je60/
+
+Yha. The worst black hole in the world is Trump. People on Reddit can't even see their own worship of Trump and how they are covering for him out of compulsive media addiction to Trump content / Trump the social media influencer. Popularity == Trump.
+
+https://old.reddit.com/r/StockMarketIndia/comments/1qfz0ms/tit_for_tat/o08okoc/
+
+Pakistan? Malala in the UK running London?
+
+https://old.reddit.com/r/StockMarketIndia/comments/1qfz0ms/tit_for_tat/o08ojkm/
+
+Jokes that join in with the Putin joke of Surkov **students** since year 2013. Surkov won. BBC, UK, Adam Curtis. NYE 2014. A dozen years ago. British Broadcasting Corporation. BBC. https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html
+
+https://old.reddit.com/r/StockMarketIndia/comments/1qfz0ms/tit_for_tat/o08rj11/
+
+Every social media user. Every smartphone user. Every touch device user is in their own bubble. It started to emerge shortly after the Apple iPhone in June 2009. It was named and described in year 2011. 
+
+* "The term filter bubble was coined by internet activist Eli Pariser circa 2010. In Pariser's influential book under the same name, The Filter Bubble (2011), it was predicted that individualized personalization by algorithmic filtering would lead to intellectual isolation and social fragmentation" https://en.wikipedia.org/wiki/Filter_bubble
+
+Before year 2007, people were not walking around in public staring into screens. They weren't looking at images on digital screens before year 2007 in public ALL THE TIME. People at every stoplight IN PUBLIC weren't staring into social media memes before year 2007!!! ... "The term filter bubble was coined by internet activist Eli Pariser circa 2010.'
+
+* "The first iPhone was introduced by Steve Jobs at Macworld on January 9, 2007, but it went on sale exclusively with AT&T (then Cingular) on June 29, 2007, at Apple Stores and select AT&T locations, kicking off massive lines and marking Apple's major entry into mobile phones on the carrier's 2G network." - Google Search summary, 2026-01-18 early morning Sunday USA
