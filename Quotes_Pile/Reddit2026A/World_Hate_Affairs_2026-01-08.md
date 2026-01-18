@@ -1142,3 +1142,9 @@ https://old.reddit.com/r/worldnews/comments/1qg3ypf/leaders_of_france_uk_and_swe
 <img width="1017" height="414" alt="image" src="https://github.com/user-attachments/assets/eb590ca4-330b-45b4-b40f-bbaa9004cf05" /> yes. it is so sickening, making everyone sick in USA that nobody asserts goodness. Since June 16, 2015 - it has been downhill day after day. People who are so entertained and amused at Trump that they do not see and defend against the Internet Research Agency. Sickening mindsets, poisoned thinking. Since October 3, 2017 we have Dr. Bandy X. Lee's books to quote and assert. But people are so sick they actually crave more and more Putin Kremlin bullshit (Trump craves Putin shit too).
 
 Social post { https://autistics.life/@RoundSparrow/115916357532456009 https://bsky.app/profile/roundsparrow.bsky.social/post/3mcpak346gk2d }
+
+https://old.reddit.com/r/worldnews/comments/1qg3ypf/leaders_of_france_uk_and_sweden_respond_to_trumps/o09s6fw/
+
+<img width="1012" height="865" alt="image" src="https://github.com/user-attachments/assets/2b4c020b-0c4c-4928-8fdd-6491b715521c" /> Loves it. Loves the Trump outcomes, Putin IRA outcomes. Loves it that USA is so ignorant and stupid about Russian information warfare since March 2013. Audience *Loves* how amusing and engaging it is on social systems to comment about the other comments and how ignorant everyone has become with meme systems.
+
+Social post { https://autistics.life/@RoundSparrow/115916427592958370 https://bsky.app/profile/roundsparrow.bsky.social/post/3mcpbjxhia22e }
