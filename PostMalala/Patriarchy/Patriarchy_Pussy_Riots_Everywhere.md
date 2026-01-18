@@ -2,9 +2,9 @@
 
 Little Fires Everywhere, The Fire Inside, Post-Malala [Pussy Riots](https://youtu.be/Bp-KeVBNz0A)... Don't play stupid, support Malala's education and Malala's literacy and Malala's teaching emphasis!
 
-Power of Myth, year 1988, George Lucas filmed and hosted at Skywalker Ranch: Lessons for science fiction audiences about the science fiction Levant triology.
+Power of Myth, year 1988, George Lucas filmed and hosted at Skywalker Ranch: Lessons for science fiction audiences about the science fiction Levant trilogy.
 
-Before Malala's birth, the Star Wars audience science ficiton media empire took on the Levant monomyth science fiction empire.
+Before Malala's birth, the Star Wars audience science fiction media empire took on the Levant monomyth science fiction empire.
 
 &nbsp;
 
@@ -43,7 +43,7 @@ MOYERS: And in the Greek tradition there were images, legends, myths of virgin b
 
 ### Correcting Campbell
 
-Rarely do I get to correct / empahsize points about Joseph Campbell's writings / interviews.
+Rarely do I get to correct / emphasize points about Joseph Campbell's writings / interviews.
 
 Isaiah 7:14 (authorship: https://en.wikipedia.org/wiki/Isaiah )  mentions the virgin birth concept. Matthew 1:22-23 (authorship: https://en.wikipedia.org/wiki/Gospel_of_Matthew ) also. 
 
@@ -51,7 +51,7 @@ Contradicting Campbell: "the only one in which the virgin birth appears is the G
 
 Year 1987 Joseph Campbell didn't have modern Google Search to easily fact-check.
 
-Now it is possible Campbell was making a more subtle point that few under my radar / over my head. But still interesting to point out verses that mention vigin birth here. From a media ecology, redundacy of monomyth tropes / monomyth opcodes perspective. Also point out that this was at Skywalker Ranch and "Luke" was on the Skywalker mind of Campbell ;)
+Now it is possible Campbell was making a more subtle point that few under my radar / over my head. But still interesting to point out verses that mention virgin birth here. From a media ecology, redundancy of monomyth tropes / monomyth opcodes perspective. Also point out that this was at Skywalker Ranch and "Luke" was on the Skywalker mind of Campbell ;)
 
 &nbsp;
 
