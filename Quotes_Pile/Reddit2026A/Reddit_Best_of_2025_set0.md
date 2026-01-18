@@ -22,7 +22,7 @@ This Reddit comment:
 
 * "Kamala Harris was born on October 20, 1964, and as of her birthday in 2025, she is 61 years old. Dr. Bandy X. Lee was born on May 27, 1970, making her approximately 55 years old as of early 2026. Therefore, Kamala Harris is roughly 5 years and 7 months older than Dr. Bandy Lee." - Google Search summary 2026-01-19 afternoon USA
 
-* One more assertion to add to the women symbolism conflicts: **abortion, birth control**, forced birth, gender in marriages, etc. MAGA movement is talking about changing fertility behaviors of men - except maybe to allow adult men to have sex with girls; to be reduce consent laws from age 16 down to age 12 or age 13.
+* One more assertion to add to the women symbolism conflicts: **abortion, birth control**, forced birth, gender in marriages, etc. MAGA movement is generally *not* talking about changing fertility behaviors of men - except maybe to allow adult men to have sex with younger girls; to reduce consent laws from age 16 down to age 12 or age 13. Male domination of women is a huge MAGA social focus.
 
 Maybe, the male Trump vs. previous 3 named women (Harris, Clinton, Lee)... and factor of Levant God male domination (childhood indoctrination) and Rupert Murdoch male god programming of audiences (We The People) should be factored in... as very poor people all over the world are influenced by Clergy Televangelism media publishers like Murdoch [and Musk](https://www.lemonde.fr/en/international/article/2024/08/13/elon-musk-s-ambition-repopulating-the-planet-and-destroying-the-woke-virus_6714239_4.html).
 
