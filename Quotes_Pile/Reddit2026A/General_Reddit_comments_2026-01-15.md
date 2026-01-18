@@ -826,7 +826,7 @@ All the replies in this Reddit media thread are twitter-length, avoiding long-fo
 
 https://old.reddit.com/r/AdviceAnimals/comments/1qgb6e4/musk_is_going_all_in_financing_gop_for_midterms/o0b6m2v/
 
-Reddit user get their mind blown at media systems... audience on Reddit can't believe that purchasing Twitter has resulted in audience that worships Twitter cloud computing Daddy-figure (Musk). That crowd that believes Jesus in the sky is there to worship also worships male leaders { Murdoch, Putin, Trump, Musk, Tucker Carlson, etc }. And ]is programmed by The Bible to dislike women](/PostMalala/Patriarchy/Patriarchy_Pussy_Riots_Everywhere.md) via parental indoctrination at a very young age (Santa, Christmas indoctrination to male leaders in cloud messaging systems at age 1).
+Reddit users get their mind blown by media systems... audience on Reddit can't believe that purchasing Twitter has resulted in audience that worships Twitter cloud computing Daddy-figure (Musk). That crowd that believes Jesus in the sky is there to worship also worships male leaders { Murdoch, Putin, Trump, Musk, Tucker Carlson, etc }. And ]is programmed by The Bible to dislike women](/PostMalala/Patriarchy/Patriarchy_Pussy_Riots_Everywhere.md) via parental indoctrination at a very young age (Santa, Christmas indoctrination to male leaders in cloud messaging systems at age 1).
 
 https://old.reddit.com/r/sports/comments/1qgm7ql/leave_greenland_alone_heckler_shouts_during_us/o0dfgtp/
 
