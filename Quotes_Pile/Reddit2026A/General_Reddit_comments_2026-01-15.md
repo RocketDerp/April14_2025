@@ -727,3 +727,16 @@ A reply to this message says "complicit". Social media meme addicts are complici
 
 https://old.reddit.com/r/StockMarketIndia/comments/1qfz0ms/tit_for_tat/o090c54/
 
+https://old.reddit.com/r/worldnews/comments/1qg3ypf/leaders_of_france_uk_and_sweden_respond_to_trumps/o09ufew/
+
+https://old.reddit.com/r/worldnews/comments/1qg3ypf/leaders_of_france_uk_and_sweden_respond_to_trumps/o09njob/
+
+9-month Reddit account. Doing the social media "ask questions" engagement technique. Short Tweet-thinking Twitter-length comment. Banalzing Russian / Putin / Internet Research Agency topic. No author names, no off-Reddit URL, no book title, no quotes from a nonfiction book. Keeping everyone glued to their touch device and avoiding nonfiction books on paper. ANYTHING and EVERYTHING to avoid this Reddit-specific nonfiction: https://www.bbc.com/news/technology-43301643
+
+https://old.reddit.com/r/worldnews/comments/1qg3ypf/leaders_of_france_uk_and_sweden_respond_to_trumps/o09q2i8/
+
+<img width="1005" height="347" alt="image" src="https://github.com/user-attachments/assets/470b3841-fe84-4ed0-a629-9951266a4b4f" /> Russia, mind control device. These are Twitter-length comments to get people into a banal Tweet-think mindset. ANYTHING and EVERYTHING to avoid this Reddit-specific nonfiction: https://www.BBC.com/news/technology-43301643
+
+If you talk to a Reddit audience member about their family and friends and bring up Fox News HDTV as a "mind control device" and how the audience of Fox News television behaves... they will often declare that it is a problem. And if you talk to a Reddit cultist about Facebook audience cult behavior, they will often take the matter seriously> But Reddit being invaded by the Internet Research Agency, they are unable to see the peers around them on Reddit media platform.
+
+Social post { https://autistics.life/@RoundSparrow/115916400278506526 https://bsky.app/profile/roundsparrow.bsky.social/post/3mcpb5sd5mk2d }
