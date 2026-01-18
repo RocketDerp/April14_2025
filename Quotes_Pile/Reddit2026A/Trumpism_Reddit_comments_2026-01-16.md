@@ -197,3 +197,7 @@ And no White House has EVER had so much media audience. Audience participation, 
 https://old.reddit.com/r/pics/comments/1qgja2p/no_ones_looking_rubio/o0cp8jd/
 
 What's gong on here is a fake image. A cult of Trump facial and body images on Reddit. Fright to the top of the front page very quickly. Sexual fake images of Trump. The "Q" PizzaGate sex content audiences, Epstein sex fandom of Trump and other leaders. Entertainment culture USA, Reddit audience. Celebrity TV famous icons doing sex acts on camera, no matter how old.
+
+https://old.reddit.com/r/pics/comments/1qgja2p/no_ones_looking_rubio/o0crnij/
+
+Mind-fucking Reddit audiences wit unreality warfare. Surkov won.
