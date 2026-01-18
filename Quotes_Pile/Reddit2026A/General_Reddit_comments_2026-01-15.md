@@ -760,3 +760,9 @@ https://old.reddit.com/r/PublicFreakout/comments/1qg8439/footage_captures_cow_vi
 Global monomyth crisis. Science fiction fandom crisis. It's about fiction storytelling vs. nonfiction. Addiction to fiction drives media consumers all over the world. Adults compulsively acting out their fiction storytelling that they were given as children by parents.
 
 * “Half the people in the world think that the metaphors of their religious traditions, for example, are facts. And the other half contends that they are not facts at all. As a result we have people who consider themselves believers because they accept metaphors as facts, and we have others who classify themselves as atheists because they think religious metaphors are lies.” ― Joseph Campbell, Thou Art That: Transforming Religious Metaphor
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qgaclu/i_wouldnt_believe_it_myself_if_i_wasnt_witnessing/o0azxfc/
+
+People do not grasp or learn from nonfiction serious books. People do not understand. Cults, media cults, Fox News HDTV cults. Church science fiction Bible quotes (today is Sunday as I write here on GitHub). We are not doing cult deprogramming!
+
+* “It is a truism that almost any sect, cult, or religion will legislate its creed into law if it acquires the political power to do so, and will follow it by suppressing opposition, subverting all education to seize early the minds of the young, and by killing, locking up, or driving underground all heretics.” ― Robert A. Heinlein, Time Enough for Love. June 1973
