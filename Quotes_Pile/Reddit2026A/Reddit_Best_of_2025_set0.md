@@ -24,7 +24,7 @@ This Reddit comment:
 
 * One more assertion to add to the women symbolism conflicts: **abortion, birth control**, forced birth, gender in marriages, etc. MAGA movement is talking about changing fertility behaviors of men - except maybe to allow adult men to have sex with girls; to be reduce consent laws from age 16 down to age 12 or age 13.
 
-Maybe, the male Trump vs. previous 3 named women (Harris, Clinton, Lee)... and factor of Levant God male domination (childhood indoctrination) and Rupert Murdoch male god programming of audiences (We The People) should be factored in... as very poor people all over the world are influenced by Clergy Televangelism media publishers like Murdoch.
+Maybe, the male Trump vs. previous 3 named women (Harris, Clinton, Lee)... and factor of Levant God male domination (childhood indoctrination) and Rupert Murdoch male god programming of audiences (We The People) should be factored in... as very poor people all over the world are influenced by Clergy Televangelism media publishers like Murdoch [and Musk](https://www.lemonde.fr/en/international/article/2024/08/13/elon-musk-s-ambition-repopulating-the-planet-and-destroying-the-woke-virus_6714239_4.html).
 
 
 Social post { https://autistics.life/@RoundSparrow/115917824619512857 https://bsky.app/profile/roundsparrow.bsky.social/post/3mcpvfljlrc2j }
