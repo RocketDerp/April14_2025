@@ -6,4 +6,4 @@ Steven Hammer, North Dakota State University
 Published: December 18, 2011    
 "Hit by a Rock: War and Peace in the Global Village, Remixed"   
 
-SEE ALSO: (/Quotes_Pile/Specific/McLuhan_Pain_Cased_by_New_Media.md](/Quotes_Pile/Specific/McLuhan_Pain_Cased_by_New_Media.md)
+SEE ALSO: [/Quotes_Pile/Specific/McLuhan_Pain_Cased_by_New_Media.md](/Quotes_Pile/Specific/McLuhan_Pain_Cased_by_New_Media.md)
