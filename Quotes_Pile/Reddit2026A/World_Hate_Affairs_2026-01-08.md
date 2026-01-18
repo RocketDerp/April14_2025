@@ -1362,3 +1362,7 @@ Reddit messages saying Russia is good.
 
 https://old.reddit.com/r/worldnews/comments/1qgheme/russia_welcomes_trumps_tariffs_on_nato_allies/o0cri7v/
 
+https://old.reddit.com/r/worldnews/comments/1qgheme/russia_welcomes_trumps_tariffs_on_nato_allies/o0cab3q/
+
+Rapid upvoting on this comment. Mocking / Reddit mockery message culture jumped to top. Anything to change people into meme mindsets that the IRA conditioned since March 2013. AVOIDANCE OF nonfiction, off-Reddit, serious books on paper.
+
