@@ -5,9 +5,24 @@ https://old.reddit.com/r/law/comments/1odcgiw/trump_says_he_has_final_say_on_pay
 This Reddit comment:
 
 1. Blames Reddit community, the low-effort "kindergarten" level thinking that is prized on Reddit commenting section.
+
 2. Calls people "child", adopting MAGA values of name-calling as the supreme communications technique and domination of women and children that Putin / Trump / Musk / Murdoch cultivate.
+
 3. Does not in any way consider that extremely poor nations, without capitalism, had slavery to { Torah, Bible, Quran } fiction storytelling of a { Yahweh, Jesus, Allah } in the sky who watches and judges the everyday man into submission.  That the Levant science fiction trilogy spans power of every economic system for thousands of years. Fiction vs. nonfiction storytelling leadership that MAGA is driven by.
+
 4. Does not consider Rupert Murdoch media empire as a modern day father-figure in the sky who rules over society like in The Bible and Church. "The Murdoch family’s global media empire, operating through News Corp and Fox Corporation, includes a vast portfolio of news, print, and television venues: Fox News Channel, Fox Business Network, The Wall Street Journal, The New York Post, The Times (UK), The Sunday Times, The Sun (UK), The Australian, Sky News Australia, Herald Sun, The Daily Telegraph (Australia), Courier-Mail, The Advertiser (Adelaide), Barron’s, MarketWatch, Realtor .com, HarperCollins Publishers, and various local community newspapers in Australia and the US." - Google Search summary 2026-01-18 afternoon USA
+
 5. Indeed Trump is a symptom indeed! Celebration Of Ignorance. Celebration of Entertainment. Reality TV celebration by We The People. Musk Twitter celebration! Trump is a big time media star who played a "boss man" on TV has now taken over the minds that vote people into the White House. [NYC Trump, analyze with NYC **NYU Professor Neil Postman's 1985 book** about a second-term POTUS](../Specific/Postman_1985_Howdy_Doody.md).
+
+6. Nowhere does this message discuss gender situation and conflicts. The history of MALE ONLY, Father Figure slavery to { Torah, Bible, Quran } fiction storytelling of a { Yahweh, Jesus, Allah }. And how this impacted { Hillary Clinton year 2016, Kamala Harris year 2024, and WIN by male Daddy Joe Biden in 2020 }. And why is woman leader Dr. Bandy X Lee ignored since her October 3, 2017 book was published about Trump and MAGA? Why do you see so many people calling Trump { crazy, insane, lunatic, madman } and not following a GenX leader - Dr. Lee? The book is in ever USA public library, why does nobody on Reddit quote Dr. Lee's writings? Because she is a woman..? Count them: how many messages a day do you see on Reddit calling Trump some variation of "crazy" or "insane" - that DO NOT mention Dr Bandy X Lee or quote her books? Regarding Reddit community commenting, see #1 above... on this very list you are now reading.
+
+
+&nbsp;
+
+
+* "Kamala Harris was born on October 20, 1964, and as of her birthday in 2025, she is 61 years old. Dr. Bandy X. Lee was born on May 27, 1970, making her approximately 55 years old as of early 2026. Therefore, Kamala Harris is roughly 5 years and 7 months older than Dr. Bandy Lee." - Google Search summary 2026-01-19 afternoon USA
+
+Maybe, the male Trump vs. previous 3 named women (Harris, Clinton, Lee)... and factor of Levant God male domination (childhood indoctrination) and Rupert Murdoch male god programming of audiences (We The People) should be factored in... as very poor people all over the world are influenced by Clergy Televangelism media publishers like Murdoch.
+
 
 Social post { https://autistics.life/@RoundSparrow/115917824619512857 https://bsky.app/profile/roundsparrow.bsky.social/post/3mcpvfljlrc2j }
