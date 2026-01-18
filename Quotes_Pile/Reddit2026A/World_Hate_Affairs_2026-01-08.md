@@ -1136,3 +1136,9 @@ Operation Matthew 4:19 agreement...
 https://old.reddit.com/r/worldnews/comments/1qfj3m4/trump_is_making_china_not_america_great_again/o062aaq/
 
 And USA is chasing Russian values like moth to burning flame. Surkov monomtyh worked! OPERA_A https://www.youtube.com/watch?v=JG6x4MHdTWM "The Moth (Bobby Woods & Les Deux Love Orchestra Cover) - Aimee Mann \[Mr. Robot S02E12\]" .. meme addict moths, Russia mind-fucked MAGA first, Rural less-educated population who never heard of { Marshall McLuhan and Neil Postman NYC NYU } 3,081,180 views September 21, 2016
+
+https://old.reddit.com/r/worldnews/comments/1qg3ypf/leaders_of_france_uk_and_sweden_respond_to_trumps/o09rbw0/
+
+<img width="1017" height="414" alt="image" src="https://github.com/user-attachments/assets/eb590ca4-330b-45b4-b40f-bbaa9004cf05" /> yes. it is so sickening, making everyone sick in USA that nobody asserts goodness. Since June 16, 2015 - it has been downhill day after day. People who are so entertained and amused at Trump that they do not see and defend against the Internet Research Agency. Sickening mindsets, poisoned thinking. Since October 3, 2017 we have Dr. Bandy X. Lee's books to quote and assert. But people are so sick they actually crave more and more Putin Kremlin bullshit (Trump craves Putin shit too).
+
+Social post { https://autistics.life/@RoundSparrow/115916357532456009 https://bsky.app/profile/roundsparrow.bsky.social/post/3mcpak346gk2d }
