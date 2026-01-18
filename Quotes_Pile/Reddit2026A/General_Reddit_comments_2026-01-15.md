@@ -827,3 +827,27 @@ All the replies in this Reddit media thread are twitter-length, avoiding long-fo
 https://old.reddit.com/r/AdviceAnimals/comments/1qgb6e4/musk_is_going_all_in_financing_gop_for_midterms/o0b6m2v/
 
 Reddit user get their mind blown at media systems... audience on Reddit can't believe that purchasing Twitter has resulted in audience that worships Twitter cloud computing Daddy-figure (Musk). That crowd that believes Jesus in the sky is there to worship also worships male leaders { Murdoch, Putin, Trump, Musk, Tucker Carlson, etc }. And ]is programmed by The Bible to dislike women](/PostMalala/Patriarchy/Patriarchy_Pussy_Riots_Everywhere.md) via parental indoctrination at a very young age (Santa, Christmas indoctrination to male leaders in cloud messaging systems at age 1).
+
+https://old.reddit.com/r/sports/comments/1qgm7ql/leave_greenland_alone_heckler_shouts_during_us/o0dfgtp/
+
+This Reddit posting made /r/All front page in like 28 minutes.
+
+https://old.reddit.com/r/sports/comments/1qgm7ql/leave_greenland_alone_heckler_shouts_during_us/o0dci54/
+
+Trump is a world leader in:: Hate signals, Mass Dehumanizing prizing, mockery / mocking. Surkov won.
+
+https://old.reddit.com/r/sports/comments/1qgm7ql/leave_greenland_alone_heckler_shouts_during_us/o0ddviv/
+
+Short Twitter-think messages. Banalize serious important issues with Tweet-like commenting. See the reply comment too. What we are suppose to do is turn off sports games and make Dr. Bandy X Lee the most famous name in the world using social media commenting and postings. Get Dr. Bandy X Lee's October 3, 2017 book quotes everywhere until people are on the same page about MAGA mental health.
+
+https://old.reddit.com/r/sports/comments/1qgm7ql/leave_greenland_alone_heckler_shouts_during_us/o0depkm/
+
+https://old.reddit.com/r/sports/comments/1qgm7ql/leave_greenland_alone_heckler_shouts_during_us/o0dibh4/
+
+https://old.reddit.com/r/sports/comments/1qgm7ql/leave_greenland_alone_heckler_shouts_during_us/o0dilar/
+
+<img width="754" height="607" alt="image" src="https://github.com/user-attachments/assets/16b3fa6c-a730-46fe-92a6-1d15a2414350" />
+
+ANSWER: No. Understanding and comprehension are the lowest they have been since the founding of the nation nearly 250 years ago. Anti-intellectual meme-lifestyle has taken over. People are entirely avoidant of nonfiction books on paper now. Only caring about the rapid commenting on high-speed meme systems.
+
+Social post { https://autistics.life/@RoundSparrow/115918608593167479 https://bsky.app/profile/roundsparrow.bsky.social/post/3mcqajybnlk27 }
