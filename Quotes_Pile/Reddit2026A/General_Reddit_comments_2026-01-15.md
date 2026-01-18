@@ -740,3 +740,13 @@ https://old.reddit.com/r/worldnews/comments/1qg3ypf/leaders_of_france_uk_and_swe
 If you talk to a Reddit audience member about their family and friends and bring up Fox News HDTV as a "mind control device" and how the audience of Fox News television behaves... they will often declare that it is a problem. And if you talk to a Reddit cultist about Facebook audience cult behavior, they will often take the matter seriously> But Reddit being invaded by the Internet Research Agency, they are unable to see the peers around them on Reddit media platform.
 
 Social post { https://autistics.life/@RoundSparrow/115916400278506526 https://bsky.app/profile/roundsparrow.bsky.social/post/3mcpb5sd5mk2d }
+
+https://old.reddit.com/r/politics/comments/1qg8bsd/growing_sense_of_embarrassment_at_fifa_over/o0abid1/
+
+FIFA is part of the sprats-game sports-mentality playbook of media. They are influencing Reddit audiences into doing ANYTHING but citing nonfiction serious learning (especially Dr. Bandy X, Lee); FIFA media empire is all about audience addiction exploitations / mind-fucking. **The gullible Reddit comment creators.** [“The truth is, it’s getting harder to describe the extent to which a meaningful percentage of Americans have dissociated from reality,” Charlie Warzel wrote “I’m Running Out of Ways to Explain How Bad This Is.”](https://www.axios.com/2024/10/19/musk-ackman-election-misinformation) - October 19, 2024 - America’s gullibility crisis, Zachary Basu
+
+https://old.reddit.com/r/politics/comments/1qg8bsd/growing_sense_of_embarrassment_at_fifa_over/o0aebll/
+
+Another **gullible Reddit comment creator who eats up that FIFA doesn't have an army of mass media experts** on how sports-think audiences are easily manipulated, the Reddit audience. Reddit audience members are so gullible to FIFA sports media empire that they don't grasp how two teams are played, team A vs. team B, duality of conflict in the human audience, the REDDIT audience being played. A lack of media self-awareness by this Reddit commenting community.
+
+* "The two classic drama masks, often seen together, represent Comedy (Thalia) and Tragedy (Melpomene), symbolizing the full spectrum of human emotion and experience from joy to sorrow, essential in Greek theater for embodying archetypes and exploring the psyche's duality" - Google Search summary 2026-01-19 morning USA
