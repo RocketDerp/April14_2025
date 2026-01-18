@@ -1168,3 +1168,25 @@ Any antics are prized by meme audiences on Reddit. Entertainment sports golf ant
 https://old.reddit.com/r/UnderReportedNews/comments/1qg4d0g/copenhagen_denmark_total_unity_against_trump_and/o09pmhz/
 
 The ENTIRE world, The World Wide Web, needs to be repeating that the USA is sick, mentally sick, sickening the entire world with toxic mindsets. Social media WWW users need to be repeating and keep repeating every 12 hours: Dr. Bandy X Lee name and book quotes from her October 3, 2017 book. That is the PROTEST we need, ASAP! It is already TOO LATE, but we must salvage what we can from the terrible mob mentality mindsets.
+
+https://old.reddit.com/r/europe/comments/1qg8fxc/statement_by_denmark_finland_france_germany_the/o0aby5i/
+
+Study this message. { "reality", "believe", "few years ago" }
+
+From September 9, 2014 - 11 years 4 months and 9 days ago, which is **more than a decade** - we could have kept repeating it and defeated Putin's takeover of USA hearts and minds: https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ "Russia and the Menace of Unreality: How Vladimir Putin is revolutionizing information warfare. By Peter Pomerantsev" - we should NOW be repeating it every 47 hours over and over, keep repeating, again and again!
+
+https://old.reddit.com/r/europe/comments/1qg8fxc/statement_by_denmark_finland_france_germany_the/o0adpvl/
+
+Minds blown into tiny-short messages. Minds blown that they can't face reality itself. That human brains have been exploited, unbelievers in learning nonfiction.
+
+From September 9, 2014 - 11 years 4 months and 9 days ago, which is **more than a decade** - we could have kept repeating it and defeated Putin's takeover of USA hearts and minds: https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ "Russia and the Menace of Unreality: How Vladimir Putin is revolutionizing information warfare. By Peter Pomerantsev" - we should NOW be repeating it every 47 hours over and over, keep repeating, again and again!
+
+https://old.reddit.com/r/europe/comments/1qg8fxc/statement_by_denmark_finland_france_germany_the/o0acyxm/
+
+So? ONE SINGLE PERSON, Trump fixation, is not the issue. Why are REDDIT USERS, people on REDDIT COMMENTING not asserting Dr. Bandy X Lee's October 3, 2017 nonfiction book about MAGA and Trump? Why are REDDIT COMMENTING USERS not turning to nonfiction serious books instead of just commenting way like addicts to junk commenting information? Why is it so hard for Reddit users to see that OFF-REDDIT CONTENT from SERIOUS BOOKS on paper is avoided?
+
+https://old.reddit.com/r/europe/comments/1qg8fxc/statement_by_denmark_finland_france_germany_the/o0ae6x5/
+
+Why is it "polite", considered "polite", to let a liar manipulate an entire nation's population into fiction? Why is it good to let falsehoods and fiction be used to abuse We The People of the USA? Nonfiction is not *impolite*. Letting Ukraine people be killed since February 20, 2014 isn't being POLITE in any way!
+
+From September 9, 2014 - 11 years 4 months and 9 days ago, which is **more than a decade** - we could have kept repeating it and defeated Putin's takeover of USA hearts and minds: https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ "Russia and the Menace of Unreality: How Vladimir Putin is revolutionizing information warfare. By Peter Pomerantsev. At the NATO summit in Wales last week, General Philip Breedlove, the military alliance’s top commander, made a bold declaration. Russia, he said, is waging “the most amazing information warfare blitzkrieg we have ever seen in the history of information warfare.” It was something of an underestimation. The new Russia doesn’t just deal in the petty disinformation, forgeries, lies, leaks, and cyber-sabotage usually associated with information warfare. It reinvents reality, creating mass hallucinations that then translate into political action." - we should NOW be repeating it every 47 hours over and over, keep repeating, again and again!
