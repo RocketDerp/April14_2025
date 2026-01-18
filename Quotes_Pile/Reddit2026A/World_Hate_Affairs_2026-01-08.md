@@ -1366,3 +1366,9 @@ https://old.reddit.com/r/worldnews/comments/1qgheme/russia_welcomes_trumps_tarif
 
 Rapid upvoting on this comment. Mocking / Reddit mockery message culture jumped to top. Anything to change people into meme mindsets that the IRA conditioned since March 2013. AVOIDANCE OF nonfiction, off-Reddit, serious books on paper.
 
+https://old.reddit.com/r/TrendoraX/comments/1qgfamz/french_tv_reports_that_ukraine_stopped_sharing/o0buik3/
+
+Top-voted comment on post. Extreme tiny-short Musk Twitter messaging. No resistance, just messaging to Reddit audience that this is to be accepted without resisting. No alarm, just matter of fact. No patriot call for intellectual defense.. such as repeating Dr. Bandy X Lee's October 3, 2017 book quotes and her name...
+
+https://old.reddit.com/r/TrendoraX/comments/1qgfamz/french_tv_reports_that_ukraine_stopped_sharing/o0buvmc/
+
