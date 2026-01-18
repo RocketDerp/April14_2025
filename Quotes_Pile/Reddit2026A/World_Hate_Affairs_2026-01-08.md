@@ -1318,3 +1318,47 @@ https://old.reddit.com/r/worldnews/comments/1qgheme/russia_welcomes_trumps_tarif
 
 Hence why this GitHub. If we all, We The People, every person age 12 to age 120... don't go back and re-learn forgotten Marshall McLuhan understandings... 
 
+https://old.reddit.com/r/worldnews/comments/1qgheme/russia_welcomes_trumps_tariffs_on_nato_allies/o0cpps6/
+
+Trump "Insane", but won't cite October 3, 2017 book from Dr. Bandy X Lee - PLENTY of time since 2017 to take the topic seriously. Instead, banal commenting messages. Hyper banal warfare.
+
+https://old.reddit.com/r/worldnews/comments/1qgheme/russia_welcomes_trumps_tariffs_on_nato_allies/o0ctcx4/
+
+Reddit message telling the audience to trivialize the topic. "No shit, Sherlock" mocking of complex world affairs and information warfare.
+
+https://old.reddit.com/r/worldnews/comments/1qgheme/russia_welcomes_trumps_tariffs_on_nato_allies/o0cfadr/
+
+No, people in USA are in total denial. Denial denial denial. Population wide.
+
+https://old.reddit.com/r/worldnews/comments/1qgheme/russia_welcomes_trumps_tariffs_on_nato_allies/o0cfnj8/
+
+1910, James Joyce writing times. Finn Cycle.
+
+https://old.reddit.com/r/worldnews/comments/1qgheme/russia_welcomes_trumps_tariffs_on_nato_allies/o0cgbry/
+
+https://old.reddit.com/r/worldnews/comments/1qgheme/russia_welcomes_trumps_tariffs_on_nato_allies/o0cjukg/
+
+https://old.reddit.com/r/worldnews/comments/1qgheme/russia_welcomes_trumps_tariffs_on_nato_allies/o0ck5ob/
+
+https://old.reddit.com/r/worldnews/comments/1qgheme/russia_welcomes_trumps_tariffs_on_nato_allies/o0ckk2g/
+
+Recent Reddit account. Joke tone, mockery, mocking.
+
+https://old.reddit.com/r/worldnews/comments/1qgheme/russia_welcomes_trumps_tariffs_on_nato_allies/o0cl04t/
+
+Surkovian paradox messaging.
+
+https://old.reddit.com/r/worldnews/comments/1qgheme/russia_welcomes_trumps_tariffs_on_nato_allies/o0clhpu/
+
+Cheering on Putin win. Banality about fetish for Trump sex content, like Epstein sex desires all over Reddit. Fandom of old white men sex power.
+
+https://old.reddit.com/r/worldnews/comments/1qgheme/russia_welcomes_trumps_tariffs_on_nato_allies/o0clu5m/
+
+https://old.reddit.com/r/worldnews/comments/1qgheme/russia_welcomes_trumps_tariffs_on_nato_allies/o0cqmd3/
+
+https://old.reddit.com/r/worldnews/comments/1qgheme/russia_welcomes_trumps_tariffs_on_nato_allies/o0cqxxk/
+
+Reddit messages saying Russia is good.
+
+https://old.reddit.com/r/worldnews/comments/1qgheme/russia_welcomes_trumps_tariffs_on_nato_allies/o0cri7v/
+
