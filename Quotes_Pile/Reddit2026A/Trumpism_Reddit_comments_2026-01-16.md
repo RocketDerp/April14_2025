@@ -135,3 +135,16 @@ Before year 2007, people were not walking around in public staring into screens.
 * "The first iPhone was introduced by Steve Jobs at Macworld on January 9, 2007, but it went on sale exclusively with AT&T (then Cingular) on June 29, 2007, at Apple Stores and select AT&T locations, kicking off massive lines and marking Apple's major entry into mobile phones on the carrier's 2G network." - Google Search summary, 2026-01-18 early morning Sunday USA
 
 Social post { https://autistics.life/@RoundSparrow/115916174791293814 https://bsky.app/profile/roundsparrow.bsky.social/post/3mcp5zop2xs2n }
+
+https://old.reddit.com/r/worldnews/comments/1qg3ypf/leaders_of_france_uk_and_sweden_respond_to_trumps/o09slyi/
+
+Trump fandom. Falling for the actor, believing the acting. Trump's skill is crowd-pleasing comedy. President Tony Clifton performance and Surkov student screenplays. World Leaders could be making famous this December 5, 2014 YouTube video https://www.youtube.com/watch?v=5Au332OG-M4 about anti-critical thinking, anti-rational thinking. Instead of LOL LOL laughing and mock mock mockery to join Trump and Putin in the Total Mockery... promote Peter Pomerantsev "Nothing is True and Everything is Possible" from year 2014.
+
+https://old.reddit.com/r/worldnews/comments/1qg3ypf/leaders_of_france_uk_and_sweden_respond_to_trumps/o09u2sh/
+
+SNL Andy Kaufman performance. Wrestling women. Trump is a master of SNL comedy, President Tony Clifton act. OPERA_A https://youtu.be/dLxpNiF0YKs?t=22 49,327,770 views  September 13, 2017 
+
+https://old.reddit.com/r/worldnews/comments/1qg3ypf/leaders_of_france_uk_and_sweden_respond_to_trumps/o09u8ma/
+
+SURPRISINGLY similar to Putin. They met in Alaska last summer, summer of 2025. Putin and Trump's relationship is OBVIOUS. Blinding the Reddit audience.
+
