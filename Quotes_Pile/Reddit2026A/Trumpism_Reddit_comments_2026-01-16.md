@@ -364,3 +364,11 @@ https://old.reddit.com/r/AskTheWorld/comments/1qh610n/what_are_your_thoughts_on_
 Public deceleration of love for Trump's Reality TV President Tony Clifton show!
 
 Social post { https://autistics.life/@RoundSparrow/115923409281531710 https://bsky.app/profile/roundsparrow.bsky.social/post/3mcser3okv22u }
+
+https://old.reddit.com/r/politics/comments/1qh86qf/trumps_letter_to_norway_should_be_the_last_straw/o0i282d/
+
+Fandom of **South Park**. Matt Stone and Trey Parker fandom loves commenting on social machines about Trump Satan screenplay! Surkov students won. Complete ignorance of Reddit audience.
+
+https://old.reddit.com/r/politics/comments/1qh86qf/trumps_letter_to_norway_should_be_the_last_straw/o0i06cr/
+
+Great final words before death: "Fox News fucked us ALL!" - Everything is HDTV media ecology. https://GitHub.com/RocketDerp/April14_2025/blob/main/Media_Ecology/Everything_is_ME.md (naked full link intended)
