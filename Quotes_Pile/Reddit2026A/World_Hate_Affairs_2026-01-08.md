@@ -1448,4 +1448,12 @@ There are PLENTY of Pro-Russia Anti-NATO anti-Education actions going on. Where 
 
 * “We might even say that America was founded by intellectuals, from which it has taken us two centuries and a communications revolution to recover.” - https://www.refsmmat.com/posts/2016-01-23-amusing-ourselves-to-death.html
 
+https://old.reddit.com/r/WorkReform/comments/1qgnxi6/bernie_sanders_if_trump_seizes_greenland/o0drq5e/
+
+<img width="931" height="531" alt="image" src="https://github.com/user-attachments/assets/2b83c156-af5c-4ec5-a963-561c8123e270" />
+
+The top comment on Reddit is going right along with the excitement MAGA has of conquest and the rewards of looting another society. Fiction politics, break all laws and abandon goodness and only see things through Pollyanna eyesight!
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mcqigd2lsk2j https://autistics.life/@RoundSparrow/115919166796700760 }
+
 
