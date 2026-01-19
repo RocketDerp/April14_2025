@@ -993,3 +993,31 @@ https://old.reddit.com/r/politics/comments/1qh1gcf/trumps_appalling_threat_leave
 https://old.reddit.com/r/politics/comments/1qh1gcf/trumps_appalling_threat_leaves_no_doubt_its_time/o0gqczh/
 
 "unreal"
+
+https://old.reddit.com/r/worldnews/comments/1qgxmfe/trump_says_nobel_prize_denial_ends_obligation_to/o0fundu/
+
+4-month Reddit account. "insane"
+
+https://old.reddit.com/r/worldnews/comments/1qgxmfe/trump_says_nobel_prize_denial_ends_obligation_to/o0fw41k/
+
+"mentally ill"
+
+https://old.reddit.com/r/worldnews/comments/1qgxmfe/trump_says_nobel_prize_denial_ends_obligation_to/o0fwdsj/
+
+7 month Reddit account. Engaging social media questioning the audience.
+
+https://old.reddit.com/r/worldnews/comments/1qgxmfe/trump_says_nobel_prize_denial_ends_obligation_to/o0fwnn6/
+
+1 month Reddit account. Dreaming of doing nothing but waiting until death.
+
+https://old.reddit.com/r/worldnews/comments/1qgxmfe/trump_says_nobel_prize_denial_ends_obligation_to/o0fuqic/
+
+Reddit community thought Internet Research Agency engagement was thrilling content since March 2013.
+
+https://old.reddit.com/r/worldnews/comments/1qgxmfe/trump_says_nobel_prize_denial_ends_obligation_to/o0fwk1w/
+
+"insane"
+
+https://old.reddit.com/r/worldnews/comments/1qgxmfe/trump_says_nobel_prize_denial_ends_obligation_to/o0fwkl6/
+
+"insane"
