@@ -322,3 +322,7 @@ https://old.reddit.com/r/AdviceAnimals/comments/1qh5kl7/makes_sense_putin_is_a_h
 Look at the Reddir user profile message, wise-cracker. **Walking right into the gates** of Surkov students since March 2013 media invasion by the IRA.
 
 * “Everything in our background has prepared us to know and resist a prison when the gates begin to close around us . . . But what if there are no cries of anguish to be heard? Who is prepared to take arms against a sea of amusements? To whom do we complain, and when, and in what tone of voice, when serious discourse dissolves into giggles? What is the antidote to a culture's being drained by laughter?” ― NYU (Trump home town) Neil Postman, [Amusing Ourselves to Death: Public Discourse in the Age of Show Business. Page 156.](https://books.google.com/books?id=oup6iagfox8C&pg=PA156&dq=%E2%80%9CEverything+in+our+background+has+prepared+us+to+know+and+resist+a+prison+when+the+gates+begin+to+close+around+us%22&hl=en&newbks=1&newbks_redir=1&sa=X)
+
+https://old.reddit.com/r/AdviceAnimals/comments/1qh5kl7/makes_sense_putin_is_a_happy_boss_right_now/o0hefas/
+
+"We should have listened" OPERA_A https://www.youtube.com/watch?v=JKOY0P65NrM The Putin Reddit actors and jesters are here. Nobody is certain whose fucking screenplay it is, President Tony Clifton comedy acting that Reddit eats every day. "Before the world fell apart"... you know... 29,223 views November 5, 2020 "To bring the White House down"
