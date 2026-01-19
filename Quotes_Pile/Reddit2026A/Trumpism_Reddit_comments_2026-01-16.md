@@ -280,3 +280,29 @@ https://old.reddit.com/r/worldnews/comments/1qh63ad/trump_links_greenland_disput
 
 The TOP upvoted comment on this topic is a Reddit account less than 10 days old, giving a "LMAO" television laugh-track to Reddit screen audiences. Fandom of Donald Trump cheer-leading (laugh tracking) of how President Tony Clifton acts (actor Trump acting) and messages are comedy, surreal absurd humor. Surkov won since March 2013. The largest organized global Trolling operation in world history: Operation Matthew 4:19 https://github.com/RocketDerp/April14_2025/blob/main/Operation_Matthew_4_19_on_monday_2024-03-31.md
 
+https://old.reddit.com/r/law/comments/1qh3dk1/trump_tells_norway_his_greenland_threats_are/o0gx3ri/
+
+Trump fandom on Reddit /r/Law subreddit finds all this comical, comedy. Amusing. 
+
+* “But it is much later in the game now, and ignorance of the score is inexcusable. To be **unaware that a technology** [Reddit / Bluesky] comes equipped with a program for social change, to maintain that technology is neutral, to make the assumption that technology is always a friend to culture is, at this late hour, stupidity plain and simple.”
+― Neil Postman, Amusing Ourselves to Death: [Public Discourse in the Age of Show Business, year 1985. page 157.](https://books.google.com/books?id=zGkhbPEjkRoC&pg=RA1-PA157&dq=%22equipped+with+a+program+for+social+change,+to+maintain+that+technology+is+neutral,+to+make+the+assumption+that+technology+is+always+a+friend+to+culture+is%22&hl=en&newbks=1&newbks_redir=1&sa=X)
+
+https://old.reddit.com/r/law/comments/1qh3dk1/trump_tells_norway_his_greenland_threats_are/o0gzawd/
+
+"endlessly praised" - as a source of Entertainment and Amusement for Reddit meme addicts.
+
+https://old.reddit.com/r/law/comments/1qh3dk1/trump_tells_norway_his_greenland_threats_are/o0gxzxm/
+
+"Totally unhinged"
+
+https://old.reddit.com/r/law/comments/1qh3dk1/trump_tells_norway_his_greenland_threats_are/o0gypvb/
+
+"just joking"
+
+https://old.reddit.com/r/law/comments/1qh3dk1/trump_tells_norway_his_greenland_threats_are/o0h1rkd/
+
+"laughing at bullying"
+
+https://old.reddit.com/r/law/comments/1qh3dk1/trump_tells_norway_his_greenland_threats_are/o0gya9w/
+
+"crazy"
