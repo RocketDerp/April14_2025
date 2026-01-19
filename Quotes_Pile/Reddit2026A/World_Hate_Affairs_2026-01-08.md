@@ -1470,3 +1470,53 @@ https://old.reddit.com/r/europe/comments/1qgyjdg/trumps_letter_to_norwegian_prim
 
 See reply comment about honesty and "this is real".
 
+https://old.reddit.com/r/europe/comments/1qgyjdg/trumps_letter_to_norwegian_prime_minister_feels/o0g0t37/
+
+USA is not founded on logic. And this is Surkovian anti-reality. Surkov students screenplay, organized war against reality.
+
+https://old.reddit.com/r/europe/comments/1qgyjdg/trumps_letter_to_norwegian_prime_minister_feels/o0g0kon/
+
+Reality TV star Reality. Surkov won.
+
+https://old.reddit.com/r/europe/comments/1qgyjdg/trumps_letter_to_norwegian_prime_minister_feels/o0g1qhx/
+
+Media addiction is this powerful. Reddit users can  not even see Reddit addiction all over since March 2013. Reddit audience amusement-wraps Trump every day. "LOLCOW", "LOL cow milking" of Trump for meme addictions.
+
+aving to be immersed in non-stop fiction addicts, many who spread and smear anti-intellectual LOL shit about Trump, addiction to "orange skin" and "poop diapers" of Trump.. brain damaging all the time, every fucking day! The anti-goodness prizing of shit! Neil Postman's 1985 book describes social media hell society that thinks Trump is amusing entertainment! Meme addict society.  September 10, 2025 https://Time.com/7313999/neil-postman-trump-prediction/
+
+https://old.reddit.com/r/europe/comments/1qgyjdg/trumps_letter_to_norwegian_prime_minister_feels/o0g0ru2/
+
+Social media has had no mass protest. Dr. Bandy X Lee should  be made a household name. Dr. Lee's October 3, 2017 book could be quoted every 6 hours in protest of Trump. But meme addicts keep commenting ABOUT every action, in REACTION to Trump. Instead of organizing an online movement against Trump, to exp ell Trump and MAGA with mental health education by Dr. Lee.
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mcrn5ojx3c2x https://autistics.life/@RoundSparrow/115921737186823851 }
+
+https://old.reddit.com/r/europe/comments/1qgyjdg/trumps_letter_to_norwegian_prime_minister_feels/o0g9g0t/
+
+Reddit commenting without ANY off-Reddit URL, quotes from nonfiction book. ANYTHING and EVERYTHING to ignore the Alaska meeting with Putin in summer of 2025. Complete avoidance of Putin's statements about EU and NATO. Such as organized conservative movement by Putin. December 20, 2013: https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/
+
+https://old.reddit.com/r/europe/comments/1qgyjdg/trumps_letter_to_norwegian_prime_minister_feels/o0g1a0f/
+
+The reply comment is correct. This is the AFTERMATH of a fall. Intellectual fall. What James Joyce defines in his first 13 pages of Finnegans Wake, *that fall*. Moral fall. Self-awareness fall as Marshall McLuhan at University of Toronto teaches about Finnegans Wake.
+
+https://old.reddit.com/r/europe/comments/1qgyjdg/trumps_letter_to_norwegian_prime_minister_feels/o0g0rd7/
+
+There are no adults on Reddit commenting by that logic. MLK Jr day and "fuck off" in REACTION to a message from Trump telling the entire human race to "fuck off". Be the adult on social media. Quote Dr. Bandy X Lee's nonfiction book from October 3, 2017.
+
+https://old.reddit.com/r/europe/comments/1qgyjdg/trumps_letter_to_norwegian_prime_minister_feels/o0g0mv0/
+
+https://old.reddit.com/r/europe/comments/1qgyjdg/trumps_letter_to_norwegian_prime_minister_feels/o0g1k0q/
+
+https://old.reddit.com/r/europe/comments/1qgyjdg/trumps_letter_to_norwegian_prime_minister_feels/o0g1l7v/
+
+https://old.reddit.com/r/europe/comments/1qgyjdg/trumps_letter_to_norwegian_prime_minister_feels/o0g0knk/
+
+Reddit audience: mind blown by Trump, AGAIN!
+
+https://old.reddit.com/r/europe/comments/1qgyjdg/trumps_letter_to_norwegian_prime_minister_feels/o0g17cn/
+
+Imagine on Dr. Martin Luther King Jr day that you don't grasp what problems humanity needed to address and fix that people have trashed / rubbish bin.
+
+https://old.reddit.com/r/europe/comments/1qgyjdg/trumps_letter_to_norwegian_prime_minister_feels/o0g1fbw/
+
+"Batshit crazy". No nonfiction book quotes, off-Reddit URL, mental health topic of Trump and MAGA is a casual joke on Reddit. Mockery casual, constant. Always avoiding good leadership in favor of commenting casually...  Dr. Bandy X Lee's nonfiction book from October 3, 2017.
+
