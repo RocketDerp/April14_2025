@@ -403,7 +403,21 @@ Woke to the rear-view mirror of what already happened in year 2025. It is MLK Da
 
 https://old.reddit.com/r/politics/comments/1qh86qf/trumps_letter_to_norway_should_be_the_last_straw/o0i92bw/
 
-Cult deprogramming on a scale never seen by humanity, the whole Top to Bottom of the MonoMyth is in order. 18 month, this Github is an etrance.
+Cult deprogramming on a scale never seen by humanity, the whole Top to Bottom of the MonoMyth is in order. 18 month, this GitHub project is an entrance.
 
 * “The artist, the enema of society, points out things that many people would prefer not to notice.”
 — Marshall McLuhan. March 1967.
+
+https://old.reddit.com/r/AdviceAnimals/comments/1qha9qi/hes_confused/o0ik0zs/
+
+THIS ENTIRE REDDIT POSTING! The lack of self-awareness of media addiction behaviors. Trump is a compulsive camera addict, and Reddit audience is compulsive viewers of Trump! Putin and Surkov learned that the more antics and unreality there is, the MORE people blow their minds out!!!
+
+Reddit audience is CHASING dumb shit. Prizing dumb shit. Every media empire, every printing press, every website, is cranking out page after page refreshes of Trump's every stupid stunt, dumb statement. THIS HAS BEEN GOING ON FOR OVER TEN YEARS AND SEVEN MONTHS NONSTOP!
+
+Mocking a Surkovian mockery is not resisting a Surkov students scripted mockery. If anything, since year 2022, Large Language Models (LLM) systems have put the whole fucking Kremlin Surkov monomyth patterns into RUNAWAY. Russia is no longer in control, nobody is in control. Audiences are flocking on every media platform. Everything Professor David Foster Wallace tried to illustrate in in Infinite Jest has now become the mob mentality of each audience. James Joyce's Finnegans Wake story is iterating over and over endlessly since June 16, 2015 via every meme and message pattern... slower at first, but once Elon Musk purchased Twitter April 2022, October 2022, then ChatGPT 2022... it has snowballed into Infinite Jest world wide web feedback looping!!! 
+
+It's all bullshit, people in mob are turd-chasing, jumping into the toilet as every Trump turd runs through the River Liffey re circulation system! Media machines are blowing minds into predictable patterns, everyone is high as a kite on Trump content / Trump Family Influencers!
+
+FOR THE LOVE OF GOD, READ EVERYTHING Peter Pomerantsev PUBLISHED BETWEEN YEAR 2010 AND YEAR 2015, BREAK THE FINN CYCLES! Fhiannaíocht runaway! Halt the fucking machines, Halt and Catch Fire, the printing presses are looping Trump content!!! LISTEN TO ANDREW POSTMAN! TRUMP IS BIGGER THAN JESUS AND THE BEATLES AND TONY CLIFTON ALL TOGETHER!!!
+
+
