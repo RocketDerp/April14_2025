@@ -4,7 +4,7 @@
 
 Texan Rick Roderick   
 Year 1993   
-Duke Univesity Professor   
+Duke University Professor   
 
 "Now simulation in this society didn’t just come from nowhere. This society of simulations and of spectacles. Baudrillard actually builds his work on a foundation again that comes out of the Marxist tradition. Guy Debord wrote a book in the sixties called “The Society of the Spectacle“. And what it was about, was about how when capitalism reached a certain level of accumulation, commodities began to detach themselves and become images. And citizens who formerly had played roles as political actors began to detach themselves from their own lives and become spectators."
 
