@@ -1715,3 +1715,21 @@ https://old.reddit.com/r/UnderReportedNews/comments/1qhbzof/danish_parliament_de
 https://old.reddit.com/r/UnderReportedNews/comments/1qhbzof/danish_parliament_deputy_speaker_larschristian/o0j55ov/
 
 "destructive", "chaos"
+
+https://old.reddit.com/r/news/comments/1qhgzdd/pentagon_places_1500_arctictrained_airborne/o0jrwgm/
+
+"insane", reply: "self destructive"
+
+https://old.reddit.com/r/news/comments/1qhgzdd/pentagon_places_1500_arctictrained_airborne/o0jsq76/
+
+https://old.reddit.com/r/news/comments/1qhgzdd/pentagon_places_1500_arctictrained_airborne/o0jug1s/
+
+"not fit"
+
+https://old.reddit.com/r/news/comments/1qhgzdd/pentagon_places_1500_arctictrained_airborne/o0k561t/
+
+"unhinged lunatics"
+
+https://old.reddit.com/r/news/comments/1qhgzdd/pentagon_places_1500_arctictrained_airborne/o0k3ahz/
+
+"LOL", "imploded"
