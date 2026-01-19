@@ -236,3 +236,18 @@ https://old.reddit.com/r/LiveFromNewYork/comments/1qgr7x0/this_isnt_funny_anymor
 
 Reddit society has absolute deepest faith in mocking. for OVER TEN YEARS AND SEVEN MONTHS, endlessly mocking trump. Always more mocking. Anything to avoid: Neil Postman, Dr. Bandy X Lee.
 
+https://old.reddit.com/r/politics/comments/1qh1gcf/trumps_appalling_threat_leaves_no_doubt_its_time/o0gtgy0/
+
+Trump's fandom as a performance art, playing President Tony Clifton SNL acting, is incredibly high. Bluesky and Reddit fandom and YouTube fandom is THRILLED to have Trump to mock at. The audience mocking Tony Clifton shows is the primary comedy technique. People adore and love it, the fandom of hate on MLK Jr day 2026 has never been more strong! People find Trump's show irresistible. Entertainment and amusement at total mockery exceeds all else to Trump fandom.
+
+https://old.reddit.com/r/politics/comments/1qh1gcf/trumps_appalling_threat_leaves_no_doubt_its_time/o0gvtd7/
+
+"craziest thing"
+
+https://old.reddit.com/r/politics/comments/1qh1gcf/trumps_appalling_threat_leaves_no_doubt_its_time/o0godmr/
+
+We The People are cheerleaders for Trump's wild and outrageous actions and style. It's commenting topics for Reddit audiences. AVOIDANCE: Absence of turning to nonfiction serious books shows exactly what anti-intellectual attitude the Reddit community has adopted. Trump is prized and desired as a meme source. LOLCOW to milk for memes
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qh278i/greenland_politician_tillie_martinussenwe_do_not/o0gqe90/
+
+Because of social media comment communities, concerns and behaviors of meme addicts.  AVOIDANCE: Absence of turning to nonfiction serious books shows exactly what anti-intellectual attitude the Reddit community has adopted. Neil Postman's book explains the crisis: September 10, 2025 https://Time.com/7313999/neil-postman-trump-prediction/
