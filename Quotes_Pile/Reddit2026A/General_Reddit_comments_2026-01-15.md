@@ -932,4 +932,7 @@ https://old.reddit.com/r/ProgressiveHQ/comments/1qgt1d7/the_leftists_are_taking_
 
 What is happening here is a society that prizes a few people standing up while spectators spend free time and spare time on social sites / media platforms - consuming and commenting. What is absent is reprogramming our own minds away from media addiction. Dr. Bandy X Lee is what we need to be focused on for ult deprogramming of MAGA. The cult is a death cult and fighting it with physical weapons will only inspire more death cult generations. Humanity never DID GET on the high road, and now is the worst it needs to ever get... we need to value peace and education. Rescue MAGA mindsets. Prizing hate is bad for all mankind.
 
+https://old.reddit.com/r/ProgressiveHQ/comments/1qgt1d7/the_leftists_are_taking_the_right_approach/o0f05br/
+
+We The People had over 10 years since June `16, 2015 to see the hate wave building and on MLK Jr eve, people sheering on hate. Machine tech lovers, human haters. People did not stand up for cult deprogramming and learning of Russian information warfare.
 
