@@ -1179,3 +1179,12 @@ https://old.reddit.com/r/AskTheWorld/comments/1qh610n/what_are_your_thoughts_on_
 "the problem is not just Trump, but the entire USA." - YES! The Internet Research Agency mind-fucked the ENTIRE POPULATION! Self-awareness of the Reddit media environment, front page /r/All and what is absent!
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mcscw2tnzs27 https://autistics.life/@RoundSparrow/115923280505479826 }
+
+https://old.reddit.com/r/popculturechat/comments/1qhdyhi/brooklyn_beckham_speaks_out_against_parents/o0j89pe/
+
+https://old.reddit.com/r/NoStupidQuestions/comments/1qh6j10/do_americans_really_avoid_medical_care_because/o0hkhta/
+
+https://old.reddit.com/r/NoStupidQuestions/comments/1qh6j10/do_americans_really_avoid_medical_care_because/o0hjhq2/
+
+Instead of gun stroking gun worship of Luigi since December 4, 2024 - people should have every 12 hours posted a medical paperwork story / health care insurance red tape story.
+
