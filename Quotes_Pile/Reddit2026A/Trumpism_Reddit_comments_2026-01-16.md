@@ -444,3 +444,18 @@ The POTUS symbolism is blowing Reddit audience minds into highly predictable rea
 https://old.reddit.com/r/AdviceAnimals/comments/1qha9qi/hes_confused/o0jcdjk/
 
 Meme-thinking and Trump-think are all memes. Film clips, magazine stories, junk information. Fox News HDTV thinking. OPERA_A https://www.youtube.com/watch?v=aIuCdQtNBgg Welcome to the Brand New NATION, USA! 2,057,197 views July 29, 2018
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qhh4lp/republicans_seem_very_confused_today_about_how/o0k0gel/
+
+MLK Jr Day
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qhh4lp/republicans_seem_very_confused_today_about_how/o0jxuxm/
+
+MAGA values. MAGA thinking. Loving watching "libtards" get "owned", squirm. Prizing discomfort of women and children around agressive men with phallic symbols that shoot their loads. MLK Jr Day on Reddit.
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qhh4lp/republicans_seem_very_confused_today_about_how/o0k0612/
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qhh4lp/republicans_seem_very_confused_today_about_how/o0k1gki/
+
+Out-group retarded, out-group retards. MAGA mindsets, MAGA values, MAGA messaging. Street-gang messaging lingo.
+
