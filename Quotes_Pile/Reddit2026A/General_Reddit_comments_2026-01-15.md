@@ -920,3 +920,10 @@ God, what shallow and superficial values.
 
 https://old.reddit.com/r/goodnews/comments/1qgit7l/jon_stewart_on_donald_trump_people_keep_saying/o0da382/
 
+https://old.reddit.com/r/discussingbritney/comments/1qgjqxa/new_britney_post/o0duuw4/
+
+Dr. Bandy X Lee does not get repeated on Reddit, but this is the mental health concern? If she released a tonally naked video of sex, like StripChat for free, would people on Reddit freak out? Do they not know tens of thousands of girls are online at one time, live, for pennies?
+
+https://old.reddit.com/r/discussingbritney/comments/1qgjqxa/new_britney_post/o0cyt0d/
+
+Dr. Bandy X Lee does not get repeated on Reddit, but this is the mental health concern?
