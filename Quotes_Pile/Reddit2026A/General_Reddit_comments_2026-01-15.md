@@ -936,3 +936,4 @@ https://old.reddit.com/r/ProgressiveHQ/comments/1qgt1d7/the_leftists_are_taking_
 
 We The People had over 10 years since June `16, 2015 to see the hate wave building and on MLK Jr eve, people sheering on hate. Machine tech lovers, human haters. People did not stand up for cult deprogramming and learning of Russian information warfare.
 
+https://old.reddit.com/r/ProgressiveHQ/comments/1qgt1d7/the_leftists_are_taking_the_right_approach/o0f7c4h/
