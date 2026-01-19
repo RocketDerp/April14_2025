@@ -1431,3 +1431,21 @@ https://old.reddit.com/r/MurderedByWords/comments/1qggbsb/not_shooting_blanks/o0
 4-month Reddit account.
 
 https://old.reddit.com/r/MurderedByWords/comments/1qggbsb/not_shooting_blanks/o0c9av2/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qgmatl/jeffries_republicans_are_obsessed_with_seizing/o0di0z0/
+
+Elon Musk has openly discussed Reddit. Musk owns multiple datacenters and a global ISP, Starlink. The gullibility to think Musk isn't behind some accounts being banned and silenced with the secret masked police of Reddit...
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qgmatl/jeffries_republicans_are_obsessed_with_seizing/o0dnlfz/
+
+We The People can't even do a social media uprising. I can go look on every social media platform and see people talking about anything but We the People being entertainment addicts who won't put important and serious topics above ... amusements. Everyone is reacting to famous people, sports games, video games, gaming, TV shows. I witness very little hard-thinking about how amusement and entertainment is being lead by a Reality TV entertainer. 
+
+* “For in the end, he was trying to tell us what afflicted the people in 'Brave New World' was not that they were laughing instead of thinking, but that they did not know what they were laughing about and why they had stopped thinking.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qgmatl/jeffries_republicans_are_obsessed_with_seizing/o0derm3/
+
+There are PLENTY of Pro-Russia Anti-NATO anti-Education actions going on. Where are WE THE PEOPLE in ceiling for intellectual leadership? Why is Dr. Bandy X Lee's nonfiction book ignored by social media users day after day who comment that trump is { unstable, insane, crazy, madman, loony, etc. }?
+
+* “We might even say that America was founded by intellectuals, from which it has taken us two centuries and a communications revolution to recover.” - https://www.refsmmat.com/posts/2016-01-23-amusing-ourselves-to-death.html
+
+
