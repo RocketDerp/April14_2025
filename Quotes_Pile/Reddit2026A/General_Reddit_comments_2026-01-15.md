@@ -927,3 +927,9 @@ Dr. Bandy X Lee does not get repeated on Reddit, but this is the mental health c
 https://old.reddit.com/r/discussingbritney/comments/1qgjqxa/new_britney_post/o0cyt0d/
 
 Dr. Bandy X Lee does not get repeated on Reddit, but this is the mental health concern?
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qgt1d7/the_leftists_are_taking_the_right_approach/o0f7o8s/
+
+What is happening here is a society that prizes a few people standing up while spectators spend free time and spare time on social sites / media platforms - consuming and commenting. What is absent is reprogramming our own minds away from media addiction. Dr. Bandy X Lee is what we need to be focused on for ult deprogramming of MAGA. The cult is a death cult and fighting it with physical weapons will only inspire more death cult generations. Humanity never DID GET on the high road, and now is the worst it needs to ever get... we need to value peace and education. Rescue MAGA mindsets. Prizing hate is bad for all mankind.
+
+
