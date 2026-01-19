@@ -214,3 +214,11 @@ https://old.reddit.com/r/pics/comments/1qgmy7c/white_house_photographer_unintent
 
 Yes, accidental mistake. At least SOMEONE is not gullible that Trump-worship images on a Sunday Church day are not "mistakes" to share with the public. Surkovian media techniques.
 
+https://old.reddit.com/r/sports/comments/1qgm7ql/leave_greenland_alone_heckler_shouts_during_us/o0donbb/
+
+<img width="1191" height="405" alt="image" src="https://github.com/user-attachments/assets/d373f0a2-e627-4552-a98f-8a1214bf3e17" />
+
+Daddy issues. Either love daddy, or hate daddy. Both groups line up to praise or mock daddy figures.  But whatever they do, they don't want to organize an FAQ or Wiki of top issues to stick to. Just chase around daddy father sex domination topic, "Epstein", while making no effort to organize around leaders like Dr. Bandy X Lee on mental health and what people are attracted to. 
+
+Personally, I suggest people focus less on penis ('dong') size of leaders and more on the money spent on advertising, marketing, photographs, live video, media coverage. Media cult self-awareness. Prizing Trump as a source of stimulating media entertainment.
+
