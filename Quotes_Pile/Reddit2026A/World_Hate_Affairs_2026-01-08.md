@@ -1621,3 +1621,41 @@ https://old.reddit.com/r/worldnews/comments/1qgxmfe/trump_says_nobel_prize_denia
 https://old.reddit.com/r/worldnews/comments/1qgxmfe/trump_says_nobel_prize_denial_ends_obligation_to/o0fvk4s/
 
 "batshit insane"
+
+https://old.reddit.com/r/AskTheWorld/comments/1qh610n/what_are_your_thoughts_on_this_letter_from_donald/o0hi0ul/
+
+https://old.reddit.com/r/AskTheWorld/comments/1qh610n/what_are_your_thoughts_on_this_letter_from_donald/o0hjsei/
+
+"fake"
+
+https://old.reddit.com/r/AskTheWorld/comments/1qh610n/what_are_your_thoughts_on_this_letter_from_donald/o0hgdfw/
+
+"Hopefully the citizenry will get motivated soon enough to do something" ... like social media uprising. To promote Dr. Bandy X Lee and other nonfiction education.
+
+https://old.reddit.com/r/AskTheWorld/comments/1qh610n/what_are_your_thoughts_on_this_letter_from_donald/o0hmv69/
+
+"mentally challenged"
+
+https://old.reddit.com/r/AskTheWorld/comments/1qh610n/what_are_your_thoughts_on_this_letter_from_donald/o0hhxfe/
+
+[Reddit meme consumer... Audiences who eat the Surkovian Onions](../Reddit2025A/Surkovian_Onion_Eating.md) and believes this is White House *mistake or accident*. Like shooting Reddit fish in a barrel for Surkov students.
+
+https://old.reddit.com/r/AskTheWorld/comments/1qh610n/what_are_your_thoughts_on_this_letter_from_donald/o0hj3to/
+
+"far fallen", Tim Finnegans!
+
+https://old.reddit.com/r/AskTheWorld/comments/1qh610n/what_are_your_thoughts_on_this_letter_from_donald/o0hm722/
+
+Mind blown by reality. "real".
+
+https://old.reddit.com/r/AskTheWorld/comments/1qh610n/what_are_your_thoughts_on_this_letter_from_donald/o0hj0tt/
+
+"real"
+
+https://old.reddit.com/r/AskTheWorld/comments/1qh610n/what_are_your_thoughts_on_this_letter_from_donald/o0hgfwf/
+
+"real"
+
+https://old.reddit.com/r/AskTheWorld/comments/1qh610n/what_are_your_thoughts_on_this_letter_from_donald/o0hjjxr/
+
+4 month Reddit account. "mad man"
