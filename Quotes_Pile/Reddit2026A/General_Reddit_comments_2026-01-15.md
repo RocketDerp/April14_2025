@@ -884,3 +884,15 @@ https://old.reddit.com/r/science/comments/1qgiwcm/younger_americans_have_grown_u
 
 Yep. Liberal vs. Conservative has been mind-fucked by Rupert Murdoch to mean all kinds of different things to different people. It's brainrot. SPECIFIC LISTS of values. For example: wanting fiction leadership by Donald Trump vs. scientific nonfiction leadership. Donald Trump holds up a SCIENCE FICTION STORY, IMPORTED FROM THE MIDDLE EAST, "The Bible", and wants to lead with fiction stories. Fiction outsells nonfiction. Fiction is far more popular to meme society, social meme consumers.
 
+https://old.reddit.com/r/politics/comments/1qghksv/think_trump_wont_cancel_the_election_dont_kid/o0cb8dz/
+
+Good to see organization, but why isn't social media online organizing a blackout / protest?
+
+https://old.reddit.com/r/politics/comments/1qghksv/think_trump_wont_cancel_the_election_dont_kid/o0cr97p/
+
+The post headline: don't kid yourself. Kidding, joking, joking away. Why are people not promoting Dr. Bandy X Lee's nonfiction book and her leadership?
+
+https://old.reddit.com/r/politics/comments/1qghksv/think_trump_wont_cancel_the_election_dont_kid/o0ch5ke/
+
+See the word "insane" in the replies.
+
