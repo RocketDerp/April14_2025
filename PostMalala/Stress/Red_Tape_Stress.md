@@ -61,3 +61,9 @@ CAMPBELL: By holding to your own ideals for yourself and, like Luke Skywalker, r
 Front page of Reddit social. Papers to control movement / public / even door to door paperwork checks.   
 
 https://Old.Reddit.com/r/ProgressiveHQ/comments/1qdp8ih/were_in_the_endgame_now/
+
+&nbsp;
+
+# January 19, 2026 MLK Jr Day
+
+https://old.reddit.com/r/NoStupidQuestions/comments/1qh6j10/do_americans_really_avoid_medical_care_because/
