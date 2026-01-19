@@ -790,3 +790,8 @@ https://old.reddit.com/r/comics/comments/1qdv3pp/ocmy_grandma_still_doesnt_know_
 
 Finnegans Wake English   
 https://old.reddit.com/r/NonPoliticalTwitter/comments/1qe9gdw/ok_so_today_i_learned_thats_a_nut_and_i_thought/
+
+&nbsp;
+
+English with accent   
+https://old.reddit.com/r/TikTokCringe/comments/1qggjhf/you_have_an_accent_too/
