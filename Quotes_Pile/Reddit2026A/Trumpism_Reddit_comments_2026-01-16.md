@@ -401,6 +401,7 @@ https://old.reddit.com/r/politics/comments/1qh86qf/trumps_letter_to_norway_shoul
 
 Woke to the rear-view mirror of what already happened in year 2025. It is MLK Day 2026.
 
+
 # Cult A
 
 https://old.reddit.com/r/politics/comments/1qh86qf/trumps_letter_to_norway_should_be_the_last_straw/o0i92bw/
@@ -412,6 +413,8 @@ Cult deprogramming on a scale never seen by humanity, the whole Top to Bottom of
 
 https://old.reddit.com/r/AdviceAnimals/comments/1qha9qi/hes_confused/o0ik0zs/
 
+<img width="832" height="282" alt="image" src="https://github.com/user-attachments/assets/835c041e-ae43-42a3-b813-c20bbf8efc1b" />
+
 THIS ENTIRE REDDIT POSTING! The lack of self-awareness of media addiction behaviors. Trump is a compulsive camera addict, and Reddit audience is compulsive viewers of Trump! Putin and Surkov learned that the more antics and unreality there is, the MORE people blow their minds out!!!
 
 Reddit audience is CHASING dumb shit. Prizing dumb shit. Every media empire, every printing press, every website, is cranking out page after page refreshes of Trump's every stupid stunt, dumb statement. THIS HAS BEEN GOING ON FOR OVER TEN YEARS AND SEVEN MONTHS NONSTOP!
@@ -420,6 +423,6 @@ Mocking a Surkovian mockery is not resisting a Surkov students scripted mockery.
 
 It's all bullshit, people in mob are turd-chasing, jumping into the toilet as every Trump turd runs through the River Liffey re circulation system! Media machines are blowing minds into predictable patterns, everyone is high as a kite on Trump content / Trump Family Influencers!
 
-FOR THE LOVE OF GOD, READ EVERYTHING Peter Pomerantsev PUBLISHED BETWEEN YEAR 2010 AND YEAR 2015, BREAK THE FINN CYCLES! Fhiannaíocht runaway! Halt the fucking machines, Halt and Catch Fire, the printing presses are looping Trump content!!! LISTEN TO ANDREW POSTMAN! TRUMP IS BIGGER THAN JESUS AND THE BEATLES AND TONY CLIFTON ALL TOGETHER!!!
+FOR THE LOVE OF GOD, **READ EVERYTHING Peter Pomerantsev PUBLISHED BETWEEN YEAR 2010 AND YEAR 2015**, BREAK THE FINN CYCLES! Fhiannaíocht runaway! Halt the fucking machines, Halt and Catch Fire, the printing presses are looping Trump content!!! LISTEN TO ANDREW POSTMAN! TRUMP IS BIGGER THAN JESUS AND THE BEATLES AND TONY CLIFTON ALL TOGETHER!!!
 
 Social post { https://groups.google.com/g/wwwopera/c/lDEBVOWhrVY https://autistics.life/@RoundSparrow/115924149255890401 https://bsky.app/profile/roundsparrow.bsky.social/post/3mcspfdxsck2u https://MidWest.Social/post/42110579 }
