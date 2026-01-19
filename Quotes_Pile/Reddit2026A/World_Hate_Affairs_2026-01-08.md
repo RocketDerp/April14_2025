@@ -1600,3 +1600,24 @@ https://old.reddit.com/r/worldnews/comments/1qgxmfe/trump_says_nobel_prize_denia
 
 Anti-reading message, most popular comment, top-upvoted. Twitter-length comment message on Reddit declaring how reading nonfiction reality is too painful. Meme addicts, meme addled population. Neil Postman's 1985 book describes social media Hell society that thinks Trump is amusing entertainment! Meme addict society.  September 10, 2025 https://Time.com/7313999/neil-postman-trump-prediction/
 
+https://old.reddit.com/r/worldnews/comments/1qgxmfe/trump_says_nobel_prize_denial_ends_obligation_to/o0fu747/
+
+"real"
+
+https://old.reddit.com/r/worldnews/comments/1qgxmfe/trump_says_nobel_prize_denial_ends_obligation_to/o0fuyr9/
+
+"crazy"
+
+https://old.reddit.com/r/worldnews/comments/1qgxmfe/trump_says_nobel_prize_denial_ends_obligation_to/o0fxj98/
+
+"narcissistic personality disorder"
+
+https://old.reddit.com/r/worldnews/comments/1qgxmfe/trump_says_nobel_prize_denial_ends_obligation_to/o0g4ku6/
+
+"mentality"
+
+https://old.reddit.com/r/worldnews/comments/1qgxmfe/trump_says_nobel_prize_denial_ends_obligation_to/o0fvyvt/
+
+https://old.reddit.com/r/worldnews/comments/1qgxmfe/trump_says_nobel_prize_denial_ends_obligation_to/o0fvk4s/
+
+"batshit insane"
