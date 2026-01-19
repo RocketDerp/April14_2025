@@ -1093,7 +1093,7 @@ https://old.reddit.com/r/ProgressiveHQ/comments/1qh3lu8/the_letter_that_donald_t
 
 "real"
 
-I don’t even consider Trump supporters to be human anymore. They are nothing more than animals, and they deserve to be locked in cages like animals. 
+https://old.reddit.com/r/ProgressiveHQ/comments/1qh3lu8/the_letter_that_donald_trump_sent_to_prime/o0h0ign/
 
 "real fucking life"
 
