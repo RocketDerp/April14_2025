@@ -422,4 +422,4 @@ It's all bullshit, people in mob are turd-chasing, jumping into the toilet as ev
 
 FOR THE LOVE OF GOD, READ EVERYTHING Peter Pomerantsev PUBLISHED BETWEEN YEAR 2010 AND YEAR 2015, BREAK THE FINN CYCLES! Fhiannaíocht runaway! Halt the fucking machines, Halt and Catch Fire, the printing presses are looping Trump content!!! LISTEN TO ANDREW POSTMAN! TRUMP IS BIGGER THAN JESUS AND THE BEATLES AND TONY CLIFTON ALL TOGETHER!!!
 
-
+Social post { https://groups.google.com/g/wwwopera/c/lDEBVOWhrVY https://autistics.life/@RoundSparrow/115924149255890401 https://bsky.app/profile/roundsparrow.bsky.social/post/3mcspfdxsck2u https://MidWest.Social/post/42110579 }
