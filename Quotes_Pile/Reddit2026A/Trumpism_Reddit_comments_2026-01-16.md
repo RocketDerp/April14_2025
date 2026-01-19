@@ -372,3 +372,27 @@ Fandom of **South Park**. Matt Stone and Trey Parker fandom loves commenting on 
 https://old.reddit.com/r/politics/comments/1qh86qf/trumps_letter_to_norway_should_be_the_last_straw/o0i06cr/
 
 Great final words before death: "Fox News fucked us ALL!" - Everything is HDTV media ecology. https://GitHub.com/RocketDerp/April14_2025/blob/main/Media_Ecology/Everything_is_ME.md (naked full link intended)
+
+https://old.reddit.com/r/politics/comments/1qh86qf/trumps_letter_to_norway_should_be_the_last_straw/o0hwan2/
+
+https://old.reddit.com/r/politics/comments/1qh86qf/trumps_letter_to_norway_should_be_the_last_straw/o0hyzu6/
+
+https://old.reddit.com/r/politics/comments/1qh86qf/trumps_letter_to_norway_should_be_the_last_straw/o0i9nvn/
+
+https://old.reddit.com/r/politics/comments/1qh86qf/trumps_letter_to_norway_should_be_the_last_straw/o0iawy5/
+
+https://old.reddit.com/r/politics/comments/1qh86qf/trumps_letter_to_norway_should_be_the_last_straw/o0i1y3s/
+
+https://old.reddit.com/r/politics/comments/1qh86qf/trumps_letter_to_norway_should_be_the_last_straw/o0i2oda/
+
+https://old.reddit.com/r/politics/comments/1qh86qf/trumps_letter_to_norway_should_be_the_last_straw/o0i8yr4/
+
+https://old.reddit.com/r/politics/comments/1qh86qf/trumps_letter_to_norway_should_be_the_last_straw/o0i9b3a/
+
+https://old.reddit.com/r/politics/comments/1qh86qf/trumps_letter_to_norway_should_be_the_last_straw/o0i5dx8/
+
+https://old.reddit.com/r/politics/comments/1qh86qf/trumps_letter_to_norway_should_be_the_last_straw/o0i7ony/
+
+https://old.reddit.com/r/politics/comments/1qh86qf/trumps_letter_to_norway_should_be_the_last_straw/o0i0fqk/
+
+Glimpse beyond the society-wide denial. Widespread denial of the Reddit audience that memes are the very source of Trump power, mockery power. OPERA_A Seeing to far. https://www.youtube.com/watch?v=P5ZJui3aPoQ Once someone recognized that the "last straw" is being burned by Reddit cultists for amusement warmth and comfort-memes. 140,705,262 views February 15, 2017
