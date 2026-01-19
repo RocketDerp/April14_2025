@@ -340,3 +340,11 @@ Sports fanatic mindset. Sit in the stadium and cheer others to solve the problem
 https://old.reddit.com/r/AskTheWorld/comments/1qh610n/what_are_your_thoughts_on_this_letter_from_donald/o0hjpj7/
 
 Trump Fandom: "hilarious!"... Surkov students have been doing this for 25 years, and zero self-awareness in Reddit fandom that this is Kremlin's official world engagement methods. To be funny and *hilarious* with letters and messages while killing real people in Ukraine. Fanatics of Trump can never get enough of the surreal symbolism mind exploitation! Meme addict attractions.
+
+https://old.reddit.com/r/AskTheWorld/comments/1qh610n/what_are_your_thoughts_on_this_letter_from_donald/o0hj3by/
+
+<img width="1142" height="618" alt="image" src="https://github.com/user-attachments/assets/e1a51fe9-4b04-4ce9-ac77-ebfdf5716abb" />
+
+Russian Trump fan cheers on the win of Surkov students over reality. "This real?"
+
+Social post { https://autistics.life/@RoundSparrow/115923316957092833 https://bsky.app/profile/roundsparrow.bsky.social/post/3mcsdhaagyk27 }
