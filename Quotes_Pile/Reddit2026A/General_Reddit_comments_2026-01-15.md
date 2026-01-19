@@ -1105,3 +1105,27 @@ https://old.reddit.com/r/ProgressiveHQ/comments/1qh3lu8/the_letter_that_donald_t
 
 Predicable mocking, IRA conditioned mindset.
 
+https://old.reddit.com/r/worldnews/comments/1qh63ad/trump_links_greenland_dispute_to_not_getting/o0hgl0c/
+
+"disturbed"
+
+https://old.reddit.com/r/worldnews/comments/1qh63ad/trump_links_greenland_dispute_to_not_getting/o0hgxqq/
+
+"boggles the mind"
+
+https://old.reddit.com/r/worldnews/comments/1qh63ad/trump_links_greenland_dispute_to_not_getting/o0hfbj4/
+
+"unhinged"
+
+https://old.reddit.com/r/worldnews/comments/1qh63ad/trump_links_greenland_dispute_to_not_getting/o0ht0wx/
+
+"crazy"
+
+https://old.reddit.com/r/worldnews/comments/1qh63ad/trump_links_greenland_dispute_to_not_getting/o0hl3b2/
+
+"unhinged"
+
+https://old.reddit.com/r/worldnews/comments/1qh63ad/trump_links_greenland_dispute_to_not_getting/o0hi1lh/
+
+"Putin", downplaying that Trump is team Kremlin White House. Trump must be *rescued* from Putin, lacking self-awareness, as is the Reddit audience ignoring IRA invasion. April 11, 2018 https://www.FastCompany.com/40557479/reddit-has-named-944-banned-russian-propaganda-accounts
+
