@@ -36,7 +36,7 @@ error_fetch_count = 0
 error_parse_a_count = 0
 fetch_reddit_count_a = 0
 replies_users_fetch = 0
-replies_users_max = 8
+replies_users_max = 64
 # every slowdown_every fetches kick in delay
 slowdown_every = 2
 age18_count = 0
