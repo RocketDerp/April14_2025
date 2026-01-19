@@ -896,3 +896,24 @@ https://old.reddit.com/r/politics/comments/1qghksv/think_trump_wont_cancel_the_e
 
 See the word "insane" in the replies.
 
+https://old.reddit.com/r/50501/comments/1qgl18v/gavin_newsom_denies_the_genocide_in_gaza/o0d6lo0/
+
+Capturing the replies.
+
+https://old.reddit.com/r/50501/comments/1qgl18v/gavin_newsom_denies_the_genocide_in_gaza/o0dcfuu/
+
+Entertainment, meme charmed, society.
+
+https://old.reddit.com/r/50501/comments/1qgl18v/gavin_newsom_denies_the_genocide_in_gaza/o0d3hm5/
+
+More powerful people trolling is what people consider "great" in Reddit audience.
+
+https://old.reddit.com/r/50501/comments/1qgl18v/gavin_newsom_denies_the_genocide_in_gaza/o0dzmsv/
+
+Why have people not been putting forth a top 10 persons for the job all along? Something is very sick and sickening about a society of over 300 million people where 10 leaders can't follow a system of good governing. The sports mentality of the voters, media consumers (even if they don't vote) is toxic.
+
+https://old.reddit.com/r/50501/comments/1qgl18v/gavin_newsom_denies_the_genocide_in_gaza/o0dzze5/
+
+https://old.reddit.com/r/50501/comments/1qgl18v/gavin_newsom_denies_the_genocide_in_gaza/o0dfacc/
+
+God, what shallow and superficial values.
