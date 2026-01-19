@@ -330,7 +330,7 @@ President Tony Clifton acting works on social media meme addicts. Avoiding repea
 
 https://old.reddit.com/r/politics/comments/1q9xmom/the_us_was_a_nation_the_world_wanted_to_emulate/nyym9zj/
 
-Having to be immersed in non-stop fiction addicts, many who spread and smear anti-intellectual LOL shit about Trump, addiction to "orange skin" and "poop diapers" of Trump.. brain damaging all the time, every fucking day! The anti-goodness prizing of shit! Neil Postman's 1985 book describes social media hell society that thinks Trump is amusing entertainment! Meme addict society.  September 10, 2025 https://Time.com/7313999/neil-postman-trump-prediction/
+Having to be immersed in non-stop fiction addicts, many who spread and smear anti-intellectual LOL shit about Trump, addiction to "orange skin" and "poop diapers" of Trump.. brain damaging all the time, every fucking day! The anti-goodness prizing of shit! Neil Postman's 1985 book describes social media Hell society that thinks Trump is amusing entertainment! Meme addict society.  September 10, 2025 https://Time.com/7313999/neil-postman-trump-prediction/
 
 https://old.reddit.com/r/politics/comments/1q9xmom/the_us_was_a_nation_the_world_wanted_to_emulate/nyyjkze/
 
@@ -1595,4 +1595,8 @@ Reddit **fandom loves the President Tony Clifton**, NYC SNL comedy - home town o
 https://old.reddit.com/r/europe/comments/1qgyjdg/trumps_letter_to_norwegian_prime_minister_feels/o0g4lzi/
 
 "believe"
+
+https://old.reddit.com/r/worldnews/comments/1qgxmfe/trump_says_nobel_prize_denial_ends_obligation_to/o0fupc1/
+
+Anti-reading message, most popular comment, top-upvoted. Twitter-length comment message on Reddit declaring how reading nonfiction reality is too painful. Meme addicts, meme addled population. Neil Postman's 1985 book describes social media Hell society that thinks Trump is amusing entertainment! Meme addict society.  September 10, 2025 https://Time.com/7313999/neil-postman-trump-prediction/
 
