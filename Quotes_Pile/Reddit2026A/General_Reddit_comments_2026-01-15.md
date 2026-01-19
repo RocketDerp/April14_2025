@@ -937,3 +937,17 @@ https://old.reddit.com/r/ProgressiveHQ/comments/1qgt1d7/the_leftists_are_taking_
 We The People had over 10 years since June `16, 2015 to see the hate wave building and on MLK Jr eve, people sheering on hate. Machine tech lovers, human haters. People did not stand up for cult deprogramming and learning of Russian information warfare.
 
 https://old.reddit.com/r/ProgressiveHQ/comments/1qgt1d7/the_leftists_are_taking_the_right_approach/o0f7c4h/
+
+https://old.reddit.com/r/Adulting/comments/1qgrsct/do_you_think_were_overeducated/o0eqvfv/
+
+Top voted comment from a new account.
+
+https://old.reddit.com/r/Adulting/comments/1qgrsct/do_you_think_were_overeducated/o0esq33/
+
+https://old.reddit.com/r/liberalgunowners/comments/1qgopl9/armed_community_member_stands_guard_in_his/o0dznb8/
+
+The Whole World is now primed to tune into USA self-harm. MLK Jr day and the gun worship is strong.
+
+https://old.reddit.com/r/liberalgunowners/comments/1qgopl9/armed_community_member_stands_guard_in_his/o0dyfed/
+
+https://old.reddit.com/r/liberalgunowners/comments/1qgopl9/armed_community_member_stands_guard_in_his/o0dz8eq/
