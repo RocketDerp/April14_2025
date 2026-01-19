@@ -951,3 +951,33 @@ The Whole World is now primed to tune into USA self-harm. MLK Jr day and the gun
 https://old.reddit.com/r/liberalgunowners/comments/1qgopl9/armed_community_member_stands_guard_in_his/o0dyfed/
 
 https://old.reddit.com/r/liberalgunowners/comments/1qgopl9/armed_community_member_stands_guard_in_his/o0dz8eq/
+
+https://old.reddit.com/r/politics/comments/1qh1gcf/trumps_appalling_threat_leaves_no_doubt_its_time/o0gimvh/
+
+Popular upvoted comment that is Twitter-length Tweet-logic. Saying *do nothing, We The People, do nothing, people...* to Reddit audience.
+
+https://old.reddit.com/r/politics/comments/1qh1gcf/trumps_appalling_threat_leaves_no_doubt_its_time/o0gltiu/
+
+5 month Reddit account.
+
+https://old.reddit.com/r/politics/comments/1qh1gcf/trumps_appalling_threat_leaves_no_doubt_its_time/o0gltli/
+
+Ignoring the cult of Fox News HDTV. ignoring the cult of Bible book that can not find page verse "1 John 3:17" and apply it to Musk and Trump. Reddit messaging to avoid doing cult deprogramming of Fox News audience... 
+
+https://old.reddit.com/r/politics/comments/1qh1gcf/trumps_appalling_threat_leaves_no_doubt_its_time/o0gjla4/
+
+https://old.reddit.com/r/politics/comments/1qh1gcf/trumps_appalling_threat_leaves_no_doubt_its_time/o0gqaw2/
+
+7-month Reddit account: "real media", on Reddit. Nothing is preventing Reddit users from organizing movie showings.
+
+https://old.reddit.com/r/politics/comments/1qh1gcf/trumps_appalling_threat_leaves_no_doubt_its_time/o0gl62t/
+
+Casual "mentally unstable". Reddit audience is unable to even THINK of turning to books. Unable to turn to nonfiction learning. Dr. Bandy X Lee's nonfiction book from October 3, 2017. Trump has been the center of all society attention since June 16, 2015... MORE THAN TEN YEARS AND SEVEN MONTHS. And Reddit addicts to low-effort commenting can't even consider that nonfiction books on the topic may be at the public library! Glued to Reddit commenting fixation.
+
+https://old.reddit.com/r/politics/comments/1qh1gcf/trumps_appalling_threat_leaves_no_doubt_its_time/o0gq6ty/
+
+Reddit commenting section is invaded by Russia's Internet Research Agency since March 2013. https://www.axios.com/2018/04/10/reddit-found-nearly-1000-1523402788
+
+https://old.reddit.com/r/politics/comments/1qh1gcf/trumps_appalling_threat_leaves_no_doubt_its_time/o0goh50/
+
+1 month Reddit account.
