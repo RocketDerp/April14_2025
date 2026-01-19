@@ -261,3 +261,9 @@ I've been a social media user since Christmas 1982, age 13, and my media ecology
 The comment ending on a "/s" satire indicator / sarcasm indicator / shit-posting indicator does in no way dismiss the perspective Marshall McLuhan and Neil Postman would highlight. The TIME SPENT, the FREE TIME, the SPARE TIME crating original absurd surreal comedy about Trump. The addiction to medium. For me, personally, this is Hell and it has worsened every single day and night since Bloomsday 2015.
 
 Social Post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mcrwdwt5fk2x https://autistics.life/@RoundSparrow/115922393737906554 }
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qh3lu8/the_letter_that_donald_trump_sent_to_prime/o0gz7b4/
+
+Fandoms hang on Trump's every single word. The symbolism just pours into audience minds. The diplomatic delivery systems, leader to leader, symbolism of the FIFA Peace Prize planted around the Nobel. This type of response is everything "Woke" about James Joyce's Finnegans Wake. Being incredibly superficial and banal and in no way recognizing that the *distinctive style* of Trump is *the medium* that overrides the message. The patterns of language reprogram meme-thinking in the Reddit audience! It is MASS MAN messaging. Because people flock to it, are so driven by Trump's markings and arrangement of language.
+
+The formal business letter is the *medium* that blows Reddit audience minds. "Introibo ad altare Dei"
