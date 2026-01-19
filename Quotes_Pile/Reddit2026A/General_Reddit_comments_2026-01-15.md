@@ -1053,3 +1053,29 @@ yes, the entire Reddit audience, the society of meme addicts who have humor-wash
 Reddit end-users keep playing the engaging conversation of "what can I do?" on Reddit commenting section. Playing dumb. Doing everything to avoid the elephant in the room for decades (since 1996). **Fox News HDTV, Rupert Murdoch audience**. Jen Senko's film can be taught, upload 30 second clips every 2 hours, day and night, form a team of 13 people and tag-team the uploads. Protest, get noticed, get Jen Senko to be the *Baby Boomer Little Gal who Stood Up to Rupert Murdoch!*. Stop standing up for the Big Guy and stand up for The Little Gal!
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mcryuyzp7s2j https://autistics.life/tags/SocialMediaUprising }
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qh3lu8/the_letter_that_donald_trump_sent_to_prime/o0gxq63/
+
+"day after day", video gamers grind on Trump meme voting on Reddit. The Celebrity Fandom of Trump on Reddit grind away way more than World of Warcraft players!
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qh3lu8/the_letter_that_donald_trump_sent_to_prime/o0h1350/
+
+"Jesus Fucking Christ" - mind blown on Reddit. Trump style and fashion blows Reddit audience minds. Daddy issues all over Reddit.
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qh3lu8/the_letter_that_donald_trump_sent_to_prime/o0h16jz/
+
+"conforms it every day" - and Reddit audience, the commenting creators on Reddit, confirm it thousands of times per day with low-effort commenting at high speeds. Addicts to Trump content. Fandom to total mockery Trump leadership.
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qh3lu8/the_letter_that_donald_trump_sent_to_prime/o0h0xv8/
+
+"nuts"
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qh3lu8/the_letter_that_donald_trump_sent_to_prime/o0h14qx/
+
+<img width="1083" height="411" alt="image" src="https://github.com/user-attachments/assets/8413b712-d551-4ada-a487-2ef0441660d5" />
+
+not "human", casual dehumanization of tech lovers, technology addicts;  Reddit end-users. Machine lovers who hate people and on MLK Jr day promote mass dehumanization of hundreds of millions of people. Ultra-fast TCP/IP messaging addiction symptoms all over the Reddit audience.
+
+* The high-speed loss of personal identity (of everyone) that Marshall McLuhan described in 1977. https://www.Organism.Earth/library/document/mcluhan-mcmanus "Everybody tends to **merge his identity with other people at the speed of light**. It’s called being mass man. It began quite a long time ago."
+
+Social post { https://autistics.life/@RoundSparrow/115922622107678013 https://bsky.app/profile/roundsparrow.bsky.social/post/3mcrzlz4pxk2w }
