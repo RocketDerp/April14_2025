@@ -395,4 +395,15 @@ https://old.reddit.com/r/politics/comments/1qh86qf/trumps_letter_to_norway_shoul
 
 https://old.reddit.com/r/politics/comments/1qh86qf/trumps_letter_to_norway_should_be_the_last_straw/o0i0fqk/
 
-Glimpse beyond the society-wide denial. Widespread denial of the Reddit audience that memes are the very source of Trump power, mockery power. OPERA_A Seeing to far. https://www.youtube.com/watch?v=P5ZJui3aPoQ Once someone recognized that the "last straw" is being burned by Reddit cultists for amusement warmth and comfort-memes. 140,705,262 views February 15, 2017
+Glimpse beyond the society-wide denial. Widespread denial of the Reddit audience that memes are the very source of Trump power, mockery power. OPERA_A Seeing too far. *Far-out* forest view. https://www.youtube.com/watch?v=P5ZJui3aPoQ Once someone recognized that the "last straw" is being burned by Reddit cultists for amusement warmth and comfort-memes. 140,705,262 views February 15, 2017
+
+https://old.reddit.com/r/politics/comments/1qh86qf/trumps_letter_to_norway_should_be_the_last_straw/o0i8dk7/
+
+Woke to the rear-view mirror of what already happened in year 2025. It is MLK Day 2026.
+
+https://old.reddit.com/r/politics/comments/1qh86qf/trumps_letter_to_norway_should_be_the_last_straw/o0i92bw/
+
+Cult deprogramming on a scale never seen by humanity, the whole Top to Bottom of the MonoMyth is in order. 18 month, this Github is an etrance.
+
+* “The artist, the enema of society, points out things that many people would prefer not to notice.”
+— Marshall McLuhan. March 1967.
