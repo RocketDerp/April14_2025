@@ -222,3 +222,17 @@ Daddy issues. Either love daddy, or hate daddy. Both groups line up to praise or
 
 Personally, I suggest people focus less on penis ('dong') size of leaders and more on the money spent on advertising, marketing, photographs, live video, media coverage. Media cult self-awareness. Prizing Trump as a source of stimulating media entertainment.
 
+https://old.reddit.com/r/LiveFromNewYork/comments/1qgr7x0/this_isnt_funny_anymore/o0eisr6/
+
+Trump fandom on Reddit thinks dehumanizing people with media systems, dehumanizing like Fox News media does, is a good thing. People need to face the media addiction to comedy antics is the very mechanism of power. Manhattan Professor Neil Postman's work applies to SNL meme-washing Trump. Trump is first and foremost an entertainer and popular as a celebrity. Facing up that his talent is personality and drawing attention is essential self-awareness of what we are dealing with as an education crisis in society. Trump is unstoppable because he turns minds into charmed attraction.
+
+One man with Trump's problems isn't the concern nearly as much as an entire population that can't get behind Dr. Bandy X Lee's leadership. We are all just one celebrity away from even worse outcomes in the world if we can't come to terms with the attraction people have to the dangerous self-harm like Putin and Trump.
+
+https://old.reddit.com/r/LiveFromNewYork/comments/1qgr7x0/this_isnt_funny_anymore/o0ekbz0/
+
+Reddit comedy venue already satire-washes trump into "sane for entertainment" purposes. Entertainment fiction has an anything goes. People are outright detached from reality. And denial of Surkovian information warfare / Russia techniques since year 1999.
+
+https://old.reddit.com/r/LiveFromNewYork/comments/1qgr7x0/this_isnt_funny_anymore/o0eierj/
+
+Reddit society has absolute deepest faith in mocking. for OVER TEN YEARS AND SEVEN MONTHS, endlessly mocking trump. Always more mocking. Anything to avoid: Neil Postman, Dr. Bandy X Lee.
+
