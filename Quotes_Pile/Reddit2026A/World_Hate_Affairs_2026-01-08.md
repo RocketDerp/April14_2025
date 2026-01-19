@@ -1672,3 +1672,11 @@ https://old.reddit.com/r/AskTheWorld/comments/1qh610n/what_are_your_thoughts_on_
 
 "Real"?
 
+https://old.reddit.com/r/politics/comments/1qh86qf/trumps_letter_to_norway_should_be_the_last_straw/o0hwipy/
+
+Last Straw was long long long ago.
+
+https://old.reddit.com/r/politics/comments/1qh86qf/trumps_letter_to_norway_should_be_the_last_straw/o0hx6wf/
+
+Loyal Trump Fandom. Hate prizing. Mockery prizing. Anti-goodness. Social media values of memes over humanism. Trump entertains like no other leader in world history. Smartphone fever.
+
