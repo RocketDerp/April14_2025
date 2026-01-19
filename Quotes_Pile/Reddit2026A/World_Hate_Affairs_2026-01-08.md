@@ -1456,4 +1456,17 @@ The top comment on Reddit is going right along with the excitement MAGA has of c
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mcqigd2lsk2j https://autistics.life/@RoundSparrow/115919166796700760 }
 
+https://old.reddit.com/r/europe/comments/1qgyjdg/trumps_letter_to_norwegian_prime_minister_feels/o0g0div/
+
+People do not grasp human history of war and conquest. It isn't the children.
+
+https://old.reddit.com/r/europe/comments/1qgyjdg/trumps_letter_to_norwegian_prime_minister_feels/o0g05yi/
+
+https://old.reddit.com/r/europe/comments/1qgyjdg/trumps_letter_to_norwegian_prime_minister_feels/o0fzwhs/
+
+https://old.reddit.com/r/europe/comments/1qgyjdg/trumps_letter_to_norwegian_prime_minister_feels/o0g05cg/
+
+https://old.reddit.com/r/europe/comments/1qgyjdg/trumps_letter_to_norwegian_prime_minister_feels/o0g0gri/
+
+See reply comment about honesty and "this is real".
 
