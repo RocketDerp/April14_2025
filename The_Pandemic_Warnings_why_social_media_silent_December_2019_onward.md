@@ -56,4 +56,3 @@ This is 15 months before a virus escaped via airports in Wuhan, China to airport
 There is something wrong with the media ecology behaviors of social media consumers. Neil Postman was correct in his 1985 book "Amusing Ourselves To Death"...
 
 Measles outbreaks are going on in North America all year 2025, and social media users are ignoring that measles is in that August 24, 2018 BBC story. Our society-wide avoidance of nonfiction problem is extremely serious.
-
