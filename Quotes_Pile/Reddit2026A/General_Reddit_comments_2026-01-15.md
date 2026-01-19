@@ -1078,4 +1078,6 @@ not "human", casual dehumanization of tech lovers, technology addicts;  Reddit e
 
 * The high-speed loss of personal identity (of everyone) that Marshall McLuhan described in 1977. https://www.Organism.Earth/library/document/mcluhan-mcmanus "Everybody tends to **merge his identity with other people at the speed of light**. It’s called being mass man. It began quite a long time ago."
 
-Social post { https://autistics.life/@RoundSparrow/115922622107678013 https://bsky.app/profile/roundsparrow.bsky.social/post/3mcrzlz4pxk2w }
+ALSO NOTE: This is branded by #Reddit as "Progressive HQ", when it is a terrorist anti-humanism training ground for WWW users.
+
+Social post { https://autistics.life/@RoundSparrow/115922622107678013 https://bsky.app/profile/roundsparrow.bsky.social/post/3mcs23csxa22c }
