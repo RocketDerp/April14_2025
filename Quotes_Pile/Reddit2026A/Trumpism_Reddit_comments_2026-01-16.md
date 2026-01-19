@@ -201,3 +201,16 @@ What's gong on here is a fake image. A cult of Trump facial and body images on R
 https://old.reddit.com/r/pics/comments/1qgja2p/no_ones_looking_rubio/o0crnij/
 
 Mind-fucking Reddit audiences wit unreality warfare. Surkov won.
+
+https://old.reddit.com/r/pics/comments/1qgmy7c/white_house_photographer_unintentionally_takes/o0dk6in/
+
+I can't keep up with other social media platforms, but Reddit has turned into a all the time image fandom of Donald Trump. People are WAITING on Reddit for the next Donald Trump image or quote to appear. [Turd-testing society of Trump image fandoms](/Grim_Blunt/Society_of_grading_and_ranking_turds.md). A product of relentlessness team of media billionaire marketing and media systems feeding the USA consumers the cult images of Trump.
+
+https://old.reddit.com/r/pics/comments/1qgmy7c/white_house_photographer_unintentionally_takes/o0divqo/
+
+.. Vince Gilligan about audiences finding bad guys attractive role models. WGA February 15, 2025.
+
+https://old.reddit.com/r/pics/comments/1qgmy7c/white_house_photographer_unintentionally_takes/o0djriz/
+
+Yes, accidental mistake. At least SOMEONE is not gullible that Trump-worship images on a Sunday Church day are not "mistakes" to share with the public. Surkovian media techniques.
+
