@@ -251,3 +251,13 @@ We The People are cheerleaders for Trump's wild and outrageous actions and style
 https://old.reddit.com/r/UnderReportedNews/comments/1qh278i/greenland_politician_tillie_martinussenwe_do_not/o0gqe90/
 
 Because of social media comment communities, concerns and behaviors of meme addicts.  AVOIDANCE: Absence of turning to nonfiction serious books shows exactly what anti-intellectual attitude the Reddit community has adopted. Neil Postman's book explains the crisis: September 10, 2025 https://Time.com/7313999/neil-postman-trump-prediction/
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qh3lu8/the_letter_that_donald_trump_sent_to_prime/o0h5wwl/
+
+<img width="1255" height="489" alt="image" src="https://github.com/user-attachments/assets/4e378712-00ca-49e4-a71b-a42da1ac4eae" />
+
+I've been a social media user since Christmas 1982, age 13, and my media ecology thesis is that this is Trump fandom! Jesus monomyth is Surkovian monomyth by the IRA into Reddit hive mind / mass man (University of Toronto Marshall McLuhan terminology). Compusive addiction FOR OVER TEN YEARS AND SEVEN MOTHS to high-speed media *rush* of mocking DJT / POTUS / Manhattan NYC symbolism. Surkov students won! This (Reddit comment cited) is on of the many deep fans of Donald Trump in one of the many many many fandom venues!
+
+The comment ending on a "/s" satire indicator / sarcasm indicator / shit-posting indicator does in no way dismiss the perspective Marshall McLuhan and Neil Postman would highlight. The TIME SPENT, the FREE TIME, the SPARE TIME crating original absurd surreal comedy about Trump. The addiction to medium. For me, personally, this is Hell and it has worsened every single day and night since Bloomsday 2015.
+
+Social Post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mcrwdwt5fk2x https://autistics.life/@RoundSparrow/115922393737906554 }
