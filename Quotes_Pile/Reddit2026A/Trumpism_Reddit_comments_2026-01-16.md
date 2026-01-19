@@ -437,3 +437,10 @@ Trump *is* ***Based*** for meme addicts!
 
 Every media platform is hosting and churning out *Trump*ism. The entire nation is a super-dumb Reality TV show. The problem is not *one man*, it's a population of over 300 million tuned into "The Truman Show" **watching dumb-stupid content** streaming out of the White House!
 
+https://old.reddit.com/r/AdviceAnimals/comments/1qha9qi/hes_confused/o0jf7kk/
+
+The POTUS symbolism is blowing Reddit audience minds into highly predictable reactionary mindsets. Surkov won.
+
+https://old.reddit.com/r/AdviceAnimals/comments/1qha9qi/hes_confused/o0jcdjk/
+
+Meme-thinking and Trump-think are all memes. Film clips, magazine stories, junk information. Fox News HDTV thinking. OPERA_A https://www.youtube.com/watch?v=aIuCdQtNBgg Welcome to the Brand New NATION, USA! 2,057,197 views July 29, 2018
