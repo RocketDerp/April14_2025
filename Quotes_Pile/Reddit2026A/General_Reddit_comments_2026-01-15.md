@@ -67,7 +67,7 @@ https://old.reddit.com/r/TikTokCringe/comments/1qdflr2/why_isnt_anyone_speaking_
 
 High-speed media addiction t junk content. Prizing { hate, mocking, insulting, name-calling, domination, men defeating girls and women } is every area of society. Fox News has been on the air since October 7, 1996. This problem is an entire population that won't stop putting shit into their brains and stand up to the Anti-WIki anti-FAQ, anti-goodness attitudes.
 
-Since June 16, 2015... it never ends! Having to be immersed in non-stop fiction addicts, many who spread and smear anti-intellectual LOL shit about Trump, addiction to "orange skin" and "poop diapers" of Trump.. brain damaging all the time, every fucking day! The anti-goodness prizing of shit! Neil Postman's 1985 book describes social media Hell society that thinks Trump is amusing entertainment! Meme addict society.  September 10, 2025 https://Time.com/7313999/neil-postman-trump-prediction/
+Since June 16, 2015... it never ends! Having to be immersed in non-stop fiction addicts, many who spread and smear anti-intellectual LOL shit *about* Trump, addiction to "orange skin" and "poop diapers" of Trump.. brain damaging all the time, every fucking day! The anti-goodness prizing of shit! Neil Postman's 1985 book describes social media Hell society that thinks Trump is amusing entertainment! Meme addict society. September 10, 2025 https://Time.com/7313999/neil-postman-trump-prediction/
 
 https://old.reddit.com/r/TikTokCringe/comments/1qdflr2/why_isnt_anyone_speaking_up/nzpoirn/
 
@@ -1038,3 +1038,18 @@ https://old.reddit.com/r/ProgressiveHQ/comments/1qh3lu8/the_letter_that_donald_t
 
 "like watching a reality show" - Surkov onion eater. It isn't *like* Reality media TV show-ing, it's scripted and Reddit audience can't tell the media labor that goes into media superstar Trump. https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Reddit2025A/Surkovian_Onion_Eating.md
 
+https://old.reddit.com/r/ProgressiveHQ/comments/1qh3lu8/the_letter_that_donald_trump_sent_to_prime/o0h2oij/
+
+{ "sick", "medications", "delusions" }
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qh3lu8/the_letter_that_donald_trump_sent_to_prime/o0h971q/
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qh3lu8/the_letter_that_donald_trump_sent_to_prime/o0hb0uc/
+
+<img width="1303" height="982" alt="image" src="https://github.com/user-attachments/assets/51571878-7511-4bd5-9c69-3877faa61d06" /> 
+
+yes, the entire Reddit audience, the society of meme addicts who have humor-washed comedy-washed Trump. Same with late-night Stephen Colbert, etc. NYU Media Ecology school is FAR from unknown. Reddit is the super-spreader of John 1:1 mind-fucking for the IRA. The technically talented and tech gifted people who use Reddit to spread to everywhere else. The nerd hangout with the tech skills. Constantly polinating the brain damaging all the time, every fucking day! The anti-goodness prizing of shit! Neil Postman's 1985 book describes social media Hell society that thinks Trump is amusing entertainment! Meme addict society. September 10, 2025 https://Time.com/7313999/neil-postman-trump-prediction/
+
+Reddit end-users keep playing the engaging conversation of "what can I do?" on Reddit commenting section. Playing dumb. Doing everything to avoid the elephant in the room for decades (since 1996). **Fox News HDTV, Rupert Murdoch audience**. Jen Senko's film can be taught, upload 30 second clips every 2 hours, day and night, form a team of 13 people and tag-team the uploads. Protest, get noticed, get Jen Senko to be the *Baby Boomer Little Gal who Stood Up to Rupert Murdoch!*. Stop standing up for the Big Guy and stand up for The Little Gal!
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mcryuyzp7s2j https://autistics.life/tags/SocialMediaUprising }
