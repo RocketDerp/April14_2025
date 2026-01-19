@@ -401,6 +401,8 @@ https://old.reddit.com/r/politics/comments/1qh86qf/trumps_letter_to_norway_shoul
 
 Woke to the rear-view mirror of what already happened in year 2025. It is MLK Day 2026.
 
+# Cult A
+
 https://old.reddit.com/r/politics/comments/1qh86qf/trumps_letter_to_norway_should_be_the_last_straw/o0i92bw/
 
 Cult deprogramming on a scale never seen by humanity, the whole Top to Bottom of the MonoMyth is in order. 18 month, this GitHub project is an entrance.
