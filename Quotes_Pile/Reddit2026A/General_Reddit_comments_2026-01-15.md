@@ -1139,3 +1139,43 @@ https://old.reddit.com/r/AdviceAnimals/comments/1qh5kl7/makes_sense_putin_is_a_h
 
 * "A war where you never know what the enemy are really up to, or even who they are. The underlying aim, Surkov says, is not to win the war, but to use the conflict to create a constant state of destabilized perception, in order to manage and control." - December 31, 2014, BBC, Adam Curtis
 * "But **the key thing was**, that Surkov then let it be known that this was what he was doing, which meant that no one was sure what was real or fake. As one journalist put it: "It is a strategy of power that keeps **any opposition constantly confused." A ceaseless shape-shifting** that is unstoppable because it is undefinable." - BBC, Adam Curtis, New Years Eve 2014
+
+https://old.reddit.com/r/AskTheWorld/comments/1qh610n/what_are_your_thoughts_on_this_letter_from_donald/o0hfe36/
+
+"Deranged". Reddit audiences keep NOT standing up in protest to REMOVE TRUMP. The WWW keeps profiting off commenting on Trump.
+
+https://old.reddit.com/r/AskTheWorld/comments/1qh610n/what_are_your_thoughts_on_this_letter_from_donald/o0hjniz/
+
+Surkovian onion eater.  [Eating the onions](../Reddit2025A/Surkovian_Onion_Eating.md) that Trump and Musk is dementia stupid dumb idiot, Reddit society unable to engage and comprehend and understand off-Reddit... September 9, 2014: https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/AskTheWorld/comments/1qh610n/what_are_your_thoughts_on_this_letter_from_donald/o0hgmf2/
+
+Minds blown, Trump's acting and performance of President Tony Clifton blows the audience minds every time. People keep coming to the shows over and over to get their mind blown by Trump. Addictions to media content creator White House.
+
+https://old.reddit.com/r/AskTheWorld/comments/1qh610n/what_are_your_thoughts_on_this_letter_from_donald/o0hip4n/
+
+IRA mind-fucked Reddit users to treat this all as thrilling entertainment. It is astounding how people can't see others in the audience in meme mania. University of Toronto's Marshall McLuhan wrote a big pile of books and education material that is all being avoided by the astounded Reddit fandom.
+
+https://old.reddit.com/r/AskTheWorld/comments/1qh610n/what_are_your_thoughts_on_this_letter_from_donald/o0hjtj0/
+
+This entire GitHub, you are here, is an exercise in trying to explain HOW the IRA and Cambridge Analytica mind-fucked American People, We The People, into meme stupors. 
+
+https://old.reddit.com/r/AskTheWorld/comments/1qh610n/what_are_your_thoughts_on_this_letter_from_donald/o0himrl/
+
+1 month Reddit account. Early to comment.
+
+https://old.reddit.com/r/AskTheWorld/comments/1qh610n/what_are_your_thoughts_on_this_letter_from_donald/o0hhdlb/
+
+"mental instability" engagement of asking questions.
+
+https://old.reddit.com/r/AskTheWorld/comments/1qh610n/what_are_your_thoughts_on_this_letter_from_donald/o0hhv0y/
+
+"real"?
+
+https://old.reddit.com/r/AskTheWorld/comments/1qh610n/what_are_your_thoughts_on_this_letter_from_donald/o0hl8md/
+
+<img width="996" height="566" alt="image" src="https://github.com/user-attachments/assets/150b8dbb-5fa9-4749-aeae-3312f36730da" />
+
+"the problem is not just Trump, but the entire USA." - YES! The Internet Research Agency mind-fucked the ENTIRE POPULATION! Self-awareness of the Reddit media environment, front page /r/All and what is absent!
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mcscw2tnzs27 https://autistics.life/@RoundSparrow/115923280505479826 }
