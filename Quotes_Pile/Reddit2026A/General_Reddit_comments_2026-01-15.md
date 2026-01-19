@@ -1129,3 +1129,13 @@ https://old.reddit.com/r/worldnews/comments/1qh63ad/trump_links_greenland_disput
 
 "Putin", downplaying that Trump is team Kremlin White House. Trump must be *rescued* from Putin, lacking self-awareness, as is the Reddit audience ignoring IRA invasion. April 11, 2018 https://www.FastCompany.com/40557479/reddit-has-named-944-banned-russian-propaganda-accounts
 
+https://old.reddit.com/r/AdviceAnimals/comments/1qh5kl7/makes_sense_putin_is_a_happy_boss_right_now/o0hpo7l/
+
+https://old.reddit.com/r/AdviceAnimals/comments/1qh5kl7/makes_sense_putin_is_a_happy_boss_right_now/o0heee9/
+
+https://old.reddit.com/r/AdviceAnimals/comments/1qh5kl7/makes_sense_putin_is_a_happy_boss_right_now/o0hg3g6/
+
+"Instability and confusion"
+
+* "A war where you never know what the enemy are really up to, or even who they are. The underlying aim, Surkov says, is not to win the war, but to use the conflict to create a constant state of destabilized perception, in order to manage and control." - December 31, 2014, BBC, Adam Curtis
+* "But **the key thing was**, that Surkov then let it be known that this was what he was doing, which meant that no one was sure what was real or fake. As one journalist put it: "It is a strategy of power that keeps **any opposition constantly confused." A ceaseless shape-shifting** that is unstoppable because it is undefinable." - BBC, Adam Curtis, New Years Eve 2014
