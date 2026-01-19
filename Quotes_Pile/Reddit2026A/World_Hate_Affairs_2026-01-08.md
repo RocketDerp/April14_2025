@@ -1520,3 +1520,35 @@ https://old.reddit.com/r/europe/comments/1qgyjdg/trumps_letter_to_norwegian_prim
 
 "Batshit crazy". No nonfiction book quotes, off-Reddit URL, mental health topic of Trump and MAGA is a casual joke on Reddit. Mockery casual, constant. Always avoiding good leadership in favor of commenting casually...  Dr. Bandy X Lee's nonfiction book from October 3, 2017.
 
+https://old.reddit.com/r/europe/comments/1qgyjdg/trumps_letter_to_norwegian_prime_minister_feels/o0g25zj/
+
+Twitter-length, Musk-twitter, short-message banality of serious topic. Psychiatric treatment topic. Always avoiding good leadership in favor of commenting casually...  Dr. Bandy X Lee's nonfiction book from October 3, 2017.
+
+https://old.reddit.com/r/europe/comments/1qgyjdg/trumps_letter_to_norwegian_prime_minister_feels/o0g3l5k/
+
+https://old.reddit.com/r/europe/comments/1qgyjdg/trumps_letter_to_norwegian_prime_minister_feels/o0g0wlq/
+
+https://old.reddit.com/r/europe/comments/1qgyjdg/trumps_letter_to_norwegian_prime_minister_feels/o0g049c/
+
+If Reddit audience could escape the pre-programmed *pop culture* mind sets, trapped in cage of thinking. Inside the box thinking...Unable to turn to nonfiction learning.  Dr. Bandy X Lee's nonfiction book from October 3, 2017.
+
+https://old.reddit.com/r/europe/comments/1qgyjdg/trumps_letter_to_norwegian_prime_minister_feels/o0gachx/
+
+https://old.reddit.com/r/europe/comments/1qgyjdg/trumps_letter_to_norwegian_prime_minister_feels/o0g8q7z/
+
+Reddit audience is unable to even THINK of turning to books. Unable to turn to nonfiction learning.  Dr. Bandy X Lee's nonfiction book from October 3, 2017.
+
+https://old.reddit.com/r/europe/comments/1qgyjdg/trumps_letter_to_norwegian_prime_minister_feels/o0g4t87/
+
+Denial. Do American People not have enough money to go purchase a $70 prepaid Android phone for 30 days, use it to get a GMail account for free (the phone number is required). Create a Bluesky account for free. Create a Reddit account for free. And post Dr. Bandy X Lee quotes from her book (free off Goodreads https://www.goodreads.com/author/quotes/16953723.Bandy_X_Lee ) every 6 hours, 4 times a day, in protest of Trump's thinking and mental health mindsets? Where is the massive social media uprising from AMERICAN PEOPLE showing they want Trump gone? There is NO EVIDENCE people are more concerned about Trump than they are about rectangle sports game of NFL season final! Trump is far more important topic, but The People are messaging that sports stars and entertainers (Trump "The Apprentice" TV) are more important than going on social media and saying "remove Trump!"
+
+Reddit audience is in DENIAL of /r/All of Reddit having no mass protest. REACTING and COMMENTING about Trump is not an organized protest on the WWW to REMOVE TRUMP! Driving your car to memetown every day is not driving the car to an organized protest that is slightly out of the way, 3 miles in a direction you do not normally go. Reddit /r/ALL shows people driving to amusement content of a Reality TV star doing performance art. President Tony Clifton. the FANDOM TO DONALD TRUMP is /r/All ! A BAD GUY, people mocking about how Darth Vader is bad, as if they are addicts to fiction and can't tell they need to PROTEST and STOP TREATING IT LIKE FICTION ENTERTAINMENT. This is not REALITY TV!
+
+https://old.reddit.com/r/europe/comments/1qgyjdg/trumps_letter_to_norwegian_prime_minister_feels/o0g14dq/
+
+The Reddit commenting, reaction-watching, of Trump goes on day after day. Always avoiding good leadership in favor of commenting casually...  Dr. Bandy X Lee's nonfiction book from October 3, 2017.
+
+https://old.reddit.com/r/europe/comments/1qgyjdg/trumps_letter_to_norwegian_prime_minister_feels/o0g28n0/
+
+"Driving me insane" that people describe cult behaviors, cults, but will not read nonfiction books about cult deprogramming and off-Reddit URL or quote a nonfiction book about cult topics!
+
