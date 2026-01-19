@@ -306,3 +306,19 @@ https://old.reddit.com/r/law/comments/1qh3dk1/trump_tells_norway_his_greenland_t
 https://old.reddit.com/r/law/comments/1qh3dk1/trump_tells_norway_his_greenland_threats_are/o0gya9w/
 
 "crazy"
+
+https://old.reddit.com/r/AdviceAnimals/comments/1qh5kl7/makes_sense_putin_is_a_happy_boss_right_now/o0hc4z5/
+
+Every single posting on Reddit is to be entertained "Advice Animals" banality at Trump's every move and shake. Eating right out of the hand of Surkov's students since March 2013 on Reddit.
+
+https://old.reddit.com/r/AdviceAnimals/comments/1qh5kl7/makes_sense_putin_is_a_happy_boss_right_now/o0hhvbd/
+
+Putin loves that Reddit meme addicts keep creating memes to wreck the USA. Amused constantly, blowing their minds out, avoiding nonfiction learning. ANYTHING but non-fiction serious books printed on paper!
+
+* "The brilliance of this **new type of authoritarianism** is that instead of simply oppressing opposition, as had been the case with twentieth-century strains, it climbs inside all ideologies and movements, exploiting and rendering them absurd. One moment Surkov would  ..." ― Peter Pomerantsev, Nothing Is True and Everything Is Possible: The Surreal Heart of the New Russia, **year 2014**
+
+https://old.reddit.com/r/AdviceAnimals/comments/1qh5kl7/makes_sense_putin_is_a_happy_boss_right_now/o0hcmbj/
+
+Look at the Reddir user profile message, wise-cracker. **Walking right into the gates** of Surkov students since March 2013 media invasion by the IRA.
+
+* “Everything in our background has prepared us to know and resist a prison when the gates begin to close around us . . . But what if there are no cries of anguish to be heard? Who is prepared to take arms against a sea of amusements? To whom do we complain, and when, and in what tone of voice, when serious discourse dissolves into giggles? What is the antidote to a culture's being drained by laughter?” ― NYU (Trump home town) Neil Postman, [Amusing Ourselves to Death: Public Discourse in the Age of Show Business. Page 156.](https://books.google.com/books?id=oup6iagfox8C&pg=PA156&dq=%E2%80%9CEverything+in+our+background+has+prepared+us+to+know+and+resist+a+prison+when+the+gates+begin+to+close+around+us%22&hl=en&newbks=1&newbks_redir=1&sa=X)
