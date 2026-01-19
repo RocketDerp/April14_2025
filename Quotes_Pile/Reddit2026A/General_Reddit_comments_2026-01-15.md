@@ -1088,3 +1088,20 @@ Reddit community #FWakeRedditCommunity
 25 likes per hour #HateAsFaith    
 
 <img width="1147" height="452" alt="Screenshot from 2026-01-19 09-24-51" src="https://github.com/user-attachments/assets/37278ea2-8afb-461e-94d4-6a4eced4f266" />
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qh3lu8/the_letter_that_donald_trump_sent_to_prime/o0h0j60/
+
+"real"
+
+I don’t even consider Trump supporters to be human anymore. They are nothing more than animals, and they deserve to be locked in cages like animals. 
+
+"real fucking life"
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qh3lu8/the_letter_that_donald_trump_sent_to_prime/o0h0tna/
+
+Trump acts and writes like a meme addict. Fox News HDTV addict. Screen addiction symptoms.
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qh3lu8/the_letter_that_donald_trump_sent_to_prime/o0h1y3j/
+
+Predicable mocking, IRA conditioned mindset.
+
