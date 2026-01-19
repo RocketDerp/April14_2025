@@ -1081,3 +1081,10 @@ not "human", casual dehumanization of tech lovers, technology addicts;  Reddit e
 ALSO NOTE: This is branded by #Reddit as "Progressive HQ", when it is a terrorist anti-humanism training ground for WWW users.
 
 Social post { https://autistics.life/@RoundSparrow/115922622107678013 https://bsky.app/profile/roundsparrow.bsky.social/post/3mcs23csxa22c }
+
+Reddit community #FWakeRedditCommunity 
+
+25 upvotes per hour on this comment. #HatePrized    
+25 likes per hour #HateAsFaith    
+
+<img width="1147" height="452" alt="Screenshot from 2026-01-19 09-24-51" src="https://github.com/user-attachments/assets/37278ea2-8afb-461e-94d4-6a4eced4f266" />
