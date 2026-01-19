@@ -1659,3 +1659,16 @@ https://old.reddit.com/r/AskTheWorld/comments/1qh610n/what_are_your_thoughts_on_
 https://old.reddit.com/r/AskTheWorld/comments/1qh610n/what_are_your_thoughts_on_this_letter_from_donald/o0hjjxr/
 
 4 month Reddit account. "mad man"
+
+https://old.reddit.com/r/AskTheWorld/comments/1qh610n/what_are_your_thoughts_on_this_letter_from_donald/o0hm0ku/
+
+"Unhinged lunatic"
+
+https://old.reddit.com/r/AskTheWorld/comments/1qh610n/what_are_your_thoughts_on_this_letter_from_donald/o0hn3t7/
+
+"Belief", "The Onion" ... [Reddit meme consumer... Audiences who eat the Surkovian Onions](../Reddit2025A/Surkovian_Onion_Eating.md) and believes this is White House *mistake or accident*.
+
+https://old.reddit.com/r/AskTheWorld/comments/1qh610n/what_are_your_thoughts_on_this_letter_from_donald/o0hixqx/
+
+"Real"?
+
