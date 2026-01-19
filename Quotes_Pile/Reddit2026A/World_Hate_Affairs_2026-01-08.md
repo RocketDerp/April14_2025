@@ -1680,3 +1680,38 @@ https://old.reddit.com/r/politics/comments/1qh86qf/trumps_letter_to_norway_shoul
 
 Loyal Trump Fandom. Hate prizing. Mockery prizing. Anti-goodness. Social media values of memes over humanism. Trump entertains like no other leader in world history. Smartphone fever.
 
+https://old.reddit.com/r/UnderReportedNews/comments/1qhbzof/danish_parliament_deputy_speaker_larschristian/o0ir0y7/
+
+Posting title: "erratic behavior", "mad behavior"
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qhbzof/danish_parliament_deputy_speaker_larschristian/o0isl53/
+
+"insane"
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qhbzof/danish_parliament_deputy_speaker_larschristian/o0it13o/
+
+"madness"
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qhbzof/danish_parliament_deputy_speaker_larschristian/o0iun5i/
+
+"madman"
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qhbzof/danish_parliament_deputy_speaker_larschristian/o0iy5hv/
+
+"madman"
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qhbzof/danish_parliament_deputy_speaker_larschristian/o0j11ft/
+
+"not fit"
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qhbzof/danish_parliament_deputy_speaker_larschristian/o0j152a/
+
+"problem is much bigger than Trump"
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qhbzof/danish_parliament_deputy_speaker_larschristian/o0j1ia7/
+
+"absurd reality"
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qhbzof/danish_parliament_deputy_speaker_larschristian/o0j55ov/
+
+"destructive", "chaos"
