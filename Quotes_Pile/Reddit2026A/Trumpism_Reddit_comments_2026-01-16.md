@@ -348,3 +348,19 @@ https://old.reddit.com/r/AskTheWorld/comments/1qh610n/what_are_your_thoughts_on_
 Russian Trump fan cheers on the win of Surkov students over reality. "This real?"
 
 Social post { https://autistics.life/@RoundSparrow/115923316957092833 https://bsky.app/profile/roundsparrow.bsky.social/post/3mcsdhaagyk27 }
+
+https://old.reddit.com/r/AskTheWorld/comments/1qh610n/what_are_your_thoughts_on_this_letter_from_donald/o0hht43/
+
+Amused at Trump content creation for fandom (Reddit fandom venue)
+
+https://old.reddit.com/r/AskTheWorld/comments/1qh610n/what_are_your_thoughts_on_this_letter_from_donald/o0hqiwr/
+
+9 month Reddit account. Observing that it is not funny in anyway, despite Reddit audience flocking to every single message out of the White House to grade Trunp's entertainment provisions for the public.
+
+https://old.reddit.com/r/AskTheWorld/comments/1qh610n/what_are_your_thoughts_on_this_letter_from_donald/o0hjzp9/
+
+<img width="1144" height="333" alt="image" src="https://github.com/user-attachments/assets/8b141c44-7cd8-4135-80a3-3cd1636e6fd1" />
+
+Public deceleration of love for Trump's Reality TV President Tony Clifton show!
+
+Social post { https://autistics.life/@RoundSparrow/115923409281531710 https://bsky.app/profile/roundsparrow.bsky.social/post/3mcser3okv22u }
