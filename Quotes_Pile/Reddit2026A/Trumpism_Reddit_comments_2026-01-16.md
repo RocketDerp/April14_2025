@@ -426,3 +426,14 @@ It's all bullshit, people in mob are turd-chasing, jumping into the toilet as ev
 FOR THE LOVE OF GOD, **READ EVERYTHING Peter Pomerantsev PUBLISHED BETWEEN YEAR 2010 AND YEAR 2015**, BREAK THE FINN CYCLES! Fhiannaíocht runaway! Halt the fucking machines, Halt and Catch Fire, the printing presses are looping Trump content!!! LISTEN TO ANDREW POSTMAN! TRUMP IS BIGGER THAN JESUS AND THE BEATLES AND TONY CLIFTON ALL TOGETHER!!!
 
 Social post { https://groups.google.com/g/wwwopera/c/lDEBVOWhrVY https://autistics.life/@RoundSparrow/115924149255890401 https://bsky.app/profile/roundsparrow.bsky.social/post/3mcspfdxsck2u https://MidWest.Social/post/42110579 }
+
+
+
+https://old.reddit.com/r/AdviceAnimals/comments/1qha9qi/hes_confused/o0iktim/
+
+<img width="794" height="299" alt="image" src="https://github.com/user-attachments/assets/d65e3a96-0982-40a5-ae93-a95bd57ec173" />
+
+Trump *is* ***Based*** for meme addicts!
+
+Every media platform is hosting and churning out *Trump*ism. The entire nation is a super-dumb Reality TV show. The problem is not *one man*, it's a population of over 300 million tuned into "The Truman Show" **watching dumb-stupid content** streaming out of the White House!
+
