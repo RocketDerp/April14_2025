@@ -1552,3 +1552,47 @@ https://old.reddit.com/r/europe/comments/1qgyjdg/trumps_letter_to_norwegian_prim
 
 "Driving me insane" that people describe cult behaviors, cults, but will not read nonfiction books about cult deprogramming and off-Reddit URL or quote a nonfiction book about cult topics!
 
+https://old.reddit.com/r/europe/comments/1qgyjdg/trumps_letter_to_norwegian_prime_minister_feels/o0g4q0i/
+
+"beyond crazy". More casual mental health talk of entire nation. https://www.youtube.com/watch?v=09maaUaRT4M&t=743s "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL"
+
+https://old.reddit.com/r/europe/comments/1qgyjdg/trumps_letter_to_norwegian_prime_minister_feels/o0g3iv7/
+
+"insane"
+
+https://old.reddit.com/r/europe/comments/1qgyjdg/trumps_letter_to_norwegian_prime_minister_feels/o0g4qt2/
+
+"believe"
+
+https://old.reddit.com/r/europe/comments/1qgyjdg/trumps_letter_to_norwegian_prime_minister_feels/o0g8l3a/
+
+casual "pure narcissism"
+
+https://old.reddit.com/r/europe/comments/1qgyjdg/trumps_letter_to_norwegian_prime_minister_feels/o0g1nok/
+
+casual "Russia" topic washing with casual attitude.
+
+https://old.reddit.com/r/europe/comments/1qgyjdg/trumps_letter_to_norwegian_prime_minister_feels/o0g69nu/
+
+Reddit audience... most cherished media content: jokes and joking.
+
+https://old.reddit.com/r/europe/comments/1qgyjdg/trumps_letter_to_norwegian_prime_minister_feels/o0g1jbw/
+
+Claims to "smell Twitter" messages. Twitter-length messaging on Reddit. Simplistic logic to complex problems. Serves to dilute mental fitness topic of Trump with banal commenting.
+
+https://old.reddit.com/r/europe/comments/1qgyjdg/trumps_letter_to_norwegian_prime_minister_feels/o0g5ja7/
+
+Casual brain and mental fitness topic-washing. Repeating repeater: Reddit audience is unable to even THINK of turning to books. Unable to turn to nonfiction learning.  Dr. Bandy X Lee's nonfiction book from October 3, 2017.
+
+https://old.reddit.com/r/europe/comments/1qgyjdg/trumps_letter_to_norwegian_prime_minister_feels/o0g6mcj/
+
+Reddit user eating out of the hands of Surkov students. Kremlin anti-reality techniques described with zero self-awareness.
+
+https://old.reddit.com/r/europe/comments/1qgyjdg/trumps_letter_to_norwegian_prime_minister_feels/o0g1ygs/
+
+Reddit **fandom loves the President Tony Clifton**, NYC SNL comedy - home town of Trump, Andy Kaufman methods.
+
+https://old.reddit.com/r/europe/comments/1qgyjdg/trumps_letter_to_norwegian_prime_minister_feels/o0g4lzi/
+
+"believe"
+
