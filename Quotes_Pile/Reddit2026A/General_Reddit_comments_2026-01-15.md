@@ -981,3 +981,15 @@ Reddit commenting section is invaded by Russia's Internet Research Agency since 
 https://old.reddit.com/r/politics/comments/1qh1gcf/trumps_appalling_threat_leaves_no_doubt_its_time/o0goh50/
 
 1 month Reddit account.
+
+https://old.reddit.com/r/politics/comments/1qh1gcf/trumps_appalling_threat_leaves_no_doubt_its_time/o0gqbdm/
+
+Tweet-length, Twitter-thinking comment. Washing away "Russia" topic. Nothing at all about We The People and absence of social media protest. We The People on Reddit directly being manipulated by Cambridge Analytica and Internet Research Agency.  Reddit commenting section is invaded by Russia's Internet Research Agency since March 2013. https://www.axios.com/2018/04/10/reddit-found-nearly-1000-1523402788
+
+https://old.reddit.com/r/politics/comments/1qh1gcf/trumps_appalling_threat_leaves_no_doubt_its_time/o0go70o/
+
+"crazy"
+
+https://old.reddit.com/r/politics/comments/1qh1gcf/trumps_appalling_threat_leaves_no_doubt_its_time/o0gqczh/
+
+"unreal"
