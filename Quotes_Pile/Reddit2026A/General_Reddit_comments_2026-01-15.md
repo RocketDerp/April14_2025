@@ -917,3 +917,6 @@ https://old.reddit.com/r/50501/comments/1qgl18v/gavin_newsom_denies_the_genocide
 https://old.reddit.com/r/50501/comments/1qgl18v/gavin_newsom_denies_the_genocide_in_gaza/o0dfacc/
 
 God, what shallow and superficial values.
+
+https://old.reddit.com/r/goodnews/comments/1qgit7l/jon_stewart_on_donald_trump_people_keep_saying/o0da382/
+
