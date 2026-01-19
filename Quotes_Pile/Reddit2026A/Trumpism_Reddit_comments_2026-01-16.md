@@ -326,3 +326,13 @@ Look at the Reddir user profile message, wise-cracker. **Walking right into the 
 https://old.reddit.com/r/AdviceAnimals/comments/1qh5kl7/makes_sense_putin_is_a_happy_boss_right_now/o0hefas/
 
 "We should have listened" OPERA_A https://www.youtube.com/watch?v=JKOY0P65NrM The Putin Reddit actors and jesters are here. Nobody is certain whose fucking screenplay it is, President Tony Clifton comedy acting that Reddit eats every day. "Before the world fell apart"... you know... 29,223 views November 5, 2020 "To bring the White House down"
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qh52oc/danish_parliamentarian_rasmus_jarlov_speaking_to/o0h965u/
+
+**Unaware Fandom** of Trump. Great, vote! Voting takes 2 to 12 hours every 4 years. The Fox News HDTV cult of Rupert Murdoch media has been raging EVERY DAY, 24 hours a day, day and night, since October 7, 1996. Decade after decade of cult behavior out of Fox News watchers, audiences. And not just USA, not limited to the geography of North America (Murdoch is from Australia). Free time and spare time spent on Reddit commenting should add a few more seconds to plant the name of "Jen Senko" in every comment until the Fox news HDTV crisis is understood by all people age 12 to age 120 in USA.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qh52oc/danish_parliamentarian_rasmus_jarlov_speaking_to/o0hbk7j/
+
+Sports fanatic mindset. Sit in the stadium and cheer others to solve the problem... while getting out of the seat and USING SOCIAL MEDIA to RISE UP is what is needed! Why not use social media to quote Dr. Bandy X Lee's book from **October 3, 2017** - it has been at the public library for a LONG FUCKING TIME. People can quote a different sentence of paragraph every 6 hours on their Reddit account. WHY ARE PEOPLE AVOIDING NONFICTION BOOKS YEAR AFTER YEAR and commenting and commenting on Reddit with their spare time and free time?
+
+* "As of January 19, 2026, exactly 3,030 days have elapsed since October 3, 2017. This duration spans 99 months, 2 weeks, and 2 days. Within this period, there have been 432 full weekends (consisting of 864 individual Saturdays and Sundays) and 91 total U.S. federal holidays, including major observances such as New Year's Day, Memorial Day, and Christmas." - Reddit search 2026-01-19 noonish USA
