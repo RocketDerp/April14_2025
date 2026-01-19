@@ -336,3 +336,7 @@ https://old.reddit.com/r/UnderReportedNews/comments/1qh52oc/danish_parliamentari
 Sports fanatic mindset. Sit in the stadium and cheer others to solve the problem... while getting out of the seat and USING SOCIAL MEDIA to RISE UP is what is needed! Why not use social media to quote Dr. Bandy X Lee's book from **October 3, 2017** - it has been at the public library for a LONG FUCKING TIME. People can quote a different sentence of paragraph every 6 hours on their Reddit account. WHY ARE PEOPLE AVOIDING NONFICTION BOOKS YEAR AFTER YEAR and commenting and commenting on Reddit with their spare time and free time?
 
 * "As of January 19, 2026, exactly 3,030 days have elapsed since October 3, 2017. This duration spans 99 months, 2 weeks, and 2 days. Within this period, there have been 432 full weekends (consisting of 864 individual Saturdays and Sundays) and 91 total U.S. federal holidays, including major observances such as New Year's Day, Memorial Day, and Christmas." - Reddit search 2026-01-19 noonish USA
+
+https://old.reddit.com/r/AskTheWorld/comments/1qh610n/what_are_your_thoughts_on_this_letter_from_donald/o0hjpj7/
+
+Trump Fandom: "hilarious!"... Surkov students have been doing this for 25 years, and zero self-awareness in Reddit fandom that this is Kremlin's official world engagement methods. To be funny and *hilarious* with letters and messages while killing real people in Ukraine. Fanatics of Trump can never get enough of the surreal symbolism mind exploitation! Meme addict attractions.
