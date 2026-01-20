@@ -1909,3 +1909,31 @@ https://old.reddit.com/r/science/comments/1qiddcc/by_stoking_the_greenland_debat
 Trivializing complex issues. MAGA values (acting dumb, trivializing). Twitter-length "sounds smart", smart-aleck attitude like billionaire Rupert Murdoch hasn't massively manipulated the entire rural (less-educated) population of laborers.  I grew up in the MidWest; Fort Wayne, Indiana - and people there clearly do not comprehend how New York City Fox News HDTV operates, how Facebook California operates on their behavior, and do not in any way grasp Russia's Internet Research Agency.
 
 * "Putin is clearly winning Russia’s hybrid war against the U.S. because Americans don’t understand how they are being manipulated." - December 11, 2020 - "The Heritage Foundation" https://www.Heritage.Org/defense/commentary/putin-winning-russias-hybrid-war-against-america (Before January 6, 2021 - by weeks. QAnon was Russian Hybrid warfare, QAnon flags on January 6 https://old.reddit.com/r/QAnonRussia/ QAnon-Russia subreddit)
+
+https://old.reddit.com/r/science/comments/1qiddcc/by_stoking_the_greenland_debate_the_us_may/o0qp5au/
+
+https://old.reddit.com/r/science/comments/1qiddcc/by_stoking_the_greenland_debate_the_us_may/o0qnmss/
+
+https://old.reddit.com/r/science/comments/1qiddcc/by_stoking_the_greenland_debate_the_us_may/o0qnkl5/
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qib7hc/the_goalkeeper_told_me_im_an_illegal_immigrant/o0q8jxv/
+
+The ignorance to think this is ONLY MAGA. Malala was shot on her school bus for blogging in Pakistan. Girls are raped, manipulated and abused all over the world. Palestine parents talked their kids into terrorism acts. Israel talks their kids into prizing war. Many people consider sports game as just training to get children into warfare. It as if nobody learned the history of Japan in World War Two; Russia's abuse of Ukraine children, etc.
+
+Yesterday was Dr. Martin Luther King Jr. day:
+
+* February 28, 1954: "Most people can't stand up for their convictions, because the majority of people might not be doing it. See, everybody's not doing it, so it must be wrong. And since everybody is doing it, it must be right. So a sort of numerical interpretation of what's right. But I'm here to say to you this morning that some things are right and some things are wrong. Eternally so, absolutely so. It's wrong to hate. It always has been wrong and it always will be wrong. It's wrong in America, it's wrong in Germany, it's wrong in Russia, it's wrong in China. It was wrong in 2000 B.C., and it's wrong in 1954 A.D. It always has been wrong, and it always will be wrong." - Martin Luther King Jr.
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qib7hc/the_goalkeeper_told_me_im_an_illegal_immigrant/o0q7a7k/
+
+8 day Reddit account.
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qib7hc/the_goalkeeper_told_me_im_an_illegal_immigrant/o0q8kqj/
+
+The PLIRIBUS fandom on Reddit was monstrous the 2 months I spent interacting with people. I documented discussion after discussion of the moderators banning people for the most superficial domination reasons. People celebrating ignorance and mocking intelligent discourse over and over in the name of TV how fandom. These are not children. It is social media training ground to teach and cultivate hate and anti-forgiveness anti-compassion. "No compassion. No empathy. Is this what we are?" **Osmosis isn't working**, except for hate. Street gangs of Fox News HDTV fandoms, fiction addicts to Fox Neews HDTV and Newsmax and /r/conservative street gang members. Bible street gang members of toxic clergy.
+
+* "I am a survivor of a concentration camp. My eyes saw what no person should witness. Gas chambers built by learned engineers. Children poisoned by educated physicians. Infants killed by trained nurses. Women and babies shot and killed by high school and college graduates. So I'm suspicious of education. My request is: help your students to be human. Your efforts must never produce learned monsters, skilled psychopaths, or educated Eichmanns. Reading and writing and spelling and history and arithmetic are only important if they serve to make our students human."
+You know what occurred to me? We teach everything in the world to people, except the most essential thing. And that is life. Nobody teaches you about life. You're supposed to know about it. Nobody teaches you how to be a human being and what it means to be a human being, and the dignity that it means when you say, "I am a human being." Everyone assumes this is something you have, or you should have gotten by osmosis. We'll it's not working by osmosis!
+- From the chapter "The Art of Being Fully Human" page 127 of "Living, Loving & Learning" by Leo Buscaglia, Ph. D. (published June 1, 1982) as he refers to Haim Ginott's book
+Video of Leo B speaking quote https://youtu.be/OZ2fe9rVlgg?t=792
+
