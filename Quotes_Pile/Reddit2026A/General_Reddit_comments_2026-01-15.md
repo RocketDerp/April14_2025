@@ -1277,3 +1277,8 @@ https://old.reddit.com/r/mildlyinfuriating/comments/1qhzf8l/microsoft_social_med
 https://old.reddit.com/r/mildlyinfuriating/comments/1qhzf8l/microsoft_social_media_team_just_straight_up/o0ob2vl/
 
 https://old.reddit.com/r/mildlyinfuriating/comments/1qhzf8l/microsoft_social_media_team_just_straight_up/o0nnvt6/
+
+https://old.reddit.com/r/politics/comments/1qie55s/trump_79_kicks_off_press_conference_by_reading/o0r25mx/
+
+I.C.E. like behaviors of ban-happy deport-happy Reddit power.
+
