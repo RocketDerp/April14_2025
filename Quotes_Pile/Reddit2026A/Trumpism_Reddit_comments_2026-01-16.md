@@ -637,3 +637,13 @@ Germany was not manipulated by smartphone and social media addictions, mass mani
 
 * “Chaos and disruption, I later learned, are central tenets of Bannon's animating ideology. Before catalyzing America's dharmic rebalancing, his movement would first need to instill chaos through society so that a new order could emerge. He was an avid reader of a computer scientist and armchair philosopher who goes by the name Mencius Moldbug, a hero of the alt-right who writes long-winded essays attacking democracy and virtually everything about how modern societies are ordered. Moldbug’s views on truth influenced Bannon, and what Cambridge Analytica would become. Moldbug has written that “nonsense is a more effective organizing tool than the truth,” and Bannon embraced this. “Anyone can believe in the truth,” Moldbug writes, “to believe in nonsense is an unforgettable demonstration of loyalty. It serves as a political uniform. And if you have a uniform, you have an army.”
 ― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the [Plot to Break America, page 85](https://books.google.com/books?id=8OW2DwAAQBAJ&pg=PA85&dq=%22serves+as+a+political+uniform.+And+if+you+have+a+uniform,+you+have+an+army.%E2%80%9D&hl=en&newbks=1&newbks_redir=1&sa=X). **year 2019**
+
+https://old.reddit.com/r/worldnews/comments/1qhz6ay/donald_trump_shares_altered_image_of_map_showing/o0nn88w/
+
+<img width="1029" height="910" alt="image" src="https://github.com/user-attachments/assets/f7ce9e57-dcaa-4b52-8306-c9841273f0cd" />
+
+Yes. Sports mentality. People who think Heaven and Eden are waiting after death. Or video gamers who have their own fantasy fiction monomyth in their head that has bee sold to them. Power freak attitudes, machine power addictions. Smart machine to rule over humans mindsets.
+
+OPERA_A https://www.youtube.com/watch?v=cfm4L0TGDrw&t=173s Where do they lead? 346,096 views April 16, 2020
+
+Social post { https://autistics.life/@RoundSparrow/115927793478690721 https://bsky.app/profile/roundsparrow.bsky.social/post/3mcud2rdmnc2u }
