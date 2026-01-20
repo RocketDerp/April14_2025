@@ -768,5 +768,15 @@ https://old.reddit.com/r/worldnews/comments/1qhz6ay/donald_trump_shares_altered_
 
 yes, there is a page on Wikipedia about losing "hearts and minds" to Putin. https://en.Wikipedia.org/wiki/Winning_hearts_and_minds there is a page in The Bible "Matthew 4:19" about Russia trolling with science fiction stories against a population. I point to the 2,000 year old Bible stories to demonstrate it i not a new idea. **It is a FORGOTTEN, unrecognized idea*  Matthew 4:19 
 
+https://old.reddit.com/r/worldnews/comments/1qhz6ay/donald_trump_shares_altered_image_of_map_showing/o0nv2fv/
 
+"deranged"
+
+https://old.reddit.com/r/worldnews/comments/1qhz6ay/donald_trump_shares_altered_image_of_map_showing/o0nwwnu/
+
+"fever dreams"
+
+https://old.reddit.com/r/worldnews/comments/1qhz6ay/donald_trump_shares_altered_image_of_map_showing/o0ns9ic/
+
+Americans are watching sports ball games, rectangle sports, video games, mocking and insulting each other on social machines, doing ANYTHING but a revival of nonfiction learning. Addiction to meme devices have taken over since year 2012. Nonfiction adult learning abandoned.
 
