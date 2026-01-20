@@ -421,7 +421,7 @@ Reddit audience is CHASING dumb shit. Prizing dumb shit. Every media empire, eve
 
 Mocking a Surkovian mockery is not resisting a Surkov students scripted mockery. If anything, since year 2022, Large Language Models (LLM) systems have put the whole fucking Kremlin Surkov monomyth patterns into RUNAWAY. Russia is no longer in control, nobody is in control. Audiences are flocking on every media platform. Everything Professor David Foster Wallace tried to illustrate in in Infinite Jest has now become the mob mentality of each audience. James Joyce's Finnegans Wake story is iterating over and over endlessly since June 16, 2015 via every meme and message pattern... slower at first, but once Elon Musk purchased Twitter April 2022, October 2022, then ChatGPT 2022... it has snowballed into Infinite Jest world wide web feedback looping!!! 
 
-It's all bullshit, people in mob are turd-chasing, jumping into the toilet as every Trump turd runs through the River Liffey re circulation system! Media machines are blowing minds into predictable patterns, everyone is high as a kite on Trump content / Trump Family Influencers!
+It's all bullshit, people in mobs are turd-chasing, jumping into the toilet as every Trump turd runs through the River Liffey re circulation system! Media machines are blowing minds into predictable patterns, everyone is high as a kite on Trump content / Trump Family Influencers!
 
 FOR THE LOVE OF GOD, **READ EVERYTHING Peter Pomerantsev PUBLISHED BETWEEN YEAR 2010 AND YEAR 2015**, BREAK THE FINN CYCLES! Fhiannaíocht runaway! Halt the fucking machines, Halt and Catch Fire, the printing presses are looping Trump content!!! LISTEN TO ANDREW POSTMAN! TRUMP IS BIGGER THAN JESUS AND THE BEATLES AND TONY CLIFTON ALL TOGETHER!!!
 
