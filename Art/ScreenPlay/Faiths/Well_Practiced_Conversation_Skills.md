@@ -9,7 +9,7 @@ Well practiced mocking skills, getting intelligent discourse shut down.
 
 &nbsp;
 
-# It work!
+# It works!
 
 Being good at conversation, being Donald Trump - being good at convincing people fiction storytelling is engaging - works on ANY topic! Health care, COVID-2019 treatment plans science, autism Tylenol science, hurricane directions / landing zone. The PRACTICED SKILL is NOT research and truth-finding fact-finding, it is conversation and convincing, Persuading and exploiting human minds, audience manipulation, becoems the key to unlock any topic popularity! Trade wars, economics, talent of convincing people to pay more with import fees.
 
