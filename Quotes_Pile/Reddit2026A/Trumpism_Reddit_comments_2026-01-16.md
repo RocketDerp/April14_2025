@@ -841,3 +841,35 @@ The Great Dictator 1940 film, Charlie Chaplin acting, makes this very point.
 https://old.reddit.com/r/worldnews/comments/1qi4r2x/greenland_leader_tells_people_to_prepare_for/o0oo97n/
 
 Tell me about it. Everything that has gone on since June 16, 2015 from media addicts / media cult behaviors has been disturbing. The self-harm of flocking to the hate leadership signals of Putin to prize MORE HATE! Hate of women, hate of girls, hate of intellectual learning, hate of nonfiction. It is a constant state of disturbing to be in this monster state. So many fucking billionaire media machines running day and night, never resting, signaling hate - and people do not resist hate. They promote you join their team of hate, party of hate, etc.
+
+https://old.reddit.com/r/worldnews/comments/1qi4r2x/greenland_leader_tells_people_to_prepare_for/o0oojgk/
+
+3 month Reddit account. 
+
+https://old.reddit.com/r/worldnews/comments/1qi4r2x/greenland_leader_tells_people_to_prepare_for/o0p3wx6/
+
+https://old.reddit.com/r/worldnews/comments/1qi4r2x/greenland_leader_tells_people_to_prepare_for/o0oq3uj/
+
+"insane"
+
+https://old.reddit.com/r/worldnews/comments/1qi4r2x/greenland_leader_tells_people_to_prepare_for/o0otwyk/
+
+"insane"
+
+https://old.reddit.com/r/worldnews/comments/1qi4r2x/greenland_leader_tells_people_to_prepare_for/o0orsac/
+
+Too many entertainment fandoms of Trump mocking.
+
+https://old.reddit.com/r/worldnews/comments/1qi4r2x/greenland_leader_tells_people_to_prepare_for/o0p8enb/
+
+https://old.reddit.com/r/worldnews/comments/1qi4r2x/greenland_leader_tells_people_to_prepare_for/o0p7bf9/
+
+https://old.reddit.com/r/worldnews/comments/1qi4r2x/greenland_leader_tells_people_to_prepare_for/o0os4z5/
+
+https://old.reddit.com/r/worldnews/comments/1qi4r2x/greenland_leader_tells_people_to_prepare_for/o0os9t5/
+
+Attitudes of: On the Internet, it's all OK to lie and deceive and manipulate people and bully them and get them banned. It is *only* Truth Social. It is Only Facebook. It isn't serious. It's only Fox News HDTV. it's only Reddit. It's only the comment section of New Republic. It's only decorated as a meme, doesn't matter what is says. It's only a cult of memes. On and and. That's the attitude expressed through behavior and choices. Like "it's only paper" when a book is published. Anything can be ok on paper. As if the meaning of the memes and meaning of the books do not matter, because 4Chan everywhere is OK.
+
+September 11, 2001 - 9/11 - people at least had a grip that what a specific Mosque educated and taught matter. But on the Internet, people on Reddit avoid nonfiction books at all cost. The labor to avoid nonfiction books and getting on *the same page* is extreme. So much time and labor goes into creating repetitive comments and AVOIDING same-page understandings.
+
+
