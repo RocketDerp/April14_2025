@@ -891,3 +891,26 @@ https://old.reddit.com/r/CzechCoconutCommunity/comments/1qi4539/they_should_have
 The fandom of Trump hate. The fandom of hate. Won't rise up for goodness for TEN YEARS AND SEVEN MONTHS. Because the IRA mind-fucked people since March 2013 to *prize hate* signals. To generate hate messages, to follow hate leadership. That's the Reddit audience. Prizing hate every day. Mocking and insulting and cheering on to *hate harder* on Trump.
 
 * "For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the **true becomes false and the false becomes true**. That's what hate does. You can't see right. **The symbol of objectivity** is lost." - Martin Luther King Jr.
+
+https://old.reddit.com/r/ICE_Raids/comments/1qi30kx/girl_6_found_wandering_the_streets_alone_in_tears/o0ocrfv/
+
+https://old.reddit.com/r/onguardforthee/comments/1qi8emp/carney_american_hegemony_in_particular_helped/o0pk94b/
+
+Yes. Sinking under the meme life addictions. Sports gaming,meme gaming meme sites, it just never ends. Neil Postman was correct in 1985. Surkov won.
+
+https://old.reddit.com/r/onguardforthee/comments/1qi8emp/carney_american_hegemony_in_particular_helped/o0ph2h5/
+
+https://old.reddit.com/r/onguardforthee/comments/1qi8emp/carney_american_hegemony_in_particular_helped/o0ppbi9/
+
+https://old.reddit.com/r/onguardforthee/comments/1qi8emp/carney_american_hegemony_in_particular_helped/o0pnsd5/
+
+https://old.reddit.com/r/LoveIsBlindOnNetflix/comments/1qi3sp2/monica_i_will_be_talking_until_i_have_no/o0plxdl/
+
+https://old.reddit.com/r/LoveIsBlindOnNetflix/comments/1qi3sp2/monica_i_will_be_talking_until_i_have_no/o0ox9lo/
+
+https://old.reddit.com/r/LoveIsBlindOnNetflix/comments/1qi3sp2/monica_i_will_be_talking_until_i_have_no/o0oyz26/
+
+As an autistic person, the change in online culture in year 2013 was dramatic. Standing up to billionaires gets you automatic bullying by people.
+
+https://old.reddit.com/r/LoveIsBlindOnNetflix/comments/1qi3sp2/monica_i_will_be_talking_until_i_have_no/o0p8mi1/
+
