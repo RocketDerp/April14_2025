@@ -488,3 +488,11 @@ Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mcpq7qatdc
 https://old.reddit.com/r/technology/comments/1qhfd2q/russia_threatens_to_ban_gta_6_if_rockstar_doesnt/o0jh3gh/
 
 Reddit gamers eating out of Putin's hands. Kremlin pulls antics media messaging against the wildly anticipated GTA6 symbolism in Reddit audience mindsets... and wiggles the icon around. And asserts **conservative icon leadership** - December 20, 2013 - right before Ukraine invasion February 20, 2014. Reddit society is easily manipulated with toys and gaming for adults / symbolism. Thung life, Russian mafia / Russian mob symbolism planting deeper. "Vladimir Putin, Conservative Icon. The Russian president is positioning himself as the world's leading defender of traditional values. By Brian Whitmore. December 20, 2013" https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/
+
+https://old.reddit.com/r/politics/comments/1qhd63f/trumps_latest_temper_tantrum_sparks_calls_for/o0iyk7s/
+
+6 month Reddit account. "Insanity".
+
+https://old.reddit.com/r/politics/comments/1qhd63f/trumps_latest_temper_tantrum_sparks_calls_for/o0jfqow/
+
+Ignoring the Russian IRA since March 2013. Denial abounds.
