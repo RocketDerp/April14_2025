@@ -513,7 +513,26 @@ Reddit audiences line up for flippant trivializing and mocking. It is an audienc
 
 https://old.reddit.com/r/PublicFreakout/comments/1qhslqf/jennings_lets_not_get_our_knickers_in_a_twist/o0mbds7/
 
-Joke-washing and meme-washing is exactly how Reddit audience behaves. Why isn't this quote discussed daily about the news? https://old.reddit.com/r/PublicFreakout/comments/1qhslqf/jennings_lets_not_get_our_knickers_in_a_twist/o0mbds7/ Why sin't Jen Senko mentioned every day in the comment sections about so-called "right-wing media"? Why isn't Dr. Bandy X Lee's October 3 nonfiction book quoted every day on Bluesky and Reddit comments? The answer is the anti-intellectual joke-washing that consumes all the free time and spare time of audiences.
+Joke-washing and meme-washing is exactly how Reddit audience behaves. Why isn't this quote discussed daily about the news? https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Reddit2025A/Censored/2025-09-30_Ted_Koppel_censored.md Why sin't Jen Senko mentioned every day in the comment sections about so-called "right-wing media"? Why isn't Dr. Bandy X Lee's October 3 nonfiction book quoted every day on Bluesky and Reddit comments? The answer is the anti-intellectual joke-washing that consumes all the free time and spare time of audiences.
 
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qho67x/there_are_77m_evil_people_in_america/o0lg98i/
 
+People fragment their mind so much
 
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qho67x/there_are_77m_evil_people_in_america/o0lhf4v/
+
+Donald Trump is incredibly popular. Every photograph and word of Trump gets sent right to the front page of /r/All on Reddit for over a decade. year after year, popularity of hate is proven and demonstrated. People want Trump to be a role model for their age 7 children . People want to work for boss men, employers, who are like Trump. Media addiction to trash content is blindingly on display of /r/All front page every hour of every day and people can't see it is now worse than Fox News media addicts.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qho67x/there_are_77m_evil_people_in_america/o0lff4d/
+
+The taste in bad movies, bad films, bad songs, bad religion interpretations, bad television, bad sports. People put terrible learning into their mind. Why has Jen Senko's film since year 2016 not gotten constant discussion? Serious nonfiction films about media problems don't get discussed while people swim in toxic media. Why is. Dr. Bandy X Lee's October 3, 2017 book not constantly quoted on Reddit? People do not seek out nonfiction learning about serious problems. Why is Malala's October 8, 2013 nonfiction book not discussed regarding the rise of MAGA and Trump as the center of all USA attention? So much of MAGA behavior is discussed in a book about far-away Pakistan and Taliban. People do not turn to good leaders like Malala and Dr. Lee.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qho67x/there_are_77m_evil_people_in_america/o0lhwqe/
+
+Media addiction, what people learn from, is not taken serious. Fox News audience mindsets. A person does not even need to read an entire book of hundreds of pages, just cherry-picking important pints from books is better than Fox News HDTV anti-learning anti-understanding outcomes. https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Reddit2025A/Censored/2025-09-30_Ted_Koppel_censored.md 
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qho67x/there_are_77m_evil_people_in_america/o0lmscs/
+
+<img width="942" height="654" alt="image" src="https://github.com/user-attachments/assets/94100f5c-12ae-4486-bbcc-b3c199688e2c" />
+
+Media ecology. Mob mentality. the popularity of Trump as a source of mockery and entertainment.
