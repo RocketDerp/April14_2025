@@ -483,3 +483,37 @@ https://old.reddit.com/r/ProgressiveHQ/comments/1qhphbn/are_we_the_crazy_ones_fo
 
 "absurdity". Addicts to Reddit can't face Neil Postman's 1985 book that spells out POTUS second term media addiction behaviors.
 
+https://old.reddit.com/r/ProgressiveHQ/comments/1qhphbn/are_we_the_crazy_ones_for_allowing_this/o0lrbsv/
+
+"crazy"
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qhphbn/are_we_the_crazy_ones_for_allowing_this/o0lu4hs/
+
+The same "progressive HQ" that yesterday was saying MAGA people are nonhuman and put them in animal cages.
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qhphbn/are_we_the_crazy_ones_for_allowing_this/o0lvh9x/
+
+2 month Reddit account.
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qhphbn/are_we_the_crazy_ones_for_allowing_this/o0lurzu/
+
+"Madman"
+
+https://old.reddit.com/r/PublicFreakout/comments/1qhslqf/jennings_lets_not_get_our_knickers_in_a_twist/o0mdqii/
+
+The skill to manipulate others works to defeat any topic. https://github.com/RocketDerp/April14_2025/blob/main/Art/ScreenPlay/Faiths/Well_Practiced_Conversation_Skills.md
+
+https://old.reddit.com/r/PublicFreakout/comments/1qhslqf/jennings_lets_not_get_our_knickers_in_a_twist/o0mb31c/
+
+The same anti-goodness popularity dominates Reddit media too. this isn't "The Media" id is **the audience** that tunes into and comments on every media system. Nonfiction does not ell nearly as well as fiction. https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Reddit2025A/Censored/2025-09-30_Ted_Koppel_censored.md
+
+https://old.reddit.com/r/PublicFreakout/comments/1qhslqf/jennings_lets_not_get_our_knickers_in_a_twist/o0mj5a1/
+
+Reddit audiences line up for flippant trivializing and mocking. It is an audience problem.
+
+https://old.reddit.com/r/PublicFreakout/comments/1qhslqf/jennings_lets_not_get_our_knickers_in_a_twist/o0mbds7/
+
+Joke-washing and meme-washing is exactly how Reddit audience behaves. Why isn't this quote discussed daily about the news? https://old.reddit.com/r/PublicFreakout/comments/1qhslqf/jennings_lets_not_get_our_knickers_in_a_twist/o0mbds7/ Why sin't Jen Senko mentioned every day in the comment sections about so-called "right-wing media"? Why isn't Dr. Bandy X Lee's October 3 nonfiction book quoted every day on Bluesky and Reddit comments? The answer is the anti-intellectual joke-washing that consumes all the free time and spare time of audiences.
+
+
+
