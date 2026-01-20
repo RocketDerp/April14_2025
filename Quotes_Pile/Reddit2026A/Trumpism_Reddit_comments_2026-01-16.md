@@ -647,3 +647,23 @@ Yes. Sports mentality. People who think Heaven and Eden are waiting after death.
 OPERA_A https://www.youtube.com/watch?v=cfm4L0TGDrw&t=173s Where do they lead? 346,096 views April 16, 2020
 
 Social post { https://autistics.life/@RoundSparrow/115927793478690721 https://bsky.app/profile/roundsparrow.bsky.social/post/3mcud2rdmnc2u }
+
+https://old.reddit.com/r/worldnews/comments/1qhz6ay/donald_trump_shares_altered_image_of_map_showing/o0njo4b/
+
+"unhinged"
+
+https://old.reddit.com/r/worldnews/comments/1qhz6ay/donald_trump_shares_altered_image_of_map_showing/o0nif9d/
+
+"declining mentally"
+
+https://old.reddit.com/r/worldnews/comments/1qhz6ay/donald_trump_shares_altered_image_of_map_showing/o0npr2j/
+
+"crazy"
+
+https://old.reddit.com/r/worldnews/comments/1qhz6ay/donald_trump_shares_altered_image_of_map_showing/o0nktc1/
+
+"sectioned" (mentally)
+
+https://old.reddit.com/r/worldnews/comments/1qhz6ay/donald_trump_shares_altered_image_of_map_showing/o0nmbza/
+
+"insanity"
