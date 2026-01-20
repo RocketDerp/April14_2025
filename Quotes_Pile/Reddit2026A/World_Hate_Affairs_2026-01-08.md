@@ -1881,3 +1881,22 @@ https://old.reddit.com/r/nottheonion/comments/1qi91tg/denmark_would_go_to_war_wi
 https://old.reddit.com/r/nottheonion/comments/1qi91tg/denmark_would_go_to_war_with_us_over_greenland_mp/o0pqbhj/
 
 Denial abounds.
+
+https://old.reddit.com/r/europe/comments/1qi72ic/europaparlamentet_voted_to_offically_freezes/o0p6ru4/
+
+"madness"
+
+https://old.reddit.com/r/europe/comments/1qi72ic/europaparlamentet_voted_to_offically_freezes/o0pb25n/
+
+https://old.reddit.com/r/europe/comments/1qi72ic/europaparlamentet_voted_to_offically_freezes/o0pb4rd/
+
+Always the same faith. Anti-education. Name-calling. *Mock harder* messages on Reddit for over a decade. Twitter-think.
+
+https://old.reddit.com/r/europe/comments/1qi72ic/europaparlamentet_voted_to_offically_freezes/o0pi3gf/
+
+Reddit audience: Glued to the touch device. Trump fandom, thrilled that more antics politics and junk Truth Social media will keep coming!!!
+
+https://old.reddit.com/r/europe/comments/1qi72ic/europaparlamentet_voted_to_offically_freezes/o0pbpz5/
+
+"madman"
+
