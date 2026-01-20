@@ -1263,3 +1263,11 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1qho67x/there_are_77m_evil_
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1qho67x/there_are_77m_evil_people_in_america/o0lty1m/
 
 COVID-2019 in December 2019. Reddit addicts ignore year 2014. August 24, 2014 public disclosure alarm: https://www.BBC.com/news/world-us-canada-45294192
+
+https://old.reddit.com/r/popculturechat/comments/1qhvone/lily_allen_shares_edit_of_brooklyn_beckham_as_her/o0nibtu/
+
+This is what social media could be doing all the time with free time and spare time. Explaining the REAL WORLD. Translating art to prose. Understanding real human people. Not chasing around fiction content of Reality TV MAGA, posting every photograph and quote of a fiction President Tony Clifton performance and chasing mythological ideas. And we could organize these explanations of art and human experiences into a Wiki Tribune... https://en.wikipedia.org/wiki/WikiTribune
+
+We could all get on *the same page* of a Wiki an try to have shared understanding of reality. Instead of drowning ourselves in fragmented tiny-short Tweet commenting. We could take pride in Humanity itself, Earth pride, instead of competing to bamboozle, trick, manipulate each other.
+
+* "He who **lives with untruth** lives in spiritual slavery. Freedom is still the bonus we receive for knowing the truth. "Ye shall know the truth," says Jesus, "and **the truth shall set you free**." Now, I've chosen to preach about the war in Vietnam because I agree with Dante, that the hottest places in hell are reserved for those who in a period of moral crisis maintain their neutrality. There comes a time when silence becomes betrayal." - Dr. Martin Luther King Jr.
