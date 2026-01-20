@@ -1861,3 +1861,23 @@ The OBVIOUSNESS is the Surkov monomyth techniques. The MORE OBVIOUS and AGGRESSI
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1qi2ze8/shh_just_let_it_happen/o0ohvud/
 
 Every mental health worker on Earth, every person trained, can read Dr. Bandy X Lee's book from October 3, 2017 - use Google translate if they have to, and go on social media and start dong MAGA cult deprogramming. Kremlin cult deprogramming.
+
+https://old.reddit.com/r/nottheonion/comments/1qi91tg/denmark_would_go_to_war_with_us_over_greenland_mp/o0plpof/
+
+https://old.reddit.com/r/nottheonion/comments/1qi91tg/denmark_would_go_to_war_with_us_over_greenland_mp/o0pmalh/
+
+https://old.reddit.com/r/nottheonion/comments/1qi91tg/denmark_would_go_to_war_with_us_over_greenland_mp/o0plwiu/
+
+Reddit audience is so locked in "libs" vs. "conservatives" that they can not imagine Trump is trolling EVERYONE, ALL INCLUSIVE. Operation Matthew 4:19 is Putin's trolling of ALL. 0.34 million people in USA and their future children. It's been going on since year 2012. https://github.com/RocketDerp/April14_2025/blob/main/Operation_Matthew_4_19_on_monday_2024-03-31.md
+
+Trump is now trolling much more of the world.
+
+https://old.reddit.com/r/nottheonion/comments/1qi91tg/denmark_would_go_to_war_with_us_over_greenland_mp/o0plsoj/
+
+Twitter-style conversation. No link off-Reddit on serious topic of Russia. Just casual concern.
+
+https://old.reddit.com/r/nottheonion/comments/1qi91tg/denmark_would_go_to_war_with_us_over_greenland_mp/o0pongy/
+
+https://old.reddit.com/r/nottheonion/comments/1qi91tg/denmark_would_go_to_war_with_us_over_greenland_mp/o0pqbhj/
+
+Denial abounds.
