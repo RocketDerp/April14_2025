@@ -1271,3 +1271,9 @@ This is what social media could be doing all the time with free time and spare t
 We could all get on *the same page* of a Wiki an try to have shared understanding of reality. Instead of drowning ourselves in fragmented tiny-short Tweet commenting. We could take pride in Humanity itself, Earth pride, instead of competing to bamboozle, trick, manipulate each other.
 
 * "He who **lives with untruth** lives in spiritual slavery. Freedom is still the bonus we receive for knowing the truth. "Ye shall know the truth," says Jesus, "and **the truth shall set you free**." Now, I've chosen to preach about the war in Vietnam because I agree with Dante, that the hottest places in hell are reserved for those who in a period of moral crisis maintain their neutrality. There comes a time when silence becomes betrayal." - Dr. Martin Luther King Jr.
+
+https://old.reddit.com/r/mildlyinfuriating/comments/1qhzf8l/microsoft_social_media_team_just_straight_up/o0o0dj4/
+
+https://old.reddit.com/r/mildlyinfuriating/comments/1qhzf8l/microsoft_social_media_team_just_straight_up/o0ob2vl/
+
+https://old.reddit.com/r/mildlyinfuriating/comments/1qhzf8l/microsoft_social_media_team_just_straight_up/o0nnvt6/
