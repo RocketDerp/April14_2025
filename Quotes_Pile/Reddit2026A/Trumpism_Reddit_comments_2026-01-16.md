@@ -466,3 +466,8 @@ The 30-second YouTube advert is a mythology education issue. Comparative Mytholo
 https://old.reddit.com/r/ProgressiveHQ/comments/1qhmowt/it_aint_about_immigrants_its_about_terrorizing/o0l0k14/
 
 Fandom of Twitter-length Tweet-think messaging on Reddit. 10 month old Reddit account describing mind patterns of values of Reddit audience.
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qhmtst/we_absolutely_need_to_fucking_impeach_him_and_get/o0l8z3s/
+
+Reddit since mid year 2005. Over 20 years of billionaire advertising networks upon audiences of Reddit. That is considered "above board" legit influence. Then there is "Correct the Record" messaging for free, labor only no money path. Reddit audience can't discuss timeline or names of "Internet Research Agency"
+
