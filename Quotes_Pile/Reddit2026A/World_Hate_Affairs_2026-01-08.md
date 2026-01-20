@@ -1803,3 +1803,17 @@ Every problem Trump goes out and solves, like force to take over Greenland, crea
 The technical details you do not see discussed on Reddit commenting that applies to every posting: { addiction to media, Marshall McLuhan teachings, Neil Postman teachings, and Trump and Putin's technique through the teachings by Peter Pomerantsev, Dr. Bandy X Leep, etc }
 
 The attraction to *following Trumps* chess moves far exceeds the Reddit information consumer's desire to remove the chess game Trump is playing entirely.
+
+https://old.reddit.com/r/worldnews/comments/1qi4wtk/the_old_order_is_not_coming_back_canadian_pm/o0otpu6/
+
+<img width="861" height="647" alt="image" src="https://github.com/user-attachments/assets/cc6a7fe2-3b4a-43cc-b0f2-11366315f440" />
+
+This is why I put so much blame on everyday social media users not doing an uprising and sustaining it. We The People have to have a legendary uprising to show the world that WE, as everyday people, are not beholden to one billionaire or another. People who hate Trump do not stand up to the very system that allows Trump to take power. People have most of all promoted hate of ICE, hate of MAGA, which is *following Trump's leadership*. The world can see the difference over the long term. There is no quoting of MLK Jr, American MLK Jr, against billionaires and hate. 
+
+Instead, over the long run, we look like we are all waiting around fir Iron Man or Super Man or some other comic and film superstar hero. We The People did not start being too preachy. that's our fear, the confrontation of egoism by dusting off Bible verse "1 John 3:17" and preaching against billionaires. It isn't that difficult, but getting people to face their entertainment addictions (Neil Postman 1985 book) is extremely difficult. Trump is a constant source of entertainment. It i a sick society that finds hate to be entertaining. that finds ICE raids to be entertaining. Morality needs to be taught, asserted, adult education. I created "Remedial Morality" lessons on Reddit April 10, 2025 https://Old.Reddit.com/r/RemedialMorality
+
+Alas, people would rather spend free time and spare time on commenting instead of spending that same time on serious topics. I'm sickened, extremely sick, by it all. It just never ends for over a decade. The rest of the world is making it louder and louder that the USA will not get back the respect that i now lost.
+
+It was not difficult for social media users to keep repeating: "We want to be more like Canada and less like Russia". It isn't that hard to come up with a simple statement of what future is desired. But the future people desire is GTA6 game release and more Trump images from Truth Social to mock and insult.
+
+Social post { https://autistics.life/@RoundSparrow/115928575893568202 https://bsky.app/profile/roundsparrow.bsky.social/post/3mcuo6ex7cc2q }
