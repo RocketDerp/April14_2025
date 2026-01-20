@@ -496,3 +496,11 @@ https://old.reddit.com/r/politics/comments/1qhd63f/trumps_latest_temper_tantrum_
 https://old.reddit.com/r/politics/comments/1qhd63f/trumps_latest_temper_tantrum_sparks_calls_for/o0jfqow/
 
 Ignoring the Russian IRA since March 2013. Denial abounds.
+
+https://old.reddit.com/r/MurderedByWords/comments/1qi16od/10000_miles_for_just_that/o0nxvv9/
+
+The anti-Resisting anti-Resistance of Reddit. Top front page of /r/All - Twitter content prized on Reddit. The Twitter content it self is "LOL" amusement. NYC, right in NYU Neil Postman's realm of explaining why all this is NOT RESISTING Fox News HDTV. You don't "LOL" at NYC Fox News outcomes, that's being mentally owned into predictable amusement patterns (Title of Neil Postman's 1985 book). Extremely predictable mindset of slavish reactionary entertainment travel behaviors and Twitter behaviors. 
+
+The way you RESIST is educate. You get out Neil Postman's thin 184 page book and you start teaching. You get every person on the same page. We The People on the same 184 pages. And you put an end to { mocking, mockery, total mockery, LOL, amusement, entertainment } about serious matters through comprehension of this mind / brain behavior. New York University still probably has a copy of Postman's dusty old books in the library. On paper.
+
+Reddit has become what Carl Sagan said in 1995 nonfiction book. "Celebration of Ignorance", celebrating Twitter and Fox News images platform. "Brain Rot" is the year 2024 term.
