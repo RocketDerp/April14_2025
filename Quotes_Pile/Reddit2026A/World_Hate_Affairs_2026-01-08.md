@@ -1794,3 +1794,12 @@ This GitHub is painting a picture of the answer. { Neil Postman, Marshall McLuha
 
 https://old.reddit.com/r/law/comments/1qi1jw8/a_french_judge_explains_how_trump_sent_people/o0ojtbu/
 
+https://old.reddit.com/r/politics/comments/1qhzcxz/donald_trump_leaks_private_texts_from_nato_allies/o0nriy4/
+
+https://old.reddit.com/r/politics/comments/1qhzcxz/donald_trump_leaks_private_texts_from_nato_allies/o0njzx5/
+
+Every problem Trump goes out and solves, like force to take over Greenland, creates interesting and engaging conversation for Reddit users. This is how people spend their available spare time, free time, in service to the billionaires. There isn't a call for intellectual uprising, active teaching, active education of why what happening is bad. There is no calls for society-wide moral teachings about how taking other people's freedom away is bad. Instead, people have discussion of technical details.
+
+The technical details you do not see discussed on Reddit commenting that applies to every posting: { addiction to media, Marshall McLuhan teachings, Neil Postman teachings, and Trump and Putin's technique through the teachings by Peter Pomerantsev, Dr. Bandy X Leep, etc }
+
+The attraction to *following Trumps* chess moves far exceeds the Reddit information consumer's desire to remove the chess game Trump is playing entirely.
