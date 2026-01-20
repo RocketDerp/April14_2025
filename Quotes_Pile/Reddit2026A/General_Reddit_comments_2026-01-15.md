@@ -1232,3 +1232,20 @@ Old Reddit. Old subdomain thinking. Year 2012 and earlier. Before the IRA invasi
 
 Social post { https://autistics.life/@RoundSparrow/115924963281106312 https://bsky.app/profile/roundsparrow.bsky.social/post/3mct2tnnkck2q }
 
+https://old.reddit.com/r/ProgressiveHQ/comments/1qhmowt/it_aint_about_immigrants_its_about_terrorizing/o0l51m6/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qho67x/there_are_77m_evil_people_in_america/o0lg98i/
+
+faith
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qho67x/there_are_77m_evil_people_in_america/o0lff4d/
+
+10 years ago. Recency bias abounds. March 2013.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qho67x/there_are_77m_evil_people_in_america/o0lhwqe/
+
+Answer to rural ignorance is more mocking. Rupert Murdoch since 1996 mind-fucked ignorant people. Murdoch is super-wealthy.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qho67x/there_are_77m_evil_people_in_america/o0ljui1/
+
+Bible Literacy reformation on this GitHub. https://GitHub.com/RocketDerp/April14_2025/blob/main/Important/USA_Bible_media_literacy.md
