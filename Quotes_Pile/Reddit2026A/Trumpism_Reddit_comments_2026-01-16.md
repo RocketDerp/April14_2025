@@ -667,3 +667,16 @@ https://old.reddit.com/r/worldnews/comments/1qhz6ay/donald_trump_shares_altered_
 https://old.reddit.com/r/worldnews/comments/1qhz6ay/donald_trump_shares_altered_image_of_map_showing/o0nmbza/
 
 "insanity"
+
+https://old.reddit.com/r/worldnews/comments/1qhz6ay/donald_trump_shares_altered_image_of_map_showing/o0nkgyq/
+
+"Pull yourself together" == PLURIBUS education.
+
+https://old.reddit.com/r/worldnews/comments/1qhz6ay/donald_trump_shares_altered_image_of_map_showing/o0njet5/
+
+I'm here on GitHub addressing the Brain Rot as best a I can using my social media experience since Christmas 1982 onward. Neil Postman and Marshall McLuhan's library is the best I can come up with.
+
+https://old.reddit.com/r/worldnews/comments/1qhz6ay/donald_trump_shares_altered_image_of_map_showing/o0np59y/
+
+Social media users need to HALT and STOP entertainment and face that MAGA is addicted to entertainment television. Newsmax, Fox News. Musk Twitter. SEE ideas: https://github.com/RocketDerp/April14_2025/blob/main/Grim_Blunt/Stop_All_Entertainment.md
+
