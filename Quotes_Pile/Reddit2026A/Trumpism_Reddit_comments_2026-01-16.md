@@ -750,3 +750,23 @@ https://old.reddit.com/r/worldnews/comments/1qhz6ay/donald_trump_shares_altered_
 
 "madness"
 
+https://old.reddit.com/r/worldnews/comments/1qhz6ay/donald_trump_shares_altered_image_of_map_showing/o0no601/
+
+Low standards for business leaders. Low standards for politicians. Freedom to believe fiction addictions. Clergy leaders too. OPERA_A ToDo: Lowest of the lowest paths section from SAH lecture. https://youtu.be/08R1kPdfrHA?t=3459 - maybe search this GitHub for the text and time index?
+
+https://old.reddit.com/r/worldnews/comments/1qhz6ay/donald_trump_shares_altered_image_of_map_showing/o0npch1/
+
+Weapon systems don't fix monomyth storytelling. Addiction to fiction. Weapon systems don't fix Fox News entertainment storytelling addictions. Weapon systems don't create goodness and compassion education. The entire world mental health workers should have used the Internet pandemic-like video conference to teach mental health and morality to Russia since February 2014. Teach mental health to Putin's followers. Rescue hearts and minds.
+
+https://old.reddit.com/r/worldnews/comments/1qhz6ay/donald_trump_shares_altered_image_of_map_showing/o0nqv0x/
+
+"insanity"
+
+https://old.reddit.com/r/worldnews/comments/1qhz6ay/donald_trump_shares_altered_image_of_map_showing/o0ns4ft/
+
+"lost his mind"
+
+yes, there is a page on Wikipedia about losing "hearts and minds" to Putin. https://en.Wikipedia.org/wiki/Winning_hearts_and_minds there is a page in The Bible "Matthew 4:19" about Russia trolling with science fiction stories against a population. I point to the 2,000 year old Bible stories to demonstrate it i not a new idea. **It is a FORGOTTEN, unrecognized idea*  Matthew 4:19 
+
+
+
