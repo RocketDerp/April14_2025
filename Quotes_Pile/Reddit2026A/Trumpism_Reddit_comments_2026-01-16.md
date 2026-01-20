@@ -886,3 +886,8 @@ It's been the same pattern since June 16, 2015. FOR OVER TEN YEARS AND SEVEN MON
 
 The skin color joking about black-skin, white supremacy skin, orange skin, brown skin. All the variations of skin color jokes ALONE have consumed massive amounts of attention and labor. Joking away at Trump. David Foster Wallace's defined Infinite Jesting. "tangerine", "Fanta", on and on and on and on this has consumed the minds of audiences on every platform.
 
+https://old.reddit.com/r/CzechCoconutCommunity/comments/1qi4539/they_should_have_known/o0oocc4/
+
+The fandom of Trump hate. The fandom of hate. Won't rise up for goodness for TEN YEARS AND SEVEN MONTHS. Because the IRA mind-fucked people since March 2013 to *prize hate* signals. To generate hate messages, to follow hate leadership. That's the Reddit audience. Prizing hate every day. Mocking and insulting and cheering on to *hate harder* on Trump.
+
+* "For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the **true becomes false and the false becomes true**. That's what hate does. You can't see right. **The symbol of objectivity** is lost." - Martin Luther King Jr.
