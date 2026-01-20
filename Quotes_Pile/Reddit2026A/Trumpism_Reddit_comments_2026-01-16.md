@@ -703,3 +703,50 @@ https://old.reddit.com/r/worldnews/comments/1qhz6ay/donald_trump_shares_altered_
 Yes. It is a nation of 0.34 billion threatening a world of over 8 billion. It isn't one single man. The avoidance of Dr. Bandy X Lee nonfiction public teaching since year 2017... etc, etc.
 
 Social post { https://autistics.life/@RoundSparrow/115927876555853816 https://bsky.app/profile/roundsparrow.bsky.social/post/3mcueag4nvs2o }
+
+https://old.reddit.com/r/worldnews/comments/1qhz6ay/donald_trump_shares_altered_image_of_map_showing/o0nntl0/
+
+More statements to We The People, Pluribus, All of us.
+
+https://old.reddit.com/r/worldnews/comments/1qhz6ay/donald_trump_shares_altered_image_of_map_showing/o0nmkvx/
+
+"madman"
+
+https://old.reddit.com/r/worldnews/comments/1qhz6ay/donald_trump_shares_altered_image_of_map_showing/o0nrbte/
+
+"malignant narcissistic"
+
+https://old.reddit.com/r/worldnews/comments/1qhz6ay/donald_trump_shares_altered_image_of_map_showing/o0nkbxv/
+
+"This is no longer a joke. The madman"
+
+It never was funny, it never was a joke, the jokes were all Surkovian information warfare. Russia's Internet Research Agency manipulated minds to view and interpret all Trump and MAGA events as fiction mythology. Like Bible and Quran readers view real reality through fiction storytelling. Surkov won.
+
+https://old.reddit.com/r/worldnews/comments/1qhz6ay/donald_trump_shares_altered_image_of_map_showing/o0nmke3/
+
+"Why is everyone just shrugging their shoulders?" ANSWER: Russia mind-fucked EVERYONE. READ HERE: https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Cambridge_Analytica_Quotes.md
+
+https://old.reddit.com/r/worldnews/comments/1qhz6ay/donald_trump_shares_altered_image_of_map_showing/o0nti5l/
+
+https://old.reddit.com/r/worldnews/comments/1qhz6ay/donald_trump_shares_altered_image_of_map_showing/o0nk589/
+
+https://old.reddit.com/r/worldnews/comments/1qhz6ay/donald_trump_shares_altered_image_of_map_showing/o0nmffo/
+
+"joking"
+
+https://old.reddit.com/r/worldnews/comments/1qhz6ay/donald_trump_shares_altered_image_of_map_showing/o0npmdz/
+
+"a large portion of its citizens are amoral scumbags."
+
+https://old.reddit.com/r/worldnews/comments/1qhz6ay/donald_trump_shares_altered_image_of_map_showing/o0nu6h3/
+
+"sick in the head"
+
+https://old.reddit.com/r/worldnews/comments/1qhz6ay/donald_trump_shares_altered_image_of_map_showing/o0nl5t9/
+
+"narcsist"
+
+https://old.reddit.com/r/worldnews/comments/1qhz6ay/donald_trump_shares_altered_image_of_map_showing/o0nm2ec/
+
+"madness"
+
