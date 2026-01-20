@@ -1203,3 +1203,13 @@ All, we all, *joke-washing* trump. Humor-washing Trump as sane because late nigh
 https://old.reddit.com/r/politics/comments/1qhhczp/donald_trump_doesnt_acknowledge_martin_luther/o0jzh6y/
 
 6 month Reddit account.
+
+https://old.reddit.com/r/politics/comments/1qhhczp/donald_trump_doesnt_acknowledge_martin_luther/o0jxs17/
+
+Long-form Reddit commenting.
+
+https://old.reddit.com/r/politics/comments/1qhhczp/donald_trump_doesnt_acknowledge_martin_luther/o0jy5v0/
+
+Middle 1952 year, deep digging! 
+
+* "Martin Luther King Jr.'s key graduations were from Morehouse College in 1948, Crozer Theological Seminary in 1951 (with a Bachelor of Divinity), and Boston University in 1955 (with a Ph.D.), having finished high school early to start college at just 15 years old." - Google Search summary 2026-01-19 evening USA
