@@ -811,3 +811,12 @@ https://old.reddit.com/r/politics/comments/1qi2p5i/democrats_call_to_invoke_25th
 https://old.reddit.com/r/politics/comments/1qi2p5i/democrats_call_to_invoke_25th_amendment_against/o0ofez6/
 
 Commanding: "Stop", as in stop resisting Trump.
+
+https://old.reddit.com/r/ImTheMainCharacter/comments/1qi2r1m/donald_trump_posts_a_picture_with_a_map_showing/o0o91n0/
+
+It's right there in the Reddit commenting section. The educated Americans, USA population, with free time and spare time is too attracted to Truth Social postings. (This is a True Social posting screenshot and shared on Reddit social). The attraction to the total mockery is extreme. Social media users could rebel by asserting that Trump has lost his mind to Fox News HDTV and no grip on scientific reality. That Trump is a fiction addict. Citing { Jen Senko, Marshall McLuhan, Neil Postman }. Or the entire mental health of the MAGA movement could be called out through the name of Dr. Bandy X Lee and her October 3, 2017 nonfiction book.
+
+Alas, Trump posted an image on Truth Social and that is what is prized. Truth Social content images of Donald Trump. That is where the spare time and free time goes. Not resisting, but engaging the Trump performance art.
+
+* Quote ::: For all the ways one can define fascism (and there are many), one essential trait is its allegiance to no idea of right but its own: it is, in short, ideological narcissism. “Television is a speed-of-light medium, a present-centered medium,” my father wrote. “Its grammar, so to say, permits no access to the past … history can play no significant role in image politics. For history is of value only to someone who takes seriously the notion that there are patterns in the past which may provide the present with nourishing traditions.” ::: - February 3, 2017 https://danutm.wordpress.com/2017/02/03/andrew-postman-my-dad-predicted-trump-in-1985-its-not-orwell-he-warned-its-brave-new-world/
+
