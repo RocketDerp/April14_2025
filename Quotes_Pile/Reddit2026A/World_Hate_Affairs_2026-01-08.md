@@ -1900,3 +1900,12 @@ https://old.reddit.com/r/europe/comments/1qi72ic/europaparlamentet_voted_to_offi
 
 "madman"
 
+https://old.reddit.com/r/science/comments/1qiddcc/by_stoking_the_greenland_debate_the_us_may/o0qjmec/
+
+Self-harm to humanity.
+
+https://old.reddit.com/r/science/comments/1qiddcc/by_stoking_the_greenland_debate_the_us_may/o0qleb3/
+
+Trivializing complex issues. MAGA values (acting dumb, trivializing). Twitter-length "sounds smart", smart-aleck attitude like billionaire Rupert Murdoch hasn't massively manipulated the entire rural (less-educated) population of laborers.  I grew up in the MidWest; Fort Wayne, Indiana - and people there clearly do not comprehend how New York City Fox News HDTV operates, how Facebook California operates on their behavior, and do not in any way grasp Russia's Internet Research Agency.
+
+* "Putin is clearly winning Russia’s hybrid war against the U.S. because Americans don’t understand how they are being manipulated." - December 11, 2020 - "The Heritage Foundation" https://www.Heritage.Org/defense/commentary/putin-winning-russias-hybrid-war-against-america (Before January 6, 2021 - by weeks. QAnon was Russian Hybrid warfare, QAnon flags on January 6 https://old.reddit.com/r/QAnonRussia/ QAnon-Russia subreddit)
