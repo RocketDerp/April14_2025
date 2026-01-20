@@ -1755,3 +1755,19 @@ https://old.reddit.com/r/greenland/comments/1qhhijq/to_every_american_whos_sorry
 "You're all participants in a diseased and broken system that allowed this to happen." - Yes. This very GitHub is trying to get people caught up to year 1923 Finn's Hotel by James Joyce. People do not see media ecology. James Joyce is essential, McLuhan, Jean Erdman. 
 
 https://old.reddit.com/r/worldnews/comments/1qhz6ay/donald_trump_shares_altered_image_of_map_showing/o0ns2p4/
+
+https://old.reddit.com/r/europe/comments/1qi1rkb/nato_officials_restrict_intelligence_to_us_over/o0o1t6c/
+
+https://old.reddit.com/r/europe/comments/1qi1rkb/nato_officials_restrict_intelligence_to_us_over/o0o5o4j/
+
+https://old.reddit.com/r/europe/comments/1qi1rkb/nato_officials_restrict_intelligence_to_us_over/o0o4x2j/
+
+https://old.reddit.com/r/europe/comments/1qi1rkb/nato_officials_restrict_intelligence_to_us_over/o0o5iqr/
+
+<img width="1057" height="585" alt="image" src="https://github.com/user-attachments/assets/9b7c7a06-3a18-4b81-804f-159bd7c6c67c" /> Nobody can get social media addicts to stop their addiction. I personally think it would be GOOD to reform the society USING SOCIAL MEDIA. But people are so attracted to toxic. Donald Trump provides hate leadership and EVERYONE (not just MAGA, not just conservatives, not just Republican) follows the hate signaling. 
+
+OPERA_A https://youtu.be/PRpiBpDy7MQ?t=349 Nobody can break the spell... of hate attraction that USA population has from high-speed meme euphoria. Machine logic mindsets.
+
+Social media has NOT risen up. Dr. Bandy X. Lee's book from October 3, 2017 would be a start. To repeat it every 6 hours. https://github.com/RocketDerp/April14_2025/blob/main/Grim_Blunt/Pop/Social_Media_Society_did_not.md
+
+Social post { https://autistics.life/@RoundSparrow/115928232507010568 https://bsky.app/profile/roundsparrow.bsky.social/post/3mcuji75lnk2s }
