@@ -583,3 +583,8 @@ Gullibility. Ad we are PROUD of actors and actresses who can trick and con peopl
 
 * * [“The truth is, it’s getting harder to describe the extent to which a meaningful percentage of Americans have dissociated from reality,” Charlie Warzel wrote “I’m Running Out of Ways to Explain How Bad This Is.”](https://www.axios.com/2024/10/19/musk-ackman-election-misinformation) - October 19, 2024 - America’s gullibility crisis, Zachary Basu
 
+https://old.reddit.com/r/politics/comments/1qhvosi/to_their_shock_cubans_in_florida_are_being/o0nay37/
+
+4 month Reddit account. Messages of being thrilled at what Fox News HDTV billionaire Rupert Murdoch has done to people's minds. Loves that manipulator Rupert Murdoch has fucked over an entire nation. Reddit message of cheer-leading the Billionaires to fuck-over "The Little Guy".
+
+
