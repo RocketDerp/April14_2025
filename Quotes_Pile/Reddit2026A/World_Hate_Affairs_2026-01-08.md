@@ -1963,3 +1963,11 @@ https://old.reddit.com/r/politics/comments/1qie55s/trump_79_kicks_off_press_conf
 
 4 words. "mentally ill". ANYTHING to avoid nonfiction books on Reddit.
 
+https://old.reddit.com/r/politics/comments/1qie55s/trump_79_kicks_off_press_conference_by_reading/o0qx3d9/
+
+"insane", "mental health".  ANYTHING to avoid nonfiction books on Reddit.
+
+https://old.reddit.com/r/politics/comments/1qie55s/trump_79_kicks_off_press_conference_by_reading/o0qv4a6/
+
+"How is this nightmare real?" - We The People react-commenting on every available media platform to every press conference of Donald Trump. CONSTANTLY AVOIDING: Jen Senko, Dr. Bandy X Lee and other nonfiction sources to REMOVE Trump. Social media pages are full of people spreading hate and mocking away at other people. "Engagement" of mocking in a total mockery lead by Donald Trump. Why is every social media user not posting Dr. Bandy X Lee's Bluesky account and book from October 3, 2017?
+
