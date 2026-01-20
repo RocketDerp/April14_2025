@@ -463,3 +463,6 @@ https://old.reddit.com/r/politics/comments/1qhk8oa/are_we_really_living_in_a_dem
 
 The 30-second YouTube advert is a mythology education issue. Comparative Mythology. "A-B Testing" of Alphabet Corporation, Google. Mind exploitation in 30 seconds or less. Trump ***fandom as a practitions*** of Marshall McLuhan 1968 upon Reddit audience members. Active measures automation. 
 
+https://old.reddit.com/r/ProgressiveHQ/comments/1qhmowt/it_aint_about_immigrants_its_about_terrorizing/o0l0k14/
+
+Fandom of Twitter-length Tweet-think messaging on Reddit. 10 month old Reddit account describing mind patterns of values of Reddit audience.
