@@ -568,3 +568,13 @@ Serious topics made in Twitter-length comments. No off-Reddit URL to back up wit
 https://old.reddit.com/r/democrats/comments/1qho7cr/this_is_spot_on_its_been_25th_amendment_time_for/o0lks0f/
 
 "all crazy"
+
+https://old.reddit.com/r/politics/comments/1qhvosi/to_their_shock_cubans_in_florida_are_being/o0mw8ua/
+
+Day after day for over 10 year you can witness the stardom power of Trump and Fox News HDTV. The Anti-reality symptoms and behaviors of people being shocked. But there are never enough examples for people. This GitHub i an absurd driven-crazy by the situaiton attempt to demonstrate how FRAGMENTED people are. In filter-bubble mindsets of not seeing the forest for the trees they tune in to.
+
+It is horrific that a clergy leader hasn't made Bible verse "1 John 3:17" a constant reference and topic as Trump parades around with a Bible for photos. Elon Musk in the White House a year ago with D.O.G.E. - why is the clergy not bring up "1 John 3:17" page of the book? Their whole job is to reference that 2,000 year old storybook. It has never been easier to search The Bible now with computers and large language models (LLM). 
+
+There is a tunnel vision, forest for the trees, problem across every level of society. Marshall McLuhan and Neil Postman learning is no longer optional. We are living in all the symptoms of not studying McLuhan!
+
+
