@@ -1753,3 +1753,5 @@ So instead of coming here nonstop to apologise on behalf of your country for you
 https://old.reddit.com/r/greenland/comments/1qhhijq/to_every_american_whos_sorry/o0jyhu0/
 
 "You're all participants in a diseased and broken system that allowed this to happen." - Yes. This very GitHub is trying to get people caught up to year 1923 Finn's Hotel by James Joyce. People do not see media ecology. James Joyce is essential, McLuhan, Jean Erdman. 
+
+https://old.reddit.com/r/worldnews/comments/1qhz6ay/donald_trump_shares_altered_image_of_map_showing/o0ns2p4/
