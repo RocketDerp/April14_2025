@@ -603,3 +603,18 @@ https://old.reddit.com/r/mapporncirclejerk/comments/1qhx1gw/this_is_actually_rea
 
 "once again". So much junk is originated from social media it has overtaken goodness. That started in year 2013. Trending social is worse every day.
 
+https://old.reddit.com/r/mapporncirclejerk/comments/1qhx1gw/this_is_actually_real/o0naaba/
+
+"Lebensraum, German for "living space," was a core Nazi ideology driving territorial expansion in Eastern Europe, justifying conquest and settlement at the expense of Slavic populations"
+
+https://old.reddit.com/r/mapporncirclejerk/comments/1qhx1gw/this_is_actually_real/o0n8tw8/
+
+"delusional"
+
+https://old.reddit.com/r/mapporncirclejerk/comments/1qhx1gw/this_is_actually_real/o0ne8b1/
+
+"IRL" - the ignorance of Comparative Mythology is sickening in USA society. Do Reddit meme addicts, touch device addicts, not grasp that the Bible is science fiction storytelling? The Quran and Torah are science fiction! Are the MAGA fandom on Reddit so poorly educated we think a Church and Mosque isn't a science fiction circle-jerk? A fandom of fiction? Do people seriously believe that circle-jerking was only invented when Reddit went online 21 years ago?
+
+The mindsets of people who believe they invented everything.  Ecclesiastes 1:9.  No wonder *We The People* line up to follow Trump. *We People*.. think ... since Trump is age 79, that he invented everything we live in? You can just sense that almost all people in USA can no longer relate or imagine what life was like before the Apple iPhone went on sale in the middle of year 2007.
+
+* "Throughout his time in public office and on the campaign trail, Donald Trump has frequently claimed to have invented or created common, established phrases, ideas, and even words, perhaps most notably telling The Economist in 2017 that he "came up with" the phrase "prime the pump" just a few days prior to the interview, despite the term having been used in economic discourse since the 1930s. Similarly, Trump stated that "fake"—often used as "fake news"—was one of the greatest terms he ever came up with, acknowledging others might have used it before but claiming he had never noticed it. Other examples of phrases or nicknames he claimed to introduce include "Big Luther" for Senator Luther Strange, which was already in use before their meeting, and the phrase "Make America Great Again," which he insisted on trademarking and appeared unaware was used by Ronald Reagan in 1980. In 2017, he also suggested that he invented the concept of "on fleek", and he later declared "equalize" to be a "new word" he "came up with" in May 2025 regarding tariff policy, despite its usage dating back to the 16th century. Additionally, he has taken credit for popularizing terms like "caravan" and "panican", along with the term "groceries" during a 2025 speech." - Google Search summary 2026-01-20
