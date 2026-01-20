@@ -1827,3 +1827,33 @@ You will almost never find Star Wars fans who read that 293 page book and cite i
 You can not let film entertainment, TV entertainment, exceed the mind. Mockery ad addiction to fiction takes over. that's the story of Comparative Mythology!! that is the meaning of "Wake" in Star Wars Day 1939 "Finnegans Wake" by James Joyce. Being *woke* to fiction bamboozle. 
 
 That is why the founding fathers, free masons, created the Great Seal of the United States of America teaching tool. With the eagle and pyramid. Even with Star Wars, Bill Moyers, George Lucas - it was not made "entertaining enough" for people to learn from since year 1988. Then Surkov students came along in March 2013 and our minds all sold out to fiction Russian bullshit storytelling. Surkov won.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qi2ze8/shh_just_let_it_happen/o0omyhz/
+
+"unreal"
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qi2ze8/shh_just_let_it_happen/o0oql48/
+
+LOVE IT that people deport, block, dehumanize via communications. Deport those you disagree with, imprison them, get them out of sight. Reddit messaging to tech lovers is: hate harder. Technology addicts want to promote *hate humans* messaging. Anything but school people on mental health. Anythig but link to Dr. Bandy X Lee's teachings and leasership.
+
+* "The Black Mirror episode about blocking people is "White Christmas," the 2014 Christmas special, where a futuristic "Z-eye" implant allows users to visually and audibly block others, turning them into fuzzy, silent shapes, leading to extreme digital isolation and punishment, with one character being "blocked by everyone" in a devastatingly cruel twist." - Google Search summary 2026-01-20 noonish USA
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qi2ze8/shh_just_let_it_happen/o0odh17/
+
+Two words. That's the engagement. Extreme tiny-short Twitter Musk programming of the audience. ANYTHING but have a social media uprising and promote Dr. Bandy X Lee about the mental health of MAGA and Trump.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qi2ze8/shh_just_let_it_happen/o0ocl9g/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qi2ze8/shh_just_let_it_happen/o0odsvi/
+
+that's what the people attacking me on Reddit (earlier this month) basically say before they got me banned. If I don't resist in public, i won't get banned. USA society is: you weak, you are a target. Been this way since March 2013 invasion of Reddit by the IRA.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qi2ze8/shh_just_let_it_happen/o0oijzu/
+
+Fox News addicts run the nation and our organizations at every level. Meme addicts. All changed in year 2013. Surkov won.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qi2ze8/shh_just_let_it_happen/o0ojj8e/
+
+The OBVIOUSNESS is the Surkov monomyth techniques. The MORE OBVIOUS and AGGRESSIVE MASCULINE the more Reddit users blow their mind out into meme stupors. I've been witnessing this since year 2013 every day.
+
+* "But the key thing was, that Surkov then **let it be known that this was what he was doing**, which meant that no one was sure what was real or fake. As one journalist put it: "It is a strategy of power that keeps any **opposition constantly confused." A ceaseless shape-shifting that is unstoppable because it is undefinable**. It is exactly what Surkov is alleged to have done in the Ukraine this year (2014). In typical fashion, as the war began, Surkov published a short story about something he called non-linear war. A war where you never know what the enemy are really up to, or even who they are. The underlying aim, Surkov says, is not to win the war, but to use the conflict to create **a constant state of destabilized perception**, in order to manage and control." - BBC, Adam Curtis. December 31, 2014. https://www.RealClearPolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html
