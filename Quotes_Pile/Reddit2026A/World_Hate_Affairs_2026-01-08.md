@@ -1733,3 +1733,19 @@ https://old.reddit.com/r/news/comments/1qhgzdd/pentagon_places_1500_arctictraine
 https://old.reddit.com/r/news/comments/1qhgzdd/pentagon_places_1500_arctictrained_airborne/o0k3ahz/
 
 "LOL", "imploded"
+
+# Greenland USA A
+
+https://old.reddit.com/r/greenland/comments/1qhhijq/to_every_american_whos_sorry/o0jxbii/
+
+<img width="1760" height="1172" alt="image" src="https://github.com/user-attachments/assets/e5487729-8ae5-4b78-a578-b97ec2921128" />
+
+USA population has ZERO year 2026 CONCEPT of University of Toronto Marshall McLuhan's "Mass Man", "Mob Mentality", "Street Gang", "Group Thinking!" And it shows, because people can not discuss the "Fox News HDTV mindsets" as a pattern. Nor can people discuss Comparative Mythology in USA, of "Quran Mindset" vs. "Torah Mindset" around Palestine. Synagogue mindset fandom vs. Mosque mindset fandom.
+
+Yes, the posting:
+
+"We're getting at least 10 posts a day from Americans apologising, and saying things like they didn't vote for Trump or don't support his policies. To be blunt, none of that actually matters. You can say you're different from the rest of Americans, but to the rest of the world, that distinction doesn't exist.
+
+To us, your country is a **single entity on the world stage**, and it's threatening its allies. Think about **how you view other countries**. For example, Russian opposition doesn't change what Russia does, because that's their domestic politics. The same thing applies to the US too, except you had the power to choose your president, and you may still have it.
+
+So instead of coming here nonstop to apologise on behalf of your country for your constant need for sympathy, focus on actually changing something while you still can."
