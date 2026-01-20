@@ -1749,3 +1749,7 @@ Yes, the posting:
 To us, your country is a **single entity on the world stage**, and it's threatening its allies. Think about **how you view other countries**. For example, Russian opposition doesn't change what Russia does, because that's their domestic politics. The same thing applies to the US too, except you had the power to choose your president, and you may still have it.
 
 So instead of coming here nonstop to apologise on behalf of your country for your constant need for sympathy, focus on actually changing something while you still can."
+
+https://old.reddit.com/r/greenland/comments/1qhhijq/to_every_american_whos_sorry/o0jyhu0/
+
+"You're all participants in a diseased and broken system that allowed this to happen." - Yes. This very GitHub is trying to get people caught up to year 1923 Finn's Hotel by James Joyce. People do not see media ecology. James Joyce is essential, McLuhan, Jean Erdman. 
