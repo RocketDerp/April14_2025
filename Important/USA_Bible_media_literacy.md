@@ -28,7 +28,7 @@ https://old.reddit.com/r/Snorkblot/comments/1mi98ai/do_you_have_a_moment_to_talk
 
 &nbsp;
 
-### Popularity of science fiction
+### *Popular*ity of science fiction
 
 Christmas time, front page of Reddit     
 Tuesday December 23, 2025 night USA    
