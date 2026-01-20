@@ -782,3 +782,17 @@ Americans are watching sports ball games, rectangle sports, video games, mocking
 
 TECH_NOTE: I see Reddit removed the posting, purging the Title. I still have it open on my web browser where I was interactively reading the content. "Donald Trump shares altered image of map showing Greenland, Canada, Venezuela as U.S. territories" https://www.thehindu.com/news/international/donald-trump-shares-altered-image-of-map-showing-greenland-canada-venezuela-as-us-territories/article70528720.ece "In the image shared by Mr. Trump on Truth Social, Mr. Trump’s own online platform, Mr. Trump was seen showing the altered map to European leaders. The image appears to be an altered version of an actual photograph of the U.S. President discussing the Ukraine war situation with European leaders in August 2025." Same link shared on another Subreddit, not yet removed: https://old.reddit.com/r/france/comments/1qi1y3k/donald_trump_shares_altered_image_of_map_showing/
 
+https://old.reddit.com/r/UnderReportedNews/comments/1qi0lmo/ed_davey_trump_is_acting_like_an_international/o0o2r2n/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qi0lmo/ed_davey_trump_is_acting_like_an_international/o0nzrah/
+
+Social media world wide. https://github.com/RocketDerp/April14_2025/blob/main/Grim_Blunt/Pop/Social_Media_Society_did_not.md
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qi0lmo/ed_davey_trump_is_acting_like_an_international/o0nz4z7/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qi0lmo/ed_davey_trump_is_acting_like_an_international/o0o1nex/
+
+Because there’s nothing funny about this situation.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qi0lmo/ed_davey_trump_is_acting_like_an_international/o0o7qwd/
+
