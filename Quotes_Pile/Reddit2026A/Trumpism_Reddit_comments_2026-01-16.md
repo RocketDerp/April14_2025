@@ -577,4 +577,9 @@ It is horrific that a clergy leader hasn't made Bible verse "1 John 3:17" a cons
 
 There is a tunnel vision, forest for the trees, problem across every level of society. Marshall McLuhan and Neil Postman learning is no longer optional. We are living in all the symptoms of not studying McLuhan!
 
+https://old.reddit.com/r/politics/comments/1qhvosi/to_their_shock_cubans_in_florida_are_being/o0n2e3e/
+
+Gullibility. Ad we are PROUD of actors and actresses who can trick and con people the best. We have awards shows for acting and tricking crowds / audiences. We don't take seriously that truth and fact and research and education of REALITY, nonfiction, is more important than a charming actor Donald Trump who played a television role in "The Apprentice"... ARRGGGH!
+
+* * [“The truth is, it’s getting harder to describe the extent to which a meaningful percentage of Americans have dissociated from reality,” Charlie Warzel wrote “I’m Running Out of Ways to Explain How Bad This Is.”](https://www.axios.com/2024/10/19/musk-ackman-election-misinformation) - October 19, 2024 - America’s gullibility crisis, Zachary Basu
 
