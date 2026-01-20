@@ -459,3 +459,7 @@ https://old.reddit.com/r/ProgressiveHQ/comments/1qhh4lp/republicans_seem_very_co
 
 Out-group retarded, out-group retards. MAGA mindsets, MAGA values, MAGA messaging. Street-gang messaging lingo.
 
+https://old.reddit.com/r/politics/comments/1qhk8oa/are_we_really_living_in_a_democracy_asks_sanders/o0kw7l0/
+
+The 30-second YouTube advert is a mythology education issue. Comparative Mythology. "A-B Testing" of Alphabet Corporation, Google. Mind exploitation in 30 seconds or less. Trump ***fandom as a practitions*** of Marshall McLuhan 1968 upon Reddit audience members. Active measures automation. 
+
