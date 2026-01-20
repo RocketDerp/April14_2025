@@ -1200,3 +1200,6 @@ https://old.reddit.com/r/politics/comments/1qhd63f/trumps_latest_temper_tantrum_
 
 All, we all, *joke-washing* trump. Humor-washing Trump as sane because late night comedy venues allow anything! Fiction allows anything. Mechanism of the Internet Research Agency warfare on Reddit since March 2013. Absurd comedy, surreal humor exploits of the mind.
 
+https://old.reddit.com/r/politics/comments/1qhhczp/donald_trump_doesnt_acknowledge_martin_luther/o0jzh6y/
+
+6 month Reddit account.
