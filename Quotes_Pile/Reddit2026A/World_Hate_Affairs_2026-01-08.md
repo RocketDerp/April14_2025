@@ -1771,3 +1771,24 @@ OPERA_A https://youtu.be/PRpiBpDy7MQ?t=349 Nobody can break the spell... of hate
 Social media has NOT risen up. Dr. Bandy X. Lee's book from October 3, 2017 would be a start. To repeat it every 6 hours. https://github.com/RocketDerp/April14_2025/blob/main/Grim_Blunt/Pop/Social_Media_Society_did_not.md
 
 Social post { https://autistics.life/@RoundSparrow/115928232507010568 https://bsky.app/profile/roundsparrow.bsky.social/post/3mcuji75lnk2s }
+
+https://old.reddit.com/r/law/comments/1qi1jw8/a_french_judge_explains_how_trump_sent_people/o0o0lgj/
+
+Affairs of state, affairs of hate.
+
+https://old.reddit.com/r/law/comments/1qi1jw8/a_french_judge_explains_how_trump_sent_people/o0o2lny/
+
+9 month Reddit account.
+
+https://old.reddit.com/r/law/comments/1qi1jw8/a_french_judge_explains_how_trump_sent_people/o0o1itb/
+
+Replies capture.
+
+https://old.reddit.com/r/law/comments/1qi1jw8/a_french_judge_explains_how_trump_sent_people/o0ofrs2/
+
+Social media did not sustain standing up for Malala after year 2012 when she was world famous. So much excellent articulation of reform ignored since year 2013.
+
+https://old.reddit.com/r/law/comments/1qi1jw8/a_french_judge_explains_how_trump_sent_people/o0ogtzx/
+
+This GitHub is painting a picture of the answer. { Neil Postman, Marshall McLuhan, Surkov students, Internet Research Agency, Jean Erdman, Carl Sagan, Rick Roderick, Drew Curtis, Malala } articulate it.
+
