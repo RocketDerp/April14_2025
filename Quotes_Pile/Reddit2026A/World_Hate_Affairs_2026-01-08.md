@@ -1957,3 +1957,9 @@ Donald Trump and MAGA are deporting children, fears abound of raiding schools. h
 
 * "On the morning of September 28, 2025, a mass shooting and arson attack occurred at a meetinghouse of the Church of Jesus Christ of Latter-day Saints (LDS Church) in Grand Blanc Township, Michigan, United States. The perpetrator, 40-year-old Thomas Jacob Sanford"; "opened fire on a church service attended by hundreds of people, including children"; "The ages of the victims who had been killed or wounded ranged from 6 to 78 years."; "He got this whole fascination with Mormons, and they are the Antichrist, and they are going to take over the world" https://en.wikipedia.org/wiki/2025_Grand_Blanc_Township_church_attack
 
+https://old.reddit.com/r/politics/comments/1qie55s/trump_79_kicks_off_press_conference_by_reading/o0qrn82/
+
+https://old.reddit.com/r/politics/comments/1qie55s/trump_79_kicks_off_press_conference_by_reading/o0qpz7p/
+
+4 words. "mentally ill". ANYTHING to avoid nonfiction books on Reddit.
+
