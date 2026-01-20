@@ -680,3 +680,26 @@ https://old.reddit.com/r/worldnews/comments/1qhz6ay/donald_trump_shares_altered_
 
 Social media users need to HALT and STOP entertainment and face that MAGA is addicted to entertainment television. Newsmax, Fox News. Musk Twitter. SEE ideas: https://github.com/RocketDerp/April14_2025/blob/main/Grim_Blunt/Stop_All_Entertainment.md
 
+https://old.reddit.com/r/worldnews/comments/1qhz6ay/donald_trump_shares_altered_image_of_map_showing/o0nkt3o/
+
+"craziness" ++ stress, anxiety, bewilderment, broken families due to MAGA alternate reality fiction addictions, international travel and relationships broken, all the free time and spare time in service to commenting over and over about one man for over a decade.
+
+https://old.reddit.com/r/worldnews/comments/1qhz6ay/donald_trump_shares_altered_image_of_map_showing/o0nlifr/
+
+Runaway Surkov monomyth patterns.
+
+https://old.reddit.com/r/worldnews/comments/1qhz6ay/donald_trump_shares_altered_image_of_map_showing/o0nj2fp/
+
+"sick in the head"
+
+https://old.reddit.com/r/worldnews/comments/1qhz6ay/donald_trump_shares_altered_image_of_map_showing/o0nlep2/
+
+"grip on reality"
+
+https://old.reddit.com/r/worldnews/comments/1qhz6ay/donald_trump_shares_altered_image_of_map_showing/o0no2uk/
+
+<img width="1004" height="957" alt="image" src="https://github.com/user-attachments/assets/60d247bb-a72e-45c2-a781-99a38c4fb3e1" />
+
+Yes. It is a nation of 0.34 billion threatening a world of over 8 billion. It isn't one single man. The avoidance of Dr. Bandy X Lee nonfiction public teaching since year 2017... etc, etc.
+
+Social post { https://autistics.life/@RoundSparrow/115927876555853816 https://bsky.app/profile/roundsparrow.bsky.social/post/3mcueag4nvs2o }
