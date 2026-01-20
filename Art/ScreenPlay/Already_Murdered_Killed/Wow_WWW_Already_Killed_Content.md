@@ -35,3 +35,4 @@ Preview still shows, Pink Floyd video?
 
 <img width="2711" height="1481" alt="image" src="https://github.com/user-attachments/assets/210ac787-302a-4d1d-9b3b-1a27c7ab64cf" />
 
+ToDo: The playlist is broken. Only video plays, not playlist.
