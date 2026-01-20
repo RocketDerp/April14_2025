@@ -827,3 +827,13 @@ https://old.reddit.com/r/ImTheMainCharacter/comments/1qi2r1m/donald_trump_posts_
 Meme addicts run the nation. The mindset of meme-think fiction has taken over every area of society. We live in mythology now. Carl Sagan's nonfiction teachings / public writings in thee 1990's have all been shit out and avoided. The PLUR1BUS Apple TV+ fandom knew almost nothing of Carl Sagan, even his fiction "Contact" book and film. People are very avoidant of serious nonfiction science learning.
 
 * “We've arranged a global civilization in which most crucial elements profoundly depend on science and technology. We have also arranged things so that almost no one understands science and technology. This is a prescription for disaster. We might get away with it for a while, but sooner or later this combustible mixture of ignorance and power is going to blow up in our faces.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark. 1995
+
+https://old.reddit.com/r/videos/comments/1qi0wo1/donald_trump_says_no_going_back_on_greenland/o0ogd63/
+
+Garbage into mind, garbage out. Reddit and Twitter and Facebook egoism is even worse. People believe they are resisting the billionaires when they are not.
+
+https://old.reddit.com/r/videos/comments/1qi0wo1/donald_trump_says_no_going_back_on_greenland/o0o28op/
+
+The Great Dictator 1940 film, Charlie Chaplin acting, makes this very point. 
+
+* "Greed has poisoned men’s souls, has barricaded the world with hate, has goose-stepped us into misery and bloodshed. We have developed speed, but we have shut ourselves in. Machinery that gives abundance has left us in want. Our knowledge has made us cynical. Our cleverness, hard and unkind. We think too much and feel too little. More than machinery we need humanity. More than cleverness we need kindness and gentleness. Without these qualities, life will be violent and all will be lost… The aeroplane and the radio have brought us closer together. The very nature of these inventions cries out for the goodness in men - cries out for universal brotherhood - for the unity of us all. Even now my voice is reaching millions throughout the world - millions of despairing men, women, and little children - victims of a system that makes men torture and imprison innocent people." - https://www.CharlieChaplin.com/en/articles/29-the-final-speech-from-the-great-dictator-
