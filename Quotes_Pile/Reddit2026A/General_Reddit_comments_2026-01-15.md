@@ -1249,3 +1249,17 @@ Answer to rural ignorance is more mocking. Rupert Murdoch since 1996 mind-fucked
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1qho67x/there_are_77m_evil_people_in_america/o0ljui1/
 
 Bible Literacy reformation on this GitHub. https://GitHub.com/RocketDerp/April14_2025/blob/main/Important/USA_Bible_media_literacy.md
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qho67x/there_are_77m_evil_people_in_america/o0lz7d1/
+
+Peers. Neighbors. Ignorance abounds. Machine tech lovers of social machines abound since year 2013. Anti-humanism technology loving.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qho67x/there_are_77m_evil_people_in_america/o0ly0w1/
+
+Nope, Not the last 12 months. Reddit was invaded by Russia's Internet Research Agency before the pandemic. April 11, 2018: https://www.Vox.com/world/2018/4/11/17224294/reddit-russia-internet-research-agency
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qho67x/there_are_77m_evil_people_in_america/o0lurfy/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qho67x/there_are_77m_evil_people_in_america/o0lty1m/
+
+COVID-2019 in December 2019. Reddit addicts ignore year 2014. August 24, 2014 public disclosure alarm: https://www.BBC.com/news/world-us-canada-45294192
