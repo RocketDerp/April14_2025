@@ -1792,3 +1792,5 @@ https://old.reddit.com/r/law/comments/1qi1jw8/a_french_judge_explains_how_trump_
 
 This GitHub is painting a picture of the answer. { Neil Postman, Marshall McLuhan, Surkov students, Internet Research Agency, Jean Erdman, Carl Sagan, Rick Roderick, Drew Curtis, Malala } articulate it.
 
+https://old.reddit.com/r/law/comments/1qi1jw8/a_french_judge_explains_how_trump_sent_people/o0ojtbu/
+
