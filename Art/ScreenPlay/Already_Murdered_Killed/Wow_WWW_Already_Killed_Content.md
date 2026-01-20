@@ -9,7 +9,7 @@ https://www.ⵠ.net
 Now shows:
 
 "Video Unavailable"   
-"This video is unavailable"   
+"This video is not available"   
 
 No substitution, no redirect, no explanation, killed. Was working last year 2025.    
 
