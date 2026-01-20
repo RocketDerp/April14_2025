@@ -796,3 +796,18 @@ Because there’s nothing funny about this situation.
 
 https://old.reddit.com/r/UnderReportedNews/comments/1qi0lmo/ed_davey_trump_is_acting_like_an_international/o0o7qwd/
 
+https://old.reddit.com/r/politics/comments/1qi2p5i/democrats_call_to_invoke_25th_amendment_against/o0o84ew/
+
+"mentally unwell". Reddit audience does everything possible to avoid touching nonfiction public education on the topic of Trump's mental health. Dr. Bandy X Lee had content all over the Internet to link... off-Reddit...
+
+https://old.reddit.com/r/politics/comments/1qi2p5i/democrats_call_to_invoke_25th_amendment_against/o0oe51f/
+
+"STFU", wanting to silence any resistance to Trump. Very popular messaging on Reddit in 2026. To deport people, to have ICE silence people, to block people, to burn books, burn magazines, burn messages. Egoism raging to silence people who disagree and don't want Trump normalized. MAGA values normalized for everyone.
+
+https://old.reddit.com/r/politics/comments/1qi2p5i/democrats_call_to_invoke_25th_amendment_against/o0ofhh5/
+
+"Crazy"
+
+https://old.reddit.com/r/politics/comments/1qi2p5i/democrats_call_to_invoke_25th_amendment_against/o0ofez6/
+
+Commanding: "Stop", as in stop resisting Trump.
