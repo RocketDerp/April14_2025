@@ -1224,3 +1224,11 @@ In context of the posting Title on Reddit "Really Living In A Democracy"... refr
 
 Alas, everyone is consuming commenting at extremely high speeds on Reddit postings and not getting on the same page of 2017 and 2019 nonfiction learning. Commenting sections are where comprehension goes to drown away, drunken washing.
 
+https://old.reddit.com/r/politics/comments/1qhk8oa/are_we_really_living_in_a_democracy_asks_sanders/o0kuxth/
+
+<img width="1004" height="908" alt="image" src="https://github.com/user-attachments/assets/678b6262-5f58-4f75-bb18-5d7f285190a5" />
+
+Old Reddit. Old subdomain thinking. Year 2012 and earlier. Before the IRA invasion of Reddit. I DO NOT AGREE with the FINAL SENTENCE of the comment. Fiction talks louder that nonfiction. Levant Bible science fiction, Fox News HDTV wealth televangelism, and better-selling fiction across all media systems and medium platforming systems.
+
+Social post { https://autistics.life/@RoundSparrow/115924963281106312 https://bsky.app/profile/roundsparrow.bsky.social/post/3mct2tnnkck2q }
+
