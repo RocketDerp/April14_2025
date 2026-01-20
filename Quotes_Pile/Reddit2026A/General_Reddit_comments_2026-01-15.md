@@ -1213,3 +1213,14 @@ https://old.reddit.com/r/politics/comments/1qhhczp/donald_trump_doesnt_acknowled
 Middle 1952 year, deep digging! 
 
 * "Martin Luther King Jr.'s key graduations were from Morehouse College in 1948, Crozer Theological Seminary in 1951 (with a Bachelor of Divinity), and Boston University in 1955 (with a Ph.D.), having finished high school early to start college at just 15 years old." - Google Search summary 2026-01-19 evening USA
+
+https://old.reddit.com/r/politics/comments/1qhk8oa/are_we_really_living_in_a_democracy_asks_sanders/o0kh47q/
+
+In context of the posting Title on Reddit "Really Living In A Democracy"... refresher BEFORE Project 2025 got attention, this DID NOT get public attention from Reddit community, We The People...
+
+* Russia media expert, Reality TV producer in Moscow (Pomerantsev): “The display, which was called **'Can Democracy Survive the Internet?'** was dedicated to a 'global election management' company called Cambridge Analytica. Cambridge Analytica claimed to have gathered 5,000 data points on every American voter online: what you liked and what you shared on social media; how and where you shopped; who your friends were... They claimed to be able to take this imprint of your online self, use it to understand your deepest drives and desires, and then draw on that analysis to change your voting behaviour. The boast seemed to be backed up by success: Cambridge Analytica had worked on the victorious American presidential campaign of Donald Trump; it had also run successful campaigns for US Senator Ted Cruz (twice); and others all across Africa, Asia, the Caribbean, Latin America.” ― Peter Pomerantsev, This Is Not Propaganda: Adventures in the War Against Reality, 2019
+
+* https://www.TheGuardian.com/technology/2017/may/07/the-great-british-brexit-robbery-hijacked-democracy This is not just a story about social psychology and data analytics. It has to be understood in terms of a military contractor using military strategies on a civilian population. Us. David Miller, a professor of sociology at Bath University and an authority in psyops and propaganda, says it is “an extraordinary scandal that this should be anywhere near a democracy. It should be clear to voters where information is coming from, and if it’s not transparent or open where it’s coming from, **it raises the question of whether we are actually living in a democracy or not.**”
+
+Alas, everyone is consuming commenting at extremely high speeds on Reddit postings and not getting on the same page of 2017 and 2019 nonfiction learning. Commenting sections are where comprehension goes to drown away, drunken washing.
+
