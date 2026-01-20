@@ -879,3 +879,10 @@ I can show you they do care. Extreme attraction, time devoted to Trump. People c
 * February 28, 1954: "Most people can't stand up for their convictions, because the majority of people might not be doing it. See, everybody's not doing it, so it must be wrong. And since everybody is doing it, it must be right. So a sort of numerical interpretation of what's right. But I'm here to say to you this morning that some things are right and some things are wrong. Eternally so, absolutely so. **It's wrong to hate.** It always has been wrong and it always will be wrong. It's wrong in America, it's wrong in Germany, it's wrong in Russia, it's wrong in China. It was wrong in 2000 B.C., and it's wrong in 1954 A.D. It always has been wrong, and it always will be wrong." - Martin Luther King Jr.
 
 * "For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the **true becomes false and the false becomes true**. That's what hate does. You can't see right. **The symbol of objectivity** is lost." - Martin Luther King Jr.
+
+https://old.reddit.com/r/worldnews/comments/1qi4r2x/greenland_leader_tells_people_to_prepare_for/o0ow2r0/
+
+It's been the same pattern since June 16, 2015. FOR OVER TEN YEARS AND SEVEN MONTHS. Crowds will form on social media every hour of every day and LOL LOL LMAO LOL LOL amused at Donald Trump. **"LOLCOW" Milking**. Trump is nonstop always-on entertainment. https://Old.Reddit.com/r/youtubedrama/comments/18eohai/what_is_a_lolcow/
+
+The skin color joking about black-skin, white supremacy skin, orange skin, brown skin. All the variations of skin color jokes ALONE have consumed massive amounts of attention and labor. Joking away at Trump. David Foster Wallace's defined Infinite Jesting. "tangerine", "Fanta", on and on and on and on this has consumed the minds of audiences on every platform.
+
