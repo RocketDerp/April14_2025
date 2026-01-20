@@ -471,3 +471,15 @@ https://old.reddit.com/r/ProgressiveHQ/comments/1qhmtst/we_absolutely_need_to_fu
 
 Reddit since mid year 2005. Over 20 years of billionaire advertising networks upon audiences of Reddit. That is considered "above board" legit influence. Then there is "Correct the Record" messaging for free, labor only no money path. Reddit audience can't discuss timeline or names of "Internet Research Agency"
 
+https://old.reddit.com/r/ProgressiveHQ/comments/1qhphbn/are_we_the_crazy_ones_for_allowing_this/o0lzapm/
+
+So many people seem to think "We The People" do not have any role in democracy. Except to create comments and meme day and night on social machines.
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qhphbn/are_we_the_crazy_ones_for_allowing_this/o0lsy54/
+
+"crazy"
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qhphbn/are_we_the_crazy_ones_for_allowing_this/o0lrahn/
+
+"absurdity". Addicts to Reddit can't face Neil Postman's 1985 book that spells out POTUS second term media addiction behaviors.
+
