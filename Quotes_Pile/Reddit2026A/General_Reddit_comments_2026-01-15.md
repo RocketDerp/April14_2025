@@ -1188,3 +1188,15 @@ https://old.reddit.com/r/NoStupidQuestions/comments/1qh6j10/do_americans_really_
 
 Instead of gun stroking gun worship of Luigi since December 4, 2024 - people should have every 12 hours posted a medical paperwork story / health care insurance red tape story.
 
+https://old.reddit.com/r/politics/comments/1qhd63f/trumps_latest_temper_tantrum_sparks_calls_for/o0j0ajt/
+
+Post title: "insane"
+
+https://old.reddit.com/r/politics/comments/1qhd63f/trumps_latest_temper_tantrum_sparks_calls_for/o0k9w4h/
+
+Trump media skills can bamboozle LLM systems and Reddit audiences both.
+
+https://old.reddit.com/r/politics/comments/1qhd63f/trumps_latest_temper_tantrum_sparks_calls_for/o0j3ihh/
+
+All, we all, *joke-washing* trump. Humor-washing Trump as sane because late night comedy venues allow anything! Fiction allows anything. Mechanism of the Internet Research Agency warfare on Reddit since March 2013. Absurd comedy, surreal humor exploits of the mind.
+
