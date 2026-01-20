@@ -1817,3 +1817,13 @@ Alas, people would rather spend free time and spare time on commenting instead o
 It was not difficult for social media users to keep repeating: "We want to be more like Canada and less like Russia". It isn't that hard to come up with a simple statement of what future is desired. But the future people desire is GTA6 game release and more Trump images from Truth Social to mock and insult.
 
 Social post { https://autistics.life/@RoundSparrow/115928575893568202 https://bsky.app/profile/roundsparrow.bsky.social/post/3mcuo6ex7cc2q }
+
+https://old.reddit.com/r/videos/comments/1qi0wo1/donald_trump_says_no_going_back_on_greenland/o0o0i1x/
+
+George Lucas himself, summer of 1985, at the fucking PEAK of his influence and popularity with the 1977 Star Wars films... Stuck his neck out and arranged Bill Moyers, a former employee of the White House... and learned and talented person to **be too preachy**. Three white men, Moyers, Campbell, Lucas - milked the last 3 years of life out of Joseph Campbell at age 81, age 82, age 83 for what was wrong with USA. The Great Seal of the Untied States of America. I created the fucking website from Lucas filming: www.GreatSealUSA.com
+
+You will almost never find Star Wars fans who read that 293 page book and cite it. You see Star Wars memes on Reddit constantly, a living audience, but they are entirely avoidant of the Power of Myth 1988 book. And in that book, Donald Trump is spelled out.
+
+You can not let film entertainment, TV entertainment, exceed the mind. Mockery ad addiction to fiction takes over. that's the story of Comparative Mythology!! that is the meaning of "Wake" in Star Wars Day 1939 "Finnegans Wake" by James Joyce. Being *woke* to fiction bamboozle. 
+
+That is why the founding fathers, free masons, created the Great Seal of the United States of America teaching tool. With the eagle and pyramid. Even with Star Wars, Bill Moyers, George Lucas - it was not made "entertaining enough" for people to learn from since year 1988. Then Surkov students came along in March 2013 and our minds all sold out to fiction Russian bullshit storytelling. Surkov won.
