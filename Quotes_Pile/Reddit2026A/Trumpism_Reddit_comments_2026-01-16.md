@@ -587,4 +587,19 @@ https://old.reddit.com/r/politics/comments/1qhvosi/to_their_shock_cubans_in_flor
 
 4 month Reddit account. Messages of being thrilled at what Fox News HDTV billionaire Rupert Murdoch has done to people's minds. Loves that manipulator Rupert Murdoch has fucked over an entire nation. Reddit message of cheer-leading the Billionaires to fuck-over "The Little Guy".
 
+https://old.reddit.com/r/mapporncirclejerk/comments/1qhx1gw/this_is_actually_real/o0n7itm/
+
+Things were bad enough before year 2022, but now so many people are failing the Turing test. Widespread suffering of the ELIZA effect.
+
+https://old.reddit.com/r/mapporncirclejerk/comments/1qhx1gw/this_is_actually_real/o0n7rok/
+
+Circle-jerk meme addicts cheering on the entertainment that Putin and Trump provide under the Surkov governing system. Reddit community: Fandom of Trump. Surkov won.
+
+https://old.reddit.com/r/mapporncirclejerk/comments/1qhx1gw/this_is_actually_real/o0n7ffj/
+
+Garbage into minds, garbage behaviors out of minds. Trump is the meme addict leader of Reddit audience. They all tune in to Trump's signals and follow.
+
+https://old.reddit.com/r/mapporncirclejerk/comments/1qhx1gw/this_is_actually_real/o0n8bk6/
+
+"once again". So much junk is originated from social media it has overtaken goodness. That started in year 2013. Trending social is worse every day.
 
