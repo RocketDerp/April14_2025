@@ -872,4 +872,10 @@ Attitudes of: On the Internet, it's all OK to lie and deceive and manipulate peo
 
 September 11, 2001 - 9/11 - people at least had a grip that what a specific Mosque educated and taught matter. But on the Internet, people on Reddit avoid nonfiction books at all cost. The labor to avoid nonfiction books and getting on *the same page* is extreme. So much time and labor goes into creating repetitive comments and AVOIDING same-page understandings.
 
+https://old.reddit.com/r/worldnews/comments/1qi4r2x/greenland_leader_tells_people_to_prepare_for/o0osw47/
 
+I can show you they do care. Extreme attraction, time devoted to Trump. People care to repeat over and over "orange skin" in a meme stupor. "Diaper poop" over and over and over. We The People are wilding fandom of Trump. People in no way will **admit that hate is bad**. And hate Trump they do. Message after message liked / upvoted prizing hate. **Trump leads**, and We The People follow. Faith in hate.
+
+* February 28, 1954: "Most people can't stand up for their convictions, because the majority of people might not be doing it. See, everybody's not doing it, so it must be wrong. And since everybody is doing it, it must be right. So a sort of numerical interpretation of what's right. But I'm here to say to you this morning that some things are right and some things are wrong. Eternally so, absolutely so. **It's wrong to hate.** It always has been wrong and it always will be wrong. It's wrong in America, it's wrong in Germany, it's wrong in Russia, it's wrong in China. It was wrong in 2000 B.C., and it's wrong in 1954 A.D. It always has been wrong, and it always will be wrong." - Martin Luther King Jr.
+
+* "For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the **true becomes false and the false becomes true**. That's what hate does. You can't see right. **The symbol of objectivity** is lost." - Martin Luther King Jr.
