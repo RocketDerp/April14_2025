@@ -504,3 +504,7 @@ The anti-Resisting anti-Resistance of Reddit. Top front page of /r/All - Twitter
 The way you RESIST is educate. You get out Neil Postman's thin 184 page book and you start teaching. You get every person on the same page. We The People on the same 184 pages. And you put an end to { mocking, mockery, total mockery, LOL, amusement, entertainment } about serious matters through comprehension of this mind / brain behavior. New York University still probably has a copy of Postman's dusty old books in the library. On paper.
 
 Reddit has become what Carl Sagan said in 1995 nonfiction book. "Celebration of Ignorance", celebrating Twitter and Fox News images platform. "Brain Rot" is the year 2024 term.
+
+https://old.reddit.com/r/technicallythetruth/comments/1qi1fft/aint_your_mayor_bro/o0o2v34/
+
+The same Twitter pried content is on a second /r/All front page top posting. Everyone rushing to a dumb Tweet to get their thrills of simulated resistance against { MAGA / Trump / Conservatives }. Elon Musk Twitter content right into the brains of Reddit meme addicts. Zero self awareness that Musk and Trump are all suffering extreme media addictions, can not tell fiction from nonfiction, jokes from nonfiction. A nation drowning in junk anti-learning because high speed media device delivery.
