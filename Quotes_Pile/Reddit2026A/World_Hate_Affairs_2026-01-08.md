@@ -1946,3 +1946,14 @@ Lately, these incidents have become commonplace. Many in the press and public at
 Those who embrace Trump’s reality, where the mainstream media lies and remains “the enemy,” signify their support with red hats bearing the inscription MAGA (Make America Great Again). Those who believe what the news reports about Trump have donned the symbol of resistance — pink pussy hats, a reference to his now infamous hot mic comments about women, “I just grab ’em by the pussy…”    
 That the country is currently split — and **our shared reality** with it — seems without question at this point."     
 ― Bandy X Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. October 3, 2017. Page 58.](https://books.google.com/books?id=pYaFDwAAQBAJ&pg=PA58&dq=insidious+strategy+called+gaslighting+%E2%80%94+a+term+drawn+from+the+1938+play+about+a+man+who+persuaded+his+wife+she+was+crazy+by&hl=en&newbks=1&newbks_redir=1&sa=X)
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qib7hc/the_goalkeeper_told_me_im_an_illegal_immigrant/o0qdv6l/
+
+Don't call someone on Reddit a "cyber-bully", because that gets you banned.
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qib7hc/the_goalkeeper_told_me_im_an_illegal_immigrant/o0qe0lt/
+
+Donald Trump and MAGA are deporting children, fears abound of raiding schools. https://www.seattletimes.com/seattle-news/education/two-seattle-schools-shelter-in-place-due-to-reported-ice-activity/ Gun fanatics are shooting up churches and schools with children in them. Competition over favorite science fiction storybook (Book of Mormon science fiction, Bible science fiction). Or competition over favorite fiction Fox News / Newsmax storytelling.
+
+* "On the morning of September 28, 2025, a mass shooting and arson attack occurred at a meetinghouse of the Church of Jesus Christ of Latter-day Saints (LDS Church) in Grand Blanc Township, Michigan, United States. The perpetrator, 40-year-old Thomas Jacob Sanford"; "opened fire on a church service attended by hundreds of people, including children"; "The ages of the victims who had been killed or wounded ranged from 6 to 78 years."; "He got this whole fascination with Mormons, and they are the Antichrist, and they are going to take over the world" https://en.wikipedia.org/wiki/2025_Grand_Blanc_Township_church_attack
+
