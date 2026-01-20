@@ -19,3 +19,15 @@ www.ⵠ.net
 
 [War and Peace in the Global Village is a 1968 book](https://www.ⵠ.net/War_Peace_Global_Village)  by Marshall McLuhan and Quentin Fiore. It contains a collage of images and text that illustrates the effects of electronic media and new technology on man. "Fin Wake Indra Net" - do you think you can tell? Hot ashes for trees? Did you [exchange a walk-on part in the War?](https://www.indrajāla.com/)
 
+&nbsp;
+
+# Details
+
+The front-page of that website was pointing to:
+
+https://www.youtube.com/playlist?list=PLcYhoGnK9I9RyjvnH54GKiN23J0MNvtAe
+
+Playlist   
+70 videos   
+46 views   
+
