@@ -820,3 +820,10 @@ Alas, Trump posted an image on Truth Social and that is what is prized. Truth So
 
 * Quote ::: For all the ways one can define fascism (and there are many), one essential trait is its allegiance to no idea of right but its own: it is, in short, ideological narcissism. “Television is a speed-of-light medium, a present-centered medium,” my father wrote. “Its grammar, so to say, permits no access to the past … history can play no significant role in image politics. For history is of value only to someone who takes seriously the notion that there are patterns in the past which may provide the present with nourishing traditions.” ::: - February 3, 2017 https://danutm.wordpress.com/2017/02/03/andrew-postman-my-dad-predicted-trump-in-1985-its-not-orwell-he-warned-its-brave-new-world/
 
+https://old.reddit.com/r/ImTheMainCharacter/comments/1qi2r1m/donald_trump_posts_a_picture_with_a_map_showing/o0orkwt/
+
+https://old.reddit.com/r/ImTheMainCharacter/comments/1qi2r1m/donald_trump_posts_a_picture_with_a_map_showing/o0o8zh0/
+
+Meme addicts run the nation. The mindset of meme-think fiction has taken over every area of society. We live in mythology now. Carl Sagan's nonfiction teachings / public writings in thee 1990's have all been shit out and avoided. The PLUR1BUS Apple TV+ fandom knew almost nothing of Carl Sagan, even his fiction "Contact" book and film. People are very avoidant of serious nonfiction science learning.
+
+* “We've arranged a global civilization in which most crucial elements profoundly depend on science and technology. We have also arranged things so that almost no one understands science and technology. This is a prescription for disaster. We might get away with it for a while, but sooner or later this combustible mixture of ignorance and power is going to blow up in our faces.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark. 1995
