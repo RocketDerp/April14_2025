@@ -536,3 +536,35 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1qho67x/there_are_77m_evil_
 <img width="942" height="654" alt="image" src="https://github.com/user-attachments/assets/94100f5c-12ae-4486-bbcc-b3c199688e2c" />
 
 Media ecology. Mob mentality. the popularity of Trump as a source of mockery and entertainment.
+
+https://old.reddit.com/r/democrats/comments/1qho7cr/this_is_spot_on_its_been_25th_amendment_time_for/o0lbzy7/
+
+Posting says "mentally ill", comment says "crazy".
+
+Why is. Dr. Bandy X Lee's October 3, 2017 book not constantly quoted on Reddit? People do not seek out nonfiction learning about serious problems. Dr. Lee is right on Bluesky and has only 3,000 followers in January 2026. Sports games, gamers, video games... people treat Trump as a source of jokes and humor, mockery. Yer 2017 is a LONG TIME AGO that Trump had obvious problems. The bigger issue is why so many people clearly demonstrate they can comment on the Internet but can't locate a serious nonfiction book on paper that is one click away! It is a CIVIC DUTY to learn about the real world and promote NONFICTION books that are relevant to Donald Trump's mental health and the mob mentality of those attracted to Trump.
+
+https://old.reddit.com/r/democrats/comments/1qho7cr/this_is_spot_on_its_been_25th_amendment_time_for/o0ldnpg/
+
+Twitter-length comment. The 2nd highest upvoted, popular comment. Short message that says "cult". There are HUNDREDS of nonfiction books about cults. Why is Reddit community so incredibly avoidant of nonfiction professional books and authors? A link to an article, a quote from a book. Why is short commenting at high speeds not seen as the very problem of society? Trump behaves this very same way with social media. Low-effort thinking, no desire to listen to good ideas, charmed by rapid commenting.
+
+https://old.reddit.com/r/democrats/comments/1qho7cr/this_is_spot_on_its_been_25th_amendment_time_for/o0lg5l1/
+
+https://old.reddit.com/r/democrats/comments/1qho7cr/this_is_spot_on_its_been_25th_amendment_time_for/o0lta6n/
+
+Tiny-short Twitter-length Tweet-think commenting. Where is the off-Reddit URL? Book quote? Trump believes Fox News is nonfiction.
+
+https://old.reddit.com/r/democrats/comments/1qho7cr/this_is_spot_on_its_been_25th_amendment_time_for/o0lhfuv/
+
+Reddit audience members can not tell fiction from nonfiction. People fail the Touring test constantly.
+
+https://old.reddit.com/r/democrats/comments/1qho7cr/this_is_spot_on_its_been_25th_amendment_time_for/o0lzt3i/
+
+conversational commenting on extremely serious topic. Where is the YouTube link, off-Reddit URL? What's the name of the lawyer?
+
+https://old.reddit.com/r/democrats/comments/1qho7cr/this_is_spot_on_its_been_25th_amendment_time_for/o0lgn5m/
+
+Serious topics made in Twitter-length comments. No off-Reddit URL to back up with details. No book quotes. No author names. Just comment after comment consuming free time and spare time. This has gone on for over a decade. We The People squandering the nation by not being serious about Trump topics.
+
+https://old.reddit.com/r/democrats/comments/1qho7cr/this_is_spot_on_its_been_25th_amendment_time_for/o0lks0f/
+
+"all crazy"
