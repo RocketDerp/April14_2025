@@ -10,3 +10,4 @@ Those who embrace Trump’s reality, where the mainstream media lies and remains
 
 That the country is currently split — and **our shared reality** with it — seems without question at this point.
 
+― Bandy X Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. October 3, 2017. Page 58.](https://books.google.com/books?id=pYaFDwAAQBAJ&pg=PA58&dq=insidious+strategy+called+gaslighting+%E2%80%94+a+term+drawn+from+the+1938+play+about+a+man+who+persuaded+his+wife+she+was+crazy+by&hl=en&newbks=1&newbks_redir=1&sa=X)
