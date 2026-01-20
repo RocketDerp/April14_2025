@@ -508,3 +508,7 @@ Reddit has become what Carl Sagan said in 1995 nonfiction book. "Celebration of 
 https://old.reddit.com/r/technicallythetruth/comments/1qi1fft/aint_your_mayor_bro/o0o2v34/
 
 The same Twitter pried content is on a second /r/All front page top posting. Everyone rushing to a dumb Tweet to get their thrills of simulated resistance against { MAGA / Trump / Conservatives }. Elon Musk Twitter content right into the brains of Reddit meme addicts. Zero self awareness that Musk and Trump are all suffering extreme media addictions, can not tell fiction from nonfiction, jokes from nonfiction. A nation drowning in junk anti-learning because high speed media device delivery.
+
+https://old.reddit.com/r/clevercomebacks/comments/1qi163e/10000_miles_for_just_that/o0nxihc/
+
+The same Twitter pried content is on a 3rd /r/All front page top posting
