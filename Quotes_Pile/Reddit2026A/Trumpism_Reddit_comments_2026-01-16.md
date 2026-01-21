@@ -1091,3 +1091,11 @@ https://old.reddit.com/r/politics/comments/1qiuwxw/71_percent_of_americans_say_u
 https://old.reddit.com/r/politics/comments/1qiuwxw/71_percent_of_americans_say_us_is_out_of_control/o0u5mzl/
 
 "mental illness". Twitter-length commenting on Reddit. ANYTHING to avoid nonfiction books on paper. Dr. Bandy X Lee's book from October 3, 2017 avoided again and again by Reddit touch-device meme aficionados. Anti-book, anti-FAQ, anti-Wiki.. Reddit fandoms of Trump use of information systems. Tweet-thinking.
+
+https://old.reddit.com/r/politics/comments/1qiuwxw/71_percent_of_americans_say_us_is_out_of_control/o0ua5pf/
+
+Out-group oriented. Thinks the problem is ONLY one single political party in USA. It is social media. It is the commenting like this that you see from EVERY person in USA, over and over, about how the problem is human persons and not the garbage Fox News HDTV and Reddit Twitter Facebook commenting that people are putting into their children's minds. Why are serious nonfiction films from Jen Senko being ignored? 
+
+Why the fuck do people make these short repetitive comments with their spare time and free time when an edited film is available? https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad It is fucking TORTURE to make these GitHub comments (you are here) over and over to make a fucking point about what is being AVOIDED! UNSEEN! https://github.com/RocketDerp/April14_2025/blob/main/June8_2025/The_Silhouette_Void_MonoMyth_Lines.md
+
+
