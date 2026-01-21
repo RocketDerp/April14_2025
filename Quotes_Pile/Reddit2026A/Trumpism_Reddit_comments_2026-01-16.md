@@ -1175,3 +1175,9 @@ https://old.reddit.com/r/videos/comments/1qj5e7p/trump_at_davos_in_switzerland_w
 Top voted comment, huge number of likes. Tiny-short mocking, quips. Gift-wrapping Trump up as comedy entertainment for audiences.
 
 * 1993 TV is now year 2013 onward Reddit commenting section. "Their life is shit, if you will pardon the expression, and this is a comedy. Because all the troubles that such a life involve are just reduced to banality, just the **common rubble of little one line joke, you follow me? It’s made banal by it.** It’s banalised that way."; "This is the great – to me – ideological function of television and the movies. However extreme the situation, TV can find a way to turn it into a banality." - Texan Rick Roderick, year 1993, Duke University. "Marcuse and One-Dimensional Man". The joking tiny-think meme-think Tweet-think one-dimensional mindset. The Trump fandom on Reddit /r/Videos which is basically TV. https://RickRoderick.org/304-marcuse-and-one-dimensional-man-1993/
+
+https://old.reddit.com/r/videos/comments/1qj5e7p/trump_at_davos_in_switzerland_without_us_right/o0wcm02/
+
+"laughed" at Trump. As conditioned by Internet Research Agency since March 2013. Anything but be serious and go to the public library for the nonfiction section.
+
+* “Everything in our background has prepared us to know and resist a prison when the gates begin to close around us . . . But what if there are no cries of anguish to be heard? Who is prepared to take arms **against a sea of amusements**? To whom do we complain, and when, and in what tone of voice, when serious discourse dissolves into giggles? What is the antidote to a culture's being drained by laughter?” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, year 1985
