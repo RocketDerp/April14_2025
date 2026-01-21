@@ -1133,3 +1133,10 @@ People die for Quran science fiction vs. Bible science fiction!
 https://old.reddit.com/r/agedlikemilk/comments/1qiwt4z/its_all_about_context/o0ug9ev/
 
 The Fandom of Trump isn't posing. These are not all fake comments and upvotes to comments on Reddit. This is a true fanatical following. Trump leads with hate, playing the role of President Tony Clifton, and a nation of touch-device addicts prizes every image of Trump. This photograph is what people live for on Reddit. The community of trash media, Reality TV stardom fans.
+
+https://old.reddit.com/r/politics/comments/1qj2eja/trump_embarrasses_all_of_america_in_slurred/o0vnfr0/
+
+Reddit audiences love it. Adore it. "Leopards eating faces!!!!" fandom on Reddit. People so thrilled to have an original Finnegans Wake (1939) speaker! Language master who can befuddle and bewilder minds to his command. John 1:1 mastery that Trump has.
+
+* "It’s a **strategy of power** based on keeping any opposition there may be **constantly confused, a ceaseless shape-shifting that is unstoppable because it’s indefinable**. This fusion of despotism and postmodernism, in which no truth is certain, is reflected in the craze among the Russian elite for **neuro-linguistic programming**" - October 20, 2011 https://www.NationalReview.com/the-agenda/peter-pomerantsev-vladislav-surkov-vladimir-putins-chief-image-maker-reihan-salam/
+
