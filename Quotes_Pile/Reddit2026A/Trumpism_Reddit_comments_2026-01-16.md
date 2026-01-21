@@ -919,3 +919,29 @@ https://old.reddit.com/r/worldnews/comments/1qifvu2/macron_on_trump_leaking_thei
 Trump fandom are doing *active measures*. People are actively anti-goodness, anti-compassion, anti-empathy. Since March 2013, people have been cheering on anti-intellectual behaviors, anti-understanding. Bullying and forming media clubs of hate prizing and mockery prizing. People have been actively creating memes and jokes to cast Trump as entertaining and a steady source of content.
 
 What people are NOT DOING: asserting important nonfiction books. Adult education on morality and goodness. People instead are promoting trivializing, mocking, total mockery as "cool".
+
+https://old.reddit.com/r/worldnews/comments/1qifvu2/macron_on_trump_leaking_their_private_messages_i/o0rk38a/
+
+Amusement addicts flock to every Trump posting. Thrilled to have such entertainment constantly streaming on the platform. Trump fandom.
+
+https://old.reddit.com/r/worldnews/comments/1qifvu2/macron_on_trump_leaking_their_private_messages_i/o0r571w/
+
+Yes. Every single thing done by Trump is *big news*. He is the biggest entertainer and joke leader in all human history. People in the Reddit audience never get enough of Trump's President Tony Clifton acting. Surkovian governing is the most powerful media content ever devised. 
+
+https://old.reddit.com/r/worldnews/comments/1qifvu2/macron_on_trump_leaking_their_private_messages_i/o0rhbjx/
+
+Reddit audience flocks to every unimportant, superficial, shallow thing Trump does. Trump goes outdoors to "touch grass" and play Golf, Front page of Reddit! Anything but remove the cherished entertainer.
+
+https://old.reddit.com/r/worldnews/comments/1qifvu2/macron_on_trump_leaking_their_private_messages_i/o0r68p8/
+
+Trump is proving that touch-device media addicts on Reddit hang on his every word.
+
+https://old.reddit.com/r/worldnews/comments/1qifvu2/macron_on_trump_leaking_their_private_messages_i/o0rcr07/
+
+Reddit audiences all show up for those texts to grade them. That's what people with education and free time and spare time do. Go on social platforms and comment about Trump. Every hour of every day and night or over a decade.
+
+https://old.reddit.com/r/StockLaunchers/comments/1qibtaa/trump_triggers_25th_amendment_calls_after_33/o0qbhpd/
+
+Trump is a media star, a television star, a Twitter star. A touring multi-city performer. Trump entertains Reddit audiences. That's what Trump power is based on. Fiction addicts on Reddit line up for over 10 years, day after day, to mock and insult Trump. And it works! A proven system since for over a decade.
+
+* "Russia-watcher Catherine Fitzpatrick, who documents Kremlin disinformation for InterpreterMag . com, says just as Moscow uses vague Internet laws to encourage self-censorship, trolls inhibit informed debate by using **crude dialogue to change "the climate of discussion."** "If you show up at The Washington Post or New Republic sites, where there's an article that's critical of Russia, and you see that **there are 200 comments that sound like they were written by 12-year-olds**, then you just don't bother to comment," she says.  "You don't participate. It's a way of just **driving discussion away** completely," she adds. "Those **kinds of tactics are meant to stop democratic debate**, and they work." - **year 2014** https://www.theatlantic.com/international/archive/2014/08/the-kremlins-troll-army/375932/
