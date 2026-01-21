@@ -1202,3 +1202,23 @@ Trump fandom, fanatics of Trump, asking for more and more years of Trump content
 https://old.reddit.com/r/MurderedByWords/comments/1qj8a3d/he_is_and_its_not_just_europe_its_the_whole_world/o0x5l8o/
 
 ANSWER: Yes. People truly want fiction storytelling. The addicts to "LOLCOW milking" on Reddit [https://en.Wikipedia.org/?title=Lolcow&redirect=no](https://fanlore.org/wiki/Lolcow) of Trump for enjoyment. You can study Reddit through the lenses of Marshall McLuhan's library of teaching (including Joyce). The high-speed media antics that Trump's acting and performance art provide. Tony Clifton blows the minds of Reddit high-speed information consumers. 
+
+https://old.reddit.com/r/AskReddit/comments/1qj91id/what_if_we_just_tell_donald_trump_that_the_us/o0x7uip/
+
+The Reddit fandom of Trump is snow-blind to the audience of Fox News HDTV, Facebook, Twitter, Reddit. People think this is one 79 year old man. Ignoring all the Trump yard signs all over houses in USA since year 2015! The psychological denial is the crisis! The anti-reality! Russia won the War Against Reality since March 2013.
+
+* [“The truth is, it’s getting harder to describe the extent to which a meaningful percentage of Americans have dissociated from reality,” Charlie Warzel wrote “I’m Running Out of Ways to Explain How Bad This Is.”](https://www.axios.com/2024/10/19/musk-ackman-election-misinformation) - October 19, 2024 - America’s gullibility crisis, Zachary Basu
+
+https://old.reddit.com/r/AskReddit/comments/1qj91id/what_if_we_just_tell_donald_trump_that_the_us/o0x81l6/
+
+MAGA cult of hundreds of millions of people still believes Fox News fiction storytelling and Bible fiction storytelling. 
+
+https://old.reddit.com/r/AskReddit/comments/1qj91id/what_if_we_just_tell_donald_trump_that_the_us/o0x71bm/
+
+We are playing Putin's alternate-reality game to wreck NATO since March 2013.
+
+https://old.reddit.com/r/AskReddit/comments/1qj91id/what_if_we_just_tell_donald_trump_that_the_us/o0x7z9v/
+
+Face media addiction and stop following a Fox News HDTV crowd. Promote Jen Senko and make her world famous for standing up to a media cult. Facebook cult, Reddit fandom cults.  https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad
+
+
