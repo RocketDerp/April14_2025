@@ -1293,3 +1293,6 @@ https://old.reddit.com/r/California/comments/1qj6woz/newsom_barred_from_public_a
 
 "lunatic"
 
+https://old.reddit.com/r/California/comments/1qj6woz/newsom_barred_from_public_address_in_switzerland/o0x9zce/
+
+Trump provides hate leadership that so many follow.
