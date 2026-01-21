@@ -1322,3 +1322,6 @@ https://old.reddit.com/r/Anticonsumption/comments/1qj6tlk/fifa_on_alert_after_17
 
 Yes. The most powerful people in the world breed fandoms into rabid mindsets. I was there woring at the Bellevue, Washington HQ. ESPN. https://www.geekwire.com/2015/heres-an-original-mock-up-of-espn-com-that-paul-allen-starwave-helped-create/
 
+https://old.reddit.com/r/shittymoviedetails/comments/1qj1zde/in_barbie_2023_america_ferrera_gives_a_whole_long/o0vmgkc/
+
+Baby toys; puppeteers of of the mindsets. media ecology.
