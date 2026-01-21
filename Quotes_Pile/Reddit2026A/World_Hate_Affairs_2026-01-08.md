@@ -2146,3 +2146,11 @@ https://old.reddit.com/r/minnesota/comments/1qj02xv/trump_in_front_of_world_lead
 Tweet-length Tweet-think. Trump content good. Trump entertains meme audience of Reddit. Total mockery echoland nation USA. Coast to coast notification smartphone and iPad echoing with every Trump word, hanging on every meme.
 
 OPERA_A ::: Carol: "Hush! Caution! Echoland!" the hive mind speaks with many voices. When a nonfiction story hands you a loaded Chekhov's gun, assume the gun is loaded. "Woke Carol" ::: Friday, November 14, 2025 https://Old.Reddit.com/r/WokeCarol/comments/1ox6841/carol_hush_caution_echoland_the_hive_mind_speaks/
+
+https://old.reddit.com/r/minnesota/comments/1qj02xv/trump_in_front_of_world_leaders_decides_to_attack/o0v61vk/
+
+"Unhinged"
+
+Trump and Surkov students are running circles around Reddit audience. The mockery mind-blowing of Reddit meme addicts. Finnegans Wake 1923 by James Joyce can cure this mind blowing by high speed electric media consumers.
+
+* Casey "Remrov" Vormer, Connecting With The Autism Spectrum: How To Talk, How To Listen, And Why You Shouldn’t Call It High-Functioning: “Associative thinkers see relations and connections everywhere and tend not to categorize things. When I hear or read a certain word, I suddenly see a lot of “pictures” in my mind that have something to do with that word. This happens in quite an unstructured and even chaotic way. It's a complicated spiderweb of memories, pictures, and thoughts.” - Page 19. https://www.GutknechtAutism.ORG/QuotesAndQuotes
