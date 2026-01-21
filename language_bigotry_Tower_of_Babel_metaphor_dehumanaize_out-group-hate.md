@@ -40,3 +40,7 @@ ToDo: find all the "Fox news language" The Atlantic links and pair up
 Reddit Front Page. Word choice, John One One     
 
 https://old.reddit.com/r/coolguides/comments/1q4uu2y/a_cool_guide_to_translating_trump/
+
+2026-01-21 I just checked the link this morning, and **Reddit removed it** after it hit the front page. Which reminds me... 
+
+* "It’s a strategy of power based on keeping any opposition there may be constantly confused, a ceaseless shape-shifting that is unstoppable because it’s indefinable. This fusion of despotism and postmodernism, in which **no truth is certain**, is reflected in the craze among the Russian elite for **neuro-linguistic** programming" - October 20, 2011 - a long fucking time ago in Reddit social years. https://www.LRB.co.UK/the-paper/v33/n20/peter-pomerantsev/putin-s-rasputin Year 2011... I was living in Amman, Jordan doing media studies of the Arab Spring / Syria war.
