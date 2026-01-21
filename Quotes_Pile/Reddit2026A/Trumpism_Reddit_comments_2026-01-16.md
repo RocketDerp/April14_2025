@@ -1296,3 +1296,11 @@ https://old.reddit.com/r/California/comments/1qj6woz/newsom_barred_from_public_a
 https://old.reddit.com/r/California/comments/1qj6woz/newsom_barred_from_public_address_in_switzerland/o0x9zce/
 
 Trump provides hate leadership that so many follow.
+
+https://old.reddit.com/r/California/comments/1qj6woz/newsom_barred_from_public_address_in_switzerland/o0ws0vc/
+
+Media of Reddit media is the center of sanewashing Trump. Millions of non-identity people who for over a decade crack jokes, publish memes, screenshot Twitter, share Truth Social, image after image of Donald Trump. People who think mockery is the greatest form of leadership every devised. Entirely avoiding nonfiction serious books. Dr. Bandy X Lee's October 3, 2017 nonfiction book... avoided. Cheering on the wild parade of antics, day after day. Why isn't a link like this https://www.ScientificAmerican.com/article/the-shared-psychosis-of-donald-trump-and-his-loyalists/ shared every other comment on Reddit? Why is it so hard to get people *on the same page* and to stay there?
+
+https://old.reddit.com/r/California/comments/1qj6woz/newsom_barred_from_public_address_in_switzerland/o0wrs7m/
+
+Reddit falls for it every time. BBC, UK, Adam Curtis. NYE 2014. A dozen years ago. British Broadcasting Corporation. BBC. https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html
