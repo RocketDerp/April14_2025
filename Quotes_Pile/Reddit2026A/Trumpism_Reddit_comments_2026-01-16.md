@@ -1198,3 +1198,7 @@ When are Reddit users going to turn in their key and stop drowning out serious p
 https://old.reddit.com/r/UnderReportedNews/comments/1qj7ls4/mcgovern_on_trump_in_davos_well_he_said_a_lot_of/o0wwtkv/
 
 Trump fandom, fanatics of Trump, asking for more and more years of Trump content! Addicts.
+
+https://old.reddit.com/r/MurderedByWords/comments/1qj8a3d/he_is_and_its_not_just_europe_its_the_whole_world/o0x5l8o/
+
+ANSWER: Yes. People truly want fiction storytelling. The addicts to "LOLCOW milking" on Reddit [https://en.Wikipedia.org/?title=Lolcow&redirect=no](https://fanlore.org/wiki/Lolcow) of Trump for enjoyment. You can study Reddit through the lenses of Marshall McLuhan's library of teaching (including Joyce). The high-speed media antics that Trump's acting and performance art provide. Tony Clifton blows the minds of Reddit high-speed information consumers. 
