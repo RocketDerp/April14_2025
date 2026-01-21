@@ -1040,3 +1040,11 @@ That the country is currently split — and **our shared reality** with it — s
 There is no escape from the fandom of Trump and the widespread shit prizing. Every day, people go to create more bullshit and shitty thinking and values. Shitting terrible values and desires everywhere on every information system. It is impossible to stare into the reality being created by humanity in North America. I do not play video games and escape from reality like so many media addicts to Trump do. I don't stuff horror films and comedy fiction into my brain t make the real world go away. I don't have children, but I cry all the time about the children being raised to seek out and desire bullying of a 79 year old man to get shit deliveries into their children's minds and education. Why would anyone possibly think this is a leader to desire? A leader to follow? Why are people not using social media to educate and teach from Dr. Bandy X Lee's books? Why don't they see the words on those pages and not grasp that *bad is bad* and swimming in an ocean of shit is toxic shit! The mindsets, attitudes, thinking - is *all shit* all the time since June 16, 2015!
 
 Always more bullshit, always more turd desires. I can't sleep. This is no way to live. Monster state of horror film addicts that will not wake up from this living nightmare. https://github.com/RocketDerp/April14_2025/blob/main/Grim_Blunt/Society_of_grading_and_ranking_turds.md
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qin02w/air_force_one_which_was_carrying_trump_to_davos/o0slhyv/
+
+The replies to this message, the thread, is full of denial of how much Putin ad Trump are running circles around Reddit audience. Why isn't Reddit staging a social media uprising? Why is Jen Senko and Dr. Bandy X Lee's name not plastered on every comment? When does the addiction to mocking one man over and over and over and over ever end? Is 3,872 days days of ever-expanding bullshit not enough for these meme addicts using all their free time / spare time swimming in Trump MAGA bullshit never enough?
+
+Is it because Dr. Bandy X Lee is a woman? Jen Senko is a woman? The Kampala Harris and Hillary Clinton programming the Russians put into minds via social networks? Can nobody see the banality of the turd commenting all over Reddit? The Twitter-think logic mindsets?
+
+
