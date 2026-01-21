@@ -1305,3 +1305,5 @@ Egomania USA. Since June 16, 2015 - a nation of followers to egomania leader Tru
 https://old.reddit.com/r/ArcRaiders/comments/1qivw0m/saw_a_kid_get_banned_in_this_sub_for_speaking_bad/o0uai2v/
 
 Or a Reddit investor, owner, shareholder.
+
+https://old.reddit.com/r/ArcRaiders/comments/1qj56kr/hardest_these_mods_have_ever_worked_stuff_isnt/o0wao2k/
