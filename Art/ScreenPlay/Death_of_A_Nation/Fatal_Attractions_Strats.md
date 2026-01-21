@@ -2,7 +2,7 @@
 
 Strategies / Fatal Strategies to Fatal Attractions
 
-1. Attraction to negative leaders. Attraction to war as entertainment. Attraction to war heroes, war parades, fireworks, explosions as entertaimment. Sound, light, heat and vibration.
+1. Attraction to negative leaders. Attraction to war as entertainment. Attraction to war heroes, war parades, fireworks, explosions as entertainment. Sound, light, heat and vibration.
 
 2. Attraction to expensive and exclusive assets
 
