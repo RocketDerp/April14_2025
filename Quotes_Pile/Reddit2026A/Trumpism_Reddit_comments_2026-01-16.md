@@ -1001,3 +1001,24 @@ https://old.reddit.com/r/politics/comments/1qhwl5l/now_is_the_time_to_admit_it_a
 Actively under attack by Russia. Since March 2013. Right on Reddit. April 11, 2018. Not repeated to all the newcomers, new accounts, on Reddit. https://www.fastcompany.com/40557479/reddit-has-named-944-banned-russian-propaganda-accounts
 
 Social post { https://autistics.life/@RoundSparrow/115930984383272285 https://bsky.app/profile/roundsparrow.bsky.social/post/3mcvqgdyghk2r https://MidWest.Social/post/42175046 }
+
+https://old.reddit.com/r/law/comments/1qimq2c/wapo_doge_employee_signed_an_agreement_to_share/o0smekf/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qin02w/air_force_one_which_was_carrying_trump_to_davos/o0skwrw/
+
+The extreme Fandom of Donald Trump has a poop fetish. Constantly messaging to the world their sexual desires for private jet Epstein sex information and fantasy of scat from powerful white men. Somehow they believe { humor, jokes, funny, comedy } justifies their constant concern for the physical body of Donald Trump. 
+
+It's impossible to describe how "bad shit" is the constant outcome of Donald Trump and the attractions people have to Trump. Bad policies, bad thinking systems (reactionary), bad nightmares, bad treatment of people, bad health care for the population of USA.
+
+I graduated high school in year 1988. A public high school in Fort Wayne, Indiana. And when Ronald Reagan was old in his second term in office, people did not have the poop fetish fantasy that they hold for Donald Trump. I never heard a single person express dreams and fantasy bout an old white man and toilet activity like Reddit audiences and other social users constantly express. Yet, Reagan had many "bad shit" policies and attitudes.
+
+* "Let me go over that again: Reagan’s popularity was popular. When you **went through the various traits of Reagan and what Reagan stood for and his policies** and so on, ah, vast numbers of people disliked nearly all of them." - Rick Roderick, year 1993, Duke University https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
+
+I also considered Ronald Reagan to be a rather good public speaker. Where with Trump, it is "bad shit" almost all the time. The attraction to "bad shit" seems to be what the Russian Internet Research Agency and Cambridge Aaalytica have induced in the population. Because even the conversation prize shit-talking, shit-posting, shit-thinking on a vast number of topics on Reddit since year 2013. The audience, We The People, the population seems to prize shit, desire shit, want shit, choose shit, and cheer on shit.
+
+I find the population behavior sickening. The attitudes, values, concerns, interest of the Reddit audience is gross, sick, mentally unwell, brain damaging. To be attracted to every move and shake, every airplane flight or golf outing of one single man - over and over and over since June 16, 2015. NEVER ENOUGH for the shit-lording shit-craving audience. Every area of USA life has worsened. Housing is worse, food is worse, health care is worse, information systems are full f bullshit and falsehoods. Why id Dr. Bandy X. Lee's leadership ignored? Why would ANYONE at ANY AGE desire to live under constant bulletining and bullshit? Dr. Bandy X Lee's nonfiction book was published back on October 3, 2017 - why oh why do people not stand up and say "NO MORE BULLSHIT"? There was a film called "The Network" where people famously fallowed a bold leader and got out their living rooms and screamed "NOT GOING TO TAKE IT ANYMORE"
+
+Where I live in the OPPOSITE. Every day people go into public Reddit social media and BEG FOR MORE TRUMP! They discuss diapers and poop constantly and all the shitty ideas and policies. Nobody says: "Let's organized, stand up, and cite Dr. Bandy X. Lee's book and teach cult deprogramming for hundreds of books at the public library".
+
+There is no escape from the shit prizing. Every day, people go to create more bullshit and shitty thinking and values. It is impossible to stare into the reality being created. I do not play video games and escape from reality like so many media addicts to Trump do. I don't stuff horror films and comedy fiction into my brain t make the real world go away. I don't have children, but I cry all the time about the children being raised to seek out and desire bullying of a 79 year old man to get shit deliveries into their children's minds and education. Why would anyone possibly think this is a leader to desire? A leader to follow? Why are people not using social media to educate and teach from Dr. Bandy X Lee's books? Why don't they see the words on those pages and not grasp that *bad is bad* and swimming in an ocean of shit is toxic shit! The mindsets, attitudes, thinking- is all shit all the time since June 16, 2015!
+
