@@ -2303,3 +2303,9 @@ Having to be immersed in non-stop fiction addicts, many who spread and smear ant
 https://old.reddit.com/r/europe/comments/1qja6ag/the_american_president_steps_back_from_the_brink/o0xfkdz/
 
 My fucking god, it is so sickening reading people comment after comment and avoid nonfiction public library organized information.
+
+https://old.reddit.com/r/europe/comments/1qja6ag/the_american_president_steps_back_from_the_brink/o0xh2tm/
+
+https://old.reddit.com/r/europe/comments/1qja6ag/the_american_president_steps_back_from_the_brink/o0xrrqe/
+
+"LMAO", so thrilled and amused at Trump for over TEN YEARS AND SEVEN MONTHS. Reddit audiences LOL LOL LMAO at everything MAGA and Trump. ANYTHING to avoid the nonfiction section of the public library about Surkovian information warfare.
