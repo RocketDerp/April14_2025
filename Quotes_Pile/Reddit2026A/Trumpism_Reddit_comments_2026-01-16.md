@@ -1304,3 +1304,21 @@ Media of Reddit media is the center of sanewashing Trump. Millions of non-identi
 https://old.reddit.com/r/California/comments/1qj6woz/newsom_barred_from_public_address_in_switzerland/o0wrs7m/
 
 Reddit falls for it every time. BBC, UK, Adam Curtis. NYE 2014. A dozen years ago. British Broadcasting Corporation. BBC. https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html
+
+https://old.reddit.com/r/DiscussionZone/comments/1qjc0qu/do_you_think_trump_has_a_mental_disorder/o0xt7t8/
+
+Posting title "mental disorder"
+
+https://old.reddit.com/r/DiscussionZone/comments/1qjc0qu/do_you_think_trump_has_a_mental_disorder/o0xy1ui/
+
+https://old.reddit.com/r/DiscussionZone/comments/1qjc0qu/do_you_think_trump_has_a_mental_disorder/o0xurzo/
+
+The avoiding going on is always the deepest: nonfiction section of the public library.
+
+https://old.reddit.com/r/DiscussionZone/comments/1qjc0qu/do_you_think_trump_has_a_mental_disorder/o0xyb2a/
+
+Yes, it is clear to see that Trump is a professional actor. Trump was on a Reality TV show called "The Apprentice". He is acting. And We The People are enamored with mocking how bad the Tony Clifton acts and performances are.... Mocking and heckling a Tony Clifton act is not resisting.
+
+https://old.reddit.com/r/DiscussionZone/comments/1qjc0qu/do_you_think_trump_has_a_mental_disorder/o0y3aj1/
+
+Quoted an article. Now why can't people just quote the same words over and over and over until every person age 12 to age 120 in USA is on *the same page of words*?
