@@ -1000,4 +1000,4 @@ https://old.reddit.com/r/politics/comments/1qhwl5l/now_is_the_time_to_admit_it_a
 
 Actively under attack by Russia. Since March 2013. Right on Reddit. April 11, 2018. Not repeated to all the newcomers, new accounts, on Reddit. https://www.fastcompany.com/40557479/reddit-has-named-944-banned-russian-propaganda-accounts
 
-Social post { https://autistics.life/@RoundSparrow/115930984383272285 https://bsky.app/profile/roundsparrow.bsky.social/post/3mcvqgdyghk2r }
+Social post { https://autistics.life/@RoundSparrow/115930984383272285 https://bsky.app/profile/roundsparrow.bsky.social/post/3mcvqgdyghk2r https://MidWest.Social/post/42175046 }
