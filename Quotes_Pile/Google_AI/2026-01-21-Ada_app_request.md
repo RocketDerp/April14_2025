@@ -4,6 +4,7 @@ Create me an Ada app that turns a Git project directory into a markdown and Wiki
 
 wiki_host.gpr 
 
+```ada
 with "aws";
 with "ada_wiki";
 
@@ -12,10 +13,13 @@ project Wiki_Host is
    for Source_Dirs use ("src");
    for Object_Dir use "obj";
 end Wiki_Host;
+```
 
+&nbsp;
 
 src/main.adb
 
+```ada
 with AWS.Default;
 with AWS.Server;
 with AWS.Response;
@@ -69,4 +73,4 @@ begin
    AWS.Server.Wait (AWS.Server.Q_Key_Pressed);
    AWS.Server.Stop (WS);
 end Main;
-
+```
