@@ -2198,3 +2198,11 @@ https://old.reddit.com/r/worldnews/comments/1qiz899/carney_leaves_davos_without_
 Reddit audience has a massive diaper fetish. Rich old white men on private Epstein jets. https://en.wikipedia.org/wiki/Diaper_fetishism People who prize turd commenting, shit-commenting, shit-posting, shit-prizing, shit eating grins over hat-watching Trump. https://en.wikipedia.org/wiki/Hate-watching it is so fucking sickening that they keep this behavior going for entertainment and won't turn to women leaders: { Jen Senko, Dr. Bandy X Lee } and put an END to this fetish of shit. May the scales fall from their eyes! Bible verse Acts 9:18 - get the shit out of your eyesight *meme aficionados* of Reddit! Stand up and promote Dr. Bandy X Lee's nonfiction writings!!!
 
 Also note the intimate lover nicknames for the parasocial shit-consuming shit-media addiciton relationship "my dear Diaper Don!" street-gang lover signaling.
+
+https://old.reddit.com/r/worldnews/comments/1qj428n/trump_threatens_canada_after_carney_draws/o0w8xlh/
+
+https://old.reddit.com/r/worldnews/comments/1qj428n/trump_threatens_canada_after_carney_draws/o0w0t6w/
+
+"LOL ROFL" - the fandom of Trump entertained, mind-blown into meme stupor. Very highly upvoted amused Reddit audience. Like a television *laugh track* for meme addicts on Reddit. People who do not want to remove Trump because he provides constant LOL engagement to feed amusement addictions.
+
+
