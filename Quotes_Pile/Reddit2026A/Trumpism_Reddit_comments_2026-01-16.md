@@ -1056,3 +1056,5 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1qin02w/air_force_one_which
 <img width="927" height="623" alt="image" src="https://github.com/user-attachments/assets/5c6d0244-7733-4ae7-918b-a19a9fe52928" />
 
 "how cringe the whole regime is" - I even created a subreddit on the topic. Cringe audience of meme addicts, meme nation Trumpland USA. Friday, March 28, 2025 https://old.reddit.com/r/CringeNation
+
+<img width="2599" height="1487" alt="image" src="https://github.com/user-attachments/assets/7684095c-c9ba-4b2e-81ac-d8703115e5ce" />
