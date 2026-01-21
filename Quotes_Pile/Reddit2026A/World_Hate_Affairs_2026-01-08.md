@@ -2014,7 +2014,7 @@ https://old.reddit.com/r/UnderReportedNews/comments/1qigjid/thousands_rally_in_g
 
 2 month Reddit account. "Moscow", "Putin", "Russia". No off-Reddit links. No mention of Reddit being invaded by the Internet Research Agency: April 11, 2018 https://www.FastCompany.com/40557479/reddit-has-named-944-banned-russian-propaganda-accounts
 
-Do people think in 2026 under Trump, that Reddit is even ALLOWED to admit this in January 2026? Under the Trump White House?
+Do people think in 2026 under Trump, that Reddit is even ALLOWED to admit this in January 2026? Under the Trump White House? In year 2018, the intelligence agencies / Pentagon were still somewhat independent of Trump. But in 2025 and 2026, Project 2025 has taken all this into account. Reddit is looking for Russian accounts any more. The Twitter disclosures of account creation last year were alarming: November 24, 2025 https://www.BBC.com/news/articles/cj38m11218xo
 
 https://old.reddit.com/r/UnderReportedNews/comments/1qigjid/thousands_rally_in_greenlands_capital_chanting/o0rc0i8/
 
