@@ -2249,3 +2249,7 @@ There is a whole chapter on "Daddy" issues.
 
 * “The human brain can protect us from seeing and feeling what it believes may be too uncomfortable for us to tolerate. It can lead us to deny, defend, minimize, or rationalize away something that doesn’t fit our worldview.”
 ― Dr. Bandy X Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. Published **October 3, 2017**. Page 273. Chapter "TRUMP'S DADDY ISSUES"](https://books.google.com/books?id=g0c4DwAAQBAJ&pg=PA273&dq=%E2%80%9CThe+human+brain+can+protect+us+from+seeing+and+feeling+what+it+believes+may+be+too+uncomfortable%22&hl=en&newbks=1&newbks_redir=1&sa=X)
+
+https://old.reddit.com/r/Fauxmoi/comments/1qj45u7/swedens_deputy_pm_ebba_busch_its_interesting/o0w29nm/
+
+Anti-Malala crowd since year 2013. Surkov won. See: https://GitHub.com/RocketDerp/April14_2025/blob/main/PostMalala/Marriage/World_Malala_Timeline_Year_2012.md#timeline-perspective
