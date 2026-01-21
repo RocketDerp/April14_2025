@@ -956,3 +956,22 @@ https://old.reddit.com/r/politics/comments/1qi8a2r/trump_shared_a_post_on_truth_
 
 Media addiction to Trump content abounds.
 
+https://old.reddit.com/r/politics/comments/1qid1uu/arizona_senator_on_trump_he_is_a_madman_he_is/o0qj7wc/
+
+Posting title: "madman", "insane"
+
+https://old.reddit.com/r/politics/comments/1qid1uu/arizona_senator_on_trump_he_is_a_madman_he_is/o0qgz2s/
+
+"madman"
+
+https://old.reddit.com/r/politics/comments/1qid1uu/arizona_senator_on_trump_he_is_a_madman_he_is/o0r1hry/
+
+"Surreal". Surkov won since March 2013.
+
+https://old.reddit.com/r/politics/comments/1qid1uu/arizona_senator_on_trump_he_is_a_madman_he_is/o0ql4u0/
+
+"Insanity"
+
+https://old.reddit.com/r/politics/comments/1qid1uu/arizona_senator_on_trump_he_is_a_madman_he_is/o0qqs9d/
+
+"crazy"
