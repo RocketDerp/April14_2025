@@ -2285,3 +2285,11 @@ https://old.reddit.com/r/politics/comments/1qj7f5m/trump_says_sometimes_you_need
 Standing up to the crowd for minor issues. Script notes to the Reality TV / antics commenting section. No call to end the show, just rewrite some of the screenplay.
 
 https://old.reddit.com/r/politics/comments/1qj7f5m/trump_says_sometimes_you_need_a_dictator_after/o0wy9y5/
+
+https://old.reddit.com/r/europe/comments/1qja6ag/the_american_president_steps_back_from_the_brink/o0xglp4/
+
+Reddit only stood up to LOL at Trump. To "Leopards Ate Faces" cheer on Trump harming rural less-educated people. The World Wide Web didn't have an uprising. Why isn't Jen Senko, baby boomer woman, world famous? Why isn't Jen Senko's name known all over Reddit? Can't put her name in a comment like "Epstein" all over the damn place?
+
+https://old.reddit.com/r/europe/comments/1qja6ag/the_american_president_steps_back_from_the_brink/o0xfqex/
+
+The entire world is capable of seeing the egomania of Reddit users, Twitter users, Hollywood films. Reality TV star, sports stars, Taylor Swift stars, etc. This is on WE THE PEOPLE for not standing up seriously to Reddit invasion by the Internet Research Agency since March 2013. LOL at Ukraine topic, LOL "nothingburger" at Russia. For fuck's sake, nobody can even bother on Reddit to repeat one god-damn link during the pandemic. August 24, 2018 https://www.bbc.com/news/world-us-canada-45294192
