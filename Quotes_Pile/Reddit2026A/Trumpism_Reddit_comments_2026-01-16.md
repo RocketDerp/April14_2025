@@ -1280,3 +1280,11 @@ September 9 2014, 3:42 PM ET
 “If previous authoritarian regimes were three parts violence and one part propaganda,” argues Igor Yakovenko, a professor of journalism at the Moscow State Institute of International Relations, “this one is **virtually all propaganda and relatively little violence**. Putin only needs to make a few arrests—and then amplify the message through his total control of television.”
 
 Translated from 2013 Russia to USA 2025: I.C.E. raids are very little violence and a lot of showboating. A lot of Reddit front-page I.C.E. raids for visual meme addicts / meme consumers. Simple-think logic polarity minds. The audience has no recognition that Kremlin and White House has the Reddit total control of media amplifiers. Reddit is amplifying media from all over the Internet. [Eating the onions](../Reddit2025A/Surkovian_Onion_Eating.md) that Trump and Musk is dementia stupid dumb idiot, Reddit society unable to engage and comprehend and understand off-Reddit... September 9, 2014: https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/Music/comments/1qj9ee7/nicki_minaj_admits_she_came_to_us_as_illegal/o0x8dr9/
+
+Did Reddit commenting crowds go to the school of always avoiding nonfiction serious organizing? How fucking long do you have to comment about Donald Trump before you start recognizing the entire society is mind-fucked? Hive mind problems? https://www.youtube.com/watch?v=09maaUaRT4M&t=743s "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL"
+
+https://old.reddit.com/r/Music/comments/1qj9ee7/nicki_minaj_admits_she_came_to_us_as_illegal/o0x90x3/
+
+https://old.reddit.com/r/Music/comments/1qj9ee7/nicki_minaj_admits_she_came_to_us_as_illegal/o0xbif4/
