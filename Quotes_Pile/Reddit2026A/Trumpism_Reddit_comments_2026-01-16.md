@@ -1264,3 +1264,4 @@ https://old.reddit.com/r/worldnews/comments/1qj7rdk/trump_says_he_reached_greenl
 
 https://old.reddit.com/r/worldnews/comments/1qj7rdk/trump_says_he_reached_greenland_deal_framework/o0wzsa3/
 
+https://old.reddit.com/r/law/comments/1qj8dff/sen_john_fetterman_dpa_breaks_ranks_with/o0x0lts/
