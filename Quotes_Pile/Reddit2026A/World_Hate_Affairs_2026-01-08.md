@@ -2118,3 +2118,17 @@ Gullible. Believes it is accidental that chaos machine is put on the world stage
 Reddit is so full of **Trump fandom messaging**. Everything is baby-talk and join in with Trump's style of total mockery media environment of Truth Social mocking platform. **Compulsive behavior** of meme addiction. A population of touch-device addicts who can't resist following the Trump leadership, cult of Trump content and language. Media cult.
 
 * “When a population becomes distracted by trivia, when cultural life is redefined as a perpetual round of entertainments, when **serious public conversation becomes a form of baby-talk**, when, in short, a people become an audience, and their public business a vaudeville act, then a nation finds itself at risk” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business
+
+https://old.reddit.com/r/worldnews/comments/1qiyy04/trump_at_davos_demands_immediate_talks_on/o0uwona/
+
+"reality", "NATO"
+
+https://old.reddit.com/r/worldnews/comments/1qiyy04/trump_at_davos_demands_immediate_talks_on/o0uxyoh/
+
+"madman"
+
+https://old.reddit.com/r/worldnews/comments/1qiyy04/trump_at_davos_demands_immediate_talks_on/o0uxarz/
+
+Meme addictions mindsets on Reddit. ANYTHING but turn to nonfiction learning. [Ignorance celebrating commenting media creation](https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Carl_Sagan_Quotes.md) on Reddit.
+
+* "Everything we're told by journalists and ***politicians** is **confusing and contradictory**. Of course, there is no Mr. Surkov in charge, but it is an odd, non-linear world that plays into the hands of those in power." - BBC News; [New Years Eve 2014, December 31](https://www.RealClearPolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html). Adam Curtis
