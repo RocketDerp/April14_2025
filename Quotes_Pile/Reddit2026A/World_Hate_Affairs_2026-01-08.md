@@ -2243,7 +2243,7 @@ Shunning, block-happy, book-burning, silencing others with egoism / egomania. Ha
 
 https://old.reddit.com/r/MurderedByWords/comments/1qj8a3d/he_is_and_its_not_just_europe_its_the_whole_world/o0x0rx6/
 
-Putin is the "Daddy" that has exploited Reddit audiences. Cloud computing Sky Daddy in the meme clouds. Fiction addictions run USA. The issue isn't one man, the issue is why educated Reddit end-users with free time and spare time to comment day in and day out FOR OVER TEN YEARS AND SEVEN MONTHS... are so fucking avoidant of the nonfiction section of the public library? Why are their minds blown into chuckle, LOL, states constantly? Cambridge Analytica and Internet Research Agency (IRA) are the only answers that make sense why the massive behavior changes to mock nonfiction learning since yer 2014.
+Putin is the "Daddy" that has exploited Reddit audiences. Cloud computing Sky Daddy in the meme clouds. Fiction addictions run USA. The issue isn't one man, the issue is why educated Reddit end-users with free time and spare time to comment day in and day out FOR OVER TEN YEARS AND SEVEN MONTHS... are so fucking avoidant of the nonfiction section of the public library? Why are their minds blown into chuckle, LOL, states constantly? Cambridge Analytica and Internet Research Agency (IRA) are the only answers that make sense why the massive behavior changes to mock nonfiction learning since year 2014.
 
 There is a whole chapter on "Daddy" issues.
 
