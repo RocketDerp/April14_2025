@@ -1041,6 +1041,8 @@ There is no escape from the fandom of Trump and the widespread shit prizing. Eve
 
 Always more bullshit, always more turd desires. I can't sleep. This is no way to live. Monster state of horror film addicts that will not wake up from this living nightmare. https://github.com/RocketDerp/April14_2025/blob/main/Grim_Blunt/Society_of_grading_and_ranking_turds.md
 
+
+
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1qin02w/air_force_one_which_was_carrying_trump_to_davos/o0slhyv/
 
 The replies to this message, the thread, is full of denial of how much Putin ad Trump are running circles around Reddit audience. Why isn't Reddit staging a social media uprising? Why is Jen Senko and Dr. Bandy X Lee's name not plastered on every comment? When does the addiction to mocking one man over and over and over and over ever end? Is 3,872 days days of ever-expanding bullshit not enough for these meme addicts using all their free time / spare time swimming in Trump MAGA bullshit never enough?
@@ -1048,3 +1050,9 @@ The replies to this message, the thread, is full of denial of how much Putin ad 
 Is it because Dr. Bandy X Lee is a woman? Jen Senko is a woman? The Kampala Harris and Hillary Clinton programming the Russians put into minds via social networks? Can nobody see the banality of the turd commenting all over Reddit? The Twitter-think logic mindsets?
 
 
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qin02w/air_force_one_which_was_carrying_trump_to_davos/o0sop31/
+
+<img width="927" height="623" alt="image" src="https://github.com/user-attachments/assets/5c6d0244-7733-4ae7-918b-a19a9fe52928" />
+
+"how cringe the whole regime is" - I even created a subreddit on the topic. Cringe audience of meme addicts, meme nation Trumpland USA. Friday, March 28, 2025 https://old.reddit.com/r/CringeNation
