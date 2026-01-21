@@ -6,7 +6,7 @@ wiki_host.gpr
 
 ```ada
 with "aws";
-with "ada_wiki";
+with "wikiada"; -- Changed from ada_wiki
 
 project Wiki_Host is
    for Main use ("main.adb");
