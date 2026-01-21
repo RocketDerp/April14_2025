@@ -2276,3 +2276,10 @@ Nobody remembers anything. So much mind-blowing Trump memes and images of Trump.
 
 * “For in the end, he was trying to tell us what afflicted the people in 'Brave New World' was not that they were laughing instead of thinking, but that they did not know what they were laughing about and why they had stopped thinking.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. Year 1985.
  
+https://old.reddit.com/r/politics/comments/1qj7f5m/trump_says_sometimes_you_need_a_dictator_after/o0x5u25/
+
+Why isn't Reddit commenting community creating an uprising? Every 4 hours, post Dr. Bandy X Lee's name. Instead, people LOL and meme and satire-wash and mock away at how hilarious Trump is. Anything to avoid nonfiction learning.
+
+https://old.reddit.com/r/politics/comments/1qj7f5m/trump_says_sometimes_you_need_a_dictator_after/o0wuk0t/
+
+Standing up to the crowd for minor issues. Script notes to the Reality TV / antics commenting section. No call to end the show, just rewrite some of the screenplay.
