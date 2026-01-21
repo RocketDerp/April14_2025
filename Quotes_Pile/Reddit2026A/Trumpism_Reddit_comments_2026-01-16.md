@@ -1066,3 +1066,7 @@ What I put on the sidebar as description of the subreddit:
 Leadership of Nations by using Cringe behaviors. Exploiting the minds of the audience, the citizens of nations, with cringe antics. Using cringe as a method of control and exploitation against a population.
 
 .... see also: /r/CounterSurkov "Counter Vlad Surkov methods"
+
+&nbsp;
+
+Social post { https://autistics.life/@RoundSparrow/115933005593901008 https://bsky.app/profile/roundsparrow.bsky.social/post/3mcwn5ji5is2o }
