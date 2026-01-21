@@ -1255,3 +1255,12 @@ Gun worship USA. Military device / weapon system devices. Instead of dealing wit
 * "While Chun points to the Internet’s potential for fostering the seeds of nationalist propaganda, Persily asks, “Can Democracy survive the Internet?” in the very title of his recent paper. By analyzing the 2016 digital campaign for U.S. president, he orients us to what today’s **Internet amplifies: social media retweets, false news shares, bot-driven articles, and troll-inspired critiques that reflect and stir reactivity rather than disseminate the truth**: “What the Internet uniquely privileges above all else is the type of campaign message that **appeals to outrage or otherwise grabs attention. The politics of never-ending spectacles** cannot be healthy for a democracy. Nor can a porousness to outside influences that undercuts the sovereignty of a nation’s elections. Democracy depends on both the ability and the will of voters to base their political judgments on facts.” ― Dr. Bandy X Lee, The Dangerous Case of Donald Trump: 27 Psychiatrists and Mental Health Experts Assess a President. Published **October 3, 2017**. Chapter: "Trauma, Time, Truth, and Trump: How a President Freezes Healing and Promotes Crisis" written by Betty P. Teng, M.F.A., L.M.S.W
 
 https://old.reddit.com/r/minnesota/comments/1qja5j9/heavy_green_gas_permeates_a_minnesota/o0xhv6x/
+
+https://old.reddit.com/r/worldnews/comments/1qj7rdk/trump_says_he_reached_greenland_deal_framework/o0wuvxy/
+
+https://old.reddit.com/r/worldnews/comments/1qj7rdk/trump_says_he_reached_greenland_deal_framework/o0wvfy2/
+
+https://old.reddit.com/r/worldnews/comments/1qj7rdk/trump_says_he_reached_greenland_deal_framework/o0x662a/
+
+https://old.reddit.com/r/worldnews/comments/1qj7rdk/trump_says_he_reached_greenland_deal_framework/o0wzsa3/
+
