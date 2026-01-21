@@ -2079,3 +2079,13 @@ I contacted the Pentagon in 2015. Samantha. **Monday, August 17, 2015** afternoo
 > "I'd been down voted to hell and a bunch of comments calling me absolutely nuts"
 
 Monday, August 17, 2015 was when I was sick of being called nuts on Reddit and realized information warfare (IRA since March 2013) had mind-fucked the meme addict population. That was 10 years ago.
+
+https://old.reddit.com/r/worldnews/comments/1qisodn/denmark_deploys_f35a_stealth_fighters_over/o0tudd0/
+
+"reality now"
+
+Published to public World Wide Web on September 9, 2014 - which is more than 10 years ago, more than a decade - we could have kept repeating it and defeated Putin's takeover of USA hearts and minds: https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ "Russia and the **Menace of Unreality: How Vladimir Putin is revolutionizing information warfare**. By Peter Pomerantsev"; "At the NATO summit in Wales last week, General Philip Breedlove, the military alliance’s top commander, made a bold declaration. Russia, he said, is waging “the most amazing information warfare blitzkrieg we have ever seen in the history of information warfare.” It was something of an underestimation."
+
+Yes, it was a massive underestimation by NATO.
+
+* "The 2014 NATO Summit in Wales was a two-day meeting held from **4–5 September 2014, primarily at the Celtic** Manor Resort in Newport, with related events in Cardiff. Occurring at a critical time in the Alliance’s history, the summit focused on the response to Russia's annexation of Crimea, the drawdown of the combat mission in Afghanistan, and the strengthening of collective defense. General Philip M. Breedlove, as NATO’s Supreme Allied Commander Europe (SACEUR), played a central role" - Google Search summary 2026-01-21 morning USA
