@@ -2283,3 +2283,5 @@ Why isn't Reddit commenting community creating an uprising? Every 4 hours, post 
 https://old.reddit.com/r/politics/comments/1qj7f5m/trump_says_sometimes_you_need_a_dictator_after/o0wuk0t/
 
 Standing up to the crowd for minor issues. Script notes to the Reality TV / antics commenting section. No call to end the show, just rewrite some of the screenplay.
+
+https://old.reddit.com/r/politics/comments/1qj7f5m/trump_says_sometimes_you_need_a_dictator_after/o0wy9y5/
