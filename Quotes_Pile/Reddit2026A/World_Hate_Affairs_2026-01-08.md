@@ -2015,3 +2015,10 @@ https://old.reddit.com/r/UnderReportedNews/comments/1qigjid/thousands_rally_in_g
 2 month Reddit account. "Moscow", "Putin", "Russia". No off-Reddit links. No mention of Reddit being invaded by the Internet Research Agency: April 11, 2018 https://www.FastCompany.com/40557479/reddit-has-named-944-banned-russian-propaganda-accounts
 
 Do people think in 2026 under Trump, that Reddit is even ALLOWED to admit this in January 2026? Under the Trump White House?
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qigjid/thousands_rally_in_greenlands_capital_chanting/o0rc0i8/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qigjid/thousands_rally_in_greenlands_capital_chanting/o0rczuv/
+
+2 month Reddit account. "Putin", "Moscow", Twitter-length. No off-Reddit URL. No nonfiction book quotes.
+
