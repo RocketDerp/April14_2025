@@ -14,7 +14,7 @@ James Joyce ARG
 Which fiction metaphors did they die for?  
 
 Seams / Lines / Gaps / Continental Divides / Oceans in-between   
-Rivers that care through the lands, even in the dry areas of the Grand Canyon    
+Rivers that carve through the lands, even in the dry areas of the Grand Canyon    
 
 * "James Joyce frequently used the River Liffey as a powerful, flowing symbol of Dublin and life itself, describing it in Ulysses as carrying bodies, dreams, and history, famously portraying it as a womb and a path, like when Bloom imagines his body buoyant and cleansed in its waters or when characters navigate its currents past city landmarks, symbolizing personal journeys and the city's soul." - Google Search 2026-01-21 morning USA
 
