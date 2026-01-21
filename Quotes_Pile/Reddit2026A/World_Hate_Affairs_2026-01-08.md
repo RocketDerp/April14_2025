@@ -2022,3 +2022,16 @@ https://old.reddit.com/r/UnderReportedNews/comments/1qigjid/thousands_rally_in_g
 
 2 month Reddit account. "Putin", "Moscow", Twitter-length. No off-Reddit URL. No nonfiction book quotes.
 
+https://old.reddit.com/r/politics/comments/1qi8a2r/trump_shared_a_post_on_truth_social_claiming_that/o0pjlmg/
+
+https://old.reddit.com/r/politics/comments/1qi8a2r/trump_shared_a_post_on_truth_social_claiming_that/o0plub5/
+
+https://old.reddit.com/r/politics/comments/1qi8a2r/trump_shared_a_post_on_truth_social_claiming_that/o0phvpo/
+
+https://old.reddit.com/r/politics/comments/1qi8a2r/trump_shared_a_post_on_truth_social_claiming_that/o0q2mrx/
+
+https://old.reddit.com/r/politics/comments/1qi8a2r/trump_shared_a_post_on_truth_social_claiming_that/o0pkdb7/
+
+https://old.reddit.com/r/politics/comments/1qi8a2r/trump_shared_a_post_on_truth_social_claiming_that/o0pisv9/
+
+2 week old Reddit account.
