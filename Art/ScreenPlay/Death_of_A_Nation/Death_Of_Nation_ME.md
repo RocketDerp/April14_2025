@@ -1,6 +1,6 @@
 # Death Of Nation: ME
 
-Everything is M. E. ... Everything is *Media Ecology*
+Everything is M. E. ... [Everything is *Media Ecology*](/Media_Ecology/Everything_is_ME.md)
 
 "The Birth of a Nation (1915) was a technical masterpiece that revolutionized filmmaking with innovations such as close-ups, night photography, and tracking shots. It pioneered new storytelling techniques like crosscutting between scenes, using panoramic long shots, and creating elaborate battle sequences with many extras to create a sense of epic scale. The film's success also established the feature-length film as a new art form and helped establish a new system of distribution and advertising for movies." - Google A. I. 2025-11-21
 
