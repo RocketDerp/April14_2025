@@ -1108,3 +1108,9 @@ Nonfiction serious isn't selling. The billionaires from Moscow have done their j
 OPERA_A Puppet Strings metaphors Repeat Repeating Track. + 173 seconds https://www.youtube.com/watch?v=cfm4L0TGDrw&t=173s 346,123 views April 16, 2020 ... ["the “orthodox” oligarchs who sing hymns to Russian religious conservatism”](https://smus.com/books/nothing-is-true-and-everything-is-possible/) ― Peter Pomerantsev, Nothing Is True and Everything Is Possible: The Surreal Heart of the New Russia. Year 2014.
 
 OPERA_A Double album. Better a song and video than the real thing, eh? Expose what Surkov monomyth has unleashed. August 24, 2018 not forgotten... https://youtu.be/VWc7NCP7mvQ  ... "It’s a strategy of power based on keeping any opposition there may be **constantly confused, a ceaseless shape-shifting that is unstoppable because it’s indefinable**. This fusion of despotism and postmodernism, in which no truth is certain, is reflected in the craze among the Russian elite for **neuro-linguistic programming**" - October 20, 2011
+
+https://old.reddit.com/r/politics/comments/1qiuwxw/71_percent_of_americans_say_us_is_out_of_control/o0u709t/
+
+Yes. Many are polling against Trump because they are programmed by Cambridge Analytica and Internet Research Agency to: *hate harder, self-harm harder, wreck Earth harder* values. Sports-think rectangle "squares" (Charlie Brown "Block-head", "A Square")....
+
+OPERA_A Go back to class, adult education, *you can pass*. With GOODNESS, there is no danger if we go too far! https://www.youtube.com/watch?v=XA-xjRsY71w ... grease those square mindsets! 10,066,819 views July 16, 2013 - we throw away conventionality... it belongs to *yesterday*! There is a *chance*!
