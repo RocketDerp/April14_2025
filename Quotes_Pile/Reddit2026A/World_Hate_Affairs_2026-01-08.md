@@ -2212,3 +2212,31 @@ More diaper fetish messages from Reddit Putin and Trump fandom. Old white men. S
 https://old.reddit.com/r/worldnews/comments/1qj428n/trump_threatens_canada_after_carney_draws/o0w2kcw/
 
 ANSWER: what happened was "Operation Matthew 4:19" - the biggest organized trolling of meme addicts in all human history! Far beyond Biblical scale. Year 2012 onward: https://github.com/RocketDerp/April14_2025/blob/main/Operation_Matthew_4_19_on_monday_2024-03-31.md Surkov won since March 2013.
+
+https://old.reddit.com/r/worldnews/comments/1qj428n/trump_threatens_canada_after_carney_draws/o0w9lg0/
+
+Such ignorance. No off-Reddit URL. Putin and Trump have been **winning** since their November 2012 plan. People will not admit the most well known facts. Trump was a professional actor, TV star, "The Apprentice". He is acting, and the gullible audience of USA has been eating it up FOR OVER TEN YEARS AND SEVEN MONTHS! People are so mind-blown by President Tony Clifton style acting that they think this just started a month or two ago. People don't even remember Trump's first term in office back at the start of year 2017 before the pandemic!
+
+From September 9, 2014 - which is more than 10 years ago, more than a decade - we could have kept repeating it and defeated Putin's takeover of USA hearts and minds: https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ "Russia and the Menace of Unreality: How Vladimir Putin is revolutionizing information warfare. By Peter Pomerantsev"
+
+https://old.reddit.com/r/worldnews/comments/1qj428n/trump_threatens_canada_after_carney_draws/o0wbbnd/
+
+Yes, all people do is meme all day that it's only 30%. It never should have been more than 5% of people who believe an actor of fiction is not acting. Reality TV is scripted. Surkov won.
+
+https://old.reddit.com/r/worldnews/comments/1qj428n/trump_threatens_canada_after_carney_draws/o0w7j25/
+
+https://old.reddit.com/r/worldnews/comments/1qj428n/trump_threatens_canada_after_carney_draws/o0w7u6z/
+
+Reddit addicts need to stop following Trump's hate signals.
+
+https://old.reddit.com/r/worldnews/comments/1qj428n/trump_threatens_canada_after_carney_draws/o0w3mhs/
+
+https://old.reddit.com/r/worldnews/comments/1qj428n/trump_threatens_canada_after_carney_draws/o0w7npv/
+
+LOL. "laughing". Eating right out of the hands of Russia's Internet Research Agency mental programming. Mocking away, laughing, giggles. Reddit media addicts mocking away at out-group after out-group. One complete social web owned by Surkov students for so many years I can't even count any more. See: https://old.reddit.com/r/WhiteHouseSurkovMedia April 29, 2019 - before the pandemic. See: https://old.reddit.com/r/QAnonRussia July 28, 2021 - to try and show the build-up to pandemic with Russian mind-fuck dating back to year 2014 evidence by Johns Hopkins University.
+
+* “For in the end, he was trying to tell us what **afflicted the people** in 'Brave New World' was not that they were laughing instead of thinking, but that they did not know what they were laughing about and why they had stopped thinking.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, year 1985.
+
+https://old.reddit.com/r/law/comments/1qj4bne/crockett_you_only_love_enforcement_when_theyre/o0w4wm1/
+
+Shunning, block-happy, book-burning, silencing others with egoism / egomania. Hate affairs.
