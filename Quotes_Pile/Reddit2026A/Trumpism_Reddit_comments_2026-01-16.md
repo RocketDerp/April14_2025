@@ -1161,3 +1161,11 @@ https://old.reddit.com/r/politics/comments/1qj2eja/trump_embarrasses_all_of_amer
 We The People eat the LOL LOL every time. Not a one can imagine on Reddit that { Kremlin, Putin, Surkovian, Russian } **information warfare** is about turning Trump into President Tony Clifton! People comment how extremely funny is, get their mind blown in to comedy stupor, and are so addled by their meme consumption that they can't read nonfiction serious book!
 
 * **non-fiction book on paper, off-Reddit*... “Everything in our background has prepared us to know and resist a prison when the gates begin to close around us . . . But what if there are no cries of anguish to be heard? Who is prepared to take arms **against a sea of amusements**? To whom do we complain, and when, and in what tone of voice, when serious discourse dissolves into giggles? What is the antidote to a culture's being drained by laughter?” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, year 1985
+
+
+
+https://old.reddit.com/r/politics/comments/1qj2eja/trump_embarrasses_all_of_america_in_slurred/o0vq4wa/
+
+What's even *more sad* is how Reddit users on /r/Politics subreddit can't find a nonfiction book from Dr. Bandy X Lee since October 3, 2017 and stay focused on it and call for a social media following / mass leadership but nonfiction teachings!
+
+* “One of the saddest lessons of history is this: If we’ve been bamboozled long enough, we tend to **reject any evidence of the bamboozle**. We’re no longer interested in finding out the truth. The bamboozle has captured us. It’s simply too painful to acknowledge, even to ourselves, that we’ve been taken. Once you give a charlatan power over you, you almost never get it back. So the old bamboozles tend to persist as the new ones rise.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, **1995**, page 241
