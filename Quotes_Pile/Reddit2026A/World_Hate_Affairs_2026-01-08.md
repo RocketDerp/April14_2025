@@ -2159,4 +2159,10 @@ https://old.reddit.com/r/minnesota/comments/1qj02xv/trump_in_front_of_world_lead
 
 ANSWER: What you on Reddit have been doing: celebrating ignorance as defined by Carl Sagan in his 1995 book. Sucking down dumb-memes, and it shows. We The People dumbing down with sound-bite media junk. https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Carl_Sagan_Quotes.md#celebration-of-ignorance
 
+https://old.reddit.com/r/minnesota/comments/1qj02xv/trump_in_front_of_world_leaders_decides_to_attack/o0v67p4/
 
+"cringe".
+
+Glued audience comes for cringe every day since June 16, 2015. Bloomsday in tears :(
+
+OPERA_A James Joyce is getting put down, unread. https://youtu.be/L0bqmIBczJI?t=96
