@@ -2320,3 +2320,12 @@ https://old.reddit.com/r/europe/comments/1qja6ag/the_american_president_steps_ba
 
 https://old.reddit.com/r/europe/comments/1qja6ag/the_american_president_steps_back_from_the_brink/o0y62hi/
 
+https://old.reddit.com/r/europe/comments/1qja6ag/the_american_president_steps_back_from_the_brink/o0xg765/
+
+https://old.reddit.com/r/europe/comments/1qja6ag/the_american_president_steps_back_from_the_brink/o0xl6lg/
+
+Downplaying Trump as just normal antics. Denial abounds.
+
+https://old.reddit.com/r/europe/comments/1qja6ag/the_american_president_steps_back_from_the_brink/o0xqpo0/
+
+People on Reddit, "here", will make dumb commenting on ANY posting. The obsession is not reading off-Reddit, the obsession of Reddit is commenting low-effort shit-commenting. People on Reddit commenting sections are obsessed with anti-learning, anti-understanding; memes dominate over actual comprehension.
