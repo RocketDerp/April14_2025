@@ -2136,3 +2136,7 @@ Meme addictions mindsets on Reddit. ANYTHING but turn to nonfiction learning. [I
 https://old.reddit.com/r/worldnews/comments/1qiyy04/trump_at_davos_demands_immediate_talks_on/o0uxnos/
 
 Yes. The endless joke-washing of Reddit community. The flocking to Trump across media networks. It is fucking exhausting, machine tech lovers who will not turn to Dr. Bandy X Lee's nonfiction paper-printed book from October 3, 2017. The meme addictions are disgusting and world-wrecking.
+
+https://old.reddit.com/r/worldnews/comments/1qiyy04/trump_at_davos_demands_immediate_talks_on/o0uz5e9/
+
+"cringe" - exactly what Reddit audiences come to Reddit platform for. To mock and insult cringe. It is the ideal of Reddit content to find non-conforming people and mock away at images of cringe. Reddit is a egoism filter-bubble narrow-minded anti-diversity training camp for bullying cringe behaviors. Don't step out of the Reddit hive mind popularity since March month of year 2013. https://old.reddit.com/r/CringeNation March 28, 2025 I created this to explain the organized cringe mindset exploitation by Surkov students. Reddit hive minded individuals eat it up.
