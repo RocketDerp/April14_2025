@@ -1971,3 +1971,34 @@ https://old.reddit.com/r/politics/comments/1qie55s/trump_79_kicks_off_press_conf
 
 "How is this nightmare real?" - We The People react-commenting on every available media platform to every press conference of Donald Trump. CONSTANTLY AVOIDING: Jen Senko, Dr. Bandy X Lee and other nonfiction sources to REMOVE Trump. Social media pages are full of people spreading hate and mocking away at other people. "Engagement" of mocking in a total mockery lead by Donald Trump. Why is every social media user not posting Dr. Bandy X Lee's Bluesky account and book from October 3, 2017?
 
+https://old.reddit.com/r/politics/comments/1qie55s/trump_79_kicks_off_press_conference_by_reading/o0r1q8c/
+
+Twitter-like low-effort commenting. Why can nobody quote a fucking nonfiction book about serious topics? The Recency bias on Reddit is so horrific people behave like this just started. A book published by Dr. Bandy X Lee way back in October 3, 2017 has tons of public quotes. Nearly 150 quote from the year 2017 book: https://www.goodReads.com/author/quotes/16953723.Bandy_X_Lee
+
+https://old.reddit.com/r/politics/comments/1qie55s/trump_79_kicks_off_press_conference_by_reading/o0r9gn8/
+
+"mentally deranged".  These comments are like they are talking about a horror film / weekend slasher film. TV audience talking about a TV star. Completely detached Reddit audience from nonfiction learning. The Recency bias on Reddit is so horrific people behave like this just started. A book published by Dr. Bandy X Lee way back in October 3, 2017 has tons of public quotes. Nearly 150 quote from the **year 2017 book**: https://www.goodReads.com/author/quotes/16953723.Bandy_X_Lee
+
+https://old.reddit.com/r/politics/comments/1qie55s/trump_79_kicks_off_press_conference_by_reading/o0r5jtf/
+
+It is sickening that an entire nation of *We The People* can't be bothered to go on social media and quote a researched and professional written book. EVERY DAY, people are sickening society by their attraction to fiction garbage, like Trump fantasy storytelling. Every area of society is showing signs of avoiding nonfiction and serious learning. The addiction to Trump content is the most sickening experience I have ever lived in. And I fucking lived in the Middle East for years! And it did not prepare me for the attitudes and behaviors of Trump cults since June 16, 2015. IT NEVER ENDS!!! The cults of ignorance. The cults that are driven to Trump and adopt Trump anti-nonfiction behaviors!
+
+https://old.reddit.com/r/politics/comments/1qie55s/trump_79_kicks_off_press_conference_by_reading/o0qpo1o/
+
+YES. this is *as usual* for Trump for decades. This is President Tony Clifton acting. This is **Surkov governing** technique / media techniques of Vlad Surkov at the Kremlin year 2009 methods. People have not studied NYC (Trump home town) SNL Andy Kaufman and do not grasp this is performance art. Trump is an actor who is acting, and the audience of Reddit lines up for his every show day in and day out FOR OVER TEN YEARS AND SEVEN MONTHS!!!
+
+https://old.reddit.com/r/politics/comments/1qie55s/trump_79_kicks_off_press_conference_by_reading/o0r2muq/
+
+I can't imagine people using Reddit, which allows 4 pages per comment, to make one-line comments day in and day out FOR TEN YEARS AND SEVEN MONTHS about one single actor doing a Tony Clifton show. It's sickening what people want to want for trash content. "The Truman Show" of an audience all glued to every action of one single performer. Surkov won.
+
+https://old.reddit.com/r/politics/comments/1qie55s/trump_79_kicks_off_press_conference_by_reading/o0rdybt/
+
+3 month Reddit account.
+
+https://old.reddit.com/r/politics/comments/1qie55s/trump_79_kicks_off_press_conference_by_reading/o0rdycc/
+
+<img width="1073" height="935" alt="image" src="https://github.com/user-attachments/assets/3a58b72d-9f50-4d24-9280-61e953f3a99e" />
+
+AFTER TEN YEARS AND SEVEN MONTHS, Reddit **snark addict claims they are going sober** to mocking and joking and joke-washing Trump. "This isn't a snarky talking point anymore." - my fucking god man, the recency bias and denial. None of these Reddit users can remember year 2017. A book published by Dr. Bandy X Lee way back in October 3, 2017 has tons of public quotes. Nearly 150 quote from the **year 2017 book**: https://www.goodReads.com/author/quotes/16953723.Bandy_X_Lee
+
+Social post ( https://autistics.life/@RoundSparrow/115930197815470580 https://bsky.app/profile/roundsparrow.bsky.social/post/3mcvf7z7srs2s }
