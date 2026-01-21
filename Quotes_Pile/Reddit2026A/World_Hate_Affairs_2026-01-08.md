@@ -2315,3 +2315,8 @@ https://old.reddit.com/r/europe/comments/1qja6ag/the_american_president_steps_ba
 Acting. President Tony Clifton performance. The White House and Kremlin are following Surkov screenplays! They are flipping tables of reality over and over and audiences on Reddit eat it up. A bunch of "The Onion" eaters who can'f fucking name Surkov! https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Reddit2025A/Surkovian_Onion_Eating.md I also created a subreddit to teach this mob mentality of Reddit. People who are attracted to mock over and over as Trump says "51st state"... mental manipulation. Predictable audience reactions. August 17, 2025 https://old.reddit.com/r/TrumpOnionFans
 
 Entertainment addictions, entertainment mindsets, comedy mindsets have exceeded toxic levels.
+
+https://old.reddit.com/r/europe/comments/1qja6ag/the_american_president_steps_back_from_the_brink/o0y06gm/
+
+https://old.reddit.com/r/europe/comments/1qja6ag/the_american_president_steps_back_from_the_brink/o0y62hi/
+
