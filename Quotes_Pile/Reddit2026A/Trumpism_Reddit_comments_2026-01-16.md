@@ -951,3 +951,8 @@ https://old.reddit.com/r/therewasanattempt/comments/1qiaagk/to_know_where_ones_h
 Every gesture, every utterance, every outing, every posting by Donald Trump and the fandom flocks to fan venues.
 
 https://old.reddit.com/r/LeopardsAteMyFace/comments/1qijwbj/two_meals_one_victim/o0rx2q0/
+
+https://old.reddit.com/r/politics/comments/1qi8a2r/trump_shared_a_post_on_truth_social_claiming_that/o0pfyym/
+
+Media addiction to Trump content abounds.
+
