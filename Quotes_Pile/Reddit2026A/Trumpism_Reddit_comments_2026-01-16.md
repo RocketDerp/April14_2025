@@ -1023,7 +1023,7 @@ I also considered Ronald Reagan to be a rather good public speaker. Where with T
 I find the population behavior sickening. The attitudes, values, concerns, interest of the Reddit audience is gross, sick, mentally unwell, brain damaging. To be attracted to every move and shake, every airplane flight or golf outing of one single man - over and over and over since June 16, 2015. NEVER ENOUGH for the shit-lording shit-craving audience. Every area of USA life has worsened. Housing is worse, food is worse, health care is worse, information systems are full f bullshit and falsehoods. Why id Dr. Bandy X. Lee's leadership ignored? Why would ANYONE at ANY AGE desire to live under constant bulletining and bullshit? Dr. Bandy X Lee's nonfiction book was published back on October 3, 2017 - why oh why do people not stand up and say "NO MORE BULLSHIT"? There was a film called "The Network" where people famously fallowed a bold leader and got out their living rooms and screamed "NOT GOING TO TAKE IT ANYMORE"
 
 
-OPERA_A https://www.youtube.com/watch?v=D-VF24H4Xrc 30,347 views May 9, 2025
+OPERA_A https://www.YouTube.com/watch?v=D-VF24H4Xrc 30,347 views May 9, 2025 "Network | I'm Mad as Hell | Full Scene | Warner Classics"
 
 
 Where I live in the OPPOSITE. Every day people go into public Reddit social media and BEG FOR MORE TRUMP! They discuss diapers and poop constantly and all the shitty ideas and policies. Nobody says: "Let's organized, stand up, and cite Dr. Bandy X. Lee's book and teach cult deprogramming for hundreds of books at the public library". So much bullshit, so much garbage trash desires people have in their hearts and minds. Cravings for more and more shit!!
