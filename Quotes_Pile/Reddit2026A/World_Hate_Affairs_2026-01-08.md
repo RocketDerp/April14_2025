@@ -2299,3 +2299,7 @@ https://old.reddit.com/r/europe/comments/1qja6ag/the_american_president_steps_ba
 Trump is an actor. Trump is acting. That's what he has done since the 1980's. Trump is attracted to cameras, light, stage, film, television, *media, media, media, Reddit media, Truth Social media*. He got world wide coverage for **Antics Politics**. Fucking Reddit audience will do ANYTHING but face their own addiction to IRA mind-fucking. Surkov won since March 2013, via Reddit.
 
 Having to be immersed in non-stop fiction addicts, many who spread and smear anti-intellectual LOL shit about Trump, addiction to "orange skin" and "poop diapers" of Trump.. brain damaging all the time, every fucking day! The anti-goodness prizing of shit! Neil Postman's 1985 book describes social media Hell society that thinks Trump is amusing entertainment! Meme addict society.  September 10, 2025 https://Time.com/7313999/neil-postman-trump-prediction/
+
+https://old.reddit.com/r/europe/comments/1qja6ag/the_american_president_steps_back_from_the_brink/o0xfkdz/
+
+My fucking god, it is so sickening reading people comment after comment and avoid nonfiction public library organized information.
