@@ -2240,3 +2240,12 @@ LOL. "laughing". Eating right out of the hands of Russia's Internet Research Age
 https://old.reddit.com/r/law/comments/1qj4bne/crockett_you_only_love_enforcement_when_theyre/o0w4wm1/
 
 Shunning, block-happy, book-burning, silencing others with egoism / egomania. Hate affairs.
+
+https://old.reddit.com/r/MurderedByWords/comments/1qj8a3d/he_is_and_its_not_just_europe_its_the_whole_world/o0x0rx6/
+
+Putin is the "Daddy" that has exploited Reddit audiences. Cloud computing Sky Daddy in the meme clouds. Fiction addictions run USA. The issue isn't one man, the issue is why educated Reddit end-users with free time and spare time to comment day in and day out FOR OVER TEN YEARS AND SEVEN MONTHS... are so fucking avoidant of the nonfiction section of the public library? Why are their minds blown into chuckle, LOL, states constantly? Cambridge Analytica and Internet Research Agency (IRA) are the only answers that make sense why the massive behavior changes to mock nonfiction learning since yer 2014.
+
+There is a whole chapter on "Daddy" issues.
+
+* “The human brain can protect us from seeing and feeling what it believes may be too uncomfortable for us to tolerate. It can lead us to deny, defend, minimize, or rationalize away something that doesn’t fit our worldview.”
+― Dr. Bandy X Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. Published **October 3, 2017**. Page 273. Chapter "TRUMP'S DADDY ISSUES"](https://books.google.com/books?id=g0c4DwAAQBAJ&pg=PA273&dq=%E2%80%9CThe+human+brain+can+protect+us+from+seeing+and+feeling+what+it+believes+may+be+too+uncomfortable%22&hl=en&newbks=1&newbks_redir=1&sa=X)
