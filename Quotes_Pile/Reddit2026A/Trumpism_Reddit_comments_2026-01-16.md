@@ -1058,3 +1058,11 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1qin02w/air_force_one_which
 "how cringe the whole regime is" - I even created a subreddit on the topic. Cringe audience of meme addicts, meme nation Trumpland USA. Friday, March 28, 2025 https://old.reddit.com/r/CringeNation
 
 <img width="2599" height="1487" alt="image" src="https://github.com/user-attachments/assets/7684095c-c9ba-4b2e-81ac-d8703115e5ce" />
+
+What I put on the sidebar as description of the subreddit:
+
+"Ours is the first age in which many thousands of the best-trained individual minds have made it a full-time business to get inside the collective public mind.” ― Marshall McLuhan, The Mechanical Bride : Folklore of Industrial Man, year 1951
+
+Leadership of Nations by using Cringe behaviors. Exploiting the minds of the audience, the citizens of nations, with cringe antics. Using cringe as a method of control and exploitation against a population.
+
+.... see also: /r/CounterSurkov "Counter Vlad Surkov methods"
