@@ -1311,3 +1311,14 @@ https://old.reddit.com/r/ArcRaiders/comments/1qj56kr/hardest_these_mods_have_eve
 https://old.reddit.com/r/ArcRaiders/comments/1qj56kr/hardest_these_mods_have_ever_worked_stuff_isnt/o0wa494/
 
 Following the Donald Trump Truth Social leadership. USA nation of hate.
+
+https://old.reddit.com/r/Anticonsumption/comments/1qj6tlk/fifa_on_alert_after_17000_fans_cancel_world_cup/o0wntvh/
+
+Billionaires exploiting poor people with armies of medical doctors. I worked for a NFL + NBA team owner in Seattle, it's disgusting how everyday people people **worship** billionaire owners. The influence sports tickets have on men.
+
+https://old.reddit.com/r/Anticonsumption/comments/1qj6tlk/fifa_on_alert_after_17000_fans_cancel_world_cup/o0wqbsu/
+
+https://old.reddit.com/r/Anticonsumption/comments/1qj6tlk/fifa_on_alert_after_17000_fans_cancel_world_cup/o0wpldn/
+
+Yes. The most powerful people in the world breed fandoms into rabid mindsets. I was there woring at the Bellevue, Washington HQ. ESPN. https://www.geekwire.com/2015/heres-an-original-mock-up-of-espn-com-that-paul-allen-starwave-helped-create/
+
