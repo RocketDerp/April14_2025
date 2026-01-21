@@ -1194,3 +1194,7 @@ https://old.reddit.com/r/UnderReportedNews/comments/1qj7ls4/mcgovern_on_trump_in
 Posting title: "crazy shit"
 
 When are Reddit users going to turn in their key and stop drowning out serious people (Jen Senko) with trash commenting about Trump { dumb, stupid, idiot, moron, crazy } day in and day out? When is Reddit fandom going to key into Dr. Bandy X Lee as the key to share over and over and over and repeat over and over?
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qj7ls4/mcgovern_on_trump_in_davos_well_he_said_a_lot_of/o0wwtkv/
+
+Trump fandom, fanatics of Trump, asking for more and more years of Trump content! Addicts.
