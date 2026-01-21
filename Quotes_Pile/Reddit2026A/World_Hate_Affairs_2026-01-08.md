@@ -2106,3 +2106,15 @@ https://old.reddit.com/r/worldnews/comments/1qiyy04/trump_at_davos_demands_immed
 Reddit minds blown, *again and again*, daily by Trump content creation. The biggest influencer in human history, by far, and Reddit fandom addicts. The audience on Reddit can not resist flocking to Trump.
 
 * "He offers to not make a speech, instead welcoming the Ph.D. students, professors, journalists, and politicians gathered in an auditorium at the London School of Economics to pose questions and have an open discussion. **After the first question, he talks for almost 45 minutes, leaving hardly any time for questions after all**. It’s his **political system in miniature:** democratic rhetoric and undemocratic intent." - Putinism author. https://www.TheAtlantic.com/international/archive/2014/11/hidden-author-putinism-russia-vladislav-surkov/382489/
+
+https://old.reddit.com/r/worldnews/comments/1qiyy04/trump_at_davos_demands_immediate_talks_on/o0uy29p/
+
+WHY ARE REDDIT MEME ADDICTS COMMENTING ALL ON DIFFERENT PAGES INSTEAD OF { Jen Senko, Dr. Bandy X Lee } following women leaders?
+
+https://old.reddit.com/r/worldnews/comments/1qiyy04/trump_at_davos_demands_immediate_talks_on/o0ux9y2/
+
+Gullible. Believes it is accidental that chaos machine is put on the world stage after practicing for decades how to mind-fuck audiences. Reddit audience will do ANYTHING but study electric media systems.
+
+Reddit is so full of **Trump fandom messaging**. Everything is baby-talk and join in with Trump's style of total mockery media environment of Truth Social mocking platform. **Compulsive behavior** of meme addiction. A population of touch-device addicts who can't resist following the Trump leadership, cult of Trump content and language. Media cult.
+
+* “When a population becomes distracted by trivia, when cultural life is redefined as a perpetual round of entertainments, when **serious public conversation becomes a form of baby-talk**, when, in short, a people become an audience, and their public business a vaudeville act, then a nation finds itself at risk” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business
