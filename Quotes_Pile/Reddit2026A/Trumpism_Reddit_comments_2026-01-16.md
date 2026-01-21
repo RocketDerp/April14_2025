@@ -914,3 +914,8 @@ As an autistic person, the change in online culture in year 2013 was dramatic. S
 
 https://old.reddit.com/r/LoveIsBlindOnNetflix/comments/1qi3sp2/monica_i_will_be_talking_until_i_have_no/o0p8mi1/
 
+https://old.reddit.com/r/worldnews/comments/1qifvu2/macron_on_trump_leaking_their_private_messages_i/o0r9s4z/
+
+Trump fandom are doing *active measures*. People are actively anti-goodness, anti-compassion, anti-empathy. Since March 2013, people have been cheering on anti-intellectual behaviors, anti-understanding. Bullying and forming media clubs of hate prizing and mockery prizing. People have been actively creating memes and jokes to cast Trump as entertaining and a steady source of content.
+
+What people are NOT DOING: asserting important nonfiction books. Adult education on morality and goodness. People instead are promoting trivializing, mocking, total mockery as "cool".
