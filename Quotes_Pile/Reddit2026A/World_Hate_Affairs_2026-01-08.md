@@ -2205,4 +2205,7 @@ https://old.reddit.com/r/worldnews/comments/1qj428n/trump_threatens_canada_after
 
 "LOL ROFL" - the fandom of Trump entertained, mind-blown into meme stupor. Very highly upvoted amused Reddit audience. Like a television *laugh track* for meme addicts on Reddit. People who do not want to remove Trump because he provides constant LOL engagement to feed amusement addictions.
 
+https://old.reddit.com/r/worldnews/comments/1qj428n/trump_threatens_canada_after_carney_draws/o0w101g/
+
+More diaper fetish messages from Reddit Putin and Trump fandom. Old white men. Shit-commenting audience loves the fantasy of shit from the Internet Research Agency on Reddit. Shit-eating from IRA embraced for many many years. April 11, 2018 https://www.fastcompany.com/40557479/reddit-has-named-944-banned-russian-propaganda-accounts
 
