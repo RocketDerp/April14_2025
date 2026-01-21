@@ -219,3 +219,7 @@ https://old.reddit.com/r/science/comments/1qgiwcm/younger_americans_have_grown_u
 
 Mass Psychosis. Gullible parenting who believe and put faith in Elon Musk and Rupert Murdoch to educate children as role models.
 
+&nbsp;
+
+pro-measles   
+https://old.reddit.com/r/nottheonion/comments/1qj4xer/senior_cdc_official_loss_of_measles_elimination/
