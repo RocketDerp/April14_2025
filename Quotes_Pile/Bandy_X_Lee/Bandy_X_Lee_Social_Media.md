@@ -1,5 +1,7 @@
 # Bandy X Lee: Social Media
 
+Dr. Bandy X Lee, The Dangerous Case of Donald Trump: 27 Psychiatrists and Mental Health Experts Assess a President. Published October 3, 2017.    
+
 Chapter:    
 "Trauma, Time, Truth, and Trump: How a President Freezes Healing and Promotes Crisis"    
 written by Betty P. Teng, M.F.A., L.M.S.W      
