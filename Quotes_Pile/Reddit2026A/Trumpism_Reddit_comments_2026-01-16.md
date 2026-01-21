@@ -1005,6 +1005,7 @@ Social post { https://autistics.life/@RoundSparrow/115930984383272285 https://bs
 https://old.reddit.com/r/law/comments/1qimq2c/wapo_doge_employee_signed_an_agreement_to_share/o0smekf/
 
 
+
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1qin02w/air_force_one_which_was_carrying_trump_to_davos/o0skwrw/
 
 <img width="1175" height="303" alt="image" src="https://github.com/user-attachments/assets/33305f94-44f1-4b81-a7f2-57386c19551e" />
@@ -1021,7 +1022,12 @@ I also considered Ronald Reagan to be a rather good public speaker. Where with T
 
 I find the population behavior sickening. The attitudes, values, concerns, interest of the Reddit audience is gross, sick, mentally unwell, brain damaging. To be attracted to every move and shake, every airplane flight or golf outing of one single man - over and over and over since June 16, 2015. NEVER ENOUGH for the shit-lording shit-craving audience. Every area of USA life has worsened. Housing is worse, food is worse, health care is worse, information systems are full f bullshit and falsehoods. Why id Dr. Bandy X. Lee's leadership ignored? Why would ANYONE at ANY AGE desire to live under constant bulletining and bullshit? Dr. Bandy X Lee's nonfiction book was published back on October 3, 2017 - why oh why do people not stand up and say "NO MORE BULLSHIT"? There was a film called "The Network" where people famously fallowed a bold leader and got out their living rooms and screamed "NOT GOING TO TAKE IT ANYMORE"
 
+
+OPERA_A https://www.youtube.com/watch?v=D-VF24H4Xrc 30,347 views May 9, 2025
+
+
 Where I live in the OPPOSITE. Every day people go into public Reddit social media and BEG FOR MORE TRUMP! They discuss diapers and poop constantly and all the shitty ideas and policies. Nobody says: "Let's organized, stand up, and cite Dr. Bandy X. Lee's book and teach cult deprogramming for hundreds of books at the public library". So much bullshit, so much garbage trash desires people have in their hearts and minds. Cravings for more and more shit!!
+
 
 * Gaslighting    
 Often, people with NPD resort to an insidious strategy called gaslighting — a term drawn from the 1938 play about a man who persuaded his wife she was crazy by, among other means, dimming the gaslights and claiming he’d never touched them. As people with NPD become increasingly psychotic, they’re determined to **convince others that they’re the “crazy” ones who can’t see reality** for what it is. Gaslighting reassures pathological narcissists that their own grip on reality remains firm because they can’t bear to acknowledge their sanity is slipping away. We might ask if we’re seeing this now, as Trump and his closest advisers appear on TV claiming he didn’t make statements that journalists often simply play back — or if **it’s a tweet**, flash an image — to prove that he did indeed say what he said.    
