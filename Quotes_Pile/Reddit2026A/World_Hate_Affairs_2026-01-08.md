@@ -2051,3 +2051,11 @@ https://old.reddit.com/r/politics/comments/1qi8a2r/trump_shared_a_post_on_truth_
 https://old.reddit.com/r/politics/comments/1qi8a2r/trump_shared_a_post_on_truth_social_claiming_that/o0piek3/
 
 2 month Reddit account.
+
+https://old.reddit.com/r/worldnews/comments/1qisodn/denmark_deploys_f35a_stealth_fighters_over/o0tp9aj/
+
+Meme-think Tweet-length messaging. Top upvoted, liked, popular comment. Toxic popularity of simplistic mindsets. Cambridge Analytica outcomes. Spiderman is MonoMyth-chunking mass mind.
+
+Every media site commenting section is now interactive fiction (IF), touch screen filter-bubble games. An alternate reality gaming environment where people crave fiction and mythology (monomyth chunks and patterns) and have abandoned sustained focus "we all need to get on the *same page together*" nonfiction serious important topics.
+
+* “We like to think of ourselves as immune from influence or our cognitive biases, because we want to feel like we are in control, but industries like alcohol, tobacco, fast food, and gaming all know we are creatures that are subject to **cognitive and emotional vulnerabilities. And tech has caught on to this with its research into “user experience,” “gamification,” “growth hacking,” and “engagement” by activating ludic loops and reinforcement schedules in the same way slot machines do**. So far, this gamification has been contained to social media and digital platforms, but what will happen as we further integrate our lives with networked information architectures designed to **exploit evolutionary flaws in our cognition**? Do we really want to live in a “gamified” environment that engineers our obsessions and plays with our lives as if we are inside its game?” ― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the Plot to Break America, chapter 12 "Revelations", page 235, year 2019
