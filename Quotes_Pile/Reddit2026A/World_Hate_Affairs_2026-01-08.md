@@ -2092,4 +2092,10 @@ Yes, it was a massive underestimation by NATO.
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mcwxbkksvs2w https://autistics.life/@RoundSparrow/115933717048204421 https://MidWest.Social/post/42196044 }
 
-* "I don’t like it. **The war zone, in other words**, may not be – in defending the self – may not be any of the classical ones. Like the working class versus the ruling class, the slaves against the masters, oppressed women against, ah, patriarchal society, blacks against whites. No, the struggle in the future may be to maintain the real against the unreal or the hyperreal or the irreal." - Texan Rick Roderick, year 1993, Duke University https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
+* "I don’t like it. **The war zone, in other words**, may not be – in defending the self – may not be any of the classical ones. Like the working class versus the ruling class, the slaves against the masters, oppressed women against, ah, patriarchal society, blacks against whites. No, the struggle in the future may be to maintain the real against the unreal or the hyperreal or the irreal." - Texan Rick Roderick, year 1993, Duke University https://RickRoderick.org/308-baudrillard-fatal-strategies-1993/
+
+OPERA_A https://www.youtube.com/watch?v=wsEwK69LXjQ "**MINE WORKERS** STRIKE"; "30 WEEKS". 
+9,618,157 views October 5, 2009 - shared this song during the Arab Spring 2010 across the Internet in early 2010 to Tunisian and Algerian women.
+
+OPERA_A https://www.youtube.com/watch?v=L0bqmIBczJI I reveal all I dog, should be more careful what I share with North Africa nations.... 55,002 views October 23, 2008 SCREWED AGAIN, Ladies in Tunisia and Algeria - IT IS YOU WHO FEELS THE PAIN! Lyrics: "I take **miners to work, but the pits all closed** today! It's easy to see that you are *one of us*. Ain't it funny how we all seem to look the same?" - I'm being put down, pushed around on the Internet, every day since March 2013 IRA invasions!
+
