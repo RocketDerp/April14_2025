@@ -796,7 +796,7 @@ https://old.reddit.com/r/NonPoliticalTwitter/comments/1qe9gdw/ok_so_today_i_lear
 English with accent   
 https://old.reddit.com/r/TikTokCringe/comments/1qggjhf/you_have_an_accent_too/
 
-&nbps;
+&nbsp;
 
 https://old.reddit.com/r/explainitpeter/comments/1qj5m0l/explain_it_peter/   
 This is great for the Wake opera.   
