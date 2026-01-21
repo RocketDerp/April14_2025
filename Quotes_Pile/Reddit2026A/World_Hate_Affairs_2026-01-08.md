@@ -2180,3 +2180,9 @@ https://old.reddit.com/r/worldnews/comments/1qiz899/carney_leaves_davos_without_
 Denial abounds on Reddit media environment. We The People drawn to addiction content.
 
 * "It’s a strategy of power based on keeping any opposition there may be **constantly confused, a ceaseless shape-shifting that is unstoppable because it’s indefinable**. This fusion of despotism and postmodernism, in which no truth is certain, is reflected in the craze among the Russian elite for **neuro-linguistic programming**" - October 20, 2011 https://www.lrb.co.uk/the-paper/v33/n20/peter-pomerantsev/putin-s-rasputin
+
+https://old.reddit.com/r/worldnews/comments/1qiz899/carney_leaves_davos_without_meeting_trump_after/o0v07k7/
+
+https://old.reddit.com/r/worldnews/comments/1qiz899/carney_leaves_davos_without_meeting_trump_after/o0v64cg/
+
+Reality TV fandom of Trump that tunes into "hate watch". https://en.wikipedia.org/wiki/Hate-watching Audience mentality. Extreme tiny-short messaging, Tweet-thinking audience of superstar Trump. They are expecting more episode of Trump. Actively normalizing Trump as a source of hate-watch content. Fandom of hate who follows loyally a hate leader.
