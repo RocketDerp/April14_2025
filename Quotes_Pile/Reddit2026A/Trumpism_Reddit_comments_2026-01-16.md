@@ -1221,4 +1221,7 @@ https://old.reddit.com/r/AskReddit/comments/1qj91id/what_if_we_just_tell_donald_
 
 Face media addiction and stop following a Fox News HDTV crowd. Promote Jen Senko and make her world famous for standing up to a media cult. Facebook cult, Reddit fandom cults.  https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad
 
+https://old.reddit.com/r/AskReddit/comments/1qj91id/what_if_we_just_tell_donald_trump_that_the_us/o0x97gk/
+
+Reddit meme-washes, same-washes via memes, Trump. Entertainment addictions abound. Hyper normal processing mill. I created this teaching subreddit. February 18, 2025 https://old.reddit.com/r/SuperHyperNormal
 
