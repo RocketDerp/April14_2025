@@ -1301,3 +1301,7 @@ Reddit is a secret masked police playground. People get disappeared constantly o
 https://old.reddit.com/r/ArcRaiders/comments/1qivw0m/saw_a_kid_get_banned_in_this_sub_for_speaking_bad/o0ucool/
 
 Egomania USA. Since June 16, 2015 - a nation of followers to egomania leader Trump. We The People who *hate Trump* prize hate. Competitive insulting how dumb and stupid Trump is, the measuring stick they prize of intelligence. Ignorant as fuck about Marshall McLuhan and Manhattan Neil Postman. Trump's how town. Let alone NYC Edward Bernays that the Trump family grasps for generations.
+
+https://old.reddit.com/r/ArcRaiders/comments/1qivw0m/saw_a_kid_get_banned_in_this_sub_for_speaking_bad/o0uai2v/
+
+Or a Reddit investor, owner, shareholder.
