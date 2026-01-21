@@ -2140,3 +2140,9 @@ Yes. The endless joke-washing of Reddit community. The flocking to Trump across 
 https://old.reddit.com/r/worldnews/comments/1qiyy04/trump_at_davos_demands_immediate_talks_on/o0uz5e9/
 
 "cringe" - exactly what Reddit audiences come to Reddit platform for. To mock and insult cringe. It is the ideal of Reddit content to find non-conforming people and mock away at images of cringe. Reddit is a egoism filter-bubble narrow-minded anti-diversity training camp for bullying cringe behaviors. Don't step out of the Reddit hive mind popularity since March month of year 2013. https://old.reddit.com/r/CringeNation March 28, 2025 I created this to explain the organized cringe mindset exploitation by Surkov students. Reddit hive minded individuals eat it up.
+
+https://old.reddit.com/r/minnesota/comments/1qj02xv/trump_in_front_of_world_leaders_decides_to_attack/o0v5bqm/
+
+Tweet-length Tweet-think. Trump content good. Trump entertains meme audience of Reddit. Total mockery echoland nation USA. Coast to coast notification smartphone and iPad echoing with every Trump word, hanging on every meme.
+
+OPERA_A ::: Carol: "Hush! Caution! Echoland!" the hive mind speaks with many voices. When a nonfiction story hands you a loaded Chekhov's gun, assume the gun is loaded. "Woke Carol" ::: Friday, November 14, 2025 https://Old.Reddit.com/r/WokeCarol/comments/1ox6841/carol_hush_caution_echoland_the_hive_mind_speaks/
