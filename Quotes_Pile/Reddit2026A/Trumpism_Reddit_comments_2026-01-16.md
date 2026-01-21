@@ -1140,3 +1140,6 @@ Reddit audiences love it. Adore it. "Leopards eating faces!!!!" fandom on Reddit
 
 * "It’s a **strategy of power** based on keeping any opposition there may be **constantly confused, a ceaseless shape-shifting that is unstoppable because it’s indefinable**. This fusion of despotism and postmodernism, in which no truth is certain, is reflected in the craze among the Russian elite for **neuro-linguistic programming**" - October 20, 2011 https://www.NationalReview.com/the-agenda/peter-pomerantsev-vladislav-surkov-vladimir-putins-chief-image-maker-reihan-salam/
 
+https://old.reddit.com/r/politics/comments/1qj2eja/trump_embarrasses_all_of_america_in_slurred/o0vqs2a/
+
+Everything is meme-nation media ecology. https://GitHub.com/RocketDerp/April14_2025/blob/main/Media_Ecology/Everything_is_ME.md
