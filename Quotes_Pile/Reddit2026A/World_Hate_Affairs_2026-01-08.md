@@ -2132,3 +2132,7 @@ https://old.reddit.com/r/worldnews/comments/1qiyy04/trump_at_davos_demands_immed
 Meme addictions mindsets on Reddit. ANYTHING but turn to nonfiction learning. [Ignorance celebrating commenting media creation](https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Carl_Sagan_Quotes.md#celebration-of-ignorance) on Reddit.
 
 * "Everything we're told by journalists and ***politicians*** is **confusing and contradictory**. Of course, there is no Mr. Surkov in charge, but it is an odd, non-linear world that plays into the hands of those in power." - BBC News; [New Years Eve 2014, December 31](https://www.RealClearPolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html). Adam Curtis
+
+https://old.reddit.com/r/worldnews/comments/1qiyy04/trump_at_davos_demands_immediate_talks_on/o0uxnos/
+
+Yes. The endless joke-washing of Reddit community. The flocking to Trump across media networks. It is fucking exhausting, machine tech lovers who will not turn to Dr. Bandy X Lee's nonfiction paper-printed book from October 3, 2017. The meme addictions are disgusting and world-wrecking.
