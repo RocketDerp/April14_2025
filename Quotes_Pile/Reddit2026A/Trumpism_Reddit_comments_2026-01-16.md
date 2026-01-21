@@ -975,3 +975,25 @@ https://old.reddit.com/r/politics/comments/1qid1uu/arizona_senator_on_trump_he_i
 https://old.reddit.com/r/politics/comments/1qid1uu/arizona_senator_on_trump_he_is_a_madman_he_is/o0qqs9d/
 
 "crazy"
+
+https://old.reddit.com/r/politics/comments/1qhwl5l/now_is_the_time_to_admit_it_america_trump_is_a/o0n2dau/
+
+Posting title "Lunatic"
+
+https://old.reddit.com/r/politics/comments/1qhwl5l/now_is_the_time_to_admit_it_america_trump_is_a/o0n41oo/
+
+Reddit media, Reddit social, Reddit media device users. Recency bias abounds. Avoidance of nonfiction.
+
+https://old.reddit.com/r/politics/comments/1qhwl5l/now_is_the_time_to_admit_it_america_trump_is_a/o0n1c3h/
+
+Messages of: *Give up*, too late.
+
+https://old.reddit.com/r/politics/comments/1qhwl5l/now_is_the_time_to_admit_it_america_trump_is_a/o0n1vdl/
+
+9 month Reddit account.
+
+https://old.reddit.com/r/politics/comments/1qhwl5l/now_is_the_time_to_admit_it_america_trump_is_a/o0nt52t/
+
+https://old.reddit.com/r/politics/comments/1qhwl5l/now_is_the_time_to_admit_it_america_trump_is_a/o0p0bi7/
+
+Actively under attack by Russia. Since March 2013. Right on Reddit. April 11, 2018. Not repeated to all the newcomers, new accounts, on Reddit. https://www.fastcompany.com/40557479/reddit-has-named-944-banned-russian-propaganda-accounts
