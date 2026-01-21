@@ -1181,3 +1181,10 @@ https://old.reddit.com/r/videos/comments/1qj5e7p/trump_at_davos_in_switzerland_w
 "laughed" at Trump. As conditioned by Internet Research Agency since March 2013. Anything but be serious and go to the public library for the nonfiction section.
 
 * “Everything in our background has prepared us to know and resist a prison when the gates begin to close around us . . . But what if there are no cries of anguish to be heard? Who is prepared to take arms **against a sea of amusements**? To whom do we complain, and when, and in what tone of voice, when serious discourse dissolves into giggles? What is the antidote to a culture's being drained by laughter?” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, year 1985
+
+https://old.reddit.com/r/wallstreetbets/comments/1qj7uc8/president_trump_says_he_will_no_longer_be/o0wv1tu/
+
+Trump fandom, LMAO, here for the comedy of Trump. As conditioned by Internet Research Agency since March 2013. Anything but be serious and go to the public library for the nonfiction section. ANYTHING but use social systems to promote Dr. Bandy X Lee's nonfiction writings. 
+
+* “The human brain can protect us from seeing and feeling what it believes may be too uncomfortable for us to tolerate. It can lead us to deny, defend, minimize, or rationalize away something that doesn’t fit our worldview.”
+― Dr. Bandy X Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. Published **October 3, 2017**. Page 273. Chapter "TRUMP'S DADDY ISSUES"](https://books.google.com/books?id=g0c4DwAAQBAJ&pg=PA273&dq=%E2%80%9CThe+human+brain+can+protect+us+from+seeing+and+feeling+what+it+believes+may+be+too+uncomfortable%22&hl=en&newbks=1&newbks_redir=1&sa=X)
