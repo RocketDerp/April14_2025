@@ -2170,3 +2170,13 @@ OPERA_A James Joyce is getting put down, unread. https://youtu.be/L0bqmIBczJI?t=
 https://old.reddit.com/r/minnesota/comments/1qj02xv/trump_in_front_of_world_leaders_decides_to_attack/o0v9xuw/
 
 I'm so fucking sick of commenting about Reddit comment creators who will not turn to nonfiction and assert it more than "Epstein" private jet white men fantasy. Turn to Jen Senko, turn to Dr. Bandy X Lee. Those are the leaders to follow, not commenting on every Trump image.
+
+https://old.reddit.com/r/worldnews/comments/1qiz899/carney_leaves_davos_without_meeting_trump_after/o0uz8fc/
+
+<img width="807" height="505" alt="image" src="https://github.com/user-attachments/assets/6e18df95-faa1-46bf-b484-4faf43ae7e76" />
+
+"deranged speech"
+
+Denial abounds on Reddit media environment. We The People drawn to addiction content.
+
+* "It’s a strategy of power based on keeping any opposition there may be **constantly confused, a ceaseless shape-shifting that is unstoppable because it’s indefinable**. This fusion of despotism and postmodernism, in which no truth is certain, is reflected in the craze among the Russian elite for **neuro-linguistic programming**" - October 20, 2011 https://www.lrb.co.uk/the-paper/v33/n20/peter-pomerantsev/putin-s-rasputin
