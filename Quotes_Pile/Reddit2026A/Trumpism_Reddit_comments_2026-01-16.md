@@ -1083,3 +1083,7 @@ There is NO SOCIAL MEDIA UPRISING. The fandom on Reddit and Bluesky comment and 
 3. Come at the issue from different angles. "Fox News is a cult". Make Jen Senko world famous via social media mentions. Far beyond "Epstein" mentions.
 
 4. Organize sustained / ongoing. I have suggested "every 47 hours" social media meetings / movement. https://github.com/GreatSealUSA/Brainrot_Society_47
+
+https://old.reddit.com/r/politics/comments/1qiuwxw/71_percent_of_americans_say_us_is_out_of_control/o0u41vi/
+
+"objective reality". Fiction outsells nonfiction. Trump is entertainer and fiction story creator above all else. Addicts to junk media. Why is Reddit full of commenting avoiding Dr. Bandy X Lee's nonfiction book from October 3, 2017?
