@@ -1129,3 +1129,7 @@ People die for Quran science fiction vs. Bible science fiction!
 
 * “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.”
 ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. PUBLISHED October 8, 2013. a DECADE before October 7, and a book ignored by Muslims / fandom of Mohammad science fiction public dreams.
+
+https://old.reddit.com/r/agedlikemilk/comments/1qiwt4z/its_all_about_context/o0ug9ev/
+
+The Fandom of Trump isn't posing. These are not all fake comments and upvotes to comments on Reddit. This is a true fanatical following. Trump leads with hate, playing the role of President Tony Clifton, and a nation of touch-device addicts prizes every image of Trump. This photograph is what people live for on Reddit. The community of trash media, Reality TV stardom fans.
