@@ -1265,3 +1265,18 @@ https://old.reddit.com/r/worldnews/comments/1qj7rdk/trump_says_he_reached_greenl
 https://old.reddit.com/r/worldnews/comments/1qj7rdk/trump_says_he_reached_greenland_deal_framework/o0wzsa3/
 
 https://old.reddit.com/r/law/comments/1qj8dff/sen_john_fetterman_dpa_breaks_ranks_with/o0x0lts/
+
+https://old.reddit.com/r/minnesota/comments/1qjau6v/bovino_throws_tear_gas_in_minneapolis_12126/o0xl32n/
+
+https://old.reddit.com/r/minnesota/comments/1qjau6v/bovino_throws_tear_gas_in_minneapolis_12126/o0xmek8/
+
+Yep. Content production. For the Reddit audience. Keeps people away from the nonfiction section of the public library, addicted to the next antics politics out of the Kremlin and White House. Surkov governing.
+
+Russia and the **Menace of Unreality**   
+How Vladimir Putin is revolutionizing information warfare   
+Peter Pomerantsev   
+September 9 2014, 3:42 PM ET   
+
+“If previous authoritarian regimes were three parts violence and one part propaganda,” argues Igor Yakovenko, a professor of journalism at the Moscow State Institute of International Relations, “this one is **virtually all propaganda and relatively little violence**. Putin only needs to make a few arrests—and then amplify the message through his total control of television.”
+
+Translated from 2013 Russia to USA 2025: I.C.E. raids are very little violence and a lot of showboating. A lot of Reddit front-page I.C.E. raids for visual meme addicts / meme consumers. Simple-think logic polarity minds. The audience has no recognition that Kremlin and White House has the Reddit total control of media amplifiers. Reddit is amplifying media from all over the Internet. [Eating the onions](../Reddit2025A/Surkovian_Onion_Eating.md) that Trump and Musk is dementia stupid dumb idiot, Reddit society unable to engage and comprehend and understand off-Reddit... September 9, 2014: https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
