@@ -1188,3 +1188,9 @@ Trump fandom, LMAO, here for the comedy of Trump. As conditioned by Internet Res
 
 * “The human brain can protect us from seeing and feeling what it believes may be too uncomfortable for us to tolerate. It can lead us to deny, defend, minimize, or rationalize away something that doesn’t fit our worldview.”
 ― Dr. Bandy X Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. Published **October 3, 2017**. Page 273. Chapter "TRUMP'S DADDY ISSUES"](https://books.google.com/books?id=g0c4DwAAQBAJ&pg=PA273&dq=%E2%80%9CThe+human+brain+can+protect+us+from+seeing+and+feeling+what+it+believes+may+be+too+uncomfortable%22&hl=en&newbks=1&newbks_redir=1&sa=X)
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qj7ls4/mcgovern_on_trump_in_davos_well_he_said_a_lot_of/o0wwcqg/
+
+Posting title: "crazy shit"
+
+When are Reddit users going to turn in their key and stop drowning out serious people (Jen Senko) with trash commenting about Trump { dumb, stupid, idiot, moron, crazy } day in and day out? When is Reddit fandom going to key into Dr. Bandy X Lee as the key to share over and over and over and repeat over and over?
