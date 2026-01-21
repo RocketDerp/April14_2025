@@ -2209,3 +2209,6 @@ https://old.reddit.com/r/worldnews/comments/1qj428n/trump_threatens_canada_after
 
 More diaper fetish messages from Reddit Putin and Trump fandom. Old white men. Shit-commenting audience loves the fantasy of shit from the Internet Research Agency on Reddit. Shit-eating from IRA embraced for many many years. April 11, 2018 https://www.fastcompany.com/40557479/reddit-has-named-944-banned-russian-propaganda-accounts
 
+https://old.reddit.com/r/worldnews/comments/1qj428n/trump_threatens_canada_after_carney_draws/o0w2kcw/
+
+ANSWER: what happened was "Operation Matthew 4:19" - the biggest organized trolling of meme addicts in all human history! Far beyond Biblical scale. Year 2012 onward: https://github.com/RocketDerp/April14_2025/blob/main/Operation_Matthew_4_19_on_monday_2024-03-31.md Surkov won since March 2013.
