@@ -1241,3 +1241,7 @@ Reddit meme addicts can't go more than Twitter-length short messaging. Anything 
 
 * "When NPD and psychopathy combine, they form a pattern of behavior called malignant narcissism. This isn’t a diagnosis, but a term coined by psychoanalyst Erich Fromm and elaborated on by personality disorder expert, Otto Kernberg, to describe people so driven by feeling special that they essentially see other people as **pawns in their game** of kill or be killed, whether metaphorically or literally. Hitler, who murdered millions, Kim Jong-un, who’s suspected of ordering his uncle’s and brother-in-law’s deaths, and **Vladimir Putin, who jokes about “liquidating journalists”** — no doubt all fall in the category of malignant narcissist (among possessing other pernicious traits, like sadism, or delight in hurting others)."
 ― Bandy X Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. PUBLISHED October 3, 2017. Page 58.](https://books.google.com/books?id=716HDwAAQBAJ&pg=PA58&dq=%22driven+by+feeling+special+that+they+essentially+see+other+people%22&hl=en&newbks=1&newbks_redir=1&sa=X)
+
+https://old.reddit.com/r/AskReddit/comments/1qj91id/what_if_we_just_tell_donald_trump_that_the_us/o0x8die/
+
+Yes. Trump Fandom of Reddit fixates on one person at a time. Musk or Trump or Epstein. Unable to discuss Rupert Murdoch's fandom. So many people focus on "dementia", "diaper poop", "orange skin" of one single age 79 icon, Reality TV super-star of "The Apprentice".
