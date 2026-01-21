@@ -2166,3 +2166,7 @@ https://old.reddit.com/r/minnesota/comments/1qj02xv/trump_in_front_of_world_lead
 Glued audience comes for cringe every day since June 16, 2015. Bloomsday in tears :(
 
 OPERA_A James Joyce is getting put down, unread. https://youtu.be/L0bqmIBczJI?t=96
+
+https://old.reddit.com/r/minnesota/comments/1qj02xv/trump_in_front_of_world_leaders_decides_to_attack/o0v9xuw/
+
+I'm so fucking sick of commenting about Reddit comment creators who will not turn to nonfiction and assert it more than "Epstein" private jet white men fantasy. Turn to Jen Senko, turn to Dr. Bandy X Lee. Those are the leaders to follow, not commenting on every Trump image.
