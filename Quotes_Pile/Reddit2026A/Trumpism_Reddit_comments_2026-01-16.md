@@ -1099,3 +1099,10 @@ Out-group oriented. Thinks the problem is ONLY one single political party in USA
 Why the fuck do people make these short repetitive comments with their spare time and free time when an edited film is available? https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad It is fucking TORTURE to make these GitHub comments (you are here) over and over to make a fucking point about what is being AVOIDED! UNSEEN! https://github.com/RocketDerp/April14_2025/blob/main/June8_2025/The_Silhouette_Void_MonoMyth_Lines.md
 
 
+https://old.reddit.com/r/politics/comments/1qiuwxw/71_percent_of_americans_say_us_is_out_of_control/o0ua9t8/
+
+People are glued to their smartphone. Go ride a bus in the city and look into the cars. Look where people are starting at lunch and dinner in public, into their intimate touch device. Look at the commenting on Bluesky and Reddit. shit-posting, shit-commenting, shit Trump shit seeking.
+
+Nonfiction serious isn't selling. The billionaires from Moscow have done their job so well that a massive mythological fantasy is going to lash back across the Atlantic. All the Hollywood nightmares are being puppeteered in the collective subconscious **mass man** (University of Toronto, Marshall McLuhan terminology). People will not stop their addiction to Trump's shitty ideas and Fox News *second hand smoke*.
+
+OPERA_A Puppet Strings metaphors Repeat Repeating Track. + 173 seconds https://www.youtube.com/watch?v=cfm4L0TGDrw&t=173s 346,123 views April 16, 2020 ... "the “orthodox” oligarchs who sing hymns to Russian religious conservatism” ― Peter Pomerantsev, Nothing Is True and Everything Is Possible: The Surreal Heart of the New Russia. Year 2014.
