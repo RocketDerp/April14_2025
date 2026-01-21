@@ -20,6 +20,13 @@ Rivers that care through the lands, even in the dry areas of the Grand Canyon
 
 &nbsp;
 
-# Circle around a topic
+# *Circle* a*round* a topic
+
+::: "riverrun, past Eve and Adam's, from swerve of shore to bend of bay, brings us by a commodious vicus of re**circu**lation back to Howth Castle and Environs" :::
 
 The ***silhouette void*** that is formed when you keep circling around the vocabulary ad ideas of at topic. Repeating circles, recirculation, circling and revisiting and re-circling from angles.
+
+* BILL MOYERS: Aren’t you undermining one of the **great traditional doctrines** of the classic Christian faith — that the burial and the resurrection of Jesus prefigures our own?
+CAMPBELL: That would be a mistake in the reading of the symbol. That is reading the words in terms of prose instead of in terms of poetry, reading the metaphor in terms of the denotation instead of the connotation.
+MOYERS: And **poetry gets to the unseen** reality.
+CAMPBELL: That which is beyond even **the concept of reality**, that which transcends all thought. The myth puts you there all the time, gives you a line to connect with that mystery which you are.
