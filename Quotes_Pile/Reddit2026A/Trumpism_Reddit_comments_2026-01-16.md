@@ -1070,3 +1070,16 @@ Leadership of Nations by using Cringe behaviors. Exploiting the minds of the aud
 &nbsp;
 
 Social post { https://autistics.life/@RoundSparrow/115933005593901008 https://bsky.app/profile/roundsparrow.bsky.social/post/3mcwn5ji5is2o }
+
+
+https://old.reddit.com/r/politics/comments/1qiuwxw/71_percent_of_americans_say_us_is_out_of_control/o0u2gkl/
+
+There is NO SOCIAL MEDIA UPRISING. The fandom on Reddit and Bluesky comment and comment about Trump but will not do OBVIOUS things:
+
+1. Promote Dr. Bandy X Lee. Stop making casual comments about "crazy", "insane", "mental health" and quote a god-damn nonfiction book!
+
+2. Halt entertainment. Trump is an entertainer. Stop prizing Trump as a source of memes and jokes and be serious. https://github.com/RocketDerp/April14_2025/blob/main/Grim_Blunt/Stop_All_Entertainment.md
+
+3. Come at the issue from different angles. "Fox News is a cult". Make Jen Senko world famous via social media mentions. Far beyond "Epstein" mentions.
+
+4. Organize sustained / ongoing. I have suggested "every 47 hours" social media meetings / movement. https://github.com/GreatSealUSA/Brainrot_Society_47
