@@ -1225,3 +1225,12 @@ https://old.reddit.com/r/AskReddit/comments/1qj91id/what_if_we_just_tell_donald_
 
 Reddit meme-washes, same-washes via memes, Trump. Entertainment addictions abound. Hyper normal processing mill. I created this teaching subreddit. February 18, 2025 https://old.reddit.com/r/SuperHyperNormal
 
+https://old.reddit.com/r/AskReddit/comments/1qj91id/what_if_we_just_tell_donald_trump_that_the_us/o0x7lii/
+
+"joking", joke mindsets. Cambridge Analytica outcomes. 
+
+https://old.reddit.com/r/AskReddit/comments/1qj91id/what_if_we_just_tell_donald_trump_that_the_us/o0x7ad3/
+
+Fix the addiction to fiction. Avoidance of nonfiction crisis. Dr. Bandy X Lee's book from October 8, 2013 should be every other comment on Reddit. But people can't find nonfiction public library section.
+
+* "While Chun points to the Internet’s potential for fostering the seeds of nationalist propaganda, Persily asks, “Can Democracy survive the Internet?” in the very title of his recent paper. By analyzing the 2016 digital campaign for U.S. president, he orients us to what today’s **Internet amplifies: social media retweets, false news shares, bot-driven articles, and troll-inspired critiques that reflect and stir reactivity rather than disseminate the truth**: “What the Internet uniquely privileges above all else is the type of campaign message that **appeals to outrage or otherwise grabs attention. The politics of never-ending spectacles** cannot be healthy for a democracy. Nor can a porousness to outside influences that undercuts the sovereignty of a nation’s elections. Democracy depends on both the ability and the will of voters to base their political judgments on facts.” ― Dr. Bandy X Lee, The Dangerous Case of Donald Trump: 27 Psychiatrists and Mental Health Experts Assess a President. Published **October 3, 2017**.
