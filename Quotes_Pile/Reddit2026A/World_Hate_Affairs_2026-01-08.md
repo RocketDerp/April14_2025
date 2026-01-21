@@ -2089,3 +2089,7 @@ Published to public World Wide Web on September 9, 2014 - which is more than 10 
 Yes, it was a massive underestimation by NATO.
 
 * "The 2014 NATO Summit in Wales was a two-day meeting held from **4–5 September 2014, primarily at the Celtic** Manor Resort in Newport, with related events in Cardiff. Occurring at a critical time in the Alliance’s history, the summit focused on the response to Russia's annexation of Crimea, the drawdown of the combat mission in Afghanistan, and the strengthening of collective defense. General Philip M. Breedlove, as NATO’s Supreme Allied Commander Europe (SACEUR), played a central role" - Google Search summary 2026-01-21 morning USA
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mcwxbkksvs2w https://autistics.life/@RoundSparrow/115933717048204421 https://midwest.social/post/42196044 }
+
+* "I don’t like it. **The war zone, in other words**, may not be – in defending the self – may not be any of the classical ones. Like the working class versus the ruling class, the slaves against the masters, oppressed women against, ah, patriarchal society, blacks against whites. No, the struggle in the future may be to maintain the real against the unreal or the hyperreal or the irreal." - Texan Rick Roderick, year 1993, Duke University https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
