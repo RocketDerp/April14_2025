@@ -24,7 +24,7 @@ Rivers that care through the lands, even in the dry areas of the Grand Canyon
 
 ::: "riverrun, past Eve and Adam's, from swerve of shore to bend of bay, brings us by a commodious vicus of re**circu**lation back to Howth Castle and Environs" :::
 
-The ***silhouette void*** that is formed when you keep circling around the vocabulary ad ideas of at topic. Repeating circles, recirculation, circling and revisiting and re-circling from angles.
+The ***silhouette void*** that is formed when you keep circling around the vocabulary and ideas of at topic. Repeating circles, recirculation, circling and revisiting and re-circling from angles.
 
 "The Silhouette Void" MonoMyth Lines    
 
