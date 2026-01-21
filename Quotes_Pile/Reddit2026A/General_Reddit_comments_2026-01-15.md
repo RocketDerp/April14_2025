@@ -1282,3 +1282,10 @@ https://old.reddit.com/r/politics/comments/1qie55s/trump_79_kicks_off_press_conf
 
 I.C.E. like behaviors of ban-happy deport-happy Reddit power.
 
+https://old.reddit.com/r/travisandtaylor/comments/1qidtvb/taylor_swifts_text_messages_with_blake_exposedits/o0qpdba/
+
+This Reddit fandom behaves very similar in regard to attraction to Donald Trump. Attraction to the richest people in the world and keeping them the center of entertainment for memes and mockery.
+
+https://old.reddit.com/r/travisandtaylor/comments/1qidtvb/taylor_swifts_text_messages_with_blake_exposedits/o0qp3hf/
+
+Fandom of celebrity like Trump the celebrity. Fandom of bad shit... who want rich famous people to be the center of attention. Fans of superficial and banal shallow behaviors.
