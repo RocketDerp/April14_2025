@@ -2059,3 +2059,23 @@ Meme-think Tweet-length messaging. Top upvoted, liked, popular comment. Toxic po
 Every media site commenting section is now interactive fiction (IF), touch screen filter-bubble games. An alternate reality gaming environment where people crave fiction and mythology (monomyth chunks and patterns) and have abandoned sustained focus "we all need to get on the *same page together*" nonfiction serious important topics.
 
 * “We like to think of ourselves as immune from influence or our cognitive biases, because we want to feel like we are in control, but industries like alcohol, tobacco, fast food, and gaming all know we are creatures that are subject to **cognitive and emotional vulnerabilities. And tech has caught on to this with its research into “user experience,” “gamification,” “growth hacking,” and “engagement” by activating ludic loops and reinforcement schedules in the same way slot machines do**. So far, this gamification has been contained to social media and digital platforms, but what will happen as we further integrate our lives with networked information architectures designed to **exploit evolutionary flaws in our cognition**? Do we really want to live in a “gamified” environment that engineers our obsessions and plays with our lives as if we are inside its game?” ― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the Plot to Break America, chapter 12 "Revelations", page 235, year 2019
+
+https://old.reddit.com/r/worldnews/comments/1qisodn/denmark_deploys_f35a_stealth_fighters_over/o0trgvw/
+
+**Absolutely crazy nuts**: "I'd been down voted to hell and a bunch of comments calling me absolutely nuts"
+
+Let's see... 10 years ago... even in January 2024 I got downvoted and ignored to hell.
+
+I got so sick of being downvoted and reported as crazy for quoting nonfiction books (year 2014 Peter Pomerantsev) and nonficton teachings (1993 Rick Roderick, etc) I created an independent subreddit. **April 24, 2017**: https://Old.Reddit.com/r/WhiteHouseHyperReal "White House Hyper Real"
+
+* “The human brain can protect us from seeing and feeling what it believes may be too uncomfortable for us to tolerate. It can lead us to deny, defend, minimize, or rationalize away something that doesn’t fit our worldview.”   
+― Dr. Bandy X Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. Published **October 3, 2017**. Page 273. Chapter "TRUMP'S DADDY ISSUES"](https://books.google.com/books?id=g0c4DwAAQBAJ&pg=PA273&dq=%E2%80%9CThe+human+brain+can+protect+us+from+seeing+and+feeling+what+it+believes+may+be+too+uncomfortable%22&hl=en&newbks=1&newbks_redir=1&sa=X)
+
+* “Assessing dangerousness is different from making a diagnosis: it is dependent on the situation, not the person. Signs of likely dangerousness due to mental disorder can become apparent without a full diagnostic interview and can be detected from a distance, and one is expected to err, if at all, on the side of safety when the risk of inaction is too great.”   
+― Bandy X. Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. Published October 3, 2017. PROLOGUE. Page 5.](https://books.google.com/books?id=g0c4DwAAQBAJ&pg=PA5&dq=dangerousness+due+to+mental+disorder+can+become+apparent+without+a+full+diagnostic+interview+and+can+be+detected+from+a+distance&hl=en&newbks=1&newbks_redir=1&sa=X)
+
+I contacted the Pentagon in 2015. Samantha. **Monday, August 17, 2015** afternoon. Which I disclosed, with my real name, on Facebook first (where real names are normal) and later on Reddit in public. https://Old.Reddit.com/r/QAnonRussia/comments/p16nkm/i_reported_it_in_2015_under_bidenobama_at_the/ August 9, 2021
+
+> "I'd been down voted to hell and a bunch of comments calling me absolutely nuts"
+
+Monday, August 17, 2015 was when I was sick of being called nuts on Reddit and realized information warfare (IRA since March 2013) had mind-fucked the meme addict population. That was 10 years ago.
