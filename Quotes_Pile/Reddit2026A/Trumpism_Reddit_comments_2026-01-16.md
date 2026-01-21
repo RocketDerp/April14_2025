@@ -945,3 +945,7 @@ https://old.reddit.com/r/StockLaunchers/comments/1qibtaa/trump_triggers_25th_ame
 Trump is a media star, a television star, a Twitter star. A touring multi-city performer. Trump entertains Reddit audiences. That's what Trump power is based on. Fiction addicts on Reddit line up for over 10 years, day after day, to mock and insult Trump. And it works! A proven system since for over a decade.
 
 * "Russia-watcher Catherine Fitzpatrick, who documents Kremlin disinformation for InterpreterMag . com, says just as Moscow uses vague Internet laws to encourage self-censorship, trolls inhibit informed debate by using **crude dialogue to change "the climate of discussion."** "If you show up at The Washington Post or New Republic sites, where there's an article that's critical of Russia, and you see that **there are 200 comments that sound like they were written by 12-year-olds**, then you just don't bother to comment," she says.  "You don't participate. It's a way of just **driving discussion away** completely," she adds. "Those **kinds of tactics are meant to stop democratic debate**, and they work." - **year 2014** https://www.theatlantic.com/international/archive/2014/08/the-kremlins-troll-army/375932/
+
+https://old.reddit.com/r/therewasanattempt/comments/1qiaagk/to_know_where_ones_hand_goes_during_the_national/o0pvvhn/
+
+Every gesture, every utterance, every outing, every posting by Donald Trump and the fandom flocks to fan veenues.
