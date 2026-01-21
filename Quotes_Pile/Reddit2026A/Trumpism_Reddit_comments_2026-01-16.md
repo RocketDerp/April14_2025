@@ -1288,3 +1288,8 @@ Did Reddit commenting crowds go to the school of always avoiding nonfiction seri
 https://old.reddit.com/r/Music/comments/1qj9ee7/nicki_minaj_admits_she_came_to_us_as_illegal/o0x90x3/
 
 https://old.reddit.com/r/Music/comments/1qj9ee7/nicki_minaj_admits_she_came_to_us_as_illegal/o0xbif4/
+
+https://old.reddit.com/r/California/comments/1qj6woz/newsom_barred_from_public_address_in_switzerland/o0wpge0/
+
+"lunatic"
+
