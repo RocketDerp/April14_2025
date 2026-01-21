@@ -1087,3 +1087,7 @@ There is NO SOCIAL MEDIA UPRISING. The fandom on Reddit and Bluesky comment and 
 https://old.reddit.com/r/politics/comments/1qiuwxw/71_percent_of_americans_say_us_is_out_of_control/o0u41vi/
 
 "objective reality". Fiction outsells nonfiction. Trump is entertainer and fiction story creator above all else. Addicts to junk media. Why is Reddit full of commenting avoiding Dr. Bandy X Lee's nonfiction book from October 3, 2017?
+
+https://old.reddit.com/r/politics/comments/1qiuwxw/71_percent_of_americans_say_us_is_out_of_control/o0u5mzl/
+
+"mental illness". Twitter-length commenting on Reddit. ANYTHING to avoid nonfiction books on paper. Dr. Bandy X Lee's book from October 3, 2017 avoided again and again by Reddit touch-device meme aficionados. Anti-book, anti-FAQ, anti-Wiki.. Reddit fandoms of Trump use of information systems. Tweet-thinking.
