@@ -2035,3 +2035,19 @@ https://old.reddit.com/r/politics/comments/1qi8a2r/trump_shared_a_post_on_truth_
 https://old.reddit.com/r/politics/comments/1qi8a2r/trump_shared_a_post_on_truth_social_claiming_that/o0pisv9/
 
 2 week old Reddit account.
+
+https://old.reddit.com/r/politics/comments/1qi8a2r/trump_shared_a_post_on_truth_social_claiming_that/o0pnt7b/
+
+https://old.reddit.com/r/politics/comments/1qi8a2r/trump_shared_a_post_on_truth_social_claiming_that/o0pi1o5/
+
+1 month Reddit account.
+
+https://old.reddit.com/r/politics/comments/1qi8a2r/trump_shared_a_post_on_truth_social_claiming_that/o0pkf4u/
+
+1 month Reddit account.
+
+https://old.reddit.com/r/politics/comments/1qi8a2r/trump_shared_a_post_on_truth_social_claiming_that/o0pgzaq/
+
+https://old.reddit.com/r/politics/comments/1qi8a2r/trump_shared_a_post_on_truth_social_claiming_that/o0piek3/
+
+2 month Reddit account.
