@@ -2099,3 +2099,10 @@ OPERA_A https://www.youtube.com/watch?v=wsEwK69LXjQ "**MINE WORKERS** STRIKE"; "
 
 OPERA_A https://www.youtube.com/watch?v=L0bqmIBczJI "I am man who reveals all he digs", should be more careful what I share with North Africa nations.... 55,002 views October 23, 2008 SCREWED AGAIN, Ladies in Tunisia and Algeria - IT IS YOU WHO FEELS THE PAIN! Lyrics: "I take **miners to work, but the pits all closed** today! It's easy to see that you are *one of us*. Ain't it funny how we all seem to look the same?" - I'm being put down, pushed around on the Internet, every day since March 2013 IRA invasions!
 
+https://old.reddit.com/r/worldnews/comments/1qiyy04/trump_at_davos_demands_immediate_talks_on/o0uwfx0/
+
+https://old.reddit.com/r/worldnews/comments/1qiyy04/trump_at_davos_demands_immediate_talks_on/o0uwm21/
+
+Reddit minds blown, *again and again*, daily by Trump content creation. The biggest influencer in human history, by far, and Reddit fandom addicts. The audience on Reddit can not resist flocking to Trump.
+
+* "He offers to not make a speech, instead welcoming the Ph.D. students, professors, journalists, and politicians gathered in an auditorium at the London School of Economics to pose questions and have an open discussion. **After the first question, he talks for almost 45 minutes, leaving hardly any time for questions after all**. It’s his **political system in miniature:** democratic rhetoric and undemocratic intent." - Putinism author. https://www.TheAtlantic.com/international/archive/2014/11/hidden-author-putinism-russia-vladislav-surkov/382489/
