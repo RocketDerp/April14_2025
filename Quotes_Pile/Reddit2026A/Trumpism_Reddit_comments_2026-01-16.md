@@ -1114,3 +1114,18 @@ https://old.reddit.com/r/politics/comments/1qiuwxw/71_percent_of_americans_say_u
 Yes. Many are polling against Trump because they are programmed by Cambridge Analytica and Internet Research Agency to: *hate harder, self-harm harder, wreck Earth harder* values. Sports-think rectangle "squares" (Charlie Brown "Block-head", "A Square")....
 
 OPERA_A Go back to class, adult education, *you can pass*. With GOODNESS, there is no danger if we go too far! https://www.youtube.com/watch?v=XA-xjRsY71w ... grease those square mindsets! 10,066,819 views July 16, 2013 - we throw away conventionality... it belongs to *yesterday*! There is a *chance*!
+
+https://old.reddit.com/r/AskReddit/comments/1qiwab7/how_is_trump_demand_for_greenland_any_different/o0uf4va/
+
+Surkovian strategy. Alas, no off-Reddit URL
+
+https://old.reddit.com/r/AskReddit/comments/1qiwab7/how_is_trump_demand_for_greenland_any_different/o0ucq51/
+
+Druggies on Reddit must think that everyone throughout history always had drugs as a motivation. Fox News HDTV is the drug, Facebook mindsets, Elon Musk Twitter Tweeting. Reddit commenting. **Addiction to fantasy memes and Tweet messaging fiction storytelling**. MAGA and Trump and conservatives prize fiction. Study the Taliban in Swat Valley Pakistan, go ask Malala and her school friends!
+
+* "The Crusades were military campaigns undertaken by Western Christians to reclaim the Holy Land, or Palestine, from Muslim control between the 11th and 13th centuries. Launched by the papacy with promises of spiritual reward" https://en.wikipedia.org/wiki/Crusades
+
+People die for Quran science fiction vs. Bible science fiction! 
+
+* “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.”
+― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. PUBLISHED October 8, 2013. a DECADE before October 7, and a book ignored by Muslims / fandom of Mohammad science fiction public dreams.
