@@ -2154,3 +2154,9 @@ https://old.reddit.com/r/minnesota/comments/1qj02xv/trump_in_front_of_world_lead
 Trump and Surkov students are running circles around Reddit audience. The mockery mind-blowing of Reddit meme addicts. Finnegans Wake 1923 by James Joyce can cure this mind blowing by high speed electric media consumers.
 
 * Casey "Remrov" Vormer, Connecting With The Autism Spectrum: How To Talk, How To Listen, And Why You Shouldn’t Call It High-Functioning: “Associative thinkers see relations and connections everywhere and tend not to categorize things. When I hear or read a certain word, I suddenly see a lot of “pictures” in my mind that have something to do with that word. This happens in quite an unstructured and even chaotic way. It's a complicated spiderweb of memories, pictures, and thoughts.” - Page 19. https://www.GutknechtAutism.ORG/QuotesAndQuotes
+
+https://old.reddit.com/r/minnesota/comments/1qj02xv/trump_in_front_of_world_leaders_decides_to_attack/o0vbfia/
+
+ANSWER: What you on Reddit have been doing: celebrating ignorance as defined by Carl Sagan in his 1995 book. Sucking down dumb-memes, and it shows. We The People dumbing down with sound-bite media junk. https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Carl_Sagan_Quotes.md#celebration-of-ignorance
+
+
