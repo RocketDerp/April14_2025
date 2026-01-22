@@ -2367,3 +2367,8 @@ Small town people depend on compassion and intelligent rural people to stand up 
 You voted for your drug addiction, you voted for your booze, ha ha ha. Leopards ate faces. Anti-compassion bullshit. Rupert Murdoch has made entertainment Fox News a mechanism of abuse. A way to dehumanize with Fox News jokes and memes. And Reddit addicts do the same god-dam thing Rupert Murdoch does. Promote ignorance and anti-understanding.
 
 OPERA_A All my friend in Indiana destroyed the fucking world with their terrible education. A city slicker in New York City and Fox News HQ in New York City fucked-over my high school class in Fort Wayne, Indiana and all their children. It is a fucking horror show what billionaires have done to rural less-educated USA people in Indiana since year 2013. https://www.youtube.com/watch?v=joNzRzZhR2Y 9,667,822 views October 5, 2009 
+
+https://old.reddit.com/r/worldnews/comments/1qjnw6k/trump_backpedals_on_threats_against_greenland_but/o10nuch/
+
+Every age of USA adopted Apple iPhone and iPad meme-think. Twitter-think Tweet-shit all over Reddit front page /r/All. Donald Trump was never fucking funny for one minute. His orange skin isn't funny. His diaper poop in't funny. There is REAL COMEDY to watch. Turning the entire nation into a joke for meme is mental sickness. Reddit is a bunch of sick people who prize diaper shit. Anti-intellectuals. Avoidance of nonfiction book. Jen Senko and Dr. Bandy X. Lee ignored while everyone jokes away about Trump playing golf.
+
