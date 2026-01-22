@@ -2414,3 +2414,15 @@ Left vs. right is brainrot mindset. The Founding Fathers did not put left vs. ri
 https://old.reddit.com/r/clevercomebacks/comments/1qjlbrh/he_is_and_its_not_just_europe_its_the_whole_world/o108870/
 
 "laughing"
+
+https://old.reddit.com/r/clevercomebacks/comments/1qjlbrh/he_is_and_its_not_just_europe_its_the_whole_world/o108lpz/
+
+"extremely mentally ill"
+
+Twitter-length short-message commenting. Anything to avoid the nonfiction section of the public library. Elon Musk mindsets of Twitter-think.
+
+https://old.reddit.com/r/clevercomebacks/comments/1qjlbrh/he_is_and_its_not_just_europe_its_the_whole_world/o1043g4/
+
+https://old.reddit.com/r/clevercomebacks/comments/1qjlbrh/he_is_and_its_not_just_europe_its_the_whole_world/o107v98/
+
+"laughing", "mentally ill"
