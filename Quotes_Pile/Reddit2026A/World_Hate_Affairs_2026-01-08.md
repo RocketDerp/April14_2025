@@ -2411,3 +2411,6 @@ https://old.reddit.com/r/clevercomebacks/comments/1qjlbrh/he_is_and_its_not_just
 
 Left vs. right is brainrot mindset. The Founding Fathers did not put left vs. right into any of the founding documents. The Great Seal of the United States of America specifically teaches not to think that way. See: https://github.com/GreatSealUSA/GreatSealUSA_Art
 
+https://old.reddit.com/r/clevercomebacks/comments/1qjlbrh/he_is_and_its_not_just_europe_its_the_whole_world/o108870/
+
+"laughing"
