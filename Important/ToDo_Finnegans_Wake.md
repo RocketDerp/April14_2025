@@ -803,3 +803,9 @@ This is great for the Wake opera.
 Saint Patrick's on the window. Booze serving. The ever-changing identity of ALP.    
 
 * "In James Joyce's Finnegans Wake, Anna Livia Plurabelle (ALP) undergoes constant, fluid identity changes, representing a universal, archetypal feminine force that merges with nature, history, and myth. As a personification of the River Liffey, her identity is defined by transformation, renewal, and "difference" rather than a fixed, stable personality." - Google Search summary 2026-01-21 afternoon USA
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1qjyacf/british_soldiers_home_from_afghanistan_after/
+
+Funeral Wake rituals and experiences. State funeral, soldiers.   
