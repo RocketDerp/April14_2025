@@ -1538,3 +1538,28 @@ Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mczrqvkbe2
 https://old.reddit.com/r/worldnews/comments/1qjyf70/white_house_confuses_belgium_with_belarus_and/o12gejz/
 
 Reddit joke-washed the Internet Research Agency IRA, Saint Pete Russia, over and over. "Nothingburger" washing the IRA infiltration of media society (including Reddit audience). Reddit is white-washing cleaning service for Russia... ready army of users mocking away at Putin and Russia and avoiding nonfiction learning. Avoided learning.... Published October 20, 2011 in English. About Russia technique  https://www.LRB.co.uk/the-paper/v33/n20/peter-pomerantsev/putin-s-rasputin
+
+
+
+https://old.reddit.com/r/50501/comments/1qjzcgs/fbi_has_begun_arresting_organizers_in_minneapolis/o12picx/
+
+<img width="1256" height="611" alt="image" src="https://github.com/user-attachments/assets/1ebff584-9ca0-4027-b973-a778a948a791" />
+
+Ponder this message on Reddit. What is says about "so funny", how engaging the White House and Kremlin techniques are with Reddit community. The recognition of it being { humor, funny, amusing, comedy }. Alas, Reddit community will not recognize this is an organized information warfare technique. { Surkov Siege, Surkovian governing, Surkovian information warfare }. Where crowd mind is exploited with comedy and humor to blow the minds of audiences via mass media systems.
+
+The feedback loop of "fuck your feelings", between political parties (Republicans vs. Democrats club identity) is described. A communications of hate feedback loop. Hate vs. hate, hate for hate, *hate harder* warfare. Ted's book page 13 from year 2015 describes the recognition of these fiction addiction behaviors of media messaging feedback loops.
+
+Content production. For the Reddit audience. Keeps people away from the nonfiction section of the public library, addicted to the next antics politics out of the Kremlin and White House. Surkov governing.
+
+Russia and the **Menace of Unreality**   
+How Vladimir Putin is revolutionizing information warfare   
+Peter Pomerantsev   
+September 9 2014, 3:42 PM ET   
+
+“If previous authoritarian regimes were three parts violence and one part propaganda,” argues Igor Yakovenko, a professor of journalism at the Moscow State Institute of International Relations, “this one is **virtually all propaganda and relatively little violence**. Putin only needs to make a few arrests—and then amplify the message through his total control of television.”
+
+Translated from 2013 Russia to USA 2025: I.C.E. raids are very little violence and a lot of showboating. A lot of Reddit front-page I.C.E. raids for visual meme addicts / meme consumers. Simple-think logic polarity minds. The audience has no recognition that Kremlin and White House has the Reddit total control of media amplifiers. Reddit is amplifying media from all over the Internet. [Eating the onions](../Reddit2025A/Surkovian_Onion_Eating.md) that Trump and Musk is dementia stupid dumb idiot, Reddit society unable to engage and comprehend and understand off-Reddit... September 9, 2014: https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+Social post { https://autistics.life/@RoundSparrow/115940552123017785 https://bsky.app/profile/roundsparrow.bsky.social/post/3mczyery3hk2p }
+
+ToDo: ? #FWakeLeftRight hashtag not been touched in a while?
