@@ -2389,3 +2389,16 @@ Neil Postman's 1985 book describes social media Hell society that thinks Trump i
 https://old.reddit.com/r/clevercomebacks/comments/1qjlbrh/he_is_and_its_not_just_europe_its_the_whole_world/o10y2wu/
 
 The Reddit crowd. "LOL, triggered you!" bullshit. Mocking and mocking and mocking, and always faith in MORE mocking and "triggering". The denial that it is *only* MAGA. Maybe it was only MAGA in year 2015, but now it is the entire population of USA. The WHOLE WORLD is sick of the meme-think Tweet-think behaviors. Twitter screen shots on /r/All constantly! "Dementia" is not a fucking JOKE. It is not god damn funny! 
+
+https://old.reddit.com/r/clevercomebacks/comments/1qjlbrh/he_is_and_its_not_just_europe_its_the_whole_world/o1016e9/
+
+https://old.reddit.com/r/clevercomebacks/comments/1qjlbrh/he_is_and_its_not_just_europe_its_the_whole_world/o100tqd/
+
+<img width="1555" height="336" alt="image" src="https://github.com/user-attachments/assets/81b5fe23-329c-41e6-a3e6-2092ce8bf0fb" />
+
+https://old.reddit.com/r/clevercomebacks/comments/1qjlbrh/he_is_and_its_not_just_europe_its_the_whole_world/o0zy2et/
+
+Denial abounds. Surkov won since March 2013. Whatever progress the USA society (all, not just Republicans) had going in year 2012 became trashed into Reddit-speak meme-think Twitter-think Fox News thinking logic mindsets. Cambridge Analytica and the Internet Research Agency *did a number* on the hearts and minds of the nation. But nobody here in USA can read nonfiction books by Peter Pomerantsev published in year 2014 and year 2019 and face up to the denial.
+
+* “The human brain can protect us from seeing and feeling what it believes may be too uncomfortable for us to tolerate. It can lead us to deny, defend, minimize, or rationalize away something that doesn’t fit our worldview.”
+― Dr. Bandy X Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. Published **October 3, 2017**. Page 273. Chapter "TRUMP'S DADDY ISSUES"](https://books.google.com/books?id=g0c4DwAAQBAJ&pg=PA273&dq=%E2%80%9CThe+human+brain+can+protect+us+from+seeing+and+feeling+what+it+believes+may+be+too+uncomfortable%22&hl=en&newbks=1&newbks_redir=1&sa=X)
