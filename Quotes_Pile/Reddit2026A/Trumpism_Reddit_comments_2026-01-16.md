@@ -1376,3 +1376,13 @@ https://old.reddit.com/r/UnderReportedNews/comments/1qjeewi/aoc_the_president_ha
 
 * “Shaw once remarked that all professions are conspiracies against the laity. I would go further: in Technopoly, all experts are invested with the charisma of priestliness. Some of our priest-experts are called psychiatrists, some psychologists, some sociologists, some statisticians. The god they serve does not speak of righteousness or goodness or mercy or grace. Their god speaks of efficiency, precision, objectivity. And that is why such concepts as sin and evil disappear in Technopoly. They come from a moral universe that is irrelevant to the theology of expertise. And so the priests of Technopoly call sin “social deviance,” which is a statistical concept, and they call evil “psychopathology,” which is a medical concept. Sin and evil disappear because they cannot be measured and objectified, and therefore cannot be dealt with by experts.” ― Neil Postman, Technopoly: The Surrender of Culture to Technology. Year 1992
 
+https://old.reddit.com/r/UnderReportedNews/comments/1qjeewi/aoc_the_president_has_been_acting_in_increasingly/o0yimwl/
+
+Tech addict on an Apple iPhone / iPad / Android device things it is all so funny. A funny video clip. Mocking away. Why aren't you down at the public library getting **nonfiction books about cult deprogramming** and resucing MAGA using Reddit postings? Instead of finding it all funny to see a video of how fucked-up the situation has been. Why aren't you quoting Dr. Martin Luther King Jr? https://en.wikiquote.org/wiki/Martin_Luther_King_Jr. Technology addicts to funny video content, elder mocking. Anti-intellectual. 
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qjeewi/aoc_the_president_has_been_acting_in_increasingly/o0yfuyb/
+
+A Reddit user cracking jokes about social media not having the ability to comment on media. Not thinking at all, just joke-cracking.  I witness very little hard-thinking about how amusement and entertainment is being lead by a Reality TV entertainer.
+
+* “For in the end, he was trying to tell us what afflicted the people in 'Brave New World' was not that they were laughing instead of thinking, but that they did not know what they were laughing about and why they had stopped thinking.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. Year 1985.
+
