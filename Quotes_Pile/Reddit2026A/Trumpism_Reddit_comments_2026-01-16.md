@@ -1477,3 +1477,10 @@ Reddit posting title: { Lunatic, Dangerous, Moron }.
 
 That is what attracts the Reddit fandom of Trump. There has never been an easier target of bullying and abuse. The crowds that form on Reddit to lather and wash Trump with jokes and comedy. It never ends, for over 10 years and 7 months. Endlessly prizing Trump as a source of content. All nformation systems have been trashed as people adopted Trump behaviors.
 
+https://old.reddit.com/r/politics/comments/1qjpnj4/now_is_the_time_to_admit_it_america_trump_is_a/o10n9tv/
+
+https://old.reddit.com/r/politics/comments/1qjpnj4/now_is_the_time_to_admit_it_america_trump_is_a/o10o51k/
+
+Information overload. It is fucking impossible to find any solid information that isn't buried in Reddit memes and jokes. The skilled technical people of the world are spending all their spare time and free time joke-cleaning Trump, sane-cleaning Trump because they believe in orange-skin jokes far more than they believe in MLK Jr quotes.
+
+Rick Roderick talked about this information overload. Neil Postman 1992 book. But what' the fucking point. Reddit community is a noise joke meme machine of the most technically gifted and talented people who drown out everything serious and important.
