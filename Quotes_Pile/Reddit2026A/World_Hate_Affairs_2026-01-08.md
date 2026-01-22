@@ -2478,7 +2478,7 @@ You see the same mind-fucking messages on Reddit about New York Times or Washing
 
 Rick Roderick's 1993 lectures talk about information overload and complexity. And this is what billionaires are exploiting. Go to ChatGPT for all your needs, don't go to individual Newsweek sources and fact-check individual stories. Loyalty to a brand-name source.
 
-https://old.reddit.com/r/politics/comments/1qjrw0a/trump_snubbed_by_every_major_ally_for_big_signing/o117kyl/\
+https://old.reddit.com/r/politics/comments/1qjrw0a/trump_snubbed_by_every_major_ally_for_big_signing/o117kyl/
 
 Recency bias abounds. USA population learned nothing of Quran science fiction vs. Torah science fiction from September 11, 2001 ; 9/11. Fox News HDTV vs. MSNBC HDTV fandom behaviors. We just keep ignoring media addiction to science fiction stories as a problem we keep carrying into the future. Fiction outsells nonfiction.
 
