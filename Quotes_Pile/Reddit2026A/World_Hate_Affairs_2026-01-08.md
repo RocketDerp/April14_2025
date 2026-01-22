@@ -2336,4 +2336,7 @@ Reddit society alone has made the USA look ignorant. Dumb worship center. Like H
 
 People who fare so little about their own father that they let Rupert Murdoch and Rush Limbaugh mind-fuck them. Young men on Reddit are so fucking afraid of women leaders like Jen Senko that they won't even address their own father's addictions. Anti-compassion. Elon Musk ant-empathy Reddit mob mentality. Why is Jen Senko ignored on Reddit? Why isn't she the magic role model to hold up and teach how to rescue your own father from Fox News? https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad
 
+https://old.reddit.com/r/worldnews/comments/1qjnw6k/trump_backpedals_on_threats_against_greenland_but/o10e5fo/
+
+USA population won't face up to addiction to shit content. Reality TV fake fiction bullshit. Addicts to Reddit fiction trash called "memes", shit-commenting, shit-posting, terrible horrible jokes and humor. Reddit is as dumb as Fox News now.
 
