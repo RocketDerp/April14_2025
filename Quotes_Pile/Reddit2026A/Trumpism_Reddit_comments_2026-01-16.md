@@ -1498,3 +1498,16 @@ The topic of language usage by Reddit audience, this article from The Atlantic i
 This Reddit Post is a call for superficial, shallow, banal change. Wrapped in mind-fucking title. As for the comment and mask topic, it is Twitter-length comment, the most upvoted. It asserts nothing but an old anti-science behavior. But it doesn't call anything what it is. Russian mind-fucking. August 24, 2018 link i the topic Reddit audience will not memorize and repeat. BBC https://www.bbc.com/news/world-us-canada-45294192
 
 See also: https://github.com/RocketDerp/April14_2025/blob/main/PostMalala/The_Avoided_Topics/ToDo_Avoided_Topics_Top_13.md
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qjvbbp/im_generally_a_liberal_person_but_when_i_saw/o11vyzv/
+
+MAGA values. Trumpism values. Gun worship USA on the world stage. The whole world expects terrorism USA to continue to shed and abandon MLK Jr world leadership. MLK Jr was taught at American Corner in Oran Algeria in year 2010 in the Arab Spring. My wife told me about it and we discussed online how the USA government was teaching in Oran about it. That shit is all destroyed now. Anti-Malala pro-Taliban values USA.
+
+People will not stand up and die for a book. People will not stand up and die for a GitHub project. People will not stand up for an idea beyond the Middle East  / Levant out-group hate bullshit. 
+
+Russia went for the NRA early in the online manipulation war against USA. Fox News HDTV is the MAGA problem and Reddit could be teaching https://old.reddit.com/r/CriticalMediaTheory Critical Media Theory instead of gun worship. OPERA_A Minds that hate. Death to shoot and kill. https://www.youtube.com/watch?v=BGLGzRXY5Bw 95,683,916 views October 20, 2015
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qjvbbp/im_generally_a_liberal_person_but_when_i_saw/o11yvak/
+
+Left-right logic brainrot.  War is bad, civil war, global war, bad is bad. MLK Jr teaching is worth death for. Solving problem with gun violence is not worth another children generation raised that guns and weapon systems are the answer. Putin has already been teaching the world that answer since February 20, 2014.
+
