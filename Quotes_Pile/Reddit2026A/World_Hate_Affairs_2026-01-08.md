@@ -2386,3 +2386,6 @@ https://old.reddit.com/r/clevercomebacks/comments/1qjlbrh/he_is_and_its_not_just
 
 Neil Postman's 1985 book describes social media Hell society that thinks Trump is amusing entertainment! Meme addict society.  September 10, 2025 https://Time.com/7313999/neil-postman-trump-prediction/
 
+https://old.reddit.com/r/clevercomebacks/comments/1qjlbrh/he_is_and_its_not_just_europe_its_the_whole_world/o10y2wu/
+
+The Reddit crowd. "LOL, triggered you!" bullshit. Mocking and mocking and mocking, and always faith in MORE mocking and "triggering". The denial that it is *only* MAGA. Maybe it was only MAGA in year 2015, but now it is the entire population of USA. The WHOLE WORLD is sick of the meme-think Tweet-think behaviors. Twitter screen shot son on /r/All constantly! "Dementia" is not a fucking JOKE. It is not god damn funny! 
