@@ -272,4 +272,11 @@ OPERA_A Sailing away on the thin ice of a new day. Cracking away. https://www.yo
 
 # NYC Manipulation of Trump + Giuliani 
 
-Obama bin Ladden, 9/11, intentionally provoked this in NYC symbolic icons. Sybolism monomyth warfare
+Osama bin Laden, 9/11, intentionally provoked this in NYC symbolic icons. Sybolism monomyth warfare
+
+Trump NYC tall building owner fell for it    
+Mayor Rudy Giulani NYC fell for it   
+NYC Steely Dan "Everything Must Go" tried to prevent Trumpism MAGA    
+
+* "I tell you, freedom and human rights in America are doomed. The U.S. government will lead the American people in — and the West in general — into an unbearable hell and a choking life."
+Al-Jazeera interview, (21 October 2001), as reported in "Bin Laden's sole post-September 11 TV interview aired" CNN (31 January 2002)
