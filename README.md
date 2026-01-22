@@ -2,7 +2,7 @@ Stephen Alfred Gutknecht
 
 Long-form scratch pad / dumping ground.
 
-Much of this content is extremely raw product of brain damage attempting to express ideas. Not edited, not spell checked, serious problems with language brain issues.
+Much of this content is extremely raw product of brain damage attempting to express ideas. Not edited, not spell checked, serious problems with language brain issues. [About This GitHub Project / Content](/Important/About/About_this_GitHub.md).
 
 Thank you. [Love to all](Quotes_Pile/Specific/MLKjr_revolution_of_values.md).
 
