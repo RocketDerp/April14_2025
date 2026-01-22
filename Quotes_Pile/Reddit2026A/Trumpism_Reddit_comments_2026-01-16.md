@@ -1350,3 +1350,12 @@ This very fucking GitHub project is for that very god-damn issue. Why did it go 
 I think the thing that turned the tide was not as much Trump's bullshit, but the speech by our neighbors in Canada. It might have woke a few people to see jut how far it had gone on for so fucking long. the PRETENDING it is normal to joke all day and all night about a 79-year old man's acting and Reality TV. Infinite Jest, My GOD!11
 
 Social post { https://autistics.life/@RoundSparrow/115936328143144780 https://bsky.app/profile/roundsparrow.bsky.social/post/3mcy4eqednc2m }
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qjeewi/aoc_the_president_has_been_acting_in_increasingly/o0yfa5a/
+
+The media, social media systems, comedy-washed sane-washed humor-washed Trump as a great source of memes and entertainment. Trump's acting as President Tony Clifton has blown minds. Nonfiction books have been abandoned with so many minds blown by LOL LOL at Donald J. Trump's performances. The man never gets tired of standing in front of the camera for meme audiences. 
+
+* "For all his perspicacity, George Orwell would have been stymied by this situation; there is nothing “Orwellian” about it. The President does not have the press under his thumb. The New York Times and The Washington Post are not Pravda; the Associated Press is not Tass. And there is no Newspeak here. Lies have not been defined as truth nor truth as lies. **All that has happened is that the public has adjusted to incoherence and been amused** into indifference. Which is why Aldous Huxley would not in the least be surprised by the story. Indeed, he prophesied its coming. He believed that it is far more likely that the Western democracies will dance and dream themselves into oblivion than march into it, single file and manacled. Huxley grasped, as Orwell did not, that it is not necessary to conceal anything from a public insensible to contradiction and **narcoticized by tech**nological diversions. Although Huxley did not specify that television would be our main line to the drug, he would have no difficulty accepting Robert MacNeil’s observation that “Television is the soma of Aldous Huxley’s Brave New World.” Big Brother turns out to be Howdy Doody."
+― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, **year 1985**, page 111
+
+
