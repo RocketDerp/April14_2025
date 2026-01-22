@@ -1339,3 +1339,14 @@ https://old.reddit.com/r/UnderReportedNews/comments/1qjeewi/aoc_the_president_ha
 
 Two-words. The issue is not if she is right, but why are people with all the free time and spare time to write two-word comments WAITING AROUND for other people to say it first?
 
+https://old.reddit.com/r/UnderReportedNews/comments/1qjeewi/aoc_the_president_has_been_acting_in_increasingly/o0ygiej/
+
+<img width="1035" height="705" alt="image" src="https://github.com/user-attachments/assets/5b5a08e6-ee09-4f78-b4d0-a7139c0422a4" />
+
+This very fucking GitHub project is for that very god-damn issue. Why did it go this fucking far? Jokes and humor. It's been fucking TORTURE. There is no fun in any area of society, the denial of how fucked up the thinking is. The avoidance of GOOD FREE-THINKING LEADERS like Dr. Bandy X Lee and Jen Senko.
+
+* “Everything in our background has prepared us to know and resist a prison when the gates begin to close around us . . . But what if there are no cries of anguish to be heard? Who is prepared to take arms against a sea of amusements? To whom do we complain, and when, and in what tone of voice, when serious discourse dissolves into giggles? What is the antidote to a culture's being drained by laughter?” ― NYU (Trump home town) Neil Postman, [Amusing Ourselves to Death: Public Discourse in the Age of Show Business. Page 156.](https://books.google.com/books?id=oup6iagfox8C&pg=PA156&dq=%E2%80%9CEverything+in+our+background+has+prepared+us+to+know+and+resist+a+prison+when+the+gates+begin+to+close+around+us%22&hl=en&newbks=1&newbks_redir=1&sa=X)
+
+I think the thing that turned the tide was not as much Trump's bullshit, but the speech by our neighbors in Canada. It might have woke a few people to see jut how far it had gone on for so fucking long. the PRETENDING it is normal to joke all day and all night about a 79-year old man's acting and Reality TV. Infinite Jest, My GOD!11
+
+Social post { https://autistics.life/@RoundSparrow/115936328143144780 https://bsky.app/profile/roundsparrow.bsky.social/post/3mcy4eqednc2m }
