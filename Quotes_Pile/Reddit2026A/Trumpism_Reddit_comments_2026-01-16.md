@@ -1419,3 +1419,10 @@ Every person should be standing up and saying that the entire society is toxic. 
 https://old.reddit.com/r/minnesota/comments/1qjhqmd/5yearold_liam_ramos_the_boy_with_the_bunny_hat/o0zbb3p/
 
 Faith in hate. Trump leads with hate, and We The People follow the leader.
+
+https://old.reddit.com/r/worldnews/comments/1qjnw6k/trump_backpedals_on_threats_against_greenland_but/o10m2da/
+
+Like anyone can trust the USA Internet. Like anyone can trust the comments on Reddit or Elon Musk Twitter. Like anyone can trust all the Reddit users beholden to billionaire tech. Addicts to technology. Our schools now are legendarily pro ignorance. People worry about spelling and writing and don't give a fuck about honesty and sincerity in USA. We used to have the university society the whole world young adults away from home. Now we are just a bunch of sports-jocks with sport-think greed.
+
+* “Technopoly is a state of culture. It is also a state of mind. It consists in the deification of technology, which means that the culture seeks its authorization in technology, finds its satisfactions in technology, and takes its orders from technology.” ― Neil Postman, Technopoly: The Surrender of Culture to Technology. Year 1992
+
