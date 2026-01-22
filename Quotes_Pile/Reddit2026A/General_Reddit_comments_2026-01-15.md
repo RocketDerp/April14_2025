@@ -1349,3 +1349,9 @@ Instead of reacting, social media (Reddit) audiences need to stand up and assert
 https://old.reddit.com/r/DiscussionZone/comments/1qjwut1/hasnt_read_the_bible_in_a_while_i_guess/o1283dq/
 
 Organizing around these kids of literacy lessons and teachings would be goodness, asserting good. "1 John 4:20" Bible verse is all over this GitHub project if you search / grep.
+
+https://old.reddit.com/r/DiscussionZone/comments/1qjwut1/hasnt_read_the_bible_in_a_while_i_guess/o125e3o/
+
+There is a very serious problem of people saying "never read a book". The Bible is incredibly difficult to read! It is complex poetry. To downplay the { comprehension, understanding, interpretations } of the { Torah, Bible, Quran, Book of Mormon } is a big mistake in my view. The issue is not reading it, it is the paradoxes that arise out of poetry and metaphors. People can read a book or watch a film and get entirely different concepts and ideas with that. This is a huge reason University of Toronto's Marshall McLuhan made James Joyce's writings a cornerstone of this media ecology teachings!
+
+My website for teaching the general public: https://www.LazyWake.com - on that front page bottom you will see "Finnegans Wake is the greatest guidebook to media study ever fashioned by man." - Marshall McLuhan, Newsweek Magazine, p.56, February 28, 1966
