@@ -12,7 +12,7 @@ If the world just passed us by... just one person. Alas, the toxic society / par
 
 ## Everywhere Out-Group Hate
 
-1. IMPORTANT_A if anyone ever reads what I say here, they may get the impression I hate relgion. Not at all! I think the Quran / Torah / Bible have a lot to teach. Inspiring science fiction and history of fandom of science fiction. It is the failure to adopt MLK Jr's reformations and Malala's reformation of the Levant science fiction triollogy that I criticize since 1948. James Joyce's monomyth gumbo, Finnegans Wake. People will not accept that the metaphors translate from old Torah monomyth patterns to new The Matrix 1999 patterns, or Star Wars 1977 patterns. Inspiring science fiction storytelling. Ultimatly, Malala seems better at pointing to goodness AND getting published for it than clergy that is still locked in out-group hate as Campbell described in 1987 Power of Myth published 1988. Including hate of Earth. ... ... ... "Now, the biblical tradition is a socially oriented mythology. Nature is condemned. In the nineteenth century, scholars thought of mythology and ritual as an attempt to control nature. But that is magic, not mythology or religion. Nature religions are not attempts to control nature but to help you put yourself in accord with it. But when nature is thought of as evil, you don’t put yourself in accord with it, you control it, or try to, and hence the tension, the anxiety, the cutting down of forests, the annihilation of native people. And the accent here separates us from nature." - age 83, Joseph Campbell, 1987
+1. IMPORTANT_A if anyone ever reads what I say here, they may get the impression I hate religions. Not at all! I think the Quran / Torah / Bible have a lot to teach. Inspiring science fiction and history of fandom of science fiction. It is the failure to adopt MLK Jr's reformations and Malala's reformation of the Levant science fiction triollogy that I criticize since 1948. James Joyce's monomyth gumbo, Finnegans Wake. People will not accept that the metaphors translate from old Torah monomyth patterns to new The Matrix 1999 patterns, or Star Wars 1977 patterns. Inspiring science fiction storytelling. Ultimatly, Malala seems better at pointing to goodness AND getting published for it than clergy that is still locked in out-group hate as Campbell described in 1987 Power of Myth published 1988. Including hate of Earth. ... ... ... "Now, the biblical tradition is a socially oriented mythology. Nature is condemned. In the nineteenth century, scholars thought of mythology and ritual as an attempt to control nature. But that is magic, not mythology or religion. Nature religions are not attempts to control nature but to help you put yourself in accord with it. But when nature is thought of as evil, you don’t put yourself in accord with it, you control it, or try to, and hence the tension, the anxiety, the cutting down of forests, the annihilation of native people. And the accent here separates us from nature." - age 83, Joseph Campbell, 1987
 
 
 &nbsp;
@@ -23,20 +23,29 @@ Travel enough. books traveled enough, people traveled enough. We started to see 
 
 Edward Bernays students were educated on the clergy systems. Dr. Abraham Brill took mass mind manipulation.
 
+&nbsp;
+
 ## Cambridge Analytica onward
 
-Carl Jung Quote; youngest of the sciences.
-
+"Why is psychology the youngest of the empirical sciences? Why have we not long since discovered the unconscious and raised up its treasure-house of eternal images? Simply because we had a religious formula for everything psychic — and one that is far more beautiful and comprehensive than immediate experience. Though the Christian view of the world has paled for many people, the symbolic treasure-rooms of the East are still full of marvels that can nourish for a long time to come the passion for show and new clothes. What is more, these images — be they Christian or Buddhist or what you will — are lovely, mysterious, richly intuitive."    
+Dr. Carl G Jung    
+The Archetypes and the Collective Unconscious    
+Year 1934    
+Page 7
 
 &nbsp;
 
+The conflicts between religion and science, from my experience and this quote's relevance, conflicts of religion vs. religion. Science fiction storytelling vs science fiction storytelling conflicts and hate. Groups / mob mentality. Society vs. society.
+
 &nbsp;
 
-## Communicating it lead boots
+## Communicating is lead boots
 
 Creating this page, even with no audience, just putting the Finnegans Wake prism into words of my own / songs off the shelf...
 
-Simon Baron-Cohen; July 1, 2003; "The Essential Difference: Male And Female Brains And The Truth About Autism", page 146. Quote ::: Another man with AS described his life in a very graphic way: 'Every day is like climbing Mount Everest in lead boots, covered in molasses. Every step in every part of my life is a struggle.' :::
+Simon Baron-Cohen; July 1, 2003; "The Essential Difference: Male And Female Brains And The Truth About Autism", page 146. Quote ::: Another man with AS **described his life in a very graphic way: 'Every day is like climbing Mount Everest in lead boots, covered in molasses. Every step in every part of my life is a struggle.'** :::
+
+Thursday January 22, 2025 shows an example of my writing brain damage reality. Proofreading and correcting is mental burnout. https://old.Reddit.com/r/mildlyinfuriating/comments/1qjyic1/my_wife_refuses_to_proofread_her_texts_she_sent/
 
 &nbsp;
 
