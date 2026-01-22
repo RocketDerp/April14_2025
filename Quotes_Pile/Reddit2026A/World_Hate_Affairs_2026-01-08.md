@@ -2429,6 +2429,8 @@ https://old.reddit.com/r/clevercomebacks/comments/1qjlbrh/he_is_and_its_not_just
 
 https://old.reddit.com/r/clevercomebacks/comments/1qjlbrh/he_is_and_its_not_just_europe_its_the_whole_world/o10loc1/
 
+<img width="1642" height="314" alt="image" src="https://github.com/user-attachments/assets/1a352da0-b4da-40d0-b383-df8724e3ba4c" />
+
 "laughing", "not funny"
 
 Trump never was funny. Orange skin isn't hilarious comedy. It is all symptoms of extreme shallowness and superficial behaviors. Repetitive superficial society of people who prize diaper poop and orange skin as some kind of sick way to wreck the world. 
