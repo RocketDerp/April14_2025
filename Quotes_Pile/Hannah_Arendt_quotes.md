@@ -15,6 +15,7 @@ A year 1976 / 1776 book that caught my eye:
 
 Ironic Politics: Critical Commitment in the Fourth Age    
 John S. Nelson    
+Page 590   
 
 https://books.google.com/books?id=Yh_zAAAAMAAJ&q=%22next+day+they+were+given+irrefutable+proof+of+their+falsehood,+they+would+take+refuge+in+cynicism;+instead+of+deserting+the+leaders%22&dq=%22next+day+they+were+given+irrefutable+proof+of+their+falsehood,+they+would+take+refuge+in+cynicism;+instead+of+deserting+the+leaders%22&hl=en&newbks=1&newbks_redir=1&printsec=frontcover&sa=X
 
