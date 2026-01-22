@@ -1407,3 +1407,7 @@ https://old.reddit.com/r/minnesota/comments/1qjda2f/observer_being_arrested_and_
 https://old.reddit.com/r/Economics/comments/1qjh3jr/donald_trumps_approval_rating_dips_to_new_second/o0yz63f/
 
 Surkov won. "reality"
+
+https://old.reddit.com/r/Economics/comments/1qjh3jr/donald_trumps_approval_rating_dips_to_new_second/o0z5ru6/
+
+The worst shit of media addicts in the 1990's has become everyone, all the time. It is not difficult AT ALL to locate Dr. Martin Luther King Jr's teachings. Free, one-click. https://en.wikiquote.org/wiki/Martin_Luther_King_Jr. - But that is avoided at all cost. People will not preach love, that we all need more love, people instead wake up every day, turn on the meme devices and preach *hate harder*. Media mania in their minds.
