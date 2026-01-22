@@ -1,6 +1,6 @@
 # The Mechanics of Popularity
 
-Same Bible book many Church and televangelist venues. The network of one media story distribution. Joyce saw the media systems progression of fiction media beinga adapted to new live theater perfomances (in Church) and emegence of distance media.
+Same Bible book many Church and televangelist venues. The network of one media story distribution. Joyce saw the media systems progression of fiction media being adapted to new live theater performances (in Church) and emergence of distance media.
 
 "Finnegans Wake is the greatest guidebook to media study ever fashioned by man." - Marshall McLuhan, Newsweek Magazine, p.56, February 28, 1966
 
