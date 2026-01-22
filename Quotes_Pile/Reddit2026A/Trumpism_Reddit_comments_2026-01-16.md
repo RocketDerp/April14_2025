@@ -1435,3 +1435,12 @@ The gullibility of We The People, to believe Donald Trump and trust Elon Musk an
 https://old.reddit.com/r/ProgressiveHQ/comments/1qjqtnl/he_has_degenerated_into_an_outcast/o119yjc/
 
 Trump fans on Reddit are attracted to poop. Shit-commenting, shit desires about Trump poop. There is a common pattern of not describing goodness or positive leaders to follow, just going onto Reddit for the sake of poop source - Trump.
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qjqtnl/he_has_degenerated_into_an_outcast/o11bxuj/
+
+3 month Reddit account.
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qjqtnl/he_has_degenerated_into_an_outcast/o11cpll/
+
+3 month Reddit account. Reply comment is 2 month Reddit account.
+
