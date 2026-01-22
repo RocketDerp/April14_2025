@@ -528,3 +528,6 @@ https://old.reddit.com/r/InterstellarKinetics/comments/1qk1ond/breaking_45_fbi_e
 
 Popular comment, upvo0ted: "all sane people" can "predict the future". Tiny-short messaging. This subreddit made the front page and only 4 months old. The description of the subreddit / community is advertising and marketing. "Interstellar Kinetics 🚀— Mission control for the financial frontier. We fuse advanced wealth strategy, blockchain intelligence, and cinematic storytelling into high‑impact transmissions. From Bitcoin to emerging Layer‑1s, we decode markets, map opportunities, and reveal structures that protect and multiply wealth. 💠 Our Focus • 📊 Crypto deep dives & market scans • 🏛 Dynasty trusts & asset protection • 🤖 Tech, AI & global policy shifts • 🎥 Brand, narrative & mission design"
 
+https://old.reddit.com/r/InterstellarKinetics/comments/1qk1ond/breaking_45_fbi_employees_defy_protocol_to_share/o13c7de/
+
+"Russia hoax". Anything to avoid linking off-Reddit about the "Internet Research Agency" invasion of Reddit. https://www.fastcompany.com/40557479/reddit-has-named-944-banned-russian-propaganda-accounts
