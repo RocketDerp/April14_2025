@@ -1637,3 +1637,7 @@ https://old.reddit.com/r/news/comments/1qk7by0/white_house_posts_digitally_alter
 
 https://old.reddit.com/r/news/comments/1qk7by0/white_house_posts_digitally_altered_image_of/o14f82e/
 
+https://old.reddit.com/r/minnesota/comments/1qk48b9/william_kelly_dawokefarmer_and_us_veteran_was/o13qwbq/
+
+Yes, the Bluesky and Reddit audience who waits for every Trump content, photograph of Trump, White House action. High speed information addictions gone wild. People who blow their minds out on antics politics and won't turn to nonfiction learning about mental health of groups, society-wide mental health issues. Cults of content on Reddit, etc. https://www.youtube.com/watch?v=09maaUaRT4M&t=743s "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL"
+
