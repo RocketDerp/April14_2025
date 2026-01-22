@@ -1470,3 +1470,10 @@ https://old.reddit.com/r/Fauxmoi/comments/1qjuuil/jane_fonda_were_seeing_things_
 We The People need to address the brain-rot meme-worship behaviors of social media. July 6, 2011 - Twitter social, Reddit social, Facebook social. https://theoutline.com/post/2445/trump-s-first-real-tweet-was-on-july-6-2011
 
 Why are people avoiding nonfiction leaders like Jen Senko? Dr. Bandy X Lee? Jane Fonda is fine, but people need to sustain focus and address all the giggles and chuckles and comedy in the audience that is drowning out. The Trump fandom want to smear shit-commenting and shit-posting about Trump, show is face every hour to poo and pee upon, and dance on his grave every day with even more shit-commenting... that nobody listens to serious and sincere leaders. Dunking on Trump, the fandom of Trump, won't clear the room for important and critical topics.
+
+https://old.reddit.com/r/politics/comments/1qjpnj4/now_is_the_time_to_admit_it_america_trump_is_a/o10mjm4/
+
+Reddit posting title: { Lunatic, Dangerous, Moron }.
+
+That is what attracts the Reddit fandom of Trump. There has never been an easier target of bullying and abuse. The crowds that form on Reddit to lather and wash Trump with jokes and comedy. It never ends, for over 10 years and 7 months. Endlessly prizing Trump as a source of content. All nformation systems have been trashed as people adopted Trump behaviors.
+
