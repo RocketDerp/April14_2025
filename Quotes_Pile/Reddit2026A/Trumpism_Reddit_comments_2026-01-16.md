@@ -1591,6 +1591,6 @@ Surkov won.
 
 https://old.reddit.com/r/Fauxmoi/comments/1qk322c/the_white_house_digitally_altered_the_arrest/o13kkge/
 
-White House / Kremlin audience blown into highly predictable mental state. Meme stupor, 4 word Reddit commenting. Using Bible monomyuth symbol, Surkovian techniques. Reddit audience flocks to every move of the White House and Elon Musk and get mind blown to avoid nonfiction serious intellectual defense leanring.
+White House / Kremlin audience blown into highly predictable mental state. Meme stupor, 4 word Reddit commenting. Using Bible monomyuth symbol, Surkovian techniques. Reddit audience flocks to every move of the White House and Elon Musk and get mind blown to avoid nonfiction serious intellectual defense learning.
 
 * "The brilliance of this **new type of authoritarianism** is that instead of simply oppressing opposition, as had been the case with twentieth-century strains, it climbs inside all ideologies and movements, exploiting and rendering them absurd. One moment Surkov would  ..." ― Peter Pomerantsev, Nothing Is True and Everything Is Possible: The Surreal Heart of the New Russia, **year 2014**
