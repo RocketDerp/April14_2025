@@ -2343,3 +2343,9 @@ USA population won't face up to addiction to shit content. Reality TV fake ficti
 https://old.reddit.com/r/worldnews/comments/1qjnw6k/trump_backpedals_on_threats_against_greenland_but/o10a22z/
 
 A hates B, B hate C, C hates A. And every other variation of out-group hate. USA "fuck you" attitude of Reddit and Bluesky society has been the lesson to the whole world. Hate and dehumanization with tech addictions.
+
+https://old.reddit.com/r/worldnews/comments/1qjnw6k/trump_backpedals_on_threats_against_greenland_but/o10h717/
+
+The god-damn fucking JOKES. The constant joking about Donald J. Trump. The "diaper don" jokes, the orange fucking skin jokes. "Just a prank, bro", 'Just joking, ha ha ha" of MAGA USA Reddit MAGA California USA. Jokes do not justify rape and greed! Jokes are abusive make aggressive lies in USA culture. Donald Trump is not funny, his Tiny Clifton act show show gullibility and dumb people are to wreck the world for a god damn stupid orange skin joke. USA joke addicts will not REMOVE Trump and stand up to their hate-filled friends for their raging egomania "joking" / 'pranking", "children's tears in Africa USAID, lol lol lol", "leopards faces, ha ha ha, LOL LOL" jokes! "Liberal tears, so sweet" joke telling.
+
+
