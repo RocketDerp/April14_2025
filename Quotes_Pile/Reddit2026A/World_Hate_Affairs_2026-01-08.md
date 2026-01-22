@@ -2439,7 +2439,7 @@ Trump never was funny. Orange skin isn't hilarious comedy. It is all symptoms of
 
 https://old.reddit.com/r/clevercomebacks/comments/1qjlbrh/he_is_and_its_not_just_europe_its_the_whole_world/o10qby1/
 
-Yes, an important observation. The anti-clever. "Clever comebacks" Tweet-pattern logic. This Reddit content is is joke-washing of Trump. *Tactical cleverness*. Reddit audience is mentally *owned* "PWNED" into prizing Trump as a constant source of mental stimulation and "jokes".
+Yes, an important observation. The anti-clever. "Clever comebacks" Tweet-pattern logic. This Reddit content is joke-washing of Trump / MAGA / Musk. *Tactical cleverness*. Reddit audience is mentally *owned* "PWNED" into prizing Trump as a constant source of mental stimulation and "jokes".
 
 OPERA_A https://www.youtube.com/watch?v=TLV4_xaYynY There must be some kind of way out of Reddit meme-think. There is too much confusion. I can't get no fuckin' relief. Trump billionaires drink my wine. THERE ARE MANY HERE AMONG US ON REDDIT WHO FEEL THAT LIFE IS BUT A JOKE.  268,247,932 views October 5, 2012 the mourning funeral wake hour is getting late....
 
