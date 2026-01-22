@@ -1520,3 +1520,8 @@ Why sin't Reddit putting an end to Trump by commenting and repeating over and ov
 https://old.reddit.com/r/MurderedByWords/comments/1qjzizz/can_this_loser_just_fade_into_obscurity_please/o12ojic/
 
 Front page of /r/All on Reddit Top upvoted (liked) comment on Reddit posting. The cult of MAGA mocking. The cult of mockery. Tiny short message comments, shit-commenting, about shit images. Audiences of shit media, Reddit fandom of Trump and MAGA shit. Media addiction cultists. A fandom of image mocking. Mocking Charlie Kirk, Elon Musk, Trump - that's their participation in democracy. Adding mocking to a Trump-lead mockery. Fandom of mockery itself. Absent topics: Dr. Bandy X Lee, Jen Senko (right-wing media cults, Fox News brainwashing cult, etc).
+
+https://old.reddit.com/r/worldnews/comments/1qjyf70/white_house_confuses_belgium_with_belarus_and/o12fvbg/
+
+Extreme tiny-short messaging, 3 works. Highly upvoted on Reddit. Fandom of mockery that Trump creates. Surkovin onion eaters who think mistakes and errors don't get massive press coverage for the Bluesky and Reddit Trump fandoms (fans of mocking and insulting, cults of the total mockery created by Trump). Onion eaters: https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Reddit2025A/Surkovian_Onion_Eating.md and *Words* are incredibly difficult and hard, as people go into mental meme cults. John 1:1 Bible verse. Tower of Babel metaphors abound.
+
