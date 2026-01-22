@@ -2340,3 +2340,6 @@ https://old.reddit.com/r/worldnews/comments/1qjnw6k/trump_backpedals_on_threats_
 
 USA population won't face up to addiction to shit content. Reality TV fake fiction bullshit. Addicts to Reddit fiction trash called "memes", shit-commenting, shit-posting, terrible horrible jokes and humor. Reddit is as dumb as Fox News now.
 
+https://old.reddit.com/r/worldnews/comments/1qjnw6k/trump_backpedals_on_threats_against_greenland_but/o10a22z/
+
+A hates B, B hate C, C hates A. And every other variation of out-group hate. USA "fuck you" attitude of Reddit and Bluesky society has been the lesson to the whole world. Hate and dehumanization with tech addictions.
