@@ -2402,3 +2402,12 @@ Denial abounds. Surkov won since March 2013. Whatever progress the USA society (
 
 * “The human brain can protect us from seeing and feeling what it believes may be too uncomfortable for us to tolerate. It can lead us to deny, defend, minimize, or rationalize away something that doesn’t fit our worldview.”
 ― Dr. Bandy X Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. Published **October 3, 2017**. Page 273. Chapter "TRUMP'S DADDY ISSUES"](https://books.google.com/books?id=g0c4DwAAQBAJ&pg=PA273&dq=%E2%80%9CThe+human+brain+can+protect+us+from+seeing+and+feeling+what+it+believes+may+be+too+uncomfortable%22&hl=en&newbks=1&newbks_redir=1&sa=X)
+
+https://old.reddit.com/r/clevercomebacks/comments/1qjlbrh/he_is_and_its_not_just_europe_its_the_whole_world/o0zzync/
+
+15-day Reddit account.
+
+https://old.reddit.com/r/clevercomebacks/comments/1qjlbrh/he_is_and_its_not_just_europe_its_the_whole_world/o10n0ub/
+
+Left vs. right is brainrot mindset. The Founding Fathers did not put left vs. right into any of the founding documents. The Great Seal of the United States of America specifically teaches not to think that way. See: https://github.com/GreatSealUSA/GreatSealUSA_Art
+
