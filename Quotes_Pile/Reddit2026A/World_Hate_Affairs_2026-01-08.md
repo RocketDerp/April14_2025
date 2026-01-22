@@ -2445,3 +2445,10 @@ OPERA_A https://www.youtube.com/watch?v=TLV4_xaYynY There must be some kind of w
 
 * “In an ever-changing, incomprehensible world the masses had reached the point where they would, at the same time, believe everything and nothing, think that [everything was possible and that nothing was true](https://en.wikipedia.org/wiki/Nothing_Is_True_and_Everything_Is_Possible). ... Mass propaganda discovered that its audience was ready at all times to believe the worst, no matter how absurd, and did not particularly object to being deceived because it held every statement to be a lie anyhow. The totalitarian mass leaders based their propaganda on the **correct psychological assumption** that, under such conditions, one could make people believe the most fantastic statements one day, and trust that if the next day they were given irrefutable proof of their falsehood, they would take refuge in **cynicism**; instead of deserting the leaders who had lied to them, they would protest that they had known all along that the statement was a lie and would admire the leaders for their **superior tactical cleverness**.”
 ― Hannah Arendt, The Origins of Totalitarianism, 1951
+
+https://old.reddit.com/r/clevercomebacks/comments/1qjlbrh/he_is_and_its_not_just_europe_its_the_whole_world/o10h09q/
+
+2 week Reddit account.
+
+https://old.reddit.com/r/clevercomebacks/comments/1qjlbrh/he_is_and_its_not_just_europe_its_the_whole_world/o10mcr2/
+
