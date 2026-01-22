@@ -1362,3 +1362,7 @@ https://old.reddit.com/r/UnderReportedNews/comments/1qjeewi/aoc_the_president_ha
 
 I want every Reddit comment creator on this Reddit posting to raise their hand and yell out the number of times they have reminded people Dr. Bandy X Lee wrote an entire book that was published years and years ago... October 3, 2017.
 
+https://old.reddit.com/r/UnderReportedNews/comments/1qjeewi/aoc_the_president_has_been_acting_in_increasingly/o0yctqs/
+
+"then they turn to theater performers." - or joke-crackers. Jump right in the total mockery audience clowning.
+
