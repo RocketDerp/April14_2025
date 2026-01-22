@@ -1614,3 +1614,8 @@ The ENTIRE NATION, age 12 to age 120, EVERYONE ALL INCLUSIVE, is full of addicts
 * Published January 2015, before Trump started run for office in June 2015: https://www.Politico.com/magazine/story/2015/01/putin-russia-tv-113960/ At one end of the table sat one of the country’s most famous political TV presenters. He was small and spoke fast, with a smoky voice: “We all know there will be no real politics,” he said. “But we still have to give our viewers the sense something is happening. They need to be kept entertained.” “So what should we play with?” he asked. “Shall we attack oligarchs? Who’s the enemy this week? Politics has got to feel like a movie!”
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3md22fgoi3s2x https://autistics.life/@RoundSparrow/115940695750065119 https://MidWest.Social/post/42260982 }
+
+https://old.reddit.com/r/gifs/comments/1qk4dar/government_sponsored_ai_photo_doctoring/o13rt8w/
+
+Twitter-length short commenting messaging. Tweet-thinking value. Edgelord content for Reddit audiences. Surkov students are pleasing the Reddit audience as they have since March 2013. Reddit does not resist 4Chan style content, Reddit consumers of memes (meme aficionados) are entirely engaged to White House dumping of media content. Thrilled touch-device addicts. Rupert Murdoch is the HDTV News "content" provider for audiences using the same shit-news shit-posting shit-commenting Reddit audiences so crave and come to Reddit for.
+
