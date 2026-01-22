@@ -1322,3 +1322,7 @@ Yes, it is clear to see that Trump is a professional actor. Trump was on a Reali
 https://old.reddit.com/r/DiscussionZone/comments/1qjc0qu/do_you_think_trump_has_a_mental_disorder/o0y3aj1/
 
 Quoted an article. Now why can't people just quote the same words over and over and over until every person age 12 to age 120 in USA is on *the same page of words*?
+
+https://old.reddit.com/r/news/comments/1qjdabg/immigration_officers_assert_sweeping_power_to/o0y4xmb/
+
+Physical engagement for content creation. When California film maker George Lucas was making his MonoMyth story, he sent crew and actors all the way to Tunisia in Africa.
