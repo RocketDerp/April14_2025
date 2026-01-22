@@ -280,3 +280,9 @@ NYC Steely Dan "Everything Must Go" tried to prevent Trumpism MAGA
 
 * "I tell you, freedom and human rights in America are doomed. The U.S. government will lead the American people in — and the West in general — into an unbearable hell and a choking life."
 Al-Jazeera interview, (21 October 2001), as reported in "Bin Laden's sole post-September 11 TV interview aired" CNN (31 January 2002)
+
+Book Title:
+
+Manipulated Trump   
+The Manipulation of Donald Trump    
+Executive Function Manipulation Trump    
