@@ -2426,3 +2426,12 @@ https://old.reddit.com/r/clevercomebacks/comments/1qjlbrh/he_is_and_its_not_just
 https://old.reddit.com/r/clevercomebacks/comments/1qjlbrh/he_is_and_its_not_just_europe_its_the_whole_world/o107v98/
 
 "laughing", "mentally ill"
+
+https://old.reddit.com/r/clevercomebacks/comments/1qjlbrh/he_is_and_its_not_just_europe_its_the_whole_world/o10loc1/
+
+"laughing", "not funny"
+
+Trump never was funny. Orange skin isn't hilarious comedy. It is all symptoms of extreme shallowness and superficial behaviors. Repetitive superficial society of people who prize diaper poop and orange skin as some kind of sick way to wreck the world. 
+
+* 1993 TV is now year 2013 onward Reddit commenting section. "Their life is shit, if you will pardon the expression, and this is a comedy. Because all the troubles that such a life involve are just reduced to banality, just the **common rubble of little one line joke, you follow me? It’s made banal by it.** It’s banalised that way."; "This is the great – to me – ideological function of television and the movies. However extreme the situation, TV can find a way to turn it into a banality." - Texan Rick Roderick, year 1993, Duke University. "Marcuse and One-Dimensional Man". The joking tiny-think meme-think Tweet-think one-dimensional mindset. The Trump fandom on Reddit /r/Videos which is basically TV. https://RickRoderick.org/304-marcuse-and-one-dimensional-man-1993/
+
