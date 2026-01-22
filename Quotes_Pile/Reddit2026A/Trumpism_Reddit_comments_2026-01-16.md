@@ -1386,3 +1386,10 @@ A Reddit user cracking jokes about social media not having the ability to commen
 
 * “For in the end, he was trying to tell us what afflicted the people in 'Brave New World' was not that they were laughing instead of thinking, but that they did not know what they were laughing about and why they had stopped thinking.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. Year 1985.
 
+https://old.reddit.com/r/UnderReportedNews/comments/1qjeewi/aoc_the_president_has_been_acting_in_increasingly/o0ygoee/
+
+Twitter-length message. "The media", the Reddit social media. Why is this Reddit comment not quoting a nonfiction book about media? Why is it just low-effort commenting, over and over, and nobody being serious about their use of social media, the medium is the massage? Why is it that every person on Reddit who posts serious content gets badgered, driven away, run off, silenced, banned? How come media commenting creators don't even NOTICE that book quotes have disappeared, and so many disappeared persons? The intimation and silencing of people on media?
+
+* "Russia-watcher Catherine Fitzpatrick, who documents Kremlin disinformation for InterpreterMag . com, says just as Moscow uses vague Internet laws to encourage self-censorship, trolls inhibit informed debate by using **crude dialogue to change "the climate of discussion."** "If you show up at The Washington Post or New Republic sites, where there's an article that's critical of Russia, and you see that **there are 200 comments that sound like they were written by 12-year-olds**, then you just don't bother to comment," she says.  "You don't participate. It's a way of just **driving discussion away** completely," she adds. "Those **kinds of tactics are meant to stop democratic debate**, and they work." - **year 2014** https://www.theatlantic.com/international/archive/2014/08/the-kremlins-troll-army/375932/
+
+
