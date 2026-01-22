@@ -1392,4 +1392,9 @@ Twitter-length message. "The media", the Reddit social media. Why is this Reddit
 
 * "Russia-watcher Catherine Fitzpatrick, who documents Kremlin disinformation for InterpreterMag . com, says just as Moscow uses vague Internet laws to encourage self-censorship, trolls inhibit informed debate by using **crude dialogue to change "the climate of discussion."** "If you show up at The Washington Post or New Republic sites, where there's an article that's critical of Russia, and you see that **there are 200 comments that sound like they were written by 12-year-olds**, then you just don't bother to comment," she says.  "You don't participate. It's a way of just **driving discussion away** completely," she adds. "Those **kinds of tactics are meant to stop democratic debate**, and they work." - **year 2014** https://www.theatlantic.com/international/archive/2014/08/the-kremlins-troll-army/375932/
 
+https://old.reddit.com/r/worldnews/comments/1qhz6ay/donald_trump_shares_altered_image_of_map_showing/o0o8z1w/
+
+Revisiting a yesterday message, found this one. Worth highlighting.
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mcy7jn7jgs2n https://autistics.life/@RoundSparrow/115936549854646951 }
 
