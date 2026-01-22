@@ -1333,3 +1333,5 @@ Media ecology. to understand MAGA USA January 2026, to comprehend USA society va
 https://old.reddit.com/r/whennews/comments/1qjv3xn/windows_notepad_moment/o12ndsc/
 
 3 month Reddit account. See reply comments.
+
+https://old.reddit.com/r/whennews/comments/1qjv3xn/windows_notepad_moment/o11t9vb/
