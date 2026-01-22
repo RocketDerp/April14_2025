@@ -59,7 +59,7 @@ Defending Reality
 
 2. September 9, 2014 announcement / alert to public of ongoing active "War Agaisnt Reality" https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
 
-3. 2019 book title Peter Pomerantsev 
+3. 2019 book title Peter Pomerantsev. ["This Is Not Propaganda: *Adventures in the War Against Reality*"](https://en.wikipedia.org/wiki/This_Is_Not_Propaganda)
 
 4. https://old.reddit.com/r/CuratedTumblr/comments/1o1sl76/right/niis67o/ comment on Reddit
 
