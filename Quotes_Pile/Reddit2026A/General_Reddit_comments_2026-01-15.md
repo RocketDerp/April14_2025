@@ -1335,3 +1335,7 @@ https://old.reddit.com/r/whennews/comments/1qjv3xn/windows_notepad_moment/o12nds
 3 month Reddit account. See reply comments.
 
 https://old.reddit.com/r/whennews/comments/1qjv3xn/windows_notepad_moment/o11t9vb/
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1qju3kl/petah/o11phld/
+
+This is the free time and spare time during raging USA MAGA and Trump egomania. Dr. Bandy X Lee and Jen Senko and other important nonfiction learning could be given attention. Americans don't want to actually assert goodness, they want to chatter on high speed meme networks.
