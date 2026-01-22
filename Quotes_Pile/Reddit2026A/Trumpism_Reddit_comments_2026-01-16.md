@@ -1326,3 +1326,7 @@ Quoted an article. Now why can't people just quote the same words over and over 
 https://old.reddit.com/r/news/comments/1qjdabg/immigration_officers_assert_sweeping_power_to/o0y4xmb/
 
 Physical engagement for content creation. When California film maker George Lucas was making his MonoMyth story, he sent crew and actors all the way to Tunisia in Africa.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qjeewi/aoc_the_president_has_been_acting_in_increasingly/o0yca1s/
+
+Posting title "Everyone is PRETENDING this is normal" - exactly. Everyone, We The People, are the normalizers. People LOL LOL at Trump day and night for 10 year, pretending that jokes and comedy make it all worth while.
