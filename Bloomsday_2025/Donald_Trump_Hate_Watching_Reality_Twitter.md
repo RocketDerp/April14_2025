@@ -1,6 +1,6 @@
 # Donald Trump is "hate watching"
 
-Donald Trump audience is electric media "hate watching" of "reality Twitter" show.
+Donald Trump audience is electric media "hate watching" of "reality Twitter" show. https://en.wikipedia.org/wiki/Hate-watching
 
 The foundation of power for Russia / Putin is that people are attracted to hate of Donald Trump. People are thrilled at mocking, insulting Donald Trump and MAGA.
 
