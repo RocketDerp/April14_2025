@@ -1603,10 +1603,14 @@ Reality is being dumped on Reddit audience from cloud computing skies. People ea
 
 * From September 9, 2014 - 11 years 4 months and some days ago, which is **more than a decade** - we could have kept repeating it and defeated Putin's takeover of USA hearts and minds: https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ "Russia and the Menace of Unreality: How Vladimir Putin is revolutionizing information warfare. By Peter Pomerantsev. At the NATO summit in Wales last week, General Philip Breedlove, the military alliance’s top commander, made a bold declaration. Russia, he said, is waging “the **most amazing information warfare blitzkrieg we have ever seen in the history of information warfare.**” It was something of an underestimation. The new Russia doesn’t just deal in the petty disinformation, forgeries, lies, leaks, and cyber-sabotage usually associated with information warfare. It reinvents reality, creating mass hallucinations that then translate into political action." - we should NOW be repeating it every 47 hours over and over, keep repeating, again and again!
 
+# Maximum Putin A
+
 https://old.reddit.com/r/gifs/comments/1qk4dar/government_sponsored_ai_photo_doctoring/o13rjdl/
+
+<img width="1183" height="717" alt="image" src="https://github.com/user-attachments/assets/90f63e89-3f96-4711-8f44-e02223a2f585" />
 
 The ENTIRE NATION, age 12 to age 120, EVERYONE ALL INCLUSIVE, is full of addicts to Apple iPhone, Apple iPad, Android phones, junk memes Reddit unimportant shit. The entire nation is a cult of Trump images and photographs and White House images. Trump's mastery and skill is in being a Reality TV star, center of Reality TV content, and USA audience etas it up. Every person just flocks to touch meme devices and consumes Trump mockery and mocks and mocks and never stops mocking FOR OVER TEN YEARS AND SEVEN MONTHS, ongoing!!!
 
 * Published January 2015, before Trump started run for office in June 2015: https://www.Politico.com/magazine/story/2015/01/putin-russia-tv-113960/ At one end of the table sat one of the country’s most famous political TV presenters. He was small and spoke fast, with a smoky voice: “We all know there will be no real politics,” he said. “But we still have to give our viewers the sense something is happening. They need to be kept entertained.” “So what should we play with?” he asked. “Shall we attack oligarchs? Who’s the enemy this week? Politics has got to feel like a movie!”
 
-
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3md22fgoi3s2x https://autistics.life/@RoundSparrow/115940695750065119 https://MidWest.Social/post/42260982 }
