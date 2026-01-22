@@ -1534,3 +1534,7 @@ Yes. Screenplay of a stereotype. **Tony Clifton** character, NYC SNL. Trump is a
 It is the world's most successful show. Surkov and Putin worked on these techniques since year 1999. Published October 20, 2011 in English. About Russia technique of performance art: https://www.LRB.co.uk/the-paper/v33/n20/peter-pomerantsev/putin-s-rasputin Twitter-thinking audience of Reddit. A media **feedback looping** https://en.wikipedia.org/wiki/Feedback between White House / Kremlin / "The administration" and Reddit and Bluesky audiences.
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mczrqvkbe22p https://autistics.life/@RoundSparrow/115940084582560537 }
+
+https://old.reddit.com/r/worldnews/comments/1qjyf70/white_house_confuses_belgium_with_belarus_and/o12gejz/
+
+Reddit joke-washed the Internet Research Agency IRA, Saint Pete Russia, over and over. "Nothingburger" washing the IRA infiltration of media society (including Reddit audience). Reddit is white-washing cleaning service for Russia... ready army of users mocking away at Putin and Russia and avoiding nonfiction learning. Avoided learning.... Published October 20, 2011 in English. About Russia technique  https://www.LRB.co.uk/the-paper/v33/n20/peter-pomerantsev/putin-s-rasputin
