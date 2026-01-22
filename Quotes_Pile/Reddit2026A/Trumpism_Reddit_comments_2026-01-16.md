@@ -1517,3 +1517,6 @@ The Trump fandom is react-commenting on Reddit about Trump image again. Front pa
 
 Why sin't Reddit putting an end to Trump by commenting and repeating over and over: We all need to get behind the leadership of Dr. Bandy X Lee. She published a book on October 3, 2017 and we (The People) all did not not it seriously enough. She has only 3,000 followers on Bluesky and her name should be known over the entire world about the mental health topics of Trump and MAGA. We need to all stand up, please join with me, and get on the same page. Dr. Bandy X Lee's pages.
 
+https://old.reddit.com/r/MurderedByWords/comments/1qjzizz/can_this_loser_just_fade_into_obscurity_please/o12ojic/
+
+Front page of /r/All on Reddit Top upvoted (liked) comment on Reddit posting. The cult of MAGA mocking. The cult of mockery. Tiny short message comments, shit-commenting, about shit images. Audiences of shit media, Reddit fandom of Trump and MAGA shit. Media addiction cultists. A fandom of image mocking. Mocking Charlie Kirk, Elon Musk, Trump - that's their participation in democracy. Adding mocking to a Trump-lead mockery. Fandom of mockery itself. Absent topics: Dr. Bandy X Lee, Jen Senko (right-wing media cults, Fox News brainwashing cult, etc).
