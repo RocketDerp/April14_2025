@@ -1460,3 +1460,7 @@ https://old.reddit.com/r/ProgressiveHQ/comments/1qjqv6x/were_witnessing_corrupti
 https://old.reddit.com/r/ProgressiveHQ/comments/1qjqv6x/were_witnessing_corruption_under_donald_trump_at/o11nwqs/
 
 "Russian bot"
+
+https://old.reddit.com/r/goodnews/comments/1qjtqsl/nato_secretarygeneral_mark_rutte_confronts_trump/o11hf5q/
+
+Trump fandom. People who prize shit-postings, shit-commenting, shit-Reddit, shit-Trump messages.
