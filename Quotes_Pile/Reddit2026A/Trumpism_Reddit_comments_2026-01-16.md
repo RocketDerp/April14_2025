@@ -1641,3 +1641,8 @@ https://old.reddit.com/r/minnesota/comments/1qk48b9/william_kelly_dawokefarmer_a
 
 Yes, the Bluesky and Reddit audience who waits for every Trump content, photograph of Trump, White House action. High speed information addictions gone wild. People who blow their minds out on antics politics and won't turn to nonfiction learning about mental health of groups, society-wide mental health issues. Cults of content on Reddit, etc. https://www.youtube.com/watch?v=09maaUaRT4M&t=743s "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL"
 
+https://old.reddit.com/r/minnesota/comments/1qk48b9/william_kelly_dawokefarmer_and_us_veteran_was/o13t8tm/
+
+Reddit's Trump Fandom, "LMAO". For over a decade, "LOL LOL Trump, LMAO MAGA".
+
+* “When a population becomes distracted by trivia, when cultural life is redefined as a perpetual round of entertainments, when **serious public conversation becomes a form of baby-talk**, when, in short, a people become an audience, and their public business a vaudeville act, then a nation finds itself at risk” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business
