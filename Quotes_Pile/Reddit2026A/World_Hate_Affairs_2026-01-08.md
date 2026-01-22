@@ -2372,3 +2372,12 @@ https://old.reddit.com/r/worldnews/comments/1qjnw6k/trump_backpedals_on_threats_
 
 Every age of USA adopted Apple iPhone and iPad meme-think. Twitter-think Tweet-shit all over Reddit front page /r/All. Donald Trump was never fucking funny for one minute. His orange skin isn't funny. His diaper poop in't funny. There is REAL COMEDY to watch. Turning the entire nation into a joke for meme is mental sickness. Reddit is a bunch of sick people who prize diaper shit. Anti-intellectuals. Avoidance of nonfiction book. Jen Senko and Dr. Bandy X. Lee ignored while everyone jokes away about Trump playing golf.
 
+https://old.reddit.com/r/clevercomebacks/comments/1qjlbrh/he_is_and_its_not_just_europe_its_the_whole_world/o0ztmze/
+
+<img width="1620" height="253" alt="image" src="https://github.com/user-attachments/assets/b4ee9c35-1efc-4f02-b7e9-a007069f4206" />
+
+Yes. "Situation comedy"
+
+Joke after joke, antic after antic. Machine lust nation that prizes high-speed meme delivery. Living in HELL of technology billionaires manipulating every thought and mind in USA to meme-joke. Trump is coded as funny and entertaining and it is so god damn sickening! "Sex sells', "dumb sells", everything is a stupid fucking dumb joke comedy, "sitcom".
+
+
