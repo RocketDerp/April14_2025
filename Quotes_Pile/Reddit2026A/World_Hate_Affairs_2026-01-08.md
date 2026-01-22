@@ -2346,6 +2346,8 @@ A hates B, B hate C, C hates A. And every other variation of out-group hate. USA
 
 https://old.reddit.com/r/worldnews/comments/1qjnw6k/trump_backpedals_on_threats_against_greenland_but/o10h717/
 
+<img width="964" height="644" alt="image" src="https://github.com/user-attachments/assets/ce6948cd-b750-4add-996b-f36a6a8ffea7" />
+
 The god-damn fucking JOKES. The constant joking about Donald J. Trump. The "diaper don" jokes, the orange fucking skin jokes. "Just a prank, bro", 'Just joking, ha ha ha" of MAGA USA Reddit MAGA California USA. Jokes do not justify rape and greed! Jokes are abusive make aggressive lies in USA culture. Donald Trump is not funny, his Tiny Clifton act show show gullibility and dumb people are to wreck the world for a god damn stupid orange skin joke. USA joke addicts will not REMOVE Trump and stand up to their hate-filled friends for their raging egomania "joking" / 'pranking", "children's tears in Africa USAID, lol lol lol", "leopards faces, ha ha ha, LOL LOL" jokes! "Liberal tears, so sweet" joke telling.
 
-
+Social post { https://autistics.life/@RoundSparrow/115938391284416002 https://bsky.app/profile/roundsparrow.bsky.social/post/3mcyzpn5sqc2a }
