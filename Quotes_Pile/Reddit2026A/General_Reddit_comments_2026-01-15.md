@@ -1364,4 +1364,14 @@ https://old.reddit.com/r/okbuddycinephile/comments/1qk23ik/favorite_actress_you_
 
 Some topics deserve book quotes, off-Reddit links. One-line Twitter-length shit-commenting is prized though. I don't mind the comedy so much if people didn't banalize everything. Discussing how Hollywood / Harry Potter monomyth science fiction gets into the mind like Quran science fiction is a great discussion that the world needs to be having. 
 
+https://old.reddit.com/r/LivestreamFail/comments/1qk4e10/lacari_has_been_banned_from_twitch/o13ri1l/
 
+Shocked by high-speed.
+
+https://old.reddit.com/r/LivestreamFail/comments/1qk4e10/lacari_has_been_banned_from_twitch/o13vrss/
+
+https://old.reddit.com/r/LivestreamFail/comments/1qk4e10/lacari_has_been_banned_from_twitch/o13sh4p/
+
+https://old.reddit.com/r/LivestreamFail/comments/1qk4e10/lacari_has_been_banned_from_twitch/o13rbjx/
+
+Media ecology, platform vs. platform ecology.
