@@ -2461,3 +2461,19 @@ https://old.reddit.com/r/ProgressiveHQ/comments/1qjqtnl/he_has_degenerated_into_
 7 month Reddit account. "Putin", "Russia". Short messaging to  banalizing the complex topic. 
 
 * 1993 TV is now year 2013 onward Reddit commenting section. "Their life is shit, if you will pardon the expression, and this is a comedy. Because all the troubles that such a life involve are just reduced to banality, just the **common rubble of little one line joke, you follow me? It’s made banal by it.** It’s banalised that way."; "This is the great – to me – ideological function of television and the movies. However extreme the situation, TV can find a way to turn it into a banality." - Texan Rick Roderick, year 1993, Duke University. "Marcuse and One-Dimensional Man". The joking tiny-think meme-think Tweet-think one-dimensional mindset. The Trump fandom on Reddit. https://RickRoderick.org/304-marcuse-and-one-dimensional-man-1993/
+
+https://old.reddit.com/r/worldnews/comments/1qjt1or/nobel_winner_maria_machados_shocking_call_for_a/o1198xa/
+
+2 month Reddit account. Twitter-length joke-washing Trump. Fandom of Trump, pro-ignorance.
+
+https://old.reddit.com/r/worldnews/comments/1qjt1or/nobel_winner_maria_machados_shocking_call_for_a/o11dygr/
+
+Let's see how Malala, another woman, is treated on Reddit commenting in January 2026 MAGA USA California Reddit land.
+
+https://old.reddit.com/r/worldnews/comments/1qjt1or/nobel_winner_maria_machados_shocking_call_for_a/o11fvrq/
+
+This type of message is intend to wash away MLK Jr and Malala's prize. You see this attitude constantly promoted on Reddit since year 2013. That the **brand of information** matters most of all. Not truth, not accuracy, not fact-checking, but the BRAND LOYALTY. So this Reddit comment is mind-fucking the audience since a source of information is imperfect, throw out the baby with the bathwater. Any imperfect, ban it entirely. 
+
+You see the same mind-fucking messages on Reddit about New York Times or Washington Post, The Atlantic, or Newsweek. People who want to ban, book burn, the ENTIRE venue / brand of news. Instead of actually cherry-pick accurate and good information from sources. They want you to believe there is only one perfect source of information and to abandon and shut down everything ever published or created. 
+
+Rick Roderick's 1993 lectures talk about information overload and complexity. And this is what billionaires are exploiting. Go to ChatGPT for all your needs, don't go to individual Newsweek sources and fact-check individual stories. Loyalty to a brand-name source.
