@@ -2482,3 +2482,10 @@ https://old.reddit.com/r/politics/comments/1qjrw0a/trump_snubbed_by_every_major_
 
 Recency bias abounds. USA population learned nothing of Quran science fiction vs. Torah science fiction from September 11, 2001 ; 9/11. Fox News HDTV vs. MSNBC HDTV fandom behaviors. We just keep ignoring media addiction to science fiction stories as a problem we keep carrying into the future. Fiction outsells nonfiction.
 
+https://old.reddit.com/r/politics/comments/1qjrw0a/trump_snubbed_by_every_major_ally_for_big_signing/o113iqu/
+
+God is made-up. Bible verse "1 John 4:20" spells this out in the Levant thousands of years ago. Further, Trump is an actor, Reality TV is scripted. tiny-short Reddit commenting, twitter-think, can't study nonfiction of Surkov in Russia and recognize that **antics politics** is very popular on Reddit. Images of Trump to insult. A Reddit cult of mocking and insulting the President Tony Clifton outrageous performance acting. Another Reddit user who has "eaten the Onion" and does not recognize Trump is acting to a Kremlin screenplay of unusual an bizarre behaviors.
+
+It gets Reddit audiences to line up every time Trump does something that is shocking. That is how Surkov information warfare, Surkov governing works! No defense has been found, as Reddit users "eat the shit", "eat the onion" every time and do not turn to serious nonfiction books and articles. 
+
+If We The People read this from September 9, 2014 - which is more than 10 years ago, more than a decade - we could have kept repeating it and defeated Putin's takeover of USA hearts and minds: https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ "Russia and the Menace of Unreality: How Vladimir Putin is revolutionizing information warfare. By Peter Pomerantsev"
