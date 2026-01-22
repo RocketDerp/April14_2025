@@ -1339,3 +1339,9 @@ https://old.reddit.com/r/whennews/comments/1qjv3xn/windows_notepad_moment/o11t9v
 https://old.reddit.com/r/PeterExplainsTheJoke/comments/1qju3kl/petah/o11phld/
 
 This is the free time and spare time during raging USA MAGA and Trump egomania. Dr. Bandy X Lee and Jen Senko and other important nonfiction learning could be given attention. Americans don't want to actually assert goodness, they want to chatter on high speed meme networks.
+
+https://old.reddit.com/r/DiscussionZone/comments/1qjwut1/hasnt_read_the_bible_in_a_while_i_guess/o124s2e/
+
+Yes, these conversations are interesting. But they are not nearly the priority right now in January 2026. This is more White House Trump fandom eating the messages coming out of the White House, reaction commenting of the cult of commenting on Reddit.
+
+Instead of reacting, social media (Reddit) audiences need to stand up and assert goodness. Deeper, sustained, focused, repeating. Some thoughts, especially on hammering "1 John 4:20" Bible verse over and over on social media by millions of people. https://github.com/RocketDerp/April14_2025/blob/main/July13_2025/Metaphors_Jesus_God_Bible_verse.md
