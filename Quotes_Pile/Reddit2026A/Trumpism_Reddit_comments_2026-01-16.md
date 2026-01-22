@@ -1525,3 +1525,12 @@ https://old.reddit.com/r/worldnews/comments/1qjyf70/white_house_confuses_belgium
 
 Extreme tiny-short messaging, 3 works. Highly upvoted on Reddit. Fandom of mockery that Trump creates. Surkovin onion eaters who think mistakes and errors don't get massive press coverage for the Bluesky and Reddit Trump fandoms (fans of mocking and insulting, cults of the total mockery created by Trump). Onion eaters: https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Reddit2025A/Surkovian_Onion_Eating.md and *Words* are incredibly difficult and hard, as people go into mental meme cults. John 1:1 Bible verse. Tower of Babel metaphors abound.
 
+https://old.reddit.com/r/worldnews/comments/1qjyf70/white_house_confuses_belgium_with_belarus_and/o12jiw8/
+
+<img width="815" height="607" alt="image" src="https://github.com/user-attachments/assets/73093058-b104-45ea-b4a6-a508334a534e" />
+
+Yes. Screenplay of a stereotype. **Tony Clifton** character, NYC SNL. Trump is an actor, acting. What else do people think Trump is good at? Being a legit businessman? Trump's gift and skill and talent is performing in front of a camera. And the Surkov student screenplays and Tony Clifton techniques are what Trump is doing for Reddit audience / Reddit end-users.
+
+It is the world's most successful show. Surkov and Putin worked on these techniques since year 1999. Published October 20, 2011 in English. About Russia technique of performance art: https://www.LRB.co.uk/the-paper/v33/n20/peter-pomerantsev/putin-s-rasputin Twitter-thinking audience of Reddit. A media **feedback looping** https://en.wikipedia.org/wiki/Feedback between White House / Kremlin / "The administration" and Reddit and Bluesky audiences.
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mczrqvkbe22p https://autistics.life/@RoundSparrow/115940084582560537 }
