@@ -2329,3 +2329,11 @@ Downplaying Trump as just normal antics. Denial abounds.
 https://old.reddit.com/r/europe/comments/1qja6ag/the_american_president_steps_back_from_the_brink/o0xqpo0/
 
 People on Reddit, "here", will make dumb commenting on ANY posting. The obsession is not reading off-Reddit, the obsession of Reddit is commenting low-effort shit-commenting. People on Reddit commenting sections are obsessed with anti-learning, anti-understanding; memes dominate over actual comprehension.
+
+https://old.reddit.com/r/worldnews/comments/1qjnw6k/trump_backpedals_on_threats_against_greenland_but/o10ln7l/
+
+Reddit society alone has made the USA look ignorant. Dumb worship center. Like Homer Simpson working for Mr. Burns. People who did not rise up on Reddit and protest and make Dr. Bandy X Lee a household name. Reddit did not make Jen Senko a household name. You do not need an ELECTION DAY to rise up and make Jen Senko's nonfiction film about Fox News famous. That can be done on ANY DAY on Reddit. But people are so pro-ignorance an anti-FAQ anti-Wiki.  ANYTHING to not get the same page of goodness and progress. A population of dumb-prizing shit-lording shit-seeking Trump-mocking tech addicts. 
+
+People who fare so little about their own father that they let Rupert Murdoch and Rush Limbaugh mind-fuck them. Young men on Reddit are so fucking afraid of women leaders like Jen Senko that they won't even address their own father's addictions. Anti-compassion. Elon Musk ant-empathy Reddit mob mentality. Why is Jen Senko ignored on Reddit? Why isn't she the magic role model to hold up and teach how to rescue your own father from Fox News? https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad
+
+
