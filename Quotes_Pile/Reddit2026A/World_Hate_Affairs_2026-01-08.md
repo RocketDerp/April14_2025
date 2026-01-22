@@ -2380,4 +2380,9 @@ Yes. "Situation comedy"
 
 Joke after joke, antic after antic. Machine lust nation that prizes high-speed meme delivery. Living in HELL of technology billionaires manipulating every thought and mind in USA to meme-joke. Trump is coded as funny and entertaining and it is so god damn sickening! "Sex sells', "dumb sells", everything is a stupid fucking dumb joke comedy, "sitcom".
 
+https://old.reddit.com/r/clevercomebacks/comments/1qjlbrh/he_is_and_its_not_just_europe_its_the_whole_world/o0zx4dj/
+
+"laughing". That's all USA people do. LOL LOL "orange skin", LOL LOL. "MAGA dumb, ha ha ha". No, it is not good to live with all stupid people all the time. People who can't find nonfiction books in the public library. People who think jokes "win" all debate. That abuse and rape are fun sport to LOL and meme about. The Epstein jokes, the memes, all the "laughing" has NEVER worked on me. It's been ENDLESS FOR OVER TEN YEARS AND SEVEN MONTHS!!!
+
+Neil Postman's 1985 book describes social media Hell society that thinks Trump is amusing entertainment! Meme addict society.  September 10, 2025 https://Time.com/7313999/neil-postman-trump-prediction/
 
