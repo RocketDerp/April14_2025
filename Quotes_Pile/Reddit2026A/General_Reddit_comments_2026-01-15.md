@@ -1329,3 +1329,7 @@ Baby toys; puppeteers of of the mindsets. media ecology.
 https://old.reddit.com/r/movies/comments/1qjv0l6/ryan_cooglers_sinners_has_made_history_as_the/o11rcli/
 
 Media ecology. to understand MAGA USA January 2026, to comprehend USA society values, you have to understand entertainment fans. Fiction fandoms. Trump is the biggest super star of entertainment in all world history. Trump's skill and gifts are Tony Clifton acts and performances. USA audiences blow their minds out on fiction. Study these messages and learn.
+
+https://old.reddit.com/r/whennews/comments/1qjv3xn/windows_notepad_moment/o12ndsc/
+
+3 month Reddit account. See reply comments.
