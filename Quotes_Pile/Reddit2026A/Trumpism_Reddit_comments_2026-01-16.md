@@ -1563,3 +1563,9 @@ Translated from 2013 Russia to USA 2025: I.C.E. raids are very little violence a
 Social post { https://autistics.life/@RoundSparrow/115940552123017785 https://bsky.app/profile/roundsparrow.bsky.social/post/3mczyery3hk2p }
 
 ToDo: ? #FWakeLeftRight hashtag not been touched in a while?
+
+https://old.reddit.com/r/50501/comments/1qjzcgs/fbi_has_begun_arresting_organizers_in_minneapolis/o12r6gc/
+
+"Conspiracy theory", a thought-terminating phrase for modern USA mindsets. Despite it being an actual legal crime. WITH EVIDENCE theories matter. Evidence of Russia manipulating minds via Reddit is real,f actual, conspiracy against USA We The People. Not Russia paying Trump money, but actually Russia using Reddit cloud computing systems to manipulate everyday end-users / consumers of Reddit. April 11, 2018 https://techcrunch.com/2018/04/11/reddit-bans-944-accounts-linked-to-russian-internet-research-agency/
+
+But notice how people don't keep focused and discuss and analyze the actual MESSAGES Russia shares. The payloads into the minds? The cult of messages that are created, the patterns of ideas in these Russian detected content? Such as the pattern of pro-disease messages analyzed off Twitter: https://www.bbc.com/news/world-us-canada-45294192 and how people don't bring that up about how it relates to current measles and the COVID-2019 pandemic...
