@@ -2494,3 +2494,6 @@ https://old.reddit.com/r/politics/comments/1qjrw0a/trump_snubbed_by_every_major_
 
 Right out of Russia's expanding "War Against Reality" that went global in year 2012 / year 2013. https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ "Russia and the Menace of Unreality: How Vladimir Putin is revolutionizing information warfare. By Peter Pomerantsev" - September 9, 2014
 
+https://old.reddit.com/r/IThinkYouShouldLeave/comments/1qk0u42/he_looks_so_fucking_stupid_i_cant_breathe/o138nz4/
+
+An actual call to Reddit for a social media uprising against billionaires and their media systems!
