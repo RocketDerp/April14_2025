@@ -809,3 +809,5 @@ Saint Patrick's on the window. Booze serving. The ever-changing identity of ALP.
 https://old.reddit.com/r/pics/comments/1qjyacf/british_soldiers_home_from_afghanistan_after/
 
 Funeral Wake rituals and experiences. State funeral, soldiers.   
+Quran Taliban vs. Christian Bible deaths, monomyth science fiction vs. monomyth science fiction.    
+
