@@ -267,3 +267,9 @@ Page 7 of year 1968 book references page 94 of 1939 book: "The solid man saved b
 * <img width="1704" height="801" alt="War And Peace in the Global Village; Year 1968; Page 7" src="https://github.com/user-attachments/assets/36ae98fd-2550-4350-b345-7f917dc08106" />
 
 OPERA_A Sailing away on the thin ice of a new day. Cracking away. https://www.youtube.com/watch?v=WfEnWvVJEzc 203,944 views February 9, 2017 - back in the "year one", you didn't stand a chance Son of Allah. [عيسى ابن مريم](https://ar.wikipedia.org/wiki/%D8%B9%D9%8A%D8%B3%D9%89_%D8%A8%D9%86_%D9%85%D8%B1%D9%8A%D9%85)
+
+&nbsp;
+
+# NYC Manipulation of Trump + Giuliani 
+
+Obama bin Ladden, 9/11, intentionally provoked this in NYC symbolic icons. Sybolism monomyth warfare
