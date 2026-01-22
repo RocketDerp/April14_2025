@@ -2489,3 +2489,8 @@ God is made-up. Bible verse "1 John 4:20" spells this out in the Levant thousand
 It gets Reddit audiences to line up every time Trump does something that is shocking. That is how Surkov information warfare, Surkov governing works! No defense has been found, as Reddit users "eat the shit", "eat the onion" every time and do not turn to serious nonfiction books and articles. 
 
 If We The People read this from September 9, 2014 - which is more than 10 years ago, more than a decade - we could have kept repeating it and defeated Putin's takeover of USA hearts and minds: https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ "Russia and the Menace of Unreality: How Vladimir Putin is revolutionizing information warfare. By Peter Pomerantsev"
+
+https://old.reddit.com/r/politics/comments/1qjrw0a/trump_snubbed_by_every_major_ally_for_big_signing/o11cmfs/
+
+Right out of Russia's expanding "War Against Reality" that went global in year 2012 / year 2013. https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ "Russia and the Menace of Unreality: How Vladimir Putin is revolutionizing information warfare. By Peter Pomerantsev" - September 9, 2014
+
