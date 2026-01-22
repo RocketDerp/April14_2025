@@ -511,4 +511,15 @@ The same Twitter pried content is on a second /r/All front page top posting. Eve
 
 https://old.reddit.com/r/clevercomebacks/comments/1qi163e/10000_miles_for_just_that/o0nxihc/
 
-The same Twitter pried content is on a 3rd /r/All front page top posting
+The same Twitter prized content is on a 3rd /r/All front page top posting
+
+
+https://old.reddit.com/r/worldnews/comments/1qfhy7u/trump_says_8_european_countries_will_be_charged_a/o04x3fn/
+
+Exactly. But almost all the Reddit community for OVER TEN YEARS AND SEVEN MONTHS, keeps "eating the Trump acting", eating the President Tony Clifton idiotic performance theater. Media addicts who can't see that they flock to Reddit to comment and insult Trump as conditioned... just like the audience of a Tony Clifton theater show. This is one of the very rare "Media Woke" Reddit comments about how others in the Reddit audience are incredibly gullible that Trump doesn't have thousands of advisors. It has been nearly a year since this was published January 20, 2025 about how media empires are all advising Trump on his WWW Reality White House show, but Reddit audience is so meme addled... https://www.LeMonde.FR/en/summer-reads/article/2025/07/20/the-day-silicon-valley-s-oligarchs-kissed-trump-s-ring_6743557_183.html
+
+https://old.reddit.com/r/IThinkYouShouldLeave/comments/1qk0u42/he_looks_so_fucking_stupid_i_cant_breathe/o12ykzi/
+
+Extreme tiny-short messages on Reddit. Twitter-think. Fandom of Trump on Reddit, cult of flag images, cult of Trump images. People are not RESISTING Trump, they are engaging his body images and words. What's very real is billionaires dumping image after image onto Reddit audience. Addiction to media is very real. Russia's war against reality is very real!
+
+* "We are trying to change reality. Reality has indeed begun to change as a result of the appearance of our information in public"; "not hackers in the classical sense" - Posted on June 2, 2014 at 10:48 am; Monday. https://www.buzzfeednews.com/article/maxseddon/documents-show-how-russias-troll-army-hit-america
