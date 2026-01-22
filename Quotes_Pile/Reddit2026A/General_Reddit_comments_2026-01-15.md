@@ -1355,3 +1355,13 @@ https://old.reddit.com/r/DiscussionZone/comments/1qjwut1/hasnt_read_the_bible_in
 There is a very serious problem of people saying "never read a book". The Bible is incredibly difficult to read! It is complex poetry. To downplay the { comprehension, understanding, interpretations } of the { Torah, Bible, Quran, Book of Mormon } is a big mistake in my view. The issue is not reading it, it is the paradoxes that arise out of poetry and metaphors. People can read a book or watch a film and get entirely different concepts and ideas with that. This is a huge reason University of Toronto's Marshall McLuhan made James Joyce's writings a cornerstone of this media ecology teachings!
 
 My website for teaching the general public: https://www.LazyWake.com - on that front page bottom you will see "Finnegans Wake is the greatest guidebook to media study ever fashioned by man." - Marshall McLuhan, Newsweek Magazine, p.56, February 28, 1966
+
+https://old.reddit.com/r/okbuddycinephile/comments/1qk23ik/favorite_actress_you_used_to_fantasize_about/o13en3j/
+
+https://old.reddit.com/r/okbuddycinephile/comments/1qk23ik/favorite_actress_you_used_to_fantasize_about/o13eit6/
+
+https://old.reddit.com/r/okbuddycinephile/comments/1qk23ik/favorite_actress_you_used_to_fantasize_about/o13j8ah/
+
+Some topics deserve book quotes, off-Reddit links. One-line Twitter-length shit-commenting is prized though. I don't mind the comedy so much if people didn't banalize everything. Discussing how Hollywood / Harry Potter monomyth science fiction gets into the mind like Quran science fiction is a great discussion that the world needs to be having. 
+
+
