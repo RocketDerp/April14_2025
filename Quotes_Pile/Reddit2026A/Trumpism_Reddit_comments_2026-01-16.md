@@ -1622,3 +1622,9 @@ Twitter-length short commenting messaging. Tweet-thinking value. Edgelord conten
 https://old.reddit.com/r/videos/comments/1qk44dp/rep_eric_swalwell_at_hearing_with_former_sc_jack/o13qm7i/
 
 Calling Donald Trump a "scumbag" is what USA population ENJOYS. It's thrilling to insult and mock people. That's why Trump has so much social power. Hate leadership. Trump plays character Tony Clifton, trump is acting, President Clifton performance gets entire audience hating and insulting and mocking. People fall for Trump's well-practiced acting again and again. Surkov and Putin have mastered all this for over 25 years in Russia. Trump got on Twitter in middle of year 2011 and became the Tweet-think mindset king. Fandom on Reddit social eats it up. Surkov won since March 2013. NATO lost, USA lost.
+
+https://old.reddit.com/r/videos/comments/1qk44dp/rep_eric_swalwell_at_hearing_with_former_sc_jack/o13sgzo/
+
+Twitter-length Tweet-thinking. What about the hundreds of millions of Rupert Murdoch media cults? Only fixated with simple-think on figureheads. New billionaires will come along and exploit the next Reddit meme cult. Cultists on Reddit can't see their own attraction to Trump shit, Trump's bullshit.
+
+* Thew new post-Murdoch post-Trump information cult will rise if we don't actually address We The People's addictions to fiction content. “One of the saddest lessons of history is this: If we’ve been bamboozled long enough, we tend to **reject any evidence of the bamboozle**. We’re no longer interested in finding out the truth. The bamboozle has captured us. It’s simply too painful to acknowledge, even to ourselves, that we’ve been taken. Once you give a charlatan power over you, you almost never get it back. So the old bamboozles tend to persist as the new ones rise.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, **1995**, page 241
