@@ -2452,3 +2452,6 @@ https://old.reddit.com/r/clevercomebacks/comments/1qjlbrh/he_is_and_its_not_just
 
 https://old.reddit.com/r/clevercomebacks/comments/1qjlbrh/he_is_and_its_not_just_europe_its_the_whole_world/o10mcr2/
 
+https://old.reddit.com/r/ProgressiveHQ/comments/1qjqtnl/he_has_degenerated_into_an_outcast/o116y5z/
+
+People in USA are still plastering photographs of Donald Trump every hour of every day on the front page /r/All of Reddit. The Fandom of Trump has spent 10 years gawking at Trump's photographs and the gap in education is horrific. Over a decade of learning and progress lost to brain-damage attraction to Trump. Surkov won since March 2013.
