@@ -1511,3 +1511,9 @@ https://old.reddit.com/r/ProgressiveHQ/comments/1qjvbbp/im_generally_a_liberal_p
 
 Left-right logic brainrot.  War is bad, civil war, global war, bad is bad. MLK Jr teaching is worth death for. Solving problem with gun violence is not worth another children generation raised that guns and weapon systems are the answer. Putin has already been teaching the world that answer since February 20, 2014.
 
+https://old.reddit.com/r/MurderedByWords/comments/1qjx5wo/all_ten_of_em/o1289y4/
+
+The Trump fandom is react-commenting on Reddit about Trump image again. Front page of Reddit; Trump's photograph. Twitter-think shit. Reddit  is not resisting, it is *engaging* the content. There is no self-awareness of the Reddit audience prizing shit. Shit-commenting, shit-postings on Twitter, Trump doing dumb shit. That's prized content for Reddit society. Fanatics of Trump shit. A *cult* of Trump mocking. A media cult of a famous celebrity. 
+
+Why sin't Reddit putting an end to Trump by commenting and repeating over and over: We all need to get behind the leadership of Dr. Bandy X Lee. She published a book on October 3, 2017 and we (The People) all did not not it seriously enough. She has only 3,000 followers on Bluesky and her name should be known over the entire world about the mental health topics of Trump and MAGA. We need to all stand up, please join with me, and get on the same page. Dr. Bandy X Lee's pages.
+
