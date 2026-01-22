@@ -1345,3 +1345,7 @@ https://old.reddit.com/r/DiscussionZone/comments/1qjwut1/hasnt_read_the_bible_in
 Yes, these conversations are interesting. But they are not nearly the priority right now in January 2026. This is more White House Trump fandom eating the messages coming out of the White House, reaction commenting of the cult of commenting on Reddit.
 
 Instead of reacting, social media (Reddit) audiences need to stand up and assert goodness. Deeper, sustained, focused, repeating. Some thoughts, especially on hammering "1 John 4:20" Bible verse over and over on social media by millions of people. https://github.com/RocketDerp/April14_2025/blob/main/July13_2025/Metaphors_Jesus_God_Bible_verse.md
+
+https://old.reddit.com/r/DiscussionZone/comments/1qjwut1/hasnt_read_the_bible_in_a_while_i_guess/o1283dq/
+
+Organizing around these kids of literacy lessons and teachings would be goodness, asserting good. "1 John 4:20" Bible verse is all over this GitHub project if you search / grep.
