@@ -1330,3 +1330,7 @@ Physical engagement for content creation. When California film maker George Luca
 https://old.reddit.com/r/UnderReportedNews/comments/1qjeewi/aoc_the_president_has_been_acting_in_increasingly/o0yca1s/
 
 Posting title "Everyone is PRETENDING this is normal" - exactly. Everyone, We The People, are the normalizers. People LOL LOL at Trump day and night for 10 year, pretending that jokes and comedy make it all worth while.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qjeewi/aoc_the_president_has_been_acting_in_increasingly/o0yb6vp/
+
+This isn't a voting day, this isn't an election day, the Trump LOL goes on EVERY FUCKING DAY for over a decade.
