@@ -1415,3 +1415,7 @@ The worst shit of media addicts in the 1990's has become everyone, all the time.
 https://old.reddit.com/r/Economics/comments/1qjh3jr/donald_trumps_approval_rating_dips_to_new_second/o0zcwt7/
 
 Every person should be standing up and saying that the entire society is toxic. Popularity is toxic. https://www.youtube.com/watch?v=09maaUaRT4M&t=743s "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL"
+
+https://old.reddit.com/r/minnesota/comments/1qjhqmd/5yearold_liam_ramos_the_boy_with_the_bunny_hat/o0zbb3p/
+
+Faith in hate. Trump leads with hate, and We The People follow the leader.
