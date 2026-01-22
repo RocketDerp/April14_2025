@@ -1404,3 +1404,6 @@ https://old.reddit.com/r/minnesota/comments/1qjda2f/observer_being_arrested_and_
 
 https://old.reddit.com/r/minnesota/comments/1qjda2f/observer_being_arrested_and_pepper_sprayed_at/o0y2o0c/
 
+https://old.reddit.com/r/Economics/comments/1qjh3jr/donald_trumps_approval_rating_dips_to_new_second/o0yz63f/
+
+Surkov won. "reality"
