@@ -223,3 +223,5 @@ Mass Psychosis. Gullible parenting who believe and put faith in Elon Musk and Ru
 
 pro-measles   
 https://old.reddit.com/r/nottheonion/comments/1qj4xer/senior_cdc_official_loss_of_measles_elimination/
+
+https://old.reddit.com/r/science/comments/1qjrqst/people_who_show_adhd_traits_in_childhood_are_more/
