@@ -1619,3 +1619,6 @@ https://old.reddit.com/r/gifs/comments/1qk4dar/government_sponsored_ai_photo_doc
 
 Twitter-length short commenting messaging. Tweet-thinking value. Edgelord content for Reddit audiences. Surkov students are pleasing the Reddit audience as they have since March 2013. Reddit does not resist 4Chan style content, Reddit consumers of memes (meme aficionados) are entirely engaged to White House dumping of media content. Thrilled touch-device addicts. Rupert Murdoch is the HDTV News "content" provider for audiences using the same shit-news shit-posting shit-commenting Reddit audiences so crave and come to Reddit for.
 
+https://old.reddit.com/r/videos/comments/1qk44dp/rep_eric_swalwell_at_hearing_with_former_sc_jack/o13qm7i/
+
+Calling Donald Trump a "scumbag" is what USA population ENJOYS. It's thrilling to insult and mock people. That's why Trump has so much social power. Hate leadership. Trump plays character Tony Clifton, trump is acting, President Clifton performance gets entire audience hating and insulting and mocking. People fall for Trump's well-practiced acting again and again. Surkov and Putin have mastered all this for over 25 years in Russia. Trump got on Twitter in middle of year 2011 and became the Tweet-think mindset king. Fandom on Reddit social eats it up. Surkov won since March 2013. NATO lost, USA lost.
