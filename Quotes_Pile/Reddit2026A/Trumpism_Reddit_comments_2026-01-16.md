@@ -1569,3 +1569,22 @@ https://old.reddit.com/r/50501/comments/1qjzcgs/fbi_has_begun_arresting_organize
 "Conspiracy theory", a thought-terminating phrase for modern USA mindsets. Despite it being an actual legal crime. WITH EVIDENCE theories matter. Evidence of Russia manipulating minds via Reddit is real,f actual, conspiracy against USA We The People. Not Russia paying Trump money, but actually Russia using Reddit cloud computing systems to manipulate everyday end-users / consumers of Reddit. April 11, 2018 https://techcrunch.com/2018/04/11/reddit-bans-944-accounts-linked-to-russian-internet-research-agency/
 
 But notice how people don't keep focused and discuss and analyze the actual MESSAGES Russia shares. The payloads into the minds? The cult of messages that are created, the patterns of ideas in these Russian detected content? Such as the pattern of pro-disease messages analyzed off Twitter: https://www.bbc.com/news/world-us-canada-45294192 and how people don't bring that up about how it relates to current measles and the COVID-2019 pandemic...
+
+https://old.reddit.com/r/Fauxmoi/comments/1qk322c/the_white_house_digitally_altered_the_arrest/o13lqr8/
+
+**Cult of Hate, Reddit cult of Hate**   
+Fandom of hate. **Hate for Hate** sports mentality.   
+Addicts to stimulation of hate, Reddit and Bluesky, pro-hate platforms    
+Feedback loops of Hate vs. Hate team sports-think, sports mindsets   
+That's how Russia won. Surkovian information warfare since March 2013.    
+Tiny-short Reddit commenting messages promoting *hate harder* in many variations.   
+Social media **is not calling attention to / for Dr. Bandy X Lee on mental health topics**, social media (Reddit and Bluesky) is not promoting Jen Senko to address the media cult of Fox News. Instead, it's message after message following the leadership of Donald Trump's use of media. Hate messaging, Trump Leads!   
+
+* February 28, 1954: "Most people can't stand up for their convictions, because the majority of people might not be doing it. See, everybody's not doing it, so it must be wrong. And since everybody is doing it, it must be right. So a sort of numerical interpretation of what's right. But I'm here to say to you this morning that some things are right and some things are wrong. Eternally so, absolutely so. **It's wrong to hate.** It always has been wrong and it always will be wrong. It's wrong in America, it's wrong in Germany, it's wrong in Russia, it's wrong in China. It was wrong in 2000 B.C., and it's wrong in 1954 A.D. It always has been wrong, and it always will be wrong." - Martin Luther King Jr.
+
+* "For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the **true becomes false and the false becomes true**. That's what hate does. You can't see right. **The symbol of objectivity** is lost." - Martin Luther King Jr.
+
+* "What Cambridge Analytica observed was that when respondents were **angry**, their *need for complete and rational explanations was also significantly reduced*. In particular, **anger put people in a frame of mind in which they were more indiscriminately punitive**, particularly to out-groups. They would also underestimate the risk of negative outcomes. This led Cambridge Analytica to discover that even if a hypothetical **trade war with China or Mexico meant the loss of American jobs and profits**, people primed with anger would tolerate that domestic economic damage if it meant they could use a trade war to punish immigrant groups and urban liberals.”
+― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the **Plot to Break** America, page 128, **year 2019**
+
+Surkov won.
