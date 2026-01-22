@@ -1,6 +1,6 @@
 # "Liberal Tears" is projection
 
-For the LULZ, For the "liberal tears" is a deep mind-fuck symtom. A cry for help. It is projection from inward MAGA society mass mind to outward, a cry for help.
+For the LULZ, For the "liberal tears" is a deep mind-fuck symptom. A cry for help. It is projection from inward MAGA society mass mind to outward, a cry for help.
 
 https://mastodon.social/@RoundSparrow/114705335828844230
 
