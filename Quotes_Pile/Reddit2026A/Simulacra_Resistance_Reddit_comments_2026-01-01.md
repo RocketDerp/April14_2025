@@ -523,3 +523,8 @@ https://old.reddit.com/r/IThinkYouShouldLeave/comments/1qk0u42/he_looks_so_fucki
 Extreme tiny-short messages on Reddit. Twitter-think. Fandom of Trump on Reddit, cult of flag images, cult of Trump images. People are not RESISTING Trump, they are engaging his body images and words. What's very real is billionaires dumping image after image onto Reddit audience. Addiction to media is very real. Russia's war against reality is very real!
 
 * "We are trying to change reality. Reality has indeed begun to change as a result of the appearance of our information in public"; "not hackers in the classical sense" - Posted on June 2, 2014 at 10:48 am; Monday. https://www.buzzfeednews.com/article/maxseddon/documents-show-how-russias-troll-army-hit-america
+
+https://old.reddit.com/r/InterstellarKinetics/comments/1qk1ond/breaking_45_fbi_employees_defy_protocol_to_share/o13ad11/
+
+Popular comment, upvo0ted: "all sane people" can "predict the future". Tiny-short messaging. This subreddit made the front page and only 4 months old. The description of the subreddit / community is advertising and marketing. "Interstellar Kinetics 🚀— Mission control for the financial frontier. We fuse advanced wealth strategy, blockchain intelligence, and cinematic storytelling into high‑impact transmissions. From Bitcoin to emerging Layer‑1s, we decode markets, map opportunities, and reveal structures that protect and multiply wealth. 💠 Our Focus • 📊 Crypto deep dives & market scans • 🏛 Dynasty trusts & asset protection • 🤖 Tech, AI & global policy shifts • 🎥 Brand, narrative & mission design"
+
