@@ -31,11 +31,11 @@ Think about that statement:
 
 Repeating: "Most people can't **stand up for their convictions**, because the majority of people might not be doing it. See, **everybody's not doing it**, so it must be wrong. And since everybody is doing it, it must be right. So a sort of numerical interpretation of what's right." - Dr. Martin Luther King, Jr. February 28, 1954.
 
-Again and again, in the United States of America, what I find are atheists who do not teach **reading literacy** to science fiction book readers. They just are sick of the bullshit lies and manipulation of Christians / Bible readers. That kind of "atheist" is a reactionary who is sick of Christians. They are not educated on the difference between a gnostic Christian and a Sufi Muslim, they just are sick of the behavior of poor-literacy (non metaphor grasping) Christians.
+Again and again, in the United States of America, what I find are atheists who do not teach **reading literacy** to science fiction book readers. They just are sick of the bullshit lies and manipulation of Christians / Bible readers. That kind of "atheist" is a reactionary who is sick of Christians. They are not educated on the difference between a Gnostic Christian and a Sufi Muslim, they just are sick of the behavior of poor-literacy (non metaphor grasping) Christians.
 
 Atheists in USA are almost entirely anti Levant Religions. They have never studied the Navajo Pollen Path, they are just concerned about "believe" aspect of Bible, *believing* if it is a perfect factually correct 100% accurate history book. Star Wars is fiction, The Bible is science fiction.
 
-Joseph Campbell worked with George Lucas, creator of Star Wars, if you don't know. The Official **science fiction** media empire website ( Star Wars dot Com ) run by Disney for Star Wars: https://www.starwars.com/news/mythic-discovery-within-the-inner-reaches-of-outer-space-joseph-campbell-meets-george-lucas-part-i
+Joseph Campbell worked with George Lucas, creator of Star Wars, if you don't know. The Official **science fiction** media empire website ( Star Wars dot Com ) run by Disney for Star Wars: https://www.StarWars.com/news/mythic-discovery-within-the-inner-reaches-of-outer-space-joseph-campbell-meets-george-lucas-part-i
 
 &nbsp;
 
@@ -73,7 +73,7 @@ Proverbs 14:31
 
 # Atheists are not fixing the metaphor literacy
 
-Atheists are too busy promoting hate the out-group, just like Muslims are too busy hating on Jewish and Christians in their contest for **book supremacy** of the *one and only one true perfect correct nonfiction poetry story book* of Quran vs. Torah vs. Bible.  This is like Star Trek (Gene Roddenberry) fans of science fiction *hating upon* with Star Wars (Geoerge Lucas) fans. And one-media venue of Mosque vs. Church vs. Synagogue vs. Cinema vs. Shakespeare Globe Theater vs. Netflix Home Theater in the hotel room!
+Atheists are too busy promoting hate the out-group, just like Muslims are too busy hating on Jewish and Christians in their contest for **book supremacy** of the *one and only one true perfect correct nonfiction poetry story book* of Quran vs. Torah vs. Bible.  This is like Star Trek (Gene Roddenberry) fans of science fiction *hating upon* with Star Wars (George Lucas) fans. And one-media venue of Mosque vs. Church vs. Synagogue vs. Cinema vs. Shakespeare Globe Theater vs. Netflix Home Theater in the hotel room!
 
 **Atheists are not fixing the literacy metaphor problems**, We The People of the United States of America have a We The People crisis of literacy metaphors.
 
