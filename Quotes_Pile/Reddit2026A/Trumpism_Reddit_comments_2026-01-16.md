@@ -1366,3 +1366,7 @@ https://old.reddit.com/r/UnderReportedNews/comments/1qjeewi/aoc_the_president_ha
 
 "then they turn to theater performers." - or joke-crackers. Jump right in the total mockery audience clowning.
 
+https://old.reddit.com/r/UnderReportedNews/comments/1qjeewi/aoc_the_president_has_been_acting_in_increasingly/o0ye388/
+
+"the weirdos are enjoying the ride." The meme drunks. The Apple iPhone and iPad users with their Trump joke subscriptions. LOL LOL, old 79 year Trump did another diaper poop!
+
