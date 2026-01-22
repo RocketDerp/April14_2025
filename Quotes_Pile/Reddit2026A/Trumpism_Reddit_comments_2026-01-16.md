@@ -1398,3 +1398,4 @@ Revisiting a yesterday message, found this one. Worth highlighting.
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mcy7jn7jgs2n https://autistics.life/@RoundSparrow/115936549854646951 }
 
+https://old.reddit.com/r/TwinCities/comments/1qjesdr/ice_detains_5yearold_columbia_heights_boy_sends/o0ylofr/
