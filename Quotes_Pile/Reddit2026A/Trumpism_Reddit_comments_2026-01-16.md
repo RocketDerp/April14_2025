@@ -1484,3 +1484,17 @@ https://old.reddit.com/r/politics/comments/1qjpnj4/now_is_the_time_to_admit_it_a
 Information overload. It is fucking impossible to find any solid information that isn't buried in Reddit memes and jokes. The skilled technical people of the world are spending all their spare time and free time joke-cleaning Trump, sane-cleaning Trump because they believe in orange-skin jokes far more than they believe in MLK Jr quotes.
 
 Rick Roderick talked about this information overload. Neil Postman 1992 book. But what' the fucking point. Reddit community is a noise joke meme machine of the most technically gifted and talented people who drown out everything serious and important.
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qjtqa6/what_do_you_think/o11ehc7/
+
+Posting Title: "What do you think?" is social media *engagement bullshit* that is incredibly popular with thoughtless audiences. Question asking. The topic is not in the super-short Title, and Reddit allows much longer titles. This is anti-progressive (name of subreddit). Made the front page with a shit-prizing title.
+
+The image is about calling things what they really are: A simulation of resistance. A Simulacra of resistance. No organization calling to use better title words. It's anti what it claims to stand for. It is mind-fuck, it is audience manipulation. It is deceptive. 
+
+The account that created the posting, Muted-Television3329 is less than a year old. It is anti-progress, it is "dumb shit newness", not progress, but shedding of goodness. Progress towards Elon Musk ISP global StarLink and Memphis datacenter manipulation of Reddit audience. It reeks of billionionare-stink posting.
+
+The topic of language usage by Reddit audience, this article from The Atlantic is telling it like it is: September 16, 2020: https://www.theatlantic.com/culture/archive/2020/09/fox-news-trump-language-stelter-hoax/616309/ - Rupert Murdoch billionaire stench all over the population of media consumers.
+
+This Reddit Post is a call for superficial, shallow, banal change. Wrapped in mind-fucking title. As for the comment and mask topic, it is Twitter-length comment, the most upvoted. It asserts nothing but an old anti-science behavior. But it doesn't call anything what it is. Russian mind-fucking. August 24, 2018 link i the topic Reddit audience will not memorize and repeat. BBC https://www.bbc.com/news/world-us-canada-45294192
+
+See also: https://github.com/RocketDerp/April14_2025/blob/main/PostMalala/The_Avoided_Topics/ToDo_Avoided_Topics_Top_13.md
