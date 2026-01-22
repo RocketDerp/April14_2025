@@ -1334,3 +1334,8 @@ Posting title "Everyone is PRETENDING this is normal" - exactly. Everyone, We Th
 https://old.reddit.com/r/UnderReportedNews/comments/1qjeewi/aoc_the_president_has_been_acting_in_increasingly/o0yb6vp/
 
 This isn't a voting day, this isn't an election day, the Trump LOL goes on EVERY FUCKING DAY for over a decade.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qjeewi/aoc_the_president_has_been_acting_in_increasingly/o0yclxs/
+
+Two-words. The issue is not if she is right, but why are people with all the free time and spare time to write two-word comments WAITING AROUND for other people to say it first?
+
