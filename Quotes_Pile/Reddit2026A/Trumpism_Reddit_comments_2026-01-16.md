@@ -1370,3 +1370,9 @@ https://old.reddit.com/r/UnderReportedNews/comments/1qjeewi/aoc_the_president_ha
 
 "the weirdos are enjoying the ride." The meme drunks. The Apple iPhone and iPad users with their Trump joke subscriptions. LOL LOL, old 79 year Trump did another diaper poop!
 
+https://old.reddit.com/r/UnderReportedNews/comments/1qjeewi/aoc_the_president_has_been_acting_in_increasingly/o0ydt3q/
+
+"Hate" and "conquest" are not considered egomania "medial condition" by this Reddit user. Hate is just normal leaders to people on well-loved Reddit machines. **Tech lovers who love technology seem to have a real problem recognizing that hate is bad**. Video gaming / sports game Reddit users who love tech of Elon Musk and owners of Reddit seem to really be troubled on hate not being something to ignore.
+
+* “Shaw once remarked that all professions are conspiracies against the laity. I would go further: in Technopoly, all experts are invested with the charisma of priestliness. Some of our priest-experts are called psychiatrists, some psychologists, some sociologists, some statisticians. The god they serve does not speak of righteousness or goodness or mercy or grace. Their god speaks of efficiency, precision, objectivity. And that is why such concepts as sin and evil disappear in Technopoly. They come from a moral universe that is irrelevant to the theology of expertise. And so the priests of Technopoly call sin “social deviance,” which is a statistical concept, and they call evil “psychopathology,” which is a medical concept. Sin and evil disappear because they cannot be measured and objectified, and therefore cannot be dealt with by experts.” ― Neil Postman, Technopoly: The Surrender of Culture to Technology. Year 1992
+
