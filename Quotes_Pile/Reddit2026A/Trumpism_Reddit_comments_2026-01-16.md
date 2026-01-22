@@ -1452,3 +1452,11 @@ ANSWER: Why are We The People (USA population) putting up with this Trump chaos?
 Bluesky and Reddit is an audience, a fandom, to Trump. People don't want to shut down the hate-watching of Trump. https://en.wikipedia.org/wiki/Hate-watching **THIS IS SURKOVIAN GOVERNING**, intentionally exploiting what Neil Postman was describing in year 1985 as an *accidental outcome, unintentional outcome*. Putin and Surkov in 1999 made this a deliberate form of leadership and governing. Russia found that fiction-based leadership, Surkov monomyth, far outsells nonfiction leadership. They out-did Fox News in Russia. September 7, 2014 https://www.theatlantic.com/international/archive/2014/11/hidden-author-putinism-russia-vladislav-surkov/382489/ a basic short introduction to a vast complex media ecology complex.
 
 Bluesky and Reddit are the educated people who devote their spare time and free time to meme-washing and joke-rinsing Trump clean. Making Trump the center of attention, with the ideal that jokes and "funny" matter more than compassion and love. This is a worship joke-temple of Trump - Reddit commenting section.
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qjqv6x/were_witnessing_corruption_under_donald_trump_at/o11bbwi/
+
+"insane"
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qjqv6x/were_witnessing_corruption_under_donald_trump_at/o11nwqs/
+
+"Russian bot"
