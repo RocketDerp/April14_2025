@@ -2351,3 +2351,19 @@ https://old.reddit.com/r/worldnews/comments/1qjnw6k/trump_backpedals_on_threats_
 The god-damn fucking JOKES. The constant joking about Donald J. Trump. The "diaper don" jokes, the orange fucking skin jokes. "Just a prank, bro", 'Just joking, ha ha ha" of MAGA USA Reddit MAGA California USA. Jokes do not justify rape and greed! Jokes are abusive make aggressive lies in USA culture. Donald Trump is not funny, his Tiny Clifton act show show gullibility and dumb people are to wreck the world for a god damn stupid orange skin joke. USA joke addicts will not REMOVE Trump and stand up to their hate-filled friends for their raging egomania "joking" / 'pranking", "children's tears in Africa USAID, lol lol lol", "leopards faces, ha ha ha, LOL LOL" jokes! "Liberal tears, so sweet" joke telling.
 
 Social post { https://autistics.life/@RoundSparrow/115938391284416002 https://bsky.app/profile/roundsparrow.bsky.social/post/3mcyzpn5sqc2a }
+
+https://old.reddit.com/r/worldnews/comments/1qjnw6k/trump_backpedals_on_threats_against_greenland_but/o10fcxl/
+
+Even internal to the USA. All you see on Reddit for years and years:
+
+1. Leopards eating rural less-educated faces! ha ha, lol, Rupert Murdoch billionaire ate poor people in Rural Iowa faces!
+
+2. Putin Internet Research Agency ate faces on Reddit. LOL LOL, ha ha
+
+It is sickening and abusive in USA. People prize hate, tech hate, encourage hate. Anti-Malala anti-MLK Jr. Anti-goodness. Small town farmers had predatory Elon Musk mind-fucking them, predator Facebook billionaires mind-fucking them, predatory New York City golf course owners mind-fucking rural farmers in Indiana. All the poor immigrants from Mexico got mind-fucked by Rupert Murdoch and Putin and people think it is funny to joke "Leopards ate faces, Rupert Murdoch ate a Cuban poor family face!!' - worshiping the god damn Murdoch family. It's so fucking sickening what I see on /r/LeopardsAteFaces joke comedy hall. A god damn anti-compassion anti-Malala terrorist training camp for young me to cheer on horrors of billionaires mind-fucking uneducated women and children.
+
+Small town people depend on compassion and intelligent rural people to stand up and defend. Like Jen Senko stands up and rescued her father from right-wing radio and Fox News. But Reddit is a pro-Russia pro-Putin training ground cheering on the Putin "leopards" like Trump to *eat faces harder*. So fucking mentally sick mob mentality.
+
+You voted for your drug addiction, you voted for your booze, ha ha ha. Leopards ate faces. Anti-compassion bullshit. Rupert Murdoch has made entertainment Fox News a mechanism of abuse. A way to dehumanize with Fox News jokes and memes. And Reddit addicts do the same god-dam thing Rupert Murdoch does. Promote ignorance and anti-understanding.
+
+OPERA_A All my friend in Indiana destroyed the fucking world with their terrible education. A city slicker in New York City and Fox News HQ in New York City fucked-over my high school class in Fort Wayne, Indiana and all their children. It is a fucking horror show what billionaires have done to rural less-educated USA people in Indiana since year 2013. https://www.youtube.com/watch?v=joNzRzZhR2Y 9,667,822 views October 5, 2009 
