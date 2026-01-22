@@ -2455,3 +2455,9 @@ https://old.reddit.com/r/clevercomebacks/comments/1qjlbrh/he_is_and_its_not_just
 https://old.reddit.com/r/ProgressiveHQ/comments/1qjqtnl/he_has_degenerated_into_an_outcast/o116y5z/
 
 People in USA are still plastering photographs of Donald Trump every hour of every day on the front page /r/All of Reddit. The Fandom of Trump has spent 10 years gawking at Trump's photographs and the gap in education is horrific. Over a decade of learning and progress lost to brain-damage attraction to Trump. Surkov won since March 2013.
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qjqtnl/he_has_degenerated_into_an_outcast/o11aj08/
+
+7 month Reddit account. "Putin", "Russia". Short messaging to  banalizing the complex topic. 
+
+* 1993 TV is now year 2013 onward Reddit commenting section. "Their life is shit, if you will pardon the expression, and this is a comedy. Because all the troubles that such a life involve are just reduced to banality, just the **common rubble of little one line joke, you follow me? It’s made banal by it.** It’s banalised that way."; "This is the great – to me – ideological function of television and the movies. However extreme the situation, TV can find a way to turn it into a banality." - Texan Rick Roderick, year 1993, Duke University. "Marcuse and One-Dimensional Man". The joking tiny-think meme-think Tweet-think one-dimensional mindset. The Trump fandom on Reddit. https://RickRoderick.org/304-marcuse-and-one-dimensional-man-1993/
