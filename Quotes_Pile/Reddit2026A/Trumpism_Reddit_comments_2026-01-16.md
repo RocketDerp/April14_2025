@@ -1904,3 +1904,8 @@ https://old.reddit.com/r/worldnews/comments/1qkvqv9/starmer_urges_trump_to_apolo
 https://old.reddit.com/r/worldnews/comments/1qkvqv9/starmer_urges_trump_to_apologise_over_frankly/o19whuf/
 
 "Russian"
+
+https://old.reddit.com/r/MurderedByWords/comments/1qkusot/no_papers_no_freedom/o19ke6o/
+
+And if you behave *stressed*, *alarmed*, *overly-concerned* or *anxious* while your home nation is going crazy... on Reddit social media in December 2025 or January 2026 ... over the situation you will be banned, attacked, mocked, driven off Reddit. You are only welcome if you tell pre-greased predictable patterns of meme jokes and don't make your messages too serious from nonfiction books about Free Masons symbolism. PLUR1BUS (Free Mason language symbolism) subreddit community experience from December 4, 2025 to January 15, 2026. Reddit will disappear you and silence you. Reddit community does not see much of a problem with this technology leadership of public. Reddit community hive mind.
+
