@@ -1837,3 +1837,10 @@ February 22, 2024: https://globalchildren.georgetown.edu/events/the-war-against-
 
 This was the kind of things I learned from elders while an employee.. working for Telos Federal Systems as an Apprentice in 1986 at the Fort Wayne, Indiana office. Information warfare. Putin learned a lot of horrific nasty shit in Germany before the Berlin wall came down / USSR cold war. Military information systems, teaching, learning, etc. "A person who is demoralized is unable to assess true information" is a core concern of James Joyce's Finnegans Wake / Finn's Hotel year 1923 and the FinWakeIndraNet - this GitHub project.
 
+https://old.reddit.com/r/UnderReportedNews/comments/1qkqn48/iceborder_patrol_agents_are_now_hitting/o18j7gr/
+
+Extremely tiny-short commenting. Top of comment section. This is Twitter-thinking mindset of Reddit hive mind 2026. ANYTHING but turn to nonfiction serious books on paper and authors.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qkqn48/iceborder_patrol_agents_are_now_hitting/o18ldl8/
+
+Reddit loves this, people don't want to make Dr. Bandy X Lee's nonfiction book from October 3, 2017 the center of attention. That's too boring for the Reddit fandom of shit-posting and shit-commenting and shit-leading Trump. 11 month account.
