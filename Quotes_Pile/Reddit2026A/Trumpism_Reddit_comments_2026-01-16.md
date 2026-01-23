@@ -1795,3 +1795,10 @@ I'm so sick of the world Reddit audience / hate fandom has ushered in via Putin 
 
 OPERA_A Saint Pete or a Truck Stop for MAGA, Reddit is a MAGA joke-washing humor-cleaning MAGA center. ANYTHING and EVERYTHING can be joked away on Reddit, mocking training camp. Trump is prized for the LOL Cow to milk and keep clean as 79-year old man with diapers is the shit-posting prizing of Reddit fandom. Sure as hell not Saint Peter's Church and **sure as hell not Dr. Bandy X Lee standing up for goodness** itself against mob mentality got sour and toxic. James Joyce Wake the Finengans. R.E.M. Dream mental states. https://www.youtube.com/watch?v=dLxpNiF0YKs  49,362,513 views September 13, 2017 - yes, we have lost touch with goodness. Surkov won.
 
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qkpjjr/hes_so_dumb_jfc/o189jl1/
+
+Why isn't Dr. Bandy X Lee's October 3, 2017 nonfiction book not being quoted over and over more than "Epstein" facts and name on Reddit social media?
+
+* “If they can get you asking the wrong questions, they don't have to worry about answers.” ― Thomas Pynchon, Gravity’s Rainbow
+
+These are the Reddit fandom of Trump, asking questions based on Trump-writing. It's Fox News *The Language*, gang-signs of HDTV information street gangs. "September 16, 2020 — Fox, for many of its fans, is an identity shaped by an ever-expanding lexicon" By Megan Garber https://www.theatlantic.com/culture/archive/2020/09/fox-news-trump-language-stelter-hoax/616309/
