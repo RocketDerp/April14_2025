@@ -2,7 +2,8 @@
 
 From a person who had never stepped foot in North America...
 
-I was living in Bali, Indonesia. I had no other home, this was my home.  
+I was living in Bali, Indonesia. I had no other home, this was my home. OPERA_A Now you are here in Bali, and you don't know why. https://www.youtube.com/watch?v=rZoD8JEFjAE 
+20,202,811 views October 25, 2009 DIVIDED_BY_ZERO_CHECKPOINT_BALI Inside of you...
 
 On the flight into Bali, we had a stopover in Jakarta Indonesia. And I asked my partner, would you please plan two things for us:
 
