@@ -1820,3 +1820,20 @@ https://old.reddit.com/r/BlackPeopleofReddit/comments/1qkkud7/president_obama_sp
 Yes. The men on Reddit prize Trump shit. Leadership of shit-posting by Truth Social to Reddit audience. Why is Reddit community, the users of Reddit - not making Dr. Bandy X Lee the most famous person on the Internet this week? While the iron is hot, Trump is pissing off the whole world this week over Greenland, why isn't Reddit pushing Dr. Bandy X. Lee's nonfiction book? Is it because Dr. Lee is an older woman? Is it because her **book is nonfiction, not entertainment like Trump provides? Not a meme book like Trump is a meme President Tony Clifton actor?**
 
 Social post { https://autistics.life/@RoundSparrow/115944970231529157 https://bsky.app/profile/roundsparrow.bsky.social/post/3md3x7fswlc2z https://MidWest.Social/post/42299746 }
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qkqn48/iceborder_patrol_agents_are_now_hitting/o18i89t/
+
+Targeting children to get camera coverage. 
+
+* Russia and the **Menace of Unreality**: How Vladimir Putin is revolutionizing information warfare. Peter . September 9 2014, 3:42 PM ET      
+“If previous authoritarian regimes were three parts violence and one part propaganda,” argues Igor Yakovenko, a professor of journalism at the Moscow State Institute of International Relations, “this one is **virtually all propaganda and relatively little violence**. Putin only needs to make a few arrests—and then amplify the message through his total control of television.”     
+September 9, 2014: https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+People (We The People) need to be quoting this article and Pomerantsev's books. Targeting children EARLY in the information war is Kremlin media techniques, Surkovian. February 27, 2022 https://www.TheGuardian.com/world/2022/feb/27/children-caught-up-in-ukraine-war
+
+February 22, 2024: https://globalchildren.georgetown.edu/events/the-war-against-ukraine-s-children "The War Against Ukraine's Children" - all part of KGB old-school demoralization executive function mind techniques.
+
+* "As I mentioned before, exposure to **true information** does not matter anymore. A person who is **demoralized is unable to assess true information**. The facts tell him nothing, even if I shower him with information, with authentic proof, with documents and pictures ... he will refuse to believe it ... That's the tragedy of the situation of demoralization." - Yuri Bezmenov; year 1983 https://en.wikipedia.org/wiki/Yuri_Bezmenov
+
+This was the kind of things I learned from elders while an employee.. working for Telos Federal Systems as an Apprentice in 1986 at the Fort Wayne, Indiana office. Information warfare. Putin learned a lot of horrific nasty shit in Germany before the Berlin wall came down / USSR cold war. Military information systems, teaching, learning, etc. "A person who is demoralized is unable to assess true information" is a core concern of James Joyce's Finnegans Wake / Finn's Hotel year 1923 and the FinWakeIndraNet - this GitHub project.
+
