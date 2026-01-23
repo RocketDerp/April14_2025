@@ -1441,3 +1441,11 @@ https://old.reddit.com/r/LivestreamFail/comments/1qkrzqe/xqc_reacts_to_rakai_lau
 
 Age 79 role model is his upstream elder teacher. "QuVonn RaKai Linder, known as 2xRaKai, is an American Twitch streamer and YouTuber born on November 21, 2008. As of July 2025, he is 16 years old (turning 17 in November 2025). He is a member of the Clover Boys known for his high-energy "Just Chatting" content." following what the parents have chosen for leader, all the 'adults in the room' since June 16, 2015 flock to shit-posting Trump.
 
+https://old.reddit.com/r/Animemes/comments/1qkuesr/til_japan_thinks_western_anime_watchers_all_have/o19l6x4/
+
+https://old.reddit.com/r/Animemes/comments/1qkuesr/til_japan_thinks_western_anime_watchers_all_have/o19r94i/
+
+https://old.reddit.com/r/Animemes/comments/1qkuesr/til_japan_thinks_western_anime_watchers_all_have/o19i5ld/
+
+https://old.reddit.com/r/Animemes/comments/1qkuesr/til_japan_thinks_western_anime_watchers_all_have/o19csb3/
+
