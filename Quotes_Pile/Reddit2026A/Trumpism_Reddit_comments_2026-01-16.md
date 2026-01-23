@@ -1701,3 +1701,6 @@ https://old.reddit.com/r/politics/comments/1qk79om/trump_goes_on_manic_50post_ra
 
 People adopt the bullshit, copycat the success of Trump. He has been the center of all USA society attention since June 16, 2015.
 
+https://old.reddit.com/r/politics/comments/1qk79om/trump_goes_on_manic_50post_rampage_after_world/o14uevy/
+
+Twitter-length message on Reddit. Tweet-thinking. *Always more Trump*. The fandom of Trump on Reddit always wants MORE Trump content, more images, more cameras. After 10 years and 7 months of this Trump show, they make zero effort to promote Dr. Bandy X Lee's book from October 3, 2017 and call for the removal of a dangerous man. Because the desire to have Trump on camera for MORE IMAGES and to mock Trump and insult Trump exceeds all goodness!
