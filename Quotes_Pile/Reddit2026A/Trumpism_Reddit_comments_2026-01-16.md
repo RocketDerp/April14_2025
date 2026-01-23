@@ -1758,3 +1758,25 @@ There are people in this world that crowds instantly trust and hand over power a
 * 1993 articulation: "we get the phenomenon of Reagan, the hyperreal president. More real than real. I mean he’s better at being Harry Truman than Harry Truman. I mean, the distinction about what he is is lost in the hyperreality of his smile, which like the Cheshire Cat’s, you know, just gleams across his face. And we get for the first time a phenomenon never known in polling which is the phenomenon of not liking a person, but of liking liking a person. This is a sign you are dealing with the hyperreal. Let me go over that again: Reagan’s popularity was popular. When you went through the various traits of Reagan and what Reagan stood for and his policies and so on, ah, vast numbers of people disliked nearly all of them. What was popular was his popularity. And I don’t think that Reagan’s alone in this. **Show business figures had this same thing go on for years**." https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
 
 My concern is that people don't recognize the anti-diversity of all flocking to a certain craze of Joe Rogan or beauty standards of Donald Trump prized for shit-commenting, shit-posting, shit-messaging, shit-leadership. My God, can we not get Reddit audience to stop prizing shit from Trump for OVER TEN YEARS AND SEVEN MONTHS. The addition to hate, the addictions to mocking, the addition to fiction wrecking all nonfiction!!!
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1qkmj4o/joe_rogan_says_trump_using_ice_raids_to_distract/o17yti3/
+
+Joe Rogan is charming. Donald Trump is charming. People are charmed by repetitive images on /r/All of Trump. People are charmed by calling others stupid and dumb and idiot and moron in clever ways. Daddy issues of powerful men: Andrew Tate, Joe Rogan, Donald Trump. ANYTHING but follow an intelligent organized woman leader like Dr. Bandy X Lee to cast terminology and dialog upon the charming aspects of Rudy Giuliani, Joe Rogan, Elon Musk, Donald Trump, Alex Jones, Osama Bin Laden, Rush Limbaugh, Fox News content, Newsmax content, Reddit Trump image worship.. (hate watching worship https://en.wikipedia.org/wiki/Hate-watching )
+
+Bluesky and Reddit ... people would rather prize hate than get rid of hate. As I have said over and over, "The 1954 Equation" https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Martin_Luther_King_Jr_quotes0.md  by Dr. Martin Luther King Jr is not difficult for an Internet user to locate. But that would mean there isn't a Donald Trump to hate, a Donald Trump to mock, a Joe Rogan to hate, a Joe Rogan to mock. The prizing of out-group hate.
+
+Democracy does not work without "love thy neighbor", "love thy enemy". Published year 1988:
+
+CAMPBELL: But in the Bible, eternity withdraws, and nature is corrupt, nature has fallen. In biblical thinking, we live in exile.
+
+BILL MOYERS: As we sit here and talk, there is one story after another of car bombings in Beirut — by the Muslims of the Christians, by the Christians of the Muslims, and by the Christians of the Christians. It strikes me that Marshall McLuhan was right when he said that television has made a global village of the world—but he didn’t know the global village would be Beirut. What does that say to you?
+
+CAMPBELL: It says to me that they don’t know how to apply their religious ideas to contemporary life, and **to human beings rather than just to their own community**. It’s a terrible example of the failure of religion to meet the modern world. These three mythologies are fighting it out. **They have disqualified themselves for the future.**
+
+MOYERS: What kind of new myth do we need?
+
+CAMPBELL: We need myths that will identify the individual not with his local group but with the planet. A model for that is the United States. Here were thirteen different little colony nations that decided to act in the mutual interest, without disregarding the individual interests of any one of them.
+
+MOYERS: There is something about that on the Great Seal of the United States.
+
+CAMPBELL: That’s what the Great Seal is all about.
