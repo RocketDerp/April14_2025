@@ -1424,3 +1424,7 @@ I've found some of the most aggressive men are the ones who claim people are A.I
 https://old.reddit.com/r/mildlyinfuriating/comments/1qkp41f/they_misspelled_the_united_kingdom_on_my_new/o18536p/
 
 Media ecology. The modern Gutenberg Press issues. Boiler-plate field labels.
+
+https://old.reddit.com/r/mildlyinfuriating/comments/1qkp41f/they_misspelled_the_united_kingdom_on_my_new/o1847x4/
+
+There is so much Finnegans Wake year 1923 English James Joyce concerns in this topic. Irish metal freedom crushed by English language and UK empire.
