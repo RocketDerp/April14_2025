@@ -14,7 +14,7 @@
 
 # Preachy on Health Care
 
-Luigi doesn't fucking do anything but create sneak attack worship of video camera shootings. American gun stroking. Why are people not posting poor people on social media every 12 hours? Denied insurance claims? Paperwork and red tape piles? Record of phone calls and turnaround time? 13,000 cases as examples, day after day, every 6 hours, every 12 hours, put real names and real faces! Luigi the video game smoking killer is only celebrating ignorance. WHY was Reddit user Luigi unable to get the BOOK on the front page?
+Luigi doesn't fucking do anything but create sneak attack worship of video camera shootings. American gun stroking. Why are people not posting poor people on social media every 12 hours? Denied insurance claims? Paperwork and red tape piles? Record of phone calls and turnaround time? 13,000 cases as examples, day after day, every 6 hours, every 12 hours, put real names and real faces! [Luigi the video game character smoking](https://tenor.com/view/luigi-smoking-revolution-gif-984480169945063945) gang-sign messaging... killer... is priarily [celebrating ignorance](https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Carl_Sagan_Quotes.md#celebration-of-ignorance). WHY was Reddit user Luigi Mangione unable to get the **NONFICTION BOOK** on the front page?
 
 YEAR 2010 book. https://en.wikipedia.org/wiki/Delay,_Deny,_Defend YEAR 2024 SHOOTING. Reddit account: https://www.nbcnews.com/news/us-news/reddit-account-linked-luigi-mangione-back-pain-surgery-rcna183674
 
