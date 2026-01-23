@@ -1927,3 +1927,10 @@ https://old.reddit.com/r/DiscussionZone/comments/1qkx1d7/what_are_your_thoughts/
 
 Cry for help is a good thing.
 
+https://old.reddit.com/r/AdviceAnimals/comments/1qkt9h8/the_cognitive_dissonance_and_mental_gymnastics/o191thn/
+
+Posting topic "Russians". Why would you let an enemy nation mind-fuck your population and treat it like only the **most obvious cover-fire** subreddit is all there is?
+
+* April 16, 2023 - "The Russian operators of those accounts **boast that they are detected by social networks only about 1 percent** of the time, one document says." https://www.washingtonpost.com/technology/2023/04/16/russia-disinformation-discord-leaked-documents/
+
+People have no concept of the dumb as hell "cover fire" used to make people think it is always obvious, simple to spot, etc.
