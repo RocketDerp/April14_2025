@@ -2374,3 +2374,7 @@ I have argued that I don't observe this show to be "entertainment" as much as I'
 I think it is entertaining "enough". I think a lot of money and labor goes into making it. I think copyright keeps it from many people in rural areas that need to see it, and the lavish wealth brand behind the show doesn't appeal to that rural population of MAGA that maybe needs to see it most. But a lesbian who never shows a single sign of Christian faith or Church attendance and outright says "Camp Freedom Falls" smiling abusers is an experience... would rural MAGA audiences find this show more enraging than entertaining? Then again, hate and bigotry sure seems popular sport.
 
 Not the note i want to leave this message on, but that is a problem I have. I would rather we all discuss the entire POTUS Seal and Great Seal of the United States of America - because my concern is the prizing of hate. And this is the only show I can find that titles itself after a year 1776 ideal by the free masons founding fathers... and how few people have ever minded the free mason language and metaphors of symbols and words.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q2tofm/plur1bus_zero_hour_00000000_countdown_minute_22/o11xx6n/
+
+One of my better-organized and written public Reddit posts got a comment 19 days later.
