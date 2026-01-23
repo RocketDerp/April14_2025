@@ -1943,3 +1943,12 @@ https://old.reddit.com/r/AdviceAnimals/comments/1qkt9h8/the_cognitive_dissonance
 
 4 month Reddit account. Fiction addictions are the concern. ANY fiction, any brand, any meme subreddit, all of Reddit, all of media systems in USA. Sports rectangle games, fiction anti-reality all over.
 
+https://old.reddit.com/r/LegalNews/comments/1qkrt4h/karoline_leavitts_excuse_for_trumps_cancel_the/o18oxr9/
+
+"crazy", most upvoted, Tweet-length. 
+
+https://old.reddit.com/r/LegalNews/comments/1qkrt4h/karoline_leavitts_excuse_for_trumps_cancel_the/o18qyzv/
+
+Superficial, mocking women, banal, shallow. Anything but turn to serious and urgent Dr. Bandy X Lee's book from October 3, 2017 and REMOVE TRUMP. Instead, people are using free time and spare time on Reddit to discuss the finer points of cosmetics on the face of White House personnel supporting Trump. This is the Reddit fandom, hate-watching a fiction mutli-media mutli-platform multi-venue show https://en.wikipedia.org/wiki/Hate-watching they (We The People) will not REMOVE and will not organize to remove. OVER TEN YEARS AND SEVEN MONTHS of this commenting over and over and over, day after day. ANYTHING to avoid nonfiction learning and repeating important serious quotes and education. 
+
+This is consumer behavior, not resisting at all.
