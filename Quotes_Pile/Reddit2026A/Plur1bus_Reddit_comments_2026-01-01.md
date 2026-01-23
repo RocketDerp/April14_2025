@@ -2410,3 +2410,8 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1q5bosa/who_else_thinks_antica
 Reddit subreddit experience: "From my limited time in this sub, it’s feeling like a very smart show with a very dumb fanbase."
 
 Anti-intellectual fanbase, reactive hive mind / mindsets. Which I am glad Vince Gilligan called "social media cesspool" on February 15, 2025. He is burning the right brainrot addictions. Meth-fandom, (fandom audience) punching down on the abused. The praise in the social media cities of the meme drug dealers / cooks.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q5bosa/who_else_thinks_anticarol_folk_are_absurd/nyklr6x/
+
+The reply comment has a point I need to emphasize about "Comparative Mythology". Analysis of religions and languages and meaning is about studying the REAL WORLD driven by fiction storytelling. The comparing of REAL WORLD marriages from geography to geography. Why I traveled to live in Africa and Middle East and Indonesia and Malaysia. We are NOT learning from the Native Americans / First Peoples in USA at all. We prize Elon Musk Twitter screenshots way too much compared to Navajo teachings and experiences.
+
