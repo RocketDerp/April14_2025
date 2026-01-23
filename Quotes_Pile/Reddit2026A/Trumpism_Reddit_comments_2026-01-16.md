@@ -1881,3 +1881,18 @@ https://old.reddit.com/r/politics/comments/1qks3tc/dark_bizarre_stuff_white_hous
 https://old.reddit.com/r/politics/comments/1qks3tc/dark_bizarre_stuff_white_house_posts_deepfake/o18v3qt/
 
 ANSWER: Because it is an organized "Operation Matthew 4:19" that is trolling Reddit and has bamboozled Reddit audience since deployment March 2013 onward. The outcomes are an audience that comments on every fake content created by Trump / MAGA without actually defending against it! Commenting about Trump is not DEFENDING against Trump with hard-core nonfiction education! https://github.com/RocketDerp/April14_2025/blob/main/Operation_Matthew_4_19_on_monday_2024-03-31.md
+
+https://old.reddit.com/r/worldnews/comments/1qkvqv9/starmer_urges_trump_to_apologise_over_frankly/o19mse6/
+
+**FUNDAMENTAL Reddit Hive Mind Community Misunderstanding**  
+
+MAGA is not ONE 79 year old man. JD Vance and Elon Musk and Fox News are not all dementia 79 year old man who wears adult diapers. The entire fixation on Trump is a mistake / misunderstanding/ failure to grasp the situation. This is about NATO, this is about Ukraine and Putin and Russia! Trump just met with Putin in Alaska last summer! People are so fixated on FOLLOWING TRUMP, they are not connecting the dots of the whole trail back to November 8, 2013 trip to Moscow - Russia!!! "Operation Matthew 4:19" beginnings.
+
+Reddit is eating out of Trump's hands with the latest images / photo fetish of Trump's body. Aggressive male, Epstein list, private helicopters, private jets. Power of white men billionaires and their sex images. An image of Trump on the red carpet gets the Reddit audience all riled up! WRONG FOCUS, micro level, of Trump as one person. MAGA is hundreds of millions of people (the global macro level)!!!
+
+Reddit is avoiding: nonfiction about cults. Nonfiction about mythology and information warfare. **Religions, cults, Rupert Murdoch media cults, Church Bible cults, Trump MAGA is cults and "God Jesus Trump" religions**. August 24, 2024 reference on Ukraine / Russia. https://edition.cnn.com/2024/08/24/europe/ukraine-zelensky-orthodox-church-ban-intl
+
+Please turn away from fixating on ONE SINGLE MAN. Look at Steve Bannon's plan for Trump causing world wide chaos!
+
+* “Chaos and disruption, I later learned, are central tenets of Bannon's animating ideology. Before catalyzing America's dharmic rebalancing, his movement would first need to instill chaos through society so that a new order could emerge. He was an avid reader of a computer scientist and armchair philosopher who goes by the name Mencius Moldbug, a hero of the alt-right who writes long-winded essays attacking democracy and virtually everything about how modern societies are ordered. Moldbug’s views on truth influenced Bannon, and what Cambridge Analytica would become. Moldbug has written that “nonsense is a more effective organizing tool than the truth,” and Bannon embraced this. “Anyone can believe in the truth,” Moldbug writes, “to believe in nonsense is an unforgettable demonstration of loyalty. It serves as a political uniform. And if you have a uniform, you have an army.”
+― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the [Plot to Break America, page 85](https://books.google.com/books?id=8OW2DwAAQBAJ&pg=PA85&dq=%22serves+as+a+political+uniform.+And+if+you+have+a+uniform,+you+have+an+army.%E2%80%9D&hl=en&newbks=1&newbks_redir=1&sa=X). **year 2019**
