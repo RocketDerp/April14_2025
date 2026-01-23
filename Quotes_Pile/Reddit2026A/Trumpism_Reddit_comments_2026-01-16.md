@@ -1646,3 +1646,13 @@ https://old.reddit.com/r/minnesota/comments/1qk48b9/william_kelly_dawokefarmer_a
 Reddit's Trump Fandom, "LMAO". For over a decade, "LOL LOL Trump, LMAO MAGA".
 
 * “When a population becomes distracted by trivia, when cultural life is redefined as a perpetual round of entertainments, when **serious public conversation becomes a form of baby-talk**, when, in short, a people become an audience, and their public business a vaudeville act, then a nation finds itself at risk” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business
+
+https://old.reddit.com/r/technology/comments/1qk88s7/white_house_posts_aialtered_photo_of_arrested/o14mhle/
+
+1 month Reddit account. Top-voted comment. Russia "War Against Reality" since March 2013 is working. Reddit society unable to engage and comprehend and understand off-Reddit... September 9, 2014: https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/technology/comments/1qk88s7/white_house_posts_aialtered_photo_of_arrested/o14nndv/
+
+"the memes will continue"
+
+And the meme addicts of Reddit line up to add more mocking and jokes every time. For over a decade. Anything but learn nonfiction about altering images and creating reality.  Russia "War Against Reality" since March 2013 is working. Reddit society unable to engage and comprehend and understand off-Reddit... September 9, 2014: https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
