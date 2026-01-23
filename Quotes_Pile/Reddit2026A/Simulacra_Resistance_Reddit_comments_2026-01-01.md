@@ -547,3 +547,19 @@ Spare time and free time is consumed to engage Trump's shit. Hey, I like the lan
 REMOVE TRUMP and ADDRESS MAGA with Dr. Bandy X Lee education. This will take years and years, but it is progress! Progressive! 
 
 * "And I also think that we have to, ah, be wary of the… overquick reduction of complexity. If some of this lecture has seemed a little weird or to go a little too far, it’s because I don’t want to reduce quite all of this to slogans. On the other hand, I don’t want it to not be funny, because part of the postmodern trajectory itself is **a rather humorous joke on the human race** which laboured for millennia to reduce working hours in order to produce leisure so we could enjoy this **very leisure that then turns in a kind of vengeful act against us absorbing our leisure time**, which was to be our living time, into time now spent ***in the service of what can only be called this inhuman spectacle***. I mean, it’s a **very bizarre and twisted fate** to which postmodernity has led us. So I would be wary of simple answers to this." - Texan Rick Roderick. Duke University. https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qkpjjr/hes_so_dumb_jfc/o188qlj/
+
+Yes, this post is resisting, but resisting WHAT? Exactly what is being resisted? A super-ignorant low-bar taunting message from an actor, acting! Donald Trump is a comedian entertainer. People love and adore and worship jokes about how { dumb, stupid, moron, idiot } Trump is. Do you know how many fucking times Trump has been messages in his life that he is an IDIOT? HE KNOWS! 
+
+The crowd on Reddit, on the other hand, does NOT KNOW "Tony Clifton" performance style of NYC (Trump Home Town) Saturday Night Live (SNL)! Reddit audience is being BAMBOOZLED!
+
+Trump does not CARE about mistakes and errors and mental exceptions, because they all draw the crowd in! It is all a manipulation technique. Russian: Putin and Surkov, for the past 25 years! Surkov governing techniques and methods!
+
+1995, wake up, again YEAR 1995. Repeating: 1995. “One of the saddest lessons of history is this: If we’ve been bamboozled long enough, we tend to **reject any evidence of the bamboozle**. We’re no longer interested in finding out the truth. The bamboozle has captured us. It’s simply too painful to acknowledge, even to ourselves, that we’ve been taken. Once you give a charlatan power over you, you almost never get it back. So the old bamboozles tend to persist as the new ones rise.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, **1995**, page 241
+
+THE EVIDENCE REDDIT SOCIETY IS AVOIDING AND REJECTING: October 20, 2011. COUNT THE YEARS. LONG BEFORE the November 2016 election: https://www.lrb.co.uk/the-paper/v33/n20/peter-pomerantsev/putin-s-rasputin
+
+Donald Trump is first and foremost: A celebrity. A TV star. A Reality Television star and actor! Acting!
+
+MORE EVIDENCE REDDIT SOCIETY IS AVOIDING AND REJECTING: Published January 2015, before Trump started run for office in June 2015: https://www.Politico.com/magazine/story/2015/01/putin-russia-tv-113960/ At one end of the table sat one of the country’s most famous political TV presenters. He was small and spoke fast, with a smoky voice: “We all know there will be no real politics,” he said. “But we still have to give our viewers the sense something is happening. They need to be kept entertained.” “So what should we play with?” he asked. “Shall we attack oligarchs? Who’s the enemy this week? **Politics has got to feel like a movie!**”
