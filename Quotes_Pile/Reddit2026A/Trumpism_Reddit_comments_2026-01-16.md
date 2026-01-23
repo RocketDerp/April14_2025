@@ -1854,3 +1854,7 @@ Reddit community:
 2. Why isn't greed being addressed by promoting Dr. Bandy X Lee's nonfiction book fro October 3, 2017 on Reddit? Why is there such an extreme avoidance of nonfiction books on paper from the Reddit community?
 
 People have all this spare time and free time, leisure time, to comment. But will not call to get on the same page and stay on the same pages until problems get resolved. Important and serious crisis problems.
+
+https://old.reddit.com/r/technology/comments/1qks90c/is_your_ring_doorbell_footage_going_straight_to/o18su22/
+
+6 month Reddit account. Tweet-length. Top popular. No off-Reddit links or quotes or author names.
