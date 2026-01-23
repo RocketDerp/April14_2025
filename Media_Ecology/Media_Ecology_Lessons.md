@@ -1672,6 +1672,7 @@ https://www.youtube.com/shorts/ZdxC8n9l-14
 # Deleted peek-a-boo information
 
 https://www.youtube.com/watch?v=p4zX1DQq9gQ    
+60,987 views January 7, 2026   
 The Goodreads Scandal You Haven't Heard About (Until Now)   
 Library of a Viking   
 
