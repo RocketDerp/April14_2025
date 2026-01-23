@@ -2390,3 +2390,7 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1qa1zww/do_nd_people_interpret
 https://old.reddit.com/r/Pluribus_TVshow/comments/1qa1zww/do_nd_people_interpret_this_show_differently_than/nyzq4fg/
 
 Same here. And it is alarming how many people on Reddit ignore Minute 37 of co-pilot Episode Two on Air Force One. The ONLY PLACE in Season One where the word "PLURIBUS" is in dialog or images.... the POTUS Seal. The Air Force One symbolism has been **manipulated by the hive mind** to remove 4 of the 13 stars and the eagle is pointing to the right-wing bird-wing instead of to the left-wing. These two alternates are in plain view on the screen right next to Carol. The hive mind is manipulating Carol, and this being in the first 90 minutes of a 4-season or 5-season story is significant... the ONLY place the word "PLURIBUS" appears in the TV season!
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q6rthm/inconsistency_is_it_about_to_jump_the_shark/ny9wy8c/
+
+Notices 911 telephone number message on Ambulance in the show. But everyone is ignoring the "PLRUIBUS" manipulated POTUS Seal on Air Force One. The TITLE OF THE SHOW image has been manipulated / doctored.
