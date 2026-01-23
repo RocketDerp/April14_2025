@@ -1396,4 +1396,9 @@ This is a subredit extremely concerned about games, entertainment games. And my 
 
 October 16, 2018 https://www.NYtimes.com/2018/10/16/us/politics/npc-twitter-ban.html - it made New York Times about "non-human players" attitude. This is BEFORE ChatGPT came in year 2022. Already aggressive dehumanization of "competition" was attitude being used in information warfare, cult programming. In other words: the richest businessmen in the entire world programming the rural (MAGA) less-educated people (MAGA) to hate upon *poor people* that are not entertaining. Poor rural people being programmed to hate upon the poor and to prize the beautiful / wealthy / those with cool hardware assets (Musk, etc).
 
+https://old.reddit.com/r/pcmasterrace/comments/1qkl05i/an_ai_generated_image_has_25k_upvotes_on_a_sub/o17dhcb/
+
+https://old.reddit.com/r/pcmasterrace/comments/1qkl05i/an_ai_generated_image_has_25k_upvotes_on_a_sub/o17faaw/
+
+5 day Reddit account
 
