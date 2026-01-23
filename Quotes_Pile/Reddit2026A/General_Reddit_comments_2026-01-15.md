@@ -1420,3 +1420,7 @@ https://old.reddit.com/r/pcmasterrace/comments/1qkl05i/an_ai_generated_image_has
 https://old.reddit.com/r/pcmasterrace/comments/1qkl05i/an_ai_generated_image_has_25k_upvotes_on_a_sub/o17dr50/
 
 I've found some of the most aggressive men are the ones who claim people are A.I. when not true. They fixate on people they sense are poor, poverty being the targets the seek to badger and fixate to drive away. Wealthy people with cool assets they admire.
+
+https://old.reddit.com/r/mildlyinfuriating/comments/1qkp41f/they_misspelled_the_united_kingdom_on_my_new/o18536p/
+
+Media ecology. The modern Gutenberg Press issues. Boiler-plate field labels.
