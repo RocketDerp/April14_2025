@@ -16,33 +16,13 @@ def to_github_markdown(html_content):
     md = re.sub(r'<p>|</p>', '', md)
     md = md.replace('<br>', '\n').replace('<br/>', '\n')
 
-    # 2. Extract Hashtags: Convert <a href="...">#<span>tag</span></a> to [#tag](url)
-    # This specifically targets the Mastodon export format for mentions/hashtags
-    #hashtag_pattern = r'<a href="([^"]+)" class="mention hashtag" rel="tag">#<span>([^<]+)</span></a>'
-    #md = re.sub(hashtag_pattern, r'[#\2](\1)', md)
-    
-    # 2. Extract Hashtags: Convert to [ #tag ](hashtags.md#tag)
-    # Target: a specific local markdown file with an anchor for each tag
-    hashtag_pattern = r'<a href="[^"]+" class="mention hashtag" rel="tag">#<span>([^<]+)</span></a>'
-    
-    def format_hashtag(match):
-        tag_text = match.group(1)
-        # GitHub anchors are usually lowercase; remove non-alphanumeric if necessary
-        anchor = tag_text.lower() 
-        return f"[#{tag_text}](hashtags.md#{anchor})"
-
-    # md = re.sub(hashtag_pattern, format_hashtag, md)
-    
-    #preserve the CamelCase 
+    # preserve the CamelCase 
     # 2. Extract Hashtags: Convert to [#tag](hashtags.md#tag) - Preserving Case
     # This targets the specific Mastodon span structure and points to your local file
     hashtag_pattern = r'<a href="[^"]+" class="mention hashtag" rel="tag">#<span>([^<]+)</span></a>'
     
     # \1 represents the captured tag name (e.g., FWakeAge32)
     md = re.sub(hashtag_pattern, r'[#\1](HashTags.md#\1)', md)
-    
-    
-
 
     # 3. Regular Links: Convert remaining <a href="URL">text</a> to [text](URL)
     link_pattern = r'<a href="([^"]+)"[^>]*>(.*?)</a>'
@@ -53,11 +33,6 @@ def to_github_markdown(html_content):
 
     # 5. Decode HTML entities (like &amp; or &quot;)
     return unescape(md).strip()
-
-# Example Usage within your loop:
-# print(f"### Post from {published}")
-# print(f"**Original URL:** {url}\n")
-# print(to_github_markdown(obj.get('content', '')))
 
 
 def clean_html(raw_html):
@@ -104,4 +79,3 @@ if __name__ == "__main__":
     # Ensure your export file is named 'outbox.json' or update the path here
     parse_mastodon_export('outbox.json')
     print(f"postcount {postcount}")
- 
