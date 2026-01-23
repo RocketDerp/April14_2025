@@ -6,7 +6,7 @@
 
 4. MLK Jr
 
-5. Erotic irony
+5. Erotic irony. Campbell, 1988: "But when he left to live with the bohemians, he found that they were so disdainful of life that he couldn’t stay with them, either. So he left them, and wrote a letter back to someone in the group, saying, “I admire those cold, proud beings who adventure upon the paths of great and daemonic beauty and despise ‘mankind’; but I do not envy them. For if anything is capable of making a poet of a literary man, it is my hometown love of the human, the living and ordinary."
 
 6. USA health care
 
