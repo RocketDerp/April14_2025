@@ -10,3 +10,5 @@ Metaphors of male pregnancy
 Ok, so, there is some massive failure to recognize that science fiction storytelling has been core to humanity for a very long time. That the magical pregnancy from outer space { Eden, Heaven } of the mother of Jesus fandom. And the retcon science fiction story Quran vs. Bible that seems to eliminate the father Joseph of Jesus entirely. Magical message machines on top of mountains that get outer-space alien messages on burning bush.
 
 Comparative Mythology topic is comparative Science Fiction outer-space storytelling, But people are unwilling to admit that Hamlet's Ghost story is similar to magical "angels" stories of { Torah, Quran, Bible } - or even 1977 "Force Ghost" stories of Star Wars films. The inability to translate science fiction stories of thousands of years ago to modern science fiction is a crisis. People form street gangs, terrorism, over their story fandom preferences. Easter bunny is science fiction storytelling. The ignorance and confusion on fiction vs. nonfiction is a very serious problem.
+
+https://old.reddit.com/r/todayilearned/comments/1qkew0b/til_yahwehgod_in_abrahamic_religions_originally/
