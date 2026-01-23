@@ -1666,3 +1666,14 @@ https://old.reddit.com/r/LivestreamFail/comments/1qj18ty/destiny_calmly_waits_fo
 Conformity pressured on women's role in rock music 
 
 https://www.youtube.com/shorts/ZdxC8n9l-14
+
+&nbsp;
+
+# Deleted peek-a-boo information
+
+https://www.youtube.com/watch?v=p4zX1DQq9gQ    
+The Goodreads Scandal You Haven't Heard About (Until Now)   
+Library of a Viking   
+
+* “a peek-a-boo world, where now this event, now that, pops into view for a moment, then vanishes again. It is an improbable world. It is a world in which the idea of human progress, as Bacon expressed it, has been replaced by the idea of technological progress. The aim is not to reduce ignorance, superstition, and suffering but to accommodate ourselves to the requirements of new technologies. We tell ourselves, of course, that such accommodations will lead to a better life, but that is only the rhetorical residue of a vanishing technocracy. We are a culture consuming itself with information, and many of us do not even wonder how to control the process. We proceed under the assumption that information is our friend, believing that cultures may suffer grievously from a lack of information, which, of course, they do. It is only now beginning to be understood that cultures may also suffer grievously from information glut, information without meaning, information without control mechanisms.”
+― Neil Postman, Technopoly: The Surrender of Culture to Technology. Year 1992
