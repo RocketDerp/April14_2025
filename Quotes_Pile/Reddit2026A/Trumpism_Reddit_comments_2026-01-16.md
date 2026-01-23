@@ -1844,3 +1844,13 @@ Extremely tiny-short commenting. Top of comment section. This is Twitter-thinkin
 https://old.reddit.com/r/UnderReportedNews/comments/1qkqn48/iceborder_patrol_agents_are_now_hitting/o18ldl8/
 
 Reddit loves this, people don't want to make Dr. Bandy X Lee's nonfiction book from October 3, 2017 the center of attention. That's too boring for the Reddit fandom of shit-posting and shit-commenting and shit-leading Trump. 11 month account.
+
+https://old.reddit.com/r/WorkReform/comments/1qksgbu/accumulating_wealth_beyond_any_possible_need_is_a/o18v4l5/
+
+Reddit community:
+
+1. Why isn't Reddit society promoting Bible verse "1 John 3:17" in the face of Elon Musk and Donald Trump and Rupert Murdoch? Why is anti-literacy and pro-banality such a desire of Reddit fandom of Trump?
+
+2. Why isn't greed being addressed by promoting Dr. Bandy X Lee's nonfiction book fro October 3, 2017 on Reddit? Why is there such an extreme avoidance of nonfiction books on paper from the Reddit community?
+
+People have all this spare time and free time, leisure time, to comment. But will not call to get on the same page and stay on the same pages until problems get resolved. Important and serious crisis problems.
