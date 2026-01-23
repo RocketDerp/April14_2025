@@ -1877,3 +1877,7 @@ https://old.reddit.com/r/politics/comments/1qks3tc/dark_bizarre_stuff_white_hous
 
 * “Social media, that little narcissism machine, the easiest way we have ever had to place ourselves on a pedestal of vanity, also is the mechanism that most efficiently breaks you up.”
 ― Peter Pomerantsev, This Is Not Propaganda: Adventures in the War Against Reality. Year 2019.
+
+https://old.reddit.com/r/politics/comments/1qks3tc/dark_bizarre_stuff_white_house_posts_deepfake/o18v3qt/
+
+ANSWER: Because it is an organized "Operation Matthew 4:19" that is trolling Reddit and has bamboozled Reddit audience since deployment March 2013 onward. The outcomes are an audience that comments on every fake content created by Trump / MAGA without actually defending against it! Commenting about Trump is not DEFENDING against Trump with hard-core nonfiction education! https://github.com/RocketDerp/April14_2025/blob/main/Operation_Matthew_4_19_on_monday_2024-03-31.md
