@@ -1934,3 +1934,12 @@ Posting topic "Russians". Why would you let an enemy nation mind-fuck your popul
 * April 16, 2023 - "The Russian operators of those accounts **boast that they are detected by social networks only about 1 percent** of the time, one document says." https://www.washingtonpost.com/technology/2023/04/16/russia-disinformation-discord-leaked-documents/
 
 People have no concept of the dumb as hell "cover fire" used to make people think it is always obvious, simple to spot, etc.
+
+https://old.reddit.com/r/AdviceAnimals/comments/1qkt9h8/the_cognitive_dissonance_and_mental_gymnastics/o190u3y/
+
+What you are witnessing here in these Reddit comments: Twitter-length commenting. No comparison to Facebook MAGA, Fox News HDTV MAGA, Newsmax HDTV MAGA, Elon Musk Twitter, etc. Only Reddit. People are blind to the forest problem. Only seeing trees they fixate on. This whole posting basically services to minimize and downplay the situation of media addictions, cults of Reddit media to /r/Conservative - it serves to give a **very very low bar** to measure reality against. Surkov won.
+
+https://old.reddit.com/r/AdviceAnimals/comments/1qkt9h8/the_cognitive_dissonance_and_mental_gymnastics/o197oz1/
+
+4 month Reddit account. Fiction addictions are the concern. ANY fiction, any brand, any meme subreddit, all of Reddit, all of media systems in USA. Sports rectangle games, fiction anti-reality all over.
+
