@@ -2402,3 +2402,11 @@ Reddit audience, fandom. ELI5, ELI4, ELI3, nothing works.
 https://old.reddit.com/r/Pluribus_TVshow/comments/1q5bosa/who_else_thinks_anticarol_folk_are_absurd/nxz687u/
 
 "incurious about the world around her"; "her thinking" - exactly like the vast majority of Reddit audience, Internet fandom! The tings people are curious about surely aren't the topics of { book authoring, book selling, book publishing, book touring, book reading, etc }. Minute 22 at the Zero Hour: James Joyce's books!
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q5bosa/who_else_thinks_anticarol_folk_are_absurd/ny0b34d/
+
+<img width="1032" height="292" alt="image" src="https://github.com/user-attachments/assets/995dac8e-18a8-41f8-b5d8-62eb12782caf" />
+
+Reddit subreddit experience: "From my limited time in this sub, it’s feeling like a very smart show with a very dumb fanbase."
+
+Anti-intellectual fanbase, reactive hive mind / mindsets. Which I am glad Vince Gilligan called "social media cesspool" on February 15, 2025. He is burning the right brainrot addictions. Meth-fandom, (fandom audience) punching down on the abused. The praise in the social media cities of the meme drug dealers / cooks.
