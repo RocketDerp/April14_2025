@@ -68,6 +68,19 @@ https://www.youtube.com/watch?v=k_JnCWT-_O8
 
 &nbsp;
 
+https://autistics.life/@RoundSparrow/115941918704366391    
+https://bsky.app/profile/roundsparrow.bsky.social/post/3md2lsnncds2k   
+
+The gullibility people have over Trump that everything he does is an accident / mistake / dumb / idiot / stupid. I think that's part of why he likes the orange facial makeup. It makes it clear that he is an actor, a performer, putting on performance art. People fall for, addictions to hate.
+
+Trump does not TRY to avoid behaving dumb, mixing up language, gesturing in usual ways. Because he knows it gets him in the popular press. Trump has studied casinos and media for the sake of understanding how people are driven to mocking and insulting. Predictable responses of a casino customer. He wasn't owner for profit as a businessman, Trump uses casinos for experiments in entertainment an to study people's predictability. Trump's power is bullying people, tricking people, making people follow him around like he is on The Truman Show in a dome of cameras.
+
+It works. People can not resist the hate that Trump prizes. Hate leadership gets hate following. People become addicted to the hate and mocking Trump cultivates.
+
+&nbsp;
+
+&nbsp;
+
 # October 19, 2024
 
 Zachary Basu     
