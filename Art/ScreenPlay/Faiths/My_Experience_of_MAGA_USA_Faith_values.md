@@ -7,7 +7,7 @@ I was living in Bali, Indonesia. I had no other home, this was my home. OPERA_A 
 
 On the flight into Bali, we had a stopover in Jakarta Indonesia. And I asked my partner, would you please plan two things for us:
 
-1. We have 34 days to decide what to do for New Years Eve 2012 / 2013. Please choose which hotel and what you want / desire to do. Concert, live music, food? I'll follow your lead.
+1. We have 34 days to decide what to do for New Years Eve 2012 / 2013. Please choose which hotel and what you want / desire to do. Concert, live music, food, new clothes, dancing practice? I'll follow your lead.
 
 2. Plan a train trip from one end of the nation to the other. Bali to Jakarta after New Years Day (January 3, 2013 onward). A train trip duration of 5 days to 25 days. 60 days after November 27 we need to renew visa to stay in Indonesia.
 
