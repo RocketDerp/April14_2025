@@ -1915,3 +1915,15 @@ https://old.reddit.com/r/politics/comments/1qkto0d/despite_authoritarian_warning
 
 https://old.reddit.com/r/politics/comments/1qkto0d/despite_authoritarian_warnings_149_house/o19377h/
 
+https://old.reddit.com/r/DiscussionZone/comments/1qkx1d7/what_are_your_thoughts/o19wf6i/
+
+https://old.reddit.com/r/DiscussionZone/comments/1qkx1d7/what_are_your_thoughts/o19ux27/
+
+https://old.reddit.com/r/DiscussionZone/comments/1qkx1d7/what_are_your_thoughts/o19v4pg/
+
+2 month Reddit account. Popular comment.
+
+https://old.reddit.com/r/DiscussionZone/comments/1qkx1d7/what_are_your_thoughts/o19z6uh/
+
+Cry for help is a good thing.
+
