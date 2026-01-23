@@ -1870,3 +1870,10 @@ https://old.reddit.com/r/politics/comments/1qks3tc/dark_bizarre_stuff_white_hous
 "Russian", "Kremlin"
 
 it's what is absent on Reddit that tells the story. Read between the lines. Is this comment saying it is a BAD THING, or just describing reality. Is it saying we need to follow Dr. Bandy X Lee's lead and reverse course? Is it calling for organized playbook resistance? nope. It's not standing up for goodness. Just saying "Russia" and "Kremlin". Active measures to normalize. Top voted popular comment. Requires no effort on the Reddit audience part to put Dr. Bandy X Lee at the center of attention.
+
+https://old.reddit.com/r/politics/comments/1qks3tc/dark_bizarre_stuff_white_house_posts_deepfake/o18rus6/
+
+1 month Reddit account. saturating the very topic with Tweet-length commenting tone and style that this GitHub is focused on. No off-Reddit links to serious nonfiction books or authors. Just feeding the audience with commenting after commenting. ANYTHING to avoid nonfiction public library section on information warfare.
+
+* “Social media, that little narcissism machine, the easiest way we have ever had to place ourselves on a pedestal of vanity, also is the mechanism that most efficiently breaks you up.”
+― Peter Pomerantsev, This Is Not Propaganda: Adventures in the War Against Reality. Year 2019.
