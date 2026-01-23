@@ -2401,4 +2401,4 @@ Reddit audience, fandom. ELI5, ELI4, ELI3, nothing works.
 
 https://old.reddit.com/r/Pluribus_TVshow/comments/1q5bosa/who_else_thinks_anticarol_folk_are_absurd/nxz687u/
 
-"incurious about the world around her" - exactly like the Reddit audience, Internet fandom! The tings people are curious about surely aren't the topics of { book authoring, book selling, book publishing, book touring, etc }. Minute 22 at the Zero Hour: James Joyce's books!
+"incurious about the world around her"; "her thinking" - exactly like the vast majority of Reddit audience, Internet fandom! The tings people are curious about surely aren't the topics of { book authoring, book selling, book publishing, book touring, book reading, etc }. Minute 22 at the Zero Hour: James Joyce's books!
