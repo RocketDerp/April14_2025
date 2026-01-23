@@ -25,9 +25,9 @@ The we hate humanism drunken bender.
 Drunk on memes and insult and hate messaging bender.  
 
 We "Ate the Surkov Onion" for so long.   
-The window of blaming Russia and Cambridge Analytica is probably closed. We had an opportunity to highlight this with the invide Greenland (EU), inviade Canada, stop supporting Ukraine - but that window of time is probably closed now in June 2025...
+The window of blaming Russia and Cambridge Analytica is probably closed. We had an opportunity to highlight this with the invade Greenland (EU), invade Canada, stop supporting Ukraine - but that window of time is probably closed now in June 2025...
 
-It is important people understand the depth of the problem and address attraction to hate, attraction to badness, attracton to total mockery Surkov / Surkovian patterns. But the window of being able to blame Russia has likely passed and now the rest of the world is likely unwilling to rescue the hearts and minds of USA online. People are sick of the USA brand and symbols and what they now represent has sunk in, the rebranding is complete, badness is expected and a few good things are not gong to turn the expectation around.
+It is important people understand the depth of the problem and address attraction to hate, attraction to badness, attraction to total mockery Surkov / Surkovian patterns. But the window of being able to blame Russia has likely passed and now the rest of the world is likely unwilling to rescue the hearts and minds of USA online. People are sick of the USA brand and symbols and what they now represent has sunk in, the rebranding is complete, badness is expected and a few good things are not gong to turn the expectation around.
 
 Humility and focus
 
@@ -36,5 +36,4 @@ Admit we did not rescue MAGA. Rural people were the least-educated in New York /
 USA gorged on meme messages. All news was entertainment.  
 USA gorged on hate MAGA, hate others. Hate for hate.   
 USA gorged on anti-liberal without even understanding why. MAGA was a bad movement, and addressing that should set a global example of why Taliban values are bad.   
-
 
