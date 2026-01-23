@@ -231,3 +231,7 @@ https://old.reddit.com/r/science/comments/1qjrqst/people_who_show_adhd_traits_in
 https://old.reddit.com/r/science/comments/1qk5hr0/manosphere_influencers_pushing_testosterone_tests/
 
 In USA, the "men are aggressive in the name of hate" and competition bullshit has been very popular media selling content.
+
+&nbsp;
+
+https://old.reddit.com/r/science/comments/1qkwfix/colon_cancer_is_killing_more_young_people_in_the/
