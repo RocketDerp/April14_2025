@@ -2,6 +2,7 @@ import json
 import re
 from html import unescape
 
+# Process Mastodon save file for GitHub Markdown output
 
 # global vars
 postcount = 0
