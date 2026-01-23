@@ -2503,3 +2503,11 @@ https://old.reddit.com/r/worldnews/comments/1qk68ka/carney_fires_back_at_trumps_
 https://old.reddit.com/r/worldnews/comments/1qk68ka/carney_fires_back_at_trumps_davos_remarks_at/o1463io/
 
 "insane"
+
+https://old.reddit.com/r/worldnews/comments/1qk68ka/carney_fires_back_at_trumps_davos_remarks_at/o148f85/
+
+That's why I named this page "hate affairs". People do not understand the hate-motivation USA meme consumers have. The prizing of hate. The following of Trump's hate leadership. Canada is one of the strongest symbols; there is zero good reason to hate...except addition to Trump fantasy storytelling. 
+
+People are not facing up to what the Internet Research Agency and Cambridge Analytica dug into regarding human relationships. Anti-goodness, pro-disease. People won't take this August 24, 2018 story seriously: https://www.BBC.com/news/world-us-canada-45294192 yet the pro-disease RFK Jr and Trump paring are right there in year 2025... look at the timeline of Twitter year 2014 onward. 
+
+How more clear of a symbol can you be than Canada? Trump is a hate leader and Reddit audience gives the "go" symbol to hate every time it insult and mocks back at Trump in a feedback loop. Turning to nonfiction of MLK Jr or Dr. Bandy X. Lee is evidence people want to stop the growth and expansion of Trump's hate-based power. Alas, you don't see it. People won't stand up for their neighbors within the USA and won't stand up for Canada. Marshall McLuhan is one of the best teachers to take on the Fox News HDTV audience cult, but again - Reddit audience won't face their own hate addiction to Trump's leadership of hate.
