@@ -1716,3 +1716,25 @@ But we had forgotten that alongside Orwell's dark vision, there was another - sl
 What Orwell feared were those who would ban books. What Huxley feared was that there would be no reason to ban a book, for there would be no one who wanted to read one. Orwell feared those who would deprive us of information. Huxley feared those who would give us so much that we would be reduced to passivity and egoism. Orwell feared that the truth would be concealed from us. Huxley feared **the truth would be drowned in a sea of irrelevance**. Orwell feared we would become a captive culture. Huxley feared we would become a trivial culture, preoccupied with some equivalent of the feelies, the orgy porgy, and the centrifugal bumblepuppy. As Huxley remarked in Brave New World Revisited, the civil libertarians and rationalists who are ever on the alert to oppose tyranny "failed to take into account man's almost infinite appetite for distractions." In 1984, Orwell added, people are controlled by inflicting pain. In Brave New World, they are controlled by inflicting pleasure. In short, Orwell feared that what we fear will ruin us. Huxley feared that what we desire will ruin us.        
 This book is about the possibility that Huxley, not Orwell, was right.”
 ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. Year 1985.
+
+https://old.reddit.com/r/news/comments/1qkc3fa/us_officially_exits_world_health_organization/o15mdju/
+
+https://old.reddit.com/r/news/comments/1qkc3fa/us_officially_exits_world_health_organization/o15ied9/
+
+https://old.reddit.com/r/news/comments/1qkc3fa/us_officially_exits_world_health_organization/o163vgy/
+
+https://old.reddit.com/r/news/comments/1qkc3fa/us_officially_exits_world_health_organization/o161f57/
+
+https://old.reddit.com/r/news/comments/1qkc3fa/us_officially_exits_world_health_organization/o15x4j2/
+
+https://old.reddit.com/r/news/comments/1qkc3fa/us_officially_exits_world_health_organization/o15i1l1/
+
+https://old.reddit.com/r/news/comments/1qkc3fa/us_officially_exits_world_health_organization/o15pwhn/
+
+https://old.reddit.com/r/news/comments/1qkc3fa/us_officially_exits_world_health_organization/o15q838/
+
+https://old.reddit.com/r/news/comments/1qkc3fa/us_officially_exits_world_health_organization/o15r7ds/
+
+https://old.reddit.com/r/news/comments/1qkc3fa/us_officially_exits_world_health_organization/o164g57/
+
+https://old.reddit.com/r/news/comments/1qkc3fa/us_officially_exits_world_health_organization/o163d4u/
