@@ -20,5 +20,5 @@ YEAR 2010 book. https://en.wikipedia.org/wiki/Delay,_Deny,_Defend YEAR 2024 SHOO
 
 WHY was Luigi not able to get on the front page of Reddit and organize THE BOOK reading and book quotes? because nonfiction is incredibly unpopular on Reddit since the Internet Research Agency invaded Reddit March 2013 onward. Anti-intellectual anti-nonfiction attitudes abound. Why isn't Dr. Bandy X Lee famous on Reddit, every single day since her October 3, 2017 nonfiction book was published? same Internet Research Agency conditioning!
 
-RUCKING READ THE WHOLE GOD DAMN PAGE: https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Cambridge_Analytica_Quotes.md
+FUCKING READ THE WHOLE GOD DAMN PAGE, FOR COMPREHENSION OF THE FOREST VIEW: https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Cambridge_Analytica_Quotes.md
 
