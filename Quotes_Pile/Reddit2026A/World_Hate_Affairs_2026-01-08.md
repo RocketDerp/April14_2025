@@ -2497,3 +2497,9 @@ Right out of Russia's expanding "War Against Reality" that went global in year 2
 https://old.reddit.com/r/IThinkYouShouldLeave/comments/1qk0u42/he_looks_so_fucking_stupid_i_cant_breathe/o138nz4/
 
 An actual call to Reddit for a social media uprising against billionaires and their media systems!
+
+https://old.reddit.com/r/worldnews/comments/1qk68ka/carney_fires_back_at_trumps_davos_remarks_at/o147k6h/
+
+https://old.reddit.com/r/worldnews/comments/1qk68ka/carney_fires_back_at_trumps_davos_remarks_at/o1463io/
+
+"insane"
