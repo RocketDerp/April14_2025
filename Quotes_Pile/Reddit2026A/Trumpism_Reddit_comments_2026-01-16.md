@@ -1666,3 +1666,17 @@ https://old.reddit.com/r/TwoXChromosomes/comments/1qk5x24/republicans_will_deton
 https://old.reddit.com/r/stephenking/comments/1qk9fc1/_/o14yzxq/
 
 At least someone recognizes Trump is following screenplays / scripts / books / stories. Audiences eat it up.
+
+https://old.reddit.com/r/worldnews/comments/1qkdzij/trump_says_he_is_withdrawing_canadas_invitation/o15y9gz/
+
+<img width="1050" height="1036" alt="image" src="https://github.com/user-attachments/assets/25ffb5f4-cf21-4a9f-ba19-83479c1fe8a1" />
+
+1 month Reddit account. YES, YES, YES. I is fucking impossible to describe this Surkovian situaiton!
+
+* "He came originally from the avant-garde art world, and those who have studied his career, say that what Surkov has done, is to import ideas from conceptual art into the very heart of politics. His aim is to undermine peoples' perceptions of the world, so they never know what is really happening. **Surkov turned Russian politics into a bewildering, constantly changing piece of theater**."
+
+* "But the key thing was, that Surkov then let it be known that this was what he was doing, which meant that no one was sure what was real or fake. As **one journalist put it: "It is a strategy of power that keeps any opposition constantly confused." A ceaseless shape-shifting that is unstoppable because it is undefinable.**"
+
+* [“The truth is, it’s getting harder to describe the extent to which a meaningful percentage of Americans have dissociated from reality,” Charlie Warzel wrote “I’m Running Out of Ways to Explain How Bad This Is.”](https://www.axios.com/2024/10/19/musk-ackman-election-misinformation) - October 19, 2024 - America’s gullibility crisis, Zachary Basu
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3md2qne67622y https://autistics.life/@RoundSparrow/115942258880071717 }
