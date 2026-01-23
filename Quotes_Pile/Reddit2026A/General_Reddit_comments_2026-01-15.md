@@ -1428,3 +1428,7 @@ Media ecology. The modern Gutenberg Press issues. Boiler-plate field labels.
 https://old.reddit.com/r/mildlyinfuriating/comments/1qkp41f/they_misspelled_the_united_kingdom_on_my_new/o1847x4/
 
 There is so much Finnegans Wake year 1923 English James Joyce concerns in this topic. Irish metal freedom crushed by English language and UK empire.
+
+https://old.reddit.com/r/help/comments/1qctgfa/why_am_i_suddenly_getting_youve_been_blocked_by/nzl1t6r/
+
+Blocking on Reddit. Deport-happy, book-burning attitudes and behaviors.
