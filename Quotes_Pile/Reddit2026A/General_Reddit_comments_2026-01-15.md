@@ -1383,3 +1383,7 @@ Visual The ELIZA effect, visual logical Turing test failure. Reality bewildermen
 https://old.reddit.com/r/pcmasterrace/comments/1qkl05i/an_ai_generated_image_has_25k_upvotes_on_a_sub/o17d1r7/
 
 Reddit has some of the more experienced tech people, a tech subreddit. Anti-reality by billionaires (Grok AI, richest man in the world, working in the white house and military systems, going after "mind virus" https://www.lemonde.fr/en/international/article/2024/08/13/elon-musk-s-ambition-repopulating-the-planet-and-destroying-the-woke-virus_6714239_4.html in the population)
+
+https://old.reddit.com/r/pcmasterrace/comments/1qkl05i/an_ai_generated_image_has_25k_upvotes_on_a_sub/o17e8xg/
+
+Exhausting to have to analyze all this. A small percentage of people enjoy doing that visual work (video gamer community is this very subreddit). And real people take real photographs and Photoshop similar unreality, so it isn't as if the NYC background objects can't be easily solved by a non-public artificial intelligence that is free to infringe on any copyright. 
