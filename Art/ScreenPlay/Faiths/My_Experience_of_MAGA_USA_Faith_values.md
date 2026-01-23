@@ -17,7 +17,9 @@ I estimate the first task takes about 2 to 5 hours. We were staying in different
 
 * "A direct land journey from Bali to Jakarta typically takes roughly 24–30 hours by bus/train combinations, but a **more relaxed, scenic trip — often involving stops in cities like Yogyakarta — is generally completed in 7–10 days**. In 2013, the costs for these overland methods were generally budget-friendly, with combined bus, ferry, and train tickets often ranging from $30–$50 USD total, though specific fares fluctuated." Google Search summary 2026-01-23 morning USA . Of course, the hotel costs for 25 nights and food is more expensive than the travel, but I did not set a budget.
 
-And we could roll as we go, spend 7 days in a city we liked at any point along the trip, or 3 days here, 4 days there, 25 days total.
+* "A trip from Bali to Jakarta by land and train covers a distance of approximately 1,200 kilometers (745 miles) across the island of Java. The journey in January 2013 provided travelers with an immersive experience of Java's diverse and rich geography. The route reveals a constantly changing landscape, moving from coastal areas with swaying coconut trees to the interior, where the scenery is dominated by fertile, deep green, terraced rice paddies, traditional farming villages (kampungs), and impressive volcanic peaks like Mount Merapi and Mount Ijen. The train lines often run through mountainous terrain, requiring the crossing of sweeping viaducts and passing through tunnels, which offered panoramic views of the island's interior, a stark contrast to the urban development found near major cities like Jakarta and Surabaya."
+
+And we could roll as we go, spend 7 days in a city we liked at any point along the trip, or 3 days here, 4 days there, 25 days total. And there was money available for new clothes or luggage or handbags, etc. We had up to date Android smartphones and Google Maps. to mark places of possible interest. I took care of all the sim cards and data coverage technical planning.
 
 OPERA_A https://www.youtube.com/watch?v=ADBKdSCbmiM
 
