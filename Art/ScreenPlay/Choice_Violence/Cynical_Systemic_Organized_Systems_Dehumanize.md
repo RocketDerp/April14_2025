@@ -2,7 +2,7 @@
 
 1. Hannah Arendt on cynical tactical cleverness https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Hannah_Arendt_quotes.md
 
-3. Great Dictator, year 1940. "Our knowledge has made us cynical. Our cleverness, hard and unkind. We think too much and feel too little. More than machinery we need humanity. More than cleverness we need kindness and gentleness. Without these qualities, life will be violent and all will be lost…" https://www.charliechaplin.com/en/articles/29-the-final-speech-from-the-great-dictator-
+3. Great Dictator, year 1940. "Our knowledge has made us cynical. Our cleverness, hard and unkind. We think too much and feel too little. More than machinery we need humanity. More than cleverness we need kindness and gentleness. Without these qualities, life will be violent and all will be lost…" https://www.CharlieChaplin.com/en/articles/29-the-final-speech-from-the-great-dictator-
 
 4. "That is **the meaning** of love. In the **final analysis, love** is not this sentimental something that we talk about. It's not merely an emotional something. Love is creative, understanding goodwill for all men. It is the refusal to defeat any individual. When you rise to the level of love, of its great beauty and power, you seek only to defeat evil **systems**. Individuals who happen to be caught up in that system, you love, but you seek to defeat the system." - King, Jr., Martin Luther (1957-11-17)
 
@@ -22,3 +22,12 @@ WHY was Luigi not able to get on the front page of Reddit and organize THE BOOK 
 
 FUCKING READ THE WHOLE GOD DAMN PAGE, FOR COMPREHENSION OF THE FOREST VIEW: https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Cambridge_Analytica_Quotes.md
 
+&nbsp;
+
+&nbsp;
+
+# Misc A
+
+Media ecology misc  
+
+Look at the fucking creation date on that image for this meme site: "Created: 1/24/2025, 7:33:45 PM". https://tenor.com/view/luigi-smoking-revolution-gif-984480169945063945 When all the gun-worship was raging on Reddit in early year 2025, the demand for that GIF image shot way up. All the meme-source sites added it. Information street gang signs.
