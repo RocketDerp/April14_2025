@@ -1952,3 +1952,7 @@ https://old.reddit.com/r/LegalNews/comments/1qkrt4h/karoline_leavitts_excuse_for
 Superficial, mocking women, banal, shallow. Anything but turn to serious and urgent Dr. Bandy X Lee's book from October 3, 2017 and REMOVE TRUMP. Instead, people are using free time and spare time on Reddit to discuss the finer points of cosmetics on the face of White House personnel supporting Trump. This is the Reddit fandom, hate-watching a fiction mutli-media mutli-platform multi-venue show https://en.wikipedia.org/wiki/Hate-watching they (We The People) will not REMOVE and will not organize to remove. OVER TEN YEARS AND SEVEN MONTHS of this commenting over and over and over, day after day. ANYTHING to avoid nonfiction learning and repeating important serious quotes and education. 
 
 This is consumer behavior, not resisting at all.
+
+https://old.reddit.com/r/minnesota/comments/1qkykoz/they_are_arresting_the_clergy/o1ab3im/
+
+
