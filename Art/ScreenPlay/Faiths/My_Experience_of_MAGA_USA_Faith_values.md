@@ -6,9 +6,13 @@ I was living in Bali, Indonesia. I had no other home, this was my home.
 
 On the flight into Bali, we had a stopover in Jakarta Indonesia. And I asked my partner, would you please plan two things for us:
 
-1. We have 40 days to decide what to do for New Years Eve. Please choose which hotel and what you want to do. Concert, live music, food? I'll follow your lead.
+1. We have 34 days to decide what to do for New Years Eve 2012 / 2013. Please choose which hotel and what you want / desire to do. Concert, live music, food? I'll follow your lead.
 
-2. Plan a train trip from one end of the nation to the other. Bali to Jakarta after
+2. Plan a train trip from one end of the nation to the other. Bali to Jakarta after New Years Day (January 3, 2013 onward). A train trip duration of 5 days to 25 days. 60 days after November 27 we need to renew visa to stay in Indonesia.
+
+This partner had no other responsibility. All housekeeping was paid for, laundry was paid for, all cooking was paid for. No job, no employer. All expenses paid for, including medical. Unemployed person. Given unlimited Internet anywhere in Bali Indonesia and a new fully decked-out ThinkPad laptop. No limit on taxi or other travel expenses. This partner had over 30 full days to work on two requested tasks whenever they wished. 
+
+I estimate the first task takes about 2 to 5 hours. We were staying in different hotels every few days, pick which one was favorite. The second task I estimate takes 4 to 8 hours of time. Which cities to stop at, which hotels for the first few stops? Any special places of interest on the train trip to stop and sight-see / visit?
 
 OPERA_A https://www.youtube.com/watch?v=ADBKdSCbmiM
 
