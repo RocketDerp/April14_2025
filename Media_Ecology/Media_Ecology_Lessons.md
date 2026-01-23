@@ -1658,3 +1658,11 @@ Anti-Reading, prizing content reacting. Clickbait surfing.
 
 https://old.reddit.com/r/LivestreamFail/comments/1qj18ty/destiny_calmly_waits_for_asmongold_to_read_the/
 
+
+&nbsp;
+
+# Joan Jet Pressured
+
+Conformity pressured on women's role in rock music 
+
+https://www.youtube.com/shorts/ZdxC8n9l-14
