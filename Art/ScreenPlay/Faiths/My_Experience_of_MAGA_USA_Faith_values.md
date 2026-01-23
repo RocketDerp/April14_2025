@@ -21,7 +21,7 @@ I estimate the first task takes about 2 to 5 hours. We were staying in different
 
 * "Bali (Denpasar → Gilimanuk): ~120–130 km by road. Ferry (Gilimanuk → Ketapang): ~5 km across the Bali Strait. Java rail (Ketapang/Banyuwangi → Jakarta): ~1,000–1,050 km by train" - I got out maps and covered this basic information at the start, November 25 on the flight to Indonesia. The partner had until January 3 afternoon, more than a full month, to make suggestions and pick places of interest. Detours and weeks of extra time were available options.
 
-And we could roll as we go, spend 7 days in a city we liked at any point along the trip, or 3 days here, 4 days there, 25 days total. And there was money available for new clothes or luggage or handbags, etc. We had up to date Android smartphones and Google Maps to mark places of possible interest. I took care of all the sim cards and data coverage technical planning.
+And we could roll as we go, spend 7 days in a city we liked at any point along the trip, or 3 days here, 4 days there, 25 days total. Or spend 2 weeks in Jakarta (stop less on the train trip) for the big-city Islamic experience if that is what my partner choose. And there was money available for new clothes or luggage or handbags, etc. We had up to date Android smartphones and Google Maps to mark places of possible interest. I took care of all the sim cards and data coverage technical planning.
 
 ...
 
