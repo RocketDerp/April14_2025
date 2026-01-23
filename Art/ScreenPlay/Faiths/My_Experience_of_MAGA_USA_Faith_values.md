@@ -37,6 +37,8 @@ ToDo: storytime
 
 Hot cancer-causing sun in Bali. Sunscreen business idea. I think somewhere around December 15 or 20, after being in Bali for several weeks at the beach and around the shopping malls watching other tourists come and go for Christmas month holiday.
 
+My parents, mother and father, retired in The Villages Florida. And I had traveled there several times to visit them in the preceding decade. And I knew the cost of sunscreen lotion in the local stores all around the beach. And it didn't take me long to recognize that sunscreen was scarce and practically hidden away in Bali, Indonesia.
+
 OPERA_A Hot sun burns us all. Tourists from Austria. My partner's engagement in this venture / business. Train visuals to Jakarta. https://www.youtube.com/watch?v=ySb1f9zWJkQ I've seen it before, **it happens all the time** all over the world. 11,242,833 views January 23, 2020
 
 &nbsp;
