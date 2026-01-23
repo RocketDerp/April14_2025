@@ -1656,3 +1656,10 @@ https://old.reddit.com/r/technology/comments/1qk88s7/white_house_posts_aialtered
 "the memes will continue"
 
 And the meme addicts of Reddit line up to add more mocking and jokes every time. For over a decade. Anything but learn nonfiction about altering images and creating reality.  Russia "War Against Reality" since March 2013 is working. Reddit society unable to engage and comprehend and understand off-Reddit... September 9, 2014: https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/TwoXChromosomes/comments/1qk5x24/republicans_will_detonate_their_secret_weapon_at/o145tlo/
+
+https://old.reddit.com/r/TwoXChromosomes/comments/1qk5x24/republicans_will_detonate_their_secret_weapon_at/o149imq/
+
+https://old.reddit.com/r/TwoXChromosomes/comments/1qk5x24/republicans_will_detonate_their_secret_weapon_at/o1462nk/
+
