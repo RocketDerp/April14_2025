@@ -1680,3 +1680,9 @@ https://old.reddit.com/r/worldnews/comments/1qkdzij/trump_says_he_is_withdrawing
 * [“The truth is, it’s getting harder to describe the extent to which a meaningful percentage of Americans have dissociated from reality,” Charlie Warzel wrote “I’m Running Out of Ways to Explain How Bad This Is.”](https://www.axios.com/2024/10/19/musk-ackman-election-misinformation) - October 19, 2024 - America’s gullibility crisis, Zachary Basu
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3md2qne67622y https://autistics.life/@RoundSparrow/115942258880071717 }
+
+https://old.reddit.com/r/worldnews/comments/1qkdzij/trump_says_he_is_withdrawing_canadas_invitation/o15y3mb/
+
+https://old.reddit.com/r/worldnews/comments/1qkdzij/trump_says_he_is_withdrawing_canadas_invitation/o15wjxi/
+
+Social media users... We The People will do ANYTHING but turn to nonfiction books by Dr. Bandy X Lee since year 2017. The Fox News HDTV cult to fiction storytelling isn't going away just because Trump dies or quits / resigns.
