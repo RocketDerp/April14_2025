@@ -2428,3 +2428,5 @@ Vince Gilligan's February 15, 2025 speech about social media "cesspools" is not 
 https://old.reddit.com/r/Pluribus_TVshow/comments/1qgk5zk/pluribus_psychedelics_and_the_terrifying_beauty/o0e5lq2/
 
 "our values are askew" - Reddit user. This very Reddit user who created this comment blocked me for speaking against the Reddit hive mind on a TV show fandom community about hive minds. Toxic popularity. Exactly what Vince Gilligan spoke about "listening to each other" on his harsh criticism of social media February 15, 2025.
+
+"Our tech level exceeding our wisdom" - like the tech level of the Reddit block button. Modern book burning in digital media systems.
