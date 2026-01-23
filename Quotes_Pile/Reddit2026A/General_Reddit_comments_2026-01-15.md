@@ -1414,3 +1414,9 @@ See Also: Rick Roderick on parenting an morality learned from video games. https
 https://old.reddit.com/r/pcmasterrace/comments/1qkl05i/an_ai_generated_image_has_25k_upvotes_on_a_sub/o17pci3/
 
 Reddit is just another interactive fiction, another screen game, another video game. Repetitive fiction meme. A training camp for tech lust, technology billionaire followers / prizing.
+
+https://old.reddit.com/r/pcmasterrace/comments/1qkl05i/an_ai_generated_image_has_25k_upvotes_on_a_sub/o17qey9/
+
+https://old.reddit.com/r/pcmasterrace/comments/1qkl05i/an_ai_generated_image_has_25k_upvotes_on_a_sub/o17dr50/
+
+I've found some of the most aggressive men are the ones who claim people are A.I. when not true. They fixate on people they sense are poor, poverty being the targets the seek to badger and fixate to drive away. Wealthy people with cool assets they admire.
