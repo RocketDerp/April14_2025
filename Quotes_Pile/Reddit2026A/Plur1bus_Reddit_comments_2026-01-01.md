@@ -2415,3 +2415,12 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1q5bosa/who_else_thinks_antica
 
 The reply comment has a point I need to emphasize about "Comparative Mythology". Analysis of religions and languages and meaning is about studying the REAL WORLD driven by fiction storytelling. The comparing of REAL WORLD marriages from geography to geography. Why I traveled to live in Africa and Middle East and Indonesia and Malaysia. We are NOT learning from the Native Americans / First Peoples in USA at all. We prize Elon Musk Twitter screenshots way too much compared to Navajo teachings and experiences.
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q5bosa/who_else_thinks_anticarol_folk_are_absurd/ny0apoi/
+
+It's rare to see someone emphasize that Carol's experience is extremely rare. to be the only survivor in an entire city, an entire nation of over 340 million people! People don't connect that event with June 16, 2015 - Bloomsday 2015 (James Joyce, Minute 22 of Episode One context assertion again; a story centers at Zero Hour on book author, book touring, etc). People can't read between the lines that the Global Pandemic was a *everyone* experience of human airport to airport (jet set Willy) nature like no other. Trump is a world event like no other. No fucking way did Germany 1937 have the kind of media technology Carol has to ship a home-filmed video across the world (which she choose to do physical or security reasons). 
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q5bosa/who_else_thinks_anticarol_folk_are_absurd/nywbjbk/
+
+Vince Gilligan fandom has a hate history with female characters. https://www.vulture.com/2018/07/breaking-bads-anna-gunn-looks-back-on-bizarre-fan-hate.html
+
+Vince Gilligan's February 15, 2025 speech about social media "cesspools" is not being heard by the Reddit social audience. People who follow hate leader Donald Trump is not a theory, it isn't fiction, but people behave as if Trump's fiction storytelling to hate isn't having real world harm.
