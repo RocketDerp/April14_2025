@@ -1686,3 +1686,18 @@ https://old.reddit.com/r/worldnews/comments/1qkdzij/trump_says_he_is_withdrawing
 https://old.reddit.com/r/worldnews/comments/1qkdzij/trump_says_he_is_withdrawing_canadas_invitation/o15wjxi/
 
 Social media users... We The People will do ANYTHING but turn to nonfiction books by Dr. Bandy X Lee since year 2017. The Fox News HDTV cult to fiction storytelling isn't going away just because Trump dies or quits / resigns.
+
+https://old.reddit.com/r/politics/comments/1qk79om/trump_goes_on_manic_50post_rampage_after_world/o14sknz/
+
+https://old.reddit.com/r/politics/comments/1qk79om/trump_goes_on_manic_50post_rampage_after_world/o14ouqk/
+
+Comical, funny, amusing. It never ends.
+
+https://old.reddit.com/r/politics/comments/1qk79om/trump_goes_on_manic_50post_rampage_after_world/o157m79/
+
+As usual, amusement as usual. Audiences crave the humor-washing, comedy-washing, satire-washing, rinse and clean for more comedy rounds. Reddit audiences so desire more mocking and insulting performances of 50 post sprees.
+
+https://old.reddit.com/r/politics/comments/1qk79om/trump_goes_on_manic_50post_rampage_after_world/o14rf04/
+
+People adopt the bullshit, copycat the success of Trump. He has been the center of all USA society attention since June 16, 2015.
+
