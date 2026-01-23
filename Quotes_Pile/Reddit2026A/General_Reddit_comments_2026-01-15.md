@@ -1449,3 +1449,10 @@ https://old.reddit.com/r/Animemes/comments/1qkuesr/til_japan_thinks_western_anim
 
 https://old.reddit.com/r/Animemes/comments/1qkuesr/til_japan_thinks_western_anime_watchers_all_have/o19csb3/
 
+https://old.reddit.com/r/news/comments/1qkya2l/rejecting_decades_of_science_vaccine_panel_chair/o1a5wvl/
+
+https://old.reddit.com/r/news/comments/1qkya2l/rejecting_decades_of_science_vaccine_panel_chair/o1a4o66/
+
+https://old.reddit.com/r/news/comments/1qkya2l/rejecting_decades_of_science_vaccine_panel_chair/o1a5ler/
+
+https://old.reddit.com/r/news/comments/1qkya2l/rejecting_decades_of_science_vaccine_panel_chair/o1adrys/
