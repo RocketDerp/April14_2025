@@ -2515,3 +2515,11 @@ How more clear of a symbol can you be than Canada? Trump is a hate leader and Re
 https://old.reddit.com/r/worldnews/comments/1qkdzij/trump_says_he_is_withdrawing_canadas_invitation/o15vfoi/
 
 It's just casual banal conversation over and over. "Putin" topic. People have no concern to call for an Internet social media organized education campaign. intellectual resistance.  At this point, as you can see from my past 10 days or so, Dr. Bandy x Lee should be front and center of a world wide mental health education effort of all people. Terminology, quotes, page numbers, we all need to get on the same pages of learning.
+
+https://old.reddit.com/r/worldnews/comments/1qkdzij/trump_says_he_is_withdrawing_canadas_invitation/o15xqee/
+
+https://old.reddit.com/r/worldnews/comments/1qkdzij/trump_says_he_is_withdrawing_canadas_invitation/o15x9vm/
+
+"funny". audiences to Trump antics (taking away Canada invitation, etc) constantly amused, entertained, laughing at the situaiton. Blowing minds into meme stupor / meme mania state. Trump and Putin antics work, people are entirely addicted to the comedic outcomes.
+
+* “For in the end, he was trying to tell us what afflicted the people in 'Brave New World' was not that they were laughing instead of thinking, but that they did not know what they were laughing about and why they had stopped thinking.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business
