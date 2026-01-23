@@ -1375,3 +1375,7 @@ https://old.reddit.com/r/LivestreamFail/comments/1qk4e10/lacari_has_been_banned_
 https://old.reddit.com/r/LivestreamFail/comments/1qk4e10/lacari_has_been_banned_from_twitch/o13rbjx/
 
 Media ecology, platform vs. platform ecology.
+
+https://old.reddit.com/r/pcmasterrace/comments/1qkl05i/an_ai_generated_image_has_25k_upvotes_on_a_sub/o17ddd9/
+
+Visual The ELIZA effect, visual logical Turing test failure. Reality bewilderment.
