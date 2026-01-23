@@ -4,7 +4,7 @@
 
 3. Great Dictator, year 1940. "Our knowledge has made us cynical. Our cleverness, hard and unkind. We think too much and feel too little. More than machinery we need humanity. More than cleverness we need kindness and gentleness. Without these qualities, life will be violent and all will be lost…" https://www.charliechaplin.com/en/articles/29-the-final-speech-from-the-great-dictator-
 
-4. MLK Jr
+4. "That is **the meaning** of love. In the **final analysis, love** is not this sentimental something that we talk about. It's not merely an emotional something. Love is creative, understanding goodwill for all men. It is the refusal to defeat any individual. When you rise to the level of love, of its great beauty and power, you seek only to defeat evil **systems**. Individuals who happen to be caught up in that system, you love, but you seek to defeat the system." - King, Jr., Martin Luther (1957-11-17)
 
 5. Erotic irony. Campbell, 1988: "But when he left to live with the bohemians, he found that they were so disdainful of life that he couldn’t stay with them, either. So he left them, and wrote a letter back to someone in the group, saying, “I admire those cold, proud beings who adventure upon the paths of great and daemonic beauty and despise ‘mankind’; but I do not envy them. For if anything is capable of making a poet of a literary man, it is my hometown love of the human, the living and ordinary."
 
