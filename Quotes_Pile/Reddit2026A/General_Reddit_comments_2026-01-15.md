@@ -1432,3 +1432,7 @@ There is so much Finnegans Wake year 1923 English James Joyce concerns in this t
 https://old.reddit.com/r/help/comments/1qctgfa/why_am_i_suddenly_getting_youve_been_blocked_by/nzl1t6r/
 
 Blocking on Reddit. Deport-happy, book-burning attitudes and behaviors.
+
+https://old.reddit.com/r/LivestreamFail/comments/1qkrzqe/xqc_reacts_to_rakai_laughing_at_a_homeless_man/o18qmla/
+
+MAGA Trumpism USA training ground. Shit-posting, shit-streaming Media. Donald Trump's massive media success wit hate leadership... inspires so many.
