@@ -2424,3 +2424,7 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1q5bosa/who_else_thinks_antica
 Vince Gilligan fandom has a hate history with female characters. https://www.vulture.com/2018/07/breaking-bads-anna-gunn-looks-back-on-bizarre-fan-hate.html
 
 Vince Gilligan's February 15, 2025 speech about social media "cesspools" is not being heard by the Reddit social audience. People who follow hate leader Donald Trump is not a theory, it isn't fiction, but people behave as if Trump's fiction storytelling to hate isn't having real world harm.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1qgk5zk/pluribus_psychedelics_and_the_terrifying_beauty/o0e5lq2/
+
+"our values are askew" - Reddit user. This very Reddit user who created this comment blocked me for speaking against the Reddit hive mind on a TV show fandom community about hive minds. Toxic popularity. Exactly what Vince Gilligan spoke about "listening to each other" on his harsh criticism of social media February 15, 2025.
