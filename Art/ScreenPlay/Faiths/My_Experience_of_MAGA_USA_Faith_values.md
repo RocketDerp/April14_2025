@@ -27,6 +27,8 @@ And we could roll as we go, spend 7 days in a city we liked at any point along t
 
 The partner did not say there was any problem. This was not a burden task or in any way beyond their adult skill (over age 30, highly educated). Travel agencies were available for help, or the partner could ask me for help. I did not put pressure on the topic. We were enjoying ourselves at various hotels (with swimming pools), at the beach, at the Beachwalk Shopping Center, Jalan Pantai Kuta in Kuta; cinemas, many restaurants, many taxi rides around the area, etc.
 
+Now I was not asking my partner to support *me* as an individual. But to support *the relationship*, the partnership. They were literally doing *nothing else* all day and night in year 2012. No job, no family responsibility.
+
 OPERA_A https://www.youtube.com/watch?v=ADBKdSCbmiM
 
 &nbsp;
@@ -40,6 +42,10 @@ Hot cancer-causing sun in Bali. Sunscreen business idea. I think somewhere aroun
 My parents, mother and father, retired in The Villages Florida. And I had traveled there several times to visit them in the preceding decade. And I knew the cost of sunscreen lotion in the local stores all around the beach. And it didn't take me long to recognize that sunscreen was scarce and practically hidden away in Bali, Indonesia.
 
 OPERA_A Hot sun burns us all. Tourists from Austria. My partner's engagement in this venture / business. Train visuals to Jakarta. https://www.youtube.com/watch?v=ySb1f9zWJkQ I've seen it before, **it happens all the time** all over the world. 11,242,833 views January 23, 2020
+
+This was *my interest*, a personal interest, I wanted to develop into a business. I had been trying to come up with business ideas since December 2010 and this was the best idea out of dozen or so I had thought out and written about. Sunscreen business.
+
+OPERA_A I had not forgot the "Class of year 1999" lesson ;) https://www.youtube.com/watch?v=sTJ7AzBIJoI 24,890,203 views  May 24, 2007 Enjoy your youth, we are both here for the first time in Bali! How much possibility lay before us!
 
 &nbsp;
 
