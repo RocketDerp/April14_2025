@@ -1663,3 +1663,6 @@ https://old.reddit.com/r/TwoXChromosomes/comments/1qk5x24/republicans_will_deton
 
 https://old.reddit.com/r/TwoXChromosomes/comments/1qk5x24/republicans_will_detonate_their_secret_weapon_at/o1462nk/
 
+https://old.reddit.com/r/stephenking/comments/1qk9fc1/_/o14yzxq/
+
+At least someone recognizes Trump is following screenplays / scripts / books / stories. Audiences eat it up.
