@@ -225,3 +225,9 @@ pro-measles
 https://old.reddit.com/r/nottheonion/comments/1qj4xer/senior_cdc_official_loss_of_measles_elimination/
 
 https://old.reddit.com/r/science/comments/1qjrqst/people_who_show_adhd_traits_in_childhood_are_more/
+
+&nbsp;
+
+https://old.reddit.com/r/science/comments/1qk5hr0/manosphere_influencers_pushing_testosterone_tests/
+
+In USA, the "men are aggressive in the name of hate" and competition bullshit has been very popular media selling content.
