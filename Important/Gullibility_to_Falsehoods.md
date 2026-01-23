@@ -83,6 +83,20 @@ Trump has been in Reality TV an met many stars. He knows professionals put makeu
 
 &nbsp;
 
+## Anti-science looks like
+
+https://autistics.life/@RoundSparrow/115941985491013766   
+https://bsky.app/profile/roundsparrow.bsky.social/post/3md2mqhl4jc2y   
+
+Anti-science looks like fiction addition.   
+If a map creates fiction, Trump likes the artificial reality    
+
+People think they have a "gotcha" that Greenland isn't as big as on maps. No, Donald Trump doesn't care because fandom of Donald  Trump doesn't care. Trump is not a person concerned with science and reality. Trump is a fiction storyteller. Fiction outsells nonfiction.
+
+Example that's been popular on social systems: https://www.youtube.com/watch?v=tK7yTJ8Mk7A
+
+&nbsp;
+
 &nbsp;
 
 # October 19, 2024
