@@ -1812,3 +1812,11 @@ But SIR, Reddit Men commenting and upvoting / Retweeting:
 2. Can't you on Reddit post quotes from an October 3, 2017 book by Dr. Bandy X Lee over and over until it gets national attention? https://www.scientificamerican.com/article/the-shared-psychosis-of-donald-trump-and-his-loyalists/
 
 Or is the problem that male audiences won't follow two women leaders? Not just Kamala Harris leader, but Jen Senko and Dr. Bandy X Lee? Sir? Reddit commenting crowd? Sir?
+
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1qkkud7/president_obama_speaks_out/o17m9n5/
+
+<img width="1007" height="808" alt="image" src="https://github.com/user-attachments/assets/68e01bef-880d-44bc-ac8e-b26596e4a011" />
+
+Yes. The men on Reddit prize Trump shit. Leadership of shit-posting by Truth Social to Reddit audience. Why is Reddit community, the users of Reddit - not making Dr. Bandy X Lee the most famous person on the Internet this week? While the iron is hot, Trump is pissing off the whole world this week over Greenland, why isn't Reddit pushing Dr. Bandy X. Lee's nonfiction book? Is it because Dr. Lee is an older woman? Is it because her **book is nonfiction, not entertainment like Trump provides? Not a meme book like Trump is a meme President Tony Clifton actor?**
+
+Social post { https://autistics.life/@RoundSparrow/115944970231529157 https://bsky.app/profile/roundsparrow.bsky.social/post/3md3x7fswlc2z https://MidWest.Social/post/42299746 }
