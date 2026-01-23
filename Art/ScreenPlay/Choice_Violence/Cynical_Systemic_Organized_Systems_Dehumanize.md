@@ -30,4 +30,4 @@ FUCKING READ THE WHOLE GOD DAMN PAGE, FOR COMPREHENSION OF THE FOREST VIEW: http
 
 Media ecology misc  
 
-Look at the fucking creation date on that image for this meme site: "Created: 1/24/2025, 7:33:45 PM". https://tenor.com/view/luigi-smoking-revolution-gif-984480169945063945 When all the gun-worship was raging on Reddit in early year 2025, the demand for that GIF image shot way up. All the meme-source sites added it. Information street gang signs.
+Look at the fucking creation date on that image for this meme site: "Created: 1/24/2025, 7:33:45 PM". https://tenor.com/view/luigi-smoking-revolution-gif-984480169945063945 When all the gun-worship was raging on Reddit in early year 2025, the demand for that GIF image shot way up. All the meme-source sites added it. Information street gang signs. 1 Year ago tomorrow.
