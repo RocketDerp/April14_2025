@@ -1780,3 +1780,7 @@ CAMPBELL: We need myths that will identify the individual not with his local gro
 MOYERS: There is something about that on the Great Seal of the United States.
 
 CAMPBELL: That’s what the Great Seal is all about.
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1qkmj4o/joe_rogan_says_trump_using_ice_raids_to_distract/o17o827/
+
+Fiction outsells nonfiction. Donald Trump is a fiction storyteller that penetrates hearts and minds way deeper than Carl Sagan ever did.
