@@ -1,4 +1,4 @@
-# May Experience of MAGA USA Faith values
+# My Experience of MAGA USA Faith values
 
 From a person who had never stepped foot in North America...
 
