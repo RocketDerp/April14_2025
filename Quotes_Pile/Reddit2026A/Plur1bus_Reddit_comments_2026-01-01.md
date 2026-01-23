@@ -2378,3 +2378,15 @@ Not the note i want to leave this message on, but that is a problem I have. I wo
 https://old.reddit.com/r/Pluribus_TVshow/comments/1q2tofm/plur1bus_zero_hour_00000000_countdown_minute_22/o11xx6n/
 
 One of my better-organized and written public Reddit posts got a comment 19 days later.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1qa1zww/do_nd_people_interpret_this_show_differently_than/nyzmoht/
+
+Neurodiversity, autism, etc.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1qa1zww/do_nd_people_interpret_this_show_differently_than/nyzgymw/
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1qa1zww/do_nd_people_interpret_this_show_differently_than/nyzgzob/
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1qa1zww/do_nd_people_interpret_this_show_differently_than/nyzq4fg/
+
+Same here. And it is alarming how many people on Reddit ignore Minute 37 of co-pilot Episode Two on Air Force One. The ONLY PLACE in Season One where the word "PLURIBUS" is in dialog or images.... the POTUS Seal. The Air Force One symbolism has been **manipulated by the hive mind** to remove 4 of the 13 stars and the eagle is pointing to the right-wing bird-wing instead of to the left-wing. These two alternates are in plain view on the screen right next to Carol. The hive mind is manipulating Carol, and this being in the first 90 minutes of a 4-season or 5-season story is significant... the ONLY place the word "PLURIBUS" appears in the TV season!
