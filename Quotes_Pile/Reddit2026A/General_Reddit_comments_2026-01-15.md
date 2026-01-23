@@ -1402,3 +1402,15 @@ https://old.reddit.com/r/pcmasterrace/comments/1qkl05i/an_ai_generated_image_has
 
 5 day Reddit account
 
+https://old.reddit.com/r/pcmasterrace/comments/1qkl05i/an_ai_generated_image_has_25k_upvotes_on_a_sub/o17ltla/
+
+Video gaming has always had A.I. game behaviors, machine player against the player. Most "cheat" by knowing where the player is in a maze, such as early video games like Pac-Man https://Old.Reddit.com/r/todayilearned/comments/1m27o0/til_that_the_four_ghosts_in_pacman_are_programmed/
+And I remember the magazines and arcade players learned pretty quickly where you could sit in the maze and pause the game because the A.I. logic was so primitive. But that was early 8-bit games (year 1980 hardware, Zilog Z80 CPU running at 3.072 MHz)
+
+My point is that video game players are pro machine intelligence in general. Machines programmed to defeat humans in killing, etc. For the sake of entertainment.
+
+See Also: Rick Roderick on parenting an morality learned from video games. https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
+
+https://old.reddit.com/r/pcmasterrace/comments/1qkl05i/an_ai_generated_image_has_25k_upvotes_on_a_sub/o17pci3/
+
+Reddit is just another interactive fiction, another screen game, another video game. Repetitive fiction meme. A training camp for tech lust, technology billionaire followers / prizing.
