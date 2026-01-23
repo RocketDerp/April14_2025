@@ -1802,3 +1802,13 @@ Why isn't Dr. Bandy X Lee's October 3, 2017 nonfiction book not being quoted ove
 * “If they can get you asking the wrong questions, they don't have to worry about answers.” ― Thomas Pynchon, Gravity’s Rainbow
 
 These are the Reddit fandom of Trump, asking questions based on Trump-writing. It's Fox News *The Language*, gang-signs of HDTV information street gangs. "September 16, 2020 — Fox, for many of its fans, is an identity shaped by an ever-expanding lexicon" By Megan Garber https://www.theatlantic.com/culture/archive/2020/09/fox-news-trump-language-stelter-hoax/616309/
+
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1qkkud7/president_obama_speaks_out/o17ftoe/
+
+But SIR, Reddit Men commenting and upvoting / Retweeting:
+
+1. Can't you make Jen Senko's 2015 film a household name and topic until Fox News HDTV is finally confronted? And Newsmax? And Rush Limbaugh? And Joe Rogan? https://en.Wikipedia.org/wiki/The_Brainwashing_of_My_Dad
+
+2. Can't you on Reddit post quotes from an October 3, 2017 book by Dr. Bandy X Lee over and over until it gets national attention? https://www.scientificamerican.com/article/the-shared-psychosis-of-donald-trump-and-his-loyalists/
+
+Or is the problem that male audiences won't follow two women leaders? Not just Kamala Harris leader, but Jen Senko and Dr. Bandy X Lee? Sir? Reddit commenting crowd? Sir?
