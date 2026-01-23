@@ -531,3 +531,9 @@ Popular comment, upvo0ted: "all sane people" can "predict the future". Tiny-shor
 https://old.reddit.com/r/InterstellarKinetics/comments/1qk1ond/breaking_45_fbi_employees_defy_protocol_to_share/o13c7de/
 
 "Russia hoax". Anything to avoid linking off-Reddit about the "Internet Research Agency" invasion of Reddit. https://www.fastcompany.com/40557479/reddit-has-named-944-banned-russian-propaganda-accounts
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qk5513/bravo_officer_fanone/o14qz5d/
+
+This isn't resisting. This is mocking. Mocking a war against nonfiction isn't resisting. this is exactly with Surkov information warfare exploits, the very predictable mocking vs. mocking. this entire Reddit posting is cheering on that a person said "fuck" with a clever caugh. That's simulation of resistance. Reality isn't established by adding insults on top of insults, that's a war of insulting reality. 
+
+People have to actually stand up and be willing to die for sincere, honest, goodness. Standing up for *mock harder* is joining in with MAGA values. It is standing up for bullshit. People truly go not grasp that Putin has won for 25 years in domestic Russia with these techniques.
