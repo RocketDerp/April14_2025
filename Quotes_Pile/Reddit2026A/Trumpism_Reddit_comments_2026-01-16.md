@@ -1909,3 +1909,9 @@ https://old.reddit.com/r/MurderedByWords/comments/1qkusot/no_papers_no_freedom/o
 
 And if you behave *stressed*, *alarmed*, *overly-concerned* or *anxious* while your home nation is going crazy... on Reddit social media in December 2025 or January 2026 ... over the situation you will be banned, attacked, mocked, driven off Reddit. You are only welcome if you tell pre-greased predictable patterns of meme jokes and don't make your messages too serious from nonfiction books about Free Masons symbolism. PLUR1BUS (Free Mason language symbolism) subreddit community experience from December 4, 2025 to January 15, 2026. Reddit will disappear you and silence you. Reddit community does not see much of a problem with this technology leadership of public. Reddit community hive mind.
 
+https://old.reddit.com/r/politics/comments/1qkto0d/despite_authoritarian_warnings_149_house/o195ot7/
+
+https://old.reddit.com/r/politics/comments/1qkto0d/despite_authoritarian_warnings_149_house/o19gwkr/
+
+https://old.reddit.com/r/politics/comments/1qkto0d/despite_authoritarian_warnings_149_house/o19377h/
+
