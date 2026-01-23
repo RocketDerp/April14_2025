@@ -1436,3 +1436,8 @@ Blocking on Reddit. Deport-happy, book-burning attitudes and behaviors.
 https://old.reddit.com/r/LivestreamFail/comments/1qkrzqe/xqc_reacts_to_rakai_laughing_at_a_homeless_man/o18qmla/
 
 MAGA Trumpism USA training ground. Shit-posting, shit-streaming Media. Donald Trump's massive media success wit hate leadership... inspires so many.
+
+https://old.reddit.com/r/LivestreamFail/comments/1qkrzqe/xqc_reacts_to_rakai_laughing_at_a_homeless_man/o18q2r5/
+
+Age 79 role model is his upstream elder teacher. "QuVonn RaKai Linder, known as 2xRaKai, is an American Twitch streamer and YouTuber born on November 21, 2008. As of July 2025, he is 16 years old (turning 17 in November 2025). He is a member of the Clover Boys known for his high-energy "Just Chatting" content." following what the parents have chosen for leader, all the 'adults in the room' since June 16, 2015 flock to shit-posting Trump.
+
