@@ -2271,3 +2271,9 @@ It isn't just politics that people justify hate for. It's subreddit fandoms. It'
 https://old.reddit.com/r/nursing/comments/1qlxa3p/fuck_ice_fuck_border_patrol_fuck_greg_bovino_fuck/o1ho8wt/
 
 Street gang signals: "no more talking". Worship of military USA, worship of violence. ANYTHING but cult deprogramming nonfiction learning on Reddit. Anything but focus on Fox News talking away. Just deport people you hate, silence people you hate, refuse to talk to people you hate, non-person, dehumanize people you hate. Machine tech lovers who have waited around for over 10 years to learn NOTHING about Russian information warfare. Surkov won since March 2013. Anti-learning, pro-ignorance, anti-teaching, "no more teaching" attitudes.
+
+https://old.reddit.com/r/simpsonsshitposting/comments/1qlsry1/no_not_a_smile/o1grmck/
+
+Street gang signs. The Simpsons image of the posting is Marge saying "shoot ice" with guns. Anti-intellectual. Anything to avoid nonfiction teaching of Dr Bandy X Lee. This comment is Luigi image, a Reddit gang sign of killing with guns and sneak attacks. Wanting to encourage increased terrorism shootings and school shootings and other revenge acts / hyper reality with bright color images if video games (Mario/Nintendo) and Simpsons.
+
+Reddit culture is a mass dehumanization training camp that has avoided Jen Senko's film since year 2015 https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad and avoided Dr. Bandy X Lee's October 3, 2017 nonfiction book. https://en.wikipedia.org/wiki/Bandy_X._Lee Because fiction addiction rules minds in MAGA USA / Truth Social fiction storytelling nation.
