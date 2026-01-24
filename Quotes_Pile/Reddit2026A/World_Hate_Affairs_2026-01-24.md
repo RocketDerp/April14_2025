@@ -85,3 +85,18 @@ See the posting about Reddit users getting band for speaking out against Trump U
 https://old.reddit.com/r/BuyFromEU/comments/1qlk2lk/reddit_is_going_to_remove_this_and_other_pro_eu/o1eogxb/
 
 Secret police who burn books, disappear messages.
+
+https://old.reddit.com/r/BuyFromEU/comments/1qlk2lk/reddit_is_going_to_remove_this_and_other_pro_eu/o1epcpz/
+
+Disappear messages. Burn magazines and books.
+
+https://old.reddit.com/r/BuyFromEU/comments/1qlk2lk/reddit_is_going_to_remove_this_and_other_pro_eu/o1ewtn0/
+
+Left-right brainrot. Fiction vs nonfiction is the important measure. 
+
+https://old.reddit.com/r/BuyFromEU/comments/1qlk2lk/reddit_is_going_to_remove_this_and_other_pro_eu/o1eqwy6/
+
+https://old.reddit.com/r/BuyFromEU/comments/1qlk2lk/reddit_is_going_to_remove_this_and_other_pro_eu/o1eqkfk/
+
+Block-happy, deport-happy, self-deport intimidation. The bigger trouble is there is no morality education. Banning is the moral teacher, which teaches only the power of machines and power itself. No education or teaching of WHY. And hence, without morality learning, people on Reddit community do not turn to Dr. Bandy X Lee's nonfiction book from October 3, 2017 in the face of MAGA cult. People just chant word "cult" and do not see any moral need / civic duty, for *Adult education** with nonfiction serious books and peer to peer teaching.
+
