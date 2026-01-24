@@ -2227,5 +2227,8 @@ https://old.reddit.com/r/CringeTikToks/comments/1qlvu8c/closeup_view_of_ice_exec
 
 What's happening is Russia won the cold war. Russia mastered the monomyth storytelling pattern. Reddit audience has abandoned nonfiction learning about learning itself. Marshall McLuhan and Neil Postman teachings have been rejected by the Trump image fandom. Surkov won.
 
+https://old.reddit.com/r/Fauxmoi/comments/1qlww10/the_man_ice_agents_murdered_this_morning_has_been/o1hh3g9/
+
+Reddit servers locked this message, the thread of this specific message.
 
 
