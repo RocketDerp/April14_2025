@@ -1955,4 +1955,17 @@ This is consumer behavior, not resisting at all.
 
 https://old.reddit.com/r/minnesota/comments/1qkykoz/they_are_arresting_the_clergy/o1ab3im/
 
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1ql2r81/after_giving_republicans_a_majority_in_every/o1b51jx/
+
+<img width="750" height="309" alt="image" src="https://github.com/user-attachments/assets/a7143bbb-d7a1-4fbb-ba45-6f057f6d833a" />
+
+Popular upvoted comment. Twitter-length Tweet-logic. Loves that MAGA Trump is harming people. Complex realization that the rural **LESS-EDUCATED** population of USA was manipulated by Russia's Saint Petersburg Internet Research Agency since March 2013. A population of Rural USA people, Rural Amerians, who never heard of NYC Neil Postman and how it relates to NYC Fox News / Rupert Murdoch media empire. No, the Reddit short-length messaging addicts wants to gloat and cheer on the ?leopards, yes eat faces" harm to Rural USA population because no educated people wanted to bother since Year 2013 to form a sustained online Reddit resistance to the { Rupert Murdoch, Fox News, Internet Research Agency, Cambridge Analtyica } weaponization of short-think mindsets and tiny-think patterns. Meme reactionaries cheering the harm of USA people. Russia won, Surkov won!.
+
+When Trump leads with hate, people follow the hate leadership. Wanting to see people duffer without healthcare because that's what Russia programmed into the minds. 16 years on Reddit, and hasn't learned a thing about the IRA invading Reddit and Twitter and Facebook and all the commenting sections of news.
+
+* "For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the **true becomes false and the false becomes true**. That's what hate does. You can't see right. **The symbol of objectivity** is lost." - Martin Luther King Jr.
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1ql2r81/after_giving_republicans_a_majority_in_every/o1b5jk0/
+
+Waiting for more self-harm out of USA. But what is NOT happening is being active in promoting Dr. Bandy X Lee on Reddit commenting to deal with the cult of self-harm that MAGA is. Fiction addictions are not good for anyone, MAGA self-harm is not a win for any person on Earth. It is not a win for Putin, as being gullible and uneducated by Dr. Bandy X Lee harms the whole world. People need to stop waiting and do an internet uprising to teach mental health of mob mentality. https://www.ScientificAmerican.com/article/the-shared-psychosis-of-donald-trump-and-his-loyalists/
 
