@@ -2231,4 +2231,9 @@ https://old.reddit.com/r/Fauxmoi/comments/1qlww10/the_man_ice_agents_murdered_th
 
 Reddit servers locked this message, the thread of this specific message.
 
+https://old.reddit.com/r/Fauxmoi/comments/1qlww10/the_man_ice_agents_murdered_this_morning_has_been/o1hjpoc/
+
+https://old.reddit.com/r/Fauxmoi/comments/1qlww10/the_man_ice_agents_murdered_this_morning_has_been/o1hi1b3/
+
+"insane"
 
