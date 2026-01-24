@@ -2163,3 +2163,6 @@ Every fucking day of my life has gotten worse living in USA since year 2013 buil
 
 * https://www.youtube.com/watch?v=09maaUaRT4M&t=743s "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL"
 
+https://old.reddit.com/r/law/comments/1qlvdx6/new_video_of_124_ice_shooting_shows_victim_had/o1hacia/
+
+BBC, yes. But why has Reddit community not all memorized and repeated this August 24, 2018 BBC story like our COVID-2019 lives depend on it? Why are we letting measles be promoted without sharing this August 24, 2018 BBC reporting? Why is "gun death" the only one people say is serious news when measles are sickening and killing people? https://www.bbc.com/news/world-us-canada-45294192
