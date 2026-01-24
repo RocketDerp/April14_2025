@@ -2181,3 +2181,10 @@ The MAGA cult programming into our hearts and minds has been SICKENING! Day afte
 
 OPERA_A I read the mind-fucking news today, in the BBC news. Oh boy, UK news. https://www.youtube.com/watch?v=usNsCeOV4GM - people LOL at the laughing mindset of a photograph. Blew his mind out to Talk Radio right-wing shit. I saw a video clip today, oh boy... I'd LOVE TO TURN YOU ALL ON to Media Ecology of newspapers, films, understanding and mass mind self-awareness of how Russia mind-fucked NATO and USA! You all go into bad dreams that Putin and Surkov originated since March 2013.
 165,943,265 views October 28, 2015
+
+https://old.reddit.com/r/law/comments/1qlvdx6/new_video_of_124_ice_shooting_shows_victim_had/o1h776i/
+
+Internet gangs. Street gangs with smartphones. Fox News HDTV audience gangs. Monomyth warfare in the streets games, fiction vs fiction. Media addicts vs. media addicts, all avoiding Dr. Bandy X Lee's nonfiction book since October 3, 2017.
+
+* Ignored on Reddit commenting section since year 2015, vomited up as too insightful and nonfiction bitter: “Today, reports of the day’s events are conveyed to the viewing public **by way of alternate universes**, The Fox News cable channel conveys its **version of reality**, while at the other end of the ideological spectrum MSNBC presents its version. They and their many counterparts on radio are more the result of an economic dynamic than a political one. Dispatching journalists into the field to gather information costs money; hiring a glib bloviator is relatively cheap, and inviting opinionated guests to vent on the air is entirely cost-free. It **wouldn’t work if it weren’t popular, and audiences, it turns out, are endlessly absorbed by hearing amplified echoes** of their own biases. It’s divisive and damaging to the healthy functioning of our political system, but it’s also indisputably inexpensive and, therefore, good business.”
+― Ted Koppel. Lights Out: A Cyberattack, A Nation Unprepared, Surviving the Aftermath. October 27, 2015. Page 13.
