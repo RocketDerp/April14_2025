@@ -2201,3 +2201,9 @@ https://old.reddit.com/r/CringeTikToks/comments/1qlvu8c/closeup_view_of_ice_exec
 
 Information warfare. Psychological warfare. Surkov won since March 2013. War against nonfiction. 
 
+https://old.reddit.com/r/CringeTikToks/comments/1qlvu8c/closeup_view_of_ice_executing_a_man_today_in/o1hc1ab/
+
+Hyper Empathy. https://en.wikipedia.org/wiki/Hyper-empathy - opposite of anti-empathy that Elon Musk wants from Reddit tech lovers, machine additions to video gaming machines that billionaires cultivate.
+
+
+
