@@ -74,7 +74,7 @@ def parse_mastodon_export(file_path):
                 # this is a string, not an intelligent date object
                 published = obj.get('published', 'Unknown Date')
                 
-                # is thi a month crossing?
+                # is this a month crossing?
                 # 1970-01-01-
                 if published[:8] == previous_published[:8]:
                     # same year, same month
