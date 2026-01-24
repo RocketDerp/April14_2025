@@ -29,3 +29,19 @@ Social post { https://autistics.life/@RoundSparrow/115949781522180839 https://bs
 https://old.reddit.com/r/worldnews/comments/1qlem6t/china_no_longer_pentagons_top_security_priority/o1e7km6/
 
 Surkov won. We are now in runaway Surkov monomty. But even wore, Russia is no longer in control of the mythology fiction deployed back in March 2013... Large Language Models since Q4 2022 have put USA into a machine-human feedback loop of monomyth variations. Self-harm out-group hate pattern.
+
+https://old.reddit.com/r/worldnews/comments/1qlem6t/china_no_longer_pentagons_top_security_priority/o1dto52/
+
+https://old.reddit.com/r/worldnews/comments/1qlem6t/china_no_longer_pentagons_top_security_priority/o1dqc4f/
+
+See reply comment, "mental" crowd, group-think "mental"
+
+https://old.reddit.com/r/worldnews/comments/1qlem6t/china_no_longer_pentagons_top_security_priority/o1e6j8z/
+
+10-month Reddit account.
+
+https://old.reddit.com/r/worldnews/comments/1qlem6t/china_no_longer_pentagons_top_security_priority/o1dz62w/
+
+https://old.reddit.com/r/worldnews/comments/1qlem6t/china_no_longer_pentagons_top_security_priority/o1e2bfh/
+
+"one man", brought USA down. Messaging on Reddit fandom of Trump: Ignore Rupert Murdoch media addiction. Ignore the Saint Petersburg Internet Research Agency invasion of Reddit community since March 2013 and the complete avoidance of an "Internet Uprising". See: https://github.com/RocketDerp/April14_2025/blob/main/Grim_Blunt/Pop/Social_Media_Society_did_not.md
