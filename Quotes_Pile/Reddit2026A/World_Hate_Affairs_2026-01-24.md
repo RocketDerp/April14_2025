@@ -176,3 +176,7 @@ https://old.reddit.com/r/worldnews/comments/1qloc3a/trump_threatens_100_tariffs_
 https://old.reddit.com/r/news/comments/1qlty1z/man_shot_by_federal_agents_in_minneapolis_has/o1gt5nk/
 
 Surkov students won hearts and minds of USA since March 2013. Internet Research won heart and minds to self-harm USA goodness. Anti-goodness abounds. Pro-hate, pro-violence, pro-dehumanization abounds.
+
+https://old.reddit.com/r/MurderedByWords/comments/1qlxt9w/when_it_comes_to_bootlicking_republicans_sure_are/o1hvets/
+
+World hate affairs: Tower of Babel battleground. Instant *hate mental* state over an image that doesn't meet the mental laws of a meme addict on Reddit. Hate prizing. Donald Trump leads the world with hate and so many hate followers. Anything but drop shallowness, superficial, anti-diversity use of spelling or language logic.
