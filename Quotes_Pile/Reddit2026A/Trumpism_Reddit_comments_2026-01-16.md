@@ -2166,3 +2166,11 @@ Every fucking day of my life has gotten worse living in USA since year 2013 buil
 https://old.reddit.com/r/law/comments/1qlvdx6/new_video_of_124_ice_shooting_shows_victim_had/o1hacia/
 
 BBC, yes. But why has Reddit community not all memorized and repeated this August 24, 2018 BBC story like our COVID-2019 lives depend on it? Why are we letting measles be promoted without sharing this August 24, 2018 BBC reporting? Why is "gun death" the only one people say is serious news when measles are sickening and killing people? https://www.bbc.com/news/world-us-canada-45294192
+
+https://old.reddit.com/r/law/comments/1qlvdx6/new_video_of_124_ice_shooting_shows_victim_had/o1h6yl9/
+
+"slapstick", "slapstick comedy", that's what video gaming smartphone audience of Reddit sees. Humor and comedy entertainment videos. Exactly what Putin's media invasion since March 2013 conditions in the mind. 
+
+* "In the best case they looked funny", "We are trying to change reality. Reality has indeed begun to change as a result of the appearance of our information in public" - June 2, 2014 - https://www.buzzfeednews.com/article/maxseddon/documents-show-how-russias-troll-army-hit-america
+
+* **"America is losing the information war"**; "With the election only five months away, the **US has no idea how to defend itself against Russia**" by Nina Jankowicz 30 Jun 2020. "the West had a chance to look into the Russian online influence crystal ball that is Ukraine, when several Russian-controlled bot farms were uncovered within its borders and shut down. Using 40,000 SIM-cards housed at 12 addresses across the country, more than 10,000 bot accounts had been spreading messages designed to undermine the Ukrainian government.  **For years, Ukraine has been Russia’s disinformation laboratory, the Cassandra of the information war**. And what does this glimpse prophecise? It should warn us that despite greater public awareness, increased attention from social media platforms, and millions of dollars of government investments to counter hostile influence campaigns, disinformers in Russia and other adversarial states have not been deterred. They have adapted." - https://unherd.com/2020/06/why-america-is-losing-the-information-war/
