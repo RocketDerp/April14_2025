@@ -2217,3 +2217,6 @@ https://old.reddit.com/r/CringeTikToks/comments/1qlvu8c/closeup_view_of_ice_exec
 
 Dr. Martin Luther King Jr Day was Monday. Reddit tech addicts love violence action, anything but quote and teach Dr. King's doctorate ideas and thinking. Learning from Malala and joining against the Taliban with girls education. Nope, gun-worship USA parenting on Reddit.
 
+https://old.reddit.com/r/CringeTikToks/comments/1qlvu8c/closeup_view_of_ice_executing_a_man_today_in/o1h97ba/
+
+Replies to this comment are pro-ignorance, "nothing can be done", back to amusement memes as usual. Sports games and other anti-intellectual content consumption. Need to learn more basketball and football studies? Some slight variation of scores to analyze? Anything to avoid listening and teaching Dr. Bandy X. Lee's October 3, 2017 nonfiction book with real learning inside.
