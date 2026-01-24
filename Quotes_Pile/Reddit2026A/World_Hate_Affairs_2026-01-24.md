@@ -100,3 +100,23 @@ https://old.reddit.com/r/BuyFromEU/comments/1qlk2lk/reddit_is_going_to_remove_th
 
 Block-happy, deport-happy, self-deport intimidation. The bigger trouble is there is no morality education. Banning is the moral teacher, which teaches only the power of machines and power itself. No education or teaching of WHY. And hence, without morality learning, people on Reddit community do not turn to Dr. Bandy X Lee's nonfiction book from October 3, 2017 in the face of MAGA cult. People just chant word "cult" and do not see any moral need / civic duty, for *Adult education** with nonfiction serious books and peer to peer teaching.
 
+https://old.reddit.com/r/BuyFromEU/comments/1qlk2lk/reddit_is_going_to_remove_this_and_other_pro_eu/o1eqflz/
+
+https://old.reddit.com/r/BuyFromEU/comments/1qlk2lk/reddit_is_going_to_remove_this_and_other_pro_eu/o1er76h/
+
+https://old.reddit.com/r/BuyFromEU/comments/1qlk2lk/reddit_is_going_to_remove_this_and_other_pro_eu/o1esp2d/
+
+https://old.reddit.com/r/BuyFromEU/comments/1qlk2lk/reddit_is_going_to_remove_this_and_other_pro_eu/o1ev7zn/
+
+https://old.reddit.com/r/BuyFromEU/comments/1qlk2lk/reddit_is_going_to_remove_this_and_other_pro_eu/o1ewhtb/
+
+https://old.reddit.com/r/BuyFromEU/comments/1qlk2lk/reddit_is_going_to_remove_this_and_other_pro_eu/o1epbh9/
+
+https://old.reddit.com/r/BuyFromEU/comments/1qlk2lk/reddit_is_going_to_remove_this_and_other_pro_eu/o1ep8tw/
+
+Reddit is a Trump image fandom.Media fans of Trump as entertainment source. Mimicking Trump, adopting his words and techniques of communications. People follow the Trump image signals. Trump leads with hate and Reddit is a hate-prizing anti-Malala anti-MLKJr society. People quote Trump constantly but avoid any kind of messages about the need for more love, compassion, world peace. Those are all mocked like Trump mocks compassion and peace for out-groups.
+
+If Reddit society cared about the future of USA (goodness), adult education of morality and goodness would be constant top topics. Dr. Bandy X Lee's nonfiction book from October 3, 2017 is almost entirely ignored on Reddit. People far prefer saying little tiny-short messages of anti-education. Little 4-word "cult 45" jokes. Which is a cult of mocking. Trump leads thousands of different cults of mockery. Like 25,000 Trump subreddits and TV channels all of winch mock and insult. All Trump techniques, all the time.
+
+The whole game of mocking is a corrupt sport. But all people car about is being on a specific team of mocking other teams of mockery. Surkov won. The technique won. Mocking and hate are prized all across the USA in year 2026. It was not this way before year 2013, hate wasn't prized and promoted everywhere. MLK Jr's hate education and understandings have been erased from concern by Putin's Saint Petersburg Internet Research Agency since march 2013. Again: Surkov won. https://www.youtube.com/watch?v=5Au332OG-M4
+
