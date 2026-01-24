@@ -2148,3 +2148,12 @@ https://old.reddit.com/r/pics/comments/1qlw39u/alex_pretti_the_man_murdered_toda
 https://old.reddit.com/r/pics/comments/1qlw39u/alex_pretti_the_man_murdered_today_by_ice_agents/o1ha3cc/
 
 Conservative vs. Liberal brainrot. Rush to media. Fiction vs. non-fiction is the stronger concern.
+
+https://old.reddit.com/r/law/comments/1qlvdx6/new_video_of_124_ice_shooting_shows_victim_had/o1h4q8a/
+
+It is so sickening and makes me ill to witness how many people in USA on iPad / iPhone / Android are motivated ONLY when there is a bully and violence. Goodness does not motivate people to defend against Putin's cult programming since March 2013. Only violence and hate. If it is health are, starvation, stress, real estate golf course housing prices, people are not excited and working hard to defend against Russia. Even when Ukraine was being killed people watched videos... but now that they see it is people dressed in USA clothes every media outlet is operating at high speeds to deliver video and messages.
+
+Only the "action scenes" of home cities; Since March 2013, the nonfiction intellectual section of the public library has been ignored. Dr. King, Malala's blogging and books, so much ignored and avoided and STILL avoided. Where are the people calling for mental health treatment when obvious aggressive men are in the street dong domestic violence? Why is a woman with education and teaching always ignored? Dr. Bandy X. Lee published her book back on October 3, 2017 - but people only are attracted to males doing violence with guns in the streets of USA cities.
+
+So fucking sickening to watch gun worship an gun attraction and old man sex acts on private jets be the topics people stand up for. Why is education and teaching serious and important topics to ADULTS, critical learning like Fox News HDTV hyper-reality cult audience problems, Jen Senko's nonfiction film and book, ignored? It is only when it becomes a high-action dramatic video game in the streets with everyone holding camera-phones do people get so high-energy and motivated.
+
