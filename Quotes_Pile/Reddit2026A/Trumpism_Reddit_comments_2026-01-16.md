@@ -2197,3 +2197,7 @@ https://old.reddit.com/r/law/comments/1qlvdx6/new_video_of_124_ice_shooting_show
 
 People, We The People, need to stand up and take seriously all the warnings about Kremlin information warfare. Every person age 120 to age 120 in USA need to start discussing Dr. Bandy X Lee's articles and nonfiction book from October 3, 2017. People need to stop joking, stop watching sports, top playing video games. We don't need riot violence, we need an intellectual awakening. Billionaire Rupert Murdoch and Billionaire Putin have mind-fucked everyone into entertainment addictions. See also: https://github.com/RocketDerp/April14_2025/blob/main/Grim_Blunt/Stop_All_Entertainment.md
 
+https://old.reddit.com/r/CringeTikToks/comments/1qlvu8c/closeup_view_of_ice_executing_a_man_today_in/o1h9eq4/
+
+Information warfare. Psychological warfare. Surkov won since March 2013. War against nonfiction. 
+
