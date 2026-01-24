@@ -64,4 +64,6 @@ Leftist vs. right, left vs. right, is a kind of brainrot thinking. it all starts
 * “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.”
 ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. October 8, 2013
 
+In the case of USA, it is more along these lines: children are raised to memorize Fox News HDTV programming and deny medical science learning and health care compassion for others.
+
 Social media { https://autistics.life/@RoundSparrow/115949891597057493 https://bsky.app/profile/roundsparrow.bsky.social/post/3md653nukrc2k }
