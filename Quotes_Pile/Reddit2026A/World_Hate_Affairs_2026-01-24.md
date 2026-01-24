@@ -59,6 +59,9 @@ It is not a "hidden agenda", the Reddit audience is not engaging with reality it
 
 * From September 9, 2014 - 11 years 4 months and some days ago, which is **more than a decade** - we could have kept repeating it and defeated Putin's takeover of USA hearts and minds: https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ "Russia and the Menace of Unreality: How Vladimir Putin is revolutionizing information warfare. By Peter Pomerantsev. At the NATO summit in Wales last week, General Philip Breedlove, the military alliance’s top commander, made a bold declaration. Russia, he said, is waging “the **most amazing information warfare blitzkrieg we have ever seen in the history of information warfare.**” It was something of an underestimation. The new Russia doesn’t just deal in the petty disinformation, forgeries, lies, leaks, and cyber-sabotage usually associated with information warfare. It reinvents reality, **creating mass hallucinations** that then translate into political action."
 
-Leftist vs. right, left vs. right, is a kind of brainrot thinking. it all starts to make much more sense how Afghanistan Taliban defeated USA after two decades if you study: **fiction vs. nonfiction**. Malala from Swat Valley Pakistan has a great book on education and Radio Mullah. 
+Leftist vs. right, left vs. right, is a kind of brainrot thinking. it all starts to make much more sense how Afghanistan Taliban defeated USA after two decades if you study: **fiction vs. nonfiction**. Malala from Swat Valley Pakistan has a great book on education and Radio Mullah.
+
+* “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.”
+― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. October 8, 2013
 
 Social media { https://autistics.life/@RoundSparrow/115949891597057493 https://bsky.app/profile/roundsparrow.bsky.social/post/3md653nukrc2k }
