@@ -11,19 +11,19 @@ Religions, cults, mythology: the metaphor problem.
 
 # Elon Musk "Mind Virus"
 
-Billionare Elon Musk is admitting that billionares manipulate mind virus in the population.
+Billionaire Elon Musk is admitting that billionaires manipulate mind virus in the population.
 
 https://www.lemonde.fr/en/international/article/2024/08/13/elon-musk-s-ambition-repopulating-the-planet-and-destroying-the-woke-virus_6714239_4.html
 
 # There is no supernatural
 
-There is no supernatural, all cults and reliiongs are media. That includes Elon Musk on Twitter.
+There is no supernatural, all cults and religions are media. That includes Elon Musk on Twitter.
 
 # New Media Technology
 
-A new media technology is going to be pounched on year 2025 and onward. If a new exciting social media or streaming media / streaming meme system takes off, billionares are going to pounch on it. Truth Social by Donald Trump, Elon Musk purchase of Twitter - the trend is in place. Everything is media ecology now.
+A new media technology is going to be pounced-on year 2025 and onward. If a new exciting social media or streaming media / streaming meme system takes off, billionaires are going to pounce on it. Truth Social by Donald Trump, Elon Musk purchase of Twitter - the trend is in place. Everything is media ecology now.
 
-This is the era of Media Ecology. 
+This is the era of Media Ecology. Previously, emerging media was mostly there for advertising and such, but now with Trump's success, new tech of media is recognized as something to keep serious eyes on. Way more than before.
 
 Running society. Not as a sector of society, but as the core political system in a Surkov / Surkovian.
 
@@ -31,7 +31,7 @@ Cambridge Analytica and the Kremlin in "Operation Matthew 4:19" have proven deep
 
 Bluesky is more of the same. A new technology format has the potential to really go viral / something that really catches on fast.
 
-And people can not distiguish fiction from nonfiction, reality from anti-reality, information warfare from sincere education (Peter P) on the subject. Neil Postman has been brought up in the press enough times - people are actively flocking away, no teachers or media stars with platforms are staying sustained on this like it is the true risk that it is.
+And people can not distinguish fiction from nonfiction, reality from anti-reality, information warfare from sincere education (Peter P) on the subject. Neil Postman has been brought up in the press enough times - people are actively flocking away, no teachers or media stars with platforms are staying sustained on this like it is the true risk that it is.
 
 People Trust Donald Trump. How much more warning can you have than people believing Donald Trump? People believe Putin, trust Russia. Donald Trump trusts Putin! How much more warning of obvious anti-reality fiction faiths can we see? The Levant Torah, Bible, Quran has been festering problems in terms of fiction vs. nonfiction (metaphors all)...
 
