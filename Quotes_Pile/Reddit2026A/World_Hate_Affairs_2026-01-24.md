@@ -70,5 +70,7 @@ Social media { https://autistics.life/@RoundSparrow/115949891597057493 https://b
 
 https://old.reddit.com/r/worldnews/comments/1qlem6t/china_no_longer_pentagons_top_security_priority/o1ehxdu/
 
-No, we are no longer competing or nonfiction books at the public library. Twitter-length commenting is the competition the USA society choose since year 2013. Competing for Reddit low-effort messages. Science learning was considered boring and tedious. Malala was the last great spiritual leader, and she didn't have a chance against Reddit memeland. Study the Malala vs. Trump timeline of year 2012: https://github.com/RocketDerp/April14_2025/blob/main/PostMalala/Marriage/World_Malala_Timeline_Year_2012.md ... Men vs. women. Dr. Bandy X Lee vs. Joe Rogan. Joe Rogan won. 
+No, we are no longer competing for understanding nonfiction books at the public library. Twitter-length commenting is the competition the USA society choose since year 2013. Competing for Reddit low-effort messages. Science learning was considered boring and tedious. Malala was the last great spiritual leader, and she didn't have a chance against Reddit memeland. Study the Malala vs. Trump timeline of year 2012: https://github.com/RocketDerp/April14_2025/blob/main/PostMalala/Marriage/World_Malala_Timeline_Year_2012.md ... Men vs. women. Dr. Bandy X Lee vs. Joe Rogan. Joe Rogan won. 
+
+See also: https://old.reddit.com/r/ThoughtfulSocialMedia that I created August 12, 2021. But thoughtless commenting is what won social media. And Elon Musk saw it and purchased Twitter social media leadership in year 2022, shortly after I created that subreddit to try and describe the ongoing anti-Malala anti-women crisis. Joe Rogan won. Elon Musk won. Reddit meme-think men won.
 
