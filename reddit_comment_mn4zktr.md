@@ -3,6 +3,13 @@ https://old.reddit.com/r/WallStreetbetsELITE/comments/1jz88g5/we_had_the_largest
 
 &nbsp;
 
+9 months later, a lot of deleted comments. People mocking away 9 months ago on April 14, 2025.
+
+<img width="1612" height="1496" alt="image" src="https://github.com/user-attachments/assets/d3bee7e1-d1e4-40c7-b6fc-ab30626d3652" />
+
+
+&nbsp;
+
 &nbsp;
 
 &nbsp;
