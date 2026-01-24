@@ -1514,8 +1514,14 @@ Fiction outsells nonfiction. I fucking used to work for the two richest people i
 
 I am not ignorant on these media behavior subjects, I have insider knowledge and experience. I am a published author on social media systems! I traveled to Africa for the social media revolution I predicted... the Arab Spring 2010. I traveled to the Middle East to study social media of the Syria war outbreak! I've authored and sold and operated (SysOp) social media systems in high school in year 1985 and 1986! I was an educator of social media systems to Microsoft employees in Redmond Washington, a 2-week course instructor for staff of Microsoft... on social media systems! I fucking still remember my social media FCC license number "KBRV0896" from middle school yars!
 
-* “The mass media are turning the globe into a village and catapulting 20th century man back to the life of the tribe.” - the fourth edition of multimedia magazine Aspen (1967) designed by Quentin Fiore and edited by and devoted to sixties media visionary Marshall McLuhan. Voluminous documentation of “Aspen Magazine – The McLuhan Issue” https://www.theMediumistheMassage.com/the-magazine/
+* “The mass media are turning the globe into a village and catapulting 20th century man **back to the life of the tribe**.” - the fourth edition of multimedia magazine Aspen (1967) designed by Quentin Fiore and edited by and devoted to sixties media visionary Marshall McLuhan. Voluminous documentation of “Aspen Magazine – The McLuhan Issue” https://www.theMediumistheMassage.com/the-magazine/
 
 Putin fucking won! Surkov fucking won! Since March 2013. EVERYONE is fucking BAMBOOZLED!!!
 
 * “One of the saddest lessons of history is this: If we’ve been bamboozled long enough, we tend to **reject any evidence of the bamboozle**. We’re no longer interested in finding out the truth. The bamboozle has captured us. It’s simply too painful to acknowledge, even to ourselves, that we’ve been taken. Once you give a charlatan power over you, you almost never get it back. So the old bamboozles tend to persist as the new ones rise.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, **1995**, page 241
+
+LOOK: Desire, you want EVIDENCE of the bamboozle killing your neighbors at the hospital!!! Memorize every fucking word of this BBC story: https://www.BBC.com/news/world-us-canada-45294192 and look around how NOBODY shared it when COVID-2019 came onto the world stage from Wuhan, China in late year 2019! January 2020. Stephen Colbert covered it YEAR 2019, the same year as COVID-2019! https://Old.Reddit.com/r/QAnonRussia/comments/si2yrq/may_4_2019_russian_trolls_are_fueling_the_anti/
+
+Putin fucking won, and Putin is not even in control of the mind-fuck monomyth patterns they released since March 2013! The whole world better fucking wake up to James Joyce's 1923 Finn's Hotel!
+
+* www.LazyWake.com "Finnegans Wake is the greatest guidebook to media study ever fashioned by man." - Marshall McLuhan, Newsweek Magazine, p.56, February 28, 1966
