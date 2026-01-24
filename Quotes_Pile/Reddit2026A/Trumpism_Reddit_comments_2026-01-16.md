@@ -2086,3 +2086,10 @@ September 9 2014, 3:42 PM ET
 “If previous authoritarian regimes were three parts violence and one part propaganda,” argues Igor Yakovenko, a professor of journalism at the Moscow State Institute of International Relations, “this one is **virtually all propaganda and relatively little violence**. Putin only needs to make a few arrests — and then **amplify the message through his total control of television**.”
 
 That's year 2014 when Television was the main platform, but January 2026 the total control and predictable of Reddit /r/All streaming TV / video hosting.
+
+https://old.reddit.com/r/Minneapolis/comments/1qlpzu8/another_ice_murder_in_front_of_glam_doll_donuts/o1fuoe9/
+
+https://old.reddit.com/r/Minneapolis/comments/1qlpzu8/another_ice_murder_in_front_of_glam_doll_donuts/o1fv5rp/
+
+internet gangs, gang warfare, urban and suburban mind-fucking on Reddit.
+
