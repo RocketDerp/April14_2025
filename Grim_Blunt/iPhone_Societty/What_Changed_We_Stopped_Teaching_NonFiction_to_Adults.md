@@ -6,6 +6,8 @@ iPhone Society
 Since middle of year 2007, the Apple iPhone   
 The Apple iPad   
 The Android devices   
+Hand-held media screens, in your face, not a TV across the room!    
+That is *what changed* in year 2007.   
 
 That is what changed. Adult education shifted from Fox News Cable TV, HDTV, over to smartphones / tablets. Internet devices. Meme devices. Memes.
 
