@@ -14,22 +14,22 @@ Exactly what is the university experience?
 
 Slow repetitive learning. Staying mentally focused on the boring. Making the boring attractive.
 
-David Foster Walace on fighitng entertainment     
+David Foster Wallace on fighting entertainment     
 (search this repository for 6 minute)    
 
 ## Hyper Reactive 
 
-It isn't about being lazy. Sports fanatics are not lazy. Amped up, hyperactive, but hyper re-active. When the players int he sports game move and shake, do something outragous, people react in crowds.
+It isn't about being lazy. Sports fanatics are not lazy. Amped up, hyperactive, but hyper re-active. When the players int he sports game move and shake, do something outrageous, people react in crowds.
 
-Connetators in sports are audience cheerleaders. Applause signs for the at-home audience.  Graphics and animation cue the audience.
+Commentators in sports settings are audience cheerleaders. Applause signs for the at-home audience.  Graphics and animation cue the audience.
 
 Unplanned, shocking government actions give a sports media environment to the White House.
 
-Sports fans are not lazy. They are fixated. Us vs. them is about being thrilled that othrs make bad choices and coaches give bad advice, the dramatic pressure of havig a huge audience and the clock going in only one direction. Everything is a countdown to the next level of competittion, the playoffs, the championship, the next season of the sport.
+Sports fans are not lazy. They are fixated. Us vs. them is about being thrilled that others make bad choices and coaches give bad advice, the dramatic pressure of having a huge audience and the clock going in only one direction. Everything is a countdown to the next level of competition, the playoffs, the championship, the next season of the sport.
 
 Elections have become countdowns like the world cup every 4 years. 
 
-It is too boring to repeat the same topic every day of health care. But people repeat rich mensex games of Epstein over and over. People repeat "donnie dementia diapers" over and over. "Sleep Joe Biden" over andover (which means: boring Joe Biden, not thrilling antics like Trump and Fox News).
+It is too boring to repeat the same topic every day of health care. But people repeat rich men sex games of Epstein over and over. People repeat "donnie dementia diapers" over and over. "Sleep Joe Biden" over and over (which means: boring Joe Biden, not thrilling antics like Trump and Fox News).
 
 &nbsp;
 
@@ -52,7 +52,7 @@ Unhinged from what? Unhinged from truth, reality, goodness.
 
 This is rough draft raw even for me ;) I hope I can keep revisiting this topic, but it is very grim. Nobody wants to deal with this addiction to out-group hate in the Middle East. 
 
-Automated Youtube transcript, so not formatted and may have some errors. Audio in link.
+Automated YouTube transcript, so not formatted and may have some errors. Audio in link.
 
 https://www.youtube.com/watch?v=P6gtHQGbXmM
 
@@ -162,7 +162,7 @@ In a world increasingly torn by ideological battles, political shouting matches,
 
 &nbsp;
 
-Exactly! Comprehension takes time, reactionary outcomes since the Internet Research Agency and Cambridge Analytica of March 2013 onward. People do not comrpehend complex ideas before reacting to them. There is no more pondering, the race of social media reaction / Donald Trump interactive audience Tony Clifton reaction interaction...
+Exactly! Comprehension takes time, reactionary outcomes since the Internet Research Agency and Cambridge Analytica of March 2013 onward. People do not comprehend complex ideas before reacting to them. There is no more pondering, the race of social media reaction / Donald Trump interactive audience Tony Clifton reaction interaction...
 
 TIMESTAMPS:   
 00:00 Request for your understanding   
@@ -226,7 +226,7 @@ https://old.reddit.com/r/politics/comments/1mp7n4h/trump_supporter_detained_by_i
 Just as declared in Newsweek headline February 12, 2019 - "The illusion of choice is the most important illusion, the main trick of Western democracy especially…. The rejection of this illusion in favor of the reality that everything is predestined will allow society to reflect first on our vision of democratic development," Surkov wrote. "Foreign politicians talk about Russia's interference in elections and referendums around the world. In fact, the matter is even more serious: **Russia interferes in your brains, we change your conscience**, and there is nothing you can do about it."     
 https://www.newsweek.com/russia-president-vladimir-putin-election-americans-1327793
 
-Working together... [Trump, Cambridge Analytica and the Internet Research Agency mind-fucked](https://www.facebook.com/konstantin.rykov/posts/10210643558675446) every person who uses social media or talks to pepople (second hand smoke influence) who use social media since March 2013 rampup of the IRA. A primary symptom of the Kremin mind fucking outcomes is people being unwilling to discuss facts and details of players (Surkov, Putin, etc), dates, names of orgaizations, reported by mutliple NATO nations, etc.  Ukraine is the most on top of it, USA is mind-fucked into avoidamnce of the topic (and avoidance of Neil Postman, now dead author, 1985 book).
+Working together... [Trump, Cambridge Analytica and the Internet Research Agency mind-fucked](https://www.facebook.com/konstantin.rykov/posts/10210643558675446) every person who uses social media or talks to people (second hand smoke influence) who use social media since March 2013 ramp-up of the IRA. A primary symptom of the Kremlin mind fucking outcomes is people being unwilling to discuss facts and details of players (Surkov, Putin, etc), dates, names of organizations, reported by multiple NATO nations, etc.  Ukraine is the most on top of it, USA is mind-fucked into avoidance of the topic (and avoidance of Neil Postman, now dead author, 1985 book).
 
 Americans have not defended, no sense of civic duty, nobody is taking seriously that measles is still spreading in North America (Texas, Canada, etc) from mind-fucked people that Russia has attacked since year 2014 on Twitter and other media platforms: https://www.bbc.com/news/world-us-canada-45294192
 
@@ -239,8 +239,8 @@ Americans have not defended, no sense of civic duty, nobody is taking seriously 
 ### Mocking Trump is not resisting Trump
 
 ***February 23 2016*** this is way before the November, 2016 election win.   
-Donald Trump and the Kremlin (working with Cambridge Analytica) has mastered implanting langauge into audience minds.   
-Febuary 23, 2016 "Donald Trump Has Transformed English"    
+Donald Trump and the Kremlin (working with Cambridge Analytica) has mastered implanting language into audience minds.   
+February 23, 2016 "Donald Trump Has Transformed English"    
 https://www.businessinsider.com/donald-trump-has-transformed-english-2016-2
 
 &nbsp;
@@ -249,13 +249,13 @@ https://www.businessinsider.com/donald-trump-has-transformed-english-2016-2
 
 &nbsp;
 
-### Subconsious exploit, brain MonoMyth
+### Subconscious exploit, brain MonoMyth
 
 &nbsp;
 
-October 17, 2019 "Congnative Decline" headline
+October 17, 2019 "Cognitive Decline" headline
 
-Why do people obey orders that make non sense? Obdience to a Male Father Figure is exaclty the talent Trump has mastered. His sexual acts with family and women are all about that "Super Man" image. Yet, Social Media Society can't stand up to it. Mocking Trump for his domination is a form of worship. Allah / Yaweh / God is not a nice guy in Levant tradition. This is abrain exploit for thousands of years in the Levant, a nasty mean father figure.    
+Why do people obey orders that make non sense? Obedience to a Male Father Figure is exactly the talent Trump has mastered. His sexual acts with family and women are all about that "Super Man" image. Yet, Social Media Society can't stand up to it. Mocking Trump for his domination is a form of worship. Allah / Yahweh / God is not a nice guy in Levant tradition. This is a brain exploit for thousands of years in the Levant, a nasty mean father figure.    
 https://old.reddit.com/r/politics/comments/1o9ao31/cognitive_decline_trump_whines_about_train_to/
 
 "It seems to me that young Douglas is going to go to his mum and dad, and they’ll talk to him about it and explain how it fits and so on, and then will come that shattering night when you are about sixteen, and you find out mum and dad are afraid to die too… or maybe fourteen. And on a Freudian account, it’s not accidental that that’s the time you reach out for large and invisible fathers to protect you… and mothers. And you know what, that’s elegant suspicion. It is not an argument; it’s an elegant suspicion.
@@ -270,7 +270,7 @@ In fact when you look at the iconic significance of churches, you know the Fathe
 
 https://old.reddit.com/r/technology/comments/1o9tso2/are_we_living_in_a_golden_age_of_stupidity/
 
-Technology-driven "golden age of stupidity" - Neil Postmans 1992 book, after Neil Postman's 1985 book. Amusement mills of artificial intelligence creating generative copyright-avoiding unique (RNG) answers to the same promot. Taking orders from tehcnology itsef.
+Technology-driven "golden age of stupidity" - Neil Postman's 1992 book, after Neil Postman's 1985 book. Amusement mills of artificial intelligence creating generative copyright-avoiding unique (RNG) answers to the same prompt. Taking orders from technology itself.
 
 &nbsp;
 
