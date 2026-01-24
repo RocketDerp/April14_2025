@@ -563,3 +563,17 @@ THE EVIDENCE REDDIT SOCIETY IS AVOIDING AND REJECTING: October 20, 2011. COUNT T
 Donald Trump is first and foremost: A celebrity. A TV star. A Reality Television star and actor! Acting!
 
 MORE EVIDENCE REDDIT SOCIETY IS AVOIDING AND REJECTING: Published January 2015, before Trump started run for office in June 2015: https://www.Politico.com/magazine/story/2015/01/putin-russia-tv-113960/ At one end of the table sat one of the country’s most famous political TV presenters. He was small and spoke fast, with a smoky voice: “We all know there will be no real politics,” he said. “But we still have to give our viewers the sense something is happening. They need to be kept entertained.” “So what should we play with?” he asked. “Shall we attack oligarchs? Who’s the enemy this week? **Politics has got to feel like a movie!**”
+
+https://old.reddit.com/r/clevercomebacks/comments/1qlrkuf/democrats_need_to_stop_asking_politely_and/o1gbh9n/
+
+Denial abounds. Reddit audience can't see that there has been no Reddit uprising the entire 10 years and 7 months Trump has been the center of all USA media systems, enter of Reddit audience attention. Media addiction confrontation.
+
+Reddit audience is waiting for I.C.E. / Pentagon / MAGA / Fox News / Musk Twitter / Truth Social / Trump images every hour of every day. To react-comment. ANYTHING but face mind-fucking learning and education. The dehumanization caused by digital media systems.
+
+Why haven't "The Media", the **social media companies** (Reddit and Bluesky) pinned educational posts to people and informed their users to see the *forest for the trees* of how:
+
+1. "But the key thing was, that Surkov then let it be known that this was what he was doing, which meant that no one was sure what was real or fake. As one journalist put it: "It is a strategy of power that keeps any opposition constantly confused." A **ceaseless shape-shifting that is unstoppable** because it is undefinable." - [Adam Cutis, year 2014](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html)
+
+2. "The brilliance of this new type of authoritarianism is that instead of simply oppressing opposition, as had been the case with twentieth-century strains, it **climbs inside all ideologies and movements, exploiting and rendering them absurd.**" - [Peter Pomerantsev, 2014](https://www.goodreads.com/author/quotes/8035579.Peter_Pomerantsev)
+
+Reddit is the advanced, hard level, of the simulation of resistance. Where poop diaper and orange skin is prized shit-content over all else. Quotes from nonfiction books about **cult deprogramming** and group mental health and Kremlin information warfare do not get pushed on Reddit to the top.
