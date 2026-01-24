@@ -11,4 +11,5 @@ Putin / Kremlin / Russia
 Organized **cult of ignorance military techniques**.   
 Deployed on the Internet since March 2013, a full 3.5 years before election November 2016.   
 It started March 2013, before the Ukraine invasion by Russia on February 20, 2014.   
+Russia's Goal has been about EU / Europe Union / NATO all along since March 2013. Putin attacking NATO, THAT MAKES SENSE. Trump does not make sense, MAGA does not make sense. MAGA is a product of Russian military mental manipulation.   
 
