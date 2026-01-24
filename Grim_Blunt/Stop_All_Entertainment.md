@@ -120,3 +120,14 @@ https://autistics.life/@RoundSparrow/115899739310782031
 # Brainrot Society 47
 
 Proposal [for every 47 hours Internet-wide organization efforts: "Brainrot Society 47"](/PostMalala/Assert_Malala/Brainrot_Society_47.md).
+
+&nbsp;
+
+&nbsp;
+
+# Rare call to stop Entertainment 
+
+Saturday noonish January 24, 2026    
+A call for a very temporary stop of entertainment sports-washing reality. NBA basketball.   
+
+https://old.reddit.com/r/nba/comments/1qltim2/the_nba_should_cancel_this_afternoons/
