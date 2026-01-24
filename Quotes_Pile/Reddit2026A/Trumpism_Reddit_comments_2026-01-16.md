@@ -2118,3 +2118,10 @@ I.C.E. action fandom! ICE fandom. The Reddit image fanbase of **MAGA-originated 
 * "For all the ways one can define fascism (and there are many), one essential trait is its allegiance to no idea of right but its own: it is, in short, ideological narcissism. It creates a myth that is irrefutable (much in the way that **an image’s “truth” cannot be disproved**), in perpetuity, because of its authoritarian, unrestrained nature." - Andrew Postman. February 2017. Ignored by Reddit audience since early year 2017. https://www.theGuardian.com/media/2017/feb/02/amusing-ourselves-to-death-neil-postman-trump-orwell-huxley
 
 Why is Reddit community not **sharing everywhere: Dr. Bandy X Lee mental health education for I.C.E. agents**, ICE employees?
+
+https://old.reddit.com/r/AdviceAnimals/comments/1qlmkmc/musk_is_going_all_in_on_financing_maga_candidates/o1fsc8u/
+
+It is not difficult in any way to see Twitter traffic comes from real houses in Fort Wayne, Indiana where I went to high school, Snider High class of year 1988. TCP/IP and Google Play app store information. People LOVE short SMS text messages, twitter-think in my Facebook high school class of people I verified personally are real accounts. I pay attention to crowd and sports mentality in my football-driven high school. We had NFL players come from my Indiana high school. I worked for NFL owner of the Seattle Seahawks in social media. I know how to tell the influence the Apple iPad and iPhone have had on Indiana people.
+
+OPERA_A In the heartland. I ran a social media site, "The Fortress" in 219 area code in high school. Being a nerd was NOT COOL in year 1986 in Fort Wayne. https://www.youtube.com/watch?v=h04CH9YZcpI I went to become a Microsoft star for the Seahawks Football owner... not in front of the camera, but in the social media TCP/IP networks.  35,721,829 views  October 5, 2009 - in Q2 2010 I shared this YouTube video to Tunisia and Algeria as part of the Internet Arab Spring revolution with university educated women given open Internet access to YouTube, etc.
+
