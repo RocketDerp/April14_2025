@@ -2073,3 +2073,16 @@ https://old.reddit.com/r/Minneapolis/comments/1qlpzu8/another_ice_murder_in_fron
 On the world-wide stage, WWW, this is what the USA prized. Dirty Harry. Action cops. Toxic gun worship society. NRA. Physical confrontation, mobs / street gangs of physical to avoid the nonfiction public library learning. USA power-fucking prizing. Punchable faces, shootable faces egomania worship meme society. Anti-John Lennon, anti-Malala, anti-MLKJr messaging Reddit platforming of handheld device worshipers. Dr. Bandy X Lee has a book published October 3, 2017 about "Dangerous" and people on Reddit ignore nonfiction book quoting and sharing most of all. Gotta get in those original low-effort commenting, no way could you follow the leadership of an intellectual woman: Dr. Lee on Reddit social USA MAGA land January 2026. See my original commenting here in this paragraph...
 
 * "Between 2011 and 2016, Russian nationals Alexander Torshin and Maria Butina engaged in a "years-long effort" to infiltrate and manipulate the National Rifle Association (NRA) to gain access to the American political system. Torshin began cultivating ties with NRA leadership in 2011, attending six consecutive annual conventions through 2016 and leveraging these relationships to observe the 2012 U.S. presidential election. Beginning in 2013, Butina co-hosted NRA delegations in Moscow, including a 2015 trip where NRA insiders met with sanctioned Russian officials in exchange for "lucrative personal business opportunities". By 2016, this infiltration had escalated into a "spot and assess" operation to identify influential Americans, with Butina and Torshin facilitating back-channel communications and meeting with high-profile figures like Donald Trump Jr. at the 2016 NRA convention. A 2019 Senate Finance Committee report concluded that during this period, the NRA effectively acted as a "foreign asset" for the Russian government." - Google Search summary 2026-01-24 morning USA
+
+https://old.reddit.com/r/Minneapolis/comments/1qlpzu8/another_ice_murder_in_front_of_glam_doll_donuts/o1fvtxc/
+
+Dr. Bandy X Lee is the leader. GenX woman, speaking up every day, but nobody wants to follow goodness nonfiction leaders. Trump provides action entertainment. Television and live video hosted on Reddit is the addiction to Trump and Putin since March 2013. Please read:
+
+Russia and the **Menace of Unreality**   
+How Vladimir Putin is revolutionizing information warfare   
+Peter Pomerantsev   
+September 9 2014, 3:42 PM ET   
+
+“If previous authoritarian regimes were three parts violence and one part propaganda,” argues Igor Yakovenko, a professor of journalism at the Moscow State Institute of International Relations, “this one is **virtually all propaganda and relatively little violence**. Putin only needs to make a few arrests — and then **amplify the message through his total control of television**.”
+
+That's year 2014 when Television was the main platform, but January 2026 the total control and predictable of Reddit /r/All streaming TV / video hosting.
