@@ -2108,3 +2108,13 @@ YOUR LEADERS ARE COMPUTERS. YOU ARE FOLLOWING YOUR LEADER: REDDIT DOT COM WEBSIT
 Learn about information warfare, psychological warfare, active measures! LEARN! Surkov won.
 
 OPERA_A Canadian... **You Learn**. https://www.youtube.com/watch?v=GFW-WfuX2Dk - start learning from WOMEN and stop watching men with guns in the street as your primary attraction signal! Stop Reddit shit-posting and shit-commenting and seeking Trump diaper-shit in your brain and listen to Dr. Bandy X Lee's leadership and FOLLOW! 44,267,972 views May 19, 2007 I shared this song video over the Internet to Tunisa and Algeria in Q2 2010 during the Internet WWW Arab Spring!
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qlqgvi/another_ice_murder_in_front_of_glam_doll_donuts/o1fzdol/
+
+<img width="1141" height="515" alt="image" src="https://github.com/user-attachments/assets/895f8bdd-85aa-4b50-ba1e-20185e79ac06" />
+
+I.C.E. action fandom! ICE fandom. The Reddit image fanbase of **MAGA-originated Putinsim content**. Wants to share video of action killing over and over. Share video images share camera images!!! Image addictions. 9 month Reddit account, top upvoted of Reddit comments, reactionary training camp for image addicts.
+
+* "For all the ways one can define fascism (and there are many), one essential trait is its allegiance to no idea of right but its own: it is, in short, ideological narcissism. It creates a myth that is irrefutable (much in the way that **an image’s “truth” cannot be disproved**), in perpetuity, because of its authoritarian, unrestrained nature." - Andrew Postman. February 2017. Ignored by Reddit audience since early year 2017. https://www.theGuardian.com/media/2017/feb/02/amusing-ourselves-to-death-neil-postman-trump-orwell-huxley
+
+Why is Reddit community not **sharing everywhere: Dr. Bandy X Lee mental health education for I.C.E. agents**, ICE employees?
