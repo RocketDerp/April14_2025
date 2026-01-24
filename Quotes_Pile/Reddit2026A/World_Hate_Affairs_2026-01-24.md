@@ -78,3 +78,10 @@ OPERA_A Repeating repeating repeat https://www.youtube.com/watch?v=RXKvIO3zp84 9
 
 https://old.reddit.com/r/MapPorn/comments/1qlk0yj/is_your_country_a_member_of_the_world_health/o1ev830/
 
+https://old.reddit.com/r/BuyFromEU/comments/1qlk2lk/reddit_is_going_to_remove_this_and_other_pro_eu/o1eo50l/
+
+See the posting about Reddit users getting band for speaking out against Trump USA / MAGA USA.
+
+https://old.reddit.com/r/BuyFromEU/comments/1qlk2lk/reddit_is_going_to_remove_this_and_other_pro_eu/o1eogxb/
+
+Secret police who burn books, disappear messages.
