@@ -1501,3 +1501,15 @@ https://old.reddit.com/r/mildlyinfuriating/comments/1qljxmm/this_poster_in_a_gym
 See the edit. James Joyce, cover title of Finnegans Wake. Perhaps it is the software programmers, syntax error machine trauma, that so many Reddit tech lovers hate humans for... pro-billionaire gang mentality. Any sign of non-conformity rule-breaking. Individuals with handicaps typing are aggressively abused on Reddit.
 
 https://old.reddit.com/r/mildlyinfuriating/comments/1qljxmm/this_poster_in_a_gym_around_my_area/o1er5tx/
+
+https://old.reddit.com/r/funny/comments/1qlncod/this_is_who_you_are_arguing_with_online_all_day/o1fb448/
+
+"Won't do a thing about it", so gullible on Reddit. It's all about feeding addiction. We have known since the 1960's from Marshall McLuhan but people are uneducated, never heard of Marshall McLuhan. But everyone in USA has Trump on their touching screen every 1.2 hours. People learning and studying Trump every 75 minutes or less.
+
+BILLIONAIRES run Reddit, Twitter messages of the richest man in the whole fucking world are on Reddit /r/All every hour of day and night! THEY ARE DOING THINGS ABOUT IT, HIRING CHEAP OVERSEAS LABOR TO OUTSOURCE THEY BILLIONAIRES DO SINCE YEAR 1981!!! The gullibility and celebration of Ignorance on Reddit isn't accidental!
+
+* [“The truth is, it’s getting harder to describe the extent to which a meaningful percentage of Americans have dissociated from reality,” Charlie Warzel wrote “I’m Running Out of Ways to Explain How Bad This Is.”](https://www.axios.com/2024/10/19/musk-ackman-election-misinformation) - **October 19, 2024** - America’s gullibility crisis, Zachary Basu
+
+Fiction outsells nonfiction. I fucking used to work for the two richest people in the world. I was the expert for Paul Allen Group on SOCIAL MEDIA! I literally ran the social media for the 3rd richest person on planet Earth! I am not ignorant on these subjects, I have insider knowledge and experience. I am a published author on social media systems! I traveled to Africa for the social media revolution I predicted... the Arab Spring 2010. I traveled to the Middle East to study social media of the Syria war outbreak! I've authored and sold and operated (SysOp) social media systems in high school in year 1985 and 1986! I was an educator of social media systems to Microsoft employees in Redmond Washington, a 2-week course instructor for staff of Microsoft... on social media systems! I fucking still remember my social media FCC license number "KBRV0896" from middle school yaers!
+
+* “The mass media are turning the globe into a village and catapulting 20th century man back to the life of the tribe.” - the fourth edition of multimedia magazine Aspen (1967) designed by Quentin Fiore and edited by and devoted to sixties media visionary Marshall McLuhan. Voluminous documentation of “Aspen Magazine – The McLuhan Issue” https://www.theMediumistheMassage.com/the-magazine/
