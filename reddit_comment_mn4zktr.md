@@ -1,4 +1,11 @@
-[Monday, April 14, 2025 ‐ Reddit Comment mn4zktr](https://old.reddit.com/r/WallStreetbetsELITE/comments/1jz88g5/we_had_the_largest_gain_in_the_stock_market_in/mn4zktr/
+Monday, April 14, 2025 ‐ Reddit Comment mn4zktr    
+https://old.reddit.com/r/WallStreetbetsELITE/comments/1jz88g5/we_had_the_largest_gain_in_the_stock_market_in/mn4zktr/
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
 
 > WTF Is wrong with this dude?
 
