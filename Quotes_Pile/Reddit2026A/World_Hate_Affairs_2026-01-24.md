@@ -180,3 +180,13 @@ Surkov students won hearts and minds of USA since March 2013. Internet Research 
 https://old.reddit.com/r/MurderedByWords/comments/1qlxt9w/when_it_comes_to_bootlicking_republicans_sure_are/o1hvets/
 
 World hate affairs: Tower of Babel battleground. Instant *hate mental* state over an image that doesn't meet the mental laws of a meme addict on Reddit. Hate prizing. Donald Trump leads the world with hate and so many hate followers. Anything but drop shallowness, superficial, anti-diversity use of spelling or language logic.
+
+https://old.reddit.com/r/videos/comments/1qlr6sn/i_dont_think_maga_understands_how_much_people/o1g6r8q/
+
+yes. The subject of the Reddit posting: understanding hate.
+
+Putin has been killing people in Ukraine since February 2014. Putin is leading the entire USA into hate. People hate Trump, people hate harder and harder. The most serious people on Reddit promotes the message *hate harder* over and over to Putin's leadership. Putin leads with hate. Trump follows, and everyone follows Putin and Trump's hate leadership. Hate is the value everyone in USA shares. United States of Hate common ground. Since March 2013. Putin won. Surkov won.
+
+The entire goal of Ukraine war was to make NATO hate USA, USA to hate humanism. USA to abandon all goodness education and teaching from Dr. Martin Luther King Jr. Hate vs. Hate, hate for hate. Surkov designed the information war off the Middle East conflicts. Syria war study, the Arab Spring. I was in Amman, Jordan in March 2011 studying the hate patterns for years. Hate motivates. Reddit loves video game machines and messaging machines to spread hate against humans. Anti-empathy. That's the Elon Musk tech leadership, Trump's Truth Social hate platform leading.
+
+* March 25, 2025 - Elon Musk preaching that hate is most important. Empathy, forgiveness are bad. Reddit tech lovers adopted these same values. Surkov won. https://www.BroadView.org/elon-musk-empathy-weakness/
