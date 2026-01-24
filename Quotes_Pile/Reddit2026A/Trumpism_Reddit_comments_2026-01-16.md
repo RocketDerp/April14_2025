@@ -2125,3 +2125,11 @@ It is not difficult in any way to see Twitter traffic comes from real houses in 
 
 OPERA_A In the heartland. I ran a social media site, "The Fortress" in 219 area code in high school. Being a nerd was NOT COOL in year 1986 in Fort Wayne. https://www.youtube.com/watch?v=h04CH9YZcpI I went to become a Microsoft star for the Seahawks Football owner... not in front of the camera, but in the social media TCP/IP networks.  35,721,829 views  October 5, 2009 - in Q2 2010 I shared this YouTube video to Tunisia and Algeria as part of the Internet Arab Spring revolution with university educated women given open Internet access to YouTube, etc.
 
+https://old.reddit.com/r/news/comments/1qlty1z/man_shot_by_federal_agents_in_minneapolis_has/o1gtmap/
+
+"Unreal"
+
+https://old.reddit.com/r/news/comments/1qlty1z/man_shot_by_federal_agents_in_minneapolis_has/o1gvc84/
+
+"reality upsets". Denial of reality abounds on Reddit.
+
