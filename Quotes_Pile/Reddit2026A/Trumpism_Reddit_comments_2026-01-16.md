@@ -1977,3 +1977,11 @@ https://old.reddit.com/r/LeopardsAteMyFace/comments/1ql2r81/after_giving_republi
 this message and replies { "jokes", "funny", "memes" }. How Surkov and Internet Research Agency won since March 2013.
 
 Social post { https://autistics.life/@RoundSparrow/115947352769317667 https://bsky.app/profile/roundsparrow.bsky.social/post/3md4yzfdvp22j }
+
+https://old.reddit.com/r/lotrmemes/comments/1qkznq3/i_hate_it_here/o1aht7a/
+
+Reddit community has been *joking*, laughing, making funny, humor-promoting, "LOLcow milking" Donald Trump for over 10 years and 7 months. What is absent is serious nonfiction books. Dr. Bandy X Lee's book fro October 3, 2017 could be quoted every day in comments on Reddit. Instead, people just humor-washing entertainment washing adding LOTR fiction to already fiction Truth Social and White House Press fiction.... ANYTHING to avoid serious nonfiction. Surkov won.
+
+Instead of front page /r/LOTRmemes of Lord of the Ring *memes*, why is there always an avoidance of repeating and repeat postings of serious nonfiction to get people on the same page that Putin / Russia is wrecking NATO via entertainment addictions being exploited? LOTR images are from *a movie*.
+
+* Published January 2015, before Trump started run for office in June 2015: https://www.Politico.com/magazine/story/2015/01/putin-russia-tv-113960/ At one end of the table sat one of the country’s most famous political TV presenters. He was small and spoke fast, with a smoky voice: “We all know there will be no real politics,” he said. “But we still have to give our viewers the sense something is happening. They need to be kept entertained.” “So what should we play with?” he asked. “Shall we attack oligarchs? Who’s the enemy this week? Politics has got to feel like a movie!”
