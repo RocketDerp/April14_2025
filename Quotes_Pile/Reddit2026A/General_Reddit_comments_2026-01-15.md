@@ -1495,3 +1495,9 @@ https://old.reddit.com/r/WallStreetbetsELITE/comments/1jz88g5/deleted_by_user/mn
 <img width="1135" height="333" alt="image" src="https://github.com/user-attachments/assets/352d4f21-c016-4421-aefd-267a0d6eb909" />
 
 A rare Reddit message comment that calls out the forest of lies, not just barking at the one tree on April 14, 2025. Fiction outsells nonfiction. Fox News HDTV fiction is far more popular and outsells nonfiction. Putin and Surkov figured this out more than 25 years ago and started exporting it via the Internet Research Agency to Reddit and other media systems since March 2013. Lies and deception are incredibly popular. Popularity itself is toxic since March 2013.
+
+https://old.reddit.com/r/mildlyinfuriating/comments/1qljxmm/this_poster_in_a_gym_around_my_area/o1epavm/
+
+See the edit. James Joyce, cover title of Finnegans Wake. Perhaps it is the software programmers, syntax error machine trauma, that so many Reddit tech lovers hate humans for... pro-billionaire gang mentality. Any sign of non-conformity rule-breaking. Individuals with handicaps typing are aggressively abused on Reddit.
+
+https://old.reddit.com/r/mildlyinfuriating/comments/1qljxmm/this_poster_in_a_gym_around_my_area/o1er5tx/
