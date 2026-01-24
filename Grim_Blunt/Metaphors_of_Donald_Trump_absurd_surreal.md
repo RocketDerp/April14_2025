@@ -7,7 +7,7 @@ Metaphors of Surkovian Putinism Governing
 
 ## Absurd Surreal Mind Exploits of Penetration Surgery 
 
-JUly 31, 2025 Reddit front page social media    
+July 31, 2025 Reddit front page social media    
 https://old.reddit.com/r/BeAmazed/comments/1mec9tz/kindness_before_the_cure/
 
 &nbsp;
@@ -113,5 +113,4 @@ Why not cherry pick poetry from the voices of the public to create what Neil Pos
 Click here for a shared narative seedcorn: www.WakeIndra.com
 
 Alternate link, direct to YouTube playlist: https://www.youtube.com/playlist?list=PLcYhoGnK9I9T-xAaCAUxfXspcL-fEk35l
-
 
