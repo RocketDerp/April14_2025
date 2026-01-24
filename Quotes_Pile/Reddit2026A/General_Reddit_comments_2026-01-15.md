@@ -1460,3 +1460,11 @@ https://old.reddit.com/r/news/comments/1qkya2l/rejecting_decades_of_science_vacc
 https://old.reddit.com/r/okbuddycinephile/comments/1ql3caz/favorite_cinephile_who_is_a_coward_that_deletes/o1bi6wv/
 
 That's a thing Michael Moore emphasized about Donald Trump in his film. Trump is battle hardened about being in front of the camera, like no other.
+
+https://old.reddit.com/r/justgalsbeingchicks/comments/1ql3e2y/spilling_the_tea_on_the_ladies_gym/o1b9ze3/
+
+Hilarious: Fatima. 2013-04-14 American Corner. "the manager Fatima asked me to go visit her." 
+
+https://old.reddit.com/r/justgalsbeingchicks/comments/1ql3e2y/spilling_the_tea_on_the_ladies_gym/o1bcjxh/
+
+https://old.reddit.com/r/justgalsbeingchicks/comments/1ql3e2y/spilling_the_tea_on_the_ladies_gym/o1bd52y/
