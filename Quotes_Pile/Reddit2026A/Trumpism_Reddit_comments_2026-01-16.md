@@ -2244,3 +2244,10 @@ Remove by Reddit owners after hitting front page of /r/All - and this comment...
 https://old.reddit.com/r/BikiniBottomTwitter/comments/1qluiuy/removed_by_reddit/o1gxyqk/
 
 "Fucked-up place"
+
+https://old.reddit.com/r/TikTokCringe/comments/1qlw818/this_is_sick_and_some_people_need_to_stop/o1hgrnh/
+
+Age 43. As for the title of the Reddit. People are not pretending as much as they have become so meme addled that they can no longer engage adult nonfiction learning. Americans have entirely ignored { Jen Senko since year 2015, Dr. Bandy X Lee since October 3, 2017 }. People are so addicted to the smartphone stimulation that Trump constantly provides every day since June 16, 2015.. **We The People are unable to engage and grasp slow-burning serious nonfiction** book-length learning.
+
+* “The human brain can protect us from seeing and feeling what it believes may be too uncomfortable for us to tolerate. It can lead us to deny, defend, minimize, or rationalize away something that doesn’t fit our worldview.”
+― Dr. Bandy X Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. Published **October 3, 2017**. Page 273. Chapter "TRUMP'S DADDY ISSUES"](https://books.google.com/books?id=g0c4DwAAQBAJ&pg=PA273&dq=%E2%80%9CThe+human+brain+can+protect+us+from+seeing+and+feeling+what+it+believes+may+be+too+uncomfortable%22&hl=en&newbks=1&newbks_redir=1&sa=X)
