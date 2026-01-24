@@ -2034,3 +2034,10 @@ https://old.reddit.com/r/europe/comments/1qlhlnn/repatriate_the_gold_german_econ
 
 7-month Reddit account. "LOL", joke-washing, joke-cracking, wise-cracking about Donald Trump. The fandom of Trump that loves and is attracted to media for talking about his sex life and physical body. ANYTHING but be serious and focus on how to fix the fiction fantasy addiction problems of MAGA and White House.
 
+https://old.reddit.com/r/agedlikemilk/comments/1qlksv8/a_cubanborn_podcaster_in_miami_named_el_oski_with/o1etbt0/
+
+Trump fandom on Reddit, the loyal fanbase Reddit has for images of Trump. For over 10 years and 7 months, constantly seeking more and more cult images of Trump to discuss his diaper shit, shit-postings and how great it is t live with Russian media of shit-commenting and disappeared serious people.
+
+Given the choice of a thoughtful sincere Internet with Wikipedia values, Reddit audiences have done everything they can to follow Trump and Putin's leadership. Attraction to shit-posting, shit information, bullshitting, and always saying the answer to Trump is *even more* bullshit.
+
+* "Russia-watcher Catherine Fitzpatrick, who documents Kremlin disinformation for InterpreterMag . com, says just as Moscow uses vague Internet laws to encourage self-censorship, trolls inhibit informed debate by using **crude dialogue to change "the climate of discussion."** "If you show up at The Washington Post or New Republic sites, where there's an article that's critical of Russia, and you see that **there are 200 comments that sound like they were written by 12-year-olds**, then you just don't bother to comment," she says.  "You don't participate. It's a way of just **driving discussion away** completely," she adds. "Those **kinds of tactics are meant to stop democratic debate**, and they work." - **year 2014** https://www.theatlantic.com/international/archive/2014/08/the-kremlins-troll-army/375932/
