@@ -137,3 +137,14 @@ https://old.reddit.com/r/sports/comments/1qlm0jb/german_official_calls_for_world
 Twitter-length short message. Highly upvoted. *Give up on goodness*. Be adjusted to the shit.
 
 * "There are certain things in our nation and in the world which I am proud to be maladjusted and which I hope all **men of good-will** will be maladjusted until the good societies realize" - Western **Michigan** University (**18 December 1963**)
+
+https://old.reddit.com/r/sports/comments/1qlm0jb/german_official_calls_for_world_cup_boycott_talks/o1fayau/
+
+10-month Reddit account. Always more satire, always more Truth Social manipulation of minds. ANYTHING but turn to nonfiction books by Jen Senko and Dr. Bandy X Lee on the Reddit free-time spare-time burning machine site.
+
+https://old.reddit.com/r/sports/comments/1qlm0jb/german_official_calls_for_world_cup_boycott_talks/o1fc7hi/
+
+Since we didn't prevent World War One with chemical warfare, we shouldn't try to prevent nuclear or drone warfare or any new more advanced weapon systems warfare. Because we tried once, give up! Twitter-length popular message. Reddit January 2026 is a training ground to *give in* to logic-think that once the evil bit of logic gets set to "on", stick with team evil, stick with team MAGA sports FIFA Award logic.
+
+* Yes, I'm repeating. https://bsky.app/hashtag/RepeatingRepeater see my HashTag. "There are certain things in our nation and in the world which I am proud to be maladjusted and which I hope all **men of good-will** will be maladjusted until the good **societies realize**" - Western **Michigan** University (**18 December 1963**)
+
