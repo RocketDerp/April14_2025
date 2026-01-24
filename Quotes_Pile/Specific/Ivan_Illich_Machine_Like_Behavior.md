@@ -1,0 +1,2 @@
+
+“The machine-like behavior of people chained to electronics constitutes a degradation of their well-being and of their dignity which, for most people in the long run, becomes intolerable. Observations of the sickening effect of programmed environments show that people in them become indolent, impotent, narcissistic and apolitical. The political process breaks down because people cease to be able to govern themselves; they demand to be managed.”― Ivan Illich
