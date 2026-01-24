@@ -120,3 +120,14 @@ If Reddit society cared about the future of USA (goodness), adult education of m
 
 The whole game of mocking is a corrupt sport. But all people car about is being on a specific team of mocking other teams of mockery. Surkov won. The technique won. Mocking and hate are prized all across the USA in year 2026. It was not this way before year 2013, hate wasn't prized and promoted everywhere. MLK Jr's hate education and understandings have been erased from concern by Putin's Saint Petersburg Internet Research Agency since march 2013. Again: Surkov won. https://www.youtube.com/watch?v=5Au332OG-M4
 
+https://old.reddit.com/r/sports/comments/1qlm0jb/german_official_calls_for_world_cup_boycott_talks/o1f21su/
+
+FIFA world cup. Billionaires exploiting the poor people with media systems. We could all go down to the local park and watch children interact and get exercise, but everyone wants to sit in a seat and watch men earn millions of dollars per hour with an army of medical doctors - and we sell that to our children, FIFA branding video games and indoctrination at age 3. Religion of year 635 Mohammad's Quran isn't the newest religion... it's billionaire players. The grooming system of sexual icons for images / video / stadiums / seating.
+
+Why don't we have the strongest and most able athletic men in the world fly city to city and build houses for the homeless and build hospitals and build schools. Do the kind of things the Malala foundation supports? https://Malala.org/leadership-council
+
+Why can't we be happy that a person who has shit food can have a team of men fly in and help sort out the education, social, poverty problems? That would make me feel joy and goodness. Instead, we get men who play on a rectangle FIFA game. Don't give me the fucking bullshit that we can have both. We need to solve the poverty and hate problems NOW! Trump is the PROOF, Musk is the PROOF, "FIFA Peace Award #1 Trump" is the PROOF it needs to be YESTERDAY NOW!!!
+
+* "There are certain things in our nation and in the world which I am proud to be maladjusted and which I hope all **men of good-will** will be maladjusted until the good societies realize — I say very honestly that I never intend to become adjusted to — segregation and discrimination. I never intend to become adjusted to religious bigotry. I never intend to adjust myself to **economic conditions that will take necessities from the many to give luxuries to the few**. I never intend to adjust myself to the madness of militarism" - "Social Justice and the Emerging New Age" address at the Herman W. Read Fieldhouse, Western **Michigan** University (**18 December 1963**)
+
+OPERA_A sports stars should be traveling city to city where needed to solve poverty, we can cheer that on! Team Earth, Team Humanity! Team EVERYONE! https://www.youtube.com/watch?v=cOeKidp-iWo 50,677,757 views October 15, 2012
