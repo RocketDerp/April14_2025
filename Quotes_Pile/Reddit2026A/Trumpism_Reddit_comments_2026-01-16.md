@@ -2139,4 +2139,12 @@ I.C.E. image fandom wants more guns on the street, calling for more violence. Ju
 
 Anything but turn to calm book teaching about "cult deprogramming". Anything but turn to nonfiction book learning from Dr Bandy X Lee **since fucking October 3, 2017** show when Reddit put nearly the effort into mental health and education as people put into gun stroking and gun worship. Face your meme addictions and face Russian information warfare with EYES WIDE OPEN to Putin's Internet Research Agency since March 2013.
 
+https://old.reddit.com/r/pics/comments/1qlw39u/alex_pretti_the_man_murdered_today_by_ice_agents/o1hhin0/
 
+https://old.reddit.com/r/pics/comments/1qlw39u/alex_pretti_the_man_murdered_today_by_ice_agents/o1hbva5/
+
+https://old.reddit.com/r/pics/comments/1qlw39u/alex_pretti_the_man_murdered_today_by_ice_agents/o1h9kl4/
+
+https://old.reddit.com/r/pics/comments/1qlw39u/alex_pretti_the_man_murdered_today_by_ice_agents/o1ha3cc/
+
+Conservative vs. Liberal brainrot. Rush to media. Fiction vs. non-fiction is the stronger concern.
