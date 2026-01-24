@@ -6,4 +6,4 @@ He insisted that he will “bomb the shit out of ISIS” and order our soldiers 
 
 In the clinical assessment of such frightening characteristics, why would DT admire grotesque tyrants while never praising our own past presidents"
 
-― Bandy X Lee, The Dangerous Case of Donald Trump: 27 Psychiatrists and Mental Health Experts Assess a President. October 3, 2017. Page ??.
+― Bandy X Lee, The Dangerous Case of Donald Trump: 27 Psychiatrists and Mental Health Experts Assess a President. October 3, 2017. Page 12. https://bookreadfree.com/518684/12738168
