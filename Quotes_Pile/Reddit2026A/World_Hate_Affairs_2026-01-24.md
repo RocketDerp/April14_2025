@@ -165,3 +165,10 @@ The twitter-length media message tweet-thinking comment. Mockery, mocking, celeb
 Media addiction is wrecking the world. Children are raised to praise snark and comedic fiction storytelling above all else. Every intelligent person labors away to create tiny-short mind-fucking language and content to game and manipulate their fellow person on media systems! Reddit is the center of bringing trash from all over the world to normalize Trump / MAGA / Fox News Murdoch / Musk Twitter / etc.
 
 * "Finding the occasional straw of truth awash in a great ocean of confusion and bamboozle requires vigilance, dedication and courage. But if we don’t practice these tough habits of thought, we cannot hope to solve the truly serious problems that face us and we risk becoming a nation of suckers" ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995, page 38
+
+https://old.reddit.com/r/worldnews/comments/1qloc3a/trump_threatens_100_tariffs_on_all_canadian_goods/o1fjh1z/
+
+"LOL" at Trump the entertainer / actor, constantly by the high-speed TCP/IP messaging crowds. The fanbase of Trump antics and messaging! Trump says something, the crowd on Reddit is waiting for the next "Q Drop" Trump shit. Shit-posting cruisers who prize Trump's bullshit. Well adjusted people to Trump's crap information.
+
+* “The poet, the artist, the sleuth—whoever sharpens our perception tends to be antisocial; rarely “well adjusted,” he cannot go along with currents and trends.”
+— Marshall McLuhan. “The Medium is the Massage: An Inventory of Effects” by media analyst Marshall McLuhan and graphic designer Quentin Fiore, and coordinated by Jerome Agel. It was published in March 1967 https://www.TheMediumIsTheMassAge.com/the-book/
