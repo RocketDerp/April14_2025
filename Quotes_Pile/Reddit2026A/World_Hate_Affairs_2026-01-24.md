@@ -67,3 +67,8 @@ Leftist vs. right, left vs. right, is a kind of brainrot thinking. it all starts
 In the case of USA, it is more along these lines: children are raised to memorize Fox News HDTV programming and deny medical science learning and health care compassion for others.
 
 Social media { https://autistics.life/@RoundSparrow/115949891597057493 https://bsky.app/profile/roundsparrow.bsky.social/post/3md653nukrc2k }
+
+https://old.reddit.com/r/worldnews/comments/1qlem6t/china_no_longer_pentagons_top_security_priority/o1ehxdu/
+
+No, we are no longer competing or nonfiction books at the public library. Twitter-length commenting is the competition the USA society choose since year 2013. Competing for Reddit low-effort messages. Science learning was considered boring and tedious. Malala was the last great spiritual leader, and she didn't have a chance against Reddit memeland. Study the Malala vs. Trump timeline of year 2012: https://github.com/RocketDerp/April14_2025/blob/main/PostMalala/Marriage/World_Malala_Timeline_Year_2012.md ... Men vs. women. Dr. Bandy X Lee vs. Joe Rogan. Joe Rogan won. 
+
