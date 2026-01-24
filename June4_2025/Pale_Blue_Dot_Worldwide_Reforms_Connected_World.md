@@ -1,10 +1,10 @@
 June 4, 2025
 
-# Bansky Was Right
+# Banksy Was Right
 
 Advertising and marketing are the established manipulating the unestablished. Similar to organized religions in the past.
 
-# Compartive Mythology ++
+# Comparative Mythology ++
 
 1. Comparative Mythology
 2. Edward Bernays, Public Relations
@@ -14,16 +14,16 @@ Advertising and marketing are the established manipulating the unestablished. Si
 6. Not over-funding popular arts, spillover
 7. Music Cartels are like Religion cartels, copyright vs. addiction
 8. Copyright across every industry
-9. Ways fair-use is already abused (people on YouTube use clips for exageration, not to parody them, but to ride the coat-tail of their popularity or produciton values)
+9. Ways fair-use is already abused (people on YouTube use familiar clips for exaggeration, not to parody them, but to ride the coat-tail of their popularity or production values)
 
-I'm not advocating for more restrictions.
+I'm not advocating for more restrictions. Much more about understanding and self-awareness.
 
 Internet coin for tipping, fair use, and full accounting
 Treating well and rewarding those who do any part of the labor
 
 # Manipulators, Liars, Sneaks
 
-Agressive salespeople, creating many variations for profit, etc.
+Aggressive salespeople, creating many variations for profit, etc.
 
 # Over-indexing is good
 
@@ -34,9 +34,9 @@ Every association, every idea, linked.
 When I built social media systems computer teaching was still new, so we had novice / advanced mode.
 Social media radio (ham radio) even had novice and advanced levels for channel access, read-only vs. publishing
 
-Old reddit vs. new sitll survives for many yeaars
+Old reddit vs. new still survives for many years
 
-Simple English wikipedia integreated with Standard
+Simple English Wikipedia integrated with Standard
 
 1. Too person filtered out, like a bunch of detail about a cottage business that Wikipedia would normally not promote
 2. TLDR / ELI4 / ELI8 / in a hurry filtering.
@@ -53,7 +53,7 @@ Can we have expensive NASA like projects without having too much power or wealth
 
 World Wide Communism. Pale Blue Dot.
 
-Carl Marx Communism did not account for technology advance.
+Carl Marx Communism did not account for technology advancement to this degree.
 
 Star Trek Communism.
 
