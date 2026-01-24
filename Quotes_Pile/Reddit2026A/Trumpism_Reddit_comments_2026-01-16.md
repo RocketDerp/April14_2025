@@ -2205,5 +2205,11 @@ https://old.reddit.com/r/CringeTikToks/comments/1qlvu8c/closeup_view_of_ice_exec
 
 Hyper Empathy. https://en.wikipedia.org/wiki/Hyper-empathy - opposite of anti-empathy that Elon Musk wants from Reddit tech lovers, machine additions to video gaming machines that billionaires cultivate.
 
+https://old.reddit.com/r/CringeTikToks/comments/1qlvu8c/closeup_view_of_ice_executing_a_man_today_in/o1h9w35/
 
+New Reddit account.
+
+https://old.reddit.com/r/CringeTikToks/comments/1qlvu8c/closeup_view_of_ice_executing_a_man_today_in/o1h9ntg/
+
+Kremlin and White House war against reality. War against nonfiction.
 
