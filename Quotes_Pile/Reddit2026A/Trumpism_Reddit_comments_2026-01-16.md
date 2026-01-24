@@ -2157,3 +2157,9 @@ Only the "action scenes" of home cities; Since March 2013, the nonfiction intell
 
 So fucking sickening to watch gun worship an gun attraction and old man sex acts on private jets be the topics people stand up for. Why is education and teaching serious and important topics to ADULTS, critical learning like Fox News HDTV hyper-reality cult audience problems, Jen Senko's nonfiction film and book, ignored? It is only when it becomes a high-action dramatic video game in the streets with everyone holding camera-phones do people get so high-energy and motivated.
 
+https://old.reddit.com/r/law/comments/1qlvdx6/new_video_of_124_ice_shooting_shows_victim_had/o1h5rry/
+
+Every fucking day of my life has gotten worse living in USA since year 2013 build-up to Feb 2014 Ukraine War and the Russian active measures against Reddit audience hearts and minds. The bullshit and hate training camp that Kremlin built on Reddit social. Kremlin hate camp https://en.wikipedia.org/wiki/R/The_Donald subreddit /r/The_Donald that turns so many hearts and minds to be anti-intellectual, anti-goodness, anti-nonfiction, pro-hate, pro-dehumanization, anti-humanism. Worse, day after day, hour after hour, every day worse than the previous.
+
+* https://www.youtube.com/watch?v=09maaUaRT4M&t=743s "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL"
+
