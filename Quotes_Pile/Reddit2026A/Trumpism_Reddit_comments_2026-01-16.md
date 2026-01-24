@@ -2285,3 +2285,9 @@ https://old.reddit.com/r/MurderedByWords/comments/1qlxt9w/when_it_comes_to_bootl
 https://old.reddit.com/r/MurderedByWords/comments/1qlxt9w/when_it_comes_to_bootlicking_republicans_sure_are/o1hx5kr/
 
 Message ends with "hate forever" street gang messaging. That anti-empathy (Elon Musk), anti-compassion, anti-Malala, anti-MLK Jr, anti-forgiveness is the important programming for Reddit minds.
+
+https://old.reddit.com/r/videos/comments/1qlr6sn/i_dont_think_maga_understands_how_much_people/o1gfqax/
+
+Liberal vs. conservative brain-rot. The Russian information war since March 2013 is about fiction vs. nonfiction. Surkov won. Fiction wins. Trump is a great entertaining fiction storytelling. Reddit audiences hang on every photograph and speech of Trump. Fiction is far more popular.
+
+Serious nonfiction like Dr. Bandy X Lee's book and leadership since year 2017 - unpopular. **Donald Trump bullshit-posting bullshit-commenting, very popular** with shit-commenting shit-posting Reddit fandom. Shit sells, shit makes money, bullshit is popular. Nonfiction is ignored and blocked.
