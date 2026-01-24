@@ -2213,3 +2213,7 @@ https://old.reddit.com/r/CringeTikToks/comments/1qlvu8c/closeup_view_of_ice_exec
 
 Kremlin and White House war against reality. War against nonfiction.
 
+https://old.reddit.com/r/CringeTikToks/comments/1qlvu8c/closeup_view_of_ice_executing_a_man_today_in/o1hacyw/
+
+Dr. Martin Luther King Jr Day was Monday. Reddit tech addicts love violence action, anything but quote and teach Dr. King's doctorate ideas and thinking. Learning from Malala and joining against the Taliban with girls education. Nope, gun-worship USA parenting on Reddit.
+
