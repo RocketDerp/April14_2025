@@ -2279,3 +2279,9 @@ Street gang signs. The Simpsons image of the posting is Marge saying "shoot ice"
 Reddit culture is a mass dehumanization training camp that has avoided Jen Senko's film since year 2015 https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad and avoided Dr. Bandy X Lee's October 3, 2017 nonfiction book. https://en.wikipedia.org/wiki/Bandy_X._Lee Because fiction addiction rules minds in MAGA USA / Truth Social fiction storytelling nation.
 
 https://old.reddit.com/r/simpsonsshitposting/comments/1qlsry1/no_not_a_smile/o1gkzi2/
+
+https://old.reddit.com/r/MurderedByWords/comments/1qlxt9w/when_it_comes_to_bootlicking_republicans_sure_are/o1hrqsl/
+
+https://old.reddit.com/r/MurderedByWords/comments/1qlxt9w/when_it_comes_to_bootlicking_republicans_sure_are/o1hx5kr/
+
+Message ends with "hate forever" street gang messaging. That anti-empathy (Elon Musk), anti-compassion, anti-Malala, anti-MLK Jr, anti-forgiveness is the important programming for Reddit minds.
