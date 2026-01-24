@@ -2011,3 +2011,22 @@ Saturday, weekend, there was a big uprising in Minneapolis / Saint Paul yesterda
 Reddit itself is a cult o COMMENTING. A media cult of commenting ABOUT TRUMP. Just like you are commenting about any other television star. Oh a Reality TV star is taking a trip to Co Europe, discuss the trip. No, democracy is WE THE PEOPLE, and Trump has become a WORLD WIDE THREAT. And Reddit is "the media", and why are "The Media" not republishing the to 20 reasons Trump should be removed from office? Top 20 reasons Trump is dangerous and a threat to all life on Earth?
 
 There is some mental crowd conformity at play of people being unwilling to stop their routine commenting and focus. "Epstein List" people made a topic on Reddit, but that isn't calling for REMOVAL of Trump, that's calling for a list of information.
+
+https://old.reddit.com/r/europe/comments/1qlhlnn/repatriate_the_gold_german_economists_advise/o1e90dk/
+
+Fox News media
+
+https://old.reddit.com/r/europe/comments/1qlhlnn/repatriate_the_gold_german_economists_advise/o1eco3x/
+
+"Funny" (yes, "odd", but everything is entertainment to Reddit audience), "Russian"
+
+https://old.reddit.com/r/europe/comments/1qlhlnn/repatriate_the_gold_german_economists_advise/o1ebbc8/
+
+Why are Americans not following the leads of intellectual women who educate the general public? Dr. Bandy X Lee, Jen Senko... Both on the topic of MAGA mental health of men / males. Jen Senko on the mental health of older men. Dr. Bandy X Lee on the mental health of MAGA cult of Trump being dangerous... why is it social media users won't focus **seriously** on organized education about mental health?
+
+The answer that seems to be the pattern: Mental health is used only as insulting and mocking of Trump and MAGA. When social media users use terms like "cult" or "cult 45" it's just playtime, joke-time, humor-time at the comedy "Stephen Colbert" is "The Media" venues. When mental health crisis is widespread and more than joke-washing and meme content and a serious topic - people with access to the Internet blow their mind out and can't find nonfiction serious books on group behaviors.
+
+* “But it is much later in the game now, and ignorance of the score is inexcusable. To be **unaware that a technology** [Reddit / Bluesky] comes equipped with a program for social change, to maintain that technology is neutral, to make the assumption that technology is always a friend to culture is, at this late hour, stupidity plain and simple.”
+― Neil Postman, Amusing Ourselves to Death: [Public Discourse in the Age of Show Business, year 1985. page 157.](https://books.google.com/books?id=zGkhbPEjkRoC&pg=RA1-PA157&dq=%22equipped+with+a+program+for+social+change,+to+maintain+that+technology+is+neutral,+to+make+the+assumption+that+technology+is+always+a+friend+to+culture+is%22&hl=en&newbks=1&newbks_redir=1&sa=X)
+
+
