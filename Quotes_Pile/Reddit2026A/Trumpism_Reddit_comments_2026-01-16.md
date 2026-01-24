@@ -2220,3 +2220,12 @@ Dr. Martin Luther King Jr Day was Monday. Reddit tech addicts love violence acti
 https://old.reddit.com/r/CringeTikToks/comments/1qlvu8c/closeup_view_of_ice_executing_a_man_today_in/o1h97ba/
 
 Replies to this comment are pro-ignorance, "nothing can be done", back to amusement memes as usual. Sports games and other anti-intellectual content consumption. Need to learn more basketball and football studies? Some slight variation of scores to analyze? Anything to avoid listening and teaching Dr. Bandy X. Lee's October 3, 2017 nonfiction book with real learning inside.
+
+https://old.reddit.com/r/CringeTikToks/comments/1qlvu8c/closeup_view_of_ice_executing_a_man_today_in/o1h945s/
+
+https://old.reddit.com/r/CringeTikToks/comments/1qlvu8c/closeup_view_of_ice_executing_a_man_today_in/o1h9gn8/
+
+What's happening is Russia won the cold war. Russia mastered the monomyth storytelling pattern. Reddit audience has abandoned nonfiction learning about learning itself. Marshall McLuhan and Neil Postman teachings have been rejected by the Trump image fandom. Surkov won.
+
+
+
