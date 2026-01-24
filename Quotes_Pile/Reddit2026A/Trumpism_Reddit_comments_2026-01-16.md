@@ -2264,3 +2264,7 @@ https://old.reddit.com/r/nursing/comments/1qlxa3p/fuck_ice_fuck_border_patrol_fu
 
 Trump is a leader of hate. People following hate leadership. A dehumanizing hate-prizing nation. Tech lovers of high-speed messaging hate imperfect human persons and love social machine systems.
 
+https://old.reddit.com/r/nursing/comments/1qlxa3p/fuck_ice_fuck_border_patrol_fuck_greg_bovino_fuck/o1hsl6f/
+
+It isn't just politics that people justify hate for. It's subreddit fandoms. It's filter-bubble egoism. People justify killing, hate, promoting hate, promoting deportation, promoting modern digital book burning, promoting dehumanization - all in the name of hate thy enemy, hate those who challenge egoism. Don't view fiction stories the same way, people want to promote hate.
+
