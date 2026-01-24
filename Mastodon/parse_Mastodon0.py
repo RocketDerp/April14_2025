@@ -1,11 +1,17 @@
+import sys
 import json
 import re
 from html import unescape
+from datetime import date
+
 
 # Process Mastodon save file for GitHub Markdown output
+# this app assumes input data is in date order, oldest to newest
 
 # global vars
 postcount = 0
+out_file_count = 0
+stop_after = 500
 
 
 def to_github_markdown(html_content):
@@ -47,6 +53,8 @@ def clean_html(raw_html):
 
 def parse_mastodon_export(file_path):
     global postcount
+    global stop_after
+    global out_file_count
 
     try:
         with open(file_path, 'r', encoding='utf-8') as f:
@@ -54,13 +62,35 @@ def parse_mastodon_export(file_path):
 
         # Handle both single objects and full outbox lists
         items = data.get('orderedItems', [data]) if isinstance(data, dict) else []
+        previous_published = "1970-01-01"
+        out_batch_count = 0
+        output_filename = None
 
         for item in items:
             postcount += 1
             # Mastodon posts are usually 'Create' activities containing a 'Note'
             obj = item.get('object', {})
             if isinstance(obj, dict):
+                # this is a string, not an intelligent ate object
                 published = obj.get('published', 'Unknown Date')
+                
+                # is thi a month crossing?
+                # 1970-01-01-
+                if published[:8] == previous_published[:8]:
+                    # same year, same month
+                    out_batch_count += 1
+                else:
+                    # detected change of month
+                    output_filename = f"Roundsparrow_{published[:7]}.md"
+                    print("*********************   \n")
+                    out_file_count += 1
+                    if out_file_count > 1:
+                        print(f"*** previous batch items {out_batch_count}   \n")
+                    print(f"*** new file {output_filename} file count: {out_file_count}  \n")
+                    out_batch_count = 1
+                    
+                previous_published = published
+                
                 url = obj.get('url', 'No URL')
                 content = clean_html(obj.get('content', ''))
 
@@ -69,12 +99,19 @@ def parse_mastodon_export(file_path):
                 print(f"URL: {url}   ")
                 # print(f"Content: {content}\n")
                 print(to_github_markdown(obj.get('content', '')))
-
+            else:
+                print ("if instance failed");
+                
+            if postcount >= stop_after:
+                print(f"stop on {postcount}")
+                print(f"file count {out_file_count} last batch count {out_batch_count}")
+                sys.exit(1)                
 
     except FileNotFoundError:
         print("Error: File not found.")
     except json.JSONDecodeError:
         print("Error: Failed to decode JSON.")
+
 
 if __name__ == "__main__":
     # Ensure your export file is named 'outbox.json' or update the path here
