@@ -49,3 +49,16 @@ https://old.reddit.com/r/worldnews/comments/1qlem6t/china_no_longer_pentagons_to
 https://old.reddit.com/r/worldnews/comments/1qlem6t/china_no_longer_pentagons_top_security_priority/o1elz9e/
 
 4-word tiny-short Tweet-think comment. "Russia", "Putin". Anything to avoid off-Reddit nonfiction learning for meme addictions.
+
+https://old.reddit.com/r/worldnews/comments/1qlem6t/china_no_longer_pentagons_top_security_priority/o1e0us1/
+
+<img width="1013" height="957" alt="image" src="https://github.com/user-attachments/assets/1b84bde5-3fd2-48bf-b225-32eb00ae29d1" />
+
+
+It is not a "hidden agenda", the Reddit audience is not engaging with reality itself. Surkov monomyth won. Mythology storytelling is what Reddit favors, not real understanding or comprehension. The hate for humanism is not hidden or concealed. It is not hard to see the constant fandom of Trump images on Reddit, the addiction to celebrity worship of Trump is not hidden. The time pent joking and laughing at Trump on Reddit is what people desire to do with their time, their source of entertainment. Cult of Trump photographs, Reddit is center of it all. Addicts to fiction, always avoiding nonfiction. Such as:
+
+* From September 9, 2014 - 11 years 4 months and some days ago, which is **more than a decade** - we could have kept repeating it and defeated Putin's takeover of USA hearts and minds: https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ "Russia and the Menace of Unreality: How Vladimir Putin is revolutionizing information warfare. By Peter Pomerantsev. At the NATO summit in Wales last week, General Philip Breedlove, the military alliance’s top commander, made a bold declaration. Russia, he said, is waging “the **most amazing information warfare blitzkrieg we have ever seen in the history of information warfare.**” It was something of an underestimation. The new Russia doesn’t just deal in the petty disinformation, forgeries, lies, leaks, and cyber-sabotage usually associated with information warfare. It reinvents reality, **creating mass hallucinations** that then translate into political action."
+
+Leftist vs. right, left vs. right, is a kind of brainrot thinking. it all starts to make much more sense how Afghanistan Taliban defeated USA after two decades if you study: **fiction vs. nonfiction**. Malala from Swat Valley Pakistan has a great book on education and Radio Mullah. 
+
+Social media { https://autistics.life/@RoundSparrow/115949891597057493 https://bsky.app/profile/roundsparrow.bsky.social/post/3md653nukrc2k }
