@@ -2093,3 +2093,9 @@ https://old.reddit.com/r/Minneapolis/comments/1qlpzu8/another_ice_murder_in_fron
 
 internet gangs, gang warfare, urban and suburban mind-fucking on Reddit.
 
+https://old.reddit.com/r/Minneapolis/comments/1qlpzu8/another_ice_murder_in_front_of_glam_doll_donuts/o1fv4jb/
+
+Us and them programming for mind-fucking USA. Tiny-short Tweet-length shit-commenting. Shit-posting worshipers. ICE fandom, fans of I.C.E. for the video action and team sports mentality. ANYTHING and EVERYTHING to consume free time and spare time commenting on the sports mentality play-by-play of I.C.E. instead of realizing an entertainment addiction crowd of video gamers is Reddit media culture.
+
+ANYTHING to avoid following a woman: Dr. Bandy X Lee's nonfiction book from October 3, 2017 about mental health of I.C.E. / M.A.G.A. / Fox News Audience, White House Trump.... "Dangerous" right in the title. But action video addicts aren't here to END THE SHOW, they are fandoms of action images. Live streaming video mind attraction.
+
