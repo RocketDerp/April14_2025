@@ -1969,3 +1969,11 @@ https://old.reddit.com/r/LeopardsAteMyFace/comments/1ql2r81/after_giving_republi
 
 Waiting for more self-harm out of USA. But what is NOT happening is being active in promoting Dr. Bandy X Lee on Reddit commenting to deal with the cult of self-harm that MAGA is. Fiction addictions are not good for anyone, MAGA self-harm is not a win for any person on Earth. It is not a win for Putin, as being gullible and uneducated by Dr. Bandy X Lee harms the whole world. People need to stop waiting and do an internet uprising to teach mental health of mob mentality. https://www.ScientificAmerican.com/article/the-shared-psychosis-of-donald-trump-and-his-loyalists/
 
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1ql2r81/after_giving_republicans_a_majority_in_every/o1bgk7b/
+
+<img width="1021" height="1181" alt="Screenshot from 2026-01-23 17-53-41" src="https://github.com/user-attachments/assets/57accf30-ce2b-42ec-9e2c-9068c8e2ef84" />
+
+this message and replies { "jokes", "funny", "memes" }. How Surkov and Internet Research Agency won since March 2013.
+
+Social post { https://autistics.life/@RoundSparrow/115947352769317667 https://bsky.app/profile/roundsparrow.bsky.social/post/3md4yzfdvp22j }
