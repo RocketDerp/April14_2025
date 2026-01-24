@@ -2240,3 +2240,7 @@ https://old.reddit.com/r/Fauxmoi/comments/1qlww10/the_man_ice_agents_murdered_th
 https://old.reddit.com/r/BikiniBottomTwitter/comments/1qluiuy/removed_by_reddit/o1gxb9l/
 
 Remove by Reddit owners after hitting front page of /r/All - and this comment... yes, failing intelligence test. Why isn't anyone using Google to find Dr. Bandy X Lee about mental health crisis of MAGA and ICE...
+
+https://old.reddit.com/r/BikiniBottomTwitter/comments/1qluiuy/removed_by_reddit/o1gxyqk/
+
+"Fucked-up place"
