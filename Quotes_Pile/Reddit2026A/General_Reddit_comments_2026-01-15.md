@@ -1525,3 +1525,7 @@ LOOK: Desire, you want EVIDENCE of the bamboozle killing your neighbors at the h
 Putin fucking won, and Putin is not even in control of the mind-fuck monomyth patterns they released since March 2013! The whole world better fucking wake up to James Joyce's 1923 Finn's Hotel!
 
 * www.LazyWake.com "Finnegans Wake is the greatest guidebook to media study ever fashioned by man." - Marshall McLuhan, Newsweek Magazine, p.56, February 28, 1966
+
+https://old.reddit.com/r/funny/comments/1qlncod/this_is_who_you_are_arguing_with_online_all_day/o1fb3wz/
+
+man-made. Popular. Toxic popularity. Pop Culture. Please see also: https://GitHub.com/RocketDerp/April14_2025/blob/main/Grim_Blunt/Donald_Trump_SuperStar.md#king-of-pop
