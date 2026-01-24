@@ -1529,3 +1529,8 @@ Putin fucking won, and Putin is not even in control of the mind-fuck monomyth pa
 https://old.reddit.com/r/funny/comments/1qlncod/this_is_who_you_are_arguing_with_online_all_day/o1fb3wz/
 
 man-made. Popular. Toxic popularity. Pop Culture. Please see also: https://GitHub.com/RocketDerp/April14_2025/blob/main/Grim_Blunt/Donald_Trump_SuperStar.md#king-of-pop
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1qlqkl8/help_me_please_peter/o1fzx8d/
+
+Media ecology, PTSD from monomyth story pattern. Audience CPTSD like Truth Social MAGA PTSD from Fox News monomyth, Internet Research Agency Reddit filtration.
+
