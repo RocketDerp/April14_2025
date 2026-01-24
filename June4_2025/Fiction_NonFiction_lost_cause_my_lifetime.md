@@ -14,7 +14,7 @@ Adding in domestic USA trends:
 
 3. Rick Roderick was right in 1993 about technology. As was Neil Postman in 1992 about technology.
 
-4. ChaptGPT / generative visual. Neil Postman emphasis on visual medium...
+4. ChatGPT / generative visual. Neil Postman emphasis on visual medium...
 
 5. Elon Musk leapfrogging everyone and taking over Twitter, which gets copied to every other media platform / news media site.
 
@@ -35,4 +35,4 @@ Even if they don't live it, people will consume rich people living it. Admire th
 
 &nbsp;
 
-NOTE: VERY poorly written, sratch pad, not complete in any way shape or form.
+NOTE: VERY poorly written, scratch pad, not complete in any way shape or form.
