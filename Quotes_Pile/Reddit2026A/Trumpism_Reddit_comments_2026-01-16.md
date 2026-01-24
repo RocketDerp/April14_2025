@@ -2133,3 +2133,10 @@ https://old.reddit.com/r/news/comments/1qlty1z/man_shot_by_federal_agents_in_min
 
 "reality upsets". Denial of reality abounds on Reddit.
 
+https://old.reddit.com/r/news/comments/1qlty1z/man_shot_by_federal_agents_in_minneapolis_has/o1gs2ov/
+
+I.C.E. image fandom wants more guns on the street, calling for more violence. Just like Russia against Ukraine or Israel against Palestine. Cheering on more guns, more weapons, more exercise of filmed violence. Trump leads with violence and Reddit audience wants to follow Trump's leadership. This is the Trump fanbase, one of many across the nation.
+
+Anything but turn to calm book teaching about "cult deprogramming". Anything but turn to nonfiction book learning from Dr Bandy X Lee **since fucking October 3, 2017** show when Reddit put nearly the effort into mental health and education as people put into gun stroking and gun worship. Face your meme addictions and face Russian information warfare with EYES WIDE OPEN to Putin's Internet Research Agency since March 2013.
+
+
