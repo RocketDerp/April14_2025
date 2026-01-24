@@ -45,3 +45,7 @@ https://old.reddit.com/r/worldnews/comments/1qlem6t/china_no_longer_pentagons_to
 https://old.reddit.com/r/worldnews/comments/1qlem6t/china_no_longer_pentagons_top_security_priority/o1e2bfh/
 
 "one man", brought USA down. Messaging on Reddit fandom of Trump: Ignore Rupert Murdoch media addiction. Ignore the Saint Petersburg Internet Research Agency invasion of Reddit community since March 2013 and the complete avoidance of an "Internet Uprising". See: https://github.com/RocketDerp/April14_2025/blob/main/Grim_Blunt/Pop/Social_Media_Society_did_not.md
+
+https://old.reddit.com/r/worldnews/comments/1qlem6t/china_no_longer_pentagons_top_security_priority/o1elz9e/
+
+4-word tiny-short Tweet-think comment. "Russia", "Putin". Anything to avoid off-Reddit nonfiction learning for meme addictions.
