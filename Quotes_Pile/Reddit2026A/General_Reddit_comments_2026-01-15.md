@@ -1456,3 +1456,7 @@ https://old.reddit.com/r/news/comments/1qkya2l/rejecting_decades_of_science_vacc
 https://old.reddit.com/r/news/comments/1qkya2l/rejecting_decades_of_science_vaccine_panel_chair/o1a5ler/
 
 https://old.reddit.com/r/news/comments/1qkya2l/rejecting_decades_of_science_vaccine_panel_chair/o1adrys/
+
+https://old.reddit.com/r/okbuddycinephile/comments/1ql3caz/favorite_cinephile_who_is_a_coward_that_deletes/o1bi6wv/
+
+That's a thing Michael Moore emphasized about Donald Trump in his film. Trump is battle hardened about being in front of the camera, like no other.
