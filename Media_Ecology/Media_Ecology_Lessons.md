@@ -1678,3 +1678,12 @@ Library of a Viking
 
 * “a peek-a-boo world, where now this event, now that, pops into view for a moment, then vanishes again. It is an improbable world. It is a world in which the idea of human progress, as Bacon expressed it, has been replaced by the idea of technological progress. The aim is not to reduce ignorance, superstition, and suffering but to accommodate ourselves to the requirements of new technologies. We tell ourselves, of course, that such accommodations will lead to a better life, but that is only the rhetorical residue of a vanishing technocracy. We are a culture consuming itself with information, and many of us do not even wonder how to control the process. We proceed under the assumption that information is our friend, believing that cultures may suffer grievously from a lack of information, which, of course, they do. It is only now beginning to be understood that cultures may also suffer grievously from information glut, information without meaning, information without control mechanisms.”
 ― Neil Postman, Technopoly: The Surrender of Culture to Technology. Year 1992
+
+&nbsp;
+
+# Favorite Content
+
+If your favorite style of book or film or song is popular, people will make more of the same to earn money. There is both an economic incentive an popularity inventive for authors / music bands / content creators to ride the wave of popularity / jump on the same bandwagons.
+
+https://old.reddit.com/r/CuratedTumblr/comments/1ql5m45/dont_just_read_one_other_book/
+
