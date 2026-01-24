@@ -2255,3 +2255,12 @@ Age 43. As for the title of the Reddit. People are not pretending as much as the
 https://old.reddit.com/r/TikTokCringe/comments/1qlw818/this_is_sick_and_some_people_need_to_stop/o1hgijv/
 
 This is not rescuing, educating, teaching. There is no call for turning to Dr. Bandy X Lee and rescuing the nation. Just addictions to high-speed message commenting. Social meme addictions. Tiny-short message.
+
+https://old.reddit.com/r/nursing/comments/1qlxa3p/fuck_ice_fuck_border_patrol_fuck_greg_bovino_fuck/o1hmk4g/
+
+https://old.reddit.com/r/nursing/comments/1qlxa3p/fuck_ice_fuck_border_patrol_fuck_greg_bovino_fuck/o1hnlx0/
+
+https://old.reddit.com/r/nursing/comments/1qlxa3p/fuck_ice_fuck_border_patrol_fuck_greg_bovino_fuck/o1hrbjf/
+
+Trump is a leader of hate. People following hate leadership. A dehumanizing hate-prizing nation. Tech lovers of high-speed messaging hate imperfect human persons and love social machine systems.
+
