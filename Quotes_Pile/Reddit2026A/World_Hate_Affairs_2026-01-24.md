@@ -158,3 +158,10 @@ He insisted that he will “bomb the shit out of ISIS” and order our soldiers 
 In the clinical assessment of such frightening characteristics, why would DT admire grotesque tyrants while never praising our own past presidents"   
 From ― Bandy X Lee, The Dangerous Case of Donald Trump: 27 Psychiatrists and Mental Health Experts Assess a President. October 3, 2017. Page 12. https://bookreadfree.com/518684/12738168
 
+https://old.reddit.com/r/worldnews/comments/1qloc3a/trump_threatens_100_tariffs_on_all_canadian_goods/o1fk6pk/
+
+The twitter-length media message tweet-thinking comment. Mockery, mocking, celebration of ignorance (Trump's ignorance being celebrated by Reddit audience as a source of humor and Stephen Colbert style comedy, Jimmy Kimmel style https://www.Today.com/video/jimmy-kimmel-exacts-his-revenge-on-no-show-donald-trump-548574787695 joke-washing Trump as entertainer, Joe Rogan thrilling media engagement). As audiences LOVE Trump content! It drives Reddit!
+
+Media addiction is wrecking the world. Children are raised to praise snark and comedic fiction storytelling above all else. Every intelligent person labors away to create tiny-short mind-fucking language and content to game and manipulate their fellow person on media systems! Reddit is the center of bringing trash from all over the world to normalize Trump / MAGA / Fox News Murdoch / Musk Twitter / etc.
+
+* "Finding the occasional straw of truth awash in a great ocean of confusion and bamboozle requires vigilance, dedication and courage. But if we don’t practice these tough habits of thought, we cannot hope to solve the truly serious problems that face us and we risk becoming a nation of suckers" ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995, page 38
