@@ -2030,3 +2030,7 @@ The answer that seems to be the pattern: Mental health is used only as insulting
 ― Neil Postman, Amusing Ourselves to Death: [Public Discourse in the Age of Show Business, year 1985. page 157.](https://books.google.com/books?id=zGkhbPEjkRoC&pg=RA1-PA157&dq=%22equipped+with+a+program+for+social+change,+to+maintain+that+technology+is+neutral,+to+make+the+assumption+that+technology+is+always+a+friend+to+culture+is%22&hl=en&newbks=1&newbks_redir=1&sa=X)
 
 
+https://old.reddit.com/r/europe/comments/1qlhlnn/repatriate_the_gold_german_economists_advise/o1efpu2/
+
+7-month Reddit account. "LOL", joke-washing, joke-cracking, wise-cracking about Donald Trump. The fandom of Trump that loves and is attracted to media for talking about his sex life and physical body. ANYTHING but be serious and focus on how to fix the fiction fantasy addiction problems of MAGA and White House.
+
