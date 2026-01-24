@@ -2099,3 +2099,12 @@ Us and them programming for mind-fucking USA. Tiny-short Tweet-length shit-comme
 
 ANYTHING to avoid following a woman: Dr. Bandy X Lee's nonfiction book from October 3, 2017 about mental health of I.C.E. / M.A.G.A. / Fox News Audience, White House Trump.... "Dangerous" right in the title. But action video addicts aren't here to END THE SHOW, they are fandoms of action images. Live streaming video mind attraction.
 
+https://old.reddit.com/r/Minneapolis/comments/1qlpzu8/another_ice_murder_in_front_of_glam_doll_donuts/o1fw41z/
+
+<img width="1259" height="460" alt="image" src="https://github.com/user-attachments/assets/fb869aae-52c2-4b7b-b307-ed49771b09da" />
+
+YOUR LEADERS ARE COMPUTERS. YOU ARE FOLLOWING YOUR LEADER: REDDIT DOT COM WEBSITE MESSAGES AND VIDEOS! Why are you not following the humanism leader Dr. Bandy X Lee AWAY from MACHINE-LOGIC of using devices (guns) to solve problems and using nonfiction learning, BOOKS, to FOLLOW GOODNESS!!! Why is Reddit not standing up for mental health professional Dr. Bandy X Lee's informative October 3, 2017 book????
+
+Learn about information warfare, psychological warfare, active measures! LEARN! Surkov won.
+
+OPERA_A Canadian... **You Learn**. https://www.youtube.com/watch?v=GFW-WfuX2Dk - start learning from WOMEN and stop watching men with guns in the street as your primary attraction signal! Stop Reddit shit-posting and shit-commenting and seeking Trump diaper-shit in your brain and listen to Dr. Bandy X Lee's leadership and FOLLOW! 44,267,972 views May 19, 2007 I shared this song video over the Internet to Tunisa and Algeria in Q2 2010 during the Internet WWW Arab Spring!
