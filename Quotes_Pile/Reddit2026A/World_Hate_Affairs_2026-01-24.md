@@ -130,4 +130,10 @@ Why can't we be happy that a person who has shit food can have a team of men fly
 
 * "There are certain things in our nation and in the world which I am proud to be maladjusted and which I hope all **men of good-will** will be maladjusted until the good societies realize — I say very honestly that I never intend to become adjusted to — segregation and discrimination. I never intend to become adjusted to religious bigotry. I never intend to adjust myself to **economic conditions that will take necessities from the many to give luxuries to the few**. I never intend to adjust myself to the madness of militarism" - "Social Justice and the Emerging New Age" address at the Herman W. Read Fieldhouse, Western **Michigan** University (**18 December 1963**)
 
-OPERA_A sports stars should be traveling city to city where needed to solve poverty, we can cheer that on! Team Earth, Team Humanity! Team EVERYONE! https://www.youtube.com/watch?v=cOeKidp-iWo 50,677,757 views October 15, 2012
+OPERA_A The top-athletic strong men who are currently sports stars should be traveling city to city where needed to solve poverty, we can cheer that on! Team Earth, Team Humanity! Team EVERYONE! https://www.youtube.com/watch?v=cOeKidp-iWo 50,677,757 views October 15, 2012
+
+https://old.reddit.com/r/sports/comments/1qlm0jb/german_official_calls_for_world_cup_boycott_talks/o1f123m/
+
+Twitter-length short message. Highly upvoted. *Give up on goodness*. Be adjusted to the shit.
+
+* "There are certain things in our nation and in the world which I am proud to be maladjusted and which I hope all **men of good-will** will be maladjusted until the good societies realize" - Western **Michigan** University (**18 December 1963**)
