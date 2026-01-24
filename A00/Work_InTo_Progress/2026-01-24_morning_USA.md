@@ -9,3 +9,11 @@
 联邦安全局於1995年6月23日根據第633號法令由葉利欽簽署改良完成。法令使得組織相當的獨特，明確的保障組織的秘密行動，以及联邦安全局局長的行使權力。联邦安全局約有8位的副局長，其中包括2位首席副局長、5位部門或是理事會的副局長、1位代表莫斯科市州理事會的副局長。葉利欽任命米海爾·伊文諾維克·巴斯科夫上將為联邦安全局局長。
 
 因被指非法拘捕美國《華爾街日報》記者埃文·格什科維奇，美國政府宣佈制裁俄羅斯聯邦安全局。
+
+&nbsp;
+
+&nbsp;
+
+# Saturday 2026-01-24
+
+OPERA_A Saturday July 4, 2026 https://www.youtube.com/watch?v=LJmKSb9YbfQ 14,092 views September 21, 2018  MONTRÉAL -  "Notre chanson préférée estivale pour la dernière jour d'été! "Saturday in the Park" de le groupe Chicago. Cet été était très très beau, on a hâte pour le prochain!"
