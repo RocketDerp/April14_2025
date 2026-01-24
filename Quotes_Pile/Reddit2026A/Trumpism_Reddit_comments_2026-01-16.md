@@ -2268,3 +2268,6 @@ https://old.reddit.com/r/nursing/comments/1qlxa3p/fuck_ice_fuck_border_patrol_fu
 
 It isn't just politics that people justify hate for. It's subreddit fandoms. It's filter-bubble egoism. People justify killing, hate, promoting hate, promoting deportation, promoting modern digital book burning, promoting dehumanization - all in the name of hate thy enemy, hate those who challenge egoism. Don't view fiction stories the same way, people want to promote hate.
 
+https://old.reddit.com/r/nursing/comments/1qlxa3p/fuck_ice_fuck_border_patrol_fuck_greg_bovino_fuck/o1ho8wt/
+
+Street gang signals: "no more talking". Worship of military USA, worship of violence. ANYTHING but cult deprogramming nonfiction learning on Reddit. Anything but focus on Fox News talking away. Just deport people you hate, silence people you hate, refuse to talk to people you hate, non-person, dehumanize people you hate. Machine tech lovers who have waited around for over 10 years to learn NOTHING about Russian information warfare. Surkov won since March 2013. Anti-learning, pro-ignorance, anti-teaching, "no more teaching" attitudes.
