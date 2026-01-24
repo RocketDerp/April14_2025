@@ -253,10 +253,12 @@ https://www.businessinsider.com/donald-trump-has-transformed-english-2016-2
 
 &nbsp;
 
-October 17, 2019 "Cognitive Decline" headline
+October 17, 2025 "Cognitive Decline" headline
 
 Why do people obey orders that make non sense? Obedience to a Male Father Figure is exactly the talent Trump has mastered. His sexual acts with family and women are all about that "Super Man" image. Yet, Social Media Society can't stand up to it. Mocking Trump for his domination is a form of worship. Allah / Yahweh / God is not a nice guy in Levant tradition. This is a brain exploit for thousands of years in the Levant, a nasty mean father figure.    
 https://old.reddit.com/r/politics/comments/1o9ao31/cognitive_decline_trump_whines_about_train_to/
+
+&nbsp;
 
 "It seems to me that young Douglas is going to go to his mum and dad, and they’ll talk to him about it and explain how it fits and so on, and then will come that shattering night when you are about sixteen, and you find out mum and dad are afraid to die too… or maybe fourteen. And on a Freudian account, it’s not accidental that that’s the time you reach out for large and invisible fathers to protect you… and mothers. And you know what, that’s elegant suspicion. It is not an argument; it’s an elegant suspicion.
 
