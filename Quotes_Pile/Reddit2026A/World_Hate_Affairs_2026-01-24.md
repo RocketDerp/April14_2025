@@ -75,3 +75,6 @@ No, we are no longer competing for understanding nonfiction books at the public 
 See also: https://old.reddit.com/r/ThoughtfulSocialMedia that I created August 12, 2021. But thoughtless commenting is what won social media. And Elon Musk saw it and purchased Twitter social media leadership in year 2022, shortly after I created that subreddit to try and describe the ongoing anti-Malala anti-women crisis. Joe Rogan won. Elon Musk won. Reddit meme-think men won. Reddit joke-washed Russia media invasion as a "nothing burger", Reddit audience comedy-washed Trump every day on Reddit since June 16, 2015. Neil Postman was correct in year 1985. Amused to Death.
 
 OPERA_A Repeating repeating repeat https://www.youtube.com/watch?v=RXKvIO3zp84 966 views July 18, 2023
+
+https://old.reddit.com/r/MapPorn/comments/1qlk0yj/is_your_country_a_member_of_the_world_health/o1ev830/
+
