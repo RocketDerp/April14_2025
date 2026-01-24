@@ -172,3 +172,7 @@ https://old.reddit.com/r/worldnews/comments/1qloc3a/trump_threatens_100_tariffs_
 
 * “The poet, the artist, the sleuth—whoever sharpens our perception tends to be antisocial; rarely “well adjusted,” he cannot go along with currents and trends.”
 — Marshall McLuhan. “The Medium is the Massage: An Inventory of Effects” by media analyst Marshall McLuhan and graphic designer Quentin Fiore, and coordinated by Jerome Agel. It was published in March 1967 https://www.TheMediumIsTheMassAge.com/the-book/
+
+https://old.reddit.com/r/news/comments/1qlty1z/man_shot_by_federal_agents_in_minneapolis_has/o1gt5nk/
+
+Surkov students won hearts and minds of USA since March 2013. Internet Research won heart and minds to self-harm USA goodness. Anti-goodness abounds. Pro-hate, pro-violence, pro-dehumanization abounds.
