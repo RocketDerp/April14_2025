@@ -9,6 +9,6 @@ People are clearly { bewildered, confused, misinformed, manipulated, mentally tr
 
 Putin / Kremlin / Russia   
 Organized **cult of ignorance military techniques**.   
-Deployed on the Internet since March 2013, a full 2.5 years before election November 2016.   
+Deployed on the Internet since March 2013, a full 3.5 years before election November 2016.   
 It started March 2013, before the Ukraine invasion by Russia on February 20, 2014.   
 
