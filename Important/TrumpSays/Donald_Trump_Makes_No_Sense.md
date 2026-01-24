@@ -24,7 +24,12 @@ November 7, 2016 election day
 
 December 5, 2014 - start here.    
 Friday December 5, 2014    
-https://www.youtube.com/watch?v=5Au332OG-M4  
+https://youtu.be/5Au332OG-M4?t=241     
 33,203 views    
 
 We need to listen and learn and study this Friday December 5, 2014 YouTube video of a man on his first day of a book tour in a book store in Washington D.C. USA.
+
+Russia strategy for future (December 5, 2014):   
+"Humiliate the USA"    
+"Show the world that NATO is a joke"    
+https://youtu.be/5Au332OG-M4?t=2509    
