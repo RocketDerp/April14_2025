@@ -11,9 +11,13 @@ Another [page with another parallel attempt June 19, 2025: ](/June19_2025/Social
 
 &nbsp;
 
+&nbsp;
+
 # Social Media Society Did Not
 
 &nbsp;
+
+Social media users, society of social media, the community of social media: DID NOT stand up and call for Dr. Bandy X Lee to be followed. To support Dr. Bandy X. Lee as a leader of dealing with the ult issues, mental health issues of MAGA movement. Bandy X Lee's nonfiction book from October 3, 2017. Social media society did not *rally around serious nonfiction book**.
 
 People like to say "capitalism caused this", which I'm not disagreeing with. But I think "Late stage capitalism" gets plenty of criticism and coverage.
 
