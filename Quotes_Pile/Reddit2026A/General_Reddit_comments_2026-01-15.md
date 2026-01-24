@@ -1468,3 +1468,30 @@ Hilarious: Fatima. 2013-04-14 American Corner. "the manager Fatima asked me to g
 https://old.reddit.com/r/justgalsbeingchicks/comments/1ql3e2y/spilling_the_tea_on_the_ladies_gym/o1bcjxh/
 
 https://old.reddit.com/r/justgalsbeingchicks/comments/1ql3e2y/spilling_the_tea_on_the_ladies_gym/o1bd52y/
+
+https://old.reddit.com/r/WallStreetbetsELITE/comments/1jz88g5/deleted_by_user/mn49a9s/
+
+
+
+# Pickup A
+
+
+Picking up some old messages from April 14, 2025 - the name of this GitHub project. See: https://github.com/RocketDerp/April14_2025/blob/main/reddit_comment_mn4zktr.md
+
+https://old.reddit.com/r/WallStreetbetsELITE/comments/1jz88g5/deleted_by_user/mn4ac1i/
+
+<img width="1081" height="640" alt="image" src="https://github.com/user-attachments/assets/d2b0b520-c095-4e23-939f-3f7cca509101" />
+
+"Behavior from Trump" - April 14, 2025   
+
+https://old.reddit.com/r/WallStreetbetsELITE/comments/1jz88g5/deleted_by_user/mn4acu2/
+
+https://old.reddit.com/r/WallStreetbetsELITE/comments/1jz88g5/deleted_by_user/mn4bzkp/
+
+Putin leads with Hate. Trump leads with hate. People follow with hate. Everyone agrees on hate leadership.
+
+https://old.reddit.com/r/WallStreetbetsELITE/comments/1jz88g5/deleted_by_user/mn4bw62/
+
+<img width="1135" height="333" alt="image" src="https://github.com/user-attachments/assets/352d4f21-c016-4421-aefd-267a0d6eb909" />
+
+A rare Reddit message comment that calls out the forest of lies, not just barking at the one tree on April 14, 2025. Fiction outsells nonfiction. Fox News HDTV fiction is far more popular and outsells nonfiction. Putin and Surkov figured this out more than 25 years ago and started exporting it via the Internet Research Agency to Reddit and other media systems since March 2013. Lies and deception are incredibly popular. Popularity itself is toxic since March 2013.
