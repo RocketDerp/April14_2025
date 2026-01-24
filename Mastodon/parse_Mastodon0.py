@@ -71,7 +71,7 @@ def parse_mastodon_export(file_path):
             # Mastodon posts are usually 'Create' activities containing a 'Note'
             obj = item.get('object', {})
             if isinstance(obj, dict):
-                # this is a string, not an intelligent ate object
+                # this is a string, not an intelligent date object
                 published = obj.get('published', 'Unknown Date')
                 
                 # is thi a month crossing?
