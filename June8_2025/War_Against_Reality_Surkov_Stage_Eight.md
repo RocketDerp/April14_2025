@@ -1,4 +1,4 @@
-War Against Reality without resitance   
+War Against Reality without resistance   
 War Against Reality welcomed and embraced, no resistance from population   
 War Against Reality - when did we ever escape the last Anti-Reality MonoMyth patterns?   
 
@@ -33,7 +33,7 @@ https://www.buzzfeednews.com/article/maxseddon/documents-show-how-russias-troll-
 
 "Someone sold the thought that Western media, which specifically have to align their interests with their audience, won't be able to ignore saturated pro-Russian campaigns and will have to change the tone of their Russia coverage to placate their angry readers."
 
-Popularity itself, trending, measured click-through, audience tracking feedback loops. Instead of "through his total control of television" year 2012 domestic Russia, it is runaway monomyth compulsive behavior. Surkov dug so deep into ficton and public relations (Edward Bernays), that he has reached the depths of Bible, Quran, Torah compuslive. The clergy can rise up anywhere, the Mosques / Church / Synagogue / Temple / Fox News wealth televagelism venue is compuslively built and funded by the audience itself. Social media and classic news media hybrid interaction. And then came ChatGPT in year 2022.
+Popularity itself, trending, measured click-through, audience tracking feedback loops. Instead of "through his total control of television" year 2012 domestic Russia, it is runaway monomyth compulsive behavior. Surkov dug so deep into fiction and public relations (Edward Bernays), that he has reached the depths of Bible, Quran, Torah compulsive. The clergy can rise up anywhere, the Mosques / Church / Synagogue / Temple / Fox News wealth televangelism venue is compulsively built and funded by the audience itself. Social media and classic news media hybrid interaction. And then came ChatGPT in year 2022.
 
 ## This is compuslive MassMan audience-driven
 
@@ -57,17 +57,17 @@ What started with 5,000 hand-crafted:
 3. Alternate reality screen games for electric media environments (news comment sections, social media, blogs, websites)
 4. Anti-reality patterns
 
-Has now since year 2022 become runaway, run amock. 
+Has now since year 2022 become runaway, run amok. 
 
-"Operation Matthew 4:19" global seeding in March 2013 has now been fed into training of artificial intelligence, trainig of large laungage models, generative AI has gone beyond the 5,000 patterns.
+"Operation Matthew 4:19" global seeding in March 2013 has now been fed into training of artificial intelligence, training of large language models, generative AI has gone beyond the 5,000 patterns.
 
-What I am saying here is that Putin / Kremlin / Russia no longer is in control. In fact, domestic Russia has been self-harming with compuslive monomyth patterns it does not fully comprehend. These are absent of compassion, a threat to the whole world, the *patterns* of monomyth unleashed are of military boot-camp order, weaponized out-group distance bombing (airplaine operatators dropping from sky, rocket builders, drone makers, IDBM button programmers). Detachment from reality, as the world has been under religons and only briefly grasped with the introduction of James Joyce's work and Joseph Campbell's depth and comprehension of Comparative Mythology / Marshall McLuhan's 1968 "War and Peace in the Global Village" and media ecology teachings (John 1:1 - The Bible is languages and only languages. John 1:1 - Torah is poetry and only poetry. Hard for many to swallow, science fiction poetry. Compusive brain addiction to same.)
+What I am saying here is that Putin / Kremlin / Russia no longer is in control. In fact, domestic Russia has been self-harming with compulsive monomyth patterns it does not fully comprehend. These are absent of compassion, a threat to the whole world, the *patterns* of monomyth unleashed are of military boot-camp order, weaponized out-group distance bombing (airplane operators dropping from sky, rocket builders, drone makers, ICBM button programmers). Detachment from reality, as the world has been under religions and only briefly grasped with the introduction of James Joyce's work and Joseph Campbell's depth and comprehension of Comparative Mythology / Marshall McLuhan's 1968 "War and Peace in the Global Village" and media ecology teachings (John 1:1 - The Bible is languages and only languages. John 1:1 - Torah is poetry and only poetry. Hard for many to swallow, science fiction poetry. Compusive brain addiction to same.)
 
-What I am saying here is that Donald Trump and Putin are not in control. Nor is any one large language model nor is long-form social media users like Reddit and Lemmy, as Twitter-thinking reaction comments have overrrun those platforms too. People favor the Twitter-length repetitive replies and the reaction images on all platforms. Social media amusement track.
+What I am saying here is that Donald Trump and Putin are not in control. Nor is any one large language model nor is long-form social media users like Reddit and Lemmy, as Twitter-thinking reaction comments have overrun those platforms too. People favor the Twitter-length repetitive replies and the reaction images on all platforms. Social media amusement track.
 
-Neil Postman's 1985 "Amusing Ourseles To Death", after Ronald Regan elected twice, focused on the ***compusive behavior*** not just the single President Ronald Regagan. And Rick Roderick explained the same in 1993, it can be ridden like a wave (Madonna given as example in his lecture).
+Neil Postman's 1985 "Amusing Ourselves To Death", after Ronald Reagan elected twice, focused on the ***compulsive behavior*** not just the single President Ronald Reagan. And Rick Roderick explained the same in 1993, it can be ridden like a wave (Madonna given as example in his lecture).
 
-Trump and Putin do not realize what they have unleashed, they are compusively amplyfing it.
+Trump and Putin do not realize what they have unleashed, they are compulsively amplifying it.
 
 ## The Ultimate Troll, verse Matthew 4:19
 
@@ -76,6 +76,3 @@ As an aside within multiple asides: There is only one outcome worth screaming an
 When did we every fully escape the heaven metaphor? How can someone raise children, birth children, without that agenda and objective?
 
 Is endless war a fantasy objective serial killers of humanity all agree on?
-
-
-
