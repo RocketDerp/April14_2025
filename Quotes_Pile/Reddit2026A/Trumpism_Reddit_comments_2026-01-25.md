@@ -88,3 +88,7 @@ https://old.reddit.com/r/ProgressiveHQ/comments/1qmk5j5/this_footage_is_being_re
 What "the people wanted". Addiction of BREAKING NEWS at high speed TCP/IP 5G+ delivery on the latest model Android / Apple iPhone / Apple iPad in hand. Putin / Surkov / Trump lead with antics and BREAKING NEWS stimulation to feed the We The People audience desires. Round after round of stimulating smartphone / iPad notifications. ABSENT: Repeating and quoting Dr. Bandy X Lee's mental health teachings and public education about Trumpism since October 3, 2017 (and even earlier in non-book form).
 
 * meme-talk nation. “When a population becomes distracted by trivia, when cultural life is redefined as a **perpetual round of entertainments**, when serious public conversation becomes a form of baby-talk, when, in short, a people become an audience, and their public business a vaudeville act, then a nation finds itself...” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, year 1985. Book on paper.
+
+https://old.reddit.com/r/politics/comments/1qmk7ev/pam_bondi_offers_to_pull_ice_out_of_minneapolis/o1mcsm0/
+
+Twitter "Engagement" technique of social machines. Ask extremely low-effort trivial questions to trivialize a topic. Anything to avoid quoting and asserting the importance of serious non-fiction books on paper in favor of short message Twitter-length. Most popular comment currently, top upvoted / liked on Reddit.
