@@ -175,3 +175,9 @@ https://old.reddit.com/r/nottheonion/comments/1qmlb7m/white_house_alters_arrest_
 Yes. Memes are John 1:1. Reddit audience has almost zero comprehension of media ecology.
 
 * “The medium **does things to people. And they’re always completely unaware of this. They don’t really notice the new medium that is roughing them up**. They think of the old medium because the old medium is always the content of the new medium. As movies are tend to be the content of TV, and as books used to be the content—novels used to be the content—of movies.” — Marshall McLuhan. “This is Marshall McLuhan: The Medium is the Massage”, an experimental documentary produced by Ernest Pintoff and Guy Fraumeni, narrated by actor Edward Binnes and broadcasted on NBC TV (19 March 1967). https://youtu.be/cFwVCHkL-JU?t=195
+
+https://old.reddit.com/r/nottheonion/comments/1qmlb7m/white_house_alters_arrest_photo_of_ice_protester/o1mlkeo/
+
+Reddit audience. Twitter-length thinking patterns, short-message. No demonstration of knowing Neil Postman's teachings.
+
+There is no demonstration on Reddit of self-awareness of being lead by the nose / leash lead, by Elon Musk Twitter media systems / meme images. All signs and behaviors indicate a mob mentality of thinking Reddit audience has out-smarted the out-groups ( Twitter, Turning Point, Saint Petersburg Internet Research Agency seeding since March 2013, Grok AI, Rupert Mrudoch }... no invocation of { Media Ecology, Neil Postman, Marshall McLuhan }. Despite the long-established Time Magazine just months ago re-asserting Neil Postman's 1985 media ecology about addict self-awareness (Reddit high speed electric media audience). September 10, 2025: https://time.com/7313999/neil-postman-trump-prediction/ only 137 days ago! 
