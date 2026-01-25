@@ -2385,3 +2385,7 @@ Charlie Kirk was likely manipulated by Russian media. He was clearly a media cen
 https://old.reddit.com/r/agedlikemilk/comments/1qm13ae/aged_as_well_as_charlie_did/o1jdaox/
 
 Erika Kirk had her husband murdered by a gun. What does she have to say about these shooting.
+
+https://old.reddit.com/r/washingtondc/comments/1qm2oyr/outside_ice_hq_right_now/o1iusmf/
+
+We all need to be promoting peaceful protest. And asking all the world's mental health workers to turn to Dr. Bandy X Lee's teaching and education and help with the massive cult deprogramming of MAGA / Facebook / Twitter / Fox News / Reddit / etc.
