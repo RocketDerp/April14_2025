@@ -132,3 +132,15 @@ Social post { https://Autistics.Life/@RoundSparrow/115957315162001581 https://bs
 2nd posting on front page. Top voted comment. 8 month Reddit account commenting.
 
 https://old.reddit.com/r/ProgressiveHQ/comments/1qmo5df/this_is_america/o1ni1qq/
+
+https://old.reddit.com/r/wisconsin/comments/1qmnhbj/he_was_from_green_bay/o1n74vm/
+
+https://old.reddit.com/r/wisconsin/comments/1qmnhbj/he_was_from_green_bay/o1nxqs0/
+
+https://old.reddit.com/r/wisconsin/comments/1qmnhbj/he_was_from_green_bay/o1njcv5/
+
+meme-addled. Ignorance. Adult education is trashed by meme addictions. Meme macro images, exchanging images.
+
+* “Americans no longer talk to each other, they **entertain each other**. They do not exchange ideas, they **exchange images**. They do not argue with propositions; they argue with good looks, celebrities and commercials.” ― [Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. Published year 1985. Page 93.](https://books.google.com/books?id=KIjhAAAAMAAJ&q=%22They+do+not+argue+with+propositions;+they+argue+with+good+looks,+celebrities+and+commercials.%E2%80%9D&dq=%22They+do+not+argue+with+propositions;+they+argue+with+good+looks,+celebrities+and+commercials.%E2%80%9D&hl=en&newbks=1&newbks_redir=1&printsec=frontcover&sa=X)
+
+Avoidance of nonfiction seriously book reading. For example, Dr. Bandy X Lee's book has been almost entirely ignored by the USA fandom of ICE and Trump fandom. Published October 3, 2017 it teaches and educates about the cult, mob mentality, gang thinking patterns, mass psychosis, MAGA mindsets. People need to be asserting Dr. Lee as a leader to follow in the face of Trumpism / MAGA / dangerous aspects of following Donald Trump as role model.
