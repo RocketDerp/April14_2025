@@ -2439,3 +2439,19 @@ Reddit has been meme-washing Trump daily for over 10 years and 7 months. Joke to
 https://old.reddit.com/r/LiveFromNewYork/comments/1qm9bpk/no_just_fucking_no_this_is_not_a_time_for_a_trump/o1ke4uz/
 
 Surkov won. People have no idea they have been eating out of Putin Kremlin hands. "Laughing at tyranny is no longer helpful." indeed. Mocking and avoiding nonfiction learning has been the problem since March 2013.
+
+https://old.reddit.com/r/sports/comments/1qm8u0n/paul_allen_radio_voice_of_the_vikings_mocks/o1k5rn0/
+
+Trump is literally an actor, acting. This is Putin's organized acting against reality. Surkov won.
+
+https://old.reddit.com/r/sports/comments/1qm8u0n/paul_allen_radio_voice_of_the_vikings_mocks/o1k6f1p/
+
+https://old.reddit.com/r/sports/comments/1qm8u0n/paul_allen_radio_voice_of_the_vikings_mocks/o1k5miy/
+
+https://old.reddit.com/r/sports/comments/1qm8u0n/paul_allen_radio_voice_of_the_vikings_mocks/o1k71oa/
+
+Yes. You are supposed to enjoy following Rupert Murdoch and Putin fiction strytelling.
+
+https://old.reddit.com/r/sports/comments/1qm8u0n/paul_allen_radio_voice_of_the_vikings_mocks/o1k6dc8/
+
+https://old.reddit.com/r/sports/comments/1qm8u0n/paul_allen_radio_voice_of_the_vikings_mocks/o1kdiej/
