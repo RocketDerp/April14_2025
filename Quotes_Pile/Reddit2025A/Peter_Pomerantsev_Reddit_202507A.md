@@ -33,7 +33,7 @@ Thinking that **ONLY MAGA**, only the Republicans, ONLY the White House has been
 
 Why haven't these social media companies (Reddit and Bluesky) pinned educational posts to people and informed their users to see the *forest for the trees* of how:
 
-1. "But the key thing was, that Surkov then let it be known that this was what he was doing, which meant that no one was sure what was real or fake. As one journalist put it: "It is a strategy of power that keeps any opposition constantly confused." A **ceaseless shape-shifting that is unstoppable** because it is undefinable." - [Adam Cutis, year 2014](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html)
+1. "But the key thing was, that Surkov then let it be known that this was what he was doing, which meant that no one was sure what was real or fake. As one journalist put it: "It is a strategy of power that keeps any opposition constantly confused." A **ceaseless shape-shifting that is unstoppable** because it is undefinable." - [Adam Curtis, year 2014](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html)
 
 2. "The brilliance of this new type of authoritarianism is that instead of simply oppressing opposition, as had been the case with twentieth-century strains, it **climbs inside all ideologies and movements, exploiting and rendering them absurd.**" - [Peter Pomerantsev, 2014](https://www.goodreads.com/author/quotes/8035579.Peter_Pomerantsev)
 
@@ -1603,7 +1603,7 @@ Representative_Pick3 2020-07-19
 
 https://old.reddit.com/r/law/comments/1mpajxf/trump_asked_about_russia_hacking_our_federal/
 
-I don't even know where to begin on describing this public statement. It's pure Surkov "key thing" mass mind exploit of the population. This statement comes as Donald Trump is meeting with Putin in Alaska in 2 days.  "But the key thing was, that Surkov then let it be known that this was what he was doing, which meant that no one was sure what was real or fake" - [Adam Cutis, year 2014](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html)
+I don't even know where to begin on describing this public statement. It's pure Surkov "key thing" mass mind exploit of the population. This statement comes as Donald Trump is meeting with Putin in Alaska in 2 days.  "But the key thing was, that Surkov then let it be known that this was what he was doing, which meant that no one was sure what was real or fake" - [Adam Curtis, year 2014](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html)
 
 &nbsp;
 
