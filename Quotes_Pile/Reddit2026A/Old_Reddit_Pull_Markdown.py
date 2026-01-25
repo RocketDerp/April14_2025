@@ -40,7 +40,7 @@ error_fetch_count = 0
 error_parse_a_count = 0
 fetch_reddit_count_a = 0
 replies_users_fetch = 0
-replies_users_max = 100
+replies_users_max = 64
 # every slowdown_every fetches kick in delay
 slowdown_every = 2
 age18_count = 0
@@ -737,6 +737,8 @@ def main():
             print(f"PARSING returned matched skip, {data['parsed']}")
             continue
 
+        reddit_comment = data['comment']
+
         # Markdown formatted output
         output_lines = [
             "\n",
@@ -755,11 +757,18 @@ def main():
             f"Timestamp:       {data['comment_timestamp']}  ",
             f"Score:           {data['score']}  ",
             f"Post Title:      {data['post_title']}  ",
-            f":::::: Reddit User Comment: ======  \n{data['comment']}"
+            f":::::: Reddit User Comment: ======  \n"
+            f"{reddit_comment}"
         ]
 
         if commentary:
-            output_lines.append(f":::::: Analysis_Thoughts Commentary: ======  \n{commentary}")
+            output_lines.append("> [!NOTE]")
+            # shove the commetnary markdown into a ">" reply pattern
+            #   as github will render that all into note section
+            # ToDo: currently breaks note block rendering when image is in output
+            commentary_into_reply = commentary.replace("\n", "\n> ")
+            output_lines.append(f"> :::::: Analysis_Thoughts Commentary: ======  \n{commentary_into_reply}")
+            output_lines.append(">")
 
         # Console output
         print("\n".join(output_lines))
