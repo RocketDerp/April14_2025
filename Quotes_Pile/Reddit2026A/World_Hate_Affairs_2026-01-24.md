@@ -205,3 +205,9 @@ Iran. Anti-Malala, anti-women, anti-girls, elderly male rulers. Police state wit
 ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. October 8, 2013
 
 * "The unformulated message of an assembly of news items from every quarter of the globe is that the world today is one city. All war is civil war. All suffering is our own." - University of Toronto. Marshall McLuhan
+
+https://old.reddit.com/r/worldnews/comments/1qmfprx/over_36500_killed_in_irans_deadliest_massacre/o1lkjty/
+
+10 month Reddit account. Tweet-length message, Twitter-thinking. Highly popular / upvoted. The first reply makes the larger point of hate being a global problem. The February 28, 1954 equation.
+
+* February 28, 1954: "Most people can't stand up for their convictions, because the majority of people might not be doing it. See, everybody's not doing it, so it must be wrong. And since everybody is doing it, it must be right. So a sort of numerical interpretation of what's right. But I'm here to say to you this morning that some things are right and some things are wrong. Eternally so, absolutely so. **It's wrong to hate.** It always has been wrong and it always will be wrong. It's wrong in America, it's wrong in Germany, it's wrong in Russia, it's wrong in China. It was wrong in 2000 B.C., and it's wrong in 1954 A.D. It always has been wrong, and it always will be wrong." - Martin Luther King Jr.
