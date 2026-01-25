@@ -195,3 +195,11 @@ https://old.reddit.com/r/minnesota/comments/1qmv5h3/minnesota_national_guard_war
 9 month Reddit account. "MN" end on username in Minnesota subreddit.
 
 https://old.reddit.com/r/minnesota/comments/1qmv5h3/minnesota_national_guard_warmly_greeting_and/o1p823h/
+
+https://old.reddit.com/r/videos/comments/1qmtzqd/even_cnn_has_had_enough_of_the_administrations/o1oo1da/
+
+Posting about CNN media ecology; fiction vs. nonfiction.
+
+https://old.reddit.com/r/videos/comments/1qmtzqd/even_cnn_has_had_enough_of_the_administrations/o1op934/
+
+"real life"; fiction vs. nonfiction storytelling.
