@@ -1562,3 +1562,7 @@ https://old.reddit.com/r/ProgressiveHQ/comments/1qmk5j5/this_footage_is_being_re
 https://old.reddit.com/r/ProgressiveHQ/comments/1qmk5j5/this_footage_is_being_removed_from_reddit/o1mgwux/
 
 "sub" = "subReddit"
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qmk5j5/this_footage_is_being_removed_from_reddit/o1mh9kb/
+
+"Insane", "Reddit taking them down"
