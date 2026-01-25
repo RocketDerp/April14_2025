@@ -1543,3 +1543,18 @@ https://old.reddit.com/r/andor/comments/1qlyvod/thinking_about_this_again_today/
 https://old.reddit.com/r/ProgressiveHQ/comments/1qmk5j5/this_footage_is_being_removed_from_reddit/o1mc83h/
 
 Attitude of deportation, book burning atmosphere January 2026, attitude of secret removal and disappearance for reality assertion.
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qmk5j5/this_footage_is_being_removed_from_reddit/o1mgj9a/
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qmk5j5/this_footage_is_being_removed_from_reddit/o1meihy/
+
+4-month Reddit account. No off-Reddit URL with very serious claims. Twitter-length encouraging Twitter-thinking small mindsets.
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qmk5j5/this_footage_is_being_removed_from_reddit/o1mhe98/
+
+<img width="1089" height="389" alt="image" src="https://github.com/user-attachments/assets/a95caca5-ad21-4c90-8ae8-62c08c4af117" />
+
+
+"Progressive HQ" framing. Sunday morning commenting. Anti-MLK Jr comment. Tech loving audience of technology addictions, machine-logic polarity. Against the Great Seal of the United States of America mindsets above lower-steps of the pyramid, against thinking above 1-bit logic. ABSENT: Asserting using social media to quote, teach, educate with Dr. Bandy X Lee's mental health book since October 3, 2017. Reddit fandom of ICE and MAGA is anti-intellectual anti-nonfiction anti-Malala anti-teaching anti-education. Trump leads the Reddit audience in anti-education values. Fake "Progressive" subreddit meme addictions abound.
+
+* "First, we must develop and maintain the capacity to forgive. He who is devoid of the power to forgive is devoid of the power to love. It is impossible even to begin the act of loving one's enemies without prior acceptance of the necessity, over and over again, of forgiving those who inflict evil and injury upon us. It is also necessary to realize that the forgiving act must always be initiated by the person who has been wronged, the victim of some great hurt, the recipient of some tortuous injustice, the absorber of some terrible act of oppression. The wrongdoer may request forgiveness. He may come to himself, and, like the prodigal son, move up with some dusty road, his heart palpitating with the desire for forgiveness. But only the injured neighbor, the loving father back home can really pour out the warm waters of forgiveness." - Christmas. Montgomery, Alabama (25 December 1957)
