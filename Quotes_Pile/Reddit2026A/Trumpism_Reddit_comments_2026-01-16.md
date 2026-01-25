@@ -2325,3 +2325,7 @@ https://old.reddit.com/r/Fauxmoi/comments/1qm2xm1/natalie_portman_speaks_out_aga
 https://old.reddit.com/r/Fauxmoi/comments/1qm2xm1/natalie_portman_speaks_out_against_ice_while_at/o1iupfr/
 
 Trump fan wants goodness to be silenced. Anti-education, anti-Malala, anti-teaching, anti-learning. Because communication and learning "is not doing something". Pro-ignorance, wants people stupid an dumb so they "o things" like hit each other, shoot each other, terrorist bomb each other, shoot up schools. Because *saying something* with words in a school isn't "doing something". Pro-Putin. MAGA attitude, *do something*, even if it is evil and wrecking the world. Don't think, don't share ideas, don't assert goodness education. An egoism "shut up" message.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qm2xm1/natalie_portman_speaks_out_against_ice_while_at/o1ix9lv/
+
+4-month Reddit account. No call for anything off-Reddit. Dr. Bandy X Lee has been leading since year 2017, but people aren't addressing the cult behaviors / cult crisis with nonfiction education.
