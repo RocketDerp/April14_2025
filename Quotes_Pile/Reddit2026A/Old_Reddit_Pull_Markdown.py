@@ -767,7 +767,8 @@ def main():
             #   as github will render that all into note section
             # ToDo: currently breaks note block rendering when image is in output
             commentary_into_reply = commentary.replace("\n", "\n> ")
-            output_lines.append(f"> :::::: Analysis_Thoughts Commentary: ======  \n{commentary_into_reply}")
+            output_lines.append(f"> :::::: Analysis_Thoughts Commentary: ======  ")
+            output_lines.append(f"> {commentary_into_reply}")
             output_lines.append(">")
 
         # Console output
