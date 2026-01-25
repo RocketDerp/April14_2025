@@ -2354,4 +2354,8 @@ https://old.reddit.com/r/law/comments/1qm2kb1/minnesota_national_guard_arriving_
 
 Social media needs to be asserting good. Mob mentality and war need to be actively educated as bad. Dr. Bandy X Lee should be a constant source of quotes and leadership. Stand for goodness. Don't just stand for weapon systems and harming others. Revenge and payback are exactly the cycles we need to break. Standing up to Putin and Russia is common intellectual focus for USA. Stand up for NATO and friendship and goodness and ask Russia to reform and end Ukraine war and help rebuild Ukraine.
 
+https://old.reddit.com/r/law/comments/1qm2kb1/minnesota_national_guard_arriving_in_minneapolis/o1j3kda/
+
+In the meanwhile, it has never been better to address media cults. Address the Fox News HDTV cult. Jen Senko's film and book is a great starting point. https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad
+
 
