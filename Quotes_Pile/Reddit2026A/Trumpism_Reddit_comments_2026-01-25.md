@@ -129,9 +129,9 @@ Top upvoted comment at time of GitHub checkin
 
 Social post { https://Autistics.Life/@RoundSparrow/115957315162001581 https://bsky.app/profile/roundsparrow.bsky.social/post/3mdbgmazohk2p }
 
-2nd posting on front page. Top voted comment. 8 month Reddit account commenting.
-
 https://old.reddit.com/r/ProgressiveHQ/comments/1qmo5df/this_is_america/o1ni1qq/
+
+2nd posting on front page. Top voted comment. 8 month Reddit account commenting.
 
 https://old.reddit.com/r/wisconsin/comments/1qmnhbj/he_was_from_green_bay/o1n74vm/
 
