@@ -223,3 +223,7 @@ What social media messages need to be asserting EVERY DAY, at least every 12 hou
 https://old.reddit.com/r/ProgressiveHQ/comments/1qmtl05/what_an_actual_domestic_terrorist_looks_like/o1opovb/
 
 4 month Reddit account. Short Twitter-think Tweet-length messaging.
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qmtl05/what_an_actual_domestic_terrorist_looks_like/o1ov49o/
+
+An off-Reddit URL, description, asking people to please learn and study. Pro-education.
