@@ -203,3 +203,14 @@ Posting about CNN media ecology; fiction vs. nonfiction.
 https://old.reddit.com/r/videos/comments/1qmtzqd/even_cnn_has_had_enough_of_the_administrations/o1op934/
 
 "real life"; fiction vs. nonfiction storytelling.
+
+https://old.reddit.com/r/politics/comments/1qmrrvv/fbi_director_kash_patel_suggests_its_illegal_to/o1o3py4/
+
+Wall Street Journal posting
+
+https://old.reddit.com/r/politics/comments/1qmrrvv/fbi_director_kash_patel_suggests_its_illegal_to/o1o6wtd/
+
+Note the reply to this comment; 11 day Reddit account. "star wars", "empire"
+
+Trump has played himself as an actor, acting in the Star Wars monomyth fiction. Programming into the population hive mind / Reddit hive mind. See: https://www.euronews.com/culture/2025/05/05/how-an-ai-star-wars-image-has-backfired-on-trump-and-the-white-house from May 2025.
+
