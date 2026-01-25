@@ -56,3 +56,11 @@ Organization names change. Geography changes. This is not 1937 Germany. We speak
 * "For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the **true becomes false and the false becomes true**. That's what hate does. You can't see right. **The symbol of objectivity** is lost." - Martin Luther King Jr.
 
 Reform the toxic clergy of the Middle East / Levant with lessons on GOODNESS. Reform the toxic clergy.
+
+https://old.reddit.com/r/politics/comments/1qml10h/billionaire_ceos_slammed_for_schmoozing_trump_at/o1mko26/
+
+https://old.reddit.com/r/politics/comments/1qml10h/billionaire_ceos_slammed_for_schmoozing_trump_at/o1mktjf/
+
+https://old.reddit.com/r/politics/comments/1qml10h/billionaire_ceos_slammed_for_schmoozing_trump_at/o1mjntz/
+
+Oppression is getting on the same page of content. Not to say that in the post-Surkov world there isn't a massive number of ARG patterns to choose your own fiction adventure.
