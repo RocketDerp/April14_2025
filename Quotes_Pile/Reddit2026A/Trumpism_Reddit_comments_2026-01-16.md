@@ -2397,3 +2397,9 @@ https://old.reddit.com/r/washingtondc/comments/1qm2oyr/outside_ice_hq_right_now/
 https://old.reddit.com/r/catbongos/comments/1qm2rl2/if_you_still_support_trumpice_even_slightly_youre/o1iye3i/
 
 Anti-education, anti-Malala, anti-teaching, anti-learning.
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qm2ser/aoc_how_rich_is_it_that_she_is_saying_showing_up/o1issz2/
+
+1 month Reddit account.
+
+As for the AOC video on CNN... the posting. It's great. She emphasizes "citizen vs citizen" and hate. And that's what Reddit is a terrorist mind programming for. People have avoided { Dr. Bandy X Lee, Jen Senko } and nonfiction teaching about the Russian mental manipulation.. and line up and cheer on any whiff of action violence. She is articulate.
