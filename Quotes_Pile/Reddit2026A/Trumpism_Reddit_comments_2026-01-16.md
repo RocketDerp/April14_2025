@@ -2358,4 +2358,7 @@ https://old.reddit.com/r/law/comments/1qm2kb1/minnesota_national_guard_arriving_
 
 In the meanwhile, it has never been better to address media cults. Address the Fox News HDTV cult. Jen Senko's film and book is a great starting point. https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad
 
+https://old.reddit.com/r/law/comments/1qm2kb1/minnesota_national_guard_arriving_in_minneapolis/o1j48o3/
+
+People need to be addressing the stress and mental health crisis of the entire nation, everyone. We have never had live video coverage technology like we have in January 2026. We are in a media war of live streaming. What if Trump shuts down the Internet? Now is the time to assert Dr. Bandy X Lee's book on paper and mental health / cult issues. Stand for free thinking and positive thinking. Goodness itself.
 
