@@ -2310,3 +2310,6 @@ https://old.reddit.com/r/politics/comments/1qm0bzh/why_arent_the_lawyers_and_bar
 
 Topic posting is screaming out loud. Why aren't social media users all calling to follow Dr. Bandy X Lee's mental health lead....
 
+https://old.reddit.com/r/Fauxmoi/comments/1qm2xm1/natalie_portman_speaks_out_against_ice_while_at/o1itwvp/
+
+People aren't asleep in the do nothing, it's entertainment. The Wake, is fiction vs. nonfiction. Stand up and assert nonfiction, teach Carl Sagan's books. Call for Dr. Bandy X Lee.
