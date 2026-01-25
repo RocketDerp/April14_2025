@@ -2403,3 +2403,14 @@ https://old.reddit.com/r/ProgressiveHQ/comments/1qm2ser/aoc_how_rich_is_it_that_
 1 month Reddit account.
 
 As for the AOC video on CNN... the posting. It's great. She emphasizes "citizen vs citizen" and hate. And that's what Reddit is a terrorist mind programming for. People have avoided { Dr. Bandy X Lee, Jen Senko } and nonfiction teaching about the Russian mental manipulation.. and line up and cheer on any whiff of action violence. She is articulate.
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qm2ser/aoc_how_rich_is_it_that_she_is_saying_showing_up/o1j37vr/
+
+<img width="1176" height="684" alt="image" src="https://github.com/user-attachments/assets/4075e5d4-11ad-4790-8bf5-f094112f9160" />
+
+"amusing"
+
+Anti-intellectual, anti-learning, anti-understanding, anti-comprehension. The thinking stops when humor and comedy amusement attitudes are prized. Neil Postman's 1985 book explains all of what we have been living under without self-awareness since year 2013. "Dunking", joking, mocking, insulting all for LOL.
+
+ Social post { https://autistics.life/@RoundSparrow/115953730998912862 https://bsky.app/profile/roundsparrow.bsky.social/post/3md7tnrzr722s }
+ 
