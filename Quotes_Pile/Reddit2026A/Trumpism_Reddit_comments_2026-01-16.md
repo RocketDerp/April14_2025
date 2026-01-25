@@ -2417,3 +2417,7 @@ Anti-intellectual, anti-learning, anti-understanding, anti-comprehension. The th
 https://old.reddit.com/r/MurderedByWords/comments/1qm6xna/these_people_are_broken/o1jrl5d/
 
 Symptom of Russia's war against reality. "That is Artificial Intelligence". Encountered it many times on Reddit in the past couple years. It is a thought-terminating phrase. Crowds eat it up. "bot"
+
+https://old.reddit.com/r/MurderedByWords/comments/1qm6xna/these_people_are_broken/o1jqzyj/
+
+Billionaire media systems. Elon Musk, richest man in the world, can make any video with private systems we the public can't even see the capability of.
