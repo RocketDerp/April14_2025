@@ -2334,3 +2334,11 @@ https://old.reddit.com/r/AskReddit/comments/1qm2nbu/why_was_kyle_rittenhouse_cha
 
 ToDo: "partisanship" is a word I don't use enough. Sports-team think, "winner takes all" sports mentality. Celebration of ignorance, celebration of misunderstanding.
 
+https://old.reddit.com/r/AskReddit/comments/1qm2nbu/why_was_kyle_rittenhouse_championed_by_the_right/o1iwukk/
+
+"cult"
+
+https://old.reddit.com/r/AskReddit/comments/1qm2nbu/why_was_kyle_rittenhouse_championed_by_the_right/o1jhr9z/
+
+1-month Reddit account. Amusement, funny, anti-reality, comedy mind-fuck for audience. "t’s hilarious". Fanatic, fandom, of ICE and Trump as entertainment.
+
