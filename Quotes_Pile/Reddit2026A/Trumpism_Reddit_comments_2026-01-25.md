@@ -288,3 +288,9 @@ https://old.reddit.com/r/nba/comments/1qmwwki/steve_kerr_were_being_divided_by_m
 Social media has exposed that we failed to teach media ecology. Neil Postman and Marshall McLuhan for starters. The 1950's, 1960's, 1970's, 1980's, 1990's we had two great teachers directly addressing the public media consumers in North America. McLuhan from University of Toronto, Neil Postman from New York University.
 
 * "Being illiterate in the processes of any medium (language) leaves one at the mercy of those who control it. The new media — these new languages — then are among **the most important "subjects" to be studied in the interests of survival**." - Neil Postman on media ecology
+
+https://old.reddit.com/r/nba/comments/1qmwwki/steve_kerr_were_being_divided_by_media_forprofit/o1pobo9/
+
+"Fox News"; filter-bubble crisis. https://en.Wikipedia.org/wiki/Filter_bubble
+
+* Published more than a decade ago: “Today, reports of the day’s events are conveyed to the viewing public by way of **alternate universes**, The Fox News cable channel conveys its **version of reality**, while at the other end of the ideological spectrum MSNBC presents its version. They and their many counterparts on radio are more the result of an economic dynamic than a political one. Dispatching journalists into the field to gather information costs money; hiring a glib bloviator is relatively cheap, and inviting opinionated guests to vent on the air is entirely cost-free. It wouldn’t work if it weren’t popular, and audiences, it turns out, are endlessly absorbed by hearing amplified echoes of their own biases. It’s divisive and damaging to the healthy functioning of our political system, but it’s also indisputably inexpensive and, therefore, good business.” ― Ted Koppel. Lights Out: A Cyberattack, A Nation Unprepared, Surviving the Aftermath. October 27, 2015. Page 13.
