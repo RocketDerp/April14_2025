@@ -227,3 +227,7 @@ https://old.reddit.com/r/ProgressiveHQ/comments/1qmtl05/what_an_actual_domestic_
 https://old.reddit.com/r/ProgressiveHQ/comments/1qmtl05/what_an_actual_domestic_terrorist_looks_like/o1ov49o/
 
 An off-Reddit URL, description, asking people to please learn and study. Pro-education.
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qmtl05/what_an_actual_domestic_terrorist_looks_like/o1op80q/
+
+"Russian"
