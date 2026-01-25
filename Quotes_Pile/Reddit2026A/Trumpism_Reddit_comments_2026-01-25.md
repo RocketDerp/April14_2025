@@ -44,3 +44,15 @@ Everyone needs to stay at home, use social media and focus on nonfiction. Start 
 
 * "the public trust is also violated if the profession fails in its duty to alert the public when a person who holds the power of life and death over us all shows signs of clear, dangerous mental impairment. We should pause if professionals are asked to remain silent when they have seen enough evidence to sound an alarm in every other situation. When it comes to dangerousness, should not the president of a democracy, as First Citizen, be subject to the same standards of practice as the rest of the citizenry?"
 ― Bandy X. Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. Published October 3, 2017. PROLOGUE. Page 5.](https://books.google.com/books?id=g0c4DwAAQBAJ&pg=PA5&dq=dangerousness+due+to+mental+disorder+can+become+apparent+without+a+full+diagnostic+interview+and+can+be+detected+from+a+distance&hl=en&newbks=1&newbks_redir=1&sa=X)
+
+https://old.reddit.com/r/politics/comments/1qm7v6j/public_opinion_shifts_on_ice_as_advocates_warn_of/o1k7a30/
+
+10 month Reddit account in /r/Politics 
+
+Organization names change. Geography changes. This is not 1937 Germany. We speak a different language than 1937 Germany, we are an ocean apart from Germany. The hate is the problem. Stand up against hate EVERYWHERE. All places. Show the USA has learned from mistakes and go back to American teacher, from Atlanta Georgia USA. Stop cheering on hate teams. Hate vs. hate fandoms. Hate for hate reactions. Hate itself needs to be addressed in the human brain, mind, education.
+
+* February 28, 1954: "Most people can't stand up for their convictions, because the majority of people might not be doing it. See, everybody's not doing it, so it must be wrong. And since everybody is doing it, it must be right. So a sort of numerical interpretation of what's right. But I'm here to say to you this morning that some things are right and some things are wrong. Eternally so, absolutely so. **It's wrong to hate.** It always has been wrong and it always will be wrong. It's wrong in America, it's wrong in Germany, it's wrong in Russia, it's wrong in China. It was wrong in 2000 B.C., and it's wrong in 1954 A.D. It always has been wrong, and it always will be wrong." - Martin Luther King Jr.
+
+* "For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the **true becomes false and the false becomes true**. That's what hate does. You can't see right. **The symbol of objectivity** is lost." - Martin Luther King Jr.
+
+Reform the toxic clergy of the Middle East / Levant with lessons on GOODNESS. Reform the toxic clergy.
