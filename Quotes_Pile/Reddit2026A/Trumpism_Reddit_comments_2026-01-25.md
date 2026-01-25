@@ -82,3 +82,9 @@ https://old.reddit.com/r/ProgressiveHQ/comments/1qmk5j5/this_footage_is_being_re
 2 month Reddit account. The ANSWERS: Halt sports gaming, video gaming, non-essential entertainment. See here: https://github.com/RocketDerp/April14_2025/blob/main/Grim_Blunt/Stop_All_Entertainment.md
 
 Answer 2: Promote Dr. Bandy X Lee's leadership and quote her October 3, 2017 book harder than any Epstein assertions you saw on social media in year 2025. Make Dr. Bandy X Lee a topic every 47 hours.
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qmk5j5/this_footage_is_being_removed_from_reddit/o1mggi0/
+
+What "the people wanted". Addiction of BREAKING NEWS at high speed TCP/IP 5G+ delivery on the latest model Android / Apple iPhone / Apple iPad in hand. Putin / Surkov / Trump lead with antics and BREAKING NEWS stimulation to feed the We The People audience desires. Round after round of stimulating smartphone / iPad notifications. ABSENT: Repeating and quoting Dr. Bandy X Lee's mental health teachings and public education about Trumpism since October 3, 2017 (and even earlier in non-book form).
+
+* meme-talk nation. “When a population becomes distracted by trivia, when cultural life is redefined as a **perpetual round of entertainments**, when serious public conversation becomes a form of baby-talk, when, in short, a people become an audience, and their public business a vaudeville act, then a nation finds itself...” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, year 1985. Book on paper.
