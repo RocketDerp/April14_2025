@@ -577,3 +577,12 @@ Why haven't "The Media", the **social media companies** (Reddit and Bluesky) pin
 2. "The brilliance of this new type of authoritarianism is that instead of simply oppressing opposition, as had been the case with twentieth-century strains, it **climbs inside all ideologies and movements, exploiting and rendering them absurd.**" - [Peter Pomerantsev, 2014](https://www.goodreads.com/author/quotes/8035579.Peter_Pomerantsev)
 
 Reddit is the advanced, hard level, of the simulation of resistance. Where poop diaper and orange skin is prized shit-content over all else. Quotes from nonfiction books about **cult deprogramming** and group mental health and Kremlin information warfare do not get pushed on Reddit to the top.
+
+https://old.reddit.com/r/politics/comments/1qm7v6j/public_opinion_shifts_on_ice_as_advocates_warn_of/o1k758b/
+
+This is simulation of resistance. Trump is telling the Reddit audience exactly what the Reddit audience already believes: "Always follow the money", the blind and never-questioned faith that money motivates all terrorism. That being paid money is the motivation for terrorist. It just is not true. Rupert Murdoch does not PAY MONEY to his audience of Fox News. the mot loyal voters and killers are those who believe in fiction story telling. The Torah, Bible, Quran, Book of Mormon are all science FICTION stories. And fandom of the fantasy stories PAY MONEY to the Temple, Mosque, Synagogue, Church, cinema, venue. People pay for fiction. People are attracted to fiction. 
+
+Donald Trump is creating a fiction that protesters are motivate by payment an money. Reddit is attracted to this fiction storytelling. People are eating right out of the hands of Surkov students. The answer is to teach cult deprogramming, to not just say "cult", but actually start heating nonfiction books about cults.
+
+You better teach hard and stand up for what you believe in. Education of authentic learning and teaching about flaws in the human mind. Because the Roman Empire in year 380 adopted science fiction Bible as a way to lead a society - and the USA in year 2026 still has science fiction church venues all over the nation. Fox News fiction storytelling, Newsmax fiction storytelling, Reddit fiction storytelling still outsells any kind of nonfiction Wikipedia or nonfiction in general.
+
