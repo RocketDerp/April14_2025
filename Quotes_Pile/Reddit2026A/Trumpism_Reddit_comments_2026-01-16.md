@@ -2362,3 +2362,7 @@ https://old.reddit.com/r/law/comments/1qm2kb1/minnesota_national_guard_arriving_
 
 People need to be addressing the stress and mental health crisis of the entire nation, everyone. We have never had live video coverage technology like we have in January 2026. We are in a media war of live streaming. What if Trump shuts down the Internet? Now is the time to assert Dr. Bandy X Lee's book on paper and mental health / cult issues. Stand for free thinking and positive thinking. Goodness itself.
 
+https://old.reddit.com/r/agedlikemilk/comments/1qm13ae/aged_as_well_as_charlie_did/o1iifny/
+
+Yes. Federal Agents and police are trained very poorly that just seeing or witnessing a gun is with a society that cheers on Charlie Kirk weapon brandishing is a nightmare. People are raised in USA to worship and praise guns, like Charlie Kirk did.
+
