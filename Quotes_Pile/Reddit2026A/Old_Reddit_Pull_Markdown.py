@@ -739,13 +739,17 @@ def main():
 
         reddit_comment = data['comment']
 
+        entry_out = f"entry {idx} ({idx - start}/{total}"
+        # for now, squelch the unique entry index total for updating same file
+        entry_out = f"entry {idx}"
+
         # Markdown formatted output
         output_lines = [
             "\n",
             "="*13,
             "  ",
             f"## Reddit comment {data['comment_id']}\n",
-            f"    entry {idx} ({idx - start}/{total})\n",
+            f"    {entry_out}\n",
             f"Comment URL: {url}  ",
             f"Comment ID:      {data['comment_id']}  ",
             f"Author:          {data['author']}  ",
