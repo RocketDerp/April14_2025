@@ -1534,3 +1534,9 @@ https://old.reddit.com/r/PeterExplainsTheJoke/comments/1qlqkl8/help_me_please_pe
 
 Media ecology, PTSD from monomyth story pattern. Audience CPTSD like Truth Social MAGA PTSD from Fox News monomyth, Internet Research Agency Reddit filtration.
 
+https://old.reddit.com/r/andor/comments/1qlyvod/thinking_about_this_again_today/o1hxun2/
+
+Monomyth; Star Wars Andor.
+
+https://old.reddit.com/r/andor/comments/1qlyvod/thinking_about_this_again_today/o1hyd5y/
+
