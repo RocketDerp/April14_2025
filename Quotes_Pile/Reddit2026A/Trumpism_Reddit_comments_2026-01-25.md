@@ -152,3 +152,11 @@ Capture quote.
 https://old.reddit.com/r/wisconsin/comments/1qmnhbj/he_was_from_green_bay/o1njok2/
 
 **Understand that Russian information warfare** since March 2013 did not hit every group the same, not all were programmed into self-harm at the same time. MAGA rural less-educated Americans, who never heard of Neil Postman at NYU since year 1985... were already "softened up" by Fox News HDTV addictions / Rupert Murdoch manipulation. The Saint Petersburg Internet Research Agency echoland entertainment programming mindsets didn't resonate as fast with some filter-bubble groups.
+
+https://old.reddit.com/r/nottheonion/comments/1qmlb7m/white_house_alters_arrest_photo_of_ice_protester/o1mmhfo/
+
+<img width="995" height="235" alt="image" src="https://github.com/user-attachments/assets/5e93a3f5-45a5-49ea-a491-cdfcd58cab1e" />
+
+Top-voted Reddit comment, popular, on important posting. Twitter-length, gullible population. Social media commenting with low-effort short messages. Anything to avoid nonfiction serious learning about Surkovian information warfare and Surkovian governing techniques since year 2000. Minds blown and easily exploited with low-effort pranks, memes, content from Kremlin and White House since March 2013. Surkov won. The show is not just for child-ages, that's what the Twitter-length commenting mindsets see, the child performance front-end.
+
+* **Year 2014**... "He came originally from the avant-garde art world, and those who have studied his career, say that what Surkov has done, is to **import ideas from conceptual art into the very heart of politics**. His aim is to undermine peoples' perceptions of the world, so they never know what is really happening. Surkov turned Russian **politics into a bewildering, constantly changing piece of theater**. He sponsored all kinds of groups, from neo-Nazi skinheads" - December 31, 2014. BBC. Adam Curtis. https://www.youtube.com/watch?v=h9_L9GRRsQo
