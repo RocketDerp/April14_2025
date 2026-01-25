@@ -190,3 +190,9 @@ Putin has been killing people in Ukraine since February 2014. Putin is leading t
 The entire goal of Ukraine war was to make NATO hate USA, USA to hate humanism. USA to abandon all goodness education and teaching from Dr. Martin Luther King Jr. Hate vs. Hate, hate for hate. Surkov designed the information war off the Middle East conflicts. Syria war study, the Arab Spring. I was in Amman, Jordan in March 2011 studying the hate patterns for years. Hate motivates. Reddit loves video game machines and messaging machines to spread hate against humans. Anti-empathy. That's the Elon Musk tech leadership, Trump's Truth Social hate platform leading.
 
 * March 25, 2025 - Elon Musk preaching that hate is most important. Empathy, forgiveness are bad. Reddit tech lovers adopted these same values. Surkov won. https://www.BroadView.org/elon-musk-empathy-weakness/
+
+https://old.reddit.com/r/worldnews/comments/1qlxv6a/meloni_trumps_nato_remarks_on_afghanistan/o1hpf7c/
+
+https://old.reddit.com/r/worldnews/comments/1qlxv6a/meloni_trumps_nato_remarks_on_afghanistan/o1hq6gx/
+
+https://old.reddit.com/r/worldnews/comments/1qlxv6a/meloni_trumps_nato_remarks_on_afghanistan/o1hqrj9/
