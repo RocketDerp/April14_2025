@@ -1,6 +1,6 @@
 Stephen Alfred Gutknecht
 
-Long-form scratch pad / dumping ground.
+Long-form scratch pad / dumping ground. Intranet exposed.
 
 Much of this content is extremely raw product of brain damage attempting to express ideas. Not edited, not spell checked, serious problems with language brain issues. [About This GitHub Project / Content](/Important/About/About_this_GitHub.md).
 
