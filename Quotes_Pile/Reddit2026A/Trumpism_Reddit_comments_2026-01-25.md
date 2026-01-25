@@ -161,7 +161,10 @@ Top-voted Reddit comment, popular, on important posting. Twitter-length, gullibl
 
 * **Year 2014**... "He came originally from the avant-garde art world, and those who have studied his career, say that what Surkov has done, is to **import ideas from conceptual art into the very heart of politics**. His aim is to undermine peoples' perceptions of the world, so they never know what is really happening. Surkov turned Russian **politics into a bewildering, constantly changing piece of theater**. He sponsored all kinds of groups, from neo-Nazi skinheads" - December 31, 2014. BBC. Adam Curtis. https://www.youtube.com/watch?v=h9_L9GRRsQo
 
+
 https://old.reddit.com/r/nottheonion/comments/1qmlb7m/white_house_alters_arrest_photo_of_ice_protester/o1mmv3n/
+
+<img width="872" height="273" alt="image" src="https://github.com/user-attachments/assets/7b3837a1-28b8-4ff8-ae83-745078b1da2d" />
 
 The Kremlin and White House are running circles around the Reddit fandom. Extreme low-effort commenting is being upvoted as engagement to the Reality TV / Reality Social show. The Reddit audience has such extreme recency bias that people have lost all sense THIS STYLE OF LOW-EFFORT COMMENTING HAS BEEN GOING ON FOR OVER TEN YEARS AND SEVEN MONTHS. Reddit meme aficionados who do not see the multiple venues an filter-bubble patterns Cambridge Analytica and the Russian military worked out in late year 2012. See also: https://GitHub.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Cambridge_Analytica_Quotes.md
 
