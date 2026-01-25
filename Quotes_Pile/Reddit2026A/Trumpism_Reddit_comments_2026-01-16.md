@@ -2324,7 +2324,7 @@ https://old.reddit.com/r/Fauxmoi/comments/1qm2xm1/natalie_portman_speaks_out_aga
 
 https://old.reddit.com/r/Fauxmoi/comments/1qm2xm1/natalie_portman_speaks_out_against_ice_while_at/o1iupfr/
 
-Trump fan wants goodness to be silenced. Anti-education, anti-Malala, anti-teaching, anti-learning. Because communication and learning "is not doing something". Pro-ignorance, wants people stupid an dumb so they "o things" like hit each other, shoot each other, terrorist bomb each other, shoot up schools. Because *saying something* with words in a school isn't "doing something". Pro-Putin. MAGA attitude, *do something*, even if it is evil and wrecking the world. Don't think, don't share ideas, don't assert goodness education. An egoism "shut up" message.
+Trump fan wants goodness to be silenced. Anti-education, anti-Malala, anti-teaching, anti-learning. Because communication and learning "is not doing something". Pro-ignorance, wants people stupid and dumb so they "do things" like hit each other, shoot each other, terrorist bomb each other, shoot up schools. Because *saying something* with words in a school isn't "doing something". Pro-Putin. MAGA attitude, *do something*, even if it is evil and wrecking the world. Don't think, don't share ideas, don't assert goodness education. An egoism "shut up" message.
 
 https://old.reddit.com/r/Fauxmoi/comments/1qm2xm1/natalie_portman_speaks_out_against_ice_while_at/o1ix9lv/
 
@@ -2340,7 +2340,7 @@ https://old.reddit.com/r/AskReddit/comments/1qm2nbu/why_was_kyle_rittenhouse_cha
 
 https://old.reddit.com/r/AskReddit/comments/1qm2nbu/why_was_kyle_rittenhouse_championed_by_the_right/o1jhr9z/
 
-1-month Reddit account. Amusement, funny, anti-reality, comedy mind-fuck for audience. "t’s hilarious". Fanatic, fandom, of ICE and Trump as entertainment.
+1-month Reddit account. Amusement, funny, anti-reality, comedy mind-fuck for audience. "it’s hilarious". Fanatic, fandom, of ICE and Trump as entertainment.
 
 https://old.reddit.com/r/AskReddit/comments/1qm2nbu/why_was_kyle_rittenhouse_championed_by_the_right/o1ivauw/
 
@@ -2393,3 +2393,7 @@ We all need to be promoting peaceful protest. And asking all the world's mental 
 https://old.reddit.com/r/washingtondc/comments/1qm2oyr/outside_ice_hq_right_now/o1ivx22/
 
 5 month Reddit account. No off-Reddit URL, top voted comment. Online protest of cult deprogramming of MAGA, learning of Russian military mental manipulation is urgent and long overdue. Dr. Bandy X Lee should be followed as a good leader.
+
+https://old.reddit.com/r/catbongos/comments/1qm2rl2/if_you_still_support_trumpice_even_slightly_youre/o1iye3i/
+
+Anti-education, anti-Malala, anti-teaching, anti-learning.
