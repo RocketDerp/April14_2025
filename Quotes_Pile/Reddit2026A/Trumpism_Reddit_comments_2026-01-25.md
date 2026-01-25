@@ -64,3 +64,12 @@ https://old.reddit.com/r/politics/comments/1qml10h/billionaire_ceos_slammed_for_
 https://old.reddit.com/r/politics/comments/1qml10h/billionaire_ceos_slammed_for_schmoozing_trump_at/o1mjntz/
 
 Oppression is getting on the same page of content. Not to say that in the post-Surkov world there isn't a massive number of ARG patterns to choose your own fiction adventure.
+
+https://old.reddit.com/r/politics/comments/1qmie7b/ice_nodding_to_farright_extremists_in_recruitment/o1m0sn2/
+
+Human symptoms of over-saturation of repeating messages. Islamic year 635 onward repeating Quran indoctrination behaviors in adults. A tightly packed set of monomyth patterns in the mind, public dreams, refreshed and altered over the years. Avoidance of information overload via out-group hate. "Old World Order" before year 1776, anti-inclusive. Anti Free Masons thinking. Loudly and softly, spectrum of volumes and tones, but a smaller monomyth patterns. Anti-science. "Enclosed thinking", often fiction-fixated traditions.
+
+* Avoidance: "We hold these truths to be self-evident, that all men are created equal, that they are endowed by their Creator with certain unalienable Rights" https://en.wikipedia.org/wiki/All_men_are_created_equal
+
+* Smaller public dream / mass mind / mindsets. Avoidance: “How is it that hardly any major religion has looked at science and concluded, “This is better than we thought! The Universe is **much bigger than** our prophets said, grander, more subtle, more elegant?” Instead they say, “No, no, no! My god is a **little god**, and I want him to stay that way.” A religion, old or new, that stressed the magnificence of the Universe as revealed by modern science might be able to draw forth reserves of reverence and awe hardly tapped by the conventional faiths.” ― Carl Sagan, Pale Blue Dot: A Vision of the **Human Future** in Space. November 8, 1994. 429 pages.
+
