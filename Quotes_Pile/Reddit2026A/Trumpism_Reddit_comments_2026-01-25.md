@@ -108,3 +108,13 @@ OPERA_A Trump / Putin / MAGA "Daddy Issues" is one of Dr. Lee's chapter titles i
 https://old.reddit.com/r/politics/comments/1qmk7ev/pam_bondi_offers_to_pull_ice_out_of_minneapolis/o1mdme8/
 
 Organized crime. Organized mythology. Serves to give the population, We The People, a topic to focus on later in the year instead of RIGHT HERE RIGHT NOW ON REDDIT SUNDAY TODAY: Promoting Dr. Bandy X Lee's nonfiction book from October 3, 2017 as an education campaign, peer to peer nonfiction education focus.
+
+https://old.reddit.com/r/technology/comments/1qmkwht/white_house_alters_arrest_photo_of_ice_protester/o1mkka4/
+
+The Kremlin / White House using Surkov student methods; plucking on the heart-strings of deeply programmed memes in the mind. John 1:1 Sunday mind-plucking with the Surkov MonoMyth patterns.
+
+Why haven't these social media companies (Reddit and Bluesky) pinned educational posts to people and informed their users to see the *forest for the trees* of how these techniques work on the general population (We The People) full of meme addictions:
+
+1. "But the key thing was, that Surkov then let it be known that this was what he was doing, which meant that no one was sure what was real or fake. As one journalist put it: "It is a strategy of power that keeps any opposition constantly confused." A **ceaseless shape-shifting that is unstoppable** because it is undefinable." - [Adam Curtis, year 2014, BBC](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html)
+
+2. "The brilliance of this new type of authoritarianism is that instead of simply oppressing opposition, as had been the case with twentieth-century strains, it **climbs inside all ideologies and movements, exploiting and rendering them absurd.**" - [Peter Pomerantsev, 2014](https://www.goodreads.com/author/quotes/8035579.Peter_Pomerantsev)
