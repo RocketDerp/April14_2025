@@ -76,3 +76,9 @@ Human symptoms of over-saturation of repeating messages. Islamic year 635 onward
 https://old.reddit.com/r/politics/comments/1qmie7b/ice_nodding_to_farright_extremists_in_recruitment/o1m79z5/
 
 Old-school long-form Reddit posting in January 2026 on serious important topics! BrainRot Society 47 every-47-hours newsletter kind of material. To put into a FAQ / Wiki for organized same-page assertions.
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qmk5j5/this_footage_is_being_removed_from_reddit/o1mfc15/
+
+2 month Reddit account. The ANSWERS: Halt sports gaming, video gaming, non-essential entertainment. See here: https://github.com/RocketDerp/April14_2025/blob/main/Grim_Blunt/Stop_All_Entertainment.md
+
+Answer 2: Promote Dr. Bandy X Lee's leadership and quote her October 3, 2017 book harder than any Epstein assertions you saw on social media in year 2025. Make Dr. Bandy X Lee a topic every 47 hours.
