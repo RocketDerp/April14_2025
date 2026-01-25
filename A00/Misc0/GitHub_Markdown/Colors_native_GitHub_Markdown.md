@@ -41,3 +41,14 @@ more complex
 [!WARNING] (orange background)
 
 [!CAUTION] (red background)
+
+&nbsp;
+
+> [!TIP]
+> This is tip
+
+> [!CAUTION]
+> this is caution
+
+> [!IMPORTANT]
+> This is important
