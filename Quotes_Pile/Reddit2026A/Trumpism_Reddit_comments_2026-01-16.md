@@ -2329,3 +2329,8 @@ Trump fan wants goodness to be silenced. Anti-education, anti-Malala, anti-teach
 https://old.reddit.com/r/Fauxmoi/comments/1qm2xm1/natalie_portman_speaks_out_against_ice_while_at/o1ix9lv/
 
 4-month Reddit account. No call for anything off-Reddit. Dr. Bandy X Lee has been leading since year 2017, but people aren't addressing the cult behaviors / cult crisis with nonfiction education.
+
+https://old.reddit.com/r/AskReddit/comments/1qm2nbu/why_was_kyle_rittenhouse_championed_by_the_right/o1iqzqd/
+
+ToDo: "partisanship" is a word I don't use enough. Sports-team think, "winner takes all" sports mentality. Celebration of ignorance, celebration of misunderstanding.
+
