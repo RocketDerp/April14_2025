@@ -118,3 +118,7 @@ Why haven't these social media companies (Reddit and Bluesky) pinned educational
 1. "But the key thing was, that Surkov then let it be known that this was what he was doing, which meant that no one was sure what was real or fake. As one journalist put it: "It is a strategy of power that keeps any opposition constantly confused." A **ceaseless shape-shifting that is unstoppable** because it is undefinable." - [Adam Curtis, year 2014, BBC](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html)
 
 2. "The brilliance of this new type of authoritarianism is that instead of simply oppressing opposition, as had been the case with twentieth-century strains, it **climbs inside all ideologies and movements, exploiting and rendering them absurd.**" - [Peter Pomerantsev, 2014](https://www.goodreads.com/author/quotes/8035579.Peter_Pomerantsev)
+
+https://old.reddit.com/r/technology/comments/1qmkwht/white_house_alters_arrest_photo_of_ice_protester/o1mitl7/
+
+Twitter-length message on Reddit commenting environment. Using name-calling, dehumanizing Americans as "fly maggots". Anything but asserting Dr. Bandy X. Lee's writing and nonfiction learning, above ELI13 TLDR Reddit commenting. Highly upvoted out-group mocking and insulting, following Trump's leadership of Truth Social insulting and mocking as power and popularity methods.
