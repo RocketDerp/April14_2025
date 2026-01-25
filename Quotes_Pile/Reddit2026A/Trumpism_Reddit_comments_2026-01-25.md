@@ -272,3 +272,19 @@ https://old.reddit.com/r/nba/comments/1qmwwki/steve_kerr_were_being_divided_by_m
 https://old.reddit.com/r/nba/comments/1qmwwki/steve_kerr_were_being_divided_by_media_forprofit/o1pezup/
 
 "maddening"
+
+https://old.reddit.com/r/nba/comments/1qmwwki/steve_kerr_were_being_divided_by_media_forprofit/o1paipi/
+
+9 month Reddit account.
+
+https://old.reddit.com/r/nba/comments/1qmwwki/steve_kerr_were_being_divided_by_media_forprofit/o1pdp2y/
+
+https://old.reddit.com/r/nba/comments/1qmwwki/steve_kerr_were_being_divided_by_media_forprofit/o1piwog/
+
+"insane"
+
+https://old.reddit.com/r/nba/comments/1qmwwki/steve_kerr_were_being_divided_by_media_forprofit/o1pefm8/
+
+Social media has exposed that we failed to teach media ecology. Neil Postman and Marshall McLuhan for starters. The 1950's, 1960's, 1970's, 1980's, 1990's we had two great teachers directly addressing the public media consumers in North America. McLuhan from University of Toronto, Neil Postman from New York University.
+
+* "Being illiterate in the processes of any medium (language) leaves one at the mercy of those who control it. The new media — these new languages — then are among **the most important "subjects" to be studied in the interests of survival**." - Neil Postman on media ecology
