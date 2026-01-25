@@ -73,3 +73,6 @@ Human symptoms of over-saturation of repeating messages. Islamic year 635 onward
 
 * Smaller public dream / mass mind / mindsets. Avoidance: “How is it that hardly any major religion has looked at science and concluded, “This is better than we thought! The Universe is **much bigger than** our prophets said, grander, more subtle, more elegant?” Instead they say, “No, no, no! My god is a **little god**, and I want him to stay that way.” A religion, old or new, that stressed the magnificence of the Universe as revealed by modern science might be able to draw forth reserves of reverence and awe hardly tapped by the conventional faiths.” ― Carl Sagan, Pale Blue Dot: A Vision of the **Human Future** in Space. November 8, 1994. 429 pages.
 
+https://old.reddit.com/r/politics/comments/1qmie7b/ice_nodding_to_farright_extremists_in_recruitment/o1m79z5/
+
+Old-school long-form Reddit posting in January 2026 on serious important topics! BrainRot Society 47 every-47-hours newsletter kind of material. To put into a FAQ / Wiki for organized same-page assertions.
