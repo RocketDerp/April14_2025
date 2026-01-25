@@ -40,11 +40,30 @@ error_fetch_count = 0
 error_parse_a_count = 0
 fetch_reddit_count_a = 0
 replies_users_fetch = 0
-replies_users_max = 64
+replies_users_max = 100
 # every slowdown_every fetches kick in delay
 slowdown_every = 2
 age18_count = 0
 args = {}
+
+
+
+# typically called BEFORE the live-fetch
+#   after it has been determined live-fetch needed
+#   due to no desired usage or available local file
+def increment_live_fetch(caller_index):
+    global slowdown_every
+    global fetch_reddit_count_a
+
+    fetch_reddit_count_a += 1
+    print(f"live fetch noted caller {caller_index} on {fetch_reddit_count_a}")
+
+    if fetch_reddit_count_a % slowdown_every == 0:
+        print(f"fetch_reddit_count_a {fetch_reddit_count_a} is a multiple of {slowdown_every}.")
+        sleep_time = random.uniform(11, 22)
+        quit_request = pause_with_quit(sleep_time)
+        if quit_request:
+            sys.exit(1)
 
 
 # agenda here is to not need global in every function
@@ -292,7 +311,6 @@ def walk_comment_tree(comment_div, level=0):
 
 
 def fetch_comment_data(url, idx=None, args=None):
-    global fetch_reddit_count_a
     global replies_users_fetch
     global age18_count
 
@@ -340,7 +358,7 @@ def fetch_comment_data(url, idx=None, args=None):
 
     if html_text is None:
         # no HTML loaded from local storage, do live Internet fetch
-        fetch_reddit_count_a += 1
+        increment_live_fetch(1)
         res = requests.get(url, headers=HEADERS)
         fetch_time_epoch = int(time.time())
         if res.status_code != 200:
@@ -472,9 +490,7 @@ def fetch_comment_data(url, idx=None, args=None):
 
 
 def fetch_user_info_hover(username, args=None):
-    global fetch_reddit_count_a
     global error_fetch_count
-    global slowdown_every
     global error_parse_a_count
 
     url = f"https://old.reddit.com/user/{username}/about.json"
@@ -543,14 +559,7 @@ def fetch_user_info_hover(username, args=None):
 
     if reddit_account_data is None:
         print(f"live-fetch for user_info_hover {url}")
-        fetch_reddit_count_a += 1
-
-        if fetch_reddit_count_a % slowdown_every == 0:
-            print(f"fetch_reddit_count_a {fetch_reddit_count_a} is a multiple of {slowdown_every}.")
-            sleep_time = random.uniform(11, 22)
-            quit_request = pause_with_quit(sleep_time)
-            if quit_request:
-                sys.exit(1)
+        increment_live_fetch(2)
         
         res = requests.get(url, headers=HEADERS)
         fetch_time_epoch = int(time.time())
@@ -639,11 +648,10 @@ def fetch_user_info_hover(username, args=None):
 
 
 def fetch_user_info_full(username):
-    global fetch_reddit_count_a
 
     url = f"https://old.reddit.com/user/{username}/"
     print(f"live-fetch for user_info_full {url}")
-    fetch_reddit_count_a += 1
+    increment_live_fetch(3)
     res = requests.get(url, headers=HEADERS)
     if res.status_code != 200:
         live_fetch_error(res, 2)
@@ -665,6 +673,7 @@ def main():
     global error_fetch_count
     global age18_count
     global error_parse_a_count
+    global fetch_reddit_count_a
 
     parser = argparse.ArgumentParser(description="Parse Reddit comments from markdown list.")
     parser.add_argument("--file", required=True, help="Input markdown file containing Reddit comment URLs.")
@@ -702,6 +711,7 @@ def main():
             errorCountA += 1
             print(f"\n****** ERROR fetching comment: {e}. Error count: {errorCountA}")
             print(traceback.format_exc())
+            print("GOING TO PAUSE 5 seconds before saving the error")
             quit_request = pause_with_quit(5)
             if quit_request:
                 sys.exit(1)
@@ -716,6 +726,7 @@ def main():
             except Exception as save_err:
                 print(f"***** ERROR Failed to save ERROR HTML: {save_err}")
 
+            print("GOING TO PAUSE 30 seconds before continuing to next entry. Rerun app to retry.")
             quit_request = pause_with_quit(30)
             if quit_request:
                 sys.exit(1)
