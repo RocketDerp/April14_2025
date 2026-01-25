@@ -211,3 +211,9 @@ https://old.reddit.com/r/worldnews/comments/1qmfprx/over_36500_killed_in_irans_d
 10 month Reddit account. Tweet-length message, Twitter-thinking. Highly popular / upvoted. The first reply makes the larger point of hate being a global problem. The February 28, 1954 equation.
 
 * February 28, 1954: "Most people can't stand up for their convictions, because the majority of people might not be doing it. See, everybody's not doing it, so it must be wrong. And since everybody is doing it, it must be right. So a sort of numerical interpretation of what's right. But I'm here to say to you this morning that some things are right and some things are wrong. Eternally so, absolutely so. **It's wrong to hate.** It always has been wrong and it always will be wrong. It's wrong in America, it's wrong in Germany, it's wrong in Russia, it's wrong in China. It was wrong in 2000 B.C., and it's wrong in 1954 A.D. It always has been wrong, and it always will be wrong." - Martin Luther King Jr.
+
+https://old.reddit.com/r/worldnews/comments/1qmfprx/over_36500_killed_in_irans_deadliest_massacre/o1lr1v8/
+
+Brain damage cased by media consumption of REALITY itself, real world. Which is why we need to address all hate as a global issue. A big reason why I took interest in the Arab Spring in November and December 2009 and ended up traveling to Africa - to have intimate experience if people actually desires to use education and teaching to confront terrorism and mob mentality hate. To study the attraction people had to each other and to toxic Internet content over goodness.
+
+* "The unformulated message of an assembly of news items from every quarter of the globe is that the world today is one city. All war is civil war. All suffering is our own." - University of Toronto. Marshall McLuhan
