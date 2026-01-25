@@ -2423,3 +2423,19 @@ https://old.reddit.com/r/MurderedByWords/comments/1qm6xna/these_people_are_broke
 Billionaire media systems. Elon Musk, richest man in the world, can make any video with private systems we the public can't even see the capability of.
 
 https://old.reddit.com/r/MurderedByWords/comments/1qm6xna/these_people_are_broken/o1jtmsf/
+
+https://old.reddit.com/r/LiveFromNewYork/comments/1qm9bpk/no_just_fucking_no_this_is_not_a_time_for_a_trump/o1k9bsl/
+
+Saturday Night Love, comedy-washing sane-washing Trump that it's all just entertainment. Neil Postman NYU 1985 book "Amusing Ourselves to Death"- population that will die for self-harm hate-filled humor.
+
+https://old.reddit.com/r/LiveFromNewYork/comments/1qm9bpk/no_just_fucking_no_this_is_not_a_time_for_a_trump/o1ke5pc/
+
+Comedy-washing, South Park does it too.
+
+https://old.reddit.com/r/LiveFromNewYork/comments/1qm9bpk/no_just_fucking_no_this_is_not_a_time_for_a_trump/o1k9vi2/
+
+Reddit has been meme-washing Trump daily for over 10 years and 7 months. Joke tone and humor mocking wins all serious topics.
+
+https://old.reddit.com/r/LiveFromNewYork/comments/1qm9bpk/no_just_fucking_no_this_is_not_a_time_for_a_trump/o1ke4uz/
+
+Surkov won. People have no idea they have been eating out of Putin Kremlin hands. "Laughing at tyranny is no longer helpful." indeed. Mocking and avoiding nonfiction learning has been the problem since March 2013.
