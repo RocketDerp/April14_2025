@@ -239,3 +239,14 @@ Reddit fandom calling for more images. Not calling for We The People to rise up 
 We need to be doing cult deprogramming and education about what Cambridge Analytica and the Internet Research Agency has done to society. Entertaining and stimulating images are not addressing the subconscious exploit that the Kremlin information war agents have deployed to harm USA and NATO.
 
 * From September 9, 2014 - 11 years 4 months and some days ago, which is **more than a decade** - we could have kept repeating it and defeated Putin's takeover of USA hearts and minds: https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ "Russia and the Menace of Unreality: How Vladimir Putin is revolutionizing information warfare. By Peter Pomerantsev. At the NATO summit in Wales last week, General Philip Breedlove, the military alliance’s top commander, made a bold declaration. Russia, he said, is waging “the **most amazing information warfare blitzkrieg we have ever seen in the history of information warfare.**” It was something of an underestimation. The new Russia doesn’t just deal in the petty disinformation, forgeries, lies, leaks, and cyber-sabotage usually associated with information warfare. It reinvents reality, creating **mass hallucinations** that then translate into political action."
+
+https://old.reddit.com/r/nba/comments/1qmwwki/steve_kerr_were_being_divided_by_media_forprofit/o1payx6/
+
+Media ecology. Posting title "for profit".
+
+https://old.reddit.com/r/nba/comments/1qmwwki/steve_kerr_were_being_divided_by_media_forprofit/o1pb1p6/
+
+People have been mentally manipulated by the Russian Internet Research Agency to view all Trumpism / MAGA / Kremlin / White House as a source of entertainment and sports shows above all else since March 2013.
+
+* “Everything in our background has prepared us to know and resist a prison when the gates begin to close around us . . . But what if there are no cries of anguish to be heard? Who is prepared to take arms against a sea of amusements? To whom do we complain, and when, and in what tone of voice, when serious discourse dissolves into giggles? What is the antidote to a culture's being drained by laughter?”
+― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. New York University. Media studies / media ecology professor.
