@@ -2389,3 +2389,7 @@ Erika Kirk had her husband murdered by a gun. What does she have to say about th
 https://old.reddit.com/r/washingtondc/comments/1qm2oyr/outside_ice_hq_right_now/o1iusmf/
 
 We all need to be promoting peaceful protest. And asking all the world's mental health workers to turn to Dr. Bandy X Lee's teaching and education and help with the massive cult deprogramming of MAGA / Facebook / Twitter / Fox News / Reddit / etc.
+
+https://old.reddit.com/r/washingtondc/comments/1qm2oyr/outside_ice_hq_right_now/o1ivx22/
+
+5 month Reddit account. No off-Reddit URL, top voted comment. Online protest of cult deprogramming of MAGA, learning of Russian military mental manipulation is urgent and long overdue. Dr. Bandy X Lee should be followed as a good leader.
