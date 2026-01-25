@@ -2381,3 +2381,7 @@ https://old.reddit.com/r/agedlikemilk/comments/1qm13ae/aged_as_well_as_charlie_d
 Charlie Kirk was likely manipulated by Russian media. He was clearly a media centered person. His podcast and technology focus. I doubt he had any education about Surkov. I doubt he spent the minimum of 120 hours to get a basic introduction of the state of the art mental manipulation from  Peter Pomerantsev.
 
 * “The Kremlin idea is to own all forms of political discourse, to not let any independent movements develop outside its walls.” ― Peter Pomerantsev, Nothing Is True and Everything Is Possible: The Surreal Heart of the New Russia
+
+https://old.reddit.com/r/agedlikemilk/comments/1qm13ae/aged_as_well_as_charlie_did/o1jdaox/
+
+Erika Kirk had her husband murdered by a gun. What does she have to say about these shooting.
