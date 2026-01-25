@@ -16,6 +16,20 @@ gap between
 
 &nbsp;
 
+more complex
+
+> [!NOTE]
+> Useful information that users should see.
+> Second line
+>
+> Nothing on previous line, third line was empty.
+>
+> * can I do markdown here?
+>
+> **Does bold work?**
+
+&nbsp;
+
 &nbsp;
 
 [!NOTE] (blue background)
