@@ -217,3 +217,21 @@ https://old.reddit.com/r/worldnews/comments/1qmfprx/over_36500_killed_in_irans_d
 Brain damage cased by media consumption of REALITY itself, real world. Which is why we need to address all hate as a global issue. A big reason why I took interest in the Arab Spring in November and December 2009 and ended up traveling to Africa - to have intimate experience if people actually desires to use education and teaching to confront terrorism and mob mentality hate. To study the attraction people had to each other and to toxic Internet content over goodness.
 
 * "The unformulated message of an assembly of news items from every quarter of the globe is that the world today is one city. All war is civil war. All suffering is our own." - University of Toronto. Marshall McLuhan
+
+https://old.reddit.com/r/worldnews/comments/1qmfprx/over_36500_killed_in_irans_deadliest_massacre/o1ljxuq/
+
+Democracy does not work without "love thy neighbor", "love thy enemy". Published year 1988:
+
+CAMPBELL: But in the Bible, eternity withdraws, and nature is corrupt, nature has fallen. In biblical thinking, we live in exile.
+
+BILL MOYERS: As we sit here and talk, there is one story after another of car bombings in Beirut — by the Muslims of the Christians, by the Christians of the Muslims, and by the Christians of the Christians. It strikes me that Marshall McLuhan was right when he said that television has made a global village of the world—but he didn’t know the global village would be Beirut. What does that say to you?
+
+CAMPBELL: It says to me that they don’t know how to apply their religious ideas to contemporary life, and **to human beings rather than just to their own community**. It’s a terrible example of the failure of religion to meet the modern world. These three mythologies are fighting it out. **They have disqualified themselves for the future.**
+
+MOYERS: What kind of new myth do we need?
+
+CAMPBELL: We need myths that will identify the individual not with his local group but with the planet. A model for that is the United States. Here were thirteen different little colony nations that decided to act in the mutual interest, without disregarding the individual interests of any one of them.
+
+MOYERS: There is something about that on the Great Seal of the United States.
+
+CAMPBELL: That’s what the Great Seal is all about.
