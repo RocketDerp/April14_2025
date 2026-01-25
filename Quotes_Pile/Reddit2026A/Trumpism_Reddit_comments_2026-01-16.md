@@ -2346,3 +2346,6 @@ https://old.reddit.com/r/AskReddit/comments/1qm2nbu/why_was_kyle_rittenhouse_cha
 
 Yes. Left vs. right, "liberals' word programming have become gang symbolism. Street signs, symbols of out-group hate. Brain rot of division, anti-goodness, anti-comprehension. The Founding Fathers Free Masons did not teach this binary bi-polar logic, and The Great Seal of the United States of America specifically teaches against logic polarity.
 
+https://old.reddit.com/r/AskReddit/comments/1qm2nbu/why_was_kyle_rittenhouse_championed_by_the_right/o1ivd5r/
+
+Out-group hate logic. Pro-hate current meaning of the phrase.
