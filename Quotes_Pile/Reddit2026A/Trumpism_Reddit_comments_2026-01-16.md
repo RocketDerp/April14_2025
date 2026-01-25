@@ -2291,3 +2291,10 @@ https://old.reddit.com/r/videos/comments/1qlr6sn/i_dont_think_maga_understands_h
 Liberal vs. conservative brain-rot. The Russian information war since March 2013 is about fiction vs. nonfiction. Surkov won. Fiction wins. Trump is a great entertaining fiction storytelling. Reddit audiences hang on every photograph and speech of Trump. Fiction is far more popular.
 
 Serious nonfiction like Dr. Bandy X Lee's book and leadership since year 2017 - unpopular. **Donald Trump bullshit-posting bullshit-commenting, very popular** with shit-commenting shit-posting Reddit fandom. Shit sells, shit makes money, bullshit is popular. Nonfiction is ignored and blocked.
+
+https://old.reddit.com/r/politics/comments/1qm06kf/minnesota_gov_tim_walz_activates_state_national/o1i9qfo/
+
+https://old.reddit.com/r/politics/comments/1qm06kf/minnesota_gov_tim_walz_activates_state_national/o1iadzb/
+
+Rupert Murdoch media.
+
