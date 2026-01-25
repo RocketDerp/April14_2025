@@ -196,3 +196,12 @@ https://old.reddit.com/r/worldnews/comments/1qlxv6a/meloni_trumps_nato_remarks_o
 https://old.reddit.com/r/worldnews/comments/1qlxv6a/meloni_trumps_nato_remarks_on_afghanistan/o1hq6gx/
 
 https://old.reddit.com/r/worldnews/comments/1qlxv6a/meloni_trumps_nato_remarks_on_afghanistan/o1hqrj9/
+
+https://old.reddit.com/r/worldnews/comments/1qmfprx/over_36500_killed_in_irans_deadliest_massacre/o1lit6j/
+
+Iran. Anti-Malala, anti-women, anti-girls, elderly male rulers. Police state with Allah in the sky judging everyone. Fiction vs. nonfiction. "War Against Reality" tradition of { Torah, Bible, Quran, Book of Mormon } leadership, "Old World Order" of anti-science, anti-reality.
+
+* “We felt like the Taliban saw us as like little dolls to control, telling us what to do and how to dress. I thought if God wanted us to be like that He would not have made us all different.”
+― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. October 8, 2013
+
+* "The unformulated message of an assembly of news items from every quarter of the globe is that the world today is one city. All war is civil war. All suffering is our own." - University of Toronto. Marshall McLuhan
