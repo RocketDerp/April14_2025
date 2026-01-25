@@ -13,3 +13,17 @@ gap between
 
 > [!WARNING]
 > Critical warning message or important alert.
+
+&nbsp;
+
+&nbsp;
+
+[!NOTE] (blue background)
+
+[!TIP] (green background)
+
+[!IMPORTANT] (purple background)
+
+[!WARNING] (orange background)
+
+[!CAUTION] (red background)
