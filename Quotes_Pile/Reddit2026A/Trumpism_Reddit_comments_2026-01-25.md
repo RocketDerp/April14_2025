@@ -231,3 +231,11 @@ An off-Reddit URL, description, asking people to please learn and study. Pro-edu
 https://old.reddit.com/r/ProgressiveHQ/comments/1qmtl05/what_an_actual_domestic_terrorist_looks_like/o1op80q/
 
 "Russian"
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qmtl05/what_an_actual_domestic_terrorist_looks_like/o1ox9m5/
+
+Reddit fandom calling for more images. Not calling for We The People to rise up and confront the cult psychological issues of MAGA and Fox News HDTV media cults... just wanting to spread the image of leaders more. Image cult behaviors. What is being AVOIDED: quoting and linking Dr. Bandy X Lee's book since October 3, 2017. Asserting mental health education, nonfiction books, so people stop behaving compulsively obedient to "Daddy", "Father Figure" leaders as conditioned by the IRA since March 2013.
+
+We need to be doing cult deprogramming and education about what Cambridge Analytica and the Internet Research Agency has done to society. Entertaining and stimulating images are not addressing the subconscious exploit that the Kremlin information war agents have deployed to harm USA and NATO.
+
+* From September 9, 2014 - 11 years 4 months and some days ago, which is **more than a decade** - we could have kept repeating it and defeated Putin's takeover of USA hearts and minds: https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ "Russia and the Menace of Unreality: How Vladimir Putin is revolutionizing information warfare. By Peter Pomerantsev. At the NATO summit in Wales last week, General Philip Breedlove, the military alliance’s top commander, made a bold declaration. Russia, he said, is waging “the **most amazing information warfare blitzkrieg we have ever seen in the history of information warfare.**” It was something of an underestimation. The new Russia doesn’t just deal in the petty disinformation, forgeries, lies, leaks, and cyber-sabotage usually associated with information warfare. It reinvents reality, creating **mass hallucinations** that then translate into political action."
