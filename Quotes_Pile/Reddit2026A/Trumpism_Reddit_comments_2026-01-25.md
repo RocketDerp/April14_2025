@@ -169,3 +169,9 @@ https://old.reddit.com/r/nottheonion/comments/1qmlb7m/white_house_alters_arrest_
 The Kremlin and White House are running circles around the Reddit fandom. Extreme low-effort commenting is being upvoted as engagement to the Reality TV / Reality Social show. The Reddit audience has such extreme recency bias that people have lost all sense THIS STYLE OF LOW-EFFORT COMMENTING HAS BEEN GOING ON FOR OVER TEN YEARS AND SEVEN MONTHS. Reddit meme aficionados who do not see the multiple venues an filter-bubble patterns Cambridge Analytica and the Russian military worked out in late year 2012. See also: https://GitHub.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Cambridge_Analytica_Quotes.md
 
 People need to halt the entertaining engagement of low-effort commenting all on different pages and threads. We The People need to get all on the same page: Dr. Bandy X Lee's nonfiction book from October 3, 2017. https://www.ScientificAmerican.com/article/the-shared-psychosis-of-donald-trump-and-his-loyalists/ - We are drowning in low-effort short commenting!
+
+https://old.reddit.com/r/nottheonion/comments/1qmlb7m/white_house_alters_arrest_photo_of_ice_protester/o1mzvwl/
+
+Yes. Memes are John 1:1. Reddit audience has almost zero comprehension of media ecology.
+
+* “The medium **does things to people. And they’re always completely unaware of this. They don’t really notice the new medium that is roughing them up**. They think of the old medium because the old medium is always the content of the new medium. As movies are tend to be the content of TV, and as books used to be the content—novels used to be the content—of movies.” — Marshall McLuhan. “This is Marshall McLuhan: The Medium is the Massage”, an experimental documentary produced by Ernest Pintoff and Guy Fraumeni, narrated by actor Edward Binnes and broadcasted on NBC TV (19 March 1967). https://youtu.be/cFwVCHkL-JU?t=195
