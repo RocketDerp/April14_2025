@@ -2298,3 +2298,15 @@ https://old.reddit.com/r/politics/comments/1qm06kf/minnesota_gov_tim_walz_activa
 
 Rupert Murdoch media.
 
+https://old.reddit.com/r/politics/comments/1qm0bzh/why_arent_the_lawyers_and_bar_associations/o1i8xba/
+
+Putin mentally manipulated people to self-harm USA since March 2013.
+
+https://old.reddit.com/r/politics/comments/1qm0bzh/why_arent_the_lawyers_and_bar_associations/o1ie8wh/
+
+https://old.reddit.com/r/politics/comments/1qm0bzh/why_arent_the_lawyers_and_bar_associations/o1ib5ld/
+
+https://old.reddit.com/r/politics/comments/1qm0bzh/why_arent_the_lawyers_and_bar_associations/o1idalq/
+
+Topic posting is screaming out loud. Why aren't social media users all calling to follow Dr. Bandy X Lee's mental health lead....
+
