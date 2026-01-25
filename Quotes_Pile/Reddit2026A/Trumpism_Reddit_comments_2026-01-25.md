@@ -97,3 +97,12 @@ https://old.reddit.com/r/politics/comments/1qmk7ev/pam_bondi_offers_to_pull_ice_
 
 Not, it really isn't. The elections are Hunger Games focus. Democracy is EVERY DAY, Great Seal of the United States of America is EVERY DAY ALL DAY, not just election days. The inability to IMPEACH and REMOVE TRUMP on ANY DAY is a crisis of thinking only in terms of ELECTION DAYS. We already REMOVED TRUMP from OFFICE, Biden was put in for a full term, 4 years. But that did not address the mindrot brainrot anti-Great Seal USA thinking. www.GreatSealUSA.com lessons are urgently needed!
 
+https://old.reddit.com/r/politics/comments/1qmk7ev/pam_bondi_offers_to_pull_ice_out_of_minneapolis/o1mdgp4/
+
+<img width="1221" height="1179" alt="image" src="https://github.com/user-attachments/assets/52803920-1a72-4e4e-a1d2-11251fd838d6" />
+
+Reddit audience: **"abuser' - "textbook"** - then why are you (We The People) on Reddit not quoting any nonfiction textbooks on Reddit and asking people to follow Dr. Bandy X Lee's lead and pointing out the Reddit audience is avoiding textbooks? Why not get behind a GenX woman who is standing up to Trump / MAGA male-worship worshiping-Putin mindsets? Teach mob mentality mental health topics!!! https://en.Wikipedia.org/wiki/Bandy_X._Lee - she is New York born like Trump! Why not let her school the old man?
+
+OPERA_A Trump / Putin / MAGA "Daddy Issues" is one of Dr. Lee's chapter titles in the October 3, 2017 textbook / book she published. https://www.youtube.com/watch?v=HvazqZ5gGKQ year 2011 ReMastered. 14,102 views June 28, 2021 - Pink Floyd Multi-Color prism; Great Seal USA Pyramid higher. "Mother, should I run for President?"
+
+
