@@ -2421,3 +2421,5 @@ Symptom of Russia's war against reality. "That is Artificial Intelligence". Enco
 https://old.reddit.com/r/MurderedByWords/comments/1qm6xna/these_people_are_broken/o1jqzyj/
 
 Billionaire media systems. Elon Musk, richest man in the world, can make any video with private systems we the public can't even see the capability of.
+
+https://old.reddit.com/r/MurderedByWords/comments/1qm6xna/these_people_are_broken/o1jtmsf/
