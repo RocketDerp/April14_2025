@@ -1540,3 +1540,6 @@ Monomyth; Star Wars Andor.
 
 https://old.reddit.com/r/andor/comments/1qlyvod/thinking_about_this_again_today/o1hyd5y/
 
+https://old.reddit.com/r/ProgressiveHQ/comments/1qmk5j5/this_footage_is_being_removed_from_reddit/o1mc83h/
+
+Attitude of deportation, book burning atmosphere January 2026, attitude of secret removal and disappearance for reality assertion.
