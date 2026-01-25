@@ -148,3 +148,7 @@ Avoidance of nonfiction seriously book reading. For example, Dr. Bandy X Lee's b
 https://old.reddit.com/r/wisconsin/comments/1qmnhbj/he_was_from_green_bay/o1nn0e0/
 
 Capture quote.
+
+https://old.reddit.com/r/wisconsin/comments/1qmnhbj/he_was_from_green_bay/o1njok2/
+
+**Understand that Russian information warfare** since March 2013 did not hit every group the same, not all were programmed into self-harm at the same time. MAGA rural less-educated Americans, who never heard of Neil Postman at NYU since year 1985... were already "softened up" by Fox News HDTV addictions / Rupert Murdoch manipulation. The Saint Petersburg Internet Research Agency echoland entertainment programming mindsets didn't resonate as fast with some filter-bubble groups.
