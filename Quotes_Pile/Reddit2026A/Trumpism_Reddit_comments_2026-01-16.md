@@ -2414,3 +2414,6 @@ Anti-intellectual, anti-learning, anti-understanding, anti-comprehension. The th
 
  Social post { https://autistics.life/@RoundSparrow/115953730998912862 https://bsky.app/profile/roundsparrow.bsky.social/post/3md7tnrzr722s }
  
+https://old.reddit.com/r/MurderedByWords/comments/1qm6xna/these_people_are_broken/o1jrl5d/
+
+Symptom of Russia's war against reality. "That is Artificial Intelligence". Encountered it many times on Reddit in the past couple years. It is a thought-terminating phrase. Crowds eat it up. "bot"
