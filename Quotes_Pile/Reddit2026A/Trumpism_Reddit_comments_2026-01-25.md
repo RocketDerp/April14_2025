@@ -122,3 +122,13 @@ Why haven't these social media companies (Reddit and Bluesky) pinned educational
 https://old.reddit.com/r/technology/comments/1qmkwht/white_house_alters_arrest_photo_of_ice_protester/o1mitl7/
 
 Twitter-length message on Reddit commenting environment. Using name-calling, dehumanizing Americans as "fly maggots". Anything but asserting Dr. Bandy X. Lee's writing and nonfiction learning, above ELI13 TLDR Reddit commenting. Highly upvoted out-group mocking and insulting, following Trump's leadership of Truth Social insulting and mocking as power and popularity methods.
+
+https://old.reddit.com/r/pics/comments/1qmptp1/this_is_america/o1noix1/
+
+Top upvoted comment at time of GitHub checkin
+
+Social post { https://Autistics.Life/@RoundSparrow/115957315162001581 https://bsky.app/profile/roundsparrow.bsky.social/post/3mdbgmazohk2p }
+
+2nd posting on front page. Top voted comment. 8 month Reddit account commenting.
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1qmo5df/this_is_america/o1ni1qq/
