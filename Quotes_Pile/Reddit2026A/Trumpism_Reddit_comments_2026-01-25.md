@@ -38,3 +38,9 @@ We The People of the world are who should prize learning and teaching and what M
 
 OPERA_A https://www.youtube.com/watch?v=okGlFU3YW_k Today is Sunday as I put this on GitHub. Malala can translate science fiction to science fiction, she is teaching how to translate nonfiction science education to fantasy stories. 375,876 views September 4, 2017
 
+https://old.reddit.com/r/politics/comments/1qm7v6j/public_opinion_shifts_on_ice_as_advocates_warn_of/o1k4kit/
+
+Everyone needs to stay at home, use social media and focus on nonfiction. Start learning and teaching mental health terminology and language. Dr. Bandy X Lee's book from October 3, 2017. Stop letting meme "Celebration of Ignorance" and anti-Malala anti-education anti-nonfiction run the USA. Surkov won since March 2013.
+
+* "the public trust is also violated if the profession fails in its duty to alert the public when a person who holds the power of life and death over us all shows signs of clear, dangerous mental impairment. We should pause if professionals are asked to remain silent when they have seen enough evidence to sound an alarm in every other situation. When it comes to dangerousness, should not the president of a democracy, as First Citizen, be subject to the same standards of practice as the rest of the citizenry?"
+― Bandy X. Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. Published October 3, 2017. PROLOGUE. Page 5.](https://books.google.com/books?id=g0c4DwAAQBAJ&pg=PA5&dq=dangerousness+due+to+mental+disorder+can+become+apparent+without+a+full+diagnostic+interview+and+can+be+detected+from+a+distance&hl=en&newbks=1&newbks_redir=1&sa=X)
