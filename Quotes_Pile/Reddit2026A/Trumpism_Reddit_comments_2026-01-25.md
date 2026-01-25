@@ -181,3 +181,17 @@ https://old.reddit.com/r/nottheonion/comments/1qmlb7m/white_house_alters_arrest_
 Reddit audience. Twitter-length thinking patterns, short-message. No demonstration of knowing Neil Postman's teachings.
 
 There is no demonstration on Reddit of self-awareness of being lead by the nose / leash lead, by Elon Musk Twitter media systems / meme images. All signs and behaviors indicate a mob mentality of thinking Reddit audience has out-smarted the out-groups ( Twitter, Turning Point, Saint Petersburg Internet Research Agency seeding since March 2013, Grok AI, Rupert Mrudoch }... no invocation of { Media Ecology, Neil Postman, Marshall McLuhan }. Despite the long-established Time Magazine just months ago re-asserting Neil Postman's 1985 media ecology about addict self-awareness (Reddit high speed electric media audience). September 10, 2025: https://time.com/7313999/neil-postman-trump-prediction/ only 137 days ago! 
+
+https://old.reddit.com/r/minnesota/comments/1qmv5h3/minnesota_national_guard_warmly_greeting_and/o1ox9bz/
+
+Sunday situation.
+
+https://old.reddit.com/r/minnesota/comments/1qmv5h3/minnesota_national_guard_warmly_greeting_and/o1oyt1n/
+
+Have lessons been learned since year 2020... "George Floyd was killed in Minneapolis, Minnesota, on May 25, 2020. The incident occurred at the intersection of 38th Street and Chicago Avenue in South Minneapolis, specifically outside the CUP Foods store, which is now known as George Floyd Square." - Google Search summary 2026-01-25 afternoon USA
+
+https://old.reddit.com/r/minnesota/comments/1qmv5h3/minnesota_national_guard_warmly_greeting_and/o1ozq9y/
+
+9 month Reddit account. "MN" end on username in Minnesota subreddit.
+
+https://old.reddit.com/r/minnesota/comments/1qmv5h3/minnesota_national_guard_warmly_greeting_and/o1p823h/
