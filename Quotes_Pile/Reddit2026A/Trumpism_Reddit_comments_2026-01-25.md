@@ -92,3 +92,8 @@ What "the people wanted". Addiction of BREAKING NEWS at high speed TCP/IP 5G+ de
 https://old.reddit.com/r/politics/comments/1qmk7ev/pam_bondi_offers_to_pull_ice_out_of_minneapolis/o1mcsm0/
 
 Twitter "Engagement" technique of social machines. Ask extremely low-effort trivial questions to trivialize a topic. Anything to avoid quoting and asserting the importance of serious non-fiction books on paper in favor of short message Twitter-length. Most popular comment currently, top upvoted / liked on Reddit.
+
+https://old.reddit.com/r/politics/comments/1qmk7ev/pam_bondi_offers_to_pull_ice_out_of_minneapolis/o1memwc/
+
+Not, it really isn't. The elections are Hunger Games focus. Democracy is EVERY DAY, Great Seal of the United States of America is EVERY DAY ALL DAY, not just election days. The inability to IMPEACH and REMOVE TRUMP on ANY DAY is a crisis of thinking only in terms of ELECTION DAYS. We already REMOVED TRUMP from OFFICE, Biden was put in for a full term, 4 years. But that did not address the mindrot brainrot anti-Great Seal USA thinking. www.GreatSealUSA.com lessons are urgently needed!
+
