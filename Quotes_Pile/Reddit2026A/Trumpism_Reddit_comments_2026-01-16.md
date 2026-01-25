@@ -2349,3 +2349,9 @@ Yes. Left vs. right, "liberals' word programming have become gang symbolism. Str
 https://old.reddit.com/r/AskReddit/comments/1qm2nbu/why_was_kyle_rittenhouse_championed_by_the_right/o1ivd5r/
 
 Out-group hate logic. Pro-hate current meaning of the phrase.
+
+https://old.reddit.com/r/law/comments/1qm2kb1/minnesota_national_guard_arriving_in_minneapolis/o1iwg8m/
+
+Social media needs to be asserting good. Mob mentality and war need to be actively educated as bad. Dr. Bandy X Lee should be a constant source of quotes and leadership. Stand for goodness. Don't just stand for weapon systems and harming others. Revenge and payback are exactly the cycles we need to break. Standing up to Putin and Russia is common intellectual focus for USA. Stand up for NATO and friendship and goodness and ask Russia to reform and end Ukraine war and help rebuild Ukraine.
+
+
