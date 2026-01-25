@@ -2375,3 +2375,9 @@ Subreddit vs. Subreddit. Out-group vs. out-group logic, bi-polar exclusion logic
 https://old.reddit.com/r/agedlikemilk/comments/1qm13ae/aged_as_well_as_charlie_did/o1iibmj/
 
 We need to **rescue** heart and minds from Putin. Dr. Bandy X Lee is the leader we all need to follow ASAP, urgently. Social media needs to be quoting her books and articles, they are all over the Internet.
+
+https://old.reddit.com/r/agedlikemilk/comments/1qm13ae/aged_as_well_as_charlie_did/o1j3um1/
+
+Charlie Kirk was likely manipulated by Russian media. He was clearly a media centered person. His podcast and technology focus. I doubt he had any education about Surkov. I doubt he spent the minimum of 120 hours to get a basic introduction of the state of the art mental manipulation from  Peter Pomerantsev.
+
+* “The Kremlin idea is to own all forms of political discourse, to not let any independent movements develop outside its walls.” ― Peter Pomerantsev, Nothing Is True and Everything Is Possible: The Surreal Heart of the New Russia
