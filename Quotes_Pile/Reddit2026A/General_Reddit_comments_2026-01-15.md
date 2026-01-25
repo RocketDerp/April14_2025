@@ -1566,3 +1566,8 @@ https://old.reddit.com/r/ProgressiveHQ/comments/1qmk5j5/this_footage_is_being_re
 https://old.reddit.com/r/ProgressiveHQ/comments/1qmk5j5/this_footage_is_being_removed_from_reddit/o1mh9kb/
 
 "Insane", "Reddit taking them down"
+
+https://old.reddit.com/r/whenthe/comments/1qmkdon/i_was_naive_at_the_time/o1mf50a/
+
+Posting image: "racist", "normalizing", "bigotry". Garbage into minds, garbage out of mind. Media ecology of how human minds learns and is educated. Repetitive joke-washing platforms.
+
