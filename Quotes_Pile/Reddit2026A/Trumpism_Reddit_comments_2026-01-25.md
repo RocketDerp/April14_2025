@@ -105,4 +105,6 @@ Reddit audience: **"abuser' - "textbook"** - then why are you (We The People) on
 
 OPERA_A Trump / Putin / MAGA "Daddy Issues" is one of Dr. Lee's chapter titles in the October 3, 2017 textbook / book she published. https://www.youtube.com/watch?v=HvazqZ5gGKQ year 2011 ReMastered. 14,102 views June 28, 2021 - Pink Floyd Multi-Color prism; Great Seal USA Pyramid higher. "Mother, should I run for President?"
 
+https://old.reddit.com/r/politics/comments/1qmk7ev/pam_bondi_offers_to_pull_ice_out_of_minneapolis/o1mdme8/
 
+Organized crime. Organized mythology. Serves to give the population, We The People, a topic to focus on later in the year instead of RIGHT HERE RIGHT NOW ON REDDIT SUNDAY TODAY: Promoting Dr. Bandy X Lee's nonfiction book from October 3, 2017 as an education campaign, peer to peer nonfiction education focus.
