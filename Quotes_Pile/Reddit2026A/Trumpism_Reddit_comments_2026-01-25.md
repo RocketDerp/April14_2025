@@ -662,3 +662,18 @@ How people can get so programmed to be so deeply anti-diverse in listening (read
 * "Writing in English is the most ingenious torture ever devised for sins committed in previous lives. The English reading public explains the reason why." - James Joyce. Letter to Fanny Guillermet (Zurich, 5 September 1918)
 
 https://old.reddit.com/r/books/comments/1qnqgy7/minneapolis_bookstore_owner_greg_ketter_emerges/o1w5zj7/
+
+https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1v0xyn/
+
+Black Lives Matter echos.
+
+https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1uvuxh/
+
+https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1v7rh0/
+
+https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1uuvn9/
+
+https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1v2dqa/
+
+https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1v55kj/
+
