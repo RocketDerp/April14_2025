@@ -405,3 +405,8 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1qn2yt6/president_clinton_r
 
 MAGA fandom, Trump fandom. Audience who will give anything for more entertainment and amusement content. Exactly why Reality TV super-star of "The Apprentice" television show is leading a nation of addicts to trash media. Anything and everything to avoid the nonfiction section of the public library ad fight back against the Russian information warfare. Surkov won.
 
+https://old.reddit.com/r/Fauxmoi/comments/1qnbxpu/billie_eilish_hey_my_fellow_celebrities_u_gonna/o1sleuf/
+
+https://old.reddit.com/r/Fauxmoi/comments/1qnbxpu/billie_eilish_hey_my_fellow_celebrities_u_gonna/o1skzo4/
+
+* **“The artist, the enema of society, points out things that many people would prefer not to notice.”** - from the LP recording of “The Medium is the Massage” by Marshall McLuhan, released by Columbia Records in March 1967, conceived and co-ordinated by Jerome Agel, and produced by John Simon. https://www.themediumisthemassage.com/the-record/
