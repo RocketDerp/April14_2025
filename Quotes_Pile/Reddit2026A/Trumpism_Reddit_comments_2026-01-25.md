@@ -628,3 +628,7 @@ https://old.reddit.com/r/Damnthatsinteresting/comments/1qnn3ke/spotted_in_london
 Year 2018 from the UK / across the pond perspective. People recognized Trump was a singer / entertainer / public speaker / source of entertainment more. Now the USA population is so sucked into the hyper reality.
 
 * Trumpism mechanics. "you’ll have a new politics. I mean that’s the deficit of experience that hasn’t **been sucked into this system of images** and so on. Now this sounds extreme but think of how we are socialised – all of us – continually bombarded with images from magazines, TVs, newspapers, videotapes. I am not unaware of where I am, I am in the circuit too now." - Duke University, Texan Rick Roderick https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1qnmiyf/morale_plummeting_among_ice_agents_over_long/o1uuc32/
+
+When sharing "fun facts" on Reddit, people need to be linking a common (get on the same page) off-Reddit source or quoting a real person's name. Following MAGA values of information sharing without more detailed sources. People keep following Truth Social values of Trumpism society about not seeking and promoting information sources and validation of information. Fiction outsells nonfiction, and we are drowning in falsehoods.
