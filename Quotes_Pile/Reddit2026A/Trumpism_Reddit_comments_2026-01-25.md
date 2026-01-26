@@ -330,3 +330,10 @@ https://old.reddit.com/r/Fauxmoi/comments/1qn034v/finneas_calling_out_the_hypocr
 https://old.reddit.com/r/LivestreamFail/comments/1qmxwgp/xqc_says_asmongold_is_making_she_was_asking_for/o1pitz5/
 
 https://old.reddit.com/r/LivestreamFail/comments/1qmxwgp/xqc_says_asmongold_is_making_she_was_asking_for/o1piyuq/
+
+https://old.reddit.com/r/LivestreamFail/comments/1qmxwgp/xqc_says_asmongold_is_making_she_was_asking_for/o1pl114/
+
+https://old.reddit.com/r/law/comments/1qn0x0l/he_is_basically_saying_if_we_call_ice_names_there/o1qblqq/
+
+https://old.reddit.com/r/law/comments/1qn0x0l/he_is_basically_saying_if_we_call_ice_names_there/o1qcxuf/
+
