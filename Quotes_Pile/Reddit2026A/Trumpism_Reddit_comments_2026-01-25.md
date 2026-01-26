@@ -449,3 +449,6 @@ What is wrong with 'these" people? We The People. What changed... ANSWER: The In
 
 * Fiction 1940 that people should be repeating about WHY, Twitter Reddit machines. "men who despise you - enslave you - who regiment your lives - tell you what to do - what to think and what to feel! Who drill you - diet you - treat you like cattle, use you as cannon fodder. Don’t give yourselves to these unnatural men - machine men with machine minds and machine hearts! **You are not machines!** You are not cattle! You are men! You have the love of humanity in your hearts! You don’t hate! Only the unloved hate - the unloved and the unnatural! Soldiers! Don’t fight for slavery! Fight for liberty! In the 17th Chapter of St Luke it is written: “the Kingdom of God is within man” - not one man nor a group of men, but in all men! In you! You, the people have the power" https://www.charliechaplin.com/en/articles/29-the-final-speech-from-the-great-dictator-
 
+https://old.reddit.com/r/pics/comments/1qn5nn0/the_right_to_bear_arms_and_point_them_at_federal/o1rp4s9/
+
+Mental health professionals of the entire world should be using the world wide web (WWW) to promote Dr. Bandy X Lee's leadership. Her book since October 3, 2017 should be quoted and lessons given over and over and over repeating and keep repeating.
