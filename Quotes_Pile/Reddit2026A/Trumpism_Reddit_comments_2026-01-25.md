@@ -632,3 +632,12 @@ Year 2018 from the UK / across the pond perspective. People recognized Trump was
 https://old.reddit.com/r/LeopardsAteMyFace/comments/1qnmiyf/morale_plummeting_among_ice_agents_over_long/o1uuc32/
 
 When sharing "fun facts" on Reddit, people need to be linking a common (get on the same page) off-Reddit source or quoting a real person's name. Following MAGA values of information sharing without more detailed sources. People keep following Truth Social values of Trumpism society about not seeking and promoting information sources and validation of information. Fiction outsells nonfiction, and we are drowning in falsehoods.
+
+https://old.reddit.com/r/AdviceAnimals/comments/1qnhvgn/the_news_lately/o1ts9ku/
+
+People are changed by terrorism. I lived and participated in an Islamic revolution in Africa and Middle East. I have intimately experienced terrorism mindsets. Fear and terror organized by a society.
+
+People need to be standing up and fighting for Dr. Bandy X Lee's leadership. We need to RIGHT NOW be taking on the cult of Fox News HDTV an Elon Musk Twitter message cult. Serious nonfiction needs to be promoted and actively commented on social systems.
+
+* "Social media have changed the way Americans are exposed to news. Internet news sites (CNN, Huffington Post, etc.) and social media such as Facebook and Twitter provide immediate access to news as well as to comments from other readers with differing viewpoints. Many Americans impacted by Trump anxiety disorder have admitted to an **unhealthy obsession with checking news websites much more often** than they previously did, and the amount of **news involving Trump and his new administration has been constant, chaotic, confusing, and often overwhelming**. When struggling with anxiety, many individuals, in an attempt to maintain control, will falsely assume that the more they know, the more they can be prepared. However, this tends to give them a false sense of control and, paradoxically, may increase anxiety symptoms once they realize their grip on control is not solid." - Dr. Bandy X Lee, The Dangerous Case of Donald Trump: 27 Psychiatrists and Mental Health Experts Assess a President. Published October 3, 2017. Chapter "Trump Anxiety Disorder: The Trump Effect on the Mental Health of the Public Half the Nation and Special Populations"; by Jennifer Contarino Panning, page ??.
+
