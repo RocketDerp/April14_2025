@@ -456,3 +456,11 @@ Mental health professionals of the entire world should be using the world wide w
 https://old.reddit.com/r/marvelcirclejerk/comments/1qnbgzp/i_was_just_permanently_banned_from_the_punisher/o1sil1w/
 
 Digital book burning, magazine burning, in 1937 Germany they didn't have block and ban buttons, they had to use flame and paper.
+
+https://old.reddit.com/r/marvelcirclejerk/comments/1qnbgzp/i_was_just_permanently_banned_from_the_punisher/o1sjdvv/
+
+A lot of these issues could be solved by having a tier system of undesired logged to another link like a second subreddit URL / community. And explain and document WHY certain material is not wanted for sake of organisation or repetition. Hiding the problems, brushing them under the rug, is what secret police do. Disappear undesired / undesirables.
+
+Who is teaching morality? Who is teaching why goodness actually matters... more than entertaining comic images. Attractive art vs. standing up for inclusive equality and diversity. 
+
+
