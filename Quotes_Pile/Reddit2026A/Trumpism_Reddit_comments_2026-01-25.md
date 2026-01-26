@@ -623,3 +623,8 @@ https://old.reddit.com/r/technology/comments/1qno6dt/game_devs_skipping_gdc_2026
 
 GDC 2026 and FIFA topic pairing. Now if only gamer FANDOM on Reddit would shift the spare time and free time spent commenting to promoting to all *get on the same page* of Dr. Bandy X Lee. Such as all promote these pages: https://www.ScientificAmerican.com/article/the-shared-psychosis-of-donald-trump-and-his-loyalists/ - We are drowning in reactionary (to ICE / MAGA / Trump / Musk) low-effort short commenting!
 
+https://old.reddit.com/r/Damnthatsinteresting/comments/1qnn3ke/spotted_in_london/o1v1n8e/
+
+Year 2018 from the UK / across the pond perspective. People recognized Trump was a singer / entertainer / public speaker / source of entertainment more. Now the USA population is so sucked into the hyper reality.
+
+* Trumpism mechanics. "you’ll have a new politics. I mean that’s the deficit of experience that hasn’t **been sucked into this system of images** and so on. Now this sounds extreme but think of how we are socialised – all of us – continually bombarded with images from magazines, TVs, newspapers, videotapes. I am not unaware of where I am, I am in the circuit too now." - Duke University, Texan Rick Roderick https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
