@@ -606,3 +606,11 @@ https://old.reddit.com/r/UnderReportedNews/comments/1qnm7np/mary_turner_presiden
 We must all (We The People) **rescue&& Erika Kirk and many others from the cults of self-harm [that Putin has cultivated since March 2013. Addicts to fiction storytelling](https://GitHub.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Cambridge_Analytica_Quotes.md) are raging against reality in favor of out-group hate and egoism. Cults of meme-thinking, twitter-thinking that the Saint Petersburg Internet Research Agency has cultivated.
 
 * "In the best case they looked funny", "We are trying to change reality. Reality has indeed begun to change as a result of the appearance of our information in public" - **June 2, 2014** - https://www.BuzzfeedNews.com/article/maxseddon/documents-show-how-russias-troll-army-hit-america
+
+https://old.reddit.com/r/worldnews/comments/1qnnnt6/sepp_blatter_suggests_fans_should_not_travel_to/o1v4ol8/
+
+Too exhausted to make medium commentary on this.
+
+https://old.reddit.com/r/worldnews/comments/1qnnnt6/sepp_blatter_suggests_fans_should_not_travel_to/o1v1r6w/
+
+FIFA peace prize topic.
