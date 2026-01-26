@@ -698,3 +698,15 @@ https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1v2nz0/
 "not rocket science" that Russia has won hearts and minds of the entire nation to self-harm since March 2013 using Reddit infiltration. That the entire world is watching USA insult Canada and mock NATO and abandon Ukraine under Putin's military information warfare programming. Trivializing the cult of Fox News HDTV / media cult of Truth Social media issues. Downplaying the billionaires media influence (Rupert Murdoch predatory manipulation of minds) on people in the streets of MidWest cities / heartland of USA / rural population with less education.
 
 * From September 9, 2014 - 11 years 4 months and some days ago, which is **more than a decade** - we could have kept repeating it and defeated Putin's takeover of USA hearts and minds: https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ "Russia and the Menace of Unreality: How Vladimir Putin is revolutionizing information warfare. By Peter Pomerantsev. At the NATO summit in Wales last week, General Philip Breedlove, the military alliance’s top commander, made a bold declaration. Russia, he said, is waging “the **most amazing information warfare blitzkrieg we have ever seen in the history of information warfare.**” It was something of an underestimation. The new Russia doesn’t just deal in the petty disinformation, forgeries, lies, leaks, and cyber-sabotage usually associated with information warfare. It reinvents reality, creating **mass hallucinations** that then translate into political action."
+
+https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1v64lq/
+
+2 month Reddit account. Telling people they need to always stay inside and not encounter any Republican party members, to hide and cower anyone other than your own street gang political group. This is Reddit mind-fucking of the audience, intimidation messaging to stay inside. Putin has mind-fucked the society and we all need to be promoting Dr. Bandy X Lee's mental health leadership. People are behaving cultish towards brand-names of political organizations.
+
+https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1vrkc2/
+
+Joined Reddit on a new years eve.
+
+https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1uqg4l/
+
+"most would have called for clam"... Why are social media users not using their free time and spare time to teach from nonfiction books about *cult deprogramming* of the Fox News audience? Why is brainwashing not being taught ever 12 hours on the front page of Reddit? Why is Jen Senko's name not constantly being repeated on Reddit commenting to address the raging hate and avoidance of nonfiction serious films and books on paper? https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad
