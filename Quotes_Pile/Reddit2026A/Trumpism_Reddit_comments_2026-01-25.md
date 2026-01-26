@@ -426,3 +426,11 @@ Reddit and insincere content. "fucking nightmare"
 https://old.reddit.com/r/meme/comments/1qn9vam/this_is_where_we_are/o1srpjy/
 
 Yes. Meme addict society (Reddit audience) has flocked to every antics move Putin and Trump have offered. Traditional leaders are boring to people who seek stimulation. Surkov won.
+
+https://old.reddit.com/r/meme/comments/1qn9vam/this_is_where_we_are/o1sk7h8/
+
+<img width="1171" height="1238" alt="image" src="https://github.com/user-attachments/assets/82a0d7fe-279e-4bab-ade4-14fd490ad547" />
+
+MAGA USA. MAGA values. Trump USA. Trump values. ICE fandom on Reddit. Stop immigrants on the public Internet streets and insult and mock them "Speak American", write like Fox News audience. Anti-diversity, attack outsiders.
+
+* "Do You Speak Fox? The Atlantic. September 16, 2020 — Fox, for many of its fans, is an identity shaped by an ever-expanding lexicon: mob, PC police, Russiagate, deep state, MSM, MS-13, socialist agenda, Dems, libs..." https://www.theatlantic.com/culture/archive/2020/09/fox-news-trump-language-stelter-hoax/616309/
