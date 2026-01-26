@@ -463,4 +463,9 @@ A lot of these issues could be solved by having a tier system of undesired logge
 
 Who is teaching morality? Who is teaching why goodness actually matters... more than entertaining comic images. Attractive art vs. standing up for inclusive equality and diversity. 
 
+https://old.reddit.com/r/science/comments/1qnd1qk/the_tendency_to_feel_like_a_perpetual_victim_is/o1stz1a/
+
+I see an entire nation that is victim of Rupert Murdoch and Rush Limbaugh media systems. Even if you avoid them directly, the "second hand smoke" of other people. People who believe Fox News fiction is reality. I've lived in 4 Islamic nations and studied Malala's writings and speeches repeat times. And people are victims of bamboozle on massive scales by very gifted and talented clergy storytelling and presentation.
+
+* “One of the saddest lessons of history is this: If we’ve been bamboozled long enough, we tend to reject any evidence of the bamboozle. We’re no longer interested in finding out the truth. The bamboozle has captured us. It’s simply too painful to acknowledge, even to ourselves, that we’ve been taken. Once you give a charlatan power over you, you almost never get it back. So the old bamboozles tend to persist as the new ones rise.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995, page 241
 
