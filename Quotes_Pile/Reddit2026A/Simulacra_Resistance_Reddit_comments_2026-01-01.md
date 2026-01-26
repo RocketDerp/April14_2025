@@ -55,7 +55,7 @@ This was correct in year 1995, and we are living in the outcomes of that. And Ca
 
 https://old.reddit.com/r/news/comments/1q3vnsi/canadian_officials_say_us_health_institutions_no/nxoe74f/
 
-Tiny-shirt Twitter-length thinking. Twitter-bird repeating, parroting, of Russian information warfare talking points. Blame millions of USA people, do everything and anything to not blame Kremlin information warfare. Never ever ever mention this book author's name on Reddit, and his 3 books since year 2014.
+Tiny-short Twitter-length thinking. Twitter-bird repeating, parroting, of Russian information warfare talking points. Blame millions of USA people, do everything and anything to not blame Kremlin information warfare. Never ever ever mention this book author's name on Reddit, and his 3 books since year 2014.
 
 * “The display, which was called **'Can Democracy Survive the Internet?'** was dedicated to a 'global election management' company called Cambridge Analytica. Cambridge Analytica claimed to have gathered 5,000 data points on every American voter online: what you liked and what you shared on social media; how and where you shopped; who your friends were... They claimed to be able to take this imprint of your online self, use it to understand your deepest drives and desires, and then draw on that analysis to change your voting behaviour. The boast seemed to be backed up by success: Cambridge Analytica had worked on the victorious American presidential campaign of Donald Trump; it had also run successful campaigns for US Senator Ted Cruz (twice); and others all across Africa, Asia, the Caribbean, Latin America.” ― Peter Pomerantsev, This Is Not Propaganda: Adventures in the War Against Reality, 2019
 
