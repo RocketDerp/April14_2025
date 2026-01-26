@@ -590,3 +590,14 @@ https://old.reddit.com/r/popculturechat/comments/1qnj37j/selena_gomez_made_a_vid
 "becomes memes". Meme-washing via social machine systems. Targeted keywords and topics are drowned out with insulting and mocking, following Putin and Trump leadership of mockery.
 
 * 1993 TV is now year 2013 onward Reddit commenting section. "Their life is shit, if you will pardon the expression, and this is a comedy. Because all the troubles that such a life involve are just reduced to banality, just the **common rubble of little one line joke, you follow me? It’s made banal by it.** It’s banalised that way."; "This is the great – to me – ideological function of television and the movies. However extreme the situation, TV can find a way to turn it into a banality." - Texan Rick Roderick, year 1993, Duke University. "Marcuse and One-Dimensional Man". The joking tiny-think meme-think Tweet-think one-dimensional mindset. The Trump fandom on Reddit. https://RickRoderick.org/304-marcuse-and-one-dimensional-man-1993/
+
+https://old.reddit.com/r/popculturechat/comments/1qnj37j/selena_gomez_made_a_video_calling_out_ice_a_year/o1uc1lh/
+
+6-month Reddit account.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qnm7np/mary_turner_president_of_national_nurses_united/o1usf8y/
+
+Trump leads with hate since June 16, 2015 and Reddit audience follows the hate leadership. Democracy does not work with "hate thy enemy", "hate thy neighbor" values. Remedial morality is not optional education, it is a crisis. MLK Jr's words on hate are not being asserted. Dr. Bandy X Lee's mental health education is not being repeated and repeated on social media commenting. We have a **massive egomania crisis**, mob mentality crisis. Media cults crisis!
+
+* https://www.youtube.com/watch?v=09maaUaRT4M&t=743s "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL"
+
