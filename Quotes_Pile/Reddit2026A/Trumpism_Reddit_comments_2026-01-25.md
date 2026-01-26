@@ -308,3 +308,15 @@ https://old.reddit.com/r/law/comments/1qmrr5k/fbi_nobody_who_wants_to_be_peacefu
 https://old.reddit.com/r/law/comments/1qmrr5k/fbi_nobody_who_wants_to_be_peaceful_shows_up_at_a/o1og17e/
 
 "Fox News"; "insane"
+
+https://old.reddit.com/r/popculturechat/comments/1qmwl49/guns_n_roses_concert_turned_into_an_antitrump/o1ppltw/
+
+https://old.reddit.com/r/popculturechat/comments/1qmwl49/guns_n_roses_concert_turned_into_an_antitrump/o1pp99v/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qmxlic/mn_national_guard_is_on_scene_they_handed_out/o1pkurr/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qmxlic/mn_national_guard_is_on_scene_they_handed_out/o1pmxbc/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qmxlic/mn_national_guard_is_on_scene_they_handed_out/o1pgkzl/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qmxlic/mn_national_guard_is_on_scene_they_handed_out/o1po5e2/
