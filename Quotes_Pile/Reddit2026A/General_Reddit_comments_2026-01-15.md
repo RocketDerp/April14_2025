@@ -1590,3 +1590,7 @@ I deliberately did not wear expensive clothing, I dressed casual as I did not wa
 I even kept my beard scruffy as I normally had appeared in video calls all year 2010 from Austin. I did not want to use money and fashion to represent myself as anything but what I was. A computer nerd who had the privilege to work at home since late year 1999 and had traveled and lived overseas in South America ([Arica, Chile](https://en.Wikipedia.org/wiki/Arica)) and in an RV home office all over USA.
 
 ![Stephen Alfred Gutknecht at Paris Airport. Arab Spring December 2, 2010](https://github.com/RocketDerp/April14_2025/blob/main/Art/ScreenPlay/Arab_Spring/Stephen_2010-12-02c.jpg)
+
+https://old.reddit.com/r/isthisAI/comments/1qnjxgi/fiances_coworker_showed_her_this_photo_of_her/o1v15fe/
+
+As a billionaire computer industry insider... it is great to see people emphasize that the "free" consumer-facing rapid runtime AI systems are not the same as paid. And just imagine what the Pentagon pays for... and what private access can do with forbidden training material (stolen private data to train the AI on, stolen video feeds, stolen emails, stolen copyrighted material that they don't want public to detect on public-facing systems, stolen medical records and behind-paywall medical secrets).
