@@ -469,3 +469,7 @@ I see an entire nation that is victim of Rupert Murdoch and Rush Limbaugh media 
 
 * “One of the saddest lessons of history is this: If we’ve been bamboozled long enough, we tend to reject any evidence of the bamboozle. We’re no longer interested in finding out the truth. The bamboozle has captured us. It’s simply too painful to acknowledge, even to ourselves, that we’ve been taken. Once you give a charlatan power over you, you almost never get it back. So the old bamboozles tend to persist as the new ones rise.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995, page 241
 
+https://old.reddit.com/r/UnderReportedNews/comments/1qng5e7/ice_shooting_victim_alex_pretti_was_honored_by/o1teeqi/
+
+Russia today, Reality Today, people stopped caring about media warfare before it even started. Surkov won since March 2013.
+
