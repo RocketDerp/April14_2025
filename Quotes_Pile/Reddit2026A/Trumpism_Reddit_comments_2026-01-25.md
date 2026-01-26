@@ -320,3 +320,13 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1qmxlic/mn_national_guard_i
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1qmxlic/mn_national_guard_is_on_scene_they_handed_out/o1pgkzl/
 
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1qmxlic/mn_national_guard_is_on_scene_they_handed_out/o1po5e2/
+
+https://old.reddit.com/r/Fauxmoi/comments/1qn034v/finneas_calling_out_the_hypocrisy_of_people/o1q21ee/
+
+https://old.reddit.com/r/Fauxmoi/comments/1qn034v/finneas_calling_out_the_hypocrisy_of_people/o1q3hal/
+
+https://old.reddit.com/r/Fauxmoi/comments/1qn034v/finneas_calling_out_the_hypocrisy_of_people/o1q4dia/
+
+https://old.reddit.com/r/LivestreamFail/comments/1qmxwgp/xqc_says_asmongold_is_making_she_was_asking_for/o1pitz5/
+
+https://old.reddit.com/r/LivestreamFail/comments/1qmxwgp/xqc_says_asmongold_is_making_she_was_asking_for/o1piyuq/
