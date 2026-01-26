@@ -294,3 +294,14 @@ https://old.reddit.com/r/nba/comments/1qmwwki/steve_kerr_were_being_divided_by_m
 "Fox News"; filter-bubble crisis. https://en.Wikipedia.org/wiki/Filter_bubble
 
 * Published more than a decade ago: “Today, reports of the day’s events are conveyed to the viewing public by way of **alternate universes**, The Fox News cable channel conveys its **version of reality**, while at the other end of the ideological spectrum MSNBC presents its version. They and their many counterparts on radio are more the result of an economic dynamic than a political one. Dispatching journalists into the field to gather information costs money; hiring a glib bloviator is relatively cheap, and inviting opinionated guests to vent on the air is entirely cost-free. It wouldn’t work if it weren’t popular, and audiences, it turns out, are endlessly absorbed by hearing amplified echoes of their own biases. It’s divisive and damaging to the healthy functioning of our political system, but it’s also indisputably inexpensive and, therefore, good business.” ― Ted Koppel. Lights Out: A Cyberattack, A Nation Unprepared, Surviving the Aftermath. October 27, 2015. Page 13.
+
+https://old.reddit.com/r/law/comments/1qmrr5k/fbi_nobody_who_wants_to_be_peaceful_shows_up_at_a/o1oghm6/
+
+6 month Reddit account.
+
+https://old.reddit.com/r/law/comments/1qmrr5k/fbi_nobody_who_wants_to_be_peaceful_shows_up_at_a/o1olq9t/
+
+https://old.reddit.com/r/law/comments/1qmrr5k/fbi_nobody_who_wants_to_be_peaceful_shows_up_at_a/o1o8v7h/
+
+11 month Reddit account. "LOL", a laugh-track for social media commenting section. Twitter-length short message. Joke-washing the USA situation. ICE fandom that this is entertainment content.
+
