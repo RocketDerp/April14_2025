@@ -401,3 +401,7 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1qn2yt6/president_clinton_r
 
 Another Reddit user drowning out important letters with banal commenting.
 
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qn2yt6/president_clinton_releases_a_damning_statement/o1s1vvt/
+
+MAGA fandom, Trump fandom. Audience who will give anything for more entertainment and amusement content. Exactly why Reality TV super-star of "The Apprentice" television show is leading a nation of addicts to trash media. Anything and everything to avoid the nonfiction section of the public library ad fight back against the Russian information warfare. Surkov won.
+
