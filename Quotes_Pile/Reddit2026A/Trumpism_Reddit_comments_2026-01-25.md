@@ -337,3 +337,7 @@ https://old.reddit.com/r/law/comments/1qn0x0l/he_is_basically_saying_if_we_call_
 
 https://old.reddit.com/r/law/comments/1qn0x0l/he_is_basically_saying_if_we_call_ice_names_there/o1qcxuf/
 
+https://old.reddit.com/r/politics/comments/1qmssog/mtg_defends_protester_shot_by_dhs_and_says_people/o1ocheu/
+
+https://old.reddit.com/r/politics/comments/1qmssog/mtg_defends_protester_shot_by_dhs_and_says_people/o1p5xkh/
+
