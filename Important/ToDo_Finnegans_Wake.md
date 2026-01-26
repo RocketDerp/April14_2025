@@ -816,3 +816,7 @@ Quran Taliban vs. Christian Bible deaths, monomyth science fiction vs. monomyth 
 https://old.reddit.com/r/confidentlyincorrect/comments/1qkm65w/switzerlands_main_language_is_english/
 
 Tower of babel Twitter-think "Gotcha" conflicts. Hate prizing Tower of Babel, Trump hate leadership. Oh so much Romans 11:32 abounds.
+
+https://old.reddit.com/r/sanfrancisco/comments/1qn608a/candlelight_vigil_for_alex_pretti_was_beautiful/
+
+Funeral Wake rituals
