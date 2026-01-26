@@ -781,3 +781,24 @@ https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1uymkk/
 
 * From September 9, 2014 - 11 years 4 months and some days ago, which is **more than a decade** - we could have kept repeating it and defeated Putin's takeover of USA hearts and minds: https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ "Russia and the Menace of Unreality: How Vladimir Putin is revolutionizing information warfare. By Peter Pomerantsev. At the NATO summit in Wales last week, General Philip Breedlove, the military alliance’s top commander, made a bold declaration. Russia, he said, is waging “the **most amazing information warfare blitzkrieg we have ever seen in the history of information warfare.**” It was something of an underestimation. The new Russia doesn’t just deal in the petty disinformation, forgeries, lies, leaks, and cyber-sabotage usually associated with information warfare. It reinvents reality, creating **mass hallucinations**
 
+https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1uyqi5/
+
+"crazy"
+
+https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1uyql1/
+
+"Russian"
+
+https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1uzkk1/
+
+9 month Reddit account. Boy, do I wish I had browser strings and server-side IP addresses and timing patterns of all their commenting.
+
+https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1v1dxg/
+
+Trivalizing.
+
+https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1v4y8h/
+
+Normalizing. downplaying, trivializing the changes in USA society since March 2013. The Apple iPhone came out in year 2007, Reddit was created in year 2005. The Russian Internet Research Agency invasion. Cambridge Analytica. NATO being targeted by the Kremlin with Reddit messaging. That is what has changed since year 2001, for a very short list of what is playing out in USA society.
+
+* "Putin is clearly winning Russia’s hybrid war against the U.S. because Americans don’t understand how they are being manipulated." - December 11, 2020 - "The Heritage Foundation" https://www.Heritage.Org/defense/commentary/putin-winning-russias-hybrid-war-against-america (Before January 6, 2021 - by weeks. QAnon was Russian Hybrid warfare, QAnon flags on January 6 https://Old.Reddit.com/r/QAnonRussia QAnon-Russia subreddit)
