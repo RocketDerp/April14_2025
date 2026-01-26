@@ -585,3 +585,8 @@ https://old.reddit.com/r/behindthebastards/comments/1myl480/the_lolcow_industria
 
 Trump is leading the nation of mockery, a nation of **TOTAL MOCKERY**. Mocking is the deepest faith of American population. Mock for mock, mock vs. mock. All avoiding nonfiction serious leadership by Dr. Bandy X Lee. https://www.scientificamerican.com/article/the-shared-psychosis-of-donald-trump-and-his-loyalists/
 
+https://old.reddit.com/r/popculturechat/comments/1qnj37j/selena_gomez_made_a_video_calling_out_ice_a_year/o1ulsy2/
+
+"becomes memes". Meme-washing via social machine systems. Targeted keywords and topics are drowned out with insulting and mocking, following Putin and Trump leadership of mockery.
+
+* 1993 TV is now year 2013 onward Reddit commenting section. "Their life is shit, if you will pardon the expression, and this is a comedy. Because all the troubles that such a life involve are just reduced to banality, just the **common rubble of little one line joke, you follow me? It’s made banal by it.** It’s banalised that way."; "This is the great – to me – ideological function of television and the movies. However extreme the situation, TV can find a way to turn it into a banality." - Texan Rick Roderick, year 1993, Duke University. "Marcuse and One-Dimensional Man". The joking tiny-think meme-think Tweet-think one-dimensional mindset. The Trump fandom on Reddit. https://RickRoderick.org/304-marcuse-and-one-dimensional-man-1993/
