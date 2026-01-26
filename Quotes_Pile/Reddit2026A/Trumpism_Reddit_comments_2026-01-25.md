@@ -546,3 +546,11 @@ Reddit comment: "millions of people who have been propagandized and brainwashed"
 Repeating, repeat again: This gender reaction is Russian military objective against USA. People need to start learning dates and names of the players who fucked-over USA population. Trans-gender is not new, what is new is the Saint Petersburg Internet Research Agency. Transgender has been around for tens of thousands of years in humanity. It all changed in year 2013, shortly after [Donald Trump went to Moscow, Russia on a private jet November 8, 2013](https://time.com/5251484/donald-trump-flight-records-moscow-trip/) for a gender sex entertainment broadcast.
 
 * "Vladimir Putin is calling on the conservatives of the world to unite—behind him. The Kremlin leader's full-throated defense of Russia's "traditional values" and his derision of **the West's "genderless** and infertile" liberalism in his annual state-of-the-nation address last week was just the latest example of Putin attempting to place himself at the vanguard of a new "Conservative International." ::: - December 20, 2013 https://www.TheAtlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/
+
+https://old.reddit.com/r/news/comments/1qnjyuk/arizona_ag_suggests_states_selfdefense_laws_allow/o1u8sp9/
+
+Arizona, USA south, guns.
+
+https://old.reddit.com/r/news/comments/1qnjyuk/arizona_ag_suggests_states_selfdefense_laws_allow/o1u8xr6/
+
+19 year Reddit account.
