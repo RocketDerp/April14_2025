@@ -554,3 +554,10 @@ Arizona, USA south, guns.
 https://old.reddit.com/r/news/comments/1qnjyuk/arizona_ag_suggests_states_selfdefense_laws_allow/o1u8xr6/
 
 19 year Reddit account.
+
+https://old.reddit.com/r/news/comments/1qnjyuk/arizona_ag_suggests_states_selfdefense_laws_allow/o1u8394/
+
+The crisis is art and meaningful literacy. People do not grasp how to read Fox News HDTV as mythological fiction storytelling. The entire reason the Founding Fathers, Free Masons, created the Great Seal of the United States of America was to teach monomyth literacy. Symbolism literacy. People can not read the Second Amendment to The Constitutions any more because we failed to educate and teach how to read year 1776 language and metaphors.
+
+* "the entire philosophy the early republic was based upon. And how utterly deplorable and regrettable and terrible it is that all of this has been virtually totally forgotten by our days. And that we have held, The American People, have held in their very hands, handed to them by people like Franklin and Jefferson and all kinds of others... One of the most splendid treasures of spiritual philosophy - applicable to all manner of human purposes. And we have discarded it. And we are running around like beggars, the world over, picking up crumbs from every kind of anarchists, Marxists, this thing, fascists, this thing that thing, all over the world. All of which, put together, could never come close to the psychological spiritual wisdom that was given to us to begin with... and that we have simply forgotten about and thrown away. And how incredibly unfortunate and terrible this is." https://YouTu.be/08R1kPdfrHA?t=4427 - Dr. Stephan A. Hoeller (immigrant to USA), year 1987 ===:::
+
