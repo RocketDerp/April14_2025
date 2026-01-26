@@ -764,3 +764,15 @@ Social media short-messaging, "stupid" messaging.
 https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1uw8zn/
 
 1 month Reddit account. Created on Christmas Day.
+
+https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1uy32g/
+
+1 month Reddit account. promoting Trump's dealing "Art of the Deal" fandom of Trump's leadership techniques. Reddit fandom of Trump content.
+
+https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1uya4p/
+
+"LOL" laugh track (like television laugh track for social audience) about how "mental illness" is peaking in the USA. No mention of Dr. Bandy X Lee or any off-Reddit books about mental health, etc. The influence social media, short-length Twitter-thinking has had on mental health isn't recognized by this Reddit meme-speak "LOL" comment creator.
+
+* "Social media have changed the way Americans are exposed to news. Internet news sites (CNN, Huffington Post, etc.) and social media such as Facebook and Twitter provide immediate access to news as well as to comments from other readers with differing viewpoints. Many Americans impacted by Trump anxiety disorder have admitted to an **unhealthy obsession with checking news websites much more often** than they previously did, and the amount of **news involving Trump and his new administration has been constant, chaotic, confusing, and often overwhelming**. When struggling with anxiety, many individuals, in an attempt to maintain control, will falsely assume that the more they know, the more they can be prepared. However, this tends to give them a false sense of control and, paradoxically, may increase anxiety symptoms once they realize their grip on control is not solid." - Dr. Bandy X Lee, The Dangerous Case of Donald Trump: 27 Psychiatrists and Mental Health Experts Assess a President. Published October 3, 2017. Chapter "Trump Anxiety Disorder: The Trump Effect on the Mental Health of the Public Half the Nation and Special Populations"; by Jennifer Contarino Panning, page ??.
+
+
