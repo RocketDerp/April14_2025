@@ -721,4 +721,46 @@ There were several adult men who had the guy on the ground and were using spray 
 
 https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1urn29/
 
-Levant monomyth out-group patterns, "Jewish"
+Levant monomyth out-group message patterns, "Jewish". Calling people "dumb" but not recognizing the role short-message media systems have had on mindsets. Short little mocking messages that the Russian Internet Research Agency has conditioned since March 2013. Anti-humanism, "team sports mindsets" of our-group hate programming.
+
+* “our critical faculties in decline, unable to distinguish between what feels good and what’s true, we slide, almost without noticing, back into superstition and darkness. The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the **30-second** sound bites (now down to 10 seconds or less)” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995, page 59
+
+https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1ura1y/
+
+11 month Reddit account.
+
+https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1upmf3/
+
+https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1umbpw/
+
+https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1umiod/
+
+https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1um46h/
+
+https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1un5dy/
+
+18 day Reddit account.
+
+https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1una4m/
+
+8 month Reddit account.
+
+https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1unpt3/
+
+Cheering on action violence on video. Eating right out of the hands of Kremlin and White House mockery. Satire-washing, sarcasm-washing Trump / ICE / MAGA as entertaining video content creators.
+
+https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1utfbf/
+
+9 month Reddit account. Twitter-length simple-think patterns of messaging.
+
+https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1uvhlf/
+
+A Bible promoter who does not seem to understand Bible verse "1 John 4:20" how "I love Jesus" is wrong and you have not *seen Jesus*. There is much Levant monomyth confusion; science fiction story education issues.
+
+https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1uvj68/
+
+Social media short-messaging, "stupid" messaging.
+
+https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1uw8zn/
+
+1 month Reddit account. Created on Christmas Day.
