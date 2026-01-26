@@ -586,3 +586,10 @@ Donald Trump is creating a fiction that protesters are motivate by payment an mo
 
 You better teach hard and stand up for what you believe in. Education of authentic learning and teaching about flaws in the human mind. Because the Roman Empire in year 380 adopted science fiction Bible as a way to lead a society - and the USA in year 2026 still has science fiction church venues all over the nation. Fox News fiction storytelling, Newsmax fiction storytelling, Reddit fiction storytelling still outsells any kind of nonfiction Wikipedia or nonfiction in general.
 
+https://old.reddit.com/r/MurderedByWords/comments/1qnqvxw/medical_treatment_please/o1vrnf4/
+
+The Twitter screen shot made top of /r/All on Reddit. ANYTHING and EVERYTHING to LOL "Murdered, by Words!" amused at the ICE situations. The fandom of ICE on Reddit. People cheering on their favorite Internet commenting creators. ANYTHING but turn to nonfiction cult deprogramming. AVOIDING: Dr. Bandy X. Lee nonfiction book, promoting Dr. Lee as a leader out of this situaiton. There is zero self-awareness that people are in a mob mentality, crowd, FOLLOWING Trump and Putin's leadership since March 2013. Surkov won.
+
+Trivia of a fan spotting someone famous off a Twitter screen shot. Perpetual rounds of mocking and LOL at MAGA USA, Trump's entertainment for Reddit fandom (hate leaders, and hate-seeking followers who hate ICE, Putin and Trump baiting the whole audience with high-speed media systems). Reddit cultural life, sitting in an audience watching Trumpism.
+
+* “When a population becomes **distracted by trivia, when cultural life is redefined as a perpetual round** of entertainments, when serious public conversation becomes a form of baby-talk, when, in short, a people become an audience, and their public business a vaudeville act, then a nation finds itself at risk; culture-death is a clear possibility.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business.
