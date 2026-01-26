@@ -344,3 +344,11 @@ https://old.reddit.com/r/politics/comments/1qmssog/mtg_defends_protester_shot_by
 https://old.reddit.com/r/Leakednews/comments/1qmxfxc/breaking_71_of_americans_believe_the_united/o1pi63o/
 
 "brainwashed"
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qn8nkh/ice_agents_are_firing_kinetic_impact_projectiles/o1s31u7/
+
+So many people have no sense that in year 1890 the USA didn't have mobile telephones and ambulance service. The Native Americans / First Peoples had endured loss of lifestyle and death by disease and technology they had never witnessed or imagined. And the invaders never stopped taking more and more and claimed a magical God that was dominating the whole world.
+
+What is mostly new is the organized information systems. So many "knowledge workers" who have learned from experiments on the public: advertising, marketing, commercial graphics, public relations. Emotionally, Reddit is a constant testing of how to get crowds to chase an image or a pattern of words. Machines run day and night measuring and counting upvotes and popularity with human minds.
+
+* “Ours is the first age in which many thousands of the best-trained individual minds have made it a full-time business to get inside the collective public mind. To get inside in order to manipulate, exploit, control is the object now. And to generate heat, not light, is the intention. To keep everybody in the helpless state engendered by prolonged mental rutting is the effect of many ads and much entertainment alike." ― Marshall McLuhan, The Mechanical Bride : Folklore of Industrial Man. Year 1951. https://McLuhan.substack.com/p/the-case-of-the-mail-order-bride Preface  / opening pages of the book. [Google books](https://www.google.com/books/edition/The_Mechanical_Bride/PqC4AAAAIAAJ?hl=en&gbpv=1&bsq=%22many+thousands+of+the+best-trained+individual+minds+have+made+it+a+full-time+business+to+get+inside+the+collective+public+mind.+To+get+inside%22&dq=%22many+thousands+of+the+best-trained+individual+minds+have+made+it+a+full-time+business+to+get+inside+the+collective+public+mind.+To+get+inside%22&printsec=frontcover)
