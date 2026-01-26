@@ -107,7 +107,7 @@ sought to be kept stabilized and perma-
 nent. An oral or tribal society has the
 means of stability far beyond anything
 possible to a visual or civilized and frag-
-mented world.
+mented world."
 
 1968 book "War and Peace in the Global Village"    
 Page 21 onward   
