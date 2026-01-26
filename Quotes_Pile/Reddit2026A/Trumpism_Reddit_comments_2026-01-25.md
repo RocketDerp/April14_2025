@@ -379,7 +379,7 @@ https://old.reddit.com/r/popculturechat/comments/1qn4nnj/edward_norton_im_sittin
 
 https://old.reddit.com/r/popculturechat/comments/1qn4nnj/edward_norton_im_sitting_here_talking_about/o1ruy20/
 
-1 moth Reddit account.
+1 month Reddit account.
 
 ANSWER: What We All can do on social media: quote and promote Dr. Bandy X Lee's book from October 3, 2017 and keep repeating it. There are quotes on Goodreads website. Or just this one article is a start: https://www.ScientificAmerican.com/article/the-shared-psychosis-of-donald-trump-and-his-loyalists/
 
@@ -387,3 +387,8 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1qn2yt6/president_clinton_r
 
 'batshit crazy" via Reddit. "lunatics". top-voted popular comment.
 
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qn2yt6/president_clinton_releases_a_damning_statement/o1rwl87/
+
+"the problem is the pubic"
+
+Repeating. What We All can do on social media: quote and promote Dr. Bandy X Lee's book from October 3, 2017 and keep repeating it. There are quotes on Goodreads website. Or just this one article is a start: https://www.ScientificAmerican.com/article/the-shared-psychosis-of-donald-trump-and-his-loyalists/
