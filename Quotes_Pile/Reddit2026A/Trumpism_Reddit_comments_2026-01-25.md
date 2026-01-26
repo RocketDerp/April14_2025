@@ -341,3 +341,6 @@ https://old.reddit.com/r/politics/comments/1qmssog/mtg_defends_protester_shot_by
 
 https://old.reddit.com/r/politics/comments/1qmssog/mtg_defends_protester_shot_by_dhs_and_says_people/o1p5xkh/
 
+https://old.reddit.com/r/Leakednews/comments/1qmxfxc/breaking_71_of_americans_believe_the_united/o1pi63o/
+
+"brainwashed"
