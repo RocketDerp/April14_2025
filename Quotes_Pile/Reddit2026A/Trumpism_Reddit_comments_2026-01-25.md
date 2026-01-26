@@ -452,3 +452,7 @@ What is wrong with 'these" people? We The People. What changed... ANSWER: The In
 https://old.reddit.com/r/pics/comments/1qn5nn0/the_right_to_bear_arms_and_point_them_at_federal/o1rp4s9/
 
 Mental health professionals of the entire world should be using the world wide web (WWW) to promote Dr. Bandy X Lee's leadership. Her book since October 3, 2017 should be quoted and lessons given over and over and over repeating and keep repeating.
+
+https://old.reddit.com/r/marvelcirclejerk/comments/1qnbgzp/i_was_just_permanently_banned_from_the_punisher/o1sil1w/
+
+Digital book burning, magazine burning, in 1937 Germany they didn't have block and ban buttons, they had to use flame and paper.
