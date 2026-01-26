@@ -305,3 +305,6 @@ https://old.reddit.com/r/law/comments/1qmrr5k/fbi_nobody_who_wants_to_be_peacefu
 
 11 month Reddit account. "LOL", a laugh-track for social media commenting section. Twitter-length short message. Joke-washing the USA situation. ICE fandom that this is entertainment content.
 
+https://old.reddit.com/r/law/comments/1qmrr5k/fbi_nobody_who_wants_to_be_peaceful_shows_up_at_a/o1og17e/
+
+"Fox News"; "insane"
