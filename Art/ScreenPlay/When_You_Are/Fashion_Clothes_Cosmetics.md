@@ -108,6 +108,8 @@ means of stability far beyond anything
 possible to a visual or civilized and frag-
 mented world.
 
-1968 "War and Peace in the Global Village"    
+1968 book "War and Peace in the Global Village"    
+Page 21 onward   
 Marshall McLuhnan    
 University of Toronto   
+https://en.Wikipedia.org/wiki/War_and_Peace_in_the_Global_Village     
