@@ -683,3 +683,18 @@ https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1uvdel/
 
 * “Science is more than a body of knowledge; it is a way of thinking. I have a (year 1995) foreboding of an America in my children’s or grandchildren’s time — when the United States is a service and information economy; when nearly all the key manufacturing industries have slipped away to other countries; when awesome technological powers are in the hands of a very few, and no one representing the public interest can even grasp the issues; when the people have lost the ability to set their own agendas or knowledgeably question those in authority; when, clutching our crystals and nervously consulting our horoscopes, our critical faculties in decline, unable to distinguish between what feels good and what’s true, we slide, almost without noticing, back into superstition and darkness. The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the **30-second** sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but especially a kind of [celebration of ignorance](https://www.youtube.com/watch?v=wcY-x1VuWtE). As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning — not just of science, but of anything — are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995, page 59
  
+https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1use4v/
+
+10 month Reddit account.
+
+https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1v1qp0/
+
+Reddit account name "Evil". Twitter-length thinking mindsets.
+
+https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1usdce/
+
+https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1v2nz0/
+
+"not rocket science" that Russia has won hearts and minds of the entire nation to self-harm since March 2013 using Reddit infiltration. That the entire world is watching USA insult Canada and mock NATO and abandon Ukraine under Putin's military information warfare programming. Trivializing the cult of Fox News HDTV / media cult of Truth Social media issues. Downplaying the billionaires media influence (Rupert Murdoch predatory manipulation of minds) on people in the streets of MidWest cities / heartland of USA / rural population with less education.
+
+* From September 9, 2014 - 11 years 4 months and some days ago, which is **more than a decade** - we could have kept repeating it and defeated Putin's takeover of USA hearts and minds: https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ "Russia and the Menace of Unreality: How Vladimir Putin is revolutionizing information warfare. By Peter Pomerantsev. At the NATO summit in Wales last week, General Philip Breedlove, the military alliance’s top commander, made a bold declaration. Russia, he said, is waging “the **most amazing information warfare blitzkrieg we have ever seen in the history of information warfare.**” It was something of an underestimation. The new Russia doesn’t just deal in the petty disinformation, forgeries, lies, leaks, and cyber-sabotage usually associated with information warfare. It reinvents reality, creating **mass hallucinations** that then translate into political action."
