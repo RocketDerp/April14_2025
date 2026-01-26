@@ -1576,3 +1576,17 @@ https://old.reddit.com/r/blackmagicfuckery/comments/1qmzowf/bottle_vanished_but_
 https://old.reddit.com/r/PeterExplainsTheJoke/comments/1qnf4qq/petah/o1t6724/
 
 choice marriage honesty.
+
+https://old.reddit.com/r/isthisAI/comments/1qnjxgi/fiances_coworker_showed_her_this_photo_of_her/o1u7xru/
+
+<img width="1313" height="423" alt="image" src="https://github.com/user-attachments/assets/7c3ec5ff-082b-443b-a40d-54cf4799077a" />
+
+Haha. Look at the date on this comment, and look at my GitHub project commits a couple days ago ;) I took a photo of this to my love interest at the airport in Paris to show here I was legit on my way from Africa and a real person ;) Here are the photos from December year 2010 as part of Arab Spring: https://GitHub.com/RocketDerp/April14_2025/tree/main/Art/ScreenPlay/Arab_Spring
+
+Reddit does not get it. even if the photo is fake (generative artificial intelligence), people still share photos like this. I am a real person who shared mine to my wife on my way to our wedding. Our first in-person meeting... just like the topic of this Reddit posting (long-distance lover over the Internet, which is how I met my wife, how we got married from Algeria to USA).
+
+I deliberately did not wear expensive clothing, I dressed casual as I did not want to misrepresent myself. In my 20's when I was a consulting for Software Spectrum and working in Seattle (Bellevue) for $250/hour billable to clients (I didn't get that money, Software Spectrum did) in 1995... I dressed like that. But not in 2009 and 2010 when I was engaging the Arab Spring over the Internet. So you will see my December 2, 2010 photos I did not dress fancy. I dressed as a casual middle aged American who has worked at home since 1999. Not like a rich businessman. My wife knew I used to work for the richest people in the entire world and I was trying to make it very clear I did not have wealth... it was a job and I valued experience and insider access over investing and money. I value world peace, not wealth hoarding. So I dressed just as I would going out on a date in Austin, Texas in those photos. 
+
+I even kept my beard scruffy as I normally had appeared in video calls all year 2010 from Austin. I did not want to use money and fashion to represent myself as anything but what I was. A computer nerd who had the privilege to work at home since late year 1999 and had traveled and lived overseas in South America ([Arica, Chile](https://en.Wikipedia.org/wiki/Arica)) and in an RV home office all over USA.
+
+![Stephen Alfred Gutknecht at Paris Airport. Arab Spring December 2, 2010](https://github.com/RocketDerp/April14_2025/blob/main/Art/ScreenPlay/Arab_Spring/Stephen_2010-12-02c.jpg)
