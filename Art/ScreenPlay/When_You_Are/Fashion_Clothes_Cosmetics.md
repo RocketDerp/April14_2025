@@ -49,3 +49,65 @@ Where Hindu / Buddha and Levant Quran are part of the education of a school teac
 
 “We felt like the Taliban saw us as like little dolls to control, telling us what to do and how to dress. I thought if God wanted us to be like that He would not have made us all different.”
 ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. October 8, 2013
+
+&nbsp;
+
+&nbsp;
+
+# Jame Joyce 1923, Marshall McLuhan 1968
+
+&nbsp;
+
+"Fashion, the rich man's foible, distracts
+him from distraction by distraction. Fashion is, as it were, the poor man's art, the
+usually unbought grace of life which he
+participates in only as a spectator. In sen-
+sory terms fashion has a kind of
+libility
+infal-about it. As with hit tunes and hit
+pictures and hit entertainments, fashion
+rushes in to fill the vacuum in our senses
+created by **technological displacements**.
+Perhaps that is why it seems to be the
+expression of such a colossal preference
+while it lasts. **James Joyce gives it a key
+role in Finnegans Wake in his section on
+the Prankquean**. The Prankquean is the
+very expression of war and aggression.
+In her life, clothing is weaponry: "I'm the
+queen of the castle and you're the dirty
+rascal." In the very opening line of Fin-
+negans Wake — "riverrun, past Eve and
+Adam's..."— Joyce thus indicates the re-
+versal of nature that has taken place since
+the fall of man. It is not the world of Adam
+and Eve, but one in which there is priority
+Eve over Adam. Clothing as weaponry
+had become a primary social factor. Cloth-
+ing is anti-environmental, but it also
+of
+creates a new environment. It is also anti-
+the elements and anti-enemies and anti-
+competitors and anti-boredom. As an
+adjustment to the world, it is mainly an
+adjustment to a world that has been made
+by fashions themselves and consists of
+imitations of older dress. As Lowenstein
+explained in his passage on sight as a
+quite arbitrary adjustment to a man-made
+world, fashion also has a kind of inevita-
+bility of sensory response to a man-made
+
+In a tribal or oral world there are no
+fashions in the sense of changing designs
+and fabrics. All clothing and all technol-
+ogy is a part of a ritual that is desperately
+sought to be kept stabilized and perma-
+nent. An oral or tribal society has the
+means of stability far beyond anything
+possible to a visual or civilized and frag-
+mented world.
+
+1968 "War and Peace in the Global Village"    
+Marshall McLuhnan    
+University of Toronto   
