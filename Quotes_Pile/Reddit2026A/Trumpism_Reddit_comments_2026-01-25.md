@@ -434,3 +434,18 @@ https://old.reddit.com/r/meme/comments/1qn9vam/this_is_where_we_are/o1sk7h8/
 MAGA USA. MAGA values. Trump USA. Trump values. ICE fandom on Reddit. Stop immigrants on the public Internet streets and insult and mock them "Speak American", write like Fox News audience. Anti-diversity, attack outsiders.
 
 * "Do You Speak Fox? The Atlantic. September 16, 2020 — Fox, for many of its fans, is an identity shaped by an ever-expanding lexicon: mob, PC police, Russiagate, deep state, MSM, MS-13, socialist agenda, Dems, libs..." https://www.theatlantic.com/culture/archive/2020/09/fox-news-trump-language-stelter-hoax/616309/
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1qn3s00/trump_supporters_now_if_you_can_justify_his/o1qxfi5/
+
+Justify hate for ANY person on a planet of over 8 billion people.
+
+* February 28, 1954: "Most people can't stand up for their convictions, because the majority of people might not be doing it. See, everybody's not doing it, so it must be wrong. And since everybody is doing it, it must be right. So a sort of numerical interpretation of what's right. But I'm here to say to you this morning that some things are right and some things are wrong. Eternally so, absolutely so. **It's wrong to hate.** It always has been wrong and it always will be wrong. It's wrong in America, it's wrong in Germany, it's wrong in Russia, it's wrong in China. It was wrong in 2000 B.C., and it's wrong in 1954 A.D. It always has been wrong, and it always will be wrong." - Martin Luther King Jr.
+
+* "For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the **true becomes false and the false becomes true**. That's what hate does. You can't see right. **The symbol of objectivity** is lost." - Martin Luther King Jr.
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1qn3s00/trump_supporters_now_if_you_can_justify_his/o1qxfz9/
+
+What is wrong with 'these" people? We The People. What changed... ANSWER: The Internet. Reddit. Trump's popularity can be tied directly to the Internet: Twitter. Logic-think. Machine dehumanization mindsets. Trump represents SYSTEMS, processes, Corporate America, Fiction Public Relations. Meme-think shallowness, superficial. Being so shallow that you want to deport people because they speak differently, dress differently, eat food differently, have sex with consenting adults differently, etc. Wanting to build organizations and gated communities / block people / burn books / burn magazines / burn content because of egoism.
+
+* Fiction 1940 that people should be repeating about WHY, Twitter Reddit machines. "men who despise you - enslave you - who regiment your lives - tell you what to do - what to think and what to feel! Who drill you - diet you - treat you like cattle, use you as cannon fodder. Don’t give yourselves to these unnatural men - machine men with machine minds and machine hearts! **You are not machines!** You are not cattle! You are men! You have the love of humanity in your hearts! You don’t hate! Only the unloved hate - the unloved and the unnatural! Soldiers! Don’t fight for slavery! Fight for liberty! In the 17th Chapter of St Luke it is written: “the Kingdom of God is within man” - not one man nor a group of men, but in all men! In you! You, the people have the power" https://www.charliechaplin.com/en/articles/29-the-final-speech-from-the-great-dictator-
+
