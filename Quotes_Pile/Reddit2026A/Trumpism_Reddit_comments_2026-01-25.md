@@ -476,3 +476,5 @@ Russia today, Reality Today, people stopped caring about media warfare before it
 https://old.reddit.com/r/ChatGPT/comments/1qnbhrm/why_i_canceled_my_chatgpt_subscription_and_you/o1sn470/
 
 We The People remarked how Fox News HDTV audience behaved in self-harm ways. And when Jen Senko's year 2015 / 2016 film came around we gave it little support and attention. "The Little Gal" stood up to Rupert Murdoch and other media manipulation. And we didn't use education and teaching with nonfiction.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qnfev5/us_celebrities_sharing_solidarity_with_us/o1tb936/
