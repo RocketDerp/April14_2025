@@ -140,3 +140,16 @@ https://www.cbsnews.com/news/cambridge-analytica-ceo-alexander-nix-data-firm-des
 "The two fundamental human driver when it comes to taking information on board effectively are hopes and fears, and many of those are unspoken and the even unconscious -- you didn't know that was a fear until you saw something that just evoked that reaction from you," Turnbull explained in a meeting with a reporter posing as "Ranjan," a prospective client from Sri Lanka.
 
 He continued, "And our job is to get, is to drop the bucket further down the well than anybody else to understand what are those really deep-seated underlying fears, concerns. There is no good fighting an election campaign on the facts because actually it's all about emotion."
+
+&nbsp;
+
+&nbsp;
+
+# Gender, Clothing, Presentation
+
+"The work was all about trying to anticipate how people would internalize and then spread cultural information — whether that meant in joining a death cult or in choosing a wardrobe. Bannon immediately grasped all of this, even telling me that he believed, as I do, **that politics and fashion are essentially products of the same phenomenon**. It was obvious that he treated intelligence gathering in a broad and deep way, which is not something I’ve seen many people in politics do. And that’s what makes him so powerful. He reads about **intersectional feminism or the fluidity of identity** not, as I later learned, because he’s open to those ideas but because he wants to invert them — to identify what people attach themselves to and then to weaponize it. What I didn’t know that day was that Bannon wanted to fight a cultural war, and so he had come to the people who specialized in informational weapons to help him build his arsenal." ― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the Plot to Break America, chapter 4 "Steve From America", page ??, year 2019
+
+
+&nbsp;
+
+ToDo: link to page with 1968 book War and Peace in the Global Village from Marshall McLuhan, University of Toronto - on Finnegans Wake and clothing as weapon.
