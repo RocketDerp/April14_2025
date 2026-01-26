@@ -410,3 +410,15 @@ https://old.reddit.com/r/Fauxmoi/comments/1qnbxpu/billie_eilish_hey_my_fellow_ce
 https://old.reddit.com/r/Fauxmoi/comments/1qnbxpu/billie_eilish_hey_my_fellow_celebrities_u_gonna/o1skzo4/
 
 * **“The artist, the enema of society, points out things that many people would prefer not to notice.”** - from the LP recording of “The Medium is the Massage” by Marshall McLuhan, released by Columbia Records in March 1967, conceived and co-ordinated by Jerome Agel, and produced by John Simon. https://www.themediumisthemassage.com/the-record/
+
+https://old.reddit.com/r/meme/comments/1qn9vam/this_is_where_we_are/o1sh594/
+
+https://old.reddit.com/r/meme/comments/1qn9vam/this_is_where_we_are/o1sgrek/
+
+6 month Reddit account.
+
+https://old.reddit.com/r/meme/comments/1qn9vam/this_is_where_we_are/o1sfgex/
+
+https://old.reddit.com/r/meme/comments/1qn9vam/this_is_where_we_are/o1skiac/
+
+Reddit and insincere content. "fucking nightmare"
