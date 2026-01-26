@@ -619,3 +619,7 @@ https://old.reddit.com/r/technology/comments/1qno6dt/game_devs_skipping_gdc_2026
 
 People are recognizing that FIFA sports games and video games are not essential. And now that free time and spare time are more available, people need to promote nonfiction learning about cult deprogramming. Dr. Bandy X Lee is an excellent leader, please follow her!
 
+https://old.reddit.com/r/technology/comments/1qno6dt/game_devs_skipping_gdc_2026_over_ice_concerns_us/o1v5n8h/
+
+GDC 2026 and FIFA topic pairing. Now if only gamer FANDOM on Reddit would shift the spare time and free time spent commenting to promoting to all *get on the same page* of Dr. Bandy X Lee. Such as all promote these pages: https://www.ScientificAmerican.com/article/the-shared-psychosis-of-donald-trump-and-his-loyalists/ - We are drowning in reactionary (to ICE / MAGA / Trump / Musk) low-effort short commenting!
+
