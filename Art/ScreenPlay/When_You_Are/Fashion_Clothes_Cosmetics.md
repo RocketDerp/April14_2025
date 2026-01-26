@@ -82,8 +82,8 @@ Adam's..."— Joyce thus indicates the re-
 versal of nature that has taken place since
 the fall of man. It is not the world of Adam
 and Eve, but one in which there is priority
-Eve over Adam. Clothing as weaponry
-had become a primary social factor. Cloth-
+Eve over Adam. **Clothing as weaponry
+had become a primary social factor**. Cloth-
 ing is anti-environmental, but it also
 of
 creates a new environment. It is also anti-
@@ -97,6 +97,7 @@ explained in his passage on sight as a
 quite arbitrary adjustment to a man-made
 world, fashion also has a kind of inevita-
 bility of sensory response to a man-made
+world.
 
 In a tribal or oral world there are no
 fashions in the sense of changing designs
