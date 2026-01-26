@@ -561,3 +561,27 @@ The crisis is art and meaningful literacy. People do not grasp how to read Fox N
 
 * "the entire philosophy the early republic was based upon. And how utterly deplorable and regrettable and terrible it is that all of this has been virtually totally forgotten by our days. And that we have held, The American People, have held in their very hands, handed to them by people like Franklin and Jefferson and all kinds of others... One of the most splendid treasures of spiritual philosophy - applicable to all manner of human purposes. And we have discarded it. And we are running around like beggars, the world over, picking up crumbs from every kind of anarchists, Marxists, this thing, fascists, this thing that thing, all over the world. All of which, put together, could never come close to the psychological spiritual wisdom that was given to us to begin with... and that we have simply forgotten about and thrown away. And how incredibly unfortunate and terrible this is." https://YouTu.be/08R1kPdfrHA?t=4427 - Dr. Stephan A. Hoeller (immigrant to USA), year 1987 ===:::
 
+https://old.reddit.com/r/popculturechat/comments/1qnj37j/selena_gomez_made_a_video_calling_out_ice_a_year/o1uhb10/
+
+"and everyone laughed and turned it into a meme" - Neil Postman was correct in year 1985. Refresh from September 10, 2025: https://time.com/7313999/neil-postman-trump-prediction/ only 138 days ago! 
+
+https://old.reddit.com/r/popculturechat/comments/1qnj37j/selena_gomez_made_a_video_calling_out_ice_a_year/o1uizbm/
+
+"mocked", it is a Mock Mock Mockery. https://GitHub.com/RocketDerp/April14_2025/blob/main/Art/ScreenPlay/Faiths/Out-Mock_Total_Mockery.md Faith mocking, mocking as a faith. It's active shunning, it is aggressive shunning religion behaviors.
+
+"and everyone laughed and turned it into a meme"
+
+https://old.reddit.com/r/popculturechat/comments/1qnj37j/selena_gomez_made_a_video_calling_out_ice_a_year/o1ub40y/
+
+Mass dehumanization is popular; popular language has become toxic-favoring in meaning. Information warfare has taken over language. Billionaire Rupert Murdoch, billionaire Elon Musk Twitter language, billionaire Vlad Putin, etc. Surkov students. https://www.TheAtlantic.com/culture/archive/2020/09/fox-news-trump-language-stelter-hoax/616309/ "Do You Speak Fox? How Donald Trump’s favorite news source became a language. By Megan Garber. September 16, 2020"
+
+Reddit posting title context assertion: "and everyone laughed and turned it into a meme"
+
+Meme-washing, sane-washing via humor, jokes. That's how Russia won the information warfare since March 2013. Turning all serious topics into joke humor comedy via Reddit commenting section / Trump fandom of "LOLcow milking". See: https://old.reddit.com/r/behindthebastards/comments/1myl480/the_lolcow_industrial_complex_is_ablist_as_fuck/
+
+* "Finding the occasional straw of truth awash in a great ocean of confusion and bamboozle requires vigilance, dedication and courage. But if we don’t practice these tough habits of thought, we cannot hope to **solve the truly serious problems that face us** and we risk becoming a nation of suckers" ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995, page 38
+
+https://old.reddit.com/r/behindthebastards/comments/1myl480/the_lolcow_industrial_complex_is_ablist_as_fuck/nad82by/
+
+Trump is leading the nation of mockery, a nation of **TOTAL MOCKERY**. Mocking is the deepest faith of American population. Mock for mock, mock vs. mock. All avoiding nonfiction serious leadership by Dr. Bandy X Lee. https://www.scientificamerican.com/article/the-shared-psychosis-of-donald-trump-and-his-loyalists/
+
