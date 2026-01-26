@@ -614,3 +614,8 @@ Too exhausted to make medium commentary on this.
 https://old.reddit.com/r/worldnews/comments/1qnnnt6/sepp_blatter_suggests_fans_should_not_travel_to/o1v1r6w/
 
 FIFA peace prize topic.
+
+https://old.reddit.com/r/technology/comments/1qno6dt/game_devs_skipping_gdc_2026_over_ice_concerns_us/o1v7ja3/
+
+People are recognizing that FIFA sports games and video games are not essential. And now that free time and spare time are more available, people need to promote nonfiction learning about cult deprogramming. Dr. Bandy X Lee is an excellent leader, please follow her!
+
