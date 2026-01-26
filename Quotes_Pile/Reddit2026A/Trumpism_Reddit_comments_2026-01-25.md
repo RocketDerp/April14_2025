@@ -519,3 +519,18 @@ Surkov won. Putin won. Russia won. NATO lost, look around at NATO in January 202
 
 
 Social post { https://MidWest.Social/post/42461441 }
+
+
+https://old.reddit.com/r/AdviceAnimals/comments/1qngihl/was_a_little_wokeness_really_that_bad/o1tkayp/
+
+<img width="1097" height="592" alt="image" src="https://github.com/user-attachments/assets/215b3a19-34d0-4884-8bf8-6fa1764a7cac" />
+
+Ignorance on Reddit. The Internet Research Agency invaded USA media systems since March 2013.
+
+Trans-gender swimmer 4th place. That took place year 2022. "swimmer Lia Thomas, competing for the University of Pennsylvania, became the first openly transgender woman to win a Division 1 NCAA championship, winning the 500-yard freestyle in 2022." - Google Search summary 2026-01-26 morning USA
+
+That is AFTER Trump's November 8, 2013 trip to Moscow on a private jet. Trans-gender swimmer year 2022 is AFTER the December 20, 2013 article explaining Putin and Trump's new agreement! ::: "Vladimir Putin is calling on the conservatives of the world to unite—behind him. The Kremlin leader's full-throated defense of Russia's "traditional values" and his derision of **the West's "genderless** and infertile" liberalism in his annual state-of-the-nation address last week was just the latest example of Putin attempting to place himself at the vanguard of a new "Conservative International." ::: - December 20, 2013 https://www.TheAtlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/
+
+That year 2022 trans-gender swimmer getting 4th place is AFTER the Cambridge Analytica mental manipulation of everyone in USA population.
+
+* "The work was all about trying to anticipate how people would internalize and then spread cultural information — whether that meant in joining a death cult or in choosing a wardrobe. Bannon immediately grasped all of this, even telling me that he believed, as I do, **that politics and fashion are essentially products of the same phenomenon**. It was obvious that he treated intelligence gathering in a broad and deep way, which is not something I’ve seen many people in politics do. And that’s what makes him so powerful. He reads about **intersectional feminism or the fluidity of identity** not, as I later learned, because he’s open to those ideas but because he wants to invert them — to identify what people attach themselves to and then to weaponize it. What I didn’t know that day was that Bannon wanted to fight a cultural war, and so he had come to the people who specialized in informational weapons to help him build his arsenal." ― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the Plot to Break America, chapter 4 "Steve From America", page ??, **year 2019**
