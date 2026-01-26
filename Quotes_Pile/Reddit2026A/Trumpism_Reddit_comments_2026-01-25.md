@@ -709,4 +709,16 @@ Joined Reddit on a new years eve.
 
 https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1uqg4l/
 
-"most would have called for clam"... Why are social media users not using their free time and spare time to teach from nonfiction books about *cult deprogramming* of the Fox News audience? Why is brainwashing not being taught ever 12 hours on the front page of Reddit? Why is Jen Senko's name not constantly being repeated on Reddit commenting to address the raging hate and avoidance of nonfiction serious films and books on paper? https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad
+"most would have called for clam"... Why are social media users not using their free time and spare time to teach from nonfiction books about *cult deprogramming* of the Fox News audience? Why is brainwashing not being taught ever 12 hours on the front page of Reddit? Why is Jen Senko's name not constantly being repeated on Reddit commenting to address the raging hate and avoidance of nonfiction serious films and books on paper? https://en.Wikipedia.org/wiki/The_Brainwashing_of_My_Dad
+
+https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1ujs84/
+
+Back to video games and sports gaming or whatever. "Amusement as Usual" platform of thoughtless meme mind programming.
+
+https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1uj1rc/
+
+There were several adult men who had the guy on the ground and were using spray chemicals to incapacitate him. Why didn't they draw a gun and point it at him and tell him to stop resisting arrest, then take him to jail in a car? why did multiple gunshots, deadly ones, have to be used... People do get emotional. Domestic violence, drunks, you don't need to shoot someone to death because they are behaving out of order. Law enforcement people are supposed to have training on how to de-escalate and arrest people without killing them.
+
+https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1urn29/
+
+Levant monomyth out-group patterns, "Jewish"
