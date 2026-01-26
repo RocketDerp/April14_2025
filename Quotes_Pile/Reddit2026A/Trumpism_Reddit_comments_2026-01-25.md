@@ -370,3 +370,9 @@ The Bible should be watched with The Terminator film robots. https://www.youtube
 https://old.reddit.com/r/popculturechat/comments/1qn4nnj/edward_norton_im_sitting_here_talking_about/o1ru1lo/
 
 Yes. We all need to get *on the same page* of goodness, asserting goodness itself. Asserting that the entire society as a group (all of us, *We The People*, PLURIBUS) need a new direction. The posting title itself is great. "Amusement As Usual" with normal films and memes is drowning out "The Little Guy" voices. We do not need more pranks, jokes, bamboozle, bullshit. We need to be serious and start getting behind leaders such as Dr. Bandy X Lee on MAGA mental health. Just saying the world "cult" and joking isn't engaging serious nonfiction books on cult deprogramming.
+
+https://old.reddit.com/r/popculturechat/comments/1qn4nnj/edward_norton_im_sitting_here_talking_about/o1rub9o/
+
+"surreal", "business as usual"
+
+*  Published January 2015, before Trump started run for office in June 2015: https://www.Politico.com/magazine/story/2015/01/putin-russia-tv-113960/ At one end of the table sat one of the country’s most famous political TV presenters. He was small and spoke fast, with a smoky voice: “We all know there will be no real politics,” he said. “But we still have to give our viewers the sense something is happening. They need to be kept entertained.” “So what should we play with?” he asked. “Shall we attack oligarchs? Who’s the enemy this week? **Politics has got to feel like a movie!**”
