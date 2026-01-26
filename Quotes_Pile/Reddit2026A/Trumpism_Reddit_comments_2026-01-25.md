@@ -802,3 +802,61 @@ https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1v4y8h/
 Normalizing. downplaying, trivializing the changes in USA society since March 2013. The Apple iPhone came out in year 2007, Reddit was created in year 2005. The Russian Internet Research Agency invasion. Cambridge Analytica. NATO being targeted by the Kremlin with Reddit messaging. That is what has changed since year 2001, for a very short list of what is playing out in USA society.
 
 * "Putin is clearly winning Russia’s hybrid war against the U.S. because Americans don’t understand how they are being manipulated." - December 11, 2020 - "The Heritage Foundation" https://www.Heritage.Org/defense/commentary/putin-winning-russias-hybrid-war-against-america (Before January 6, 2021 - by weeks. QAnon was Russian Hybrid warfare, QAnon flags on January 6 https://Old.Reddit.com/r/QAnonRussia QAnon-Russia subreddit)
+
+https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1vdfj8/
+
+https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1vei6h/
+
+https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1vge7k/
+
+7 month Reddit account. "people react", reaction commenting on Reddit. Media addictions are why people follow Trump's leadership. Trump provides hate signaling that people follow. Hate leads the USA. You do not see people on social media calling for attention to be focused on mental health professionals like Dr. Bandy X Lee since year 2017. Instead, you see media sickness / addiction to fiction and antics.
+
+https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1vgeqv/
+
+https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1vipam/
+
+Message to American people: stay at home, watch the Trump entertainment show. The emoji LOL laugh-track. Twitter-length short-messaging. This serves as a marketing message to stay on Reddit and give up on real-person encounters.
+
+https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1vj5dj/
+
+https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1vjeux/
+
+https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1vjrnw/
+
+https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1vk01g/
+
+8 days Reddit account.
+
+https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1vkcnv/
+
+"magical thinking"
+
+https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1vlkhd/
+
+7 day Reddit account. Tiny-short Tweet-thinking. No off-Reddit link, no quotes from books, no author names. Anything and everything to avoid Dr. Bandy X Lee's nonfiction teaching and leadership to address national mental health crisis.
+
+https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1vn02w/
+
+"insane"
+
+https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1vn8os/
+
+"doomed", "divided"
+
+https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1vp5vc/
+
+https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1vp92m/
+
+"Fox News HDTV" network
+
+https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1vq3oq/
+
+https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1vr3h8/
+
+5 month Reddit account.
+
+https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1vu648/
+
+https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1vwuja/
+
+New Reddit account, hours old.
