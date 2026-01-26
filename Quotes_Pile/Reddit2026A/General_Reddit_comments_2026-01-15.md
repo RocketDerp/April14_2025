@@ -1571,3 +1571,4 @@ https://old.reddit.com/r/whenthe/comments/1qmkdon/i_was_naive_at_the_time/o1mf50
 
 Posting image: "racist", "normalizing", "bigotry". Garbage into minds, garbage out of mind. Media ecology of how human minds learns and is educated. Repetitive joke-washing platforms.
 
+https://old.reddit.com/r/blackmagicfuckery/comments/1qmzowf/bottle_vanished_but_how/o1py8ry/
