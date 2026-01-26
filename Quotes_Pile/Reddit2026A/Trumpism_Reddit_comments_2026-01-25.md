@@ -422,3 +422,7 @@ https://old.reddit.com/r/meme/comments/1qn9vam/this_is_where_we_are/o1sfgex/
 https://old.reddit.com/r/meme/comments/1qn9vam/this_is_where_we_are/o1skiac/
 
 Reddit and insincere content. "fucking nightmare"
+
+https://old.reddit.com/r/meme/comments/1qn9vam/this_is_where_we_are/o1srpjy/
+
+Yes. Meme addict society (Reddit audience) has flocked to every antics move Putin and Trump have offered. Traditional leaders are boring to people who seek stimulation. Surkov won.
