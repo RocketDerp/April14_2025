@@ -1148,3 +1148,9 @@ https://old.reddit.com/r/MurderedByWords/comments/1qoezyr/literally_what_its_the
 Except when you argue in public on Twitter and Reddit you can document it on GitHub and teach media ecology self-awareness. People who are "an idiot" are very often not educated. Lacking self-awareness of how adult education works from Fox News HDTV. That's one of the most important education concerns of our time; Twitter, Bluesky, Reddit, YouTube, TikTok, Truth Social compulsive behaviors of hive minded individuals.
 
 * "Being illiterate in the processes of any **medium** (language) leaves one at the mercy of those who control it. The **new media** — these new languages — then are among the most important "subjects" to be studied in the interests of survival." - Neil Postman on media ecology
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1qon0en/trump_just_doubled_down_on_saying_we_dont_have_2a/o22jxxm/
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1qon0en/trump_just_doubled_down_on_saying_we_dont_have_2a/o22isss/
+
+Loyal fandom to Trump contenting, waiting to watch how competing audiences react to the Reality White House Kremlin entertainment. High speed messaging addictions now drive society. People who get into media fandom clubs of Trump / ICE / MAGA / Rupert Murdoch managed commentary - and react like team fans. Group thinking. All of which are so engaged by the social media engagement systems / memes and Fox News graphic artists - that they do not desire to *remove Trump* and heal MAGA - because the entertainment will no longer stimulate their minds. Addiction to Trump stimulation. Antics politics fandoms. ALWAYS AVOIDING: promoting Dr. Bandy X Lee and her October 3, 2017 nonfiction book on mental health of Trump and how dangerous it is to have Donald Trump in power.
