@@ -890,3 +890,13 @@ https://old.reddit.com/r/news/comments/1qnxuor/greg_bovino_loses_his_job/o1xer6x
 https://old.reddit.com/r/news/comments/1qnxuor/greg_bovino_loses_his_job/o1xioee/
 
 9 month Reddit account. "Symbolic"; user profile talks about "Reality"
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1qnydfp/fox_news_throws_no_and_bovino_under_the_bus/o1xed52/
+
+3 month Reddit account. Top-voted popular comment.
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1qnydfp/fox_news_throws_no_and_bovino_under_the_bus/o1xdzi8/
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1qnydfp/fox_news_throws_no_and_bovino_under_the_bus/o1xkgao/
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1qnydfp/fox_news_throws_no_and_bovino_under_the_bus/o1xof3s/
