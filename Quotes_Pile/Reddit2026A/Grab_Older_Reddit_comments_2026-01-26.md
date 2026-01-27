@@ -16,7 +16,7 @@ https://old.reddit.com/r/HyperBanalisation/comments/bjf6ys/under_the_surkov_medi
 
 https://old.reddit.com/r/HyperBanalisation/comments/bjf6ys/under_the_surkov_media_invasion_of_russia_usa/ep6n9tu/
 
-Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mdeiwbw3l22b https://autistics.life/@RoundSparrow/115964228779856065 }
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mdeiwbw3l22b https://autistics.life/@RoundSparrow/115964228779856065 https://MidWest.Social/post/42478610/22389524 }
 
 https://old.reddit.com/r/HyperBanalisation/comments/bjf6ys/under_the_surkov_media_invasion_of_russia_usa/ept5u0u/
 
