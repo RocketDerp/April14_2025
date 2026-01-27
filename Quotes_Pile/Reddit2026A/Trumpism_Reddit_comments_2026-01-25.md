@@ -976,3 +976,6 @@ LOOK AT THE DATE this was published and COUNT how many times Reddit comments hav
 
 We are living in subreddit by subreddit, TV channel by TV news channel. ARG. Alternate Reality Games. Everyone on DIFFERENT PAGES.
 
+Think back to year 2013, before that was published October 27, 2015. Think back before Donald Trump was the magical disco ball of egoism reflecting since June 16, 2015. Beg everyone around you to pay attention and keep re-reading and thinking BEFORE Trump was front page of Reddit /r/All every hour of every day. Back to January 2015.
+
+*  Published January 2015, before Trump started run for office in June 2015: https://www.Politico.com/magazine/story/2015/01/putin-russia-tv-113960/ At one end of the table sat one of the country’s most famous political TV presenters. He was small and spoke fast, with a smoky voice: “We all know there will be no real politics,” he said. “But we still have to give our viewers the sense something is happening. They need to be kept entertained.” “So what should we play with?” he asked. “Shall we attack oligarchs? Who’s the enemy this week? **Politics has got to feel like a movie!**”
