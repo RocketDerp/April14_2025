@@ -1687,3 +1687,8 @@ If your favorite style of book or film or song is popular, people will make more
 
 https://old.reddit.com/r/CuratedTumblr/comments/1ql5m45/dont_just_read_one_other_book/
 
+&nbsp;
+
+# What Reddit comments about TikTok Q1 2026
+
+https://old.reddit.com/r/technology/comments/1qnu932/tiktok_uninstalls_are_up_150_following_us_joint/
