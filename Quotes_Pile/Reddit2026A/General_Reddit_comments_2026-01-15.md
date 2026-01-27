@@ -1594,3 +1594,7 @@ I even kept my beard scruffy as I normally had appeared in video calls all year 
 https://old.reddit.com/r/isthisAI/comments/1qnjxgi/fiances_coworker_showed_her_this_photo_of_her/o1v15fe/
 
 As a billionaire computer industry insider... it is great to see people emphasize that the "free" consumer-facing rapid runtime AI systems are not the same as paid. And just imagine what the Pentagon pays for... and what private access can do with forbidden training material (stolen private data to train the AI on, stolen video feeds, stolen emails, stolen copyrighted material that they don't want public to detect on public-facing systems, stolen medical records and behind-paywall medical secrets).
+
+https://old.reddit.com/r/sanfrancisco/comments/1qnwq9p/oracle_owned_tiktok_is_preventing_scott_wieners/o1x7cv1/
+
+Upscroll media platform
