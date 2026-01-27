@@ -1100,3 +1100,16 @@ Call for a stop to all the comedy-washing joke-washing sane-washing of Trump thr
 https://old.reddit.com/r/minnesota/comments/1qoiomj/last_night_jimmy_kimmel_didnt_tell_jokes_he_stood/o21ow8u/
 
 "pretend", "untrue"
+
+https://old.reddit.com/r/50501/comments/1qofc96/protesters_in_phoenix_on_the_sidewalk_impeding_no/o20ul58/
+
+https://old.reddit.com/r/50501/comments/1qofc96/protesters_in_phoenix_on_the_sidewalk_impeding_no/o20s37i/
+
+https://old.reddit.com/r/50501/comments/1qofc96/protesters_in_phoenix_on_the_sidewalk_impeding_no/o20yrqx/
+
+9 month Reddit account.
+
+https://old.reddit.com/r/50501/comments/1qofc96/protesters_in_phoenix_on_the_sidewalk_impeding_no/o20v0ci/
+
+Media street gangs. Bible science fiction street gang against Carl Sagan science street gang. Fox News HDTV street gang against Reddit news street gang. People who are ALL VOIDING: Dr. Bandy X Lee being promoted every 12 hours on social media. Mental Health topics and quotes of nonfiction from Dr. Lee.
+
