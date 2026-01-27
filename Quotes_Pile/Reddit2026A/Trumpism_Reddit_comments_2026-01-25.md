@@ -1086,3 +1086,13 @@ https://old.reddit.com/r/Fauxmoi/comments/1qolzkg/trump_against_2nd_amendment_wi
 
 Exactly what Russian information warfare does, Surkov monomyth inverts values in the mass man (University of Toronto Marshall McLuhan terminology) / mass mind (Howard Bloom NYC terminology). Paradox inversions of group thinking / mob mentality programming. Surkov won since March of year 2013.
 
+https://old.reddit.com/r/Fauxmoi/comments/1qolzkg/trump_against_2nd_amendment_with_that_being_said/o22awsj/
+
+2 month Reddit account.
+
+https://old.reddit.com/r/minnesota/comments/1qoiomj/last_night_jimmy_kimmel_didnt_tell_jokes_he_stood/o21mqq2/
+
+Call for a stop to all the comedy-washing joke-washing sane-washing of Trump through meme-making joke-cracking, humor-based mental exploits. Surkov won since March 2013.
+
+* “Everything in our background has prepared us to know and resist a prison when the gates begin to close around us . . . But what if there are no cries of anguish to be heard? Who is prepared to take arms against a sea of amusements? To whom do we complain, and when, and in what tone of voice, when serious discourse dissolves into giggles? What is the antidote to a culture's being drained by laughter?”
+― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. New York University. Media studies / media ecology professor.
