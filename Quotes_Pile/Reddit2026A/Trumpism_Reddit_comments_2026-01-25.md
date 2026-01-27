@@ -1005,3 +1005,9 @@ AND, for the record, the white men at Woodstock in August 1969 had as many probl
 https://old.reddit.com/r/law/comments/1qo1cwl/white_house_backtracks_initial_claims_about_alex/o1yaqu9/
 
 Fiction outsells nonfiction. "lies" are entirely acceptable within fiction storytelling. You don't consider Star Wars 1977 a "lie" because there is no factual evidence of a Death Star / space station planet killer. We need to wake up that Fox News HDTV, since year 1996, is a fiction storytelling network. Fiction outsells nonfiction. We either stand up for science nonfiction or we drown in the leadership of the most entertaining mockery like Mecca / Quran / Mohammad storytelling leads far more people than USA 0.34 billion nonfiction science foundations of the Free Masons year 1776.
+
+https://old.reddit.com/r/politics/comments/1qodt6v/tiktok_blocks_epstein_mentions_and_antitrump/o20gt8s/
+
+TikTok media ecology top of /r/All
+
+https://old.reddit.com/r/politics/comments/1qodt6v/tiktok_blocks_epstein_mentions_and_antitrump/o20jim3/
