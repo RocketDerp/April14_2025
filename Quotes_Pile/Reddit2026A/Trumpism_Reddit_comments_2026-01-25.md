@@ -1011,3 +1011,7 @@ https://old.reddit.com/r/politics/comments/1qodt6v/tiktok_blocks_epstein_mention
 TikTok media ecology top of /r/All
 
 https://old.reddit.com/r/politics/comments/1qodt6v/tiktok_blocks_epstein_mentions_and_antitrump/o20jim3/
+
+"Everything is PR", "Everything is Public Relations"  
+"Everything is ME", "Everything is Media Ecology" around MAGA Kremlin White House since March 2013.  
+https://GitHub.com/RocketDerp/April14_2025/blob/main/Media_Ecology/Everything_is_ME.md
