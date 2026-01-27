@@ -953,3 +953,26 @@ Go over this list, and look at the addictions to short engaging commenting over 
 
 People on Reddit are following Putin's lead to self-harm USA. People on Reddit are following Trump's lead to self-harm USA. Surkov won. Russia has been the BULLY that the USA Pentagon / military has lost, NATO is wrecked. WAKE UP! The whole world is watching the anti-NATO pro-Putin BULLSHIT!
 
+https://old.reddit.com/r/law/comments/1qo1cwl/white_house_backtracks_initial_claims_about_alex/o1y6734/
+
+"laughing", everything Trump does is so entertaining to low-effort commenting addicts on meme gathering spots (Reddit) with touch high-speed reacting machines.
+
+* “For in the end, he was trying to tell us what afflicted the people in 'Brave New World' was not that they were laughing instead of thinking, but that they did not know what they were laughing about and why they had stopped thinking.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business
+
+For, in the end, Russia mind-fucked MAGA first, the rural less-education population to laugh and mock "liberal tears" and now everyone is laughing and mocking back at MAGA. Russia created a feedback loop of /r/Conservative /r/The_Donald since March 2013 that has become "liberal tears", LOL LOL LOL, "Leopards Ate Faces", LOL LOL LOL laughing again and again.
+
+* “For in the end, he was trying to tell us what afflicted the people in 'Brave New World' was not that they were laughing instead of thinking, but that they did not know what they were laughing about and why they had stopped thinking.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business
+
+UKRAINE WAR, is when it all started. MAGA, Trump, Musk, all the shit that dominates the news every hour of every day on Reddit regarding MAGA and Trump started February 20, 2014 with Crimea and Ukraine. Neil Postmen was WARNING US about Fox News in year 1985, which is 11 years BEFORE Fox News in year 1996. Reddit, Facebook, Musk Twitter, THE NEWS IS THE PROBLEM.
+
+We are fighting news network vs. news network. Twitter vs. Reddit. Subreddit vs. Subreddit. Information bubble, egoism, egomania, information overload symptoms!
+
+NOBODY fucking wins in murder and war. NOBODY wins. It just fucks up the minds of children that war and terrorism and bombing and guns solve problem. MLK Jr was correct. Malala was correct in year 2013. But we have to deal with the brain issues. The mind issues. Dr. Bandy X Lee - why has Reddit not made her super famous, more famous than Epstein in year 2025? Why is Dr. Bandy X Lee's leadership ignored? Why is Jen Senko's social leadership ignored? Why is the Fox News HDTV issue not having protests in the street about billionaire Rupert Murdoch mind-fucking less-educated rural farmers and small-town "red state" areas? NEW YORK CITY FOX NEWS, has mind-fucked rural less educated small towns. And why isn't Jen Senko discussed every single day for being a hero?
+
+LOOK AT THE DATE this was published and COUNT how many times Reddit comments have mentioned the "Fox News" problem since year 2015 when this was published!!!!
+
+* “Today, reports of the day’s events are conveyed to the viewing public by way of alternate universes, The Fox News cable channel conveys its **version of reality**, while at the other end of the ideological spectrum MSNBC presents its version. They and their many counterparts on radio are more the result of an economic dynamic than a political one. Dispatching journalists into the field to gather information costs money; hiring a glib bloviator is relatively cheap, and inviting opinionated guests to vent on the air is entirely cost-free. It wouldn’t work if it weren’t popular, and audiences, it turns out, are endlessly absorbed by hearing amplified echoes of their own biases. It’s divisive and damaging to the healthy functioning of our political system, but it’s also indisputably inexpensive and, therefore, good business.”
+― Ted Koppel. Lights Out: A Cyberattack, A Nation Unprepared, Surviving the Aftermath. October 27, 2015. Page 13.
+
+We are living in subreddit by subreddit, TV channel by TV news channel. ARG. Alternate Reality Games. Everyone on DIFFERENT PAGES.
+
