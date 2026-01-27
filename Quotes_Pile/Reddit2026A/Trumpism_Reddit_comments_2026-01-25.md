@@ -1132,3 +1132,13 @@ War Against Reality. War Against Nonfiction.
 https://old.reddit.com/r/nba/comments/1qonbeo/victor_wenbanyama_about_the_events_in_minnesota/o22ktf5/
 
 Posting title "crazy", comment 'insane"
+
+https://old.reddit.com/r/MurderedByWords/comments/1qoezyr/literally_what_its_there_for/o20qqh6/
+
+11-month Reddit account; top-voted popular comment.
+
+https://old.reddit.com/r/MurderedByWords/comments/1qoezyr/literally_what_its_there_for/o20ypx5/
+
+We The People, as a society, have not taken on educating Bible verse "1 John 4:20" to the general public. You have not seen the fiction character God. God is a metaphor. We are in a crisis of Levant science fiction trilogy ( Torah, Bible, Quran, Book of Mormon, etc) interpretation. People believe Fox News fiction is nonfiction, we are in full blown crisis concerning metaphors.
+
+* “Half the people in the world think that the metaphors of their religious traditions, for example, are facts. And the other half contends that they are not facts at all. As a result we have people who consider themselves believers because they accept metaphors as facts, and we have others who classify themselves as atheists because they think religious metaphors are lies.” ― Joseph Campbell, Thou Art That: Transforming Religious Metaphor
