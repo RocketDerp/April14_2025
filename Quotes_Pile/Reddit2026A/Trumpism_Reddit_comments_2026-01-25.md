@@ -1121,3 +1121,7 @@ https://old.reddit.com/r/50501/comments/1qofc96/protesters_in_phoenix_on_the_sid
 
 "insane"
 
+https://old.reddit.com/r/news/comments/1qom99v/person_in_critical_condition_after_being_shot_in/o22dcey/
+
+11 month Reddit account; top-upvoted popular comment.
+
