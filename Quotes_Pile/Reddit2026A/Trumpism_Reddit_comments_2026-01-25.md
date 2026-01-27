@@ -860,3 +860,23 @@ https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1vu648/
 https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1vwuja/
 
 New Reddit account, hours old.
+
+https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1vxknk/
+
+https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1vxyby/
+
+New Reddit account, hours old.
+
+https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1vyoj0/
+
+8 month Reddit account.
+
+https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1vyus2/
+
+"exploited by media" - Reddit social media. This message makes a lot of claims but no off-Reddit URL, no author names, no book titles, nothing but serious claims of people being manipulated but it is treated in a shallow and superficial "you people" kind of egoism way. Like it is a good thing for We The People, all inclusive USA, to have ragging fiction media addictions to Reddit "the media" social platform junk information.
+
+https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1vyz22/
+
+https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1w0qsm/
+
+Two-word extreme short-length message. Hyper Banalization addictions abound in Reddit audience. See: https://Old.Reddit.com/r/HyperBanalisation/comments/bjf6ys/under_the_surkov_media_invasion_of_russia_usa/
