@@ -883,4 +883,4 @@ Two-word extreme short-length message. Hyper Banalization addictions abound in R
 
 https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1w5nyy/
 
-2 month Reddit account. Declaring the situation as entertaining, "hilarious" that the Internet Research Agency and other organizations have wrecked the heats and minds of the USA since March 2013.
+2 month Reddit account. Declaring the situation as entertaining, "hilarious" that the Internet Research Agency and other organizations have wrecked the hearts and minds of the USA since March 2013.
