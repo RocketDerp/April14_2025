@@ -1247,4 +1247,6 @@ https://old.reddit.com/r/DailyShow/comments/1qog8ac/the_2nd_amendment_fetishists
 
 ANSWER: USA is a joke. Joking wins all debate. Putin won. Because everyone finds Trump / ICE / MAGA to be constantly funny and amusing content to stimulate their touch screen. Donald Trump is a comedian, an actor who is acting. Surkovian information warfare blows minds into LOL stupors. We The People have amused ourselves on absurd surreal information warfare.
 
-* "what Putin will do next — that he’s unpredictable and thus dangerous. We’re rendered stunned, spun, and flummoxed by the Kremlin’s **weaponization of absurdity and unreality**.” - year 2014 ... September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+* "what Putin will do next — that he’s unpredictable and thus dangerous. We’re rendered stunned, spun, and flummoxed by the Kremlin’s **weaponization of absurdity and unreality**.” - year 2014 ... September 9, 2014 https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/WitchesVsPatriarchy/comments/1qoneje/i_dont_want_to_hear_a_human_being_called_legal_or/o22k6xn/
