@@ -8,7 +8,7 @@ Thank you. [Love to all](Quotes_Pile/Specific/MLKjr_revolution_of_values.md).
 
 &nbsp;
 
-> NAVIGATE: [Quotes_Pile](/Quotes_Pile/Quotes_Pile.md) ... [PostMalala](/PostMalala/PostMalala.md) ... [Media_Ecology](/Media_Ecology/Media_Ecology.md)
+> NAVIGATE: [Quotes_Pile](/Quotes_Pile/Quotes_Pile.md) ... [PostMalala](/PostMalala/PostMalala.md) ... [Media_Ecology](/Media_Ecology/Media_Ecology.md) .. [SuperIndex](SuperIndex.md)
 
 &nbsp;
 
