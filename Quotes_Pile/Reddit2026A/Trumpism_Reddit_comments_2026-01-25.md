@@ -1174,3 +1174,20 @@ https://old.reddit.com/r/pics/comments/1qoied3/a_photo_of_the_us_republican_cpac
 https://old.reddit.com/r/pics/comments/1qoied3/a_photo_of_the_us_republican_cpac_in_2022/o21s55c/
 
 Reddit society jokes about everything. Joking about Trump being weak, Trump only golfing and not being a threat to humanity. Joke-washing mockery-washing, LOL-washing / LOL cow milking of Trump is his very source of power. Comedy audience keeps Trump at the center of all jokes, all amusement, all memes, all day, all night.
+
+https://old.reddit.com/r/pics/comments/1qoied3/a_photo_of_the_us_republican_cpac_in_2022/o21j7af/
+
+https://old.reddit.com/r/pics/comments/1qoied3/a_photo_of_the_us_republican_cpac_in_2022/o221u5o/
+
+Nonfiction serious commenting. There needs to be editors, not moderators, but edited commentary overlayed with posting. Rewrite titles, one-paragraph summary. Pool of editors you can subscribe to. Like having Roger Ebert reviews to go along with a film.
+
+https://old.reddit.com/r/pics/comments/1qoied3/a_photo_of_the_us_republican_cpac_in_2022/o22dt99/
+
+Tweet-length Twitter-think simplistic logic binary answer to complex problems. Right vs. left one-bit brainrot mindsets. No off-Reddit URL, no book quotes, no author names. It is so easy to toss out hate-filled *kill everyone* simplistic shit-commenting shit-postings. We are drowning in MAGA thinking like this. Surkov won since March 2013.
+
+https://old.reddit.com/r/pics/comments/1qoied3/a_photo_of_the_us_republican_cpac_in_2022/o22sldv/
+
+Putin won an information war, and people think the chaotic reactions pandemic and COVID-2019 had nothing to do with Russia's Internet Research Agency in Saint Petersburg.  AVOIDED: Factual evidence, validated evidence released August 24, 2018: https://www.bbc.com/news/world-us-canada-45294192 and people still think it is LOL LOL LOL LMAO funny to have RFK Jr spreading measles and people will not address the Twitter fnadom mindsets, Fox News HDTV mindsets. Dangerous is the words Dr. Bandy X Lee uses about mental health - and so much time is wasted "debating" as Putin conditioned. Read it again: https://www.bbc.com/news/world-us-canada-45294192
+
+We are manipulating our own brains, exploiting our minds, into feedback loops of Americans vs. Americans because of addiction to high-speed Twitter messaging. https://www.bbc.com/news/world-us-canada-45294192
+
