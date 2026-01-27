@@ -1029,3 +1029,116 @@ https://old.reddit.com/r/politics/comments/1qodt6v/tiktok_blocks_epstein_mention
 https://old.reddit.com/r/politics/comments/1qodt6v/tiktok_blocks_epstein_mentions_and_antitrump/o2154fm/
 
 Surkov won since March of year 2013.
+
+https://old.reddit.com/r/law/comments/1qol5s2/trump_with_that_being_said_you_cant_have_guns_you/o224j3l/
+
+https://old.reddit.com/r/law/comments/1qol5s2/trump_with_that_being_said_you_cant_have_guns_you/o224mt9/
+
+simple-think
+
+https://old.reddit.com/r/law/comments/1qol5s2/trump_with_that_being_said_you_cant_have_guns_you/o224pye/
+
+Yes. Trump is an actor who is acting. To Surkov screenplays. Surkov won since March 2013. Reddit ignorance.
+
+https://old.reddit.com/r/law/comments/1qol5s2/trump_with_that_being_said_you_cant_have_guns_you/o227nsl/
+
+https://old.reddit.com/r/law/comments/1qol5s2/trump_with_that_being_said_you_cant_have_guns_you/o225pvn/
+
+Alternate Reality Gaming. Filter-bubble ARG. https://en.wikipedia.org/wiki/Filter_bubble Surkovian. Every person gets to live in alternate-reality based on media consumption. https://GitHub.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Ted_Koppel.md
+
+https://old.reddit.com/r/law/comments/1qol5s2/trump_with_that_being_said_you_cant_have_guns_you/o22b0id/
+
+https://old.reddit.com/r/law/comments/1qol5s2/trump_with_that_being_said_you_cant_have_guns_you/o22dnbr/
+
+https://old.reddit.com/r/law/comments/1qol5s2/trump_with_that_being_said_you_cant_have_guns_you/o22b1k8/
+
+'LOL", **audience laugh** track. Amused to death population. SEE_ALSO September 10, 2025: https://time.com/7313999/neil-postman-trump-prediction/ last year refresher.
+
+https://old.reddit.com/r/law/comments/1qol5s2/trump_with_that_being_said_you_cant_have_guns_you/o22clxx/
+
+Gun worship.
+
+https://old.reddit.com/r/law/comments/1qol5s2/trump_with_that_being_said_you_cant_have_guns_you/o22ecmd/
+
+Fandom of Trump. Audience of Trump. Thrilled to see new story branches opening in the mythological leadership.
+
+https://old.reddit.com/r/law/comments/1qol5s2/trump_with_that_being_said_you_cant_have_guns_you/o228ioq/
+
+Superficial concerns, shallow mindsets. Set pieces of the Reality White House performance / President Tony Clifton acting sets and backgrounds. Entertainment audience of Reddit doing ANYTHING BUT: asserting, quoting, repeating Dr. Bandy X Lee's leadership and focus on mental health of the nation leaders.
+
+https://old.reddit.com/r/law/comments/1qol5s2/trump_with_that_being_said_you_cant_have_guns_you/o22aink/
+
+9 month Reddit account. "Stupid people", with short-length Tweeting-style reaction commenting. Using free time and spare time in the audience of Reddit to make short comments instead or organizing an Internet intellectual education uprising. Audience of Reddit doing ANYTHING BUT: asserting, quoting, repeating Dr. Bandy X Lee's leadership and focus on mental health of the nation leaders.
+
+https://old.reddit.com/r/law/comments/1qol5s2/trump_with_that_being_said_you_cant_have_guns_you/o22aoqe/
+
+https://old.reddit.com/r/law/comments/1qol5s2/trump_with_that_being_said_you_cant_have_guns_you/o227us5/
+
+Audience member of Reddit media does not grasp that Reality TV shows like Charlie Kirk and Putin-Trump White House Kremlin are scripted. Writers / practiced / get feedback and change up techniques / coached. Surkov student screenplays. Gullibility crisis; media ecology crisis. https://movies.StackExchange.com/questions/31721/how-to-find-out-whether-a-reality-show-is-scripted
+
+* [“The truth is, it’s getting harder to describe the extent to which a meaningful percentage of Americans have dissociated from reality,” Charlie Warzel wrote “I’m Running Out of Ways to Explain How Bad This Is.”](https://www.axios.com/2024/10/19/musk-ackman-election-misinformation) - October 19, 2024 - America’s gullibility crisis, Zachary Basu
+
+https://old.reddit.com/r/Fauxmoi/comments/1qolzkg/trump_against_2nd_amendment_with_that_being_said/o22ar2d/
+
+USA television audiences and social audiences have a serious diaper fetish https://en.wikipedia.org/wiki/Diaper_fetishism for old men. Again and again people prize shit-commenting, shit-posting, shit-governing, shit-media, enshitification. Short Twitter-length reaction-commenting shit media. Instead of calling for the immediate removal of Donald Trump and for people to follow Dr. Bandy X Lee's mental health education... shit social content addictions run the nation. 
+
+https://old.reddit.com/r/Fauxmoi/comments/1qolzkg/trump_against_2nd_amendment_with_that_being_said/o22emj2/
+
+Exactly what Russian information warfare does, Surkov monomyth inverts values in the mass man (University of Toronto Marshall McLuhan terminology) / mass mind (Howard Bloom NYC terminology). Paradox inversions of group thinking / mob mentality programming. Surkov won since March of year 2013.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qolzkg/trump_against_2nd_amendment_with_that_being_said/o22awsj/
+
+2 month Reddit account.
+
+https://old.reddit.com/r/minnesota/comments/1qoiomj/last_night_jimmy_kimmel_didnt_tell_jokes_he_stood/o21mqq2/
+
+Call for a stop to all the comedy-washing joke-washing sane-washing of Trump through meme-making joke-cracking, humor-based mental exploits. Surkov won since March 2013.
+
+* “Everything in our background has prepared us to know and resist a prison when the gates begin to close around us . . . But what if there are no cries of anguish to be heard? Who is prepared to take arms against a sea of amusements? To whom do we complain, and when, and in what tone of voice, when serious discourse dissolves into giggles? What is the antidote to a culture's being drained by laughter?”
+― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. New York University. Media studies / media ecology professor.
+
+https://old.reddit.com/r/minnesota/comments/1qoiomj/last_night_jimmy_kimmel_didnt_tell_jokes_he_stood/o21ow8u/
+
+"pretend", "untrue"
+
+https://old.reddit.com/r/50501/comments/1qofc96/protesters_in_phoenix_on_the_sidewalk_impeding_no/o20ul58/
+
+https://old.reddit.com/r/50501/comments/1qofc96/protesters_in_phoenix_on_the_sidewalk_impeding_no/o20s37i/
+
+https://old.reddit.com/r/50501/comments/1qofc96/protesters_in_phoenix_on_the_sidewalk_impeding_no/o20yrqx/
+
+9 month Reddit account.
+
+https://old.reddit.com/r/50501/comments/1qofc96/protesters_in_phoenix_on_the_sidewalk_impeding_no/o20v0ci/
+
+Media street gangs. Bible science fiction street gang against Carl Sagan science street gang. Fox News HDTV street gang against Reddit news street gang. People who are ALL VOIDING: Dr. Bandy X Lee being promoted every 12 hours on social media. Mental Health topics and quotes of nonfiction from Dr. Lee.
+
+https://old.reddit.com/r/50501/comments/1qofc96/protesters_in_phoenix_on_the_sidewalk_impeding_no/o20vroy/
+
+6 month Reddit account.
+
+https://old.reddit.com/r/50501/comments/1qofc96/protesters_in_phoenix_on_the_sidewalk_impeding_no/o20vbfq/
+
+"insane"
+
+https://old.reddit.com/r/news/comments/1qom99v/person_in_critical_condition_after_being_shot_in/o22dcey/
+
+11 month Reddit account; top-upvoted popular comment.
+
+https://old.reddit.com/r/news/comments/1qom99v/person_in_critical_condition_after_being_shot_in/o22bhaj/
+
+War Against Reality. War Against Nonfiction.
+
+https://old.reddit.com/r/nba/comments/1qonbeo/victor_wenbanyama_about_the_events_in_minnesota/o22ktf5/
+
+Posting title "crazy", comment 'insane"
+
+https://old.reddit.com/r/MurderedByWords/comments/1qoezyr/literally_what_its_there_for/o20qqh6/
+
+11-month Reddit account; top-voted popular comment.
+
+https://old.reddit.com/r/MurderedByWords/comments/1qoezyr/literally_what_its_there_for/o20ypx5/
+
+We The People, as a society, have not taken on educating Bible verse "1 John 4:20" to the general public. You have not seen the fiction character God. God is a metaphor. We are in a crisis of Levant science fiction trilogy ( Torah, Bible, Quran, Book of Mormon, etc) interpretation. People believe Fox News fiction is nonfiction, we are in full blown crisis concerning metaphors.
+
+* “Half the people in the world think that the metaphors of their religious traditions, for example, are facts. And the other half contends that they are not facts at all. As a result we have people who consider themselves believers because they accept metaphors as facts, and we have others who classify themselves as atheists because they think religious metaphors are lies.” ― Joseph Campbell, Thou Art That: Transforming Religious Metaphor
