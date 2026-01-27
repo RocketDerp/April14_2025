@@ -1,1 +1,4 @@
+# 2026-01-27 default GitHub Pages uses kramdown to generate HTML from .md files
+#   problem is that naked https:// links are not clickable on output HTML
+#   changing to "GFM" markdown to override default of kramdown 
 markdown: GFM
