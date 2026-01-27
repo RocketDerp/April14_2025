@@ -22,12 +22,12 @@ However, Islam has had a presence in Georgia for a long time, dating back to the
 
 # ToDo: more
 
-1. Jumping to conclusions and not facing up the media environnment influence.
+1. Jumping to conclusions and not facing up the media environment influence.
 2. "Bad Brand" behaviors of authors, news networks, sources, etc.
 
 ### Bad Brand behaviors
 
-Declaring everything from Newsweek to be bad. Simplsitic approach to fact-checking, validation, comprehension of information. Corporate brand loyalty.
+Declaring everything from Newsweek to be bad. Simplistic approach to fact-checking, validation, comprehension of information. Corporate brand loyalty.
 
 Ford vs. Chevy owners, brand loyalty example of *insult the others*.
 

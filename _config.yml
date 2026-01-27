@@ -5,3 +5,9 @@
 #   https://github.com/orgs/community/discussions/48797
 #
 markdown: GFM
+
+# cut down GitHub CPU usage
+exclude:
+  - Mastodon/
+  - Quotes_Pile/Reddit2025A/
+  - Quotes_Pile/Reddit2025B/
