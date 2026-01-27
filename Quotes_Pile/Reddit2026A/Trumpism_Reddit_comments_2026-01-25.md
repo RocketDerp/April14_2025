@@ -1015,3 +1015,11 @@ https://old.reddit.com/r/politics/comments/1qodt6v/tiktok_blocks_epstein_mention
 "Everything is PR", "Everything is Public Relations"  
 "Everything is ME", "Everything is Media Ecology" around MAGA Kremlin White House since March 2013.  
 https://GitHub.com/RocketDerp/April14_2025/blob/main/Media_Ecology/Everything_is_ME.md
+
+https://old.reddit.com/r/politics/comments/1qodt6v/tiktok_blocks_epstein_mentions_and_antitrump/o20kpr8/
+
+Russia conservatives are worse. Taliban conservatives are worse.
+
+* AFTER [Donald Trump's November 8, 2013 trip to Moscow on a private jet](https://time.com/5251484/donald-trump-flight-records-moscow-trip/). Quote ::: "Vladimir Putin is calling on the conservatives of the world to unite—behind him. The Kremlin leader's full-throated defense of Russia's "traditional values" and his derision of **the West's "genderless** and infertile" liberalism in his annual state-of-the-nation address last week was just the latest example of Putin attempting to place himself at the vanguard of a new "Conservative International." ::: - December 20, 2013 https://www.TheAtlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/
+
+We need to rescue Trump, rescue Musk, rescue Murdoch, rescue MAGA, rescue NATO, rescue USA We The People from the Surkov monomyth that was deployed starting in March of year 2013.
