@@ -909,3 +909,10 @@ https://old.reddit.com/r/sports/comments/1qo1472/trump_sparks_fresh_outrage_with
 
 https://old.reddit.com/r/sports/comments/1qo1472/trump_sparks_fresh_outrage_with_secret_bid_to/o1y9hf4/
 
+https://old.reddit.com/r/MurderedByWords/comments/1qo1om5/just_comply/o1y49wg/
+
+https://old.reddit.com/r/MurderedByWords/comments/1qo1om5/just_comply/o1y5s52/
+
+https://old.reddit.com/r/MurderedByWords/comments/1qo1om5/just_comply/o1y4ai4/
+
+3 month Reddit account.
