@@ -1078,3 +1078,6 @@ Audience member of Reddit media does not grasp that Reality TV shows like Charli
 
 * [“The truth is, it’s getting harder to describe the extent to which a meaningful percentage of Americans have dissociated from reality,” Charlie Warzel wrote “I’m Running Out of Ways to Explain How Bad This Is.”](https://www.axios.com/2024/10/19/musk-ackman-election-misinformation) - October 19, 2024 - America’s gullibility crisis, Zachary Basu
 
+https://old.reddit.com/r/Fauxmoi/comments/1qolzkg/trump_against_2nd_amendment_with_that_being_said/o22ar2d/
+
+USA television audiences and social audiences have a serious diaper fetish https://en.wikipedia.org/wiki/Diaper_fetishism for old men. Again and again people prize shit-commenting, shit-posting, shit-governing, shit-media, enshitification. Short Twitter-length reaction-commenting shit media. Instead of calling for the immediate removal of Donald Trump and for people to follow Dr. Bandy X Lee's mental health education... shit social content addictions run the nation. 
