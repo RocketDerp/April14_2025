@@ -916,3 +916,8 @@ https://old.reddit.com/r/MurderedByWords/comments/1qo1om5/just_comply/o1y5s52/
 https://old.reddit.com/r/MurderedByWords/comments/1qo1om5/just_comply/o1y4ai4/
 
 3 month Reddit account.
+
+https://old.reddit.com/r/law/comments/1qo1cwl/white_house_backtracks_initial_claims_about_alex/o1yblhl/
+
+The top message and highest reply to message are 1 year Reddit accounts.
+
