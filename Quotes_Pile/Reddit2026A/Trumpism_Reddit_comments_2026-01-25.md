@@ -996,6 +996,12 @@ I believe the USA society has moved as far away from Woodstock 1969; August 15, 
 
 AND, for the record, the white men at Woodstock in August 1969 had as many problems with 13 year old girl sex as the white men of Fox News, Musk, Trump August 2025. We all need to get behind Malala since October 8, 2013 - as that is a GLOBAL problem with men.
 
+* “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.”
+― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. October 8, 2013. Shot in the head by men at age 15.
+
+* “If Christians, Hindus or Jews are really our enemies, as so many say, why are we Muslims fighting with each other?” ― Malala Yousafzai, I am Malala: The Story of the Girl Who Stood Up for Education and was Shot by the Taliban. Shot in the head by the Adults In The Room, men shot her and her friends on her school bus for being Uppity about Girls at age 15 on the Internet (she was a [blogger and small town citizen journalist girl on the Internet *World Wide* Web since January 3, 2009](https://www.bbc.com/news/magazine-19899540) at age 11).
+
+
 https://old.reddit.com/r/law/comments/1qo1cwl/white_house_backtracks_initial_claims_about_alex/o1yaqu9/
 
 Fiction outsells nonfiction. "lies" are entirely acceptable within fiction storytelling. You don't consider Star Wars 1977 a "lie" because there is no factual evidence of a Death Star / space station planet killer. We need to wake up that Fox News HDTV, since year 1996, is a fiction storytelling network. Fiction outsells nonfiction. We either stand up for science nonfiction or we drown in the leadership of the most entertaining mockery like Mecca / Quran / Mohammad storytelling leads far more people than USA 0.34 billion nonfiction science foundations of the Free Masons year 1776.
