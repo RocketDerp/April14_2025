@@ -8,6 +8,10 @@ Thank you. [Love to all](Quotes_Pile/Specific/MLKjr_revolution_of_values.md).
 
 &nbsp;
 
+> NAVIGATE: [Quotes_Pile](/Quotes_Pile/Quotes_Pile.md)
+
+&nbsp;
+
 * "Survival is the second law of life. The first is that we are all one."
 *  - *A Joseph Campbell Companion: Reflections on the Art of Living*, page 37
  
