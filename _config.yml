@@ -11,3 +11,10 @@ exclude:
   - Mastodon/
   - Quotes_Pile/Reddit2025A/
   - Quotes_Pile/Reddit2025B/
+
+include:
+  - Quotes_Pile/Reddit2025A/Highlights/
+  - Quotes_Pile/Reddit2025A/Censored/
+  - Quotes_Pile/Reddit2025B/Highlights/
+  - Quotes_Pile/Reddit2025A/Surkovian_Onion_Eating.md
+  - Quotes_Pile/Reddit2026A/Censored/
