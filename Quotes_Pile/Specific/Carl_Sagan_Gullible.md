@@ -6,6 +6,8 @@ Science arouses a soaring sense of wonder. But so does pseudoscience. Sparse and
 
 Carl Sagan, year 1995, The Demon-Haunted World: Science as a Candle in the Dark, Chapter 1: "The Most Precious Thing", Page 9
 
+this quote is available currently: https://www.PenguinRandomHouse.ca/books/159731/the-demon-haunted-world-by-carl-sagan/9780345409461/excerpt
+
 &nbsp;
 
 &nbsp;
