@@ -953,7 +953,10 @@ Go over this list, and look at the addictions to short engaging commenting over 
 
 People on Reddit are following Putin's lead to self-harm USA. People on Reddit are following Trump's lead to self-harm USA. Surkov won. Russia has been the BULLY that the USA Pentagon / military has lost, NATO is wrecked. WAKE UP! The whole world is watching the anti-NATO pro-Putin BULLSHIT!
 
+
 https://old.reddit.com/r/law/comments/1qo1cwl/white_house_backtracks_initial_claims_about_alex/o1y6734/
+
+<img width="1091" height="468" alt="image" src="https://github.com/user-attachments/assets/bf7e6a4c-5d2e-4a63-9922-79f8e2111da5" />
 
 "laughing", everything Trump does is so entertaining to low-effort commenting addicts on meme gathering spots (Reddit) with touch high-speed reacting machines.
 
