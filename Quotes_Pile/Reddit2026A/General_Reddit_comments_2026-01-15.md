@@ -1598,3 +1598,6 @@ As a billionaire computer industry insider... it is great to see people emphasiz
 https://old.reddit.com/r/sanfrancisco/comments/1qnwq9p/oracle_owned_tiktok_is_preventing_scott_wieners/o1x7cv1/
 
 Upscroll media platform
+
+https://old.reddit.com/r/sanfrancisco/comments/1qnwq9p/oracle_owned_tiktok_is_preventing_scott_wieners/o1x2dzb/
+
