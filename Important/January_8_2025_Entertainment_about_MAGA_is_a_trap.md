@@ -6,7 +6,7 @@ https://bsky.app/profile/roundsparrow.bsky.social/post/3lfbg3ok7vc26
 
 &nbsp;
 
-### salon .com story Junuary 8, 2025 
+### salon .com story January 8, 2025 
 
 &nbsp;
 

@@ -1142,3 +1142,71 @@ https://old.reddit.com/r/MurderedByWords/comments/1qoezyr/literally_what_its_the
 We The People, as a society, have not taken on educating Bible verse "1 John 4:20" to the general public. You have not seen the fiction character God. God is a metaphor. We are in a crisis of Levant science fiction trilogy ( Torah, Bible, Quran, Book of Mormon, etc) interpretation. People believe Fox News fiction is nonfiction, we are in full blown crisis concerning metaphors.
 
 * “Half the people in the world think that the metaphors of their religious traditions, for example, are facts. And the other half contends that they are not facts at all. As a result we have people who consider themselves believers because they accept metaphors as facts, and we have others who classify themselves as atheists because they think religious metaphors are lies.” ― Joseph Campbell, Thou Art That: Transforming Religious Metaphor
+
+https://old.reddit.com/r/MurderedByWords/comments/1qoezyr/literally_what_its_there_for/o20sk7l/
+
+Except when you argue in public on Twitter and Reddit you can document it on GitHub and teach media ecology self-awareness. People who are "an idiot" are very often not educated. Lacking self-awareness of how adult education works from Fox News HDTV. That's one of the most important education concerns of our time; Twitter, Bluesky, Reddit, YouTube, TikTok, Truth Social compulsive behaviors of hive minded individuals.
+
+* "Being illiterate in the processes of any **medium** (language) leaves one at the mercy of those who control it. The **new media** — these new languages — then are among the most important "subjects" to be studied in the interests of survival." - Neil Postman on media ecology
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1qon0en/trump_just_doubled_down_on_saying_we_dont_have_2a/o22jxxm/
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1qon0en/trump_just_doubled_down_on_saying_we_dont_have_2a/o22isss/
+
+Loyal fandom to Trump contenting, waiting to watch how competing audiences react to the Reality White House Kremlin entertainment. High speed messaging addictions now drive society. People who get into media fandom clubs of Trump / ICE / MAGA / Rupert Murdoch managed commentary - and react like team fans. Group thinking. All of which are so engaged by the social media engagement systems / memes and Fox News graphic artists - that they do not desire to *remove Trump* and heal MAGA - because the entertainment will no longer stimulate their minds. Addiction to Trump stimulation. Antics politics fandoms. ALWAYS AVOIDING: promoting Dr. Bandy X Lee and her October 3, 2017 nonfiction book on mental health of Trump and how dangerous it is to have Donald Trump in power.
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1qon0en/trump_just_doubled_down_on_saying_we_dont_have_2a/o22kb24/
+
+Gun sales. Weapon brandishing. Hate motivates.
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1qon0en/trump_just_doubled_down_on_saying_we_dont_have_2a/o22kp4o/
+
+"Jesus"
+
+https://old.reddit.com/r/pics/comments/1qoied3/a_photo_of_the_us_republican_cpac_in_2022/o21h186/
+
+https://old.reddit.com/r/pics/comments/1qoied3/a_photo_of_the_us_republican_cpac_in_2022/o21w4op/
+
+https://old.reddit.com/r/pics/comments/1qoied3/a_photo_of_the_us_republican_cpac_in_2022/o21pndh/
+
+7 month Reddit account. Mocking name ("Bamboozled") on profile. Tiny-short Twitter-think Tweet-length messaging of banality.
+
+https://old.reddit.com/r/pics/comments/1qoied3/a_photo_of_the_us_republican_cpac_in_2022/o21s55c/
+
+Reddit society jokes about everything. Joking about Trump being weak, Trump only golfing and not being a threat to humanity. Joke-washing mockery-washing, LOL-washing / LOL cow milking of Trump is his very source of power. Comedy audience keeps Trump at the center of all jokes, all amusement, all memes, all day, all night.
+
+https://old.reddit.com/r/pics/comments/1qoied3/a_photo_of_the_us_republican_cpac_in_2022/o21j7af/
+
+https://old.reddit.com/r/pics/comments/1qoied3/a_photo_of_the_us_republican_cpac_in_2022/o221u5o/
+
+Nonfiction serious commenting. There needs to be editors, not moderators, but edited commentary overlayed with posting. Rewrite titles, one-paragraph summary. Pool of editors you can subscribe to. Like having Roger Ebert reviews to go along with a film.
+
+https://old.reddit.com/r/pics/comments/1qoied3/a_photo_of_the_us_republican_cpac_in_2022/o22dt99/
+
+Tweet-length Twitter-think simplistic logic binary answer to complex problems. Right vs. left one-bit brainrot mindsets. No off-Reddit URL, no book quotes, no author names. It is so easy to toss out hate-filled *kill everyone* simplistic shit-commenting shit-postings. We are drowning in MAGA thinking like this. Surkov won since March 2013.
+
+https://old.reddit.com/r/pics/comments/1qoied3/a_photo_of_the_us_republican_cpac_in_2022/o22sldv/
+
+Putin won an information war, and people think the chaotic reactions pandemic and COVID-2019 had nothing to do with Russia's Internet Research Agency in Saint Petersburg.  AVOIDED: Factual evidence, validated evidence released August 24, 2018: https://www.bbc.com/news/world-us-canada-45294192 and people still think it is LOL LOL LOL LMAO funny to have RFK Jr spreading measles and people will not address the Twitter fnadom mindsets, Fox News HDTV mindsets. Dangerous is the words Dr. Bandy X Lee uses about mental health - and so much time is wasted "debating" as Putin conditioned. Read it again: https://www.bbc.com/news/world-us-canada-45294192
+
+We are manipulating our own brains, exploiting our minds, into feedback loops of Americans vs. Americans because of addiction to high-speed Twitter messaging. https://www.bbc.com/news/world-us-canada-45294192
+
+https://old.reddit.com/r/pics/comments/1qoied3/a_photo_of_the_us_republican_cpac_in_2022/o220tof/
+
+Again, READ these Reddit messages in this commenting thread. Then ask yourself: Why are so many people using their spare time and free time and not promoting and following the leadership of Dr. Bandy X Lee since she published her October 3, 2017 book?
+
+* "Social media have changed the way Americans are exposed to news. Internet news sites (CNN, Huffington Post, etc.) and social media such as Facebook and Twitter provide immediate access to news as well as to comments from other readers with differing viewpoints. Many Americans impacted by Trump anxiety disorder have admitted to an **unhealthy obsession with checking news websites much more often** than they previously did, and the amount of **news involving Trump and his new administration has been constant, chaotic, confusing, and often overwhelming**. When struggling with anxiety, many individuals, in an attempt to maintain control, will falsely assume that the more they know, the more they can be prepared. However, this tends to give them a false sense of control and, paradoxically, may increase anxiety symptoms once they realize their grip on control is not solid." - Dr. Bandy X Lee, The Dangerous Case of Donald Trump: 27 Psychiatrists and Mental Health Experts Assess a President. Published October 3, 2017. Chapter "Trump Anxiety Disorder: The Trump Effect on the Mental Health of the Public Half the Nation and Special Populations"; by Jennifer Contarino Panning, page ??.
+
+https://old.reddit.com/r/pics/comments/1qoied3/a_photo_of_the_us_republican_cpac_in_2022/o22mxjj/
+
+The entire world, over 8 billion people, are going to think that about USA as a nation in total. A nation of 0.34 billion who did not rise up and **OCCUPY SOCIAL MEDIA** calling for Dr. Bandy X Lee leadership on mental health. The absent Internet social media teaching about Fox News brainwashing, promoting Jen Senko's film. https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad Instead, we get low-effort different-page commenting over and over since June 16, 2015. Internet users will not come together on the same page of promoting Dr. Bandy X Lee's mental health topics. 
+
+People in commenting complain over and over and over and over about "The Media" while not encouraging online meetings, FAQ, Wiki organizing of topics, WikiTribune as We The People news reporting. So much free time and spare time consumed with low-effort disorganized commenting on Bluesky and Reddit.
+
+https://old.reddit.com/r/pics/comments/1qoied3/a_photo_of_the_us_republican_cpac_in_2022/o22zhc1/
+
+https://old.reddit.com/r/pics/comments/1qoied3/a_photo_of_the_us_republican_cpac_in_2022/o22y3u4/
+
+The entire nation won't be bothered to learn **serious nonfiction** about the Internet Research Agency in Saint Petersburg. People won't discuss what exactly Cambridge Analytica did to minds / mental programming that doctors of psychology and psychiatry designed.
+
+* May 7, 2017  https://www.theguardian.com/technology/2017/may/07/the-great-british-brexit-robbery-hijacked-democracy This is not just a story about social psychology and data analytics. It has to be understood in terms of a military contractor using military strategies on a civilian population. Us. David Miller, a professor of sociology at Bath University and an authority in psyops and propaganda, says it is “an extraordinary scandal that this should be anywhere near a democracy. It should be clear to voters where information is coming from, and if it’s not transparent or open where it’s coming from, **it raises the question of whether we are actually living in a democracy or not.**” Paul and David, another ex-Cambridge Analytica employee, were working at the firm when it introduced mass data-harvesting to its psychological warfare techniques. “It brought psychology, propaganda and technology together in this **powerful new way**,” David tells me.
