@@ -1210,3 +1210,21 @@ https://old.reddit.com/r/pics/comments/1qoied3/a_photo_of_the_us_republican_cpac
 The entire nation won't be bothered to learn **serious nonfiction** about the Internet Research Agency in Saint Petersburg. People won't discuss what exactly Cambridge Analytica did to minds / mental programming that doctors of psychology and psychiatry designed.
 
 * May 7, 2017  https://www.theguardian.com/technology/2017/may/07/the-great-british-brexit-robbery-hijacked-democracy This is not just a story about social psychology and data analytics. It has to be understood in terms of a military contractor using military strategies on a civilian population. Us. David Miller, a professor of sociology at Bath University and an authority in psyops and propaganda, says it is “an extraordinary scandal that this should be anywhere near a democracy. It should be clear to voters where information is coming from, and if it’s not transparent or open where it’s coming from, **it raises the question of whether we are actually living in a democracy or not.**” Paul and David, another ex-Cambridge Analytica employee, were working at the firm when it introduced mass data-harvesting to its psychological warfare techniques. “It brought psychology, propaganda and technology together in this **powerful new way**,” David tells me.
+
+https://old.reddit.com/r/DailyShow/comments/1qog8ac/the_2nd_amendment_fetishists_who_brought_you_kyle/o212ybl/
+
+The ENTIRE POPULATION of social media users
+
+1. Ignoring the Ukraine war warnings about Internet invasion 
+
+2. Ignoring pandemic warnings about Russia's Internet Research Agency. https://www.bbc.com/news/world-us-canada-45294192
+
+3. Ignoring Dr. Bandy X Lee's leadership on **mental health** and dangerous behaviors of Donald Trump and shared MAGA mindsets. https://www.scientificamerican.com/article/the-shared-psychosis-of-donald-trump-and-his-loyalists/
+
+4. Ignoring Jen Senko's film about brainwashing and right-wing media. https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad
+
+5. Repeating "Epstein" on social media over and over but NOT repeating Jen Senko, Dr. Bandy X Lee!!
+
+6. Commenting over and over on different pages and not **connecting the dots** about anti-NATO behaviors of Russia since February 20, 2014. Russian Internet memes and messages are to wreck NATO. WAKE UP, look at the Greenland and Canada bullshit! Exactly what Putin wanted! Social media is the very problem to address!! People avoiding NONFICTION serious book reading. https://www.youtube.com/watch?v=5Au332OG-M4
+
+Constantly LOL, constant memes, constant downplaying, joking, joke-cracking, making fun, humor about the most unimportant and superficial topics. Day in and day out, orange skin, golf outings, ANYTHING but SERIOUS NONFICTION from Dr. Bandy X Lee every god damn day on the front page /r/All of Reddit!
