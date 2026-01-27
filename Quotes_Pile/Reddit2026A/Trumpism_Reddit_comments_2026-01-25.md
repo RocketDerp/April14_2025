@@ -1154,3 +1154,16 @@ https://old.reddit.com/r/LeopardsAteMyFace/comments/1qon0en/trump_just_doubled_d
 https://old.reddit.com/r/LeopardsAteMyFace/comments/1qon0en/trump_just_doubled_down_on_saying_we_dont_have_2a/o22isss/
 
 Loyal fandom to Trump contenting, waiting to watch how competing audiences react to the Reality White House Kremlin entertainment. High speed messaging addictions now drive society. People who get into media fandom clubs of Trump / ICE / MAGA / Rupert Murdoch managed commentary - and react like team fans. Group thinking. All of which are so engaged by the social media engagement systems / memes and Fox News graphic artists - that they do not desire to *remove Trump* and heal MAGA - because the entertainment will no longer stimulate their minds. Addiction to Trump stimulation. Antics politics fandoms. ALWAYS AVOIDING: promoting Dr. Bandy X Lee and her October 3, 2017 nonfiction book on mental health of Trump and how dangerous it is to have Donald Trump in power.
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1qon0en/trump_just_doubled_down_on_saying_we_dont_have_2a/o22kb24/
+
+Gun sales. Weapon brandishing. Hate motivates.
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1qon0en/trump_just_doubled_down_on_saying_we_dont_have_2a/o22kp4o/
+
+"Jesus"
+
+https://old.reddit.com/r/pics/comments/1qoied3/a_photo_of_the_us_republican_cpac_in_2022/o21h186/
+
+https://old.reddit.com/r/pics/comments/1qoied3/a_photo_of_the_us_republican_cpac_in_2022/o21w4op/
+
