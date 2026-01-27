@@ -1049,3 +1049,8 @@ Alternate Reality Gaming. Filter-bubble ARG. https://en.wikipedia.org/wiki/Filte
 https://old.reddit.com/r/law/comments/1qol5s2/trump_with_that_being_said_you_cant_have_guns_you/o22b0id/
 
 https://old.reddit.com/r/law/comments/1qol5s2/trump_with_that_being_said_you_cant_have_guns_you/o22dnbr/
+
+https://old.reddit.com/r/law/comments/1qol5s2/trump_with_that_being_said_you_cant_have_guns_you/o22b1k8/
+
+'LOL", **audience laugh** track. Amused to death population. SEE_ALSO September 10, 2025: https://time.com/7313999/neil-postman-trump-prediction/ last year refresher.
+
