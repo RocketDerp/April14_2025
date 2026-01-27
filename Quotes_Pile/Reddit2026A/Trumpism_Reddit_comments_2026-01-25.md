@@ -1054,3 +1054,27 @@ https://old.reddit.com/r/law/comments/1qol5s2/trump_with_that_being_said_you_can
 
 'LOL", **audience laugh** track. Amused to death population. SEE_ALSO September 10, 2025: https://time.com/7313999/neil-postman-trump-prediction/ last year refresher.
 
+https://old.reddit.com/r/law/comments/1qol5s2/trump_with_that_being_said_you_cant_have_guns_you/o22clxx/
+
+Gun worship.
+
+https://old.reddit.com/r/law/comments/1qol5s2/trump_with_that_being_said_you_cant_have_guns_you/o22ecmd/
+
+Fandom of Trump. Audience of Trump. Thrilled to see new story branches opening in the mythological leadership.
+
+https://old.reddit.com/r/law/comments/1qol5s2/trump_with_that_being_said_you_cant_have_guns_you/o228ioq/
+
+Superficial concerns, shallow mindsets. Set pieces of the Reality White House performance / President Tony Clifton acting sets and backgrounds. Entertainment audience of Reddit doing ANYTHING BUT: asserting, quoting, repeating Dr. Bandy X Lee's leadership and focus on mental health of the nation leaders.
+
+https://old.reddit.com/r/law/comments/1qol5s2/trump_with_that_being_said_you_cant_have_guns_you/o22aink/
+
+9 month Reddit account. "Stupid people", with short-length Tweeting-style reaction commenting. Using free time and spare time in the audience of Reddit to make short comments instead or organizing an Internet intellectual education uprising. Audience of Reddit doing ANYTHING BUT: asserting, quoting, repeating Dr. Bandy X Lee's leadership and focus on mental health of the nation leaders.
+
+https://old.reddit.com/r/law/comments/1qol5s2/trump_with_that_being_said_you_cant_have_guns_you/o22aoqe/
+
+https://old.reddit.com/r/law/comments/1qol5s2/trump_with_that_being_said_you_cant_have_guns_you/o227us5/
+
+Audience member of Reddit media does not grasp that Reality TV shows like Charlie Kirk and Putin-Trump White House Kremlin are scripted. Writers / practiced / get feedback and change up techniques / coached. Surkov student screenplays. Gullibility crisis; media ecology crisis. https://movies.StackExchange.com/questions/31721/how-to-find-out-whether-a-reality-show-is-scripted
+
+* [“The truth is, it’s getting harder to describe the extent to which a meaningful percentage of Americans have dissociated from reality,” Charlie Warzel wrote “I’m Running Out of Ways to Explain How Bad This Is.”](https://www.axios.com/2024/10/19/musk-ackman-election-misinformation) - October 19, 2024 - America’s gullibility crisis, Zachary Basu
+
