@@ -1029,3 +1029,19 @@ https://old.reddit.com/r/politics/comments/1qodt6v/tiktok_blocks_epstein_mention
 https://old.reddit.com/r/politics/comments/1qodt6v/tiktok_blocks_epstein_mentions_and_antitrump/o2154fm/
 
 Surkov won since March of year 2013.
+
+https://old.reddit.com/r/law/comments/1qol5s2/trump_with_that_being_said_you_cant_have_guns_you/o224j3l/
+
+https://old.reddit.com/r/law/comments/1qol5s2/trump_with_that_being_said_you_cant_have_guns_you/o224mt9/
+
+simple-think
+
+https://old.reddit.com/r/law/comments/1qol5s2/trump_with_that_being_said_you_cant_have_guns_you/o224pye/
+
+Yes. Trump is an actor who is acting. To Surkov screenplays. Surkov won since March 2013. Reddit ignorance.
+
+https://old.reddit.com/r/law/comments/1qol5s2/trump_with_that_being_said_you_cant_have_guns_you/o227nsl/
+
+https://old.reddit.com/r/law/comments/1qol5s2/trump_with_that_being_said_you_cant_have_guns_you/o225pvn/
+
+Alternate Reality Gaming. Filter-bubble ARG. https://en.wikipedia.org/wiki/Filter_bubble Surkovian. Every person gets to live in alternate-reality based on media consumption. https://GitHub.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Ted_Koppel.md
