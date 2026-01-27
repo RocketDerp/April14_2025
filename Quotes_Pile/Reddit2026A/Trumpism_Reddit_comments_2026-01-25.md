@@ -995,3 +995,7 @@ I believe in the Great Seal of the United States of America - that teaches **sou
 I believe the USA society has moved as far away from Woodstock 1969; August 15, 1969 – August 18, 1969 New York to Trump New York, SNL New York (Tony Clifton acting by Trump), Fox News New York since October 7, 1996. I think Woodstock was our peak soul programming from white men, white young men rock and roll from UK / London airport to New York state airports... that was when we peaked white men education. Then the white men Rupert Murdoch, Trump and Musk took over for the white men.
 
 AND, for the record, the white men at Woodstock in August 1969 had as many problems with 13 year old girl sex as the white men of Fox News, Musk, Trump August 2025. We all need to get behind Malala since October 8, 2013 - as that is a GLOBAL problem with men.
+
+https://old.reddit.com/r/law/comments/1qo1cwl/white_house_backtracks_initial_claims_about_alex/o1yaqu9/
+
+Fiction outsells nonfiction. "lies" are entirely acceptable within fiction storytelling. You don't consider Star Wars 1977 a "lie" because there is no factual evidence of a Death Star / space station planet killer. We need to wake up that Fox News HDTV, since year 1996, is a fiction storytelling network. Fiction outsells nonfiction. We either stand up for science nonfiction or we drown in the leadership of the most entertaining mockery like Mecca / Quran / Mohammad storytelling leads far more people than USA 0.34 billion nonfiction science foundations of the Free Masons year 1776.
