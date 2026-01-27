@@ -1045,3 +1045,7 @@ https://old.reddit.com/r/law/comments/1qol5s2/trump_with_that_being_said_you_can
 https://old.reddit.com/r/law/comments/1qol5s2/trump_with_that_being_said_you_cant_have_guns_you/o225pvn/
 
 Alternate Reality Gaming. Filter-bubble ARG. https://en.wikipedia.org/wiki/Filter_bubble Surkovian. Every person gets to live in alternate-reality based on media consumption. https://GitHub.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Ted_Koppel.md
+
+https://old.reddit.com/r/law/comments/1qol5s2/trump_with_that_being_said_you_cant_have_guns_you/o22b0id/
+
+https://old.reddit.com/r/law/comments/1qol5s2/trump_with_that_being_said_you_cant_have_guns_you/o22dnbr/
