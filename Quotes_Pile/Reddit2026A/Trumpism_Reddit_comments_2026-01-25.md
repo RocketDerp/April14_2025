@@ -1026,3 +1026,6 @@ We need to rescue Trump, rescue Musk, rescue Murdoch, rescue MAGA, rescue NATO, 
 
 https://old.reddit.com/r/politics/comments/1qodt6v/tiktok_blocks_epstein_mentions_and_antitrump/o20k24s/
 
+https://old.reddit.com/r/politics/comments/1qodt6v/tiktok_blocks_epstein_mentions_and_antitrump/o2154fm/
+
+Surkov won since March of year 2013.
