@@ -71,17 +71,17 @@ The extreme frustration that other people tusted Fox News television and not you
 
 Dealing with all the anxiety of having to trust people who obiviously trust Fox News at face value and trust that Donald Trump was good for the future of the USA. The generalized society-wide anxiety of sitting on a time-bomb of trusting a man who trusts Putin.
 
-## Compettion, "winner takes all"
+## Competition, "winner takes all"
 
-The never-ending competititon, even when competititon ended, it goes on.
+The never-ending competition, even when competition ended, it goes on.
 
-There shouldn't be a competittion between no health care and health care. Between homelessand having a home. Dog eat dog attraction to dog fighting violence. Attraction to domination and cruelty. Seeing mob mentality and runaway sports addiction values applied to society at large, the body politic as a sport of toxic poisoning for attention seeking.
+There shouldn't be a competition between no health care and health care. Between homeless and having a home. Dog eat dog attraction to dog fighting violence. Attraction to domination and cruelty. Seeing mob mentality and runaway sports addiction values applied to society at large, the body politic as a sport of toxic poisoning for attention seeking.
 
-Still having the memroies before year 2013, even seeing a film before year 2013, that depicts a reality of real life that wasn't constant self-harm and pranks against goodness. The siege against goodness. The enshitification of society / government intoa antics crutely competititon.
+Still having the memories before year 2013, even seeing a film before year 2013, that depicts a reality of real life that wasn't constant self-harm and pranks against goodness. The siege against goodness. The enshitification of society / government into antics cruelty competition. 
 
 ## having been defeated by Russia and nobody defended
 
-The intellectual artists, the commercial artists, did not defend against Russia in the March 2013 onward meme warfare. Many will feel shame and CPTSD for having lost a mental manipulation war and knowing nobody with the talents and gifts of art really tried to raise awareness of key authors (Peter P) and teachers (Neil Postman) while happily joining in with the mocking and insutling humanism via graphics arts.
+The intellectual artists, the commercial artists, did not defend against Russia in the March 2013 onward meme warfare. Many will feel shame and CPTSD for having lost a mental manipulation war and knowing nobody with the talents and gifts of art really tried to raise awareness of key authors (Peter P) and teachers (Neil Postman) while happily joining in with the mocking and insulting humanism via graphics arts.
 
 Watching your nation fall for Russian mind games of creative fiction media arts:   
 https://old.reddit.com/r/politics/comments/1mfr6vw/magas_new_russiagate_evidence_likely_made_up_by/
@@ -129,7 +129,7 @@ Joseph Campbell at age 83, Skywalker Ranch California interviews: "The big momen
 
 https://old.reddit.com/r/politics/comments/1mjzy2r/trump_rants_about_countries_laughing_at_america/n7fef36/
 
-brickne3 2007-04-28 (reddit has only been around for 20 years, old account)
+brickne3 2007-04-28 (Reddit has only been around for 20 years, old account)
 
 <img width="1362" height="1484" alt="image" src="https://github.com/user-attachments/assets/d7d9646c-5fe4-43cc-882d-bbeadb9b39cd" />
 
@@ -141,7 +141,7 @@ brickne3 2007-04-28 (reddit has only been around for 20 years, old account)
 
 &nbsp;
 
-Saturday November 8, 2025
+### Saturday November 8, 2025
 
 The grim future, the patterns unfolding, the road ahead.    
 https://old.reddit.com/r/complaints/comments/1orumug/i_cant_do_3_more_years_of_trump_do_the_right/
@@ -150,11 +150,11 @@ https://old.reddit.com/r/complaints/comments/1orumug/i_cant_do_3_more_years_of_t
 
 &nbsp;
 
-Thursday December 11, 2025 (Quote about Russia Hybrid wrfare day)    
+### Thursday December 11, 2025 (Quote about Russia Hybrid warfare day)    
 
 Media Ecology is this page organization on GitHub. And you see social media "The Media" ecology of flippant mockery and dismissal of Deceleration of Independence meaning of "self-evident" 1776 year.
 
-CPTSD / PTSD of Trumpism / Fox News nation / Putin hybrid warfare and Putin since year 1999 enduring techniques. Putinsim WORKS, PROVEN SYSTEM! And terrorizing stress-lording / PTSD. Ukraine war since February 2014 - STILL ONGOING into year 2026. IT WORKS. Surkovian methods WORK in wrecking goodness, CPTSD. How many families and marriages broken by Fox News HDTV anti-reality / Kremlin War Against Reality since March 2013?
+CPTSD / PTSD of Trumpism / Fox News nation / Putin hybrid warfare and Putin since year 1999 enduring techniques. Putinism WORKS, PROVEN SYSTEM! And terrorizing stress-lording / PTSD. Ukraine war since February 2014 - STILL ONGOING into year 2026. IT WORKS. Surkovian methods WORK in wrecking goodness, CPTSD. How many families and marriages broken by Fox News HDTV anti-reality / Kremlin War Against Reality since March 2013?
 
 https://old.reddit.com/r/MurderedByWords/comments/1pjvk9z/i_think_this_goes_here/      
 "Murder by words, Words of constant stress ruling / lording stress by Fox News audience / Murdoch / Twitter Musk stress lords power, Real Estate lords"     
