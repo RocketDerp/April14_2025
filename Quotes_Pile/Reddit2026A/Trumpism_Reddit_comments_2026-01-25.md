@@ -900,3 +900,12 @@ https://old.reddit.com/r/LeopardsAteMyFace/comments/1qnydfp/fox_news_throws_no_a
 https://old.reddit.com/r/LeopardsAteMyFace/comments/1qnydfp/fox_news_throws_no_and_bovino_under_the_bus/o1xkgao/
 
 https://old.reddit.com/r/LeopardsAteMyFace/comments/1qnydfp/fox_news_throws_no_and_bovino_under_the_bus/o1xof3s/
+
+https://old.reddit.com/r/sports/comments/1qo1472/trump_sparks_fresh_outrage_with_secret_bid_to/o1xziru/
+
+https://old.reddit.com/r/sports/comments/1qo1472/trump_sparks_fresh_outrage_with_secret_bid_to/o1y8zpe/
+
+https://old.reddit.com/r/sports/comments/1qo1472/trump_sparks_fresh_outrage_with_secret_bid_to/o1xzxnn/
+
+https://old.reddit.com/r/sports/comments/1qo1472/trump_sparks_fresh_outrage_with_secret_bid_to/o1y9hf4/
+
