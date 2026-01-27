@@ -1125,3 +1125,10 @@ https://old.reddit.com/r/news/comments/1qom99v/person_in_critical_condition_afte
 
 11 month Reddit account; top-upvoted popular comment.
 
+https://old.reddit.com/r/news/comments/1qom99v/person_in_critical_condition_after_being_shot_in/o22bhaj/
+
+War Against Reality. War Against Nonfiction.
+
+https://old.reddit.com/r/nba/comments/1qonbeo/victor_wenbanyama_about_the_events_in_minnesota/o22ktf5/
+
+Posting title "crazy", comment 'insane"
