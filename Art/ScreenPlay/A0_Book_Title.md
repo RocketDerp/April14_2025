@@ -222,7 +222,9 @@ Unattractive Nonfiction
 Unattractive Inconvenience  
 Incontinent Reality   
 
-
+Laughing Bull   
+Laughing Bullshit   
+LOL Cow Trump Card   
 
 &nbsp;
 
