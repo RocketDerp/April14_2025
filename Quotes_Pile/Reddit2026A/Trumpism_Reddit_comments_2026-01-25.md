@@ -1113,3 +1113,11 @@ https://old.reddit.com/r/50501/comments/1qofc96/protesters_in_phoenix_on_the_sid
 
 Media street gangs. Bible science fiction street gang against Carl Sagan science street gang. Fox News HDTV street gang against Reddit news street gang. People who are ALL VOIDING: Dr. Bandy X Lee being promoted every 12 hours on social media. Mental Health topics and quotes of nonfiction from Dr. Lee.
 
+https://old.reddit.com/r/50501/comments/1qofc96/protesters_in_phoenix_on_the_sidewalk_impeding_no/o20vroy/
+
+6 month Reddit account.
+
+https://old.reddit.com/r/50501/comments/1qofc96/protesters_in_phoenix_on_the_sidewalk_impeding_no/o20vbfq/
+
+"insane"
+
