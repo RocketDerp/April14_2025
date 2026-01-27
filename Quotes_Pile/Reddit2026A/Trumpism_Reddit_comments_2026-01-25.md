@@ -1199,4 +1199,14 @@ Again, READ these Reddit messages in this commenting thread. Then ask yourself: 
 
 https://old.reddit.com/r/pics/comments/1qoied3/a_photo_of_the_us_republican_cpac_in_2022/o22mxjj/
 
-The entire world, over 8 billion people, are going to think that about USA as a nation in total. A nation of 0.34 billion who did not rise up and *OCCUPY SOCIAL MEDIA** calling for Dr. Bandy X Lee leadership on mental health. The absent Internet social media teaching about Fox News brainwashing, promoting Jen Senko's film. https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad Instead, we get low-effort different-page commenting over and over since June 16, 2015. Internet users will not come together on the same page of promoting Dr. Bandy X Lee's mental health topics. 
+The entire world, over 8 billion people, are going to think that about USA as a nation in total. A nation of 0.34 billion who did not rise up and **OCCUPY SOCIAL MEDIA** calling for Dr. Bandy X Lee leadership on mental health. The absent Internet social media teaching about Fox News brainwashing, promoting Jen Senko's film. https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad Instead, we get low-effort different-page commenting over and over since June 16, 2015. Internet users will not come together on the same page of promoting Dr. Bandy X Lee's mental health topics. 
+
+People in commenting complain over and over and over and over about "The Media" while not encouraging online meetings, FAQ, Wiki organizing of topics, WikiTribune as We The People news reporting. So much free time and spare time consumed with low-effort disorganized commenting on Bluesky and Reddit.
+
+https://old.reddit.com/r/pics/comments/1qoied3/a_photo_of_the_us_republican_cpac_in_2022/o22zhc1/
+
+https://old.reddit.com/r/pics/comments/1qoied3/a_photo_of_the_us_republican_cpac_in_2022/o22y3u4/
+
+The entire nation won't be bothered to learn **serious nonfiction** about the Internet Research Agency in Saint Petersburg. People won't discuss what exactly Cambridge Analytica did to minds / mental programming that doctors of psychology and psychiatry designed.
+
+* May 7, 2017  https://www.theguardian.com/technology/2017/may/07/the-great-british-brexit-robbery-hijacked-democracy This is not just a story about social psychology and data analytics. It has to be understood in terms of a military contractor using military strategies on a civilian population. Us. David Miller, a professor of sociology at Bath University and an authority in psyops and propaganda, says it is “an extraordinary scandal that this should be anywhere near a democracy. It should be clear to voters where information is coming from, and if it’s not transparent or open where it’s coming from, **it raises the question of whether we are actually living in a democracy or not.**” Paul and David, another ex-Cambridge Analytica employee, were working at the firm when it introduced mass data-harvesting to its psychological warfare techniques. “It brought psychology, propaganda and technology together in this **powerful new way**,” David tells me.
