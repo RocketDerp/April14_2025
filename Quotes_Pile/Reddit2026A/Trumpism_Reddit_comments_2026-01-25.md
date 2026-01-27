@@ -1081,3 +1081,8 @@ Audience member of Reddit media does not grasp that Reality TV shows like Charli
 https://old.reddit.com/r/Fauxmoi/comments/1qolzkg/trump_against_2nd_amendment_with_that_being_said/o22ar2d/
 
 USA television audiences and social audiences have a serious diaper fetish https://en.wikipedia.org/wiki/Diaper_fetishism for old men. Again and again people prize shit-commenting, shit-posting, shit-governing, shit-media, enshitification. Short Twitter-length reaction-commenting shit media. Instead of calling for the immediate removal of Donald Trump and for people to follow Dr. Bandy X Lee's mental health education... shit social content addictions run the nation. 
+
+https://old.reddit.com/r/Fauxmoi/comments/1qolzkg/trump_against_2nd_amendment_with_that_being_said/o22emj2/
+
+Exactly what Russian information warfare does, Surkov monomyth inverts values in the mass man (University of Toronto Marshall McLuhan terminology) / mass mind (Howard Bloom NYC terminology). Paradox inversions of group thinking / mob mentality programming. Surkov won since March of year 2013.
+
