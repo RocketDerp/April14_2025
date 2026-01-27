@@ -921,3 +921,35 @@ https://old.reddit.com/r/law/comments/1qo1cwl/white_house_backtracks_initial_cla
 
 The top message and highest reply to message are 1 year Reddit accounts.
 
+https://old.reddit.com/r/law/comments/1qo1cwl/white_house_backtracks_initial_claims_about_alex/o1y53s9/
+
+IMPORTANT_A expand on this.
+
+<img width="951" height="1469" alt="image" src="https://github.com/user-attachments/assets/156c0bde-7ea1-4c26-9439-afad77a56ce0" />
+
+Street gang signs of pro-violence, anti-MLK Jr. Raised in USA to believe in gun worship an gun violence and to ignorance the huge progress GLOBALLY of Dr. Martin Luther King Jr's ideas. People an not see how they are glued to Reddit commenting. And the CONTENT of that commenting, such as promoting violence. There is no morality teaching. MAGA is a cult, and Fox News HDTV is a cult, and Reddit is a cult. Fiction low-effort information cults.
+
+Memes and jokes have wrecked the USA via the Russian Internet Research Agency. Russia / Putin is the BULLY that has been openly abusing Ukraine and threatening NATO with nuclear war. But Reddit consumers will not hold Russia accountable on REDDIT by keeping the EYE on the ball. 
+
+1. 4 days ago https://www.ibtimes.co.uk/russian-state-tv-issues-chilling-warning-that-britain-could-cease-exist-strike-1773296
+
+2. December 14, 2025 https://www.express.co.uk/news/world/2146085/russia-sends-horror-ww3-threat
+
+3. August 24, 2018 pre-pandemic; Measles and before COVID-2019 https://www.bbc.com/news/world-us-canada-45294192
+
+4. You need to read the links and actually look for more
+
+5. November 2, 2025 https://ukdefencejournal.org.uk/russia-threatens-nuclear-armageddon/
+
+6. Reddit is NOT standing up to the Bully that has backed Trump and MAGA since March 2013 and manipulated minds.
+
+7. February 29, 2024 https://www.reuters.com/world/europe/putin-warns-west-risk-nuclear-war-says-moscow-can-strike-western-targets-2024-02-29/
+
+8. Your nation is the bullies to Greenland and Canada, so by the logic of violence dealing with bullies, the entire USA should be wrecked.
+
+9. All war is raising children to solve problems with war. LOOK AROUND, why for year after year does Reddit not put as much attention on Russia backing Trump as it does in hating rural less-educated, poorly educated, abused by billionaire Rupert Murdoch rural less-educated Americans? The education system has failed to prepare people for low-effort commenting addictions. Have you forgotten what Twitter, Facebook and memes have done to rural Americans since the Apple iPhone and Apple iPad took over daily life in year 2007? You never fucking heard of "Truth Social" how you were raised, wake the fuck up that information war is a real war! Terrorism and manipulated people to die for a Heaven and Eden AFTER DEATH is a real funking mind war of suicide airplane pilots, 9/11, September 11 brainwashing!!! Mosque mind war. Fox News HDTV mind war. Truth Social mind war!!! Internet Research Agency in Saint Petersburg MIND WAR. Cambridge Analytica MIND WAR!!! Spread COVID-2019, spread measles, flat earth MIND WAR! Russia won! Guns do not fix cults and terrorism. Books do. Nobody stood up for Malala in a SUSTAINED way. Fox News HDTV has been a sustained mind-fucking.
+
+Go over this list, and look at the addictions to short engaging commenting over and over every hour on Reddit. Life did not used to be like this before social media addictions took over. Read this: September 10, 2025: https://Time.com/7313999/neil-postman-trump-prediction/ only 139 days ago! Time Magazine!!!
+
+People on Reddit are following Putin's lead to self-harm USA. People on Reddit are following Trump's lead to self-harm USA. Surkov won. Russia has been the BULLY that the USA Pentagon / military has lost, NATO is wrecked. WAKE UP! The whole world is watching the anti-NATO pro-Putin BULLSHIT!
+
