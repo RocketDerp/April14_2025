@@ -1167,3 +1167,10 @@ https://old.reddit.com/r/pics/comments/1qoied3/a_photo_of_the_us_republican_cpac
 
 https://old.reddit.com/r/pics/comments/1qoied3/a_photo_of_the_us_republican_cpac_in_2022/o21w4op/
 
+https://old.reddit.com/r/pics/comments/1qoied3/a_photo_of_the_us_republican_cpac_in_2022/o21pndh/
+
+7 month Reddit account. Mocking name ("Bamboozled") on profile. Tiny-short Twitter-think Tweet-length messaging of banality.
+
+https://old.reddit.com/r/pics/comments/1qoied3/a_photo_of_the_us_republican_cpac_in_2022/o21s55c/
+
+Reddit society jokes about everything. Joking about Trump being weak, Trump only golfing and not being a threat to humanity. Joke-washing mockery-washing, LOL-washing / LOL cow milking of Trump is his very source of power. Comedy audience keeps Trump at the center of all jokes, all amusement, all memes, all day, all night.
