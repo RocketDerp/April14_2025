@@ -1228,3 +1228,23 @@ The ENTIRE POPULATION of social media users
 6. Commenting over and over on different pages and not **connecting the dots** about anti-NATO behaviors of Russia since February 20, 2014. Russian Internet memes and messages are to wreck NATO. WAKE UP, look at the Greenland and Canada bullshit! Exactly what Putin wanted! Social media is the very problem to address!! People avoiding NONFICTION serious book reading. https://www.youtube.com/watch?v=5Au332OG-M4
 
 Constantly LOL, constant memes, constant downplaying, joking, joke-cracking, making fun, humor about the most unimportant and superficial topics. Day in and day out, orange skin, golf outings, ANYTHING but SERIOUS NONFICTION from Dr. Bandy X Lee every god damn day on the front page /r/All of Reddit!
+
+https://old.reddit.com/r/DailyShow/comments/1qog8ac/the_2nd_amendment_fetishists_who_brought_you_kyle/o214oeu/
+
+https://old.reddit.com/r/DailyShow/comments/1qog8ac/the_2nd_amendment_fetishists_who_brought_you_kyle/o216s6h/
+
+23 day Reddit account. "CRAZY"
+
+https://old.reddit.com/r/DailyShow/comments/1qog8ac/the_2nd_amendment_fetishists_who_brought_you_kyle/o216nzx/
+
+9 month Reddit account.
+
+https://old.reddit.com/r/DailyShow/comments/1qog8ac/the_2nd_amendment_fetishists_who_brought_you_kyle/o21bobl/
+
+https://old.reddit.com/r/DailyShow/comments/1qog8ac/the_2nd_amendment_fetishists_who_brought_you_kyle/o21o227/
+
+<img width="942" height="288" alt="image" src="https://github.com/user-attachments/assets/8e575ec1-04e7-4666-9e6b-ba3500b59ee1" />
+
+ANSWER: USA is a joke. Joking wins all debate. Putin won. Because everyone finds Trump / ICE / MAGA to be constantly funny and amusing content to stimulate their touch screen. Donald Trump is a comedian, an actor who is acting. Surkovian information warfare blows minds into LOL stupors. We The People have amused ourselves on absurd surreal information warfare.
+
+* "what Putin will do next — that he’s unpredictable and thus dangerous. We’re rendered stunned, spun, and flummoxed by the Kremlin’s **weaponization of absurdity and unreality**.” - year 2014 ... September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
