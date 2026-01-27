@@ -1142,3 +1142,9 @@ https://old.reddit.com/r/MurderedByWords/comments/1qoezyr/literally_what_its_the
 We The People, as a society, have not taken on educating Bible verse "1 John 4:20" to the general public. You have not seen the fiction character God. God is a metaphor. We are in a crisis of Levant science fiction trilogy ( Torah, Bible, Quran, Book of Mormon, etc) interpretation. People believe Fox News fiction is nonfiction, we are in full blown crisis concerning metaphors.
 
 * “Half the people in the world think that the metaphors of their religious traditions, for example, are facts. And the other half contends that they are not facts at all. As a result we have people who consider themselves believers because they accept metaphors as facts, and we have others who classify themselves as atheists because they think religious metaphors are lies.” ― Joseph Campbell, Thou Art That: Transforming Religious Metaphor
+
+https://old.reddit.com/r/MurderedByWords/comments/1qoezyr/literally_what_its_there_for/o20sk7l/
+
+Except when you argue in public on Twitter and Reddit you can document it on GitHub and teach media ecology self-awareness. People who are "an idiot" are very often not educated. Lacking self-awareness of how adult education works from Fox News HDTV. That's one of the most important education concerns of our time; Twitter, Bluesky, Reddit, YouTube, TikTok, Truth Social compulsive behaviors of hive minded individuals.
+
+* "Being illiterate in the processes of any **medium** (language) leaves one at the mercy of those who control it. The **new media** — these new languages — then are among the most important "subjects" to be studied in the interests of survival." - Neil Postman on media ecology
