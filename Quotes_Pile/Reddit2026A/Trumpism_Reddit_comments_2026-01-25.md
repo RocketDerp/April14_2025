@@ -1250,3 +1250,5 @@ ANSWER: USA is a joke. Joking wins all debate. Putin won. Because everyone finds
 * "what Putin will do next — that he’s unpredictable and thus dangerous. We’re rendered stunned, spun, and flummoxed by the Kremlin’s **weaponization of absurdity and unreality**.” - year 2014 ... September 9, 2014 https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
 
 https://old.reddit.com/r/WitchesVsPatriarchy/comments/1qoneje/i_dont_want_to_hear_a_human_being_called_legal_or/o22k6xn/
+
+https://old.reddit.com/r/WitchesVsPatriarchy/comments/1qoneje/i_dont_want_to_hear_a_human_being_called_legal_or/o22wy14/
