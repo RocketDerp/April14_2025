@@ -248,3 +248,7 @@ Hive minded Reddit has to be corrected about MAGA hive mind, media cults of Fox 
 https://old.reddit.com/r/worldnews/comments/1qpkkux/us_embassy_removes_flags_with_names_of_fallen/o29r5jv/
 
 Social media engagement of shit-commenting on shit-postings about shit leadership President Donald Trump's engaging sign and symbol actions. Short Twitter-length shit-commenting style, highly upvoted enshitification of Reddit in the name of Trump fandom. Name-drop "Putin" but provides no author name, no off-Reddit URL, no quote... just rumor-mill low-effort information shit.
+
+https://old.reddit.com/r/worldnews/comments/1qpkkux/us_embassy_removes_flags_with_names_of_fallen/o2a6bk2/
+
+Social media low-effort commenting might be considered a "cancer" that lead to Trump's power and rise. July 6, 2011 short-message Twitter https://TheoOtline.com/post/2445/trump-s-first-real-tweet-was-on-july-6-2011
