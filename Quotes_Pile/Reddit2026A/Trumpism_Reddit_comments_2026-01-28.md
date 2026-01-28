@@ -188,3 +188,7 @@ https://old.reddit.com/r/Fauxmoi/comments/1qpgvse/nicki_minaj_whos_married_to_a_
 6 month Reddit account.
 
 Manipulation messaging to Reddit [hearts and minds](https://en.wikipedia.org/wiki/Winning_hearts_and_minds) that this content is a thrilling Reality White House shows with performers / actors / lead by Trump content producer. Media cultists, famous celebrity Trump and supporting cast hired by Kremlin and White House for Reddit fandom. Redditors are glued to their touch devices waiting for every new content drop to comment and muse over. Framing it like latest season of Television "The Apprentice" scripted Reality HDTV... anticipating the next story plot twists and turns. Feeding the fiction addictions of the media cults.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qpgvse/nicki_minaj_whos_married_to_a_rapist_walks_out/o28vu9q/
+
+Shit-prizing Reddit community. Shit-commenting, shit-posting, shit-voting on meme sites. Shit-organizing information system fandom. Following Trump's lead actor role with the current on-stage supporting actresses and actors. Reddit audience entirely engaged with the Surkov student screenplays and professional actors and performers playing Reality White House / Kremlin show. Surkov won since March 2013, [the WWW trolling operation](https://github.com/RocketDerp/April14_2025/blob/main/Operation_Matthew_4_19_on_monday_2024-03-31.md) has Reddit audience eating right out of the hands of Kremlin screenplays.
