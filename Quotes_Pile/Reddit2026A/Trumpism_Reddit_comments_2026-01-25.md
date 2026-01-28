@@ -1298,3 +1298,13 @@ https://old.reddit.com/r/minnesota/comments/1qoq8sn/ice_agent_telling_unarmed_ob
 https://old.reddit.com/r/minnesota/comments/1qoq8sn/ice_agent_telling_unarmed_observer_if_you_raise/o23ogjr/
 
 "insane"
+
+https://old.reddit.com/r/stateofMN/comments/1qorjx1/ice_agent_telling_unarmed_observer_if_you_raise/o23n0dm/
+
+ICE fandom. Comes to Reddit for the hilarious entertaining Trump leadership outcomes.
+
+https://old.reddit.com/r/stateofMN/comments/1qorjx1/ice_agent_telling_unarmed_observer_if_you_raise/o23r25r/
+
+It is sickening to see Reddit users and social media users across all platforms spreading so much junk information, glut of poor information. Networking addiction itself, all putting Trump leadership as the signals to follow. Reaction audience. ANYTHING to avoid having an Internet uprising to promote Dr. Bandy X Lee or Jen Senko and address the brainwashing and mental health issues of MAGA. Everyone is sickened by the glut of Trumpism / Trump outcomes and Trump mindsets.
+
+* “It is only now beginning to be understood that cultures may also suffer grievously from **information glut, information without meaning**, information without control mechanisms.” ― Neil Postman, Technopoly: The Surrender of Culture to Technology. Year 1992.
