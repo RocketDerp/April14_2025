@@ -200,3 +200,10 @@ Low-effort Reddit commenting, Tweet-length thinking patterns, Twitter-thinking a
 https://old.reddit.com/r/Fauxmoi/comments/1qpgvse/nicki_minaj_whos_married_to_a_rapist_walks_out/o28x4mt/
 
 Compulsive attraction to Donald Trump. Hundreds of millions of media consumers, famous and non-famous, can not resist the media presence and camera staging that Donald Trump commands.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qpgvse/nicki_minaj_whos_married_to_a_rapist_walks_out/o28y48q/
+
+1 month Reddit account.
+
+This message is to assure the cult Reddit audience to celebrity content... that money is the ONLY motivation. The one and only one motivation, Ignoring brainwashing, ignoring Fox News HDTV cult that does not *give money* to cultists to tune into addictive content. Short Twitter-length Tweet-thinking messaging to manipulate Reddit audience into avoiding the Trump cult stardom-cult "Fauxmoi" behavior of Reddit community. Trump is first and foremost an actor, acting the Tony Clifton SNL NYC performance of Trump family home town. Reddit fandom eats up the show and does not desire to remove Trump from the constant center of all media systems focus.
+
