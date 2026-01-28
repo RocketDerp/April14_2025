@@ -1210,3 +1210,178 @@ https://old.reddit.com/r/pics/comments/1qoied3/a_photo_of_the_us_republican_cpac
 The entire nation won't be bothered to learn **serious nonfiction** about the Internet Research Agency in Saint Petersburg. People won't discuss what exactly Cambridge Analytica did to minds / mental programming that doctors of psychology and psychiatry designed.
 
 * May 7, 2017  https://www.theguardian.com/technology/2017/may/07/the-great-british-brexit-robbery-hijacked-democracy This is not just a story about social psychology and data analytics. It has to be understood in terms of a military contractor using military strategies on a civilian population. Us. David Miller, a professor of sociology at Bath University and an authority in psyops and propaganda, says it is “an extraordinary scandal that this should be anywhere near a democracy. It should be clear to voters where information is coming from, and if it’s not transparent or open where it’s coming from, **it raises the question of whether we are actually living in a democracy or not.**” Paul and David, another ex-Cambridge Analytica employee, were working at the firm when it introduced mass data-harvesting to its psychological warfare techniques. “It brought psychology, propaganda and technology together in this **powerful new way**,” David tells me.
+
+https://old.reddit.com/r/DailyShow/comments/1qog8ac/the_2nd_amendment_fetishists_who_brought_you_kyle/o212ybl/
+
+The ENTIRE POPULATION of social media users
+
+1. Ignoring the Ukraine war warnings about Internet invasion 
+
+2. Ignoring pandemic warnings about Russia's Internet Research Agency. https://www.bbc.com/news/world-us-canada-45294192
+
+3. Ignoring Dr. Bandy X Lee's leadership on **mental health** and dangerous behaviors of Donald Trump and shared MAGA mindsets. https://www.scientificamerican.com/article/the-shared-psychosis-of-donald-trump-and-his-loyalists/
+
+4. Ignoring Jen Senko's film about brainwashing and right-wing media. https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad
+
+5. Repeating "Epstein" on social media over and over but NOT repeating Jen Senko, Dr. Bandy X Lee!!
+
+6. Commenting over and over on different pages and not **connecting the dots** about anti-NATO behaviors of Russia since February 20, 2014. Russian Internet memes and messages are to wreck NATO. WAKE UP, look at the Greenland and Canada bullshit! Exactly what Putin wanted! Social media is the very problem to address!! People avoiding NONFICTION serious book reading. https://www.youtube.com/watch?v=5Au332OG-M4
+
+Constantly LOL, constant memes, constant downplaying, joking, joke-cracking, making fun, humor about the most unimportant and superficial topics. Day in and day out, orange skin, golf outings, ANYTHING but SERIOUS NONFICTION from Dr. Bandy X Lee every god damn day on the front page /r/All of Reddit!
+
+https://old.reddit.com/r/DailyShow/comments/1qog8ac/the_2nd_amendment_fetishists_who_brought_you_kyle/o214oeu/
+
+https://old.reddit.com/r/DailyShow/comments/1qog8ac/the_2nd_amendment_fetishists_who_brought_you_kyle/o216s6h/
+
+23 day Reddit account. "CRAZY"
+
+https://old.reddit.com/r/DailyShow/comments/1qog8ac/the_2nd_amendment_fetishists_who_brought_you_kyle/o216nzx/
+
+9 month Reddit account.
+
+https://old.reddit.com/r/DailyShow/comments/1qog8ac/the_2nd_amendment_fetishists_who_brought_you_kyle/o21bobl/
+
+https://old.reddit.com/r/DailyShow/comments/1qog8ac/the_2nd_amendment_fetishists_who_brought_you_kyle/o21o227/
+
+<img width="942" height="288" alt="image" src="https://github.com/user-attachments/assets/8e575ec1-04e7-4666-9e6b-ba3500b59ee1" />
+
+ANSWER: USA is a joke. Joking wins all debate. Putin won. Because everyone finds Trump / ICE / MAGA to be constantly funny and amusing content to stimulate their touch screen. Donald Trump is a comedian, an actor who is acting. Surkovian information warfare blows minds into LOL stupors. We The People have amused ourselves on absurd surreal information warfare.
+
+* "what Putin will do next — that he’s unpredictable and thus dangerous. We’re rendered stunned, spun, and flummoxed by the Kremlin’s **weaponization of absurdity and unreality**.” - year 2014 ... September 9, 2014 https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/WitchesVsPatriarchy/comments/1qoneje/i_dont_want_to_hear_a_human_being_called_legal_or/o22k6xn/
+
+https://old.reddit.com/r/WitchesVsPatriarchy/comments/1qoneje/i_dont_want_to_hear_a_human_being_called_legal_or/o22wy14/
+
+https://old.reddit.com/r/videos/comments/1qos4n8/president_trump_on_alex_pretti_well_i_havent/o23oqha/
+
+<img width="945" height="331" alt="image" src="https://github.com/user-attachments/assets/43181eb8-6d66-43ea-94f2-63130c5aaafa" />
+
+Top-voted highly popular Twitter-length Tweet-thinking short message.
+
+* "What Orwell feared were those who would ban books. What Huxley feared was that there would be no reason to ban a book, for there would be **no one who wanted to read one**. Orwell feared those who would deprive us of information. Huxley feared those who would give us so much that **we would be reduced to passivity and egoism**. Orwell feared that the truth would be concealed from us. Huxley feared the truth would be drowned in a **sea of irrelevance**. Orwell feared we would become a captive culture. Huxley feared we would become a **trivial culture**" ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business
+
+Reddit audience falls for the NYC acting / actor doing the NYC SNL Tony Clifton POTUS performance year after year. Short-messaging commenting about Trump. There is an egoism of measuring against the unique language of Trump. People spend spare time and free time making these low-effort comments about Donald Trump, doing EVERYTHING THEY CAN to avoid REMOVING TRUMP from the center of all media systems focus. Endlessly chanting variations of { dumb, stupid, child, idiot, moron } over and over on meme systems.
+
+The Reddit commenting audience has no concept of this being "engaged" to the media signal. That HATE WATCHING is the attraction. https://en.wikipedia.org/wiki/Hate-watching Trump leads with "Low I.Q." mocking of women, and people flock to media systems to mock back. Day and night, mocking Donald Trump. ANYTHING TO NOT REMOVE THE SOURCE OF ENTERTAINMENT AND TCP/IP NETWORK STIMULATION! Trump is an ATTRACTION, Fandom on Reddit can not stop putting spare time, free time, extra time into the video game of feeding Trump the world topic attraction!
+
+People on Reddit, We The People, of social media - can not turn to Dr. Bandy X Lee's book from October 3, 2017 and make it the center of learning and self-awareness. Instead, mocking Trump all day and night, flocking to Trump content has sickened and wrecked the USA.
+
+* "Social media have changed the way Americans are exposed to news. Internet news sites (CNN, Huffington Post, etc.) and social media such as Facebook and Twitter provide immediate access to news as well as to comments from other readers with differing viewpoints. Many Americans impacted by Trump anxiety disorder have admitted to an **unhealthy obsession with checking news websites much more often** than they previously did, and the amount of **news involving Trump and his new administration has been constant, chaotic, confusing, and often overwhelming**. When struggling with anxiety, many individuals, in an attempt to maintain control, will falsely assume that the more they know, the more they can be prepared. However, this tends to give them **a false sense of control** and, paradoxically, may increase anxiety symptoms once they realize their grip on control is not solid." - Dr. Bandy X Lee, The Dangerous Case of Donald Trump: 27 Psychiatrists and Mental Health Experts Assess a President. Published October 3, 2017. Chapter "Trump Anxiety Disorder: The Trump Effect on the Mental Health of the Public Half the Nation and Special Populations"; by Jennifer Contarino Panning
+
+https://old.reddit.com/r/videos/comments/1qos4n8/president_trump_on_alex_pretti_well_i_havent/o23nzr2/
+
+TCP/IP high peed networking has created information glut. There is so much personalized information, so many social commenting platforms, so many variations of third-hand storytelling. People are attracted to the most creative mythology, not solid hard facts. Fiction outsells nonfiction. The USA population is flooded with glut of garbage competing information. Profit made by selling quantity of content, low-effort junk commenting all over every media system. Year 2013 was the real turning point for USA society. The Apple iPhone 1 came out in year 2007... and 3G networks to 4G and 5G mobile, etc.
+
+* “a peek-a-boo world, where now this event, now that, pops into view for a moment, then vanishes again. It is an improbable world. It is a world in which **the idea of human progress, as Bacon expressed it, has been replaced by the idea of technological progress**. The aim is not to reduce ignorance, superstition, and suffering but to accommodate ourselves to the requirements of new technologies. We tell ourselves, of course, that such accommodations will lead to a better life, but that is only the rhetorical residue of a vanishing technocracy. We are a culture consuming itself with information, and many of us do not even wonder how to control the process. **We proceed under the assumption that information is our friend, believing that cultures may suffer grievously** from a lack of information, which, of course, they do. It is only now beginning to be understood that cultures may also suffer grievously from **information glut, information without meaning**, information without control mechanisms.” ― Neil Postman, Technopoly: The Surrender of Culture to Technology. Year 1992.
+
+https://old.reddit.com/r/videos/comments/1qos4n8/president_trump_on_alex_pretti_well_i_havent/o23nuvv/
+
+People spending free time and spare time commenting on Reddit about Trump. Instead of using social information systems to promote Dr. Bandy X. Lee's nonfiction book from October 3, 2017 and declaring Trump an danger to all humanity / life on Earth. So many people commenting day after day, all avoiding the nonfiction section of the public library about Trump's mental health.
+
+https://old.reddit.com/r/videos/comments/1qos4n8/president_trump_on_alex_pretti_well_i_havent/o23ofpf/
+
+Tiny-short messaging. Looking forward, to the future seasons of the Donald Trump story. ANYTHING but promoting and asserting Dr. Bandy X Lee's nonfiction book and writing about the urgent importance of removing Trump from office.
+
+https://old.reddit.com/r/minnesota/comments/1qoq8sn/ice_agent_telling_unarmed_observer_if_you_raise/o23afpp/
+
+Entertaining "South Park" life that Trump creates for the fandom. Addiction to Trump the actor who provides stimulating leadership entertainment. Killing people to silence the, language Tower of Babel egoism battles.
+
+https://old.reddit.com/r/minnesota/comments/1qoq8sn/ice_agent_telling_unarmed_observer_if_you_raise/o2398j4/
+
+3 month Reddit account.
+
+https://old.reddit.com/r/minnesota/comments/1qoq8sn/ice_agent_telling_unarmed_observer_if_you_raise/o238tye/
+
+8 month Reddit account.
+
+https://old.reddit.com/r/minnesota/comments/1qoq8sn/ice_agent_telling_unarmed_observer_if_you_raise/o23ogjr/
+
+"insane"
+
+https://old.reddit.com/r/stateofMN/comments/1qorjx1/ice_agent_telling_unarmed_observer_if_you_raise/o23n0dm/
+
+ICE fandom. Comes to Reddit for the hilarious entertaining Trump leadership outcomes.
+
+https://old.reddit.com/r/stateofMN/comments/1qorjx1/ice_agent_telling_unarmed_observer_if_you_raise/o23r25r/
+
+It is sickening to see Reddit users and social media users across all platforms spreading so much junk information, glut of poor information. Networking addiction itself, all putting Trump leadership as the signals to follow. Reaction audience. ANYTHING to avoid having an Internet uprising to promote Dr. Bandy X Lee or Jen Senko and address the brainwashing and mental health issues of MAGA. Everyone is sickened by the glut of Trumpism / Trump outcomes and Trump mindsets.
+
+* “It is only now beginning to be understood that cultures may also suffer grievously from **information glut, information without meaning**, information without control mechanisms.” ― Neil Postman, Technopoly: The Surrender of Culture to Technology. Year 1992.
+
+https://old.reddit.com/r/politics/comments/1qotlua/border_patrol_agents_started_the_scuffle_that_led/o23zds4/
+
+The fandom of Newsmax, Fox News, etc has been large.
+
+https://old.reddit.com/r/politics/comments/1qotlua/border_patrol_agents_started_the_scuffle_that_led/o245nmx/
+
+There is *profit* made selling fiction stories. People think there is zero consequences, can't see how much money and power is made by providing fiction to meme audiences.
+
+https://old.reddit.com/r/inflation/comments/1qotnj7/the_us_dollar_tumbles_to_a_fresh_4_year_low_after/o240mae/
+
+7 month Reddit account. Top upvoted popular comment.
+
+https://old.reddit.com/r/inflation/comments/1qotnj7/the_us_dollar_tumbles_to_a_fresh_4_year_low_after/o243qrc/
+
+https://old.reddit.com/r/inflation/comments/1qotnj7/the_us_dollar_tumbles_to_a_fresh_4_year_low_after/o23zqou/
+
+Trump's fiction storytelling is his entire basis of popularity. Many many cults of fiction fandoms. Grading what parts they like and do not like. But all agreeing that fiction provides so much more excitement and thrills with wild ever-thrilling destructive and harmful outcomes. All popular media systems flock to Trump. All conversations, all communications network: Trump, ICE, MAGA, anti-NATO, Trumpism. Surkov pioneered modern monomyth fiction storytelling techniques. The reprieve we had with the Joyce, Marshall McLuhan, Neil Postman educated society came to a confirmed end in year 2013. People to this day do not recognize the depth of the threat Fox News fiction represents, let alone Russia's Internet Research Agency fiction such as: https://www.BBC.com/news/world-us-canada-45294192
+
+https://old.reddit.com/r/news/comments/1qoxhft/rep_ilhan_omar_assaulted_by_protester_at_town/o24taia/
+
+9 month Reddit account. High upvoted. Tiny-short Twitter-length thinking patterns for Reddit audiences. "Normal" topic. Active normalization of tiny-short thinking / reactionary commenting. Anything but engage serious nonfiction books on paper... such as Dr. Bandy X Lee's October 3, 2017 book about mental health of the nation leaderships (and voters).
+
+No, this isn't normal, it is following the rules of mythology. Like Islamic societies / Muslim societies, people who make Mohammad's science fiction stories core part of their behavior and thinking. The "New Normal" of USA society is the complete abandonment of science thinking, abandonment of serious nonfiction learning for adults. Twitter-thinking, meme-think has taken over, Trumpism MAGA mindsets. Surkov won since march 2013.
+
+* “Science is more than a body of knowledge; it is a way of thinking. I have a (year 1995) foreboding of an America in my children’s or grandchildren’s time — when the United States is a service and information economy; when nearly all the key manufacturing industries have slipped away to other countries; when awesome technological powers are in the hands of a very few, and no one representing the public interest can even grasp the issues; when the people have lost the ability to set their own agendas or knowledgeably question those in authority; when, clutching our crystals and nervously consulting our horoscopes, our critical faculties in decline, unable to distinguish between what feels good and what’s true, we slide, almost without noticing, back into superstition and darkness. The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the **30-second** sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but especially a kind of [celebration of ignorance](https://www.youtube.com/watch?v=wcY-x1VuWtE). As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning — not just of science, but of anything — are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995, page 59
+
+For year 2025, that was "South Park" instead of "Beavis and Butthead". South Park turns White House 2025 into bright colored fiction Satan character jokes and memes.
+
+https://old.reddit.com/r/politics/comments/1qox0sz/rep_ilhan_omar_assaulted_by_protester_at_town/o24rmi6/
+
+<img width="1131" height="1007" alt="image" src="https://github.com/user-attachments/assets/b8f4c927-0680-4a25-ac4a-ee6a065dda76" />
+
+Information warfare. John 1:1 warfare. Monomyth warfare. Surkov won since March 2013.  
+Alternate Reality Game based on interactive choice of which media venue, commenting thread, filter-bubble people follow. Like every sentence of tiny-short Reddit commenting making a story, word choice after word choice, everybody on different pages. Right now like 8 stories out of 25 on /r/All are about this breaking news, all rephrased by the Reuters media distribution clones and commenting section of each different subreddit hive mind. ICE is providing constant heavy stimulation all month, the audience is glued to the media. It's sickening to see the forest of it.
+
+As I emphasize: People are NOT addressing the Fox News HDTV cult problem with nonfiction learning. Dr. bandy X Lee is not being asserted as a leader for mental health topics. Instead, people are waiting for ICE and Trump / MAGA stimulation and reacting to every breaking news event / rumor / Trump move and shake.
+
+
+https://old.reddit.com/r/Fauxmoi/comments/1qot7gn/trump_began_his_speech_in_iowa_by_asking_his/o23yx0t/
+
+https://old.reddit.com/r/Fauxmoi/comments/1qot7gn/trump_began_his_speech_in_iowa_by_asking_his/o23z29g/
+
+Trump video and Twitter messages get deep inside people's minds. Audiences flock when a new image or video of Trump is posted. This Reddit user came for the sensation of being manipulated. FOR OVER TEN YEARS AND SEVEN MONTHS, people on Reddit come as a fandom of Trump content.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qot7gn/trump_began_his_speech_in_iowa_by_asking_his/o23ynys/
+
+Trump audience, in person and on Reddit, are addicted to the mockery and mocking leadership that Trump provides. Leadership of hate, people follow. Leadership of insulting and  mocking, people follow. Compulsive addiction to Trump communications.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qot7gn/trump_began_his_speech_in_iowa_by_asking_his/o243scw/
+
+1 month Reddit account. New on Christmas day. Invasion of USA political systems topic.
+
+https://old.reddit.com/r/nottheonion/comments/1qowsr0/germany_issues_formal_travel_advisory_for_us/o25076p/
+
+And people who have studied Malala's highlights of anti-women Taliban in Afghanistan and Pakistan can see the mass dehumanization going on.
+
+https://old.reddit.com/r/pics/comments/1qoz97n/macro_rubio_behind_trump/o259k8v/
+
+Reddit front page /r/All top. Most upvoted comment thread. Talking about shit, prizing shit-commenting, shit-posting, shit photograph of Trump. The fandom never gets enough oft his man. Free time and spare time that could be used to assert, quote, teach, cult deprogram with Dr. Bandy X Lee's nonfiction book from October 3, 2017 goes into addition to shit-talking shit-commenting about Trump.
+
+https://old.reddit.com/r/pics/comments/1qoz97n/macro_rubio_behind_trump/o25a89e/
+
+"all making fin". The fandom of Trump images / photographs. Reddit is the center of a fandom of intelligent people who are so compulsively attracted to Trump's mockery and hate signaling.... they will not utilize social media to stand up and call for his removal in a serious sustained... life-saving turn the USA around tone. The only sustained signal from the Reddit audience is "making fun", enjoyment and stimulation of consuming Trump culture.
+
+* “Everything in our background has prepared us to know and resist a prison when the gates begin to close around us . . . But what if there are no cries of anguish to be heard? **Who is prepared to take arms against a sea of amusements? To whom do we complain, and when, and in what tone of voice, when serious discourse dissolves into giggles?** What is the antidote to a culture's being drained by laughter?”
+― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. New York University. Media studies / media ecology professor. This 6-minute video is highly recommended: https://www.youtube.com/watch?v=ETUGwC9jXCM 10,389 views January 21, 2021
+
+
+https://old.reddit.com/r/NoStupidQuestions/comments/1qoxa0d/in_the_2020s_conservative_women_are_having_kids/o24zdpb/
+
+Instead of calling for the removal of Trump via Dr. Bandy X Lee's nonfiction book from October 3, 2017 - and using social media to educate people on the book, over and over, this is the kind of political topic people with free time and spare time and engaging. There has been no uprising from We The People to REMOVE Trump. Social media and media systems are what Trump lives for, and people can not conceive of speaking out personally against Trump (for his removal, and specific education on why) in a sustained, organized, mas uprising on the Internet.
+
+https://old.reddit.com/r/NoStupidQuestions/comments/1qoxa0d/in_the_2020s_conservative_women_are_having_kids/o25365k/
+
+https://old.reddit.com/r/NoStupidQuestions/comments/1qoxa0d/in_the_2020s_conservative_women_are_having_kids/o2550ox/
+
