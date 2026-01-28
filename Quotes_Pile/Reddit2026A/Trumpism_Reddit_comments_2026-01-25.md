@@ -1347,6 +1347,12 @@ Alternate Reality Game based on interactive choice of which media venue, comment
 As I emphasize: People are NOT addressing the Fox News HDTV cult problem with nonfiction learning. Dr. bandy X Lee is not being asserted as a leader for mental health topics. Instead, people are waiting for ICE and Trump / MAGA stimulation and reacting to every breaking news event / rumor / Trump move and shake.
 
 
+https://old.reddit.com/r/Fauxmoi/comments/1qot7gn/trump_began_his_speech_in_iowa_by_asking_his/o23yx0t/
 
+https://old.reddit.com/r/Fauxmoi/comments/1qot7gn/trump_began_his_speech_in_iowa_by_asking_his/o23z29g/
 
+Trump video and Twitter messages get deep inside people's minds. Audiences flock when a new image or video of Trump is posted. This Reddit user came for the sensation of being manipulated. FOR OVER TEN YEARS AND SEVEN MONTHS, people on Reddit come as a fandom of Trump content.
 
+https://old.reddit.com/r/Fauxmoi/comments/1qot7gn/trump_began_his_speech_in_iowa_by_asking_his/o23ynys/
+
+Trump audience, in person and on Reddit, are addicted to the mockery and mocking leadership that Trump provides. Leadership of hate, people follow. Leadership of insulting and  mocking, people follow. Compulsive addiction to Trump communications.
