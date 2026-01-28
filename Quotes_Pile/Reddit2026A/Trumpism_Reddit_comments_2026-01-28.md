@@ -106,3 +106,25 @@ https://old.reddit.com/r/UnderReportedNews/comments/1qpebdy/kristi_noem_everythi
 
 Top voted / upvoted comment. Extreme tiny-short, Twitter-length, all sizzle no steak. Mocking INSIDE the mindsets / hive minded thinking of Kremlin White House Surkovian outcomes. Reacting to White House, reactionary mindsets, highly predictable conditioned Cambridge Analytica outcome mental patterns. Surkov won since March 2013.
 
+https://old.reddit.com/r/UnderReportedNews/comments/1qpebdy/kristi_noem_everything_ive_done_ive_done_at_the/o28a8mt/
+
+Someone has noticed the pattern, alas *recency bias* abounds and people keep gazing in immediate high-speed TCP/IP reaction patterns.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qpebdy/kristi_noem_everything_ive_done_ive_done_at_the/o289ote/
+
+<img width="1246" height="772" alt="image" src="https://github.com/user-attachments/assets/7bcc1cb1-7aa4-4828-b614-e43adfcd0f04" />
+
+THIS IS MY NIGHTMARE MINDSETTINGS: "I cannot WAIT for this administration to destroy itself from within."
+
+1. WAITING. passivity as has been constant on meme mill / social meme sites. Messaging ANTICIPATION.
+
+2. "from within" - not We The People 300 million rising up against the Putin Media Invasion, "Operation Matthew 4:19" that started in year 2012 / 2013. Social media itself (audience) was manipulated by the Saint Petersburg Internet Research Agency. June 2, 2014 public notice: https://www.BuzzfeedNews.com/article/maxseddon/documents-show-how-russias-troll-army-hit-america
+
+3. Fandom cult; fandom behaviors of media cults. Surkov nonomyth domestic Russia behaviors.
+
+My fucking NIGHTMARE Reddit audience fandom of WATCHING PASSIVE as an AUDIENCE SPECTATORS, SPORTS FANDOM SITTING FAT IN THE BLEACHERS OF REDDIT COMMENTING SECTIONS.
+
+* Reduced to mocking, insulting egoism and passive commenting ... "Orwell feared those who would deprive us of information. Huxley feared **those who would give us so much** that we would be ***reduced to passivity*** and egoism. Orwell feared that the truth would be concealed from us. Huxley feared the **truth would be drowned** in a sea of irrelevance." - year 1985, Neil Postman
+
+We The People, We The Audience, to Kremlin Surkov student screenplays.
+
