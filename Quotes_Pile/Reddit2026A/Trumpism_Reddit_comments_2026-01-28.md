@@ -207,3 +207,11 @@ https://old.reddit.com/r/Fauxmoi/comments/1qpgvse/nicki_minaj_whos_married_to_a_
 
 This message is to assure the cult Reddit audience to celebrity content... that money is the ONLY motivation. The one and only one motivation, Ignoring brainwashing, ignoring Fox News HDTV cult that does not *give money* to cultists to tune into addictive content. Short Twitter-length Tweet-thinking messaging to manipulate Reddit audience into avoiding the Trump cult stardom-cult "Fauxmoi" behavior of Reddit community. Trump is first and foremost an actor, acting the Tony Clifton SNL NYC performance of Trump family home town. Reddit fandom eats up the show and does not desire to remove Trump from the constant center of all media systems focus.
 
+https://old.reddit.com/r/Fauxmoi/comments/1qpgvse/nicki_minaj_whos_married_to_a_rapist_walks_out/o28yt98/
+
+<img width="1419" height="311" alt="image" src="https://github.com/user-attachments/assets/093f1ea7-37cb-4343-bbb2-d3102c34778b" />
+
+Loyal Trump content fanatics. Cheering on the parading of media stars and entertainers that Trump leads the nation with. Media cults abound. This Reddit meme aficionado gives this particular **POTUS Tony Clifton** absurd surreal comedy skit a 4 out of 4 star rating, "😂😂😂😂" from the Reddit shit-commenting fandom.
+
+* "what Putin will do next — that he’s unpredictable and thus dangerous. We’re rendered stunned, spun, and flummoxed by the Kremlin’s weaponization of absurdity and unreality.” - year 2014. September 9, 2014    
+https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
