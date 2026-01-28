@@ -168,3 +168,13 @@ https://old.reddit.com/r/Fauxmoi/comments/1qpgvse/nicki_minaj_whos_married_to_a_
 Hate is the Reddit posting title, and fanatics of hate crowd around the Reddit posting to promote hate. Media cultists.
 
 * "For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the **true becomes false and the false becomes true**. That's what hate does. You can't see right. **The symbol of objectivity** is lost." - Martin Luther King Jr.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qpgvse/nicki_minaj_whos_married_to_a_rapist_walks_out/o28wvi8/
+
+8 month Reddit account. "insane"
+
+https://old.reddit.com/r/Fauxmoi/comments/1qpgvse/nicki_minaj_whos_married_to_a_rapist_walks_out/o28vtyn/
+
+Messaging that human persons do not deserve love. Reddit mind-fuck to promote out-group mass dehumanization, entire categories of persons on Earth that do not deserve love. Reddit cultists of out-group hate, Levant monomyth indoctrinated values in Reddit sociologically oriented MAGA / Trumpism USA thinking. Complete tech-loving (machines) Reddit social attitudes, total rejection of USA Atlanta Dr. Martin Luther King's goodness and reformations.
+
+* "this passage is an extreme statement of something that is inherent in most sociologically oriented mythologies. That is to say, love and compassion are reserved for the in-group, and **aggression and abuse are projected outward on others**. Compassion is to be reserved for members of your own group." - Year 1988 book, "The Power Of Myth". SEE_ALSO [See Also: "the Angolan Experience" - Page 89](https://www.google.com/books/edition/Cuban_Identity_and_the_Angolan_Experienc/nJe59BNpCUkC?hl=en&gbpv=1&dq=%22sociologically+oriented+mythologies.+That+is+to+say,+love+and+compassion%22&pg=PA89&printsec=frontcover)
