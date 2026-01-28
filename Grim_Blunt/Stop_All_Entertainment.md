@@ -14,7 +14,10 @@ Why? Please take 6 to 12 minutes:
 
 ### Call for Intellectual Arms, being serious
 
-Cut out sports entertainment topics, video game topics, clear the media airwaves for serious factual discussion. Call for people to "end mental denial" of how bad things have become. Show concern that people are treating the White House as amusing and entertaining, that people are *enjoying* insulting and mocking Donald Trump, Elon Musk, JD Vance - and it is time to be serious and cut down the less-important amusement and entertainment topics in favor of people getting on the same page that it is a civic duty to understand and comprehend the changes in society.
+A dedicated GitHub project has been started here:   
+https://GitHub.com/GreatSealUSA/Brainrot_Society_47    
+
+CALL TO WE THE PEOPLE: Cut out sports entertainment topics, video game topics, clear the media airwaves for serious factual discussion. Call for people to "end mental denial" of how bad things have become. Show concern that people are treating the White House as amusing and entertaining, that people are *enjoying* insulting and mocking Donald Trump, Elon Musk, JD Vance - and it is time to be serious and cut down the less-important amusement and entertainment topics in favor of people getting on the same page that it is a civic duty to understand and comprehend the changes in society.
 
 &nbsp;
 
