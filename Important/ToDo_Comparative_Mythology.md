@@ -12,3 +12,11 @@ Ok, so, there is some massive failure to recognize that science fiction storytel
 Comparative Mythology topic is comparative Science Fiction outer-space storytelling, But people are unwilling to admit that Hamlet's Ghost story is similar to magical "angels" stories of { Torah, Quran, Bible } - or even 1977 "Force Ghost" stories of Star Wars films. The inability to translate science fiction stories of thousands of years ago to modern science fiction is a crisis. People form street gangs, terrorism, over their story fandom preferences. Easter bunny is science fiction storytelling. The ignorance and confusion on fiction vs. nonfiction is a very serious problem.
 
 https://old.reddit.com/r/todayilearned/comments/1qkew0b/til_yahwehgod_in_abrahamic_religions_originally/
+
+&nbsp;
+
+https://old.reddit.com/r/todayilearned/comments/1qpfrze/til_that_there_was_a_popular_myth_in_many_muslim/
+
+Moon landing monomyth.
+
+October 8, 2013 - Swat Valley Pakistan. What came in more recent decades since 1969 moon landing.  “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.” ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban
