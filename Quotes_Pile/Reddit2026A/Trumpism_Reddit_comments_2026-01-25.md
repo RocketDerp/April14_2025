@@ -1282,3 +1282,19 @@ People spending free time and spare time commenting on Reddit about Trump. Inste
 https://old.reddit.com/r/videos/comments/1qos4n8/president_trump_on_alex_pretti_well_i_havent/o23ofpf/
 
 Tiny-short messaging. Looking forward, to the future seasons of the Donald Trump story. ANYTHING but promoting and asserting Dr. Bandy X Lee's nonfiction book and writing about the urgent importance of removing Trump from office.
+
+https://old.reddit.com/r/minnesota/comments/1qoq8sn/ice_agent_telling_unarmed_observer_if_you_raise/o23afpp/
+
+Entertaining "South Park" life that Trump creates for the fandom. Addiction to Trump the actor who provides stimulating leadership entertainment. Killing people to silence the, language Tower of Babel egoism battles.
+
+https://old.reddit.com/r/minnesota/comments/1qoq8sn/ice_agent_telling_unarmed_observer_if_you_raise/o2398j4/
+
+3 month Reddit account.
+
+https://old.reddit.com/r/minnesota/comments/1qoq8sn/ice_agent_telling_unarmed_observer_if_you_raise/o238tye/
+
+8 month Reddit account.
+
+https://old.reddit.com/r/minnesota/comments/1qoq8sn/ice_agent_telling_unarmed_observer_if_you_raise/o23ogjr/
+
+"insane"
