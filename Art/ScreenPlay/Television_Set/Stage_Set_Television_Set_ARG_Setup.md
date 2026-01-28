@@ -1,4 +1,4 @@
-# Stage Se; Television Set; ARG Setup
+# Stage Set; Television Set; ARG Setup
 
 **Each venue, say Lemmy vs. Reddit vs Bluesky.. is like different brands of television sets turning into the same Trump MAGA Reality White House TV show channel.**
 
