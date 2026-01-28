@@ -267,3 +267,5 @@ Antics politics. Donald Trump is such a symbolic *black hole*, an attraction of 
 https://old.reddit.com/r/Leakednews/comments/1qpohq9/americans_tried_to_hoist_the_american_flag_today/o2apqkk/
 
 Antics politics. Stunt politics. Feeding the media symbolism addictions, meme-life society.
+
+https://old.reddit.com/r/Leakednews/comments/1qpohq9/americans_tried_to_hoist_the_american_flag_today/o2any0s/
