@@ -215,3 +215,14 @@ Loyal Trump content fanatics. Cheering on the parading of media stars and entert
 
 * "what Putin will do next — that he’s unpredictable and thus dangerous. We’re rendered stunned, spun, and flummoxed by the Kremlin’s weaponization of absurdity and unreality.” - year 2014. September 9, 2014    
 https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+
+https://old.reddit.com/r/Fauxmoi/comments/1qpjwho/leaked_audio_from_tpusa_with_erika_kirk/o29klq7/
+
+<img width="1858" height="362" alt="image" src="https://github.com/user-attachments/assets/5c188691-1876-400d-803b-4f139ec5bec6" />
+
+Low-thought low-effort short-message Reddit thinking patterns. Entirely unaware that Charlie Kirk has a media cult following, podcast medium cult, and the severe emotional impact of fellow Reddit cultists / media cultists. I call this the Bible verse "1 John 4:20" media crisis; Charlie Kirk in year 2021 created https://PoliticalResearch.org/about/in-the-news/charlie-kirks-turning-point-usa-increasingly-leaning-right-wing-christian the Turning Point USA Faith ("TPUSA Faith") Christian media cult, and Reddit audience member has no education (or perhaps does and has either forgotten or lost comprehension) on comparative mythology. This is why so many Reddit hive-minded individuals can't grasp why Trump has such extreme power over the society using Surkov monomyth screenplay patterns.
+
+So many fanatics of Charlie Kirk's monomyth science fiction storytelling **experience intense anguish and pain at the loss of the prized content** drops. Surkov students are running circle around the Reddit audience. "emotionally upset" - Reddit comment, emotional disturbed, Kirk impacted people extremely deep with the White House and Kremlin TCP/IP amplifications and HDTV amplifications. The video of Charlie Kirk's assassination was extremely thrilling to action violence monomyth fandoms.
+
+* "The **pain caused by new media** and new technologies tends very much to fall into the category of 'referred pain,' such as skin trouble caused by the appendix or the heart." - Page 16; "***War and Peace in the Global Village*** is a **1968 book** by Marshall McLuhan and Quentin Fiore. It contains a collage of images and text that illustrates the effects of electronic media and new technology on man. Marshall McLuhan used James Joyce's Finnegans Wake as a major inspiration for this study of war throughout history as an indicator as to how war may be conducted in the future." - https://en.wikipedia.org/wiki/War_and_Peace_in_the_Global_Village#Pain_Caused_by_New_Media_(Page_16)
