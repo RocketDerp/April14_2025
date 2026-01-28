@@ -54,3 +54,14 @@ In 1996 / 1997, Paul Allen had doubled his financial wealth. https://www.deseret
 Context assertion again:
 
 * "We want to think about God. God is a thought. God is a name. God is an idea. But its reference is to something that transcends all thinking. The ultimate mystery of being is beyond all categories of thought. As Kant said, the thing in itself is no thing. It transcends thingness, it goes past anything that could be thought. The best things can’t be told because they transcend thought. **The second best are misunderstood, because those are the thoughts that are supposed to refer to that which can’t be thought about**. The third best are what we talk about. And myth is that field of reference to what is absolutely transcendent." - Power of Myth, year 1988
+
+
+https://old.reddit.com/r/nba/comments/1qp2hfr/chet_holmgren_on_minneapolis_i_definitely_think/o261ly8/
+
+https://old.reddit.com/r/nba/comments/1qp2hfr/chet_holmgren_on_minneapolis_i_definitely_think/o25y86j/
+
+https://old.reddit.com/r/nba/comments/1qp2hfr/chet_holmgren_on_minneapolis_i_definitely_think/o25w7th/
+
+https://old.reddit.com/r/nba/comments/1qp2hfr/chet_holmgren_on_minneapolis_i_definitely_think/o25w90n/
+
+<img width="1205" height="564" alt="image" src="https://github.com/user-attachments/assets/da2e8a2e-95ae-4984-8da7-cc93bc1d166b" />
