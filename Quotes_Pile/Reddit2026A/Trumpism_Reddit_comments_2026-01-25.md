@@ -1360,3 +1360,8 @@ Trump audience, in person and on Reddit, are addicted to the mockery and mocking
 https://old.reddit.com/r/Fauxmoi/comments/1qot7gn/trump_began_his_speech_in_iowa_by_asking_his/o243scw/
 
 1 month Reddit account. New on Christmas day. Invasion of USA political systems topic.
+
+https://old.reddit.com/r/nottheonion/comments/1qowsr0/germany_issues_formal_travel_advisory_for_us/o25076p/
+
+And people who have studied Malala's highlights of anti-women Taliban in Afghanistan and Pakistan can see the mass dehumanization going on.
+
