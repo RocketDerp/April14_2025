@@ -226,3 +226,8 @@ Low-thought low-effort short-message Reddit thinking patterns. Entirely unaware 
 So many fanatics of Charlie Kirk's monomyth science fiction storytelling **experience intense anguish and pain at the loss of the prized content** drops. Surkov students are running circle around the Reddit audience. "emotionally upset" - Reddit comment, emotional disturbed, Kirk impacted people extremely deep with the White House and Kremlin TCP/IP amplifications and HDTV amplifications. The video of Charlie Kirk's assassination was extremely thrilling to action violence monomyth fandoms.
 
 * "The **pain caused by new media** and new technologies tends very much to fall into the category of 'referred pain,' such as skin trouble caused by the appendix or the heart." - Page 16; "***War and Peace in the Global Village*** is a **1968 book** by Marshall McLuhan and Quentin Fiore. It contains a collage of images and text that illustrates the effects of electronic media and new technology on man. Marshall McLuhan used James Joyce's Finnegans Wake as a major inspiration for this study of war throughout history as an indicator as to how war may be conducted in the future." - https://en.wikipedia.org/wiki/War_and_Peace_in_the_Global_Village#Pain_Caused_by_New_Media_(Page_16)
+
+
+https://old.reddit.com/r/Fauxmoi/comments/1qpjwho/leaked_audio_from_tpusa_with_erika_kirk/o29joly/
+
+20 day Reddit account. Banal agent. Providing "LOL" laugh-track for meme addled Reddit junkies to Charlie Kirk hate-watching. https://en.Wikipedia.org/wiki/Hate-watching
