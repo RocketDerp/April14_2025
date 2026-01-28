@@ -241,3 +241,7 @@ https://old.reddit.com/r/worldnews/comments/1qpkkux/us_embassy_removes_flags_wit
 
 11 month Reddit account. Top-voted popular. Twitter-length. Avoidant of calling for Social Media Uprising to promote Dr. Bandy X Lee's nonfiction book from October 3, 2017 and have Trump removed from office and start emergency civic duty cult deprogramming using social networks.
 
+https://old.reddit.com/r/worldnews/comments/1qpkkux/us_embassy_removes_flags_with_names_of_fallen/o29temy/
+
+Hive minded Reddit has to be corrected about MAGA hive mind, media cults of Fox News HDTV, etc.
+
