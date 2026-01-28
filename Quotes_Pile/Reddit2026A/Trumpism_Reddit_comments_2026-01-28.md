@@ -84,3 +84,22 @@ Touch device users don't even have faces on Reddit.
 # "assumes there would be resistance and human faces; both of which may turn out to be false" - 1993
 
 * As Huxley remarked in Brave New World Revisited, the civil libertarians and rationalists who are ever on the alert to **oppose tyranny "failed to take into account man's almost infinite appetite for distractions."** In 1984, Orwell added, people are controlled by inflicting pain. In Brave New World, they are controlled by inflicting pleasure. In short, Orwell feared that what we fear will ruin us. Huxley feared that what we desire will ruin us. **This book is about the possibility that Huxley, not Orwell, was right**.” ― Neil Postman, **Amusing Ourselves to Death: Public Discourse** in the Age of Show Business. Year 1985.
+
+https://old.reddit.com/r/nba/comments/1qp2hfr/chet_holmgren_on_minneapolis_i_definitely_think/o26le14/
+
+"funny"; Trumpism / MAGA / ICE fandom finds all this chaos and nonsense so entertaining. So predictable the USA has become to Trump's entertainment society. Actor, entertainer, Howdy Doody leading the nation of sports fans, sports gamers, video gamers, screen home gamers. Surkov won since March 2013.
+
+<img width="927" height="1053" alt="image" src="https://github.com/user-attachments/assets/223a596d-98e7-4edc-a4df-cdd1b89954de" />
+
+OPERA_A Isn't it "funny". I am going round and round. 1,160 views February 22, 2021 https://www.youtube.com/watch?v=qF4okGg5MJQ
+
+"For all his perspicacity, George Orwell would have been stymied by this situation; there is nothing “Orwellian” about it. The President does not have the press under his thumb. The New York Times and The Washington Post are not Pravda; the Associated Press is not Tass. And there is no Newspeak here. Lies have not been defined as truth nor truth as lies. **All that has happened is that the public has adjusted to incoherence and been amused** into indifference. Which is why Aldous Huxley would not in the least be surprised by the story. Indeed, he prophesied its coming. He believed that it is far more likely that the Western democracies will dance and dream themselves into oblivion than march into it, single file and manacled. Huxley grasped, as Orwell did not, that it is not necessary to conceal anything from a public insensible to contradiction and narcoticized by technological diversions. Although Huxley did not specify that television would be our main line to the drug, he would have no difficulty accepting Robert MacNeil’s observation that “Television is the soma of Aldous Huxley’s Brave New World.” Big Brother turns out to be Howdy Doody."
+― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, **year 1985**, page 111
+    * Howdy Doody is an American children's television program (with circus and Western frontier themes) that was created and produced by Victor F. Campbell and E. Roger Muir. It was broadcast on the NBC television network in the United States from December 27, 1947, until September 24, 1960." https://en.wikipedia.org/wiki/Howdy_Doody
+
+https://old.reddit.com/r/todayilearned/comments/3ldxv2/til_elvis_manager_sold_i_hate_elvis_badges_to/cv5mm3u/
+
+TIME_WARP_A Context assertion: After June 16, 2015; After Bloomsday 2015. Friday September 18, 2015 Reddit social comment.
+
+* “The Kremlin idea is to own all forms of political discourse, to not let any independent movements develop outside its walls.” ― Peter Pomerantsev, Nothing Is True and Everything Is Possible: The Surreal Heart of the New Russia. **YEAR 2014*** Published. Book on paper medium.
+
