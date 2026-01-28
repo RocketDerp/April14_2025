@@ -1317,3 +1317,12 @@ https://old.reddit.com/r/politics/comments/1qotlua/border_patrol_agents_started_
 
 There is *profit* made selling fiction stories. People think there is zero consequences, can't see how much money and power is made by providing fiction to meme audiences.
 
+https://old.reddit.com/r/inflation/comments/1qotnj7/the_us_dollar_tumbles_to_a_fresh_4_year_low_after/o240mae/
+
+7 month Reddit account. Top upvoted popular comment.
+
+https://old.reddit.com/r/inflation/comments/1qotnj7/the_us_dollar_tumbles_to_a_fresh_4_year_low_after/o243qrc/
+
+https://old.reddit.com/r/inflation/comments/1qotnj7/the_us_dollar_tumbles_to_a_fresh_4_year_low_after/o23zqou/
+
+Trump's fiction storytelling is his entire basis of popularity. Many many cults of fiction fandoms. Grading what parts they like and do not like. But all agreeing that fiction provides so much more excitement and thrills with wild ever-thrilling destructive and harmful outcomes. All popular media systems flock to Trump. All conversations, all communications network: Trump, ICE, MAGA, anti-NATO, Trumpism. Surkov pioneered modern monomyth fiction storytelling techniques. The reprieve we had with the Joyce, Marshall McLuhan, Neil Postman educated society came to a confirmed end in year 2013. People to this day do not recognize the depth of the threat Fox News fiction represents, let alone Russia's Internet Research Agency fiction such as: https://www.BBC.com/news/world-us-canada-45294192
