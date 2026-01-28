@@ -149,3 +149,5 @@ Fandom of the entertainment. Trump actor doing acting. Performance Reality TV "T
 https://old.reddit.com/r/law/comments/1qpg9mm/sen_rand_paul_what_if_a_foreign_country_indicts/o28pvis/
 
 6 month Reddit account. Elon Musk's Twitter-think message. 4 words, tiny extreme short-length reaction commenting to Reality White House TV show. Most upvoted / popular comment. 
+
+https://old.reddit.com/r/law/comments/1qpg9mm/sen_rand_paul_what_if_a_foreign_country_indicts/o28qrmp/
