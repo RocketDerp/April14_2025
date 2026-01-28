@@ -196,3 +196,7 @@ Shit-prizing Reddit community. Shit-commenting, shit-posting, shit-voting on mem
 https://old.reddit.com/r/Fauxmoi/comments/1qpgvse/nicki_minaj_whos_married_to_a_rapist_walks_out/o28x8sa/
 
 Low-effort Reddit commenting, Tweet-length thinking patterns, Twitter-thinking as conditioned by Musk. Recognition of cult ritual, but does not assert any nonfiction authors, book titles, quotes about cult deprogramming. Audience hive mind (Reddit hive mind) attitude of commenting about cult events and not concerned to raise alarms and call for nonfiction teachings and mental health workers to unite in serious education and cult awareness campaigns. Fiction, anti-reality, hive-minded audience reaction,
+
+https://old.reddit.com/r/Fauxmoi/comments/1qpgvse/nicki_minaj_whos_married_to_a_rapist_walks_out/o28x4mt/
+
+Compulsive attraction to Donald Trump. Hundreds of millions of media consumers, famous and non-famous, can not resist the media presence and camera staging that Donald Trump commands.
