@@ -1252,3 +1252,19 @@ ANSWER: USA is a joke. Joking wins all debate. Putin won. Because everyone finds
 https://old.reddit.com/r/WitchesVsPatriarchy/comments/1qoneje/i_dont_want_to_hear_a_human_being_called_legal_or/o22k6xn/
 
 https://old.reddit.com/r/WitchesVsPatriarchy/comments/1qoneje/i_dont_want_to_hear_a_human_being_called_legal_or/o22wy14/
+
+https://old.reddit.com/r/videos/comments/1qos4n8/president_trump_on_alex_pretti_well_i_havent/o23oqha/
+
+<img width="945" height="331" alt="image" src="https://github.com/user-attachments/assets/43181eb8-6d66-43ea-94f2-63130c5aaafa" />
+
+Top-voted highly popular Twitter-length Tweet-thinking short message.
+
+* "What Orwell feared were those who would ban books. What Huxley feared was that there would be no reason to ban a book, for there would be **no one who wanted to read one**. Orwell feared those who would deprive us of information. Huxley feared those who would give us so much that **we would be reduced to passivity and egoism**. Orwell feared that the truth would be concealed from us. Huxley feared the truth would be drowned in a **sea of irrelevance**. Orwell feared we would become a captive culture. Huxley feared we would become a **trivial culture**" ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business
+
+Reddit audience falls for the NYC acting / actor doing the NYC SNL Tony Clifton POTUS performance year after year. Short-messaging commenting about Trump. There is an egoism of measuring against the unique language of Trump. People spend spare time and free time making these low-effort comments about Donald Trump, doing EVERYTHING THEY CAN to avoid REMOVING TRUMP from the center of all media systems focus. Endlessly chanting variations of { dumb, stupid, child, idiot, moron } over and over on meme systems.
+
+The Reddit commenting audience has no concept of this being "engaged" to the media signal. That HATE WATCHING is the attraction. https://en.wikipedia.org/wiki/Hate-watching Trump leads with "Low I.Q." mocking of women, and people flock to media systems to mock back. Day and night, mocking Donald Trump. ANYTHING TO NOT REMOVE THE SOURCE OF ENTERTAINMENT AND TCP/IP NETWORK STIMULATION! Trump is an ATTRACTION, Fandom on Reddit can not stop putting spare time, free time, extra time into the video game of feeding Trump the world topic attraction!
+
+People on Reddit, We The People, of social media - can not turn to Dr. Bandy X Lee's book from October 3, 2017 and make it the center of learning and self-awareness. Instead, mocking Trump all day and night, flocking to Trump content has sickened and wrecked the USA.
+
+* "Social media have changed the way Americans are exposed to news. Internet news sites (CNN, Huffington Post, etc.) and social media such as Facebook and Twitter provide immediate access to news as well as to comments from other readers with differing viewpoints. Many Americans impacted by Trump anxiety disorder have admitted to an **unhealthy obsession with checking news websites much more often** than they previously did, and the amount of **news involving Trump and his new administration has been constant, chaotic, confusing, and often overwhelming**. When struggling with anxiety, many individuals, in an attempt to maintain control, will falsely assume that the more they know, the more they can be prepared. However, this tends to give them **a false sense of control** and, paradoxically, may increase anxiety symptoms once they realize their grip on control is not solid." - Dr. Bandy X Lee, The Dangerous Case of Donald Trump: 27 Psychiatrists and Mental Health Experts Assess a President. Published October 3, 2017. Chapter "Trump Anxiety Disorder: The Trump Effect on the Mental Health of the Public Half the Nation and Special Populations"; by Jennifer Contarino Panning
