@@ -1601,3 +1601,6 @@ Upscroll media platform
 
 https://old.reddit.com/r/sanfrancisco/comments/1qnwq9p/oracle_owned_tiktok_is_preventing_scott_wieners/o1x2dzb/
 
+https://old.reddit.com/r/rareinsults/comments/1qopfss/he_dug_his_own_grave/o23v53j/
+
+Given the song reference, Steely Dan ... intentional?
