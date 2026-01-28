@@ -10,4 +10,4 @@ There are slight variations from commentator to commentator, influencer to infle
 
 See Also:
 
-1. [Ted Koppel "alternate universes" metaphors from year 2015 book](../../Quotes_Pile/Ted_Koppel.md}
+1. [Ted Koppel "alternate universes" metaphors from year 2015 book](../../Quotes_Pile/Ted_Koppel.md)
