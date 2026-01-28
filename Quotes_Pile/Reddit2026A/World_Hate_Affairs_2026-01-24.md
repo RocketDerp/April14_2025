@@ -251,4 +251,13 @@ Social media engagement of shit-commenting on shit-postings about shit leadershi
 
 https://old.reddit.com/r/worldnews/comments/1qpkkux/us_embassy_removes_flags_with_names_of_fallen/o2a6bk2/
 
-Social media low-effort commenting might be considered a "cancer" that lead to Trump's power and rise. July 6, 2011 short-message Twitter https://TheOutline.com/post/2445/trump-s-first-real-tweet-was-on-july-6-2011
+Social media low-effort commenting might be considered a "cancer" that lead to Donald Trump's power and rise to White House. July 6, 2011 short-message Twitter https://TheOutline.com/post/2445/trump-s-first-real-tweet-was-on-july-6-2011
+
+https://old.reddit.com/r/worldnews/comments/1qpkkux/us_embassy_removes_flags_with_names_of_fallen/o29s02h/
+
+Plenty more Surkov student screenplays to come. At least someone notices that they aren't incompetent and lazy and doing nothing. The active measures to self-harm the USA and create chaos is labor-intensive.
+
+* “Chaos and disruption, I later learned, are central tenets of Bannon's animating ideology. Before catalyzing America's dharmic rebalancing, his movement would first need to instill chaos through society so that a new order could emerge. He was an avid reader of a computer scientist and armchair philosopher who goes by the name Mencius Moldbug, a hero of the alt-right who writes long-winded essays attacking democracy and virtually everything about how modern societies are ordered. Moldbug’s views on truth influenced Bannon, and what Cambridge Analytica would become. Moldbug has written that “nonsense is a more effective organizing tool than the truth,” and Bannon embraced this. “Anyone can believe in the truth,” Moldbug writes, “to believe in nonsense is an unforgettable demonstration of loyalty. It serves as a political uniform. And if you have a uniform, you have an army.”
+― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the [Plot to Break America, page 85](https://books.google.com/books?id=8OW2DwAAQBAJ&pg=PA85&dq=%22serves+as+a+political+uniform.+And+if+you+have+a+uniform,+you+have+an+army.%E2%80%9D&hl=en&newbks=1&newbks_redir=1&sa=X). **year 2019**
+
+
