@@ -251,4 +251,4 @@ Social media engagement of shit-commenting on shit-postings about shit leadershi
 
 https://old.reddit.com/r/worldnews/comments/1qpkkux/us_embassy_removes_flags_with_names_of_fallen/o2a6bk2/
 
-Social media low-effort commenting might be considered a "cancer" that lead to Trump's power and rise. July 6, 2011 short-message Twitter https://TheoOtline.com/post/2445/trump-s-first-real-tweet-was-on-july-6-2011
+Social media low-effort commenting might be considered a "cancer" that lead to Trump's power and rise. July 6, 2011 short-message Twitter https://TheOutline.com/post/2445/trump-s-first-real-tweet-was-on-july-6-2011
