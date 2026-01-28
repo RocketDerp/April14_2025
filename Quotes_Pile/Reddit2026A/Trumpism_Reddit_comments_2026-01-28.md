@@ -231,3 +231,19 @@ So many fanatics of Charlie Kirk's monomyth science fiction storytelling **exper
 https://old.reddit.com/r/Fauxmoi/comments/1qpjwho/leaked_audio_from_tpusa_with_erika_kirk/o29joly/
 
 20 day Reddit account. Banal agent. Providing "LOL" laugh-track for meme addled Reddit junkies to Charlie Kirk hate-watching. https://en.Wikipedia.org/wiki/Hate-watching
+
+https://old.reddit.com/r/TikTokCringe/comments/1qpi9t2/i_hope_costco_sues_this_weird_mouth/o297a3y/
+
+Reddit fandom vs. TikTok fandom. Surkov won since March 2013. Satire vs. satire. Mockery vs. mockery. Total mockery nation lead by Trump and Putin.
+
+https://old.reddit.com/r/TikTokCringe/comments/1qpi9t2/i_hope_costco_sues_this_weird_mouth/o295nl6/
+
+4 month Reddit account. Trump Jesus fandom abounds in Texas.
+
+https://old.reddit.com/r/TikTokCringe/comments/1qpi9t2/i_hope_costco_sues_this_weird_mouth/o297p2k/
+
+Language bigotry abounds in USA society. Surkov won. Tower of Babel conflicts are core exploits of the Surkov monomyth executive function manipulations. 
+
+* "Russia only towards the end of the 1990s, at exactly the time **Surkov** joined the government. The author of Almost Zero loves to invoke such Lyotardian concepts as the **breakdown of grand cultural narratives** and the fragmentation of truth: ideas that still sound quite fresh in Russia." - October 20, 2011 - https://www.LRB.co.uk/the-paper/v33/n20/peter-pomerantsev/putin-s-rasputin
+
+* "It’s a strategy of power based on keeping any opposition there may be constantly confused, a ceaseless shape-shifting that is unstoppable because it’s indefinable. This fusion of despotism and postmodernism, in which **no truth is certain**, is reflected in the craze among the Russian elite for **neuro-linguistic** programming" - October 20, 2011 - a long fucking time ago in Reddit social years. https://www.LRB.co.UK/the-paper/v33/n20/peter-pomerantsev/putin-s-rasputin Year 2011
