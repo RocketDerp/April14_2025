@@ -145,3 +145,7 @@ One has to approach Surkov's Chess tactics, 8192D chess, from a lense of 1923 Fi
 https://old.reddit.com/r/UnderReportedNews/comments/1qpebdy/kristi_noem_everything_ive_done_ive_done_at_the/o28a489/
 
 Fandom of the entertainment. Trump actor doing acting. Performance Reality TV "The Apprentice" ... "White House Reality Reddit show".
+
+https://old.reddit.com/r/law/comments/1qpg9mm/sen_rand_paul_what_if_a_foreign_country_indicts/o28pvis/
+
+6 month Reddit account. Elon Musk's Twitter-think message. 4 words, tiny extreme short-length reaction commenting to Reality White House TV show. Most upvoted / popular comment. 
