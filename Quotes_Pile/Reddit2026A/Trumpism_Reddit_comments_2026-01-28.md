@@ -141,3 +141,7 @@ One has to approach Surkov's Chess tactics, 8192D chess, from a lense of 1923 Fi
 <img width="1169" height="911" alt="image" src="https://github.com/user-attachments/assets/3d37bb63-b698-4586-ae01-9b74bb365cd1" />
 
 * "Putin is clearly winning Russia’s hybrid war against the U.S. because Americans don’t understand how they are being manipulated." - December 11, 2020 - "The Heritage Foundation" https://www.Heritage.org/defense/commentary/putin-winning-russias-hybrid-war-against-america (December 11, 2020 is right before January 6, 2021 QAnon Russia mind-fuck outcomes. See: https://Old.Reddit.com/r/QAnonRussia )
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qpebdy/kristi_noem_everything_ive_done_ive_done_at_the/o28a489/
+
+Fandom of the entertainment. Trump actor doing acting. Performance Reality TV "The Apprentice" ... "White House Reality Reddit show".
