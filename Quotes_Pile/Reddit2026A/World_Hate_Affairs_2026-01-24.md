@@ -235,3 +235,9 @@ CAMPBELL: We need myths that will identify the individual not with his local gro
 MOYERS: There is something about that on the Great Seal of the United States.
 
 CAMPBELL: That’s what the Great Seal is all about.
+
+
+https://old.reddit.com/r/worldnews/comments/1qpkkux/us_embassy_removes_flags_with_names_of_fallen/o29na4u/
+
+11 month Reddit account. Top-voted popular. Twitter-length. Avoidant of calling for Social Media Uprising to promote Dr. Bandy X Lee's nonfiction book from October 3, 2017 and have Trump removed from office and start emergency civic duty cult deprogramming using social networks.
+
