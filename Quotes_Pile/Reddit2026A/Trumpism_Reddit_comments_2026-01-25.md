@@ -1337,4 +1337,16 @@ No, this isn't normal, it is following the rules of mythology. Like Islamic soci
 
 For year 2025, that was "South Park" instead of "Beavis and Butthead". South Park turns White House 2025 into bright colored fiction Satan character jokes and memes.
 
+https://old.reddit.com/r/politics/comments/1qox0sz/rep_ilhan_omar_assaulted_by_protester_at_town/o24rmi6/
+
+<img width="1131" height="1007" alt="image" src="https://github.com/user-attachments/assets/b8f4c927-0680-4a25-ac4a-ee6a065dda76" />
+
+Information warfare. John 1:1 warfare. Monomyth warfare. Surkov won since March 2013.  
+Alternate Reality Game based on interactive choice of which media venue, commenting thread, filter-bubble people follow. Like every sentence of tiny-short Reddit commenting making a story, word choice after word choice, everybody on different pages. Right now like 8 stories out of 25 on /r/All are about this breaking news, all rephrased by the Reuters media distribution clones and commenting section of each different subreddit hive mind. ICE is providing constant heavy stimulation all month, the audience is glued to the media. It's sickening to see the forest of it.
+
+As I emphasize: People are NOT addressing the Fox News HDTV cult problem with nonfiction learning. Dr. bandy X Lee is not being asserted as a leader for mental health topics. Instead, people are waiting for ICE and Trump / MAGA stimulation and reacting to every breaking news event / rumor / Trump move and shake.
+
+
+
+
 
