@@ -245,3 +245,6 @@ https://old.reddit.com/r/worldnews/comments/1qpkkux/us_embassy_removes_flags_wit
 
 Hive minded Reddit has to be corrected about MAGA hive mind, media cults of Fox News HDTV, etc.
 
+https://old.reddit.com/r/worldnews/comments/1qpkkux/us_embassy_removes_flags_with_names_of_fallen/o29r5jv/
+
+Social media engagement of shit-commenting on shit-postings about shit leadership President Donald Trump's engaging sign and symbol actions. Short Twitter-length shit-commenting style, highly upvoted enshitification of Reddit in the name of Trump fandom. Name-drop "Putin" but provides no author name, no off-Reddit URL, no quote... just rumor-mill low-effort information shit.
