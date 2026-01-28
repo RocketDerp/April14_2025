@@ -1356,3 +1356,7 @@ Trump video and Twitter messages get deep inside people's minds. Audiences flock
 https://old.reddit.com/r/Fauxmoi/comments/1qot7gn/trump_began_his_speech_in_iowa_by_asking_his/o23ynys/
 
 Trump audience, in person and on Reddit, are addicted to the mockery and mocking leadership that Trump provides. Leadership of hate, people follow. Leadership of insulting and  mocking, people follow. Compulsive addiction to Trump communications.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qot7gn/trump_began_his_speech_in_iowa_by_asking_his/o243scw/
+
+1 month Reddit account. New on Christmas day. Invasion of USA political systems topic.
