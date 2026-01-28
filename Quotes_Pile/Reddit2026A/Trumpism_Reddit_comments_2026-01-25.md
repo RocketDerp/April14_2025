@@ -1365,3 +1365,14 @@ https://old.reddit.com/r/nottheonion/comments/1qowsr0/germany_issues_formal_trav
 
 And people who have studied Malala's highlights of anti-women Taliban in Afghanistan and Pakistan can see the mass dehumanization going on.
 
+https://old.reddit.com/r/pics/comments/1qoz97n/macro_rubio_behind_trump/o259k8v/
+
+Reddit front page /r/All top. Most upvoted comment thread. Talking about shit, prizing shit-commenting, shit-posting, shit photograph of Trump. The fandom never gets enough oft his man. Free time and spare time that could be used to assert, quote, teach, cult deprogram with Dr. Bandy X Lee's nonfiction book from October 3, 2017 goes into addition to shit-talking shit-commenting about Trump.
+
+https://old.reddit.com/r/pics/comments/1qoz97n/macro_rubio_behind_trump/o25a89e/
+
+"all making fin". The fandom of Trump images / photographs. Reddit is the center of a fandom of intelligent people who are so compulsively attracted to Trump's mockery and hate signaling.... they will not utilize social media to stand up and call for his removal in a serious sustained... life-saving turn the USA around tone. The only sustained signal from the Reddit audience is "making fun", enjoyment and stimulation of consuming Trump culture.
+
+* “Everything in our background has prepared us to know and resist a prison when the gates begin to close around us . . . But what if there are no cries of anguish to be heard? **Who is prepared to take arms against a sea of amusements? To whom do we complain, and when, and in what tone of voice, when serious discourse dissolves into giggles?** What is the antidote to a culture's being drained by laughter?”
+― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. New York University. Media studies / media ecology professor. This 6-minute video is highly recommended: https://www.youtube.com/watch?v=ETUGwC9jXCM 10,389 views January 21, 2021
+  
