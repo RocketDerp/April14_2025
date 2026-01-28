@@ -1700,3 +1700,9 @@ https://old.reddit.com/r/technology/comments/1qnu932/tiktok_uninstalls_are_up_15
 https://www.youtube.com/watch?v=Mn_V_hNdHas    
 782 views January 26, 2026    
 "Movies You Have to Watch Twice (Or You'll Miss Everything)"    
+
+&nbsp;
+
+# TLDR fiction works
+
+https://old.reddit.com/r/CuratedTumblr/comments/1qpjldr/summaries_and_reviews/
