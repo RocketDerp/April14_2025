@@ -247,3 +247,7 @@ Language bigotry abounds in USA society. Surkov won. Tower of Babel conflicts ar
 * "Russia only towards the end of the 1990s, at exactly the time **Surkov** joined the government. The author of Almost Zero loves to invoke such Lyotardian concepts as the **breakdown of grand cultural narratives** and the fragmentation of truth: ideas that still sound quite fresh in Russia." - October 20, 2011 - https://www.LRB.co.uk/the-paper/v33/n20/peter-pomerantsev/putin-s-rasputin
 
 * "It’s a strategy of power based on keeping any opposition there may be constantly confused, a ceaseless shape-shifting that is unstoppable because it’s indefinable. This fusion of despotism and postmodernism, in which **no truth is certain**, is reflected in the craze among the Russian elite for **neuro-linguistic** programming" - October 20, 2011 - a long fucking time ago in Reddit social years. https://www.LRB.co.UK/the-paper/v33/n20/peter-pomerantsev/putin-s-rasputin Year 2011
+
+https://old.reddit.com/r/TikTokCringe/comments/1qpi9t2/i_hope_costco_sues_this_weird_mouth/o294tyg/
+
+Tech loving fandom of Trump shallowness and superficial video content. Following Trump leadership. ANYTHING but calling for the removal of Trump, asserting the dangers of mental health. ANYTHING BUT quoting Dr. Bandy X Lee's October 3, 2017 book about MAGA cult mental health crisis.
