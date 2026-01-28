@@ -128,3 +128,16 @@ My fucking NIGHTMARE Reddit audience fandom of WATCHING PASSIVE as an AUDIENCE S
 
 We The People, We The Audience, to Kremlin Surkov student screenplays.
 
+https://old.reddit.com/r/UnderReportedNews/comments/1qpebdy/kristi_noem_everything_ive_done_ive_done_at_the/o28d5fz/
+
+<img width="1169" height="911" alt="image" src="https://github.com/user-attachments/assets/3d37bb63-b698-4586-ae01-9b74bb365cd1" />
+
+Surkovian Chess. People mock "Trump plays checkers", no! Trump is an actor acting as POTUS Tony Clifton entertainer, Clifton bragging fat suit SNL NYC character. Trump's hone town Fox News NYC HDTV / SNL NYC. It is Surkov chess, Surkov is way deep in reserve, acting as if removed from the long-term schema. Surkov monomyth is in the fiction works. 
+
+One has to approach Surkov's Chess tactics, 8192D chess, from a lense of 1923 Finn's Hotel, 1924 Finnegans Wake interpretation. Vlad Surkov's published monomyth fiction reveals! Marshall McLuhan, University of Toronto grasp of Joyce works applied to Surkov. Surkov students won since year 2013.
+
+* "Vladislav Surkov, often writing under the pseudonym Natan Dubovitsky, has authored several fiction works that satirize Russian political and social life. His most prominent work is the novel Almost Zero (2009), a "gangsta fiction" narrative that follows a corrupt PR operative and explores the cynicism of the post-Soviet power structure. In 2011, he published The Machine and the Giant, a story exploring themes of power and management, followed by the short story Without Sky (2014), a science fiction allegory often cited by Western analysts to explain his "non-linear warfare" strategy. He also contributed to the collection Texts 1997-2010, which blends his political speeches with literary musings, and his novel The Puppet Master (2017) further examines the manipulative nature of modern governance." - Google Search summary 2026-01-28 morning
+
+<img width="1169" height="911" alt="image" src="https://github.com/user-attachments/assets/3d37bb63-b698-4586-ae01-9b74bb365cd1" />
+
+* "Putin is clearly winning Russia’s hybrid war against the U.S. because Americans don’t understand how they are being manipulated." - December 11, 2020 - "The Heritage Foundation" https://www.Heritage.org/defense/commentary/putin-winning-russias-hybrid-war-against-america (December 11, 2020 is right before January 6, 2021 QAnon Russia mind-fuck outcomes. See: https://Old.Reddit.com/r/QAnonRussia )
