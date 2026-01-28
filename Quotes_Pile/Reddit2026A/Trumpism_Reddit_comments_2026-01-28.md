@@ -192,3 +192,7 @@ Manipulation messaging to Reddit [hearts and minds](https://en.wikipedia.org/wik
 https://old.reddit.com/r/Fauxmoi/comments/1qpgvse/nicki_minaj_whos_married_to_a_rapist_walks_out/o28vu9q/
 
 Shit-prizing Reddit community. Shit-commenting, shit-posting, shit-voting on meme sites. Shit-organizing information system fandom. Following Trump's lead actor role with the current on-stage supporting actresses and actors. Reddit audience entirely engaged with the Surkov student screenplays and professional actors and performers playing Reality White House / Kremlin show. Surkov won since March 2013, [the WWW trolling operation](https://github.com/RocketDerp/April14_2025/blob/main/Operation_Matthew_4_19_on_monday_2024-03-31.md) has Reddit audience eating right out of the hands of Kremlin screenplays.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qpgvse/nicki_minaj_whos_married_to_a_rapist_walks_out/o28x8sa/
+
+Low-effort Reddit commenting, Tweet-length thinking patterns, Twitter-thinking as conditioned by Musk. Recognition of cult ritual, but does not assert any nonfiction authors, book titles, quotes about cult deprogramming. Audience hive mind (Reddit hive mind) attitude of commenting about cult events and not concerned to raise alarms and call for nonfiction teachings and mental health workers to unite in serious education and cult awareness campaigns. Fiction, anti-reality, hive-minded audience reaction,
