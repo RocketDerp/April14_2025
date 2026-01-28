@@ -65,3 +65,22 @@ https://old.reddit.com/r/nba/comments/1qp2hfr/chet_holmgren_on_minneapolis_i_def
 https://old.reddit.com/r/nba/comments/1qp2hfr/chet_holmgren_on_minneapolis_i_definitely_think/o25w90n/
 
 <img width="1205" height="564" alt="image" src="https://github.com/user-attachments/assets/da2e8a2e-95ae-4984-8da7-cc93bc1d166b" />
+
+https://old.reddit.com/r/nba/comments/1qp2hfr/chet_holmgren_on_minneapolis_i_definitely_think/o25wdjb/
+
+
+https://old.reddit.com/r/nba/comments/1qp2hfr/chet_holmgren_on_minneapolis_i_definitely_think/o25zm8n/
+
+<img width="942" height="557" alt="image" src="https://github.com/user-attachments/assets/3d60b6cd-413f-4631-82af-a7a9f9610d35" />
+
+Yes. And banal Reddit Twitter-length commenting users are not using REAL NAME and REAL FACES. A boot stopping down on faces. No-identity vs. NBA player has REAL IDENTITY known all over society.
+
+* “The misleading effect of books like George Orwell's 1984 is to project into the future a state of affairs that already exists.” ― Marshall McLuhan, The Mechanical Bride : Folklore of Industrial Man. Year 1951
+
+Touch device users don't even have faces on Reddit.
+
+* "Television tries to interpret itself to us, bypassing the upper brain functions and directly feeding into our minds. This is why I said – off camera between classes – that Orwell was a pie-eyed optimist. 1984 arrived in sort of the early 70’s, and ah, Orwell’s vision of a horrible future which was a **boot stomping on a human face forever is a utopian image** because he **assumes there would be resistance and human faces; both of which may turn out to be false.** So, I mean, 1984 is not a book that scares me… anymore. I mean, again, last time I outrageously said that Herbert Marcuse was the Norman Vincent Peale of the 60’s, and now this time I have been forced to say that Orwell was an optimist… you know… it’s sort of my corollary to his little cautionary tale." - YEAR 1993, Texan Rick Roderick, Duke University https://rickroderick.org/305-habermas-and-the-fragile-dignity-of-humanity-1993/
+
+# "assumes there would be resistance and human faces; both of which may turn out to be false" - 1993
+
+* As Huxley remarked in Brave New World Revisited, the civil libertarians and rationalists who are ever on the alert to **oppose tyranny "failed to take into account man's almost infinite appetite for distractions."** In 1984, Orwell added, people are controlled by inflicting pain. In Brave New World, they are controlled by inflicting pleasure. In short, Orwell feared that what we fear will ruin us. Huxley feared that what we desire will ruin us. **This book is about the possibility that Huxley, not Orwell, was right**.” ― Neil Postman, **Amusing Ourselves to Death: Public Discourse** in the Age of Show Business. Year 1985.
