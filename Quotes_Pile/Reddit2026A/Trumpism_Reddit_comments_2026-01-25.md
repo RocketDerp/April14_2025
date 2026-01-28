@@ -1375,4 +1375,13 @@ https://old.reddit.com/r/pics/comments/1qoz97n/macro_rubio_behind_trump/o25a89e/
 
 * “Everything in our background has prepared us to know and resist a prison when the gates begin to close around us . . . But what if there are no cries of anguish to be heard? **Who is prepared to take arms against a sea of amusements? To whom do we complain, and when, and in what tone of voice, when serious discourse dissolves into giggles?** What is the antidote to a culture's being drained by laughter?”
 ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. New York University. Media studies / media ecology professor. This 6-minute video is highly recommended: https://www.youtube.com/watch?v=ETUGwC9jXCM 10,389 views January 21, 2021
-  
+
+
+https://old.reddit.com/r/NoStupidQuestions/comments/1qoxa0d/in_the_2020s_conservative_women_are_having_kids/o24zdpb/
+
+Instead of calling for the removal of Trump via Dr. Bandy X Lee's nonfiction book from October 3, 2017 - and using social media to educate people on the book, over and over, this is the kind of political topic people with free time and spare time and engaging. There has been no uprising from We The People to REMOVE Trump. Social media and media systems are what Trump lives for, and people can not conceive of speaking out personally against Trump (for his removal, and specific education on why) in a sustained, organized, mas uprising on the Internet.
+
+https://old.reddit.com/r/NoStupidQuestions/comments/1qoxa0d/in_the_2020s_conservative_women_are_having_kids/o25365k/
+
+https://old.reddit.com/r/NoStupidQuestions/comments/1qoxa0d/in_the_2020s_conservative_women_are_having_kids/o2550ox/
+
