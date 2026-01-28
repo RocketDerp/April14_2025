@@ -830,3 +830,9 @@ https://old.reddit.com/r/UnderReportedNews/comments/1qpebdy/kristi_noem_everythi
 Tim Finnegan the Brick Mason    
 
 * "In Finnegans Wake, James Joyce employs Masonic imagery to construct the novel’s architecture, using the "freely masoned" symbols of the esoteric fraternity to mirror the cyclical nature of history and to structure the characters of Shem and Shaun. Joyce frequently references the "Master Builder" (a direct nod to Ibsen but also a masonic title) and incorporates the Pigpen Cipher within his personal sigla for characters. References to the "chequered floor" of King Solomon’s Temple, the "mosaic pavement" where brethren walk, and the "two-headed octopus of Judeo-masonry" appear throughout the text to represent HCE's (Humphrey Chimpden Earwicker) connection to the "Freemason's meeting" and the wider, often hostile, Dublin society of his, and Joyce’s, time." - Google Search summary 2026-01-28 morning USA
+
+&nbsp;
+
+https://old.reddit.com/r/Whatcouldgowrong/comments/1qpk51z/wcgw_if_you_are_inspecting_a_roof_after_a_liquid/
+
+A great Tim Finnegan fall video.  "By all accounts, this insurance adjustor suffered no injuries, popped right up after the fall, and (of course) scurried off to his vehicle and drove drunkenly away. We don't know what happened to those that he might have encountered as a drunk driver thereafter."

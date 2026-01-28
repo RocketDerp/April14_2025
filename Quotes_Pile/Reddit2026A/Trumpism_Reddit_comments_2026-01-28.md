@@ -141,3 +141,113 @@ One has to approach Surkov's Chess tactics, 8192D chess, from a lense of 1923 Fi
 <img width="1169" height="911" alt="image" src="https://github.com/user-attachments/assets/3d37bb63-b698-4586-ae01-9b74bb365cd1" />
 
 * "Putin is clearly winning Russia’s hybrid war against the U.S. because Americans don’t understand how they are being manipulated." - December 11, 2020 - "The Heritage Foundation" https://www.Heritage.org/defense/commentary/putin-winning-russias-hybrid-war-against-america (December 11, 2020 is right before January 6, 2021 QAnon Russia mind-fuck outcomes. See: https://Old.Reddit.com/r/QAnonRussia )
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qpebdy/kristi_noem_everything_ive_done_ive_done_at_the/o28a489/
+
+Fandom of the entertainment. Trump actor doing acting. Performance Reality TV "The Apprentice" ... "White House Reality Reddit show".
+
+https://old.reddit.com/r/law/comments/1qpg9mm/sen_rand_paul_what_if_a_foreign_country_indicts/o28pvis/
+
+6 month Reddit account. Elon Musk's Twitter-think message. 4 words, tiny extreme short-length reaction commenting to Reality White House TV show. Most upvoted / popular comment. 
+
+https://old.reddit.com/r/law/comments/1qpg9mm/sen_rand_paul_what_if_a_foreign_country_indicts/o28qrmp/
+
+https://old.reddit.com/r/Fauxmoi/comments/1qpgvse/nicki_minaj_whos_married_to_a_rapist_walks_out/o28tw4z/
+
+11 month Reddit account. Top-upvoted comment. "Fandom" of Trump message payload. Hate motivates topic.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qpgvse/nicki_minaj_whos_married_to_a_rapist_walks_out/o28ve40/
+
+Rape content for commentary audiences. Rape topics of { Epstein, Trump, MAGA rape, male domination } skyrocket to the top of /r/All daily on Reddit. Trump leads with male domination and Reddit fandom of Reality White House hate-watching prizes every posting. https://en.wikipedia.org/wiki/Hate-watching Hate of women singers, hate of women via powerful dehumanizing cloud computing media machines. NOTICE: the absence of condemning ALL hate, instead there are people in Reddit fandom proudly declaring they hate the woman singer (Nicki Minaj). Trump leads with hate leadership mindsets. Surkovian MonoMyth techniques of population manipulation.
+
+* AVOIDED on Reddit social in hate-fandom information topic context, deep Atlanta USA American assertions. February 28, 1954: "Most people can't stand up for their convictions, because the majority of people might not be doing it. See, everybody's not doing it, so it must be wrong. And since everybody is doing it, it must be right. So a sort of numerical interpretation of what's right. But I'm here to say to you this morning that some things are right and some things are wrong. Eternally so, absolutely so. **It's wrong to hate.** It always has been wrong and it always will be wrong. It's wrong in America, it's wrong in Germany, it's wrong in Russia, it's wrong in China. It was wrong in 2000 B.C., and it's wrong in 1954 A.D. It always has been wrong, and it always will be wrong." - Martin Luther King Jr.
+    * "For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the **true becomes false and the false becomes true**. That's what hate does. You can't see right. **The symbol of objectivity** is lost." - Martin Luther King Jr.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qpgvse/nicki_minaj_whos_married_to_a_rapist_walks_out/o28xo51/
+
+Hate is the Reddit posting title, and fanatics of hate crowd around the Reddit posting to promote hate. Media cultists.
+
+* "For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the **true becomes false and the false becomes true**. That's what hate does. You can't see right. **The symbol of objectivity** is lost." - Martin Luther King Jr.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qpgvse/nicki_minaj_whos_married_to_a_rapist_walks_out/o28wvi8/
+
+8 month Reddit account. "insane"
+
+https://old.reddit.com/r/Fauxmoi/comments/1qpgvse/nicki_minaj_whos_married_to_a_rapist_walks_out/o28vtyn/
+
+Messaging that human persons do not deserve love. Reddit mind-fuck to promote out-group mass dehumanization, entire categories of persons on Earth that do not deserve love. Reddit cultists of out-group hate, Levant monomyth indoctrinated values in Reddit sociologically oriented MAGA / Trumpism USA thinking. Complete tech-loving (machines) Reddit social attitudes, total rejection of USA Atlanta Dr. Martin Luther King's goodness and reformations.
+
+* "this passage is an extreme statement of something that is inherent in most sociologically oriented mythologies. That is to say, love and compassion are reserved for the in-group, and **aggression and abuse are projected outward on others**. Compassion is to be reserved for members of your own group." - Year 1988 book, "The Power Of Myth". SEE_ALSO [See Also: "the Angolan Experience" - Page 89](https://www.google.com/books/edition/Cuban_Identity_and_the_Angolan_Experienc/nJe59BNpCUkC?hl=en&gbpv=1&dq=%22sociologically+oriented+mythologies.+That+is+to+say,+love+and+compassion%22&pg=PA89&printsec=frontcover)
+
+https://old.reddit.com/r/Fauxmoi/comments/1qpgvse/nicki_minaj_whos_married_to_a_rapist_walks_out/o28vlt6/
+
+1 month Reddit account. Implying that hate has value and does anything good.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qpgvse/nicki_minaj_whos_married_to_a_rapist_walks_out/o28xrs5/
+
+6 month Reddit account.
+
+Manipulation messaging to Reddit [hearts and minds](https://en.wikipedia.org/wiki/Winning_hearts_and_minds) that this content is a thrilling Reality White House shows with performers / actors / lead by Trump content producer. Media cultists, famous celebrity Trump and supporting cast hired by Kremlin and White House for Reddit fandom. Redditors are glued to their touch devices waiting for every new content drop to comment and muse over. Framing it like latest season of Television "The Apprentice" scripted Reality HDTV... anticipating the next story plot twists and turns. Feeding the fiction addictions of the media cults.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qpgvse/nicki_minaj_whos_married_to_a_rapist_walks_out/o28vu9q/
+
+Shit-prizing Reddit community. Shit-commenting, shit-posting, shit-voting on meme sites. Shit-organizing information system fandom. Following Trump's lead actor role with the current on-stage supporting actresses and actors. Reddit audience entirely engaged with the Surkov student screenplays and professional actors and performers playing Reality White House / Kremlin show. Surkov won since March 2013, [the WWW trolling operation](https://github.com/RocketDerp/April14_2025/blob/main/Operation_Matthew_4_19_on_monday_2024-03-31.md) has Reddit audience eating right out of the hands of Kremlin screenplays.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qpgvse/nicki_minaj_whos_married_to_a_rapist_walks_out/o28x8sa/
+
+Low-effort Reddit commenting, Tweet-length thinking patterns, Twitter-thinking as conditioned by Musk. Recognition of cult ritual, but does not assert any nonfiction authors, book titles, quotes about cult deprogramming. Audience hive mind (Reddit hive mind) attitude of commenting about cult events and not concerned to raise alarms and call for nonfiction teachings and mental health workers to unite in serious education and cult awareness campaigns. Fiction, anti-reality, hive-minded audience reaction,
+
+https://old.reddit.com/r/Fauxmoi/comments/1qpgvse/nicki_minaj_whos_married_to_a_rapist_walks_out/o28x4mt/
+
+Compulsive attraction to Donald Trump. Hundreds of millions of media consumers, famous and non-famous, can not resist the media presence and camera staging that Donald Trump commands.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qpgvse/nicki_minaj_whos_married_to_a_rapist_walks_out/o28y48q/
+
+1 month Reddit account.
+
+This message is to assure the cult Reddit audience to celebrity content... that money is the ONLY motivation. The one and only one motivation, Ignoring brainwashing, ignoring Fox News HDTV cult that does not *give money* to cultists to tune into addictive content. Short Twitter-length Tweet-thinking messaging to manipulate Reddit audience into avoiding the Trump cult stardom-cult "Fauxmoi" behavior of Reddit community. Trump is first and foremost an actor, acting the Tony Clifton SNL NYC performance of Trump family home town. Reddit fandom eats up the show and does not desire to remove Trump from the constant center of all media systems focus.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qpgvse/nicki_minaj_whos_married_to_a_rapist_walks_out/o28yt98/
+
+<img width="1419" height="311" alt="image" src="https://github.com/user-attachments/assets/093f1ea7-37cb-4343-bbb2-d3102c34778b" />
+
+Loyal Trump content fanatics. Cheering on the parading of media stars and entertainers that Trump leads the nation with. Media cults abound. This Reddit meme aficionado gives this particular **POTUS Tony Clifton** absurd surreal comedy skit a 4 out of 4 star rating, "😂😂😂😂" from the Reddit shit-commenting fandom.
+
+* "what Putin will do next — that he’s unpredictable and thus dangerous. We’re rendered stunned, spun, and flummoxed by the Kremlin’s weaponization of absurdity and unreality.” - year 2014. September 9, 2014    
+https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+
+https://old.reddit.com/r/Fauxmoi/comments/1qpjwho/leaked_audio_from_tpusa_with_erika_kirk/o29klq7/
+
+<img width="1858" height="362" alt="image" src="https://github.com/user-attachments/assets/5c188691-1876-400d-803b-4f139ec5bec6" />
+
+Low-thought low-effort short-message Reddit thinking patterns. Entirely unaware that Charlie Kirk has a media cult following, podcast medium cult, and the severe emotional impact of fellow Reddit cultists / media cultists. I call this the Bible verse "1 John 4:20" media crisis; Charlie Kirk in year 2021 created https://PoliticalResearch.org/about/in-the-news/charlie-kirks-turning-point-usa-increasingly-leaning-right-wing-christian the Turning Point USA Faith ("TPUSA Faith") Christian media cult, and Reddit audience member has no education (or perhaps does and has either forgotten or lost comprehension) on comparative mythology. This is why so many Reddit hive-minded individuals can't grasp why Trump has such extreme power over the society using Surkov monomyth screenplay patterns.
+
+So many fanatics of Charlie Kirk's monomyth science fiction storytelling **experience intense anguish and pain at the loss of the prized content** drops. Surkov students are running circle around the Reddit audience. "emotionally upset" - Reddit comment, emotional disturbed, Kirk impacted people extremely deep with the White House and Kremlin TCP/IP amplifications and HDTV amplifications. The video of Charlie Kirk's assassination was extremely thrilling to action violence monomyth fandoms.
+
+* "The **pain caused by new media** and new technologies tends very much to fall into the category of 'referred pain,' such as skin trouble caused by the appendix or the heart." - Page 16; "***War and Peace in the Global Village*** is a **1968 book** by Marshall McLuhan and Quentin Fiore. It contains a collage of images and text that illustrates the effects of electronic media and new technology on man. Marshall McLuhan used James Joyce's Finnegans Wake as a major inspiration for this study of war throughout history as an indicator as to how war may be conducted in the future." - https://en.wikipedia.org/wiki/War_and_Peace_in_the_Global_Village#Pain_Caused_by_New_Media_(Page_16)
+
+
+https://old.reddit.com/r/Fauxmoi/comments/1qpjwho/leaked_audio_from_tpusa_with_erika_kirk/o29joly/
+
+20 day Reddit account. Banal agent. Providing "LOL" laugh-track for meme addled Reddit junkies to Charlie Kirk hate-watching. https://en.Wikipedia.org/wiki/Hate-watching
+
+https://old.reddit.com/r/TikTokCringe/comments/1qpi9t2/i_hope_costco_sues_this_weird_mouth/o297a3y/
+
+Reddit fandom vs. TikTok fandom. Surkov won since March 2013. Satire vs. satire. Mockery vs. mockery. Total mockery nation lead by Trump and Putin.
+
+https://old.reddit.com/r/TikTokCringe/comments/1qpi9t2/i_hope_costco_sues_this_weird_mouth/o295nl6/
+
+4 month Reddit account. Trump Jesus fandom abounds in Texas.
+
+https://old.reddit.com/r/TikTokCringe/comments/1qpi9t2/i_hope_costco_sues_this_weird_mouth/o297p2k/
+
+Language bigotry abounds in USA society. Surkov won. Tower of Babel conflicts are core exploits of the Surkov monomyth executive function manipulations. 
+
+* "Russia only towards the end of the 1990s, at exactly the time **Surkov** joined the government. The author of Almost Zero loves to invoke such Lyotardian concepts as the **breakdown of grand cultural narratives** and the fragmentation of truth: ideas that still sound quite fresh in Russia." - October 20, 2011 - https://www.LRB.co.uk/the-paper/v33/n20/peter-pomerantsev/putin-s-rasputin
+
+* "It’s a strategy of power based on keeping any opposition there may be constantly confused, a ceaseless shape-shifting that is unstoppable because it’s indefinable. This fusion of despotism and postmodernism, in which **no truth is certain**, is reflected in the craze among the Russian elite for **neuro-linguistic** programming" - October 20, 2011 - a long fucking time ago in Reddit social years. https://www.LRB.co.UK/the-paper/v33/n20/peter-pomerantsev/putin-s-rasputin Year 2011
+
+https://old.reddit.com/r/TikTokCringe/comments/1qpi9t2/i_hope_costco_sues_this_weird_mouth/o294tyg/
+
+Tech loving fandom of Trump shallowness and superficial video content. Following Trump leadership. ANYTHING but calling for the removal of Trump, asserting the dangers of mental health. ANYTHING BUT quoting Dr. Bandy X Lee's October 3, 2017 book about MAGA cult mental health crisis.
