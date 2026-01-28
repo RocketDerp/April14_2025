@@ -40,7 +40,12 @@ Packet-switching networking ideas were being taken by Paul Allen and applied to 
 
 REPEATING the key of what this Reddit comment is saying: "The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the **30-second** sound bites (now down to 10 seconds or less), lowest common denominator programming" - Carl Sagan, page 59, year 1995
 
+
 https://old.reddit.com/r/nba/comments/1qp2hfr/chet_holmgren_on_minneapolis_i_definitely_think/o25ykde/
+
+<img width="824" height="674" alt="image" src="https://github.com/user-attachments/assets/20ecc38e-fa4d-41c7-a759-15cb4fefe325" />
+
+Apply that observation to ICE...
 
 D.O.G.E. Elon Musk year 2025... https://www.Wired.com/story/elon-musk-government-young-engineers/ the age. I could barely grasp what Paul Allen was doing in 1996 with unlimited resources and time to research at the HQ office when I was age 27. And I had HUGE experience working for Telos Federal Systems as an apprentice at age 16, running a hot rod PC shop, creating social media sites and selling them commercially at age 16, etc. Published author.. all before I left Fort Wayne. And then to work for the financially most powerful software company in Europe... 
 
