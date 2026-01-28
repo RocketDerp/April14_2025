@@ -178,3 +178,13 @@ https://old.reddit.com/r/Fauxmoi/comments/1qpgvse/nicki_minaj_whos_married_to_a_
 Messaging that human persons do not deserve love. Reddit mind-fuck to promote out-group mass dehumanization, entire categories of persons on Earth that do not deserve love. Reddit cultists of out-group hate, Levant monomyth indoctrinated values in Reddit sociologically oriented MAGA / Trumpism USA thinking. Complete tech-loving (machines) Reddit social attitudes, total rejection of USA Atlanta Dr. Martin Luther King's goodness and reformations.
 
 * "this passage is an extreme statement of something that is inherent in most sociologically oriented mythologies. That is to say, love and compassion are reserved for the in-group, and **aggression and abuse are projected outward on others**. Compassion is to be reserved for members of your own group." - Year 1988 book, "The Power Of Myth". SEE_ALSO [See Also: "the Angolan Experience" - Page 89](https://www.google.com/books/edition/Cuban_Identity_and_the_Angolan_Experienc/nJe59BNpCUkC?hl=en&gbpv=1&dq=%22sociologically+oriented+mythologies.+That+is+to+say,+love+and+compassion%22&pg=PA89&printsec=frontcover)
+
+https://old.reddit.com/r/Fauxmoi/comments/1qpgvse/nicki_minaj_whos_married_to_a_rapist_walks_out/o28vlt6/
+
+1 month Reddit account. Implying that hate has value and does anything good.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qpgvse/nicki_minaj_whos_married_to_a_rapist_walks_out/o28xrs5/
+
+6 month Reddit account.
+
+Manipulation messaging to Reddit [hearts and minds](https://en.wikipedia.org/wiki/Winning_hearts_and_minds) that this content is a thrilling Reality White House shows with performers / actors / lead by Trump content producer. Media cultists, famous celebrity Trump and supporting cast hired by Kremlin and White House for Reddit fandom. Redditors are glued to their touch devices waiting for every new content drop to comment and muse over. Framing it like latest season of Television "The Apprentice" scripted Reality HDTV... anticipating the next story plot twists and turns. Feeding the fiction addictions of the media cults.
