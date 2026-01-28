@@ -820,3 +820,13 @@ Tower of babel Twitter-think "Gotcha" conflicts. Hate prizing Tower of Babel, Tr
 https://old.reddit.com/r/sanfrancisco/comments/1qn608a/candlelight_vigil_for_alex_pretti_was_beautiful/
 
 Funeral Wake rituals
+
+&nbsp;
+
+James Joyce "Stephen Hero" book; Front page Reddit   
+Pro-Levant takeover of Free Masons thinking   
+https://old.reddit.com/r/UnderReportedNews/comments/1qpebdy/kristi_noem_everything_ive_done_ive_done_at_the/
+
+Tim Finnegan the Brick Mason    
+
+* "In Finnegans Wake, James Joyce employs Masonic imagery to construct the novel’s architecture, using the "freely masoned" symbols of the esoteric fraternity to mirror the cyclical nature of history and to structure the characters of Shem and Shaun. Joyce frequently references the "Master Builder" (a direct nod to Ibsen but also a masonic title) and incorporates the Pigpen Cipher within his personal sigla for characters. References to the "chequered floor" of King Solomon’s Temple, the "mosaic pavement" where brethren walk, and the "two-headed octopus of Judeo-masonry" appear throughout the text to represent HCE's (Humphrey Chimpden Earwicker) connection to the "Freemason's meeting" and the wider, often hostile, Dublin society of his, and Joyce’s, time." - Google Search summary 2026-01-28 morning USA
