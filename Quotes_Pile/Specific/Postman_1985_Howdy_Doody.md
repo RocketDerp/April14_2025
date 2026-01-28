@@ -11,7 +11,7 @@ Trump as entertainment, Howdy Doody. **Tony Clifton** acts entertain EVERYONE wh
 
 * Mocking Trump is joining mockery MAGA. Yes! Surkovian / Surkov students. [I am rePeat](https://www.youtube.com/watch?v=qF4okGg5MJQ)ing. https://old.Reddit.com/r/todayilearned/comments/3ldxv2/til_elvis_manager_sold_i_hate_elvis_badges_to/ Friday, September 18, 2015 Reddit social posting.
   * Mocking Trump, **South Park 2025 Satan** mocking is JOINING MAGA mockery of www.GreatSealUSA.com !
-  * “The Kremlin idea is to own all forms of political discourse, to not let any independent movements develop outside its walls.” ― Peter Pomerantsev, Nothing Is True and Everything Is Possible: The Surreal Heart of the New Russia. **YEAR 2014*** Published. Book on paper medium.
+  * “The Kremlin idea is to own all forms of political discourse, to not let any independent movements develop outside its walls.” ― Peter Pomerantsev, Nothing Is True and Everything Is Possible: The Surreal Heart of the New Russia. **YEAR 2014** Published. Book on paper medium.
 
 # 1985 was Second Term of Entertainer President
 
