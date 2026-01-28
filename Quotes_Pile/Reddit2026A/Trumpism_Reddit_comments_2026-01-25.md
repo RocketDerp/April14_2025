@@ -1308,3 +1308,12 @@ https://old.reddit.com/r/stateofMN/comments/1qorjx1/ice_agent_telling_unarmed_ob
 It is sickening to see Reddit users and social media users across all platforms spreading so much junk information, glut of poor information. Networking addiction itself, all putting Trump leadership as the signals to follow. Reaction audience. ANYTHING to avoid having an Internet uprising to promote Dr. Bandy X Lee or Jen Senko and address the brainwashing and mental health issues of MAGA. Everyone is sickened by the glut of Trumpism / Trump outcomes and Trump mindsets.
 
 * “It is only now beginning to be understood that cultures may also suffer grievously from **information glut, information without meaning**, information without control mechanisms.” ― Neil Postman, Technopoly: The Surrender of Culture to Technology. Year 1992.
+
+https://old.reddit.com/r/politics/comments/1qotlua/border_patrol_agents_started_the_scuffle_that_led/o23zds4/
+
+The fandom of Newsmax, Fox News, etc has been large.
+
+https://old.reddit.com/r/politics/comments/1qotlua/border_patrol_agents_started_the_scuffle_that_led/o245nmx/
+
+There is *profit* made selling fiction stories. People think there is zero consequences, can't see how much money and power is made by providing fiction to meme audiences.
+
