@@ -100,5 +100,5 @@ https://old.reddit.com/r/todayilearned/comments/3ldxv2/til_elvis_manager_sold_i_
 
 TIME_WARP_A Context assertion: After June 16, 2015; After Bloomsday 2015. Friday September 18, 2015 Reddit social comment.
 
-* “The Kremlin idea is to own all forms of political discourse, to not let any independent movements develop outside its walls.” ― Peter Pomerantsev, Nothing Is True and Everything Is Possible: The Surreal Heart of the New Russia. **YEAR 2014*** Published. Book on paper medium.
+* “The Kremlin idea is to own all forms of political discourse, to not let any independent movements develop outside its walls.” ― Peter Pomerantsev, Nothing Is True and Everything Is Possible: The Surreal Heart of the New Russia. **YEAR 2014** Published. Book on paper medium.
 
