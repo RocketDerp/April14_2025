@@ -331,3 +331,7 @@ It was on the front page of /r/All before it was removed. Reddit is a comedy-was
 https://old.reddit.com/r/PoliticalHumor/comments/1qptx9c/i_got_my_check_did_you_guys_get_yours/o2bylf9/
 
 https://old.reddit.com/r/pics/comments/1qq26ck/dni_tulsi_gabbard_in_a_truck_loaded_with_boxes/o2dol7k/
+
+https://old.reddit.com/r/news/comments/1qpi2j1/more_no_kings_protests_planned_for_march_28_as/o29anrz/
+
+The idea of using social media commenting and postings for education and discussion of nonfiction book from Dr. Bandy X Lee to **all get on the same page** of mental health, cults, etc... is avoided.
