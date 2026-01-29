@@ -648,3 +648,10 @@ Social media isn't standing up to call out the mental health crisis. Dr. Bandy X
 https://old.reddit.com/r/BlackPeopleofReddit/comments/1qqigdd/joe_calls_out_the_hip_hop_community_for_their/o2hem1x/
 
 "You read that right: HE KEEPS A PICTURE OF 'PAC AND PUTIN ON HIS DESK" https://theworld.org/stories/2016/07/30/putin-aide-vladislav-surkov-too-busy-bumping-tupac-care-about-us-sanctions-against-russia
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qqip6j/trump_hangs_putin_portrait_in_white_house_palm/o2gxjs0/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qqip6j/trump_hangs_putin_portrait_in_white_house_palm/o2h407r/
+
+Surkov won. Gloating was back in February 12, 2019: https://www.newsweek.com/russia-president-vladimir-putin-election-americans-1327793
+
