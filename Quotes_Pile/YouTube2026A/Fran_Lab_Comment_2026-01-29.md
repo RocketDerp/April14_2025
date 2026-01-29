@@ -20,4 +20,4 @@ Perhaps freedom, is the freedom to starve to death. You subsidize a thing, you g
 
 &nbsp;
 
-"GNU Religion", yha. Anti-compassion, anti-empathy. Technology hardware lab. Machine lover, humanism attacker.
+"GNU Religion", yha. Anti-compassion, anti-empathy. Technology hardware lab. Machine lover, humanism attacker. Technology lover, billionaire lover. "Umm, sorry, I do not really make content. Maybe it would be **electronic projects, 3d printing** and stuff. Need a camera."
