@@ -255,3 +255,7 @@ Tech loving fandom of Trump shallowness and superficial video content. Following
 https://old.reddit.com/r/BlackPeopleofReddit/comments/1qpk72i/dont_even_wanna_post_this_but_for_those_who_dont/o29rei1/
 
 1 month Reddit account. Front page Reddit posting "psyop"
+
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1qpk72i/dont_even_wanna_post_this_but_for_those_who_dont/o29oyg8/
+
+We need to rescue MAGA from Russia's mental manipulation. The entire society, everyone, anti-MAGA included - is in media feedback loops. American vs. American, mock for mock, hate for hate, all ignoring what Putin has done with media systems psychology. Surkov won since March 2013.
