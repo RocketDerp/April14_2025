@@ -426,3 +426,7 @@ Translated from 2013 Russia to USA 2025: I.C.E. raids are very little violence a
 https://old.reddit.com/r/Leakednews/comments/1qqco0e/i_am_stunned_by_this_video_this_is_the_problem/o2fymdk/
 
 yes. Disturbing the peace. Manipulating the fandom. Organized gaslighitng of the Reddit audience and an entire city / nation. But people on Bluesky and Reddit social media keep commenting about it over and over, day after day, night after night, commenting and commenting instead of organizing a social media uprising to promote mental health call-outs from Dr. Bandy X Lee. SEE_ALSO https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Bandy_X_Lee/Bandy_X_Lee_Gaslighitng_Crazy.md
+
+https://old.reddit.com/r/Leakednews/comments/1qqco0e/i_am_stunned_by_this_video_this_is_the_problem/o2fo9zo/
+
+9 month Reddit account. Active messaging to normalize this as predictable and to expect more. Short-length Tweet-think Twitter-thinking mind pattern to mind-fuck the Reddit audience into continued anti-goodness mindsets.
