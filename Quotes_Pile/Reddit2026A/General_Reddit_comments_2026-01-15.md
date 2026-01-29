@@ -1604,3 +1604,25 @@ https://old.reddit.com/r/sanfrancisco/comments/1qnwq9p/oracle_owned_tiktok_is_pr
 https://old.reddit.com/r/rareinsults/comments/1qopfss/he_dug_his_own_grave/o23v53j/
 
 Given the song reference, Steely Dan ... intentional?
+
+https://old.reddit.com/r/wallstreetbets/comments/1qpqrk4/elon_musk_says_tesla_ending_models_s_and_x/o2b39ox/
+
+https://old.reddit.com/r/wallstreetbets/comments/1qpqrk4/elon_musk_says_tesla_ending_models_s_and_x/o2b249m/
+
+Low-thought low-effort Elon Musk programmed Twitter-think Twitter-length reaction commenting. Denial of reality and USA MAGA situaiton in favor of meme-think Tweet-thinking.
+
+* “Science is more than a body of knowledge; it is a way of thinking." ... "The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the **30-second** sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but especially a kind of [celebration of ignorance](https://www.youtube.com/watch?v=wcY-x1VuWtE).” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995, page 59
+
+https://old.reddit.com/r/technology/comments/1qpqq0q/tiktok_uninstalls_surge_150_after_apps_us_takeover/o2b77p8/
+
+"Twitterization of"
+
+https://old.reddit.com/r/isthisAI/comments/1qps3zh/ice_fishing_photo_my_husband_took_the_dog_ice/o2be7i8/
+
+Tech society Reddit. People love what billionaires have been investing in. A 1.5  second Reddit comment message is the top-upvoted, popular. Fiction outsells nonfiction, why Trump leads a nation of people who celebrate fiction content creation by the world leader, President Trump.
+
+* “Science is more than a body of knowledge; it is a way of thinking." ... "The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the **30-second** sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but especially a kind of [celebration of ignorance](https://www.youtube.com/watch?v=wcY-x1VuWtE).” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995, page 59
+
+https://old.reddit.com/r/whenthe/comments/1qq2u0t/sorry_lads_we_tried_our_best_check_pinned_comment/o2dk6i9/
+
+Reddit moderators banning end-users in mass.

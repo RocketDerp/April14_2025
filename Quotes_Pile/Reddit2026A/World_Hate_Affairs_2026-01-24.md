@@ -235,3 +235,96 @@ CAMPBELL: We need myths that will identify the individual not with his local gro
 MOYERS: There is something about that on the Great Seal of the United States.
 
 CAMPBELL: That’s what the Great Seal is all about.
+
+
+https://old.reddit.com/r/worldnews/comments/1qpkkux/us_embassy_removes_flags_with_names_of_fallen/o29na4u/
+
+11 month Reddit account. Top-voted popular. Twitter-length. Avoidant of calling for Social Media Uprising to promote Dr. Bandy X Lee's nonfiction book from October 3, 2017 and have Trump removed from office and start emergency civic duty cult deprogramming using social networks.
+
+https://old.reddit.com/r/worldnews/comments/1qpkkux/us_embassy_removes_flags_with_names_of_fallen/o29temy/
+
+Hive minded Reddit has to be corrected about MAGA hive mind, media cults of Fox News HDTV, etc.
+
+https://old.reddit.com/r/worldnews/comments/1qpkkux/us_embassy_removes_flags_with_names_of_fallen/o29r5jv/
+
+Social media engagement of shit-commenting on shit-postings about shit leadership President Donald Trump's engaging sign and symbol actions. Short Twitter-length shit-commenting style, highly upvoted enshitification of Reddit in the name of Trump fandom. Name-drop "Putin" but provides no author name, no off-Reddit URL, no quote... just rumor-mill low-effort information shit.
+
+https://old.reddit.com/r/worldnews/comments/1qpkkux/us_embassy_removes_flags_with_names_of_fallen/o2a6bk2/
+
+Social media low-effort commenting might be considered a "cancer" that lead to Donald Trump's power and rise to White House. July 6, 2011 short-message Twitter https://TheOutline.com/post/2445/trump-s-first-real-tweet-was-on-july-6-2011
+
+https://old.reddit.com/r/worldnews/comments/1qpkkux/us_embassy_removes_flags_with_names_of_fallen/o29s02h/
+
+Plenty more Surkov student screenplays to come. At least someone notices that they aren't incompetent and lazy and doing nothing. The active measures to self-harm the USA and create chaos is labor-intensive.
+
+* “Chaos and disruption, I later learned, are central tenets of Bannon's animating ideology. Before catalyzing America's dharmic rebalancing, his movement would first need to instill chaos through society so that a new order could emerge. He was an avid reader of a computer scientist and armchair philosopher who goes by the name Mencius Moldbug, a hero of the alt-right who writes long-winded essays attacking democracy and virtually everything about how modern societies are ordered. Moldbug’s views on truth influenced Bannon, and what Cambridge Analytica would become. Moldbug has written that “nonsense is a more effective organizing tool than the truth,” and Bannon embraced this. “Anyone can believe in the truth,” Moldbug writes, “to believe in nonsense is an unforgettable demonstration of loyalty. It serves as a political uniform. And if you have a uniform, you have an army.”
+― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the [Plot to Break America, page 85](https://books.google.com/books?id=8OW2DwAAQBAJ&pg=PA85&dq=%22serves+as+a+political+uniform.+And+if+you+have+a+uniform,+you+have+an+army.%E2%80%9D&hl=en&newbks=1&newbks_redir=1&sa=X). **year 2019**
+
+https://old.reddit.com/r/worldnews/comments/1qpkkux/us_embassy_removes_flags_with_names_of_fallen/o2a14cb/
+
+Antics politics. Donald Trump is such a symbolic *black hole*, an attraction of wrecking goodness, almost anything can be manipulated around Trump to bend light and adjust gravity towards other topics.
+
+https://old.reddit.com/r/Leakednews/comments/1qpohq9/americans_tried_to_hoist_the_american_flag_today/o2apqkk/
+
+Antics politics. Stunt politics. Feeding the media symbolism addictions, meme-life society.
+
+https://old.reddit.com/r/Leakednews/comments/1qpohq9/americans_tried_to_hoist_the_american_flag_today/o2any0s/
+
+https://old.reddit.com/r/greenland/comments/1qplv0h/americans_tried_to_hoist_the_american_flag_today/o2a293j/
+
+https://old.reddit.com/r/greenland/comments/1qplv0h/americans_tried_to_hoist_the_american_flag_today/o2a2kua/
+
+https://old.reddit.com/r/TikTok/comments/1qpp95p/tiktok_bans_emmy_award_winning_journalist/o2aqekp/
+
+Right vs left brain-rot. Fiction vs. nonfiction is the far deeper issue. Trump is leading the world with fiction storytelling. Fox News HDTV fiction storytelling. 
+
+https://old.reddit.com/r/europe/comments/1qpcs1w/slovak_pm_fico_spoke_of_shock_at_trumps_state_of/o28lt63/
+
+https://old.reddit.com/r/europe/comments/1qpcs1w/slovak_pm_fico_spoke_of_shock_at_trumps_state_of/o27y5uo/
+
+11 month Reddit account. Fixated on the USA mental state of one single person, ignoring the MAGA cult and how everyone on Reddit could easily quote and link off-Reddit to Dr. Bandy X Lee's book from October 3, 2017 about Trump's mental health being dangerous.
+
+https://old.reddit.com/r/worldnews/comments/1qp9ljh/greenland_will_not_give_in_pm_says_as_denmark/o291f3d/
+
+27 day Reddit account, top-voted popular comment. "Russia". No off-Reddit link, no author name, no book title, no quotes. Twitter-length.
+
+https://old.reddit.com/r/worldnews/comments/1qp9ljh/greenland_will_not_give_in_pm_says_as_denmark/o28osn5/
+
+"slowly realizing"
+
+I've been in social media professionally since 1985, I've never seen people so engaged as they are when Trump content appears on Bluesky and Reddit. Mocking away, insulting, name-calling, following the hate leadership. MLK Jr's teachings about hate have been entirely erased by Russia's Internet Research Agency. People are entirely avoidant of asserting equality of humans (USA Deceleration of independence ideals). The cheering on of "Leopards At My Face" movement is a pro-suffering pro-hate pro-terrorist media cult. People do not want to turn to nonfiction from Dr. Bandy X Lee to focus on mental health and learn from mistakes an get on better mindsets. Instead, people follow Trump's leadership of mockery and hate. Trump leads with hate, the tech loving communities follow.
+
+https://old.reddit.com/r/worldnews/comments/1qqbpnj/trump_administration_secretly_met_with_canadian/o2fe6wn/
+
+https://old.reddit.com/r/worldnews/comments/1qqbpnj/trump_administration_secretly_met_with_canadian/o2fd03n/
+
+Sickening society. Monster state as defined by Power of Myth book in year 1988. Constant stress. Putinism since March 2013. Russia won the information war, hearts and minds in USA conditioned to self-harm USA, neighbors, Earth itself.
+
+* "what Putin will do next — that he’s unpredictable and thus dangerous. We’re rendered stunned, spun, and flummoxed by the Kremlin’s weaponization of absurdity and unreality.” - year 2014. September 9, 2014
+https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/worldnews/comments/1qqbpnj/trump_administration_secretly_met_with_canadian/o2fffo7/
+
+<img width="1039" height="887" alt="image" src="https://github.com/user-attachments/assets/0c615f92-f131-4307-b58e-640d61412f22" />
+
+"Putin"; Asking question of why. ANSWER: Because Americans are commenting on Reddit instead of using Reddit to assert Dr. Bandy X Lee. Instead of linking off-Reddit information about what Russia does, people are commenting over an over on Reddit as "engagement" to high speed messaging that generates money and power for the wealthy. We are drowning in shit-commenting on meme centers, Reddit meme land. It has been going on nonstop for a decade and is now self-evident to be abandonment of nonfiction learning. Surkov won since March 2013.
+
+* Nonfiction: "what Putin will do next — that he’s unpredictable and thus dangerous. We’re rendered stunned, spun, and flummoxed by the Kremlin’s weaponization of absurdity and unreality.” - year 2014. September 9, 2014
+https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+Social post { https://autistics.life/@RoundSparrow/115979442992892517 https://bsky.app/profile/roundsparrow.bsky.social/post/3mdlb2rdkuk2z }
+
+https://old.reddit.com/r/politics/comments/1qq9ixi/trump_teams_secret_meetings_with_group_plotting/o2ez3sx/
+
+A real conspiracy. Not the thought-ending phrase "conspiracy theory" that billionaires put into minds (Elon Musk "mind virus" manipulation  https://www.lemonde.fr/en/international/article/2024/08/13/elon-musk-s-ambition-repopulating-the-planet-and-destroying-the-woke-virus_6714239_4.html ). Fact-based evidence-based description of a conspiracy to take over Greenland and Canada as 51st and 52nd state.
+
+https://old.reddit.com/r/politics/comments/1qq9ixi/trump_teams_secret_meetings_with_group_plotting/o2ew7fl/
+
+1 month Reddit account. "Russia", "Russian", "destabilize" - no off-Reddit link. No author name. No book title, No mention of social media and brainwashing / information warfare / psyops /  emotional manipulation of population. No mention of timeframe and when it started (March 2013). No quotes from nonfiction.
+
+* "what Putin will do next — that he’s unpredictable and thus dangerous. We’re rendered stunned, spun, and flummoxed by the Kremlin’s weaponization of absurdity and unreality.” - year 2014. September 9, 2014
+https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/politics/comments/1qq9ixi/trump_teams_secret_meetings_with_group_plotting/o2ez87x/
+
+"Crazy"

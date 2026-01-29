@@ -4,9 +4,9 @@ Focus on the "Must Be Some Kind of Misunderstanding"
 
 1. Tower of Babel themes, even within the same religion and same English language
 
-2. Finnegand Wake year 1924 onward language
+2. Finnegan Wake year 1924 onward language
 
-3. Rock Muskc Lyrics
+3. Rock Music Lyrics
 
 &nbsp;
 
@@ -17,7 +17,10 @@ Focus on the "Must Be Some Kind of Misunderstanding"
 &nbsp;
 
 Titles?    
-Our Mistake ("My Struggle" hitler)    
+Our Mistake ("My Struggle" Hitler)    
+Trump Happened   
+Trump Shit Happened   
+White House Enshitification 
 We The People, Our Mistake     
 
 &nbsp;
@@ -27,7 +30,7 @@ We The People, Our Mistake
 Attraction to Fiction   
 Attraction to MonoMyth   
 MonoMyth Inputs   
-Addiciton to Fiction    
+Addiction to Fiction    
 
 &nbsp;
 
@@ -37,7 +40,7 @@ Entertainment-washing
 Fox News washing    
 Foxy Clever News Washing (FCNW)    
 Clever Fox Washing    
-Amusment Mills    
+Amusement Mills    
 Amusement Washing    
 Similar themes of Neil Postman was right in 1985    
 
@@ -62,7 +65,7 @@ Variations of title to apply to year 2025: The #ChatGPT Haunted World. The no-id
 
 &nbsp;
 
-# Metaphors of Appcolypse
+# Metaphors of Apocalypse
 
 Metaphors of apocalypse   
 Metaphor Apocalypse    
@@ -103,14 +106,14 @@ P. R. P. U.
 P. R. Pee Tapes     
 Pee Tapes P. R.    
 Death Onion Eaters   
-Onion Eaturs   
+Onion Eaters   
 Epstein Pee VHS P.R.     
 P.S. P.R.  (Police State / Post Script: Public Relations)    
 
 1995 Nation of Suckers    
 Nation of Suckers    
 Sagan Saga   
-Sagan's Ashes (book burning, Neil Postman no need to burn a book, Pussy Riot Putin's Ashes IRA aftermath, Putin Haunted book ttile metaphors)     
+Sagan's Ashes (book burning, Neil Postman no need to burn a book, Pussy Riot Putin's Ashes IRA aftermath, Putin Haunted book title metaphors)     
 
 Modern Meta Metaphors    
 Modern Life Metaphors    

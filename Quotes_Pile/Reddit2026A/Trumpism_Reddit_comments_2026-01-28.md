@@ -251,3 +251,178 @@ Language bigotry abounds in USA society. Surkov won. Tower of Babel conflicts ar
 https://old.reddit.com/r/TikTokCringe/comments/1qpi9t2/i_hope_costco_sues_this_weird_mouth/o294tyg/
 
 Tech loving fandom of Trump shallowness and superficial video content. Following Trump leadership. ANYTHING but calling for the removal of Trump, asserting the dangers of mental health. ANYTHING BUT quoting Dr. Bandy X Lee's October 3, 2017 book about MAGA cult mental health crisis.
+
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1qpk72i/dont_even_wanna_post_this_but_for_those_who_dont/o29rei1/
+
+1 month Reddit account. Front page Reddit posting "psyop"
+
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1qpk72i/dont_even_wanna_post_this_but_for_those_who_dont/o29oyg8/
+
+We need to rescue MAGA from Russia's mental manipulation. The entire society, everyone, anti-MAGA included - is in media feedback loops. American vs. American, mock for mock, hate for hate, all ignoring what Putin has done with media systems psychology. Surkov won since March 2013.
+
+https://old.reddit.com/r/MurderedByWords/comments/1qpohll/ice_posts_a_feel_good_story_the_internet_responds/o2aplff/
+
+If people would stop using their free time and spare time on Reddit to comment and mock-back at every mockery event ICE / MAGA / Trump White House and Kremlin do, and instead face the media cult of mocking. Dr. Bandy X Lee's nonfiction book from October 3, 2017 should be quoted constantly on every media platform until people are educated and understanding.. on the same pages... of removing Trump. Instead, a hate-watching fandom on Reddit had ICE on the front page constantly.
+
+https://old.reddit.com/r/justgalsbeingchicks/comments/1qpmw6d/actress_natalie_portman_what_trump_and_kristi/o2ahlv2/
+
+"The misogyny in these comments" ... Is this the reason there is such Reddit social avoidance of promoting woman Jen Senko about brainwashing topic since year 2015 / 2016? Why woman Dr. Bandy X Lee's October 3, 2017 book is avoided whenever the topic of mental health, unfit, dangerous comes up about Donald Trump?
+
+* “In Donald Trump, we have a frightening Venn diagram consisting of three circles: the first is extreme present hedonism; the second, narcissism; and the third, **bullying behavior.** These three circles overlap in the middle to create an impulsive, immature, incompetent person who, when in the position of ultimate power, easily slides into the role of tyrant, complete with family members sitting at his proverbial “ruling table.” Like a fledgling dictator, he plants psychological seeds of treachery in **sections of our population that reinforce already negative attitudes**.” ― Bandy X Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. October 3, 2017. Page 44.](https://books.google.com/books?id=g0c4DwAAQBAJ&pg=PA44&dq=%22immature,+incompetent+person+who,+when+in+the+position+of+ultimate+power,+easily+slides+into+the+role+of+tyrant%22&hl=en&newbks=1&newbks_redir=1&sa=X)
+
+https://old.reddit.com/r/politics/comments/1qplzt7/fbi_raids_georgia_election_office_as_trump/o2a66am/
+
+Serious long-form Reddit commenting in the face of important and serious topics.
+
+https://old.reddit.com/r/politics/comments/1qplzt7/fbi_raids_georgia_election_office_as_trump/o2avuah/
+
+Comedy is the core to Surkovian governing techniques.
+
+https://old.reddit.com/r/politics/comments/1qplzt7/fbi_raids_georgia_election_office_as_trump/o2ahld2/
+
+Goes along with the mythological leadership storytelling. Science fiction time-traveling mythos, adding to the super-power image for Trump fandom. Entertainment and mystery are core to Surkov governing methods.
+
+* "what Putin will do next — that he’s unpredictable and thus dangerous. We’re rendered stunned, spun, and flummoxed by the Kremlin’s weaponization of absurdity and unreality.” - year 2014. September 9, 2014    
+https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/AskReddit/comments/1qpv106/us_athletes_are_increasingly_speaking_out_against/o2c1uh9/
+
+4 month Reddit account. Top-voted popular comment. Promoting the simple-thinking idea of sports directorship to Trump-lead acting and entertainment content. ANYTHING to avoid asserting cult deprogramming, Jen Senko's film https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad about brainwashing right-wing media, Dr. Bandy X Lee's nonfiction book about mental health of Trump. Just look forward to more sporting events and athlete protesting and don't have a social media intellectual uprising right now today calling for people to get on the same page (Dr. Lee's nonfiction book for public education) and remove Trump.
+
+People are compulsively attracted to Trump's acting, his professional actor talents and content creation. Media consumer population is not using social media to educate and rise up against the nonsense Trump leads. People are normalizing this at hyper speeds.
+
+* “The human brain can protect us from seeing and feeling what it believes may be too uncomfortable for us to tolerate. It can lead us to deny, defend, minimize, or rationalize away something that doesn’t fit our worldview.”
+― Dr. Bandy X Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. Published **October 3, 2017**. Page 273. Chapter "TRUMP'S DADDY ISSUES"](https://books.google.com/books?id=g0c4DwAAQBAJ&pg=PA273&dq=%E2%80%9CThe+human+brain+can+protect+us+from+seeing+and+feeling+what+it+believes+may+be+too+uncomfortable%22&hl=en&newbks=1&newbks_redir=1&sa=X)
+
+https://old.reddit.com/r/AskReddit/comments/1qpv106/us_athletes_are_increasingly_speaking_out_against/o2c0c27/
+
+1 month Reddit account.
+
+https://old.reddit.com/r/ICE_Raids/comments/1qpp1my/got_no_idea_where_to_post_this_but_donald_trump/o2au7z0/
+
+That's the nation attraction crisis. We The People, the Reddit community, is incredibly attracted to the mocking and trash content. Shit-commenting audience prizing Twitter shit-postings, Reddit shit-posting, shitty Reality TV, shit leadership. People are not using Reddit information systems to remove Trump by asserting Dr. Bandy X Lee's nonfiction teachings, Jen Senko's nonfiction film about right-wing media cults and brainwashing. Audiences on Reddit commenting section have spent day after day, night after night, commenting about Trump family for over a decade.
+
+* Dr. Bandy X Lee, The Dangerous Case of Donald Trump: 27 Psychiatrists and Mental Health Experts Assess a President. Published October 3, 2017.Chapter: "Trauma, Time, Truth, and Trump: How a President Freezes Healing and Promotes Crisis" written by Betty P. Teng, M.F.A., L.M.S.W ... Quote ::: We are not machines; feeding our quest for knowledge and defining our existences online delivers a synthetic fulfillment that is fleeting and unsustainable. Seeking such satisfaction via the Internet is like trying to quench thirst by sipping water from a fire hose. By drinking from the Internet’s fire hose, we not only end up still thirsty, but we may get seriously hurt in the process. Because this onslaught of information disallows us from taking the time to truly consider any of it, we open ourselves to believing dangerous and unchecked falsehoods. Both Chun and Stanford University election law scholar Nathaniel Persily (2017) warn of the alarming political consequences of our collective inability to think or verify the truth of what is broadcast online. As Chun (2016) observes, “The Internet … has been formulated as the exact opposite of Barlow’s dream (of an unregulated space for a free marketplace of ideas): a nationalist machine that spreads rumors and lies.” :::
+
+https://old.reddit.com/r/ICE_Raids/comments/1qpp1my/got_no_idea_where_to_post_this_but_donald_trump/o2asdo3/
+
+Fiction outsells nonfiction. It isn't just one political party. Thrilling fiction storytelling engages the society that has abandoned nonfiction learning for adults. Nonfiction like Dr. Bandy X Lee's October 3, 2017 book should be quoted constantly on Reddit commenting section, instead it's shit-commenting to shit-postings. Low-effort junk information commenting is prized over serious assertions and thoughtful quotes from a book concerning Trump's mental health. People AVOID sharing links to educate and teach how dangerous the situaiton is: https://www.scientificamerican.com/article/the-shared-psychosis-of-donald-trump-and-his-loyalists/
+
+Trump leads with entertainment and constant audience stimulation for the Reddit commenting community. Dr. Bandy X Lee's leadership is to nonfiction comprehension and understandings of the bigger picture... which are consistently avoided by the Reddit population. Amusement and mockery that Trump provides is far more popular. Pop culture of Trumpism is toxic. Popularity itself is toxic. Trump leads all media platforms as the most popular engagement.
+
+https://old.reddit.com/r/ICE_Raids/comments/1qpp1my/got_no_idea_where_to_post_this_but_donald_trump/o2ar84y/
+
+<img width="1088" height="334" alt="image" src="https://github.com/user-attachments/assets/eb1fe300-8d55-4441-a6c6-4abb8b60e114" />
+
+"insane", "Who tf would’ve seen this coming 20 years ago?"
+
+Over 40 years ago. Reddit social media meme-think, amusement, LOL culture. Mocking and mockery. Neil Postman of NYU wrote a book about it in year 1985.
+
+* "Our politics are unhinged. **He saw it coming 40 years ago**.. Who got it right? 'It' being: everything. Our current mess. The low information, disinformation, gullibility and hysteria that are breaking out like measles during Election 2024." - https://www.NorthJersey.com/story/opinion/columnists/2024/03/27/us-politics-2024-predicted-media-expert-neil-postman/73022583007/
+
+https://old.reddit.com/r/ICE_Raids/comments/1qpp1my/got_no_idea_where_to_post_this_but_donald_trump/o2auhfe/
+
+Fiction outsells nonfiction. The attraction to fiction storytelling is why people will not rise up and use nonfiction from Dr. Bandy X Lee to remove and address the nation-wide mental health crisis. Media cults, Reddit inclusive.
+
+https://old.reddit.com/r/PoliticalHumor/comments/1qptx9c/i_got_my_check_did_you_guys_get_yours/o2by33c/
+
+It was on the front page of /r/All before it was removed. Reddit is a comedy-washing venue for the Trump family. Reddit audience white-washes everything about Trump family as a source of entertainment. People are unable to face up that Trump is an actor doing acting, a media star creating content, and Reddit is the audience. Reddit removed it, but the audience of Reddit can not see that for over a decade jokes and memes about Trump are not resisting. Mocking a Tony Clifton show is not resisting a Tony Clifton show. See: https://github.com/RocketDerp/April14_2025/blob/working/Art/Donald_J_Trump_plays_Tony_Clifton.md
+
+https://old.reddit.com/r/PoliticalHumor/comments/1qptx9c/i_got_my_check_did_you_guys_get_yours/o2bylf9/
+
+https://old.reddit.com/r/pics/comments/1qq26ck/dni_tulsi_gabbard_in_a_truck_loaded_with_boxes/o2dol7k/
+
+https://old.reddit.com/r/news/comments/1qpi2j1/more_no_kings_protests_planned_for_march_28_as/o29anrz/
+
+The idea of using social media commenting and postings for education and discussion of nonfiction book from Dr. Bandy X Lee to **all get on the same page** of mental health, cults, etc... is avoided.
+
+https://old.reddit.com/r/law/comments/1qq6zgs/executive_order_14321_is_terrifying/o2egdkt/
+
+I created a page based on this posting: https://github.com/RocketDerp/April14_2025/blob/main/Art/ScreenPlay/USA/Disturbed_Troubled/Homeless_People_Troubled.md
+
+https://old.reddit.com/r/law/comments/1qq6zgs/executive_order_14321_is_terrifying/o2ej9u5/
+
+9 month Reddit account. Popular comment, upvoted.
+
+https://old.reddit.com/r/law/comments/1qq6zgs/executive_order_14321_is_terrifying/o2erp6k/
+
+I think people in year 2024 did read Project 2025, but they have *forgotten it*. Information overload is a society-wide problem. So much commenting that did not exist 15 or 10 years ago. So much low-effort anti-Wiki anti-FAQ commenting on different pages at different times on entertainment venues like Bluesky and Reddit.
+
+https://old.reddit.com/r/law/comments/1qq6zgs/executive_order_14321_is_terrifying/o2f2ujb/
+
+Twitter-length Tweet-think low-effort Reddit comment message. Popular, upvoted. Casually dehumanizing voters as "snakes", who can't learn. Instead of using social media commenting to promote Jen Senko's year 2015 / 2016 film about Fox News HDTV media cult https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad , just sending the Reddit audience the message to not even try, don't do education because teaching maths is difficult and requires effort. Anti-teaching, anti-reform, anti-adult education, anti-Malala messaging. 
+
+https://old.reddit.com/r/law/comments/1qq6zgs/executive_order_14321_is_terrifying/o2efukf/
+
+Reddit mind-fuck of audience message. 10 month Reddit account. Trivializing with Twitter-length Tweet-think short message. Completely avoiding the cult behaviors and debasing of language and meaning, alternate realities of Fox News HDTV fandom. Just simple to fix!
+
+https://old.reddit.com/r/WelcomeToGilead/comments/1qq9bk5/executive_order_14321_is_a_pipeline_to_the/o2f574z/
+
+The previous links to /r/Law about Executive Order 14321 were removed by Reddit after it hit front page for a couple hours. This is a parallel posting, but the video is now absent.
+
+https://old.reddit.com/r/Leakednews/comments/1qq6zrj/he_is_just_being_straightforward_and_confirms/o2eeeon/
+
+3 month Reddit account, top-upvoted most popular. Twiter-length short messaging. Not linking anything about Reddit being infiltrated by Russia. Just calling it casual "boot-licking" without any off-Reddit assertions. Such as: https://www.cnbc.com/2018/04/11/reddit-bans-accounts-linked-to-russia-internet-research-agency.html
+
+https://old.reddit.com/r/Leakednews/comments/1qq6zrj/he_is_just_being_straightforward_and_confirms/o2efzhi/
+
+"Putin". Low-effort tiny-short message. No off-Reddit linking on how long this has been gong on with Reddit society. Such as: https://www.cnbc.com/2018/04/11/reddit-bans-accounts-linked-to-russia-internet-research-agency.html This serves to banalize the topic instead of calling people to organize and educate around serious leaders.
+
+https://old.reddit.com/r/Leakednews/comments/1qq6zrj/he_is_just_being_straightforward_and_confirms/o2egjk5/
+
+1 month Reddit account. Popular, upvoted. Playing "imagination" games. Instead of pointing out that the entire Muslim societies / Islamic nations live in anti-reality. That religion has been an alternate reality system. And that even people in USA who watch different TV new networks get different alternate versions of information. https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Ted_Koppel.md That subreddit vs. subreddit are different information bubbles.
+
+https://old.reddit.com/r/TwoXChromosomes/comments/1qqa0wn/first_encounter_with_ice/o2f3l20/
+
+MLK Jr's teachings about hate have been ignored. SEE_ALSO: https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Martin_Luther_King_Jr_quotes0.md
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qq6wxr/the_cult_cant_admit_that_dear_leader_did_wrong/o2ehzq2/
+
+Posting title on front page of Reddit: "the cult". Media cult of Reddit that finds this "interesting" content. Cults of media run the USA since March 2013. AVOIDED on REDDIT: Quoting and teaching and linking off-Reddit education about **cult deprogramming**. People have no desire to actually address the problem of Fox News HDTV media cult using Jen Senko's film. https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad
+
+Consumers of Reddit are the Trump audience. Commenting and remarking about the "cult", but no effort to use information systems (Reddit) to deprogram the cults. it is engagement and entertainment. It is a sickening culture that is making people more and more sick by being sports commentators about events instead of turning to nonfiction serious efforts to solve the problem, resist back against Rupert Murdoch's media cults and Elon Musk's Twitter media cults, Reddit cults, etc.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qq6wxr/the_cult_cant_admit_that_dear_leader_did_wrong/o2f8q88/
+
+Trumpism / Trump fandom has been dominating by social media. Since July 6, 2011 when Trump used Twitter. https://theOutline.com/post/2445/trump-s-first-real-tweet-was-on-july-6-2011 This type of Reddit comment avoids creating a FAQ, avoids a Wiki style "on the same page" learning. It's a cult of commenting over and over with fragmented information all over different pages of different posting. Instead of linking a nonfiction book on paper at the public library, commenting medium is prized above all else. https://www.theMediumisTheMassage.com/joyce-is-in-the-wake-making-his-own-altamira-cave-drawings-of-the-entire-history-of-the-human-mind-in-terms-of-its-basic-gestures-and-postures-during-all-the-phases-of-human-culture-an/ The MEDIUM is the message, the COMMENTING MEDIUM glues people to Trump / MAGA mindsets.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qq6wxr/the_cult_cant_admit_that_dear_leader_did_wrong/o2f5u4b/
+
+9 month Reddit account. Observe the Reddit user profile has a mocking pro-MAGA message: "bro, LOL". Mockery banal agent.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qq6wxr/the_cult_cant_admit_that_dear_leader_did_wrong/o2f2tzc/
+
+<img width="1125" height="1031" alt="image" src="https://github.com/user-attachments/assets/7647a26a-b555-4e46-9c69-fc9625346cac" />
+
+Even MORE DISTURBING is how Reddit community can't cite the Russian War Against Reality since March 2013! Reddit audience sees all month January 2026 the White House and Kremlin doing anti-NATO anti-EU auctions, and people on social media commenting sections can't connect to nonfiction learning.
+
+* From September 9, 2014 - 11 years 4 months and some days ago, which is **more than a decade** - we could have kept repeating it and defeated Putin's takeover of USA hearts and minds: https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ "Russia and the Menace of Unreality: How Vladimir Putin is revolutionizing information warfare. By Peter Pomerantsev. At the NATO summit in Wales last week, General Philip Breedlove, the military alliance’s top commander, made a bold declaration. Russia, he said, is waging “the **most amazing information warfare blitzkrieg we have ever seen in the history of information warfare.**” It was something of an underestimation. The new Russia doesn’t just deal in the petty disinformation, forgeries, lies, leaks, and cyber-sabotage usually associated with information warfare. It reinvents reality, creating mass hallucinations that then translate into political action." - we should NOW be [repeating it every 47 hours over and over](https://github.com/GreatSealUSA/Brainrot_Society_47), keep repeating, again and again!
+
+Social post { https://autistics.life/@RoundSparrow/115979391813563750 https://bsky.app/profile/roundsparrow.bsky.social/post/3mdlad3dems24 }
+
+https://old.reddit.com/r/GuysBeingDudes/comments/1qq79ne/i_love_this_guy/o2eht4e/
+
+https://old.reddit.com/r/GuysBeingDudes/comments/1qq79ne/i_love_this_guy/o2eh5t6/
+
+Donald Trump is the core center of every media system since June 16, 2015. The content king of stimulating media addictions. SEE_ALSO https://github.com/RocketDerp/April14_2025/blob/main/Grim_Blunt/Donald_Trump_SuperStar.md
+
+https://old.reddit.com/r/Leakednews/comments/1qqco0e/i_am_stunned_by_this_video_this_is_the_problem/o2fvxod/
+
+ICE fandom on Reddit, that early comments in the very first hour of ICE content... normalizing the situation. In no way addressing the thinking patterns, the cult behaviors of media addicts to Fox News media HDTV fiction. Just messaging that power is all that matters and to respect those in power for their ability to warp minds and get away with destroying the USA goodness. Programming the Reddit audience to do nothing. AVOIDED: Asserting, creating comments, quoting nonfiction book and articles from Dr. Bandy X Lee, teaching cult deprogramming. Such as: https://www.ScientificAmerican.com/article/the-shared-psychosis-of-donald-trump-and-his-loyalists/
+
+https://old.reddit.com/r/Leakednews/comments/1qqco0e/i_am_stunned_by_this_video_this_is_the_problem/o2fnmzv/
+
+"Wow", Reddit audience mind blown into meme stupor by Kremlin White House media techniques. "Crazy".
+
+Russia and the **Menace of Unreality**   
+How Vladimir Putin is revolutionizing information warfare   
+Peter Pomerantsev   
+September 9 2014, 3:42 PM ET   
+
+“If previous authoritarian regimes were three parts violence and one part propaganda,” argues Igor Yakovenko, a professor of journalism at the Moscow State Institute of International Relations, “this one is **virtually all propaganda and relatively little violence**. Putin only needs to make a few arrests—and then amplify the message through his total control of television.”
+
+Translated from 2013 Russia to USA 2025: I.C.E. raids are very little violence and a lot of showboating for Reddit video audiences (/r/LeakedNews gullibility of Reddit audience - it is a deliberate statement, not a "leak"). A lot of Reddit front-page I.C.E. raids for visual meme addicts / meme consumers. Simple-think logic polarity minds. Snark bout "reality" on the audience commenting mind, but no recognition that Kremlin and White House has the Reddit total control of media amplifiers. Reddit is amplifying media platform from all over the Internet. Eating the onions that Trump and Musk is dementia stupid dumb idiot mormon, Reddit society unable to engage and comprehend and understand off-Reddit nonfiction... September 9, 2014: https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/Leakednews/comments/1qqco0e/i_am_stunned_by_this_video_this_is_the_problem/o2fymdk/
+
+yes. Disturbing the peace. Manipulating the fandom. Organized gaslighitng of the Reddit audience and an entire city / nation. But people on Bluesky and Reddit social media keep commenting about it over and over, day after day, night after night, commenting and commenting instead of organizing a social media uprising to promote mental health call-outs from Dr. Bandy X Lee. SEE_ALSO https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Bandy_X_Lee/Bandy_X_Lee_Gaslighitng_Crazy.md

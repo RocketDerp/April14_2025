@@ -593,3 +593,33 @@ The Twitter screen shot made top of /r/All on Reddit. ANYTHING and EVERYTHING to
 Trivia of a fan spotting someone famous off a Twitter screen shot. Perpetual rounds of mocking and LOL at MAGA USA, Trump's entertainment for Reddit fandom (hate leaders, and hate-seeking followers who hate ICE, Putin and Trump baiting the whole audience with high-speed media systems). Reddit cultural life, sitting in an audience watching Trumpism. This is a simulation, this isn't resisting, it's commenting upon Trump's constantly stimulating leadership actions and players.
 
 * “When a population becomes **distracted by trivia, when cultural life is redefined as a perpetual round** of entertainments, when serious public conversation becomes a form of baby-talk, when, in short, a people become an audience, and their public business a vaudeville act, then a nation finds itself at risk; culture-death is a clear possibility.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qprema/erika_kirk_under_fire_as_husbands_pal_leaks_audio/o2banab/
+
+This topic has very little to do with the White House. Front page of Reddit /r/All - this is simulation of resistance. Instead of spending free time and spare time commenting on this posting, people should be taking the cult behavior n directly by promoting / asserting / quoting Dr. Bandy X. Lee.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qpnktj/candace_owens_released_leaked_audio_from_turning/o2adx7j/
+
+Same story, multiple times on /r/All front page. Shit-posting society, shit-commenting - following the shit leadership of a Trump social values.
+
+https://old.reddit.com/r/therewasanattempt/comments/1qpkk7x/to_be_perceived_as_a_grieving_widow/o29tnnm/
+
+Same story, lingering on front page /r/All all day. Media cults. Heaven is science fiction planet, like Eden is a science fiction planet.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qq86e8/full_leaked_tpusa_zoom_call_erika_kirk_speaks/o2en43r/
+
+Same story, next day. What exactly is Reddit resisting. "S piling the tea" on a woman?  Rumors? This isn't about REMOVING Donald Trump from office and taking on Putin's information warfare. This is entertainment like Reality TV "leaks" of a plot line.
+
+Reddit audience upvotes Charlie Kirk content over and over since his death. The attraction to the nonsense is keeping people from facing the mental health problems of MAGA and Donald Trump. Dr. Bandy X Lee being on the front page is far more important and urgent than Erika Kirk and Charlie Kirk. Reddit is the AUDIENCE to this garbage. Mocking it is not resisting it. This is a Celebration of Ignorance as defined by Carl Sagan in 1995. https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Carl_Sagan_Quotes.md
+
+https://old.reddit.com/r/Snorkblot/comments/1qq5n2x/knowledge_is_power_data_is_currency/o2e3dmp/
+
+The Reddit posting, the image / screenshot. This is not NEW. Billionaires have adopted what the Catholic Church did. 1. Church did not pay Taxes, it COLLECTED them as fees for Bible science fiction. Just like HBO Max, Disney+, Amazon, Apple TV+, Sports Teams owner billionaires, Taylor Swift video charges FEES to see science fiction stories. The Church. 2) Secrets to sell ads, that's what CONFESSION is - secret peer to peer intelligence gathering about "sin" so the Clergy can use that to sell and collect money on Sunday topic.
+
+What we have is a failure to study Marshall McLuhan, media ecology, the ecological behavior of media systems - social media users on January 2026 do not recognize that The Church in year 1750 was doing the SAME THING, "Old World Order". Mecca does the same thing in Saudi Arabia leadership, "Old World Order" that year 1776 is trying to address. The Founding Fathers Free Masons understood this, but today in year 2026 after 250 years, we have failed to keep up with this comprehension of how the Clergy uses science fiction storytelling to rule a population. Marshall McLuhan and Neil Postman's teachings are essential reformation in year 2026!
+
+https://old.reddit.com/r/wisconsin/comments/1qq8m7u/liberal_wisconsin_brewing_company_promises_free/o2eq40m/
+
+This entire Reddit front-page posting is simulation of resistance. Reddit audience is being programmed by this content to be passive and not have a social media uprising RIGHT NOW. AVOIDING: Promoting Jen Senko's nonfiction film about brainwashing. https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad Dr. Bandy X Lee's October 3, 2017 book about Trump / MAGA mental health issues. https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad
+
+Instead of using social media ACTIVELY to address the cult issues of Fox News HDTV media, cult issues of Trump hate-watching fandoms... wait around and be entertained until one person dies. That doesn't address the hundreds of millions of cult members to Charlie Kirk science fiction podcasts, Rupert Murdoch fiction media, Putin's information warfare cultists, etc.
