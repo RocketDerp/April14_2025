@@ -402,3 +402,6 @@ Social post { https://autistics.life/@RoundSparrow/115979391813563750 https://bs
 
 https://old.reddit.com/r/GuysBeingDudes/comments/1qq79ne/i_love_this_guy/o2eht4e/
 
+https://old.reddit.com/r/GuysBeingDudes/comments/1qq79ne/i_love_this_guy/o2eh5t6/
+
+Donald Trump is the core center of every media system since June 16, 2015. The content king of stimulating media addictions. SEE_ALSO https://github.com/RocketDerp/April14_2025/blob/main/Grim_Blunt/Donald_Trump_SuperStar.md
