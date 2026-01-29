@@ -601,3 +601,12 @@ Egoism has so many defenders.
 
 https://old.reddit.com/r/books/comments/1qq7hny/oklahoma_teacher_lost_teaching_license_after/o2ekckk/
 
+https://old.reddit.com/r/UnderReportedNews/comments/1qqhwqc/trump_theres_so_much_talk_about_how_were_going_to/o2gpvo4/
+
+On way to get free health care is support real estate and golf course owners like the Luigi M. family and Donald Trump family. If rent is increased from $1,600 a month to $7,200 a month and such - then perhaps health care can be part of the rent! You see so few people in USA grasp what is happening with "private land" and the rules of "private business" and how you can block people on "private Reddit media"... private "Fox News" can sell fiction entertainment news! The Second Bill of Rights from January 1944 should be something every person has cited in the face of MAGA and Putin's rise in power over USA. https://en.wikipedia.org/wiki/Second_Bill_of_Rights
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qqhwqc/trump_theres_so_much_talk_about_how_were_going_to/o2gr6mx/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qqhwqc/trump_theres_so_much_talk_about_how_were_going_to/o2gqpg4/
+
+Entertaining Reddit audiences with video and breaking news constantly. Fandom of Trump that prizes every Trump photo and image to mock away at. While nonfiction serious learning is abandoned in favor of Trump content,
