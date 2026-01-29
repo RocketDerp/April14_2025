@@ -518,3 +518,11 @@ https://old.reddit.com/r/worldnews/comments/1qqf9sx/bc_premier_says_alberta_sepa
 https://old.reddit.com/r/stevehofstetter/comments/1qqbhyr/the_new_alex_petti_video_doesnt_show_what_they/o2fdml0/
 
 4 month Reddit account. Top-upvoted comment on front-page /r/All posting.
+
+https://old.reddit.com/r/stevehofstetter/comments/1qqbhyr/the_new_alex_petti_video_doesnt_show_what_they/o2fce3j/
+
+https://old.reddit.com/r/stevehofstetter/comments/1qqbhyr/the_new_alex_petti_video_doesnt_show_what_they/o2g68i3/
+
+https://old.reddit.com/r/stevehofstetter/comments/1qqbhyr/the_new_alex_petti_video_doesnt_show_what_they/o2fcrv8/
+
+Video reality.
