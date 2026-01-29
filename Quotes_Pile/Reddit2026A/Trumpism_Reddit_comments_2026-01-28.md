@@ -474,3 +474,7 @@ https://old.reddit.com/r/politics/comments/1qqckm7/warner_why_is_tulsi_gabbard_a
 https://old.reddit.com/r/politics/comments/1qqckm7/warner_why_is_tulsi_gabbard_at_an_fbi_raid_on_an/o2fxgoi/
 
 "Can we skip to" - do nothing messages, just zoom ahead fast-forward on the media content. Message to Trump fandom on Reddit: No concern to organize a social media uprising and assert Dr. Bandy X Lee about the mental health national situation.
+
+https://old.reddit.com/r/politics/comments/1qqckm7/warner_why_is_tulsi_gabbard_at_an_fbi_raid_on_an/o2fw6qu/
+
+Describing the "Russian nesting doll" but no concern to organize or resist badness trajectory. Messages to make the Reddit audience to Trump passive and spectators to sports. "We The People" of social media are merely an audience, mental programming.
