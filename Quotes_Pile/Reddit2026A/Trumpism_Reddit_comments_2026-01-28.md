@@ -319,3 +319,7 @@ https://old.reddit.com/r/ICE_Raids/comments/1qpp1my/got_no_idea_where_to_post_th
 Over 40 years ago. Reddit social media meme-think, amusement, LOL culture. Mocking and mockery. Neil Postman of NYU wrote a book about it in year 1985.
 
 * "Our politics are unhinged. **He saw it coming 40 years ago**.. Who got it right? 'It' being: everything. Our current mess. The low information, disinformation, gullibility and hysteria that are breaking out like measles during Election 2024." - https://www.NorthJersey.com/story/opinion/columnists/2024/03/27/us-politics-2024-predicted-media-expert-neil-postman/73022583007/
+
+https://old.reddit.com/r/ICE_Raids/comments/1qpp1my/got_no_idea_where_to_post_this_but_donald_trump/o2auhfe/
+
+Fiction outsells nonfiction. The attraction to fiction storytelling is why people will not rise up and use nonfiction from Dr. Bandy X Lee to remove and address the nation-wide mental health crisis. Media cults, Reddit inclusive.
