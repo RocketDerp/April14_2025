@@ -583,4 +583,4 @@ Putin has mind-fucked the population into self-harming the USA and self-harm to 
 
 On the world stage, USA news sources like CBS, Reddit /r/news look incredibly gullible and easy to manipulate. The entire USA leadership in information sources and reliable information is wrecked. Surkov won.
 
-* Russia's agenda spelled out in year 2014. "Joke of NATO" - December 5, 2014 https://github.com/RocketDerp/April14_2025/blob/working/Art/ScreenPlay/USA/Joke_of_NATO.md
+* Russia's agenda spelled out in year 2014. "Joke of NATO" - December 5, 2014 https://github.com/RocketDerp/April14_2025/blob/main/Art/ScreenPlay/USA/Joke_of_NATO.md
