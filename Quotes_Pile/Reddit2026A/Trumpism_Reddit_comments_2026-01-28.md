@@ -515,3 +515,6 @@ https://old.reddit.com/r/worldnews/comments/1qqf9sx/bc_premier_says_alberta_sepa
 
 17 day Reddit account. Blaming Biden, and not blaming Reddit social for normalize Russia's information warfare and addiction to Trump content as humor, comedy. The comedy-washing white-washing that Reddit and other social media systems have done to Trump. "LOL cow milking" of MAGA / Trump / Putin / Ukraine war for amusement content on Reddit. https://old.Reddit.com/r/youtubedrama/comments/18eohai/what_is_a_lolcow/
 
+https://old.reddit.com/r/stevehofstetter/comments/1qqbhyr/the_new_alex_petti_video_doesnt_show_what_they/o2fdml0/
+
+4 month Reddit account. Top-upvoted comment on front-page /r/All posting.
