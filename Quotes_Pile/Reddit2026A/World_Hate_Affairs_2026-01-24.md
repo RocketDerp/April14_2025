@@ -302,3 +302,14 @@ Sickening society. Monster state as defined by Power of Myth book in year 1988. 
 
 * "what Putin will do next — that he’s unpredictable and thus dangerous. We’re rendered stunned, spun, and flummoxed by the Kremlin’s weaponization of absurdity and unreality.” - year 2014. September 9, 2014
 https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/worldnews/comments/1qqbpnj/trump_administration_secretly_met_with_canadian/o2fffo7/
+
+<img width="1039" height="887" alt="image" src="https://github.com/user-attachments/assets/0c615f92-f131-4307-b58e-640d61412f22" />
+
+"Putin"; Asking question of why. ANSWER: Because Americans are commenting on Reddit instead of using Reddit to assert Dr. Bandy X Lee. Instead of linking off-Reddit information about what Russia does, people are commenting over an over on Reddit as "engagement" to high speed messaging that generates money and power for the wealthy. We are drowning in shit-commenting on meme centers, Reddit meme land. It has been going on nonstop for a decade and is now self-evident to be abandonment of nonfiction learning. Surkov won since March 2013.
+
+* Nonfiction: "what Putin will do next — that he’s unpredictable and thus dangerous. We’re rendered stunned, spun, and flummoxed by the Kremlin’s weaponization of absurdity and unreality.” - year 2014. September 9, 2014
+https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+Social post { https://autistics.life/@RoundSparrow/115979442992892517 https://bsky.app/profile/roundsparrow.bsky.social/post/3mdlb2rdkuk2z }
