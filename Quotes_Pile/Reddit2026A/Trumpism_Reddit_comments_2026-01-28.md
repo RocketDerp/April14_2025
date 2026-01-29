@@ -450,3 +450,27 @@ Social post { https://autistics.life/@RoundSparrow/115979987002003633 https://bs
 https://old.reddit.com/r/politics/comments/1qqckm7/warner_why_is_tulsi_gabbard_at_an_fbi_raid_on_an/o2flnk3/
 
 4 month Reddit account. Extreme low-effort comment to normalize junk information. Non-specific. Popular: Upvoted.
+
+https://old.reddit.com/r/politics/comments/1qqckm7/warner_why_is_tulsi_gabbard_at_an_fbi_raid_on_an/o2fonss/
+
+"Russian asset", short-message.
+
+https://old.reddit.com/r/politics/comments/1qqckm7/warner_why_is_tulsi_gabbard_at_an_fbi_raid_on_an/o2fp0zw/
+
+"Russia", short-message.
+
+https://old.reddit.com/r/politics/comments/1qqckm7/warner_why_is_tulsi_gabbard_at_an_fbi_raid_on_an/o2fr67b/
+
+"Russian asset", "LMAO" laugh-track for Reddit audience / fandom of the Kremlin Reality content media.
+
+https://old.reddit.com/r/politics/comments/1qqckm7/warner_why_is_tulsi_gabbard_at_an_fbi_raid_on_an/o2fy7r8/
+
+"Russia"
+
+https://old.reddit.com/r/politics/comments/1qqckm7/warner_why_is_tulsi_gabbard_at_an_fbi_raid_on_an/o2fs0ol/
+
+1 year account. "Russian agent"
+
+https://old.reddit.com/r/politics/comments/1qqckm7/warner_why_is_tulsi_gabbard_at_an_fbi_raid_on_an/o2fxgoi/
+
+"Can we skip to" - do nothing messages, just zoom ahead fast-forward on the media content. Message to Trump fandom on Reddit: No concern to organize a social media uprising and assert Dr. Bandy X Lee about the mental health national situation.
