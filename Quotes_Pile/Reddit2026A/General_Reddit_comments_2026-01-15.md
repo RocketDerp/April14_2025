@@ -1626,3 +1626,5 @@ Tech society Reddit. People love what billionaires have been investing in. A 1.5
 https://old.reddit.com/r/whenthe/comments/1qq2u0t/sorry_lads_we_tried_our_best_check_pinned_comment/o2dk6i9/
 
 Reddit moderators banning end-users in mass.
+
+https://old.reddit.com/r/memes/comments/1qqif04/if_youre_an_adult_then_talk_like_one/o2gziw1/
