@@ -584,3 +584,13 @@ Putin has mind-fucked the population into self-harming the USA and self-harm to 
 On the world stage, USA news sources like CBS, Reddit /r/news look incredibly gullible and easy to manipulate. The entire USA leadership in information sources and reliable information is wrecked. Surkov won.
 
 * Russia's agenda spelled out in year 2014. "Joke of NATO" - December 5, 2014 https://github.com/RocketDerp/April14_2025/blob/main/Art/ScreenPlay/USA/Joke_of_NATO.md
+
+https://old.reddit.com/r/books/comments/1qq7hny/oklahoma_teacher_lost_teaching_license_after/o2ehwx6/
+
+https://old.reddit.com/r/books/comments/1qq7hny/oklahoma_teacher_lost_teaching_license_after/o2egnxs/
+
+Tech fandom of Reddit, technology worship. The block button is the burn magazine burn book ban book button. Very popular since introduced to social systems. Silence the Unicode messages of people that disagree. Peer to peer book burning. Machine tech mindsets.
+
+* “With the rise of Technopoly, one of those thought-worlds disappears. Technopoly eliminates alternatives to itself in precisely the way Aldous Huxley outlined in Brave New World. It does not make them illegal. It does not make them immoral. It does not even make them unpopular. It makes them invisible and therefore irrelevant. And it does so by redefining what we mean by religion, by art, by family, by politics, by history, by truth, by privacy, by intelligence, so that our definitions fit its new requirements. Technopoly, in other words, is totalitarian technocracy.” ― Neil Postman, Technopoly: The Surrender of Culture to Technology. Year 1992
+
+* “Technopoly is a state of culture. It is also a state of mind. It consists in the deification of technology, which means that the culture seeks its authorization in technology, finds its satisfactions in technology, and takes its orders from technology.” ― Neil Postman, Technopoly: The Surrender of Culture to Technology. Year 1992.
