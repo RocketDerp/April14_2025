@@ -627,3 +627,8 @@ Instead of using social media ACTIVELY to address the cult issues of Fox News HD
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1qqdhw4/the_grieving_widow_enjoying_the_best_thing_that/o2fyken/
 
 And again, Charlie Kirk content to front page of /r/All - fandom on Reddit can't resist Kirk. Yes, a "Truman Show" that Reddit audiences hang on every breaking news. This Reddit commenting section isn't resisting.
+
+https://old.reddit.com/r/clevercomebacks/comments/1qqbh9x/widow_of_the_year/o2ff46m/
+
+And ANOTHER time Charlie Kirk / Erica Kirk fandom on Reddit puts it on front page /r/All - the fandom can never get enough of Kirk content. Fiction attraction, attractive nuisance like Trump family. https://en.wikipedia.org/wiki/Attractive_nuisance_doctrine
+
