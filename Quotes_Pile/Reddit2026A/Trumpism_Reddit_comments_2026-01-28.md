@@ -409,3 +409,16 @@ Donald Trump is the core center of every media system since June 16, 2015. The c
 https://old.reddit.com/r/Leakednews/comments/1qqco0e/i_am_stunned_by_this_video_this_is_the_problem/o2fvxod/
 
 ICE fandom on Reddit, that early comments in the very first hour of ICE content... normalizing the situation. In no way addressing the thinking patterns, the cult behaviors of media addicts to Fox News media HDTV fiction. Just messaging that power is all that matters and to respect those in power for their ability to warp minds and get away with destroying the USA goodness. Programming the Reddit audience to do nothing. AVOIDED: Asserting, creating comments, quoting nonfiction book and articles from Dr. Bandy X Lee, teaching cult deprogramming. Such as: https://www.ScientificAmerican.com/article/the-shared-psychosis-of-donald-trump-and-his-loyalists/
+
+https://old.reddit.com/r/Leakednews/comments/1qqco0e/i_am_stunned_by_this_video_this_is_the_problem/o2fnmzv/
+
+"Wow", Reddit audience mind blown into meme stupor by Kremlin White House media techniques. "Crazy".
+
+Russia and the **Menace of Unreality**   
+How Vladimir Putin is revolutionizing information warfare   
+Peter Pomerantsev   
+September 9 2014, 3:42 PM ET   
+
+“If previous authoritarian regimes were three parts violence and one part propaganda,” argues Igor Yakovenko, a professor of journalism at the Moscow State Institute of International Relations, “this one is **virtually all propaganda and relatively little violence**. Putin only needs to make a few arrests—and then amplify the message through his total control of television.”
+
+Translated from 2013 Russia to USA 2025: I.C.E. raids are very little violence and a lot of showboating for Reddit video audiences (/r/LeakedNews gullibility of Reddit audience - it is a deliberate statement, not a "leak"). A lot of Reddit front-page I.C.E. raids for visual meme addicts / meme consumers. Simple-think logic polarity minds. Snark bout "reality" on the audience commenting mind, but no recognition that Kremlin and White House has the Reddit total control of media amplifiers. Reddit is amplifying media platform from all over the Internet. Eating the onions that Trump and Musk is dementia stupid dumb idiot mormon, Reddit society unable to engage and comprehend and understand off-Reddit nonfiction... September 9, 2014: https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
