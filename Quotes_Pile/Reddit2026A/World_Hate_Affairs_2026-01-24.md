@@ -277,3 +277,9 @@ https://old.reddit.com/r/greenland/comments/1qplv0h/americans_tried_to_hoist_the
 https://old.reddit.com/r/TikTok/comments/1qpp95p/tiktok_bans_emmy_award_winning_journalist/o2aqekp/
 
 Right vs left brain-rot. Fiction vs. nonfiction is the far deeper issue. Trump is leading the world with fiction storytelling. Fox News HDTV fiction storytelling. 
+
+https://old.reddit.com/r/europe/comments/1qpcs1w/slovak_pm_fico_spoke_of_shock_at_trumps_state_of/o28lt63/
+
+https://old.reddit.com/r/europe/comments/1qpcs1w/slovak_pm_fico_spoke_of_shock_at_trumps_state_of/o27y5uo/
+
+11 month Reddit account. Fixated on the USA mental state of one single person, ignoring the MAGA cult and how everyone on Reddit could easily quote and link off-Reddit to Dr. Bandy X Lee's book from October 3, 2017 about Trump's mental health being dangerous.
