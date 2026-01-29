@@ -2434,3 +2434,7 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1qgk5zk/pluribus_psychedelics_
 https://old.reddit.com/r/PeterExplainsTheJoke/comments/1qqaaks/uhm_what_did_skyler_do_peter/o2f4gzx/
 
 Front page of Reddit. Breaking Bad fandom towards women... topic.
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1qqaaks/uhm_what_did_skyler_do_peter/o2f6k5q/
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1qqaaks/uhm_what_did_skyler_do_peter/o2f72xt/
