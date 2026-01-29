@@ -430,3 +430,14 @@ yes. Disturbing the peace. Manipulating the fandom. Organized gaslighitng of the
 https://old.reddit.com/r/Leakednews/comments/1qqco0e/i_am_stunned_by_this_video_this_is_the_problem/o2fo9zo/
 
 9 month Reddit account. Active messaging to normalize this as predictable and to expect more. Short-length Tweet-think Twitter-thinking mind pattern to mind-fuck the Reddit audience into continued anti-goodness mindsets.
+
+https://old.reddit.com/r/politics/comments/1qqckm7/warner_why_is_tulsi_gabbard_at_an_fbi_raid_on_an/o2fvejw/
+
+https://old.reddit.com/r/politics/comments/1qqckm7/warner_why_is_tulsi_gabbard_at_an_fbi_raid_on_an/o2fklbg/
+
+media
+
+https://old.reddit.com/r/politics/comments/1qqckm7/warner_why_is_tulsi_gabbard_at_an_fbi_raid_on_an/o2fkq2g/
+
+Russian
+
