@@ -593,3 +593,12 @@ The Twitter screen shot made top of /r/All on Reddit. ANYTHING and EVERYTHING to
 Trivia of a fan spotting someone famous off a Twitter screen shot. Perpetual rounds of mocking and LOL at MAGA USA, Trump's entertainment for Reddit fandom (hate leaders, and hate-seeking followers who hate ICE, Putin and Trump baiting the whole audience with high-speed media systems). Reddit cultural life, sitting in an audience watching Trumpism. This is a simulation, this isn't resisting, it's commenting upon Trump's constantly stimulating leadership actions and players.
 
 * “When a population becomes **distracted by trivia, when cultural life is redefined as a perpetual round** of entertainments, when serious public conversation becomes a form of baby-talk, when, in short, a people become an audience, and their public business a vaudeville act, then a nation finds itself at risk; culture-death is a clear possibility.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qprema/erika_kirk_under_fire_as_husbands_pal_leaks_audio/o2banab/
+
+This topic has very little to do with the White House. Front page of Reddit /r/All - this is simulation of resistance. Instead of spending free time and spare time commenting on this posting, people should be taking the cult behavior n directly by promoting / asserting / quoting Dr. Bandy X. Lee.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qpnktj/candace_owens_released_leaked_audio_from_turning/o2adx7j/
+
+Same story, multiple times on /r/All front page. Shit-posting society, shit-commenting - following the shit leadership of a Trump social values.
+
