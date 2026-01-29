@@ -313,3 +313,7 @@ https://old.reddit.com/r/worldnews/comments/1qqbpnj/trump_administration_secretl
 https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
 
 Social post { https://autistics.life/@RoundSparrow/115979442992892517 https://bsky.app/profile/roundsparrow.bsky.social/post/3mdlb2rdkuk2z }
+
+https://old.reddit.com/r/politics/comments/1qq9ixi/trump_teams_secret_meetings_with_group_plotting/o2ez3sx/
+
+A real conspiracy. Not the thought-ending phrase "conspiracy theory" that billionaires put into minds (Elon Musk "mind virus" manipulation  https://www.lemonde.fr/en/international/article/2024/08/13/elon-musk-s-ambition-repopulating-the-planet-and-destroying-the-woke-virus_6714239_4.html ). Fact-based evidence-based description of a conspiracy to take over Greenland and Canada as 51st and 52nd state.
