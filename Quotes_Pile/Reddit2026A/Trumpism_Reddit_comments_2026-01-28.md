@@ -441,3 +441,8 @@ https://old.reddit.com/r/politics/comments/1qqckm7/warner_why_is_tulsi_gabbard_a
 
 Russian
 
+https://old.reddit.com/r/politics/comments/1qqckm7/warner_why_is_tulsi_gabbard_at_an_fbi_raid_on_an/o2fm8eq/
+
+<img width="1218" height="411" alt="image" src="https://github.com/user-attachments/assets/ecb8d2f9-e82d-4ae4-910e-31b768244623" />
+
+Social post { https://autistics.life/@RoundSparrow/115979987002003633 https://bsky.app/profile/roundsparrow.bsky.social/post/3mdlirhjr6222 }
