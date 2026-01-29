@@ -240,3 +240,7 @@ https://old.reddit.com/r/science/comments/1qkwfix/colon_cancer_is_killing_more_y
 
 Tuesday January 27, 2026   
 https://old.reddit.com/r/science/comments/1qoayb9/nearly_half_of_cdc_databases_arent_being_updated/
+
+&nbsp;
+
+https://old.reddit.com/r/science/comments/1qqi09c/study_marijuana_access_associated_with_striking/
