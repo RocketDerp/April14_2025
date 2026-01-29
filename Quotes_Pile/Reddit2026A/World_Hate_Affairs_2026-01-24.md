@@ -317,3 +317,10 @@ Social post { https://autistics.life/@RoundSparrow/115979442992892517 https://bs
 https://old.reddit.com/r/politics/comments/1qq9ixi/trump_teams_secret_meetings_with_group_plotting/o2ez3sx/
 
 A real conspiracy. Not the thought-ending phrase "conspiracy theory" that billionaires put into minds (Elon Musk "mind virus" manipulation  https://www.lemonde.fr/en/international/article/2024/08/13/elon-musk-s-ambition-repopulating-the-planet-and-destroying-the-woke-virus_6714239_4.html ). Fact-based evidence-based description of a conspiracy to take over Greenland and Canada as 51st and 52nd state.
+
+https://old.reddit.com/r/politics/comments/1qq9ixi/trump_teams_secret_meetings_with_group_plotting/o2ew7fl/
+
+1 month Reddit account. "Russia", "Russian", "destabilize" - no off-Reddit link. No author name. No book title, No mention of social media and brainwashing / information warfare / psyops /  emotional manipulation of population. No mention of timeframe and when it started (March 2013). No quotes from nonfiction.
+
+* "what Putin will do next — that he’s unpredictable and thus dangerous. We’re rendered stunned, spun, and flummoxed by the Kremlin’s weaponization of absurdity and unreality.” - year 2014. September 9, 2014
+https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
