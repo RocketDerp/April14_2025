@@ -641,3 +641,10 @@ https://old.reddit.com/r/RealOrAI/comments/1qqb9f3/help_nyt_shows_new_angle/o2gs
 
 https://old.reddit.com/r/RealOrAI/comments/1qqb9f3/help_nyt_shows_new_angle/o2ff24x/
 
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1qqigdd/joe_calls_out_the_hip_hop_community_for_their/o2h145q/
+
+Social media isn't standing up to call out the mental health crisis. Dr. Bandy X Lee's leadership is largely ignored.
+
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1qqigdd/joe_calls_out_the_hip_hop_community_for_their/o2hem1x/
+
+"You read that right: HE KEEPS A PICTURE OF 'PAC AND PUTIN ON HIS DESK" https://theworld.org/stories/2016/07/30/putin-aide-vladislav-surkov-too-busy-bumping-tupac-care-about-us-sanctions-against-russia
