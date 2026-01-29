@@ -580,3 +580,7 @@ Reddit mind training camp: Truth doesn't matter. Billionaires can use their powe
 https://old.reddit.com/r/LeopardsAteMyFace/comments/1qqjigi/after_destroying_cbs_newss_legendary_reputation/o2h1ztp/
 
 Putin has mind-fucked the population into self-harming the USA and self-harm to NATO. Attacking Canada and Greenland for no good reason. But people are unable to engage serious nonfiction learning in favor of low-effort high-speed "rush speed" commenting on incredibly fast information systems. Surkov won since March of year 2013. Ukraine was the front line February 20, 2014 for a world wide web information war.
+
+On the world stage, USA news sources like CBS, Reddit /r/news look incredibly gullible and easy to manipulate. The entire USA leadership in information sources and reliable information is wrecked. Surkov won.
+
+* Russia's agenda spelled out in year 2014. "Joke of NATO" - December 5, 2014 https://github.com/RocketDerp/April14_2025/edit/main/Art/ScreenPlay/USA/Joke_of_NATO.md
