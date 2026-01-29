@@ -490,3 +490,13 @@ https://old.reddit.com/r/politics/comments/1qqckm7/warner_why_is_tulsi_gabbard_a
 https://old.reddit.com/r/politics/comments/1qqckm7/warner_why_is_tulsi_gabbard_at_an_fbi_raid_on_an/o2fsujb/
 
 "hard to understand", downplaying the junk information all over Reddit that makes comprehension and understanding of the most sophisticated information warfare very difficult.
+
+https://old.reddit.com/r/politics/comments/1qqckm7/warner_why_is_tulsi_gabbard_at_an_fbi_raid_on_an/o2g1gb9/
+
+10 month Reddit account. "Russian stooge"
+
+https://old.reddit.com/r/politics/comments/1qqckm7/warner_why_is_tulsi_gabbard_at_an_fbi_raid_on_an/o2gc9qq/
+
+"Really don't understand" why wild and unusual choices get made. On Reddit, the media platform that posts anything unusual or odd on any topic across the entire Internet. People stimulated on Reddit when an unusual animal pet trick is done, when a kitten or cat has a unique color, when any sports player does anything unusual or unexpected, flocking to unusual content. Reddit user unable to grasp Surkov information warfare exploits this very behavior, making Reddit ground zero for distributing Maximum Putinization mindsetting content from Surkov students throughout the society. President Tony Clifton antics and acting gets Trumpism constant mind-blowing (to Reddit audience) content media coverage.
+
+* "what Putin will do next — that he’s unpredictable and thus dangerous. We’re rendered stunned, spun, and flummoxed by the Kremlin’s weaponization of absurdity and unreality.” - **year 2014**. September 9, 2014 https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
