@@ -682,3 +682,21 @@ https://old.reddit.com/r/UnderReportedNews/comments/1qqip6j/trump_hangs_putin_po
 https://old.reddit.com/r/UnderReportedNews/comments/1qqip6j/trump_hangs_putin_portrait_in_white_house_palm/o2h5w9t/
 
 11 month Reddit account. "LMAO" at the Trump antics. Laugh track for Reddit audience.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qqip6j/trump_hangs_putin_portrait_in_white_house_palm/o2hfmds/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qqip6j/trump_hangs_putin_portrait_in_white_house_palm/o2hhyym/
+
+7 month Reddit account. Celebrating the USA takeover.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qqip6j/trump_hangs_putin_portrait_in_white_house_palm/o2hgg89/
+
+6 month Reddit account.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qqip6j/trump_hangs_putin_portrait_in_white_house_palm/o2hjvxe/
+
+Surkov won since March 2013. People are only awake to LOL LOL LOL at Trump and Putin antics all day.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qqip6j/trump_hangs_putin_portrait_in_white_house_palm/o2hh42v/
+
+"insane"
