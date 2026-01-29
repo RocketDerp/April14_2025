@@ -405,3 +405,7 @@ https://old.reddit.com/r/GuysBeingDudes/comments/1qq79ne/i_love_this_guy/o2eht4e
 https://old.reddit.com/r/GuysBeingDudes/comments/1qq79ne/i_love_this_guy/o2eh5t6/
 
 Donald Trump is the core center of every media system since June 16, 2015. The content king of stimulating media addictions. SEE_ALSO https://github.com/RocketDerp/April14_2025/blob/main/Grim_Blunt/Donald_Trump_SuperStar.md
+
+https://old.reddit.com/r/Leakednews/comments/1qqco0e/i_am_stunned_by_this_video_this_is_the_problem/o2fvxod/
+
+ICE fandom on Reddit, that early comments in the very first hour of ICE content... normalizing the situation. In no way addressing the thinking patterns, the cult behaviors of media addicts to Fox News media HDTV fiction. Just messaging that power is all that matters and to respect those in power for their ability to warp minds and get away with destroying the USA goodness. Programming the Reddit audience to do nothing. AVOIDED: Asserting, creating comments, quoting nonfiction book and articles from Dr. Bandy X Lee, teaching cult deprogramming. Such as: https://www.ScientificAmerican.com/article/the-shared-psychosis-of-donald-trump-and-his-loyalists/
