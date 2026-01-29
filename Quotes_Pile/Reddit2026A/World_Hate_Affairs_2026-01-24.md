@@ -273,3 +273,7 @@ https://old.reddit.com/r/Leakednews/comments/1qpohq9/americans_tried_to_hoist_th
 https://old.reddit.com/r/greenland/comments/1qplv0h/americans_tried_to_hoist_the_american_flag_today/o2a293j/
 
 https://old.reddit.com/r/greenland/comments/1qplv0h/americans_tried_to_hoist_the_american_flag_today/o2a2kua/
+
+https://old.reddit.com/r/TikTok/comments/1qpp95p/tiktok_bans_emmy_award_winning_journalist/o2aqekp/
+
+Right vs left brain-rot. Fiction vs. nonfiction is the far deeper issue. Trump is leading the world with fiction storytelling. Fox News HDTV fiction storytelling. 
