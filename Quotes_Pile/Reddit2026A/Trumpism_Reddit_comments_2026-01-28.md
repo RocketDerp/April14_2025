@@ -500,3 +500,18 @@ https://old.reddit.com/r/politics/comments/1qqckm7/warner_why_is_tulsi_gabbard_a
 "Really don't understand" why wild and unusual choices get made. On Reddit, the media platform that posts anything unusual or odd on any topic across the entire Internet. People stimulated on Reddit when an unusual animal pet trick is done, when a kitten or cat has a unique color, when any sports player does anything unusual or unexpected, flocking to unusual content. Reddit user unable to grasp Surkov information warfare exploits this very behavior, making Reddit ground zero for distributing Maximum Putinization mindsetting content from Surkov students throughout the society. President Tony Clifton antics and acting gets Trumpism constant mind-blowing (to Reddit audience) content media coverage.
 
 * "what Putin will do next — that he’s unpredictable and thus dangerous. We’re rendered stunned, spun, and flummoxed by the Kremlin’s weaponization of absurdity and unreality.” - **year 2014**. September 9, 2014 https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/worldnews/comments/1qqf9sx/bc_premier_says_alberta_separatists_seeking/o2g6zqu/
+
+5 month Reddit account. Top-voted front page /r/All comment. Tweet-think Twitter-length. AVOIDING: topic of Putin and Trump going against all NATO.
+
+https://old.reddit.com/r/worldnews/comments/1qqf9sx/bc_premier_says_alberta_separatists_seeking/o2g6030/
+
+https://old.reddit.com/r/worldnews/comments/1qqf9sx/bc_premier_says_alberta_separatists_seeking/o2g79gb/
+
+"insane"
+
+https://old.reddit.com/r/worldnews/comments/1qqf9sx/bc_premier_says_alberta_separatists_seeking/o2gew8t/
+
+17 day Reddit account. Blaming Biden, and not blaming Reddit social for normalize Russia's information warfare and addiction to Trump content as humor, comedy. The comedy-washing white-washing that Reddit and other social media systems have done to Trump. "LOL cow milking" of MAGA / Trump / Putin / Ukraine war for amusement content on Reddit. https://old.Reddit.com/r/youtubedrama/comments/18eohai/what_is_a_lolcow/
+
