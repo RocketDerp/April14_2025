@@ -605,3 +605,10 @@ Same story, multiple times on /r/All front page. Shit-posting society, shit-comm
 https://old.reddit.com/r/therewasanattempt/comments/1qpkk7x/to_be_perceived_as_a_grieving_widow/o29tnnm/
 
 Same story, lingering on front page /r/All all day. Media cults. Heaven is science fiction planet, like Eden is a science fiction planet.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qq86e8/full_leaked_tpusa_zoom_call_erika_kirk_speaks/o2en43r/
+
+Same story, next day. What exactly is Reddit resisting. "S piling the tea" on a woman?  Rumors? This isn't about REMOVING Donald Trump from office and taking on Putin's information warfare. This is entertainment like Reality TV "leaks" of a plot line.
+
+Reddit audience upvotes Charlie Kirk content over and over since his death. The attraction to the nonsense is keeping people from facing the mental health problems of MAGA and Donald Trump. Dr. Bandy X Lee being on the front page is far more important and urgent than Erika Kirk and Charlie Kirk. Reddit is the AUDIENCE to this garbage. Mocking it is not resisting it. This is a Celebration of Ignorance as defined by Carl Sagan in 1995. https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Carl_Sagan_Quotes.md
+
