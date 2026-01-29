@@ -348,3 +348,7 @@ https://old.reddit.com/r/law/comments/1qq6zgs/executive_order_14321_is_terrifyin
 
 I think people in year 2024 did read Project 2025, but they have *forgotten it*. Information overload is a society-wide problem. So much commenting that did not exist 15 or 10 years ago. So much low-effort anti-Wiki anti-FAQ commenting on different pages at different times on entertainment venues like Bluesky and Reddit.
 
+https://old.reddit.com/r/law/comments/1qq6zgs/executive_order_14321_is_terrifying/o2f2ujb/
+
+Twitter-length Tweet-think low-effort Reddit comment message. Popular, upvoted. Casually dehumanizing voters as "snakes", who can't learn. Instead of using social media commenting to promote Jen Senko's year 2015 / 2016 film about Fox News HDTV media cult https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad , just sending the Reddit audience the message to not even try, don't do education because teaching maths is difficult and requires effort. Anti-teaching, anti-reform, anti-adult education, anti-Malala messaging. 
+
