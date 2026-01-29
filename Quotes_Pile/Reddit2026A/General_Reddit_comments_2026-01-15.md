@@ -1604,3 +1604,11 @@ https://old.reddit.com/r/sanfrancisco/comments/1qnwq9p/oracle_owned_tiktok_is_pr
 https://old.reddit.com/r/rareinsults/comments/1qopfss/he_dug_his_own_grave/o23v53j/
 
 Given the song reference, Steely Dan ... intentional?
+
+https://old.reddit.com/r/wallstreetbets/comments/1qpqrk4/elon_musk_says_tesla_ending_models_s_and_x/o2b39ox/
+
+https://old.reddit.com/r/wallstreetbets/comments/1qpqrk4/elon_musk_says_tesla_ending_models_s_and_x/o2b249m/
+
+Low-thought low-effort Elon Musk programmed Twitter-think Twitter-length reaction commenting. Denial of reality and USA MAGA situaiton in favor of meme-think Tweet-thinking.
+
+* “Science is more than a body of knowledge; it is a way of thinking." ... "The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the **30-second** sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but especially a kind of [celebration of ignorance](https://www.youtube.com/watch?v=wcY-x1VuWtE).” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995, page 59
