@@ -375,3 +375,9 @@ https://old.reddit.com/r/Leakednews/comments/1qq6zrj/he_is_just_being_straightfo
 https://old.reddit.com/r/TwoXChromosomes/comments/1qqa0wn/first_encounter_with_ice/o2f3l20/
 
 MLK Jr's teachings about hate have been ignored. SEE_ALSO: https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Martin_Luther_King_Jr_quotes0.md
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qq6wxr/the_cult_cant_admit_that_dear_leader_did_wrong/o2ehzq2/
+
+Posting title on front page of Reddit: "the cult". Media cult of Reddit that finds this "interesting" content. Cults of media run the USA since March 2013. AVOIDED on REDDIT: Quoting and teaching and linking off-Reddit education about **cult deprogramming**. People have no desire to actually address the problem of Fox News HDTV media cult using Jen Senko's film. https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad
+
+Consumers of Reddit are the Trump audience. Commenting and remarking about the "cult", but no effort to use information systems (Reddit) to deprogram the cults. it is engagement and entertainment. It is a sickening culture that is making people more and more sick by being sports commentators about events instead of turning to nonfiction serious efforts to solve the problem, resist back against Rupert Murdoch's media cults and Elon Musk's Twitter media cults, Reddit cults, etc.
