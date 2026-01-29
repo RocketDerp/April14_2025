@@ -446,3 +446,7 @@ https://old.reddit.com/r/politics/comments/1qqckm7/warner_why_is_tulsi_gabbard_a
 <img width="1218" height="411" alt="image" src="https://github.com/user-attachments/assets/ecb8d2f9-e82d-4ae4-910e-31b768244623" />
 
 Social post { https://autistics.life/@RoundSparrow/115979987002003633 https://bsky.app/profile/roundsparrow.bsky.social/post/3mdlirhjr6222 }
+
+https://old.reddit.com/r/politics/comments/1qqckm7/warner_why_is_tulsi_gabbard_at_an_fbi_raid_on_an/o2flnk3/
+
+4 month Reddit account. Extreme low-effort comment to normalize junk information. Non-specific. Popular: Upvoted.
