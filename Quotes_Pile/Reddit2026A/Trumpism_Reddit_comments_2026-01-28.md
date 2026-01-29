@@ -355,3 +355,7 @@ Twitter-length Tweet-think low-effort Reddit comment message. Popular, upvoted. 
 https://old.reddit.com/r/law/comments/1qq6zgs/executive_order_14321_is_terrifying/o2efukf/
 
 Reddit mind-fuck of audience message. 10 month Reddit account. Trivializing with Twitter-length Tweet-think short message. Completely avoiding the cult behaviors and debasing of language and meaning, alternate realities of Fox News HDTV fandom. Just simple to fix!
+
+https://old.reddit.com/r/WelcomeToGilead/comments/1qq9bk5/executive_order_14321_is_a_pipeline_to_the/o2f574z/
+
+The previous links to /r/Law about Executive Order 14321 were removed by Reddit after it hit front page for a couple hours. This is a parallel posting, but the video is now absent.
