@@ -259,3 +259,7 @@ https://old.reddit.com/r/BlackPeopleofReddit/comments/1qpk72i/dont_even_wanna_po
 https://old.reddit.com/r/BlackPeopleofReddit/comments/1qpk72i/dont_even_wanna_post_this_but_for_those_who_dont/o29oyg8/
 
 We need to rescue MAGA from Russia's mental manipulation. The entire society, everyone, anti-MAGA included - is in media feedback loops. American vs. American, mock for mock, hate for hate, all ignoring what Putin has done with media systems psychology. Surkov won since March 2013.
+
+https://old.reddit.com/r/MurderedByWords/comments/1qpohll/ice_posts_a_feel_good_story_the_internet_responds/o2aplff/
+
+If people would stop using their free time and spare time on Reddit to comment and mock-back at every mockery event ICE / MAGA / Trump White House and Kremlin do, and instead face the media cult of mocking. Dr. Bandy X Lee's nonfiction book from October 3, 2017 should be quoted constantly on every media platform until people are educated and understanding.. on the same pages... of removing Trump. Instead, a hate-watching fandom on Reddit had ICE on the front page constantly.
