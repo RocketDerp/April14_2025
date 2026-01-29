@@ -537,4 +537,9 @@ https://old.reddit.com/r/stevehofstetter/comments/1qqbhyr/the_new_alex_petti_vid
 
 https://old.reddit.com/r/stevehofstetter/comments/1qqbhyr/the_new_alex_petti_video_doesnt_show_what_they/o2feps2/
 
-Reality of the video in question. Surkovian dystopia. 
+Reality of the video in question. Surkovian dystopia.
+
+
+https://old.reddit.com/r/MurderedByWords/comments/1qqa243/oh_the_horror_the_violence/o2f276n/
+
+Left-right brain rot. Founding Fathers did not in year 1776 lay this thinking foundation. The posting itself emphases "LMAO", "FAFO" mindsets (mob mentality) - which are meme-think amusement humor mindsets. The entire nation needs to face up to the media ecology learning of Neil Postman's 1985 book. Just last year: September 10, 2025: https://Time.com/7313999/neil-postman-trump-prediction/
