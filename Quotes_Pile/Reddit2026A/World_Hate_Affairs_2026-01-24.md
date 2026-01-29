@@ -324,3 +324,7 @@ https://old.reddit.com/r/politics/comments/1qq9ixi/trump_teams_secret_meetings_w
 
 * "what Putin will do next — that he’s unpredictable and thus dangerous. We’re rendered stunned, spun, and flummoxed by the Kremlin’s weaponization of absurdity and unreality.” - year 2014. September 9, 2014
 https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/politics/comments/1qq9ixi/trump_teams_secret_meetings_with_group_plotting/o2ez87x/
+
+"Crazy"
