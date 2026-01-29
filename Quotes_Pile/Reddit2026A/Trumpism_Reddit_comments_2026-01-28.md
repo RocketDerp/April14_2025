@@ -655,3 +655,30 @@ https://old.reddit.com/r/UnderReportedNews/comments/1qqip6j/trump_hangs_putin_po
 
 Surkov won. Gloating was back in February 12, 2019: https://www.newsweek.com/russia-president-vladimir-putin-election-americans-1327793
 
+https://old.reddit.com/r/UnderReportedNews/comments/1qqip6j/trump_hangs_putin_portrait_in_white_house_palm/o2haazx/
+
+Left-right brain rot. **Fiction vs. nonfiction** is the crisis. Founding Fathers did not teach left vs. right in year 1776 thinking foundation. The entire nation needs to face up to the media ecology learning of Neil Postman's 1985 book. Just last year: September 10, 2025: https://Time.com/7313999/neil-postman-trump-prediction/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qqip6j/trump_hangs_putin_portrait_in_white_house_palm/o2h4bl2/
+
+7 month Reddit account "real"
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qqip6j/trump_hangs_putin_portrait_in_white_house_palm/o2h5ipq/
+
+3 month Reddit account.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qqip6j/trump_hangs_putin_portrait_in_white_house_palm/o2hg0h5/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qqip6j/trump_hangs_putin_portrait_in_white_house_palm/o2h4om2/
+
+7 month Reddit account.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qqip6j/trump_hangs_putin_portrait_in_white_house_palm/o2h2f4c/
+
+11 month Reddit account.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qqip6j/trump_hangs_putin_portrait_in_white_house_palm/o2hb63t/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qqip6j/trump_hangs_putin_portrait_in_white_house_palm/o2h5w9t/
+
+11 month Reddit account. "LMAO" at the Trump antics. Laugh track for Reddit audience.
