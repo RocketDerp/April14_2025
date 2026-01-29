@@ -478,3 +478,15 @@ https://old.reddit.com/r/politics/comments/1qqckm7/warner_why_is_tulsi_gabbard_a
 https://old.reddit.com/r/politics/comments/1qqckm7/warner_why_is_tulsi_gabbard_at_an_fbi_raid_on_an/o2fw6qu/
 
 Describing the "Russian nesting doll" but no concern to organize or resist badness trajectory. Messages to make the Reddit audience to Trump passive and spectators to sports. "We The People" of social media are merely an audience, mental programming.
+
+https://old.reddit.com/r/politics/comments/1qqckm7/warner_why_is_tulsi_gabbard_at_an_fbi_raid_on_an/o2gb9xs/
+
+"Russia"
+
+https://old.reddit.com/r/politics/comments/1qqckm7/warner_why_is_tulsi_gabbard_at_an_fbi_raid_on_an/o2fv2st/
+
+14 day Reddit account. "RUSSIAN ASSET". Link to off-Reddit. Message... no concern to organize or resist badness trajectory.
+
+https://old.reddit.com/r/politics/comments/1qqckm7/warner_why_is_tulsi_gabbard_at_an_fbi_raid_on_an/o2fsujb/
+
+"hard to understand", downplaying the junk information all over Reddit that makes comprehension and understanding of the most sophisticated information warfare very difficult.
