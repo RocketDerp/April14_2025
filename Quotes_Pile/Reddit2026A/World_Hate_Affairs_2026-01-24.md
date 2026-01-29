@@ -293,3 +293,12 @@ https://old.reddit.com/r/worldnews/comments/1qp9ljh/greenland_will_not_give_in_p
 "slowly realizing"
 
 I've been in social media professionally since 1985, I've never seen people so engaged as they are when Trump content appears on Bluesky and Reddit. Mocking away, insulting, name-calling, following the hate leadership. MLK Jr's teachings about hate have been entirely erased by Russia's Internet Research Agency. People are entirely avoidant of asserting equality of humans (USA Deceleration of independence ideals). The cheering on of "Leopards At My Face" movement is a pro-suffering pro-hate pro-terrorist media cult. People do not want to turn to nonfiction from Dr. Bandy X Lee to focus on mental health and learn from mistakes an get on better mindsets. Instead, people follow Trump's leadership of mockery and hate. Trump leads with hate, the tech loving communities follow.
+
+https://old.reddit.com/r/worldnews/comments/1qqbpnj/trump_administration_secretly_met_with_canadian/o2fe6wn/
+
+https://old.reddit.com/r/worldnews/comments/1qqbpnj/trump_administration_secretly_met_with_canadian/o2fd03n/
+
+Sickening society. Monster state as defined by Power of Myth book in year 1988. Constant stress. Putinism since March 2013. Russia won the information war, hearts and minds in USA conditioned to self-harm USA, neighbors, Earth itself.
+
+* "what Putin will do next — that he’s unpredictable and thus dangerous. We’re rendered stunned, spun, and flummoxed by the Kremlin’s weaponization of absurdity and unreality.” - year 2014. September 9, 2014
+https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
