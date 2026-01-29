@@ -269,3 +269,18 @@ https://old.reddit.com/r/justgalsbeingchicks/comments/1qpmw6d/actress_natalie_po
 "The misogyny in these comments" ... Is this the reason there is such Reddit social avoidance of promoting woman Jen Senko about brainwashing topic since year 2015 / 2016? Why woman Dr. Bandy X Lee's October 3, 2017 book is avoided whenever the topic of mental health, unfit, dangerous comes up about Donald Trump?
 
 * “In Donald Trump, we have a frightening Venn diagram consisting of three circles: the first is extreme present hedonism; the second, narcissism; and the third, **bullying behavior.** These three circles overlap in the middle to create an impulsive, immature, incompetent person who, when in the position of ultimate power, easily slides into the role of tyrant, complete with family members sitting at his proverbial “ruling table.” Like a fledgling dictator, he plants psychological seeds of treachery in **sections of our population that reinforce already negative attitudes**.” ― Bandy X Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. October 3, 2017. Page 44.](https://books.google.com/books?id=g0c4DwAAQBAJ&pg=PA44&dq=%22immature,+incompetent+person+who,+when+in+the+position+of+ultimate+power,+easily+slides+into+the+role+of+tyrant%22&hl=en&newbks=1&newbks_redir=1&sa=X)
+
+https://old.reddit.com/r/politics/comments/1qplzt7/fbi_raids_georgia_election_office_as_trump/o2a66am/
+
+Serious long-form Reddit commenting in the face of important and serious topics.
+
+https://old.reddit.com/r/politics/comments/1qplzt7/fbi_raids_georgia_election_office_as_trump/o2avuah/
+
+Comedy is the core to Surkovian governing techniques.
+
+https://old.reddit.com/r/politics/comments/1qplzt7/fbi_raids_georgia_election_office_as_trump/o2ahld2/
+
+Goes along with the mythological leadership storytelling. Science fiction time-traveling mythos, adding to the super-power image for Trump fandom. Entertainment and mystery are core to Surkov governing methods.
+
+* "what Putin will do next — that he’s unpredictable and thus dangerous. We’re rendered stunned, spun, and flummoxed by the Kremlin’s weaponization of absurdity and unreality.” - year 2014. September 9, 2014    
+https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
