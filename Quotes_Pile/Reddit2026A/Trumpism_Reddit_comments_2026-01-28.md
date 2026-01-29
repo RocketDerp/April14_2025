@@ -618,3 +618,8 @@ https://old.reddit.com/r/UnderReportedNews/comments/1qqhwqc/trump_theres_so_much
 https://old.reddit.com/r/UnderReportedNews/comments/1qqhwqc/trump_theres_so_much_talk_about_how_were_going_to/o2ham8f/
 
 Rare someone stand up to the constant dementia-washing that goes on with Reddit audience. This is not ONE MAN who is the entire federal government, ICE, etc. The entire Fox News HDTV audience isn't dementia. It's Russian information warfare, Cambridge Analytica mental manipulation. The fixation on one single age 79 man discounts that JD Vance isn't age 79.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qqhwqc/trump_theres_so_much_talk_about_how_were_going_to/o2hc7cb/
+
+Trump provides fiction storytelling for Reddit audiences that avoid nonfiction. Trump provides content satire, mocking, absurd comedy, surreal humor that media junkies desire all the time as stimulation. Trump fandom. Delivered at high speeds over TCP/IP by Reddit servers. Always more mocking. Anything to avoid nonfiction learning about entertainment based POTUS. The meme POTUS for meme addictions.
+
