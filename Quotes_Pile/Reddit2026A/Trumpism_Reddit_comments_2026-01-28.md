@@ -251,3 +251,7 @@ Language bigotry abounds in USA society. Surkov won. Tower of Babel conflicts ar
 https://old.reddit.com/r/TikTokCringe/comments/1qpi9t2/i_hope_costco_sues_this_weird_mouth/o294tyg/
 
 Tech loving fandom of Trump shallowness and superficial video content. Following Trump leadership. ANYTHING but calling for the removal of Trump, asserting the dangers of mental health. ANYTHING BUT quoting Dr. Bandy X Lee's October 3, 2017 book about MAGA cult mental health crisis.
+
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1qpk72i/dont_even_wanna_post_this_but_for_those_who_dont/o29rei1/
+
+1 month Reddit account. Front page Reddit posting "psyop"
