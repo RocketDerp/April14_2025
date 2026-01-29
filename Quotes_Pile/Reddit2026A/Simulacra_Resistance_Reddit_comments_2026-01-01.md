@@ -602,3 +602,6 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1qpnktj/candace_owens_relea
 
 Same story, multiple times on /r/All front page. Shit-posting society, shit-commenting - following the shit leadership of a Trump social values.
 
+https://old.reddit.com/r/therewasanattempt/comments/1qpkk7x/to_be_perceived_as_a_grieving_widow/o29tnnm/
+
+Same story, lingering on front page /r/All all day. Media cults. Heaven is science fiction planet, like Eden is a science fiction planet.
