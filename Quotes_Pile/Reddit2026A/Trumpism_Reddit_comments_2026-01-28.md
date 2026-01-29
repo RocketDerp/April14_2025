@@ -526,3 +526,11 @@ https://old.reddit.com/r/stevehofstetter/comments/1qqbhyr/the_new_alex_petti_vid
 https://old.reddit.com/r/stevehofstetter/comments/1qqbhyr/the_new_alex_petti_video_doesnt_show_what_they/o2fcrv8/
 
 Video reality.
+
+https://old.reddit.com/r/stevehofstetter/comments/1qqbhyr/the_new_alex_petti_video_doesnt_show_what_they/o2fmyb0/
+
+People hate people and love the power of machines and tech to dehumanize people. Filter-bubble egoism..
+
+https://old.reddit.com/r/stevehofstetter/comments/1qqbhyr/the_new_alex_petti_video_doesnt_show_what_they/o2fwr6f/
+
+"sane country"
