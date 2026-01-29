@@ -359,3 +359,8 @@ Reddit mind-fuck of audience message. 10 month Reddit account. Trivializing with
 https://old.reddit.com/r/WelcomeToGilead/comments/1qq9bk5/executive_order_14321_is_a_pipeline_to_the/o2f574z/
 
 The previous links to /r/Law about Executive Order 14321 were removed by Reddit after it hit front page for a couple hours. This is a parallel posting, but the video is now absent.
+
+https://old.reddit.com/r/Leakednews/comments/1qq6zrj/he_is_just_being_straightforward_and_confirms/o2eeeon/
+
+3 month Reddit account, top-upvoted most popular. Twiter-length short messaging. Not linking anything about Reddit being infiltrated by Russia. Just calling it casual "boot-licking" without any off-Reddit assertions. Such as: https://www.cnbc.com/2018/04/11/reddit-bans-accounts-linked-to-russia-internet-research-agency.html
+
