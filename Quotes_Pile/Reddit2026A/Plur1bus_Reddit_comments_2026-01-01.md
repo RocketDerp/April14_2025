@@ -2438,3 +2438,14 @@ Front page of Reddit. Breaking Bad fandom towards women... topic.
 https://old.reddit.com/r/PeterExplainsTheJoke/comments/1qqaaks/uhm_what_did_skyler_do_peter/o2f6k5q/
 
 https://old.reddit.com/r/PeterExplainsTheJoke/comments/1qqaaks/uhm_what_did_skyler_do_peter/o2f72xt/
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1qqaaks/uhm_what_did_skyler_do_peter/o2f8osc/
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1qqaaks/uhm_what_did_skyler_do_peter/o2f3osp/
+
+The video gamer. The pro-ignorance leader with money who leads his friends with ignorance. Even when he has a hot girlfriend from next door, the girl next door metaphor realized, he turns to drugs instead of asking her for help with her rehab experience. Metaphors of media cult indoctrination that people don't see the video gaming morality as common ground. Jesse's parents are moral and fine, but video gaming culture (billionaires selling media to Jessie, bypassing the parents) dominates the competition. Even when he is spicy-pepper meth dealer, he does not use information systems to learn nonfiction skills and thinking. He uses computers primary for entertainment / game playing amusement.
+
+* "I have talked about how children used to learn morality from their parents and now I think that \[morality is learned from\] Super Mario Brothers. They spend much more time with Super Mario Brothers and are much more emotionally involved with Nintendo than they are with their aunts, their uncles, their mothers and their fathers." - year 1993 parenting USA for ABQ society described by Texan Rick Roderick. Jessie rejects his real parents in favor of gaming "bros". https://RickRoderick.org/308-baudrillard-fatal-strategies-1993/
+
+The real world of reality, outside his small circle, he exploits to play video games. He does not study nonfiction of real Earth science, travel locations, etc. There are thousands upon thousands of nonfiction books at the public library, but Jesse seeks out entertainment and shutting off his brain above his hot girlfriend and nonfiction public library learning as adult activities. He could have been a leader of family cancer support, etc from his real-world life experience. But the lure of fiction video games and television fiction appeals more than real-world cancer helping others through education and teaching.
+
