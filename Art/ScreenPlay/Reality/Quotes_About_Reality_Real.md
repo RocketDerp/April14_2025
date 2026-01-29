@@ -2,7 +2,7 @@
 
 ToDo: Link from root Quotes folder in project
 
-1. "Authoritarian leaders like Putin and Trump aren't spreading an ideology; they want to undermine your belief in everything—including what's real." https://bsky.app/profile/did:plc:3ilzw5c7es4l7b7tfk47amd5/post/3mdj7aumvhy2x
+1. "Authoritarian leaders like Putin and Trump aren't spreading an ideology; they want to undermine your belief in everything — including what's real." https://bsky.app/profile/did:plc:3ilzw5c7es4l7b7tfk47amd5/post/3mdj7aumvhy2x
 
 &nbsp;
 
