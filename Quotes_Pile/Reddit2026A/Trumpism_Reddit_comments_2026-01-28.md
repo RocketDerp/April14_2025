@@ -330,3 +330,4 @@ It was on the front page of /r/All before it was removed. Reddit is a comedy-was
 
 https://old.reddit.com/r/PoliticalHumor/comments/1qptx9c/i_got_my_check_did_you_guys_get_yours/o2bylf9/
 
+https://old.reddit.com/r/pics/comments/1qq26ck/dni_tulsi_gabbard_in_a_truck_loaded_with_boxes/o2dol7k/
