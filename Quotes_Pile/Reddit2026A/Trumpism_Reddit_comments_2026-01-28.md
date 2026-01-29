@@ -626,3 +626,18 @@ Trump provides fiction storytelling for Reddit audiences that avoid nonfiction. 
 https://old.reddit.com/r/UnderReportedNews/comments/1qqhwqc/trump_theres_so_much_talk_about_how_were_going_to/o2grkae/
 
 Fiction content outsells nonfiction.
+
+https://old.reddit.com/r/RealOrAI/comments/1qqb9f3/help_nyt_shows_new_angle/o2femtc/
+
+MAGA / ICE / Trump creates constant stimulating aggressive media content for audiences. Other leaders would not provide so much media content for meme sites and commenting crowds.
+
+https://old.reddit.com/r/RealOrAI/comments/1qqb9f3/help_nyt_shows_new_angle/o2f9yek/
+
+So much media engagement on if it is real, what it means, etc. ANYTHING but turn to established nonfiction books about mental health of MAGA and Trump. Dr. Bandy X Lee's nonfiction book since October 3, 2017 should be asserted and repeated - but is instead... avoided.
+
+https://old.reddit.com/r/RealOrAI/comments/1qqb9f3/help_nyt_shows_new_angle/o2gs3ro/
+
+"insane"
+
+https://old.reddit.com/r/RealOrAI/comments/1qqb9f3/help_nyt_shows_new_angle/o2ff24x/
+
