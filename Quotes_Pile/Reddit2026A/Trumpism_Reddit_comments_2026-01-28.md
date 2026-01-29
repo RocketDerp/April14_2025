@@ -700,3 +700,11 @@ Surkov won since March 2013. People are only awake to LOL LOL LOL at Trump and P
 https://old.reddit.com/r/UnderReportedNews/comments/1qqip6j/trump_hangs_putin_portrait_in_white_house_palm/o2hh42v/
 
 "insane"
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qqip6j/trump_hangs_putin_portrait_in_white_house_palm/o2hkcgo/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qqip6j/trump_hangs_putin_portrait_in_white_house_palm/o2hkojg/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qqip6j/trump_hangs_putin_portrait_in_white_house_palm/o2hkvfe/
+
+Trump fanatic. Fandom of Trump looking forward to more MAGA content. "hilarious". 
