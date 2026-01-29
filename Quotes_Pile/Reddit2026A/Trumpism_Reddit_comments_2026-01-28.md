@@ -328,3 +328,5 @@ https://old.reddit.com/r/PoliticalHumor/comments/1qptx9c/i_got_my_check_did_you_
 
 It was on the front page of /r/All before it was removed. Reddit is a comedy-washing venue for the Trump family. Reddit audience white-washes everything about Trump family as a source of entertainment. People are unable to face up that Trump is an actor doing acting, a media star creating content, and Reddit is the audience. Reddit removed it, but the audience of Reddit can not see that for over a decade jokes and memes about Trump are not resisting. Mocking a Tony Clifton show is not resisting a Tony Clifton show. See: https://github.com/RocketDerp/April14_2025/blob/working/Art/Donald_J_Trump_plays_Tony_Clifton.md
 
+https://old.reddit.com/r/PoliticalHumor/comments/1qptx9c/i_got_my_check_did_you_guys_get_yours/o2bylf9/
+
