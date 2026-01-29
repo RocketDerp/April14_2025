@@ -372,3 +372,6 @@ https://old.reddit.com/r/Leakednews/comments/1qq6zrj/he_is_just_being_straightfo
 
 1 month Reddit account. Popular, upvoted. Playing "imagination" games. Instead of pointing out that the entire Muslim societies / Islamic nations live in anti-reality. That religion has been an alternate reality system. And that even people in USA who watch different TV new networks get different alternate versions of information. https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Ted_Koppel.md That subreddit vs. subreddit are different information bubbles.
 
+https://old.reddit.com/r/TwoXChromosomes/comments/1qqa0wn/first_encounter_with_ice/o2f3l20/
+
+MLK Jr's teachings about hate have been ignored. SEE_ALSO: https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Martin_Luther_King_Jr_quotes0.md
