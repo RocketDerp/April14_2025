@@ -623,3 +623,6 @@ https://old.reddit.com/r/UnderReportedNews/comments/1qqhwqc/trump_theres_so_much
 
 Trump provides fiction storytelling for Reddit audiences that avoid nonfiction. Trump provides content satire, mocking, absurd comedy, surreal humor that media junkies desire all the time as stimulation. Trump fandom. Delivered at high speeds over TCP/IP by Reddit servers. Always more mocking. Anything to avoid nonfiction learning about entertainment based POTUS. The meme POTUS for meme addictions.
 
+https://old.reddit.com/r/UnderReportedNews/comments/1qqhwqc/trump_theres_so_much_talk_about_how_were_going_to/o2grkae/
+
+Fiction content outsells nonfiction.
