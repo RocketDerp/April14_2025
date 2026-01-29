@@ -352,3 +352,6 @@ https://old.reddit.com/r/law/comments/1qq6zgs/executive_order_14321_is_terrifyin
 
 Twitter-length Tweet-think low-effort Reddit comment message. Popular, upvoted. Casually dehumanizing voters as "snakes", who can't learn. Instead of using social media commenting to promote Jen Senko's year 2015 / 2016 film about Fox News HDTV media cult https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad , just sending the Reddit audience the message to not even try, don't do education because teaching maths is difficult and requires effort. Anti-teaching, anti-reform, anti-adult education, anti-Malala messaging. 
 
+https://old.reddit.com/r/law/comments/1qq6zgs/executive_order_14321_is_terrifying/o2efukf/
+
+Reddit mind-fuck of audience message. 10 month Reddit account. Trivializing with Twitter-length Tweet-think short message. Completely avoiding the cult behaviors and debasing of language and meaning, alternate realities of Fox News HDTV fandom. Just simple to fix!
