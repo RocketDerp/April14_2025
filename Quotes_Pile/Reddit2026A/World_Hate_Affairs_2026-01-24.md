@@ -283,3 +283,13 @@ https://old.reddit.com/r/europe/comments/1qpcs1w/slovak_pm_fico_spoke_of_shock_a
 https://old.reddit.com/r/europe/comments/1qpcs1w/slovak_pm_fico_spoke_of_shock_at_trumps_state_of/o27y5uo/
 
 11 month Reddit account. Fixated on the USA mental state of one single person, ignoring the MAGA cult and how everyone on Reddit could easily quote and link off-Reddit to Dr. Bandy X Lee's book from October 3, 2017 about Trump's mental health being dangerous.
+
+https://old.reddit.com/r/worldnews/comments/1qp9ljh/greenland_will_not_give_in_pm_says_as_denmark/o291f3d/
+
+27 day Reddit account, top-voted popular comment. "Russia". No off-Reddit link, no author name, no book title, no quotes. Twitter-length.
+
+https://old.reddit.com/r/worldnews/comments/1qp9ljh/greenland_will_not_give_in_pm_says_as_denmark/o28osn5/
+
+"slowly realizing"
+
+I've been in social media professionally since 1985, I've never seen people so engaged as they are when Trump content appears on Bluesky and Reddit. Mocking away, insulting, name-calling, following the hate leadership. MLK Jr's teachings about hate have been entirely erased by Russia's Internet Research Agency. People are entirely avoidant of asserting equality of humans (USA Deceleration of independence ideals). The cheering on of "Leopards At My Face" movement is a pro-suffering pro-hate pro-terrorist media cult. People do not want to turn to nonfiction from Dr. Bandy X Lee to focus on mental health and learn from mistakes an get on better mindsets. Instead, people follow Trump's leadership of mockery and hate. Trump leads with hate, the tech loving communities follow.
