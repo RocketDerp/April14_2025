@@ -389,3 +389,13 @@ Trumpism / Trump fandom has been dominating by social media. Since July 6, 2011 
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1qq6wxr/the_cult_cant_admit_that_dear_leader_did_wrong/o2f5u4b/
 
 9 month Reddit account. Observe the Reddit user profile has a mocking pro-MAGA message: "bro, LOL". Mockery banal agent.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qq6wxr/the_cult_cant_admit_that_dear_leader_did_wrong/o2f2tzc/
+
+<img width="1125" height="1031" alt="image" src="https://github.com/user-attachments/assets/7647a26a-b555-4e46-9c69-fc9625346cac" />
+
+Even MORE DISTURBING is how Reddit community can't cite the Russian War Against Reality since March 2013! Reddit audience sees all month January 2026 the White House and Kremlin doing anti-NATO anti-EU auctions, and people on social media commenting sections can't connect to nonfiction learning.
+
+* From September 9, 2014 - 11 years 4 months and some days ago, which is **more than a decade** - we could have kept repeating it and defeated Putin's takeover of USA hearts and minds: https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ "Russia and the Menace of Unreality: How Vladimir Putin is revolutionizing information warfare. By Peter Pomerantsev. At the NATO summit in Wales last week, General Philip Breedlove, the military alliance’s top commander, made a bold declaration. Russia, he said, is waging “the **most amazing information warfare blitzkrieg we have ever seen in the history of information warfare.**” It was something of an underestimation. The new Russia doesn’t just deal in the petty disinformation, forgeries, lies, leaks, and cyber-sabotage usually associated with information warfare. It reinvents reality, creating mass hallucinations that then translate into political action." - we should NOW be [repeating it every 47 hours over and over](https://github.com/GreatSealUSA/Brainrot_Society_47), keep repeating, again and again!
+
+Social post { https://autistics.life/@RoundSparrow/115979391813563750 https://bsky.app/profile/roundsparrow.bsky.social/post/3mdlad3dems24 }
