@@ -323,3 +323,8 @@ Over 40 years ago. Reddit social media meme-think, amusement, LOL culture. Mocki
 https://old.reddit.com/r/ICE_Raids/comments/1qpp1my/got_no_idea_where_to_post_this_but_donald_trump/o2auhfe/
 
 Fiction outsells nonfiction. The attraction to fiction storytelling is why people will not rise up and use nonfiction from Dr. Bandy X Lee to remove and address the nation-wide mental health crisis. Media cults, Reddit inclusive.
+
+https://old.reddit.com/r/PoliticalHumor/comments/1qptx9c/i_got_my_check_did_you_guys_get_yours/o2by33c/
+
+It was on the front page of /r/All before it was removed. Reddit is a comedy-washing venue for the Trump family. Reddit audience white-washes everything about Trump family as a source of entertainment. People are unable to face up that Trump is an actor doing acting, a media star creating content, and Reddit is the audience. Reddit removed it, but the audience of Reddit can not see that for over a decade jokes and memes about Trump are not resisting. Mocking a Tony Clifton show is not resisting a Tony Clifton show. See: https://github.com/RocketDerp/April14_2025/blob/working/Art/Donald_J_Trump_plays_Tony_Clifton.md
+
