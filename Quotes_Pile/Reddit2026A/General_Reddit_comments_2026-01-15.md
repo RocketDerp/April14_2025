@@ -1612,3 +1612,7 @@ https://old.reddit.com/r/wallstreetbets/comments/1qpqrk4/elon_musk_says_tesla_en
 Low-thought low-effort Elon Musk programmed Twitter-think Twitter-length reaction commenting. Denial of reality and USA MAGA situaiton in favor of meme-think Tweet-thinking.
 
 * “Science is more than a body of knowledge; it is a way of thinking." ... "The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the **30-second** sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but especially a kind of [celebration of ignorance](https://www.youtube.com/watch?v=wcY-x1VuWtE).” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995, page 59
+
+https://old.reddit.com/r/technology/comments/1qpqq0q/tiktok_uninstalls_surge_150_after_apps_us_takeover/o2b77p8/
+
+"Twitterization of"
