@@ -557,3 +557,8 @@ Organized military effort to spread measles via mental manipulation. August 24, 
 https://old.reddit.com/r/Damnthatsinteresting/comments/1qqf6kb/measles_cases_in_the_usa_in_january_2026_have/o2gdpu4/
 
 The most sophisticated military information warfare ever devised by humanity. Deployed against the population via Reddit, Twitter, Facebook, YouTube, etc social media. Public was notified... August 24, 2018: https://www.BBC.com/news/world-us-canada-45294192 and June 2, 2014: https://www.buzzfeednews.com/article/maxseddon/documents-show-how-russias-troll-army-hit-america - and Reddit meme-washed humor-washed white-washed it as "nothingburger" and "LOL Russia can't beat Ukraine, military run down and outdated" mindsets for jokes and comedy. Surkov won.
+
+https://old.reddit.com/r/PoliticalHumor/comments/1qqdh39/maga_sighs_of_relief/o2fxapl/
+
+The place is Reddit commenting section. Where all Russia information warfare against NATO gets /r/PoliticalHumor subreddit to humor-washed, mocked away, meme-wrapped, amusement-mocked. Where no-identity garbage commenting is prized above nonfiction book learning. Reddit is a hate-MAGA training camp of *hate harder* messaging and MAGA values. ANYTHING to avoid repeat-until-understood by everyone... nonfiction serious book like Dr. Bandy X Lee on mental health. ANYTHING to avoid repeating content that would actually TREAT and HELP MAGA get out of the Kremlin information warfare simulations that started from the Saint Petersburg Internet Research Agency in Q2 2013. ANYTHING to avoid sustained focus and *everyone on the same page* of mental health topics, such as: https://www.scientificamerican.com/article/the-shared-psychosis-of-donald-trump-and-his-loyalists/
+
