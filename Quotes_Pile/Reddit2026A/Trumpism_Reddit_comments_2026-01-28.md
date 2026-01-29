@@ -284,3 +284,12 @@ Goes along with the mythological leadership storytelling. Science fiction time-t
 
 * "what Putin will do next — that he’s unpredictable and thus dangerous. We’re rendered stunned, spun, and flummoxed by the Kremlin’s weaponization of absurdity and unreality.” - year 2014. September 9, 2014    
 https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/AskReddit/comments/1qpv106/us_athletes_are_increasingly_speaking_out_against/o2c1uh9/
+
+4 month Reddit account. Top-voted popular comment. Promoting the simple-thinking idea of sports directorship to Trump-lead acting and entertainment content. ANYTHING to avoid asserting cult deprogramming, Jen Senko's film https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad about brainwashing right-wing media, Dr. Bandy X Lee's nonfiction book about mental health of Trump. Just look forward to more sporting events and athlete protesting and don't have a social media intellectual uprising right now today calling for people to get on the same page (Dr. Lee's nonfiction book for public education) and remove Trump.
+
+People are compulsively attracted to Trump's acting, his professional actor talents and content creation. Media consumer population is not using social media to educate and rise up against the nonsense Trump leads. People are normalizing this at hyper speeds.
+
+* “The human brain can protect us from seeing and feeling what it believes may be too uncomfortable for us to tolerate. It can lead us to deny, defend, minimize, or rationalize away something that doesn’t fit our worldview.”
+― Dr. Bandy X Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. Published **October 3, 2017**. Page 273. Chapter "TRUMP'S DADDY ISSUES"](https://books.google.com/books?id=g0c4DwAAQBAJ&pg=PA273&dq=%E2%80%9CThe+human+brain+can+protect+us+from+seeing+and+feeling+what+it+believes+may+be+too+uncomfortable%22&hl=en&newbks=1&newbks_redir=1&sa=X)
