@@ -385,3 +385,7 @@ Consumers of Reddit are the Trump audience. Commenting and remarking about the "
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1qq6wxr/the_cult_cant_admit_that_dear_leader_did_wrong/o2f8q88/
 
 Trumpism / Trump fandom has been dominating by social media. Since July 6, 2011 when Trump used Twitter. https://theOutline.com/post/2445/trump-s-first-real-tweet-was-on-july-6-2011 This type of Reddit comment avoids creating a FAQ, avoids a Wiki style "on the same page" learning. It's a cult of commenting over and over with fragmented information all over different pages of different posting. Instead of linking a nonfiction book on paper at the public library, commenting medium is prized above all else. https://www.theMediumisTheMassage.com/joyce-is-in-the-wake-making-his-own-altamira-cave-drawings-of-the-entire-history-of-the-human-mind-in-terms-of-its-basic-gestures-and-postures-during-all-the-phases-of-human-culture-an/ The MEDIUM is the message, the COMMENTING MEDIUM glues people to Trump / MAGA mindsets.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qq6wxr/the_cult_cant_admit_that_dear_leader_did_wrong/o2f5u4b/
+
+9 month Reddit account. Observe the Reddit user profile has a mocking pro-MAGA message: "bro, LOL". Mockery banal agent.
