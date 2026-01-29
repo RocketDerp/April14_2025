@@ -1,5 +1,10 @@
 # Fran Lab Comment 2026-01-29
 
+https://www.youtube.com/watch?v=nJQM8HXBfNg   
+"I Am So Sorry!"   
+
+&nbsp;
+
 <img width="1301" height="535" alt="image" src="https://github.com/user-attachments/assets/3d650aff-d190-43ae-9393-e7998ba23a2f" />
 
 &nbsp;
