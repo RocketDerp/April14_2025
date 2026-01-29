@@ -6,7 +6,7 @@ Often, people with NPD resort to an insidious strategy called gaslighting — a 
 
 Lately, these incidents have become commonplace. Many in the press and public at large now refer to them as alternative facts, alluding to Trump spokesperson Kellyanne Conway’s now infamous “explanation” for why Sean Spicer had berated the press for misreporting Trump’s inauguration size: “this was the largest audience to ever witness an inauguration, period, both in person and around the globe,” Spicer peevishly told a stunned press corps. This turned out to be patently false, though Conway defended the statement, saying Spicer had simply been providing “alternative facts.”
 
-Those who embrace Trump’s reality, where the mainstream media lies and remains “the enemy,” signify their support with red hats bearing the inscription MAGA (Make America Great Again). Those who believe what the news reports about Trump have donned the symbol of resistance — pink pussy hats, a reference to his now infamous hot mic comments about women, “I just grab ’em by the pussy…”
+Those who **embrace Trump’s reality**, where the mainstream media lies and remains “the enemy,” signify their support with red hats bearing the inscription MAGA (Make America Great Again). Those who believe what the news reports about Trump have donned the symbol of resistance — pink pussy hats, a reference to his now infamous hot mic comments about women, “I just grab ’em by the pussy…”
 
 That the country is currently split — and **our shared reality** with it — seems without question at this point.
 
