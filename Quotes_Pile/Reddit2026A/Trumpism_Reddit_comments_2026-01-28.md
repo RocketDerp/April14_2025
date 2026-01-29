@@ -364,3 +364,11 @@ https://old.reddit.com/r/Leakednews/comments/1qq6zrj/he_is_just_being_straightfo
 
 3 month Reddit account, top-upvoted most popular. Twiter-length short messaging. Not linking anything about Reddit being infiltrated by Russia. Just calling it casual "boot-licking" without any off-Reddit assertions. Such as: https://www.cnbc.com/2018/04/11/reddit-bans-accounts-linked-to-russia-internet-research-agency.html
 
+https://old.reddit.com/r/Leakednews/comments/1qq6zrj/he_is_just_being_straightforward_and_confirms/o2efzhi/
+
+"Putin". Low-effort tiny-short message. No off-Reddit linking on how long this has been gong on with Reddit society. Such as: https://www.cnbc.com/2018/04/11/reddit-bans-accounts-linked-to-russia-internet-research-agency.html This serves to banalize the topic instead of calling people to organize and educate around serious leaders.
+
+https://old.reddit.com/r/Leakednews/comments/1qq6zrj/he_is_just_being_straightforward_and_confirms/o2egjk5/
+
+1 month Reddit account. Popular, upvoted. Playing "imagination" games. Instead of pointing out that the entire Muslim societies / Islamic nations live in anti-reality. That religion has been an alternate reality system. And that even people in USA who watch different TV new networks get different alternate versions of information. https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Ted_Koppel.md That subreddit vs. subreddit are different information bubbles.
+
