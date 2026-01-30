@@ -1837,3 +1837,6 @@ https://old.reddit.com/r/whatthefrockk/comments/1qre94s/catherine_ohara_beloved_
 
 https://old.reddit.com/r/whatthefrockk/comments/1qre94s/catherine_ohara_beloved_actress_and_the_face/o2npy31/
 
+https://old.reddit.com/r/popculturechat/comments/1qrkdgk/bill_gates_caught_std_and_begged_epstein_for/o2owg1j/
+
+I used to be on the private staff of Paul Allen. We toured Bill Gates' house on Mercer Island. People do not grasp how sports teams and software systems are used with the population. The thinking and mindsets of manipulating billions of people, mindshare capture.
