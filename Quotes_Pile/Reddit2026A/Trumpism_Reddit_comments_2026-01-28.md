@@ -935,3 +935,11 @@ https://youtu.be/yqpo9GqTaV8?t=1857
 https://old.reddit.com/r/politics/comments/1qra9oi/final_jeffrey_epstein_files_cache_released_by_doj/o2mvfht/
 
 "ha ha", social media laugh track. Tiny popular Tweet-length message patterns. Epstein entertainment fandom. Find it amusing that Trump and Putin use Surkov information society techniques. Behavior of Reddit audience bombed into comedy mentality by Kremlin information warfare since March 2013.
+
+https://old.reddit.com/r/law/comments/1qrf7xc/doj_just_deleted_this_document_from_the_epstein/o2ntide/
+
+People are motivated to *hate harder*. To avoid at all cost: MLK Jr's teachings about hate.
+
+https://old.reddit.com/r/law/comments/1qrf7xc/doj_just_deleted_this_document_from_the_epstein/o2ntnqd/
+
+Reddit community is a media **cult** *so far gone* in reaction-commenting to **Trump content** and sex action details that people on Reddit will not stop reacting to every Trump information drop / Trump photograph... and face up to media addition to a celebrity is what MAGA is driven by. Dr. Bandy X Lee ignored!
