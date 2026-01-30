@@ -910,3 +910,7 @@ Clowning is the current religious faith of USA society. Not just "Congress is cl
 The class was paying attention that hate is entertaining. And year after year, comic memes, jokes, were authored by the class clowning society. Not just MAGA, not just Republicans, everyone is clowning around and avoiding teaching Marshall McLuhan, Neil Postman, Jen Senko, and Dr. Bandy X Lee's nonfiction.
 
 Social post { https://autistics.life/@RoundSparrow/115985117927868929 https://bsky.app/profile/roundsparrow.bsky.social/post/3mdnrqjvcgk2k }
+
+https://old.reddit.com/r/WorkReform/comments/1qr8iou/weve_been_warned_why_cant_people_see_the_obvious/o2mgki6/
+
+9 month Reddit account.
