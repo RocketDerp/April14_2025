@@ -756,3 +756,11 @@ https://old.reddit.com/r/technology/comments/1qqy7wy/libs_of_tiktok_is_doxxing_t
 https://old.reddit.com/r/technology/comments/1qqy7wy/libs_of_tiktok_is_doxxing_teachers_and_nurses_who/o2ke0fd/
 
 https://old.reddit.com/r/technology/comments/1qqy7wy/libs_of_tiktok_is_doxxing_teachers_and_nurses_who/o2kjlt4/
+
+https://old.reddit.com/r/ExplainTheJoke/comments/1qqxhd6/why_is_he_a_nai/o2k37mi/
+
+https://old.reddit.com/r/worldnews/comments/1qr048e/trump_strangely_warns_canada_that_china_will/o2kklzw/
+
+In response to the posting: Canada, Hockey. Comment writer is eating the Surkov onion, dementia-washing Russian information warfare. See: https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Reddit2025A/Surkovian_Onion_Eating.md Predictable short Twitter-length Tweet-think messaging and mindsets.
+
+* "what Putin will do next — that he’s unpredictable and thus dangerous. We’re rendered stunned, spun, and flummoxed by the Kremlin’s weaponization of absurdity and unreality.” - **year 2014**. September 9, 2014  https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
