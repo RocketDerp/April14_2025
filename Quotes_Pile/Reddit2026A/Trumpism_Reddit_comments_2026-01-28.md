@@ -896,3 +896,17 @@ https://old.reddit.com/r/BlackPeopleofReddit/comments/1qr4cs6/fulton_county_comm
 
 Since March 2013, hearts and minds have been conditioned by Russia's IRA to prize low-effort commenting and junk information over serious nonfiction. Fiction outsells nonfiction and Trump provides constant stimulating performance art. Trump is first and foremost an actor acting. Surkov student screenplays were put into the mass man mindsets in year 2013 before the Ukraine war February 20, 2014.
 
+
+https://old.reddit.com/r/WorkReform/comments/1qr8iou/weve_been_warned_why_cant_people_see_the_obvious/o2m9qmg/
+
+<img width="914" height="481" alt="image" src="https://github.com/user-attachments/assets/fe38a450-befe-4975-a16e-e5c3fe10fd75" />
+
+This entire front-page Reddit post is a failure to comprehend the January 2026 situation. PEOPLE WERE PAYING ATTENTION, Fox News HDTV turned it into entertainment since October 7, 1996. Reddit turned Trump into constant entertainment. Amusement, comedy, surreal joking, absurd memes. People are attracted to it as engaging entertainment. Nonfiction is unattractive to people.
+
+Clowning is the current religious faith of USA society. Not just "Congress is clowns", not only "Musk is a clown", not only "Trump is Tony Clifton clowning", it is the ENTIRE POPULATING upvoting and reTweeting every hour of every day in a clown society, clown nation, clown We The People. EVERY HOUR upvoting clown-shit and avoiding nonfiction serious books on paper. The deepest faith and spirtual values is mockery and insulting. Surkov won.
+
+* "For all his perspicacity, George Orwell would have been stymied by this situation; there is nothing “Orwellian” about it. The President does not have the press under his thumb. The New York Times and The Washington Post are not Pravda; the Associated Press is not Tass. And there is no Newspeak here. Lies have not been defined as truth nor truth as lies. **All that has happened is that the public has adjusted to incoherence and been amused** into indifference. Which is why Aldous Huxley would not in the least be surprised by the story. Indeed, he prophesied its coming. He believed that it is far more likely that the Western democracies will dance and dream themselves into oblivion than march into it, single file and manacled. Huxley grasped, as Orwell did not, that it is not necessary to conceal anything from a public insensible to contradiction and narcoticized by technological diversions. Although Huxley did not specify that television would be our main line to the drug, he would have no difficulty accepting Robert MacNeil’s observation that “Television is the soma of Aldous Huxley’s Brave New World.” Big Brother turns out to be [Howdy Doody](https://en.wikipedia.org/wiki/Howdy_Doody)." ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, **year 1985**, page 111
+
+The class was paying attention that hate is entertaining. And year after year, comic memes, jokes, were authored by the class clowning society. Not just MAGA, not just Republicans, everyone is clowning around and avoiding teaching Marshall McLuhan, Neil Postman, Jen Senko, and Dr. Bandy X Lee's nonfiction.
+
+Social post { https://autistics.life/@RoundSparrow/115985117927868929 https://bsky.app/profile/roundsparrow.bsky.social/post/3mdnrqjvcgk2k }
