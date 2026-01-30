@@ -943,3 +943,23 @@ People are motivated to *hate harder*. To avoid at all cost: MLK Jr's teachings 
 https://old.reddit.com/r/law/comments/1qrf7xc/doj_just_deleted_this_document_from_the_epstein/o2ntnqd/
 
 Reddit community is a media **cult** *so far gone* in reaction-commenting to **Trump content** and sex action details that people on Reddit will not stop reacting to every Trump information drop / Trump photograph... and face up to media addition to a celebrity is what MAGA is driven by. Dr. Bandy X Lee ignored!
+
+https://old.reddit.com/r/politics/comments/1qrgz1b/epstein_files_released_trump_mentioned_hundreds/o2o46ho/
+
+https://old.reddit.com/r/politics/comments/1qrgz1b/epstein_files_released_trump_mentioned_hundreds/o2oog4z/
+
+https://old.reddit.com/r/politics/comments/1qrgz1b/epstein_files_released_trump_mentioned_hundreds/o2o50ta/
+
+https://old.reddit.com/r/politics/comments/1qrgz1b/epstein_files_released_trump_mentioned_hundreds/o2o780n/
+
+https://old.reddit.com/r/politics/comments/1qrgz1b/epstein_files_released_trump_mentioned_hundreds/o2o5u6t/
+
+https://old.reddit.com/r/politics/comments/1qrgz1b/epstein_files_released_trump_mentioned_hundreds/o2o76qn/
+
+https://old.reddit.com/r/politics/comments/1qrgz1b/epstein_files_released_trump_mentioned_hundreds/o2o82uo/
+
+I, Stephen Alfred Gutknecht, consider Trump to be a massive mistake for USA society. I think it is an error in judgement. I think NOBODY benefits from Trumpism. I think it represents the forces of media systems cramming minds into predictable patterns. Marketing and advertising were able to resonate with minds wrecked by high-speed information networks. It is sickening and sad that people do not study Marshall McLuhan, Neil Postman and grasp what has happened. Technology advancement has created disturbed fixations on television icons Trump. Russia was able to take Neil Postman's 1985 media theories and weaponize them.
+
+Creative fiction of Trump eclipsed minds of nonfiction. Russia saw the weak spots in the mind to insert self-harm attractions.
+
+* From September 9, 2014 - 11 years 4 months and some weeks ago, which is **more than a decade** - we could have kept repeating it and defeated Putin's takeover of USA hearts and minds: https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ "Russia and the Menace of Unreality: How Vladimir Putin is revolutionizing information warfare. By Peter Pomerantsev. At the NATO summit in Wales last week, General Philip Breedlove, the military alliance’s top commander, made a bold declaration. Russia, he said, is waging “the **most amazing information warfare blitzkrieg we have ever seen in the history of information warfare.**” It was something of an underestimation. The new Russia doesn’t just deal in the petty disinformation, forgeries, lies, leaks, and cyber-sabotage usually associated with information warfare. It reinvents reality, creating mass hallucinations that then translate into political action."
