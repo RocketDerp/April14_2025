@@ -975,3 +975,11 @@ Male aggression normalized. Male bullying normalized. ICE men invading homes, in
 https://old.reddit.com/r/politics/comments/1qrgz1b/epstein_files_released_trump_mentioned_hundreds/o2o8xxb/
 
 It matters as entertainment for Reddit audiences. People have been screaming for dirty details of rich white men sex lives. People on Reddit constantly talk about their Trump diaper fetish and there is nothing illegal about a man pooping. But it sure draws a Reddit fandom to Trump shit. Shit-commenting audiences love rich white men "Daddy" age 79 sex shit. https://en.wikipedia.org/wiki/Diaper_fetishism - ANYTHING to avoid serious nonfiction learning about Kremlin information warfare. ANYTHING to avoid learning nonfiction serious learning of mental health issues from leader Dr. Bandy X Lee.
+
+https://old.reddit.com/r/politics/comments/1qrgz1b/epstein_files_released_trump_mentioned_hundreds/o2oasbd/
+
+People on Reddit are unable to discuss factual evidence of QAnon "Q" being supported by Russia to harm USA society (Reddit audience). SEE_ALSO https://old.Reddit.com/r/QAnonRussia 
+
+https://old.reddit.com/r/politics/comments/1qrgz1b/epstein_files_released_trump_mentioned_hundreds/o2o5ctu/
+
+People care, they are thrilled to get dirty details of rich and famous private jets, rich and famous private islands for the wealthy celebrities. **It matters as entertainment** for WWW meme audiences / Reddit audiences. People have been screaming for dirty details of rich white men sex lives. People on Reddit constantly talk about their Trump diaper fetish and there is nothing illegal about a man pooping. But it sure draws a Reddit fandom to Trump shit. Shit-commenting audiences love rich white men "Daddy" age 79 sex shit. https://en.wikipedia.org/wiki/Diaper_fetishism - ANYTHING to avoid serious nonfiction learning about Kremlin information warfare. ANYTHING to avoid learning nonfiction serious learning of mental health issues from leader Dr. Bandy X Lee.
