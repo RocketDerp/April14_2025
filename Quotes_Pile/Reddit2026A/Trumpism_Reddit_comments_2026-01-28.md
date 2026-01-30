@@ -963,3 +963,11 @@ I, Stephen Alfred Gutknecht, consider Trump to be a massive mistake for USA soci
 Creative fiction of Trump eclipsed minds of nonfiction. Russia saw the weak spots in the mind to insert self-harm attractions.
 
 * From September 9, 2014 - 11 years 4 months and some weeks ago, which is **more than a decade** - we could have kept repeating it and defeated Putin's takeover of USA hearts and minds: https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ "Russia and the Menace of Unreality: How Vladimir Putin is revolutionizing information warfare. By Peter Pomerantsev. At the NATO summit in Wales last week, General Philip Breedlove, the military alliance’s top commander, made a bold declaration. Russia, he said, is waging “the **most amazing information warfare blitzkrieg we have ever seen in the history of information warfare.**” It was something of an underestimation. The new Russia doesn’t just deal in the petty disinformation, forgeries, lies, leaks, and cyber-sabotage usually associated with information warfare. It reinvents reality, creating mass hallucinations that then translate into political action."
+
+https://old.reddit.com/r/politics/comments/1qrgz1b/epstein_files_released_trump_mentioned_hundreds/o2oatl8/
+
+11 month Reddit account.
+
+https://old.reddit.com/r/politics/comments/1qrgz1b/epstein_files_released_trump_mentioned_hundreds/o2oegqp/
+
+Male aggression normalized. Male bullying normalized. ICE men invading homes, invading cars, attacking anyone they perceive to be weak or needy now normalized. Junk information to LOL at power over women, normalized. Truth Social as an anti-truth anti-sincerity platform all normalized. 
