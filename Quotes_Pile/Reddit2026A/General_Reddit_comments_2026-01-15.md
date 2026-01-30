@@ -1650,3 +1650,7 @@ Just like Trump fandom. People sharing scraps of his every song and message perf
 https://old.reddit.com/r/Millennials/comments/1qr2dc1/society_really_did_fail_amy_winehouse/o2l2pn9/
 
 Reddit fandom adores the no-identity bullshit hate-messaging hate-signaling the Saint Petersburg Internet Research Agency organized since March 2013.
+
+https://old.reddit.com/r/whenthe/comments/1qr4z1r/rpics_and_now_rgifs_situation_update/o2lherd/
+
+Block-happy deport-happy intimidation of magazine burning, book-burning in modern digital form. Trumpland USA MAGA values of year 2026.
