@@ -991,3 +991,11 @@ Reddit media, Reddit comment community, has been the core sane-washing of Trump.
 https://old.reddit.com/r/politics/comments/1qrgz1b/epstein_files_released_trump_mentioned_hundreds/o2ojzvi/
 
 Entertainment-oriented Reddit audience is calling out what to expect next in the Kremlin and White House Reality variety show. No desire to promote Dr. Bandy X Lee and remove Trump through education and cult-deprogramming. Because the Reddit audience itself is a cult of mockery.
+
+https://old.reddit.com/r/politics/comments/1qrgz1b/epstein_files_released_trump_mentioned_hundreds/o2o9gm6/
+
+Addressing the cults is likely the best first step. People who want to have Trump on stage as a source of content and entertainment are holding back any serious reform. What people need to be doing is following the leadership of Dr. Bandy X Lee and quoting and teaching from her articles and books.
+
+https://old.reddit.com/r/politics/comments/1qrgz1b/epstein_files_released_trump_mentioned_hundreds/o2oaiac/
+
+"The media". 
