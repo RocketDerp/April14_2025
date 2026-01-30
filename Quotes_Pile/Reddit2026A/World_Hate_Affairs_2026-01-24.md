@@ -359,4 +359,7 @@ https://old.reddit.com/r/interestingasfuck/comments/1qrcfqe/man_be_harassed_for_
 
 Real names of "The Little Guy" are suppressed on Reddit culture. Mostly childhood famous people like Elon Musk or Harrison Ford or Donald Trump get their real name on front page of Reddit. Unless you died in a famous way like being shot by ICE in the streets on video or murdered people with guns like Luigi. But, over all, Reddit users practice daily to hide their real life real world real identity when commenting and sharing information. Avoidant of nonfiction book authors. Amusement and jokes are prized above reality itself.
 
+https://old.reddit.com/r/interestingasfuck/comments/1qrcfqe/man_be_harassed_for_his_looks_yet_found_a/o2n4jes/
+
+Billionaires of the world are deporting people for not speaking English correctly, the most superficial and banal behaviors. This low-effort message is to feed denial... avoid reality... a "stop" command to *not stand up* to bullying and the leadership of I.C.E. and Trump / MAGA movement.
 
