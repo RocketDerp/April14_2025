@@ -783,3 +783,9 @@ Dementia-washing by Reddit media creators. Surkovian onion eater. See: https://g
 https://old.reddit.com/r/law/comments/1qqr1jq/trump_signs_executive_order_declaring_nation/o2iotfi/
 
 *  Published January 2015, before Trump started run for office in June 2015: https://www.Politico.com/magazine/story/2015/01/putin-russia-tv-113960/ At one end of the table sat one of the country’s most famous political TV presenters. He was small and spoke fast, with a smoky voice: “We all know there will be no real politics,” he said. “But we still have to give our viewers the sense something is happening. They need to be kept entertained.” “So what should we play with?” he asked. **“Shall we attack oligarchs? Who’s the enemy this week?** Politics has got to feel like a movie!”
+
+https://old.reddit.com/r/law/comments/1qqr1jq/trump_signs_executive_order_declaring_nation/o2j2hgt/
+
+Someone in Reddit audience suggests that maybe it is intentional. But unable to name Surkov governing techniques.
+
+* "what Putin will do next — that he’s unpredictable and thus dangerous. We’re rendered stunned, spun, and flummoxed by the Kremlin’s weaponization of absurdity and unreality.” - **year 2014**. September 9, 2014  https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
