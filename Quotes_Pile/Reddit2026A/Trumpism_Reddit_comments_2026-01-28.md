@@ -774,3 +774,12 @@ https://old.reddit.com/r/worldnews/comments/1qr048e/trump_strangely_warns_canada
 Reply after reply to this message that 1) ignore Dr. Bandy X Lee and will not quote professional nonfiction books on paper. 2) Eating the Surkov onions and think this is dumb. Turning the USA into a source of mockery and humor jokes is the very Surkov technique that blows minds, weaponized humor.
 
 See: https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Reddit2025A/Surkovian_Onion_Eating.md 
+
+
+https://old.reddit.com/r/law/comments/1qqr1jq/trump_signs_executive_order_declaring_nation/o2is0ol/
+
+Dementia-washing by Reddit media creators. Surkovian onion eater. See: https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Reddit2025A/Surkovian_Onion_Eating.md Predictable short Twitter-length Tweet-think messaging and mindsets.
+
+https://old.reddit.com/r/law/comments/1qqr1jq/trump_signs_executive_order_declaring_nation/o2iotfi/
+
+*  Published January 2015, before Trump started run for office in June 2015: https://www.Politico.com/magazine/story/2015/01/putin-russia-tv-113960/ At one end of the table sat one of the country’s most famous political TV presenters. He was small and spoke fast, with a smoky voice: “We all know there will be no real politics,” he said. “But we still have to give our viewers the sense something is happening. They need to be kept entertained.” “So what should we play with?” he asked. **“Shall we attack oligarchs? Who’s the enemy this week?** Politics has got to feel like a movie!”
