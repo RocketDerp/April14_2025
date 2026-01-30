@@ -1771,3 +1771,6 @@ https://old.reddit.com/r/popculturechat/comments/1qrdu8i/catherine_ohara_schitts
 
 The rest of the world is watching how North America population behaves towards celebrity notifications. Surkov understood this back in year 2001, exported it via the Saint Parkersburg Internet Research Agency. that fiction far outsells nonfiction to Reddit celebrity audiences. Trump is the celebrity of all celebrity influencer content creators.
 
+https://old.reddit.com/r/Fauxmoi/comments/1qrf2np/macaulay_culkin_on_instagram_bids_farewell_to/o2nsgx9/
+
+Real-world reality mothers are abandoned an hate for choosing celebrity Donald Trump and being "MAGA". It is an nation of **media cultists** who worship one mother or daddy (MAGA Trump) or another off screens. Image cultists, Trump fandom cultists.
