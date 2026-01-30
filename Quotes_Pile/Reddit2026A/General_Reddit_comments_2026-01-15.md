@@ -1814,3 +1814,10 @@ https://old.reddit.com/r/horror/comments/1qrdium/catherine_ohara_beetlejuice_sch
 https://old.reddit.com/r/horror/comments/1qrdium/catherine_ohara_beetlejuice_schitts_creek_and/o2nhnes/
 
 To understand the celebrity audience cult of entertainer Donald Trump...
+
+https://old.reddit.com/r/nostalgia/comments/1qrdgsm/after_giving_us_years_of_great_comedy_i_hope/o2ncj4y/
+
+https://old.reddit.com/r/nostalgia/comments/1qrdgsm/after_giving_us_years_of_great_comedy_i_hope/o2ndts8/
+
+shocked to find out *just now* when world breaking news instantly notified everyone *just now*! To understand the celebrity audience cult of entertainer Donald Trump...
+
