@@ -914,3 +914,10 @@ Social post { https://autistics.life/@RoundSparrow/115985117927868929 https://bs
 https://old.reddit.com/r/WorkReform/comments/1qr8iou/weve_been_warned_why_cant_people_see_the_obvious/o2mgki6/
 
 9 month Reddit account.
+
+https://old.reddit.com/r/WorkReform/comments/1qr8iou/weve_been_warned_why_cant_people_see_the_obvious/o2mci2t/
+
+Cambridge Analytica and Saint Petersburg Internet Research Agency defeated all previous defenses. NATO and Pentagon failed to defend hearts and minds from Putin's Kremlin. Surkov won. People trivialize that goodness compassion takes more time and pain to educate than mob mentality, sports-think of rectangle (fields NFL, NBA, FIFA) sports logic. People ignore the **adult education situation in USA**, which means Fox News HDTV is where adults learn and study. Not in rectangle classrooms like sports fields, but from swooping Fox News entertainment, SNL Weekend Update entertainment, is where adults learn and teach.
+
+* From September 9, 2014 - 11 years 4 months and some weeks ago, which is **more than a decade** - we could have kept repeating it and defeated Putin's takeover of USA hearts and minds: https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ "Russia and the Menace of Unreality: How Vladimir Putin is revolutionizing information warfare. By Peter Pomerantsev. At the NATO summit in Wales last week, General Philip Breedlove, the military alliance’s top commander, made a bold declaration. Russia, he said, is waging “the **most amazing information warfare blitzkrieg we have ever seen in the history of information warfare.**” It was something of an underestimation. The new Russia doesn’t just deal in the petty disinformation, forgeries, lies, leaks, and cyber-sabotage usually associated with information warfare. It reinvents reality, creating mass hallucinations that then translate into political action." - we should NOW be [repeating it every 47 hours over and over](https://github.com/GreatSealUSA/Brainrot_Society_47), keep repeating, again and again!
+
