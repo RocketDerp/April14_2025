@@ -1789,3 +1789,18 @@ https://old.reddit.com/r/movies/comments/1qrdc1b/catherine_ohara_has_died_at_the
 
 This audience explains so much of celebrity New Yorker socialize Donald J Trump. People's parasocial relationships of anti-reality expectations. A television consumer audience / film consumers / who have competently abandoned nonfiction in favor of mythological storytelling. This is the force of content that drives MAGA media cults.
 
+https://old.reddit.com/r/LiveFromNewYork/comments/1qrdqqq/rip_catherine_ohara/o2nf4gl/
+
+https://old.reddit.com/r/LiveFromNewYork/comments/1qrdqqq/rip_catherine_ohara/o2nh84s/
+
+https://old.reddit.com/r/OldSchoolCool/comments/1qredjj/rip_funny_lady_catherine_ohara_1970s/o2nwp15/
+
+https://old.reddit.com/r/SchittsCreek/comments/1qrd7ma/catherine_ohara_dead_at_71/o2ne1cj/
+
+https://old.reddit.com/r/SchittsCreek/comments/1qrd7ma/catherine_ohara_dead_at_71/o2nal23/
+
+https://old.reddit.com/r/SchittsCreek/comments/1qrd7ma/catherine_ohara_dead_at_71/o2nao31/
+
+https://old.reddit.com/r/SchittsCreek/comments/1qrd7ma/catherine_ohara_dead_at_71/o2ndim0/
+
+Reddit locked replies on this comment.
