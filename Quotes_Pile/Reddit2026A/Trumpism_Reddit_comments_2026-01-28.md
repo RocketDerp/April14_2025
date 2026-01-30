@@ -816,3 +816,8 @@ https://old.reddit.com/r/news/comments/1qr5c17/federal_agents_arrest_don_lemon_o
 
 Yes. dangerous, scared. It's extremely scary how everyone is treating this as entertainment and not quoting Dr. Bandy X Lee's October 3, 2017 nonfiction book and trying to rescue hearts and minds from Putin. Surkov won since March 2013.
 
+https://old.reddit.com/r/news/comments/1qr5c17/federal_agents_arrest_don_lemon_over_minnesota/o2lmdzd/
+
+Just like downvoting and ignoring more serious content on Reddit. Chilling effect.
+
+* "Russia-watcher Catherine Fitzpatrick, who documents Kremlin disinformation for InterpreterMag . com, says just as Moscow uses vague Internet laws to encourage self-censorship, trolls inhibit informed debate by using **crude dialogue to change "the climate of discussion."** "If you show up at The Washington Post or New Republic sites, where there's an article that's critical of Russia, and you see that **there are 200 comments that sound like they were written by 12-year-olds**, then you just don't bother to comment," she says.  "You don't participate. It's a way of just **driving discussion away** completely," she adds. "Those **kinds of tactics are meant to stop democratic debate**, and they work." - **year 2014** https://www.theatlantic.com/international/archive/2014/08/the-kremlins-troll-army/375932/
