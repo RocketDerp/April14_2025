@@ -1804,3 +1804,13 @@ https://old.reddit.com/r/SchittsCreek/comments/1qrd7ma/catherine_ohara_dead_at_7
 https://old.reddit.com/r/SchittsCreek/comments/1qrd7ma/catherine_ohara_dead_at_71/o2ndim0/
 
 Reddit locked replies on this comment.
+
+https://old.reddit.com/r/horror/comments/1qrdium/catherine_ohara_beetlejuice_schitts_creek_and/o2nftb6/
+
+To understand the celebrity audience cult of entertainer Donald Trump...
+
+https://old.reddit.com/r/horror/comments/1qrdium/catherine_ohara_beetlejuice_schitts_creek_and/o2nemep/
+
+https://old.reddit.com/r/horror/comments/1qrdium/catherine_ohara_beetlejuice_schitts_creek_and/o2nhnes/
+
+To understand the celebrity audience cult of entertainer Donald Trump...
