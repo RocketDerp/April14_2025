@@ -1646,3 +1646,7 @@ That's why people love Reddit cloud computing machines, they are so fast and del
 https://old.reddit.com/r/Millennials/comments/1qr2dc1/society_really_did_fail_amy_winehouse/o2l7avu/
 
 Just like Trump fandom. People sharing scraps of his every song and message performance off Truth Social and Fox News on the Reddit fan site.
+
+https://old.reddit.com/r/Millennials/comments/1qr2dc1/society_really_did_fail_amy_winehouse/o2l2pn9/
+
+Reddit fandom adores the no-identity bullshit hate-messaging hate-signaling the Saint Petersburg Internet Research Agency organized since March 2013.
