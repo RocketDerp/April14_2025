@@ -1628,3 +1628,10 @@ https://old.reddit.com/r/whenthe/comments/1qq2u0t/sorry_lads_we_tried_our_best_c
 Reddit moderators banning end-users in mass.
 
 https://old.reddit.com/r/memes/comments/1qqif04/if_youre_an_adult_then_talk_like_one/o2gziw1/
+
+https://old.reddit.com/r/youtube/comments/1qqt8tb/you_can_no_longer_have_youtube_running_in_the/o2jie26/
+
+https://old.reddit.com/r/youtube/comments/1qqt8tb/you_can_no_longer_have_youtube_running_in_the/o2jekck/
+
+https://old.reddit.com/r/youtube/comments/1qqt8tb/you_can_no_longer_have_youtube_running_in_the/o2jrs36/
+
