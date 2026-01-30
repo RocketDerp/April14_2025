@@ -1840,3 +1840,11 @@ https://old.reddit.com/r/whatthefrockk/comments/1qre94s/catherine_ohara_beloved_
 https://old.reddit.com/r/popculturechat/comments/1qrkdgk/bill_gates_caught_std_and_begged_epstein_for/o2owg1j/
 
 I used to be on the private staff of Paul Allen. We toured Bill Gates' house on Mercer Island. People do not grasp how sports teams and software systems are used with the population. The thinking and mindsets of manipulating billions of people, mindshare capture.
+
+https://old.reddit.com/r/popculturechat/comments/1qrkdgk/bill_gates_caught_std_and_begged_epstein_for/o2owzaq/
+
+https://old.reddit.com/r/popculturechat/comments/1qrkdgk/bill_gates_caught_std_and_begged_epstein_for/o2ovo66/
+
+https://old.reddit.com/r/popculturechat/comments/1qrkdgk/bill_gates_caught_std_and_begged_epstein_for/o2oxuuy/
+
+Microsoft and Apple made so much money in the first place by hollowing out education and ignoring all the criticisms and call-outs by Neil Postman. People were trained to become sealed-hood closed-source consumers. I was an INSIDER for Microsoft and Paul Allen and the shoddy customer service (which I did under contract with Software Spectrum in Garland). Hillary Clinton's e-mail was Microsoft Exchange Server... and serious systems were hacked. https://en.wikipedia.org/wiki/2021_Microsoft_Exchange_Server_data_breach
