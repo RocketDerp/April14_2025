@@ -1755,3 +1755,6 @@ https://old.reddit.com/r/popculturechat/comments/1qrdu8i/catherine_ohara_schitts
 
 This is how detached Reddit audiences to celebrity Trump and celebrity film stars and TV stars are. Unable to grasp that famous people are not eternal gods. Trump Jesus audience and fandom.
 
+https://old.reddit.com/r/popculturechat/comments/1qrdu8i/catherine_ohara_schitts_creek_star_and_comedy/o2nies2/
+
+Prayers to Jesus to death-kill an enemy. "Hate thy enemy", "Death-wish the enemy". Tech and machine lovers idea of God is to *hate harder*. Nation of cultists to fiction storytelling. The cult of celebrity Trump.
