@@ -1778,3 +1778,14 @@ Real-world reality mothers are abandoned an hate for choosing celebrity Donald T
 https://old.reddit.com/r/movies/comments/1qrdc1b/catherine_ohara_has_died_at_the_age_of_71/o2nb455/
 
 Audiences behave like death at age 71 makes an appointment in their personal calendar. Complete lack of education and understanding about the most basics of life and death on Earth.
+
+https://old.reddit.com/r/movies/comments/1qrdc1b/catherine_ohara_has_died_at_the_age_of_71/o2nbtoe/
+
+"unexpected" age 71 person dies. 
+
+https://old.reddit.com/r/movies/comments/1qrdc1b/catherine_ohara_has_died_at_the_age_of_71/o2nbety/
+
+https://old.reddit.com/r/movies/comments/1qrdc1b/catherine_ohara_has_died_at_the_age_of_71/o2nchsb/
+
+This audience explains so much of celebrity New Yorker socialize Donald J Trump. People's parasocial relationships of anti-reality expectations. A television consumer audience / film consumers / who have competently abandoned nonfiction in favor of mythological storytelling. This is the force of content that drives MAGA media cults.
+
