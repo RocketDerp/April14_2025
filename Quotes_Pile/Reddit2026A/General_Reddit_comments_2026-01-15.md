@@ -1654,3 +1654,9 @@ Reddit fandom adores the no-identity bullshit hate-messaging hate-signaling the 
 https://old.reddit.com/r/whenthe/comments/1qr4z1r/rpics_and_now_rgifs_situation_update/o2lherd/
 
 Block-happy deport-happy intimidation of magazine burning, book-burning in modern digital form. Trumpland USA MAGA values of year 2026.
+
+https://old.reddit.com/r/lostgeneration/comments/1qr1vrv/we_are_so_smart/o2l0fhm/
+
+Organized low-effort poorly-named postings on front page "We Are So Smart" title that is generic meaning; on-Reddit click-bait. This low-effort anti-intellectual title serves to normalize the situation. It does not offer education on media ecology of WHY important topics get drowned
+
+* "What Orwell feared were those who would ban books. What Huxley feared was that there would be no reason to ban a book, for there would be no one who wanted to read one. Orwell feared those who would deprive us of information. Huxley feared those who would give us so much that we would be reduced to passivity and egoism. Orwell feared that the truth would be concealed from us. Huxley feared the truth would be drowned in a sea of irrelevance." ; "This book is about the possibility that Huxley, not Orwell, was right.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. Year 1985
