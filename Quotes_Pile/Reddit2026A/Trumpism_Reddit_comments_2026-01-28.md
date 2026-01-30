@@ -708,3 +708,7 @@ https://old.reddit.com/r/UnderReportedNews/comments/1qqip6j/trump_hangs_putin_po
 https://old.reddit.com/r/UnderReportedNews/comments/1qqip6j/trump_hangs_putin_portrait_in_white_house_palm/o2hkvfe/
 
 Trump fanatic. Fandom of Trump looking forward to more MAGA content. "hilarious". 
+
+https://old.reddit.com/r/MurderedByWords/comments/1qqmdrx/says_more_about_him/o2hsia1/
+
+"cult"
