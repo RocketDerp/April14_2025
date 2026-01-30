@@ -44,4 +44,4 @@ America is still the best country in the world.  Even without knowing you I have
 
 &nbsp;
 
-* My emphasis: "for no reason", "we really are winning" - but rejecting everything Malala and Dr. Martin Luther King Jr. educated us about. MLK Jr influence has been shit out since year 2012, especially on the topic of hate. Pollyanna. Denial of Putin's Internet influence and behavior changes since year 2013.
+* My emphasis: "for no reason", "we really are winning" - but rejecting everything Malala and Dr. Martin Luther King Jr. educated us about. MLK Jr influence has been shit out since year 2012, especially on the topic of hate. Pollyanna. Denial of Putin's Internet influence and behavior changes since year 2013. "bunch of obvious symptoms of a serious case of TDS" (Trump Derangement Syndrome)
