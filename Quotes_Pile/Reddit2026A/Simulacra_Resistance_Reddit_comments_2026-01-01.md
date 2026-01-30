@@ -623,3 +623,12 @@ https://old.reddit.com/r/wisconsin/comments/1qq8m7u/liberal_wisconsin_brewing_co
 This entire Reddit front-page posting is simulation of resistance. Reddit audience is being programmed by this content to be passive and not have a social media uprising RIGHT NOW. AVOIDING: Promoting Jen Senko's nonfiction film about brainwashing. https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad Dr. Bandy X Lee's October 3, 2017 book about Trump / MAGA mental health issues. https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad
 
 Instead of using social media ACTIVELY to address the cult issues of Fox News HDTV media, cult issues of Trump hate-watching fandoms... wait around and be entertained until one person dies. That doesn't address the hundreds of millions of cult members to Charlie Kirk science fiction podcasts, Rupert Murdoch fiction media, Putin's information warfare cultists, etc.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qqdhw4/the_grieving_widow_enjoying_the_best_thing_that/o2fyken/
+
+And again, Charlie Kirk content to front page of /r/All - fandom on Reddit can't resist Kirk. Yes, a "Truman Show" that Reddit audiences hang on every breaking news. This Reddit commenting section isn't resisting.
+
+https://old.reddit.com/r/clevercomebacks/comments/1qqbh9x/widow_of_the_year/o2ff46m/
+
+And ANOTHER time Charlie Kirk / Erica Kirk fandom on Reddit puts it on front page /r/All - the fandom can never get enough of Kirk content. Fiction attraction, attractive nuisance like Trump family. https://en.wikipedia.org/wiki/Attractive_nuisance_doctrine
+

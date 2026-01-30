@@ -1626,3 +1626,37 @@ Tech society Reddit. People love what billionaires have been investing in. A 1.5
 https://old.reddit.com/r/whenthe/comments/1qq2u0t/sorry_lads_we_tried_our_best_check_pinned_comment/o2dk6i9/
 
 Reddit moderators banning end-users in mass.
+
+https://old.reddit.com/r/memes/comments/1qqif04/if_youre_an_adult_then_talk_like_one/o2gziw1/
+
+https://old.reddit.com/r/youtube/comments/1qqt8tb/you_can_no_longer_have_youtube_running_in_the/o2jie26/
+
+https://old.reddit.com/r/youtube/comments/1qqt8tb/you_can_no_longer_have_youtube_running_in_the/o2jekck/
+
+https://old.reddit.com/r/youtube/comments/1qqt8tb/you_can_no_longer_have_youtube_running_in_the/o2jrs36/
+
+https://old.reddit.com/r/Millennials/comments/1qr2dc1/society_really_did_fail_amy_winehouse/o2l2eps/
+
+6 month Reddit account, top-upvoted popular comment.
+
+https://old.reddit.com/r/Millennials/comments/1qr2dc1/society_really_did_fail_amy_winehouse/o2l1rxs/
+
+That's why people love Reddit cloud computing machines, they are so fast and deliver content on demand. A live performance with a troubled soul who sings about troubles is... hate-worthy and mock-worthy. Because humans are not machines. And it's scary that people prize the humans who "act the best" in films and such when real people do not behave like edited and practiced performers in troubling situations. Except when Russia mind-fucked the population to regard MAGA cult to be entertainment, they crowds act in predicable conditioned reposes to horrors.
+
+https://old.reddit.com/r/Millennials/comments/1qr2dc1/society_really_did_fail_amy_winehouse/o2l7avu/
+
+Just like Trump fandom. People sharing scraps of his every song and message performance off Truth Social and Fox News on the Reddit fan site.
+
+https://old.reddit.com/r/Millennials/comments/1qr2dc1/society_really_did_fail_amy_winehouse/o2l2pn9/
+
+Reddit fandom adores the no-identity bullshit hate-messaging hate-signaling the Saint Petersburg Internet Research Agency organized since March 2013.
+
+https://old.reddit.com/r/whenthe/comments/1qr4z1r/rpics_and_now_rgifs_situation_update/o2lherd/
+
+Block-happy deport-happy intimidation of magazine burning, book-burning in modern digital form. Trumpland USA MAGA values of year 2026.
+
+https://old.reddit.com/r/lostgeneration/comments/1qr1vrv/we_are_so_smart/o2l0fhm/
+
+Organized low-effort poorly-named postings on front page "We Are So Smart" title that is generic meaning; on-Reddit click-bait. This low-effort anti-intellectual title serves to normalize the situation. It does not offer education on media ecology of WHY important topics get drowned
+
+* "What Orwell feared were those who would ban books. What Huxley feared was that there would be no reason to ban a book, for there would be no one who wanted to read one. Orwell feared those who would deprive us of information. Huxley feared those who would give us so much that we would be reduced to passivity and egoism. Orwell feared that the truth would be concealed from us. Huxley feared the truth would be drowned in a sea of irrelevance." ; "This book is about the possibility that Huxley, not Orwell, was right.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. Year 1985

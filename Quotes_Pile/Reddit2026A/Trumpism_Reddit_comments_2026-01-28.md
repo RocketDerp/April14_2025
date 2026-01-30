@@ -426,3 +426,456 @@ Translated from 2013 Russia to USA 2025: I.C.E. raids are very little violence a
 https://old.reddit.com/r/Leakednews/comments/1qqco0e/i_am_stunned_by_this_video_this_is_the_problem/o2fymdk/
 
 yes. Disturbing the peace. Manipulating the fandom. Organized gaslighitng of the Reddit audience and an entire city / nation. But people on Bluesky and Reddit social media keep commenting about it over and over, day after day, night after night, commenting and commenting instead of organizing a social media uprising to promote mental health call-outs from Dr. Bandy X Lee. SEE_ALSO https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Bandy_X_Lee/Bandy_X_Lee_Gaslighitng_Crazy.md
+
+https://old.reddit.com/r/Leakednews/comments/1qqco0e/i_am_stunned_by_this_video_this_is_the_problem/o2fo9zo/
+
+9 month Reddit account. Active messaging to normalize this as predictable and to expect more. Short-length Tweet-think Twitter-thinking mind pattern to mind-fuck the Reddit audience into continued anti-goodness mindsets.
+
+https://old.reddit.com/r/politics/comments/1qqckm7/warner_why_is_tulsi_gabbard_at_an_fbi_raid_on_an/o2fvejw/
+
+https://old.reddit.com/r/politics/comments/1qqckm7/warner_why_is_tulsi_gabbard_at_an_fbi_raid_on_an/o2fklbg/
+
+media
+
+https://old.reddit.com/r/politics/comments/1qqckm7/warner_why_is_tulsi_gabbard_at_an_fbi_raid_on_an/o2fkq2g/
+
+Russian
+
+https://old.reddit.com/r/politics/comments/1qqckm7/warner_why_is_tulsi_gabbard_at_an_fbi_raid_on_an/o2fm8eq/
+
+<img width="1218" height="411" alt="image" src="https://github.com/user-attachments/assets/ecb8d2f9-e82d-4ae4-910e-31b768244623" />
+
+Social post { https://autistics.life/@RoundSparrow/115979987002003633 https://bsky.app/profile/roundsparrow.bsky.social/post/3mdlirhjr6222 }
+
+https://old.reddit.com/r/politics/comments/1qqckm7/warner_why_is_tulsi_gabbard_at_an_fbi_raid_on_an/o2flnk3/
+
+4 month Reddit account. Extreme low-effort comment to normalize junk information. Non-specific. Popular: Upvoted.
+
+https://old.reddit.com/r/politics/comments/1qqckm7/warner_why_is_tulsi_gabbard_at_an_fbi_raid_on_an/o2fonss/
+
+"Russian asset", short-message.
+
+https://old.reddit.com/r/politics/comments/1qqckm7/warner_why_is_tulsi_gabbard_at_an_fbi_raid_on_an/o2fp0zw/
+
+"Russia", short-message.
+
+https://old.reddit.com/r/politics/comments/1qqckm7/warner_why_is_tulsi_gabbard_at_an_fbi_raid_on_an/o2fr67b/
+
+"Russian asset", "LMAO" laugh-track for Reddit audience / fandom of the Kremlin Reality content media.
+
+https://old.reddit.com/r/politics/comments/1qqckm7/warner_why_is_tulsi_gabbard_at_an_fbi_raid_on_an/o2fy7r8/
+
+"Russia"
+
+https://old.reddit.com/r/politics/comments/1qqckm7/warner_why_is_tulsi_gabbard_at_an_fbi_raid_on_an/o2fs0ol/
+
+1 year account. "Russian agent"
+
+https://old.reddit.com/r/politics/comments/1qqckm7/warner_why_is_tulsi_gabbard_at_an_fbi_raid_on_an/o2fxgoi/
+
+"Can we skip to" - do nothing messages, just zoom ahead fast-forward on the media content. Message to Trump fandom on Reddit: No concern to organize a social media uprising and assert Dr. Bandy X Lee about the mental health national situation.
+
+https://old.reddit.com/r/politics/comments/1qqckm7/warner_why_is_tulsi_gabbard_at_an_fbi_raid_on_an/o2fw6qu/
+
+Describing the "Russian nesting doll" but no concern to organize or resist badness trajectory. Messages to make the Reddit audience to Trump passive and spectators to sports. "We The People" of social media are merely an audience, mental programming.
+
+https://old.reddit.com/r/politics/comments/1qqckm7/warner_why_is_tulsi_gabbard_at_an_fbi_raid_on_an/o2gb9xs/
+
+"Russia"
+
+https://old.reddit.com/r/politics/comments/1qqckm7/warner_why_is_tulsi_gabbard_at_an_fbi_raid_on_an/o2fv2st/
+
+14 day Reddit account. "RUSSIAN ASSET". Link to off-Reddit. Message... no concern to organize or resist badness trajectory.
+
+https://old.reddit.com/r/politics/comments/1qqckm7/warner_why_is_tulsi_gabbard_at_an_fbi_raid_on_an/o2fsujb/
+
+"hard to understand", downplaying the junk information all over Reddit that makes comprehension and understanding of the most sophisticated information warfare very difficult.
+
+https://old.reddit.com/r/politics/comments/1qqckm7/warner_why_is_tulsi_gabbard_at_an_fbi_raid_on_an/o2g1gb9/
+
+10 month Reddit account. "Russian stooge"
+
+https://old.reddit.com/r/politics/comments/1qqckm7/warner_why_is_tulsi_gabbard_at_an_fbi_raid_on_an/o2gc9qq/
+
+"Really don't understand" why wild and unusual choices get made. On Reddit, the media platform that posts anything unusual or odd on any topic across the entire Internet. People stimulated on Reddit when an unusual animal pet trick is done, when a kitten or cat has a unique color, when any sports player does anything unusual or unexpected, flocking to unusual content. Reddit user unable to grasp Surkov information warfare exploits this very behavior, making Reddit ground zero for distributing Maximum Putinization mindsetting content from Surkov students throughout the society. President Tony Clifton antics and acting gets Trumpism constant mind-blowing (to Reddit audience) content media coverage.
+
+* "what Putin will do next — that he’s unpredictable and thus dangerous. We’re rendered stunned, spun, and flummoxed by the Kremlin’s weaponization of absurdity and unreality.” - **year 2014**. September 9, 2014 https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/worldnews/comments/1qqf9sx/bc_premier_says_alberta_separatists_seeking/o2g6zqu/
+
+5 month Reddit account. Top-voted front page /r/All comment. Tweet-think Twitter-length. AVOIDING: topic of Putin and Trump going against all NATO.
+
+https://old.reddit.com/r/worldnews/comments/1qqf9sx/bc_premier_says_alberta_separatists_seeking/o2g6030/
+
+https://old.reddit.com/r/worldnews/comments/1qqf9sx/bc_premier_says_alberta_separatists_seeking/o2g79gb/
+
+"insane"
+
+https://old.reddit.com/r/worldnews/comments/1qqf9sx/bc_premier_says_alberta_separatists_seeking/o2gew8t/
+
+17 day Reddit account. Blaming Biden, and not blaming Reddit social for normalize Russia's information warfare and addiction to Trump content as humor, comedy. The comedy-washing white-washing that Reddit and other social media systems have done to Trump. "LOL cow milking" of MAGA / Trump / Putin / Ukraine war for amusement content on Reddit. https://old.Reddit.com/r/youtubedrama/comments/18eohai/what_is_a_lolcow/
+
+https://old.reddit.com/r/stevehofstetter/comments/1qqbhyr/the_new_alex_petti_video_doesnt_show_what_they/o2fdml0/
+
+4 month Reddit account. Top-upvoted comment on front-page /r/All posting.
+
+https://old.reddit.com/r/stevehofstetter/comments/1qqbhyr/the_new_alex_petti_video_doesnt_show_what_they/o2fce3j/
+
+https://old.reddit.com/r/stevehofstetter/comments/1qqbhyr/the_new_alex_petti_video_doesnt_show_what_they/o2g68i3/
+
+https://old.reddit.com/r/stevehofstetter/comments/1qqbhyr/the_new_alex_petti_video_doesnt_show_what_they/o2fcrv8/
+
+Video reality.
+
+https://old.reddit.com/r/stevehofstetter/comments/1qqbhyr/the_new_alex_petti_video_doesnt_show_what_they/o2fmyb0/
+
+People hate people and love the power of machines and tech to dehumanize people. Filter-bubble egoism..
+
+https://old.reddit.com/r/stevehofstetter/comments/1qqbhyr/the_new_alex_petti_video_doesnt_show_what_they/o2fwr6f/
+
+"sane country"
+
+https://old.reddit.com/r/stevehofstetter/comments/1qqbhyr/the_new_alex_petti_video_doesnt_show_what_they/o2feps2/
+
+Reality of the video in question. Surkovian dystopia.
+
+
+https://old.reddit.com/r/MurderedByWords/comments/1qqa243/oh_the_horror_the_violence/o2f276n/
+
+Left-right brain rot. Founding Fathers did not in year 1776 lay this thinking foundation. The posting itself emphases "LMAO", "FAFO" mindsets (mob mentality) - which are meme-think amusement humor mindsets. The entire nation needs to face up to the media ecology learning of Neil Postman's 1985 book. Just last year: September 10, 2025: https://Time.com/7313999/neil-postman-trump-prediction/
+
+https://old.reddit.com/r/Damnthatsinteresting/comments/1qqf6kb/measles_cases_in_the_usa_in_january_2026_have/o2g7o1z/
+
+Pro-measles information warfare since year 2014 does not get discussed on Reddit. Organized military effort to spread disease via mental manipulation. August 24, 2018: https://www.BBC.com/news/world-us-canada-45294192
+
+https://old.reddit.com/r/Damnthatsinteresting/comments/1qqf6kb/measles_cases_in_the_usa_in_january_2026_have/o2gbjwa/
+
+https://old.reddit.com/r/Damnthatsinteresting/comments/1qqf6kb/measles_cases_in_the_usa_in_january_2026_have/o2g4ws8/
+
+Organized military effort to spread measles via mental manipulation. August 24, 2018: https://www.BBC.com/news/world-us-canada-45294192
+
+https://old.reddit.com/r/Damnthatsinteresting/comments/1qqf6kb/measles_cases_in_the_usa_in_january_2026_have/o2gdpu4/
+
+The most sophisticated military information warfare ever devised by humanity. Deployed against the population via Reddit, Twitter, Facebook, YouTube, etc social media. Public was notified... August 24, 2018: https://www.BBC.com/news/world-us-canada-45294192 and June 2, 2014: https://www.buzzfeednews.com/article/maxseddon/documents-show-how-russias-troll-army-hit-america - and Reddit meme-washed humor-washed white-washed it as "nothingburger" and "LOL Russia can't beat Ukraine, military run down and outdated" mindsets for jokes and comedy. Surkov won.
+
+https://old.reddit.com/r/PoliticalHumor/comments/1qqdh39/maga_sighs_of_relief/o2fxapl/
+
+The place is Reddit commenting section. Where all Russia information warfare against NATO gets /r/PoliticalHumor subreddit to humor-washed, mocked away, meme-wrapped, amusement-mocked. Where no-identity garbage commenting is prized above nonfiction book learning. Reddit is a hate-MAGA training camp of *hate harder* messaging and MAGA values. ANYTHING to avoid repeat-until-understood by everyone... nonfiction serious book like Dr. Bandy X Lee on mental health. ANYTHING to avoid repeating content that would actually TREAT and HELP MAGA get out of the Kremlin information warfare simulations that started from the Saint Petersburg Internet Research Agency in Q2 2013. ANYTHING to avoid sustained focus and *everyone on the same page* of mental health topics, such as: https://www.scientificamerican.com/article/the-shared-psychosis-of-donald-trump-and-his-loyalists/
+
+https://old.reddit.com/r/PoliticalHumor/comments/1qqdh39/maga_sighs_of_relief/o2g3o2d/
+
+Reddit fandom of ICE content is so engaged! Drama, chaos, ANYTHING to avoid quoting and repeating over and over this nonfiction book:
+
+* “Chaos and disruption, I later learned, are central tenets of Bannon's animating ideology. Before catalyzing America's dharmic rebalancing, his movement would first need to instill chaos through society so that a new order could emerge. He was an avid reader of a computer scientist and armchair philosopher who goes by the name Mencius Moldbug, a hero of the alt-right who writes long-winded essays attacking democracy and virtually everything about how modern societies are ordered. Moldbug’s views on truth influenced Bannon, and what Cambridge Analytica would become. Moldbug has written that “nonsense is a more effective organizing tool than the truth,” and Bannon embraced this. “Anyone can believe in the truth,” Moldbug writes, “to believe in nonsense is an unforgettable demonstration of loyalty. It serves as a political uniform. And if you have a uniform, you have an army.”
+― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the [Plot to Break America, page 85](https://books.google.com/books?id=8OW2DwAAQBAJ&pg=PA85&dq=%22serves+as+a+political+uniform.+And+if+you+have+a+uniform,+you+have+an+army.%E2%80%9D&hl=en&newbks=1&newbks_redir=1&sa=X). **year 2019**
+
+CONEXT_ASSERTION: year 2019 published book comes before "Project 2025" became the Reddit training camp fixation and focus. The book was not repeated in Reddit commenting back in year 2019 or 2020, January 6 20201, year 2024, etc.
+
+https://old.reddit.com/r/PoliticalHumor/comments/1qqdh39/maga_sighs_of_relief/o2g9uah/
+
+Reddit mind training camp: Truth doesn't matter. Billionaires can use their powerful media systems to **dump anti-reality upon the population**, that doesn't matter. What matters is Twitter-length low-effort short-length commenting messages hour after hour, day after day, all avoiding serious nonfiction books. Avoiding getting on the same page of rescuing MAGA, removing Trump from office, information warfare against NATO, etc. 
+
+* From September 9, 2014 - 11 years 4 months and some 20 days ago, which is **more than a decade** - we could have kept repeating it and defeated Putin's takeover of USA hearts and minds: https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ "Russia and the Menace of Unreality: How Vladimir Putin is revolutionizing information warfare. By Peter Pomerantsev. At the NATO summit in Wales last week, General Philip Breedlove, the military alliance’s top commander, made a bold declaration. Russia, he said, is waging “the **most amazing information warfare blitzkrieg we have ever seen in the history of information warfare.**” It was something of an underestimation. The new Russia doesn’t just deal in the petty disinformation, forgeries, lies, leaks, and cyber-sabotage usually associated with information warfare. It reinvents reality, creating mass hallucinations that then translate into political action." - we should NOW be [repeating it every 47 hours over and over](https://github.com/GreatSealUSA/Brainrot_Society_47), keep repeating, again and again!
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1qqjigi/after_destroying_cbs_newss_legendary_reputation/o2h1ztp/
+
+Putin has mind-fucked the population into self-harming the USA and self-harm to NATO. Attacking Canada and Greenland for no good reason. But people are unable to engage serious nonfiction learning in favor of low-effort high-speed "rush speed" commenting on incredibly fast information systems. Surkov won since March of year 2013. Ukraine was the front line February 20, 2014 for a world wide web information war.
+
+On the world stage, USA news sources like CBS, Reddit /r/news look incredibly gullible and easy to manipulate. The entire USA leadership in information sources and reliable information is wrecked. Surkov won.
+
+* Russia's agenda spelled out in year 2014. "Joke of NATO" - December 5, 2014 https://github.com/RocketDerp/April14_2025/blob/main/Art/ScreenPlay/USA/Joke_of_NATO.md
+
+https://old.reddit.com/r/books/comments/1qq7hny/oklahoma_teacher_lost_teaching_license_after/o2ehwx6/
+
+https://old.reddit.com/r/books/comments/1qq7hny/oklahoma_teacher_lost_teaching_license_after/o2egnxs/
+
+Tech fandom of Reddit, technology worship. The block button is the burn magazine burn book ban book button. Very popular since introduced to social systems. Silence the Unicode messages of people that disagree. Peer to peer book burning. Machine tech mindsets.
+
+* “With the rise of Technopoly, one of those thought-worlds disappears. Technopoly eliminates alternatives to itself in precisely the way Aldous Huxley outlined in Brave New World. It does not make them illegal. It does not make them immoral. It does not even make them unpopular. It makes them invisible and therefore irrelevant. And it does so by redefining what we mean by religion, by art, by family, by politics, by history, by truth, by privacy, by intelligence, so that our definitions fit its new requirements. Technopoly, in other words, is totalitarian technocracy.” ― Neil Postman, Technopoly: The Surrender of Culture to Technology. Year 1992
+
+* “Technopoly is a state of culture. It is also a state of mind. It consists in the deification of technology, which means that the culture seeks its authorization in technology, finds its satisfactions in technology, and takes its orders from technology.” ― Neil Postman, Technopoly: The Surrender of Culture to Technology. Year 1992.
+
+https://old.reddit.com/r/books/comments/1qq7hny/oklahoma_teacher_lost_teaching_license_after/o2eyc6n/
+
+Egoism has so many defenders.
+
+https://old.reddit.com/r/books/comments/1qq7hny/oklahoma_teacher_lost_teaching_license_after/o2ekckk/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qqhwqc/trump_theres_so_much_talk_about_how_were_going_to/o2gpvo4/
+
+On way to get free health care is support real estate and golf course owners like the Luigi M. family and Donald Trump family. If rent is increased from $1,600 a month to $7,200 a month and such - then perhaps health care can be part of the rent! You see so few people in USA grasp what is happening with "private land" and the rules of "private business" and how you can block people on "private Reddit media"... private "Fox News" can sell fiction entertainment news! The Second Bill of Rights from January 1944 should be something every person has cited in the face of MAGA and Putin's rise in power over USA. https://en.wikipedia.org/wiki/Second_Bill_of_Rights
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qqhwqc/trump_theres_so_much_talk_about_how_were_going_to/o2gr6mx/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qqhwqc/trump_theres_so_much_talk_about_how_were_going_to/o2gqpg4/
+
+Entertaining Reddit audiences with video and breaking news constantly. Fandom of Trump that prizes every Trump photo and image to mock away at. While nonfiction serious learning is abandoned in favor of Trump content,
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qqhwqc/trump_theres_so_much_talk_about_how_were_going_to/o2h8hss/
+
+8 month Reddit account.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qqhwqc/trump_theres_so_much_talk_about_how_were_going_to/o2ham8f/
+
+Rare someone stand up to the constant dementia-washing that goes on with Reddit audience. This is not ONE MAN who is the entire federal government, ICE, etc. The entire Fox News HDTV audience isn't dementia. It's Russian information warfare, Cambridge Analytica mental manipulation. The fixation on one single age 79 man discounts that JD Vance isn't age 79.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qqhwqc/trump_theres_so_much_talk_about_how_were_going_to/o2hc7cb/
+
+Trump provides fiction storytelling for Reddit audiences that avoid nonfiction. Trump provides content satire, mocking, absurd comedy, surreal humor that media junkies desire all the time as stimulation. Trump fandom. Delivered at high speeds over TCP/IP by Reddit servers. Always more mocking. Anything to avoid nonfiction learning about entertainment based POTUS. The meme POTUS for meme addictions.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qqhwqc/trump_theres_so_much_talk_about_how_were_going_to/o2grkae/
+
+Fiction content outsells nonfiction.
+
+https://old.reddit.com/r/RealOrAI/comments/1qqb9f3/help_nyt_shows_new_angle/o2femtc/
+
+MAGA / ICE / Trump creates constant stimulating aggressive media content for audiences. Other leaders would not provide so much media content for meme sites and commenting crowds.
+
+https://old.reddit.com/r/RealOrAI/comments/1qqb9f3/help_nyt_shows_new_angle/o2f9yek/
+
+So much media engagement on if it is real, what it means, etc. ANYTHING but turn to established nonfiction books about mental health of MAGA and Trump. Dr. Bandy X Lee's nonfiction book since October 3, 2017 should be asserted and repeated - but is instead... avoided.
+
+https://old.reddit.com/r/RealOrAI/comments/1qqb9f3/help_nyt_shows_new_angle/o2gs3ro/
+
+"insane"
+
+https://old.reddit.com/r/RealOrAI/comments/1qqb9f3/help_nyt_shows_new_angle/o2ff24x/
+
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1qqigdd/joe_calls_out_the_hip_hop_community_for_their/o2h145q/
+
+Social media isn't standing up to call out the mental health crisis. Dr. Bandy X Lee's leadership is largely ignored.
+
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1qqigdd/joe_calls_out_the_hip_hop_community_for_their/o2hem1x/
+
+"You read that right: HE KEEPS A PICTURE OF 'PAC AND PUTIN ON HIS DESK" https://theworld.org/stories/2016/07/30/putin-aide-vladislav-surkov-too-busy-bumping-tupac-care-about-us-sanctions-against-russia
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qqip6j/trump_hangs_putin_portrait_in_white_house_palm/o2gxjs0/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qqip6j/trump_hangs_putin_portrait_in_white_house_palm/o2h407r/
+
+Surkov won. Gloating was back in February 12, 2019: https://www.newsweek.com/russia-president-vladimir-putin-election-americans-1327793
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qqip6j/trump_hangs_putin_portrait_in_white_house_palm/o2haazx/
+
+Left-right brain rot. **Fiction vs. nonfiction** is the crisis. Founding Fathers did not teach left vs. right in year 1776 thinking foundation. The entire nation needs to face up to the media ecology learning of Neil Postman's 1985 book. Just last year: September 10, 2025: https://Time.com/7313999/neil-postman-trump-prediction/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qqip6j/trump_hangs_putin_portrait_in_white_house_palm/o2h4bl2/
+
+7 month Reddit account "real"
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qqip6j/trump_hangs_putin_portrait_in_white_house_palm/o2h5ipq/
+
+3 month Reddit account.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qqip6j/trump_hangs_putin_portrait_in_white_house_palm/o2hg0h5/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qqip6j/trump_hangs_putin_portrait_in_white_house_palm/o2h4om2/
+
+7 month Reddit account.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qqip6j/trump_hangs_putin_portrait_in_white_house_palm/o2h2f4c/
+
+11 month Reddit account.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qqip6j/trump_hangs_putin_portrait_in_white_house_palm/o2hb63t/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qqip6j/trump_hangs_putin_portrait_in_white_house_palm/o2h5w9t/
+
+11 month Reddit account. "LMAO" at the Trump antics. Laugh track for Reddit audience.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qqip6j/trump_hangs_putin_portrait_in_white_house_palm/o2hfmds/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qqip6j/trump_hangs_putin_portrait_in_white_house_palm/o2hhyym/
+
+7 month Reddit account. Celebrating the USA takeover.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qqip6j/trump_hangs_putin_portrait_in_white_house_palm/o2hgg89/
+
+6 month Reddit account.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qqip6j/trump_hangs_putin_portrait_in_white_house_palm/o2hjvxe/
+
+Surkov won since March 2013. People are only awake to LOL LOL LOL at Trump and Putin antics all day.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qqip6j/trump_hangs_putin_portrait_in_white_house_palm/o2hh42v/
+
+"insane"
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qqip6j/trump_hangs_putin_portrait_in_white_house_palm/o2hkcgo/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qqip6j/trump_hangs_putin_portrait_in_white_house_palm/o2hkojg/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qqip6j/trump_hangs_putin_portrait_in_white_house_palm/o2hkvfe/
+
+Trump fanatic. Fandom of Trump looking forward to more MAGA content. "hilarious". 
+
+https://old.reddit.com/r/MurderedByWords/comments/1qqmdrx/says_more_about_him/o2hsia1/
+
+"cult"
+
+https://old.reddit.com/r/news/comments/1qqfols/us_trade_deficit_widens_by_the_most_in_nearly_34/o2gaezl/
+
+https://old.reddit.com/r/news/comments/1qqfols/us_trade_deficit_widens_by_the_most_in_nearly_34/o2go8a8/
+
+https://old.reddit.com/r/law/comments/1qqmp7n/kash_patel_sets_off_diplomatic_incident_with_fbi/o2il62y/
+
+10 month Reddit account.
+
+https://old.reddit.com/r/law/comments/1qqmp7n/kash_patel_sets_off_diplomatic_incident_with_fbi/o2i6ogj/
+
+Maybe people will stop calling Trump ministration "do nothing", and lazy, and only on the Internet with Twitter. People seem incapable of recognizing the program of harm and mass dehumanization underway and how hard people labor at peeling away goodness.
+
+https://old.reddit.com/r/technology/comments/1qqy7wy/libs_of_tiktok_is_doxxing_teachers_and_nurses_who/o2kbh0x/
+
+* “World War III is a guerrilla information war with no division between military and civilian participation.” – Marshall McLuhan (1970), Culture is Our Business, p. 66.
+
+https://old.reddit.com/r/technology/comments/1qqy7wy/libs_of_tiktok_is_doxxing_teachers_and_nurses_who/o2k914f/
+
+Reddit audience members mocking a mockery. Mockery on Reddit mocking other social media users who are mocking in perpetual feedback loops. This is by design of the Putin information warfare, this is the programmed mindset logic of Russia's information warfare. Mocking mocking mockery.
+
+https://old.reddit.com/r/technology/comments/1qqy7wy/libs_of_tiktok_is_doxxing_teachers_and_nurses_who/o2kbhc8/
+
+"mentally disturbed"
+
+https://old.reddit.com/r/technology/comments/1qqy7wy/libs_of_tiktok_is_doxxing_teachers_and_nurses_who/o2kc4wv/
+
+On Reddit: Anything but blame Cambridge Analytica psychology doctors. Anything but turn to Dr. Bandy X Lee's leadership on mental health.
+
+https://old.reddit.com/r/technology/comments/1qqy7wy/libs_of_tiktok_is_doxxing_teachers_and_nurses_who/o2kj40w/
+
+4 month Reddit account. Playing up the audience idea that elections are normal and just keep commenting as usual.
+
+https://old.reddit.com/r/technology/comments/1qqy7wy/libs_of_tiktok_is_doxxing_teachers_and_nurses_who/o2kddrm/
+
+6 month Reddit accounnt.
+
+https://old.reddit.com/r/technology/comments/1qqy7wy/libs_of_tiktok_is_doxxing_teachers_and_nurses_who/o2kh2p0/
+
+"Funny", comedy-washing, min blown. Entirely unable to recognize the forest for the trees that this is exactly the inversion of values that Surkov information warfare exploits. It isn't "funny" and entertaining, it is exactly why Dr. Bandy X Lee's leadership is essential and all people should be quoting an teaching to follow her leadership.
+
+https://old.reddit.com/r/technology/comments/1qqy7wy/libs_of_tiktok_is_doxxing_teachers_and_nurses_who/o2ke0fd/
+
+https://old.reddit.com/r/technology/comments/1qqy7wy/libs_of_tiktok_is_doxxing_teachers_and_nurses_who/o2kjlt4/
+
+https://old.reddit.com/r/ExplainTheJoke/comments/1qqxhd6/why_is_he_a_nai/o2k37mi/
+
+https://old.reddit.com/r/worldnews/comments/1qr048e/trump_strangely_warns_canada_that_china_will/o2kklzw/
+
+In response to the posting: Canada, Hockey. Comment writer is eating the Surkov onion, dementia-washing Russian information warfare. See: https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Reddit2025A/Surkovian_Onion_Eating.md Predictable short Twitter-length Tweet-think messaging and mindsets.
+
+* "what Putin will do next — that he’s unpredictable and thus dangerous. We’re rendered stunned, spun, and flummoxed by the Kremlin’s weaponization of absurdity and unreality.” - **year 2014**. September 9, 2014  https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/worldnews/comments/1qr048e/trump_strangely_warns_canada_that_china_will/o2kpa8p/
+
+1 month Reddit account. Directing the Reddit audience to only mind election day voting, not the Reddit comment voting / social media behaviors of Trump and how it interacts with the social media voting of Reddit comment section. ANYTHING to avoid turning to Dr. Bandy X Lee's nonfiction serious leadership. The low-effort joke commenting that Trump's antis comments about { hockey, China, Canada } create. It puts the USA society focused on commenting and making memes and jokes about Trump. It turns Trump into a constant source of Reddit commenting stimulation. Instead of REMOVING Trump from office, the audience in USA engages the content Trump initiates.
+
+https://old.reddit.com/r/worldnews/comments/1qr048e/trump_strangely_warns_canada_that_china_will/o2kldww/
+
+Reply after reply to this message that 1) ignore Dr. Bandy X Lee and will not quote professional nonfiction books on paper. 2) Eating the Surkov onions and think this is dumb. Turning the USA into a source of mockery and humor jokes is the very Surkov technique that blows minds, weaponized humor.
+
+See: https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Reddit2025A/Surkovian_Onion_Eating.md 
+
+
+https://old.reddit.com/r/law/comments/1qqr1jq/trump_signs_executive_order_declaring_nation/o2is0ol/
+
+Dementia-washing by Reddit media creators. Surkovian onion eater. See: https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Reddit2025A/Surkovian_Onion_Eating.md Predictable short Twitter-length Tweet-think messaging and mindsets.
+
+https://old.reddit.com/r/law/comments/1qqr1jq/trump_signs_executive_order_declaring_nation/o2iotfi/
+
+*  Published January 2015, before Trump started run for office in June 2015: https://www.Politico.com/magazine/story/2015/01/putin-russia-tv-113960/ At one end of the table sat one of the country’s most famous political TV presenters. He was small and spoke fast, with a smoky voice: “We all know there will be no real politics,” he said. “But we still have to give our viewers the sense something is happening. They need to be kept entertained.” “So what should we play with?” he asked. **“Shall we attack oligarchs? Who’s the enemy this week?** Politics has got to feel like a movie!”
+
+https://old.reddit.com/r/law/comments/1qqr1jq/trump_signs_executive_order_declaring_nation/o2j2hgt/
+
+Someone in Reddit audience suggests that maybe it is intentional. But unable to name Surkov governing techniques.
+
+* "what Putin will do next — that he’s unpredictable and thus dangerous. We’re rendered stunned, spun, and flummoxed by the Kremlin’s weaponization of absurdity and unreality.” - **year 2014**. September 9, 2014  https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/politics/comments/1qr520s/don_lemon_taken_into_custody/o2ligxw/
+
+Most popular comment, upvoted. Twitter-length. Twitter-thinking, simplistic. The cult of Trump media and cult of Putin's anti-NATO "high energy" leadership style doesn't go away. Hitler in Germany went to jail and it only grew his reputation. Trump is a "bad guy" and people have been programmed mentally to seek out bad leadership and self-harm the USA.
+
+Why is social media right now, today, not making Dr. Bandy X Lee a constant topic of assertion... because people are conditioned to seek out low-effort passive-nothing commenting like this top comment on Reddit. Every hour of every day social media users do not call for organised cult deprogramming.
+
+https://old.reddit.com/r/politics/comments/1qr520s/don_lemon_taken_into_custody/o2li41z/
+
+Extreme tiny-short commenting replies "yes, this is fascism". Which is in no way **resisting** it, it's just a declarative mindset. Like an audience member commenting upon a science fiction film about a character's action. People with spare time and free time are attracted to seek out Trump content and antics and comment upon them. This has been going on day after day, year after year, the fandom of Trump antics. The entertainment fandom of Trump leadership.
+
+https://old.reddit.com/r/politics/comments/1qr520s/don_lemon_taken_into_custody/o2lmzaw/
+
+Anti-forgiveness, *hate harder* messaging, anti-education, anti-teaching, anti-learning, anti-progress. Anti-Malala. Anti-MLKjr. Wanting to lock in the MAGA trajectory of worse and worse billionaires like Rupert Murdoch Fox News HDTV, Elon Musk HDTV, Putin's Internet Research Agency - and just let the situaiton keep advancing into more and more self-harm of USA.
+
+https://old.reddit.com/r/politics/comments/1qr520s/don_lemon_taken_into_custody/o2ljsev/
+
+Surkov won. People do not see the need for everyone to get on the same page of education and teaching about mental health. Behaving as if the mental induced sickness in's spreading. That Fox News HDTV is now employees of the White House on every media system, including Reddit /r/All front page every day. Dr. Bandy X Lee's leadership ignoored.
+
+https://old.reddit.com/r/politics/comments/1qr520s/don_lemon_taken_into_custody/o2lles0/
+
+9 month Reddit account. X and Facebook (Twitter); but not Reddit, not Bluesky. Both of which have no-identity commenting prizing behaviors.
+
+https://old.reddit.com/r/news/comments/1qr5c17/federal_agents_arrest_don_lemon_over_minnesota/o2lln7v/
+
+Yes. dangerous, scared. It's extremely scary how everyone is treating this as entertainment and not quoting Dr. Bandy X Lee's October 3, 2017 nonfiction book and trying to rescue hearts and minds from Putin. Surkov won since March 2013.
+
+https://old.reddit.com/r/news/comments/1qr5c17/federal_agents_arrest_don_lemon_over_minnesota/o2lmdzd/
+
+Just like downvoting and ignoring more serious content on Reddit. Chilling effect.
+
+* "Russia-watcher Catherine Fitzpatrick, who documents Kremlin disinformation for InterpreterMag . com, says just as Moscow uses vague Internet laws to encourage self-censorship, trolls inhibit informed debate by using **crude dialogue to change "the climate of discussion."** "If you show up at The Washington Post or New Republic sites, where there's an article that's critical of Russia, and you see that **there are 200 comments that sound like they were written by 12-year-olds**, then you just don't bother to comment," she says.  "You don't participate. It's a way of just **driving discussion away** completely," she adds. "Those **kinds of tactics are meant to stop democratic debate**, and they work." - **year 2014** https://www.theatlantic.com/international/archive/2014/08/the-kremlins-troll-army/375932/
+
+https://old.reddit.com/r/news/comments/1qr5c17/federal_agents_arrest_don_lemon_over_minnesota/o2lll1o/
+
+Twitter-length short message, Tweet-thinking. Trump is a source of BINGO entertainment for the fandom on Reddit.
+
+https://old.reddit.com/r/news/comments/1qr5c17/federal_agents_arrest_don_lemon_over_minnesota/o2llxms/
+
+https://old.reddit.com/r/law/comments/1qr5fm3/former_cnn_anchor_don_lemon_taken_into_custody/o2lnse4/
+
+5 month Reddit account. "unreal"
+
+https://old.reddit.com/r/law/comments/1qr5fm3/former_cnn_anchor_don_lemon_taken_into_custody/o2ltbhj/
+
+https://old.reddit.com/r/law/comments/1qr5fm3/former_cnn_anchor_don_lemon_taken_into_custody/o2lrkxc/
+
+"crazy"
+
+https://old.reddit.com/r/law/comments/1qr5fm3/former_cnn_anchor_don_lemon_taken_into_custody/o2lwi5c/
+
+"America wake up". People are commenting over and over at every ICE play. Fandom of ICE, followers of hate leadership. Dr. Bandy X Lee's goodness leadership avoided and ignored and fed apathy.
+
+https://old.reddit.com/r/law/comments/1qr5fm3/former_cnn_anchor_don_lemon_taken_into_custody/o2lq6xe/
+
+https://old.reddit.com/r/law/comments/1qr5fm3/former_cnn_anchor_don_lemon_taken_into_custody/o2luags/
+
+"ironic".
+
+People on Reddit can no longer engage nonfiction comprehension. Audience on Reddit to ICE fandom unable to name "Surkovian" methods of irony poising public antics.
+
+https://old.reddit.com/r/law/comments/1qr5fm3/former_cnn_anchor_don_lemon_taken_into_custody/o2lsmpe/
+
+"LOL", Joe Rogan amusement audience. Short-length Twitter-think mockery.
+
+https://old.reddit.com/r/law/comments/1qr5fm3/former_cnn_anchor_don_lemon_taken_into_custody/o2m3sjb/
+
+Tweet-length Twitter-thinking short message. Unable to describe Putin's media invasion, unable to describe or identify the outcomes of Cambridge Analytica mental manipulation. Unable to describe the cults of Fox News NDTV and Reddit media cult of commenting about ICE.
+
+https://old.reddit.com/r/law/comments/1qr5fm3/former_cnn_anchor_don_lemon_taken_into_custody/o2lzs9i/
+
+Read the profile of Reddit user. Banality agent. Prizes shit-post, shit-commenting. Excited shit Truth Social leadership fandom.
+
+https://old.reddit.com/r/lostgeneration/comments/1qr1vrv/we_are_so_smart/o2kymja/
+
+This sort of serious long-term review of an important topic needs to be organized into a FAQ or Wiki and not just streaming memes that disappear off the screen.
+
+I am not sure I can stay focused on it myself given all the brain damage that comes from the Truth Social and Reddit feedback looping going on in USA year 2026... but I did plant a seed: https://github.com/GreatSealUSA/Brainrot_Society_47/tree/main/Crap_as_News/FAQ_Wiki
+
+https://old.reddit.com/r/TikTokCringe/comments/1qr6dg6/you_raise_your_voice_i_erase_your_voice/o2ltq2s/
+
+<img width="1020" height="323" alt="image" src="https://github.com/user-attachments/assets/51b466ec-1e9d-4122-83a5-aacf37e32b31" />
+
+"LOL". I.C.E. fandom on Reddit. Amused and entertained by the mockery performance of Surkovian governing. Glued to touch device screens cheering on the paradoxes and inversions of values. Contradictions blow Reddit audience mind into joke mindsets, ICE fandom is amazed and engaged by the performance of Surkov student screenplays on high-speed media devices.
+
+*  Published January 2015, before Trump started run for office in June 2015: https://www.Politico.com/magazine/story/2015/01/putin-russia-tv-113960/ At one end of the table sat one of the country’s most famous political TV presenters. He was small and spoke fast, with a smoky voice: “We all know there will be no real politics,” he said. “But we still have to give our viewers the sense something is happening. They need to be kept entertained.” “So what should we play with?” he asked. **“Shall we attack oligarchs? Who’s the enemy this week?** Politics has got to feel like a movie!”
+
+*  "Everything we're told by journalists and politicians is confusing and **contradictory**. Of course, there is no Mr. Surkov in charge, but it is an odd, non-linear world that plays into the hands of those in power." - December 31, 2014. Before June 16, 2015 Trump run for POTUS. https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mdnoefdlyc2x https://autistics.life/@RoundSparrow/115984882760828406 }
