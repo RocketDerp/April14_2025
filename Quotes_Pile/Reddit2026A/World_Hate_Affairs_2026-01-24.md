@@ -328,3 +328,18 @@ https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutio
 https://old.reddit.com/r/politics/comments/1qq9ixi/trump_teams_secret_meetings_with_group_plotting/o2ez87x/
 
 "Crazy"
+
+https://old.reddit.com/r/aviation/comments/1qqq5xn/all_challengers_crjs_and_globals_etc_to_be/o2ihqq2/
+
+https://old.reddit.com/r/aviation/comments/1qqq5xn/all_challengers_crjs_and_globals_etc_to_be/o2io5jg/
+
+Not, it has not been fun at all since June 16, 2015. Reddit is the nightmare nerve center. Marshall McLuhan was one of the few to see.
+]
+https://old.reddit.com/r/aviation/comments/1qqq5xn/all_challengers_crjs_and_globals_etc_to_be/o2ikjot/
+
+"LOL", amused by Trump antics. Entertainment.
+
+https://old.reddit.com/r/aviation/comments/1qqq5xn/all_challengers_crjs_and_globals_etc_to_be/o2irobf/
+
+Without the Great Seal of the USA, people change the meaning of words as Surkov students did sine March 2013.
+
