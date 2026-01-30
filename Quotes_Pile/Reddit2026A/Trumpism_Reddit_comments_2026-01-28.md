@@ -987,3 +987,7 @@ People care, they are thrilled to get dirty details of rich and famous private j
 https://old.reddit.com/r/politics/comments/1qrgz1b/epstein_files_released_trump_mentioned_hundreds/o2ojhy1/
 
 Reddit media, Reddit comment community, has been the core sane-washing of Trump. "LOL cow milking" of Trump as a prized source of entertainment. Constantly LOL joking and creating memes and sharing images of Trump to laugh at as thrilling comedy. https://old.Reddit.com/r/evilautism/comments/1gryoas/i_hate_the_term_lolcow/
+
+https://old.reddit.com/r/politics/comments/1qrgz1b/epstein_files_released_trump_mentioned_hundreds/o2ojzvi/
+
+Entertainment-oriented Reddit audience is calling out what to expect next in the Kremlin and White House Reality variety show. No desire to promote Dr. Bandy X Lee and remove Trump through education and cult-deprogramming. Because the Reddit audience itself is a cult of mockery.
