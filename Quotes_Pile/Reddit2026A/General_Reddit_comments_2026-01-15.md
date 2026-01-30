@@ -1686,3 +1686,17 @@ She had friends, lived a fulfilling and full life. What's far more sad is the ba
 What's said is how the entire population of USA age 12 to age 130 isn't using social media to promote Dr. Bandy X Lee's nonfiction education for the general public about Trump's dangerous and dehumanizing leadership. And the spare time and free time people spend commenting about Trump instead of organizing to remove Trump and educate and rescue MAGA from media cults. Children are being raised with Trump as a role model, new cults are expanding every day. The emotions over one celebrity actor / acting star: Donald Trump. That rules a society that can not seem to recognize cult behavior towards Home Alone appearances and TV stars.
 
 Deaths like this inspire me to focus on those still alive. It is far more sad to know that a child is being put in front of Fox News HDTV at age 9 right now and being indoctrinated into worship of celebrity culture by adult parents at age 30.
+
+https://old.reddit.com/r/popculturechat/comments/1qrdu8i/catherine_ohara_schitts_creek_star_and_comedy/o2ngzn4/
+
+https://old.reddit.com/r/popculturechat/comments/1qrdu8i/catherine_ohara_schitts_creek_star_and_comedy/o2nfuue/
+
+If you want to understand the MAGA fandom to Donald Trump. Study these Reddit behaviors. Older people who are FAMOUS, from timeless film and TV recordings, are expected to live forever and forever and hearts and minds are so tied to Donald J. Trump superstar strings of the media systems themselves.
+
+https://old.reddit.com/r/popculturechat/comments/1qrdu8i/catherine_ohara_schitts_creek_star_and_comedy/o2ng8l4/
+
+Trump seemed so timeless to people too, the same Home Alone made Trump timeless icon of USA culture celebrity and fame.
+
+* "The ultimate aim of the quest must be neither release nor ecstasy for oneself, but the wisdom and the power to serve others.” One of the many distinctions between the celebrity and the hero, he said, is that one lives only for self while the other acts to redeem society." - Bill Moyers, Power of Myth, year 1988
+
+* Year 1988... BILL MOYERS: Does our society? CAMPBELL: It did have. It had the Christ. And then America had men like Washington and Jefferson and, later, men like Daniel Boone. But life today is so complex, and it is changing so fast, that there is no time for anything to constellate itself before it’s thrown over again. MOYERS: We seem to **worship celebrities today**, not heroes. CAMPBELL: Yes, and that’s too bad. A questionnaire was once sent around one of the high schools in Brooklyn which asked, “What would you like to be?” Two thirds of the students responded, “A celebrity.” They had no notion of having to give of themselves in order to achieve something. MOYERS: Just to be known. CAMPBELL: Just to be known, to have fame—name and fame. It’s too bad.
