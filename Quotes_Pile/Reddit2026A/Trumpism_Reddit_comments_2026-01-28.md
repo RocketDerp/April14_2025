@@ -717,3 +717,10 @@ https://old.reddit.com/r/news/comments/1qqfols/us_trade_deficit_widens_by_the_mo
 
 https://old.reddit.com/r/news/comments/1qqfols/us_trade_deficit_widens_by_the_most_in_nearly_34/o2go8a8/
 
+https://old.reddit.com/r/law/comments/1qqmp7n/kash_patel_sets_off_diplomatic_incident_with_fbi/o2il62y/
+
+10 month Reddit account.
+
+https://old.reddit.com/r/law/comments/1qqmp7n/kash_patel_sets_off_diplomatic_incident_with_fbi/o2i6ogj/
+
+Maybe people will stop calling Trump ministration "do nothing", and lazy, and only on the Internet with Twitter. People seem incapable of recognizing the program of harm and mass dehumanization underway and how hard people labor at peeling away goodness.
