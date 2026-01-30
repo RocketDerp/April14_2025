@@ -632,3 +632,6 @@ https://old.reddit.com/r/clevercomebacks/comments/1qqbh9x/widow_of_the_year/o2ff
 
 And ANOTHER time Charlie Kirk / Erica Kirk fandom on Reddit puts it on front page /r/All - the fandom can never get enough of Kirk content. Fiction attraction, attractive nuisance like Trump family. https://en.wikipedia.org/wiki/Attractive_nuisance_doctrine
 
+https://old.reddit.com/r/politics/comments/1qra9oi/final_jeffrey_epstein_files_cache_released_by_doj/o2mnq23/
+
+*slight* doubt. "kind of doubt". Low-effort most upvoted popular comment. Twitter-length. Instead of posting an off-Reddit link to a FAQ or Wii about the Epstein situation and timeline: low-effort committing is what the Reddit fandom has been conditioned to upvote. Anti-serious, anti-education, anti-adult learning of details.
