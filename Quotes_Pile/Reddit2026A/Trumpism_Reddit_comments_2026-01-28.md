@@ -712,3 +712,8 @@ Trump fanatic. Fandom of Trump looking forward to more MAGA content. "hilarious"
 https://old.reddit.com/r/MurderedByWords/comments/1qqmdrx/says_more_about_him/o2hsia1/
 
 "cult"
+
+https://old.reddit.com/r/news/comments/1qqfols/us_trade_deficit_widens_by_the_most_in_nearly_34/o2gaezl/
+
+https://old.reddit.com/r/news/comments/1qqfols/us_trade_deficit_widens_by_the_most_in_nearly_34/o2go8a8/
+
