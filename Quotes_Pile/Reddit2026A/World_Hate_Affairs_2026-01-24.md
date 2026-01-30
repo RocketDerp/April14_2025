@@ -346,3 +346,7 @@ Without the Great Seal of the USA, people change the meaning of words as Surkov 
 https://old.reddit.com/r/aviation/comments/1qqq5xn/all_challengers_crjs_and_globals_etc_to_be/o2iigz8/
 
 https://old.reddit.com/r/europe/comments/1qqzdbn/nato_to_hold_military_exercise_without_us_its/o2kqor3/
+
+https://old.reddit.com/r/interestingasfuck/comments/1qrcfqe/man_be_harassed_for_his_looks_yet_found_a/o2nd5mi/
+
+Downplaying that the entire Western World and NATO is being lead by a bully who mocks and insults everyone for any crowd-pleasing crowd-concerning reason. Downplaying that richest man in the world in year 2022 purchased Twitter, the most banal media platform, to mock and insult empathy in an organized campaign of other billionaires and famous people. https://www.lemonde.fr/en/international/article/2024/08/13/elon-musk-s-ambition-repopulating-the-planet-and-destroying-the-woke-virus_6714239_4.html Downplaying that billionaires are investing in machines (artificial intelligence) all together... and mass dehumanizing peopole.
