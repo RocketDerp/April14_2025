@@ -724,3 +724,8 @@ https://old.reddit.com/r/law/comments/1qqmp7n/kash_patel_sets_off_diplomatic_inc
 https://old.reddit.com/r/law/comments/1qqmp7n/kash_patel_sets_off_diplomatic_incident_with_fbi/o2i6ogj/
 
 Maybe people will stop calling Trump ministration "do nothing", and lazy, and only on the Internet with Twitter. People seem incapable of recognizing the program of harm and mass dehumanization underway and how hard people labor at peeling away goodness.
+
+https://old.reddit.com/r/technology/comments/1qqy7wy/libs_of_tiktok_is_doxxing_teachers_and_nurses_who/o2kbh0x/
+
+* “World War III is a guerrilla information war with no division between military and civilian participation.” – Marshall McLuhan (1970), Culture is Our Business, p. 66.
+
