@@ -764,3 +764,9 @@ https://old.reddit.com/r/worldnews/comments/1qr048e/trump_strangely_warns_canada
 In response to the posting: Canada, Hockey. Comment writer is eating the Surkov onion, dementia-washing Russian information warfare. See: https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Reddit2025A/Surkovian_Onion_Eating.md Predictable short Twitter-length Tweet-think messaging and mindsets.
 
 * "what Putin will do next — that he’s unpredictable and thus dangerous. We’re rendered stunned, spun, and flummoxed by the Kremlin’s weaponization of absurdity and unreality.” - **year 2014**. September 9, 2014  https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/worldnews/comments/1qr048e/trump_strangely_warns_canada_that_china_will/o2kpa8p/
+
+1 month Reddit account. Directing the Reddit audience to only mind election day voting, not the Reddit comment voting / social media behaviors of Trump and how it interacts with the social media voting of Reddit comment section. ANYTHING to avoid turning to Dr. Bandy X Lee's nonfiction serious leadership. The low-effort joke commenting that Trump's antis comments about { hockey, China, Canada } create. It puts the USA society focused on commenting and making memes and jokes about Trump. It turns Trump into a constant source of Reddit commenting stimulation. Instead of REMOVING Trump from office, the audience in USA engages the content Trump initiates.
+
+
