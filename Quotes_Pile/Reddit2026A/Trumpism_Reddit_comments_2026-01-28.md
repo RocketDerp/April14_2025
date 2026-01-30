@@ -861,3 +861,9 @@ Tweet-length Twitter-thinking short message. Unable to describe Putin's media in
 https://old.reddit.com/r/law/comments/1qr5fm3/former_cnn_anchor_don_lemon_taken_into_custody/o2lzs9i/
 
 Read the profile of Reddit user. Banality agent. Prizes shit-post, shit-commenting. Excited shit Truth Social leadership fandom.
+
+https://old.reddit.com/r/lostgeneration/comments/1qr1vrv/we_are_so_smart/o2kymja/
+
+This sort of serious long-term review of an important topic needs to be organized into a FAQ or Wiki and not just streaming memes that disappear off the screen.
+
+I am not sure I can stay focused on it myself given all the brain damage that comes from the Truth Social and Reddit feedback looping going on in USA year 2026... but I did plant a seed: https://github.com/GreatSealUSA/Brainrot_Society_47/tree/main/Crap_as_News/FAQ_Wiki
