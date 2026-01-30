@@ -789,3 +789,10 @@ https://old.reddit.com/r/law/comments/1qqr1jq/trump_signs_executive_order_declar
 Someone in Reddit audience suggests that maybe it is intentional. But unable to name Surkov governing techniques.
 
 * "what Putin will do next — that he’s unpredictable and thus dangerous. We’re rendered stunned, spun, and flummoxed by the Kremlin’s weaponization of absurdity and unreality.” - **year 2014**. September 9, 2014  https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/politics/comments/1qr520s/don_lemon_taken_into_custody/o2ligxw/
+
+Most popular comment, upvoted. Twitter-length. Twitter-thinking, simplistic. The cult of Trump media and cult of Putin's anti-NATO "high energy" leadership style doesn't go away. Hitler in Germany went to jail and it only grew his reputation. Trump is a "bad guy" and people have been programmed mentally to seek out bad leadership and self-harm the USA.
+
+Why is social media right now, today, not making Dr. Bandy X Lee a constant topic of assertion... because people are conditioned to seek out low-effort passive-nothing commenting like this top comment on Reddit. Every hour of every day social media users do not call for organised cult deprogramming.
+
