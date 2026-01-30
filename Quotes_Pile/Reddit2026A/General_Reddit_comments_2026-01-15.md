@@ -1774,3 +1774,7 @@ The rest of the world is watching how North America population behaves towards c
 https://old.reddit.com/r/Fauxmoi/comments/1qrf2np/macaulay_culkin_on_instagram_bids_farewell_to/o2nsgx9/
 
 Real-world reality mothers are abandoned an hate for choosing celebrity Donald Trump and being "MAGA". It is an nation of **media cultists** who worship one mother or daddy (MAGA Trump) or another off screens. Image cultists, Trump fandom cultists.
+
+https://old.reddit.com/r/movies/comments/1qrdc1b/catherine_ohara_has_died_at_the_age_of_71/o2nb455/
+
+Audiences behave like death at age 71 makes an appointment in their personal calendar. Complete lack of education and understanding about the most basics of life and death on Earth.
