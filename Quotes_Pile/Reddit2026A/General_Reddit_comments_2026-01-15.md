@@ -1635,3 +1635,14 @@ https://old.reddit.com/r/youtube/comments/1qqt8tb/you_can_no_longer_have_youtube
 
 https://old.reddit.com/r/youtube/comments/1qqt8tb/you_can_no_longer_have_youtube_running_in_the/o2jrs36/
 
+https://old.reddit.com/r/Millennials/comments/1qr2dc1/society_really_did_fail_amy_winehouse/o2l2eps/
+
+6 month Reddit account, top-upvoted popular comment.
+
+https://old.reddit.com/r/Millennials/comments/1qr2dc1/society_really_did_fail_amy_winehouse/o2l1rxs/
+
+That's why people love Reddit cloud computing machines, they are so fast and deliver content on demand. A live performance with a troubled soul who sings about troubles is... hate-worthy and mock-worthy. Because humans are not machines. And it's scary that people prize the humans who "act the best" in films and such when real people do not behave like edited and practiced performers in troubling situations. Except when Russia mind-fucked the population to regard MAGA cult to be entertainment, they crowds act in predicable conditioned reposes to horrors.
+
+https://old.reddit.com/r/Millennials/comments/1qr2dc1/society_really_did_fail_amy_winehouse/o2l7avu/
+
+Just like Trump fandom. People sharing scraps of his every song and message performance off Truth Social and Fox News on the Reddit fan site.
