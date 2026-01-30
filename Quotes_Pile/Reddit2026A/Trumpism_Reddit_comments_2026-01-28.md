@@ -971,3 +971,7 @@ https://old.reddit.com/r/politics/comments/1qrgz1b/epstein_files_released_trump_
 https://old.reddit.com/r/politics/comments/1qrgz1b/epstein_files_released_trump_mentioned_hundreds/o2oegqp/
 
 Male aggression normalized. Male bullying normalized. ICE men invading homes, invading cars, attacking anyone they perceive to be weak or needy now normalized. Junk information to LOL at power over women, normalized. Truth Social as an anti-truth anti-sincerity platform all normalized. 
+
+https://old.reddit.com/r/politics/comments/1qrgz1b/epstein_files_released_trump_mentioned_hundreds/o2o8xxb/
+
+It matters as entertainment for Reddit audiences. People have been screaming for dirty details of rich white men sex lives. People on Reddit constantly talk about their Trump diaper fetish and there is nothing illegal about a man pooping. But it sure draws a Reddit fandom to Trump shit. Shit-commenting audiences love rich white men "Daddy" age 79 sex shit. https://en.wikipedia.org/wiki/Diaper_fetishism - ANYTHING to avoid serious nonfiction learning about Kremlin information warfare. ANYTHING to avoid learning nonfiction serious learning of mental health issues from leader Dr. Bandy X Lee.
