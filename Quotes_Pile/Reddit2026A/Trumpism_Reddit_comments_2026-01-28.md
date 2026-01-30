@@ -769,4 +769,8 @@ https://old.reddit.com/r/worldnews/comments/1qr048e/trump_strangely_warns_canada
 
 1 month Reddit account. Directing the Reddit audience to only mind election day voting, not the Reddit comment voting / social media behaviors of Trump and how it interacts with the social media voting of Reddit comment section. ANYTHING to avoid turning to Dr. Bandy X Lee's nonfiction serious leadership. The low-effort joke commenting that Trump's antis comments about { hockey, China, Canada } create. It puts the USA society focused on commenting and making memes and jokes about Trump. It turns Trump into a constant source of Reddit commenting stimulation. Instead of REMOVING Trump from office, the audience in USA engages the content Trump initiates.
 
+https://old.reddit.com/r/worldnews/comments/1qr048e/trump_strangely_warns_canada_that_china_will/o2kldww/
 
+Reply after reply to this message that 1) ignore Dr. Bandy X Lee and will not quote professional nonfiction books on paper. 2) Eating the Surkov onions and think this is dumb. Turning the USA into a source of mockery and humor jokes is the very Surkov technique that blows minds, weaponized humor.
+
+See: https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Reddit2025A/Surkovian_Onion_Eating.md 
