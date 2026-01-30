@@ -931,3 +931,7 @@ How can you know that the Craigslist advert is real, or that the no-evidence Twi
 
 * "But the key thing was, that Surkov then let it be known that this was what he was doing, **which meant that no one was sure what was real or fake**. As one journalist put it: "It is a strategy of power that keeps any opposition constantly confused." A ceaseless shape-shifting that is unstoppable because it is undefinable." - [BBC, Adam Curtis](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html), December 31, 2014 (NYE year 2014)         
 https://youtu.be/yqpo9GqTaV8?t=1857
+
+https://old.reddit.com/r/politics/comments/1qra9oi/final_jeffrey_epstein_files_cache_released_by_doj/o2mvfht/
+
+"ha ha", social media laugh track. Tiny popular Tweet-length message patterns. Epstein entertainment fandom. Find it amusing that Trump and Putin use Surkov information society techniques. Behavior of Reddit audience bombed into comedy mentality by Kremlin information warfare since March 2013.
