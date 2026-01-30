@@ -867,3 +867,15 @@ https://old.reddit.com/r/lostgeneration/comments/1qr1vrv/we_are_so_smart/o2kymja
 This sort of serious long-term review of an important topic needs to be organized into a FAQ or Wiki and not just streaming memes that disappear off the screen.
 
 I am not sure I can stay focused on it myself given all the brain damage that comes from the Truth Social and Reddit feedback looping going on in USA year 2026... but I did plant a seed: https://github.com/GreatSealUSA/Brainrot_Society_47/tree/main/Crap_as_News/FAQ_Wiki
+
+https://old.reddit.com/r/TikTokCringe/comments/1qr6dg6/you_raise_your_voice_i_erase_your_voice/o2ltq2s/
+
+<img width="1020" height="323" alt="image" src="https://github.com/user-attachments/assets/51b466ec-1e9d-4122-83a5-aacf37e32b31" />
+
+"LOL". I.C.E. fandom on Reddit. Amused and entertained by the mockery performance of Surkovian governing. Glued to touch device screens cheering on the paradoxes and inversions of values. Contradictions blow Reddit audience mind into joke mindsets, ICE fandom is amazed and engaged by the performance of Surkov student screenplays on high-speed media devices.
+
+*  Published January 2015, before Trump started run for office in June 2015: https://www.Politico.com/magazine/story/2015/01/putin-russia-tv-113960/ At one end of the table sat one of the country’s most famous political TV presenters. He was small and spoke fast, with a smoky voice: “We all know there will be no real politics,” he said. “But we still have to give our viewers the sense something is happening. They need to be kept entertained.” “So what should we play with?” he asked. **“Shall we attack oligarchs? Who’s the enemy this week?** Politics has got to feel like a movie!”
+
+*  "Everything we're told by journalists and politicians is confusing and **contradictory**. Of course, there is no Mr. Surkov in charge, but it is an odd, non-linear world that plays into the hands of those in power." - December 31, 2014. Before June 16, 2015 Trump run for POTUS. https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mdnoefdlyc2x https://autistics.life/@RoundSparrow/115984882760828406 }
