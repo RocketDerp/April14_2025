@@ -802,5 +802,12 @@ Extreme tiny-short commenting replies "yes, this is fascism". Which is in no way
 
 https://old.reddit.com/r/politics/comments/1qr520s/don_lemon_taken_into_custody/o2lmzaw/
 
-Anti-forgiveness, *hate harder* messaging, anti-education, ,anti-teaching, anti-learning, anti-progress. Anti-Malala. Anti-MLKjr. Wanting to lock in the MAGA trajectory of worse and worse billionaires like Rupert Murdoch Fox News HDTV, Elon Musk HDTV, Putin's Internet Research Agency - and just let the situaiton keep advancing into more and more self-harm of USA.
+Anti-forgiveness, *hate harder* messaging, anti-education, anti-teaching, anti-learning, anti-progress. Anti-Malala. Anti-MLKjr. Wanting to lock in the MAGA trajectory of worse and worse billionaires like Rupert Murdoch Fox News HDTV, Elon Musk HDTV, Putin's Internet Research Agency - and just let the situaiton keep advancing into more and more self-harm of USA.
 
+https://old.reddit.com/r/politics/comments/1qr520s/don_lemon_taken_into_custody/o2ljsev/
+
+Surkov won. People do not see the need for everyone to get on the same page of education and teaching about mental health. Behaving as if the mental induced sickness in's spreading. That Fox News HDTV is now employees of the White House on every media system, including Reddit /r/All front page every day. Dr. Bandy X Lee's leadership ignoored.
+
+https://old.reddit.com/r/politics/comments/1qr520s/don_lemon_taken_into_custody/o2lles0/
+
+9 month Reddit account. X and Facebook (Twitter); but not Reddit, not Bluesky. Both of which have no-identity commenting prizing behaviors.
