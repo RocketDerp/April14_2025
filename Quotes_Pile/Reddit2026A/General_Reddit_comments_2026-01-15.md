@@ -1751,3 +1751,7 @@ https://old.reddit.com/r/popculturechat/comments/1qrdu8i/catherine_ohara_schitts
 
 "We", film audiences? People in Ukraine since year 2014 have lost people they have eaten with, hugged, known and lived under constant terror of Putin. Unnatural terrorizing killing via explosives, bombings, rockets. Israel and Palestine, Iran. And the constant hate worshiping people have towards the poor and non-famous, non-celebrity people.
 
+https://old.reddit.com/r/popculturechat/comments/1qrdu8i/catherine_ohara_schitts_creek_star_and_comedy/o2nh7id/
+
+This is how detached Reddit audiences to celebrity Trump and celebrity film stars and TV stars are. Unable to grasp that famous people are not eternal gods. Trump Jesus audience and fandom.
+
