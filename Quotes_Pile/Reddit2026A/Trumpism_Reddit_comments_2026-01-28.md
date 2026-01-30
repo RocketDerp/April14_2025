@@ -796,3 +796,11 @@ Most popular comment, upvoted. Twitter-length. Twitter-thinking, simplistic. The
 
 Why is social media right now, today, not making Dr. Bandy X Lee a constant topic of assertion... because people are conditioned to seek out low-effort passive-nothing commenting like this top comment on Reddit. Every hour of every day social media users do not call for organised cult deprogramming.
 
+https://old.reddit.com/r/politics/comments/1qr520s/don_lemon_taken_into_custody/o2li41z/
+
+Extreme tiny-short commenting replies "yes, this is fascism". Which is in no way **resisting** it, it's just a declarative mindset. Like an audience member commenting upon a science fiction film about a character's action. People with spare time and free time are attracted to seek out Trump content and antics and comment upon them. This has been going on day after day, year after year, the fandom of Trump antics. The entertainment fandom of Trump leadership.
+
+https://old.reddit.com/r/politics/comments/1qr520s/don_lemon_taken_into_custody/o2lmzaw/
+
+Anti-forgiveness, *hate harder* messaging, anti-education, ,anti-teaching, anti-learning, anti-progress. Anti-Malala. Anti-MLKjr. Wanting to lock in the MAGA trajectory of worse and worse billionaires like Rupert Murdoch Fox News HDTV, Elon Musk HDTV, Putin's Internet Research Agency - and just let the situaiton keep advancing into more and more self-harm of USA.
+
