@@ -343,3 +343,4 @@ https://old.reddit.com/r/aviation/comments/1qqq5xn/all_challengers_crjs_and_glob
 
 Without the Great Seal of the USA, people change the meaning of words as Surkov students did sine March 2013.
 
+https://old.reddit.com/r/aviation/comments/1qqq5xn/all_challengers_crjs_and_globals_etc_to_be/o2iigz8/
