@@ -1767,5 +1767,7 @@ https://old.reddit.com/r/popculturechat/comments/1qrdu8i/catherine_ohara_schitts
 
 This is the reason billionaires of the world, including the richest man on the planet, Elon Musk, are investing in artificial intelligence that can create new images and content for audiences who do not want real intelligence, real world, and want artificial intelligence (fiction) t believe in. Billionaires see the love people have for fiction characters and creating eternal characters for fandoms who have abandoned nonfiction real. Trump has lured in all the AI technology to profit from the abandonment of real Earth... this Reddit fandom.
 
+https://old.reddit.com/r/popculturechat/comments/1qrdu8i/catherine_ohara_schitts_creek_star_and_comedy/o2nhf8t/
 
+The rest of the world is watching how North America population behaves towards celebrity notifications. Surkov understood this back in year 2001, exported it via the Saint Parkersburg Internet Research Agency. that fiction far outsells nonfiction to Reddit celebrity audiences. Trump is the celebrity of all celebrity influencer content creators.
 
