@@ -858,3 +858,6 @@ https://old.reddit.com/r/law/comments/1qr5fm3/former_cnn_anchor_don_lemon_taken_
 
 Tweet-length Twitter-thinking short message. Unable to describe Putin's media invasion, unable to describe or identify the outcomes of Cambridge Analytica mental manipulation. Unable to describe the cults of Fox News NDTV and Reddit media cult of commenting about ICE.
 
+https://old.reddit.com/r/law/comments/1qr5fm3/former_cnn_anchor_don_lemon_taken_into_custody/o2lzs9i/
+
+Read the profile of Reddit user. Banality agent. Prizes shit-post, shit-commenting. Excited shit Truth Social leadership fandom.
