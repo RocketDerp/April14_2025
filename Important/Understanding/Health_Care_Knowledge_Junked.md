@@ -244,3 +244,9 @@ https://old.reddit.com/r/science/comments/1qoayb9/nearly_half_of_cdc_databases_a
 &nbsp;
 
 https://old.reddit.com/r/science/comments/1qqi09c/study_marijuana_access_associated_with_striking/
+
+&nbsp;
+
+Health care knowledge junked: following Putin and Trump leadership of mocking and insulting goodness. 
+
+https://old.reddit.com/r/interestingasfuck/comments/1qrcfqe/man_be_harassed_for_his_looks_yet_found_a/
