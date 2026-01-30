@@ -825,3 +825,36 @@ Just like downvoting and ignoring more serious content on Reddit. Chilling effec
 https://old.reddit.com/r/news/comments/1qr5c17/federal_agents_arrest_don_lemon_over_minnesota/o2lll1o/
 
 Twitter-length short message, Tweet-thinking. Trump is a source of BINGO entertainment for the fandom on Reddit.
+
+https://old.reddit.com/r/news/comments/1qr5c17/federal_agents_arrest_don_lemon_over_minnesota/o2llxms/
+
+https://old.reddit.com/r/law/comments/1qr5fm3/former_cnn_anchor_don_lemon_taken_into_custody/o2lnse4/
+
+5 month Reddit account. "unreal"
+
+https://old.reddit.com/r/law/comments/1qr5fm3/former_cnn_anchor_don_lemon_taken_into_custody/o2ltbhj/
+
+https://old.reddit.com/r/law/comments/1qr5fm3/former_cnn_anchor_don_lemon_taken_into_custody/o2lrkxc/
+
+"crazy"
+
+https://old.reddit.com/r/law/comments/1qr5fm3/former_cnn_anchor_don_lemon_taken_into_custody/o2lwi5c/
+
+"America wake up". People are commenting over and over at every ICE play. Fandom of ICE, followers of hate leadership. Dr. Bandy X Lee's goodness leadership avoided and ignored and fed apathy.
+
+https://old.reddit.com/r/law/comments/1qr5fm3/former_cnn_anchor_don_lemon_taken_into_custody/o2lq6xe/
+
+https://old.reddit.com/r/law/comments/1qr5fm3/former_cnn_anchor_don_lemon_taken_into_custody/o2luags/
+
+"ironic".
+
+People on Reddit can no longer engage nonfiction comprehension. Audience on Reddit to ICE fandom unable to name "Surkovian" methods of irony poising public antics.
+
+https://old.reddit.com/r/law/comments/1qr5fm3/former_cnn_anchor_don_lemon_taken_into_custody/o2lsmpe/
+
+"LOL", Joe Rogan amusement audience. Short-length Twitter-think mockery.
+
+https://old.reddit.com/r/law/comments/1qr5fm3/former_cnn_anchor_don_lemon_taken_into_custody/o2m3sjb/
+
+Tweet-length Twitter-thinking short message. Unable to describe Putin's media invasion, unable to describe or identify the outcomes of Cambridge Analytica mental manipulation. Unable to describe the cults of Fox News NDTV and Reddit media cult of commenting about ICE.
+
