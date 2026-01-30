@@ -1758,3 +1758,14 @@ This is how detached Reddit audiences to celebrity Trump and celebrity film star
 https://old.reddit.com/r/popculturechat/comments/1qrdu8i/catherine_ohara_schitts_creek_star_and_comedy/o2nies2/
 
 Prayers to Jesus to death-kill an enemy. "Hate thy enemy", "Death-wish the enemy". Tech and machine lovers idea of God is to *hate harder*. Nation of cultists to fiction storytelling. The cult of celebrity Trump.
+
+https://old.reddit.com/r/popculturechat/comments/1qrdu8i/catherine_ohara_schitts_creek_star_and_comedy/o2nme2y/
+
+https://old.reddit.com/r/popculturechat/comments/1qrdu8i/catherine_ohara_schitts_creek_star_and_comedy/o2nilag/
+
+https://old.reddit.com/r/popculturechat/comments/1qrdu8i/catherine_ohara_schitts_creek_star_and_comedy/o2nlmo6/
+
+This is the reason billionaires of the world, including the richest man on the planet, Elon Musk, are investing in artificial intelligence that can create new images and content for audiences who do not want real intelligence, real world, and want artificial intelligence (fiction) t believe in. Billionaires see the love people have for fiction characters and creating eternal characters for fandoms who have abandoned nonfiction real. Trump has lured in all the AI technology to profit from the abandonment of real Earth... this Reddit fandom.
+
+
+
