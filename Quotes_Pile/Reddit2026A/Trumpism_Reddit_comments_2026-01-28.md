@@ -879,3 +879,20 @@ https://old.reddit.com/r/TikTokCringe/comments/1qr6dg6/you_raise_your_voice_i_er
 *  "Everything we're told by journalists and politicians is confusing and **contradictory**. Of course, there is no Mr. Surkov in charge, but it is an odd, non-linear world that plays into the hands of those in power." - December 31, 2014. Before June 16, 2015 Trump run for POTUS. https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mdnoefdlyc2x https://autistics.life/@RoundSparrow/115984882760828406 }
+
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1qr4cs6/fulton_county_commissioner_mo_ivory_addresses_the/o2lic7n/
+
+Georgia election topic.
+
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1qr4cs6/fulton_county_commissioner_mo_ivory_addresses_the/o2lhaks/
+
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1qr4cs6/fulton_county_commissioner_mo_ivory_addresses_the/o2lowjr/
+
+It's been since year 2013. The rise of MAGA. People have not only WASTED time commenting about Trump since June 16, 2015 - people have almost entirely abandoned nonfiction learning. Adults are no longer able to engage serious nonfiction study of their own shift in behavior. Trump rose to power on Twitter and the Saint Petersburg IRA March 2013 onward media invasion... and it has wrecked nonfiction learning across a huge number of topics. Example, evidence going back to year 2014 of IRA activity, measles and COVID-2019 topics: https://www.bbc.com/news/world-us-canada-45294192
+
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1qr4cs6/fulton_county_commissioner_mo_ivory_addresses_the/o2lllao/
+
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1qr4cs6/fulton_county_commissioner_mo_ivory_addresses_the/o2m7yky/
+
+Since March 2013, hearts and minds have been conditioned by Russia's IRA to prize low-effort commenting and junk information over serious nonfiction. Fiction outsells nonfiction and Trump provides constant stimulating performance art. Trump is first and foremost an actor acting. Surkov student screenplays were put into the mass man mindsets in year 2013 before the Ukraine war February 20, 2014.
+
