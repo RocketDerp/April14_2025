@@ -50,6 +50,10 @@ Reality Abandoned
 
 &nbsp;
 
+Clown Clowning (play on people calling Trump a clown as they compulsively clown with Trump)   
+
+&nbsp;
+
 &nbsp;
 
 Bartender what is wrong with me, why am I so out of COVID-19 breath? (Roger Waters)
