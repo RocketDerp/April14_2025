@@ -811,3 +811,8 @@ Surkov won. People do not see the need for everyone to get on the same page of e
 https://old.reddit.com/r/politics/comments/1qr520s/don_lemon_taken_into_custody/o2lles0/
 
 9 month Reddit account. X and Facebook (Twitter); but not Reddit, not Bluesky. Both of which have no-identity commenting prizing behaviors.
+
+https://old.reddit.com/r/news/comments/1qr5c17/federal_agents_arrest_don_lemon_over_minnesota/o2lln7v/
+
+Yes. dangerous, scared. It's extremely scary how everyone is treating this as entertainment and not quoting Dr. Bandy X Lee's October 3, 2017 nonfiction book and trying to rescue hearts and minds from Putin. Surkov won since March 2013.
+
