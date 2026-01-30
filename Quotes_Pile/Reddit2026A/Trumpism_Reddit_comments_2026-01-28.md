@@ -729,3 +729,30 @@ https://old.reddit.com/r/technology/comments/1qqy7wy/libs_of_tiktok_is_doxxing_t
 
 * “World War III is a guerrilla information war with no division between military and civilian participation.” – Marshall McLuhan (1970), Culture is Our Business, p. 66.
 
+https://old.reddit.com/r/technology/comments/1qqy7wy/libs_of_tiktok_is_doxxing_teachers_and_nurses_who/o2k914f/
+
+Reddit audience members mocking a mockery. Mockery on Reddit mocking other social media users who are mocking in perpetual feedback loops. This is by design of the Putin information warfare, this is the programmed mindset logic of Russia's information warfare. Mocking mocking mockery.
+
+https://old.reddit.com/r/technology/comments/1qqy7wy/libs_of_tiktok_is_doxxing_teachers_and_nurses_who/o2kbhc8/
+
+"mentally disturbed"
+
+https://old.reddit.com/r/technology/comments/1qqy7wy/libs_of_tiktok_is_doxxing_teachers_and_nurses_who/o2kc4wv/
+
+On Reddit: Anything but blame Cambridge Analytica psychology doctors. Anything but turn to Dr. Bandy X Lee's leadership on mental health.
+
+https://old.reddit.com/r/technology/comments/1qqy7wy/libs_of_tiktok_is_doxxing_teachers_and_nurses_who/o2kj40w/
+
+4 month Reddit account. Playing up the audience idea that elections are normal and just keep commenting as usual.
+
+https://old.reddit.com/r/technology/comments/1qqy7wy/libs_of_tiktok_is_doxxing_teachers_and_nurses_who/o2kddrm/
+
+6 month Reddit accounnt.
+
+https://old.reddit.com/r/technology/comments/1qqy7wy/libs_of_tiktok_is_doxxing_teachers_and_nurses_who/o2kh2p0/
+
+"Funny", comedy-washing, min blown. Entirely unable to recognize the forest for the trees that this is exactly the inversion of values that Surkov information warfare exploits. It isn't "funny" and entertaining, it is exactly why Dr. Bandy X Lee's leadership is essential and all people should be quoting an teaching to follow her leadership.
+
+https://old.reddit.com/r/technology/comments/1qqy7wy/libs_of_tiktok_is_doxxing_teachers_and_nurses_who/o2ke0fd/
+
+https://old.reddit.com/r/technology/comments/1qqy7wy/libs_of_tiktok_is_doxxing_teachers_and_nurses_who/o2kjlt4/
