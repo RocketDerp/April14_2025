@@ -1700,3 +1700,39 @@ Trump seemed so timeless to people too, the same Home Alone made Trump timeless 
 * "The ultimate aim of the quest must be neither release nor ecstasy for oneself, but the wisdom and the power to serve others.” One of the many distinctions between the celebrity and the hero, he said, is that one lives only for self while the other acts to redeem society." - Bill Moyers, Power of Myth, year 1988
 
 * Year 1988... BILL MOYERS: Does our society? CAMPBELL: It did have. It had the Christ. And then America had men like Washington and Jefferson and, later, men like Daniel Boone. But life today is so complex, and it is changing so fast, that there is no time for anything to constellate itself before it’s thrown over again. MOYERS: We seem to **worship celebrities today**, not heroes. CAMPBELL: Yes, and that’s too bad. A questionnaire was once sent around one of the high schools in Brooklyn which asked, “What would you like to be?” Two thirds of the students responded, “A celebrity.” They had no notion of having to give of themselves in order to achieve something. MOYERS: Just to be known. CAMPBELL: Just to be known, to have fame—name and fame. It’s too bad.
+
+https://old.reddit.com/r/popculturechat/comments/1qrdu8i/catherine_ohara_schitts_creek_star_and_comedy/o2ngirp/
+
+https://old.reddit.com/r/popculturechat/comments/1qrdu8i/catherine_ohara_schitts_creek_star_and_comedy/o2nfvs9/
+
+The Donald J. Trump MAGA White House performance of Comedian character Tony Clifton far exceeds all other performers in world history. You will never see people more glued to mocking a performer that POTUS Tony Clifton that Trump and supporting actors play. People are entirely emotionally dedicated to the hybrid NYC Kaufman techniques and Surkov student screenplay patterns!
+
+If you want to understand the MAGA fandom to Donald Trump. Study these Reddit behaviors. Older people who are FAMOUS from entertainment. Joe Biden was not *entertainment famous* that Putin knew to elevate as the anti-NATO icon in "Operation Matthew 4:19" 
+
+https://old.reddit.com/r/popculturechat/comments/1qrdu8i/catherine_ohara_schitts_creek_star_and_comedy/o2ngmpn/
+
+"Hate thy Enemy" (Him = Donald Trump) messaging. Hate the out-group messaging on Reddit. Death wishing prayers to God to smite and punish non-believers.
+
+https://old.reddit.com/r/popculturechat/comments/1qrdu8i/catherine_ohara_schitts_creek_star_and_comedy/o2ng9e6/
+
+If you want to understand the MAGA fandom to Donald Trump. Study these Reddit behaviors. Older people who are FAMOUS from entertainment. Joe Biden was not *entertainment famous* that Putin knew to elevate as the anti-NATO icon in "Operation Matthew 4:19" 
+
+https://old.reddit.com/r/popculturechat/comments/1qrdu8i/catherine_ohara_schitts_creek_star_and_comedy/o2ngl9b/
+
+* George Lucas filmed for Hollywood audiences, "Power of Myth" nonfiction, Year 1988... BILL MOYERS: Does our society? CAMPBELL: It did have. It had the Christ. And then America had men like Washington and Jefferson and, later, men like Daniel Boone. But life today is so complex, and it is changing so fast, that there is no time for anything to constellate itself before it’s thrown over again. MOYERS: We seem to **worship celebrities today**, not heroes. CAMPBELL: Yes, and that’s too bad.
+
+https://old.reddit.com/r/popculturechat/comments/1qrdu8i/catherine_ohara_schitts_creek_star_and_comedy/o2ngmw4/
+
+a 71 year old loved person's death. Worst thing in all history. If you want to understand the MAGA fandom to Donald Trump. Study these Reddit behaviors. Older people who are FAMOUS from entertainment. Joe Biden was not *entertainment famous* that Putin knew to elevate as the anti-NATO icon in "Operation Matthew 4:19" 
+
+https://old.reddit.com/r/popculturechat/comments/1qrdu8i/catherine_ohara_schitts_creek_star_and_comedy/o2ngqig/
+
+https://old.reddit.com/r/popculturechat/comments/1qrdu8i/catherine_ohara_schitts_creek_star_and_comedy/o2njxxq/
+
+https://old.reddit.com/r/popculturechat/comments/1qrdu8i/catherine_ohara_schitts_creek_star_and_comedy/o2nhifo/
+
+The flair on this Reddit user is "Star Wars" force.
+
+<img width="1575" height="545" alt="image" src="https://github.com/user-attachments/assets/0257c805-c60f-4f75-b9b1-e21f237a305c" />
+
+Just imagine all the children living in USA... now age 18 who since June 16, 2015 have been parented as Trump as a "Daddy" figure on the screen day in and day out, every day, since they were age 7.
