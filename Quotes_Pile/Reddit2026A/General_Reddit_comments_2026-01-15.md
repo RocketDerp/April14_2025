@@ -1746,3 +1746,8 @@ https://old.reddit.com/r/popculturechat/comments/1qrdu8i/catherine_ohara_schitts
 <img width="1233" height="824" alt="image" src="https://github.com/user-attachments/assets/887da3f0-9b3d-4181-bb4a-add050537d74" />
 
 Media cultists. And **people can not grasp that MAGA rural population feels the same way about a man** who lives at the top of a tower building in NYC. That the fandom of Fox News feels even more emotional about age 79 Donald Trump, an icon their life of Fred Trump, golf courses, hotels, travel and freedom to have sex with any woman he chooses and hold Moscow Miss Universe parading of women in November 2013. Manhood father figure, Allah, Yahweh, Jesus manhood in the sky of tower buildings and cloud computing Twitter meme father icon.
+
+https://old.reddit.com/r/popculturechat/comments/1qrdu8i/catherine_ohara_schitts_creek_star_and_comedy/o2nhq5c/
+
+"We", film audiences? People in Ukraine since year 2014 have lost people they have eaten with, hugged, known and lived under constant terror of Putin. Unnatural terrorizing killing via explosives, bombings, rockets. Israel and Palestine, Iran. And the constant hate worshiping people have towards the poor and non-famous, non-celebrity people.
+
