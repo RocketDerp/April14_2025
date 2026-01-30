@@ -1736,3 +1736,13 @@ The flair on this Reddit user is "Star Wars" force.
 <img width="1575" height="545" alt="image" src="https://github.com/user-attachments/assets/0257c805-c60f-4f75-b9b1-e21f237a305c" />
 
 Just imagine all the children living in USA... now age 18 who since June 16, 2015 have been parented as Trump as a "Daddy" figure on the screen day in and day out, every day, since they were age 7.
+
+https://old.reddit.com/r/popculturechat/comments/1qrdu8i/catherine_ohara_schitts_creek_star_and_comedy/o2nh44i/
+
+A detached on a screen mother figure.
+
+https://old.reddit.com/r/popculturechat/comments/1qrdu8i/catherine_ohara_schitts_creek_star_and_comedy/o2ni0gj/
+
+<img width="1233" height="824" alt="image" src="https://github.com/user-attachments/assets/887da3f0-9b3d-4181-bb4a-add050537d74" />
+
+Media cultists. And **people can not grasp that MAGA rural population feels the same way about a man** who lives at the top of a tower building in NYC. That the fandom of Fox News feels even more emotional about age 79 Donald Trump, an icon their life of Fred Trump, golf courses, hotels, travel and freedom to have sex with any woman he chooses and hold Moscow Miss Universe parading of women in November 2013. Manhood father figure, Allah, Yahweh, Jesus manhood in the sky of tower buildings and cloud computing Twitter meme father icon.
