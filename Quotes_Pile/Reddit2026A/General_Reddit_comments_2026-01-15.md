@@ -2068,3 +2068,17 @@ https://old.reddit.com/r/PeterExplainsTheJoke/comments/1qs6ys1/petah_what_does_t
 https://old.reddit.com/r/PeterExplainsTheJoke/comments/1qs6ys1/petah_what_does_that_have_to_do_with_grocery/o2tf6m6/
 
 Delivery ecology, competing delivery systems.
+
+https://old.reddit.com/r/therewasanattempt/comments/1qs425x/to_pretend_desperate_emails_asking_to_go_to/o2sqkak/
+
+Elon Musk worked his way into the USA because of the tech industry. His role model: Elon Musk is 54 years old (born June 28, 1971), and Bill Gates is 70 years old (born October 28, 1955). Paul Allen in space too.
+
+https://old.reddit.com/r/therewasanattempt/comments/1qs425x/to_pretend_desperate_emails_asking_to_go_to/o2sq814/
+
+https://old.reddit.com/r/therewasanattempt/comments/1qs425x/to_pretend_desperate_emails_asking_to_go_to/o2sr4oa/
+
+<img width="1110" height="676" alt="image" src="https://github.com/user-attachments/assets/91453cb4-f9bd-4e7d-ad92-7d671808e76a" />
+
+Tech addicts of Reddit will not stand up to their tech addictions in peaceful ways. Musk is a tech lord that Reddit society prizes, men tech leaders. Cultists of Twitter content, Reddit. Promoting a binary logic of burn down an entire nation, including hundreds of millions of people abused by Elon Musk and Rupert Murdoch, instead of reviving Neil Postman and Marshall McLuhan teaching. Anti-Malala anti-education anti-MLKjr... Reddit messaging of pro-violence pro-burning of books, pro-burning of uneducated  people. Simple-think logic answers of a technology addiction society of Reddit machine tech lovers.
+
+Trump is burning down goodness, as programmed by Surkov students. We need to rescue Musk and Trump from the cult Putin has cultivated since March 2013. WE THE PEOPLE... WE ALL NEED TO STAND UP AND PROMOTE Dr. Bandy X Lee's leadership! https://www.ScientificAmerican.com/article/the-shared-psychosis-of-donald-trump-and-his-loyalists/
