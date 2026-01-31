@@ -1942,3 +1942,7 @@ https://old.reddit.com/r/Millennials/comments/1qs0bal/mother_of_all_of_us_tv_add
 He, Macaulay Culkin, was not in a **parasocial** one-way image consumption relationship with her. He was an actual child working with her in person, both on-camera and in rehearsals. But Reddit audience and fandom of famous Trump TV celebrity can't grasp this about MAGA USA media ecology. Macaulay Culkin was not in a fiction audience relationship, but a nonfiction months of labor to produce minutes of film.
 
 * "when capitalism reached a certain level of accumulation, commodities began to detach themselves and become images. And citizens who formerly had played roles as political actors began to detach themselves from their own lives and become spectators. So for example you could say now, instead of, like, going to a family reunion now we will just rent, you know, a Steve Martin Father of the Bride movie. It’s just as good and so on, and you meet the same kooky characters that you actually know. Their behaviour is all simulatable. Another similar… and this going to sound cynical, but I don’t want it to." - Texan Rick Roderick, nonfiction, Duke University https://RickRoderick.org/308-baudrillard-fatal-strategies-1993/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qs1vkz/end_of_the_debate/o2s9wkd/
+
+"QAnon", PizzaGate GamerGate meme-thinking. SEE_ALSO: https://old.Reddit.com/r/QAnonRussia
