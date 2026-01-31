@@ -102,4 +102,4 @@ https://old.reddit.com/r/politics/comments/1qrzwde/trump_mentioned_thousands_of_
 
 Trump fandom on Reddit. meme-speak (meme writing, meme messaging) mockery as programmed by IRA / CA / Musk / Murdoch.
 
-Social post { https://MidWest.Social/post/42735848 }
+Social post { https://MidWest.Social/post/42735848 https://bsky.app/profile/roundsparrow.bsky.social/post/3mdqcra5lnk2b https://autistics.life/@RoundSparrow/115990821535386164 }
