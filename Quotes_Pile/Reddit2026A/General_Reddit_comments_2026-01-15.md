@@ -1858,3 +1858,13 @@ https://old.reddit.com/r/popculturechat/comments/1qrkdgk/bill_gates_caught_std_a
 I keep pointing out that women on social media keep talking abut white wealthy men and avoiding Malala. Girls are being abused all over the world by established men in society. Indoctrination. Including Hollywood, music industry, film industy. People in USA in January 2026 really have lost sense of what the sexual revolution in USA did for women to be able to learn and discuss. Putin lead MAGA has been leaping backwards for women all over the world. Look at the timeline from year 2012: https://github.com/RocketDerp/April14_2025/blob/working/PostMalala/Marriage/World_Malala_Timeline_Year_2012.md
 
 * “We felt like the Taliban saw us as like little dolls to control, telling us what to do and how to dress. I thought if God wanted us to be like that He would not have made us all different.” ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. Published October 8, 2013
+
+https://old.reddit.com/r/technology/comments/1qrk9r1/el0n_msk_had_more_extensive_ties_to_epstein_than/o2ouh9o/
+
+https://old.reddit.com/r/technology/comments/1qrk9r1/el0n_msk_had_more_extensive_ties_to_epstein_than/o2p8gbs/
+
+Dates and citations on a Reddit comment!
+
+https://old.reddit.com/r/technology/comments/1qrk9r1/el0n_msk_had_more_extensive_ties_to_epstein_than/o2ou5bz/
+
+See replies, "He has an army of paid users that continuously prowl Reddit to push his narrative and discredit any counter claims against him."
