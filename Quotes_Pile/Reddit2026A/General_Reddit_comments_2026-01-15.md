@@ -2082,3 +2082,7 @@ https://old.reddit.com/r/therewasanattempt/comments/1qs425x/to_pretend_desperate
 Tech addicts of Reddit will not stand up to their tech addictions in peaceful ways. Musk is a tech lord that Reddit society prizes, men tech leaders. Cultists of Twitter content, Reddit. Promoting a binary logic of burn down an entire nation, including hundreds of millions of people abused by Elon Musk and Rupert Murdoch, instead of reviving Neil Postman and Marshall McLuhan teaching. Anti-Malala anti-education anti-MLKjr... Reddit messaging of pro-violence pro-burning of books, pro-burning of uneducated  people. Simple-think logic answers of a technology addiction society of Reddit machine tech lovers.
 
 Trump is burning down goodness, as programmed by Surkov students. We need to rescue Musk and Trump from the cult Putin has cultivated since March 2013. WE THE PEOPLE... WE ALL NEED TO STAND UP AND PROMOTE Dr. Bandy X Lee's leadership! https://www.ScientificAmerican.com/article/the-shared-psychosis-of-donald-trump-and-his-loyalists/
+
+https://old.reddit.com/r/GuysBeingDudes/comments/1qs887o/real_dude_is_aware_of_a_mistake/o2tocki/
+
+1 month Reddit account.
