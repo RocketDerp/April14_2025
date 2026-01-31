@@ -1946,3 +1946,9 @@ He, Macaulay Culkin, was not in a **parasocial** one-way image consumption relat
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1qs1vkz/end_of_the_debate/o2s9wkd/
 
 "QAnon", PizzaGate GamerGate meme-thinking. SEE_ALSO: https://old.Reddit.com/r/QAnonRussia
+
+https://old.reddit.com/r/memes/comments/1qs29hn/its_tough_out_there/o2sb1zf/
+
+Too bad we don't teach Comparative Mythology and marriage history (Troubadours year 1210 Europe choice marriage, Hindu India arranged marriage evolution, etc)... so many fucked-up marriages and fucked-up parenting because people prize low-effort shit-posting shit-commenting and shit fiction television for *learning and study* and do not go outside the fiction to nonfiction.
+
+* "Several famous celebrity couples from music and film have made headlines by divorcing and subsequently remarrying, showcasing dramatic "on-again, off-again" relationships. Among the most iconic examples are Old Hollywood stars Elizabeth Taylor (actress) and Richard Burton (actor), who famously married, divorced (1974), and remarried (1975) before divorcing for a second time. Similarly, actress Melanie Griffith and actor Don Johnson married young in 1976, divorced six months later, but found their way back to each other, marrying again in 1989 for a seven-year union. In the music world, singer Pink and motorcycle racer Carey Hart married in 2006, separated in 2008, but reconciled through counseling to remain together. Other notable examples include tech mogul Elon Musk and actress Talulah Riley, who were married and divorced twice (2010–2012, 2013–2016), and Baywatch actress Pamela Anderson, who divorced and remarried film producer Rick Salomon in 2007 and 2014, respectively.' - Google Search summary 2026-01-31 late morning USA
