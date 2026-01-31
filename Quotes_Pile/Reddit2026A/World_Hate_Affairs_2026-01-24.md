@@ -411,3 +411,23 @@ https://old.reddit.com/r/AdviceAnimals/comments/1qs1bbw/enough_is_enough_bring_o
 ANSWER: Follow the leadership of Malala, go back to her year 2013 speeches and books and start sharing and quoting Malala. STAND UP with your voice and say: **I agree with Malala year 2013!** "Why should I wait for someone else!" https://youtu.be/gjGL6YY6oMs?t=195 "Why don't WE speak up for our rights!" "started writing diary" - like Anne Fucking Frank!
 
 TEACH and EDUCATE. Stop turning everything on Reddit into low-effort meme-slop, joke-land, mockery Internet. Teach NONFICTION real understanding of the world. Stop letting fiction trash run the world, fiction storytelling that Rupert Murdoch pushes globally!
+
+https://old.reddit.com/r/news/comments/1qs84x2/bovino_is_said_to_have_mocked_prosecutors_jewish/o2tk93b/
+
+Out-group mocking and out-group hate are foundations of Levant clergy leadership and popularity. 
+
+Democracy does not work without "love thy neighbor", "love thy enemy". Published year 1988:
+
+CAMPBELL: But in the Bible, eternity withdraws, and nature is corrupt, nature has fallen. In biblical thinking, we live in exile.
+
+BILL MOYERS: As we sit here and talk, there is one story after another of car bombings in Beirut — by the Muslims of the Christians, by the Christians of the Muslims, and by the Christians of the Christians. It strikes me that Marshall McLuhan was right when he said that television has made a global village of the world—but he didn’t know the global village would be Beirut. What does that say to you?
+
+CAMPBELL: It says to me that they don’t know how to apply their religious ideas to contemporary life, and **to human beings rather than just to their own community**. It’s a terrible example of the failure of religion to meet the modern world. These three mythologies are fighting it out. **They have disqualified themselves for the future.**
+
+MOYERS: What kind of new myth do we need?
+
+CAMPBELL: We need myths that will identify the individual not with his local group but with the planet. A model for that is the United States. Here were thirteen different little colony nations that decided to act in the mutual interest, without disregarding the individual interests of any one of them.
+
+MOYERS: There is something about that on the Great Seal of the United States.
+
+CAMPBELL: That’s what the **Great Seal** is all about.
