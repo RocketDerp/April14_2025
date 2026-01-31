@@ -10,4 +10,10 @@
 * Chapter: "The Psychology And Mysticism of Tyranny"  
 * page 103-104  
 
+&nbsp;
+
+# Misc A
+
 salvaged from public Reddit comment: https://Old.Reddit.com/r/politics/comments/k2wygb/trump_claims_massive_proof_of_pennsylvania_voter/gdxyhsr/
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mdpyc3ygn22e https://autistics.life/@RoundSparrow/115990084863400657 }
