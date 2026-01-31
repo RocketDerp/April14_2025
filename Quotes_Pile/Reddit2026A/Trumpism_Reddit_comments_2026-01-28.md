@@ -1031,3 +1031,16 @@ https://old.reddit.com/r/AskReddit/comments/1qrgndr/what_do_you_think_of_the_doj
 
 Reddit commenting community will do anything with free time and spare time but promote nonfiction from Dr. Bandy X Lee.
 
+https://old.reddit.com/r/AskReddit/comments/1qrgndr/what_do_you_think_of_the_doj_recently_releasing/o2o4842/
+
+https://old.reddit.com/r/AskReddit/comments/1qrgndr/what_do_you_think_of_the_doj_recently_releasing/o2os8xa/
+
+https://old.reddit.com/r/AskReddit/comments/1qrgndr/what_do_you_think_of_the_doj_recently_releasing/o2o47lc/
+
+https://old.reddit.com/r/AskReddit/comments/1qrgndr/what_do_you_think_of_the_doj_recently_releasing/o2o94ku/
+
+https://old.reddit.com/r/AskReddit/comments/1qrgndr/what_do_you_think_of_the_doj_recently_releasing/o2o3ful/
+
+https://old.reddit.com/r/AskReddit/comments/1qrgndr/what_do_you_think_of_the_doj_recently_releasing/o2odq6u/
+
+https://old.reddit.com/r/AskReddit/comments/1qrgndr/what_do_you_think_of_the_doj_recently_releasing/o2oga58/
