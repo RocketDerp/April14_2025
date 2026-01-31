@@ -1885,3 +1885,13 @@ Tower of Babel, language, speech.
 
 https://old.reddit.com/r/mildlyinfuriating/comments/1qrlhfh/pick_your_battles_what_a_win/o2pprqm/
 
+https://old.reddit.com/r/news/comments/1qro0w7/bill_gates_caught_an_std_from_russian_prostitutes/o2pntfm/
+
+https://old.reddit.com/r/news/comments/1qro0w7/bill_gates_caught_an_std_from_russian_prostitutes/o2pogfo/
+
+Why are social media users not flooding the Internet with quotes from Dr. Bandy X Lee's book published October 3, 2017 about the mental health of Trump and MAGA?
+
+https://old.reddit.com/r/news/comments/1qro0w7/bill_gates_caught_an_std_from_russian_prostitutes/o2posvn/
+
+Joke-washing. Everything on Reddit gets turned into a source of comedy. That's why billionaires thrive, they provide emotional humor for audiences on meme platforms. Free time and spare time people spend on Reddit... Why are social media users not flooding the Internet with quotes from Dr. Bandy X Lee's book published October 3, 2017 about the mental health of Trump and MAGA?
+
