@@ -44,3 +44,7 @@ https://old.reddit.com/r/politics/comments/k2wygb/trump_claims_massive_proof_of_
 <img width="1243" height="284" alt="image" src="https://github.com/user-attachments/assets/9c0e06a3-a035-4df3-bf0d-9356c813fe4d" />
 
 The raging QAnon media cult ( https://old.reddit.com/r/QAnonRussia/ ) was obvious to many of us before January 6, 2021 came. This comment from November 28, 2020.
+
+https://old.reddit.com/r/ThePeoplesPress/comments/1jogeem/billionaires_met_in_november_2013_and_one_month/mkrl2kv/
+
+May have already grabbed this one. Comment that lead to creation of this GitHub project and name.
