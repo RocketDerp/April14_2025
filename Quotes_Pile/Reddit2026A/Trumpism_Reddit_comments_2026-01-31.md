@@ -121,3 +121,12 @@ https://old.reddit.com/r/politics/comments/1qs7svz/exposed_musk_now_insists_epst
 Calling out the Reddit cult of commenting about Elon Musk. Billionaire trickle-down media cultists on Reddit shit-commenting shit-posting media center.
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mdql4ptcy222 https://autistics.life/@RoundSparrow/115991408627966538 }
+
+https://old.reddit.com/r/thenextgenbusiness/comments/1qs4dzn/rep_melanie_stansbury_entire_administration_just/o2sqaz5/
+
+2 month Reddit account. Most popular upvoted comment.
+
+ANSWER: [Denial Abounds!](https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Bandy_X_Lee/Bandy_X_Lee_Denial.md) People are not slow, We The People race into denial. Their minds are blown into meme-stupor states by high-speed TCP/IP information systems. Russia seeded mind-fuck with the Internet Research Agency in Saint Petersburg in March 2013. People prize the women-domination leadership of Trump. People are following Putin and Trump's leadership since year 2013. ANYTHING BUT using social media commenting to promote GenX woman leader Dr. Bandy X Lee's nonfiction education for the general public.
+
+* “The human brain can protect us from seeing and feeling what it believes may be too uncomfortable for us to tolerate. It can lead us to deny, defend, minimize, or rationalize away something that doesn’t fit our worldview.”
+― Dr. Bandy X Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. Published **October 3, 2017**. Page 273. Chapter "TRUMP'S DADDY ISSUES"](https://books.google.com/books?id=g0c4DwAAQBAJ&pg=PA273&dq=%E2%80%9CThe+human+brain+can+protect+us+from+seeing+and+feeling+what+it+believes+may+be+too+uncomfortable%22&hl=en&newbks=1&newbks_redir=1&sa=X)
