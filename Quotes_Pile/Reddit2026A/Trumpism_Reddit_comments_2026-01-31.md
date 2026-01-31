@@ -61,3 +61,17 @@ BETTER_ANSWER: Explain Surkov governing of Russia for the past 26 years, how Sur
 If *We The People* can not make the case for nonfiction reality, we will live under mythology has humanity has for all recorded history. The Great Seal of the United States of America "new world order" of reason-thinking scientific mindsets of reality has been lost. The experiment failed. We are back to now wild claims about voting just as Putin runs Russia, mythological leadership (Surkovian).
 
 SEE_ALSO Reddit fell for the ["Big Lie" / "große Lüge"](https://en.wikipedia.org/wiki/Big_lie) technique, Biblical "Big Troll", I've named: Operation Matthew 4:19 https://GitHub.com/RocketDerp/April14_2025/blob/working/Operation_Matthew_4_19_on_monday_2024-03-31.md
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qrs44h/trump_accuses_newly_elected_va_gov_abigail/o2qj5co/
+
+Faith system.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qrs44h/trump_accuses_newly_elected_va_gov_abigail/o2qk48e/
+
+2 month Reddit account.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qrs44h/trump_accuses_newly_elected_va_gov_abigail/o2qpi0e/
+
+Tweet-thinking Twitter-style commenting, highly upvoted on Reddit. 
+
+That's one of the huge problem I see with society in the face of serious danger. People *bitching* about Trump talking points and language, but not reaching for articles / citations / references with real author names. For example, I have kept a close eye on one article on The Atlantic since September 16, 2020 ["Do You Speak Fox? How Donald Trump’s favorite news source became a language" By Megan Garber](https://www.theatlantic.com/culture/archive/2020/09/fox-news-trump-language-stelter-hoax/616309/) - as the whole Tower of Babel, media ecology front and center. Alternate reality via language and meaning - that's hard-core Marshall McLuhan (University of Toronto) topic of media ecology. Finnegans Wake... as [in **year 1924 onward publication Woke... Wake** to media, media woke](https://en.wikipedia.org/wiki/War_and_Peace_in_the_Global_Village).
