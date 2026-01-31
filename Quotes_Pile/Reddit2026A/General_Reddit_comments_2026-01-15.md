@@ -1962,3 +1962,15 @@ When you capture the mindshare indoctrination of children. When I saw what the f
 * "Technology changes everything and is, therefore, too important to be left entirely in the hands of Bill Gates." - Neil Postman. March 28, 1998. NewTech '98 conference in Denver, Colorado, an event hosted by the Archbishop of Denver.
 
 OPERA_A https://www.youtube.com/watch?v=OyCDicG0tDs Citizen Dandom. The day of the Expanding Bill Gates 1996 to Elon Musk 2026 role model man. You call me a fool for putting Steely Dan above the scheme of Levant Torah, Jewish Donald F band leader... [Godwhacker](https://old.Reddit.com/r/SteelyDan/comments/mu3azw/godwhacker_as_a_concept/)s... ***My Civic Ditty*** - learn to work the GitHub checkins... and die behind the keyboard... Winners in the World, They Call Microsoft ... call me Citizen Steely Dan. 695,561 views December 4, 2018
+
+https://old.reddit.com/r/memes/comments/1qs29hn/its_tough_out_there/o2t1ioa/
+
+Left - right brainrot. Tiny-short messages on Reddit that are Twitter-thinking as conditioned by Twitter owner Elon Musk. ANYTHING to avoid repeating and repeating and keep repeating Malala's October 8, 2013 thinking and giving voices to girls. Technology conditioned mindsets of Reddit-Twitter complex.
+
+https://old.reddit.com/r/memes/comments/1qs29hn/its_tough_out_there/o2sy1ju/
+
+<img width="1134" height="492" alt="image" src="https://github.com/user-attachments/assets/6547e9ef-cf6f-469d-9863-3bc117c05e59" />
+
+What ignorance shit-commenting on the shit-following shit-posting center of the world wide web (Reddit).
+
+* November 9, 2023 - which is AFTER the dates the low-effort shit-commenting Reddit message says. "November 9, 2023 — Microsoft is making its Copilot part of Word, Excel, Outlook, and other services." - https://www.GatesNotes.com/ai-agents
