@@ -30,3 +30,12 @@ I can't take the anti-book anti-reading celebration of Ignorance that Reddit has
 Clearly every teacher in the nation has failed. Every education and comprehension lesson didn't work. **Why hasn't Reddit made Matthew 6:5 world famous** in the face of Donald J. Trump... such a failure of reading lessons from teaching organizations. Teachers have taught way too much sports and shit-prizing... and our society... even the most basic applied reading has failed. Sickening.
 
 People stand for nothing good. Four out of five pages in the fucking shitty Bible can suck, but **people can not cherry-pick worth a god damn**. Just because it is a book on paper. It was an open-book test and nobody on Reddit could find one cherry hanging on the entire printed [tree](https://en.wikipedia.org/wiki/Tree_of_the_knowledge_of_good_and_evil), Matthew 6:5 page.
+
+https://old.reddit.com/r/AskReddit/comments/1qrvz3u/if_the_epstein_files_arent_enough_for_a_global/o2r92uz/
+
+https://old.reddit.com/r/AskReddit/comments/1qrvz3u/if_the_epstein_files_arent_enough_for_a_global/o2r8154/
+
+https://old.reddit.com/r/AskReddit/comments/1qrvz3u/if_the_epstein_files_arent_enough_for_a_global/o2rzwru/
+
+Vibe politics. Trump gives off "vibe" and "style" that Reddit audiences can not resist. He dominates the minds of Reddit fandom to such a degree that people can no longer read books on paper. The "vibes" that transmit across TCP/IP packet networks right into the brain of Reddit consumers to turn them into slaves of Trump-thinking vibrations. Trump media content is one hell of a drug for Reddit society.
+
