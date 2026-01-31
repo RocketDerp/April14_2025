@@ -1998,3 +1998,8 @@ Repeating "extreme narcissism does not allow for equality with other human being
 * “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.” ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. Published October 8, 2013. Swat Valley, Pakistan.
 
 Again.. Repeating "extreme narcissism does not allow for equality with other human beings, as democracy requires" - Reddit fandom of white billionaire leaders.
+
+https://old.reddit.com/r/technology/comments/1qs5tr7/bill_gates_denies_completely_false_claims_in/o2t3ttn/
+
+Media cultists of Daddy figures, Father Figures, looking forward to more Reddit AMA content in the future. The cultists of billionaires on Reddit seek out authority figure father white men. /r/Technology tech-love cult of tech men (user has a "Clippy" Microsoft icon on their Reddit profile).
+
