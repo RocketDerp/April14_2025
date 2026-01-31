@@ -97,3 +97,7 @@ Reddit is a Fandom.
 Reddit is a rich white men **Celebrity** TV fandom. Donald Trump fandom. https://en.Wikipedia.org/wiki/Hate-watching Many are attracted to the hate leadership and are Reddit media cultists of hate virtue signaling. The virtue of *hate harder*. Reddit is a fandom of hate leaders and rich white men iconic lifestyles of private jets and secret sex acts. ANYTHING to avoid asserting Malala's October 8, 2013 book and giving young girls the education and voice to speak up against abusive men who rule girls and women. REDDIT COMMENTING COMMUNITY WILL DO ANYTHING but repeat and stay focused in promoting GenX leader Dr. Bandy X Lee's nonfiction public education about the crisis of toxic dangerous leadership in USA. https://www.ScientificAmerican.com/article/the-shared-psychosis-of-donald-trump-and-his-loyalists/
 
 Media cult of avoiding nonfiction serious organized focus. **Reddit is a Fandom**. A venue for gatherings of Trump fanatics. Reddit is a mockery-washing platform. Tiny-short 4-word Twitter-think as mentally programmed by { Putin --> Murdoch --> Trump --> Musk }.
+
+https://old.reddit.com/r/politics/comments/1qrzwde/trump_mentioned_thousands_of_times_in_huge_new/o2ry34b/
+
+Trump fandom on Reddit. meme-speak (meme writing, meme messaging) mockery as programmed by IRA / CA / Musk / Murdoch.
