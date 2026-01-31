@@ -1971,6 +1971,10 @@ https://old.reddit.com/r/memes/comments/1qs29hn/its_tough_out_there/o2sy1ju/
 
 <img width="1134" height="492" alt="image" src="https://github.com/user-attachments/assets/6547e9ef-cf6f-469d-9863-3bc117c05e59" />
 
-What ignorance shit-commenting on the shit-following shit-posting center of the world wide web (Reddit).
+What ignorance shit-commenting on the shit-following shit-posting center of the world wide web (Reddit). Bill Gates is an active influencer and Corporate America role model. Many people read his public postings. The ignorance on Reddit is that people don't grasp how adult learning works, corporate executives, where they learn from (learning ecology, adult education ecology).
 
 * November 9, 2023 - which is AFTER the dates the low-effort shit-commenting Reddit message says. "November 9, 2023 — Microsoft is making its Copilot part of Word, Excel, Outlook, and other services." - https://www.GatesNotes.com/ai-agents
+
+https://old.reddit.com/r/memes/comments/1qs29hn/its_tough_out_there/o2swpc2/
+
+Redditors in year 2026 are anti-FAQ, anti-Wiki, anti-organizing information into fact-checked priority-focused topics. Reddit audience is more about avoiding important topics and seeking kitten and cat photos than it is about coming together on the same page of crucial topics.
