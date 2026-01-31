@@ -87,3 +87,13 @@ Short message. Twitter-think. Nauseating and sickening media environment of Redd
 https://old.reddit.com/r/AdviceAnimals/comments/1qs1bbw/enough_is_enough_bring_out_the_guillotines/o2s8kul/
 
 "QAnon". Short-length Twitter-thinking comment message on Reddit. Highly upvoted, popular. Calling for murder and execution. Simulation of resistance. In no way does this address the Fox News HDTV media cult and billionaire Rupert Murdoch population mindsets. SEE_ALSO: https://old.reddit.com/r/QAnonRussia/ and how Reddit society can't escape pre-programmed reactionary mindsets and see how Putin organized QAnon promotion and exploitation of USA minds using Reddit meme platform.
+
+https://old.reddit.com/r/politics/comments/1qrzwde/trump_mentioned_thousands_of_times_in_huge_new/o2rup1u/
+
+<img width="925" height="263" alt="image" src="https://github.com/user-attachments/assets/fc51c275-d3cd-4b3b-ab06-f670428e8602" />
+
+Reddit is a Fandom.
+
+Reddit is a rich white men **Celebrity** TV fandom. Donald Trump fandom. https://en.Wikipedia.org/wiki/Hate-watching Many are attracted to the hate leadership and are Reddit media cultists of hate virtue signaling. The virtue of *hate harder*. Reddit is a fandom of hate leaders and rich white men iconic lifestyles of private jets and secret sex acts. ANYTHING to avoid asserting Malala's October 8, 2013 book and giving young girls the education and voice to speak up against abusive men who rule girls and women. REDDIT COMMENTING COMMUNITY WILL DO ANYTHING but repeat and stay focused in promoting GenX leader Dr. Bandy X Lee's nonfiction public education about the crisis of toxic dangerous leadership in USA. https://www.ScientificAmerican.com/article/the-shared-psychosis-of-donald-trump-and-his-loyalists/
+
+Media cult of avoiding nonfiction serious organized focus. **Reddit is a Fandom**. A venue for gatherings of Trump fanatics. Reddit is a mockery-washing platform. Tiny-short 4-word Twitter-think as mentally programmed by { Putin --> Murdoch --> Trump --> Musk }.
