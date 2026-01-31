@@ -346,3 +346,47 @@ Without the Great Seal of the USA, people change the meaning of words as Surkov 
 https://old.reddit.com/r/aviation/comments/1qqq5xn/all_challengers_crjs_and_globals_etc_to_be/o2iigz8/
 
 https://old.reddit.com/r/europe/comments/1qqzdbn/nato_to_hold_military_exercise_without_us_its/o2kqor3/
+
+https://old.reddit.com/r/interestingasfuck/comments/1qrcfqe/man_be_harassed_for_his_looks_yet_found_a/o2nd5mi/
+
+Downplaying that the entire Western World and NATO is being lead by a bully who mocks and insults everyone for any crowd-pleasing crowd-concerning reason. Downplaying that richest man in the world in year 2022 purchased Twitter, the most banal media platform, to mock and insult empathy in an organized campaign of other billionaires and famous people. https://www.lemonde.fr/en/international/article/2024/08/13/elon-musk-s-ambition-repopulating-the-planet-and-destroying-the-woke-virus_6714239_4.html Downplaying that billionaires are investing in machines (artificial intelligence) all together... and mass dehumanizing peopole.
+
+https://old.reddit.com/r/interestingasfuck/comments/1qrcfqe/man_be_harassed_for_his_looks_yet_found_a/o2n6t3e/
+
+The richest man in the world, Elon Musk, is programming minds to be anti-empathy and pro-mockery. https://www.lemonde.fr/en/international/article/2024/08/13/elon-musk-s-ambition-repopulating-the-planet-and-destroying-the-woke-virus_6714239_4.html  Reddit users eat up Twitter / X media constantly on /r/All front page and will not organize against billionaires in a sustained fashion.
+
+https://old.reddit.com/r/interestingasfuck/comments/1qrcfqe/man_be_harassed_for_his_looks_yet_found_a/o2nas8u/
+
+Real names of "The Little Guy" are suppressed on Reddit culture. Mostly childhood famous people like Elon Musk or Harrison Ford or Donald Trump get their real name on front page of Reddit. Unless you died in a famous way like being shot by ICE in the streets on video or murdered people with guns like Luigi. But, over all, Reddit users practice daily to hide their real life real world real identity when commenting and sharing information. Avoidant of nonfiction book authors. Amusement and jokes are prized above reality itself.
+
+https://old.reddit.com/r/interestingasfuck/comments/1qrcfqe/man_be_harassed_for_his_looks_yet_found_a/o2n4jes/
+
+Billionaires of the world are deporting people for not speaking English correctly, the most superficial and banal behaviors. This low-effort message is to feed denial... avoid reality... a "stop" command to *not stand up* to bullying and the leadership of I.C.E. and Trump / MAGA movement.
+
+https://old.reddit.com/r/law/comments/1qro4ts/trump_compromised_by_israel_new_epstein_files/o2pv2fy/
+
+My fucking god. Surkov won. I was involved in the Arab Spring, I traveled to Africa in 2010, I moved over to Jordan in the Middle East in March 2011 at the start of the Syria war and studied media ecology and comparative mythology for years. I have lived in 4 Islamic nations.
+
+People believe "the Jews" control Hollywood, Trump is a reality TV Hollywood star. People have watched Musk go to Israel (TODO: Insert link), Musk in the white House, Trump bomb Iran... the Arab already believed Israel "The Jews" were controlling America. Now with the Greenland and Canada and this bullshit...
+
+USA is cooked. We look to be anti-science Levant mythology fighting the Crusades. Scientific thinking is trashed by all this bullshit. Chaos upon chaos. Surkovian.
+
+https://old.reddit.com/r/law/comments/1qro4ts/trump_compromised_by_israel_new_epstein_files/o2ptu99/
+
+https://old.reddit.com/r/law/comments/1qro4ts/trump_compromised_by_israel_new_epstein_files/o2pxbu3/
+
+https://old.reddit.com/r/law/comments/1qro4ts/trump_compromised_by_israel_new_epstein_files/o2pwmz5/
+
+https://old.reddit.com/r/law/comments/1qro4ts/trump_compromised_by_israel_new_epstein_files/o2qijmp/
+
+Exactly. And the whole world is going to throw that into the bonfire.
+
+https://old.reddit.com/r/law/comments/1qro4ts/trump_compromised_by_israel_new_epstein_files/o2q3epo/
+
+https://old.reddit.com/r/law/comments/1qro4ts/trump_compromised_by_israel_new_epstein_files/o2qh3ia/
+
+https://old.reddit.com/r/pics/comments/1qrnewm/photo_showing_jeffrey_epstein_wearing_israeli/o2q4hyk/
+
+https://old.reddit.com/r/pics/comments/1qrnewm/photo_showing_jeffrey_epstein_wearing_israeli/o2q4703/
+
+https://old.reddit.com/r/pics/comments/1qrnewm/photo_showing_jeffrey_epstein_wearing_israeli/o2pln3g/

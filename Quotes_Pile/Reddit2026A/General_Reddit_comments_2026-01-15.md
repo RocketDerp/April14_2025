@@ -1660,3 +1660,279 @@ https://old.reddit.com/r/lostgeneration/comments/1qr1vrv/we_are_so_smart/o2l0fhm
 Organized low-effort poorly-named postings on front page "We Are So Smart" title that is generic meaning; on-Reddit click-bait. This low-effort anti-intellectual title serves to normalize the situation. It does not offer education on media ecology of WHY important topics get drowned
 
 * "What Orwell feared were those who would ban books. What Huxley feared was that there would be no reason to ban a book, for there would be no one who wanted to read one. Orwell feared those who would deprive us of information. Huxley feared those who would give us so much that we would be reduced to passivity and egoism. Orwell feared that the truth would be concealed from us. Huxley feared the truth would be drowned in a sea of irrelevance." ; "This book is about the possibility that Huxley, not Orwell, was right.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. Year 1985
+
+https://old.reddit.com/r/Fauxmoi/comments/1qrd3na/catherine_ohara_has_passed_away_at_age_71/o2n9k5q/
+
+Top-most upvoted comment. Mind blown that a media celebrity information was shown on the entertainment club systems. Age 71 person dies of natural causes and minds go into shock. Images and film and TV is held above millions of non-famous people having their health care taken away and being influenced by famous faces and intellectual property icons (video game characters, etc).
+
+https://old.reddit.com/r/Fauxmoi/comments/1qrd3na/catherine_ohara_has_passed_away_at_age_71/o2n9a2w/
+
+1 month Reddit account. As if there are no births or good things happening. The worst thing is how all the people with free time and spare time reaction-commenting to BREAKING HIGH-SPEED NEWS over and over and aren't standing up in a sustained thoughtful way to Putin and Trump wrecking the entire world systemically. People who won't turn to nonfiction and rescue USA with education:
+
+* "Social media have changed the way Americans are exposed to news. Internet news sites (CNN, Huffington Post, etc.) and social media such as Facebook and Twitter **provide immediate access to news as well as to comments from other readers** with differing viewpoints. Many Americans impacted by Trump anxiety disorder have admitted to an **unhealthy obsession with checking news websites** much more often than they previously did, and the amount of news involving Trump and his new administration has been constant, chaotic, confusing, and often overwhelming. When struggling with anxiety, many individuals, in an attempt to maintain control, will falsely assume that the more they know, the more they can be prepared. However, this tends to give them a false sense of control and, paradoxically, may increase anxiety symptoms once they realize their grip on control is not solid." - Dr. Bandy X Lee, The Dangerous Case of Donald Trump: 27 Psychiatrists and Mental Health Experts Assess a President. Published October 3, 2017. Chapter "Trump Anxiety Disorder: The Trump Effect on the Mental Health of the Public Half the Nation and Special Populations"; by Jennifer Contarino Panning,
+
+https://old.reddit.com/r/Millennials/comments/1qrde30/rest_in_peace_catherine_ohara_a_mother_to/o2ncneq/
+
+Find out by breaking world news even on every media system. What was the expectation, that the police knock on your door with a grief counselor? The parasocial relationship people have with celebrities like Nicki Minaj and Donald Trump. A person's entire life gets boiled down to how they died and the notification method of death to some mindsets.
+
+https://old.reddit.com/r/Millennials/comments/1qrde30/rest_in_peace_catherine_ohara_a_mother_to/o2nhhko/
+
+https://old.reddit.com/r/Millennials/comments/1qrde30/rest_in_peace_catherine_ohara_a_mother_to/o2ncryz/
+
+She had friends, lived a fulfilling and full life. What's far more sad is the bamboozle that people on Reddit, millions and millions of people, live under by billionaires puppeting Truth Social and Twitter memes in front of their eyes. The lacking of self-awareness at the Marshall McLuhan and Neil Postman level to be controlled and manipulated by Elon Musk Twitter and Donald Trump Truth Social constantly screenshot onto Reddit. That's truly sad. I appreciate and enjoy Catherine O'Hara's work and share it with others... art connects me to living people. What's really said is people not seeing what is going on to their non-famous neighbors, and humanity in total, at the hands of Elon Musk, Putin, and Donald Trump.
+
+* “One of the saddest lessons of history is this: If we’ve been bamboozled long enough, we tend to **reject any evidence of the bamboozle**. We’re no longer interested in finding out the truth. The bamboozle has captured us. It’s simply too painful to acknowledge, even to ourselves, that we’ve been taken. Once you give a charlatan power over you, you almost never get it back. So the old bamboozles tend to persist as the new ones rise.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, **1995**, page 241
+
+What's said is how the entire population of USA age 12 to age 130 isn't using social media to promote Dr. Bandy X Lee's nonfiction education for the general public about Trump's dangerous and dehumanizing leadership. And the spare time and free time people spend commenting about Trump instead of organizing to remove Trump and educate and rescue MAGA from media cults. Children are being raised with Trump as a role model, new cults are expanding every day. The emotions over one celebrity actor / acting star: Donald Trump. That rules a society that can not seem to recognize cult behavior towards Home Alone appearances and TV stars.
+
+Deaths like this inspire me to focus on those still alive. It is far more sad to know that a child is being put in front of Fox News HDTV at age 9 right now and being indoctrinated into worship of celebrity culture by adult parents at age 30.
+
+https://old.reddit.com/r/popculturechat/comments/1qrdu8i/catherine_ohara_schitts_creek_star_and_comedy/o2ngzn4/
+
+https://old.reddit.com/r/popculturechat/comments/1qrdu8i/catherine_ohara_schitts_creek_star_and_comedy/o2nfuue/
+
+If you want to understand the MAGA fandom to Donald Trump. Study these Reddit behaviors. Older people who are FAMOUS, from timeless film and TV recordings, are expected to live forever and forever and hearts and minds are so tied to Donald J. Trump superstar strings of the media systems themselves.
+
+https://old.reddit.com/r/popculturechat/comments/1qrdu8i/catherine_ohara_schitts_creek_star_and_comedy/o2ng8l4/
+
+Trump seemed so timeless to people too, the same Home Alone made Trump timeless icon of USA culture celebrity and fame.
+
+* "The ultimate aim of the quest must be neither release nor ecstasy for oneself, but the wisdom and the power to serve others.” One of the many distinctions between the celebrity and the hero, he said, is that one lives only for self while the other acts to redeem society." - Bill Moyers, Power of Myth, year 1988
+
+* Year 1988... BILL MOYERS: Does our society? CAMPBELL: It did have. It had the Christ. And then America had men like Washington and Jefferson and, later, men like Daniel Boone. But life today is so complex, and it is changing so fast, that there is no time for anything to constellate itself before it’s thrown over again. MOYERS: We seem to **worship celebrities today**, not heroes. CAMPBELL: Yes, and that’s too bad. A questionnaire was once sent around one of the high schools in Brooklyn which asked, “What would you like to be?” Two thirds of the students responded, “A celebrity.” They had no notion of having to give of themselves in order to achieve something. MOYERS: Just to be known. CAMPBELL: Just to be known, to have fame—name and fame. It’s too bad.
+
+https://old.reddit.com/r/popculturechat/comments/1qrdu8i/catherine_ohara_schitts_creek_star_and_comedy/o2ngirp/
+
+https://old.reddit.com/r/popculturechat/comments/1qrdu8i/catherine_ohara_schitts_creek_star_and_comedy/o2nfvs9/
+
+The Donald J. Trump MAGA White House performance of Comedian character Tony Clifton far exceeds all other performers in world history. You will never see people more glued to mocking a performer that POTUS Tony Clifton that Trump and supporting actors play. People are entirely emotionally dedicated to the hybrid NYC Kaufman techniques and Surkov student screenplay patterns!
+
+If you want to understand the MAGA fandom to Donald Trump. Study these Reddit behaviors. Older people who are FAMOUS from entertainment. Joe Biden was not *entertainment famous* that Putin knew to elevate as the anti-NATO icon in "Operation Matthew 4:19" 
+
+https://old.reddit.com/r/popculturechat/comments/1qrdu8i/catherine_ohara_schitts_creek_star_and_comedy/o2ngmpn/
+
+"Hate thy Enemy" (Him = Donald Trump) messaging. Hate the out-group messaging on Reddit. Death wishing prayers to God to smite and punish non-believers.
+
+https://old.reddit.com/r/popculturechat/comments/1qrdu8i/catherine_ohara_schitts_creek_star_and_comedy/o2ng9e6/
+
+If you want to understand the MAGA fandom to Donald Trump. Study these Reddit behaviors. Older people who are FAMOUS from entertainment. Joe Biden was not *entertainment famous* that Putin knew to elevate as the anti-NATO icon in "Operation Matthew 4:19" 
+
+https://old.reddit.com/r/popculturechat/comments/1qrdu8i/catherine_ohara_schitts_creek_star_and_comedy/o2ngl9b/
+
+* George Lucas filmed for Hollywood audiences, "Power of Myth" nonfiction, Year 1988... BILL MOYERS: Does our society? CAMPBELL: It did have. It had the Christ. And then America had men like Washington and Jefferson and, later, men like Daniel Boone. But life today is so complex, and it is changing so fast, that there is no time for anything to constellate itself before it’s thrown over again. MOYERS: We seem to **worship celebrities today**, not heroes. CAMPBELL: Yes, and that’s too bad.
+
+https://old.reddit.com/r/popculturechat/comments/1qrdu8i/catherine_ohara_schitts_creek_star_and_comedy/o2ngmw4/
+
+a 71 year old loved person's death. Worst thing in all history. If you want to understand the MAGA fandom to Donald Trump. Study these Reddit behaviors. Older people who are FAMOUS from entertainment. Joe Biden was not *entertainment famous* that Putin knew to elevate as the anti-NATO icon in "Operation Matthew 4:19" 
+
+https://old.reddit.com/r/popculturechat/comments/1qrdu8i/catherine_ohara_schitts_creek_star_and_comedy/o2ngqig/
+
+https://old.reddit.com/r/popculturechat/comments/1qrdu8i/catherine_ohara_schitts_creek_star_and_comedy/o2njxxq/
+
+https://old.reddit.com/r/popculturechat/comments/1qrdu8i/catherine_ohara_schitts_creek_star_and_comedy/o2nhifo/
+
+The flair on this Reddit user is "Star Wars" force.
+
+<img width="1575" height="545" alt="image" src="https://github.com/user-attachments/assets/0257c805-c60f-4f75-b9b1-e21f237a305c" />
+
+Just imagine all the children living in USA... now age 18 who since June 16, 2015 have been parented as Trump as a "Daddy" figure on the screen day in and day out, every day, since they were age 7.
+
+https://old.reddit.com/r/popculturechat/comments/1qrdu8i/catherine_ohara_schitts_creek_star_and_comedy/o2nh44i/
+
+A detached on a screen mother figure.
+
+https://old.reddit.com/r/popculturechat/comments/1qrdu8i/catherine_ohara_schitts_creek_star_and_comedy/o2ni0gj/
+
+<img width="1233" height="824" alt="image" src="https://github.com/user-attachments/assets/887da3f0-9b3d-4181-bb4a-add050537d74" />
+
+Media cultists. And **people can not grasp that MAGA rural population feels the same way about a man** who lives at the top of a tower building in NYC. That the fandom of Fox News feels even more emotional about age 79 Donald Trump, an icon their life of Fred Trump, golf courses, hotels, travel and freedom to have sex with any woman he chooses and hold Moscow Miss Universe parading of women in November 2013. Manhood father figure, Allah, Yahweh, Jesus manhood in the sky of tower buildings and cloud computing Twitter meme father icon.
+
+https://old.reddit.com/r/popculturechat/comments/1qrdu8i/catherine_ohara_schitts_creek_star_and_comedy/o2nhq5c/
+
+"We", film audiences? People in Ukraine since year 2014 have lost people they have eaten with, hugged, known and lived under constant terror of Putin. Unnatural terrorizing killing via explosives, bombings, rockets. Israel and Palestine, Iran. And the constant hate worshiping people have towards the poor and non-famous, non-celebrity people.
+
+https://old.reddit.com/r/popculturechat/comments/1qrdu8i/catherine_ohara_schitts_creek_star_and_comedy/o2nh7id/
+
+This is how detached Reddit audiences to celebrity Trump and celebrity film stars and TV stars are. Unable to grasp that famous people are not eternal gods. Trump Jesus audience and fandom.
+
+https://old.reddit.com/r/popculturechat/comments/1qrdu8i/catherine_ohara_schitts_creek_star_and_comedy/o2nies2/
+
+Prayers to Jesus to death-kill an enemy. "Hate thy enemy", "Death-wish the enemy". Tech and machine lovers idea of God is to *hate harder*. Nation of cultists to fiction storytelling. The cult of celebrity Trump.
+
+https://old.reddit.com/r/popculturechat/comments/1qrdu8i/catherine_ohara_schitts_creek_star_and_comedy/o2nme2y/
+
+https://old.reddit.com/r/popculturechat/comments/1qrdu8i/catherine_ohara_schitts_creek_star_and_comedy/o2nilag/
+
+https://old.reddit.com/r/popculturechat/comments/1qrdu8i/catherine_ohara_schitts_creek_star_and_comedy/o2nlmo6/
+
+This is the reason billionaires of the world, including the richest man on the planet, Elon Musk, are investing in artificial intelligence that can create new images and content for audiences who do not want real intelligence, real world, and want artificial intelligence (fiction) t believe in. Billionaires see the love people have for fiction characters and creating eternal characters for fandoms who have abandoned nonfiction real. Trump has lured in all the AI technology to profit from the abandonment of real Earth... this Reddit fandom.
+
+https://old.reddit.com/r/popculturechat/comments/1qrdu8i/catherine_ohara_schitts_creek_star_and_comedy/o2nhf8t/
+
+The rest of the world is watching how North America population behaves towards celebrity notifications. Surkov understood this back in year 2001, exported it via the Saint Parkersburg Internet Research Agency. that fiction far outsells nonfiction to Reddit celebrity audiences. Trump is the celebrity of all celebrity influencer content creators.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qrf2np/macaulay_culkin_on_instagram_bids_farewell_to/o2nsgx9/
+
+Real-world reality mothers are abandoned an hate for choosing celebrity Donald Trump and being "MAGA". It is an nation of **media cultists** who worship one mother or daddy (MAGA Trump) or another off screens. Image cultists, Trump fandom cultists.
+
+https://old.reddit.com/r/movies/comments/1qrdc1b/catherine_ohara_has_died_at_the_age_of_71/o2nb455/
+
+Audiences behave like death at age 71 makes an appointment in their personal calendar. Complete lack of education and understanding about the most basics of life and death on Earth.
+
+https://old.reddit.com/r/movies/comments/1qrdc1b/catherine_ohara_has_died_at_the_age_of_71/o2nbtoe/
+
+"unexpected" age 71 person dies. 
+
+https://old.reddit.com/r/movies/comments/1qrdc1b/catherine_ohara_has_died_at_the_age_of_71/o2nbety/
+
+https://old.reddit.com/r/movies/comments/1qrdc1b/catherine_ohara_has_died_at_the_age_of_71/o2nchsb/
+
+This audience explains so much of celebrity New Yorker socialize Donald J Trump. People's parasocial relationships of anti-reality expectations. A television consumer audience / film consumers / who have competently abandoned nonfiction in favor of mythological storytelling. This is the force of content that drives MAGA media cults.
+
+https://old.reddit.com/r/LiveFromNewYork/comments/1qrdqqq/rip_catherine_ohara/o2nf4gl/
+
+https://old.reddit.com/r/LiveFromNewYork/comments/1qrdqqq/rip_catherine_ohara/o2nh84s/
+
+https://old.reddit.com/r/OldSchoolCool/comments/1qredjj/rip_funny_lady_catherine_ohara_1970s/o2nwp15/
+
+https://old.reddit.com/r/SchittsCreek/comments/1qrd7ma/catherine_ohara_dead_at_71/o2ne1cj/
+
+https://old.reddit.com/r/SchittsCreek/comments/1qrd7ma/catherine_ohara_dead_at_71/o2nal23/
+
+https://old.reddit.com/r/SchittsCreek/comments/1qrd7ma/catherine_ohara_dead_at_71/o2nao31/
+
+https://old.reddit.com/r/SchittsCreek/comments/1qrd7ma/catherine_ohara_dead_at_71/o2ndim0/
+
+Reddit locked replies on this comment.
+
+https://old.reddit.com/r/horror/comments/1qrdium/catherine_ohara_beetlejuice_schitts_creek_and/o2nftb6/
+
+To understand the celebrity audience cult of entertainer Donald Trump...
+
+https://old.reddit.com/r/horror/comments/1qrdium/catherine_ohara_beetlejuice_schitts_creek_and/o2nemep/
+
+https://old.reddit.com/r/horror/comments/1qrdium/catherine_ohara_beetlejuice_schitts_creek_and/o2nhnes/
+
+To understand the celebrity audience cult of entertainer Donald Trump...
+
+https://old.reddit.com/r/nostalgia/comments/1qrdgsm/after_giving_us_years_of_great_comedy_i_hope/o2ncj4y/
+
+https://old.reddit.com/r/nostalgia/comments/1qrdgsm/after_giving_us_years_of_great_comedy_i_hope/o2ndts8/
+
+shocked to find out *just now* when world breaking news instantly notified everyone *just now*! To understand the celebrity audience cult of entertainer Donald Trump...
+
+https://old.reddit.com/r/nostalgia/comments/1qrdgsm/after_giving_us_years_of_great_comedy_i_hope/o2nfzpv/
+
+https://old.reddit.com/r/nostalgia/comments/1qrdgsm/after_giving_us_years_of_great_comedy_i_hope/o2nemh1/
+
+https://old.reddit.com/r/nostalgia/comments/1qrdgsm/after_giving_us_years_of_great_comedy_i_hope/o2nofop/
+
+To understand the celebrity audience cult of entertainer Donald Trump...
+
+https://old.reddit.com/r/nostalgia/comments/1qrdgsm/after_giving_us_years_of_great_comedy_i_hope/o2nfecm/
+
+https://old.reddit.com/r/whatthefrockk/comments/1qre94s/catherine_ohara_beloved_actress_and_the_face/o2nitff/
+
+https://old.reddit.com/r/whatthefrockk/comments/1qre94s/catherine_ohara_beloved_actress_and_the_face/o2nscf4/
+
+https://old.reddit.com/r/whatthefrockk/comments/1qre94s/catherine_ohara_beloved_actress_and_the_face/o2npy31/
+
+https://old.reddit.com/r/popculturechat/comments/1qrkdgk/bill_gates_caught_std_and_begged_epstein_for/o2owg1j/
+
+I used to be on the private staff of Paul Allen. We toured Bill Gates' house on Mercer Island. People do not grasp how sports teams and software systems are used with the population. The thinking and mindsets of manipulating billions of people, mindshare capture.
+
+https://old.reddit.com/r/popculturechat/comments/1qrkdgk/bill_gates_caught_std_and_begged_epstein_for/o2owzaq/
+
+https://old.reddit.com/r/popculturechat/comments/1qrkdgk/bill_gates_caught_std_and_begged_epstein_for/o2ovo66/
+
+https://old.reddit.com/r/popculturechat/comments/1qrkdgk/bill_gates_caught_std_and_begged_epstein_for/o2oxuuy/
+
+Microsoft and Apple made so much money in the first place by hollowing out education and ignoring all the criticisms and call-outs by Neil Postman. People were trained to become sealed-hood closed-source consumers. I was an INSIDER for Microsoft and Paul Allen and the shoddy customer service (which I did under contract with Software Spectrum in Garland). Hillary Clinton's e-mail was Microsoft Exchange Server... and serious systems were hacked. https://en.wikipedia.org/wiki/2021_Microsoft_Exchange_Server_data_breach
+
+https://old.reddit.com/r/popculturechat/comments/1qrkdgk/bill_gates_caught_std_and_begged_epstein_for/o2owtll/
+
+https://old.reddit.com/r/popculturechat/comments/1qrkdgk/bill_gates_caught_std_and_begged_epstein_for/o2oywc7/
+
+https://old.reddit.com/r/popculturechat/comments/1qrkdgk/bill_gates_caught_std_and_begged_epstein_for/o2owaeb/
+
+I keep pointing out that women on social media keep talking abut white wealthy men and avoiding Malala. Girls are being abused all over the world by established men in society. Indoctrination. Including Hollywood, music industry, film industy. People in USA in January 2026 really have lost sense of what the sexual revolution in USA did for women to be able to learn and discuss. Putin lead MAGA has been leaping backwards for women all over the world. Look at the timeline from year 2012: https://github.com/RocketDerp/April14_2025/blob/working/PostMalala/Marriage/World_Malala_Timeline_Year_2012.md
+
+* “We felt like the Taliban saw us as like little dolls to control, telling us what to do and how to dress. I thought if God wanted us to be like that He would not have made us all different.” ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. Published October 8, 2013
+
+https://old.reddit.com/r/technology/comments/1qrk9r1/el0n_msk_had_more_extensive_ties_to_epstein_than/o2ouh9o/
+
+https://old.reddit.com/r/technology/comments/1qrk9r1/el0n_msk_had_more_extensive_ties_to_epstein_than/o2p8gbs/
+
+Dates and citations on a Reddit comment!
+
+https://old.reddit.com/r/technology/comments/1qrk9r1/el0n_msk_had_more_extensive_ties_to_epstein_than/o2ou5bz/
+
+See replies, "He has an army of paid users that continuously prowl Reddit to push his narrative and discredit any counter claims against him."
+
+https://old.reddit.com/r/technology/comments/1qrk9r1/el0n_msk_had_more_extensive_ties_to_epstein_than/o2p2an6/
+
+https://old.reddit.com/r/technology/comments/1qrk9r1/el0n_msk_had_more_extensive_ties_to_epstein_than/o2p877c/
+
+Gullible population. Unable to face up to religion being science fiction like Hamlet's Ghost. Atheists can't make the connection either. Being anti-religion isn't the same as comprehending media cults of Fox News HDTV religion faiths.
+
+https://old.reddit.com/r/technology/comments/1qrk9r1/el0n_msk_had_more_extensive_ties_to_epstein_than/o2p355s/
+
+Social media laugh track for Reddit audience.
+
+https://old.reddit.com/r/mildlyinfuriating/comments/1qrlhfh/pick_your_battles_what_a_win/o2pmgvy/
+
+Tower of Babel, language, speech.
+
+https://old.reddit.com/r/mildlyinfuriating/comments/1qrlhfh/pick_your_battles_what_a_win/o2pprqm/
+
+https://old.reddit.com/r/news/comments/1qro0w7/bill_gates_caught_an_std_from_russian_prostitutes/o2pntfm/
+
+https://old.reddit.com/r/news/comments/1qro0w7/bill_gates_caught_an_std_from_russian_prostitutes/o2pogfo/
+
+Why are social media users not flooding the Internet with quotes from Dr. Bandy X Lee's book published October 3, 2017 about the mental health of Trump and MAGA?
+
+https://old.reddit.com/r/news/comments/1qro0w7/bill_gates_caught_an_std_from_russian_prostitutes/o2posvn/
+
+Joke-washing. Everything on Reddit gets turned into a source of comedy. That's why billionaires thrive, they provide emotional humor for audiences on meme platforms. Free time and spare time people spend on Reddit... Why are social media users not flooding the Internet with quotes from Dr. Bandy X Lee's book published October 3, 2017 about the mental health of Trump and MAGA?
+
+https://old.reddit.com/r/news/comments/1qro0w7/bill_gates_caught_an_std_from_russian_prostitutes/o2po2sj/
+
+https://old.reddit.com/r/news/comments/1qro0w7/bill_gates_caught_an_std_from_russian_prostitutes/o2po0lm/
+
+Non-specific egoism message, reflects back whatever 'ball" people see. I'll be specific on the critical ball everyone seems to be avoiding: cult deprogramming. Dr. Bandy X Lee's nonfiction books and articles.
+
+https://old.reddit.com/r/nottheonion/comments/1qro5xu/jeffrey_epstein_was_banned_on_xbox_live/o2pozve/
+
+This posting has some media ecology content.
+
+https://old.reddit.com/r/nottheonion/comments/1qro5xu/jeffrey_epstein_was_banned_on_xbox_live/o2po240/
+
+https://old.reddit.com/r/nottheonion/comments/1qro5xu/jeffrey_epstein_was_banned_on_xbox_live/o2pntd2/
+
+https://old.reddit.com/r/nottheonion/comments/1qro5xu/jeffrey_epstein_was_banned_on_xbox_live/o2pn7dy/
+
+https://old.reddit.com/r/movies/comments/1qrnwz9/film_students_are_having_trouble_sitting_through/o2pn28x/
+
+Media Ecology topics.
+
+https://old.reddit.com/r/movies/comments/1qrnwz9/film_students_are_having_trouble_sitting_through/o2pn2fp/
+
+https://old.reddit.com/r/movies/comments/1qrnwz9/film_students_are_having_trouble_sitting_through/o2pn3mc/
+
+https://old.reddit.com/r/movies/comments/1qrnwz9/film_students_are_having_trouble_sitting_through/o2pmk00/
+
+https://old.reddit.com/r/movies/comments/1qrnwz9/film_students_are_having_trouble_sitting_through/o2prvcf/
+
+https://old.reddit.com/r/movies/comments/1qrnwz9/film_students_are_having_trouble_sitting_through/o2pmhyv/
+
+https://old.reddit.com/r/movies/comments/1qrnwz9/film_students_are_having_trouble_sitting_through/o2pnmtw/
+
+https://old.reddit.com/r/movies/comments/1qrnwz9/film_students_are_having_trouble_sitting_through/o2porsa/
+
+https://old.reddit.com/r/movies/comments/1qrnwz9/film_students_are_having_trouble_sitting_through/o2pl186/
+
+https://old.reddit.com/r/movies/comments/1qrnwz9/film_students_are_having_trouble_sitting_through/o2pmx74/
+
+https://old.reddit.com/r/movies/comments/1qrnwz9/film_students_are_having_trouble_sitting_through/o2poc3k/
+
+https://old.reddit.com/r/movies/comments/1qrnwz9/film_students_are_having_trouble_sitting_through/o2ppbaz/

@@ -23,3 +23,28 @@ https://old.reddit.com/r/HyperBanalisation/comments/bjf6ys/under_the_surkov_medi
 Year 2019 censorship on Reddit commenting.
 
 https://old.reddit.com/r/HyperBanalisation/comments/bjf6ys/under_the_surkov_media_invasion_of_russia_usa/equp1ad/
+
+
+https://old.reddit.com/r/politics/comments/k2wygb/trump_claims_massive_proof_of_pennsylvania_voter/gdxp0ub/
+
+This morning, Saturday 6:30 am January 31 2026, I remembered reading and commenting, this specific reply:
+
+https://old.reddit.com/r/politics/comments/k2wygb/trump_claims_massive_proof_of_pennsylvania_voter/gdxyhsr/
+
+My comment.
+
+https://old.reddit.com/r/politics/comments/k2wygb/trump_claims_massive_proof_of_pennsylvania_voter/gdxozyd/
+
+"beyond absurd"
+
+* "what Putin will do next — that he’s unpredictable and thus dangerous. We’re rendered stunned, spun, and flummoxed by the Kremlin’s weaponization of absurdity and unreality.” - year 2014. September 9, 2014 https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/politics/comments/k2wygb/trump_claims_massive_proof_of_pennsylvania_voter/gdxsbao/
+
+<img width="1243" height="284" alt="image" src="https://github.com/user-attachments/assets/9c0e06a3-a035-4df3-bf0d-9356c813fe4d" />
+
+The raging QAnon media cult ( https://old.reddit.com/r/QAnonRussia/ ) was obvious to many of us before January 6, 2021 came. This comment from November 28, 2020.
+
+https://old.reddit.com/r/ThePeoplesPress/comments/1jogeem/billionaires_met_in_november_2013_and_one_month/mkrl2kv/
+
+My comment on my posting. May have already grabbed this one. Comment that lead to creation of this GitHub project and name.

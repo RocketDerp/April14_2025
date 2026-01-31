@@ -879,3 +879,188 @@ https://old.reddit.com/r/TikTokCringe/comments/1qr6dg6/you_raise_your_voice_i_er
 *  "Everything we're told by journalists and politicians is confusing and **contradictory**. Of course, there is no Mr. Surkov in charge, but it is an odd, non-linear world that plays into the hands of those in power." - December 31, 2014. Before June 16, 2015 Trump run for POTUS. https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mdnoefdlyc2x https://autistics.life/@RoundSparrow/115984882760828406 }
+
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1qr4cs6/fulton_county_commissioner_mo_ivory_addresses_the/o2lic7n/
+
+Georgia election topic.
+
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1qr4cs6/fulton_county_commissioner_mo_ivory_addresses_the/o2lhaks/
+
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1qr4cs6/fulton_county_commissioner_mo_ivory_addresses_the/o2lowjr/
+
+It's been since year 2013. The rise of MAGA. People have not only WASTED time commenting about Trump since June 16, 2015 - people have almost entirely abandoned nonfiction learning. Adults are no longer able to engage serious nonfiction study of their own shift in behavior. Trump rose to power on Twitter and the Saint Petersburg IRA March 2013 onward media invasion... and it has wrecked nonfiction learning across a huge number of topics. Example, evidence going back to year 2014 of IRA activity, measles and COVID-2019 topics: https://www.bbc.com/news/world-us-canada-45294192
+
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1qr4cs6/fulton_county_commissioner_mo_ivory_addresses_the/o2lllao/
+
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1qr4cs6/fulton_county_commissioner_mo_ivory_addresses_the/o2m7yky/
+
+Since March 2013, hearts and minds have been conditioned by Russia's IRA to prize low-effort commenting and junk information over serious nonfiction. Fiction outsells nonfiction and Trump provides constant stimulating performance art. Trump is first and foremost an actor acting. Surkov student screenplays were put into the mass man mindsets in year 2013 before the Ukraine war February 20, 2014.
+
+
+https://old.reddit.com/r/WorkReform/comments/1qr8iou/weve_been_warned_why_cant_people_see_the_obvious/o2m9qmg/
+
+<img width="914" height="481" alt="image" src="https://github.com/user-attachments/assets/fe38a450-befe-4975-a16e-e5c3fe10fd75" />
+
+This entire front-page Reddit post is a failure to comprehend the January 2026 situation. PEOPLE WERE PAYING ATTENTION, Fox News HDTV turned it into entertainment since October 7, 1996. Reddit turned Trump into constant entertainment. Amusement, comedy, surreal joking, absurd memes. People are attracted to it as engaging entertainment. Nonfiction is unattractive to people.
+
+Clowning is the current religious faith of USA society. Not just "Congress is clowns", not only "Musk is a clown", not only "Trump is Tony Clifton clowning", it is the ENTIRE POPULATING upvoting and reTweeting every hour of every day in a clown society, clown nation, clown We The People. EVERY HOUR upvoting clown-shit and avoiding nonfiction serious books on paper. The deepest faith and spirtual values is mockery and insulting. Surkov won.
+
+* "For all his perspicacity, George Orwell would have been stymied by this situation; there is nothing “Orwellian” about it. The President does not have the press under his thumb. The New York Times and The Washington Post are not Pravda; the Associated Press is not Tass. And there is no Newspeak here. Lies have not been defined as truth nor truth as lies. **All that has happened is that the public has adjusted to incoherence and been amused** into indifference. Which is why Aldous Huxley would not in the least be surprised by the story. Indeed, he prophesied its coming. He believed that it is far more likely that the Western democracies will dance and dream themselves into oblivion than march into it, single file and manacled. Huxley grasped, as Orwell did not, that it is not necessary to conceal anything from a public insensible to contradiction and narcoticized by technological diversions. Although Huxley did not specify that television would be our main line to the drug, he would have no difficulty accepting Robert MacNeil’s observation that “Television is the soma of Aldous Huxley’s Brave New World.” Big Brother turns out to be [Howdy Doody](https://en.wikipedia.org/wiki/Howdy_Doody)." ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, **year 1985**, page 111
+
+The class was paying attention that hate is entertaining. And year after year, comic memes, jokes, were authored by the class clowning society. Not just MAGA, not just Republicans, everyone is clowning around and avoiding teaching Marshall McLuhan, Neil Postman, Jen Senko, and Dr. Bandy X Lee's nonfiction.
+
+Social post { https://autistics.life/@RoundSparrow/115985117927868929 https://bsky.app/profile/roundsparrow.bsky.social/post/3mdnrqjvcgk2k }
+
+https://old.reddit.com/r/WorkReform/comments/1qr8iou/weve_been_warned_why_cant_people_see_the_obvious/o2mgki6/
+
+9 month Reddit account.
+
+https://old.reddit.com/r/WorkReform/comments/1qr8iou/weve_been_warned_why_cant_people_see_the_obvious/o2mci2t/
+
+Cambridge Analytica and Saint Petersburg Internet Research Agency defeated all previous defenses. NATO and Pentagon failed to defend hearts and minds from Putin's Kremlin. Surkov won. People trivialize that goodness compassion takes more time and pain to educate than mob mentality, sports-think of rectangle (fields NFL, NBA, FIFA) sports logic. People ignore the **adult education situation in USA**, which means Fox News HDTV is where adults learn and study. Not in rectangle classrooms like sports fields, but from swooping Fox News entertainment, SNL Weekend Update entertainment, is where adults learn and teach.
+
+* From September 9, 2014 - 11 years 4 months and some weeks ago, which is **more than a decade** - we could have kept repeating it and defeated Putin's takeover of USA hearts and minds: https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ "Russia and the Menace of Unreality: How Vladimir Putin is revolutionizing information warfare. By Peter Pomerantsev. At the NATO summit in Wales last week, General Philip Breedlove, the military alliance’s top commander, made a bold declaration. Russia, he said, is waging “the **most amazing information warfare blitzkrieg we have ever seen in the history of information warfare.**” It was something of an underestimation. The new Russia doesn’t just deal in the petty disinformation, forgeries, lies, leaks, and cyber-sabotage usually associated with information warfare. It reinvents reality, creating mass hallucinations that then translate into political action." - we should NOW be [repeating it every 47 hours over and over](https://github.com/GreatSealUSA/Brainrot_Society_47), keep repeating, again and again!
+
+https://old.reddit.com/r/WorkReform/comments/1qr8iou/weve_been_warned_why_cant_people_see_the_obvious/o2mehp9/
+
+Left vs. right brain rot. Fiction vs. nonfiction is the more critical measure. What most describe as "right" is fiction addiction. Abandonment of science nonfiction thinking.
+
+https://old.reddit.com/r/IThinkYouShouldLeave/comments/1qr35wi/that_is_soooooo_sad_so_so_so_so_sooooooo_sad/o2l7qp6/
+
+How can you know that the Craigslist advert is real, or that the no-evidence Twitter screenshot is real? People are not standing up to the abandonment of nonfiction. Surkov won.
+
+* "But the key thing was, that Surkov then let it be known that this was what he was doing, **which meant that no one was sure what was real or fake**. As one journalist put it: "It is a strategy of power that keeps any opposition constantly confused." A ceaseless shape-shifting that is unstoppable because it is undefinable." - [BBC, Adam Curtis](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html), December 31, 2014 (NYE year 2014)         
+https://youtu.be/yqpo9GqTaV8?t=1857
+
+https://old.reddit.com/r/politics/comments/1qra9oi/final_jeffrey_epstein_files_cache_released_by_doj/o2mvfht/
+
+"ha ha", social media laugh track. Tiny popular Tweet-length message patterns. Epstein entertainment fandom. Find it amusing that Trump and Putin use Surkov information society techniques. Behavior of Reddit audience bombed into comedy mentality by Kremlin information warfare since March 2013.
+
+https://old.reddit.com/r/law/comments/1qrf7xc/doj_just_deleted_this_document_from_the_epstein/o2ntide/
+
+People are motivated to *hate harder*. To avoid at all cost: MLK Jr's teachings about hate.
+
+https://old.reddit.com/r/law/comments/1qrf7xc/doj_just_deleted_this_document_from_the_epstein/o2ntnqd/
+
+Reddit community is a media **cult** *so far gone* in reaction-commenting to **Trump content** and sex action details that people on Reddit will not stop reacting to every Trump information drop / Trump photograph... and face up to media addition to a celebrity is what MAGA is driven by. Dr. Bandy X Lee ignored!
+
+https://old.reddit.com/r/politics/comments/1qrgz1b/epstein_files_released_trump_mentioned_hundreds/o2o46ho/
+
+https://old.reddit.com/r/politics/comments/1qrgz1b/epstein_files_released_trump_mentioned_hundreds/o2oog4z/
+
+https://old.reddit.com/r/politics/comments/1qrgz1b/epstein_files_released_trump_mentioned_hundreds/o2o50ta/
+
+https://old.reddit.com/r/politics/comments/1qrgz1b/epstein_files_released_trump_mentioned_hundreds/o2o780n/
+
+https://old.reddit.com/r/politics/comments/1qrgz1b/epstein_files_released_trump_mentioned_hundreds/o2o5u6t/
+
+https://old.reddit.com/r/politics/comments/1qrgz1b/epstein_files_released_trump_mentioned_hundreds/o2o76qn/
+
+https://old.reddit.com/r/politics/comments/1qrgz1b/epstein_files_released_trump_mentioned_hundreds/o2o82uo/
+
+I, Stephen Alfred Gutknecht, consider Trump to be a massive mistake for USA society. I think it is an error in judgement. I think NOBODY benefits from Trumpism. I think it represents the forces of media systems cramming minds into predictable patterns. Marketing and advertising were able to resonate with minds wrecked by high-speed information networks. It is sickening and sad that people do not study Marshall McLuhan, Neil Postman and grasp what has happened. Technology advancement has created disturbed fixations on television icons Trump. Russia was able to take Neil Postman's 1985 media theories and weaponize them.
+
+Creative fiction of Trump eclipsed minds of nonfiction. Russia saw the weak spots in the mind to insert self-harm attractions.
+
+* From September 9, 2014 - 11 years 4 months and some weeks ago, which is **more than a decade** - we could have kept repeating it and defeated Putin's takeover of USA hearts and minds: https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ "Russia and the Menace of Unreality: How Vladimir Putin is revolutionizing information warfare. By Peter Pomerantsev. At the NATO summit in Wales last week, General Philip Breedlove, the military alliance’s top commander, made a bold declaration. Russia, he said, is waging “the **most amazing information warfare blitzkrieg we have ever seen in the history of information warfare.**” It was something of an underestimation. The new Russia doesn’t just deal in the petty disinformation, forgeries, lies, leaks, and cyber-sabotage usually associated with information warfare. It reinvents reality, creating mass hallucinations that then translate into political action."
+
+https://old.reddit.com/r/politics/comments/1qrgz1b/epstein_files_released_trump_mentioned_hundreds/o2oatl8/
+
+11 month Reddit account.
+
+https://old.reddit.com/r/politics/comments/1qrgz1b/epstein_files_released_trump_mentioned_hundreds/o2oegqp/
+
+Male aggression normalized. Male bullying normalized. ICE men invading homes, invading cars, attacking anyone they perceive to be weak or needy now normalized. Junk information to LOL at power over women, normalized. Truth Social as an anti-truth anti-sincerity platform all normalized. 
+
+https://old.reddit.com/r/politics/comments/1qrgz1b/epstein_files_released_trump_mentioned_hundreds/o2o8xxb/
+
+It matters as entertainment for Reddit audiences. People have been screaming for dirty details of rich white men sex lives. People on Reddit constantly talk about their Trump diaper fetish and there is nothing illegal about a man pooping. But it sure draws a Reddit fandom to Trump shit. Shit-commenting audiences love rich white men "Daddy" age 79 sex shit. https://en.wikipedia.org/wiki/Diaper_fetishism - ANYTHING to avoid serious nonfiction learning about Kremlin information warfare. ANYTHING to avoid learning nonfiction serious learning of mental health issues from leader Dr. Bandy X Lee.
+
+https://old.reddit.com/r/politics/comments/1qrgz1b/epstein_files_released_trump_mentioned_hundreds/o2oasbd/
+
+People on Reddit are unable to discuss factual evidence of QAnon "Q" being supported by Russia to harm USA society (Reddit audience). SEE_ALSO https://old.Reddit.com/r/QAnonRussia 
+
+https://old.reddit.com/r/politics/comments/1qrgz1b/epstein_files_released_trump_mentioned_hundreds/o2o5ctu/
+
+People care, they are thrilled to get dirty details of rich and famous private jets, rich and famous private islands for the wealthy celebrities. **It matters as entertainment** for WWW meme audiences / Reddit audiences. People have been screaming for dirty details of rich white men sex lives. People on Reddit constantly talk about their Trump diaper fetish and there is nothing illegal about a man pooping. But it sure draws a Reddit fandom to Trump shit. Shit-commenting audiences love rich white men "Daddy" age 79 sex shit. https://en.wikipedia.org/wiki/Diaper_fetishism - ANYTHING to avoid serious nonfiction learning about Kremlin information warfare. ANYTHING to avoid learning nonfiction serious learning of mental health issues from leader Dr. Bandy X Lee.
+
+https://old.reddit.com/r/politics/comments/1qrgz1b/epstein_files_released_trump_mentioned_hundreds/o2ojhy1/
+
+Reddit media, Reddit comment community, has been the core sane-washing of Trump. "LOL cow milking" of Trump as a prized source of entertainment. Constantly LOL joking and creating memes and sharing images of Trump to laugh at as thrilling comedy. https://old.Reddit.com/r/evilautism/comments/1gryoas/i_hate_the_term_lolcow/
+
+https://old.reddit.com/r/politics/comments/1qrgz1b/epstein_files_released_trump_mentioned_hundreds/o2ojzvi/
+
+Entertainment-oriented Reddit audience is calling out what to expect next in the Kremlin and White House Reality variety show. No desire to promote Dr. Bandy X Lee and remove Trump through education and cult-deprogramming. Because the Reddit audience itself is a cult of mockery.
+
+https://old.reddit.com/r/politics/comments/1qrgz1b/epstein_files_released_trump_mentioned_hundreds/o2o9gm6/
+
+Addressing the cults is likely the best first step. People who want to have Trump on stage as a source of content and entertainment are holding back any serious reform. What people need to be doing is following the leadership of Dr. Bandy X Lee and quoting and teaching from her articles and books.
+
+https://old.reddit.com/r/politics/comments/1qrgz1b/epstein_files_released_trump_mentioned_hundreds/o2oaiac/
+
+"The media". 
+
+https://old.reddit.com/r/IThinkYouShouldLeave/comments/1qrkb4f/the_conservative_sub_deleting_all_the_comments/o2ov7w8/
+
+Social media uprising... to promote Dr. Bandy X Lee's educational leadership for adults... keeps not happening. People are not asserting cult deprogramming, teaching.
+
+https://old.reddit.com/r/IThinkYouShouldLeave/comments/1qrkb4f/the_conservative_sub_deleting_all_the_comments/o2ovdrq/
+
+https://old.reddit.com/r/IThinkYouShouldLeave/comments/1qrkb4f/the_conservative_sub_deleting_all_the_comments/o2ovz08/
+
+https://old.reddit.com/r/IThinkYouShouldLeave/comments/1qrkb4f/the_conservative_sub_deleting_all_the_comments/o2p3gbl/
+
+https://old.reddit.com/r/IThinkYouShouldLeave/comments/1qrkb4f/the_conservative_sub_deleting_all_the_comments/o2p9gwu/
+
+https://old.reddit.com/r/AskReddit/comments/1qrgndr/what_do_you_think_of_the_doj_recently_releasing/o2o302j/
+
+Information strip tease has been the game all along. Surkovian. [Maximum Putinization](https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/). Chaos is the intended outcome. 
+
+“Chaos and disruption, I later learned, are central tenets of Bannon's animating ideology. Before catalyzing America's dharmic rebalancing, his movement would first need to instill chaos through society so that a new order could emerge. He was an avid reader of a computer scientist and armchair philosopher who goes by the name Mencius Moldbug, a hero of the alt-right who writes long-winded essays attacking democracy and virtually everything about how modern societies are ordered. Moldbug’s views on truth influenced Bannon, and what Cambridge Analytica would become. Moldbug has written that “nonsense is a more effective organizing tool than the truth,” and Bannon embraced this. “Anyone can believe in the truth,” Moldbug writes, “to believe in nonsense is an unforgettable demonstration of loyalty. It serves as a political uniform. And if you have a uniform, you have an army.”
+― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the [Plot to Break America, page 85](https://books.google.com/books?id=8OW2DwAAQBAJ&pg=PA85&dq=%22serves+as+a+political+uniform.+And+if+you+have+a+uniform,+you+have+an+army.%E2%80%9D&hl=en&newbks=1&newbks_redir=1&sa=X). **year 2019**
+
+https://old.reddit.com/r/AskReddit/comments/1qrgndr/what_do_you_think_of_the_doj_recently_releasing/o2o5exf/
+
+https://old.reddit.com/r/AskReddit/comments/1qrgndr/what_do_you_think_of_the_doj_recently_releasing/o2o6e0y/
+
+https://old.reddit.com/r/AskReddit/comments/1qrgndr/what_do_you_think_of_the_doj_recently_releasing/o2o6vtq/
+
+https://old.reddit.com/r/AskReddit/comments/1qrgndr/what_do_you_think_of_the_doj_recently_releasing/o2o42j7/
+
+https://old.reddit.com/r/AskReddit/comments/1qrgndr/what_do_you_think_of_the_doj_recently_releasing/o2o4sia/
+
+Reddit commenting community will do anything with free time and spare time but promote nonfiction from Dr. Bandy X Lee.
+
+https://old.reddit.com/r/AskReddit/comments/1qrgndr/what_do_you_think_of_the_doj_recently_releasing/o2o4842/
+
+https://old.reddit.com/r/AskReddit/comments/1qrgndr/what_do_you_think_of_the_doj_recently_releasing/o2os8xa/
+
+https://old.reddit.com/r/AskReddit/comments/1qrgndr/what_do_you_think_of_the_doj_recently_releasing/o2o47lc/
+
+https://old.reddit.com/r/AskReddit/comments/1qrgndr/what_do_you_think_of_the_doj_recently_releasing/o2o94ku/
+
+https://old.reddit.com/r/AskReddit/comments/1qrgndr/what_do_you_think_of_the_doj_recently_releasing/o2o3ful/
+
+https://old.reddit.com/r/AskReddit/comments/1qrgndr/what_do_you_think_of_the_doj_recently_releasing/o2odq6u/
+
+https://old.reddit.com/r/AskReddit/comments/1qrgndr/what_do_you_think_of_the_doj_recently_releasing/o2oga58/
+
+https://old.reddit.com/r/DiscussionZone/comments/1qrkx3e/epstein_files_trump_threw_calendar_girls_parties/o2p7n0x/
+
+https://old.reddit.com/r/DiscussionZone/comments/1qrkx3e/epstein_files_trump_threw_calendar_girls_parties/o2p19xv/
+
+<img width="1346" height="264" alt="image" src="https://github.com/user-attachments/assets/c5716551-c43f-4994-86ba-bdf804f5467d" />
+
+ANSWER: 1. Mocking. 2. Entertainment. 3. Insulting. 4. One-upmanship. 5. Toxic masculinity. 6. Technology addictions. 7. fiction storytelling. 8. Sports gaming. 9. Video gaming. 10. Clickbait gaming. 11. Bamboozle gaming. 12. Celebrity worship.
+
+
+https://old.reddit.com/r/DiscussionZone/comments/1qrkx3e/epstein_files_trump_threw_calendar_girls_parties/o2p0ive/
+
+https://old.reddit.com/r/science/comments/1qrl2wh/americans_threatened_by_trump_administration/o2p10fz/
+
+https://old.reddit.com/r/science/comments/1qrl2wh/americans_threatened_by_trump_administration/o2p0tfs/
+
+https://old.reddit.com/r/science/comments/1qrl2wh/americans_threatened_by_trump_administration/o2p3j7u/
+
+8 month Reddit account. "my country" = USA context of posting. Never laid eyes on a police or security guard carrying a gun in 82 years in USA. 
+

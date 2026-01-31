@@ -620,7 +620,7 @@ What we have is a failure to study Marshall McLuhan, media ecology, the ecologic
 
 https://old.reddit.com/r/wisconsin/comments/1qq8m7u/liberal_wisconsin_brewing_company_promises_free/o2eq40m/
 
-This entire Reddit front-page posting is simulation of resistance. Reddit audience is being programmed by this content to be passive and not have a social media uprising RIGHT NOW. AVOIDING: Promoting Jen Senko's nonfiction film about brainwashing. https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad Dr. Bandy X Lee's October 3, 2017 book about Trump / MAGA mental health issues. https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad
+This entire Reddit front-page posting is simulation of resistance. Reddit audience is being programmed by this content to be passive and not have a social media uprising RIGHT NOW. AVOIDING: Promoting Jen Senko's nonfiction film about brainwashing. https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad Dr. Bandy X Lee's October 3, 2017 book about Trump / MAGA mental health issues. https://www.ScientificAmerican.com/article/the-shared-psychosis-of-donald-trump-and-his-loyalists/
 
 Instead of using social media ACTIVELY to address the cult issues of Fox News HDTV media, cult issues of Trump hate-watching fandoms... wait around and be entertained until one person dies. That doesn't address the hundreds of millions of cult members to Charlie Kirk science fiction podcasts, Rupert Murdoch fiction media, Putin's information warfare cultists, etc.
 
@@ -632,3 +632,6 @@ https://old.reddit.com/r/clevercomebacks/comments/1qqbh9x/widow_of_the_year/o2ff
 
 And ANOTHER time Charlie Kirk / Erica Kirk fandom on Reddit puts it on front page /r/All - the fandom can never get enough of Kirk content. Fiction attraction, attractive nuisance like Trump family. https://en.wikipedia.org/wiki/Attractive_nuisance_doctrine
 
+https://old.reddit.com/r/politics/comments/1qra9oi/final_jeffrey_epstein_files_cache_released_by_doj/o2mnq23/
+
+*slight* doubt. "kind of doubt". Low-effort most upvoted popular comment. Twitter-length. Instead of posting an off-Reddit link to a FAQ or Wii about the Epstein situation and timeline: low-effort committing is what the Reddit fandom has been conditioned to upvote. Anti-serious, anti-education, anti-adult learning of details.
