@@ -2018,3 +2018,19 @@ Alas, people in USA are entirely unable to see the compulsive behavior of social
 Reddit is the center of the Internet for Trump fandom. Donald J Trump never was funny. **Orange skin isn't hilarious comedy**. Skin color jokes is mocking a disability, a failure of media ecology comprehension of an entire nation is being mocked. It is all symptoms of extreme shallowness and superficial behaviors. Repetitive superficial society of people who prize diaper poop and orange skin as some kind of sick way to wreck the world. 
 
 * 1993 TV is now year 2013 onward Reddit commenting section. "Their life is shit, if you will pardon the expression, and this is a comedy. Because all the troubles that such a life involve are just reduced to banality, just the **common rubble of little one line joke, you follow me? It’s made banal by it.** It’s banalised that way."; "This is the great – to me – ideological function of television and the movies. However extreme the situation, TV can find a way to turn it into a banality." - Texan Rick Roderick, year 1993, Duke University. "Marcuse and One-Dimensional Man". The joking tiny-think meme-think Tweet-think one-dimensional mindset. The Trump fandom on Reddit. https://RickRoderick.org/304-marcuse-and-one-dimensional-man-1993/
+
+https://old.reddit.com/r/fixedbytheduet/comments/1qs2kxs/accountability/o2sdlrx/
+
+Note Reddit username.
+
+https://old.reddit.com/r/fixedbytheduet/comments/1qs2kxs/accountability/o2sk0nt/
+
+2 month Reddit account.
+
+https://old.reddit.com/r/MadeMeSmile/comments/1qs2wzh/accountability/o2shr1h/
+
+3 month Reddit account.
+
+https://old.reddit.com/r/MadeMeSmile/comments/1qs2wzh/accountability/o2sj9jw/
+
+Cults to mocking other human beings don't often have "bad intentions", they just lack learning of cult behaviors and compulsive use of high-speed electric media. They are following billionaire successman Donald Trump's use of media without self-awareness.
