@@ -1868,3 +1868,13 @@ Dates and citations on a Reddit comment!
 https://old.reddit.com/r/technology/comments/1qrk9r1/el0n_msk_had_more_extensive_ties_to_epstein_than/o2ou5bz/
 
 See replies, "He has an army of paid users that continuously prowl Reddit to push his narrative and discredit any counter claims against him."
+
+https://old.reddit.com/r/technology/comments/1qrk9r1/el0n_msk_had_more_extensive_ties_to_epstein_than/o2p2an6/
+
+https://old.reddit.com/r/technology/comments/1qrk9r1/el0n_msk_had_more_extensive_ties_to_epstein_than/o2p877c/
+
+Gullible population. Unable to face up to religion being science fiction like Hamlet's Ghost. Atheists can't make the connection either. Being anti-religion isn't the same as comprehending media cults of Fox News HDTV religion faiths.
+
+https://old.reddit.com/r/technology/comments/1qrk9r1/el0n_msk_had_more_extensive_ties_to_epstein_than/o2p355s/
+
+Social media laugh track for Reddit audience.
