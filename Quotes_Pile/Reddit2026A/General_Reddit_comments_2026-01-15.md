@@ -1910,3 +1910,29 @@ https://old.reddit.com/r/nottheonion/comments/1qro5xu/jeffrey_epstein_was_banned
 https://old.reddit.com/r/nottheonion/comments/1qro5xu/jeffrey_epstein_was_banned_on_xbox_live/o2pntd2/
 
 https://old.reddit.com/r/nottheonion/comments/1qro5xu/jeffrey_epstein_was_banned_on_xbox_live/o2pn7dy/
+
+https://old.reddit.com/r/movies/comments/1qrnwz9/film_students_are_having_trouble_sitting_through/o2pn28x/
+
+Media Ecology topics.
+
+https://old.reddit.com/r/movies/comments/1qrnwz9/film_students_are_having_trouble_sitting_through/o2pn2fp/
+
+https://old.reddit.com/r/movies/comments/1qrnwz9/film_students_are_having_trouble_sitting_through/o2pn3mc/
+
+https://old.reddit.com/r/movies/comments/1qrnwz9/film_students_are_having_trouble_sitting_through/o2pmk00/
+
+https://old.reddit.com/r/movies/comments/1qrnwz9/film_students_are_having_trouble_sitting_through/o2prvcf/
+
+https://old.reddit.com/r/movies/comments/1qrnwz9/film_students_are_having_trouble_sitting_through/o2pmhyv/
+
+https://old.reddit.com/r/movies/comments/1qrnwz9/film_students_are_having_trouble_sitting_through/o2pnmtw/
+
+https://old.reddit.com/r/movies/comments/1qrnwz9/film_students_are_having_trouble_sitting_through/o2porsa/
+
+https://old.reddit.com/r/movies/comments/1qrnwz9/film_students_are_having_trouble_sitting_through/o2pl186/
+
+https://old.reddit.com/r/movies/comments/1qrnwz9/film_students_are_having_trouble_sitting_through/o2pmx74/
+
+https://old.reddit.com/r/movies/comments/1qrnwz9/film_students_are_having_trouble_sitting_through/o2poc3k/
+
+https://old.reddit.com/r/movies/comments/1qrnwz9/film_students_are_having_trouble_sitting_through/o2ppbaz/
