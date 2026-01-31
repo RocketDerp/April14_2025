@@ -999,3 +999,9 @@ Addressing the cults is likely the best first step. People who want to have Trum
 https://old.reddit.com/r/politics/comments/1qrgz1b/epstein_files_released_trump_mentioned_hundreds/o2oaiac/
 
 "The media". 
+
+https://old.reddit.com/r/IThinkYouShouldLeave/comments/1qrkb4f/the_conservative_sub_deleting_all_the_comments/o2ov7w8/
+
+Social media uprising... to promote Dr. Bandy X Lee's educational leadership for adults... keeps not happening. People are not asserting cult deprogramming, teaching.
+
+https://old.reddit.com/r/IThinkYouShouldLeave/comments/1qrkb4f/the_conservative_sub_deleting_all_the_comments/o2ovdrq/
