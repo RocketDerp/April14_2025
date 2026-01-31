@@ -363,3 +363,11 @@ https://old.reddit.com/r/interestingasfuck/comments/1qrcfqe/man_be_harassed_for_
 
 Billionaires of the world are deporting people for not speaking English correctly, the most superficial and banal behaviors. This low-effort message is to feed denial... avoid reality... a "stop" command to *not stand up* to bullying and the leadership of I.C.E. and Trump / MAGA movement.
 
+https://old.reddit.com/r/law/comments/1qro4ts/trump_compromised_by_israel_new_epstein_files/o2pv2fy/
+
+My fucking god. Surkov won. I was involved in the Arab Spring, I traveled to Africa in 2010, I moved over to Jordan in the Middle East in March 2011 at the start of the Syria war and studied media ecology and comparative mythology for years. I have lived in 4 Islamic nations.
+
+People believe "the Jews" control Hollywood, Trump is a reality TV Hollywood star. People have watched Musk go to Israel (TODO: Insert link), Musk in the white House, Trump bomb Iran... the Arab already believed Israel "The Jews" were controlling America. Now with the Greenland and Canada and this bullshit...
+
+USA is cooked. We look to be anti-science Levant mythology fighting the Crusades. Scientific thinking is trashed by all this bullshit.
+
