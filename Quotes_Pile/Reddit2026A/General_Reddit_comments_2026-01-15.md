@@ -1895,3 +1895,8 @@ https://old.reddit.com/r/news/comments/1qro0w7/bill_gates_caught_an_std_from_rus
 
 Joke-washing. Everything on Reddit gets turned into a source of comedy. That's why billionaires thrive, they provide emotional humor for audiences on meme platforms. Free time and spare time people spend on Reddit... Why are social media users not flooding the Internet with quotes from Dr. Bandy X Lee's book published October 3, 2017 about the mental health of Trump and MAGA?
 
+https://old.reddit.com/r/news/comments/1qro0w7/bill_gates_caught_an_std_from_russian_prostitutes/o2po2sj/
+
+https://old.reddit.com/r/news/comments/1qro0w7/bill_gates_caught_an_std_from_russian_prostitutes/o2po0lm/
+
+Non-specific egoism message, reflects back whatever 'ball" people see. I'll be specific on the critical ball everyone seems to be avoiding: cult deprogramming. Dr. Bandy X Lee's nonfiction books and articles.
