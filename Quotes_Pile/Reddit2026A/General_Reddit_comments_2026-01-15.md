@@ -1855,7 +1855,7 @@ https://old.reddit.com/r/popculturechat/comments/1qrkdgk/bill_gates_caught_std_a
 
 https://old.reddit.com/r/popculturechat/comments/1qrkdgk/bill_gates_caught_std_and_begged_epstein_for/o2owaeb/
 
-I keep pointing out that women on social media keep talking abut white wealthy men and avoiding Malala. Girls are being abused all over the world by established men in society. Indoctrination. Including Hollywood, music industry, film industy. People in USA in January 2026 really have lost sense of what the sexual revolution in USA did for women to be able to learn and discuss. Putin lead MAGA has been leaping backwards for women all over the world. Look at the timeline from year 2012: https://github.com/RocketDerp/April14_2025/blob/working/PostMalala/Marriage/World_Malala_Timeline_Year_2012.md
+I keep pointing out that women on social media keep talking abut white wealthy men and avoiding Malala. Girls are being abused all over the world by established men in society. Indoctrination. Including Hollywood, music industry, film industy. People in USA in January 2026 really have lost sense of what the sexual revolution in USA did for women to be able to learn and discuss. Putin lead MAGA has been leaping backwards for women all over the world. Look at the timeline from year 2012: https://github.com/RocketDerp/April14_2025/blob/main/PostMalala/Marriage/World_Malala_Timeline_Year_2012.md
 
 * “We felt like the Taliban saw us as like little dolls to control, telling us what to do and how to dress. I thought if God wanted us to be like that He would not have made us all different.” ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. Published October 8, 2013
 
