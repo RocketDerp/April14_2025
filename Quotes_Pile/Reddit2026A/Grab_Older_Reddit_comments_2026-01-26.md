@@ -31,3 +31,8 @@ This morning, Saturday 6:30 am January 31 2026, I remembered reading and comment
 
 https://old.reddit.com/r/politics/comments/k2wygb/trump_claims_massive_proof_of_pennsylvania_voter/gdxyhsr/
 
+https://old.reddit.com/r/politics/comments/k2wygb/trump_claims_massive_proof_of_pennsylvania_voter/gdxozyd/
+
+"beyond absurd"
+
+* "what Putin will do next — that he’s unpredictable and thus dangerous. We’re rendered stunned, spun, and flummoxed by the Kremlin’s weaponization of absurdity and unreality.” - year 2014. September 9, 2014 https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
