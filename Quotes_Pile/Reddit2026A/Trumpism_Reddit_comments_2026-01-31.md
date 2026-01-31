@@ -116,3 +116,8 @@ https://old.reddit.com/r/politics/comments/1qs7svz/exposed_musk_now_insists_epst
 
 **"Distraction from what"**... nonfiction learning about Kremlin information warfare. Facing the cults all over Reddit of compulsive billionaire media content. Distraction from Dr. Bandy X Lee's nonfiction writings and leadership to rescue the USA from severe mob mentality / mental issues.
 
+https://old.reddit.com/r/politics/comments/1qs7svz/exposed_musk_now_insists_epstein_files_dont/o2u04na/
+
+Calling out the Reddit cult of commenting about Elon Musk. Billionaire trickle-down media cultists on Reddit shit-commenting shit-posting media center.
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mdql4ptcy222 https://autistics.life/@RoundSparrow/115991408627966538 }
