@@ -402,3 +402,12 @@ Alas, the popular culture, "pop", "pop cult" of Reddit front page of the Interne
 OPERA_A https://www.YouTube.com/watch?v=gjGL6YY6oMs "Comedy Central", "The Daily Show - Malala Yousafzai Extended Interview" 4,717,160 views October 10, 2013 - book tour out of Swat Valley, Pakistan. 
 
 Malala started as a World Wide Web blogger January 3, 2009 **at age 11 on the Internet** - that is why **WE THE PEOPLE, HUMAN SPECIES PRIDE, INTERNET PRIDE, WWW PRIDE** should be repeating and keep repeating over and over repeat! https://www.BBC.com/news/magazine-19899540
+
+
+https://old.reddit.com/r/AdviceAnimals/comments/1qs1bbw/enough_is_enough_bring_out_the_guillotines/o2s9zgy/
+
+<img width="1029" height="345" alt="image" src="https://github.com/user-attachments/assets/ac6b4b74-8568-426c-bc6b-214e5e324fa1" />
+
+ANSWER: Follow the leadership of Malala, go back to her year 2013 speeches and books and start sharing and quoting Malala. STAND UP with your voice and say: **I agree with Malala year 2013!** "Why should I wait for someone else!" https://youtu.be/gjGL6YY6oMs?t=195 "Why don't WE speak up for our rights!" "started writing diary" - like Anne Fucking Frank!
+
+TEACH and EDUCATE. Stop turning everything on Reddit into low-effort meme-slop, joke-land, mockery Internet. Teach NONFICTION real understanding of the world. Stop letting fiction trash run the world, fiction storytelling that Rupert Murdoch pushes globally!
