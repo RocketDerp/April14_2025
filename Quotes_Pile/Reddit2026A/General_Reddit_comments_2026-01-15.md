@@ -1900,3 +1900,13 @@ https://old.reddit.com/r/news/comments/1qro0w7/bill_gates_caught_an_std_from_rus
 https://old.reddit.com/r/news/comments/1qro0w7/bill_gates_caught_an_std_from_russian_prostitutes/o2po0lm/
 
 Non-specific egoism message, reflects back whatever 'ball" people see. I'll be specific on the critical ball everyone seems to be avoiding: cult deprogramming. Dr. Bandy X Lee's nonfiction books and articles.
+
+https://old.reddit.com/r/nottheonion/comments/1qro5xu/jeffrey_epstein_was_banned_on_xbox_live/o2pozve/
+
+This posting has some media ecology content.
+
+https://old.reddit.com/r/nottheonion/comments/1qro5xu/jeffrey_epstein_was_banned_on_xbox_live/o2po240/
+
+https://old.reddit.com/r/nottheonion/comments/1qro5xu/jeffrey_epstein_was_banned_on_xbox_live/o2pntd2/
+
+https://old.reddit.com/r/nottheonion/comments/1qro5xu/jeffrey_epstein_was_banned_on_xbox_live/o2pn7dy/
