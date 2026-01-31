@@ -26,6 +26,6 @@ People have Google Search on their intimate touching devices. Dumb stupid moron 
 
 I can't take the anti-book anti-reading celebration of Ignorance that Reddit has done to my nation. One fucking Bible page, Matthew 6:5, and then one more: "1 John 3:17".
 
-Clearly every teacher in the nation has failed. Every education and comprehension lesson didn't work. Why hasn't Reddit made Matthew 6:5 world famous in the face of Donald J. Trump... such a failure of reading lessons. Teachers have taught way too much sports and even the most basic applied reading has failed.
+Clearly every teacher in the nation has failed. Every education and comprehension lesson didn't work. **Why hasn't Reddit made Matthew 6:5 world famous** in the face of Donald J. Trump... such a failure of reading lessons from teaching organizations. Teachers have taught way too much sports and shit-prizing... and our society... even the most basic applied reading has failed. Sickening.
 
-People stand for nothing good. Every page in the fucking shitty Bible can suck, bu people cam not cherry-pick worth a god damn. Just because it is a book on paper.
+People stand for nothing good. Four out of five pages in the fucking shitty Bible can suck, but **people cam not cherry-pick worth a god damn**. Just because it is a book on paper. It was an open-book test and nobody on Reddit could find one cherry, Matthew 6:5 page.
