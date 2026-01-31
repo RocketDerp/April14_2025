@@ -101,3 +101,5 @@ Media cult of avoiding nonfiction serious organized focus. **Reddit is a Fandom*
 https://old.reddit.com/r/politics/comments/1qrzwde/trump_mentioned_thousands_of_times_in_huge_new/o2ry34b/
 
 Trump fandom on Reddit. meme-speak (meme writing, meme messaging) mockery as programmed by IRA / CA / Musk / Murdoch.
+
+Social post { https://MidWest.Social/post/42735848 }
