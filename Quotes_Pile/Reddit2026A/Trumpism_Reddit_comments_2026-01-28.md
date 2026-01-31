@@ -1012,3 +1012,22 @@ https://old.reddit.com/r/IThinkYouShouldLeave/comments/1qrkb4f/the_conservative_
 
 https://old.reddit.com/r/IThinkYouShouldLeave/comments/1qrkb4f/the_conservative_sub_deleting_all_the_comments/o2p9gwu/
 
+https://old.reddit.com/r/AskReddit/comments/1qrgndr/what_do_you_think_of_the_doj_recently_releasing/o2o302j/
+
+Information strip tease has been the game all along. Surkovian. [Maximum Putinization](https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/). Chaos is the intended outcome. 
+
+“Chaos and disruption, I later learned, are central tenets of Bannon's animating ideology. Before catalyzing America's dharmic rebalancing, his movement would first need to instill chaos through society so that a new order could emerge. He was an avid reader of a computer scientist and armchair philosopher who goes by the name Mencius Moldbug, a hero of the alt-right who writes long-winded essays attacking democracy and virtually everything about how modern societies are ordered. Moldbug’s views on truth influenced Bannon, and what Cambridge Analytica would become. Moldbug has written that “nonsense is a more effective organizing tool than the truth,” and Bannon embraced this. “Anyone can believe in the truth,” Moldbug writes, “to believe in nonsense is an unforgettable demonstration of loyalty. It serves as a political uniform. And if you have a uniform, you have an army.”
+― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the [Plot to Break America, page 85](https://books.google.com/books?id=8OW2DwAAQBAJ&pg=PA85&dq=%22serves+as+a+political+uniform.+And+if+you+have+a+uniform,+you+have+an+army.%E2%80%9D&hl=en&newbks=1&newbks_redir=1&sa=X). **year 2019**
+
+https://old.reddit.com/r/AskReddit/comments/1qrgndr/what_do_you_think_of_the_doj_recently_releasing/o2o5exf/
+
+https://old.reddit.com/r/AskReddit/comments/1qrgndr/what_do_you_think_of_the_doj_recently_releasing/o2o6e0y/
+
+https://old.reddit.com/r/AskReddit/comments/1qrgndr/what_do_you_think_of_the_doj_recently_releasing/o2o6vtq/
+
+https://old.reddit.com/r/AskReddit/comments/1qrgndr/what_do_you_think_of_the_doj_recently_releasing/o2o42j7/
+
+https://old.reddit.com/r/AskReddit/comments/1qrgndr/what_do_you_think_of_the_doj_recently_releasing/o2o4sia/
+
+Reddit commenting community will do anything with free time and spare time but promote nonfiction from Dr. Bandy X Lee.
+
