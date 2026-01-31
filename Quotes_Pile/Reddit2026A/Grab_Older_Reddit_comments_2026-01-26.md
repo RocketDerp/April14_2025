@@ -48,3 +48,7 @@ The raging QAnon media cult ( https://old.reddit.com/r/QAnonRussia/ ) was obviou
 https://old.reddit.com/r/ThePeoplesPress/comments/1jogeem/billionaires_met_in_november_2013_and_one_month/mkrl2kv/
 
 My comment on my posting. May have already grabbed this one. Comment that lead to creation of this GitHub project and name.
+
+https://old.reddit.com/r/AdviceAnimals/comments/1lpqkl1/removed_by_reddit/n0yij42/
+
+This posting ID 1lpqkl1 , but not this comment ID n0yij42 , is already in this GitHub project. Looking back at the *hate harder* mindsets at the end of January 2026 to see why so many people are addicted to the Trump fandom that is Reddit media cults.
