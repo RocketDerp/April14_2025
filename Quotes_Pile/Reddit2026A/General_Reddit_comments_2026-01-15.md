@@ -2054,3 +2054,17 @@ https://old.reddit.com/r/worldnews/comments/1qs75ir/finland_looks_to_end_uncontr
 https://old.reddit.com/r/worldnews/comments/1qs75ir/finland_looks_to_end_uncontrolled_human/o2tzbu4/
 
 3 month Reddit account.
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1qs6ys1/petah_what_does_that_have_to_do_with_grocery/o2taffb/
+
+Total mockery society. Shit-commenting for shit-postings. A society that is attracted to and seeks out shit for information. Anti-comprehension, anti-undrestanding.
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1qs6ys1/petah_what_does_that_have_to_do_with_grocery/o2tazx4/
+
+ADHD discussion.
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1qs6ys1/petah_what_does_that_have_to_do_with_grocery/o2tgcei/
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1qs6ys1/petah_what_does_that_have_to_do_with_grocery/o2tf6m6/
+
+Delivery ecology, competing delivery systems.
