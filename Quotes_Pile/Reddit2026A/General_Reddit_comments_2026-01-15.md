@@ -2003,3 +2003,10 @@ https://old.reddit.com/r/technology/comments/1qs5tr7/bill_gates_denies_completel
 
 Media cultists of Daddy figures, Father Figures, looking forward to more Reddit AMA content in the future. The cultists of billionaires on Reddit seek out authority figure father white men. /r/Technology tech-love cult of tech men (user has a "Clippy" Microsoft icon on their Reddit profile).
 
+https://old.reddit.com/r/technology/comments/1qs5tr7/bill_gates_denies_completely_false_claims_in/o2t4fkx/
+
+Gullible Reddit fandom of billionaire tech ( /r/Technology worship center; media cult ) does not grasp that QAnon is a major PSYOP anti-NATO message pattern picked-up and strategically promoted by Russia. SEE_ALSO https://old.reddit.com/r/QAnonRussia education of the Reddit audience I created July 28, 2021 to try and deprogram the Reddit cultists of monomyth fiction patterns. Surkov won since March 2013.
+
+Reddit tech fandoms are entirely ignorant and not self-aware of Levant monomyth cult history, comparative mythology, and what Putin has weaponized. A completely gullible population of tech consumers. "Q" is a purely symbolic icon of the monomyth order, adapted to modern electric media systems.
+
+* * [“The truth is, it’s getting harder to describe the extent to which a meaningful percentage of Americans have dissociated from reality,” Charlie Warzel wrote “I’m Running Out of Ways to Explain How Bad This Is.”](https://www.axios.com/2024/10/19/musk-ackman-election-misinformation) - October 19, 2024 - America’s gullibility crisis, Zachary Basu
