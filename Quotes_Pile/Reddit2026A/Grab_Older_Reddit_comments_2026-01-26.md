@@ -47,4 +47,4 @@ The raging QAnon media cult ( https://old.reddit.com/r/QAnonRussia/ ) was obviou
 
 https://old.reddit.com/r/ThePeoplesPress/comments/1jogeem/billionaires_met_in_november_2013_and_one_month/mkrl2kv/
 
-May have already grabbed this one. Comment that lead to creation of this GitHub project and name.
+My comment on my posting. May have already grabbed this one. Comment that lead to creation of this GitHub project and name.
