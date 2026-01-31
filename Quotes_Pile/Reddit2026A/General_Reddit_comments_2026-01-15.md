@@ -1878,3 +1878,10 @@ Gullible population. Unable to face up to religion being science fiction like Ha
 https://old.reddit.com/r/technology/comments/1qrk9r1/el0n_msk_had_more_extensive_ties_to_epstein_than/o2p355s/
 
 Social media laugh track for Reddit audience.
+
+https://old.reddit.com/r/mildlyinfuriating/comments/1qrlhfh/pick_your_battles_what_a_win/o2pmgvy/
+
+Tower of Babel, language, speech.
+
+https://old.reddit.com/r/mildlyinfuriating/comments/1qrlhfh/pick_your_battles_what_a_win/o2pprqm/
+
