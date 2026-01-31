@@ -111,3 +111,8 @@ https://old.reddit.com/r/politics/comments/1qs7svz/exposed_musk_now_insists_epst
 https://old.reddit.com/r/politics/comments/1qs7svz/exposed_musk_now_insists_epstein_files_dont/o2thj4d/
 
 Content is king. People no longer care about human persons, only content itself. Reddit is the worship center distribution meeting point on WWW of content cults.
+
+https://old.reddit.com/r/politics/comments/1qs7svz/exposed_musk_now_insists_epstein_files_dont/o2tgyl6/
+
+**"Distraction from what"**... nonfiction learning about Kremlin information warfare. Facing the cults all over Reddit of compulsive billionaire media content. Distraction from Dr. Bandy X Lee's nonfiction writings and leadership to rescue the USA from severe mob mentality / mental issues.
+
