@@ -2034,3 +2034,23 @@ https://old.reddit.com/r/MadeMeSmile/comments/1qs2wzh/accountability/o2shr1h/
 https://old.reddit.com/r/MadeMeSmile/comments/1qs2wzh/accountability/o2sj9jw/
 
 Cults to mocking other human beings don't often have "bad intentions", they just lack learning of cult behaviors and compulsive use of high-speed electric media. They are following billionaire successman Donald Trump's use of media without self-awareness.
+
+https://old.reddit.com/r/worldnews/comments/1qs75ir/finland_looks_to_end_uncontrolled_human/o2tez3m/
+
+It all changed year 2013 onward. Internet Research Agency and Cambridge Analytica psychological changes.
+
+https://old.reddit.com/r/worldnews/comments/1qs75ir/finland_looks_to_end_uncontrolled_human/o2td2gq/
+
+https://old.reddit.com/r/worldnews/comments/1qs75ir/finland_looks_to_end_uncontrolled_human/o2tc7oe/
+
+4 month Reddit account.
+
+https://old.reddit.com/r/worldnews/comments/1qs75ir/finland_looks_to_end_uncontrolled_human/o2td0m2/
+
+Off-Reddit URL! Get people to have a common point / education topic to rally around and share. Not just commenting but asserting nonfiction learning as important to get on *the same page*.
+
+https://old.reddit.com/r/worldnews/comments/1qs75ir/finland_looks_to_end_uncontrolled_human/o2thcs7/
+
+https://old.reddit.com/r/worldnews/comments/1qs75ir/finland_looks_to_end_uncontrolled_human/o2tzbu4/
+
+3 month Reddit account.
