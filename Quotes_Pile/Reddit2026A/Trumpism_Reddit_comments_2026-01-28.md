@@ -1044,3 +1044,13 @@ https://old.reddit.com/r/AskReddit/comments/1qrgndr/what_do_you_think_of_the_doj
 https://old.reddit.com/r/AskReddit/comments/1qrgndr/what_do_you_think_of_the_doj_recently_releasing/o2odq6u/
 
 https://old.reddit.com/r/AskReddit/comments/1qrgndr/what_do_you_think_of_the_doj_recently_releasing/o2oga58/
+
+https://old.reddit.com/r/DiscussionZone/comments/1qrkx3e/epstein_files_trump_threw_calendar_girls_parties/o2p7n0x/
+
+https://old.reddit.com/r/DiscussionZone/comments/1qrkx3e/epstein_files_trump_threw_calendar_girls_parties/o2p19xv/
+
+<img width="1346" height="264" alt="image" src="https://github.com/user-attachments/assets/c5716551-c43f-4994-86ba-bdf804f5467d" />
+
+ANSWER: 1. Mocking. 2. Entertainment. 3. Insulting. 4. One-upmanship. 5. Toxic masculinity. 6. Technology addictions. 7. fiction storytelling. 8. Sports gaming. 9. Video gaming. 10. Clickbait gaming. 11. Bamboozle gaming. 12. Celebrity worship.
+
+
