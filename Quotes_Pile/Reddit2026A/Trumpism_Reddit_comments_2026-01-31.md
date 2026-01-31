@@ -107,3 +107,7 @@ Social post { https://MidWest.Social/post/42735848 https://bsky.app/profile/roun
 https://old.reddit.com/r/politics/comments/1qs7svz/exposed_musk_now_insists_epstein_files_dont/o2tgkpr/
 
 3 month Reddit account. Top upvoted popular comment.
+
+https://old.reddit.com/r/politics/comments/1qs7svz/exposed_musk_now_insists_epstein_files_dont/o2thj4d/
+
+Content is king. People no longer care about human persons, only content itself. Reddit is the worship center distribution meeting point on WWW of content cults.
