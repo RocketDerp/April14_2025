@@ -1054,3 +1054,4 @@ https://old.reddit.com/r/DiscussionZone/comments/1qrkx3e/epstein_files_trump_thr
 ANSWER: 1. Mocking. 2. Entertainment. 3. Insulting. 4. One-upmanship. 5. Toxic masculinity. 6. Technology addictions. 7. fiction storytelling. 8. Sports gaming. 9. Video gaming. 10. Clickbait gaming. 11. Bamboozle gaming. 12. Celebrity worship.
 
 
+https://old.reddit.com/r/DiscussionZone/comments/1qrkx3e/epstein_files_trump_threw_calendar_girls_parties/o2p0ive/
