@@ -1055,3 +1055,11 @@ ANSWER: 1. Mocking. 2. Entertainment. 3. Insulting. 4. One-upmanship. 5. Toxic m
 
 
 https://old.reddit.com/r/DiscussionZone/comments/1qrkx3e/epstein_files_trump_threw_calendar_girls_parties/o2p0ive/
+
+https://old.reddit.com/r/science/comments/1qrl2wh/americans_threatened_by_trump_administration/o2p10fz/
+
+https://old.reddit.com/r/science/comments/1qrl2wh/americans_threatened_by_trump_administration/o2p0tfs/
+
+https://old.reddit.com/r/science/comments/1qrl2wh/americans_threatened_by_trump_administration/o2p3j7u/
+
+8 month Reddit account.
