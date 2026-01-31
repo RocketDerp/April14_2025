@@ -1978,3 +1978,7 @@ What ignorance shit-commenting on the shit-following shit-posting center of the 
 https://old.reddit.com/r/memes/comments/1qs29hn/its_tough_out_there/o2swpc2/
 
 Redditors in year 2026 are anti-FAQ, anti-Wiki, anti-organizing information into fact-checked priority-focused topics. Reddit audience is more about avoiding important topics and seeking kitten and cat photos than it is about coming together on the same page of crucial topics.
+
+https://old.reddit.com/r/memes/comments/1qs29hn/its_tough_out_there/o2sxuia/
+
+3 month Reddit account. Promoting very popular out-group logic. Out-group dismissal. **Brand loyalty** idea promotion. That a source of information, Bill Gates, must be perfect. When no perfect source of information exists. Fox News is not perfect, CNN is not perfect, Bill Gates ideas and thinking are not perfect. But the Reddit mind-fucking of the Reddit audience here is that if there is any flaw at all, any mistake, to dismiss and delete EVERYTHING. That's the deportation attitude of Trumpism MAGA on Reddit. That ANY mistake MAGA mindset you are deported and ejected from society. Anti-learning, anti-teaching, anti-progress, anti-understanding in favor of binary logic block-happy book burning thinking.
