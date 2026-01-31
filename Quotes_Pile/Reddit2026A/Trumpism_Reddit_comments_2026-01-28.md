@@ -83,7 +83,7 @@ Touch device users don't even have faces on Reddit.
 
 # "assumes there would be resistance and human faces; both of which may turn out to be false" - 1993
 
-* As Huxley remarked in Brave New World Revisited, the civil libertarians and rationalists who are ever on the alert to **oppose tyranny "failed to take into account man's almost infinite appetite for distractions."** In 1984, Orwell added, people are controlled by inflicting pain. In Brave New World, they are controlled by inflicting pleasure. In short, Orwell feared that what we fear will ruin us. Huxley feared that what we desire will ruin us. **This book is about the possibility that Huxley, not Orwell, was right**.” ― Neil Postman, **Amusing Ourselves to Death: Public Discourse** in the Age of Show Business. Year 1985.
+* "As Huxley remarked in Brave New World Revisited, the civil libertarians and rationalists who are ever on the alert to **oppose tyranny "failed to take into account man's almost infinite appetite for distractions."** In 1984, Orwell added, people are controlled by inflicting pain. In Brave New World, they are controlled by inflicting pleasure. In short, Orwell feared that what we fear will ruin us. Huxley feared that what we desire will ruin us. **This book is about the possibility that Huxley, not Orwell, was right**.” ― Neil Postman, **Amusing Ourselves to Death: Public Discourse** in the Age of Show Business. Year 1985.
 
 https://old.reddit.com/r/nba/comments/1qp2hfr/chet_holmgren_on_minneapolis_i_definitely_think/o26le14/
 
