@@ -390,3 +390,15 @@ https://old.reddit.com/r/pics/comments/1qrnewm/photo_showing_jeffrey_epstein_wea
 https://old.reddit.com/r/pics/comments/1qrnewm/photo_showing_jeffrey_epstein_wearing_israeli/o2q4703/
 
 https://old.reddit.com/r/pics/comments/1qrnewm/photo_showing_jeffrey_epstein_wearing_israeli/o2pln3g/
+
+https://old.reddit.com/r/AdviceAnimals/comments/1qs1bbw/enough_is_enough_bring_out_the_guillotines/o2s91ro/
+
+"Sex sells", rich people parade sex and role-model for parenting. So many in USA since June 16, 2015 have put their children in front of Newsmax HDTV and made Donald J. Trump a role model for parenting and nuclear family. So many everyday parents have made Trump the behavior model of social media messaging and leadership of business. Masculine dominating.
+
+Study how much more Trump / Epstein / Musk sex life gets attention on Reddit fandoms of media than promoting grass-roots bottom-up "Stand Up for the Little Guy" (Girl) of Malala. Study the year 2012 timeline of Moscow Trump leadership vs. Malala's focus on billions of young girls: https://github.com/RocketDerp/April14_2025/blob/main/PostMalala/Marriage/World_Malala_Timeline_Year_2012.md
+
+Alas, the popular culture, "pop", "pop cult" of Reddit front page of the Internet, will not assert Malala as a leader to follow since year 2013 when her book was published October 8, 2013.
+
+OPERA_A https://www.YouTube.com/watch?v=gjGL6YY6oMs "Comedy Central", "The Daily Show - Malala Yousafzai Extended Interview" 4,717,160 views October 10, 2013 - book tour out of Swat Valley, Pakistan. 
+
+Malala started as a World Wide Web blogger January 3, 2009 **at age 11 on the Internet** - that is why **WE THE PEOPLE, HUMAN SPECIES PRIDE, INTERNET PRIDE, WWW PRIDE** should be repeating and keep repeating over and over repeat! https://www.BBC.com/news/magazine-19899540
