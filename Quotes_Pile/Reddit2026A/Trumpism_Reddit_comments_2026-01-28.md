@@ -1005,3 +1005,10 @@ https://old.reddit.com/r/IThinkYouShouldLeave/comments/1qrkb4f/the_conservative_
 Social media uprising... to promote Dr. Bandy X Lee's educational leadership for adults... keeps not happening. People are not asserting cult deprogramming, teaching.
 
 https://old.reddit.com/r/IThinkYouShouldLeave/comments/1qrkb4f/the_conservative_sub_deleting_all_the_comments/o2ovdrq/
+
+https://old.reddit.com/r/IThinkYouShouldLeave/comments/1qrkb4f/the_conservative_sub_deleting_all_the_comments/o2ovz08/
+
+https://old.reddit.com/r/IThinkYouShouldLeave/comments/1qrkb4f/the_conservative_sub_deleting_all_the_comments/o2p3gbl/
+
+https://old.reddit.com/r/IThinkYouShouldLeave/comments/1qrkb4f/the_conservative_sub_deleting_all_the_comments/o2p9gwu/
+
