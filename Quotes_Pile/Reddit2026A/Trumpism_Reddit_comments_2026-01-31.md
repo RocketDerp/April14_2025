@@ -6,7 +6,7 @@ The abandonment of all inner progress. The cheering on of "I disowned my MAGA ne
 
 New York City 9/11 Twin Towers:
 
-1. Trump was a real estate owner and internalized the spectacle of hate leadership
+1. Trump was a real estate owner and internalized the spectacle of hate leadership with tall buildings. https://www.WashingtonPost.com/news/morning-mix/wp/2018/09/11/and-now-its-the-tallest-trump-in-otherwise-somber-9-11-interview-couldnt-help-touting-one-of-his-buildings/
 
 2. Trump sold and singed The Bible and posed with The Bible and people are entirely unable to memorize Bible verse Matthew 6:5 in response to Trump. It is the most published book, and people are so bad at reading a science fiction story that nobody can manage to make a popular meme showing Trump with the Bible and the words "Matthew 6:5" on the meme image macro.
 
