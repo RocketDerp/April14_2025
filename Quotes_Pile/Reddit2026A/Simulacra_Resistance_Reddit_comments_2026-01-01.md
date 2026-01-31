@@ -658,3 +658,12 @@ MAGA is not a source of humor, mocking hard-working farmers because Rupert Murdo
 https://old.reddit.com/r/MurderedByWords/comments/1qs5s4g/historical_sore_losers/o2t1nhb/
 
 3 month Reddit account. top-upvoted, most liked, most popular comment. Imagination wars, simulation of wars, screen games for Reddit audience. ANYTHING but face real reality non-fiction JANUARY 2026 Reality, what is happening the last day of the month, and assert **REAL NONFICTION BOOKS from Dr. Bandy X Lee** in an Internet social uprising... instead, spending spare time and free time putting this screen gaming imaginary battle on the front page of Reddit.
+
+
+https://old.reddit.com/r/videos/comments/1qsgblb/091124_trump_makes_bizarre_claims_during_abc/o2vbdex/
+
+Most popular upvoted comment. For more than a decade, since June 16, 2015 - day after day, clowning Reddit users comment about Donald Trump. Every hour of every day, clowning on President Tony Clifton and his wild statements. Little Twitter-length shit-commenting all over Reddit about their favorite LOL Cow to milk. Mocking away our nation, entire unable to learn about nonfiction information warfare that Russia has used to wreck NATO, make a joke of USA. Trump shit-posting after Trump shit-posting to shit-comment about. SEE_ALSO December 5, 2014 reading of a published book on paper at a book store. The opposite of shit-commenting clowning. https://old.Reddit.com/r/WarAll/comments/1msqs1t/war_of_all_against_all_since_march_2013_war/ SEE_ALSO December 5, 2014 opposite of clown-commenting about the Putin clowning show. https://old.Reddit.com/r/TrumpOnionFans/comments/1mtn1ai/people_keep_saying_over_and_over_donald_trump_has/
+
+Calling a NYC man, born in New York, fan of SNL NYC, "a clown" is not resisting. Trump is playing Tony Clifton comedy acts and stunts for the camera, all the time, for the Reddit fandom. Mocking Trump as "a clown" is not resisting a Tony Clifton act. You resist a Tony Clifton actor, Trump, but asserting nonfiction education by Dr. Bandy X Lee. A non-clown serious mental health expert who has been leading since year 2017 - but Reddit commenting community won't stop mocking and insulting Donald Trump's on-camera performance.
+
+And **MAGA is not one single 79 year-old clown**. It is hundreds of millions of people. Fox News HDTV audience cult has the same media addition issues as Reddit shit-commenting media cultists. Anti-intellectual mocking of serious people like Dr. Bandy X Lee's book.
