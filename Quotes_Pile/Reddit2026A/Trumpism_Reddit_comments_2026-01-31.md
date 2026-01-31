@@ -12,7 +12,7 @@ New York City 9/11 Twin Towers:
 
 3. Celebration of Ignorance
 
-4. "I tell you, freedom and human rights in America are doomed. The U.S. government will lead the American people in — and the West in general — into an unbearable hell and a choking life.
+4. "I tell you, freedom and human rights in America are doomed. The U.S. government will lead the American people in — and the West in general — into an unbearable hell and a choking life." - [أسامة بن لادن](https://en.wikipedia.org/wiki/Osama_bin_Laden)
 Al-Jazeera interview, (21 October 2001)
 
 
