@@ -50,3 +50,14 @@ NONFICTION BOOK QUOTE FOLLOWS:
 * 1992  
 * Chapter: "The Psychology And Mysticism of Tyranny"  
 * page 103-104  
+
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qrs44h/trump_accuses_newly_elected_va_gov_abigail/o2qi2lp/
+
+I do not agree with this strategy because the cost and wealth involved in the legal system. It is the everyday man that needs to address the situaiton.
+
+BETTER_ANSWER: Explain Surkov governing of Russia for the past 26 years, how Surkov student techniques work. Surkov should be legendary known name.
+
+If *We The People* can not make the case for nonfiction reality, we will live under mythology has humanity has for all recorded history. The Great Seal of the United States of America "new world order" of reason-thinking scientific mindsets of reality has been lost. The experiment failed. We are back to now wild claims about voting just as Putin runs Russia, mythological leadership (Surkovian).
+
+SEE_ALSO Reddit fell for the ["Big Lie" / "große Lüge"](https://en.wikipedia.org/wiki/Big_lie) technique, Biblical "Big Toll", I've named: Operation Matthew 4:19 https://GitHub.com/RocketDerp/April14_2025/blob/working/Operation_Matthew_4_19_on_monday_2024-03-31.md
