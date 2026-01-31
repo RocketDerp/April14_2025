@@ -1062,4 +1062,5 @@ https://old.reddit.com/r/science/comments/1qrl2wh/americans_threatened_by_trump_
 
 https://old.reddit.com/r/science/comments/1qrl2wh/americans_threatened_by_trump_administration/o2p3j7u/
 
-8 month Reddit account.
+8 month Reddit account. "my country" = USA context of posting. Never laid eyes on a police or security guard carrying a gun in 82 years in USA. 
+
