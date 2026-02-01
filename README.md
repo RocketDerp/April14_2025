@@ -37,3 +37,14 @@ Thank you. [Love to all](Quotes_Pile/Specific/MLKjr_revolution_of_values.md).
 https://Bsky.App/profile/roundsparrow.bsky.social/post/3mdr7rpyw4s2p  
 https://Autistics.Life/@RoundSparrow/115992860484813438  
 https://BeeHaw.org/u/BitOneZero   
+
+&nbsp;
+
+# We Can't Rewind
+
+OPERA_A https://www.youtube.com/watch?v=bYbQXiEmevw    
+"Sophie Grey. & Trevor Horn “Video Killed the Radio Star” Live at O2 Forum Kentish Town in London"   
+1,478,017 views October 27, 2025   
+
+Twitter killed the Carl Sagan book star. The Cosmos star.   
+
