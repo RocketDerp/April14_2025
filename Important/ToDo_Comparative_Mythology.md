@@ -20,3 +20,9 @@ https://old.reddit.com/r/todayilearned/comments/1qpfrze/til_that_there_was_a_pop
 Moon landing monomyth.
 
 October 8, 2013 - Swat Valley Pakistan. What came in more recent decades since 1969 moon landing.  “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.” ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban
+
+&nbsp;
+
+Fiction media ecology, how science fiction Bible book programs minds, how popular magazine fiction printing programs minds.  Fiction monomyth vs. fiction monomyth storytelling. The Bible does not have color images, color media printing. But both Bible and magazine promote all-powerful male dictatorship. Girl in comic is invoking Romans 11:32 concept to Sky daddy Allah / Yahweh / Jesus male dominator.
+
+https://old.reddit.com/r/pics/comments/1qs6a5q/a_vintage_playboy_comic_1970s/

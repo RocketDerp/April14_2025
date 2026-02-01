@@ -32,6 +32,9 @@ Attraction to MonoMyth
 MonoMyth Inputs   
 Addiction to Fiction    
 
+Shitpost Nation   
+Shit-commenting Nation  
+
 &nbsp;
 
 &nbsp;

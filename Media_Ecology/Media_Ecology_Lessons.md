@@ -1706,3 +1706,11 @@ https://www.youtube.com/watch?v=Mn_V_hNdHas
 # TLDR fiction works
 
 https://old.reddit.com/r/CuratedTumblr/comments/1qpjldr/summaries_and_reviews/
+
+&nbsp;
+
+# Billionaires Run Amok 
+
+Technology bypassing parenting and self-awareness on a scale never experienced by humanity.
+
+https://old.reddit.com/r/worldnews/comments/1qs75ir/finland_looks_to_end_uncontrolled_human/

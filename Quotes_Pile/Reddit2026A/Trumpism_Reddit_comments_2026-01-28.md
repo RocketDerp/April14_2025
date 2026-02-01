@@ -83,7 +83,7 @@ Touch device users don't even have faces on Reddit.
 
 # "assumes there would be resistance and human faces; both of which may turn out to be false" - 1993
 
-* As Huxley remarked in Brave New World Revisited, the civil libertarians and rationalists who are ever on the alert to **oppose tyranny "failed to take into account man's almost infinite appetite for distractions."** In 1984, Orwell added, people are controlled by inflicting pain. In Brave New World, they are controlled by inflicting pleasure. In short, Orwell feared that what we fear will ruin us. Huxley feared that what we desire will ruin us. **This book is about the possibility that Huxley, not Orwell, was right**.” ― Neil Postman, **Amusing Ourselves to Death: Public Discourse** in the Age of Show Business. Year 1985.
+* "As Huxley remarked in Brave New World Revisited, the civil libertarians and rationalists who are ever on the alert to **oppose tyranny "failed to take into account man's almost infinite appetite for distractions."** In 1984, Orwell added, people are controlled by inflicting pain. In Brave New World, they are controlled by inflicting pleasure. In short, Orwell feared that what we fear will ruin us. Huxley feared that what we desire will ruin us. **This book is about the possibility that Huxley, not Orwell, was right**.” ― Neil Postman, **Amusing Ourselves to Death: Public Discourse** in the Age of Show Business. Year 1985.
 
 https://old.reddit.com/r/nba/comments/1qp2hfr/chet_holmgren_on_minneapolis_i_definitely_think/o26le14/
 
@@ -326,7 +326,7 @@ Fiction outsells nonfiction. The attraction to fiction storytelling is why peopl
 
 https://old.reddit.com/r/PoliticalHumor/comments/1qptx9c/i_got_my_check_did_you_guys_get_yours/o2by33c/
 
-It was on the front page of /r/All before it was removed. Reddit is a comedy-washing venue for the Trump family. Reddit audience white-washes everything about Trump family as a source of entertainment. People are unable to face up that Trump is an actor doing acting, a media star creating content, and Reddit is the audience. Reddit removed it, but the audience of Reddit can not see that for over a decade jokes and memes about Trump are not resisting. Mocking a Tony Clifton show is not resisting a Tony Clifton show. See: https://github.com/RocketDerp/April14_2025/blob/working/Art/Donald_J_Trump_plays_Tony_Clifton.md
+It was on the front page of /r/All before it was removed. Reddit is a comedy-washing venue for the Trump family. Reddit audience white-washes everything about Trump family as a source of entertainment. People are unable to face up that Trump is an actor doing acting, a media star creating content, and Reddit is the audience. Reddit removed it, but the audience of Reddit can not see that for over a decade jokes and memes about Trump are not resisting. Mocking a Tony Clifton show is not resisting a Tony Clifton show. See: https://github.com/RocketDerp/April14_2025/blob/main/Art/Donald_J_Trump_plays_Tony_Clifton.md
 
 https://old.reddit.com/r/PoliticalHumor/comments/1qptx9c/i_got_my_check_did_you_guys_get_yours/o2bylf9/
 

@@ -635,3 +635,35 @@ And ANOTHER time Charlie Kirk / Erica Kirk fandom on Reddit puts it on front pag
 https://old.reddit.com/r/politics/comments/1qra9oi/final_jeffrey_epstein_files_cache_released_by_doj/o2mnq23/
 
 *slight* doubt. "kind of doubt". Low-effort most upvoted popular comment. Twitter-length. Instead of posting an off-Reddit link to a FAQ or Wii about the Epstein situation and timeline: low-effort committing is what the Reddit fandom has been conditioned to upvote. Anti-serious, anti-education, anti-adult learning of details.
+
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qs1vkz/end_of_the_debate/o2s8lz3/
+
+8 month Reddit account. Top-voted, upvoted to the top, extremely popular.
+
+The Twitter image is a BLATANT example of simulation of resistance. Back and forth Tweet-thinking tiny-short patterns. Over and over and over in gaming loops. Game loop machine media Tweeting. An alternate reality gaming media enviornment (ARG media politics, Surkovian / Surkov). "END OF THE DEBATE" nonsense, the issue is MEDIA ECOLOGY EDUCATION. **This REDDIT-TWITTER INTERACTION is NOT A DEBATE**!!!
+
+* "I mean, these are papers that you could legitimately expect people to write if they still read or wrote. Not many people still do either – read or write, much – but in any case; reduction of complexity. **Let’s look at political parties** for a moment. The Republicans with their great traditions have come up with a slogan of incredible sophistication: “No more tax and spend”. Now **any you who can quack that one out could be a Republican. And I am using that in the Orwellian sense of “quack”; you don’t need to engage higher brain functions**. All you have to do is say “Don’t take my money, and don’t spend it… well, except on me and my friends, but don’t tax and spend”. Now it’s not that the Democrats are doing any better, I don’t guess that’s news." ... "But the Democrat’s response to this “tax and spend” is “No we don’t, nah nah na-nah nah: invest” **This is political debate in a democracy. No it’s not. It’s the simulation of politics. Ross Perot is not leading a movement. It is a simulation** of a movement, follow me?" - Texan Rick Roderick, Duke University. https://RickRoderick.org/308-baudrillard-fatal-strategies-1993/
+
+Every media site commenting section is now interactive fiction (IF), touch screen filter-bubble games. An alternate reality gaming environment where people crave fiction and mythology (monomyth chunks and patterns) and have abandoned sustained focus "we all need to get on the *same page together*" nonfiction serious important topics.
+
+* “We like to think of ourselves as immune from influence or our cognitive biases, because we want to feel like we are in control, but industries like alcohol, tobacco, fast food, and gaming all know we are creatures that are subject to **cognitive and emotional vulnerabilities. And tech has caught on to this with its research into “user experience,” “gamification,” “growth hacking,” and “engagement” by activating ludic loops and reinforcement schedules in the same way slot machines do**. So far, this gamification has been contained to social media and digital platforms, but what will happen as we further integrate our lives with networked information architectures designed to **exploit evolutionary flaws in our cognition**? Do we really want to live in a “gamified” environment that engineers our obsessions and plays with our lives as if we are inside its game?” ― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the Plot to Break America, chapter 12 "Revelations", page 235, year 2019
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qs1vkz/end_of_the_debate/o2sbl30/
+
+"LOL" laugh track for television audiences. Twitter-length Musk (richest man on Earth) Twitter-mindset ["mind virus" thinking](https://www.lemonde.fr/en/international/article/2024/08/13/elon-musk-s-ambition-repopulating-the-planet-and-destroying-the-woke-virus_6714239_4.html) patterns on Reddit. Constantly promotion that Republicans are a source of comedy. "LOL COW MILKING" media cult behavior of the Reddit audience to put Trump at the center of all media systems for the sake of LOL. https://Old.Reddit.com/r/Advice/comments/9hn5l9/how_do_i_stop_being_a_lolcow/
+
+MAGA is not a source of humor, mocking hard-working farmers because Rupert Murdoch in New York, New York has mind-fucked them all since October 7, 1996 (Vlad Putin's 44th birthday) is anti-intelligence. Milking MAGA and Republicans for their lack of education from Neil Postman is a "Celebration of Ignorance" behavior on Reddit, as defined by Carl Sagan in his year 1995 book on paper. https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Carl_Sagan_Quotes.md
+
+https://old.reddit.com/r/MurderedByWords/comments/1qs5s4g/historical_sore_losers/o2t1nhb/
+
+3 month Reddit account. top-upvoted, most liked, most popular comment. Imagination wars, simulation of wars, screen games for Reddit audience. ANYTHING but face real reality non-fiction JANUARY 2026 Reality, what is happening the last day of the month, and assert **REAL NONFICTION BOOKS from Dr. Bandy X Lee** in an Internet social uprising... instead, spending spare time and free time putting this screen gaming imaginary battle on the front page of Reddit.
+
+
+https://old.reddit.com/r/videos/comments/1qsgblb/091124_trump_makes_bizarre_claims_during_abc/o2vbdex/
+
+Most popular upvoted comment. For more than a decade, since June 16, 2015 - day after day, clowning Reddit users comment about Donald Trump. Every hour of every day, clowning on President Tony Clifton and his wild statements. Little Twitter-length shit-commenting all over Reddit about their favorite LOL Cow to milk. Mocking away our nation, entire unable to learn about nonfiction information warfare that Russia has used to wreck NATO, make a joke of USA. Trump shit-posting after Trump shit-posting to shit-comment about. SEE_ALSO December 5, 2014 reading of a published book on paper at a book store. The opposite of shit-commenting clowning. https://old.Reddit.com/r/WarAll/comments/1msqs1t/war_of_all_against_all_since_march_2013_war/ SEE_ALSO December 5, 2014 opposite of clown-commenting about the Putin clowning show. https://old.Reddit.com/r/TrumpOnionFans/comments/1mtn1ai/people_keep_saying_over_and_over_donald_trump_has/
+
+Calling a NYC man, born in New York, fan of SNL NYC, "a clown" is not resisting. Trump is playing Tony Clifton comedy acts and stunts for the camera, all the time, for the Reddit fandom. Mocking Trump as "a clown" is not resisting a Tony Clifton act. You resist a Tony Clifton actor, Trump, but asserting nonfiction education by Dr. Bandy X Lee. A non-clown serious mental health expert who has been leading since year 2017 - but Reddit commenting community won't stop mocking and insulting Donald Trump's on-camera performance.
+
+And **MAGA is not one single 79 year-old clown**. It is hundreds of millions of people. Fox News HDTV audience cult has the same media addition issues as Reddit shit-commenting media cultists. Anti-intellectual mocking of serious people like Dr. Bandy X Lee's book.

@@ -1855,7 +1855,7 @@ https://old.reddit.com/r/popculturechat/comments/1qrkdgk/bill_gates_caught_std_a
 
 https://old.reddit.com/r/popculturechat/comments/1qrkdgk/bill_gates_caught_std_and_begged_epstein_for/o2owaeb/
 
-I keep pointing out that women on social media keep talking abut white wealthy men and avoiding Malala. Girls are being abused all over the world by established men in society. Indoctrination. Including Hollywood, music industry, film industy. People in USA in January 2026 really have lost sense of what the sexual revolution in USA did for women to be able to learn and discuss. Putin lead MAGA has been leaping backwards for women all over the world. Look at the timeline from year 2012: https://github.com/RocketDerp/April14_2025/blob/working/PostMalala/Marriage/World_Malala_Timeline_Year_2012.md
+I keep pointing out that women on social media keep talking abut white wealthy men and avoiding Malala. Girls are being abused all over the world by established men in society. Indoctrination. Including Hollywood, music industry, film industy. People in USA in January 2026 really have lost sense of what the sexual revolution in USA did for women to be able to learn and discuss. Putin lead MAGA has been leaping backwards for women all over the world. Look at the timeline from year 2012: https://github.com/RocketDerp/April14_2025/blob/main/PostMalala/Marriage/World_Malala_Timeline_Year_2012.md
 
 * “We felt like the Taliban saw us as like little dolls to control, telling us what to do and how to dress. I thought if God wanted us to be like that He would not have made us all different.” ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. Published October 8, 2013
 
@@ -1936,3 +1936,158 @@ https://old.reddit.com/r/movies/comments/1qrnwz9/film_students_are_having_troubl
 https://old.reddit.com/r/movies/comments/1qrnwz9/film_students_are_having_trouble_sitting_through/o2poc3k/
 
 https://old.reddit.com/r/movies/comments/1qrnwz9/film_students_are_having_trouble_sitting_through/o2ppbaz/
+
+https://old.reddit.com/r/Millennials/comments/1qs0bal/mother_of_all_of_us_tv_addicts/o2ry3nf/
+
+He, Macaulay Culkin, was not in a **parasocial** one-way image consumption relationship with her. He was an actual child working with her in person, both on-camera and in rehearsals. But Reddit audience and fandom of famous Trump TV celebrity can't grasp this about MAGA USA media ecology. Macaulay Culkin was not in a fiction audience relationship, but a nonfiction months of labor to produce minutes of film.
+
+* "when capitalism reached a certain level of accumulation, commodities began to detach themselves and become images. And citizens who formerly had played roles as political actors began to detach themselves from their own lives and become spectators. So for example you could say now, instead of, like, going to a family reunion now we will just rent, you know, a Steve Martin Father of the Bride movie. It’s just as good and so on, and you meet the same kooky characters that you actually know. Their behaviour is all simulatable. Another similar… and this going to sound cynical, but I don’t want it to." - Texan Rick Roderick, nonfiction, Duke University https://RickRoderick.org/308-baudrillard-fatal-strategies-1993/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qs1vkz/end_of_the_debate/o2s9wkd/
+
+"QAnon", PizzaGate GamerGate meme-thinking. SEE_ALSO: https://old.Reddit.com/r/QAnonRussia
+
+https://old.reddit.com/r/memes/comments/1qs29hn/its_tough_out_there/o2sb1zf/
+
+Too bad we don't teach Comparative Mythology and marriage history (Troubadours year 1210 Europe choice marriage, Hindu India arranged marriage evolution, etc)... so many fucked-up marriages and fucked-up parenting because people prize low-effort shit-posting shit-commenting and shit fiction television for *learning and study* and do not go outside the fiction to nonfiction.
+
+* "Several famous celebrity couples from music and film have made headlines by divorcing and subsequently remarrying, showcasing dramatic "on-again, off-again" relationships. Among the most iconic examples are Old Hollywood stars Elizabeth Taylor (actress) and Richard Burton (actor), who famously married, divorced (1974), and remarried (1975) before divorcing for a second time. Similarly, actress Melanie Griffith and actor Don Johnson married young in 1976, divorced six months later, but found their way back to each other, marrying again in 1989 for a seven-year union. In the music world, singer Pink and motorcycle racer Carey Hart married in 2006, separated in 2008, but reconciled through counseling to remain together. Other notable examples include tech mogul Elon Musk and actress Talulah Riley, who were married and divorced twice (2010–2012, 2013–2016), and Baywatch actress Pamela Anderson, who divorced and remarried film producer Rick Salomon in 2007 and 2014, respectively.' - Google Search summary 2026-01-31 late morning USA
+
+https://old.reddit.com/r/memes/comments/1qs29hn/its_tough_out_there/o2sehei/
+
+When you capture the mindshare indoctrination of children. When I saw what the founders of Microsoft were doing with NFL, NBA, Jimi Hendrix music, app platform, Linux Halloween Leaks. What Bill Gates did with end-user Team OS/2 social media manipulation. IBM did not manipulate me in my formative years, Bill Gates and Paul Allen did. Greed Trumpism, Greed Bill Gates, Greed Paul Allen / Jody Allen. Greed for fandoms of the sports-game rectangle logic predictability of sports-think.
+
+* 'At the risk of sounding patronizing, may I try to put everyone's mind at ease? I doubt that the 21st century will pose for us problems that are more stunning, disorienting or complex than those we faced in this century, or the 19th, 18th, 17th, or for that matter, many of the centuries before that. But for those who are excessively nervous about the new millennium, I can provide, right at the start, some good advice about how to confront it. The advice comes from people whom we can trust, and whose thoughtfulness, it's safe to say, exceeds that of President Clinton, Newt Gingrich, or **even Bill Gates**. Here is what Henry David Thoreau told us: "All our inventions are but improved means to an unimproved end." Here is what Goethe told us: "One should, each day, try to hear a little song, read a good poem, see a fine picture, and, if possible, speak a few reasonable words." Socrates told us: "The unexamined life is not worth living." Rabbi Hillel told us: "What is hateful to thee, do not do to another." And here is the prophet Micah: "What does the Lord require of thee but to do justly, to love mercy and to walk humbly with thy God." And I could say, if we had the time, (although you know it well enough) what Jesus, Isaiah, Mohammad, Spinoza, and Shakespeare told us. It is all the same: There is no escaping from ourselves. The human dilemma is as it has always been, and it is a delusion to believe that the technological changes of our era have rendered irrelevant the wisdom of the ages and the sages." - Neil Postman. March 28, 1998. NewTech '98 conference in Denver, Colorado, an event hosted by the Archbishop of Denver.
+
+* "Technology changes everything and is, therefore, too important to be left entirely in the hands of Bill Gates." - Neil Postman. March 28, 1998. NewTech '98 conference in Denver, Colorado, an event hosted by the Archbishop of Denver.
+
+OPERA_A https://www.youtube.com/watch?v=OyCDicG0tDs Citizen Dandom. The day of the Expanding Bill Gates 1996 to Elon Musk 2026 role model man. You call me a fool for putting Steely Dan above the scheme of Levant Torah, Jewish Donald F band leader... [Godwhacker](https://old.Reddit.com/r/SteelyDan/comments/mu3azw/godwhacker_as_a_concept/)s... ***My Civic Ditty*** - learn to work the GitHub checkins... and die behind the keyboard... Winners in the World, They Call Microsoft ... call me Citizen Steely Dan. 695,561 views December 4, 2018
+
+https://old.reddit.com/r/memes/comments/1qs29hn/its_tough_out_there/o2t1ioa/
+
+Left - right brainrot. Tiny-short messages on Reddit that are Twitter-thinking as conditioned by Twitter owner Elon Musk. ANYTHING to avoid repeating and repeating and keep repeating Malala's October 8, 2013 thinking and giving voices to girls. Technology conditioned mindsets of Reddit-Twitter complex.
+
+https://old.reddit.com/r/memes/comments/1qs29hn/its_tough_out_there/o2sy1ju/
+
+<img width="1134" height="492" alt="image" src="https://github.com/user-attachments/assets/6547e9ef-cf6f-469d-9863-3bc117c05e59" />
+
+What ignorance shit-commenting on the shit-following shit-posting center of the world wide web (Reddit). Bill Gates is an active influencer and Corporate America role model. Many people read his public postings. The ignorance on Reddit is that people don't grasp how adult learning works, corporate executives, where they learn from (learning ecology, adult education ecology).
+
+* November 9, 2023 - which is AFTER the dates the low-effort shit-commenting Reddit message says. "November 9, 2023 — Microsoft is making its Copilot part of Word, Excel, Outlook, and other services." - https://www.GatesNotes.com/ai-agents
+
+https://old.reddit.com/r/memes/comments/1qs29hn/its_tough_out_there/o2swpc2/
+
+Redditors in year 2026 are anti-FAQ, anti-Wiki, anti-organizing information into fact-checked priority-focused topics. Reddit audience is more about avoiding important topics and seeking kitten and cat photos than it is about coming together on the same page of crucial topics.
+
+https://old.reddit.com/r/memes/comments/1qs29hn/its_tough_out_there/o2sxuia/
+
+3 month Reddit account. Promoting very popular out-group logic. Out-group dismissal. **Brand loyalty** idea promotion. That a source of information, Bill Gates, must be perfect. When no perfect source of information exists. Fox News is not perfect, CNN is not perfect, Bill Gates ideas and thinking are not perfect. But the Reddit mind-fucking of the Reddit audience here is that if there is any flaw at all, any mistake, to dismiss and delete EVERYTHING. That's the deportation attitude of Trumpism MAGA on Reddit. That ANY mistake MAGA mindset you are deported and ejected from society. Anti-learning, anti-teaching, anti-progress, anti-understanding in favor of binary logic block-happy book burning thinking.
+
+https://old.reddit.com/r/technology/comments/1qs5tr7/bill_gates_denies_completely_false_claims_in/o2t15wa/
+
+This is what people do not grasp / understand / comprehend about the cult of billionaires on Reddit. People are here for the jokes, humor, comedy, satire, sarcasm, absurd entertainment, surreal content that trickles down from billionaires (pours down now). Reddit is now in January 2026 a fandom to Epstein.
+
+Private jet sex acts, private islands, lifestyles of the rich and famous, photos of the rich and famous. This "Epstein List" movement since June 2025 on Reddit cult media platform is not about removing Trump, it's morphed into fantasy of being wealthy and famous. The minds are programmed to be anti-Malala anti-FAQ anti-Wiki - and **avoidant of GenX leader Dr. Bandy X Lee nonfiction teaching about cults and mental health** of USA society.
+
+Reddit fandom of Epstein wants icons and symbols to crack jokes about. Women are the destroyed outcome of all this male joking "locker room talk" that Reddit prizes. Anti-Malala attitudes. Anti-women, anti-reformation that Malala Y has been proposing. Reddit audience is loyal to mocking, which Trump and Putin lead, a total mockery. The loyalty is not to women and girls standing up to the most powerful dictators in the world - aggressive dominating men. The [loyalty is to joke-washing dehumanizing attitudes of men as "locker room"](https://www.CNN.com/2016/10/09/politics/donald-trump-locker-room-talk-presidential-debate-2016-election) shit-commenting on the Reddit shit-posting platform. Reddit is the male-worship social cesspool https://GitHub.com/GreatSealUSA/GreatSealUSA_Art/blob/main/PLUR1BUS/Media_Ecology/Vince_Gilligan_Climbing_out_of_Social_Media_Cesspool.md  , Reddit is the "locker room" talk leader normalization venue.
+
+* January 11, 2021. "The ‘Shared Psychosis’ of Donald Trump and His Loyalists. Forensic psychiatrist Bandy X. Lee explains the outgoing president’s pathological appeal and how to wean people from it" ... "extreme narcissism does not allow for equality with other human beings, as democracy requires" ... "delusions are more infectious than strategic lies, and so we see, from their sheer spread, that Trump likely truly believes them" https://www.ScientificAmerican.com/article/the-shared-psychosis-of-donald-trump-and-his-loyalists/
+
+Repeating "extreme narcissism does not allow for equality with other human beings, as democracy requires" - Reddit fandom of white billionaire leaders ( Putin, Musk, Trump, Murdoch, Gates, etc ) does not want to face that a blogger in Swat Valley Pakistan has more wisdom than the low-effort shit-posting shit-commenting society of Reddit. And that turning to Malala's books is far more important than making more and more low-effort shit-commenting about old white men who dictate to society via operating systems, media systems, wealth-purchased influence electric media systems.
+
+* “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.” ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. Published October 8, 2013. Swat Valley, Pakistan.
+
+Again.. Repeating "extreme narcissism does not allow for equality with other human beings, as democracy requires" - Reddit fandom of white billionaire leaders.
+
+https://old.reddit.com/r/technology/comments/1qs5tr7/bill_gates_denies_completely_false_claims_in/o2t3ttn/
+
+Media cultists of Daddy figures, Father Figures, looking forward to more Reddit AMA content in the future. The cultists of billionaires on Reddit seek out authority figure father white men. /r/Technology tech-love cult of tech men (user has a "Clippy" Microsoft icon on their Reddit profile).
+
+https://old.reddit.com/r/technology/comments/1qs5tr7/bill_gates_denies_completely_false_claims_in/o2t4fkx/
+
+Gullible Reddit fandom of billionaire tech ( /r/Technology worship center; media cult ) does not grasp that QAnon is a major PSYOP anti-NATO message pattern picked-up and strategically promoted by Russia. SEE_ALSO https://old.reddit.com/r/QAnonRussia education of the Reddit audience I created July 28, 2021 to try and deprogram the Reddit cultists of monomyth fiction patterns. Surkov won since March 2013.
+
+Reddit tech fandoms are entirely ignorant and not self-aware of Levant monomyth cult history, comparative mythology, and what Putin has weaponized. A completely gullible population of tech consumers. "Q" is a purely symbolic icon of the monomyth order, adapted to modern electric media systems.
+
+* [“The truth is, it’s getting harder to describe the extent to which a meaningful percentage of Americans have dissociated from reality,” Charlie Warzel wrote “I’m Running Out of Ways to Explain How Bad This Is.”](https://www.axios.com/2024/10/19/musk-ackman-election-misinformation) - October 19, 2024 - America’s gullibility crisis, Zachary Basu
+
+https://old.reddit.com/r/fixedbytheduet/comments/1qs2kxs/accountability/o2sd74h/
+
+Alas, people in USA are entirely unable to see the compulsive behavior of social media to follow famous comedian Donald Trump's role model of winning White House by mocking and insulting others. That jokes and mockery are the very USA nation on the World Stage of history. People see ONE TREE on /r/All of Reddit and can not see the forest of a nation that's deepest most cherished faith is insulting and mocking what is not comprehended, understood, grasped.
+
+Reddit is the center of the Internet for Trump fandom. Donald J Trump never was funny. **Orange skin isn't hilarious comedy**. Skin color jokes is mocking a disability, a failure of media ecology comprehension of an entire nation is being mocked. It is all symptoms of extreme shallowness and superficial behaviors. Repetitive superficial society of people who prize diaper poop and orange skin as some kind of sick way to wreck the world. 
+
+* 1993 TV is now year 2013 onward Reddit commenting section. "Their life is shit, if you will pardon the expression, and this is a comedy. Because all the troubles that such a life involve are just reduced to banality, just the **common rubble of little one line joke, you follow me? It’s made banal by it.** It’s banalised that way."; "This is the great – to me – ideological function of television and the movies. However extreme the situation, TV can find a way to turn it into a banality." - Texan Rick Roderick, year 1993, Duke University. "Marcuse and One-Dimensional Man". The joking tiny-think meme-think Tweet-think one-dimensional mindset. The Trump fandom on Reddit. https://RickRoderick.org/304-marcuse-and-one-dimensional-man-1993/
+
+https://old.reddit.com/r/fixedbytheduet/comments/1qs2kxs/accountability/o2sdlrx/
+
+Note Reddit username.
+
+https://old.reddit.com/r/fixedbytheduet/comments/1qs2kxs/accountability/o2sk0nt/
+
+2 month Reddit account.
+
+https://old.reddit.com/r/MadeMeSmile/comments/1qs2wzh/accountability/o2shr1h/
+
+3 month Reddit account.
+
+https://old.reddit.com/r/MadeMeSmile/comments/1qs2wzh/accountability/o2sj9jw/
+
+Cults to mocking other human beings don't often have "bad intentions", they just lack learning of cult behaviors and compulsive use of high-speed electric media. They are following billionaire successman Donald Trump's use of media without self-awareness.
+
+https://old.reddit.com/r/worldnews/comments/1qs75ir/finland_looks_to_end_uncontrolled_human/o2tez3m/
+
+It all changed year 2013 onward. Internet Research Agency and Cambridge Analytica psychological changes.
+
+https://old.reddit.com/r/worldnews/comments/1qs75ir/finland_looks_to_end_uncontrolled_human/o2td2gq/
+
+https://old.reddit.com/r/worldnews/comments/1qs75ir/finland_looks_to_end_uncontrolled_human/o2tc7oe/
+
+4 month Reddit account.
+
+https://old.reddit.com/r/worldnews/comments/1qs75ir/finland_looks_to_end_uncontrolled_human/o2td0m2/
+
+Off-Reddit URL! Get people to have a common point / education topic to rally around and share. Not just commenting but asserting nonfiction learning as important to get on *the same page*.
+
+https://old.reddit.com/r/worldnews/comments/1qs75ir/finland_looks_to_end_uncontrolled_human/o2thcs7/
+
+https://old.reddit.com/r/worldnews/comments/1qs75ir/finland_looks_to_end_uncontrolled_human/o2tzbu4/
+
+3 month Reddit account.
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1qs6ys1/petah_what_does_that_have_to_do_with_grocery/o2taffb/
+
+Total mockery society. Shit-commenting for shit-postings. A society that is attracted to and seeks out shit for information. Anti-comprehension, anti-undrestanding.
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1qs6ys1/petah_what_does_that_have_to_do_with_grocery/o2tazx4/
+
+ADHD discussion.
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1qs6ys1/petah_what_does_that_have_to_do_with_grocery/o2tgcei/
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1qs6ys1/petah_what_does_that_have_to_do_with_grocery/o2tf6m6/
+
+Delivery ecology, competing delivery systems.
+
+https://old.reddit.com/r/therewasanattempt/comments/1qs425x/to_pretend_desperate_emails_asking_to_go_to/o2sqkak/
+
+Elon Musk worked his way into the USA because of the tech industry. His role model: Elon Musk is 54 years old (born June 28, 1971), and Bill Gates is 70 years old (born October 28, 1955). Paul Allen in space too.
+
+https://old.reddit.com/r/therewasanattempt/comments/1qs425x/to_pretend_desperate_emails_asking_to_go_to/o2sq814/
+
+https://old.reddit.com/r/therewasanattempt/comments/1qs425x/to_pretend_desperate_emails_asking_to_go_to/o2sr4oa/
+
+<img width="1110" height="676" alt="image" src="https://github.com/user-attachments/assets/91453cb4-f9bd-4e7d-ad92-7d671808e76a" />
+
+Tech addicts of Reddit will not stand up to their tech addictions in peaceful ways. Musk is a tech lord that Reddit society prizes, men tech leaders. Cultists of Twitter content, Reddit. Promoting a binary logic of burn down an entire nation, including hundreds of millions of people abused by Elon Musk and Rupert Murdoch, instead of reviving Neil Postman and Marshall McLuhan teaching. Anti-Malala anti-education anti-MLKjr... Reddit messaging of pro-violence pro-burning of books, pro-burning of uneducated  people. Simple-think logic answers of a technology addiction society of Reddit machine tech lovers.
+
+Trump is burning down goodness, as programmed by Surkov students. We need to rescue Musk and Trump from the cult Putin has cultivated since March 2013. WE THE PEOPLE... WE ALL NEED TO STAND UP AND PROMOTE Dr. Bandy X Lee's leadership! https://www.ScientificAmerican.com/article/the-shared-psychosis-of-donald-trump-and-his-loyalists/
+
+https://old.reddit.com/r/GuysBeingDudes/comments/1qs887o/real_dude_is_aware_of_a_mistake/o2tocki/
+
+1 month Reddit account.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qse2g7/boxer_ryan_garcia_walks_back_support_for_trump/o2v9yhx/
+
+Finnegans Wake.
+

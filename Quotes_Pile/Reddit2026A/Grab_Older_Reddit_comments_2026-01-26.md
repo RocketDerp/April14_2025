@@ -48,3 +48,17 @@ The raging QAnon media cult ( https://old.reddit.com/r/QAnonRussia/ ) was obviou
 https://old.reddit.com/r/ThePeoplesPress/comments/1jogeem/billionaires_met_in_november_2013_and_one_month/mkrl2kv/
 
 My comment on my posting. May have already grabbed this one. Comment that lead to creation of this GitHub project and name.
+
+https://old.reddit.com/r/AdviceAnimals/comments/1lpqkl1/removed_by_reddit/n0yij42/
+
+This posting ID 1lpqkl1 , but not this comment ID n0yij42 , is already in this GitHub project. Looking back at the *hate harder* mindsets at the end of January 2026 to see why so many people are addicted to the Trump fandom that is Reddit media cults.
+
+https://old.reddit.com/r/AdviceAnimals/comments/1lpqkl1/removed_by_reddit/n10dxll/
+
+<img width="1187" height="486" alt="image" src="https://github.com/user-attachments/assets/a84ddf10-d2bb-402b-be0a-fdfeedc7a267" />
+
+*Hate harder* terrorism training programming. Hate vs. Hate. Hate for Hate. Anti-Malala messaging, tech lovers / machine lovers of Reddit being mentally programmed to prize tech (Reddit cloud computing) an hate people. No desire to educate and teach to reform thinking, only logical binary of dead or alive, tech on or off, kill signaling. Mockery-washing with gang-signaling of special symbolic MiXedCaSe lettering/word mocking is gangland signaling of the out-group hate terrorism (street signs and symbols of the subreddit streets).
+
+Nothing progressive in the message, absent any goodness. Just wanting to see killing and death. **Death cult** of Reddit tech lovers. It doesn't matter that the message specifies "PRESIDENT", as it mean *any President*, even corporate President (Luigi 2024-12-04 worship death cult, murder cult gangs). And really, any person outside the cult, **competition** of Murdoch cult for Reddit cult; of murder for murder, hate for hate race to the bottom of the human mind.
+
+* "That is the **meaning of love. In the final analysis, love** is not this sentimental something that we talk about. It's not merely an emotional something. Love is creative, understanding goodwill for all men. It is the refusal to defeat any individual. When you rise to the level of love, of its great beauty and power, you seek only to defeat evil systems. Individuals who happen to be caught up in that system, you love, but you seek to defeat the system." - King, Jr., Martin Luther (1957-11-17)
