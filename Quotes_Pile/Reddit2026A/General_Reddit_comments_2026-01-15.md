@@ -2144,3 +2144,32 @@ https://old.reddit.com/r/chaoticgood/comments/1qsx25j/trump_fucking_audibly_shit
 https://old.reddit.com/r/chaoticgood/comments/1qsx25j/trump_fucking_audibly_shits_himself_on_tv/o2ynjeo/
 
 "Imagine". This is what imagination of a Fandom does in a cult.
+
+https://old.reddit.com/r/chaoticgood/comments/1qsx25j/trump_fucking_audibly_shits_himself_on_tv/o2yp1ty/
+
+https://old.reddit.com/r/politics/comments/1qsnsfv/this_doj_is_actually_gaslighting_the_entire/o2wvk8v/
+
+12 day Reddit account. Top upvoted popular comment.
+
+https://old.reddit.com/r/politics/comments/1qsnsfv/this_doj_is_actually_gaslighting_the_entire/o2xrclv/
+
+Gullibility abounds. Denial abounds.
+
+*  [“The truth is, it’s getting harder to describe the extent to which a meaningful percentage of Americans have dissociated from reality,” Charlie Warzel wrote “I’m Running Out of Ways to Explain How Bad This Is.”](https://www.axios.com/2024/10/19/musk-ackman-election-misinformation) - October 19, 2024 - America’s gullibility crisis, Zachary Basu
+
+https://old.reddit.com/r/politics/comments/1qsnsfv/this_doj_is_actually_gaslighting_the_entire/o2x5ccs/
+
+https://old.reddit.com/r/politics/comments/1qsnsfv/this_doj_is_actually_gaslighting_the_entire/o2xeakd/
+
+8 month Reddit account.
+
+https://old.reddit.com/r/politics/comments/1qsm9p9/from_elon_musk_to_the_former_prince_andrew_a_whos/o2z7uk4/
+
+1 month Reddit account. Christmas day.
+
+https://old.reddit.com/r/politics/comments/1qsm9p9/from_elon_musk_to_the_former_prince_andrew_a_whos/o2wpit3/
+
+https://old.reddit.com/r/politics/comments/1qsm9p9/from_elon_musk_to_the_former_prince_andrew_a_whos/o2wlid5/
+
+People just don't get what is going on in Iran, Afghanistan, Pakistan that Malala has nicely pointed out. We have a leader that wants to put girls in the spotlight and stop putting all the direct attention on the elder men. Educate the girls, give girls a voice, let the girls speak up when they are being targeted and manipulated. They are being indoctrinated and need to be educated as to the history.
+
