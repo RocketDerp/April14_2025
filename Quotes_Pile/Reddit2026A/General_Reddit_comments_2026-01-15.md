@@ -2130,3 +2130,17 @@ https://old.reddit.com/r/technology/comments/1qscn3l/jeffrey_epstein_sent_five_n
 https://old.reddit.com/r/technology/comments/1qscn3l/jeffrey_epstein_sent_five_nights_at_freddys_porn/o2uxsve/
 
 * "these are the phenomenon that Baudrillard **examines with the most care**. Incredible information overloads with information moving at incredible speed and even to the youngest children. I have talked about how **children used to learn morality** from their parents and now I think that [morality is learned from] Super Mario Brothers. They spend much more time with Super Mario Brothers and are **much more emotionally involved with Nintendo than they are with their aunts, their uncles, their mothers and their fathers**. I asked one of my children “Why are you yelling at a machine?” when he began to bang his Nintendo, and he looked at me as though I were a being from another world. And because of that there is a postmodern trajectory. I am from another world. I am still, as it were, caught in the modern. He’s not. Why not be emotional with a machine? **His peers are machine-like**, we have already discussed that. I mean in fact what he sees on the Nintendo screen is his thrill of the day. That’s the most active he’s seen any simulated image that day." - Texan Rick Roderick, Duke University https://RickRoderick.org/308-baudrillard-fatal-strategies-1993/
+
+https://old.reddit.com/r/chaoticgood/comments/1qsx25j/trump_fucking_audibly_shits_himself_on_tv/o2yknzb/
+
+https://old.reddit.com/r/chaoticgood/comments/1qsx25j/trump_fucking_audibly_shits_himself_on_tv/o2yo3ha/
+
+https://old.reddit.com/r/chaoticgood/comments/1qsx25j/trump_fucking_audibly_shits_himself_on_tv/o2yqvdf/
+
+https://old.reddit.com/r/chaoticgood/comments/1qsx25j/trump_fucking_audibly_shits_himself_on_tv/o2yl1yk/
+
+https://old.reddit.com/r/chaoticgood/comments/1qsx25j/trump_fucking_audibly_shits_himself_on_tv/o2ywd2c/
+
+https://old.reddit.com/r/chaoticgood/comments/1qsx25j/trump_fucking_audibly_shits_himself_on_tv/o2ynjeo/
+
+"Imagine". This is what imagination of a Fandom does in a cult.
