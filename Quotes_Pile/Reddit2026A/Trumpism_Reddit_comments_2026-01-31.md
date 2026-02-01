@@ -491,3 +491,9 @@ Fox News runs deeper than Kamala. University of Toronto's Marshall McLuhan and N
 https://old.reddit.com/r/therewasanattempt/comments/1qsyyh0/to_appear_unfazed_by_the_presidents_nuclear/o2yxu50/
 
 What wrecked the USA: the shit-commenting, shit-posting, shit-seeking fandom of shit media. Day in day out. endlessly for over 10 years - Trump as entertainment. ANYTHING to avoid taking seriously the cult of shit on Fox News. Reddit audience could be making Jen Senko a household name with her film about Fox News and other entertainment media addictions. See: https://en.Wikipedia.org/wiki/The_Brainwashing_of_My_Dad - but instead, raging addiction to commenting about Trump runs society.
+
+https://old.reddit.com/r/Music/comments/1qsyp2z/lady_gaga_pauses_tokyo_concert_to_condemn_actions/o2yxlel/
+
+Fairy tale fiction outsells nonfiction. Russia has been manipulating Japanese population too (including the people who produce the news).
+
+* April 5, 2025 — "Russia is waging an information war against Japan and Canada"; "Russia intensifies its information war against Japan and Canada, using propaganda and disinformation to manipulate public opinion" https://odessa-journal.com/russia-is-waging-an-information-war-against-japan-and-canada#google_vignette
