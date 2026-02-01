@@ -693,3 +693,15 @@ Posting title and image, "pretending". Yes, fiction. Everyone is pretending that
 
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1qt6v4g/nobodys_pretending_anymore_you_either_see_it_or/o313hxm/
 
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1qtavgu/marjorie_taylor_greene_bluntly_declares_maga_was/o31is9u/
+
+<img width="1116" height="407" alt="image" src="https://github.com/user-attachments/assets/22e4074b-30af-4961-aa6d-964665d99b0a" />
+
+My fucking point exactly. **That point is a core fucking point of this GitHub project**. Trump attraction is the outcome of Cambridge Analytica and the Saint Parkersburg Internet Research Agency. Trump is the product of the biggest mental manipulation success in world history. Surkov cracked the monomyth, at least the dark anti-compassion anti-empathy side of the monomyth.
+
+People I have known my entire life, and others I traveled and knew for 10 or more years, suddenly started being attracted to self-harm father figures, daddy issues, masculine garbage. Anti-Malala even among the most intelligent and thoughtful people. Anti-MLKJr. Surkov won.
+
+* "what Putin will do next — that he’s unpredictable and thus dangerous. We’re rendered stunned, spun, and flummoxed by the Kremlin’s weaponization of absurdity and unreality.” - year 2014. September 9, 2014 https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mdtfy2kucs2m https://autistics.life/@RoundSparrow/115997807521933104 }
