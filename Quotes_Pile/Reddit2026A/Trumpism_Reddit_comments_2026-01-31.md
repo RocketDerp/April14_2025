@@ -279,3 +279,22 @@ Confronting the gullibility crisis.
 
 * [“The truth is, it’s getting harder to describe the extent to which a meaningful percentage of Americans have dissociated from reality,” Charlie Warzel wrote “I’m Running Out of Ways to Explain How Bad This Is.”](https://www.axios.com/2024/10/19/musk-ackman-election-misinformation) - October 19, 2024 - America’s gullibility crisis, Zachary Basu
 
+https://old.reddit.com/r/politics/comments/1qshl0o/minnesota_standoff_with_trump_administration/o2vkxec/
+
+https://old.reddit.com/r/politics/comments/1qshl0o/minnesota_standoff_with_trump_administration/o2vnudh/
+
+https://old.reddit.com/r/politics/comments/1qshl0o/minnesota_standoff_with_trump_administration/o2vl81s/
+
+https://old.reddit.com/r/politics/comments/1qshl0o/minnesota_standoff_with_trump_administration/o2vrj39/
+
+see the reply; "Reddit and media are pushing civil war talks"
+
+https://old.reddit.com/r/politics/comments/1qshl0o/minnesota_standoff_with_trump_administration/o2w5shr/
+
+https://old.reddit.com/r/politics/comments/1qsfgbg/pam_bondi_gives_chilling_warning_after_don_lemons/o2v48sn/
+
+https://old.reddit.com/r/politics/comments/1qsfgbg/pam_bondi_gives_chilling_warning_after_don_lemons/o2v5sh4/
+
+https://old.reddit.com/r/politics/comments/1qsfgbg/pam_bondi_gives_chilling_warning_after_don_lemons/o2varss/
+
+Leadership of hate, Reddit follows the leader of hate. Hate harder values.
