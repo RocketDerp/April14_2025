@@ -2091,3 +2091,18 @@ https://old.reddit.com/r/Fauxmoi/comments/1qse2g7/boxer_ryan_garcia_walks_back_s
 
 Finnegans Wake.
 
+https://old.reddit.com/r/technology/comments/1qscn3l/jeffrey_epstein_sent_five_nights_at_freddys_porn/o2un48h/
+
+https://old.reddit.com/r/technology/comments/1qscn3l/jeffrey_epstein_sent_five_nights_at_freddys_porn/o2uj604/
+
+https://old.reddit.com/r/technology/comments/1qscn3l/jeffrey_epstein_sent_five_nights_at_freddys_porn/o2uxta3/
+
+Manipulation training camp. 4Chan
+
+https://old.reddit.com/r/technology/comments/1qscn3l/jeffrey_epstein_sent_five_nights_at_freddys_porn/o2untyx/
+
+https://old.reddit.com/r/technology/comments/1qscn3l/jeffrey_epstein_sent_five_nights_at_freddys_porn/o2umhj1/
+
+https://old.reddit.com/r/technology/comments/1qscn3l/jeffrey_epstein_sent_five_nights_at_freddys_porn/o2up979/
+
+4Chan and Reddit, two peas in a pod of billionaire manipulating predictable tech-love mindsets.
