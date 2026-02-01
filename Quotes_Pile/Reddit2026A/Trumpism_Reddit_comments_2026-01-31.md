@@ -641,3 +641,7 @@ The avoidance of nonfiction leaning and teaching is obvious if you seriously min
 https://old.reddit.com/r/mapporncirclejerk/comments/1qt56z0/map_of_countries_whose_leaders_shat_themselves_on/o30dlch/
 
 1 month Reddit account, top-voted comment. Trump is a constant source of entertainment. No other leader can provide the media stimulation to fandoms. Cult of mocking, with a leader of total mockery.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qt79qi/sza_its_offensive_for_black_americans_to_listen/o30py7g/
+
+6 month Reddit account. Top upvoted popular comment.
