@@ -632,3 +632,8 @@ https://old.reddit.com/r/europe/comments/1qt6ys0/jeffrey_epstein_reportedly_ran_
 
 Reddit is the center of joke-washing Putin, humor-wrapping Trump.
 
+https://old.reddit.com/r/europe/comments/1qt6ys0/jeffrey_epstein_reportedly_ran_kremlins_largest/o30pwyv/
+
+The avoidance of nonfiction leaning and teaching is obvious if you seriously mind it. Jen Senko, ignored. Despite Fox News clearly being a crisis. Cult deprogramming nonfiction books ignored. Dr. Bandy X Lee ignored. 
+
+* From September 9, 2014 - https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ "Russia and the Menace of Unreality: How Vladimir Putin is revolutionizing information warfare. By Peter Pomerantsev. At the NATO summit in Wales last week, General Philip Breedlove, the military alliance’s top commander, made a bold declaration. Russia, he said, is waging “the **most amazing information warfare blitzkrieg we have ever seen in the history of information warfare.**” It was something of an underestimation. The new Russia doesn’t just deal in the petty disinformation, forgeries, lies, leaks, and cyber-sabotage usually associated with information warfare. It reinvents reality, creating mass hallucinations that then translate into political action."
