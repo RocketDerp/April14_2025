@@ -211,3 +211,4 @@ Exactly. **Dr. Bandy X. Lee stuck her neck out in year 2017** and hasn't stopped
 
 I suggest every 47 hours a Pow Wow on every social media platform, organized education and teaching of top priority topics. "Brain Rot Society 47", EVERY 47 HOURS. https://GitHub.com/GreatSealUSA/Brainrot_Society_47
 
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mdr5jix3o22d https://autistics.life/@RoundSparrow/115992704618892678 }
