@@ -336,7 +336,7 @@ https://old.reddit.com/r/videos/comments/1qstu0i/trump_audibly_shits_himself_on_
 
 The reply comment about 70% of Americans...
 
-Where is this magical 30 percent of people who are rescuing the USA from Putin's information warfare since march 2013. It is ONE HUNDRED PERCENT who will not face up that this has been about NATO all along, no matter how much people see wild and crazy NATO behaviors over Canada and Greenland... people still will not sober up from the endless mocking of Trump, joking of Trump to realize that David Foster Wallace was not joking when he killed himself over the USA society not getting that "Infinite Jest" joking is a real fucking human brain exploit.
+Where is this magical 30 percent of people who are rescuing the USA from Putin's information warfare since March 2013. It is ONE HUNDRED PERCENT who will not face up that this has been about **NATO all along**, no matter how much people see wild and crazy **NATO behaviors over Canada and Greenland**... people still will not sober up from the endless mocking of Trump, joking off Trump... to realize that David Foster Wallace was not joking when he killed himself over the USA society not getting that "Infinite Jest" joking is a real fucking human brain exploit.
 
 * “For in the end, he was trying to tell us what afflicted the people in 'Brave New World' was not that they were laughing instead of thinking, but that they did not know what they were laughing about and why they had stopped thinking.”
 ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. Year 1985
@@ -353,6 +353,7 @@ What happened is that before year 2007, every person in their far at the traffic
 
 * “But it is much later in the game now, and ignorance of the score is inexcusable. To be **unaware that a technology** \[Reddit / Bluesky\] comes equipped with a program for social change, to maintain that technology is neutral, to make the assumption that technology is always a friend to culture is, at this late hour, stupidity plain and simple.”
 ― Neil Postman, Amusing Ourselves to Death: [Public Discourse in the Age of Show Business, year 1985. page 157.](https://books.google.com/books?id=zGkhbPEjkRoC&pg=RA1-PA157&dq=%22equipped+with+a+program+for+social+change,+to+maintain+that+technology+is+neutral,+to+make+the+assumption+that+technology+is+always+a+friend+to+culture+is%22&hl=en&newbks=1&newbks_redir=1&sa=X)
+
 
 https://old.reddit.com/r/videos/comments/1qstu0i/trump_audibly_shits_himself_on_tv_immediately/o2y0zmo/
 
