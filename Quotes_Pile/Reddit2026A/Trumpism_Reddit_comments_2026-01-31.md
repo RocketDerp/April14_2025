@@ -502,3 +502,9 @@ https://old.reddit.com/r/Music/comments/1qsyp2z/lady_gaga_pauses_tokyo_concert_t
 
 https://old.reddit.com/r/Music/comments/1qsyp2z/lady_gaga_pauses_tokyo_concert_to_condemn_actions/o2zakly/
 
+https://old.reddit.com/r/news/comments/1qt028y/leftist_and_liberal_gun_groups_are_seeing_a_rush/o2z5rcl/
+
+Sunday morning commenting on Reddit. Gun worship USA. Instead of turning to mental health professionals and cult deprogramming, follow the Rupert Murdoch billionaire and Putin billionaire mindsets: *hate harder, gun harder*. RIGHT NOW, today, people could be uprising on Reddit to assert the leadership of Dr. Bandy X Lee on mental health of Trump. But instead, stroking guns, male phallic symbols. Trumpism fandom of anti-learning anti-intellectual anti-goodness anti-MLKJr anti-Malala.
+
+* “Assessing dangerousness is different from making a diagnosis: it is dependent on the situation, not the person. Signs of likely dangerousness due to mental disorder can become apparent without a full diagnostic interview and can be detected from a distance, and one is expected to err, if at all, on the side of safety when the risk of inaction is too great.”
+― Bandy X. Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. Published October 3, 2017. PROLOGUE. Page 5.](https://books.google.com/books?id=g0c4DwAAQBAJ&pg=PA5&dq=dangerousness+due+to+mental+disorder+can+become+apparent+without+a+full+diagnostic+interview+and+can+be+detected+from+a+distance&hl=en&newbks=1&newbks_redir=1&sa=X)
