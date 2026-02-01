@@ -682,3 +682,6 @@ Reddit fandom of Trump is a fandom of insulting and mocking. Not a fandom of non
 https://old.reddit.com/r/politics/comments/1qt4pk6/epstein_files_absolve_me_trump_claims/o318byz/
 
 Multiple off-Reddit links, long-form Reddit comment!
+
+https://old.reddit.com/r/politics/comments/1qt4pk6/epstein_files_absolve_me_trump_claims/o30jhrt/
+
