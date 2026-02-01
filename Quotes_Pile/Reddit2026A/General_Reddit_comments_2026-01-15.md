@@ -2116,3 +2116,7 @@ https://old.reddit.com/r/technology/comments/1qscn3l/jeffrey_epstein_sent_five_n
 ANSWER: Surkov, Surkovian, Russian, Maximum Putinization. Since March of year 2013.
 
 * "what Putin will do next — that he’s unpredictable and thus dangerous. We’re rendered stunned, spun, and flummoxed by the Kremlin’s weaponization of absurdity and unreality.” - year 2014. September 9, 2014 https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/technology/comments/1qscn3l/jeffrey_epstein_sent_five_nights_at_freddys_porn/o2v7mln/
+
+4Chan is the breeding ground, Reddit is the amplifier with tech-skilled technology audience fandom.
