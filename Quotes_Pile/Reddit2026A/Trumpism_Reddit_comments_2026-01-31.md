@@ -401,3 +401,8 @@ Fiction addiction. "Peter" from Family Guy fiction addiction. South Park fiction
 There is a fundamental thing people do not grasp: In fiction, anything goes. Fiction stories allow all kinds of plot twists, wild and crazy actions. If you can get USA population to tune into social media venues day in and day out and view the White House as a fiction story to watch... anything goes. People are detached from nonfiction.
 
 * [“The truth is, it’s getting harder to describe the extent to which a meaningful percentage of Americans have dissociated from reality,” Charlie Warzel wrote “I’m Running Out of Ways to Explain How Bad This Is.”](https://www.axios.com/2024/10/19/musk-ackman-election-misinformation) - October 19, 2024 - America’s gullibility crisis, Zachary Basu
+
+https://old.reddit.com/r/AskReddit/comments/1qsrip1/with_the_epstein_files_making_it_glaringly_clear/o2xmseh/
+
+People respect rich actors, rich sports stars, rich singers, rich video game makers. People do not want to take on the new media problem with WikiTribune because you don't get rich doing news for free. We could be open sourcing all medical knowledge, all medical hardware, all medical drugs, all medical treatment methods in a Super Wikipedia. But people don't believe in admiring the common good... they want to admire exclusive unique assets and real estate that nobody else has. Competition of sports, sports mentality. Calling people failures, calling people losers, sports-thinking.
+
