@@ -1,4 +1,4 @@
-https://old.reddit.com/r/AskReddit/comments/1qrvz3u/if_the_epstein_files_arent_enough_for_a_global/o2rbvss/
+chttps://old.reddit.com/r/AskReddit/comments/1qrvz3u/if_the_epstein_files_arent_enough_for_a_global/o2rbvss/
 
 <img width="1139" height="397" alt="image" src="https://github.com/user-attachments/assets/8551b9c8-ede3-4c45-8af3-92b73f81703b" />
 
@@ -621,3 +621,14 @@ https://old.reddit.com/r/chaoticgood/comments/1qt5nh8/trump_fucking_audibly_shit
 https://old.reddit.com/r/chaoticgood/comments/1qt5nh8/trump_fucking_audibly_shits_himself_on_tv/o30nl9y/
 
 2 month Reddit account. Treating Trump as world class entertainment, Super Bowl amusement. Fandom of Trump.
+
+https://old.reddit.com/r/europe/comments/1qt6ys0/jeffrey_epstein_reportedly_ran_kremlins_largest/o30owwr/
+
+https://old.reddit.com/r/europe/comments/1qt6ys0/jeffrey_epstein_reportedly_ran_kremlins_largest/o30r107/
+
+https://old.reddit.com/r/europe/comments/1qt6ys0/jeffrey_epstein_reportedly_ran_kremlins_largest/o30q751/
+
+https://old.reddit.com/r/europe/comments/1qt6ys0/jeffrey_epstein_reportedly_ran_kremlins_largest/o30plck/
+
+Reddit is the center of joke-washing Putin, humor-wrapping Trump.
+
