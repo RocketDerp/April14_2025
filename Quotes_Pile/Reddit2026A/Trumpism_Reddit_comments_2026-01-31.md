@@ -179,8 +179,12 @@ Why isn't Reddit community asserting important topics? Why isn't Reddit front pa
 
 https://old.reddit.com/r/videos/comments/1qsgblb/091124_trump_makes_bizarre_claims_during_abc/o2vno17/
 
+<img width="1294" height="1139" alt="image" src="https://github.com/user-attachments/assets/ceb15043-9bc9-4278-80a5-8dbed2aedf23" />
+
 Vice President Kamala Harris did not use Professor Neil Postman's 1985 nonfiction book to take on the cult of Rupert Murdoch. The **media cult** population of hundreds of millions of people to Fox News screen-shots / video clips on Reddit and those who tune into Fox News directly. https://Progressive.org/op-eds/weve-always-known-fox-news-isnt-news-whitney-230309/ Comedy news, entertainment news, has wrecked the USA. Amusement news, Fox News.
 
 * September 10, 2025: https://Time.com/7313999/neil-postman-trump-prediction/
 
 * March 27, 2024: "Our politics are unhinged. He saw it coming 40 years ago.. Who got it right? 'It' being: everything. Our current mess. The low information, disinformation, gullibility and hysteria that are breaking out like measles during Election 2024." https://www.NorthHersey.com/story/opinion/columnists/2024/03/27/us-politics-2024-predicted-media-expert-neil-postman/73022583007/
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mdr3iz6sm22d https://autistics.life/@RoundSparrow/115992561210501678 }
