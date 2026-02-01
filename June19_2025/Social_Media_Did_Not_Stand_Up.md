@@ -46,7 +46,7 @@ These news networks thrive because they have ratings. Joe Rogan is the media. he
 
 ## Neil Postman 1985
 
-So why don't social media audiences assert Neil Postman? Because people only care about egomania and do not want to irritate or bother the ego of others. By prizing egomania you create a society that values Donald Trump and Elon Musk role models of egomania. By NOT being preachy and community-righteous world-righteous (self-righteous is egomania, global righteous is goodness itself). As it has been, it has been Truckle Down Influence from Billionares / billiouare-righteous.
+So why don't social media audiences assert Neil Postman? Because people only care about egomania and do not want to irritate or bother the ego of others. By prizing egomania you create a society that values Donald Trump and Elon Musk role models of egomania. By NOT being preachy and community-righteous world-righteous (self-righteous is egomania, global righteous is goodness itself). As it has been, it has been Truckle Down Influence from Billionaires / billionaire-righteous.
 
 There is no excuse, there is no good reason, to not quote Neil Postman’s 1985 book over and over since March 2013 rise of MAGA / Donald Trump / Elon Musk / Jeff Bezos (Amazon), Mark Zuckerberg (Facebook, Instagram, Meta), Fox News / Newsmax / Rush Limbaugh / Alex Jones / Joe Rogan / Tucker Carlson / Twitter shit. There **is no excuse, no reason, other than egoism and self-centered choices**. The faith that being "too preachy" is the worst thing in the world. No, the worst thing in the world is Putin's Ukraine war against Russia, how Israel hates and how Palestine terrorism (again: Malala ignored by We The People Social Media for a decade before October 7)
 
@@ -106,4 +106,6 @@ People have NOT done this for:
 2. Plaese everyone make Bible verse "1 John 3:17" known to all Christians and non-Christians age 12 to age 120 in USA and how it applies about *love* to Murdoch, Musk, Trump, Putin, etc.
 
 3. Bible verse "1 John 4:20" and how "I Love Jesus" is wrong, and how to identify liars, how to judge liars.
+
+4. Dr. Bandy X Lee's October 3, 2017 nonfiction book about mental health of USA / Trump / MAGA.
 
