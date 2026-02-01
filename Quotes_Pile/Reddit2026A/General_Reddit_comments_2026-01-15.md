@@ -2091,3 +2091,42 @@ https://old.reddit.com/r/Fauxmoi/comments/1qse2g7/boxer_ryan_garcia_walks_back_s
 
 Finnegans Wake.
 
+https://old.reddit.com/r/technology/comments/1qscn3l/jeffrey_epstein_sent_five_nights_at_freddys_porn/o2un48h/
+
+https://old.reddit.com/r/technology/comments/1qscn3l/jeffrey_epstein_sent_five_nights_at_freddys_porn/o2uj604/
+
+https://old.reddit.com/r/technology/comments/1qscn3l/jeffrey_epstein_sent_five_nights_at_freddys_porn/o2uxta3/
+
+Manipulation training camp. 4Chan
+
+https://old.reddit.com/r/technology/comments/1qscn3l/jeffrey_epstein_sent_five_nights_at_freddys_porn/o2untyx/
+
+https://old.reddit.com/r/technology/comments/1qscn3l/jeffrey_epstein_sent_five_nights_at_freddys_porn/o2umhj1/
+
+https://old.reddit.com/r/technology/comments/1qscn3l/jeffrey_epstein_sent_five_nights_at_freddys_porn/o2up979/
+
+4Chan and Reddit, two peas in a pod of billionaire manipulating predictable tech-love mindsets.
+
+https://old.reddit.com/r/technology/comments/1qscn3l/jeffrey_epstein_sent_five_nights_at_freddys_porn/o2umlcb/
+
+https://old.reddit.com/r/technology/comments/1qscn3l/jeffrey_epstein_sent_five_nights_at_freddys_porn/o2vut74/
+
+"What the hell has American politics become" - January 31, 2026 Reddit
+
+ANSWER: Surkov, Surkovian, Russian, Maximum Putinization. Since March of year 2013.
+
+* "what Putin will do next — that he’s unpredictable and thus dangerous. We’re rendered stunned, spun, and flummoxed by the Kremlin’s weaponization of absurdity and unreality.” - year 2014. September 9, 2014 https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/technology/comments/1qscn3l/jeffrey_epstein_sent_five_nights_at_freddys_porn/o2v7mln/
+
+4Chan is the breeding ground, Reddit is the amplifier with tech-skilled technology audience fandom.
+
+https://old.reddit.com/r/technology/comments/1qscn3l/jeffrey_epstein_sent_five_nights_at_freddys_porn/o2uoelw/
+
+Gallows humor is core to Internet Research Agency mental manipulation of USA society. Surkov won since March 2013.
+
+https://old.reddit.com/r/technology/comments/1qscn3l/jeffrey_epstein_sent_five_nights_at_freddys_porn/o2upibw/
+
+https://old.reddit.com/r/technology/comments/1qscn3l/jeffrey_epstein_sent_five_nights_at_freddys_porn/o2uxsve/
+
+* "these are the phenomenon that Baudrillard **examines with the most care**. Incredible information overloads with information moving at incredible speed and even to the youngest children. I have talked about how **children used to learn morality** from their parents and now I think that [morality is learned from] Super Mario Brothers. They spend much more time with Super Mario Brothers and are **much more emotionally involved with Nintendo than they are with their aunts, their uncles, their mothers and their fathers**. I asked one of my children “Why are you yelling at a machine?” when he began to bang his Nintendo, and he looked at me as though I were a being from another world. And because of that there is a postmodern trajectory. I am from another world. I am still, as it were, caught in the modern. He’s not. Why not be emotional with a machine? **His peers are machine-like**, we have already discussed that. I mean in fact what he sees on the Nintendo screen is his thrill of the day. That’s the most active he’s seen any simulated image that day." - Texan Rick Roderick, Duke University https://RickRoderick.org/308-baudrillard-fatal-strategies-1993/

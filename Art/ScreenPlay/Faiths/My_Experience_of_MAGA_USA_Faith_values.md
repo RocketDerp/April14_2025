@@ -49,6 +49,12 @@ OPERA_A I had not forgot the "Class of year 1999" lesson ;) https://www.youtube.
 
 &nbsp;
 
+# All in
+
+I told this partner: this Sunscreen business was my best idea and effort after more than two full year. From November 2010 to February 2012. I had presented and gone over a dozen decent ideas, but this one I was the most passionate about. And I was met with extreme apathy, even when I said our partnership was running out of time to cross a forward-path threshold.
+
+&nbsp;
+
 # Note A
 
 Reservation made  Tue, November 20, 2012 9:19 AM CST .   

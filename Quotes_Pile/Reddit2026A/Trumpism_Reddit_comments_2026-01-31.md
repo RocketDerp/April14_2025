@@ -221,3 +221,80 @@ Tulsa. /r/Tulsa
 <img width="576" height="768" alt="image" src="https://github.com/user-attachments/assets/d914f166-03ec-4ac0-bb08-e50614c03579" />
 
 Social post { https://MidWest.Social/post/42755876 https://Autistics.Life/@RoundSparrow/115992782481238409 https://bsky.app/profile/roundsparrow.bsky.social/post/3mdr6msjm5c2d }
+
+https://old.reddit.com/r/whenthe/comments/1qsgnzr/it_feels_so_strange_this_is_the_stuff_youd_hear/o2veev5/
+
+Posting title: "insane", "real", "strange"
+
+https://old.reddit.com/r/whenthe/comments/1qsgnzr/it_feels_so_strange_this_is_the_stuff_youd_hear/o2vfjfz/
+
+9 month Reddit account.
+
+Social media users (on Reddit social, Bluesky social) are not using social media systems to educate and do nonfiction cult deprogramming. SEE_ALSO https://GitHub.com/RocketDerp/April14_2025/blob/main/June19_2025/Social_Media_Did_Not_Stand_Up.md
+
+https://old.reddit.com/r/whenthe/comments/1qsgnzr/it_feels_so_strange_this_is_the_stuff_youd_hear/o2vrjeg/
+
+QAnon. Russian-promoted QAnon. See UK London news: https://www.Independent.co.UK/news/world/americas/us-election-2020/qanon-russia-conspiracy-theory-trump-2020-election-b1536946.html
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1qsgvpg/tried_to_make_his_family_support_trump_so_they/o2vg8vc/
+
+"real", "crazy"
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1qsgvpg/tried_to_make_his_family_support_trump_so_they/o2vfvzj/
+
+"absurd", "real"
+
+* "what Putin will do next — that he’s unpredictable and thus dangerous. We’re rendered stunned, spun, and flummoxed by the Kremlin’s weaponization of absurdity and unreality.” - year 2014. September 9, 2014 https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1qsgvpg/tried_to_make_his_family_support_trump_so_they/o2vfzrz/
+
+"wore than a cult"
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1qsgvpg/tried_to_make_his_family_support_trump_so_they/o2vgl6k/
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1qsgvpg/tried_to_make_his_family_support_trump_so_they/o2vg0x6/
+
+"Trolls aren't good enough". Gullible Reddit consumer who has not studied Surkovian / Surkov students information warfare since year 2011. Psychological denial abounds, recency bias abounds, people on Reddit have very little sense of how long this Trump situation has been going on, that this is well into the SECOND TRUMP TERM IN OFFICE.
+
+* “The human brain can protect us from seeing and feeling what it believes may be too uncomfortable for us to tolerate. It can lead us to deny, defend, minimize, or rationalize away something that doesn’t fit our worldview.”
+― Dr. Bandy X Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. Published **October 3, 2017**. Page 273. Chapter "TRUMP'S DADDY ISSUES"](https://books.google.com/books?id=g0c4DwAAQBAJ&pg=PA273&dq=%E2%80%9CThe+human+brain+can+protect+us+from+seeing+and+feeling+what+it+believes+may+be+too+uncomfortable%22&hl=en&newbks=1&newbks_redir=1&sa=X)
+
+* [“The truth is, it’s getting harder to describe the extent to which a meaningful percentage of Americans have dissociated from reality,” Charlie Warzel wrote “I’m Running Out of Ways to Explain How Bad This Is.”](https://www.axios.com/2024/10/19/musk-ackman-election-misinformation) - October 19, 2024 - America’s gullibility crisis, Zachary Basu
+
+* Second term Project 2025 rose from building on the first January 2017 term in office. “One of the saddest lessons of history is this: If we’ve been bamboozled long enough, we tend to **reject any evidence of the bamboozle**. We’re no longer interested in finding out the truth. The bamboozle has captured us. It’s simply too painful to acknowledge, even to ourselves, that we’ve been taken. Once you give a charlatan power over you, you almost never get it back. So the old bamboozles tend to persist as the new ones rise.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, **1995**, page 241
+
+https://old.reddit.com/r/Fauxmoi/comments/1qsk62j/matt_bernstein_pushes_back_on_the_idea_that/o2w4q5p/
+
+7 month Reddit account. no off-Reddit URL, no quotes from nonfiction book. Most upvoted popular comment on posting.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qsk62j/matt_bernstein_pushes_back_on_the_idea_that/o2w4w6a/
+
+https://old.reddit.com/r/Fauxmoi/comments/1qsk62j/matt_bernstein_pushes_back_on_the_idea_that/o2w5pp5/
+
+Corporate America, businessmen... your boss man, Donald Trump "The Apprentice" BOSS MAN - is politics since June 16, 2015.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qsk62j/matt_bernstein_pushes_back_on_the_idea_that/o2w54b1/
+
+Confronting the gullibility crisis.
+
+* [“The truth is, it’s getting harder to describe the extent to which a meaningful percentage of Americans have dissociated from reality,” Charlie Warzel wrote “I’m Running Out of Ways to Explain How Bad This Is.”](https://www.axios.com/2024/10/19/musk-ackman-election-misinformation) - October 19, 2024 - America’s gullibility crisis, Zachary Basu
+
+https://old.reddit.com/r/politics/comments/1qshl0o/minnesota_standoff_with_trump_administration/o2vkxec/
+
+https://old.reddit.com/r/politics/comments/1qshl0o/minnesota_standoff_with_trump_administration/o2vnudh/
+
+https://old.reddit.com/r/politics/comments/1qshl0o/minnesota_standoff_with_trump_administration/o2vl81s/
+
+https://old.reddit.com/r/politics/comments/1qshl0o/minnesota_standoff_with_trump_administration/o2vrj39/
+
+see the reply; "Reddit and media are pushing civil war talks"
+
+https://old.reddit.com/r/politics/comments/1qshl0o/minnesota_standoff_with_trump_administration/o2w5shr/
+
+https://old.reddit.com/r/politics/comments/1qsfgbg/pam_bondi_gives_chilling_warning_after_don_lemons/o2v48sn/
+
+https://old.reddit.com/r/politics/comments/1qsfgbg/pam_bondi_gives_chilling_warning_after_don_lemons/o2v5sh4/
+
+https://old.reddit.com/r/politics/comments/1qsfgbg/pam_bondi_gives_chilling_warning_after_don_lemons/o2varss/
+
+Leadership of hate, Reddit follows the leader of hate. Hate harder values.
