@@ -2086,3 +2086,8 @@ Trump is burning down goodness, as programmed by Surkov students. We need to res
 https://old.reddit.com/r/GuysBeingDudes/comments/1qs887o/real_dude_is_aware_of_a_mistake/o2tocki/
 
 1 month Reddit account.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qse2g7/boxer_ryan_garcia_walks_back_support_for_trump/o2v9yhx/
+
+Finnegans Wake.
+
