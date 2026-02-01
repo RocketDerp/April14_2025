@@ -309,3 +309,18 @@ https://old.reddit.com/r/videos/comments/1qstu0i/trump_audibly_shits_himself_on_
 
 Trump fandom on Reddit. Infinite Jest by David Foster Wallace. Endless Trump forever.
 
+https://old.reddit.com/r/videos/comments/1qstu0i/trump_audibly_shits_himself_on_tv_immediately/o2y3730/
+
+/r/Videos
+
+https://old.reddit.com/r/videos/comments/1qstu0i/trump_audibly_shits_himself_on_tv_immediately/o2xzyft/
+
+Left-right brain rot. Badness is prized if it is the other team, us vs. them. This is what Neil Postman was trying to describe about USA culture. People are so addicted to entertainment, they would pick situations for amusement above all else. That's what Surkov students defeated the nation with, this logic that something bad happening is funny content if it s the other team in a team sport mentality. Wrecking the entire world for amusement jokes.
+
+* “For in the end, he was trying to tell us what afflicted the people in 'Brave New World' was not that they were laughing instead of thinking, but that they did not know what they were laughing about and why they had stopped thinking.”
+― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. Year 1985
+
+https://old.reddit.com/r/videos/comments/1qstu0i/trump_audibly_shits_himself_on_tv_immediately/o2xzuhg/
+
+Reality TV shit nation. Fox News "Reality" TV fandom, Reality Twitter Reddit fandom. Shit-posting is considered on Reddit to be the most attractive content, shit-commenting, world wide enshtification.
+
