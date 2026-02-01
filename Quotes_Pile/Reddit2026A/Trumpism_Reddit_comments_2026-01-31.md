@@ -298,3 +298,10 @@ https://old.reddit.com/r/politics/comments/1qsfgbg/pam_bondi_gives_chilling_warn
 https://old.reddit.com/r/politics/comments/1qsfgbg/pam_bondi_gives_chilling_warning_after_don_lemons/o2varss/
 
 Leadership of hate, Reddit follows the leader of hate. Hate harder values.
+
+https://old.reddit.com/r/videos/comments/1qstu0i/trump_audibly_shits_himself_on_tv_immediately/o2y18tp/
+
+A reality described by Neil Postman in his 1985 book, "Amusing Ourselves To Death".
+
+Shit-posting became the leading information system activity, shit-commenting, an people seeking shit leadership. Enshitification nation. Fox News HDTV bullshit additions were one of the many huge warning signs since 1996, which is 11 years after Neil Postman published his book.
+
