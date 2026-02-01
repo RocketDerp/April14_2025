@@ -546,3 +546,19 @@ QAnon. SEE_ALSO https://www.Independent.co.UK/news/world/americas/us-election-20
 https://old.reddit.com/r/AdviceAnimals/comments/1qt1bkt/fox_guarding_the_henhouse/o301pmv/
 
 Pizzagate was fiction storytelling. USA society since year 2013 has abandoned nonfiction serious learning in favor of fiction storytelling content creators like Elon Musk (Twitter), Donald Trump (Truth Social). The media ecology understandings in the society by students and readers of Marshall McLuhan and Neil Postman essentially disappeared. Self-awareness to media addiction was left in the past and people are now raging fiction addicts. Fiction sells, so the measure of "good" is that it is popular and draws an audience. Nonfiction **highly relevant** learning from { Marshall McLuhan, Neil Postman, Joseph Campbell, Bill Moyers, Malala Yousafzai, Peter Pomerantsev, Dr. Bandy X. Lee } have been consistently avoided. 
+
+https://old.reddit.com/r/law/comments/1qt3wsk/trump_goes_scorched_earth_and_vows_to_sue_epstein/o3032in/
+
+Yes. it worked. There was no social media protest, no blackout on social media, no stooping of jokes and a "come to God" movement over the Mueller report and impeachments over Russia. People just keep going back to amusements and sports and sports games, video games, everything but staying focused on Putin and Russia. Now Canada is being openly threatened, Greenland, wrecking of NATO. But still, We The People will not stand up on social media in unity and turn to Dr. Bandy X Lee's book from October 3, 2017.
+
+NONFICTION BOOK QUOTE FOLLOWS:
+
+"the Russian Olympic runner who blew the whistle on Russia’s pervasive doping program, Yuliya Stepanova. Either DT is incomprehensibly naïve regarding Putin’s popularity at home — the 82 percent rating was fabricated — or he was swooning from the compliment when Putin called him “bright” (not a “genius,” as DT has bragged ever since)."
+
+"In addition, during the campaign, DT spoke of “fighting for peaceful regime-change” if elected. (America is not ruled by a regime.) He bloviated that he would “blow out of the water” the seven small Iranian boats whose sailors had harrassed and given the finger to our “beautiful destroyers.” He bragged that “Russia and I would get along really well.” He suggested that maybe “the Second Amendment people” might be able to stop Hillary; that his supporters should patrol voting sites to ensure he was being treated fairly, and that he would love to “hit and hit and hit \[his critics from the DNC\] until their heads spin and they’ll never recover.”     
+
+He insisted that he will “bomb the shit out of ISIS” and order our soldiers to kill their presumed families. He repeatedly goaded supporters to rough up hecklers at his speeches and pontificated that NFL players who refuse to stand for the national anthem should find another country. He quoted Mussolini’s “Better to live one day as a lion than a hundred years as a sheep,” and he expressed genuine bewilderment about why we build nuclear weapons if we don’t use them.   
+
+In the clinical assessment of such frightening characteristics, why would DT admire grotesque tyrants while never praising our own past presidents"
+
+― Bandy X Lee, The Dangerous Case of Donald Trump: 27 Psychiatrists and Mental Health Experts Assess a President. October 3, 2017. Page 12. https://bookreadfree.com/518684/12738168
