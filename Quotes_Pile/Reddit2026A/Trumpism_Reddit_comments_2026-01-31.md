@@ -231,3 +231,7 @@ https://old.reddit.com/r/whenthe/comments/1qsgnzr/it_feels_so_strange_this_is_th
 9 month Reddit account.
 
 Social media users (on Reddit social, Bluesky social) are not using social media systems to educate and do nonfiction cult deprogramming. SEE_ALSO https://GitHub.com/RocketDerp/April14_2025/blob/main/June19_2025/Social_Media_Did_Not_Stand_Up.md
+
+https://old.reddit.com/r/whenthe/comments/1qsgnzr/it_feels_so_strange_this_is_the_stuff_youd_hear/o2vrjeg/
+
+QAnon. Russian-promoted QAnon. See UK London news: https://www.Independent.co.UK/news/world/americas/us-election-2020/qanon-russia-conspiracy-theory-trump-2020-election-b1536946.html
