@@ -459,3 +459,11 @@ Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mdslr4j4ws
 https://old.reddit.com/r/whenthe/comments/1qswvcb/well_that_was_idiotic/o2ynjkv/
 
 Shit-commenting and shit-posting and abandoning all nonfiction in favor of commenting shit isn't crime. Nor is Trump going to the toilet a crime. But it sure is an attraction for Reddit fandom of shit content.
+
+https://old.reddit.com/r/circled/comments/1qsz9uw/a_week_ago_agents_like_these_massacred_an/o2z0ffq/
+
+1 month Reddit account.
+
+https://old.reddit.com/r/circled/comments/1qsz9uw/a_week_ago_agents_like_these_massacred_an/o2z2mf0/
+
+ICE fandom on Reddit is really into superficial and shallow concerns.
