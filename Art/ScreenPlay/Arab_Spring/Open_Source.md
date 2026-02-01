@@ -15,7 +15,7 @@ http://167.235.130.67 › monkee.ch › SickGear › commit
 https://raw.githubusercontent.com/videolan/vlc/mas...   
 GitHub   
 https://raw.githubusercontent.com › ...   
-... Rajaa Jalil <rajaa@hilltx.com>, 2013 # (المعتز) <sickdemonid@gmail.com>, 2014 # محيي الدين <tx99h4@hotmail.com>, 2014-2015 msgid "" msgstr "" "Project-Id ...
+... Rajaa Jalil <rajaa@hilltx.com>, 2013 # (المعتز) <sickdemonid@gmail.com>, 2014 # محيي الدين <tx99h4@hotmail.com>, 2014-2015 msgid "" msgstr "" "Project-Id ...   
 
 https://raw.githubusercontent.com/videolan/vlc/master/po/ar.po   
 
@@ -32,6 +32,7 @@ Turn Off the Lights Browser Extension - Languages
 turnoffthelights.com    
 https://www.turnoffthelights.com › browser › languages   
 Apr 1, 2024 — Rajaa Jalil (RaindropR). Ralitza Delcheva (ralka). Ramana Raj (ramana1980). Ramin (AZE_PLAYER). Rananga Suraweera (rananga). Rancher. Rashidka ...    
+https://www.turnoffthelights.com/browser/languages/   
 
 
 &nbsp;
