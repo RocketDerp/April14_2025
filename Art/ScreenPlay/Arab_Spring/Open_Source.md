@@ -24,4 +24,6 @@ I still use VLC in February 2026.
 
 &nbsp;
 
-Now if we, we the people of the world, humanity on Earth, could confront copyright of music... OPERA_A https://www.youtube.com/watch?v=LlsMPC2Hcsg 871,155 views December 5, 2019   
+Now if we, we the people of the world, humanity on Earth, could confront copyright of music... OPERA_A https://www.youtube.com/watch?v=LlsMPC2Hcsg 871,155 views December 5, 2019  Those are the memories that make us all a wealthy open source souls! Git commit man... love when I can.   
+
+
