@@ -142,3 +142,19 @@ Hate prizing. Teams of hate vs. hate. Hate for hate. Hate-based fandoms of Trump
 * February 28, 1954: "Most people can't stand up for their convictions, because the majority of people might not be doing it. See, everybody's not doing it, so it must be wrong. And since everybody is doing it, it must be right. So a sort of numerical interpretation of what's right. But I'm here to say to you this morning that some things are right and some things are wrong. Eternally so, absolutely so. **It's wrong to hate.** It always has been wrong and it always will be wrong. It's wrong in America, it's wrong in Germany, it's wrong in Russia, it's wrong in China. It was wrong in 2000 B.C., and it's wrong in 1954 A.D. It always has been wrong, and it always will be wrong." - Martin Luther King Jr.
 
 * "For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the **true becomes false and the false becomes true**. That's what hate does. You can't see right. **The symbol of objectivity** is lost." - Martin Luther King Jr.
+
+https://old.reddit.com/r/videos/comments/1qsgblb/091124_trump_makes_bizarre_claims_during_abc/o2vev10/
+
+https://old.reddit.com/r/videos/comments/1qsgblb/091124_trump_makes_bizarre_claims_during_abc/o2ve6v7/
+
+9 month Reddit account. Extreme low-effort question-asking social media "engagement" techniques.
+
+https://old.reddit.com/r/videos/comments/1qsgblb/091124_trump_makes_bizarre_claims_during_abc/o2ve0v8/
+
+<img width="1208" height="841" alt="image" src="https://github.com/user-attachments/assets/f8928e85-0a0d-4761-a131-93f5c677802f" />
+
+No, Trump is not the first. "bizarre" is Surkov governing, Surkovian Russian system of governing. Trump is using Kremlin information warfare methods. Trump is an actor, acting, his constant performances charm people into addiction to constant stimulation of his show... mockery and insulting. He is not the only one following the Surkov student screenplays. Elon Musk with chainsaw on stage, Musk doing Hitler salute, etc.
+
+* "what Putin will do next — that he’s unpredictable and thus dangerous. We’re rendered stunned, spun, and flummoxed by the Kremlin’s weaponization of absurdity and unreality.” - year 2014. September 9, 2014 https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mdqzqn6nt22i https://autistics.life/@RoundSparrow/115992438945197388 }
