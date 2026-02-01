@@ -653,3 +653,7 @@ https://old.reddit.com/r/Fauxmoi/comments/1qt79qi/sza_its_offensive_for_black_am
 https://old.reddit.com/r/Fauxmoi/comments/1qt79qi/sza_its_offensive_for_black_americans_to_listen/o30re6k/
 
 https://old.reddit.com/r/Fauxmoi/comments/1qt79qi/sza_its_offensive_for_black_americans_to_listen/o30s7zy/
+
+https://old.reddit.com/r/politics/comments/1qt4pk6/epstein_files_absolve_me_trump_claims/o308b7o/
+
+Despite the reply comments saying it works on his base... lies work on everyone. The entire society is drowning in fiction storytelling. The first Trump term was before ChatGPT and competing systems came on the market. Before Elon Musk purchased Twitter. Society needs to face up that USA needs to face the avoidance of nonfiction.
