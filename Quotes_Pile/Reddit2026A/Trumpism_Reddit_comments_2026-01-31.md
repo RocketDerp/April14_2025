@@ -600,3 +600,7 @@ https://old.reddit.com/r/stupidpeoplefacebook/comments/1qt32lr/grandpa_touched_m
 Elon Musk GrokAI an ChatGPT and Microsoft and Google, all billionaires have created this enviornment of unreality. Putin made anti-reality a core military focus since year 2013.
 
 * "what Putin will do next — that he’s unpredictable and thus dangerous. We’re rendered stunned, spun, and flummoxed by the Kremlin’s weaponization of absurdity and unreality.” - year 2014. September 9, 2014 https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/stupidpeoplefacebook/comments/1qt32lr/grandpa_touched_me/o2zt8c0/
+
+Billionaire playground of the Reddit minds. Artificial bullshit. Feeding the fiction addictions.
