@@ -192,3 +192,15 @@ Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mdr3iz6sm2
 https://old.reddit.com/r/Fauxmoi/comments/1qse2g7/boxer_ryan_garcia_walks_back_support_for_trump/o2uy54f/
 
 Trump language fandom. See reply comments too.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qse2g7/boxer_ryan_garcia_walks_back_support_for_trump/o2uvq5a/
+
+4 month
+
+https://old.reddit.com/r/politics/comments/1qsdvf2/fbi_ousts_its_top_agent_in_atlanta_for/o2urun4/
+
+https://old.reddit.com/r/politics/comments/1qsdvf2/fbi_ousts_its_top_agent_in_atlanta_for/o2utcy0/
+
+Reddit community is upvoting Twitter-length Tweet-thinking comments and avoiding quoting Dr. Bandy X Lee's organized book from October 3, 2017 about the mental health of leadership. Instead of addressing widespread cult behaviors with nonfiction teachings about cult deprogramming, people just keep making low-effort shit-commenting with spare time and free time.
+
+
