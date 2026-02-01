@@ -273,3 +273,9 @@ https://old.reddit.com/r/Fauxmoi/comments/1qsk62j/matt_bernstein_pushes_back_on_
 
 Corporate America, businessmen... your boss man, Donald Trump "The Apprentice" BOSS MAN - is politics since June 16, 2015.
 
+https://old.reddit.com/r/Fauxmoi/comments/1qsk62j/matt_bernstein_pushes_back_on_the_idea_that/o2w54b1/
+
+Confronting the gullibility crisis.
+
+* [“The truth is, it’s getting harder to describe the extent to which a meaningful percentage of Americans have dissociated from reality,” Charlie Warzel wrote “I’m Running Out of Ways to Explain How Bad This Is.”](https://www.axios.com/2024/10/19/musk-ackman-election-misinformation) - October 19, 2024 - America’s gullibility crisis, Zachary Basu
+
