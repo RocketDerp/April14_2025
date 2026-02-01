@@ -24,6 +24,20 @@ I still use VLC in February 2026.
 
 &nbsp;
 
+"RainDrop", "RainDropR", "RainDrop R"   
+
+<img width="2316" height="484" alt="image" src="https://github.com/user-attachments/assets/ceffbfe6-979c-40be-9a0d-b9695ca7c2b7" />
+
+Turn Off the Lights Browser Extension - Languages   
+turnoffthelights.com    
+https://www.turnoffthelights.com › browser › languages   
+Apr 1, 2024 — Rajaa Jalil (RaindropR). Ralitza Delcheva (ralka). Ramana Raj (ramana1980). Ramin (AZE_PLAYER). Rananga Suraweera (rananga). Rancher. Rashidka ...    
+
+
+&nbsp;
+
+&nbsp;
+
 Now if we, we the people of the world, humanity on Earth, could confront copyright of music... OPERA_A https://www.youtube.com/watch?v=LlsMPC2Hcsg 871,155 views December 5, 2019  Those are the memories that make us all a wealthy open source souls! Git commit man... love when I can.   
 
 
