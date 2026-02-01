@@ -611,3 +611,13 @@ Fandom of Trump is meme-washing, "LOL COW MILKING" Trump as a constant source of
 
 * “Today, reports of the day’s events are conveyed to the viewing public by way of alternate universes, The Fox News cable channel conveys its version of reality, while at the other end of the ideological spectrum MSNBC presents its version. They and their many counterparts on radio are more the result of an economic dynamic than a political one. Dispatching journalists into the field to gather information costs money; hiring a glib bloviator is relatively cheap, and inviting opinionated guests to vent on the air is entirely cost-free. It wouldn’t work if it weren’t popular, and audiences, it turns out, are endlessly absorbed by hearing amplified echoes of their own biases. It’s divisive and damaging to the healthy functioning of our political system, but it’s also indisputably inexpensive and, therefore, good business.”
 ― Ted Koppel. Lights Out: A Cyberattack, A Nation Unprepared, Surviving the Aftermath. October 27, 2015. Page 13.
+
+https://old.reddit.com/r/chaoticgood/comments/1qt5nh8/trump_fucking_audibly_shits_himself_on_tv/o30ei7b/
+
+Fandom of Trumpism.
+
+https://old.reddit.com/r/chaoticgood/comments/1qt5nh8/trump_fucking_audibly_shits_himself_on_tv/o30gb45/
+
+https://old.reddit.com/r/chaoticgood/comments/1qt5nh8/trump_fucking_audibly_shits_himself_on_tv/o30nl9y/
+
+2 month Reddit account. Treating Trump as world class entertainment, Super Bowl amusement. Fandom of Trump.
