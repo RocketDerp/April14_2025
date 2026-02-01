@@ -721,3 +721,7 @@ https://old.reddit.com/r/LeopardsAteMyFace/comments/1qtavgu/marjorie_taylor_gree
 
 https://old.reddit.com/r/Fauxmoi/comments/1qtb8y5/the_two_federal_immigration_agents_who_fired_on/o31jk1f/
 
+https://old.reddit.com/r/Fauxmoi/comments/1qtb8y5/the_two_federal_immigration_agents_who_fired_on/o31kc6l/
+
+https://old.reddit.com/r/Fauxmoi/comments/1qtb8y5/the_two_federal_immigration_agents_who_fired_on/o31l8dz/
+
