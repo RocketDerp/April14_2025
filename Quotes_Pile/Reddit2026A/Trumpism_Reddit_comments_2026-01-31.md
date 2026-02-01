@@ -487,3 +487,7 @@ I'm convinced Neil Postman was correct in year 1985 with his nonfiction book abo
 I think Reddit does not want to face up that "love thy neighbor", "love one another" is essential to democracy. Without love and compassion, you get the health care system that the USA has currently - you get manipulated and tricked by Rupert Murdoch using Fox News, you get manipulated and tricked by Putin with the Saint Petersburg Internet Research Agency.... People can not see that ANTI-NATO anti-LOVE anti-FRIENDSHIPS with Canada, Greenland, EU, etc is exactly what the USA has become.
 
 Fox News runs deeper than Kamala. University of Toronto's Marshall McLuhan and NYU's Neil Postman need to be front and center in society recognizing what the Apple iPhone and Apple iPad have done to the population... along with Fox News and Russia's IRA and ... can't forget Cambridge Analtyica. EVERY DAY, ALL DAY not just VOTING DAYS, we are drowning in fiction addictions.
+
+https://old.reddit.com/r/therewasanattempt/comments/1qsyyh0/to_appear_unfazed_by_the_presidents_nuclear/o2yxu50/
+
+What wrecked the USA: the shit-commenting, shit-posting, shit-seeking fandom of shit media. Day in day out. endlessly for over 10 years - Trump as entertainment. ANYTHING to avoid taking seriously the cult of shit on Fox News. Reddit audience could be making Jen Senko a household name with her film about Fox News and other entertainment media addictions. See: https://en.Wikipedia.org/wiki/The_Brainwashing_of_My_Dad - but instead, raging addiction to commenting about Trump runs society.
