@@ -21,3 +21,7 @@ https://raw.githubusercontent.com/videolan/vlc/master/po/ar.po
 
 
 I still use VLC in February 2026.
+
+&nbsp;
+
+Now if we, we the people of the world, humanity on Earth, could confront copyright of music... OPERA_A https://www.youtube.com/watch?v=LlsMPC2Hcsg 871,155 views December 5, 2019   
