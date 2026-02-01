@@ -534,3 +534,7 @@ Cult of "Daddy issues" and cult of mocking. Entire nation driven by machine-logi
 https://old.reddit.com/r/AdviceAnimals/comments/1qt1bkt/fox_guarding_the_henhouse/o2zjwrs/
 
 Trump fandom. Thrilled at mocking and mockery created by Putin's information warfare since year 2013.
+
+https://old.reddit.com/r/AdviceAnimals/comments/1qt1bkt/fox_guarding_the_henhouse/o2ztebc/
+
+Low-effort short-length Twitter-think. The reply comment is more correct. Fiction addiction to the QAnon monomyth patterns has not disappeared. Names change, but the cult of fiction and mockery still exists. Including Reddit comments that mock nonfiction study of information warfare. SEE_ALSO https://www.Independent.co.UK/news/world/americas/us-election-2020/qanon-russia-conspiracy-theory-trump-2020-election-b1536946.html
