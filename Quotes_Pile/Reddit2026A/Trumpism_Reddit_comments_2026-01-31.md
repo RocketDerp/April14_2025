@@ -562,3 +562,8 @@ He insisted that he will “bomb the shit out of ISIS” and order our soldiers 
 In the clinical assessment of such frightening characteristics, why would DT admire grotesque tyrants while never praising our own past presidents"
 
 ― Bandy X Lee, The Dangerous Case of Donald Trump: 27 Psychiatrists and Mental Health Experts Assess a President. October 3, 2017. Page 12. https://bookreadfree.com/518684/12738168
+
+https://old.reddit.com/r/law/comments/1qt3wsk/trump_goes_scorched_earth_and_vows_to_sue_epstein/o2zzyhh/
+
+Fandom of Trump and Epstein. More information audience, looking forward to more media content -  dirty details of Trump sex life. No desire to remove Trump and address the harm to the world that is ongoing. Popcorn thrills for media addicts to information about rich famous celebrities.
+
