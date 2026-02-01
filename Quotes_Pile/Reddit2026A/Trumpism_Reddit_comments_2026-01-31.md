@@ -567,3 +567,6 @@ https://old.reddit.com/r/law/comments/1qt3wsk/trump_goes_scorched_earth_and_vows
 
 Fandom of Trump and Epstein. More information audience, looking forward to more media content -  dirty details of Trump sex life. No desire to remove Trump and address the harm to the world that is ongoing. Popcorn thrills for media addicts to information about rich famous celebrities.
 
+https://old.reddit.com/r/law/comments/1qt3wsk/trump_goes_scorched_earth_and_vows_to_sue_epstein/o302e75/
+
+yes. If We The People wanted hi gone, we would address the very mechanism of Trump and Putin's power over USA. Social media. Stop being entertained and amused by Trump's stimulating content creation and media coverage and all turn to nonfiction books about cult deprogramming. The POPULATION of Trump fandom is the problem. Trump has charmed all media systems to bend to his black hole of Putin's Surkov governing systems.
