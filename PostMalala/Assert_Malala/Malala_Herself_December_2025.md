@@ -1,8 +1,8 @@
 # Malala Herself December 2025
 
-https://www.youtube.com/watch?v=gkdT7Rx_RTc
-HASHTAGS: #AssertMalala #DailyShow #FWakeDailyShow #FWakeMalalaA 
-HASHTAGS #MalalaYousafzai /\
+https://www.youtube.com/watch?v=gkdT7Rx_RTc   
+HASHTAGS: #AssertMalala #DailyShow #FWakeDailyShow #FWakeMalalaA  
+HASHTAGS #MalalaYousafzai /\  
 
 350,624 views  December 8, 2025 
 
