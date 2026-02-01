@@ -235,3 +235,13 @@ Social media users (on Reddit social, Bluesky social) are not using social media
 https://old.reddit.com/r/whenthe/comments/1qsgnzr/it_feels_so_strange_this_is_the_stuff_youd_hear/o2vrjeg/
 
 QAnon. Russian-promoted QAnon. See UK London news: https://www.Independent.co.UK/news/world/americas/us-election-2020/qanon-russia-conspiracy-theory-trump-2020-election-b1536946.html
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1qsgvpg/tried_to_make_his_family_support_trump_so_they/o2vg8vc/
+
+"real", "crazy"
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1qsgvpg/tried_to_make_his_family_support_trump_so_they/o2vfvzj/
+
+"absurd", "real"
+
+* "what Putin will do next — that he’s unpredictable and thus dangerous. We’re rendered stunned, spun, and flummoxed by the Kremlin’s weaponization of absurdity and unreality.” - year 2014. September 9, 2014 https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
