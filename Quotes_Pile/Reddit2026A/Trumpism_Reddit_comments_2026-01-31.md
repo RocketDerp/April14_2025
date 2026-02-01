@@ -455,3 +455,7 @@ Yes. Look at the forest for the trees. People ADMIRE Trump for his sexual domina
 Trump having power is a symptom of Russian information warfare since March 2013. Trump is a symptom of Reality TV actor acting entertainment addictions! Recency bias, fixation on white older men (Biden, Trump) in USA population.
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mdslr4j4ws2m https://autistics.life/@RoundSparrow/115995964088967524 }
+
+https://old.reddit.com/r/whenthe/comments/1qswvcb/well_that_was_idiotic/o2ynjkv/
+
+Shit-commenting and shit-posting and abandoning all nonfiction in favor of commenting shit isn't crime. Nor is Trump going to the toilet a crime. But it sure is an attraction for Reddit fandom of shit content.
