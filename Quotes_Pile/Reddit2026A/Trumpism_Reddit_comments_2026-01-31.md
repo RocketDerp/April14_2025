@@ -305,3 +305,7 @@ A reality described by Neil Postman in his 1985 book, "Amusing Ourselves To Deat
 
 Shit-posting became the leading information system activity, shit-commenting, an people seeking shit leadership. Enshitification nation. Fox News HDTV bullshit additions were one of the many huge warning signs since 1996, which is 11 years after Neil Postman published his book.
 
+https://old.reddit.com/r/videos/comments/1qstu0i/trump_audibly_shits_himself_on_tv_immediately/o2xzplz/
+
+Trump fandom on Reddit. Infinite Jest by David Foster Wallace. Endless Trump forever.
+
