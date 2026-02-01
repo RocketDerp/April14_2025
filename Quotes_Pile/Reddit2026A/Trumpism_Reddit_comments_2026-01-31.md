@@ -329,3 +329,14 @@ https://old.reddit.com/r/videos/comments/1qstu0i/trump_audibly_shits_himself_on_
 https://old.reddit.com/r/videos/comments/1qstu0i/trump_audibly_shits_himself_on_tv_immediately/o2y1l0q/
 
 Reddit is Trump Fandom who loves Trump leadership to follow every hour of every day on Reddit Trumpland.
+
+https://old.reddit.com/r/videos/comments/1qstu0i/trump_audibly_shits_himself_on_tv_immediately/o2y0pr4/
+
+Where is this magical 30 percent of people who are rescuing the USA from Putin's information warfare since march 2013. It is ONE HUNDRED PERCENT who will not face up that this has been about NATO all along, no matter how much people see wild and crazy NATO behaviors over Canada and Greenland... people still will not sober up from the endless mocking of Trump, joking of Trump to realize that David Foster Wallace was not joking when he killed himself over the USA society not getting that "Infinite Jest" joking is a real fucking human brain exploit.
+
+* “For in the end, he was trying to tell us what afflicted the people in 'Brave New World' was not that they were laughing instead of thinking, but that they did not know what they were laughing about and why they had stopped thinking.”
+― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. Year 1985
+
+This **magical 30 percent of the population** is laughing all day and night at Trump antics. Media addition rules the nation. Russia won! Surkov students won.
+
+* From September 9, 2014 - 11 years 4 months and some weeks ago, which is **more than a decade** - we could have kept repeating it and defeated Putin's takeover of USA hearts and minds: https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ "Russia and the Menace of Unreality: How Vladimir Putin is revolutionizing information warfare. By Peter Pomerantsev. At the NATO summit in Wales last week, General Philip Breedlove, the military alliance’s top commander, made a bold declaration. Russia, he said, is waging “the **most amazing information warfare blitzkrieg we have ever seen in the history of information warfare.**” It was something of an underestimation. The new Russia doesn’t just deal in the petty disinformation, forgeries, lies, leaks, and cyber-sabotage usually associated with information warfare. It reinvents reality, creating mass hallucinations that then translate into political action."
