@@ -9,3 +9,5 @@ We are teaching and educating children to follow Putin and Trump leadership in U
 https://old.reddit.com/r/okbuddycinephile/comments/1qt4o9i/movies_that_are_definitely_based_on_real_life/o308e3x/
 
 https://old.reddit.com/r/okbuddycinephile/comments/1qt4o9i/movies_that_are_definitely_based_on_real_life/o307h62/
+
+https://old.reddit.com/r/LivestreamFail/comments/1qt3dpm/tectone_confirms_he_lost_his_court_case_spoiler/o303mm1/
