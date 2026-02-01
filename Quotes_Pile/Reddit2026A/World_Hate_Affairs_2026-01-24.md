@@ -431,3 +431,16 @@ CAMPBELL: We need myths that will identify the individual not with his local gro
 MOYERS: There is something about that on the Great Seal of the United States.
 
 CAMPBELL: That’s what the **Great Seal** is all about.
+
+https://old.reddit.com/r/GetNoted/comments/1qszrki/it_turns_out_that_epsteins_list_isnt_limited_to/o2z5wja/
+
+3 day Reddit account. Top-upvoted popular comment.
+
+https://old.reddit.com/r/GetNoted/comments/1qszrki/it_turns_out_that_epsteins_list_isnt_limited_to/o2z987e/
+
+https://old.reddit.com/r/GetNoted/comments/1qszrki/it_turns_out_that_epsteins_list_isnt_limited_to/o2z6a7z/
+
+Hence why I constantly emphasize the social media comment creators avoidance of giving girls and women voice, promoting Malala as fundamental education and teaching change. Instead, wealthy men are again the center of attention as they are all day every day. The Reddit fandom of Elon Musk Twitter screen shots, Elon Musk rich man content.
+
+* “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.”
+― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. October 8, 2013.
