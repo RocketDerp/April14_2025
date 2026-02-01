@@ -332,6 +332,10 @@ Reddit is Trump Fandom who loves Trump leadership to follow every hour of every 
 
 https://old.reddit.com/r/videos/comments/1qstu0i/trump_audibly_shits_himself_on_tv_immediately/o2y0pr4/
 
+<img width="1403" height="1028" alt="image" src="https://github.com/user-attachments/assets/7adbed0c-6d87-49c7-8da3-7dae9f13d4da" />
+
+The reply comment about 70% of Americans...
+
 Where is this magical 30 percent of people who are rescuing the USA from Putin's information warfare since march 2013. It is ONE HUNDRED PERCENT who will not face up that this has been about NATO all along, no matter how much people see wild and crazy NATO behaviors over Canada and Greenland... people still will not sober up from the endless mocking of Trump, joking of Trump to realize that David Foster Wallace was not joking when he killed himself over the USA society not getting that "Infinite Jest" joking is a real fucking human brain exploit.
 
 * “For in the end, he was trying to tell us what afflicted the people in 'Brave New World' was not that they were laughing instead of thinking, but that they did not know what they were laughing about and why they had stopped thinking.”
@@ -349,3 +353,22 @@ What happened is that before year 2007, every person in their far at the traffic
 
 * “But it is much later in the game now, and ignorance of the score is inexcusable. To be **unaware that a technology** \[Reddit / Bluesky\] comes equipped with a program for social change, to maintain that technology is neutral, to make the assumption that technology is always a friend to culture is, at this late hour, stupidity plain and simple.”
 ― Neil Postman, Amusing Ourselves to Death: [Public Discourse in the Age of Show Business, year 1985. page 157.](https://books.google.com/books?id=zGkhbPEjkRoC&pg=RA1-PA157&dq=%22equipped+with+a+program+for+social+change,+to+maintain+that+technology+is+neutral,+to+make+the+assumption+that+technology+is+always+a+friend+to+culture+is%22&hl=en&newbks=1&newbks_redir=1&sa=X)
+
+https://old.reddit.com/r/videos/comments/1qstu0i/trump_audibly_shits_himself_on_tv_immediately/o2y0zmo/
+
+Reddit MAGA fandom. Fandom of diapers on Reddit social. 
+
+https://old.reddit.com/r/videos/comments/1qstu0i/trump_audibly_shits_himself_on_tv_immediately/o2y1ntt/
+
+Democracy is every person every day, day and night. Why are social media users not quoting Dr. Bandy X. Lee day and night until Trump is removed? Why is it that nonfiction books about mental health of Trump are ignored by social media users? Commenting over and over with free time and spare time and completely avoiding nonfiction adult education about cult deprogramming and mob mentality.
+
+* “The human brain can protect us from seeing and feeling what it believes may be too uncomfortable for us to tolerate. It can lead us to deny, defend, minimize, or rationalize away something that doesn’t fit our worldview.”
+― Dr. Bandy X Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. Published **October 3, 2017**. Page 273. Chapter "TRUMP'S DADDY ISSUES"](https://books.google.com/books?id=g0c4DwAAQBAJ&pg=PA273&dq=%E2%80%9CThe+human+brain+can+protect+us+from+seeing+and+feeling+what+it+believes+may+be+too+uncomfortable%22&hl=en&newbks=1&newbks_redir=1&sa=X)
+
+Trump is an entertainer, an actor acting, and people are covering for their favorite entertainment source. As Reddit demonstrates day in and day out, people hang on every word, Tweet, photograph about Donald J. Trump. The king of high-speed information content creation, king of Pop.
+
+BEEP! Another notification of Trump content on /r/All of Reddit breaking news fandom platform.
+
+* Published January 2015, before Trump started run for office in June 2015: https://www.Politico.com/magazine/story/2015/01/putin-russia-tv-113960/ At one end of the table sat one of the country’s most famous political TV presenters. He was small and spoke fast, with a smoky voice: “We all know there will be no real politics,” he said. “But we still have to give our viewers the sense something is happening. They need to be kept entertained.” “So what should we play with?” he asked. “Shall we attack oligarchs? Who’s the enemy this week? **Politics has got to feel like a movie!**”
+
+Television, TV, /r/Video subreddit, "R. Video". Pop culture. Reddit popularity.
