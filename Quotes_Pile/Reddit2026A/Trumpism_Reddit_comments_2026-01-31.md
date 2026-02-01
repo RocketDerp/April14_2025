@@ -445,3 +445,13 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1qsxbdr/the_world_is_laughi
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1qsxbdr/the_world_is_laughing_at_america/o2z0nvb/
 
 People on social media will not stand up and repeat nonfiction from Dr. Bandy X Lee and be serious! Stop REACTING to MAGA and White House and Trump and follow Dr. Lee's leadership of education and teaching. 
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qsxbdr/the_world_is_laughing_at_america/o2z2v64/
+
+<img width="1030" height="712" alt="image" src="https://github.com/user-attachments/assets/d1d4e11c-8b29-4a46-ad96-28a59c532a6a" />
+
+Yes. Look at the forest for the trees. People ADMIRE Trump for his sexual domination of girls and women. People ADMIRE Trump for his health care harm. People ADMIRE Trump for his pandemic pro-Russia stance. See: https://www.bbc.com/news/world-us-canada-45294192 - the problem is the CULT BEHAVIOR to rich white men. We The People will not turn to authentic good leaders like Jen Senko, Dr. Bandy X Lee, or Malala. Instead, people keep commenting over and over and over and over with spare time and free time about Trump! Trump is an irresistible charm that USA people can not stop fixating on.
+
+Trump having power is a symptom of Russian information warfare since March 2013. Trump is a symptom of Reality TV actor acting entertainment addictions! Recency bias, fixation on white older men (Biden, Trump) in USA population.
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mdslr4j4ws2m https://autistics.life/@RoundSparrow/115995964088967524 }
