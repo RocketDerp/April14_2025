@@ -324,3 +324,8 @@ https://old.reddit.com/r/videos/comments/1qstu0i/trump_audibly_shits_himself_on_
 
 Reality TV shit nation. Fox News "Reality" TV fandom, Reality Twitter Reddit fandom. Shit-posting is considered on Reddit to be the most attractive content, shit-commenting, world wide enshtification.
 
+https://old.reddit.com/r/videos/comments/1qstu0i/trump_audibly_shits_himself_on_tv_immediately/o2y0wsv/
+
+https://old.reddit.com/r/videos/comments/1qstu0i/trump_audibly_shits_himself_on_tv_immediately/o2y1l0q/
+
+Reddit is Trump Fandom who loves Trump leadership to follow every hour of every day on Reddit Trumpland.
