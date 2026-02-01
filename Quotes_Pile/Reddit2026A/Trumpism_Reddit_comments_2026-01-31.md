@@ -203,4 +203,11 @@ https://old.reddit.com/r/politics/comments/1qsdvf2/fbi_ousts_its_top_agent_in_at
 
 Reddit community is upvoting Twitter-length Tweet-thinking comments and avoiding quoting Dr. Bandy X Lee's organized book from October 3, 2017 about the mental health of leadership. Instead of addressing widespread cult behaviors with nonfiction teachings about cult deprogramming, people just keep making low-effort shit-commenting with spare time and free time.
 
+https://old.reddit.com/r/politics/comments/1qsdvf2/fbi_ousts_its_top_agent_in_atlanta_for/o2w1qo8/
+
+<img width="1117" height="389" alt="image" src="https://github.com/user-attachments/assets/a77b7456-1632-4bdf-82d4-16772a30b226" />
+
+Exactly. **Dr. Bandy X. Lee stuck her neck out in year 2017** and hasn't stopped since. But Reddit fandom of mockery Trump and hate-watching Trump won't stop their compulsive fandom behaviors. People need to be sticking their neck out and teaching nonfiction serious topics, such as Jen Senko's 2015 / year 2016 film. https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad 
+
+I suggest every 47 hours a Pow Wow on every social media platform, organized education and teaching of top priority topics. "Brain Rot Society 47", EVERY 47 HOURS. https://GitHub.com/GreatSealUSA/Brainrot_Society_47
 
