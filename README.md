@@ -29,3 +29,11 @@ Thank you. [Love to all](Quotes_Pile/Specific/MLKjr_revolution_of_values.md).
 
 “If they can get you asking the wrong questions, they don't have to worry about answers.”
 ― Thomas Pynchon, Gravity’s Rainbow. February 28, 1973
+
+&nbsp;
+
+# Social Media   
+
+https://Bsky.App/profile/roundsparrow.bsky.social/post/3mdr7rpyw4s2p  
+https://Autistics.Life/tags/28February1954   
+https://BeeHaw.org/u/BitOneZero   
