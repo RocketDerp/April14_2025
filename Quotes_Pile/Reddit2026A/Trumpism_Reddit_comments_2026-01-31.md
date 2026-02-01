@@ -538,3 +538,11 @@ Trump fandom. Thrilled at mocking and mockery created by Putin's information war
 https://old.reddit.com/r/AdviceAnimals/comments/1qt1bkt/fox_guarding_the_henhouse/o2ztebc/
 
 Low-effort short-length Twitter-think. The reply comment is more correct. Fiction addiction to the QAnon monomyth patterns has not disappeared. Names change, but the cult of fiction and mockery still exists. Including Reddit comments that mock nonfiction study of information warfare. SEE_ALSO https://www.Independent.co.UK/news/world/americas/us-election-2020/qanon-russia-conspiracy-theory-trump-2020-election-b1536946.html
+
+https://old.reddit.com/r/AdviceAnimals/comments/1qt1bkt/fox_guarding_the_henhouse/o2zxxbt/
+
+QAnon. SEE_ALSO https://www.Independent.co.UK/news/world/americas/us-election-2020/qanon-russia-conspiracy-theory-trump-2020-election-b1536946.html - but people ignore all the anti-NATO nonsense, pro-Russia nonsense going on with the White House and connecting this to Russian mental manipulation.
+
+https://old.reddit.com/r/AdviceAnimals/comments/1qt1bkt/fox_guarding_the_henhouse/o301pmv/
+
+Pizzagate was fiction storytelling. USA society since year 2013 has abandoned nonfiction serious learning in favor of fiction storytelling content creators like Elon Musk (Twitter), Donald Trump (Truth Social). The media ecology understandings in the society by students and readers of Marshall McLuhan and Neil Postman essentially disappeared. Self-awareness to media addiction was left in the past and people are now raging fiction addicts. Fiction sells, so the measure of "good" is that it is popular and draws an audience. Nonfiction **highly relevant** learning from { Marshall McLuhan, Neil Postman, Joseph Campbell, Bill Moyers, Malala Yousafzai, Peter Pomerantsev, Dr. Bandy X. Lee } have been consistently avoided. 
