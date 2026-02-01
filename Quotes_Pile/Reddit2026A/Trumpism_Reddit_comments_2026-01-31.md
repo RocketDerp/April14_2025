@@ -157,7 +157,7 @@ No, Trump is not the first. "bizarre" is Surkov governing, Surkovian Russian sys
 
 * "what Putin will do next — that he’s unpredictable and thus dangerous. We’re rendered stunned, spun, and flummoxed by the Kremlin’s weaponization of absurdity and unreality.” - year 2014. September 9, 2014 https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
 
-Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mdqzqn6nt22i https://autistics.life/@RoundSparrow/115992438945197388 }
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mdqzqn6nt22i https://autistics.life/@RoundSparrow/115992438945197388 https://MidWest.Social/post/42735848/22477647 }
 
 https://old.reddit.com/r/videos/comments/1qsgblb/091124_trump_makes_bizarre_claims_during_abc/o2vitav/
 
