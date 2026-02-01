@@ -188,3 +188,7 @@ Vice President Kamala Harris did not use Professor Neil Postman's 1985 nonfictio
 * March 27, 2024: "Our politics are unhinged. He saw it coming 40 years ago.. Who got it right? 'It' being: everything. Our current mess. The low information, disinformation, gullibility and hysteria that are breaking out like measles during Election 2024." https://www.NorthHersey.com/story/opinion/columnists/2024/03/27/us-politics-2024-predicted-media-expert-neil-postman/73022583007/
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mdr3iz6sm22d https://autistics.life/@RoundSparrow/115992561210501678 }
+
+https://old.reddit.com/r/Fauxmoi/comments/1qse2g7/boxer_ryan_garcia_walks_back_support_for_trump/o2uy54f/
+
+Trump language fandom. See reply comments too.
