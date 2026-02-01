@@ -584,3 +584,13 @@ Social post { https://autistics.life/@RoundSparrow/115996799882515884 https://bs
 https://old.reddit.com/r/videos/comments/1qt301o/trump_has_been_profoundly_incontinent_himself/o2ztpff/
 
 This is the fandom to Epstein shit, Trump shit. People who never get enough of intimate details about celebrity god. Instead of using the free time and spare time to promote and quote Dr. Bandy X Lee, Reddit fandom prizes every dirty detail and clings to Trump as a source of shit-posting shit-commenting amusements.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qt2im4/pressure_crushes_ice/o2zqww0/
+
+6 month Reddit account.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qt2im4/pressure_crushes_ice/o2zt6k6/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qt2im4/pressure_crushes_ice/o2zudsd/
+
+ANSWER: Because Russian won a hearts and minds information war against the USA to prize hate leaders. People are glued at the live coverage of disaster unfolding. People are AVOIDING: nonfiction learning about Russian information warfare and nonfiction about mental health. Dr. Bandy X Lee's book since October 3, 2017 has been largely ignored - when it is exactly the public education and teaching that social media users should be doing.
