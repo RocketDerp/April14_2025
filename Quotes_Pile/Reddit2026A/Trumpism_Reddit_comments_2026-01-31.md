@@ -580,3 +580,7 @@ Yes. Trump is jut ONE SINGLE PERSON. An entire nation is on smartphones commenti
 WE THE PEOPLE need to RESCUE our own nation from Fox News cult, Newsmax cult, Elon Musk Twitter cult, the word is out that cult followings are the means to power and wealth!!! We can't all be media cultists to horrible leaders as a source of "LOL COW MILKING". Neil Postman's books are not optional learning for every person over age 12 in USA. Marshall McLuhan teaching revival is essential!
 
 Social post { https://autistics.life/@RoundSparrow/115996799882515884 https://bsky.app/profile/roundsparrow.bsky.social/post/3mdsxp7dnfk2f }
+
+https://old.reddit.com/r/videos/comments/1qt301o/trump_has_been_profoundly_incontinent_himself/o2ztpff/
+
+This is the fandom to Epstein shit, Trump shit. People who never get enough of intimate details about celebrity god. Instead of using the free time and spare time to promote and quote Dr. Bandy X Lee, Reddit fandom prizes every dirty detail and clings to Trump as a source of shit-posting shit-commenting amusements.
