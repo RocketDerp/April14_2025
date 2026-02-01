@@ -530,3 +530,7 @@ https://old.reddit.com/r/AdviceAnimals/comments/1qt1bkt/fox_guarding_the_henhous
 Cult of "Daddy issues" and cult of mocking. Entire nation driven by machine-logic messaging systems.
 
 * [“The truth is, it’s getting harder to describe the extent to which a meaningful percentage of Americans have dissociated from reality,” Charlie Warzel wrote “I’m Running Out of Ways to Explain How Bad This Is.”](https://www.axios.com/2024/10/19/musk-ackman-election-misinformation) - October 19, 2024 - America’s gullibility crisis, Zachary Basu
+
+https://old.reddit.com/r/AdviceAnimals/comments/1qt1bkt/fox_guarding_the_henhouse/o2zjwrs/
+
+Trump fandom. Thrilled at mocking and mockery created by Putin's information warfare since year 2013.
