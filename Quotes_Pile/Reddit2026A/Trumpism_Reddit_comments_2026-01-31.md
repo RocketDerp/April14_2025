@@ -377,3 +377,12 @@ Television, TV, /r/Video subreddit, "R. Video". Pop culture. Reddit popularity.
 https://old.reddit.com/r/videos/comments/1qstu0i/trump_audibly_shits_himself_on_tv_immediately/o2y02io/
 
 6 day Reddit account. 
+
+https://old.reddit.com/r/oregon/comments/1qsqb5n/today_ice_tear_gassed_families_and_community/o2xfxwb/
+
+https://old.reddit.com/r/oregon/comments/1qsqb5n/today_ice_tear_gassed_families_and_community/o2xhzeg/
+
+That's why I keep an eye on Malala as a global topic (Malala is trying to help girls in every nation, she went to Atlanta to even help USA girls). Little girls being tear gassed and being shot on school bus in Pakistan. People are raised to be super competitive about education and parenting and don't seem to be concerned about other people's children, except to put Taliban in charge as some kind of competition to harm others.
+
+* “We felt like the Taliban saw us as like little dolls to control, telling us what to do and how to dress. I thought if God wanted us to be like that He would not have made us all different.” ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. October 8, 2013
+
