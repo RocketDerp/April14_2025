@@ -570,3 +570,13 @@ Fandom of Trump and Epstein. More information audience, looking forward to more 
 https://old.reddit.com/r/law/comments/1qt3wsk/trump_goes_scorched_earth_and_vows_to_sue_epstein/o302e75/
 
 yes. If We The People wanted hi gone, we would address the very mechanism of Trump and Putin's power over USA. Social media. Stop being entertained and amused by Trump's stimulating content creation and media coverage and all turn to nonfiction books about cult deprogramming. The POPULATION of Trump fandom is the problem. Trump has charmed all media systems to bend to his black hole of Putin's Surkov governing systems.
+
+https://old.reddit.com/r/law/comments/1qt3wsk/trump_goes_scorched_earth_and_vows_to_sue_epstein/o303ag5/
+
+<img width="1167" height="734" alt="image" src="https://github.com/user-attachments/assets/f8771659-dd2d-4f53-8426-eccfda00143a" />
+
+Yes. Trump is jut ONE SINGLE PERSON. An entire nation is on smartphones commenting and ReTweeting about garbage information. We are all Fox News trash addicts, Reality TV "The Apprentice". The problem is extremely deep and serious. THIS IS NOT TRUMP'S FIRST TERM IN OFFICE!!! Dr. Bandy X Lee's nonfiction book has been published since October 3, 2017 and available at any university library or public library! But garbage junk commenting addiction has taken over hearts and minds, Surkov won since March 2013.
+
+WE THE PEOPLE need to RESCUE our own nation from Fox News cult, Newsmax cult, Elon Musk Twitter cult, the word is out that cult followings are the means to power and wealth!!! We can't all be media cultists to horrible leaders as a source of "LOL COW MILKING". Neil Postman's books are not optional learning for every person over age 12 in USA. Marshall McLuhan teaching revival is essential!
+
+Social post { https://autistics.life/@RoundSparrow/115996799882515884 https://bsky.app/profile/roundsparrow.bsky.social/post/3mdsxp7dnfk2f }
