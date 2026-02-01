@@ -25,7 +25,7 @@ Thank you. [Love to all](Quotes_Pile/Specific/MLKjr_revolution_of_values.md).
 
 &nbsp;
 
-“One day, when it’s safe, when there’s no personal downside to calling a thing what it is, when it’s too late to hold anyone accountable, everyone will have always been against this.” — [عمر العقاد. Omar El Akkad](https://en.wikipedia.org/wiki/Omar_El_Akkad) who was born in Egypt, grew up in Qatar, moved to Canada as a teenager (age 16) for high school in Montreal... and now lives in the United States of America. Portland, Oregon.
+“One day, when it’s safe, when there’s no personal downside to calling a thing what it is, when it’s too late to hold anyone accountable, everyone will have always been against this.” — [عمر العقاد. Omar El Akkad](https://en.wikipedia.org/wiki/Omar_El_Akkad) who was born in Cairo Egypt, grew up in Qatar, moved to Canada as a teenager (age 16) for high school in Montreal... and now lives in the United States of America. Portland, Oregon.
 
 “If they can get you asking the wrong questions, they don't have to worry about answers.”
 ― Thomas Pynchon, Gravity’s Rainbow. February 28, 1973
