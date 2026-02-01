@@ -496,4 +496,9 @@ https://old.reddit.com/r/Music/comments/1qsyp2z/lady_gaga_pauses_tokyo_concert_t
 
 Fairy tale fiction outsells nonfiction. Russia has been manipulating Japanese population too (including the people who produce the news).
 
-* April 5, 2025 — "Russia is waging an information war against Japan and Canada"; "Russia intensifies its information war against Japan and Canada, using propaganda and disinformation to manipulate public opinion" https://odessa-journal.com/russia-is-waging-an-information-war-against-japan-and-canada#google_vignette
+* April 5, 2025 — "Russia is waging an information war against Japan and Canada"; "Russia intensifies its information war against Japan and Canada, using propaganda and disinformation to manipulate public opinion" https://odessa-journal.com/russia-is-waging-an-information-war-against-japan-and-canada
+
+https://old.reddit.com/r/Music/comments/1qsyp2z/lady_gaga_pauses_tokyo_concert_to_condemn_actions/o2zp2sl/
+
+https://old.reddit.com/r/Music/comments/1qsyp2z/lady_gaga_pauses_tokyo_concert_to_condemn_actions/o2zakly/
+
