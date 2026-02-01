@@ -645,3 +645,11 @@ https://old.reddit.com/r/mapporncirclejerk/comments/1qt56z0/map_of_countries_who
 https://old.reddit.com/r/Fauxmoi/comments/1qt79qi/sza_its_offensive_for_black_americans_to_listen/o30py7g/
 
 6 month Reddit account. Top upvoted popular comment.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qt79qi/sza_its_offensive_for_black_americans_to_listen/o30r7xf/
+
+https://old.reddit.com/r/Fauxmoi/comments/1qt79qi/sza_its_offensive_for_black_americans_to_listen/o30r9r9/
+
+https://old.reddit.com/r/Fauxmoi/comments/1qt79qi/sza_its_offensive_for_black_americans_to_listen/o30re6k/
+
+https://old.reddit.com/r/Fauxmoi/comments/1qt79qi/sza_its_offensive_for_black_americans_to_listen/o30s7zy/
