@@ -262,3 +262,7 @@ https://old.reddit.com/r/LeopardsAteMyFace/comments/1qsgvpg/tried_to_make_his_fa
 * [“The truth is, it’s getting harder to describe the extent to which a meaningful percentage of Americans have dissociated from reality,” Charlie Warzel wrote “I’m Running Out of Ways to Explain How Bad This Is.”](https://www.axios.com/2024/10/19/musk-ackman-election-misinformation) - October 19, 2024 - America’s gullibility crisis, Zachary Basu
 
 * Second term Project 2025 rose from building on the first January 2017 term in office. “One of the saddest lessons of history is this: If we’ve been bamboozled long enough, we tend to **reject any evidence of the bamboozle**. We’re no longer interested in finding out the truth. The bamboozle has captured us. It’s simply too painful to acknowledge, even to ourselves, that we’ve been taken. Once you give a charlatan power over you, you almost never get it back. So the old bamboozles tend to persist as the new ones rise.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, **1995**, page 241
+
+https://old.reddit.com/r/Fauxmoi/comments/1qsk62j/matt_bernstein_pushes_back_on_the_idea_that/o2w4q5p/
+
+7 month Reddit account. no off-Reddit URL, no quotes from nonfiction book. Most upvoted popular comment on posting.
