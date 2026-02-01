@@ -524,3 +524,9 @@ Celebration of Trump leadership. That Trump is leading the USA into more gun wor
 https://old.reddit.com/r/news/comments/1qt028y/leftist_and_liberal_gun_groups_are_seeing_a_rush/o2zhdvn/
 
 11 month Reddit account.
+
+https://old.reddit.com/r/AdviceAnimals/comments/1qt1bkt/fox_guarding_the_henhouse/o2zgrno/
+
+Cult of "Daddy issues" and cult of mocking. Entire nation driven by machine-logic messaging systems.
+
+* [“The truth is, it’s getting harder to describe the extent to which a meaningful percentage of Americans have dissociated from reality,” Charlie Warzel wrote “I’m Running Out of Ways to Explain How Bad This Is.”](https://www.axios.com/2024/10/19/musk-ackman-election-misinformation) - October 19, 2024 - America’s gullibility crisis, Zachary Basu
