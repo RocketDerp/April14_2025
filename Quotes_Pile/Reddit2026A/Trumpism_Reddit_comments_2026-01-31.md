@@ -386,3 +386,6 @@ That's why I keep an eye on Malala as a global topic (Malala is trying to help g
 
 * “We felt like the Taliban saw us as like little dolls to control, telling us what to do and how to dress. I thought if God wanted us to be like that He would not have made us all different.” ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. October 8, 2013
 
+https://old.reddit.com/r/oregon/comments/1qsqb5n/today_ice_tear_gassed_families_and_community/o2xepmw/
+
+The brain rot is visible every hour of every day on how people upvote on Reddit media. We The People are the problem. Nonfiction from Dr. Bandy X Lee should be the center of attention. Fox News cult deprogramming of fiction media via Jen Senko should be build up more and more.
