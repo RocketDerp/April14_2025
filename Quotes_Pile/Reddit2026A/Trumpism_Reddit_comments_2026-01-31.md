@@ -176,3 +176,11 @@ Shit-commenting Reddit user, Fandom of Trump, want more television content. Redd
 Why isn't Reddit community asserting important topics? Why isn't Reddit front page plastered with quotes from GenX woman Dr. Bandy X Lee who is leading in educating the every-person (We The People) public about mental health issues of MAGA and Trump? Because it isn't entertainment shit-commenting.
 
 * “In Donald Trump, we have a frightening Venn diagram consisting of three circles: the first is extreme present hedonism; the second, narcissism; and the third, **bullying behavior.** These three circles overlap in the middle to create an impulsive, immature, incompetent person who, when in the position of ultimate power, easily slides into the role of tyrant, complete with family members sitting at his proverbial “ruling table.” Like a fledgling dictator, he plants psychological seeds of treachery in **sections of our population that reinforce already negative attitudes**.” ― Bandy X Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. October 3, 2017. Page 44.](https://books.google.com/books?id=g0c4DwAAQBAJ&pg=PA44&dq=%22immature,+incompetent+person+who,+when+in+the+position+of+ultimate+power,+easily+slides+into+the+role+of+tyrant%22&hl=en&newbks=1&newbks_redir=1&sa=X)
+
+https://old.reddit.com/r/videos/comments/1qsgblb/091124_trump_makes_bizarre_claims_during_abc/o2vno17/
+
+Vice President Kamala Harris did not use Professor Neil Postman's 1985 nonfiction book to take on the cult of Rupert Murdoch. The **media cult** population of hundreds of millions of people to Fox News screen-shots / video clips on Reddit and those who tune into Fox News directly. https://Progressive.org/op-eds/weve-always-known-fox-news-isnt-news-whitney-230309/ Comedy news, entertainment news, has wrecked the USA. Amusement news, Fox News.
+
+* September 10, 2025: https://Time.com/7313999/neil-postman-trump-prediction/
+
+* March 27, 2024: "Our politics are unhinged. He saw it coming 40 years ago.. Who got it right? 'It' being: everything. Our current mess. The low information, disinformation, gullibility and hysteria that are breaking out like measles during Election 2024." https://www.NorthHersey.com/story/opinion/columnists/2024/03/27/us-politics-2024-predicted-media-expert-neil-postman/73022583007/
