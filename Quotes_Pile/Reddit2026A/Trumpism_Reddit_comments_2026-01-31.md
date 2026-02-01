@@ -467,3 +467,11 @@ https://old.reddit.com/r/circled/comments/1qsz9uw/a_week_ago_agents_like_these_m
 https://old.reddit.com/r/circled/comments/1qsz9uw/a_week_ago_agents_like_these_massacred_an/o2z2mf0/
 
 ICE fandom on Reddit is really into superficial and shallow concerns.
+
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1qsuqkr/kamala_told_us_this_would_happen/o2yfcyx/
+
+Russia started winning hearts and minds to self-harm the USA since March 2013. Trump didn't announce his President run until June 16, 2015. The Ukraine war started February 20, 2014.
+
+People really need to look at the timeline of this. Published January 2015, before Trump started run for office in June 2015: 
+
+* https://www.Politico.com/magazine/story/2015/01/putin-russia-tv-113960/ At one end of the table sat one of the country’s most famous political TV presenters. He was small and spoke fast, with a smoky voice: “We all know there will be no real politics,” he said. “But we still have to give our viewers the sense something is happening. They need to be kept entertained.” “So what should we play with?” he asked. “Shall we attack oligarchs? Who’s the enemy this week? **Politics has got to feel like a movie!**”
