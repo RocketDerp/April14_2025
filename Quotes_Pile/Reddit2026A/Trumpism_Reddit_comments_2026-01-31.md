@@ -389,3 +389,15 @@ That's why I keep an eye on Malala as a global topic (Malala is trying to help g
 https://old.reddit.com/r/oregon/comments/1qsqb5n/today_ice_tear_gassed_families_and_community/o2xepmw/
 
 The brain rot is visible every hour of every day on how people upvote on Reddit media. We The People are the problem. Nonfiction from Dr. Bandy X Lee should be the center of attention. Fox News cult deprogramming of fiction media via Jen Senko should be build up more and more.
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1qss3wf/please_i_must_know/o2xssc0/
+
+1 month Reddit account. Top voted popular comment.
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1qss3wf/please_i_must_know/o2xsdvi/
+
+Fiction addiction. "Peter" from Family Guy fiction addiction. South Park fiction addiction. Reality TV "The Apprentice" fiction addiction. Fox News SNL "Weekend Update" NYC fiction addiction. Joke addictions. Humor and amusement addictions. People lost their minds to memes and joke-cracking shit-commenting shit-posting Internet about President Tony Clifton actor dong acting. Trump sure isn't skilled as a leader of anything but mockery. An actor mocking USA. The problem is the audience every day and night, not just voting days, but upvoting on Reddit shit-commenting days. Fiction addictions.
+
+There is a fundamental thing people do not grasp: In fiction, anything goes. Fiction stories allow all kinds of plot twists, wild and crazy actions. If you can get USA population to tune into social media venues day in and day out and view the White House as a fiction story to watch... anything goes. People are detached from nonfiction.
+
+* [“The truth is, it’s getting harder to describe the extent to which a meaningful percentage of Americans have dissociated from reality,” Charlie Warzel wrote “I’m Running Out of Ways to Explain How Bad This Is.”](https://www.axios.com/2024/10/19/musk-ackman-election-misinformation) - October 19, 2024 - America’s gullibility crisis, Zachary Basu
