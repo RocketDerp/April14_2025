@@ -221,3 +221,7 @@ Tulsa. /r/Tulsa
 <img width="576" height="768" alt="image" src="https://github.com/user-attachments/assets/d914f166-03ec-4ac0-bb08-e50614c03579" />
 
 Social post { https://MidWest.Social/post/42755876 https://Autistics.Life/@RoundSparrow/115992782481238409 https://bsky.app/profile/roundsparrow.bsky.social/post/3mdr6msjm5c2d }
+
+https://old.reddit.com/r/whenthe/comments/1qsgnzr/it_feels_so_strange_this_is_the_stuff_youd_hear/o2veev5/
+
+Posting title: "insane", "real", "strange"
