@@ -35,5 +35,5 @@ Thank you. [Love to all](Quotes_Pile/Specific/MLKjr_revolution_of_values.md).
 # Social Media   
 
 https://Bsky.App/profile/roundsparrow.bsky.social/post/3mdr7rpyw4s2p  
-https://Autistics.Life/tags/28February1954   
+https://Autistics.Life/@RoundSparrow/115992860484813438  
 https://BeeHaw.org/u/BitOneZero   
