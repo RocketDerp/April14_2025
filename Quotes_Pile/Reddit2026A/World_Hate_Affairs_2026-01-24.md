@@ -444,3 +444,8 @@ Hence why I constantly emphasize the social media comment creators avoidance of 
 
 * “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.”
 ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. October 8, 2013.
+
+https://old.reddit.com/r/GetNoted/comments/1qszrki/it_turns_out_that_epsteins_list_isnt_limited_to/o2z5piz/
+
+the "flex" is twitter-think. Shallow superficial commenting. Epstein topic fandom. People who are not serious about turning the topic to young girls and Malala's reformations... but just want to promote simple-thinking ideas and avoidance of Malala's nonfiction education, teaching, learning, comprehension, understanding focus. Twitter-thinking is about avoidance of deeper understanding and attraction to high-speed "rush" of notification delivery.
+
