@@ -705,3 +705,17 @@ People I have known my entire life, and others I traveled and knew for 10 or mor
 * "what Putin will do next — that he’s unpredictable and thus dangerous. We’re rendered stunned, spun, and flummoxed by the Kremlin’s weaponization of absurdity and unreality.” - year 2014. September 9, 2014 https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mdtfy2kucs2m https://autistics.life/@RoundSparrow/115997807521933104 }
+
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1qtavgu/marjorie_taylor_greene_bluntly_declares_maga_was/o31h6ad/
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1qtavgu/marjorie_taylor_greene_bluntly_declares_maga_was/o31h15i/
+
+8 month Reddit account.
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1qtavgu/marjorie_taylor_greene_bluntly_declares_maga_was/o31ha68/
+
+4 month Reddit account.
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1qtavgu/marjorie_taylor_greene_bluntly_declares_maga_was/o31im1m/
+
