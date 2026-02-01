@@ -657,3 +657,15 @@ https://old.reddit.com/r/Fauxmoi/comments/1qt79qi/sza_its_offensive_for_black_am
 https://old.reddit.com/r/politics/comments/1qt4pk6/epstein_files_absolve_me_trump_claims/o308b7o/
 
 Despite the reply comments saying it works on his base... lies work on everyone. The entire society is drowning in fiction storytelling. The first Trump term was before ChatGPT and competing systems came on the market. Before Elon Musk purchased Twitter. Society needs to face up that USA needs to face the avoidance of nonfiction.
+
+https://old.reddit.com/r/politics/comments/1qt4pk6/epstein_files_absolve_me_trump_claims/o307jqw/
+
+https://old.reddit.com/r/politics/comments/1qt4pk6/epstein_files_absolve_me_trump_claims/o305paf/
+
+ToDo: 1951 McLuhan on Orwell. 1985 Postman on Orwell. And their relationship.
+
+https://old.reddit.com/r/politics/comments/1qt4pk6/epstein_files_absolve_me_trump_claims/o307kil/
+
+Yes. Putin and Trump create reality. Fiction overwrites nonfiction.
+
+* "what Putin will do next — that he’s unpredictable and thus dangerous. We’re rendered stunned, spun, and flummoxed by the Kremlin’s weaponization of absurdity and unreality.” - year 2014. September 9, 2014 https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
