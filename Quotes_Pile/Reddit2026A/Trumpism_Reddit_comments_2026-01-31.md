@@ -266,3 +266,10 @@ https://old.reddit.com/r/LeopardsAteMyFace/comments/1qsgvpg/tried_to_make_his_fa
 https://old.reddit.com/r/Fauxmoi/comments/1qsk62j/matt_bernstein_pushes_back_on_the_idea_that/o2w4q5p/
 
 7 month Reddit account. no off-Reddit URL, no quotes from nonfiction book. Most upvoted popular comment on posting.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qsk62j/matt_bernstein_pushes_back_on_the_idea_that/o2w4w6a/
+
+https://old.reddit.com/r/Fauxmoi/comments/1qsk62j/matt_bernstein_pushes_back_on_the_idea_that/o2w5pp5/
+
+Corporate America, businessmen... your boss man, Donald Trump "The Apprentice" BOSS MAN - is politics since June 16, 2015.
+
