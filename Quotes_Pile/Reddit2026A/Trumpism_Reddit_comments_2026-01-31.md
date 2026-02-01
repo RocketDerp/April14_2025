@@ -406,3 +406,42 @@ https://old.reddit.com/r/AskReddit/comments/1qsrip1/with_the_epstein_files_makin
 
 People respect rich actors, rich sports stars, rich singers, rich video game makers. People do not want to take on the new media problem with WikiTribune because you don't get rich doing news for free. We could be open sourcing all medical knowledge, all medical hardware, all medical drugs, all medical treatment methods in a Super Wikipedia. But people don't believe in admiring the common good... they want to admire exclusive unique assets and real estate that nobody else has. Competition of sports, sports mentality. Calling people failures, calling people losers, sports-thinking.
 
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qsxbdr/the_world_is_laughing_at_america/o2yqhc4/
+
+Image on posting title says "lunacy".
+
+Threatening Canada and Greenland is far more lunacy. Health care system. Media addiction. People ignoring Malala as a leader, ignoring Dr. Bandy X Lee as a leader. Trump is a constant source of stimulation for content creation. The abandonment of nonfiction adult education and understanding in favor of Reality TV celebrity Trump and Fox News entertainment. 
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qsxbdr/the_world_is_laughing_at_america/o2yqajx/
+
+How can you trust people who Trust Trump? How can you trust Trump who trusts Putin? How can you trust people who turn to comment with ignorance and avoid getting on the same page of excellent teachers and nonfiction authors... the anti-Wiki anti-FAQ prizing of commenting.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qsxbdr/the_world_is_laughing_at_america/o2yomsz/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qsxbdr/the_world_is_laughing_at_america/o2yvpx7/
+
+Putin did not invade Ukraine because of Epstein files. Hitler didn't start a war because of Epstein files. If the world really cared about young girls, why is Malala group given so little attention... people are so obsessed with Trump's sex life. Trump outright told everyone that being a famous celebrity matters when sexual consent comes out. Rock music stars in the 1970's were doing this more in the open. The Taliban is doing child marriages in Afghanistan and Pakistan. Parents are programming their children to worship Rupert Murdoch and Trump as leaders. 
+
+The foundation being laid here by Reddit programming of minds is that badness has to be about sex. We can have horrible leaders who keep away medical care for decades - that's OK because they didn't have illegal sex acts. Trump needs to be held accountable for ALL BAD, not just what he did out of office in his life, but what he is doing in OUR NAME as a NATION! And it isn't just Donald trump! JD Vance, MAGA congress.
+
+These policies are not distractions from the Epstein list. 
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qsxbdr/the_world_is_laughing_at_america/o2yod2a/
+
+Girls are being abused all over the world by non-famous people!!! The attraction to rich white men as leaders an topic of conversation is taking voices AWAY from girls as it was in the first place. Malala is trying to give voices to girls, and Trump is wrecking all voices with media domination / attention domination.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qsxbdr/the_world_is_laughing_at_america/o2ysahn/
+
+no off-Reddit URL. No quote, no author name.
+
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qsxbdr/the_world_is_laughing_at_america/o2z0kri/
+
+<img width="1428" height="1297" alt="image" src="https://github.com/user-attachments/assets/81877442-525f-4c69-805c-d7fc19a118c2" />
+
+7 month Reddit account. Same comment 3 times on same posting. https://old.reddit.com/r/WhitePeopleTwitter/comments/1qsxbdr/the_world_is_laughing_at_america/o2yzo59/ and https://old.reddit.com/r/WhitePeopleTwitter/comments/1qsxbdr/the_world_is_laughing_at_america/o2yzmi3/
+
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qsxbdr/the_world_is_laughing_at_america/o2z0nvb/
+
+People on social media will not stand up and repeat nonfiction from Dr. Bandy X Lee and be serious! Stop REACTING to MAGA and White House and Trump and follow Dr. Lee's leadership of education and teaching. 
