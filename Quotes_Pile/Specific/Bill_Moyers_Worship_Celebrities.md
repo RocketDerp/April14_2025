@@ -26,4 +26,5 @@ CAMPBELL: I think so. **The nation** has to have an intention somehow to operate
 
 Social post   
 https://old.reddit.com/r/clevercomebacks/comments/1qtyspj/social_media_fury_unleashed/   
-https://autistics.life/@RoundSparrow/116002241859073216   
+https://autistics.life/@RoundSparrow/116002241859073216       
+https://bsky.app/profile/roundsparrow.bsky.social/post/3mdvf23aez22c   
