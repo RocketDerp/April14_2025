@@ -472,3 +472,5 @@ https://old.reddit.com/r/worldnews/comments/1qtdn36/trump_moves_to_raise_tariffs
 https://old.reddit.com/r/worldnews/comments/1qtdn36/trump_moves_to_raise_tariffs_on_korea_despite/o32dvq2/
 
 People really are ignoring the Ukraine war and Putin leading Trump... and the IRA media warfare.
+
+https://old.reddit.com/r/worldnews/comments/1qtdn36/trump_moves_to_raise_tariffs_on_korea_despite/o3247dn/
