@@ -846,3 +846,13 @@ https://old.reddit.com/r/Music/comments/1qtnq1v/trump_slams_grammys_threatens_to
 https://old.reddit.com/r/Music/comments/1qtnq1v/trump_slams_grammys_threatens_to_sue_trevor_noah/o347n5j/
 
 Donald Trump is a media addict of television and camera appearances who is leading a Reddit fandom of media addicts. Marshall McLuhan and Neil Postman comprehension are not optional perspectives and lenses of off-axis viewing.
+
+https://old.reddit.com/r/Music/comments/1qtnq1v/trump_slams_grammys_threatens_to_sue_trevor_noah/o3486t0/
+
+<img width="930" height="287" alt="Screenshot from 2026-02-02 06-22-57" src="https://github.com/user-attachments/assets/60f7fca5-0492-4f84-b20d-78fce391cb4b" />
+
+The Reddit fandom sees "on tape", on film, on camera, on live streaming. The medium is the message. Seeing it happen in the White House every hour of every day on Camera is Reality Television for Reddit fandom. Everybody shit, but Reddit is thrilled to have shit broadcast across TCP/IP networks globally, the World Wide Web of USA creation! America leads with shit-commenting Reddit fan members / Reddit audience end-users in their constant 24 hour meme site of bullshit seeking.
+
+* "Everyone Poops (originally Minna Unchi) is a renowned Japanese children's book written and illustrated by Taro Gomi, first published in Japan in 1977. It was later translated into English and released in the U.S. in 1993, becoming a staple in potty training. The book uses simple, direct language and, humorous,, bright illustrations to **normalize biological functions, reassuring children** that all living things — from animals to humans—eat and poop. みんなうんち." - Google Search summary 2026-02-02 morning USA
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mdux3xsj2s2c https://autistics.life/@RoundSparrow/116001255851445748 }
