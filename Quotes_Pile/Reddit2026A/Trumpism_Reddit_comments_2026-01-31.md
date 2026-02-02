@@ -1156,3 +1156,24 @@ The Reddit audience attraction is to commenting upon Trump Epstein content / Put
 
 * “I don’t want any other girl to go through the same as me. Not all of them can fight as hard as I did,” she said. “They deserve to be successful women first and take their rightful place in the community. **Girls should be students and not brides**. This is my message for leaders.” - https://StephanieSinclair.com/malala-speaks-end-child-marriage/
 
+https://old.reddit.com/r/news/comments/1qu6y4y/doj_takes_down_thousands_of_epstein_documents_for/o380vj6/
+
+Trump showing off girls and women for audiences is his profession and skill. What skills do  people think Trump is actually qualified for? November 8, 2013 Trump was in Moscow to show girls images across media systems. That's what he does, that's his gift and talents. Getting an audience. Trump is an actor or follows screenplays and performances for cameras. This is all information strip tease from powerful white men to their fandoms. 
+
+https://old.reddit.com/r/news/comments/1qu6y4y/doj_takes_down_thousands_of_epstein_documents_for/o380jak/
+
+Infamous Epstein has a **media cult** fandom.
+
+People will do ANYTHING and EVERYTHING but put Dr. Bandy X. Lee and Jen Senko at the center of attention and deal with media brainwashing by billionaires. It is a very sickening society, it make me ill and sick, to see so many people who have never studied or did not comprehend what Marshall McLuhan and Neil Postman were teaching and educating the general public about Reddit media systems! The ability to hoard digital data is the message. The Xerox machine, copy machine, is the message. The Epstein private jet is the message. Compulsive media addict behavior is Trump's force over society. Trump is a camera magnet and the audience is in no way self-aware of the Epstein fixation an Trump fixation via information trickle-down from Trump!
+
+https://old.reddit.com/r/news/comments/1qu6y4y/doj_takes_down_thousands_of_epstein_documents_for/o381hgw/
+
+<img width="1109" height="1377" alt="image" src="https://github.com/user-attachments/assets/d7f060cf-7283-4bbb-bcb4-ec53649947b4" />
+
+ANSWER: Russia's Saint Petersburg Internet Research Agency manipulated the ENTIRE POPULATION, not just MAGA, not just Republicans... Since March 2013. SEE_ALSO: https://GitHub.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Cambridge_Analytica_Quotes.md
+
+People are attracted to Trump as a source of content... to feed high speed information addictions. Trump is the center of media systems, stimulating the fandoms. People will not turn to Dr. Bandy X Lee's nonfiction public education and face up to the crisis.
+
+And a for "outrage", we don't need more and more raging and outraging - we need people to stop reacting to Epstein / MAGA / Putin / Trump and start teaching nonfiction cult deprogramming. We need to rescue hearts and minds from Russian information warfare outcomes. We are living in an aftermath of Putin's military mental manipulation.
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mdvttu43l22h https://autistics.life/@RoundSparrow/116003286191143794 }
