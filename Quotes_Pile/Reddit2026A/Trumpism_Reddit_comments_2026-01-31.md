@@ -752,3 +752,11 @@ https://old.reddit.com/r/allthequestions/comments/1qta8lr/repeat_after_me_trump_
 https://old.reddit.com/r/allthequestions/comments/1qta8lr/repeat_after_me_trump_is_a_pedophile_and/o31ezx7/
 
 https://old.reddit.com/r/allthequestions/comments/1qta8lr/repeat_after_me_trump_is_a_pedophile_and/o31fc9n/
+
+https://old.reddit.com/r/MurderedByWords/comments/1qtaoz0/meanwhile_on_4chan_after_yesterdays_events/o31gusa/
+
+https://old.reddit.com/r/MurderedByWords/comments/1qtaoz0/meanwhile_on_4chan_after_yesterdays_events/o31fdpe/
+
+https://old.reddit.com/r/MurderedByWords/comments/1qtaoz0/meanwhile_on_4chan_after_yesterdays_events/o31f8va/
+
+Jokes are what matters more than health care and compassion.
