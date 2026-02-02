@@ -875,3 +875,9 @@ Tweet-length Twitter-thinking. A nation attracted to Trump content. Trump fandom
 https://old.reddit.com/r/Fauxmoi/comments/1qtn7x8/donald_trump_goes_on_grammys_rant_threatening_to/o342iff/
 
 We The People like this shit-posting shit-commenting shit awards show society Trump leads of a society that adores Celebrity Trump king of Celebrity values and fiction storytelling.
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mduxxoqvfc26 https://autistics.life/@RoundSparrow/116001320278162429 }
+
+No language pattern, no meme pattern arrangement, can break past the shit-worship Trump fandoms.
+
+* Year 1988, lessons for Star Wars Hollywood fandoms... BILL MOYERS: **We seem to worship celebrities today**, not heroes. JOSEPH CAMPBELL: **Yes**, and that’s too bad. A questionnaire was once sent around one of the high schools in Brooklyn which asked, “What would you like to be?” Two thirds of the students responded, “A celebrity.” They had no notion of having to give of themselves in order to achieve something. MOYERS: Just to be known. CAMPBELL: Just to be known, to have fame—name and fame. It’s too bad.
