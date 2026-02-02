@@ -1031,6 +1031,16 @@ https://old.reddit.com/r/politics/comments/1qtxe1j/a_13yearold_girl_bit_trumps_g
 
 https://old.reddit.com/r/LeopardsAteMyFace/comments/1qtxhzu/ice_employees_vent_on_reddit_saying_theyre_not/o35zpgi/
 
+<img width="905" height="922" alt="image" src="https://github.com/user-attachments/assets/39b476c4-3d08-41e6-a347-bdd8fdbdffd1" />
+
 "crazy", reply comment: "cult"
 
 All comments avoiding quoting nonfiction books from Dr. Bandy X Lee on mental health. Cult of Reddit commenting about MAGA. A media cult of Reddit media systems.
+
+The reply comment is promoting hate forever. Pro-Putin mindsets. To always hate, hate harder, in a competition with MAGA to hate American people.
+
+<img width="909" height="383" alt="image" src="https://github.com/user-attachments/assets/05a67fe6-3a2a-401e-bb3a-0db4eea99e2a" />
+
+* February 28, 1954: "Most people can't stand up for their convictions, because the majority of people might not be doing it. See, everybody's not doing it, so it must be wrong. And since everybody is doing it, it must be right. So a sort of numerical interpretation of what's right. But I'm here to say to you this morning that some things are right and some things are wrong. Eternally so, absolutely so. **It's wrong to hate.** It always has been wrong and it always will be wrong. It's wrong in America, it's wrong in Germany, it's wrong in Russia, it's wrong in China. It was wrong in 2000 B.C., and it's wrong in 1954 A.D. It always has been wrong, and it always will be wrong." - Martin Luther King Jr.
+
+* "For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the **true becomes false and the false becomes true**. That's what hate does. You can't see right. **The symbol of objectivity** is lost." - Martin Luther King Jr.
