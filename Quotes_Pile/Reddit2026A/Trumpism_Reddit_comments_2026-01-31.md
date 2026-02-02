@@ -1054,3 +1054,11 @@ https://old.reddit.com/r/law/comments/1qu4dku/trump_had_unusual_call_with_fbi_ag
 https://old.reddit.com/r/law/comments/1qu4dku/trump_had_unusual_call_with_fbi_agents_after/o37xqm2/
 
 We The People of social media have flocked to fiction and marketing and Russian information warfare on Reddit since March 2013. Apple iPhone and iPad society abandoned nonfiction books on paper. People are in filter-bubbles and not asserting that certain books are critical, we do not get on the same page of important topics at the same time.
+
+https://old.reddit.com/r/IThinkYouShouldLeave/comments/1qu1qsn/not_trying_to_be_funny_not_trying_to_get_a_laugh/o36wkky/
+
+Note the Reddit posting title: how hard it is for people to not laugh at the antics politics. Neil Postman was correct in year 1985.
+
+https://old.reddit.com/r/IThinkYouShouldLeave/comments/1qu1qsn/not_trying_to_be_funny_not_trying_to_get_a_laugh/o370yvi/
+
+2 month Reddit account.
