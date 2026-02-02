@@ -887,3 +887,13 @@ https://old.reddit.com/r/Fauxmoi/comments/1qtn7x8/donald_trump_goes_on_grammys_r
 LEARN RUSSIAN INFORMATION WARFARE! Learn Putin! Study and analyze Kremlin! This is how Russia defeated NATO since March 2013!!!
 
 * "what Putin will do next — that he’s unpredictable and thus dangerous. **We’re rendered stunned**, spun, and flummoxed by the Kremlin’s weaponization of absurdity and unreality.” - **year 2014**. September 9, 2014 https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/Fauxmoi/comments/1qtn7x8/donald_trump_goes_on_grammys_rant_threatening_to/o342qgy/
+
+25 day Reddit account.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qtn7x8/donald_trump_goes_on_grammys_rant_threatening_to/o3452pv/
+
+Trump fandom on Reddit: FUNNY! Entertaining!!! An actor doing acting, a Reality TV star is so entertaining to the Reddit end-users!
+
+* "what Putin will do next — that he’s unpredictable and thus dangerous. **We’re rendered stunned**, spun, and flummoxed by the Kremlin’s weaponization of absurdity and unreality.” - **year 2014**. September 9, 2014 https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
