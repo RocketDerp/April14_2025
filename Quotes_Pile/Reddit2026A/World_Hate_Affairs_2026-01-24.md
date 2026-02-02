@@ -552,3 +552,7 @@ Read the replies: people wonder why Trump kisses Putin's ass so much.
 THE REAL **WE THE PEOPLE CONCERN** IS WHY REDDIT AUDIENCE MEMBERS KISS TRUMP's SHIT ASS OUTPUT "CONTENT" SO MUCH! Why hundreds of millions of people can never ever get enough Trump shit on Reddit /r/All Shit-Posting Shit-Commenting training media camp!
 
 Social post { https://autistics.life/@RoundSparrow/116000911473366346 https://bsky.app/profile/roundsparrow.bsky.social/post/3mdus53jdik2q }
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qto9uz/epstein_and_putin_were_connected_as_worlds/o34th50/
+
+On a superficial note. October 7, 2023 terrorist attack is Putin's birthday. Russia's leader birthday.
