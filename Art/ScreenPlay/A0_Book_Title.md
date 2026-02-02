@@ -35,6 +35,11 @@ Addiction to Fiction
 Shitpost Nation   
 Shit-commenting Nation  
 
+Infamy POTUS   
+Infamy President   
+President of Infamy  
+Nation of Infamy   
+
 &nbsp;
 
 &nbsp;
