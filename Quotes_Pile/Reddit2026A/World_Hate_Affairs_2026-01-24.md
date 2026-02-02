@@ -631,3 +631,9 @@ https://old.reddit.com/r/UnderReportedNews/comments/1qu0fkp/no_that_is_not_your_
 https://old.reddit.com/r/UnderReportedNews/comments/1qu0fkp/no_that_is_not_your_job_say_critics_after_schumer/o36r2ih/
 
 Science fiction popularity. The science fiction trilogy { Torah, Bible, Quran, Book of Mormon, etc } is incredibly popular. Very famous locations for these stories.
+
+https://old.reddit.com/r/WorkReform/comments/1qtw3sn/if_cuck_schumer_put_even_half_the_effort_into/o35qf74/
+
+Labor and money, especially people using social media, should be directed towards Malala's education and teaching so people GRASP the values of terrorism in Palestine. We need to reform the terrorist clergy systems in the 3 Levant religions.
+
+* "The extremists are afraid of books and pens. The power of education frightens them. They are afraid of women. The power of the voice of women frightens them." - July 12, 2013 https://malala.org/news-and-voices/malala-un-speech
