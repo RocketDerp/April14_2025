@@ -1285,3 +1285,37 @@ https://old.reddit.com/r/TwoXChromosomes/comments/1qu9t54/new_study_explains_why
 Men ... changing their world view based on who is in front of them... Putin fandom. Trump fandom. Putin and Trump fandom.
 
 * “I encounter forms of this attitude every day. The producers who work at the Ostankino channels might all be liberals in their private lives, holiday in Tuscany, and be completely European in their tastes. When I ask how they marry their professional and personal lives, they look at me as if I were a fool and answer: “Over the last twenty years we’ve lived through a communism we never believed in, democracy and defaults and mafia state and oligarchy, and we’ve realized they are illusions, that everything is PR.” “Everything is PR” has become the favorite phrase of the new Russia; my Moscow peers are filled with a sense that they are both cynical and enlightened. When I ask them about Soviet-era dissidents, like my parents, who fought against communism, they dismiss them as naïve dreamers and my own Western attachment to such vague notions as “human rights” and “freedom” as a blunder. “Can’t you see your own governments are just as bad as ours?” they ask me. I try to protest—but they just smile and pity me. To believe in something and stand by it in this world is derided, the **ability to be a shape-shifter celebrated**. Vladimir Nabokov once described a species of butterfly that at an early stage in its development had to learn how to change colors to hide from predators. The butterfly’s predators had long died off, but still it changed its colors from the sheer pleasure of transformation. Something similar has happened to the Russian elites: during the Soviet period they learned to dissimulate in order to survive; now there is no need to constantly change their colors, but they continue to do so out of a sort **of dark joy**, conformism raised to the level of aesthetic act. **Surkov himself is the ultimate expression** of this psychology." ― **year 2014**.  Peter Pomerantsev, Nothing Is True and Everything Is Possible: The Surreal Heart of the New Russia
+
+https://old.reddit.com/r/International/comments/1qu4k2i/joe_rogan_podcast_is_just_the_epstein_client_list/o38l33m/
+
+2 day Reddit account.
+
+https://old.reddit.com/r/International/comments/1qu4k2i/joe_rogan_podcast_is_just_the_epstein_client_list/o383pwd/
+
+https://old.reddit.com/r/International/comments/1qu4k2i/joe_rogan_podcast_is_just_the_epstein_client_list/o383l3a/
+
+"insane".
+
+https://old.reddit.com/r/TwoXChromosomes/comments/1qu9t54/new_study_explains_why_listening_to_joe_rogan/o38sg50/
+
+https://old.reddit.com/r/International/comments/1qu4k2i/joe_rogan_podcast_is_just_the_epstein_client_list/o38ri41/
+
+Joke-washing platform.
+
+https://old.reddit.com/r/TwoXChromosomes/comments/1qu9t54/new_study_explains_why_listening_to_joe_rogan/o38pd7w/
+
+ALL hate for ANY reason is bad. But people want to join teams of hate. Hate vs. hate. Out-group hate.
+
+* February 28, 1954: "Most people can't stand up for their convictions, because the majority of people might not be doing it. See, everybody's not doing it, so it must be wrong. And since everybody is doing it, it must be right. So a sort of numerical interpretation of what's right. But I'm here to say to you this morning that some things are right and some things are wrong. Eternally so, absolutely so. **It's wrong to hate.** It always has been wrong and it always will be wrong. It's wrong in America, it's wrong in Germany, it's wrong in Russia, it's wrong in China. It was wrong in 2000 B.C., and it's wrong in 1954 A.D. It always has been wrong, and it always will be wrong." - Martin Luther King Jr.
+
+* "For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the **true becomes false and the false becomes true**. That's what hate does. You can't see right. **The symbol of objectivity** is lost." - Martin Luther King Jr.
+
+https://old.reddit.com/r/TwoXChromosomes/comments/1qu9t54/new_study_explains_why_listening_to_joe_rogan/o38p9ov/
+
+https://old.reddit.com/r/TwoXChromosomes/comments/1qu9t54/new_study_explains_why_listening_to_joe_rogan/o38ugul/v
+
+2 month Reddit account.
+
+https://old.reddit.com/r/TwoXChromosomes/comments/1qu9t54/new_study_explains_why_listening_to_joe_rogan/o38v7c0/
+
+https://old.reddit.com/r/TwoXChromosomes/comments/1qu9t54/new_study_explains_why_listening_to_joe_rogan/o38tgin/
