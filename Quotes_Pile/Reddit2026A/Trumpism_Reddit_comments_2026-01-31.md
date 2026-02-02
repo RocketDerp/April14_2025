@@ -782,3 +782,12 @@ https://old.reddit.com/r/pics/comments/1qthiy6/here_is_a_picture_of_teargassed_c
 https://old.reddit.com/r/pics/comments/1qthiy6/here_is_a_picture_of_teargassed_children/o334c60/
 
 5 month Reddit account
+
+https://old.reddit.com/r/MemeVideos/comments/1qt9pkk/and_they_called_me_schizo/o31gwza/
+
+https://old.reddit.com/r/MemeVideos/comments/1qt9pkk/and_they_called_me_schizo/o32s82f/
+
+https://old.reddit.com/r/MemeVideos/comments/1qt9pkk/and_they_called_me_schizo/o31e6fb/
+
+https://old.reddit.com/r/MemeVideos/comments/1qt9pkk/and_they_called_me_schizo/o31g1jp/
+
