@@ -982,3 +982,5 @@ Donald Trump is fiction storytelling leadership (Surkovian screenplays), so anyt
 https://old.reddit.com/r/nottheonion/comments/1qtt9ng/biggest_streaming_reddit_livestreamfail_bans_all/o35au43/
 
 Everything is Media Ecology. https://github.com/RocketDerp/April14_2025/blob/main/Media_Ecology/Everything_is_ME.md
+
+https://old.reddit.com/r/nottheonion/comments/1qtt9ng/biggest_streaming_reddit_livestreamfail_bans_all/o3556qz/
