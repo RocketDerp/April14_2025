@@ -466,3 +466,9 @@ https://old.reddit.com/r/UnderReportedNews/comments/1qtej1k/gaines_i_believe_tha
 https://old.reddit.com/r/UnderReportedNews/comments/1qtej1k/gaines_i_believe_that_words_like_compassion/o32b46r/
 
 https://old.reddit.com/r/UnderReportedNews/comments/1qtej1k/gaines_i_believe_that_words_like_compassion/o32d8he/
+
+https://old.reddit.com/r/worldnews/comments/1qtdn36/trump_moves_to_raise_tariffs_on_korea_despite/o325exv/
+
+https://old.reddit.com/r/worldnews/comments/1qtdn36/trump_moves_to_raise_tariffs_on_korea_despite/o32dvq2/
+
+People really are ignoring the Ukraine war and Putin leading Trump... and the IRA media warfare.
