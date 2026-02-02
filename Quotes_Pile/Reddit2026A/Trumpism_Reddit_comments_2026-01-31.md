@@ -828,3 +828,9 @@ Social post { https://Autistics.Life/@RoundSparrow/116001149117120866 https://bs
 https://old.reddit.com/r/law/comments/1qthn9l/trump_claims_the_right_to_cut_himself_blank/o337uqw/
 
 Trump is a media clip collector. A scrapbook collector of media. Photograph collector. Travel location collector. My wife was a scrap-booker... I've seen it intimately. "Those who die with the most toys wins" USA mindset programmed by being raised under Edward Bernays common programming of the population. Trump is a NYC Edward Bernays NYC Fred Trump Bernays minded. Consumerism programmed, use it up, burn it up.
+
+https://old.reddit.com/r/law/comments/1qthn9l/trump_claims_the_right_to_cut_himself_blank/o33d2kb/
+
+We The People have legitimately voted Fox News HDTV the most popular network. I have talked to thousands of viewers who believe the same common mythology of Rupert Murdoch media cults since year 1996. I've traveled all over the USA. Philadelphia in 1993, Dallas 1994, Seattle (Bellevue / Kirkland / Renton) in 1995. All over in RV since Thanksgiving 1999; worked from home-office all over since Thanksgiving year 1999. Fox News Rupert Murdoch fandom cults, and Reddit cults, and Musk Twitter cults...
+
+Marshall McLuhan and Neil Postman comprehension are not optional perspectives and lenses of off-axis viewing.
