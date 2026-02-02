@@ -1714,3 +1714,9 @@ https://old.reddit.com/r/CuratedTumblr/comments/1qpjldr/summaries_and_reviews/
 Technology bypassing parenting and self-awareness on a scale never experienced by humanity.
 
 https://old.reddit.com/r/worldnews/comments/1qs75ir/finland_looks_to_end_uncontrolled_human/
+
+&nbsp;
+
+# Strangers in cinema
+
+https://old.reddit.com/r/movies/comments/1qu40tm/alamo_drafthouse_faces_backlash_after_ditching/
