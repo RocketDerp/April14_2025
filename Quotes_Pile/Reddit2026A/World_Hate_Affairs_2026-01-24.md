@@ -604,4 +604,5 @@ The Medium is the Massaging of the Public.
 
 https://old.reddit.com/r/law/comments/1qts9j1/how_is_this_epstein_file_not_front_page_news_2/o3599fv/
 
-Impressions and superficial high-speed information glances are what people on Reddit seek. QAnon "Q" drops, information strip tease. If people wanted to reform and have honest sincere leaders, Malala and Dr. Bandy X Lee would be far more important and repeating topics.
+Impressions and superficial high-speed information glances are what people on Reddit seek. QAnon "Q" drops, information strip tease. If people wanted to reform and have honest sincere leaders, Malala and Dr. Bandy X Lee would be far more important and repeating topics. A lot of what is going on is ***information systems feedback loops*** of anonymous tips and theories feeding into government and back out to public.
+
