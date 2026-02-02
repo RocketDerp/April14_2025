@@ -725,3 +725,12 @@ https://old.reddit.com/r/Fauxmoi/comments/1qtb8y5/the_two_federal_immigration_ag
 
 https://old.reddit.com/r/Fauxmoi/comments/1qtb8y5/the_two_federal_immigration_agents_who_fired_on/o31l8dz/
 
+https://old.reddit.com/r/allthequestions/comments/1qta8lr/repeat_after_me_trump_is_a_pedophile_and/o31dspc/
+
+4 month Reddit account.
+
+https://old.reddit.com/r/allthequestions/comments/1qta8lr/repeat_after_me_trump_is_a_pedophile_and/o31dpdn/
+
+https://old.reddit.com/r/allthequestions/comments/1qta8lr/repeat_after_me_trump_is_a_pedophile_and/o31cxn5/
+
+https://old.reddit.com/r/allthequestions/comments/1qta8lr/repeat_after_me_trump_is_a_pedophile_and/o31fppr/
