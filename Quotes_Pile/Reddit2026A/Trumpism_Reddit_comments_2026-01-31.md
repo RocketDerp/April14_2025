@@ -1177,3 +1177,7 @@ People are attracted to Trump as a source of content... to feed high speed infor
 And a for "outrage", we don't need more and more raging and outraging - we need people to stop reacting to Epstein / MAGA / Putin / Trump and start teaching nonfiction cult deprogramming. We need to rescue hearts and minds from Russian information warfare outcomes. We are living in an aftermath of Putin's military mental manipulation.
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mdvttu43l22h https://autistics.life/@RoundSparrow/116003286191143794 }
+
+https://old.reddit.com/r/news/comments/1qu6y4y/doj_takes_down_thousands_of_epstein_documents_for/o3815xc/
+
+Laughter is the best mind-fuck. Surkov won.
