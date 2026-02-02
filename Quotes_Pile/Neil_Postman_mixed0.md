@@ -9,7 +9,7 @@ Twitter / Bluesky / Reddit / meme streaming. Every 2 hours different topics, no 
 &nbsp;
 
 1985:   
-“But it is much later in the game now, and ignorance of the score is inexcusable. To be **unaware that a technology** [Reddit / Bluesky] comes equipped with a program for social change, to maintain that technology is neutral, to make the assumption that technology is always a friend to culture is, at this late hour, stupidity plain and simple.”
+“But it is much later in the game now, and ignorance of the score is inexcusable. To be **unaware that a technology** \[Reddit / Bluesky\] comes equipped with a program for social change, to maintain that technology is neutral, to make the assumption that technology is always a friend to culture is, at this late hour, stupidity plain and simple.”
 ― Neil Postman, Amusing Ourselves to Death: [Public Discourse in the Age of Show Business, year 1985. page 157.](https://books.google.com/books?id=zGkhbPEjkRoC&pg=RA1-PA157&dq=%22equipped+with+a+program+for+social+change,+to+maintain+that+technology+is+neutral,+to+make+the+assumption+that+technology+is+always+a+friend+to+culture+is%22&hl=en&newbks=1&newbks_redir=1&sa=X)
 
 &nbsp;

@@ -431,3 +431,163 @@ CAMPBELL: We need myths that will identify the individual not with his local gro
 MOYERS: There is something about that on the Great Seal of the United States.
 
 CAMPBELL: That’s what the **Great Seal** is all about.
+
+https://old.reddit.com/r/GetNoted/comments/1qszrki/it_turns_out_that_epsteins_list_isnt_limited_to/o2z5wja/
+
+3 day Reddit account. Top-upvoted popular comment.
+
+https://old.reddit.com/r/GetNoted/comments/1qszrki/it_turns_out_that_epsteins_list_isnt_limited_to/o2z987e/
+
+https://old.reddit.com/r/GetNoted/comments/1qszrki/it_turns_out_that_epsteins_list_isnt_limited_to/o2z6a7z/
+
+Hence why I constantly emphasize the social media comment creators avoidance of giving girls and women voice, promoting Malala as fundamental education and teaching change. Instead, wealthy men are again the center of attention as they are all day every day. The Reddit fandom of Elon Musk Twitter screen shots, Elon Musk rich man content.
+
+* “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.”
+― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. October 8, 2013.
+
+https://old.reddit.com/r/GetNoted/comments/1qszrki/it_turns_out_that_epsteins_list_isnt_limited_to/o2z5piz/
+
+the "flex" is twitter-think. Shallow superficial commenting. Epstein topic fandom. People who are not serious about turning the topic to young girls and Malala's reformations... but just want to promote simple-thinking ideas and avoidance of Malala's nonfiction education, teaching, learning, comprehension, understanding focus. Twitter-thinking is about avoidance of deeper understanding and attraction to high-speed "rush" of notification delivery.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qtej1k/gaines_i_believe_that_words_like_compassion/o32a0sw/
+
+One of the core themes of this GitHub project.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qtej1k/gaines_i_believe_that_words_like_compassion/o32a37w/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qtej1k/gaines_i_believe_that_words_like_compassion/o329f7b/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qtej1k/gaines_i_believe_that_words_like_compassion/o32alyq/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qtej1k/gaines_i_believe_that_words_like_compassion/o32b3ak/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qtej1k/gaines_i_believe_that_words_like_compassion/o32bql7/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qtej1k/gaines_i_believe_that_words_like_compassion/o32b46r/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qtej1k/gaines_i_believe_that_words_like_compassion/o32d8he/
+
+https://old.reddit.com/r/worldnews/comments/1qtdn36/trump_moves_to_raise_tariffs_on_korea_despite/o325exv/
+
+https://old.reddit.com/r/worldnews/comments/1qtdn36/trump_moves_to_raise_tariffs_on_korea_despite/o32dvq2/
+
+People really are ignoring the Ukraine war and Putin leading Trump... and the IRA media warfare.
+
+https://old.reddit.com/r/worldnews/comments/1qtdn36/trump_moves_to_raise_tariffs_on_korea_despite/o3247dn/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qtl6dd/who_is_it_who_was_epsteins_boss/o33tt83/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qtl6dd/who_is_it_who_was_epsteins_boss/o3462pg/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qtl6dd/who_is_it_who_was_epsteins_boss/o33xizy/
+
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qtl6dd/who_is_it_who_was_epsteins_boss/o33wzvl/
+
+People see their friends at work get charmed by Donald Trump. And people still do not get that being charming is hat most people consider important. You can be terrible and evil but if you are charming like Trump, nothing can stop you year after year. Reddit social community is so charmed by Epstein and Trump.
+
+Not taking on Rupert Murdoch's factory of charming methods and charming techniques with Neil Postman's books is how Putin defeated NATO and USA.
+
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qtl6dd/who_is_it_who_was_epsteins_boss/o33qaou/
+
+Dimwitted populace is afraid to create messages past TLDR. The dim lighting of the content people consume is more the concern. The dim meme thinking. Because the rapid delivery of the notification is more important to people than anything. Having to re-read the message 3 day later to better understand and ponder it rarely matters to people. Just the rush of the highway speed.
+
+This GitHub project is to draw circles around all the avoided: Dr. Bandy X Lee. Jen Senko. that's enough for me. Why are a Baby Boomer woman and a Gen X woman not "good enough" as leaders? Both are out there enough. Malala is out there. But the charm older men hold over people is unbreakable when it comes to thinking. Allah in the sky is unbreakable thinking pattern. Jesus male in the sky on judgement day is unbreakable programming. Yahweh in the sky. The "Mary Sue" avoidance of Dr. Bandy X Lee and Jen Senko and Malala Y.
+
+It never ever could have been more obvious than Putin and trump's relationship. Putin fucking kidnaps children from Ukraine.
+
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qtl6dd/who_is_it_who_was_epsteins_boss/o341k2c/
+
+<img width="1113" height="326" alt="image" src="https://github.com/user-attachments/assets/11bbb1f3-fdf8-462f-8a39-acf594ba717a" />
+
+Nobody learned a god damn fucking thing about The Light of The Catholic Church and the sex life of the priesthood with children.
+
+OPERA_A https://www.youtube.com/watch?v=ft3b1-Cm-0M A god fucking Jesus small affair. Who is the baby daddy of Jesus? "Now she walks through her sunken dream
+To the seats with the clearest view
+And she's hooked to the silver screen,
+But the film is sadd'ning bore
+For she's lived it ten times or more.
+She could spit in the eyes of fools" - John 1:1 Opera, the Clergy fucking show. I've seen page 581 of Finnegans Wake before! Putin and Surkov and Trump, "Wonder if he'll ever know
+He's in the best selling show?" John 1:1 Tower of Babel fucking show! 7,110,477 views June 22, 2023 ["It's about to be writ again..."](https://www.themediumisthemassage.com/joyce-is-in-the-wake-making-his-own-altamira-cave-drawings-of-the-entire-history-of-the-human-mind-in-terms-of-its-basic-gestures-and-postures-during-all-the-phases-of-human-culture-an/)
+
+Nobody on Reddit can make an association with organized religion.
+
+The fucking BABY DADDY of Jesus! Fucking Christmas, who is the daddy? Gullible fandom of Santa does not ask exactly how a magical outer-pace Eden daddy gets to be the father of Jesus. "The Illuminate Child". It is as if nobody on Reddit can imagine the LITERAL LITERACY meaning of Bible verse John 1:1 
+
+Putin has used John 1:1 meme patterns to mind-fuck the USA into trusting Donald Trump. Donald Trump trusts Putin as his "buddy". Go ask the Russian people what kind of Buddy Putin is. Go ask Ukraine what kind of loving neighbor Putin is.
+
+Go ask about the young girls in Iran, Iraq, Afghanistan, Pakistan.  Those are the places I have personally researched. 
+
+Fuck, girls would brag about their older boyfriends in college when I was in high school! If a girl was sexy and pretty in high school, puberty raging and everyone wanting to not be a virgin at age 17... do people not get the pressure on attractive girls? My high school was competitive a fuck.
+
+Again, who is the baby daddy of Jesus? The ultimate pregnancy from another school. My lover is king of kings, Heaven above, Eden daddy for Jesus. Wake the fuck up, people, John 1:1 is LITERACY itself. Tower of babel. We are the snakes and John 1:1 is the snake harming in Eden. The Tree of bamboozle knowledge of John 1:1 story patterns. 
+
+* https://www.FinnegansWeb.com/wiki/index.php/Page_581 Page 581 of Finnegans Wake. I'm sorry to say I fucking saw the whole Tower o Babel industrial charming complex. Mecca, Jesus daddy from outer space John 1:1 - it's all fucking seeable through the boys and girls in your own high school. Molly Hatched song "Fall of the Peacemakers" told me to look into the souls of men. Their charms and how they chase after popularity itself to charm others. Page 581, "I saw", sorry to fucking say, I saw!!! The Clergy performances without being honest of John 1:1 meaning. The rock music on the F.M. radio. Malala saw too, Radio F.M. Mullah.
+* * "And then and too the trivials! And their bivouac!
+And his monomyth! Ah ho! Say no more about it! I'm sorry!
+I saw. I'm sorry! I'm sorry to say I saw!
+    Gives there not too amongst us after all events (or so grunts 
+a leading hebdromadary) some togethergush of stillandbutall-
+youknow that, insofarforth as, all up and down the whole con-
+creation"
+
+What I saw in The Church as a boy scout in a Catholic troop, where I was the only protestant Lutheran, I saw in fucking F.M. Radio in high school. Girls and boys mind-fucking each other over the most shallow and superficial brand-name cosmetics and fashion. And head-banging NFL ambition of brain damage.
+
+OPERA_A The girls don't seem to care what's on... As long as they play 'til dawn. Nothin' but blues and Elvis... And somebody else's favorite song. "FM (No Static at All)" by Steely Dan was written and recorded in 1977 and released on May 19, 1978. Donald Trump is a gifted charmer and knows how to put his charming media moves over the medium. This song came out when I was 10 years old. https://www.youtube.com/watch?v=UtFEJOL8kWU 16,630 views December 19, 2023
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qtl6dd/who_is_it_who_was_epsteins_boss/o340twv/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qto9uz/epstein_and_putin_were_connected_as_worlds/o34bjfl/
+
+Then what is Putin's motivation? Is there some even bigger man above Putin who has sex tapes of Putin? This simple-think Tweet-length mindsets. Fiction addiction drives Trump and Reddit both. Fiction storytelling. FACTS of VIDEO of sex acts and photographs do not convince people. What convinces people is Star Wars science fiction. Mecca theme park of Quran science fiction! The White House is a Rupert Murdoch theme park of Fox News science fiction storytelling! WOKE TO WHAT? 1923 Finn's Hotel WAKE UP MORNING CHECKOUT TIME!
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qto9uz/epstein_and_putin_were_connected_as_worlds/o349i36/
+
+<img width="1261" height="1373" alt="image" src="https://github.com/user-attachments/assets/57f1aaa9-7a11-4bf8-b030-3653fe1dac54" />
+
+Read the replies: people wonder why Trump kisses Putin's ass so much.
+
+THE REAL **WE THE PEOPLE CONCERN** IS WHY REDDIT AUDIENCE MEMBERS KISS TRUMP's SHIT ASS OUTPUT "CONTENT" SO MUCH! Why hundreds of millions of people can never ever get enough Trump shit on Reddit /r/All Shit-Posting Shit-Commenting training media camp!
+
+Social post { https://autistics.life/@RoundSparrow/116000911473366346 https://bsky.app/profile/roundsparrow.bsky.social/post/3mdus53jdik2q }
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qto9uz/epstein_and_putin_were_connected_as_worlds/o34th50/
+
+On a superficial note. October 7, 2023 terrorist attack is Putin's birthday. Russia's leader birthday.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qto9uz/epstein_and_putin_were_connected_as_worlds/o34f2i2/
+
+1 year Reddit account.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qto9uz/epstein_and_putin_were_connected_as_worlds/o34bsi2/
+
+down votes for voicing an idea that is on-topic.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qto9uz/epstein_and_putin_were_connected_as_worlds/o34ao1x/
+
+1 month Reddit account.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qto9uz/epstein_and_putin_were_connected_as_worlds/o34bl35/
+
+Joined Reddit on Putin's birthday. During Arab Spring.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qto9uz/epstein_and_putin_were_connected_as_worlds/o34d7f0/
+
+Putin's information warfare has destabilized reality so much that we are getting outright wilding mindsets.
+
+* "Now this is a very serious affair. It is serious because these symbolic worlds were the supports of the civilizations, of the moralities of the civilizations, of the self-confidence of the civilizations, of the vitality and creative power of the civilizations. And with the cutting down, the frustrating of the self-confidence that derives from images of this kind, **there is a disequilibrium within the society itself**. And everyone is challenged in his loyalty — are you going to be loyal to the tradition, to the form, to the morality and myth of your society, or are you going to be loyal to truth? They are two different things. This is the problem in teaching; this is the problem in bringing up your children; this is the problem that was beside me there at the lunch counter." - November 16, 1961
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qto9uz/epstein_and_putin_were_connected_as_worlds/o34fx1a/
+
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qto9uz/epstein_and_putin_were_connected_as_worlds/o34nt9t/
+
+4 month account 
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qto9uz/epstein_and_putin_were_connected_as_worlds/o34d5ja/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qto9uz/epstein_and_putin_were_connected_as_worlds/o350at8/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qto9uz/epstein_and_putin_were_connected_as_worlds/o34g9qt/

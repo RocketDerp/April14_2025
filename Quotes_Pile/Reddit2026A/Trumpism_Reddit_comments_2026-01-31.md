@@ -1,4 +1,4 @@
-https://old.reddit.com/r/AskReddit/comments/1qrvz3u/if_the_epstein_files_arent_enough_for_a_global/o2rbvss/
+chttps://old.reddit.com/r/AskReddit/comments/1qrvz3u/if_the_epstein_files_arent_enough_for_a_global/o2rbvss/
 
 <img width="1139" height="397" alt="image" src="https://github.com/user-attachments/assets/8551b9c8-ede3-4c45-8af3-92b73f81703b" />
 
@@ -298,3 +298,512 @@ https://old.reddit.com/r/politics/comments/1qsfgbg/pam_bondi_gives_chilling_warn
 https://old.reddit.com/r/politics/comments/1qsfgbg/pam_bondi_gives_chilling_warning_after_don_lemons/o2varss/
 
 Leadership of hate, Reddit follows the leader of hate. Hate harder values.
+
+https://old.reddit.com/r/videos/comments/1qstu0i/trump_audibly_shits_himself_on_tv_immediately/o2y18tp/
+
+A reality described by Neil Postman in his 1985 book, "Amusing Ourselves To Death".
+
+Shit-posting became the leading information system activity, shit-commenting, an people seeking shit leadership. Enshitification nation. Fox News HDTV bullshit additions were one of the many huge warning signs since 1996, which is 11 years after Neil Postman published his book.
+
+https://old.reddit.com/r/videos/comments/1qstu0i/trump_audibly_shits_himself_on_tv_immediately/o2xzplz/
+
+Trump fandom on Reddit. Infinite Jest by David Foster Wallace. Endless Trump forever.
+
+https://old.reddit.com/r/videos/comments/1qstu0i/trump_audibly_shits_himself_on_tv_immediately/o2y3730/
+
+/r/Videos
+
+https://old.reddit.com/r/videos/comments/1qstu0i/trump_audibly_shits_himself_on_tv_immediately/o2xzyft/
+
+Left-right brain rot. Badness is prized if it is the other team, us vs. them. This is what Neil Postman was trying to describe about USA culture. People are so addicted to entertainment, they would pick situations for amusement above all else. That's what Surkov students defeated the nation with, this logic that something bad happening is funny content if it s the other team in a team sport mentality. Wrecking the entire world for amusement jokes.
+
+* “For in the end, he was trying to tell us what afflicted the people in 'Brave New World' was not that they were laughing instead of thinking, but that they did not know what they were laughing about and why they had stopped thinking.”
+― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. Year 1985
+
+https://old.reddit.com/r/videos/comments/1qstu0i/trump_audibly_shits_himself_on_tv_immediately/o2xzuhg/
+
+Reality TV shit nation. Fox News "Reality" TV fandom, Reality Twitter Reddit fandom. Shit-posting is considered on Reddit to be the most attractive content, shit-commenting, world wide enshtification.
+
+https://old.reddit.com/r/videos/comments/1qstu0i/trump_audibly_shits_himself_on_tv_immediately/o2y0wsv/
+
+https://old.reddit.com/r/videos/comments/1qstu0i/trump_audibly_shits_himself_on_tv_immediately/o2y1l0q/
+
+Reddit is Trump Fandom who loves Trump leadership to follow every hour of every day on Reddit Trumpland.
+
+https://old.reddit.com/r/videos/comments/1qstu0i/trump_audibly_shits_himself_on_tv_immediately/o2y0pr4/
+
+<img width="1403" height="1028" alt="image" src="https://github.com/user-attachments/assets/7adbed0c-6d87-49c7-8da3-7dae9f13d4da" />
+
+The reply comment about 70% of Americans...
+
+Where is this magical 30 percent of people who are rescuing the USA from Putin's information warfare since March 2013. It is ONE HUNDRED PERCENT who will not face up that this has been about **NATO all along**, no matter how much people see wild and crazy **NATO behaviors over Canada and Greenland**... people still will not sober up from the endless mocking of Trump, joking off Trump... to realize that David Foster Wallace was not joking when he killed himself over the USA society not getting that "Infinite Jest" joking is a real fucking human brain exploit.
+
+* “For in the end, he was trying to tell us what afflicted the people in 'Brave New World' was not that they were laughing instead of thinking, but that they did not know what they were laughing about and why they had stopped thinking.”
+― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. Year 1985
+
+This **magical 30 percent of the population** is laughing all day and night at Trump antics. Media addition rules the nation. Russia won! Surkov students won.
+
+* From September 9, 2014 - 11 years 4 months and some weeks ago, which is **more than a decade** - we could have kept repeating it and defeated Putin's takeover of USA hearts and minds: https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ "Russia and the Menace of Unreality: How Vladimir Putin is revolutionizing information warfare. By Peter Pomerantsev. At the NATO summit in Wales last week, General Philip Breedlove, the military alliance’s top commander, made a bold declaration. Russia, he said, is waging “the **most amazing information warfare blitzkrieg we have ever seen in the history of information warfare.**” It was something of an underestimation. The new Russia doesn’t just deal in the petty disinformation, forgeries, lies, leaks, and cyber-sabotage usually associated with information warfare. It reinvents reality, creating mass hallucinations that then translate into political action."
+
+The fantasy that 70 of the population an be mocked day in and day out and insulted is fed by billionaires Putin team who manipulates billionaire Rupert Murdoch team who manipulates billionaire Elon Musk Twitter team who all feeds manipulation into the World Wide Web. Billionaire after billionaire purchasing news networks, social networks, information machines to dumb bullshit into the ocean we all get our drinking water from and poisoning the whole god damn ecology. The study of this ecological behavior of human media users is called "Media Ecology", as in Neil Postman and Marshall McLuhan students.
+
+What happened is that before year 2007, every person in their far at the traffic light was not staring into an Apple iPhone screen. The smartphone and iPad is what changed the nation. Books on paper and magazines on paper and newspapers n paper is what fucking changed. Trump is first and foremost a icon of childhood television. **New York City Fox News**, New York City Saturday Night Live. The *ART* of the deal is the art of bamboozle and acting, smoke and mirrors, performances, theater, actors doing acting. Saturday Night Live "Weekend Update News" is Fox News promoting comedy. New York City New York University Manhattan Professor Neil Postman. The notification opera of the iPad and iPhone.
+
+1985:
+
+* “But it is much later in the game now, and ignorance of the score is inexcusable. To be **unaware that a technology** \[Reddit / Bluesky\] comes equipped with a program for social change, to maintain that technology is neutral, to make the assumption that technology is always a friend to culture is, at this late hour, stupidity plain and simple.”
+― Neil Postman, Amusing Ourselves to Death: [Public Discourse in the Age of Show Business, year 1985. page 157.](https://books.google.com/books?id=zGkhbPEjkRoC&pg=RA1-PA157&dq=%22equipped+with+a+program+for+social+change,+to+maintain+that+technology+is+neutral,+to+make+the+assumption+that+technology+is+always+a+friend+to+culture+is%22&hl=en&newbks=1&newbks_redir=1&sa=X)
+
+
+https://old.reddit.com/r/videos/comments/1qstu0i/trump_audibly_shits_himself_on_tv_immediately/o2y0zmo/
+
+Reddit MAGA fandom. Fandom of diapers on Reddit social. 
+
+https://old.reddit.com/r/videos/comments/1qstu0i/trump_audibly_shits_himself_on_tv_immediately/o2y1ntt/
+
+Democracy is every person every day, day and night. Why are social media users not quoting Dr. Bandy X. Lee day and night until Trump is removed? Why is it that nonfiction books about mental health of Trump are ignored by social media users? Commenting over and over with free time and spare time and completely avoiding nonfiction adult education about cult deprogramming and mob mentality.
+
+* “The human brain can protect us from seeing and feeling what it believes may be too uncomfortable for us to tolerate. It can lead us to deny, defend, minimize, or rationalize away something that doesn’t fit our worldview.”
+― Dr. Bandy X Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. Published **October 3, 2017**. Page 273. Chapter "TRUMP'S DADDY ISSUES"](https://books.google.com/books?id=g0c4DwAAQBAJ&pg=PA273&dq=%E2%80%9CThe+human+brain+can+protect+us+from+seeing+and+feeling+what+it+believes+may+be+too+uncomfortable%22&hl=en&newbks=1&newbks_redir=1&sa=X)
+
+Trump is an entertainer, an actor acting, and people are covering for their favorite entertainment source. As Reddit demonstrates day in and day out, people hang on every word, Tweet, photograph about Donald J. Trump. The king of high-speed information content creation, king of Pop.
+
+BEEP! Another notification of Trump content on /r/All of Reddit breaking news fandom platform.
+
+* Published January 2015, before Trump started run for office in June 2015: https://www.Politico.com/magazine/story/2015/01/putin-russia-tv-113960/ At one end of the table sat one of the country’s most famous political TV presenters. He was small and spoke fast, with a smoky voice: “We all know there will be no real politics,” he said. “But we still have to give our viewers the sense something is happening. They need to be kept entertained.” “So what should we play with?” he asked. “Shall we attack oligarchs? Who’s the enemy this week? **Politics has got to feel like a movie!**”
+
+Television, TV, /r/Video subreddit, "R. Video". Pop culture. Reddit popularity.
+
+https://old.reddit.com/r/videos/comments/1qstu0i/trump_audibly_shits_himself_on_tv_immediately/o2y02io/
+
+6 day Reddit account. 
+
+https://old.reddit.com/r/oregon/comments/1qsqb5n/today_ice_tear_gassed_families_and_community/o2xfxwb/
+
+https://old.reddit.com/r/oregon/comments/1qsqb5n/today_ice_tear_gassed_families_and_community/o2xhzeg/
+
+That's why I keep an eye on Malala as a global topic (Malala is trying to help girls in every nation, she went to Atlanta to even help USA girls). Little girls being tear gassed and being shot on school bus in Pakistan. People are raised to be super competitive about education and parenting and don't seem to be concerned about other people's children, except to put Taliban in charge as some kind of competition to harm others.
+
+* “We felt like the Taliban saw us as like little dolls to control, telling us what to do and how to dress. I thought if God wanted us to be like that He would not have made us all different.” ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. October 8, 2013
+
+https://old.reddit.com/r/oregon/comments/1qsqb5n/today_ice_tear_gassed_families_and_community/o2xepmw/
+
+The brain rot is visible every hour of every day on how people upvote on Reddit media. We The People are the problem. Nonfiction from Dr. Bandy X Lee should be the center of attention. Fox News cult deprogramming of fiction media via Jen Senko should be build up more and more.
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1qss3wf/please_i_must_know/o2xssc0/
+
+1 month Reddit account. Top voted popular comment.
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1qss3wf/please_i_must_know/o2xsdvi/
+
+Fiction addiction. "Peter" from Family Guy fiction addiction. South Park fiction addiction. Reality TV "The Apprentice" fiction addiction. Fox News SNL "Weekend Update" NYC fiction addiction. Joke addictions. Humor and amusement addictions. People lost their minds to memes and joke-cracking shit-commenting shit-posting Internet about President Tony Clifton actor dong acting. Trump sure isn't skilled as a leader of anything but mockery. An actor mocking USA. The problem is the audience every day and night, not just voting days, but upvoting on Reddit shit-commenting days. Fiction addictions.
+
+There is a fundamental thing people do not grasp: In fiction, anything goes. Fiction stories allow all kinds of plot twists, wild and crazy actions. If you can get USA population to tune into social media venues day in and day out and view the White House as a fiction story to watch... anything goes. People are detached from nonfiction.
+
+* [“The truth is, it’s getting harder to describe the extent to which a meaningful percentage of Americans have dissociated from reality,” Charlie Warzel wrote “I’m Running Out of Ways to Explain How Bad This Is.”](https://www.axios.com/2024/10/19/musk-ackman-election-misinformation) - October 19, 2024 - America’s gullibility crisis, Zachary Basu
+
+https://old.reddit.com/r/AskReddit/comments/1qsrip1/with_the_epstein_files_making_it_glaringly_clear/o2xmseh/
+
+People respect rich actors, rich sports stars, rich singers, rich video game makers. People do not want to take on the new media problem with WikiTribune because you don't get rich doing news for free. We could be open sourcing all medical knowledge, all medical hardware, all medical drugs, all medical treatment methods in a Super Wikipedia. But people don't believe in admiring the common good... they want to admire exclusive unique assets and real estate that nobody else has. Competition of sports, sports mentality. Calling people failures, calling people losers, sports-thinking.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qsxbdr/the_world_is_laughing_at_america/o2yqhc4/
+
+Image on posting title says "lunacy".
+
+Threatening Canada and Greenland is far more lunacy. Health care system. Media addiction. People ignoring Malala as a leader, ignoring Dr. Bandy X Lee as a leader. Trump is a constant source of stimulation for content creation. The abandonment of nonfiction adult education and understanding in favor of Reality TV celebrity Trump and Fox News entertainment. 
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qsxbdr/the_world_is_laughing_at_america/o2yqajx/
+
+How can you trust people who Trust Trump? How can you trust Trump who trusts Putin? How can you trust people who turn to comment with ignorance and avoid getting on the same page of excellent teachers and nonfiction authors... the anti-Wiki anti-FAQ prizing of commenting.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qsxbdr/the_world_is_laughing_at_america/o2yomsz/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qsxbdr/the_world_is_laughing_at_america/o2yvpx7/
+
+Putin did not invade Ukraine because of Epstein files. Hitler didn't start a war because of Epstein files. If the world really cared about young girls, why is Malala group given so little attention... people are so obsessed with Trump's sex life. Trump outright told everyone that being a famous celebrity matters when sexual consent comes out. Rock music stars in the 1970's were doing this more in the open. The Taliban is doing child marriages in Afghanistan and Pakistan. Parents are programming their children to worship Rupert Murdoch and Trump as leaders. 
+
+The foundation being laid here by Reddit programming of minds is that badness has to be about sex. We can have horrible leaders who keep away medical care for decades - that's OK because they didn't have illegal sex acts. Trump needs to be held accountable for ALL BAD, not just what he did out of office in his life, but what he is doing in OUR NAME as a NATION! And it isn't just Donald trump! JD Vance, MAGA congress.
+
+These policies are not distractions from the Epstein list. 
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qsxbdr/the_world_is_laughing_at_america/o2yod2a/
+
+Girls are being abused all over the world by non-famous people!!! The attraction to rich white men as leaders an topic of conversation is taking voices AWAY from girls as it was in the first place. Malala is trying to give voices to girls, and Trump is wrecking all voices with media domination / attention domination.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qsxbdr/the_world_is_laughing_at_america/o2ysahn/
+
+no off-Reddit URL. No quote, no author name.
+
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qsxbdr/the_world_is_laughing_at_america/o2z0kri/
+
+<img width="1428" height="1297" alt="image" src="https://github.com/user-attachments/assets/81877442-525f-4c69-805c-d7fc19a118c2" />
+
+7 month Reddit account. Same comment 3 times on same posting. https://old.reddit.com/r/WhitePeopleTwitter/comments/1qsxbdr/the_world_is_laughing_at_america/o2yzo59/ and https://old.reddit.com/r/WhitePeopleTwitter/comments/1qsxbdr/the_world_is_laughing_at_america/o2yzmi3/
+
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qsxbdr/the_world_is_laughing_at_america/o2z0nvb/
+
+People on social media will not stand up and repeat nonfiction from Dr. Bandy X Lee and be serious! Stop REACTING to MAGA and White House and Trump and follow Dr. Lee's leadership of education and teaching. 
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qsxbdr/the_world_is_laughing_at_america/o2z2v64/
+
+<img width="1030" height="712" alt="image" src="https://github.com/user-attachments/assets/d1d4e11c-8b29-4a46-ad96-28a59c532a6a" />
+
+Yes. Look at the forest for the trees. People ADMIRE Trump for his sexual domination of girls and women. People ADMIRE Trump for his health care harm. People ADMIRE Trump for his pandemic pro-Russia stance. See: https://www.bbc.com/news/world-us-canada-45294192 - the problem is the CULT BEHAVIOR to rich white men. We The People will not turn to authentic good leaders like Jen Senko, Dr. Bandy X Lee, or Malala. Instead, people keep commenting over and over and over and over with spare time and free time about Trump! Trump is an irresistible charm that USA people can not stop fixating on.
+
+Trump having power is a symptom of Russian information warfare since March 2013. Trump is a symptom of Reality TV actor acting entertainment addictions! Recency bias, fixation on white older men (Biden, Trump) in USA population.
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mdslr4j4ws2m https://autistics.life/@RoundSparrow/115995964088967524 }
+
+https://old.reddit.com/r/whenthe/comments/1qswvcb/well_that_was_idiotic/o2ynjkv/
+
+Shit-commenting and shit-posting and abandoning all nonfiction in favor of commenting shit isn't crime. Nor is Trump going to the toilet a crime. But it sure is an attraction for Reddit fandom of shit content.
+
+https://old.reddit.com/r/circled/comments/1qsz9uw/a_week_ago_agents_like_these_massacred_an/o2z0ffq/
+
+1 month Reddit account.
+
+https://old.reddit.com/r/circled/comments/1qsz9uw/a_week_ago_agents_like_these_massacred_an/o2z2mf0/
+
+ICE fandom on Reddit is really into superficial and shallow concerns.
+
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1qsuqkr/kamala_told_us_this_would_happen/o2yfcyx/
+
+Russia started winning hearts and minds to self-harm the USA since March 2013. Trump didn't announce his President run until June 16, 2015. The Ukraine war started February 20, 2014.
+
+People really need to look at the timeline of this. Published January 2015, before Trump started run for office in June 2015: 
+
+* https://www.Politico.com/magazine/story/2015/01/putin-russia-tv-113960/ At one end of the table sat one of the country’s most famous political TV presenters. He was small and spoke fast, with a smoky voice: “We all know there will be no real politics,” he said. “But we still have to give our viewers the sense something is happening. They need to be kept entertained.” “So what should we play with?” he asked. “Shall we attack oligarchs? Who’s the enemy this week? **Politics has got to feel like a movie!**”
+
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1qsuqkr/kamala_told_us_this_would_happen/o2yjz2a/
+
+I'm convinced Neil Postman was correct in year 1985 with his nonfiction book about television news. I am convinced Reddit is the joke-washing mill that embraced Putin's media invasion since March 2013 and has been entertainment drowning USA at large. People will not stand up to hate on Reddit and Bluesky, people promote hate vs. hate, hate for hate, and ignore Dr. Martin Luther King Jr. Today is Sunday.
+
+* February 28, 1954: "Most people can't stand up for their convictions, because the majority of people might not be doing it. See, everybody's not doing it, so it must be wrong. And since everybody is doing it, it must be right. So a sort of numerical interpretation of what's right. But I'm here to say to you this morning that some things are right and some things are wrong. Eternally so, absolutely so. **It's wrong to hate.** It always has been wrong and it always will be wrong. It's wrong in America, it's wrong in Germany, it's wrong in Russia, it's wrong in China. It was wrong in 2000 B.C., and it's wrong in 1954 A.D. It always has been wrong, and it always will be wrong." - Martin Luther King Jr.
+
+* "For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the **true becomes false and the false becomes true**. That's what hate does. You can't see right. **The symbol of objectivity** is lost." - Martin Luther King Jr.
+
+I think Reddit does not want to face up that "love thy neighbor", "love one another" is essential to democracy. Without love and compassion, you get the health care system that the USA has currently - you get manipulated and tricked by Rupert Murdoch using Fox News, you get manipulated and tricked by Putin with the Saint Petersburg Internet Research Agency.... People can not see that ANTI-NATO anti-LOVE anti-FRIENDSHIPS with Canada, Greenland, EU, etc is exactly what the USA has become.
+
+Fox News runs deeper than Kamala. University of Toronto's Marshall McLuhan and NYU's Neil Postman need to be front and center in society recognizing what the Apple iPhone and Apple iPad have done to the population... along with Fox News and Russia's IRA and ... can't forget Cambridge Analtyica. EVERY DAY, ALL DAY not just VOTING DAYS, we are drowning in fiction addictions.
+
+https://old.reddit.com/r/therewasanattempt/comments/1qsyyh0/to_appear_unfazed_by_the_presidents_nuclear/o2yxu50/
+
+What wrecked the USA: the shit-commenting, shit-posting, shit-seeking fandom of shit media. Day in day out. endlessly for over 10 years - Trump as entertainment. ANYTHING to avoid taking seriously the cult of shit on Fox News. Reddit audience could be making Jen Senko a household name with her film about Fox News and other entertainment media addictions. See: https://en.Wikipedia.org/wiki/The_Brainwashing_of_My_Dad - but instead, raging addiction to commenting about Trump runs society.
+
+https://old.reddit.com/r/Music/comments/1qsyp2z/lady_gaga_pauses_tokyo_concert_to_condemn_actions/o2yxlel/
+
+Fairy tale fiction outsells nonfiction. Russia has been manipulating Japanese population too (including the people who produce the news).
+
+* April 5, 2025 — "Russia is waging an information war against Japan and Canada"; "Russia intensifies its information war against Japan and Canada, using propaganda and disinformation to manipulate public opinion" https://odessa-journal.com/russia-is-waging-an-information-war-against-japan-and-canada
+
+https://old.reddit.com/r/Music/comments/1qsyp2z/lady_gaga_pauses_tokyo_concert_to_condemn_actions/o2zp2sl/
+
+https://old.reddit.com/r/Music/comments/1qsyp2z/lady_gaga_pauses_tokyo_concert_to_condemn_actions/o2zakly/
+
+https://old.reddit.com/r/news/comments/1qt028y/leftist_and_liberal_gun_groups_are_seeing_a_rush/o2z5rcl/
+
+Sunday morning commenting on Reddit. Gun worship USA. Instead of turning to mental health professionals and cult deprogramming, follow the Rupert Murdoch billionaire and Putin billionaire mindsets: *hate harder, gun harder*. RIGHT NOW, today, people could be uprising on Reddit to assert the leadership of Dr. Bandy X Lee on mental health of Trump. But instead, stroking guns, male phallic symbols. Trumpism fandom of anti-learning anti-intellectual anti-goodness anti-MLKJr anti-Malala.
+
+* “Assessing dangerousness is different from making a diagnosis: it is dependent on the situation, not the person. Signs of likely dangerousness due to mental disorder can become apparent without a full diagnostic interview and can be detected from a distance, and one is expected to err, if at all, on the side of safety when the risk of inaction is too great.”
+― Bandy X. Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. Published October 3, 2017. PROLOGUE. Page 5.](https://books.google.com/books?id=g0c4DwAAQBAJ&pg=PA5&dq=dangerousness+due+to+mental+disorder+can+become+apparent+without+a+full+diagnostic+interview+and+can+be+detected+from+a+distance&hl=en&newbks=1&newbks_redir=1&sa=X)
+
+https://old.reddit.com/r/news/comments/1qt028y/leftist_and_liberal_gun_groups_are_seeing_a_rush/o2zgaqs/
+
+https://old.reddit.com/r/news/comments/1qt028y/leftist_and_liberal_gun_groups_are_seeing_a_rush/o2z7nfn/
+
+A gathering at the public library to get the hundreds of nonfiction books on cult deprogramming to stand up to MAGA and Putin would be actual progress.
+
+https://old.reddit.com/r/news/comments/1qt028y/leftist_and_liberal_gun_groups_are_seeing_a_rush/o2zad61/
+
+Celebration of Trump leadership. That Trump is leading the USA into more gun worship. With the hate-prizing mass dehumanization worship of machine messaging systems I have seen since Putin's media invasion March 2013 onward... the last thing we need is people who fill their heads with meme fiction armed and promoting "solutions" to problems of spattering brains instead of addressing the Fox News and IRA problems with intelligence and education. Rumors and bullshit off the Internet are how Trump and Putin took power and all that shit now will drive gun conflicts and street gang violence... based on garbage intelligence and bad information.
+
+* “Science is more than a body of knowledge; it is a way of thinking. I have a (year 1995) foreboding of an America in my children’s or grandchildren’s time — when the United States is a service and information economy; when nearly all the key manufacturing industries have slipped away to other countries; when awesome technological powers are in the hands of a very few, and no one representing the public interest can even grasp the issues; when the people have lost the ability to set their own agendas or knowledgeably question those in authority; when, clutching our crystals and nervously consulting our horoscopes, our critical faculties in decline, unable to distinguish between what feels good and what’s true, we slide, almost without noticing, back into superstition and darkness. The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the **30-second** sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but especially a kind of [celebration of ignorance](https://www.youtube.com/watch?v=wcY-x1VuWtE). As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning — not just of science, but of anything — are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995, page 59
+
+https://old.reddit.com/r/news/comments/1qt028y/leftist_and_liberal_gun_groups_are_seeing_a_rush/o2zhdvn/
+
+11 month Reddit account.
+
+https://old.reddit.com/r/AdviceAnimals/comments/1qt1bkt/fox_guarding_the_henhouse/o2zgrno/
+
+Cult of "Daddy issues" and cult of mocking. Entire nation driven by machine-logic messaging systems.
+
+* [“The truth is, it’s getting harder to describe the extent to which a meaningful percentage of Americans have dissociated from reality,” Charlie Warzel wrote “I’m Running Out of Ways to Explain How Bad This Is.”](https://www.axios.com/2024/10/19/musk-ackman-election-misinformation) - October 19, 2024 - America’s gullibility crisis, Zachary Basu
+
+https://old.reddit.com/r/AdviceAnimals/comments/1qt1bkt/fox_guarding_the_henhouse/o2zjwrs/
+
+Trump fandom. Thrilled at mocking and mockery created by Putin's information warfare since year 2013.
+
+https://old.reddit.com/r/AdviceAnimals/comments/1qt1bkt/fox_guarding_the_henhouse/o2ztebc/
+
+Low-effort short-length Twitter-think. The reply comment is more correct. Fiction addiction to the QAnon monomyth patterns has not disappeared. Names change, but the cult of fiction and mockery still exists. Including Reddit comments that mock nonfiction study of information warfare. SEE_ALSO https://www.Independent.co.UK/news/world/americas/us-election-2020/qanon-russia-conspiracy-theory-trump-2020-election-b1536946.html
+
+https://old.reddit.com/r/AdviceAnimals/comments/1qt1bkt/fox_guarding_the_henhouse/o2zxxbt/
+
+QAnon. SEE_ALSO https://www.Independent.co.UK/news/world/americas/us-election-2020/qanon-russia-conspiracy-theory-trump-2020-election-b1536946.html - but people ignore all the anti-NATO nonsense, pro-Russia nonsense going on with the White House and connecting this to Russian mental manipulation.
+
+https://old.reddit.com/r/AdviceAnimals/comments/1qt1bkt/fox_guarding_the_henhouse/o301pmv/
+
+Pizzagate was fiction storytelling. USA society since year 2013 has abandoned nonfiction serious learning in favor of fiction storytelling content creators like Elon Musk (Twitter), Donald Trump (Truth Social). The media ecology understandings in the society by students and readers of Marshall McLuhan and Neil Postman essentially disappeared. Self-awareness to media addiction was left in the past and people are now raging fiction addicts. Fiction sells, so the measure of "good" is that it is popular and draws an audience. Nonfiction **highly relevant** learning from { Marshall McLuhan, Neil Postman, Joseph Campbell, Bill Moyers, Malala Yousafzai, Peter Pomerantsev, Dr. Bandy X. Lee } have been consistently avoided. 
+
+https://old.reddit.com/r/law/comments/1qt3wsk/trump_goes_scorched_earth_and_vows_to_sue_epstein/o3032in/
+
+Yes. it worked. There was no social media protest, no blackout on social media, no stooping of jokes and a "come to God" movement over the Mueller report and impeachments over Russia. People just keep going back to amusements and sports and sports games, video games, everything but staying focused on Putin and Russia. Now Canada is being openly threatened, Greenland, wrecking of NATO. But still, We The People will not stand up on social media in unity and turn to Dr. Bandy X Lee's book from October 3, 2017.
+
+NONFICTION BOOK QUOTE FOLLOWS:
+
+"the Russian Olympic runner who blew the whistle on Russia’s pervasive doping program, Yuliya Stepanova. Either DT is incomprehensibly naïve regarding Putin’s popularity at home — the 82 percent rating was fabricated — or he was swooning from the compliment when Putin called him “bright” (not a “genius,” as DT has bragged ever since)."
+
+"In addition, during the campaign, DT spoke of “fighting for peaceful regime-change” if elected. (America is not ruled by a regime.) He bloviated that he would “blow out of the water” the seven small Iranian boats whose sailors had harrassed and given the finger to our “beautiful destroyers.” He bragged that “Russia and I would get along really well.” He suggested that maybe “the Second Amendment people” might be able to stop Hillary; that his supporters should patrol voting sites to ensure he was being treated fairly, and that he would love to “hit and hit and hit \[his critics from the DNC\] until their heads spin and they’ll never recover.”     
+
+He insisted that he will “bomb the shit out of ISIS” and order our soldiers to kill their presumed families. He repeatedly goaded supporters to rough up hecklers at his speeches and pontificated that NFL players who refuse to stand for the national anthem should find another country. He quoted Mussolini’s “Better to live one day as a lion than a hundred years as a sheep,” and he expressed genuine bewilderment about why we build nuclear weapons if we don’t use them.   
+
+In the clinical assessment of such frightening characteristics, why would DT admire grotesque tyrants while never praising our own past presidents"
+
+― Bandy X Lee, The Dangerous Case of Donald Trump: 27 Psychiatrists and Mental Health Experts Assess a President. October 3, 2017. Page 12. https://bookreadfree.com/518684/12738168
+
+https://old.reddit.com/r/law/comments/1qt3wsk/trump_goes_scorched_earth_and_vows_to_sue_epstein/o2zzyhh/
+
+Fandom of Trump and Epstein. More information audience, looking forward to more media content -  dirty details of Trump sex life. No desire to remove Trump and address the harm to the world that is ongoing. Popcorn thrills for media addicts to information about rich famous celebrities.
+
+https://old.reddit.com/r/law/comments/1qt3wsk/trump_goes_scorched_earth_and_vows_to_sue_epstein/o302e75/
+
+yes. If We The People wanted hi gone, we would address the very mechanism of Trump and Putin's power over USA. Social media. Stop being entertained and amused by Trump's stimulating content creation and media coverage and all turn to nonfiction books about cult deprogramming. The POPULATION of Trump fandom is the problem. Trump has charmed all media systems to bend to his black hole of Putin's Surkov governing systems.
+
+https://old.reddit.com/r/law/comments/1qt3wsk/trump_goes_scorched_earth_and_vows_to_sue_epstein/o303ag5/
+
+<img width="1167" height="734" alt="image" src="https://github.com/user-attachments/assets/f8771659-dd2d-4f53-8426-eccfda00143a" />
+
+Yes. Trump is jut ONE SINGLE PERSON. An entire nation is on smartphones commenting and ReTweeting about garbage information. We are all Fox News trash addicts, Reality TV "The Apprentice". The problem is extremely deep and serious. THIS IS NOT TRUMP'S FIRST TERM IN OFFICE!!! Dr. Bandy X Lee's nonfiction book has been published since October 3, 2017 and available at any university library or public library! But garbage junk commenting addiction has taken over hearts and minds, Surkov won since March 2013.
+
+WE THE PEOPLE need to RESCUE our own nation from Fox News cult, Newsmax cult, Elon Musk Twitter cult, the word is out that cult followings are the means to power and wealth!!! We can't all be media cultists to horrible leaders as a source of "LOL COW MILKING". Neil Postman's books are not optional learning for every person over age 12 in USA. Marshall McLuhan teaching revival is essential!
+
+Social post { https://autistics.life/@RoundSparrow/115996799882515884 https://bsky.app/profile/roundsparrow.bsky.social/post/3mdsxp7dnfk2f }
+
+https://old.reddit.com/r/videos/comments/1qt301o/trump_has_been_profoundly_incontinent_himself/o2ztpff/
+
+This is the fandom to Epstein shit, Trump shit. People who never get enough of intimate details about celebrity god. Instead of using the free time and spare time to promote and quote Dr. Bandy X Lee, Reddit fandom prizes every dirty detail and clings to Trump as a source of shit-posting shit-commenting amusements.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qt2im4/pressure_crushes_ice/o2zqww0/
+
+6 month Reddit account.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qt2im4/pressure_crushes_ice/o2zt6k6/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qt2im4/pressure_crushes_ice/o2zudsd/
+
+ANSWER: Because Russian won a hearts and minds information war against the USA to prize hate leaders. People are glued at the live coverage of disaster unfolding. People are AVOIDING: nonfiction learning about Russian information warfare and nonfiction about mental health. Dr. Bandy X Lee's book since October 3, 2017 has been largely ignored - when it is exactly the public education and teaching that social media users should be doing.
+
+https://old.reddit.com/r/stupidpeoplefacebook/comments/1qt32lr/grandpa_touched_me/o2zyh9e/
+
+Elon Musk GrokAI an ChatGPT and Microsoft and Google, all billionaires have created this enviornment of unreality. Putin made anti-reality a core military focus since year 2013.
+
+* "what Putin will do next — that he’s unpredictable and thus dangerous. We’re rendered stunned, spun, and flummoxed by the Kremlin’s weaponization of absurdity and unreality.” - year 2014. September 9, 2014 https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/stupidpeoplefacebook/comments/1qt32lr/grandpa_touched_me/o2zt8c0/
+
+Billionaire playground of the Reddit minds. Artificial bullshit. Feeding the fiction addictions.
+
+https://old.reddit.com/r/chaoticgood/comments/1qt5nh8/trump_fucking_audibly_shits_himself_on_tv/o30gwcq/
+
+Fandom of Trump is meme-washing, "LOL COW MILKING" Trump as a constant source of entertainment and mockery. Parroting MAGA talking points as "jokes", that are not funny, because hundreds of millions of people believe bullshit off of media systems like Reddit social and Fox News HDTV.
+
+* “Today, reports of the day’s events are conveyed to the viewing public by way of alternate universes, The Fox News cable channel conveys its version of reality, while at the other end of the ideological spectrum MSNBC presents its version. They and their many counterparts on radio are more the result of an economic dynamic than a political one. Dispatching journalists into the field to gather information costs money; hiring a glib bloviator is relatively cheap, and inviting opinionated guests to vent on the air is entirely cost-free. It wouldn’t work if it weren’t popular, and audiences, it turns out, are endlessly absorbed by hearing amplified echoes of their own biases. It’s divisive and damaging to the healthy functioning of our political system, but it’s also indisputably inexpensive and, therefore, good business.”
+― Ted Koppel. Lights Out: A Cyberattack, A Nation Unprepared, Surviving the Aftermath. October 27, 2015. Page 13.
+
+https://old.reddit.com/r/chaoticgood/comments/1qt5nh8/trump_fucking_audibly_shits_himself_on_tv/o30ei7b/
+
+Fandom of Trumpism.
+
+https://old.reddit.com/r/chaoticgood/comments/1qt5nh8/trump_fucking_audibly_shits_himself_on_tv/o30gb45/
+
+https://old.reddit.com/r/chaoticgood/comments/1qt5nh8/trump_fucking_audibly_shits_himself_on_tv/o30nl9y/
+
+2 month Reddit account. Treating Trump as world class entertainment, Super Bowl amusement. Fandom of Trump.
+
+https://old.reddit.com/r/europe/comments/1qt6ys0/jeffrey_epstein_reportedly_ran_kremlins_largest/o30owwr/
+
+https://old.reddit.com/r/europe/comments/1qt6ys0/jeffrey_epstein_reportedly_ran_kremlins_largest/o30r107/
+
+https://old.reddit.com/r/europe/comments/1qt6ys0/jeffrey_epstein_reportedly_ran_kremlins_largest/o30q751/
+
+https://old.reddit.com/r/europe/comments/1qt6ys0/jeffrey_epstein_reportedly_ran_kremlins_largest/o30plck/
+
+Reddit is the center of joke-washing Putin, humor-wrapping Trump.
+
+https://old.reddit.com/r/europe/comments/1qt6ys0/jeffrey_epstein_reportedly_ran_kremlins_largest/o30pwyv/
+
+The avoidance of nonfiction leaning and teaching is obvious if you seriously mind it. Jen Senko, ignored. Despite Fox News clearly being a crisis. Cult deprogramming nonfiction books ignored. Dr. Bandy X Lee ignored. 
+
+* From September 9, 2014 - https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ "Russia and the Menace of Unreality: How Vladimir Putin is revolutionizing information warfare. By Peter Pomerantsev. At the NATO summit in Wales last week, General Philip Breedlove, the military alliance’s top commander, made a bold declaration. Russia, he said, is waging “the **most amazing information warfare blitzkrieg we have ever seen in the history of information warfare.**” It was something of an underestimation. The new Russia doesn’t just deal in the petty disinformation, forgeries, lies, leaks, and cyber-sabotage usually associated with information warfare. It reinvents reality, creating mass hallucinations that then translate into political action."
+
+https://old.reddit.com/r/mapporncirclejerk/comments/1qt56z0/map_of_countries_whose_leaders_shat_themselves_on/o30dlch/
+
+1 month Reddit account, top-voted comment. Trump is a constant source of entertainment. No other leader can provide the media stimulation to fandoms. Cult of mocking, with a leader of total mockery.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qt79qi/sza_its_offensive_for_black_americans_to_listen/o30py7g/
+
+6 month Reddit account. Top upvoted popular comment.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qt79qi/sza_its_offensive_for_black_americans_to_listen/o30r7xf/
+
+https://old.reddit.com/r/Fauxmoi/comments/1qt79qi/sza_its_offensive_for_black_americans_to_listen/o30r9r9/
+
+https://old.reddit.com/r/Fauxmoi/comments/1qt79qi/sza_its_offensive_for_black_americans_to_listen/o30re6k/
+
+https://old.reddit.com/r/Fauxmoi/comments/1qt79qi/sza_its_offensive_for_black_americans_to_listen/o30s7zy/
+
+https://old.reddit.com/r/politics/comments/1qt4pk6/epstein_files_absolve_me_trump_claims/o308b7o/
+
+Despite the reply comments saying it works on his base... lies work on everyone. The entire society is drowning in fiction storytelling. The first Trump term was before ChatGPT and competing systems came on the market. Before Elon Musk purchased Twitter. Society needs to face up that USA needs to face the avoidance of nonfiction.
+
+https://old.reddit.com/r/politics/comments/1qt4pk6/epstein_files_absolve_me_trump_claims/o307jqw/
+
+https://old.reddit.com/r/politics/comments/1qt4pk6/epstein_files_absolve_me_trump_claims/o305paf/
+
+ToDo: 1951 McLuhan on Orwell. 1985 Postman on Orwell. And their relationship.
+
+https://old.reddit.com/r/politics/comments/1qt4pk6/epstein_files_absolve_me_trump_claims/o307kil/
+
+Yes. Putin and Trump create reality. Fiction overwrites nonfiction.
+
+* "what Putin will do next — that he’s unpredictable and thus dangerous. We’re rendered stunned, spun, and flummoxed by the Kremlin’s weaponization of absurdity and unreality.” - year 2014. September 9, 2014 https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/politics/comments/1qt4pk6/epstein_files_absolve_me_trump_claims/o3069ix/
+
+"Delusional". Twitter-length dilution of serious topics.
+
+Reddit fandom of Trump is a fandom of insulting and mocking. Not a fandom of nonfiction quoting experts. Dr. Bandy X Lee since year 2017 has been documenting Trump's mental health for the public. But low-effort commenting has everyone trapped in avoiding nonfiction serious books.
+
+* "When NPD and psychopathy combine, they form a pattern of behavior called malignant narcissism. This isn’t a diagnosis, but a term coined by psychoanalyst Erich Fromm and elaborated on by personality disorder expert, Otto Kernberg, to describe people so driven by feeling special that they essentially see other people as **pawns in their game** of kill or be killed, whether metaphorically or literally. Hitler, who murdered millions, Kim Jong-un, who’s suspected of ordering his uncle’s and brother-in-law’s deaths, and **Vladimir Putin, who jokes about “liquidating journalists”** — no doubt all fall in the category of malignant narcissist (among possessing other pernicious traits, like sadism, or delight in hurting others)."
+― Bandy X Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. PUBLISHED October 3, 2017. Page 58.](https://books.google.com/books?id=716HDwAAQBAJ&pg=PA58&dq=%22driven+by+feeling+special+that+they+essentially+see+other+people%22&hl=en&newbks=1&newbks_redir=1&sa=X)
+
+https://old.reddit.com/r/politics/comments/1qt4pk6/epstein_files_absolve_me_trump_claims/o318byz/
+
+Multiple off-Reddit links, long-form Reddit comment!
+
+https://old.reddit.com/r/politics/comments/1qt4pk6/epstein_files_absolve_me_trump_claims/o30jhrt/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qt6v4g/nobodys_pretending_anymore_you_either_see_it_or/o30p691/
+
+Posting title and image, "pretending". Yes, fiction. Everyone is pretending that the avoidance of Dr. Bandy X Lee and other critical nonfiction isn't wrecking the nation. Denial abounds. We live in a hostile system that is mass dehumanizing people. Health care was the big red warning sign of humans not being important.
+
+* Rick Roderick, 1993, Duke University: "calls the hyperreal – to stay on this curve of popularity. Hyperreality of course affects us across many different, ah, spectrums. And it’s built on the real. It is not as though the hyperreal could get by without injections of reality in it. It requires – and this is not a principle from Baudrillard but one that I have realised from watching a lot of television – you have to have injections of reality in order to keep the images afloat, occasionally. In fact one of the new, ah, strategies adopted by television – and it serves two functions, one is a cost function – are these reality shows. They have realised that we have become, as it were, too intoxicated with hyperreality. With, you know, Kojak and Supercops and so on, so now we just have shows like “COPS“, where you just go to Fort Worth and just film a bunch of cops being cops. That serves a good intelligent economic interest because you don’t pay cops much just for being cops. It’s not that lucrative, and it injects… well is it reality? Well it is compared only to this scale of hyperreality and only under the sign of being whatever can be simulated." https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qt6v4g/nobodys_pretending_anymore_you_either_see_it_or/o313hxm/
+
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1qtavgu/marjorie_taylor_greene_bluntly_declares_maga_was/o31is9u/
+
+<img width="1116" height="407" alt="image" src="https://github.com/user-attachments/assets/22e4074b-30af-4961-aa6d-964665d99b0a" />
+
+My fucking point exactly. **That point is a core fucking point of this GitHub project**. Trump attraction is the outcome of Cambridge Analytica and the Saint Parkersburg Internet Research Agency. Trump is the product of the biggest mental manipulation success in world history. Surkov cracked the monomyth, at least the dark anti-compassion anti-empathy side of the monomyth.
+
+People I have known my entire life, and others I traveled and knew for 10 or more years, suddenly started being attracted to self-harm father figures, daddy issues, masculine garbage. Anti-Malala even among the most intelligent and thoughtful people. Anti-MLKJr. Surkov won.
+
+* "what Putin will do next — that he’s unpredictable and thus dangerous. We’re rendered stunned, spun, and flummoxed by the Kremlin’s weaponization of absurdity and unreality.” - year 2014. September 9, 2014 https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mdtfy2kucs2m https://autistics.life/@RoundSparrow/115997807521933104 }
+
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1qtavgu/marjorie_taylor_greene_bluntly_declares_maga_was/o31h6ad/
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1qtavgu/marjorie_taylor_greene_bluntly_declares_maga_was/o31h15i/
+
+8 month Reddit account.
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1qtavgu/marjorie_taylor_greene_bluntly_declares_maga_was/o31ha68/
+
+4 month Reddit account.
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1qtavgu/marjorie_taylor_greene_bluntly_declares_maga_was/o31im1m/
+
+https://old.reddit.com/r/Fauxmoi/comments/1qtb8y5/the_two_federal_immigration_agents_who_fired_on/o31jk1f/
+
+https://old.reddit.com/r/Fauxmoi/comments/1qtb8y5/the_two_federal_immigration_agents_who_fired_on/o31kc6l/
+
+https://old.reddit.com/r/Fauxmoi/comments/1qtb8y5/the_two_federal_immigration_agents_who_fired_on/o31l8dz/
+
+https://old.reddit.com/r/allthequestions/comments/1qta8lr/repeat_after_me_trump_is_a_pedophile_and/o31dspc/
+
+4 month Reddit account.
+
+https://old.reddit.com/r/allthequestions/comments/1qta8lr/repeat_after_me_trump_is_a_pedophile_and/o31dpdn/
+
+https://old.reddit.com/r/allthequestions/comments/1qta8lr/repeat_after_me_trump_is_a_pedophile_and/o31cxn5/
+
+https://old.reddit.com/r/allthequestions/comments/1qta8lr/repeat_after_me_trump_is_a_pedophile_and/o31fppr/
+
+https://old.reddit.com/r/allthequestions/comments/1qta8lr/repeat_after_me_trump_is_a_pedophile_and/o31dekf/
+
+https://old.reddit.com/r/allthequestions/comments/1qta8lr/repeat_after_me_trump_is_a_pedophile_and/o31d7yp/
+
+https://old.reddit.com/r/allthequestions/comments/1qta8lr/repeat_after_me_trump_is_a_pedophile_and/o31cjw1/
+
+Fiction storytelling addiction. Church Bible fiction. Fox News fiction. Trump is a fiction storyteller.
+
+https://old.reddit.com/r/allthequestions/comments/1qta8lr/repeat_after_me_trump_is_a_pedophile_and/o31e0wq/
+
+https://old.reddit.com/r/allthequestions/comments/1qta8lr/repeat_after_me_trump_is_a_pedophile_and/o31d5jx/
+
+https://old.reddit.com/r/allthequestions/comments/1qta8lr/repeat_after_me_trump_is_a_pedophile_and/o31dlgh/
+
+https://old.reddit.com/r/allthequestions/comments/1qta8lr/repeat_after_me_trump_is_a_pedophile_and/o31ezx7/
+
+https://old.reddit.com/r/allthequestions/comments/1qta8lr/repeat_after_me_trump_is_a_pedophile_and/o31fc9n/
+
+https://old.reddit.com/r/MurderedByWords/comments/1qtaoz0/meanwhile_on_4chan_after_yesterdays_events/o31gusa/
+
+https://old.reddit.com/r/MurderedByWords/comments/1qtaoz0/meanwhile_on_4chan_after_yesterdays_events/o31fdpe/
+
+https://old.reddit.com/r/MurderedByWords/comments/1qtaoz0/meanwhile_on_4chan_after_yesterdays_events/o31f8va/
+
+Jokes are what matters more than health care and compassion.
+
+https://old.reddit.com/r/pics/comments/1qthiy6/here_is_a_picture_of_teargassed_children/o32z9mq/
+
+https://old.reddit.com/r/pics/comments/1qthiy6/here_is_a_picture_of_teargassed_children/o33020a/
+
+https://old.reddit.com/r/pics/comments/1qthiy6/here_is_a_picture_of_teargassed_children/o32zc4m/
+
+https://old.reddit.com/r/pics/comments/1qthiy6/here_is_a_picture_of_teargassed_children/o32z8hq/
+
+Battleground Reddit.
+
+https://old.reddit.com/r/pics/comments/1qthiy6/here_is_a_picture_of_teargassed_children/o32z6dx/
+
+https://old.reddit.com/r/pics/comments/1qthiy6/here_is_a_picture_of_teargassed_children/o330wjo/
+
+https://old.reddit.com/r/pics/comments/1qthiy6/here_is_a_picture_of_teargassed_children/o32wtkh/
+
+https://old.reddit.com/r/pics/comments/1qthiy6/here_is_a_picture_of_teargassed_children/o3351yf/
+
+https://old.reddit.com/r/pics/comments/1qthiy6/here_is_a_picture_of_teargassed_children/o334c60/
+
+5 month Reddit account
+
+https://old.reddit.com/r/MemeVideos/comments/1qt9pkk/and_they_called_me_schizo/o31gwza/
+
+https://old.reddit.com/r/MemeVideos/comments/1qt9pkk/and_they_called_me_schizo/o32s82f/
+
+https://old.reddit.com/r/MemeVideos/comments/1qt9pkk/and_they_called_me_schizo/o31e6fb/
+
+https://old.reddit.com/r/MemeVideos/comments/1qt9pkk/and_they_called_me_schizo/o31g1jp/
+
+https://old.reddit.com/r/law/comments/1qthn9l/trump_claims_the_right_to_cut_himself_blank/o32ylr8/
+
+8 month Reddit account. Top-upvoted popular comment.
+
+Short Twitter-length logic of polarity mindsets. "reminder" to mock MAGA in a feedback loop that Russia started since March 2013 with the Saint Petersburg Internet Research Agency. Constantly mock Americans vs. Americans and ignore all the NATO Ukraine conflicts that Putin has been using to destabilize reality with. Reddit is a fandom of MAGA. "reminder".
+
+https://old.reddit.com/r/law/comments/1qthn9l/trump_claims_the_right_to_cut_himself_blank/o33lmn8/
+
+USA has morals. Sports stars with armies of medical doctors while fans have no health care or doctor. Expensive name-brand education university sports-team brandings. Anti-Wiki anti-FAQ anti-intellectual copyright and patent restrictions of medicines and knowledge.  Disney into mind, **Mario** into mind of children.
+
+* **YEAR 1993**, children of the 1990's now the adults teaching morality. "I have talked about how children used to learn morality from their parents and now I think that [morality is learned from] Super Mario Brothers. They spend much more time with Super Mario Brothers and are much more emotionally involved with Nintendo than they are with their aunts, their uncles, their mothers and their fathers. I asked one of my children “Why are you yelling at a machine?” when he began to bang his Nintendo, and he looked at me as though I were a being from another world. And because of that there is a postmodern trajectory. I am from another world. I am still, as it were, caught in the modern. He’s not. Why not be emotional with a machine? His peers are machine-like" https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
+
+https://old.reddit.com/r/law/comments/1qthn9l/trump_claims_the_right_to_cut_himself_blank/o330opq/
+
+Trump: POWER, Wealth, Name-fame, Camera appearances / recorded media.
+

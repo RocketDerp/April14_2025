@@ -27,4 +27,15 @@ Fiction media ecology, how science fiction Bible book programs minds, how popula
 
 https://old.reddit.com/r/pics/comments/1qs6a5q/a_vintage_playboy_comic_1970s/
 
+
+&nbsp;
+
+https://old.reddit.com/r/Damnthatsinteresting/comments/1qsogrm/australias_national_anthem_is_the_only/
+
+https://old.reddit.com/r/scienceisdope/comments/1qssi7k/rivers_arent_ritual_dustbins/
+
+https://old.reddit.com/r/HistoryMemes/comments/1qsx5ss/the_buddhas_final_message/
+
+&nbsp;
+
 https://old.reddit.com/r/CuratedTumblr/comments/1qtb8a6/relationships/

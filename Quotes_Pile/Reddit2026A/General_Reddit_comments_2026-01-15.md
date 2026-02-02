@@ -2130,3 +2130,46 @@ https://old.reddit.com/r/technology/comments/1qscn3l/jeffrey_epstein_sent_five_n
 https://old.reddit.com/r/technology/comments/1qscn3l/jeffrey_epstein_sent_five_nights_at_freddys_porn/o2uxsve/
 
 * "these are the phenomenon that Baudrillard **examines with the most care**. Incredible information overloads with information moving at incredible speed and even to the youngest children. I have talked about how **children used to learn morality** from their parents and now I think that [morality is learned from] Super Mario Brothers. They spend much more time with Super Mario Brothers and are **much more emotionally involved with Nintendo than they are with their aunts, their uncles, their mothers and their fathers**. I asked one of my children “Why are you yelling at a machine?” when he began to bang his Nintendo, and he looked at me as though I were a being from another world. And because of that there is a postmodern trajectory. I am from another world. I am still, as it were, caught in the modern. He’s not. Why not be emotional with a machine? **His peers are machine-like**, we have already discussed that. I mean in fact what he sees on the Nintendo screen is his thrill of the day. That’s the most active he’s seen any simulated image that day." - Texan Rick Roderick, Duke University https://RickRoderick.org/308-baudrillard-fatal-strategies-1993/
+
+https://old.reddit.com/r/chaoticgood/comments/1qsx25j/trump_fucking_audibly_shits_himself_on_tv/o2yknzb/
+
+https://old.reddit.com/r/chaoticgood/comments/1qsx25j/trump_fucking_audibly_shits_himself_on_tv/o2yo3ha/
+
+https://old.reddit.com/r/chaoticgood/comments/1qsx25j/trump_fucking_audibly_shits_himself_on_tv/o2yqvdf/
+
+https://old.reddit.com/r/chaoticgood/comments/1qsx25j/trump_fucking_audibly_shits_himself_on_tv/o2yl1yk/
+
+https://old.reddit.com/r/chaoticgood/comments/1qsx25j/trump_fucking_audibly_shits_himself_on_tv/o2ywd2c/
+
+https://old.reddit.com/r/chaoticgood/comments/1qsx25j/trump_fucking_audibly_shits_himself_on_tv/o2ynjeo/
+
+"Imagine". This is what imagination of a Fandom does in a cult.
+
+https://old.reddit.com/r/chaoticgood/comments/1qsx25j/trump_fucking_audibly_shits_himself_on_tv/o2yp1ty/
+
+https://old.reddit.com/r/politics/comments/1qsnsfv/this_doj_is_actually_gaslighting_the_entire/o2wvk8v/
+
+12 day Reddit account. Top upvoted popular comment.
+
+https://old.reddit.com/r/politics/comments/1qsnsfv/this_doj_is_actually_gaslighting_the_entire/o2xrclv/
+
+Gullibility abounds. Denial abounds.
+
+*  [“The truth is, it’s getting harder to describe the extent to which a meaningful percentage of Americans have dissociated from reality,” Charlie Warzel wrote “I’m Running Out of Ways to Explain How Bad This Is.”](https://www.axios.com/2024/10/19/musk-ackman-election-misinformation) - October 19, 2024 - America’s gullibility crisis, Zachary Basu
+
+https://old.reddit.com/r/politics/comments/1qsnsfv/this_doj_is_actually_gaslighting_the_entire/o2x5ccs/
+
+https://old.reddit.com/r/politics/comments/1qsnsfv/this_doj_is_actually_gaslighting_the_entire/o2xeakd/
+
+8 month Reddit account.
+
+https://old.reddit.com/r/politics/comments/1qsm9p9/from_elon_musk_to_the_former_prince_andrew_a_whos/o2z7uk4/
+
+1 month Reddit account. Christmas day.
+
+https://old.reddit.com/r/politics/comments/1qsm9p9/from_elon_musk_to_the_former_prince_andrew_a_whos/o2wpit3/
+
+https://old.reddit.com/r/politics/comments/1qsm9p9/from_elon_musk_to_the_former_prince_andrew_a_whos/o2wlid5/
+
+People just don't get what is going on in Iran, Afghanistan, Pakistan that Malala has nicely pointed out. We have a leader that wants to put girls in the spotlight and stop putting all the direct attention on the elder men. Educate the girls, give girls a voice, let the girls speak up when they are being targeted and manipulated. They are being indoctrinated and need to be educated as to the history.
+
