@@ -812,3 +812,15 @@ https://old.reddit.com/r/law/comments/1qthn9l/trump_claims_the_right_to_cut_hims
 https://old.reddit.com/r/law/comments/1qthn9l/trump_claims_the_right_to_cut_himself_blank/o331wa0/
 
 Fox News HDTV is an adult education network. Adults do not learn in rectangle classrooms. Adults learn from rectangle sports fields of NFL, NBA, Fox News arenas. Media ecology grasping of Marshall McLuhan is not optional - it is the adult education that has been lost-abandoned since year 2012.
+
+https://old.reddit.com/r/law/comments/1qthn9l/trump_claims_the_right_to_cut_himself_blank/o33415d/
+
+<img width="1132" height="325" alt="image" src="https://github.com/user-attachments/assets/80b948cf-5ce8-4f87-bd43-dd9eebd7d781" />
+
+Mocking the obvious of it. But WHY? THERE ARE NO WINNERS WITH TRUMP. MAGA is being HARMED by Trump. The ENTIRE POPULATION OF USA is being harmed by Trump. There are ZERO winners. There are addicts to fame and media content who BELIEVE they are getting a great reward and stimulation from TRUMP, but it's all bullshit. Bullshit upon bullshit! The "winning" is self-harm, THERE ARE ZERO PEOPLE in North America getting any authentic GOODNESS out of Trump being in power and center of all media systems ("The Media", Reddit social, Twitter social, global media, media coverage, etc). Trump is a product of self-harm of media addiction itself!
+
+* “He believed that lack of education was the root of all of **Pakistan’s problems**. Ignorance allowed politicians to fool people and bad administrators to be re-elected.” ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. October 8, 2013. COMPREHENSION matters! Ignorance is not winning, it is self-harm! MAGA is not winning any more than Pakistan is WINNING!
+
+Through the lense of McLuhan and Postman: VOTERS elected what they upvote and elect for on Reddit EVERY DAY. Entertainment. Trump is providing constant stimulation and entertainment. Trump is burning out the American addiction to trash Reality TV media, burning up the nation with media trash fires!
+
+Social post { https://Autistics.Life/@RoundSparrow/116001149117120866 https://bsky.app/profile/roundsparrow.bsky.social/post/3mduviwl4e22c }
