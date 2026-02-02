@@ -1253,3 +1253,7 @@ It's what you experience after consuming low-effort media content over and over 
 https://old.reddit.com/r/JoeRoganReacharound/comments/1qu57zk/joe_rogan_podcast_is_just_the_epstein_client_list/o38h0vf/
 
 Corporate America media technique. FUD. https://en.wikipedia.org/wiki/Fear,_uncertainty,_and_doubt - No author names, no quotes, etc.
+
+https://old.reddit.com/r/JoeRoganReacharound/comments/1qu57zk/joe_rogan_podcast_is_just_the_epstein_client_list/o38qr5r/
+
+Jar Jar didn't platform messages to join The Empire with his popularity and connections. Jar Jar took the Jedi nights to the leader to explain their situation.
