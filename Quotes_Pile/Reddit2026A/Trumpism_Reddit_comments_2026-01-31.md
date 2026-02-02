@@ -924,3 +924,19 @@ https://old.reddit.com/r/politics/comments/1qtsxse/maga_was_all_a_lie_marjorie_t
 
 No off-Reddit URL, no book quotes, no author names, no book titles. Fandom of Trump is fandom of commenting over and over and not getting everyone **on the same page** of nonfiction books.
 
+https://old.reddit.com/r/politics/comments/1qtsxse/maga_was_all_a_lie_marjorie_taylor_greene_torches/o357ytj/
+
+10 month Reddit account.
+
+https://old.reddit.com/r/politics/comments/1qtsxse/maga_was_all_a_lie_marjorie_taylor_greene_torches/o353tfu/
+
+https://old.reddit.com/r/therewasanattempt/comments/1qtut0z/to_hide_melania_in_this_epstein_photo/o35g5k5/
+
+https://old.reddit.com/r/therewasanattempt/comments/1qtut0z/to_hide_melania_in_this_epstein_photo/o35gyge/
+
+3 month Reddit account. Signaling "Wow" signals.
+
+https://old.reddit.com/r/therewasanattempt/comments/1qtut0z/to_hide_melania_in_this_epstein_photo/o35h2ub/
+
+For Reddit /r/All just another set of entertainers producing fiction content for the Reddit fandoms of Reality TV shit. Anything to avoid using Reddit to teach nonfiction from Dr. Bandy X Lee since October 3, 2017 book published.
+
