@@ -1,5 +1,8 @@
 #!/bin/bash
 
+# purge previous output files when doing All.
+rm Output/*_out.md
+
 rm Output/run_summary0.txt
 
 ./run_General0.sh
