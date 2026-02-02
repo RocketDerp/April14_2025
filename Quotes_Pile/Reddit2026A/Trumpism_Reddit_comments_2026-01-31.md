@@ -1073,3 +1073,15 @@ The Somehow is called Russia IRA and Cambridge Analytica. Doctors of psychology 
 
 "What Cambridge Analytica observed was that when respondents were angry, their *need for complete and rational explanations was also significantly reduced*. In particular, anger put people in a frame of mind in which they were more indiscriminately punitive, particularly to out-groups. They would also underestimate the risk of negative outcomes. This led Cambridge Analytica to discover that even if a hypothetical **trade war with China or Mexico meant the loss of American jobs and profits**, people primed with anger would tolerate that domestic economic damage if it meant they could use a trade war to punish immigrant groups and urban liberals.”
 ― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the **Plot to Break** America, page 128, **year 2019**
+
+https://old.reddit.com/r/atheism/comments/1qu3cuj/republicans_are_panicking_because_democratic/o378lxt/
+
+https://old.reddit.com/r/atheism/comments/1qu3cuj/republicans_are_panicking_because_democratic/o378lz2/
+
+https://old.reddit.com/r/atheism/comments/1qu3cuj/republicans_are_panicking_because_democratic/o37a8zy/
+
+I don't find The Bible storybook to be any more silly than comparable science fiction such as Hamlet's Ghost or Star Wars 1977 "Force Ghost" voices in Luke's head. What I do find horrific is people who will not stand up to hate since **The 1954 Equation** was introduced.
+
+* February 28, 1954: "Most people can't stand up for their convictions, because the majority of people might not be doing it. See, everybody's not doing it, so it must be wrong. And since everybody is doing it, it must be right. So a sort of numerical interpretation of what's right. But I'm here to say to you this morning that some things are right and some things are wrong. Eternally so, absolutely so. **It's wrong to hate.** It always has been wrong and it always will be wrong. It's wrong in America, it's wrong in Germany, it's wrong in Russia, it's wrong in China. It was wrong in 2000 B.C., and it's wrong in 1954 A.D. It always has been wrong, and it always will be wrong." - Martin Luther King Jr.
+
+* "For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the **true becomes false and the false becomes true**. That's what hate does. You can't see right. **The symbol of objectivity** is lost." - Martin Luther King Jr.
