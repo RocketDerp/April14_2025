@@ -881,3 +881,9 @@ Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mduxxoqvfc
 No language pattern, no meme pattern arrangement, can break past the shit-worship Trump fandoms.
 
 * Year 1988, lessons for Star Wars Hollywood fandoms... BILL MOYERS: **We seem to worship celebrities today**, not heroes. JOSEPH CAMPBELL: **Yes**, and that’s too bad. A questionnaire was once sent around one of the high schools in Brooklyn which asked, “What would you like to be?” Two thirds of the students responded, “A celebrity.” They had no notion of having to give of themselves in order to achieve something. MOYERS: Just to be known. CAMPBELL: Just to be known, to have fame—name and fame. It’s too bad.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qtn7x8/donald_trump_goes_on_grammys_rant_threatening_to/o354i6h/
+
+LEARN RUSSIAN INFORMATION WARFARE! Learn Putin! Study and analyze Kremlin! This is how Russia defeated NATO since March 2013!!!
+
+* "what Putin will do next — that he’s unpredictable and thus dangerous. **We’re rendered stunned**, spun, and flummoxed by the Kremlin’s weaponization of absurdity and unreality.” - **year 2014**. September 9, 2014 https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
