@@ -23,3 +23,8 @@ OPERA_A https://www.youtube.com/watch?v=ChhCpSVrjvU 9,353,817 views March 5, 202
 https://old.reddit.com/r/okbuddycinephile/comments/1qtp2t0/favorite_actordirector_who_was_called_crazy_for/o34eph9/
 
 https://old.reddit.com/r/okbuddycinephile/comments/1qtp2t0/favorite_actordirector_who_was_called_crazy_for/o34kuor/
+
+https://old.reddit.com/r/seinfeld/comments/1qu2cwl/jerry_has_been_named_in_the_epstein_files/o3724za/
+
+https://old.reddit.com/r/seinfeld/comments/1qu2cwl/jerry_has_been_named_in_the_epstein_files/o3738uq/
+
