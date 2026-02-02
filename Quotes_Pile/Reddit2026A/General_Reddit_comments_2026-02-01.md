@@ -20,4 +20,6 @@ If only people could recognize how predictable this pattern of mind-blowing is..
 
 OPERA_A https://www.youtube.com/watch?v=ChhCpSVrjvU 9,353,817 views March 5, 2020
 
+https://old.reddit.com/r/okbuddycinephile/comments/1qtp2t0/favorite_actordirector_who_was_called_crazy_for/o34eph9/
 
+https://old.reddit.com/r/okbuddycinephile/comments/1qtp2t0/favorite_actordirector_who_was_called_crazy_for/o34kuor/
