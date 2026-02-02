@@ -901,3 +901,11 @@ Trump fandom on Reddit: FUNNY! Entertaining!!! An actor doing acting, a Reality 
 https://old.reddit.com/r/Fauxmoi/comments/1qtn7x8/donald_trump_goes_on_grammys_rant_threatening_to/o342t0k/
 
 "LOL", Trump Fandom hanging on every antic and Truth Social posting screenshot over to Reddit front page /r/All - the TRUE FANDOM of Trump is Reddit audience! The hate-watching fandoms. https://en.wikipedia.org/wiki/Hate-watching "Closely related to anti-fan behaviours, viewers who partake in hate-watching derive pleasure and entertainment from a show's absurdities or failures." - The Trump lovers of USA collect on Reddit to mock and mock all goodness into the world into shit!
+
+https://old.reddit.com/r/politics/comments/1qtsxse/maga_was_all_a_lie_marjorie_taylor_greene_torches/o353r30/
+
+Not just supporters. Trump leads Reddit and Bluesky with hate leadership. Trump leads with hate, Reddit end-users follow hate. ANYTHING to avoid asserting MLK Jr in face of Trump. Russia won, Surkov won since March 2013.
+
+NATO is in ruins because people can not focus on Putin's Saint Petersburg Internet Research Agency and the newer names and copycats.
+
+* "For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the **true becomes false and the false becomes true**. That's what hate does. You can't see right. **The symbol of objectivity** is lost." - Martin Luther King Jr.
