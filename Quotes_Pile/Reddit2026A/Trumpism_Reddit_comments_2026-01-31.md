@@ -986,3 +986,12 @@ Everything is Media Ecology. https://github.com/RocketDerp/April14_2025/blob/mai
 https://old.reddit.com/r/nottheonion/comments/1qtt9ng/biggest_streaming_reddit_livestreamfail_bans_all/o3556qz/
 
 https://old.reddit.com/r/nottheonion/comments/1qtt9ng/biggest_streaming_reddit_livestreamfail_bans_all/o35780i/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qtvnua/cooked_in_the_comments/o35n538/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qtvnua/cooked_in_the_comments/o35nppf/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qtvnua/cooked_in_the_comments/o35m6bb/
+
+Superficial and shallowness catches the Reddit Trump fandom. Orange face cosmetics, etc. People who will not REMOVE TRUMP from power by facing the Fox News HDTV shallowness addictions all over Reddit commenting culture. ANYTHING to avoid Dr. Bandy X Lee's leadership out of the mental health disaster that Trump fandoms create on Reddit. We The People are unable to engage serious nonfiction books. The Reddit cult loyalty is to mocking, Trump leads with mockery. Nonfiction on the topic avoided to clean up the disaster artists addictions nation.. AVOIDING repeating... such as: https://www.ScientificAmerican.com/article/the-shared-psychosis-of-donald-trump-and-his-loyalists/
+
