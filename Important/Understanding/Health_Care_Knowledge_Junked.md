@@ -250,3 +250,5 @@ https://old.reddit.com/r/science/comments/1qqi09c/study_marijuana_access_associa
 Health care knowledge junked: following Putin and Trump leadership of mocking and insulting goodness. 
 
 https://old.reddit.com/r/interestingasfuck/comments/1qrcfqe/man_be_harassed_for_his_looks_yet_found_a/
+
+https://old.reddit.com/r/UpliftingNews/comments/1qtpulu/goodbye_to_the_idea_that_solar_panels_die_after/
