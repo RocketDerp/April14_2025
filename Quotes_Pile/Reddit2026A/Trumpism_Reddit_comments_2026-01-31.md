@@ -1319,3 +1319,20 @@ https://old.reddit.com/r/TwoXChromosomes/comments/1qu9t54/new_study_explains_why
 https://old.reddit.com/r/TwoXChromosomes/comments/1qu9t54/new_study_explains_why_listening_to_joe_rogan/o38v7c0/
 
 https://old.reddit.com/r/TwoXChromosomes/comments/1qu9t54/new_study_explains_why_listening_to_joe_rogan/o38tgin/
+
+https://old.reddit.com/r/politics/comments/1qu51d6/trump_we_should_take_over_the_voting/o37m7cl/
+
+https://old.reddit.com/r/politics/comments/1qu51d6/trump_we_should_take_over_the_voting/o37x70a/
+
+https://old.reddit.com/r/politics/comments/1qu51d6/trump_we_should_take_over_the_voting/o37mi6y/
+
+2 month Reddit account.
+
+https://old.reddit.com/r/politics/comments/1qu51d6/trump_we_should_take_over_the_voting/o37lm84/
+
+4 month Reddit account.
+
+https://old.reddit.com/r/politics/comments/1qu51d6/trump_we_should_take_over_the_voting/o37l43k/
+
+At what point do We The People, the end-users of Reddit and Bluesky, stop commenting on every single media release of Trump content and turn to Dr. Bandy X Lee and quote her nonfiction public education? Start teaching and educating everyone over age 12! Some topics are far more important that commenting on every little Trump press release, Trump photograph, and statement.
+
