@@ -26,3 +26,5 @@ October 8, 2013 - Swat Valley Pakistan. What came in more recent decades since 1
 Fiction media ecology, how science fiction Bible book programs minds, how popular magazine fiction printing programs minds.  Fiction monomyth vs. fiction monomyth storytelling. The Bible does not have color images, color media printing. But both Bible and magazine promote all-powerful male dictatorship. Girl in comic is invoking Romans 11:32 concept to Sky daddy Allah / Yahweh / Jesus male dominator.
 
 https://old.reddit.com/r/pics/comments/1qs6a5q/a_vintage_playboy_comic_1970s/
+
+https://old.reddit.com/r/CuratedTumblr/comments/1qtb8a6/relationships/
