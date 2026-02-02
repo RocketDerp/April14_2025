@@ -626,4 +626,8 @@ https://old.reddit.com/r/PeterExplainsTheJoke/comments/1qtv7i1/petah/o35w6d1/
 
 Hollywood is image trafficking for audiences.
 
+https://old.reddit.com/r/UnderReportedNews/comments/1qu0fkp/no_that_is_not_your_job_say_critics_after_schumer/o36nqjz/
 
+https://old.reddit.com/r/UnderReportedNews/comments/1qu0fkp/no_that_is_not_your_job_say_critics_after_schumer/o36r2ih/
+
+Science fiction popularity. The science fiction trilogy { Torah, Bible, Quran, Book of Mormon, etc } is incredibly popular. Very famous locations for these stories.
