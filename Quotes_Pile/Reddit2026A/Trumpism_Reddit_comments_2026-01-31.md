@@ -897,3 +897,7 @@ https://old.reddit.com/r/Fauxmoi/comments/1qtn7x8/donald_trump_goes_on_grammys_r
 Trump fandom on Reddit: FUNNY! Entertaining!!! An actor doing acting, a Reality TV star is so entertaining to the Reddit end-users!
 
 * "what Putin will do next — that he’s unpredictable and thus dangerous. **We’re rendered stunned**, spun, and flummoxed by the Kremlin’s weaponization of absurdity and unreality.” - **year 2014**. September 9, 2014 https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/Fauxmoi/comments/1qtn7x8/donald_trump_goes_on_grammys_rant_threatening_to/o342t0k/
+
+"LOL", Trump Fandom hanging on every antic and Truth Social posting screenshot over to Reddit front page /r/All - the TRUE FANDOM of Trump is Reddit audience! The hate-watching fandoms. https://en.wikipedia.org/wiki/Hate-watching "Closely related to anti-fan behaviours, viewers who partake in hate-watching derive pleasure and entertainment from a show's absurdities or failures." - The Trump lovers of USA collect on Reddit to mock and mock all goodness into the world into shit!
