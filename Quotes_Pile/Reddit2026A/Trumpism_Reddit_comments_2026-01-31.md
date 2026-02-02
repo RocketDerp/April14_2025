@@ -1336,3 +1336,15 @@ https://old.reddit.com/r/politics/comments/1qu51d6/trump_we_should_take_over_the
 
 At what point do We The People, the end-users of Reddit and Bluesky, stop commenting on every single media release of Trump content and turn to Dr. Bandy X Lee and quote her nonfiction public education? Start teaching and educating everyone over age 12! Some topics are far more important that commenting on every little Trump press release, Trump photograph, and statement.
 
+https://old.reddit.com/r/politics/comments/1qu51d6/trump_we_should_take_over_the_voting/o37q0v5/
+
+https://old.reddit.com/r/politics/comments/1qu51d6/trump_we_should_take_over_the_voting/o37o3as/
+
+<img width="1111" height="755" alt="image" src="https://github.com/user-attachments/assets/eb17a008-6120-4d04-9ed9-1f7811d90bcb" />
+
+Chaos is exactly what Putin does! But Reddit users can not turn to nonfiction books and authors and quote anything. Just reaction commenting over and over and over year after year. Note the Reddit account username context.
+
+* "what Putin will do next — that he’s unpredictable and thus dangerous. We’re rendered stunned, spun, and flummoxed by the Kremlin’s weaponization of absurdity and unreality.” - year 2014. September 9, 2014 https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+Social post { https://autistics.life/@RoundSparrow/116003724704241534 https://bsky.app/profile/roundsparrow.bsky.social/post/3mdw26457tc2q }
+
