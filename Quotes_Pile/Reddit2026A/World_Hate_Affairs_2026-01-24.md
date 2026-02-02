@@ -449,3 +449,20 @@ https://old.reddit.com/r/GetNoted/comments/1qszrki/it_turns_out_that_epsteins_li
 
 the "flex" is twitter-think. Shallow superficial commenting. Epstein topic fandom. People who are not serious about turning the topic to young girls and Malala's reformations... but just want to promote simple-thinking ideas and avoidance of Malala's nonfiction education, teaching, learning, comprehension, understanding focus. Twitter-thinking is about avoidance of deeper understanding and attraction to high-speed "rush" of notification delivery.
 
+https://old.reddit.com/r/UnderReportedNews/comments/1qtej1k/gaines_i_believe_that_words_like_compassion/o32a0sw/
+
+One of the core themes of this GitHub project.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qtej1k/gaines_i_believe_that_words_like_compassion/o32a37w/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qtej1k/gaines_i_believe_that_words_like_compassion/o329f7b/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qtej1k/gaines_i_believe_that_words_like_compassion/o32alyq/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qtej1k/gaines_i_believe_that_words_like_compassion/o32b3ak/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qtej1k/gaines_i_believe_that_words_like_compassion/o32bql7/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qtej1k/gaines_i_believe_that_words_like_compassion/o32b46r/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qtej1k/gaines_i_believe_that_words_like_compassion/o32d8he/
