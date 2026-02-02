@@ -487,3 +487,11 @@ People see their friends at work get charmed by Donald Trump. And people still d
 
 Not taking on Rupert Murdoch's factory of charming methods and charming techniques with Neil Postman's books is how Putin defeated NATO and USA.
 
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qtl6dd/who_is_it_who_was_epsteins_boss/o33qaou/
+
+Dimwitted populace is afraid to create messages past TLDR. The dim lighting of the content people consume is more the concern. The dim meme thinking. Because the rapid delivery of the notification is more important to people than anything. Having to re-read the message 3 day later to better understand and ponder it rarely matters to people. Just the rush of the highway speed.
+
+This GitHub project is to draw circles around all the avoided: Dr. Bandy X Lee. Jen Senko. that's enough for me. Why are a Baby Boomer woman and a Gen X woman not "good enough" as leaders? Both are out there enough. Malala is out there. But the charm older men hold over people is unbreakable when it comes to thinking. Allah in the sky is unbreakable thinking pattern. Jesus male in the sky on judgement day is unbreakable programming. Yahweh in the sky. The "Mary Sue" avoidance of Dr. Bandy X Lee and Jen Senko and Malala Y.
+
+It never ever could have been more obvious than Putin and trump's relationship. Putin fucking kidnaps children from Ukraine.
+
