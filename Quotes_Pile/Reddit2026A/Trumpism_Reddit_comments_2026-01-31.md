@@ -1000,3 +1000,16 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1qtvnua/cooked_in_the_comme
 Fandom of MAGA on Reddit. Fandom of MAGA values. Fandom of short messaging Twitter-thinking patterns that further MAGA mindsets. Gender, sex Epstein fandom on Reddit. Fans of Cambridge Analytica aftermath. Cheering section for billionaire-cultivated images and MAGA content.
 
 * "The work was all about trying to anticipate how people would internalize and then spread cultural information — whether that meant in joining a death cult or in choosing a wardrobe. Bannon immediately grasped all of this, even telling me that he believed, as I do, **that politics and fashion are essentially products of the same phenomenon**. It was obvious that he treated intelligence gathering in a broad and deep way, which is not something I’ve seen many people in politics do. And that’s what makes him so powerful. He reads about **intersectional feminism or the fluidity of identity** not, as I later learned, because he’s open to those ideas but because he wants to invert them — to identify what people attach themselves to and then to weaponize it. What I didn’t know that day was that Bannon wanted to fight a cultural war, and so he had come to the people who specialized in informational weapons to help him build his arsenal." ― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the Plot to Break America, chapter 4 "Steve From America", page ??, year 2019
+
+https://old.reddit.com/r/comedyheaven/comments/1qttt1k/poop/o35byj9/
+
+<img width="1038" height="537" alt="image" src="https://github.com/user-attachments/assets/41bb9cfb-f94b-4c05-9aa6-fd5d39876412" />
+
+Note the front page-posting title "Poop", no other description. Draws a massive Reddit audience. Shit-commenting shit-posting enshitification Nation that prizes Trump shit-media creation. 
+
+This description of Adam West and Patrick Stewart, both actors, people on Reddit can't connect the dot of age 79 year old actor Donald Trump performing Surkov screenplays for Putin. With SNL Tony Clifton persona. 
+
+REDDIT community... avoidance of non-fiction learning about Russian information warfare on Reddit is constant on Reddit. Reddit is the front-line of people who prize shit media so much they follow Trump's Truth Social shit-posting in shitting all over Canada, Greenland, the World Wide Web of shit-prizing fandom (is Reddit). HOW DOES ONE DESCRIBE THIS SHIT-SHOT NATION USA February 2026?!!!!
+
+* Published January 2015, before Trump started run for office in June 2015: https://www.Politico.com/magazine/story/2015/01/putin-russia-tv-113960/ At one end of the table sat one of the country’s most famous political TV presenters. He was small and spoke fast, with a smoky voice: “We all know there will be no real politics,” he said. “But we still have to give our viewers the sense something is happening. They need to be kept entertained.” “So what should we play with?” he asked. “Shall we attack oligarchs? Who’s the enemy this week? **Politics has got to feel like a movie!**”
+
