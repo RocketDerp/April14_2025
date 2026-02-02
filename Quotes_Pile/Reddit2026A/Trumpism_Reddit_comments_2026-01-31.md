@@ -1062,3 +1062,14 @@ Note the Reddit posting title: how hard it is for people to not laugh at the ant
 https://old.reddit.com/r/IThinkYouShouldLeave/comments/1qu1qsn/not_trying_to_be_funny_not_trying_to_get_a_laugh/o370yvi/
 
 2 month Reddit account.
+
+https://old.reddit.com/r/videos/comments/1qu36x0/ice_agents_are_leaving_death_cards_after/o377g7o/
+
+Reddit fandom of ICE videos in /r/Video is not quoting Dr. Bandy X Lee's nonfiction book. Instead, the Reddit fandom keeps commenting over and over and every video instead of addressing the mental health crisis through education an teaching of We The People to We The People.
+
+https://old.reddit.com/r/videos/comments/1qu36x0/ice_agents_are_leaving_death_cards_after/o37991c/
+
+The Somehow is called Russia IRA and Cambridge Analytica. Doctors of psychology got it into their minds.
+
+"What Cambridge Analytica observed was that when respondents were angry, their *need for complete and rational explanations was also significantly reduced*. In particular, anger put people in a frame of mind in which they were more indiscriminately punitive, particularly to out-groups. They would also underestimate the risk of negative outcomes. This led Cambridge Analytica to discover that even if a hypothetical **trade war with China or Mexico meant the loss of American jobs and profits**, people primed with anger would tolerate that domestic economic damage if it meant they could use a trade war to punish immigrant groups and urban liberals.”
+― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the **Plot to Break** America, page 128, **year 2019**
