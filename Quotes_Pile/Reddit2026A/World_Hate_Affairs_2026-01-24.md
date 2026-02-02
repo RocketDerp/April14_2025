@@ -543,3 +543,12 @@ https://old.reddit.com/r/UnderReportedNews/comments/1qto9uz/epstein_and_putin_we
 
 Then what is Putin's motivation? Is there some even bigger man above Putin who has sex tapes of Putin? This simple-think Tweet-length mindsets. Fiction addiction drives Trump and Reddit both. Fiction storytelling. FACTS of VIDEO of sex acts and photographs do not convince people. What convinces people is Star Wars science fiction. Mecca theme park of Quran science fiction! The White House is a Rupert Murdoch theme park of Fox News science fiction storytelling! WOKE TO WHAT? 1923 Finn's Hotel WAKE UP MORNING CHECKOUT TIME!
 
+https://old.reddit.com/r/UnderReportedNews/comments/1qto9uz/epstein_and_putin_were_connected_as_worlds/o349i36/
+
+<img width="1261" height="1373" alt="image" src="https://github.com/user-attachments/assets/57f1aaa9-7a11-4bf8-b030-3653fe1dac54" />
+
+Read the replies: people wonder why Trump kisses Putin's ass so much.
+
+THE REAL **WE THE PEOPLE CONCERN** IS WHY REDDIT AUDIENCE MEMBERS KISS TRUMP's SHIT ASS OUTPUT "CONTENT" SO MUCH! Why hundreds of millions of people can never ever get enough Trump shit on Reddit /r/All Shit-Posting Shit-Commenting training media camp!
+
+Social post { https://autistics.life/@RoundSparrow/116000911473366346 https://bsky.app/profile/roundsparrow.bsky.social/post/3mdus53jdik2q }
