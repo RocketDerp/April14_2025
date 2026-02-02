@@ -940,3 +940,6 @@ https://old.reddit.com/r/therewasanattempt/comments/1qtut0z/to_hide_melania_in_t
 
 For Reddit /r/All just another set of entertainers producing fiction content for the Reddit fandoms of Reality TV shit. Anything to avoid using Reddit to teach nonfiction from Dr. Bandy X Lee since October 3, 2017 book published.
 
+https://old.reddit.com/r/therewasanattempt/comments/1qtut0z/to_hide_melania_in_this_epstein_photo/o35hsof/
+
+Reddit fandom to rich Daddy White Men sex acts and sexual conquests dirty details. Reddit is where people come to express their fandom to Donald Trumps content creation and family photos.
