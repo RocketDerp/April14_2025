@@ -909,3 +909,18 @@ Not just supporters. Trump leads Reddit and Bluesky with hate leadership. Trump 
 NATO is in ruins because people can not focus on Putin's Saint Petersburg Internet Research Agency and the newer names and copycats.
 
 * "For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the **true becomes false and the false becomes true**. That's what hate does. You can't see right. **The symbol of objectivity** is lost." - Martin Luther King Jr.
+
+https://old.reddit.com/r/politics/comments/1qtsxse/maga_was_all_a_lie_marjorie_taylor_greene_torches/o3547uf/
+
+10 day Reddit account. Highly upvoted.
+
+https://old.reddit.com/r/politics/comments/1qtsxse/maga_was_all_a_lie_marjorie_taylor_greene_torches/o353dk7/
+
+5 month Reddit account. Low-effort commenting. Popular upvoted. Twitter-length Tweet-thinking. Anything to avoid WHY people are so fixated on Trump as a source of information. Avoiding: Dr. Bandy X Lee's mental health topics.
+
+https://old.reddit.com/r/politics/comments/1qtsxse/maga_was_all_a_lie_marjorie_taylor_greene_torches/o353s0j/
+
+https://old.reddit.com/r/politics/comments/1qtsxse/maga_was_all_a_lie_marjorie_taylor_greene_torches/o356me3/
+
+No off-Reddit URL, no book quotes, no author names, no book titles. Fandom of Trump is fandom of commenting over and over and not getting everyone **on the same page** of nonfiction books.
+
