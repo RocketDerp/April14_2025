@@ -968,3 +968,17 @@ https://old.reddit.com/r/PublicFreakout/comments/1qtw4v6/potus_poops_his_pants_0
 The Reddit fandom is so thrilled with the POTUS Tony Clifton performance by the lead actor.
 
 * “When a population becomes distracted by trivia, when cultural life is redefined as a perpetual round of entertainments, when serious public conversation becomes a form of baby-talk, when, in short, a people become an audience, and their public business a vaudeville act, then a nation finds itself at risk; culture-death is a clear possibility.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. Year 1985. SEE_ALSO  September 10, 2025: https://Time.com/7313999/neil-postman-trump-prediction/
+
+https://old.reddit.com/r/nottheonion/comments/1qtt9ng/biggest_streaming_reddit_livestreamfail_bans_all/o355ez3/
+
+Trumpism fandom is so profitable. Fanatics of Trump can never get enough, over and over they want stimulation from Trump on Reddit.
+
+https://old.reddit.com/r/nottheonion/comments/1qtt9ng/biggest_streaming_reddit_livestreamfail_bans_all/o355wgl/
+
+https://old.reddit.com/r/nottheonion/comments/1qtt9ng/biggest_streaming_reddit_livestreamfail_bans_all/o356271/
+
+Donald Trump is fiction storytelling leadership (Surkovian screenplays), so anything goes in fictions!
+
+https://old.reddit.com/r/nottheonion/comments/1qtt9ng/biggest_streaming_reddit_livestreamfail_bans_all/o35au43/
+
+Everything is Media Ecology. https://github.com/RocketDerp/April14_2025/blob/main/Media_Ecology/Everything_is_ME.md
