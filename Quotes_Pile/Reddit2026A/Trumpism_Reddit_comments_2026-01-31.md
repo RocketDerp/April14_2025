@@ -1220,5 +1220,19 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1qu2rka/subpoena_petter_thi
 
 All it takes to get We the People to fall in line is a slight difference in language usage. Reddit machine tech lovers (look at user profile on Reddit) hate human persons and asserting humanism. This is why billionaires have invested so much in artificial intelligence that can rephrase and re-speak what real humans have to say - because of "good taste" listening / egoism of the audience like this Reddit user is promoting (ego rejection of anyone non-conforming).
 
+https://old.reddit.com/r/JoeRoganReacharound/comments/1qu57zk/joe_rogan_podcast_is_just_the_epstein_client_list/o37njef/
 
+Masculine macho network, man's men, Joe Rogan Experience of men who admire Daddy Putin and Daddy Trump.
+
+https://old.reddit.com/r/JoeRoganReacharound/comments/1qu57zk/joe_rogan_podcast_is_just_the_epstein_client_list/o37nkhg/
+
+https://old.reddit.com/r/JoeRoganReacharound/comments/1qu57zk/joe_rogan_podcast_is_just_the_epstein_client_list/o37sc5g/
+
+https://old.reddit.com/r/JoeRoganReacharound/comments/1qu57zk/joe_rogan_podcast_is_just_the_epstein_client_list/o37qgtx/
+
+https://old.reddit.com/r/JoeRoganReacharound/comments/1qu57zk/joe_rogan_podcast_is_just_the_epstein_client_list/o37q5vx/
+
+https://old.reddit.com/r/JoeRoganReacharound/comments/1qu57zk/joe_rogan_podcast_is_just_the_epstein_client_list/o37rplc/
+
+ANSWER: Pro-men mind-fucking by Russia's Internet Research Agency since March 2013. Executive function mind manipulation via Reddit, Twitter, Facebook, etc. All the male-leader Joe Rogan values spelled out December 20, 2013 - https://www.TheAtlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/ - Conservative men ruling women and girls.  - but audiences of Reddit are unable to seriously engage nonfiction learning on Kremlin agenda and techniques.
 
