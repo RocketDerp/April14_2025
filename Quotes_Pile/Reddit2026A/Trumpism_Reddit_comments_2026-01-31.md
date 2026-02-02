@@ -824,3 +824,7 @@ Mocking the obvious of it. But WHY? THERE ARE NO WINNERS WITH TRUMP. MAGA is bei
 Through the lense of McLuhan and Postman: VOTERS elected what they upvote and elect for on Reddit EVERY DAY. Entertainment. Trump is providing constant stimulation and entertainment. Trump is burning out the American addiction to trash Reality TV media, burning up the nation with media trash fires!
 
 Social post { https://Autistics.Life/@RoundSparrow/116001149117120866 https://bsky.app/profile/roundsparrow.bsky.social/post/3mduviwl4e22c }
+
+https://old.reddit.com/r/law/comments/1qthn9l/trump_claims_the_right_to_cut_himself_blank/o337uqw/
+
+Trump is a media clip collector. A scrapbook collector of media. Photograph collector. Travel location collector. My wife was a scrap-booker... I've seen it intimately. "Those who die with the most toys wins" USA mindset programmed by being raised under Edward Bernays common programming of the population. Trump is a NYC Edward Bernays NYC Fred Trump Bernays minded. Consumerism programmed, use it up, burn it up.
