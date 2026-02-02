@@ -871,3 +871,7 @@ Reddit blind faith: comedy and jokes. Never questioned faith. Russia exploited t
 https://old.reddit.com/r/Music/comments/1qtnq1v/trump_slams_grammys_threatens_to_sue_trevor_noah/o34bn0k/
 
 Tweet-length Twitter-thinking. A nation attracted to Trump content. Trump fandom of Reddit, the comment creators of Reddit are the Trump fandom year after year after year. A population, an entire nation (voters and nonvoters alike, every day), amused with Reality TV and Grammy awards shit content.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qtn7x8/donald_trump_goes_on_grammys_rant_threatening_to/o342iff/
+
+We The People like this shit-posting shit-commenting shit awards show society Trump leads of a society that adores Celebrity Trump king of Celebrity values and fiction storytelling.
