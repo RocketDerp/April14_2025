@@ -1112,3 +1112,24 @@ Long-form Reddit commenting with off-Reddit links!!!
 
 https://old.reddit.com/r/atheism/comments/1qu3cuj/republicans_are_panicking_because_democratic/o380mp1/
 
+https://old.reddit.com/r/news/comments/1qu2ko1/brazilian_influencer_who_defended_us_immigration/o3730fv/
+
+No. A popular person with a media following is not real reality in hyper-real Trumpism USA. Reddit media addict who know how to get top-upvote comment no longer can relate to real reality. We are not in the first term of Trump, this is the SECOND term. Real reality is way back in year 2011 or so.
+
+* "They have realised that we have become, as it were, too intoxicated with hyperreality. With, you know, Kojak and Supercops and so on, so now we just have shows like “COPS“, where you just go to Fort Worth and just film a bunch of cops being cops. That serves a good intelligent economic interest because you don’t pay cops much just for being cops. It’s not that lucrative, and it injects… **well is it reality? Well it is compared only to this scale of hyperreality** and only under the sign of being whatever can be simulated." - Texan Rick Roderick, Duke University https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
+
+https://old.reddit.com/r/news/comments/1qu2ko1/brazilian_influencer_who_defended_us_immigration/o3734zr/
+
+https://old.reddit.com/r/news/comments/1qu2ko1/brazilian_influencer_who_defended_us_immigration/o37tnuc/
+
+Yes, exactly. Revenge fantasy follower of Trump and his revenge fantasy. Trump fandom think people get what they deserve in MAGA USA 2026. Not true.
+
+https://old.reddit.com/r/news/comments/1qu2ko1/brazilian_influencer_who_defended_us_immigration/o37avyp/
+
+Media cultists / media influencers, are often the most gullible to Putin's Saint Petersburg Internet Research Agency since March 2013.
+
+https://old.reddit.com/r/news/comments/1qu2ko1/brazilian_influencer_who_defended_us_immigration/o37o4o0/
+
+https://old.reddit.com/r/news/comments/1qu2ko1/brazilian_influencer_who_defended_us_immigration/o37d3uy/
+
+They were manipulated by billionaires into fiction addictions, just like Reddit community is constantly manipulated by Elon Musk Twitter owner, Rupert Murdoch Fox News owner, Donald Trump Truth Social, etc. Instead of standing up to Rupert Murdoch, this Reddit hate fandom follows the leadership of Trump's hate worship. Faith of hate. Hate for hate, hate vs. hate. *hate harder* messaging on Reddit machines.
