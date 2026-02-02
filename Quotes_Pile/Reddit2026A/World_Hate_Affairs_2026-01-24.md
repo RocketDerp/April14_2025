@@ -474,3 +474,16 @@ https://old.reddit.com/r/worldnews/comments/1qtdn36/trump_moves_to_raise_tariffs
 People really are ignoring the Ukraine war and Putin leading Trump... and the IRA media warfare.
 
 https://old.reddit.com/r/worldnews/comments/1qtdn36/trump_moves_to_raise_tariffs_on_korea_despite/o3247dn/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qtl6dd/who_is_it_who_was_epsteins_boss/o33tt83/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qtl6dd/who_is_it_who_was_epsteins_boss/o3462pg/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qtl6dd/who_is_it_who_was_epsteins_boss/o33xizy/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qtl6dd/who_is_it_who_was_epsteins_boss/o33wzvl/
+
+People see their friends at work get charmed by Donald Trump. And people still do not get that being charming is hat most people consider important. You can be terrible and evil but if you are charming like Trump, nothing can stop you year after year. Reddit social community is so charmed by Epstein and Trump.
+
+Not taking on Rupert Murdoch's factory of charming methods and charming techniques with Neil Postman's books is how Putin defeated NATO and USA.
+
