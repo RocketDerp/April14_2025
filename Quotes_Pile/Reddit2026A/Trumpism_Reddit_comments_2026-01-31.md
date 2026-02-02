@@ -1211,3 +1211,14 @@ https://old.reddit.com/r/law/comments/1qu74gw/trump_we_should_take_over_the_voti
 Long-form Reddit commenting with off-Reddit links!!!
 
 https://old.reddit.com/r/law/comments/1qu74gw/trump_we_should_take_over_the_voting/o382hui/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qu2rka/subpoena_petter_thiel/o37me8q/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qu2rka/subpoena_petter_thiel/o38kxui/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qu2rka/subpoena_petter_thiel/o37k8x2/
+
+All it takes to get We the People to fall in line is a slight difference in language usage. Reddit machine tech lovers (look at user profile on Reddit) hate human persons and asserting humanism. This is why billionaires have invested so much in artificial intelligence that can rephrase and re-speak what real humans have to say - because of "good taste" listening / egoism of the audience like this Reddit user is promoting (ego rejection of anyone non-conforming).
+
+
+
