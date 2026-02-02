@@ -1139,3 +1139,7 @@ https://old.reddit.com/r/news/comments/1qu2ko1/brazilian_influencer_who_defended
 6 month Reddit account.
 
 "self own". They were manipulated by billionaires into fiction addictions, just like Reddit community is constantly manipulated by Elon Musk Twitter owner, Rupert Murdoch Fox News owner, Donald Trump Truth Social, etc. Instead of standing up to Rupert Murdoch, this Reddit hate fandom follows the leadership of Trump's hate worship. A media cult of hating upon humans via Reddit cloud computing systems.
+
+https://old.reddit.com/r/WorkReform/comments/1qu2338/bernie_sanders_its_a_club_where_the_rules_and_the/o36zz40/
+
+1 week Reddit account. Top upvoted most popular comment.
