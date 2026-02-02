@@ -943,3 +943,14 @@ For Reddit /r/All just another set of entertainers producing fiction content for
 https://old.reddit.com/r/therewasanattempt/comments/1qtut0z/to_hide_melania_in_this_epstein_photo/o35hsof/
 
 Reddit fandom to rich Daddy White Men sex acts and sexual conquests dirty details. Reddit is where people come to express their fandom to Donald Trumps content creation and family photos.
+
+
+https://old.reddit.com/r/therewasanattempt/comments/1qtut0z/to_hide_melania_in_this_epstein_photo/o35lhu3/
+
+<img width="1390" height="1388" alt="image" src="https://github.com/user-attachments/assets/ee66e331-c613-47d9-a852-9acf613f9aca" />
+
+Yes. Calling Reddit out as the Putin cheerleading meme center / joke-washing of Anti-Malala sentiments and teachings. People who adore Trump's antics and Putin's defeat of USA because it offers so many jokes and amusements. The anti-NATO Reddit society that joke-washes Trump to front page clean for the next round of joking.
+
+* “When a population becomes distracted by trivia, when cultural life is redefined as a perpetual round of entertainments, when serious public conversation becomes a form of baby-talk, when, in short, a people become an audience, and their public business a vaudeville act, then a nation finds itself at risk; culture-death is a clear possibility.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. Year 1985. SEE_ALSO  September 10, 2025: https://Time.com/7313999/neil-postman-trump-prediction/
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mdv433jc5k26 https://autistics.life/@RoundSparrow/116001615595801192 https://MidWest.Social/post/42837131 }
