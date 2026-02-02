@@ -675,3 +675,9 @@ Anything but use Reddit social systems to promote Dr. Bandy X Lee's nonfiction t
 https://old.reddit.com/r/Fauxmoi/comments/1qtn7x8/donald_trump_goes_on_grammys_rant_threatening_to/o342gpx/
 
 Commenting day in day out about Trump. Anything but use Reddit social systems to promote Dr. Bandy X Lee's nonfiction teachings to the general public.
+
+https://old.reddit.com/r/memes/comments/1qtvmcv/is_there_a_word_for_such_talent/o35mryv/
+
+I don't even know how to begin explianing that Twitter postings all over /r/All of Reddit every hour of every day is a simultion of resistance to Elon Musk. People do not take seriously whst Elon Musk says about billionaires manipulating "mind virus" of Reddit audience. What do I fucking know, i only worked in social media for the richest people in the world in Bellevue, Washington.
+
+I really don't know where to begin to describe this Reddit fandom of hate. People who prize and cheer on hate leaders { Putin, Musk, Trump }. Compulsively driven by media mania. Marshall McLuhan and James Joyce (what McLuhan says about Joyce https://www.themediumisthemassage.com/joyce-is-in-the-wake-making-his-own-altamira-cave-drawings-of-the-entire-history-of-the-human-mind-in-terms-of-its-basic-gestures-and-postures-during-all-the-phases-of-human-culture-an/ ) are essential comprehension of the Reddit simulacra behaviors. 
