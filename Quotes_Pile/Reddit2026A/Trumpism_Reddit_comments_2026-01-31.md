@@ -1312,7 +1312,7 @@ ALL hate for ANY reason is bad. But people want to join teams of hate. Hate vs. 
 
 https://old.reddit.com/r/TwoXChromosomes/comments/1qu9t54/new_study_explains_why_listening_to_joe_rogan/o38p9ov/
 
-https://old.reddit.com/r/TwoXChromosomes/comments/1qu9t54/new_study_explains_why_listening_to_joe_rogan/o38ugul/v
+https://old.reddit.com/r/TwoXChromosomes/comments/1qu9t54/new_study_explains_why_listening_to_joe_rogan/o38ugul/
 
 2 month Reddit account.
 
