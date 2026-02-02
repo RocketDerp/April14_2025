@@ -1202,3 +1202,12 @@ https://old.reddit.com/r/law/comments/1qu74gw/trump_we_should_take_over_the_voti
 
 Joke-washing. Reddit fandom of Trump loves to kidding-wash Trump as a source of entertainment round after round. Amusement-washing Trump as kidding jokes. Neil Postman was correct in his year 1985 book.
 
+https://old.reddit.com/r/law/comments/1qu74gw/trump_we_should_take_over_the_voting/o38jt4p/
+
+We The People have given up nonfiction book reading for constant Epstein Trump Musk Putin stimulation via Reddit media systems, media venues delivering constant content.
+
+https://old.reddit.com/r/law/comments/1qu74gw/trump_we_should_take_over_the_voting/o38jkwn/
+
+Long-form Reddit commenting with off-Reddit links!!!
+
+https://old.reddit.com/r/law/comments/1qu74gw/trump_we_should_take_over_the_voting/o382hui/
