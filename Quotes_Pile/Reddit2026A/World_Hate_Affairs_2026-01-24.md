@@ -481,11 +481,13 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1qtl6dd/who_is_it_who_was_e
 
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1qtl6dd/who_is_it_who_was_epsteins_boss/o33xizy/
 
+
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1qtl6dd/who_is_it_who_was_epsteins_boss/o33wzvl/
 
 People see their friends at work get charmed by Donald Trump. And people still do not get that being charming is hat most people consider important. You can be terrible and evil but if you are charming like Trump, nothing can stop you year after year. Reddit social community is so charmed by Epstein and Trump.
 
 Not taking on Rupert Murdoch's factory of charming methods and charming techniques with Neil Postman's books is how Putin defeated NATO and USA.
+
 
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1qtl6dd/who_is_it_who_was_epsteins_boss/o33qaou/
 
@@ -495,11 +497,20 @@ This GitHub project is to draw circles around all the avoided: Dr. Bandy X Lee. 
 
 It never ever could have been more obvious than Putin and trump's relationship. Putin fucking kidnaps children from Ukraine.
 
+
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1qtl6dd/who_is_it_who_was_epsteins_boss/o341k2c/
 
 <img width="1113" height="326" alt="image" src="https://github.com/user-attachments/assets/11bbb1f3-fdf8-462f-8a39-acf594ba717a" />
 
 Nobody learned a god damn fucking thing about The Light of The Catholic Church and the sex life of the priesthood with children.
+
+OPERA_A https://www.youtube.com/watch?v=ft3b1-Cm-0M A god fucking Jesus small affair. Who is the baby daddy of Jesus? "Now she walks through her sunken dream
+To the seats with the clearest view
+And she's hooked to the silver screen,
+But the film is sadd'ning bore
+For she's lived it ten times or more.
+She could spit in the eyes of fools" - John 1:1 Opera, the Clergy fucking show. I've seen page 581 of Finnegans Wake before! Putin and Surkov and Trump, "Wonder if he'll ever know
+He's in the best selling show?" John 1:1 Tower of Babel fucking show! 7,110,477 views June 22, 2023 ["It's about to be writ again..."](https://www.themediumisthemassage.com/joyce-is-in-the-wake-making-his-own-altamira-cave-drawings-of-the-entire-history-of-the-human-mind-in-terms-of-its-basic-gestures-and-postures-during-all-the-phases-of-human-culture-an/)
 
 Nobody on Reddit can make an association with organized religion.
 
