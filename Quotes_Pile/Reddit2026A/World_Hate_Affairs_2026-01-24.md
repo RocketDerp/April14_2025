@@ -513,7 +513,14 @@ Fuck, girls would brag about their older boyfriends in college when I was in hig
 
 Again, who is the baby daddy of Jesus? The ultimate pregnancy from another school. My lover is king of kings, Heaven above, Eden daddy for Jesus. Wake the fuck up, people, John 1:1 is LITERACY itself. Tower of babel. We are the snakes and John 1:1 is the snake harming in Eden. The Tree of bamboozle knowledge of John 1:1 story patterns. 
 
-* https://www.FinnegansWeb.com/wiki/index.php/Page_581 Page 581 of Finnegans Wake. I'm sorry to say I fucking saw the whole Tower o Babel industrial charming complex. Mecca, Jesus daddy from outer space John 1:1 - it's all fucking seeable through the boys and girls in your own high school. Molly Hatched song "Fall of the Peacemakers" told me to look into the souls of men. Their charms and how they chase after popularity itself to charm others. Page 581, "I saw", sorry to fucking say, I saw!!! The Clergy performances without being honest of John 1:1 meaning. The rock music on the F.M. radio. Malala saw too, Radio F.M. Mullah. 
+* https://www.FinnegansWeb.com/wiki/index.php/Page_581 Page 581 of Finnegans Wake. I'm sorry to say I fucking saw the whole Tower o Babel industrial charming complex. Mecca, Jesus daddy from outer space John 1:1 - it's all fucking seeable through the boys and girls in your own high school. Molly Hatched song "Fall of the Peacemakers" told me to look into the souls of men. Their charms and how they chase after popularity itself to charm others. Page 581, "I saw", sorry to fucking say, I saw!!! The Clergy performances without being honest of John 1:1 meaning. The rock music on the F.M. radio. Malala saw too, Radio F.M. Mullah.
+* * "And then and too the trivials! And their bivouac!
+And his monomyth! Ah ho! Say no more about it! I'm sorry!
+I saw. I'm sorry! I'm sorry to say I saw!
+    Gives there not too amongst us after all events (or so grunts 
+a leading hebdromadary) some togethergush of stillandbutall-
+youknow that, insofarforth as, all up and down the whole con-
+creation"
 
 What I saw in The Church as a boy scout in a Catholic troop, where I was the only protestant Lutheran, I saw in fucking F.M. Radio in high school. Girls and boys mind-fucking each other over the most shallow and superficial bran-name cosmetics and fashion. And head-banging NFL ambition of brain damage.
 
