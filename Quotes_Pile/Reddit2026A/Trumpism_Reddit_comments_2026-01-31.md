@@ -954,3 +954,7 @@ Yes. Calling Reddit out as the Putin cheerleading meme center / joke-washing of 
 * “When a population becomes distracted by trivia, when cultural life is redefined as a perpetual round of entertainments, when serious public conversation becomes a form of baby-talk, when, in short, a people become an audience, and their public business a vaudeville act, then a nation finds itself at risk; culture-death is a clear possibility.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. Year 1985. SEE_ALSO  September 10, 2025: https://Time.com/7313999/neil-postman-trump-prediction/
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mdv433jc5k26 https://autistics.life/@RoundSparrow/116001615595801192 https://MidWest.Social/post/42837131 }
+
+https://old.reddit.com/r/Music/comments/1qtu5up/nicki_minaj_goes_on_x_rampage_after_being/o35c11q/
+
+Truth Social and /r/Music fandom calling for MORE Trump style content. Addicts to Celebrity want to see more and more Trump pairings with his acting / actor in the Reality Truth Social show for Reddit audience, Reddit end-users commenting how much they crave Trump. Over a decade of Reddit fandom glued to touch screens begging for more Trump content!
