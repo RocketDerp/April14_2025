@@ -1257,3 +1257,8 @@ Corporate America media technique. FUD. https://en.wikipedia.org/wiki/Fear,_unce
 https://old.reddit.com/r/JoeRoganReacharound/comments/1qu57zk/joe_rogan_podcast_is_just_the_epstein_client_list/o38qr5r/
 
 Jar Jar didn't platform messages to join The Empire with his popularity and connections. Jar Jar took the Jedi nights to the leader to explain their situation.
+
+https://old.reddit.com/r/JoeRoganReacharound/comments/1qu57zk/joe_rogan_podcast_is_just_the_epstein_client_list/o38smmc/
+
+He is promoter of male domination. Ruling over women, big time.
+
