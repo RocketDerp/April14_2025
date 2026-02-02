@@ -538,3 +538,8 @@ What I saw in The Church as a boy scout in a Catholic troop, where I was the onl
 OPERA_A The girls don't seem to care what's on... As long as they play 'til dawn. Nothin' but blues and Elvis... And somebody else's favorite song. "FM (No Static at All)" by Steely Dan was written and recorded in 1977 and released on May 19, 1978. Donald Trump is a gifted charmer and knows how to put his charming media moves over the medium. This song came out when I was 10 years old. https://www.youtube.com/watch?v=UtFEJOL8kWU 16,630 views December 19, 2023
 
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1qtl6dd/who_is_it_who_was_epsteins_boss/o340twv/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qto9uz/epstein_and_putin_were_connected_as_worlds/o34bjfl/
+
+Then what is Putin's motivation? Is there some even bigger man above Putin who has sex tapes of Putin? This simple-think Tweet-length mindsets. Fiction addiction drives Trump and Reddit both. Fiction storytelling. FACTS of VIDEO of sex acts and photographs do not convince people. What convinces people is Star Wars science fiction. Mecca theme park of Quran science fiction! The White House is a Rupert Murdoch theme park of Fox News science fiction storytelling! WOKE TO WHAT? 1923 Finn's Hotel WAKE UP MORNING CHECKOUT TIME!
+
