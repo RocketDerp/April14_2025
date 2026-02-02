@@ -1181,3 +1181,24 @@ Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mdvttu43l2
 https://old.reddit.com/r/news/comments/1qu6y4y/doj_takes_down_thousands_of_epstein_documents_for/o3815xc/
 
 Laughter is the best mind-fuck. Surkov won.
+
+https://old.reddit.com/r/law/comments/1qu74gw/trump_we_should_take_over_the_voting/o383lbt/
+
+https://old.reddit.com/r/law/comments/1qu74gw/trump_we_should_take_over_the_voting/o383n8w/
+
+4 month Reddit account. "lunatic"
+
+https://old.reddit.com/r/law/comments/1qu74gw/trump_we_should_take_over_the_voting/o38ehax/
+
+Distraction is from Dr. Bandy X Lee's nonfiction book. Trump provides constant stimulation media and social media end-users of Reddit can not go to the public library and use nonfiction to teach cult deprogramming on social media.
+
+https://old.reddit.com/r/law/comments/1qu74gw/trump_we_should_take_over_the_voting/o38ao5n/
+
+https://old.reddit.com/r/law/comments/1qu74gw/trump_we_should_take_over_the_voting/o38gwyo/
+
+https://old.reddit.com/r/law/comments/1qu74gw/trump_we_should_take_over_the_voting/o38a26k/
+
+https://old.reddit.com/r/law/comments/1qu74gw/trump_we_should_take_over_the_voting/o38jhbk/
+
+Joke-washing. Reddit fandom of Trump loves to kidding-wash Trump as a source of entertainment round after round. Amusement-washing Trump as kidding jokes. Neil Postman was correct in his year 1985 book.
+
