@@ -836,3 +836,13 @@ We The People have legitimately voted Fox News HDTV the most popular network. I 
 Marshall McLuhan and Neil Postman comprehension are not optional perspectives and lenses of off-axis viewing.
 
 https://old.reddit.com/r/law/comments/1qthn9l/trump_claims_the_right_to_cut_himself_blank/o336va0/
+
+https://old.reddit.com/r/Music/comments/1qtnq1v/trump_slams_grammys_threatens_to_sue_trevor_noah/o3465gd/
+
+Trump fandom on Reddit who finds Trump a source of stimulation for comedy and laughs.
+
+https://old.reddit.com/r/Music/comments/1qtnq1v/trump_slams_grammys_threatens_to_sue_trevor_noah/o348mw3/
+
+https://old.reddit.com/r/Music/comments/1qtnq1v/trump_slams_grammys_threatens_to_sue_trevor_noah/o347n5j/
+
+Donald Trump is a media addict of television and camera appearances who is leading a Reddit fandom of media addicts. Marshall McLuhan and Neil Postman comprehension are not optional perspectives and lenses of off-axis viewing.
