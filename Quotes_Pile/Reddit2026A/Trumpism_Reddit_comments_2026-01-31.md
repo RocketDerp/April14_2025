@@ -1021,5 +1021,11 @@ https://old.reddit.com/r/politics/comments/1qtxe1j/a_13yearold_girl_bit_trumps_g
 
 Trump audience, fans of Trump, predicting what is coming next up on the Reality TV plot story. ALWAYS AVOIDING: serious calls to organize on social media and make Dr. Bandy X Lee's nonfiction lessons be a constant commenting education for general public. ENDING the performance of Trump Reality content for Reddit consumers.
 
+https://old.reddit.com/r/politics/comments/1qtxe1j/a_13yearold_girl_bit_trumps_genitals_as_he_tried/o35ytnm/
 
+ANSWER: Russia mind-fucked the population into attraction to self-harm via media addictions. Surkov won since March of year 2013.
+
+https://old.reddit.com/r/politics/comments/1qtxe1j/a_13yearold_girl_bit_trumps_genitals_as_he_tried/o3685mn/
+
+2 month Reddit account. 
 
