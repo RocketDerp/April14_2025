@@ -556,3 +556,11 @@ Social post { https://autistics.life/@RoundSparrow/116000911473366346 https://bs
 https://old.reddit.com/r/UnderReportedNews/comments/1qto9uz/epstein_and_putin_were_connected_as_worlds/o34th50/
 
 On a superficial note. October 7, 2023 terrorist attack is Putin's birthday. Russia's leader birthday.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qto9uz/epstein_and_putin_were_connected_as_worlds/o34f2i2/
+
+1 year Reddit account.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qto9uz/epstein_and_putin_were_connected_as_worlds/o34bsi2/
+
+down votes for voicing an idea that is on-topic.
