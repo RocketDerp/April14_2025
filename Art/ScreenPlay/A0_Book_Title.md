@@ -35,6 +35,13 @@ Addiction to Fiction
 Shitpost Nation   
 Shit-commenting Nation  
 
+Infamy POTUS   
+Infamy President   
+President of Infamy  
+Nation of Infamy   
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mdvgix63rc2h https://autistics.life/@RoundSparrow/116002343670789332 }
+
 &nbsp;
 
 &nbsp;

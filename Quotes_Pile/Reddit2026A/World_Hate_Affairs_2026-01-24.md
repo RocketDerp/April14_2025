@@ -591,3 +591,49 @@ https://old.reddit.com/r/UnderReportedNews/comments/1qto9uz/epstein_and_putin_we
 https://old.reddit.com/r/UnderReportedNews/comments/1qto9uz/epstein_and_putin_were_connected_as_worlds/o350at8/
 
 https://old.reddit.com/r/UnderReportedNews/comments/1qto9uz/epstein_and_putin_were_connected_as_worlds/o34g9qt/
+
+https://old.reddit.com/r/law/comments/1qts9j1/how_is_this_epstein_file_not_front_page_news_2/o352zux/
+
+https://old.reddit.com/r/law/comments/1qts9j1/how_is_this_epstein_file_not_front_page_news_2/o34yw1s/
+
+6 month Reddit account.
+
+https://old.reddit.com/r/law/comments/1qts9j1/how_is_this_epstein_file_not_front_page_news_2/o353dl2/
+
+The Medium is the Massaging of the Public.
+
+https://old.reddit.com/r/law/comments/1qts9j1/how_is_this_epstein_file_not_front_page_news_2/o3599fv/
+
+Impressions and superficial high-speed information glances are what people on Reddit seek. QAnon "Q" drops, information strip tease. If people wanted to reform and have honest sincere leaders, Malala and Dr. Bandy X Lee would be far more important and repeating topics. A lot of what is going on is ***information systems feedback loops*** of anonymous tips and theories feeding into government and back out to public.
+
+https://old.reddit.com/r/technology/comments/1qtv7h1/the_world_is_trying_to_log_off_us_tech/o35mgza/
+
+All the commenting creators on Reddit comment section... **will likely never realize they avoided promoting Neil Postman's** nonfiction, Dr. Bandy X Lee's nonfiction over and over until the cult problems were front and center in USA. We The People, the Reddit small-time user, did not stand up for over 10 years. Tech addictions to mocking high-speed TCP/IP media of Reddit wrecked the USA.
+
+* Published January 2015, before Trump started run for office in June 2015: https://www.Politico.com/magazine/story/2015/01/putin-russia-tv-113960/ At one end of the table sat one of the country’s most famous political TV presenters. He was small and spoke fast, with a smoky voice: “We all know there will be no real politics,” he said. “But we still have to give our viewers the sense something is happening. They need to be kept entertained.” “So what should we play with?” he asked. “Shall we attack oligarchs? Who’s the enemy this week? **Politics has got to feel like a movie!**”
+
+https://old.reddit.com/r/technology/comments/1qtv7h1/the_world_is_trying_to_log_off_us_tech/o35l9qw/
+
+10 month Reddit account.
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1qtv7i1/petah/o35oe2r/
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1qtv7i1/petah/o35r8rd/
+
+why not devote yourself to being a Malala quote creator on GitHub and other media platforms... instead, hate inspires hate. Hate vs. hate, hate harder messaging on Reddit. Machine lovers of wood chippers. The problem is our content Hollywood film empire, the child trafficking of little girls for Harry Potter.
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1qtv7i1/petah/o35w6d1/
+
+Hollywood is image trafficking for audiences.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qu0fkp/no_that_is_not_your_job_say_critics_after_schumer/o36nqjz/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qu0fkp/no_that_is_not_your_job_say_critics_after_schumer/o36r2ih/
+
+Science fiction popularity. The science fiction trilogy { Torah, Bible, Quran, Book of Mormon, etc } is incredibly popular. Very famous locations for these stories.
+
+https://old.reddit.com/r/WorkReform/comments/1qtw3sn/if_cuck_schumer_put_even_half_the_effort_into/o35qf74/
+
+Labor and money, especially people using social media, should be directed towards Malala's education and teaching so people GRASP the values of terrorism in Palestine. We need to reform the terrorist clergy systems in the 3 Levant religions.
+
+* "The extremists are afraid of books and pens. The power of education frightens them. They are afraid of women. The power of the voice of women frightens them." - July 12, 2013 https://malala.org/news-and-voices/malala-un-speech

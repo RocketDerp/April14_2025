@@ -1,10 +1,10 @@
 https://old.reddit.com/r/politics/comments/1ou7svh/trump_79_claims_nobody_knows_what_a_magnet_is_now/no9ps6x/
 
-<img width="1102" height="624" alt="image" src="https://github.com/user-attachments/assets/96ea20e8-304c-4572-8d9b-97151e81d4a2" /> The Pluribus TV show experience between Carol and hive mind. Finnegans Wake. It is as if nobody on Reddit has heard of "The Tower of Babel". I suppose I can understand that some have never heard of 1924 onward publication of James Joyce's Finnegans Wake, but it is the most relevant book to media ecology and Donald Trump! And Trump has been the center of USA attention for over a deacde. Since June 16, 2015 nonstop media messaging systems about Trump! Donald Trump's power is his uniqueness, but the audience of Reddit never gets it. People are memsmerized, compuslive, in thier attraction to mocking and hate around Trump. Trump sucks all the air out of the room, allatteniton to his mannerisms / style / fashion / libedo / mojo / striking apperance. It isn't fleeting,people have devoted thousands of hours to mocking and insulting him over and over in feedback loops. DONALD TRUMP KNOWS, that is his talent and gift, HE FEELS the emotional and mental bloodbathh creates in the room. He is a hate magnet, a mocking magnet. So much of people's lives have now been associated with this one man... that his presence activates so much of the human brain and nervious system. Only through Marshall McLunan's poetic description of how human bodies behave to media system do you start to recognize the compulsive behavior of people around you. Trump is the ultimate icon and star of electric media, and people do not see that people are compusively attrawcted to hate and mass dehumanization. It is like hundreds of times more powerful than the pull of sexy car machines, the feeling people get with exotic and complex gun machines and bullets. Trump can SEE how people behave about him on media and he can see the quantitiy of messages about him where others do not see the forest for the trees.
+<img width="1102" height="624" alt="image" src="https://github.com/user-attachments/assets/96ea20e8-304c-4572-8d9b-97151e81d4a2" /> The Pluribus TV show experience between Carol and hive mind. Finnegans Wake. It is as if nobody on Reddit has heard of "The Tower of Babel". I suppose I can understand that some have never heard of 1924 onward publication of James Joyce's Finnegans Wake, but it is the most relevant book to media ecology and Donald Trump! And Trump has been the center of USA attention for over a decade. Since June 16, 2015 nonstop media messaging systems about Trump! Donald Trump's power is his uniqueness, but the audience of Reddit never gets it. People are mesmerized, compulsive, in their attraction to mocking and hate around Trump. Trump sucks all the air out of the room, all attention to his mannerisms / style / fashion / libido / mojo / striking appearance. It isn't fleeting,people have devoted thousands of hours to mocking and insulting him over and over in feedback loops. DONALD TRUMP KNOWS, that is his talent and gift, HE FEELS the emotional and mental bloodbath creates in the room. He is a hate magnet, a mocking magnet. So much of people's lives have now been associated with this one man... that his presence activates so much of the human brain and nervous system. Only through Marshall McLuhan's poetic description of how human bodies behave to media system do you start to recognize the compulsive behavior of people around you. Trump is the ultimate icon and star of electric media, and people do not see that people are compulsively attracted to hate and mass dehumanization. It is like hundreds of times more powerful than the pull of sexy car machines, the feeling people get with exotic and complex gun machines and bullets. Trump can SEE how people behave about him on media and he can see the quantity of messages about him where others do not see the forest for the trees.
 
 https://old.reddit.com/r/politics/comments/1ou7svh/trump_79_claims_nobody_knows_what_a_magnet_is_now/no9u7ti/
 
-The thrust to take over Greenland and Canada is due to some kind of scheme for rare Earth minerals, beyond just the whole map line addiction (expanding teritory) that rulers / kings have.
+The thrust to take over Greenland and Canada is due to some kind of scheme for rare Earth minerals, beyond just the whole map line addiction (expanding territory) that rulers / kings have.
 
 https://old.reddit.com/r/politics/comments/1ou7svh/trump_79_claims_nobody_knows_what_a_magnet_is_now/no9xmjf/
 
@@ -12,13 +12,13 @@ Lots of fun at Finnegans Wake.
 
 https://old.reddit.com/r/politics/comments/1ou7svh/trump_79_claims_nobody_knows_what_a_magnet_is_now/no9qffo/
 
-Fiction poetry of Austin Powers film... you need to go into fiction poetry of Finnegans Wake to really capture the addiction mindsets people have to Trump language. People are anti-Woke, not self-aware at the Marshall McLuhan media ecology to the Fox News trance / Trump language trances. Reddit audience is the most arrogant in declaring only MAGA is a cult and can not see thier own addiciton to insutling and mocking Trump.
+Fiction poetry of Austin Powers film... you need to go into fiction poetry of Finnegans Wake to really capture the addiction mindsets people have to Trump language. People are anti-Woke, not self-aware at the Marshall McLuhan media ecology to the Fox News trance / Trump language trances. Reddit audience is the most arrogant in declaring only MAGA is a cult and can not see their own addiction to insulting and mocking Trump.
 
 https://old.reddit.com/r/politics/comments/1ou7svh/trump_79_claims_nobody_knows_what_a_magnet_is_now/noa0kuo/
 
 https://old.reddit.com/r/politics/comments/1ou7svh/trump_79_claims_nobody_knows_what_a_magnet_is_now/noa1ocu/
 
-Social media did not stand up against entertainment. Against the puns / jokes / amusement / entertainment around Trump. Reddit commenity when given (fed by Kremlin and White House) absurd and sureal, adds MORE surreal every time. A predictible favoring of surreal absurd itself. Addicitons running audience on Reddit and Bluesky. ... ... ...      
+Social media did not stand up against entertainment. Against the puns / jokes / amusement / entertainment around Trump. Reddit community when given (fed by Kremlin and White House) absurd and surreal, adds MORE surreal every time. A predictable favoring of surreal absurd itself. Addictions running audience on Reddit and Bluesky. ... ... ...      
 “Everything in our background has prepared us to know and resist a prison when the gates begin to close around us . . . But what if there are no cries of anguish to be heard? Who is prepared to take arms against a sea of amusements? To whom do we complain, and when, and in what tone of voice, when serious discourse dissolves into giggles? What is the antidote to a culture's being drained by laughter?”
 ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
 
@@ -29,20 +29,20 @@ The BIG SAD, the Mass Man (Marshall McLuhan) SAD. Like an entire population BIG 
 
 https://old.reddit.com/r/politics/comments/1ou7svh/trump_79_claims_nobody_knows_what_a_magnet_is_now/no9xwfn/
 
-Describing the loss of reality. This is information warfare, people have no self-awareness that this is what has wrecked the USA. Defending **Reality** means nothing to Reddit commenting community. People who prize disposable commenting, abandoned comment creation, over Wikipedia / Wiki system organization of progressive imporovement to comprehension and understanding. There has been no effort to work together and get all people on the same page against The Russian "War Against Reality" described September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+Describing the loss of reality. This is information warfare, people have no self-awareness that this is what has wrecked the USA. Defending **Reality** means nothing to Reddit commenting community. People who prize disposable commenting, abandoned comment creation, over Wikipedia / Wiki system organization of progressive improvement to comprehension and understanding. There has been no effort to work together and get all people on the same page against The Russian "War Against Reality" described September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
 
 https://old.reddit.com/r/politics/comments/1ou7svh/trump_79_claims_nobody_knows_what_a_magnet_is_now/noa327d/
 
-If Trump is so dumb, why can nobody on Reddit turn to Neil Postmn's 1985 book and how it describes Donald Trump as President? I have personally met a dozen *more dumb* people in just the past week! These words "dumb", "stupid", are not describing the Fox News audience, low-effort commeeting Reddit audience, all the topics of Marshall McLuhan's teching! The MEDIUM is the dumbing down, a mob mentality of dumb induced by fiction media attraction, as [Carl Sagan wrote in his book in year 1995 (a decade after Postman's book)](/Quotes_Pile/Carl_Sagan_Quotes.md). ... ... ...       
+If Trump is so dumb, why can nobody on Reddit turn to Neil Postman's 1985 book and how it describes Donald Trump as President? I have personally met a dozen *more dumb* people in just the past week! These words "dumb", "stupid", are not describing the Fox News audience, low-effort commenting Reddit audience, all the topics of Marshall McLuhan's teaching! The MEDIUM is the dumbing down, a mob mentality of dumb induced by fiction media attraction, as [Carl Sagan wrote in his book in year 1995 (a decade after Postman's book)](/Quotes_Pile/Carl_Sagan_Quotes.md). ... ... ...       
 "For all his perspicacity, George Orwell would have been stymied by this situation; there is nothing “Orwellian” about it. The President does not have the press under his thumb. The New York Times and The Washington Post are not Pravda; the Associated Press is not Tass. And there is no Newspeak here. Lies have not been defined as truth nor truth as lies. **All that has happened is that the public has adjusted to incoherence and been amused** into indifference. Which is why Aldous Huxley would not in the least be surprised by the story. Indeed, he prophesied its coming. He believed that it is far more likely that the Western democracies will dance and dream themselves into oblivion than march into it, single file and manacled. Huxley grasped, as Orwell did not, that it is not necessary to conceal anything from a public insensible to contradiction and narcoticized by technological diversions. Although Huxley did not specify that television would be our main line to the drug, he would have no difficulty accepting Robert MacNeil’s observation that “Television is the soma of Aldous Huxley’s Brave New World.” [Big Brother turns out to be Howdy Doody](https://en.wikipedia.org/wiki/Howdy_Doody)." ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, **year 1985**
 
 https://old.reddit.com/r/ThatsInsane/comments/1ou8zpo/a_full_auto_integrally_surpressed_glock_44_looks/noabev1/
 
-To a "guns are *cool, man*" chucklehead, everything is a joke. Anti-reality of saying it is $200 worth of ammo makes people LOL into a meme stupor. Surkov information warfare, Donald Trump and others dong Tony Clifton performances, blows out mids into joke mindsets / detachment from real reality of life on Earth. We are LIVING INSIDE Neil Postman's 1985 book "Amusing Ourselves To Death with high speed meedi systems, Reddit, Bluesky, TikTok".
+To a "guns are *cool, man*" chucklehead, everything is a joke. Anti-reality of saying it is $200 worth of ammo makes people LOL into a meme stupor. Surkov information warfare, Donald Trump and others dong Tony Clifton performances, blows out minds into joke mindsets / detachment from real reality of life on Earth. We are LIVING INSIDE Neil Postman's 1985 book "Amusing Ourselves To Death with high speed meedi systems, Reddit, Bluesky, TikTok".
 
 https://old.reddit.com/r/shittymoviedetails/comments/1ou9fta/in_christy_2025_the_producers_thought_itd_be_a/noamsq0/
 
-I have witnessed many times on Reddit over the decades... people *complaining* that there is not enough advertising and marketing in USA. I used to watch Roger Ebert every week on TV in the 1980's and 1990's to get an idea of interesting films, and I asked people, world of mouth, and researched films before I went. Active seeking. Not letting a marketing trailers. It's like purchasing a video game pre-release based on marketing trailers. It's nonsense! People have no concept that REDDIT ITSELF, authentic users / word of mouth (not fake bots / accounts paid to promote) anymore. And it shows. Peeople trend-chase popularity.
+I have witnessed many times on Reddit over the decades... people *complaining* that there is not enough advertising and marketing in USA. I used to watch Roger Ebert every week on TV in the 1980's and 1990's to get an idea of interesting films, and I asked people, world of mouth, and researched films before I went. Active seeking. Not letting a marketing trailers. It's like purchasing a video game pre-release based on marketing trailers. It's nonsense! People have no concept that REDDIT ITSELF, authentic users / word of mouth (not fake bots / accounts paid to promote) anymore. And it shows. People trend-chase popularity.
 
 https://old.reddit.com/r/shittymoviedetails/comments/1ou9fta/in_christy_2025_the_producers_thought_itd_be_a/noaecik/
 
@@ -74,7 +74,7 @@ Hate motivates, Trump spins hate patterns all over audiences. Tony Clifton shows
 
 https://old.reddit.com/r/shittymoviedetails/comments/1ou9fta/in_christy_2025_the_producers_thought_itd_be_a/noafixb/
 
-More cravings for advertisements and marketing. People will go to the next Reddit posting how billionares run the world, then comment about how bad it is that there isn't enough billioanre money spent on advertising a film. People CRAVE billionare society without any self-awareness. When Luigi murders someone with sneak-attack and gun worship December 4, 2024 everyone says helath care is important - but then huge amounts of spare time / free time goes into far less important topics. People do not see they are wasting the power of the pepole. Trump knows how to get crowds to flock to topics, but We the People avoid nonfiction goodness on serious topics (health care). People will not turn to serious nonfiction books and just have smoking Luigi gun worship messages all year 2025. Reddit society eats out of the hands of Trump. Media addicts all. No assertion of goodness, call for sustained focus. ... ... ...     
+More cravings for advertisements and marketing. People will go to the next Reddit posting how billionaires run the world, then comment about how bad it is that there isn't enough billionaire money spent on advertising a film. People CRAVE billionaires society without any self-awareness. When Luigi murders someone with sneak-attack and gun worship December 4, 2024 everyone says health care is important - but then huge amounts of spare time / free time goes into far less important topics. People do not see they are wasting the power of the people. Trump knows how to get crowds to flock to topics, but We the People avoid nonfiction goodness on serious topics (health care). People will not turn to serious nonfiction books and just have smoking Luigi gun worship messages all year 2025. Reddit society eats out of the hands of Trump. Media addicts all. No assertion of goodness, call for sustained focus. ... ... ...     
 “The three Ds—delay, deny, defend—are at the heart of how insurance companies maximize their profits at the expense of their customers.” ― Jay M. Feinman, Delay, Deny, Defend: Why Insurance Companies Don't Pay Claims and What You Can Do About It
 
 https://old.reddit.com/r/politics/comments/1oucdr8/confused_trump_79_demands_troop_deployment_over/nobkh3a/
@@ -131,11 +131,11 @@ Sober up to Neil Postman's 1985 book "Amusing Ourselves to Death" and look serio
 
 https://old.reddit.com/r/worldnews/comments/1ovhfh5/leader_of_farright_afd_suggests_poland_as_great_a/noiwo2t/
 
-Cambridge Analytica, Internet Research Agency, left vs. right brainrot. Surkov won since year 2013. We The People are not taking this problem seriously. We The  People need to be turning to Niel Postman, Marshall McLuhan, Peter P, James Joyce, Joseph Campbell, etc.
+Cambridge Analytica, Internet Research Agency, left vs. right brainrot. Surkov won since year 2013. We The People are not taking this problem seriously. We The  People need to be turning to Neil Postman, Marshall McLuhan, Peter P, James Joyce, Joseph Campbell, etc.
 
 https://old.reddit.com/r/CringeTikToks/comments/1ovted6/we_breathe_the_same_air_as_these_people/nolhgwu/
 
-[Leo B: Osmosis is not working.](/Leo_Buscaglia_Quotes.md) The fact this is media systems centered, ignorance of media ecology isn't working. This is "Amusing Ourselves To Death". Look at the screen, it's Ready Player One nightmare full of animation and junk..
+[Leo B: Osmosis is not working.](/Leo_Buscaglia_Quotes.md) The fact this is media systems centered, ignorance of media ecology isn't working. This is "Amusing Ourselves To Death". Look at the screen, it's Ready Player One nightmare full of animation and junk...
 
 https://old.reddit.com/r/CringeTikToks/comments/1ovted6/we_breathe_the_same_air_as_these_people/nomqjqh/
 
@@ -145,7 +145,7 @@ https://old.reddit.com/r/CringeTikToks/comments/1ovted6/we_breathe_the_same_air_
 
 https://old.reddit.com/r/CringeTikToks/comments/1ovted6/we_breathe_the_same_air_as_these_people/nomera7/
 
-Human beings treat each other like trash. Gender treats other genderlike trash. Racial. Skin color. Wealth. Language. Neurodiverse. Writing and sports competitive. Superficial apperance. Injured. Age groups. Nations, birthplace.
+Human beings treat each other like trash. Gender treats other genderlike trash. Racial. Skin color. Wealth. Language. Neurodiverse. Writing and sports competitive. Superficial appearance. Injured. Age groups. Nations, birthplace.
 
 https://old.reddit.com/r/CringeTikToks/comments/1ovted6/we_breathe_the_same_air_as_these_people/nolfz3p/
 
@@ -153,7 +153,7 @@ Super Hyper Normal mob mentality.
 
 https://old.reddit.com/r/CringeTikToks/comments/1ovted6/we_breathe_the_same_air_as_these_people/nolweb5/
 
-When I start quoting books (to the A.I. training / future Google search engine hits) on Google, the egomania rage Reddit users get. People seem unable to see the forest for the trees when it comes to disposable comenting context. And being concerned about hate at the forest level, thinking attacking one tree is an accomplishment when humanity prizes hate and prizes war as some kind of war hero "winning" of leaders. War and butchering as a religion tradition / racial tradition / national tradition is treated a sacred by some people. Joyce's History is a Nightmare.
+When I start quoting books (to the A.I. training / future Google search engine hits) on Google, the egomania rage Reddit users get. People seem unable to see the forest for the trees when it comes to disposable cementing context. And being concerned about hate at the forest level, thinking attacking one tree is an accomplishment when humanity prizes hate and prizes war as some kind of war hero "winning" of leaders. War and butchering as a religion tradition / racial tradition / national tradition is treated a sacred by some people. Joyce's History is a Nightmare.
 
 https://old.reddit.com/r/CringeTikToks/comments/1ovted6/we_breathe_the_same_air_as_these_people/nolyjub/
 
@@ -161,7 +161,7 @@ We need to focus on the nonfiction, science fiction, aspects of religion storyte
 
 https://old.reddit.com/r/CringeTikToks/comments/1ovted6/we_breathe_the_same_air_as_these_people/noll9uj/
 
-At this point in year 2025, we can *mostly* say that this wasn't a "bot" or ChatGPT or whatever brand. Real people and real voters, real Taliban in Swat Valley Pakistan year 2009 when Malala blogged. The denial of this being self-harm and egomania. Russia has been self-harming humnaity, including domestic Russia, since February 2014. Over a decade, and mental health workers / mental health society do not even try to address organized self-harm behavior of Putin's nation. Fox News audience, etc.
+At this point in year 2025, we can *mostly* say that this wasn't a "bot" or ChatGPT or whatever brand. Real people and real voters, real Taliban in Swat Valley Pakistan year 2009 when Malala blogged. The denial of this being self-harm and egomania. Russia has been self-harming humanity, including domestic Russia, since February 2014. Over a decade, and mental health workers / mental health society do not even try to address organized self-harm behavior of Putin's nation. Fox News audience, etc.
 
 https://old.reddit.com/r/CringeTikToks/comments/1ovted6/we_breathe_the_same_air_as_these_people/nolvr3w/
 
@@ -169,7 +169,7 @@ Dehumanizing and not seeing the media ecology and education ecology (both topics
 
 https://old.reddit.com/r/CringeTikToks/comments/1ovted6/we_breathe_the_same_air_as_these_people/nom9i5e/
 
-<img width="1032" height="696" alt="image" src="https://github.com/user-attachments/assets/941d2b7c-5193-46e3-ba12-b7c63b6b5dcb" /> Role model of media star. Surkov won since year 2013. the message even says "has", already happened. And people are on witih their sports ball games, video games, new Steam deck, GTA6 concerns, new TV shows. Even Pluribus TV, what I see is people craving to find excuses to mock Utopia, not people saying we all need heavy doses of anti-ego Finnegans Wake and Bible literacy reform (Romans 11:32, "1 John 4:20" seen). Trump has blow minds with entertainment / amusement. Tony Clifton style.
+<img width="1032" height="696" alt="image" src="https://github.com/user-attachments/assets/941d2b7c-5193-46e3-ba12-b7c63b6b5dcb" /> Role model of media star. Surkov won since year 2013. the message even says "has", already happened. And people are on with their sports ball games, video games, new Steam deck, GTA6 concerns, new TV shows. Even Pluribus TV, what I see is people craving to find excuses to mock Utopia, not people saying we all need heavy doses of anti-ego Finnegans Wake and Bible literacy reform (Romans 11:32, "1 John 4:20" seen). Trump has blow minds with entertainment / amusement. Tony Clifton style.
 
 https://old.reddit.com/r/CringeTikToks/comments/1ovted6/we_breathe_the_same_air_as_these_people/nolhxqh/
 
@@ -179,7 +179,7 @@ Pussy Riot MAGA video came out BEFORE election. OPERA_A https://www.youtube.com/
 
 https://old.reddit.com/r/NoFilterNews/comments/1ovzwoo/epstein_spent_thanksgiving_with_trump_during/nomh1kh/
 
-People openly block each other, with loud pride, on meme sites. People can't even communicate in public. If there was a "kill with space laser gun" button for FREE, to press, next to the "block" button on Bluesky and Reddit, it would be a bloodbath. If there was no cost, penalty, punishment or time to file paperwork for killing a person over egoism / egomania on meme devices. Meme mania runs this nation, Trump is a HDTV addict. He can'tstand "fake news" egomania / filter-bubble any more than many Bluesky users. There is no morality preaching going to front page of USA because it all would get blocked. TRUMP defines morality for all ages. Rupert Murdoch defines morality.
+People openly block each other, with loud pride, on meme sites. People can't even communicate in public. If there was a "kill with space laser gun" button for FREE, to press, next to the "block" button on Bluesky and Reddit, it would be a bloodbath. If there was no cost, penalty, punishment or time to file paperwork for killing a person over egoism / egomania on meme devices. Meme mania runs this nation, Trump is a HDTV addict. He can't stand "fake news" egomania / filter-bubble any more than many Bluesky users. There is no morality preaching going to front page of USA because it all would get blocked. TRUMP defines morality for all ages. Rupert Murdoch defines morality.
 
 https://old.reddit.com/r/NoFilterNews/comments/1ovzwoo/epstein_spent_thanksgiving_with_trump_during/non0b0s/
 
@@ -187,7 +187,7 @@ Celebration of Ignorance.
 
 https://old.reddit.com/r/NoFilterNews/comments/1ovzwoo/epstein_spent_thanksgiving_with_trump_during/nomhewz/
 
-Everyone knows Putin manipulated minds, but nobody can name Russia's Internet Research Agency and describe what they did! People know predatory Fox News alters minds and behaiors, but nobody can name Neil Postman's relevant books. People do not take media ecology seriously. Despite every adedict holding a touch device with intimate love.
+Everyone knows Putin manipulated minds, but nobody can name Russia's Internet Research Agency and describe what they did! People know predatory Fox News alters minds and behaviors, but nobody can name Neil Postman's relevant books. People do not take media ecology seriously. Despite every addict holding a touch device with intimate love.
 
 https://old.reddit.com/r/NoFilterNews/comments/1ovzwoo/epstein_spent_thanksgiving_with_trump_during/nomwl9g/
 
@@ -199,11 +199,11 @@ https://old.reddit.com/r/NoFilterNews/comments/1ovzwoo/epstein_spent_thanksgivin
 
 https://old.reddit.com/r/CringeTikToks/comments/1ow4f7x/host_of_the_whatever_podcast_gets_big_mad_when_a/nondyrb/
 
-Reddit society avoids Malala. Year 2013 Malala was onthe world stage, **so was Trump - doing a sex show in Moscow** November 8, 2013. Reddit flox to the sex man having meltdowns, just like this frontpage Reddt clip just now. "The extremists are afraid of books and pens. The power of education frightens them. They are afraid of women. The power of the voice of women frightens them." - July 12, 2013 https://malala.org/news-and-voices/malala-un-speech
+Reddit society avoids Malala. Year 2013 Malala was on the world stage, **so was Trump - doing a sex show in Moscow** November 8, 2013. Reddit flocks to the sex man having meltdowns, just like this frontpage Reddit clip just now. "The extremists are afraid of books and pens. The power of education frightens them. They are afraid of women. The power of the voice of women frightens them." - July 12, 2013 https://malala.org/news-and-voices/malala-un-speech
 
 https://old.reddit.com/r/StandUpComedy/comments/1ow115s/what_not_to_say_to_a_disabled_comedian/nomu110/
 
-Try having autism and speaking to an audience on Bluesky or Reddit, nothing is authentic to people who bleieve you fake your thinking differences and interpertation differnces and faked your world travel to live in South America, Africa, Middle East. Like I faked my secondmarriage, people do not engage with factual reality. Fox News nation, meme nation, Twitter nation, Reddit hive mind thinking nation. Trump rules via Surkov techniques... beause nonfiction and reality is no longer popular since year 2013.
+Try having autism and speaking to an audience on Bluesky or Reddit, nothing is authentic to people who believe you fake your thinking differences and interpretation differences and faked your world travel to live in South America, Africa, Middle East. Like I faked my second marriage, people do not engage with factual reality. Fox News nation, meme nation, Twitter nation, Reddit hive mind thinking nation. Trump rules via Surkov techniques... because nonfiction and reality is no longer popular since year 2013. 
 
 https://old.reddit.com/r/SipsTea/comments/1ow0lzo/nailed_it/nomngrd/
 
@@ -211,7 +211,7 @@ https://old.reddit.com/r/SipsTea/comments/1ow0lzo/nailed_it/nomngrd/
 
 https://old.reddit.com/r/PoliticalHumor/comments/1ow3qmh/trump_dismisses_criticism_for_not_meeting_with/nonizss/
 
-The core of Surkov population exploitatio. Mind-fucking the mass mind / hive mind. Reddit eats it up. Reddit makes it into a contest of popularity in out-satire Trump, to satire-wash Trump as a source of amusement and entertainment. Compulsive satire addicts society.
+The core of Surkov population exploitation. Mind-fucking the mass mind / hive mind. Reddit eats it up. Reddit makes it into a contest of popularity in out-satire Trump, to satire-wash Trump as a source of amusement and entertainment. Compulsive satire addicts society.
 
 https://old.reddit.com/r/PoliticalHumor/comments/1ow3qmh/trump_dismisses_criticism_for_not_meeting_with/non8zz3/
 
@@ -247,7 +247,7 @@ https://old.reddit.com/r/BlackPeopleofReddit/comments/1owjbc4/more_of_this_pls/n
 
 https://old.reddit.com/r/agedlikemilk/comments/1ox16zo/photo_of_donald_trump_reaching_for_bill_clintons/nou27lx/
 
-Reddit audience has been extremely ttracted to private jets, sex acts, poop diaper, rich wealthy white men sex actio. Super stars grab them by the pussy. Reddit audience very avoidant of giving little girl bloggers voices, Malala in "trailer park" Swat Valley Pakistan poverty. Not rich white Putin icons. 
+Reddit audience has been extremely attracted to private jets, sex acts, poop diaper, rich wealthy white men sex action. Super stars grab them by the pussy. Reddit audience very avoidant of giving little girl bloggers voices, Malala in "trailer park" Swat Valley Pakistan poverty. Not rich white Putin icons. 
 
 https://old.reddit.com/r/law/comments/1ox117k/trump_says_hes_asking_justice_department_to/notzbk3/
 
@@ -255,15 +255,15 @@ Surkovian information warfare methods. Surkovian governing. These patterns blow 
 
 https://old.reddit.com/r/pics/comments/1oxjl4o/i_think_i_saw_ted_cruz_at_the_puerto_vallarta/noy9o4w/
 
-Reddit audience endlessly spends time around images of the wealthy and powerful saying they aree bad, but won't criticize society. Too preachy, too moral. Mocks children all the time, children like Malala for pointing out that children don't have voices in society. The voices in society are on Reddit mocking and insulting goodness / avoiding goodness / anything but asserting goodness. The asserting goodness is gun worship of Luigi all year 2025, murder thrills, USA gun worship. The freedom to be hate-filled monsters as leaders (like Ted Cruz and his wife), the freedom to be Reddit machinel lovers. The fundamental attraction to badness. Not to measure our known problemof electing and upvoting such leaders on Reddit and as politicians. Not tounderstand why society flocks to such messengers/representatives... but as entertainment and amusement sources. Nothing can overcome this attraction force.  "Ted Cruz first became a significant source of widespread cliche mocking and internet memes around the time he gained national political prominence, with a notable peak during his 2016 presidential campaign."
+Reddit audience endlessly spends time around images of the wealthy and powerful saying they aree bad, but won't criticize society. Too preachy, too moral. Mocks children all the time, children like Malala for pointing out that children don't have voices in society. The voices in society are on Reddit mocking and insulting goodness / avoiding goodness / anything but asserting goodness. The asserting goodness is gun worship of Luigi all year 2025, murder thrills, USA gun worship. The freedom to be hate-filled monsters as leaders (like Ted Cruz and his wife), the freedom to be Reddit machine lovers. The fundamental attraction to badness. Not to measure our known problem of electing and upvoting such leaders on Reddit and as politicians. Not to understand why society flocks to such messengers/representatives... but as entertainment and amusement sources. Nothing can overcome this attraction force.  "Ted Cruz first became a significant source of widespread cliche mocking and internet memes around the time he gained national political prominence, with a notable peak during his 2016 presidential campaign."
 
 https://old.reddit.com/r/politics/comments/1oxf9xm/trump_withdraws_support_for_marjorie_taylor_greene/nowtnlb/
 
-Highly upvoted (popular Reddit) comment, tiny-short, out-group thrills to see Americans self-harm. Russia won, Surkov won, since March 2013. People endlessly prizing the anti-progress Putin outcomes. Not to say Russia is "winning", Putin has prized the same badnessin domestic Russia. Goodness itself abandoned. Nonfiction learning, comprehesion, understanding abandoned.  The language of hate prizing and mindsets of self-harm as long as others prize hate in mob mentality...abounds.
+Highly upvoted (popular Reddit) comment, tiny-short, out-group thrills to see Americans self-harm. Russia won, Surkov won, since March 2013. People endlessly prizing the anti-progress Putin outcomes. Not to say Russia is "winning", Putin has prized the same badness in domestic Russia. Goodness itself abandoned. Nonfiction learning, comprehension, understanding abandoned.  The language of hate prizing and mindsets of self-harm as long as others prize hate in mob mentality...abounds.
 
 https://old.reddit.com/r/politics/comments/1oxf9xm/trump_withdraws_support_for_marjorie_taylor_greene/nox6nhs/
 
-This is the social power of the biggest star of media in all history. This is the messages eveyone wanted to share, the mindsets that have gotten all the exercise. Worship of high speed message delivery about this content. Mocking Tony Clifton actors, mocking antics politics, is not resisting antics politics. Surkov understood this 25 years ago and was able to addict a nation to this via IRA and CA since year 2013. Neil Postman was correct about these exploitable technology outcomes in 1985, 1992... Rick Roderick was correct in 1993. People are going to look at the real world, reality outside the high-speed media systems, and possibly become very violent over not understanding and grasping how sports mentality of out-group mocking and messaging / informing junk created a mess. Maybe some sincere, honest, goodness oriented people will rise to lead the whole world away from here... but the rest of the world has been given a 'rich king' nation to blame for everything. Trump bragging, our super-hero save the world media entertainment - has drowned out Dr. Martin Luther King Jr's reforms. And people werenot intertested in passing down what MLK Jr had to say about hate and poverty of the spirit.
+This is the social power of the biggest star of media in all history. This is the messages everyone wanted to share, the mindsets that have gotten all the exercise. Worship of high speed message delivery about this content. Mocking Tony Clifton actors, mocking antics politics, is not resisting antics politics. Surkov understood this 25 years ago and was able to addict a nation to this via IRA and CA since year 2013. Neil Postman was correct about these exploitable technology outcomes in 1985, 1992... Rick Roderick was correct in 1993. People are going to look at the real world, reality outside the high-speed media systems, and possibly become very violent over not understanding and grasping how sports mentality of out-group mocking and messaging / informing junk created a mess. Maybe some sincere, honest, goodness oriented people will rise to lead the whole world away from here... but the rest of the world has been given a 'rich king' nation to blame for everything. Trump bragging, our super-hero save the world media entertainment - has drowned out Dr. Martin Luther King Jr's reforms. And people werenot intertested in passing down what MLK Jr had to say about hate and poverty of the spirit.
 
 https://old.reddit.com/r/interesting/comments/1oxmz10/an_italian_pizza_restaurant_owner_is_fuming_at_16/noyq35u/
 
@@ -303,7 +303,7 @@ ToDo: insert Maslow quote from Campbell. Great Seal Pluribus has nothing to do w
 
 https://old.reddit.com/r/antiwork/comments/1oxuf62/the_way_we_live_is_not_natural/nozq091/
 
-Correct. You don't create metaphorsof Eden if you already had it. You have to build it.
+Correct. You don't create metaphors of Eden if you already had it. You have to build it.
 
 https://old.reddit.com/r/LivestreamFail/comments/1oxy8wo/jack_doherty_has_been_arrested_in_miami_on/np1h35u/
 
@@ -313,7 +313,7 @@ https://old.reddit.com/r/technology/comments/1oygsx4/metas_top_ai_researchers_is
 
 https://old.reddit.com/r/TikTokCringe/comments/1oz1bna/just_saw_this_drop_on_a_russian_discord_server/np8f9jw/
 
-How Russia wrecked a nation, feedback loops of A mocks B, B mocks A, etc, etc. People will embrace ANY idea and put it into their mind if it is "milking a LOL cow", and Trump provides constant sitmulation entertainment amusement.
+How Russia wrecked a nation, feedback loops of A mocks B, B mocks A, etc, etc. People will embrace ANY idea and put it into their mind if it is "milking a LOL cow", and Trump provides constant stimulation entertainment amusement.
 
 https://old.reddit.com/r/technology/comments/1oz2387/fcc_chairman_reposts_us_presidents_call_for_nbc/np8k8vl/
 
@@ -345,7 +345,7 @@ The proven way to win debate in social media society. Insulting and mocking.
 
 https://old.reddit.com/r/politics/comments/1ozdpjb/trump_launches_latenight_posting_spree_after/npb9680/
 
-Reddit audience convinces itself it is physical disorder. That all of MAGA / Fox News Audience is "sundowning". That way the addictions to fiction content aren't addressed. Trump being "insane" is being unusual / distinctive. That's what draws the Reddit audience on ANY topic. A kiten with distinctive body pose or fur color... front page of Reddit. A sports clip with distinctive movements, front page of Reddit. Donald Trump and his skin color gets constant attention. Disctinctive, eye catching, behavior that stands out. Outstanding Trump. People are not attracted to promoting the Second Bill of Rights from January 1944, that'd dictictive better - but people are attracted to mocking / insutling / badness that Trump provides. Mocking a Tony Clifton performance is not resisting a Tony Clifton performance. Trump grasps SNL.
+Reddit audience convinces itself it is physical disorder. That all of MAGA / Fox News Audience is "sundowning". That way the addictions to fiction content aren't addressed. Trump being "insane" is being unusual / distinctive. That's what draws the Reddit audience on ANY topic. A kitten with distinctive body pose or fur color... front page of Reddit. A sports clip with distinctive movements, front page of Reddit. Donald Trump and his skin color gets constant attention. Distinctive, eye catching, behavior that stands out. Outstanding Trump. People are not attracted to promoting the Second Bill of Rights from January 1944, that's distinctive better - but people are attracted to mocking / insulting / badness that Trump provides. Mocking a Tony Clifton performance is not resisting a Tony Clifton performance. Trump grasps SNL.
 
 https://old.reddit.com/r/complaints/comments/1ozi28o/republicans_removed_trumps_name_from_the_epstein/npbok7w/
 
@@ -353,15 +353,15 @@ Anti-Rescue. Putin won, Surkov won, since year 2013.
 
 https://old.reddit.com/r/ProgressiveHQ/comments/1ozg1qx/one_for_the_history_books/npba00g/
 
-That's why people on Reddit are attracted to Trump. The constant Tony Clifton juxtoposition / paradox / inverted symbolism. This has gone on for OVER TEN YEARS AND FIVE MONTHS. Trump is not a coward and weak about waving around badness symbolism. This flag is a technical glitch, I doubt it was planned or oganized, but people WANT him to be a bad-ass so they can mock and insult him. But Trump and Putin know this power of attracting hate / power of concentrating hate.
+That's why people on Reddit are attracted to Trump. The constant Tony Clifton juxtaposition / paradox / inverted symbolism. This has gone on for OVER TEN YEARS AND FIVE MONTHS. Trump is not a coward and weak about waving around badness symbolism. This flag is a technical glitch, I doubt it was planned or organized, but people WANT him to be a bad-ass so they can mock and insult him. But Trump and Putin know this power of attracting hate / power of concentrating hate.
 
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1ozmtor/the_fact_that_this_must_be_said_is_horrifying/npcog7a/
 
-This is why I constantly emphasize Malala January 2009 blog, her year 2012 shooting, her year 2013 book. We are not taking serious matters seriously. We are fighitng for Putin wealth lords, we are not fighting for goodness. People odn't even seem to recognize what goodness means! Nonfiction education, understanding the world, teaching children to be better than previous generations (progress itself). Instaed, we let predaotry billionares run all our media systems like Radio Mullah in Swat Valey, Pakistan and Mecca run by wealth lords. We are dominating people with badness, trickle down content / trickle down advertising and marketing for badness.
+This is why I constantly emphasize Malala January 2009 blog, her year 2012 shooting, her year 2013 book. We are not taking serious matters seriously. We are fighting for Putin wealth lords, we are not fighting for goodness. People don't even seem to recognize what goodness means! Nonfiction education, understanding the world, teaching children to be better than previous generations (progress itself). Instead, we let predatory billionaires run all our media systems like Radio Mullah in Swat Valley, Pakistan and Mecca run by wealth lords. We are dominating people with badness, trickle down content / trickle down advertising and marketing for badness.
 
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1ozmtor/the_fact_that_this_must_be_said_is_horrifying/npcsicf/
 
-Globally. The Taliban blowing up schools so little girl Malala can't learn in January 2009. Indoctrination into a male elder domination of Taliban / Swat Valley Pakistna. Exactly what is bieng "conserved" here?
+Globally. The Taliban blowing up schools so little girl Malala can't learn in January 2009. Indoctrination into a male elder domination of Taliban / Swat Valley Pakistan. Exactly what is being "conserved" here?
 
 https://old.reddit.com/r/law/comments/1ozock7/americans_should_be_enraged_reports_expose/npd0c55/
 
@@ -383,7 +383,7 @@ The audience attraction to Trump.
 
 https://old.reddit.com/r/politics/comments/1ozuyqg/donald_trump_snaps_at_female_reporter_who_asks/npedd26/
 
-Business suit, apperances, are massive reasons people resect these men. Icon / Symbolism programming with massive media systems, massive advertising, massive marketing, drilled into people. In Saudi Arabia, an entire different business suit. In Malala's Swat Valley Pakistan, entire different business suit. Wealthy people have convinced USA popuulation that dirty street people are the enemy. If your writing on Reddit isn't charming and unique, you will be ignored / avoided. if you quote a factual book on the subject, people will mock and insutl and say it is off topic. So conditioned to only prize what the wealthy say to listen to / dress / decoration.
+Business suit, apperances, are massive reasons people resect these men. Icon / Symbolism programming with massive media systems, massive advertising, massive marketing, drilled into people. In Saudi Arabia, an entire different business suit. In Malala's Swat Valley Pakistan, entire different business suit. Wealthy people have convinced USA population that dirty street people are the enemy. If your writing on Reddit isn't charming and unique, you will be ignored / avoided. if you quote a factual book on the subject, people will mock and insult and say it is off topic. So conditioned to only prize what the wealthy say to listen to / dress / decoration.
 
 https://old.reddit.com/r/politics/comments/1ozuyqg/donald_trump_snaps_at_female_reporter_who_asks/npeew76/
 
@@ -391,31 +391,31 @@ Finnegans Wake, James Joyce. The Tower of Babel. All the ways we devise to not l
 
 https://old.reddit.com/r/politics/comments/1ozuyqg/donald_trump_snaps_at_female_reporter_who_asks/npebj6c/
 
-Never ever forgive, neve ever progress, never ever teach and educate these media driven patterns. Exactly how Russia inforamtion warfare defated USA, get ever American in egoism bubbles to out-group *the others* and never forgive and addresss Russian methods itself.
+Never ever forgive, never ever progress, never ever teach and educate these media driven patterns. Exactly how Russia information warfare defeated USA, get ever American in egoism bubbles to out-group *the others* and never forgive and address Russian methods itself.
 
 https://old.reddit.com/r/politics/comments/1ozuyqg/donald_trump_snaps_at_female_reporter_who_asks/npeohe4/
 
-Games are pro-killing pro-murder. Aleins are the new metaphor for other skin colors, other genders, other religions, other races, other nations. The thrill of killing.
+Games are pro-killing pro-murder. Aliens are the new metaphor for other skin colors, other genders, other religions, other races, other nations. The thrill of killing.
 
 https://old.reddit.com/r/politics/comments/1ozuyqg/donald_trump_snaps_at_female_reporter_who_asks/npes4xu/
 
-JHust like always, adopt Trump behavior. Trump the template for "winning". Adopt Trump speech, mocking, hate. Hate for hate. Hate vs. hate. Common faith of USA society: *hate harder* since year 2013. Putin son, Surkov won.
+Just like always, adopt Trump behavior. Trump the template for "winning". Adopt Trump speech, mocking, hate. Hate for hate. Hate vs. hate. Common faith of USA society: *hate harder* since year 2013. Putin son, Surkov won.
 
 https://old.reddit.com/r/travisandtaylor/comments/1ozrn3f/vulture_just_named_taylor_swifts_albumwriting/npemhgy/
 
-Her ego is a reflection of society. Flocking to wealth leaders like Taylor Swift and Donald Trump and Elon Musk. Taylor Swift isn't the downfall, Donald Trump as "LOL cow" to milk and insult non-stop for OVER TEN YEARS AND FIVE MONTHS, endlessly insulting and mocking Trump and keeping him at the center of Reddit nonstop for the sake of hate, sake of mockery, sake of name-calling, sake of egoism that eveyrone "are you smarter than a 3rd grader" dick mesasuremnet of how dumb and idiot Trummp is. That's the attraction. A low bar of measure, 3rd grader being defeated. Audiences eat up the Kremlin information warfare since year 2013 using these technqiues.
+Her ego is a reflection of society. Flocking to wealth leaders like Taylor Swift and Donald Trump and Elon Musk. Taylor Swift isn't the downfall, Donald Trump as "LOL cow" to milk and insult non-stop for OVER TEN YEARS AND FIVE MONTHS, endlessly insulting and mocking Trump and keeping him at the center of Reddit nonstop for the sake of hate, sake of mockery, sake of name-calling, sake of egoism that everyone "are you smarter than a 3rd grader" dick measurement of how dumb and idiot Trump is. That's the attraction. A low bar of measure, 3rd grader being defeated. Audiences eat up the Kremlin information warfare since year 2013 using these techniques.
 
 https://old.reddit.com/r/travisandtaylor/comments/1ozrn3f/vulture_just_named_taylor_swifts_albumwriting/npdmkhw/
 
-2025 the stupidst year in USA society. Neil Postman's 1985 book "Amusing Ourselves To Death" about Fox News, Reddit, Bluesky, high-speed electric media values and behaviors.
+2025 the stupidest year in USA society. Neil Postman's 1985 book "Amusing Ourselves To Death" about Fox News, Reddit, Bluesky, high-speed electric media values and behaviors.
 
 https://old.reddit.com/r/travisandtaylor/comments/1ozrn3f/vulture_just_named_taylor_swifts_albumwriting/npdy93e/
 
-She knoows USA audience. The same USA society that prizes high-speed disposable comments. She is talking at the ELI3 level Reddit audience adores, Fox News audience wants, Trump society follows. People are not protesting the avoidance of nonfiction. People are not calling out Surkov society techniques by name. People are not calling to rescue adults from Fox News, to rescue MAGA from Russia media invasion. People just want to grade and insult that they are slightly better off than the dubness. This is hell for me, a society that only cares about cometition over smartness, not actually using Wiki systle systems instead of Reddit sytle disposable commenting all on different pages.
+She knows USA audience. The same USA society that prizes high-speed disposable comments. She is talking at the ELI3 level Reddit audience adores, Fox News audience wants, Trump society follows. People are not protesting the avoidance of nonfiction. People are not calling out Surkov society techniques by name. People are not calling to rescue adults from Fox News, to rescue MAGA from Russia media invasion. People just want to grade and insult that they are slightly better off than the dumbest. This is hell for me, a society that only cares about competition over smartness, not actually using Wiki-style systems instead of Reddit style disposable commenting all on different pages.
 
 https://old.reddit.com/r/travisandtaylor/comments/1ozrn3f/vulture_just_named_taylor_swifts_albumwriting/npegxfe/
 
-Tower of Babel conflicts raging. Everyone in their own langauge filter-bubble. 
+Tower of Babel conflicts raging. Everyone in their own language filter-bubble. 
 
 https://old.reddit.com/r/travisandtaylor/comments/1ozrn3f/vulture_just_named_taylor_swifts_albumwriting/npe9pv5/
 

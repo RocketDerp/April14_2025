@@ -667,3 +667,21 @@ Most popular upvoted comment. For more than a decade, since June 16, 2015 - day 
 Calling a NYC man, born in New York, fan of SNL NYC, "a clown" is not resisting. Trump is playing Tony Clifton comedy acts and stunts for the camera, all the time, for the Reddit fandom. Mocking Trump as "a clown" is not resisting a Tony Clifton act. You resist a Tony Clifton actor, Trump, but asserting nonfiction education by Dr. Bandy X Lee. A non-clown serious mental health expert who has been leading since year 2017 - but Reddit commenting community won't stop mocking and insulting Donald Trump's on-camera performance.
 
 And **MAGA is not one single 79 year-old clown**. It is hundreds of millions of people. Fox News HDTV audience cult has the same media addition issues as Reddit shit-commenting media cultists. Anti-intellectual mocking of serious people like Dr. Bandy X Lee's book.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qtn7x8/donald_trump_goes_on_grammys_rant_threatening_to/o3464jq/
+
+Anything but use Reddit social systems to promote Dr. Bandy X Lee's nonfiction teachings to the general public.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qtn7x8/donald_trump_goes_on_grammys_rant_threatening_to/o342gpx/
+
+Commenting day in day out about Trump. Anything but use Reddit social systems to promote Dr. Bandy X Lee's nonfiction teachings to the general public.
+
+https://old.reddit.com/r/memes/comments/1qtvmcv/is_there_a_word_for_such_talent/o35mryv/
+
+I don't even know how to begin explianing that Twitter postings all over /r/All of Reddit every hour of every day is a simultion of resistance to Elon Musk. People do not take seriously whst Elon Musk says about billionaires manipulating "mind virus" of Reddit audience. What do I fucking know, i only worked in social media for the richest people in the world in Bellevue, Washington.
+
+I really don't know where to begin to describe this Reddit fandom of hate. People who prize and cheer on hate leaders { Putin, Musk, Trump }. Compulsively driven by media mania. Marshall McLuhan and James Joyce (what McLuhan says about Joyce https://www.themediumisthemassage.com/joyce-is-in-the-wake-making-his-own-altamira-cave-drawings-of-the-entire-history-of-the-human-mind-in-terms-of-its-basic-gestures-and-postures-during-all-the-phases-of-human-culture-an/ ) are essential comprehension of the Reddit simulacra behaviors. 
+
+https://old.reddit.com/r/memes/comments/1qtvmcv/is_there_a_word_for_such_talent/o35pqir/
+
+Radio emitting signal. Twitter emitting. StarLink radio tech for Reddit tech audience.
