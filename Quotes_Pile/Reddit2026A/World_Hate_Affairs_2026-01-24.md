@@ -591,3 +591,17 @@ https://old.reddit.com/r/UnderReportedNews/comments/1qto9uz/epstein_and_putin_we
 https://old.reddit.com/r/UnderReportedNews/comments/1qto9uz/epstein_and_putin_were_connected_as_worlds/o350at8/
 
 https://old.reddit.com/r/UnderReportedNews/comments/1qto9uz/epstein_and_putin_were_connected_as_worlds/o34g9qt/
+
+https://old.reddit.com/r/law/comments/1qts9j1/how_is_this_epstein_file_not_front_page_news_2/o352zux/
+
+https://old.reddit.com/r/law/comments/1qts9j1/how_is_this_epstein_file_not_front_page_news_2/o34yw1s/
+
+6 month Reddit account.
+
+https://old.reddit.com/r/law/comments/1qts9j1/how_is_this_epstein_file_not_front_page_news_2/o353dl2/
+
+The Medium is the Massaging of the Public.
+
+https://old.reddit.com/r/law/comments/1qts9j1/how_is_this_epstein_file_not_front_page_news_2/o3599fv/
+
+Impressions and superficial high-speed information glances are what people on Reddit seek. QAnon "Q" drops, information strip tease. If people wanted to reform and have honest sincere leaders, Malala and Dr. Bandy X Lee would be far more important and repeating topics.
