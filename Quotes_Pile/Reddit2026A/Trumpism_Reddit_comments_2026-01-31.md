@@ -1143,3 +1143,16 @@ https://old.reddit.com/r/news/comments/1qu2ko1/brazilian_influencer_who_defended
 https://old.reddit.com/r/WorkReform/comments/1qu2338/bernie_sanders_its_a_club_where_the_rules_and_the/o36zz40/
 
 1 week Reddit account. Top upvoted most popular comment.
+
+https://old.reddit.com/r/news/comments/1qu6y4y/doj_takes_down_thousands_of_epstein_documents_for/o37zr5a/
+
+8 month Reddit account. "Wow" signaling. Random of the Reality White House performances.
+
+https://old.reddit.com/r/news/comments/1qu6y4y/doj_takes_down_thousands_of_epstein_documents_for/o380i5f/
+
+They haven't "forgot", eating the performance. The whole thing has been an act of information strip tease. Strip poker with the Reddit audience, fandom of Epstein and QAnon PizzaGate fandoms. Why isn't social media promoting Malala and giving girls voices and addressing the foundation problems with global society and how girls are trafficked, treated, abused, married and manipulated by elder men?
+
+The Reddit audience attraction is to commenting upon Trump Epstein content / Putin Kremlin / Trump White House as fast as possible, not focusing on the gullibility and ignorance of the population that is attracted to male "Daddy" Jesus Trump, God Trump, Allah Trump, Allah Yahweh leadership.  PARENTS have elected Trump to be a role model for their 7 year old children. Trump has been the center of all education and teaching systems for a decade. Trump is put in front of every media system over and over and over to stimulate Reddit and other media audiences. The masculine sexual power Putin + Trump has over Reddit adults is sickening.
+
+* “I don’t want any other girl to go through the same as me. Not all of them can fight as hard as I did,” she said. “They deserve to be successful women first and take their rightful place in the community. **Girls should be students and not brides**. This is my message for leaders.” - https://StephanieSinclair.com/malala-speaks-end-child-marriage/
+
