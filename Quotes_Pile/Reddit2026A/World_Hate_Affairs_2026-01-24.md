@@ -495,3 +495,26 @@ This GitHub project is to draw circles around all the avoided: Dr. Bandy X Lee. 
 
 It never ever could have been more obvious than Putin and trump's relationship. Putin fucking kidnaps children from Ukraine.
 
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qtl6dd/who_is_it_who_was_epsteins_boss/o341k2c/
+
+<img width="1113" height="326" alt="image" src="https://github.com/user-attachments/assets/11bbb1f3-fdf8-462f-8a39-acf594ba717a" />
+
+Nobody learned a god damn fucking thing about The Light of The Catholic Church and the sex life of the priesthood with children.
+
+Nobody on Reddit can make an association with organized religion.
+
+The fucking BABY DADDY of Jesus! Fucking Christmas, who is the daddy? Gullible fandom of Santa does not ask exactly how a magical outer-pace Eden daddy gets to be the father of Jesus. "The Illuminate Child". It is as if nobody on Reddit can imagine the LITERAL LITERACY meaning of Bible verse John 1:1 
+
+Putin has used John 1:1 meme patterns to mind-fuck the USA into trusting Donald Trump. Donald Trump trusts Putin as his "buddy". Go ask the Russian people what kind of Buddy Putin is. Go ask Ukraine what kind of loving neighbor Putin is.
+
+Go ask about the young girls in Iran, Iraq, Afghanistan, Pakistan.  Those are the places I have personally researched. 
+
+Fuck, girls would brag about their older boyfriends in college when I was in high school! If a girl was sexy and pretty in high school, puberty raging and everyone wanting to not be a virgin at age 17... do people not get the pressure on attractive girls? My high school was competitive a fuck.
+
+Again, who is the baby daddy of Jesus? The ultimate pregnancy from another school. My lover is king of kings, Heaven above, Eden daddy for Jesus. Wake the fuck up, people, John 1:1 is LITERACY itself. Tower of babel. We are the snakes and John 1:1 is the snake harming in Eden. The Tree of bamboozle knowledge of John 1:1 story patterns. 
+
+* https://www.FinnegansWeb.com/wiki/index.php/Page_581 Page 581 of Finnegans Wake. I'm sorry to say I fucking saw the whole Tower o Babel industrial charming complex. Mecca, Jesus daddy from outer space John 1:1 - it's all fucking seeable through the boys and girls in your own high school. Molly Hatched song "Fall of the Peacemakers" told me to look into the souls of men. Their charms and how they chase after popularity itself to charm others. Page 581, "I saw", sorry to fucking say, I saw!!! The Clergy performances without being honest of John 1:1 meaning. The rock music on the F.M. radio. Malala saw too, Radio F.M. Mullah. 
+
+What I saw in The Church as a boy scout in a Catholic troop, where I was the only protestant Lutheran, I saw in fucking F.M. Radio in high school. Girls and boys mind-fucking each other over the most shallow and superficial bran-name cosmetics and fashion. And head-banging NFL ambition of brain damage.
+
+OPERA_A The girls don't seem to care what's on... As long as they play 'til dawn. Nothin' but blues and Elvis... And somebody else's favorite song. "FM (No Static at All)" by Steely Dan was written and recorded in 1977 and released on May 19, 1978. Donald Trump is a gifted charmer and knows how to put his charming media moves over the medium. This song came out when I was 10 years old. https://www.youtube.com/watch?v=UtFEJOL8kWU 16,630 views December 19, 2023
