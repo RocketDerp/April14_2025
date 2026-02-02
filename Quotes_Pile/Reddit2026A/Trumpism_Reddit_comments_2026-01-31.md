@@ -957,4 +957,8 @@ Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mdv433jc5k
 
 https://old.reddit.com/r/Music/comments/1qtu5up/nicki_minaj_goes_on_x_rampage_after_being/o35c11q/
 
-Truth Social and /r/Music fandom calling for MORE Trump style content. Addicts to Celebrity want to see more and more Trump pairings with his acting / actor in the Reality Truth Social show for Reddit audience, Reddit end-users commenting how much they crave Trump. Over a decade of Reddit fandom glued to touch screens begging for more Trump content!
+<img width="878" height="433" alt="image" src="https://github.com/user-attachments/assets/23889352-3f96-4ce9-b454-b9f46c7d1256" />
+
+Truth Social and /r/Music fandom / fanatics of Reddit calling for MORE Trump style content. Addicts to Celebrity want to see more and more Trump pairings with his acting / actor in the Reality Truth Social show for Reddit audience, Reddit end-users commenting how much they crave Trump. Over a decade of Reddit fandom glued to touch screens begging for more Trump content!
+
+Social post { https://autistics.life/@RoundSparrow/116001772916934172 https://bsky.app/profile/roundsparrow.bsky.social/post/3mdv6eqzru22m }
