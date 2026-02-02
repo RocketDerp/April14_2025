@@ -770,3 +770,15 @@ https://old.reddit.com/r/pics/comments/1qthiy6/here_is_a_picture_of_teargassed_c
 https://old.reddit.com/r/pics/comments/1qthiy6/here_is_a_picture_of_teargassed_children/o32z8hq/
 
 Battleground Reddit.
+
+https://old.reddit.com/r/pics/comments/1qthiy6/here_is_a_picture_of_teargassed_children/o32z6dx/
+
+https://old.reddit.com/r/pics/comments/1qthiy6/here_is_a_picture_of_teargassed_children/o330wjo/
+
+https://old.reddit.com/r/pics/comments/1qthiy6/here_is_a_picture_of_teargassed_children/o32wtkh/
+
+https://old.reddit.com/r/pics/comments/1qthiy6/here_is_a_picture_of_teargassed_children/o3351yf/
+
+https://old.reddit.com/r/pics/comments/1qthiy6/here_is_a_picture_of_teargassed_children/o334c60/
+
+5 month Reddit account
