@@ -1013,3 +1013,13 @@ REDDIT community... avoidance of non-fiction learning about Russian information 
 
 * Published January 2015, before Trump started run for office in June 2015: https://www.Politico.com/magazine/story/2015/01/putin-russia-tv-113960/ At one end of the table sat one of the country’s most famous political TV presenters. He was small and spoke fast, with a smoky voice: “We all know there will be no real politics,” he said. “But we still have to give our viewers the sense something is happening. They need to be kept entertained.” “So what should we play with?” he asked. “Shall we attack oligarchs? Who’s the enemy this week? **Politics has got to feel like a movie!**”
 
+https://old.reddit.com/r/politics/comments/1qtxe1j/a_13yearold_girl_bit_trumps_genitals_as_he_tried/o35yuky/
+
+To understand the United States of America and how Trump came to power of all media systems in year 2015 onward... you have to understand these fandoms of Reality TV and Reality Reddit trash content.
+
+https://old.reddit.com/r/politics/comments/1qtxe1j/a_13yearold_girl_bit_trumps_genitals_as_he_tried/o363dt4/
+
+Trump audience, fans of Trump, predicting what is coming next up on the Reality TV plot story. ALWAYS AVOIDING: serious calls to organize on social media and make Dr. Bandy X Lee's nonfiction lessons be a constant commenting education for general public. ENDING the performance of Trump Reality content for Reddit consumers.
+
+
+
