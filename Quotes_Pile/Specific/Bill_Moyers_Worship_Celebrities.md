@@ -28,3 +28,4 @@ Social post
 https://old.reddit.com/r/clevercomebacks/comments/1qtyspj/social_media_fury_unleashed/   
 https://autistics.life/@RoundSparrow/116002241859073216       
 https://bsky.app/profile/roundsparrow.bsky.social/post/3mdvf23aez22c   
+https://midwest.social/post/42845298   
