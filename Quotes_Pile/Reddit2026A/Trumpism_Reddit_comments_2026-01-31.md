@@ -749,3 +749,6 @@ https://old.reddit.com/r/allthequestions/comments/1qta8lr/repeat_after_me_trump_
 
 https://old.reddit.com/r/allthequestions/comments/1qta8lr/repeat_after_me_trump_is_a_pedophile_and/o31dlgh/
 
+https://old.reddit.com/r/allthequestions/comments/1qta8lr/repeat_after_me_trump_is_a_pedophile_and/o31ezx7/
+
+https://old.reddit.com/r/allthequestions/comments/1qta8lr/repeat_after_me_trump_is_a_pedophile_and/o31fc9n/
