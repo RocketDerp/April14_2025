@@ -536,3 +536,5 @@ creation"
 What I saw in The Church as a boy scout in a Catholic troop, where I was the only protestant Lutheran, I saw in fucking F.M. Radio in high school. Girls and boys mind-fucking each other over the most shallow and superficial brand-name cosmetics and fashion. And head-banging NFL ambition of brain damage.
 
 OPERA_A The girls don't seem to care what's on... As long as they play 'til dawn. Nothin' but blues and Elvis... And somebody else's favorite song. "FM (No Static at All)" by Steely Dan was written and recorded in 1977 and released on May 19, 1978. Donald Trump is a gifted charmer and knows how to put his charming media moves over the medium. This song came out when I was 10 years old. https://www.youtube.com/watch?v=UtFEJOL8kWU 16,630 views December 19, 2023
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qtl6dd/who_is_it_who_was_epsteins_boss/o340twv/
