@@ -856,3 +856,14 @@ The Reddit fandom sees "on tape", on film, on camera, on live streaming. The med
 * "Everyone Poops (originally Minna Unchi) is a renowned Japanese children's book written and illustrated by Taro Gomi, first published in Japan in 1977. It was later translated into English and released in the U.S. in 1993, becoming a staple in potty training. The book uses simple, direct language and, humorous,, bright illustrations to **normalize biological functions, reassuring children** that all living things — from animals to humans—eat and poop. みんなうんち." - Google Search summary 2026-02-02 morning USA
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mdux3xsj2s2c https://autistics.life/@RoundSparrow/116001255851445748 }
+
+https://old.reddit.com/r/Music/comments/1qtnq1v/trump_slams_grammys_threatens_to_sue_trevor_noah/o348fqh/
+
+Reddit is the celebration of shit-commenting. Celebration of ignorant shit.
+
+https://old.reddit.com/r/Music/comments/1qtnq1v/trump_slams_grammys_threatens_to_sue_trevor_noah/o3479iy/
+
+Reddit blind faith: comedy and jokes. Never questioned faith. Russia exploited the entire population into total mockery of joke-meme thinking since March 2013. Trump washed into entertainment bucket, Trump now clean with humor brain exploitations. POTUS Tony Clifton acting by actor Donald J. Trump blows Reddit audience minds into meme stupors. Every hour of every day via high-speed TCP/IP delivery.
+
+* “Everything in our background has prepared us to know and resist a prison when the gates begin to close around us . . . But what if there are no cries of anguish to be heard? Who is prepared to take arms against a sea of amusements? To whom do we complain, and when, and in what tone of voice, when serious discourse dissolves into giggles? What is the antidote to a culture's being drained by laughter?”
+― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. Year 1985.
