@@ -39,3 +39,9 @@ https://old.reddit.com/r/HistoryMemes/comments/1qsx5ss/the_buddhas_final_message
 &nbsp;
 
 https://old.reddit.com/r/CuratedTumblr/comments/1qtb8a6/relationships/
+
+&nbsp;
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1qu2g8e/something_something_about_dating_chris_can_you/
+
+Choice marriage honest / values. ex-lovers.
