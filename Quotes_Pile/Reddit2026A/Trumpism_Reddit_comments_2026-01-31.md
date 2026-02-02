@@ -807,3 +807,8 @@ https://old.reddit.com/r/law/comments/1qthn9l/trump_claims_the_right_to_cut_hims
 
 Trump: POWER, Wealth, Name-fame, Camera appearances / recorded media.
 
+https://old.reddit.com/r/law/comments/1qthn9l/trump_claims_the_right_to_cut_himself_blank/o332x8u/
+
+https://old.reddit.com/r/law/comments/1qthn9l/trump_claims_the_right_to_cut_himself_blank/o331wa0/
+
+Fox News HDTV is an adult education network. Adults do not learn in rectangle classrooms. Adults learn from rectangle sports fields of NFL, NBA, Fox News arenas. Media ecology grasping of Marshall McLuhan is not optional - it is the adult education that has been lost-abandoned since year 2012.
