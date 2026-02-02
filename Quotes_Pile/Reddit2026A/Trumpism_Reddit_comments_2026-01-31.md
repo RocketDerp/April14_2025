@@ -1029,3 +1029,8 @@ https://old.reddit.com/r/politics/comments/1qtxe1j/a_13yearold_girl_bit_trumps_g
 
 2 month Reddit account. 
 
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1qtxhzu/ice_employees_vent_on_reddit_saying_theyre_not/o35zpgi/
+
+"crazy", reply comment: "cult"
+
+All comments avoiding quoting nonfiction books from Dr. Bandy X Lee on mental health. Cult of Reddit commenting about MAGA. A media cult of Reddit media systems.
