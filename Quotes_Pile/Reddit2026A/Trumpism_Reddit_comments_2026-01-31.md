@@ -760,3 +760,13 @@ https://old.reddit.com/r/MurderedByWords/comments/1qtaoz0/meanwhile_on_4chan_aft
 https://old.reddit.com/r/MurderedByWords/comments/1qtaoz0/meanwhile_on_4chan_after_yesterdays_events/o31f8va/
 
 Jokes are what matters more than health care and compassion.
+
+https://old.reddit.com/r/pics/comments/1qthiy6/here_is_a_picture_of_teargassed_children/o32z9mq/
+
+https://old.reddit.com/r/pics/comments/1qthiy6/here_is_a_picture_of_teargassed_children/o33020a/
+
+https://old.reddit.com/r/pics/comments/1qthiy6/here_is_a_picture_of_teargassed_children/o32zc4m/
+
+https://old.reddit.com/r/pics/comments/1qthiy6/here_is_a_picture_of_teargassed_children/o32z8hq/
+
+Battleground Reddit.
