@@ -608,7 +608,10 @@ Impressions and superficial high-speed information glances are what people on Re
 
 https://old.reddit.com/r/technology/comments/1qtv7h1/the_world_is_trying_to_log_off_us_tech/o35mgza/
 
-All the commenting creators on Reddit comment section... **will likely never realize they avoided promoting Neil Postman's** nonfiction, Dr. Bandy X Lee's nonfiction over and over until the cult problems were front and center in USA. We The People, the reddit small-time user, did not stand up for over 10 years. Tech addictions to mocking high-speed TCP/IP media of Reddit wrecked the USA.
+All the commenting creators on Reddit comment section... **will likely never realize they avoided promoting Neil Postman's** nonfiction, Dr. Bandy X Lee's nonfiction over and over until the cult problems were front and center in USA. We The People, the Reddit small-time user, did not stand up for over 10 years. Tech addictions to mocking high-speed TCP/IP media of Reddit wrecked the USA.
 
 * Published January 2015, before Trump started run for office in June 2015: https://www.Politico.com/magazine/story/2015/01/putin-russia-tv-113960/ At one end of the table sat one of the country’s most famous political TV presenters. He was small and spoke fast, with a smoky voice: “We all know there will be no real politics,” he said. “But we still have to give our viewers the sense something is happening. They need to be kept entertained.” “So what should we play with?” he asked. “Shall we attack oligarchs? Who’s the enemy this week? **Politics has got to feel like a movie!**”
 
+https://old.reddit.com/r/technology/comments/1qtv7h1/the_world_is_trying_to_log_off_us_tech/o35l9qw/
+
+10 month Reddit account.
