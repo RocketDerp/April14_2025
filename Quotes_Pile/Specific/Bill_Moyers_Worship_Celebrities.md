@@ -1,5 +1,7 @@
 # Bill Moyers: *Worship Celebrities*
 
+https://BillMoyers.com/content/joseph-campbell-myths-live-part-one/
+
 BILL MOYERS: **We seem to worship celebrities** today, not heroes.
 
 JOSEPH CAMPBELL: Yes, and that’s too bad. A questionnaire was once sent around one of the high schools in Brooklyn which asked, “What would you like to be?” Two thirds of the students responded, “A celebrity.” They had no notion of having to give of themselves in order to achieve something.
