@@ -615,3 +615,15 @@ All the commenting creators on Reddit comment section... **will likely never rea
 https://old.reddit.com/r/technology/comments/1qtv7h1/the_world_is_trying_to_log_off_us_tech/o35l9qw/
 
 10 month Reddit account.
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1qtv7i1/petah/o35oe2r/
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1qtv7i1/petah/o35r8rd/
+
+why not devote yourself to being a Malala quote creator on GitHub and other media platforms... instead, hate inspires hate. Hate vs. hate, hate harder messaging on Reddit. Machine lovers of wood chippers. The problem is our content Hollywood film empire, the child trafficking of little girls for Harry Potter.
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1qtv7i1/petah/o35w6d1/
+
+Hollywood is image trafficking for audiences.
+
+
