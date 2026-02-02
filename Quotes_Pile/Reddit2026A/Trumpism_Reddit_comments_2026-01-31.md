@@ -791,3 +791,9 @@ https://old.reddit.com/r/MemeVideos/comments/1qt9pkk/and_they_called_me_schizo/o
 
 https://old.reddit.com/r/MemeVideos/comments/1qt9pkk/and_they_called_me_schizo/o31g1jp/
 
+https://old.reddit.com/r/law/comments/1qthn9l/trump_claims_the_right_to_cut_himself_blank/o32ylr8/
+
+8 month Reddit account. Top-upvoted popular comment.
+
+Short Twitter-length logic of polarity mindsets. "reminder" to mock MAGA in a feedback loop that Russia started since March 2013 with the Saint Petersburg Internet Research Agency. Constantly mock Americans vs. Americans and ignore all the NATO Ukraine conflicts that Putin has been using to destabilize reality with. Reddit is a fandom of MAGA. "reminder".
+
