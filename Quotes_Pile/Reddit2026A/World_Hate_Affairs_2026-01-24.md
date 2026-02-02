@@ -578,3 +578,10 @@ https://old.reddit.com/r/UnderReportedNews/comments/1qto9uz/epstein_and_putin_we
 Putin's information warfare has destabilized reality so much that we are getting outright wilding mindsets.
 
 * "Now this is a very serious affair. It is serious because these symbolic worlds were the supports of the civilizations, of the moralities of the civilizations, of the self-confidence of the civilizations, of the vitality and creative power of the civilizations. And with the cutting down, the frustrating of the self-confidence that derives from images of this kind, **there is a disequilibrium within the society itself**. And everyone is challenged in his loyalty — are you going to be loyal to the tradition, to the form, to the morality and myth of your society, or are you going to be loyal to truth? They are two different things. This is the problem in teaching; this is the problem in bringing up your children; this is the problem that was beside me there at the lunch counter." - November 16, 1961
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qto9uz/epstein_and_putin_were_connected_as_worlds/o34fx1a/
+
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qto9uz/epstein_and_putin_were_connected_as_worlds/o34nt9t/
+
+4 month account 
