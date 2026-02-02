@@ -802,3 +802,8 @@ https://old.reddit.com/r/law/comments/1qthn9l/trump_claims_the_right_to_cut_hims
 USA has morals. Sports stars with armies of medical doctors while fans have no health care or doctor. Expensive name-brand education university sports-team brandings. Anti-Wiki anti-FAQ anti-intellectual copyright and patent restrictions of medicines and knowledge.  Disney into mind, **Mario** into mind of children.
 
 * **YEAR 1993**, children of the 1990's now the adults teaching morality. "I have talked about how children used to learn morality from their parents and now I think that [morality is learned from] Super Mario Brothers. They spend much more time with Super Mario Brothers and are much more emotionally involved with Nintendo than they are with their aunts, their uncles, their mothers and their fathers. I asked one of my children “Why are you yelling at a machine?” when he began to bang his Nintendo, and he looked at me as though I were a being from another world. And because of that there is a postmodern trajectory. I am from another world. I am still, as it were, caught in the modern. He’s not. Why not be emotional with a machine? His peers are machine-like" https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
+
+https://old.reddit.com/r/law/comments/1qthn9l/trump_claims_the_right_to_cut_himself_blank/o330opq/
+
+Trump: POWER, Wealth, Name-fame, Camera appearances / recorded media.
+
