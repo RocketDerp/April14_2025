@@ -742,3 +742,8 @@ https://old.reddit.com/r/allthequestions/comments/1qta8lr/repeat_after_me_trump_
 https://old.reddit.com/r/allthequestions/comments/1qta8lr/repeat_after_me_trump_is_a_pedophile_and/o31cjw1/
 
 Fiction storytelling addiction. Church Bible fiction. Fox News fiction. Trump is a fiction storyteller.
+
+https://old.reddit.com/r/allthequestions/comments/1qta8lr/repeat_after_me_trump_is_a_pedophile_and/o31e0wq/
+
+https://old.reddit.com/r/allthequestions/comments/1qta8lr/repeat_after_me_trump_is_a_pedophile_and/o31d5jx/
+
