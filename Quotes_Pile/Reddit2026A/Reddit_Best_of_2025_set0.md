@@ -29,3 +29,30 @@ Consider: the male Trump vs. previous 3 named women (Harris, Clinton, Lee)... an
 
 
 Social post { https://autistics.life/@RoundSparrow/115917824619512857 https://bsky.app/profile/roundsparrow.bsky.social/post/3mcpvfljlrc2j }
+
+
+
+https://old.reddit.com/r/behindthebastards/comments/1myl480/the_lolcow_industrial_complex_is_ablist_as_fuck/namrmyd/
+
+<img width="1269" height="1284" alt="image" src="https://github.com/user-attachments/assets/8fc89280-f84e-4ec1-b229-11b5acc957b1" />
+
+https://old.reddit.com/r/behindthebastards/comments/1myl480/the_lolcow_industrial_complex_is_ablist_as_fuck/nad82by/
+
+The entire reply thread is important
+
+<img width="1793" height="1113" alt="image" src="https://github.com/user-attachments/assets/d353f6a4-9473-4874-8041-a9de31590684" />
+
+Reply of not3:
+
+https://old.reddit.com/r/behindthebastards/comments/1myl480/the_lolcow_industrial_complex_is_ablist_as_fuck/naeiwcm/
+
+<img width="1368" height="1039" alt="image" src="https://github.com/user-attachments/assets/42258ab9-d826-403d-b37f-f50f01059d11" />
+
+That making fun of bad people isn't funny-washing, LOL-washing and turning crimes and horror acts into a source of entertainment content isn't an actual problem. Ha ha, Donald Trump rapes children, isn't something that sunk an entire nation into hate leadership. That joke-washing and Fox News HDTV comedy-washing LOL-washing that Rupert Murdoch does isn't real harm to the society. That media site owners don't increase their power and influence by selling jokes and comedy like Fox News HDTV does to LOL-wash Trump family. I can be more redundant, yes. But no matter how many ways I rephrase it, people do not grasp or understand Neil Postman's 1985 book "Amusing Ourselves To Death" about Reddit and Fox News in year 1985.
+
+https://old.reddit.com/r/behindthebastards/comments/1myl480/the_lolcow_industrial_complex_is_ablist_as_fuck/naemfrh/
+
+The ENTIRE USA, the ENTIRE POPULATION< is a victim of abuse by Rupert Murdoch LOL-cow milking Donald J. Trump for selling of entertainment content Fox News HDTV. I will keep trying to rephrase until my last dying breath. Mob mentality is a real thing. Mafia mentality is Trumpism Fox News. AVOIDING Dr. Bandy X Lee's nonfiction books because everyone is mocking away at Trump on social machines day in and day out since October 3, 2017 publication... mockery in ob mentality to exploit group-thinking mob mentality is a true and real problem.
+
+* “For in the end, he was trying to tell us what afflicted the people in 'Brave New World' was not that they were laughing instead of thinking, but that they did not know what they were laughing about and why they had stopped thinking.”
+― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. Year 1985. Nonfiction book on paper.
