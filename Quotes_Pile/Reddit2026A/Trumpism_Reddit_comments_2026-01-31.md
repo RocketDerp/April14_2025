@@ -1531,3 +1531,7 @@ Everything about the Reddit commenting section screams: Trump Fandom! Anything b
 https://old.reddit.com/r/politics/comments/1quz9ro/trump_has_no_authority_to_nationalize_elections/o3e38oh/
 
 2 month Reddit account. Left vs. right brain rot. "media machine" - Reddit no-identity media itself.
+
+https://old.reddit.com/r/politics/comments/1quz9ro/trump_has_no_authority_to_nationalize_elections/o3e3sg2/
+
+11 month Reddit account. Anything but organize a FAQ or Wiki and important priorities list.
