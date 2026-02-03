@@ -684,3 +684,8 @@ https://old.reddit.com/r/videos/comments/1qut3rh/jeffrey_epsteins_links_to_putin
 
 Insecurity media environment, mind wars, information warfare ground zero against USA hearts and minds. Read the comment replies on this comment...
 
+https://old.reddit.com/r/videos/comments/1qut3rh/jeffrey_epsteins_links_to_putin_revealed_with/o3cjwdc/
+
+Extreme tiny-short logic, one-bit thinking. Minds blown on Reddit to ignore all the evidence. Trump is just a "normal" President and this Reddit posting about Epstein is just "normal" way things were before the Internet Research Agency factually invaded Reddit. March 2, 2018 **BBC world news**, a non-USA news source. https://www.BBC.com/news/technology-43255285
+
+Reddit audience does not quote nonfiction books. No FAQ, no Wiki, just tiny-short shit-commenting and shit-posting prizing from Truth Social leadership in 2026. It was not this way this severely in year 2012 and before on serious important topics. Little tiny comments that dismiss details of important understandings of information warfare out of the Kremlin; Surkov techniques.
