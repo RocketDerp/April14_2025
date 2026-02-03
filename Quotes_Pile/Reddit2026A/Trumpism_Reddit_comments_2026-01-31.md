@@ -1443,4 +1443,21 @@ https://old.reddit.com/r/JusticeServed/comments/1qu9xm4/comedian_who_mocked_rene
 
 Many Charlie Kirk media cultists on Reddit. Hate fandom is incredibly strong. Charlie Kirk lead audiences with hate and Reddit audiences flock to hate leaderships and add as much has as they can. Hate followers. Hate-based mob mentality. Hate motivated media engagement. https://en.wikipedia.org/wiki/Hate-watching
 
+https://old.reddit.com/r/JusticeServed/comments/1qu9xm4/comedian_who_mocked_renee_good_days_after_her/o39apq9/
 
+Killing women, killing girls, anti-Malala values. Women are bad if ugly, etc.
+
+https://old.reddit.com/r/JusticeServed/comments/1qu9xm4/comedian_who_mocked_renee_good_days_after_her/o399c95/
+
+Yes. this "Justice Served!" Reddit framing is simulacra of resistance. People spending free time and spare time declaring they have won. Instead of organizing serious focus on Dr. Bandy X Lee's public teachings about mental health crisis around Trump and MAGA.
+
+https://old.reddit.com/r/JusticeServed/comments/1qu9xm4/comedian_who_mocked_renee_good_days_after_her/o396lki/
+
+https://old.reddit.com/r/JusticeServed/comments/1qu9xm4/comedian_who_mocked_renee_good_days_after_her/o3941gj/
+
+Comedy of SNL NYC President Donald Trump playing Tony Clifton. People allow ANYTHING if you humor-wrap it for Reddit audiences and fandoms of Trump-Surkov comedy leadership. Neil Postman was correct in year 1985. SNL NYC NYU Manhattan Professor.
+
+* "For all his perspicacity, George Orwell would have been stymied by this situation; there is nothing “Orwellian” about it. The President does not have the press under his thumb. The New York Times and The Washington Post are not Pravda; the Associated Press is not Tass. And there is no Newspeak here. Lies have not been defined as truth nor truth as lies. **All that has happened is that the public has adjusted to incoherence and been amused** into indifference. Which is why Aldous Huxley would not in the least be surprised by the story. Indeed, he prophesied its coming. He believed that it is far more likely that the Western democracies will dance and dream themselves into oblivion than march into it, single file and manacled. Huxley grasped, as Orwell did not, that it is not necessary to conceal anything from a public insensible to contradiction and narcoticized by technological diversions. Although Huxley did not specify that television would be our main line to the drug, he would have no difficulty accepting Robert MacNeil’s observation that “Television is the soma of Aldous Huxley’s Brave New World.” Big Brother turns out to be Howdy Doody."
+― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, **year 1985**, page 111
+
+* Howdy Doody is an American children's television program (with circus and Western frontier themes) that was created and produced by Victor F. Campbell and E. Roger Muir. It was broadcast on the NBC television network in the United States from December 27, 1947, until September 24, 1960." https://en.wikipedia.org/wiki/Howdy_Doody
