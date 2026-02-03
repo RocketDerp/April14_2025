@@ -1491,3 +1491,7 @@ https://old.reddit.com/r/nottheonion/comments/1qunaw6/jeffrey_epstein_reportedly
 https://old.reddit.com/r/law/comments/1qurhrh/if_we_have_this_mountain_of_evidence_that_proved/o3c503p/
 
 We The People are the problem. Why had Reddit not dealt with the brainwashing and cult issues head on? WHy is Jen Senko not world famous every day? Why is Dr. Bandy X. Lee's leadership ignored? People on Reddit spend free time and spare time commenting about Trump instead of educating people about mental health and cult crisis!
+
+https://old.reddit.com/r/law/comments/1qurhrh/if_we_have_this_mountain_of_evidence_that_proved/o3c8g9z/
+
+People have MISSED so much because Reddit society is anti-FAQ anti-Wiki and pro-commenting over and over with low-quality information instead of Wiki-style refinement and progressive quality improvement with information.
