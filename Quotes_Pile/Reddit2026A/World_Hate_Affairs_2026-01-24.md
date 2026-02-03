@@ -705,3 +705,6 @@ Reddit users will not name the "Internet Research Agency". Reddit audience membe
 * "**Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета".
 Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа.** Затем.. положить этот образ обратно на всё психотипы и таким образом подобрать универсальный ключик к любому и каждому."; " **Дальше оставалось только загрузить эти данные в информационные потоки и социальные сети.** И мы стали искать тех, кто справился бы с этой задачей лучше других." - gloating on Facebook by Константин Рыков
 
+https://old.reddit.com/r/videos/comments/1qut3rh/jeffrey_epsteins_links_to_putin_revealed_with/o3drjr7/
+
+We The People, Reddit social, Bluesky social, need to be teaching remedial morality lessons to every person. MAGA and Trump are the evidence. Our clergy can't find Bible verse "1 John 3:17" and teach it on social media and at Church buildings. We need to, we need to rescue We The People. https://github.com/RocketDerp/April14_2025/tree/working/Art/ScreenPlay/Remedial_Morality
