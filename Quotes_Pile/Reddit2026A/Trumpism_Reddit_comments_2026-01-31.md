@@ -1657,3 +1657,5 @@ https://old.reddit.com/r/Fauxmoi/comments/1qv2pyn/melinda_gates_bombshell_states
 https://old.reddit.com/r/Fauxmoi/comments/1qv2pyn/melinda_gates_bombshell_states_her_exhusband_bill/o3f372p/
 
 Yes. So many people are slaves to their "Boss Man" of Corporate America values.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qv2pyn/melinda_gates_bombshell_states_her_exhusband_bill/o3f4u7q/
