@@ -1435,4 +1435,12 @@ https://old.reddit.com/r/stupidpeoplefacebook/comments/1qu76gb/brainwashed_lunat
 
 "Brainwashed", "Lunatics" (posting title)... alternate realities. Instead of promoting Dr. Bandy X Lee's leadership on mental health serious nonfiction, people are thrilled to join in mocking away day in and day out with spare time and free time on Reddit social commenting section.
 
+https://old.reddit.com/r/JusticeServed/comments/1qu9xm4/comedian_who_mocked_renee_good_days_after_her/o39chfi/
+
+Jokes about the suffering of out-group. Putin and Trump's means to power. Joking about suffering and destruction.
+
+https://old.reddit.com/r/JusticeServed/comments/1qu9xm4/comedian_who_mocked_renee_good_days_after_her/o39c77o/
+
+Many Charlie Kirk media cultists on Reddit. Hate fandom is incredibly strong. Charlie Kirk lead audiences with hate and Reddit audiences flock to hate leaderships and add as much has as they can. Hate followers. Hate-based mob mentality. Hate motivated media engagement. https://en.wikipedia.org/wiki/Hate-watching
+
 
