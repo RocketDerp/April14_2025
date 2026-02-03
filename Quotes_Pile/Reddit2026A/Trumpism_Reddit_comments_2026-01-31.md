@@ -1461,3 +1461,19 @@ Comedy of SNL NYC President Donald Trump playing Tony Clifton. People allow ANYT
 ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, **year 1985**, page 111
 
 * Howdy Doody is an American children's television program (with circus and Western frontier themes) that was created and produced by Victor F. Campbell and E. Roger Muir. It was broadcast on the NBC television network in the United States from December 27, 1947, until September 24, 1960." https://en.wikipedia.org/wiki/Howdy_Doody
+
+https://old.reddit.com/r/countwithchickenlady/comments/1qu46ru/33793/o37f4qf/
+
+https://old.reddit.com/r/countwithchickenlady/comments/1qu46ru/33793/o37gcga/
+
+Wild New Years Eve, join Reddit.
+
+https://old.reddit.com/r/countwithchickenlady/comments/1qu46ru/33793/o37il16/
+
+https://old.reddit.com/r/countwithchickenlady/comments/1qu46ru/33793/o37qgi7/
+
+https://old.reddit.com/r/countwithchickenlady/comments/1qu46ru/33793/o37s18k/
+
+https://old.reddit.com/r/countwithchickenlady/comments/1qu46ru/33793/o37i5mt/
+
+8 month Reddit account.
