@@ -1664,3 +1664,13 @@ https://old.reddit.com/r/clevercomebacks/comments/1qv1bmm/republican_congressman
 
 Science fiction cult of Bible science fiction. Rupert Murdoch Fox News HDTV fiction cultist. Fiction addiction has wrecked the USA. People can not translate The Bible storybook to Hamlet's Ghost. Bible verse "1 John 4:20" interpretation crisis abounds!
 
+https://old.reddit.com/r/clevercomebacks/comments/1qv1bmm/republican_congressman_outed_as_a_traitor/o3e87cx/
+
+"insane". Twitter screenshot near your children too... The Bible is a storybook, Twitter media is a storybook... it is all media. There is no supernatural, only fiction storytelling off Church venue of Bible or Twitter venue...
+
+https://old.reddit.com/r/clevercomebacks/comments/1qv1bmm/republican_congressman_outed_as_a_traitor/o3ebrt5/
+
+https://old.reddit.com/r/clevercomebacks/comments/1qv1bmm/republican_congressman_outed_as_a_traitor/o3e85tb/
+
+Fiction addiction to Fox News HDTV, SNL "Weekend Update" news HDTV, late-night comedy "news" and Newsmax HDTV is wrecking USA. Fiction vs. nonfiction is far more important education topic than conservative vs. liberal.
+
