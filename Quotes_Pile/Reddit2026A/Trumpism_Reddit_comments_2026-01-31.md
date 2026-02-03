@@ -1524,3 +1524,6 @@ https://old.reddit.com/r/politics/comments/1quz9ro/trump_has_no_authority_to_nat
 
 People don't want to stop their Reddit source of amusement and jokes. We The People on Reddit social and Bluesky social are not halting the mockery and joking about Trump to assert and quote Dr. Bandy X Lee.
 
+https://old.reddit.com/r/politics/comments/1quz9ro/trump_has_no_authority_to_nationalize_elections/o3du9ug/
+
+Everything about the Reddit commenting section screams: Trump Fandom! Anything but promoting serious nonfiction books to address the national mental health crisis and national cults crisis.
