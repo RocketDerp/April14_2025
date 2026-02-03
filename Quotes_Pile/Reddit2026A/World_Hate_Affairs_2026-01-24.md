@@ -650,4 +650,11 @@ https://old.reddit.com/r/StandUpComedy/comments/1quss99/athletes_need_to_stop_th
 
 And if we quoted it every day since June 16, 2015 and revived the message of comprehension and understanding of Bible verse "1 John 4:20" crises. You have not SEEN Jesus, it is WRONG to say "I Love Jesus" - it's all there in Bible verse "1 John 4:20". We all should have been repeating and sharing George Carlin until every person grasped the concept!
 
+https://old.reddit.com/r/videos/comments/1qut3rh/jeffrey_epsteins_links_to_putin_revealed_with/o3cjlcw/
+
+World Sex Hate Affairs
+
+https://old.reddit.com/r/videos/comments/1qut3rh/jeffrey_epsteins_links_to_putin_revealed_with/o3cldan/
+
+Saturday October 7, 2023 is Putin's Birthday in Palestine. Look it up! https://TheHill.com/opinion/international/4250708-putins-fingerprints-are-on-hamas/ - World hate Affairs. Anti-Malala Palestine, Anti-Malala Israel, hate for hate vs. hate clergy out-group teachings in the Levant.
 
