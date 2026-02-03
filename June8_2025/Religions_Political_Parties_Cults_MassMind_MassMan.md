@@ -26,7 +26,7 @@ We do not study the psychology of [this sports mentality](/June19_2025/Sports_Ga
 
 # Religions hating other religions
 
-When religions split and become hate-filleed and violent against "the others". Gentile, infidel, non-believer treatment. Mob mentality of gorup membership in religions.
+When religions split and become hate-filled and violent against "the others". Gentile, infidel, non-believer treatment. Mob mentality of group membership in religions.
 
 
 &nbps;
@@ -36,9 +36,4 @@ When religions split and become hate-filleed and violent against "the others". G
 https://www.youtube.com/watch?v=i5m-RHS1fU0    
 This Is How You Get JARHEAD Sequels    
 1,004,156 views January 9, 2026   
-
-
-
-
-
 
