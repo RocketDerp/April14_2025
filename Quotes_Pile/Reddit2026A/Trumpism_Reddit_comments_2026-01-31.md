@@ -1574,3 +1574,24 @@ OPERA_A The Discovery of Heart Strings entertainment sports pulling. https://www
 https://old.reddit.com/r/Music/comments/1quy2hk/sinclair_to_air_kid_rocks_halftime_show_against/o3dim3v/
 
 Everything is Media Ecology. https://GitHub.com/RocketDerp/April14_2025/blob/main/Media_Ecology/Everything_is_ME.md
+
+https://old.reddit.com/r/law/comments/1qv4ge9/rep_lieu_says_epstein_files_have_allegations_of/o3ey0hv/
+
+https://old.reddit.com/r/law/comments/1qv4ge9/rep_lieu_says_epstein_files_have_allegations_of/o3eybsq/
+
+https://old.reddit.com/r/law/comments/1qv4ge9/rep_lieu_says_epstein_files_have_allegations_of/o3ezg7x/
+
+"insanity"
+
+https://old.reddit.com/r/law/comments/1qv4ge9/rep_lieu_says_epstein_files_have_allegations_of/o3f0chd/
+
+"insane"
+
+https://old.reddit.com/r/law/comments/1qv4ge9/rep_lieu_says_epstein_files_have_allegations_of/o3f1owm/
+
+8 month Reddit account.
+
+https://old.reddit.com/r/law/comments/1qv4ge9/rep_lieu_says_epstein_files_have_allegations_of/o3f4fpw/
+
+https://old.reddit.com/r/law/comments/1qv4ge9/rep_lieu_says_epstein_files_have_allegations_of/o3f3kbs/
+
