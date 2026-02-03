@@ -680,3 +680,7 @@ https://old.reddit.com/r/videos/comments/1qut3rh/jeffrey_epsteins_links_to_putin
 
 Trump was PARADING girls to dominate them in front of Cameras in Moscow on November 8, 2013! Wake the fuck up USA, he does his domination WITH THE CAMERA every day! Cults of Trump images, Trump name cults, Trump bling cults all over Reddit! Study Neil Postman's 1985 book! Moscow fucking Russia, year 2013!! OPERA_A Styx, Chicago city band. https://www.youtube.com/watch?v=swVRj7NDWcg 1,272,445 views July 29, 2018 Trump LEADS with mind exploitation of males, "Alpha male" bullshit! We need to TEACH AND EDUCATE! Rock Opera!
 
+https://old.reddit.com/r/videos/comments/1qut3rh/jeffrey_epsteins_links_to_putin_revealed_with/o3d3tl0/
+
+Insecurity media environment, mind wars, information warfare ground zero against USA hearts and minds. Read the comment replies on this comment...
+
