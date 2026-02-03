@@ -1,4 +1,4 @@
-# Cults MasMan MassMind
+# Cults MassMan MassMind
 
 Marshall McLuhan spent a lifetime trying to get people to study James Joyce's works, 1924 on to 1938 Finnegans Wake.
 
@@ -27,4 +27,18 @@ We do not study the psychology of [this sports mentality](/June19_2025/Sports_Ga
 # Religions hating other religions
 
 When religions split and become hate-filleed and violent against "the others". Gentile, infidel, non-believer treatment. Mob mentality of gorup membership in religions.
+
+
+&nbps;
+
+# Military Jarhead
+
+https://www.youtube.com/watch?v=i5m-RHS1fU0    
+This Is How You Get JARHEAD Sequels    
+1,004,156 views January 9, 2026   
+
+
+
+
+
 
