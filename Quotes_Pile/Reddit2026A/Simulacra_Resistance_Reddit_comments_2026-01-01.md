@@ -685,3 +685,8 @@ I really don't know where to begin to describe this Reddit fandom of hate. Peopl
 https://old.reddit.com/r/memes/comments/1qtvmcv/is_there_a_word_for_such_talent/o35pqir/
 
 Radio emitting signal. Twitter emitting. StarLink radio tech for Reddit tech audience.
+
+https://old.reddit.com/r/Gamingcirclejerk/comments/1quk6od/lol_this_aint_even_a_joke_the_oval_ofice_was/o3b6kcm/
+
+Anti-intellectual training ground, Reddit commenting section. Gamingcirclejerk. Joke-washing Trump as a source of entertainment. Trump has known all along that antics and bullshit get him to the front page of media systems. Tabloid trash /r/All Reddit. This isn't funny, it's a sick society that will amuse itself day and night to Trump. Fandom of Trump shit. That prizes shit-commenting, shit-leadership, and USA turning to shit all for jokes and comedy "jerking". NYC "Jerk" comedy that Trump out-jerks all of Reddit https://en.wikipedia.org/wiki/The_Jerky_Boys with POTUS Tony Clifton NYC SNL techniques. Surkov won.
+
