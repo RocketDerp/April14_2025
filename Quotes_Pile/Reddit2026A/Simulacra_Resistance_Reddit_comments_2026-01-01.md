@@ -735,3 +735,13 @@ https://old.reddit.com/r/UnderReportedNews/comments/1quygiv/sen_chris_murphy_a_u
 
 Come on Reddit audience, Reddit end-users, WAKE UP and make Dr. Bandy X Lee a household name. Quote Dr. Bandy X Lee on every social platform! Every 4 hours, quote her nonfiction books to educate everyone on why Trump's mental health is dangerous to everyone! Keep teaching so we don't keep picking terrible business leaders in USA!
 
+
+https://old.reddit.com/r/videos/comments/1qv50nm/rep_lieu_says_epstein_files_have_allegations_of/o3f3uik/
+
+<img width="1573" height="988" alt="image" src="https://github.com/user-attachments/assets/452b07b2-7529-42ab-9993-c9cec91b7440" />
+
+Simulation of resisting. Audience fandom of Trump. Content is king for media addiction society seeking the thrill of high-speed information delivery about Trump.
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mdyhi6o6us2u https://autistics.life/@RoundSparrow/116009167384483689 }
+
+OPERA_A They have a billion-dollar bounty on someone who understands the simulacra parties going on all over in filter-bubble echoing chambers. Hush, Caution! Echoland! https://www.youtube.com/watch?v=E6l5ezErGuw Let Dr. Bandy X Lee, *Woman* - take over... 52,975,062 views June 26, 2017
