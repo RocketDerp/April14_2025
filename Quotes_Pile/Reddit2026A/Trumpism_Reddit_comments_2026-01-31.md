@@ -1495,3 +1495,7 @@ We The People are the problem. Why had Reddit not dealt with the brainwashing an
 https://old.reddit.com/r/law/comments/1qurhrh/if_we_have_this_mountain_of_evidence_that_proved/o3c8g9z/
 
 People have MISSED so much because Reddit society is anti-FAQ anti-Wiki and pro-commenting over and over with low-quality information instead of Wiki-style refinement and progressive quality improvement with information.
+
+https://old.reddit.com/r/Snorkblot/comments/1quqmw9/do_kids_really_need_high_school/o3by8qn/
+
+These are the leaders getting the conversation and free time and spare time. Anti-Malala social.
