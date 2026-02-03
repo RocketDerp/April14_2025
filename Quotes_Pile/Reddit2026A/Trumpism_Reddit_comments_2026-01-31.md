@@ -1569,3 +1569,8 @@ Didn't make deep sense to me until a decade later... I started revising Marshall
 OPERA_A The Discovery of Heart Strings entertainment sports pulling. https://www.youtube.com/watch?v=cfm4L0TGDrw&t=173s Looking up at ESPN network of Starwave year 1993 founding. 346,610 views April 16, 2020
 
 **Conservative International** announced December 20, 2013. https://www.TheAtlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/ ... Surkov won.
+
+
+https://old.reddit.com/r/Music/comments/1quy2hk/sinclair_to_air_kid_rocks_halftime_show_against/o3dim3v/
+
+Everything is Media Ecology. https://GitHub.com/RocketDerp/April14_2025/blob/main/Media_Ecology/Everything_is_ME.md
