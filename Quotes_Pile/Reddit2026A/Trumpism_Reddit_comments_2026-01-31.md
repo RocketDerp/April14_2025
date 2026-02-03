@@ -1650,3 +1650,6 @@ Look around on Bluesky and see how many use #Malala hashtag. People do not give 
 
 Listen to Malala speak, she is intelligent and much of what she wrote an said back from January 3, 2009 to year 2014 is recorded and logged. Read her book from October 8, 2013. EDUCATE GIRLS TO STAND UP TO MEN! Give girls power to articulate what the fuck men are doing to  control and corner them!
 
+https://old.reddit.com/r/Fauxmoi/comments/1qv2pyn/melinda_gates_bombshell_states_her_exhusband_bill/o3f2oj3/
+
+2 month Reddit account.
