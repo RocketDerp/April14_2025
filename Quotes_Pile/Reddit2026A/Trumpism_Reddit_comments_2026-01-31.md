@@ -1401,5 +1401,38 @@ Twitter is where ever media person converged, sports stars, etc.
 
 https://old.reddit.com/r/movies/comments/1qu8yoh/project_netflix_magas_plan_to_sandbag_warner_bros/o394nb8/
 
+https://old.reddit.com/r/stupidpeoplefacebook/comments/1qu76gb/brainwashed_lunatics/o381rpd/
+
+10 month Reddit account "brainwashed". top most-popular upvoted comment. No mention of Jen Senko or any concern to rescue the brainwashed population.
+
+https://old.reddit.com/r/stupidpeoplefacebook/comments/1qu76gb/brainwashed_lunatics/o381tfs/
+
+https://old.reddit.com/r/stupidpeoplefacebook/comments/1qu76gb/brainwashed_lunatics/o382nba/
+
+My Tyson fandom wants more ICE style violence against people who disagree.
+
+https://old.reddit.com/r/stupidpeoplefacebook/comments/1qu76gb/brainwashed_lunatics/o3837mx/
+
+The pro mockery group loves engaging others in mock for mock, total mockery nation. People follow the leadership of Donald Trump in his Tony Clifton acting mockery.
+
+https://old.reddit.com/r/stupidpeoplefacebook/comments/1qu76gb/brainwashed_lunatics/o382d9x/
+
+https://old.reddit.com/r/stupidpeoplefacebook/comments/1qu76gb/brainwashed_lunatics/o3837w7/
+
+https://old.reddit.com/r/stupidpeoplefacebook/comments/1qu76gb/brainwashed_lunatics/o383fqg/
+
+https://old.reddit.com/r/stupidpeoplefacebook/comments/1qu76gb/brainwashed_lunatics/o384lcm/
+
+https://old.reddit.com/r/stupidpeoplefacebook/comments/1qu76gb/brainwashed_lunatics/o382lx8/
+
+4 month Reddit account.
+
+https://old.reddit.com/r/stupidpeoplefacebook/comments/1qu76gb/brainwashed_lunatics/o38659n/
+
+Gun worship, gun cults.
+
+https://old.reddit.com/r/stupidpeoplefacebook/comments/1qu76gb/brainwashed_lunatics/o382mga/
+
+"Brainwashed", "Lunatics" (posting title)... alternate realities. Instead of promoting Dr. Bandy X Lee's leadership on mental health serious nonfiction, people are thrilled to join in mocking away day in and day out with spare time and free time on Reddit social commenting section.
 
 
