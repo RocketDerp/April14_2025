@@ -1674,3 +1674,6 @@ https://old.reddit.com/r/clevercomebacks/comments/1qv1bmm/republican_congressman
 
 Fiction addiction to Fox News HDTV, SNL "Weekend Update" news HDTV, late-night comedy "news" and Newsmax HDTV is wrecking USA. Fiction vs. nonfiction is far more important education topic than conservative vs. liberal.
 
+https://old.reddit.com/r/clevercomebacks/comments/1qv1bmm/republican_congressman_outed_as_a_traitor/o3edj9a/
+
+Why? if someone say "read Hamlet", or "Read Romeo and Juliet" poetry, you think they are morons? I like Star Wars 1977 and I like The Bible and Quran stories from Mohammad. All science fiction storytelling. 
