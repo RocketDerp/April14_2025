@@ -62,9 +62,21 @@ Repeating Repeat Reaper I do: “The boys learn the Quran by heart, rocking back
 
 &nbsp;
 
-&nbpp;
+&nbsp;
 
 Social Posts 
 
 https://bsky.app/profile/roundsparrow.bsky.social/post/3mdxjbfjfbk25   
 https://autistics.life/@RoundSparrow/116007042042916386  
+
+&nbsp;
+
+When Malala came on the world stage (her January 2009 WWW blogging fame, shot on school bus 2012, book tour in 2013)... all the #pedophilia and #school #education concerned people had an articulate intelligent leader to follow. 
+
+But people #Trump #Epstein promotion instead.
+
+With leaders like #Musk #Trump #Epstein #Putin #Murdoch men... what you get is people who are hyper-competitive with education and school. People who call others { Moron, Idiot, Dumb, Stupid, Retarded, Libtards } over and over every day. Only concerned about competing to put other people into poverty. Arrogant competing braggards.
+
+Men who want to watch women suffer and want people to fail because name-brand university and education is scarce and rare. Epstein had his hand in repetitive mindless gun-murdering video game, Call of Duty gaming, to turn children into anti-education gun worshipers.
+
+Since June 2015, entire generations of boys and girls raised in the USA have been given Donald Trump and Epstein as role models of leadership. Parents made #TrumpRoleModel of abuse, hate, Putin worship.  Instead of promoting #DrBandyXLee to the center of internet attention, we got #Trump parenting.
