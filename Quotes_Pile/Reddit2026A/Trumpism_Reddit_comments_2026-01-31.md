@@ -1360,3 +1360,30 @@ https://old.reddit.com/r/politics/comments/1qu51d6/trump_we_should_take_over_the
 https://old.reddit.com/r/politics/comments/1qu51d6/trump_we_should_take_over_the_voting/o37obm6/
 
 Trump fandom loves the constant stimulation of smartphones that Trump provides. Content creator Trump.
+
+https://old.reddit.com/r/movies/comments/1qu8yoh/project_netflix_magas_plan_to_sandbag_warner_bros/o38n5u1/
+
+New Reddit account, 5 hours old.
+
+https://old.reddit.com/r/movies/comments/1qu8yoh/project_netflix_magas_plan_to_sandbag_warner_bros/o38hje0/
+
+https://old.reddit.com/r/movies/comments/1qu8yoh/project_netflix_magas_plan_to_sandbag_warner_bros/o38rkko/
+
+Woke to what? Media systems understanding, 1924 Finnegans Wake "Woke" book.
+
+https://old.reddit.com/r/movies/comments/1qu8yoh/project_netflix_magas_plan_to_sandbag_warner_bros/o38jpn2/
+
+5 Day Reddit Account.
+
+https://old.reddit.com/r/movies/comments/1qu8yoh/project_netflix_magas_plan_to_sandbag_warner_bros/o38gqbi/
+
+4 month Reddit account.
+
+https://old.reddit.com/r/movies/comments/1qu8yoh/project_netflix_magas_plan_to_sandbag_warner_bros/o38imx6/
+
+https://old.reddit.com/r/movies/comments/1qu8yoh/project_netflix_magas_plan_to_sandbag_warner_bros/o38fz60/
+
+Laugh track for social media audience, Reddit laugh track. "Hilarious" that people are following Putin's agenda and lost hearts and minds to Russia. "mental illness" - Neil Postman described it about media ecology, Netflix, in year 1985 "Amusing Ourselves To Death", "Brave New World".
+
+
+
