@@ -1499,3 +1499,28 @@ People have MISSED so much because Reddit society is anti-FAQ anti-Wiki and pro-
 https://old.reddit.com/r/Snorkblot/comments/1quqmw9/do_kids_really_need_high_school/o3by8qn/
 
 These are the leaders getting the conversation and free time and spare time. Anti-Malala social.
+
+https://old.reddit.com/r/politics/comments/1quz9ro/trump_has_no_authority_to_nationalize_elections/o3drrid/
+
+8 month Reddit account. Twitter-length short-message banal commenting. Top-upvoted popular.
+
+https://old.reddit.com/r/politics/comments/1quz9ro/trump_has_no_authority_to_nationalize_elections/o3dsiay/
+
+Twitter-length short-message. Nonspecific. Unite over what, Superbowl game counting up. Entertainment. Reddit addiction to junk information. No organization of important topics. Why is Reddit community not quoting and linking Dr. Bandy X Lee and following her leadership since October 3, 2017 book published...
+
+https://old.reddit.com/r/politics/comments/1quz9ro/trump_has_no_authority_to_nationalize_elections/o3dstm8/
+
+28 day Reddit account Mocking. No off-Reddit link or book quotes or author names. Feeding the bonfire of anti-intellectual shit-commenting Reddit social.
+
+https://old.reddit.com/r/politics/comments/1quz9ro/trump_has_no_authority_to_nationalize_elections/o3dtb9q/
+
+5 month Reddit account. Banalizing, trivializing.
+
+https://old.reddit.com/r/politics/comments/1quz9ro/trump_has_no_authority_to_nationalize_elections/o3dtlir/
+
+Reddit messages on giving up. Not reforming. Not sanding up for goodness. Just normalizing it.
+
+https://old.reddit.com/r/politics/comments/1quz9ro/trump_has_no_authority_to_nationalize_elections/o3dsh3l/
+
+People don't want to stop their Reddit source of amusement and jokes. We The People on Reddit social and Bluesky social are not halting the mockery and joking about Trump to assert and quote Dr. Bandy X Lee.
+
