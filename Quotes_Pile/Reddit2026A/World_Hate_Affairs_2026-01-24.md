@@ -708,3 +708,8 @@ Reddit users will not name the "Internet Research Agency". Reddit audience membe
 https://old.reddit.com/r/videos/comments/1qut3rh/jeffrey_epsteins_links_to_putin_revealed_with/o3drjr7/
 
 We The People, Reddit social, Bluesky social, need to be teaching remedial morality lessons to every person. MAGA and Trump are the evidence. Our clergy can't find Bible verse "1 John 3:17" and teach it on social media and at Church buildings. We need to, we need to rescue We The People. https://github.com/RocketDerp/April14_2025/tree/working/Art/ScreenPlay/Remedial_Morality
+
+https://old.reddit.com/r/videos/comments/1qut3rh/jeffrey_epsteins_links_to_putin_revealed_with/o3cjb40/
+
+"LOL", laugh track for Reddit audience. Extreme tiny-short Elon Musk Twitter messaging patterns. Blows the Reddit audience mindsets into meme stupors.
+
