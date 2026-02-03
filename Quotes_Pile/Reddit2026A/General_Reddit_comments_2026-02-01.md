@@ -41,3 +41,16 @@ https://old.reddit.com/r/BlackPeopleofReddit/comments/1quq2ox/this_tells_you_eve
 https://old.reddit.com/r/BlackPeopleofReddit/comments/1quq2ox/this_tells_you_everything/o3bzd0m/
 
 https://old.reddit.com/r/BlackPeopleofReddit/comments/1quq2ox/this_tells_you_everything/o3c4ntg/
+
+https://old.reddit.com/r/whennews/comments/1quzp6u/who_wouldve_saw_it_coming/o3e0dkb/
+
+https://old.reddit.com/r/whennews/comments/1quzp6u/who_wouldve_saw_it_coming/o3dz4qc/
+
+https://old.reddit.com/r/whennews/comments/1quzp6u/who_wouldve_saw_it_coming/o3dyu5z/
+
+https://old.reddit.com/r/whennews/comments/1quzp6u/who_wouldve_saw_it_coming/o3edray/
+
+https://old.reddit.com/r/whennews/comments/1quzp6u/who_wouldve_saw_it_coming/o3e0lx0/
+
+https://old.reddit.com/r/whennews/comments/1quzp6u/who_wouldve_saw_it_coming/o3eo30g/
+
