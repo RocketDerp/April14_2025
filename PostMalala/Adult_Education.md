@@ -1,6 +1,6 @@
 # PostMalala: Adult Education
 
-Malala the Child got Josseph Campbell's criticism of Levant faiths on the world stage. Carl Sagan's techings.
+Malala the Child got Joseph Campbell's criticism of Levant faiths on the world stage. Carl Sagan's teachings.
 
 Metaphor to Metaphor translation:     
 Age 14, "You Get What You Give", New Radicals     
@@ -51,9 +51,9 @@ The Entertainment Media / The Amusement TikTok media
 
 The Reality TV Media, THE MEDIA. Neil Postamn's "The Medium" focus.
 
-Reddit will LOL wash tis problem, amusement-wash on the Reddit meme mill. As egoism to LOL at "dumb women" and not face up that Russia is waging a war against reality itself, a war against the facts of the USA nation (not Russia) landing on the moon in year 1969. People on Reddit community (The Media of Reddit) are not calling to Rescue Kim, it is instead an entertainment to mock and insult Kim and insult TikTok while Reddit is infiltrated by the IRA since year 2013. Surkov won and Reddit end-users can't name Surkov or IRA. The point Reddit can not face: Adults get their educate from Reddit and Tik Tok. Kim just had a birthday: age 45 years. October 21, 1980. She doesn't have dementia like age 79 Trump, she isn't a diaper wearing old man - she is age 45. And Reddit community will not face up that AGE FOURTY-FIVE ADULT is learning not from retangle clasrooms and "fund education", but from Tik Tok. Fox News, Reddit. That is where ADULTS LEARN. Radio Mullah F.M. https://www.lhschools.org/Downloads/Malala%2038-65.pdf - the FICTION Entertainment Media, Tik Tok and Reddit.
+Reddit will LOL-wash this problem, amusement-wash on the Reddit meme mill. As egoism to LOL at "dumb women" and not face up that Russia is waging a war against reality itself, a war against the facts of the USA nation (not Russia) landing on the moon in year 1969. People on Reddit community (The Media of Reddit) are not calling to Rescue Kim, it is instead an entertainment to mock and insult Kim and insult TikTok while Reddit is infiltrated by the IRA since year 2013. Surkov won and Reddit end-users can't name Surkov or IRA. The point Reddit can not face: Adults get their educate from Reddit and TikTok. Kim just had a birthday: age 45 years. October 21, 1980. She doesn't have dementia like age 79 Trump, she isn't a diaper wearing old man - she is age 45. And Reddit community will not face up that AGE FORTY-FIVE ADULT is learning not from rectangle classrooms and "fund education", but from TikTok. Fox News, Reddit. That is where ADULTS LEARN. Radio Mullah F.M. https://www.lhschools.org/Downloads/Malala%2038-65.pdf - the FICTION Entertainment Media, TikTok and Reddit.
 
-This is where adults learn. Kim, celebety. Entertainers. Amusers. “Americans no longer talk to each other, they entertain each other. They do not exchange ideas, they exchange images. They do not argue with propositions; they argue with good looks, celebrities and commercials.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. 1985
+This is where adults learn. Kim, celebrity. Entertainers. Amusers. “Americans no longer talk to each other, they entertain each other. They do not exchange ideas, they exchange images. They do not argue with propositions; they argue with good looks, celebrities and commercials.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. 1985
 
 "Kim Kardashian Says Moon Landing Was Faked — Says ‘Go to TikTok’ for Proof"    
 https://old.reddit.com/r/nottheonion/comments/1ok46ra/kim_kardashian_says_moon_landing_was_faked_says/
