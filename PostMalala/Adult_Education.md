@@ -60,3 +60,11 @@ https://old.reddit.com/r/nottheonion/comments/1ok46ra/kim_kardashian_says_moon_l
 
 Repeating Repeat Reaper I do: “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.” ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. October 8, 2013.
 
+&nbsp;
+
+&nbpp;
+
+Social Posts 
+
+https://bsky.app/profile/roundsparrow.bsky.social/post/3mdxjbfjfbk25   
+https://autistics.life/@RoundSparrow/116007042042916386  
