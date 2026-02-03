@@ -41,3 +41,22 @@ Now since January 2024 it's gotten so much worse and into *subejective* complex 
 What I'm saying is that I haven't fully processed all this realization in June 2025 and I'm just now becoming self aware of just how bad a "less spiritual" war against a virus debates went in USA - and how there has been no positive spiritual follow up (a world wide funeral service for all those we lost, common bond, thank-you parties for all the workers and medical people who served during the war against disease)...
 
 
+&nbsp;
+
+&nbsp;
+
+# February 3, 2026 
+
+social posts   
+https://bsky.app/profile/roundsparrow.bsky.social/post/3mdy3zusx3s2h   
+https://autistics.life/@RoundSparrow/116008359034895527   
+
+"As of January 2026, the official global death toll for COVID-19 stands at approximately 7.1 million confirmed deaths "
+
+Why did all the religions of the world not come together for a World Wide Funeral / Word Wide Funeral Wake for all that died during a global disease outbreak? What is wrong with our religions that they don't celebrate lost friends?
+
+Why do our religion leaders not see a global airport connection network of religious experience? Why are our religion clergy people so poorly educated and out of touch with modern airports and travel rituals?
+
+Our Clergy did not teach love and caring during COVID-2019 and can't even organize a world wide remembrance ritual for those that died in isolation and quarantine. #COVID19 
+
+Grief-stricken world
