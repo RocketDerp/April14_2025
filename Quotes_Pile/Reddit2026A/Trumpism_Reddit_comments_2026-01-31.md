@@ -1676,4 +1676,6 @@ Fiction addiction to Fox News HDTV, SNL "Weekend Update" news HDTV, late-night c
 
 https://old.reddit.com/r/clevercomebacks/comments/1qv1bmm/republican_congressman_outed_as_a_traitor/o3edj9a/
 
-Why? if someone say "read Hamlet", or "Read Romeo and Juliet" poetry, you think they are morons? I like Star Wars 1977 and I like The Bible and Quran stories from Mohammad. All science fiction storytelling. 
+Why? if someone say "read Hamlet", or "Read Romeo and Juliet" poetry, you think they are morons? I like Star Wars 1977 and I like The Bible and Quran stories from Mohammad. All science fiction storytelling.  I like this new Apple TV+ "PLUR1BUS" science fiction series, it help teach The Great Seal USA Latin meaning.
+
+* “Half the people in the world think that the metaphors of their religious traditions, for example, are facts. And the other half contends that they are not facts at all. As a result we have people who consider themselves believers because they accept metaphors as facts, and we have others who classify themselves as atheists because they think religious metaphors are lies.” ― Joseph Campbell, Thou Art That: Transforming Religious Metaphor
