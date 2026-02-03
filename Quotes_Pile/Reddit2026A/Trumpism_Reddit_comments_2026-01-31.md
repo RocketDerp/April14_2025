@@ -1385,5 +1385,21 @@ https://old.reddit.com/r/movies/comments/1qu8yoh/project_netflix_magas_plan_to_s
 
 Laugh track for social media audience, Reddit laugh track. "Hilarious" that people are following Putin's agenda and lost hearts and minds to Russia. "mental illness" - Neil Postman described it about media ecology, Netflix, in year 1985 "Amusing Ourselves To Death", "Brave New World".
 
+https://old.reddit.com/r/movies/comments/1qu8yoh/project_netflix_magas_plan_to_sandbag_warner_bros/o38toeh/
+
+https://old.reddit.com/r/movies/comments/1qu8yoh/project_netflix_magas_plan_to_sandbag_warner_bros/o38s9mm/
+
+No off-Reddit URL.
+
+https://old.reddit.com/r/movies/comments/1qu8yoh/project_netflix_magas_plan_to_sandbag_warner_bros/o38wi2y/
+
+6 month Reddit account.
+
+https://old.reddit.com/r/movies/comments/1qu8yoh/project_netflix_magas_plan_to_sandbag_warner_bros/o38kcds/
+
+Twitter is where ever media person converged, sports stars, etc.
+
+https://old.reddit.com/r/movies/comments/1qu8yoh/project_netflix_magas_plan_to_sandbag_warner_bros/o394nb8/
+
 
 
