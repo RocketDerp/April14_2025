@@ -1527,3 +1527,7 @@ People don't want to stop their Reddit source of amusement and jokes. We The Peo
 https://old.reddit.com/r/politics/comments/1quz9ro/trump_has_no_authority_to_nationalize_elections/o3du9ug/
 
 Everything about the Reddit commenting section screams: Trump Fandom! Anything but promoting serious nonfiction books to address the national mental health crisis and national cults crisis.
+
+https://old.reddit.com/r/politics/comments/1quz9ro/trump_has_no_authority_to_nationalize_elections/o3e38oh/
+
+2 month Reddit account. Left vs. right brain rot. "media machine" - Reddit no-identity media itself.
