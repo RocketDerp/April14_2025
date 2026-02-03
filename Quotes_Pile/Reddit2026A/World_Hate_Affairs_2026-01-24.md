@@ -722,4 +722,6 @@ https://old.reddit.com/r/videos/comments/1qut3rh/jeffrey_epsteins_links_to_putin
 
 But most people are paying attention to video games, sports gaming, sports stars, celebrity star Donald Trump, Reality TV garbage, Fox News HDTV, fiction storytelling. Reddit needs to be making FAQ and Wiki systems of PRIORITY topics since year 2015... not just making it an egoism contents (dick measuring of 1 person knows more than others) that 1 out of 100 people knows more. **Critical learning for adults needs to be COMMUNITY ORGANIZED in F.A.Q. of IMPORTANT TOPICS!**
 
+https://old.reddit.com/r/Damnthatsinteresting/comments/1qv11zi/karen_mulder_tried_to_warn_everyone_about_similar/o3e6mcz/
 
+Children are sports entertainment fodder to so many audience cults to sports games.
