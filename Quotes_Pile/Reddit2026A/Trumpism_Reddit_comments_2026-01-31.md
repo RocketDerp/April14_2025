@@ -1535,3 +1535,7 @@ https://old.reddit.com/r/politics/comments/1quz9ro/trump_has_no_authority_to_nat
 https://old.reddit.com/r/politics/comments/1quz9ro/trump_has_no_authority_to_nationalize_elections/o3e3sg2/
 
 11 month Reddit account. Anything but organize a FAQ or Wiki and important priorities list.
+
+https://old.reddit.com/r/politics/comments/1quz9ro/trump_has_no_authority_to_nationalize_elections/o3eg857/
+
+Loves it when people don't understand. Giving up on elections this fall.
