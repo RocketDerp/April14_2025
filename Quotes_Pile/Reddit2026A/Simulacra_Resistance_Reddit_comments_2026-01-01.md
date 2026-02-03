@@ -731,3 +731,7 @@ In the eyes of the Reddit fandom to Trump, adding more jokes and mocking to Trum
 
 * “For in the end, he was trying to tell us what afflicted the people in 'Brave New World' was not that they were laughing instead of thinking, but that they did not know what they were laughing about and why they had stopped thinking.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business https://www.youtube.com/watch?v=ETUGwC9jXCM
 
+https://old.reddit.com/r/UnderReportedNews/comments/1quygiv/sen_chris_murphy_a_uae_investor_secretly_gave/o3dqcs9/
+
+Come on Reddit audience, Reddit end-users, WAKE UP and make Dr. Bandy X Lee a household name. Quote Dr. Bandy X Lee on every social platform! Every 4 hours, quote her nonfiction books to educate everyone on why Trump's mental health is dangerous to everyone! Keep teaching so we don't keep picking terrible business leaders in USA!
+
