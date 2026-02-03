@@ -658,3 +658,9 @@ https://old.reddit.com/r/videos/comments/1qut3rh/jeffrey_epsteins_links_to_putin
 
 Saturday October 7, 2023 is Putin's Birthday in Palestine. Look it up! https://TheHill.com/opinion/international/4250708-putins-fingerprints-are-on-hamas/ - World hate Affairs. Anti-Malala Palestine, Anti-Malala Israel, hate for hate vs. hate clergy out-group teachings in the Levant.
 
+https://old.reddit.com/r/videos/comments/1qut3rh/jeffrey_epsteins_links_to_putin_revealed_with/o3ch44w/
+
+https://old.reddit.com/r/videos/comments/1qut3rh/jeffrey_epsteins_links_to_putin_revealed_with/o3cl59o/
+
+People need to address the population wide, age 12 to age 120, not just Republicans - mental health issues. The aftermath behavioral and mindset issues of Cambridge Analytica psychologists. We The People need to deal with the MAGA cults, Fox News HDTV cults, Newsmax cults, Twitter social cults, Truth Social media cultists, etc. NOW! Dr. Bandy X Lee should be getting constant attention and quotes on every media plaform, NOW!!!
+
