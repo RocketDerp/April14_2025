@@ -1659,3 +1659,8 @@ https://old.reddit.com/r/Fauxmoi/comments/1qv2pyn/melinda_gates_bombshell_states
 Yes. So many people are slaves to their "Boss Man" of Corporate America values.
 
 https://old.reddit.com/r/Fauxmoi/comments/1qv2pyn/melinda_gates_bombshell_states_her_exhusband_bill/o3f4u7q/
+
+https://old.reddit.com/r/clevercomebacks/comments/1qv1bmm/republican_congressman_outed_as_a_traitor/o3eapba/
+
+Science fiction cult of Bible science fiction. Rupert Murdoch Fox News HDTV fiction cultist. Fiction addiction has wrecked the USA. People can not translate The Bible storybook to Hamlet's Ghost. Bible verse "1 John 4:20" interpretation crisis abounds!
+
