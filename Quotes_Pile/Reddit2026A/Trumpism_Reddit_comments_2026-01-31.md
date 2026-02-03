@@ -1356,3 +1356,7 @@ https://old.reddit.com/r/politics/comments/1qu51d6/trump_we_should_take_over_the
 
 * “You wait for one great shocking occasion, thinking that others, when such a shock comes, will join with you in resisting somehow... But the one great shocking occasion when tens or hundreds of thousands will join with you, ... never comes. If the last and worst act of the whole regime had come immediately after the first and smallest, thousands, yes, millions, would have been sufficiently shocked ... but of course, this isn't the way it happens. In between comes all the hundreds of little steps, some of them imperceptible, each of them preparing you not to be shocked by the next. And one day, too late, your principles, if you were ever sensible of them, all rush in upon you ... and you see that everything - everything - has changed ... Now you live in a world of hate and fear, and the people who hate and fear do not even know it themselves; when everyone is transformed, no one is transformed.”
 ― Milton Mayer, They Thought They Were Free: The Germans, 1933-45. Published year 1955.
+
+https://old.reddit.com/r/politics/comments/1qu51d6/trump_we_should_take_over_the_voting/o37obm6/
+
+Trump fandom loves the constant stimulation of smartphones that Trump provides. Content creator Trump.
