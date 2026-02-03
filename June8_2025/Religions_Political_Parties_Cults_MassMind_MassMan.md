@@ -37,3 +37,4 @@ https://www.youtube.com/watch?v=i5m-RHS1fU0
 This Is How You Get JARHEAD Sequels    
 1,004,156 views January 9, 2026   
 
+The branding and accounting machine is kept on and war just happens to be the selling.
