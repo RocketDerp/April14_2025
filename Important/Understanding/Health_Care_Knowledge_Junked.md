@@ -252,3 +252,9 @@ Health care knowledge junked: following Putin and Trump leadership of mocking an
 https://old.reddit.com/r/interestingasfuck/comments/1qrcfqe/man_be_harassed_for_his_looks_yet_found_a/
 
 https://old.reddit.com/r/UpliftingNews/comments/1qtpulu/goodbye_to_the_idea_that_solar_panels_die_after/
+
+&nbsp;
+
+Parents and grandparents praised and worship the Trump family as a role model for children and young adults since June 16, 2015. Surkov won. RFK Jr is a role model for health advice.
+
+https://old.reddit.com/r/science/comments/1qupf1g/young_adults_report_lower_life_satisfaction_a/
