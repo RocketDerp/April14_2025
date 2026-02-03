@@ -1695,3 +1695,12 @@ ANSWER: Russia manipulated minds, the executive function of the mind has been ma
 * "Настало время замечательных историй. Расскажу вам о том (теперь уже можно), как мы с Дональдом Трампом приняли решение освободить Америку и сделать её снова великой. На это нам понадобилось целых 4 года и ещё 2 дня. Всё началось ночью с 6 на 7 ноября 2012 года." https://www.FaceBook.com/konstantin.rykov/posts/10210621124674610 "Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа.", "Дальше оставалось только загрузить эти данные в информационные потоки и социальные сети." - https://www.FaceBook.com/konstantin.rykov/posts/10210643558675446
 
 Social post ( https://autistics.life/@RoundSparrow/116009133511919873 https://bsky.app/profile/roundsparrow.bsky.social/post/3mdygyhy4xs2h }
+
+https://old.reddit.com/r/videos/comments/1qv50nm/rep_lieu_says_epstein_files_have_allegations_of/o3f3ydv/
+
+https://old.reddit.com/r/videos/comments/1qv50nm/rep_lieu_says_epstein_files_have_allegations_of/o3f3kbq/
+
+https://old.reddit.com/r/videos/comments/1qv50nm/rep_lieu_says_epstein_files_have_allegations_of/o3f8rf4/
+
+Wrong. People care very much about Trump content. People prize Trump as an entertainment and joke source. More Trump content, the more the We The People audience gets what no other politician provides. Reddit content addicts are in denial of their own content-driven behaviors.
+
