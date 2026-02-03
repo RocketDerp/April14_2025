@@ -646,4 +646,8 @@ https://old.reddit.com/r/StandUpComedy/comments/1quss99/athletes_need_to_stop_th
 
 God hates some people, the prayers people do to death-wish others. I've seen so many prayers to death-wish Trump from science fiction Bible believers in USA. I want WE THE PEOPLE, human beings, every person age 12 and over voter or non-voter, to STAND UP and teach scientist Dr. Bandy X Lee's public education about Trump mental health to hundreds of millions of media cultists of { Fox News HDTV, Twitter Social, Reddit Social, Truth Social, Facebook, Newsmax HDTV, etc }. Dr. Bandy X Lee is leading but people need to promote, quote her books, follow!
 
+https://old.reddit.com/r/StandUpComedy/comments/1quss99/athletes_need_to_stop_thanking_god/o3cjavz/
+
+And if we quoted it every day since June 16, 2015 and revived the message of comprehension and understanding of Bible verse "1 John 4:20" crises. You have not SEEN Jesus, it is WRONG to say "I Love Jesus" - it's all there in Bible verse "1 John 4:20". We all should have been repeating and sharing George Carlin until every person grasped the concept!
+
 
