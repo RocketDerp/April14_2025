@@ -716,3 +716,10 @@ https://old.reddit.com/r/videos/comments/1qut3rh/jeffrey_epsteins_links_to_putin
 https://old.reddit.com/r/videos/comments/1qut3rh/jeffrey_epsteins_links_to_putin_revealed_with/o3dbsj0/
 
 How come Reddit fandom to Epstein is not wanting to teach Rupert Murdoch brainwashing methods and make Jen Senko world famous via Reddit commenting and postings? Why is this nonfiction film not being mentioned day and night on Reddit until everyone is on the same page for mental health brainwashing MAGA crisis topics? https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad Why isn't there a mental health crisis uprising to do cult deprogramming on Reddit? Reddit audience members have all the symptoms of being in an information media cult to Epstein topics.
+
+https://old.reddit.com/r/videos/comments/1qut3rh/jeffrey_epsteins_links_to_putin_revealed_with/o3cjafj/
+
+
+But most people are paying attention to video games, sports gaming, sports stars, celebrity star Donald Trump, Reality TV garbage, Fox News HDTV, fiction storytelling. Reddit needs to be making FAQ and Wiki systems of PRIORITY topics since year 2015... not just making it an egoism contents (dick measuring of 1 person knows more than others) that 1 out of 100 people knows more. **Critical learning for adults needs to be COMMUNITY ORGANIZED in F.A.Q. of IMPORTANT TOPICS!**
+
+
