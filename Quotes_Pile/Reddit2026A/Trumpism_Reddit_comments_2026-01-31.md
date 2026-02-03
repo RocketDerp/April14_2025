@@ -1637,3 +1637,16 @@ https://old.reddit.com/r/Fauxmoi/comments/1qv2pyn/melinda_gates_bombshell_states
 I suggest you let Malala pick young non-billionaire leaders of the girls uprising. 
 
 * "Flanked by 193 young people from around the world—one for each current seat in the United Nations—Malala demanded safety and education for all children. Then she introduced a few of her “sisters”—other young women who are working with the Malala Fund, a non-profit promoting education for girls inspired and led by the young Pakistani activist." - https://qz.com/511657/photos-meet-the-six-incredible-girls-helping-malala-to-educate-the-world
+
+https://old.reddit.com/r/Fauxmoi/comments/1qv2pyn/melinda_gates_bombshell_states_her_exhusband_bill/o3ewnhf/
+
+https://old.reddit.com/r/Fauxmoi/comments/1qv2pyn/melinda_gates_bombshell_states_her_exhusband_bill/o3ezf06/
+
+https://old.reddit.com/r/Fauxmoi/comments/1qv2pyn/melinda_gates_bombshell_states_her_exhusband_bill/o3ewu7w/
+
+Look around on Bluesky and see how many use #Malala hashtag. People do not give a shit about standing up for girls. Trump and Epstein are FAR FROM the only abuses in a planet of over 8 billion people. Rich and famous Bill Gates name is why this is on top. If Malala had not been shot by a gun, her January 3, 2009 blog would have been ignored by most people. They fucking shot girls on a school bus!
+
+* "On 9 October 2012, while on a bus in Swat District after taking an exam, Yousafzai and two other girls were shot by a Taliban gunman in an assassination attempt"
+
+Listen to Malala speak, she is intelligent and much of what she wrote an said back from January 3, 2009 to year 2014 is recorded and logged. Read her book from October 8, 2013. EDUCATE GIRLS TO STAND UP TO MEN! Give girls power to articulate what the fuck men are doing to  control and corner them!
+
