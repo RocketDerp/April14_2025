@@ -713,3 +713,6 @@ https://old.reddit.com/r/videos/comments/1qut3rh/jeffrey_epsteins_links_to_putin
 
 "LOL", laugh track for Reddit audience. Extreme tiny-short Elon Musk Twitter messaging patterns. Blows the Reddit audience mindsets into meme stupors.
 
+https://old.reddit.com/r/videos/comments/1qut3rh/jeffrey_epsteins_links_to_putin_revealed_with/o3dbsj0/
+
+How come Reddit fandom to Epstein is not wanting to teach Rupert Murdoch brainwashing methods and make Jen Senko world famous via Reddit commenting and postings? Why is this nonfiction film not being mentioned day and night on Reddit until everyone is on the same page for mental health brainwashing MAGA crisis topics? https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad Why isn't there a mental health crisis uprising to do cult deprogramming on Reddit? Reddit audience members have all the symptoms of being in an information media cult to Epstein topics.
