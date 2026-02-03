@@ -745,3 +745,7 @@ Simulation of resisting. Audience fandom of Trump. Content is king for media add
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mdyhi6o6us2u https://autistics.life/@RoundSparrow/116009167384483689 }
 
 OPERA_A They have a billion-dollar bounty on someone who understands the simulacra parties going on all over in filter-bubble echoing chambers. Hush, Caution! Echoland! https://www.youtube.com/watch?v=E6l5ezErGuw Let Dr. Bandy X Lee, *Woman* - take over... 52,975,062 views June 26, 2017
+
+https://old.reddit.com/r/videos/comments/1qv50nm/rep_lieu_says_epstein_files_have_allegations_of/o3f810s/
+
+PizzaGate was a Kremlin-manipulated QAnon simulation. EVIDENCE: https://www.independent.co.uk/news/world/americas/us-election-2020/qanon-russia-conspiracy-theory-trump-2020-election-b1536946.html
