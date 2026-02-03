@@ -637,3 +637,13 @@ https://old.reddit.com/r/WorkReform/comments/1qtw3sn/if_cuck_schumer_put_even_ha
 Labor and money, especially people using social media, should be directed towards Malala's education and teaching so people GRASP the values of terrorism in Palestine. We need to reform the terrorist clergy systems in the 3 Levant religions.
 
 * "The extremists are afraid of books and pens. The power of education frightens them. They are afraid of women. The power of the voice of women frightens them." - July 12, 2013 https://malala.org/news-and-voices/malala-un-speech
+
+https://old.reddit.com/r/StandUpComedy/comments/1quss99/athletes_need_to_stop_thanking_god/o3clb51/
+
+Blame God for an earthquake. Blame god for COVID-2019 deaths.
+
+https://old.reddit.com/r/StandUpComedy/comments/1quss99/athletes_need_to_stop_thanking_god/o3cs2i2/
+
+God hates some people, the prayers people do to death-wish others. I've seen so many prayers to death-wish Trump from science fiction Bible believers in USA. I want WE THE PEOPLE, human beings, every person age 12 and over voter or non-voter, to STAND UP and teach scientist Dr. Bandy X Lee's public education about Trump mental health to hundreds of millions of media cultists of { Fox News HDTV, Twitter Social, Reddit Social, Truth Social, Facebook, Newsmax HDTV, etc }. Dr. Bandy X Lee is leading but people need to promote, quote her books, follow!
+
+
