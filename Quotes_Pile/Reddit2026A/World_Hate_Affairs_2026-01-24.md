@@ -735,3 +735,7 @@ We have a global problem of men's clergy, men religion, men Daddy figure Jesus, 
 https://old.reddit.com/r/PublicFreakout/comments/1quy8rr/murphy_a_uae_investor_secretly_gave_trump_187/o3dkkzk/
 
 Is this low-effort commenting on Reddit? Is this a way to get social media engagement and not actually organize? Is this a simulation of resisting by commenting on Reddit and not organizing critical topics and education of cult deprogramming to face MAGA people by the hundreds of millions...
+
+https://old.reddit.com/r/PublicFreakout/comments/1quy8rr/murphy_a_uae_investor_secretly_gave_trump_187/o3dqhh4/
+
+Right vs left brain rot. Fiction vs. nonfiction is a more critical and urgent crisis. Trump is an entertainer and fiction storyteller that has a massive USA fandom, including Reddit fanatics for Trump hate leadership content.
