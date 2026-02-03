@@ -725,3 +725,9 @@ Reddit is eating out of Putin's hands and has been doing so since MARCH OF YEAR 
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mdxow7oimk2m https://autistics.life/@RoundSparrow/116007439740610684 https://MidWest.Social/post/42892697 }
 
+https://old.reddit.com/r/UnderReportedNews/comments/1quygiv/sen_chris_murphy_a_uae_investor_secretly_gave/o3dqatw/
+
+In the eyes of the Reddit fandom to Trump, adding more jokes and mocking to Trump's jokes and mockery is a good thing. In the eyes of Reddit audience members, never question your blind faith in jokes and humor. Give up on deep thinking on Reddit and favor high-speed delivery of commenting and joke-washing Trump day in and day out for over 10 years and never think about learning Surkov techniques.
+
+* “For in the end, he was trying to tell us what afflicted the people in 'Brave New World' was not that they were laughing instead of thinking, but that they did not know what they were laughing about and why they had stopped thinking.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business https://www.youtube.com/watch?v=ETUGwC9jXCM
+
