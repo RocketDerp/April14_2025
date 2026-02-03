@@ -719,8 +719,9 @@ https://old.reddit.com/r/Music/comments/1quo3iv/50_cent_mocks_nicki_minajs_x_ram
 
 <img width="1283" height="1373" alt="image" src="https://github.com/user-attachments/assets/580913fc-a907-4320-a308-1ab4ee12ea83" />
 
-This posting is a **simulation of resistance, a screen game for Reddit gamers**, home gamers who are playing an ARG that they are winning. As billionaires run Reddit influencers. STUDY FUCKING RUSSIA YEAR 2011!! READ THIS AUTHOR https://www.lrb.co.uk/the-paper/v33/n20/peter-pomerantsev/putin-s-rasputin
+This Reddit posting is a **simulation of resistance, a screen game for Reddit gamers**, home gamers who are playing an ARG that they are winning. As billionaires run Reddit influencers. STUDY FUCKING RUSSIA YEAR 2011!! READ THIS AUTHOR https://www.lrb.co.uk/the-paper/v33/n20/peter-pomerantsev/putin-s-rasputin
 
 Reddit is eating out of Putin's hands and has been doing so since MARCH OF YEAR 2013!! This problem runs very deep into mindsets.
 
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mdxow7oimk2m https://autistics.life/@RoundSparrow/116007439740610684 https://MidWest.Social/post/42892697 }
 
