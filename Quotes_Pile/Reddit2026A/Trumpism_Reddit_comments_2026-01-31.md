@@ -1627,3 +1627,13 @@ These problems are not unique to the USA. Malala was shot on her school bus as a
 
 * “We felt like the Taliban saw us as like little dolls to control, telling us what to do and how to dress. I thought if God wanted us to be like that He would not have made us all different.”
 ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. Published October 8, 2013.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qv2pyn/melinda_gates_bombshell_states_her_exhusband_bill/o3et10b/
+
+https://old.reddit.com/r/Fauxmoi/comments/1qv2pyn/melinda_gates_bombshell_states_her_exhusband_bill/o3etrta/
+
+https://old.reddit.com/r/Fauxmoi/comments/1qv2pyn/melinda_gates_bombshell_states_her_exhusband_bill/o3euapv/
+
+I suggest you let Malala pick young non-billionaire leaders of the girls uprising. 
+
+* "Flanked by 193 young people from around the world—one for each current seat in the United Nations—Malala demanded safety and education for all children. Then she introduced a few of her “sisters”—other young women who are working with the Malala Fund, a non-profit promoting education for girls inspired and led by the young Pakistani activist." - https://qz.com/511657/photos-meet-the-six-incredible-girls-helping-malala-to-educate-the-world
