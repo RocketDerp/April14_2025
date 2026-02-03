@@ -1683,3 +1683,15 @@ Why? if someone say "read Hamlet", or "Read Romeo and Juliet" poetry, you think 
 https://old.reddit.com/r/clevercomebacks/comments/1qv1bmm/republican_congressman_outed_as_a_traitor/o3egdvi/
 
 8 month Reddit account.
+
+https://old.reddit.com/r/videos/comments/1qv50nm/rep_lieu_says_epstein_files_have_allegations_of/o3f1l29/
+
+https://old.reddit.com/r/videos/comments/1qv50nm/rep_lieu_says_epstein_files_have_allegations_of/o3f3uwq/
+
+<img width="1380" height="1346" alt="image" src="https://github.com/user-attachments/assets/94843e24-4338-4c57-8f74-8558ca03964b" />
+
+ANSWER: Russia manipulated minds, the executive function of the mind has been manipulated for the entire population since year 2013. We The People were directly manipulated by the Internet Research Agency, Saint Petersburg. March of year 2013 onward. (Note that the username is suspect of mocking the very technology of tribal IRA warfare).
+
+* "Настало время замечательных историй. Расскажу вам о том (теперь уже можно), как мы с Дональдом Трампом приняли решение освободить Америку и сделать её снова великой. На это нам понадобилось целых 4 года и ещё 2 дня. Всё началось ночью с 6 на 7 ноября 2012 года." https://www.FaceBook.com/konstantin.rykov/posts/10210621124674610 "Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа.", "Дальше оставалось только загрузить эти данные в информационные потоки и социальные сети." - https://www.FaceBook.com/konstantin.rykov/posts/10210643558675446
+
+Social post ( https://autistics.life/@RoundSparrow/116009133511919873 https://bsky.app/profile/roundsparrow.bsky.social/post/3mdygyhy4xs2h }
