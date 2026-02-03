@@ -1481,3 +1481,7 @@ https://old.reddit.com/r/countwithchickenlady/comments/1qu46ru/33793/o37i5mt/
 https://old.reddit.com/r/nottheonion/comments/1qunaw6/jeffrey_epstein_reportedly_had_a_major_hand_in/o3bc4nt/
 
 People prize toxic male leaders. Epstein, Putin, Musk, Trump, Murdoch.... anti-Malala reformations.
+
+https://old.reddit.com/r/nottheonion/comments/1qunaw6/jeffrey_epstein_reportedly_had_a_major_hand_in/o3bbqgq/
+
+And people still can't grasp why Elon Musk spends so much money o StarLink and Twitter. Video gaming children, parenting Daddy role model Musk. 
