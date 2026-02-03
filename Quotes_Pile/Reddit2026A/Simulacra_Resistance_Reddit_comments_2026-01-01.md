@@ -713,3 +713,14 @@ https://old.reddit.com/r/Music/comments/1quo3iv/50_cent_mocks_nicki_minajs_x_ram
 Wake the fuck up USA, the whole world is watching Tony Clifton President on stage make a mockery of intelligence via 16D Surkov chess.
 
 * "For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the **true becomes false and the false becomes true**. That's what hate does. You can't see right. **The symbol of objectivity** is lost." - Martin Luther King Jr.
+
+
+https://old.reddit.com/r/Music/comments/1quo3iv/50_cent_mocks_nicki_minajs_x_rampage_as_critics/o3bq8pz/
+
+<img width="1283" height="1373" alt="image" src="https://github.com/user-attachments/assets/580913fc-a907-4320-a308-1ab4ee12ea83" />
+
+This posting is a **simulation of resistance, a screen game for Reddit gamers**, home gamers who are playing an ARG that they are winning. As billionaires run Reddit influencers. STUDY FUCKING RUSSIA YEAR 2011!! READ THIS AUTHOR https://www.lrb.co.uk/the-paper/v33/n20/peter-pomerantsev/putin-s-rasputin
+
+Reddit is eating out of Putin's hands and has been doing so since MARCH OF YEAR 2013!! This problem runs very deep into mindsets.
+
+
