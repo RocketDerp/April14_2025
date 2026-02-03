@@ -1487,3 +1487,7 @@ https://old.reddit.com/r/nottheonion/comments/1qunaw6/jeffrey_epstein_reportedly
 And people still can't grasp why Elon Musk spends so much money o StarLink and Twitter. Video gaming children, parenting Daddy role model Musk. 
 
 https://old.reddit.com/r/nottheonion/comments/1qunaw6/jeffrey_epstein_reportedly_had_a_major_hand_in/o3bbphp/
+
+https://old.reddit.com/r/law/comments/1qurhrh/if_we_have_this_mountain_of_evidence_that_proved/o3c503p/
+
+We The People are the problem. Why had Reddit not dealt with the brainwashing and cult issues head on? WHy is Jen Senko not world famous every day? Why is Dr. Bandy X. Lee's leadership ignored? People on Reddit spend free time and spare time commenting about Trump instead of educating people about mental health and cult crisis!
