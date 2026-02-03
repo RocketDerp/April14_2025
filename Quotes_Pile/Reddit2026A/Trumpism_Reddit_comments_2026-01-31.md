@@ -1595,3 +1595,35 @@ https://old.reddit.com/r/law/comments/1qv4ge9/rep_lieu_says_epstein_files_have_a
 
 https://old.reddit.com/r/law/comments/1qv4ge9/rep_lieu_says_epstein_files_have_allegations_of/o3f3kbs/
 
+https://old.reddit.com/r/Fauxmoi/comments/1qv2pyn/melinda_gates_bombshell_states_her_exhusband_bill/o3ens91/
+
+https://old.reddit.com/r/Fauxmoi/comments/1qv2pyn/melinda_gates_bombshell_states_her_exhusband_bill/o3emvdt/
+
+3 month Reddit account.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qv2pyn/melinda_gates_bombshell_states_her_exhusband_bill/o3enkwe/
+
+https://old.reddit.com/r/Fauxmoi/comments/1qv2pyn/melinda_gates_bombshell_states_her_exhusband_bill/o3ensb7/
+
+https://old.reddit.com/r/Fauxmoi/comments/1qv2pyn/melinda_gates_bombshell_states_her_exhusband_bill/o3eokg1/
+
+https://old.reddit.com/r/Fauxmoi/comments/1qv2pyn/melinda_gates_bombshell_states_her_exhusband_bill/o3f42va/
+
+https://old.reddit.com/r/Fauxmoi/comments/1qv2pyn/melinda_gates_bombshell_states_her_exhusband_bill/o3eoq6f/
+
+https://old.reddit.com/r/Fauxmoi/comments/1qv2pyn/melinda_gates_bombshell_states_her_exhusband_bill/o3esxfi/
+
+https://old.reddit.com/r/Fauxmoi/comments/1qv2pyn/melinda_gates_bombshell_states_her_exhusband_bill/o3essp2/
+
+2 month Reddit account.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qv2pyn/melinda_gates_bombshell_states_her_exhusband_bill/o3etnu5/
+
+8 day Reddit account.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qv2pyn/melinda_gates_bombshell_states_her_exhusband_bill/o3erhi0/
+
+These problems are not unique to the USA. Malala was shot on her school bus as a child for speaking up against elder men and their systemic abuse. Alas, social media only wants to talk about rich people and not actually quote Malala speeches and books on Reddit or Bluesky.
+
+* “We felt like the Taliban saw us as like little dolls to control, telling us what to do and how to dress. I thought if God wanted us to be like that He would not have made us all different.”
+― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. Published October 8, 2013.
