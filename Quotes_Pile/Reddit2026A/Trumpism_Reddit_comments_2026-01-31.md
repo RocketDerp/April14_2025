@@ -1477,3 +1477,7 @@ https://old.reddit.com/r/countwithchickenlady/comments/1qu46ru/33793/o37s18k/
 https://old.reddit.com/r/countwithchickenlady/comments/1qu46ru/33793/o37i5mt/
 
 8 month Reddit account.
+
+https://old.reddit.com/r/nottheonion/comments/1qunaw6/jeffrey_epstein_reportedly_had_a_major_hand_in/o3bc4nt/
+
+People prize toxic male leaders. Epstein, Putin, Musk, Trump, Murdoch.... anti-Malala reformations.
