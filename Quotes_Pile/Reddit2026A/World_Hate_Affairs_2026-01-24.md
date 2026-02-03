@@ -664,3 +664,6 @@ https://old.reddit.com/r/videos/comments/1qut3rh/jeffrey_epsteins_links_to_putin
 
 People need to address the population wide, age 12 to age 120, not just Republicans - mental health issues. The aftermath behavioral and mindset issues of Cambridge Analytica psychologists. We The People need to deal with the MAGA cults, Fox News HDTV cults, Newsmax cults, Twitter social cults, Truth Social media cultists, etc. NOW! Dr. Bandy X Lee should be getting constant attention and quotes on every media plaform, NOW!!!
 
+https://old.reddit.com/r/videos/comments/1qut3rh/jeffrey_epsteins_links_to_putin_revealed_with/o3cnlrb/
+
+People need to be drawing timelines. FAQ, Wiki systems, this GitHub project, etc. Private jet, **Trump in Moscow on November 8, 2013** for sexual performances show, leading women in front of cameras for power and wealth concentration! 
