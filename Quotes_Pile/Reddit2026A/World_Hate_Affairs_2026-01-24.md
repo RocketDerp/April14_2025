@@ -666,4 +666,17 @@ People need to address the population wide, age 12 to age 120, not just Republic
 
 https://old.reddit.com/r/videos/comments/1qut3rh/jeffrey_epsteins_links_to_putin_revealed_with/o3cnlrb/
 
-People need to be drawing timelines. FAQ, Wiki systems, this GitHub project, etc. Private jet, **Trump in Moscow on November 8, 2013** for sexual performances show, leading women in front of cameras for power and wealth concentration! 
+People need to be drawing timelines. FAQ, Wiki systems, this GitHub project, etc. Private jet, **Trump in Moscow on November 8, 2013** for sexual performances show, leading women in front of cameras for power and wealth concentration! Anti-love "girls just for sex" anti-compassion media event. Moscow. November 8, 2013.
+
+https://old.reddit.com/r/videos/comments/1qut3rh/jeffrey_epsteins_links_to_putin_revealed_with/o3cxoh0/
+
+https://old.reddit.com/r/videos/comments/1qut3rh/jeffrey_epsteins_links_to_putin_revealed_with/o3cl60x/
+
+https://old.reddit.com/r/videos/comments/1qut3rh/jeffrey_epsteins_links_to_putin_revealed_with/o3dmdmf/
+
+https://old.reddit.com/r/videos/comments/1qut3rh/jeffrey_epsteins_links_to_putin_revealed_with/o3dgnj9/
+
+https://old.reddit.com/r/videos/comments/1qut3rh/jeffrey_epsteins_links_to_putin_revealed_with/o3d30n0/
+
+Trump was PARADING girls to dominate them in front of Cameras in Moscow on November 8, 2013! Wake the fuck up USA, he does his domination WITH THE CAMERA every day! Cults of Trump images, Trump name cults, Trump bling cults all over Reddit! Study Neil Postman's 1985 book! Moscow fucking Russia, year 2013!! OPERA_A Styx, Chicago city band. https://www.youtube.com/watch?v=swVRj7NDWcg 1,272,445 views July 29, 2018 Trump LEADS with mind exploitation of males, "Alpha male" bullshit! We need to TEACH AND EDUCATE! Rock Opera!
+
