@@ -689,3 +689,19 @@ https://old.reddit.com/r/videos/comments/1qut3rh/jeffrey_epsteins_links_to_putin
 Extreme tiny-short logic, one-bit thinking. Minds blown on Reddit to ignore all the evidence. Trump is just a "normal" President and this Reddit posting about Epstein is just "normal" way things were before the Internet Research Agency factually invaded Reddit. March 2, 2018 **BBC world news**, a non-USA news source. https://www.BBC.com/news/technology-43255285
 
 Reddit audience does not quote nonfiction books. No FAQ, no Wiki, just tiny-short shit-commenting and shit-posting prizing from Truth Social leadership in 2026. It was not this way this severely in year 2012 and before on serious important topics. Little tiny comments that dismiss details of important understandings of information warfare out of the Kremlin; Surkov techniques.
+
+https://old.reddit.com/r/videos/comments/1qut3rh/jeffrey_epsteins_links_to_putin_revealed_with/o3d0cxs/
+
+Israel's October 7, 2023 "intelligence failure" (bigger than 9/11) was on Putin's Birthday morning! Saturday! While children were right near the danger zone. We to believe Israel doesn't love their children? OPERA_A https://www.youtube.com/watch?v=wHylQRVN2Qs - "Russians... Love their children too?" lyrics.
+
+https://old.reddit.com/r/videos/comments/1qut3rh/jeffrey_epsteins_links_to_putin_revealed_with/o3cktoc/
+
+Works on men. Instead of getting our sex issues out in public and discussing the male sexual "sex sells" business systems...
+
+https://old.reddit.com/r/videos/comments/1qut3rh/jeffrey_epsteins_links_to_putin_revealed_with/o3cwjez/
+
+Reddit users will not name the "Internet Research Agency". Reddit audience members will not discuss October 7, 2023 intelligence failure as Putin's birthday on a Saturday with music festival in the danger zone! British Cambridge Analytica... people on Reddit audience won't talk about MAGA being mind-fucked by doctors of Cambridge England! March 2, 2018 **BBC world news**, a non-USA news source. https://www.BBC.com/news/technology-43255285 but Reddit audiences like little Twitter-length commenting to hand-wave away serious topics instead of off-Reddit citations and serious book quotes.
+
+* "**Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета".
+Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа.** Затем.. положить этот образ обратно на всё психотипы и таким образом подобрать универсальный ключик к любому и каждому."; " **Дальше оставалось только загрузить эти данные в информационные потоки и социальные сети.** И мы стали искать тех, кто справился бы с этой задачей лучше других." - gloating on Facebook by Константин Рыков
+
