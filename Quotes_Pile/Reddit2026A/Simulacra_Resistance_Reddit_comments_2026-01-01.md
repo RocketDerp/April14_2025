@@ -697,3 +697,19 @@ https://old.reddit.com/r/IThinkYouShouldLeave/comments/1qurfyk/when_rconservativ
 Reddit "I Think You Should Leave with Tim Robinson" Television fandom is fucking entirely blind that Putin is the one playing 16D chess since March of year 2013! Over and over the Reddit comment section is entertained by Trump behavior and Trump antics as Donald Trump plays POTUS Tony Clifton. The Reddit fandom of antics and jokes and television "Reality TV The Apprentice" eats it up. People can not face up to this **January of year 2015** story that explains the 16D Chess game and who is playing it. Reddit audience can not follow basic strategy game (Chess) timelines, minds are blown by shit comedy television Tony Clifton show every day into meme stupors. This is not resisting, this is mocking-away the USA to Russia's media television audience (Tim Robinson fandom) information warfare since this was published:
 
 * Published January 2015, before Trump started run for office in June 2015: https://www.Politico.com/magazine/story/2015/01/putin-russia-tv-113960/ At one end of the table sat one of the country’s most famous political TV presenters. He was small and spoke fast, with a smoky voice: “We all know there will be no real politics,” he said. “But we still have to give our viewers the sense something is happening. They need to be kept entertained.” “So what should we play with?” he asked. “Shall we attack oligarchs? Who’s the enemy this week? **Politics has got to feel like a movie!**”
+
+https://old.reddit.com/r/Music/comments/1quo3iv/50_cent_mocks_nicki_minajs_x_rampage_as_critics/o3bgxkv/
+
+1. Mocking is not resisting a Tony Clifton actor doing his acting of POTUS Clifton.
+
+2. Mocking a total mockery nation is adding to the overdose of mockery.
+
+3. Anti-Mocking is sobering up and promoting Dr. Bandy X Lee's nonfiction education and teaching every day on Reddit commenting section. EVERY HOUR OF EVERY DAY.
+
+4. Anti-Mockery is promoting Jen Senko about Fox News brainwashing and cult.
+
+5. Adding hate to a hate leader Trump is following Trump. Hate leadership is working. Putin leads Trump.
+
+Wake the fuck up USA, the whole world is watching Tony Clifton President on stage make a mockery of intelligence via 16D Surkov chess.
+
+* "For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the **true becomes false and the false becomes true**. That's what hate does. You can't see right. **The symbol of objectivity** is lost." - Martin Luther King Jr.
