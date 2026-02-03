@@ -35,3 +35,9 @@ https://old.reddit.com/r/PeterExplainsTheJoke/comments/1qu4rmg/genuinely_confuse
 https://old.reddit.com/r/PeterExplainsTheJoke/comments/1qu4rmg/genuinely_confused_and_who_is_the_hat_man/o37nrg3/
 
 https://old.reddit.com/r/PeterExplainsTheJoke/comments/1qu4rmg/genuinely_confused_and_who_is_the_hat_man/o37nrys/
+
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1quq2ox/this_tells_you_everything/o3bxerj/
+
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1quq2ox/this_tells_you_everything/o3bzd0m/
+
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1quq2ox/this_tells_you_everything/o3c4ntg/

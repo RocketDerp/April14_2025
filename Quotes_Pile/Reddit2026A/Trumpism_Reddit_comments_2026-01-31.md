@@ -1477,3 +1477,25 @@ https://old.reddit.com/r/countwithchickenlady/comments/1qu46ru/33793/o37s18k/
 https://old.reddit.com/r/countwithchickenlady/comments/1qu46ru/33793/o37i5mt/
 
 8 month Reddit account.
+
+https://old.reddit.com/r/nottheonion/comments/1qunaw6/jeffrey_epstein_reportedly_had_a_major_hand_in/o3bc4nt/
+
+People prize toxic male leaders. Epstein, Putin, Musk, Trump, Murdoch.... anti-Malala reformations.
+
+https://old.reddit.com/r/nottheonion/comments/1qunaw6/jeffrey_epstein_reportedly_had_a_major_hand_in/o3bbqgq/
+
+And people still can't grasp why Elon Musk spends so much money o StarLink and Twitter. Video gaming children, parenting Daddy role model Musk. 
+
+https://old.reddit.com/r/nottheonion/comments/1qunaw6/jeffrey_epstein_reportedly_had_a_major_hand_in/o3bbphp/
+
+https://old.reddit.com/r/law/comments/1qurhrh/if_we_have_this_mountain_of_evidence_that_proved/o3c503p/
+
+We The People are the problem. Why had Reddit not dealt with the brainwashing and cult issues head on? WHy is Jen Senko not world famous every day? Why is Dr. Bandy X. Lee's leadership ignored? People on Reddit spend free time and spare time commenting about Trump instead of educating people about mental health and cult crisis!
+
+https://old.reddit.com/r/law/comments/1qurhrh/if_we_have_this_mountain_of_evidence_that_proved/o3c8g9z/
+
+People have MISSED so much because Reddit society is anti-FAQ anti-Wiki and pro-commenting over and over with low-quality information instead of Wiki-style refinement and progressive quality improvement with information.
+
+https://old.reddit.com/r/Snorkblot/comments/1quqmw9/do_kids_really_need_high_school/o3by8qn/
+
+These are the leaders getting the conversation and free time and spare time. Anti-Malala social.

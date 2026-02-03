@@ -685,3 +685,53 @@ I really don't know where to begin to describe this Reddit fandom of hate. Peopl
 https://old.reddit.com/r/memes/comments/1qtvmcv/is_there_a_word_for_such_talent/o35pqir/
 
 Radio emitting signal. Twitter emitting. StarLink radio tech for Reddit tech audience.
+
+https://old.reddit.com/r/Gamingcirclejerk/comments/1quk6od/lol_this_aint_even_a_joke_the_oval_ofice_was/o3b6kcm/
+
+Anti-intellectual training ground, Reddit commenting section. Gamingcirclejerk. Joke-washing Trump as a source of entertainment. Trump has known all along that antics and bullshit get him to the front page of media systems. Tabloid trash /r/All Reddit. This isn't funny, it's a sick society that will amuse itself day and night to Trump. Fandom of Trump shit. That prizes shit-commenting, shit-leadership, and USA turning to shit all for jokes and comedy "jerking". NYC "Jerk" comedy that Trump out-jerks all of Reddit https://en.wikipedia.org/wiki/The_Jerky_Boys with POTUS Tony Clifton NYC SNL techniques. Surkov won.
+
+https://old.reddit.com/r/IThinkYouShouldLeave/comments/1qurfyk/when_rconservative_agrees_with_trump_that_we/o3cgdhv/
+
+<img width="1291" height="930" alt="image" src="https://github.com/user-attachments/assets/a95b1f91-1f46-485f-9b4a-272186ece8a2" />
+
+Reddit "I Think You Should Leave with Tim Robinson" Television fandom is fucking entirely blind that Putin is the one playing 16D chess since March of year 2013! Over and over the Reddit comment section is entertained by Trump behavior and Trump antics as Donald Trump plays POTUS Tony Clifton. The Reddit fandom of antics and jokes and television "Reality TV The Apprentice" eats it up. People can not face up to this **January of year 2015** story that explains the 16D Chess game and who is playing it. Reddit audience can not follow basic strategy game (Chess) timelines, minds are blown by shit comedy television Tony Clifton show every day into meme stupors. This is not resisting, this is mocking-away the USA to Russia's media television audience (Tim Robinson fandom) information warfare since this was published:
+
+* Published January 2015, before Trump started run for office in June 2015: https://www.Politico.com/magazine/story/2015/01/putin-russia-tv-113960/ At one end of the table sat one of the country’s most famous political TV presenters. He was small and spoke fast, with a smoky voice: “We all know there will be no real politics,” he said. “But we still have to give our viewers the sense something is happening. They need to be kept entertained.” “So what should we play with?” he asked. “Shall we attack oligarchs? Who’s the enemy this week? **Politics has got to feel like a movie!**”
+
+https://old.reddit.com/r/Music/comments/1quo3iv/50_cent_mocks_nicki_minajs_x_rampage_as_critics/o3bgxkv/
+
+1. Mocking is not resisting a Tony Clifton actor doing his acting of POTUS Clifton.
+
+2. Mocking a total mockery nation is adding to the overdose of mockery.
+
+3. Anti-Mocking is sobering up and promoting Dr. Bandy X Lee's nonfiction education and teaching every day on Reddit commenting section. EVERY HOUR OF EVERY DAY.
+
+4. Anti-Mockery is promoting Jen Senko about Fox News brainwashing and cult.
+
+5. Adding hate to a hate leader Trump is following Trump. Hate leadership is working. Putin leads Trump.
+
+Wake the fuck up USA, the whole world is watching Tony Clifton President on stage make a mockery of intelligence via 16D Surkov chess.
+
+* "For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the **true becomes false and the false becomes true**. That's what hate does. You can't see right. **The symbol of objectivity** is lost." - Martin Luther King Jr.
+
+
+https://old.reddit.com/r/Music/comments/1quo3iv/50_cent_mocks_nicki_minajs_x_rampage_as_critics/o3bq8pz/
+
+<img width="1283" height="1373" alt="image" src="https://github.com/user-attachments/assets/580913fc-a907-4320-a308-1ab4ee12ea83" />
+
+This Reddit posting is a **simulation of resistance, a screen game for Reddit gamers**, home gamers who are playing an ARG that they are winning. As billionaires run Reddit influencers. STUDY FUCKING RUSSIA YEAR 2011!! READ THIS AUTHOR https://www.lrb.co.uk/the-paper/v33/n20/peter-pomerantsev/putin-s-rasputin
+
+Reddit is eating out of Putin's hands and has been doing so since MARCH OF YEAR 2013!! This problem runs very deep into mindsets.
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mdxow7oimk2m https://autistics.life/@RoundSparrow/116007439740610684 https://MidWest.Social/post/42892697 }
+
+https://old.reddit.com/r/UnderReportedNews/comments/1quygiv/sen_chris_murphy_a_uae_investor_secretly_gave/o3dqatw/
+
+In the eyes of the Reddit fandom to Trump, adding more jokes and mocking to Trump's jokes and mockery is a good thing. In the eyes of Reddit audience members, never question your blind faith in jokes and humor. Give up on deep thinking on Reddit and favor high-speed delivery of commenting and joke-washing Trump day in and day out for over 10 years and never think about learning Surkov techniques.
+
+* “For in the end, he was trying to tell us what afflicted the people in 'Brave New World' was not that they were laughing instead of thinking, but that they did not know what they were laughing about and why they had stopped thinking.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business https://www.youtube.com/watch?v=ETUGwC9jXCM
+
+https://old.reddit.com/r/UnderReportedNews/comments/1quygiv/sen_chris_murphy_a_uae_investor_secretly_gave/o3dqcs9/
+
+Come on Reddit audience, Reddit end-users, WAKE UP and make Dr. Bandy X Lee a household name. Quote Dr. Bandy X Lee on every social platform! Every 4 hours, quote her nonfiction books to educate everyone on why Trump's mental health is dangerous to everyone! Keep teaching so we don't keep picking terrible business leaders in USA!
+

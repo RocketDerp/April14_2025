@@ -36,3 +36,17 @@ This is what Tony Clifton actors do to the population. Rupert Murdoch, Truth Soc
 https://old.reddit.com/r/AnimalsBeingDerps/comments/1o9r5dd/perfect_execution/
 
 Infinite Jest V, a Total Mockery back and forth, blowing-out the minds of audience members (We The People mind blown by Reality TV scripting of Surkov students).  "If I hit you and you hit me and I hit you back and you hit me back and go on, you see, that goes on ad infinitum. It just never ends. Somewhere somebody must have a little sense, and that's the strong person." - https://en.wikiquote.org/wiki/Martin_Luther_King_Jr.
+
+&nbsp;
+
+&nbsp;
+
+# February 2026
+
+Stupid Jokes Nation   
+Stupid Jokes USA  
+
+https://bsky.app/profile/roundsparrow.bsky.social/post/3mdxzes35as24   
+https://autistics.life/@RoundSparrow/116008175089362931  
+
+Stupid jokes about Donald Trump ruined our nation. All people do is LOL LOL LOL LMAO at Donald Trump day in and day out for over 10 fucking years. Memes and jokes to joke-wash Trump. Terrible Reality TV audience USA.
