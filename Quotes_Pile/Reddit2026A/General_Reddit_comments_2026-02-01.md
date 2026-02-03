@@ -28,3 +28,10 @@ https://old.reddit.com/r/seinfeld/comments/1qu2cwl/jerry_has_been_named_in_the_e
 
 https://old.reddit.com/r/seinfeld/comments/1qu2cwl/jerry_has_been_named_in_the_epstein_files/o3738uq/
 
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1qu4rmg/genuinely_confused_and_who_is_the_hat_man/o37kllw/
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1qu4rmg/genuinely_confused_and_who_is_the_hat_man/o37mvqg/
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1qu4rmg/genuinely_confused_and_who_is_the_hat_man/o37nrg3/
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1qu4rmg/genuinely_confused_and_who_is_the_hat_man/o37nrys/

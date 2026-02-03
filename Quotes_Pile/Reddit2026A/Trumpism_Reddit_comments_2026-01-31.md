@@ -1181,3 +1181,299 @@ Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mdvttu43l2
 https://old.reddit.com/r/news/comments/1qu6y4y/doj_takes_down_thousands_of_epstein_documents_for/o3815xc/
 
 Laughter is the best mind-fuck. Surkov won.
+
+https://old.reddit.com/r/law/comments/1qu74gw/trump_we_should_take_over_the_voting/o383lbt/
+
+https://old.reddit.com/r/law/comments/1qu74gw/trump_we_should_take_over_the_voting/o383n8w/
+
+4 month Reddit account. "lunatic"
+
+https://old.reddit.com/r/law/comments/1qu74gw/trump_we_should_take_over_the_voting/o38ehax/
+
+Distraction is from Dr. Bandy X Lee's nonfiction book. Trump provides constant stimulation media and social media end-users of Reddit can not go to the public library and use nonfiction to teach cult deprogramming on social media.
+
+https://old.reddit.com/r/law/comments/1qu74gw/trump_we_should_take_over_the_voting/o38ao5n/
+
+https://old.reddit.com/r/law/comments/1qu74gw/trump_we_should_take_over_the_voting/o38gwyo/
+
+https://old.reddit.com/r/law/comments/1qu74gw/trump_we_should_take_over_the_voting/o38a26k/
+
+https://old.reddit.com/r/law/comments/1qu74gw/trump_we_should_take_over_the_voting/o38jhbk/
+
+Joke-washing. Reddit fandom of Trump loves to kidding-wash Trump as a source of entertainment round after round. Amusement-washing Trump as kidding jokes. Neil Postman was correct in his year 1985 book.
+
+https://old.reddit.com/r/law/comments/1qu74gw/trump_we_should_take_over_the_voting/o38jt4p/
+
+We The People have given up nonfiction book reading for constant Epstein Trump Musk Putin stimulation via Reddit media systems, media venues delivering constant content.
+
+https://old.reddit.com/r/law/comments/1qu74gw/trump_we_should_take_over_the_voting/o38jkwn/
+
+Long-form Reddit commenting with off-Reddit links!!!
+
+https://old.reddit.com/r/law/comments/1qu74gw/trump_we_should_take_over_the_voting/o382hui/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qu2rka/subpoena_petter_thiel/o37me8q/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qu2rka/subpoena_petter_thiel/o38kxui/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qu2rka/subpoena_petter_thiel/o37k8x2/
+
+All it takes to get We the People to fall in line is a slight difference in language usage. Reddit machine tech lovers (look at user profile on Reddit) hate human persons and asserting humanism. This is why billionaires have invested so much in artificial intelligence that can rephrase and re-speak what real humans have to say - because of "good taste" listening / egoism of the audience like this Reddit user is promoting (ego rejection of anyone non-conforming).
+
+https://old.reddit.com/r/JoeRoganReacharound/comments/1qu57zk/joe_rogan_podcast_is_just_the_epstein_client_list/o37njef/
+
+Masculine macho network, man's men, Joe Rogan Experience of men who admire Daddy Putin and Daddy Trump.
+
+https://old.reddit.com/r/JoeRoganReacharound/comments/1qu57zk/joe_rogan_podcast_is_just_the_epstein_client_list/o37nkhg/
+
+https://old.reddit.com/r/JoeRoganReacharound/comments/1qu57zk/joe_rogan_podcast_is_just_the_epstein_client_list/o37sc5g/
+
+https://old.reddit.com/r/JoeRoganReacharound/comments/1qu57zk/joe_rogan_podcast_is_just_the_epstein_client_list/o37qgtx/
+
+https://old.reddit.com/r/JoeRoganReacharound/comments/1qu57zk/joe_rogan_podcast_is_just_the_epstein_client_list/o37q5vx/
+
+https://old.reddit.com/r/JoeRoganReacharound/comments/1qu57zk/joe_rogan_podcast_is_just_the_epstein_client_list/o37rplc/
+
+ANSWER: Pro-men mind-fucking by Russia's Internet Research Agency since March 2013. Executive function mind manipulation via Reddit, Twitter, Facebook, etc. All the male-leader Joe Rogan values spelled out December 20, 2013 - https://www.TheAtlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/ - Conservative men ruling women and girls.  - but audiences of Reddit are unable to seriously engage nonfiction learning on Kremlin agenda and techniques.
+
+https://old.reddit.com/r/JoeRoganReacharound/comments/1qu57zk/joe_rogan_podcast_is_just_the_epstein_client_list/o37t1fe/
+
+https://old.reddit.com/r/JoeRoganReacharound/comments/1qu57zk/joe_rogan_podcast_is_just_the_epstein_client_list/o38p5nb/
+
+https://old.reddit.com/r/JoeRoganReacharound/comments/1qu57zk/joe_rogan_podcast_is_just_the_epstein_client_list/o37uax1/
+
+1 month Reddit account. Christmas eve.
+
+https://old.reddit.com/r/JoeRoganReacharound/comments/1qu57zk/joe_rogan_podcast_is_just_the_epstein_client_list/o37um82/
+
+It's what you experience after consuming low-effort media content over and over on Reddit, Twitter, Bluesky, etc. Podcast-mind Twitter-think. Junk media consumers. When wild exciting fiction storytelling is more attractive than nonfiction real-world understanding and learning. Anti-Malala network of Joe Rogan fandoms / Reddit fandoms.
+
+* “Science is more than a body of knowledge; it is a way of thinking. I have a (year 1995) foreboding of an America in my children’s or grandchildren’s time — when the United States is a service and information economy; when nearly all the key manufacturing industries have slipped away to other countries; when awesome technological powers are in the hands of a very few, and no one representing the public interest can even grasp the issues; when the people have lost the ability to set their own agendas or knowledgeably question those in authority; when, clutching our crystals and nervously consulting our horoscopes, our critical faculties in decline, unable to distinguish between what feels good and what’s true, we slide, almost without noticing, back into superstition and darkness. The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the **30-second** sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but especially a kind of [celebration of ignorance](https://www.youtube.com/watch?v=wcY-x1VuWtE). As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning — not just of science, but of anything — are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995, page 59
+
+https://old.reddit.com/r/JoeRoganReacharound/comments/1qu57zk/joe_rogan_podcast_is_just_the_epstein_client_list/o38h0vf/
+
+Corporate America media technique. FUD. https://en.wikipedia.org/wiki/Fear,_uncertainty,_and_doubt - No author names, no quotes, etc.
+
+https://old.reddit.com/r/JoeRoganReacharound/comments/1qu57zk/joe_rogan_podcast_is_just_the_epstein_client_list/o38qr5r/
+
+Jar Jar didn't platform messages to join The Empire with his popularity and connections. Jar Jar took the Jedi nights to the leader to explain their situation.
+
+https://old.reddit.com/r/JoeRoganReacharound/comments/1qu57zk/joe_rogan_podcast_is_just_the_epstein_client_list/o38smmc/
+
+He is promoter of male domination. Ruling over women, big time.
+
+https://old.reddit.com/r/International/comments/1qu4k2i/joe_rogan_podcast_is_just_the_epstein_client_list/o37hgjt/
+
+3 month Reddit account, top-upvoted popular comment. topic of joe-washing, amusement-washing, which Reddit is a core venue like Joe Rogan platform. Neil Postman was correct in year 1985. SEE_ALSO eptember 10, 2025: https://Time.com/7313999/neil-postman-trump-prediction/
+
+https://old.reddit.com/r/International/comments/1qu4k2i/joe_rogan_podcast_is_just_the_epstein_client_list/o37kitd/
+
+White-washing via joke-washing, Amusement-washing bad things into attractions. Trump-washing. MAGA-washing, Putin-washing. Candy-coats toxic male domination of women and girls. Anti-Malala platform.
+
+https://old.reddit.com/r/International/comments/1qu4k2i/joe_rogan_podcast_is_just_the_epstein_client_list/o37li36/
+
+https://old.reddit.com/r/International/comments/1qu4k2i/joe_rogan_podcast_is_just_the_epstein_client_list/o384j6w/
+
+Anti-Malala, anti-girls, anti-goodness. Male domination in the Joe Rogan manosphere. See ALSO: https://Old.Reddit.com/r/TwoXChromosomes/comments/1qu9t54/new_study_explains_why_listening_to_joe_rogan/
+
+https://old.reddit.com/r/TwoXChromosomes/comments/1qu9t54/new_study_explains_why_listening_to_joe_rogan/o38mcsq/
+
+anti-study.
+
+https://old.reddit.com/r/TwoXChromosomes/comments/1qu9t54/new_study_explains_why_listening_to_joe_rogan/o38lq3c/
+
+Men ... changing their world view based on who is in front of them... Putin fandom. Trump fandom. Putin and Trump fandom.
+
+* “I encounter forms of this attitude every day. The producers who work at the Ostankino channels might all be liberals in their private lives, holiday in Tuscany, and be completely European in their tastes. When I ask how they marry their professional and personal lives, they look at me as if I were a fool and answer: “Over the last twenty years we’ve lived through a communism we never believed in, democracy and defaults and mafia state and oligarchy, and we’ve realized they are illusions, that everything is PR.” “Everything is PR” has become the favorite phrase of the new Russia; my Moscow peers are filled with a sense that they are both cynical and enlightened. When I ask them about Soviet-era dissidents, like my parents, who fought against communism, they dismiss them as naïve dreamers and my own Western attachment to such vague notions as “human rights” and “freedom” as a blunder. “Can’t you see your own governments are just as bad as ours?” they ask me. I try to protest—but they just smile and pity me. To believe in something and stand by it in this world is derided, the **ability to be a shape-shifter celebrated**. Vladimir Nabokov once described a species of butterfly that at an early stage in its development had to learn how to change colors to hide from predators. The butterfly’s predators had long died off, but still it changed its colors from the sheer pleasure of transformation. Something similar has happened to the Russian elites: during the Soviet period they learned to dissimulate in order to survive; now there is no need to constantly change their colors, but they continue to do so out of a sort **of dark joy**, conformism raised to the level of aesthetic act. **Surkov himself is the ultimate expression** of this psychology." ― **year 2014**.  Peter Pomerantsev, Nothing Is True and Everything Is Possible: The Surreal Heart of the New Russia
+
+https://old.reddit.com/r/International/comments/1qu4k2i/joe_rogan_podcast_is_just_the_epstein_client_list/o38l33m/
+
+2 day Reddit account.
+
+https://old.reddit.com/r/International/comments/1qu4k2i/joe_rogan_podcast_is_just_the_epstein_client_list/o383pwd/
+
+https://old.reddit.com/r/International/comments/1qu4k2i/joe_rogan_podcast_is_just_the_epstein_client_list/o383l3a/
+
+"insane".
+
+https://old.reddit.com/r/TwoXChromosomes/comments/1qu9t54/new_study_explains_why_listening_to_joe_rogan/o38sg50/
+
+https://old.reddit.com/r/International/comments/1qu4k2i/joe_rogan_podcast_is_just_the_epstein_client_list/o38ri41/
+
+Joke-washing platform.
+
+https://old.reddit.com/r/TwoXChromosomes/comments/1qu9t54/new_study_explains_why_listening_to_joe_rogan/o38pd7w/
+
+ALL hate for ANY reason is bad. But people want to join teams of hate. Hate vs. hate. Out-group hate.
+
+* February 28, 1954: "Most people can't stand up for their convictions, because the majority of people might not be doing it. See, everybody's not doing it, so it must be wrong. And since everybody is doing it, it must be right. So a sort of numerical interpretation of what's right. But I'm here to say to you this morning that some things are right and some things are wrong. Eternally so, absolutely so. **It's wrong to hate.** It always has been wrong and it always will be wrong. It's wrong in America, it's wrong in Germany, it's wrong in Russia, it's wrong in China. It was wrong in 2000 B.C., and it's wrong in 1954 A.D. It always has been wrong, and it always will be wrong." - Martin Luther King Jr.
+
+* "For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the **true becomes false and the false becomes true**. That's what hate does. You can't see right. **The symbol of objectivity** is lost." - Martin Luther King Jr.
+
+https://old.reddit.com/r/TwoXChromosomes/comments/1qu9t54/new_study_explains_why_listening_to_joe_rogan/o38p9ov/
+
+https://old.reddit.com/r/TwoXChromosomes/comments/1qu9t54/new_study_explains_why_listening_to_joe_rogan/o38ugul/
+
+2 month Reddit account.
+
+https://old.reddit.com/r/TwoXChromosomes/comments/1qu9t54/new_study_explains_why_listening_to_joe_rogan/o38v7c0/
+
+https://old.reddit.com/r/TwoXChromosomes/comments/1qu9t54/new_study_explains_why_listening_to_joe_rogan/o38tgin/
+
+https://old.reddit.com/r/politics/comments/1qu51d6/trump_we_should_take_over_the_voting/o37m7cl/
+
+https://old.reddit.com/r/politics/comments/1qu51d6/trump_we_should_take_over_the_voting/o37x70a/
+
+https://old.reddit.com/r/politics/comments/1qu51d6/trump_we_should_take_over_the_voting/o37mi6y/
+
+2 month Reddit account.
+
+https://old.reddit.com/r/politics/comments/1qu51d6/trump_we_should_take_over_the_voting/o37lm84/
+
+4 month Reddit account.
+
+https://old.reddit.com/r/politics/comments/1qu51d6/trump_we_should_take_over_the_voting/o37l43k/
+
+At what point do We The People, the end-users of Reddit and Bluesky, stop commenting on every single media release of Trump content and turn to Dr. Bandy X Lee and quote her nonfiction public education? Start teaching and educating everyone over age 12! Some topics are far more important that commenting on every little Trump press release, Trump photograph, and statement.
+
+https://old.reddit.com/r/politics/comments/1qu51d6/trump_we_should_take_over_the_voting/o37q0v5/
+
+https://old.reddit.com/r/politics/comments/1qu51d6/trump_we_should_take_over_the_voting/o37o3as/
+
+<img width="1111" height="755" alt="image" src="https://github.com/user-attachments/assets/eb17a008-6120-4d04-9ed9-1f7811d90bcb" />
+
+Chaos is exactly what Putin does! But Reddit users can not turn to nonfiction books and authors and quote anything. Just reaction commenting over and over and over year after year. Note the Reddit account username context.
+
+* "what Putin will do next — that he’s unpredictable and thus dangerous. We’re rendered stunned, spun, and flummoxed by the Kremlin’s weaponization of absurdity and unreality.” - year 2014. September 9, 2014 https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+Social post { https://autistics.life/@RoundSparrow/116003724704241534 https://bsky.app/profile/roundsparrow.bsky.social/post/3mdw26457tc2q }
+
+https://old.reddit.com/r/politics/comments/1qu51d6/trump_we_should_take_over_the_voting/o37olyj/
+
+https://old.reddit.com/r/politics/comments/1qu51d6/trump_we_should_take_over_the_voting/o37vak9/
+
+https://old.reddit.com/r/politics/comments/1qu51d6/trump_we_should_take_over_the_voting/o37samo/
+
+* “You wait for one great shocking occasion, thinking that others, when such a shock comes, will join with you in resisting somehow... But the one great shocking occasion when tens or hundreds of thousands will join with you, ... never comes. If the last and worst act of the whole regime had come immediately after the first and smallest, thousands, yes, millions, would have been sufficiently shocked ... but of course, this isn't the way it happens. In between comes all the hundreds of little steps, some of them imperceptible, each of them preparing you not to be shocked by the next. And one day, too late, your principles, if you were ever sensible of them, all rush in upon you ... and you see that everything - everything - has changed ... Now you live in a world of hate and fear, and the people who hate and fear do not even know it themselves; when everyone is transformed, no one is transformed.”
+― Milton Mayer, They Thought They Were Free: The Germans, 1933-45. Published year 1955.
+
+https://old.reddit.com/r/politics/comments/1qu51d6/trump_we_should_take_over_the_voting/o37obm6/
+
+Trump fandom loves the constant stimulation of smartphones that Trump provides. Content creator Trump.
+
+https://old.reddit.com/r/movies/comments/1qu8yoh/project_netflix_magas_plan_to_sandbag_warner_bros/o38n5u1/
+
+New Reddit account, 5 hours old.
+
+https://old.reddit.com/r/movies/comments/1qu8yoh/project_netflix_magas_plan_to_sandbag_warner_bros/o38hje0/
+
+https://old.reddit.com/r/movies/comments/1qu8yoh/project_netflix_magas_plan_to_sandbag_warner_bros/o38rkko/
+
+Woke to what? Media systems understanding, 1924 Finnegans Wake "Woke" book.
+
+https://old.reddit.com/r/movies/comments/1qu8yoh/project_netflix_magas_plan_to_sandbag_warner_bros/o38jpn2/
+
+5 Day Reddit Account.
+
+https://old.reddit.com/r/movies/comments/1qu8yoh/project_netflix_magas_plan_to_sandbag_warner_bros/o38gqbi/
+
+4 month Reddit account.
+
+https://old.reddit.com/r/movies/comments/1qu8yoh/project_netflix_magas_plan_to_sandbag_warner_bros/o38imx6/
+
+https://old.reddit.com/r/movies/comments/1qu8yoh/project_netflix_magas_plan_to_sandbag_warner_bros/o38fz60/
+
+Laugh track for social media audience, Reddit laugh track. "Hilarious" that people are following Putin's agenda and lost hearts and minds to Russia. "mental illness" - Neil Postman described it about media ecology, Netflix, in year 1985 "Amusing Ourselves To Death", "Brave New World".
+
+https://old.reddit.com/r/movies/comments/1qu8yoh/project_netflix_magas_plan_to_sandbag_warner_bros/o38toeh/
+
+https://old.reddit.com/r/movies/comments/1qu8yoh/project_netflix_magas_plan_to_sandbag_warner_bros/o38s9mm/
+
+No off-Reddit URL.
+
+https://old.reddit.com/r/movies/comments/1qu8yoh/project_netflix_magas_plan_to_sandbag_warner_bros/o38wi2y/
+
+6 month Reddit account.
+
+https://old.reddit.com/r/movies/comments/1qu8yoh/project_netflix_magas_plan_to_sandbag_warner_bros/o38kcds/
+
+Twitter is where ever media person converged, sports stars, etc.
+
+https://old.reddit.com/r/movies/comments/1qu8yoh/project_netflix_magas_plan_to_sandbag_warner_bros/o394nb8/
+
+https://old.reddit.com/r/stupidpeoplefacebook/comments/1qu76gb/brainwashed_lunatics/o381rpd/
+
+10 month Reddit account "brainwashed". top most-popular upvoted comment. No mention of Jen Senko or any concern to rescue the brainwashed population.
+
+https://old.reddit.com/r/stupidpeoplefacebook/comments/1qu76gb/brainwashed_lunatics/o381tfs/
+
+https://old.reddit.com/r/stupidpeoplefacebook/comments/1qu76gb/brainwashed_lunatics/o382nba/
+
+My Tyson fandom wants more ICE style violence against people who disagree.
+
+https://old.reddit.com/r/stupidpeoplefacebook/comments/1qu76gb/brainwashed_lunatics/o3837mx/
+
+The pro mockery group loves engaging others in mock for mock, total mockery nation. People follow the leadership of Donald Trump in his Tony Clifton acting mockery.
+
+https://old.reddit.com/r/stupidpeoplefacebook/comments/1qu76gb/brainwashed_lunatics/o382d9x/
+
+https://old.reddit.com/r/stupidpeoplefacebook/comments/1qu76gb/brainwashed_lunatics/o3837w7/
+
+https://old.reddit.com/r/stupidpeoplefacebook/comments/1qu76gb/brainwashed_lunatics/o383fqg/
+
+https://old.reddit.com/r/stupidpeoplefacebook/comments/1qu76gb/brainwashed_lunatics/o384lcm/
+
+https://old.reddit.com/r/stupidpeoplefacebook/comments/1qu76gb/brainwashed_lunatics/o382lx8/
+
+4 month Reddit account.
+
+https://old.reddit.com/r/stupidpeoplefacebook/comments/1qu76gb/brainwashed_lunatics/o38659n/
+
+Gun worship, gun cults.
+
+https://old.reddit.com/r/stupidpeoplefacebook/comments/1qu76gb/brainwashed_lunatics/o382mga/
+
+"Brainwashed", "Lunatics" (posting title)... alternate realities. Instead of promoting Dr. Bandy X Lee's leadership on mental health serious nonfiction, people are thrilled to join in mocking away day in and day out with spare time and free time on Reddit social commenting section.
+
+https://old.reddit.com/r/JusticeServed/comments/1qu9xm4/comedian_who_mocked_renee_good_days_after_her/o39chfi/
+
+Jokes about the suffering of out-group. Putin and Trump's means to power. Joking about suffering and destruction.
+
+https://old.reddit.com/r/JusticeServed/comments/1qu9xm4/comedian_who_mocked_renee_good_days_after_her/o39c77o/
+
+Many Charlie Kirk media cultists on Reddit. Hate fandom is incredibly strong. Charlie Kirk lead audiences with hate and Reddit audiences flock to hate leaderships and add as much has as they can. Hate followers. Hate-based mob mentality. Hate motivated media engagement. https://en.wikipedia.org/wiki/Hate-watching
+
+https://old.reddit.com/r/JusticeServed/comments/1qu9xm4/comedian_who_mocked_renee_good_days_after_her/o39apq9/
+
+Killing women, killing girls, anti-Malala values. Women are bad if ugly, etc.
+
+https://old.reddit.com/r/JusticeServed/comments/1qu9xm4/comedian_who_mocked_renee_good_days_after_her/o399c95/
+
+Yes. this "Justice Served!" Reddit framing is simulacra of resistance. People spending free time and spare time declaring they have won. Instead of organizing serious focus on Dr. Bandy X Lee's public teachings about mental health crisis around Trump and MAGA.
+
+https://old.reddit.com/r/JusticeServed/comments/1qu9xm4/comedian_who_mocked_renee_good_days_after_her/o396lki/
+
+https://old.reddit.com/r/JusticeServed/comments/1qu9xm4/comedian_who_mocked_renee_good_days_after_her/o3941gj/
+
+Comedy of SNL NYC President Donald Trump playing Tony Clifton. People allow ANYTHING if you humor-wrap it for Reddit audiences and fandoms of Trump-Surkov comedy leadership. Neil Postman was correct in year 1985. SNL NYC NYU Manhattan Professor.
+
+* "For all his perspicacity, George Orwell would have been stymied by this situation; there is nothing “Orwellian” about it. The President does not have the press under his thumb. The New York Times and The Washington Post are not Pravda; the Associated Press is not Tass. And there is no Newspeak here. Lies have not been defined as truth nor truth as lies. **All that has happened is that the public has adjusted to incoherence and been amused** into indifference. Which is why Aldous Huxley would not in the least be surprised by the story. Indeed, he prophesied its coming. He believed that it is far more likely that the Western democracies will dance and dream themselves into oblivion than march into it, single file and manacled. Huxley grasped, as Orwell did not, that it is not necessary to conceal anything from a public insensible to contradiction and narcoticized by technological diversions. Although Huxley did not specify that television would be our main line to the drug, he would have no difficulty accepting Robert MacNeil’s observation that “Television is the soma of Aldous Huxley’s Brave New World.” Big Brother turns out to be Howdy Doody."
+― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, **year 1985**, page 111
+
+* Howdy Doody is an American children's television program (with circus and Western frontier themes) that was created and produced by Victor F. Campbell and E. Roger Muir. It was broadcast on the NBC television network in the United States from December 27, 1947, until September 24, 1960." https://en.wikipedia.org/wiki/Howdy_Doody
+
+https://old.reddit.com/r/countwithchickenlady/comments/1qu46ru/33793/o37f4qf/
+
+https://old.reddit.com/r/countwithchickenlady/comments/1qu46ru/33793/o37gcga/
+
+Wild New Years Eve, join Reddit.
+
+https://old.reddit.com/r/countwithchickenlady/comments/1qu46ru/33793/o37il16/
+
+https://old.reddit.com/r/countwithchickenlady/comments/1qu46ru/33793/o37qgi7/
+
+https://old.reddit.com/r/countwithchickenlady/comments/1qu46ru/33793/o37s18k/
+
+https://old.reddit.com/r/countwithchickenlady/comments/1qu46ru/33793/o37i5mt/
+
+8 month Reddit account.

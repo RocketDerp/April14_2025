@@ -1,6 +1,6 @@
 # PostMalala: Adult Education
 
-Malala the Child got Josseph Campbell's criticism of Levant faiths on the world stage. Carl Sagan's techings.
+Malala the Child got Joseph Campbell's criticism of Levant faiths on the world stage. Carl Sagan's teachings.
 
 Metaphor to Metaphor translation:     
 Age 14, "You Get What You Give", New Radicals     
@@ -51,12 +51,32 @@ The Entertainment Media / The Amusement TikTok media
 
 The Reality TV Media, THE MEDIA. Neil Postamn's "The Medium" focus.
 
-Reddit will LOL wash tis problem, amusement-wash on the Reddit meme mill. As egoism to LOL at "dumb women" and not face up that Russia is waging a war against reality itself, a war against the facts of the USA nation (not Russia) landing on the moon in year 1969. People on Reddit community (The Media of Reddit) are not calling to Rescue Kim, it is instead an entertainment to mock and insult Kim and insult TikTok while Reddit is infiltrated by the IRA since year 2013. Surkov won and Reddit end-users can't name Surkov or IRA. The point Reddit can not face: Adults get their educate from Reddit and Tik Tok. Kim just had a birthday: age 45 years. October 21, 1980. She doesn't have dementia like age 79 Trump, she isn't a diaper wearing old man - she is age 45. And Reddit community will not face up that AGE FOURTY-FIVE ADULT is learning not from retangle clasrooms and "fund education", but from Tik Tok. Fox News, Reddit. That is where ADULTS LEARN. Radio Mullah F.M. https://www.lhschools.org/Downloads/Malala%2038-65.pdf - the FICTION Entertainment Media, Tik Tok and Reddit.
+Reddit will LOL-wash this problem, amusement-wash on the Reddit meme mill. As egoism to LOL at "dumb women" and not face up that Russia is waging a war against reality itself, a war against the facts of the USA nation (not Russia) landing on the moon in year 1969. People on Reddit community (The Media of Reddit) are not calling to Rescue Kim, it is instead an entertainment to mock and insult Kim and insult TikTok while Reddit is infiltrated by the IRA since year 2013. Surkov won and Reddit end-users can't name Surkov or IRA. The point Reddit can not face: Adults get their educate from Reddit and TikTok. Kim just had a birthday: age 45 years. October 21, 1980. She doesn't have dementia like age 79 Trump, she isn't a diaper wearing old man - she is age 45. And Reddit community will not face up that AGE FORTY-FIVE ADULT is learning not from rectangle classrooms and "fund education", but from TikTok. Fox News, Reddit. That is where ADULTS LEARN. Radio Mullah F.M. https://www.lhschools.org/Downloads/Malala%2038-65.pdf - the FICTION Entertainment Media, TikTok and Reddit.
 
-This is where adults learn. Kim, celebety. Entertainers. Amusers. “Americans no longer talk to each other, they entertain each other. They do not exchange ideas, they exchange images. They do not argue with propositions; they argue with good looks, celebrities and commercials.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. 1985
+This is where adults learn. Kim, celebrity. Entertainers. Amusers. “Americans no longer talk to each other, they entertain each other. They do not exchange ideas, they exchange images. They do not argue with propositions; they argue with good looks, celebrities and commercials.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. 1985
 
 "Kim Kardashian Says Moon Landing Was Faked — Says ‘Go to TikTok’ for Proof"    
 https://old.reddit.com/r/nottheonion/comments/1ok46ra/kim_kardashian_says_moon_landing_was_faked_says/
 
 Repeating Repeat Reaper I do: “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.” ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. October 8, 2013.
 
+&nbsp;
+
+&nbsp;
+
+Social Posts 
+
+https://bsky.app/profile/roundsparrow.bsky.social/post/3mdxjbfjfbk25   
+https://autistics.life/@RoundSparrow/116007042042916386  
+
+&nbsp;
+
+When Malala came on the world stage (her January 2009 WWW blogging fame, shot on school bus 2012, book tour in 2013)... all the #pedophilia and #school #education concerned people had an articulate intelligent leader to follow. 
+
+But people #Trump #Epstein promotion instead.
+
+With leaders like #Musk #Trump #Epstein #Putin #Murdoch men... what you get is people who are hyper-competitive with education and school. People who call others { Moron, Idiot, Dumb, Stupid, Retarded, Libtards } over and over every day. Only concerned about competing to put other people into poverty. Arrogant competing braggards.
+
+Men who want to watch women suffer and want people to fail because name-brand university and education is scarce and rare. [Epstein had his hand in repetitive mindless gun-murdering video game, Call of Duty gaming](https://old.reddit.com/r/nottheonion/comments/1qunaw6/jeffrey_epstein_reportedly_had_a_major_hand_in/), to turn children into anti-education gun worshipers.
+
+Since June 2015, entire generations of boys and girls raised in the USA have been given Donald Trump and Epstein as role models of leadership. Parents made #TrumpRoleModel of abuse, hate, Putin worship.  Instead of promoting #DrBandyXLee to the center of internet attention, we got #Trump parenting.
