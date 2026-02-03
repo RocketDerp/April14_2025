@@ -1548,7 +1548,9 @@ Top-upvoted comment. Trump fans on Reddit cheering on that more pro-Trump conten
 
 https://old.reddit.com/r/Music/comments/1quy2hk/sinclair_to_air_kid_rocks_halftime_show_against/o3dor52/
 
-Yes. I remember. Just as I remember rectangle sports fields are simple patterns for audiences to follow. And that football causes brain damage. How armies of medical doctors support very well paid men to run around inside a rectangle while audience members are controlled by billionaire mental manipulators Paul Allen an Jody Allen - who I worked for at age 27 before I fully realized what they were doing to their customers, their "end-users" of software (being "used"), sports teams, private fleet of jets and cruise ships, DreamWorks film production, music production, Jimi Hendrix museum, etc. And how loyal audiences are to owners of entertainers.
+<img width="1087" height="476" alt="image" src="https://github.com/user-attachments/assets/bfaf43c3-7fc7-4990-baa5-31b110df8ff5" />
+
+Yes. I remember. Just as I remember rectangle sports fields are simple patterns for audiences to follow. And that contact football causes brain damage. How armies of medical doctors support very well paid men to run around inside a rectangle while audience members are controlled by billionaire mental manipulators Paul Allen an Jody Allen - who I worked for at age 27 before I fully realized what they were doing to their customers, their "end-users" of software (being "used"), sports teams, private fleet of jets and cruise ships, DreamWorks film production, music production, Jimi Hendrix museum, etc. And how loyal audiences are to owners of entertainers.
 
 I didn't fully grasp the global significance of my first-hand experience in Bellevue Washington year 1996 to 1999 until year 2008 Austin SXSW and by late 2009 when I predicted the Arab Spring Internet revolution in Africa. Even though I had watched the Power of Myth TV series in 1988 after graduating high school, I didn't realize what I had experienced until year 2009. How sports team owners and media systems of ESPN were being used to manipulate people into predictable thinking patterns towards billionaires. 
 
@@ -1560,5 +1562,7 @@ media, entertainment, and technology companies" https://www.sportsbusinessjourna
 ahead and run like hell. ... This is cable TV in 1980."  BUSINESS
 WEEK notes "perhaps Allen's eclectic grab bag of entertainment
 properties **will never really make sense to outsiders**."
+* * That $8 billion in 1996 doubled to $17 billion in 1997. In 1997, Allen purchased the Seattle Seahawks NFL team for $194 million to prevent the team from moving. https://www.latimes.com/archives/la-xpm-1997-sep-29-fi-37381-story.html - I was there, 8 or 10 doors down the hallway ion 1997, 1998, 1999 running the social media systems. Billionaires don't just double their wealth in a single year every day. What a high-profile pot of gold I had to secure and watch.
 
-Didn't make sense to me until I started revising Marshall McLuhan's 1968 book in year 2009. https://en.wikipedia.org/wiki/War_and_Peace_in_the_Global_Village and Bill Moyer's interview book from 1988. 
+Didn't make deep sense to me until a decade later... I started revising Marshall McLuhan's 1968 book in year 2009. https://en.wikipedia.org/wiki/War_and_Peace_in_the_Global_Village and Bill Moyer's interview book from 1988. Rectangle Portland Trailblazers court, rectangle Seattle Seahawks court and mindset audience programming of square-wave block-head logic patterns of billionaires. Inside the rectangle thinking. Steve Blamer caught on to Paul Allen's games.
+
