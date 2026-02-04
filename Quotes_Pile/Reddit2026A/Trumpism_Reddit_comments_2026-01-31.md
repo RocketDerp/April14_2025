@@ -1805,3 +1805,22 @@ https://old.reddit.com/r/MurderedByWords/comments/1qv67y0/they_really_could_have
 
 https://old.reddit.com/r/MurderedByWords/comments/1qv67y0/they_really_could_have_come_up_with_a_better/o3fl1k6/
 
+https://old.reddit.com/r/politics/comments/1qvmvsv/mike_johnson_just_tried_to_correct_the_pope_on/o3imitb/
+
+If I live longer, I may analyze these comments.
+
+https://old.reddit.com/r/politics/comments/1qvmvsv/mike_johnson_just_tried_to_correct_the_pope_on/o3ipdue/
+
+https://old.reddit.com/r/politics/comments/1qvmvsv/mike_johnson_just_tried_to_correct_the_pope_on/o3imvxv/
+
+https://old.reddit.com/r/politics/comments/1qvmvsv/mike_johnson_just_tried_to_correct_the_pope_on/o3io9lu/
+
+See the reply about laughing in the face, the thrill Reddit audience has with MAGA for a source of humor. People don't want to solve the problem, they want a source of comedy out of Trump and Putin.
+
+https://old.reddit.com/r/politics/comments/1qvmvsv/mike_johnson_just_tried_to_correct_the_pope_on/o3io32f/
+
+https://old.reddit.com/r/politics/comments/1qvmvsv/mike_johnson_just_tried_to_correct_the_pope_on/o3iocj5/
+
+https://old.reddit.com/r/politics/comments/1qvmvsv/mike_johnson_just_tried_to_correct_the_pope_on/o3intyq/
+
+Belief in what, science fiction Bible belief? Who is the baby-daddy of Jesus, magical outer-space aliens?
