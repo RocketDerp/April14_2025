@@ -1824,3 +1824,17 @@ https://old.reddit.com/r/politics/comments/1qvmvsv/mike_johnson_just_tried_to_co
 https://old.reddit.com/r/politics/comments/1qvmvsv/mike_johnson_just_tried_to_correct_the_pope_on/o3intyq/
 
 Belief in what, science fiction Bible belief? Who is the baby-daddy of Jesus, magical outer-space aliens?
+
+https://old.reddit.com/r/AskReddit/comments/1qvnanc/why_did_republicans_subpoena_the_clintons_over/o3irpoh/
+
+https://old.reddit.com/r/AskReddit/comments/1qvnanc/why_did_republicans_subpoena_the_clintons_over/o3ir17c/
+
+1 month Reddit account.
+
+https://old.reddit.com/r/AskReddit/comments/1qvnanc/why_did_republicans_subpoena_the_clintons_over/o3irxf0/
+
+Reddit fandoms.
+
+https://old.reddit.com/r/AskReddit/comments/1qvnanc/why_did_republicans_subpoena_the_clintons_over/o3iry5c/
+
+But not the Reddit audience. The sickos are ONLY on the stage in Reddit gaze. Not a world wide problem of 8 billion people. Iran, Afghanistan, Pakistan - other examples are never enough to fixate on EVERYONE in the world instead of just status symbols.
