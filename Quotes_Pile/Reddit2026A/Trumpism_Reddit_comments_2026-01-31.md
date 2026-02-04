@@ -1744,3 +1744,29 @@ https://old.reddit.com/r/politics/comments/1qv5ch2/house_speaker_welcomes_trump_
 
 * “Everything in our background has prepared us to know and resist a prison when the gates begin to close around us . . . But what if there are no cries of anguish to be heard? Who is prepared to take arms against a sea of amusements? To whom do we complain, and when, and in what tone of voice, when serious discourse dissolves into giggles? What is the antidote to a culture's being drained by laughter?”
 ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. Year 1985.
+
+https://old.reddit.com/r/politics/comments/1qv5ch2/house_speaker_welcomes_trump_call_to_take_over/o3f6em0/
+
+Is there a limit to the reaction commenting on Reddit? Do people ever get enough reactionary patterns in the mind? Dr. Bandy X Lee has been there since year 2017 to quote for educating the public, but Reddit audience doesn't want to address Trump and MAGA mental health issues with intelligent women leaders.
+
+https://old.reddit.com/r/politics/comments/1qv5ch2/house_speaker_welcomes_trump_call_to_take_over/o3f3i89/
+
+2 word lowest-effort commenting from the fandom of politics shows.
+
+https://old.reddit.com/r/politics/comments/1qv5ch2/house_speaker_welcomes_trump_call_to_take_over/o3f6ck9/
+
+https://old.reddit.com/r/politics/comments/1qv5ch2/house_speaker_welcomes_trump_call_to_take_over/o3f39sc/
+
+Such a feedback loop of mocking. Over and over, day after day, high-speed media mockery.
+
+https://old.reddit.com/r/politics/comments/1qv5ch2/house_speaker_welcomes_trump_call_to_take_over/o3f4g76/
+
+https://old.reddit.com/r/politics/comments/1qv5ch2/house_speaker_welcomes_trump_call_to_take_over/o3fciq1/
+
+https://old.reddit.com/r/politics/comments/1qv5ch2/house_speaker_welcomes_trump_call_to_take_over/o3f5rd0/
+
+Reddit audience waits for every MAGA entertainment to drop to comment upon.
+
+https://old.reddit.com/r/politics/comments/1qv5ch2/house_speaker_welcomes_trump_call_to_take_over/o3f68pb/
+
+Look at the Reddit fandom of hate-watching. Fiction pleases audiences.
