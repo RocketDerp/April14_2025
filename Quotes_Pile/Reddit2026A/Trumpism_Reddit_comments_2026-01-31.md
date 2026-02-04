@@ -1974,3 +1974,9 @@ https://old.reddit.com/r/clevercomebacks/comments/1qvo3xb/if_you_know_you_know/o
 THERE IS AN ANSWER! The Great Seal of the United States of America teaching and revival!
 
 OPERA_A Flip to the Eagle. Fly to the Nile river pyramid. "Kayley Bishop - "Fly Like An Eagle" by Steve Miller" https://www.youtube.com/watch?v=OVwqdArFDc0 2,832 views May 16, 2022 - Ready Player ALP, fly to the sea from the rivers of Dublin!
+
+https://old.reddit.com/r/clevercomebacks/comments/1qvo3xb/if_you_know_you_know/o3iz0s1/
+
+https://old.reddit.com/r/clevercomebacks/comments/1qvo3xb/if_you_know_you_know/o3j0hyp/
+
+If only FAQ and Wiki systems could be used on Reddit. but we have Trump in power because Reddit social is anti-Wiki anti-FAQ in favor of low-effort commenting interactive gaming. ARG abounds.
