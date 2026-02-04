@@ -2076,3 +2076,7 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1qvuc10/trump_wins/o3khcp9/
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1qvuc10/trump_wins/o3kazxv/
 
 QAnon amplified by Putin. SEE_ALSO: https://old.reddit.com/r/QAnonRussia/ and how Reddit society can't escape pre-programmed reactionary mindsets and see how Putin organized QAnon promotion and exploitation of USA minds using Reddit meme platform.
+
+https://old.reddit.com/r/atheism/comments/1qvqifj/kid_rocks_song_about_loving_underage_girls/o3jfifp/
+
+He programmed the music. The music cartels programmed the distribution to audiences. Programming minds via monomyth media patterns. 
