@@ -1838,3 +1838,13 @@ Reddit fandoms.
 https://old.reddit.com/r/AskReddit/comments/1qvnanc/why_did_republicans_subpoena_the_clintons_over/o3iry5c/
 
 But not the Reddit audience. The sickos are ONLY on the stage in Reddit gaze. Not a world wide problem of 8 billion people. Iran, Afghanistan, Pakistan - other examples are never enough to fixate on EVERYONE in the world instead of just status symbols.
+
+https://old.reddit.com/r/ThatsInsane/comments/1qvdx1s/why_is_doj_redacting_the_sender_of_an/o3h14ye/
+
+https://old.reddit.com/r/ThatsInsane/comments/1qvdx1s/why_is_doj_redacting_the_sender_of_an/o3gxxi8/
+
+https://old.reddit.com/r/ThatsInsane/comments/1qvdx1s/why_is_doj_redacting_the_sender_of_an/o3gyiz7/
+
+https://old.reddit.com/r/ThatsInsane/comments/1qvdx1s/why_is_doj_redacting_the_sender_of_an/o3h7cic/
+
+https://old.reddit.com/r/ThatsInsane/comments/1qvdx1s/why_is_doj_redacting_the_sender_of_an/o3h0h3l/
