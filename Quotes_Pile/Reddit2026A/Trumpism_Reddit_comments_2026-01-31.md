@@ -1718,3 +1718,12 @@ https://old.reddit.com/r/Fauxmoi/comments/1qv7brt/trump_attacks_kaitlan_collins_
 
 9 month Reddit account. 3 words of the most obvious fandom commenting. Wow, Tony Clifton character is so vile. Darth Vader character is so vile. How about we STOP making Reality TV and entertainment the leadership method of society!!
 
+https://old.reddit.com/r/Fauxmoi/comments/1qv7brt/trump_attacks_kaitlan_collins_for_asking_about/o3fja39/
+
+Trump fandom asks about the performance details.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qv7brt/trump_attacks_kaitlan_collins_for_asking_about/o3fkd9t/
+
+<img width="1923" height="935" alt="image" src="https://github.com/user-attachments/assets/a59233b5-a8d1-458d-8ce8-1dda2798b0cd" />
+
+People encourage it because television video is entertainment! Trump is an actor entertaining a population! Hate-watching TV is a real measurable audience.
