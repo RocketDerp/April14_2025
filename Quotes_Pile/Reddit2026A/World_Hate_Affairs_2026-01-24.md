@@ -761,3 +761,8 @@ Yes! Put into Best Of with some half-awake commentary.
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mdzt3yublk2o https://autistics.life/@RoundSparrow/116012237238927347 }
 
 OPERA_A https://www.youtube.com/watch?v=jrGmcuj44DQ Overkill mockery faiths. 6,241,228 views June 7, 2008 Day after Day Trump mockery reappears. Symbolism ghosts in mass mind appear and disappear. Spell the desperation. The "cooked", cooking brains on media machines.
+
+https://old.reddit.com/r/worldnews/comments/1qvj4u1/investigating_child_sex_abuse_isnt_controversial/o3i9ro7/
+
+People circle their wagon for fiction actors in a screenplay they love. Like fiction magical baby-daddy birth of Jesus. Trump and Musk provide fiction addiction home delivery for USA society.
+
