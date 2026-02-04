@@ -2091,3 +2091,44 @@ https://old.reddit.com/r/atheism/comments/1qvqifj/kid_rocks_song_about_loving_un
 
 Jesus mother is impregnated by an outer-space Daddy without permission. Bamboozled.
 
+https://old.reddit.com/r/atheism/comments/1qvqifj/kid_rocks_song_about_loving_underage_girls/o3jha5y/
+
+https://old.reddit.com/r/atheism/comments/1qvqifj/kid_rocks_song_about_loving_underage_girls/o3jfxwv/
+
+https://old.reddit.com/r/atheism/comments/1qvqifj/kid_rocks_song_about_loving_underage_girls/o3ji2ul/
+
+https://old.reddit.com/r/atheism/comments/1qvqifj/kid_rocks_song_about_loving_underage_girls/o3jhgya/
+
+https://old.reddit.com/r/atheism/comments/1qvqifj/kid_rocks_song_about_loving_underage_girls/o3jhbjb/
+
+https://old.reddit.com/r/atheism/comments/1qvqifj/kid_rocks_song_about_loving_underage_girls/o3jig1y/
+
+https://old.reddit.com/r/atheism/comments/1qvqifj/kid_rocks_song_about_loving_underage_girls/o3jhkc9/
+
+Levant traditional values.
+
+https://old.reddit.com/r/atheism/comments/1qvqifj/kid_rocks_song_about_loving_underage_girls/o3jk3de/
+
+https://old.reddit.com/r/atheism/comments/1qvqifj/kid_rocks_song_about_loving_underage_girls/o3jkebi/
+
+https://old.reddit.com/r/atheism/comments/1qvqifj/kid_rocks_song_about_loving_underage_girls/o3jl71n/
+
+Amused Reddit fandom of Trumpism. Neil Postman was correct in his 1985 nonfiction book about Reddit end-user behaviors.
+
+https://old.reddit.com/r/atheism/comments/1qvqifj/kid_rocks_song_about_loving_underage_girls/o3k7ee1/
+
+https://old.reddit.com/r/atheism/comments/1qvqifj/kid_rocks_song_about_loving_underage_girls/o3jioud/
+
+https://old.reddit.com/r/atheism/comments/1qvqifj/kid_rocks_song_about_loving_underage_girls/o3jlvya/
+
+https://old.reddit.com/r/atheism/comments/1qvqifj/kid_rocks_song_about_loving_underage_girls/o3jo9q5/
+
+https://old.reddit.com/r/atheism/comments/1qvqifj/kid_rocks_song_about_loving_underage_girls/o3jtq5y/
+
+https://old.reddit.com/r/atheism/comments/1qvqifj/kid_rocks_song_about_loving_underage_girls/o3juoe6/
+
+https://old.reddit.com/r/atheism/comments/1qvqifj/kid_rocks_song_about_loving_underage_girls/o3jn22u/
+
+https://old.reddit.com/r/atheism/comments/1qvqifj/kid_rocks_song_about_loving_underage_girls/o3k0cl6/
+
+Reddit is fandom. Pleading for more trickle down wealth content creators.
