@@ -739,3 +739,7 @@ Is this low-effort commenting on Reddit? Is this a way to get social media engag
 https://old.reddit.com/r/PublicFreakout/comments/1quy8rr/murphy_a_uae_investor_secretly_gave_trump_187/o3dqhh4/
 
 Right vs left brain rot. Fiction vs. nonfiction is a more critical and urgent crisis. Trump is an entertainer and fiction storyteller that has a massive USA fandom, including Reddit fanatics for Trump hate leadership content.
+
+https://old.reddit.com/r/worldnews/comments/1qvj4u1/investigating_child_sex_abuse_isnt_controversial/o3hyf3c/
+
+Political theater I've been calling "Information Strip Tease", the whole game of dropping "Q" drops of information an teasing who is in the secret files.
