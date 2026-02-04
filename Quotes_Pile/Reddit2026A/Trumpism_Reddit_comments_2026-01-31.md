@@ -1900,3 +1900,7 @@ Sport-thinking, sports mentality, rectangle square-wave field-programmable logic
 https://old.reddit.com/r/news/comments/1qvqiuf/kid_rocks_song_about_loving_underage_girls/o3jfeax/
 
 yes. But the lyrics are not what's important, reading between the linens. The AUDIENCE flocking of Reddit is what this is all about. Surkov student screenplays for Bluesky and Reddit. Conditioned opposition, simulation of resistance. Surkov monomyth patterns of predictable Reddit behaviors of meme consumers.
+
+This Reddit comment is like the ever-popular: They don't read the Bible! commenting. Yha, they read the CULT behavior and how to wave around the symbolism. The ritual rock.
+
+OPERA_A Long Live Kid Rock, Ghost or Alive! ;) The Players took the field... but the marching band refused to yield. ODDS AND SODS cover of NFL football (American football) for a UK band! https://www.youtube.com/watch?v=6g4v3zaiIII Long Live EMP out of Bellevue, Jimi Hendrix Experience! 
