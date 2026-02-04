@@ -2046,3 +2046,12 @@ Everything is Media Ecology. https://github.com/RocketDerp/April14_2025/blob/mai
 https://old.reddit.com/r/Fauxmoi/comments/1qvursh/finneas_responds_to_a_usa_today_piece_calling/o3kdjon/
 
 Front page of Reddit as fast as possible this story made. It is hate-content for the Reddit fandom of hate leadership. Mass dehumanization tech lovers on Reddit flock to this post.
+
+https://old.reddit.com/r/popculturechat/comments/1qvq8yk/woody_allens_wife_soonyi_previn_emails_jeffrey/o3jekfn/
+
+Reddit is for Epstein fandom in 2026, to upvoted fan comment.
+
+https://old.reddit.com/r/popculturechat/comments/1qvq8yk/woody_allens_wife_soonyi_previn_emails_jeffrey/o3jcloh/
+
+Yha, because Dr. Bandy X Lee's books on mental health of the nation... are avoided on Reddit. People don't want to educate and teach how to prevent this from happening, people want to consume billionaire originated content.
+
