@@ -1884,3 +1884,8 @@ Fandom of horror media. Horror films have a very loyal fandom, no matter how ter
 https://old.reddit.com/r/Fauxmoi/comments/1qvo7gv/jelly_roll_pictured_with_president_trump_donald/o3ixjo7/
 
 The hate-watching audience of { MAGA, ICE, Trump, Jelly Roll, Musk } on Reddit. Fandom of hate. "The act of hate-watching is premised on the audience engaging with media through a satirical lens." https://en.wikipedia.org/wiki/Hate-watching Like Horror show fandoms.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qvo7gv/jelly_roll_pictured_with_president_trump_donald/o3iz1tt/
+
+Hate-watching of their own children. The same kind of hate prizing of Reddit tech-love cloud compute love users. Reddit Social is Fandom of Hate Culture. "The act of hate-watching is premised on the audience engaging with media through a satirical lens." https://en.wikipedia.org/wiki/Hate-watching Like Horror show fandoms.
+
