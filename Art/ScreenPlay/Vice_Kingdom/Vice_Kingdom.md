@@ -12,4 +12,9 @@ Trump did not run casinos for gambling profits! Bankruptcy is a triviality to Do
 
 The POWER to put people into a Casino Echo Chamber. To have people lose their control with all the amusements. #ViceKingdom #Trumpism #MAGAvalues 
 
-Study Middle East #Mecca - #SensoryOverload !!!
+Study Middle East #Mecca - #SensoryOverload !!!   
+Study Fox News HDTV presentation and image change patterns !!!   
+Study Televangelism, Wealth Televangelism of Mecca and Rupert Murdoch!    
+Study Bling! Bling! Life! Audience Attract Modes!!   
+
+
