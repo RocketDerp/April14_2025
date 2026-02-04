@@ -749,3 +749,7 @@ OPERA_A They have a billion-dollar bounty on someone who understands the simulac
 https://old.reddit.com/r/videos/comments/1qv50nm/rep_lieu_says_epstein_files_have_allegations_of/o3f810s/
 
 PizzaGate was a Kremlin-manipulated QAnon simulation. EVIDENCE: https://www.independent.co.uk/news/world/americas/us-election-2020/qanon-russia-conspiracy-theory-trump-2020-election-b1536946.html
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qvpjas/well_that_answers_that/o3j96db/
+
+Front page of Reddit. Top-voted comment. Nothing at all is being "resisted' here. There is no sense of abnormality in USA society, no sense of urgency, no sense of alarm bells ringing. AVOIDED: Dr. Bandy X Lee's education for the general population, for the public... for the nation. On mental health. Spare time and free time of USA society is discussing Twitter Elon Musk platform message screenshots on Reddit.
