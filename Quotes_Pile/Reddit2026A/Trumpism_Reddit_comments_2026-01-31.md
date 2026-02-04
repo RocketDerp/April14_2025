@@ -1791,3 +1791,17 @@ https://old.reddit.com/r/MurderedByWords/comments/1qv67y0/they_really_could_have
 
 Pro-measles, pro-disease RFK Jr USA. Russia won. August 24, 2018 never forget: https://www.bbc.com/news/world-us-canada-45294192 This is not a "murder by words" win for Reddit, this is a win for Putin. The IRA words crushed USA and NATO relationships.
 
+https://old.reddit.com/r/MurderedByWords/comments/1qv67y0/they_really_could_have_come_up_with_a_better/o3fbt2e/
+
+Mocking. No social media engagement has ever been more powerful than mockery. It is impossible to defeat. NATO lost.
+
+"Social media companies are struggling to find ways to combat disinformation on their platforms." - Russia won. August 24, 2018 never forget: https://www.bbc.com/news/world-us-canada-45294192 This is not a "murder by words" win for Reddit, this is a win for Putin. The IRA words crushed USA and NATO relationships.
+
+https://old.reddit.com/r/MurderedByWords/comments/1qv67y0/they_really_could_have_come_up_with_a_better/o3fc4rl/
+
+I bet Neil Postman wrote a book about Reddit audience behaviors in year 1985.
+
+https://old.reddit.com/r/MurderedByWords/comments/1qv67y0/they_really_could_have_come_up_with_a_better/o3fldj2/
+
+https://old.reddit.com/r/MurderedByWords/comments/1qv67y0/they_really_could_have_come_up_with_a_better/o3fl1k6/
+
