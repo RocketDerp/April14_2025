@@ -1934,3 +1934,8 @@ Trump fandom on Reddit social crying out for more MAGA performances to hate-watc
 https://old.reddit.com/r/news/comments/1qvqiuf/kid_rocks_song_about_loving_underage_girls/o3jgtk0/
 
 Everything is M.E. - Everything is P.R. - Everything is Marshall McLuhan and Neil Postman media ecology self-awareness! SEE_ALSO https://GitHub.com/RocketDerp/April14_2025/blob/working/Media_Ecology/Everything_is_ME.md 
+
+https://old.reddit.com/r/news/comments/1qvqiuf/kid_rocks_song_about_loving_underage_girls/o3jgnot/
+
+This is ACTUALLY WHY Reddit is a fandom to MAGA and Trump: Hate-watching. "Driven by the rise of streaming platforms and social media, hate-watching is rooted in a set of psychological and social motivations and cannot entirely prevent excesses despite its harmless origin." - thrill of watching others self-harm on high-speed electric media systems. 
+
