@@ -1770,3 +1770,20 @@ Reddit audience waits for every MAGA entertainment to drop to comment upon.
 https://old.reddit.com/r/politics/comments/1qv5ch2/house_speaker_welcomes_trump_call_to_take_over/o3f68pb/
 
 Look at the Reddit fandom of hate-watching. Fiction pleases audiences.
+
+https://old.reddit.com/r/Economics/comments/1qv85kc/majority_of_americans_say_economy_worse_off_under/o3fq3ju/
+
+Total fucking mockery. Most popular comment: mocking.
+
+https://old.reddit.com/r/Economics/comments/1qv85kc/majority_of_americans_say_economy_worse_off_under/o3frq7c/
+
+2 month Reddit account.
+
+https://old.reddit.com/r/Economics/comments/1qv85kc/majority_of_americans_say_economy_worse_off_under/o3ftk6k/
+
+1 year Reddit account.
+
+https://old.reddit.com/r/Economics/comments/1qv85kc/majority_of_americans_say_economy_worse_off_under/o3fq5dr/
+
+https://old.reddit.com/r/Economics/comments/1qv85kc/majority_of_americans_say_economy_worse_off_under/o3ft8u1/
+
