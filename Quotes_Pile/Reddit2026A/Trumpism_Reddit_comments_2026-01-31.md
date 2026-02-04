@@ -2070,3 +2070,9 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1qvuc10/trump_wins/o3kd89k/
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1qvuc10/trump_wins/o3ke41y/
 
 Prayers for more media about Trump. NEVER ENOUGH, NEVER TOO MUCH!
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qvuc10/trump_wins/o3khcp9/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qvuc10/trump_wins/o3kazxv/
+
+QAnon amplified by Putin. SEE_ALSO: https://old.reddit.com/r/QAnonRussia/ and how Reddit society can't escape pre-programmed reactionary mindsets and see how Putin organized QAnon promotion and exploitation of USA minds using Reddit meme platform.
