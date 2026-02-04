@@ -753,3 +753,10 @@ PizzaGate was a Kremlin-manipulated QAnon simulation. EVIDENCE: https://www.inde
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1qvpjas/well_that_answers_that/o3j96db/
 
 Front page of Reddit. Top-voted comment. Nothing at all is being "resisted' here. There is no sense of abnormality in USA society, no sense of urgency, no sense of alarm bells ringing. AVOIDED: Dr. Bandy X Lee's education for the general population, for the public... for the nation. On mental health. Spare time and free time of USA society is discussing Twitter Elon Musk platform message screenshots on Reddit.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qvpjas/well_that_answers_that/o3j7gy8/
+
+Who doesn't like President Ronald Reagan media content in 2nd term 1985?
+
+* "For all his perspicacity, George Orwell would have been stymied by this situation; there is nothing “Orwellian” about it. The President does not have the press under his thumb." ... "**All that has happened is that the public has adjusted to incoherence and been amused** into indifference. Which is why Aldous Huxley would not in the least be surprised by the story. Indeed, he prophesied its coming. He believed that it is far more likely that the Western democracies will dance and dream themselves into oblivion than march into it, single file and manacled. Huxley grasped, as Orwell did not, that it is not necessary to conceal anything from a public insensible to contradiction and narcoticized by technological diversions." ... "Big Brother turns out to be Howdy Doody."
+― Neil Postman, [Amusing Ourselves to Death: Public Discourse](https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Specific/Postman_1985_Howdy_Doody.md) in the Age of Show Business, **year 1985**, page 111
