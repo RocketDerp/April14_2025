@@ -1987,3 +1987,38 @@ Recent Reddit account. Created on Putin's Birthday. Not that that is relevant,bu
 
 * Loud Wire 2017 https://loudwire.com/advisor-vladimir-putin-five-finger-death-punch/
 
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qvsgt6/the_media_bias_is_crazy/o3k0bvy/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qvsgt6/the_media_bias_is_crazy/o3ju4j3/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qvsgt6/the_media_bias_is_crazy/o3jwbgw/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qvsgt6/the_media_bias_is_crazy/o3jtuq7/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qvsgt6/the_media_bias_is_crazy/o3jygvq/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qvsgt6/the_media_bias_is_crazy/o3jtw4n/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qvsgt6/the_media_bias_is_crazy/o3jymaj/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qvsgt6/the_media_bias_is_crazy/o3jymt3/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qvsgt6/the_media_bias_is_crazy/o3k4ilj/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qvsgt6/the_media_bias_is_crazy/o3k8t8w/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qvsgt6/the_media_bias_is_crazy/o3k1fd2/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qvsgt6/the_media_bias_is_crazy/o3k087b/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qvsgt6/the_media_bias_is_crazy/o3k0xxt/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qvsgt6/the_media_bias_is_crazy/o3kdqgr/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qvsgt6/the_media_bias_is_crazy/o3kdx8p/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qvsgt6/the_media_bias_is_crazy/o3kdazn/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qvsgt6/the_media_bias_is_crazy/o3kdorw/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qvsgt6/the_media_bias_is_crazy/o3kf2rv/
