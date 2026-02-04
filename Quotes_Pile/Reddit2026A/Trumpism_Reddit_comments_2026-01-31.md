@@ -2027,4 +2027,9 @@ https://old.reddit.com/r/politics/comments/1qvrx1f/rand_paul_on_trump_call_to_na
 
 Post submitter, top-upvoted comment. Cover-fire for Trump. Kremlin "playing dumb" with Tweet-think Twitter-length short messaging to prime Reddit fandom that Trump is not a threat and harmless. Downplaying Putin's puppet as a danger to society. Downplaying Dr. Bandy X Lee's public education. This is the cool-down period for the audience before the next surge of chaos. Signaling the audience that Trump is a dunce and idiot and moron and nobody is smarter than Trump that is pushing the Reddit messaging signals since March 2013. Surkov won. The "can not read" resonates so much with Reddit fandom. Interpretation, comprehension, understanding, **nonfiction serious book authors** and pro-Malala mindsets are avoided in favor of setting an incredibly low bar of Trump mocking, right into the hands of Surkov students total mockery media culture.
 
+https://old.reddit.com/r/politics/comments/1qvrx1f/rand_paul_on_trump_call_to_nationalize_elections/o3jp9jq/
+
+Reddit fandom of Reality TV / Reality Reddit media... mind blown at plot twist in scripted Reality Kremlin performances, Surkov student screenplays. Promoting the simplistic logic of brand loyalty / name recognition of 100% always false or 100% always true sources of information and analysis. Twitter-thinking messages to set minds.
+
+
 
