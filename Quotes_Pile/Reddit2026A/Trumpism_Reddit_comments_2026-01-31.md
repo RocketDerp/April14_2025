@@ -1968,3 +1968,9 @@ OPERA_A Blinded by the laser light burning bits and pits. "Earth Band", Pale Blu
 https://old.reddit.com/r/clevercomebacks/comments/1qvo3xb/if_you_know_you_know/o3ixo9g/
 
 That's what people do at fireworks shows. They pay for items they burn.
+
+https://old.reddit.com/r/clevercomebacks/comments/1qvo3xb/if_you_know_you_know/o3izd9i/
+
+THERE IS AN ANSWER! The Great Seal of the United States of America teaching and revival!
+
+OPERA_A Flip to the Eagle. Fly to the Nile river pyramid. "Kayley Bishop - "Fly Like An Eagle" by Steve Miller" https://www.youtube.com/watch?v=OVwqdArFDc0 2,832 views May 16, 2022 - Ready Player ALP, fly to the sea from the rivers of Dublin!
