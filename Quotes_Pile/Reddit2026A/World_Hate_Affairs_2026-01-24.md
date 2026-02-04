@@ -769,3 +769,11 @@ People circle their wagon for fiction actors in a screenplay they love. Like fic
 https://old.reddit.com/r/Fauxmoi/comments/1qvh7py/zayn_malik_emma_thompson_penelope_cruz_stevie/o3hnkb0/
 
 The mental health of Epstein and Trump parallel my experience with the richest people in the world in Bellevue Washington. Let alone the Levant clergy, the pandemic clergy response to not have a world wide funeral and all come together in grief rituals.... sickening. How can any religion witness the Olympics and other global events and not have a pandemic funeral ritual. The grief issues are horrific.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qvh7py/zayn_malik_emma_thompson_penelope_cruz_stevie/o3hq70e/
+
+https://old.reddit.com/r/Fauxmoi/comments/1qvh7py/zayn_malik_emma_thompson_penelope_cruz_stevie/o3hnt64/
+
+https://old.reddit.com/r/Fauxmoi/comments/1qvh7py/zayn_malik_emma_thompson_penelope_cruz_stevie/o3hpdb1/
+
+Year 2014. Malala's book was published October 8, 2013 about terrorism in Islamic clergy systems. Of course, people shit upon and mock world peace. Too boring for the fandoms of hate and fandoms of Epstein leadership men over women. Allah the male domination ruler science fiction societies.
