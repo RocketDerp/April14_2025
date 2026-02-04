@@ -1920,3 +1920,14 @@ https://old.reddit.com/r/news/comments/1qvqiuf/kid_rocks_song_about_loving_under
 Did nobody study Mecca history after 9/11? The Terrorists won, folks! NYC Trump, Fred Trump NYC... September 11. You know, the nonfiction history learning... of the motivations to attack USA?
 
 * "I tell you, freedom and human rights in America are doomed. The U.S. government will lead the American people in — and the West in general — into an unbearable hell and a choking life." [- أسامةبنلادن Al-Jazeera interview, 21 October 2001](/Grim_Blunt/Concerns/Unbearable_Hell_Choking_Life.md)
+
+OPERA_A Decimated Dreams of Mecca and NYC Fred Trump "Daddy" issues... https://youtu.be/RRKJiM9Njr8?t=136 Trump carries us on, to Hell in a Handbasket for the whole world! Putin and Surkov unleashed something they can not control! LLM monomyth reworking engines churning.
+
+https://old.reddit.com/r/news/comments/1qvqiuf/kid_rocks_song_about_loving_underage_girls/o3jf67d/
+
+Free your Birds, free your mind instead! One can only consent to adult mistakes with freedom to choose to self-harm. That's the best we got so far, until we pass the threshold of February 28, 1954 equation.
+
+https://old.reddit.com/r/news/comments/1qvqiuf/kid_rocks_song_about_loving_underage_girls/o3jfrp3/
+
+Trump fandom on Reddit social crying out for more MAGA performances to hate-watch.
+
