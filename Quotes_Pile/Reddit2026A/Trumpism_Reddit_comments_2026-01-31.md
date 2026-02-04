@@ -1866,3 +1866,9 @@ https://old.reddit.com/r/politics/comments/1qvk8ap/steve_bannon_proposes_using_i
 https://old.reddit.com/r/politics/comments/1qvk8ap/steve_bannon_proposes_using_ice_in_elections/o3i5u5q/
 
 https://old.reddit.com/r/politics/comments/1qvk8ap/steve_bannon_proposes_using_ice_in_elections/o3ii8hc/
+
+https://old.reddit.com/r/Fauxmoi/comments/1qvo7gv/jelly_roll_pictured_with_president_trump_donald/o3iwgat/
+
+1 month Reddit account. Tweet-length twitter-thinking. Most popular upvoted comment. Trumpism.
+
+* “Americans no longer talk to each other, they entertain each other. They do not exchange ideas, they exchange images. They do not argue with propositions; they argue with good looks, celebrities and commercials.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. Year 1985. Media studies, Reddit studies, New York University.
