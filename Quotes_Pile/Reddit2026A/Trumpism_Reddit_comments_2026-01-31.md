@@ -2037,5 +2037,12 @@ Social media engagement technique: asking dumb simple questions to audience from
 
 Yes, they all know that dominating over key symbol of the Constitution and other symbolism manipulation is important. They know the audience reactions this will get for Reddit fandom that wants plot twists and "breaking bad" character progression. Surkov won since March 2013.
 
+https://old.reddit.com/r/Fauxmoi/comments/1qvursh/finneas_responds_to_a_usa_today_piece_calling/o3kcoah/
 
+9 month Reddit account. Trump celebrity fandom of celebrity itself via Reddit.
 
+Everything is Media Ecology. https://github.com/RocketDerp/April14_2025/blob/main/Media_Ecology/Everything_is_ME.md
+
+https://old.reddit.com/r/Fauxmoi/comments/1qvursh/finneas_responds_to_a_usa_today_piece_calling/o3kdjon/
+
+Front page of Reddit as fast as possible this story made. It is hate-content for the Reddit fandom of hate leadership. Mass dehumanization tech lovers on Reddit flock to this post.
