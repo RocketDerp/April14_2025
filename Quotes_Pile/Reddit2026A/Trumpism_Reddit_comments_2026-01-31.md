@@ -1980,3 +1980,10 @@ https://old.reddit.com/r/clevercomebacks/comments/1qvo3xb/if_you_know_you_know/o
 https://old.reddit.com/r/clevercomebacks/comments/1qvo3xb/if_you_know_you_know/o3j0hyp/
 
 If only FAQ and Wiki systems could be used on Reddit. but we have Trump in power because Reddit social is anti-Wiki anti-FAQ in favor of low-effort commenting interactive gaming. ARG abounds.
+
+https://old.reddit.com/r/clevercomebacks/comments/1qvo3xb/if_you_know_you_know/o3iw0xo/
+
+Recent Reddit account. Created on Putin's Birthday. Not that that is relevant,but it is relevant to the context of this GitHub project.
+
+* Loud Wire 2017 https://loudwire.com/advisor-vladimir-putin-five-finger-death-punch/
+
