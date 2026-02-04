@@ -1910,3 +1910,7 @@ https://old.reddit.com/r/news/comments/1qvqiuf/kid_rocks_song_about_loving_under
 To understand Trump's rise in power of USA society, this is it. Tiny-short jokes. Trump is the leader of mockery Reddit.
 
 * 1993 TV is now year 2013 onward Reddit commenting section. "Their life is shit, if you will pardon the expression, and this is a comedy. Because all the troubles that such a life involve are just reduced to banality, just the **common rubble of little one line joke, you follow me? It’s made banal by it.** It’s banalised that way."; "This is the great – to me – ideological function of television and the movies. However extreme the situation, TV can find a way to turn it into a banality." - Texan Rick Roderick, year 1993, Duke University. "Marcuse and One-Dimensional Man". The joking tiny-think meme-think Tweet-think one-dimensional mindset. The Trump fandom on Reddit. https://RickRoderick.org/304-marcuse-and-one-dimensional-man-1993/
+
+https://old.reddit.com/r/news/comments/1qvqiuf/kid_rocks_song_about_loving_underage_girls/o3jegwe/
+
+OPERA_A REPEAT_OVERLOAD_INTENTIONAL SAFETY_DISARM_OVERRIDE CRANK_VOLUME_OPENING_25_SECONDS https://www.youtube.com/watch?v=RRKJiM9Njr8 "My Chemical Romance - Welcome To The Black Parade" 404,606,083 views October 26, 2009 - when I was a young boy, the Founding Fathers spirits took me into the city... son, when you grow up... would you be a roadie for Great Seal of the United States of America? 
