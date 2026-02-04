@@ -1880,3 +1880,7 @@ https://old.reddit.com/r/Fauxmoi/comments/1qvo7gv/jelly_roll_pictured_with_presi
 https://old.reddit.com/r/Fauxmoi/comments/1qvo7gv/jelly_roll_pictured_with_president_trump_donald/o3iwq4j/
 
 Fandom of horror media. Horror films have a very loyal fandom, no matter how terrible the story, they purchase tickets. That the ICE and Trump fandom. Putin fandom. Surkov won since March 2013.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qvo7gv/jelly_roll_pictured_with_president_trump_donald/o3ixjo7/
+
+The hate-watching audience of { MAGA, ICE, Trump, Jelly Roll, Musk } on Reddit. Fandom of hate. "The act of hate-watching is premised on the audience engaging with media through a satirical lens." https://en.wikipedia.org/wiki/Hate-watching Like Horror show fandoms.
