@@ -848,3 +848,17 @@ OPERA_A My Civic Ditty. Donald F, The Don of NYC, Jewish band leader. https://ww
 
 this comment from Reddit inspired this:    
 Social post { https://autistics.life/@RoundSparrow/116013825319128274 https://bsky.app/profile/roundsparrow.bsky.social/post/3me2jopsons2v }
+
+https://old.reddit.com/r/worldnews/comments/1qvrp9l/former_canadian_pm_harper_says_canada_should_make/o3jqum3/
+
+https://old.reddit.com/r/worldnews/comments/1qvrp9l/former_canadian_pm_harper_says_canada_should_make/o3juvga/
+
+https://old.reddit.com/r/worldnews/comments/1qvrp9l/former_canadian_pm_harper_says_canada_should_make/o3jr7dp/
+
+https://old.reddit.com/r/worldnews/comments/1qvrp9l/former_canadian_pm_harper_says_canada_should_make/o3jzf0i/
+
+https://old.reddit.com/r/worldnews/comments/1qvrp9l/former_canadian_pm_harper_says_canada_should_make/o3jzhyi/
+
+https://old.reddit.com/r/worldnews/comments/1qvrp9l/former_canadian_pm_harper_says_canada_should_make/o3k1hsi/
+
+https://old.reddit.com/r/worldnews/comments/1qvrp9l/former_canadian_pm_harper_says_canada_should_make/o3jvcj7/
