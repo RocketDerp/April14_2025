@@ -760,3 +760,7 @@ Who doesn't like President Ronald Reagan media content in 2nd term 1985?
 
 * "For all his perspicacity, George Orwell would have been stymied by this situation; there is nothing “Orwellian” about it. The President does not have the press under his thumb." ... "**All that has happened is that the public has adjusted to incoherence and been amused** into indifference. Which is why Aldous Huxley would not in the least be surprised by the story. Indeed, he prophesied its coming. He believed that it is far more likely that the Western democracies will dance and dream themselves into oblivion than march into it, single file and manacled. Huxley grasped, as Orwell did not, that it is not necessary to conceal anything from a public insensible to contradiction and narcoticized by technological diversions." ... "Big Brother turns out to be Howdy Doody."
 ― Neil Postman, [Amusing Ourselves to Death: Public Discourse](https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Specific/Postman_1985_Howdy_Doody.md) in the Age of Show Business, **year 1985**, page 111
+
+https://old.reddit.com/r/PublicFreakout/comments/1qvuawr/apparently_they_are_not_even_trying_to_hide_it/o3k8br0/
+
+This is normalizing, not resisting. Top-upvoted comment.
