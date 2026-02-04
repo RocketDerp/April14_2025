@@ -1939,3 +1939,11 @@ https://old.reddit.com/r/news/comments/1qvqiuf/kid_rocks_song_about_loving_under
 
 This is ACTUALLY WHY Reddit is a fandom to MAGA and Trump: Hate-watching. "Driven by the rise of streaming platforms and social media, hate-watching is rooted in a set of psychological and social motivations and cannot entirely prevent excesses despite its harmless origin." - thrill of watching others self-harm on high-speed electric media systems. 
 
+https://old.reddit.com/r/news/comments/1qvqiuf/kid_rocks_song_about_loving_underage_girls/o3jgb0q/
+
+no comment
+
+https://old.reddit.com/r/news/comments/1qvqiuf/kid_rocks_song_about_loving_underage_girls/o3joimo/
+
+Shit prizing audience of Reddit reminding others to not forget there are other shit choices on the Reddit Internet menus. OPERA_A 57 channels of shit billionaires and millionaires, Bellevue Washington 1996 days. Sports team owner media systems for Mercer Island and world private jet and cruise ship affairs. https://www.youtube.com/watch?v=YAlDbP4tdqc  - Hollywood studios and wired TCP/IP e-mail world of Vulcan Northwest, Inc https://weahomes.com/blog/former-estate-of-microsofts-late-co-founder-paul-allen-lists-for-more-than-dollar555-million Bachelor pads abound.
+
