@@ -839,3 +839,10 @@ https://old.reddit.com/r/okbuddycinephile/comments/1qvtegt/favorite_hack_directo
 https://old.reddit.com/r/okbuddycinephile/comments/1qvtegt/favorite_hack_director_that_is_also_a_pedophile/o3k6cu5/
 
 *Hate harder* Levant values (posting screenshot Israel media empire, Torah, vs Hollywood media empire, Film). Media empire hates media empire, long tradition in Levant science fiction trilogy. { Torah, Quran, Bible, Book of Mormon, etc }
+
+https://old.reddit.com/r/okbuddycinephile/comments/1qvtegt/favorite_hack_director_that_is_also_a_pedophile/o3kf3ov/
+
+Israel topic in screenshot, "Jesus Christ, Fucking" JFC commenting.
+
+OPERA_A My Civic Ditty. Donald F, The Don of NYC, Jewish band leader. https://www.youtube.com/watch?v=-SR48XA3hss Citizen Japanese Steam-Powered Naked Lunch Dildo. Metaphors abound. 258,992 views  December 4, 2018 
+
