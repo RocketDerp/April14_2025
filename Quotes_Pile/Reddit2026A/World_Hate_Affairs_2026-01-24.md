@@ -870,3 +870,14 @@ https://old.reddit.com/r/UnderReportedNews/comments/1qvwyvw/washington_post_ukra
 https://old.reddit.com/r/UnderReportedNews/comments/1qvwyvw/washington_post_ukraine_correspondent_lizzie/o3la3wl/
 
 3 month Reddit account.
+
+https://old.reddit.com/r/worldnews/comments/1qvucak/finlands_stubb_we_must_admit_the_us_is_changing/o3kb96h/
+
+https://old.reddit.com/r/worldnews/comments/1qvucak/finlands_stubb_we_must_admit_the_us_is_changing/o3kjs1s/
+
+https://old.reddit.com/r/worldnews/comments/1qvucak/finlands_stubb_we_must_admit_the_us_is_changing/o3kha0d/
+
+https://old.reddit.com/r/worldnews/comments/1qvucak/finlands_stubb_we_must_admit_the_us_is_changing/o3kd9uq/
+
+https://old.reddit.com/r/worldnews/comments/1qvucak/finlands_stubb_we_must_admit_the_us_is_changing/o3kmow7/
+
