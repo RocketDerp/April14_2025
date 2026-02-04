@@ -846,3 +846,5 @@ Israel topic in screenshot, "Jesus Christ, Fucking" JFC commenting.
 
 OPERA_A My Civic Ditty. Donald F, The Don of NYC, Jewish band leader. https://www.youtube.com/watch?v=-SR48XA3hss Citizen Japanese Steam-Powered Naked Lunch Dildo. Metaphors abound. 258,992 views  December 4, 2018 
 
+this comment from Reddit inspired this:    
+Social post { https://autistics.life/@RoundSparrow/116013825319128274 https://bsky.app/profile/roundsparrow.bsky.social/post/3me2jopsons2v }
