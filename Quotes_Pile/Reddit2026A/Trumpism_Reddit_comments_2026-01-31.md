@@ -1729,3 +1729,7 @@ https://old.reddit.com/r/Fauxmoi/comments/1qv7brt/trump_attacks_kaitlan_collins_
 People encourage it because television video is entertainment! Trump is an actor entertaining a population! Hate-watching TV is a real measurable audience.
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mdylvo5il22h https://autistics.life/@RoundSparrow/116009483151364116 }
+
+https://old.reddit.com/r/Fauxmoi/comments/1qv7brt/trump_attacks_kaitlan_collins_for_asking_about/o3fkekb/
+
+That's the Boss Man that We The People flock to every video delivery. Front page of Reddit instantly.
