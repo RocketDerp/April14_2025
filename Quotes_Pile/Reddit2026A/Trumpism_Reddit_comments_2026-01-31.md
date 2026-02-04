@@ -1872,3 +1872,11 @@ https://old.reddit.com/r/Fauxmoi/comments/1qvo7gv/jelly_roll_pictured_with_presi
 1 month Reddit account. Tweet-length twitter-thinking. Most popular upvoted comment. Trumpism.
 
 * “Americans no longer talk to each other, they entertain each other. They do not exchange ideas, they exchange images. They do not argue with propositions; they argue with good looks, celebrities and commercials.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. Year 1985. Media studies, Reddit studies, New York University.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qvo7gv/jelly_roll_pictured_with_president_trump_donald/o3ixap3/
+
+https://old.reddit.com/r/Fauxmoi/comments/1qvo7gv/jelly_roll_pictured_with_president_trump_donald/o3iws3p/
+
+https://old.reddit.com/r/Fauxmoi/comments/1qvo7gv/jelly_roll_pictured_with_president_trump_donald/o3iwq4j/
+
+Fandom of horror media. Horror films have a very loyal fandom, no matter how terrible the story, they purchase tickets. That the ICE and Trump fandom. Putin fandom. Surkov won since March 2013.
