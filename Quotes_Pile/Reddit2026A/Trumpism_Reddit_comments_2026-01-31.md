@@ -1950,3 +1950,7 @@ Shit prizing audience of Reddit reminding others to not forget there are other s
 https://old.reddit.com/r/news/comments/1qvqiuf/kid_rocks_song_about_loving_underage_girls/o3jp4h2/
 
 "cult". he is a leader. media cults. Reddit cult of mockery media.
+
+https://old.reddit.com/r/clevercomebacks/comments/1qvo3xb/if_you_know_you_know/o3ix3fc/
+
+Same Reddit commenting energy as Tweet-thinking Twitter-mindsets, Elon Musk mind virus conditioned. Richest man in the world programming minds on Reddit to upvote this to most-popular comment. I used to work for the richest billionaires in the world, in social media.. what the fuck do I have experience with. Musk is not joking or hiding he does this. https://www.lemonde.fr/en/international/article/2024/08/13/elon-musk-s-ambition-repopulating-the-planet-and-destroying-the-woke-virus_6714239_4.html
