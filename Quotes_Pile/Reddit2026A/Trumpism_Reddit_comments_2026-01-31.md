@@ -1704,3 +1704,17 @@ https://old.reddit.com/r/videos/comments/1qv50nm/rep_lieu_says_epstein_files_hav
 
 Wrong. People care very much about Trump content. People prize Trump as an entertainment and joke source. More Trump content, the more the We The People audience gets what no other politician provides. Reddit content addicts are in denial of their own content-driven behaviors.
 
+https://old.reddit.com/r/Fauxmoi/comments/1qv7brt/trump_attacks_kaitlan_collins_for_asking_about/o3fjdlg/
+
+I miss the days when social media users were not all avoidant of nonfiction books.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qv7brt/trump_attacks_kaitlan_collins_for_asking_about/o3fj65g/
+
+1 month Reddit account. Trump fandom pointing out the favorite comedy statements of their POTUS Tony Clifton actor. People who will not stand up and organize a social media education campaign about cult behaviors and cult deprogramming to end the show.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qv7brt/trump_attacks_kaitlan_collins_for_asking_about/o3fjjnr/
+
+https://old.reddit.com/r/Fauxmoi/comments/1qv7brt/trump_attacks_kaitlan_collins_for_asking_about/o3fj0im/
+
+9 month Reddit account. 3 words of the most obvious fandom commenting. Wow, Tony Clifton character is so vile. Darth Vader character is so vile. How about we STOP making Reality TV and entertainment the leadership method of society!!
+
