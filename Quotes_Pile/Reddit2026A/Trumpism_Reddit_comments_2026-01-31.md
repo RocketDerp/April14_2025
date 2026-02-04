@@ -1727,3 +1727,5 @@ https://old.reddit.com/r/Fauxmoi/comments/1qv7brt/trump_attacks_kaitlan_collins_
 <img width="1923" height="935" alt="image" src="https://github.com/user-attachments/assets/a59233b5-a8d1-458d-8ce8-1dda2798b0cd" />
 
 People encourage it because television video is entertainment! Trump is an actor entertaining a population! Hate-watching TV is a real measurable audience.
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mdylvo5il22h https://autistics.life/@RoundSparrow/116009483151364116 }
