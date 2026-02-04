@@ -2058,3 +2058,15 @@ Yha, because Dr. Bandy X Lee's books on mental health of the nation... are avoid
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1qvuc10/trump_wins/o3kbjhq/
 
 CALL IT WHAT IT IS!!! REDDIT IS A TRUMP HATE-WATCHING FANDOM! REDDIT IS A TRUMP MEDIA VENUE!!! FOR ADDICTS TO SHIT-POSTING SHIT-CONTENT PUTIN-SHIT!!! TRUMP IS A PUPPET PUTIN MANIPULATES, AND REDDIT IS MANIPULATED TOO!!!!
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social https://autistics.life/@RoundSparrow/116013908725310348 }
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qvuc10/trump_wins/o3kcbpz/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qvuc10/trump_wins/o3kdk31/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qvuc10/trump_wins/o3kd89k/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qvuc10/trump_wins/o3ke41y/
+
+Prayers for more media about Trump. NEVER ENOUGH, NEVER TOO MUCH!
