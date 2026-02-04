@@ -2080,3 +2080,14 @@ QAnon amplified by Putin. SEE_ALSO: https://old.reddit.com/r/QAnonRussia/ and ho
 https://old.reddit.com/r/atheism/comments/1qvqifj/kid_rocks_song_about_loving_underage_girls/o3jfifp/
 
 He programmed the music. The music cartels programmed the distribution to audiences. Programming minds via monomyth media patterns. 
+
+https://old.reddit.com/r/atheism/comments/1qvqifj/kid_rocks_song_about_loving_underage_girls/o3jejy1/
+
+https://old.reddit.com/r/atheism/comments/1qvqifj/kid_rocks_song_about_loving_underage_girls/o3jedwf/
+
+https://old.reddit.com/r/atheism/comments/1qvqifj/kid_rocks_song_about_loving_underage_girls/o3jgeyv/
+
+https://old.reddit.com/r/atheism/comments/1qvqifj/kid_rocks_song_about_loving_underage_girls/o3jfs4e/
+
+Jesus mother is impregnated by an outer-space Daddy without permission. Bamboozled.
+
