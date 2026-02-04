@@ -2031,5 +2031,11 @@ https://old.reddit.com/r/politics/comments/1qvrx1f/rand_paul_on_trump_call_to_na
 
 Reddit fandom of Reality TV / Reality Reddit media... mind blown at plot twist in scripted Reality Kremlin performances, Surkov student screenplays. Promoting the simplistic logic of brand loyalty / name recognition of 100% always false or 100% always true sources of information and analysis. Twitter-thinking messages to set minds.
 
+https://old.reddit.com/r/politics/comments/1qvrx1f/rand_paul_on_trump_call_to_nationalize_elections/o3jrwo8/
+
+Social media engagement technique: asking dumb simple questions to audience from audience.
+
+Yes, they all know that dominating over key symbol of the Constitution and other symbolism manipulation is important. They know the audience reactions this will get for Reddit fandom that wants plot twists and "breaking bad" character progression. Surkov won since March 2013.
+
 
 
