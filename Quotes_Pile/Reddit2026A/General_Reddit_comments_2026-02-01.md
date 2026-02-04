@@ -59,3 +59,9 @@ https://old.reddit.com/r/whennews/comments/1quzp6u/who_wouldve_saw_it_coming/o3e
 1 month Reddit account. NYE.
 
 https://old.reddit.com/r/Damnthatsinteresting/comments/1qv7vkc/stephen_hawking_in_jeffrey_epsteins_personal/o3fpurr/
+
+https://old.reddit.com/r/aviation/comments/1qvf46q/reddit_mod_deleted_breathtaking_photo_taken_by/o3h781w/
+
+Network Censorship war stories.
+
+OPER_A Alan Alda network censorship TV war Korean war stories. https://www.youtube.com/watch?v=37HXBdOMKOk&t=375s 366,855 views July 18, 2014 Underwear
