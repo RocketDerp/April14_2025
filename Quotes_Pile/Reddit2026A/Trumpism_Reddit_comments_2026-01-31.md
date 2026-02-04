@@ -1889,3 +1889,7 @@ https://old.reddit.com/r/Fauxmoi/comments/1qvo7gv/jelly_roll_pictured_with_presi
 
 Hate-watching of their own children. The same kind of hate prizing of Reddit tech-love cloud compute love users. Reddit Social is Fandom of Hate Culture. "The act of hate-watching is premised on the audience engaging with media through a satirical lens." https://en.wikipedia.org/wiki/Hate-watching Like Horror show fandoms.
 
+https://old.reddit.com/r/Fauxmoi/comments/1qvo7gv/jelly_roll_pictured_with_president_trump_donald/o3ixaro/
+
+Fiction outsells nonfiction. Putin and Trump using Surkov techniques are the biggest and most thrilling source of fiction storytelling. Surkov MonoMyth patterns rule, even over LLM systems. Runaway Surkov manipulation of executive function in hearts and minds!
+
