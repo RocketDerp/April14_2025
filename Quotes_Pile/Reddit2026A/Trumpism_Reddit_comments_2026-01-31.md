@@ -1931,3 +1931,6 @@ https://old.reddit.com/r/news/comments/1qvqiuf/kid_rocks_song_about_loving_under
 
 Trump fandom on Reddit social crying out for more MAGA performances to hate-watch.
 
+https://old.reddit.com/r/news/comments/1qvqiuf/kid_rocks_song_about_loving_underage_girls/o3jgtk0/
+
+Everything is M.E. - Everything is P.R. - Everything is Marshall McLuhan and Neil Postman media ecology self-awareness! SEE_ALSO https://GitHub.com/RocketDerp/April14_2025/blob/working/Media_Ecology/Everything_is_ME.md 
