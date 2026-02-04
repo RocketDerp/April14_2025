@@ -2059,7 +2059,7 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1qvuc10/trump_wins/o3kbjhq/
 
 CALL IT WHAT IT IS!!! REDDIT IS A TRUMP HATE-WATCHING FANDOM! REDDIT IS A TRUMP MEDIA VENUE!!! FOR ADDICTS TO SHIT-POSTING SHIT-CONTENT PUTIN-SHIT!!! TRUMP IS A PUPPET PUTIN MANIPULATES, AND REDDIT IS MANIPULATED TOO!!!!
 
-Social post { https://bsky.app/profile/roundsparrow.bsky.social https://autistics.life/@RoundSparrow/116013908725310348 }
+Social post { https://bsky.app/profile/roundsparrow.bsky.social https://autistics.life/@RoundSparrow/116013908725310348 https://MidWest.Social/post/42958583 }
 
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1qvuc10/trump_wins/o3kcbpz/
 
