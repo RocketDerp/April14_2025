@@ -1733,3 +1733,14 @@ Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mdylvo5il2
 https://old.reddit.com/r/Fauxmoi/comments/1qv7brt/trump_attacks_kaitlan_collins_for_asking_about/o3fkekb/
 
 That's the Boss Man that We The People flock to every video delivery. Front page of Reddit instantly.
+
+https://old.reddit.com/r/politics/comments/1qv5ch2/house_speaker_welcomes_trump_call_to_take_over/o3f3zcx/
+
+Nobody wants to take on the mental health and cult problems on Reddit. Dr. Bandy X Lee has been there since year 2017 to quote for educating the public, but Reddit audience doesn't want to address Trump and MAGA mental health issues with intelligent women leaders.
+
+https://old.reddit.com/r/politics/comments/1qv5ch2/house_speaker_welcomes_trump_call_to_take_over/o3f3lmx/
+
+"laughable", exactly. That's what Reddit social is for, laughing at MAGA and laughing at Republicans and laughing at Trump day in and day out. Not recognizing the predictable mob mentality of laughing at the out-group as entertainment and amusement addiction. A joke-washing platform, Reddit . com
+
+* “Everything in our background has prepared us to know and resist a prison when the gates begin to close around us . . . But what if there are no cries of anguish to be heard? Who is prepared to take arms against a sea of amusements? To whom do we complain, and when, and in what tone of voice, when serious discourse dissolves into giggles? What is the antidote to a culture's being drained by laughter?”
+― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. Year 1985.
