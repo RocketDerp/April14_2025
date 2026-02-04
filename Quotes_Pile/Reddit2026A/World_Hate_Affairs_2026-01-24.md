@@ -783,3 +783,17 @@ https://old.reddit.com/r/Fauxmoi/comments/1qvh7py/zayn_malik_emma_thompson_penel
 To understand Twitter-length thinking and Trumpism Tweet-thinking society, understand how many comments on this posting teat a posting title as clicbait life story. Why everything is TLDR condensed clickbait Trump world. This post is full of comments like this one declaring an entire lifetime of emotional experience in an advertisement clickbait title.
 
 * "In any case, the current political structures are way behind this curve. They don’t understand it well at all in spite of all the talk about “The Selling of the President“. That’s very old fashioned, we all have lived with advertising for years. What we haven’t lived with are **ads that have more narrative structure and meaning than the programs**, and I’ll mention a few of those because I think they’re interesting. The current McDonalds ads that kind of tell a part of your life story in like a two and a half minute ad. It’s like from when you get married and when you have your grandkids until you die. You get that two and a half minutes and then there is a McDonalds thing, like “Good; I was born, I had kids, I died, and in the meantime I got a Big Mac”. I mean this is sort of “Gone With the Wind” condensed into a short version. **It’s fast, it’s hyperreal,** and in the meantime you at least got a Big Mac. You know, you never will have to be hungry again, you know, reproduced to infinity over and over on videotape. Change the Laserdisc, you can watch Scarlett O’Hara. I said that a million times, if we had the technology right now to do it we could just have Scarlett back there screaming about terror while I am doing this. In any case, ah, **if Baudrillard is even onto something**, what the postmodern trajectory means is that the self is not under siege, it’s lost. It’s just lost. And if that’s true then all of the strategies by which ordinary people try to live decent good lives are lost along with it. I am not necessarily going to buy that right away, I am really not. I do think that **the new, ah, technologies are going to call forth**… I mean this is why the title of this course has been “The Self Under Siege”. If I didn’t think it was a real, virulent technological siege and just some thought up philosopher’s dream, which would not have interested me. I mean, I have no interest in that." - Texan Rick Roderick, Duke University https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
+
+https://old.reddit.com/r/news/comments/1qvnegy/bill_gates_denies_allegations_in_new_epstein/o3iqhew/
+
+https://old.reddit.com/r/news/comments/1qvnegy/bill_gates_denies_allegations_in_new_epstein/o3is5lc/
+
+https://old.reddit.com/r/news/comments/1qvnegy/bill_gates_denies_allegations_in_new_epstein/o3ir39e/
+
+https://old.reddit.com/r/news/comments/1qvnegy/bill_gates_denies_allegations_in_new_epstein/o3is270/
+
+https://old.reddit.com/r/news/comments/1qvnegy/bill_gates_denies_allegations_in_new_epstein/o3ixazl/
+
+https://old.reddit.com/r/news/comments/1qvnegy/bill_gates_denies_allegations_in_new_epstein/o3j1sqp/
+
+https://old.reddit.com/r/news/comments/1qvnegy/bill_gates_denies_allegations_in_new_epstein/o3iur9o/
