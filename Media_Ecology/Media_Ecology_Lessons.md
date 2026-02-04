@@ -1720,3 +1720,12 @@ https://old.reddit.com/r/worldnews/comments/1qs75ir/finland_looks_to_end_uncontr
 # Strangers in cinema
 
 https://old.reddit.com/r/movies/comments/1qu40tm/alamo_drafthouse_faces_backlash_after_ditching/
+
+&nbsp;
+
+# Social Network Censorship
+
+Sex sells.   
+Alan Alda on women's underwear vs. men's underwear.   
+Network Censorship war stories.   
+https://www.youtube.com/watch?v=37HXBdOMKOk&t=375s
