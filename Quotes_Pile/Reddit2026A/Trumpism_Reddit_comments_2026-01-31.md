@@ -1896,3 +1896,7 @@ Fiction outsells nonfiction. Putin and Trump using Surkov techniques are the big
 https://old.reddit.com/r/news/comments/1qvqiuf/kid_rocks_song_about_loving_underage_girls/o3je37g/
 
 Sport-thinking, sports mentality, rectangle square-wave field-programmable logic mind-share patterns of NFL, NBA, FIFA, etc. Ahh, my years of analysis 1996 at the top floor offices of Paul Allen Group owner networks and media ESPN Starwave venture capitalists consulting.  OPERA_A If billionaires could condition the patterns in my mind... age 26, what the fuck, Stephen! What is going on here at the Jimi Hendrix EMP! https://www.youtube.com/watch?v=jiU2lrGnT7U - what my tale my thoughts could tell.. 1995 ghosts from a wishing well!
+
+https://old.reddit.com/r/news/comments/1qvqiuf/kid_rocks_song_about_loving_underage_girls/o3jfeax/
+
+yes. But the lyrics are not what's important, reading between the linens. The AUDIENCE flocking of Reddit is what this is all about. Surkov student screenplays for Bluesky and Reddit. Conditioned opposition, simulation of resistance. Surkov monomyth patterns of predictable Reddit behaviors of meme consumers.
