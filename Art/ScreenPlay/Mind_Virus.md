@@ -19,3 +19,11 @@ https://old.reddit.com/r/Antimoneymemes/comments/1o8nra9/western_religionmoney_s
 &nbsp;
 
 "Seems like a good comment to drop in this Gem. [Wetiko Mind Virus](https://www.kosmosjournal.org/article/seeing-wetiko-on-capitalism-mind-viruses-and-antidotes-for-a-world-in-transition/). The Native Americans believed the European settlers were afflicted by a "cannibalistic spirit" that caused them to devour and consume endlessly. They literally thought the Europeans were possessed by greed Demons. Maybe we are."
+
+&nbsp;
+
+&nbsp;
+
+https://bsky.app/profile/paddy100w.bsky.social/post/3mboexynxck2k   
+"A really in-depth look at the psychology and macro forces that create the mindset of billionaire tech bros."   
+https://blog.rebeltechalliance.org/the-billionaire-mind-virus/   
