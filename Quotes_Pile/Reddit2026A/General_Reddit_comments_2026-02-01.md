@@ -64,7 +64,8 @@ https://old.reddit.com/r/aviation/comments/1qvf46q/reddit_mod_deleted_breathtaki
 
 Network Censorship war stories.
 
-OPER_A Alan Alda network censorship TV war Korean war stories. https://www.youtube.com/watch?v=37HXBdOMKOk&t=375s 366,855 views July 18, 2014 Underwear
+OPERA_A Alan Alda network censorship TV war Korean war stories. https://www.youtube.com/watch?v=37HXBdOMKOk&t=375s 366,855 views July 18, 2014 Underwear
 
 https://old.reddit.com/r/aviation/comments/1qvf46q/reddit_mod_deleted_breathtaking_photo_taken_by/o3hewkg/
 
+https://old.reddit.com/r/SipsTea/comments/1qvso0z/what_are_your_questions/o3k8ofc/
