@@ -1914,3 +1914,9 @@ To understand Trump's rise in power of USA society, this is it. Tiny-short jokes
 https://old.reddit.com/r/news/comments/1qvqiuf/kid_rocks_song_about_loving_underage_girls/o3jegwe/
 
 OPERA_A REPEAT_OVERLOAD_INTENTIONAL SAFETY_DISARM_OVERRIDE CRANK_VOLUME_OPENING_25_SECONDS https://www.youtube.com/watch?v=RRKJiM9Njr8 "My Chemical Romance - Welcome To The Black Parade" 404,606,083 views October 26, 2009 - when I was a young boy, the Founding Fathers spirits took me into the city... son, when you grow up... would you be a roadie for Great Seal of the United States of America? 
+
+https://old.reddit.com/r/news/comments/1qvqiuf/kid_rocks_song_about_loving_underage_girls/o3jf7qq/
+
+Did nobody study Mecca history after 9/11? The Terrorists won, folks! NYC Trump, Fred Trump NYC... September 11. You know, the nonfiction history learning... of the motivations to attack USA?
+
+* "I tell you, freedom and human rights in America are doomed. The U.S. government will lead the American people in — and the West in general — into an unbearable hell and a choking life." [- أسامةبنلادن Al-Jazeera interview, 21 October 2001](/Grim_Blunt/Concerns/Unbearable_Hell_Choking_Life.md)
