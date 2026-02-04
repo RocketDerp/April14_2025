@@ -797,3 +797,45 @@ https://old.reddit.com/r/news/comments/1qvnegy/bill_gates_denies_allegations_in_
 https://old.reddit.com/r/news/comments/1qvnegy/bill_gates_denies_allegations_in_new_epstein/o3j1sqp/
 
 https://old.reddit.com/r/news/comments/1qvnegy/bill_gates_denies_allegations_in_new_epstein/o3iur9o/
+
+https://old.reddit.com/r/okbuddycinephile/comments/1qvtegt/favorite_hack_director_that_is_also_a_pedophile/o3k2mex/
+
+World Hate Affairs. World Violence Film Makers.
+
+https://old.reddit.com/r/okbuddycinephile/comments/1qvtegt/favorite_hack_director_that_is_also_a_pedophile/o3k32pv/
+
+https://old.reddit.com/r/okbuddycinephile/comments/1qvtegt/favorite_hack_director_that_is_also_a_pedophile/o3k5mzu/
+
+https://old.reddit.com/r/okbuddycinephile/comments/1qvtegt/favorite_hack_director_that_is_also_a_pedophile/o3k5bf3/
+
+https://old.reddit.com/r/okbuddycinephile/comments/1qvtegt/favorite_hack_director_that_is_also_a_pedophile/o3k2uh6/
+
+https://old.reddit.com/r/okbuddycinephile/comments/1qvtegt/favorite_hack_director_that_is_also_a_pedophile/o3k67t1/
+
+How hard it is to touch nonfiction books about mental health of world leaders... https://www.scientificamerican.com/article/the-shared-psychosis-of-donald-trump-and-his-loyalists/
+
+https://old.reddit.com/r/okbuddycinephile/comments/1qvtegt/favorite_hack_director_that_is_also_a_pedophile/o3k5apq/
+
+https://old.reddit.com/r/okbuddycinephile/comments/1qvtegt/favorite_hack_director_that_is_also_a_pedophile/o3k7j4b/
+
+https://old.reddit.com/r/okbuddycinephile/comments/1qvtegt/favorite_hack_director_that_is_also_a_pedophile/o3k5pe9/
+
+8 month Reddit account
+
+https://old.reddit.com/r/okbuddycinephile/comments/1qvtegt/favorite_hack_director_that_is_also_a_pedophile/o3k3jk7/
+
+https://old.reddit.com/r/okbuddycinephile/comments/1qvtegt/favorite_hack_director_that_is_also_a_pedophile/o3k4fas/
+
+https://old.reddit.com/r/okbuddycinephile/comments/1qvtegt/favorite_hack_director_that_is_also_a_pedophile/o3k2cen/
+
+Because violence. And having women (Kill Bill lead) adopt male violence leadership.
+
+https://old.reddit.com/r/okbuddycinephile/comments/1qvtegt/favorite_hack_director_that_is_also_a_pedophile/o3k6b84/
+
+https://old.reddit.com/r/okbuddycinephile/comments/1qvtegt/favorite_hack_director_that_is_also_a_pedophile/o3k65nj/
+
+https://old.reddit.com/r/okbuddycinephile/comments/1qvtegt/favorite_hack_director_that_is_also_a_pedophile/o3k82ds/
+
+https://old.reddit.com/r/okbuddycinephile/comments/1qvtegt/favorite_hack_director_that_is_also_a_pedophile/o3k6cu5/
+
+*Hate harder* Levant values (posting screenshot Israel media empire, Torah, vs Hollywood media empire, Film). Media empire hates media empire, long tradition in Levant science fiction trilogy. { Torah, Quran, Bible, Book of Mormon, etc }
