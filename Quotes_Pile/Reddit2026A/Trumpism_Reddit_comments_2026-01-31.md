@@ -1787,3 +1787,7 @@ https://old.reddit.com/r/Economics/comments/1qv85kc/majority_of_americans_say_ec
 
 https://old.reddit.com/r/Economics/comments/1qv85kc/majority_of_americans_say_economy_worse_off_under/o3ft8u1/
 
+https://old.reddit.com/r/MurderedByWords/comments/1qv67y0/they_really_could_have_come_up_with_a_better/o3fding/
+
+Pro-measles, pro-disease RFK Jr USA. Russia won. August 24, 2018 never forget: https://www.bbc.com/news/world-us-canada-45294192 This is not a "murder by words" win for Reddit, this is a win for Putin. The IRA words crushed USA and NATO relationships.
+
