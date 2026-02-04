@@ -743,3 +743,21 @@ Right vs left brain rot. Fiction vs. nonfiction is a more critical and urgent cr
 https://old.reddit.com/r/worldnews/comments/1qvj4u1/investigating_child_sex_abuse_isnt_controversial/o3hyf3c/
 
 Political theater I've been calling "Information Strip Tease", the whole game of dropping "Q" drops of information an teasing who is in the secret files.
+
+https://old.reddit.com/r/worldnews/comments/1qvj4u1/investigating_child_sex_abuse_isnt_controversial/o3hz879/
+
+6 month Reddit account. Short-length Twitter-thinking Tweet-logic minded. Anti-Reality on Reddit. FINALLY, someone shit-talks! Entirely blind that that is ALL people do day an night is insult and mock Trump over an over. Reddit users are BLIND to Tony Clifton performance. Trump and his orange makeup - do Reddit users truly think Trump has never heard anyone joke about his orange makeup. Yes, Reddit users actually think Trump does not grasp that people treat him differently! The fucking GULLIBILITY to Reality TV on Reddit. My god, do people need to study Neil Postman!
+
+The USA population always wants more and more shit-talk and mocking. It just never ends with Trump and Musk. Always more, always more Twitter bullshit! ANYTHING but Dr. Bandy X. Lee and nonfiction serious learning and teaching of the general public on mental health and cults.
+
+* “One of the saddest lessons of history is this: If we’ve been bamboozled long enough, we tend to **reject any evidence of the bamboozle**. We’re no longer interested in finding out the truth. The bamboozle has captured us. It’s simply too painful to acknowledge, even to ourselves, that we’ve been taken. Once you give a charlatan power over you, you almost never get it back. So the old bamboozles tend to persist as the new ones rise.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, **1995**, page 241
+
+https://old.reddit.com/r/worldnews/comments/1qvj4u1/investigating_child_sex_abuse_isnt_controversial/o3i3eb7/
+
+Yes! Put into Best Of with some half-awake commentary.
+
+<img width="1118" height="615" alt="image" src="https://github.com/user-attachments/assets/3cfd4a23-a5e4-4a8f-b19f-921bef46824e" />
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mdzt3yublk2o https://autistics.life/@RoundSparrow/116012237238927347 }
+
+OPERA_A https://www.youtube.com/watch?v=jrGmcuj44DQ Overkill mockery faiths. 6,241,228 views June 7, 2008 Day after Day Trump mockery reappears. Symbolism ghosts in mass mind appear and disappear. Spell the desperation. The "cooked", cooking brains on media machines.
