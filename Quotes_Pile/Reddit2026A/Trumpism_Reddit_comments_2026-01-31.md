@@ -2055,3 +2055,6 @@ https://old.reddit.com/r/popculturechat/comments/1qvq8yk/woody_allens_wife_soony
 
 Yha, because Dr. Bandy X Lee's books on mental health of the nation... are avoided on Reddit. People don't want to educate and teach how to prevent this from happening, people want to consume billionaire originated content.
 
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qvuc10/trump_wins/o3kbjhq/
+
+CALL IT WHAT IT IS!!! REDDIT IS A TRUMP HATE-WATCHING FANDOM! REDDIT IS A TRUMP MEDIA VENUE!!! FOR ADDICTS TO SHIT-POSTING SHIT-CONTENT PUTIN-SHIT!!! TRUMP IS A PUPPET PUTIN MANIPULATES, AND REDDIT IS MANIPULATED TOO!!!!
