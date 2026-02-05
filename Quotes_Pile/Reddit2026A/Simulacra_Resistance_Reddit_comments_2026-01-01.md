@@ -764,3 +764,9 @@ Who doesn't like President Ronald Reagan media content in 2nd term 1985?
 https://old.reddit.com/r/PublicFreakout/comments/1qvuawr/apparently_they_are_not_even_trying_to_hide_it/o3k8br0/
 
 This is normalizing, not resisting. Top-upvoted comment.
+
+https://old.reddit.com/r/sports/comments/1qwmzkf/during_a_pro_wrestling_match_on_live_tv_the_crowd/o3q7xl5/
+
+This whole posting topic is "simulation of resistance", Audience vs. audience. Cult vs. cult. Wrestling audiences are the front lines of simulacra. Managed opposition, programmed cult media addicts mocking back at the Rupert Murdoch cults. Mock for mock, hate for hate, *hate harder*. ANYTHING but face up to Putin's information warfare. Reddit society unable to engage and comprehend and understand off-Reddit... September 9, 2014: https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ 
+
+OPERA_A Andy, did you hear about this wrestling match one? Reddit audience eats it up. Polarity out-group logic mindsets. REPEATING_REPEATER https://www.youtube.com/watch?v=l2lliT6KK9o 189,797 views February 8, 2018
