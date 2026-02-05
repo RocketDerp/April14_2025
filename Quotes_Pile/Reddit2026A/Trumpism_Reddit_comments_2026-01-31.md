@@ -2205,4 +2205,5 @@ Reddit audience members are passively sitting around commenting while waiting fo
 
 https://old.reddit.com/r/therewasanattempt/comments/1qwsu2y/to_be_a_christian/o3rd91m/
 
-Reddit Reistance is a Fake Resistnce. Not real. Reddit is REALLY a fandom of mocking, which Trump leads, a Church Bible mockery - which Reddit responds to with conditioned mocking. Reddit and Trump both share the same values of mockery following.
+Reddit community Resistance is a Fake Resistance. Not real. Reddit audience is REALLY a fandom of mocking, which Trump leads, a Church Bible mockery - which Reddit responds to with conditioned mocking. Reddit and Trump both share the same values of mockery following. Trump is doing his Tony Clifton Bible performances and Reddit users think Trump is not an actor doing acting. SNL NYC Trump home town Andy Kaufman techniques. 
+
