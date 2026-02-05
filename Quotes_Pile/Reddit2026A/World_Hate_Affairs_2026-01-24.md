@@ -1439,3 +1439,9 @@ https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_anti
 https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pisnc/
 
 Gullible people get their information from commenting without off-Reddit links.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qwvyqe/tony_hawk_debunks_the_viral_rumor_he_had_one_of/o3s0n33/
+
+World Divorce Affairs. Celebrity cult of Reddit. Fandom of Tony Hawk, media cults.
+
+Social post { https://autistics.life/@RoundSparrow/116020170356150746 https://bsky.app/profile/roundsparrow.bsky.social/post/3me5dtqluyc2t }
