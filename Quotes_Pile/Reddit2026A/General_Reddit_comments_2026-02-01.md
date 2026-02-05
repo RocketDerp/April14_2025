@@ -79,3 +79,8 @@ https://old.reddit.com/r/ArcRaiders/comments/1qw1gbq/look_at_call_of_duty_that_s
 https://old.reddit.com/r/ArcRaiders/comments/1qw1gbq/look_at_call_of_duty_that_shts_dead_now_you_never/o3lrhtp/
 
 https://old.reddit.com/r/ArcRaiders/comments/1qw1gbq/look_at_call_of_duty_that_shts_dead_now_you_never/o3m5cb3/
+
+https://old.reddit.com/r/Damnthatsinteresting/comments/1qw2hbq/piranhas_are_known_as_a_vicious_carnivore_but_are/o3m0fpu/
+
+See replies about media ecology. 
+
