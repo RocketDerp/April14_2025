@@ -1127,3 +1127,25 @@ Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3me4uxp3irk
 https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pgnlf/
 
 You know how people used to read nonfiction books before they all became addicts in USA to smartphone touching... we should go back to that.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3ph8zx/
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pi1oi/
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pi2mn/
+
+Gamers on Reddit and their Tweet-think Mario logic. Anti-intellectual gun tech worship.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pj5jt/
+
+"crazy" that media works on Reddit audiences.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pkabz/
+
+Don't forget that satire-washing is the Reddit audience fandom of shit media shit-commenting shit-leaders of tech.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pkg9w/
+
+Mind-blowing comedy for Reddit fandom of shit-commenting. Audience Reddit.
+
+
