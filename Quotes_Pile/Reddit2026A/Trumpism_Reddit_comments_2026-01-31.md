@@ -2141,4 +2141,16 @@ https://old.reddit.com/r/Fauxmoi/comments/1qwp3uk/zohran_mamdani_speaks_on_ai_im
 
 Reddit fiction addicts think that the fiction vs. nonfiction of Bible followers is a new issue. October 7, 2023 reminder of science fiction Quran cult behaviors not enough. People believe in fiction regardless of any "laws" or "10 commandments" or Bible verse "1 John 4:20" instructions otherwise.
 
+https://old.reddit.com/r/politics/comments/1qws929/schumer_and_jeffries_begin_to_cave_on_their/o3r6ytk/
+
+<img width="928" height="345" alt="image" src="https://github.com/user-attachments/assets/2392ce20-1483-48a0-a0e0-7bbe5d97fecb" />
+
+Shit-commenting fandom of shit-posting Reddit shit meme distribution venue. Truth Social fandom of Trump ignorant sit-talk commenting shit. Highly upvoted popular comment, shit-favoring popularity of simple-think Tweet-length.
+
+Dear WE THE PEOPLE: Get rid of your addiction to Twitter-length short 1.5 second commenting messages that mock and mockery with fiction addictions. Stop trying to cram a population of 300 million into messages that fit on an Apple iPhone or Samsung Android phone screen. Fox News HDTV was an issue since year 1996 that Reddit community can not intelligently discuss. Rupert Murdoch Fox News, **ONE YEAR after this 1995 nonfiction difficult articulate verbose book** was published:
+
+* “Science is more than a body of knowledge; it is a way of thinking. I have a (year 1995) foreboding of an America in my children’s or grandchildren’s time — when the United States is a service and information economy; when nearly all the key manufacturing industries have slipped away to other countries; when awesome technological powers are in the hands of a very few, and no one representing the public interest can even grasp the issues; when the people have lost the ability to set their own agendas or knowledgeably question those in authority; when, clutching our crystals and nervously consulting our horoscopes, our critical faculties in decline, unable to distinguish between what feels good and what’s true, we slide, almost without noticing, back into superstition and darkness. The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the **30-second** sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but especially a kind of [celebration of ignorance](https://www.youtube.com/watch?v=wcY-x1VuWtE). As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning — not just of science, but of anything — are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995, page 59
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social https://autistics.life/@RoundSparrow/116019905713693013 }
+
 
