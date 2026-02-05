@@ -995,3 +995,13 @@ https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_anti
 Inversion of Good vs. Evil is a serious problem that Reddit commenting turns into a "Gosh" mockery. Instead of turning to serious nonfiction teaching of the long-standing problem. Reddit end-users who mock away the problem like Trump mocks away every day on Truth Social empire of media. https://thesethingsinside.wordpress.com/2013/04/18/joseph-campbell-says-religious-literalism-sets-satan-in-the-seat-of-god/ 
 
 * "For the lover of that jealous god in the Bible, there is no allowance for the following of one’s own light: the leadership and guidance of one’s own expanding, deepening, enriched experience of the nature of the world and oneself. All life, **all thought**, all meditation, is to be governed by the authority of the shepherds of the group \[the Church\]; and there can be no doubt, from what we know of the history of this tradition, that **this authority was imposed and maintained by force**. But any religious symbol, so interpreted that it refers not to a thought-transcending mystery but to a **thought-enveloping** social order, misappropriates to the lower principle the values of the higher and so (to use a theological turn of phrase) sets Satan in the seat of God." - before year 1968
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pdolk/
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3p9djl/
+
+Anti-education Reddit commenting. Hate for hate. baited into hate worship. "Anti-Christ" is fiction, **hate is real, hate is nonfiction**. Reddit hate prizing, hate inside minds, is nonfiction.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pd6rq/
+
+Using SCIENCE FICTION. Star Wars Andor and The Bible are both science fiction. Magical outer-space Daddy for Jesus. Science fiction. There is no magic supernatural, there is science fiction storytelling.
