@@ -928,3 +928,7 @@ https://old.reddit.com/r/europe/comments/1qwd3o4/ukrainians_warned_for_years_tha
 https://old.reddit.com/r/europe/comments/1qwd3o4/ukrainians_warned_for_years_that_europes_human/o3otfef/
 
 Ukraine war since February 20, 2024 on /r/Europe - the European subreddit, claiming that Russia isn't a "bad guy" currently at hot war with Ukraine... on Europe subreddit.... Hyper-banal reply message. SEE_ALSO: https://old.reddit.com/r/HyperBanalisation description of Reddit mockery of serious discourse with banal replies. "Under the Surkov media invasion (Russia against NATO), USA social media has become an environment where banalisation is the ultimate outcome of every serious conversation. Adam Curtis in 2016 from the UK perspective: emphasized "Hyper Normalization", but Rick Roderick in 1993 far more addressed the USA-centric media usage to banalise. Where brevity serves to dismiss citation, fact-checking, validation, understanding itself!"
+
+https://old.reddit.com/r/europe/comments/1qwd3o4/ukrainians_warned_for_years_that_europes_human/o3oxi20/
+
+"The Devil" is a fiction storytelling character from The Bible and Quran, the Levant Science Fiction Trilogy { Torah, Bible, Quran, Book of Mormon }. Tiny-shirt Reddit commenting message Twitter-thinking mindset patterns. People think "The Devil" and "South Park 2025 Satan" in White House fiction is more real than human beings in the reality of the real world. Putin, Epstein, Trump are nonfiction, but people are so stuffed full of South Park fiction images and Bible science fiction "The Devil" storytelling...
