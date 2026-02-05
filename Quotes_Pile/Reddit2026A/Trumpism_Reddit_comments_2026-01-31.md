@@ -2203,3 +2203,6 @@ https://old.reddit.com/r/therewasanattempt/comments/1qwsu2y/to_be_a_christian/o3
 
 Reddit audience members are passively sitting around commenting while waiting for Trump to die. Instead of addressing the hundreds of millions of people who are in a cult. The Reddit users spend all their free time and spare time commenting about Trump's baby-making sex life and his death, life and death making, and not promoting Dr. Bandy X Lee's leadership on mental health problems. Why isn't Reddit audience turning to nonfiction books and a woman leader of intelligence and education?
 
+https://old.reddit.com/r/therewasanattempt/comments/1qwsu2y/to_be_a_christian/o3rd91m/
+
+Reddit Reistance is a Fake Resistnce. Not real. Reddit is REALLY a fandom of mocking, which Trump leads, a Church Bible mockery - which Reddit responds to with conditioned mocking. Reddit and Trump both share the same values of mockery following.
