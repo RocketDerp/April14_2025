@@ -977,3 +977,16 @@ No, Reddit audience is not kidding. Joke-washing kidding-washing of billionaires
 https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3p8nr9/
 
 Peter Thiel is actively selling his science fiction stories to Reddit fandom about "Anti-Christ" and fantasy "apocalypse" from the Surkov monomyth in February 2026. People love these science fiction stories about South Park Satan fiction and bible apocalypse / Christ / Christian monomyth. Surkov won since March 2013.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3p8pm4/
+
+6 month Reddit account.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3p8guz/
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3p9dlk/
+
+Media mania of Reddit audience. 2-word Twitter-think Tweet-thinking mindset. Media psychosis of high-speed messaging systems. People who never studied 1960's Marshall McLuhan, Professor at University of Toronto. Lost understanding and self-awareness of Reddit media systems impact on audience.
+
+* From September 9, 2014, which is **more than a decade** ... https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ "Russia and the Menace of Unreality: How Vladimir Putin is revolutionizing information warfare. By Peter Pomerantsev. At the NATO summit in Wales last week, General Philip Breedlove, the military alliance’s top commander, made a bold declaration. Russia, he said, is waging “the **most amazing information warfare blitzkrieg we have ever seen in the history of information warfare.**” It was something of an underestimation. The new Russia doesn’t just deal in the petty disinformation, forgeries, lies, leaks, and cyber-sabotage usually associated with information warfare. **It reinvents reality, creating mass hallucinations** that then translate into political action."
+
