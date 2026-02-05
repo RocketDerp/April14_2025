@@ -2207,3 +2207,7 @@ https://old.reddit.com/r/therewasanattempt/comments/1qwsu2y/to_be_a_christian/o3
 
 Reddit community Resistance is a Fake Resistance. Not real. Reddit audience is REALLY a fandom of mocking, which Trump leads, a Church Bible mockery - which Reddit responds to with conditioned mocking. Reddit and Trump both share the same values of mockery following. Trump is doing his Tony Clifton Bible performances and Reddit users think Trump is not an actor doing acting. SNL NYC Trump home town Andy Kaufman techniques. 
 
+https://old.reddit.com/r/wallstreetbets/comments/1qwyyn5/have_you/o3sop8t/
+
+This posting is an image of JD Vance, Vice President. Reddit community is a fandom to hate leaders. Reddit end-users follow hate leadership. Hate-watching image fandom. Cult of hate content. https://en.wikipedia.org/wiki/Hate-watching
+
