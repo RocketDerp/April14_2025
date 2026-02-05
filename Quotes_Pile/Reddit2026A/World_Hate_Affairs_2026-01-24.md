@@ -910,3 +910,15 @@ Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3me4lqbnihk
 https://old.reddit.com/r/europe/comments/1qwd3o4/ukrainians_warned_for_years_that_europes_human/o3oseui/
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3me4maou2z22r https://autistics.life/@RoundSparrow/116018525393872433 }
+
+https://old.reddit.com/r/europe/comments/1qwd3o4/ukrainians_warned_for_years_that_europes_human/o3otvje/
+
+https://old.reddit.com/r/europe/comments/1qwd3o4/ukrainians_warned_for_years_that_europes_human/o3okwkb/
+
+<img width="1139" height="870" alt="image" src="https://github.com/user-attachments/assets/91a46bcb-50fc-40bc-ab02-2852d8de3432" />
+
+Ukraine marked on Reddit flair.
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3me4n5o572c27 https://Autistics.Life/@RoundSparrow/116018574350111113 }
+
+
