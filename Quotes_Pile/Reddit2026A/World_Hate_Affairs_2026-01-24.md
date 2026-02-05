@@ -1069,3 +1069,10 @@ No off-Reddit links. No book quotes. No author names. The most dangerous person 
 * "Benjamin Wallace-Wells on the conservative tech entrepreneur Peter Thiel and how his particular brand of libertarianism is quickly becoming" - https://www.newyorker.com/news/annals-of-populism/the-rise-of-the-thielists
 
 Tech addicts on Reddit, gaming addicts, Fox News HDTV device addicts, etc.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3p9v54/
+
+"mentally unwell" from Bible science fiction media ("Anti-Christ" posting context), Reddit cult media people will not turn to Dr. Bandy X Lee's nonfiction books. Just Twitter-length commenting messages on Reddit saying "mentally unwell" and nothing to rescue or educate people. "mentally unwell" on Reddit media society is street-gang shit-commenting shit-talk shit-posting language of Reddit shit-prizing to insult and mock out-groups / individuals who don't conform to Reddit hive minded thinking. You won't see people discussing nonfiction books about mental health when they throw out these (Information highway metaphors) street-gang signs and symbols.
+
+“The human brain can protect us from seeing and feeling what it believes may be too uncomfortable for us to tolerate. It can lead us to deny, defend, minimize, or rationalize away something that doesn’t fit our worldview.”
+― Dr. Bandy X Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. Published **October 3, 2017**. Page 273. Chapter "TRUMP'S DADDY ISSUES"](https://books.google.com/books?id=g0c4DwAAQBAJ&pg=PA273&dq=%E2%80%9CThe+human+brain+can+protect+us+from+seeing+and+feeling+what+it+believes+may+be+too+uncomfortable%22&hl=en&newbks=1&newbks_redir=1&sa=X)
