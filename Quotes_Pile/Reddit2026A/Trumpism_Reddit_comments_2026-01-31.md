@@ -2199,4 +2199,7 @@ Posting title: "He is acting", yes, they are all acting to Surkov screenplays. U
 
 * Published January 2015, before Trump started run for office in June 2015: https://www.Politico.com/magazine/story/2015/01/putin-russia-tv-113960/ At one end of the table sat one of the country’s most famous political TV presenters. He was small and spoke fast, with a smoky voice: “We all know there will be no real politics,” he said. “But we still have to give our viewers the sense something is happening. They need to be kept entertained.” “So what should we play with?” he asked. “Shall we attack oligarchs? Who’s the enemy this week? **Politics has got to feel like a movie!**”
 
+https://old.reddit.com/r/therewasanattempt/comments/1qwsu2y/to_be_a_christian/o3rbdwk/
+
+Reddit audience members are passively sitting around commenting while waiting for Trump to die. Instead of addressing the hundreds of millions of people who are in a cult. The Reddit users spend all their free time and spare time commenting about Trump's baby-making sex life and his death, life and death making, and not promoting Dr. Bandy X Lee's leadership on mental health problems. Why isn't Reddit audience turning to nonfiction books and a woman leader of intelligence and education?
 
