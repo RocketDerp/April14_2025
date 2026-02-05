@@ -941,3 +941,9 @@ https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_anti
 
 Reddit is a fandom of "South Park Satan in White House" fiction year 2025. South Park fanatics cult of Reddit media cult platform. The "Anti-Christ" is a fictions character from the Quran and Bible science fiction stories. People on Reddit are addicted and attracted to fiction storytelling.
 
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3p9vnk/
+
+To have autism like Greta is to have people go wild with you over their fiction monomyth addictions, such as Peter Thiel with his fiction Bible character stories. Greta speaks in science nonfiction. Peter Thiel is all about "Stand UP For the Big Guy" Allah, Yahweh science fiction characters in outer space metaphors. Greta is about THE LITTLE GAL, Stand Up for The Little Guy...
+
+* “Homo Sapiens have not yet failed. Yes, we are failing, but there is still time to turn everything around. We can still fix this. We still have everything in our own hands.” ― Greta Thunberg, No One Is Too Small to Make a Difference. Published May 30, 2019
+
