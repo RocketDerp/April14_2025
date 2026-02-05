@@ -1017,7 +1017,7 @@ https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_anti
 
 "LMAO" in Reddit comment message. Amused Reddit audience. Billionaires playing fiction characters of "Devil" and "Christ" science fiction is content amusement for Reddit fandom of billionaire content creators. Reddit is a social cesspool training ground of laughing away "LMAO" serious topics. "LMAO" baby-talking commenting about critical and serious humanism issues.
 
-“When a population becomes distracted by trivia, when cultural life is redefined as a perpetual round of entertainments, when serious public conversation becomes a form of baby-talk, when, in short, a people become an audience, and their public business a vaudeville act, then a nation finds itself at risk; culture-death is a clear possibility.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business.
+* “When a population becomes distracted by trivia, when cultural life is redefined as a perpetual round of entertainments, when serious public conversation becomes a form of baby-talk, when, in short, a people become an audience, and their public business a vaudeville act, then a nation finds itself at risk; culture-death is a clear possibility.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business.
 
 https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3p9ebk/
 
@@ -1288,3 +1288,28 @@ https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_anti
 
 Reddit drug dealers / marketing programming. Death-wishing out-groups. Anti-education drug peddlers. ANYTHING but turn to Dr. Bandy X Lee's mental health books for general public (Reddit is the general public). Pill cultists on Reddit.
 
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pab6x/
+
+Programmed dreams.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pbo5h/
+
+Reddit audiences of memes would love commenting about it. Content addicts.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pbxj5/
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pcay1/
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pe37f/
+
+PRETTY SURE REDDIT IS SPREADING IT EVERY HOUR OF EVERY DATE WITH VOTING. Not election day voting, but UPVOTING anything but Dr. Bandy X Lee's nonfiction leadership.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pe8nu/
+
+"lunatic"
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pql9x/
+
+Baby-talk. Shit-commenting lovers of Reddit media shit-postings shit-talk all the time, following Trump shit off Truth Social leadership. Followers of the trending shit. Reddit is shit-core cults of shit-prizing.
+
+* “When a population becomes distracted by trivia, when cultural life is redefined as a perpetual round of entertainments, when **serious public conversation becomes a form of baby-talk**, when, in short, a people become an audience, and their public business a vaudeville act, then a nation finds itself at risk; culture-death is a clear possibility.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business.
