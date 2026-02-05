@@ -1415,3 +1415,8 @@ Reddit audience does anything but sound alarm and call for intellectual defense.
 https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pgx5r/
 
 Reddit audience cult member is creating fiction content on commenting section instead of teaching serious nonfiction by Dr. Bandy X Lee to rescue the USA and NATO from cultists.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3ph4cn/
+
+Fiction addicts who are describing how fiction storytelling by the richest people on Earth is more real than factual reality. Hyperreal audience of Reddit.
+
