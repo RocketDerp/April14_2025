@@ -1029,3 +1029,8 @@ https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_anti
 
 * “Everything in our background has prepared us to know and resist a prison when the gates begin to close around us . . . But what if there are no cries of anguish to be heard? Who is prepared to take arms against a sea of amusements? To whom do we complain, and when, and in what tone of voice, when serious discourse dissolves into giggles? What is the antidote to a culture's being drained by laughter?”
 ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pc2kc/
+
+"Anti-Christ" Reddit topic posting, "batshit crazy" commenting. Media mania. Bible book media mania. Reddit commenting media mania. ANYTHING to avoid Dr. Bandy X Lee's mental health nonfiction books and serious discourse and education for the general public. Instead. shit-commenting on a shit-posting shit worship content center.
+
