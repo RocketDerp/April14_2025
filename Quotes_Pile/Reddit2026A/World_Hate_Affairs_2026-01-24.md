@@ -960,3 +960,12 @@ Stand up for "The Little Gal", "The Little Guy" to billionaires and Trumpism Put
 https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3p8imh/
 
 Every low-effort Reddit comment is a confession of celebration of Elon Musk short-message Tweeting Thinking Twitter Mindset pro-ignorance. Billionaire mind virus that Musk OPENLY DISCUSSES. EVERY SHIT-COMMENT AND SHIT-POST ON REDDIT IS A CONFESSION OF LOVE FOR SHIT! https://www.lemonde.fr/en/international/article/2024/08/13/elon-musk-s-ambition-repopulating-the-planet-and-destroying-the-woke-virus_6714239_4.html
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3p8ug6/
+
+Egoism. Egomania. Media mania consumers of Trickle Down content from billionaires. Competitive education that is Anti-Malala on making education open and smarter world wide teaching practices. A global education concern.
+
+* "An individual has not begun to live until he can rise above the narrow horizons of his particular individualistic concerns to the broader concerns of all humanity." - August 11, 1957. REPEATING_REPEATER " broader concerns of all humanity"
+
+* “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.”
+― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. October 8, 2013
