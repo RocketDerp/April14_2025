@@ -2180,3 +2180,7 @@ Top voted comment on Reddit. Fandom of Trump images.
 https://old.reddit.com/r/goodnews/comments/1qwozz6/as_trump_stands_behind_him_rep_jonathan_l_jackson/o3qi8ob/
 
 White House to --->>> Netflix ---- to Reddit content creation chain by Putin and Trump.
+
+https://old.reddit.com/r/goodnews/comments/1qwozz6/as_trump_stands_behind_him_rep_jonathan_l_jackson/o3qiu1d/
+
+Reddit Trump fandom.
