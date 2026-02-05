@@ -1378,3 +1378,6 @@ https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_anti
 
 Reddit cultists insulting the other cults. Reddit cult member (Reddit end user, the comment creator) context blindness, only ONE person is what Reddit consumer sees, tree and not forest.  https://www.youtube.com/watch?v=09maaUaRT4M&t=743s "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL"
 
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pg4s0/
+
+Tiny-short commenting cultists with South Park fiction addictions loves the performances of Bible fiction "Anti-Christ" on Reddit venue.
