@@ -1148,4 +1148,7 @@ https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_anti
 
 Mind-blowing comedy for Reddit fandom of shit-commenting. Audience Reddit.
 
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pklwl/
+
+Answer to your puzzle: READ NONFICTION. Marshall McLuhan books, Neil Postman books.
 
