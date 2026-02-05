@@ -770,3 +770,11 @@ https://old.reddit.com/r/sports/comments/1qwmzkf/during_a_pro_wrestling_match_on
 This whole posting topic is "simulation of resistance", Audience vs. audience. Cult vs. cult. Wrestling audiences are the front lines of simulacra. Managed opposition, programmed cult media addicts mocking back at the Rupert Murdoch cults. Mock for mock, hate for hate, *hate harder*. ANYTHING but face up to Putin's information warfare. Reddit society unable to engage and comprehend and understand off-Reddit... September 9, 2014: https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ 
 
 OPERA_A Andy, did you hear about this wrestling match one? Reddit audience eats it up. Polarity out-group logic mindsets. REPEATING_REPEATER https://www.youtube.com/watch?v=l2lliT6KK9o 189,797 views February 8, 2018
+
+https://old.reddit.com/r/PublicFreakout/comments/1qwl6es/loud_fck_ice_chants_during_aew_dynamite_main_event/o3pq4ps/
+
+Celebration of Ignorance as defined in 1995 by Carl Sagan. Television **Celebrity Donald Trump** for Reddit television celebrity addictions audiences. Entertainment addicts who diss and insult and mock nonfiction serious books.
+
+* Published January 2015, before Trump started run for office in June 2015: https://www.Politico.com/magazine/story/2015/01/putin-russia-tv-113960/ At one end of the table sat one of the country’s most famous political TV presenters. He was small and spoke fast, with a smoky voice: “We all know there will be no real politics,” he said. “But we still have to give our viewers the sense something is happening. They need to be kept entertained.” “So what should we play with?” he asked. “Shall we attack oligarchs? Who’s the enemy this week? **Politics has got to feel like a movie!**”
+
+
