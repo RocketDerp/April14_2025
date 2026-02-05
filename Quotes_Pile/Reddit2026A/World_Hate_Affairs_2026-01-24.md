@@ -1124,3 +1124,6 @@ https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_anti
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3me4uxp3irk2y https://autistics.life/@RoundSparrow/116019124154080402 }
 
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pgnlf/
+
+You know how people used to read nonfiction books before they all became addicts in USA to smartphone touching... we should go back to that.
