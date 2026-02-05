@@ -2132,3 +2132,8 @@ https://old.reddit.com/r/atheism/comments/1qvqifj/kid_rocks_song_about_loving_un
 https://old.reddit.com/r/atheism/comments/1qvqifj/kid_rocks_song_about_loving_underage_girls/o3k0cl6/
 
 Reddit is fandom. Pleading for more trickle down wealth content creators.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qwp3uk/zohran_mamdani_speaks_on_ai_images_being_spread/o3qkudl/
+
+The Bible fiction didn't need Artificial Intelligence to create a cult. Hand-made cults are an issue and Reddit cult commenting members won't face up to Neil Postman and Marshall McLuhan's nonfiction boooks.
+
