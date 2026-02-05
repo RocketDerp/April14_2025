@@ -1381,3 +1381,14 @@ Reddit cultists insulting the other cults. Reddit cult member (Reddit end user, 
 https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pg4s0/
 
 Tiny-short commenting cultists with South Park fiction addictions loves the performances of Bible fiction "Anti-Christ" on Reddit venue.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pgisn/
+
+Reddit audience just wants to turn everything into sex with little girls topics to comment upon. Epstein / QAnon "Q Drops" cultists on Reddit. Reaction commenting "Daddy Issues" cultists. Who don't stand up and quote women and instead talk about the men and their lust for hookups.
+
+* “We are about to sacrifice our civilization for the opportunity of a very small number of people to continue to make enormous amounts of money. We are about to sacrifice the biosphere so that rich people in countries like mine can live in luxury. But it is the sufferings of the many which pay for the luxuries of the few.” ― Greta Thunberg, No One Is Too Small to Make a Difference. Published May 30, 2019
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pgkk6/
+
+Mind-fucking Reddit audience to self-censor and shut up / stop.
+
