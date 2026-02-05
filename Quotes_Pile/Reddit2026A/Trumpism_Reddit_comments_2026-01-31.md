@@ -2211,3 +2211,14 @@ https://old.reddit.com/r/wallstreetbets/comments/1qwyyn5/have_you/o3sop8t/
 
 This posting is an image of JD Vance, Vice President. Reddit community is a fandom to hate leaders. Reddit end-users follow hate leadership. Hate-watching image fandom. Cult of hate content. https://en.wikipedia.org/wiki/Hate-watching
 
+https://old.reddit.com/r/nottheonion/comments/1qwr1i2/nashville_is_furious_about_power_outages/o3qxxkv/
+
+Reddit fandom of outcomes of Russia winning an information war against "Woke". Reddit community is thrilled to have jokes and memes about how Russia won hearts and minds of USA society. Fiction addicts on Reddit are attracted to bullshit stories talking about consumption of bullshit ideas. Shit-commenting shit-posting society to serve Kremlin information warfare, mindless addicts to joking patterns.
+
+* "Russia’s War on Woke. Putin Is Trying to Unite the Far Right and Undermine the West" https://www.foreignaffairs.com/united-states/russias-war-woke
+
+* January 14, 2026 — An “anti-woke” visa scheme launched by President Vladimir Putin to lure Westerners who share Russia's “spiritual and moral values”  https://tvpworld.com/91045487/putins-anti-woke-russia-visa-struggles-to-draw-westerners
+
+* "Putin raised the anti-woke banner long before it flew over Washington"... February 19, 2025 — Vance's Munich speech **matched many of the issues long promoted by Russia** https://www.washingtonpost.com/world/2025/02/19/putin-raised-anti-woke-banner-long-before-it-flew-over-washington/
+
+Reddit fandoms are thrilled to live inside a pro-bullshit total mockery, as they get to comment their dumb jokes.
