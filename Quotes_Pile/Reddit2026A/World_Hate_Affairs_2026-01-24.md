@@ -1053,3 +1053,7 @@ https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_anti
 Truly pathetic commenting that does nothing to educate and teach the addicts of Reddit about thier compulsive attraction to technology providers. Peter Thiel has Reddit audience eating out of his hand with one single sentence in a Reddit posting title.
 
 * “Technopoly is a state of culture. It is also a state of mind. It consists in the deification of technology, which means that the culture seeks its authorization in technology, finds its satisfactions in technology, and takes its orders from technology.” ― Neil Postman, Technopoly: The Surrender of Culture to Technology. Year 1992.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3phndu/
+
+Downplaying it as "almost tragic", that Rupert Murdoch billionaire fucked over **rural less-educated population** with Levant monomyth storytelling patterns. Typical Reddit denial of the Rupert Murdoch media since October 7, 1996 (Putin's birthday).
