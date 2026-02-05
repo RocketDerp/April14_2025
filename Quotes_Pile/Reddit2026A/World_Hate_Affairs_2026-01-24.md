@@ -1034,3 +1034,9 @@ https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_anti
 
 "Anti-Christ" Reddit topic posting, "batshit crazy" commenting. Media mania. Bible book media mania. Reddit commenting media mania. ANYTHING to avoid Dr. Bandy X Lee's mental health nonfiction books and serious discourse and education for the general public. Instead. shit-commenting on a shit-posting shit worship content center.
 
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pmouy/
+
+"Oh right" message on Reddit, Twitter-length mocking. Peter Thiel mocks first, Reddit audience predictably mocks back with low-effort commenting. Eating the simulation that billionaires create with Reddit media cloud computing systems. Screen game for mockery. ARG.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pbwg2/
+
