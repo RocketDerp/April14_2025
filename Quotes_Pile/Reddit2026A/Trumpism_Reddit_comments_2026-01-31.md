@@ -2145,7 +2145,7 @@ https://old.reddit.com/r/politics/comments/1qws929/schumer_and_jeffries_begin_to
 
 <img width="928" height="345" alt="image" src="https://github.com/user-attachments/assets/2392ce20-1483-48a0-a0e0-7bbe5d97fecb" />
 
-Shit-commenting fandom of shit-posting Reddit shit meme distribution venue. Truth Social fandom of Trump ignorant sit-talk commenting shit. Highly upvoted popular comment, shit-favoring popularity of simple-think Tweet-length.
+Shit-commenting fandom of shit-posting Reddit shit meme distribution venue. Truth Social fandom of Trump ignorant shit-talk commenting shit. Shit-bird Twitter-bird fandom that bird-migrate to Reddit. Highly upvoted popular comment, shit-favoring popularity of simple-think Tweet-length.
 
 Dear WE THE PEOPLE: Get rid of your addiction to Twitter-length short 1.5 second commenting messages that mock and mockery with fiction addictions. Stop trying to cram a population of 300 million into messages that fit on an Apple iPhone or Samsung Android phone screen. Fox News HDTV was an issue since year 1996 that Reddit community can not intelligently discuss. Rupert Murdoch Fox News, **ONE YEAR after this 1995 nonfiction difficult articulate verbose book** was published:
 
