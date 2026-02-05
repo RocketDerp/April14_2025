@@ -904,3 +904,7 @@ https://old.reddit.com/r/europe/comments/1qwd3o4/ukrainians_warned_for_years_tha
 "At this point I think social media sites need to be regulated somehow, because this shit is insane. Its clearly just a tool of manipulation for billionaires and autocrats and a large reason the world as a whole is regressing."
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3me4lqbnihk27 https://autistics.life/@RoundSparrow/116018474422566248 }
+
+https://old.reddit.com/r/europe/comments/1qwd3o4/ukrainians_warned_for_years_that_europes_human/o3oseui/
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3me4maou2z22r https://autistics.life/@RoundSparrow/116018525393872433 }
