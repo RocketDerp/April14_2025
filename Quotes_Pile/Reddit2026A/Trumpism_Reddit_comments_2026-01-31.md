@@ -2137,3 +2137,8 @@ https://old.reddit.com/r/Fauxmoi/comments/1qwp3uk/zohran_mamdani_speaks_on_ai_im
 
 The Bible fiction didn't need Artificial Intelligence to create a cult. Hand-made cults are an issue and Reddit cult commenting members won't face up to Neil Postman and Marshall McLuhan's nonfiction boooks.
 
+https://old.reddit.com/r/Fauxmoi/comments/1qwp3uk/zohran_mamdani_speaks_on_ai_images_being_spread/o3qj7lv/
+
+Reddit fiction addicts think that the fiction vs. nonfiction of Bible followers is a new issue. October 7, 2023 reminder of science fiction Quran cult behaviors not enough. People believe in fiction regardless of any "laws" or "10 commandments" or Bible verse "1 John 4:20" instructions otherwise.
+
+
