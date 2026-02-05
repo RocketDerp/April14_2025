@@ -2164,3 +2164,11 @@ Over a decade of dumb-shit Trumpism on Reddit. Since June 16, 2015 Reddit commun
 /r/BikiniBottomTwitter is a cult of Twitter shit-birds. The posting is "Sponge Bob" television fandom. Trump fandom of Trump shit, dumb as fuck Sponge Bob content media cults. "Bikini Bottom Twitter", Tweet-thinking cult. "live TV" fandom of White House Reality performance of President Tony Clifton acting. Audiences on Reddit eat this shit up. Surkov students won since March 2013 via Reddit, Twitter, etc.
 
 * Entertainment Weekly and other publications noted the difference between hate-watching and watching as a guilty pleasure. "You wouldn't tune in every week to hate-watch a **really bad reality show**. Generally speaking, hate-watching requires a TV series with high ambitions and features a certain amount of aesthetic perfection" - https://en.wikipedia.org/wiki/Hate-watching
+
+https://old.reddit.com/r/law/comments/1qwpy9f/intelligence_director_tulsi_gabbards_office/o3qpt5s/
+
+<img width="1153" height="818" alt="image" src="https://github.com/user-attachments/assets/f6b6a29f-7094-4854-892a-b85f2cbcb3f2" />
+
+ANSWER: Because the entire population is in a **Celebrity media cult** of Donald Trump content. Media cults can not break free from Surkov students. Free Masons Free Thinking is mocked away by Reddit total mockery. Russia won, NATO lost. President Tony Clifton performances have Reddit fandom glued to mockery. No escape mentally seems possible for cultists in over 10 years on Reddit cloud computing systems.
+
+Social post { https://autistics.life/@RoundSparrow/116020031589276591 https://bsky.app/profile/roundsparrow.bsky.social/post/3me57zioo5s2m }
