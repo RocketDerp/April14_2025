@@ -1392,3 +1392,7 @@ https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_anti
 
 Mind-fucking Reddit audience to self-censor and shut up / stop.
 
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pgn4i/
+
+Reddit tech fandom bored with the plot of the media storytelling. Commenting on Reddit about the shit-postings with shit-commenting. Reddit fandom does this with any topic of importance or serious. Drowns it out with low-effort thoughtless commenting.
+
