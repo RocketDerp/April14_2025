@@ -4,6 +4,8 @@ https://old.reddit.com/r/worldnews/comments/1qlem6t/china_no_longer_pentagons_to
 
 Note the reply message, "LMAO" short-message on "Russia" topic, comedy content for Reddit fandom of Putin and Trump.
 
+* Year 2011: "the stage is constantly changing: the country is a dictatorship in the morning, a democracy at lunch, an oligarchy by suppertime, while, backstage, oil companies are expropriated, journalists killed, billions siphoned away. Surkov is at the centre of the show, sponsoring nationalist skinheads one moment, backing human rights groups the next. It’s a strategy of power based on keeping any opposition there may be constantly confused, a ceaseless shape-shifting that is unstoppable because it’s indefinable. This fusion of despotism and postmodernism, in which no truth is certain, is reflected in the craze among the Russian elite for **neuro-linguistic programming** and Eriksonian hypnosis: types of subliminal manipulation based largely on **confusing your opponent**, first developed in the US in the 1960s. **There are countless NLP and Eriksonian training centres in Moscow**, with every wannabe power-wielder shelling out thousands of dollars to learn how to be the next master manipulator." - **20 October year 2011**. https://www.lrb.co.uk/the-paper/v33/n20/peter-pomerantsev/putin-s-rasputin
+
 https://old.reddit.com/r/worldnews/comments/1qlem6t/china_no_longer_pentagons_top_security_priority/o1dvwq9/
 
 7-month Reddit account
