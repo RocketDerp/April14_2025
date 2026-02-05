@@ -2153,4 +2153,7 @@ Dear WE THE PEOPLE: Get rid of your addiction to Twitter-length short 1.5 second
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social https://autistics.life/@RoundSparrow/116019905713693013 }
 
+https://old.reddit.com/r/politics/comments/1qws929/schumer_and_jeffries_begin_to_cave_on_their/o3rdor6/
+
+8 month Reddit account.
 
