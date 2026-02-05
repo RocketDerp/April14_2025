@@ -69,3 +69,13 @@ OPERA_A Alan Alda network censorship TV war Korean war stories. https://www.yout
 https://old.reddit.com/r/aviation/comments/1qvf46q/reddit_mod_deleted_breathtaking_photo_taken_by/o3hewkg/
 
 https://old.reddit.com/r/SipsTea/comments/1qvso0z/what_are_your_questions/o3k8ofc/
+
+https://old.reddit.com/r/ArcRaiders/comments/1qw1gbq/look_at_call_of_duty_that_shts_dead_now_you_never/o3lzyy8/
+
+Toxic popularity. Trump mindsets of Truth Social fandoms.
+
+https://old.reddit.com/r/ArcRaiders/comments/1qw1gbq/look_at_call_of_duty_that_shts_dead_now_you_never/o3m15ji/
+
+https://old.reddit.com/r/ArcRaiders/comments/1qw1gbq/look_at_call_of_duty_that_shts_dead_now_you_never/o3lrhtp/
+
+https://old.reddit.com/r/ArcRaiders/comments/1qw1gbq/look_at_call_of_duty_that_shts_dead_now_you_never/o3m5cb3/
