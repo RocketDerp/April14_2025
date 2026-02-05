@@ -1203,3 +1203,7 @@ Fantasy fandom episode writing for Reddit audience.
 https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pg41z/
 
 "insane", "loon bin", "mental collapse". All Reddit street gang signs (gang signage, symbolic meme street languages) of dumb-shit insulting. Reddit is a total mockery. Fiction addicts and their streets of Internet mockery languages. Anything but quote nonfiction books about USA mental health from Dr. Bandy X Lee, a woman.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pg6t3/
+
+The topic is The Bible science fictions story. The "Anti-Christ" is a character from a book published 2,000 years ago that induces cult behaviors. A book. Reddit fandom thinks "drugs", recency bias. They aren't all on drugs at Mecca. Ignorance of Reddit on media ecology and comparative mythology and how billionaires use science fiction storytelling on Reddit fandoms.
