@@ -1434,3 +1434,5 @@ https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_anti
 
 "When did we start listening to crazy people?" Let's see. This posting is about "Christ" Jesus, Bible in Levant, 2000 years ago when audiences started to retcon the Torah stories from thousands of years earlier. Comparative mythology education is absent in Reddit media cult fandoms.
 
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3phxh0/
+
