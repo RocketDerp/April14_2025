@@ -947,3 +947,9 @@ To have autism like Greta is to have people go wild with you over their fiction 
 
 * “Homo Sapiens have not yet failed. Yes, we are failing, but there is still time to turn everything around. We can still fix this. We still have everything in our own hands.” ― Greta Thunberg, No One Is Too Small to Make a Difference. Published May 30, 2019
 
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pa21e/
+
+Stand up for "The Little Gal", "The Little Guy" to billionaires and Trumpism Putinism. https://en.wikipedia.org/wiki/Putinism Russia oil and earth damaging business model mindsets. Surkov won since March 2013.
+
+* “Some people say that I should study to become a climate scientist so that I can ‘solve the climate crisis’. But the climate crisis has already been solved. We already have all the facts and solutions. All we have to do is to **wake up and change**.” ― Greta Thunberg, No One Is Too Small to Make a Difference.  Published May 30, 2019
+* * " “Joyce is, in the *Wake*, making his own Altamira cave drawings of the entire history of the human mind, in terms of its basic gestures and postures during all the phases of human culture and technology. As his title indicates, he saw that the wake of human progress can disappear again into the night of sacral or auditory man. The Finn cycle of **tribal institutions can return in the electric age**, but if again, then let’s make it a wake or awake or both. Joyce could see no advantage in our remaining locked up in each cultural cycle as in a trance or dream. He discovered the means of living simultaneously in all cultural modes while quite conscious.” - https://www.TheMediumisTheMassage.com/the-book/ the book “The Medium is the Massage: An Inventory of Effects” by media analyst Marshall McLuhan and graphic designer Quentin Fiore, and coordinated by Jerome Agel. It was published in **March 1967**.
