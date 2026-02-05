@@ -1243,3 +1243,34 @@ https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_anti
 https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pvd2n/
 
 Religion is science fiction media. Media addictions are "religion". Reddit is a club of media addicts. Fandoms of media addictions. But Reddit users think only 2,000 year old "Anti Christ" cults exist, not that Reddit itself is a cult center. Bible cult is fiction cult. Reddit cult is fiction cult.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pvdl6/
+
+Peter Thiel is singing "same tune" of the Bible with many other monomyth performers and clergy. Every Church is singing those tunes every Sunday and more. Churches are science fiction fandoms. Fiction venues are Churches. Reddit is also a fiction venue for cultists of fiction, just like Church. Before digital TCP/IP media packet switching networks, people went to physical venues and not virtual Reddit cults. SEE_ALSO Mecca monomyth singers. Jewish Band Leader "The Don" of NYC, Donald F. https://www.youtube.com/watch?v=1Opx_1FkaXs "Godwhacker". 
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pvk32/
+
+Reddit fiction addicts Batman monomyth vs. Bible "Anti-Christ" (Reddit posting title context) fandoms. Fiction vs fiction. Fiction cult of comic books vs. fiction cult of Bible books.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pvms4/
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pwwtt/
+
+"insane"
+
+Mental health insulting street-gang Reddit-speak meme-speaking. Every Reddit meme consumer commenting on different pages at slightly different times. ANYTHING to AVOID GETTING ON THE SAME PAGES. Anything but quote nonfiction books about USA mental health from Dr. Bandy X Lee, a woman.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pxr9a/
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pyfbp/
+
+"sick"
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pz0ss/
+
+Then why are people (We The People) not following Greta as a leader, a woman? Or following Jen Senko, a woman? or following Dr. Bandy X Lee, a woman? Or following Malala, a woman? Tech fandom of male masculine machines... Steve Jobs followers, Bill Gates followers... tech addictions Reddit society.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pb19t/
+
+Reddit is a cult media center for JD Vance "couch couch" chanting, religion ritual of JD Vance cultists.
+
