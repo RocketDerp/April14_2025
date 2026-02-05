@@ -1366,3 +1366,7 @@ https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_anti
 
 "mental health", "unwell". Reddit user that must think hundreds of millions of USA have good mental health and health care system, insurance for health care. Because the issue isn't just one single man. It is the entire population. Reddit context blindness, only ONE person is what Reddit consumer sees, tree and not forest.  https://www.youtube.com/watch?v=09maaUaRT4M&t=743s "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL"
 
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pfylz/
+
+Attracted audience member. Fandom of mental sickness to comment on Reddit about.
+
