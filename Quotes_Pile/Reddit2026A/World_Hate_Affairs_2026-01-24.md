@@ -1017,7 +1017,7 @@ https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_anti
 
 "LMAO" in Reddit comment message. Amused Reddit audience. Billionaires playing fiction characters of "Devil" and "Christ" science fiction is content amusement for Reddit fandom of billionaire content creators. Reddit is a social cesspool training ground of laughing away "LMAO" serious topics. "LMAO" baby-talking commenting about critical and serious humanism issues.
 
-“When a population becomes distracted by trivia, when cultural life is redefined as a perpetual round of entertainments, when serious public conversation becomes a form of baby-talk, when, in short, a people become an audience, and their public business a vaudeville act, then a nation finds itself at risk; culture-death is a clear possibility.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business.
+* “When a population becomes distracted by trivia, when cultural life is redefined as a perpetual round of entertainments, when serious public conversation becomes a form of baby-talk, when, in short, a people become an audience, and their public business a vaudeville act, then a nation finds itself at risk; culture-death is a clear possibility.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business.
 
 https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3p9ebk/
 
@@ -1230,3 +1230,154 @@ https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_anti
 
 Every Reddit meme consumer commenting on different pages at slightly different times. ANYTHING to AVOID GETTING ON THE SAME PAGES. Anything but quote nonfiction books about USA mental health from Dr. Bandy X Lee, a woman.
 
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pso2l/
+
+Fiction addicts on Reddit, fandoms of fiction memes, can not "believe" the real world / reality.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pv1x6/
+
+Followers on Reddit tech fandom are doing the following.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pvcj1/
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pvd2n/
+
+Religion is science fiction media. Media addictions are "religion". Reddit is a club of media addicts. Fandoms of media addictions. But Reddit users think only 2,000 year old "Anti Christ" cults exist, not that Reddit itself is a cult center. Bible cult is fiction cult. Reddit cult is fiction cult.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pvdl6/
+
+Peter Thiel is singing "same tune" of the Bible with many other monomyth performers and clergy. Every Church is singing those tunes every Sunday and more. Churches are science fiction fandoms. Fiction venues are Churches. Reddit is also a fiction venue for cultists of fiction, just like Church. Before digital TCP/IP media packet switching networks, people went to physical venues and not virtual Reddit cults. SEE_ALSO Mecca monomyth singers. Jewish Band Leader "The Don" of NYC, Donald F. https://www.youtube.com/watch?v=1Opx_1FkaXs "Godwhacker". 
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pvk32/
+
+Reddit fiction addicts Batman monomyth vs. Bible "Anti-Christ" (Reddit posting title context) fandoms. Fiction vs fiction. Fiction cult of comic books vs. fiction cult of Bible books.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pvms4/
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pwwtt/
+
+"insane"
+
+Mental health insulting street-gang Reddit-speak meme-speaking. Every Reddit meme consumer commenting on different pages at slightly different times. ANYTHING to AVOID GETTING ON THE SAME PAGES. Anything but quote nonfiction books about USA mental health from Dr. Bandy X Lee, a woman.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pxr9a/
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pyfbp/
+
+"sick"
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pz0ss/
+
+Then why are people (We The People) not following Greta as a leader, a woman? Or following Jen Senko, a woman? or following Dr. Bandy X Lee, a woman? Or following Malala, a woman? Tech fandom of male masculine machines... Steve Jobs followers, Bill Gates followers... tech addictions Reddit society.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pb19t/
+
+Reddit is a cult media center for JD Vance "couch couch" chanting, religion ritual of JD Vance cultists.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pbcdg/
+
+Putin has been grooming the Reddit commenting section consumers for years. Since March 2013. Surkov won.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3p8zqo/
+
+"crazy"
+
+ANSWER: I remember how Reddit behaved before year 2013 when the Internet Research Agency in Saint Petersburg mind-fucked everyone. Surkov won.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pacio/
+
+Reddit drug dealers / marketing programming. Death-wishing out-groups. Anti-education drug peddlers. ANYTHING but turn to Dr. Bandy X Lee's mental health books for general public (Reddit is the general public). Pill cultists on Reddit.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pab6x/
+
+Programmed dreams.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pbo5h/
+
+Reddit audiences of memes would love commenting about it. Content addicts.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pbxj5/
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pcay1/
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pe37f/
+
+PRETTY SURE REDDIT IS SPREADING IT EVERY HOUR OF EVERY DATE WITH VOTING. Not election day voting, but UPVOTING anything but Dr. Bandy X Lee's nonfiction leadership.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pe8nu/
+
+"lunatic"
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pql9x/
+
+Baby-talk. Shit-commenting lovers of Reddit media shit-postings shit-talk all the time, following Trump shit off Truth Social leadership. Followers of the trending shit. Reddit is shit-core cults of shit-prizing.
+
+* “When a population becomes distracted by trivia, when cultural life is redefined as a perpetual round of entertainments, when **serious public conversation becomes a form of baby-talk**, when, in short, a people become an audience, and their public business a vaudeville act, then a nation finds itself at risk; culture-death is a clear possibility.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pap7h/
+
+Fiction fandom of Reddit. Addicts to fiction.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pb5lg/
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pci3n/
+
+"Crazy"
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3peasv/
+
+"insane"
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pee1p/
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3peh6k/
+
+"batshit crazy"
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3peiuo/
+
+2 month Reddit account.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pepo4/
+
+Bible science fiction fandom discussing their storybook on Reddit commenting. Cults of fiction abound.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3perb8/
+
+"lunatic". Tiny-short two-word commenting Twitter-thinking, as programmed by the owners of Reddit and other meme sellers.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3perzx/
+
+"mad man" - Reddit end user who doesn't "believe" - but also doesn't believe in nonfiction section of the public library. Believes in commenting over and over and over at billionaires instead of educating and teaching nonfiction about "madness in men".
+
+* “In Donald Trump, we have a frightening Venn diagram consisting of three circles: the first is extreme present hedonism; the second, narcissism; and the third, **bullying behavior.** These three circles overlap in the middle to create an impulsive, immature, incompetent person who, when in the position of ultimate power, easily slides into the role of tyrant, complete with family members sitting at his proverbial “ruling table.” Like a fledgling dictator, he plants psychological seeds of treachery in **sections of our population that reinforce already negative attitudes**.” ― Bandy X Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. October 3, 2017. Page 44.](https://books.google.com/books?id=g0c4DwAAQBAJ&pg=PA44&dq=%22immature,+incompetent+person+who,+when+in+the+position+of+ultimate+power,+easily+slides+into+the+role+of+tyrant%22&hl=en&newbks=1&newbks_redir=1&sa=X)
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3petal/
+
+"weird". Reddit Twitter-thinking cultists commenting on Bible cultists.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3peub0/
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pft2b/
+
+Playing dumb on Reddit. ANYTHING to avoid quoting a nonfiction book from the public library. In Reddit culture in year 2026, it is extremely uncool to quote nonfiction serious books on important topics.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pfw3s/
+
+"mental health", "unwell". Reddit user that must think hundreds of millions of USA have good mental health and health care system, insurance for health care. Because the issue isn't just one single man. It is the entire population. Reddit context blindness, only ONE person is what Reddit consumer sees, tree and not forest.  https://www.youtube.com/watch?v=09maaUaRT4M&t=743s "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL"
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pfylz/
+
+Attracted audience member. Fandom of mental sickness to comment on Reddit about.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pfzjm/
+
+The Roman Empire in year 380 took it very seriously. But Reddit year 2026 comment community plays dumb and promotes dumb social media engagement question-asking. https://en.wikipedia.org/wiki/Christianity_as_the_Roman_state_religion
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pfzys/
+
+Reddit cultists insulting the other cults. Reddit cult member (Reddit end user, the comment creator) context blindness, only ONE person is what Reddit consumer sees, tree and not forest.  https://www.youtube.com/watch?v=09maaUaRT4M&t=743s "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL"
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pg4s0/
+
+Tiny-short commenting cultists with South Park fiction addictions loves the performances of Bible fiction "Anti-Christ" on Reddit venue.
