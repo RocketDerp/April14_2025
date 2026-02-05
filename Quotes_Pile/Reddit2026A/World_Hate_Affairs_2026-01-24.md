@@ -1360,5 +1360,9 @@ https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_anti
 
 https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pft2b/
 
-Playing dumb on Reddit. ANYTHING to avoid quoting a nonfiction book from the public library.
+Playing dumb on Reddit. ANYTHING to avoid quoting a nonfiction book from the public library. In Reddit culture in year 2026, it is extremely uncool to quote nonfiction serious books on important topics.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pfw3s/
+
+"mental health", "unwell". Reddit user that must think hundreds of millions of USA have good mental health and health care system, insurance for health care. Because the issue isn't just one single man. It is the entire population. Reddit context blindness, only ONE person is what Reddit consumer sees, tree and not forest.  https://www.youtube.com/watch?v=09maaUaRT4M&t=743s "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL"
 
