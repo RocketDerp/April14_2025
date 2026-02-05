@@ -2184,3 +2184,7 @@ White House to --->>> Netflix ---- to Reddit content creation chain by Putin and
 https://old.reddit.com/r/goodnews/comments/1qwozz6/as_trump_stands_behind_him_rep_jonathan_l_jackson/o3qiu1d/
 
 Reddit Trump fandom.
+
+https://old.reddit.com/r/politics/comments/1qwtda4/the_next_democratic_president_better_be_merciless/o3ro26o/
+
+We The People need cult deprogramming.
