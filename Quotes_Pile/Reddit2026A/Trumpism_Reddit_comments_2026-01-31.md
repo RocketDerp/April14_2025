@@ -1164,7 +1164,7 @@ https://old.reddit.com/r/news/comments/1qu6y4y/doj_takes_down_thousands_of_epste
 
 Infamous Epstein has a **media cult** fandom.
 
-People will do ANYTHING and EVERYTHING but put Dr. Bandy X. Lee and Jen Senko at the center of attention and deal with media brainwashing by billionaires. It is a very sickening society, it make me ill and sick, to see so many people who have never studied or did not comprehend what Marshall McLuhan and Neil Postman were teaching and educating the general public about Reddit media systems! The ability to hoard digital data is the message. The Xerox machine, copy machine, is the message. The Epstein private jet is the message. Compulsive media addict behavior is Trump's force over society. Trump is a camera magnet and the audience is in no way self-aware of the Epstein fixation an Trump fixation via information trickle-down from Trump!
+People will do ANYTHING and EVERYTHING but put Dr. Bandy X. Lee and Jen Senko at the center of attention and deal with media brainwashing by billionaires. It is a very sickening society, it make me ill and sick, to see so many people who have never studied or did not comprehend what Marshall McLuhan and Neil Postman were teaching and educating the general public about Reddit media systems! The ability to hoard digital data is the message. The Xerox machine, copy machine, is the message. https://youtu.be/2JIj0Bqbdhk?t=321 The Epstein private jet is the message. Compulsive media addict behavior is Trump's force over society. Trump is a camera magnet and the audience is in no way self-aware of the Epstein fixation an Trump fixation via information trickle-down from Trump!
 
 https://old.reddit.com/r/news/comments/1qu6y4y/doj_takes_down_thousands_of_epstein_documents_for/o381hgw/
 

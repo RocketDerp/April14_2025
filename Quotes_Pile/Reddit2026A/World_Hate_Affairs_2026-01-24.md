@@ -4,6 +4,13 @@ https://old.reddit.com/r/worldnews/comments/1qlem6t/china_no_longer_pentagons_to
 
 Note the reply message, "LMAO" short-message on "Russia" topic, comedy content for Reddit fandom of Putin and Trump.
 
+* Year 2011: "the stage is constantly changing: the country is a dictatorship in the morning, a democracy at lunch, an oligarchy by suppertime, while, backstage, oil companies are expropriated, journalists killed, billions siphoned away. **Surkov** is at the centre of the show, sponsoring nationalist skinheads one moment, backing human rights groups the next. It’s a **strategy of power based on keeping any opposition there may be constantly confused, a ceaseless shape-shifting that is unstoppable** because it’s indefinable. This fusion of despotism and postmodernism, in which no truth is certain, is reflected in the craze among the Russian elite for **neuro-linguistic programming** and Eriksonian hypnosis: types of subliminal manipulation based largely on **confusing your opponent**, first developed in the US in the 1960s. **There are countless NLP and Eriksonian training centres in Moscow**, with every wannabe power-wielder shelling out thousands of dollars to learn how to be the next master manipulator." - **20 October year 2011**. https://www.lrb.co.uk/the-paper/v33/n20/peter-pomerantsev/putin-s-rasputin
+
+OPERA_A "the stage is constantly changing" - **20 October year 2011** https://www.youtube.com/watch?v=AJm6-ZhK00o LYRICS: "Knee deep in the hoopla, sinking in your fight"; "Marconi plays the mamba, listen to the radio, don't you remember?"; "they're always changing corporation names! We just want to dance here, someone stole the stage"... 115,317 views March 6, 2020
+
+Social post { https://MidWest.Social/post/43000469 }
+
+
 https://old.reddit.com/r/worldnews/comments/1qlem6t/china_no_longer_pentagons_top_security_priority/o1dvwq9/
 
 7-month Reddit account
@@ -880,4 +887,346 @@ https://old.reddit.com/r/worldnews/comments/1qvucak/finlands_stubb_we_must_admit
 https://old.reddit.com/r/worldnews/comments/1qvucak/finlands_stubb_we_must_admit_the_us_is_changing/o3kd9uq/
 
 https://old.reddit.com/r/worldnews/comments/1qvucak/finlands_stubb_we_must_admit_the_us_is_changing/o3kmow7/
+
+https://old.reddit.com/r/europe/comments/1qwd3o4/ukrainians_warned_for_years_that_europes_human/o3ofjkn/
+
+https://old.reddit.com/r/europe/comments/1qwd3o4/ukrainians_warned_for_years_that_europes_human/o3o9szo/
+
+https://old.reddit.com/r/europe/comments/1qwd3o4/ukrainians_warned_for_years_that_europes_human/o3onras/
+
+Because We The People are the problem in USA. The commenting creators on Reddit who refuse and avoid to promote and engage mental health leader Dr. Bandy X Lee. People on Reddit use mental health as an insult with the horrific ~~USS medical~~ USA medical system / USA health insurance system. People don't see the gun worship in USA as a gun cult, people don't see the advertising and marketing of medicine as a cult in USA, the cult of brainwashing, cult of media systems, cult of commenting. People on Reddit avoid nonfiction quotes and avoid any serious learning about cults. People just toss around mental illness and cult as insulting shit-talk and shit-posting.
+
+People in USA are proud of shit-posting, it is a pride to shit-post. It is **shit-post MAGA values**. Celebration of Ignorance. **Celebration of Trump Truth Social Shit Postings**. Celebration of Fox News HDTV Shit Posting content. "Locker Room Talk", "Boys will be Boys", Shit-posting shit-for-brains nation. Adult education shit eaters.
+
+* “Science is more than a body of knowledge; it is a way of thinking. I have a (year 1995) foreboding of an America in my children’s or grandchildren’s time — when the United States is a service and information economy; when nearly all the key manufacturing industries have slipped away to other countries; when awesome technological powers are in the hands of a very few, and no one representing the public interest can even grasp the issues; when the people have lost the ability to set their own agendas or knowledgeably question those in authority; when, clutching our crystals and nervously consulting our horoscopes, our critical faculties in decline, unable to distinguish between what feels good and what’s true, we slide, almost without noticing, back into superstition and darkness. The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the **30-second** sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but especially a kind of [celebration of ignorance](https://www.youtube.com/watch?v=wcY-x1VuWtE). As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning — not just of science, but of anything — are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995, page 59
+
+https://old.reddit.com/r/europe/comments/1qwd3o4/ukrainians_warned_for_years_that_europes_human/o3ok288/
+
+https://old.reddit.com/r/europe/comments/1qwd3o4/ukrainians_warned_for_years_that_europes_human/o3ojylz/
+
+https://old.reddit.com/r/europe/comments/1qwd3o4/ukrainians_warned_for_years_that_europes_human/o3oq0xi/
+
+<img width="1501" height="1278" alt="image" src="https://github.com/user-attachments/assets/cdcb90e8-0628-40de-bbb4-c784674e8c7d" />
+
+"At this point I think social media sites need to be regulated somehow, because this shit is insane. Its clearly just a tool of manipulation for billionaires and autocrats and a large reason the world as a whole is regressing."
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3me4lqbnihk27 https://autistics.life/@RoundSparrow/116018474422566248 }
+
+https://old.reddit.com/r/europe/comments/1qwd3o4/ukrainians_warned_for_years_that_europes_human/o3oseui/
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3me4maou2z22r https://autistics.life/@RoundSparrow/116018525393872433 }
+
+https://old.reddit.com/r/europe/comments/1qwd3o4/ukrainians_warned_for_years_that_europes_human/o3otvje/
+
+https://old.reddit.com/r/europe/comments/1qwd3o4/ukrainians_warned_for_years_that_europes_human/o3okwkb/
+
+<img width="1139" height="870" alt="image" src="https://github.com/user-attachments/assets/91a46bcb-50fc-40bc-ab02-2852d8de3432" />
+
+Ukraine marked on Reddit flair.
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3me4n5o572c27 https://Autistics.Life/@RoundSparrow/116018574350111113 }
+
+https://old.reddit.com/r/europe/comments/1qwd3o4/ukrainians_warned_for_years_that_europes_human/o3p7l06/
+
+https://old.reddit.com/r/europe/comments/1qwd3o4/ukrainians_warned_for_years_that_europes_human/o3otfef/
+
+Ukraine war since February 20, 2024 on /r/Europe - the European subreddit, claiming that Russia isn't a "bad guy" currently at hot war with Ukraine... on Europe subreddit.... Hyper-banal reply message. SEE_ALSO: https://old.reddit.com/r/HyperBanalisation description of Reddit mockery of serious discourse with banal replies. "Under the Surkov media invasion (Russia against NATO), USA social media has become an environment where banalisation is the ultimate outcome of every serious conversation. Adam Curtis in 2016 from the UK perspective: emphasized "Hyper Normalization", but Rick Roderick in 1993 far more addressed the USA-centric media usage to banalise. Where brevity serves to dismiss citation, fact-checking, validation, understanding itself!"
+
+https://old.reddit.com/r/europe/comments/1qwd3o4/ukrainians_warned_for_years_that_europes_human/o3oxi20/
+
+"The Devil" is a fiction storytelling character from The Bible and Quran, the Levant Science Fiction Trilogy { Torah, Bible, Quran, Book of Mormon }. Tiny-shirt Reddit commenting message Twitter-thinking mindset patterns. People think "The Devil" and "South Park 2025 Satan" in White House fiction is more real than human beings in the reality of the real world. Putin, Epstein, Trump are nonfiction, but people are so stuffed full of South Park fiction images and Bible science fiction "The Devil" storytelling...
+
+https://old.reddit.com/r/europe/comments/1qwd3o4/ukrainians_warned_for_years_that_europes_human/o3oplpg/
+
+4 month Reddit account. MY ADVICE: Blame it on low-effort banal Reddit joke-washing of Epstein, content addicts who will not turn to Dr. Bandy X Lee's public education leadership on mental health.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3p8s1t/
+
+Reddit is a fandom of "South Park Satan in White House" fiction year 2025. South Park fanatics cult of Reddit media cult platform. The "Anti-Christ" is a fictions character from the Quran and Bible science fiction stories. People on Reddit are addicted and attracted to fiction storytelling.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3p9vnk/
+
+To have autism like Greta is to have people go wild with you over their fiction monomyth addictions, such as Peter Thiel with his fiction Bible character stories. Greta speaks in science nonfiction. Peter Thiel is all about "Stand UP For the Big Guy" Allah, Yahweh science fiction characters in outer space metaphors. Greta is about THE LITTLE GAL, Stand Up for The Little Guy...
+
+* “Homo Sapiens have not yet failed. Yes, we are failing, but there is still time to turn everything around. We can still fix this. We still have everything in our own hands.” ― Greta Thunberg, No One Is Too Small to Make a Difference. Published May 30, 2019
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pa21e/
+
+Stand up for "The Little Gal", "The Little Guy" to billionaires and Trumpism Putinism. https://en.wikipedia.org/wiki/Putinism Russia oil and earth damaging business model mindsets. Surkov won since March 2013.
+
+* “Some people say that I should study to become a climate scientist so that I can ‘solve the climate crisis’. But the climate crisis has already been solved. We already have all the facts and solutions. All we have to do is to **wake up and change**.” ― Greta Thunberg, No One Is Too Small to Make a Difference.  Published May 30, 2019
+* * “Joyce is, in the *Wake*, making his own Altamira cave drawings of the entire history of the human mind, in terms of its basic gestures and postures during all the phases of human culture and technology. As his title indicates, he saw that the wake of human progress can disappear again into the night of sacral or auditory man. The Finn cycle of **tribal institutions can return in the electric age**, but if again, then let’s make it a wake or awake or both. Joyce could see no advantage in our remaining locked up in each cultural cycle as in a trance or dream. He discovered the means of living simultaneously in all cultural modes while quite conscious.” - https://www.TheMediumisTheMassage.com/the-book/ the book “The Medium is the Massage: An Inventory of Effects” by media analyst Marshall McLuhan and graphic designer Quentin Fiore, and coordinated by Jerome Agel. It was published in **March 1967**.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3p8imh/
+
+Every low-effort Reddit comment is a confession of celebration of Elon Musk short-message Tweeting Thinking Twitter Mindset pro-ignorance. Billionaire mind virus that Musk OPENLY DISCUSSES. EVERY SHIT-COMMENT AND SHIT-POST ON REDDIT IS A CONFESSION OF LOVE FOR SHIT! https://www.lemonde.fr/en/international/article/2024/08/13/elon-musk-s-ambition-repopulating-the-planet-and-destroying-the-woke-virus_6714239_4.html
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3p8ug6/
+
+Egoism. Egomania. Media mania consumers of Trickle Down content from billionaires. Competitive education that is Anti-Malala on making education open and smarter world wide teaching practices. A global education concern.
+
+* "An individual has not begun to live until he can rise above the narrow horizons of his particular individualistic concerns to the broader concerns of all humanity." - August 11, 1957. REPEATING_REPEATER " broader concerns of all humanity"
+
+* “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.”
+― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. October 8, 2013
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pahhl/
+
+No, Reddit audience is not kidding. Joke-washing kidding-washing of billionaires is serious fandom on Reddit. Turning everything into jokes about how great it is to hear more billionaire content every day on Reddit. Drowning in Putin messaging, Musk messaging, etc.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3p8nr9/
+
+Peter Thiel is actively selling his science fiction stories to Reddit fandom about "Anti-Christ" and fantasy "apocalypse" from the Surkov monomyth in February 2026. People love these science fiction stories about South Park Satan fiction and bible apocalypse / Christ / Christian monomyth. Surkov won since March 2013.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3p8pm4/
+
+6 month Reddit account.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3p8guz/
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3p9dlk/
+
+Media mania of Reddit audience. 2-word Twitter-think Tweet-thinking mindset. Media psychosis of high-speed messaging systems. People who never studied 1960's Marshall McLuhan, Professor at University of Toronto. Lost understanding and self-awareness of Reddit media systems impact on audience.
+
+* From September 9, 2014, which is **more than a decade** ... https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ "Russia and the Menace of Unreality: How Vladimir Putin is revolutionizing information warfare. By Peter Pomerantsev. At the NATO summit in Wales last week, General Philip Breedlove, the military alliance’s top commander, made a bold declaration. Russia, he said, is waging “the **most amazing information warfare blitzkrieg we have ever seen in the history of information warfare.**” It was something of an underestimation. The new Russia doesn’t just deal in the petty disinformation, forgeries, lies, leaks, and cyber-sabotage usually associated with information warfare. **It reinvents reality, creating mass hallucinations** that then translate into political action."
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3p9wnw/
+
+Inversion of Good vs. Evil is a serious problem that Reddit commenting turns into a "Gosh" mockery. Instead of turning to serious nonfiction teaching of the long-standing problem. Reddit end-users who mock away the problem like Trump mocks away every day on Truth Social empire of media. https://thesethingsinside.wordpress.com/2013/04/18/joseph-campbell-says-religious-literalism-sets-satan-in-the-seat-of-god/ 
+
+* "For the lover of that jealous god in the Bible, there is no allowance for the following of one’s own light: the leadership and guidance of one’s own expanding, deepening, enriched experience of the nature of the world and oneself. All life, **all thought**, all meditation, is to be governed by the authority of the shepherds of the group \[the Church\]; and there can be no doubt, from what we know of the history of this tradition, that **this authority was imposed and maintained by force**. But any religious symbol, so interpreted that it refers not to a thought-transcending mystery but to a **thought-enveloping** social order, misappropriates to the lower principle the values of the higher and so (to use a theological turn of phrase) sets Satan in the seat of God." - before year 1968
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pdolk/
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3p9djl/
+
+Anti-education Reddit commenting. Hate for hate. baited into hate worship. "Anti-Christ" is fiction, **hate is real, hate is nonfiction**. Reddit hate prizing, hate inside minds, is nonfiction.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pd6rq/
+
+Using SCIENCE FICTION. Star Wars Andor and The Bible are both science fiction. Magical outer-space Daddy for Jesus. Science fiction. There is no magic supernatural, there is science fiction storytelling.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pa2w5/
+
+Science fiction fandoms of Levant Allah / Jesus / Yahweh stories, "Anti-Christ" fictions character claims of Thiel. Anti-women, anti-girls, anti-ladies.
+
+* “We felt like the Taliban saw us as like little dolls to control, telling us what to do and how to dress. I thought if God wanted us to be like that He would not have made us all different.”
+― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. October 8, 2013
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3phcan/
+
+"LMAO" in Reddit comment message. Amused Reddit audience. Billionaires playing fiction characters of "Devil" and "Christ" science fiction is content amusement for Reddit fandom of billionaire content creators. Reddit is a social cesspool training ground of laughing away "LMAO" serious topics. "LMAO" baby-talking commenting about critical and serious humanism issues.
+
+“When a population becomes distracted by trivia, when cultural life is redefined as a perpetual round of entertainments, when serious public conversation becomes a form of baby-talk, when, in short, a people become an audience, and their public business a vaudeville act, then a nation finds itself at risk; culture-death is a clear possibility.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3p9ebk/
+
+They think his sexual orientation reaches a demographic audience and fandom on Reddit.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pgcx7/
+
+"LOL". Comedian practitioner. Reddit commenting is a social cesspool training ground of laughing away "LOL" / "LOL cow miking" farm of serious topics. "LOL" baby-talking commenting about critical and serious humanism issues.
+
+* “Everything in our background has prepared us to know and resist a prison when the gates begin to close around us . . . But what if there are no cries of anguish to be heard? Who is prepared to take arms against a sea of amusements? To whom do we complain, and when, and in what tone of voice, when serious discourse dissolves into giggles? What is the antidote to a culture's being drained by laughter?”
+― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pc2kc/
+
+"Anti-Christ" Reddit topic posting, "batshit crazy" commenting. Media mania. Bible book media mania. Reddit commenting media mania. ANYTHING to avoid Dr. Bandy X Lee's mental health nonfiction books and serious discourse and education for the general public. Instead. shit-commenting on a shit-posting shit worship content center.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pmouy/
+
+"Oh right" message on Reddit, Twitter-length mocking. Peter Thiel mocks first, Reddit audience predictably mocks back with low-effort commenting. Eating the simulation that billionaires create with Reddit media cloud computing systems. Screen game for mockery. ARG.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pbwg2/
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pac8u/
+
+Reddit mind-fucking messages. Signals to USA audiences to downplay the billionaire power and threat to society.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pb4jn/
+
+Peter T. is creating content for Reddit audiences, who eat it up. People compulsively mocking the mockery created by Surkov students.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pbxw1/
+
+Truly pathetic commenting that does nothing to educate and teach the addicts of Reddit about thier compulsive attraction to technology providers. Peter Thiel has Reddit audience eating out of his hand with one single sentence in a Reddit posting title.
+
+* “Technopoly is a state of culture. It is also a state of mind. It consists in the deification of technology, which means that the culture seeks its authorization in technology, finds its satisfactions in technology, and takes its orders from technology.” ― Neil Postman, Technopoly: The Surrender of Culture to Technology. Year 1992.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3phndu/
+
+Downplaying it as "almost tragic", that Rupert Murdoch billionaire fucked over **rural less-educated population** with Levant monomyth storytelling patterns. Typical Reddit denial of the Rupert Murdoch media since October 7, 1996 (Putin's birthday).
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pktaz/
+
+No off-Reddit links. No book quotes. No author names. The most dangerous person in entire world, and a shit-commenting shit-posting prizing platform lover. ANYTHING to avoid serious nonfiction books about Peter Thiel's plot to wreck USA published in year 2019.
+
+* 2019 :    
+“Chaos and disruption, I later learned, are central tenets of Bannon's animating ideology. Before catalyzing America's dharmic rebalancing, his movement would first need to instill chaos through society so that a new order could emerge. He was an avid reader of a computer scientist and armchair philosopher who goes by the name Mencius Moldbug, a hero of the alt-right who writes long-winded essays attacking democracy and virtually everything about how modern societies are ordered. Moldbug’s views on truth influenced Bannon, and what Cambridge Analytica would become. Moldbug has written that “nonsense is a more effective organizing tool than the truth,” and Bannon embraced this. “Anyone can believe in the truth,” Moldbug writes, “to believe in nonsense is an unforgettable demonstration of loyalty. It serves as a political uniform. And if you have a uniform, you have an army.”
+― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the [Plot to Break America, page 85](https://books.google.com/books?id=8OW2DwAAQBAJ&pg=PA85&dq=%22serves+as+a+political+uniform.+And+if+you+have+a+uniform,+you+have+an+army.%E2%80%9D&hl=en&newbks=1&newbks_redir=1&sa=X). **year 2019**
+
+* "Benjamin Wallace-Wells on the conservative tech entrepreneur Peter Thiel and how his particular brand of libertarianism is quickly becoming" - https://www.newyorker.com/news/annals-of-populism/the-rise-of-the-thielists
+
+Tech addicts on Reddit, gaming addicts, Fox News HDTV device addicts, etc.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3p9v54/
+
+"mentally unwell" from Bible science fiction media ("Anti-Christ" posting context), Reddit cult media people will not turn to Dr. Bandy X Lee's nonfiction books. Just Twitter-length commenting messages on Reddit saying "mentally unwell" and nothing to rescue or educate people. "mentally unwell" on Reddit media society is street-gang shit-commenting shit-talk shit-posting language of Reddit shit-prizing to insult and mock out-groups / individuals who don't conform to Reddit hive minded thinking. You won't see people discussing nonfiction books about mental health when they throw out these (Information highway metaphors) street-gang signs and symbols.
+
+“The human brain can protect us from seeing and feeling what it believes may be too uncomfortable for us to tolerate. It can lead us to deny, defend, minimize, or rationalize away something that doesn’t fit our worldview.”
+― Dr. Bandy X Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. Published **October 3, 2017**. Page 273. Chapter "TRUMP'S DADDY ISSUES"](https://books.google.com/books?id=g0c4DwAAQBAJ&pg=PA273&dq=%E2%80%9CThe+human+brain+can+protect+us+from+seeing+and+feeling+what+it+believes+may+be+too+uncomfortable%22&hl=en&newbks=1&newbks_redir=1&sa=X)
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3peszp/
+
+3 month Reddit account. "village idiot" mocking. Reddit mockery, mocking back at mock content. Reddit is the idiot fandom commenting about the idiot. OPERA_A "Will it turn us all into Global Village Idiots". https://youtu.be/2JIj0Bqbdhk?t=148 "A Greek word meaning very private person". Marshall McLuhan. 6,379 views May 17, 2009 (I shared this YouTube link during the Arab Spring 2010 over Internet to Tunisia and Algeria)
+
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3ph9nr/
+
+<img width="1300" height="723" alt="image" src="https://github.com/user-attachments/assets/a27d6503-1676-4819-bb0e-09a5de60966f" />
+
+**Imagine being a Reddit commenting person** who can't see the forest for the trees of junk 1.5 second commenting messages all over Reddit day in and day out mocking Trump the billionaire, mocking Musk the billionaire, mocking Fox News the Murdoch billionaire, Reddit comments mockery of Peter Thiel the billionaire, mocking Putin the billionaire since March 2013. Just seeing over and over short shit-commenting about serious topics that drown out all serious discussion. Imagine witnessing people who have no self-awareness of Marshall McLuhan or Neil Postman concepts. Imagine seeing Reddit for what it really is. A billionaire mind-fucking of cowards who hide their real-name behind machines that the billionaires can easily exploit to find real identity of (via LLM systems, etc), but "The Little Guy" peers on Reddit don't know who the author is.
+
+* "What Orwell feared were those who would ban books. What Huxley feared was that there would be no reason to ban a book, for there would be no one who wanted to read one. Orwell feared those who would deprive us of information. Huxley feared those who would give us so much that we would be reduced to passivity and egoism. Orwell feared that the truth would be concealed from us. Huxley feared the truth would be drowned in a sea of irrelevance." - ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. Book on paper. Year 1985. At the public library for any Reddit user to read.
+
+OPERA_A Lyrics: "Unhand that gun! begone! There's no one to fire upon!"; "The man in the street dragging his feet...  Don't wanna hear the bad news. **Imagine your face** there is his place
+Standing inside his brown shoes... You do his nine to five, drag yourself home half alive. And there on **the screen**... A man with a dream..." - NYC Godwhackers Jewish band leader Donald F. https://www.youtube.com/watch?v=Hvz0TOm0zgI why was a 1972 song only put on Youtube late year 2018, too late for Trump? 3,455,783 views October 25, 2018. NYC music cartels.
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3me4sut33q22y https://autistics.life/@RoundSparrow/116018980304813623 }
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3phm0f/
+
+"LMAO", predictably Reddit audience minds blown into meme stupor mindsets. Gender paradox messaging from billionaires down to Reddit tech fandoms.
+
+* “If one man can destroy everything, why can't one girl change it?”
+― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. October 8, 2013
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pby2z/
+
+Reddit shit-commenting, shit-talking, information highway street gang lingo. Meme stupor states of mind where people can not turn to serious intelligent nonfiction books from Dr. Bandy X Lee. Over and over in gaming loops of shit-talking at billionaires in feedback social systems.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pdry2/
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pdwxq/
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pfzw4/
+
+Opposition logic think. Binary logic conditioned audience of tech on Reddit. Machine logic mindset programmed by Elon Musk and other tech billionaires. OPERA_A REPEATING_REPEATER https://www.youtube.com/watch?v=eAyEb36SJYs "Squares", "Square wave" logic thinking. Blockheads (Charlie Brown lingo). "Haley Johnsen - The Logical Song by Supertramp" 160,441 views January 6, 2023 - I know it sounds ABSURD, please tell me WHO I AM? WHO I AM!!!
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pg1gh/
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pgdq1/
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pgffo/
+
+* "The extremists are afraid of books and pens. The power of education frightens them. They are afraid of women. The power of the voice of women frightens them." - July 12, 2013 https://malala.org/news-and-voices/malala-un-speech
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3me4uxp3irk2y https://autistics.life/@RoundSparrow/116019124154080402 }
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pgnlf/
+
+You know how people used to read nonfiction books before they all became addicts in USA to smartphone touching... we should go back to that.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3ph8zx/
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pi1oi/
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pi2mn/
+
+Gamers on Reddit and their Tweet-think Mario logic. Anti-intellectual gun tech worship.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pj5jt/
+
+"crazy" that media works on Reddit audiences.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pkabz/
+
+Don't forget that satire-washing is the Reddit audience fandom of shit media shit-commenting shit-leaders of tech.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pkg9w/
+
+Mind-blowing comedy for Reddit fandom of shit-commenting. Audience Reddit.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pklwl/
+
+Answer to your puzzle: READ NONFICTION. Marshall McLuhan books, Neil Postman books.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pkm6z/
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pkwyw/
+
+"mental health", technology addictions. Machine logic. 
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pl4fr/
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pm4uw/
+
+"crazy"
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pmps9/
+
+Reddit loves mocking back at mockery billionaires.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pna30/
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pnd2l/
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3psrar/
+
+"mentally unwell". Reddit street gang lingo for anti-education.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pt1tn/
+
+Sarcasm-washing. Sarcasm of The Bible crisis, monoomyth mental warfare.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3q2chx/
+
+Fiction fandoms on Reddit.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pdcnl/
+
+Anything but quote nonfiction books from Dr. Bandy X Lee, a woman.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pdq8c/
+
+Does Reddit audience not hear the mockery, the forest of mocking for the shit-posting and shit-commenting trees? Shitpost after shitposts, day in and day out, anti-intellectual meme-washing camp of Reddit.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pdtce/
+
+Because We The People, Reddit end-users We The People, are easily amused and entertained by shit-commenting that billionaires build systems for.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pdy0x/
+
+Fantasy fandom episode writing for Reddit audience.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pg41z/
+
+"insane", "loon bin", "mental collapse". All Reddit street gang signs (gang signage, symbolic meme street languages) of dumb-shit insulting. Reddit is a total mockery. Fiction addicts and their streets of Internet mockery languages. Anything but quote nonfiction books about USA mental health from Dr. Bandy X Lee, a woman.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pg6t3/
+
+The topic is The Bible science fictions story. The "Anti-Christ" is a character from a book published 2,000 years ago that induces cult behaviors. A book. Reddit fandom thinks "drugs", recency bias. They aren't all on drugs at Mecca. Ignorance of Reddit on media ecology and comparative mythology and how billionaires use science fiction storytelling on Reddit fandoms.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pgii1/
+
+<img width="1042" height="721" alt="image" src="https://github.com/user-attachments/assets/79d7cb81-d795-4f18-ac95-f625bf77fced" />
+
+ANSWER: Peter Thiel is creating content for Reddit audiences, Reddit fandoms of mocking. The cults of Reddit, media cultists. Tech cults on Reddit, fiction cults, video gamers. Gaming enthusiasts, cults of Peter Thiel investments. Meme connoisseurs on Reddit. Addicts to gaming media, tech smartphone shit-commenting media. BIBLE CHARACTERS HAVE NO INTELLECTUAL PROPERTY PROTECTION. Mohammad put "Christ" in the Quran / year 635 science fiction retcon. Peter Thiel is following Mohammad male tradition regarding women and retcon rewriting.
+
+* Year 2011: "the stage is constantly changing: the country is a dictatorship in the morning, a democracy at lunch, an oligarchy by suppertime, while, backstage, oil companies are expropriated, journalists killed, billions siphoned away. **Surkov** is at the centre of the show, sponsoring nationalist skinheads one moment, backing human rights groups the next. It’s a **strategy of power based on keeping any opposition there may be constantly confused, a ceaseless shape-shifting that is unstoppable** because it’s indefinable. This fusion of despotism and postmodernism, in which no truth is certain, is reflected in the craze among the Russian elite for **neuro-linguistic programming** and Eriksonian hypnosis: types of subliminal manipulation based largely on **confusing your opponent**, first developed in the US in the 1960s. **There are countless NLP and Eriksonian training centres in Moscow**, with every wannabe power-wielder shelling out thousands of dollars to learn how to be the next master manipulator." - **20 October year 2011**. https://www.lrb.co.uk/the-paper/v33/n20/peter-pomerantsev/putin-s-rasputin
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3me4wwytosc2x https://autistics.life/@RoundSparrow/116019264375633155 }
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pl3c4/
+
+Censorship fandom on Reddit.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pnc73/
+
+Comment full of Reddit street gang signs (gang signage, symbolic meme street languages) of dumb-shit insulting. Reddit is a total mockery. Fiction addicts and their streets of Internet mockery languages. Anything but quote nonfiction books about USA mental health from Dr. Bandy X Lee, a woman.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3po3wb/
+
+Every Reddit meme consumer commenting on different pages at slightly different times. ANYTHING to AVOID GETTING ON THE SAME PAGES. Anything but quote nonfiction books about USA mental health from Dr. Bandy X Lee, a woman.
 
