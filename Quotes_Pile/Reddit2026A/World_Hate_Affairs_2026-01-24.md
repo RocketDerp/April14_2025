@@ -1101,3 +1101,19 @@ https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_anti
 
 * “If one man can destroy everything, why can't one girl change it?”
 ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. October 8, 2013
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pby2z/
+
+Reddit shit-commenting, shit-talking, information highway street gang lingo. Meme stupor states of mind where people can not turn to serious intelligent nonfiction books from Dr. Bandy X Lee. Over and over in gaming loops of shit-talking at billionaires in feedback social systems.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pdry2/
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pdwxq/
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pfzw4/
+
+Opposition logic think. Binary logic conditioned audience of tech on Reddit. Machine logic mindset programmed by Elon Musk and other tech billionaires. OPERA_A REPEATING_REPEATER https://www.youtube.com/watch?v=eAyEb36SJYs "Squares", "Square wave" logic thinking. Blockheads (Charlie Brown lingo). "Haley Johnsen - The Logical Song by Supertramp" 160,441 views January 6, 2023 - I know it sounds ABSURD, please tell me WHO I AM? WHO I AM!!!
+
+
+
+
