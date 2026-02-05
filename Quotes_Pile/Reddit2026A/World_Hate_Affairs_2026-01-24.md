@@ -1226,3 +1226,7 @@ https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_anti
 
 Comment full of Reddit street gang signs (gang signage, symbolic meme street languages) of dumb-shit insulting. Reddit is a total mockery. Fiction addicts and their streets of Internet mockery languages. Anything but quote nonfiction books about USA mental health from Dr. Bandy X Lee, a woman.
 
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3po3wb/
+
+Every Reddit meme consumer commenting on different pages at slightly different times. ANYTHING to AVOID GETTING ON THE SAME PAGES. Anything but quote nonfiction books about USA mental health from Dr. Bandy X Lee, a woman.
+
