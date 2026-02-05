@@ -836,3 +836,11 @@ Tim Finnegan the Brick Mason
 https://old.reddit.com/r/Whatcouldgowrong/comments/1qpk51z/wcgw_if_you_are_inspecting_a_roof_after_a_liquid/
 
 A great Tim Finnegan fall video.  "By all accounts, this insurance adjustor suffered no injuries, popped right up after the fall, and (of course) scurried off to his vehicle and drove drunkenly away. We don't know what happened to those that he might have encountered as a drunk driver thereafter."
+
+&nbsp;
+
+https://old.reddit.com/r/funnyvideos/comments/1qvz0pr/comedy_gold/
+
+Tower of Babel first names.
+
+https://old.reddit.com/r/CuratedTumblr/comments/1qw5cee/the_wait_you_can_see_realization_is_the_funniest/

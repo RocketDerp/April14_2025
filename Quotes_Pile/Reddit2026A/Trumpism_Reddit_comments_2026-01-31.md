@@ -1499,3 +1499,636 @@ People have MISSED so much because Reddit society is anti-FAQ anti-Wiki and pro-
 https://old.reddit.com/r/Snorkblot/comments/1quqmw9/do_kids_really_need_high_school/o3by8qn/
 
 These are the leaders getting the conversation and free time and spare time. Anti-Malala social.
+
+https://old.reddit.com/r/politics/comments/1quz9ro/trump_has_no_authority_to_nationalize_elections/o3drrid/
+
+8 month Reddit account. Twitter-length short-message banal commenting. Top-upvoted popular.
+
+https://old.reddit.com/r/politics/comments/1quz9ro/trump_has_no_authority_to_nationalize_elections/o3dsiay/
+
+Twitter-length short-message. Nonspecific. Unite over what, Superbowl game counting up. Entertainment. Reddit addiction to junk information. No organization of important topics. Why is Reddit community not quoting and linking Dr. Bandy X Lee and following her leadership since October 3, 2017 book published...
+
+https://old.reddit.com/r/politics/comments/1quz9ro/trump_has_no_authority_to_nationalize_elections/o3dstm8/
+
+28 day Reddit account Mocking. No off-Reddit link or book quotes or author names. Feeding the bonfire of anti-intellectual shit-commenting Reddit social.
+
+https://old.reddit.com/r/politics/comments/1quz9ro/trump_has_no_authority_to_nationalize_elections/o3dtb9q/
+
+5 month Reddit account. Banalizing, trivializing.
+
+https://old.reddit.com/r/politics/comments/1quz9ro/trump_has_no_authority_to_nationalize_elections/o3dtlir/
+
+Reddit messages on giving up. Not reforming. Not sanding up for goodness. Just normalizing it.
+
+https://old.reddit.com/r/politics/comments/1quz9ro/trump_has_no_authority_to_nationalize_elections/o3dsh3l/
+
+People don't want to stop their Reddit source of amusement and jokes. We The People on Reddit social and Bluesky social are not halting the mockery and joking about Trump to assert and quote Dr. Bandy X Lee.
+
+https://old.reddit.com/r/politics/comments/1quz9ro/trump_has_no_authority_to_nationalize_elections/o3du9ug/
+
+Everything about the Reddit commenting section screams: Trump Fandom! Anything but promoting serious nonfiction books to address the national mental health crisis and national cults crisis.
+
+https://old.reddit.com/r/politics/comments/1quz9ro/trump_has_no_authority_to_nationalize_elections/o3e38oh/
+
+2 month Reddit account. Left vs. right brain rot. "media machine" - Reddit no-identity media itself.
+
+https://old.reddit.com/r/politics/comments/1quz9ro/trump_has_no_authority_to_nationalize_elections/o3e3sg2/
+
+11 month Reddit account. Anything but organize a FAQ or Wiki and important priorities list.
+
+https://old.reddit.com/r/politics/comments/1quz9ro/trump_has_no_authority_to_nationalize_elections/o3eg857/
+
+Loves it when people don't understand. Giving up on elections this fall.
+
+https://old.reddit.com/r/Music/comments/1quy2hk/sinclair_to_air_kid_rocks_halftime_show_against/o3dj7ko/
+
+Top-upvoted comment. Trump fans on Reddit cheering on that more pro-Trump content is dumbing down society. Cheering on the media cults of Donald Trump content. Reddit fans do not want to address the cult problems with cult deprogramming, as that would remove the entertainment an amusements on Reddit that have become core to Reddit social gathering since June 16, 2015 ... **more than decade of Trump fandom gathering on Reddit social for the mockery and celebration of ignorance** via sarcasm-washing of Trump using Reddit commenting. Those who hate Trump are often the most loyal media fans of Trump content and first to make their mark on Reddit fandom center.
+
+* “Science is more than a body of knowledge; it is a way of thinking. I have a (year 1995) foreboding of an America in my children’s or grandchildren’s time — when the United States is a service and information economy; when nearly all the key manufacturing industries have slipped away to other countries; when awesome technological powers are in the hands of a very few, and no one representing the public interest can even grasp the issues; when the people have lost the ability to set their own agendas or knowledgeably question those in authority; when, clutching our crystals and nervously consulting our horoscopes, our critical faculties in decline, unable to distinguish between what feels good and what’s true, we slide, almost without noticing, back into superstition and darkness. The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the **30-second** sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but especially a kind of [celebration of ignorance](https://www.youtube.com/watch?v=wcY-x1VuWtE). As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning — not just of science, but of anything — are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995, page 59
+
+https://old.reddit.com/r/Music/comments/1quy2hk/sinclair_to_air_kid_rocks_halftime_show_against/o3dor52/
+
+<img width="1087" height="476" alt="image" src="https://github.com/user-attachments/assets/bfaf43c3-7fc7-4990-baa5-31b110df8ff5" />
+
+Yes. I remember. Just as I remember rectangle sports fields are simple patterns for audiences to follow. And that contact football causes brain damage. How armies of medical doctors support very well paid men to run around inside a rectangle while audience members are controlled by billionaire mental manipulators Paul Allen an Jody Allen - who I worked for at age 27 before I fully realized what they were doing to their customers, their "end-users" of software (being "used"), sports teams, private fleet of jets and cruise ships, DreamWorks film production, music production, Jimi Hendrix museum, etc. And how loyal audiences are to owners of entertainers.
+
+I didn't fully grasp the global significance of my first-hand experience in Bellevue Washington year 1996 to 1999 until year 2008 Austin SXSW and by late 2009 when I predicted the Arab Spring Internet revolution in Africa. Even though I had watched the Power of Myth TV series in 1988 after graduating high school, I didn't realize what I had experienced until year 2009. How sports team owners and media systems of ESPN were being used to manipulate people into predictable thinking patterns towards billionaires. 
+
+* PAUL ALLEN is featured by Lesly & Rebollo in the current
+BUSINESS WEEK.  Allen, the third-richest man in the U.S. with
+$8B, "always seems somehow out of place, never quite meshing with
+his surroundings."  By investing in "at least a dozen young"
+media, entertainment, and technology companies" https://www.sportsbusinessjournal.com/Daily/Issues/1996/11/12/Sports-Industrialists/PAUL-ALLEN-THE-MAN-BUILDING-AN-EMPIRE-IN-HIS-QUIRKY-IMAGE/ "Our strategy is to get out
+ahead and run like hell. ... This is cable TV in 1980."  BUSINESS
+WEEK notes "perhaps Allen's eclectic grab bag of entertainment
+properties **will never really make sense to outsiders**."
+* * That $8 billion in 1996 doubled to $17 billion in 1997. In 1997, Allen purchased the Seattle Seahawks NFL team for $194 million to prevent the team from moving. https://www.latimes.com/archives/la-xpm-1997-sep-29-fi-37381-story.html - I was there, 8 or 10 doors down the hallway in 1997, 1998, 1999 as a internal consulting and running the staff social media systems. Billionaires don't just double their wealth in a single year every day. What a high-profile pot of gold I had to secure and watch over.
+
+Didn't make deep sense to me until a decade later... I started revising Marshall McLuhan's 1968 book in year 2009. https://en.Wikipedia.org/wiki/War_and_Peace_in_the_Global_Village and Bill Moyer's interview book from 1988. Rectangle Portland Trailblazers court, rectangle Seattle Seahawks court and mindset audience programming of square-wave block-head logic patterns of billionaires controlling. Inside the rectangle thinking. Steve Blamer caught on to Paul Allen's games.
+
+OPERA_A The Discovery of Heart Strings entertainment sports pulling. https://www.youtube.com/watch?v=cfm4L0TGDrw&t=173s Looking up at ESPN network of Starwave year 1993 founding. 346,610 views April 16, 2020
+
+**Conservative International** announced December 20, 2013. https://www.TheAtlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/ ... Surkov won.
+
+
+https://old.reddit.com/r/Music/comments/1quy2hk/sinclair_to_air_kid_rocks_halftime_show_against/o3dim3v/
+
+Everything is Media Ecology. https://GitHub.com/RocketDerp/April14_2025/blob/main/Media_Ecology/Everything_is_ME.md
+
+https://old.reddit.com/r/law/comments/1qv4ge9/rep_lieu_says_epstein_files_have_allegations_of/o3ey0hv/
+
+https://old.reddit.com/r/law/comments/1qv4ge9/rep_lieu_says_epstein_files_have_allegations_of/o3eybsq/
+
+https://old.reddit.com/r/law/comments/1qv4ge9/rep_lieu_says_epstein_files_have_allegations_of/o3ezg7x/
+
+"insanity"
+
+https://old.reddit.com/r/law/comments/1qv4ge9/rep_lieu_says_epstein_files_have_allegations_of/o3f0chd/
+
+"insane"
+
+https://old.reddit.com/r/law/comments/1qv4ge9/rep_lieu_says_epstein_files_have_allegations_of/o3f1owm/
+
+8 month Reddit account.
+
+https://old.reddit.com/r/law/comments/1qv4ge9/rep_lieu_says_epstein_files_have_allegations_of/o3f4fpw/
+
+https://old.reddit.com/r/law/comments/1qv4ge9/rep_lieu_says_epstein_files_have_allegations_of/o3f3kbs/
+
+https://old.reddit.com/r/Fauxmoi/comments/1qv2pyn/melinda_gates_bombshell_states_her_exhusband_bill/o3ens91/
+
+https://old.reddit.com/r/Fauxmoi/comments/1qv2pyn/melinda_gates_bombshell_states_her_exhusband_bill/o3emvdt/
+
+3 month Reddit account.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qv2pyn/melinda_gates_bombshell_states_her_exhusband_bill/o3enkwe/
+
+https://old.reddit.com/r/Fauxmoi/comments/1qv2pyn/melinda_gates_bombshell_states_her_exhusband_bill/o3ensb7/
+
+https://old.reddit.com/r/Fauxmoi/comments/1qv2pyn/melinda_gates_bombshell_states_her_exhusband_bill/o3eokg1/
+
+https://old.reddit.com/r/Fauxmoi/comments/1qv2pyn/melinda_gates_bombshell_states_her_exhusband_bill/o3f42va/
+
+https://old.reddit.com/r/Fauxmoi/comments/1qv2pyn/melinda_gates_bombshell_states_her_exhusband_bill/o3eoq6f/
+
+https://old.reddit.com/r/Fauxmoi/comments/1qv2pyn/melinda_gates_bombshell_states_her_exhusband_bill/o3esxfi/
+
+https://old.reddit.com/r/Fauxmoi/comments/1qv2pyn/melinda_gates_bombshell_states_her_exhusband_bill/o3essp2/
+
+2 month Reddit account.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qv2pyn/melinda_gates_bombshell_states_her_exhusband_bill/o3etnu5/
+
+8 day Reddit account.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qv2pyn/melinda_gates_bombshell_states_her_exhusband_bill/o3erhi0/
+
+These problems are not unique to the USA. Malala was shot on her school bus as a child for speaking up against elder men and their systemic abuse. Alas, social media only wants to talk about rich people and not actually quote Malala speeches and books on Reddit or Bluesky.
+
+* “We felt like the Taliban saw us as like little dolls to control, telling us what to do and how to dress. I thought if God wanted us to be like that He would not have made us all different.”
+― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. Published October 8, 2013.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qv2pyn/melinda_gates_bombshell_states_her_exhusband_bill/o3et10b/
+
+https://old.reddit.com/r/Fauxmoi/comments/1qv2pyn/melinda_gates_bombshell_states_her_exhusband_bill/o3etrta/
+
+https://old.reddit.com/r/Fauxmoi/comments/1qv2pyn/melinda_gates_bombshell_states_her_exhusband_bill/o3euapv/
+
+I suggest you let Malala pick young non-billionaire leaders of the girls uprising. 
+
+* "Flanked by 193 young people from around the world—one for each current seat in the United Nations—Malala demanded safety and education for all children. Then she introduced a few of her “sisters”—other young women who are working with the Malala Fund, a non-profit promoting education for girls inspired and led by the young Pakistani activist." - https://qz.com/511657/photos-meet-the-six-incredible-girls-helping-malala-to-educate-the-world
+
+https://old.reddit.com/r/Fauxmoi/comments/1qv2pyn/melinda_gates_bombshell_states_her_exhusband_bill/o3ewnhf/
+
+https://old.reddit.com/r/Fauxmoi/comments/1qv2pyn/melinda_gates_bombshell_states_her_exhusband_bill/o3ezf06/
+
+https://old.reddit.com/r/Fauxmoi/comments/1qv2pyn/melinda_gates_bombshell_states_her_exhusband_bill/o3ewu7w/
+
+Look around on Bluesky and see how many use #Malala hashtag. People do not give a shit about standing up for girls. Trump and Epstein are FAR FROM the only abuses in a planet of over 8 billion people. Rich and famous Bill Gates name is why this is on top. If Malala had not been shot by a gun, her January 3, 2009 blog would have been ignored by most people. They fucking shot girls on a school bus!
+
+* "On 9 October 2012, while on a bus in Swat District after taking an exam, Yousafzai and two other girls were shot by a Taliban gunman in an assassination attempt"
+
+Listen to Malala speak, she is intelligent and much of what she wrote an said back from January 3, 2009 to year 2014 is recorded and logged. Read her book from October 8, 2013. EDUCATE GIRLS TO STAND UP TO MEN! Give girls power to articulate what the fuck men are doing to  control and corner them!
+
+https://old.reddit.com/r/Fauxmoi/comments/1qv2pyn/melinda_gates_bombshell_states_her_exhusband_bill/o3f2oj3/
+
+2 month Reddit account.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qv2pyn/melinda_gates_bombshell_states_her_exhusband_bill/o3f372p/
+
+Yes. So many people are slaves to their "Boss Man" of Corporate America values.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qv2pyn/melinda_gates_bombshell_states_her_exhusband_bill/o3f4u7q/
+
+https://old.reddit.com/r/clevercomebacks/comments/1qv1bmm/republican_congressman_outed_as_a_traitor/o3eapba/
+
+Science fiction cult of Bible science fiction. Rupert Murdoch Fox News HDTV fiction cultist. Fiction addiction has wrecked the USA. People can not translate The Bible storybook to Hamlet's Ghost. Bible verse "1 John 4:20" interpretation crisis abounds!
+
+https://old.reddit.com/r/clevercomebacks/comments/1qv1bmm/republican_congressman_outed_as_a_traitor/o3e87cx/
+
+"insane". Twitter screenshot near your children too... The Bible is a storybook, Twitter media is a storybook... it is all media. There is no supernatural, only fiction storytelling off Church venue of Bible or Twitter venue...
+
+https://old.reddit.com/r/clevercomebacks/comments/1qv1bmm/republican_congressman_outed_as_a_traitor/o3ebrt5/
+
+https://old.reddit.com/r/clevercomebacks/comments/1qv1bmm/republican_congressman_outed_as_a_traitor/o3e85tb/
+
+Fiction addiction to Fox News HDTV, SNL "Weekend Update" news HDTV, late-night comedy "news" and Newsmax HDTV is wrecking USA. Fiction vs. nonfiction is far more important education topic than conservative vs. liberal.
+
+https://old.reddit.com/r/clevercomebacks/comments/1qv1bmm/republican_congressman_outed_as_a_traitor/o3edj9a/
+
+Why? if someone say "read Hamlet", or "Read Romeo and Juliet" poetry, you think they are morons? I like Star Wars 1977 and I like The Bible and Quran stories from Mohammad. All science fiction storytelling.  I like this new Apple TV+ "PLUR1BUS" science fiction series, it help teach The Great Seal USA Latin meaning.
+
+* “Half the people in the world think that the metaphors of their religious traditions, for example, are facts. And the other half contends that they are not facts at all. As a result we have people who consider themselves believers because they accept metaphors as facts, and we have others who classify themselves as atheists because they think religious metaphors are lies.” ― Joseph Campbell, Thou Art That: Transforming Religious Metaphor
+
+https://old.reddit.com/r/clevercomebacks/comments/1qv1bmm/republican_congressman_outed_as_a_traitor/o3egdvi/
+
+8 month Reddit account.
+
+https://old.reddit.com/r/videos/comments/1qv50nm/rep_lieu_says_epstein_files_have_allegations_of/o3f1l29/
+
+https://old.reddit.com/r/videos/comments/1qv50nm/rep_lieu_says_epstein_files_have_allegations_of/o3f3uwq/
+
+<img width="1380" height="1346" alt="image" src="https://github.com/user-attachments/assets/94843e24-4338-4c57-8f74-8558ca03964b" />
+
+ANSWER: Russia manipulated minds, the executive function of the mind has been manipulated for the entire population since year 2013. We The People were directly manipulated by the Internet Research Agency, Saint Petersburg. March of year 2013 onward. (Note that the username is suspect of mocking the very technology of tribal IRA warfare).
+
+* "Настало время замечательных историй. Расскажу вам о том (теперь уже можно), как мы с Дональдом Трампом приняли решение освободить Америку и сделать её снова великой. На это нам понадобилось целых 4 года и ещё 2 дня. Всё началось ночью с 6 на 7 ноября 2012 года." https://www.FaceBook.com/konstantin.rykov/posts/10210621124674610 "Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа.", "Дальше оставалось только загрузить эти данные в информационные потоки и социальные сети." - https://www.FaceBook.com/konstantin.rykov/posts/10210643558675446
+
+Social post ( https://autistics.life/@RoundSparrow/116009133511919873 https://bsky.app/profile/roundsparrow.bsky.social/post/3mdygyhy4xs2h }
+
+https://old.reddit.com/r/videos/comments/1qv50nm/rep_lieu_says_epstein_files_have_allegations_of/o3f3ydv/
+
+https://old.reddit.com/r/videos/comments/1qv50nm/rep_lieu_says_epstein_files_have_allegations_of/o3f3kbq/
+
+https://old.reddit.com/r/videos/comments/1qv50nm/rep_lieu_says_epstein_files_have_allegations_of/o3f8rf4/
+
+Wrong. People care very much about Trump content. People prize Trump as an entertainment and joke source. More Trump content, the more the We The People audience gets what no other politician provides. Reddit content addicts are in denial of their own content-driven behaviors.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qv7brt/trump_attacks_kaitlan_collins_for_asking_about/o3fjdlg/
+
+I miss the days when social media users were not all avoidant of nonfiction books.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qv7brt/trump_attacks_kaitlan_collins_for_asking_about/o3fj65g/
+
+1 month Reddit account. Trump fandom pointing out the favorite comedy statements of their POTUS Tony Clifton actor. People who will not stand up and organize a social media education campaign about cult behaviors and cult deprogramming to end the show.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qv7brt/trump_attacks_kaitlan_collins_for_asking_about/o3fjjnr/
+
+https://old.reddit.com/r/Fauxmoi/comments/1qv7brt/trump_attacks_kaitlan_collins_for_asking_about/o3fj0im/
+
+9 month Reddit account. 3 words of the most obvious fandom commenting. Wow, Tony Clifton character is so vile. Darth Vader character is so vile. How about we STOP making Reality TV and entertainment the leadership method of society!!
+
+https://old.reddit.com/r/Fauxmoi/comments/1qv7brt/trump_attacks_kaitlan_collins_for_asking_about/o3fja39/
+
+Trump fandom asks about the performance details.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qv7brt/trump_attacks_kaitlan_collins_for_asking_about/o3fkd9t/
+
+<img width="1923" height="935" alt="image" src="https://github.com/user-attachments/assets/a59233b5-a8d1-458d-8ce8-1dda2798b0cd" />
+
+People encourage it because television video is entertainment! Trump is an actor entertaining a population! Hate-watching TV is a real measurable audience.
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mdylvo5il22h https://autistics.life/@RoundSparrow/116009483151364116 }
+
+https://old.reddit.com/r/Fauxmoi/comments/1qv7brt/trump_attacks_kaitlan_collins_for_asking_about/o3fkekb/
+
+That's the Boss Man that We The People flock to every video delivery. Front page of Reddit instantly.
+
+https://old.reddit.com/r/politics/comments/1qv5ch2/house_speaker_welcomes_trump_call_to_take_over/o3f3zcx/
+
+Nobody wants to take on the mental health and cult problems on Reddit. Dr. Bandy X Lee has been there since year 2017 to quote for educating the public, but Reddit audience doesn't want to address Trump and MAGA mental health issues with intelligent women leaders.
+
+https://old.reddit.com/r/politics/comments/1qv5ch2/house_speaker_welcomes_trump_call_to_take_over/o3f3lmx/
+
+"laughable", exactly. That's what Reddit social is for, laughing at MAGA and laughing at Republicans and laughing at Trump day in and day out. Not recognizing the predictable mob mentality of laughing at the out-group as entertainment and amusement addiction. A joke-washing platform, Reddit . com
+
+* “Everything in our background has prepared us to know and resist a prison when the gates begin to close around us . . . But what if there are no cries of anguish to be heard? Who is prepared to take arms against a sea of amusements? To whom do we complain, and when, and in what tone of voice, when serious discourse dissolves into giggles? What is the antidote to a culture's being drained by laughter?”
+― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. Year 1985.
+
+https://old.reddit.com/r/politics/comments/1qv5ch2/house_speaker_welcomes_trump_call_to_take_over/o3f6em0/
+
+Is there a limit to the reaction commenting on Reddit? Do people ever get enough reactionary patterns in the mind? Dr. Bandy X Lee has been there since year 2017 to quote for educating the public, but Reddit audience doesn't want to address Trump and MAGA mental health issues with intelligent women leaders.
+
+https://old.reddit.com/r/politics/comments/1qv5ch2/house_speaker_welcomes_trump_call_to_take_over/o3f3i89/
+
+2 word lowest-effort commenting from the fandom of politics shows.
+
+https://old.reddit.com/r/politics/comments/1qv5ch2/house_speaker_welcomes_trump_call_to_take_over/o3f6ck9/
+
+https://old.reddit.com/r/politics/comments/1qv5ch2/house_speaker_welcomes_trump_call_to_take_over/o3f39sc/
+
+Such a feedback loop of mocking. Over and over, day after day, high-speed media mockery.
+
+https://old.reddit.com/r/politics/comments/1qv5ch2/house_speaker_welcomes_trump_call_to_take_over/o3f4g76/
+
+https://old.reddit.com/r/politics/comments/1qv5ch2/house_speaker_welcomes_trump_call_to_take_over/o3fciq1/
+
+https://old.reddit.com/r/politics/comments/1qv5ch2/house_speaker_welcomes_trump_call_to_take_over/o3f5rd0/
+
+Reddit audience waits for every MAGA entertainment to drop to comment upon.
+
+https://old.reddit.com/r/politics/comments/1qv5ch2/house_speaker_welcomes_trump_call_to_take_over/o3f68pb/
+
+Look at the Reddit fandom of hate-watching. Fiction pleases audiences.
+
+https://old.reddit.com/r/Economics/comments/1qv85kc/majority_of_americans_say_economy_worse_off_under/o3fq3ju/
+
+Total fucking mockery. Most popular comment: mocking.
+
+https://old.reddit.com/r/Economics/comments/1qv85kc/majority_of_americans_say_economy_worse_off_under/o3frq7c/
+
+2 month Reddit account.
+
+https://old.reddit.com/r/Economics/comments/1qv85kc/majority_of_americans_say_economy_worse_off_under/o3ftk6k/
+
+1 year Reddit account.
+
+https://old.reddit.com/r/Economics/comments/1qv85kc/majority_of_americans_say_economy_worse_off_under/o3fq5dr/
+
+https://old.reddit.com/r/Economics/comments/1qv85kc/majority_of_americans_say_economy_worse_off_under/o3ft8u1/
+
+https://old.reddit.com/r/MurderedByWords/comments/1qv67y0/they_really_could_have_come_up_with_a_better/o3fding/
+
+Pro-measles, pro-disease RFK Jr USA. Russia won. August 24, 2018 never forget: https://www.bbc.com/news/world-us-canada-45294192 This is not a "murder by words" win for Reddit, this is a win for Putin. The IRA words crushed USA and NATO relationships.
+
+https://old.reddit.com/r/MurderedByWords/comments/1qv67y0/they_really_could_have_come_up_with_a_better/o3fbt2e/
+
+Mocking. No social media engagement has ever been more powerful than mockery. It is impossible to defeat. NATO lost.
+
+"Social media companies are struggling to find ways to combat disinformation on their platforms." - Russia won. August 24, 2018 never forget: https://www.bbc.com/news/world-us-canada-45294192 This is not a "murder by words" win for Reddit, this is a win for Putin. The IRA words crushed USA and NATO relationships.
+
+https://old.reddit.com/r/MurderedByWords/comments/1qv67y0/they_really_could_have_come_up_with_a_better/o3fc4rl/
+
+I bet Neil Postman wrote a book about Reddit audience behaviors in year 1985.
+
+https://old.reddit.com/r/MurderedByWords/comments/1qv67y0/they_really_could_have_come_up_with_a_better/o3fldj2/
+
+https://old.reddit.com/r/MurderedByWords/comments/1qv67y0/they_really_could_have_come_up_with_a_better/o3fl1k6/
+
+https://old.reddit.com/r/politics/comments/1qvmvsv/mike_johnson_just_tried_to_correct_the_pope_on/o3imitb/
+
+If I live longer, I may analyze these comments.
+
+https://old.reddit.com/r/politics/comments/1qvmvsv/mike_johnson_just_tried_to_correct_the_pope_on/o3ipdue/
+
+https://old.reddit.com/r/politics/comments/1qvmvsv/mike_johnson_just_tried_to_correct_the_pope_on/o3imvxv/
+
+https://old.reddit.com/r/politics/comments/1qvmvsv/mike_johnson_just_tried_to_correct_the_pope_on/o3io9lu/
+
+See the reply about laughing in the face, the thrill Reddit audience has with MAGA for a source of humor. People don't want to solve the problem, they want a source of comedy out of Trump and Putin.
+
+https://old.reddit.com/r/politics/comments/1qvmvsv/mike_johnson_just_tried_to_correct_the_pope_on/o3io32f/
+
+https://old.reddit.com/r/politics/comments/1qvmvsv/mike_johnson_just_tried_to_correct_the_pope_on/o3iocj5/
+
+https://old.reddit.com/r/politics/comments/1qvmvsv/mike_johnson_just_tried_to_correct_the_pope_on/o3intyq/
+
+Belief in what, science fiction Bible belief? Who is the baby-daddy of Jesus, magical outer-space aliens?
+
+https://old.reddit.com/r/AskReddit/comments/1qvnanc/why_did_republicans_subpoena_the_clintons_over/o3irpoh/
+
+https://old.reddit.com/r/AskReddit/comments/1qvnanc/why_did_republicans_subpoena_the_clintons_over/o3ir17c/
+
+1 month Reddit account.
+
+https://old.reddit.com/r/AskReddit/comments/1qvnanc/why_did_republicans_subpoena_the_clintons_over/o3irxf0/
+
+Reddit fandoms.
+
+https://old.reddit.com/r/AskReddit/comments/1qvnanc/why_did_republicans_subpoena_the_clintons_over/o3iry5c/
+
+But not the Reddit audience. The sickos are ONLY on the stage in Reddit gaze. Not a world wide problem of 8 billion people. Iran, Afghanistan, Pakistan - other examples are never enough to fixate on EVERYONE in the world instead of just status symbols.
+
+https://old.reddit.com/r/ThatsInsane/comments/1qvdx1s/why_is_doj_redacting_the_sender_of_an/o3h14ye/
+
+https://old.reddit.com/r/ThatsInsane/comments/1qvdx1s/why_is_doj_redacting_the_sender_of_an/o3gxxi8/
+
+https://old.reddit.com/r/ThatsInsane/comments/1qvdx1s/why_is_doj_redacting_the_sender_of_an/o3gyiz7/
+
+https://old.reddit.com/r/ThatsInsane/comments/1qvdx1s/why_is_doj_redacting_the_sender_of_an/o3h7cic/
+
+https://old.reddit.com/r/ThatsInsane/comments/1qvdx1s/why_is_doj_redacting_the_sender_of_an/o3h0h3l/
+
+https://old.reddit.com/r/politics/comments/1qvk8ap/steve_bannon_proposes_using_ice_in_elections/o3i4w29/
+
+https://old.reddit.com/r/politics/comments/1qvk8ap/steve_bannon_proposes_using_ice_in_elections/o3i59tn/
+
+https://old.reddit.com/r/politics/comments/1qvk8ap/steve_bannon_proposes_using_ice_in_elections/o3i5scn/
+
+https://old.reddit.com/r/politics/comments/1qvk8ap/steve_bannon_proposes_using_ice_in_elections/o3i767e/
+
+https://old.reddit.com/r/politics/comments/1qvk8ap/steve_bannon_proposes_using_ice_in_elections/o3i7frp/
+
+https://old.reddit.com/r/politics/comments/1qvk8ap/steve_bannon_proposes_using_ice_in_elections/o3i7sk5/
+
+https://old.reddit.com/r/politics/comments/1qvk8ap/steve_bannon_proposes_using_ice_in_elections/o3i569o/
+
+https://old.reddit.com/r/politics/comments/1qvk8ap/steve_bannon_proposes_using_ice_in_elections/o3i5u5q/
+
+https://old.reddit.com/r/politics/comments/1qvk8ap/steve_bannon_proposes_using_ice_in_elections/o3ii8hc/
+
+https://old.reddit.com/r/Fauxmoi/comments/1qvo7gv/jelly_roll_pictured_with_president_trump_donald/o3iwgat/
+
+1 month Reddit account. Tweet-length twitter-thinking. Most popular upvoted comment. Trumpism.
+
+* “Americans no longer talk to each other, they entertain each other. They do not exchange ideas, they exchange images. They do not argue with propositions; they argue with good looks, celebrities and commercials.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. Year 1985. Media studies, Reddit studies, New York University.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qvo7gv/jelly_roll_pictured_with_president_trump_donald/o3ixap3/
+
+https://old.reddit.com/r/Fauxmoi/comments/1qvo7gv/jelly_roll_pictured_with_president_trump_donald/o3iws3p/
+
+https://old.reddit.com/r/Fauxmoi/comments/1qvo7gv/jelly_roll_pictured_with_president_trump_donald/o3iwq4j/
+
+Fandom of horror media. Horror films have a very loyal fandom, no matter how terrible the story, they purchase tickets. That the ICE and Trump fandom. Putin fandom. Surkov won since March 2013.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qvo7gv/jelly_roll_pictured_with_president_trump_donald/o3ixjo7/
+
+The hate-watching audience of { MAGA, ICE, Trump, Jelly Roll, Musk } on Reddit. Fandom of hate. "The act of hate-watching is premised on the audience engaging with media through a satirical lens." https://en.wikipedia.org/wiki/Hate-watching Like Horror show fandoms.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qvo7gv/jelly_roll_pictured_with_president_trump_donald/o3iz1tt/
+
+Hate-watching of their own children. The same kind of hate prizing of Reddit tech-love cloud compute love users. Reddit Social is Fandom of Hate Culture. "The act of hate-watching is premised on the audience engaging with media through a satirical lens." https://en.wikipedia.org/wiki/Hate-watching Like Horror show fandoms.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qvo7gv/jelly_roll_pictured_with_president_trump_donald/o3ixaro/
+
+Fiction outsells nonfiction. Putin and Trump using Surkov techniques are the biggest and most thrilling source of fiction storytelling. Surkov MonoMyth patterns rule, even over LLM systems. Runaway Surkov manipulation of executive function in hearts and minds!
+
+https://old.reddit.com/r/news/comments/1qvqiuf/kid_rocks_song_about_loving_underage_girls/o3je37g/
+
+Sport-thinking, sports mentality, rectangle square-wave field-programmable logic mind-share patterns of NFL, NBA, FIFA, etc. Ahh, my years of analysis 1996 at the top floor offices of Paul Allen Group owner networks and media ESPN Starwave venture capitalists consulting.  OPERA_A If billionaires could condition the patterns in my mind... age 26, what the fuck, Stephen! What is going on here at the Jimi Hendrix EMP! https://www.youtube.com/watch?v=jiU2lrGnT7U - what my tale my thoughts could tell.. 1995 ghosts from a wishing well!
+
+https://old.reddit.com/r/news/comments/1qvqiuf/kid_rocks_song_about_loving_underage_girls/o3jfeax/
+
+yes. But the lyrics are not what's important, reading between the linens. The AUDIENCE flocking of Reddit is what this is all about. Surkov student screenplays for Bluesky and Reddit. Conditioned opposition, simulation of resistance. Surkov monomyth patterns of predictable Reddit behaviors of meme consumers.
+
+This Reddit comment is like the ever-popular: They don't read the Bible! commenting. Yha, they read the CULT behavior and how to wave around the symbolism. The ritual rock.
+
+OPERA_A Long Live Kid Rock, Ghost or Alive! ;) The Players took the field... but the marching band refused to yield. ODDS AND SODS cover of NFL football (American football) for a UK band! https://www.youtube.com/watch?v=6g4v3zaiIII Long Live EMP out of Bellevue, Jimi Hendrix Experience! 
+
+https://old.reddit.com/r/news/comments/1qvqiuf/kid_rocks_song_about_loving_underage_girls/o3jg2da/
+
+To understand Trump's rise in power of USA society, this is it. Tiny-short jokes. Trump is the leader of mockery Reddit.
+
+* 1993 TV is now year 2013 onward Reddit commenting section. "Their life is shit, if you will pardon the expression, and this is a comedy. Because all the troubles that such a life involve are just reduced to banality, just the **common rubble of little one line joke, you follow me? It’s made banal by it.** It’s banalised that way."; "This is the great – to me – ideological function of television and the movies. However extreme the situation, TV can find a way to turn it into a banality." - Texan Rick Roderick, year 1993, Duke University. "Marcuse and One-Dimensional Man". The joking tiny-think meme-think Tweet-think one-dimensional mindset. The Trump fandom on Reddit. https://RickRoderick.org/304-marcuse-and-one-dimensional-man-1993/
+
+https://old.reddit.com/r/news/comments/1qvqiuf/kid_rocks_song_about_loving_underage_girls/o3jegwe/
+
+OPERA_A REPEAT_OVERLOAD_INTENTIONAL SAFETY_DISARM_OVERRIDE CRANK_VOLUME_OPENING_25_SECONDS https://www.youtube.com/watch?v=RRKJiM9Njr8 "My Chemical Romance - Welcome To The Black Parade" 404,606,083 views October 26, 2009 - when I was a young boy, the Founding Fathers spirits took me into the city... son, when you grow up... would you be a roadie for Great Seal of the United States of America? 
+
+https://old.reddit.com/r/news/comments/1qvqiuf/kid_rocks_song_about_loving_underage_girls/o3jf7qq/
+
+Did nobody study Mecca history after 9/11? The Terrorists won, folks! NYC Trump, Fred Trump NYC... September 11. You know, the nonfiction history learning... of the motivations to attack USA?
+
+* "I tell you, freedom and human rights in America are doomed. The U.S. government will lead the American people in — and the West in general — into an unbearable hell and a choking life." [- أسامةبنلادن Al-Jazeera interview, 21 October 2001](/Grim_Blunt/Concerns/Unbearable_Hell_Choking_Life.md)
+
+OPERA_A Decimated Dreams of Mecca and NYC Fred Trump "Daddy" issues... https://youtu.be/RRKJiM9Njr8?t=136 Trump carries us on, to Hell in a Handbasket for the whole world! Putin and Surkov unleashed something they can not control! LLM monomyth reworking engines churning.
+
+https://old.reddit.com/r/news/comments/1qvqiuf/kid_rocks_song_about_loving_underage_girls/o3jf67d/
+
+Free your Birds, free your mind instead! One can only consent to adult mistakes with freedom to choose to self-harm. That's the best we got so far, until we pass the threshold of February 28, 1954 equation.
+
+https://old.reddit.com/r/news/comments/1qvqiuf/kid_rocks_song_about_loving_underage_girls/o3jfrp3/
+
+Trump fandom on Reddit social crying out for more MAGA performances to hate-watch.
+
+https://old.reddit.com/r/news/comments/1qvqiuf/kid_rocks_song_about_loving_underage_girls/o3jgtk0/
+
+Everything is M.E. - Everything is P.R. - Everything is Marshall McLuhan and Neil Postman media ecology self-awareness! SEE_ALSO https://GitHub.com/RocketDerp/April14_2025/blob/working/Media_Ecology/Everything_is_ME.md 
+
+https://old.reddit.com/r/news/comments/1qvqiuf/kid_rocks_song_about_loving_underage_girls/o3jgnot/
+
+This is ACTUALLY WHY Reddit is a fandom to MAGA and Trump: Hate-watching. "Driven by the rise of streaming platforms and social media, hate-watching is rooted in a set of psychological and social motivations and cannot entirely prevent excesses despite its harmless origin." - thrill of watching others self-harm on high-speed electric media systems. 
+
+https://old.reddit.com/r/news/comments/1qvqiuf/kid_rocks_song_about_loving_underage_girls/o3jgb0q/
+
+no comment
+
+https://old.reddit.com/r/news/comments/1qvqiuf/kid_rocks_song_about_loving_underage_girls/o3joimo/
+
+Shit prizing audience of Reddit reminding others to not forget there are other shit choices on the Reddit Internet menus. OPERA_A 57 channels of shit billionaires and millionaires, Bellevue Washington 1996 days. Sports team owner media systems for Mercer Island and world private jet and cruise ship affairs. https://www.youtube.com/watch?v=YAlDbP4tdqc  - Hollywood studios and wired TCP/IP e-mail world of Vulcan Northwest, Inc https://weahomes.com/blog/former-estate-of-microsofts-late-co-founder-paul-allen-lists-for-more-than-dollar555-million Bachelor pads abound.
+
+https://old.reddit.com/r/news/comments/1qvqiuf/kid_rocks_song_about_loving_underage_girls/o3jp4h2/
+
+"cult". he is a leader. media cults. Reddit cult of mockery media.
+
+https://old.reddit.com/r/clevercomebacks/comments/1qvo3xb/if_you_know_you_know/o3ix3fc/
+
+Same Reddit commenting energy as Tweet-thinking Twitter-mindsets, Elon Musk mind virus conditioned. Richest man in the world programming minds on Reddit to upvote this to most-popular comment. I used to work for the richest billionaires in the world, in social media.. what the fuck do I have experience with. Musk is not joking or hiding he does this. https://www.lemonde.fr/en/international/article/2024/08/13/elon-musk-s-ambition-repopulating-the-planet-and-destroying-the-woke-virus_6714239_4.html
+
+https://old.reddit.com/r/clevercomebacks/comments/1qvo3xb/if_you_know_you_know/o3ix4t0/
+
+"media literacy"
+
+Left-right brain rot. Fiction vs. nonfiction is the important measure. Reddit avoids nonfiction. Adult education is Fox News HDTV and shit-commenting on shit-postings.
+
+https://old.reddit.com/r/clevercomebacks/comments/1qvo3xb/if_you_know_you_know/o3iyalv/
+
+OPERA_A Blinded by the laser light burning bits and pits. "Earth Band", Pale Blue Dot pride! https://www.youtube.com/watch?v=Rzk3x3HZbJI Bruce song. 2,111,698 views November 20, 2014
+
+https://old.reddit.com/r/clevercomebacks/comments/1qvo3xb/if_you_know_you_know/o3ixo9g/
+
+That's what people do at fireworks shows. They pay for items they burn.
+
+https://old.reddit.com/r/clevercomebacks/comments/1qvo3xb/if_you_know_you_know/o3izd9i/
+
+THERE IS AN ANSWER! The Great Seal of the United States of America teaching and revival!
+
+OPERA_A Flip to the Eagle. Fly to the Nile river pyramid. "Kayley Bishop - "Fly Like An Eagle" by Steve Miller" https://www.youtube.com/watch?v=OVwqdArFDc0 2,832 views May 16, 2022 - Ready Player ALP, fly to the sea from the rivers of Dublin!
+
+https://old.reddit.com/r/clevercomebacks/comments/1qvo3xb/if_you_know_you_know/o3iz0s1/
+
+https://old.reddit.com/r/clevercomebacks/comments/1qvo3xb/if_you_know_you_know/o3j0hyp/
+
+If only FAQ and Wiki systems could be used on Reddit. but we have Trump in power because Reddit social is anti-Wiki anti-FAQ in favor of low-effort commenting interactive gaming. ARG abounds.
+
+https://old.reddit.com/r/clevercomebacks/comments/1qvo3xb/if_you_know_you_know/o3iw0xo/
+
+Recent Reddit account. Created on Putin's Birthday. Not that that is relevant,but it is relevant to the context of this GitHub project.
+
+* Loud Wire 2017 https://loudwire.com/advisor-vladimir-putin-five-finger-death-punch/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qvsgt6/the_media_bias_is_crazy/o3k0bvy/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qvsgt6/the_media_bias_is_crazy/o3ju4j3/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qvsgt6/the_media_bias_is_crazy/o3jwbgw/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qvsgt6/the_media_bias_is_crazy/o3jtuq7/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qvsgt6/the_media_bias_is_crazy/o3jygvq/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qvsgt6/the_media_bias_is_crazy/o3jtw4n/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qvsgt6/the_media_bias_is_crazy/o3jymaj/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qvsgt6/the_media_bias_is_crazy/o3jymt3/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qvsgt6/the_media_bias_is_crazy/o3k4ilj/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qvsgt6/the_media_bias_is_crazy/o3k8t8w/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qvsgt6/the_media_bias_is_crazy/o3k1fd2/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qvsgt6/the_media_bias_is_crazy/o3k087b/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qvsgt6/the_media_bias_is_crazy/o3k0xxt/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qvsgt6/the_media_bias_is_crazy/o3kdqgr/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qvsgt6/the_media_bias_is_crazy/o3kdx8p/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qvsgt6/the_media_bias_is_crazy/o3kdazn/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qvsgt6/the_media_bias_is_crazy/o3kdorw/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qvsgt6/the_media_bias_is_crazy/o3kf2rv/
+
+https://old.reddit.com/r/politics/comments/1qvrx1f/rand_paul_on_trump_call_to_nationalize_elections/o3jp35s/
+
+Post submitter, top-upvoted comment. Cover-fire for Trump. Kremlin "playing dumb" with Tweet-think Twitter-length short messaging to prime Reddit fandom that Trump is not a threat and harmless. Downplaying Putin's puppet as a danger to society. Downplaying Dr. Bandy X Lee's public education. This is the cool-down period for the audience before the next surge of chaos. Signaling the audience that Trump is a dunce and idiot and moron and nobody is smarter than Trump that is pushing the Reddit messaging signals since March 2013. Surkov won. The "can not read" resonates so much with Reddit fandom. Interpretation, comprehension, understanding, **nonfiction serious book authors** and pro-Malala mindsets are avoided in favor of setting an incredibly low bar of Trump mocking, right into the hands of Surkov students total mockery media culture.
+
+https://old.reddit.com/r/politics/comments/1qvrx1f/rand_paul_on_trump_call_to_nationalize_elections/o3jp9jq/
+
+Reddit fandom of Reality TV / Reality Reddit media... mind blown at plot twist in scripted Reality Kremlin performances, Surkov student screenplays. Promoting the simplistic logic of brand loyalty / name recognition of 100% always false or 100% always true sources of information and analysis. Twitter-thinking messages to set minds.
+
+https://old.reddit.com/r/politics/comments/1qvrx1f/rand_paul_on_trump_call_to_nationalize_elections/o3jrwo8/
+
+Social media engagement technique: asking dumb simple questions to audience from audience.
+
+Yes, they all know that dominating over key symbol of the Constitution and other symbolism manipulation is important. They know the audience reactions this will get for Reddit fandom that wants plot twists and "breaking bad" character progression. Surkov won since March 2013.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qvursh/finneas_responds_to_a_usa_today_piece_calling/o3kcoah/
+
+9 month Reddit account. Trump celebrity fandom of celebrity itself via Reddit.
+
+Everything is Media Ecology. https://github.com/RocketDerp/April14_2025/blob/main/Media_Ecology/Everything_is_ME.md
+
+https://old.reddit.com/r/Fauxmoi/comments/1qvursh/finneas_responds_to_a_usa_today_piece_calling/o3kdjon/
+
+Front page of Reddit as fast as possible this story made. It is hate-content for the Reddit fandom of hate leadership. Mass dehumanization tech lovers on Reddit flock to this post.
+
+https://old.reddit.com/r/popculturechat/comments/1qvq8yk/woody_allens_wife_soonyi_previn_emails_jeffrey/o3jekfn/
+
+Reddit is for Epstein fandom in 2026, to upvoted fan comment.
+
+https://old.reddit.com/r/popculturechat/comments/1qvq8yk/woody_allens_wife_soonyi_previn_emails_jeffrey/o3jcloh/
+
+Yha, because Dr. Bandy X Lee's books on mental health of the nation... are avoided on Reddit. People don't want to educate and teach how to prevent this from happening, people want to consume billionaire originated content.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qvuc10/trump_wins/o3kbjhq/
+
+CALL IT WHAT IT IS!!! REDDIT IS A TRUMP HATE-WATCHING FANDOM! REDDIT IS A TRUMP MEDIA VENUE!!! FOR ADDICTS TO SHIT-POSTING SHIT-CONTENT PUTIN-SHIT!!! TRUMP IS A PUPPET PUTIN MANIPULATES, AND REDDIT IS MANIPULATED TOO!!!!
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social https://autistics.life/@RoundSparrow/116013908725310348 https://MidWest.Social/post/42958583 }
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qvuc10/trump_wins/o3kcbpz/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qvuc10/trump_wins/o3kdk31/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qvuc10/trump_wins/o3kd89k/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qvuc10/trump_wins/o3ke41y/
+
+Prayers for more media about Trump. NEVER ENOUGH, NEVER TOO MUCH!
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qvuc10/trump_wins/o3khcp9/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qvuc10/trump_wins/o3kazxv/
+
+QAnon amplified by Putin. SEE_ALSO: https://old.reddit.com/r/QAnonRussia/ and how Reddit society can't escape pre-programmed reactionary mindsets and see how Putin organized QAnon promotion and exploitation of USA minds using Reddit meme platform.
+
+https://old.reddit.com/r/atheism/comments/1qvqifj/kid_rocks_song_about_loving_underage_girls/o3jfifp/
+
+He programmed the music. The music cartels programmed the distribution to audiences. Programming minds via monomyth media patterns. 
+
+https://old.reddit.com/r/atheism/comments/1qvqifj/kid_rocks_song_about_loving_underage_girls/o3jejy1/
+
+https://old.reddit.com/r/atheism/comments/1qvqifj/kid_rocks_song_about_loving_underage_girls/o3jedwf/
+
+https://old.reddit.com/r/atheism/comments/1qvqifj/kid_rocks_song_about_loving_underage_girls/o3jgeyv/
+
+https://old.reddit.com/r/atheism/comments/1qvqifj/kid_rocks_song_about_loving_underage_girls/o3jfs4e/
+
+Jesus mother is impregnated by an outer-space Daddy without permission. Bamboozled.
+
+https://old.reddit.com/r/atheism/comments/1qvqifj/kid_rocks_song_about_loving_underage_girls/o3jha5y/
+
+https://old.reddit.com/r/atheism/comments/1qvqifj/kid_rocks_song_about_loving_underage_girls/o3jfxwv/
+
+https://old.reddit.com/r/atheism/comments/1qvqifj/kid_rocks_song_about_loving_underage_girls/o3ji2ul/
+
+https://old.reddit.com/r/atheism/comments/1qvqifj/kid_rocks_song_about_loving_underage_girls/o3jhgya/
+
+https://old.reddit.com/r/atheism/comments/1qvqifj/kid_rocks_song_about_loving_underage_girls/o3jhbjb/
+
+https://old.reddit.com/r/atheism/comments/1qvqifj/kid_rocks_song_about_loving_underage_girls/o3jig1y/
+
+https://old.reddit.com/r/atheism/comments/1qvqifj/kid_rocks_song_about_loving_underage_girls/o3jhkc9/
+
+Levant traditional values.
+
+https://old.reddit.com/r/atheism/comments/1qvqifj/kid_rocks_song_about_loving_underage_girls/o3jk3de/
+
+https://old.reddit.com/r/atheism/comments/1qvqifj/kid_rocks_song_about_loving_underage_girls/o3jkebi/
+
+https://old.reddit.com/r/atheism/comments/1qvqifj/kid_rocks_song_about_loving_underage_girls/o3jl71n/
+
+Amused Reddit fandom of Trumpism. Neil Postman was correct in his 1985 nonfiction book about Reddit end-user behaviors.
+
+https://old.reddit.com/r/atheism/comments/1qvqifj/kid_rocks_song_about_loving_underage_girls/o3k7ee1/
+
+https://old.reddit.com/r/atheism/comments/1qvqifj/kid_rocks_song_about_loving_underage_girls/o3jioud/
+
+https://old.reddit.com/r/atheism/comments/1qvqifj/kid_rocks_song_about_loving_underage_girls/o3jlvya/
+
+https://old.reddit.com/r/atheism/comments/1qvqifj/kid_rocks_song_about_loving_underage_girls/o3jo9q5/
+
+https://old.reddit.com/r/atheism/comments/1qvqifj/kid_rocks_song_about_loving_underage_girls/o3jtq5y/
+
+https://old.reddit.com/r/atheism/comments/1qvqifj/kid_rocks_song_about_loving_underage_girls/o3juoe6/
+
+https://old.reddit.com/r/atheism/comments/1qvqifj/kid_rocks_song_about_loving_underage_girls/o3jn22u/
+
+https://old.reddit.com/r/atheism/comments/1qvqifj/kid_rocks_song_about_loving_underage_girls/o3k0cl6/
+
+Reddit is fandom. Pleading for more trickle down wealth content creators.

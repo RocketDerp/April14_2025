@@ -45,3 +45,9 @@ https://old.reddit.com/r/CuratedTumblr/comments/1qtb8a6/relationships/
 https://old.reddit.com/r/PeterExplainsTheJoke/comments/1qu2g8e/something_something_about_dating_chris_can_you/
 
 Choice marriage honest / values. ex-lovers.
+
+&nbsp;
+
+Sports stars, famous people, celebrity 
+
+https://old.reddit.com/r/StandUpComedy/comments/1quss99/athletes_need_to_stop_thanking_god/

@@ -16,3 +16,7 @@ Surkovian Governing.
 Surkovian Information Warfare.     
 Surkovian loss, War Against Realty / War Against Nonfiction.    
 
+bypass censors   
+
+https://old.reddit.com/r/startrekmemes/comments/1qv8t64/ds9_is_still_relevant/
+

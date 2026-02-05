@@ -637,3 +637,247 @@ https://old.reddit.com/r/WorkReform/comments/1qtw3sn/if_cuck_schumer_put_even_ha
 Labor and money, especially people using social media, should be directed towards Malala's education and teaching so people GRASP the values of terrorism in Palestine. We need to reform the terrorist clergy systems in the 3 Levant religions.
 
 * "The extremists are afraid of books and pens. The power of education frightens them. They are afraid of women. The power of the voice of women frightens them." - July 12, 2013 https://malala.org/news-and-voices/malala-un-speech
+
+https://old.reddit.com/r/StandUpComedy/comments/1quss99/athletes_need_to_stop_thanking_god/o3clb51/
+
+Blame God for an earthquake. Blame god for COVID-2019 deaths.
+
+https://old.reddit.com/r/StandUpComedy/comments/1quss99/athletes_need_to_stop_thanking_god/o3cs2i2/
+
+God hates some people, the prayers people do to death-wish others. I've seen so many prayers to death-wish Trump from science fiction Bible believers in USA. I want WE THE PEOPLE, human beings, every person age 12 and over voter or non-voter, to STAND UP and teach scientist Dr. Bandy X Lee's public education about Trump mental health to hundreds of millions of media cultists of { Fox News HDTV, Twitter Social, Reddit Social, Truth Social, Facebook, Newsmax HDTV, etc }. Dr. Bandy X Lee is leading but people need to promote, quote her books, follow!
+
+https://old.reddit.com/r/StandUpComedy/comments/1quss99/athletes_need_to_stop_thanking_god/o3cjavz/
+
+And if we quoted it every day since June 16, 2015 and revived the message of comprehension and understanding of Bible verse "1 John 4:20" crises. You have not SEEN Jesus, it is WRONG to say "I Love Jesus" - it's all there in Bible verse "1 John 4:20". We all should have been repeating and sharing George Carlin until every person grasped the concept!
+
+https://old.reddit.com/r/videos/comments/1qut3rh/jeffrey_epsteins_links_to_putin_revealed_with/o3cjlcw/
+
+World Sex Hate Affairs
+
+https://old.reddit.com/r/videos/comments/1qut3rh/jeffrey_epsteins_links_to_putin_revealed_with/o3cldan/
+
+Saturday October 7, 2023 is Putin's Birthday in Palestine. Look it up! https://TheHill.com/opinion/international/4250708-putins-fingerprints-are-on-hamas/ - World hate Affairs. Anti-Malala Palestine, Anti-Malala Israel, hate for hate vs. hate clergy out-group teachings in the Levant.
+
+https://old.reddit.com/r/videos/comments/1qut3rh/jeffrey_epsteins_links_to_putin_revealed_with/o3ch44w/
+
+https://old.reddit.com/r/videos/comments/1qut3rh/jeffrey_epsteins_links_to_putin_revealed_with/o3cl59o/
+
+People need to address the population wide, age 12 to age 120, not just Republicans - mental health issues. The aftermath behavioral and mindset issues of Cambridge Analytica psychologists. We The People need to deal with the MAGA cults, Fox News HDTV cults, Newsmax cults, Twitter social cults, Truth Social media cultists, etc. NOW! Dr. Bandy X Lee should be getting constant attention and quotes on every media plaform, NOW!!!
+
+https://old.reddit.com/r/videos/comments/1qut3rh/jeffrey_epsteins_links_to_putin_revealed_with/o3cnlrb/
+
+People need to be drawing timelines. FAQ, Wiki systems, this GitHub project, etc. Private jet, **Trump in Moscow on November 8, 2013** for sexual performances show, leading women in front of cameras for power and wealth concentration! Anti-love "girls just for sex" anti-compassion media event. Moscow. November 8, 2013.
+
+https://old.reddit.com/r/videos/comments/1qut3rh/jeffrey_epsteins_links_to_putin_revealed_with/o3cxoh0/
+
+https://old.reddit.com/r/videos/comments/1qut3rh/jeffrey_epsteins_links_to_putin_revealed_with/o3cl60x/
+
+https://old.reddit.com/r/videos/comments/1qut3rh/jeffrey_epsteins_links_to_putin_revealed_with/o3dmdmf/
+
+https://old.reddit.com/r/videos/comments/1qut3rh/jeffrey_epsteins_links_to_putin_revealed_with/o3dgnj9/
+
+https://old.reddit.com/r/videos/comments/1qut3rh/jeffrey_epsteins_links_to_putin_revealed_with/o3d30n0/
+
+Trump was PARADING girls to dominate them in front of Cameras in Moscow on November 8, 2013! Wake the fuck up USA, he does his domination WITH THE CAMERA every day! Cults of Trump images, Trump name cults, Trump bling cults all over Reddit! Study Neil Postman's 1985 book! Moscow fucking Russia, year 2013!! OPERA_A Styx, Chicago city band. https://www.youtube.com/watch?v=swVRj7NDWcg 1,272,445 views July 29, 2018 Trump LEADS with mind exploitation of males, "Alpha male" bullshit! We need to TEACH AND EDUCATE! Rock Opera!
+
+https://old.reddit.com/r/videos/comments/1qut3rh/jeffrey_epsteins_links_to_putin_revealed_with/o3d3tl0/
+
+Insecurity media environment, mind wars, information warfare ground zero against USA hearts and minds. Read the comment replies on this comment...
+
+https://old.reddit.com/r/videos/comments/1qut3rh/jeffrey_epsteins_links_to_putin_revealed_with/o3cjwdc/
+
+Extreme tiny-short logic, one-bit thinking. Minds blown on Reddit to ignore all the evidence. Trump is just a "normal" President and this Reddit posting about Epstein is just "normal" way things were before the Internet Research Agency factually invaded Reddit. March 2, 2018 **BBC world news**, a non-USA news source. https://www.BBC.com/news/technology-43255285
+
+Reddit audience does not quote nonfiction books. No FAQ, no Wiki, just tiny-short shit-commenting and shit-posting prizing from Truth Social leadership in 2026. It was not this way this severely in year 2012 and before on serious important topics. Little tiny comments that dismiss details of important understandings of information warfare out of the Kremlin; Surkov techniques.
+
+https://old.reddit.com/r/videos/comments/1qut3rh/jeffrey_epsteins_links_to_putin_revealed_with/o3d0cxs/
+
+Israel's October 7, 2023 "intelligence failure" (bigger than 9/11) was on Putin's Birthday morning! Saturday! While children were right near the danger zone. We to believe Israel doesn't love their children? OPERA_A https://www.youtube.com/watch?v=wHylQRVN2Qs - "Russians... Love their children too?" lyrics.
+
+https://old.reddit.com/r/videos/comments/1qut3rh/jeffrey_epsteins_links_to_putin_revealed_with/o3cktoc/
+
+Works on men. Instead of getting our sex issues out in public and discussing the male sexual "sex sells" business systems...
+
+https://old.reddit.com/r/videos/comments/1qut3rh/jeffrey_epsteins_links_to_putin_revealed_with/o3cwjez/
+
+Reddit users will not name the "Internet Research Agency". Reddit audience members will not discuss October 7, 2023 intelligence failure as Putin's birthday on a Saturday with music festival in the danger zone! British Cambridge Analytica... people on Reddit audience won't talk about MAGA being mind-fucked by doctors of Cambridge England! March 2, 2018 **BBC world news**, a non-USA news source. https://www.BBC.com/news/technology-43255285 but Reddit audiences like little Twitter-length commenting to hand-wave away serious topics instead of off-Reddit citations and serious book quotes.
+
+* "**Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета".
+Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа.** Затем.. положить этот образ обратно на всё психотипы и таким образом подобрать универсальный ключик к любому и каждому."; " **Дальше оставалось только загрузить эти данные в информационные потоки и социальные сети.** И мы стали искать тех, кто справился бы с этой задачей лучше других." - gloating on Facebook by Константин Рыков
+
+https://old.reddit.com/r/videos/comments/1qut3rh/jeffrey_epsteins_links_to_putin_revealed_with/o3drjr7/
+
+We The People, Reddit social, Bluesky social, need to be teaching remedial morality lessons to every person. MAGA and Trump are the evidence. Our clergy can't find Bible verse "1 John 3:17" and teach it on social media and at Church buildings. We need to, we need to rescue We The People. https://github.com/RocketDerp/April14_2025/tree/working/Art/ScreenPlay/Remedial_Morality
+
+https://old.reddit.com/r/videos/comments/1qut3rh/jeffrey_epsteins_links_to_putin_revealed_with/o3cjb40/
+
+"LOL", laugh track for Reddit audience. Extreme tiny-short Elon Musk Twitter messaging patterns. Blows the Reddit audience mindsets into meme stupors.
+
+https://old.reddit.com/r/videos/comments/1qut3rh/jeffrey_epsteins_links_to_putin_revealed_with/o3dbsj0/
+
+How come Reddit fandom to Epstein is not wanting to teach Rupert Murdoch brainwashing methods and make Jen Senko world famous via Reddit commenting and postings? Why is this nonfiction film not being mentioned day and night on Reddit until everyone is on the same page for mental health brainwashing MAGA crisis topics? https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad Why isn't there a mental health crisis uprising to do cult deprogramming on Reddit? Reddit audience members have all the symptoms of being in an information media cult to Epstein topics.
+
+https://old.reddit.com/r/videos/comments/1qut3rh/jeffrey_epsteins_links_to_putin_revealed_with/o3cjafj/
+
+
+But most people are paying attention to video games, sports gaming, sports stars, celebrity star Donald Trump, Reality TV garbage, Fox News HDTV, fiction storytelling. Reddit needs to be making FAQ and Wiki systems of PRIORITY topics since year 2015... not just making it an egoism contents (dick measuring of 1 person knows more than others) that 1 out of 100 people knows more. **Critical learning for adults needs to be COMMUNITY ORGANIZED in F.A.Q. of IMPORTANT TOPICS!**
+
+https://old.reddit.com/r/Damnthatsinteresting/comments/1qv11zi/karen_mulder_tried_to_warn_everyone_about_similar/o3e6mcz/
+
+Children are sports entertainment fodder to so many audience cults to sports games.
+
+https://old.reddit.com/r/Damnthatsinteresting/comments/1qv11zi/karen_mulder_tried_to_warn_everyone_about_similar/o3e59c1/
+
+We have a global problem of men's clergy, men religion, men Daddy figure Jesus, men daddy figure Allah, men daddy figure Yahweh. Instead of listening to Malala and reworking education since her 2013 book, we promote Elon Musk and Donald Trump and Rupert Murdoch values to children since 2013.
+
+* "They say more about Deuteronomy than about women. The Hebrews were absolutely ruthless with respect to their neighbors. But this passage is an extreme statement of something that is inherent in most sociologically oriented mythologies. That is to say, love and compassion are reserved for the in-group, and aggression and abuse are projected outward on others. Compassion is to be reserved for members of your own group. The out-group is to be treated in a way described there in Deuteronomy. Now, **today there is no out-group anymore on the planet. And the problem of a modern religion is to have such compassion work for the whole of humanity. But then what happens to the aggression?** This is a problem that the world is going to, have to face—because aggression is a natural instinct just as much as, and more immediate than, compassion, and it is always going to be there. It’s a biological fact. Of course, in biblical times, when the Hebrews came in, they really wiped out the Goddess. The term for the Canaanite goddess that’s used in the Old Testament is “the Abomination.” Apparently, throughout the period represented in the Book of Kings, for example, there was a back and forth between the two cults. Many of the Hebrew kings were condemned in the Old Testament for having worshiped on the mountaintops. Those mountains were symbols of the Goddess. And there was a very strong accent against the Goddess in the Hebrew, which you do not find in the Indo-European mythologies. Here you have Zeus marrying the Goddess, and then the two play together. So it’s an extreme case that we have in the Bible, and our **own Western subjugation of the female is a function of biblical thinking**." - 1988 book, "Power of Myth"
+
+https://old.reddit.com/r/PublicFreakout/comments/1quy8rr/murphy_a_uae_investor_secretly_gave_trump_187/o3dkkzk/
+
+Is this low-effort commenting on Reddit? Is this a way to get social media engagement and not actually organize? Is this a simulation of resisting by commenting on Reddit and not organizing critical topics and education of cult deprogramming to face MAGA people by the hundreds of millions...
+
+https://old.reddit.com/r/PublicFreakout/comments/1quy8rr/murphy_a_uae_investor_secretly_gave_trump_187/o3dqhh4/
+
+Right vs left brain rot. Fiction vs. nonfiction is a more critical and urgent crisis. Trump is an entertainer and fiction storyteller that has a massive USA fandom, including Reddit fanatics for Trump hate leadership content.
+
+https://old.reddit.com/r/worldnews/comments/1qvj4u1/investigating_child_sex_abuse_isnt_controversial/o3hyf3c/
+
+Political theater I've been calling "Information Strip Tease", the whole game of dropping "Q" drops of information an teasing who is in the secret files.
+
+https://old.reddit.com/r/worldnews/comments/1qvj4u1/investigating_child_sex_abuse_isnt_controversial/o3hz879/
+
+6 month Reddit account. Short-length Twitter-thinking Tweet-logic minded. Anti-Reality on Reddit. FINALLY, someone shit-talks! Entirely blind that that is ALL people do day an night is insult and mock Trump over an over. Reddit users are BLIND to Tony Clifton performance. Trump and his orange makeup - do Reddit users truly think Trump has never heard anyone joke about his orange makeup. Yes, Reddit users actually think Trump does not grasp that people treat him differently! The fucking GULLIBILITY to Reality TV on Reddit. My god, do people need to study Neil Postman!
+
+The USA population always wants more and more shit-talk and mocking. It just never ends with Trump and Musk. Always more, always more Twitter bullshit! ANYTHING but Dr. Bandy X. Lee and nonfiction serious learning and teaching of the general public on mental health and cults.
+
+* “One of the saddest lessons of history is this: If we’ve been bamboozled long enough, we tend to **reject any evidence of the bamboozle**. We’re no longer interested in finding out the truth. The bamboozle has captured us. It’s simply too painful to acknowledge, even to ourselves, that we’ve been taken. Once you give a charlatan power over you, you almost never get it back. So the old bamboozles tend to persist as the new ones rise.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, **1995**, page 241
+
+https://old.reddit.com/r/worldnews/comments/1qvj4u1/investigating_child_sex_abuse_isnt_controversial/o3i3eb7/
+
+Yes! Put into Best Of with some half-awake commentary.
+
+<img width="1118" height="615" alt="image" src="https://github.com/user-attachments/assets/3cfd4a23-a5e4-4a8f-b19f-921bef46824e" />
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mdzt3yublk2o https://autistics.life/@RoundSparrow/116012237238927347 }
+
+OPERA_A https://www.youtube.com/watch?v=jrGmcuj44DQ Overkill mockery faiths. 6,241,228 views June 7, 2008 Day after Day Trump mockery reappears. Symbolism ghosts in mass mind appear and disappear. Spell the desperation. The "cooked", cooking brains on media machines.
+
+https://old.reddit.com/r/worldnews/comments/1qvj4u1/investigating_child_sex_abuse_isnt_controversial/o3i9ro7/
+
+People circle their wagon for fiction actors in a screenplay they love. Like fiction magical baby-daddy birth of Jesus. Trump and Musk provide fiction addiction home delivery for USA society.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qvh7py/zayn_malik_emma_thompson_penelope_cruz_stevie/o3hnkb0/
+
+The mental health of Epstein and Trump parallel my experience with the richest people in the world in Bellevue Washington. Let alone the Levant clergy, the pandemic clergy response to not have a world wide funeral and all come together in grief rituals.... sickening. How can any religion witness the Olympics and other global events and not have a pandemic funeral ritual. The grief issues are horrific.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qvh7py/zayn_malik_emma_thompson_penelope_cruz_stevie/o3hq70e/
+
+https://old.reddit.com/r/Fauxmoi/comments/1qvh7py/zayn_malik_emma_thompson_penelope_cruz_stevie/o3hnt64/
+
+https://old.reddit.com/r/Fauxmoi/comments/1qvh7py/zayn_malik_emma_thompson_penelope_cruz_stevie/o3hpdb1/
+
+Year 2014. Malala's book was published October 8, 2013 about terrorism in Islamic clergy systems. Of course, people shit upon and mock world peace. Too boring for the fandoms of hate and fandoms of Epstein leadership men over women. Allah the male domination ruler science fiction societies.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qvh7py/zayn_malik_emma_thompson_penelope_cruz_stevie/o3hq8wz/
+
+To understand Twitter-length thinking and Trumpism Tweet-thinking society, understand how many comments on this posting teat a posting title as clicbait life story. Why everything is TLDR condensed clickbait Trump world. This post is full of comments like this one declaring an entire lifetime of emotional experience in an advertisement clickbait title.
+
+* "In any case, the current political structures are way behind this curve. They don’t understand it well at all in spite of all the talk about “The Selling of the President“. That’s very old fashioned, we all have lived with advertising for years. What we haven’t lived with are **ads that have more narrative structure and meaning than the programs**, and I’ll mention a few of those because I think they’re interesting. The current McDonalds ads that kind of tell a part of your life story in like a two and a half minute ad. It’s like from when you get married and when you have your grandkids until you die. You get that two and a half minutes and then there is a McDonalds thing, like “Good; I was born, I had kids, I died, and in the meantime I got a Big Mac”. I mean this is sort of “Gone With the Wind” condensed into a short version. **It’s fast, it’s hyperreal,** and in the meantime you at least got a Big Mac. You know, you never will have to be hungry again, you know, reproduced to infinity over and over on videotape. Change the Laserdisc, you can watch Scarlett O’Hara. I said that a million times, if we had the technology right now to do it we could just have Scarlett back there screaming about terror while I am doing this. In any case, ah, **if Baudrillard is even onto something**, what the postmodern trajectory means is that the self is not under siege, it’s lost. It’s just lost. And if that’s true then all of the strategies by which ordinary people try to live decent good lives are lost along with it. I am not necessarily going to buy that right away, I am really not. I do think that **the new, ah, technologies are going to call forth**… I mean this is why the title of this course has been “The Self Under Siege”. If I didn’t think it was a real, virulent technological siege and just some thought up philosopher’s dream, which would not have interested me. I mean, I have no interest in that." - Texan Rick Roderick, Duke University https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
+
+https://old.reddit.com/r/news/comments/1qvnegy/bill_gates_denies_allegations_in_new_epstein/o3iqhew/
+
+https://old.reddit.com/r/news/comments/1qvnegy/bill_gates_denies_allegations_in_new_epstein/o3is5lc/
+
+https://old.reddit.com/r/news/comments/1qvnegy/bill_gates_denies_allegations_in_new_epstein/o3ir39e/
+
+https://old.reddit.com/r/news/comments/1qvnegy/bill_gates_denies_allegations_in_new_epstein/o3is270/
+
+https://old.reddit.com/r/news/comments/1qvnegy/bill_gates_denies_allegations_in_new_epstein/o3ixazl/
+
+https://old.reddit.com/r/news/comments/1qvnegy/bill_gates_denies_allegations_in_new_epstein/o3j1sqp/
+
+https://old.reddit.com/r/news/comments/1qvnegy/bill_gates_denies_allegations_in_new_epstein/o3iur9o/
+
+https://old.reddit.com/r/okbuddycinephile/comments/1qvtegt/favorite_hack_director_that_is_also_a_pedophile/o3k2mex/
+
+World Hate Affairs. World Violence Film Makers.
+
+https://old.reddit.com/r/okbuddycinephile/comments/1qvtegt/favorite_hack_director_that_is_also_a_pedophile/o3k32pv/
+
+https://old.reddit.com/r/okbuddycinephile/comments/1qvtegt/favorite_hack_director_that_is_also_a_pedophile/o3k5mzu/
+
+https://old.reddit.com/r/okbuddycinephile/comments/1qvtegt/favorite_hack_director_that_is_also_a_pedophile/o3k5bf3/
+
+https://old.reddit.com/r/okbuddycinephile/comments/1qvtegt/favorite_hack_director_that_is_also_a_pedophile/o3k2uh6/
+
+https://old.reddit.com/r/okbuddycinephile/comments/1qvtegt/favorite_hack_director_that_is_also_a_pedophile/o3k67t1/
+
+How hard it is to touch nonfiction books about mental health of world leaders... https://www.scientificamerican.com/article/the-shared-psychosis-of-donald-trump-and-his-loyalists/
+
+https://old.reddit.com/r/okbuddycinephile/comments/1qvtegt/favorite_hack_director_that_is_also_a_pedophile/o3k5apq/
+
+https://old.reddit.com/r/okbuddycinephile/comments/1qvtegt/favorite_hack_director_that_is_also_a_pedophile/o3k7j4b/
+
+https://old.reddit.com/r/okbuddycinephile/comments/1qvtegt/favorite_hack_director_that_is_also_a_pedophile/o3k5pe9/
+
+8 month Reddit account
+
+https://old.reddit.com/r/okbuddycinephile/comments/1qvtegt/favorite_hack_director_that_is_also_a_pedophile/o3k3jk7/
+
+https://old.reddit.com/r/okbuddycinephile/comments/1qvtegt/favorite_hack_director_that_is_also_a_pedophile/o3k4fas/
+
+https://old.reddit.com/r/okbuddycinephile/comments/1qvtegt/favorite_hack_director_that_is_also_a_pedophile/o3k2cen/
+
+Because violence. And having women (Kill Bill lead) adopt male violence leadership.
+
+https://old.reddit.com/r/okbuddycinephile/comments/1qvtegt/favorite_hack_director_that_is_also_a_pedophile/o3k6b84/
+
+https://old.reddit.com/r/okbuddycinephile/comments/1qvtegt/favorite_hack_director_that_is_also_a_pedophile/o3k65nj/
+
+https://old.reddit.com/r/okbuddycinephile/comments/1qvtegt/favorite_hack_director_that_is_also_a_pedophile/o3k82ds/
+
+https://old.reddit.com/r/okbuddycinephile/comments/1qvtegt/favorite_hack_director_that_is_also_a_pedophile/o3k6cu5/
+
+*Hate harder* Levant values (posting screenshot Israel media empire, Torah, vs Hollywood media empire, Film). Media empire hates media empire, long tradition in Levant science fiction trilogy. { Torah, Quran, Bible, Book of Mormon, etc }
+
+https://old.reddit.com/r/okbuddycinephile/comments/1qvtegt/favorite_hack_director_that_is_also_a_pedophile/o3kf3ov/
+
+Israel topic in screenshot, "Jesus Christ, Fucking" JFC commenting.
+
+OPERA_A My Civic Ditty. Donald F, The Don of NYC, Jewish band leader. https://www.youtube.com/watch?v=-SR48XA3hss Citizen Japanese Steam-Powered Naked Lunch Dildo. Metaphors abound. 258,992 views  December 4, 2018 
+
+this comment from Reddit inspired this:    
+Social post { https://autistics.life/@RoundSparrow/116013825319128274 https://bsky.app/profile/roundsparrow.bsky.social/post/3me2jopsons2v }
+
+https://old.reddit.com/r/worldnews/comments/1qvrp9l/former_canadian_pm_harper_says_canada_should_make/o3jqum3/
+
+https://old.reddit.com/r/worldnews/comments/1qvrp9l/former_canadian_pm_harper_says_canada_should_make/o3juvga/
+
+https://old.reddit.com/r/worldnews/comments/1qvrp9l/former_canadian_pm_harper_says_canada_should_make/o3jr7dp/
+
+https://old.reddit.com/r/worldnews/comments/1qvrp9l/former_canadian_pm_harper_says_canada_should_make/o3jzf0i/
+
+https://old.reddit.com/r/worldnews/comments/1qvrp9l/former_canadian_pm_harper_says_canada_should_make/o3jzhyi/
+
+https://old.reddit.com/r/worldnews/comments/1qvrp9l/former_canadian_pm_harper_says_canada_should_make/o3k1hsi/
+
+https://old.reddit.com/r/worldnews/comments/1qvrp9l/former_canadian_pm_harper_says_canada_should_make/o3jvcj7/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qvwyvw/washington_post_ukraine_correspondent_lizzie/o3l0qgw/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qvwyvw/washington_post_ukraine_correspondent_lizzie/o3l33oy/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1qvwyvw/washington_post_ukraine_correspondent_lizzie/o3la3wl/
+
+3 month Reddit account.
+
+https://old.reddit.com/r/worldnews/comments/1qvucak/finlands_stubb_we_must_admit_the_us_is_changing/o3kb96h/
+
+https://old.reddit.com/r/worldnews/comments/1qvucak/finlands_stubb_we_must_admit_the_us_is_changing/o3kjs1s/
+
+https://old.reddit.com/r/worldnews/comments/1qvucak/finlands_stubb_we_must_admit_the_us_is_changing/o3kha0d/
+
+https://old.reddit.com/r/worldnews/comments/1qvucak/finlands_stubb_we_must_admit_the_us_is_changing/o3kd9uq/
+
+https://old.reddit.com/r/worldnews/comments/1qvucak/finlands_stubb_we_must_admit_the_us_is_changing/o3kmow7/
+

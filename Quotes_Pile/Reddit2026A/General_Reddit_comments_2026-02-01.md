@@ -41,3 +41,49 @@ https://old.reddit.com/r/BlackPeopleofReddit/comments/1quq2ox/this_tells_you_eve
 https://old.reddit.com/r/BlackPeopleofReddit/comments/1quq2ox/this_tells_you_everything/o3bzd0m/
 
 https://old.reddit.com/r/BlackPeopleofReddit/comments/1quq2ox/this_tells_you_everything/o3c4ntg/
+
+https://old.reddit.com/r/whennews/comments/1quzp6u/who_wouldve_saw_it_coming/o3e0dkb/
+
+https://old.reddit.com/r/whennews/comments/1quzp6u/who_wouldve_saw_it_coming/o3dz4qc/
+
+https://old.reddit.com/r/whennews/comments/1quzp6u/who_wouldve_saw_it_coming/o3dyu5z/
+
+https://old.reddit.com/r/whennews/comments/1quzp6u/who_wouldve_saw_it_coming/o3edray/
+
+https://old.reddit.com/r/whennews/comments/1quzp6u/who_wouldve_saw_it_coming/o3e0lx0/
+
+https://old.reddit.com/r/whennews/comments/1quzp6u/who_wouldve_saw_it_coming/o3eo30g/
+
+https://old.reddit.com/r/whennews/comments/1quzp6u/who_wouldve_saw_it_coming/o3eitoz/
+
+1 month Reddit account. NYE.
+
+https://old.reddit.com/r/Damnthatsinteresting/comments/1qv7vkc/stephen_hawking_in_jeffrey_epsteins_personal/o3fpurr/
+
+https://old.reddit.com/r/aviation/comments/1qvf46q/reddit_mod_deleted_breathtaking_photo_taken_by/o3h781w/
+
+Network Censorship war stories.
+
+OPERA_A Alan Alda network censorship TV war Korean war stories. https://www.youtube.com/watch?v=37HXBdOMKOk&t=375s 366,855 views July 18, 2014 Underwear
+
+https://old.reddit.com/r/aviation/comments/1qvf46q/reddit_mod_deleted_breathtaking_photo_taken_by/o3hewkg/
+
+https://old.reddit.com/r/SipsTea/comments/1qvso0z/what_are_your_questions/o3k8ofc/
+
+https://old.reddit.com/r/ArcRaiders/comments/1qw1gbq/look_at_call_of_duty_that_shts_dead_now_you_never/o3lzyy8/
+
+Toxic popularity. Trump mindsets of Truth Social fandoms.
+
+https://old.reddit.com/r/ArcRaiders/comments/1qw1gbq/look_at_call_of_duty_that_shts_dead_now_you_never/o3m15ji/
+
+https://old.reddit.com/r/ArcRaiders/comments/1qw1gbq/look_at_call_of_duty_that_shts_dead_now_you_never/o3lrhtp/
+
+https://old.reddit.com/r/ArcRaiders/comments/1qw1gbq/look_at_call_of_duty_that_shts_dead_now_you_never/o3m5cb3/
+
+https://old.reddit.com/r/Damnthatsinteresting/comments/1qw2hbq/piranhas_are_known_as_a_vicious_carnivore_but_are/o3m0fpu/
+
+See replies about media ecology. 
+
+https://old.reddit.com/r/SipsTea/comments/1qw5rmg/ban_ozempic/o3mv1yw/
+
+

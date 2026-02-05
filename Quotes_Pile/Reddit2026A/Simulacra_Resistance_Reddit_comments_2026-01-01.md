@@ -735,3 +735,32 @@ https://old.reddit.com/r/UnderReportedNews/comments/1quygiv/sen_chris_murphy_a_u
 
 Come on Reddit audience, Reddit end-users, WAKE UP and make Dr. Bandy X Lee a household name. Quote Dr. Bandy X Lee on every social platform! Every 4 hours, quote her nonfiction books to educate everyone on why Trump's mental health is dangerous to everyone! Keep teaching so we don't keep picking terrible business leaders in USA!
 
+
+https://old.reddit.com/r/videos/comments/1qv50nm/rep_lieu_says_epstein_files_have_allegations_of/o3f3uik/
+
+<img width="1573" height="988" alt="image" src="https://github.com/user-attachments/assets/452b07b2-7529-42ab-9993-c9cec91b7440" />
+
+Simulation of resisting. Audience fandom of Trump. Content is king for media addiction society seeking the thrill of high-speed information delivery about Trump.
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mdyhi6o6us2u https://autistics.life/@RoundSparrow/116009167384483689 }
+
+OPERA_A They have a billion-dollar bounty on someone who understands the simulacra parties going on all over in filter-bubble echoing chambers. Hush, Caution! Echoland! https://www.youtube.com/watch?v=E6l5ezErGuw Let Dr. Bandy X Lee, *Woman* - take over... 52,975,062 views June 26, 2017
+
+https://old.reddit.com/r/videos/comments/1qv50nm/rep_lieu_says_epstein_files_have_allegations_of/o3f810s/
+
+PizzaGate was a Kremlin-manipulated QAnon simulation. EVIDENCE: https://www.independent.co.uk/news/world/americas/us-election-2020/qanon-russia-conspiracy-theory-trump-2020-election-b1536946.html
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qvpjas/well_that_answers_that/o3j96db/
+
+Front page of Reddit. Top-voted comment. Nothing at all is being "resisted' here. There is no sense of abnormality in USA society, no sense of urgency, no sense of alarm bells ringing. AVOIDED: Dr. Bandy X Lee's education for the general population, for the public... for the nation. On mental health. Spare time and free time of USA society is discussing Twitter Elon Musk platform message screenshots on Reddit.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qvpjas/well_that_answers_that/o3j7gy8/
+
+Who doesn't like President Ronald Reagan media content in 2nd term 1985?
+
+* "For all his perspicacity, George Orwell would have been stymied by this situation; there is nothing “Orwellian” about it. The President does not have the press under his thumb." ... "**All that has happened is that the public has adjusted to incoherence and been amused** into indifference. Which is why Aldous Huxley would not in the least be surprised by the story. Indeed, he prophesied its coming. He believed that it is far more likely that the Western democracies will dance and dream themselves into oblivion than march into it, single file and manacled. Huxley grasped, as Orwell did not, that it is not necessary to conceal anything from a public insensible to contradiction and narcoticized by technological diversions." ... "Big Brother turns out to be Howdy Doody."
+― Neil Postman, [Amusing Ourselves to Death: Public Discourse](https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Specific/Postman_1985_Howdy_Doody.md) in the Age of Show Business, **year 1985**, page 111
+
+https://old.reddit.com/r/PublicFreakout/comments/1qvuawr/apparently_they_are_not_even_trying_to_hide_it/o3k8br0/
+
+This is normalizing, not resisting. Top-upvoted comment.
