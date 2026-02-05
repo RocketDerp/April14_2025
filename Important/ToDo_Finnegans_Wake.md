@@ -842,3 +842,5 @@ A great Tim Finnegan fall video.  "By all accounts, this insurance adjustor suff
 https://old.reddit.com/r/funnyvideos/comments/1qvz0pr/comedy_gold/
 
 Tower of Babel first names.
+
+https://old.reddit.com/r/CuratedTumblr/comments/1qw5cee/the_wait_you_can_see_realization_is_the_funniest/
