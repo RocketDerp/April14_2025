@@ -1114,6 +1114,13 @@ https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_anti
 
 Opposition logic think. Binary logic conditioned audience of tech on Reddit. Machine logic mindset programmed by Elon Musk and other tech billionaires. OPERA_A REPEATING_REPEATER https://www.youtube.com/watch?v=eAyEb36SJYs "Squares", "Square wave" logic thinking. Blockheads (Charlie Brown lingo). "Haley Johnsen - The Logical Song by Supertramp" 160,441 views January 6, 2023 - I know it sounds ABSURD, please tell me WHO I AM? WHO I AM!!!
 
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pg1gh/
 
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pgdq1/
 
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pgffo/
+
+* "The extremists are afraid of books and pens. The power of education frightens them. They are afraid of women. The power of the voice of women frightens them." - July 12, 2013 https://malala.org/news-and-voices/malala-un-speech
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3me4uxp3irk2y https://autistics.life/@RoundSparrow/116019124154080402 }
 
