@@ -1370,3 +1370,8 @@ https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_anti
 
 Attracted audience member. Fandom of mental sickness to comment on Reddit about.
 
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pfzjm/
+
+The Roman Empire in year 380 took it very seriously. But Reddit year 2026 comment community plays dumb and promotes dumb social media engagement question-asking. https://en.wikipedia.org/wiki/Christianity_as_the_Roman_state_religion
+
+
