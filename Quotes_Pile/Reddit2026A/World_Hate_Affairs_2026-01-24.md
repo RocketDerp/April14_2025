@@ -923,4 +923,8 @@ Ukraine marked on Reddit flair.
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3me4n5o572c27 https://Autistics.Life/@RoundSparrow/116018574350111113 }
 
+https://old.reddit.com/r/europe/comments/1qwd3o4/ukrainians_warned_for_years_that_europes_human/o3p7l06/
 
+https://old.reddit.com/r/europe/comments/1qwd3o4/ukrainians_warned_for_years_that_europes_human/o3otfef/
+
+Ukraine war since February 20, 2024 on /r/Europe - the European subreddit, claiming that Russia isn't a "bad guy" currently at hot war with Ukraine... on Europe subreddit.... Hyper-banal reply message. SEE_ALSO: https://old.reddit.com/r/HyperBanalisation description of Reddit mockery of serious discourse with banal replies. "Under the Surkov media invasion (Russia against NATO), USA social media has become an environment where banalisation is the ultimate outcome of every serious conversation. Adam Curtis in 2016 from the UK perspective: emphasized "Hyper Normalization", but Rick Roderick in 1993 far more addressed the USA-centric media usage to banalise. Where brevity serves to dismiss citation, fact-checking, validation, understanding itself!"
