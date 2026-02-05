@@ -2172,3 +2172,7 @@ https://old.reddit.com/r/law/comments/1qwpy9f/intelligence_director_tulsi_gabbar
 ANSWER: Because the entire population is in a **Celebrity media cult** of Donald Trump content. Media cults can not break free from Surkov students. Free Masons Free Thinking is mocked away by Reddit total mockery. Russia won, NATO lost. President Tony Clifton performances have Reddit fandom glued to mockery. No escape mentally seems possible for cultists in over 10 years on Reddit cloud computing systems.
 
 Social post { https://autistics.life/@RoundSparrow/116020031589276591 https://bsky.app/profile/roundsparrow.bsky.social/post/3me57zioo5s2m }
+
+https://old.reddit.com/r/goodnews/comments/1qwozz6/as_trump_stands_behind_him_rep_jonathan_l_jackson/o3qj9uv/
+
+Top voted comment on Reddit. Fandom of Trump images.
