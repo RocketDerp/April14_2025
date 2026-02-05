@@ -1374,4 +1374,7 @@ https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_anti
 
 The Roman Empire in year 380 took it very seriously. But Reddit year 2026 comment community plays dumb and promotes dumb social media engagement question-asking. https://en.wikipedia.org/wiki/Christianity_as_the_Roman_state_religion
 
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pfzys/
+
+Reddit cultists insulting the other cults. Reddit cult member (Reddit end user, the comment creator) context blindness, only ONE person is what Reddit consumer sees, tree and not forest.  https://www.youtube.com/watch?v=09maaUaRT4M&t=743s "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL"
 
