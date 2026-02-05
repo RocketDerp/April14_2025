@@ -1044,3 +1044,7 @@ https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_anti
 
 Reddit mind-fucking messages. Signals to USA audiences to downplay the billionaire power and threat to society.
 
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pb4jn/
+
+Peter T. is creating content for Reddit audiences, who eat it up. People compulsively mocking the mockery created by Surkov students.
+
