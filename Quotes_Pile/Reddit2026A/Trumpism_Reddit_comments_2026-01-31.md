@@ -2189,3 +2189,6 @@ https://old.reddit.com/r/politics/comments/1qwtda4/the_next_democratic_president
 
 We The People need cult deprogramming. Every mental health processionals in the world, every nation, should be deprogramming USA. There is so much recency bias, people are not facing up that Trump was voted out in the November 2020 election and was removed from office for 4 years. The cult problem was not dealt with, the Fox News HDTV cult. The Newsmax media cult. The Elon Musk Twitter cult. Facebook media cult.
 
+https://old.reddit.com/r/politics/comments/1qwtda4/the_next_democratic_president_better_be_merciless/o3s09nf/
+
+Reddit meme cultists want more MAGA leaders to follow. Joining the MAGA cult to create more content. Abandon nonfiction in favor of fiction. Shallow commenting on Reddit about how there was a "high road" taken, there never was. Putin won! NATO lost. The high road was Internet declared war against Russia's Internet war. SEE_ALSO https://github.com/RocketDerp/April14_2025/blob/main/June19_2025/High_Road_USA_was_not_taken.md
