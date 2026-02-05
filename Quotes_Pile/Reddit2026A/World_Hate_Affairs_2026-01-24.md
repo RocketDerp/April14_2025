@@ -1057,3 +1057,15 @@ Truly pathetic commenting that does nothing to educate and teach the addicts of 
 https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3phndu/
 
 Downplaying it as "almost tragic", that Rupert Murdoch billionaire fucked over **rural less-educated population** with Levant monomyth storytelling patterns. Typical Reddit denial of the Rupert Murdoch media since October 7, 1996 (Putin's birthday).
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pktaz/
+
+No off-Reddit links. No book quotes. No author names. The most dangerous person in entire world, and a shit-commenting shit-posting prizing platform lover. ANYTHING to avoid serious nonfiction books about Peter Thiel's plot to wreck USA published in year 2019.
+
+* 2019 :    
+“Chaos and disruption, I later learned, are central tenets of Bannon's animating ideology. Before catalyzing America's dharmic rebalancing, his movement would first need to instill chaos through society so that a new order could emerge. He was an avid reader of a computer scientist and armchair philosopher who goes by the name Mencius Moldbug, a hero of the alt-right who writes long-winded essays attacking democracy and virtually everything about how modern societies are ordered. Moldbug’s views on truth influenced Bannon, and what Cambridge Analytica would become. Moldbug has written that “nonsense is a more effective organizing tool than the truth,” and Bannon embraced this. “Anyone can believe in the truth,” Moldbug writes, “to believe in nonsense is an unforgettable demonstration of loyalty. It serves as a political uniform. And if you have a uniform, you have an army.”
+― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the [Plot to Break America, page 85](https://books.google.com/books?id=8OW2DwAAQBAJ&pg=PA85&dq=%22serves+as+a+political+uniform.+And+if+you+have+a+uniform,+you+have+an+army.%E2%80%9D&hl=en&newbks=1&newbks_redir=1&sa=X). **year 2019**
+
+* "Benjamin Wallace-Wells on the conservative tech entrepreneur Peter Thiel and how his particular brand of libertarianism is quickly becoming" - https://www.newyorker.com/news/annals-of-populism/the-rise-of-the-thielists
+
+Tech addicts on Reddit, gaming addicts, Fox News HDTV device addicts, etc.
