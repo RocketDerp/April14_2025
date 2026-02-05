@@ -2157,3 +2157,8 @@ https://old.reddit.com/r/politics/comments/1qws929/schumer_and_jeffries_begin_to
 
 8 month Reddit account.
 
+https://old.reddit.com/r/BikiniBottomTwitter/comments/1qwsg2d/that_too_on_live_tv/o3r82wh/
+
+Over a decade of dumb-shit Trumpism on Reddit. Since June 16, 2015 Reddit community mocks and mocks with the dumbest cartoon South Park and Sponge Bob tiny-short commenting. A hard core fandom of Trump hate-watching that has elevated Trump to every media venue on the planet EVERY DAY for dumb-shit media addictions. Reddit users are a cult of Trump symbolism and icons. Top-upvoted popular comment on front page of /r/All for the Reddit cult of shit-commenting shit-posting. Trump Reality TV is for Reddit fanatics / cultists of bad shit.
+
+* Entertainment Weekly and other publications noted the difference between hate-watching and watching as a guilty pleasure. "You wouldn't tune in every week to hate-watch a **really bad reality show**. Generally speaking, hate-watching requires a TV series with high ambitions and features a certain amount of aesthetic perfection" - https://en.wikipedia.org/wiki/Hate-watching
