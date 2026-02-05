@@ -1005,3 +1005,10 @@ Anti-education Reddit commenting. Hate for hate. baited into hate worship. "Anti
 https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pd6rq/
 
 Using SCIENCE FICTION. Star Wars Andor and The Bible are both science fiction. Magical outer-space Daddy for Jesus. Science fiction. There is no magic supernatural, there is science fiction storytelling.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pa2w5/
+
+Science fiction fandoms of Levant Allah / Jesus / Yahweh stories, "Anti-Christ" fictions character claims of Thiel. Anti-women, anti-girls, anti-ladies.
+
+* “We felt like the Taliban saw us as like little dolls to control, telling us what to do and how to dress. I thought if God wanted us to be like that He would not have made us all different.”
+― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. October 8, 2013
