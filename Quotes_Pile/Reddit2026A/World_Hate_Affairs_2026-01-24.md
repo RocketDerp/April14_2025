@@ -1396,3 +1396,22 @@ https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_anti
 
 Reddit tech fandom bored with the plot of the media storytelling. Commenting on Reddit about the shit-postings with shit-commenting. Reddit fandom does this with any topic of importance or serious. Drowns it out with low-effort thoughtless commenting.
 
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pgo19/
+
+"insane". Gullible fandom. ANYTHING but turn to Dr. Bandy X Lee's nonfiction books. Engaged fandom audience.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pgpog/
+
+"wierdo"
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pgptu/
+
+"off his nut". Street gang lingo of Reddit cult.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pgvwa/
+
+Reddit audience does anything but sound alarm and call for intellectual defense. ANYTHING but turn to nonfiction and assert Dr. Bandy X Lee's leadership.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pgx5r/
+
+Reddit audience cult member is creating fiction content on commenting section instead of teaching serious nonfiction by Dr. Bandy X Lee to rescue the USA and NATO from cultists.
