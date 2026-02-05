@@ -1218,3 +1218,11 @@ ANSWER: Peter Thiel is creating content for Reddit audiences, Reddit fandoms of 
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3me4wwytosc2x https://autistics.life/@RoundSparrow/116019264375633155 }
 
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pl3c4/
+
+Censorship fandom on Reddit.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pnc73/
+
+Comment full of Reddit street gang signs (gang signage, symbolic meme street languages) of dumb-shit insulting. Reddit is a total mockery. Fiction addicts and their streets of Internet mockery languages. Anything but quote nonfiction books about USA mental health from Dr. Bandy X Lee, a woman.
+
