@@ -8,6 +8,9 @@ Note the reply message, "LMAO" short-message on "Russia" topic, comedy content f
 
 OPERA_A "the stage is constantly changing" - **20 October year 2011** https://www.youtube.com/watch?v=AJm6-ZhK00o LYRICS: "Knee deep in the hoopla, sinking in your fight"; "Marconi plays the mamba, listen to the radio, don't you remember?"; "they're always changing corporation names! We just want to dance here, someone stole the stage"... 115,317 views March 6, 2020
 
+Social post { https://MidWest.Social/post/43000469 }
+
+
 https://old.reddit.com/r/worldnews/comments/1qlem6t/china_no_longer_pentagons_top_security_priority/o1dvwq9/
 
 7-month Reddit account
@@ -953,3 +956,7 @@ Stand up for "The Little Gal", "The Little Guy" to billionaires and Trumpism Put
 
 * “Some people say that I should study to become a climate scientist so that I can ‘solve the climate crisis’. But the climate crisis has already been solved. We already have all the facts and solutions. All we have to do is to **wake up and change**.” ― Greta Thunberg, No One Is Too Small to Make a Difference.  Published May 30, 2019
 * * “Joyce is, in the *Wake*, making his own Altamira cave drawings of the entire history of the human mind, in terms of its basic gestures and postures during all the phases of human culture and technology. As his title indicates, he saw that the wake of human progress can disappear again into the night of sacral or auditory man. The Finn cycle of **tribal institutions can return in the electric age**, but if again, then let’s make it a wake or awake or both. Joyce could see no advantage in our remaining locked up in each cultural cycle as in a trance or dream. He discovered the means of living simultaneously in all cultural modes while quite conscious.” - https://www.TheMediumisTheMassage.com/the-book/ the book “The Medium is the Massage: An Inventory of Effects” by media analyst Marshall McLuhan and graphic designer Quentin Fiore, and coordinated by Jerome Agel. It was published in **March 1967**.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3p8imh/
+
+Every low-effort Reddit comment is a confession of celebration of Elon Musk short-message Tweeting Thinking Twitter Mindset pro-ignorance. Billionaire mind virus that Musk OPENLY DISCUSSES. EVERY SHIT-COMMENT AND SHIT-POST ON REDDIT IS A CONFESSION OF LOVE FOR SHIT! https://www.lemonde.fr/en/international/article/2024/08/13/elon-musk-s-ambition-repopulating-the-planet-and-destroying-the-woke-virus_6714239_4.html
