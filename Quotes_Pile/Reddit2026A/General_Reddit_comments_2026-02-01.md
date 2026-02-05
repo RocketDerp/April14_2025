@@ -84,3 +84,6 @@ https://old.reddit.com/r/Damnthatsinteresting/comments/1qw2hbq/piranhas_are_know
 
 See replies about media ecology. 
 
+https://old.reddit.com/r/SipsTea/comments/1qw5rmg/ban_ozempic/o3mv1yw/
+
+
