@@ -1018,3 +1018,8 @@ https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_anti
 "LMAO" in Reddit comment message. Amused Reddit audience. Billionaires playing fiction characters of "Devil" and "Christ" science fiction is content amusement for Reddit fandom of billionaire content creators. Reddit is a social cesspool training ground of laughing away "LMAO" serious topics. "LMAO" baby-talking commenting about critical and serious humanism issues.
 
 “When a population becomes distracted by trivia, when cultural life is redefined as a perpetual round of entertainments, when serious public conversation becomes a form of baby-talk, when, in short, a people become an audience, and their public business a vaudeville act, then a nation finds itself at risk; culture-death is a clear possibility.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3p9ebk/
+
+They think his sexual orientation reaches a demographic audience and fandom on Reddit.
+
