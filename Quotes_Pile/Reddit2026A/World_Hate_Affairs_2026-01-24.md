@@ -1023,3 +1023,9 @@ https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_anti
 
 They think his sexual orientation reaches a demographic audience and fandom on Reddit.
 
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pgcx7/
+
+"LOL". Comedian practitioner. Reddit commenting is a social cesspool training ground of laughing away "LOL" / "LOL cow miking" farm of serious topics. "LOL" baby-talking commenting about critical and serious humanism issues.
+
+* “Everything in our background has prepared us to know and resist a prison when the gates begin to close around us . . . But what if there are no cries of anguish to be heard? Who is prepared to take arms against a sea of amusements? To whom do we complain, and when, and in what tone of voice, when serious discourse dissolves into giggles? What is the antidote to a culture's being drained by laughter?”
+― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business
