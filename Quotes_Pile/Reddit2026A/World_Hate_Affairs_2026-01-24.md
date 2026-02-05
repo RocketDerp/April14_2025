@@ -1207,3 +1207,14 @@ https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_anti
 https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pg6t3/
 
 The topic is The Bible science fictions story. The "Anti-Christ" is a character from a book published 2,000 years ago that induces cult behaviors. A book. Reddit fandom thinks "drugs", recency bias. They aren't all on drugs at Mecca. Ignorance of Reddit on media ecology and comparative mythology and how billionaires use science fiction storytelling on Reddit fandoms.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pgii1/
+
+<img width="1042" height="721" alt="image" src="https://github.com/user-attachments/assets/79d7cb81-d795-4f18-ac95-f625bf77fced" />
+
+ANSWER: Peter Thiel is creating content for Reddit audiences, Reddit fandoms of mocking. The cults of Reddit, media cultists. Tech cults on Reddit, fiction cults, video gamers. Gaming enthusiasts, cults of Peter Thiel investments. Meme connoisseurs on Reddit. Addicts to gaming media, tech smartphone shit-commenting media. BIBLE CHARACTERS HAVE NO INTELLECTUAL PROPERTY PROTECTION. Mohammad put "Christ" in the Quran / year 635 science fiction retcon. Peter Thiel is following Mohammad male tradition regarding women and retcon rewriting.
+
+* Year 2011: "the stage is constantly changing: the country is a dictatorship in the morning, a democracy at lunch, an oligarchy by suppertime, while, backstage, oil companies are expropriated, journalists killed, billions siphoned away. **Surkov** is at the centre of the show, sponsoring nationalist skinheads one moment, backing human rights groups the next. It’s a **strategy of power based on keeping any opposition there may be constantly confused, a ceaseless shape-shifting that is unstoppable** because it’s indefinable. This fusion of despotism and postmodernism, in which no truth is certain, is reflected in the craze among the Russian elite for **neuro-linguistic programming** and Eriksonian hypnosis: types of subliminal manipulation based largely on **confusing your opponent**, first developed in the US in the 1960s. **There are countless NLP and Eriksonian training centres in Moscow**, with every wannabe power-wielder shelling out thousands of dollars to learn how to be the next master manipulator." - **20 October year 2011**. https://www.lrb.co.uk/the-paper/v33/n20/peter-pomerantsev/putin-s-rasputin
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3me4wwytosc2x https://autistics.life/@RoundSparrow/116019264375633155 }
+
