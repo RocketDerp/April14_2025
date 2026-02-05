@@ -969,3 +969,7 @@ Egoism. Egomania. Media mania consumers of Trickle Down content from billionaire
 
 * “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.”
 ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. October 8, 2013
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pahhl/
+
+No, Reddit audience is not kidding. Joke-washing kidding-washing of billionaires is serious fandom on Reddit. Turning everything into jokes about how great it is to hear more billionaire content every day on Reddit. Drowning in Putin messaging, Musk messaging, etc.
