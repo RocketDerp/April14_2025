@@ -1274,3 +1274,17 @@ https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_anti
 
 Reddit is a cult media center for JD Vance "couch couch" chanting, religion ritual of JD Vance cultists.
 
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pbcdg/
+
+Putin has been grooming the Reddit commenting section consumers for years. Since March 2013. Surkov won.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3p8zqo/
+
+"crazy"
+
+ANSWER: I remember how Reddit behaved before year 2013 when the Internet Research Agency in Saint Petersburg mind-fucked everyone. Surkov won.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pacio/
+
+Reddit drug dealers / marketing programming. Death-wishing out-groups. Anti-education drug peddlers. ANYTHING but turn to Dr. Bandy X Lee's mental health books for general public (Reddit is the general public). Pill cultists on Reddit.
+
