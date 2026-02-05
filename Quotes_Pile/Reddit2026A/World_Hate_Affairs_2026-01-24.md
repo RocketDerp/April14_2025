@@ -1420,3 +1420,13 @@ https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_anti
 
 Fiction addicts who are describing how fiction storytelling by the richest people on Earth is more real than factual reality. Hyperreal audience of Reddit.
 
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3ph8s7/
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3phbro/
+
+Joke-washing serious topics with powerful Reddit media systems.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3phhbk/
+
+JD Fandom, JD Vance fanatic chanting programmed media lines about couches.
+
