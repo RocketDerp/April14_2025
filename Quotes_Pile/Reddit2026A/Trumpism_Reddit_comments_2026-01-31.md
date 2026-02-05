@@ -2192,3 +2192,11 @@ We The People need cult deprogramming. Every mental health processionals in the 
 https://old.reddit.com/r/politics/comments/1qwtda4/the_next_democratic_president_better_be_merciless/o3s09nf/
 
 Reddit meme cultists want more MAGA leaders to follow. Joining the MAGA cult to create more content. Abandon nonfiction in favor of fiction. Shallow commenting on Reddit about how there was a "high road" taken, there never was. Putin won! NATO lost. The high road was Internet declared war against Russia's Internet war. SEE_ALSO https://github.com/RocketDerp/April14_2025/blob/main/June19_2025/High_Road_USA_was_not_taken.md
+
+https://old.reddit.com/r/clevercomebacks/comments/1qwqhq8/hes_acting_like_hes_in_the_right/o3s9jfs/
+
+Posting title: "He is acting", yes, they are all acting to Surkov screenplays. Using the White House media systems to deliver content to Reddit hate-watching fandoms. Reddit is entirely not self-aware of this. Reddit people think they are resisting when they are doing exactly as conditioned by Kremlin and White House since March 2013. Surkov won. JD Vance is playing the every-popular bad guy character, like Walter White in Breaking Bad, and Reddit end-users eat this shit-show Reality TV White House up!
+
+* Published January 2015, before Trump started run for office in June 2015: https://www.Politico.com/magazine/story/2015/01/putin-russia-tv-113960/ At one end of the table sat one of the country’s most famous political TV presenters. He was small and spoke fast, with a smoky voice: “We all know there will be no real politics,” he said. “But we still have to give our viewers the sense something is happening. They need to be kept entertained.” “So what should we play with?” he asked. “Shall we attack oligarchs? Who’s the enemy this week? **Politics has got to feel like a movie!**”
+
+
