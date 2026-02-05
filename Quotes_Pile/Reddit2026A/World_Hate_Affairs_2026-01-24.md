@@ -1094,3 +1094,10 @@ OPERA_A Lyrics: "Unhand that gun! begone! There's no one to fire upon!"; "The ma
 Standing inside his brown shoes... You do his nine to five, drag yourself home half alive. And there on **the screen**... A man with a dream..." - NYC Godwhackers Jewish band leader Donald F. https://www.youtube.com/watch?v=Hvz0TOm0zgI why was a 1972 song only put on Youtube late year 2018, too late for Trump? 3,455,783 views October 25, 2018. NYC music cartels.
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3me4sut33q22y https://autistics.life/@RoundSparrow/116018980304813623 }
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3phm0f/
+
+"LMAO", predictably Reddit audience minds blown into meme stupor mindsets. Gender paradox messaging from billionaires down to Reddit tech fandoms.
+
+* “If one man can destroy everything, why can't one girl change it?”
+― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. October 8, 2013
