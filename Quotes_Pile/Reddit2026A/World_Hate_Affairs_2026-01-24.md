@@ -1230,3 +1230,7 @@ https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_anti
 
 Every Reddit meme consumer commenting on different pages at slightly different times. ANYTHING to AVOID GETTING ON THE SAME PAGES. Anything but quote nonfiction books about USA mental health from Dr. Bandy X Lee, a woman.
 
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pso2l/
+
+Fiction addicts on Reddit, fandoms of fiction memes, can not "believe" the real world / reality.
+
