@@ -973,3 +973,7 @@ Egoism. Egomania. Media mania consumers of Trickle Down content from billionaire
 https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pahhl/
 
 No, Reddit audience is not kidding. Joke-washing kidding-washing of billionaires is serious fandom on Reddit. Turning everything into jokes about how great it is to hear more billionaire content every day on Reddit. Drowning in Putin messaging, Musk messaging, etc.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3p8nr9/
+
+Peter Thiel is actively selling his science fiction stories to Reddit fandom about "Anti-Christ" and fantasy "apocalypse" from the Surkov monomyth in February 2026. People love these science fiction stories about South Park Satan fiction and bible apocalypse / Christ / Christian monomyth. Surkov won since March 2013.
