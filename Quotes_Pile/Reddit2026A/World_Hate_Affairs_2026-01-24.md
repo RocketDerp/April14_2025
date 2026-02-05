@@ -1076,3 +1076,10 @@ https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_anti
 
 “The human brain can protect us from seeing and feeling what it believes may be too uncomfortable for us to tolerate. It can lead us to deny, defend, minimize, or rationalize away something that doesn’t fit our worldview.”
 ― Dr. Bandy X Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. Published **October 3, 2017**. Page 273. Chapter "TRUMP'S DADDY ISSUES"](https://books.google.com/books?id=g0c4DwAAQBAJ&pg=PA273&dq=%E2%80%9CThe+human+brain+can+protect+us+from+seeing+and+feeling+what+it+believes+may+be+too+uncomfortable%22&hl=en&newbks=1&newbks_redir=1&sa=X)
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3peszp/
+
+3 month Reddit account. "village idiot" mocking. Reddit mockery, mocking back at mock content. Reddit is the idiot fandom commenting about the idiot. OPERA_A "Will it turn us all into Global Village Idiots". https://youtu.be/2JIj0Bqbdhk?t=148 "A Greek word meaning very private person". Marshall McLuhan. 6,379 views May 17, 2009 (I shared this YouTube link during the Arab Spring 2010 over Internet to Tunisia and Algeria)
+
+
+
