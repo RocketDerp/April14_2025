@@ -932,3 +932,7 @@ Ukraine war since February 20, 2024 on /r/Europe - the European subreddit, claim
 https://old.reddit.com/r/europe/comments/1qwd3o4/ukrainians_warned_for_years_that_europes_human/o3oxi20/
 
 "The Devil" is a fiction storytelling character from The Bible and Quran, the Levant Science Fiction Trilogy { Torah, Bible, Quran, Book of Mormon }. Tiny-shirt Reddit commenting message Twitter-thinking mindset patterns. People think "The Devil" and "South Park 2025 Satan" in White House fiction is more real than human beings in the reality of the real world. Putin, Epstein, Trump are nonfiction, but people are so stuffed full of South Park fiction images and Bible science fiction "The Devil" storytelling...
+
+https://old.reddit.com/r/europe/comments/1qwd3o4/ukrainians_warned_for_years_that_europes_human/o3oplpg/
+
+4 month Reddit account. MY ADVICE: Blame it on low-effort banal Reddit joke-washing of Epstein, content addicts who will not turn to Dr. Bandy X Lee's public education leadership on mental health.
