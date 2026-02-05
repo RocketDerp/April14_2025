@@ -2187,4 +2187,5 @@ Reddit Trump fandom.
 
 https://old.reddit.com/r/politics/comments/1qwtda4/the_next_democratic_president_better_be_merciless/o3ro26o/
 
-We The People need cult deprogramming.
+We The People need cult deprogramming. Every mental health processionals in the world, every nation, should be deprogramming USA. There is so much recency bias, people are not facing up that Trump was voted out in the November 2020 election and was removed from office for 4 years. The cult problem was not dealt with, the Fox News HDTV cult. The Newsmax media cult. The Elon Musk Twitter cult. Facebook media cult.
+
