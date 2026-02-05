@@ -1234,3 +1234,12 @@ https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_anti
 
 Fiction addicts on Reddit, fandoms of fiction memes, can not "believe" the real world / reality.
 
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pv1x6/
+
+Followers on Reddit tech fandom are doing the following.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pvcj1/
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pvd2n/
+
+Religion is science fiction media. Media addictions are "religion". Reddit is a club of media addicts. Fandoms of media addictions. But Reddit users think only 2,000 year old "Anti Christ" cults exist, not that Reddit itself is a cult center. Bible cult is fiction cult. Reddit cult is fiction cult.
