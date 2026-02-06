@@ -367,3 +367,13 @@ Hate messages just mysteriously appear on information systems.
 * “a **peek-a-boo world, where now this event, now that, pops into view for a moment, then vanishes again**. It is an improbable world. It is **a world in which the idea of human progress, as Bacon expressed it**, has been replaced by the idea of technological progress. The aim is **not to reduce ignorance, superstition, and suffering** but to accommodate ourselves to the requirements of new technologies. We tell ourselves, of course, that such accommodations will **lead to a better life**, but that is only the rhetorical residue of a vanishing technocracy. We are a culture **consuming itself with information**, and many of us do not even wonder how to control the process. We proceed under the assumption that information is our friend, believing that cultures may suffer grievously from a lack of information, which, of course, they do. It is **only now beginning to be understood that cultures may also suffer grievously from information glut**, information without meaning, information without control mechanisms.” ― Neil Postman, Technopoly: The Surrender of Culture to Technology. year 1992.
 
 Tweet glut commenting glut low-quality trash Reality TV fandoms. Postman sure can write in Finnegans Wake depth. The metaphors are great!
+
+https://old.reddit.com/r/MurderedByWords/comments/1qxpyxm/staffer_excuse_doesnt_fly/o3y42kk/
+
+https://old.reddit.com/r/MurderedByWords/comments/1qxpyxm/staffer_excuse_doesnt_fly/o3y54du/
+
+https://old.reddit.com/r/MurderedByWords/comments/1qxpyxm/staffer_excuse_doesnt_fly/o3y72pp/
+
+https://old.reddit.com/r/MurderedByWords/comments/1qxpyxm/staffer_excuse_doesnt_fly/o3y7ny9/
+
+LOL, Trump Fandom, Reddit media laugh track for Reddit fanatics.
