@@ -71,4 +71,6 @@ https://old.reddit.com/r/TrueDetective/comments/3e73k4/s2e5_true_detective_s2e5_
 
 Parallel comment about the mindsets of the subreddit closed-minded as hell. "this sub is so bloody defensive that it gets nuts." (sub = subreddit, community, fandom, cultists of season 1 vs. season 2). Season 1 was 2 people in a slow-moving area of USA, I called it training wheels. Season 2 was all of Hollywood fast lane and larger group of detectives, way beyond training wheels for audience into the real year 2015 mindset complexity.
 
+https://old.reddit.com/r/TrueReddit/comments/qg868/people_arent_smart_enough_for_democracy_to/c3xjvlh/
 
+My comment. I was quoting the 1988 nonfiction book back in year 2012. Arab Spring media ecology study years. I head already lived in Algeria, Jordan studying the Syria war outbreak, etc. I was still re-reading Power of Myth 1988 and Great Seal of the United States of America topics, such as page 38.
