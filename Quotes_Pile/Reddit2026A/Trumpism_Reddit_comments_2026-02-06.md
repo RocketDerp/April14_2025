@@ -470,3 +470,6 @@ https://old.reddit.com/r/Music/comments/1qxt34b/jack_white_goes_off_on_sick_dera
 
 This is every topic of every hour of every day on Reddit and society in USA. Avoidance of intelligent leaders who write and teach nonfiction. Dr. Bandy X Lee avoided. Any serious learning from books is ignored in favor of commenting shit-comments on Reddit and Bluesky and everywhere shit-postings. Avoided Neil Postman and Marshall McLuhan education.
 
+https://old.reddit.com/r/GetNoted/comments/1qxkbmm/black_maga_are_so_lost/o3wxnxd/
+
+Feedback loops of feedback loops. Every media system is looping. Reddit has screenshots of Twitter discussing White House podium media. It's never-ending Trump media. The KING OF ALL MEDIA ATTRACTION. The monomyth patterns are churning and churning. SEE_ALSO https://GitHub.com/RocketDerp/April14_2025/blob/working/Grim_Blunt/Donald_Trump_SuperStar.md#king-of-pop
