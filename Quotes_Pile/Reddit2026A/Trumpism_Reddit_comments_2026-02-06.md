@@ -310,3 +310,6 @@ Gullible audience to how serious things are, Reddit. Thinks this was not planned
 
 * Published January 2015, before Trump started run for office in June 2015: https://www.Politico.com/magazine/story/2015/01/putin-russia-tv-113960/ At one end of the table sat one of the country’s most famous political TV presenters. He was small and spoke fast, with a smoky voice: “We all know there will be no real politics,” he said. “But we still have to give our viewers the sense something is happening. They need to be kept entertained.” “So what should we play with?” he asked. “Shall we attack oligarchs? Who’s the enemy this week? Politics has got to feel like a movie!”
 
+https://old.reddit.com/r/Music/comments/1qxq12k/dropkick_murphys_frontman_calls_out_nfl_for/o3y9pjh/
+
+Cult fandom vs. cult fandom. Cult NFL vs. cult Reddit. Cult vs. cult. Entertainment media cults all.
