@@ -277,3 +277,12 @@ Read the replies too. Reddit social community needs a Professor Marshall McLuhan
 https://old.reddit.com/r/Fauxmoi/comments/1qxmjch/sheryl_crow_calls_for_trumps_impeachment_and/o3xiho4/
 
 We The People need to be calling on social media platforms IN A DIRECTION. In a PATH FORWARD. We need to be pointing and calling to Dr. Bandy X Lee's 2017 book and pick up from October 3, 2017 forward. We need to be calling out to We The People to follow Jen Senko's 2015 lead with nonfiction family stories about men being brainwashed by other men like { Epstein, Murdoch, Musk, Trump, Joe Rogan, Alex Jones, Rush Limbaugh, Putin }.
+
+https://old.reddit.com/r/law/comments/1qxmw2x/gop_fast_tracks_monster_voter_suppression_bill/o3xlebf/
+
+https://old.reddit.com/r/law/comments/1qxmw2x/gop_fast_tracks_monster_voter_suppression_bill/o3xh7g0/
+
+Denial abounds on Reddit. People are so programmed into sports think logic of "winning"and "losers' by Putin and Trump messaging since March 2013. People need to lean mistakes. We can amend the USA Constitution if we get thinking in order. Hive mind PLURIBUS is essential comprehension that Reddit hive mind is programmed to be against. Surkov students won. People need to get rid of Levant mindsets the Clergy has fed to believers and non-believers alike. That there is a Devil leader and a Good Guy leader and following South Park Satan character is acceptable and normal. No, evil and good are not two choices. Evil is not a choice. Left vs. right, 2-choices binary logic is the mindsets to remove. We need to be making choices between 13 (Great Seal USA) GOOD IDEAS. Not between BAD idea vs. GOOD idea, 2 and only 2 choices.
+
+
+
