@@ -340,3 +340,6 @@ One thing about being professional paid **technical editor** and classroom teach
 
 Programming languages are so fucking fragmented. Tower of Babel compilers. If you think reading my Finnegans Wake 1924 autistic English writing is hard, ha.
 
+https://old.reddit.com/r/Music/comments/1qxq12k/dropkick_murphys_frontman_calls_out_nfl_for/o3y5yf1/
+
+3 month Reddit account. Playing dumb, asking simple-thinking pattern mindset setting questions. "LOL" laugh track for Reddit media environment.
