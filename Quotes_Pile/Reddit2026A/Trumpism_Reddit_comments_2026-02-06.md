@@ -459,3 +459,9 @@ Start promoting Dr. Bandy X Lee's nonfiction books and leadership. The whole wor
 https://old.reddit.com/r/Music/comments/1qxt34b/jack_white_goes_off_on_sick_deranged_president/o3z4kbk/
 
 100% of Americans are avoiding Dr. Bandy X Lee's nonfiction books. Why aren't the magical Reddit free thinkers actually doing cult deprogramming of the cult MAGA?
+
+https://old.reddit.com/r/Music/comments/1qxt34b/jack_white_goes_off_on_sick_deranged_president/o3yuwh1/
+
+"He was peddling birtherism fifteen freaking years ago"
+
+How: TWITTER. July 6, 2011 Twitter. https://theoutline.com/post/2445/trump-s-first-real-tweet-was-on-july-6-2011 You need to learn media ecology and Reddit is a cult of Trump hate messaging. Back and forth TCP/IP feedback loops of Trump hate messages, Truth Social to Reddit message mindsets. Twitter to Reddit. Tweet-thinking all over Reddit. CULTS OF MEDIA. Celebrity TV star, FICTION Reality TV!
