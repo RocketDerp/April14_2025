@@ -428,6 +428,12 @@ It is perplexing to people who have not read the 1988 book "The Power of Myth" b
 * "There is no question but that Hitler belongs in the category of the truly mystic medicine man. As somebody commented about him at the last Nürnberg party congress, since the time of Mohammed nothing like it has been seen in this world. His body does not suggest strength. The outstanding characteristic of his physiognomy is its dreamy look. I was especially struck by that when I saw pictures taken of him in the Czechoslovakian crisis; there was in his eyes the look of a seer. This markedly **mystic characteristic of Hitler's is what makes him do things which seem to us illogical, inexplicable, and unreasonable**. ... So you see, Hitler is a medicine man, a spiritual vessel, a demi-deity or, even better, **a myth**." - 
 During an interview with H. R. Knickerbocker, first published in Hearst's International Cosmopolitan (**January 1939**), in which Dr. Carl G. Jung was asked to diagnose Adolf Hitler, Benito Mussolini, and Joseph Stalin.
 
-OPERA_A "It honestly perplexes me how this demented asshat is able to avoid responsibility for EVERYTHING he does." - EVERYTHING, eh? NOTHING is True from Trump, eh? https://www.youtube.com/watch?v=9iKCELeoFGM BUT LISTEN: EVERYTHING YOU LOVE IS ABOUT TO DISAPPEAR!
+OPERA_A "It honestly perplexes me how this demented asshat is able to avoid responsibility for EVERYTHING he does." - EVERYTHING, eh? NOTHING is True from Trump, eh? https://www.youtube.com/watch?v=9iKCELeoFGM BUT LISTEN: EVERYTHING YOU LOVE IS ABOUT TO DISAPPEAR! 224,822 views April 16, 2020
 
 Social post { https://autistics.life/@RoundSparrow/116026130625526226 https://bsky.app/profile/roundsparrow.bsky.social/post/3me7ykagsws2t }
+
+https://old.reddit.com/r/politics/comments/1qxnovk/trump_frantically_blames_staffer_for_his_racist/o3xnlc1/
+
+https://old.reddit.com/r/politics/comments/1qxnovk/trump_frantically_blames_staffer_for_his_racist/o3xn7d9/
+
+2 month Reddit account.
