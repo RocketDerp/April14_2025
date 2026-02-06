@@ -343,3 +343,16 @@ Programming languages are so fucking fragmented. Tower of Babel compilers. If yo
 https://old.reddit.com/r/Music/comments/1qxq12k/dropkick_murphys_frontman_calls_out_nfl_for/o3y5yf1/
 
 3 month Reddit account. Playing dumb, asking simple-thinking pattern mindset setting questions. "LOL" laugh track for Reddit media environment.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qxt0u0/jack_white_speaks_on_trumps_racist_post_about_the/o3yrza7/
+
+ANSWER to the post: How is it we are giving in to such an **obvious** evil man? Russia won an information war since March 2013 and the entire population is in self-denial of the NATO events going on and how obvious it all is that anti-NATO since Trump's Moscow visit November 8, 2013 is the agenda. And how avoidant everyone is to this December 20, 2013 public statement by the Kremlin: https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/
+
+I thought Cold War Information Warriors were told to *keep their eye on the ball*... what fucking ball is everyone looking at while children and girls are fucked-over and manipulated every hour of every day in Russia and Ukraine? Since when to men on Reddit not care about girls across the ocean? Shit, in the 1960's The Beatles and The Who were swimming in girls across the ocean, so was The Beach Boys! https://en.wikipedia.org/wiki/The_Beach_Boys_On_Tour:_1968
+
+Why the fuck are Reddit White Knights not defending Russian women and Russian girls from Putin? OPERA_A Pussy Riot - Punk Prayer - "Mother of God, Putin Put!" https://www.youtube.com/watch?v=1s-ZN2yZzWw  129,678 views August 18, 2012
+
+I created this Subreddit or a similar one. https://old.reddit.com/r/PussyRiot - it is now banned March 26, 2022 .. my accounts all banned. Ukraine vs. Russia vs. Israel (October 7 Putin's birthday 2023) wars on Reddit. Maybe I had a alt Pussy Riot subreddit, too much brain damage from Reddit manipulation.
+
+
+
