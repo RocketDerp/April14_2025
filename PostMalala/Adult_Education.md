@@ -80,3 +80,19 @@ With leaders like #Musk #Trump #Epstein #Putin #Murdoch men... what you get is p
 Men who want to watch women suffer and want people to fail because name-brand university and education is scarce and rare. [Epstein had his hand in repetitive mindless gun-murdering video game, Call of Duty gaming](https://old.reddit.com/r/nottheonion/comments/1qunaw6/jeffrey_epstein_reportedly_had_a_major_hand_in/), to turn children into anti-education gun worshipers.
 
 Since June 2015, entire generations of boys and girls raised in the USA have been given Donald Trump and Epstein as role models of leadership. Parents made #TrumpRoleModel of abuse, hate, Putin worship.  Instead of promoting #DrBandyXLee to the center of internet attention, we got #Trump parenting.
+
+&nbsp;
+
+&nbsp;
+
+# Adults Go To Clowns
+
+https://autistics.life/@RoundSparrow/116020732723752830   
+https://bsky.app/profile/roundsparrow.bsky.social/post/3me5ltl2sfc2a   
+
+&nbsp;
+
+Children are forced to go to serious teachers.   
+Adults have the freedom to flock to { Clown Joe Rogan, Clown Alex Jones, Clown Truth Social, Clown Twitter Elon Musk } - that is where ADULTS go to SCHOOL.
+
+::: ++ Clown Fox News 
