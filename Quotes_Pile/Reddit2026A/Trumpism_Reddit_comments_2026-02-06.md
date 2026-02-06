@@ -354,5 +354,6 @@ Why the fuck are Reddit White Knights not defending Russian women and Russian gi
 
 I created this Subreddit or a similar one. https://old.reddit.com/r/PussyRiot - it is now banned March 26, 2022 .. my accounts all banned. Ukraine vs. Russia vs. Israel (October 7 Putin's birthday 2023) wars on Reddit. Maybe I had a alt Pussy Riot subreddit, too much brain damage from Reddit manipulation.
 
+https://old.reddit.com/r/Fauxmoi/comments/1qxt0u0/jack_white_speaks_on_trumps_racist_post_about_the/o3yrvcr/
 
-
+Reddit users always think blackmail, money, "documents" on every cult member. Fox News HDTV does not have document on every audience cult member. Mecca does not have documents on every Quran cult member. Reddit commenting section does not have blackmail on every Reddit cult member. Media ecology learning from Marshall McLuhan is essential to rescue USA population from this simplistic thinking about blackmail and "dirt" as the motivation for Trumpism and MAGA. The NATO Ukraine Canada Greenland Venezuela self-harm behavior is not driven by blackmail or bribes as much as mythological storytelling of the Rupert Murdoch and Surkov order!
