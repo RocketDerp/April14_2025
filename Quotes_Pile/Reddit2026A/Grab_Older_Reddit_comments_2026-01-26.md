@@ -91,4 +91,6 @@ Somehow the comment with the quote was disappeared? Screen shot of Google today.
 
 https://old.reddit.com/r/OutOfTheLoop/comments/49y5ak/whats_the_massive_controversy_about_the_original/d0wkby2/
 
-My comment. Reddit community discussing reddit social behaviors.
+My comment. Reddit community discussing Reddit social behaviors.
+
+Read the whole reply thread, mocking Bill Moyers. Mocking Campbell with little shit-commenting. This is in 2026 during the Trump winning /r/The_Donald mindsets of Reddit. RAGING Internet Research Agency warfare out of Saint Petersburg in year 2016... https://en.wikipedia.org/wiki/R/The_Donald for hearts and minds to be mechanical and logic. 
