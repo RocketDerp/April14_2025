@@ -396,3 +396,17 @@ ANSWER: What does that say about the techniques of media engagement the White Ho
 https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
 
 Reddit fandoms of Trump will compare subreddit to subreddit, from /r/MurderByWords to /r/Conservative - but will not compare Kremlin to White House. Will not look at September 9, 2014 article on The Atlantic - which is way before November 2016 election day... CONTEXT BLINDNESS is what the Internet Research Agency induced in USA population. Recency bias. SEE_ALSO Media Ecology, author went to Neil Postman's university, New York University! "Context Blindness: Digital Technology and the Next Stage of Human Evolution (Understanding Media Ecology, 10)" – January 25, 2022 by Eva Berger 
+
+https://old.reddit.com/r/politics/comments/1qxnovk/trump_frantically_blames_staffer_for_his_racist/o3xnafm/
+
+Reddit chants "coward". Trump is incredibly brave and persistent. Trump is aggressive. Trump is hostile. He isn't a coward to media camera and spotlight at all. Reddit users hide their real names, real faces, real workplace names, real cities... If you want to see cowardly use of media, see the people afraid to quote real nonfiction sources. Trump is incredibly media brave. Stop thinking he is afraid of attention and bad publicity.
+
+Trump understands NYC Edward Bernays. Trump understands NYC Manhattan Neil Postman. Fred Trump understood.
+
+* Shared by Irshad Salim: “We are completely immune to advertising, do you know why? It’s all good news.” “Why do we find real news to be bad news? Because it tells the truth… I suggest that the reason we like bad news is (that) **it gives us a huge Survivor emotion**… we’re glad we’re not them there…” -Marshall McLuhan Kenneth Allsop interviews the world’s leading media theorist, Marshall McLuhan – the author of The Mechanical Bride, The Gutenberg Galaxy, Understanding Media, and The Medium is The Massage – about his theories of mass communication. Originally broadcast 19 August, 1971: https://despardes.com/marshall-mcluhan-on-good-news-bad-news-advertising/
+
+Reddit audiences posting and shit-posting and shit-commenting get peer with Trump... "it gives us a huge Survivor emotion" That's the CORE of democracy. ANYONE can become Internet famous for shit-posting a meme. And Reddit users feel as described August 19, 1971: "it gives us a huge Survivor emotion"
+
+* "The sense of this, it seemed to me, might be that from above or below, or from any point of the compass, the creative Word might be heard, which is the great thesis of democracy. Democracy assumes **that anybody from any quarter can speak**, and speak truth, because his mind is not cut off from the truth. All he has to do is clear out his passions and then speak." - 1988, Power Of Myth. https://www.GreatSealUSA.com/
+
+Anyone can post a shit-post on the Internet!!! And the more FICTION it is, the more Reddit will front-page the bullshit shit-postings. Reddit is **a cult venue** of Trump bullshit media / content.
