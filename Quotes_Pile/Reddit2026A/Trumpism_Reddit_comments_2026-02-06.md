@@ -246,3 +246,26 @@ https://old.reddit.com/r/Fauxmoi/comments/1qxmjch/sheryl_crow_calls_for_trumps_i
 
 Look at the forest for the trees. Neither Sheryl Crow's posting or the Reddit commenting community is point got follow Dr. Bandy X Lee's leadership. People are not citing nonfiction book learning and calling for comprehensive mutual understanding of our shared situation. The danger we are all in with this mass dehumanization ongoing event.
 
+https://old.reddit.com/r/Fauxmoi/comments/1qxmjch/sheryl_crow_calls_for_trumps_impeachment_and/o3xfj5w/
+
+9 month Reddit account, 2nd most popular upvoted.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qxmjch/sheryl_crow_calls_for_trumps_impeachment_and/o3xfph2/
+
+6 month Reddit account. Commenting topic is the conditioned simulation of minds to respond about Clinton family.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qxmjch/sheryl_crow_calls_for_trumps_impeachment_and/o3xg03p/
+
+3 month Reddit account.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qxmjch/sheryl_crow_calls_for_trumps_impeachment_and/o3xhbmj/
+
+9 month Reddit account.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qxmjch/sheryl_crow_calls_for_trumps_impeachment_and/o3xhwci/
+
+She started with Erik Clapton, which has turned into a big hate promoter. 
+
+* "Based on available information, Sheryl Crow has not publicly condemned Eric Clapton regarding his past racist remarks or controversial views on COVID-19 vaccinations. Following their brief romantic relationship in the late 1990s, the two have remained on good terms, with Crow frequently expressing admiration for him, calling him a "good friend," and performing at his Crossroads Guitar Festival as recently as 2023. Despite the public controversy surrounding Clapton, Crow has not used her public platform to denounce him, instead collaborating with him as recently as her 2019 album Threads." - Google Search Summary, 2026-02-06 USA afternoon
+
+* "Eric Clapton's history of controversial public statements is anchored by his infamous August 1976 concert at the Birmingham Odeon, where an inebriated Clapton launched into a racist tirade supporting far-right politician Enoch Powell. During the outburst, he repeatedly used slurs, urged the audience to “keep Britain white,” and claimed the country was becoming a "black colony". This event served as a primary catalyst for the founding of the Rock Against Racism movement. While his early 1960s career was defined by his obsession with Black American blues, critics have retrospectively examined this as a "colonialist" appropriation in light of his later rhetoric. Decades later, Clapton faced renewed backlash for his anti-lockdown and anti-vaccine positions during the COVID-19 pandemic, releasing songs like “Stand and Deliver” and “This Has Gotta Stop,” and suggesting that those following medical guidance were victims of "mass formation hypnosis". In later years, he admitted to being “a nasty person” and “full-tilt racist” during the 1970s, as well as confessing to domestic abuse against his former wife Pattie Boyd during that same era." - Google Search summary 2026-02-06 USA afternoon
