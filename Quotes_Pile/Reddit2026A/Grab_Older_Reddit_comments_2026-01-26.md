@@ -73,4 +73,14 @@ Parallel comment about the mindsets of the subreddit closed-minded as hell. "thi
 
 https://old.reddit.com/r/TrueReddit/comments/qg868/people_arent_smart_enough_for_democracy_to/c3xjvlh/
 
+My comment. Power of Myth quotes.
+
+https://old.reddit.com/r/TrueReddit/comments/qg868/people_arent_smart_enough_for_democracy_to/c3xjumu/
+
 My comment. I was quoting the 1988 nonfiction book back in year 2012. Arab Spring media ecology study years. I head already lived in Algeria, Jordan studying the Syria war outbreak, etc. I was still re-reading Power of Myth 1988 and Great Seal of the United States of America topics, such as page 38.
+
+https://old.reddit.com/r/TwoXChromosomes/comments/vwcyv/what_happened_to_my_twox/c58evcb/
+
+My comment. Emphasizing and repeating what someone else said: "the majority vote is, I'm sad to say, the vote of stupidity."
+
+
