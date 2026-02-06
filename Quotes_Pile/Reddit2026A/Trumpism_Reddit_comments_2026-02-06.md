@@ -297,3 +297,7 @@ https://old.reddit.com/r/politics/comments/1qxld8m/karoline_leavitt_gives_jawdro
 "not normal", "Insane"
 
 Yes, it is normal Twitter and normal Reddit since at least Q4 2014. More than 11 years. People on Reddit can not recognize their own media enviornment spreading to other venues and media platforms, White House podium media channels. This is "White House Hyper Real" WHHR, as I tried to teach on this subreddit: https://old.reddit.com/r/WhiteHouseHyperReal April 24, 2017 - first year of Trump's first term in office. It is still there for learning. But Reddit fandom of Trump can't resisting making reaction comments instead of studying Surkov Hyper Reality governing methods.
+
+https://old.reddit.com/r/politics/comments/1qxld8m/karoline_leavitt_gives_jawdropping_defense_of/o3x7f2a/
+
+Reddit end users, Reddit community, Reddit fandom would comment and measure each apple and turd. SEE_ALSO https://github.com/RocketDerp/April14_2025/blob/main/Grim_Blunt/Society_of_grading_and_ranking_turds.md
