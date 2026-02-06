@@ -83,4 +83,12 @@ https://old.reddit.com/r/TwoXChromosomes/comments/vwcyv/what_happened_to_my_twox
 
 My comment. Emphasizing and repeating what someone else said: "the majority vote is, I'm sad to say, the vote of stupidity."
 
+https://old.reddit.com/r/TheOrville/comments/i1amzf/i_also_just_watched_home_for_the_nth_time_and_am/g303ttq/
 
+Somehow the comment with the quote was disappeared? Screen shot of Google today. 2026-02-06
+
+<img width="2414" height="481" alt="image" src="https://github.com/user-attachments/assets/8db01749-b0a5-49b4-8f39-7167347bed44" />
+
+https://old.reddit.com/r/OutOfTheLoop/comments/49y5ak/whats_the_massive_controversy_about_the_original/d0wkby2/
+
+My comment. Reddit community discussing reddit social behaviors.
