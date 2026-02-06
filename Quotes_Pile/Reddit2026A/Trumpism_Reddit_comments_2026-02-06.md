@@ -437,3 +437,8 @@ https://old.reddit.com/r/politics/comments/1qxnovk/trump_frantically_blames_staf
 https://old.reddit.com/r/politics/comments/1qxnovk/trump_frantically_blames_staffer_for_his_racist/o3xn7d9/
 
 2 month Reddit account.
+
+https://old.reddit.com/r/worldnews/comments/1qxtka2/us_to_fund_magaaligned_groups_in_europe_amid_free/o3yvi1f/
+
+Your Trump fandom typical comment to enable and normalize the situation, folks. People who will not turn to leaders like Jen Senko and Dr. Bandy X Lee in leading an intellectual anti-brainwashing rescue.
+
