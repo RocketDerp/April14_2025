@@ -24,3 +24,39 @@ Leisure Travel Free Spirit 210B 3S (model year 2006) was our new home office. Ca
 
 Katrina was yet to hit New Orleans. We had been to NOLA before going to South America. When we had our 1987 Bluebird Wanderlodge PT40. You could sense the social turning point of Texas in 2006 when the city re-opened for Fat Tuesday 2006. https://www.splcenter.org/resources/reports/hurricane-katrina-racial-stigma/
 
+I did not see Twitter and Facebook and Reddit coming as a social force in 1999, or I would have authored social media Y2K instead of a from-scratch e-commerce system Thanksgiving 1999 in Lake Havasu City, Arizona. I didn't make that mistake seeing SXSW March 2008 https://www.fastcompany.com/3026937/the-untold-story-behind-mark-zuckerbergs-sxsw-keynote-debacle/ - when I was involved in the Linux users groups in Austin. 
+
+Sunday in March 2008 was when I realized Austin had a view in the inward journey of mob mentality. That *online social media* behavior and Apple iPhone 1 year 2007 was changing onine social to offline mobs. 
+
+* "**Unknowingly to everyone in the room, this would become a landmark moment** on many fronts from keynotes to interviewing techniques to content. Suddenly everyone was an expert."  - https://briansolis.com/2008/03/sarah-lacy-on-sarah-lacy-and-sxsw-mark/
+
+I had my own corporation. a consulting company and I purchased the the Apple iPhone 1 and I was considering making apps. That was the new future. But social changes of "work at home" co-working movement in Austin was also in my focus.
+
+* "The original iPhone was announced by Steve Jobs on January 9, 2007, at the Macworld convention in San Francisco. It was released for sale in the United States on June 29, 2007, at 6:00 p.m. local time, with prices starting at $499 for the 4GB model and $599 for the 8GB model." - Google Search summary 2026-02-06 morning USA
+
+Yet, it was that SXSW March 2008 that really opened my eyes. I started to dust off Marshall McLuhan. Half Price Books was my regular visit to pick up Joseph Campbell, Marshall McLuhan books. I was *witnessing* that the RV life I had lived going mainstream.
+
+Repeating: "**Unknowingly to everyone in the room, this would become a landmark moment** on many fronts from keynotes to interviewing techniques to content. Suddenly everyone was an expert." ... and I witnessed small businesses all over Austin adopting social media and I started to ponder what was happening.
+
+Saturday January 3, 2009 https://www.nbcnews.com/id/wbna49378197
+
+I did not notice that far away. But I had worked for SAP in Germany, and I started thinking about Africa as I was pushing Ubuntu in Austin as "Linux on the desktop" for the mainstream.  Ubuntu 9.04 (Jaunty Jackalope), released on April 23, 2009 for SXSW 2009. Had some fun parties, but Linux on the smarpthone with Android / Google was the hot thing... not Linux on the desktop in 2009.
+
+But I did come across this article in the summer of 2009: https://www.nytimes.com/2007/05/26/world/africa/26algeria.html
+
+And after witnessing what I had seen in March 2008, Repeating:  "**Unknowingly to everyone in the room, this would become a landmark moment** on many fronts from keynotes to interviewing techniques to content. Suddenly everyone was an expert." - I suspected a new form of "Eternal September 1993" was going to be taking place in part of the world that did not grow up on ASCII variations. Places where the Sinclair Spectrum and the Commodore 64 were not in local retail stores.
+
+On December 16, 2009 I predicted the Arab Spring and made it my main focus and center of attention. I started meeting women in Tunisia on Facebook. Very open, curious, educated, intelligent women. Who did not want the lifestyle of their mother's generation. University educated women in Tunisia and Algeria.
+
+* "By Michael Slackman May 26, 2007. ALGIERS, May 25 — In this tradition-bound nation scarred by a brutal Islamist-led civil war that killed more than 100,000, a quiet revolution is under way: **women are emerging as an economic and political force unheard of in the rest of the Arab world.**" https://www.nytimes.com/2007/05/26/world/africa/26algeria.html
+
+Right there from a home office in Austin, I saw the waves of Twitter and Facebook and Reddit hitting north Africa. The Great Seal USA pyramid was now the center of attention to women in north Africa. Women were using USA Twitter, USA Facebook, USA YouTube. And a few of them said they had learned their English from rock music on the radio. Michael Jackson at age 14 and 16... and now these women were age 24 and 29.
+
+Women who were interested in rock music lyric meanings over the Internet using USA social media. Free thinking women. Oh, I hadn't forgotten September 11, 2001. I had studied the Quran a little after 9/11. But rock music AND the Quran, who was ready to push back against Mecca and Saudi Arabia?
+
+I had seen Michael Jackson in the mecca of music, Detroit, **Motown**. I had the ability to find track on YouTube that newcomers to the computers and Internet were amazed by. The ladies in north Africa never knew that Michael Jackson had worked for Pepsi. My father worked for Pepsi, RKO pictures / RKO music as am executive. 
+
+OPERA_A https://www.youtube.com/watch?v=po0jY4WvCIc 133,851,233 views  June 26, 2009
+
+That link was shared over the Internet to north Africa during February 2010 by me. Eyes opened by educated women seeking their masters degrees in English. You are a whole new generation, ladies. EDUCATED women in Islam. The ground beneath you is changing, Unicode commenting on social media is mainstream. Eternal September 2009 had started in north Africa.
+
