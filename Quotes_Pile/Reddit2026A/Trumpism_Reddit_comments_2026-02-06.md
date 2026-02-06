@@ -193,6 +193,10 @@ Social post { https://autistics.life/@RoundSparrow/116024765554492125 https://bs
 
 https://old.reddit.com/r/nottheonion/comments/1qxifxb/white_house_responds_to_backlash_over_racist_post/o3wjatc/
 
+<img width="1351" height="985" alt="image" src="https://github.com/user-attachments/assets/3dd498dd-87ed-431b-8a18-ee6c9ae8c824" />
+
 Trump fandom. Reddit is a Trump (hate-watching) fandom. Instead of REMOVING TRUMP and MAGA as a threat, people are commenting minute by minute about **ANTICIPATION** of the next media medium system delivery of TCP/IP notifications!
 
 OPERA_A Minute by Minute, waiting on White House Kremlin Surkov students! Waiting for a 79 year old man's brain to lead the Reddit fandom! https://www.youtube.com/watch?v=xWaj0_jYGlY 1,345,851 views August 27, 2015
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3me7gtxezys2g https://autistics.life/@RoundSparrow/116024891216549964 }
