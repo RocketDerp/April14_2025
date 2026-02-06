@@ -54,9 +54,11 @@ Right there from a home office in Austin, I saw the waves of Twitter and Faceboo
 
 Women who were interested in rock music lyric meanings over the Internet using USA social media. Free thinking women. Oh, I hadn't forgotten September 11, 2001. I had studied the Quran a little after 9/11. But rock music AND the Quran, who was ready to push back against Mecca and Saudi Arabia?
 
-I had seen Michael Jackson in the mecca of music, Detroit, **Motown**. I had the ability to find track on YouTube that newcomers to the computers and Internet were amazed by. The ladies in north Africa never knew that Michael Jackson had worked for Pepsi. My father worked for Pepsi, RKO pictures / RKO music as am executive. 
+I had seen Michael Jackson in the mecca of music, Detroit, **Motown**. I had the ability to find tracks on YouTube that newcomers to the computers and Internet were amazed by. The ladies in north Africa never knew that Michael Jackson had worked for Pepsi. My father worked for Pepsi, RKO pictures / RKO music as am executive. 
 
 OPERA_A https://www.youtube.com/watch?v=po0jY4WvCIc 133,851,233 views  June 26, 2009
 
 That link was shared over the Internet to north Africa during February 2010 by me. Eyes opened by educated women seeking their masters degrees in English. You are a whole new generation, ladies. EDUCATED women in Islam. The ground beneath you is changing, Unicode commenting on social media is mainstream. Eternal September 2009 had started in north Africa.
+
+OPERA_A https://www.youtube.com/watch?v=sJifw6Kej2s 4,719,102 views January 14, 2013 - I've seen that Eternal September road before... inward journey. Marshall McLuhan and James Joyce year 2008 and year 2009 rising up from BBS days in 1985 and Eternal September 1993. Still they lead me back to Marshall McLuhan and 1923 Finn's Hotel in Dublin.
 
