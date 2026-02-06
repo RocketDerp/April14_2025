@@ -1454,3 +1454,12 @@ https://old.reddit.com/r/Fauxmoi/comments/1qwvyqe/tony_hawk_debunks_the_viral_ru
 
 https://old.reddit.com/r/Fauxmoi/comments/1qwvyqe/tony_hawk_debunks_the_viral_rumor_he_had_one_of/o3s1ppi/
 
+https://old.reddit.com/r/sports/comments/1qxuxgk/usa_booed_at_winter_olympics_opening_ceremony_as/o3z6w6q/
+
+https://old.reddit.com/r/sports/comments/1qxuxgk/usa_booed_at_winter_olympics_opening_ceremony_as/o3zb4sf/
+
+https://old.reddit.com/r/sports/comments/1qxuxgk/usa_booed_at_winter_olympics_opening_ceremony_as/o3za4tb/
+
+https://old.reddit.com/r/PublicFreakout/comments/1qxuhpf/vp_jd_vance_and_wife_usha_get_bood_at_the_olympics/o3z2h8w/
+
+Hate is what Reddit is fandom for, video postings on Reddit of hate-watching content of JD Vance hate leadership.
