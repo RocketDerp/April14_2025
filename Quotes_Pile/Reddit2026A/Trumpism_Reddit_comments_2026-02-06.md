@@ -394,3 +394,5 @@ ANSWER: What does that say about the techniques of media engagement the White Ho
 
 * "what Putin **will do next** — that he’s **unpredictable** and thus dangerous. We’re rendered stunned, spun, and flummoxed by the Kremlin’s weaponization of absurdity and unreality.” - year 2014. September 9, 2014
 https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+Reddit fandoms of Trump will compare subreddit to subreddit, from /r/MurderByWords to /r/Conservative - but will not compare Kremlin to White House. Will not look at September 9, 2014 article on The Atlantic - which is way before November 2016 election day... CONTEXT BLINDNESS is what the Internet Research Agency induced in USA population. Recency bias. SEE_ALSO Media Ecology, author went to Neil Postman's university, New York University! "Context Blindness: Digital Technology and the Next Stage of Human Evolution (Understanding Media Ecology, 10)" – January 25, 2022 by Eva Berger 
