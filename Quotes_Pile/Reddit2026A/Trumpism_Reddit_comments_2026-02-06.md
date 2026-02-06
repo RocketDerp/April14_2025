@@ -78,3 +78,35 @@ https://old.reddit.com/r/Fauxmoi/comments/1qxbulw/trump_just_posted_a_video_of_b
 Reddit mindset. "Vote harder" as all the avoidance of nonfiction, avoidance of Jen Senko leadership, avoidance of Dr. Bandy X Lee is "upvote" every minute of every hour of every day and night, over and over on Reddit. Reddit needs to face Marshall McLuhan and Neil Postman... and Dr. Bandy X Lee's public education.
 
 You can't have 5% of your population be terrorists. You can't have 10%, 30%. You gotta keep it to well below 1%. Surkov won, Putin won, NATO lost. Pentagon did not grasp 1968 book "War and Peace in the Global Village". I'm not hopeless, but things are very grim on Reddit in people not addressing the Fox News cult and Reddit cultists.
+
+Reddit February 2026 midnset is TECHNICAL, that by bmocking out MAGA with technology tools, block button, just as MAGA wants to do with foreingers and immigrants and libereals... block-button the telephone ICE button...
+
+QUOTE OF NONFICTION BOOK FOLLOWS:
+
+BILL MOYERS: Can Westerners **grasp** the mystical experience that leaves theology behind? If you’re locked to the image of God in a culture where science determines your **perceptions of reality**, how can you experience this ultimate ground that the shamans talk about?
+
+CAMPBELL: Well, people do experience it. Those in the Middle Ages who experienced it were usually burned as heretics. One of the great heresies in the West is the heresy that Christ pronounced when he said, “I and the Father are one.” He was crucified for saying that. In the Middle Ages, nine hundred years after Christ, a great Sufi mystic said, “I and my beloved are one,” and he, too, was crucified. As he was going to the cross, he prayed, “O my Lord, if you had taught these people what you have taught me, they would not be doing this to me. And if you had not taught me, this would not be happening to me. Blessed is the Lord and all his works.” Another of the **Sufi mystics** said, “The function of the orthodox community is to give the mystic his desire, which is a union with God, through mortification and death.”
+
+MOYERS: What has undercut this experience today?
+
+CAMPBELL: It’s characteristic of democracy that **majority rule is understood** as being effective not only in politics but also in thinking. **In thinking, of course, the majority is always wrong**.
+
+MOYERS: Always wrong?
+
+CAMPBELL: In matters of this kind, yes. The majority’s function in relation to the spirit is to try to listen and to open up to someone who’s had an experience beyond that of food, shelter, progeny, and wealth.
+Have you ever read **Sinclair Lewis’ Babbitt**?
+
+MOYERS: Not in a long time.
+
+&nbsp;
+
+* "Just as he was an Elk, a Booster, and a member of the Chamber of Commerce, just as the priests of the Presbyterian Church determined his every religious belief and the senators who controlled the Republican Party decided in little smoky rooms in Washington what he should think about disarmament, tariff, and Germany, so did **the large national advertisers fix the surface of his life, fix what he believed** to be his individuality. These **standard advertised wares** — toothpastes, socks, tires, cameras, instantaneous hot-water heaters—were his symbols and proofs of excellence; at first the signs, then the substitutes, for joy and passion and wisdom.{96} But none of these advertised tokens of financial and social success was more significant than a sleeping-porch with a sun-parlor below."
+* * year 1922
+  * Page 95
+  * MAGA Rural population, the Fox News rural farmers, Republican "red areas" of states
+  * https://www.gutenberg.org/files/1156/1156-h/1156-h.htm
+  * Just as in year 1922 a man in Dublin, James Joyce, "the large national advertisers fix the surface of his life, fix what he believed" - The *Rome* Roman Catholic Church.
+  *  *  "I confess that I do not see what good it does to fulminate against the English tyranny while the Roman tyranny occupies the palace of the soul." - James Joyce. - "Ireland, Island of Saints and Sages," lecture, Università Popolare, Trieste Rome Italy (27 April 1907)
+     *  "Le università popolari nacquero in Italia tra il 1900 e 1901 ad opera del Partito Socialista Italiano e dei sindacati, seguendo gli esempi già attivi nel XIX secolo in Danimarca e Svezia, e sul finire dello stesso secolo in Inghilterra. La diffusione fu rapida in Italia come lo fu contemporaneamente in tutta Europa." https://it.wikipedia.org/wiki/Universit%C3%A0_popolare#Italia
+
+
