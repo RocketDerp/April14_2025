@@ -473,3 +473,9 @@ This is every topic of every hour of every day on Reddit and society in USA. Avo
 https://old.reddit.com/r/GetNoted/comments/1qxkbmm/black_maga_are_so_lost/o3wxnxd/
 
 Feedback loops of feedback loops. Every media system is looping. Reddit has screenshots of Twitter discussing White House podium media. It's never-ending Trump media. The KING OF ALL MEDIA ATTRACTION. The monomyth patterns are churning and churning. SEE_ALSO https://GitHub.com/RocketDerp/April14_2025/blob/working/Grim_Blunt/Donald_Trump_SuperStar.md#king-of-pop
+
+https://old.reddit.com/r/GetNoted/comments/1qxkbmm/black_maga_are_so_lost/o3wzevg/
+
+Destabilized Reality.
+
+* New Years Eve 2014, BBC, Adam Curtis: "A war where you never know what the enemy are really up to, or even who they are. The underlying aim, **Surkov** says, is not to win the war, but to **use the conflict to create a constant state of destabilized perception**, in order to manage and control." https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html
