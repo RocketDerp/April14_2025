@@ -165,3 +165,7 @@ P.S. "English Professor" did not capitalize the first word of a sentence in "Tha
 
 * "Secondly, I think we need to call to mind that the narrow specialists **mentality** almost inevitably eventually also gets to the point – where **it misses the most important elements in its own field**. The reason for this being, the core principle of many a matter, can only be properly understood and evaluated when one has an **insight into other disciplines** that may illuminate the matter under consideration. So, **specialization has it great and grave dangers**." Minute 22 https://youtu.be/08R1kPdfrHA?t=1204 - 
 Joseph Campbell: A Modern Sage - 1987 on "Inner Reaches of Outer Space" book - Dr. Stephan A Hoeller
+
+https://old.reddit.com/r/nottheonion/comments/1qxifxb/white_house_responds_to_backlash_over_racist_post/o3wl7hc/
+
+Twitter-length commenting on Reddit. Short-message. Mind easily blown by high-speed media systems of Reddit with keyword "meme".
