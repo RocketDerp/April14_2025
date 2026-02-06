@@ -239,3 +239,10 @@ Howard Bloom
 Published: August 14, 2000
 
 NOTE: I like to emphasize that this book was published before September 11, 2001 terrorism attacks on USA by Islamic / Saudi Arabians / Mecca fiction media empire followers. As it offers a great perspective of NYC research and thinking before 9/11 changed so many attitudes.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qxmjch/sheryl_crow_calls_for_trumps_impeachment_and/o3xf3xu/
+
+11 day Reddit account. Top upvoted popular comment.
+
+Look at the forest for the trees. Neither Sheryl Crow's posting or the Reddit commenting community is point got follow Dr. Bandy X Lee's leadership. People are not citing nonfiction book learning and calling for comprehensive mutual understanding of our shared situation. The danger we are all in with this mass dehumanization ongoing event.
+
