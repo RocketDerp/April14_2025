@@ -190,3 +190,9 @@ OPERA_A I hope to match... "One Great Virtue", "Mythological Meaningful" - with 
 :::: *Cover of "Low Spark of High Heeled Boys" for the Theme Music Group.  Theme: Title Tracks.  Yes, I finger-sync nearly as badly as I lip-sync.  By the time I got to the video, I just wanted to get it DONE.* ::: By that a gun that didn't make any noise... but it wasn't the bullet that laid him to rest... it was the piano playing of Steve Winwood fandom!
 
 Social post { https://autistics.life/@RoundSparrow/116024765554492125 https://bsky.app/profile/roundsparrow.bsky.social/post/3me7f5aesqs22 }
+
+https://old.reddit.com/r/nottheonion/comments/1qxifxb/white_house_responds_to_backlash_over_racist_post/o3wjatc/
+
+Trump fandom. Reddit is a Trump (hate-watching) fandom. Instead of REMOVING TRUMP and MAGA as a threat, people are commenting minute by minute about **ANTICIPATION** of the next media medium system delivery of TCP/IP notifications!
+
+OPERA_A Minute by Minute, waiting on White House Kremlin Surkov students! Waiting for a 79 year old man's brain to lead the Reddit fandom! https://www.youtube.com/watch?v=xWaj0_jYGlY 1,345,851 views August 27, 2015
