@@ -114,3 +114,7 @@ Social post { https://autistics.life/@RoundSparrow/116024440368649972 https://bs
 https://old.reddit.com/r/trollfare/comments/d258nb/information_gerrymandering_in_social_networks/eztsm15/
 
 my comment. "/r/Troll Fare" community about how fucked-up Reddit mindsets were.
+
+https://old.reddit.com/r/Trumpvirus/comments/1jfm98g/hes_just_so_stupid/mity863/
+
+My comment. Criticizing the Star Wars fandom for phallic *power* weapon shallowness that doesn't grow to the nonfiction teaching of Lucas in 1988 book.
