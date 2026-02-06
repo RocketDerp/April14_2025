@@ -62,3 +62,12 @@ That link was shared over the Internet to north Africa during February 2010 by m
 
 OPERA_A https://www.youtube.com/watch?v=sJifw6Kej2s 4,719,102 views January 14, 2013 - I've seen that Eternal September road before... inward journey. Marshall McLuhan and James Joyce year 2008 and year 2009 rising up from BBS days in 1985 and Eternal September 1993. Still they lead me back to Marshall McLuhan and 1923 Finn's Hotel in Dublin.
 
+* "Women make up 70 percent of Algeria’s lawyers and 60 percent of its judges. Women dominate medicine. Increasingly, women contribute more to household income than men. Sixty percent of university students are women, university researchers say." -  May 25, 2007 the outcomes of Terrorism and men fucking up society.
+
+* الجماعة الإسلامية المسلّحة "Between 1992 and 1998, the GIA conducted a violent campaign of civilian massacres, sometimes wiping out entire villages in its area of operation (notably in Bentalha and Rais). It attacked and killed other Islamists who had left the GIA or attempted to negotiate with the government. It also targeted foreign civilians living in Algeria, killing more than 100 expatriate men and women."
+
+https://old.reddit.com/r/Fauxmoi/comments/1qxbulw/trump_just_posted_a_video_of_barack_and_michelle/o3vc1zi/
+
+Reddit mindset. "Vote harder" as all the avoidance of nonfiction, avoidance of Jen Senko leadership, avoidance of Dr. Bandy X Lee is "upvote" every minute of every hour of every day and night, over and over on Reddit. Reddit needs to face Marshall McLuhan and Neil Postman... and Dr. Bandy X Lee's public education.
+
+You can't have 5% of your population be terrorists. You can't have 10%, 30%. You gotta keep it to well below 1%. Surkov won, Putin won, NATO lost. Pentagon did not grasp 1968 book "War and Peace in the Global Village". I'm not hopeless, but things are very grim on Reddit in people not addressing the Fox News cult and Reddit cultists.
