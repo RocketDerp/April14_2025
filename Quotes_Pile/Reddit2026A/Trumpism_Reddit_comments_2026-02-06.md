@@ -301,3 +301,12 @@ Yes, it is normal Twitter and normal Reddit since at least Q4 2014. More than 11
 https://old.reddit.com/r/politics/comments/1qxld8m/karoline_leavitt_gives_jawdropping_defense_of/o3x7f2a/
 
 Reddit end users, Reddit community, Reddit fandom would comment and measure each apple and turd. SEE_ALSO https://github.com/RocketDerp/April14_2025/blob/main/Grim_Blunt/Society_of_grading_and_ranking_turds.md
+
+https://old.reddit.com/r/politics/comments/1qxld8m/karoline_leavitt_gives_jawdropping_defense_of/o3x6gg6/
+
+Gullible audience to how serious things are, Reddit. Thinks this was not planned back in year 2013 and is only due to current 2026 events.
+
+* This is just a feedback loop of eating out of the Surkov student hands - and it was called out last year. October 19, 2024. "America's gullibility crisis" by Zachary Basu  https://www.axios.com/2024/10/19/musk-ackman-election-misinformation [“The truth is, it’s getting harder to describe the extent to which a meaningful percentage of Americans have dissociated from reality,” Charlie Warzel wrote “I’m Running Out of Ways to Explain How Bad This Is.” - October 19, 2024 - America’s gullibility crisis, Zachary Basu](https://www.axios.com/2024/10/19/musk-ackman-election-misinformation) ===:::
+
+* Published January 2015, before Trump started run for office in June 2015: https://www.Politico.com/magazine/story/2015/01/putin-russia-tv-113960/ At one end of the table sat one of the country’s most famous political TV presenters. He was small and spoke fast, with a smoky voice: “We all know there will be no real politics,” he said. “But we still have to give our viewers the sense something is happening. They need to be kept entertained.” “So what should we play with?” he asked. “Shall we attack oligarchs? Who’s the enemy this week? Politics has got to feel like a movie!”
+
