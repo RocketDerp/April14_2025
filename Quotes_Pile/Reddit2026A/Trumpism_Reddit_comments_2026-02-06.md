@@ -377,3 +377,9 @@ https://old.reddit.com/r/MurderedByWords/comments/1qxpyxm/staffer_excuse_doesnt_
 https://old.reddit.com/r/MurderedByWords/comments/1qxpyxm/staffer_excuse_doesnt_fly/o3y7ny9/
 
 LOL, Trump Fandom, Reddit media laugh track for Reddit fanatics.
+
+https://old.reddit.com/r/MurderedByWords/comments/1qxpyxm/staffer_excuse_doesnt_fly/o3y57wd/
+
+https://old.reddit.com/r/MurderedByWords/comments/1qxpyxm/staffer_excuse_doesnt_fly/o3y7pvk/
+
+Remember remember recall December 31, 2014 BBC broadcast from Adam Curtis? "Everything we're told by journalists and **politicians is confusing and contradictory**. Of course, there is no Mr. Surkov in charge, but it is an odd, non-linear world that plays into the hands of those in power." - New Years Eve 2014 before Trump ran for office on June 16, 2015.
