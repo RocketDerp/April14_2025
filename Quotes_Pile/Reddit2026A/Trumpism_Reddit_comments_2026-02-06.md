@@ -288,6 +288,6 @@ https://old.reddit.com/r/law/comments/1qxmw2x/gop_fast_tracks_monster_voter_supp
 
 9 month Reddit account. Obligatory. People are NOT CALLING FOR CULT DEPROGRAMMING AND TO FOLLOW DR. BANDY X. LEE'S LEADERSHIP! Fox News cult addressing and fixing is not optional! We can't have 25% terrorism supporters, 12% terrorism supporters, 2% terrorism supporters, it needs to be much more near 0.0% terrorism supporters! Rupert Murdoch has shown us all how to create terrorism mindsets, Putin and Surkov defeated NATO!
 
+https://old.reddit.com/r/law/comments/1qxmw2x/gop_fast_tracks_monster_voter_suppression_bill/o3xl9co/
 
-
-
+https://old.reddit.com/r/law/comments/1qxmw2x/gop_fast_tracks_monster_voter_suppression_bill/o3xnexo/
