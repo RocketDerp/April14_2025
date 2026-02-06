@@ -188,3 +188,5 @@ Everything is TCP/IP Traceroute ecology geography. https://en.wikipedia.org/wiki
 
 OPERA_A I hope to match... "One Great Virtue", "Mythological Meaningful" - with this track for you! https://www.youtube.com/watch?v=RziQ-kZdVJU Guru player. USA year 250, We The People were Children Once, PLAYING WITH TOYS!  Meme toys, Great Seal of the United States of America. 8,691 views  March 17, 2013
 :::: *Cover of "Low Spark of High Heeled Boys" for the Theme Music Group.  Theme: Title Tracks.  Yes, I finger-sync nearly as badly as I lip-sync.  By the time I got to the video, I just wanted to get it DONE.* ::: By that a gun that didn't make any noise... but it wasn't the bullet that laid him to rest... it was the piano playing of Steve Winwood fandom!
+
+Social post { https://autistics.life/@RoundSparrow/116024765554492125 https://bsky.app/profile/roundsparrow.bsky.social/post/3me7f5aesqs22 }
