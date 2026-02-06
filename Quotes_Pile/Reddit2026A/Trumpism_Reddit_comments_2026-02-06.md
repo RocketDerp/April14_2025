@@ -200,3 +200,13 @@ Trump fandom. Reddit is a Trump (hate-watching) fandom. Instead of REMOVING TRUM
 OPERA_A Minute by Minute, waiting on White House Kremlin Surkov students! Waiting for a 79 year old man's brain to lead the Reddit fandom! https://www.youtube.com/watch?v=xWaj0_jYGlY 1,345,851 views August 27, 2015
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3me7gtxezys2g https://autistics.life/@RoundSparrow/116024891216549964 }
+
+https://old.reddit.com/r/MurderedByWords/comments/1qxixus/this_is_not_a_normal_reaction/o3wnyth/
+
+4 month Reddit account. Hyper Banal. Most popular, most upvoted.
+
+COMMENTARY: This is normal USA February 2026 fandom of ICE and fandom of Charlie Kirk and fandom of MAGA. Tiny-short messaging of Truth Social / Bluesky / Twitter-thinking. Mockery and more mocking. This is entertainment to a cult of memes. A media cult among many media cults. Television cultists, Reddit commenting cultists, Twitter screen shot cultists, media upon media upon media layers in this posted image. 
+
+Reddit touch device *things*... *App* things... comments.
+
+* "Well, if we had really reached the postmodern in its fullest sense – the way Baudrillard uses it – it would be the computers unplugging us and not the reverse. The postmodern is a blurring of the lines between human beings and machines, a blurring of the line between reality and image. It is a society – actually I can’t even really use that word anymore – it is a world, if you will, a grouping of the world in which **reality is simply that which can be simulated, Xeroxed, copied**. That is one of his first theses, it’s a book called Simulations. It’s a very interesting thesis. Baudrillard argues that this process is… one of the central things is the way in which **we… that’s changed us fundamentally and has helped to bring our relations as humans to a close**. I mean, in a way Baudrillard sees himself as a post-apocalyptic writer. For Baudrillard the apocalypse has already occurred; it wasn’t religious or anything, it was not atomic bombs. At some point in the development of technology, **human beings ceased to be the reason** of things and things took on their own reasons… technological things." - https://rickroderick.org/308-baudrillard-fatal-strategies-1993/ - Texan Rick Roderick, Duke University
