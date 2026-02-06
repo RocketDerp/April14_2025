@@ -210,3 +210,32 @@ COMMENTARY: This is normal USA February 2026 fandom of ICE and fandom of Charlie
 Reddit touch device *things*... *App* things... comments.
 
 * "Well, if we had really reached the postmodern in its fullest sense – the way Baudrillard uses it – it would be the computers unplugging us and not the reverse. The postmodern is a blurring of the lines between human beings and machines, a blurring of the line between reality and image. It is a society – actually I can’t even really use that word anymore – it is a world, if you will, a grouping of the world in which **reality is simply that which can be simulated, Xeroxed, copied**. That is one of his first theses, it’s a book called Simulations. It’s a very interesting thesis. Baudrillard argues that this process is… one of the central things is the way in which **we… that’s changed us fundamentally and has helped to bring our relations as humans to a close**. I mean, in a way Baudrillard sees himself as a post-apocalyptic writer. For Baudrillard the apocalypse has already occurred; it wasn’t religious or anything, it was not atomic bombs. At some point in the development of technology, **human beings ceased to be the reason** of things and things took on their own reasons… technological things." - https://rickroderick.org/308-baudrillard-fatal-strategies-1993/ - Texan Rick Roderick, Duke University
+
+https://old.reddit.com/r/MurderedByWords/comments/1qxixus/this_is_not_a_normal_reaction/o3wmx1s/
+
+All the "Nazi" word programming into Reddit minds, people can not study Russia Ukraine war topics in detail and fixate on 1930's Germany. Surkov won since March 2013.
+
+QUOTE FROM NONFICTION BOOK FOLLOWS:
+
+Hate Training Observations
+
+On the other side of the religious divide stood the new Fundamentalists of Racial Purity and Christianity, whose leaders skillfully manipulated conformity enforcement mechanisms which impel us to pick on those who are different. Typical among these was a group called **Russian National Unity,** which claimed an army of 70,000, snapped up members at the age of nine, enrolled them in "military patriotic clubs," dressed them in fascist uniforms, **gave them the insignia of the swastika, taught them the Nazi salute,** drilled them in combat maneuvers, honed their marksmanship, and identified the target of their weapons in their anthem:
+
+    we are going down the straight road
+    to believe, desire, and dare
+    death to the cosmopolitan dogs and Jews and masons!
+
+National Unity's founder, karate coach Alexander Barkashov, quoted yet another tune when giving interviews on the dangers of world Jewry and of the United States:
+
+    Plunge your knife in the vampire's throat  
+    And the world will become good again.
+
+Many parents welcomed National Unity's training for mass murder.
+
+Global Brain: The Evolution of Mass Mind from the Big Bang to the 21st Century   
+Chapter: The **Kidnap of Mass Mind**  
+Page: 201  
+Howard Bloom   
+Published: August 14, 2000
+
+NOTE: I like to emphasize that this book was published before September 11, 2001 terrorism attacks on USA by Islamic / Saudi Arabians / Mecca fiction media empire followers. As it offers a great perspective of NYC research and thinking before 9/11 changed so many attitudes.
