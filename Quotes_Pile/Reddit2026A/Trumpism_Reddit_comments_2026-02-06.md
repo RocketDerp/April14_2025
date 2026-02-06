@@ -176,3 +176,12 @@ https://old.reddit.com/r/nottheonion/comments/1qxifxb/white_house_responds_to_ba
 
 * “Everything in our background has prepared us to know and resist a prison when the gates begin to close around us . . . But what if there are no cries of anguish to be heard? Who is prepared to take arms against a sea of amusements? To whom do we complain, and when, and in what tone of voice, when **serious discourse dissolves into giggles**? What is the antidote to a culture's being drained by laughter?” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. Year 1985.
 * *  New York University professor describing the very unsolved problem of humanity this GitHub is trying to burn my brain out with to get everyone to recognize the Tower of Babel crisis of fiction vs. nonfiction Bible verse "1 John 4:20" has wrecked us via Surkov students using TCP/IP from Saint Petersburg since March 2013!
+
+https://old.reddit.com/r/nottheonion/comments/1qxifxb/white_house_responds_to_backlash_over_racist_post/o3wn1o0/
+
+Everything is Media Ecology. https://GiThub.com/RocketDerp/April14_2025/blob/main/Media_Ecology/Everything_is_ME.md       
+Everything is TCP/IP Traceroute ecology geography. https://en.wikipedia.org/wiki/Traceroute   
+
+* https://youtu.be/08R1kPdfrHA?t=2407 "Art is more worth than truth" "that of James Joyce"... "proper and improper art" ... *commercial art*. White House art work, images created by the White House!!! https://youtu.be/08R1kPdfrHA?t=2527 "or politics". Surkovian.
+
+* **"A Grand Symptom"** https://youtu.be/08R1kPdfrHA?t=2585 "One Great Virtue", "Mythological Meaningful"
