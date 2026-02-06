@@ -456,3 +456,6 @@ https://old.reddit.com/r/worldnews/comments/1qxtka2/us_to_fund_magaaligned_group
 
 Start promoting Dr. Bandy X Lee's nonfiction books and leadership. The whole world wide web of Earth needs to take on mental health crisis of USA MAGA cultists (cults of hate, followers of hate leadership, including Reddit fandoms who can't admit their shit-commenting attraction to Trump shit-postings).
 
+https://old.reddit.com/r/Music/comments/1qxt34b/jack_white_goes_off_on_sick_deranged_president/o3z4kbk/
+
+100% of Americans are avoiding Dr. Bandy X Lee's nonfiction books. Why aren't the magical Reddit free thinkers actually doing cult deprogramming of the cult MAGA?
