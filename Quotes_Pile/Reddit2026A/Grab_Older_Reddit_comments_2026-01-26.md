@@ -66,3 +66,9 @@ Nothing progressive in the message, absent any goodness. Just wanting to see kil
 https://old.reddit.com/r/TrueDetective/comments/3e73k4/s2e5_true_detective_s2e5_watchthrough_analysis_by/ctcqgg7/
 
 My comment. Quoting Star Wars fiction fandom lessons from George Lucas to True Detective fiction fandom... Campbell about Reddit popularity toxic, upvoting and downvoting behaviors.
+
+https://old.reddit.com/r/TrueDetective/comments/3e73k4/s2e5_true_detective_s2e5_watchthrough_analysis_by/ctcumjw/
+
+Parallel comment about the mindsets of the subreddit closed-minded as hell. "this sub is so bloody defensive that it gets nuts." (sub = subreddit, community, fandom, cultists of season 1 vs. season 2). Season 1 was 2 people in a slow-moving area of USA, I called it training wheels. Season 2 was all of Hollywood fast lane and larger group of detectives, way beyond training wheels for audience into the real year 2015 mindset complexity.
+
+
