@@ -418,3 +418,10 @@ Reddit audiences posting and shit-posting and shit-commenting get peer with Trum
 * "The sense of this, it seemed to me, might be that from above or below, or from any point of the compass, the creative Word might be heard, which is the great thesis of democracy. Democracy assumes **that anybody from any quarter can speak**, and speak truth, because his mind is not cut off from the truth. All he has to do is clear out his passions and then speak." - 1988, Power Of Myth. https://www.GreatSealUSA.com/
 
 Anyone can post a shit-post on the Internet!!! And the more FICTION it is, the more Reddit will front-page the bullshit shit-postings. Reddit is **a cult venue** of Trump bullshit media / content.
+
+https://old.reddit.com/r/politics/comments/1qxnovk/trump_frantically_blames_staffer_for_his_racist/o3xolbo/
+
+It is perplexing to people who have not read the 1988 book "The Power of Myth" backwards and forwards. People who do not learn and study the United States of America Free Masons symbolism in the Great Seal of the United States of America. www.GreatSealUSA.com website I created for education! We have an urgent and overdue education crisis of media ecology and comparative mythology!
+
+* "There is no question but that Hitler belongs in the category of the truly mystic medicine man. As somebody commented about him at the last Nürnberg party congress, since the time of Mohammed nothing like it has been seen in this world. His body does not suggest strength. The outstanding characteristic of his physiognomy is its dreamy look. I was especially struck by that when I saw pictures taken of him in the Czechoslovakian crisis; there was in his eyes the look of a seer. This markedly **mystic characteristic of Hitler's is what makes him do things which seem to us illogical, inexplicable, and unreasonable**. ... So you see, Hitler is a medicine man, a spiritual vessel, a demi-deity or, even better, **a myth**." - 
+During an interview with H. R. Knickerbocker, first published in Hearst's International Cosmopolitan (**January 1939**), in which Dr. Carl G. Jung was asked to diagnose Adolf Hitler, Benito Mussolini, and Joseph Stalin.
