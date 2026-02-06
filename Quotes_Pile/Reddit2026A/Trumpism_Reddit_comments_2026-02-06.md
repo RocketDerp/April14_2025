@@ -118,3 +118,11 @@ ASSERTION: MAGA is not a movement of democracy and reason thinking. It is a move
 https://old.reddit.com/r/Fauxmoi/comments/1qxbulw/trump_just_posted_a_video_of_barack_and_michelle/o3val11/
 
 The Reddit Twitter-length contribution to society: *hate harder* message, fuck humanism, fuck nonfiction teaching. Avoid mental health rescue by supporting and quoting Dr. Bandy X Lee. Just aggressive penis-fuck-you male Trumpism hate message all day and night about how much you hate MAGA males via Reddit cloud computing server machines.
+
+https://old.reddit.com/r/nottheonion/comments/1qxifxb/white_house_responds_to_backlash_over_racist_post/o3wlpo2/
+
+Most upvoted popular comment. Reddit fandom discussing their favorite Reality TV fiction programming. The images are fake, not reality of the Obama family. Reddit audience is commenting about the schedule of their content addiction, weekday programming. Mind-fucked into audience. Normalizing active messaging via Reddit toxic popularity.
+
+* "about how when capitalism reached a certain level of accumulation, commodities began to **detach** them**selves** and become images. And **citizens who formerly had played roles as political actors** began to detach themselves from their own lives and become spectators." - Texan Rick Roderick, Duke University. https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
+
+Reddit January 2026 put into English teaching lessons by Roderick..
