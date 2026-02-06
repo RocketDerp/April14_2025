@@ -448,5 +448,11 @@ https://old.reddit.com/r/worldnews/comments/1qxtka2/us_to_fund_magaaligned_group
 
 Fandom of scams and scammers. Thinks they are being sarcastic, in real harsh reality, they are hate-watching fandom. Cultists don't see the contradiction of "holy wars" where they claim the cult is about love while they wreck out-groups.
 
+https://old.reddit.com/r/worldnews/comments/1qxtka2/us_to_fund_magaaligned_groups_in_europe_amid_free/o3z51y9/
 
+1 month Reddit account.
+
+https://old.reddit.com/r/worldnews/comments/1qxtka2/us_to_fund_magaaligned_groups_in_europe_amid_free/o3yvsyu/
+
+Start promoting Dr. Bandy X Lee's nonfiction books and leadership. The whole world wide web of Earth needs to take on mental health crisis of USA MAGA cultists (cults of hate, followers of hate leadership, including Reddit fandoms who can't admit their shit-commenting attraction to Trump shit-postings).
 
