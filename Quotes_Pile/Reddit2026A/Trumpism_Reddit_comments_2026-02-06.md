@@ -383,3 +383,14 @@ https://old.reddit.com/r/MurderedByWords/comments/1qxpyxm/staffer_excuse_doesnt_
 https://old.reddit.com/r/MurderedByWords/comments/1qxpyxm/staffer_excuse_doesnt_fly/o3y7pvk/
 
 Remember remember recall December 31, 2014 BBC broadcast from Adam Curtis? "Everything we're told by journalists and **politicians is confusing and contradictory**. Of course, there is no Mr. Surkov in charge, but it is an odd, non-linear world that plays into the hands of those in power." - New Years Eve 2014 before Trump ran for office on June 16, 2015.
+
+https://old.reddit.com/r/MurderedByWords/comments/1qxpyxm/staffer_excuse_doesnt_fly/o3y7wm2/
+
+2 month Reddit account.
+
+https://old.reddit.com/r/MurderedByWords/comments/1qxpyxm/staffer_excuse_doesnt_fly/o3y9dkd/
+
+ANSWER: What does that say about the techniques of media engagement the White House is using? What does that say about Reddit comment creators (AKA, Trump Fandom) constantly commenting and avoiding serious nonfiction comparative politics and comparative religion?
+
+* "what Putin **will do next** — that he’s **unpredictable** and thus dangerous. We’re rendered stunned, spun, and flummoxed by the Kremlin’s weaponization of absurdity and unreality.” - year 2014. September 9, 2014
+https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
