@@ -66,6 +66,13 @@ OPERA_A https://www.youtube.com/watch?v=sJifw6Kej2s 4,719,102 views January 14, 
 
 * الجماعة الإسلامية المسلّحة "Between 1992 and 1998, the GIA conducted a violent campaign of civilian massacres, sometimes wiping out entire villages in its area of operation (notably in Bentalha and Rais). It attacked and killed other Islamists who had left the GIA or attempted to negotiate with the government. It also targeted foreign civilians living in Algeria, killing more than 100 expatriate men and women."
 
+* "Between 1992 and 1998, the GIA conducted a violent campaign of civilian massacres, sometimes wiping out entire villages in its area of operation (notably in Bentalha and Rais). It attacked and killed other Islamists who had left the GIA or attempted to negotiate with the government. It also targeted foreign civilians living in Algeria, killing more than 100 expatriate men and women."
+
+* "the GIA sought not to bargain with the government, but to overthrow it and "purge the land of the ungodly" in its pursuit of an Islamic state. The **slogan inscribed on all its communiques was: "no agreement, no truce, no dialogue"**. GIA's ideology was inspired by the Jihadist writings of the Egyptian Islamist scholar Sayyid Qutb" - Anti Great Seal of Egypt values. Special revelations ONLY. Purge of anyone not agreeing to the special revelations.
+* *  *No dialog*, oh the stories I could tell about Algeria and *no dialog*. If you search this GitHub for the phrase "hate harder" and call-out of the *disown MAGA, no dialog with MAGA family* mentality on Reddit....
+
+
+
 https://old.reddit.com/r/Fauxmoi/comments/1qxbulw/trump_just_posted_a_video_of_barack_and_michelle/o3vc1zi/
 
 Reddit mindset. "Vote harder" as all the avoidance of nonfiction, avoidance of Jen Senko leadership, avoidance of Dr. Bandy X Lee is "upvote" every minute of every hour of every day and night, over and over on Reddit. Reddit needs to face Marshall McLuhan and Neil Postman... and Dr. Bandy X Lee's public education.
