@@ -169,3 +169,10 @@ Joseph Campbell: A Modern Sage - 1987 on "Inner Reaches of Outer Space" book - D
 https://old.reddit.com/r/nottheonion/comments/1qxifxb/white_house_responds_to_backlash_over_racist_post/o3wl7hc/
 
 Twitter-length commenting on Reddit. Short-message. Mind easily blown by high-speed media systems of Reddit with keyword "meme".
+
+https://old.reddit.com/r/nottheonion/comments/1qxifxb/white_house_responds_to_backlash_over_racist_post/o3wk4f1/
+
+"LOL", laugh-track for Twitter-mindsets audience on Reddit. Avoidance of nonfiction learning of electric high-speed media ecology.
+
+* “Everything in our background has prepared us to know and resist a prison when the gates begin to close around us . . . But what if there are no cries of anguish to be heard? Who is prepared to take arms against a sea of amusements? To whom do we complain, and when, and in what tone of voice, when **serious discourse dissolves into giggles**? What is the antidote to a culture's being drained by laughter?” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. Year 1985.
+* *  New York University professor describing the very unsolved problem of humanity this GitHub is trying to burn my brain out with to get everyone to recognize the Tower of Babel crisis of fiction vs. nonfiction Bible verse "1 John 4:20" has wrecked us via Surkov students using TCP/IP from Saint Petersburg since March 2013!
