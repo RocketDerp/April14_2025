@@ -465,3 +465,8 @@ https://old.reddit.com/r/Music/comments/1qxt34b/jack_white_goes_off_on_sick_dera
 "He was peddling birtherism fifteen freaking years ago"
 
 How: TWITTER. July 6, 2011 Twitter. https://theoutline.com/post/2445/trump-s-first-real-tweet-was-on-july-6-2011 You need to learn media ecology and Reddit is a cult of Trump hate messaging. Back and forth TCP/IP feedback loops of Trump hate messages, Truth Social to Reddit message mindsets. Twitter to Reddit. Tweet-thinking all over Reddit. CULTS OF MEDIA. Celebrity TV star, FICTION Reality TV!
+
+https://old.reddit.com/r/Music/comments/1qxt34b/jack_white_goes_off_on_sick_deranged_president/o3yx118/
+
+This is every topic of every hour of every day on Reddit and society in USA. Avoidance of intelligent leaders who write and teach nonfiction. Dr. Bandy X Lee avoided. Any serious learning from books is ignored in favor of commenting shit-comments on Reddit and Bluesky and everywhere shit-postings. Avoided Neil Postman and Marshall McLuhan education.
+
