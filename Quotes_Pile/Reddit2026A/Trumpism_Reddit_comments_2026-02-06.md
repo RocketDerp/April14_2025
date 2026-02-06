@@ -284,5 +284,10 @@ https://old.reddit.com/r/law/comments/1qxmw2x/gop_fast_tracks_monster_voter_supp
 
 Denial abounds on Reddit. People are so programmed into sports think logic of "winning"and "losers' by Putin and Trump messaging since March 2013. People need to lean mistakes. We can amend the USA Constitution if we get thinking in order. Hive mind PLURIBUS is essential comprehension that Reddit hive mind is programmed to be against. Surkov students won. People need to get rid of Levant mindsets the Clergy has fed to believers and non-believers alike. That there is a Devil leader and a Good Guy leader and following South Park Satan character is acceptable and normal. No, evil and good are not two choices. Evil is not a choice. Left vs. right, 2-choices binary logic is the mindsets to remove. We need to be making choices between 13 (Great Seal USA) GOOD IDEAS. Not between BAD idea vs. GOOD idea, 2 and only 2 choices.
 
+https://old.reddit.com/r/law/comments/1qxmw2x/gop_fast_tracks_monster_voter_suppression_bill/o3xoyjc/
+
+9 month Reddit account. Obligatory. People are NOT CALLING FOR CULT DEPROGRAMMING AND TO FOLLOW DR. BANDY X. LEE'S LEADERSHIP! Fox News cult addressing and fixing is not optional! We can't have 25% terrorism supporters, 12% terrorism supporters, 2% terrorism supporters, it needs to be much more near 0.0% terrorism supporters! Rupert Murdoch has shown us all how to create terrorism mindsets, Putin and Surkov defeated NATO!
+
+
 
 
