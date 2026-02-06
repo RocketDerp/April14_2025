@@ -79,7 +79,7 @@ Reddit mindset. "Vote harder" as all the avoidance of nonfiction, avoidance of J
 
 You can't have 5% of your population be terrorists. You can't have 10%, 30%. You gotta keep it to well below 1%. Surkov won, Putin won, NATO lost. Pentagon did not grasp 1968 book "War and Peace in the Global Village". I'm not hopeless, but things are very grim on Reddit in people not addressing the Fox News cult and Reddit cultists.
 
-Reddit February 2026 midnset is TECHNICAL, that by bmocking out MAGA with technology tools, block button, just as MAGA wants to do with foreingers and immigrants and libereals... block-button the telephone ICE button...
+Reddit February 2026 mindset is TECHNICAL, that by blocking out MAGA with technology tools, block button, just as MAGA wants to do with foreigners and immigrants and liberals... block-button the telephone ICE button...
 
 QUOTE OF NONFICTION BOOK FOLLOWS:
 
