@@ -313,3 +313,7 @@ Gullible audience to how serious things are, Reddit. Thinks this was not planned
 https://old.reddit.com/r/Music/comments/1qxq12k/dropkick_murphys_frontman_calls_out_nfl_for/o3y9pjh/
 
 Cult fandom vs. cult fandom. Cult NFL vs. cult Reddit. Cult vs. cult. Entertainment media cults all.
+
+https://old.reddit.com/r/Music/comments/1qxq12k/dropkick_murphys_frontman_calls_out_nfl_for/o3ycavv/
+
+People are not facing up that Trump is not a "politician" first. Trump is an entertainment actor playing Tony Clifton SNL NYC acts for fandoms.  Hating up a Tony Clifton character is not resisting a Tony Clifton performance. It is exactly how Tony Clifton acting works... hate is the very product of the hate orgy show.
