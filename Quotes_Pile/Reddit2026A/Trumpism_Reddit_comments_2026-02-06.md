@@ -357,3 +357,13 @@ I created this Subreddit or a similar one. https://old.reddit.com/r/PussyRiot - 
 https://old.reddit.com/r/Fauxmoi/comments/1qxt0u0/jack_white_speaks_on_trumps_racist_post_about_the/o3yrvcr/
 
 Reddit users always think blackmail, money, "documents" on every cult member. Fox News HDTV does not have document on every audience cult member. Mecca does not have documents on every Quran cult member. Reddit commenting section does not have blackmail on every Reddit cult member. Media ecology learning from Marshall McLuhan is essential to rescue USA population from this simplistic thinking about blackmail and "dirt" as the motivation for Trumpism and MAGA. The NATO Ukraine Canada Greenland Venezuela self-harm behavior is not driven by blackmail or bribes as much as mythological storytelling of the Rupert Murdoch and Surkov order!
+
+https://old.reddit.com/r/MurderedByWords/comments/1qxpyxm/staffer_excuse_doesnt_fly/o3y4kva/
+
+To assume it is a human running the mindsets from the White House...
+
+Hate messages just mysteriously appear on information systems.
+
+* “a **peek-a-boo world, where now this event, now that, pops into view for a moment, then vanishes again**. It is an improbable world. It is **a world in which the idea of human progress, as Bacon expressed it**, has been replaced by the idea of technological progress. The aim is **not to reduce ignorance, superstition, and suffering** but to accommodate ourselves to the requirements of new technologies. We tell ourselves, of course, that such accommodations will **lead to a better life**, but that is only the rhetorical residue of a vanishing technocracy. We are a culture **consuming itself with information**, and many of us do not even wonder how to control the process. We proceed under the assumption that information is our friend, believing that cultures may suffer grievously from a lack of information, which, of course, they do. It is **only now beginning to be understood that cultures may also suffer grievously from information glut**, information without meaning, information without control mechanisms.” ― Neil Postman, Technopoly: The Surrender of Culture to Technology. year 1992.
+
+Tweet glut commenting glut low-quality trash Reality TV fandoms. Postman sure can write in Finnegans Wake depth. The metaphors are great!
