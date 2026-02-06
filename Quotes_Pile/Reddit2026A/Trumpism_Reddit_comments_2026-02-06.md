@@ -442,3 +442,11 @@ https://old.reddit.com/r/worldnews/comments/1qxtka2/us_to_fund_magaaligned_group
 
 Your Trump fandom typical comment to enable and normalize the situation, folks. People who will not turn to leaders like Jen Senko and Dr. Bandy X Lee in leading an intellectual anti-brainwashing rescue.
 
+https://old.reddit.com/r/worldnews/comments/1qxtka2/us_to_fund_magaaligned_groups_in_europe_amid_free/o3z21xx/
+
+https://old.reddit.com/r/worldnews/comments/1qxtka2/us_to_fund_magaaligned_groups_in_europe_amid_free/o3yx9rb/
+
+Fandom of scams and scammers. Thinks they are being sarcastic, in real harsh reality, they are hate-watching fandom. Cultists don't see the contradiction of "holy wars" where they claim the cult is about love while they wreck out-groups.
+
+
+
