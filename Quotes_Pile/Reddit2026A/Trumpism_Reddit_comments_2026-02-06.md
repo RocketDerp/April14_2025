@@ -273,3 +273,7 @@ She started with Eric Clapton, which has turned into a big hate promoter.
 https://old.reddit.com/r/Fauxmoi/comments/1qxmjch/sheryl_crow_calls_for_trumps_impeachment_and/o3xhrgf/
 
 Read the replies too. Reddit social community needs a Professor Marshall McLuhan lesson on James Joyce English.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qxmjch/sheryl_crow_calls_for_trumps_impeachment_and/o3xiho4/
+
+We The People need to be calling on social media platforms IN A DIRECTION. In a PATH FORWARD. We need to be pointing and calling to Dr. Bandy X Lee's 2017 book and pick up from October 3, 2017 forward. We need to be calling out to We The People to follow Jen Senko's 2015 lead with nonfiction family stories about men being brainwashed by other men like { Epstein, Murdoch, Musk, Trump, Joe Rogan, Alex Jones, Rush Limbaugh, Putin }.
