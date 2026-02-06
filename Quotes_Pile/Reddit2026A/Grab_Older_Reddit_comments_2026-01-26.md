@@ -109,3 +109,8 @@ Joseph Campbell is married to Jean Erdman, a dance creator of James Joyce. "The 
 RE: "Joseph Campbell was also a weird technocratic" - no.
 
 Social post { https://autistics.life/@RoundSparrow/116024440368649972 https://bsky.app/profile/roundsparrow.bsky.social/post/3me7ajet2h22m }
+
+
+https://old.reddit.com/r/trollfare/comments/d258nb/information_gerrymandering_in_social_networks/eztsm15/
+
+my comment. "/r/Troll Fare" community about how fucked-up Reddit mindsets were.
