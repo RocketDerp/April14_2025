@@ -2222,3 +2222,32 @@ Reddit fandom of outcomes of Russia winning an information war against "Woke". R
 * "Putin raised the anti-woke banner long before it flew over Washington"... February 19, 2025 — Vance's Munich speech **matched many of the issues long promoted by Russia** https://www.washingtonpost.com/world/2025/02/19/putin-raised-anti-woke-banner-long-before-it-flew-over-washington/
 
 Reddit fandoms are thrilled to live inside a pro-bullshit total mockery, as they get to comment their dumb jokes.
+
+https://old.reddit.com/r/videos/comments/1qwyclv/why_is_it_wrong_to_rpe_kids_maga_hits_grotesque/o3sk8u4/
+
+https://old.reddit.com/r/videos/comments/1qwyclv/why_is_it_wrong_to_rpe_kids_maga_hits_grotesque/o3sonr6/
+
+https://old.reddit.com/r/videos/comments/1qwyclv/why_is_it_wrong_to_rpe_kids_maga_hits_grotesque/o3sltuu/
+
+"I'm just making fiction stories", bypass any censorship. Horror films, Stephen King stories... you can describe any crime in fiction.
+
+https://old.reddit.com/r/videos/comments/1qwyclv/why_is_it_wrong_to_rpe_kids_maga_hits_grotesque/o3so594/
+
+https://old.reddit.com/r/videos/comments/1qwyclv/why_is_it_wrong_to_rpe_kids_maga_hits_grotesque/o3sqmw8/
+
+"cult". Never teaching cult deprogramming or calling for rescue to Putin's media cults. Surkov won.
+
+https://old.reddit.com/r/videos/comments/1qwyclv/why_is_it_wrong_to_rpe_kids_maga_hits_grotesque/o3sp1u1/
+
+https://old.reddit.com/r/videos/comments/1qwyclv/why_is_it_wrong_to_rpe_kids_maga_hits_grotesque/o3svuue/
+
+https://old.reddit.com/r/videos/comments/1qwyclv/why_is_it_wrong_to_rpe_kids_maga_hits_grotesque/o3t6vbx/
+
+9 month Reddit account.
+
+https://old.reddit.com/r/videos/comments/1qwyclv/why_is_it_wrong_to_rpe_kids_maga_hits_grotesque/o3sqtnp/
+
+https://old.reddit.com/r/videos/comments/1qwyclv/why_is_it_wrong_to_rpe_kids_maga_hits_grotesque/o3skvz9/
+
+https://old.reddit.com/r/videos/comments/1qwyclv/why_is_it_wrong_to_rpe_kids_maga_hits_grotesque/o3sk9m1/
+
