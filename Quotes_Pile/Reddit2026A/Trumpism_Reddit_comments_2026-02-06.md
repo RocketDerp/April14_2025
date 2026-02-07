@@ -675,4 +675,4 @@ That is why I am so fucking deeply emotional over the Reddit PLUR1BUS Apple TV+ 
 
 https://old.reddit.com/r/politics/comments/1qyc2a9/from_epstein_to_bezos_the_ruling_class_is_rotten/o42n8tf/
 
-OPERA_A The Who Quad: "You've been screwed AGAIN!" "I am a man who looks aftre the pigs" (Billionaires) - 1973. "Dirty Jobs" https://youtu.be/L0bqmIBczJI?t=19 - We Saw Quad October 14, 1996 outside my work, wasn't EMP sponsored, my wife gifted it for my birthday as a date as she knew I was huge fan of The Who in the car and at home. 55,020 views October 23, 2008 - shared song video over social networks to Tunisia and Algeria in Q1 2010 during Arab Spring 2010.
+OPERA_A The Who Quad: "You've been screwed AGAIN!" "I am a man who looks aftre the pigs" (Billionaires) - 1973. "Dirty Jobs" https://youtu.be/L0bqmIBczJI?t=19 - We Saw Quad... Monday October 14, 1996 outside my work, wasn't EMP sponsored, my future wife gifted it for my birthday as a date as she knew I was huge fan of The Who in the car and at home. 55,020 views October 23, 2008 - shared song video over social networks to Tunisia and Algeria in Q1 2010 during Arab Spring 2010.
