@@ -679,9 +679,14 @@ OPERA_A The Who Quad: "You've been screwed AGAIN!" "I am a man who looks aftre t
 
 https://old.reddit.com/r/technology/comments/1qyikta/no_one_should_have_a_copyright_on_vance_being/o43suef/
 
-1 month Reddit account.
+1 month Reddit account. Top-upvoted most popular message.
 
 As for the posting topic: Nina Paley - Copyright is Brain Damage. Copyright cartel of Bill Gates 1976 wealth and power to conceal. https://en.wikipedia.org/wiki/An_Open_Letter_to_Hobbyists 
 
 Block-happy behaviors, Bluesky book burning behaviors, Reddit ban-happy behaviors (with ICE no-identity admins and mods, police corporate state).. social media January 2026 values fueled by billionaire bombardment of "The Little Guy" via cloud computing empires. Strategic bombing, targeted bombing, space-based cloud computing mindsets.
 
+https://old.reddit.com/r/technology/comments/1qyikta/no_one_should_have_a_copyright_on_vance_being/o43u0j1/
+
+https://old.reddit.com/r/technology/comments/1qyikta/no_one_should_have_a_copyright_on_vance_being/o43udi7/
+
+3-word reactionary logic polarity Tweet-thinking short-message mind patterns. YES, we know that, when are you going to turn to serious nonfiction, Reddit? Media ecology: Neil Postman, Marshall McLuhan, etc.
