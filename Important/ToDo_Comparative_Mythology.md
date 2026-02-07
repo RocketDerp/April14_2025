@@ -57,3 +57,11 @@ https://old.reddit.com/r/StandUpComedy/comments/1quss99/athletes_need_to_stop_th
 https://old.reddit.com/r/todayilearned/comments/1qy52nt/til_that_44_of_the_worlds_adult_population_has/
 
 Alcohol. And why some poetry and rituals hit harder for people, less brain numbing. Especially male aggression.
+
+&nbsp;
+
+https://old.reddit.com/r/SipsTea/comments/1qy5dzh/_/
+
+Very real behaviors I have witnessed. People who will have sex hookups and affairs, but are entirely unwilling to discuss their dreams and desires and boss / workplace honestly in a marriage given months of time. People that will hook up and trust strangers to prepare their food that can poison them when traveling but won't let family members do intimate things. Let taxi drivers threaten their life, let bosses risk their lives or manipulate their family health care (USA especially), etc.
+
+The whole way people will worship a god and recommend and praise a god and pass a god to their children... that allows cancer, war, earthquakes, etc.
