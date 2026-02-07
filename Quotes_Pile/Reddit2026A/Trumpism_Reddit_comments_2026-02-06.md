@@ -505,6 +505,10 @@ September 9 2014, 3:42 PM ET
 
 Translated from 2013 Russia to USA 2026: I.C.E. raids are very little violence and a lot of showboating. A lot of Reddit front-page I.C.E. raids for visual meme addicts / meme consumers. Reddit is amplifying media from all over the Internet. September 9, 2014: https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
 
-Peter Pomerantsev books on paper since year 2014, NOBODY on Reddit quoting nonfiction books!!!
+Peter Pomerantsev books on paper since year 2014, NOBODY on Reddit quoting the most relevant nonfiction books!!!
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mea5xln6xs2n https://autistics.life/@RoundSparrow/116026511479637054 }
+
+https://old.reddit.com/r/law/comments/1qxt2xf/us_moves_to_deport_5yearold_detained_in_minnesota/o3yvgvx/
+
+Disturbs Reddit audiences into Twitter-thinking reaction mindsets.
