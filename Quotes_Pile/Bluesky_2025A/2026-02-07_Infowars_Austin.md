@@ -1,4 +1,4 @@
-# 2026-02-07 Infowsrs Austin
+# 2026-02-07 Infowars Austin
 
 Yes I put this in 2025 folder since it is pretty empty.
 
@@ -15,4 +15,12 @@ It was second part of 2 messages
 I replied with Neil Postman quotes and asserted Fox News cult was more the issue.
 
 got instantly blocked, no reply, no explanation. Just instantly blocked.
+
+<img width="1908" height="1137" alt="image" src="https://github.com/user-attachments/assets/eb9a5c41-a69f-40bd-8282-615690ccd5be" />
+
+My reply that got me blocked:
+
+https://bsky.app/profile/roundsparrow.bsky.social/post/3mebn4kk4z22p
+
+<img width="1897" height="1352" alt="image" src="https://github.com/user-attachments/assets/830e806f-ffb7-4cb3-93c8-7cf385bdbdf9" />
 
