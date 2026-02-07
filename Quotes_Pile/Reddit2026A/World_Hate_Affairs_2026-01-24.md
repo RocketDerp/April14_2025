@@ -1522,3 +1522,14 @@ ANSWER: Yes. I've noticed a pattern here on Reddit commenting section of banal "
 
 https://old.reddit.com/r/worldnews/comments/1qylihr/orban_declares_ukraine_enemy_of_hungary/o44eyuk/
 
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qymjgz/reposting_an_old_tweet_for_absolutely_zero_reason/o44oftn/
+
+World Hate Leadership. Twitter hate leadership.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qymjgz/reposting_an_old_tweet_for_absolutely_zero_reason/o44qcaf/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qymjgz/reposting_an_old_tweet_for_absolutely_zero_reason/o44ou2k/
+
+Funny to mock owners of media systems all day and night using media systems. Entertainment engagement. 
+
+Why is Reddit commenting section not constantly repeating Dr. Bandy X Lee's nonfiction book since it was published October 3, 2017? Is 27 professionals not good enough for Reddit comment creators to quote and point at? Or is Reddit commenting users fixated on billionaire white men to comment about over and over and over with free time and spare time?
