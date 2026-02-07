@@ -89,3 +89,22 @@ https://old.reddit.com/r/SipsTea/comments/1qw5rmg/ban_ozempic/o3mv1yw/
 https://old.reddit.com/r/PeterExplainsTheJoke/comments/1qxrxgq/what_does_this_mean/o3yj3lg/
 
 Science fiction paradox. Language paradox. Bible verse "1 John 4:20" answers it, you ain't *seen* jack shit, buddy. You have seen humans walking around, you ain't seen fucking God. Roman 11:32 ++
+
+https://old.reddit.com/r/TikTokCringe/comments/1qxhlp5/how_long_does_it_take_to_see_a_doctor_and_get/o3wi4rh/
+
+https://old.reddit.com/r/TikTokCringe/comments/1qxhlp5/how_long_does_it_take_to_see_a_doctor_and_get/o3wpg1t/
+
+https://old.reddit.com/r/TikTokCringe/comments/1qxhlp5/how_long_does_it_take_to_see_a_doctor_and_get/o3wu1ub/
+
+https://old.reddit.com/r/TikTokCringe/comments/1qxhlp5/how_long_does_it_take_to_see_a_doctor_and_get/o3wftv1/
+
+Madness.
+
+https://old.reddit.com/r/TikTokCringe/comments/1qxhlp5/how_long_does_it_take_to_see_a_doctor_and_get/o3wpqaq/
+
+https://old.reddit.com/r/AITAH/comments/1qxtuqb/aitah_for_leaving_wife_at_home_after_she_revealed/o3z3a9a/
+
+https://old.reddit.com/r/AITAH/comments/1qxtuqb/aitah_for_leaving_wife_at_home_after_she_revealed/o3z2fxk/
+
+https://old.reddit.com/r/nextfuckinglevel/comments/1qxz8o3/50_cent_using_a_whole_door_dash_super_bowl_ad_to/o402tvc/
+

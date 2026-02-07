@@ -518,3 +518,141 @@ https://old.reddit.com/r/pics/comments/1qxwlor/gp/o3zjm64/
 Factual evidence that Twitter was used to mentally manipulate parents into harming children. August 24, 2018 public disclosure. Johns Hopkins University is world famous. World News coverage. https://www.bbc.com/news/world-us-canada-45294192 
 
 But since it is not low-effort commenting, everyone is avoiding the BBC link, I repeat: https://www.bbc.com/news/world-us-canada-45294192
+
+https://old.reddit.com/r/news/comments/1qxxmfe/magafriendly_rock_the_country_event_in_anderson/o3zu49k/
+
+https://old.reddit.com/r/news/comments/1qxxmfe/magafriendly_rock_the_country_event_in_anderson/o3zsnw4/
+
+https://old.reddit.com/r/news/comments/1qxxmfe/magafriendly_rock_the_country_event_in_anderson/o3zxuer/
+
+https://old.reddit.com/r/news/comments/1qxxmfe/magafriendly_rock_the_country_event_in_anderson/o401e0j/
+
+https://old.reddit.com/r/pics/comments/1qxz5do/united_states_right_now_is_likeseen_in_yucca/o4040dl/
+
+It works too. Cult mindsets of loyalty to badness itself.
+
+https://old.reddit.com/r/pics/comments/1qxz5do/united_states_right_now_is_likeseen_in_yucca/o4026qz/
+
+https://old.reddit.com/r/pics/comments/1qxz5do/united_states_right_now_is_likeseen_in_yucca/o40ddj0/
+
+https://old.reddit.com/r/pics/comments/1qxz5do/united_states_right_now_is_likeseen_in_yucca/o409cyz/
+
+https://old.reddit.com/r/pics/comments/1qxz5do/united_states_right_now_is_likeseen_in_yucca/o409h1n/
+
+https://old.reddit.com/r/pics/comments/1qxz5do/united_states_right_now_is_likeseen_in_yucca/o40kq13/
+
+https://old.reddit.com/r/pics/comments/1qxz5do/united_states_right_now_is_likeseen_in_yucca/o40a3n7/
+
+https://old.reddit.com/r/pics/comments/1qxzl5a/dhs_seeks_expedited_deportation_for_liam_conejo/o403zmt/
+
+https://old.reddit.com/r/pics/comments/1qxzl5a/dhs_seeks_expedited_deportation_for_liam_conejo/o404z9u/
+
+https://old.reddit.com/r/pics/comments/1qxzl5a/dhs_seeks_expedited_deportation_for_liam_conejo/o404i7t/
+
+https://old.reddit.com/r/pics/comments/1qxzl5a/dhs_seeks_expedited_deportation_for_liam_conejo/o4077s6/
+
+https://old.reddit.com/r/pics/comments/1qxzl5a/dhs_seeks_expedited_deportation_for_liam_conejo/o4062v3/
+
+https://old.reddit.com/r/news/comments/1qy00tq/border_patrol_boss_gregory_bovino_tossed_from_las/o40v75a/
+
+9 month Reddit account.
+
+Messaging "insane". Is the whole message promoting social denial of power?
+
+https://old.reddit.com/r/videos/comments/1qy0wc3/trump_faces_backlash_over_racist_video_portraying/o40goj7/
+
+Yes, they care. Trump is an entertainer. Fiction storytelling is Putin and Trump's system. Fandoms of fiction on Reddit and all over the USA care that their fiction entertainment is attracting audiences to comment upon it. Fandom vs. fandom. It's content for the cults of celebrity. People on Reddit will not see their own attraction to bad guys in fiction storytelling.
+
+https://old.reddit.com/r/videos/comments/1qy0wc3/trump_faces_backlash_over_racist_video_portraying/o40i4pp/
+
+Hate-watching of content has taken over every area of society. If anyone is recorded and uploaded on camera acting odd or unusual or stressed out, it's content for video distribution Reddit. Trump is a celebrity and actor doing acting and popular as a hate subject. The audience is the problem. Fandoms giving up power to machine addictions of delivery format and delivery venue are the problem. Hate is the mind-altering substance that attracts We The People to give up power and wealth to an attractive source of content creation, Trump and his supporting actors. Surkov won since March 2013.
+
+https://old.reddit.com/r/videos/comments/1qy0wc3/trump_faces_backlash_over_racist_video_portraying/o40e77r/
+
+All fandoms now in USA 2026 prize hate. People in year 2012 and earlier often prized education, learning, understanding and not just attracted to hate. But now it is all one common attraction. Hate vs. hate. Fandom vs. fandom. Hate-watchers of Reddit got their prized hate content and can mock and hate other fandoms.
+
+https://old.reddit.com/r/videos/comments/1qy0wc3/trump_faces_backlash_over_racist_video_portraying/o40finw/
+
+We didn't have the Apple iPhone before year 2007. We didn't have Reddit before year 2005. Trump was an old white guy that got on Twitter July 6, 2011. https://theoutline.com/post/2445/trump-s-first-real-tweet-was-on-july-6-2011 That's what changed. Reddit is what changed. Twitter is what hanged. The abandonment of Neil Postman and Marshall McLuhan understandings of high-speed information systems is what changed. People avoiding nonfiction learning, including Dr. Bandy X Lee, is what changed. "The media" is what changed, the medium, Reddit is what changed, Tweeting is what changed. Mindsets that seek speedy reactions and shit-talking.
+
+https://old.reddit.com/r/TrendoraX/comments/1qy0vgw/that_tells_you_about_the_social_medias/o40eh94/
+
+https://old.reddit.com/r/TrendoraX/comments/1qy0vgw/that_tells_you_about_the_social_medias/o40kszo/
+
+https://old.reddit.com/r/TrendoraX/comments/1qy0vgw/that_tells_you_about_the_social_medias/o40ld05/
+
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1qy64za/no_wonder_the_toddler_is_unhinged_once_again_the/o41h0b5/
+
+Denial of Ukraine war, denial that lies and falsehoods are all over Reddit, denial of so much to fixate on the story that Trump tells... it is TRUMP's talking point that black people are the problem. And Reddit people have put that into their minds. It is the POPULATION that can't stop fucking talking about god damn Trump / ICE / MAGA and turn THE POPULATION attention to Dr. Bandy X Lee nonfiction serious books.
+
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1qy64za/no_wonder_the_toddler_is_unhinged_once_again_the/o41m5ry/
+
+To understand why Trump has so much power, this is part of the reason. Cult behavior so that only Obama can rescue. Kamala Harris or thousands of other qualified leaders can't do the job, only icons people already are locked into. The whole point of a Vice President replacing a President and such is that the job is a job. But people have used "the media", media systems, to become cult members and team-sports "winner takes all" logic. Millions of people can work at restaurants and run them successfully all over the USA. But people can't imagine 2000 or 3000 people qualified to be a good governor of California or leader of USA. We are a nation of 0.34 billion out of a planet o 8 billion people. Yet, our thinking is narrow and small-minded ideas.
+
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1qy64za/no_wonder_the_toddler_is_unhinged_once_again_the/o41x2vn/
+
+6 month Reddit account
+
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1qy64za/no_wonder_the_toddler_is_unhinged_once_again_the/o41hwym/
+
+A Reddit user that does not comprehend information warfare taking place on Reddit. A failure to teach media ecology from Marshall McLuhan and Neil Postman to a society. People fail to see patterns in media and thinking changes in year 2013 to favor simple-think Tweet-length commenting and to avoid serious nonfiction learning.
+
+https://old.reddit.com/r/reactiongifs/comments/1qy2ivs/mrw_mike_tyson_was_on_fox_news_today_saying_hes/o42492s/
+
+Mike Tyson is a fame-seeking celebrity who admires Trump's celebrity. The reason Reddit is talking about both people is because of their celebrity. And Fox News knows how to brew celebrity into the minds of audiences, including celebrity fandoms on Reddit. This is all media ecology topics of Neil Postman and Marshall McLuhan that Reddit society is not self-aware of... and acting compulsively towards pro-violence anti-diplomacy Mike Tyson
+
+Instead of promoting brain-damage causing fight as cool and popular, culture needs to look at the ignorance celebration that powers MAGA and the cult of Fox News ignorance. Comedy and amusement and watching videos of men avoiding the public library is kind of Trump breeding ground of the mind. Physical and power domination over women.
+
+* “Americans no longer talk to each other, they entertain each other. They do not exchange ideas, they exchange images. They do not argue with propositions; they argue with good looks, celebrities and commercials.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. 
+
+https://old.reddit.com/r/reactiongifs/comments/1qy2ivs/mrw_mike_tyson_was_on_fox_news_today_saying_hes/o4139i6/
+
+Reddit audience has to be reminded as there is so much male brainwashing going n to normalize rape that people don't even recognize how common famous people who are shit leaders are around.
+
+https://old.reddit.com/r/reactiongifs/comments/1qy2ivs/mrw_mike_tyson_was_on_fox_news_today_saying_hes/o40tdbf/
+
+Understand that bad guys are considered awesome and cool to men. It isn't just Elon Musk, Donald Trump, Putin that are super-cool to men as role models for children. Vince Gilligan's February 15, 2025 WGA speech about Walter White being seen as a cool awesome character.... Trump plays a character. Boxing is done in a rectangle. Simple mindsets. Andy Kaufman is one of the few to try and get people woke, but the LOL reactions are what most people do.
+
+https://old.reddit.com/r/HistoryUncovered/comments/1qy0rmg/on_october_10_2008_senator_john_mccain_did_the/o411m2w/
+
+But that does not explain why all the supposedly "SANE PEOPLE" in "the other party" can not stop commenting about Trump every day and every hour of those days on social media computer systems. Over and over, for over a decade, commenting about how fat, ugly, orange, dumb, stupid, idiot Donald Trump is. WHY ARE SOCIAL MEDIA USERS NOT EDUCATING PEOPLE? Why are NONFICTION BOOKS that explain what is going on in detail and verbose rich complex understanding IGNORED in favor of short-commenting shit-talk messages like the Reddit comment I am highlighting and sharing here on GitHub?
+
+What the fuck does orange cosmetic makeup have to do with the evils and poor thinking of Donald Trump? it's superficial and banal, just like REDDIT COMMENTING IS. Judging people based on shallow surface concerns is the crisis! Skin color of black! Skin color of brown! Spoken language of Spanish or English or even how I, as an autistic, compose my fucking paragraphs and the word choices I make!
+
+WHY ARE SOCIAL MEDIA USERS NOT ASSERTING AND QUOTING Dr. Bandy X Lee? If ONLY MAGA is insane by media mania of high-speed Twitter and Reddit, why are REDDIT USERS not wanting to TREAT PEOPLE who are "INSANE"? Why are people not teaching serious and detailed cult deprogramming and how to address the crisis of Fox News HDTV media mind patterns and mental outcomes?
+
+
+https://old.reddit.com/r/politics/comments/1qyc2a9/from_epstein_to_bezos_the_ruling_class_is_rotten/o42gvaa/
+
+And I was there when it all started. 1996 Bellevue Washington. Microsoft Exchange Server 4.0 release. I was a published author, lifelong expert in social media. Hired to work for the co-founder of Microsoft as a Principal consultant from Software Spectrum in Garland, Texas (where I worked on the book and got certified as a MCSE and certified instructor for Microsoft Exchange). I was $250.00 an hour billable ($532/hour inflation adjusted 2026) in Bellevue, Washington working as a salaried employee for Software Spectrum Consulting in 1996. After doing a critical job for Paul Allen's personal intranet private social media... I was hired as an insider to work 10 doors down from Paul Allen and Vern Raburn (another legend in the industry, Lotus 1-2-3). I managed owner social networks to the NBA Portland Trailblazers, I managed the new owner integration with NFL Seattle Seahawks and met personally in the offices of Coach Mike Hologram and his IT staff. I was on call 24 hours a day as the in-house media systems / information systems expert for all the holdings for 2.5 years. These were no ordinary years. 1997 / 1998 / 1999 when Bill Gates and Paul Allen were DOUBLING WEALTH in a SINGLE YEAR! They could have hired any number of Microsoft employees or ex-employees to have Edward Snowden level access to Paul Allen's private messages and travel records of message access. But they hired me at age 27. 
+
+Allen did not want Gates-loyal people having his personal messages and communications records at the Edward Snowden level. SEE_ALSO https://www.CNET.com/home/smart-home/paul-allen-gates-ballmer-tried-to-rip-me-off/ - I came with Telos Federal Systems (Pentagon military industrial complex) VAX/VMS age 16 Fort Wayne, Snider High School VAX/VMS, Purdue University at Fort Wayne VAX/VMS background, IBM AS/400 Slater Steel Fort Wayne DB/2 OS/2, Fort Wayne OS/2 Users Group founder, SAP R/3 (IBM Unix, Sun Unix, HP-UX Unix) on my work history. I was not a Microsoft insider and had never worked for any employee in the PNW. I was under employment of Garland Texas (DFW area). All my published books were as third-party, from major industry-independent book companies, not from insider Microsoft knowledge.
+
+Can you imagine if Paul Allen's private e-mail between the Trailblazers, Microsoft Board of Directors, or Seattle Seahawks had been leaked out of the insecure and poor version 1.0 release of a Microsoft Server product? My name would have been on the front page of Seattle Times in a heartbeat! Just imagine the ridicule of having a Microsoft co-founder sports team owner e-mails leaked because of how shitty and poorly designed Exchange Server network security was and how inexperienced Microsoft was at enterprise security! Competitors to Microsoft Redmond at Novell Utah https://en.wikipedia.org/wiki/Novell and big iron producers and Unix Sun and OpenBSD / Linux would have LOVED to see the Trailblazers, Seahawks, Paul Allen have a private message leak / breach about purchasing the team and hiring players! Sports fanatics are ruthless for leaks.
+
+Microsoft Exchange Server was a security nightmare and people poorly understood the very unique product https://www.SecurityArchitecture.com/is-clintons-use-of-a-private-email-server-a-big-deal-or-not/ , and I was sitting on the publicized bragging Seattle pot of gold of all pots of sports-team gold in 1997. I did not have a single friend or known co-worker  in Seattle, I was a TOTAL outsider, only my girlfriend from Texas who moved with me. Who I was supporting, she was unemployed her first year in Kirkland. She had lost her house in a fire in Texas which broke her relationship with her step-mother and was starting her life over.
+
+* "Paul Allen continued to serve as a key member of the Microsoft Board of Directors, a position he held from 1990 until 2000. While holding this board seat, he focused on outside investments, founding Vulcan Productions in 1997 and purchasing the NFL's Seattle Seahawks that same year." - Google Search Summary,
+
+REPEATING_REPEATER REPHRASING_REPEATING Paul Allen had connections to Microsoft-experienced people from all over the world. He hired me, a complete outsider the very year the wealth went CRAZY with a unproven in the field product. Exchange Serve 1.0 / 4.0 flagship! Because I didn't take shit from billionaires, no matter who the fuck you were, and no Bill Gates lackey was going to fuck-over Paul Allen because my Telos Federal Systems Apprentice job-creation (Fort Wayne branch, Santa Monica California HQ in 1986) background was fact-checked. I was a zero-bullshit mature 27 year old. IBM had made me their HIGHEST LEVEL Social Media ambassador, "Team OS/2 Gold Ambassador" at an Indy 500 weekend ceremony. I was not Bill Gates loyal. Again, again, see: 1982 behind-back screwing-over history https://www.Forbes.com/sites/frederickallen/2011/03/30/bill-gates-tried-to-screw-paul-allen-whats-the-surprise/ - THAT is why they hired an computer industry outsider whose father ran a Pepsi canning plant and had zero connections to the software and tech industry insiders.
+
+https://old.reddit.com/r/politics/comments/1qyc2a9/from_epstein_to_bezos_the_ruling_class_is_rotten/o42gq7g/
+
+Conquest.
+
+https://old.reddit.com/r/politics/comments/1qyc2a9/from_epstein_to_bezos_the_ruling_class_is_rotten/o42g2eq/
+
+1 month Reddit account. Sport-washing Jody Allen is going big tomorrow. Cults of apps, cults of sports, etc
+
+
+https://old.reddit.com/r/politics/comments/1qyc2a9/from_epstein_to_bezos_the_ruling_class_is_rotten/o42lm6o/
+
+I'm so fucking sick of this Reddit commenting bullshit that has wrecked the world. The most anti-woke people in the world when it comes to Finneagns Wake, Woke!
+
+* "McLuhan was profoundly influenced by James Joyce, using Finnegans Wake as a framework for understanding the "electric age" as a return to tribalism, famously declaring that Joyce understood the new media environment better than anyone. Neil Postman, in turn, was a "critical heir" to McLuhan, building on media ecology to analyze the cultural, social, and educational effects of technology, often extending McLuhan’s analysis of television into the realms of politics and education." - Google Search summary 2026-02-07 morning USA, Saturday morning.
+
+Reddit tech addicts are in the manipulated mindsets and can not see the NATO forest for the USA trees. The billionaire Putin put Surkov fiction authoring in charge, leaping ahead of everything Neil Postman and McLuhan have done. Nobody is **media woke** to the situaiton except Peter P! And Peter P does not invoke { Rick Roderick, Howard Bloom, Joseph Campbell, Bill Moyers, Marshall McLuhan, Neil Postman }!!!
+
+* “Technopoly is a state of culture. It is also a state of mind. It consists in the deification of technology, which means that the culture seeks its authorization in technology, finds its satisfactions in technology, and takes its orders from technology.” ― Neil Postman, Technopoly: The Surrender of Culture to Technology. Year 1992
+
+I had the fucking time in my office in Bellevue to read this nonfiction shit and think about the 1st richest person in the world in Redmond communicating to the 3rd richest person in the world in Bellevue! I was sitting on the Microsoft Board of Directors private messaging!
