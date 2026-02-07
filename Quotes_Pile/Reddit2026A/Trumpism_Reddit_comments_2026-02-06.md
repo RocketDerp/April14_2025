@@ -721,3 +721,6 @@ Media Woke: Everything is Media Ecology, ecosystems of Twitter vs. Redddit, Subr
 
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1qyhkr0/x_actively_took_down_videos_of_jd_vance_being/o43lm4r/
 
+Every nation pays huge money for travel, lodging, training, teaching, supporting, coaching for years and years and then hands it over to national legal systems and strangles the content with for-profit corporations. The copyright worshiping lords of Reddit who want information to be personalized instead of Wiki and FAQ... don't grasp the power media systems have over their lives. a WORLD SPORTS EVENT should be PUBLIC DOMAIN FOR ALL!
+
+Instead, it is licensed away in little clips and bits and photos for money.
