@@ -2,6 +2,8 @@
 
 Yes I put this in 2025 folder since it is pretty empty.
 
+https://bsky.app/profile/groverhaustenbosch.bsky.social
+
 <img width="1803" height="443" alt="image" src="https://github.com/user-attachments/assets/1c10bf5f-2745-400a-b3ba-db81a40f601b" />
 
 I replied to that message.
