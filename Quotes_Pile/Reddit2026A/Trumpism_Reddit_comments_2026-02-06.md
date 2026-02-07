@@ -717,5 +717,7 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1qyhkr0/x_actively_took_dow
 
 ~~Everything is Public Relations~~   
 ~~Everything is PR~~   
-Media Woke: Everything is Media Ecology, ecosystems of Twitter vs. Redddit, Subreddit vs. Subreddit, fitler-bubble vs. filter-bubble, Kremlin ground zero echo booms of March 2013 Saint Petersburg Internet Research Agency.. Surkov MonoMyth implosions and explosions. Mind-blowing patterns. SEE_ALSO https://github.com/RocketDerp/April14_2025/blob/main/Media_Ecology/Everything_is_ME.md
+Media Woke: Everything is Media Ecology, ecosystems of Twitter vs. Redddit, Subreddit vs. Subreddit, fiter-bubble vs. filter-bubble, subscribe list vs. subscribe list, parallel threading comment chain vs. hour later comment chain; Kremlin ground zero echo booms of March 2013 Saint Petersburg Internet Research Agency.. Surkov MonoMyth implosions and explosions. Mind-blowing patterns. SEE_ALSO https://GitHub.com/RocketDerp/April14_2025/blob/main/Media_Ecology/Everything_is_ME.md
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qyhkr0/x_actively_took_down_videos_of_jd_vance_being/o43lm4r/
 
