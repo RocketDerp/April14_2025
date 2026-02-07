@@ -575,3 +575,9 @@ https://old.reddit.com/r/videos/comments/1qy0wc3/trump_faces_backlash_over_racis
 
 We didn't have the Apple iPhone before year 2007. We didn't have Reddit before year 2005. Trump was an old white guy that got on Twitter July 6, 2011. https://theoutline.com/post/2445/trump-s-first-real-tweet-was-on-july-6-2011 That's what changed. Reddit is what changed. Twitter is what hanged. The abandonment of Neil Postman and Marshall McLuhan understandings of high-speed information systems is what changed. People avoiding nonfiction learning, including Dr. Bandy X Lee, is what changed. "The media" is what changed, the medium, Reddit is what changed, Tweeting is what changed. Mindsets that seek speedy reactions and shit-talking.
 
+https://old.reddit.com/r/TrendoraX/comments/1qy0vgw/that_tells_you_about_the_social_medias/o40eh94/
+
+https://old.reddit.com/r/TrendoraX/comments/1qy0vgw/that_tells_you_about_the_social_medias/o40kszo/
+
+https://old.reddit.com/r/TrendoraX/comments/1qy0vgw/that_tells_you_about_the_social_medias/o40ld05/
+
