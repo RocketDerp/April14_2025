@@ -51,3 +51,9 @@ Choice marriage honest / values. ex-lovers.
 Sports stars, famous people, celebrity 
 
 https://old.reddit.com/r/StandUpComedy/comments/1quss99/athletes_need_to_stop_thanking_god/
+
+&nbsp;
+
+https://old.reddit.com/r/todayilearned/comments/1qy52nt/til_that_44_of_the_worlds_adult_population_has/
+
+Alcohol. And why some poetry and rituals hit harder for people, less brain numbing. Especially male aggression.
