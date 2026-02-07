@@ -588,3 +588,11 @@ Denial of Ukraine war, denial that lies and falsehoods are all over Reddit, deni
 https://old.reddit.com/r/BlackPeopleofReddit/comments/1qy64za/no_wonder_the_toddler_is_unhinged_once_again_the/o41m5ry/
 
 To understand why Trump has so much power, this is part of the reason. Cult behavior so that only Obama can rescue. Kamala Harris or thousands of other qualified leaders can't do the job, only icons people already are locked into. The whole point of a Vice President replacing a President and such is that the job is a job. But people have used "the media", media systems, to become cult members and team-sports "winner takes all" logic. Millions of people can work at restaurants and run them successfully all over the USA. But people can't imagine 2000 or 3000 people qualified to be a good governor of California or leader of USA. We are a nation of 0.34 billion out of a planet o 8 billion people. Yet, our thinking is narrow and small-minded ideas.
+
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1qy64za/no_wonder_the_toddler_is_unhinged_once_again_the/o41x2vn/
+
+6 month Reddit account
+
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1qy64za/no_wonder_the_toddler_is_unhinged_once_again_the/o41hwym/
+
+A Reddit user that does not comprehend information warfare taking place on Reddit. A failure to teach media ecology from Marshall McLuhan and Neil Postman to a society. People fail to see patterns in media and thinking changes in year 2013 to favor simple-think Tweet-length commenting and to avoid serious nonfiction learning.
