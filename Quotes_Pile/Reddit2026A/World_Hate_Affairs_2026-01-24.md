@@ -1468,3 +1468,21 @@ https://old.reddit.com/r/worldnews/comments/1qxx3wg/france_uncovers_russian_disi
 
 https://old.reddit.com/r/worldnews/comments/1qxx3wg/france_uncovers_russian_disinformation_campaign/o3zq6tq/
 
+https://old.reddit.com/r/Music/comments/1qy6fg1/limp_bizkits_wes_borland_on_backlash_for_calling/o41gtal/
+
+The posting title says it all, that being against hate is now considered bad. And social media society (USA nation) thinks this is all great entertainment to comment about. Nothing gets people to wake up that hate is being prized. People follow Trump's hate leadership.
+
+https://old.reddit.com/r/Music/comments/1qy6fg1/limp_bizkits_wes_borland_on_backlash_for_calling/o41ij8z/
+
+https://old.reddit.com/r/Music/comments/1qy6fg1/limp_bizkits_wes_borland_on_backlash_for_calling/o41jwun/
+
+Short-message Twitter-think. Programmed right vs. left brain rot. The problem is hate. The subject is hate. Hate upon the right is hate. It does not matter who goes first with hate, the brain rot is hate messaging of a fandom to artist. Cult to cult hate, hate vs. hate, cult of hate vs cult of hate.
+
+https://old.reddit.com/r/Music/comments/1qy6fg1/limp_bizkits_wes_borland_on_backlash_for_calling/o41qg63/
+
+https://old.reddit.com/r/Music/comments/1qy6fg1/limp_bizkits_wes_borland_on_backlash_for_calling/o41p3oi/
+
+https://old.reddit.com/r/Music/comments/1qy6fg1/limp_bizkits_wes_borland_on_backlash_for_calling/o41lctn/
+
+https://old.reddit.com/r/Music/comments/1qy6fg1/limp_bizkits_wes_borland_on_backlash_for_calling/o41rx0o/
+
