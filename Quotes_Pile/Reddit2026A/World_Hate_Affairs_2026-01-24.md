@@ -1517,3 +1517,8 @@ ANSWER: Yes. I've noticed a pattern here on Reddit commenting section of banal "
 I also witness absence of any alarm or call to intellectual arms against Putin's information warfare. That serious shit and use of spare time and free time is unwelcome and avoided - that's what I notice.
 
 * From September 9, 2014 - **more than a decade** - we could have kept repeating it and defeated Putin's takeover of USA hearts and minds: https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ "Russia and the Menace of Unreality: How Vladimir Putin is revolutionizing information warfare. By Peter Pomerantsev. At the NATO summit in Wales last week, General Philip Breedlove, the military alliance’s top commander, made a bold declaration. Russia, he said, is waging “the **most amazing information warfare blitzkrieg we have ever seen in the history of information warfare.**” It was something of an underestimation. The new Russia doesn’t just deal in the petty disinformation, forgeries, lies, leaks, and cyber-sabotage usually associated with information warfare. It reinvents reality, creating mass hallucinations that then translate into political action." - we should NOW be repeating it every 47 hours over and over, keep repeating, again and again!
+
+ANSWER: Yes. I've noticed a pattern here on Reddit commenting section of banal "playing dumb" question engagement technique of social media. Reddit social media top-voted comment. https://infoMedia.com/blog/the-power-of-a-question-in-social-media-marketing/
+
+https://old.reddit.com/r/worldnews/comments/1qylihr/orban_declares_ukraine_enemy_of_hungary/o44eyuk/
+
