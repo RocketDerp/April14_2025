@@ -585,3 +585,6 @@ https://old.reddit.com/r/BlackPeopleofReddit/comments/1qy64za/no_wonder_the_todd
 
 Denial of Ukraine war, denial that lies and falsehoods are all over Reddit, denial of so much to fixate on the story that Trump tells... it is TRUMP's talking point that black people are the problem. And Reddit people have put that into their minds. It is the POPULATION that can't stop fucking talking about god damn Trump / ICE / MAGA and turn THE POPULATION attention to Dr. Bandy X Lee nonfiction serious books.
 
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1qy64za/no_wonder_the_toddler_is_unhinged_once_again_the/o41m5ry/
+
+To understand why Trump has so much power, this is part of the reason. Cult behavior so that only Obama can rescue. Kamala Harris or thousands of other qualified leaders can't do the job, only icons people already are locked into. The whole point of a Vice President replacing a President and such is that the job is a job. But people have used "the media", media systems, to become cult members and team-sports "winner takes all" logic. Millions of people can work at restaurants and run them successfully all over the USA. But people can't imagine 2000 or 3000 people qualified to be a good governor of California or leader of USA. We are a nation of 0.34 billion out of a planet o 8 billion people. Yet, our thinking is narrow and small-minded ideas.
