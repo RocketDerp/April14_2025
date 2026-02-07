@@ -737,3 +737,7 @@ She fucking compiled 27 different writing authors into one book for Reddit commu
 https://old.reddit.com/r/law/comments/1qyjhmz/epstein_revelations_have_toppled_top_figures_in/o441p5a/
 
 Shallow commenting on Reddit. Superficial. Banal. Word-choice concerned. ANYTHING but ... Dr. Bandy X Lee quoting. ANYTHING to spend free time on Reddit with low-effort shit-commenting and shit-posting about USA and Epstein situation. Addicts to shit-commenting can't escape to Dr Bandy X Lee's nonfiction and start building a massive mental health backlash, turn the tide, towards science thinking and away from meme-think Twitter-length short message Reddit commenting!
+
+https://old.reddit.com/r/politics/comments/1qyip1z/nsa_detected_phone_call_between_foreign/o43uhny/
+
+I cry uncle.
