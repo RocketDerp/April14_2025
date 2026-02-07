@@ -527,3 +527,18 @@ https://old.reddit.com/r/news/comments/1qxxmfe/magafriendly_rock_the_country_eve
 
 https://old.reddit.com/r/news/comments/1qxxmfe/magafriendly_rock_the_country_event_in_anderson/o401e0j/
 
+https://old.reddit.com/r/pics/comments/1qxz5do/united_states_right_now_is_likeseen_in_yucca/o4040dl/
+
+It works too. Cult mindsets of loyalty to badness itself.
+
+https://old.reddit.com/r/pics/comments/1qxz5do/united_states_right_now_is_likeseen_in_yucca/o4026qz/
+
+https://old.reddit.com/r/pics/comments/1qxz5do/united_states_right_now_is_likeseen_in_yucca/o40ddj0/
+
+https://old.reddit.com/r/pics/comments/1qxz5do/united_states_right_now_is_likeseen_in_yucca/o409cyz/
+
+https://old.reddit.com/r/pics/comments/1qxz5do/united_states_right_now_is_likeseen_in_yucca/o409h1n/
+
+https://old.reddit.com/r/pics/comments/1qxz5do/united_states_right_now_is_likeseen_in_yucca/o40kq13/
+
+https://old.reddit.com/r/pics/comments/1qxz5do/united_states_right_now_is_likeseen_in_yucca/o40a3n7/
