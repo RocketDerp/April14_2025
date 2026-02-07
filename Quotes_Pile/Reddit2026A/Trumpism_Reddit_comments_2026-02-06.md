@@ -772,3 +772,6 @@ Often those /r/All meme machines, screen games of hate-prizing rewards of humili
 
 https://old.reddit.com/r/videos/comments/1qyi6ou/man_83_sentenced_to_life_in_prison_for_murder_of/o43sogf/
 
+https://old.reddit.com/r/clevercomebacks/comments/1qymk7z/repeated_excuse_same_audience/o44olyv/
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mecl4pkeac2x https://autistics.life/@RoundSparrow/116031941850685472 }
