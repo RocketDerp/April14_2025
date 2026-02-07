@@ -666,3 +666,9 @@ https://old.reddit.com/r/politics/comments/1qyc2a9/from_epstein_to_bezos_the_rul
 https://old.reddit.com/r/politics/comments/1qyc2a9/from_epstein_to_bezos_the_ruling_class_is_rotten/o42myjo/
 
 1 month Reddit account. Woman, what I would give for fucking server-side browser strings, IP addresses, and all content click reading traffic from these accounts out of webserver logs.
+
+https://old.reddit.com/r/politics/comments/1qyc2a9/from_epstein_to_bezos_the_ruling_class_is_rotten/o42i7bs/
+
+That is why I am so fucking deeply emotional over the Reddit PLUR1BUS Apple TV+ December 2025 / January 2026 fandom. "Vilified". Walter White and Saul Goodman fandom on the Internet cesspool. Compulsive society-wide dehumanizing with science systems of chemistry (including mental health chemicals, blue meth symbolism) and media systems cesspool worshiping. Reddit is an anti-compassion pro-tech science chemistry (Walter White) mind-fucking center.
+
+* Writers Guild of America. Vince Gilligan speech. February 15, 2025 https://youtu.be/TkteSxVIM1A?t=648 ... 10:48 there's no simple answer for how we might change that. Though, if there were, I bet it would have something to do with climbing up out of the cesspool that is social media and actually listening to each other. 11:07 But I don't know how to make that happen. So, I'll stick to my wheelhouse. As a writer speaking to a room full of writers, I have a proposal...
