@@ -26,3 +26,35 @@ Only 3,000 #Bluesky followers for women who are leading the way with nonfiction!
 2. @brainwashingdad.bsky.social Jen Senko
 
 Both have stood up against Trump with books that all ignore
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+# Always More Mocking 
+
+Since June 16, 2015 all media systems converge on mocking more! More more mocking
+
+&nbsp;
+
+<img width="1554" height="1412" alt="image" src="https://github.com/user-attachments/assets/cba51ef1-d677-4599-a35a-4e39bcb958d5" />
+
+https://bsky.app/profile/proftv.bsky.social/post/3mdy46ttkzs2u
+
+&nbsp;
+
+My reply message:
+
+https://bsky.app/profile/roundsparrow.bsky.social/post/3mebrohag4s2z
+
+Mocking endlessly since June 16, 2015 is exactly why Trump is center of all media
+
+1. Trump creates Truth Social content mocking Obama as apes
+
+2. #Bluesky mocks back
+
+3. Mock vs. Mock #MockHarder 
+
+4. Ignorance Celebration. All nonfiction from Dr. Bandy X. Lee is ignored CC: @bandylee.bsky.social
