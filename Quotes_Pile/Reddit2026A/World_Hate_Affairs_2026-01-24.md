@@ -1498,5 +1498,5 @@ https://old.reddit.com/r/nottheonion/comments/1qygw1t/pentagon_says_its_cutting_
 
 "Crazy"
 
-Anything to halt, stop, ponder. And turn to nonfiction books from Dr. Bandy X Lee on the topic of mental health, "crazy". Reddit fandom of commenting is so addicted to writing, nonfiction reading and quoting is out of the question in programmed mindsets.
+Anything *NOT to* halt, stop, ponder. And turn to nonfiction books from Dr. Bandy X Lee on the topic of mental health, "crazy". Reddit fandom of commenting is so addicted to writing, nonfiction reading and quoting is out of the question in programmed mindsets.
 
