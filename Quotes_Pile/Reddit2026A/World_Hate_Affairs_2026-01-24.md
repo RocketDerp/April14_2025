@@ -1463,3 +1463,8 @@ https://old.reddit.com/r/sports/comments/1qxuxgk/usa_booed_at_winter_olympics_op
 https://old.reddit.com/r/PublicFreakout/comments/1qxuhpf/vp_jd_vance_and_wife_usha_get_bood_at_the_olympics/o3z2h8w/
 
 Hate is what Reddit is fandom for, video postings on Reddit of hate-watching content of JD Vance hate leadership.
+
+https://old.reddit.com/r/worldnews/comments/1qxx3wg/france_uncovers_russian_disinformation_campaign/o3zwmn2/
+
+https://old.reddit.com/r/worldnews/comments/1qxx3wg/france_uncovers_russian_disinformation_campaign/o3zq6tq/
+
