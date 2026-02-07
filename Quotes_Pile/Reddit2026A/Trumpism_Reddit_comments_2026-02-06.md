@@ -570,3 +570,8 @@ Hate-watching of content has taken over every area of society. If anyone is reco
 https://old.reddit.com/r/videos/comments/1qy0wc3/trump_faces_backlash_over_racist_video_portraying/o40e77r/
 
 All fandoms now in USA 2026 prize hate. People in year 2012 and earlier often prized education, learning, understanding and not just attracted to hate. But now it is all one common attraction. Hate vs. hate. Fandom vs. fandom. Hate-watchers of Reddit got their prized hate content and can mock and hate other fandoms.
+
+https://old.reddit.com/r/videos/comments/1qy0wc3/trump_faces_backlash_over_racist_video_portraying/o40finw/
+
+We didn't have the Apple iPhone before year 2007. We didn't have Reddit before year 2005. Trump was an old white guy that got on Twitter July 6, 2011. https://theoutline.com/post/2445/trump-s-first-real-tweet-was-on-july-6-2011 That's what changed. Reddit is what changed. Twitter is what hanged. The abandonment of Neil Postman and Marshall McLuhan understandings of high-speed information systems is what changed. People avoiding nonfiction learning, including Dr. Bandy X Lee, is what changed. "The media" is what changed, the medium, Reddit is what changed, Tweeting is what changed. Mindsets that seek speedy reactions and shit-talking.
+
