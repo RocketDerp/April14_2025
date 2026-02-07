@@ -775,3 +775,22 @@ https://old.reddit.com/r/videos/comments/1qyi6ou/man_83_sentenced_to_life_in_pri
 https://old.reddit.com/r/clevercomebacks/comments/1qymk7z/repeated_excuse_same_audience/o44olyv/
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mecl4pkeac2x https://autistics.life/@RoundSparrow/116031941850685472 }
+
+https://old.reddit.com/r/clevercomebacks/comments/1qymk7z/repeated_excuse_same_audience/o44nohn/
+
+October 22, 2015 - people keep blaming "dementia", and this strategic media behavior goes back decades.
+
+https://old.reddit.com/r/clevercomebacks/comments/1qymk7z/repeated_excuse_same_audience/o44n6ot/
+
+“Chaos and disruption, I later learned, are central tenets of Bannon's animating ideology. Before catalyzing America's dharmic rebalancing, his movement would first need to instill chaos through society so that a new order could emerge. He was an avid reader of a computer scientist and armchair philosopher who goes by the name Mencius Moldbug, a hero of the alt-right who writes long-winded essays attacking democracy and virtually everything about how modern societies are ordered. Moldbug’s views on truth influenced Bannon, and what Cambridge Analytica would become. Moldbug has written that “nonsense is a more effective organizing tool than the truth,” and Bannon embraced this. “Anyone can believe in the truth,” Moldbug writes, “to believe in nonsense is an unforgettable demonstration of loyalty. It serves as a political uniform. And if you have a uniform, you have an army.”
+― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the [Plot to Break America, page 85](https://books.google.com/books?id=8OW2DwAAQBAJ&pg=PA85&dq=%22serves+as+a+political+uniform.+And+if+you+have+a+uniform,+you+have+an+army.%E2%80%9D&hl=en&newbks=1&newbks_redir=1&sa=X). **year 2019**
+
+https://old.reddit.com/r/clevercomebacks/comments/1qymk7z/repeated_excuse_same_audience/o44r3m6/
+
+https://old.reddit.com/r/clevercomebacks/comments/1qymk7z/repeated_excuse_same_audience/o44oloy/
+
+It's the opposite. Bamboozle egoism, pain of truth. Pain of facing that Fox News HDTV is fiction. Pain of facing that Bible and Church are science fiction, as is the Quran 9/11 Mohammad inspiration. All fiction storytelling.
+
+* “One of the saddest lessons of history is this: If we’ve been bamboozled long enough, we tend to **reject any evidence of the bamboozle**. We’re no longer interested in finding out the truth. The bamboozle has captured us. It’s simply too painful to acknowledge, even to ourselves, that we’ve been taken. Once you give a charlatan power over you, you almost never get it back. So the old bamboozles tend to persist as the new ones rise.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, **1995**, page 241
+
+
