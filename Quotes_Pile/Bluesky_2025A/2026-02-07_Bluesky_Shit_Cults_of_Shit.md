@@ -58,3 +58,7 @@ Mocking endlessly since June 16, 2015 is exactly why Trump is center of all medi
 3. Mock vs. Mock #MockHarder 
 
 4. Ignorance Celebration. All nonfiction from Dr. Bandy X. Lee is ignored CC: @bandylee.bsky.social
+
+&nbsp;
+
+Social post { https://autistics.life/@RoundSparrow/116030170661221996 }
