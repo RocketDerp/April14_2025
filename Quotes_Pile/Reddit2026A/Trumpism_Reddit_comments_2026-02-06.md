@@ -797,3 +797,11 @@ https://old.reddit.com/r/clevercomebacks/comments/1qymk7z/repeated_excuse_same_a
 
 Reddit it eats it up. Reddit audience can't turn to any nonfiction sources and depth on the problem, Reddit fandom is always shallow superficial reacting. Reddit end-users predictably mock back to the mocking. President Tony Clifton acting blows the Reddit audience minds. Surkov won since March 2013.
 
+https://old.reddit.com/r/clevercomebacks/comments/1qymk7z/repeated_excuse_same_audience/o44oiol/
+
+Reddit denial. Reddit end-users who live in such filter-bubbles https://en.wikipedia.org/wiki/Filter_bubble and have blocked-out the hundreds of millions of Fox News audience / Newsmax audience / MAGA fandom can't face that fiction outsells nonfiction and people do in fact believe the Quran is reality, Bible is reality, Torah is reality, etc. 
+
+Trump is tricked by Putin and Reddit user's can describe the timelines or names of the tricksters in Russia that have bamboozled everyone. Donald Trump trusts Putin and people in USA trust Trump.
+
+* “The human brain can protect us from seeing and feeling what it believes may be too uncomfortable for us to tolerate. It **can lead us to deny**, defend, **minimize, or rationalize away** something that doesn’t fit our worldview.”
+― Dr. Bandy X Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. Published **October 3, 2017**. Page 273. Chapter "TRUMP'S DADDY ISSUES"](https://books.google.com/books?id=g0c4DwAAQBAJ&pg=PA273&dq=%E2%80%9CThe+human+brain+can+protect+us+from+seeing+and+feeling+what+it+believes+may+be+too+uncomfortable%22&hl=en&newbks=1&newbks_redir=1&sa=X)
