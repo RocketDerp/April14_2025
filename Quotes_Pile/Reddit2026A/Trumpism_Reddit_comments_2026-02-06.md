@@ -484,3 +484,8 @@ https://old.reddit.com/r/ProgressiveHQ/comments/1qxt9o3/no_wonder_the_toddler_is
 
 One-line we the people... passive. Brain rot audience on Reddit. Trivializing the Twitter-think commenting mindsets of an Entertainer TV star.
 
+https://old.reddit.com/r/ProgressiveHQ/comments/1qxt9o3/no_wonder_the_toddler_is_unhinged_once_again_the/o3z1pbw/
+
+But not astounded enough to rescue people by teaching nonfiction cult deprogramming. Or so astounded that you no longer can engage nonfiction learning of cult deprogramming and educate and teach fellow Americans how to resist Putin's war against NATO with memes and messages. Why is nobody discussing Dr. Bandy X Lee's nonfiction books... to rescue hearts and minds from self-harm of USA...
+
+
