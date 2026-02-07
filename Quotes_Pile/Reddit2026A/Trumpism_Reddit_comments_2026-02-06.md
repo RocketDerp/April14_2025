@@ -793,4 +793,7 @@ It's the opposite. Bamboozle egoism, pain of truth. Pain of facing that Fox News
 
 * “One of the saddest lessons of history is this: If we’ve been bamboozled long enough, we tend to **reject any evidence of the bamboozle**. We’re no longer interested in finding out the truth. The bamboozle has captured us. It’s simply too painful to acknowledge, even to ourselves, that we’ve been taken. Once you give a charlatan power over you, you almost never get it back. So the old bamboozles tend to persist as the new ones rise.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, **1995**, page 241
 
+https://old.reddit.com/r/clevercomebacks/comments/1qymk7z/repeated_excuse_same_audience/o44pbmn/
+
+Reddit it eats it up. Reddit audience can't turn to any nonfiction sources and depth on the problem, Reddit fandom is always shallow superficial reacting. Reddit end-users predictably mock back to the mocking. President Tony Clifton acting blows the Reddit audience minds. Surkov won since March 2013.
 
