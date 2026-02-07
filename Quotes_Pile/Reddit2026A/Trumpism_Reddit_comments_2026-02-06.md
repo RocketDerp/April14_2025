@@ -636,3 +636,10 @@ Microsoft Exchange Server was a security nightmare and people poorly understood 
 
 REPEATING_REPEATER REPHRASING_REPEATING Paul Allen had connections to Microsoft-experienced people from all over the world. He hired me, a complete outsider the very year the wealth went CRAZY with a unproven in the field product. Exchange Serve 1.0 / 4.0 flagship! Because I didn't take shit from billionaires, no matter who the fuck you were, and no Bill Gates lacky was going to fuck-over Paul Allen because my Telos Federal Systems Apprentice job-creation (Fort Wayne branch, Santa Monica California HQ in 1986) background was fact-checked. I was a zero-bullshit mature 27 year old. IBM had made me their HIGHEST LEVEL Social Media ambassador, "Team OS/2 Gold Ambassador" at an Indy 500 ceremony. I was not Bill Gates loyal. Again, again, see: 1982 behind-back screwing-over history https://www.Forbes.com/sites/frederickallen/2011/03/30/bill-gates-tried-to-screw-paul-allen-whats-the-surprise/ - THAT is why they hired an computer industry outsider whose father ran a Pepsi canning plant and had zero connections to the software and tech industry insiders.
 
+https://old.reddit.com/r/politics/comments/1qyc2a9/from_epstein_to_bezos_the_ruling_class_is_rotten/o42gq7g/
+
+Conquest.
+
+https://old.reddit.com/r/politics/comments/1qyc2a9/from_epstein_to_bezos_the_ruling_class_is_rotten/o42g2eq/
+
+1 month Reddit account. Sport-washing Jody Allen is going big tomorrow. Cults of apps, cults of sports, etc
