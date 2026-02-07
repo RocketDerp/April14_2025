@@ -660,3 +660,9 @@ I had the fucking time in my office in Bellevue to read this nonfiction shit and
 https://old.reddit.com/r/politics/comments/1qyc2a9/from_epstein_to_bezos_the_ruling_class_is_rotten/o42iajh/
 
 1 month Reddit account. REPEATING_REPEATER observe the absence of any off-Reddit links, author names, quotes form nonfiction books, etc, etc. Twitter-length tiny short thinking patterns about the leaders of the entire planet of over 8 billion people. Disposable messaging that disposes of all nonfiction serious thinking.
+
+https://old.reddit.com/r/politics/comments/1qyc2a9/from_epstein_to_bezos_the_ruling_class_is_rotten/o42iix2/
+
+https://old.reddit.com/r/politics/comments/1qyc2a9/from_epstein_to_bezos_the_ruling_class_is_rotten/o42myjo/
+
+1 month Reddit account. Woman, what I would give for fucking server-side browser strings, IP addresses, and all content click reading traffic from these accounts out of webserver logs.
