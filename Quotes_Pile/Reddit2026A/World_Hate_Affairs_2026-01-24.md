@@ -1500,3 +1500,6 @@ https://old.reddit.com/r/nottheonion/comments/1qygw1t/pentagon_says_its_cutting_
 
 Anything *NOT to* halt, stop, ponder. And turn to nonfiction books from Dr. Bandy X Lee on the topic of mental health, "crazy". Reddit fandom of commenting is so addicted to writing, nonfiction reading and quoting is out of the question in programmed mindsets.
 
+https://old.reddit.com/r/Fauxmoi/comments/1qylx9w/at_a_preolympics_presser_us_figure_skating_champ/o44j8k5/
+
+Reddit top-voted comment in February 2026... a one-sentence Twitter-length message. ANYTHING but assert, quote, and encourage people to confront the hate issue with Dr. Bandy X Lee's leadership since publishing her October 3, 2017 book of 27 professionals on mental health of the situation...
