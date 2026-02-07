@@ -29,4 +29,16 @@ https://bsky.app/profile/roundsparrow.bsky.social/post/3mebn4kk4z22p
 The ICE MAGA fandom in USA February 2026 doesn't see book-burning and post-burning on Bluesky as a problem. That blocking people and ICE deporting people are the same programmed Fox News and Alex Jones programmed mindsets. **People just dehumanize you at the *drop of a hat* in public for commenting about nonfiction book from 1985 written by Neil Postman about "public discourse" topic and Fox News HDTV.** This is deport-happy burn-postings book-burning mindsets. This is Trumpland USA 2026, this isn't resisting Trump, this is doing what ICE is doing, deporting people over the slightest of ego reasons.
 
 
+&nbsp;
+
+Supposedly an "enlightened" understanding of meme reactionary mindsets... while being a book-burning blocker for criticizing Fox News.
+
+<img width="1852" height="1023" alt="image" src="https://github.com/user-attachments/assets/ade54c44-62cd-44b9-a9fd-fc1f18df05e0" />
+
+https://bsky.app/profile/groverhaustenbosch.bsky.social/post/3mea7pcjmpc2m
+
+&nbsp;
+
+You may wonder why I focus more on Reddit instead of Bluesky... because on Reddit long-form posting is allowed on every subreddit. There is no per-subreddit comment length restrictions. Bluesky is everything Twitter does that Carl Sagan described as 10-second sound bites. People on Bluesky are in worse shape than Reddit, both are in horrific mindsets of reactionary thinking. Avoidant of any media ecology nonfiction. Unaware of Marshall McLuhan and swimming gleefully in the waves of Trumpism / ICE / MAGA / White House / Kremlin patterns.
+
 
