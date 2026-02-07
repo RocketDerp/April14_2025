@@ -32,6 +32,14 @@ Attraction to MonoMyth
 MonoMyth Inputs   
 Addiction to Fiction    
 
+Parasocial Peoples   
+Parasocial media   
+Parasocial Populations   
+Surkov Won 2013   
+Parody Social   
+Mockery Social  
+
+
 Shitpost Nation   
 Shit-commenting Nation  
 
