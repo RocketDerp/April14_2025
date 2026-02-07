@@ -567,3 +567,6 @@ https://old.reddit.com/r/videos/comments/1qy0wc3/trump_faces_backlash_over_racis
 
 Hate-watching of content has taken over every area of society. If anyone is recorded and uploaded on camera acting odd or unusual or stressed out, it's content for video distribution Reddit. Trump is a celebrity and actor doing acting and popular as a hate subject. The audience is the problem. Fandoms giving up power to machine addictions of delivery format and delivery venue are the problem. Hate is the mind-altering substance that attracts We The People to give up power and wealth to an attractive source of content creation, Trump and his supporting actors. Surkov won since March 2013.
 
+https://old.reddit.com/r/videos/comments/1qy0wc3/trump_faces_backlash_over_racist_video_portraying/o40e77r/
+
+All fandoms now in USA 2026 prize hate. People in year 2012 and earlier often prized education, learning, understanding and not just attracted to hate. But now it is all one common attraction. Hate vs. hate. Fandom vs. fandom. Hate-watchers of Reddit got their prized hate content and can mock and hate other fandoms.
