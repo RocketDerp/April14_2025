@@ -1494,3 +1494,9 @@ https://old.reddit.com/r/nottheonion/comments/1qygw1t/pentagon_says_its_cutting_
 
 Notice the insincere "playing dumb" mockery questioning. People can not resist their programmed compulsive mocking at the total mockery. It just goes on and on, hour after hours, nearly 11 full years of MAGA mindsets and Trumpism thinking on Reddit. High-speed media reaction mindsets. Surkov won.
 
+https://old.reddit.com/r/nottheonion/comments/1qygw1t/pentagon_says_its_cutting_ties_with_woke_harvard/o43kd1q/
+
+"Crazy"
+
+Anything to halt, stop, ponder. And turn to nonfiction books from Dr. Bandy X Lee on the topic of mental health, "crazy". Reddit fandom of commenting is so addicted to writing, nonfiction reading and quoting is out of the question in programmed mindsets.
+
