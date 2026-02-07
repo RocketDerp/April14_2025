@@ -747,3 +747,13 @@ https://old.reddit.com/r/politics/comments/1qyip1z/nsa_detected_phone_call_betwe
 Hyperbanal commenting on Reddit systems. See: https://Old.Reddit.com/r/HyperBanalisation/ What to see here: Reddit mind-fucking with Twitter-thinking short-length messaging to audience that none of this is serious. No need for We The People to take over where the NSA / CIA is failing. No call for intellectual defense of USA by militia. No call for unarmed uprising of peace and nonfiction education. No call for counter-brainwashing counter-intelligence counter-Surkov counter-cult Fox News HDTV deprogram television programming, how does one describe this... road...
 
 * "Well I don’t know how much further we can go down this road but in any case, ah, the road according to Baudrillard is an endless set..." https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
+
+https://old.reddit.com/r/news/comments/1qykcmm/epstein_revelations_have_toppled_top_figures_in/o449exs/
+
+https://old.reddit.com/r/news/comments/1qykcmm/epstein_revelations_have_toppled_top_figures_in/o446fkj/
+
+3 month Reddit account. Highly upvoted popular.
+
+https://old.reddit.com/r/news/comments/1qykcmm/epstein_revelations_have_toppled_top_figures_in/o445xy6/
+
+https://old.reddit.com/r/news/comments/1qykcmm/epstein_revelations_have_toppled_top_figures_in/o449bna/
