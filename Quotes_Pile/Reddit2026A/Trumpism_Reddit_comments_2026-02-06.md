@@ -656,3 +656,7 @@ Reddit tech addicts are in the manipulated mindsets and can not see the NATO for
 * “Technopoly is a state of culture. It is also a state of mind. It consists in the deification of technology, which means that the culture seeks its authorization in technology, finds its satisfactions in technology, and takes its orders from technology.” ― Neil Postman, Technopoly: The Surrender of Culture to Technology. Year 1992
 
 I had the fucking time in my office in Bellevue to read this nonfiction shit and think about the 1st richest person in the world in Redmond communicating to the 3rd richest person in the world in Bellevue! I was sitting on the Microsoft Board of Directors private messaging!
+
+https://old.reddit.com/r/politics/comments/1qyc2a9/from_epstein_to_bezos_the_ruling_class_is_rotten/o42iajh/
+
+1 month Reddit account. REPEATING_REPEATER observe the absence of any off-Reddit links, author names, quotes form nonfiction books, etc, etc. Twitter-length tiny short thinking patterns about the leaders of the entire planet of over 8 billion people. Disposable messaging that disposes of all nonfiction serious thinking.
