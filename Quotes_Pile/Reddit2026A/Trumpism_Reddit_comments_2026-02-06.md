@@ -693,4 +693,14 @@ https://old.reddit.com/r/technology/comments/1qyikta/no_one_should_have_a_copyri
 
 https://old.reddit.com/r/technology/comments/1qyikta/no_one_should_have_a_copyright_on_vance_being/o43tjsm/
 
-Reddit tech fandom turns, as programmed, into male vs. male dick measuring mindsets. ANYTHING but follow WOMAN Jen Senko leadership about media brainwashing. ANYTHING but follow WOMAN Dr. Bandy X Lee's leadership about egomania leading men.
+Reddit tech fandom turns serious Reddit media systems topic into physical male mindset, as programmed, into male vs. male dick measuring mindsets. ANYTHING but follow WOMAN Jen Senko leadership about media brainwashing. ANYTHING but follow WOMAN Dr. Bandy X Lee's leadership about egomania leading men.
+
+https://old.reddit.com/r/technology/comments/1qyikta/no_one_should_have_a_copyright_on_vance_being/o43weqm/
+
+Where is better? and WHY is other better? Reddit. ha. Secretly disappeared messages as I have documented here on this GitHub. Extremely serious disappeared messages about Russia topics. 
+
+https://old.reddit.com/r/technology/comments/1qyikta/no_one_should_have_a_copyright_on_vance_being/o43uutx/
+
+They are afraid they won't get Reddit to keep commenting in reactions to every ACTION that is being done. They are afraid people will escape the Reddit commenting fixation and actually turn to a serious nonfiction book. They are afraid Reddit will self-examine values through the teachings of Marshall McLuhan / University of Toronto education.
+
+* "The extremists are afraid of books and pens. The power of education frightens them. They are afraid of women. The power of the voice of women frightens them." - July 12, 2013 https://malala.org/news-and-voices/malala-un-speech
