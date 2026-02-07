@@ -101,3 +101,6 @@ https://old.reddit.com/r/TikTokCringe/comments/1qxhlp5/how_long_does_it_take_to_
 Madness.
 
 https://old.reddit.com/r/TikTokCringe/comments/1qxhlp5/how_long_does_it_take_to_see_a_doctor_and_get/o3wpqaq/
+
+https://old.reddit.com/r/AITAH/comments/1qxtuqb/aitah_for_leaving_wife_at_home_after_she_revealed/o3z3a9a/
+
