@@ -581,3 +581,7 @@ https://old.reddit.com/r/TrendoraX/comments/1qy0vgw/that_tells_you_about_the_soc
 
 https://old.reddit.com/r/TrendoraX/comments/1qy0vgw/that_tells_you_about_the_social_medias/o40ld05/
 
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1qy64za/no_wonder_the_toddler_is_unhinged_once_again_the/o41h0b5/
+
+Denial of Ukraine war, denial that lies and falsehoods are all over Reddit, denial of so much to fixate on the story that Trump tells... it is TRUMP's talking point that black people are the problem. And Reddit people have put that into their minds. It is the POPULATION that can't stop fucking talking about god damn Trump / ICE / MAGA and turn THE POPULATION attention to Dr. Bandy X Lee nonfiction serious books.
+
