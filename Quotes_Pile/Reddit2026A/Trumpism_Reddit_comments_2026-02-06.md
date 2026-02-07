@@ -704,3 +704,7 @@ https://old.reddit.com/r/technology/comments/1qyikta/no_one_should_have_a_copyri
 They are afraid they won't get Reddit to keep commenting in reactions to every ACTION that is being done. They are afraid people will escape the Reddit commenting fixation and actually turn to a serious nonfiction book. They are afraid Reddit will self-examine values through the teachings of Marshall McLuhan / University of Toronto education.
 
 * "The extremists are afraid of books and pens. The power of education frightens them. They are afraid of women. The power of the voice of women frightens them." - July 12, 2013 https://malala.org/news-and-voices/malala-un-speech
+
+https://old.reddit.com/r/technology/comments/1qyikta/no_one_should_have_a_copyright_on_vance_being/o43tu0i/
+
+Media ecology discussion. No off-Reddit links or quotes from nonfiction sources.
