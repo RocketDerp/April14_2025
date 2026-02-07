@@ -171,7 +171,7 @@ September 9 2014, 3:42 PM ET
 
 “If previous authoritarian regimes were three parts violence and one part propaganda,” argues Igor Yakovenko, a professor of journalism at the Moscow State Institute of International Relations, “this one is **virtually all propaganda and relatively little violence**. Putin only needs to make a few arrests—and then amplify the message through his total control of television.”
 
-Translated from 2013 Russia to USA 2025: I.C.E. raids are very little violence and a lot of showboating. A lot of Reddit front-page I.C.E. raids for visual meme addicts / meme consumers. Simple-think logic polarity minds. Snark bout "reality" on the audience commenting mind, but no recognition that Kremlin and White House has the Reddit total control of media amplifiers. Reddit is amplifying media from all over the Internet. Eating the onions that Trump and Musk is dementia stupid dumb idiot, Reddit society unable to engage and comprehend and understand off-Reddit... September 9, 2014: https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ - joking to "imagine" / dream up fiction of anti-reality, dreamland. Anything to avoid learning / grasping nonfiction Russian information warfare history and techniques.
+Translated from 2013 Russia to USA 2025: I.C.E. raids are very little violence and a lot of showboating. A lot of Reddit front-page I.C.E. raids for visual meme addicts / meme consumers. Simple-think logic polarity minds. Snark about "reality" on the audience commenting mind, but no recognition that Kremlin and White House has the Reddit total control of media amplifiers. Reddit is amplifying media from all over the Internet. Eating the onions that Trump and Musk is dementia stupid dumb idiot, Reddit society unable to engage and comprehend and understand off-Reddit... September 9, 2014: https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ - joking to "imagine" / dream up fiction of anti-reality, dreamland. Anything to avoid learning / grasping nonfiction Russian information warfare history and techniques.
 
 Peter Pomerantsev books on paper since year 2014, NOBODY on Reddit quoting nonfiction books!!!
 
@@ -208,7 +208,7 @@ Attacking women, tech / technology lovers. Meme audiences so thrilled to have co
 
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1qaef2u/oh_hell_yeah_id_even_go_ppv/nz2c78u/
 
-Front page of Reddit. Fiction images to talk bout "White skin color Twitter" defeating the amusement providers / entertainers. Simulation of resistance, fake images, fiction storytelling. The population using free time, spare time, spent **avoiding progressive use of information systems** repeating and asserting: { Jen Senko, Marshall McLuhan, Neil Postman, Dr. Bandy X Lee, Peter Pomerantsev, Bill Moyers }.
+Front page of Reddit. Fiction images to talk about "White skin color Twitter" defeating the amusement providers / entertainers. Simulation of resistance, fake images, fiction storytelling. The population using free time, spare time, spent **avoiding progressive use of information systems** repeating and asserting: { Jen Senko, Marshall McLuhan, Neil Postman, Dr. Bandy X Lee, Peter Pomerantsev, Bill Moyers }.
 
 https://old.reddit.com/r/MurderedByWords/comments/1qbofub/its_always_the_ones_who_call_themselves_christians/nzc2y52/
 
@@ -461,7 +461,7 @@ September 9 2014, 3:42 PM ET
 
 “If previous authoritarian regimes were three parts violence and one part propaganda,” argues Igor Yakovenko, a professor of journalism at the Moscow State Institute of International Relations, “this one is **virtually all propaganda and relatively little violence**. Putin only needs to make a few arrests — and then amplify the message through his total control of television.”
 
-Translated from 2013 Russia to USA 2025: I.C.E. raids are very little violence and a lot of showboating. A lot of Reddit front-page I.C.E. raids for visual meme addicts / meme consumers. Simple-think logic polarity minds. Snark bout "reality" on the audience commenting mind, but no recognition that Kremlin and White House has the Reddit total control of media amplifiers. Reddit is amplifying media from all over the Internet. Eating the onions that Trump and Musk is dementia stupid dumb idiot, Reddit society unable to engage and comprehend and understand off-Reddit... September 9, 2014: https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ - joking to "imagine" / dream up fiction of anti-reality, dreamland. Anything to avoid learning / grasping nonfiction Russian information warfare history and techniques.
+Translated from 2013 Russia to USA 2025: I.C.E. raids are very little violence and a lot of showboating. A lot of Reddit front-page I.C.E. raids for visual meme addicts / meme consumers. Simple-think logic polarity minds. Snark about "reality" on the audience commenting mind, but no recognition that Kremlin and White House has the Reddit total control of media amplifiers. Reddit is amplifying media from all over the Internet. Eating the onions that Trump and Musk is dementia stupid dumb idiot, Reddit society unable to engage and comprehend and understand off-Reddit... September 9, 2014: https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ - joking to "imagine" / dream up fiction of anti-reality, dreamland. Anything to avoid learning / grasping nonfiction Russian information warfare history and techniques.
 
 https://old.reddit.com/r/ProgressiveHQ/comments/1qgaclu/i_wouldnt_believe_it_myself_if_i_wasnt_witnessing/o0awzse/
 
@@ -764,3 +764,42 @@ Who doesn't like President Ronald Reagan media content in 2nd term 1985?
 https://old.reddit.com/r/PublicFreakout/comments/1qvuawr/apparently_they_are_not_even_trying_to_hide_it/o3k8br0/
 
 This is normalizing, not resisting. Top-upvoted comment.
+
+https://old.reddit.com/r/sports/comments/1qwmzkf/during_a_pro_wrestling_match_on_live_tv_the_crowd/o3q7xl5/
+
+This whole posting topic is "simulation of resistance", Audience vs. audience. Cult vs. cult. Wrestling audiences are the front lines of simulacra. Managed opposition, programmed cult media addicts mocking back at the Rupert Murdoch cults. Mock for mock, hate for hate, *hate harder*. ANYTHING but face up to Putin's information warfare. Reddit society unable to engage and comprehend and understand off-Reddit... September 9, 2014: https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ 
+
+OPERA_A Andy, did you hear about this wrestling match one? Reddit audience eats it up. Polarity out-group logic mindsets. REPEATING_REPEATER https://www.youtube.com/watch?v=l2lliT6KK9o 189,797 views February 8, 2018
+
+https://old.reddit.com/r/PublicFreakout/comments/1qwl6es/loud_fck_ice_chants_during_aew_dynamite_main_event/o3pq4ps/
+
+Celebration of Ignorance as defined in 1995 by Carl Sagan. Television **Celebrity Donald Trump** for Reddit television celebrity addictions audiences. Entertainment addicts who diss and insult and mock nonfiction serious books.
+
+* Published January 2015, before Trump started run for office in June 2015: https://www.Politico.com/magazine/story/2015/01/putin-russia-tv-113960/ At one end of the table sat one of the country’s most famous political TV presenters. He was small and spoke fast, with a smoky voice: “We all know there will be no real politics,” he said. “But we still have to give our viewers the sense something is happening. They need to be kept entertained.” “So what should we play with?” he asked. “Shall we attack oligarchs? Who’s the enemy this week? **Politics has got to feel like a movie!**”
+
+
+https://old.reddit.com/r/politics/comments/1qws929/schumer_and_jeffries_begin_to_cave_on_their/o3r6rmj/
+
+Masked Reddit user with masked secret policing of Reddit comments that are disappeared without explanation or documentation. No active education is given, even during a global pandemic, on World Wide Web Reddit about Russian mental manipulation. August 24, 2018 https://www.bbc.com/news/world-us-canada-45294192 - a date and story that Reddit audience avoids and can not face. Non-fiction, fact-checked, real information warfare to harm USA population. Not suitcases of cash bribes like so many fantasies believers have on Reddit of one single man Trump taking bribes, but direct social media audience manipulation using masked Reddit and masked Twitter accounts that hide source identity. https://www.bbc.com/news/technology-43301643 Surkov won since March 2013.
+
+* "Настало время замечательных историй. Расскажу вам о том (теперь уже можно), как мы с Дональдом Трампом приняли решение освободить Америку и сделать её снова великой. На это нам понадобилось целых 4 года и ещё 2 дня. **Всё началось ночью с 6 на 7 ноября 2012 года.**" https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Cambridge_Analytica_Quotes.md
+
+
+https://old.reddit.com/r/politics/comments/1qws929/schumer_and_jeffries_begin_to_cave_on_their/o3r6hl7/
+
+Simulation of resisting. Reddit banal comments that trivialize serious complex issues. Highly-upvoted popular comment. ANYTHING to avoid nonfiction teaching about managed opposition and Trump Putin facts.
+
+* "Culture watchers and worriers — those of the type who read books like this one — will know that the examples above are not aberrations but, in fact, clichés. There is no shortage of critics who have observed and recorded the dissolution of public discourse in America and its conversion into the arts of show business. But most of them, I believe, have **barely begun to tell the story of the origin and meaning of this descent into a vast triviality**. Those who have written vigorously on the matter tell us, for example, that what is happening is the residue of an exhausted capitalism; or, on the contrary, that it is the tasteless fruit of the maturing of capitalism; or that it is the neurotic aftermath of the Age of Freud; or the retribution of our allowing God to perish; or that it all comes from the old stand-bys, greed and ambition. I have attended carefully to these explanations, and I do not say there is nothing to learn from them. Marxists, Freudians, Lévi-Straussians, even Creation Scientists are not to be taken lightly." ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. Year 1985. Page 6.
+
+https://old.reddit.com/r/WorkReform/comments/1qwn45q/breaking_newspaper_owned_by_a_billionaire_tells/o3q53uw/
+
+Mockery created by billionaire Rupert Murdoch tells Reddit mockers to keep mocking with simple Twitter-Think Elon Musk Tweet-mindsets. This is not resisting, this is fandom to the clown show that billionaires are feeding into Reddit audience that joke-washes it all as entertainment. Trickle Down clown content for a clown fandom, Reddit is the venue for clowning and clown-washing.
+
+<img width="762" height="235" alt="image" src="https://github.com/user-attachments/assets/102abe89-6803-4719-a3bc-255e3261c0e9" />
+
+Clown icons, Unicode clowns. 
+
+"For all his perspicacity, George Orwell would have been stymied by this situation; there is nothing “Orwellian” about it. The President does not have the press under his thumb. The New York Times and The Washington Post are not Pravda; the Associated Press is not Tass. And there is no Newspeak here. Lies have not been defined as truth nor truth as lies. **All that has happened is that the public has adjusted to incoherence and been amused** into indifference. Which is why Aldous Huxley would not in the least be surprised by the story. Indeed, he prophesied its coming. He believed that it is far more likely that the Western democracies will dance and dream themselves into oblivion than march into it, single file and manacled. Huxley grasped, as Orwell did not, that it is not necessary to conceal anything from a public insensible to contradiction and narcoticized by **technological diversions**. Although Huxley did not specify that television would be our main line to the drug, he would have no difficulty accepting Robert MacNeil’s observation that “Television is the soma of Aldous Huxley’s Brave New World.” Big Brother turns out to be Howdy Doody." ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, **year 1985**, page 111
+
+* Howdy Doody is an American children's television program (with circus and Western frontier themes) that was created and produced by Victor F. Campbell and E. Roger Muir. It was broadcast on the NBC television network in the United States from December 27, 1947, until September 24, 1960." https://en.wikipedia.org/wiki/Howdy_Doody
+

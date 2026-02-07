@@ -86,4 +86,6 @@ See replies about media ecology.
 
 https://old.reddit.com/r/SipsTea/comments/1qw5rmg/ban_ozempic/o3mv1yw/
 
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1qxrxgq/what_does_this_mean/o3yj3lg/
 
+Science fiction paradox. Language paradox. Bible verse "1 John 4:20" answers it, you ain't *seen* jack shit, buddy. You have seen humans walking around, you ain't seen fucking God. Roman 11:32 ++

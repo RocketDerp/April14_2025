@@ -2132,3 +2132,122 @@ https://old.reddit.com/r/atheism/comments/1qvqifj/kid_rocks_song_about_loving_un
 https://old.reddit.com/r/atheism/comments/1qvqifj/kid_rocks_song_about_loving_underage_girls/o3k0cl6/
 
 Reddit is fandom. Pleading for more trickle down wealth content creators.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qwp3uk/zohran_mamdani_speaks_on_ai_images_being_spread/o3qkudl/
+
+The Bible fiction didn't need Artificial Intelligence to create a cult. Hand-made cults are an issue and Reddit cult commenting members won't face up to Neil Postman and Marshall McLuhan's nonfiction boooks.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qwp3uk/zohran_mamdani_speaks_on_ai_images_being_spread/o3qj7lv/
+
+Reddit fiction addicts think that the fiction vs. nonfiction of Bible followers is a new issue. October 7, 2023 reminder of science fiction Quran cult behaviors not enough. People believe in fiction regardless of any "laws" or "10 commandments" or Bible verse "1 John 4:20" instructions otherwise.
+
+https://old.reddit.com/r/politics/comments/1qws929/schumer_and_jeffries_begin_to_cave_on_their/o3r6ytk/
+
+<img width="928" height="345" alt="image" src="https://github.com/user-attachments/assets/2392ce20-1483-48a0-a0e0-7bbe5d97fecb" />
+
+Shit-commenting fandom of shit-posting Reddit shit meme distribution venue. Truth Social fandom of Trump ignorant shit-talk commenting shit. Shit-bird Twitter-bird fandom that bird-migrate to Reddit. Highly upvoted popular comment, shit-favoring popularity of simple-think Tweet-length.
+
+Dear WE THE PEOPLE: Get rid of your addiction to Twitter-length short 1.5 second commenting messages that mock and mockery with fiction addictions. Stop trying to cram a population of 300 million into messages that fit on an Apple iPhone or Samsung Android phone screen. Fox News HDTV was an issue since year 1996 that Reddit community can not intelligently discuss. Rupert Murdoch Fox News, **ONE YEAR after this 1995 nonfiction difficult articulate verbose book** was published:
+
+* “Science is more than a body of knowledge; it is a way of thinking. I have a (year 1995) foreboding of an America in my children’s or grandchildren’s time — when the United States is a service and information economy; when nearly all the key manufacturing industries have slipped away to other countries; when awesome technological powers are in the hands of a very few, and no one representing the public interest can even grasp the issues; when the people have lost the ability to set their own agendas or knowledgeably question those in authority; when, clutching our crystals and nervously consulting our horoscopes, our critical faculties in decline, unable to distinguish between what feels good and what’s true, we slide, almost without noticing, back into superstition and darkness. The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the **30-second** sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but especially a kind of [celebration of ignorance](https://www.youtube.com/watch?v=wcY-x1VuWtE). As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning — not just of science, but of anything — are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995, page 59
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social https://autistics.life/@RoundSparrow/116019905713693013 }
+
+https://old.reddit.com/r/politics/comments/1qws929/schumer_and_jeffries_begin_to_cave_on_their/o3rdor6/
+
+8 month Reddit account.
+
+https://old.reddit.com/r/BikiniBottomTwitter/comments/1qwsg2d/that_too_on_live_tv/o3r82wh/
+
+Over a decade of dumb-shit Trumpism on Reddit. Since June 16, 2015 Reddit community mocks and mocks with the dumbest cartoon South Park and Sponge Bob tiny-short commenting. A hard core fandom of Trump hate-watching that has elevated Trump to every media venue on the planet EVERY DAY for dumb-shit media addictions. Reddit users are a cult of Trump symbolism and icons. Top-upvoted popular comment on front page of /r/All for the Reddit cult of shit-commenting shit-posting. Trump Reality TV is for Reddit fanatics / cultists of bad shit.
+
+/r/BikiniBottomTwitter is a cult of Twitter shit-birds. The posting is "Sponge Bob" television fandom. Trump fandom of Trump shit, dumb as fuck Sponge Bob content media cults. "Bikini Bottom Twitter", Tweet-thinking cult. "live TV" fandom of White House Reality performance of President Tony Clifton acting. Audiences on Reddit eat this shit up. Surkov students won since March 2013 via Reddit, Twitter, etc.
+
+* Entertainment Weekly and other publications noted the difference between hate-watching and watching as a guilty pleasure. "You wouldn't tune in every week to hate-watch a **really bad reality show**. Generally speaking, hate-watching requires a TV series with high ambitions and features a certain amount of aesthetic perfection" - https://en.wikipedia.org/wiki/Hate-watching
+
+https://old.reddit.com/r/law/comments/1qwpy9f/intelligence_director_tulsi_gabbards_office/o3qpt5s/
+
+<img width="1153" height="818" alt="image" src="https://github.com/user-attachments/assets/f6b6a29f-7094-4854-892a-b85f2cbcb3f2" />
+
+ANSWER: Because the entire population is in a **Celebrity media cult** of Donald Trump content. Media cults can not break free from Surkov students. Free Masons Free Thinking is mocked away by Reddit total mockery. Russia won, NATO lost. President Tony Clifton performances have Reddit fandom glued to mockery. No escape mentally seems possible for cultists in over 10 years on Reddit cloud computing systems.
+
+Social post { https://autistics.life/@RoundSparrow/116020031589276591 https://bsky.app/profile/roundsparrow.bsky.social/post/3me57zioo5s2m }
+
+https://old.reddit.com/r/goodnews/comments/1qwozz6/as_trump_stands_behind_him_rep_jonathan_l_jackson/o3qj9uv/
+
+Top voted comment on Reddit. Fandom of Trump images.
+
+https://old.reddit.com/r/goodnews/comments/1qwozz6/as_trump_stands_behind_him_rep_jonathan_l_jackson/o3qi8ob/
+
+White House to --->>> Netflix ---- to Reddit content creation chain by Putin and Trump.
+
+https://old.reddit.com/r/goodnews/comments/1qwozz6/as_trump_stands_behind_him_rep_jonathan_l_jackson/o3qiu1d/
+
+Reddit Trump fandom.
+
+https://old.reddit.com/r/politics/comments/1qwtda4/the_next_democratic_president_better_be_merciless/o3ro26o/
+
+We The People need cult deprogramming. Every mental health processionals in the world, every nation, should be deprogramming USA. There is so much recency bias, people are not facing up that Trump was voted out in the November 2020 election and was removed from office for 4 years. The cult problem was not dealt with, the Fox News HDTV cult. The Newsmax media cult. The Elon Musk Twitter cult. Facebook media cult.
+
+https://old.reddit.com/r/politics/comments/1qwtda4/the_next_democratic_president_better_be_merciless/o3s09nf/
+
+Reddit meme cultists want more MAGA leaders to follow. Joining the MAGA cult to create more content. Abandon nonfiction in favor of fiction. Shallow commenting on Reddit about how there was a "high road" taken, there never was. Putin won! NATO lost. The high road was Internet declared war against Russia's Internet war. SEE_ALSO https://github.com/RocketDerp/April14_2025/blob/main/June19_2025/High_Road_USA_was_not_taken.md
+
+https://old.reddit.com/r/clevercomebacks/comments/1qwqhq8/hes_acting_like_hes_in_the_right/o3s9jfs/
+
+Posting title: "He is acting", yes, they are all acting to Surkov screenplays. Using the White House media systems to deliver content to Reddit hate-watching fandoms. Reddit is entirely not self-aware of this. Reddit people think they are resisting when they are doing exactly as conditioned by Kremlin and White House since March 2013. Surkov won. JD Vance is playing the every-popular bad guy character, like Walter White in Breaking Bad, and Reddit end-users eat this shit-show Reality TV White House up!
+
+* Published January 2015, before Trump started run for office in June 2015: https://www.Politico.com/magazine/story/2015/01/putin-russia-tv-113960/ At one end of the table sat one of the country’s most famous political TV presenters. He was small and spoke fast, with a smoky voice: “We all know there will be no real politics,” he said. “But we still have to give our viewers the sense something is happening. They need to be kept entertained.” “So what should we play with?” he asked. “Shall we attack oligarchs? Who’s the enemy this week? **Politics has got to feel like a movie!**”
+
+https://old.reddit.com/r/therewasanattempt/comments/1qwsu2y/to_be_a_christian/o3rbdwk/
+
+Reddit audience members are passively sitting around commenting while waiting for Trump to die. Instead of addressing the hundreds of millions of people who are in a cult. The Reddit users spend all their free time and spare time commenting about Trump's baby-making sex life and his death, life and death making, and not promoting Dr. Bandy X Lee's leadership on mental health problems. Why isn't Reddit audience turning to nonfiction books and a woman leader of intelligence and education?
+
+https://old.reddit.com/r/therewasanattempt/comments/1qwsu2y/to_be_a_christian/o3rd91m/
+
+Reddit community Resistance is a Fake Resistance. Not real. Reddit audience is REALLY a fandom of mocking, which Trump leads, a Church Bible mockery - which Reddit responds to with conditioned mocking. Reddit and Trump both share the same values of mockery following. Trump is doing his Tony Clifton Bible performances and Reddit users think Trump is not an actor doing acting. SNL NYC Trump home town Andy Kaufman techniques. 
+
+https://old.reddit.com/r/wallstreetbets/comments/1qwyyn5/have_you/o3sop8t/
+
+This posting is an image of JD Vance, Vice President. Reddit community is a fandom to hate leaders. Reddit end-users follow hate leadership. Hate-watching image fandom. Cult of hate content. https://en.wikipedia.org/wiki/Hate-watching
+
+https://old.reddit.com/r/nottheonion/comments/1qwr1i2/nashville_is_furious_about_power_outages/o3qxxkv/
+
+Reddit fandom of outcomes of Russia winning an information war against "Woke". Reddit community is thrilled to have jokes and memes about how Russia won hearts and minds of USA society. Fiction addicts on Reddit are attracted to bullshit stories talking about consumption of bullshit ideas. Shit-commenting shit-posting society to serve Kremlin information warfare, mindless addicts to joking patterns.
+
+* "Russia’s War on Woke. Putin Is Trying to Unite the Far Right and Undermine the West" https://www.foreignaffairs.com/united-states/russias-war-woke
+
+* January 14, 2026 — An “anti-woke” visa scheme launched by President Vladimir Putin to lure Westerners who share Russia's “spiritual and moral values”  https://tvpworld.com/91045487/putins-anti-woke-russia-visa-struggles-to-draw-westerners
+
+* "Putin raised the anti-woke banner long before it flew over Washington"... February 19, 2025 — Vance's Munich speech **matched many of the issues long promoted by Russia** https://www.washingtonpost.com/world/2025/02/19/putin-raised-anti-woke-banner-long-before-it-flew-over-washington/
+
+Reddit fandoms are thrilled to live inside a pro-bullshit total mockery, as they get to comment their dumb jokes.
+
+https://old.reddit.com/r/videos/comments/1qwyclv/why_is_it_wrong_to_rpe_kids_maga_hits_grotesque/o3sk8u4/
+
+https://old.reddit.com/r/videos/comments/1qwyclv/why_is_it_wrong_to_rpe_kids_maga_hits_grotesque/o3sonr6/
+
+https://old.reddit.com/r/videos/comments/1qwyclv/why_is_it_wrong_to_rpe_kids_maga_hits_grotesque/o3sltuu/
+
+"I'm just making fiction stories", bypass any censorship. Horror films, Stephen King stories... you can describe any crime in fiction.
+
+https://old.reddit.com/r/videos/comments/1qwyclv/why_is_it_wrong_to_rpe_kids_maga_hits_grotesque/o3so594/
+
+https://old.reddit.com/r/videos/comments/1qwyclv/why_is_it_wrong_to_rpe_kids_maga_hits_grotesque/o3sqmw8/
+
+"cult". Never teaching cult deprogramming or calling for rescue to Putin's media cults. Surkov won.
+
+https://old.reddit.com/r/videos/comments/1qwyclv/why_is_it_wrong_to_rpe_kids_maga_hits_grotesque/o3sp1u1/
+
+https://old.reddit.com/r/videos/comments/1qwyclv/why_is_it_wrong_to_rpe_kids_maga_hits_grotesque/o3svuue/
+
+https://old.reddit.com/r/videos/comments/1qwyclv/why_is_it_wrong_to_rpe_kids_maga_hits_grotesque/o3t6vbx/
+
+9 month Reddit account.
+
+https://old.reddit.com/r/videos/comments/1qwyclv/why_is_it_wrong_to_rpe_kids_maga_hits_grotesque/o3sqtnp/
+
+https://old.reddit.com/r/videos/comments/1qwyclv/why_is_it_wrong_to_rpe_kids_maga_hits_grotesque/o3skvz9/
+
+https://old.reddit.com/r/videos/comments/1qwyclv/why_is_it_wrong_to_rpe_kids_maga_hits_grotesque/o3sk9m1/
+

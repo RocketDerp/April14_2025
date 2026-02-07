@@ -1381,3 +1381,85 @@ Reddit cultists insulting the other cults. Reddit cult member (Reddit end user, 
 https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pg4s0/
 
 Tiny-short commenting cultists with South Park fiction addictions loves the performances of Bible fiction "Anti-Christ" on Reddit venue.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pgisn/
+
+Reddit audience just wants to turn everything into sex with little girls topics to comment upon. Epstein / QAnon "Q Drops" cultists on Reddit. Reaction commenting "Daddy Issues" cultists. Who don't stand up and quote women and instead talk about the men and their lust for hookups.
+
+* “We are about to sacrifice our civilization for the opportunity of a very small number of people to continue to make enormous amounts of money. We are about to sacrifice the biosphere so that rich people in countries like mine can live in luxury. But it is the sufferings of the many which pay for the luxuries of the few.” ― Greta Thunberg, No One Is Too Small to Make a Difference. Published May 30, 2019
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pgkk6/
+
+Mind-fucking Reddit audience to self-censor and shut up / stop.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pgn4i/
+
+Reddit tech fandom bored with the plot of the media storytelling. Commenting on Reddit about the shit-postings with shit-commenting. Reddit fandom does this with any topic of importance or serious. Drowns it out with low-effort thoughtless commenting.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pgo19/
+
+"insane". Gullible fandom. ANYTHING but turn to Dr. Bandy X Lee's nonfiction books. Engaged fandom audience.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pgpog/
+
+"wierdo"
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pgptu/
+
+"off his nut". Street gang lingo of Reddit cult.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pgvwa/
+
+Reddit audience does anything but sound alarm and call for intellectual defense. ANYTHING but turn to nonfiction and assert Dr. Bandy X Lee's leadership.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pgx5r/
+
+Reddit audience cult member is creating fiction content on commenting section instead of teaching serious nonfiction by Dr. Bandy X Lee to rescue the USA and NATO from cultists.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3ph4cn/
+
+Fiction addicts who are describing how fiction storytelling by the richest people on Earth is more real than factual reality. Hyperreal audience of Reddit.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3ph8s7/
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3phbro/
+
+Joke-washing serious topics with powerful Reddit media systems.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3phhbk/
+
+JD Fandom, JD Vance fanatic chanting programmed media lines about couches.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3phhjq/
+
+"When did we start listening to crazy people?" Let's see. This posting is about "Christ" Jesus, Bible in Levant, 2000 years ago when audiences started to retcon the Torah stories from thousands of years earlier. Comparative mythology education is absent in Reddit media cult fandoms.
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3phxh0/
+
+https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pisnc/
+
+Gullible people get their information from commenting without off-Reddit links.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qwvyqe/tony_hawk_debunks_the_viral_rumor_he_had_one_of/o3s0n33/
+
+World Divorce Affairs. Celebrity cult of Reddit. Fandom of Tony Hawk, media cults.
+
+Social post { https://autistics.life/@RoundSparrow/116020170356150746 https://bsky.app/profile/roundsparrow.bsky.social/post/3me5dtqluyc2t }
+
+https://old.reddit.com/r/Fauxmoi/comments/1qwvyqe/tony_hawk_debunks_the_viral_rumor_he_had_one_of/o3s05xk/
+
+Fiction outsells nonfiction.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qwvyqe/tony_hawk_debunks_the_viral_rumor_he_had_one_of/o3s0nif/
+
+https://old.reddit.com/r/Fauxmoi/comments/1qwvyqe/tony_hawk_debunks_the_viral_rumor_he_had_one_of/o3s1ppi/
+
+https://old.reddit.com/r/sports/comments/1qxuxgk/usa_booed_at_winter_olympics_opening_ceremony_as/o3z6w6q/
+
+https://old.reddit.com/r/sports/comments/1qxuxgk/usa_booed_at_winter_olympics_opening_ceremony_as/o3zb4sf/
+
+https://old.reddit.com/r/sports/comments/1qxuxgk/usa_booed_at_winter_olympics_opening_ceremony_as/o3za4tb/
+
+https://old.reddit.com/r/PublicFreakout/comments/1qxuhpf/vp_jd_vance_and_wife_usha_get_bood_at_the_olympics/o3z2h8w/
+
+Hate is what Reddit is fandom for, video postings on Reddit of hate-watching content of JD Vance hate leadership.

@@ -62,3 +62,59 @@ https://old.reddit.com/r/AdviceAnimals/comments/1lpqkl1/removed_by_reddit/n10dxl
 Nothing progressive in the message, absent any goodness. Just wanting to see killing and death. **Death cult** of Reddit tech lovers. It doesn't matter that the message specifies "PRESIDENT", as it mean *any President*, even corporate President (Luigi 2024-12-04 worship death cult, murder cult gangs). And really, any person outside the cult, **competition** of Murdoch cult for Reddit cult; of murder for murder, hate for hate race to the bottom of the human mind.
 
 * "That is the **meaning of love. In the final analysis, love** is not this sentimental something that we talk about. It's not merely an emotional something. Love is creative, understanding goodwill for all men. It is the refusal to defeat any individual. When you rise to the level of love, of its great beauty and power, you seek only to defeat evil systems. Individuals who happen to be caught up in that system, you love, but you seek to defeat the system." - King, Jr., Martin Luther (1957-11-17)
+
+https://old.reddit.com/r/TrueDetective/comments/3e73k4/s2e5_true_detective_s2e5_watchthrough_analysis_by/ctcqgg7/
+
+My comment. Quoting Star Wars fiction fandom lessons from George Lucas to True Detective fiction fandom... Campbell about Reddit popularity toxic, upvoting and downvoting behaviors.
+
+https://old.reddit.com/r/TrueDetective/comments/3e73k4/s2e5_true_detective_s2e5_watchthrough_analysis_by/ctcumjw/
+
+Parallel comment about the mindsets of the subreddit closed-minded as hell. "this sub is so bloody defensive that it gets nuts." (sub = subreddit, community, fandom, cultists of season 1 vs. season 2). Season 1 was 2 people in a slow-moving area of USA, I called it training wheels. Season 2 was all of Hollywood fast lane and larger group of detectives, way beyond training wheels for audience into the real year 2015 mindset complexity.
+
+https://old.reddit.com/r/TrueReddit/comments/qg868/people_arent_smart_enough_for_democracy_to/c3xjvlh/
+
+My comment. Power of Myth quotes.
+
+https://old.reddit.com/r/TrueReddit/comments/qg868/people_arent_smart_enough_for_democracy_to/c3xjumu/
+
+My comment. I was quoting the 1988 nonfiction book back in year 2012. Arab Spring media ecology study years. I head already lived in Algeria, Jordan studying the Syria war outbreak, etc. I was still re-reading Power of Myth 1988 and Great Seal of the United States of America topics, such as page 38.
+
+https://old.reddit.com/r/TwoXChromosomes/comments/vwcyv/what_happened_to_my_twox/c58evcb/
+
+My comment. Emphasizing and repeating what someone else said: "the majority vote is, I'm sad to say, the vote of stupidity."
+
+https://old.reddit.com/r/TheOrville/comments/i1amzf/i_also_just_watched_home_for_the_nth_time_and_am/g303ttq/
+
+Somehow the comment with the quote was disappeared? Screen shot of Google today. 2026-02-06
+
+<img width="2414" height="481" alt="image" src="https://github.com/user-attachments/assets/8db01749-b0a5-49b4-8f39-7167347bed44" />
+
+https://old.reddit.com/r/OutOfTheLoop/comments/49y5ak/whats_the_massive_controversy_about_the_original/d0wkby2/
+
+My comment. Reddit community discussing Reddit social behaviors.
+
+Read the whole reply thread, mocking Bill Moyers. Mocking Campbell with little shit-commenting. This is in 2026 during the Trump winning /r/The_Donald mindsets of Reddit. RAGING Internet Research Agency warfare out of Saint Petersburg in year 2016... https://en.wikipedia.org/wiki/R/The_Donald for hearts and minds to be mechanical and logic. 
+
+https://old.reddit.com/r/OutOfTheLoop/comments/49y5ak/whats_the_massive_controversy_about_the_original/d0wrpe8/
+
+RE: "Joseph Campbell was also a weird technocratic" - no.
+
+Joseph Campbell is married to Jean Erdman, a dance creator of James Joyce. "The Coach With The Six Insides" dance. James Joyce married couple is into technocracy? Technical machine minded man? A New York City man who married a woman from Hawaii and retired in nature of Hawaii! I don't think he was big on city over-engineered life.
+
+* "CAMPBELL: The fact that the evil power is not identified with any specific nation on this earth means you’ve got an abstract power, which represents a principle, not a specific historical situation. The story has to do with an operation of principles, not of this nation against that. The monster masks that are put on people in Star Wars represent **the real monster force** in the modern world. When the mask of Darth Vader is removed, you see an unformed man, one who has not developed as a human individual. What you see is a strange and pitiful sort of undifferentiated face. MOYERS: What’s the significance of that? CAMPBELL: Darth Vader has not developed his own humanity. **He’s a robot. He’s a bureaucrat**, living not in terms of himself but in terms of an imposed system."
+* CAMPBELL: "The third function is the sociological one — supporting and validating a certain social order. And here’s where the **myths vary enormously from place to place**. You can have a whole mythology for polygamy, a whole mythology for monogamy. Either one’s okay. It depends on where you are. It is this sociological function of myth **that has taken over in our world** — and it is out of date. MOYERS: What do you mean? CAMPBELL: **Ethical laws. The laws of life as it should be in the good society. All of Yahweh’s pages and pages and pages of what kind of clothes to wear, how to behave to each other, and so forth**, in the first millennium B.C. But there is a fourth function of myth, and this is the one that I think everyone must try today to relate to—and that is the pedagogical function, of how to live a human lifetime under any circumstances. Myths can teach you that. MOYERS: So the old story, so long known and transmitted through the generations, isn’t functioning, and we have not yet learned a new one?"
+* CAMPBELL: "Now, the biblical tradition is a socially oriented mythology. Nature is condemned. In the nineteenth century, scholars thought of mythology and ritual as an attempt to control nature. But that is magic, not mythology or religion. Nature religions are not attempts to control nature but to help you put yourself in accord with it. But when nature is thought of as evil, you don’t put yourself in accord with it, you control it, or try to, and hence the tension, the anxiety, the **cutting down of forests, the annihilation of native people**. And the accent here separates us from nature."
+* "MOYERS: You talk about this peyote culture emerging and becoming dominant among Indians as a consequence of the loss of the buffalo and their earlier way of life. CAMPBELL: Yes. **Ours is one of the worst histories in relation to the native peoples of any civilized nation**. They are nonpersons. They are not even reckoned in the statistics of the voting population of the United States. There was a moment shortly after the American Revolution when there were a number of distinguished Indians who actually participated in American government and life. George Washington said that Indians should be incorporated as members of our culture. But instead, they were turned into vestiges of the past. In the nineteenth century, all the Indians of the southeast were put into wagons and shipped under military guard out to what was then called Indian Territory, **which was given to the Indians in perpetuity as their own world — then a couple of years later was taken away** from them."
+
+RE: "Joseph Campbell was also a weird technocratic" - no.
+
+Social post { https://autistics.life/@RoundSparrow/116024440368649972 https://bsky.app/profile/roundsparrow.bsky.social/post/3me7ajet2h22m }
+
+
+https://old.reddit.com/r/trollfare/comments/d258nb/information_gerrymandering_in_social_networks/eztsm15/
+
+my comment. "/r/Troll Fare" community about how fucked-up Reddit mindsets were.
+
+https://old.reddit.com/r/Trumpvirus/comments/1jfm98g/hes_just_so_stupid/mity863/
+
+My comment. Criticizing the Star Wars fandom for phallic *power* weapon shallowness that doesn't grow to the nonfiction teaching of Lucas in 1988 book.
