@@ -1503,3 +1503,7 @@ Anything *NOT to* halt, stop, ponder. And turn to nonfiction books from Dr. Band
 https://old.reddit.com/r/Fauxmoi/comments/1qylx9w/at_a_preolympics_presser_us_figure_skating_champ/o44j8k5/
 
 Reddit top-voted comment in February 2026... a one-sentence Twitter-length message. ANYTHING but assert, quote, and encourage people to confront the hate issue with Dr. Bandy X Lee's leadership since publishing her October 3, 2017 book of 27 professionals on mental health of the situation...
+
+https://old.reddit.com/r/Fauxmoi/comments/1qylx9w/at_a_preolympics_presser_us_figure_skating_champ/o44kqb0/
+
+Note this comment creator's user profile is pro-TLDR, won't read serious and deep nonfiction content.
