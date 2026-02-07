@@ -24,3 +24,9 @@ https://bsky.app/profile/roundsparrow.bsky.social/post/3mebn4kk4z22p
 
 <img width="1897" height="1352" alt="image" src="https://github.com/user-attachments/assets/830e806f-ffb7-4cb3-93c8-7cf385bdbdf9" />
 
+&nbsp
+
+The ICE MAGA fandom in USA February 2026 doesn't see book-burning and post-burning on Bluesky as a problem. That blocking people and ICE deporting people are the same programmed Fox News and Alex Jones programmed mindsets. **People just dehumanize you at the *drop of a hat* in public for commenting about nonfiction book from 1985 written by Neil Postman about "public discourse" topic and Fox News HDTV.** This is deport-happy burn-postings book-burning mindsets. This is Trumpland USA 2026, this isn't resisting Trump, this is doing what ICE is doing, deporting people over the slightest of ego reasons.
+
+
+
