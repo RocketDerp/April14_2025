@@ -713,3 +713,9 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1qyhkr0/x_actively_took_dow
 
 Trumpism cult on Reddit. Banal short messages of Right-Wing talking points being repeated over and over in feedback loops with Twitter. This is a Twitter topic posting, Tweet screen shot, over and over and over it goes in looping parroting of tiny-short. Most-popular upvoted comment. People who will do ANYTHING on Reddit but wake the fuck up and turn to Marshall McLuhan's books and teachings and rescue people from the Kremlin information warfare since March 2013. Surkov won.
 
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qyhkr0/x_actively_took_down_videos_of_jd_vance_being/o43ows2/
+
+~~Everything is Public Relations~~   
+~~Everything is PR~~   
+Media Woke: Everything is Media Ecology, ecosystems of Twitter vs. Redddit, Subreddit vs. Subreddit, fitler-bubble vs. filter-bubble, Kremlin ground zero echo booms of March 2013 Saint Petersburg Internet Research Agency.. Surkov MonoMyth implosions and explosions. Mind-blowing patterns. SEE_ALSO https://github.com/RocketDerp/April14_2025/blob/main/Media_Ecology/Everything_is_ME.md
+
