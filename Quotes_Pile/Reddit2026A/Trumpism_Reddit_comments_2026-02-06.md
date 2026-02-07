@@ -613,3 +613,10 @@ https://old.reddit.com/r/reactiongifs/comments/1qy2ivs/mrw_mike_tyson_was_on_fox
 
 Understand that bad guys are considered awesome and cool to men. It isn't just Elon Musk, Donald Trump, Putin that are super-cool to men as role models for children. Vince Gilligan's February 15, 2025 WGA speech about Walter White being seen as a cool awesome character.... Trump plays a character. Boxing is done in a rectangle. Simple mindsets. Andy Kaufman is one of the few to try and get people woke, but the LOL reactions are what most people do.
 
+https://old.reddit.com/r/HistoryUncovered/comments/1qy0rmg/on_october_10_2008_senator_john_mccain_did_the/o411m2w/
+
+But that does not explain why all the supposedly "SANE PEOPLE" in "the other party" can not stop commenting about Trump every day and every hour of those days on social media computer systems. Over and over, for over a decade, commenting about how fat, ugly, orange, dumb, stupid, idiot Donald Trump is. WHY ARE SOCIAL MEDIA USERS NOT EDUCATING PEOPLE? Why are NONFICTION BOOKS that explain what is going on in detail and verbose rich complex understanding IGNORED in favor of short-commenting shit-talk messages like the Reddit comment I am highlighting and sharing here on GitHub?
+
+What the fuck does orange cosmetic makeup have to do with the evils and poor thinking of Donald Trump? it's superficial and banal, just like REDDIT COMMENTING IS. Judging people based on shallow surface concerns is the crisis! Skin color of black! Skin color of brown! Spoken language of Spanish or English or even how I, as an autistic, compose my fucking paragraphs and the word choices I make!
+
+WHY ARE SOCIAL MEDIA USERS NOT ASSERTING AND QUOTING Dr. Bandy X Lee? If ONLY MAGA is insane by media mania of high-speed Twitter and Reddit, why are REDDIT USERS not wanting to TREAT PEOPLE who are "INSANE"? Why are people not teaching serious and detailed cult deprogramming and how to address the crisis of Fox News HDTV media mind patterns and mental outcomes?
