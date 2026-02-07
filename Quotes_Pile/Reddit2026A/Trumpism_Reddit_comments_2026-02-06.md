@@ -596,3 +596,16 @@ https://old.reddit.com/r/BlackPeopleofReddit/comments/1qy64za/no_wonder_the_todd
 https://old.reddit.com/r/BlackPeopleofReddit/comments/1qy64za/no_wonder_the_toddler_is_unhinged_once_again_the/o41hwym/
 
 A Reddit user that does not comprehend information warfare taking place on Reddit. A failure to teach media ecology from Marshall McLuhan and Neil Postman to a society. People fail to see patterns in media and thinking changes in year 2013 to favor simple-think Tweet-length commenting and to avoid serious nonfiction learning.
+
+https://old.reddit.com/r/reactiongifs/comments/1qy2ivs/mrw_mike_tyson_was_on_fox_news_today_saying_hes/o42492s/
+
+Mike Tyson is a fame-seeking celebrity who admires Trump's celebrity. The reason Reddit is talking about both people is because of their celebrity. And Fox News knows how to brew celebrity into the minds of audiences, including celebrity fandoms on Reddit. This is all media ecology topics of Neil Postman and Marshall McLuhan that Reddit society is not self-aware of... and acting compulsively towards pro-violence anti-diplomacy Mike Tyson
+
+Instead of promoting brain-damage causing fight as cool and popular, culture needs to look at the ignorance celebration that powers MAGA and the cult of Fox News ignorance. Comedy and amusement and watching videos of men avoiding the public library is kind of Trump breeding ground of the mind. Physical and power domination over women.
+
+* “Americans no longer talk to each other, they entertain each other. They do not exchange ideas, they exchange images. They do not argue with propositions; they argue with good looks, celebrities and commercials.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. 
+
+https://old.reddit.com/r/reactiongifs/comments/1qy2ivs/mrw_mike_tyson_was_on_fox_news_today_saying_hes/o4139i6/
+
+Reddit audience has to be reminded as there is so much male brainwashing going n to normalize rape that people don't even recognize how common famous people who are shit leaders are around.
+
