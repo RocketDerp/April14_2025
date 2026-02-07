@@ -488,4 +488,21 @@ https://old.reddit.com/r/ProgressiveHQ/comments/1qxt9o3/no_wonder_the_toddler_is
 
 But not astounded enough to rescue people by teaching nonfiction cult deprogramming. Or so astounded that you no longer can engage nonfiction learning of cult deprogramming and educate and teach fellow Americans how to resist Putin's war against NATO with memes and messages. Why is nobody discussing Dr. Bandy X Lee's nonfiction books... to rescue hearts and minds from self-harm of USA...
 
+https://old.reddit.com/r/law/comments/1qxt2xf/us_moves_to_deport_5yearold_detained_in_minnesota/o3yslqg/
 
+<img width="1354" height="420" alt="image" src="https://github.com/user-attachments/assets/e2b60ab9-638c-4c8b-968b-72415ab7ba84" />
+
+Imagine a society full of people, millions and millions of people on smartphones, with free time and spare time devoted to commenting about MAGA, Trump, ICE over and over and over that scroll off a screen to be replaced every 25 minutes with a fresh set of comments about the same situation for year after year after year... and nobody saying this is a mental health crisis of MOB MENTALITY and COPYCAT behavior of ADDICTION to low-effort commenting on CURRENT EVENTS FIXATED COMMENTING OR ANY RE-ARRANGED VARIATION OF THESE PHRASES. It isn't just me here on GitHub, anyone with social following could observe that crowds of people are flocking online to Trump ICE content. And the same people avoid NONFICTION learning and teaching. And avoid mental health topics from Dr. Bandy X Lee about Trump...
+
+CONTEXT ASSERTION, IMPORTANT INFORMATION: 
+
+Russia and the **Menace of Unreality**   
+How Vladimir Putin is revolutionizing information warfare   
+Peter Pomerantsev   
+September 9 2014, 3:42 PM ET   
+
+“If previous authoritarian regimes were three parts violence and one part propaganda,” argues Igor Yakovenko, a professor of journalism at the Moscow State Institute of International Relations, “this one is **virtually all propaganda and relatively little violence**. Putin only needs to make a few arrests — and then amplify the message through his total control of television.”
+
+Translated from 2013 Russia to USA 2026: I.C.E. raids are very little violence and a lot of showboating. A lot of Reddit front-page I.C.E. raids for visual meme addicts / meme consumers. Reddit is amplifying media from all over the Internet. September 9, 2014: https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+Peter Pomerantsev books on paper since year 2014, NOBODY on Reddit quoting nonfiction books!!!
