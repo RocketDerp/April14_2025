@@ -676,3 +676,12 @@ That is why I am so fucking deeply emotional over the Reddit PLUR1BUS Apple TV+ 
 https://old.reddit.com/r/politics/comments/1qyc2a9/from_epstein_to_bezos_the_ruling_class_is_rotten/o42n8tf/
 
 OPERA_A The Who Quad: "You've been screwed AGAIN!" "I am a man who looks aftre the pigs" (Billionaires) - 1973. "Dirty Jobs" https://youtu.be/L0bqmIBczJI?t=19 - We Saw Quad... Monday October 14, 1996 outside my work, wasn't EMP sponsored, my future wife gifted it for my birthday as a date as she knew I was huge fan of The Who in the car and at home. 55,020 views October 23, 2008 - shared song video over social networks to Tunisia and Algeria in Q1 2010 during Arab Spring 2010.
+
+https://old.reddit.com/r/technology/comments/1qyikta/no_one_should_have_a_copyright_on_vance_being/o43suef/
+
+1 month Reddit account.
+
+As for the posting topic: Nina Paley - Copyright is Brain Damage. Copyright cartel of Bill Gates 1976 wealth and power to conceal. https://en.wikipedia.org/wiki/An_Open_Letter_to_Hobbyists 
+
+Block-happy behaviors, Bluesky book burning behaviors, Reddit ban-happy behaviors (with ICE no-identity admins and mods, police corporate state).. social media January 2026 values fueled by billionaire bombardment of "The Little Guy" via cloud computing empires. Strategic bombing, targeted bombing, space-based cloud computing mindsets.
+
