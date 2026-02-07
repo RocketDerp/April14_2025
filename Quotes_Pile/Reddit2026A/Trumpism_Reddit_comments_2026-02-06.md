@@ -708,3 +708,8 @@ They are afraid they won't get Reddit to keep commenting in reactions to every A
 https://old.reddit.com/r/technology/comments/1qyikta/no_one_should_have_a_copyright_on_vance_being/o43tu0i/
 
 Media ecology discussion. No off-Reddit links or quotes from nonfiction sources.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qyhkr0/x_actively_took_down_videos_of_jd_vance_being/o43llcu/
+
+Trumpism cult on Reddit. Banal short messages of Right-Wing talking points being repeated over and over in feedback loops with Twitter. This is a Twitter topic posting, Tweet screen shot, over and over and over it goes in looping parroting of tiny-short. Most-popular upvoted comment. People who will do ANYTHING on Reddit but wake the fuck up and turn to Marshall McLuhan's books and teachings and rescue people from the Kremlin information warfare since March 2013. Surkov won.
+
