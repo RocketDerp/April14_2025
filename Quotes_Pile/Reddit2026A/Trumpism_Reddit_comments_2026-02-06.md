@@ -672,3 +672,68 @@ https://old.reddit.com/r/politics/comments/1qyc2a9/from_epstein_to_bezos_the_rul
 That is why I am so fucking deeply emotional over the Reddit PLUR1BUS Apple TV+ December 2025 / January 2026 fandom. "Vilified". Walter White and Saul Goodman fandom on the Internet cesspool. Compulsive society-wide dehumanizing with science systems of chemistry (including mental health chemicals, blue meth symbolism) and media systems cesspool worshiping. Reddit is an anti-compassion pro-tech science chemistry (Walter White) mind-fucking center.
 
 * Writers Guild of America. Vince Gilligan speech. February 15, 2025 https://youtu.be/TkteSxVIM1A?t=648 ... 10:48 there's no simple answer for how we might change that. Though, if there were, I bet it would have something to do with climbing up out of the cesspool that is social media and actually listening to each other. 11:07 But I don't know how to make that happen. So, I'll stick to my wheelhouse. As a writer speaking to a room full of writers, I have a proposal...
+
+https://old.reddit.com/r/politics/comments/1qyc2a9/from_epstein_to_bezos_the_ruling_class_is_rotten/o42n8tf/
+
+OPERA_A The Who Quad: "You've been screwed AGAIN!" "I am a man who looks aftre the pigs" (Billionaires) - 1973. "Dirty Jobs" https://youtu.be/L0bqmIBczJI?t=19 - We Saw Quad... Monday October 14, 1996 outside my work, wasn't EMP sponsored, my future wife gifted it for my birthday as a date as she knew I was huge fan of The Who in the car and at home. 55,020 views October 23, 2008 - shared song video over social networks to Tunisia and Algeria in Q1 2010 during Arab Spring 2010.
+
+https://old.reddit.com/r/technology/comments/1qyikta/no_one_should_have_a_copyright_on_vance_being/o43suef/
+
+1 month Reddit account. Top-upvoted most popular message.
+
+As for the posting topic: Nina Paley - Copyright is Brain Damage. Copyright cartel of Bill Gates 1976 wealth and power to conceal. https://en.wikipedia.org/wiki/An_Open_Letter_to_Hobbyists 
+
+Block-happy behaviors, Bluesky book burning behaviors, Reddit ban-happy behaviors (with ICE no-identity admins and mods, police corporate state).. social media January 2026 values fueled by billionaire bombardment of "The Little Guy" via cloud computing empires. Strategic bombing, targeted bombing, space-based cloud computing mindsets.
+
+https://old.reddit.com/r/technology/comments/1qyikta/no_one_should_have_a_copyright_on_vance_being/o43u0j1/
+
+https://old.reddit.com/r/technology/comments/1qyikta/no_one_should_have_a_copyright_on_vance_being/o43udi7/
+
+3-word reactionary logic polarity Tweet-thinking short-message mind patterns. YES, we know that, when are you going to turn to serious nonfiction, Reddit? Media ecology: Neil Postman, Marshall McLuhan, etc.
+
+https://old.reddit.com/r/technology/comments/1qyikta/no_one_should_have_a_copyright_on_vance_being/o43tjsm/
+
+Reddit tech fandom turns serious Reddit media systems topic into physical male mindset, as programmed, into male vs. male dick measuring mindsets. ANYTHING but follow WOMAN Jen Senko leadership about media brainwashing. ANYTHING but follow WOMAN Dr. Bandy X Lee's leadership about egomania leading men.
+
+https://old.reddit.com/r/technology/comments/1qyikta/no_one_should_have_a_copyright_on_vance_being/o43weqm/
+
+Where is better? and WHY is other better? Reddit. ha. Secretly disappeared messages as I have documented here on this GitHub. Extremely serious disappeared messages about Russia topics. 
+
+https://old.reddit.com/r/technology/comments/1qyikta/no_one_should_have_a_copyright_on_vance_being/o43uutx/
+
+They are afraid they won't get Reddit to keep commenting in reactions to every ACTION that is being done. They are afraid people will escape the Reddit commenting fixation and actually turn to a serious nonfiction book. They are afraid Reddit will self-examine values through the teachings of Marshall McLuhan / University of Toronto education.
+
+* "The extremists are afraid of books and pens. The power of education frightens them. They are afraid of women. The power of the voice of women frightens them." - July 12, 2013 https://malala.org/news-and-voices/malala-un-speech
+
+https://old.reddit.com/r/technology/comments/1qyikta/no_one_should_have_a_copyright_on_vance_being/o43tu0i/
+
+Media ecology discussion. No off-Reddit links or quotes from nonfiction sources.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qyhkr0/x_actively_took_down_videos_of_jd_vance_being/o43llcu/
+
+Trumpism cult on Reddit. Banal short messages of Right-Wing talking points being repeated over and over in feedback loops with Twitter. This is a Twitter topic posting, Tweet screen shot, over and over and over it goes in looping parroting of tiny-short. Most-popular upvoted comment. People who will do ANYTHING on Reddit but wake the fuck up and turn to Marshall McLuhan's books and teachings and rescue people from the Kremlin information warfare since March 2013. Surkov won.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qyhkr0/x_actively_took_down_videos_of_jd_vance_being/o43ows2/
+
+~~Everything is Public Relations~~   
+~~Everything is PR~~   
+Media Woke: Everything is Media Ecology, ecosystems of Twitter vs. Redddit, Subreddit vs. Subreddit, fiter-bubble vs. filter-bubble, subscribe list vs. subscribe list, parallel threading comment chain vs. hour later comment chain; Kremlin ground zero echo booms of March 2013 Saint Petersburg Internet Research Agency.. Surkov MonoMyth implosions and explosions. Mind-blowing patterns. SEE_ALSO https://GitHub.com/RocketDerp/April14_2025/blob/main/Media_Ecology/Everything_is_ME.md
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qyhkr0/x_actively_took_down_videos_of_jd_vance_being/o43lm4r/
+
+Every nation pays huge money for travel, lodging, training, teaching, supporting, coaching for years and years and then hands it over to national legal systems and strangles the content with for-profit corporations. The copyright worshiping lords of Reddit who want information to be personalized instead of Wiki and FAQ... don't grasp the power media systems have over their lives. a WORLD SPORTS EVENT should be PUBLIC DOMAIN FOR ALL!
+
+Instead, it is licensed away in little clips and bits and photos for money.
+
+https://old.reddit.com/r/law/comments/1qyjhmz/epstein_revelations_have_toppled_top_figures_in/o440502/
+
+That's because Reddit fandom of Trump and Reddit fandom of Epstein entertainment systems can't follow a WOMAN named Dr. Bandy X Lee **who published a nonfiction compilation book on October 3, 2017 that every damn person with tech social media skills to comment should be quoting on Reddit over and over and repeating again and again!!!***
+
+She fucking compiled 27 different writing authors into one book for Reddit community to quote. But people can not stop the compulsive mockery to Trump / ICE / MAGA / Putin / Musk to turn to a woman GenX leader. Is her GenX laugh too much like GenX Kamala Harris laugh for Reddit? Are all 27 authors not good enough for Reddit? Or does REDDIT SOCIETY have a fucking nonfiction engagement issue?
+
+* “The human brain can protect us from seeing and feeling what it believes may be too uncomfortable for us to tolerate. It can lead us to deny, defend, minimize, or rationalize away something that doesn’t fit our worldview.”
+― Dr. Bandy X Lee, The Dangerous Case of Donald Trump: [**27** Psychiatrists and Mental Health Experts Assess a President. Published **October 3, 2017**. Page 273. Chapter "TRUMP'S DADDY ISSUES"](https://books.google.com/books?id=g0c4DwAAQBAJ&pg=PA273&dq=%E2%80%9CThe+human+brain+can+protect+us+from+seeing+and+feeling+what+it+believes+may+be+too+uncomfortable%22&hl=en&newbks=1&newbks_redir=1&sa=X)
+
+https://old.reddit.com/r/law/comments/1qyjhmz/epstein_revelations_have_toppled_top_figures_in/o441p5a/
+
+Shallow commenting on Reddit. Superficial. Banal. Word-choice concerned. ANYTHING but ... Dr. Bandy X Lee quoting. ANYTHING to spend free time on Reddit with low-effort shit-commenting and shit-posting about USA and Epstein situation. Addicts to shit-commenting can't escape to Dr Bandy X Lee's nonfiction and start building a massive mental health backlash, turn the tide, towards science thinking and away from meme-think Twitter-length short message Reddit commenting!
