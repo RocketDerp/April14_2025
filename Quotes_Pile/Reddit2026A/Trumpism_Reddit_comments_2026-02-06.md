@@ -690,3 +690,7 @@ https://old.reddit.com/r/technology/comments/1qyikta/no_one_should_have_a_copyri
 https://old.reddit.com/r/technology/comments/1qyikta/no_one_should_have_a_copyright_on_vance_being/o43udi7/
 
 3-word reactionary logic polarity Tweet-thinking short-message mind patterns. YES, we know that, when are you going to turn to serious nonfiction, Reddit? Media ecology: Neil Postman, Marshall McLuhan, etc.
+
+https://old.reddit.com/r/technology/comments/1qyikta/no_one_should_have_a_copyright_on_vance_being/o43tjsm/
+
+Reddit tech fandom turns, as programmed, into male vs. male dick measuring mindsets. ANYTHING but follow WOMAN Jen Senko leadership about media brainwashing. ANYTHING but follow WOMAN Dr. Bandy X Lee's leadership about egomania leading men.
