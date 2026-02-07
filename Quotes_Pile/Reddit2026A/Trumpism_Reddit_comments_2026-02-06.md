@@ -643,3 +643,16 @@ Conquest.
 https://old.reddit.com/r/politics/comments/1qyc2a9/from_epstein_to_bezos_the_ruling_class_is_rotten/o42g2eq/
 
 1 month Reddit account. Sport-washing Jody Allen is going big tomorrow. Cults of apps, cults of sports, etc
+
+
+https://old.reddit.com/r/politics/comments/1qyc2a9/from_epstein_to_bezos_the_ruling_class_is_rotten/o42lm6o/
+
+I'm so fucking sick of this Reddit commenting bullshit that has wrecked the world. The most anti-woke people in the world when it comes to Finneagns Wake, Woke!
+
+* "McLuhan was profoundly influenced by James Joyce, using Finnegans Wake as a framework for understanding the "electric age" as a return to tribalism, famously declaring that Joyce understood the new media environment better than anyone. Neil Postman, in turn, was a "critical heir" to McLuhan, building on media ecology to analyze the cultural, social, and educational effects of technology, often extending McLuhan’s analysis of television into the realms of politics and education." - Google Search summary 2026-02-07 morning USA, Saturday morning.
+
+Reddit tech addicts are in the manipulated mindsets and can not see the NATO forest for the USA trees. The billionaire Putin put Surkov fiction authoring in charge, leaping ahead of everything Neil Postman and McLuhan have done. Nobody is **media woke** to the situaiton except Peter P! And Peter P does not invoke { Rick Roderick, Howard Bloom, Joseph Campbell, Bill Moyers, Marshall McLuhan, Neil Postman }!!!
+
+* “Technopoly is a state of culture. It is also a state of mind. It consists in the deification of technology, which means that the culture seeks its authorization in technology, finds its satisfactions in technology, and takes its orders from technology.” ― Neil Postman, Technopoly: The Surrender of Culture to Technology. Year 1992
+
+I had the fucking time in my office in Bellevue to read this nonfiction shit and think about the 1st richest person in the world in Redmond communicating to the 3rd richest person in the world in Bellevue! I was sitting on the Microsoft Board of Directors private messaging!
