@@ -1486,3 +1486,6 @@ https://old.reddit.com/r/Music/comments/1qy6fg1/limp_bizkits_wes_borland_on_back
 
 https://old.reddit.com/r/Music/comments/1qy6fg1/limp_bizkits_wes_borland_on_backlash_for_calling/o41rx0o/
 
+https://old.reddit.com/r/nottheonion/comments/1qygw1t/pentagon_says_its_cutting_ties_with_woke_harvard/o43h3vc/
+
+Blocking. Book-burning of entire university systems. Just like Bluesky social media users, block-happy, book-burning mindsets of systemic thinking.
