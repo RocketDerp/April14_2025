@@ -518,3 +518,12 @@ https://old.reddit.com/r/pics/comments/1qxwlor/gp/o3zjm64/
 Factual evidence that Twitter was used to mentally manipulate parents into harming children. August 24, 2018 public disclosure. Johns Hopkins University is world famous. World News coverage. https://www.bbc.com/news/world-us-canada-45294192 
 
 But since it is not low-effort commenting, everyone is avoiding the BBC link, I repeat: https://www.bbc.com/news/world-us-canada-45294192
+
+https://old.reddit.com/r/news/comments/1qxxmfe/magafriendly_rock_the_country_event_in_anderson/o3zu49k/
+
+https://old.reddit.com/r/news/comments/1qxxmfe/magafriendly_rock_the_country_event_in_anderson/o3zsnw4/
+
+https://old.reddit.com/r/news/comments/1qxxmfe/magafriendly_rock_the_country_event_in_anderson/o3zxuer/
+
+https://old.reddit.com/r/news/comments/1qxxmfe/magafriendly_rock_the_country_event_in_anderson/o401e0j/
+
