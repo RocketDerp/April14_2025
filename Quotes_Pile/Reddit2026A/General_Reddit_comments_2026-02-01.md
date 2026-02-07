@@ -108,3 +108,10 @@ https://old.reddit.com/r/AITAH/comments/1qxtuqb/aitah_for_leaving_wife_at_home_a
 
 https://old.reddit.com/r/nextfuckinglevel/comments/1qxz8o3/50_cent_using_a_whole_door_dash_super_bowl_ad_to/o402tvc/
 
+https://old.reddit.com/r/Music/comments/1qym28j/brad_arnold_singer_and_founding_member_of_3_doors/o44kwko/
+
+https://old.reddit.com/r/Music/comments/1qym28j/brad_arnold_singer_and_founding_member_of_3_doors/o44jrwo/
+
+Age 47
+
+https://old.reddit.com/r/Music/comments/1qym28j/brad_arnold_singer_and_founding_member_of_3_doors/o44ju32/
