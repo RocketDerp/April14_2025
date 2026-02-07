@@ -512,3 +512,9 @@ Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mea5xln6xs
 https://old.reddit.com/r/law/comments/1qxt2xf/us_moves_to_deport_5yearold_detained_in_minnesota/o3yvgvx/
 
 Disturbs Reddit audiences into Twitter-thinking reaction mindsets.
+
+https://old.reddit.com/r/pics/comments/1qxwlor/gp/o3zjm64/
+
+Factual evidence that Twitter was used to mentally manipulate parents into harming children. August 24, 2018 public disclosure. Johns Hopkins University is world famous. World News coverage. https://www.bbc.com/news/world-us-canada-45294192 
+
+But since it is not low-effort commenting, everyone is avoiding the BBC link, I repeat: https://www.bbc.com/news/world-us-canada-45294192
