@@ -757,3 +757,13 @@ https://old.reddit.com/r/news/comments/1qykcmm/epstein_revelations_have_toppled_
 https://old.reddit.com/r/news/comments/1qykcmm/epstein_revelations_have_toppled_top_figures_in/o445xy6/
 
 https://old.reddit.com/r/news/comments/1qykcmm/epstein_revelations_have_toppled_top_figures_in/o449bna/
+
+https://old.reddit.com/r/videos/comments/1qyi6ou/man_83_sentenced_to_life_in_prison_for_murder_of/o43uevc/
+
+On Reddit: "conservative media leads to violence". maybe sometimes even "Clergy of Quran leads to 9/11 violence"...but never "video gaming leads to violence". Comparative Mythology and being bamboozled by the rich using fiction storytelling and massive intellectual property puppeting of the mind... uneducated, unable to explain. People who think gaming away real-identity with jokes and memes is a fun video game. Surkov won since March 2013, using Reddit, Twitter, Facebook, etc.
+
+* January 3, 2026 — "Russia **systematically uses video games** as a tool for state propaganda, youth militarization, and gamer recruitment." https://theukrainianreview.info/how-the-kremlin-uses-video-games-for-propaganda-militarization-and-recruitment-of-youth/
+
+People who love machines more than human beings.
+
+* Original US Release: October 15, 1940. US General Release/Premiere: October 31, 1940. Director/Star: Charlie Chaplin. "don’t give yourselves to brutes - men who despise you - enslave you - who regiment your lives - tell you what to do - what to think and what to feel! Who drill you - diet you - treat you like cattle, use you as cannon fodder. Don’t give yourselves to these unnatural men - **machine men with machine minds and machine hearts! You are not machines!** You are not cattle! You are men! You have the **love of humanity** in your hearts! You don’t hate! Only the unloved hate - the unloved and the unnatural! Soldiers! Don’t fight for slavery! Fight for liberty! In the 17th Chapter of St Luke it is written: “the Kingdom of God is within man” - not one man nor a group of men, but in all men! In you! You, the people have the power" https://www.charliechaplin.com/en/articles/29-the-final-speech-from-the-great-dictator-
