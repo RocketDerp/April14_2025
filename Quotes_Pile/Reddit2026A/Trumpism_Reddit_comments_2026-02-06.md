@@ -733,3 +733,7 @@ She fucking compiled 27 different writing authors into one book for Reddit commu
 
 * “The human brain can protect us from seeing and feeling what it believes may be too uncomfortable for us to tolerate. It can lead us to deny, defend, minimize, or rationalize away something that doesn’t fit our worldview.”
 ― Dr. Bandy X Lee, The Dangerous Case of Donald Trump: [**27** Psychiatrists and Mental Health Experts Assess a President. Published **October 3, 2017**. Page 273. Chapter "TRUMP'S DADDY ISSUES"](https://books.google.com/books?id=g0c4DwAAQBAJ&pg=PA273&dq=%E2%80%9CThe+human+brain+can+protect+us+from+seeing+and+feeling+what+it+believes+may+be+too+uncomfortable%22&hl=en&newbks=1&newbks_redir=1&sa=X)
+
+https://old.reddit.com/r/law/comments/1qyjhmz/epstein_revelations_have_toppled_top_figures_in/o441p5a/
+
+Shallow commenting on Reddit. Superficial. Banal. Word-choice concerned. ANYTHING but ... Dr. Bandy X Lee quoting. ANYTHING to spend free time on Reddit with low-effort shit-commenting and shit-posting about USA and Epstein situation. Addicts to shit-commenting can't escape to Dr Bandy X Lee's nonfiction and start building a massive mental health backlash, turn the tide, towards science thinking and away from meme-think Twitter-length short message Reddit commenting!
