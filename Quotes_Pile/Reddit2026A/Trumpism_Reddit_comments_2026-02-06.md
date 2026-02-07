@@ -727,7 +727,7 @@ Instead, it is licensed away in little clips and bits and photos for money.
 
 https://old.reddit.com/r/law/comments/1qyjhmz/epstein_revelations_have_toppled_top_figures_in/o440502/
 
-That's because Reddit fandom of Trump and Reddit fandom of Epstein entertainment systems can't follow a WOMAN named Dr. Bandy X Lee **who published a nonfiction compilation book on October 3, 2017 that every damn person with tech social media skills to comment should be quoting on Reddit over and over and repeating again and again!!!***
+That's because Reddit fandom of Trump and Reddit fandom of Epstein entertainment systems can't follow a WOMAN named Dr. Bandy X Lee **who published a nonfiction compilation book on October 3, 2017 that every damn person with tech social media skills to comment should be quoting on Reddit over and over and repeating again and again!!!**
 
 She fucking compiled 27 different writing authors into one book for Reddit community to quote. But people can not stop the compulsive mockery to Trump / ICE / MAGA / Putin / Musk to turn to a woman GenX leader. Is her GenX laugh too much like GenX Kamala Harris laugh for Reddit? Are all 27 authors not good enough for Reddit? Or does REDDIT SOCIETY have a fucking nonfiction engagement issue?
 
