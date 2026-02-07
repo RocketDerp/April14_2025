@@ -563,3 +563,7 @@ https://old.reddit.com/r/videos/comments/1qy0wc3/trump_faces_backlash_over_racis
 
 Yes, they care. Trump is an entertainer. Fiction storytelling is Putin and Trump's system. Fandoms of fiction on Reddit and all over the USA care that their fiction entertainment is attracting audiences to comment upon it. Fandom vs. fandom. It's content for the cults of celebrity. People on Reddit will not see their own attraction to bad guys in fiction storytelling.
 
+https://old.reddit.com/r/videos/comments/1qy0wc3/trump_faces_backlash_over_racist_video_portraying/o40i4pp/
+
+Hate-watching of content has taken over every area of society. If anyone is recorded and uploaded on camera acting odd or unusual or stressed out, it's content for video distribution Reddit. Trump is a celebrity and actor doing acting and popular as a hate subject. The audience is the problem. Fandoms giving up power to machine addictions of delivery format and delivery venue are the problem. Hate is the mind-altering substance that attracts We The People to give up power and wealth to an attractive source of content creation, Trump and his supporting actors. Surkov won since March 2013.
+
