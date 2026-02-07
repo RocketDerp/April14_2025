@@ -44,6 +44,23 @@ Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mdvgix63rc
 
 &nbsp;
 
+Entertaining Simulations (overloaded meanings how people entertain fiction, and attraction)  
+
+&nbsp;
+
+Billionaire Keepers
+
+Inspired by this Reddit comment context analysis. https://old.reddit.com/r/politics/comments/1qyc2a9/from_epstein_to_bezos_the_ruling_class_is_rotten/o42n8tf/
+
+The Who Quad: "You've been screwed AGAIN!" "I keep the pigs" (Billionaires) - 1973. "Dirty Jobs"
+
+Saw Quad October 14, 1996 outside my work, wasn't EMP sponsored, my wife gifted it for my Birthday as a date as she knew I was huge fan of The Who in the car and at home.
+
+
+
+
+&nbsp;
+
 &nbsp;
 
 Entertainment-washing    
