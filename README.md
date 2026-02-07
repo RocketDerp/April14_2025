@@ -48,3 +48,6 @@ OPERA_A https://www.youtube.com/watch?v=bYbQXiEmevw
 
 Twitter killed the Carl Sagan book star. The Cosmos star.   
 
+https://YouTu.be/bYbQXiEmevw?t=167 into song 107 seconds. "Pictures came and *broke your heart*. Put all the blame on VCR!"
+
+* "the audience was being conditioned to get its information faster, in a way that was less nuanced and, of course, **image-based**. As my father pointed out, a written sentence has a level of verifiability to it: it is true or not true – or, at the very least, we can have a meaningful discussion over its truth. (This was pre-truthiness, pre-“alternative facts”.) But **an image**? One never says **a picture** is true or false. It either captures your attention or it doesn’t." - Andrew Postman. Thursday, February 2, 2017. https://www.TheGuardian.com/media/2017/feb/02/amusing-ourselves-to-death-neil-postman-trump-orwell-huxley
