@@ -552,3 +552,14 @@ https://old.reddit.com/r/pics/comments/1qxzl5a/dhs_seeks_expedited_deportation_f
 https://old.reddit.com/r/pics/comments/1qxzl5a/dhs_seeks_expedited_deportation_for_liam_conejo/o4077s6/
 
 https://old.reddit.com/r/pics/comments/1qxzl5a/dhs_seeks_expedited_deportation_for_liam_conejo/o4062v3/
+
+https://old.reddit.com/r/news/comments/1qy00tq/border_patrol_boss_gregory_bovino_tossed_from_las/o40v75a/
+
+9 month Reddit account.
+
+Messaging "insane". Is the whole message promoting social denial of power?
+
+https://old.reddit.com/r/videos/comments/1qy0wc3/trump_faces_backlash_over_racist_video_portraying/o40goj7/
+
+Yes, they care. Trump is an entertainer. Fiction storytelling is Putin and Trump's system. Fandoms of fiction on Reddit and all over the USA care that their fiction entertainment is attracting audiences to comment upon it. Fandom vs. fandom. It's content for the cults of celebrity. People on Reddit will not see their own attraction to bad guys in fiction storytelling.
+
