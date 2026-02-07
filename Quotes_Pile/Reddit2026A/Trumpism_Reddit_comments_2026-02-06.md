@@ -609,3 +609,7 @@ https://old.reddit.com/r/reactiongifs/comments/1qy2ivs/mrw_mike_tyson_was_on_fox
 
 Reddit audience has to be reminded as there is so much male brainwashing going n to normalize rape that people don't even recognize how common famous people who are shit leaders are around.
 
+https://old.reddit.com/r/reactiongifs/comments/1qy2ivs/mrw_mike_tyson_was_on_fox_news_today_saying_hes/o40tdbf/
+
+Understand that bad guys are considered awesome and cool to men. It isn't just Elon Musk, Donald Trump, Putin that are super-cool to men as role models for children. Vince Gilligan's February 15, 2025 WGA speech about Walter White being seen as a cool awesome character.... Trump plays a character. Boxing is done in a rectangle. Simple mindsets. Andy Kaufman is one of the few to try and get people woke, but the LOL reactions are what most people do.
+
