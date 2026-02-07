@@ -724,3 +724,12 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1qyhkr0/x_actively_took_dow
 Every nation pays huge money for travel, lodging, training, teaching, supporting, coaching for years and years and then hands it over to national legal systems and strangles the content with for-profit corporations. The copyright worshiping lords of Reddit who want information to be personalized instead of Wiki and FAQ... don't grasp the power media systems have over their lives. a WORLD SPORTS EVENT should be PUBLIC DOMAIN FOR ALL!
 
 Instead, it is licensed away in little clips and bits and photos for money.
+
+https://old.reddit.com/r/law/comments/1qyjhmz/epstein_revelations_have_toppled_top_figures_in/o440502/
+
+That's because Reddit fandom of Trump and Reddit fandom of Epstein entertainment systems can't follow a WOMAN named Dr. Bandy X Lee **who published a nonfiction compilation book on October 3, 2017 that every damn person with tech social media skills to comment should be quoting on Reddit over and over and repeating again and again!!!***
+
+She fucking compiled 27 different writing authors into one book for Reddit community to quote. But people can not stop the compulsive mockery to Trump / ICE / MAGA / Putin / Musk to turn to a woman GenX leader. Is her GenX laugh too much like GenX Kamala Harris laugh for Reddit? Are all 27 authors not good enough for Reddit? Or does REDDIT SOCIETY have a fucking nonfiction engagement issue?
+
+* “The human brain can protect us from seeing and feeling what it believes may be too uncomfortable for us to tolerate. It can lead us to deny, defend, minimize, or rationalize away something that doesn’t fit our worldview.”
+― Dr. Bandy X Lee, The Dangerous Case of Donald Trump: [**27** Psychiatrists and Mental Health Experts Assess a President. Published **October 3, 2017**. Page 273. Chapter "TRUMP'S DADDY ISSUES"](https://books.google.com/books?id=g0c4DwAAQBAJ&pg=PA273&dq=%E2%80%9CThe+human+brain+can+protect+us+from+seeing+and+feeling+what+it+believes+may+be+too+uncomfortable%22&hl=en&newbks=1&newbks_redir=1&sa=X)
