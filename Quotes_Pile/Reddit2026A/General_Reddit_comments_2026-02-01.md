@@ -140,3 +140,5 @@ https://old.reddit.com/r/UmaMusume/comments/1qyrv1h/february_7th_twitter_inciden
 
 Reddit fandoms for Trump diapers too? People are so entertained by everything, no sense of need to spend free time and spare time doing cult deprogramming teaching to the USA / MAGA / Trump / Putin cults.
 
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1qyrn7p/how_does_this_scare_overseas_readers/o45p3de/
+
