@@ -812,3 +812,11 @@ https://old.reddit.com/r/sports/comments/1qyrbsf/team_usa_figure_skater_amber_gl
 <img width="891" height="397" alt="image" src="https://github.com/user-attachments/assets/475495c9-fc1d-4186-9882-963d90696bd0" />
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mecniqzwuc2x https://autistics.life/@RoundSparrow/116032112542519304 }
+
+https://old.reddit.com/r/sports/comments/1qyrbsf/team_usa_figure_skater_amber_glenn_speaking_at/o45thqh/
+
+https://old.reddit.com/r/sports/comments/1qyrbsf/team_usa_figure_skater_amber_glenn_speaking_at/o46864e/
+
+So many men who worship Trump Daddy Issues / Putin Daddy Issues - want to silence a woman with powerful masculine meme devices.
+
+* "The extremists are afraid of books and pens. The power of education frightens them. They are afraid of women. The power of the voice of women frightens them." - July 12, 2013 https://malala.org/news-and-voices/malala-un-speech
