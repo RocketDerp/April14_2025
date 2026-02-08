@@ -2453,3 +2453,4 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pubkas/pluribus_1x09_la_chica
 
 More Walter White drug meth audience members who push drugs as the answer to media interpretation problems. Simple-short logic minded people that think like RFK Jr. So many druggies in USA who can't think freely, can't grasp PLURIBUS is a Free Masons Free Thinking concept.
 
+It seems entirely lost on Reddit users that Carol's character is a drunkard and writer and that James Joyce invoked at Minute 22 in a Public House is relevant to the drunk authoring in Paris in 1930's... etc. People just want to silence those they don't comprehend. It's the "self-deport" mentality of MAGA USA February 2026 when this comment was made on Reddit. Trump-think of silencing any opposition to the MAGA hive mind, Fox News hive mind, etc. Drugs to silence people, make a financial profit selling the drugs too.
