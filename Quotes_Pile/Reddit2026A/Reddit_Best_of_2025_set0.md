@@ -42,7 +42,7 @@ The entire reply thread is important
 
 <img width="1793" height="1113" alt="image" src="https://github.com/user-attachments/assets/d353f6a4-9473-4874-8041-a9de31590684" />
 
-Reply of not3:
+Reply of note:
 
 https://old.reddit.com/r/behindthebastards/comments/1myl480/the_lolcow_industrial_complex_is_ablist_as_fuck/naeiwcm/
 
