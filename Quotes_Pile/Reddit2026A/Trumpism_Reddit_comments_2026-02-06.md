@@ -824,3 +824,8 @@ So many men who worship Trump Daddy Issues / Putin Daddy Issues - want to silenc
 https://old.reddit.com/r/Music/comments/1qyt9w6/kid_rocks_maga_fest_cancelled_after_nearly_all/o460sde/
 
 Trump fandom on Reddit loves the mockery. Tiny-short messaging of repeating Trump MAGA talking points over and over and over. ANYTHING to avoid promoting Dr. Bandy X Lee's October 3, 2017 nonfiction book on mental health. Nor teaching nonfiction cult deprogramming.
+
+https://old.reddit.com/r/Music/comments/1qyt9w6/kid_rocks_maga_fest_cancelled_after_nearly_all/o4601tc/
+
+2 month Reddit account. Amplifying the MAGA-initiated mockery with "LOL" laugh track for the Reddit fandom. Followers of MAGA always jumping on the total mockery bandwagon when MAGA content appears on Reddit servers.
+
