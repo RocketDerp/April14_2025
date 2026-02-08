@@ -1046,3 +1046,18 @@ https://old.reddit.com/r/law/comments/1qzm05x/urgent_smoking_gun_we_found_the_ma
 https://old.reddit.com/r/International/comments/1qzhbr1/this_should_not_be_redacted/o4asgxo/
 
 1 day Reddit account. front page of Reddit /r/All
+
+https://old.reddit.com/r/International/comments/1qzhbr1/this_should_not_be_redacted/o4bnwvk/
+
+Just like the operators of Reddit, mods of Reddit behave. Technology leadership, Trump tech followers, lead the nation.
+
+https://old.reddit.com/r/International/comments/1qzhbr1/this_should_not_be_redacted/o4atumk/
+
+I have a theory that people ignore that Christian / Catholic organized religion hasn't been doing this for hundreds and hundreds of years. That people ignore what is going on right in their own high school classes at age 14, age 15 and age 16. I was a bookworm and I would read books in class and around the school and never spread gossip or rumors... so girls would talk right in front of me and you could hear hot girls bragging about the older men that were giving them adult experiences. 
+
+I have a theory that people do not listen worth shit to what is truly going on in the world. Go study child custody battles, stories from divorce lawyers, court cases. All over the USA, this isn't geographic specific! Rural people have wild situations. Go to a bar and do your work on a laptop on weekday during happy hour and watch drunk drivers get into their car day after day, I did this in over 25 USA cities. People are blind to how people threaten other people with drunk driving and such. Billionaire corporations, investors pay for all that advertising to program booze / beer addictions into people. The most powerful manipulation messages possible to make people obese, alcoholics, etc.
+
+* "Finding the occasional straw of truth awash in a great ocean of confusion and bamboozle requires vigilance, dedication and courage. But if we don’t practice these tough habits of thought, we cannot hope to solve the truly serious problems that face us and we risk becoming a nation of suckers" ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995, page 38
+
+OPERA_A I grew up in Fort Wayne, Indiana. This was recorded in December 11, 1987 my final year (senior class) in high school. Some of us listen to our elders who share the truth on F.M. radio and in concert. https://www.youtube.com/watch?v=8qxDBiiVjlQ Lyrics: "A million young poets screaming out their words
+To a world full of people **just living to be heard**" - people do not fucking listen to the sexual abuse and broken families all around them in every USA city. Lyrics: "You can't tell your best buddy that you love him"; "getting **too drunk** on Saturdays(Check it out) playing football with the kids on Sundays" - NFL Super Bowl **Sunday** today, fucking LOOK AROUND! Drunks will be abusing at the end of the game. Advertised and marketed by the most gifted talented media systems devised by mankind! "And this is all that we've learned about living" - 11,492,701 views October 5, 2009 - I shared this music video to Africa, Tunisia and Algeria as part of the Arab Spring 2010 online - showing the music I grew up with in Indiana.
