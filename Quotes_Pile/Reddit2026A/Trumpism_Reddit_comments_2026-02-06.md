@@ -1041,3 +1041,4 @@ Apple computers, iPhone / iPod / iPad ...
 
 https://old.reddit.com/r/NFLv2/comments/1qzkgdw/good_business_decision/o4bfu66/
 
+https://old.reddit.com/r/law/comments/1qzm05x/urgent_smoking_gun_we_found_the_map_to_the/o4c4c5r/
