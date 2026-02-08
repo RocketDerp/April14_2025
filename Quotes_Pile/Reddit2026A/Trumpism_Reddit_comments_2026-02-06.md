@@ -959,3 +959,8 @@ https://old.reddit.com/r/MurderedByWords/comments/1qz69ow/booing_the_vicepreside
 
 "The lies", that's fiction storytelling - Reddit audiences love discussing fiction plot points and scenes in Lord of the Rings, Star Wars Andor, Fallout video game and TV... but when it comes to nonfiction from. Dr. Bandy X Lee... can't keep going back to the nonfiction science and learning well...
 
+https://old.reddit.com/r/MurderedByWords/comments/1qz69ow/booing_the_vicepresident/o48k5wt/
+
+It is EVERY MINUTE of EVERY DAY AND NIGHT that I keep having to rephrase and repeat... It is not just politics topics. It is music industry topics, it is food supply topics. Trumpism is Reddit itself. No-identity hate-prizing social media that is hive mind mob mentality of Reddit. Reddit social behavior has been ahead of he curve. In year 2015 Reddit users were behaving as MAGA population behaved in 2018. The mindsets of tech love, machine love, video gaming as training ground to seek out weakness and attack the weak... to use mental health as a peer to peer insult topic like Trump does with I.Q. numbers being low. Anything to avoid the set of values Malala laid upon the world stage in year 2013. Anything to avoid Jen Senko's brainwashing serious discussions... anything to avoid Dr. Bandy x Lee's serious 27 leaders compiled and published October 3, 2017.
+
+The desire to turn all into jokes, joke-wash trump and fixate on the surface above the skin being orange.. and "Deep" topics of diapers... exceeds any desire to rescue from Russia defeating NATO ad USA Pentagon in psychological warfare to self-harm the USA with anti-intellectualism.
