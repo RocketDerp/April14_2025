@@ -1533,3 +1533,9 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1qymjgz/reposting_an_old_tw
 Funny to mock owners of media systems all day and night using media systems. Entertainment engagement. 
 
 Why is Reddit commenting section not constantly repeating Dr. Bandy X Lee's nonfiction book since it was published October 3, 2017? Is 27 professionals not good enough for Reddit comment creators to quote and point at? Or is Reddit commenting users fixated on billionaire white men to comment about over and over and over with free time and spare time?
+
+https://old.reddit.com/r/quilting/comments/1qyppfs/we_know_what_we_saw/o45axlr/
+
+**Witnessing Hate Affairs**
+
+Social post { https://autistics.life/@RoundSparrow/116032060979032918 https://bsky.app/profile/roundsparrow.bsky.social/post/3mecmquhbbc2x }
