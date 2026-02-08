@@ -994,3 +994,13 @@ https://old.reddit.com/r/politics/comments/1qzfzlw/my_party_is_taking_up_for_ped
 https://old.reddit.com/r/politics/comments/1qzfzlw/my_party_is_taking_up_for_pedophiles_massie/o4ahlsj/
 
 Surkov won since March 2013. Attacking gender roles is CORE to the gender-focused global leadership initiative that Russia announced and was published in English on December 20, 2013 in USA. https://www.theAtlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/   *Russia's "traditional values" and his derision of the West's "genderless and infertile" liberalism in his annual state-of-the-nation address last week was just the latest example of Putin attempting to place himself at the vanguard of a new "Conservative International."*
+
+https://old.reddit.com/r/MurderedByWords/comments/1qzfcvo/im_nothing_im_navel_lint/o4abxxl/
+
+The posting itself is CHOICE_MARRIAGE_HONESTY topic.
+
+https://old.reddit.com/r/law/comments/1qzjh0t/federal_statement_on_jeffrey_epsteins_death_dated/o4b8533/
+
+ANNSWER: No, they are too busy commenting and mocking "libtards" why the Reddit and Bluesky audience are too busy commenting and mocking MAGA. it is a massive cirlce-jerk-off of USA vs. USA that Putin set in motion since March 2013 with the Saint Petersburg Internet Research Agency with spicy boosted elements from Cambridge Analytical! Matthew 4:19 Trolling worked! Surkov students won.
+
+OPERA_A Crime of the Internet. Remastered year 2010. https://www.youtube.com/watch?v=d_dfFrg0hDA 453,016 views July 23, 2018 Released on: 1974-09-13
