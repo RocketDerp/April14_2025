@@ -7,6 +7,7 @@ I first saw: https://bsky.app/profile/singerella.bsky.social/post/3mchphxo4fs2y
 
 https://autistics.life/@RoundSparrow/116035928668516300    
 https://bsky.app/profile/roundsparrow.bsky.social/post/3meedpstzq224  
+https://MidWest.Social/post/43165104  
 
 &nbsp;
 
