@@ -118,3 +118,79 @@ my comment. "/r/Troll Fare" community about how fucked-up Reddit mindsets were.
 https://old.reddit.com/r/Trumpvirus/comments/1jfm98g/hes_just_so_stupid/mity863/
 
 My comment. Criticizing the Star Wars fandom for phallic *power* weapon shallowness that doesn't grow to the nonfiction teaching of Lucas in 1988 book.
+
+https://old.reddit.com/r/politics/comments/bjxiy9/fbi_sent_investigator_posing_as_assistant_to_meet/emc08zj/
+
+Hyper banal user
+
+https://old.reddit.com/r/politics/comments/bjs0gn/barr_ensures_congress_cant_stop_trump_now/emax0co/
+
+https://old.reddit.com/r/politics/comments/bjs0gn/barr_ensures_congress_cant_stop_trump_now/emauenb/
+
+"a crazy narrative of Russia exercising mind control over American voters"
+
+1. So Fox News has no "mind control" over American voters, Rupert Murdoch
+2. The Kremlin have mind control, intimidation, over Russian voters
+3. Does The Kremlin utilize The Church / Christian religion to control and intimidate Russian voters...
+4. Is addiction to fiction vs. nonfiction a topic this Reddit user can discuss or study?
+5. Does this user believe that the Mosque, Mecca, Quran science fiction theme parks and clergy have any mind control over terrorist? The Taliban in Pakistan in January 2009? The September 11, 2001 attackers who were suicide-bombers / suicide pilots? Does this Reddit user have any ability to discuss the mechanics of childhood indoctrination into Rush Limbaugh, Quran content, Bible content, Fox News (since October 7, 1996).
+6. Does this user have any knowledge or learning about cults? Jonestown, Guyana group that started in California USA?
+7. Do people confuse science reality with popular culture fiction? Is there more attraction to concepts like "warp drive" and "time travel" (Back To THe Future) than actual science learning of medicine and how that applies to RFK Jr being in the white house? Russian manipulation via education systems of adult teaching on Twitter: https://www.BBC.com/news/world-us-canada-45294192
+
+It is as if this user has no comprehension that people who put fighting but fiction stories into their mind are unable to grasp science and factual nonfiction reality.
+
+* “The boys **learn the Quran by heart**, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.”
+― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. Published October 8, 3013
+
+How educated and comprehending does this Reddit end-user think rural MAGA population is with university and science awareness of factual history and factual reality of Earth? Medical? 
+
+Rural farm-town folks how much medical science education about a virus from Wuhan, China - all away across the world?
+
+* "deworming horses and cattle to try and fight COVID-19" https://theweek.com/vaccines/1004230/the-truly-bonkers-story-of-how-feed-store-ivermectin-went-dangerously-viral
+
+
+https://old.reddit.com/r/politics/comments/bjs0gn/barr_ensures_congress_cant_stop_trump_now/emasodc/
+
+https://old.reddit.com/r/politics/comments/bj4md0/the_full_story_of_trumps_russia_ties_will_come/em586zu/
+
+https://old.reddit.com/r/politics/comments/bhy4v6/mueller_report_shows_trumps_repeated_efforts_to/elwyykd/
+
+It is now February 2026. NATO is in ruins. Canada, a NATO peer, is openly attacked and threatened by USA.
+
+https://old.reddit.com/r/politics/comments/bgpd7e/maxine_waters_were_going_to_have_to_impeach/eln4ah0/
+
+https://old.reddit.com/r/politics/comments/bcp4db/trumps_odd_behavior_is_reason_enough_to_compel/eksgo55/
+
+https://old.reddit.com/r/politics/comments/bc4sd4/voters_are_more_suspicious_now_of_clinton/eknt1p3/
+
+https://old.reddit.com/r/politics/comments/b9wr5s/senate_doxxing_suspect_pleads_guilty_faces_over_2/ek7fq04/
+
+"The Media', but never the Internet Research Agency media content creator in Saint Petersburg. Only domestic USA "the media" can do this.
+
+https://old.reddit.com/r/politics/comments/b9n99x/alexandria_ocasiocortez_builds_ikea_furniture_in/ek5zn5l/
+
+A lover of Trump's bullshit mocking. Hyper Banalization media technique in action.
+
+https://old.reddit.com/r/politics/comments/b9mq4f/in_new_documents_cohen_says_trump_instructed_him/ek5y07m/
+
+https://old.reddit.com/r/politics/comments/b9mq4f/in_new_documents_cohen_says_trump_instructed_him/ek5wvp5/
+
+https://old.reddit.com/r/politics/comments/b8yvb6/buttigieg_idea_that_god_wants_pence_to_be_vice/ek0zq5u/
+
+What "God" is this? A believer in science fiction stories of Middle East?
+
+https://old.reddit.com/r/HyperBanalisation/comments/bjf6ys/under_the_surkov_media_invasion_of_russia_usa/emcusho/
+
+My index message on some of those previous.
+
+https://old.reddit.com/r/HyperBanalisation/comments/bjf6ys/under_the_surkov_media_invasion_of_russia_usa/emcyvno/
+
+https://old.reddit.com/r/politics/comments/bjh1zh/william_barr_testifies_on_mueller_report_before/em9grlr/
+
+Great questions. But the questioning itself is insincere. EVERYONE was manipulated. Cambridge Analytica and the IRA didn't jut mentally manipulate Republicans and MAGA. It manipulated the Reddit commenting section.
+
+People are so programmed to say "both sides alert" that they can't face the Middle East patterns for thousands of years. Torah. vs. Bible vs. Quran since year 635. Science fiction vs. science fiction vs. science fiction. Compulsive addiction to fiction vs. compulsive addiction to fiction vs. compulsive addiction to fiction. Surkov won since March 2013.
+
+HOW DO YOU SHOW you are FREE of the Surkov monomyth? You point to Dr Bandy X Lee's SCIENCE TEACHING, no fiction science story storytelling of Quran, Torah, Bible, Book of Mormon, L Ron Hubbard, Rupert Murdoch, etc. You keep repeating and teaching Dr. Bandy X Lee's compilation and research until every person age 12 and above in USA is on the same page of topics. You point to Dr. Carl Sagan, you point to Neil Postman, get you get people on the same page of self-awareness to compulsive science fiction storytelling of The Bible and Fox News! THEN you study Surkov! Starting with October 20, 2011 - FAR BEFORE the November 2016 election! https://www.lrb.co.uk/the-paper/v33/n20/peter-pomerantsev/putin-s-rasputin
+
+
