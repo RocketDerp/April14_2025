@@ -950,3 +950,8 @@ https://old.reddit.com/r/MurderedByWords/comments/1qz69ow/booing_the_vicepreside
 https://old.reddit.com/r/MurderedByWords/comments/1qz69ow/booing_the_vicepresident/o48iubd/
 
 As I have made a central theme on this  GitHub project... fiction outsells nonfiction. Nobody is going to censor a popular scene in a science fiction story like Star Wars Andor year 2025 or Quran science fiction story from year 635. People can keep discussing a Star Wars scene or a page of Mohammad's Quran fiction. This loophole is actively being utilized. Fox News HDTV can claim it is { amusement, entertainment, comedy, SNL Weekend Update, fantasy mythos }.
+
+https://old.reddit.com/r/MurderedByWords/comments/1qz69ow/booing_the_vicepresident/o48hl7h/
+
+Many on Reddit can't fathom or interpret beyond the TLDR barrier, ELI4 barrier, and fiction vs. nonfiction barriers. Shuffle syntax of language usage around and audiences on SubReddits are compulsively attracted to Donald Trump styles of mocking.
+
