@@ -829,3 +829,12 @@ https://old.reddit.com/r/Music/comments/1qyt9w6/kid_rocks_maga_fest_cancelled_af
 
 2 month Reddit account. Amplifying the MAGA-initiated mockery with "LOL" laugh track for the Reddit fandom. Followers of MAGA always jumping on the total mockery bandwagon when MAGA content appears on Reddit servers.
 
+https://old.reddit.com/r/Fauxmoi/comments/1qyv7yg/sorry_baby_director_eva_victor_tells_ricky/o46ff2h/
+
+So many men who worship Trump Daddy Issues / Putin Daddy Issues - want to silence a woman with powerful masculine meme devices.
+
+* "The extremists are afraid of books and pens. The power of education frightens them. They are afraid of women. The power of the voice of women frightens them." - July 12, 2013 https://malala.org/news-and-voices/malala-un-speech
+
+https://old.reddit.com/r/Fauxmoi/comments/1qyv7yg/sorry_baby_director_eva_victor_tells_ricky/o46eqdz/
+
+https://old.reddit.com/r/Fauxmoi/comments/1qyv7yg/sorry_baby_director_eva_victor_tells_ricky/o46g1jo/
