@@ -805,3 +805,10 @@ Trump is tricked by Putin and Reddit user's can describe the timelines or names 
 
 * “The human brain can protect us from seeing and feeling what it believes may be too uncomfortable for us to tolerate. It **can lead us to deny**, defend, **minimize, or rationalize away** something that doesn’t fit our worldview.”
 ― Dr. Bandy X Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. Published **October 3, 2017**. Page 273. Chapter "TRUMP'S DADDY ISSUES"](https://books.google.com/books?id=g0c4DwAAQBAJ&pg=PA273&dq=%E2%80%9CThe+human+brain+can+protect+us+from+seeing+and+feeling+what+it+believes+may+be+too+uncomfortable%22&hl=en&newbks=1&newbks_redir=1&sa=X)
+
+
+https://old.reddit.com/r/sports/comments/1qyrbsf/team_usa_figure_skater_amber_glenn_speaking_at/o45qn44/
+
+<img width="891" height="397" alt="image" src="https://github.com/user-attachments/assets/475495c9-fc1d-4186-9882-963d90696bd0" />
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mecniqzwuc2x https://autistics.life/@RoundSparrow/116032112542519304 }
