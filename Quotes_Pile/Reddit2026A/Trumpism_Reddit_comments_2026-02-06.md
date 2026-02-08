@@ -964,3 +964,10 @@ https://old.reddit.com/r/MurderedByWords/comments/1qz69ow/booing_the_vicepreside
 It is EVERY MINUTE of EVERY DAY AND NIGHT that I keep having to rephrase and repeat... It is not just politics topics. It is music industry topics, it is food supply topics. Trumpism is Reddit itself. No-identity hate-prizing social media that is hive mind mob mentality of Reddit. Reddit social behavior has been ahead of he curve. In year 2015 Reddit users were behaving as MAGA population behaved in 2018. The mindsets of tech love, machine love, video gaming as training ground to seek out weakness and attack the weak... to use mental health as a peer to peer insult topic like Trump does with I.Q. numbers being low. Anything to avoid the set of values Malala laid upon the world stage in year 2013. Anything to avoid Jen Senko's brainwashing serious discussions... anything to avoid Dr. Bandy x Lee's serious 27 leaders compiled and published October 3, 2017.
 
 The desire to turn all into jokes, joke-wash trump and fixate on the surface above the skin being orange.. and "Deep" topics of diapers... exceeds any desire to rescue from Russia defeating NATO ad USA Pentagon in psychological warfare to self-harm the USA with anti-intellectualism.
+
+https://old.reddit.com/r/nottheonion/comments/1qzckrl/fbi_concluded_jeffrey_epstein_wasnt_running_a_sex/o49qgt7/
+
+<img width="1036" height="921" alt="image" src="https://github.com/user-attachments/assets/3b6c7059-1ec2-449f-9725-a711451dcf35" />
+
+Paradox upon paradox for the Reddit fandom to blow their minds on. Media messaging paradoxes. The REAL REALITY is not a paradox. But the messaging and information systems are Surkov student designed paradoxes.
+
