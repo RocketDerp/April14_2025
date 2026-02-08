@@ -983,3 +983,4 @@ https://old.reddit.com/r/law/comments/1qzgnjm/leak_show_feds_tracking_antiice_re
 
 As the reply comment says, they are actively believing in Putin's mindsets, Surkov won since March 2013. Attacking women is CORE to the gender-focused global leadership initiative that Russia announced and was published in English on December 20, 2013 in USA. https://www.theAtlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/   *Russia's "traditional values" and his derision of the West's "genderless and infertile" liberalism in his annual state-of-the-nation address last week was just the latest example of Putin attempting to place himself at the vanguard of a new "Conservative International."*
 
+https://old.reddit.com/r/law/comments/1qzgnjm/leak_show_feds_tracking_antiice_reddit_users_like/o4asovx/
