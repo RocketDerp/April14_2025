@@ -16,4 +16,6 @@ ToDo:
 3. "Turn around, bright eyes" from eclipse of the inward heart lyrics. MLK Jr left behind quotes. Styx Suite Madame Blue, long ago in the past, turn around ending lyrics.
 4. "Bright eyes" lyrics to Suite Madame Blue ... Looking glass.
 
+5. "Every now and then I fall apart", Iterations of Finnegans Wake the Free Mason Tim bricklayer (freed from permanent death) symbolism. Fall of Wall Street, Page 3 of Joyce's work.
 
+6. Forever is going to start *tonight*, night hours of Dublin / Finnegans Wake.
