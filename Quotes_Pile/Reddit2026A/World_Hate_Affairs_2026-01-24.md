@@ -1557,4 +1557,12 @@ https://old.reddit.com/r/news/comments/1qzf47y/federal_statement_on_jeffrey_epst
 
 Chanting simplistic game-loop rituals of Reddit fandom to White House antics. Half-year old Reddit account. Twitter-bird singing little slogans and meme patterns to follow the leaders, reacting to White House and federal statements. Meme addicts gone wild, going wild in the audience like they are cheering on a money-winning Game Show. All conditioned and manipulated by the billionaire media systems. In a simulation of resistance that is in true true real reality a fandom of racing to notifications about Kremlin and White House antics. High-speed information system gamers on Reddit.
 
+https://old.reddit.com/r/news/comments/1qzf47y/federal_statement_on_jeffrey_epsteins_death_dated/o4aamhi/
 
+<img width="936" height="1274" alt="image" src="https://github.com/user-attachments/assets/7ec35aa2-8445-4188-bd29-f537f832410d" />
+
+THE **SURKOV STUDENTS** HAVE WON!!! BIGGEST RFK / JFK / RFK JR / TRUMP-PUTIN WIN IN MEDIA SYSTEMS HISTORY!!!  SYMBOLISM GUMBO OF WORLD WIDE ISLAND IN THE OCEAN, LEVANT MONOMYTH EDEN ISLAND ITSELF!
+
+* 1993, that is 1985 + 8. Count the years since years since 1983, reel in those years. Duke University. Texan Rick Roderick.
+* * "I mean, **my kids will have live in more of it than I** will ever see. So I am trying to understand it and think about it as much as I can, and a sense you get is one that resembles vertigo. How many of you have seen Vertigo, the great Alfred Hitchcock movie? You know, that ***sort of sickly sense*** that you are twisting above… sort of, abysmally too much of something. This seems to me a fine, sort of, mood characterisation for the postmodern trajectory. A sense of vertigo before **all this information**.
+Well if theses like the ones that I just described that Baudrillard holds are true… But of course **the word “true” will no longer apply**, because we will be in a setting in which **you won’t want the true**, you will want the truer than true. You won’t even… The **false won’t even be a good enough lie for you**, you’ll want the lie better than a lie. I mean, the truer than true explanation. You won’t just want Oliver Stone‘s film about JFK. **You’ll want the film about how Oliver Stone himself participated in the plot to cover up the real assassins by making the film JFK**. They want the truth about the truth about the truth and all the way down, interminably. Vertigo. That’s ***the sense you get looking down that chain of bizarre stories***."
