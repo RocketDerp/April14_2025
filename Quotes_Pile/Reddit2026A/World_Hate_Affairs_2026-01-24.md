@@ -1587,5 +1587,6 @@ ASK YOURSELF THESE QUESTIONS OVER AND OVER as you read the millions of Bluesky a
 
 4. Why are women leaders of society, government and non-government alike, Kamala Harris - not followed by the masculine tech-love machine-love Reddit community?
 
-ASK YOURSELF THESE QUESTIONS OVER AND OVER as you read the millions of Bluesky and Reddit comments... on Super Bowl Micorosft founder Paul Allen Seattle Seahawks tech male super-medical players sports icon USA NFL public dream... society biggest media event day...
+ASK YOURSELF THESE QUESTIONS OVER AND OVER as you read the millions of Bluesky and Reddit comments... on Super Bowl Micorosft founder Paul Allen Seattle Seahawks tech male super-medical players sports icon USA NFL public dream... USA society biggest media event day... why are Jen Senko nonfiction and Dr. Bandy X. Lee nonfiction - not promoted by people with spare time and free time on Reddit commenting and Bluesky commenting... WHY?
+
 
