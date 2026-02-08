@@ -1572,17 +1572,17 @@ Social post { https://autistics.life/@RoundSparrow/116036508190937116 https://bs
 
 https://old.reddit.com/r/circled/comments/1qzc102/election_interference_france_isnt_happy_with_musk/o49oupg/
 
-The programmed (billionaire programming) mindset of USA on Reddit... is that... "USA" means The Government. Not "We The People". There is no PLURIBUS concept in the Reddit hive mind that 0.34 billion people are responsible for the nation's behavior. That in a democracy, every minute of every day, we represent. Even those too young, even non-voters.
+The programmed (billionaire programming) mindset of USA on Reddit... is that... "USA" means The Government. Not **"We The People" USA**. There is no PLURIBUS leading concept in the current February 2026 Reddit hive mind that 0.34 billion people are responsible for the nation's behavior. That in a democracy, every minute of every day, we represent. Even those too young, even non-voters.
 
 ASK YOURSELF THESE QUESTIONS OVER AND OVER as you read the millions of Bluesky and Reddit comments: 
 
 1. <img width="1614" height="175" alt="image" src="https://github.com/user-attachments/assets/9520d506-4df3-4c63-aa34-104a71d2702a" />
-* "The Brainwashing of My Dad" 🎬 film and 📕 book
+* "The Brainwashing of My Dad" 🎬 film and 📕 book"
 * 1,328 followers
 2. Why are there so few followers of a woman, a baby boomer woman in a red state of Arizona? Why on Reddit do you constantly see commenting about "braindead", "brainwashed", "cult"... and everyone is not using social media to link this Bluesky account? Why only 1,328 followers on 2026-02-08 noonish in USA?
 
 3. <img width="893" height="178" alt="image" src="https://github.com/user-attachments/assets/1a22fb09-7b92-4a35-b21e-35c3f53ab270" />
-* Bandy X Lee, MD, MDiv
+* "Bandy X Lee, MD, MDiv"
 * 3,144 followers
 
 4. Why are women leaders of society, government and non-government alike, Kamala Harris - not followed by the masculine tech-love machine-love Reddit community?
