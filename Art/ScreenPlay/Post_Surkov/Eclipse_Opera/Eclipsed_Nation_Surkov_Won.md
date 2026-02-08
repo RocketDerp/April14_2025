@@ -8,7 +8,32 @@ Surkov Won...
 https://bsky.app/profile/greatsealusa.bsky.social/post/3meeft65ozk24   
 https://autistics.life/@RoundSparrow/116036069729161185  
 
-ToDo:
+&nbsp;
+
+# Be The *New Man*
+
+Be The New Mankind  
+
+&nbsp;
+
+https://autistics.life/@RoundSparrow/116036153638546799   
+https://bsky.app/profile/greatsealusa.bsky.social/post/3meegvnqr2k24  
+
+&nbsp;
+
+Call to Ladies, call to Women, call to Girls 
+
+Call to the feminine attitudes and spirits, USA rebirth year 250. MAGA toxic aggressive runaway masculinity needs.... intellectual teaching and leaders like Dr. Bandy X. Lee has put forward.
+
+HASHTAGS: #BeTheNewMan /\ Intelligence thoughtful soulful mankind
+
+https://www.youtube.com/watch?v=E6l5ezErGuw
+
+&nbsp;
+
+&nbsp;
+
+# ToDo:
 
 1. Vanessa Carlton eclipse, Ordinary Day
 2. Pink Floyd Eclipse / Brain Damage (Brain Rot Society 47 link)
