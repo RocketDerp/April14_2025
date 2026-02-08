@@ -42,7 +42,13 @@ The distance between peers on social machine systems.
 
 The inability to stop compulsive joking about Donald Trump's diapers and poop toilet humor is the Trump 2 joke. Joke-washing and amusement-washing became constantly game-loop grinding mechanisms of Trump and ICE power. Reddit social is the core platform for cleaning and washing Trump as a prized nugget of shit to joke about constantly.
 
-The mechanism at play here is mob mentality. Technically gifted and experienced technical of Reddit who know how to use high speed information systems... and steer them towards their infantile poop humor. Because they have use the mechanism of ICE masking their own identity, their own home city, their own real life. This mechanic is the monster force of Reddit culture.
+The mechanism at play here is mob mentality. Technically gifted and experienced technical users of Reddit who know how to use high speed information systems... and steer these same systems of information towards their infantile poop humor. Meme shockwaves that land on Trump. Because Reddit comment creators use the mechanism of ICE masking their own identity, their own home city, their own real life. Self-dehumanizing monster masks. This mechanic is the monster force of Reddit culture.
 
 1. I created this teaching SubReddit on Reddit itself. "Hyper Banalization" https://old.Reddit.com/r/HyperBanalisation/comments/bjf6ys/under_the_surkov_media_invasion_of_russia_usa/ - to describe the poop smearing Reddit fandoms of Trump.
 
+2. ICE masked / Reddit audience masked identity in shit-posting shit-commenting
+
+3. Published year 1988. BILL MOYERS: ... romance based upon selflessness rather than selfishness.
+CAMPBELL: The fact that the evil power is not identified with any specific nation on this earth means you’ve got an abstract power, which represents a principle, not a specific historical situation. The story has to do with an operation of principles, not of this nation against that. **The monster masks that are put on people in Star Wars represent the real monster force in the modern world**. When the mask of Darth Vader is removed, you see an unformed man, one who has not developed as a human individual. What you see is a strange and pitiful sort of undifferentiated face.
+MOYERS: What’s the significance of that?
+CAMPBELL: Darth Vader has not developed his own humanity. He’s a robot. He’s a bureaucrat, living not in terms of himself but in terms of an imposed system. This is the threat to our lives that we all face today. Is the system going to flatten you out and deny you your humanity, or are you going to be able to make use of the system to the attainment of **human purposes**? How do you relate to the system so that you are not **compulsively** serving it?

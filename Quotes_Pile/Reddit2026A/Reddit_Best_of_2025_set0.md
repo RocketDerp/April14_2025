@@ -56,3 +56,9 @@ The ENTIRE USA, the ENTIRE POPULATION< is a victim of abuse by Rupert Murdoch LO
 
 * “For in the end, he was trying to tell us what afflicted the people in 'Brave New World' was not that they were laughing instead of thinking, but that they did not know what they were laughing about and why they had stopped thinking.”
 ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. Year 1985. Nonfiction book on paper.
+
+
+
+https://old.reddit.com/r/politics/comments/1l8mi6y/we_published_real_photos_of_troops_sleeping_on_a/mx8jkeu/
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3lre6fhei6s2b }

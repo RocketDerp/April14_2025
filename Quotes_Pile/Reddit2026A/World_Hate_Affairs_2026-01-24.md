@@ -1539,3 +1539,67 @@ https://old.reddit.com/r/quilting/comments/1qyppfs/we_know_what_we_saw/o45axlr/
 **Witnessing Hate Affairs**
 
 Social post { https://autistics.life/@RoundSparrow/116032060979032918 https://bsky.app/profile/roundsparrow.bsky.social/post/3mecmquhbbc2x }
+
+
+https://old.reddit.com/r/news/comments/1qzf47y/federal_statement_on_jeffrey_epsteins_death_dated/o4a9og9/
+
+UK World News site posting on Reddit media. 6 month Reddit account is top comment, most-upvoted popular.
+
+https://old.reddit.com/r/news/comments/1qzf47y/federal_statement_on_jeffrey_epsteins_death_dated/o4aajtw/
+
+Reddit is the laughing amplifiers. Reddit audience gets their laughs at Putin and Trump Reality TV governing, "Surkov Governing", and eats it up. Trump and others play Tony Clifton antics of "playing dumb" to the Reddit fandom and the Reddit fandom does what happens in Clifton performances - mocks back at Clifton the character as { moron, dumb, idiot, stupid, terrible }. Surkov won since March 2013, NATO lost.
+
+https://old.reddit.com/r/news/comments/1qzf47y/federal_statement_on_jeffrey_epsteins_death_dated/o4ac6l9/
+
+"sanewashing". Reddit consumer is blind to Neil Postman NYU NYC teaching from Manhattan. The 1985 book, decades and decades ago, explaining comedy-washing amusement-washing that the Reddit comments are doing constantly. Reddit is the problem, elevating the White House and Kremlin to Gods of Comedy Jokes. Reddit is the milking factory of "LOL cows". Neil Postman was correct in year 1985 about the meme stupor behaviors of Reddit fandom to reactionary commenting.
+
+https://old.reddit.com/r/news/comments/1qzf47y/federal_statement_on_jeffrey_epsteins_death_dated/o4aa1zv/
+
+Chanting simplistic game-loop rituals of Reddit fandom to White House antics. Half-year old Reddit account. Twitter-bird singing little slogans and meme patterns to follow the leaders, reacting to White House and federal statements. Meme addicts gone wild, going wild in the audience like they are cheering on a money-winning Game Show. All conditioned and manipulated by the billionaire media systems. In a simulation of resistance that is in true true real reality a fandom of racing to notifications about Kremlin and White House antics. High-speed information system gamers on Reddit.
+
+
+https://old.reddit.com/r/news/comments/1qzf47y/federal_statement_on_jeffrey_epsteins_death_dated/o4aamhi/
+
+<img width="936" height="1274" alt="image" src="https://github.com/user-attachments/assets/7ec35aa2-8445-4188-bd29-f537f832410d" />
+
+THE **SURKOV STUDENTS** HAVE WON!!! BIGGEST RFK / JFK / RFK JR / TRUMP-PUTIN WIN IN MEDIA SYSTEMS HISTORY!!!  SYMBOLISM GUMBO OF WORLD WIDE ISLAND IN THE OCEAN, LEVANT MONOMYTH EDEN ISLAND ITSELF!
+
+* 1993, that is 1985 + 8. Count the years since years since 1983, reel in those years. Duke University. Texan Rick Roderick.
+* * "I mean, **my kids will have live in more of it than I** will ever see. So I am trying to understand it and think about it as much as I can, and a sense you get is one that resembles vertigo. How many of you have seen Vertigo, the great Alfred Hitchcock movie? You know, that ***sort of sickly sense*** that you are twisting above… sort of, abysmally too much of something. This seems to me a fine, sort of, mood characterisation for the postmodern trajectory. A sense of vertigo before **all this information**.
+Well if theses like the ones that I just described that Baudrillard holds are true… But of course **the word “true” will no longer apply**, because we will be in a setting in which **you won’t want the true**, you will want the truer than true. You won’t even… The **false won’t even be a good enough lie for you**, you’ll want the lie better than a lie. I mean, the truer than true explanation. You won’t just want Oliver Stone‘s film about JFK. **You’ll want the film about how Oliver Stone himself participated in the plot to cover up the real assassins by making the film JFK**. They want the truth about the truth about the truth and all the way down, interminably. Vertigo. That’s ***the sense you get looking down that chain of bizarre stories***."
+
+Social post { https://autistics.life/@RoundSparrow/116036508190937116 https://bsky.app/profile/roundsparrow.bsky.social/post/3meelym3scs2q }
+
+https://old.reddit.com/r/circled/comments/1qzc102/election_interference_france_isnt_happy_with_musk/o49oupg/
+
+The programmed (billionaire programming) mindset of USA on Reddit... is that... "USA" means The Government. Not **"We The People" USA**. There is no PLURIBUS leading concept in the current February 2026 Reddit hive mind that 0.34 billion people are responsible for the nation's behavior. That in a democracy, every minute of every day, we represent. Even those too young, even non-voters.
+
+ASK YOURSELF THESE QUESTIONS OVER AND OVER as you read the millions of Bluesky and Reddit comments: 
+
+1. <img width="1614" height="175" alt="image" src="https://github.com/user-attachments/assets/9520d506-4df3-4c63-aa34-104a71d2702a" />
+* "The Brainwashing of My Dad" 🎬 film and 📕 book"
+* 1,328 followers
+2. Why are there so few followers of a woman, a baby boomer woman in a red state of Arizona? Why on Reddit do you constantly see commenting about "braindead", "brainwashed", "cult"... and everyone is not using social media to link this Bluesky account? Why only 1,328 followers on 2026-02-08 noonish in USA?
+
+3. <img width="893" height="178" alt="image" src="https://github.com/user-attachments/assets/1a22fb09-7b92-4a35-b21e-35c3f53ab270" />
+* "Bandy X Lee, MD, MDiv"
+* 3,144 followers
+
+4. Why are women leaders of society, government and non-government alike, Kamala Harris - not followed by the masculine tech-love machine-love Reddit community?
+
+5. <img width="946" height="182" alt="image" src="https://github.com/user-attachments/assets/47f24fb0-7298-483d-8c10-681894a353ab" />
+* "Alexandria Ocasio-Cortez"
+* 2,201,124 followers
+* Why is AOC, Alexandria Ocasio-Cortez - a TLA -  a legend in her own time, not pointing her fandom and Bluesky media audience to nonfiction of book of... Dr. Bandy X Lee's 27 participants in her October 3, 2017 book over and over and over since year 2017? Why is AOC not using Bluesky media to promote Jen Senko right on Bluesky?
+
+ASK YOURSELF THESE QUESTIONS OVER AND OVER as you read the millions of Bluesky and Reddit comments... on Super Bowl Microsoft founder Paul Allen Seattle Seahawks tech male super-medical players sports icon USA NFL public dream... USA society biggest media event day... why are Jen Senko nonfiction and Dr. Bandy X. Lee nonfiction - not promoted by people with spare time and free time on Reddit commenting and Bluesky commenting... WHY?
+
+<img width="946" height="182" alt="image" src="https://github.com/user-attachments/assets/71bc94e0-1bd8-4e0e-a627-35af9a8f77a7" />
+
+Alexandria Ocasio-Cortez. 2,201,124 followers. WHY does nobody recognize this as a media ecology crisis? The topic of Neil Postman? "The Brainwashing of My Dad" 🎬 film and 📕 book" 1,328 followers
+
+Obligatory **Sunday Church** recall from year 1968. A man who **USA** Atlanta, Georgia born - was not a GOVERNMENT representative... a man OUTSIDE GOVERNMENT. Like February 2026 the woman Jen Senko with only 1,328 followers, outside government. Like the woman Dr. Bandy X Lee with 27 people in her book... outside government.
+
+* " And somehow this warm glow we feel when we are praised or when our name is in print is something of the **vitamin A to our ego**. Nobody is unhappy when they are praised, even if they know they don't deserve it and even if they don't believe it. The only unhappy people about praise is when that praise is going too much toward somebody else. But everybody likes to be praised because of this real drum major instinct."
+
+OPERA_A We found The Rats on Reddit and Bluesky, the population of Reddit and BLuesky, who won't follow Jen Senko and Dr. Bandy X Lee and fall for Putin's masculine macho bullshit. September 1982. https://www.youtube.com/watch?v=gxv4g1jATks 1,351 views  June 26, 2013 - listen to the opening lyrics. Year 2026 is the "Streets of the future"...
