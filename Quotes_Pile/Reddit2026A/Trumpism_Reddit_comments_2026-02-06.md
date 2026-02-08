@@ -885,5 +885,16 @@ https://old.reddit.com/r/politics/comments/1qytttd/trumps_tie_to_whistleblower_r
 
 No matter what Trump and Putin do, the important thing to USA Internet users, the entire society, is superficial and banal call-out about syntax. people don't read stories, they react to Tweets. This is why Trump wins. 500 short tiny antics works on minds that don't want a clear progressive working together with diverse language and arrangements. High-speed wrecks when even the slightest out of alignment is encountered. So fast in intake it blows out minds. Speedeating politics. Surkov students can blow minds, micro-blowing of minds with the most trivial patterns of communications.
 
+https://old.reddit.com/r/technology/comments/1qyw8me/homeland_security_spying_on_reddit_users/o46m53u/
+
+https://old.reddit.com/r/technology/comments/1qyw8me/homeland_security_spying_on_reddit_users/o46m7s5/
+
+https://old.reddit.com/r/technology/comments/1qyw8me/homeland_security_spying_on_reddit_users/o46mut2/
+
+https://old.reddit.com/r/technology/comments/1qyw8me/homeland_security_spying_on_reddit_users/o46rfxg/
+
+https://old.reddit.com/r/technology/comments/1qyw8me/homeland_security_spying_on_reddit_users/o46mr49/
+
+https://old.reddit.com/r/technology/comments/1qyw8me/homeland_security_spying_on_reddit_users/o46qwxp/
 
 
