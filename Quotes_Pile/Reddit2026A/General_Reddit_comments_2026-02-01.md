@@ -108,3 +108,38 @@ https://old.reddit.com/r/AITAH/comments/1qxtuqb/aitah_for_leaving_wife_at_home_a
 
 https://old.reddit.com/r/nextfuckinglevel/comments/1qxz8o3/50_cent_using_a_whole_door_dash_super_bowl_ad_to/o402tvc/
 
+https://old.reddit.com/r/Music/comments/1qym28j/brad_arnold_singer_and_founding_member_of_3_doors/o44kwko/
+
+https://old.reddit.com/r/Music/comments/1qym28j/brad_arnold_singer_and_founding_member_of_3_doors/o44jrwo/
+
+Age 47
+
+https://old.reddit.com/r/Music/comments/1qym28j/brad_arnold_singer_and_founding_member_of_3_doors/o44ju32/
+
+https://old.reddit.com/r/baseball/comments/1qyjt7h/terrance_gore_19912026/o442ref/
+
+age 34
+
+https://old.reddit.com/r/baseball/comments/1qyjt7h/terrance_gore_19912026/o442voc/
+
+https://old.reddit.com/r/baseball/comments/1qyjt7h/terrance_gore_19912026/o443bb2/
+
+And for the sake of everyone in the world: Stop believing hate is enjoyable. Stop believing war is fun sport. That killing and murder is rewarding and joyful fun. Stop believing in hate. Stop letting every person around you prize hate leaders and creating a planet with oceans of hate we all share and swim in.
+
+The 1954 Equation.
+
+February 28, 1954: "Most people can't stand up for their convictions, because the majority of people might not be doing it. See, everybody's not doing it, so it must be wrong. And since everybody is doing it, it must be right. So a sort of numerical interpretation of what's right. But I'm here to say to you this morning that some things are right and some things are wrong. Eternally so, absolutely so. **It's wrong to hate.** It always has been wrong and it always will be wrong. It's wrong in America, it's wrong in Germany, it's wrong in Russia, it's wrong in China. It was wrong in 2000 B.C., and it's wrong in 1954 A.D. It always has been wrong, and it always will be wrong." - Martin Luther King Jr.
+
+"For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the **true becomes false and the false becomes true**. That's what hate does. You can't see right. **The symbol of objectivity** is lost." - Martin Luther King Jr.
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1qyo1ok/petah/o44youl/
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1qyo1ok/petah/o456km1/
+
+https://old.reddit.com/r/UmaMusume/comments/1qyrv1h/february_7th_twitter_incident/o45tg44/
+
+Reddit fandoms for Trump diapers too? People are so entertained by everything, no sense of need to spend free time and spare time doing cult deprogramming teaching to the USA / MAGA / Trump / Putin cults.
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1qyrn7p/how_does_this_scare_overseas_readers/o45p3de/
+
+https://old.reddit.com/r/todayilearned/comments/1qz1lp0/til_that_chess_players_do_not_in_fact_burn_an/o47o78r/

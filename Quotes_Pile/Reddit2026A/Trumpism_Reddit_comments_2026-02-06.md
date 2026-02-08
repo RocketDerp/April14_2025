@@ -184,9 +184,9 @@ Everything is TCP/IP Traceroute ecology geography. https://en.wikipedia.org/wiki
 
 * https://youtu.be/08R1kPdfrHA?t=2407 "Art is more worth than truth" "that of James Joyce"... "proper and improper art" ... *commercial art*. White House art work, images created by the White House!!! https://youtu.be/08R1kPdfrHA?t=2527 "or politics". Surkovian.
 
-* **"A Grand Symptom"** https://youtu.be/08R1kPdfrHA?t=2585 "One Great Virtue", "Mythological Meaningful"
+* **"A Grand Symptom"** https://youtu.be/08R1kPdfrHA?t=2585 "One Great Virtue", "Mythologically Meaningful"
 
-OPERA_A I hope to match... "One Great Virtue", "Mythological Meaningful" - with this track for you! https://www.youtube.com/watch?v=RziQ-kZdVJU Guru player. USA year 250, We The People were Children Once, PLAYING WITH TOYS!  Meme toys, Great Seal of the United States of America. 8,691 views  March 17, 2013
+OPERA_A I hope to match... "One Great Virtue", "Mythologically Meaningful" - with this track for you! https://www.youtube.com/watch?v=RziQ-kZdVJU Guru player. USA year 250, We The People were Children Once, PLAYING WITH TOYS!  Meme toys, Great Seal of the United States of America. 8,691 views  March 17, 2013
 :::: *Cover of "Low Spark of High Heeled Boys" for the Theme Music Group.  Theme: Title Tracks.  Yes, I finger-sync nearly as badly as I lip-sync.  By the time I got to the video, I just wanted to get it DONE.* ::: By that a gun that didn't make any noise... but it wasn't the bullet that laid him to rest... it was the piano playing of Steve Winwood fandom!
 
 Social post { https://autistics.life/@RoundSparrow/116024765554492125 https://bsky.app/profile/roundsparrow.bsky.social/post/3me7f5aesqs22 }
@@ -727,7 +727,7 @@ Instead, it is licensed away in little clips and bits and photos for money.
 
 https://old.reddit.com/r/law/comments/1qyjhmz/epstein_revelations_have_toppled_top_figures_in/o440502/
 
-That's because Reddit fandom of Trump and Reddit fandom of Epstein entertainment systems can't follow a WOMAN named Dr. Bandy X Lee **who published a nonfiction compilation book on October 3, 2017 that every damn person with tech social media skills to comment should be quoting on Reddit over and over and repeating again and again!!!***
+That's because Reddit fandom of Trump and Reddit fandom of Epstein entertainment systems can't follow a WOMAN named Dr. Bandy X Lee **who published a nonfiction compilation book on October 3, 2017 that every damn person with tech social media skills to comment should be quoting on Reddit over and over and repeating again and again!!!**
 
 She fucking compiled 27 different writing authors into one book for Reddit community to quote. But people can not stop the compulsive mockery to Trump / ICE / MAGA / Putin / Musk to turn to a woman GenX leader. Is her GenX laugh too much like GenX Kamala Harris laugh for Reddit? Are all 27 authors not good enough for Reddit? Or does REDDIT SOCIETY have a fucking nonfiction engagement issue?
 
@@ -737,3 +737,230 @@ She fucking compiled 27 different writing authors into one book for Reddit commu
 https://old.reddit.com/r/law/comments/1qyjhmz/epstein_revelations_have_toppled_top_figures_in/o441p5a/
 
 Shallow commenting on Reddit. Superficial. Banal. Word-choice concerned. ANYTHING but ... Dr. Bandy X Lee quoting. ANYTHING to spend free time on Reddit with low-effort shit-commenting and shit-posting about USA and Epstein situation. Addicts to shit-commenting can't escape to Dr Bandy X Lee's nonfiction and start building a massive mental health backlash, turn the tide, towards science thinking and away from meme-think Twitter-length short message Reddit commenting!
+
+https://old.reddit.com/r/politics/comments/1qyip1z/nsa_detected_phone_call_between_foreign/o43uhny/
+
+I cry uncle.
+
+https://old.reddit.com/r/politics/comments/1qyip1z/nsa_detected_phone_call_between_foreign/o43v0u8/
+
+Hyperbanal commenting on Reddit systems. See: https://Old.Reddit.com/r/HyperBanalisation/ What to see here: Reddit mind-fucking with Twitter-thinking short-length messaging to audience that none of this is serious. No need for We The People to take over where the NSA / CIA is failing. No call for intellectual defense of USA by militia. No call for unarmed uprising of peace and nonfiction education. No call for counter-brainwashing counter-intelligence counter-Surkov counter-cult Fox News HDTV deprogram television programming, how does one describe this... road...
+
+* "Well I don’t know how much further we can go down this road but in any case, ah, the road according to Baudrillard is an endless set..." https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
+
+https://old.reddit.com/r/news/comments/1qykcmm/epstein_revelations_have_toppled_top_figures_in/o449exs/
+
+https://old.reddit.com/r/news/comments/1qykcmm/epstein_revelations_have_toppled_top_figures_in/o446fkj/
+
+3 month Reddit account. Highly upvoted popular.
+
+https://old.reddit.com/r/news/comments/1qykcmm/epstein_revelations_have_toppled_top_figures_in/o445xy6/
+
+https://old.reddit.com/r/news/comments/1qykcmm/epstein_revelations_have_toppled_top_figures_in/o449bna/
+
+https://old.reddit.com/r/videos/comments/1qyi6ou/man_83_sentenced_to_life_in_prison_for_murder_of/o43uevc/
+
+On Reddit: "conservative media leads to violence". maybe sometimes even "Clergy of Quran leads to 9/11 violence"...but never "video gaming leads to violence". Magazine media, sure. Gaming media, never. Despite noting in gaming to prevent hate preaching media content payloads. Comparative Mythology and being bamboozled by the rich using fiction storytelling and massive intellectual property puppeting of the mind... uneducated, unable to explain. People who think gaming away real-identity with jokes and memes is a fun video game. Surkov won since March 2013, using Reddit, Twitter, Facebook, etc.
+
+* January 3, 2026 — "Russia **systematically uses video games** as a tool for state propaganda, youth militarization, and gamer recruitment." https://theukrainianreview.info/how-the-kremlin-uses-video-games-for-propaganda-militarization-and-recruitment-of-youth/
+
+People who love machines more than human beings.
+
+* Original US Release: October 15, 1940. US General Release/Premiere: October 31, 1940. Director/Star: Charlie Chaplin. "don’t give yourselves to brutes - men who despise you - enslave you - who regiment your lives - tell you what to do - what to think and what to feel! Who drill you - diet you - treat you like cattle, use you as cannon fodder. Don’t give yourselves to these unnatural men - **machine men with machine minds and machine hearts! You are not machines!** You are not cattle! You are men! You have the **love of humanity** in your hearts! You don’t hate! Only the unloved hate - the unloved and the unnatural! Soldiers! Don’t fight for slavery! Fight for liberty! In the 17th Chapter of St Luke it is written: “the Kingdom of God is within man” - not one man nor a group of men, but in all men! In you! You, the people have the power" https://www.CharlieChaplin.com/en/articles/29-the-final-speech-from-the-great-dictator-
+
+Often those /r/All meme machines, screen games of hate-prizing rewards of humiliating others with information systems.
+
+https://old.reddit.com/r/videos/comments/1qyi6ou/man_83_sentenced_to_life_in_prison_for_murder_of/o43sogf/
+
+https://old.reddit.com/r/clevercomebacks/comments/1qymk7z/repeated_excuse_same_audience/o44olyv/
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mecl4pkeac2x https://autistics.life/@RoundSparrow/116031941850685472 }
+
+https://old.reddit.com/r/clevercomebacks/comments/1qymk7z/repeated_excuse_same_audience/o44nohn/
+
+October 22, 2015 - people keep blaming "dementia", and this strategic media behavior goes back decades.
+
+https://old.reddit.com/r/clevercomebacks/comments/1qymk7z/repeated_excuse_same_audience/o44n6ot/
+
+“Chaos and disruption, I later learned, are central tenets of Bannon's animating ideology. Before catalyzing America's dharmic rebalancing, his movement would first need to instill chaos through society so that a new order could emerge. He was an avid reader of a computer scientist and armchair philosopher who goes by the name Mencius Moldbug, a hero of the alt-right who writes long-winded essays attacking democracy and virtually everything about how modern societies are ordered. Moldbug’s views on truth influenced Bannon, and what Cambridge Analytica would become. Moldbug has written that “nonsense is a more effective organizing tool than the truth,” and Bannon embraced this. “Anyone can believe in the truth,” Moldbug writes, “to believe in nonsense is an unforgettable demonstration of loyalty. It serves as a political uniform. And if you have a uniform, you have an army.”
+― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the [Plot to Break America, page 85](https://books.google.com/books?id=8OW2DwAAQBAJ&pg=PA85&dq=%22serves+as+a+political+uniform.+And+if+you+have+a+uniform,+you+have+an+army.%E2%80%9D&hl=en&newbks=1&newbks_redir=1&sa=X). **year 2019**
+
+https://old.reddit.com/r/clevercomebacks/comments/1qymk7z/repeated_excuse_same_audience/o44r3m6/
+
+https://old.reddit.com/r/clevercomebacks/comments/1qymk7z/repeated_excuse_same_audience/o44oloy/
+
+It's the opposite. Bamboozle egoism, pain of truth. Pain of facing that Fox News HDTV is fiction. Pain of facing that Bible and Church are science fiction, as is the Quran 9/11 Mohammad inspiration. All fiction storytelling.
+
+* “One of the saddest lessons of history is this: If we’ve been bamboozled long enough, we tend to **reject any evidence of the bamboozle**. We’re no longer interested in finding out the truth. The bamboozle has captured us. It’s simply too painful to acknowledge, even to ourselves, that we’ve been taken. Once you give a charlatan power over you, you almost never get it back. So the old bamboozles tend to persist as the new ones rise.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, **1995**, page 241
+
+https://old.reddit.com/r/clevercomebacks/comments/1qymk7z/repeated_excuse_same_audience/o44pbmn/
+
+Reddit it eats it up. Reddit audience can't turn to any nonfiction sources and depth on the problem, Reddit fandom is always shallow superficial reacting. Reddit end-users predictably mock back to the mocking. President Tony Clifton acting blows the Reddit audience minds. Surkov won since March 2013.
+
+https://old.reddit.com/r/clevercomebacks/comments/1qymk7z/repeated_excuse_same_audience/o44oiol/
+
+Reddit denial. Reddit end-users who live in such filter-bubbles https://en.wikipedia.org/wiki/Filter_bubble and have blocked-out the hundreds of millions of Fox News audience / Newsmax audience / MAGA fandom can't face that fiction outsells nonfiction and people do in fact believe the Quran is reality, Bible is reality, Torah is reality, etc. 
+
+Trump is tricked by Putin and Reddit user's can describe the timelines or names of the tricksters in Russia that have bamboozled everyone. Donald Trump trusts Putin and people in USA trust Trump.
+
+* “The human brain can protect us from seeing and feeling what it believes may be too uncomfortable for us to tolerate. It **can lead us to deny**, defend, **minimize, or rationalize away** something that doesn’t fit our worldview.”
+― Dr. Bandy X Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. Published **October 3, 2017**. Page 273. Chapter "TRUMP'S DADDY ISSUES"](https://books.google.com/books?id=g0c4DwAAQBAJ&pg=PA273&dq=%E2%80%9CThe+human+brain+can+protect+us+from+seeing+and+feeling+what+it+believes+may+be+too+uncomfortable%22&hl=en&newbks=1&newbks_redir=1&sa=X)
+
+
+https://old.reddit.com/r/sports/comments/1qyrbsf/team_usa_figure_skater_amber_glenn_speaking_at/o45qn44/
+
+<img width="891" height="397" alt="image" src="https://github.com/user-attachments/assets/475495c9-fc1d-4186-9882-963d90696bd0" />
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mecniqzwuc2x https://autistics.life/@RoundSparrow/116032112542519304 }
+
+https://old.reddit.com/r/sports/comments/1qyrbsf/team_usa_figure_skater_amber_glenn_speaking_at/o45thqh/
+
+https://old.reddit.com/r/sports/comments/1qyrbsf/team_usa_figure_skater_amber_glenn_speaking_at/o46864e/
+
+So many men who worship Trump Daddy Issues / Putin Daddy Issues - want to silence a woman with powerful masculine meme devices.
+
+* "The extremists are afraid of books and pens. The power of education frightens them. They are afraid of women. The power of the voice of women frightens them." - July 12, 2013 https://malala.org/news-and-voices/malala-un-speech
+
+https://old.reddit.com/r/Music/comments/1qyt9w6/kid_rocks_maga_fest_cancelled_after_nearly_all/o460sde/
+
+Trump fandom on Reddit loves the mockery. Tiny-short messaging of repeating Trump MAGA talking points over and over and over. ANYTHING to avoid promoting Dr. Bandy X Lee's October 3, 2017 nonfiction book on mental health. Nor teaching nonfiction cult deprogramming.
+
+https://old.reddit.com/r/Music/comments/1qyt9w6/kid_rocks_maga_fest_cancelled_after_nearly_all/o4601tc/
+
+2 month Reddit account. Amplifying the MAGA-initiated mockery with "LOL" laugh track for the Reddit fandom. Followers of MAGA always jumping on the total mockery bandwagon when MAGA content appears on Reddit servers.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qyv7yg/sorry_baby_director_eva_victor_tells_ricky/o46ff2h/
+
+So many men who worship Trump Daddy Issues / Putin Daddy Issues - want to silence a woman with powerful masculine meme devices.
+
+* "The extremists are afraid of books and pens. The power of education frightens them. They are afraid of women. The power of the voice of women frightens them." - July 12, 2013 https://malala.org/news-and-voices/malala-un-speech
+
+https://old.reddit.com/r/Fauxmoi/comments/1qyv7yg/sorry_baby_director_eva_victor_tells_ricky/o46eqdz/
+
+https://old.reddit.com/r/Fauxmoi/comments/1qyv7yg/sorry_baby_director_eva_victor_tells_ricky/o46g1jo/
+
+https://old.reddit.com/r/law/comments/1qym2d4/nsa_detected_phone_call_between_foreign/o44ohnx/
+
+https://old.reddit.com/r/law/comments/1qym2d4/nsa_detected_phone_call_between_foreign/o4532bw/
+
+https://old.reddit.com/r/law/comments/1qym2d4/nsa_detected_phone_call_between_foreign/o44w0hv/
+
+https://old.reddit.com/r/law/comments/1qym2d4/nsa_detected_phone_call_between_foreign/o44ug6v/
+
+https://old.reddit.com/r/law/comments/1qym2d4/nsa_detected_phone_call_between_foreign/o46b1jy/
+
+https://old.reddit.com/r/politics/comments/1qytttd/trumps_tie_to_whistleblower_report_tulsi_hid_in/o464cul/
+
+https://old.reddit.com/r/politics/comments/1qytttd/trumps_tie_to_whistleblower_report_tulsi_hid_in/o469bac/
+
+11 month
+
+https://old.reddit.com/r/politics/comments/1qytttd/trumps_tie_to_whistleblower_report_tulsi_hid_in/o46jtsj/
+
+https://old.reddit.com/r/politics/comments/1qytttd/trumps_tie_to_whistleblower_report_tulsi_hid_in/o4660hx/
+
+https://old.reddit.com/r/politics/comments/1qytttd/trumps_tie_to_whistleblower_report_tulsi_hid_in/o46a6dj/
+
+https://old.reddit.com/r/politics/comments/1qytttd/trumps_tie_to_whistleblower_report_tulsi_hid_in/o464c3l/
+
+inflexible mindsets
+
+https://old.reddit.com/r/politics/comments/1qytttd/trumps_tie_to_whistleblower_report_tulsi_hid_in/o466job/
+
+https://old.reddit.com/r/politics/comments/1qytttd/trumps_tie_to_whistleblower_report_tulsi_hid_in/o46a816/
+
+https://old.reddit.com/r/politics/comments/1qytttd/trumps_tie_to_whistleblower_report_tulsi_hid_in/o46c5jy/
+
+https://old.reddit.com/r/politics/comments/1qytttd/trumps_tie_to_whistleblower_report_tulsi_hid_in/o46cm4c/
+
+https://old.reddit.com/r/politics/comments/1qytttd/trumps_tie_to_whistleblower_report_tulsi_hid_in/o46h8ms/
+
+https://old.reddit.com/r/politics/comments/1qytttd/trumps_tie_to_whistleblower_report_tulsi_hid_in/o46esey/
+
+https://old.reddit.com/r/politics/comments/1qytttd/trumps_tie_to_whistleblower_report_tulsi_hid_in/o46fp0z/
+
+inflexible mindsets
+
+https://old.reddit.com/r/politics/comments/1qytttd/trumps_tie_to_whistleblower_report_tulsi_hid_in/o46h022/
+
+No matter what Trump and Putin do, the important thing to USA Internet users, the entire society, is superficial and banal call-out about syntax. people don't read stories, they react to Tweets. This is why Trump wins. 500 short tiny antics works on minds that don't want a clear progressive working together with diverse language and arrangements. High-speed wrecks when even the slightest out of alignment is encountered. So fast in intake it blows out minds. Speedeating politics. Surkov students can blow minds, micro-blowing of minds with the most trivial patterns of communications.
+
+https://old.reddit.com/r/technology/comments/1qyw8me/homeland_security_spying_on_reddit_users/o46m53u/
+
+https://old.reddit.com/r/technology/comments/1qyw8me/homeland_security_spying_on_reddit_users/o46m7s5/
+
+https://old.reddit.com/r/technology/comments/1qyw8me/homeland_security_spying_on_reddit_users/o46mut2/
+
+https://old.reddit.com/r/technology/comments/1qyw8me/homeland_security_spying_on_reddit_users/o46rfxg/
+
+https://old.reddit.com/r/technology/comments/1qyw8me/homeland_security_spying_on_reddit_users/o46mr49/
+
+https://old.reddit.com/r/technology/comments/1qyw8me/homeland_security_spying_on_reddit_users/o46qwxp/
+
+https://old.reddit.com/r/Fauxmoi/comments/1qyw9yq/ossoff_youre_seeing_what_im_seeing_right_the/o46vd09/
+
+https://old.reddit.com/r/Fauxmoi/comments/1qyw9yq/ossoff_youre_seeing_what_im_seeing_right_the/o46wi2z/
+
+https://old.reddit.com/r/Fauxmoi/comments/1qyw9yq/ossoff_youre_seeing_what_im_seeing_right_the/o46vj7r/
+
+https://old.reddit.com/r/circled/comments/1qywb0j/could_this_be_true/o46uk65/
+
+https://old.reddit.com/r/circled/comments/1qywb0j/could_this_be_true/o46xxbd/
+
+If you can't see on Bluesky and Reddit that people do not promote Dr. Bandy X Lee, Jen Senko, or other serious nonfiction topics to do cult deprogramming and take brainwashing a a serious topic... insulting and mocking Donald Trump is not dealing with the Fox News HDTV cult of fiction storytelling.
+
+https://old.reddit.com/r/circled/comments/1qywb0j/could_this_be_true/o46qkev/
+
+https://old.reddit.com/r/circled/comments/1qywb0j/could_this_be_true/o46zcoo/
+
+https://old.reddit.com/r/circled/comments/1qywb0j/could_this_be_true/o46vv6u/
+
+https://old.reddit.com/r/circled/comments/1qywb0j/could_this_be_true/o4786z4/
+
+https://old.reddit.com/r/circled/comments/1qywb0j/could_this_be_true/o46xcid/
+
+https://old.reddit.com/r/circled/comments/1qywb0j/could_this_be_true/o46ze83/
+
+https://old.reddit.com/r/circled/comments/1qywb0j/could_this_be_true/o472jj0/
+
+https://old.reddit.com/r/circled/comments/1qywb0j/could_this_be_true/o46znxg/
+
+https://old.reddit.com/r/circled/comments/1qywb0j/could_this_be_true/o47671m/
+
+https://old.reddit.com/r/circled/comments/1qywb0j/could_this_be_true/o47augx/
+
+https://old.reddit.com/r/europe/comments/1qykdii/zelensky_says_us_is_readying_huge_economic_deals/o45isb4/
+
+https://old.reddit.com/r/europe/comments/1qykdii/zelensky_says_us_is_readying_huge_economic_deals/o456kft/
+
+https://old.reddit.com/r/europe/comments/1qykdii/zelensky_says_us_is_readying_huge_economic_deals/o44xig8/
+
+https://old.reddit.com/r/europe/comments/1qykdii/zelensky_says_us_is_readying_huge_economic_deals/o44z2gc/
+
+https://old.reddit.com/r/europe/comments/1qykdii/zelensky_says_us_is_readying_huge_economic_deals/o458z28/
+
+https://old.reddit.com/r/europe/comments/1qykdii/zelensky_says_us_is_readying_huge_economic_deals/o462g5k/
+
+https://old.reddit.com/r/europe/comments/1qykdii/zelensky_says_us_is_readying_huge_economic_deals/o455ow8/
+
+5 month Reddit account
+
+https://old.reddit.com/r/MurderedByWords/comments/1qz69ow/booing_the_vicepresident/o48hu47/
+
+https://old.reddit.com/r/MurderedByWords/comments/1qz69ow/booing_the_vicepresident/o48iubd/
+
+As I have made a central theme on this  GitHub project... fiction outsells nonfiction. Nobody is going to censor a popular scene in a science fiction story like Star Wars Andor year 2025 or Quran science fiction story from year 635. People can keep discussing a Star Wars scene or a page of Mohammad's Quran fiction. This loophole is actively being utilized. Fox News HDTV can claim it is { amusement, entertainment, comedy, SNL Weekend Update, fantasy mythos }.
+
+https://old.reddit.com/r/MurderedByWords/comments/1qz69ow/booing_the_vicepresident/o48hl7h/
+
+Many on Reddit can't fathom or interpret beyond the TLDR barrier, ELI4 barrier, and fiction vs. nonfiction barriers. Shuffle syntax of language usage around and audiences on SubReddits are compulsively attracted to Donald Trump styles of mocking.
+
+https://old.reddit.com/r/MurderedByWords/comments/1qz69ow/booing_the_vicepresident/o48ipbs/
+
+"The lies", that's fiction storytelling - Reddit audiences love discussing fiction plot points and scenes in Lord of the Rings, Star Wars Andor, Fallout video game and TV... but when it comes to nonfiction from. Dr. Bandy X Lee... can't keep going back to the nonfiction science and learning well...
+
+https://old.reddit.com/r/MurderedByWords/comments/1qz69ow/booing_the_vicepresident/o48k5wt/
+
+It is EVERY MINUTE of EVERY DAY AND NIGHT that I keep having to rephrase and repeat... It is not just politics topics. It is music industry topics, it is food supply topics. Trumpism is Reddit itself. No-identity hate-prizing social media that is hive mind mob mentality of Reddit. Reddit social behavior has been ahead of he curve. In year 2015 Reddit users were behaving as MAGA population behaved in 2018. The mindsets of tech love, machine love, video gaming as training ground to seek out weakness and attack the weak... to use mental health as a peer to peer insult topic like Trump does with I.Q. numbers being low. Anything to avoid the set of values Malala laid upon the world stage in year 2013. Anything to avoid Jen Senko's brainwashing serious discussions... anything to avoid Dr. Bandy x Lee's serious 27 leaders compiled and published October 3, 2017.
+
+The desire to turn all into jokes, joke-wash trump and fixate on the surface above the skin being orange.. and "Deep" topics of diapers... exceeds any desire to rescue from Russia defeating NATO ad USA Pentagon in psychological warfare to self-harm the USA with anti-intellectualism.

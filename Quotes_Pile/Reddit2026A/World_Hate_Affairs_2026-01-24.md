@@ -1498,5 +1498,44 @@ https://old.reddit.com/r/nottheonion/comments/1qygw1t/pentagon_says_its_cutting_
 
 "Crazy"
 
-Anything to halt, stop, ponder. And turn to nonfiction books from Dr. Bandy X Lee on the topic of mental health, "crazy". Reddit fandom of commenting is so addicted to writing, nonfiction reading and quoting is out of the question in programmed mindsets.
+Anything *NOT to* halt, stop, ponder. And turn to nonfiction books from Dr. Bandy X Lee on the topic of mental health, "crazy". Reddit fandom of commenting is so addicted to writing, nonfiction reading and quoting is out of the question in programmed mindsets.
 
+https://old.reddit.com/r/Fauxmoi/comments/1qylx9w/at_a_preolympics_presser_us_figure_skating_champ/o44j8k5/
+
+Reddit top-voted comment in February 2026... a one-sentence Twitter-length message. ANYTHING but assert, quote, and encourage people to confront the hate issue with Dr. Bandy X Lee's leadership since publishing her October 3, 2017 book of 27 professionals on mental health of the situation...
+
+https://old.reddit.com/r/Fauxmoi/comments/1qylx9w/at_a_preolympics_presser_us_figure_skating_champ/o44kqb0/
+
+Note this comment creator's user profile is pro-TLDR, won't read serious and deep nonfiction content.
+
+https://old.reddit.com/r/Fauxmoi/comments/1qylx9w/at_a_preolympics_presser_us_figure_skating_champ/o44klp8/
+
+https://old.reddit.com/r/worldnews/comments/1qylihr/orban_declares_ukraine_enemy_of_hungary/o44hfbb/
+
+ANSWER: Yes. I've noticed a pattern here on Reddit commenting section of banal "playing dumb" question engagement technique of social media. Reddit social media top-voted comment. https://infoMedia.com/blog/the-power-of-a-question-in-social-media-marketing/
+
+I also witness absence of any alarm or call to intellectual arms against Putin's information warfare. That serious shit and use of spare time and free time is unwelcome and avoided - that's what I notice.
+
+* From September 9, 2014 - **more than a decade** - we could have kept repeating it and defeated Putin's takeover of USA hearts and minds: https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ "Russia and the Menace of Unreality: How Vladimir Putin is revolutionizing information warfare. By Peter Pomerantsev. At the NATO summit in Wales last week, General Philip Breedlove, the military alliance’s top commander, made a bold declaration. Russia, he said, is waging “the **most amazing information warfare blitzkrieg we have ever seen in the history of information warfare.**” It was something of an underestimation. The new Russia doesn’t just deal in the petty disinformation, forgeries, lies, leaks, and cyber-sabotage usually associated with information warfare. It reinvents reality, creating mass hallucinations that then translate into political action." - we should NOW be repeating it every 47 hours over and over, keep repeating, again and again!
+
+ANSWER: Yes. I've noticed a pattern here on Reddit commenting section of banal "playing dumb" question engagement technique of social media. Reddit social media top-voted comment. https://infoMedia.com/blog/the-power-of-a-question-in-social-media-marketing/
+
+https://old.reddit.com/r/worldnews/comments/1qylihr/orban_declares_ukraine_enemy_of_hungary/o44eyuk/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qymjgz/reposting_an_old_tweet_for_absolutely_zero_reason/o44oftn/
+
+World Hate Leadership. Twitter hate leadership.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qymjgz/reposting_an_old_tweet_for_absolutely_zero_reason/o44qcaf/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qymjgz/reposting_an_old_tweet_for_absolutely_zero_reason/o44ou2k/
+
+Funny to mock owners of media systems all day and night using media systems. Entertainment engagement. 
+
+Why is Reddit commenting section not constantly repeating Dr. Bandy X Lee's nonfiction book since it was published October 3, 2017? Is 27 professionals not good enough for Reddit comment creators to quote and point at? Or is Reddit commenting users fixated on billionaire white men to comment about over and over and over with free time and spare time?
+
+https://old.reddit.com/r/quilting/comments/1qyppfs/we_know_what_we_saw/o45axlr/
+
+**Witnessing Hate Affairs**
+
+Social post { https://autistics.life/@RoundSparrow/116032060979032918 https://bsky.app/profile/roundsparrow.bsky.social/post/3mecmquhbbc2x }
