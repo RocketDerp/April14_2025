@@ -849,3 +849,34 @@ https://old.reddit.com/r/law/comments/1qym2d4/nsa_detected_phone_call_between_fo
 
 https://old.reddit.com/r/law/comments/1qym2d4/nsa_detected_phone_call_between_foreign/o46b1jy/
 
+https://old.reddit.com/r/politics/comments/1qytttd/trumps_tie_to_whistleblower_report_tulsi_hid_in/o464cul/
+
+https://old.reddit.com/r/politics/comments/1qytttd/trumps_tie_to_whistleblower_report_tulsi_hid_in/o469bac/
+
+11 month
+
+https://old.reddit.com/r/politics/comments/1qytttd/trumps_tie_to_whistleblower_report_tulsi_hid_in/o46jtsj/
+
+https://old.reddit.com/r/politics/comments/1qytttd/trumps_tie_to_whistleblower_report_tulsi_hid_in/o4660hx/
+
+https://old.reddit.com/r/politics/comments/1qytttd/trumps_tie_to_whistleblower_report_tulsi_hid_in/o46a6dj/
+
+https://old.reddit.com/r/politics/comments/1qytttd/trumps_tie_to_whistleblower_report_tulsi_hid_in/o464c3l/
+
+inflexible mindsets
+
+https://old.reddit.com/r/politics/comments/1qytttd/trumps_tie_to_whistleblower_report_tulsi_hid_in/o466job/
+
+https://old.reddit.com/r/politics/comments/1qytttd/trumps_tie_to_whistleblower_report_tulsi_hid_in/o46a816/
+
+https://old.reddit.com/r/politics/comments/1qytttd/trumps_tie_to_whistleblower_report_tulsi_hid_in/o46c5jy/
+
+https://old.reddit.com/r/politics/comments/1qytttd/trumps_tie_to_whistleblower_report_tulsi_hid_in/o46cm4c/
+
+https://old.reddit.com/r/politics/comments/1qytttd/trumps_tie_to_whistleblower_report_tulsi_hid_in/o46h8ms/
+
+https://old.reddit.com/r/politics/comments/1qytttd/trumps_tie_to_whistleblower_report_tulsi_hid_in/o46esey/
+
+https://old.reddit.com/r/politics/comments/1qytttd/trumps_tie_to_whistleblower_report_tulsi_hid_in/o46fp0z/
+
+inflexible mindsets
