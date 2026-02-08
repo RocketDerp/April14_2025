@@ -56,3 +56,9 @@ https://www.youtube.com/watch?v=E6l5ezErGuw
 5. "Every now and then I fall apart", Iterations of Finnegans Wake the Free Mason Tim bricklayer (freed from permanent death) symbolism. Fall of Wall Street, Page 3 of Joyce's work.
 
 6. Forever is going to start *tonight*, night hours of Dublin / Finnegans Wake.
+
+7. Remotivate the men themes. Building with bricks like Tim Finnegan, not shitting concrete to cover over goodness like MAGA / Murdoch / Musk / Trump / Putin.
+
+8. Eclipse of ALP, "EclipeHCE" hashtag (dual meaning. eclipse the toxic male attitudes, and HCE everybody Pluribus level-up eclipse)? Anna Livia Plurabelle (ALP) is a central, symbolic character in James Joyce's novel Finnegans Wake. Representing the River Liffey and eternal femininity, she embodies renewal and flow.
+
+9. Be The New Man - Woke Carol hashtag looping integration and Finnegans Wake iteration?
