@@ -1545,3 +1545,6 @@ https://old.reddit.com/r/news/comments/1qzf47y/federal_statement_on_jeffrey_epst
 
 UK World News site posting on Reddit media. 6 month Reddit account is top comment, most-upvoted popular.
 
+https://old.reddit.com/r/news/comments/1qzf47y/federal_statement_on_jeffrey_epsteins_death_dated/o4aajtw/
+
+Reddit is the laughing amplifiers. Reddit audience gets their laughs at Putin and Trump Reality TV governing, "Surkov Governing", and eats it up. Trump and others play Tony Clifton antics of "playing dumb" to the Reddit fandom and the Reddit fandom does what happens in Clifton performances - mocks back at Clifton the character as { moron, dumb, idiot, stupid, terrible }. Surkov won since March 2013, NATO lost.
