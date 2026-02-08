@@ -971,3 +971,4 @@ https://old.reddit.com/r/nottheonion/comments/1qzckrl/fbi_concluded_jeffrey_epst
 
 Paradox upon paradox for the Reddit fandom to blow their minds on. Media messaging paradoxes. The REAL REALITY is not a paradox. But the messaging and information systems are Surkov student designed paradoxes.
 
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3meemk4i7a22z https://autistics.life/@RoundSparrow/116036550644701650 }
