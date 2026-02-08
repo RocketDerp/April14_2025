@@ -1551,11 +1551,12 @@ Reddit is the laughing amplifiers. Reddit audience gets their laughs at Putin an
 
 https://old.reddit.com/r/news/comments/1qzf47y/federal_statement_on_jeffrey_epsteins_death_dated/o4ac6l9/
 
-"sanewashing". Reddit consumer is blind to Neil Postman NYU NYC teaching from Manhattan. The 1985 book, decades and decades ago, explaining comedy-washing amusement-washing that the Reddit comments are doing constantly. Reddit is the problem, elevating the White House and Kremlin to Gods of Comedy Jokes. Reddit is the milking factor of "LOL cows". Neil Postman was correct in year 1985 about the meme stupor behaviors of Reddit fandom to reactionary commenting.
+"sanewashing". Reddit consumer is blind to Neil Postman NYU NYC teaching from Manhattan. The 1985 book, decades and decades ago, explaining comedy-washing amusement-washing that the Reddit comments are doing constantly. Reddit is the problem, elevating the White House and Kremlin to Gods of Comedy Jokes. Reddit is the milking factory of "LOL cows". Neil Postman was correct in year 1985 about the meme stupor behaviors of Reddit fandom to reactionary commenting.
 
 https://old.reddit.com/r/news/comments/1qzf47y/federal_statement_on_jeffrey_epsteins_death_dated/o4aa1zv/
 
 Chanting simplistic game-loop rituals of Reddit fandom to White House antics. Half-year old Reddit account. Twitter-bird singing little slogans and meme patterns to follow the leaders, reacting to White House and federal statements. Meme addicts gone wild, going wild in the audience like they are cheering on a money-winning Game Show. All conditioned and manipulated by the billionaire media systems. In a simulation of resistance that is in true true real reality a fandom of racing to notifications about Kremlin and White House antics. High-speed information system gamers on Reddit.
+
 
 https://old.reddit.com/r/news/comments/1qzf47y/federal_statement_on_jeffrey_epsteins_death_dated/o4aamhi/
 
@@ -1566,3 +1567,5 @@ THE **SURKOV STUDENTS** HAVE WON!!! BIGGEST RFK / JFK / RFK JR / TRUMP-PUTIN WIN
 * 1993, that is 1985 + 8. Count the years since years since 1983, reel in those years. Duke University. Texan Rick Roderick.
 * * "I mean, **my kids will have live in more of it than I** will ever see. So I am trying to understand it and think about it as much as I can, and a sense you get is one that resembles vertigo. How many of you have seen Vertigo, the great Alfred Hitchcock movie? You know, that ***sort of sickly sense*** that you are twisting above… sort of, abysmally too much of something. This seems to me a fine, sort of, mood characterisation for the postmodern trajectory. A sense of vertigo before **all this information**.
 Well if theses like the ones that I just described that Baudrillard holds are true… But of course **the word “true” will no longer apply**, because we will be in a setting in which **you won’t want the true**, you will want the truer than true. You won’t even… The **false won’t even be a good enough lie for you**, you’ll want the lie better than a lie. I mean, the truer than true explanation. You won’t just want Oliver Stone‘s film about JFK. **You’ll want the film about how Oliver Stone himself participated in the plot to cover up the real assassins by making the film JFK**. They want the truth about the truth about the truth and all the way down, interminably. Vertigo. That’s ***the sense you get looking down that chain of bizarre stories***."
+
+Social post { https://autistics.life/@RoundSparrow/116036508190937116 https://bsky.app/profile/roundsparrow.bsky.social/post/3meelym3scs2q }
