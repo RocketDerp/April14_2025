@@ -944,3 +944,9 @@ https://old.reddit.com/r/europe/comments/1qykdii/zelensky_says_us_is_readying_hu
 https://old.reddit.com/r/europe/comments/1qykdii/zelensky_says_us_is_readying_huge_economic_deals/o455ow8/
 
 5 month Reddit account
+
+https://old.reddit.com/r/MurderedByWords/comments/1qz69ow/booing_the_vicepresident/o48hu47/
+
+https://old.reddit.com/r/MurderedByWords/comments/1qz69ow/booing_the_vicepresident/o48iubd/
+
+As I have made a central theme on this  GitHub project... fiction outsells nonfiction. Nobody is going to censor a popular scene in a science fiction story like Star Wars Andor year 2025 or Quran science fiction story from year 635. People can keep discussing a Star Wars scene or a page of Mohammad's Quran fiction. This loophole is actively being utilized. Fox News HDTV can claim it is { amusement, entertainment, comedy, SNL Weekend Update, fantasy mythos }.
