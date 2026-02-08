@@ -1042,3 +1042,7 @@ Apple computers, iPhone / iPod / iPad ...
 https://old.reddit.com/r/NFLv2/comments/1qzkgdw/good_business_decision/o4bfu66/
 
 https://old.reddit.com/r/law/comments/1qzm05x/urgent_smoking_gun_we_found_the_map_to_the/o4c4c5r/
+
+https://old.reddit.com/r/International/comments/1qzhbr1/this_should_not_be_redacted/o4asgxo/
+
+1 day Reddit account. front page of Reddit /r/All
