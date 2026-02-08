@@ -193,4 +193,14 @@ People are so programmed to say "both sides alert" that they can't face the Midd
 
 HOW DO YOU SHOW you are FREE of the Surkov monomyth? You point to Dr Bandy X Lee's SCIENCE TEACHING, no fiction science story storytelling of Quran, Torah, Bible, Book of Mormon, L Ron Hubbard, Rupert Murdoch, etc. You keep repeating and teaching Dr. Bandy X Lee's compilation and research until every person age 12 and above in USA is on the same page of topics. You point to Dr. Carl Sagan, you point to Neil Postman, get you get people on the same page of self-awareness to compulsive science fiction storytelling of The Bible and Fox News! THEN you study Surkov! Starting with October 20, 2011 - FAR BEFORE the November 2016 election! https://www.lrb.co.uk/the-paper/v33/n20/peter-pomerantsev/putin-s-rasputin
 
+https://old.reddit.com/r/starterpacks/comments/bhzl4e/comment/elwygzl/
 
+Hyper banal. A fundamental failure to grasp Edward Bernays inception. "Torches of Freedom". Easter Sunday, New York City. A complete failure to grasp newspaper to newspaper wire network media ecology. SEE_ALSO https://old.reddit.com/r/videos/comments/9p4h74/edward_bernays_explains_how_he_sold_american/
+
+https://old.reddit.com/r/WhiteHouseHyperReal/comments/bi1rll/meta_popularity_wins_of_celebrity_fox_news_world/elxc5mv/
+
+My comment.
+
+https://old.reddit.com/r/WhiteHouseHyperReal/comments/bi1rll/meta_popularity_wins_of_celebrity_fox_news_world/elxc8nq/
+
+My comment.
