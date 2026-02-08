@@ -21,13 +21,13 @@ USA population is blind that amusement jokes are why Donald Trump became most po
 
 &nbsp;
 
-# Some Mechanics Off the Jokes
+# Some Mechanics Of the Jokes
 
-Machine mechanics are involved i the joke
+Machine mechanics are involved in the joke
 
 The distance between peers on social machine systems.
 
-* “Youth instinctively understands the present environment—the electric drama. It lives mythically and in depth. This is the reason for the great alienation between generations.”
+* “Youth instinctively understands the present environment — the **electric drama**. It lives **mythically** and in depth. This is the reason for the great alienation between generations.”
 * *  the book “The Medium is the Massage: An Inventory of Effects” by media analyst Marshall McLuhan and graphic designer Quentin Fiore, and coordinated by Jerome Agel. It was published in March 1967
   *  https://www.theMediumistheMassAge.com/the-book/
 
@@ -35,3 +35,14 @@ The distance between peers on social machine systems.
 
 
 * See Also "Brain Rot Society 47" topic of Logic vs. Reason thinking mechanics. https://GitHub.com/GreatSealUSA/Brainrot_Society_47/blob/main/Logical/Too_Much_Logic_Thinking.md
+
+&nbsp;
+
+# Trump 2 Joke beyond "Infinite Jest IV" potency
+
+The inability to stop compulsive joking about Donald Trump's diapers and poop toilet humor is the Trump 2 joke. Joke-washing and amusement-washing became constantly game-loop grinding mechanisms of Trump and ICE power. Reddit social is the core platform for cleaning and washing Trump as a prized nugget of shit to joke about constantly.
+
+The mechanism at play here is mob mentality. Technically gifted and experienced technical of Reddit who know how to use high speed information systems... and steer them towards their infantile poop humor. Because they have use the mechanism of ICE masking their own identity, their own home city, their own real life. This mechanic is the monster force of Reddit culture.
+
+1. I created this teaching SubReddit on Reddit itself. "Hyper Banalization" https://old.Reddit.com/r/HyperBanalisation/comments/bjf6ys/under_the_surkov_media_invasion_of_russia_usa/ - to describe the poop smearing Reddit fandoms of Trump.
+
