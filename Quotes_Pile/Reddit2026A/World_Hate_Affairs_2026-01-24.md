@@ -1548,3 +1548,8 @@ UK World News site posting on Reddit media. 6 month Reddit account is top commen
 https://old.reddit.com/r/news/comments/1qzf47y/federal_statement_on_jeffrey_epsteins_death_dated/o4aajtw/
 
 Reddit is the laughing amplifiers. Reddit audience gets their laughs at Putin and Trump Reality TV governing, "Surkov Governing", and eats it up. Trump and others play Tony Clifton antics of "playing dumb" to the Reddit fandom and the Reddit fandom does what happens in Clifton performances - mocks back at Clifton the character as { moron, dumb, idiot, stupid, terrible }. Surkov won since March 2013, NATO lost.
+
+https://old.reddit.com/r/news/comments/1qzf47y/federal_statement_on_jeffrey_epsteins_death_dated/o4ac6l9/
+
+"sanewashing". Reddit consumer is blind to Neil Postman NYU NYC teaching from Manhattan. The 1985 book, decades and decades ago, explaining comedy-washing amusement-washing that the Reddit comments are doing constantly. Reddit is the problem, elevating the White House and Kremlin to Gods of Comedy Jokes. Reddit is the milking factor of "LOL cows". Neil Postman was correct in year 1985 about the meme stupor behaviors of Reddit fandom to reactionary commenting.
+
