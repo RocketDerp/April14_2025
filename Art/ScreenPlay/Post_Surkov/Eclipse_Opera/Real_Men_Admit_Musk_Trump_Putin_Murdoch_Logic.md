@@ -6,8 +6,8 @@ https://autistics.life/@RoundSparrow/116036270577041794
 &nbsp;
 
 https://www.youtube.com/watch?v=eAyEb36SJYs   
-"Haley Johnsen - The Logical Song by Supertramp"    
-161,060 views  Jan 6, 2023  
+"Haley Johnsen - The Logical Song by Supertramp"   
+161,060 views January 6, 2023  
 
 Eclipse Opera / Cynical Opera   
 Watch What You Say : Real Men Admit And Say    
