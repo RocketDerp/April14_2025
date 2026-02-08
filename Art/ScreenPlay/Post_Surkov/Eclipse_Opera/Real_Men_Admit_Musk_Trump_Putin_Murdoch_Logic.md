@@ -1,5 +1,10 @@
 # Real Men Admit: Musk, Trump, Murdoch, Putin... *Logic*
 
+https://bsky.app/profile/greatsealusa.bsky.social/post/3meeijlavw224   
+https://autistics.life/@RoundSparrow/116036270577041794   
+
+&nbsp;
+
 https://www.youtube.com/watch?v=eAyEb36SJYs   
 "Haley Johnsen - The Logical Song by Supertramp"    
 161,060 views  Jan 6, 2023  
