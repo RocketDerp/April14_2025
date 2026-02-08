@@ -1597,3 +1597,9 @@ ASK YOURSELF THESE QUESTIONS OVER AND OVER as you read the millions of Bluesky a
 <img width="946" height="182" alt="image" src="https://github.com/user-attachments/assets/71bc94e0-1bd8-4e0e-a627-35af9a8f77a7" />
 
 Alexandria Ocasio-Cortez. 2,201,124 followers. WHY does nobody recognize this as a media ecology crisis? The topic of Neil Postman? "The Brainwashing of My Dad" 🎬 film and 📕 book" 1,328 followers
+
+Obligatory **Sunday Church** recall from year 1968. A man who **USA** Atlanta, Georgia born - was not a GOVERNMENT representative... a man OUTSIDE GOVERNMENT. Like February 2026 the woman Jen Senko with only 1,328 followers, outside government. Like the woman Dr. Bandy X Lee with 27 people in her book... outside government.
+
+* " And somehow this warm glow we feel when we are praised or when our name is in print is something of the **vitamin A to our ego**. Nobody is unhappy when they are praised, even if they know they don't deserve it and even if they don't believe it. The only unhappy people about praise is when that praise is going too much toward somebody else. But everybody likes to be praised because of this real drum major instinct."
+
+OPERA_A We found The Rats on Reddit and Bluesky, the population of Reddit and BLuesky, who won't follow Jen Senko and Dr. Bandy X Lee and fall for Putin's masculine macho bullshit. September 1982. https://www.youtube.com/watch?v=gxv4g1jATks 1,351 views  June 26, 2013 - listen to the opening lyrics. Year 2026 is the "Streets of the future"...
