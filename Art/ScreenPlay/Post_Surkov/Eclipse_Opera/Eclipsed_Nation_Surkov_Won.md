@@ -10,6 +10,18 @@ https://autistics.life/@RoundSparrow/116036069729161185
 
 &nbsp;
 
+HASHTAGS: #OnceUponATime "Once Upon a Time" There was Light in our USA Nation. Once upon our time Putin and Trump did not Eclipse our nation. #EclipseOpera
+
+HASHTAGS: #NATOlost #GreatSealUSARevival2026 
+
+HASHTAGS: Once upon a time we followed the Light. #TheEnlightenment of the eye on the pyramid of the #FreeMasonsRemedial understandings. 
+
+https://www.youtube.com/watch?v=lcOxhH8N3Bo   
+
+&nbsp;
+
+&nbsp;
+
 # Be The *New Man*
 
 Be The New Mankind  
@@ -27,7 +39,7 @@ Call to the feminine attitudes and spirits, USA rebirth year 250. MAGA toxic agg
 
 HASHTAGS: #BeTheNewMan /\ Intelligence thoughtful soulful mankind
 
-https://www.youtube.com/watch?v=E6l5ezErGuw
+https://www.youtube.com/watch?v=E6l5ezErGuw   
 
 &nbsp;
 
