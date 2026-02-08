@@ -153,3 +153,7 @@ https://old.reddit.com/r/TikTokCringe/comments/1qz9oc5/her_father_cheated_with_a
 https://old.reddit.com/r/TikTokCringe/comments/1qz9oc5/her_father_cheated_with_an_ai_chatbot/o49fkr2/
 
 SILENCE_IN_MARRIAGE APATHY_MARRIAGE Tower of Babel internal to marriage.
+
+https://old.reddit.com/r/popculturechat/comments/1qzh2d2/katy_perry_wishes_bad_bunny_for_super_bowl/o4b4mt7/
+
+https://old.reddit.com/r/popculturechat/comments/1qzh2d2/katy_perry_wishes_bad_bunny_for_super_bowl/o4b6mdr/
