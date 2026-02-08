@@ -1017,3 +1017,7 @@ More importantly, conspiracy is a way to maintain control. In a world where even
 https://old.reddit.com/r/nottheonion/comments/1qzjwa5/andrew_tate_says_hes_too_smart_to_read_and_books/o4balvp/
 
 Reddit audience turns into "LOL" meme stupors.
+
+https://old.reddit.com/r/WorkReform/comments/1qzeqmy/lmao_they_held_a_march_for_billionaires_in/o4a81tr/
+
+Reddit audience into "LMAO" (see posting titles) meme stupors. Billionaires bombard Reddit community into mockery and comedy mindsets.
