@@ -135,3 +135,8 @@ February 28, 1954: "Most people can't stand up for their convictions, because th
 https://old.reddit.com/r/PeterExplainsTheJoke/comments/1qyo1ok/petah/o44youl/
 
 https://old.reddit.com/r/PeterExplainsTheJoke/comments/1qyo1ok/petah/o456km1/
+
+https://old.reddit.com/r/UmaMusume/comments/1qyrv1h/february_7th_twitter_incident/o45tg44/
+
+Reddit fandoms for Trump diapers too? People are so entertained by everything, no sense of need to spend free time and spare time doing cult deprogramming teaching to the USA / MAGA / Trump / Putin cults.
+
