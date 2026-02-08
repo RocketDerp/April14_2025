@@ -1587,6 +1587,13 @@ ASK YOURSELF THESE QUESTIONS OVER AND OVER as you read the millions of Bluesky a
 
 4. Why are women leaders of society, government and non-government alike, Kamala Harris - not followed by the masculine tech-love machine-love Reddit community?
 
-ASK YOURSELF THESE QUESTIONS OVER AND OVER as you read the millions of Bluesky and Reddit comments... on Super Bowl Micorosft founder Paul Allen Seattle Seahawks tech male super-medical players sports icon USA NFL public dream... USA society biggest media event day... why are Jen Senko nonfiction and Dr. Bandy X. Lee nonfiction - not promoted by people with spare time and free time on Reddit commenting and Bluesky commenting... WHY?
+5. <img width="946" height="182" alt="image" src="https://github.com/user-attachments/assets/47f24fb0-7298-483d-8c10-681894a353ab" />
+* "Alexandria Ocasio-Cortez"
+* 2,201,124 followers
+* Why is AOC, Alexandria Ocasio-Cortez - a TLA -  a legend in her own time, not pointing her fandom and Bluesky media audience to nonfiction of book of... Dr. Bandy X Lee's 27 participants in her October 3, 2017 book over and over and over since year 2017? Why is AOC not using Bluesky media to promote Jen Senko right on Bluesky?
 
+ASK YOURSELF THESE QUESTIONS OVER AND OVER as you read the millions of Bluesky and Reddit comments... on Super Bowl Microsoft founder Paul Allen Seattle Seahawks tech male super-medical players sports icon USA NFL public dream... USA society biggest media event day... why are Jen Senko nonfiction and Dr. Bandy X. Lee nonfiction - not promoted by people with spare time and free time on Reddit commenting and Bluesky commenting... WHY?
 
+<img width="946" height="182" alt="image" src="https://github.com/user-attachments/assets/71bc94e0-1bd8-4e0e-a627-35af9a8f77a7" />
+
+Alexandria Ocasio-Cortez. 2,201,124 followers. WHY does nobody recognize this as a media ecology crisis? The topic of Neil Postman? "The Brainwashing of My Dad" 🎬 film and 📕 book" 1,328 followers
