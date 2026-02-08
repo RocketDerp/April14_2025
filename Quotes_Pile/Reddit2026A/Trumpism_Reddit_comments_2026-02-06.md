@@ -1021,3 +1021,7 @@ Reddit audience turns into "LOL" meme stupors.
 https://old.reddit.com/r/WorkReform/comments/1qzeqmy/lmao_they_held_a_march_for_billionaires_in/o4a81tr/
 
 Reddit audience into "LMAO" (see posting titles) meme stupors. Billionaires bombard Reddit community into mockery and comedy mindsets.
+
+https://old.reddit.com/r/PublicFreakout/comments/1qz9hlx/maga_gets_beat_in_front_of_his_kids_for_singing/o4a934s/
+
+https://old.reddit.com/r/PublicFreakout/comments/1qz9hlx/maga_gets_beat_in_front_of_his_kids_for_singing/o4958q4/
