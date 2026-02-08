@@ -903,3 +903,29 @@ https://old.reddit.com/r/Fauxmoi/comments/1qyw9yq/ossoff_youre_seeing_what_im_se
 
 https://old.reddit.com/r/Fauxmoi/comments/1qyw9yq/ossoff_youre_seeing_what_im_seeing_right_the/o46vj7r/
 
+https://old.reddit.com/r/circled/comments/1qywb0j/could_this_be_true/o46uk65/
+
+https://old.reddit.com/r/circled/comments/1qywb0j/could_this_be_true/o46xxbd/
+
+If you can't see on Bluesky and Reddit that people do not promote Dr. Bandy X Lee, Jen Senko, or other serious nonfiction topics to do cult deprogramming and take brainwashing a a serious topic... insulting and mocking Donald Trump is not dealing with the Fox News HDTV cult of fiction storytelling.
+
+https://old.reddit.com/r/circled/comments/1qywb0j/could_this_be_true/o46qkev/
+
+https://old.reddit.com/r/circled/comments/1qywb0j/could_this_be_true/o46zcoo/
+
+https://old.reddit.com/r/circled/comments/1qywb0j/could_this_be_true/o46vv6u/
+
+https://old.reddit.com/r/circled/comments/1qywb0j/could_this_be_true/o4786z4/
+
+https://old.reddit.com/r/circled/comments/1qywb0j/could_this_be_true/o46xcid/
+
+https://old.reddit.com/r/circled/comments/1qywb0j/could_this_be_true/o46ze83/
+
+https://old.reddit.com/r/circled/comments/1qywb0j/could_this_be_true/o472jj0/
+
+https://old.reddit.com/r/circled/comments/1qywb0j/could_this_be_true/o46znxg/
+
+https://old.reddit.com/r/circled/comments/1qywb0j/could_this_be_true/o47671m/
+
+https://old.reddit.com/r/circled/comments/1qywb0j/could_this_be_true/o47augx/
+
