@@ -1569,3 +1569,23 @@ THE **SURKOV STUDENTS** HAVE WON!!! BIGGEST RFK / JFK / RFK JR / TRUMP-PUTIN WIN
 Well if theses like the ones that I just described that Baudrillard holds are true… But of course **the word “true” will no longer apply**, because we will be in a setting in which **you won’t want the true**, you will want the truer than true. You won’t even… The **false won’t even be a good enough lie for you**, you’ll want the lie better than a lie. I mean, the truer than true explanation. You won’t just want Oliver Stone‘s film about JFK. **You’ll want the film about how Oliver Stone himself participated in the plot to cover up the real assassins by making the film JFK**. They want the truth about the truth about the truth and all the way down, interminably. Vertigo. That’s ***the sense you get looking down that chain of bizarre stories***."
 
 Social post { https://autistics.life/@RoundSparrow/116036508190937116 https://bsky.app/profile/roundsparrow.bsky.social/post/3meelym3scs2q }
+
+https://old.reddit.com/r/circled/comments/1qzc102/election_interference_france_isnt_happy_with_musk/o49oupg/
+
+The programmed (billionaire programming) mindset of USA on Reddit... is that... "USA" means The Government. Not "We The People". There is no PLURIBUS concept in the Reddit hive mind that 0.34 billion people are responsible for the nation's behavior. That in a democracy, every minute of every day, we represent. Even those too young, even non-voters.
+
+ASK YOURSELF THESE QUESTIONS OVER AND OVER as you read the millions of Bluesky and Reddit comments: 
+
+1. <img width="1614" height="175" alt="image" src="https://github.com/user-attachments/assets/9520d506-4df3-4c63-aa34-104a71d2702a" />
+* "The Brainwashing of My Dad" 🎬 film and 📕 book
+* 1,328 followers
+2. Why are there so few followers of a woman, a baby boomer woman in a red state of Arizona? Why on Reddit do you constantly see commenting about "braindead", "brainwashed", "cult"... and everyone is not using social media to link this Bluesky account? Why only 1,328 followers on 2026-02-08 noonish in USA?
+
+3. <img width="893" height="178" alt="image" src="https://github.com/user-attachments/assets/1a22fb09-7b92-4a35-b21e-35c3f53ab270" />
+* Bandy X Lee, MD, MDiv
+* 3,144 followers
+
+4. Why are women leaders of society, government and non-government alike, Kamala Harris - not followed by the masculine tech-love machine-love Reddit community?
+
+ASK YOURSELF THESE QUESTIONS OVER AND OVER as you read the millions of Bluesky and Reddit comments... on Super Bowl Micorosft founder Paul Allen Seattle Seahawks tech male super-medical players sports icon USA NFL public dream... society biggest media event day...
+
