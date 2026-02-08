@@ -955,3 +955,7 @@ https://old.reddit.com/r/MurderedByWords/comments/1qz69ow/booing_the_vicepreside
 
 Many on Reddit can't fathom or interpret beyond the TLDR barrier, ELI4 barrier, and fiction vs. nonfiction barriers. Shuffle syntax of language usage around and audiences on SubReddits are compulsively attracted to Donald Trump styles of mocking.
 
+https://old.reddit.com/r/MurderedByWords/comments/1qz69ow/booing_the_vicepresident/o48ipbs/
+
+"The lies", that's fiction storytelling - Reddit audiences love discussing fiction plot points and scenes in Lord of the Rings, Star Wars Andor, Fallout video game and TV... but when it comes to nonfiction from. Dr. Bandy X Lee... can't keep going back to the nonfiction science and learning well...
+
