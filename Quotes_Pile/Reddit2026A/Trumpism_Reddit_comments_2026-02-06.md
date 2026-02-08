@@ -838,3 +838,14 @@ So many men who worship Trump Daddy Issues / Putin Daddy Issues - want to silenc
 https://old.reddit.com/r/Fauxmoi/comments/1qyv7yg/sorry_baby_director_eva_victor_tells_ricky/o46eqdz/
 
 https://old.reddit.com/r/Fauxmoi/comments/1qyv7yg/sorry_baby_director_eva_victor_tells_ricky/o46g1jo/
+
+https://old.reddit.com/r/law/comments/1qym2d4/nsa_detected_phone_call_between_foreign/o44ohnx/
+
+https://old.reddit.com/r/law/comments/1qym2d4/nsa_detected_phone_call_between_foreign/o4532bw/
+
+https://old.reddit.com/r/law/comments/1qym2d4/nsa_detected_phone_call_between_foreign/o44w0hv/
+
+https://old.reddit.com/r/law/comments/1qym2d4/nsa_detected_phone_call_between_foreign/o44ug6v/
+
+https://old.reddit.com/r/law/comments/1qym2d4/nsa_detected_phone_call_between_foreign/o46b1jy/
+
