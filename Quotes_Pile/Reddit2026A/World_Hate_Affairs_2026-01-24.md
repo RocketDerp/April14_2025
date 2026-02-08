@@ -1539,3 +1539,9 @@ https://old.reddit.com/r/quilting/comments/1qyppfs/we_know_what_we_saw/o45axlr/
 **Witnessing Hate Affairs**
 
 Social post { https://autistics.life/@RoundSparrow/116032060979032918 https://bsky.app/profile/roundsparrow.bsky.social/post/3mecmquhbbc2x }
+
+
+https://old.reddit.com/r/news/comments/1qzf47y/federal_statement_on_jeffrey_epsteins_death_dated/o4a9og9/
+
+UK World News site posting on Reddit media. 6 month Reddit account is top comment, most-upvoted popular.
+
