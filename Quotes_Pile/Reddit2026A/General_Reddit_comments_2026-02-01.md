@@ -143,3 +143,13 @@ Reddit fandoms for Trump diapers too? People are so entertained by everything, n
 https://old.reddit.com/r/PeterExplainsTheJoke/comments/1qyrn7p/how_does_this_scare_overseas_readers/o45p3de/
 
 https://old.reddit.com/r/todayilearned/comments/1qz1lp0/til_that_chess_players_do_not_in_fact_burn_an/o47o78r/
+
+https://old.reddit.com/r/TikTokCringe/comments/1qz9oc5/her_father_cheated_with_an_ai_chatbot/o497xau/
+
+CHOICE_MARRIAGE_HONESTY
+
+https://old.reddit.com/r/TikTokCringe/comments/1qz9oc5/her_father_cheated_with_an_ai_chatbot/o49irti/
+
+https://old.reddit.com/r/TikTokCringe/comments/1qz9oc5/her_father_cheated_with_an_ai_chatbot/o49fkr2/
+
+SILENCE_IN_MARRIAGE APATHY_MARRIAGE Tower of Babel internal to marriage.
