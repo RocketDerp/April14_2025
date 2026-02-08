@@ -897,4 +897,9 @@ https://old.reddit.com/r/technology/comments/1qyw8me/homeland_security_spying_on
 
 https://old.reddit.com/r/technology/comments/1qyw8me/homeland_security_spying_on_reddit_users/o46qwxp/
 
+https://old.reddit.com/r/Fauxmoi/comments/1qyw9yq/ossoff_youre_seeing_what_im_seeing_right_the/o46vd09/
+
+https://old.reddit.com/r/Fauxmoi/comments/1qyw9yq/ossoff_youre_seeing_what_im_seeing_right_the/o46wi2z/
+
+https://old.reddit.com/r/Fauxmoi/comments/1qyw9yq/ossoff_youre_seeing_what_im_seeing_right_the/o46vj7r/
 
