@@ -1038,3 +1038,6 @@ https://old.reddit.com/r/WorkReform/comments/1qzeeqh/the_atlantic_is_owned_by_st
 Apple computers, iPhone / iPod / iPad ... 
 
 “Shaw once remarked that all professions are conspiracies against the laity. I would go further: in Technopoly, all experts are invested with the charisma of priestliness. Some of our priest-experts are called psychiatrists, some psychologists, some sociologists, some statisticians. The god they serve does not speak of righteousness or goodness or mercy or grace. Their god speaks of efficiency, precision, objectivity. And that is why such concepts as sin and evil disappear in Technopoly. They come from a moral universe that is irrelevant to the theology of expertise. And so the priests of Technopoly call sin “social deviance,” which is a statistical concept, and they call evil “psychopathology,” which is a medical concept. Sin and evil disappear because they cannot be measured and objectified, and therefore cannot be dealt with by experts.” ― Neil Postman, Technopoly: The Surrender of Culture to Technology. Year 1992.
+
+https://old.reddit.com/r/NFLv2/comments/1qzkgdw/good_business_decision/o4bfu66/
+
