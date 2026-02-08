@@ -929,3 +929,18 @@ https://old.reddit.com/r/circled/comments/1qywb0j/could_this_be_true/o47671m/
 
 https://old.reddit.com/r/circled/comments/1qywb0j/could_this_be_true/o47augx/
 
+https://old.reddit.com/r/europe/comments/1qykdii/zelensky_says_us_is_readying_huge_economic_deals/o45isb4/
+
+https://old.reddit.com/r/europe/comments/1qykdii/zelensky_says_us_is_readying_huge_economic_deals/o456kft/
+
+https://old.reddit.com/r/europe/comments/1qykdii/zelensky_says_us_is_readying_huge_economic_deals/o44xig8/
+
+https://old.reddit.com/r/europe/comments/1qykdii/zelensky_says_us_is_readying_huge_economic_deals/o44z2gc/
+
+https://old.reddit.com/r/europe/comments/1qykdii/zelensky_says_us_is_readying_huge_economic_deals/o458z28/
+
+https://old.reddit.com/r/europe/comments/1qykdii/zelensky_says_us_is_readying_huge_economic_deals/o462g5k/
+
+https://old.reddit.com/r/europe/comments/1qykdii/zelensky_says_us_is_readying_huge_economic_deals/o455ow8/
+
+5 month Reddit account
