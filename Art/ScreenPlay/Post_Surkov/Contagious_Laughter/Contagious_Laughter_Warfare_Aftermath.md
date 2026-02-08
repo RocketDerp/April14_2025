@@ -15,6 +15,8 @@ USA population is blind that amusement jokes are why Donald Trump became most po
 
 * It is part of the "Found Dramas" or experimental films created by James Incandenza, described as a "soliloquized parody" or a slice-of-life, with the "joke" being the viewer watching themselves. OPERA_A Essential Dandom. Lyrics: "Show business kids making movies of themselves! You know they don't give a fuck about anybody else!" - Egomania - My Civic Ditty to call-out. https://www.youtube.com/watch?v=-SR48XA3hss
 
+* The film "Infinite Jest (IV)" is also listed in the filmography as a potential earlier, perhaps even more dangerous version of the "Entertainment" (the cartridge that is the focus of the novel).
+
 &nbsp;
 
 &nbsp;
