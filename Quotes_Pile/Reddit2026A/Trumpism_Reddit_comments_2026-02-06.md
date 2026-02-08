@@ -820,3 +820,7 @@ https://old.reddit.com/r/sports/comments/1qyrbsf/team_usa_figure_skater_amber_gl
 So many men who worship Trump Daddy Issues / Putin Daddy Issues - want to silence a woman with powerful masculine meme devices.
 
 * "The extremists are afraid of books and pens. The power of education frightens them. They are afraid of women. The power of the voice of women frightens them." - July 12, 2013 https://malala.org/news-and-voices/malala-un-speech
+
+https://old.reddit.com/r/Music/comments/1qyt9w6/kid_rocks_maga_fest_cancelled_after_nearly_all/o460sde/
+
+Trump fandom on Reddit loves the mockery. Tiny-short messaging of repeating Trump MAGA talking points over and over and over. ANYTHING to avoid promoting Dr. Bandy X Lee's October 3, 2017 nonfiction book on mental health. Nor teaching nonfiction cult deprogramming.
