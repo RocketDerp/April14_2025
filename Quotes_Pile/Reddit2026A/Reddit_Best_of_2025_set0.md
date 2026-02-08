@@ -52,7 +52,7 @@ That making fun of bad people isn't funny-washing, LOL-washing and turning crime
 
 https://old.reddit.com/r/behindthebastards/comments/1myl480/the_lolcow_industrial_complex_is_ablist_as_fuck/naemfrh/
 
-The ENTIRE USA, the ENTIRE POPULATION is a victim of abuse by Rupert Murdoch LOL-cow milking Donald J. Trump for selling of entertainment content Fox News HDTV. I will keep trying to rephrase until my last dying breath. Mob mentality is a real thing. Mafia mentality is Trumpism Fox News. AVOIDING Dr. Bandy X Lee's nonfiction books because everyone is mocking away at Trump on social machines day in and day out since October 3, 2017 publication... mockery in ob mentality to exploit group-thinking mob mentality is a true and real problem.
+The ENTIRE USA, the ENTIRE POPULATION is a victim of abuse by Rupert Murdoch LOL-cow milking Donald J. Trump for selling of entertainment content Fox News HDTV. I will keep trying to rephrase until my last dying breath. Mob mentality is a real thing. Mafia mentality is Trumpism Fox News. AVOIDING Dr. Bandy X Lee's nonfiction books because everyone is mocking away at Trump on social machines day in and day out since October 3, 2017 publication... mockery in mob mentality to exploit group-thinking mob mentality is a true and real problem.
 
 * “For in the end, he was trying to tell us what afflicted the people in 'Brave New World' was not that they were laughing instead of thinking, but that they did not know what they were laughing about and why they had stopped thinking.”
 ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. Year 1985. Nonfiction book on paper.
