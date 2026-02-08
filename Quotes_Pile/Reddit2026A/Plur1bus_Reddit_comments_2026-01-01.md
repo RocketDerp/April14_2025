@@ -2449,3 +2449,7 @@ The video gamer. The pro-ignorance leader with money who leads his friends with 
 
 The real world of reality, outside his small circle, he exploits to play video games. He does not study nonfiction of real Earth science, travel locations, etc. There are thousands upon thousands of nonfiction books at the public library, but Jesse seeks out entertainment and shutting off his brain above his hot girlfriend and nonfiction public library learning as adult activities. He could have been a leader of family cancer support, etc from his real-world life experience. But the lure of fiction video games and television fiction appeals more than real-world cancer helping others through education and teaching.
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pubkas/pluribus_1x09_la_chica_o_el_mundo_episode/o3glt7e/
+
+More Walter White drug meth audience members who push drugs as the answer to media interpretation problems. Simple-short logic minded people that think like RFK Jr. So many druggies in USA who can't think freely, can't grasp PLURIBUS is a Free Masons Free Thinking concept.
+
