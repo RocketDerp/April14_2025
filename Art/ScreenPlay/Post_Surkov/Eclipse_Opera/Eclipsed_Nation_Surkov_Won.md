@@ -13,4 +13,7 @@ ToDo:
 1. Vanessa Carlton eclipse, Ordinary Day
 2. Pink Floyd Eclipse / Brain Damage (Brain Rot Society 47 link)
 
-3. 
+3. "Turn around, bright eyes" from eclipse of the inward heart lyrics. MLK Jr left behind quotes. Styx Suite Madame Blue, long ago in the past, turn around ending lyrics.
+4. "Bright eyes" lyrics to Suite Madame Blue ... Looking glass.
+
+
