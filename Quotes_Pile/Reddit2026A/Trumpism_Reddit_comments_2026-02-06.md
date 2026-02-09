@@ -1065,3 +1065,15 @@ OPERA_A I grew up in Fort Wayne, Indiana. This was recorded in December 11, 1987
 To a world full of people **just living to be heard**" - people do not fucking listen to the sexual abuse and broken families all around them in every USA city. Lyrics: "You can't tell your best buddy that you love him"; "getting **too drunk** on Saturdays(Check it out) playing football with the kids on Sundays" - NFL Super Bowl **Sunday** today, fucking LOOK AROUND! Drunks will be abusing at the end of the game. Advertised and marketed by the most gifted talented media systems devised by mankind! "And this is all that we've learned about living" - 11,492,701 views October 5, 2009 - I shared this music video to Africa, Tunisia and Algeria as part of the Arab Spring 2010 online - showing the music I grew up with in Indiana.
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mef53nalqs2v https://autistics.life/@RoundSparrow/116037709826010135 }
+
+https://old.reddit.com/r/politics/comments/1qzi35p/trump_79_targets_us_olympic_athlete_27_in_new/o4ax4cs/
+
+Putin's **Saint Peter**sburg Internet Research Agency has programmed self-harm to USA population since March 2013. Not just Trump, not just Musk, not just MAGA, not just Republicans, everyone. And people are blind that hate is prized and entirely avoiding Dr. Martin Luther King Jr's lessons about out-group hate. Today is Sunday, Bible School, Church Day, people can't read in February 2026 worth a fucking damn a science fiction story and what it has to say.
+
+The 1954 Equation
+
+Sunday, February 28, 1954: "Most people can't stand up for their convictions, because the majority of people might not be doing it. See, everybody's not doing it, so it must be wrong. And since everybody is doing it, it must be right. So a sort of numerical interpretation of what's right. But I'm here to say to you this morning that some things are right and some things are wrong. Eternally so, absolutely so. **It's wrong to hate.** It always has been wrong and it always will be wrong. It's wrong in America, it's wrong in Germany, it's wrong in Russia, it's wrong in China. It was wrong in 2000 B.C., and it's wrong in 1954 A.D. It always has been wrong, and it always will be wrong." - Martin Luther King Jr.
+
+"For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the **true becomes false and the false becomes true**. That's what hate does. You can't see right. **The symbol of objectivity** is lost." - Martin Luther King Jr.
+
+
