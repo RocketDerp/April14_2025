@@ -876,3 +876,7 @@ Yes, Alphabet Google YouTube and GitHub Microsoft are in the system. Bluesky is 
 What billionaires do is not give families something to celebrate, they rip apart relationships. They turn it into a power and wealth concentration system. A theme park for worship of the power and copyright and content creation cartels. Mecca, Quran, Mohammad science fiction storytelling of year 635. That is the "Old World Order" that the Free Masons founding fathers were educating us about with a pyramid on the Nile river symbolism. https://en.wikipedia.org/wiki/Novus_ordo_seclorum We The People have let Russia, Surkov students, push us (we, our minds) so far into monomyth mythology patterns that We The People, We The Fandoms, can no longer see the media simulations we are living under. Surkov won, USA defeated, hearts and minds lost... since March of year 2013. SEE_ALSO  https://www.theAtlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/
 
 Social post { https://midwest.social/post/43208738/22624712 }
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qzuy3f/oh_and_the_patriots_are_owned_by_a_trumper/o4e505x/
+
+Billionaire Paul Allen, Seahawks Owner, who I worked for as a media expert when the team was purchased... has laid the ignorant population into these mindsets and to completely avoid learning nonfiction from Dr. Bandy X Lee, Neil Postman, etc that all addresses the rise of Trump. https://www.theguardian.com/media/2017/feb/02/amusing-ourselves-to-death-neil-postman-trump-orwell-huxley
