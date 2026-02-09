@@ -1146,3 +1146,14 @@ https://old.reddit.com/r/BikiniBottomTwitter/comments/1qzswe7/basically_super_bo
 6 day Reddit account.
 
 Social post { https://autistics.life/@RoundSparrow/116040537718610518 https://bsky.app/profile/roundsparrow.bsky.social/post/3megfbqhyrs2w }
+
+https://old.reddit.com/r/politics/comments/1qzwjo9/a_trump_file_i_havent_seen_before_its_awful_why/o4e72vf/
+
+<img width="1607" height="1487" alt="image" src="https://github.com/user-attachments/assets/5daf0b78-8386-438e-a167-90316b93eb80" />
+
+Reddit is the medium of the problem. Reddit commenting medium is the massaging of minds. People are drowning in low-effort Reddit commenting, "engagement", "engaged" in streams and rivers of comment after comment, all fragmented on different root threads on different commenting trees on different postings. People all avoiding common FAQ and common Wiki organization. Anti-FAQ anti-Wiki, anti-organizing in favor of *reacting, reactionary* to MAGA constantly; MAGA is feeding shit into Reddit minds. Reddit is an audience to MAGA. Since Q4 2024... Bluesky is another audience to MAGA.
+
+* “When a **population** becomes distracted by trivia, when cultural **life is redefined as a perpetual round of entertainments**, when serious public conversation becomes a form of baby-talk, when, in short, **a people become an audience**, and their public business a vaudeville act, then a nation finds itself....”
+― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. Nonfiction book. SEE_ALSO https://www.youtube.com/watch?v=ETUGwC9jXCM
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3meghwzdq5s2w https://autistics.life/@RoundSparrow/116040725886202836 }
