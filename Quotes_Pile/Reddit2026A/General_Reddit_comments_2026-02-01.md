@@ -165,3 +165,7 @@ CHOICE_MARRIAGE_HONESTY PARENTING_HONESTY FAMILY_HONESTY
 https://old.reddit.com/r/AITAH/comments/1qzlyzb/aitah_for_telling_my_sil_a_family_secret_and_now/o4bslxo/
 
 SEX_SECRECY 
+
+https://old.reddit.com/r/AITAH/comments/1qzlyzb/aitah_for_telling_my_sil_a_family_secret_and_now/o4c31vw/
+
+And people on Reddit constantly claim that you can same "rape" and don't use words like "grape" or *cen**sor" your words. On this GitHub I have documented my own personal messages being censored.
