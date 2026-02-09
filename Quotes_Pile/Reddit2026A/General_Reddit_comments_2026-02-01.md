@@ -197,3 +197,7 @@ recency bias
 https://old.reddit.com/r/BatmanArkham/comments/1r01lat/how_does_a_rockstar_do_that/o4ezvdv/
 
 https://old.reddit.com/r/KitchenConfidential/comments/1r0g221/regular_customers_order/o4im71f/
+
+https://old.reddit.com/r/news/comments/1r0bh98/daughter_of_minnesota_governor_candidate_fatally/o4i2npv/
+
+language
