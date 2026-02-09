@@ -478,7 +478,7 @@ https://old.reddit.com/r/GetNoted/comments/1qxkbmm/black_maga_are_so_lost/o3wzev
 
 Destabilized Reality.
 
-* New Years Eve 2014, BBC, Adam Curtis: "A war where you never know what the enemy are really up to, or even who they are. The underlying aim, **Surkov** says, is not to win the war, but to **use the conflict to create a constant state of destabilized perception**, in order to manage and control." https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html
+* New Years Eve 2014, BBC, Adam Curtis: "A war where you never know what the enemy are really up to, or even who they are. The underlying aim, **Surkov** says, is not to win the war, but to **use the conflict to create a constant state of destabilized perception**, in order to manage and control." https://www.realclearpolitics.com/video/2014/12/31/bhttps://old.reddit.com/r/IThinkYouShouldLeave/comments/1qzogft/when_nbc_runs_a_trump_account_state_propaganda_ad/o4cfdw8/bcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html
 
 https://old.reddit.com/r/ProgressiveHQ/comments/1qxt9o3/no_wonder_the_toddler_is_unhinged_once_again_the/o3z04sx/
 
@@ -1107,5 +1107,7 @@ https://old.reddit.com/r/Music/comments/1qzoksm/turning_point_halftime_show_late
 Reddit audience, comment creators on Reddit, are in a cult of mocking other cults. Cult vs. cult. media cults. It has been going on since June 16, 2015 endlessly mocking back and fort in feedback loops about how { cult, retarded, dumb, stupid, idiot, moron } the out-group cults are. Surkov won.
 
 https://old.reddit.com/r/law/comments/1qzn92j/the_president_says_states_are_agents_of_the/o4c4h5x/
+
+https://old.reddit.com/r/IThinkYouShouldLeave/comments/1qzogft/when_nbc_runs_a_trump_account_state_propaganda_ad/o4cfdw8/
 
 
