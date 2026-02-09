@@ -1300,3 +1300,8 @@ https://old.reddit.com/r/International/comments/1r0edzh/our_country_is_a_joke/o4
 https://old.reddit.com/r/International/comments/1r0edzh/our_country_is_a_joke/o4hw3rv/
 
 An audience clowning around on Bluesky and Reddit, validating every other platform's hate messaging and clown messaging. Anti-intellectual audience programming for Reddit minds. Anything but turn to Dr. Bandy X Lee's nonfiction books as leadership.
+
+https://old.reddit.com/r/International/comments/1r0edzh/our_country_is_a_joke/o4i1sd2/
+
+Fandom of Trump / MAGA fandom. Amused and entertained and calling out in public for more comedy and amusements. Neil Postman was correct in his 1985 book. September 10, 2025: https://time.com/7313999/neil-postman-trump-prediction/ 
+
