@@ -1202,3 +1202,13 @@ Trump fandom. Reddit media is where fandom of Trump gather for shit-leader.
 https://old.reddit.com/r/Gamingcirclejerk/comments/1r05a40/in_bioshock_the_ultrarich_build_an_offshore/o4fq3dx/
 
 https://old.reddit.com/r/interestingasfuck/comments/1r07pxb/hundreds_of_private_jets_departed_the_bay_area/o4gatjl/
+
+https://old.reddit.com/r/nba/comments/1r08lua/mintzer_giannis_kalshi_and_the_death_of_trust_in/o4gfgfe/
+
+Everything is manipulation. Fandoms to fantasy men arrangement.
+
+https://old.reddit.com/r/nba/comments/1r08lua/mintzer_giannis_kalshi_and_the_death_of_trust_in/o4giflg/
+
+https://old.reddit.com/r/nba/comments/1r08lua/mintzer_giannis_kalshi_and_the_death_of_trust_in/o4gewo3/
+
+everyday people understand we have a health care crisis in USA. Some even understand other nations have solved such problems. But entertainment addiction rules this nation, people simply are not attracted to goodness.
