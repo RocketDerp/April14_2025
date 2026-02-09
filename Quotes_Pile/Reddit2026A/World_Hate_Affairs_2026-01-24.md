@@ -1616,3 +1616,5 @@ https://old.reddit.com/r/europe/comments/1r013mk/mayor_of_london_my_ultimate_goa
 https://old.reddit.com/r/europe/comments/1r013mk/mayor_of_london_my_ultimate_goal_is_to_reverse/o4ezu9z/
 
 5 month
+
+https://old.reddit.com/r/whoathatsinteresting/comments/1r0d6q9/they_trap_your_car_at_the_highway_ramp_then_walk/o4hfrll/
