@@ -810,7 +810,7 @@ Top-upvoted comment. Twitter-length short-message mindset. Eating right out of t
 
 Every hour of every day, Reddit is sane-washing JD Vance, hundreds of millions of MAGA cult members, Putin, Trump, Elon Musk. Over and over, Reddit falls for the same **antics politics** and entirely misses the point of why **over-dramatic antics** are constantly appearing on the front page of /r/All by the White House. 
 
-Reddit users have been manipulated and targeted by the Internet Research Agency.. https://www.bbc.com/news/technology-43301643 Useful Idiots is the term that Russia uses https://en.wikipedia.org/wiki/Useful_idiot (not my insult, I strive pretty hard to write things like "avoids nonfiction learning" and "unable to focus on using Google Search and finding Peter Pomerantsev's information if you want a better-quality writing than my shit English. Calling people banal "idiot" is even something Marshall McLuhan addressed https://youtu.be/2JIj0Bqbdhk?t=156 in one of his filmed interviews. It is a thought-terminating cliché.).
+Reddit users have been manipulated and targeted by the Internet Research Agency.. https://www.BBC.com/news/technology-43301643 Useful Idiots is the term that Russia uses https://en.wikipedia.org/wiki/Useful_idiot (not my insult, I strive pretty hard to write things like "avoids nonfiction learning" and "unable to focus on using Google Search and finding Peter Pomerantsev's information" ... if you want a better-quality writing than my shit English. Calling people banal "idiot" is even something Marshall McLuhan addressed https://youtu.be/2JIj0Bqbdhk?t=156 in one of his filmed interviews. Mocking "idiot"... is a thought-terminating cliché.).
 
 .
 
