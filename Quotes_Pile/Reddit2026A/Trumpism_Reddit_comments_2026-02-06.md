@@ -1181,3 +1181,9 @@ https://old.reddit.com/r/Fauxmoi/comments/1r02ogr/renee_goods_wife_makes_first_p
 
 PLURIBUS is right on the Dollar Bill. It is We The People who stopped caring about Latin phrases from year 1776 period.
 
+https://old.reddit.com/r/worldnews/comments/1r00vo9/taiwan_says_40_shift_of_chip_capacity_to_us_is/o4f0zv2/
+
+4 month Reddit account.
+
+https://old.reddit.com/r/worldnews/comments/1r00vo9/taiwan_says_40_shift_of_chip_capacity_to_us_is/o4ewh8m/
+
