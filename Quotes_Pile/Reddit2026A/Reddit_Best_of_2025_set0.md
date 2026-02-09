@@ -62,3 +62,9 @@ The ENTIRE USA, the ENTIRE POPULATION is a victim of abuse by Rupert Murdoch LOL
 https://old.reddit.com/r/politics/comments/1l8mi6y/we_published_real_photos_of_troops_sleeping_on_a/mx8jkeu/
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3lre6fhei6s2b }
+
+https://old.reddit.com/r/news/comments/1lsl81k/elon_musk_says_he_has_formed_a_new_us_political/n1jn8zb/
+
+This comment I ran across again today, and well. The horror is that this is exactly Neil Postman's 1985 book boiled down to an audience member of Reddit. Regarding... Elon Musk (richest man in the world) to Donald Trump (most powerful man in the world). We The People are motivated by entertainment and amusement above all else. Fuck-over children, fuck-over the future, poison the Earth - as long as to Big Name Status Symbols can entertain the fandom of MAGA via Reddit high-speed commenting systems.
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3ltaulv3ytk2n }
