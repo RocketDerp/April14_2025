@@ -1322,3 +1322,19 @@ https://old.reddit.com/r/TrendoraX/comments/1r0i275/crockett_the_us_is_falling_a
 https://old.reddit.com/r/TrendoraX/comments/1r0i275/crockett_the_us_is_falling_apart_partially_bc_hes/o4isx8a/
 
 https://old.reddit.com/r/TrendoraX/comments/1r0i275/crockett_the_us_is_falling_apart_partially_bc_hes/o4imhnw/
+
+https://old.reddit.com/r/Fauxmoi/comments/1r0fwl8/olympic_skier_gus_kenworthy_shared_some_of_the/o4hzcys/
+
+https://old.reddit.com/r/Fauxmoi/comments/1r0fwl8/olympic_skier_gus_kenworthy_shared_some_of_the/o4hzow7/
+
+https://old.reddit.com/r/Fauxmoi/comments/1r0fwl8/olympic_skier_gus_kenworthy_shared_some_of_the/o4i0jew/
+
+https://old.reddit.com/r/Fauxmoi/comments/1r0fwl8/olympic_skier_gus_kenworthy_shared_some_of_the/o4i22af/
+
+https://old.reddit.com/r/Fauxmoi/comments/1r0fwl8/olympic_skier_gus_kenworthy_shared_some_of_the/o4i1k3a/
+
+https://old.reddit.com/r/Fauxmoi/comments/1r0fwl8/olympic_skier_gus_kenworthy_shared_some_of_the/o4hzaiq/
+
+https://old.reddit.com/r/Fauxmoi/comments/1r0fwl8/olympic_skier_gus_kenworthy_shared_some_of_the/o4i4zq5/
+
+https://old.reddit.com/r/Fauxmoi/comments/1r0fwl8/olympic_skier_gus_kenworthy_shared_some_of_the/o4i606z/
