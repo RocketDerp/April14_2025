@@ -1119,3 +1119,12 @@ We all have eating disorders. We are constantly bombarding ourselves in USA with
   * https://rickroderick.org/306-foucault-and-the-disappearance-of-the-human-1993/
 
 * "This kind of malady is a cultural malady that strikes at the very heart of life. **Once something like eating is death then you have struck at the very heart of life**." - Rick Roderick. Such as the USA health care system. The very essence of life is bombarded out of people with constant marketing and advertising.
+
+https://old.reddit.com/r/politics/comments/1qzt8ll/bad_bunny_scandalizes_maga_with_wholesome_latin/o4dfyaq/
+
+4 month Reddit account. Top-upvoted popular comment.
+
+https://old.reddit.com/r/politics/comments/1qzt8ll/bad_bunny_scandalizes_maga_with_wholesome_latin/o4djpmv/
+
+Fandom of sports on Reddit. Fandom of half time show on Reddit. Fandom of Donald Trump on Reddit. We The People of the USA are so entertained joke-cracking about Trump that there is no resistance, there is a cheering fandom that Trump creates a situaiton of constant joking and joke-washing as sanewashing. ALWAYS AVOIDED: using free time and spare time on Reddit commenting to quote nonfiction from Dr. Bandy X Lee and the 27 leaders she assembled and published October 3, 2017.
+
