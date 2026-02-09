@@ -879,4 +879,4 @@ Social post { https://midwest.social/post/43208738/22624712 }
 
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1qzuy3f/oh_and_the_patriots_are_owned_by_a_trumper/o4e505x/
 
-Billionaire Paul Allen, Seahawks Owner, who I worked for as a media expert when the team was purchased... has laid the ignorant population into these mindsets and to completely avoid learning nonfiction from Dr. Bandy X Lee, Neil Postman, etc that all addresses the rise of Trump. https://www.theguardian.com/media/2017/feb/02/amusing-ourselves-to-death-neil-postman-trump-orwell-huxley
+Billionaire Paul Allen, Seahawks owner, who I worked for as a media expert when the team was purchased... has led the pro-ignorant sports-think population into these mindsets and to completely avoid learning nonfiction from Dr. Bandy X Lee, Neil Postman, etc that all addresses the rise of Trump. https://www.TheGuardian.com/media/2017/feb/02/amusing-ourselves-to-death-neil-postman-trump-orwell-huxley
