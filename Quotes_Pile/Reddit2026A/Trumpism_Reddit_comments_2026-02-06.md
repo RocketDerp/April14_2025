@@ -1165,5 +1165,5 @@ https://old.reddit.com/r/Music/comments/1r012t3/country_stars_turn_on_kid_rock_a
 
 2 month Reddit account. Top-upvoted, most popular comment. Twitter-length tweet-thinking.
 
-This is what the USA population is doing with spare time and free time n Monday morning. What is AVOIDED: commenting about Dr. Bandy X Lee's nonfiction book of 27 people writing about the mental health of Donald Trump and the national mental health. Published October 3, 2017. Avoided and avoided because Reddit commenting is a fandom to hate-watching Kit Rock and Trump hate-watching. https://en.wikipedia.org/wiki/Hate-watching
+This is what the USA population is doing with spare time and free time first thing Monday morning. What is AVOIDED: commenting about Dr. Bandy X Lee's nonfiction book of 27 people writing about the mental health of Donald Trump and the national mental health. https://www.GoodReads.com/author/quotes/16953723.Bandy_X_Lee Published October 3, 2017. Avoided and avoided because Reddit commenting is a fandom to hate-watching Kid Rock and Trump hate-watching. https://en.wikipedia.org/wiki/Hate-watching
 
