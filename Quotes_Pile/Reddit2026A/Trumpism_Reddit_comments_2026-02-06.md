@@ -1102,5 +1102,8 @@ The fandom of Musk X (Twitter), fandom of Kid Rock, fandom of Trump. Hate-watchi
 
 To understand why Donald Trump is the center of every media system in USA - you have to deeply analyze and study thee Reddit addictions to mocking leadership. To hate leaders. To hate-watching. https://en.wikipedia.org/wiki/Hate-watching Trump / MAGA / ICE all provide the simulation that Bluesky and Reddit fandoms constantly engage. It is sickening to watch these people do ANYTHING but support and repeat and keep repeating Dr. Bandy X Lee's nonfiction book from October 3, 2017 and have MAGA and Trump learn about the mental health disasters, the elephant in the room is avoidance of Dr. Bandy X Lee's 27 group that stood up.
 
+https://old.reddit.com/r/Music/comments/1qzoksm/turning_point_halftime_show_latest_mysterious_kid/o4cas8b/
+
+Reddit audience, comment creators on Reddit, are in a cult of mocking other cults. Cult vs. cult. media cults. It has been going on since June 16, 2015 endlessly mocking back and fort in feedback loops about how { cult, retarded, dumb, stupid, idiot, moron } the out-group cults are. Surkov won.
 
 
