@@ -821,9 +821,18 @@ Reddit users have been manipulated and targeted by the Internet Research Agency.
 
 5. ALWAYS avoided: Peter Pomerantsev's writing, videos, etc. Questioning the pattern witnessed over and over. Pondering and questioning: **if maybe the crowds that gather every single day to mock and insult Trump aren't a form of intentional population control**. Imprisoned fandom...compulsive brainwashing into always joking and always mocking and always hating MAGA and Trump.
   
-6. ALWAYS avoiding: reflecting on what Donald Trump actually is good at. Instead of listing all of Trump's failures: bankruptcy list, divorce and failed marriages, TACO trade deals, failed unvierity / steak seller / on and on. **FACE THE ONE THING Trump is known for grifting, tricking, actor, acting, acting like an actor. An actor who is faking being an actor, a grift of acting itself. Entertainer, Reality TV**. Like Trump is playing in the film "Jackass" as a character for an audience. Trump's **ONE GOOD SKILL is getting on camera every 90 minutes of every day** and rage-bating Reddit!
+6. ALWAYS avoiding: reflecting on what Donald Trump actually is good at. Instead of listing all of Trump's failures: bankruptcy list, divorce and failed marriages, TACO trade deals, failed Trump university / steak seller / on and on. **FACE THE ONE THING Trump is known for grifting, tricking, actor, acting, acting like an actor. An actor who is faking being an actor, a grift of acting itself. Entertainer, Reality TV**. Like Trump is playing in the film "Jackass" as a character for an audience. Trump's **ONE GOOD SKILL is getting on camera every 90 minutes of every day** and rage-bating Reddit!
 
+.
 
 Repeating number 5: ... pondering... Are we living inside a Reddit video game of grinding away sane-washing jokes and behaving not as political actors, but an audience to a Reality TV theater and circus performances? Does Trump behave like a fiction character, President Tony Clifton of SNL NYC? Are we gullible and falling for the acting of a Tony Clifton actor? Are we "eating the onion" just like Fox News audience does in sane states and not recognizing that Fox News is a fiction entertainment show like SNL Weekend Update?
 
 * “When a population becomes distracted by trivia, when cultural life is redefined as a perpetual round of entertainments, when serious public conversation becomes a form of baby-talk, when, in short, a people become an audience, and their public business a vaudeville act, then a nation finds itself at risk; culture-death is a clear possibility.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. SEE_ALSO: https://www.youtube.com/watch?v=ETUGwC9jXCM
+
+.
+
+THE SIMULATION: "You can smell the fear from here" (this Reddit comment being linked)
+
+THE REALITY: "Those media addicts will do anything to put on a show, and American MAGA eats it up. 40 cars is over the top, antics to get on the front page of Reddit, and look, it is on the top front page of /r/All"
+
+There is no self-awareness in the Reddit audience. The Reddit is reading The Onion and falling hook, line and sinker that it is "fear" and not in fact **political theater, entertainment politics**, Surkovian.
