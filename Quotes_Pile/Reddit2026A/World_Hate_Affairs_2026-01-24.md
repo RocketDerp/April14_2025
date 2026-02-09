@@ -1618,3 +1618,9 @@ https://old.reddit.com/r/europe/comments/1r013mk/mayor_of_london_my_ultimate_goa
 5 month
 
 https://old.reddit.com/r/whoathatsinteresting/comments/1r0d6q9/they_trap_your_car_at_the_highway_ramp_then_walk/o4hfrll/
+
+https://old.reddit.com/r/worldnews/comments/1r0c0tq/obsession_with_growth_is_destroying_nature_150/o4h56vz/
+
+Top-voted comment. 
+
+Endless grown is the posting title: you know what has grown and grown and grown? Smartphone usage. Reddit commenting as a source of information and the use of time spent reading low-effort commenting. Avoidance of nonfiction serious book discussions.
