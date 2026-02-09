@@ -1257,3 +1257,6 @@ https://old.reddit.com/r/news/comments/1r0etsz/irish_man_with_valid_us_work_perm
 
 Anti-FAQ anti-Wiki information society of Reddit prizes questions as "engagement" commenting above all else. Organizing important information on serious topics is consistently avoided. Dr. Bandy X Lee's compilation of 27 mental health people since October 3, 2017 is ignored on Bluesky and Reddit because it is not entertaining enough to meme about.
 
+https://old.reddit.com/r/news/comments/1r0etsz/irish_man_with_valid_us_work_permit_held_in_ice/o4hq03e/
+
+Asking questions on social media as a form of low-effort engagement commenting. Very popular. Why are people not recognizing that MAGA / Trump / Reddit is a cult of ICE content? And why isn't mental health professional Dr. Bandy X Lee's leadership of 27 professions constantly not repeated on Reddit comment section to rescue hearts and minds from self-harm? Why do people spend their free time and spare time on Reddit commenting over each ICE action in a reactionary way - instead of teaching and educating the general public ABOUT the mental health behaviors of hate?
