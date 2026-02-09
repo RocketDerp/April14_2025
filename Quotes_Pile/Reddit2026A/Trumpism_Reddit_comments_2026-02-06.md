@@ -1194,3 +1194,7 @@ Read the Twitter image. Brain rot is Trumpism. Brain damage. Cambridge Analytica
 https://old.reddit.com/r/MurderedByWords/comments/1r01axi/when_a_joke_reveals_a_sick_cult/o4eykem/
 
 26 day Reddit account.
+
+https://old.reddit.com/r/MurderedByWords/comments/1r01axi/when_a_joke_reveals_a_sick_cult/o4ezaom/
+
+Trump fandom. Reddit media is where fandom of Trump gather for shit-leader.
