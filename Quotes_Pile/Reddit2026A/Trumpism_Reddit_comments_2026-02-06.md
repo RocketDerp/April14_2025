@@ -1235,3 +1235,9 @@ I'm rephrasing the same fucking thing on this GitHub over and over and over and 
 
 https://old.reddit.com/r/Fauxmoi/comments/1r0agbf/a_day_after_trump_calls_one_of_her_teammates_a/o4gvbrv/
 
+https://old.reddit.com/r/technology/comments/1r088je/ring_to_turn_on_all_camera_to_track_pets_privacy/o4gfx4y/
+
+"crazy"
+
+Language meaning manipulated for power concentration. Complete inversion of meanings. SEE_ALSO https://thesethingsinside.wordpress.com/2013/04/18/joseph-campbell-says-religious-literalism-sets-satan-in-the-seat-of-god/
+
