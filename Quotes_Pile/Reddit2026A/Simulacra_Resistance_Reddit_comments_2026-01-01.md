@@ -836,9 +836,9 @@ THE SIMULATION: **"You can smell the fear from here"** (this Reddit comment bein
 
 THE REALITY: "Those media addicts will do anything to put on a show, and American MAGA eats it up. 40 cars is over the top, antics to get on the front page of Reddit, and look, it is on the top front page of /r/All"
 
-THE REALITY: The **only "fear" they** have is that their acts and antics and investments in 40 cars doesn't have a film audience to the blockbuster show. That it doesn't dominate the headlines like a new Taylor Swift song release.
+THE REALITY: The **only "fear" they** have is that their acts and antics and investments in 40 motorcade cars doesn't have a film audience to the blockbuster show. That it doesn't dominate the headlines like a new Taylor Swift song release. That the tickets and #1 rating on Reddit, that your MAGA absurd comedy and surreal humor show is a flop.
 
-IF YOU ARE MAKING ENTERTAINMENT: Borat film or Jackass film, taking ICE to Italy is right up pp your ally of antics entertainment.
+IF YOU ARE MAKING ENTERTAINMENT POLITICS: [Borat film](https://en.wikipedia.org/wiki/Borat) or Jackass film, taking ICE and massive motorcades to Italy is right up your scripted ally of antics entertainment.
 
 .
 
