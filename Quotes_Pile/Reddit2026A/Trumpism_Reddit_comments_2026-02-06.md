@@ -1212,3 +1212,8 @@ https://old.reddit.com/r/nba/comments/1r08lua/mintzer_giannis_kalshi_and_the_dea
 https://old.reddit.com/r/nba/comments/1r08lua/mintzer_giannis_kalshi_and_the_death_of_trust_in/o4gewo3/
 
 everyday people understand we have a health care crisis in USA. Some even understand other nations have solved such problems. But entertainment addiction rules this nation, people simply are not attracted to goodness.
+
+https://old.reddit.com/r/TikTokCringe/comments/1r0740f/accusing_the_other_side_of_reciting_lines_while/o4gqirm/
+
+Reddit is a fandom of hate-watching. Reddit community is a hate-motivated consumer society. https://en.wikipedia.org/wiki/Hate-watching
+
