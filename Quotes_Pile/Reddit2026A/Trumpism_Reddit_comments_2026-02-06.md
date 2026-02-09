@@ -1167,3 +1167,4 @@ https://old.reddit.com/r/Music/comments/1r012t3/country_stars_turn_on_kid_rock_a
 
 This is what the USA population is doing with spare time and free time first thing Monday morning. What is AVOIDED: commenting about Dr. Bandy X Lee's nonfiction book of 27 people writing about the mental health of Donald Trump and the national mental health. https://www.GoodReads.com/author/quotes/16953723.Bandy_X_Lee Published October 3, 2017. Avoided and avoided because Reddit commenting is a fandom to hate-watching Kid Rock and Trump hate-watching. https://en.wikipedia.org/wiki/Hate-watching
 
+Social post { https://MidWest.Social/post/43208738/22623965 }
