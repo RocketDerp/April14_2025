@@ -1319,3 +1319,5 @@ https://old.reddit.com/r/TrendoraX/comments/1r0i275/crockett_the_us_is_falling_a
 
 https://old.reddit.com/r/TrendoraX/comments/1r0i275/crockett_the_us_is_falling_apart_partially_bc_hes/o4il7w3/
 
+https://old.reddit.com/r/TrendoraX/comments/1r0i275/crockett_the_us_is_falling_apart_partially_bc_hes/o4isx8a/
+
