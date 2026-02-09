@@ -1217,3 +1217,18 @@ https://old.reddit.com/r/TikTokCringe/comments/1r0740f/accusing_the_other_side_o
 
 Reddit is a fandom of hate-watching. Reddit community is a hate-motivated consumer society. https://en.wikipedia.org/wiki/Hate-watching
 
+https://old.reddit.com/r/TikTokCringe/comments/1r0740f/accusing_the_other_side_of_reciting_lines_while/o4g4sor/
+
+"mental illness"
+
+What are the mechanics of billions of people all across the world getting this mental illness? Is it food issue, some mind-altering substance of medication they are all taking? This is a woman talking about "God" and "the left" in her video. Where did she learn to divide all people into "right" and "left", is that in The Bible somewhere, or did it come from a King in France and has nothing to do with USA politics, but people parrot it as if it is the ultimate mental mindset of how to measure the world.
+
+Why does she believe in a Levant God and Santa? Do people indoctrinate their children? When does the "mental illness" begin?
+
+Reddit community has no concern to ponder if anyone else had ever had a thought before today. "The far right really are unhinged and suffering from mental illness at this point." At what point did the Russian far-right in Moscow against Ukraine go too far? What point did the Taliban go too far in Pakistan?
+
+On September 11, 2001 - did the far-right in Saudi Arabia go to a point to far? Did everyone notice? Exactly what mental health treatment and solutions were tried, or were only military weapon systems and armed airport security measures taken? Which mental health leader took on 9/11?
+
+I think Reddit community has a massive **media cult** problem. The crisis is that people are so conditioned to write original commenting up n every serious problem that nobody actually gets on the same page of a topic for very long. If on the same page, ever! **"Cult of original unique comments"**, rephrasing similar observations in unique ways so that We The People never actually reach any kind of shared comprehension on serious matters.
+
+I'm rephrasing the same fucking thing on this GitHub over and over and over and over to point out the absence of a FAQ, Wiki, nonfiction published book. Oh wait, there are nonfiction books already published! There are several. But the crisis seems to be that people want to engage commenting and touch screens and avoid paper printed books with any sense of rescue, urgency, need to change direction towards goodness.
