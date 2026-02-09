@@ -1639,3 +1639,6 @@ https://old.reddit.com/r/news/comments/1r0bh98/daughter_of_minnesota_governor_ca
 
 Affairs of the hate.
 
+https://old.reddit.com/r/news/comments/1r0bh98/daughter_of_minnesota_governor_candidate_fatally/o4h2y0c/
+
+Ad in USA schools we don't teach psychology of family relationships. We let McDonald's and Coke program obesity and diabetes into our minds instead.
