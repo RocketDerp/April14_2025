@@ -1241,3 +1241,7 @@ https://old.reddit.com/r/technology/comments/1r088je/ring_to_turn_on_all_camera_
 
 Language meaning manipulated for power concentration. Complete inversion of meanings. SEE_ALSO https://thesethingsinside.wordpress.com/2013/04/18/joseph-campbell-says-religious-literalism-sets-satan-in-the-seat-of-god/
 
+https://old.reddit.com/r/technology/comments/1r088je/ring_to_turn_on_all_camera_to_track_pets_privacy/o4gbgv3/
+
+Reddit is pet image central. And catching any accident or rare exotic video is popular on Reddit. It is the oddities of the world. 
+
