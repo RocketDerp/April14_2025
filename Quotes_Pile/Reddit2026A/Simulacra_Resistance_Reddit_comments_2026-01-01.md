@@ -806,7 +806,7 @@ Clown icons, Unicode clowns.
 
 https://old.reddit.com/r/europe/comments/1qzwpy6/jd_vance_ridiculed_for_40car_motorcade_taking_him/o4e6c54/
 
-Top-upvoted comment. Twitter-length short-message mindset. Eating right out of the hands of the Kremlin and White House. This is a Reddit community eating the Surkovian onions. Eating the Onion. Incredibly gullible Reddit audience that will not turn to Dr. Bandy X. Lee or Peter Pomerantsev teaching and education. SEE: https://github.com/RocketDerp/April14_2025/blob/working/Quotes_Pile/Reddit2025A/Surkovian_Onion_Eating.md
+Top-upvoted comment. Twitter-length short-message mindset. Eating right out of the hands of the Kremlin and White House. This is a Reddit community eating the Surkovian onions. Eating the Onion. Incredibly gullible Reddit audience that will not turn to Dr. Bandy X. Lee or Peter Pomerantsev teaching and education. SEE: https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Reddit2025A/Surkovian_Onion_Eating.md
 
 Every hour of every day, Reddit is sane-washing JD Vance, hundreds of millions of MAGA cult members, Putin, Trump, Elon Musk. Over and over, Reddit falls for the same **antics politics** and entirely misses the point of why **over-dramatic antics** are constantly appearing on the front page of /r/All by the White House. 
 
@@ -826,7 +826,7 @@ Reddit users have been manipulated and targeted by the Internet Research Agency.
 
 .
 
-Repeating number 5: ... pondering... Are we living inside a Reddit video game of grinding away sane-washing jokes and behaving not as political actors, but an audience to a Reality TV theater and circus performances? Does Trump behave like a fiction character, President Tony Clifton of SNL NYC? Are we gullible and falling for the acting of a Tony Clifton actor? Are we "eating the onion" just like Fox News audience does in sane states and not recognizing that Fox News is a fiction entertainment show like SNL Weekend Update?
+Repeating number 5: ... pondering... Are we living inside a Reddit video game of [grinding](https://en.wikipedia.org/wiki/Grinding_\(video_games\)) away sane-washing jokes and behaving not as political actors, but an audience to a Reality TV theater and circus performances? Does Trump behave like a fiction character, President Tony Clifton of SNL NYC? Are we gullible and falling for the acting of a Tony Clifton actor? Are we "eating the onion" just like Fox News audience does in red states / rural population and not recognizing that **Fox News is a fiction entertainment show** like SNL Weekend Update?
 
 * “When a population becomes distracted by trivia, when cultural life is redefined as a perpetual round of entertainments, when serious public conversation becomes a form of baby-talk, when, in short, a people become an audience, and their public business a vaudeville act, then a nation finds itself at risk; culture-death is a clear possibility.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. SEE_ALSO: https://www.youtube.com/watch?v=ETUGwC9jXCM
 
