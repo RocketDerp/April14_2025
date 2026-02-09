@@ -1173,4 +1173,11 @@ https://old.reddit.com/r/therewasanattempt/comments/1r02j05/to_make_showing_love
 
 The Bible is not North American. The Bible is not in the USA Constitution. The Founding Fathers were deism / deists. The Bible is from the Middle East which has a world wide reputation of war and hate. There is a mental health crisis that people believe they 'see god" and "hear Jesus" in their head. Bible verse "1 John 4:20" addresses all that is wrong with this Kid Rock statement to USA. "I love Jesus" is wrong, read "1 John 4:20". Thinking you have seen Jesus or seen God is wrong. "1 John 4:20" Bible verse. Literacy hallucination crisis. Hamlet's Ghost reading literacy crisis. You have not seen Hamlet's Ghost. Re-read Bible verse "1 John 4:20" and apply it to Hamlet's Ghost. Or Star Wars "Force Ghosts" of 1977 fiction film!
 
+https://old.reddit.com/r/Fauxmoi/comments/1r02ogr/renee_goods_wife_makes_first_public_appearance/o4f974h/
+
+https://old.reddit.com/r/Fauxmoi/comments/1r02ogr/renee_goods_wife_makes_first_public_appearance/o4f9iyw/
+
+https://old.reddit.com/r/Fauxmoi/comments/1r02ogr/renee_goods_wife_makes_first_public_appearance/o4fb0sv/
+
+PLURIBUS is right on the Dollar Bill. It is We The People who stopped caring about Latin phrases from year 1776 period.
 
