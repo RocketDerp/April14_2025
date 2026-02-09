@@ -806,7 +806,7 @@ Clown icons, Unicode clowns.
 
 https://old.reddit.com/r/europe/comments/1qzwpy6/jd_vance_ridiculed_for_40car_motorcade_taking_him/o4e6c54/
 
-Top-upvoted comment. Twitter-length short-message mindset. Eating right out of the hands. This is a Reddit community eating the Surkov onions. Eating the Onion. Incredibly gullible USA that will not turn to Dr. Bandy X. Lee or Peter Pomerantsev comprehension. SEE: https://github.com/RocketDerp/April14_2025/blob/working/Quotes_Pile/Reddit2025A/Surkovian_Onion_Eating.md
+Top-upvoted comment. Twitter-length short-message mindset. Eating right out of the hands of the Kremlin and White House. This is a Reddit community eating the Surkovian onions. Eating the Onion. Incredibly gullible Reddit audience that will not turn to Dr. Bandy X. Lee or Peter Pomerantsev teaching and education. SEE: https://github.com/RocketDerp/April14_2025/blob/working/Quotes_Pile/Reddit2025A/Surkovian_Onion_Eating.md
 
 Every hour of every day, Reddit is sane-washing JD Vance, hundreds of millions of MAGA cult members, Putin, Trump, Elon Musk. Over and over, Reddit falls for the same **antics politics** and entirely misses the point of why **over-dramatic antics** are constantly appearing on the front page of /r/All by the White House. 
 
