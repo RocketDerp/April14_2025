@@ -1106,4 +1106,6 @@ https://old.reddit.com/r/Music/comments/1qzoksm/turning_point_halftime_show_late
 
 Reddit audience, comment creators on Reddit, are in a cult of mocking other cults. Cult vs. cult. media cults. It has been going on since June 16, 2015 endlessly mocking back and fort in feedback loops about how { cult, retarded, dumb, stupid, idiot, moron } the out-group cults are. Surkov won.
 
+https://old.reddit.com/r/law/comments/1qzn92j/the_president_says_states_are_agents_of_the/o4c4h5x/
+
 
