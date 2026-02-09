@@ -177,3 +177,9 @@ And who knows what is real from these accounts. The leaders of the whole fucking
 https://old.reddit.com/r/nfl/comments/1qzqy28/highlight_bad_bunny_lady_gaga_ricky_martins_super/o4cw6st/
 
 https://old.reddit.com/r/nfl/comments/1qzqy28/highlight_bad_bunny_lady_gaga_ricky_martins_super/o4cuhbw/
+
+https://old.reddit.com/r/memes/comments/1r00i2h/nonamericans_on_reddit_today/o4ezgv8/
+
+https://old.reddit.com/r/memes/comments/1r00i2h/nonamericans_on_reddit_today/o4f1run/
+
+A huge number of Americans think Trump is bad and terrible, "bad bunny Trump", "bad man", and as Vince Gilligan spelled out February 15, 2025... https://Variety.com/2025/tv/news/breaking-bad-creator-vince-gilligan-good-guys-walter-white-1236309604/ Breaking Bad is cool. Walter White is cool. Following hate leaders is popular now.
