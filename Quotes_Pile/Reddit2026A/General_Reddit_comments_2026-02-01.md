@@ -161,3 +161,7 @@ https://old.reddit.com/r/popculturechat/comments/1qzh2d2/katy_perry_wishes_bad_b
 https://old.reddit.com/r/AITAH/comments/1qzlyzb/aitah_for_telling_my_sil_a_family_secret_and_now/o4brcty/
 
 CHOICE_MARRIAGE_HONESTY PARENTING_HONESTY FAMILY_HONESTY 
+
+https://old.reddit.com/r/AITAH/comments/1qzlyzb/aitah_for_telling_my_sil_a_family_secret_and_now/o4bslxo/
+
+SEX_SECRECY 
