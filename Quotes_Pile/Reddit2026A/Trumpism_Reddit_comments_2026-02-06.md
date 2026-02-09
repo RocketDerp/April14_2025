@@ -1232,3 +1232,6 @@ On September 11, 2001 - did the far-right in Saudi Arabia go to a point to far? 
 I think Reddit community has a massive **media cult** problem. The crisis is that people are so conditioned to write original commenting up n every serious problem that nobody actually gets on the same page of a topic for very long. If on the same page, ever! **"Cult of original unique comments"**, rephrasing similar observations in unique ways so that We The People never actually reach any kind of shared comprehension on serious matters.
 
 I'm rephrasing the same fucking thing on this GitHub over and over and over and over to point out the absence of a FAQ, Wiki, nonfiction published book. Oh wait, there are nonfiction books already published! There are several. But the crisis seems to be that people want to engage commenting and touch screens and avoid paper printed books with any sense of rescue, urgency, need to change direction towards goodness.
+
+https://old.reddit.com/r/Fauxmoi/comments/1r0agbf/a_day_after_trump_calls_one_of_her_teammates_a/o4gvbrv/
+
