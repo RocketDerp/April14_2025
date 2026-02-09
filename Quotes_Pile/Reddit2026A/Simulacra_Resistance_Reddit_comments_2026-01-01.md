@@ -803,3 +803,27 @@ Clown icons, Unicode clowns.
 
 * Howdy Doody is an American children's television program (with circus and Western frontier themes) that was created and produced by Victor F. Campbell and E. Roger Muir. It was broadcast on the NBC television network in the United States from December 27, 1947, until September 24, 1960." https://en.wikipedia.org/wiki/Howdy_Doody
 
+
+https://old.reddit.com/r/europe/comments/1qzwpy6/jd_vance_ridiculed_for_40car_motorcade_taking_him/o4e6c54/
+
+Top-upvoted comment. Twitter-length short-message mindset. Eating right out of the hands. This is a Reddit community eating the Surkov onions. Eating the Onion. Incredibly gullible USA that will not turn to Dr. Bandy X. Lee or Peter Pomerantsev comprehension. SEE: https://github.com/RocketDerp/April14_2025/blob/working/Quotes_Pile/Reddit2025A/Surkovian_Onion_Eating.md
+
+Every hour of every day, Reddit is sane-washing JD Vance, hundreds of millions of MAGA cult members, Putin, Trump, Elon Musk. Over and over, Reddit falls for the same **antics politics** and entirely misses the point of why **over-dramatic antics** are constantly appearing on the front page of /r/All by the White House. 
+
+Reddit users have been manipulated and targeted by the Internet Research Agency.. https://www.bbc.com/news/technology-43301643 Useful Idioits is the term that Russia uses https://en.wikipedia.org/wiki/Useful_idiot (not my insult, I strive pretty hard to write things like "avoids nonfiction learning" and "unable to focus on using Google Search and finding Peter Pomerantsev's information if you want a better-quality writing than my shit English. Calling people banal "idiot" is even something Marshall McLuhan addressed in one of his video interviews. It is a thought-terminating cliché.).
+
+
+1. Putin, MAGA, White House, Musk does some bold antics action
+2. Reddit audience posts image, quote, or mocking of the antics
+3. Reddit community sane-washes the situation by prizing it as entertainment and amusement
+
+4. Reddit members crack-jokes to sanewash the USA society in total. That this is just "Internet culture" of how people have fun. Jokes, falsehoods, fictions, make-up scenarios, make-up quotes, mirroring Trump's writing style, talking about skin color (brown, black, orange). Make fan-fiction about the situation.
+
+5. ALWAYS avoided: Peter Pomerantsev's writing, videos, etc. Questioning the pattern witnessed over and over. Pondering and questioning: **if maybe the crowds that gather every single day to mock and insult Trump aren't a form of intentional population control**. Imprisoned fandom...compulsive brainwashing into always joking and always mocking and always hating MAGA and Trump.
+  
+6. ALWAYS avoiding: reflecting on what Donald Trump actually is good at. Instead of listing all of Trump's failures: bankruptcy list, divorce and failed marriages, TACO trade deals, failed unvierity / steak seller / on and on. **FACE THE ONE THING Trump is known for grifting, tricking, actor, acting, acting like an actor. An actor who is faking being an actor, a grift of acting itself. Entertainer, Reality TV**. Like Trump is playing in the film "Jackass" as a character for an audience. Trump's **ONE GOOD SKILL is getting on camera every 90 minutes of every day** and rage-bating Reddit!
+
+
+Repeating number 5: ... pondering... Are we living inside a Reddit video game of grinding away sane-washing jokes and behaving not as political actors, but an audience to a Reality TV theater and circus performances? Does Trump behave like a fiction character, President Tony Clifton of SNL NYC? Are we gullible and falling for the acting of a Tony Clifton actor? Are we "eating the onion" just like Fox News audience does in sane states and not recognizing that Fox News is a fiction entertainment show like SNL Weekend Update?
+
+* “When a population becomes distracted by trivia, when cultural life is redefined as a perpetual round of entertainments, when serious public conversation becomes a form of baby-talk, when, in short, a people become an audience, and their public business a vaudeville act, then a nation finds itself at risk; culture-death is a clear possibility.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. SEE_ALSO: https://www.youtube.com/watch?v=ETUGwC9jXCM
