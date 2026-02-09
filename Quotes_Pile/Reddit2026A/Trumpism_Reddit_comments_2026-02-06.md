@@ -1083,3 +1083,11 @@ https://old.reddit.com/r/politics/comments/1qzi35p/trump_79_targets_us_olympic_a
 https://old.reddit.com/r/politics/comments/1qzjtuj/jeffrey_epstein_claimed_donald_trumps_friends/o4bdkq8/
 
 2017 is long long time ago.
+
+https://old.reddit.com/r/politics/comments/1qzjtuj/jeffrey_epstein_claimed_donald_trumps_friends/o4beb5g/
+
+https://old.reddit.com/r/politics/comments/1qzjtuj/jeffrey_epstein_claimed_donald_trumps_friends/o4bbh8k/
+
+all known for a long time.
+
+And we have all known that everyone is attracted to Trump's style and communications methods. We have all known about his buddy relationship with Putin and the killings of Ukraine people by Russia in warfare since February 20, 2014. We have all know. The question is WHY since year 2013 did USA population all become attracted to self-harm. What did Cambridge Analytica and Saint Petersburg Internet Research Agency do that even with measles raging today in February 2026 -people CAN NOT FACE and repeat and keep repeating this story from August 24, 2018 and face up to massive mental manipulation. https://www.bbc.com/news/world-us-canada-45294192
