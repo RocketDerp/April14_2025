@@ -1260,3 +1260,11 @@ Anti-FAQ anti-Wiki information society of Reddit prizes questions as "engagement
 https://old.reddit.com/r/news/comments/1r0etsz/irish_man_with_valid_us_work_permit_held_in_ice/o4hq03e/
 
 Asking questions on social media as a form of low-effort engagement commenting. Very popular. Why are people not recognizing that MAGA / Trump / Reddit is a cult of ICE content? And why isn't mental health professional Dr. Bandy X Lee's leadership of 27 professions constantly not repeated on Reddit comment section to rescue hearts and minds from self-harm? Why do people spend their free time and spare time on Reddit commenting over each ICE action in a reactionary way - instead of teaching and educating the general public ABOUT the mental health behaviors of hate?
+
+https://old.reddit.com/r/PublicFreakout/comments/1r0hxo8/crockett_the_us_is_falling_apart_partially_bc_hes/o4ihdn7/
+
+People are pretending that the avoidance and hostility towards Dr. Bandy X Lee's publications all over the internet is normal. That calling individual people { insane, mentally unwell, crazy, sick, retarded } all the time on social media while avoiding recognizing it isn't just one person, Putin, harming Ukraine but an entire society. It isn't just one mental health sickness in organize hate groups. It isn't just a hand full of people avoiding nonfiction from Dr. Bandy X Lee's 27 writers... it's constant on Bluesky and Reddit. Go look for subscribers and hashtags on Bluesky... 
+
+https://old.reddit.com/r/PublicFreakout/comments/1r0hxo8/crockett_the_us_is_falling_apart_partially_bc_hes/o4if30i/
+
+Fiction Superman isn't a real man or person. The Bible verse "1 John 4:20" crisis in USA population is very real. The avoidance of nonfiction teaching for adults, reading nonfiction books and matching up other people's written ideas to real-world situations is observable. The addiction to low-effort commenting over and over on meme devices is observable and self-evident.
