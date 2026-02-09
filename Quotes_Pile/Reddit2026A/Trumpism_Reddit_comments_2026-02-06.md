@@ -1309,3 +1309,11 @@ https://old.reddit.com/r/International/comments/1r0edzh/our_country_is_a_joke/o4
 
 And Reddit and Bluesky audiences are fandoms of the jokes.
 
+https://old.reddit.com/r/TrendoraX/comments/1r0i275/crockett_the_us_is_falling_apart_partially_bc_hes/o4ig0as/
+
+https://old.reddit.com/r/TrendoraX/comments/1r0i275/crockett_the_us_is_falling_apart_partially_bc_hes/o4ijt1i/
+
+lol
+
+https://old.reddit.com/r/TrendoraX/comments/1r0i275/crockett_the_us_is_falling_apart_partially_bc_hes/o4imlvx/
+
