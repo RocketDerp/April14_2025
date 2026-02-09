@@ -1268,3 +1268,16 @@ People are pretending that the avoidance and hostility towards Dr. Bandy X Lee's
 https://old.reddit.com/r/PublicFreakout/comments/1r0hxo8/crockett_the_us_is_falling_apart_partially_bc_hes/o4if30i/
 
 Fiction Superman isn't a real man or person. The Bible verse "1 John 4:20" crisis in USA population is very real. The avoidance of nonfiction teaching for adults, reading nonfiction books and matching up other people's written ideas to real-world situations is observable. The addiction to low-effort commenting over and over on meme devices is observable and self-evident.
+
+https://old.reddit.com/r/PublicFreakout/comments/1r0hxo8/crockett_the_us_is_falling_apart_partially_bc_hes/o4ih0ld/
+
+You can see where people learn when /r/All is adults full of quotes from Sponge Bob.
+
+https://old.reddit.com/r/PublicFreakout/comments/1r0hxo8/crockett_the_us_is_falling_apart_partially_bc_hes/o4ijgsz/
+
+Reddit commenting addictions abound.
+
+https://old.reddit.com/r/PublicFreakout/comments/1r0hxo8/crockett_the_us_is_falling_apart_partially_bc_hes/o4ii6uf/
+
+People are incapable of identifying cult behaviors. Smartphones are in every city, regardless of nation. Tall buildings like Trump prizes make people bow and respect. An impressive looking automobile bling bling gets attention, etc. We have common mental values and we don't teach these things in our education systems, we let advertising and marketing manipulate our minds without any concern as to negative side-effects.
+
