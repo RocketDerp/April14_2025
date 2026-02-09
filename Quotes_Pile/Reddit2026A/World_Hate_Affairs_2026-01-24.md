@@ -1624,3 +1624,11 @@ https://old.reddit.com/r/worldnews/comments/1r0c0tq/obsession_with_growth_is_des
 Top-voted comment. 
 
 Endless grown is the posting title: you know what has grown and grown and grown? Smartphone usage. Reddit commenting as a source of information and the use of time spent reading low-effort commenting. Avoidance of nonfiction serious book discussions.
+
+https://old.reddit.com/r/worldnews/comments/1r0c0tq/obsession_with_growth_is_destroying_nature_150/o4h54u5/
+
+ANSWER, UNDERSTANDING: Because we put all our most gifted and talented people into commercial art designed to exploit human minds into over-consumption. Billionaires fund advertising, marketing, public relations, sponsorship to program mindsets. We, as a species, have turned religion indoctrination into consumerism indoctrination. We are far too good at exploiting minds with lies and manipulation as a species. We hear of terrible parenting, abusive parents, we hear of Ukraine war, we hear of divorces and child custody battles... but we can't see that we don't educate or teach compassion and marriage itself (families) in our schools. We don't share notes, we keep family secrets and sex secrets and abuse secrets and we elect abusers to the highest power. Because they fund money to pay for art work and symbols to manipulate our subconscious family sex secrets, etc.
+
+* "Finding the occasional straw of truth awash in a great ocean of confusion and bamboozle requires vigilance, dedication and courage. But if we don’t practice these tough habits of thought, we cannot hope to solve the truly serious problems that face us and we risk becoming a nation of suckers" ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995, page 38
+
+
