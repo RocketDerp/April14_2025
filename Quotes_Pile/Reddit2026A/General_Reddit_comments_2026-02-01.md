@@ -193,3 +193,6 @@ https://old.reddit.com/r/Fallout/comments/1r02bxx/fallout_new_vegas_lead_says_it
 https://old.reddit.com/r/Fallout/comments/1r02bxx/fallout_new_vegas_lead_says_it_took_five_years/o4f74i6/
 
 recency bias
+
+https://old.reddit.com/r/BatmanArkham/comments/1r01lat/how_does_a_rockstar_do_that/o4ezvdv/
+
