@@ -1093,3 +1093,14 @@ all known for a long time.
 And we have all known that everyone is attracted to Trump's style and communications methods. We have all known about his buddy relationship with Putin and the killings of Ukraine people by Russia in warfare since February 20, 2014. We have all know. The question is WHY since year 2013 did USA population all become attracted to self-harm. What did Cambridge Analytica and Saint Petersburg Internet Research Agency do that even with measles raging today in February 2026 -people CAN NOT FACE and repeat and keep repeating this story from August 24, 2018 and face up to massive mental manipulation. https://www.bbc.com/news/world-us-canada-45294192 how can RFK Jr. be in charge of measles? Mentally manipulated people.
 
 https://old.reddit.com/r/politics/comments/1qzjtuj/jeffrey_epstein_claimed_donald_trumps_friends/o4ba1w1/
+
+https://old.reddit.com/r/Music/comments/1qzoksm/turning_point_halftime_show_latest_mysterious_kid/o4caibr/
+
+https://old.reddit.com/r/Music/comments/1qzoksm/turning_point_halftime_show_latest_mysterious_kid/o4cb3mo/
+
+The fandom of Musk X (Twitter), fandom of Kid Rock, fandom of Trump. Hate-watching fandom is constantly cheering for more funny! https://en.wikipedia.org/wiki/Hate-watching
+
+To understand why Donald Trump is the center of every media system in USA - you have to deeply analyze and study thee Reddit addictions to mocking leadership. To hate leaders. To hate-watching. https://en.wikipedia.org/wiki/Hate-watching Trump / MAGA / ICE all provide the simulation that Bluesky and Reddit fandoms constantly engage. It is sickening to watch these people do ANYTHING but support and repeat and keep repeating Dr. Bandy X Lee's nonfiction book from October 3, 2017 and have MAGA and Trump learn about the mental health disasters, the elephant in the room is avoidance of Dr. Bandy X Lee's 27 group that stood up.
+
+
+
