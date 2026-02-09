@@ -842,4 +842,6 @@ IF YOU ARE MAKING ENTERTAINMENT POLITICS: [Borat film](https://en.wikipedia.org/
 
 .
 
-There is no self-awareness in the Reddit audience. The Reddit is reading The Onion and falling hook, line and sinker that it is "fear" and not in fact **political theater, entertainment politics**, Surkovian.
+There is no self-awareness in the Reddit audience. The Reddit media cult is reading The Onion and falling hook, line and sinker that it is "fear" and not in fact **political theater, entertainment politics**, Surkovian.
+
+Social post { https://midwest.social/post/43165104/22622845 }
