@@ -1080,3 +1080,6 @@ https://old.reddit.com/r/politics/comments/1qzi35p/trump_79_targets_us_olympic_a
 
 "For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the **true becomes false and the false becomes true**. That's what hate does. You can't see right. **The symbol of objectivity** is lost." - Martin Luther King Jr.
 
+https://old.reddit.com/r/politics/comments/1qzjtuj/jeffrey_epstein_claimed_donald_trumps_friends/o4bdkq8/
+
+2017 is long long time ago.
