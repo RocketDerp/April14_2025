@@ -1635,4 +1635,7 @@ https://old.reddit.com/r/worldnews/comments/1r0c0tq/obsession_with_growth_is_des
 
 We clearly give a fuck for low-effort commenting. You can measure the popularity of seeking out junk information sources. Fox News popularity is measurable. Avoidance of nonfiction serious quotes is measurable in how rare they appear on social media comment sections.
 
+https://old.reddit.com/r/news/comments/1r0bh98/daughter_of_minnesota_governor_candidate_fatally/o4h7c6o/
+
+Affairs of the hate.
 
