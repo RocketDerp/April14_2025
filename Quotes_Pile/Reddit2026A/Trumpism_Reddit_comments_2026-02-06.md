@@ -1245,3 +1245,4 @@ https://old.reddit.com/r/technology/comments/1r088je/ring_to_turn_on_all_camera_
 
 Reddit is pet image central. And catching any accident or rare exotic video is popular on Reddit. It is the oddities of the world. 
 
+https://old.reddit.com/r/law/comments/1r09ug5/ghislaine_maxwells_lawyer_she_must_remain_silent/o4gtruf/
