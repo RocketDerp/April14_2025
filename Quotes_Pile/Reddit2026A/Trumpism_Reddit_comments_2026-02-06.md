@@ -1246,3 +1246,9 @@ https://old.reddit.com/r/technology/comments/1r088je/ring_to_turn_on_all_camera_
 Reddit is pet image central. And catching any accident or rare exotic video is popular on Reddit. It is the oddities of the world. 
 
 https://old.reddit.com/r/law/comments/1r09ug5/ghislaine_maxwells_lawyer_she_must_remain_silent/o4gtruf/
+
+https://old.reddit.com/r/news/comments/1r0etsz/irish_man_with_valid_us_work_permit_held_in_ice/o4hqrcn/
+
+Yes. If you can't entertain people and charm them like Donald Trump entertains everyone, you are a non-person. If you aren't famous and celebrity like Donald Trump, you are considered a waste of space in life. The population prizes entertainment addictions so much you see people in public staring into meme devices even when other people are with them. People program so much billionaire content into their brains in USA year 2026 that has them favor self-harm to the Earth and all life on Earth. Gun worship to fix health care, Luigi praising, and other weapon system values are widespread. People in USA will block you, silence you, burn your books and papers if you communicate outside their Reddit and Bluesky expected patterns.
+
+
