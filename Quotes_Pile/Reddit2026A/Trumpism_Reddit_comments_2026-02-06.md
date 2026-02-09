@@ -1139,4 +1139,10 @@ Grocery shopping cart of fellow people in worship of the advertising cults. You 
 * "this new discourse is **even more totalitarian** because behind it hides the same mechanisms of power… not the same… but behind it **hides mechanisms of power** which keep these people in their sway. Ah, I think that one of the greatest examples of this – for me – is the **discourse concerning body weight in women**; bulimia, anorexia and so on. It’s as though a male dominant society was able in the Middle Ages to, you know, put a chastity belt on a woman, to put, you know, to… **keep food away from her and starve her if she misbehaved**. But today we accomplish the same feat through **images that are constantly bombarded into the conscious and into the unconscious** of women, and they perform the wonderfully humanistic task of starving themselves to death while male therapists teach them how to get on twelve step programs to eat. See, for Foucault, this is why its not humanism. This kind of malady is a cultural malady that strikes at the very heart of life. **Once something like eating is death then you have struck at the very heart of life**. The enemy of the older radical theories may have been the ruling class, but today the stakes of whether we will reform ourselves into a new kind of human being, a new kind of society, whether we will find selves worth being… the stakes of it are simply life itself. And that makes it quite dramatic actually."
 * * Rick Roderick, Duke University
   * https://rickroderick.org/306-foucault-and-the-disappearance-of-the-human-1993/
- 
+
+
+https://old.reddit.com/r/BikiniBottomTwitter/comments/1qzswe7/basically_super_bow_lx_ads_in_a_nutshell_minus_a/o4djlj1/
+
+6 day Reddit account.
+
+Social post { https://autistics.life/@RoundSparrow/116040537718610518 https://bsky.app/profile/roundsparrow.bsky.social/post/3megfbqhyrs2w }
