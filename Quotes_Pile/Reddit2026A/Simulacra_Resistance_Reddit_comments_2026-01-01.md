@@ -870,3 +870,5 @@ OPERA_A https://www.youtube.com/watch?v=tvtJPs8IDgU Giving it all away, Reddit. 
 
 OPERA_A https://www.youtube.com/watch?v=2CZ8ossU4pc Images on a screen, fake trees, simulation. Rectangle stage. Let's bring in the Russian resistance. 5,211,627 views March 28, 2012 - price to pay and a consequence. Tree museum, men given every luxury and medical army to service their political team drama. Sports-washing our wealth-lords asset-lords copyright-lords intellectual property-lords, Jody Allen Patton.
 
+Yes, Alphabet Google YouTube and GitHub Microsoft are in the system. I can not change these systems on my own. My writing is public domain. Better to be a naked screaming person in agony than normalize this bullshit. Staring into the mind-fuck of Reddit is horror. Reddit is the horror show that the gifted and skilled technical people blow their minds out with. Surkov won using Reddit voluntary fans / fandoms of hate-watching. Surkov students won by tuning minds to favor mocking and hate above all else. Billionaires are feeding shit into Reddit audience minds, right here, right now, and it keeps accelerating.
+
