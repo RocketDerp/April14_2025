@@ -1160,3 +1160,10 @@ Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3meghwzdq5s
 
 POST TITLE REMOVED_BY_REDDIT: "A Trump File I haven't seen before. Its awful. Why isnt this everywhere?"
 https://www.justice.gov/epstein/files/DataSet%209/EFTA00622303.pdf  
+
+https://old.reddit.com/r/Music/comments/1r012t3/country_stars_turn_on_kid_rock_after/o4exfvh/
+
+2 month Reddit account. Top-upvoted, most popular comment. Twitter-length tweet-thinking.
+
+This is what the USA population is doing with spare time and free time n Monday morning. What is AVOIDED: commenting about Dr. Bandy X Lee's nonfiction book of 27 people writing about the mental health of Donald Trump and the national mental health. Published October 3, 2017. Avoided and avoided because Reddit commenting is a fandom to hate-watching Kit Rock and Trump hate-watching. https://en.wikipedia.org/wiki/Hate-watching
+
