@@ -1168,3 +1168,9 @@ https://old.reddit.com/r/Music/comments/1r012t3/country_stars_turn_on_kid_rock_a
 This is what the USA population is doing with spare time and free time first thing Monday morning. What is AVOIDED: commenting about Dr. Bandy X Lee's nonfiction book of 27 people writing about the mental health of Donald Trump and the national mental health. https://www.GoodReads.com/author/quotes/16953723.Bandy_X_Lee Published October 3, 2017. Avoided and avoided because Reddit commenting is a fandom to hate-watching Kid Rock and Trump hate-watching. https://en.wikipedia.org/wiki/Hate-watching
 
 Social post { https://MidWest.Social/post/43208738/22623965 }
+
+https://old.reddit.com/r/therewasanattempt/comments/1r02j05/to_make_showing_love_to_all_people_sound_like_the/o4f6w3n/
+
+The Bible is not North American. The Bible is not in the USA Constitution. The Founding Fathers were deism / deists. The Bible is from the Middle East which has a world wide reputation of war and hate. There is a mental health crisis that people believe they 'see god" and "hear Jesus" in their head. Bible verse "1 John 4:20" addresses all that is wrong with this Kid Rock statement to USA. "I love Jesus" is wrong, read "1 John 4:20". Thinking you have seen Jesus or seen God is wrong. "1 John 4:20" Bible verse. Literacy hallucination crisis. Hamlet's Ghost reading literacy crisis. You have not seen Hamlet's Ghost. Re-read Bible verse "1 John 4:20" and apply it to Hamlet's Ghost. Or Star Wars "Force Ghosts" of 1977 fiction film!
+
+
