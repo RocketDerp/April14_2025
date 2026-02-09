@@ -1344,3 +1344,5 @@ https://old.reddit.com/r/LeopardsAteMyFace/comments/1r0g6x2/single_issue_voting_
 https://old.reddit.com/r/BlackPeopleofReddit/comments/1r0i1pa/hook_line_sinker_isaiah_martin_exposes_dennis/o4icksj/
 
 5 month account. Top-upvoted popular.
+
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1r0i1pa/hook_line_sinker_isaiah_martin_exposes_dennis/o4iehap/
