@@ -1251,4 +1251,9 @@ https://old.reddit.com/r/news/comments/1r0etsz/irish_man_with_valid_us_work_perm
 
 Yes. If you can't entertain people and charm them like Donald Trump entertains everyone, you are a non-person. If you aren't famous and celebrity like Donald Trump, you are considered a waste of space in life. The population prizes entertainment addictions so much you see people in public staring into meme devices even when other people are with them. People program so much billionaire content into their brains in USA year 2026 that has them favor self-harm to the Earth and all life on Earth. Gun worship to fix health care, Luigi praising, and other weapon system values are widespread. People in USA will block you, silence you, burn your books and papers if you communicate outside their Reddit and Bluesky expected patterns. Fox News influence, including second-hand influence, Newsmax influence, ... words no longer work to describe how dehumanizing and toxic popularity has become.
 
+https://old.reddit.com/r/news/comments/1r0etsz/irish_man_with_valid_us_work_permit_held_in_ice/o4hpmzx/
+
+https://old.reddit.com/r/news/comments/1r0etsz/irish_man_with_valid_us_work_permit_held_in_ice/o4hq0uq/
+
+Anti-FAQ anti-Wiki information society of Reddit prizes questions as "engagement" commenting above all else. Organizing important information on serious topics is consistently avoided. Dr. Bandy X Lee's compilation of 27 mental health people since October 3, 2017 is ignored on Bluesky and Reddit because it is not entertaining enough to meme about.
 
