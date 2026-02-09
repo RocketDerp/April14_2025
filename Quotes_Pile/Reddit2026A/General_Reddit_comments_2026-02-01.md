@@ -169,3 +169,7 @@ SEX_SECRECY
 https://old.reddit.com/r/AITAH/comments/1qzlyzb/aitah_for_telling_my_sil_a_family_secret_and_now/o4c31vw/
 
 And people on Reddit constantly claim that you can same "rape" and don't use words like "grape" or *cen**sor" your words. On this GitHub I have documented my own personal messages being censored.
+
+https://old.reddit.com/r/Marriage/comments/1ppsmxv/im_finding_it_hard_to_love_my_husband/nup9el1/
+
+And who knows what is real from these accounts. The leaders of the whole fucking USA get away with bullshit and lies. RFK Jr leads the nation, Trump leads the nation, Musk leads the nation. Men who constantly manipulate and people cheer it on as great entertainment to mock and create endless mockery about.
