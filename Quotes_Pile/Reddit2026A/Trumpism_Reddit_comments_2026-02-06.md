@@ -1340,3 +1340,7 @@ https://old.reddit.com/r/Fauxmoi/comments/1r0fwl8/olympic_skier_gus_kenworthy_sh
 https://old.reddit.com/r/Fauxmoi/comments/1r0fwl8/olympic_skier_gus_kenworthy_shared_some_of_the/o4i606z/
 
 https://old.reddit.com/r/LeopardsAteMyFace/comments/1r0g6x2/single_issue_voting_crypto_bros_vote_en_masse_for/o4hyx79/
+
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1r0i1pa/hook_line_sinker_isaiah_martin_exposes_dennis/o4icksj/
+
+5 month account. Top-upvoted popular.
