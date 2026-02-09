@@ -826,7 +826,7 @@ Reddit users have been manipulated and targeted by the Internet Research Agency.
 
 .
 
-Repeating number 5: ... pondering... Are we living inside a Reddit video game of [grinding](https://en.wikipedia.org/wiki/Grinding_\(video_games\)) away sane-washing jokes and behaving not as political actors, but an audience to a Reality TV theater and circus performances? Does Trump behave like a fiction character, President Tony Clifton of SNL NYC? Are we gullible and falling for the acting of a Tony Clifton actor? Are we "eating the onion" just like Fox News audience does in red states / rural population and not recognizing that **Fox News is a fiction entertainment show** like SNL Weekend Update?
+Repeating number 5: ... pondering... Are we living inside a Reddit screen game of grinding https://en.Wikipedia.org/wiki/Grinding_\(video_games\) away... sane-washing jokes and behaving not as political actors, but an audience to a Reality TV theater and circus performances? Does Trump behave like a fiction character, President Tony Clifton of SNL NYC? Are we gullible and falling for the acting of a Tony Clifton actor? Are we "eating the onion" just like Fox News audience does in red states / rural population and not recognizing that **Fox News is a fiction entertainment show** like SNL Weekend Update?
 
 * “When a population becomes distracted by trivia, when cultural life is redefined as a perpetual round of entertainments, when serious public conversation becomes a form of baby-talk, when, in short, a people become an audience, and their public business a vaudeville act, then a nation finds itself at risk; culture-death is a clear possibility.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. SEE_ALSO: https://www.youtube.com/watch?v=ETUGwC9jXCM
 
@@ -844,4 +844,4 @@ IF YOU ARE MAKING ENTERTAINMENT POLITICS: [Borat film](https://en.wikipedia.org/
 
 There is no self-awareness in the Reddit audience. The Reddit media cult is reading The Onion and falling hook, line and sinker that it is "fear" and not in fact **political theater, entertainment politics**, Surkovian.
 
-Social post { https://midwest.social/post/43165104/22622845 }
+Social post { https://MidWest.Social/post/43165104/22622845 }
