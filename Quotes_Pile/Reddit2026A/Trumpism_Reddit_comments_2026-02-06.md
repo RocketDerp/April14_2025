@@ -1200,3 +1200,5 @@ https://old.reddit.com/r/MurderedByWords/comments/1r01axi/when_a_joke_reveals_a_
 Trump fandom. Reddit media is where fandom of Trump gather for shit-leader.
 
 https://old.reddit.com/r/Gamingcirclejerk/comments/1r05a40/in_bioshock_the_ultrarich_build_an_offshore/o4fq3dx/
+
+https://old.reddit.com/r/interestingasfuck/comments/1r07pxb/hundreds_of_private_jets_departed_the_bay_area/o4gatjl/
