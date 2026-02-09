@@ -1128,3 +1128,6 @@ https://old.reddit.com/r/politics/comments/1qzt8ll/bad_bunny_scandalizes_maga_wi
 
 Fandom of sports on Reddit. Fandom of half time show on Reddit. Fandom of Donald Trump on Reddit. We The People of the USA are so entertained joke-cracking about Trump that there is no resistance, there is a cheering fandom that Trump creates a situaiton of constant joking and joke-washing as sanewashing. ALWAYS AVOIDED: using free time and spare time on Reddit commenting to quote nonfiction from Dr. Bandy X Lee and the 27 leaders she assembled and published October 3, 2017.
 
+https://old.reddit.com/r/Snorkblot/comments/1qzskrp/let_them_eat_cake/o4d9df6/
+
+13 day Reddit account. Front-page posting, top-voted comment both.
