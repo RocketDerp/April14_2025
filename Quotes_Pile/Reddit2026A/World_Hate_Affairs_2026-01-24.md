@@ -1631,4 +1631,8 @@ ANSWER, UNDERSTANDING: Because we put all our most gifted and talented people in
 
 * "Finding the occasional straw of truth awash in a great ocean of confusion and bamboozle requires vigilance, dedication and courage. But if we don’t practice these tough habits of thought, we cannot hope to solve the truly serious problems that face us and we risk becoming a nation of suckers" ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995, page 38
 
+https://old.reddit.com/r/worldnews/comments/1r0c0tq/obsession_with_growth_is_destroying_nature_150/o4i5zow/
+
+We clearly give a fuck for low-effort commenting. You can measure the popularity of seeking out junk information sources. Fox News popularity is measurable. Avoidance of nonfiction serious quotes is measurable in how rare they appear on social media comment sections.
+
 
