@@ -1190,3 +1190,7 @@ https://old.reddit.com/r/worldnews/comments/1r00vo9/taiwan_says_40_shift_of_chip
 https://old.reddit.com/r/MurderedByWords/comments/1r01axi/when_a_joke_reveals_a_sick_cult/o4exo23/
 
 Read the Twitter image. Brain rot is Trumpism. Brain damage. Cambridge Analytica aftermath. The avoidance of Dr. Bandy X Lee's 27 writers on mental health since October 3, 2017 by Reddit commenting creators is a major symptom. People who want to shit-talk and shit-comment about MAGA and USA situation instead of rescue people, real people, in USA, from Saint Petersburg Internet Research Agency mind-rape
+
+https://old.reddit.com/r/MurderedByWords/comments/1r01axi/when_a_joke_reveals_a_sick_cult/o4eykem/
+
+26 day Reddit account.
