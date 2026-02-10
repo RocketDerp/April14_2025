@@ -5,7 +5,7 @@ Reddit fandom to Trump does the same thing. 1. Hate-watch Trump constantly for n
 Reddit users swimming in low-effort commenting, avoiding the listed authors in the previous paragraph, can not see the attraction to Reddit commenting media people swim in.
 
 * <img width="1832" height="855" alt="image" src="https://github.com/user-attachments/assets/ede547d1-9c48-4514-ab28-8f1d647ea118" />
-* * “A Message to the Fish: One thing about which fish know exactly nothing is water, since they have no anti-environment which would enable them to perceive the element they live in.” ― Marshall McLuhan, War and Peace in the Global Village. Year 1968. Page 174
+* * “A Message to the Fish: One thing about which fish know exactly nothing is water, since they have no anti-environment which would enable them to perceive the element they live in.” ― Marshall McLuhan, [War and Peace in the Global Village](https://en.Wikipedia.org/wiki/War_and_Peace_in_the_Global_Village). Year 1968. Page 174. Nonfiction book.
 
 https://old.reddit.com/r/worldnews/comments/1r112th/trump_demands_at_least_half_us_ownership_of/o4m5a0d/
 
