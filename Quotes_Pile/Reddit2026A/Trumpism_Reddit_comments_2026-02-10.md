@@ -83,3 +83,10 @@ https://old.reddit.com/r/okbuddycinephile/comments/1r10dqj/favorite_movie_which_
 
 Reddit audience is a cult of fiction. Reddit fandom is a cult of film and cinema fiction. Reddit is a cult of television Reality TV fiction. Reddit is a cult of celebrity. Reddit is a cult of images and photographs of Donald Trump. The end-users of Reddit are in a cult without any self-awareness. A film media cult, an image media cult, a social media distribution of TC/IP cult. Media cults. https://en.wikipedia.org/wiki/Hate-watching
 
+https://old.reddit.com/r/UnderReportedNews/comments/1r182ah/rep_delia_ramirez_to_dhs_officials_i_have_as_much/o4nprmp/
+
+3 month Reddit account.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1r182ah/rep_delia_ramirez_to_dhs_officials_i_have_as_much/o4now6x/
+
+ANTI_REALITY. People with massive media addictions to fiction storytelling can't face nonfiction real reality.
