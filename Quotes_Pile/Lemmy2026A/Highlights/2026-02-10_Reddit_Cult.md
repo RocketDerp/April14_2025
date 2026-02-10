@@ -12,6 +12,7 @@ Reddit social is a cult of compulsive MAGA USA
 
 &nbsp;
 
+&nbsp;
 
 Reddit is a cult of compulsive MAGA behaviors.
 
@@ -29,7 +30,29 @@ Reddit is a cult of compulsive MAGA behaviors.
 
 The cult faith on Reddit social is that more mocking, more jokes, more insulting Trump will remove Trump from office. That taunting a crazy / dementia / senile man of 80 years old who has the most powerful military weapons is a *good idea*. The cult is constantly taunting and mocking. It is a feedback loop between Truth Social and Reddit media systems.
 
-Reddit comment creators and shit-posting users are enablers to Trumpism / MAGA. Donald Trump is a leader of shit-posting and shit-commenting and Reddit is a cult of following Trump as a leader. Reddit users are not free thinkers and do not promote free thinking. Reddit users are slavish reactionary thinkers who constantly import MAGA content from Truth Social, Twitter and Fox News to spread it as far and as wide as possible. Reddit platform has become a cult temple of compulsive addiction gatherings... to Trump images, MAGA topics, and Trump writings.
+Reddit comment creators and shit-posting users are enablers to Trumpism / MAGA. Donald Trump is a leader of shit-posting and shit-commenting and Reddit is a cult of following Trump as a leader. Reddit users are not free thinkers and do not promote free thinking. Reddit users are slavish reactionary thinkers who constantly import MAGA content from Truth Social, Twitter and Fox News to spread it as far and as wide as possible. Reddit platform has become a cult temple of compulsive addiction gatherings... to Trump images, MAGA programming, and Trump writings.
+
+&nbsp;
+
+&nbsp;
+
+# MAGA Programming
+
+&nbsp;
+
+MAGA cult programming is at heart an addiction to fiction and low-effort low-information topics.  Reddit is a cult of Trump shit-commenting programming.
+
+* "Low information voters, also known as misinformation voters, are people who may vote yet are generally poorly informed about issues. The phrase is mainly used in the United States and has become popular since the mid-1990s." - https://en.wikipedia.org/wiki/Low_information_voter
+
+&nbsp;
+
+These **low-information cultists** (shit-commenting shit-posting cults) will avoid serious nonfiction books that describe the cult itself. Let me repeat that: they will not discuss **nonfiction learning and education** about the **shit-commenting cults, Trump cult, MAGA cult, Fox News cults**. Cultists on Reddit will dismiss the need for public education and widespread cult deprogramming campaigns. As the cult self-awareness itself... is deep inside... too painful to face.
+
+&nbsp;
+
+* “One of the saddest lessons of history is this: If we’ve been bamboozled long enough, we tend to **reject any evidence of the bamboozle**. We’re no longer interested in finding out the truth. The bamboozle has captured us. It’s simply too painful to acknowledge, even to ourselves, that we’ve been taken. Once you give a charlatan power over you, you almost never get it back. So the old bamboozles tend to persist as the new ones rise.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, **1995**, page 241
+
+&nbsp;
 
 &nbsp;
 
@@ -41,6 +64,10 @@ Reddit comment creators and shit-posting users are enablers to Trumpism / MAGA. 
 
 All hope is not lost.   
 Mental health for cult loss of reality.   
+The entire world needs to rescue USA.   
+Every mental health teacher on the planet.   
+The largest mental health rescue campaign in human history.   
+Cult deprogramming is essential study and learning now.   
 
 &nbsp;
 
