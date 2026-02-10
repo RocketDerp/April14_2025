@@ -28,5 +28,10 @@ https://old.reddit.com/r/Music/comments/1r11qma/zach_bryan_slams_kid_rocks_maga_
 
 Bring back a revival of older music that has been drowned out in Truth Social noise and static. Create an Opera of revival, including Dixie Chicks.
 
-OPERA_A This song has even deeper roots, but the cover video and pregnancy visual themes are so great. Great Seal USA growing plants (front side of the pyramid on the Nile river) visual metaphors... https://www.youtube.com/watch?v=J4_wXPZ1Bnk 36,051,568 views September 27, 2010 When I was teaching the meaning of the Great Seal to women in North Africa over the Internet after Ramadan 2010 - I shared this excellent video!
+OPERA_A This song has even deeper roots, but the cover video and pregnancy visual themes are so great. Great Seal USA growing plants (front side of the pyramid on the Nile river in Africa) visual metaphors... https://www.youtube.com/watch?v=J4_wXPZ1Bnk 36,051,568 views September 27, 2010 When I was teaching the meaning of the Great Seal to women in North Africa over the Internet after Ramadan 2010 - I shared this excellent video!
 
+https://old.reddit.com/r/Music/comments/1r11qma/zach_bryan_slams_kid_rocks_maga_concert_a_bunch/o4md4qk/
+
+**Hate-based Economy**, ecology and economy of **out-group hate** media values and mindsets.  
+
+* "For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the **true becomes false and the false becomes true**. That's what hate does. You can't see right. **The symbol of objectivity** is lost." - Martin Luther King Jr.
