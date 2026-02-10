@@ -70,3 +70,7 @@ https://old.reddit.com/r/law/comments/1r19729/full_video_of_today_when_ro_khanna
 Reddit society is corrupt. We The People are corrupt. Surkov won since March 2013. Prizing hate of *any person* for *any reason* is what Surkov students exploited. Every pattern of hate imaginable.
 
 * "For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the **true becomes false and the false becomes true**. That's what hate does. You can't see right. **The symbol of objectivity** is lost." - Martin Luther King Jr.
+
+https://old.reddit.com/r/MurderedByWords/comments/1r193dn/the_conspiracy_vs_reality_is_getting_out_of_hand/o4nwje6/
+
+Bible verse "1 John 4:20" education crisis. "I love Jesus" is WRONG, you have never *seen Jesus* - verse "1 John 4:20". Saying "I love God" is wrong, you have never *seen God*... so much misunderstanding in USA society.
