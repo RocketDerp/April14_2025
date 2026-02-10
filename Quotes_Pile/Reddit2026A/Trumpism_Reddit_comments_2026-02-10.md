@@ -174,3 +174,16 @@ https://old.reddit.com/r/circled/comments/1r17v9r/trump_is_in_the_unredacted_eps
 https://old.reddit.com/r/circled/comments/1r17v9r/trump_is_in_the_unredacted_epstein_files_more/o4nmtzg/
 
 25 day Reddit account. Acting as if multiple nations have not documented Russian interference with minds using Reddit social media. That NATO event going on with Putin and Russia are not tied to Internet Research Agency and programming minds to hate Americans. https://www.bbc.com/news/technology-43301643
+
+Explain why Reddit users are not free thinking? Why can't users organize a world-famous Internet uprising, a blackout over Trump? https://www.vox.com/technology/2023/6/14/23760738/reddit-blackout-explained-subreddit-apollo-third-party-apps - why can't Reddit users stage a world-shaking blackout calling for impeachment and MAGA mental health reform? Quoting Dr. Bandy X Lee?
+
+This isn't just about a black man being President. This is about massive mental manipulation for people to avoid nonfiction. Mythological mindsets, addiction to fiction stimulation from cloud Allah / Jesus father figures in the sky - played by Musk, Trump, Putin and others. Cults of monomyth fiction stories are all around, they are not impossible to prove that people believe the Bible and Quran and that there is nothing supernatural or magical about an ability to trick a population into believing science fiction is reality itself. Reddit audience is compulsively attracted to Trump photographs and Trump language. People so addicted to Trump's simulating media presence that they are unwilling to turn to nonfiction serious Dr. Bandy X. Lee and do a media-notable blackout and call for Trump's removal!
+
+Read the whole god damn book, not just a quote from one page:
+
+* “One of the saddest lessons of history is this: If we’ve been bamboozled long enough, we tend to **reject any evidence of the bamboozle**. We’re no longer interested in finding out the truth. The bamboozle has captured us. It’s simply too painful to acknowledge, even to ourselves, that we’ve been taken. Once you give a charlatan power over you, you almost never get it back. So the old bamboozles tend to persist as the new ones rise.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, **1995**, page 241.
+* * Date of 1994-11-28 for the draft from Library of Congress https://www.LOC.gov/item/cosmos000005
+* * Prior to book, a "to the public" national notice in the Washington Post on January 8, 1994 while writing.  https://www.WashingtonPost.com/archive/entertainment/books/1994/01/09/with-science-on-our-side/9e5d2141-9d53-4b4b-aa0f-7a6a0faff845/
+
+and RE-READ the nonfiction books like people re-read the Quran science fiction and re-watch Star Wars Andor science fiction. Re-read NONFICTION!
+
