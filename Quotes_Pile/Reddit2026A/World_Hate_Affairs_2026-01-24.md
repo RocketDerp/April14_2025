@@ -1603,3 +1603,55 @@ Obligatory **Sunday Church** recall from year 1968. A man who **USA** Atlanta, G
 * " And somehow this warm glow we feel when we are praised or when our name is in print is something of the **vitamin A to our ego**. Nobody is unhappy when they are praised, even if they know they don't deserve it and even if they don't believe it. The only unhappy people about praise is when that praise is going too much toward somebody else. But everybody likes to be praised because of this real drum major instinct."
 
 OPERA_A We found The Rats on Reddit and Bluesky, the population of Reddit and BLuesky, who won't follow Jen Senko and Dr. Bandy X Lee and fall for Putin's masculine macho bullshit. September 1982. https://www.youtube.com/watch?v=gxv4g1jATks 1,351 views  June 26, 2013 - listen to the opening lyrics. Year 2026 is the "Streets of the future"...
+
+https://old.reddit.com/r/europe/comments/1qzgvk9/how_epstein_and_bannon_tried_to_reshape_eu/o4b790t/
+
+* 2019 : “Chaos and disruption, I later learned, are central tenets of Bannon's animating ideology. Before catalyzing America's dharmic rebalancing, his movement would first need to instill chaos through society so that a new order could emerge. He was an avid reader of a computer scientist and armchair philosopher who goes by the name Mencius Moldbug, a hero of the alt-right who writes long-winded essays attacking democracy and virtually everything about how modern societies are ordered. Moldbug’s views on truth influenced Bannon, and what Cambridge Analytica would become. Moldbug has written that “nonsense is a more effective organizing tool than the truth,” and Bannon embraced this. “Anyone can believe in the truth,” Moldbug writes, “to believe in nonsense is an unforgettable demonstration of loyalty. It serves as a political uniform. And if you have a uniform, you have an army.”
+― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the [Plot to Break America, page 85](https://books.google.com/books?id=8OW2DwAAQBAJ&pg=PA85&dq=%22serves+as+a+political+uniform.+And+if+you+have+a+uniform,+you+have+an+army.%E2%80%9D&hl=en&newbks=1&newbks_redir=1&sa=X). **year 2019**
+
+https://old.reddit.com/r/europe/comments/1r013mk/mayor_of_london_my_ultimate_goal_is_to_reverse/o4ewlf6/
+
+https://old.reddit.com/r/europe/comments/1r013mk/mayor_of_london_my_ultimate_goal_is_to_reverse/o4ex1ip/
+
+https://old.reddit.com/r/europe/comments/1r013mk/mayor_of_london_my_ultimate_goal_is_to_reverse/o4ezu9z/
+
+5 month
+
+https://old.reddit.com/r/whoathatsinteresting/comments/1r0d6q9/they_trap_your_car_at_the_highway_ramp_then_walk/o4hfrll/
+
+https://old.reddit.com/r/worldnews/comments/1r0c0tq/obsession_with_growth_is_destroying_nature_150/o4h56vz/
+
+Top-voted comment. 
+
+Endless grown is the posting title: you know what has grown and grown and grown? Smartphone usage. Reddit commenting as a source of information and the use of time spent reading low-effort commenting. Avoidance of nonfiction serious book discussions.
+
+https://old.reddit.com/r/worldnews/comments/1r0c0tq/obsession_with_growth_is_destroying_nature_150/o4h54u5/
+
+ANSWER, UNDERSTANDING: Because we put all our most gifted and talented people into commercial art designed to exploit human minds into over-consumption. Billionaires fund advertising, marketing, public relations, sponsorship to program mindsets. We, as a species, have turned religion indoctrination into consumerism indoctrination. We are far too good at exploiting minds with lies and manipulation as a species. We hear of terrible parenting, abusive parents, we hear of Ukraine war, we hear of divorces and child custody battles... but we can't see that we don't educate or teach compassion and marriage itself (families) in our schools. We don't share notes, we keep family secrets and sex secrets and abuse secrets and we elect abusers to the highest power. Because they fund money to pay for art work and symbols to manipulate our subconscious family sex secrets, etc.
+
+* "Finding the occasional straw of truth awash in a great ocean of confusion and bamboozle requires vigilance, dedication and courage. But if we don’t practice these tough habits of thought, we cannot hope to solve the truly serious problems that face us and we risk becoming a nation of suckers" ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995, page 38
+
+https://old.reddit.com/r/worldnews/comments/1r0c0tq/obsession_with_growth_is_destroying_nature_150/o4i5zow/
+
+We clearly give a fuck for low-effort commenting. You can measure the popularity of seeking out junk information sources. Fox News popularity is measurable. Avoidance of nonfiction serious quotes is measurable in how rare they appear on social media comment sections.
+
+https://old.reddit.com/r/news/comments/1r0bh98/daughter_of_minnesota_governor_candidate_fatally/o4h7c6o/
+
+Affairs of the hate.
+
+https://old.reddit.com/r/news/comments/1r0bh98/daughter_of_minnesota_governor_candidate_fatally/o4h2y0c/
+
+And in USA schools we don't teach psychology of family relationships. We let McDonald's and Coke program obesity and diabetes into our minds instead.
+
+https://old.reddit.com/r/news/comments/1r0bh98/daughter_of_minnesota_governor_candidate_fatally/o4hzwcu/
+
+Parents say stuff like this in words, then support age 18 military and don't use social media (measurable) to promote world peace. In fact, parents measurably promote mocking and joking about world pace. People have leaders like Putin and Trump and go on with Super Bowl entertainment and amusements and don't promote major focus on world mental health... such as promoting Dr. Bandy X Lee's October 3, 2017 nonfiction book with 27 people.
+
+After Germany's deaths in World War One, families lined up for Germany to have a whole new Second World War for their children. We don't seem to study the psychology of war and "fire drills" of what to do when mob mentality groups break out. When hate-driving **cults** break out, there are no mental health fire departments.
+
+https://old.reddit.com/r/Economics/comments/1r0w8gn/europes_24_trillion_breakup_with_visa_and/o4l837d/
+
+https://old.reddit.com/r/Economics/comments/1r0w8gn/europes_24_trillion_breakup_with_visa_and/o4lhapc/
+
+https://old.reddit.com/r/Economics/comments/1r0w8gn/europes_24_trillion_breakup_with_visa_and/o4ld7p9/
+

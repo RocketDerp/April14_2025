@@ -478,7 +478,7 @@ https://old.reddit.com/r/GetNoted/comments/1qxkbmm/black_maga_are_so_lost/o3wzev
 
 Destabilized Reality.
 
-* New Years Eve 2014, BBC, Adam Curtis: "A war where you never know what the enemy are really up to, or even who they are. The underlying aim, **Surkov** says, is not to win the war, but to **use the conflict to create a constant state of destabilized perception**, in order to manage and control." https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html
+* New Years Eve 2014, BBC, Adam Curtis: "A war where you never know what the enemy are really up to, or even who they are. The underlying aim, **Surkov** says, is not to win the war, but to **use the conflict to create a constant state of destabilized perception**, in order to manage and control." https://www.realclearpolitics.com/video/2014/12/31/bhttps://old.reddit.com/r/IThinkYouShouldLeave/comments/1qzogft/when_nbc_runs_a_trump_account_state_propaganda_ad/o4cfdw8/bcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html
 
 https://old.reddit.com/r/ProgressiveHQ/comments/1qxt9o3/no_wonder_the_toddler_is_unhinged_once_again_the/o3z04sx/
 
@@ -972,3 +972,404 @@ https://old.reddit.com/r/nottheonion/comments/1qzckrl/fbi_concluded_jeffrey_epst
 Paradox upon paradox for the Reddit fandom to blow their minds on. Media messaging paradoxes. The REAL REALITY is not a paradox. But the messaging and information systems are Surkov student designed paradoxes.
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3meemk4i7a22z https://autistics.life/@RoundSparrow/116036550644701650 }
+
+https://old.reddit.com/r/law/comments/1qzgnjm/leak_show_feds_tracking_antiice_reddit_users_like/o4amg9z/
+
+https://old.reddit.com/r/law/comments/1qzgnjm/leak_show_feds_tracking_antiice_reddit_users_like/o4aodei/
+
+https://old.reddit.com/r/law/comments/1qzgnjm/leak_show_feds_tracking_antiice_reddit_users_like/o4aou6o/
+
+https://old.reddit.com/r/law/comments/1qzgnjm/leak_show_feds_tracking_antiice_reddit_users_like/o4aqf16/
+
+As the reply comment says, they are actively believing in Putin's mindsets, Surkov won since March 2013. Attacking women is CORE to the gender-focused global leadership initiative that Russia announced and was published in English on December 20, 2013 in USA. https://www.theAtlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/   *Russia's "traditional values" and his derision of the West's "genderless and infertile" liberalism in his annual state-of-the-nation address last week was just the latest example of Putin attempting to place himself at the vanguard of a new "Conservative International."*
+
+https://old.reddit.com/r/law/comments/1qzgnjm/leak_show_feds_tracking_antiice_reddit_users_like/o4asovx/
+
+https://old.reddit.com/r/Amazing/comments/1qzcgxd/time_to_pay_your_fair_share_1/o49q6b1/
+
+https://old.reddit.com/r/politics/comments/1qzfzlw/my_party_is_taking_up_for_pedophiles_massie/o4aiy0g/
+
+https://old.reddit.com/r/politics/comments/1qzfzlw/my_party_is_taking_up_for_pedophiles_massie/o4ahf1y/
+
+https://old.reddit.com/r/politics/comments/1qzfzlw/my_party_is_taking_up_for_pedophiles_massie/o4ahlsj/
+
+Surkov won since March 2013. Attacking gender roles is CORE to the gender-focused global leadership initiative that Russia announced and was published in English on December 20, 2013 in USA. https://www.theAtlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/   *Russia's "traditional values" and his derision of the West's "genderless and infertile" liberalism in his annual state-of-the-nation address last week was just the latest example of Putin attempting to place himself at the vanguard of a new "Conservative International."*
+
+https://old.reddit.com/r/MurderedByWords/comments/1qzfcvo/im_nothing_im_navel_lint/o4abxxl/
+
+The posting itself is CHOICE_MARRIAGE_HONESTY topic.
+
+https://old.reddit.com/r/law/comments/1qzjh0t/federal_statement_on_jeffrey_epsteins_death_dated/o4b8533/
+
+ANNSWER: No, they are too busy commenting and mocking "libtards" why the Reddit and Bluesky audience are too busy commenting and mocking MAGA. it is a massive cirlce-jerk-off of USA vs. USA that Putin set in motion since March 2013 with the Saint Petersburg Internet Research Agency with spicy boosted elements from Cambridge Analytical! Matthew 4:19 Trolling worked! Surkov students won.
+
+OPERA_A Crime of the Internet. Remastered year 2010. https://www.youtube.com/watch?v=d_dfFrg0hDA 453,016 views July 23, 2018 Released on: 1974-09-13
+
+https://old.reddit.com/r/law/comments/1qzjh0t/federal_statement_on_jeffrey_epsteins_death_dated/o4b91ly/
+
+https://old.reddit.com/r/law/comments/1qzjh0t/federal_statement_on_jeffrey_epsteins_death_dated/o4baj7w/
+
+Reddit users can't engage nonfiction on the subject that's been there for years and years.
+
+* “Conspiracy theories have long been used to maintain power: the Soviet leadership saw capitalist and counter-revolutionary conspiracies everywhere; the Nazis, Jewish ones. But those conspiracies were ultimately there to buttress an ideology, whether class warfare for Communists or race for Nazis. With today’s regimes, which struggle to formulate a single ideology – indeed, which can’t if they want to maintain power by sending different messages to different people – the idea that one lives in a world full of conspiracies becomes the world view itself. Conspiracy does not support the ideology; it replaces it. In Russia this is captured in the catchphrase of the country’s most important current affairs presenter: ‘A coincidence? I don’t think so!’ says Dmitry Kiselev as he twirls between tall tales that dip into history, literature, oil prices and colour revolutions, which all return to the theme of how the world has it in for Russia. And as a world view it grants those who subscribe to it certain pleasures: if all the world is a conspiracy, then your own failures are no longer all your fault. The fact that you achieved less than you hoped for, that your life is a mess – it’s all the fault of the conspiracy.
+More importantly, conspiracy is a way to maintain control. In a world where even the most authoritarian regimes struggle to impose censorship, one has to surround audiences with so much cynicism about anybody’s motives, persuade them that behind every seemingly benign motivation is a nefarious, if impossible-to-prove, plot, that they lose faith in the possibility of an alternative, a tactic a renowned Russian media analyst called Vasily Gatov calls **‘white jamming’**. And the end effect of this endless pile-up of conspiracies is that you, the little guy, can never change anything. For if you are living in a world where shadowy forces control everything, then what possible chance do you have of turning it around? In this murk it becomes best to rely on a strong hand to guide you. ‘Trump is our last chance to save America,’ **is the message of his media hounds**. Only Putin can ‘raise Russia from its knees’. ‘The problem we are facing today is less oppression, more lack of identity, apathy, division, no trust,’ sighs Srdja. ‘There are more tools to change things than before, but there’s less will to do so.” ― Peter Pomerantsev, This Is Not Propaganda: Adventures in the War Against Reality. Year 2019.
+
+https://old.reddit.com/r/nottheonion/comments/1qzjwa5/andrew_tate_says_hes_too_smart_to_read_and_books/o4balvp/
+
+Reddit audience turns into "LOL" meme stupors.
+
+https://old.reddit.com/r/WorkReform/comments/1qzeqmy/lmao_they_held_a_march_for_billionaires_in/o4a81tr/
+
+Reddit audience into "LMAO" (see posting titles) meme stupors. Billionaires bombard Reddit community into mockery and comedy mindsets.
+
+https://old.reddit.com/r/PublicFreakout/comments/1qz9hlx/maga_gets_beat_in_front_of_his_kids_for_singing/o4a934s/
+
+https://old.reddit.com/r/PublicFreakout/comments/1qz9hlx/maga_gets_beat_in_front_of_his_kids_for_singing/o4958q4/
+
+https://old.reddit.com/r/WorkReform/comments/1qzeeqh/the_atlantic_is_owned_by_steve_jobs_widow_the/o4aechc/
+
+Apple computers, Steve Jobs, technology.
+
+"For all his perspicacity, George Orwell would have been stymied by this situation; there is nothing “Orwellian” about it. The President does not have the press under his thumb. The New York Times and The Washington Post are not Pravda; the Associated Press is not Tass. And there is no Newspeak here. Lies have not been defined as truth nor truth as lies. **All that has happened is that the public has adjusted to incoherence and been amused** into indifference. Which is why Aldous Huxley would not in the least be surprised by the story. Indeed, he prophesied its coming. He believed that it is far more likely that the Western democracies will dance and dream themselves into oblivion than march into it, single file and manacled. Huxley grasped, as Orwell did not, that **it is not necessary to conceal anything from a public insensible to contradiction and narcoticized by techn**ological diversions. Although Huxley did not specify that television would be our main line to the drug, he would have no difficulty accepting Robert MacNeil’s observation that “Television is the soma of Aldous Huxley’s Brave New World.” Big Brother turns out to be Howdy Doody."
+― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, **year 1985**, page 111
+
+https://old.reddit.com/r/WorkReform/comments/1qzeeqh/the_atlantic_is_owned_by_steve_jobs_widow_the/o4adp77/
+
+Apple computers, iPhone / iPod / iPad ... 
+
+“Shaw once remarked that all professions are conspiracies against the laity. I would go further: in Technopoly, all experts are invested with the charisma of priestliness. Some of our priest-experts are called psychiatrists, some psychologists, some sociologists, some statisticians. The god they serve does not speak of righteousness or goodness or mercy or grace. Their god speaks of efficiency, precision, objectivity. And that is why such concepts as sin and evil disappear in Technopoly. They come from a moral universe that is irrelevant to the theology of expertise. And so the priests of Technopoly call sin “social deviance,” which is a statistical concept, and they call evil “psychopathology,” which is a medical concept. Sin and evil disappear because they cannot be measured and objectified, and therefore cannot be dealt with by experts.” ― Neil Postman, Technopoly: The Surrender of Culture to Technology. Year 1992.
+
+https://old.reddit.com/r/NFLv2/comments/1qzkgdw/good_business_decision/o4bfu66/
+
+https://old.reddit.com/r/law/comments/1qzm05x/urgent_smoking_gun_we_found_the_map_to_the/o4c4c5r/
+
+https://old.reddit.com/r/International/comments/1qzhbr1/this_should_not_be_redacted/o4asgxo/
+
+1 day Reddit account. front page of Reddit /r/All
+
+https://old.reddit.com/r/International/comments/1qzhbr1/this_should_not_be_redacted/o4bnwvk/
+
+Just like the operators of Reddit, mods of Reddit behave. Technology leadership, Trump tech followers, lead the nation.
+
+https://old.reddit.com/r/International/comments/1qzhbr1/this_should_not_be_redacted/o4atumk/
+
+<img width="947" height="722" alt="image" src="https://github.com/user-attachments/assets/4c6a67d5-8b44-4418-8507-96993b0cd64d" />
+
+I have a theory that people ignore that Christian / Catholic organized religion hasn't been doing this for hundreds and hundreds of years. That people ignore what is going on right in their own high school classes at age 14, age 15 and age 16. I was a bookworm and I would read books in class and around the school and never spread gossip or rumors... so girls would talk right in front of me and you could hear hot girls bragging about the older men that were giving them adult experiences. 
+
+I have a theory that people do not listen worth shit to what is truly going on in the world. Go study child custody battles, stories from divorce lawyers, court cases. All over the USA, this isn't geographic specific! Rural people have wild situations. Go to a bar and do your work on a laptop on weekday during happy hour and watch drunk drivers get into their car day after day, I did this in over 25 USA cities. People are blind to how people threaten other people with drunk driving and such. Billionaire corporations, investors pay for all that advertising to program booze / beer addictions into people. The most powerful manipulation messages possible to make people obese, alcoholics, etc.
+
+* "Finding the occasional straw of truth awash in a great ocean of confusion and bamboozle requires vigilance, dedication and courage. But if we don’t practice these tough habits of thought, we cannot hope to solve the truly serious problems that face us and we risk becoming a nation of suckers" ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995, page 38
+
+OPERA_A I grew up in Fort Wayne, Indiana. This was recorded in December 11, 1987 my final year (senior class) in high school. Some of us listen to our elders who share the truth on F.M. radio and in concert. https://www.youtube.com/watch?v=8qxDBiiVjlQ Lyrics: "A million young poets screaming out their words
+To a world full of people **just living to be heard**" - people do not fucking listen to the sexual abuse and broken families all around them in every USA city. Lyrics: "You can't tell your best buddy that you love him"; "getting **too drunk** on Saturdays(Check it out) playing football with the kids on Sundays" - NFL Super Bowl **Sunday** today, fucking LOOK AROUND! Drunks will be abusing at the end of the game. Advertised and marketed by the most gifted talented media systems devised by mankind! "And this is all that we've learned about living" - 11,492,701 views October 5, 2009 - I shared this music video to Africa, Tunisia and Algeria as part of the Arab Spring 2010 online - showing the music I grew up with in Indiana.
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mef53nalqs2v https://autistics.life/@RoundSparrow/116037709826010135 }
+
+https://old.reddit.com/r/politics/comments/1qzi35p/trump_79_targets_us_olympic_athlete_27_in_new/o4ax4cs/
+
+Putin's **Saint Peter**sburg Internet Research Agency has programmed self-harm to USA population since March 2013. Not just Trump, not just Musk, not just MAGA, not just Republicans, everyone. And people are blind that hate is prized and entirely avoiding Dr. Martin Luther King Jr's lessons about out-group hate. Today is Sunday, Bible School, Church Day, people can't read in February 2026 worth a fucking damn a science fiction story and what it has to say.
+
+The 1954 Equation
+
+Sunday, February 28, 1954: "Most people can't stand up for their convictions, because the majority of people might not be doing it. See, everybody's not doing it, so it must be wrong. And since everybody is doing it, it must be right. So a sort of numerical interpretation of what's right. But I'm here to say to you this morning that some things are right and some things are wrong. Eternally so, absolutely so. **It's wrong to hate.** It always has been wrong and it always will be wrong. It's wrong in America, it's wrong in Germany, it's wrong in Russia, it's wrong in China. It was wrong in 2000 B.C., and it's wrong in 1954 A.D. It always has been wrong, and it always will be wrong." - Martin Luther King Jr.
+
+"For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the **true becomes false and the false becomes true**. That's what hate does. You can't see right. **The symbol of objectivity** is lost." - Martin Luther King Jr.
+
+https://old.reddit.com/r/politics/comments/1qzi35p/trump_79_targets_us_olympic_athlete_27_in_new/o4axy1m/
+
+"For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the **true becomes false and the false becomes true**. That's what hate does. You can't see right. **The symbol of objectivity** is lost." - Martin Luther King Jr.
+
+https://old.reddit.com/r/politics/comments/1qzjtuj/jeffrey_epstein_claimed_donald_trumps_friends/o4bdkq8/
+
+2017 is long long time ago.
+
+https://old.reddit.com/r/politics/comments/1qzjtuj/jeffrey_epstein_claimed_donald_trumps_friends/o4beb5g/
+
+https://old.reddit.com/r/politics/comments/1qzjtuj/jeffrey_epstein_claimed_donald_trumps_friends/o4bbh8k/
+
+all known for a long time.
+
+And we have all known that everyone is attracted to Trump's style and communications methods. We have all known about his buddy relationship with Putin and the killings of Ukraine people by Russia in warfare since February 20, 2014. We have all know. The question is WHY since year 2013 did USA population all become attracted to self-harm. What did Cambridge Analytica and Saint Petersburg Internet Research Agency do that even with measles raging today in February 2026 -people CAN NOT FACE and repeat and keep repeating this story from August 24, 2018 and face up to massive mental manipulation. https://www.bbc.com/news/world-us-canada-45294192 how can RFK Jr. be in charge of measles? Mentally manipulated people.
+
+https://old.reddit.com/r/politics/comments/1qzjtuj/jeffrey_epstein_claimed_donald_trumps_friends/o4ba1w1/
+
+https://old.reddit.com/r/Music/comments/1qzoksm/turning_point_halftime_show_latest_mysterious_kid/o4caibr/
+
+https://old.reddit.com/r/Music/comments/1qzoksm/turning_point_halftime_show_latest_mysterious_kid/o4cb3mo/
+
+The fandom of Musk X (Twitter), fandom of Kid Rock, fandom of Trump. Hate-watching fandom is constantly cheering for more funny! https://en.wikipedia.org/wiki/Hate-watching
+
+To understand why Donald Trump is the center of every media system in USA - you have to deeply analyze and study thee Reddit addictions to mocking leadership. To hate leaders. To hate-watching. https://en.wikipedia.org/wiki/Hate-watching Trump / MAGA / ICE all provide the simulation that Bluesky and Reddit fandoms constantly engage. It is sickening to watch these people do ANYTHING but support and repeat and keep repeating Dr. Bandy X Lee's nonfiction book from October 3, 2017 and have MAGA and Trump learn about the mental health disasters, the elephant in the room is avoidance of Dr. Bandy X Lee's 27 group that stood up.
+
+https://old.reddit.com/r/Music/comments/1qzoksm/turning_point_halftime_show_latest_mysterious_kid/o4cas8b/
+
+Reddit audience, comment creators on Reddit, are in a cult of mocking other cults. Cult vs. cult. media cults. It has been going on since June 16, 2015 endlessly mocking back and fort in feedback loops about how { cult, retarded, dumb, stupid, idiot, moron } the out-group cults are. Surkov won.
+
+https://old.reddit.com/r/law/comments/1qzn92j/the_president_says_states_are_agents_of_the/o4c4h5x/
+
+https://old.reddit.com/r/IThinkYouShouldLeave/comments/1qzogft/when_nbc_runs_a_trump_account_state_propaganda_ad/o4cfdw8/
+
+https://old.reddit.com/r/europe/comments/1qzwpy6/jd_vance_ridiculed_for_40car_motorcade_taking_him/o4e6x9k/
+
+We all have eating disorders. We are constantly bombarding ourselves in USA with food advertisement and marketing. Banksy is correct. Because we have such terrible health care system in USA, we "eat our feelings" under the stress of red tape / insurance paperwork. USA created Google advertising, Facebook advertising, TV channel, Hollywood - we are bombarding our brains with stimulation to over-eat constantly.  Our education on nutrition is indoctrination with a McDonald's Happy Meal. Fast Food and junk food are cults and our church is praise to brand-name processed food. That is our food culture since 1980.
+
+* "this new discourse is **even more totalitarian** because behind it hides the same mechanisms of power… not the same… but behind it **hides mechanisms of power** which keep these people in their sway. Ah, I think that one of the greatest examples of this – for me – is the **discourse concerning body weight in women**; bulimia, anorexia and so on. It’s as though a male dominant society was able in the Middle Ages to, you know, put a chastity belt on a woman, to put, you know, to… **keep food away from her and starve her if she misbehaved**. But today we accomplish the same feat through **images that are constantly bombarded into the conscious and into the unconscious** of women, and they perform the wonderfully humanistic task of starving themselves to death while male therapists teach them how to get on twelve step programs to eat. See, for Foucault, this is why its not humanism. This kind of malady is a cultural malady that strikes at the very heart of life. **Once something like eating is death then you have struck at the very heart of life**. The enemy of the older radical theories may have been the ruling class, but today the stakes of whether we will reform ourselves into a new kind of human being, a new kind of society, whether we will find selves worth being… the stakes of it are simply life itself. And that makes it quite dramatic actually."
+* * Rick Roderick, Duke University
+  * https://rickroderick.org/306-foucault-and-the-disappearance-of-the-human-1993/
+
+* "This kind of malady is a cultural malady that strikes at the very heart of life. **Once something like eating is death then you have struck at the very heart of life**." - Rick Roderick. Such as the USA health care system. The very essence of life is bombarded out of people with constant marketing and advertising.
+
+https://old.reddit.com/r/politics/comments/1qzt8ll/bad_bunny_scandalizes_maga_with_wholesome_latin/o4dfyaq/
+
+4 month Reddit account. Top-upvoted popular comment.
+
+https://old.reddit.com/r/politics/comments/1qzt8ll/bad_bunny_scandalizes_maga_with_wholesome_latin/o4djpmv/
+
+Fandom of sports on Reddit. Fandom of half time show on Reddit. Fandom of Donald Trump on Reddit. We The People of the USA are so entertained joke-cracking about Trump that there is no resistance, there is a cheering fandom that Trump creates a situaiton of constant joking and joke-washing as sanewashing. ALWAYS AVOIDED: using free time and spare time on Reddit commenting to quote nonfiction from Dr. Bandy X Lee and the 27 leaders she assembled and published October 3, 2017.
+
+https://old.reddit.com/r/Snorkblot/comments/1qzskrp/let_them_eat_cake/o4d9df6/
+
+13 day Reddit account. Front-page posting, top-voted comment both.
+
+https://old.reddit.com/r/Snorkblot/comments/1qzskrp/let_them_eat_cake/o4ddyub/
+
+Grocery shopping cart of fellow people in worship of the advertising cults. You didn't purchase the popular brand, you are a failure because you purchase generic foods or non-branded foods. Billionaire programmed consumers.
+
+* "this new discourse is **even more totalitarian** because behind it hides the same mechanisms of power… not the same… but behind it **hides mechanisms of power** which keep these people in their sway. Ah, I think that one of the greatest examples of this – for me – is the **discourse concerning body weight in women**; bulimia, anorexia and so on. It’s as though a male dominant society was able in the Middle Ages to, you know, put a chastity belt on a woman, to put, you know, to… **keep food away from her and starve her if she misbehaved**. But today we accomplish the same feat through **images that are constantly bombarded into the conscious and into the unconscious** of women, and they perform the wonderfully humanistic task of starving themselves to death while male therapists teach them how to get on twelve step programs to eat. See, for Foucault, this is why its not humanism. This kind of malady is a cultural malady that strikes at the very heart of life. **Once something like eating is death then you have struck at the very heart of life**. The enemy of the older radical theories may have been the ruling class, but today the stakes of whether we will reform ourselves into a new kind of human being, a new kind of society, whether we will find selves worth being… the stakes of it are simply life itself. And that makes it quite dramatic actually."
+* * Rick Roderick, Duke University
+  * https://rickroderick.org/306-foucault-and-the-disappearance-of-the-human-1993/
+
+
+https://old.reddit.com/r/BikiniBottomTwitter/comments/1qzswe7/basically_super_bow_lx_ads_in_a_nutshell_minus_a/o4djlj1/
+
+6 day Reddit account.
+
+Social post { https://autistics.life/@RoundSparrow/116040537718610518 https://bsky.app/profile/roundsparrow.bsky.social/post/3megfbqhyrs2w }
+
+https://old.reddit.com/r/politics/comments/1qzwjo9/a_trump_file_i_havent_seen_before_its_awful_why/o4e72vf/
+
+<img width="1607" height="1487" alt="image" src="https://github.com/user-attachments/assets/5daf0b78-8386-438e-a167-90316b93eb80" />
+
+Reddit is the medium of the problem. Reddit commenting medium is the massaging of minds. People are drowning in low-effort Reddit commenting, "engagement", "engaged" in streams and rivers of comment after comment, all fragmented on different root threads on different commenting trees on different postings. People all avoiding common FAQ and common Wiki organization. Anti-FAQ anti-Wiki, anti-organizing in favor of *reacting, reactionary* to MAGA constantly; MAGA is feeding shit into Reddit minds. Reddit is an audience to MAGA. Since Q4 2024... Bluesky is another audience to MAGA.
+
+* “When a **population** becomes distracted by trivia, when cultural **life is redefined as a perpetual round of entertainments**, when serious public conversation becomes a form of baby-talk, when, in short, **a people become an audience**, and their public business a vaudeville act, then a nation finds itself....”
+― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. Nonfiction book. SEE_ALSO https://www.youtube.com/watch?v=ETUGwC9jXCM
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3meghwzdq5s2w https://autistics.life/@RoundSparrow/116040725886202836 https://MidWest.Social/post/43208738 }
+
+POST TITLE REMOVED_BY_REDDIT: "A Trump File I haven't seen before. Its awful. Why isnt this everywhere?"
+https://www.justice.gov/epstein/files/DataSet%209/EFTA00622303.pdf  
+
+https://old.reddit.com/r/Music/comments/1r012t3/country_stars_turn_on_kid_rock_after/o4exfvh/
+
+2 month Reddit account. Top-upvoted, most popular comment. Twitter-length tweet-thinking.
+
+This is what the USA population is doing with spare time and free time first thing Monday morning. What is AVOIDED: commenting about Dr. Bandy X Lee's nonfiction book of 27 people writing about the mental health of Donald Trump and the national mental health. https://www.GoodReads.com/author/quotes/16953723.Bandy_X_Lee Published October 3, 2017. Avoided and avoided because Reddit commenting is a fandom to hate-watching Kid Rock and Trump hate-watching. https://en.wikipedia.org/wiki/Hate-watching
+
+Social post { https://MidWest.Social/post/43208738/22623965 }
+
+https://old.reddit.com/r/therewasanattempt/comments/1r02j05/to_make_showing_love_to_all_people_sound_like_the/o4f6w3n/
+
+The Bible is not North American. The Bible is not in the USA Constitution. The Founding Fathers were deism / deists. The Bible is from the Middle East which has a world wide reputation of war and hate. There is a mental health crisis that people believe they 'see god" and "hear Jesus" in their head. Bible verse "1 John 4:20" addresses all that is wrong with this Kid Rock statement to USA. "I love Jesus" is wrong, read "1 John 4:20". Thinking you have seen Jesus or seen God is wrong. "1 John 4:20" Bible verse. Literacy hallucination crisis. Hamlet's Ghost reading literacy crisis. You have not seen Hamlet's Ghost. Re-read Bible verse "1 John 4:20" and apply it to Hamlet's Ghost. Or Star Wars "Force Ghosts" of 1977 fiction film!
+
+https://old.reddit.com/r/Fauxmoi/comments/1r02ogr/renee_goods_wife_makes_first_public_appearance/o4f974h/
+
+https://old.reddit.com/r/Fauxmoi/comments/1r02ogr/renee_goods_wife_makes_first_public_appearance/o4f9iyw/
+
+https://old.reddit.com/r/Fauxmoi/comments/1r02ogr/renee_goods_wife_makes_first_public_appearance/o4fb0sv/
+
+PLURIBUS is right on the Dollar Bill. It is We The People who stopped caring about Latin phrases from year 1776 period.
+
+https://old.reddit.com/r/worldnews/comments/1r00vo9/taiwan_says_40_shift_of_chip_capacity_to_us_is/o4f0zv2/
+
+4 month Reddit account.
+
+https://old.reddit.com/r/worldnews/comments/1r00vo9/taiwan_says_40_shift_of_chip_capacity_to_us_is/o4ewh8m/
+
+https://old.reddit.com/r/MurderedByWords/comments/1r01axi/when_a_joke_reveals_a_sick_cult/o4exo23/
+
+Read the Twitter image. Brain rot is Trumpism. Brain damage. Cambridge Analytica aftermath. The avoidance of Dr. Bandy X Lee's 27 writers on mental health since October 3, 2017 by Reddit commenting creators is a major symptom. People who want to shit-talk and shit-comment about MAGA and USA situation instead of rescue people, real people, in USA, from Saint Petersburg Internet Research Agency mind-rape
+
+https://old.reddit.com/r/MurderedByWords/comments/1r01axi/when_a_joke_reveals_a_sick_cult/o4eykem/
+
+26 day Reddit account.
+
+https://old.reddit.com/r/MurderedByWords/comments/1r01axi/when_a_joke_reveals_a_sick_cult/o4ezaom/
+
+Trump fandom. Reddit media is where fandom of Trump gather for shit-leader.
+
+https://old.reddit.com/r/Gamingcirclejerk/comments/1r05a40/in_bioshock_the_ultrarich_build_an_offshore/o4fq3dx/
+
+https://old.reddit.com/r/interestingasfuck/comments/1r07pxb/hundreds_of_private_jets_departed_the_bay_area/o4gatjl/
+
+https://old.reddit.com/r/nba/comments/1r08lua/mintzer_giannis_kalshi_and_the_death_of_trust_in/o4gfgfe/
+
+Everything is manipulation. Fandoms to fantasy men arrangement.
+
+https://old.reddit.com/r/nba/comments/1r08lua/mintzer_giannis_kalshi_and_the_death_of_trust_in/o4giflg/
+
+https://old.reddit.com/r/nba/comments/1r08lua/mintzer_giannis_kalshi_and_the_death_of_trust_in/o4gewo3/
+
+everyday people understand we have a health care crisis in USA. Some even understand other nations have solved such problems. But entertainment addiction rules this nation, people simply are not attracted to goodness.
+
+https://old.reddit.com/r/TikTokCringe/comments/1r0740f/accusing_the_other_side_of_reciting_lines_while/o4gqirm/
+
+Reddit is a fandom of hate-watching. Reddit community is a hate-motivated consumer society. https://en.wikipedia.org/wiki/Hate-watching
+
+https://old.reddit.com/r/TikTokCringe/comments/1r0740f/accusing_the_other_side_of_reciting_lines_while/o4g4sor/
+
+"mental illness"
+
+What are the mechanics of billions of people all across the world getting this mental illness? Is it food issue, some mind-altering substance of medication they are all taking? This is a woman talking about "God" and "the left" in her video. Where did she learn to divide all people into "right" and "left", is that in The Bible somewhere, or did it come from a King in France and has nothing to do with USA politics, but people parrot it as if it is the ultimate mental mindset of how to measure the world.
+
+Why does she believe in a Levant God and Santa? Do people indoctrinate their children? When does the "mental illness" begin?
+
+Reddit community has no concern to ponder if anyone else had ever had a thought before today. "The far right really are unhinged and suffering from mental illness at this point." At what point did the Russian far-right in Moscow against Ukraine go too far? What point did the Taliban go too far in Pakistan?
+
+On September 11, 2001 - did the far-right in Saudi Arabia go to a point to far? Did everyone notice? Exactly what mental health treatment and solutions were tried, or were only military weapon systems and armed airport security measures taken? Which mental health leader took on 9/11?
+
+I think Reddit community has a massive **media cult** problem. The crisis is that people are so conditioned to write original commenting up n every serious problem that nobody actually gets on the same page of a topic for very long. If on the same page, ever! **"Cult of original unique comments"**, rephrasing similar observations in unique ways so that We The People never actually reach any kind of shared comprehension on serious matters.
+
+I'm rephrasing the same fucking thing on this GitHub over and over and over and over to point out the absence of a FAQ, Wiki, nonfiction published book. Oh wait, there are nonfiction books already published! There are several. But the crisis seems to be that people want to engage commenting and touch screens and avoid paper printed books with any sense of rescue, urgency, need to change direction towards goodness.
+
+https://old.reddit.com/r/Fauxmoi/comments/1r0agbf/a_day_after_trump_calls_one_of_her_teammates_a/o4gvbrv/
+
+https://old.reddit.com/r/technology/comments/1r088je/ring_to_turn_on_all_camera_to_track_pets_privacy/o4gfx4y/
+
+"crazy"
+
+Language meaning manipulated for power concentration. Complete inversion of meanings. SEE_ALSO https://thesethingsinside.wordpress.com/2013/04/18/joseph-campbell-says-religious-literalism-sets-satan-in-the-seat-of-god/
+
+https://old.reddit.com/r/technology/comments/1r088je/ring_to_turn_on_all_camera_to_track_pets_privacy/o4gbgv3/
+
+Reddit is pet image central. And catching any accident or rare exotic video is popular on Reddit. It is the oddities of the world. 
+
+https://old.reddit.com/r/law/comments/1r09ug5/ghislaine_maxwells_lawyer_she_must_remain_silent/o4gtruf/
+
+https://old.reddit.com/r/news/comments/1r0etsz/irish_man_with_valid_us_work_permit_held_in_ice/o4hqrcn/
+
+Yes. If you can't entertain people and charm them like Donald Trump entertains everyone, you are a non-person. If you aren't famous and celebrity like Donald Trump, you are considered a waste of space in life. The population prizes entertainment addictions so much you see people in public staring into meme devices even when other people are with them. People program so much billionaire content into their brains in USA year 2026 that has them favor self-harm to the Earth and all life on Earth. Gun worship to fix health care, Luigi praising, and other weapon system values are widespread. People in USA will block you, silence you, burn your books and papers if you communicate outside their Reddit and Bluesky expected patterns. Fox News influence, including second-hand influence, Newsmax influence, ... words no longer work to describe how dehumanizing and toxic popularity has become.
+
+https://old.reddit.com/r/news/comments/1r0etsz/irish_man_with_valid_us_work_permit_held_in_ice/o4hpmzx/
+
+https://old.reddit.com/r/news/comments/1r0etsz/irish_man_with_valid_us_work_permit_held_in_ice/o4hq0uq/
+
+Anti-FAQ anti-Wiki information society of Reddit prizes questions as "engagement" commenting above all else. Organizing important information on serious topics is consistently avoided. Dr. Bandy X Lee's compilation of 27 mental health people since October 3, 2017 is ignored on Bluesky and Reddit because it is not entertaining enough to meme about.
+
+https://old.reddit.com/r/news/comments/1r0etsz/irish_man_with_valid_us_work_permit_held_in_ice/o4hq03e/
+
+Asking questions on social media as a form of low-effort engagement commenting. Very popular. Why are people not recognizing that MAGA / Trump / Reddit is a cult of ICE content? And why isn't mental health professional Dr. Bandy X Lee's leadership of 27 professions constantly not repeated on Reddit comment section to rescue hearts and minds from self-harm? Why do people spend their free time and spare time on Reddit commenting over each ICE action in a reactionary way - instead of teaching and educating the general public ABOUT the mental health behaviors of hate?
+
+https://old.reddit.com/r/PublicFreakout/comments/1r0hxo8/crockett_the_us_is_falling_apart_partially_bc_hes/o4ihdn7/
+
+People are pretending that the avoidance and hostility towards Dr. Bandy X Lee's publications all over the internet is normal. That calling individual people { insane, mentally unwell, crazy, sick, retarded } all the time on social media while avoiding recognizing it isn't just one person, Putin, harming Ukraine but an entire society. It isn't just one mental health sickness in organize hate groups. It isn't just a hand full of people avoiding nonfiction from Dr. Bandy X Lee's 27 writers... it's constant on Bluesky and Reddit. Go look for subscribers and hashtags on Bluesky... 
+
+https://old.reddit.com/r/PublicFreakout/comments/1r0hxo8/crockett_the_us_is_falling_apart_partially_bc_hes/o4if30i/
+
+Fiction Superman isn't a real man or person. The Bible verse "1 John 4:20" crisis in USA population is very real. The avoidance of nonfiction teaching for adults, reading nonfiction books and matching up other people's written ideas to real-world situations is observable. The addiction to low-effort commenting over and over on meme devices is observable and self-evident.
+
+https://old.reddit.com/r/PublicFreakout/comments/1r0hxo8/crockett_the_us_is_falling_apart_partially_bc_hes/o4ih0ld/
+
+You can see where people learn when /r/All is adults full of quotes from Sponge Bob.
+
+https://old.reddit.com/r/PublicFreakout/comments/1r0hxo8/crockett_the_us_is_falling_apart_partially_bc_hes/o4ijgsz/
+
+Reddit commenting addictions abound.
+
+https://old.reddit.com/r/PublicFreakout/comments/1r0hxo8/crockett_the_us_is_falling_apart_partially_bc_hes/o4ii6uf/
+
+People are incapable of identifying cult behaviors. Smartphones are in every city, regardless of nation. Tall buildings like Trump prizes make people bow and respect. An impressive looking automobile bling bling gets attention, etc. We have common mental values and we don't teach these things in our education systems, we let advertising and marketing manipulate our minds without any concern as to negative side-effects.
+
+https://old.reddit.com/r/PublicFreakout/comments/1r0hxo8/crockett_the_us_is_falling_apart_partially_bc_hes/o4icd09/
+
+https://old.reddit.com/r/PublicFreakout/comments/1r0hxo8/crockett_the_us_is_falling_apart_partially_bc_hes/o4ido02/
+
+Low-effort commenting and Truth Social messages of mocking.... the technique of making mocking statements is what put Trump and Putin to the top in mindset programming.
+
+“Science is more than a body of knowledge; it is a way of thinking. I have a (year 1995) foreboding of an America in my children’s or grandchildren’s time — when the United States is a service and information economy; when nearly all the key manufacturing industries have slipped away to other countries; when awesome technological powers are in the hands of a very few, and no one representing the public interest can even grasp the issues; when the people have lost the ability to set their own agendas or knowledgeably question those in authority; when, clutching our crystals and nervously consulting our horoscopes, our critical faculties in decline, unable to distinguish between what feels good and what’s true, we slide, almost without noticing, back into superstition and darkness. The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the **30-second** sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but especially a kind of [celebration of ignorance](https://www.youtube.com/watch?v=wcY-x1VuWtE). As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning — not just of science, but of anything — are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995, page 59
+
+https://old.reddit.com/r/International/comments/1r0edzh/our_country_is_a_joke/o4huff4/
+
+18 day Reddit account. Top-voted popular.
+
+Anti-intellectual audience programming for Reddit minds. Anything but turn to Dr. Bandy X Lee's nonfiction books as leadership.
+
+https://old.reddit.com/r/International/comments/1r0edzh/our_country_is_a_joke/o4hufkq/
+
+https://old.reddit.com/r/International/comments/1r0edzh/our_country_is_a_joke/o4hw3rv/
+
+An audience clowning around on Bluesky and Reddit, validating every other platform's hate messaging and clown messaging. Anti-intellectual audience programming for Reddit minds. Anything but turn to Dr. Bandy X Lee's nonfiction books as leadership.
+
+https://old.reddit.com/r/International/comments/1r0edzh/our_country_is_a_joke/o4i1sd2/
+
+Fandom of Trump / MAGA fandom. Amused and entertained and calling out in public for more comedy and amusements. Neil Postman was correct in his 1985 book. September 10, 2025: https://time.com/7313999/neil-postman-trump-prediction/ 
+
+https://old.reddit.com/r/International/comments/1r0edzh/our_country_is_a_joke/o4i2lkp/
+
+And Reddit and Bluesky audiences are fandoms of the jokes.
+
+https://old.reddit.com/r/TrendoraX/comments/1r0i275/crockett_the_us_is_falling_apart_partially_bc_hes/o4ig0as/
+
+https://old.reddit.com/r/TrendoraX/comments/1r0i275/crockett_the_us_is_falling_apart_partially_bc_hes/o4ijt1i/
+
+lol
+
+https://old.reddit.com/r/TrendoraX/comments/1r0i275/crockett_the_us_is_falling_apart_partially_bc_hes/o4imlvx/
+
+https://old.reddit.com/r/TrendoraX/comments/1r0i275/crockett_the_us_is_falling_apart_partially_bc_hes/o4il7w3/
+
+https://old.reddit.com/r/TrendoraX/comments/1r0i275/crockett_the_us_is_falling_apart_partially_bc_hes/o4isx8a/
+
+https://old.reddit.com/r/TrendoraX/comments/1r0i275/crockett_the_us_is_falling_apart_partially_bc_hes/o4imhnw/
+
+https://old.reddit.com/r/Fauxmoi/comments/1r0fwl8/olympic_skier_gus_kenworthy_shared_some_of_the/o4hzcys/
+
+https://old.reddit.com/r/Fauxmoi/comments/1r0fwl8/olympic_skier_gus_kenworthy_shared_some_of_the/o4hzow7/
+
+https://old.reddit.com/r/Fauxmoi/comments/1r0fwl8/olympic_skier_gus_kenworthy_shared_some_of_the/o4i0jew/
+
+https://old.reddit.com/r/Fauxmoi/comments/1r0fwl8/olympic_skier_gus_kenworthy_shared_some_of_the/o4i22af/
+
+https://old.reddit.com/r/Fauxmoi/comments/1r0fwl8/olympic_skier_gus_kenworthy_shared_some_of_the/o4i1k3a/
+
+https://old.reddit.com/r/Fauxmoi/comments/1r0fwl8/olympic_skier_gus_kenworthy_shared_some_of_the/o4hzaiq/
+
+https://old.reddit.com/r/Fauxmoi/comments/1r0fwl8/olympic_skier_gus_kenworthy_shared_some_of_the/o4i4zq5/
+
+https://old.reddit.com/r/Fauxmoi/comments/1r0fwl8/olympic_skier_gus_kenworthy_shared_some_of_the/o4i606z/
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1r0g6x2/single_issue_voting_crypto_bros_vote_en_masse_for/o4hyx79/
+
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1r0i1pa/hook_line_sinker_isaiah_martin_exposes_dennis/o4icksj/
+
+5 month account. Top-upvoted popular.
+
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1r0i1pa/hook_line_sinker_isaiah_martin_exposes_dennis/o4iehap/
+
+https://old.reddit.com/r/videos/comments/1r0fikm/enten_trump_support_absolutely_collapsing_with/o4hykyb/
+
+https://old.reddit.com/r/videos/comments/1r0fikm/enten_trump_support_absolutely_collapsing_with/o4hxaef/
+
+https://old.reddit.com/r/videos/comments/1r0fikm/enten_trump_support_absolutely_collapsing_with/o4hv2yk/
+
+https://old.reddit.com/r/videos/comments/1r0fikm/enten_trump_support_absolutely_collapsing_with/o4i0cgq/
+
+8 month Reddit account
+
+https://old.reddit.com/r/videos/comments/1r0fikm/enten_trump_support_absolutely_collapsing_with/o4hxb43/
+
+https://old.reddit.com/r/videos/comments/1r0fikm/enten_trump_support_absolutely_collapsing_with/o4i3ru9/
+
+Votes don't matter when billionaires can manipulate population into mob mentality every hour of every day on media systems and trash all goodness in society. There are no winners, billionaires don't even win, but the media system machines are extremely good at spreading viral anti-goodness ideas.
+
+https://old.reddit.com/r/PublicFreakout/comments/1r0l9w3/republican_and_democrat_congressmen_exit_doj/o4j3kdr/
+
+https://old.reddit.com/r/explainitpeter/comments/1r0rcuf/please_explain_it_peter_why_is_nancy_regan_being/o4kmow3/
+
+Neil Postman in NYC around university students I'm sure heard this shit. And part of why second term Ronald Reagan audience behaviors was inspiration for his 1985 book. The amusement people get about Trump sex life, politician sex life. The voting attraction people have to old white men.
+
+https://old.reddit.com/r/Music/comments/1r0w9j2/kid_rock_trolled_as_he_exposes_himself_buying_his/o4lnqda/
+
+https://old.reddit.com/r/Music/comments/1r0w9j2/kid_rock_trolled_as_he_exposes_himself_buying_his/o4ltmqu/
+

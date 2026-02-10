@@ -143,3 +143,75 @@ Reddit fandoms for Trump diapers too? People are so entertained by everything, n
 https://old.reddit.com/r/PeterExplainsTheJoke/comments/1qyrn7p/how_does_this_scare_overseas_readers/o45p3de/
 
 https://old.reddit.com/r/todayilearned/comments/1qz1lp0/til_that_chess_players_do_not_in_fact_burn_an/o47o78r/
+
+https://old.reddit.com/r/TikTokCringe/comments/1qz9oc5/her_father_cheated_with_an_ai_chatbot/o497xau/
+
+CHOICE_MARRIAGE_HONESTY
+
+https://old.reddit.com/r/TikTokCringe/comments/1qz9oc5/her_father_cheated_with_an_ai_chatbot/o49irti/
+
+https://old.reddit.com/r/TikTokCringe/comments/1qz9oc5/her_father_cheated_with_an_ai_chatbot/o49fkr2/
+
+SILENCE_IN_MARRIAGE APATHY_MARRIAGE Tower of Babel internal to marriage.
+
+https://old.reddit.com/r/popculturechat/comments/1qzh2d2/katy_perry_wishes_bad_bunny_for_super_bowl/o4b4mt7/
+
+https://old.reddit.com/r/popculturechat/comments/1qzh2d2/katy_perry_wishes_bad_bunny_for_super_bowl/o4b6mdr/
+
+https://old.reddit.com/r/AITAH/comments/1qzlyzb/aitah_for_telling_my_sil_a_family_secret_and_now/o4brcty/
+
+CHOICE_MARRIAGE_HONESTY PARENTING_HONESTY FAMILY_HONESTY 
+
+https://old.reddit.com/r/AITAH/comments/1qzlyzb/aitah_for_telling_my_sil_a_family_secret_and_now/o4bslxo/
+
+SEX_SECRECY 
+
+https://old.reddit.com/r/AITAH/comments/1qzlyzb/aitah_for_telling_my_sil_a_family_secret_and_now/o4c31vw/
+
+And people on Reddit constantly claim that you can same "rape" and don't use words like "grape" or *cen**sor" your words. On this GitHub I have documented my own personal messages being censored.
+
+https://old.reddit.com/r/Marriage/comments/1ppsmxv/im_finding_it_hard_to_love_my_husband/nup9el1/
+
+And who knows what is real from these accounts. The leaders of the whole fucking USA get away with bullshit and lies. RFK Jr leads the nation, Trump leads the nation, Musk leads the nation. Men who constantly manipulate and people cheer it on as great entertainment to mock and create endless mockery about.
+
+https://old.reddit.com/r/nfl/comments/1qzqy28/highlight_bad_bunny_lady_gaga_ricky_martins_super/o4cw6st/
+
+https://old.reddit.com/r/nfl/comments/1qzqy28/highlight_bad_bunny_lady_gaga_ricky_martins_super/o4cuhbw/
+
+https://old.reddit.com/r/memes/comments/1r00i2h/nonamericans_on_reddit_today/o4ezgv8/
+
+https://old.reddit.com/r/memes/comments/1r00i2h/nonamericans_on_reddit_today/o4f1run/
+
+A huge number of Americans think Trump is bad and terrible, "bad bunny Trump", "bad man", and as Vince Gilligan spelled out February 15, 2025... https://Variety.com/2025/tv/news/breaking-bad-creator-vince-gilligan-good-guys-walter-white-1236309604/ Breaking Bad is cool. Walter White is cool. Following hate leaders is popular now.
+
+* Texan Rick Roderick: "And this sense of the sort of hyperreality we get with cinema, we get with television and so on is another phenomenon Baudrillard wants to examine. And I think that here we get – and, I mean, I guess my politics are showing again – but here we get the phenomenon of Reagan, the hyperreal president. More real than real. I mean he’s better at being Harry Truman than Harry Truman. I mean, the distinction about what he is is lost in the hyperreality of his smile, which like the Cheshire Cat’s, you know, just gleams across his face. And we get for the first time a phenomenon never known in polling which is the phenomenon of not liking a person, but of liking liking a person. This is a sign you are dealing with the hyperreal. Let me go over that again: Reagan’s popularity was popular. **When you went through the various traits of Reagan and what Reagan stood for and his policies and so on, ah, vast numbers of people disliked nearly all of them**. What was popular was his popularity. And I don’t think that Reagan’s alone in this. Show business figures had this same thing go on for years." - https://RickRoderick.org/308-baudrillard-fatal-strategies-1993/
+
+https://old.reddit.com/r/Fallout/comments/1r02bxx/fallout_new_vegas_lead_says_it_took_five_years/o4f8jgq/
+
+https://old.reddit.com/r/Fallout/comments/1r02bxx/fallout_new_vegas_lead_says_it_took_five_years/o4f77m9/
+
+https://old.reddit.com/r/Fallout/comments/1r02bxx/fallout_new_vegas_lead_says_it_took_five_years/o4f74i6/
+
+recency bias
+
+https://old.reddit.com/r/BatmanArkham/comments/1r01lat/how_does_a_rockstar_do_that/o4ezvdv/
+
+https://old.reddit.com/r/KitchenConfidential/comments/1r0g221/regular_customers_order/o4im71f/
+
+https://old.reddit.com/r/news/comments/1r0bh98/daughter_of_minnesota_governor_candidate_fatally/o4i2npv/
+
+language
+
+https://old.reddit.com/r/Music/comments/1r0nv1k/chappell_roan_quits_wasserman_after_ceo_casey/o4jmotw/
+
+No, you can't always. Reddit has secret police plucking out messages and users. Denial abounds.
+
+https://old.reddit.com/r/Damnthatsinteresting/comments/1r06y91/giraffes_have_nowhere_to_hide_from_storms_maasai/o4gdx8k/
+
+nature
+
+https://old.reddit.com/r/antimeme/comments/1r0tn5s/temporary_community_update/o4kw26r/
+
+https://old.reddit.com/r/BuyFromEU/comments/1r0vec4/linux_is_the_only_real_alternative_to/o4l0vx4/
+
+The anti-FAQ anti-Wiki social media is a big reason we have billionaires and Trumpism. People need to organize. Alas, it it is mental health of our common connection that is most important. Dr. Bandy X Lee's 27 public education people since October 3, 2017 needs to be a WORLD WIDE WEB initiative to cult deprogram Russia and USA. Putin and Trump and Putin and Musk need to be addressed through the teaching and education of Dr. Bandy X Lee. And people need to face the social media behavior of AVOIDING nonfiction authors. Casually calling people { mentally unwell, crazy, batshit crazy, insane, clowns (constant, not just "clowning") } as techniques of { domination, though-terminating, insulting, mocking, mockery, bullying } needs to come to an end. Hate is a threat to all humanity as a viral cult behavior.

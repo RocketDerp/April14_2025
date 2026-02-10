@@ -42,7 +42,7 @@ The entire reply thread is important
 
 <img width="1793" height="1113" alt="image" src="https://github.com/user-attachments/assets/d353f6a4-9473-4874-8041-a9de31590684" />
 
-Reply of not3:
+Reply of note:
 
 https://old.reddit.com/r/behindthebastards/comments/1myl480/the_lolcow_industrial_complex_is_ablist_as_fuck/naeiwcm/
 
@@ -52,7 +52,7 @@ That making fun of bad people isn't funny-washing, LOL-washing and turning crime
 
 https://old.reddit.com/r/behindthebastards/comments/1myl480/the_lolcow_industrial_complex_is_ablist_as_fuck/naemfrh/
 
-The ENTIRE USA, the ENTIRE POPULATION< is a victim of abuse by Rupert Murdoch LOL-cow milking Donald J. Trump for selling of entertainment content Fox News HDTV. I will keep trying to rephrase until my last dying breath. Mob mentality is a real thing. Mafia mentality is Trumpism Fox News. AVOIDING Dr. Bandy X Lee's nonfiction books because everyone is mocking away at Trump on social machines day in and day out since October 3, 2017 publication... mockery in ob mentality to exploit group-thinking mob mentality is a true and real problem.
+The ENTIRE USA, the ENTIRE POPULATION is a victim of abuse by Rupert Murdoch LOL-cow milking Donald J. Trump for selling of entertainment content Fox News HDTV. I will keep trying to rephrase until my last dying breath. Mob mentality is a real thing. Mafia mentality is Trumpism Fox News. AVOIDING Dr. Bandy X Lee's nonfiction books because everyone is mocking away at Trump on social machines day in and day out since October 3, 2017 publication... mockery in mob mentality to exploit group-thinking mob mentality is a true and real problem.
 
 * “For in the end, he was trying to tell us what afflicted the people in 'Brave New World' was not that they were laughing instead of thinking, but that they did not know what they were laughing about and why they had stopped thinking.”
 ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. Year 1985. Nonfiction book on paper.
@@ -62,3 +62,9 @@ The ENTIRE USA, the ENTIRE POPULATION< is a victim of abuse by Rupert Murdoch LO
 https://old.reddit.com/r/politics/comments/1l8mi6y/we_published_real_photos_of_troops_sleeping_on_a/mx8jkeu/
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3lre6fhei6s2b }
+
+https://old.reddit.com/r/news/comments/1lsl81k/elon_musk_says_he_has_formed_a_new_us_political/n1jn8zb/
+
+This comment I ran across again today, and well. The horror is that this is exactly Neil Postman's 1985 book boiled down to an audience member of Reddit. Regarding... Elon Musk (richest man in the world) to Donald Trump (most powerful man in the world). We The People are motivated by entertainment and amusement above all else. Fuck-over children, fuck-over the future, poison the Earth - as long as to Big Name Status Symbols can entertain the fandom of MAGA via Reddit high-speed commenting systems.
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3ltaulv3ytk2n }

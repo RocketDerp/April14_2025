@@ -2458,3 +2458,9 @@ It seems entirely lost on Reddit users that Carol's character is a drunkard and 
 * "Well I actually have to say that this moment in existentialism has certainly been good for me, I think. It’s been a healthy thing for me. It cut short therapy, I went to a therapist once, I went three times, and on the third visit I went “Oh by the way I have a question. Why are we born to suffer and die?” and she went \[unintelligible mumble\], and that was the end of therapy for me. I figured that if she couldn’t help me with my fundamental problem, she wasn’t going to do much good on the trivial problems. I mean, I had a big problem: why are we born to suffer and die? She just went \[utter nonsense\]… she just went “Well **I can write you a prescription** for some Valium”, and I said “No thanks, I drink, I don’t need it” \[crowd laughter\] I belong to a large club; I am a drunkard… no, anyway…" - Texan Rick Roderick, Duke University. "Heidegger and the Rejection of Humanism (1993)" https://rickroderick.org/302-heidegger-and-the-rejection-of-humanism-1993/
 
 Like Carol drinks... so many in the Reddit fandom audience can't discuss these topics and turn to their druggie attitudes instead of having a discussion about the show content.
+
+https://old.reddit.com/r/science/comments/1qzcwtr/the_breaking_bad_effect_is_real_data_shows_cancer/o49uslp/
+
+https://old.reddit.com/r/science/comments/1qzcwtr/the_breaking_bad_effect_is_real_data_shows_cancer/o49uya8/
+
+The honest desperation is having a zero-audience github and trashing your valuable computer skills in favor of standing up to the billionaires. Not being a violent killer like Walter White inspires. But a much less exciting nonfiction book thumping.

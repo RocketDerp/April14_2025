@@ -803,3 +803,101 @@ Clown icons, Unicode clowns.
 
 * Howdy Doody is an American children's television program (with circus and Western frontier themes) that was created and produced by Victor F. Campbell and E. Roger Muir. It was broadcast on the NBC television network in the United States from December 27, 1947, until September 24, 1960." https://en.wikipedia.org/wiki/Howdy_Doody
 
+
+https://old.reddit.com/r/europe/comments/1qzwpy6/jd_vance_ridiculed_for_40car_motorcade_taking_him/o4e6c54/
+
+Top-upvoted comment. Twitter-length short-message mindset. Eating right out of the hands of the Kremlin and White House. This is a Reddit community eating the Surkovian onions. Eating the Onion. Incredibly gullible Reddit audience that will not turn to Dr. Bandy X. Lee or Peter Pomerantsev teaching and education. SEE: https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Reddit2025A/Surkovian_Onion_Eating.md
+
+Every hour of every day, Reddit is sane-washing JD Vance, hundreds of millions of MAGA cult members, Putin, Trump, Elon Musk. Over and over, Reddit falls for the same **antics politics** and entirely misses the point of why **over-dramatic antics** are constantly appearing on the front page of /r/All by the White House. 
+
+Reddit users have been manipulated and targeted by the Internet Research Agency.. https://www.BBC.com/news/technology-43301643 Useful Idiots is the term that Russia uses https://en.wikipedia.org/wiki/Useful_idiot (not my insult, I strive pretty hard to write things like "avoids nonfiction learning" and "unable to focus on using Google Search and finding Peter Pomerantsev's information" ... if you want a better-quality writing than my shit English. Calling people banal "idiot" is even something Marshall McLuhan addressed https://youtu.be/2JIj0Bqbdhk?t=156 in one of his filmed interviews. Mocking "idiot"... is a thought-terminating cliché.).
+
+.
+
+1. Putin, MAGA, White House, Musk does some bold antics action
+2. Reddit audience posts image, quote, or mocking of the antics
+3. Reddit community sane-washes the situation by prizing it as entertainment and amusement
+
+4. Reddit members crack-jokes to sanewash the USA society in total. That this is just "Internet culture" of how people have fun. Jokes, falsehoods, fictions, make-up scenarios, make-up quotes, mirroring Trump's writing style, talking about skin color (brown, black, orange). Make fan-fiction about the situation.
+
+5. ALWAYS avoided: Peter Pomerantsev's writing, videos, etc. Questioning the pattern witnessed over and over. Pondering and questioning: **if maybe the crowds that gather every single day to mock and insult Trump aren't a form of intentional population control**. Imprisoned fandom...compulsive behavior. An audience that has been brainwashed into always joking and always mocking and always hating MAGA and Trump. High speed information reactionary pong mind game.
+  
+6. ALWAYS avoiding: reflecting on what Donald Trump actually is good at. Instead of listing all of Trump's failures: bankruptcy list, divorce and failed marriages, TACO trade deals, failed Trump university / steak seller / on and on. **FACE THE ONE THING Trump is known for grifting, tricking, actor, acting, acting like an actor. An actor who is faking being an actor, a grift of acting itself. Entertainer, Reality TV**. Like Trump is playing in the film "Jackass" as a character for an audience. Trump's **ONE GOOD SKILL is getting on camera every 90 minutes of every day** and rage-bating Reddit!
+
+.
+
+Repeating number 5: ... pondering... Are we living inside a Reddit screen game of grinding https://en.Wikipedia.org/wiki/Grinding_(video_games) away... sane-washing jokes and behaving not as political actors, but an audience to a Reality TV theater and circus performances? Does Trump behave like a fiction character, President Tony Clifton of SNL NYC? Are we gullible and falling for the acting of a Tony Clifton actor? Are we "eating the onion" just like Fox News audience does in red states / rural population and not recognizing that **Fox News is a fiction entertainment show** like SNL Weekend Update?
+
+* “When a population becomes distracted by trivia, when cultural life is redefined as a perpetual round of entertainments, when serious public conversation becomes a form of baby-talk, when, in short, a people become an audience, and their public business a vaudeville act, then a nation finds itself at risk; culture-death is a clear possibility.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. SEE_ALSO: https://www.youtube.com/watch?v=ETUGwC9jXCM
+
+.
+
+THE SIMULATION: **"You can smell the fear from here"** (this Reddit comment being linked)
+
+THE REALITY: "Those media addicts will do anything to put on a show, and American MAGA eats it up. 40 cars is over the top, antics to get on the front page of Reddit, and look, it is on the top front page of /r/All"
+
+THE REALITY: The **only "fear" they** have is that their acts and antics and investments in 40 motorcade cars doesn't have a film audience to the blockbuster show. That it doesn't dominate the headlines like a new Taylor Swift song release. That the tickets and #1 rating on Reddit, that your MAGA absurd comedy and surreal humor show is a flop.
+
+IF YOU ARE MAKING ENTERTAINMENT POLITICS: [Borat film](https://en.wikipedia.org/wiki/Borat) or Jackass film, taking ICE and massive motorcades to Italy is right up your scripted ally of antics entertainment.
+
+.
+
+There is no self-awareness in the Reddit audience. The Reddit media cult is reading The Onion and falling hook, line and sinker that it is "fear" and not in fact **political theater, entertainment politics**, Surkovian.
+
+Social post { https://MidWest.Social/post/43165104/22622845 }
+
+
+https://old.reddit.com/r/MurderedByWords/comments/1qzrlff/it_doesnt_get_better_than_this/o4d0vt3/
+
+Front page /r/All Reddit posting Title: "It does not get better than this"   
+**Reddit wins, Murder by Words, The Resistance Wins!!!** mind-fucking propaganda on Reddit.  
+
+Which means, **life itself doesn't get better than this**. Super Bowl sports-game simulation media. A Reddit screen game. A video screen game of insulting back and forth with MAGA / Trump / Twitter screen game over and over on Apple iPhone / Apple iPad / Samsung Android devices. A simulation of a resistance that always avoids ENDING the simulation itself. Twitter-think, twitter screen shot, the best thing ever seen on a screen in all their lifetime. This isn't governing and government, this is machine love.
+
+Reddit is video game addicts who have sold out to Trump / ICE / Musk Twitter as a source of entertainment. People who prize on-screen entertainment and mocking above health care and mental health care. **People on Reddit have sold-out Dr. Bandy X Lee's** professional education and leadership in favor of sanewashing ICE / Laura Loomer and other MAGA actors as a source of "good as it ever can get" comedy material. Spare time and free time on Reddit is devoted to celebration of MAGA ignorance.
+
+* "these are the phenomenon that Baudrillard examines with the most care. Incredible information overloads with information moving at incredible speed and even to the youngest children. I have talked about how children used to learn morality from their parents and now I think that .. Super Mario Brothers. They spend much more time with Super Mario Brothers and are **much more emotionally involved with Nintendo than they are with their aunts, their uncles, their mothers and their fathers**. I asked one of my children “Why are you yelling at a machine?” when he began to bang his Nintendo, and he looked at me as though I were a being from another world. And because of that there is a postmodern trajectory. I am from another world. I am still, as it were, caught in the modern. He’s not. Why not be emotional with a machine? **His peers are machine-like**, we have already discussed that. I mean in fact **what he sees on the Nintendo screen is his thrill of the day.** That’s the most active he’s seen **any simulated image that day**. Now simulation in this society didn’t just come from nowhere. This society of simulations and of spectacles. Baudrillard actually builds his work on a foundation again that comes out of the Marxist tradition." - Texan Rick Roderick, Duke University https://RickRoderick.org/308-baudrillard-fatal-strategies-1993/
+
+Social post { https://MidWest.Social/post/43165104/22623593 }
+
+
+https://old.reddit.com/r/TrendoraX/comments/1qzrix5/bad_bunnys_super_bowl_halftime_show_performance/o4d4m4m/
+
+This headline is pure propaganda. Billionaire Jody Allen has Reddit audience eating out of her hand. The sportswashing of Trump and the music-washing of Trump and MAGA. "Bad Bunny’s Super Bowl halftime show performance is one of the biggest FUs to Trump and MAGA that I have ever seen!" fandom of hate-watching Trump and MAGA. https://en.wikipedia.org/wiki/Hate-watching
+
+Trump is an entertainer. This real-world Russian winning hearts and minds... isn't a TV show. This is real world health care and real world people having their lives wrecked by Jody Allen's investments and holdings and Trump's investments and holdings. Bad Bunny is part of the system, hiring humans to be trees, because we paved over all the real trees! This is all rectangle simulation. Square logic, blockhead thinking. Paul Allen's Microsoft legacy of sports fandoms beings programmed with **music museum** and song arrangement patterns for Wired World licensed copyrighted cults. https://archive.SeattleTimes.com/archive/19970611/2544107/the-enigmatic-paul-allen----everyone-knows-what-he-does-but-few-really-know-who-he-is "**Carlos Santana** and Allen himself" 
+
+OPERA_A https://www.youtube.com/watch?v=tvtJPs8IDgU Giving it all away, Reddit. Why do you want to give it all away to your simulation .... billionaire content? This isn't a fuck-you to Trump, it is not resisting, it is praising. Surkov won since March 2013, NATO lost. "Tree museum", is what the Super Bowl Half Time show had, people dressed in plastics. Simulation of trees. Simulacra dancing. 40,319,373 views June 16, 2009
+
+OPERA_A https://www.youtube.com/watch?v=2CZ8ossU4pc Images on a screen, fake trees, simulation. Rectangle stage. Let's bring in the Russian resistance. 5,211,627 views March 28, 2012 - price to pay and a consequence. Tree museum, men given every luxury and medical army to service their political team drama. Sports-washing our wealth-lords asset-lords copyright-lords intellectual property-lords, Jody Allen Patton.
+
+Yes, Alphabet Google YouTube and GitHub Microsoft are in the system. Bluesky is in the system. I can not change these systems on my own. My writing is public domain. Better to be a naked screaming person in agony than normalize this bullshit and living in denial of the billionaire Rupert Murdoch successes. Staring into the mind-fuck of Reddit is horror. Reddit is mind-wrecking. Reddit is the horror show that the gifted and skilled technical people blow their minds out with. Surkov won using Reddit voluntary fans / fandoms of hate-watching. Surkov students won by tuning minds to favor mocking and hate above all else. Billionaires are feeding shit into Reddit audience minds, right here, right now, and it keeps accelerating.
+
+What billionaires do is not give families something to celebrate, they rip apart relationships. They turn it into a power and wealth concentration system. A theme park for worship of the power and copyright and content creation cartels. Mecca, Quran, Mohammad science fiction storytelling of year 635. That is the "Old World Order" that the Free Masons founding fathers were educating us about with a pyramid on the Nile river symbolism. https://en.wikipedia.org/wiki/Novus_ordo_seclorum We The People have let Russia, Surkov students, push us (we, our minds) so far into monomyth mythology patterns that We The People, We The Fandoms, can no longer see the media simulations we are living under. Surkov won, USA defeated, hearts and minds lost... since March of year 2013. SEE_ALSO  https://www.theAtlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/
+
+Social post { https://midwest.social/post/43208738/22624712 }
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1qzuy3f/oh_and_the_patriots_are_owned_by_a_trumper/o4e505x/
+
+Billionaire Paul Allen, Seahawks owner, who I worked for as a media expert when the team was purchased... has led the pro-ignorant sports-think population into these mindsets and to completely avoid learning nonfiction from Dr. Bandy X Lee, Neil Postman, etc that all addresses the rise of Trump. https://www.TheGuardian.com/media/2017/feb/02/amusing-ourselves-to-death-neil-postman-trump-orwell-huxley
+
+https://old.reddit.com/r/nottheonion/comments/1r0k4zo/musk_offers_to_pay_legal_fees_for_any_epstein/o4is554/
+
+Musk is controlled opposition. A punching bag for Bluesky that-hates-Twitter and Reddit. This is a simulation of resisting Trump.
+
+
+https://old.reddit.com/r/GetNoted/comments/1r0nq5q/why_deport_an_american_citizen/o4jlf0u/
+
+It appears to be a Twitter media message, screenshot over to Reddit. The lust for high-speed messaging to say extreme tiny-short messages of "Deport Bad bunny immediately" at extremely high speeds... distorts the mind into dehumanization. People who believe they are playing a video game against other humans and sine the super Bowl is a sport-commenting media event, that anything i just part of a simulation sports game.
+
+People have lost all thinking and mindsets capable of recognizing the media addiction aspects of high-speed shit-posting and shit-commenting upon their life. The whole nation has gone to shit since June 6, of year 2011. 
+
+* https://theoutline.com/post/2445/trump-s-first-real-tweet-was-on-july-6-2011 "It is almost impossible to remember a time before Donald Trump and @realDonaldTrump were one and the same. Like a knight and his sword, a cowboy and his horse, **it now feels as if the tool has become an appendage of the man himself**, offering a direct line of sight into his distorted and deeply troubling inner world." - "Trump's first real tweet was on July 6, 2011"
+
+* “With the arrival of electric technology,” writes Marshall McLuhan, “man extended, or set outside himself, a live model of the central nervous system itself. To the degree that this is so, it is a development that suggests a desperate and suicidal autoamputation, as if the central nervous system could no longer depend on the physical organs to be protective buffers against the slings and arrows of outrageous mechanism.” - https://mcluhangalaxy.wordpress.com/2019/06/13/narcissus-narcosis-autoamputation/
+
+For Reddit, people think they are resisting "conservatives", they aren't resisting what has been exploited by Russia with far deeper Surkov insight into human behavior with electric media systems. Surkov won since March 2013. People are not only *not resisting*, We The People USA are feeding the fires of burning all variety of goodness in USA for the sake of shit-commenting and shit-posting as a cult system. A religion of shit prizing. A spiritual path of shit programming clergy. Speedy simple-think patterns in the mind and heart.
+
+For Reddit fandom of mocking, people think they are resisting "conservatives"... what is **not being resisted** in this simulation is Elon Musk billionaire mental programming of Twitter machine-thinking. Simplistic bio-polar out-group logic. Reddit community is slavishly reacting to Elon Musk's venue of mass dehumanization. Instead of turning to Dr. Bandy X Lee's nonfiction book from October 3, 2017 and persisting in quoting the 27 contributors until every person gets on the same page of the national metal health crisis... We are living in the richest man in the world's mental health fantasy of out-group hate logic as sport.
+
+
