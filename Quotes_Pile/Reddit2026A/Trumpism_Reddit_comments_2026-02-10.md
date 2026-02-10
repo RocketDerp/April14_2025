@@ -78,3 +78,8 @@ Bible verse "1 John 4:20" education crisis. "I love Jesus" is WRONG, you have ne
 https://old.reddit.com/r/MurderedByWords/comments/1r193dn/the_conspiracy_vs_reality_is_getting_out_of_hand/o4nu4ee/
 
 Extreme tiny-short Twitter-think Tweet-length mind pattern. The *mistake* and *oversight* in our education system was media ecology since the year 2007 introduction of the Apple iPhone. Rural people got smarpthones and 3G / 4G / 5G connections without any education on ***media ecology***. AVOIDED: { Dr. Bandy X Lee, New York University Neil Postman, University of Toronto Marshall McLuhan, Johns Hopkins University Peter Pomerantsev } nonfiction.
+
+https://old.reddit.com/r/okbuddycinephile/comments/1r10dqj/favorite_movie_which_was_released_at_the_same/o4mcztx/
+
+Reddit audience is a cult of fiction. Reddit fandom is a cult of film and cinema fiction. Reddit is a cult of television Reality TV fiction. Reddit is a cult of celebrity. Reddit is a cult of images and photographs of Donald Trump. The end-users of Reddit are in a cult without any self-awareness. A film media cult, an image media cult, a social media distribution of TC/IP cult. Media cults. https://en.wikipedia.org/wiki/Hate-watching
+
