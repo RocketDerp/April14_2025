@@ -154,3 +154,8 @@ CAMPBELL: We need myths that will identify the individual not with his local gro
 MOYERS: There is something about that on the Great Seal of the United States.
 
 CAMPBELL: That’s what the **Great Seal** is all about.
+
+https://old.reddit.com/r/JonStewart/comments/1r1400w/jon_stewart_why_the_f_is_it_super_bowl_halftime/o4mpwqc/
+
+It is We The People's job. Unity starts peer to peer. We The People are the nation, not just representatives. People fundamentally no longer grasp democracy since CA and IRA mental manipulations. Surkov won since March 2013. We The People should be using social media to teach cult deprogramming, quoting Dr. Bandy X Lee's nonfiction books, constantly repeating and sharing lessons.
+
