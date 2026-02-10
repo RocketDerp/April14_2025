@@ -74,3 +74,7 @@ Reddit society is corrupt. We The People are corrupt. Surkov won since March 201
 https://old.reddit.com/r/MurderedByWords/comments/1r193dn/the_conspiracy_vs_reality_is_getting_out_of_hand/o4nwje6/
 
 Bible verse "1 John 4:20" education crisis. "I love Jesus" is WRONG, you have never *seen Jesus* - verse "1 John 4:20". Saying "I love God" is wrong, you have never *seen God*... so much misunderstanding in USA society.
+
+https://old.reddit.com/r/MurderedByWords/comments/1r193dn/the_conspiracy_vs_reality_is_getting_out_of_hand/o4nu4ee/
+
+Extreme tiny-short Twitter-think Tweet-length mind pattern. The *mistake* and *oversight* in our education system was media ecology since the year 2007 introduction of the Apple iPhone. Rural people got smarpthones and 3G / 4G / 5G connections without any education on ***media ecology***. AVOIDED: { Dr. Bandy X Lee, New York University Neil Postman, University of Toronto Marshall McLuhan, Johns Hopkins University Peter Pomerantsev } nonfiction.
