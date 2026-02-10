@@ -9,4 +9,10 @@ Reddit users swimming in low-effort commenting, avoiding the listed authors in t
 
 https://old.reddit.com/r/worldnews/comments/1r112th/trump_demands_at_least_half_us_ownership_of/o4m5a0d/
 
+<img width="981" height="393" alt="image" src="https://github.com/user-attachments/assets/21b824c5-5614-4be1-8c12-3fbd85ac5f59" />
+
 If Donald Trump is so { stupid, moron, idiot, dumb } as so many say.. why is an entire population of nation, why is every media system churning out Trump content day and night since June 16, 2015 endlessly? Why are audiences flocking to, hanging upon, his every message and image? Reddit is a fandom to Trump's Reality TV Tony Clifton performance. Reddit fandom will use spare time and free time commenting over and over how stupid Trump is. The Reddit audience members will do anything and everything **to avoid these non-fiction** teachers and authors on the Reddit media cult { Dr. Bandy X Lee, New York University Neil Postman, **University of Toronto** Marshall McLuhan, Johns Hopkins University Peter Pomerantsev }.
+
+Social post { https://autistics.life/@RoundSparrow/116047619056243868 https://bsky.app/profile/roundsparrow.bsky.social/post/3mejjv5a6os27 }
+
+OPERA_A 47,997 views October 29, 2018 https://www.youtube.com/watch?v=8LulQJDFtIs
