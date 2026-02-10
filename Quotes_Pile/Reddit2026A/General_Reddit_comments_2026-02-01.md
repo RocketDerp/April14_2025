@@ -209,3 +209,5 @@ No, you can't always. Reddit has secret police plucking out messages and users. 
 https://old.reddit.com/r/Damnthatsinteresting/comments/1r06y91/giraffes_have_nowhere_to_hide_from_storms_maasai/o4gdx8k/
 
 nature
+
+https://old.reddit.com/r/antimeme/comments/1r0tn5s/temporary_community_update/o4kw26r/
