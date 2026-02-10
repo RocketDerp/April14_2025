@@ -12,6 +12,7 @@ Reddit social is a cult of compulsive MAGA USA
 
 &nbsp;
 
+
 Reddit is a cult of compulsive MAGA behaviors.
 
 1. People on Reddit always blame "the government" for the problems in the USA.
@@ -26,9 +27,9 @@ Reddit is a cult of compulsive MAGA behaviors.
 
 &nbsp;
 
-The cult faith on Reddit social is that more mocking, more jokes, more insulting Trump will remove Trump from office. That taunting a crazy / dementia / senile man of 80 years old who had the most powerful military weapons 
+The cult faith on Reddit social is that more mocking, more jokes, more insulting Trump will remove Trump from office. That taunting a crazy / dementia / senile man of 80 years old who has the most powerful military weapons is a *good idea*. The cult is constantly taunting and mocking. It is a feedback loop between Truth Social and Reddit media systems.
 
-Reddit comment creators and shit-posting users are enablers to Trumpism / MAGA. They are not free thinkers and do not promote free thinking. They are slavish reactionary thinkers who constantly import MAGA content from Twitter and Fox News to spread it as far and as wide as possible.
+Reddit comment creators and shit-posting users are enablers to Trumpism / MAGA. Donald Trump is a leader of shit-posting and shit-commenting and Reddit is a cult of following Trump as a leader. Reddit users are not free thinkers and do not promote free thinking. Reddit users are slavish reactionary thinkers who constantly import MAGA content from Truth Social, Twitter and Fox News to spread it as far and as wide as possible. Reddit platform has become a cult temple of compulsive addiction gatherings... to Trump images, MAGA topics, and Trump writings.
 
 &nbsp;
 
