@@ -1362,3 +1362,5 @@ https://old.reddit.com/r/videos/comments/1r0fikm/enten_trump_support_absolutely_
 https://old.reddit.com/r/videos/comments/1r0fikm/enten_trump_support_absolutely_collapsing_with/o4i3ru9/
 
 Votes don't matter when billionaires can manipulate population into mob mentality every hour of every day on media systems and trash all goodness in society. There are no winners, billionaires don't even win, but the media system machines are extremely good at spreading viral anti-goodness ideas.
+
+https://old.reddit.com/r/PublicFreakout/comments/1r0l9w3/republican_and_democrat_congressmen_exit_doj/o4j3kdr/
