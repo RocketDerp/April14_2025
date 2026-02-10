@@ -880,3 +880,7 @@ Social post { https://midwest.social/post/43208738/22624712 }
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1qzuy3f/oh_and_the_patriots_are_owned_by_a_trumper/o4e505x/
 
 Billionaire Paul Allen, Seahawks owner, who I worked for as a media expert when the team was purchased... has led the pro-ignorant sports-think population into these mindsets and to completely avoid learning nonfiction from Dr. Bandy X Lee, Neil Postman, etc that all addresses the rise of Trump. https://www.TheGuardian.com/media/2017/feb/02/amusing-ourselves-to-death-neil-postman-trump-orwell-huxley
+
+https://old.reddit.com/r/nottheonion/comments/1r0k4zo/musk_offers_to_pay_legal_fees_for_any_epstein/o4is554/
+
+Musk is controlled opposition. A punching bag for Bluesky that-hates-Twitter and Reddit. This is a simulation of resisting Trump.
