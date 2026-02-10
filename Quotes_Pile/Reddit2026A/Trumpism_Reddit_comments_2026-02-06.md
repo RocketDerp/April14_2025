@@ -1364,3 +1364,7 @@ https://old.reddit.com/r/videos/comments/1r0fikm/enten_trump_support_absolutely_
 Votes don't matter when billionaires can manipulate population into mob mentality every hour of every day on media systems and trash all goodness in society. There are no winners, billionaires don't even win, but the media system machines are extremely good at spreading viral anti-goodness ideas.
 
 https://old.reddit.com/r/PublicFreakout/comments/1r0l9w3/republican_and_democrat_congressmen_exit_doj/o4j3kdr/
+
+https://old.reddit.com/r/explainitpeter/comments/1r0rcuf/please_explain_it_peter_why_is_nancy_regan_being/o4kmow3/
+
+Neil Postman in NYC around university students I'm sure heard this shit. And part of why second term Ronald Reagan audience behaviors was inspiration for his 1985 book. The amusement people get about Trump sex life, politician sex life. The voting attraction people have to old white men.
