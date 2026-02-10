@@ -227,3 +227,14 @@ https://old.reddit.com/r/CuratedTumblr/comments/1r1c4r5/most_people_dont_underst
 But no way does year 1776 Constitution get misinterpreted in year 2026... just other writings. We do not teach interpretation pitfalls. Media ecology, time shifting media ecology.
 
 * Neil Postman, Amusing Ourselves to Death, page 11: “… beginning in the fourteenth century, the clock made us into time-keepers, and then time-savers, and now time-servers… with the invention of the clock, Eternity ceased to serve as the measure and focus of human events.”
+
+https://old.reddit.com/r/LetsDiscussThis/comments/1r152x2/more_footage_of_aurora_il_pd_brutally_beating_and/o4n0nfy/
+
+It is for content creation. For Reddit fandoms of I.C.E. raids. Why are Reddit end-users not quoting Dr. Bandy X Lee's books over and over and addressing the cult behaviors / cult deprogramming needs and mental health crisis of MAGA / ICE / Trump / Fox News HDTV fandoms, etc... Reddit community is a cult of ICE content to mock and insult. Instead of actually turning to intellectual leaders who want to lead us mentally out of ICE mindsets.
+
+https://old.reddit.com/r/LetsDiscussThis/comments/1r152x2/more_footage_of_aurora_il_pd_brutally_beating_and/o4n757n/
+
+https://old.reddit.com/r/LetsDiscussThis/comments/1r152x2/more_footage_of_aurora_il_pd_brutally_beating_and/o4n18yh/
+
+11 month Reddit account.
+
