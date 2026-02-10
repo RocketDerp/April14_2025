@@ -90,3 +90,7 @@ https://old.reddit.com/r/UnderReportedNews/comments/1r182ah/rep_delia_ramirez_to
 https://old.reddit.com/r/UnderReportedNews/comments/1r182ah/rep_delia_ramirez_to_dhs_officials_i_have_as_much/o4now6x/
 
 ANTI_REALITY. People with massive media addictions to fiction storytelling can't face nonfiction real reality.
+
+https://old.reddit.com/r/news/comments/1r178lp/british_woman_shot_by_dad_in_texas_after_arguing/o4nzhpz/
+
+Gun Worship USA, gun worship Luigi fandom society. Gun worship Texas values.
