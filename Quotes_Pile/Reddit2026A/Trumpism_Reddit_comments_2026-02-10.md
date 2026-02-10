@@ -98,3 +98,9 @@ Gun Worship USA, gun worship Luigi fandom society. Gun worship Texas values.
 https://old.reddit.com/r/news/comments/1r178lp/british_woman_shot_by_dad_in_texas_after_arguing/o4ny3t7/
 
 Cult members. Media cults. Cults to Fox News HDTV. Cults to Elon Musk Twitter. The "1 John 4:20" Bible cult behavior crisis for over 2,000 years has come back to us in the digital media age.
+
+https://old.reddit.com/r/news/comments/1r178lp/british_woman_shot_by_dad_in_texas_after_arguing/o4o2h9x/
+
+Before modern medicine, that's the way white European life was. Before ambulance, 911 phone service, airlift to hospitals. Parents had many children and morality rate was higher. Even pets are often allowed to breed freely, and farms can become overrun with cats and dogs that have not had surgery to prevent reproduction. This is a cult behavior that does not put human compassion but addiction to power leaders and mechanical gun devices. Sacrifices to the God Trump, God Jesus age 80 father figure.
+
+"They went into the bedroom so he could show her a Glock 9mm semi-automatic handgun which he kept in the bedside cabinet. Harrison said he had bought the gun a couple of years before because he wanted a **"sense of security"** for his family."
