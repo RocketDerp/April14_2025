@@ -215,3 +215,6 @@ https://old.reddit.com/r/antimeme/comments/1r0tn5s/temporary_community_update/o4
 https://old.reddit.com/r/BuyFromEU/comments/1r0vec4/linux_is_the_only_real_alternative_to/o4l0vx4/
 
 The anti-FAQ anti-Wiki social media is a big reason we have billionaires and Trumpism. People need to organize. Alas, it it is mental health of our common connection that is most important. Dr. Bandy X Lee's 27 public education people since October 3, 2017 needs to be a WORLD WIDE WEB initiative to cult deprogram Russia and USA. Putin and Trump and Putin and Musk need to be addressed through the teaching and education of Dr. Bandy X Lee. And people need to face the social media behavior of AVOIDING nonfiction authors. Casually calling people { mentally unwell, crazy, batshit crazy, insane, clowns (constant, not just "clowning") } as techniques of { domination, though-terminating, insulting, mocking, mockery, bullying } needs to come to an end. Hate is a threat to all humanity as a viral cult behavior.
+
+https://old.reddit.com/r/interestingasfuck/comments/1r11zgt/new_type_of_fireworks_produced_in_china_they_call/o4me0cs/
+
