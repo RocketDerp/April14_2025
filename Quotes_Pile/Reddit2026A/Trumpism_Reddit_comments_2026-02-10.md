@@ -45,3 +45,17 @@ If you **truly want to understand what is going on in USA** since year 2013, stu
 Sunday, February 28, 1954: "Most people can't stand up for their convictions, because the majority of people might not be doing it. See, everybody's not doing it, so it must be wrong. And since everybody is doing it, it must be right. So a sort of numerical interpretation of what's right. But I'm here to say to you this morning that some things are right and some things are wrong. Eternally so, absolutely so. **It's wrong to hate.** It always has been wrong and it always will be wrong. It's wrong in America, it's wrong in Germany, it's wrong in Russia, it's wrong in China. It was wrong in 2000 B.C., and it's wrong in 1954 A.D. It always has been wrong, and it always will be wrong." - Martin Luther King Jr.
 
 "For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the **true becomes false and the false becomes true**. That's what hate does. You can't see right. **The symbol of objectivity** is lost." - Martin Luther King Jr.
+
+https://old.reddit.com/r/pics/comments/1r17xn2/oc_fbi_releases_surveillance_photos_of_a/o4nlaqf/
+
+Emotional Insecurity Theater. Terrorism Theater.
+
+<img width="1150" height="1058" alt="image" src="https://github.com/user-attachments/assets/fef57080-6261-4331-a575-01478d56883e" />
+
+“At the front door I pat my trouser pocket to check for the thin outline of my passport and realize it’s not there. Always the passport, always the “dokumenti!” **You can get stopped and checked for papers at any moment**. It might only actually happen once or maybe even twice a year, but you still have to stand in queues and knock on doors to obtain the whole library of little stamps, regulations, permits — the legal stipulations and requirements that are themselves always changing. A little trick to keep you always on tenterhooks, always patting your pockets for your papers, always waking up worried that you might have lost them in a bar. Over time you begin to pat for the passport instinctively, your hand going down unthinkingly to check your pocket so many times a day you don’t even notice any more. That’s true power — when it starts to influence the unconscious movements of your arms.”
+― Peter Pomerantsev, Nothing Is True and Everything Is Possible: [The Surreal Heart of the New Russia. **Year 2014**. Page 117.](https://books.google.com/books?id=OJToBAAAQBAJ&pg=PA117&dq=%22Over+time+you+begin+to+pat+for+the+passport+instinctively,+your+hand+going+down+unthinkingly+to+check+your+pocket%22&hl=en&newbks=1&newbks_redir=1&sa=X)
+
+Think hard, ponder. How does that 2014 nonfiction book quote about Moscow apply to USA 2025, USA 2025 and ICE / immigration enforcement... Putin and Trump relationship runs very deep in the psychological levels. "That’s true power — when it starts to influence the unconscious..."
+
+Social post { https://autistics.life/@RoundSparrow/116047970158224744 https://bsky.app/profile/roundsparrow.bsky.social/post/3mejouvcr722x }
+
