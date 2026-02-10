@@ -1,0 +1,3 @@
+
+“The world of the known and the not yet known is bridged by wonderment. But wonderment happens largely in a situation where the **child’s world is separate from the adult world**, where children must seek entry, through their questions, into the adult world. As **media merge** the two worlds, as the tension created by secrets to be unraveled is diminished, the calculus of wonderment changes. Curiosity is replaced by cynicism or, even worse, arrogance. We are left with children who rely not on authoritative adults but on news from nowhere. We are left with children who are given answers to questions they never asked. We are left, in short, without children.”
+― Neil Postman, The Disappearance of Childhood
