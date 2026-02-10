@@ -104,3 +104,13 @@ https://old.reddit.com/r/news/comments/1r178lp/british_woman_shot_by_dad_in_texa
 Before modern medicine, that's the way white European life was. Before ambulance, 911 phone service, airlift to hospitals. Parents had many children and morality rate was higher. Even pets are often allowed to breed freely, and farms can become overrun with cats and dogs that have not had surgery to prevent reproduction. This is a cult behavior that does not put human compassion but addiction to power leaders and mechanical gun devices. Sacrifices to the God Trump, God Jesus age 80 father figure.
 
 "They went into the bedroom so he could show her a Glock 9mm semi-automatic handgun which he kept in the bedside cabinet. Harrison said he had bought the gun a couple of years before because he wanted a **"sense of security"** for his family."
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1r1alli/president_evil/o4o7nl2/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1r1alli/president_evil/o4ofrkx/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1r1alli/president_evil/o4oc11j/
+
+Surely spending free time and spare time commenting on Trump without bringing up mental health professionals, quotes from 27 authors, from Bandy X Lee's nonfiction book on... social media commenting... is important since October 3, 2017. Why isn't this the most discussed serious book on social media? Why is everyone commenting day after day, year after year, decade after decade about Donald Trump and avoiding recommending and teaching the general public from a nonfiction book...
+
+* "Therapists of mental health across the country report having to expand their practices to include what is being called “election trauma.” “What I’m seeing with my clients, particularly with women who experienced sexual abuse when younger, is that they are being re-wounded, re-traumatized,” said Atlanta licensed professional counselor Susan Blank. “They can’t escape it. It’s all around them, written large on the national stage” (LaMotte 2016). Among the many truly disturbing behaviors of this man now serving as the leader of the free world is his relationship to his daughter Ivanka." ― Bandy X Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. October 3, 2017. Page 186.](https://books.google.com/books?id=g0c4DwAAQBAJ&pg=PA186&dq=%22During+an+interview+with+Howard+Stern+when+Ivanka+was+twenty-two+years+old%22&hl=en&newbks=1&newbks_redir=1&sa=X)
