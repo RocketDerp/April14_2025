@@ -205,3 +205,7 @@ language
 https://old.reddit.com/r/Music/comments/1r0nv1k/chappell_roan_quits_wasserman_after_ceo_casey/o4jmotw/
 
 No, you can't always. Reddit has secret police plucking out messages and users. Denial abounds.
+
+https://old.reddit.com/r/Damnthatsinteresting/comments/1r06y91/giraffes_have_nowhere_to_hide_from_storms_maasai/o4gdx8k/
+
+nature
