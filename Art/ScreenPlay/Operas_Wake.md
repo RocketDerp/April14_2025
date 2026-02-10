@@ -26,6 +26,10 @@ Social post { https://autistics.life/@RoundSparrow/116047417215424305 https://bs
 
 This video publication is the December 15, 2009 date of Fin Wake Indra Net initiation. The night I predicted the Arab Spring 2010 while living in Austin, Texas. Based on SXSW and many social experiences of iPhone year 3 of the middle class society in Austin, Texas...  and prior NFL NBA team owner experiences in the late 1990's. Lyrics "My dreams are bursting at the seams". May 25, 2007 brewing women given freedom in pursuit of higher education in north Africa. https://www.NYTimes.com/2007/05/26/world/africa/26algeria.html
 
+* OPERA_A #PleaseTakeMeAway #FromHere #FWakeFromHere #FWakePleaseTake #PleaseTakeMeAwayFromHere ::: #PaleBlueDotARG "Planet Earth Turns Slowly", "Pale Blue Dot ARG" #AlternateRealityGame /\ #FWakeTimeIndex + 112 seconds into #MusicVideo https://youtu.be/psuRGfAaju4?t=112
+
+&nbsp;
+
 Published year 1988:
 
 BILL MOYERS: Why is a myth different from a dream?
