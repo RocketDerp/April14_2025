@@ -1647,4 +1647,9 @@ https://old.reddit.com/r/news/comments/1r0bh98/daughter_of_minnesota_governor_ca
 
 Parents say stuff like this in words, then support age 18 military and don't use social media (measurable) to promote world peace. In fact, parents measurably promote mocking and joking about world pace. People have leaders like Putin and Trump and go on with Super Bowl entertainment and amusements and don't promote major focus on world mental health... such as promoting Dr. Bandy X Lee's October 3, 2017 nonfiction book with 27 people.
 
-After Germany's deaths in World War One, families lined up for Germany to have a whole new Second World War for their children. We don't seem to study the psychology of war and "fire drills" of what to do when mob mentality groups break out.
+After Germany's deaths in World War One, families lined up for Germany to have a whole new Second World War for their children. We don't seem to study the psychology of war and "fire drills" of what to do when mob mentality groups break out. When hate-driving **cults** break out, there are no mental health fire departments.
+
+https://old.reddit.com/r/Economics/comments/1r0w8gn/europes_24_trillion_breakup_with_visa_and/o4l837d/
+
+https://old.reddit.com/r/Economics/comments/1r0w8gn/europes_24_trillion_breakup_with_visa_and/o4lhapc/
+
