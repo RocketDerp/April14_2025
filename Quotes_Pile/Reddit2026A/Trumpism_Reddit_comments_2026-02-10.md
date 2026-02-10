@@ -59,3 +59,14 @@ Think hard, ponder. How does that 2014 nonfiction book quote about Moscow apply 
 
 Social post { https://autistics.life/@RoundSparrow/116047970158224744 https://bsky.app/profile/roundsparrow.bsky.social/post/3mejouvcr722x }
 
+https://old.reddit.com/r/law/comments/1r19729/full_video_of_today_when_ro_khanna_revealed/o4ny2df/
+
+https://old.reddit.com/r/law/comments/1r19729/full_video_of_today_when_ro_khanna_revealed/o4nzc2s/
+
+https://old.reddit.com/r/law/comments/1r19729/full_video_of_today_when_ro_khanna_revealed/o4o4k5h/
+
+https://old.reddit.com/r/law/comments/1r19729/full_video_of_today_when_ro_khanna_revealed/o4o5zsi/
+
+Reddit society is corrupt. We The People are corrupt. Surkov won since March 2013. Prizing hate of *any person* for *any reason* is what Surkov students exploited. Every pattern of hate imaginable.
+
+* "For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the **true becomes false and the false becomes true**. That's what hate does. You can't see right. **The symbol of objectivity** is lost." - Martin Luther King Jr.
