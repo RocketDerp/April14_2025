@@ -201,3 +201,7 @@ https://old.reddit.com/r/KitchenConfidential/comments/1r0g221/regular_customers_
 https://old.reddit.com/r/news/comments/1r0bh98/daughter_of_minnesota_governor_candidate_fatally/o4i2npv/
 
 language
+
+https://old.reddit.com/r/Music/comments/1r0nv1k/chappell_roan_quits_wasserman_after_ceo_casey/o4jmotw/
+
+No, you can't always. Reddit has secret police plucking out messages and users. Denial abounds.
