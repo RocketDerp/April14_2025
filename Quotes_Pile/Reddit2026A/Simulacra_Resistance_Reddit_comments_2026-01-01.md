@@ -884,3 +884,20 @@ Billionaire Paul Allen, Seahawks owner, who I worked for as a media expert when 
 https://old.reddit.com/r/nottheonion/comments/1r0k4zo/musk_offers_to_pay_legal_fees_for_any_epstein/o4is554/
 
 Musk is controlled opposition. A punching bag for Bluesky that-hates-Twitter and Reddit. This is a simulation of resisting Trump.
+
+
+https://old.reddit.com/r/GetNoted/comments/1r0nq5q/why_deport_an_american_citizen/o4jlf0u/
+
+It appears to be a Twitter media message, screenshot over to Reddit. The lust for high-speed messaging to say extreme tiny-short messages of "Deport Bad bunny immediately" at extremely high speeds... distorts the mind into dehumanization. People who believe they are playing a video game against other humans and sine the super Bowl is a sport-commenting media event, that anything i just part of a simulation sports game.
+
+People have lost all thinking and mindsets capable of recognizing the media addiction aspects of high-speed shit-posting and shit-commenting upon their life. The whole nation has gone to shit since June 6, of year 2011. 
+
+* https://theoutline.com/post/2445/trump-s-first-real-tweet-was-on-july-6-2011 "It is almost impossible to remember a time before Donald Trump and @realDonaldTrump were one and the same. Like a knight and his sword, a cowboy and his horse, **it now feels as if the tool has become an appendage of the man himself**, offering a direct line of sight into his distorted and deeply troubling inner world." - "Trump's first real tweet was on July 6, 2011"
+
+* “With the arrival of electric technology,” writes Marshall McLuhan, “man extended, or set outside himself, a live model of the central nervous system itself. To the degree that this is so, it is a development that suggests a desperate and suicidal autoamputation, as if the central nervous system could no longer depend on the physical organs to be protective buffers against the slings and arrows of outrageous mechanism.” - https://mcluhangalaxy.wordpress.com/2019/06/13/narcissus-narcosis-autoamputation/
+
+For Reddit, people think they are resisting "conservatives", they aren't resisting what has been exploited by Russia with far deeper Surkov insight into human behavior with electric media systems. Surkov won since March 2013. People are not only *not resisting*, We The People USA are feeding the fires of burning all variety of goodness in USA for the sake of shit-commenting and shit-posting as a cult system. A religion of shit prizing. A spiritual path of shit programming clergy. Speedy simple-think patterns in the mind and heart.
+
+For Reddit fandom of mocking, people think they are resisting "conservatives"... what is **not being resisted** in this simulation is Elon Musk billionaire mental programming of Twitter machine-thinking. Simplistic bio-polar out-group logic. Reddit community is slavishly reacting to Elon Musk's venue of mass dehumanization. Instead of turning to Dr. Bandy X Lee's nonfiction book from October 3, 2017 and persisting in quoting the 27 contributors until every person gets on the same page of the national metal health crisis... We are living in the richest man in the world's mental health fantasy of out-group hate logic as sport.
+
+
