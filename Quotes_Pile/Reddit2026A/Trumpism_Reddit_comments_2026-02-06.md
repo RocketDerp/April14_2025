@@ -1368,3 +1368,6 @@ https://old.reddit.com/r/PublicFreakout/comments/1r0l9w3/republican_and_democrat
 https://old.reddit.com/r/explainitpeter/comments/1r0rcuf/please_explain_it_peter_why_is_nancy_regan_being/o4kmow3/
 
 Neil Postman in NYC around university students I'm sure heard this shit. And part of why second term Ronald Reagan audience behaviors was inspiration for his 1985 book. The amusement people get about Trump sex life, politician sex life. The voting attraction people have to old white men.
+
+https://old.reddit.com/r/Music/comments/1r0w9j2/kid_rock_trolled_as_he_exposes_himself_buying_his/o4lnqda/
+
