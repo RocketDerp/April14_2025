@@ -1653,3 +1653,5 @@ https://old.reddit.com/r/Economics/comments/1r0w8gn/europes_24_trillion_breakup_
 
 https://old.reddit.com/r/Economics/comments/1r0w8gn/europes_24_trillion_breakup_with_visa_and/o4lhapc/
 
+https://old.reddit.com/r/Economics/comments/1r0w8gn/europes_24_trillion_breakup_with_visa_and/o4ld7p9/
+
