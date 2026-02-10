@@ -126,3 +126,13 @@ https://old.reddit.com/r/MurderedByAOC/comments/1r17st1/aoc_on_dt_saying_he_coul
 https://old.reddit.com/r/MurderedByAOC/comments/1r17st1/aoc_on_dt_saying_he_couldnt_understand_bad_bunny/o4o62sl/
 
 Yes. Why are We The People not able to find thousands of intelligent good leaders? Why is intelligence so rare and uncommon on social media systems and in governing? Why is society in total so toxic to leaders who can describe and point paths towards goodness...
+
+https://old.reddit.com/r/MurderedByAOC/comments/1r17st1/aoc_on_dt_saying_he_couldnt_understand_bad_bunny/o4nwxbh/
+
+Tower of Babel conflicts.
+
+https://old.reddit.com/r/pics/comments/1r17xn2/oc_fbi_releases_surveillance_photos_of_a/o4nljxy/
+
+https://old.reddit.com/r/politics/comments/1r1a2jd/ro_khanna_reads_out_names_of_six_powerful_men_in/o4o4m36/
+
+11 month Reddit account. Cheering on fandom of mocking in a total mockery. 
