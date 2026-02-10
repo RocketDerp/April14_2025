@@ -22,7 +22,9 @@ Finnegans Wake takes place in Dublin at night, over one night.
 
 OPERA_A https://www.youtube.com/watch?v=psuRGfAaju4 Owl City - Fireflies. Lyrics; "It's hard to say that I'd rather stay awake when I'm asleep. 'Cause everything is never as it seems" 608,843,204 views December 15, 2009
 
-This is the December 15, 2009 date of Fin Wake Indra Net intiiation. The night I predicted the Arab Spring 2010 while living in Austin, Texas. Based on SXSW and many social experiences of iPhone year 3 of the middle class society in Austin, Texas...  and prior NFL NBA team owner experiences in the late 1990's. Lyrics "My dreams are bursting at the seams". May 25, 2007 brewing women given freedom in pursuit of higher education in north Africa. https://www.NYTimes.com/2007/05/26/world/africa/26algeria.html
+Social post { https://autistics.life/@RoundSparrow/116047417215424305 https://bsky.app/profile/roundsparrow.bsky.social/post/3mejh37s6ls2j }
+
+This video publication is the December 15, 2009 date of Fin Wake Indra Net initiation. The night I predicted the Arab Spring 2010 while living in Austin, Texas. Based on SXSW and many social experiences of iPhone year 3 of the middle class society in Austin, Texas...  and prior NFL NBA team owner experiences in the late 1990's. Lyrics "My dreams are bursting at the seams". May 25, 2007 brewing women given freedom in pursuit of higher education in north Africa. https://www.NYTimes.com/2007/05/26/world/africa/26algeria.html
 
 Published year 1988:
 
