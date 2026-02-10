@@ -1346,3 +1346,19 @@ https://old.reddit.com/r/BlackPeopleofReddit/comments/1r0i1pa/hook_line_sinker_i
 5 month account. Top-upvoted popular.
 
 https://old.reddit.com/r/BlackPeopleofReddit/comments/1r0i1pa/hook_line_sinker_isaiah_martin_exposes_dennis/o4iehap/
+
+https://old.reddit.com/r/videos/comments/1r0fikm/enten_trump_support_absolutely_collapsing_with/o4hykyb/
+
+https://old.reddit.com/r/videos/comments/1r0fikm/enten_trump_support_absolutely_collapsing_with/o4hxaef/
+
+https://old.reddit.com/r/videos/comments/1r0fikm/enten_trump_support_absolutely_collapsing_with/o4hv2yk/
+
+https://old.reddit.com/r/videos/comments/1r0fikm/enten_trump_support_absolutely_collapsing_with/o4i0cgq/
+
+8 month Reddit account
+
+https://old.reddit.com/r/videos/comments/1r0fikm/enten_trump_support_absolutely_collapsing_with/o4hxb43/
+
+https://old.reddit.com/r/videos/comments/1r0fikm/enten_trump_support_absolutely_collapsing_with/o4i3ru9/
+
+Votes don't matter when billionaires can manipulate population into mob mentality every hour of every day on media systems and trash all goodness in society. There are no winners, billionaires don't even win, but the media system machines are extremely good at spreading viral anti-goodness ideas.
