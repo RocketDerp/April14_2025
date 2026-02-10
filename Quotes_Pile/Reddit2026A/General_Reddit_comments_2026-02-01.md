@@ -221,3 +221,9 @@ https://old.reddit.com/r/interestingasfuck/comments/1r11zgt/new_type_of_firework
 https://old.reddit.com/r/fixedbytheduet/comments/1r122d9/all_he_did_was_drink/o4mor0z/
 
 CHOICE_MARRIAGE_HONESTY - the entire video.
+
+https://old.reddit.com/r/CuratedTumblr/comments/1r1c4r5/most_people_dont_understand_dont_understand_what/o4oju3o/
+
+But no way does year 1776 Constitution get misinterpreted in year 2026... just other writings. We do not teach interpretation pitfalls. Media ecology, time shifting media ecology.
+
+* Neil Postman, Amusing Ourselves to Death, page 11: “… beginning in the fourteenth century, the clock made us into time-keepers, and then time-savers, and now time-servers… with the invention of the clock, Eternity ceased to serve as the measure and focus of human events.”
