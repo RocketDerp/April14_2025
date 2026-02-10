@@ -1371,3 +1371,5 @@ Neil Postman in NYC around university students I'm sure heard this shit. And par
 
 https://old.reddit.com/r/Music/comments/1r0w9j2/kid_rock_trolled_as_he_exposes_himself_buying_his/o4lnqda/
 
+https://old.reddit.com/r/Music/comments/1r0w9j2/kid_rock_trolled_as_he_exposes_himself_buying_his/o4ltmqu/
+
