@@ -9,4 +9,4 @@ Technology of Tiny Bits
 https://bsky.app/profile/roundsparrow.bsky.social/post/3mejt6z2za22h   
 https://autistics.life/@RoundSparrow/116048272798668053  
 
-The smaller, the itty-bitty tiny, the bigger the power outcomes. Shave a bit o weight, shave a bit of power consumption, shave a bit of humanism.  
+The smaller, the itty-bitty tiny, the bigger the power outcomes. Shave a bit of weight, shave a bit of power consumption, shave a bit of humanism.  
