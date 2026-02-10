@@ -35,3 +35,13 @@ https://old.reddit.com/r/Music/comments/1r11qma/zach_bryan_slams_kid_rocks_maga_
 **Hate-based Economy**, ecology and economy of **out-group hate** media values and mindsets.  
 
 * "For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the **true becomes false and the false becomes true**. That's what hate does. You can't see right. **The symbol of objectivity** is lost." - Martin Luther King Jr.
+
+https://old.reddit.com/r/Music/comments/1r11qma/zach_bryan_slams_kid_rocks_maga_concert_a_bunch/o4mamcp/
+
+If you **truly want to understand what is going on in USA** since year 2013, study this behavior on Reddit. DELIGHTED people to have hate in their life. To have high-speed TCP/IP media system to express how much they love and are delighted following the Putin + Trump hate leadership. These are the followers of hate. They prize hate, to seek out MAGA and USA audiences to hate. Hate vs. hate fandoms, Super Bowl team sports sport-mentality thinking of hate vs. hate as the ideal version of governing. You have to take the media ecology addiction to hate seriously, study the Middle East. I moved to Amman, Jordan during the Arab Spring Syria War outbreak in March 2011 to study media ecology of *hate for hate* fandoms. *Hate harder* competitive hate faith of Reddit users. Surkov won since March of year 2013.
+
+**The 1954 Equation**
+
+Sunday, February 28, 1954: "Most people can't stand up for their convictions, because the majority of people might not be doing it. See, everybody's not doing it, so it must be wrong. And since everybody is doing it, it must be right. So a sort of numerical interpretation of what's right. But I'm here to say to you this morning that some things are right and some things are wrong. Eternally so, absolutely so. **It's wrong to hate.** It always has been wrong and it always will be wrong. It's wrong in America, it's wrong in Germany, it's wrong in Russia, it's wrong in China. It was wrong in 2000 B.C., and it's wrong in 1954 A.D. It always has been wrong, and it always will be wrong." - Martin Luther King Jr.
+
+"For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the **true becomes false and the false becomes true**. That's what hate does. You can't see right. **The symbol of objectivity** is lost." - Martin Luther King Jr.
