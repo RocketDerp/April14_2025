@@ -166,3 +166,11 @@ There is it again. See the replies. This has been going on with Reddit hate shar
 * "Somewhere somebody must have some sense. Men must see that force begets force, hate begets hate, toughness begets toughness. And it is all a descending spiral, ultimately ending in destruction for all and everybody. Somebody must have sense enough and morality enough to cut off the chain of hate and the chain of evil in the universe. And you do that by love." - Montgomery, Alabama (17 November 1957)
 
 https://old.reddit.com/r/BravoRealHousewives/comments/1r1e3cr/jill_zarin_fired_from_rhony_reunion_the_golden/o4p28vi/
+
+https://old.reddit.com/r/circled/comments/1r17v9r/trump_is_in_the_unredacted_epstein_files_more/o4nnhmi/
+
+6 months Reddit account.
+
+https://old.reddit.com/r/circled/comments/1r17v9r/trump_is_in_the_unredacted_epstein_files_more/o4nmtzg/
+
+25 day Reddit account. Acting as if multiple nations have not documented Russian interference with minds using Reddit social media. That NATO event going on with Putin and Russia are not tied to Internet Research Agency and programming minds to hate Americans. https://www.bbc.com/news/technology-43301643
