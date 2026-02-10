@@ -20,3 +20,6 @@ https://old.reddit.com/r/Music/comments/1r11qma/zach_bryan_slams_kid_rocks_maga_
 
 The problem of Reddit society is that people are avoiding FAQ creation, Wiki creation, off-Reddit linking to stable information, nonfiction books on paper. Reddit is a cult community of low-effort commenting to avoid organizing the most critical and important information. AVOIDED: { Dr. Bandy X Lee, New York University Neil Postman, University of Toronto Marshall McLuhan, Johns Hopkins University Peter Pomerantsev } nonfiction.
 
+https://old.reddit.com/r/Music/comments/1r11qma/zach_bryan_slams_kid_rocks_maga_concert_a_bunch/o4mozbn/
+
+Reddit audience is a cult of MAGA, cult of Trump, cult of billionaire media stunts. The Reddit cult is a hate-watching cult club. It takes YEARS to recognize this cult behavior of online media centers. "Early online hate-watching communities emerged with sites like Television Without Pity in 1998, which gleefully criticised every new episode of the teen series Dawson's Creek. In 2012, Emily Nussbaum discussed the concept in New Yorker" https://en.wikipedia.org/wiki/Hate-watching
