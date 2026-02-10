@@ -24,3 +24,9 @@ https://old.reddit.com/r/Music/comments/1r11qma/zach_bryan_slams_kid_rocks_maga_
 
 Reddit audience is a cult of MAGA, cult of Trump, cult of billionaire media stunts. The Reddit cult is a hate-watching cult club. It takes YEARS to recognize this cult behavior of online media centers. "Early online hate-watching communities emerged with sites like Television Without Pity in 1998, which gleefully criticised every new episode of the teen series Dawson's Creek. In 2012, Emily Nussbaum discussed the concept in New Yorker" https://en.wikipedia.org/wiki/Hate-watching (it took until year 2012 to discuss the concept of online sites in year 1998).
 
+https://old.reddit.com/r/Music/comments/1r11qma/zach_bryan_slams_kid_rocks_maga_concert_a_bunch/o4mi5df/
+
+Bring back a revival of older music that has been drowned out in Truth Social noise and static. Create an Opera of revival, including Dixie Chicks.
+
+OPERA_A This song has even deeper roots, but the cover video and pregnancy visual themes are so great. Great Seal USA growing plants (front side of the pyramid on the Nile river) visual metaphors... https://www.youtube.com/watch?v=J4_wXPZ1Bnk 36,051,568 views September 27, 2010 When I was teaching the meaning of the Great Seal to women in North Africa over the Internet after Ramadan 2010 - I shared this excellent video!
+
