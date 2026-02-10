@@ -15,3 +15,8 @@ This whole posting title is bullshit. The comment may be factual, but the post t
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1r11pju/an_illusion_of_support_can_trend_online_but_it/o4m9g9b/
 
 And remember: Rural people do not have education from New York City. New York University. Manhattan Professor Neil Postman. And study Reddit commenting, a cult of avoiding nonfiction. Reddit is a cult of MAGA / ICE / Trump / Musk hate-watching. Study hard on the Reddit comments, observe the lack of concern to rescue USA and NATO from the mental manipulation Trump and Putin have done. AVOIDED: { Dr. Bandy X Lee, New York University Neil Postman, University of Toronto Marshall McLuhan, Johns Hopkins University Peter Pomerantsev } nonfiction.
+
+https://old.reddit.com/r/Music/comments/1r11qma/zach_bryan_slams_kid_rocks_maga_concert_a_bunch/o4mbm60/
+
+The problem of Reddit society is that people are avoiding FAQ creation, Wiki creation, off-Reddit linking to stable information, nonfiction books on paper. Reddit is a cult community of low-effort commenting to avoid organizing the most critical and important information. AVOIDED: { Dr. Bandy X Lee, New York University Neil Postman, University of Toronto Marshall McLuhan, Johns Hopkins University Peter Pomerantsev } nonfiction.
+
