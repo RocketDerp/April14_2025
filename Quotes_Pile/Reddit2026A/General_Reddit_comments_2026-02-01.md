@@ -218,3 +218,6 @@ The anti-FAQ anti-Wiki social media is a big reason we have billionaires and Tru
 
 https://old.reddit.com/r/interestingasfuck/comments/1r11zgt/new_type_of_fireworks_produced_in_china_they_call/o4me0cs/
 
+https://old.reddit.com/r/fixedbytheduet/comments/1r122d9/all_he_did_was_drink/o4mor0z/
+
+CHOICE_MARRIAGE_HONESTY - the entire video.
