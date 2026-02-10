@@ -13,4 +13,4 @@ Among the many truly disturbing behaviors of this man now serving as the leader 
 
 • On Fox’s Wendy Williams Show, in 2013: “Ivanka, what’s the favorite thing you have in common with your father?” Williams asked. “Either real estate or golf,” Ivanka replied. “Donald?” Williams asked Trump. “Well, I was going to say sex, but I can’t relate that to…” Trump answers, gesturing to Ivanka (Feyerick 2016).
 
-― Bandy X Lee, The Dangerous Case of Donald Trump: 27 Psychiatrists and Mental Health Experts Assess a President. October 3, 2017. Page 186.](https://books.google.com/books?id=g0c4DwAAQBAJ&pg=PA186&dq=%22During+an+interview+with+Howard+Stern+when+Ivanka+was+twenty-two+years+old%22&hl=en&newbks=1&newbks_redir=1&sa=X)
+― Bandy X Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. October 3, 2017. Page 186.](https://books.google.com/books?id=g0c4DwAAQBAJ&pg=PA186&dq=%22During+an+interview+with+Howard+Stern+when+Ivanka+was+twenty-two+years+old%22&hl=en&newbks=1&newbks_redir=1&sa=X)
