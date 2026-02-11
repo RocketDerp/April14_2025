@@ -234,3 +234,14 @@ Instead of REACT-commenting on high-speed information systems, shit-commenting, 
 https://old.reddit.com/r/news/comments/1r1hh41/moderna_says_fda_refuses_to_review_its/o4pl20w/
 
 4 month Reddit account.
+
+https://old.reddit.com/r/Fauxmoi/comments/1r1hhod/watters_i_was_walking_in_my_street_a_car_drives/o4ppcjk/
+
+* “Whenever I ask my Russian bosses, the older TV producers and media types who run the system, what it was like growing up in the late Soviet Union, whether they believed in the Communist ideology that surrounded them, they always laugh at me.   
+“Don’t be silly,” most answer.   
+“But you sang the songs? Were good members of the Komsomol?”   
+“Of course we did, and we felt good when we sang them. And then straight after we would listen to ‘Deep Purple’ and the BBC.”   
+“So you were dissidents? You believed in finishing the USSR?”   
+“No. It’s not like that. You just speak several languages at the same time, all the time. There’s like several ‘you’s.”  
+Seen from this perspective, the great drama of Russia is not the “transition” between communism and capitalism, between one fervently held set of beliefs and another, but that during the final decades of the USSR no one believed in communism and yet carried on living as if they did, and now they can only create a society of simulations. For this remains the common, everyday psychology: the **Ostankino producers who make news worshiping the President** in the day and then switch on an opposition radio as soon as they get off work; the political technologists who morph from role to role with liquid ease—a nationalist autocrat one moment and a liberal aesthete the next; the “orthodox” oligarchs who sing hymns to Russian religious conservatism—and keep their money and families in London. All cultures have differences between “public” and “private” selves, but in Russia the contradiction can be quite extreme.”
+― Peter Pomerantsev, Nothing Is True and Everything Is Possible: The Surreal Heart of the New Russia. Published **year 2014**
