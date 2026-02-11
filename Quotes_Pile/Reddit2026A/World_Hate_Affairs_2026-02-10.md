@@ -16,3 +16,10 @@ If Donald Trump is so { stupid, moron, idiot, dumb } as so many say.. why is an 
 Social post { https://autistics.life/@RoundSparrow/116047619056243868 https://bsky.app/profile/roundsparrow.bsky.social/post/3mejjv5a6os27 }
 
 OPERA_A 47,997 views October 29, 2018 https://www.youtube.com/watch?v=8LulQJDFtIs
+
+
+https://old.reddit.com/r/comics/comments/1r1ave7/lost_in_translation_oc/o4oehik/
+
+World anti-compassion pro-hate affairs. Putinism.
+
+Social post { https://autistics.life/@RoundSparrow/116049234255286070 https://bsky.app/profile/roundsparrow.bsky.social/post/3mekass3vac24 }
