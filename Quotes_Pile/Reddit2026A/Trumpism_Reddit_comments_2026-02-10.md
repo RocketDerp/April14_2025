@@ -245,3 +245,9 @@ https://old.reddit.com/r/Fauxmoi/comments/1r1hhod/watters_i_was_walking_in_my_st
 “No. It’s not like that. You just speak several languages at the same time, all the time. There’s like several ‘you’s.”  
 Seen from this perspective, the great drama of Russia is not the “transition” between communism and capitalism, between one fervently held set of beliefs and another, but that during the final decades of the USSR no one believed in communism and yet carried on living as if they did, and now they can only create a society of simulations. For this remains the common, everyday psychology: the **Ostankino producers who make news worshiping the President** in the day and then switch on an opposition radio as soon as they get off work; the political technologists who morph from role to role with liquid ease—a nationalist autocrat one moment and a liberal aesthete the next; the “orthodox” oligarchs who sing hymns to Russian religious conservatism—and keep their money and families in London. All cultures have differences between “public” and “private” selves, but in Russia the contradiction can be quite extreme.”
 ― Peter Pomerantsev, Nothing Is True and Everything Is Possible: The Surreal Heart of the New Russia. Published **year 2014**
+
+https://old.reddit.com/r/MurderedByWords/comments/1r1if11/i_hate_your_indifference_too/o4pvnyo/
+
+This whole post is fixated on one man.
+
+What abut the cults of people who are so attracted to Trump? People who want to follow leadership of badness? The hundreds of millions of people who think it is entertaining to have all media systems constantly sharing Trump's image like this posting om Reddit. Media consumption cults.'
