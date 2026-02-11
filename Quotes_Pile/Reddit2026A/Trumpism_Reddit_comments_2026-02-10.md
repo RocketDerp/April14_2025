@@ -202,3 +202,7 @@ https://old.reddit.com/r/antiai/comments/1r1c1rk/this_is_why_ai_exists/o4okewe/
 Of course, Reddit fandoms of Trump bullshit content can't turn to nonfiction books on paper:
 
 "what Putin will do next — that he’s unpredictable and thus dangerous. We’re rendered stunned, spun, and flummoxed by the Kremlin’s weaponization of absurdity and **unreality**.” - year **2014**. September 9, 2014 https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/antiai/comments/1r1c1rk/this_is_why_ai_exists/o4om1ln/
+
+Reddit end-users don't Give A Fuck to rescue cultists of Rupert Murdoch fiction media, cultists of Elon Musk fiction media.. too busy in a Reddit commenting cult mocking the other out-group cults. Media cult A mocks media cult B which mocks media cult C which mocks media cult A. A total mockery of all avoiding Dr. Bandy X Lee's mental health nonfiction book repeating and commenting public assertions.
