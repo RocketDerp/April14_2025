@@ -424,3 +424,12 @@ https://old.reddit.com/r/RoundSparrow/comments/smxjyg/reddit_users_think_paid_ag
 
 https://old.reddit.com/r/RoundSparrow/comments/smxjyg/reddit_users_think_paid_agents_are_all_there_is/hvzs7fr/
 
+https://old.reddit.com/r/RoundSparrow/comments/snprf7/call_it_codger_power_were_older_and_fighting_for/
+
+https://old.reddit.com/r/RoundSparrow/comments/sumabr/malignant_normality_the_psychological_theory_that/hxbuzfi/
+
+The last pinned post (which I changed over the years) before I got banned. https://www.salon.com/2021/08/12/malignant-normality-the-psychological-theory-that-explains-naked-emperors-narcissists-and-nazis/
+
+Social post { https://autistics.life/@RoundSparrow/116053526113530608 https://bsky.app/profile/roundsparrow.bsky.social/post/3mem5uldjbs2r }
+
+
