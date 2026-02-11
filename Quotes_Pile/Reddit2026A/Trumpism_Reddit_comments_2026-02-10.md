@@ -360,3 +360,7 @@ https://old.reddit.com/r/therewasanattempt/comments/1r1x8ip/to_not_be_in_a_cult/
 https://old.reddit.com/r/therewasanattempt/comments/1r1x8ip/to_not_be_in_a_cult/o4sslm1/
 
 Reddit commenting fandom is literally joking and mocking the out-group in patterns conditioned by billionaire information systems owners and programmers. As programmed by billionaire leaders. Texas is a joke, Reddit commenting is joke-washing mill. Minds are blown into joking about serious problems instead of actually helping people using education and teaching in a serious positive way.
+
+https://old.reddit.com/r/therewasanattempt/comments/1r1x8ip/to_not_be_in_a_cult/o4su6zg/
+
+5 month Reddit account. The comments about the wine drinking. The gun is being a source of entertainment and "show and tell" and even POINTED at a human person, while LOADED. There is no defense of any kind, pointing a loaded gun at a person is an OFFENSIVE action, not home defense. Bullets do not simply jump into a gun. A gun doesn't have any useful purpose in the house. These actions are not like accidentally poisoning someone with bad food... the food has a purpose other than killing a person. A gun doesn't have a purpose other than to kill and intimidate people!
