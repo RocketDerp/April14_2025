@@ -261,3 +261,6 @@ https://old.reddit.com/r/RoundSparrow/comments/phe8y7/today_is_september_3_2021_
 https://old.reddit.com/r/RoundSparrow/comments/phe8y7/today_is_september_3_2021_three_years_ago_today_i/hgxxsus/
 
 "People were already being tricked with media messages by the mid 1990's. I didn't take the problem seriously enough and see the trend all the way to 2013 with Cambridge Analytica and the IRA..." - September 3, 2021, Stephen Alfred Gutknecht
+
+https://old.reddit.com/r/RoundSparrow/comments/phekzp/taking_a_new_step_uttering_a_new_word_is_what/
+
