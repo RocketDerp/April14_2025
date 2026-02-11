@@ -204,3 +204,49 @@ My comment.
 https://old.reddit.com/r/WhiteHouseHyperReal/comments/bi1rll/meta_popularity_wins_of_celebrity_fox_news_world/elxc8nq/
 
 My comment.
+
+
+# /r/RoundSparrow
+
+https://old.reddit.com/r/RoundSparrow/comments/7v9nuq/sting_doing_a_show_for_presuperbowl_right_now/
+
+My subreddit about me. My attempt to deflect some of the mocking and insulting by being even more open and idealistic in the face of the Saint Petersburg Internet Research Agency aftermath / playground of minds on Reddit.
+
+Sunday February 4, 2018
+
+Oh, none of these oldest links have comments, and my Python script expects comment links...
+
+https://old.reddit.com/r/RoundSparrow/comments/p3w2eg/katmandu_performed_by_bob_seger_tribute_band/
+
+The other advantage to having your own Subreddit is you can invite people who insult you on /r/All postings to go to a corner to fight it out peer to peer. Instead of getting banned by moderators for off-topic or unwanted focused sustained reply chains.
+
+https://old.reddit.com/r/RoundSparrow/comments/p3w30h/aimee_mann_freeway/
+
+https://old.reddit.com/r/RoundSparrow/comments/p3wdum/before_black_sabbath_how_psychedelic_rock_became/
+
+https://old.reddit.com/r/RoundSparrow/comments/p3wfm8/steely_dan_king_of_the_world/
+
+https://old.reddit.com/r/RoundSparrow/comments/p3wgqy/igy/h8ug58o/
+
+https://old.reddit.com/r/RoundSparrow/comments/p3wij5/jericho_2006_texas_embassy_attack/h8ugh6c/
+
+And my script won't grab NSFW posting...
+
+https://old.reddit.com/r/RoundSparrow/comments/p3xeb9/my_brother_did_big_time_food_biz_all_over_the/
+
+https://old.reddit.com/r/RoundSparrow/comments/p3zekf/george_lucas_tells_bill_moyers_about_the_mentors/
+
+https://old.reddit.com/r/RoundSparrow/comments/p418r5/i_think_i_have_the_same_kind_of_ca_aa_issues_as/h8vh44l/
+
+https://old.reddit.com/r/RoundSparrow/comments/p81wu5/the_bob_seger_system_2_2/
+
+Another marked NSFW
+
+https://old.reddit.com/r/RoundSparrow/comments/phdmhk/today_is_september_3_2021_twelve_years_ago_in/hbhqfmb/
+
+<img width="434" height="766" alt="image" src="https://github.com/user-attachments/assets/ddf54593-82a0-49e4-a272-d675bef84a68" />
+
+https://old.reddit.com/r/RoundSparrow/comments/phdmhk/today_is_september_3_2021_twelve_years_ago_in/hbhrrps/
+
+https://old.reddit.com/r/RoundSparrow/comments/phdmhk/today_is_september_3_2021_twelve_years_ago_in/hbhrutl/
+
