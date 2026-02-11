@@ -332,3 +332,19 @@ You can set your watch to Reddit commenting that banalizes a complex topic as a 
 
 * "An ad placed by the Russian Internet Research Agency to promote a Facebook page, Heart of Texas.
 Now, researchers at the University of Texas at Austin have analyzed the event in a paper that relies on the Facebook political advertising data released by the House Intelligence Committee in 2018 and interviews with "counterprotest participants and local organizers, journalists who covered the protest, as well as representatives of local organizations" in order to better understand the relationship between propaganda, the news media, social media, protests and the motivations of the individuals in Houston that day." - https://www.techpolicy.press/researchers-reverse-engineer-2016-texas-protest-organized-russian-internet-research-agency/
+
+https://old.reddit.com/r/circled/comments/1r1uzs6/white_privilege/o4skplp/
+
+1 month Reddit account.
+
+https://old.reddit.com/r/circled/comments/1r1uzs6/white_privilege/o4slu1l/
+
+Yes. Comparative mythology is essential studies. People live in such filter-bubbles they don't see that supporting Malala in year 2013 and year 2014 is supporting women girls in Texas too. People are so fixated on national flags, languages, sports teams of their city that they can not see common-ground issues of parenting, marriage, childhood that Malala was raising on her WWW blog January 3, 2009.
+
+https://old.reddit.com/r/circled/comments/1r1uzs6/white_privilege/o4slvg6/
+
+Exactly how is the coverage "misleading"? The comment is anti-informative. Is this a practiced social media engagement technique? Non-details.
+
+https://old.reddit.com/r/circled/comments/1r1uzs6/white_privilege/o4slyyr/
+
+The low-effort short-length commenting on Reddit is nothing new. "both sides", as if all topics of parenting are "two sides". Like the Texas Clergy teaches; there is a good team and an evil team, decide if you are going to follow Jesus or Satan, take your pick! There are two sides! Evil or good, both are valid creations by God above! This one-bit TWO AND ONLY TWO logic is incredibly popular with cloud computing Reddit fandoms.
