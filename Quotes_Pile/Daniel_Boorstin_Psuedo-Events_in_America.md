@@ -4,3 +4,10 @@
 Published: New York, Harper, 1961  
 Item Description: Originally published by Atheneum under the title: The image; or What happened to the American dream.  
 https://catalog.freelibrary.org/Record/331066  
+
+&nbsp;
+
+Interview about book, year 1960? :   
+https://studsterkel.wfmt.com/programs/daniel-boorstin-discuses-his-book-image-guide-pseudo-events-america
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mem3ohkt7k26 https://midwest.social/post/43324367 https://autistics.life/@RoundSparrow/116053372768239044 }
