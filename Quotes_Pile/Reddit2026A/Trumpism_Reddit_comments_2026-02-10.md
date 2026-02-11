@@ -282,3 +282,7 @@ We, USA society, learned nothing from September 11, 2001. We did not study Mecca
 
 OPERA_A https://www.youtube.com/watch?v=okGlFU3YW_k 375,921 views September 4, 2017  - COUNT those YouTube views. All the garbage information people consume and repeat, and avoid this! 9 months into Trump USA!
 
+https://old.reddit.com/r/circled/comments/1r1uzs6/white_privilege/o4sa4vs/
+
+DIAGNOSIS: tiny-short Tweet-thinking Twitter-length commenting. DIAGNOSIS: Avoiding Jen Senko's leadership, encouraging people with Reddit commenting to promote and share Jen Senko's year 2015 / 2016 nonfiction film: https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad DIAGNOSIS: More attracted to creating low-effort short comments than begging and pleading to other Reddit users to get on THE SAME PAGE of Jen Senko's leadership.
+
