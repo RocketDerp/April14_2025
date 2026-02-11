@@ -396,3 +396,9 @@ https://old.reddit.com/r/news/comments/1r1rfw1/faa_grounds_all_flights_to_and_fr
 https://old.reddit.com/r/news/comments/1r1rfw1/faa_grounds_all_flights_to_and_from_el_paso_until/o4rmjkq/
 
 The nightmare mindsets, a population eating out of the billionaire nightmare media programming.
+
+https://old.reddit.com/r/news/comments/1r1rfw1/faa_grounds_all_flights_to_and_from_el_paso_until/o4ro6g9/
+
+"unprecedented in the 21st century"
+
+* "what Putin will do next — that he’s unpredictable and thus dangerous. We’re rendered stunned, spun, and flummoxed by the Kremlin’s weaponization of absurdity and unreality.” - year 2014. September 9, 2014 https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
