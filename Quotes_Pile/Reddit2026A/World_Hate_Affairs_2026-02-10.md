@@ -37,3 +37,11 @@ It is the Winter Olympics in USA, and people behave like our country is a compet
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3meldwkxyos2u https://autistics.life/@RoundSparrow/116051704019827030 }
 
 https://old.reddit.com/r/clevercomebacks/comments/1r1kwah/unnecessary_retaliation_by_an_ungrateful_boss/o4qrjdx/
+
+https://old.reddit.com/r/funny/comments/1r25v5p/walmart_is_selling_valentines_day_breakup_cards/o4ui125/
+
+Corporate America teaching more hate. HATE_BASED_ECONOMY is Trumpism USA. Hate one another. Hate thy enemy. Democracy does not work when people do not love one another. The dumb-ass idea that you must hate your ex-lover is exactly how Donald Trump leads the nation. So many followers of Donald Trump who think MAGA is better than everyone else with these *hate harder* values.
+
+People do not grasp why Trump is in charge for so many years, since June 16, 2015 Trump has universal support in USA for values of hate-promoting and hate-teaching. People who hate Trump are supporters of hate! It never was funny, and no amount of joking will undo the Rupert Murdoch society values, Elon Musk society values, Donald Trump outcomes. Too much joking away as abuse that is called "love MAGA" is exactly the celebration of inequality.
+
+Social post { https://autistics.life/@RoundSparrow/116054251520445476 https://bsky.app/profile/roundsparrow.bsky.social/post/3memi6hxkn22e }
