@@ -276,3 +276,9 @@ People in USA can not see they are 0.34 billion out of over 8 billion people. In
 
 That is why Campbell said in 1986/1987 that the Levant faith systems have DISQUALIFIED themselves for the future. "they don’t know how to apply their religious ideas to contemporary life, and **to human beings rather than just to their own community**. It’s a terrible example of the failure of religion to meet the modern world. These three mythologies are fighting it out. They have disqualified themselves for the future."
 
+https://old.reddit.com/r/circled/comments/1r1uzs6/white_privilege/o4sh2mq/
+
+We, USA society, learned nothing from September 11, 2001. We did not study Mecca, we did not study the Quran, we did not study the clergy of the Mosque. And October 7, 2023 was another reminder. We did not listen to Malala when she came to Dr. Martin Luther King Jr's church. A Muslim woman from Pakistan, which is way way way far away from both the Middle East and USA - came to Atalanta, Georgia and gave a speech in a Christian Church. A MUSLIM WOMAN gave a speech in a CHURCH! WHILE TRUMP was POTUS! Why the fuck do people not cheer on goodness itself! 
+
+OPERA_A https://www.youtube.com/watch?v=okGlFU3YW_k 375,921 views September 4, 2017  - COUNT those YouTube views. All the garbage information people consume and repeat, and avoid this! 9 months into Trump USA!
+
