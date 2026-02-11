@@ -266,3 +266,6 @@ Personally for me, the crisis is far more extreme and Greta Thunberg is intellec
 
 The CRISIS of OUR TIME is people not getting on the same page! And GOOD pages. We are all on the same page of mocking Musk and Mocking Trump and Mocking Putin! We need to get off the mocking pages and into the serious comprehension pages. Pomerantsev... Dr. Bandy X Lee... Elif Şafak ... Malala's year 2013 speeches, interviews and book!
 
+https://old.reddit.com/r/circled/comments/1r1uzs6/white_privilege/o4s9opz/
+
+That's why I keep emphasizing the spare-time free-time on Reddit where people are NOT quoting and teaching Dr. Bandy X Lee. How people avoid Jen Senko's film and book. People are NOT asserting goodness. People are NOT doing cult deprogramming. People are NOT facing up to the Cambridge Analytica and Internet Research Agency outcomes since year 2013. We need to spiritually heal as a nation through education and teaching. Media ecology self-awareness. Just saying "cult", "cray" is not enough. Jen Senko and Dr. Bandy X Lee are leaders that are on the table, at the public library, and one URL clock away... that we are not facing up to.
