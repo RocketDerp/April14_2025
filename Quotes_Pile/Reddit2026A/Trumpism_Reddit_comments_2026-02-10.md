@@ -213,3 +213,7 @@ Video game media cultists. Think everything is just entertainment and amusement.
 
 * “Everything in our background has prepared us to know and resist a prison when the gates begin to close around us . . . But what if there are no cries of anguish to be heard? Who is prepared to take arms against a sea of amusements? To whom do we complain, and when, and in what tone of voice, when serious discourse dissolves into giggles? What is the antidote to a culture's being drained by laughter?”
 ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business
+
+https://old.reddit.com/r/antiai/comments/1r1c1rk/this_is_why_ai_exists/o4omqm5/
+
+* New York city, Manhattan. New York University. “With the rise of Technopoly, one of those thought-worlds disappears. Technopoly eliminates alternatives to itself in precisely the way Aldous Huxley outlined in Brave New World. It does not make them illegal. It does not make them immoral. It does not even make them unpopular. It makes them invisible and therefore irrelevant. And it does so by redefining what we mean by religion, by art, by family, **by politics**, by history, **by truth**, by privacy, by intelligence, so that our definitions fit its new requirements. Technopoly, in other words, is **totalitarian technocracy**.” ― Neil Postman, Technopoly: The Surrender of Culture to Technology. Year 1992.
