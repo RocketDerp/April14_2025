@@ -196,3 +196,9 @@ https://old.reddit.com/r/ProgressiveHQ/comments/1r1bw6x/leavitt_on_epstein_were_
 https://old.reddit.com/r/ProgressiveHQ/comments/1r1bw6x/leavitt_on_epstein_were_moving_on_from_that/o4osp72/
 
 Exactly as intended. People on Reddit hate MAGA and Trump every day since June 16, 2015 and blow their mind out with hate. Tony Clifton actors are running circles around the Reddit audience. Reddit users refuse to get on the same page and have a Reddit blackout and stop blaming Karoline Leavitt at HER PODIUM and the social media users asking her questions at the White House podium... and **start using the Reddit commenting podium to quote Dr. Bandy X Lee**'s nonfiction books!!!
+
+https://old.reddit.com/r/antiai/comments/1r1c1rk/this_is_why_ai_exists/o4okewe/
+
+Of course, Reddit fandoms of Trump bullshit content can't turn to nonfiction books on paper:
+
+"what Putin will do next — that he’s unpredictable and thus dangerous. We’re rendered stunned, spun, and flummoxed by the Kremlin’s weaponization of absurdity and **unreality**.” - year **2014**. September 9, 2014 https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
