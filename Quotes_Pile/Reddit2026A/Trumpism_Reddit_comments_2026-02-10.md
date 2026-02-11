@@ -481,4 +481,16 @@ https://old.reddit.com/r/clevercomebacks/comments/1r29x7k/whats_he_really_huntin
 
 No matter how absurd or surreal a White House and Kremlin idea is, Reddit users just eat it up as a discussion topic. Instead of shutting down Reddit in blackout, protesting, to remove Trump, the simulation of commenting about every plot twist and idea coming out is all people fucking car about. Commenting about the food as the nation burns to the ground. The addiction to high speed messaging eclipses all goodness.
 
+https://old.reddit.com/r/clevercomebacks/comments/1r29x7k/whats_he_really_hunting_for/o4vw6o1/
+
+It's just a simulation on Reddit of making simple points like this. As I have to do on GitHub to zero audience. The detachment from the real world is so extreme that people can not grasp what has happened. The attacking of Canada, being abusive to people for kindness, wasn't a "red flag" enough for Reddit audiences to maybe say the ENTIRE ROOM, the entire NATION is compromised, and that maybe just maybe gaslighting actually WORKS. Not just saying "gas lighting", but that the manipulation is not just one person fucking with a partner in a house - but an organized crime technique with all the most powerful media players in on it! Facebook, Reddit, Twitter, on and on. 
+
+There isn't anyone calling for reality. Just compulsive mocking back and forth in feedback loops. People have never found it more easy to declare how dumb the White House has become. And people have never been more engaged in low-effort reactions.
+
+https://old.reddit.com/r/clevercomebacks/comments/1r29x7k/whats_he_really_hunting_for/o4ve95u/
+
+"LMFAO". Trump fandom amused and thrilled to have this content.
+
+
+
 
