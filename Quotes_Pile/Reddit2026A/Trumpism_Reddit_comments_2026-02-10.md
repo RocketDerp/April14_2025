@@ -303,3 +303,14 @@ Trumpism. Trump fandom on Reddit. MAGA-writing. Trump-language. This is what Whi
 https://old.reddit.com/r/circled/comments/1r1uzs6/white_privilege/o4shuts/
 
 "cult", "Bible"
+
+https://old.reddit.com/r/circled/comments/1r1uzs6/white_privilege/o4si4zv/
+
+"ILL STOP THERE", microphone drop. I don't even grasp what point they are trying to make. "Reddit" is often associated with *reading, read-it". People live in such filter-bubbles and are so afraid to express their point beyond TLDR conformity of short-messaging USA in February 2026. 
+
+https://old.reddit.com/r/circled/comments/1r1uzs6/white_privilege/o4sife8/
+
+"bad people". The idea that there are "good people" and "bad people" instead of bad ideas and and bad information and bad behaviors. People are complex.
+
+In what way does this man benefit from murder of his daughter? How is his life better for having killed a 23 year old woman? I don't believe for one minute that he has improved his life or improved the world at large. It is an error, it is a mistake, and likely PROGRAMMED INTO HIS BRAIN to seek out guns to worship. Seek out Fox News HDTV and Newsmax HDTV and Trump HDTV to worship. Billionaires have manipulated him into gun worship, hate and dehumanization. Texas United States of America is a TOXIC society a TOXIC culture that he swims in. He swims in an ocean of billionaire media systems USA February 2026. It is a BAD SOCIETY with SPECIFIC BAD VALUES I HAVE NAMED: Gun worship, Billionaire worship!
+
