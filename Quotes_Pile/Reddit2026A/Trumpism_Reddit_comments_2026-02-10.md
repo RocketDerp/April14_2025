@@ -206,3 +206,10 @@ Of course, Reddit fandoms of Trump bullshit content can't turn to nonfiction boo
 https://old.reddit.com/r/antiai/comments/1r1c1rk/this_is_why_ai_exists/o4om1ln/
 
 Reddit end-users don't Give A Fuck to rescue cultists of Rupert Murdoch fiction media, cultists of Elon Musk fiction media.. too busy in a Reddit commenting cult mocking the other out-group cults. Media cult A mocks media cult B which mocks media cult C which mocks media cult A. A total mockery of all avoiding Dr. Bandy X Lee's mental health nonfiction book repeating and commenting public assertions.
+
+https://old.reddit.com/r/antiai/comments/1r1c1rk/this_is_why_ai_exists/o4on5l1/
+
+Video game media cultists. Think everything is just entertainment and amusement. 
+
+* “Everything in our background has prepared us to know and resist a prison when the gates begin to close around us . . . But what if there are no cries of anguish to be heard? Who is prepared to take arms against a sea of amusements? To whom do we complain, and when, and in what tone of voice, when serious discourse dissolves into giggles? What is the antidote to a culture's being drained by laughter?”
+― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business
