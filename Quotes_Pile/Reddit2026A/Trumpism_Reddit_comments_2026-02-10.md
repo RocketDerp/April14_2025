@@ -376,3 +376,9 @@ Left vs. right 1-bit brain-rot logic mindset. No condemnation of shootings. No c
 February 28, 1954: "Most people can't stand up for their convictions, because the majority of people might not be doing it. See, everybody's not doing it, so it must be wrong. And since everybody is doing it, it must be right. So a sort of numerical interpretation of what's right. But I'm here to say to you this morning that some things are right and some things are wrong. Eternally so, absolutely so. **It's wrong to hate.** It always has been wrong and it always will be wrong. It's wrong in America, it's wrong in Germany, it's wrong in Russia, it's wrong in China. It was wrong in 2000 B.C., and it's wrong in 1954 A.D. It always has been wrong, and it always will be wrong." - Martin Luther King Jr.
 
 "For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the **true becomes false and the false becomes true**. That's what hate does. You can't see right. **The symbol of objectivity** is lost." - Martin Luther King Jr.
+
+https://old.reddit.com/r/therewasanattempt/comments/1r1x8ip/to_not_be_in_a_cult/o4svn7i/
+
+Reddit user already got the entertainment information.
+
+* "however a lot of **what people want** isn't news, and we're talking about news sources giving up on their core mission - informing us. Journalism is straying into entertainment. The lines between serious news segments, news entertainment, and news comedy are blurring." - May 23, 2007. https://www.cbsnews.com/news/farks-drew-curtis-on-how-news-isnt-news/ - almost 19 years ago. Year 2007 is the hear the Apple iPhone 1 went on sale, the iPhone changed the world of media far faster into meme-think audience entertainment.
