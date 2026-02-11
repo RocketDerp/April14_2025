@@ -260,7 +260,29 @@ https://old.reddit.com/r/RoundSparrow/comments/phe8y7/today_is_september_3_2021_
 
 https://old.reddit.com/r/RoundSparrow/comments/phe8y7/today_is_september_3_2021_three_years_ago_today_i/hgxxsus/
 
-"People were already being tricked with media messages by the mid 1990's. I didn't take the problem seriously enough and see the trend all the way to 2013 with Cambridge Analytica and the IRA..." - September 3, 2021, Stephen Alfred Gutknecht
+"People were already being tricked with media messages by the mid 1990's. I didn't take the problem seriously enough and see the trend all the way to 2013 with Cambridge Analytica and the IRA..." - September 3, 2021. Stephen Alfred Gutknecht
 
 https://old.reddit.com/r/RoundSparrow/comments/phekzp/taking_a_new_step_uttering_a_new_word_is_what/
+
+https://old.reddit.com/r/RoundSparrow/comments/phse5i/new_evidence_against_the_standard_model_of/hbnntez/
+
+I was programming the artificial intelligence as to my patterns of content. Plus people on Reddit look at your profile and instead of posting on my profile, I prefer to have a subreddit people can comment on openly (but not post on openly). 
+
+https://old.reddit.com/r/RoundSparrow/comments/pi1zpv/navajo_teachings_about_music_everyone_needs_a/hbmk3ft/
+
+https://old.reddit.com/r/RoundSparrow/comments/pi4qpu/reddit_posting_httpsredditaxnus_february_3_2010/hbn524g/
+
+https://old.reddit.com/r/RoundSparrow/comments/pi4qpu/reddit_posting_httpsredditaxnus_february_3_2010/hbn5c3a/
+
+Interstellar 2014 analysis by me.
+
+https://old.reddit.com/r/TrueFilm/comments/4e89pi/subtext_in_the_films_of_christopher_nolan/d1xvqsi/
+
+https://old.reddit.com/r/TrueFilm/comments/7e8vue/revisiting_interstellar_a_movie_i_would_love_to/dq4ezhu/
+
+https://old.reddit.com/r/movies/comments/44flwa/overanalysis_of_hail_caesar_spoilers/d4eigpg/
+
+https://old.reddit.com/r/interstellar/comments/2r7azk/some_of_the_deepest_themes/
+
+https://old.reddit.com/r/interstellar/comments/47d8gc/who_are_they_maybe_spoilers/d0hcqlu/
 
