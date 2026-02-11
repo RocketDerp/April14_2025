@@ -286,3 +286,39 @@ https://old.reddit.com/r/interstellar/comments/2r7azk/some_of_the_deepest_themes
 
 https://old.reddit.com/r/interstellar/comments/47d8gc/who_are_they_maybe_spoilers/d0hcqlu/
 
+https://old.reddit.com/r/RoundSparrow/comments/pi5gbh/some_of_the_deepest_themes/
+
+https://old.reddit.com/r/RoundSparrow/comments/pi688r/the_ready_player_one_day_off_of_social_media/
+
+https://old.reddit.com/r/RoundSparrow/comments/pi74xe/screenshot_from_20210904_232420png/hbnmfjz/
+
+<img width="1024" height="262" alt="image" src="https://github.com/user-attachments/assets/9a054ed5-1b0c-4085-b9cc-ca255360afc7" />
+
+https://old.reddit.com/r/RoundSparrow/comments/pi74xe/screenshot_from_20210904_232420png/hbnmjxm/
+
+https://old.reddit.com/r/RoundSparrow/comments/pi8bco/a_navajo_sweat_lodge_bible_verses_matthew_4111/hbnu1k4/
+
+Public Bible literacy lessons, mythology translation to mythology translation Bible to Navajo. North America to Levant translations at metaphor to metaphor level.
+
+https://old.reddit.com/r/RoundSparrow/comments/pi8bco/a_navajo_sweat_lodge_bible_verses_matthew_4111/hbnu37i/
+
+Levant Quran Mohammad to North America Navajo translations.
+
+https://old.reddit.com/r/RoundSparrow/comments/pi9khy/hey_president_joe_biden_new_radical_y2k_emp_cant/
+
+https://old.reddit.com/r/RoundSparrow/comments/pi65nl/dr_joseph_campbell_inward_journey_schizophrenia/hbnhjr7/
+
+Look at the user profile. I asked the user to come here and get off the Interstellar 2014 subreddit given the restrictive moderators and rules there.
+
+https://old.reddit.com/r/RoundSparrow/comments/pi65nl/dr_joseph_campbell_inward_journey_schizophrenia/hboog9y/
+
+Love your enemies, the subreddit system is the problem. The system of cloud computing machine mindsets.
+
+https://old.reddit.com/r/RoundSparrow/comments/pj082a/but_february_pandemic_february_1_2020_made_me/
+
+https://old.reddit.com/r/RoundSparrow/comments/pj0a6w/%C3%AAtre_homme_cest_pr%C3%A9cis%C3%A9ment_%C3%AAtre_responsable_cest/hbt7dee/
+
+<img width="780" height="738" alt="image" src="https://github.com/user-attachments/assets/0ca1d7b1-fe43-4fc6-91a1-a2fb709bba7b" />
+
+Promoting Malala on Reddit. September 6, 2021. Still actively promoting Malala today on this Github and Mastodon and Bluesky in February 2026.
+
