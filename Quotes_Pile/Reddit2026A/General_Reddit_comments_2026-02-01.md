@@ -249,3 +249,11 @@ https://old.reddit.com/r/antimeme/comments/1r1id73/rest_in_peace_course/o4pv3i4/
 Anyone can create a new subreddit and invite others to go try something different. But people have faith in hate.
 
 https://old.reddit.com/r/antimeme/comments/1r1id73/rest_in_peace_course/o4pvj9v/
+
+https://old.reddit.com/r/books/comments/1r1ewhd/sydney_author_guilty_of_child_abuse_after_book/o4pkmq9/
+
+https://old.reddit.com/r/books/comments/1r1ewhd/sydney_author_guilty_of_child_abuse_after_book/o4q2bxz/
+
+https://old.reddit.com/r/books/comments/1r1ewhd/sydney_author_guilty_of_child_abuse_after_book/o4pg247/
+
+
