@@ -393,3 +393,6 @@ https://old.reddit.com/r/news/comments/1r1rfw1/faa_grounds_all_flights_to_and_fr
 
 https://old.reddit.com/r/news/comments/1r1rfw1/faa_grounds_all_flights_to_and_from_el_paso_until/o4rz08j/
 
+https://old.reddit.com/r/news/comments/1r1rfw1/faa_grounds_all_flights_to_and_from_el_paso_until/o4rmjkq/
+
+The nightmare mindsets, a population eating out of the billionaire nightmare media programming.
