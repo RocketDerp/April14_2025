@@ -322,3 +322,23 @@ https://old.reddit.com/r/RoundSparrow/comments/pj0a6w/%C3%AAtre_homme_cest_pr%C3
 
 Promoting Malala on Reddit. September 6, 2021. Still actively promoting Malala today on this Github and Mastodon and Bluesky in February 2026.
 
+https://old.reddit.com/r/RoundSparrow/comments/pj0q96/american_pot_luck_and_the_good_old_boys_were/hbtafg7/
+
+Art work of the ugly as hell Facebook URL ;)
+
+wow, the file is over 10MB, too big for GitHub? 
+
+<img width="1024" height="768" alt="image" src="https://github.com/user-attachments/assets/51de38d8-fbc0-4647-8edf-186a789b4206" />
+
+My photograph collage art.
+
+https://old.reddit.com/r/RoundSparrow/comments/pulbky/book_supremacist_doesnt_require_a_skin_color_or/hkl06nx/
+
+Sharing REAL name on Reddit. Not hiding my identity in the face of the IRA assault on USA.
+
+<img width="763" height="701" alt="image" src="https://github.com/user-attachments/assets/69ad45c7-f638-4eed-8161-6ce09b403d53" />
+
+https://studsterkel.wfmt.com/programs/daniel-boorstin-discuses-his-book-image-guide-pseudo-events-america
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mem3ohkt7k26 https://midwest.social/post/43324367 https://autistics.life/@RoundSparrow/116053372768239044 }
+
