@@ -382,3 +382,14 @@ https://old.reddit.com/r/therewasanattempt/comments/1r1x8ip/to_not_be_in_a_cult/
 Reddit user already got the entertainment information.
 
 * "however a lot of **what people want** isn't news, and we're talking about news sources giving up on their core mission - informing us. Journalism is straying into entertainment. The lines between serious news segments, news entertainment, and news comedy are blurring." - May 23, 2007. https://www.cbsnews.com/news/farks-drew-curtis-on-how-news-isnt-news/ - almost 19 years ago. Year 2007 is the hear the Apple iPhone 1 went on sale, the iPhone changed the world of media far faster into meme-think audience entertainment.
+
+https://old.reddit.com/r/news/comments/1r1rfw1/faa_grounds_all_flights_to_and_from_el_paso_until/o4rmfi6/
+
+* "what Putin will do next — that he’s unpredictable and thus dangerous. We’re rendered stunned, spun, and flummoxed by the Kremlin’s weaponization of absurdity and unreality.” - year 2014. September 9, 2014 https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+* December 31, 2014. More than 11 full years ago. BBC, Adam Curtis. "A war where you never know what the enemy are really up to, or even who they are. The **underlying aim, Surkov** says, is not to win the war, but to use the conflict to create a constant state of destabilized perception, in order to manage and control." - https://www.realclearPolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html
+
+https://old.reddit.com/r/news/comments/1r1rfw1/faa_grounds_all_flights_to_and_from_el_paso_until/o4rjxmw/
+
+https://old.reddit.com/r/news/comments/1r1rfw1/faa_grounds_all_flights_to_and_from_el_paso_until/o4rz08j/
+
