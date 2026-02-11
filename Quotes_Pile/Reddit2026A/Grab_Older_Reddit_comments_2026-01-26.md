@@ -373,3 +373,28 @@ Asserting the reason for the Subreddit /r/RoundSparrow  ... why I am even on the
 -- Secretary of State Hillary Clinton  
 
 I was living in Amman Jordan at Syria war outbreak after Algeria in Arab Spring times this was open testimony.
+
+https://old.reddit.com/r/RoundSparrow/comments/s9i70j/russian_neighbor_man_ukrainian_man/htoailf/
+
+https://old.reddit.com/r/RoundSparrow/comments/s9i70j/russian_neighbor_man_ukrainian_man/htod61u/
+
+https://old.reddit.com/r/RoundSparrow/comments/s9i70j/russian_neighbor_man_ukrainian_man/htr1t3t/
+
+https://old.reddit.com/r/RoundSparrow/comments/s9i70j/russian_neighbor_man_ukrainian_man/hu18bg1/
+
+https://old.reddit.com/r/RoundSparrow/comments/s9i70j/russian_neighbor_man_ukrainian_man/hu38dw1/
+
+https://old.reddit.com/r/RoundSparrow/comments/s9i70j/russian_neighbor_man_ukrainian_man/hu54kbk/
+
+https://old.reddit.com/r/RoundSparrow/comments/s9i70j/russian_neighbor_man_ukrainian_man/huwhj28/
+
+https://old.reddit.com/r/RoundSparrow/comments/s9i70j/russian_neighbor_man_ukrainian_man/huwic11/
+
+https://old.reddit.com/r/RoundSparrow/comments/sjltc9/everybody_i_love_you_2021_remaster_you_cant/
+
+https://old.reddit.com/r/RoundSparrow/comments/sl5ftx/february_5_2011_so_its_an_absolute_lie_that_has/hvotxkz/
+
+February 5, 2011 Algeria Arab Spring (North Africa)   
+
+<img width="914" height="573" alt="image" src="https://github.com/user-attachments/assets/f048cf9f-10e1-4501-9f58-66cc0db9be61" />
+
