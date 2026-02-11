@@ -67,7 +67,7 @@ def increment_live_fetch(caller_index):
             sys.exit(1)
 
 
-def increment_post_only(caller_index)
+def increment_post_only(caller_index):
     global post_only_count
 
     post_only_count += 1
