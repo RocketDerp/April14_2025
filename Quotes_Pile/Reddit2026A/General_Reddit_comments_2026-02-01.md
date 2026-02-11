@@ -238,3 +238,12 @@ https://old.reddit.com/r/LetsDiscussThis/comments/1r152x2/more_footage_of_aurora
 
 11 month Reddit account.
 
+https://old.reddit.com/r/antimeme/comments/1r1id73/rest_in_peace_course/o4pun2j/
+
+https://old.reddit.com/r/antimeme/comments/1r1id73/rest_in_peace_course/o4pvxsr/
+
+https://old.reddit.com/r/antimeme/comments/1r1id73/rest_in_peace_course/o4pv2hn/
+
+https://old.reddit.com/r/antimeme/comments/1r1id73/rest_in_peace_course/o4pv3i4/
+
+Anyone can create a new subreddit and invite others to go try something different. But people have faith in hate.
