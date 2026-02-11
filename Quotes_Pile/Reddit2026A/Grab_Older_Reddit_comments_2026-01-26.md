@@ -398,3 +398,29 @@ February 5, 2011 Algeria Arab Spring (North Africa)
 
 <img width="914" height="573" alt="image" src="https://github.com/user-attachments/assets/f048cf9f-10e1-4501-9f58-66cc0db9be61" />
 
+https://old.reddit.com/r/RoundSparrow/comments/smcoj6/united_states_of_america_holocaust_memorial/
+
+More relevant to USA education than ever in February 2026.
+
+https://old.reddit.com/r/RoundSparrow/comments/smrslc/the_founding_fathers_of_the_united_states_of/hw3tprw/
+
+Left vs. right brain rot.
+
+https://old.reddit.com/r/RoundSparrow/comments/smxjyg/reddit_users_think_paid_agents_are_all_there_is/hw00tl0/
+
+https://old.reddit.com/r/RoundSparrow/comments/smxjyg/reddit_users_think_paid_agents_are_all_there_is/hvz7ine/
+
+https://old.reddit.com/r/RoundSparrow/comments/smxjyg/reddit_users_think_paid_agents_are_all_there_is/hvzdu15/
+
+https://old.reddit.com/r/RoundSparrow/comments/smxjyg/reddit_users_think_paid_agents_are_all_there_is/hvzrkix/
+
+https://old.reddit.com/r/RoundSparrow/comments/smxjyg/reddit_users_think_paid_agents_are_all_there_is/hvzsl52/
+
+https://old.reddit.com/r/RoundSparrow/comments/smxjyg/reddit_users_think_paid_agents_are_all_there_is/hw046sy/
+
+Copypasta programmed minds
+
+https://old.reddit.com/r/RoundSparrow/comments/smxjyg/reddit_users_think_paid_agents_are_all_there_is/hw0bnol/
+
+https://old.reddit.com/r/RoundSparrow/comments/smxjyg/reddit_users_think_paid_agents_are_all_there_is/hvzs7fr/
+
