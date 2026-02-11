@@ -321,12 +321,16 @@ def fetch_comment_data(url, idx=None, args=None):
     save_html_folder=args.fetched_html_folder
     check_saved_first=args.check_saved_first
     
-    
+    post_only = False
     path_parts = urlparse(url).path.strip("/").split("/")
     if len(path_parts) < 6:
-        raise ValueError(f"URL does not appear to include a comment ID: {url}")
-    comment_id = path_parts[-1]
-    comment_div_id = f"t1_{comment_id}"
+        # raise ValueError(f"URL does not appear to include a comment ID: {url}")
+        comment_id = f"POST_ONLY_{path_parts[-2]}"
+        comment_div_id = None
+        post_only = True
+    else:
+        comment_id = path_parts[-1]
+        comment_div_id = f"t1_{comment_id}"
     
 
     html_text = None
@@ -377,7 +381,9 @@ def fetch_comment_data(url, idx=None, args=None):
 
     soup = BeautifulSoup(html_text, "html.parser")
 
-    comment_div = soup.find("div", attrs={"data-fullname": f"t1_{comment_id}"})
+    comment_div = None
+    if not post_only:
+        comment_div = soup.find("div", attrs={"data-fullname": f"t1_{comment_id}"})
                     
     if not comment_div:
         age18_content = soup.find('button', attrs={'name': 'over18'})
