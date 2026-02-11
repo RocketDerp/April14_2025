@@ -39,6 +39,7 @@ error_count_b = 0
 error_fetch_count = 0
 error_parse_a_count = 0
 fetch_reddit_count_a = 0
+post_only_count = 0
 replies_users_fetch = 0
 replies_users_max = 64
 # every slowdown_every fetches kick in delay
@@ -64,6 +65,13 @@ def increment_live_fetch(caller_index):
         quit_request = pause_with_quit(sleep_time)
         if quit_request:
             sys.exit(1)
+
+
+def increment_post_only(caller_index)
+    global post_only_count
+
+    post_only_count += 1
+
 
 
 # agenda here is to not need global in every function
@@ -384,6 +392,8 @@ def fetch_comment_data(url, idx=None, args=None):
     comment_div = None
     if not post_only:
         comment_div = soup.find("div", attrs={"data-fullname": f"t1_{comment_id}"})
+    else:
+        increment_post_only(1)
                     
     if not comment_div:
         age18_content = soup.find('button', attrs={'name': 'over18'})
@@ -391,6 +401,7 @@ def fetch_comment_data(url, idx=None, args=None):
             print("age 18 content detected")
             age18_count += 1
         # Abandoning exceptions for known predictable failures
+        # ToDo: process more if NOT age18 - what other reasons besides post_only?
         # raise ValueError(f"Could not find comment div with id t1_{comment_id} on page {url}")
         return {
             "parsed": 1,
@@ -680,6 +691,7 @@ def main():
     global age18_count
     global error_parse_a_count
     global fetch_reddit_count_a
+    global post_only_count
 
     parser = argparse.ArgumentParser(description="Parse Reddit comments from markdown list.")
     parser.add_argument("--file", required=True, help="Input markdown file containing Reddit comment URLs.")
@@ -817,6 +829,10 @@ def main():
         if age18_count > 0:
             print(f"Could not parse, age 18 required: {age18_count}")
             summaryfile.write(f"Could not parse, age 18 required: {age18_count}\n")
+
+        if post_only_count > 0:
+            print(f"Encountered post_only no-comment links, intentional? : {post_only_count}")
+            summaryfile.write(f"Encountered post_only no-comment links, intentional? : {post_only_count}\n")
 
 
 if __name__ == "__main__":
