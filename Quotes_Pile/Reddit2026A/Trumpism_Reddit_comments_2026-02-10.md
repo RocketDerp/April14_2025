@@ -402,3 +402,11 @@ https://old.reddit.com/r/news/comments/1r1rfw1/faa_grounds_all_flights_to_and_fr
 "unprecedented in the 21st century"
 
 * "what Putin will do next — that he’s unpredictable and thus dangerous. We’re rendered stunned, spun, and flummoxed by the Kremlin’s weaponization of absurdity and unreality.” - year 2014. September 9, 2014 https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/news/comments/1r1rfw1/faa_grounds_all_flights_to_and_from_el_paso_until/o4rtszt/
+
+<img width="979" height="876" alt="image" src="https://github.com/user-attachments/assets/bc3ff7fc-6e81-4b21-8e54-6156991a02f6" />
+
+* "what Putin will do next — that he’s unpredictable and thus dangerous. We’re rendered stunned, spun, and flummoxed by the Kremlin’s weaponization of absurdity and unreality.” - year 2014. September 9, 2014 https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mels3ujmbs2z https://autistics.life/@RoundSparrow/116052699126271960 }
