@@ -1,9 +1,36 @@
 # My Experience of MAGA USA Faith values
 
-From a person who had never stepped foot in North America...
+The experience came from a person who had never stepped foot in North America...
 
 I was living in Bali, Indonesia. I had no other home, this was my home. OPERA_A Now you are here in Bali, and you don't know why. https://www.youtube.com/watch?v=rZoD8JEFjAE 
 20,202,811 views October 25, 2009 DIVIDED_BY_ZERO_CHECKPOINT_BALI Inside of you...
+
+My partner did have a home and excellent family relations. So I shared my home with this partner and asked that we build things together. The partnership was the partnership. The together was the together. Our sharing was our sharing.
+
+I had much more experience traveling and I was 10 years older than my partner. I was age 42 my partner age 32.we had been together 2 years. Within not much else going on in those 2 years. I was researching media ecology and world peace... working from home (I have worked from home since year 1999, many of those years self-directed). My partner had been doing *little to nothing* for the 2 years we were together. Just our normal life upkeep... housing, food, clothing, sleep. Essentials. For my partner, this was the first time away from home living overseas... so there had been some short trip back home to family... and I made sure full video conferencing to home was always available and working at any time day or night. But my partner did not opt to utilize it.
+
+Working from home, I had a habit of going to coffee shops at least one or 2 days a week and hanging out in public with strangers. So I had been inviting my partner to do that. We both had new state the art laptop computers that could go 6 or 8 hours without charging. We must have been to 25 different such hangout places all around the city. Any day my partner could have asked to go to a favorite spot. I encouraged my partner to study the university and perhaps go to the public library - just suggest it whenever desired. But not much was being desired.
+
+At this point my partner had now only lived in home country and Jordan. My partner's supportive family even came to visit us both and spent a week. My partner's mother and father, parents. That was nice. We went to Petra all together. 
+
+One or two days a week I would focus my work on long-term issues: where would we live in the world? Where would we work, what work would we do? We had to solve these questions within our first 3 to 4 years as partners. I would share how I had lived before and what experiences I had, and what I had thought about doing and I came up with a dozen business ideas.
+
+My study of the Middle East media ecology and outbreak of the Syria war was coming to an end. The Arab Spring - which had been my full-time focus since December 16, 2009 and now it was August September 2012 - it was nearing 3 full years that I had been doing a personal self-education research project and not earning any money doing so. The goodness idealism of the Arab Spring and Internet "wakening" had mostly turned into violence street protesting and not an intellectual awakening of educated women.
+
+
+It was on the table to end our partnership. If we weren't going to work on earning money, career, and . I was a published author, I could write a book and sell it. I created some short drafts and outlines on a couple subjects. What country would we live in? We were getting to the point that we had 18 months to solve these concerns as I was running out of money just paying for essentials (health care, housing, food, clothes, Internet, incidentals).
+
+I suggested Indonesia, Bali was affordable for nice temporary living, same as we were spending in Amman Jordan per month - and nicer as it was a tourist area. Let's go 4 moths, two visa cycles of 60 days.. and take it from there.
+
+We would both be further from our home nation than either of us had ever lived.
+
+9 October 2012 was when Malala was shot (breaking world news) and the far-away Pakistan world peace ideals would start to come. Malala had been writing on the Internet since January 3, 2009. What she had to say went back to my 2009 Austin focus on the Arab Spring... lots of great idealism.
+
+....
+
+Final go / no-go on the continuation of the partnership and trip to Indonesia was November 19, 2012. Tickets were purchased November 20.
+
+Sunday morning November 25 was to be our departure from Amman, Jordan. Look ahead, study... we have no work to do, what will we do with our time we are given in this life? Neither of us had ever been to Indonesia. Learn some of the language, etc.
 
 On the flight into Bali, we had a stopover in Jakarta Indonesia. And I asked my partner, would you please plan two things for us:
 
