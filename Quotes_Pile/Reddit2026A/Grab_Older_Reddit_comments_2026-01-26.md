@@ -368,7 +368,7 @@ https://old.reddit.com/r/RoundSparrow/comments/s9i70j/russian_neighbor_man_ukrai
 
 Asserting the reason for the Subreddit /r/RoundSparrow  ... why I am even on the overrun Reddit platform / venue.
 
-“We are engaged in an information war and we are losing that war,” she said. China and Russia have started multi-language television networks, she said, even as the U.S. cuts back in this area. “We are paying a big price” for dismantling international communications networks after the end of the Cold War, Clinton said."     
+“We are engaged in an information war and we are losing that war,” she said. China and Russia have started multi-language television networks, she said, even as the U.S. cuts back in this area. “We are paying a big price” for dismantling international communications networks after the end of the Cold War, Clinton said.     
 -- March 2, 2011   
 -- Secretary of State Hillary Clinton  
 
