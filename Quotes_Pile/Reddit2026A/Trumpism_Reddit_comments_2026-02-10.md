@@ -437,3 +437,12 @@ We The People, using Reddit, have flushed any concept of intellectual comprehens
 
 * “But it is much later in the game now, and ignorance of the score is inexcusable. To be **unaware that a technology** \[Reddit / Bluesky\] comes equipped with a program for social change, to maintain that technology is neutral, to make the assumption that technology is always a friend to culture is, at this late hour, stupidity plain and simple.”
 ― Neil Postman, Amusing Ourselves to Death: [Public Discourse in the Age of Show Business, year 1985. page 157.](https://books.google.com/books?id=zGkhbPEjkRoC&pg=RA1-PA157&dq=%22equipped+with+a+program+for+social+change,+to+maintain+that+technology+is+neutral,+to+make+the+assumption+that+technology+is+always+a+friend+to+culture+is%22&hl=en&newbks=1&newbks_redir=1&sa=X)
+
+https://old.reddit.com/r/politics/comments/1r21rno/gallup_will_no_longer_measure_presidential/o4tmojd/
+
+"Laughably"
+
+Day and night on Reddit, every hour of every day, cracking jokes about Trump. Poop diaper fetish on Reddit, orange skin color laughs on Reddit, joker after joker will do ANYTHING but turn to nonfiction learning about cults. Cult of Fox News HDTV has wrecked the nation. Cult of laughing at Trump on Reddit has wrecked the nation. Cult, cult, media cult, media cultists, everywhere!
+
+* “Everything in our background has prepared us to know and resist a prison when the gates begin to close around us . . . But what if there are no cries of anguish to be heard? Who is prepared to take arms against a sea of amusements? **To whom do we complain, and when, and in what tone of voice, when serious discourse dissolves into giggles?** What is the antidote to a culture's being drained by laughter?” ― Neil Postman, [Amusing Ourselves to Death: Public Discourse in the Age of Show Business. Year 1985. Page 156.](https://books.google.com/books?id=oup6iagfox8C&pg=PA156&dq=%22To+whom+do+we+complain,+and+when,+and+in+what+tone+of+voice,+when+serious+discourse+dissolves+into+giggles?%22&hl=en&newbks=1&newbks_redir=1&sa=X) Nonfiction book. New York University (NYU).
+
