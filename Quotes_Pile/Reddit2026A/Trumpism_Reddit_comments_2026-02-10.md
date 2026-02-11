@@ -352,3 +352,7 @@ The low-effort short-length commenting on Reddit is nothing new. "both sides", a
 https://old.reddit.com/r/therewasanattempt/comments/1r1x8ip/to_not_be_in_a_cult/o4snckb/
 
 28 day Reddit account. Shitty posting title, shit-posting Reddit post title. Shitty engagement commenting of asking insincere questions to get audience to flock. Most-upvoted popular comment. Anti-education anti-learning just shit-talking the out-groups as a form of sports Super Bowl mentality.
+
+https://old.reddit.com/r/therewasanattempt/comments/1r1x8ip/to_not_be_in_a_cult/o4so2qo/
+
+28 day Reddit account. with a SHIT Reddit shit-posting headline of "To not be in a cult" - the constant "cult" claim on Reddit that never actually turns to **cult deprogramming** and mental health professionals that Dr. Bandy X Lee has organized. But no, "cult" is just shit-talking street-gang sign to insult and mock, not something to rescue Texas people from. Just a way to *look down* and *punch down* on Texas people that have been manipulated by powerful billionaire Rupert Murdoch into a cult of media Fox News HDTV. The Reddit comment complains about "the media" headline when Reddit media headline is total trash-talk shit-posting media. Reddit cult of shit-posting to serious topics needs to be rescued! Dr. Bandy X Lee's leadership needs to be asserted repeatedly and with nonfiction quotes and lessons.
