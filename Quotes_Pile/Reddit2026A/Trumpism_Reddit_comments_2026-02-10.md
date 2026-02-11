@@ -470,3 +470,8 @@ Short-length Twitter-think comment message. Downplaying how incredibly dangerous
 https://old.reddit.com/r/law/comments/1r244xl/pam_bondi_crashes_out_during_hearing_you_dont/o4u5zpf/
 
 Imagine being in the Reddit commenting crowd and making a low-effort imagination comment like this without ever pondering if Russian intelligence has blown-out the minds of your fellow Americans and you should be halting all your low-effort commenting and taking up intellectual defenses against the Kremlin. Imagine you witness people commenting every hour day and night about the White House with no concern that the commenting itself is "engagement addiction" to "antics politics". Never learning anything about serious and sophisticated Russian information warfare in favor of spending free time on Reddit making comments that play right into Putin's conditioned programming by the Saint Petersburg Internet Research Agency.
+
+https://old.reddit.com/r/PublicFreakout/comments/1r29j2d/has_this_woman_lost_her_mind_does_she_know_how/o4v9rlx/
+
+8 month Reddit account. Top upvoted popular comment. "Lost her mind", the whole fucking NATION has lost mind to Putin. Putin is alive and abusing both Russian and Ukraine children for sex and power in front of the whole world. The cult of celebrity television and celebrity film fiction is out of fucking control in USA. People can not turn to nonfiction serious learning and do a Reddit blackout / Bluesky blackout. People just keep yammering on and on in comments about Trump and are not demanding the REMOVAL of Trump and Dr. Bandy X Lee's mental health education and teaching for the whole fucking nation.
+
