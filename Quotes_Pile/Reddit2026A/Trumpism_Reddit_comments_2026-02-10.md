@@ -299,3 +299,7 @@ https://old.reddit.com/r/circled/comments/1r1uzs6/white_privilege/o4sbco4/
 https://old.reddit.com/r/circled/comments/1r1uzs6/white_privilege/o4se46g/
 
 Trumpism. Trump fandom on Reddit. MAGA-writing. Trump-language. This is what White House says "radical x-wing terrorists", and Reddit messaging is repeating what the billionaire media systems tell people to parrot and repeat. ["You might have come across the articles (“I Lost My Dad to Fox News” / “Lost Someone to Fox News?” / “‘Fox News Brain’: Meet the Families Torn Apart by Toxic Cable News”), or the Reddit threads, or the support groups on Facebook, as people have sought ways to mourn loved ones who are still alive. The discussions consider a loss that Americans don’t have good language for, in part because the loss itself is a matter of language: They describe what it’s like to find yourself suddenly unable to speak with people you’ve known your whole life. They acknowledge how easily a national crisis can become a personal one. At this point, some Americans speak English; others speak Fox."](https://www.theatlantic.com/culture/archive/2020/09/fox-news-trump-language-stelter-hoax/616309/)
+
+https://old.reddit.com/r/circled/comments/1r1uzs6/white_privilege/o4shuts/
+
+"cult", "Bible"
