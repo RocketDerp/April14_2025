@@ -170,3 +170,13 @@ I haven't fact-checked if that is true... alas, I am beyond burned out, burnout 
 I no longer wanted to live that nightmare of Corporate America USA: https://old.reddit.com/r/clevercomebacks/comments/1r1kwah/unnecessary_retaliation_by_an_ungrateful_boss/o4qrjdx/
 
 I have so much brain damage. 
+
+To the main topic. MAGA experience from a partnership that was ENTIRELY not MAGA. MAGA mindset experience of year 2012 with an intimate relationship ... vs. society-wide relationship.
+
+* "they don’t know how to apply their religious ideas to contemporary life, and to human beings rather than just to their own community. It’s a terrible example of the failure of religion to meet the modern world. These three mythologies are fighting it out. They have disqualified themselves for the future."
+
+I knew of this possibility going into the partnership / relationship. I knew before I even met the person. But I had hope and did my best to put these same words in front of that peer... and alas, it is very difficult.
+
+* "They’ve moved **out of the society that would have protected them**, and into the dark forest, into the **world of fire**, of original experience. Original experience has not been interpreted for you, and so you’ve got to work out your life for yourself. **Either you can take it or you can’t. You don’t have to go far off the interpreted path to find yourself in very difficult situations**. The courage to face the trials and to bring a whole new body of possibilities into the field of interpreted experience for other people to experience"
+
+I have so much brain damage. 
