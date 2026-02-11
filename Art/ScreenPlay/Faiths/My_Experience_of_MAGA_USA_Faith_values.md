@@ -35,7 +35,7 @@ OPERA_A https://www.youtube.com/watch?v=ADBKdSCbmiM
 
 # Sunscreen for the locals
 
-ToDo: storytime
+ToDo: story-time
 
 Hot cancer-causing sun in Bali. Sunscreen business idea. I think somewhere around December 15 or 20, after being in Bali for several weeks at the beach and around the shopping malls watching other tourists come and go for Christmas month holiday.
 
@@ -97,3 +97,9 @@ Arrive	Amman
 10:25 AM	Queen Alia Intl (AMM) | Terminal 2   
 Seats: 14-A | Seats are confirmed.   
 Overnight   
+
+&nbsp;
+
+# Touch A
+
+2026-02-11 I touched this file at 4:45 in the morning because it is on my mind and in my heart. I can not write or even try to put into words the experience of MAGA I am living under. The Super Bowl "fun" and "joy" people have with billionaire and every single second of the sports-game content over-organized over-written crammed-full entertainment events. Worship of billionaire sports team owners and their investments in what. It is so artificial. This is some kind of sick sports competition where humanity isn't winning at all. It is sound and visual entertainment in condensed sickness. Why is this an attraction? Can't we have a party on any weekend and get together with friends and make new friends? So we have to worship billionaire advertisers and billionaire team owners. I failed just as much to inspire my partner to take a leisure train trip to Jakarta. Experience together. No boss directing us that we have to go to a place, no school telling us we have to sit in this one room with this teacher, just pick a place, pick a hotel, be free with everyday people. People used to dram of traveling the world. OPERA_A Blank page before you. https://www.youtube.com/watch?v=b7k0a5hYnSI
