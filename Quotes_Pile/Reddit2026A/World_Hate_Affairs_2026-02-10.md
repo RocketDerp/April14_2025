@@ -36,3 +36,4 @@ It is the Winter Olympics in USA, and people behave like our country is a compet
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3meldwkxyos2u https://autistics.life/@RoundSparrow/116051704019827030 }
 
+https://old.reddit.com/r/clevercomebacks/comments/1r1kwah/unnecessary_retaliation_by_an_ungrateful_boss/o4qrjdx/
