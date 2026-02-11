@@ -319,3 +319,16 @@ https://old.reddit.com/r/circled/comments/1r1uzs6/white_privilege/o4sj9qt/
 What's simple: simple-thinking simple-message short-length commenting on Reddit. 
 
 * "you could legitimately expect people to write if they still read or wrote. Not many people still do either – read or write, much – but in any case; **reduction of complexity**. Let’s look at political parties for a moment. The Republicans with their great traditions have come up with a slogan of incredible sophistication: “No more tax and spend”. Now any you who can quack that one out could be a Republican. And I am using that **in the Orwellian sense of “quack”; you don’t need to engage higher brain functions**. All you have to do is say “Don’t take my money, and don’t spend it… well, except on me and my friends, but don’t tax and spend”. Now it’s not that the Democrats are doing any better, I don’t guess that’s news. I mean, Clinton is now less popular than Castro. If Castro ran against Clinton, Clinton would lose by a few points. I mean, he wouldn’t lose big, but he would lose, you know, by a few points. I mean, especially in a three person race with Clinton, Castro, Perot and Gaddafi. I mean, I don’t know who would win. In fact, given this postmodern world any one of the four could emerge with the biggest one fourth depending on how they ran their campaign. Probably it would depend on who could hire David Gergen \[crowd laughter\]. I mean, if Fidel got to Gergen first, he might win the damn thing, we don’t know. But the Democrat’s response to this “tax and spend” is “No we don’t, nah nah na-nah nah: invest” **This is political debate in a democracy. No it’s not. It’s the simulation of politics**." - Texan Rick Roderick
+
+https://old.reddit.com/r/circled/comments/1r1uzs6/white_privilege/o4sk33g/
+
+https://old.reddit.com/r/circled/comments/1r1uzs6/white_privilege/o4skb4s/
+
+10 month Reddit account.
+
+https://old.reddit.com/r/circled/comments/1r1uzs6/white_privilege/o4skol1/
+
+You can set your watch to Reddit commenting that banalizes a complex topic as a form of entertainment and amusement on meme devices. Spare time and free time doing ANYTHING but promoting Dr. Bandy X Lee's nonfiction mental health education of goodness to address USA mindsets. Doing ANYTHING but discussing timelines of Russia manipulating Texans in information warfare. 
+
+* "An ad placed by the Russian Internet Research Agency to promote a Facebook page, Heart of Texas.
+Now, researchers at the University of Texas at Austin have analyzed the event in a paper that relies on the Facebook political advertising data released by the House Intelligence Committee in 2018 and interviews with "counterprotest participants and local organizers, journalists who covered the protest, as well as representatives of local organizations" in order to better understand the relationship between propaganda, the news media, social media, protests and the motivations of the individuals in Houston that day." - https://www.techpolicy.press/researchers-reverse-engineer-2016-texas-protest-organized-russian-internet-research-agency/
