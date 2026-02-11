@@ -18,5 +18,7 @@ https://studsterkel.wfmt.com/programs/daniel-boorstin-discuses-his-book-image-gu
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mem3ohkt7k26 https://midwest.social/post/43324367 https://autistics.life/@RoundSparrow/116053372768239044 }
 
+Social post { https://autistics.life/@RoundSparrow/116053461516749486 https://bsky.app/profile/roundsparrow.bsky.social/post/3mem4woupcs2w }
+
 Year 2004 perspective, before MAGA Trumpism Putinism invasion of year 2013.   
 https://www.poynter.org/archive/2004/how-to-cover-a-pseudo-event/
