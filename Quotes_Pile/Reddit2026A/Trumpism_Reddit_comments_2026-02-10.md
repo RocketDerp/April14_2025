@@ -190,3 +190,9 @@ and RE-READ the nonfiction books like people re-read the Quran science fiction a
 https://old.reddit.com/r/ProgressiveHQ/comments/1r1bw6x/leavitt_on_epstein_were_moving_on_from_that/o4og4o9/
 
 The cult of avoiding mental health teaching and public education from Dr. Bandy X Lee. Wanting more years of Trump press conferences instead of REMOVING TRUMP FROM OFFICE. NOW!! Explain why Reddit users are not free thinking? Why can't users organize a world-famous Internet uprising, a blackout over Trump? https://www.theguardian.com/technology/2023/dec/30/reddit-moderator-protest-communities-social-media - why can't Reddit users stage a world-shaking blackout calling for impeachment and MAGA mental health reform? Quoting Dr. Bandy X Lee?
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1r1bw6x/leavitt_on_epstein_were_moving_on_from_that/o4ovb4t/
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1r1bw6x/leavitt_on_epstein_were_moving_on_from_that/o4osp72/
+
+Exactly as intended. People on Reddit hate MAGA and Trump every day since June 16, 2015 and blow their mind out with hate. Tony Clifton actors are running circles around the Reddit audience. Reddit users refuse to get on the same page and have a Reddit blackout and stop blaming Karoline Leavitt at HER PODIUM and the social media users asking her questions at the White House podium... and **start using the Reddit commenting podium to quote Dr. Bandy X Lee**'s nonfiction books!!!
