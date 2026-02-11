@@ -420,3 +420,9 @@ The alarm bell, wake alarm, is the stimulation. People were MOST ALARMED when Tr
 https://old.reddit.com/r/news/comments/1r1yf3g/faa_lifts_temporary_closure_of_airspace_over_el/o4sxeqh/
 
 Fandom of Trump mocking, total mockery USA.
+
+https://old.reddit.com/r/news/comments/1r1yf3g/faa_lifts_temporary_closure_of_airspace_over_el/o4sw68s/
+
+Gullible Reddit fandom to Reality TV. Gullible users of Reddit who have no concept that they are being manipulated to constantly downplay and underestimate the benefit of having so many shocking headlines coming out out of Putin followers. That media systems of Reddit are the pipeline into the hearts and minds of We The People. Complete lack of media ecology and information warfare techniques. You don't put expert mistake makers and Charlie Brown football games on stage every day, day after day, accidentally. When you are creating shit-posting for shit-commenting Reddit, you hire shit-content creators for the fandom of shit showings. This Reddit user is a Surkovian onion eater. Eating the onion that the people in power don't know the benefits of making a lot of errors and mistakes in public high-speed media. "Who’s **the enemy this week**?" - book published year 2014.
+
+* Published January 2015, before Trump started run for office in June 2015: https://www.Politico.com/magazine/story/2015/01/putin-russia-tv-113960/ At one end of the table sat one of the country’s most famous political TV presenters. He was small and spoke fast, with a smoky voice: “We all know there will be no real politics,” he said. “But we still have to give our viewers the sense something is happening. They need to be kept entertained.” “So what should we play with?” he asked. “Shall we attack oligarchs? Who’s **the enemy this week**? Politics has got to feel like a movie!”
