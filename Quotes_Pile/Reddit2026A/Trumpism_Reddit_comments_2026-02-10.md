@@ -413,3 +413,7 @@ Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mels3ujmbs
 
 https://old.reddit.com/r/news/comments/1r1rfw1/faa_grounds_all_flights_to_and_from_el_paso_until/o4rrrjk/
 
+https://old.reddit.com/r/UnderReportedNews/comments/1r1wxkm/every_american_should_be_alarmed_aoc_criticizes/o4sl96g/
+
+The alarm bell, wake alarm, is the stimulation. People were MOST ALARMED when Trump stopped using the Internet for a few days. https://www.axios.com/2025/09/02/trump-death-illness-white-house-rumors - People were bored to death when Joe Biden was in office for 4 years, it wasn't non-stop hate-watching of Trump, a less constant hate-watching of Trump in Florida. The media addiction is the nation. "The media" that people keep blaming is actually the audience problem. It could never be more clear than a celebrity Reality TV star and Twitter star. Neil Postman at NYU was correct in year 1985.
+
