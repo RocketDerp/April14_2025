@@ -1,9 +1,36 @@
 # My Experience of MAGA USA Faith values
 
-From a person who had never stepped foot in North America...
+The experience came from a person who had never stepped foot in North America...
 
 I was living in Bali, Indonesia. I had no other home, this was my home. OPERA_A Now you are here in Bali, and you don't know why. https://www.youtube.com/watch?v=rZoD8JEFjAE 
 20,202,811 views October 25, 2009 DIVIDED_BY_ZERO_CHECKPOINT_BALI Inside of you...
+
+My partner did have a home and excellent family relations. So I shared my home with this partner and asked that we build things together. The partnership was the partnership. The together was the together. Our sharing was our sharing.
+
+I had much more experience traveling and I was 10 years older than my partner. I was age 42 my partner age 32.we had been together 2 years. Within not much else going on in those 2 years. I was researching media ecology and world peace... working from home (I have worked from home since year 1999, many of those years self-directed). My partner had been doing *little to nothing* for the 2 years we were together. Just our normal life upkeep... housing, food, clothing, sleep. Essentials. For my partner, this was the first time away from home living overseas... so there had been some short trip back home to family... and I made sure full video conferencing to home was always available and working at any time day or night. But my partner did not opt to utilize it.
+
+Working from home, I had a habit of going to coffee shops at least one or 2 days a week and hanging out in public with strangers. So I had been inviting my partner to do that. We both had new state the art laptop computers that could go 6 or 8 hours without charging. We must have been to 25 different such hangout places all around the city. Any day my partner could have asked to go to a favorite spot. I encouraged my partner to study the university and perhaps go to the public library - just suggest it whenever desired. But not much was being desired.
+
+At this point my partner had now only lived in home country and Jordan. My partner's supportive family even came to visit us both and spent a week. My partner's mother and father, parents. That was nice. We went to Petra all together. 
+
+One or two days a week I would focus my work on long-term issues: where would we live in the world? Where would we work, what work would we do? We had to solve these questions within our first 3 to 4 years as partners. I would share how I had lived before and what experiences I had, and what I had thought about doing and I came up with a dozen business ideas.
+
+My study of the Middle East media ecology and outbreak of the Syria war was coming to an end. The Arab Spring - which had been my full-time focus since December 16, 2009 and now it was August September 2012 - it was nearing 3 full years that I had been doing a personal self-education research project and not earning any money doing so. The goodness idealism of the Arab Spring and Internet "wakening" had mostly turned into violence street protesting and not an intellectual awakening of educated women.
+
+
+It was on the table to end our partnership. If we weren't going to work on earning money, career, and . I was a published author, I could write a book and sell it. I created some short drafts and outlines on a couple subjects. What country would we live in? We were getting to the point that we had 18 months to solve these concerns as I was running out of money just paying for essentials (health care, housing, food, clothes, Internet, incidentals).
+
+I suggested Indonesia, Bali was affordable for nice temporary living, same as we were spending in Amman Jordan per month - and nicer as it was a tourist area. Let's go 4 moths, two visa cycles of 60 days.. and take it from there.
+
+We would both be further from our home nation than either of us had ever lived.
+
+9 October 2012 was when Malala was shot (breaking world news) and the far-away Pakistan world peace ideals would start to come. Malala had been writing on the Internet since January 3, 2009. What she had to say went back to my 2009 Austin focus on the Arab Spring... lots of great idealism.
+
+....
+
+Final go / no-go on the continuation of the partnership and trip to Indonesia was November 19, 2012. Tickets were purchased November 20.
+
+Sunday morning November 25 was to be our departure from Amman, Jordan. Look ahead, study... we have no work to do, what will we do with our time we are given in this life? Neither of us had ever been to Indonesia. Learn some of the language, etc.
 
 On the flight into Bali, we had a stopover in Jakarta Indonesia. And I asked my partner, would you please plan two things for us:
 
@@ -35,7 +62,7 @@ OPERA_A https://www.youtube.com/watch?v=ADBKdSCbmiM
 
 # Sunscreen for the locals
 
-ToDo: storytime
+ToDo: story-time
 
 Hot cancer-causing sun in Bali. Sunscreen business idea. I think somewhere around December 15 or 20, after being in Bali for several weeks at the beach and around the shopping malls watching other tourists come and go for Christmas month holiday.
 
@@ -97,3 +124,59 @@ Arrive	Amman
 10:25 AM	Queen Alia Intl (AMM) | Terminal 2   
 Seats: 14-A | Seats are confirmed.   
 Overnight   
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+# Touch A
+
+Touchstone A
+
+2026-02-11 I touched this file at 4:45 in the morning because it is on my mind and in my heart. I can not write or even try to put into words the experience of MAGA I am living under. The Super Bowl "fun" and "joy" people have with billionaire and every single second of the sports-game content over-organized over-written crammed-full entertainment events. Worship of billionaire sports team owners and their investments in what. It is so artificial. This is some kind of sick sports competition where humanity isn't winning at all. It is sound and visual entertainment in condensed sickness. Why is this an attraction? Can't we have a party on any weekend and get together with friends and make new friends? So we have to worship billionaire advertisers and billionaire team owners. I failed just as much to inspire my partner to take a leisure train trip to Jakarta. Experience together. No boss directing us that we have to go to a place, no school telling us we have to sit in this one room with this teacher, just pick a place, pick a hotel, be free with everyday people. People used to dream of traveling the world. OPERA_A Blank page before you. https://www.youtube.com/watch?v=b7k0a5hYnSI
+
+It just strikes me the parallels of this partnership in January 2012 to March 2013 feels so much like USA society January 2025 to March 2026. MAGA USA (see tile of this GitHub page) today.
+
+We The People, USA, had July 4 2025 holiday.  
+We The People, USA, had Labor Day September 2025 holiday.  
+We the People, USA, had Thanksgiving November 2025 holiday.  
+We the People, USA, had Christmas and New Years 2025 holiday.  
+
+These are when the memories of age 18, after graduating high school come back. These holiday weekends where friends and family gather. And under MAGA USA / Trump USA - people talk about their business, their job situation, their family. Who is getting divorced over MAGA? Who had a new baby and is finding things difficult or troubled due to the trade situation.
+
+People have memories, experiences, of PREVIOUS July 4 get-together, previous labor day weekends, previous Thanksgiving. Previous Christmas.
+
+And nothing happened. people have not had enough MAGA. And really this Super Bowl 2026 February was horrific. Bad Bunny is great, but it is not resisting billionaire Jody Allen in Seattle. It is not in any way facing how grim the USA situation is with technology investing all leading into the hands of MAGA Putinism values. 
+
+The recency bias is so terrible.   
+Yes, for the record, I do know Reddit isn't everyone.  
+But I have traveled and lived in RV at critical ages, not as a retired person at age 60, not as a influencer at age 30.. .but as a normal work at home person at age 30. I knew some areas of USA culture pretty well. Places in Texas, places in Florida, places in Seattle, Vegas... and even west of Washington D.C. I spent a lot of energy focused on when I was living there in 2018 after my father died. And New Orleans winter of 2018... and Portland Oregon summer of 2019... and Pueblo Colorado... Colorado Springs. I've been checking on local spots. References to places I keep an emotional eye on. 
+Some of it is pretty simple.. like looking at grocery prices now online compared to the time I was there when the topic comes up.  But also some businesses that were cool but struggling. How many have closed or re-opened after the pandemic. My dad died in June 2018 and I moved into RV again July 4, 2018 and those 18 months up to January 20, 2020 where I settled in Pueblo were critical. 18 months all over USA (Dayton Ohio to Florida, Florida to west of Washington DC, New Orleans, Portland Oregon, Colorado, Texas)... as the pandemic was a big social change.
+
+The recency bias is so terrible.  
+Luigi. Why are people not posting every 12 hours a health care finance story? Posting the billing insurance numbers. The intellectual thoughtful is just gone in USA. Why isn't there 14 health care stories a week, week after week! 750 family stories of health care USA a year... since December 4, 2024. Why are people so against using Internet information systems for actual humanism and progress! Why is gun stroking and gun worship of murder the lust - and nobody can see the red-tape paperwork is what is strangling us all! The runaround of billionaires giving us a health care system that dehumanizes us via systems. I guess it's the same way people can't see the Super Bowl billionaires give us the runaround strangles us with worship centers of Sunday wealth bling bling event.  
+
+See, I told you this document was named about MAGA experience. I'm not writing to criticize a failed relationship with a partner. But that inward journey for the soul of a partnership in year 2012 feels so much like year 2025 inward journey of the soul of USA.
+
+A failed partnership is a common world experience. A global pandemic was NOT a common world experience any of us had in December 2019. A spiritually failed nation USA in front of everyone - with dramatic mockery of Greenland and dramatic mockery of Canada - is something nobody alive has experienced before either. The Soviet Union / USSR was not a global source of entertainment and culture as France / French author called out in 1980's and 1990's.
+
+* "According to Baudrillard’s reading of the war – America as **for Baudrillard** the leading society culturally in the world, the one that leads the cultural trajectory of the world through television, movies and so on" - Rick Roderick 1993
+* "**Baudrillard has visited our country** and when he went to Disneyland in Epcot Centre and these various parks, he said “Well this is much better than Europe. The food’s better than Europe. It’s a short walk between France and Germany-land” ... “Ah, you know, you don’t have to… deal with all those nasty waiters, everyone is so polite”. The simulation has outrun the so-called reality." - Rick Roderick 1993
+
+I haven't fact-checked if that is true... alas, I am beyond burned out, burnout on top of burnout. Nobody is here for the mass mind and soul of the entire Pale Blue Dot. People may only read this to view me as a failed individual. I made the choice around year 1994... no children. I asked Tristan to have children then, but she said no. And I was 24 / 25 years old and I had to make up my mind. i was not looking for a one-night stand relationship... I wanted to get married. And Tristan was single and never married (and 2 years older than me). I seriously contemplated breaking off the relationship after only a couple weeks because she was serous "no children". Then, in 2001 I think she really wanted children and I was the one saying no... I did not know about my autism until 2008... but by 1999 I had made the choice to no longer work in corporate America office environment again. The autism burnout I had from working at the top in Bellevue was too much. Work from home on my own schedule control was essential by age 30.
+
+I no longer wanted to live that nightmare of Corporate America USA: https://old.reddit.com/r/clevercomebacks/comments/1r1kwah/unnecessary_retaliation_by_an_ungrateful_boss/o4qrjdx/
+
+I have so much brain damage. 
+
+To the main topic. MAGA experience from a partnership that was ENTIRELY not MAGA. MAGA mindset experience of year 2012 with an intimate relationship ... vs. society-wide relationship.
+
+* "they don’t know how to apply their religious ideas to contemporary life, and to human beings rather than just to their own community. It’s a terrible example of the failure of religion to meet the modern world. These three mythologies are fighting it out. They have disqualified themselves for the future."
+
+I knew of this possibility going into the partnership / relationship. I knew before I even met the person. But I had hope and did my best to put these same words in front of that peer... and alas, it is very difficult.
+
+* "They’ve moved **out of the society that would have protected them**, and into the dark forest, into the **world of fire**, of original experience. Original experience has not been interpreted for you, and so you’ve got to work out your life for yourself. **Either you can take it or you can’t. You don’t have to go far off the interpreted path to find yourself in very difficult situations**. The courage to face the trials and to bring a whole new body of possibilities into the field of interpreted experience for other people to experience"
+
+I have so much brain damage. 

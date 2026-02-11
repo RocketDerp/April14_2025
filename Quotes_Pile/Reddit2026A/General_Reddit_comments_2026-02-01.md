@@ -215,3 +215,49 @@ https://old.reddit.com/r/antimeme/comments/1r0tn5s/temporary_community_update/o4
 https://old.reddit.com/r/BuyFromEU/comments/1r0vec4/linux_is_the_only_real_alternative_to/o4l0vx4/
 
 The anti-FAQ anti-Wiki social media is a big reason we have billionaires and Trumpism. People need to organize. Alas, it it is mental health of our common connection that is most important. Dr. Bandy X Lee's 27 public education people since October 3, 2017 needs to be a WORLD WIDE WEB initiative to cult deprogram Russia and USA. Putin and Trump and Putin and Musk need to be addressed through the teaching and education of Dr. Bandy X Lee. And people need to face the social media behavior of AVOIDING nonfiction authors. Casually calling people { mentally unwell, crazy, batshit crazy, insane, clowns (constant, not just "clowning") } as techniques of { domination, though-terminating, insulting, mocking, mockery, bullying } needs to come to an end. Hate is a threat to all humanity as a viral cult behavior.
+
+https://old.reddit.com/r/interestingasfuck/comments/1r11zgt/new_type_of_fireworks_produced_in_china_they_call/o4me0cs/
+
+https://old.reddit.com/r/fixedbytheduet/comments/1r122d9/all_he_did_was_drink/o4mor0z/
+
+CHOICE_MARRIAGE_HONESTY - the entire video.
+
+https://old.reddit.com/r/CuratedTumblr/comments/1r1c4r5/most_people_dont_understand_dont_understand_what/o4oju3o/
+
+But no way does year 1776 Constitution get misinterpreted in year 2026... just other writings. We do not teach interpretation pitfalls. Media ecology, time shifting media ecology.
+
+* Neil Postman, Amusing Ourselves to Death, page 11: “… beginning in the fourteenth century, the clock made us into time-keepers, and then time-savers, and now time-servers… with the invention of the clock, Eternity ceased to serve as the measure and focus of human events.”
+
+https://old.reddit.com/r/LetsDiscussThis/comments/1r152x2/more_footage_of_aurora_il_pd_brutally_beating_and/o4n0nfy/
+
+It is for content creation. For Reddit fandoms of I.C.E. raids. Why are Reddit end-users not quoting Dr. Bandy X Lee's books over and over and addressing the cult behaviors / cult deprogramming needs and mental health crisis of MAGA / ICE / Trump / Fox News HDTV fandoms, etc... Reddit community is a cult of ICE content to mock and insult. Instead of actually turning to intellectual leaders who want to lead us mentally out of ICE mindsets.
+
+https://old.reddit.com/r/LetsDiscussThis/comments/1r152x2/more_footage_of_aurora_il_pd_brutally_beating_and/o4n757n/
+
+https://old.reddit.com/r/LetsDiscussThis/comments/1r152x2/more_footage_of_aurora_il_pd_brutally_beating_and/o4n18yh/
+
+11 month Reddit account.
+
+https://old.reddit.com/r/antimeme/comments/1r1id73/rest_in_peace_course/o4pun2j/
+
+https://old.reddit.com/r/antimeme/comments/1r1id73/rest_in_peace_course/o4pvxsr/
+
+https://old.reddit.com/r/antimeme/comments/1r1id73/rest_in_peace_course/o4pv2hn/
+
+https://old.reddit.com/r/antimeme/comments/1r1id73/rest_in_peace_course/o4pv3i4/
+
+Anyone can create a new subreddit and invite others to go try something different. But people have faith in hate.
+
+https://old.reddit.com/r/antimeme/comments/1r1id73/rest_in_peace_course/o4pvj9v/
+
+https://old.reddit.com/r/books/comments/1r1ewhd/sydney_author_guilty_of_child_abuse_after_book/o4pkmq9/
+
+https://old.reddit.com/r/books/comments/1r1ewhd/sydney_author_guilty_of_child_abuse_after_book/o4q2bxz/
+
+https://old.reddit.com/r/books/comments/1r1ewhd/sydney_author_guilty_of_child_abuse_after_book/o4pg247/
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1r1un0r/petah_whats_wrong_with_the_name/o4sbux3/
+
+So, think about this. Billionaires have programmed the general public to punch down on poor people for their personal expression. Poor people are programmed to insult and mock other poor people.
+
+* “America is the wealthiest nation on Earth, but its people are mainly poor, and poor Americans are urged to hate themselves. To quote the American humorist Kin Hubbard, 'It ain’t no disgrace to be poor, but it might as well be.' It is in fact a crime for an American to be poor, even though America is a nation of poor. Every other nation has folk traditions of men who were poor but extremely wise and virtuous, and therefore more estimable than anyone with power and gold. No such tales are told by the American poor. They mock themselves and glorify their betters. The meanest eating or drinking establishment, owned by a man who is himself poor, is very likely to have a sign on its wall asking this cruel question: 'if you’re so smart, why ain’t you rich?' There will also be an American flag no larger than a child’s hand – glued to a lollipop stick and flying from the cash register. Americans, like human beings everywhere, believe many things that are obviously untrue. Their most destructive untruth is that it is very easy for any American to make money. They will not acknowledge how in fact hard money is to come by, and, therefore, those who have no money blame and blame and blame themselves. This inward blame has been a treasure for the rich and powerful, who have had to do less for their poor, publicly and privately, than any other ruling class since, say Napoleonic times. Many novelties have come from America. The most startling of these, a thing without precedent, is a mass of undignified poor. They do not love one another because they do not love themselves.” ― Kurt Vonnegut, Slaughterhouse-Five. The Children's Crusade: A Duty-Dance with Death. Year 1969 

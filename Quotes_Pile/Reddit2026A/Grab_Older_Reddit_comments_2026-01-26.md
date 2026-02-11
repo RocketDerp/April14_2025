@@ -204,3 +204,238 @@ My comment.
 https://old.reddit.com/r/WhiteHouseHyperReal/comments/bi1rll/meta_popularity_wins_of_celebrity_fox_news_world/elxc8nq/
 
 My comment.
+
+
+# /r/RoundSparrow
+
+https://old.reddit.com/r/RoundSparrow/comments/7v9nuq/sting_doing_a_show_for_presuperbowl_right_now/
+
+My subreddit about me. My attempt to deflect some of the mocking and insulting by being even more open and idealistic in the face of the Saint Petersburg Internet Research Agency aftermath / playground of minds on Reddit.
+
+Sunday February 4, 2018
+
+Oh, none of these oldest links have comments, and my Python script expects comment links...
+
+https://old.reddit.com/r/RoundSparrow/comments/p3w2eg/katmandu_performed_by_bob_seger_tribute_band/
+
+The other advantage to having your own Subreddit is you can invite people who insult you on /r/All postings to go to a corner to fight it out peer to peer. Instead of getting banned by moderators for off-topic or unwanted focused sustained reply chains.
+
+https://old.reddit.com/r/RoundSparrow/comments/p3w30h/aimee_mann_freeway/
+
+https://old.reddit.com/r/RoundSparrow/comments/p3wdum/before_black_sabbath_how_psychedelic_rock_became/
+
+https://old.reddit.com/r/RoundSparrow/comments/p3wfm8/steely_dan_king_of_the_world/
+
+https://old.reddit.com/r/RoundSparrow/comments/p3wgqy/igy/h8ug58o/
+
+https://old.reddit.com/r/RoundSparrow/comments/p3wij5/jericho_2006_texas_embassy_attack/h8ugh6c/
+
+And my script won't grab NSFW posting...
+
+https://old.reddit.com/r/RoundSparrow/comments/p3xeb9/my_brother_did_big_time_food_biz_all_over_the/
+
+https://old.reddit.com/r/RoundSparrow/comments/p3zekf/george_lucas_tells_bill_moyers_about_the_mentors/
+
+https://old.reddit.com/r/RoundSparrow/comments/p418r5/i_think_i_have_the_same_kind_of_ca_aa_issues_as/h8vh44l/
+
+https://old.reddit.com/r/RoundSparrow/comments/p81wu5/the_bob_seger_system_2_2/
+
+Another marked NSFW
+
+https://old.reddit.com/r/RoundSparrow/comments/phdmhk/today_is_september_3_2021_twelve_years_ago_in/hbhqfmb/
+
+<img width="434" height="766" alt="image" src="https://github.com/user-attachments/assets/ddf54593-82a0-49e4-a272-d675bef84a68" />
+
+https://old.reddit.com/r/RoundSparrow/comments/phdmhk/today_is_september_3_2021_twelve_years_ago_in/hbhrrps/
+
+https://old.reddit.com/r/RoundSparrow/comments/phdmhk/today_is_september_3_2021_twelve_years_ago_in/hbhrutl/
+
+https://old.reddit.com/r/RoundSparrow/comments/phdmhk/today_is_september_3_2021_twelve_years_ago_in/hbhyfwm/
+
+https://old.reddit.com/r/RoundSparrow/comments/phdmhk/today_is_september_3_2021_twelve_years_ago_in/hbjua36/
+
+https://old.reddit.com/r/RoundSparrow/comments/phe8y7/today_is_september_3_2021_three_years_ago_today_i/hbhv95w/
+
+<img width="451" height="767" alt="image" src="https://github.com/user-attachments/assets/9fdd0653-8f18-4132-b59d-52af221e9452" />
+
+https://old.reddit.com/r/RoundSparrow/comments/phe8y7/today_is_september_3_2021_three_years_ago_today_i/hgxxsus/
+
+"People were already being tricked with media messages by the mid 1990's. I didn't take the problem seriously enough and see the trend all the way to 2013 with Cambridge Analytica and the IRA..." - September 3, 2021. Stephen Alfred Gutknecht
+
+https://old.reddit.com/r/RoundSparrow/comments/phekzp/taking_a_new_step_uttering_a_new_word_is_what/
+
+https://old.reddit.com/r/RoundSparrow/comments/phse5i/new_evidence_against_the_standard_model_of/hbnntez/
+
+I was programming the artificial intelligence as to my patterns of content. Plus people on Reddit look at your profile and instead of posting on my profile, I prefer to have a subreddit people can comment on openly (but not post on openly). 
+
+https://old.reddit.com/r/RoundSparrow/comments/pi1zpv/navajo_teachings_about_music_everyone_needs_a/hbmk3ft/
+
+https://old.reddit.com/r/RoundSparrow/comments/pi4qpu/reddit_posting_httpsredditaxnus_february_3_2010/hbn524g/
+
+https://old.reddit.com/r/RoundSparrow/comments/pi4qpu/reddit_posting_httpsredditaxnus_february_3_2010/hbn5c3a/
+
+Interstellar 2014 analysis by me.
+
+https://old.reddit.com/r/TrueFilm/comments/4e89pi/subtext_in_the_films_of_christopher_nolan/d1xvqsi/
+
+https://old.reddit.com/r/TrueFilm/comments/7e8vue/revisiting_interstellar_a_movie_i_would_love_to/dq4ezhu/
+
+https://old.reddit.com/r/movies/comments/44flwa/overanalysis_of_hail_caesar_spoilers/d4eigpg/
+
+https://old.reddit.com/r/interstellar/comments/2r7azk/some_of_the_deepest_themes/
+
+https://old.reddit.com/r/interstellar/comments/47d8gc/who_are_they_maybe_spoilers/d0hcqlu/
+
+https://old.reddit.com/r/RoundSparrow/comments/pi5gbh/some_of_the_deepest_themes/
+
+https://old.reddit.com/r/RoundSparrow/comments/pi688r/the_ready_player_one_day_off_of_social_media/
+
+https://old.reddit.com/r/RoundSparrow/comments/pi74xe/screenshot_from_20210904_232420png/hbnmfjz/
+
+<img width="1024" height="262" alt="image" src="https://github.com/user-attachments/assets/9a054ed5-1b0c-4085-b9cc-ca255360afc7" />
+
+https://old.reddit.com/r/RoundSparrow/comments/pi74xe/screenshot_from_20210904_232420png/hbnmjxm/
+
+https://old.reddit.com/r/RoundSparrow/comments/pi8bco/a_navajo_sweat_lodge_bible_verses_matthew_4111/hbnu1k4/
+
+Public Bible literacy lessons, mythology translation to mythology translation Bible to Navajo. North America to Levant translations at metaphor to metaphor level.
+
+https://old.reddit.com/r/RoundSparrow/comments/pi8bco/a_navajo_sweat_lodge_bible_verses_matthew_4111/hbnu37i/
+
+Levant Quran Mohammad to North America Navajo translations.
+
+https://old.reddit.com/r/RoundSparrow/comments/pi9khy/hey_president_joe_biden_new_radical_y2k_emp_cant/
+
+https://old.reddit.com/r/RoundSparrow/comments/pi65nl/dr_joseph_campbell_inward_journey_schizophrenia/hbnhjr7/
+
+Look at the user profile. I asked the user to come here and get off the Interstellar 2014 subreddit given the restrictive moderators and rules there.
+
+https://old.reddit.com/r/RoundSparrow/comments/pi65nl/dr_joseph_campbell_inward_journey_schizophrenia/hboog9y/
+
+Love your enemies, the subreddit system is the problem. The system of cloud computing machine mindsets.
+
+https://old.reddit.com/r/RoundSparrow/comments/pj082a/but_february_pandemic_february_1_2020_made_me/
+
+https://old.reddit.com/r/RoundSparrow/comments/pj0a6w/%C3%AAtre_homme_cest_pr%C3%A9cis%C3%A9ment_%C3%AAtre_responsable_cest/hbt7dee/
+
+<img width="780" height="738" alt="image" src="https://github.com/user-attachments/assets/0ca1d7b1-fe43-4fc6-91a1-a2fb709bba7b" />
+
+Promoting Malala on Reddit. September 6, 2021. Still actively promoting Malala today on this Github and Mastodon and Bluesky in February 2026.
+
+https://old.reddit.com/r/RoundSparrow/comments/pj0q96/american_pot_luck_and_the_good_old_boys_were/hbtafg7/
+
+Art work of the ugly as hell Facebook URL ;)
+
+wow, the file is over 10MB, too big for GitHub? 
+
+<img width="1024" height="768" alt="image" src="https://github.com/user-attachments/assets/51de38d8-fbc0-4647-8edf-186a789b4206" />
+
+My photograph collage art.
+
+https://old.reddit.com/r/RoundSparrow/comments/pulbky/book_supremacist_doesnt_require_a_skin_color_or/hkl06nx/
+
+Sharing REAL name on Reddit. Not hiding my identity in the face of the IRA assault on USA.
+
+<img width="763" height="701" alt="image" src="https://github.com/user-attachments/assets/69ad45c7-f638-4eed-8161-6ce09b403d53" />
+
+https://studsterkel.wfmt.com/programs/daniel-boorstin-discuses-his-book-image-guide-pseudo-events-america
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mem3ohkt7k26 https://midwest.social/post/43324367 https://autistics.life/@RoundSparrow/116053372768239044 }
+
+https://old.reddit.com/r/RoundSparrow/comments/q1fk6p/people_on_social_media_who_think_that_money_can/hffc4sr/
+
+https://old.reddit.com/r/RoundSparrow/comments/q1fk6p/people_on_social_media_who_think_that_money_can/hjmoihp/
+
+Media ecology of peer to peer rapid blown minds on Reddit, instant notification reaction mindsets.
+
+https://old.reddit.com/r/RoundSparrow/comments/rv4t3d/steely_dans_concern_do_they_have_a_name_for_the/hr32f4p/
+
+https://old.reddit.com/r/RoundSparrow/comments/rv4t3d/steely_dans_concern_do_they_have_a_name_for_the/hr32wls/
+
+https://old.reddit.com/r/RoundSparrow/comments/rv4t3d/steely_dans_concern_do_they_have_a_name_for_the/hr352ic/
+
+https://old.reddit.com/r/RoundSparrow/comments/rv4t3d/steely_dans_concern_do_they_have_a_name_for_the/hr35cmi/
+
+Wake Indra opera, there is also a subreddit /r/WakeIndra
+
+https://old.reddit.com/r/RoundSparrow/comments/rv4t3d/steely_dans_concern_do_they_have_a_name_for_the/hr369ju/
+
+https://old.reddit.com/r/RoundSparrow/comments/s9i70j/russian_neighbor_man_ukrainian_man/htmvqne/
+
+https://old.reddit.com/r/RoundSparrow/comments/s9i70j/russian_neighbor_man_ukrainian_man/htmw1sw/
+
+https://old.reddit.com/r/RoundSparrow/comments/s9i70j/russian_neighbor_man_ukrainian_man/hto74la/
+
+Asserting the reason for the Subreddit /r/RoundSparrow  ... why I am even on the overrun Reddit platform / venue.
+
+“We are engaged in an information war and we are losing that war,” she said. China and Russia have started multi-language television networks, she said, even as the U.S. cuts back in this area. “We are paying a big price” for dismantling international communications networks after the end of the Cold War, Clinton said.     
+-- March 2, 2011   
+-- Secretary of State Hillary Clinton  
+
+I was living in Amman Jordan at Syria war outbreak after Algeria in Arab Spring times this was open testimony.
+
+https://old.reddit.com/r/RoundSparrow/comments/s9i70j/russian_neighbor_man_ukrainian_man/htoailf/
+
+https://old.reddit.com/r/RoundSparrow/comments/s9i70j/russian_neighbor_man_ukrainian_man/htod61u/
+
+https://old.reddit.com/r/RoundSparrow/comments/s9i70j/russian_neighbor_man_ukrainian_man/htr1t3t/
+
+https://old.reddit.com/r/RoundSparrow/comments/s9i70j/russian_neighbor_man_ukrainian_man/hu18bg1/
+
+https://old.reddit.com/r/RoundSparrow/comments/s9i70j/russian_neighbor_man_ukrainian_man/hu38dw1/
+
+https://old.reddit.com/r/RoundSparrow/comments/s9i70j/russian_neighbor_man_ukrainian_man/hu54kbk/
+
+https://old.reddit.com/r/RoundSparrow/comments/s9i70j/russian_neighbor_man_ukrainian_man/huwhj28/
+
+https://old.reddit.com/r/RoundSparrow/comments/s9i70j/russian_neighbor_man_ukrainian_man/huwic11/
+
+https://old.reddit.com/r/RoundSparrow/comments/sjltc9/everybody_i_love_you_2021_remaster_you_cant/
+
+https://old.reddit.com/r/RoundSparrow/comments/sl5ftx/february_5_2011_so_its_an_absolute_lie_that_has/hvotxkz/
+
+February 5, 2011 Algeria Arab Spring (North Africa)   
+
+<img width="914" height="573" alt="image" src="https://github.com/user-attachments/assets/f048cf9f-10e1-4501-9f58-66cc0db9be61" />
+
+https://old.reddit.com/r/RoundSparrow/comments/smcoj6/united_states_of_america_holocaust_memorial/
+
+More relevant to USA education than ever in February 2026.
+
+https://old.reddit.com/r/RoundSparrow/comments/smrslc/the_founding_fathers_of_the_united_states_of/hw3tprw/
+
+Left vs. right brain rot.
+
+https://old.reddit.com/r/RoundSparrow/comments/smxjyg/reddit_users_think_paid_agents_are_all_there_is/hw00tl0/
+
+https://old.reddit.com/r/RoundSparrow/comments/smxjyg/reddit_users_think_paid_agents_are_all_there_is/hvz7ine/
+
+https://old.reddit.com/r/RoundSparrow/comments/smxjyg/reddit_users_think_paid_agents_are_all_there_is/hvzdu15/
+
+https://old.reddit.com/r/RoundSparrow/comments/smxjyg/reddit_users_think_paid_agents_are_all_there_is/hvzrkix/
+
+https://old.reddit.com/r/RoundSparrow/comments/smxjyg/reddit_users_think_paid_agents_are_all_there_is/hvzsl52/
+
+https://old.reddit.com/r/RoundSparrow/comments/smxjyg/reddit_users_think_paid_agents_are_all_there_is/hw046sy/
+
+Copypasta programmed minds
+
+https://old.reddit.com/r/RoundSparrow/comments/smxjyg/reddit_users_think_paid_agents_are_all_there_is/hw0bnol/
+
+https://old.reddit.com/r/RoundSparrow/comments/smxjyg/reddit_users_think_paid_agents_are_all_there_is/hvzs7fr/
+
+https://old.reddit.com/r/RoundSparrow/comments/snprf7/call_it_codger_power_were_older_and_fighting_for/
+
+https://old.reddit.com/r/RoundSparrow/comments/sumabr/malignant_normality_the_psychological_theory_that/hxbuzfi/
+
+The last pinned post (which I changed over the years) before I got banned. https://www.salon.com/2021/08/12/malignant-normality-the-psychological-theory-that-explains-naked-emperors-narcissists-and-nazis/
+
+Social post { https://autistics.life/@RoundSparrow/116053526113530608 https://bsky.app/profile/roundsparrow.bsky.social/post/3mem5uldjbs2r }
+
+See the downvotes on the posting?   
+0 points (20% upvoted)
+
+<img width="2381" height="789" alt="image" src="https://github.com/user-attachments/assets/01566f6d-4586-4138-8a3e-80dcd84a917b" />
+
+On a posting titled "Malignant normality: The psychological theory that explains naked emperors, narcissists and Nazis" with a link off-Reddit. 20% upvoted means at least 5 downvotes were on that posting.
+
