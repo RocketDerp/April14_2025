@@ -348,3 +348,7 @@ Exactly how is the coverage "misleading"? The comment is anti-informative. Is th
 https://old.reddit.com/r/circled/comments/1r1uzs6/white_privilege/o4slyyr/
 
 The low-effort short-length commenting on Reddit is nothing new. "both sides", as if all topics of parenting are "two sides". Like the Texas Clergy teaches; there is a good team and an evil team, decide if you are going to follow Jesus or Satan, take your pick! There are two sides! Evil or good, both are valid creations by God above! This one-bit TWO AND ONLY TWO logic is incredibly popular with cloud computing Reddit fandoms.
+
+https://old.reddit.com/r/therewasanattempt/comments/1r1x8ip/to_not_be_in_a_cult/o4snckb/
+
+28 day Reddit account. Shitty posting title, shit-posting Reddit post title. Shitty engagement commenting of asking insincere questions to get audience to flock. Most-upvoted popular comment. Anti-education anti-learning just shit-talking the out-groups as a form of sports Super Bowl mentality.
