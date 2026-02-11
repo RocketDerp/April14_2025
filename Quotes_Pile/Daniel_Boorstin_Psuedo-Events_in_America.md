@@ -7,7 +7,16 @@ https://catalog.freelibrary.org/Record/331066
 
 &nbsp;
 
+&nbsp;
+
+# See Also
+
+&nbsp;
+
 Interview about book, year 1960? :   
 https://studsterkel.wfmt.com/programs/daniel-boorstin-discuses-his-book-image-guide-pseudo-events-america
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mem3ohkt7k26 https://midwest.social/post/43324367 https://autistics.life/@RoundSparrow/116053372768239044 }
+
+Year 2004 perspective, before MAGA Trumpism Putinism invasion of year 2013.   
+https://www.poynter.org/archive/2004/how-to-cover-a-pseudo-event/
