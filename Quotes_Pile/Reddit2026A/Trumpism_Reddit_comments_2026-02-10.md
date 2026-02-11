@@ -253,3 +253,16 @@ This whole post is fixated on one man.
 What abut the cults of people who are so attracted to Trump? People who want to follow leadership of badness? The hundreds of millions of people who think it is entertaining to have all media systems constantly sharing Trump's image like this posting om Reddit. Media consumption cults.'
 
 https://old.reddit.com/r/BlackPeopleofReddit/comments/1r1k7ej/speaking_to_variety_actor_giancarlo_esposito/o4qayzr/
+
+https://old.reddit.com/r/circled/comments/1r1uzs6/white_privilege/o4sbaef/
+
+Twitter-length. No off-Reddit URL. Top-upvoted popular comment. No quotes from any authors / books / author names. It is commenting addiction about MAGA that runs society now. People are not taking terrorism as a serious intellectual topic. 
+
+The screen shot is asking the right questions. Having lived in Algeria and intimately involved in the terrorism mental conditioning of family... this is EXACTLY the OPENING of very important and critical questions (in the screen shot). But, alas, people in USA are making the same mistake as they did after September 11, 2001. Getting GUNS ready and cheering on "liberals get guns too!!!".
+
+There is so much liberals vs conservative brain-rot. BOTH worshiping guns is bad. Where are the peace lovers who want to use Dr. Martin Luther King Jr's words and TEACHING and EDUCATING and PREACHING (too preachy) to address terrorism! Malala is giving up, not that I say she didn't do her tour of duty and also do long-term changes - but Malala's latest book and book tour is making it clear that she is not going to be doing what Greta Thunberg is doing. And fine, I think Malala's year 2013 book captures several authors and what needs to be said. If ANYTHING, I would fault Malala for not pointing to  Elif Şafak and her library of public lectures, writing, etc. If Malala wants to be into popular sports, fashion, a celebrity - so be it. Again, her speeches and lectures and writings from January 3, 2009 to year 2014 stand. Capturing that youth into time travel writing.
+
+Personally for me, the crisis is far more extreme and Greta Thunberg is intellectually uppity in the way we all need to be (minus the physical antics, I don't encourage, we need a THINKING revolution. Not Trump-style antics politics). Alas, I'm too exhausted to explain better. But we don't need 5,000 Greta Thunberg - we need billions of EVERYDAY people quoting: Dr. Bandy X Lee, quoting Malala, quoting Greta's 2019 book, quoting Banksy's book, quoting Elif Şafak. Teaching what these have to say. And there are more out there to quote and teach... but I can only keep so many in my head as examples! Peter Pomerantsev too!
+
+The CRISIS of OUR TIME is people not getting on the same page! And GOOD pages. We are all on the same page of mocking Musk and Mocking Trump and Mocking Putin! We need to get off the mocking pages and into the serious comprehension pages. Pomerantsev... Dr. Bandy X Lee... Elif Şafak ... Malala's year 2013 speeches, interviews and book!
+
