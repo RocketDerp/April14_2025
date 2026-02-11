@@ -1373,3 +1373,8 @@ https://old.reddit.com/r/Music/comments/1r0w9j2/kid_rock_trolled_as_he_exposes_h
 
 https://old.reddit.com/r/Music/comments/1r0w9j2/kid_rock_trolled_as_he_exposes_himself_buying_his/o4ltmqu/
 
+https://old.reddit.com/r/antiai/comments/1r1c1rk/this_is_why_ai_exists/o4p089z/
+
+Businessman Actor Donald Trump. The Apprentice Simulation of Business. Corporate America simulation via and acting actor, Reality TV scripted reality.
+
+* "Fear, uncertainty, and doubt (FUD) is a manipulative propaganda tactic used in technology sales, marketing, public relations, politics, polling, and cults. FUD is generally a strategy to influence perception by disseminating negative and dubious or false information and is a manifestation of the appeal to fear." https://en.wikipedia.org/wiki/Fear,_uncertainty,_and_doubt
