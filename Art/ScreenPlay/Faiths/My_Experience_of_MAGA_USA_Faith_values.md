@@ -127,6 +127,46 @@ Overnight
 
 &nbsp;
 
+&nbsp;
+
+&nbsp;
+
 # Touch A
 
+Touchstone A
+
 2026-02-11 I touched this file at 4:45 in the morning because it is on my mind and in my heart. I can not write or even try to put into words the experience of MAGA I am living under. The Super Bowl "fun" and "joy" people have with billionaire and every single second of the sports-game content over-organized over-written crammed-full entertainment events. Worship of billionaire sports team owners and their investments in what. It is so artificial. This is some kind of sick sports competition where humanity isn't winning at all. It is sound and visual entertainment in condensed sickness. Why is this an attraction? Can't we have a party on any weekend and get together with friends and make new friends? So we have to worship billionaire advertisers and billionaire team owners. I failed just as much to inspire my partner to take a leisure train trip to Jakarta. Experience together. No boss directing us that we have to go to a place, no school telling us we have to sit in this one room with this teacher, just pick a place, pick a hotel, be free with everyday people. People used to dream of traveling the world. OPERA_A Blank page before you. https://www.youtube.com/watch?v=b7k0a5hYnSI
+
+It just strikes me the parallels of this partnership in January 2012 to March 2013 feels so much like USA society January 2025 to March 2026. MAGA USA (see tile of this GitHub page) today.
+
+We The People, USA, had July 4 2025 holiday.  
+We The People, USA, had Labor Day September 2025 holiday.  
+We the People, USA, had Thanksgiving November 2025 holiday.  
+We the People, USA, had Christmas and New Years 2025 holiday.  
+
+These are when the memories of age 18, after graduating high school come back. These holiday weekends where friends and family gather. And under MAGA USA / Trump USA - people talk about their business, their job situation, their family. Who is getting divorced over MAGA? Who had a new baby and is finding things difficult or troubled due to the trade situation.
+
+People have memories, experiences, of PREVIOUS July 4 get-together, previous labor day weekends, previous Thanksgiving. Previous Christmas.
+
+And nothing happened. people have not had enough MAGA. And really this Super Bowl 2026 February was horrific. Bad Bunny is great, but it is not resisting billionaire Jody Allen in Seattle. It is not in any way facing how grim the USA situation is with technology investing all leading into the hands of MAGA Putinism values. 
+
+The recency bias is so terrible.   
+Yes, for the record, I do know Reddit isn't everyone.  
+But I have traveled and lived in RV at critical ages, not as a retired person at age 60, not as a influencer at age 30.. .but as a normal work at home person at age 30. I knew some areas of USA culture pretty well. Places in Texas, places in Florida, places in Seattle, Vegas... and even west of Washington D.C. I spent a lot of energy focused on when I was living there in 2018 after my father died. And New Orleans winter of 2018... and Portland Oregon summer of 2019... and Pueblo Colorado... Colorado Springs. I've been checking on local spots. References to places I keep an emotional eye on. 
+Some of it is pretty simple.. like looking at grocery prices now online compared to the time I was there when the topic comes up.  But also some businesses that were cool but struggling. How many have closed or re-opened after the pandemic. My dad died in June 2018 and I moved into RV again July 4, 2018 and those 18 months up to January 20, 2020 where I settled in Pueblo were critical. 18 months all over USA (Dayton Ohio to Florida, Florida to west of Washington DC, New Orleans, Portland Oregon, Colorado, Texas)... as the pandemic was a big social change.
+
+The recency bias is so terrible.  
+Luigi. Why are people not posting every 12 hours a health care finance story? Posting the billing insurance numbers. The intellectual thoughtful is just gone in USA. Why isn't there 14 health care stories a week, week after week! 750 family stories of health care USA a year... since December 4, 2024. Why are people so against using Internet information systems for actual humanism and progress! Why is gun stroking and gun worship of murder the lust - and nobody can see the red-tape paperwork is what is strangling us all! The runaround of billionaires giving us a health care system that dehumanizes us via systems. I guess it's the same way people can't see the Super Bowl billionaires give us the runaround strangles us with worship centers of Sunday wealth bling bling event.  
+
+See, I told you this document was named about MAGA experience. I'm not writing to criticize a failed relationship with a partner. But that inward journey for the soul of a partnership in year 2012 feels so much like year 2025 inward journey of the soul of USA.
+
+A failed partnership is a common world experience. A global pandemic was NOT a common world experience any of us had in December 2019. A spiritually failed nation USA in front of everyone - with dramatic mockery of Greenland and dramatic mockery of Canada - is something nobody alive has experienced before either. The Soviet Union / USSR was not a global source of entertainment and culture as France / French author called out in 1980's and 1990's.
+
+* "According to Baudrillard’s reading of the war – America as **for Baudrillard** the leading society culturally in the world, the one that leads the cultural trajectory of the world through television, movies and so on" - Rick Roderick 1993
+* "**Baudrillard has visited our country** and when he went to Disneyland in Epcot Centre and these various parks, he said “Well this is much better than Europe. The food’s better than Europe. It’s a short walk between France and Germany-land” ... “Ah, you know, you don’t have to… deal with all those nasty waiters, everyone is so polite”. The simulation has outrun the so-called reality." - Rick Roderick 1993
+
+I haven't fact-checked if that is true... alas, I am beyond burned out, burnout on top of burnout. Nobody is here for the mass mind and soul of the entire Pale Blue Dot. People may only read this to view me as a failed individual. I made the choice around year 1994... no children. I asked Tristan to have children then, but she said no. And I was 24 / 25 years old and I had to make up my mind. i was not looking for a one-night stand relationship... I wanted to get married. And Tristan was single and never married (and 2 years older than me). I seriously contemplated breaking off the relationship after only a couple weeks because she was serous "no children". Then, in 2001 I think she really wanted children and I was the one saying no... I did not know about my autism until 2008... but by 1999 I had made the choice to no longer work in corporate America office environment again. The autism burnout I had from working at the top in Bellevue was too much. Work from home on my own schedule control was essential by age 30.
+
+I no longer wanted to live that nightmare of Corporate America USA: https://old.reddit.com/r/clevercomebacks/comments/1r1kwah/unnecessary_retaliation_by_an_ungrateful_boss/o4qrjdx/
+
+I have so much brain damage. 
