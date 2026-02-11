@@ -364,3 +364,5 @@ Reddit commenting fandom is literally joking and mocking the out-group in patter
 https://old.reddit.com/r/therewasanattempt/comments/1r1x8ip/to_not_be_in_a_cult/o4su6zg/
 
 5 month Reddit account. The comments about the wine drinking. The gun is being a source of entertainment and "show and tell" and even POINTED at a human person, while LOADED. There is no defense of any kind, pointing a loaded gun at a person is an OFFENSIVE action, not home defense. Bullets do not simply jump into a gun. A gun doesn't have any useful purpose in the house. These actions are not like accidentally poisoning someone with bad food... the food has a purpose other than killing a person. A gun doesn't have a purpose other than to kill and intimidate people!
+
+OPERA_A Jacksonville Florida music. Southern rock music. 1... 2.... 1, 2,3 https://www.youtube.com/watch?v=9bv-wPYRMDI  1,997,466 views  December 16, 2022 Ain't good for nothing... "Big Jim's been drinking whiskey and playing poker on a losing night"
