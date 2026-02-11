@@ -366,3 +366,13 @@ https://old.reddit.com/r/therewasanattempt/comments/1r1x8ip/to_not_be_in_a_cult/
 5 month Reddit account. The comments about the wine drinking. The gun is being a source of entertainment and "show and tell" and even POINTED at a human person, while LOADED. There is no defense of any kind, pointing a loaded gun at a person is an OFFENSIVE action, not home defense. Bullets do not simply jump into a gun. A gun doesn't have any useful purpose in the house. These actions are not like accidentally poisoning someone with bad food... the food has a purpose other than killing a person. A gun doesn't have a purpose other than to kill and intimidate people!
 
 OPERA_A Jacksonville Florida music. Southern rock music. 1... 2.... 1, 2,3 https://www.youtube.com/watch?v=9bv-wPYRMDI  1,997,466 views  December 16, 2022 Ain't good for nothing... "Big Jim's been drinking whiskey and playing poker on a losing night"
+
+https://old.reddit.com/r/therewasanattempt/comments/1r1x8ip/to_not_be_in_a_cult/o4sxx4p/
+
+Left vs. right 1-bit brain-rot logic mindset. No condemnation of shootings. No condemnation of hate. Just left vs. right media concern. ALL hate is bad. PERIOD. Humans are humans, HATE IS BAD.
+
+**The 1954 Equation**
+
+February 28, 1954: "Most people can't stand up for their convictions, because the majority of people might not be doing it. See, everybody's not doing it, so it must be wrong. And since everybody is doing it, it must be right. So a sort of numerical interpretation of what's right. But I'm here to say to you this morning that some things are right and some things are wrong. Eternally so, absolutely so. **It's wrong to hate.** It always has been wrong and it always will be wrong. It's wrong in America, it's wrong in Germany, it's wrong in Russia, it's wrong in China. It was wrong in 2000 B.C., and it's wrong in 1954 A.D. It always has been wrong, and it always will be wrong." - Martin Luther King Jr.
+
+"For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the **true becomes false and the false becomes true**. That's what hate does. You can't see right. **The symbol of objectivity** is lost." - Martin Luther King Jr.
