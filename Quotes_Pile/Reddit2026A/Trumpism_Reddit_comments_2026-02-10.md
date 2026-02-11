@@ -269,3 +269,10 @@ The CRISIS of OUR TIME is people not getting on the same page! And GOOD pages. W
 https://old.reddit.com/r/circled/comments/1r1uzs6/white_privilege/o4s9opz/
 
 That's why I keep emphasizing the spare-time free-time on Reddit where people are NOT quoting and teaching Dr. Bandy X Lee. How people avoid Jen Senko's film and book. People are NOT asserting goodness. People are NOT doing cult deprogramming. People are NOT facing up to the Cambridge Analytica and Internet Research Agency outcomes since year 2013. We need to spiritually heal as a nation through education and teaching. Media ecology self-awareness. Just saying "cult", "cray" is not enough. Jen Senko and Dr. Bandy X Lee are leaders that are on the table, at the public library, and one URL clock away... that we are not facing up to.
+
+https://old.reddit.com/r/circled/comments/1r1uzs6/white_privilege/o4s9g70/
+
+People in USA can not see they are 0.34 billion out of over 8 billion people. In an ISLAMIC nation, where I lived in Algeria, when a Muslim man does terrorism it's the same thing! It is when it happens in ANOTHER nation by Israel against Palestine people are far more upset. When terrorism is "one of your own" - Russian Putin harming Russian people... it's often treated entirely different than when it is an immigrant or different religion, etc.
+
+That is why Campbell said in 1986/1987 that the Levant faith systems have DISQUALIFIED themselves for the future. "they don’t know how to apply their religious ideas to contemporary life, and **to human beings rather than just to their own community**. It’s a terrible example of the failure of religion to meet the modern world. These three mythologies are fighting it out. They have disqualified themselves for the future."
+
