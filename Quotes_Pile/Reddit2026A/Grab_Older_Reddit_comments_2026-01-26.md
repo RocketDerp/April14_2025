@@ -432,4 +432,10 @@ The last pinned post (which I changed over the years) before I got banned. https
 
 Social post { https://autistics.life/@RoundSparrow/116053526113530608 https://bsky.app/profile/roundsparrow.bsky.social/post/3mem5uldjbs2r }
 
+See the downvotes on the posting?   
+0 points (20% upvoted)
+
+<img width="2381" height="789" alt="image" src="https://github.com/user-attachments/assets/01566f6d-4586-4138-8a3e-80dcd84a917b" />
+
+On a posting titled "Malignant normality: The psychological theory that explains naked emperors, narcissists and Nazis" with a link off-Reddit. 20% upvoted means at least 5 downvotes were on that posting.
 
