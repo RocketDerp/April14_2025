@@ -4,8 +4,7 @@ Twitter / Bluesky / Reddit / meme streaming. Every 2 hours... different topics, 
 ― Neil Postman, Technopoly: The Surrender of Culture to Technology, 1992
 
 “It is not necessary to conceal anything from a public insensible to contradiction and narcotized by technological diversions.”
-― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985   
-Longer version: [Specific/Postman_1985_Howdy_Doody.md](Specific/Postman_1985_Howdy_Doody.md)
+― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985. Page 111. Longer version: [Specific/Postman_1985_Howdy_Doody.md](Specific/Postman_1985_Howdy_Doody.md)
 
 &nbsp;
 
