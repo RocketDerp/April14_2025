@@ -251,3 +251,5 @@ https://old.reddit.com/r/MurderedByWords/comments/1r1if11/i_hate_your_indifferen
 This whole post is fixated on one man.
 
 What abut the cults of people who are so attracted to Trump? People who want to follow leadership of badness? The hundreds of millions of people who think it is entertaining to have all media systems constantly sharing Trump's image like this posting om Reddit. Media consumption cults.'
+
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1r1k7ej/speaking_to_variety_actor_giancarlo_esposito/o4qayzr/
