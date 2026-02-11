@@ -475,3 +475,10 @@ https://old.reddit.com/r/PublicFreakout/comments/1r29j2d/has_this_woman_lost_her
 
 8 month Reddit account. Top upvoted popular comment. "Lost her mind", the whole fucking NATION has lost mind to Putin. Putin is alive and abusing both Russian and Ukraine children for sex and power in front of the whole world. The cult of celebrity television and celebrity film fiction is out of fucking control in USA. People can not turn to nonfiction serious learning and do a Reddit blackout / Bluesky blackout. People just keep yammering on and on in comments about Trump and are not demanding the REMOVAL of Trump and Dr. Bandy X Lee's mental health education and teaching for the whole fucking nation.
 
+https://old.reddit.com/r/clevercomebacks/comments/1r29x7k/whats_he_really_hunting_for/o4vhjg1/
+
+17 day Reddit account.
+
+No matter how absurd or surreal a White House and Kremlin idea is, Reddit users just eat it up as a discussion topic. Instead of shutting down Reddit in blackout, protesting, to remove Trump, the simulation of commenting about every plot twist and idea coming out is all people fucking car about. Commenting about the food as the nation burns to the ground. The addiction to high speed messaging eclipses all goodness.
+
+
