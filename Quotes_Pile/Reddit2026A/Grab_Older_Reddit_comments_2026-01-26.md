@@ -342,3 +342,32 @@ https://studsterkel.wfmt.com/programs/daniel-boorstin-discuses-his-book-image-gu
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mem3ohkt7k26 https://midwest.social/post/43324367 https://autistics.life/@RoundSparrow/116053372768239044 }
 
+https://old.reddit.com/r/RoundSparrow/comments/q1fk6p/people_on_social_media_who_think_that_money_can/hffc4sr/
+
+https://old.reddit.com/r/RoundSparrow/comments/q1fk6p/people_on_social_media_who_think_that_money_can/hjmoihp/
+
+Media ecology of peer to peer rapid blown minds on Reddit, instant notification reaction mindsets.
+
+https://old.reddit.com/r/RoundSparrow/comments/rv4t3d/steely_dans_concern_do_they_have_a_name_for_the/hr32f4p/
+
+https://old.reddit.com/r/RoundSparrow/comments/rv4t3d/steely_dans_concern_do_they_have_a_name_for_the/hr32wls/
+
+https://old.reddit.com/r/RoundSparrow/comments/rv4t3d/steely_dans_concern_do_they_have_a_name_for_the/hr352ic/
+
+https://old.reddit.com/r/RoundSparrow/comments/rv4t3d/steely_dans_concern_do_they_have_a_name_for_the/hr35cmi/
+
+Wake Indra opera, there is also a subreddit /r/WakeIndra
+
+https://old.reddit.com/r/RoundSparrow/comments/rv4t3d/steely_dans_concern_do_they_have_a_name_for_the/hr369ju/
+
+https://old.reddit.com/r/RoundSparrow/comments/s9i70j/russian_neighbor_man_ukrainian_man/htmvqne/
+
+https://old.reddit.com/r/RoundSparrow/comments/s9i70j/russian_neighbor_man_ukrainian_man/htmw1sw/
+
+https://old.reddit.com/r/RoundSparrow/comments/s9i70j/russian_neighbor_man_ukrainian_man/hto74la/
+
+Asserting the reason for the Subreddit /r/RoundSparrow  ... why I am even on the overrun Reddit platform / venue.
+
+“We are engaged in an information war and we are losing that war,” she said. China and Russia have started multi- language television networks, she said, even as the U.S. cuts back in this area. “We are paying a big price” for dismantling international communications networks after the end of the Cold War, Clinton said.   
+-- March 2, 2011   
+-- Secretary of State Hillary Clinton  
