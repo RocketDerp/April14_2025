@@ -247,3 +247,5 @@ https://old.reddit.com/r/antimeme/comments/1r1id73/rest_in_peace_course/o4pv2hn/
 https://old.reddit.com/r/antimeme/comments/1r1id73/rest_in_peace_course/o4pv3i4/
 
 Anyone can create a new subreddit and invite others to go try something different. But people have faith in hate.
+
+https://old.reddit.com/r/antimeme/comments/1r1id73/rest_in_peace_course/o4pvj9v/
