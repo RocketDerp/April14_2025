@@ -23,3 +23,16 @@ https://old.reddit.com/r/comics/comments/1r1ave7/lost_in_translation_oc/o4oehik/
 World anti-compassion pro-hate affairs. Putinism.
 
 Social post { https://autistics.life/@RoundSparrow/116049234255286070 https://bsky.app/profile/roundsparrow.bsky.social/post/3mekass3vac24 }
+
+https://old.reddit.com/r/clevercomebacks/comments/1r1kwah/unnecessary_retaliation_by_an_ungrateful_boss/o4qbw31/
+
+In the social culture of the United States of America... it is a way to express dislike of individuals. It is about pecking order and grading people based upon their Donald Trump like ability to charm and manipulate others. Brown-nosing culture. Sucking up to the boss. Cult of doing social rituals to "respect in relationships".
+
+Donald Trump has been the center of attention since June 16, 2015. Let that sink in, dear reader. People CHOOSE to make Trump in power. Not a small number of people. People are not protesting on social media. There is no blackout on Reddit and Bluesky calling for Trump's removal. Millions upon millions of people have married their children's future to Donald Trump as a boss man role model for male leaders.
+
+The society is so sick and menally unwell at the organization and systemic level people do not even recognize there is any better way. Joe Biden was considered 4 years of "boring boss man", ,when Biden was not trying to be a boss at all. People think they work for the President of the government. There is no sense of goodness itself. The government is not our JOB. A country is not a business in competition.
+
+It is the Winter Olympics in USA, and people behave like our country is a competition with other countries. Except we have a massive military and people think war is just another business strategy. The values and thinking are corrupt in We the People. Soul rot, spirit rot, brain rot.
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3meldwkxyos2u https://autistics.life/@RoundSparrow/116051704019827030 }
+
