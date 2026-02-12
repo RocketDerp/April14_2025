@@ -665,3 +665,7 @@ https://old.reddit.com/r/PublicFreakout/comments/1r34mq0/rfk_jr_im_not_scared_of
 https://old.reddit.com/r/news/comments/1r320vr/epa_reverses_longstanding_climate_change_finding/o5130ud/
 
 8 month Reddit account. Most popular upvoted comment.
+
+https://old.reddit.com/r/news/comments/1r320vr/epa_reverses_longstanding_climate_change_finding/o512erf/
+
+Where USA Government goes, Reddit fandom follows. The more stupid, the more the fandom avoids nonfiction on Reddit.
