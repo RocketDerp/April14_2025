@@ -86,3 +86,20 @@ Cults of **sports-think fandoms**. Rectangle fields of **square-wave thinking** 
 * Following Paul Allen's Microsoft year 2003 leadership. "Neuralink Corp. is an American neurotechnology company that has developed as of 2024 implantable brain–computer interfaces (BCIs). It was founded by Elon Musk"; "Neuralink was founded in 2016 by Elon Musk" - https://en.Wikipedia.org/wiki/Neuralink
 
 Social post { https://autistics.life/@RoundSparrow/116059213884076370 https://bsky.app/profile/roundsparrow.bsky.social/post/3meoontp42k2m }
+
+
+https://old.reddit.com/r/therewasanattempt/comments/1r2u9s7/to_scare_people_into_not_pursuing_the_release_of/o4zflvm/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1r2x48p/relevant_reminder_10_years_ago_pam_bondi_received/o501jef/
+
+ToDo: Hidden author of Putinism or other year 2014 articles discuss how little it takes to keep media and others in line under Surkov techniques.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1r2x48p/relevant_reminder_10_years_ago_pam_bondi_received/o501qr8/
+
+"LOL" laugh track for Reddit audience fandom. "LOL" amusement. "Adults', are all laughing away. Trump memes have turned USA into **chucklehead nation**. Reddit fandoms of Trump that mock and mockery all day and night in commenting and voting / upvoting Trump shit-postings and shit-commenting. Avoiding nonfiction serious learning and teaching for adult education. CHUCKLEHEAD_NATION
+
+* "For all his perspicacity, George Orwell would have been stymied by this situation; there is nothing “Orwellian” about it. The President does not have the press under his thumb. The New York Times and The Washington Post are not Pravda; the Associated Press is not Tass. And there is no Newspeak here. Lies have not been defined as truth nor truth as lies. **All that has happened is that the public has adjusted to incoherence and been amused** into indifference. Which is why Aldous Huxley would not in the least be surprised by the story. Indeed, he prophesied its coming. He believed that it is far more likely that the Western democracies will dance and dream themselves into oblivion than march into it, single file and manacled. Huxley grasped, as Orwell did not, that it is not necessary to conceal anything from a public insensible to contradiction and narcoticized by technological diversions. Although Huxley did not specify that television would be our main line to the drug, he would have no difficulty accepting Robert MacNeil’s observation that “Television is the soma of Aldous Huxley’s Brave New World.” Big Brother turns out to be Howdy Doody." ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, **year 1985**, page 111
+
+* Howdy Doody is an American children's television program (with circus and Western frontier themes) that was created and produced by Victor F. Campbell and E. Roger Muir. It was broadcast on the NBC television network in the United States from December 27, 1947, until September 24, 1960." https://en.wikipedia.org/wiki/Howdy_Doody
+
+
