@@ -619,3 +619,9 @@ https://old.reddit.com/r/AdviceAnimals/comments/1r31611/wheres_their_outrage_now
 https://old.reddit.com/r/AdviceAnimals/comments/1r31611/wheres_their_outrage_now/o50z8r1/
 
 15 day Reddit account.
+
+https://old.reddit.com/r/AdviceAnimals/comments/1r31611/wheres_their_outrage_now/o51fnva/
+
+https://old.reddit.com/r/AdviceAnimals/comments/1r31611/wheres_their_outrage_now/o50xrff/
+
+Almost like Reddit comment section is using tiny-short Twitter-length messages to avoid off-Reddit URL.  QAnon pushed by Russia, no mention: https://www.Independent.co.UK/news/world/americas/us-election-2020/qanon-russia-conspiracy-theory-trump-2020-election-b1536946.html ( a NON USA news source, London, not domestic news, world news incoming )
