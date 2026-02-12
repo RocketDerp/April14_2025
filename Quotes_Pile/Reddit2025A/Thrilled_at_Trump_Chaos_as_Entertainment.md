@@ -807,3 +807,6 @@ PalpitationNew2896 2024-12-03
 Like, 250 years later, America gets its first to take a crack at the dictator game and *this disgusting blob of a human being* is the best we can offer? Does he reflect the American culture in some twisted way? I suppose so."
 
 Reddit society / Twitter society can't imagine Russian information warfare is based on absurd surreal humor, Eats it up every time.
+
+* NOTE: 2026-02-12 I just clicked that Reddit link now... and comment ndc1u8r from 2025-09-09 21:03:16  is now nuked, gone. PalpitationNew2896 - the user is still active 3 weeks ago https://old.reddit.com/user/PalpitationNew2896
+
