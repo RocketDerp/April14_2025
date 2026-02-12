@@ -512,3 +512,7 @@ https://old.reddit.com/r/Fauxmoi/comments/1r2hq5l/trump_allegedly_bragged_to_fri
 5 month Reddit account.
 
 Why are Reddit comment creators not quoting intelligent Dr. Bandy X Lee's 27 contributors about Trump's mental health published October 3, 2017...
+
+https://old.reddit.com/r/Fauxmoi/comments/1r2hq5l/trump_allegedly_bragged_to_friends_about_affair/o4x71mv/
+
+Reddit is a cult of hate-watchers. https://en.wikipedia.org/wiki/Hate-watching Reddit comments from hate-watching fandom of Trump. Horror film, horror media fandom. Attracted to horror content and imagining the horror happening to their own self. Realty TV "The Apprentice" but horror content / abuse content pornography. 
