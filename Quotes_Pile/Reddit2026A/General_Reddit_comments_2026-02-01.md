@@ -261,3 +261,13 @@ https://old.reddit.com/r/PeterExplainsTheJoke/comments/1r1un0r/petah_whats_wrong
 So, think about this. Billionaires have programmed the general public to punch down on poor people for their personal expression. Poor people are programmed to insult and mock other poor people.
 
 * “America is the wealthiest nation on Earth, but its people are mainly poor, and poor Americans are urged to hate themselves. To quote the American humorist Kin Hubbard, 'It ain’t no disgrace to be poor, but it might as well be.' It is in fact a crime for an American to be poor, even though America is a nation of poor. Every other nation has folk traditions of men who were poor but extremely wise and virtuous, and therefore more estimable than anyone with power and gold. No such tales are told by the American poor. They mock themselves and glorify their betters. The meanest eating or drinking establishment, owned by a man who is himself poor, is very likely to have a sign on its wall asking this cruel question: 'if you’re so smart, why ain’t you rich?' There will also be an American flag no larger than a child’s hand – glued to a lollipop stick and flying from the cash register. Americans, like human beings everywhere, believe many things that are obviously untrue. Their most destructive untruth is that it is very easy for any American to make money. They will not acknowledge how in fact hard money is to come by, and, therefore, those who have no money blame and blame and blame themselves. This inward blame has been a treasure for the rich and powerful, who have had to do less for their poor, publicly and privately, than any other ruling class since, say Napoleonic times. Many novelties have come from America. The most startling of these, a thing without precedent, is a mass of undignified poor. They do not love one another because they do not love themselves.” ― Kurt Vonnegut, Slaughterhouse-Five. The Children's Crusade: A Duty-Dance with Death. Year 1969 
+
+https://old.reddit.com/r/NonPoliticalTwitter/comments/1r2fdsi/aidr/o4x34r0/
+
+The crisis ongoing since year 2013 is:
+
+nf;dr    
+nonfiction, did not read   
+not entertaining and amusing, not meme Tweet-joke washing of Trump, did not read   
+serious learning, did not read   
+Neil Postman was correct in year 1985 nonfiction book.   
