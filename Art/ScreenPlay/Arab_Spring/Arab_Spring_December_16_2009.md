@@ -37,3 +37,25 @@ Bedroom Encoders. Writing in French and English. Men were not attracted to "over
 &nbsp;
 
 OPERA_A Women were reaching out to learn about the world beyond those men who would not go off the wall. Family arranged marriage at age 17 was no longer the convention, choice marriage and choice to be single and go to university. If middle class young women could not coax local men into the university, coax men off the wall...  https://www.youtube.com/watch?v=T88J6IzWAFg "Michael Jackson - Off the Wall" - Lyrics: "The world is on your shoulder"... "This part of town" (this part of the Internet) "Life ain't so bad all". "Do what you want to do".. 2,731,775 views August 29, 2008 - I shared this song link in Q1 2010 to Africa as part of the Internet Arab Spring... Lyrics: "Groove, let the madness in the music get to you"; "So tonight, gotta leave that nine-to-five up on the shelf"; "Gotta hide your inhibitions! Gotta let that fool loose, deep inside your soul! Wanna see an exhibition (a-hee!)... Better do it now before you get too old!"
+
+OPERA_A FIN_WAKE_INDRA_NET https://www.youtube.com/watch?v=88NxB7Is1B4 "Villagers - You Lucky One | Live on The Late Late Show" Lyrics: "I can tell by your tone that you're telling the truth
+But it doesn't line up with my image of you... Would you mind very much if I added some spice?
+Some sugar and cream and all things nice... there's a twist in your tale that doesn't sit right"; "Were you always aware of the gift you've got?
+Were you wandering lost outside of the norm?
+Am I getting the gist? Am I getting warm?
+You're going to **have to help me** if you want a hand.
+Well, I'm here for you, but I'm a busy man... So step out of the shade and into the Sun
+I'm listening"; "cutting your teeth
+Supposedly composing your masterpiece
+If you give good copy then I'll cut you some slack
+But you better remember when it all comes back
+And you're lying on the corner of Merchant's Quay
+Telling the world how it's meant to be
+Well, I'll pick you up and I'll take you on"; "I can tell by your tone that you're starting to lag
+Am I such a bore? Am I such a drag?
+I could rip you to shreds, but I'm much too nice!
+So while you're here take my advice:
+Don't let the truth get in the way
+A story's a story and anyway...
+Your foot's in the door, so give me some...
+You parasite..." 7,485 views  May 4, 2024 (Star Wars Day, May the Force Be With You, Finnegans Wake Publication Day)
