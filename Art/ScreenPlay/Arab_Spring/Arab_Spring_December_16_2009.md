@@ -18,5 +18,7 @@ North Africa
 
 And used laptop computers from Europe. In May 2007, home computers became accessible to educated literate women for the first time in history. To Algeria, to North Africa, the Internet was now in the bedroom for the first time. No filters were in place, no restrictions, and if you could read French and you could read English and you could use YouTube...
 
-* "As vulgarity and stupidity thicken, more and **more people awaken** to the intolerability of their condition. Much can be done to foster this state of awareness, even though little can be done directly to change the policies of those in control today of the media of communication.”
+* "As vulgarity and stupidity thicken, more and **more people awaken** to the intolerability of their condition. Much can be done to foster this state of awareness, even though little can be done directly to change the policies of those in control today of **the media of communication**.”
 ― Marshall McLuhan, The Mechanical Bride : Folklore of Industrial Man. Year 1951.
+
+The media to communicate became TCP/IP to the Algerian suburban homes in May 2007. The personal computer became a household option. If at least a young woman in Algeria did not have her own personal computer in her own house, she was now free to go to a friend's house and share a screen and keyboard.
