@@ -625,3 +625,11 @@ https://old.reddit.com/r/AdviceAnimals/comments/1r31611/wheres_their_outrage_now
 https://old.reddit.com/r/AdviceAnimals/comments/1r31611/wheres_their_outrage_now/o50xrff/
 
 Almost like Reddit comment section is using tiny-short Twitter-length messages to avoid off-Reddit URL.  QAnon pushed by Russia, no mention: https://www.Independent.co.UK/news/world/americas/us-election-2020/qanon-russia-conspiracy-theory-trump-2020-election-b1536946.html ( a NON USA news source, London, not domestic news, world news incoming )
+
+https://old.reddit.com/r/andor/comments/1r2xkal/given_recent_events/o503cds/
+
+Star Wars fandom on Reddit always avoids the NONFICTION book Bill Moyers and George Lucas put together for education about the founding fathers of the USA.
+
+https://old.reddit.com/r/andor/comments/1r2xkal/given_recent_events/o505p1m/
+
+Suckers, Gullible Reddit users. Thinks the incompetence is accidental. Eating the Surkov onions. Reddit fandom of Star Wars can not engage nonfiction learning on White House Russia media techniques. "Eating the Onion" that the antics and drama are not deliberate Surkovian methods of governing. SEE_ALSO https://GitHub.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Reddit2025A/Surkovian_Onion_Eating.md
