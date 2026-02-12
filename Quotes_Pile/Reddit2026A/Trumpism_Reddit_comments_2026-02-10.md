@@ -633,3 +633,8 @@ Star Wars fandom on Reddit always avoids the NONFICTION book Bill Moyers and Geo
 https://old.reddit.com/r/andor/comments/1r2xkal/given_recent_events/o505p1m/
 
 Suckers, Gullible Reddit users. Thinks the incompetence is accidental. Eating the Surkov onions. Reddit fandom of Star Wars can not engage nonfiction learning on White House Russia media techniques. "Eating the Onion" that the antics and drama are not deliberate Surkovian methods of governing. SEE_ALSO https://GitHub.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Reddit2025A/Surkovian_Onion_Eating.md
+
+https://old.reddit.com/r/andor/comments/1r2xkal/given_recent_events/o505c9k/
+
+TRUMP_FANDOM Why are these "rebels" on Reddit commenting section not being serious and organizing a Reddit-initiated rebellion? REDDIT_BLACKOUT - why are they not calling for a social media blackout protest which is proven to make headlines all over the world news? COMPREHENDING_TRUMP UNDERSTANDING_TRUMP to comprehend and understand Trump fanatics on Reddit, such as the one making this specific comment, look at how they are wishing for more media content. Trump is a media creator, he is not a valid choice as governor, but Star Wars: Andor is **fiction**, and they are wanting HBO to make more dramafiction content. They do not wish to REMOVE TRUMP, because that cuts off the source of stimulating fiction for their cult addictions to Trumpism / MAGA / Putinism. Surkov won since March 2013.
+
