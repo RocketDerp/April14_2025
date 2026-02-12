@@ -614,4 +614,8 @@ https://old.reddit.com/r/AdviceAnimals/comments/1r31611/wheres_their_outrage_now
 
 1. Downplaying QAnon pushed by Russia, no mention: https://www.independent.co.uk/news/world/americas/us-election-2020/qanon-russia-conspiracy-theory-trump-2020-election-b1536946.html ( a NON USA news source, not domestic news, world news incoming )
 
-2. I personally created /r/QAnon subreddit to educate the community and educate Google search engines: https://old.reddit.com/r/QAnonRussia July 28, 2021 when it was becoming more and more clear that January 6, 2021 wasn't being taken serious (concerning the IRA, Putin, Russia) by the Trump mocking Trump hate fandoms on Reddit.
+2. I personally created /r/QAnonRussia subreddit to educate the community and educate Google search engines: https://old.reddit.com/r/QAnonRussia July 28, 2021 when it was becoming more and more clear that January 6, 2021 wasn't being taken serious (concerning the IRA, Putin, Russia) by the Trump mocking Trump hate fandoms on Reddit.
+
+https://old.reddit.com/r/AdviceAnimals/comments/1r31611/wheres_their_outrage_now/o50z8r1/
+
+15 day Reddit account.
