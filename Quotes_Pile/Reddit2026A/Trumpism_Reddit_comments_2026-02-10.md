@@ -573,3 +573,8 @@ https://old.reddit.com/r/reactiongifs/comments/1r30pl0/mrw_i_learn_that_pam_bond
 4 month Reddit account. Joined in Putin's birthday (not that this fact has deep meaning).
 
 https://old.reddit.com/r/reactiongifs/comments/1r30pl0/mrw_i_learn_that_pam_bondi_was_the_florida/o51445a/
+
+https://old.reddit.com/r/circled/comments/1r2v5ub/americas_top_cop_cant_even_look_at_j_es_survivors/o4zl98y/
+
+But the 3-word parroting. But the mocking and back-mocking. But the feedback looping of total mockery since March 2013 that Saint Petersburg IRA seeded on Reddit! But the DOW symbolism manipulation in Reddit audience minds and Fox News HDTV audience minds. The symbolism cults that nobody wants to address with Dr. Bandy X Lee's nonfiction book from October 3, 2017 ... which has 27 contributors!
+
