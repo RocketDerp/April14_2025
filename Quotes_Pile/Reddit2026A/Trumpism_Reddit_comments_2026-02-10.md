@@ -638,3 +638,10 @@ https://old.reddit.com/r/andor/comments/1r2xkal/given_recent_events/o505c9k/
 
 TRUMP_FANDOM Why are these "rebels" on Reddit commenting section not being serious and organizing a Reddit-initiated rebellion? REDDIT_BLACKOUT - why are they not calling for a social media blackout protest which is proven to make headlines all over the world news? COMPREHENDING_TRUMP UNDERSTANDING_TRUMP to comprehend and understand Trump fanatics on Reddit, such as the one making this specific comment, look at how they are wishing for more media content. Trump is a media creator, he is not a valid choice as governor, but Star Wars: Andor is **fiction**, and they are wanting HBO to make more dramafiction content. They do not wish to REMOVE TRUMP, because that cuts off the source of stimulating fiction for their cult addictions to Trumpism / MAGA / Putinism. Surkov won since March 2013.
 
+https://old.reddit.com/r/BikiniBottomTwitter/comments/1r32d94/wont_somebody_think_of_the_dow/o51753e/
+
+https://old.reddit.com/r/BikiniBottomTwitter/comments/1r32d94/wont_somebody_think_of_the_dow/o51ht6v/
+
+https://old.reddit.com/r/BikiniBottomTwitter/comments/1r32d94/wont_somebody_think_of_the_dow/o5227w1/
+
+Sponge Bob front page posting context. No off-Reddit URL. No author names. No quotes from nonfiction sources. No book titles, etc.
