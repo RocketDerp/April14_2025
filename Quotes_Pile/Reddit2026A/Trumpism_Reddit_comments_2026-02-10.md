@@ -581,3 +581,9 @@ But the 3-word parroting. But the mocking and back-mocking. But the feedback loo
 https://old.reddit.com/r/circled/comments/1r2v5ub/americas_top_cop_cant_even_look_at_j_es_survivors/o4zndbu/
 
 But she has hundreds of millions of fandoms. An empowered performer doing Tony Clifton acting for Reddit fandoms of hate-watching. She stimulates the audience to mock an mock and avoid nonfiction learning. She is part of the leaders of hate-worship that Reddit hate-fandom follows. ANYTHING but see We The People of Reddit as a cult of hate-watching MAGA Trump Epstein. https://en.wikipedia.org/wiki/Hate-watching
+
+https://old.reddit.com/r/circled/comments/1r2v5ub/americas_top_cop_cant_even_look_at_j_es_survivors/o4zmaso/
+
+15 day Reddit account mocking away with Twitter-length shit-commenting shit-posting MAGA-think values of Elon Musk Tweet-thinking systems. Out-group hate programming for Reddit audiences. Reddit mind-fucking. Instead of REMOVING Trump from office by quoting and repeating Dr. Bandy X. Lee's nonfiction book from October 3, 2017 - stick inside Reddit making lazy low-effort comments about how We The People parrot billionaire talking points about oil and gasoline prices. Reddit fandoms to the White House eat this shit up as "engagement" commenting. Cult of crap media commenting is Reddit.
+
+
