@@ -669,3 +669,11 @@ https://old.reddit.com/r/news/comments/1r320vr/epa_reverses_longstanding_climate
 https://old.reddit.com/r/news/comments/1r320vr/epa_reverses_longstanding_climate_change_finding/o512erf/
 
 Where USA Government goes, Reddit fandom follows. The more stupid the federal government leads, the more the fandom avoids nonfiction on Reddit.
+
+https://old.reddit.com/r/videos/comments/1r30rmf/pam_bondi_in_2014_campaign_ad_ill_fight_to_put/o50v7q3/
+
+https://old.reddit.com/r/videos/comments/1r30rmf/pam_bondi_in_2014_campaign_ad_ill_fight_to_put/o50xajl/
+
+https://old.reddit.com/r/videos/comments/1r30rmf/pam_bondi_in_2014_campaign_ad_ill_fight_to_put/o50v5eb/
+
+There have never been more Reddit meme addicts ready to purchase souls of fellow Americans. People who seek out hate leadership of the White House to follow from their Reddit fandom.
