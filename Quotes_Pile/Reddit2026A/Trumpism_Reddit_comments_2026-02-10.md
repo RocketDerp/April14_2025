@@ -599,3 +599,7 @@ The entire cult of Reddit to "the administration" needs cult deprogramming. Medi
 * "For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the **true becomes false and the false becomes true**. That's what hate does. You can't see right. **The symbol of objectivity** is lost." - Martin Luther King Jr.
 
 https://old.reddit.com/r/politics/comments/1r31glr/pam_bondi_faces_impeachment_calls_after_combative/o510f82/
+
+https://old.reddit.com/r/politics/comments/1r31glr/pam_bondi_faces_impeachment_calls_after_combative/o517frs/
+
+REDDIT_BLACKOUT why are Reddit users not organizing a sustained blackout protest? Why are Reddit commenting community not quoting nonfiction books from Dr. Bandy X Lee about the mental health of the cults? Instead, just commenting as if We The People of the world shouldn't be doing cult deprogramming and education! Why is REDDIT and BLUESKY not protesting?
