@@ -4,7 +4,7 @@
 
 # Real M
 
-Reality Itself, Real, the MonoMyth fiction storytellings.
+Reality Itself, Real, the MonoMyth fiction storytelling.
 
 The media ecology traceroute to King ordained by Mohammad, Jesus, John One One.
 
@@ -14,7 +14,7 @@ https://bsky.app/profile/roundsparrow.bsky.social/post/3m4xykcehxk2v
 Overton Window of Rupert Murdoch fiction empire, merged into the Kremlin and White House.    
 Surkovian Governing.    
 Surkovian Information Warfare.     
-Surkovian loss, War Against Realty / War Against Nonfiction.    
+Surkovian loss, War Against Reality / War Against Nonfiction.    
 
 bypass censors   
 

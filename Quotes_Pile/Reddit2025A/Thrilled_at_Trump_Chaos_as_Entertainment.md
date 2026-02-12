@@ -207,7 +207,7 @@ Usual_Connection8765 2023-07-14
 
 https://old.reddit.com/r/NoFilterNews/comments/1mawbks/lets_make_this_video_of_trump_and_his_caddy/
 
-This is what makes it to the front page as a "social media, come together, make this video viral" post - Donald Trump golf course entertainment. What this society needs to upvote to the front page every 12 hours is quotes from Neil Postman, Adam Curtis, and Peter Pomerantsev... this is eating right out of the hands of Realty TV star Donald Trump. "The Apprentice" is fiction, he already knows fiction and cheating out-sells authentic "sleep Joe" Biden nonfiction.
+This is what makes it to the front page as a "social media, come together, make this video viral" post - Donald Trump golf course entertainment. What this society needs to upvote to the front page every 12 hours is quotes from Neil Postman, Adam Curtis, and Peter Pomerantsev... this is eating right out of the hands of Reality TV star Donald Trump. "The Apprentice" is fiction, he already knows fiction and cheating out-sells authentic "sleep Joe" Biden nonfiction.
 
 &nbsp;
 
@@ -470,7 +470,7 @@ It's entertaining and funny that Donald Trump dong Tony Clifton lets people say 
 
 https://old.reddit.com/r/BlueskySkeets/comments/1mqum9l/hilarious/
 
-Bluesky content on front page of Reddit. hilarious hilarious hilarious funny and amusing and entertaining, just as described by Neil Postman in his 1985 book "hilarious Ourselves To Death". People adopting Surkov Kremlin media tactics to add even more bullshit to the war against reality. Sincere education and teaching of Neil Postman's books avoided at all cost while people adopt more and more photoshop and AI images in the War Against Real World / Realty itself that the Kremlin launched on the World Wide Web in March 2013. Russia won, Surkov won.
+Bluesky content on front page of Reddit. hilarious hilarious hilarious funny and amusing and entertaining, just as described by Neil Postman in his 1985 book "hilarious Ourselves To Death". People adopting Surkov Kremlin media tactics to add even more bullshit to the war against reality. Sincere education and teaching of Neil Postman's books avoided at all cost while people adopt more and more Photoshop and AI images in the War Against Real World / Reality itself that the Kremlin launched on the World Wide Web in March 2013. Russia won, Surkov won.
 
 &nbsp;
 

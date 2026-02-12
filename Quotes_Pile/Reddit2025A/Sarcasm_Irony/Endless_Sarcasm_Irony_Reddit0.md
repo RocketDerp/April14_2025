@@ -7,7 +7,7 @@
 ++ Entertainment focus (me: Neil Postman keywords)    
 ++ "Just like The Onion!" Kremlin and White House     
 ++ Recency bias     
-++ Wiki organized Powerpoint (Open Office Impress)  presentaiton would solve    
+++ Wiki organized PowerPoint (Open Office Impress) presentation would solve    
 ++ Wiki getting on same page of important matters would solve    
 
 
@@ -802,7 +802,7 @@ it is a mass media technique of child-washing serious problems and situations, b
 
 https://old.reddit.com/r/todayilearned/comments/1o98e7h/til_in_2013_the_president_of_turkmenistan_fell/
 
-On Reddit people will dunk on this, but on Bluesky and Reddit both people constantly rerport messages to the Reddit secret police for removal / censorship. I've logged censored messages of mine on this GitHub. People block each other. Can't even face realty of a horse fall, can't face reality of a Unicode message on a comment section. Egomania prized.   
+On Reddit people will dunk on this, but on Bluesky and Reddit both people constantly report messages to the Reddit secret police for removal / censorship. I've logged censored messages of mine on this GitHub. People block each other. Can't even face reality of a horse fall, can't face reality of a Unicode message on a comment section. Egomania prized.   
 
 &nbsp;
 
@@ -823,7 +823,7 @@ https://old.reddit.com/r/pics/comments/1o9fmh8/pete_hegseth_at_the_meeting_with_
 
 &nbsp;
 
-Hate clergy, hate prized, hate values. Everything MLK Jr' said about hate abandoned again and again. Donald Trump playing Tony Clifton has thrived off feedback loops of hate for hate. For over TEN YEARS AND FOUR MONTHS, always more hate. Hate of immigrants, hate of nonfiction book reading, hate of people who watch media other than Fox News, all met with more hate. Wrecking the USA by everyone advancing the technology systems and techniques of hate. Goodness itself abandoned. Nonfiction serious learnng in the face of pandemic, abandoned. Hate prized.     
+Hate clergy, hate prized, hate values. Everything MLK Jr' said about hate abandoned again and again. Donald Trump playing Tony Clifton has thrived off feedback loops of hate for hate. For over TEN YEARS AND FOUR MONTHS, always more hate. Hate of immigrants, hate of nonfiction book reading, hate of people who watch media other than Fox News, all met with more hate. Wrecking the USA by everyone advancing the technology systems and techniques of hate. Goodness itself abandoned. Nonfiction serious learning in the face of pandemic, abandoned. Hate prized.     
 https://old.reddit.com/r/goodnews/comments/1oa36rp/2600_rallies_across_50_states_million_and/
 
 &nbsp;

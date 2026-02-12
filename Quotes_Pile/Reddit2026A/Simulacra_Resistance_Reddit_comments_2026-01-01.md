@@ -923,3 +923,46 @@ Simulation of resistance. Polling wish-list of We The People fandoms on Reddit! 
 
 * “In America, everyone is entitled to an opinion, and it is **certainly useful to have a few when a pollster shows up**. But these are opinions of a quite different order from eighteenth- or nineteenth-century opinions. It is probably more accurate to call them emotions rather than opinions, which would account for the fact that they change from week to week, as the pollsters tell us. What is happening here is that television is altering the meaning of 'being informed' by creating a species of information that might properly be called *disinformation*. I am using this world almost in the precise sense in which it is used by spies in the CIA or KGB. Disinformation does not mean false information. It means misleading information — misplaced, **irrelevant, fragmented or superficial information — information that creates the illusion of knowing something but which in fact leads one away from knowing. In saying this, I do not mean to imply that television news deliberately aims to deprive Americans of a coherent, contextual understanding of their world. I mean to say that when news is packaged as entertainment, that is the inevitable result**. And in saying that the television news show entertains but does not inform, I am saying something far more serious than that we are being deprived of authentic information. I am saying we are losing our sense of what it means to be well informed. Ignorance is always correctable. But what shall we do if we take ignorance to be knowledge?” — Neil Postman, [Amusing Ourselves to Death: Public Discourse in the Age of Show Business. Year 1985. Page 107.](https://books.google.com/books?id=oup6iagfox8C&pg=PA107&dq=we+are+losing+our+sense+of+what+it+means+to+be+well+informed+inauthor:postman&hl=en&newbks=1&newbks_redir=1&sa=X)
 
+https://old.reddit.com/r/AdviceAnimals/comments/1r2j49i/it_all_makes_sense_now/o4xyysl/
+
+5 month Reddit account.
+
+This simplistic logic doe snot explain the cult of Fox News HDTV. This simplistic logic does not explain why every Church in the USA worships such an obvious terrible man who goes against anything good in The Bible. Verse "1 John 3:17" should be coming from every Church regarding Elon Musk D.O.G.E. and Trump's behavior. In fact, a Church did famously confront Trump in January 2025 https://www.theguardian.com/us-news/2025/jan/23/mariann-edgar-budde-trump-sermon-defense
+
+This simplistic "Putin has video" thinking does not explain hundreds of millions of people in USA not going on social media and asking Trump to be removed because of GROCERY PRICES, Health Care prices, the feedback from Canada, the world news about Greenland, the ICE rains of neighbors. BUT ONE THING DOES explain it all: Cults. Cult behaviors. and Putin and Russia are masters of cults.
+
+Why is Reddit not doing a blackout that makes world news? Reddit has done blackouts  June 12, 2023 CANADA WORLD NEWS: https://globalnews.ca/news/9762114/reddit-blackout-what-to-know/ "Thousands of subreddits will “go dark” or private for 48 hours starting Monday in a protest against Reddit's new pricing policy." - **WHY HAS THERE NOT BEEN A REDDIT AND BLUESKY BLACKOUT TO REMOVE TRUMP!!!**.  If the price of Reddit API is such an issue, why isn't the price of groceries an issue for a Reddit BLACKOUT" The trade war price increases? BUT ONE THING DOES explain it all: Cults. Cult behaviors. and Putin and Russia are masters of cults.
+
+Social post { https://autistics.life/@RoundSparrow/116056934465818319 https://bsky.app/profile/roundsparrow.bsky.social/post/3menob6pldk2e }
+
+**AUSTRALIA WORLD NEWS, JUNE 13, 2023** Reddit Blackout makes WORLD NEWS COVERAGE ALL OVER. https://www.9news.com.au/technology/reddit-content-blackout-users-start-content-blackout-on-one-of-the-worlds-most-popular-websites/2816d537-a301-48ad-ae40-4bf2a2506529 "millions of people are asking on Reddit, as thousands of online communities "go dark," taking a stand"
+
+**ISLAMIC MUSLIM WORLD NEWS Al Jazeera January 18, 2012 — Wikipedia and Reddit go black to protest proposed US legislation** https://www.AlJazeera.com/features/2012/1/18/websites-blackout-over-sopa-censorship - BLACKOUT PROTESTS GET WORLD NEWS COVERAGE.
+
+WHY! Why when Canada was being openly attacked by the White House did Reddit and Bluesky not have a massive protest uprising that made world news coverage?   
+WHY! Why when Greenland was being openly attacked by the White House did Reddit and Bluesky not have a massive protest that was covered all over the world?  
+WHY! If USA people are so *against Trumpism and MAGA* - why are USA people not using their smartphones to protest in any form of organized way?   
+
+Reddit media center is a **cult of mocking** Trump, mocking MAGA cultists. Reddit is a hate-worship cult. Reddit community does not PROMOTE Dr. Bandy X Lee's nonfiction 27 contributors book from October 3, 2017. We The People, smartphone addicts, are in a cult addiction to hate leadership and hate mocking. Insulting and mocking Trump. **Messaging cult.** This total mockery has been going on for almost 11 full years - since June 16, 2015. Media addiction, high speed commenting addiction to tabloid news, rumor mills, REDDIT is the MAGA rumor mill. Addiction to rumors and dumb jokes are the only thing that explain why people have not used **social media blackouts to send S.O.S. to the world that the population is not in on** the Reality TV "The Apprentice" trash media addictions.
+
+The entire nation is a smartphone cult. MAGA values of Fox News, except Reddit is the Fox News. Twitter Musk is the Fox News. Apple iPhone / Apple iPad / Samsung Android - instead of classic Fox News Television. People are so addicted to Reality Memes and Trump Meme Shit. And people are so drunk on the nonstop talking and commenting about Donald Trump.
+
+Surkov won since March 2013. Putin does not have "sex tapes" on every rural farmer with a Trump yard sign. But Rupert Murdoch TV addiction programs those yard signs.
+
+* STUDY AND LEARNING THAT **REDDIT SOCIETY IS AVOIDING AND REJECTING**: Published **January 2015**, before Trump started run for office in June 2015: https://www.Politico.com/magazine/story/2015/01/putin-russia-tv-113960/ At one end of the table sat one of the country’s most famous political TV presenters. He was small and spoke fast, with a smoky voice: “We all know there will be **no real politics**,” he said. “But we still have to give our viewers the sense something is happening. They need to be kept entertained.” “So what should we play with?” he asked. “Shall we attack oligarchs? Who’s the enemy this week? **Politics has got to feel like a movie!**”
+
+
+https://old.reddit.com/r/politics/comments/1r2quul/pam_bondis_prepared_insult_flash_cards_exposed_by/o4ypl4f/
+
+1. It is all SCRIPTED.
+
+2. Insulting, mocking, mockery. Total mockery.
+
+3. Drama for Television and Reddit audiences
+
+4. Gullibility to Reality TV techniques
+
+5. Surkovian, Surkov students
+
+6. STUDY AND LEARNING THAT **REDDIT SOCIETY IS AVOIDING AND REJECTING**: Published **January 2015**, before Trump started run for office in June 2015: https://www.Politico.com/magazine/story/2015/01/putin-russia-tv-113960/ At one end of the table sat one of the country’s most famous political TV presenters. He was small and spoke fast, with a smoky voice: “We all know there will be **no real politics**,” he said. “But we still have to give our viewers the sense something is happening. They need to be kept entertained.” “So what should we play with?” he asked. “Shall we attack oligarchs? Who’s the enemy this week? **Politics has got to feel like a movie!**”
+

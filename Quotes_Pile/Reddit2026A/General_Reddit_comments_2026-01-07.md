@@ -1089,7 +1089,7 @@ https://old.reddit.com/r/news/comments/1q8hy0a/cell_phone_video_from_ice_officer
 
 https://old.reddit.com/r/news/comments/1q8hy0a/cell_phone_video_from_ice_officer_shows_fatal/nynlbsg/
 
-Video of fiction is all the time on Reddit, TV, Twitter, Facebook, Cinema. Fiction is very popular. Having something on recorded video or film doesn't make it realty. Addicts to fiction discard nonfiction serious books and content. Addiction rules, meme addicts want fiction.
+Video of fiction is all the time on Reddit, TV, Twitter, Facebook, Cinema. Fiction is very popular. Having something on recorded video or film doesn't make it reality. Addicts to fiction discard nonfiction serious books and content. Addiction rules, meme addicts want fiction.
 
 https://old.reddit.com/r/news/comments/1q8hy0a/cell_phone_video_from_ice_officer_shows_fatal/nynl9ys/
 

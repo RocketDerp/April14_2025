@@ -470,3 +470,49 @@ Short-length Twitter-think comment message. Downplaying how incredibly dangerous
 https://old.reddit.com/r/law/comments/1r244xl/pam_bondi_crashes_out_during_hearing_you_dont/o4u5zpf/
 
 Imagine being in the Reddit commenting crowd and making a low-effort imagination comment like this without ever pondering if Russian intelligence has blown-out the minds of your fellow Americans and you should be halting all your low-effort commenting and taking up intellectual defenses against the Kremlin. Imagine you witness people commenting every hour day and night about the White House with no concern that the commenting itself is "engagement addiction" to "antics politics". Never learning anything about serious and sophisticated Russian information warfare in favor of spending free time on Reddit making comments that play right into Putin's conditioned programming by the Saint Petersburg Internet Research Agency.
+
+https://old.reddit.com/r/PublicFreakout/comments/1r29j2d/has_this_woman_lost_her_mind_does_she_know_how/o4v9rlx/
+
+8 month Reddit account. Top upvoted popular comment. "Lost her mind", the whole fucking NATION has lost mind to Putin. Putin is alive and abusing both Russian and Ukraine children for sex and power in front of the whole world. The cult of celebrity television and celebrity film fiction is out of fucking control in USA. People can not turn to nonfiction serious learning and do a Reddit blackout / Bluesky blackout. People just keep yammering on and on in comments about Trump and are not demanding the REMOVAL of Trump and Dr. Bandy X Lee's mental health education and teaching for the whole fucking nation.
+
+https://old.reddit.com/r/clevercomebacks/comments/1r29x7k/whats_he_really_hunting_for/o4vhjg1/
+
+17 day Reddit account.
+
+No matter how absurd or surreal a White House and Kremlin idea is, Reddit users just eat it up as a discussion topic. Instead of shutting down Reddit in blackout, protesting, to remove Trump, the simulation of commenting about every plot twist and idea coming out is all people fucking car about. Commenting about the food as the nation burns to the ground. The addiction to high speed messaging eclipses all goodness.
+
+https://old.reddit.com/r/clevercomebacks/comments/1r29x7k/whats_he_really_hunting_for/o4vw6o1/
+
+It's just a simulation on Reddit of making simple points like this. As I have to do on GitHub to zero audience. The detachment from the real world is so extreme that people can not grasp what has happened. The attacking of Canada, being abusive to people for kindness, wasn't a "red flag" enough for Reddit audiences to maybe say the ENTIRE ROOM, the entire NATION is compromised, and that maybe just maybe gaslighting actually WORKS. Not just saying "gas lighting", but that the manipulation is not just one person fucking with a partner in a house - but an organized crime technique with all the most powerful media players in on it! Facebook, Reddit, Twitter, on and on. 
+
+There isn't anyone calling for reality. Just compulsive mocking back and forth in feedback loops. People have never found it more easy to declare how dumb the White House has become. And people have never been more engaged in low-effort reactions.
+
+https://old.reddit.com/r/clevercomebacks/comments/1r29x7k/whats_he_really_hunting_for/o4ve95u/
+
+"LMFAO". Trump fandom amused and thrilled to have this content.
+
+https://old.reddit.com/r/circled/comments/1r289nn/raskin_slams_bondi_youre_running_a_massive/o4uzgtm/
+
+2 day Reddit account, front page popular posting.
+
+There never seems to be a point where people see enough examples of cover-up, badness, intentional harm to people. The cult behaviors and mental health issues that Dr. Bandy X Lee has documented never seem to attract Reddit fandom to always wanting *more content* from Trump society.
+
+https://old.reddit.com/r/AdviceAnimals/comments/1r2j49i/it_all_makes_sense_now/o4xhew0/
+
+https://old.reddit.com/r/AdviceAnimals/comments/1r2j49i/it_all_makes_sense_now/o4xrok8/
+
+https://old.reddit.com/r/AdviceAnimals/comments/1r2j49i/it_all_makes_sense_now/o4xptqu/
+
+https://old.reddit.com/r/AdviceAnimals/comments/1r2j49i/it_all_makes_sense_now/o4xozy9/
+
+Reddit is so engrossed in this that there is no sense that on the world stage this is the entire Unite States of America. The bullshit that "our government does not represent We The People" that people play will not fly with a nation that has school shootings and worships Superman and Batman fantasy. The praise of all-powerful men / daddy issues / Daddy Trump male authority figures is what is fed to children by adult parents. 
+
+https://old.reddit.com/r/Fauxmoi/comments/1r2hq5l/trump_allegedly_bragged_to_friends_about_affair/o4xa0ph/
+
+5 month Reddit account.
+
+Why are Reddit comment creators not quoting intelligent Dr. Bandy X Lee's 27 contributors about Trump's mental health published October 3, 2017...
+
+https://old.reddit.com/r/Fauxmoi/comments/1r2hq5l/trump_allegedly_bragged_to_friends_about_affair/o4x71mv/
+
+Reddit is a cult of hate-watchers. https://en.wikipedia.org/wiki/Hate-watching Reddit comments from hate-watching fandom of Trump. Horror film, horror media fandom. Attracted to horror content and imagining the horror happening to their own self. Reality TV "The Apprentice" but horror content / abuse content pornography. 
