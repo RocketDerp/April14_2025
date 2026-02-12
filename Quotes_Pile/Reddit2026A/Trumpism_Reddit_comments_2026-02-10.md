@@ -653,3 +653,15 @@ Minds on Reddit programmed to follow White House media messages. Satire-wash sar
 https://old.reddit.com/r/clevercomebacks/comments/1r348xk/why_cause_the_dow_is_50k/o51y386/
 
 Reddit fandom. TRUMP_FANDOM South Park fandom of Satan White House fiction. Trump fiction fandoms. So much content created by Trumpsim for Reddit fandoms.
+
+https://old.reddit.com/r/interestingasfuck/comments/1r34m08/skynet_bot_rips_apart_a_truck_on_a_texas_highway/o526zv1/
+
+https://old.reddit.com/r/interestingasfuck/comments/1r34m08/skynet_bot_rips_apart_a_truck_on_a_texas_highway/o51pmml/
+
+https://old.reddit.com/r/PublicFreakout/comments/1r34mq0/rfk_jr_im_not_scared_of_a_germ_i_used_to_snort/o51n5i7/
+
+https://old.reddit.com/r/PublicFreakout/comments/1r34mq0/rfk_jr_im_not_scared_of_a_germ_i_used_to_snort/o51p483/
+
+https://old.reddit.com/r/news/comments/1r320vr/epa_reverses_longstanding_climate_change_finding/o5130ud/
+
+8 month Reddit account. Most popular upvoted comment.
