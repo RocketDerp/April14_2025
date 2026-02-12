@@ -603,3 +603,8 @@ https://old.reddit.com/r/politics/comments/1r31glr/pam_bondi_faces_impeachment_c
 https://old.reddit.com/r/politics/comments/1r31glr/pam_bondi_faces_impeachment_calls_after_combative/o517frs/
 
 REDDIT_BLACKOUT why are Reddit users not organizing a sustained blackout protest? Why are Reddit commenting community not quoting nonfiction books from Dr. Bandy X Lee about the mental health of the cults? Instead, just commenting as if We The People of the world shouldn't be doing cult deprogramming and education! Why is REDDIT and BLUESKY not protesting?
+
+https://old.reddit.com/r/Fauxmoi/comments/1r2ydu4/jimmy_kimmel_on_pam_bondi_its_like_speaking_to_a/o50bww3/
+
+6 month Reddit account. Most popular upvoted comment. Comedy fun for fandoms of Trump White House Staff. CONTEXT FANDOM ASSERTION AND REMINDER: "Trump has appeared on Jimmy Kimmel Live three times" https://www.rollingstone.com/tv-movies/tv-movie-news/jimmy-kimmel-donald-trump-late-night-claims-1235134928/
+
