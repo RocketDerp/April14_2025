@@ -65,3 +65,7 @@ No matter how much billionaires don't want us to call out the NFL Seattle Seahaw
 Swimming in an ocean of sports-think competitive hate and competing for dehumanization of out-groups is never enjoyable or fun. The emotions people feel are all gross misunderstandings. Authentic joy and authentic fun and authentic happiness are only in recognition of Wiki and FAQ and how English language itself is formed not as laws to discard and reject human persons for their syntax and spelling errors...
 
 * "Whatever affects one directly, affects all indirectly. For **some strange reason** I can never be what I ought to be until you are what you ought to be. And you can never be what you ought to be until I am what I ought to be — this is the **interrelated structure of reality**."
+
+https://old.reddit.com/r/UnderReportedNews/comments/1r2m2ms/special_needs_woman_punished_for_someone_elses/o4xvvnl/
+
+* "There are certain things in our nation and in the world which I am proud to be maladjusted and which I hope all men of good-will will be maladjusted until the good societies realize — I say very honestly that I never intend to become adjusted to — segregation and discrimination. I never intend to become adjusted to religious bigotry. I never intend to adjust myself **to economic conditions that will take necessities from the many** to give luxuries to the few. I never intend to adjust myself to the madness of militarism, to self-defeating effects of physical violence."
