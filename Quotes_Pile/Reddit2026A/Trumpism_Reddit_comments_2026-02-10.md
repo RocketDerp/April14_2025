@@ -491,6 +491,8 @@ https://old.reddit.com/r/clevercomebacks/comments/1r29x7k/whats_he_really_huntin
 
 "LMFAO". Trump fandom amused and thrilled to have this content.
 
+https://old.reddit.com/r/circled/comments/1r289nn/raskin_slams_bondi_youre_running_a_massive/o4uzgtm/
 
+2 day Reddit account, front page popular posting.
 
-
+There never seems to be a point where people see enough examples of cover-up, badness, intentional harm to people. The cult behaviors and mental health issues that Dr. Bandy X Lee has documented never seem to attract Reddit fandom to always wanting *more content* from Trump society.
