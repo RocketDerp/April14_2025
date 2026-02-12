@@ -586,4 +586,16 @@ https://old.reddit.com/r/circled/comments/1r2v5ub/americas_top_cop_cant_even_loo
 
 15 day Reddit account mocking away with Twitter-length shit-commenting shit-posting MAGA-think values of Elon Musk Tweet-thinking systems. Out-group hate programming for Reddit audiences. Reddit mind-fucking. Instead of REMOVING Trump from office by quoting and repeating Dr. Bandy X. Lee's nonfiction book from October 3, 2017 - stick inside Reddit making lazy low-effort comments about how We The People parrot billionaire talking points about oil and gasoline prices. Reddit fandoms to the White House eat this shit up as "engagement" commenting. Cult of crap media commenting is Reddit.
 
+https://old.reddit.com/r/politics/comments/1r31glr/pam_bondi_faces_impeachment_calls_after_combative/o50yd7k/
 
+4 month Reddit account. Top-upvoted popular comment. "insane"
+
+https://old.reddit.com/r/politics/comments/1r31glr/pam_bondi_faces_impeachment_calls_after_combative/o50zcka/
+
+https://old.reddit.com/r/politics/comments/1r31glr/pam_bondi_faces_impeachment_calls_after_combative/o50yvre/
+
+The entire cult of Reddit to "the administration" needs cult deprogramming. Media cultists are the entire population of USA now in February 2026. It may have started with Twitter and Trump cultists July 6, 2011 https://theOutline.com/post/2445/trump-s-first-real-tweet-was-on-july-6-2011 but it has grown since January 2024 to be EVERYONE in cults of hate. Deepest faith in mocking. Deepest faith in total mockery back and forth MAGA to anti-MAGA, MAGA to Canada, etc. Reddit and Bluesky are cults of MAGA mocking, ICE insulting, hate messaging. Hate corrupts perspective of the forest for the trees, people are comparatively focused on the out-group. Surkov won.
+
+* "For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the **true becomes false and the false becomes true**. That's what hate does. You can't see right. **The symbol of objectivity** is lost." - Martin Luther King Jr.
+
+https://old.reddit.com/r/politics/comments/1r31glr/pam_bondi_faces_impeachment_calls_after_combative/o510f82/
