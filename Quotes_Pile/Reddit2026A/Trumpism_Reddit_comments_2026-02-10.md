@@ -644,4 +644,5 @@ https://old.reddit.com/r/BikiniBottomTwitter/comments/1r32d94/wont_somebody_thin
 
 https://old.reddit.com/r/BikiniBottomTwitter/comments/1r32d94/wont_somebody_think_of_the_dow/o5227w1/
 
-Sponge Bob front page posting context. No off-Reddit URL. No author names. No quotes from nonfiction sources. No book titles, etc.
+Sponge Bob front page posting context. No off-Reddit URL. No author names. No quotes from nonfiction sources. No book titles, etc. Reddit fandom of Bikini Bottom is the same fandom as Trump Reality TV shows.. fiction vs. fiction. Avoidant of citing factual nonfiction and asserting leaders of nonfiction.
+
