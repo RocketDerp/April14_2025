@@ -496,3 +496,13 @@ https://old.reddit.com/r/circled/comments/1r289nn/raskin_slams_bondi_youre_runni
 2 day Reddit account, front page popular posting.
 
 There never seems to be a point where people see enough examples of cover-up, badness, intentional harm to people. The cult behaviors and mental health issues that Dr. Bandy X Lee has documented never seem to attract Reddit fandom to always wanting *more content* from Trump society.
+
+https://old.reddit.com/r/AdviceAnimals/comments/1r2j49i/it_all_makes_sense_now/o4xhew0/
+
+https://old.reddit.com/r/AdviceAnimals/comments/1r2j49i/it_all_makes_sense_now/o4xrok8/
+
+https://old.reddit.com/r/AdviceAnimals/comments/1r2j49i/it_all_makes_sense_now/o4xptqu/
+
+https://old.reddit.com/r/AdviceAnimals/comments/1r2j49i/it_all_makes_sense_now/o4xozy9/
+
+Reddit is so engrossed in this that there is no sense that on the world stage this is the entire Unite States of America. The bullshit that "our government does not represent We The People" that people play will not fly with a nation that has school shootings and worships Superman and Batman fantasy. The praise of all-powerful men / daddy issues / Daddy Trump male authority figures is what is fed to children by adult parents. 
