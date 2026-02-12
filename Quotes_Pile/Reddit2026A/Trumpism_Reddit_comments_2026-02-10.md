@@ -516,3 +516,9 @@ Why are Reddit comment creators not quoting intelligent Dr. Bandy X Lee's 27 con
 https://old.reddit.com/r/Fauxmoi/comments/1r2hq5l/trump_allegedly_bragged_to_friends_about_affair/o4x71mv/
 
 Reddit is a cult of hate-watchers. https://en.wikipedia.org/wiki/Hate-watching Reddit comments from hate-watching fandom of Trump. Horror film, horror media fandom. Attracted to horror content and imagining the horror happening to their own self. Reality TV "The Apprentice" but horror content / abuse content pornography. 
+
+https://old.reddit.com/r/politics/comments/1r2uqql/dr_oz_becomes_the_latest_trump_official_in_the/o4zj6y0/
+
+Neil Postman was correct in his 1985 nonfiction book 'Amusing'. Top-voted popular comment "hilarious".
+
+Reddit meme addicts are protecting their main source of amusement and comedy. This isn't a 79 year old senile dementia man on the front page of Reddit in this posting. But people on Reddit can not stop their compulsive commenting... and use the power of Reddit to do a massive REDDIT_BLACKOUT BLUESKY_BACKOUT and promote Dr. Bandy X Lee's 27 contributors from an October 3, 2017 nonfiction book.
