@@ -578,3 +578,6 @@ https://old.reddit.com/r/circled/comments/1r2v5ub/americas_top_cop_cant_even_loo
 
 But the 3-word parroting. But the mocking and back-mocking. But the feedback looping of total mockery since March 2013 that Saint Petersburg IRA seeded on Reddit! But the DOW symbolism manipulation in Reddit audience minds and Fox News HDTV audience minds. The symbolism cults that nobody wants to address with Dr. Bandy X Lee's nonfiction book from October 3, 2017 ... which has 27 contributors!
 
+https://old.reddit.com/r/circled/comments/1r2v5ub/americas_top_cop_cant_even_look_at_j_es_survivors/o4zndbu/
+
+But she has hundreds of millions of fandoms. An empowered performer doing Tony Clifton acting for Reddit fandoms of hate-watching. She stimulates the audience to mock an mock and avoid nonfiction learning. She is part of the leaders of hate-worship that Reddit hate-fandom follows. ANYTHING but see We The People of Reddit as a cult of hate-watching MAGA Trump Epstein. https://en.wikipedia.org/wiki/Hate-watching
