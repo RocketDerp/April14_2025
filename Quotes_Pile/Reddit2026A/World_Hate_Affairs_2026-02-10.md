@@ -69,3 +69,18 @@ Swimming in an ocean of sports-think competitive hate and competing for dehumani
 https://old.reddit.com/r/UnderReportedNews/comments/1r2m2ms/special_needs_woman_punished_for_someone_elses/o4xvvnl/
 
 * "There are certain things in our nation and in the world which I am proud to be maladjusted and which I hope all men of good-will will be maladjusted until the good societies realize — I say very honestly that I never intend to become adjusted to — segregation and discrimination. I never intend to become adjusted to religious bigotry. I never intend to adjust myself **to economic conditions that will take necessities from the many** to give luxuries to the few. I never intend to adjust myself to the madness of militarism, to self-defeating effects of physical violence."
+
+
+https://old.reddit.com/r/therewasanattempt/comments/1r2u9s7/to_scare_people_into_not_pursuing_the_release_of/o4zenmw/
+
+"It's weird how much importance yanks give to individuals rather than positions."
+
+<img width="1087" height="1343" alt="image" src="https://github.com/user-attachments/assets/7aa7348d-c909-4125-aefd-ebd7730d5093" />
+
+Because hyper-competitive brain-damage NFL American football is the ultimate masculine leadership to follow. To be Paul Allen and owning Seahawks https://www.latimes.com/archives/la-xpm-1996-04-21-sp-61129-story.html and winning the 2026 Super Bowl. Smashing skulls and rich wealthy single men (Allen was single and highly competitive) controlling other men to smash tier heads. I was there, in Bellevue HQ, 10 doors down from Paul Allen and Vern Raburn in 1996 https://www.latimes.com/archives/la-xpm-1995-05-07-tm-63445-story.html
+
+Cults of **sports-think fandoms**. Rectangle fields of **square-wave thinking** (inside the rectangle thinking, boxed thinking) block-head mind programming that Vern Raburn was hired in 1995.. shortly before my working with the Thanksgiving 1996. **"Old blockhead certainly was gullible."** https://www.cracked.com/article_37831_good-grief-how-lucy-pulling-the-football-away-from-charlie-brown-became-a-signature-peanuts-gag.html
+
+* "Started with $100 million in seed money from Microsoft co-founder and philanthropist Paul Allen in 2003" https://en.wikipedia.org/wiki/Allen_Institute_for_Brain_Science
+
+* Following Paul Allen's Microsoft year 2003 leadership. "Neuralink Corp. is an American neurotechnology company that has developed as of 2024 implantable brain–computer interfaces (BCIs). It was founded by Elon Musk"; "Neuralink was founded in 2016 by Elon Musk" - https://en.wikipedia.org/wiki/Neuralink
