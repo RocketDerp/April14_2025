@@ -571,3 +571,5 @@ Simple-think. NATO has been entirely re-arranged by Putin and Trump. The USA is 
 https://old.reddit.com/r/reactiongifs/comments/1r30pl0/mrw_i_learn_that_pam_bondi_was_the_florida/o50u4zt/
 
 4 month Reddit account. Joined in Putin's birthday (not that this fact has deep meaning).
+
+https://old.reddit.com/r/reactiongifs/comments/1r30pl0/mrw_i_learn_that_pam_bondi_was_the_florida/o51445a/
