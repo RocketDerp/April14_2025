@@ -275,3 +275,9 @@ Neil Postman was correct in year 1985 nonfiction book.
 https://old.reddit.com/r/PeterExplainsTheJoke/comments/1r2iaw3/peta_are_you_a_nurse/o4xebz5/
 
 Fiction vs. nonfiction information tagging.
+
+https://old.reddit.com/r/Animemes/comments/1r2pb2v/bro_got_zero_rizz_unlike_himmel/o4yh4a6/
+
+CHOICE_MARRIAGE_HONESTY 
+
+Social post { https://autistics.life/@RoundSparrow/116058384697057295 https://bsky.app/profile/roundsparrow.bsky.social/post/3meocwoxoe22z }
