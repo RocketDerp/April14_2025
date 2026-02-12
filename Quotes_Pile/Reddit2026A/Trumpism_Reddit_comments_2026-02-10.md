@@ -608,3 +608,10 @@ https://old.reddit.com/r/Fauxmoi/comments/1r2ydu4/jimmy_kimmel_on_pam_bondi_its_
 
 6 month Reddit account. Most popular upvoted comment. Comedy fun for fandoms of Trump White House Staff. CONTEXT FANDOM ASSERTION AND REMINDER: "Trump has appeared on Jimmy Kimmel Live three times" https://www.rollingstone.com/tv-movies/tv-movie-news/jimmy-kimmel-donald-trump-late-night-claims-1235134928/
 
+https://old.reddit.com/r/AdviceAnimals/comments/1r31611/wheres_their_outrage_now/o50x5a1/
+
+10 month Reddit account.
+
+1. Downplaying QAnon pushed by Russia, no mention: https://www.independent.co.uk/news/world/americas/us-election-2020/qanon-russia-conspiracy-theory-trump-2020-election-b1536946.html ( a NON USA news source, not domestic news, world news incoming )
+
+2. I personally created /r/QAnon subreddit to educate the community and educate Google search engines: https://old.reddit.com/r/QAnonRussia July 28, 2021 when it was becoming more and more clear that January 6, 2021 wasn't being taken serious (concerning the IRA, Putin, Russia) by the Trump mocking Trump hate fandoms on Reddit.
