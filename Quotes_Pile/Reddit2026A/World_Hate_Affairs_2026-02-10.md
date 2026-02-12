@@ -77,10 +77,12 @@ https://old.reddit.com/r/therewasanattempt/comments/1r2u9s7/to_scare_people_into
 
 <img width="1087" height="1343" alt="image" src="https://github.com/user-attachments/assets/7aa7348d-c909-4125-aefd-ebd7730d5093" />
 
-Because hyper-competitive brain-damage NFL American football is the ultimate masculine leadership to follow. To be Paul Allen and owning Seahawks https://www.latimes.com/archives/la-xpm-1996-04-21-sp-61129-story.html and winning the 2026 Super Bowl. Smashing skulls and rich wealthy single men (Allen was single and highly competitive) controlling other men to smash tier heads. I was there, in Bellevue HQ, 10 doors down from Paul Allen and Vern Raburn in 1996 https://www.latimes.com/archives/la-xpm-1995-05-07-tm-63445-story.html
+Because hyper-competitive brain-damage NFL American football is the ultimate masculine leadership to follow. To be Paul Allen and owning Seahawks https://www.LAtimes.com/archives/la-xpm-1996-04-21-sp-61129-story.html and winning the 2026 Super Bowl. Smashing skulls and rich wealthy single men (Allen was single and highly competitive) controlling other men to smash tier heads. I was there, in Bellevue HQ, 10 doors down from Paul Allen and Vern Raburn in 1996 https://www.LAtimes.com/archives/la-xpm-1995-05-07-tm-63445-story.html
 
-Cults of **sports-think fandoms**. Rectangle fields of **square-wave thinking** (inside the rectangle thinking, boxed thinking) block-head mind programming that Vern Raburn was hired in 1995.. shortly before my working with the Thanksgiving 1996. **"Old blockhead certainly was gullible."** https://www.cracked.com/article_37831_good-grief-how-lucy-pulling-the-football-away-from-charlie-brown-became-a-signature-peanuts-gag.html
+Cults of **sports-think fandoms**. Rectangle fields of **square-wave thinking** (inside the rectangle thinking, boxed thinking) block-head mind programming that Vern Raburn was hired in 1995.. shortly before my working with the Thanksgiving 1996. **"Old blockhead certainly was gullible."** https://www.Cracked.com/article_37831_good-grief-how-lucy-pulling-the-football-away-from-charlie-brown-became-a-signature-peanuts-gag.html
 
-* "Started with $100 million in seed money from Microsoft co-founder and philanthropist Paul Allen in 2003" https://en.wikipedia.org/wiki/Allen_Institute_for_Brain_Science
+* "Started with $100 million in seed money from Microsoft co-founder and philanthropist Paul Allen in 2003" https://en.Wikipedia.org/wiki/Allen_Institute_for_Brain_Science
 
-* Following Paul Allen's Microsoft year 2003 leadership. "Neuralink Corp. is an American neurotechnology company that has developed as of 2024 implantable brain–computer interfaces (BCIs). It was founded by Elon Musk"; "Neuralink was founded in 2016 by Elon Musk" - https://en.wikipedia.org/wiki/Neuralink
+* Following Paul Allen's Microsoft year 2003 leadership. "Neuralink Corp. is an American neurotechnology company that has developed as of 2024 implantable brain–computer interfaces (BCIs). It was founded by Elon Musk"; "Neuralink was founded in 2016 by Elon Musk" - https://en.Wikipedia.org/wiki/Neuralink
+
+Social post { https://autistics.life/@RoundSparrow/116059213884076370 https://bsky.app/profile/roundsparrow.bsky.social/post/3meoontp42k2m }
