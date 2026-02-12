@@ -522,3 +522,8 @@ https://old.reddit.com/r/politics/comments/1r2uqql/dr_oz_becomes_the_latest_trum
 Neil Postman was correct in his 1985 nonfiction book 'Amusing'. Top-voted popular comment "hilarious".
 
 Reddit meme addicts are protecting their main source of amusement and comedy. This isn't a 79 year old senile dementia man on the front page of Reddit in this posting. But people on Reddit can not stop their compulsive commenting... and use the power of Reddit to do a massive REDDIT_BLACKOUT BLUESKY_BACKOUT and promote Dr. Bandy X Lee's 27 contributors from an October 3, 2017 nonfiction book.
+
+https://old.reddit.com/r/politics/comments/1r2uqql/dr_oz_becomes_the_latest_trump_official_in_the/o4zi8f5/
+
+Reddit audience with Twitter-length short-message thinking patterns. Fandom of Trump. Fandom of calling humans 'motherfucker' as a form of audience hate-watching https://en.wikipedia.org/wiki/Hate-watching a reality TV celebrity (Donald Trump playing character Tony Clifton SNL NYC home town performance character). Reddit audience thinks that sex acts of Epstein is the ONLY evil. The health care system is killing women, the abortion laws are killing and enslaving women, all kinds of billionaire worship deeds. Reddit is a playground of no-identity people who are manipulated and fucked up. FUBAR Reddit hive mind that will not turn to Dr. Bandy X Lee's leadership and start HEALING and FIXING the widespread Twiter-logic thinking that Trump has used to manipulate the world.
+
