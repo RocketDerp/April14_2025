@@ -646,3 +646,7 @@ https://old.reddit.com/r/BikiniBottomTwitter/comments/1r32d94/wont_somebody_thin
 
 Sponge Bob front page posting context. No off-Reddit URL. No author names. No quotes from nonfiction sources. No book titles, etc. Reddit fandom of Bikini Bottom is the same fandom as Trump Reality TV shows.. fiction vs. fiction. Avoidant of citing factual nonfiction and asserting leaders of nonfiction.
 
+https://old.reddit.com/r/clevercomebacks/comments/1r348xk/why_cause_the_dow_is_50k/o51ks4k/
+
+Minds on Reddit programmed to follow White House media messages. Satire-wash sarcasm-washing it all as entertainment. Instead of calling for an END to the Reality TV governing / Reality White House fiction bullshit, people are hyper normalizing it with Reddit joking. Fandom adopting... following the leadership signals.
+
