@@ -271,3 +271,7 @@ nonfiction, did not read
 not entertaining and amusing, not meme Tweet-joke washing of Trump, did not read   
 serious learning, did not read   
 Neil Postman was correct in year 1985 nonfiction book.   
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1r2iaw3/peta_are_you_a_nurse/o4xebz5/
+
+Fiction vs. nonfiction information tagging.
