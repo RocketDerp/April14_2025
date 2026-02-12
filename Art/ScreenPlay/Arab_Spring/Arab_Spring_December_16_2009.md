@@ -49,13 +49,21 @@ I'm listening"; "cutting your teeth
 Supposedly composing your masterpiece
 If you give good copy then I'll cut you some slack
 But you better remember when it all comes back
-And you're lying on the corner of Merchant's Quay
-Telling the world how it's meant to be
+And you're lying on the **corner of [Merchant's Quay](https://en.wikipedia.org/wiki/Church_of_the_Immaculate_Conception,_Dublin)**
+telling the world how it's *meant to be*!
 Well, I'll pick you up and I'll take you on"; "I can tell by your tone that you're starting to lag
 Am I such a bore? Am I such a drag?
 I could rip you to shreds, but I'm much too nice!
-So while you're here take my advice:
+So while you're here **take my advice**:
 Don't let the truth get in the way
 A story's a story and anyway...
 Your foot's in the door, so give me some...
 You parasite..." 7,485 views  May 4, 2024 (Star Wars Day, May the Force Be With You, Finnegans Wake Publication Day)
+
+OPERA_A STARTING_TO_LAG SUCH_A_BORE STORY_IS_A_STORY https://www.youtube.com/watch?v=PaF3d9SUapQ 2,662 views June 25, 2020 Lyrics: "Life became the Paradox, the Bear, the [Rouge et Noir](https://en.wikipedia.org/wiki/Rouge_et_Noir)" ... "Pages we were years from learning... Straight into the night our hearts were flung! **Better bring your own redemption** when you come to the barricades of Heaven where I'm from"... "Among those there to test their fortunes and their wills. **I lost track of the score** long ago.."... "Pages **torn and pages burning... Faded pages**, open in the sun. Better bring **your own** redemption when you come.. to the barricades of Heaven where I'm from"
+
+* "They’ve moved out of the society that would have protected them, and into the dark forest, **into the world of fire**, of original experience. Original experience has not been interpreted for you, and so you’ve got to work out your life for yourself. Either you can take it or you can’t. You don’t have to go far off the interpreted path to find yourself in very difficult situations. The courage to face the trials and to bring a whole new body of possibilities into the field of interpreted experience for other people to experience — that is the hero’s deed." - Published Year 1988
+
+... "pages torn and pages burning, faded pages" ... OPERA_A STARTING_TO_LAG https://www.youtube.com/watch?v=QzB0O8jBmbA 1,722 views December 14, 2018 - I was on social media radio at age 13... "When I was **sixteen and on my own**. No, **I couldn't tell you what the hell those brakes were for**... I was just trying to hear my song..." ... [POTS phreaking long-distance](https://www.atlasobscura.com/articles/capn-crunch-whistle) all over the globe from 219 area code. Pages of screens and screens of pages turning. years form learning. Straight into all night dial-up sessions at age 15... "All the world was shining from those hills... The stars above and the lights below.." the modem lights. 
+
+Welcome to the Internet, ladies, year 2007. John One One Bible verse is here. what languages of the Tower of Babel do you seek? Barricades of Bible verse John One One.
