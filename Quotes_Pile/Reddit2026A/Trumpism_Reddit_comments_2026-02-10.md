@@ -650,3 +650,6 @@ https://old.reddit.com/r/clevercomebacks/comments/1r348xk/why_cause_the_dow_is_5
 
 Minds on Reddit programmed to follow White House media messages. Satire-wash sarcasm-washing it all as entertainment. Instead of calling for an END to the Reality TV governing / Reality White House fiction bullshit, people are hyper normalizing it with Reddit joking. Fandom adopting... following the leadership signals.
 
+https://old.reddit.com/r/clevercomebacks/comments/1r348xk/why_cause_the_dow_is_50k/o51y386/
+
+Reddit fandom. TRUMP_FANDOM South Park fandom of Satan White House fiction. Trump fiction fandoms. So much content created by Trumpsim for Reddit fandoms.
