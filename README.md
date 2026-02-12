@@ -59,5 +59,5 @@ https://YouTu.be/bYbQXiEmevw?t=167 into song 107 seconds. "Pictures came and *br
 
 We Can't Rewind. Unified Theory of Fiction and NonFiction.   
 We Can't Rewind. John 1:1 abounds Encrypted with Romans 11:32 ++   
-We Can't Rewind. Encrypted with Romans 11:33   
+[We Can't Rewind](https://www.youtube.com/watch?v=pVqnL0nkfPY). Encrypted with Romans 11:33   
 
