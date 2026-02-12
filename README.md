@@ -54,7 +54,10 @@ https://YouTu.be/bYbQXiEmevw?t=167 into song 107 seconds. "Pictures came and *br
 
 &nbsp;
 
-* “For instance, on the planet Earth, man had **always** assumed that he was more intelligent than dolphins because he had achieved so much — the wheel, New York, **wars and so on** — whilst all the dolphins had ever done was muck about in the water having a good time. But conversely, the dolphins had always believed that they were far more intelligent than man — for precisely the same reasons.” ― Douglas Adams, The Hitchhiker’s Guide to the Galaxy.
-* * "Now, the **biblical tradition** is a socially oriented mythology. Nature is condemned. In the nineteenth century, scholars thought of mythology and ritual as an attempt to control nature. But that is magic, not mythology or religion. Nature religions are not attempts to control nature but to help you put yourself in accord with it. But when nature is thought of as evil, you don’t put yourself in accord with it, you control it, or try to, and **hence the tension, the anxiety, the cutting down of forests, the annihilation of native people**. And the accent here separates us from nature." - Age 87. Published year 1988
+* “For instance, on the planet Earth, man had **always** assumed that he was more intelligent than dolphins because he had achieved so much — the wheel, New York, **wars and so on** — whilst all the dolphins had ever done was muck about in the water having a good time. But conversely, the dolphins had always believed that they were far more intelligent than man — for precisely the same reasons.” ― Douglas Adams, The Hitchhiker’s Guide to the Galaxy. Fiction.
+* * "Now, the **biblical tradition** is a socially oriented mythology. Nature is condemned. In the nineteenth century, scholars thought of mythology and ritual as an attempt to control nature. But that is magic, not mythology or religion. Nature religions are not attempts to control nature but to help you put yourself in accord with it. But when nature is thought of as evil, you don’t put yourself in accord with it, you control it, or try to, and **hence the tension, the anxiety, the cutting down of forests, the annihilation of native people**. And the accent here separates us from nature." - Age 87. Published year 1988. Nonfiction.
 
-We Can't Rewind.  
+We Can't Rewind. Unified Theory of Fiction and NonFiction.   
+We Can't Rewind. John 1:1 abounds Encrypted with Romans 11:32 ++   
+We Can't Rewind. Encrypted with Romans 11:33   
+
