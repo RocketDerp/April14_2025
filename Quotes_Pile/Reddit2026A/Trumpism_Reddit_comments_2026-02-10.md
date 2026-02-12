@@ -668,4 +668,4 @@ https://old.reddit.com/r/news/comments/1r320vr/epa_reverses_longstanding_climate
 
 https://old.reddit.com/r/news/comments/1r320vr/epa_reverses_longstanding_climate_change_finding/o512erf/
 
-Where USA Government goes, Reddit fandom follows. The more stupid, the more the fandom avoids nonfiction on Reddit.
+Where USA Government goes, Reddit fandom follows. The more stupid the federal government leads, the more the fandom avoids nonfiction on Reddit.
