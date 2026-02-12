@@ -45,3 +45,7 @@ Corporate America teaching more hate. HATE_BASED_ECONOMY is Trumpism USA. Hate o
 People do not grasp why Trump is in charge for so many years, since June 16, 2015 Trump has universal support in USA for values of hate-promoting and hate-teaching. People who hate Trump are supporters of hate! It never was funny, and no amount of joking will undo the Rupert Murdoch society values, Elon Musk society values, Donald Trump outcomes. Too much joking away as abuse that is called "love MAGA" is exactly the celebration of inequality.
 
 Social post { https://autistics.life/@RoundSparrow/116054251520445476 https://bsky.app/profile/roundsparrow.bsky.social/post/3memi6hxkn22e }
+
+https://old.reddit.com/r/unitedkingdom/comments/1r2ndrp/uk_to_ban_political_party_donations_from/o4y3pu1/
+
+We The People need to focus on how campaigns are run. Demand full disclosure of how money is spent. How advertising and marketing and sign influence minds.
