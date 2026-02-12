@@ -557,3 +557,11 @@ My father went to Ohio State. He was a powerful popular executive for powerful c
 What the fuck did people think Malala was getting a bullet in the head for giving a voice to young girls? Why the fuck do Reddit users only "wake up" and "stand up" for billionaires with private jets and private islands!!! Epstein bullshit ultra-rich, what do you think PUTIN is doing to Ukraine since year 2013!
 
 Social post { https://autistics.life/@RoundSparrow/116058964965813707 https://bsky.app/profile/roundsparrow.bsky.social/post/3meol5qlc3s22 }
+
+https://old.reddit.com/r/pics/comments/1r2z07v/border_czar_tom_homan_announcing_today_that_ice/o50hbkp/
+
+8 month Reddit account. Top upvoted popular comment.
+
+https://old.reddit.com/r/pics/comments/1r2z07v/border_czar_tom_homan_announcing_today_that_ice/o50hpuj/
+
+Simple-think. NATO has been entirely re-arranged by Putin and Trump.
