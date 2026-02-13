@@ -689,3 +689,10 @@ Social media sports-think society loves to deport people with ICE, block people 
 https://old.reddit.com/r/LeopardsAteMyFace/comments/1r39im7/bondi_threatening_rightwing_influencers_if_they/o52qms5/
 
 No, they do not act like children. They command powerful systems and use decades of experience as adults to manipulate other adults. They behave like USA adults who have been mentally manipulated by Putin's Internet Research Agency in Saint Petersburg since March 2013... and whatever new organization names and techniques that copycats and Russia have devised in year 2026. Reddit audiences keep downplaying the threat as mere "children" when NATO has lost an adult information war using the most sophisticated monomyth techniques of the Levant (adapted to modern Internet medium).
+
+https://old.reddit.com/r/UnderReportedNews/comments/1r39p7s/conservative_influencer_erika_kirk_faces_grooming/o52rkc2/
+
+2 month Reddit account. Top upvoted comment, most popular.
+
+Kirk family media empire has a massive hate-watch fandom on Reddit. As soon as a Kirk family topic is posted, it races to the front page /r/All of Reddit.
+
