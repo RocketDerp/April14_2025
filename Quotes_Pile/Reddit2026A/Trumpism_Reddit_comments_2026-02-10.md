@@ -760,3 +760,8 @@ https://old.reddit.com/r/nextfuckinglevel/comments/1r3d2so/someone_found_a_way_t
 
 The reply about "downfall" from incompetence can not grasp Surkovian information warfare and how cults of entertainment and cults of Fox News and cults of Bible work. The bible is science **fiction**. Cult storytelling of magical powers. God scan do *anything*, kill, burn forests down, earthquakes. When you get a population of people treating it as fiction content to amuse over, mythological thinking, magical thinking, cult thinking, ANYTHING GOES. Study L. Run Hubbard, people!
 
+https://old.reddit.com/r/law/comments/1r3bjy5/secret_jared_kushner_gossip_rocks_trumps_inner/o53k7ee/
+
+https://old.reddit.com/r/law/comments/1r3bjy5/secret_jared_kushner_gossip_rocks_trumps_inner/o53hmab/
+
+Again, why isn't Reddit having a blackout protest that makes every major news site in the world? REDDIT_BLACKOUT - why are people so compulsively commenting instead of STANDING UP to remove MAGA and do cult deprogramming? Why are people not promoting Dr. Bandy X Lee's nonfiction leadership since October 3, 2017?
