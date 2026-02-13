@@ -123,3 +123,41 @@ Reminder of context: This isn't just one man in USA. It is Rupert Murdoch cult f
 https://old.reddit.com/r/pics/comments/1r3ei1k/an_iranian_girl_in_iran_pedophiles_get_hanged_in/o543hkg/
 
 On-Reddit hate affairs
+
+https://old.reddit.com/r/pics/comments/1r3ei1k/an_iranian_girl_in_iran_pedophiles_get_hanged_in/o53xjet/
+
+"very funny", amusement fandom of hate. 
+
+https://old.reddit.com/r/pics/comments/1r3ei1k/an_iranian_girl_in_iran_pedophiles_get_hanged_in/o53tx7r/
+
+Out-group hate. Levant clergy tradition.
+
+* https://www.youtube.com/watch?v=P6gtHQGbXmM Harlan Ellison's Solution for Palestine and Israel
+
+https://old.reddit.com/r/pics/comments/1r3ei1k/an_iranian_girl_in_iran_pedophiles_get_hanged_in/o53unzk/
+
+https://old.reddit.com/r/pics/comments/1r3ei1k/an_iranian_girl_in_iran_pedophiles_get_hanged_in/o53v9qo/
+
+https://old.reddit.com/r/pics/comments/1r3ei1k/an_iranian_girl_in_iran_pedophiles_get_hanged_in/o53ru0b/
+
+https://old.reddit.com/r/pics/comments/1r3ei1k/an_iranian_girl_in_iran_pedophiles_get_hanged_in/o53sknj/
+
+https://old.reddit.com/r/pics/comments/1r3ei1k/an_iranian_girl_in_iran_pedophiles_get_hanged_in/o53v8x2/
+
+https://old.reddit.com/r/pics/comments/1r3ei1k/an_iranian_girl_in_iran_pedophiles_get_hanged_in/o53rul7/
+
+https://old.reddit.com/r/pics/comments/1r3ei1k/an_iranian_girl_in_iran_pedophiles_get_hanged_in/o53u3rc/
+
+https://old.reddit.com/r/pics/comments/1r3ei1k/an_iranian_girl_in_iran_pedophiles_get_hanged_in/o53xego/
+
+https://old.reddit.com/r/pics/comments/1r3ei1k/an_iranian_girl_in_iran_pedophiles_get_hanged_in/o53ugo5/
+
+https://old.reddit.com/r/pics/comments/1r3ei1k/an_iranian_girl_in_iran_pedophiles_get_hanged_in/o53s958/
+
+https://old.reddit.com/r/pics/comments/1r3ei1k/an_iranian_girl_in_iran_pedophiles_get_hanged_in/o53u5en/
+
+https://old.reddit.com/r/pics/comments/1r3ei1k/an_iranian_girl_in_iran_pedophiles_get_hanged_in/o53u9z1/
+
+https://old.reddit.com/r/pics/comments/1r3ei1k/an_iranian_girl_in_iran_pedophiles_get_hanged_in/o53uysm/
+
+"LOL", amused at hate. Fandom of hate on Reddit.
