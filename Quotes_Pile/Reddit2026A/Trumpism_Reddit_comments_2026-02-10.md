@@ -923,6 +923,10 @@ https://old.reddit.com/r/circled/comments/1r3rc5s/even_the_hot_pile_of_newsmax_i
 
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1r3sdwk/the_history_is_witnessing_the_death_of_humanity/o56mbil/
 
+<img width="1453" height="1435" alt="image" src="https://github.com/user-attachments/assets/db13b370-e8e7-47aa-89bb-4b780c666808" />
+
 Reddit Fandom of MAGA, the Trumpism fandom cult on Reddit, has extreme recency bias. RECENCY_BIAS Minds are being reset constantly with extreme laughter and joke sessions over Trump / MAGA / Musk and people blow their memories out. Neil Postman warned of this mind exploit in his year 1985 book "Amusing Ourselves To Death" - which is a nonfiction book about Reddit authored decades before Reddit went online.
 
 The constant "shocked" and "amazed" reaction is a SYMPTOM of over-amusement! We are over 10 years into deep shit and people are thinking that it only started last week or this month. Thinking itself is corrupted by laughter. Laughter is the best mind-fuck. Surkov won.
+
+Social post { https://autistics.life/@RoundSparrow/116064870795703535 https://bsky.app/profile/roundsparrow.bsky.social/post/3mer726hekk2c }
