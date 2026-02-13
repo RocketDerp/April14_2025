@@ -35,3 +35,15 @@ Trump is #Celebrity - social power over superficial and shallow mindsets
 &nbsp;
 
 "In any case, ah, if **Baudrillard** is even onto something, what the postmodern trajectory means is that the self is not under siege, it’s lost. It’s just lost. And if that’s true then all of the strategies by which **ordinary people try to live decent good lives are lost** along with it." - year 1993 https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
+
+&nbsp;
+
+# Abuse as attraction
+
+#PostMarriage #PostFamily #AntiImmigrant
+
+Part of what has happened you can study by the family of Donald Trump. In marriages and intimate relationships, people constantly watch for "red flags" and abandon relationships. In the #MAGA values society, people disown family members who join #FoxNews cult. Nobody is learning from mistakes.
+
+the anti-Immigrant MAGA movement is a machine-blocking idea. People are more thrilled to declare hate than compassion. People join hate fandoms, mocking fandoms, of people or music bands or hate-watching TV shows. People enjoy hating their ex-lovers more than any authentic joy of parenting and family. Does Donald Trump and Elon Musk entertain their children with consumer goods and purchases. Trump and Musk children are raised to be consumers. Conspicuous consumption.
+
+Love and compassion have been abandoned in favor of hate-watching and anti-immigration blocking of poor people. Rich people are taunting poor people as entertainment. Marriage and parenting rich people consider tedious and not enjoyable. Epstein provided the exciting lifestyle the rich people wanted, freedom to abuse captive children for pleasure. Abuse is the core of the entire MAGA movement, hate of poor people, abuse of poor people.
