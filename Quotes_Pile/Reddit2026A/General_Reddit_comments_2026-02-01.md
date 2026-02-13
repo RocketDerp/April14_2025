@@ -293,3 +293,31 @@ https://old.reddit.com/r/PeterExplainsTheJoke/comments/1r31xe7/petah_whats_the_j
 https://old.reddit.com/r/MurderedByWords/comments/1r38fce/record_first_name_wrong/o52iue2/
 
 In twitter-logic tweet-thinking this "engagement" of landing on the front page of Reddit is all the society programming we should keep prizing. It's not as if we have seen enough examples of this mindset being exploited and actively handed down to children joining the Internet. Neil Postman was correct in his 1985 book about media ecology.
+
+https://old.reddit.com/r/moistcr1tikal/comments/1r1j49t/update_on_the_anti_meme_moderator_couple/o4pyrzh/
+
+https://old.reddit.com/r/moistcr1tikal/comments/1r1j49t/update_on_the_anti_meme_moderator_couple/o4q2d3e/
+
+https://old.reddit.com/r/moistcr1tikal/comments/1r1j49t/update_on_the_anti_meme_moderator_couple/o4q1b98/
+
+https://old.reddit.com/r/moistcr1tikal/comments/1r1j49t/update_on_the_anti_meme_moderator_couple/o4q2om3/
+
+https://old.reddit.com/r/moistcr1tikal/comments/1r1j49t/update_on_the_anti_meme_moderator_couple/o4q0617/
+
+https://old.reddit.com/r/moistcr1tikal/comments/1r1j49t/update_on_the_anti_meme_moderator_couple/o4q0f65/
+
+https://old.reddit.com/r/moistcr1tikal/comments/1r1j49t/update_on_the_anti_meme_moderator_couple/o4r0q4w/
+
+https://old.reddit.com/r/moistcr1tikal/comments/1r1j49t/update_on_the_anti_meme_moderator_couple/o4qqfwy/
+
+https://old.reddit.com/r/moistcr1tikal/comments/1r1j49t/update_on_the_anti_meme_moderator_couple/o4q1rj4/
+
+https://old.reddit.com/r/moistcr1tikal/comments/1r1j49t/update_on_the_anti_meme_moderator_couple/o4quuni/
+
+https://old.reddit.com/r/moistcr1tikal/comments/1r1j49t/update_on_the_anti_meme_moderator_couple/o4q6fr8/
+
+https://old.reddit.com/r/moistcr1tikal/comments/1r1j49t/update_on_the_anti_meme_moderator_couple/o4q9r5i/
+
+https://old.reddit.com/r/moistcr1tikal/comments/1r1j49t/update_on_the_anti_meme_moderator_couple/o4qajey/
+
+People have zero sense that 1) RFK Jr has been in charge of USA health care and disease control for more than a year. 2) A reality TV star has a cult to fiction so strong. 3) Rupert Murdoch media systems have cults that love fiction and believe it. 4) Elon Musk, richest man in the world, purchased an entire cult of Twitter media and it was not the great failure Reddit users often claim it to be. - People can not imagine hate-watching and mocking is cult behaivors.
