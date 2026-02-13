@@ -224,3 +224,11 @@ There it is again... the **Trump hate-worship enablers on Reddit still making co
 https://old.reddit.com/r/news/comments/1r3qjln/trumps_cdc_is_canceling_600m_in_hiv_and_std_funds/o563be4/
 
 PRO_DISEASE as programmed by the Saint Petersburg Internet Research Agency from year 2014 onward. With factual evidence of mental manipulation validated by Johns Hopkins University and George Washington University. August 24, 2018 this **public information warfare warning** was covered all across the world news networks. https://www.BBC.com/news/world-us-canada-45294192
+
+https://old.reddit.com/r/news/comments/1r3qjln/trumps_cdc_is_canceling_600m_in_hiv_and_std_funds/o56j450/
+
+"Nothing changes", downplaying Surkovian information warfare. Trump and Putin get more power and wealth. This is the most sophisticated information warfare against We The People ever created / devised by humanity. See how Reddit comment section is avoiding nonfiction books on the subject. 
+
+This comment is what denial looks like. Commenting addictions look like... people avoiding nonfiction serious learning. An absence of situational awareness. The CDC and Putin / Trump Kremlin White House are doing this all for the REDDIT fandom to "froth at the mouth" over the anti-reality content:
+
+* "what Putin will do next — that he’s unpredictable and thus dangerous. We’re rendered stunned, spun, and flummoxed by the Kremlin’s weaponization of absurdity and unreality.” - year 2014. September 9, 2014 https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
