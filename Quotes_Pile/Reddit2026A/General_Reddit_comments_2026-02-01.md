@@ -368,3 +368,5 @@ https://old.reddit.com/r/RandomVideos/comments/1r3k810/sarcastic_senior_citizen/
 
 In a police state, the concern is superficial English on Reddit. Not We the People rising up to REMOVE the attitudes of dictators from society, but to make sure immigrants are harassed for possibly not using American English correctly. Language bigotry. Language as a tool of conformity instead of having any diversity or acceptance. Like a dress code rule, The Handmaiden's Tale society of mechanized dehumanizing concerns of personal expressions. People aren't allowed to be drunk, tired, worn out or impaired in any way and sound like sweet-sweet ChatGPT technically correct language.
 
+https://old.reddit.com/r/RandomVideos/comments/1r3k810/sarcastic_senior_citizen/o54uxjr/
+
