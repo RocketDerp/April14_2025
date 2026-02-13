@@ -866,3 +866,11 @@ The fandom commenting upon the content. Addictions to commenting about the White
 https://old.reddit.com/r/Music/comments/1r3lvq2/karoline_leavitt_trolled_as_shes_caught_using_bad/o55ggh9/
 
 The Office is fiction television. Michael Scott is a fiction character. Donald Trump played fiction "The Apprentice" television. Reddit is a cult that is attracted to following fiction content. To understand why MAGA and Trumpism has taken over the USA... study the fiction attraction and audience cravings for more and more fiction-based leadership. Surkovian governing and Surkovian information warfare.
+
+https://old.reddit.com/r/Music/comments/1r3lvq2/karoline_leavitt_trolled_as_shes_caught_using_bad/o55a0ie/
+
+This is the concern of Americans as their nation is wrecked by antics politics. Shit-commenting and shit-posting leadership of the White House is what shit-prizing society seeks. Enshitfication via Reddit and Twitter and Facebook of an entire nation due to high-speed media compulsive behaviors. Diaper fetish fandoms. Surkov won since March 2013.
+
+* "Enshittification" (or crapification) is a term coined by author and tech critic Cory Doctorow in November 2022 to describe the, often deliberate, degradation of the quality of online platforms and services.
+
+Year 2022, and that has become every hour of every day regarding We The People and the national mindsets.
