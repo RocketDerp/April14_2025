@@ -102,4 +102,14 @@ https://old.reddit.com/r/UnderReportedNews/comments/1r2x48p/relevant_reminder_10
 
 * Howdy Doody is an American children's television program (with circus and Western frontier themes) that was created and produced by Victor F. Campbell and E. Roger Muir. It was broadcast on the NBC television network in the United States from December 27, 1947, until September 24, 1960." https://en.wikipedia.org/wiki/Howdy_Doody
 
+https://old.reddit.com/r/pics/comments/1r39raq/iranians_hold_up_a_poster_showing_netanyahu/o52s2nj/
+
+Hate leadership signaling to follow the hate leaders.
+
+https://old.reddit.com/r/pics/comments/1r39raq/iranians_hold_up_a_poster_showing_netanyahu/o52seb0/
+
+https://old.reddit.com/r/pics/comments/1r39raq/iranians_hold_up_a_poster_showing_netanyahu/o52tf62/
+
+Malala doesn't have a lot of anti-terrorism supporters about young girls being given voices in Palestine or Egypt or North Africa or Iran (where girls are being abused systemically that people know recently from December 2025 onward protests). Malala's October 8, 2013 book has a lot of insight into mob mentality mindsets.
+
 
