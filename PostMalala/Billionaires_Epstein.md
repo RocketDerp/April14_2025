@@ -24,7 +24,7 @@ https://bsky.app/profile/roundsparrow.bsky.social/post/3meqlxa54ac24
 
 **Sex Sorting Business**
 
-The USA population is unable to face that the culture itself, Hollywood films & music industry, is a sex sorting business. Sexy voices of singers, sexy actors. #MeToo #PostParadoxOpera 
+The USA population is unable to face that the culture itself, Hollywood films & music industry, is a sex sorting business. Sexy voices of singers, sexually alluring lyrics, sexy actors, sexy clothing, sexy posing, sexy staging, sexy scenes. #MeToo #PostParadoxOpera 
 
 It is a paradox that the freedom to abuse others is a freedom you don't exercise.
 
