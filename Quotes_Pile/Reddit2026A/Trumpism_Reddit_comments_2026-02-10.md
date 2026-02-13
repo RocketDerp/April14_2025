@@ -696,3 +696,6 @@ https://old.reddit.com/r/UnderReportedNews/comments/1r39p7s/conservative_influen
 
 Kirk family media empire has a massive hate-watch fandom on Reddit. As soon as a Kirk family topic is posted, it races to the front page /r/All of Reddit.
 
+https://old.reddit.com/r/UnderReportedNews/comments/1r362zl/chris_murphy_trump_nominated_a_legit_white/o520nlq/
+
+2 month Reddit account. Top upvoted comment, most popular.
