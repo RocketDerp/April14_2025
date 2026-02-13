@@ -237,7 +237,7 @@ https://old.reddit.com/r/therewasanattempt/comments/1r3t9a6/to_rewrite_history_b
 
 Yes. *Please* Teach remedial morality to USA population. Teach Americans remedial lessons. Start teaching and educating. Stop celebrating ignorance and celebrate intelligent comprehension. Stop making this a NFL football back and forth in a rectangle caged mindset. 
 
-Social post { https://GitHub.com/GreatSealUSA/Brainrot_Society_47/blob/main/UnderReacting_Opera/Stop_Shit_Posting_Please.md#examples-of-avoiding-shit-posting }
+Social post { https://GitHub.com/GreatSealUSA/Brainrot_Society_47/blob/main/UnderReacting_Opera/Stop_Shit_Posting_Please.md#examples-of-avoiding-shit-posting https://MidWest.Social/post/43414922 https://Bsky.App/profile/roundsparrow.bsky.social/post/3mer3cpietc2h https://Autistics.Life/@RoundSparrow/116064605461465540 }
 
 https://old.reddit.com/r/therewasanattempt/comments/1r3t9a6/to_rewrite_history_by_megyn_kelly/o56rjhm/
 
