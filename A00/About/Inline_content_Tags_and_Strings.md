@@ -6,6 +6,7 @@ SEE_ALSO
 SUPER_HYPER_NORMAL  
 PREDICTABLE_OUTCOME  
 AMUSING_ZOMBIES  
+CHUCKLEHEAD_NATION  
 CONTEXT_ASSERTION  
 CONTEXT_BEWILDERMENT  
 REPEATING_REPEATER   
@@ -17,7 +18,14 @@ THIS_GITHUB
 CORE_CONCERNS   
 TRUMP_FANDOM   
 ANTI_REALITY   
-
+WAR_AGAINST_REALITY   
+REALITY_REAL   
+AMERICANS_HATE_AMERICANS   
+OUT_GROUP_HATE   
+WOKE_TO_WHAT   
+MEDIA_WOKE   
+TALIBAN_VALUES   
+MAGA_VALUES   
 
 Topic_tags: media_ecology, media_deconstruction, media_environment, media_conventions    
 Topic_tags: media_ecology, reading_vs_film, morality_lessons   
@@ -28,3 +36,4 @@ Topic_tags: pro_sneaks pro_manipulators anti_democracy gang_signals social_media
 Social post { }   
 Surkov won   
 ToDo:  
+WHHR   
