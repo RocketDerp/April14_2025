@@ -124,6 +124,11 @@ https://autistics.life/@RoundSparrow/115899739310782031
 
 Proposal [for every 47 hours Internet-wide organization efforts: "Brainrot Society 47"](/PostMalala/Assert_Malala/Brainrot_Society_47.md).
 
+Friday, February 13, 2026   
+"Brain Rot Society 47" now has a dedicated GitHub project page: https://github.com/GreatSealUSA/Brainrot_Society_47
+
+This was mentioned earlier in the page, but repeating here. Please help! Thank you!!!
+
 &nbsp;
 
 &nbsp;
