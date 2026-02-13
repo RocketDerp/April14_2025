@@ -17,6 +17,7 @@ FIN_WAKE_INDRA_NET
 THIS_GITHUB   
 CORE_CONCERNS   
 TRUMP_FANDOM   
+EPSTEIN_FANDOM   
 ANTI_REALITY   
 WAR_AGAINST_REALITY   
 REALITY_REAL   
@@ -26,6 +27,8 @@ WOKE_TO_WHAT
 MEDIA_WOKE   
 TALIBAN_VALUES   
 MAGA_VALUES   
+SURKOV_WARFARE   
+
 
 Topic_tags: media_ecology, media_deconstruction, media_environment, media_conventions    
 Topic_tags: media_ecology, reading_vs_film, morality_lessons   
