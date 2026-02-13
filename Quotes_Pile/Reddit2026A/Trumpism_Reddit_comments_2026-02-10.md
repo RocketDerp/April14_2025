@@ -832,4 +832,16 @@ https://old.reddit.com/r/UnderReportedNews/comments/1r3b3aa/rep_crow_i_have_a_me
 
 Every topic of every day on every media platform is about stimulating cults of fiction addicts. People even regularly write "cult" about out-groups but will not turn to nonfiction. You don't see people calling for nonfiction cult deprogramming. You see "brainwashing" but you do not witness any call for nonfiction education on how to counter and rescue brainwashed people. You witness compulsive high speed commenting... reactionary mindsets, reacting to MAGA reacting to Trump, reacting to the White House.
 
+https://old.reddit.com/r/UnderReportedNews/comments/1r3b3aa/rep_crow_i_have_a_message_for_the_trump/o53o43x/
+
+A representative should have the paperwork staff and skills to create a website for under $200 with basic text content and have it online in 1 to 8 hours of labor. And point people to THE SAME PAGE OF ACTION and timelines. www . Remove Trump Crow . org - and be able to update it. Square Space or other provider for a basic blog of information... could use Google Blogger with a registered Internet domain.
+
+People could then link and monitor the website for updates. Instead, a "concept of a plan".
+
+I've posted about "Brain Rot Society" and called out the need to use social media in non-reactionary ways. On Lemmy, Bluesky, Mastodon. Nobody is interested. I just now posted a Dr. Bandy X Lee posting - and reviewed the activity on her Bluesky posts from October. People are not getting behind serious nonfiction leaders. https://bsky.app/profile/roundsparrow.bsky.social/post/3meqheirodk2o "The Developmental Wounds of Dictator Dreams"
+
+https://old.reddit.com/r/UnderReportedNews/comments/1r3b3aa/rep_crow_i_have_a_message_for_the_trump/o53730c/
+
+8 month Reddit account.
+
 
