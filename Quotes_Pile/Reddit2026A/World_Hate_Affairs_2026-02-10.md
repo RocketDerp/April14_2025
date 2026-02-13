@@ -184,7 +184,7 @@ Every person upvoting this posting, the title of the posting creator, is TELEGRA
 
 # "Laughing Stock Around the World"
 
-A STOCK source of laughter. LOL culture. Meme life. The apple iPhone 1 since year 2007. When Trump got on Twitter July 6, 2011 at 2pm https://theoutline.com/post/2445/trump-s-first-real-tweet-was-on-july-6-2011 is when it started! Neil Postman's 1985 book "Amusing Ourselves To Death" about high-speed media systems describes the issue in more detail, 184 pages.
+A STOCK source of laughter. LOL culture. Meme life. The Apple iPhone 1 venue since year 2007. When Trump got on Twitter venue July 6, 2011 at 2pm https://theOutline.com/post/2445/trump-s-first-real-tweet-was-on-july-6-2011 is when it started! Neil Postman's 1985 book "Amusing Ourselves To Death" about high-speed media systems describes the issue in more detail, 184 pages.
 
 * “For in the end, he was trying to tell us what afflicted the people in 'Brave New World' was not that they were laughing instead of thinking, but that they did not know what they were laughing about and why they had stopped thinking.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. SEE_ALSO David Foster Wallace concept of "Infinite Jest", joke-jesting infinity black hole.
 
