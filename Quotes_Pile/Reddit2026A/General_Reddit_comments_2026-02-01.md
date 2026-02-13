@@ -284,4 +284,7 @@ Social post { https://autistics.life/@RoundSparrow/116058384697057295 https://bs
 
 https://old.reddit.com/r/PeterExplainsTheJoke/comments/1r31xe7/petah_whats_the_joke_why_would_she_be_good_on_the/o512qpx/
 
-And brain-damaging NFL football square-logic Charlie Grown Lucy American football blockhead thinking on social media screen shot.
+And brain-damaging NFL football square-logic Charlie Brown Lucy American football blockhead thinking on social media screen shot. https://www.brenthartinger.com/p/should-charlie-brown-have-been-allowed/comments
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1r31xe7/petah_whats_the_joke_why_would_she_be_good_on_the/o517p9o/
+
