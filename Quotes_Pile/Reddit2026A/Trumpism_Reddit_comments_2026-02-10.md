@@ -874,3 +874,9 @@ This is the concern of Americans as their nation is wrecked by antics politics. 
 * "Enshittification" (or crapification) is a term coined by author and tech critic Cory Doctorow in November 2022 to describe the, often deliberate, degradation of the quality of online platforms and services.
 
 Year 2022, and that has become every hour of every day regarding We The People and the national mindsets.
+
+https://old.reddit.com/r/politics/comments/1r3kjt2/joe_rogan_tears_into_trump_over_epstein_files/o54yqce/
+
+Joe Rogan Experience and Reddit audience experience suffer from the same media-engagement audience techniques. I am not saying Reddit users are all fans and listen to Joe Rogan. I'm saying the same low-effort media that favors fiction over nonfiction is prized by both fandoms. Amusement and comedy "news".
+
+This is a cultural wide, not just voters, not just MAGA, everyone in society problem. Neil Postman's 1985 book "Amusing Ourselves To Death" is a starting point on understanding this self-harm attraction.
