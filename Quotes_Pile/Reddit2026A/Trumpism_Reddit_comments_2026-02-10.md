@@ -736,3 +736,18 @@ We the People have to face up to what Neil Postman wrote in his 1985 nonfiction 
 
 Dr. Bandy X Lee's leadership should be repeated and repeated and quoted over and over constant on social media until people can organize the largest cult deprogramming in world history.
 
+https://old.reddit.com/r/politics/comments/1r3b7ot/trump_79_sparks_health_concerns_with_bizarre/o534mjr/
+
+https://old.reddit.com/r/politics/comments/1r3b7ot/trump_79_sparks_health_concerns_with_bizarre/o531qcm/
+
+https://old.reddit.com/r/politics/comments/1r3b7ot/trump_79_sparks_health_concerns_with_bizarre/o531ujt/
+
+https://old.reddit.com/r/politics/comments/1r3b7ot/trump_79_sparks_health_concerns_with_bizarre/o53gphq/
+
+https://old.reddit.com/r/politics/comments/1r3b7ot/trump_79_sparks_health_concerns_with_bizarre/o5341nv/
+
+https://old.reddit.com/r/politics/comments/1r3b7ot/trump_79_sparks_health_concerns_with_bizarre/o534eqb/
+
+https://old.reddit.com/r/politics/comments/1r3b7ot/trump_79_sparks_health_concerns_with_bizarre/o537ets/
+
+https://old.reddit.com/r/politics/comments/1r3b7ot/trump_79_sparks_health_concerns_with_bizarre/o53h1uv/
