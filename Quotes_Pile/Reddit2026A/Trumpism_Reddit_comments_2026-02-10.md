@@ -825,3 +825,11 @@ Women like Pam Bondi are hated and mocked constantly. Why is it when a serious n
 Reddit community can not face that Reddit is heavily influenced by billionaire media owners and the investment billionaires have made in media in general. And that is what Trump has spent decades focused on, being *on camera* more than anyone, being the center of Reddit attention more than anyone with antics and odd behavior. Mocking more than anyone, Reddit's (community, audience) attraction to mockery and avoidance of serious Dr. Bandy X Lee nonfiction.
 
 Reddit will not call for impeachment and blackouts of social media - because the attraction to mocking and insulting Trump is stronger than the desire to REMOVE Trump and educate and teach people remedial morality and why it is dangerous to be in a media cult (Reddit media cults) of fiction.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1r3b3aa/rep_crow_i_have_a_message_for_the_trump/o531nvt/
+
+"Sane person"
+
+Every topic of every day on every media platform is about stimulating cults of fiction addicts. People even regularly write "cult" about out-groups but will not turn to nonfiction. You don't see people calling for nonfiction cult deprogramming. You see "brainwashing" but you do not witness any call for nonfiction education on how to counter and rescue brainwashed people. You witness compulsive high speed commenting... reactionary mindsets, reacting to MAGA reacting to Trump, reacting to the White House.
+
+
