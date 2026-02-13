@@ -1020,4 +1020,8 @@ https://old.reddit.com/r/technology/comments/1r40e0c/ftc_wants_apple_news_to_pro
 
 Where is the Reddit blackout protest? REDDIT_BLACKOUT - where is the uprising to stand up and call for nonfiction and pro-intellectual leadership instead of memes and mocking MAGA and Trump mythology...
 
+https://old.reddit.com/r/technology/comments/1r40e0c/ftc_wants_apple_news_to_promote_more_fox_news_and/o58tdbx/
+
+GULLIBLE_FANDOM that takes pro-billionaire technology programming of the audience at face value. Commenting away on every move and shake of the billionaires who provide tech to tech-addicted Reddit users in /r/Technology - entire ignorant of Neil Postman's books from 1980's and 1990's on the subjects. The gullibility of We The People to the brand-names and assets owned by the wealth lords who control media systems. Reddit is manipulated. People on Reddit can't even name the "Internet Research Agency" or "Cambridge Analytica" and describe the information warfare details / techniques.
+
 
