@@ -290,3 +290,6 @@ https://old.reddit.com/r/PeterExplainsTheJoke/comments/1r31xe7/petah_whats_the_j
 
 https://old.reddit.com/r/PeterExplainsTheJoke/comments/1r31xe7/petah_whats_the_joke_why_would_she_be_good_on_the/o519499/
 
+https://old.reddit.com/r/MurderedByWords/comments/1r38fce/record_first_name_wrong/o52iue2/
+
+In twitter-logic tweet-thinking this "engagement" of landing on the front page of Reddit is all the society programming we should keep prizing. It's not as if we have seen enough examples of this mindset being exploited and actively handed down to children joining the Internet. Neil Postman was correct in his 1985 book about media ecology.
