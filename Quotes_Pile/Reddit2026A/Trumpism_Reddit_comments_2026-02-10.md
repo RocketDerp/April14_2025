@@ -976,3 +976,6 @@ https://old.reddit.com/r/politics/comments/1r3qecf/where_are_all_the_dont_tread_
 
 DENIAL_ABOUNDS Denial of Russian information warfare, denial of billionaire Rupert Murdoch manipulated the rural less-educated population. Celebration of ignorance on Reddit. Surkov won. AMERICANS_HATE_AMERICANS   
 
+https://old.reddit.com/r/politics/comments/1r3qecf/where_are_all_the_dont_tread_on_me_americans/o563ane/
+
+PREDICTABLE_OUTCOME SIMULATION_SIMULACRA 
