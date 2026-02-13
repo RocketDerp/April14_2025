@@ -812,3 +812,16 @@ https://old.reddit.com/r/conspiracy/comments/1r3bpty/this_was_staged/o53zc11/
 
 No-evidence storytelling, fiction storytelling, far outsells nonfiction. There is no attempt to have a FAQ or Wiki and organize details, jut lots of "social engagement" with commenting low-effort about serious topics. Every person in their own filter-bubble and fiction stories they pass down. This is a fandom of Kremlin and White House, celebrity fandom.
 
+https://old.reddit.com/r/UnderReportedNews/comments/1r3b3aa/rep_crow_i_have_a_message_for_the_trump/o532t2v/
+
+9 month Reddit account.
+
+Why was there no REDDIT_BLACKOUT Reddit blackout in September 2024 to let the world know that We the  People do not support Donald Trump? I saw Trump signs all over in places I have lived and traveled and can identify real attitudes and behaviors. The cult of Fox News HDTV in 2024 and cult of Newsmax HDTV was as strong as ever 2024. Reddit fandom can not face up to their own cult of stimulation that Trump provides. Why are people not protesting on Reddit any time in year 2025? January 2026? The denial of the importance of We The People and intelligence and defending against Russian information warfare. 
+
+The Founding Fathers did not have color photography in year 1776. Media has dramatically changed since year 2007 when the Apple iPhone 1 was introduced. Reddit cult of media can not see that Trump is a cult leader that Reddit follows every hour of every day. This movement is way bigger than election days and into the very social fabric of society of men hating upon women. Why is Reddit society not promoting woman leader Dr. Bandy X Lee? Woman leader Jen Senko?
+
+Women like Pam Bondi are hated and mocked constantly. Why is it when a serious nonfiction leader like Jen Senko and Dr. Bandy X Lee are leading towards good directions, Reddit and Blueksy do not follow the women? AOC is very entertaining and engages is mocking that Reddit prizes. Attraction to mocking back and forth with antics politics is the pattern of what captures attention of fandoms.
+
+Reddit community can not face that Reddit is heavily influenced by billionaire media owners and the investment billionaires have made in media in general. And that is what Trump has spent decades focused on, being *on camera* more than anyone, being the center of Reddit attention more than anyone with antics and odd behavior. Mocking more than anyone, Reddit's (community, audience) attraction to mockery and avoidance of serious Dr. Bandy X Lee nonfiction.
+
+Reddit will not call for impeachment and blackouts of social media - because the attraction to mocking and insulting Trump is stronger than the desire to REMOVE Trump and educate and teach people remedial morality and why it is dangerous to be in a media cult (Reddit media cults) of fiction.
