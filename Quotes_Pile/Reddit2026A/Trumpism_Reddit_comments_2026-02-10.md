@@ -884,3 +884,7 @@ This is a cultural wide, not just voters, not just MAGA, everyone in society pro
 https://old.reddit.com/r/politics/comments/1r3kjt2/joe_rogan_tears_into_trump_over_epstein_files/o555hri/
 
 "Tears into him" - the mental health of mob mentality is a problem ANYONE on ANY MEDIA platform, including Reddit commenting can address. Dr. Bandy X Lee compiled 27 people in a book published October 3, 2017. Yet, everyone is avoiding turning to nonfiction teaching and education. We don't need more debate and arguing, we need to recognize the addiction to Trump as a content source is a problem both Joe Rogan and Reddit both share. All media systems have converged on Epstein / Trump / MAGA mentality of media addiction to fiction storytelling.
+
+https://old.reddit.com/r/politics/comments/1r3kjt2/joe_rogan_tears_into_trump_over_epstein_files/o55gvqi/
+
+The avoidance of Dr. Bandy X Lee's book from October 3, 2017 has been consistent across society. People are not engaging nonfiction serious topics that are organized and well written. Instead, streaming podcasts of Rogan and streaming commenting of Reddit, streaming shit-postings of Bluesky...  THE STREAMING, the SCROLLING itself is prized over *getting on the same page of a paper nonfiction book* that describes a **common problem we all share**. People all have one URL click or touch that we could converge on: https://www.scientificamerican.com/article/the-shared-psychosis-of-donald-trump-and-his-loyalists/ and start facing up to the **motion addiction of flowing information** streaming.
