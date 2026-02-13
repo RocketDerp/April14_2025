@@ -947,3 +947,32 @@ SUPER_HYPER_NORMAL ... EXACTLY! This is in no way "normal" for USA criminals. Th
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1r3sdwk/the_history_is_witnessing_the_death_of_humanity/o56vdqf/
 
 CONTEXT_BEWILDERMENT 
+
+https://old.reddit.com/r/politics/comments/1r3qecf/where_are_all_the_dont_tread_on_me_americans/o562fys/
+
+Surkov won since March 2013.
+
+https://old.reddit.com/r/politics/comments/1r3qecf/where_are_all_the_dont_tread_on_me_americans/o5625gd/
+
+Self-harm USA. Surkov won.
+
+https://old.reddit.com/r/politics/comments/1r3qecf/where_are_all_the_dont_tread_on_me_americans/o563vi2/
+
+5 month Reddit account.
+
+AMERICANS_HATE_AMERICANS OUT_GROUP_HATE  
+
+https://old.reddit.com/r/politics/comments/1r3qecf/where_are_all_the_dont_tread_on_me_americans/o5626l4/
+
+And commenting online about Trump's { poop, shit, diaper, smell, odor, pants }. Amused in a meme stupor. CHUCKLEHEAD_NATION
+
+https://old.reddit.com/r/politics/comments/1r3qecf/where_are_all_the_dont_tread_on_me_americans/o565j1h/
+
+THIS_GITHUB WAR_AGAINST_REALITY REALITY_REAL   
+
+https://old.reddit.com/r/politics/comments/1r3qecf/where_are_all_the_dont_tread_on_me_americans/o562e2s/
+
+https://old.reddit.com/r/politics/comments/1r3qecf/where_are_all_the_dont_tread_on_me_americans/o5663bm/
+
+DENIAL_ABOUNDS Denial of Russian information warfare, denial of billionaire Rupert Murdoch manipulated the rural less-educated population. Celebration of ignorance on Reddit. Surkov won. AMERICANS_HATE_AMERICANS   
+
