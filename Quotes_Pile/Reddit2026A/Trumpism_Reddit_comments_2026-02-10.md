@@ -1030,3 +1030,25 @@ https://old.reddit.com/r/technology/comments/1r40e0c/ftc_wants_apple_news_to_pro
 
 Fiction outsells nonfiction. Reddit community can't comprehend that Reddit itself is full of fiction storytelling and that nonfiction books on paper have been abandoned by the entire society. People are avoidant of seriously organizing and promoting critical nonfiction teaching and education for adults. Dr. Bandy X Lee assembled 27 people and published a book October 3, 3017 that every Reddit user should be quoting, linking, citing - but it rots on the shelf and people are drawn to commenting over and over all on different pages and not getting on the same pages of very important nonfiction books on paper.
 
+https://old.reddit.com/r/technology/comments/1r40e0c/ftc_wants_apple_news_to_promote_more_fox_news_and/o58bvbt/
+
+https://old.reddit.com/r/technology/comments/1r40e0c/ftc_wants_apple_news_to_promote_more_fox_news_and/o58byx5/
+
+https://old.reddit.com/r/technology/comments/1r40e0c/ftc_wants_apple_news_to_promote_more_fox_news_and/o58csd6/
+
+https://old.reddit.com/r/technology/comments/1r40e0c/ftc_wants_apple_news_to_promote_more_fox_news_and/o58i4it/
+
+Reddit is cult media, media cult, memes and amusements and comedy-washing MAGA and Trump.. Reddit cult media where that people prize low-effort simplistic commenting in avoidance of serious nonfiction relevant books on paper.
+
+https://old.reddit.com/r/technology/comments/1r40e0c/ftc_wants_apple_news_to_promote_more_fox_news_and/o58sp6x/
+
+Yes. Remember when intelligent people in USA turned to nonfiction serious sources in troubled times to learn as adults. Like the 27 people Dr. Bandy X lee assembled in her nonfiction book published October 3, 2017. That Reddit can't seem to locate at the public library and rescue the USA from Trump. Instead, Reddit users spend their free time and spare time commenting over and over and over about the Trump FTC and other federal government actions in reactionary ways... instead of assembling an actual We The People uprising. WOKE_TO_WHAT 
+
+https://old.reddit.com/r/technology/comments/1r40e0c/ftc_wants_apple_news_to_promote_more_fox_news_and/o58t11r/
+
+https://old.reddit.com/r/technology/comments/1r40e0c/ftc_wants_apple_news_to_promote_more_fox_news_and/o58tw29/
+
+https://old.reddit.com/r/technology/comments/1r40e0c/ftc_wants_apple_news_to_promote_more_fox_news_and/o58txgq/
+
+Reddit audience is a simulation of resisting. Commenting and mocking is not resisting a federal government run by Tony Clifton performance and Surkov students. Reddit tech addicts are CONDITIONED_OPPOSITION that billionaires have captured.
+
