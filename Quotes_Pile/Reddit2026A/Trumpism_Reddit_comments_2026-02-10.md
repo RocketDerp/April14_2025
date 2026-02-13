@@ -765,3 +765,50 @@ https://old.reddit.com/r/law/comments/1r3bjy5/secret_jared_kushner_gossip_rocks_
 https://old.reddit.com/r/law/comments/1r3bjy5/secret_jared_kushner_gossip_rocks_trumps_inner/o53hmab/
 
 Again, why isn't Reddit having a blackout protest that makes every major news site in the world? REDDIT_BLACKOUT - why are people so compulsively commenting instead of STANDING UP to remove MAGA and do cult deprogramming? Why are people not promoting Dr. Bandy X Lee's nonfiction leadership since October 3, 2017?
+
+https://old.reddit.com/r/conspiracy/comments/1r3bpty/this_was_staged/o5367tg/
+
+https://old.reddit.com/r/conspiracy/comments/1r3bpty/this_was_staged/o53v77v/
+
+https://old.reddit.com/r/conspiracy/comments/1r3bpty/this_was_staged/o53e4ow/
+
+https://old.reddit.com/r/conspiracy/comments/1r3bpty/this_was_staged/o53hscw/
+
+Fiction vs. nonfiction, it is not acceptable to be lead by conspiracy without facts and without evidence. Fiction storytelling far outsells nonfiction. And people vote for popularity, fiction is popular.
+
+https://old.reddit.com/r/conspiracy/comments/1r3bpty/this_was_staged/o545y59/
+
+Science fiction fandoms of The Bible also like other no-evidence fiction storytelling.
+
+https://old.reddit.com/r/conspiracy/comments/1r3bpty/this_was_staged/o53m32w/
+
+Cult members don't grasp cult behaviors.
+
+https://old.reddit.com/r/conspiracy/comments/1r3bpty/this_was_staged/o53adde/
+
+Surkovian governing.
+
+https://old.reddit.com/r/conspiracy/comments/1r3bpty/this_was_staged/o53ra8k/
+
+Trump brags about fiction things all the time. Immigrant threats. Trump brags about economic wins that are fiction. 
+
+https://old.reddit.com/r/conspiracy/comments/1r3bpty/this_was_staged/o53n0sc/
+
+https://old.reddit.com/r/conspiracy/comments/1r3bpty/this_was_staged/o53931u/
+
+https://old.reddit.com/r/conspiracy/comments/1r3bpty/this_was_staged/o53ogau/
+
+https://old.reddit.com/r/conspiracy/comments/1r3bpty/this_was_staged/o53wcwt/
+
+https://old.reddit.com/r/conspiracy/comments/1r3bpty/this_was_staged/o53zqxz/
+
+https://old.reddit.com/r/conspiracy/comments/1r3bpty/this_was_staged/o53omiv/
+
+https://old.reddit.com/r/conspiracy/comments/1r3bpty/this_was_staged/o547ksz/
+
+https://old.reddit.com/r/conspiracy/comments/1r3bpty/this_was_staged/o53ad06/
+
+https://old.reddit.com/r/conspiracy/comments/1r3bpty/this_was_staged/o53zc11/
+
+No-evidence storytelling, fiction storytelling, far outsells nonfiction. There is no attempt to have a FAQ or Wiki and organize details, jut lots of "social engagement" with commenting low-effort about serious topics. Every person in their own filter-bubble and fiction stories they pass down. This is a fandom of Kremlin and White House, celebrity fandom.
+
