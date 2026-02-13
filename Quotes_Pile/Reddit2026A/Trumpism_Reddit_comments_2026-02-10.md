@@ -887,4 +887,15 @@ https://old.reddit.com/r/politics/comments/1r3kjt2/joe_rogan_tears_into_trump_ov
 
 https://old.reddit.com/r/politics/comments/1r3kjt2/joe_rogan_tears_into_trump_over_epstein_files/o55gvqi/
 
-The avoidance of Dr. Bandy X Lee's book from October 3, 2017 has been consistent across society. People are not engaging nonfiction serious topics that are organized and well written. Instead, streaming podcasts of Rogan and streaming commenting of Reddit, streaming shit-postings of Bluesky...  THE STREAMING, the SCROLLING itself is prized over *getting on the same page of a paper nonfiction book* that describes a **common problem we all share**. People all have one URL click or touch that we could converge on: https://www.scientificamerican.com/article/the-shared-psychosis-of-donald-trump-and-his-loyalists/ and start facing up to the **motion addiction of flowing information** streaming.
+The avoidance of Dr. Bandy X Lee's book from October 3, 2017 has been consistent across society. People are not engaging nonfiction serious topics that are organized and well written. Instead, streaming podcasts of Rogan and streaming commenting of Reddit, streaming shit-postings of Bluesky...  THE STREAMING, the SCROLLING itself is prized over *getting on the same page of a paper nonfiction book* that describes a **common problem we all share**. People all have one URL click or touch that we could converge on: https://www.ScientificAmerican.com/article/the-shared-psychosis-of-donald-trump-and-his-loyalists/ and start facing up to the **motion addiction of flowing information** streaming.
+
+
+https://old.reddit.com/r/circled/comments/1r3ozbf/our_president_is_a_laughing_stock_around_the_world/o55sku6/
+
+Trump motivates February 2026 people so much to travel to see Trump images and Donald Trump in person. The motivation that hate leadership provides for the hate fandom on Reddit.
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3meqrvyf37k27 https://autistics.life/@RoundSparrow/116063941917293227 }
+
+https://old.reddit.com/r/circled/comments/1r3ozbf/our_president_is_a_laughing_stock_around_the_world/o55w1w5/
+
+Fandom of Trump wishing that more Trump media content and videos and live events visit more cities! Addicts to Trump images.
