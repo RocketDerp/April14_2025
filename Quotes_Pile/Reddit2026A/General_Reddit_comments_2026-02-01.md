@@ -321,3 +321,36 @@ https://old.reddit.com/r/moistcr1tikal/comments/1r1j49t/update_on_the_anti_meme_
 https://old.reddit.com/r/moistcr1tikal/comments/1r1j49t/update_on_the_anti_meme_moderator_couple/o4qajey/
 
 People have zero sense that 1) RFK Jr has been in charge of USA health care and disease control for more than a year. 2) A reality TV star has a cult to fiction so strong. 3) Rupert Murdoch media systems have cults that love fiction and believe it. 4) Elon Musk, richest man in the world, purchased an entire cult of Twitter media and it was not the great failure Reddit users often claim it to be. - People can not imagine hate-watching and mocking is cult behaivors.
+
+https://old.reddit.com/r/moistcr1tikal/comments/1r1j49t/update_on_the_anti_meme_moderator_couple/o4q8j8n/
+
+https://old.reddit.com/r/moistcr1tikal/comments/1r1j49t/update_on_the_anti_meme_moderator_couple/o4q92iq/
+
+https://old.reddit.com/r/moistcr1tikal/comments/1r1j49t/update_on_the_anti_meme_moderator_couple/o4qon4d/
+
+https://old.reddit.com/r/moistcr1tikal/comments/1r1j49t/update_on_the_anti_meme_moderator_couple/o4rfsuw/
+
+https://old.reddit.com/r/moistcr1tikal/comments/1r1j49t/update_on_the_anti_meme_moderator_couple/o4q66ns/
+
+https://old.reddit.com/r/moistcr1tikal/comments/1r1j49t/update_on_the_anti_meme_moderator_couple/o4rjrcs/
+
+https://old.reddit.com/r/moistcr1tikal/comments/1r1j49t/update_on_the_anti_meme_moderator_couple/o4qiu4y/
+
+https://old.reddit.com/r/Cr1TiKaL/comments/1r1n2ki/yesterday_a_reddit_mod_made_a_missing_post_for/o4qrwrs/
+
+https://old.reddit.com/r/Cr1TiKaL/comments/1r1n2ki/yesterday_a_reddit_mod_made_a_missing_post_for/o4qx95l/
+
+https://old.reddit.com/r/Cr1TiKaL/comments/1r1n2ki/yesterday_a_reddit_mod_made_a_missing_post_for/o4qv53p/
+
+https://old.reddit.com/r/Cr1TiKaL/comments/1r1n2ki/yesterday_a_reddit_mod_made_a_missing_post_for/o4rbsxz/
+
+https://old.reddit.com/r/Cr1TiKaL/comments/1r1n2ki/yesterday_a_reddit_mod_made_a_missing_post_for/o4satjj/
+
+https://old.reddit.com/r/Cr1TiKaL/comments/1r1n2ki/yesterday_a_reddit_mod_made_a_missing_post_for/o4ru4ns/
+
+https://old.reddit.com/r/Cr1TiKaL/comments/1r1n2ki/yesterday_a_reddit_mod_made_a_missing_post_for/o4s6pae/
+
+https://old.reddit.com/r/Cr1TiKaL/comments/1r1n2ki/yesterday_a_reddit_mod_made_a_missing_post_for/o4t6ifj/
+
+https://old.reddit.com/r/Cr1TiKaL/comments/1r1n2ki/yesterday_a_reddit_mod_made_a_missing_post_for/o4u7kzn/
+
