@@ -682,3 +682,6 @@ https://old.reddit.com/r/videos/comments/1r30rmf/pam_bondi_in_2014_campaign_ad_i
 
 https://old.reddit.com/r/videos/comments/1r30rmf/pam_bondi_in_2014_campaign_ad_ill_fight_to_put/o50wxtg/
 
+https://old.reddit.com/r/sports/comments/1r388ar/united_states_vice_president_jd_vance_issues/o52gm6k/
+
+Social media sports-think society loves to deport people with ICE, block people with Reddit cloud computing machines and face-masked secret moderators and admins. Machine-think blocking and book burning is incredibly popular and people don't even recognize that in 1937 Germany had to burn magazines and books on paper with real flame and didn't have block buttons.
