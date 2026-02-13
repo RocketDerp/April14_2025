@@ -320,7 +320,7 @@ https://old.reddit.com/r/moistcr1tikal/comments/1r1j49t/update_on_the_anti_meme_
 
 https://old.reddit.com/r/moistcr1tikal/comments/1r1j49t/update_on_the_anti_meme_moderator_couple/o4qajey/
 
-People have zero sense that 1) RFK Jr has been in charge of USA health care and disease control for more than a year. 2) A reality TV star has a cult to fiction so strong. 3) Rupert Murdoch media systems have cults that love fiction and believe it. 4) Elon Musk, richest man in the world, purchased an entire cult of Twitter media and it was not the great failure Reddit users often claim it to be. - People can not imagine hate-watching and mocking is cult behaivors.
+People have zero sense that 1) RFK Jr has been in charge of USA health care and disease control for more than a year. 2) A reality TV star has a cult to fiction so strong. 3) Rupert Murdoch media systems have cults that love fiction and believe it. 4) Elon Musk, richest man in the world, purchased an entire cult of Twitter media and it was not the great failure Reddit users often claim it to be. - People can not imagine hate-watching and mocking is cult behaviors.
 
 https://old.reddit.com/r/moistcr1tikal/comments/1r1j49t/update_on_the_anti_meme_moderator_couple/o4q8j8n/
 
@@ -353,4 +353,6 @@ https://old.reddit.com/r/Cr1TiKaL/comments/1r1n2ki/yesterday_a_reddit_mod_made_a
 https://old.reddit.com/r/Cr1TiKaL/comments/1r1n2ki/yesterday_a_reddit_mod_made_a_missing_post_for/o4t6ifj/
 
 https://old.reddit.com/r/Cr1TiKaL/comments/1r1n2ki/yesterday_a_reddit_mod_made_a_missing_post_for/o4u7kzn/
+
+https://old.reddit.com/r/Futurology/comments/1r3flg9/microsoft_ai_ceo_most_if_not_all_whitecollar/o543fq2/
 
