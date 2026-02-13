@@ -1060,3 +1060,6 @@ https://old.reddit.com/r/technology/comments/1r40e0c/ftc_wants_apple_news_to_pro
 
 This is not resisting Putin and Trump. Playing dumb and acting like all this started just this week. And there hasn't been a hearts and minds war by Putin / Russia / Kremlin to have the USA adopt Russian techniques since year 2013. This type of commenting on Reddit is to downplay the situation with gentle questions. FAKE_OPPOSITION
 
+https://old.reddit.com/r/technology/comments/1r40e0c/ftc_wants_apple_news_to_promote_more_fox_news_and/o58javs/
+
+Serious nonfiction no longer has an audience. The USA society seeks out low-effort commenting like you see all over Reddit in the face of extremely serious topics.
