@@ -232,3 +232,20 @@ https://old.reddit.com/r/news/comments/1r3qjln/trumps_cdc_is_canceling_600m_in_h
 This comment is what denial looks like. Commenting addictions look like... people avoiding nonfiction serious learning. An absence of situational awareness. The CDC and Putin / Trump Kremlin White House are doing this all for the REDDIT fandom to "froth at the mouth" over the anti-reality content:
 
 * "what Putin will do next — that he’s unpredictable and thus dangerous. We’re rendered stunned, spun, and flummoxed by the Kremlin’s weaponization of absurdity and unreality.” - year 2014. September 9, 2014 https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/therewasanattempt/comments/1r3t9a6/to_rewrite_history_by_megyn_kelly/o56r8yh/
+
+Yes. *Please* Teach remedial morality to USA population. Teach Americans remedial lessons. Start teaching and educating. Stop celebrating ignorance and celebrate intelligent comprehension. Stop making this a NFL football back and forth in a rectangle caged mindset. 
+
+Social post { https://GitHub.com/GreatSealUSA/Brainrot_Society_47/blob/main/UnderReacting_Opera/Stop_Shit_Posting_Please.md#examples-of-avoiding-shit-posting }
+
+https://old.reddit.com/r/therewasanattempt/comments/1r3t9a6/to_rewrite_history_by_megyn_kelly/o56rjhm/
+
+World Love Affairs! The Who - We DID GET FOOLED, Again!
+
+https://old.reddit.com/r/therewasanattempt/comments/1r3t9a6/to_rewrite_history_by_megyn_kelly/o56shym/
+
+https://old.reddit.com/r/therewasanattempt/comments/1r3t9a6/to_rewrite_history_by_megyn_kelly/o56sqmo/
+
+The forgetting all started in year 2013 with the Internet Research Agency out of Saint Petersburg Russia invading Reddit. People stop reminding each other and started prizing conflicts of out-group. The IRA won. Surkov won.
+
