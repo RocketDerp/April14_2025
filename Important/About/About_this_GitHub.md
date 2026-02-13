@@ -10,10 +10,14 @@ If the world just passed us by... just one person. Alas, the toxic society / par
 
 &nbsp;
 
+> NAVIGATE: [Situation In a Nutshell](/In_A_Nutshell/Situation_In_A_Nutshell.md) ... [Quotes_Pile](/Quotes_Pile/Quotes_Pile.md) ... [PostMalala](/PostMalala/PostMalala.md) ... [Media_Ecology](/Media_Ecology/Media_Ecology.md) .. 
+
+&nbsp;
+
 ## Everywhere Out-Group Hate
 
 1. IMPORTANT_A if anyone ever reads what I say here, they may get the impression I hate religions. Not at all! I think the Quran / Torah / Bible have a lot to teach. Inspiring science fiction and history of fandom of science fiction. It is the failure to adopt MLK Jr's reformations and Malala's reformation of the Levant science fiction trilogy that I criticize since 1948. James Joyce's monomyth gumbo, Finnegans Wake. People will not accept that the metaphors translate from old Torah monomyth patterns to new The Matrix 1999 patterns, or Star Wars 1977 patterns. Inspiring science fiction storytelling. Ultimately, Malala seems better at pointing to goodness AND getting published for it than clergy that is still locked in out-group hate as Campbell described in 1987 Power of Myth published 1988. Including hate of Earth. ... ... ...
-* * "Now, the biblical tradition is a socially oriented mythology. Nature is condemned. In the nineteenth century, scholars thought of mythology and ritual as an attempt to control nature. But that is magic, not mythology or religion. Nature religions are not attempts to control nature but to help you put yourself in accord with it. But when nature is thought of as evil, you don’t put yourself in accord with it, you control it, or try to, and hence the tension, the anxiety, the cutting down of forests, the annihilation of native people. And the accent here separates us from nature." - age 83, Joseph Campbell, 1987
+* * "Now, the biblical tradition is a socially oriented mythology. Nature is condemned. In the nineteenth century, scholars thought of mythology and ritual as an attempt to control nature. But that is magic, not mythology or religion. Nature religions are not attempts to control nature but to help you put yourself in accord with it. But when nature is thought of as evil, you don’t put yourself in accord with it, you control it, or try to, and hence the tension, the anxiety, the cutting down of forests, the annihilation of native people. And the accent here separates us from nature." - age 83, Joseph Campbell, year 1987
 
 
 &nbsp;
