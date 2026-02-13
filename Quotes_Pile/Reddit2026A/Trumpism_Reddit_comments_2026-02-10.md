@@ -751,3 +751,12 @@ https://old.reddit.com/r/politics/comments/1r3b7ot/trump_79_sparks_health_concer
 https://old.reddit.com/r/politics/comments/1r3b7ot/trump_79_sparks_health_concerns_with_bizarre/o537ets/
 
 https://old.reddit.com/r/politics/comments/1r3b7ot/trump_79_sparks_health_concerns_with_bizarre/o53h1uv/
+
+https://old.reddit.com/r/nextfuckinglevel/comments/1r3d2so/someone_found_a_way_to_lets_say_convert_so_called/o53lwks/
+
+https://old.reddit.com/r/nextfuckinglevel/comments/1r3d2so/someone_found_a_way_to_lets_say_convert_so_called/o53goum/
+
+"laughable", predictable brain exploit. SURKOV_WARFARE 
+
+The reply about "downfall" from incompetence can not grasp Surkovian information warfare and how cults of entertainment and cults of Fox News and cults of Bible work. The bible is science **fiction**. Cult storytelling of magical powers. God scan do *anything*, kill, burn forests down, earthquakes. When you get a population of people treating it as fiction content to amuse over, mythological thinking, magical thinking, cult thinking, ANYTHING GOES. Study L. Run Hubbard, people!
+
