@@ -220,3 +220,7 @@ Social post { https://Bsky.App/profile/roundsparrow.bsky.social/post/3meqsmhyj5c
 https://old.reddit.com/r/circled/comments/1r3ozbf/our_president_is_a_laughing_stock_around_the_world/o55wzrz/
 
 There it is again... the **Trump hate-worship enablers on Reddit still making comments** and not REDDIT_BLACKOUT to promote serious nonfiction mental health education and teaching from Dr. Bandy X Lee assembled 27 contributors!
+
+https://old.reddit.com/r/news/comments/1r3qjln/trumps_cdc_is_canceling_600m_in_hiv_and_std_funds/o563be4/
+
+PRO_DISEASE as programmed by the Saint Petersburg Internet Research Agency from year 2014 onward. With factual evidence of mental manipulation validated by Johns Hopkins University and George Washington University. August 24, 2018 this **public information warfare warning** was covered all across the world news networks. https://www.BBC.com/news/world-us-canada-45294192
