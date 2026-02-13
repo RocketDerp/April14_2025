@@ -1074,3 +1074,10 @@ Mythology and fiction has been proven far more popular as a way of governing. Su
 https://old.reddit.com/r/technology/comments/1r40e0c/ftc_wants_apple_news_to_promote_more_fox_news_and/o58pq0g/
 
 Beyond stupid are the commenting communities on Reddit that avoid serious nonfiction books. And avoid building FAQ and Wiki systems to get every person on the same page of important topics in getting USA back on track to nonfiction science teaching and learning for adults. Instead, commenting sections all over the Internet are full of people commenting how stupid and dumb and idiot and moron everything is all the time year after year since year 2013.
+
+https://old.reddit.com/r/technology/comments/1r40e0c/ftc_wants_apple_news_to_promote_more_fox_news_and/o58pufr/
+
+The posting topic here is Apple computers / Apple iPhone / Apple iPad. Reddit commenting section can't be bothered to turn to serious nonfiction sources on these critical important society topics. This book was published BEFORE the Apple iPhone went on sale in middle of year 2007! Nearly TWO DECADES ago Dew Curtis published a book on this relevant subject, but Reddit fandoms of low-effort commenting at high speeds can't be bothered to seek out a public library and learn from nonfiction books on paper:
+
+* "however a lot of what people want isn't news, and we're talking about **news sources giving up on their core mission - informing us. Journalism is straying into entertainment**. The lines between serious news segments, news entertainment, and **news comedy** are blurring" - Drew Curtis in interviews about his new book. Wednesday **May 23, 2007**. https://www.cbsnews.com/news/farks-drew-curtis-on-how-news-isnt-news/
+* * SEE_ALSO https://GitHub.com/GreatSealUSA/Brainrot_Society_47/blob/main/Crap_as_News/Drew_Curtis_FARK-com_Crap_as_News.md
