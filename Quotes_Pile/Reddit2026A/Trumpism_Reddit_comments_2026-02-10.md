@@ -1081,3 +1081,11 @@ The posting topic here is Apple computers / Apple iPhone / Apple iPad. Reddit co
 
 * "however a lot of what people want isn't news, and we're talking about **news sources giving up on their core mission - informing us. Journalism is straying into entertainment**. The lines between serious news segments, news entertainment, and **news comedy** are blurring" - Drew Curtis in interviews about his new book. Wednesday **May 23, 2007**. https://www.cbsnews.com/news/farks-drew-curtis-on-how-news-isnt-news/
 * * SEE_ALSO https://GitHub.com/GreatSealUSA/Brainrot_Society_47/blob/main/Crap_as_News/Drew_Curtis_FARK-com_Crap_as_News.md
+
+https://old.reddit.com/r/technology/comments/1r40e0c/ftc_wants_apple_news_to_promote_more_fox_news_and/o58qhbq/
+
+https://old.reddit.com/r/technology/comments/1r40e0c/ftc_wants_apple_news_to_promote_more_fox_news_and/o58ql53/
+
+https://old.reddit.com/r/technology/comments/1r40e0c/ftc_wants_apple_news_to_promote_more_fox_news_and/o58slm3/
+
+Self-centered egoism that the problem is just own person doing personal blocking. Day after day, Trump the Reality TV star and Putin's Kremlin keep showing that media is leading the society... but denial abounds on Reddit year after year as to Trump's success and power growth since June 16, 2015. DENIAL_ABOUNDS
