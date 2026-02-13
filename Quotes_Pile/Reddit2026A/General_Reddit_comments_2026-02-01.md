@@ -281,3 +281,92 @@ https://old.reddit.com/r/Animemes/comments/1r2pb2v/bro_got_zero_rizz_unlike_himm
 CHOICE_MARRIAGE_HONESTY 
 
 Social post { https://autistics.life/@RoundSparrow/116058384697057295 https://bsky.app/profile/roundsparrow.bsky.social/post/3meocwoxoe22z }
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1r31xe7/petah_whats_the_joke_why_would_she_be_good_on_the/o512qpx/
+
+And brain-damaging NFL football square-logic Charlie Brown Lucy American football blockhead thinking on social media screen shot. https://www.brenthartinger.com/p/should-charlie-brown-have-been-allowed/comments
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1r31xe7/petah_whats_the_joke_why_would_she_be_good_on_the/o517p9o/
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1r31xe7/petah_whats_the_joke_why_would_she_be_good_on_the/o519499/
+
+https://old.reddit.com/r/MurderedByWords/comments/1r38fce/record_first_name_wrong/o52iue2/
+
+In twitter-logic tweet-thinking this "engagement" of landing on the front page of Reddit is all the society programming we should keep prizing. It's not as if we have seen enough examples of this mindset being exploited and actively handed down to children joining the Internet. Neil Postman was correct in his 1985 book about media ecology.
+
+https://old.reddit.com/r/moistcr1tikal/comments/1r1j49t/update_on_the_anti_meme_moderator_couple/o4pyrzh/
+
+https://old.reddit.com/r/moistcr1tikal/comments/1r1j49t/update_on_the_anti_meme_moderator_couple/o4q2d3e/
+
+https://old.reddit.com/r/moistcr1tikal/comments/1r1j49t/update_on_the_anti_meme_moderator_couple/o4q1b98/
+
+https://old.reddit.com/r/moistcr1tikal/comments/1r1j49t/update_on_the_anti_meme_moderator_couple/o4q2om3/
+
+https://old.reddit.com/r/moistcr1tikal/comments/1r1j49t/update_on_the_anti_meme_moderator_couple/o4q0617/
+
+https://old.reddit.com/r/moistcr1tikal/comments/1r1j49t/update_on_the_anti_meme_moderator_couple/o4q0f65/
+
+https://old.reddit.com/r/moistcr1tikal/comments/1r1j49t/update_on_the_anti_meme_moderator_couple/o4r0q4w/
+
+https://old.reddit.com/r/moistcr1tikal/comments/1r1j49t/update_on_the_anti_meme_moderator_couple/o4qqfwy/
+
+https://old.reddit.com/r/moistcr1tikal/comments/1r1j49t/update_on_the_anti_meme_moderator_couple/o4q1rj4/
+
+https://old.reddit.com/r/moistcr1tikal/comments/1r1j49t/update_on_the_anti_meme_moderator_couple/o4quuni/
+
+https://old.reddit.com/r/moistcr1tikal/comments/1r1j49t/update_on_the_anti_meme_moderator_couple/o4q6fr8/
+
+https://old.reddit.com/r/moistcr1tikal/comments/1r1j49t/update_on_the_anti_meme_moderator_couple/o4q9r5i/
+
+https://old.reddit.com/r/moistcr1tikal/comments/1r1j49t/update_on_the_anti_meme_moderator_couple/o4qajey/
+
+People have zero sense that 1) RFK Jr has been in charge of USA health care and disease control for more than a year. 2) A reality TV star has a cult to fiction so strong. 3) Rupert Murdoch media systems have cults that love fiction and believe it. 4) Elon Musk, richest man in the world, purchased an entire cult of Twitter media and it was not the great failure Reddit users often claim it to be. - People can not imagine hate-watching and mocking is cult behaviors.
+
+https://old.reddit.com/r/moistcr1tikal/comments/1r1j49t/update_on_the_anti_meme_moderator_couple/o4q8j8n/
+
+https://old.reddit.com/r/moistcr1tikal/comments/1r1j49t/update_on_the_anti_meme_moderator_couple/o4q92iq/
+
+https://old.reddit.com/r/moistcr1tikal/comments/1r1j49t/update_on_the_anti_meme_moderator_couple/o4qon4d/
+
+https://old.reddit.com/r/moistcr1tikal/comments/1r1j49t/update_on_the_anti_meme_moderator_couple/o4rfsuw/
+
+https://old.reddit.com/r/moistcr1tikal/comments/1r1j49t/update_on_the_anti_meme_moderator_couple/o4q66ns/
+
+https://old.reddit.com/r/moistcr1tikal/comments/1r1j49t/update_on_the_anti_meme_moderator_couple/o4rjrcs/
+
+https://old.reddit.com/r/moistcr1tikal/comments/1r1j49t/update_on_the_anti_meme_moderator_couple/o4qiu4y/
+
+https://old.reddit.com/r/Cr1TiKaL/comments/1r1n2ki/yesterday_a_reddit_mod_made_a_missing_post_for/o4qrwrs/
+
+https://old.reddit.com/r/Cr1TiKaL/comments/1r1n2ki/yesterday_a_reddit_mod_made_a_missing_post_for/o4qx95l/
+
+https://old.reddit.com/r/Cr1TiKaL/comments/1r1n2ki/yesterday_a_reddit_mod_made_a_missing_post_for/o4qv53p/
+
+https://old.reddit.com/r/Cr1TiKaL/comments/1r1n2ki/yesterday_a_reddit_mod_made_a_missing_post_for/o4rbsxz/
+
+https://old.reddit.com/r/Cr1TiKaL/comments/1r1n2ki/yesterday_a_reddit_mod_made_a_missing_post_for/o4satjj/
+
+https://old.reddit.com/r/Cr1TiKaL/comments/1r1n2ki/yesterday_a_reddit_mod_made_a_missing_post_for/o4ru4ns/
+
+https://old.reddit.com/r/Cr1TiKaL/comments/1r1n2ki/yesterday_a_reddit_mod_made_a_missing_post_for/o4s6pae/
+
+https://old.reddit.com/r/Cr1TiKaL/comments/1r1n2ki/yesterday_a_reddit_mod_made_a_missing_post_for/o4t6ifj/
+
+https://old.reddit.com/r/Cr1TiKaL/comments/1r1n2ki/yesterday_a_reddit_mod_made_a_missing_post_for/o4u7kzn/
+
+https://old.reddit.com/r/Futurology/comments/1r3flg9/microsoft_ai_ceo_most_if_not_all_whitecollar/o543fq2/
+
+https://old.reddit.com/r/RandomVideos/comments/1r3k810/sarcastic_senior_citizen/o55jeso/
+
+these subjective tests and measures people are so confident about wreck the lives of autistic people. Every where you go, people think you are not telling the truth base don tone and body language, etc. I've read and heard the same patterns from thousands of people in autism support groups since year 2009. People think people are drunk or on drugs because of motor skill issues, speech patterns, etc. Mentally different people are treated like crap.
+
+https://old.reddit.com/r/RandomVideos/comments/1r3k810/sarcastic_senior_citizen/o54x5vj/
+
+And if you act nervous because you are living under a police state or ICE state in year 2025 and year 2026... your nervousness around government power abusers will be interpreted as a sign of guilt over *something*. Trumpism PTSD / CPTSD. https://www.expressnews.com/columnist/elaine-ayala/article/trump-executive-order-mental-health-20160710.php "February 12, 2025 — It's a new form of PTSD — President Trump Stress Disorder — tied not just to the stresses involving his policies but the relationship..."
+
+https://old.reddit.com/r/RandomVideos/comments/1r3k810/sarcastic_senior_citizen/o55h69n/
+
+In a police state, the concern is superficial English on Reddit. Not We the People rising up to REMOVE the attitudes of dictators from society, but to make sure immigrants are harassed for possibly not using American English correctly. Language bigotry. Language as a tool of conformity instead of having any diversity or acceptance. Like a dress code rule, The Handmaiden's Tale society of mechanized dehumanizing concerns of personal expressions. People aren't allowed to be drunk, tired, worn out or impaired in any way and sound like sweet-sweet ChatGPT technically correct language.
+
+https://old.reddit.com/r/RandomVideos/comments/1r3k810/sarcastic_senior_citizen/o54uxjr/
+

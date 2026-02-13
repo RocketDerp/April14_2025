@@ -34,9 +34,9 @@ Front page of Reddit social media (read-it social media, reading).
 
 https://old.reddit.com/r/whenthe/comments/1oj28kg/i_know_what_kind_of_man_you_are/
 
-The simplistic mind reading of a single word choice. The power USA police have to detect a situation based on 15 seconds of obervation and listening. (Police in USA / I.C.E. in USA have very poor and limited training on how mass mind (Howard Bloom terminology) / mass man (Marshall McLuhan terminology) / society operating system works). Tower of Babel language that you can determine some great important topic by use of "negro" vs. "black" vs. "African-American", or "female" vs "women". And that the age and education and even the mental overlaod of the person in word choice. Are they very tired, have they not slept well for 96 hours and they choose the word "female" over "women" or other words? Choosing "person" over "woman" or the word "person" over "female"? How one single world choice is prized and interpreted as mutual comprehension and undestanding on a massive scale. Micro vs. macro scale of a single world choice.
+The simplistic mind reading of a single word choice. The power USA police have to detect a situation based on 15 seconds of observation and listening. (Police in USA / I.C.E. in USA have very poor and limited training on how mass mind (Howard Bloom terminology) / mass man (Marshall McLuhan terminology) / society operating system works). Tower of Babel language that you can determine some great important topic by use of "negro" vs. "black" vs. "African-American", or "female" vs "women". And that the age and education and even the mental overload of the person in word choice. Are they very tired, have they not slept well for 96 hours and they choose the word "female" over "women" or other words? Choosing "person" over "woman" or the word "person" over "female"? How one single world choice is prized and interpreted as mutual comprehension and understanding on a massive scale. Micro vs. macro scale of a single world choice.
 
-This is exactly the crisis that Finnegans Wake year 1924, James Joyce, is highlighting... the Tower of Babel problem. The Jewish Israel vs. Muslim Mecca vs. Christian vs. non-believer, gentile, infidel, out-group languge and word choice toxic clergy teachings.
+This is exactly the crisis that Finnegans Wake year 1924, James Joyce, is highlighting... the Tower of Babel problem. The Jewish Israel vs. Muslim Mecca vs. Christian vs. non-believer, gentile, infidel, out-group language and word choice toxic clergy teachings.
 
 "I know what kind of man you are" - why does it not apply to women? Why only "man"? is that meaning "mankind"? It applies to age 16 India as well as age 45 Canada or New Zealand use of English?
 
@@ -51,4 +51,12 @@ https://autistics.life/@RoundSparrow/115635432850815789
 
 Especially "black box" input / output specifications of an API or hardware chip. Where you document all the behavior as an external user without studying the code itself / running in a debugger / doing system call traces. But strictly as an API client. Trying to turn binary BLOB device drivers into source code for my mind was a massive skill learn. Lots of stuff to load into the mind at once to reproduce a closed-source device driver say from Windows 10 over to Ubuntu Linux 24.04
 
+
+
+&nbsp;
+
+# Quinn on Library of Babel
+
+https://www.youtube.com/watch?v=pycksQM5iC4    
+The Existential Nature of Infinity | The Library of Babel   
 

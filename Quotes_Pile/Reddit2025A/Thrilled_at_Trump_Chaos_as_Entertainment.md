@@ -1,6 +1,6 @@
 # Thrilled at Surkovian Governing
 
-NOTE: Lest you believe I take words like "funny" too literally, not as in "odd" or that people are being sarcastic... I remind you that context of commenting about it on social media, ironically or otherwise, is social media engagement of the Surkovian poison apple kind. Donald Trump's power is making EVERY HOUR of EVERY DAY of United States of America life exciting and thrilling what the Hunger Games white men ruling the nation are going to do / say / chaos next. [Electric Torah song from July 1973 applies to Donald Trump MAGA Fox News politics March 2013 onward, Lyrics: *"And for the coup de grace: they're outrageous!"*](https://www.youtube.com/watch?v=-h-crmBPHb4)
+NOTE: Lest you believe I take words like "funny" too literally, not as in "odd" or that people are being sarcastic... I remind you that context of commenting about it on social media, ironically or otherwise, is social media engagement of the Surkovian poison apple kind. Donald Trump's power is making EVERY HOUR of EVERY DAY of United States of America life exciting and thrilling with the Hunger Games white men ruling the nation are going to do / say / chaos next. [Electric Torah song from July 1973 applies to Donald Trump MAGA Fox News politics March 2013 onward, Lyrics: *"And for the coup de grace: they're outrageous!"*](https://www.youtube.com/watch?v=-h-crmBPHb4)
 
 Much of the *thrill* is that *the other group* is trained, predictable - while having zero self-awareness of Russian information warfare / how Putin has been in power for decades. [Eating the Surkovian Onions](Surkovian_Onion_Eating.md)
 
@@ -807,3 +807,6 @@ PalpitationNew2896 2024-12-03
 Like, 250 years later, America gets its first to take a crack at the dictator game and *this disgusting blob of a human being* is the best we can offer? Does he reflect the American culture in some twisted way? I suppose so."
 
 Reddit society / Twitter society can't imagine Russian information warfare is based on absurd surreal humor, Eats it up every time.
+
+* NOTE: 2026-02-12 I just clicked that Reddit link now... and comment ndc1u8r from 2025-09-09 21:03:16  is now nuked, gone. PalpitationNew2896 - the user is still active 3 weeks ago https://old.reddit.com/user/PalpitationNew2896
+

@@ -516,3 +516,397 @@ Why are Reddit comment creators not quoting intelligent Dr. Bandy X Lee's 27 con
 https://old.reddit.com/r/Fauxmoi/comments/1r2hq5l/trump_allegedly_bragged_to_friends_about_affair/o4x71mv/
 
 Reddit is a cult of hate-watchers. https://en.wikipedia.org/wiki/Hate-watching Reddit comments from hate-watching fandom of Trump. Horror film, horror media fandom. Attracted to horror content and imagining the horror happening to their own self. Reality TV "The Apprentice" but horror content / abuse content pornography. 
+
+https://old.reddit.com/r/politics/comments/1r2uqql/dr_oz_becomes_the_latest_trump_official_in_the/o4zj6y0/
+
+Neil Postman was correct in his 1985 nonfiction book 'Amusing'. Top-voted popular comment "hilarious".
+
+Reddit meme addicts are protecting their main source of amusement and comedy. This isn't a 79 year old senile dementia man on the front page of Reddit in this posting. But people on Reddit can not stop their compulsive commenting... and use the power of Reddit to do a massive REDDIT_BLACKOUT BLUESKY_BACKOUT and promote Dr. Bandy X Lee's 27 contributors from an October 3, 2017 nonfiction book.
+
+https://old.reddit.com/r/politics/comments/1r2uqql/dr_oz_becomes_the_latest_trump_official_in_the/o4zi8f5/
+
+Reddit audience with Twitter-length short-message thinking patterns. Fandom of Trump. Fandom of calling humans 'motherfucker' as a form of audience hate-watching https://en.wikipedia.org/wiki/Hate-watching a reality TV celebrity (Donald Trump playing character Tony Clifton SNL NYC home town performance character). Reddit audience thinks that sex acts of Epstein is the ONLY evil. The health care system is killing women, the abortion laws are killing and enslaving women, all kinds of billionaire worship deeds. Reddit is a playground of no-identity people who are manipulated and fucked up. FUBAR Reddit hive mind that will not turn to Dr. Bandy X Lee's leadership and start HEALING and FIXING the widespread Twiter-logic thinking that Trump has used to manipulate the world.
+
+https://old.reddit.com/r/politics/comments/1r2uqql/dr_oz_becomes_the_latest_trump_official_in_the/o4zjamt/
+
+"insane". 
+
+It is INSANE how many people do not listen to the women in their life. In my high school, Snider High in Fort Wayne Indiana - I distinctly remember year 1984 and 1985 etc. listening to girls talk to each other about the older men that were giving them gifts and secret affairs. Since I was a book nerd reading in class all the time, they talked right in front of me and I never once was accused of spreading rumors or sharing secrets. Reddit constantly cracks jokes about what it is like in Ohio with men manipulating boys. My mother is from Ohio, my father is from Ohio, my two brothers are from Ohio. https://ohiocapitaljournal.com/2025/07/11/in-new-documentary-former-ohio-state-wrestlers-say-u-s-rep-jim-jordan-knew-about-strauss-abuse/ The abuse men do **to other men** and girls younger than them is suburban Ohio and Indiana - and I expect all over USA. It isn't just wealthy billionaires. Hot girls in my high school classrooms were not afraid to discuss their "weekend and night outings" at age 14 and age 15. But men DO NOT LISTEN. Men do not READ BETWEEN THE LINES. People in my high school couldn't read between the lines of hot girls talking any more than reading between the lines of Shakespeare or James Joyce! People were too busy fixated on keeping balls in rectangle lines as competition. The hot age 14 and age 15 girls were targeted and prized by charming men over age 30! But Reddit behaves like only Epstein USA has this going on, not "Christian culture USA, Football Culture USA". 
+
+People couldn't read between the lines of December 11, 1987 Indianapolis Indiana song on the Frequency Modulation radio lyrics either. "LOOK HERE" is the fucking title of the song, READ BETWEEN THE LINES! Age 14 age 15 girls are not the most impossible language to crack, it isn't Bible level Romans 11:32 verse encryption! OPERA_A https://www.youtube.com/watch?v=8qxDBiiVjlQ 
+11,502,148 views October 5, 2009 LYRICS: Million young VOICES... SCREAMING OUT to be FUCKING LISTENED TO. But men do not fucking LISTEN! "I hope they have a better understanding". Adults go to work on Monday. Own a house. Fucking little girls who are hot at age 14 in my high school class. CHECK IT OUT, LOOK HERE! "Still the Young Lions". Hot girls like attention, INSANE! And they like it from OLDER MEN. That is why you EDUCATE and TEACH YOUNG GIRLS like Malala in Swat Valley Pakistan is saying! It isn't just EPSTEIN on his private jet and private island. FUCKING LISTEN!!! "All we have learned about living" is fucking-over little girls! Read Malala's god-damn January 3, 2009 blog, Arab Spring, WAKE THE FUCK UP USA! You have the WHOLE INTERNET to listen to hot girls at age 14! "MAYBE SOME DAY THOSE WORDS WILL BE HEARD" - December 11, 1987 Indiana. "Here a seventh grade schoolgirl from Swat chronicles how the ban has affected her and her classmates." http://news.bbc.co.uk/2/hi/south_asia/7834402.stm
+
+https://old.reddit.com/r/therewasanattempt/comments/1r2u9s7/to_scare_people_into_not_pursuing_the_release_of/o4zeguy/
+
+People have ignored the teenage abortion and teenage pregnancy issues right on their own fucking street and in their own school classrooms. **MEN DO NOT HEAR THE CRIES OF WOMEN**! HERE_COMES_EVERYBODY HEAR_COMES_EVERYBODY EARWICKER_TAGS Men are such terrible listening to women and girls. The intercourse dialog crisis of humanity, Tower of Babel between genders and age groups.
+
+* "Approximately 617,000 pregnancies occur among adolescent women aged 15–19 in Pakistan annually, with a pooled prevalence of around 42.5% as of recent surveys. Roughly 36% of these pregnancies are unintended, and 58% of those unintended pregnancies end in abortion. Early childbearing is largely driven by early marriage, affecting the health of young mothers." - Google Search summary 2026-02-12 late morning USA
+
+OPERA_A gee, do The Who fans LISTEN, do they fucking HEAR? 1969, year I was born, DO PEOPLE FUCKING LISTEN AT ALL BETWEEN THE LYRIC AND LANGUAGE LINES? Do people not listen to the girls in their middle school and high school class talking about older men? BETWEEN THE LINES? UNCLE_ERNIE https://www.youtube.com/watch?v=AOo1uhHb-jk "The Who - Do You Think It's Alright (2)/Fiddle About (Tommy: The Movie)" - Lyrics: "Had a few too many tonight" 128,662 views April 11, 2020 It is not just Pakistan!
+
+* “We felt like the Taliban saw us as like **little dolls to control**, telling us what to do and how to dress. I thought if God wanted us to be like that He would not have made us all different.”
+― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. Swat Valley Pakistani stories. Published October 8, 2013 in ENGLISH language, available globally.
+
+READ BETWEEN THE FUCKING LINES! THE SILENCE OF GIRLS AND HOW AFRAID ADULT WOMEN ARE OF SEX! YOUR GIRLFRIEND AT AGE 24, YOUR WIFE AT AGE 30! BILLIONAIRES AND NFL SPORTS AND NBA SPORTS AND ALL THE SYSTEMIC UNIVERSITY ABUSE! 
+
+* “When the whole world is silent, even one voice becomes powerful.”
+― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. Published October 8, 2013. NONFICTION!
+
+My father went to Ohio State. He was a powerful popular executive for powerful corporation. https://ohiocapitaljournal.com/2025/07/11/in-new-documentary-former-ohio-state-wrestlers-say-u-s-rep-jim-jordan-knew-about-strauss-abuse/
+
+What the fuck did people think Malala was getting a bullet in the head for giving a voice to young girls? Why the fuck do Reddit users only "wake up" and "stand up" for billionaires with private jets and private islands!!! Epstein bullshit ultra-rich, what do you think PUTIN is doing to Ukraine since year 2013!
+
+Social post { https://autistics.life/@RoundSparrow/116058964965813707 https://bsky.app/profile/roundsparrow.bsky.social/post/3meol5qlc3s22 }
+
+https://old.reddit.com/r/pics/comments/1r2z07v/border_czar_tom_homan_announcing_today_that_ice/o50hbkp/
+
+8 month Reddit account. Top upvoted popular comment.
+
+https://old.reddit.com/r/pics/comments/1r2z07v/border_czar_tom_homan_announcing_today_that_ice/o50hpuj/
+
+Simple-think. NATO has been entirely re-arranged by Putin and Trump. The USA is imploding into an explosion, the caloric density of meme-think Twitter-length short-message mind patterns, circling between media platform to media platform (media ocean to media ocean, medium to medium, media ecology to media ecology, media environment to media environment at higher and higher reaction twitching speeds). Cramming neurodiversity nation into tiny-think Apple iPhone meme screen images. We The People on Reddit, as programmed by the Saint Petersburg IRA, have boiled away all the water of life to simplistic bare wires.
+
+* "Quixote saved the adventure for himself by inventing a magician who had just transformed the giants he had gone forth to encounter into windmills. You can do that, too, if you have a poetic imagination. Earlier, though, it was not a mechanistic world in which the hero moved but a world alive and responsive to his spiritual readiness. Now it has become to such an extent a sheerly mechanistic world, as interpreted through our physical sciences, Marxist sociology, and **behavioristic psychology, that we’re nothing but a predictable pattern of wires responding to stimuli**. This nineteenth-century interpretation has squeezed the freedom of the human will out of modern life." - age 83, published year 1988.
+
+https://old.reddit.com/r/reactiongifs/comments/1r30pl0/mrw_i_learn_that_pam_bondi_was_the_florida/o50u4zt/
+
+4 month Reddit account. Joined in Putin's birthday (not that this fact has deep meaning).
+
+https://old.reddit.com/r/reactiongifs/comments/1r30pl0/mrw_i_learn_that_pam_bondi_was_the_florida/o51445a/
+
+https://old.reddit.com/r/circled/comments/1r2v5ub/americas_top_cop_cant_even_look_at_j_es_survivors/o4zl98y/
+
+But the 3-word parroting. But the mocking and back-mocking. But the feedback looping of total mockery since March 2013 that Saint Petersburg IRA seeded on Reddit! But the DOW symbolism manipulation in Reddit audience minds and Fox News HDTV audience minds. The symbolism cults that nobody wants to address with Dr. Bandy X Lee's nonfiction book from October 3, 2017 ... which has 27 contributors!
+
+https://old.reddit.com/r/circled/comments/1r2v5ub/americas_top_cop_cant_even_look_at_j_es_survivors/o4zndbu/
+
+But she has hundreds of millions of fandoms. An empowered performer doing Tony Clifton acting for Reddit fandoms of hate-watching. She stimulates the audience to mock an mock and avoid nonfiction learning. She is part of the leaders of hate-worship that Reddit hate-fandom follows. ANYTHING but see We The People of Reddit as a cult of hate-watching MAGA Trump Epstein. https://en.wikipedia.org/wiki/Hate-watching
+
+https://old.reddit.com/r/circled/comments/1r2v5ub/americas_top_cop_cant_even_look_at_j_es_survivors/o4zmaso/
+
+15 day Reddit account mocking away with Twitter-length shit-commenting shit-posting MAGA-think values of Elon Musk Tweet-thinking systems. Out-group hate programming for Reddit audiences. Reddit mind-fucking. Instead of REMOVING Trump from office by quoting and repeating Dr. Bandy X. Lee's nonfiction book from October 3, 2017 - stick inside Reddit making lazy low-effort comments about how We The People parrot billionaire talking points about oil and gasoline prices. Reddit fandoms to the White House eat this shit up as "engagement" commenting. Cult of crap media commenting is Reddit.
+
+https://old.reddit.com/r/politics/comments/1r31glr/pam_bondi_faces_impeachment_calls_after_combative/o50yd7k/
+
+4 month Reddit account. Top-upvoted popular comment. "insane"
+
+https://old.reddit.com/r/politics/comments/1r31glr/pam_bondi_faces_impeachment_calls_after_combative/o50zcka/
+
+https://old.reddit.com/r/politics/comments/1r31glr/pam_bondi_faces_impeachment_calls_after_combative/o50yvre/
+
+The entire cult of Reddit to "the administration" needs cult deprogramming. Media cultists are the entire population of USA now in February 2026. It may have started with Twitter and Trump cultists July 6, 2011 https://theOutline.com/post/2445/trump-s-first-real-tweet-was-on-july-6-2011 but it has grown since January 2024 to be EVERYONE in cults of hate. Deepest faith in mocking. Deepest faith in total mockery back and forth MAGA to anti-MAGA, MAGA to Canada, etc. Reddit and Bluesky are cults of MAGA mocking, ICE insulting, hate messaging. Hate corrupts perspective of the forest for the trees, people are comparatively focused on the out-group. Surkov won.
+
+* "For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the **true becomes false and the false becomes true**. That's what hate does. You can't see right. **The symbol of objectivity** is lost." - Martin Luther King Jr.
+
+https://old.reddit.com/r/politics/comments/1r31glr/pam_bondi_faces_impeachment_calls_after_combative/o510f82/
+
+https://old.reddit.com/r/politics/comments/1r31glr/pam_bondi_faces_impeachment_calls_after_combative/o517frs/
+
+REDDIT_BLACKOUT why are Reddit users not organizing a sustained blackout protest? Why are Reddit commenting community not quoting nonfiction books from Dr. Bandy X Lee about the mental health of the cults? Instead, just commenting as if We The People of the world shouldn't be doing cult deprogramming and education! Why is REDDIT and BLUESKY not protesting?
+
+https://old.reddit.com/r/Fauxmoi/comments/1r2ydu4/jimmy_kimmel_on_pam_bondi_its_like_speaking_to_a/o50bww3/
+
+6 month Reddit account. Most popular upvoted comment. Comedy fun for fandoms of Trump White House Staff. CONTEXT FANDOM ASSERTION AND REMINDER: "Trump has appeared on Jimmy Kimmel Live three times" https://www.rollingstone.com/tv-movies/tv-movie-news/jimmy-kimmel-donald-trump-late-night-claims-1235134928/
+
+https://old.reddit.com/r/AdviceAnimals/comments/1r31611/wheres_their_outrage_now/o50x5a1/
+
+10 month Reddit account.
+
+1. Downplaying QAnon pushed by Russia, no mention: https://www.independent.co.uk/news/world/americas/us-election-2020/qanon-russia-conspiracy-theory-trump-2020-election-b1536946.html ( a NON USA news source, not domestic news, world news incoming )
+
+2. I personally created /r/QAnonRussia subreddit to educate the community and educate Google search engines: https://old.reddit.com/r/QAnonRussia July 28, 2021 when it was becoming more and more clear that January 6, 2021 wasn't being taken serious (concerning the IRA, Putin, Russia) by the Trump mocking Trump hate fandoms on Reddit.
+
+https://old.reddit.com/r/AdviceAnimals/comments/1r31611/wheres_their_outrage_now/o50z8r1/
+
+15 day Reddit account.
+
+https://old.reddit.com/r/AdviceAnimals/comments/1r31611/wheres_their_outrage_now/o51fnva/
+
+https://old.reddit.com/r/AdviceAnimals/comments/1r31611/wheres_their_outrage_now/o50xrff/
+
+Almost like Reddit comment section is using tiny-short Twitter-length messages to avoid off-Reddit URL.  QAnon pushed by Russia, no mention: https://www.Independent.co.UK/news/world/americas/us-election-2020/qanon-russia-conspiracy-theory-trump-2020-election-b1536946.html ( a NON USA news source, London, not domestic news, world news incoming )
+
+https://old.reddit.com/r/andor/comments/1r2xkal/given_recent_events/o503cds/
+
+Star Wars fandom on Reddit always avoids the NONFICTION book Bill Moyers and George Lucas put together for education about the founding fathers of the USA.
+
+https://old.reddit.com/r/andor/comments/1r2xkal/given_recent_events/o505p1m/
+
+Suckers, Gullible Reddit users. Thinks the incompetence is accidental. Eating the Surkov onions. Reddit fandom of Star Wars can not engage nonfiction learning on White House Russia media techniques. "Eating the Onion" that the antics and drama are not deliberate Surkovian methods of governing. SEE_ALSO https://GitHub.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Reddit2025A/Surkovian_Onion_Eating.md
+
+https://old.reddit.com/r/andor/comments/1r2xkal/given_recent_events/o505c9k/
+
+TRUMP_FANDOM Why are these "rebels" on Reddit commenting section not being serious and organizing a Reddit-initiated rebellion? REDDIT_BLACKOUT - why are they not calling for a social media blackout protest which is proven to make headlines all over the world news? COMPREHENDING_TRUMP UNDERSTANDING_TRUMP to comprehend and understand Trump fanatics on Reddit, such as the one making this specific comment, look at how they are wishing for more media content. Trump is a media creator, he is not a valid choice as governor, but Star Wars: Andor is **fiction**, and they are wanting HBO to make more dramafiction content. They do not wish to REMOVE TRUMP, because that cuts off the source of stimulating fiction for their cult addictions to Trumpism / MAGA / Putinism. Surkov won since March 2013.
+
+https://old.reddit.com/r/BikiniBottomTwitter/comments/1r32d94/wont_somebody_think_of_the_dow/o51753e/
+
+https://old.reddit.com/r/BikiniBottomTwitter/comments/1r32d94/wont_somebody_think_of_the_dow/o51ht6v/
+
+https://old.reddit.com/r/BikiniBottomTwitter/comments/1r32d94/wont_somebody_think_of_the_dow/o5227w1/
+
+Sponge Bob front page posting context. No off-Reddit URL. No author names. No quotes from nonfiction sources. No book titles, etc. Reddit fandom of Bikini Bottom is the same fandom as Trump Reality TV shows.. fiction vs. fiction. Avoidant of citing factual nonfiction and asserting leaders of nonfiction.
+
+https://old.reddit.com/r/clevercomebacks/comments/1r348xk/why_cause_the_dow_is_50k/o51ks4k/
+
+Minds on Reddit programmed to follow White House media messages. Satire-wash sarcasm-washing it all as entertainment. Instead of calling for an END to the Reality TV governing / Reality White House fiction bullshit, people are hyper normalizing it with Reddit joking. Fandom adopting... following the leadership signals.
+
+https://old.reddit.com/r/clevercomebacks/comments/1r348xk/why_cause_the_dow_is_50k/o51y386/
+
+Reddit fandom. TRUMP_FANDOM South Park fandom of Satan White House fiction. Trump fiction fandoms. So much content created by Trumpsim for Reddit fandoms.
+
+https://old.reddit.com/r/interestingasfuck/comments/1r34m08/skynet_bot_rips_apart_a_truck_on_a_texas_highway/o526zv1/
+
+https://old.reddit.com/r/interestingasfuck/comments/1r34m08/skynet_bot_rips_apart_a_truck_on_a_texas_highway/o51pmml/
+
+https://old.reddit.com/r/PublicFreakout/comments/1r34mq0/rfk_jr_im_not_scared_of_a_germ_i_used_to_snort/o51n5i7/
+
+https://old.reddit.com/r/PublicFreakout/comments/1r34mq0/rfk_jr_im_not_scared_of_a_germ_i_used_to_snort/o51p483/
+
+https://old.reddit.com/r/news/comments/1r320vr/epa_reverses_longstanding_climate_change_finding/o5130ud/
+
+8 month Reddit account. Most popular upvoted comment.
+
+https://old.reddit.com/r/news/comments/1r320vr/epa_reverses_longstanding_climate_change_finding/o512erf/
+
+Where USA Government goes, Reddit fandom follows. The more stupid the federal government leads, the more the fandom avoids nonfiction on Reddit.
+
+https://old.reddit.com/r/videos/comments/1r30rmf/pam_bondi_in_2014_campaign_ad_ill_fight_to_put/o50v7q3/
+
+https://old.reddit.com/r/videos/comments/1r30rmf/pam_bondi_in_2014_campaign_ad_ill_fight_to_put/o50xajl/
+
+https://old.reddit.com/r/videos/comments/1r30rmf/pam_bondi_in_2014_campaign_ad_ill_fight_to_put/o50v5eb/
+
+There have never been more Reddit meme addicts ready to purchase souls of fellow Americans. People who seek out hate leadership of the White House to follow from their Reddit fandom. People who find disaster a form of entertainment on their Reddit app screens. Instead of REDDIT_BLACKOUT having a protest blackout to call for reform and remedial morality teaching lessons for MAGA cult, the Reddit cult has joined in the mockery.
+
+https://old.reddit.com/r/videos/comments/1r30rmf/pam_bondi_in_2014_campaign_ad_ill_fight_to_put/o50xfd6/
+
+https://old.reddit.com/r/videos/comments/1r30rmf/pam_bondi_in_2014_campaign_ad_ill_fight_to_put/o50wxtg/
+
+https://old.reddit.com/r/sports/comments/1r388ar/united_states_vice_president_jd_vance_issues/o52gm6k/
+
+Social media sports-think society loves to deport people with ICE, block people with Reddit cloud computing machines and face-masked secret moderators and admins. Machine-think blocking and book burning is incredibly popular and people don't even recognize that in 1937 Germany had to burn magazines and books on paper with real flame and didn't have block buttons.
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1r39im7/bondi_threatening_rightwing_influencers_if_they/o52qms5/
+
+No, they do not act like children. They command powerful systems and use decades of experience as adults to manipulate other adults. They behave like USA adults who have been mentally manipulated by Putin's Internet Research Agency in Saint Petersburg since March 2013... and whatever new organization names and techniques that copycats and Russia have devised in year 2026. Reddit audiences keep downplaying the threat as mere "children" when NATO has lost an adult information war using the most sophisticated monomyth techniques of the Levant (adapted to modern Internet medium).
+
+https://old.reddit.com/r/UnderReportedNews/comments/1r39p7s/conservative_influencer_erika_kirk_faces_grooming/o52rkc2/
+
+2 month Reddit account. Top upvoted comment, most popular.
+
+Kirk family media empire has a massive hate-watch fandom on Reddit. As soon as a Kirk family topic is posted, it races to the front page /r/All of Reddit.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1r362zl/chris_murphy_trump_nominated_a_legit_white/o520nlq/
+
+2 month Reddit account. Top upvoted comment, most popular.
+
+https://old.reddit.com/r/Epstein/comments/1r30x2l/probably_you_already_know_but_i_found_out_about/o5178k5/
+
+https://old.reddit.com/r/Epstein/comments/1r30x2l/probably_you_already_know_but_i_found_out_about/o51dt3b/
+
+Reddit community refuses to have a REDDIT_BLACKOUT blackout protest and promote Dr. Bandy X Lee's 27 mental health experts. But member of Reddit spend their free time and spare time calling people unhinged and keeping Trump in power by not quoting, promoting, and repeat promoting Dr. Bandy X Lees nonfiction book from October 3, 2017. This fandom of Epstein e-mail messages and details does not want the information show to stop with all the Trump lead methods.. there is no healthy sense or danger that Dr. Bandy X Lee put in the very TITLE of her book! Reddit community avoids promoting authentic goodness leadership that Dr. Bandy X Lee has been providing to the general public / citizens of the nation:
+
+* “Assessing dangerousness is different from making a diagnosis: it is dependent on the situation, not the person. Signs of likely dangerousness due to mental disorder can become apparent without a full diagnostic interview and can be detected from a distance, and one is expected to err, if at all, on the side of safety when the risk of inaction is too great.”
+― Bandy X. Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. Published October 3, 2017. PROLOGUE. Page 5.](https://books.google.com/books?id=g0c4DwAAQBAJ&pg=PA5&dq=dangerousness+due+to+mental+disorder+can+become+apparent+without+a+full+diagnostic+interview+and+can+be+detected+from+a+distance&hl=en&newbks=1&newbks_redir=1&sa=X)
+
+https://old.reddit.com/r/Epstein/comments/1r30x2l/probably_you_already_know_but_i_found_out_about/o51y8tg/
+
+5 month Reddit account.
+
+The cult of celebrity on Reddit wants to keep Trump on stage as long as possible to satisfy the media delivery / notification cult desires. The rich men secrets cultists of Reddit will do EVERYTHING and ANYTHING to avoid calling for a BIG SERIOUS IMMEDIATE REDDIT_BLACKOUT and having Trump removed from office. The amusement and entertainment addictions to the celebrity and status symbol persons information drives all behavior. the URGENT crisis is cult deprogramming so men are not ongoing harming people... the danger is extreme... the information addictions are what We The People on Reddit information platform desire. Instead of promoting and rescuing hearts and mins with Dr. Bandy X Lee's nonfiction education and leadership.
+
+* “The human brain can protect us from seeing and feeling what it believes may be too uncomfortable for us to tolerate. It can lead us to deny, defend, minimize, or rationalize away something that doesn’t fit our worldview.”
+― Dr. Bandy X Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. Published **October 3, 2017**. Page 273. Chapter "TRUMP'S DADDY ISSUES"](https://books.google.com/books?id=g0c4DwAAQBAJ&pg=PA273&dq=%E2%80%9CThe+human+brain+can+protect+us+from+seeing+and+feeling+what+it+believes+may+be+too+uncomfortable%22&hl=en&newbks=1&newbks_redir=1&sa=X)
+
+https://old.reddit.com/r/Fauxmoi/comments/1r39exv/trump_but_i_dont_understand_why_the_jeffrey/o52rl4u/
+
+https://old.reddit.com/r/Fauxmoi/comments/1r39exv/trump_but_i_dont_understand_why_the_jeffrey/o52sbyb/
+
+This is the account that submitted the post. Got it to /r/All front page. 7 month Reddit account.
+
+https://old.reddit.com/r/Fauxmoi/comments/1r39exv/trump_but_i_dont_understand_why_the_jeffrey/o52tt0t/
+
+Bad Bunny is billionaire filmed / billionaire Judy Allen NFL team owner content for Reddit fandom. Instead of doing a serious sustained REDDIT_BLACKOUT and BLUESKY_BLACKOUT and making world press coverage calling for Trump to be removed. People keep acting as if a 15 entertainment show at the Super Bowl was a bit "gotcha" protest. Simulation between Kid Rock and Bad Bunny is corporate profit making, selling music, selling advertising for Jody Allen's team profit brand growth. The macro economics of this "diss track" behavior are great, just like last year Super Bowl "diss track" simulations. Reddit audience is entertained to see Kid Rock defeated. https://en.wikipedia.org/wiki/Puppy_Bowl these days (2026 iPad iPhone era) people have a dozen screens in front of them at family gatherings. https://en.wikipedia.org/wiki/Super_Bowl_counterprogramming
+
+https://old.reddit.com/r/WitchesVsPatriarchy/comments/1r3bqdl/i_will_be_celebrating/o5386zf/
+
+ANYTHING but do a REDDIT_BLACKOUT where WE THE PEOPLE of the USA can demonstrate to the entire world wide web that we have come to our media addiction cult sense and do NOT want antics politics and Reality TV Fox News and Reality Surkov Putinism running our nation any more. Trump's death does NOT demonstrate MEDIA USAGE REFORM of the general population. Cults of Twitter / Elon Musk Twitter / Facebook / Reddit have been the source of Trumpism / MAGA alternate-reality anti-reality! 
+
+We the People have to face up to what Neil Postman wrote in his 1985 nonfiction book "Amusing Ourselves to Death" about Reddit and Twitter! This cult of death is exactly what Trump is leading, a death cult, and this entire Reddit posting I've linked is a death-cult! People need to put GOODNESS, stand up for GOODNESS on social media. More death cult fantasy parties is just following the leadership of MAGA death cult.
+
+Dr. Bandy X Lee's leadership should be repeated and repeated and quoted over and over constant on social media until people can organize the largest cult deprogramming in world history.
+
+https://old.reddit.com/r/politics/comments/1r3b7ot/trump_79_sparks_health_concerns_with_bizarre/o534mjr/
+
+https://old.reddit.com/r/politics/comments/1r3b7ot/trump_79_sparks_health_concerns_with_bizarre/o531qcm/
+
+https://old.reddit.com/r/politics/comments/1r3b7ot/trump_79_sparks_health_concerns_with_bizarre/o531ujt/
+
+https://old.reddit.com/r/politics/comments/1r3b7ot/trump_79_sparks_health_concerns_with_bizarre/o53gphq/
+
+https://old.reddit.com/r/politics/comments/1r3b7ot/trump_79_sparks_health_concerns_with_bizarre/o5341nv/
+
+https://old.reddit.com/r/politics/comments/1r3b7ot/trump_79_sparks_health_concerns_with_bizarre/o534eqb/
+
+https://old.reddit.com/r/politics/comments/1r3b7ot/trump_79_sparks_health_concerns_with_bizarre/o537ets/
+
+https://old.reddit.com/r/politics/comments/1r3b7ot/trump_79_sparks_health_concerns_with_bizarre/o53h1uv/
+
+https://old.reddit.com/r/nextfuckinglevel/comments/1r3d2so/someone_found_a_way_to_lets_say_convert_so_called/o53lwks/
+
+https://old.reddit.com/r/nextfuckinglevel/comments/1r3d2so/someone_found_a_way_to_lets_say_convert_so_called/o53goum/
+
+"laughable", predictable brain exploit. SURKOV_WARFARE 
+
+The reply about "downfall" from incompetence can not grasp Surkovian information warfare and how cults of entertainment and cults of Fox News and cults of Bible work. The bible is science **fiction**. Cult storytelling of magical powers. God scan do *anything*, kill, burn forests down, earthquakes. When you get a population of people treating it as fiction content to amuse over, mythological thinking, magical thinking, cult thinking, ANYTHING GOES. Study L. Run Hubbard, people!
+
+https://old.reddit.com/r/law/comments/1r3bjy5/secret_jared_kushner_gossip_rocks_trumps_inner/o53k7ee/
+
+https://old.reddit.com/r/law/comments/1r3bjy5/secret_jared_kushner_gossip_rocks_trumps_inner/o53hmab/
+
+Again, why isn't Reddit having a blackout protest that makes every major news site in the world? REDDIT_BLACKOUT - why are people so compulsively commenting instead of STANDING UP to remove MAGA and do cult deprogramming? Why are people not promoting Dr. Bandy X Lee's nonfiction leadership since October 3, 2017?
+
+https://old.reddit.com/r/conspiracy/comments/1r3bpty/this_was_staged/o5367tg/
+
+https://old.reddit.com/r/conspiracy/comments/1r3bpty/this_was_staged/o53v77v/
+
+https://old.reddit.com/r/conspiracy/comments/1r3bpty/this_was_staged/o53e4ow/
+
+https://old.reddit.com/r/conspiracy/comments/1r3bpty/this_was_staged/o53hscw/
+
+Fiction vs. nonfiction, it is not acceptable to be lead by conspiracy without facts and without evidence. Fiction storytelling far outsells nonfiction. And people vote for popularity, fiction is popular.
+
+https://old.reddit.com/r/conspiracy/comments/1r3bpty/this_was_staged/o545y59/
+
+Science fiction fandoms of The Bible also like other no-evidence fiction storytelling.
+
+https://old.reddit.com/r/conspiracy/comments/1r3bpty/this_was_staged/o53m32w/
+
+Cult members don't grasp cult behaviors.
+
+https://old.reddit.com/r/conspiracy/comments/1r3bpty/this_was_staged/o53adde/
+
+Surkovian governing.
+
+https://old.reddit.com/r/conspiracy/comments/1r3bpty/this_was_staged/o53ra8k/
+
+Trump brags about fiction things all the time. Immigrant threats. Trump brags about economic wins that are fiction. 
+
+https://old.reddit.com/r/conspiracy/comments/1r3bpty/this_was_staged/o53n0sc/
+
+https://old.reddit.com/r/conspiracy/comments/1r3bpty/this_was_staged/o53931u/
+
+https://old.reddit.com/r/conspiracy/comments/1r3bpty/this_was_staged/o53ogau/
+
+https://old.reddit.com/r/conspiracy/comments/1r3bpty/this_was_staged/o53wcwt/
+
+https://old.reddit.com/r/conspiracy/comments/1r3bpty/this_was_staged/o53zqxz/
+
+https://old.reddit.com/r/conspiracy/comments/1r3bpty/this_was_staged/o53omiv/
+
+https://old.reddit.com/r/conspiracy/comments/1r3bpty/this_was_staged/o547ksz/
+
+https://old.reddit.com/r/conspiracy/comments/1r3bpty/this_was_staged/o53ad06/
+
+https://old.reddit.com/r/conspiracy/comments/1r3bpty/this_was_staged/o53zc11/
+
+No-evidence storytelling, fiction storytelling, far outsells nonfiction. There is no attempt to have a FAQ or Wiki and organize details, jut lots of "social engagement" with commenting low-effort about serious topics. Every person in their own filter-bubble and fiction stories they pass down. This is a fandom of Kremlin and White House, celebrity fandom.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1r3b3aa/rep_crow_i_have_a_message_for_the_trump/o532t2v/
+
+9 month Reddit account.
+
+Why was there no REDDIT_BLACKOUT Reddit blackout in September 2024 to let the world know that We the  People do not support Donald Trump? I saw Trump signs all over in places I have lived and traveled and can identify real attitudes and behaviors. The cult of Fox News HDTV in 2024 and cult of Newsmax HDTV was as strong as ever 2024. Reddit fandom can not face up to their own cult of stimulation that Trump provides. Why are people not protesting on Reddit any time in year 2025? January 2026? The denial of the importance of We The People and intelligence and defending against Russian information warfare. 
+
+The Founding Fathers did not have color photography in year 1776. Media has dramatically changed since year 2007 when the Apple iPhone 1 was introduced. Reddit cult of media can not see that Trump is a cult leader that Reddit follows every hour of every day. This movement is way bigger than election days and into the very social fabric of society of men hating upon women. Why is Reddit society not promoting woman leader Dr. Bandy X Lee? Woman leader Jen Senko?
+
+Women like Pam Bondi are hated and mocked constantly. Why is it when a serious nonfiction leader like Jen Senko and Dr. Bandy X Lee are leading towards good directions, Reddit and Blueksy do not follow the women? AOC is very entertaining and engages is mocking that Reddit prizes. Attraction to mocking back and forth with antics politics is the pattern of what captures attention of fandoms.
+
+Reddit community can not face that Reddit is heavily influenced by billionaire media owners and the investment billionaires have made in media in general. And that is what Trump has spent decades focused on, being *on camera* more than anyone, being the center of Reddit attention more than anyone with antics and odd behavior. Mocking more than anyone, Reddit's (community, audience) attraction to mockery and avoidance of serious Dr. Bandy X Lee nonfiction.
+
+Reddit will not call for impeachment and blackouts of social media - because the attraction to mocking and insulting Trump is stronger than the desire to REMOVE Trump and educate and teach people remedial morality and why it is dangerous to be in a media cult (Reddit media cults) of fiction.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1r3b3aa/rep_crow_i_have_a_message_for_the_trump/o531nvt/
+
+"Sane person"
+
+Every topic of every day on every media platform is about stimulating cults of fiction addicts. People even regularly write "cult" about out-groups but will not turn to nonfiction. You don't see people calling for nonfiction cult deprogramming. You see "brainwashing" but you do not witness any call for nonfiction education on how to counter and rescue brainwashed people. You witness compulsive high speed commenting... reactionary mindsets, reacting to MAGA reacting to Trump, reacting to the White House.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1r3b3aa/rep_crow_i_have_a_message_for_the_trump/o53o43x/
+
+A representative should have the paperwork staff and skills to create a website for under $200 with basic text content and have it online in 1 to 8 hours of labor. And point people to THE SAME PAGE OF ACTION and timelines. www . Remove Trump Crow . org - and be able to update it. Square Space or other provider for a basic blog of information... could use Google Blogger with a registered Internet domain.
+
+People could then link and monitor the website for updates. Instead, a "concept of a plan".
+
+I've posted about "Brain Rot Society" and called out the need to use social media in non-reactionary ways. On Lemmy, Bluesky, Mastodon. Nobody is interested. I just now posted a Dr. Bandy X Lee posting - and reviewed the activity on her Bluesky posts from October. People are not getting behind serious nonfiction leaders. https://bsky.app/profile/roundsparrow.bsky.social/post/3meqheirodk2o "The Developmental Wounds of Dictator Dreams"
+
+https://old.reddit.com/r/UnderReportedNews/comments/1r3b3aa/rep_crow_i_have_a_message_for_the_trump/o53730c/
+
+8 month Reddit account.
+
+https://old.reddit.com/r/Music/comments/1r3lvq2/karoline_leavitt_trolled_as_shes_caught_using_bad/o555kw7/
+
+“Whenever I ask my Russian bosses, the older TV producers and media types who run the system, what it was like growing up in the late Soviet Union, whether they believed in the Communist ideology that surrounded them, they always laugh at me.  
+“Don’t be silly,” most answer.  
+“But you sang the songs? Were good members of the Komsomol?”   
+“Of course we did, and we felt good when we sang them. And then straight after we would listen to ‘Deep Purple’ and the BBC.”   
+“So you were dissidents? You believed in finishing the USSR?”   
+“No. It’s not like that. You just speak several languages at the same time, all the time. There’s like several ‘you’s.”   
+Seen from this perspective, the great drama of Russia is not the “transition” between communism and capitalism, between one fervently held set of beliefs and another, but that during the final decades of the USSR no one believed in communism and yet carried on living as if they did, and now they can only create a society of simulations. For this remains the common, everyday psychology: **the Ostankino producers who make news worshiping the President in the day and then switch on an opposition radio as soon as they get off work; the political technologists who morph from role to role with liquid ease — a nationalist autocrat one moment and a liberal aesthete the next**; the “orthodox” oligarchs who sing hymns to Russian religious conservatism—and keep their money and families in London. All cultures have differences between “public” and “private” selves, but in Russia the contradiction can be quite extreme.”
+― Peter Pomerantsev, Nothing Is True and Everything Is Possible: The Surreal Heart of the New Russia. **Year 2014**.
+
+https://old.reddit.com/r/Music/comments/1r3lvq2/karoline_leavitt_trolled_as_shes_caught_using_bad/o556knk/
+
+Superficial, shallow, banal is what makes Reddit audiences happy. Instead of using social media for cult deprogramming (returning to non-entertainment based Surkovian governing), people are commenting on each scene and performance of the players. There is no desire to end the antics politics and harm it is doing, because that would remove the Reddit audience attraction to the anti-goodness prizing.
+
+https://old.reddit.com/r/Music/comments/1r3lvq2/karoline_leavitt_trolled_as_shes_caught_using_bad/o55f170/
+
+The fandom commenting upon the content. Addictions to commenting about the White House. It never fucking ends.
+
+https://old.reddit.com/r/Music/comments/1r3lvq2/karoline_leavitt_trolled_as_shes_caught_using_bad/o55ggh9/
+
+The Office is fiction television. Michael Scott is a fiction character. Donald Trump played fiction "The Apprentice" television. Reddit is a cult that is attracted to following fiction content. To understand why MAGA and Trumpism has taken over the USA... study the fiction attraction and audience cravings for more and more fiction-based leadership. Surkovian governing and Surkovian information warfare.
+
+https://old.reddit.com/r/Music/comments/1r3lvq2/karoline_leavitt_trolled_as_shes_caught_using_bad/o55a0ie/
+
+This is the concern of Americans as their nation is wrecked by antics politics. Shit-commenting and shit-posting leadership of the White House is what shit-prizing society seeks. Enshitfication via Reddit and Twitter and Facebook of an entire nation due to high-speed media compulsive behaviors. Diaper fetish fandoms. Surkov won since March 2013.
+
+* "Enshittification" (or crapification) is a term coined by author and tech critic Cory Doctorow in November 2022 to describe the, often deliberate, degradation of the quality of online platforms and services.
+
+Year 2022, and that has become every hour of every day regarding We The People and the national mindsets.
+
+https://old.reddit.com/r/politics/comments/1r3kjt2/joe_rogan_tears_into_trump_over_epstein_files/o54yqce/
+
+Joe Rogan Experience and Reddit audience experience suffer from the same media-engagement audience techniques. I am not saying Reddit users are all fans and listen to Joe Rogan. I'm saying the same low-effort media that favors fiction over nonfiction is prized by both fandoms. Amusement and comedy "news".
+
+This is a cultural wide, not just voters, not just MAGA, everyone in society problem. Neil Postman's 1985 book "Amusing Ourselves To Death" is a starting point on understanding this self-harm attraction.
+
+https://old.reddit.com/r/politics/comments/1r3kjt2/joe_rogan_tears_into_trump_over_epstein_files/o555hri/
+
+"Tears into him" - the mental health of mob mentality is a problem ANYONE on ANY MEDIA platform, including Reddit commenting can address. Dr. Bandy X Lee compiled 27 people in a book published October 3, 2017. Yet, everyone is avoiding turning to nonfiction teaching and education. We don't need more debate and arguing, we need to recognize the addiction to Trump as a content source is a problem both Joe Rogan and Reddit both share. All media systems have converged on Epstein / Trump / MAGA mentality of media addiction to fiction storytelling.
+
+https://old.reddit.com/r/politics/comments/1r3kjt2/joe_rogan_tears_into_trump_over_epstein_files/o55gvqi/
+
+The avoidance of Dr. Bandy X Lee's book from October 3, 2017 has been consistent across society. People are not engaging nonfiction serious topics that are organized and well written. Instead, streaming podcasts of Rogan and streaming commenting of Reddit, streaming shit-postings of Bluesky...  THE STREAMING, the SCROLLING itself is prized over *getting on the same page of a paper nonfiction book* that describes a **common problem we all share**. People all have one URL click or touch that we could converge on: https://www.ScientificAmerican.com/article/the-shared-psychosis-of-donald-trump-and-his-loyalists/ and start facing up to the **motion addiction of flowing information** streaming.
+
+
+https://old.reddit.com/r/circled/comments/1r3ozbf/our_president_is_a_laughing_stock_around_the_world/o55sku6/
+
+Trump motivates February 2026 people so much to travel to see Trump images and Donald Trump in person. The motivation that hate leadership provides for the hate fandom on Reddit.
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3meqrvyf37k27 https://autistics.life/@RoundSparrow/116063941917293227 }
+
+https://old.reddit.com/r/circled/comments/1r3ozbf/our_president_is_a_laughing_stock_around_the_world/o55w1w5/
+
+Fandom of Trump wishing that more Trump media content and videos and live events visit more cities! Addicts to Trump images.
+
+https://old.reddit.com/r/LetsDiscussThis/comments/1r3nl4p/hey_maga_is_this_what_you_voted_for/o55sd4e/
+
+“These people are the Evil our parents warned us about.” - Reddit social comment, popular
+
+<img width="858" height="328" alt="image" src="https://github.com/user-attachments/assets/993a0e6e-4f73-4adf-8e87-74e1715a7501" />
+
+Yes. You watched Evil be programmed right into hearts and minds. And your parents **warned you about Russia, KGB**. Putin worked for the KGB before the fall of the Berlin Wall in Germany. Your parents warned you to *keep an eye on Russia*. Not to turn your back on Russians and be complacent. And you are today on Reddit making jokes over and over to joke-wash sane-wash the **clearly mentally disturbed behavior of American people** (We The People) who have been manipulated, via Reddit invasion, by the Saint Petersburg Internet Research Agency since March of 2013. You are members of Reddit February 2026 - which is nothing like Reddit of year 2012 - you are members of an anti-compassion anti-empathy anti-intellectual **cult of hate, a death cult**, that thinks it is funny to exploit what Putin has done to *rural less-educated* Americans via the Apple iPhone venue! You sold our your fellow Americans to the Kremlin without any defense. Your elderly parents were some of the last people in USA to get an Apple iPhone / Apple iPad and you let Russia **FUBAR your own parent's minds**. Cowards, afraid of the fucking public library. You didn't defend at all, **you embraced the Kremlin's psych**ological **war**fare. Surkov won the war. The USA is in ruins on the emotional world stage, we are an entertainment for hate-watchers the world over.
+
+Social post { https://MidWest.Social/post/43410085 }   
+SEE_ALSO THIS_GITHUB dedicated page: https://github.com/RocketDerp/April14_2025/blob/main/In_A_Nutshell/Situation_In_A_Nutshell.md
