@@ -979,3 +979,8 @@ DENIAL_ABOUNDS Denial of Russian information warfare, denial of billionaire Rupe
 https://old.reddit.com/r/politics/comments/1r3qecf/where_are_all_the_dont_tread_on_me_americans/o563ane/
 
 PREDICTABLE_OUTCOME SIMULATION_SIMULACRA 
+
+https://old.reddit.com/r/politics/comments/1r3qecf/where_are_all_the_dont_tread_on_me_americans/o567vaa/
+
+GUN_WORSHIP  More reasonable discussion, but it is a common back-pocket faith system. Deepest faith, faith of last resort (Great Seal USA ideal teaching is the arrows are indeed a last resort).  
+
