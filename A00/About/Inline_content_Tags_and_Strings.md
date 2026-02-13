@@ -1,6 +1,7 @@
 # Inline content Tags and Strings
 
 OPERA_A   
+OPERA_B   
 SEE_ALSO  
 SUPER_HYPER_NORMAL  
 PREDICTABLE_OUTCOME  
