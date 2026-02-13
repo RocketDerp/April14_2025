@@ -32,3 +32,6 @@ Music industry has been exploiting sexy talented people for power and wealth sin
 
 Trump is #Celebrity - social power over superficial and shallow mindsets
 
+&nbsp;
+
+"In any case, ah, if **Baudrillard** is even onto something, what the postmodern trajectory means is that the self is not under siege, it’s lost. It’s just lost. And if that’s true then all of the strategies by which **ordinary people try to live decent good lives are lost** along with it." - year 1993 https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
