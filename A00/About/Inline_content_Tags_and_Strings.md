@@ -14,6 +14,10 @@ FIN_WAKE_INDRA_NET
 THIS_GITHUB   
 CORE_CONCERNS   
 
+
+Topic_tags: media_ecology, media_deconstruction, media_environment, media_conventions    
+
+
 Social post { }   
 Surkov won   
 ToDo:  
