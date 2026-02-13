@@ -910,3 +910,7 @@ Yes. You watched Evil be programmed right into hearts and minds. And your parent
 
 Social post { https://MidWest.Social/post/43410085 }   
 SEE_ALSO THIS_GITHUB dedicated page: https://github.com/RocketDerp/April14_2025/blob/main/In_A_Nutshell/Situation_In_A_Nutshell.md
+
+https://old.reddit.com/r/LetsDiscussThis/comments/1r3nl4p/hey_maga_is_this_what_you_voted_for/o55kxof/
+
+And that's what the USA is going to die for. Dumb as fuck desires to be hated. For the "LOL", for the 4Chan amusement mindsets. Surkov won since March 2013.
