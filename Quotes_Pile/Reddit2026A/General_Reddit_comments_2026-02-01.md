@@ -362,3 +362,5 @@ these subjective tests and measures people are so confident about wreck the live
 
 https://old.reddit.com/r/RandomVideos/comments/1r3k810/sarcastic_senior_citizen/o54x5vj/
 
+And if you act nervous because you are living under a police state or ICE state in year 2025 and year 2026... your nervousness around government power abusers will be interpreted as a sign of guilt over *something*. Trumpism PTSD / CPTSD. https://www.expressnews.com/columnist/elaine-ayala/article/trump-executive-order-mental-health-20160710.php "February 12, 2025 — It's a new form of PTSD — President Trump Stress Disorder — tied not just to the stresses involving his policies but the relationship..."
+
