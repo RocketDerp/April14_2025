@@ -676,4 +676,9 @@ https://old.reddit.com/r/videos/comments/1r30rmf/pam_bondi_in_2014_campaign_ad_i
 
 https://old.reddit.com/r/videos/comments/1r30rmf/pam_bondi_in_2014_campaign_ad_ill_fight_to_put/o50v5eb/
 
-There have never been more Reddit meme addicts ready to purchase souls of fellow Americans. People who seek out hate leadership of the White House to follow from their Reddit fandom.
+There have never been more Reddit meme addicts ready to purchase souls of fellow Americans. People who seek out hate leadership of the White House to follow from their Reddit fandom. People who find disaster a form of entertainment on their Reddit app screens. Instead of REDDIT_BLACKOUT having a protest blackout to call for reform and remedial morality teaching lessons for MAGA cult, the Reddit cult has joined in the mockery.
+
+https://old.reddit.com/r/videos/comments/1r30rmf/pam_bondi_in_2014_campaign_ad_ill_fight_to_put/o50xfd6/
+
+https://old.reddit.com/r/videos/comments/1r30rmf/pam_bondi_in_2014_campaign_ad_ill_fight_to_put/o50wxtg/
+
