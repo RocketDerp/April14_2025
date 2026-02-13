@@ -920,3 +920,9 @@ https://old.reddit.com/r/news/comments/1r3qjln/trumps_cdc_is_canceling_600m_in_h
 ANSWER: Reddit users are avoidant of nonfiction learning. Instead, people are engaged in REACTING to CDC actions by the White House. People on Reddit are REACTING to Republican political party and Kremlin political organized crimes. People using social media systems are NOT turning to Dr. Bandy X Lee as a leader and quoting her nonfiction books and articles. ANY NATION in the entire world could be elevating Dr. Bandy X Lee's 27 contributors from her October 3, 2017 book. But the entire world is failing to take mental health of the White House seriously as a educational teaching topic.
 
 https://old.reddit.com/r/circled/comments/1r3rc5s/even_the_hot_pile_of_newsmax_is_calling_epstein_a/o56fhzi/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1r3sdwk/the_history_is_witnessing_the_death_of_humanity/o56mbil/
+
+Reddit Fandom of MAGA, the Trumpism fandom cult on Reddit, has extreme recency bias. RECENCY_BIAS Minds are being reset constantly with extreme laughter and joke sessions over Trump / MAGA / Musk and people blow their memories out. Neil Postman warned of this mind exploit in his year 1985 book "Amusing Ourselves To Death" - which is a nonfiction book about Reddit authored decades before Reddit went online.
+
+The constant "shocked" and "amazed" reaction is a SYMPTOM of over-amusement! We are over 10 years into deep shit and people are thinking that it only started last week or this month. Thinking itself is corrupted by laughter. Laughter is the best mind-fuck. Surkov won.
