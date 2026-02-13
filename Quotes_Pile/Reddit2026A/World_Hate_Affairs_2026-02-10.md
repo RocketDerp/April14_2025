@@ -161,3 +161,17 @@ https://old.reddit.com/r/pics/comments/1r3ei1k/an_iranian_girl_in_iran_pedophile
 https://old.reddit.com/r/pics/comments/1r3ei1k/an_iranian_girl_in_iran_pedophiles_get_hanged_in/o53uysm/
 
 "LOL", amused at hate. Fandom of hate on Reddit.
+
+https://old.reddit.com/r/pics/comments/1r3ei1k/an_iranian_girl_in_iran_pedophiles_get_hanged_in/o53ts0o/
+
+https://old.reddit.com/r/pics/comments/1r3ei1k/an_iranian_girl_in_iran_pedophiles_get_hanged_in/o53yqzg/
+
+"LOL"
+
+https://old.reddit.com/r/pics/comments/1r3ei1k/an_iranian_girl_in_iran_pedophiles_get_hanged_in/o53x4yq/
+
+https://old.reddit.com/r/pics/comments/1r3ei1k/an_iranian_girl_in_iran_pedophiles_get_hanged_in/o549bxl/
+
+"Brainwashed"
+
+But not Reddit users. Not USA Fox News HDTV viewers. Comparative Mythology education is not optional.
