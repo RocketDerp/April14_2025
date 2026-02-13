@@ -120,3 +120,6 @@ Instead of sounding alarm bells that we need cult deprogramming and the mass deh
 
 Reminder of context: This isn't just one man in USA. It is Rupert Murdoch cult fandom, Elon Musk Titter cult fandoms, Donald Trump Truth Social fandoms, etc. RFK Jr's pro-disease pro-measles, etc. Women are being systemically targeted by organized cults of men. Putin has made general part of a world movement since December 2013. SEE_ALSO December 20, 2013 English-language story about Russia's global anti-women movement: https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/
 
+https://old.reddit.com/r/pics/comments/1r3ei1k/an_iranian_girl_in_iran_pedophiles_get_hanged_in/o543hkg/
+
+On-Reddit hate affairs
