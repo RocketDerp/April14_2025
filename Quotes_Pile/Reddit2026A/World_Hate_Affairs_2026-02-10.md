@@ -195,3 +195,24 @@ Trump is a camera magnet. Center of attention! Trump got on McDonald's commercia
 Being **a television influencer, a Twitter influencer, a Truth social influencer, a newspaper influencer, a socialite, popularity of pop culture** is what Donald Trump is good at! MEDIA ITSELF, creating MEDIA EVENTS, is the gift and talent of Donald J. Trump! An actor doing acting, playing POTUS Tony Clifton character for laughs! It concentrates power and wealth!
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3meqrillv3k24 https://autistics.life/@RoundSparrow/116063922207138646 }
+
+
+https://old.reddit.com/r/circled/comments/1r3ozbf/our_president_is_a_laughing_stock_around_the_world/o55w9wg/
+
+<img width="969" height="355" alt="image" src="https://github.com/user-attachments/assets/623345f0-dbec-4663-b0ec-cfbc0345714b" />
+
+Ok, folks, **let's do the math**. "The world hates him", so Trump leads with hate and the world follows with hate. 8 billion people have adopted hate because of a leader of hate. The KKK, Ku Klux Klan is a hate organization. So, 100.000%, EVERYONE in the ENTIRE WORLD, the entire planet, is following Putin's leadership of hate using Trump as a front-man for Russia. That's what this short message on Reddit is saying...
+
+That's the very problem. EVERY PERSON follows the leadership of Putin and Trump into hate! People are so addicted to the high-speed information system delivery of Trump content to hate-watch! https://en.wikipedia.org/wiki/Hate-watching That is the very social mechanism of Surkovian governing!
+
+Surkov, Putin, Trump, Murdoch, Musk have CRACKED the 1954 Equation! Applied hate systems, Putin and Surkov mastered the monomyth information patterns of concentrating hate to exploit the sheep of the world! And all the sheep are following the hate-leadership pied pipers!
+
+<img width="969" height="355" alt="image" src="https://github.com/user-attachments/assets/623345f0-dbec-4663-b0ec-cfbc0345714b" />
+
+**The 1954 Equation**
+
+February 28, 1954: "Most people can't stand up for their convictions, because the majority of people might not be doing it. See, everybody's not doing it, so it must be wrong. And since everybody is doing it, it must be right. So a sort of numerical interpretation of what's right. But I'm here to say to you this morning that some things are right and some things are wrong. Eternally so, absolutely so. **It's wrong to hate.** It always has been wrong and it always will be wrong. It's wrong in America, it's wrong in Germany, it's wrong in Russia, it's wrong in China. It was wrong in 2000 B.C., and it's wrong in 1954 A.D. It always has been wrong, and it always will be wrong." - Martin Luther King Jr.
+
+"For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the **true becomes false and the false becomes true**. That's what hate does. You can't see right. **The symbol of objectivity** is lost." - Martin Luther King Jr.
+
+Social post { https://Bsky.App/profile/roundsparrow.bsky.social/post/3meqsmhyj5c2j https://Autistics.Life/@RoundSparrow/116063994102469539 }
