@@ -112,4 +112,9 @@ https://old.reddit.com/r/pics/comments/1r39raq/iranians_hold_up_a_poster_showing
 
 Malala doesn't have a lot of anti-terrorism supporters about young girls being given voices in Palestine or Egypt or North Africa or Iran (where girls are being abused systemically that people know recently from December 2025 onward protests). Malala's October 8, 2013 book has a lot of insight into mob mentality mindsets.
 
+https://old.reddit.com/r/TwoXChromosomes/comments/1r39dqo/nick_fuentes_the_number_one_political_enemy_in/o52qblq/
+
+11 month Reddit account. Top-upvoted popular comment.
+
+Instead of sounding alarm bells that we need cult deprogramming and the mass dehumanizing of women and girls is advancing, to get behind Malala's campaigns and support Dr. Bandy X Lee's focus on mental health education - a call to just ignore the problem. Avoiding the problem is not asserting goodness. Men need to be educated why hate of women is bad for the entire planet Earth. Clearly the clergy is teaching toxic values and remedial morality lessons are needed. Malala had excellent writings and teachings to share.
 
