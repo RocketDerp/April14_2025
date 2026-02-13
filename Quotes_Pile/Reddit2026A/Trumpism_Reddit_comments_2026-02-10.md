@@ -919,3 +919,4 @@ https://old.reddit.com/r/news/comments/1r3qjln/trumps_cdc_is_canceling_600m_in_h
 
 ANSWER: Reddit users are avoidant of nonfiction learning. Instead, people are engaged in REACTING to CDC actions by the White House. People on Reddit are REACTING to Republican political party and Kremlin political organized crimes. People using social media systems are NOT turning to Dr. Bandy X Lee as a leader and quoting her nonfiction books and articles. ANY NATION in the entire world could be elevating Dr. Bandy X Lee's 27 contributors from her October 3, 2017 book. But the entire world is failing to take mental health of the White House seriously as a educational teaching topic.
 
+https://old.reddit.com/r/circled/comments/1r3rc5s/even_the_hot_pile_of_newsmax_is_calling_epstein_a/o56fhzi/
