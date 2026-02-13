@@ -727,3 +727,12 @@ This is the account that submitted the post. Got it to /r/All front page. 7 mont
 https://old.reddit.com/r/Fauxmoi/comments/1r39exv/trump_but_i_dont_understand_why_the_jeffrey/o52tt0t/
 
 Bad Bunny is billionaire filmed / billionaire Judy Allen NFL team owner content for Reddit fandom. Instead of doing a serious sustained REDDIT_BLACKOUT and BLUESKY_BLACKOUT and making world press coverage calling for Trump to be removed. People keep acting as if a 15 entertainment show at the Super Bowl was a bit "gotcha" protest. Simulation between Kid Rock and Bad Bunny is corporate profit making, selling music, selling advertising for Jody Allen's team profit brand growth. The macro economics of this "diss track" behavior are great, just like last year Super Bowl "diss track" simulations. Reddit audience is entertained to see Kid Rock defeated. https://en.wikipedia.org/wiki/Puppy_Bowl these days (2026 iPad iPhone era) people have a dozen screens in front of them at family gatherings. https://en.wikipedia.org/wiki/Super_Bowl_counterprogramming
+
+https://old.reddit.com/r/WitchesVsPatriarchy/comments/1r3bqdl/i_will_be_celebrating/o5386zf/
+
+ANYTHING but do a REDDIT_BLACKOUT where WE THE PEOPLE of the USA can demonstrate to the entire world wide web that we have come to our media addiction cult sense and do NOT want antics politics and Reality TV Fox News and Reality Surkov Putinism running our nation any more. Trump's death does NOT demonstrate MEDIA USAGE REFORM of the general population. Cults of Twitter / Elon Musk Twitter / Facebook / Reddit have been the source of Trumpism / MAGA alternate-reality anti-reality! 
+
+We the People have to face up to what Neil Postman wrote in his 1985 nonfiction book "Amusing Ourselves to Death" about Reddit and Twitter! This cult of death is exactly what Trump is leading, a death cult, and this entire Reddit posting I've linked is a death-cult! People need to put GOODNESS, stand up for GOODNESS on social media. More death cult fantasy parties is just following the leadership of MAGA death cult.
+
+Dr. Bandy X Lee's leadership should be repeated and repeated and quoted over and over constant on social media until people can organize the largest cult deprogramming in world history.
+
