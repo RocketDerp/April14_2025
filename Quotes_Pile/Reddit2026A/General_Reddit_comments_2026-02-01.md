@@ -288,3 +288,5 @@ And brain-damaging NFL football square-logic Charlie Brown Lucy American footbal
 
 https://old.reddit.com/r/PeterExplainsTheJoke/comments/1r31xe7/petah_whats_the_joke_why_would_she_be_good_on_the/o517p9o/
 
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1r31xe7/petah_whats_the_joke_why_would_she_be_good_on_the/o519499/
+
