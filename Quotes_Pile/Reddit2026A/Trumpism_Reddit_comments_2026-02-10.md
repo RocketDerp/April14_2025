@@ -858,3 +858,7 @@ Seen from this perspective, the great drama of Russia is not the â€œtransitionâ€
 https://old.reddit.com/r/Music/comments/1r3lvq2/karoline_leavitt_trolled_as_shes_caught_using_bad/o556knk/
 
 Superficial, shallow, banal is what makes Reddit audiences happy. Instead of using social media for cult deprogramming (returning to non-entertainment based Surkovian governing), people are commenting on each scene and performance of the players. There is no desire to end the antics politics and harm it is doing, because that would remove the Reddit audience attraction to the anti-goodness prizing.
+
+https://old.reddit.com/r/Music/comments/1r3lvq2/karoline_leavitt_trolled_as_shes_caught_using_bad/o55f170/
+
+The fandom commenting upon the content. Addictions to commenting about the White House. It never fucking ends.
