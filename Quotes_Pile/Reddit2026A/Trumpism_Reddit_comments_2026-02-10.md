@@ -999,3 +999,17 @@ Published: August 14, 2000
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1r3vdzl/they_keep_finding_new_ways_to_make_fools_of/o57t7nx/
 
 TRUMP_FANDOM AMUSING_ZOMBIES craving SNL and South Park if you read replies to this comment.
+
+https://old.reddit.com/r/technology/comments/1r40e0c/ftc_wants_apple_news_to_promote_more_fox_news_and/o5877ry/
+
+GULLIBLE_FANDOM An audience of Apple computers and Reddit /r/Technology love that is so gullible to news sources that it believes billionaire talking points. Unable to turn to serious nonfiction. For over a decade, parroting away about "the government" without seeing the influence the Apple iPhone and Apple iPad have had with Twitter-thinking short-message mocking that is all too predictable of social media consumers.
+
+https://old.reddit.com/r/technology/comments/1r40e0c/ftc_wants_apple_news_to_promote_more_fox_news_and/o5884c7/
+
+And Reddit commenting section is news? it is ALL entertainment. Another Twitter-length short message upvoted high on the page. Reddit fandom of MAGA can not cite nonfiction serious discussions of the problems of media systems and the cult of fiction storytelling Fox News feeds.
+
+Every subreddit of Reddit is an "alternate universe", alternate reality game of fiction fandoms. Thousands and thousands of Fox News entertainment-style communities as subreddits. This was published more than a decade ago, but Reddit society repulses nonfiction media analysis:
+
+* “Today, reports of the day’s events are conveyed to the viewing public by way of alternate universes, The Fox News cable channel conveys its version of reality, while at the other end of the ideological spectrum MSNBC presents its version. They and their many counterparts on radio are more the result of an economic dynamic than a political one. Dispatching journalists into the field to gather information costs money; hiring a glib bloviator is relatively cheap, and inviting opinionated guests to vent on the air is entirely cost-free. It wouldn’t work if it weren’t popular, and audiences, it turns out, are endlessly absorbed by hearing amplified echoes of their own biases. It’s divisive and damaging to the healthy functioning of our political system, but it’s also indisputably inexpensive and, therefore, good business.” ― Ted Koppel. Lights Out: A Cyberattack, A Nation Unprepared, Surviving the Aftermath. October 27, 2015. Page 13.
+
+
