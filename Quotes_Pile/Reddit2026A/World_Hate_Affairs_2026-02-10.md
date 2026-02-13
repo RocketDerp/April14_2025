@@ -118,3 +118,5 @@ https://old.reddit.com/r/TwoXChromosomes/comments/1r39dqo/nick_fuentes_the_numbe
 
 Instead of sounding alarm bells that we need cult deprogramming and the mass dehumanizing of women and girls is advancing, to get behind Malala's campaigns and support Dr. Bandy X Lee's focus on mental health education - a call to just ignore the problem. Avoiding the problem is not asserting goodness. Men need to be educated why hate of women is bad for the entire planet Earth. Clearly the clergy is teaching toxic values and remedial morality lessons are needed. Malala had excellent writings and teachings to share.
 
+Reminder of context: This isn't just one man in USA. It is Rupert Murdoch cult fandom, Elon Musk Titter cult fandoms, Donald Trump Truth Social fandoms, etc. RFK Jr's pro-disease pro-measles, etc. Women are being systemically targeted by organized cults of men. Putin has made general part of a world movement since December 2013. SEE_ALSO December 20, 2013 English-language story about Russia's global anti-women movement: https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/
+
