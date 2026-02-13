@@ -1012,4 +1012,12 @@ Every subreddit of Reddit is an "alternate universe", alternate reality game of 
 
 * “Today, reports of the day’s events are conveyed to the viewing public by way of alternate universes, The Fox News cable channel conveys its version of reality, while at the other end of the ideological spectrum MSNBC presents its version. They and their many counterparts on radio are more the result of an economic dynamic than a political one. Dispatching journalists into the field to gather information costs money; hiring a glib bloviator is relatively cheap, and inviting opinionated guests to vent on the air is entirely cost-free. It wouldn’t work if it weren’t popular, and audiences, it turns out, are endlessly absorbed by hearing amplified echoes of their own biases. It’s divisive and damaging to the healthy functioning of our political system, but it’s also indisputably inexpensive and, therefore, good business.” ― Ted Koppel. Lights Out: A Cyberattack, A Nation Unprepared, Surviving the Aftermath. October 27, 2015. Page 13.
 
+https://old.reddit.com/r/technology/comments/1r40e0c/ftc_wants_apple_news_to_promote_more_fox_news_and/o588p5r/
+
+Again and again, year after year, it is what We The People on Reddit show what is wanted. Authoritative owners, moderators /r/Technology addicts to tech addictions that billionaires manipulate. The prizing of rapid delivery of simplistic ideas... almost always avoiding nonfiction serious books on paper.
+
+https://old.reddit.com/r/technology/comments/1r40e0c/ftc_wants_apple_news_to_promote_more_fox_news_and/o58a2sd/
+
+Where is the Reddit blackout protest? REDDIT_BLACKOUT - where is the uprising to stand up and call for nonfiction and pro-intellectual leadership instead of memes and mocking MAGA and Trump mythology...
+
 
