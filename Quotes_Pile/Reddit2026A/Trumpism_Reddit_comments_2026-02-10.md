@@ -862,3 +862,7 @@ Superficial, shallow, banal is what makes Reddit audiences happy. Instead of usi
 https://old.reddit.com/r/Music/comments/1r3lvq2/karoline_leavitt_trolled_as_shes_caught_using_bad/o55f170/
 
 The fandom commenting upon the content. Addictions to commenting about the White House. It never fucking ends.
+
+https://old.reddit.com/r/Music/comments/1r3lvq2/karoline_leavitt_trolled_as_shes_caught_using_bad/o55ggh9/
+
+The Office is fiction television. Michael Scott is a fiction character. Donald Trump played fiction "The Apprentice" television. Reddit is a cult that is attracted to following fiction content. To understand why MAGA and Trumpism has taken over the USA... study the fiction attraction and audience cravings for more and more fiction-based leadership. Surkovian governing and Surkovian information warfare.
