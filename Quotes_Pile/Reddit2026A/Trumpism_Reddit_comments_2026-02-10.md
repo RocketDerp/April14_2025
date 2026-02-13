@@ -699,3 +699,12 @@ Kirk family media empire has a massive hate-watch fandom on Reddit. As soon as a
 https://old.reddit.com/r/UnderReportedNews/comments/1r362zl/chris_murphy_trump_nominated_a_legit_white/o520nlq/
 
 2 month Reddit account. Top upvoted comment, most popular.
+
+https://old.reddit.com/r/Epstein/comments/1r30x2l/probably_you_already_know_but_i_found_out_about/o5178k5/
+
+https://old.reddit.com/r/Epstein/comments/1r30x2l/probably_you_already_know_but_i_found_out_about/o51dt3b/
+
+Reddit community refuses to have a REDDIT_BLACKOUT blackout protest and promote Dr. Bandy X Lee's 27 mental health experts. But member of Reddit spend their free time and spare time calling people unhinged and keeping Trump in power by not quoting, promoting, and repeat promoting Dr. Bandy X Lees nonfiction book from October 3, 2017. This fandom of Epstein e-mail messages and details does not want the information show to stop with all the Trump lead methods.. there is no healthy sense or danger that Dr. Bandy X Lee put in the very TITLE of her book! Reddit community avoids promoting authentic goodness leadership that Dr. Bandy X Lee has been providing to the general public / citizens of the nation:
+
+* “Assessing dangerousness is different from making a diagnosis: it is dependent on the situation, not the person. Signs of likely dangerousness due to mental disorder can become apparent without a full diagnostic interview and can be detected from a distance, and one is expected to err, if at all, on the side of safety when the risk of inaction is too great.”
+― Bandy X. Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. Published October 3, 2017. PROLOGUE. Page 5.](https://books.google.com/books?id=g0c4DwAAQBAJ&pg=PA5&dq=dangerousness+due+to+mental+disorder+can+become+apparent+without+a+full+diagnostic+interview+and+can+be+detected+from+a+distance&hl=en&newbks=1&newbks_redir=1&sa=X)
