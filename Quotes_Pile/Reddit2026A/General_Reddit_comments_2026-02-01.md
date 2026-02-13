@@ -359,3 +359,6 @@ https://old.reddit.com/r/Futurology/comments/1r3flg9/microsoft_ai_ceo_most_if_no
 https://old.reddit.com/r/RandomVideos/comments/1r3k810/sarcastic_senior_citizen/o55jeso/
 
 these subjective tests and measures people are so confident about wreck the lives of autistic people. Every where you go, people think you are not telling the truth base don tone and body language, etc. I've read and heard the same patterns from thousands of people in autism support groups since year 2009. People think people are drunk or on drugs because of motor skill issues, speech patterns, etc. Mentally different people are treated like crap.
+
+https://old.reddit.com/r/RandomVideos/comments/1r3k810/sarcastic_senior_citizen/o54x5vj/
+
