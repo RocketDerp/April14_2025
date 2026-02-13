@@ -364,3 +364,7 @@ https://old.reddit.com/r/RandomVideos/comments/1r3k810/sarcastic_senior_citizen/
 
 And if you act nervous because you are living under a police state or ICE state in year 2025 and year 2026... your nervousness around government power abusers will be interpreted as a sign of guilt over *something*. Trumpism PTSD / CPTSD. https://www.expressnews.com/columnist/elaine-ayala/article/trump-executive-order-mental-health-20160710.php "February 12, 2025 — It's a new form of PTSD — President Trump Stress Disorder — tied not just to the stresses involving his policies but the relationship..."
 
+https://old.reddit.com/r/RandomVideos/comments/1r3k810/sarcastic_senior_citizen/o55h69n/
+
+In a police state, the concern is superficial English on Reddit. Not We the People rising up to REMOVE the attitudes of dictators from society, but to make sure immigrants are harassed for possibly not using American English correctly. Language bigotry. Language as a tool of conformity instead of having any diversity or acceptance. Like a dress code rule, The Handmaiden's Tale society of mechanized dehumanizing concerns of personal expressions. People aren't allowed to be drunk, tired, worn out or impaired in any way and sound like sweet-sweet ChatGPT technically correct language.
+
