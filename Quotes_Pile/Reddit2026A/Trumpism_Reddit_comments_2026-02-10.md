@@ -880,3 +880,7 @@ https://old.reddit.com/r/politics/comments/1r3kjt2/joe_rogan_tears_into_trump_ov
 Joe Rogan Experience and Reddit audience experience suffer from the same media-engagement audience techniques. I am not saying Reddit users are all fans and listen to Joe Rogan. I'm saying the same low-effort media that favors fiction over nonfiction is prized by both fandoms. Amusement and comedy "news".
 
 This is a cultural wide, not just voters, not just MAGA, everyone in society problem. Neil Postman's 1985 book "Amusing Ourselves To Death" is a starting point on understanding this self-harm attraction.
+
+https://old.reddit.com/r/politics/comments/1r3kjt2/joe_rogan_tears_into_trump_over_epstein_files/o555hri/
+
+"Tears into him" - the mental health of mob mentality is a problem ANYONE on ANY MEDIA platform, including Reddit commenting can address. Dr. Bandy X Lee compiled 27 people in a book published October 3, 2017. Yet, everyone is avoiding turning to nonfiction teaching and education. We don't need more debate and arguing, we need to recognize the addiction to Trump as a content source is a problem both Joe Rogan and Reddit both share. All media systems have converged on Epstein / Trump / MAGA mentality of media addiction to fiction storytelling.
