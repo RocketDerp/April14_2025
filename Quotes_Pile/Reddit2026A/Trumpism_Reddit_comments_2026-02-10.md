@@ -1063,3 +1063,14 @@ This is not resisting Putin and Trump. Playing dumb and acting like all this sta
 https://old.reddit.com/r/technology/comments/1r40e0c/ftc_wants_apple_news_to_promote_more_fox_news_and/o58javs/
 
 Serious nonfiction no longer has an audience. The USA society seeks out low-effort commenting like you see all over Reddit in the face of extremely serious topics.
+
+https://old.reddit.com/r/technology/comments/1r40e0c/ftc_wants_apple_news_to_promote_more_fox_news_and/o58pb8g/
+
+Mythology and fiction has been proven far more popular as a way of governing. Surkov governing. But Reddit users can't be bothered to learn about Russia's war against nonfiction since March 2013 via Reddit manipulation using the Saint Petersburg Internet Research Agency. Reddit tech fandoms now prefer no-identity screen shots off Twitter on /r/All and no-identity commenting that avoids any kind of FAQ and Wiki organization of important critical society topics. Nonfiction books quotes relevant to the topics at hand are deafening silence on Reddit. But low-effort commenting all at different times sure is thriving and breeding!
+
+* “If all information is seen as part of a war, **out go any dreams of a global information space where ideas flow freely, bolstering deliberative democracy**. Instead, the best future one can hope for is an ‘information peace’, in which each side respects the other’s ‘information sovereignty’: a favoured concept of both Beijing and Moscow, and essentially a cover for enforcing censorship.”
+― Peter Pomerantsev, This Is Not Propaganda: Adventures in the War Against Reality. Year 2019.
+
+https://old.reddit.com/r/technology/comments/1r40e0c/ftc_wants_apple_news_to_promote_more_fox_news_and/o58pq0g/
+
+Beyond stupid are the commenting communities on Reddit that avoid serious nonfiction books. And avoid building FAQ and Wiki systems to get every person on the same page of important topics in getting USA back on track to nonfiction science teaching and learning for adults. Instead, commenting sections all over the Internet are full of people commenting how stupid and dumb and idiot and moron everything is all the time year after year since year 2013.
