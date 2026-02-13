@@ -938,3 +938,8 @@ PREDICTABLE_OUTCOME AMUSING_ZOMBIES
 Exactly what Neil Postman is describing in year 1985 with his book "Joking Ourselves To Death", New York University, Trump's home town. People can't see that EVERYBODY ALL THE TIME is laughing and mocking at the total mockery created by Surkov students. Russia won the information war exploiting this HIGHLY PREDICTABLE reaction. It blows minds to LOL away issues. Gallows humor has been weaponized. BLIND_FAITH in laughing. Instead of doing a Reddit blackout, REDDIT_BLACKOUT - people are LOL LOL LOL all day every minute of every day for over A DECADE LONG laughter shit-show at Trump! Trump shit-posts on Truth Social and Reddit end-users drag it over to Reddit for crowds frolicking in Trump's shit comedy! The POTUS Tony Clifton act works on Reddit fandom EVERY DAMN TIME!
 
 * “For in the end, he was trying to tell us what afflicted the people in 'Brave New World' was not that they were laughing instead of thinking, but that they did not know what they were laughing about and why they had stopped thinking.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. New York University.
+
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1r3sdwk/the_history_is_witnessing_the_death_of_humanity/o56m00y/
+
+SUPER_HYPER_NORMAL ... EXACTLY! This is in no way "normal" for USA criminals. This is Surkovian information warfare, this is Russian Surkov students in action. This is the most sophisticated mind-blowing of Reddit users into predictable Twitter-think to rapidly normalize this via extreme high-speed TCP/IP information systems.
