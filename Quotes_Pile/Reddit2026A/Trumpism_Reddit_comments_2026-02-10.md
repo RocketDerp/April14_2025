@@ -943,3 +943,7 @@ Exactly what Neil Postman is describing in year 1985 with his book "Joking Ourse
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1r3sdwk/the_history_is_witnessing_the_death_of_humanity/o56m00y/
 
 SUPER_HYPER_NORMAL ... EXACTLY! This is in no way "normal" for USA criminals. This is Surkovian information warfare, this is Russian Surkov students in action. This is the most sophisticated mind-blowing of Reddit users into predictable Twitter-think to rapidly normalize this via extreme high-speed TCP/IP information systems.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1r3sdwk/the_history_is_witnessing_the_death_of_humanity/o56vdqf/
+
+CONTEXT_BEWILDERMENT 
