@@ -4,9 +4,11 @@ https://old.reddit.com/r/LetsDiscussThis/comments/1r3nl4p/hey_maga_is_this_what_
 
 <img width="858" height="328" alt="image" src="https://github.com/user-attachments/assets/993a0e6e-4f73-4adf-8e87-74e1715a7501" />
 
-**"These people are the Evil our parents warned us about."** - Reddit social comment, popular   
+**"These people are the Evil our parents warned us about."** - Reddit social comment message, popular   
+Reddit posting title: "Hey maga is this what you voted for 🤔"   
+Reddit posting flair: "THIS IS OUTRAGEOUS" (dark red)  
 Reddit user account name: "Count_de_Ville"  
-Account Bio: "Attractive nuisance."  
+User account Bio: "Attractive nuisance."  
 
 &nbsp;
 
