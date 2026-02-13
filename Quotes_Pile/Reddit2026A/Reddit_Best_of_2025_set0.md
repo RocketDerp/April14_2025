@@ -71,4 +71,6 @@ Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3ltaulv3ytk
 
 https://old.reddit.com/r/CuratedTumblr/comments/1o1sl76/right/niis67o/
 
+<img width="1056" height="774" alt="image" src="https://github.com/user-attachments/assets/0b157cdb-f514-43c1-81ef-18ab20184039" />
+
 October 9, 2025. I featured this comment in About page of this project. https://github.com/RocketDerp/April14_2025/blob/main/Important/About/About_this_GitHub.md#abandonment-of-reality
