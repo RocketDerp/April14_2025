@@ -1024,4 +1024,9 @@ https://old.reddit.com/r/technology/comments/1r40e0c/ftc_wants_apple_news_to_pro
 
 GULLIBLE_FANDOM that takes pro-billionaire technology programming of the audience at face value. Commenting away on every move and shake of the billionaires who provide tech to tech-addicted Reddit users in /r/Technology - entire ignorant of Neil Postman's books from 1980's and 1990's on the subjects. The gullibility of We The People to the brand-names and assets owned by the wealth lords who control media systems. Reddit is manipulated. People on Reddit can't even name the "Internet Research Agency" or "Cambridge Analytica" and describe the information warfare details / techniques.
 
+https://old.reddit.com/r/technology/comments/1r40e0c/ftc_wants_apple_news_to_promote_more_fox_news_and/o58anlg/
+
+4 month Reddit account.
+
+Fiction outsells nonfiction. Reddit community can't comprehend that Reddit itself is full of fiction storytelling and that nonfiction books on paper have been abandoned by the entire society. People are avoidant of seriously organizing and promoting critical nonfiction teaching and education for adults. Dr. Bandy X Lee assembled 27 people and published a book October 3, 3017 that every Reddit user should be quoting, linking, citing - but it rots on the shelf and people are drawn to commenting over and over all on different pages and not getting on the same pages of very important nonfiction books on paper.
 
