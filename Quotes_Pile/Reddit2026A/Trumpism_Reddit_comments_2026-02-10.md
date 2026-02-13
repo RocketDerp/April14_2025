@@ -1113,4 +1113,27 @@ RECENCY_BIAS Recency bias abounds on Reddit comment section. Adults do not educa
 
 https://old.reddit.com/r/technology/comments/1r40e0c/ftc_wants_apple_news_to_promote_more_fox_news_and/o58cgz7/
 
-The Reddit culture of avoiding FAQ and Wiki systems with everyone in filter-bubbles https://en.wikipedia.org/wiki/Filter_bubble on different pages is a huge source of problems regarding serious and critical topics. People can not see the forest for the trees because they filter out the most critical and important as it is not stimulating entertainment and amusement to their individual "good taste" in content. 
+The Reddit culture of avoiding FAQ and Wiki systems with everyone in filter-bubbles https://en.wikipedia.org/wiki/Filter_bubble on different pages (creating low-effort comments) is a huge source of problems regarding serious and critical topics. People can not see the forest for the trees because they filter out the most critical and important as it is not stimulating entertainment and amusement to their individual "good taste" in content. 
+
+https://old.reddit.com/r/technology/comments/1r40e0c/ftc_wants_apple_news_to_promote_more_fox_news_and/o58duyk/
+
+https://old.reddit.com/r/technology/comments/1r40e0c/ftc_wants_apple_news_to_promote_more_fox_news_and/o58jmmv/
+
+1 month Reddit account.
+
+https://old.reddit.com/r/technology/comments/1r40e0c/ftc_wants_apple_news_to_promote_more_fox_news_and/o58n4u1/
+
+Easily confused Reddit users who can not cite or turn to nonfiction serious books on the subject. Here to mockery-wash important topics with low-effort thoughtless commenting.
+
+https://old.reddit.com/r/technology/comments/1r40e0c/ftc_wants_apple_news_to_promote_more_fox_news_and/o58cmkl/
+
+10 month Reddit account. 
+
+https://old.reddit.com/r/technology/comments/1r40e0c/ftc_wants_apple_news_to_promote_more_fox_news_and/o58hiwz/
+
+4 month Reddit account.
+
+https://old.reddit.com/r/technology/comments/1r40e0c/ftc_wants_apple_news_to_promote_more_fox_news_and/o58jauq/
+
+1 month Reddit account. No off-Reddit URL, no quotes from nonfiction sources, no author names...
+
