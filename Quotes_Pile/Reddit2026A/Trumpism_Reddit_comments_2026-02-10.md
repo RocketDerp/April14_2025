@@ -995,3 +995,7 @@ Chapter: The Kidnap of Mass Mind
 Page: 203-204     
 Howard Bloom    
 Published: August 14, 2000    
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1r3vdzl/they_keep_finding_new_ways_to_make_fools_of/o57t7nx/
+
+TRUMP_FANDOM AMUSING_ZOMBIES craving SNL and South Park if you read replies to this comment.
