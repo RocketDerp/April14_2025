@@ -899,3 +899,7 @@ Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3meqrvyf37k
 https://old.reddit.com/r/circled/comments/1r3ozbf/our_president_is_a_laughing_stock_around_the_world/o55w1w5/
 
 Fandom of Trump wishing that more Trump media content and videos and live events visit more cities! Addicts to Trump images.
+
+https://old.reddit.com/r/LetsDiscussThis/comments/1r3nl4p/hey_maga_is_this_what_you_voted_for/o55sd4e/
+
+Yes. And your parents warned you about Russia, KGB. Putin worked for the KGB before the fall of the Berlin Wall in Germany. Your parents warned you to keep an eye on Russia. And you are on Reddit making jokes over and over to joke-wash sane-wash the clearly mentally disturbed behavior of American people who have been manipulated, via Reddit, by the Saint Petersburg Internet Research Agency since March or 2013. You are an anti-compassion anti-empathy cult of hate, a death cult, that thinks it is funny to what what Putin has done to rural less-educated Americans via the Apple iPhone venue! You sold our your fellow Americans to the Kremlin without any defense. Surkov won.
