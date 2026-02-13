@@ -216,3 +216,7 @@ February 28, 1954: "Most people can't stand up for their convictions, because th
 "For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the **true becomes false and the false becomes true**. That's what hate does. You can't see right. **The symbol of objectivity** is lost." - Martin Luther King Jr.
 
 Social post { https://Bsky.App/profile/roundsparrow.bsky.social/post/3meqsmhyj5c2j https://Autistics.Life/@RoundSparrow/116063994102469539 }
+
+https://old.reddit.com/r/circled/comments/1r3ozbf/our_president_is_a_laughing_stock_around_the_world/o55wzrz/
+
+There it is again... the **Trump hate-worship enablers on Reddit still making comments** and not REDDIT_BLACKOUT to promote serious nonfiction mental health education and teaching from Dr. Bandy X Lee assembled 27 contributors!
