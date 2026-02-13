@@ -1,6 +1,6 @@
 # Brainrot Society 47
 
-IMPORTANT: Friday January 16, 2026 I established a dedicated GitHub Project for "Brainrot Society 47". Link here: https://github.com/GreatSealUSA/Brainrot_Society_47/tree/main
+IMPORTANT UPDATE: Friday January 16, 2026 I established a **dedicated GitHub Project** for "Brainrot Society 47". Link here: https://github.com/GreatSealUSA/Brainrot_Society_47/
 
 1. Assert Malala's year 2013 values of education. Malala may have moved on to domestic parenting and marriage, but her year 2013 lectures and books where she understood the crisis still stand.
 
@@ -10,6 +10,7 @@ IMPORTANT: Friday January 16, 2026 I established a dedicated GitHub Project for 
 
 &nbsp;
 
+Details on Brain Rot Society 47 
 Details on BrainRot 47   
 Details on BrainRot 47 society   
 Every 47 hours working together     
