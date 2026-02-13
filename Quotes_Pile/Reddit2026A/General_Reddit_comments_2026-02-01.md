@@ -281,3 +281,7 @@ https://old.reddit.com/r/Animemes/comments/1r2pb2v/bro_got_zero_rizz_unlike_himm
 CHOICE_MARRIAGE_HONESTY 
 
 Social post { https://autistics.life/@RoundSparrow/116058384697057295 https://bsky.app/profile/roundsparrow.bsky.social/post/3meocwoxoe22z }
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1r31xe7/petah_whats_the_joke_why_would_she_be_good_on_the/o512qpx/
+
+And brain-damaging NFL football square-logic Charlie Grown Lucy American football blockhead thinking on social media screen shot.
