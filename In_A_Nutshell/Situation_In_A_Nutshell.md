@@ -25,4 +25,4 @@ You can't scratch together more than TEN FUCKING words, "These people are the Ev
 
 &nbsp;
 
-Social post { https://MidWest.Social/post/43410085 https://bsky.app/profile/roundsparrow.bsky.social/post/3meqx7p4li22j https://autistics.life/@RoundSparrow/116064318263395468 }
+Social post { https://MidWest.Social/post/43410085 https://bsky.app/profile/roundsparrow.bsky.social/post/3meqx7p4li22j https://autistics.life/@RoundSparrow/116064318263395468 https://x.com/RoundSparrow/status/2022354400170365200 }
