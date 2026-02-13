@@ -175,3 +175,23 @@ https://old.reddit.com/r/pics/comments/1r3ei1k/an_iranian_girl_in_iran_pedophile
 "Brainwashed"
 
 But not Reddit users. Not USA Fox News HDTV viewers. Comparative Mythology education is not optional.
+
+https://old.reddit.com/r/circled/comments/1r3ozbf/our_president_is_a_laughing_stock_around_the_world/o55udnq/
+
+<img width="1136" height="1146" alt="image" src="https://github.com/user-attachments/assets/44670189-d440-40fb-9b62-d0a11e58c9dd" />
+
+Every person upvoting this posting, the title of the posting creator, is TELEGRAPHING the reason. FIN_WAKE_INDRA_NET THIS_GITHUB CORE_CONCERNS
+
+# "Laughing Stock Around the World"
+
+A STOCK source of laughter. LOL culture. Meme life. The apple iPhone 1 since year 2007. When Trump got on Twitter July 6, 2011 at 2pm https://theoutline.com/post/2445/trump-s-first-real-tweet-was-on-july-6-2011 is when it started! Neil Postman's 1985 book "Amusing Ourselves To Death" about high-speed media systems describes the issue in more detail, 184 pages.
+
+* “For in the end, he was trying to tell us what afflicted the people in 'Brave New World' was not that they were laughing instead of thinking, but that they did not know what they were laughing about and why they had stopped thinking.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. SEE_ALSO David Foster Wallace concept of "Infinite Jest", joke-jesting infinity black hole.
+
+PEOPLE ON REDDIT WILL NOT FACE UP: What is Trump good at? is Donald Trump good at goodness? Is Trump helping MAGA people with health care? WHAT EXACTLY IS Donald Trump GOOD at except appearing on camera and generating laughter!!! Trump is playing a certain type of laughter source, a comedian character, named "Tony Clifton" - from Trump's own home town, NYC. NYC SNL comedy of "Tony Clifton".
+
+Trump is a camera magnet. Center of attention! Trump got on McDonald's commercials with Grimace dollar menu: https://www.youtube.com/watch?v=W4QNXnNftWk - Donald Trump got in Home Alone films in cinema. Donald Trump gets hot girls, hot women, and flew on a private jet to Moscow November 8, 2013 for Miss Universe Sexy Show! https://time.com/5251484/donald-trump-flight-records-moscow-trip/ - 
+
+Being **a television influencer, a Twitter influencer, a Truth social influencer, a newspaper influencer, a socialite, popularity of pop culture** is what Donald Trump is good at! MEDIA ITSELF, creating MEDIA EVENTS, is the gift and talent of Donald J. Trump! An actor doing acting, playing POTUS Tony Clifton character for laughs! It concentrates power and wealth!
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3meqrillv3k24 https://autistics.life/@RoundSparrow/116063922207138646 }
