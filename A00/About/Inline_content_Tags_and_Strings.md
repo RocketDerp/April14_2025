@@ -44,6 +44,7 @@ IGNORANCE_CELEBRATIONS
 RECENCY_BIAS   
 AMUSEMENT_AS_USUAL   
 LOVE_ONE_ANOTHER   
+SATIRE_SARCASM_WASHING   
 
 
 Topic_tags: media_ecology, media_deconstruction, media_environment, media_conventions    
