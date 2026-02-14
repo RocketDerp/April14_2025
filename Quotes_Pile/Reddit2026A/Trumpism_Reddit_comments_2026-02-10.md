@@ -1448,3 +1448,11 @@ https://old.reddit.com/r/Fauxmoi/comments/1r4w1ak/president_obama_when_i_was_pre
 https://old.reddit.com/r/Fauxmoi/comments/1r4w1ak/president_obama_when_i_was_president_i_suppose_i/o5epj0m/
 
 SURKOVIAN_ONION_EATING gullible.
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1r4wbpo/angela_vergara_colombian_trump_supporter_farright/o5em63g/
+
+Posting title "funny", amusing. Neil Postman was correct in year 1985 book "Amusing Ourselves To Death" about Reddit media audience behaviors and outcomes.
+
+As for the comment: PREDICTABLE_OUTCOME HATE_HARDER competitive hate. AMERICANS_HATE_AMERICANS
+
+
