@@ -1387,3 +1387,6 @@ https://old.reddit.com/r/circled/comments/1r4vt0v/well_then_three_it_is/o5eidjp/
 
 1 month Reddit account. top-voted most popular comment. Banal, extreme short-length low-effort. FAKE_RESISTANCE IGNORANCE_CELEBRATIONS ANYTHING and EVERYTHING to avoid Dr. Bandy X Lee public education repeating, nonfiction learning for We The People on Reddit to stop living in denial of how dangerous the situation is.
 
+https://old.reddit.com/r/circled/comments/1r4vt0v/well_then_three_it_is/o5eioa0/
+
+26 day Reddit account. 2nd most popular upvoted comment. SIMULATION_SIMULACRA 
