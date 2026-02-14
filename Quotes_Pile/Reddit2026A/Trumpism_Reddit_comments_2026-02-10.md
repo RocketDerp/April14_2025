@@ -1229,3 +1229,11 @@ Blows the minds of Reddit Trump fandom that an executive of government or execut
 https://old.reddit.com/r/law/comments/1r43e22/trump_there_will_be_voter_id_for_the_midterm/o593m6w/
 
 11 month Reddit account. SATIRE_SARCASM_WASHING Trump regime, active downplaying.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1r44ed1/sen_kelly_the_old_world_is_gone_because_donald/o593s82/
+
+It was Reddit audience jobs to turn the Russian topics into jokes and memes, as Surkov students manipulated Reddit community to do.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1r44ed1/sen_kelly_the_old_world_is_gone_because_donald/o596ali/
+
+BEYOND_DENIAL. Yes. This message is striking at the core of the problem. We The People have NOT demonstrated any self-awareness that the addiction to IRA memes and Elon Musk Twitter has been at the core of the USA's abandonment of nonfiction serious books and learning for adults since year 2013. The level of reform require is a MASSIVE uprising of the ENTIRE POPULATION age 12 to age 120, voters and non-voters alike, to demonstrate a newfound serious focus on nonfiction learning on media ecology, science, intellectual pursuits. To stop the mocking and insulting of intelligence that Putin has programmed deeply into mindsets.
