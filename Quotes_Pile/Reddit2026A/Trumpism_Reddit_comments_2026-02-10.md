@@ -1216,3 +1216,16 @@ Social post { https://Autistics.life/@RoundSparrow/116066243490631222 https://bs
 https://old.reddit.com/r/PublicFreakout/comments/1r41i00/sanders_the_american_people_do_not_want_this/o58jlso/
 
 Give up on humanism. Let billionaire Rupert Murdoch mind-fuck everyone around you. Let Putin wreck NATO all around your nation because teaching and educating nonfiction using Reddit is too much difficulty. Let the richest man in the world own Twitter and manipulate everyone into *deport harder* and block-button modern book burning / magazine burning.
+
+https://old.reddit.com/r/law/comments/1r43e22/trump_there_will_be_voter_id_for_the_midterm/o58x4fv/
+
+The. Medium. Is. The. Massage. March. Year. 1967. Period.   
+Cults do not care about laws and state lines. Canada 51st state not clue enough for gullible Reddit twitter-thinking users. DENIAL_ABOUNDS
+
+https://old.reddit.com/r/law/comments/1r43e22/trump_there_will_be_voter_id_for_the_midterm/o58vvl5/
+
+Blows the minds of Reddit Trump fandom that an executive of government or executive of business has secretary and helpers. That wealthy people hire help. That hundreds of millions of people are in a cult with similar thinking. Reddit fandom fixates on one and only one person, Trump, the celebrity. RECENCY_BIAS also behaving as if any of this is new, like suddenly in February 2026 it is our first encounter with Donald Trump messages written by other people... ANYTHING and EVERYTHING on Reddit to avoid serious nonfiction teaching and education for adults.
+
+https://old.reddit.com/r/law/comments/1r43e22/trump_there_will_be_voter_id_for_the_midterm/o593m6w/
+
+11 month Reddit account. SATIRE_SARCASM_WASHING Trump regime, active downplaying.
