@@ -1281,6 +1281,12 @@ https://old.reddit.com/r/PublicFreakout/comments/1r4lmvv/joe_rogan_says_the_epst
 
 Joe Rogan has been a winner time and time again selling to a nation of addicts to junk media. The losers are people who have no voice. Joe Rogan has been a media venue that harmed children, programmed parents to worship terrible information sources. Joe Rogan has harmed people like a terrorist mosque in an Islamic nation leading a cult of worship of ignorance. IGNORANCE_CELEBRATIONS Living next to people who are cults of Joe Rogan media celebrity and cults of Trump hate messaging is horrific. These men who love and worship Joe Rogan not only hate women { Hillary Clinton, Kamala Harris } but avoid brave women who teach positive to the general public like Jen Senko and Dr. Bandy X Lee. It is a cult of male aggressive anti-intellectual media celebrities.
 
+https://old.reddit.com/r/PublicFreakout/comments/1r4lmvv/joe_rogan_says_the_epstein_scandal_looks_fucking/o5cuydb/
+
+This is why I say turn to the writings of Malala from January 2009 to year 2015. Her raging confrontation of egoism and egomania when she was outraged at how men treat other men and how men treat women. It is there in her blogs, in her writings, in her interviews, in her speeches. But people can not get behind a woke and intelligent girl leader (she was a girl in 2013 when her book was published October 8, 2013).
+
+People are unattractive to nonfiction serious thinkers. People are attracted to low-effort lazy shallow commenting over and over and over on social machines and attracted to Joe Rogan Experience, podcasts, junk media. Malala's ideas need peer to peer assertion, repeating, not more Joe Rogan repeating. Malala's ideas are a bottom-up rebalance of power away form elderly power men in the Taliban, Russia, White House, Saudi Arabia. Give girls a voice, start listening to girls! Stop fixated on Joe Rogan preaching for Epstein, Trump, Murdoch, Musk, etc.
+
 
 
 
