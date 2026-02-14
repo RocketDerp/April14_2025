@@ -29,6 +29,7 @@ REALITY_REAL
 AMERICANS_HATE_AMERICANS   
 OUT_GROUP_HATE   
 WOKE_TO_WHAT   
+CONSERVING_WHAT   
 MEDIA_WOKE   
 TALIBAN_VALUES   
 MAGA_VALUES   
@@ -41,6 +42,7 @@ HATE_HARDER
 IGNORANCE_CELEBRATIONS  
 RECENCY_BIAS   
 AMUSEMENT_AS_USUAL   
+LOVE_ONE_ANOTHER   
 
 
 Topic_tags: media_ecology, media_deconstruction, media_environment, media_conventions    
