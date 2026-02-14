@@ -49,6 +49,10 @@ SATIRE_SARCASM_WASHING
 NEW_OPERA_NAME  
 CHOICE_MARRIAGE_HONESTY   
 RELIGION_CULTS_MONOMYTH_PROGRAMMING   
+INTERCOURSE_DIALOG   
+PARENTING_HONESTY   
+FAMILY_HONESTY  
+
 
 
 Topic_tags: media_ecology, media_deconstruction, media_environment, media_conventions    
