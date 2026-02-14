@@ -1287,6 +1287,18 @@ This is why I say turn to the writings of Malala from January 2009 to year 2015.
 
 People are unattractive to nonfiction serious thinkers. People are attracted to low-effort lazy shallow commenting over and over and over on social machines and attracted to Joe Rogan Experience, podcasts, junk media. Malala's ideas need peer to peer assertion, repeating, not more Joe Rogan repeating. Malala's ideas are a bottom-up rebalance of power away form elderly power men in the Taliban, Russia, White House, Saudi Arabia. Give girls a voice, start listening to girls! Stop fixated on Joe Rogan preaching for Epstein, Trump, Murdoch, Musk, etc.
 
+https://old.reddit.com/r/PublicFreakout/comments/1r4lmvv/joe_rogan_says_the_epstein_scandal_looks_fucking/o5ccqqf/
 
+https://old.reddit.com/r/PublicFreakout/comments/1r4lmvv/joe_rogan_says_the_epstein_scandal_looks_fucking/o5cdqf8/
+
+So does Reddit fandom. TRUMP_FANDOM
+
+https://old.reddit.com/r/PublicFreakout/comments/1r4lmvv/joe_rogan_says_the_epstein_scandal_looks_fucking/o5ccu7i/
+
+https://old.reddit.com/r/PublicFreakout/comments/1r4lmvv/joe_rogan_says_the_epstein_scandal_looks_fucking/o5d39v0/
+
+https://old.reddit.com/r/PublicFreakout/comments/1r4lmvv/joe_rogan_says_the_epstein_scandal_looks_fucking/o5czpzb/
+
+Reddit media, Reddit media platform avoiding a REDDIT_BLACKOUT over MAGA / Trump and promotion of Dr. Bandy X Lee's nonfiction book from October 3, 2017 onward is infuriating. We The People are beholden to gossip and bullshit and ignorance lead by celebrity stars { Joe Rogan celebrity, Trump celebrity, Musk celebrity, etc }
 
 
