@@ -1455,4 +1455,10 @@ Posting title "funny", amusing. Neil Postman was correct in year 1985 book "Amus
 
 As for the comment: PREDICTABLE_OUTCOME HATE_HARDER competitive hate. AMERICANS_HATE_AMERICANS
 
+https://old.reddit.com/r/International/comments/1r4spo0/the_current_status_of_the_right_wing/o5dw16g/
+
+https://old.reddit.com/r/International/comments/1r4spo0/the_current_status_of_the_right_wing/o5dv60i/
+
+22 day Reddit account. Trivializing the situation. ANYTHING and EVERYTHING to avoid dealing with the Fox News HDTV cult crisis. The QAnon cult crisis, etc. Reddit is a cult of hating other cults. Ask yourself why Reddit isn't promoting the mental health public education by Dr. Bandy X Lee who assembled 27 people to educate the everyday public? Why isn't Reddit social staging a newsworthy serious sustained INTERNET protest, blackout, Internet uprising... REDDIT_BLACKOUT 
+
 
