@@ -1301,4 +1301,10 @@ https://old.reddit.com/r/PublicFreakout/comments/1r4lmvv/joe_rogan_says_the_epst
 
 Reddit media, Reddit media platform avoiding a REDDIT_BLACKOUT over MAGA / Trump and promotion of Dr. Bandy X Lee's nonfiction book from October 3, 2017 onward is infuriating. We The People are beholden to gossip and bullshit and ignorance lead by celebrity stars { Joe Rogan celebrity, Trump celebrity, Musk celebrity, etc }
 
+https://old.reddit.com/r/pics/comments/1r4qgsr/stephen_cheung_white_house_comm_director_who/o5dfgui/
+
+https://old.reddit.com/r/pics/comments/1r4qgsr/stephen_cheung_white_house_comm_director_who/o5ddsyt/
+
+Putin has organized bullying as a leadership technique. Reddit fandom is following the lead. Flocking to every image and leader out of the white house to prize hate and prize bullying leadership. Just like Fox News HDTV fandom is not self-aware they are being manipulated by billionaires to hate, Reddit fandom is not self-aware of the prizing of content. Observe Reddit comment creators have spare time and free time to write these comments but are not organizing a protest black out or messaging campaign to make Dr. Bandy X Lee the center of topic attention and leadership AWAY from Trumpism / MAGA culture.
+
 
