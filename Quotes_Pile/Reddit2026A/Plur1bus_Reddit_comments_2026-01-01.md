@@ -2484,3 +2484,13 @@ https://old.reddit.com/r/confidentlyincorrect/comments/1r435tk/we_the_people/o58
 
 FAITH_IN_HATE anti-rescue. Followers of **Donald Trump's leadership** of hate.
 
+https://old.reddit.com/r/confidentlyincorrect/comments/1r435tk/we_the_people/o58vkjk/
+
+At least one comment landed on PLURIBUS!  
+
+https://old.reddit.com/r/confidentlyincorrect/comments/1r435tk/we_the_people/o58v2ba/
+
+CONSERVING_WHAT - exactly what are people conserving? It's such a generic non-specific wildcard. **Fiction vs. nonfiction is a far better and currently critical measure** for leadership desires. The Bible science fiction? The Quran science fiction? Exactly what is being "conserved"?
+
+* “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.”
+― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. October 8, 2013. About Swat Valley Pakistan conservatives.
