@@ -1192,3 +1192,11 @@ https://old.reddit.com/r/rareinsults/comments/1r420h2/jack_white_on_joe_rogan/o5
 https://old.reddit.com/r/rareinsults/comments/1r420h2/jack_white_on_joe_rogan/o58noqa/
 
 Joe Rogan could be super serious and make a dent by quoting Dr. Bandy X Lee's nonfiction books. Her October 3, 2017 book is for the general education of the public and has 27 contributors. Quoting the nonfiction book for 10 minutes each and every day to get people *on the same page* of serious important mental health topics could be exactly what we need. Beg people to follow  woman who has been leading ahead of the crisis from the start in year 2017. And promote Jen Senkos nonfiction film and book, from year 2015 and March 2016 before Trump was even elected in November 2016.
+
+https://old.reddit.com/r/PublicFreakout/comments/1r41i00/sanders_the_american_people_do_not_want_this/o58iqer/
+
+5 month Reddit account. Top-voted most popular comment. Tweet-thinking "DNC is stupid as fuck" that DNC are the fault. Denial of NATO forest for the USA 2016 tree.
+
+Mind-fucking to Reddit audience to ignore the Russia and Trump information warfare. Not **blaming "We The People" for flocking to stupid memes** and mind-dumbing media manipulation from billionaires. Surkov won since March of year 2013. The Saint Petersburg Internet Research Agency invaded Reddit and trashed so many hearts and minds to avoid serious nonfiction learning. SEE_ALSO https://GitHub.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Cambridge_Analytica_Quotes.md
+
+* Almost FIFTEEN YEARS AGO, FAR BEFORE November 2016 Trump win: “We are **engaged in an information war and we are losing that war**,” she said. China and Russia have started multi-language television networks, she said, even as the U.S. cuts back in this area. “We are paying a big price” for dismantling international communications networks after the end of the Cold War, Clinton said. -- **March 2, 2011**  -- United States Secretary of State Hillary Clinton  
