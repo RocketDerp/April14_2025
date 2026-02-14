@@ -47,3 +47,6 @@ Speed of TCP/IP delivery and upvoting is the measure on Reddit
 
 This is why Reddit audience does not view itself as a Trump Fandom, Epstein Fandom, Musk Fandom. Hate-watching as a *social commenting activity*, talking about how much you hate certain music bands. The conversations of hatred. Hate conversations. Hate conversing.  Prizing hate as a topic to bring to conversations. https://en.wikipedia.org/wiki/Hate-watching
 
+Discovering demand    
+https://youtu.be/-vNfoCwsixg?t=896   
+That's a core point Drew Curtis was making with his year 2007 book.   
