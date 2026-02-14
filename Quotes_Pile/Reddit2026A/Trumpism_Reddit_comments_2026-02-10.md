@@ -1390,3 +1390,12 @@ https://old.reddit.com/r/circled/comments/1r4vt0v/well_then_three_it_is/o5eidjp/
 https://old.reddit.com/r/circled/comments/1r4vt0v/well_then_three_it_is/o5eioa0/
 
 26 day Reddit account. 2nd most popular upvoted comment. SIMULATION_SIMULACRA 
+
+https://old.reddit.com/r/circled/comments/1r4vt0v/well_then_three_it_is/o5eiyfa/
+
+20 day Reddit account. Trivializing the situation. 
+
+https://old.reddit.com/r/circled/comments/1r4vt0v/well_then_three_it_is/o5eix1r/
+
+Gun-worship, hardware-worship, street-gangs slogans and messages. Anti-intellectual programming for Reddit cults. Messaging to Reddit community: AVOID nonfiction learning and study, stroke weapon systems. IGNORANCE_CELEBRATIONS
+
