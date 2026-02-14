@@ -289,3 +289,17 @@ https://old.reddit.com/r/politics/comments/1r4f447/starmer_britains_brexit_years
 
 Twitter-length. No off-Reddit URL. No mention of dates, years. No quotes from nonfiction books. No author names. Serves to trivialize important complex topics. To understand Trumpism, please focus on how USA society prizes these low-effort commenting media environments now. We are in a raging crisis of Trump mass dehumanization / Putin mass dehumanization and Reddit society is anti-FAQ, anti-Wiki anti-Top-10 priority and concern weekly lists. There is no "We the People" uprising, no Reddit protests / social media protest, just commenting over and over in an ocean of low-effort comments. There is no refinement of information and understanding, instead it is drowning in "engagement" to commenting. It is a gathering to be anti-common ground in concerns and comprehending. It is considered uncool to organize a movement or agenda.
 
+https://old.reddit.com/r/politics/comments/1r4f447/starmer_britains_brexit_years_are_over_and_we/o5b6nni/
+
+Casual Putin manipulating UK. No author names, no book quotes, no of-Reddit citation links.
+
+https://old.reddit.com/r/politics/comments/1r4f447/starmer_britains_brexit_years_are_over_and_we/o5b8mgf/
+
+<img width="1070" height="1055" alt="image" src="https://github.com/user-attachments/assets/09c20bca-2c79-4125-9710-999e956b20ea" />
+
+* " If you look behind that pyramid, you see a desert. If you look before it, you see plants growing. The desert, **the tumult in Europe, wars and wars and wars** -- we have pulled ourselves out of it and created a state in the name of reason, not in the name of power, and out of that will come the flowerings of the new life. That's the sense of that part of the pyramid." - year 1987, age 83, Joseph Campbell. Skywalker Ranch. https://www.GreatSealUSA.com
+
+https://old.reddit.com/r/politics/comments/1r4f447/starmer_britains_brexit_years_are_over_and_we/o5bst71/
+
+Street-gang language, gang signs and symbols to use slang nicknames. Trump is a master of programming the favoring of nicknames and gang mentality in regard to governing of nations and social media (Truth Social, Reddit) of same.
+
