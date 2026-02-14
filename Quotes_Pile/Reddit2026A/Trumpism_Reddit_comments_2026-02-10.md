@@ -1187,3 +1187,8 @@ https://old.reddit.com/r/rareinsults/comments/1r420h2/jack_white_on_joe_rogan/o5
 
 25 day Reddit account. Promoting denial that people do in fact believe and trust Joe Rogan's media venue. Just as hundreds of millions of people trust and believe Donald Trump on Truth Social media venue. Downplaying the media crisis of We The People seeking out low-effort IGNORANCE_CELEBRATIONS content from Joe Rogan, Reddit commenting sections, Bluesky commenting images, etc. Media addictions run the USA, and nonfiction serious books on important critical topics are routinely avoided / untouched.
 
+https://old.reddit.com/r/rareinsults/comments/1r420h2/jack_white_on_joe_rogan/o58pibu/
+
+https://old.reddit.com/r/rareinsults/comments/1r420h2/jack_white_on_joe_rogan/o58noqa/
+
+Joe Rogan could be super serious and make a dent by quoting Dr. Bandy X Lee's nonfiction books. Her October 3, 2017 book is for the general education of the public and has 27 contributors. Quoting the nonfiction book for 10 minutes each and every day to get people *on the same page* of serious important mental health topics could be exactly what we need. Beg people to follow  woman who has been leading ahead of the crisis from the start in year 2017. And promote Jen Senkos nonfiction film and book, from year 2015 and March 2016 before Trump was even elected in November 2016.
