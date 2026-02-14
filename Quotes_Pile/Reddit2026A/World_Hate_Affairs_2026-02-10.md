@@ -282,3 +282,10 @@ https://old.reddit.com/r/politics/comments/1r4f447/starmer_britains_brexit_years
 Twitter-think machine-think merging of identity. High-speed reactionary social information systems. Information overload symptoms.
 
 * September 19, 1977 https://www.Organism.Earth/library/document/mcluhan-mcmanus  "No, no, I think now we’re playing backwards. We’re going back into the bicameral mind, which is tribal, collective, without any individual consciousness." 01:18 McManus "But it seems, Dr. McLuhan, that this tribal world is not friendly." 01:23 McLuhan "Oh no. Tribal people, one of their main kinds of sport is sort of butchering each other. It’s a full-time sport in tribal societies."
+
+https://old.reddit.com/r/politics/comments/1r4f447/starmer_britains_brexit_years_are_over_and_we/o5b7uhg/
+
+3 Month Reddit account. Putin, Cambridge Analytica topics.
+
+Twitter-length. No off-Reddit URL. No mention of dates, years. No quotes from nonfiction books. No author names. Serves to trivialize important complex topics. To understand Trumpism, please focus on how USA society prizes these low-effort commenting media environments now. We are in a raging crisis of Trump mass dehumanization / Putin mass dehumanization and Reddit society is anti-FAQ, anti-Wiki anti-Top-10 priority and concern weekly lists. There is no "We the People" uprising, no Reddit protests / social media protest, just commenting over and over in an ocean of low-effort comments. There is no refinement of information and understanding, instead it is drowning in "engagement" to commenting. It is a gathering to be anti-common ground in concerns and comprehending. It is considered uncool to organize a movement or agenda.
+
