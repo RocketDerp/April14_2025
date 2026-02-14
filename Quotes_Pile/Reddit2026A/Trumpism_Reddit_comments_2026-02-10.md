@@ -1324,3 +1324,20 @@ https://old.reddit.com/r/pics/comments/1r4qgsr/stephen_cheung_white_house_comm_d
 And then the Internet Research Agency in Saint Petersburg started exporting it to the World Wide Web, including Reddit.
 
 * "Documents Show How Russia’s Troll Army Hit America. The adventures of Russian agents like The Ghost of Marius the Giraffe, Gay Turtle, and Ass — exposed for the first time." Max Seddon; June 2, 2014 - "The trolls appear to have taken pains to **learn the sites' different commenting systems**. A report on initial efforts **to post comments discusses the types of profanity and abuse** that are allowed on some sites, but not others."; "We are trying to change reality. Reality has indeed begun to change as a result of the appearance of our information in public" - **year 2014** https://www.buzzfeednews.com/article/maxseddon/documents-show-how-russias-troll-army-hit-america
+
+https://old.reddit.com/r/sports/comments/1r4rczi/espn_vet_calls_jd_vance_a_demon_who_made_her_feel/o5dox6g/
+
+Despite world history, and Putin being in power for over 25 years, the TRUMP_FANDOM of JD Vance and White House / Kremlin can not imagine that this mental exploit of We The People is the very mechanism of power. That attraction to hate, flocking to hate leaders, is the very means Trump + JD Vance has so much **social power, political power**, wealth power over the world. That *hate motivates* everyday people to go to Reddit and comment and comment about how much they hate the media experience and encounters of JD Vance. That this is the very means, techniques, and methods of Surkov students! The loathing of what Putin's Russia does to Ukraine since year 2013 is the very population power.
+
+Year 2014. December 31, 2014:
+
+* "The underlying aim, Surkov says, is **not to win the war**, but to use the conflict to create a constant state of destabilized perception, in order to manage and control." - December 31, 2014. And Russia has indeed not won the war, currently February 2026. https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html
+
+Just like **Fox News HDTV fandom of hate content** that is **not-self aware of their attraction to hate-content and hate-watching**, the Reddit commenting community, the end-users of Reddit, are attracted to hate-signals and hate icons / hate status symbols without being self-aware.
+
+* "For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the **true becomes false and the false becomes true**. That's what hate does. You can't see right. **The symbol of objectivity** is lost." - Martin Luther King Jr.
+
+Reddit users are not educated. Reddit users have not been taught that this is the very mechanism Surkov governing techniques / media techniques exploit. That hate and loathing are the mental brain entry point Putin cult / MAGA cult is based upon. Surkov won since March 2013.
+
+* "I've seen too much hate to want to hate myself; hate is too great a burden to bear. I've seen it on the faces of too many sheriffs of the South — I've seen hate. In the faces and even the walk of too many Klansmen of the South, **I've seen hate. Hate distorts** the personality. **Hate does something to the soul that causes one to lose his objectivity.** The man **who hates can't think straight**; the man **who hates can't reason right; the man who hates can't see right**; the man who hates can't walk right. And I know now that Jesus is right, that love is the way. And this is why John said, "God is love," so that he who hates does not know God, but he who loves at that moment has the key that opens the door to the meaning of **ultimate reality**." - July 4, 1965 Atlanta, Georgia.
+
