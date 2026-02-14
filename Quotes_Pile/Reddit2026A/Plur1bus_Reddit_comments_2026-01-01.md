@@ -2464,3 +2464,18 @@ https://old.reddit.com/r/science/comments/1qzcwtr/the_breaking_bad_effect_is_rea
 https://old.reddit.com/r/science/comments/1qzcwtr/the_breaking_bad_effect_is_real_data_shows_cancer/o49uya8/
 
 The honest desperation is having a zero-audience github and trashing your valuable computer skills in favor of standing up to the billionaires. Not being a violent killer like Walter White inspires. But a much less exciting nonfiction book thumping.
+
+
+https://old.reddit.com/r/confidentlyincorrect/comments/1r435tk/we_the_people/o58tz2w/
+
+People in USA do not even grasp (have not been taught or bothered to read nonfiction) the hive mind proposal of the founding fathers, "PLURIBUS" meaning and other Latin language meanings on the Great Seal of the United States of America - printed on the dollar bill.
+
+https://old.reddit.com/r/confidentlyincorrect/comments/1r435tk/we_the_people/o58uegx/
+
+LOVE_ONE_ANOTHER is not optional in a democracy. But people are IGNORANCE_CELEBRATIONS now with Fox News HDTV since October 7, 1996 and Reddit / Twitter / Bluesky low-effort mockery commenting - that people do not grasp the entire purpose of the Free Masons Great Seal of the United States of America is to decrypt (verse Romans 11:33 barrier) and cheery-pick "Love One Another" from The Bible and all other mythology stories across the planet Earth.
+
+https://old.reddit.com/r/confidentlyincorrect/comments/1r435tk/we_the_people/o58ure5/
+
+https://old.reddit.com/r/confidentlyincorrect/comments/1r435tk/we_the_people/o58uezy/
+
+WOKE_TO_WHAT ? Exactly? This is why I keep emphasizing over and over Minute 22 of Episode One of PLUR1BUS Apple TV+ show... WOKE TO WHAT? WAKE TO WHAT? Media ecology. "Finnegans Wake is the greatest guidebook to media study ever fashioned by man." - Marshall McLuhan, Newsweek Magazine, page 56, February 28, 1966
