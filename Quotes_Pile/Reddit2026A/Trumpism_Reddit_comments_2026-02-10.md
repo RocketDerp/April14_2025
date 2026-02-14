@@ -910,3 +910,463 @@ Yes. You watched Evil be programmed right into hearts and minds. And your parent
 
 Social post { https://MidWest.Social/post/43410085 }   
 SEE_ALSO THIS_GITHUB dedicated page: https://github.com/RocketDerp/April14_2025/blob/main/In_A_Nutshell/Situation_In_A_Nutshell.md
+
+https://old.reddit.com/r/LetsDiscussThis/comments/1r3nl4p/hey_maga_is_this_what_you_voted_for/o55kxof/
+
+And that's what the USA is going to die for. Dumb as fuck desires to be hated. For the "LOL", for the 4Chan amusement mindsets. Surkov won since March 2013.
+
+https://old.reddit.com/r/news/comments/1r3qjln/trumps_cdc_is_canceling_600m_in_hiv_and_std_funds/o56591q/
+
+ANSWER: Reddit users are avoidant of nonfiction learning. Instead, people are engaged in REACTING to CDC actions by the White House. People on Reddit are REACTING to Republican political party and Kremlin political organized crimes. People using social media systems are NOT turning to Dr. Bandy X Lee as a leader and quoting her nonfiction books and articles. ANY NATION in the entire world could be elevating Dr. Bandy X Lee's 27 contributors from her October 3, 2017 book. But the entire world is failing to take mental health of the White House seriously as a educational teaching topic.
+
+https://old.reddit.com/r/circled/comments/1r3rc5s/even_the_hot_pile_of_newsmax_is_calling_epstein_a/o56fhzi/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1r3sdwk/the_history_is_witnessing_the_death_of_humanity/o56mbil/
+
+<img width="1453" height="1435" alt="image" src="https://github.com/user-attachments/assets/db13b370-e8e7-47aa-89bb-4b780c666808" />
+
+Reddit Fandom of MAGA, the Trumpism fandom cult on Reddit, has extreme recency bias. RECENCY_BIAS Minds are being reset constantly with extreme laughter and joke sessions over Trump / MAGA / Musk and people blow their memories out. Neil Postman warned of this mind exploit in his year 1985 book "Amusing Ourselves To Death" - which is a nonfiction book about Reddit authored decades before Reddit went online.
+
+The constant "shocked" and "amazed" reaction is a SYMPTOM of over-amusement! We are over 10 years into deep shit and people are thinking that it only started last week or this month. Thinking itself is corrupted by laughter. Laughter is the best mind-fuck. Surkov won.
+
+Social post { https://autistics.life/@RoundSparrow/116064870795703535 https://bsky.app/profile/roundsparrow.bsky.social/post/3mer726hekk2c }
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1r3sdwk/the_history_is_witnessing_the_death_of_humanity/o56kg2b/
+
+PREDICTABLE_OUTCOME AMUSING_ZOMBIES 
+
+Exactly what Neil Postman is describing in year 1985 with his book "Joking Ourselves To Death", New York University, Trump's home town. People can't see that EVERYBODY ALL THE TIME is laughing and mocking at the total mockery created by Surkov students. Russia won the information war exploiting this HIGHLY PREDICTABLE reaction. It blows minds to LOL away issues. Gallows humor has been weaponized. BLIND_FAITH in laughing. Instead of doing a Reddit blackout, REDDIT_BLACKOUT - people are LOL LOL LOL all day every minute of every day for over A DECADE LONG laughter shit-show at Trump! Trump shit-posts on Truth Social and Reddit end-users drag it over to Reddit for crowds frolicking in Trump's shit comedy! The POTUS Tony Clifton act works on Reddit fandom EVERY DAMN TIME!
+
+* “For in the end, he was trying to tell us what afflicted the people in 'Brave New World' was not that they were laughing instead of thinking, but that they did not know what they were laughing about and why they had stopped thinking.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. New York University.
+
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1r3sdwk/the_history_is_witnessing_the_death_of_humanity/o56m00y/
+
+SUPER_HYPER_NORMAL ... EXACTLY! This is in no way "normal" for USA criminals. This is Surkovian information warfare, this is Russian Surkov students in action. This is the most sophisticated mind-blowing of Reddit users into predictable Twitter-think to rapidly normalize this via extreme high-speed TCP/IP information systems.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1r3sdwk/the_history_is_witnessing_the_death_of_humanity/o56vdqf/
+
+CONTEXT_BEWILDERMENT 
+
+https://old.reddit.com/r/politics/comments/1r3qecf/where_are_all_the_dont_tread_on_me_americans/o562fys/
+
+Surkov won since March 2013.
+
+https://old.reddit.com/r/politics/comments/1r3qecf/where_are_all_the_dont_tread_on_me_americans/o5625gd/
+
+Self-harm USA. Surkov won.
+
+https://old.reddit.com/r/politics/comments/1r3qecf/where_are_all_the_dont_tread_on_me_americans/o563vi2/
+
+5 month Reddit account.
+
+AMERICANS_HATE_AMERICANS OUT_GROUP_HATE  
+
+https://old.reddit.com/r/politics/comments/1r3qecf/where_are_all_the_dont_tread_on_me_americans/o5626l4/
+
+And commenting online about Trump's { poop, shit, diaper, smell, odor, pants }. Amused in a meme stupor. CHUCKLEHEAD_NATION
+
+https://old.reddit.com/r/politics/comments/1r3qecf/where_are_all_the_dont_tread_on_me_americans/o565j1h/
+
+THIS_GITHUB WAR_AGAINST_REALITY REALITY_REAL   
+
+https://old.reddit.com/r/politics/comments/1r3qecf/where_are_all_the_dont_tread_on_me_americans/o562e2s/
+
+https://old.reddit.com/r/politics/comments/1r3qecf/where_are_all_the_dont_tread_on_me_americans/o5663bm/
+
+DENIAL_ABOUNDS Denial of Russian information warfare, denial of billionaire Rupert Murdoch manipulated the rural less-educated population. Celebration of ignorance on Reddit. Surkov won. AMERICANS_HATE_AMERICANS   
+
+https://old.reddit.com/r/politics/comments/1r3qecf/where_are_all_the_dont_tread_on_me_americans/o563ane/
+
+PREDICTABLE_OUTCOME SIMULATION_SIMULACRA 
+
+https://old.reddit.com/r/politics/comments/1r3qecf/where_are_all_the_dont_tread_on_me_americans/o567vaa/
+
+GUN_WORSHIP  More reasonable discussion, but it is a common back-pocket faith system. Deepest faith, faith of last resort (Great Seal USA ideal teaching is the arrows are indeed a last resort).  
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1r3vdzl/they_keep_finding_new_ways_to_make_fools_of/o576acc/
+
+QUOTE FROM NONFICTION BOOK FOLLOWS
+
+When conformity enforcers overwhelm diversity generators, all of us are in trouble. Spartans -- fundamentalists, militia groups, fascists, and ultra-nationalists -- can freeze the machinery of collective mind. A shutdown of urban diversity devastates that exercise of collective acumen we call an economy. Christian Fundamentalism has been shown by the research of sociologists Alfred Darnell and Darren E. Sherkat to retard the learning of children raised within its grasp. Darnell and Sherkat sum up a common Fundamentalist attitude in the following words: "No schooling is better than secular schooling." Then there's the paralysis of thought which outright battle brings. When World War I erupted, Sigmund Freud was horrified by the sudden "narrow-mindedness shown by \[even\] the best intellects, their obduracy, their inaccessibility to the most forcible arguments." Such closings of the mind may explain why authoritarians are prone to ignore it when their approaches flop. They often goose-step from one year to another rigidly glued to backfiring ways.
+
+Global Brain: The Evolution of Mass Mind from the Big Bang to the 21st Century      
+Chapter: The Kidnap of Mass Mind     
+Page: 203-204     
+Howard Bloom    
+Published: August 14, 2000    
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1r3vdzl/they_keep_finding_new_ways_to_make_fools_of/o57t7nx/
+
+TRUMP_FANDOM AMUSING_ZOMBIES craving SNL and South Park if you read replies to this comment.
+
+https://old.reddit.com/r/technology/comments/1r40e0c/ftc_wants_apple_news_to_promote_more_fox_news_and/o5877ry/
+
+GULLIBLE_FANDOM An audience of Apple computers and Reddit /r/Technology love that is so gullible to news sources that it believes billionaire talking points. Unable to turn to serious nonfiction. For over a decade, parroting away about "the government" without seeing the influence the Apple iPhone and Apple iPad have had with Twitter-thinking short-message mocking that is all too predictable of social media consumers.
+
+https://old.reddit.com/r/technology/comments/1r40e0c/ftc_wants_apple_news_to_promote_more_fox_news_and/o5884c7/
+
+And Reddit commenting section is news? it is ALL entertainment. Another Twitter-length short message upvoted high on the page. Reddit fandom of MAGA can not cite nonfiction serious discussions of the problems of media systems and the cult of fiction storytelling Fox News feeds.
+
+Every subreddit of Reddit is an "alternate universe", alternate reality game of fiction fandoms. Thousands and thousands of Fox News entertainment-style communities as subreddits. This was published more than a decade ago, but Reddit society repulses nonfiction media analysis:
+
+* “Today, reports of the day’s events are conveyed to the viewing public by way of alternate universes, The Fox News cable channel conveys its version of reality, while at the other end of the ideological spectrum MSNBC presents its version. They and their many counterparts on radio are more the result of an economic dynamic than a political one. Dispatching journalists into the field to gather information costs money; hiring a glib bloviator is relatively cheap, and inviting opinionated guests to vent on the air is entirely cost-free. It wouldn’t work if it weren’t popular, and audiences, it turns out, are endlessly absorbed by hearing amplified echoes of their own biases. It’s divisive and damaging to the healthy functioning of our political system, but it’s also indisputably inexpensive and, therefore, good business.” ― Ted Koppel. Lights Out: A Cyberattack, A Nation Unprepared, Surviving the Aftermath. October 27, 2015. Page 13.
+
+https://old.reddit.com/r/technology/comments/1r40e0c/ftc_wants_apple_news_to_promote_more_fox_news_and/o588p5r/
+
+Again and again, year after year, it is what We The People on Reddit show what is wanted. Authoritative owners, moderators /r/Technology addicts to tech addictions that billionaires manipulate. The prizing of rapid delivery of simplistic ideas... almost always avoiding nonfiction serious books on paper.
+
+https://old.reddit.com/r/technology/comments/1r40e0c/ftc_wants_apple_news_to_promote_more_fox_news_and/o58a2sd/
+
+Where is the Reddit blackout protest? REDDIT_BLACKOUT - where is the uprising to stand up and call for nonfiction and pro-intellectual leadership instead of memes and mocking MAGA and Trump mythology...
+
+https://old.reddit.com/r/technology/comments/1r40e0c/ftc_wants_apple_news_to_promote_more_fox_news_and/o58tdbx/
+
+GULLIBLE_FANDOM that takes pro-billionaire technology programming of the audience at face value. Commenting away on every move and shake of the billionaires who provide tech to tech-addicted Reddit users in /r/Technology - entire ignorant of Neil Postman's books from 1980's and 1990's on the subjects. The gullibility of We The People to the brand-names and assets owned by the wealth lords who control media systems. Reddit is manipulated. People on Reddit can't even name the "Internet Research Agency" or "Cambridge Analytica" and describe the information warfare details / techniques.
+
+https://old.reddit.com/r/technology/comments/1r40e0c/ftc_wants_apple_news_to_promote_more_fox_news_and/o58anlg/
+
+4 month Reddit account.
+
+Fiction outsells nonfiction. Reddit community can't comprehend that Reddit itself is full of fiction storytelling and that nonfiction books on paper have been abandoned by the entire society. People are avoidant of seriously organizing and promoting critical nonfiction teaching and education for adults. Dr. Bandy X Lee assembled 27 people and published a book October 3, 3017 that every Reddit user should be quoting, linking, citing - but it rots on the shelf and people are drawn to commenting over and over all on different pages and not getting on the same pages of very important nonfiction books on paper.
+
+https://old.reddit.com/r/technology/comments/1r40e0c/ftc_wants_apple_news_to_promote_more_fox_news_and/o58bvbt/
+
+https://old.reddit.com/r/technology/comments/1r40e0c/ftc_wants_apple_news_to_promote_more_fox_news_and/o58byx5/
+
+https://old.reddit.com/r/technology/comments/1r40e0c/ftc_wants_apple_news_to_promote_more_fox_news_and/o58csd6/
+
+https://old.reddit.com/r/technology/comments/1r40e0c/ftc_wants_apple_news_to_promote_more_fox_news_and/o58i4it/
+
+Reddit is cult media, media cult, memes and amusements and comedy-washing MAGA and Trump.. Reddit cult media where that people prize low-effort simplistic commenting in avoidance of serious nonfiction relevant books on paper.
+
+https://old.reddit.com/r/technology/comments/1r40e0c/ftc_wants_apple_news_to_promote_more_fox_news_and/o58sp6x/
+
+Yes. Remember when intelligent people in USA turned to nonfiction serious sources in troubled times to learn as adults. Like the 27 people Dr. Bandy X lee assembled in her nonfiction book published October 3, 2017. That Reddit can't seem to locate at the public library and rescue the USA from Trump. Instead, Reddit users spend their free time and spare time commenting over and over and over about the Trump FTC and other federal government actions in reactionary ways... instead of assembling an actual We The People uprising. WOKE_TO_WHAT 
+
+https://old.reddit.com/r/technology/comments/1r40e0c/ftc_wants_apple_news_to_promote_more_fox_news_and/o58t11r/
+
+https://old.reddit.com/r/technology/comments/1r40e0c/ftc_wants_apple_news_to_promote_more_fox_news_and/o58tw29/
+
+https://old.reddit.com/r/technology/comments/1r40e0c/ftc_wants_apple_news_to_promote_more_fox_news_and/o58txgq/
+
+Reddit audience is a simulation of resisting. Commenting and mocking is not resisting a federal government run by Tony Clifton performance and Surkov students. Reddit tech addicts are CONDITIONED_OPPOSITION that billionaires have captured.
+
+https://old.reddit.com/r/technology/comments/1r40e0c/ftc_wants_apple_news_to_promote_more_fox_news_and/o58gy0z/
+
+20 year Reddit account chimes in.
+
+https://old.reddit.com/r/technology/comments/1r40e0c/ftc_wants_apple_news_to_promote_more_fox_news_and/o58kz6h/
+
+This is not resisting Putin and Trump. Playing dumb and acting like all this started just this week. And there hasn't been a hearts and minds war by Putin / Russia / Kremlin to have the USA adopt Russian techniques since year 2013. This type of commenting on Reddit is to downplay the situation with gentle questions. FAKE_OPPOSITION
+
+https://old.reddit.com/r/technology/comments/1r40e0c/ftc_wants_apple_news_to_promote_more_fox_news_and/o58javs/
+
+Serious nonfiction no longer has an audience. The USA society seeks out low-effort commenting like you see all over Reddit in the face of extremely serious topics.
+
+https://old.reddit.com/r/technology/comments/1r40e0c/ftc_wants_apple_news_to_promote_more_fox_news_and/o58pb8g/
+
+Mythology and fiction has been proven far more popular as a way of governing. Surkov governing. But Reddit users can't be bothered to learn about Russia's war against nonfiction since March 2013 via Reddit manipulation using the Saint Petersburg Internet Research Agency. Reddit tech fandoms now prefer no-identity screen shots off Twitter on /r/All and no-identity commenting that avoids any kind of FAQ and Wiki organization of important critical society topics. Nonfiction books quotes relevant to the topics at hand are deafening silence on Reddit. But low-effort commenting all at different times sure is thriving and breeding!
+
+* “If all information is seen as part of a war, **out go any dreams of a global information space where ideas flow freely, bolstering deliberative democracy**. Instead, the best future one can hope for is an ‘information peace’, in which each side respects the other’s ‘information sovereignty’: a favoured concept of both Beijing and Moscow, and essentially a cover for enforcing censorship.”
+― Peter Pomerantsev, This Is Not Propaganda: Adventures in the War Against Reality. Year 2019.
+
+https://old.reddit.com/r/technology/comments/1r40e0c/ftc_wants_apple_news_to_promote_more_fox_news_and/o58pq0g/
+
+Beyond stupid are the commenting communities on Reddit that avoid serious nonfiction books. And avoid building FAQ and Wiki systems to get every person on the same page of important topics in getting USA back on track to nonfiction science teaching and learning for adults. Instead, commenting sections all over the Internet are full of people commenting how stupid and dumb and idiot and moron everything is all the time year after year since year 2013.
+
+https://old.reddit.com/r/technology/comments/1r40e0c/ftc_wants_apple_news_to_promote_more_fox_news_and/o58pufr/
+
+The posting topic here is Apple computers / Apple iPhone / Apple iPad. Reddit commenting section can't be bothered to turn to serious nonfiction sources on these critical important society topics. This book was published BEFORE the Apple iPhone went on sale in middle of year 2007! Nearly TWO DECADES ago Dew Curtis published a book on this relevant subject, but Reddit fandoms of low-effort commenting at high speeds can't be bothered to seek out a public library and learn from nonfiction books on paper:
+
+* "however a lot of what people want isn't news, and we're talking about **news sources giving up on their core mission - informing us. Journalism is straying into entertainment**. The lines between serious news segments, news entertainment, and **news comedy** are blurring" - Drew Curtis in interviews about his new book. Wednesday **May 23, 2007**. https://www.cbsnews.com/news/farks-drew-curtis-on-how-news-isnt-news/
+* * SEE_ALSO https://GitHub.com/GreatSealUSA/Brainrot_Society_47/blob/main/Crap_as_News/Drew_Curtis_FARK-com_Crap_as_News.md
+
+https://old.reddit.com/r/technology/comments/1r40e0c/ftc_wants_apple_news_to_promote_more_fox_news_and/o58qhbq/
+
+https://old.reddit.com/r/technology/comments/1r40e0c/ftc_wants_apple_news_to_promote_more_fox_news_and/o58ql53/
+
+https://old.reddit.com/r/technology/comments/1r40e0c/ftc_wants_apple_news_to_promote_more_fox_news_and/o58slm3/
+
+Self-centered egoism that the problem is just own person doing personal blocking. Day after day, Trump the Reality TV star and Putin's Kremlin keep showing that media is leading the society... but denial abounds on Reddit year after year as to Trump's success and power growth since June 16, 2015. DENIAL_ABOUNDS An Apple device user, and exactly the kind of "I am above everyone else" attitude that Apple cultivates among their fandom. Tech /r/Technology fandom of Apple computers.
+
+https://old.reddit.com/r/technology/comments/1r40e0c/ftc_wants_apple_news_to_promote_more_fox_news_and/o58t5gh/
+
+IGNORANCE_CELEBRATIONS on Reddit comment section. "Breitbart News Network was created in mid-2007 by American conservative commentator Andrew Breitbart." **Fox News went online October 7, 1996** - Putin's birthday which is is more than a decade BEFORE Breitbart network. The very Reddit posting title mentions Fox News. Rupert Murdoch has been doing global media systems like this all over the world. Neil Postman's book, "Amusing Ourselves To Death" about television news - published in year 1985 was already raising very serious and important concerns. Just like Reddit memes do in year 2026:
+
+NONFICTION BOOK QUOTE FOLLOWS:
+
+Neil Postman, year 1985: "We may surmise that the ninety million Americans who watch television every night also think so. But what I am claiming here is not that television is entertaining but that it has made entertainment itself the natural format for the representation of all experience. Our television set keeps us in constant communion with the world, but it does so with a face whose smiling countenance is unalterable. The problem is not that television presents us with entertaining subject matter but that **all subject matter is presented as entertaining**, which is another issue altogether."
+
+Neil Postman, year 1985: "To say it still another way: **Entertainment is the supra-ideology of all discourse on television. No matter what is depicted or from what point of view, the overarching presumption is that it is there for our amusement and pleasure**. That is why even on news shows which provide us daily with fragments of tragedy and barbarism, we are urged by the newscasters to “join them tomorrow.” What for? One would think that several minutes of murder and mayhem would suffice as material for a month of sleepless nights. We accept the newscasters’ invitation because we know that **the “news” is not to be taken seriously, that it is all in fun**, so to say. Everything about a news show tells us this — the good looks and amiability of the cast, their pleasant banter, the exciting music that opens and closes the show, the vivid film footage, **the attractive commercials** — all these and more suggest that what we have just seen is no cause for weeping. A news show, to put it plainly, is a format for entertainment, not for education, reflection or catharsis."
+
+― Neil Postman, Amusing Ourselves to Death: [Public Discourse in the Age of Show Business. page 87. Year 1985.](https://books.google.com/books?id=zGkhbPEjkRoC&pg=PA87&dq=%22The+problem+is+not+that+television+presents+us+with+entertaining+subject+matter+but+that+all+subject+matter+is+presented+as+entertaining.%E2%80%9D&hl=en&newbks=1&newbks_redir=1&sa=X&ved=2ahUKEwjQ-aP3z9eSAxW5CTQIHcW8ALQQ6AF6BAgHEAM)
+
+Just like the Apple iPhone, Apple iPad, and Reddit media venue are a meme wrapping of serious important topics as amusement and stimulating Sponge Bob and image macros.
+
+https://old.reddit.com/r/technology/comments/1r40e0c/ftc_wants_apple_news_to_promote_more_fox_news_and/o58c8c9/
+
+RECENCY_BIAS Recency bias abounds on Reddit comment section. Adults do not educate themselves with nonfiction on these critical and serious topics and are attracted to creating extremely low-effort commenting on important concerns. "State media is here", this was spelled out in year 1985 that entertainment seeking fandoms like Reddit audience behaves... is far more concerned with amusements and tech /r/Technology diversions.
+
+* "For all his perspicacity, George Orwell would have been stymied by this situation; there is nothing “Orwellian” about it. **The President does not have the press under his thumb**. The New York Times and The Washington Post are not Pravda; the Associated Press is not Tass. And there is no Newspeak here. Lies have not been defined as truth nor truth as lies. **All that has happened is that the public has adjusted to incoherence and been amused** into indifference. Which is why Aldous Huxley would not in the least be surprised by the story. Indeed, he prophesied its coming. He believed that it is far more likely that the Western democracies will dance and dream themselves into oblivion than march into it, single file and manacled. Huxley grasped, as Orwell did not, that it is not necessary to conceal anything from a public insensible to contradiction and **narcoticized by tech**nological diversions. Although Huxley did not specify that television would be our main line to the drug, he would have no difficulty accepting Robert MacNeil’s observation that “Television is the soma of Aldous Huxley’s Brave New World.” Big Brother turns out to be Howdy Doody." ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, **year 1985**, page 111
+* * Howdy Doody is an American children's television program (with circus and Western frontier themes) that was created and produced by Victor F. Campbell and E. Roger Muir. It was broadcast on the NBC television network in the United States from December 27, 1947, until September 24, 1960." https://en.wikipedia.org/wiki/Howdy_Doody
+
+https://old.reddit.com/r/technology/comments/1r40e0c/ftc_wants_apple_news_to_promote_more_fox_news_and/o58cgz7/
+
+The Reddit culture of avoiding FAQ and Wiki systems with everyone in filter-bubbles https://en.wikipedia.org/wiki/Filter_bubble on different pages (creating low-effort comments) is a huge source of problems regarding serious and critical topics. People can not see the forest for the trees because they filter out the most critical and important as it is not stimulating entertainment and amusement to their individual "good taste" in content. 
+
+https://old.reddit.com/r/technology/comments/1r40e0c/ftc_wants_apple_news_to_promote_more_fox_news_and/o58duyk/
+
+https://old.reddit.com/r/technology/comments/1r40e0c/ftc_wants_apple_news_to_promote_more_fox_news_and/o58jmmv/
+
+1 month Reddit account.
+
+https://old.reddit.com/r/technology/comments/1r40e0c/ftc_wants_apple_news_to_promote_more_fox_news_and/o58n4u1/
+
+Easily confused Reddit users who can not cite or turn to nonfiction serious books on the subject. Here to mockery-wash important topics with low-effort thoughtless commenting.
+
+https://old.reddit.com/r/technology/comments/1r40e0c/ftc_wants_apple_news_to_promote_more_fox_news_and/o58cmkl/
+
+10 month Reddit account. 
+
+https://old.reddit.com/r/technology/comments/1r40e0c/ftc_wants_apple_news_to_promote_more_fox_news_and/o58hiwz/
+
+4 month Reddit account.
+
+https://old.reddit.com/r/technology/comments/1r40e0c/ftc_wants_apple_news_to_promote_more_fox_news_and/o58jauq/
+
+1 month Reddit account. No off-Reddit URL, no quotes from nonfiction sources, no author names...
+
+https://old.reddit.com/r/UnderReportedNews/comments/1r43jl8/thomas_massie_i_am_not_suicidal/o58xdrz/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1r43jl8/thomas_massie_i_am_not_suicidal/o58y8te/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1r43jl8/thomas_massie_i_am_not_suicidal/o58ymr4/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1r43jl8/thomas_massie_i_am_not_suicidal/o58zjez/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1r43jl8/thomas_massie_i_am_not_suicidal/o58znaj/
+
+ANSWER: a nation of commenting addicts and like-button toching addicts, upvote-button addicts... people who avoid nonfiction learning for adults. We The People of the USA have abandoned nonfiction in favor of low-effort commenting on page after page of social media systems. Trump is a media addict leading  nation of media addictions. Surkov won since March 2013. Reddit can't face the addiction problems and have a REDDIT_BLACKOUT protest to demonstrate that We The People are the power of society - and instead people keep making shit-commenting and shit-postings and AMUSEMENT_AS_USUAL with entertainment and memes. No matter how horrific it has gotten, Reddit users can't call to get on the same page of critical and important nonfiction topics. GTA6 news and Steam sales is more a Reddit fandom concern that having an Internet protest to remove Trump and put Dr. Bandy X Lee's 27 people front and center regarding MAGA cult.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1r43jl8/thomas_massie_i_am_not_suicidal/o5932w7/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1r43jl8/thomas_massie_i_am_not_suicidal/o58yv0v/
+
+6 month Reddit account.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1r43jl8/thomas_massie_i_am_not_suicidal/o58zprd/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1r43jl8/thomas_massie_i_am_not_suicidal/o58yw7o/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1r43jl8/thomas_massie_i_am_not_suicidal/o58zpjj/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1r43jl8/thomas_massie_i_am_not_suicidal/o594la4/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1r43jl8/thomas_massie_i_am_not_suicidal/o58z3cf/
+
+"Insane". Minds constantly blown into simple-think patterns on Reddit.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1r43jl8/thomas_massie_i_am_not_suicidal/o58zfme/
+
+6 month Reddit account.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1r43jl8/thomas_massie_i_am_not_suicidal/o58zukq/
+
+"LOL", laugh track for Reddit MAGA fandoms.
+
+https://old.reddit.com/r/rareinsults/comments/1r420h2/jack_white_on_joe_rogan/o58nfd2/
+
+DENIAL_ABOUNDS
+
+https://old.reddit.com/r/rareinsults/comments/1r420h2/jack_white_on_joe_rogan/o58pany/
+
+No dates, no off-Reddit links, etc.
+
+https://old.reddit.com/r/rareinsults/comments/1r420h2/jack_white_on_joe_rogan/o58l05o/
+
+25 day Reddit account. Promoting denial that people do in fact believe and trust Joe Rogan's media venue. Just as hundreds of millions of people trust and believe Donald Trump on Truth Social media venue. Downplaying the media crisis of We The People seeking out low-effort IGNORANCE_CELEBRATIONS content from Joe Rogan, Reddit commenting sections, Bluesky commenting images, etc. Media addictions run the USA, and nonfiction serious books on important critical topics are routinely avoided / untouched.
+
+https://old.reddit.com/r/rareinsults/comments/1r420h2/jack_white_on_joe_rogan/o58pibu/
+
+https://old.reddit.com/r/rareinsults/comments/1r420h2/jack_white_on_joe_rogan/o58noqa/
+
+Joe Rogan could be super serious and make a dent by quoting Dr. Bandy X Lee's nonfiction books. Her October 3, 2017 book is for the general education of the public and has 27 contributors. Quoting the nonfiction book for 10 minutes each and every day to get people *on the same page* of serious important mental health topics could be exactly what we need. Beg people to follow  woman who has been leading ahead of the crisis from the start in year 2017. And promote Jen Senkos nonfiction film and book, from year 2015 and March 2016 before Trump was even elected in November 2016.
+
+https://old.reddit.com/r/PublicFreakout/comments/1r41i00/sanders_the_american_people_do_not_want_this/o58iqer/
+
+5 month Reddit account. Top-voted most popular comment. Tweet-thinking "DNC is stupid as fuck" that DNC are the fault. Denial of NATO forest for the USA 2016 tree.
+
+Mind-fucking to Reddit audience to ignore the Russia and Trump information warfare. Not **blaming "We The People" for flocking to stupid memes** and mind-dumbing media manipulation from billionaires. Surkov won since March of year 2013. The Saint Petersburg Internet Research Agency invaded Reddit and trashed so many hearts and minds to avoid serious nonfiction learning. SEE_ALSO https://GitHub.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Cambridge_Analytica_Quotes.md
+
+* Almost FIFTEEN YEARS AGO, FAR BEFORE November 2016 Trump win: “We are **engaged in an information war and we are losing that war**,” she said. China and Russia have started multi-language television networks, she said, even as the U.S. cuts back in this area. “We are paying a big price” for dismantling international communications networks after the end of the Cold War, Clinton said. -- **March 2, 2011**  -- United States Secretary of State Hillary Clinton  
+
+https://old.reddit.com/r/PublicFreakout/comments/1r41i00/sanders_the_american_people_do_not_want_this/o58ga7c/
+
+<img width="1137" height="1288" alt="image" src="https://github.com/user-attachments/assets/d3a72314-9150-4a44-a389-a3c7f5194de4" />
+
+BEYOND_DENIAL "evidently", it is "self-evident" (usage as the 1776 founding fathers used that phrase) REALITY_REAL - yet... denial is far more popular. You see replies to this comment about 75% of the population. SO MUCH DENIAL of Elon Musk purchasing Twitter, Donald Trump Truth Social, Fox News HDTV, the **extreme low-effort commenting all over Reddit**. Shit-commenting, shit-posting, EVERYWHERE in USA society! The enshitification problems and crisis! The Brain Rot problem and crisis! Donald Trump was OUT OF OFFICE for 4 years, Joe Biden took over, but the BRAIN ROT of Apple iPhone / Apple iPad / Samsung Android device users CONTINUED! Joe Biden did not address the cult issues of high-speed information systems!
+
+WHY IS REDDIT community Not doing BLACKOUTS AS PROTESTS, Internet PROTESTING, and landing on the front page of world news sections all over planet Earth? REDDIT_BLACKOUT - because anti-MAGA is a cult. Reddit audience is a **media cult** of mocking and insulting! "Leopard At Faces" cultists! Meme cult of making memes about Trump and his supporters! Cults vs. cults! Simulation vs. simulation! Surkov won since March of year 2013! THIS_GITHUB created because so many of *We The People have failed to grasp* 1950's Marshall McLuhan, 1980's Neil Postman, etc.
+
+Reply comment quote: "I don't know why anyone ever believed him" - Reddit comment 2026-02-13, denial denial denial of Russia vs. NATO. Attacking Canada as 51st state, Greenland NATO, etc. Russia defeated USA hearts and minds to believe fiction, to be attracted to shit-commenting shit-memes and shit-postings since year 2013!
+
+Social post { https://Autistics.life/@RoundSparrow/116066243490631222 https://bsky.app/profile/roundsparrow.bsky.social/post/3merslh2n5k2n }
+
+https://old.reddit.com/r/PublicFreakout/comments/1r41i00/sanders_the_american_people_do_not_want_this/o58jlso/
+
+Give up on humanism. Let billionaire Rupert Murdoch mind-fuck everyone around you. Let Putin wreck NATO all around your nation because teaching and educating nonfiction using Reddit is too much difficulty. Let the richest man in the world own Twitter and manipulate everyone into *deport harder* and block-button modern book burning / magazine burning.
+
+https://old.reddit.com/r/law/comments/1r43e22/trump_there_will_be_voter_id_for_the_midterm/o58x4fv/
+
+The. Medium. Is. The. Massage. March. Year. 1967. Period.   
+Cults do not care about laws and state lines. Canada 51st state not clue enough for gullible Reddit twitter-thinking users. DENIAL_ABOUNDS
+
+https://old.reddit.com/r/law/comments/1r43e22/trump_there_will_be_voter_id_for_the_midterm/o58vvl5/
+
+Blows the minds of Reddit Trump fandom that an executive of government or executive of business has secretary and helpers. That wealthy people hire help. That hundreds of millions of people are in a cult with similar thinking. Reddit fandom fixates on one and only one person, Trump, the celebrity. RECENCY_BIAS also behaving as if any of this is new, like suddenly in February 2026 it is our first encounter with Donald Trump messages written by other people... ANYTHING and EVERYTHING on Reddit to avoid serious nonfiction teaching and education for adults.
+
+https://old.reddit.com/r/law/comments/1r43e22/trump_there_will_be_voter_id_for_the_midterm/o593m6w/
+
+11 month Reddit account. SATIRE_SARCASM_WASHING Trump regime, active downplaying.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1r44ed1/sen_kelly_the_old_world_is_gone_because_donald/o593s82/
+
+It was Reddit audience jobs to turn the Russian topics into jokes and memes, as Surkov students manipulated Reddit community to do.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1r44ed1/sen_kelly_the_old_world_is_gone_because_donald/o596ali/
+
+BEYOND_DENIAL. Yes. This message is striking at the core of the problem. We The People have NOT demonstrated any self-awareness that the addiction to IRA memes and Elon Musk Twitter has been at the core of the USA's abandonment of nonfiction serious books and learning for adults since year 2013. The level of reform require is a MASSIVE uprising of the ENTIRE POPULATION age 12 to age 120, voters and non-voters alike, to demonstrate a newfound serious focus on nonfiction learning on media ecology, science, intellectual pursuits. To stop the mocking and insulting of intelligence that Putin has programmed deeply into mindsets.
+
+https://old.reddit.com/r/clevercomebacks/comments/1r4kf2s/protecting_pedophiles_is_what_rank_and_file/o5c6arn/
+
+5 or 6 month Reddit account.
+
+https://old.reddit.com/r/clevercomebacks/comments/1r4kf2s/protecting_pedophiles_is_what_rank_and_file/o5c3s2f/
+
+https://old.reddit.com/r/clevercomebacks/comments/1r4kf2s/protecting_pedophiles_is_what_rank_and_file/o5c4rmx/
+
+Fandom of dumb. Fandom of stupid. Aimee Mann ToDo song
+
+https://old.reddit.com/r/circled/comments/1r4mt96/this_needs_to_end_full_stop/o5cq7jo/
+
+https://old.reddit.com/r/circled/comments/1r4mt96/this_needs_to_end_full_stop/o5couqe/
+
+Until she was in jail.
+
+https://old.reddit.com/r/circled/comments/1r4mt96/this_needs_to_end_full_stop/o5clymi/
+
+
+https://old.reddit.com/r/circled/comments/1r4mt96/this_needs_to_end_full_stop/o5crqhu/
+
+Reddit audience can not see the crowd that draws around Trump on Reddit unlike any other politician in the entire world. Of all the World Wide Web celebrity figures, Trump draws a crowd like no other. The worship of guns. The worship of hate. A death cult. TRUMP_FANDOM
+
+https://old.reddit.com/r/PoliticalHumor/comments/1r4o1dl/i_was_given_a_three_day_ban_for_saying_its_okay/o5cxma0/
+
+Love of machines, tech love, is what Charlie Chaplin pointed out in his 1940 film "The Great Dictator". machine-like power over others. Reddit cloud computing secret police. A tech billionaire worship center.
+
+* "don’t give yourselves to brutes - men who despise you - enslave you - who regiment your lives - tell you what to do - what to think and what to feel! Who drill you - diet you - treat you like cattle, use you as cannon fodder. Don’t give yourselves to these unnatural men - **machine men with machine minds** and machine hearts! **You are not machines!** You are not cattle! You are men! You have the love of humanity in your hearts! You don’t hate! Only the unloved hate - the unloved and the unnatural! Soldiers! Don’t fight for slavery! Fight for liberty! In the 17th Chapter of St Luke it is written: “the Kingdom of God is within man” - not one man nor a group of men, but in all men! In you! You, the people have the power - the power to create machines. The power to create happiness! You, the people, have the power to make this life free and beautiful, to make this life a wonderful adventure." - Year 1940 https://www.CharlieChaplin.com/en/articles/29-the-final-speech-from-the-great-dictator-
+
+https://old.reddit.com/r/PublicFreakout/comments/1r4lmvv/joe_rogan_says_the_epstein_scandal_looks_fucking/o5cf5a0/
+
+Where is the BLUESKY_BLACKOUT and REDDIT_BLACKOUT ? Where are the parents telling their children they were bamboozled by Fox News? People are addicted to hate leadership so they can hate-watch and mock and feel emotionally superior to terrible men. But the men are in power because people will not turn to Dr. Bandy X Lee and other nonfiction leaders to face the emotions and hate that has been normalized. Now many broken marriages and families because of Donald Trump? How many sexual abuse copycats? People are not calling for an emotional and intellectual awakening to the manipulation they have been subjected to by billionaires and their media techniques. Surkov won since March of year 2013.
+
+* “One of the saddest lessons of history is this: If we’ve been bamboozled long enough, we tend to **reject any evidence of the bamboozle**. We’re no longer interested in finding out the truth. The bamboozle has captured us. It’s simply too painful to acknowledge, even to ourselves, that we’ve been taken. Once you give a charlatan power over you, you almost never get it back. So the old bamboozles tend to persist as the new ones rise.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, **1995**, page 241.
+
+https://old.reddit.com/r/PublicFreakout/comments/1r4lmvv/joe_rogan_says_the_epstein_scandal_looks_fucking/o5ccb7q/
+
+The commenting addictions, the fandom of hate, looks terrible for the whole nation. The absence of INTERNET_BLACKOUT protesting. The absence of RESCUE MAGA promoting. "Save the USA from billionaires, we were all manipulated by the richest man on Earth, Elon Musk, and Trump" - the absence of standing up for common decency, common goodness, getting ton the same page behind Dr. Bandy X Lee's leadership since her public education book with 27 authors... nonfiction published October 3, 2017. Every day of life is a sick society of people commenting over and over and not confronting how Trump is an entertainer playing a "hate me hard" character, Tony Clifton character, and people are media "engaged" and Trump is a bad-ass influencer. Rupert Murdoch wrecked families on a smaller scale, Trump is a threat to the entire world. Children all over planet earth are being given this role model because USA social media addicts will not study and learn from Neil Postman's library of books.
+
+https://old.reddit.com/r/PublicFreakout/comments/1r4lmvv/joe_rogan_says_the_epstein_scandal_looks_fucking/o5cduc4/
+
+Joe Rogan has been a winner time and time again selling to a nation of addicts to junk media. The losers are people who have no voice. Joe Rogan has been a media venue that harmed children, programmed parents to worship terrible information sources. Joe Rogan has harmed people like a terrorist mosque in an Islamic nation leading a cult of worship of ignorance. IGNORANCE_CELEBRATIONS Living next to people who are cults of Joe Rogan media celebrity and cults of Trump hate messaging is horrific. These men who love and worship Joe Rogan not only hate women { Hillary Clinton, Kamala Harris } but avoid brave women who teach positive to the general public like Jen Senko and Dr. Bandy X Lee. It is a cult of male aggressive anti-intellectual media celebrities.
+
+https://old.reddit.com/r/PublicFreakout/comments/1r4lmvv/joe_rogan_says_the_epstein_scandal_looks_fucking/o5cuydb/
+
+This is why I say turn to the writings of Malala from January 2009 to year 2015. Her raging confrontation of egoism and egomania when she was outraged at how men treat other men and how men treat women. It is there in her blogs, in her writings, in her interviews, in her speeches. But people can not get behind a woke and intelligent girl leader (she was a girl in 2013 when her book was published October 8, 2013).
+
+People are unattractive to nonfiction serious thinkers. People are attracted to low-effort lazy shallow commenting over and over and over on social machines and attracted to Joe Rogan Experience, podcasts, junk media. Malala's ideas need peer to peer assertion, repeating, not more Joe Rogan repeating. Malala's ideas are a bottom-up rebalance of power away form elderly power men in the Taliban, Russia, White House, Saudi Arabia. Give girls a voice, start listening to girls! Stop fixated on Joe Rogan preaching for Epstein, Trump, Murdoch, Musk, etc.
+
+https://old.reddit.com/r/PublicFreakout/comments/1r4lmvv/joe_rogan_says_the_epstein_scandal_looks_fucking/o5ccqqf/
+
+https://old.reddit.com/r/PublicFreakout/comments/1r4lmvv/joe_rogan_says_the_epstein_scandal_looks_fucking/o5cdqf8/
+
+So does Reddit fandom. TRUMP_FANDOM
+
+https://old.reddit.com/r/PublicFreakout/comments/1r4lmvv/joe_rogan_says_the_epstein_scandal_looks_fucking/o5ccu7i/
+
+https://old.reddit.com/r/PublicFreakout/comments/1r4lmvv/joe_rogan_says_the_epstein_scandal_looks_fucking/o5d39v0/
+
+https://old.reddit.com/r/PublicFreakout/comments/1r4lmvv/joe_rogan_says_the_epstein_scandal_looks_fucking/o5czpzb/
+
+Reddit media, Reddit media platform avoiding a REDDIT_BLACKOUT over MAGA / Trump and promotion of Dr. Bandy X Lee's nonfiction book from October 3, 2017 onward is infuriating. We The People are beholden to gossip and bullshit and ignorance lead by celebrity stars { Joe Rogan celebrity, Trump celebrity, Musk celebrity, etc }
+
+https://old.reddit.com/r/pics/comments/1r4qgsr/stephen_cheung_white_house_comm_director_who/o5dfgui/
+
+https://old.reddit.com/r/pics/comments/1r4qgsr/stephen_cheung_white_house_comm_director_who/o5ddsyt/
+
+Putin has organized bullying as a leadership technique. Reddit fandom is following the lead. Flocking to every image and leader out of the white house to prize hate and prize bullying leadership. Just like Fox News HDTV fandom is not self-aware they are being manipulated by billionaires to hate, Reddit fandom is not self-aware of the prizing of content. Observe Reddit comment creators have spare time and free time to write these comments but are not organizing a protest black out or messaging campaign to make Dr. Bandy X Lee the center of topic attention and leadership AWAY from Trumpism / MAGA culture.
+
+https://old.reddit.com/r/pics/comments/1r4qgsr/stephen_cheung_white_house_comm_director_who/o5ddfbu/
+
+https://old.reddit.com/r/pics/comments/1r4qgsr/stephen_cheung_white_house_comm_director_who/o5dczl2/
+
+https://old.reddit.com/r/pics/comments/1r4qgsr/stephen_cheung_white_house_comm_director_who/o5de0x1/
+
+Street-gang language, political party gang-signs and symbols. Hate-speech communications encoding. BABEL_TOWER 
+
+https://old.reddit.com/r/pics/comments/1r4qgsr/stephen_cheung_white_house_comm_director_who/o5devsg/
+
+15 years ago. Year 2011. Language has changed since 15 years ago is what this Reddit commenting has drawn attention to.
+
+* October 20, 2011. https://www.lrb.co.uk/the-paper/v33/n20/peter-pomerantsev/putin-s-rasputin "the stage is constantly changing: the country is a dictatorship in the morning, a democracy at lunch, an oligarchy by suppertime, while, backstage, oil companies are expropriated, journalists killed, billions siphoned away. **Surkov is at the centre of the show**, sponsoring nationalist skinheads one moment, backing human rights groups the next. It’s a strategy of power based on keeping any opposition there may be constantly confused, a ceaseless shape-shifting that is unstoppable because it’s indefinable. This fusion of despotism and postmodernism, in which no truth is certain, is reflected in the craze among the **Russian elite for neuro-linguistic programming**"
+
+And then the Internet Research Agency in Saint Petersburg started exporting it to the World Wide Web, including Reddit.
+
+* "Documents Show How Russia’s Troll Army Hit America. The adventures of Russian agents like The Ghost of Marius the Giraffe, Gay Turtle, and Ass — exposed for the first time." Max Seddon; June 2, 2014 - "The trolls appear to have taken pains to **learn the sites' different commenting systems**. A report on initial efforts **to post comments discusses the types of profanity and abuse** that are allowed on some sites, but not others."; "We are trying to change reality. Reality has indeed begun to change as a result of the appearance of our information in public" - **year 2014** https://www.buzzfeednews.com/article/maxseddon/documents-show-how-russias-troll-army-hit-america
+
+https://old.reddit.com/r/sports/comments/1r4rczi/espn_vet_calls_jd_vance_a_demon_who_made_her_feel/o5dox6g/
+
+Despite world history, and Putin being in power for over 25 years, the TRUMP_FANDOM of JD Vance and White House / Kremlin can not imagine that this mental exploit of We The People is the very mechanism of power. That attraction to hate, flocking to hate leaders, is the very means Trump + JD Vance has so much **social power, political power**, wealth power over the world. That *hate motivates* everyday people to go to Reddit and comment and comment about how much they hate the media experience and encounters of JD Vance. That this is the very means, techniques, and methods of Surkov students! The loathing of what Putin's Russia does to Ukraine since year 2013 is the very population power.
+
+Year 2014. December 31, 2014:
+
+* "The underlying aim, Surkov says, is **not to win the war**, but to use the conflict to create a constant state of destabilized perception, in order to manage and control." - December 31, 2014. And Russia has indeed not won the war, currently February 2026. https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html
+
+Just like **Fox News HDTV fandom of hate content** that is **not-self aware of their attraction to hate-content and hate-watching**, the Reddit commenting community, the end-users of Reddit, are attracted to hate-signals and hate icons / hate status symbols without being self-aware.
+
+* "For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the **true becomes false and the false becomes true**. That's what hate does. You can't see right. **The symbol of objectivity** is lost." - Martin Luther King Jr.
+
+Reddit users are not educated. Reddit users have not been taught that this is the very mechanism Surkov governing techniques / media techniques exploit. That hate and loathing are the mental brain entry point Putin cult / MAGA cult is based upon. Surkov won since March 2013.
+
+* "I've seen too much hate to want to hate myself; hate is too great a burden to bear. I've seen it on the faces of too many sheriffs of the South — I've seen hate. In the faces and even the walk of too many Klansmen of the South, **I've seen hate. Hate distorts** the personality. **Hate does something to the soul that causes one to lose his objectivity.** The man **who hates can't think straight**; the man **who hates can't reason right; the man who hates can't see right**; the man who hates can't walk right. And I know now that Jesus is right, that love is the way. And this is why John said, "God is love," so that he who hates does not know God, but he who loves at that moment has the key that opens the door to the meaning of **ultimate reality**." - July 4, 1965 Atlanta, Georgia.
+
+https://old.reddit.com/r/sports/comments/1r4rczi/espn_vet_calls_jd_vance_a_demon_who_made_her_feel/o5dni5i/
+
+1 month Reddit account. Highly upvoted popular comment.
+
+This is classic extreme short-message Twitter-thinking SATIRE_SARCASM_WASHING of White House as a constant steady supply of jokes and humor. This is the Reddit fandom, Reddit cult, of jokes and memes. The cult on Reddit does not with to turn to Dr. Bandy X Lee and REMOVE JD Vance from the White House with Internet uprising of quotes and teachings for the general public / population from Dr. Lee - and instead is attracted to JD Vance content on Reddit as a way to waste time, spare time and free time, cracking jokes about how great it is to joke and be amused by the hate leadership (that Reddit fandom follows around in cult usage of their media devices).
+
+The Reddit cult members using symbolism / status symbols / icons of Pope Catholic symbol combined with White House USA symbolism / icons... re-arranging these in the minds is the cult addiction. Surkov students have enslaved the Reddit audience with this since March 2013. The Internet Research Agency in Saint Petersburg has seeded perpetual mind patterns of cult-thinking hive minded "we are the cook kids" street-gang signs and symbols. People who can not escape the total mockery / mocking media platforms. People who mock in predictable conditioned mentally programmed patterns. Reddit was directly infiltrated to seed this tone.
+
+* "Russia-watcher Catherine Fitzpatrick, who documents Kremlin disinformation for InterpreterMag . com, says just as Moscow uses vague Internet laws to encourage self-censorship, trolls inhibit informed debate by using **crude dialogue to change "the climate of discussion."** "If you show up at The Washington Post or New Republic sites, where there's an article that's critical of Russia, and you see that **there are 200 comments that sound like they were written by 12-year-olds**, then you just don't bother to comment," she says.  "You don't participate. It's a way of just **driving discussion away** completely," she adds. "Those **kinds of tactics are meant to stop democratic debate**, and they work." - **year 2014** https://www.theatlantic.com/international/archive/2014/08/the-kremlins-troll-army/375932/
+
+* https://www.bbc.com/news/technology-43301643 "Reddit admits hosting Russian propaganda"
+
+The change in behavior was extreme of how much Donald Trump / MAGA was viewed as an entertainment / celebrity Reality TV star, source of comedy content, jokes and humor memes. The Internet Research Agency seed the mocking of "inhibit informed debate by using crude dialogue to change the climate of discussion." - Nonfiction common ground was wrecked in favor of common ground (common thinking patterns) of jokes, humor, memes, amusement about how great it was to have Donald Trump as a constant source of absurd comedy and surreal humor. Surkov won since March of year 2013.
+
+* "r/The_Donald was a subreddit where participants created discussions and internet memes in support of U.S. president Donald Trump. Initially created in June 2015"; "The subreddit grew to be known for frequent posting of memes, especially Pepe the Frog, and frequent uses of slang terms such as "centipede" (a reference to a much-distributed Trump highlight reel featuring the Knife Party song "Centipede"), "MAGA", "nimble navigator", "no brakes", "cuck", "4D chess", and "SJW". Furthermore, users on the site referred to Trump as "God Emperor". For a period of time, the subreddit repeatedly posted an image of Hillary Clinton kissing Robert Byrd, a former member of the Ku Klux Klan. The image was accompanied by a photoshopped picture of an aged Byrd in Klan garb, which was meant to falsely portray Clinton and Byrd as Klan supporters. Byrd had severed ties with the Ku Klux Klan in 1952." - Reddit history https://en.wikipedia.org/wiki/R/The_Donald
+
+https://old.reddit.com/r/sports/comments/1r4rczi/espn_vet_calls_jd_vance_a_demon_who_made_her_feel/o5dly0w/
+
+<img width="971" height="459" alt="image" src="https://github.com/user-attachments/assets/b69d8510-9a73-41d0-bc03-b23ec9fd8007" />
+
+UNSETTLED:
+
+* "what Putin will do next — that he’s **unpredictable and thus dangerous**. We’re rendered stunned, spun, and flummoxed by the Kremlin’s weaponization of absurdity and unreality.” - year 2014. September 9, 2014 https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+And that **conditioned reaction is how Russia defeated the USA by winning hearts and minds** (of the NATO enemy USA enemy by Putin). Unsettling brain exploitation, it is PREDICTABLE_OUTCOME - Reddit is a FANDOM to this technique, Reddit comment creators are in a CULT of media that unsettles them. They have not met JD Vance in person, shaken his hand, ti is images of media systems, it is video clips that ALONE create this. Like a horror film cult audience, cult films. But this is constant, JD Vance / Trump / Putin / Musk give this sense of fiction unreality, like a fiction horror film. Mythological. Surkov cracked the Levant monomyth media John 1:1 patterns (at least the out-group hate clergy side, anti-compassion anti-goodness, anti-empathy) somewhere around year 2010 from my own reckoning. 
+
+Social post { https://autistics.life/@RoundSparrow/116070831771087624 https://bsky.app/profile/roundsparrow.bsky.social/post/3mettr3ay222f }
+
+NEW_OPERA_NAME { #UnsettledOpera #VibePsyOps } the second being irregular named.

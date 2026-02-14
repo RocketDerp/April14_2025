@@ -370,3 +370,90 @@ In a police state, the concern is superficial English on Reddit. Not We the Peop
 
 https://old.reddit.com/r/RandomVideos/comments/1r3k810/sarcastic_senior_citizen/o54uxjr/
 
+https://old.reddit.com/r/interesting/comments/1r4dtft/finally_a_country_responds_to_a_tech_giant_in_the/o5ay3ej/
+
+https://old.reddit.com/r/interesting/comments/1r4dtft/finally_a_country_responds_to_a_tech_giant_in_the/o5axtbk/
+
+BABEL_TOWER this kind of anti-public public social postings. Generic topic community of "/r/Interesting", posting title is non-specific as to meaning other than "tech giant".  Posting creator https://old.reddit.com/user/IamTheOneWhoKnocksU is 1 month Reddit account that got to first page. Do people consider "Only Fans" a technology company...
+
+Anyway, the language usage is Tower of Babel drift. The image implies it is about girls working in Sweden, but online sex is about global reach. The customers making purchases from all over the world.
+
+https://old.reddit.com/r/interesting/comments/1r4dtft/finally_a_country_responds_to_a_tech_giant_in_the/o5b16v4/
+
+BABEL_TOWER and discussion of machine-influence on minds / culture of Reddit users. Although this could be a form of Reddit rage-bait or engagement given the 1 month account https://old.reddit.com/user/IamTheOneWhoKnocksU that posted this. The username is also provocative meme.
+
+https://old.reddit.com/r/interesting/comments/1r4dtft/finally_a_country_responds_to_a_tech_giant_in_the/o5ay8wv/
+
+Discussion replies mention religion values even if Christian religion isn't practiced as much.
+
+https://old.reddit.com/r/interesting/comments/1r4dtft/finally_a_country_responds_to_a_tech_giant_in_the/o5axx8b/
+
+https://old.reddit.com/r/interesting/comments/1r4dtft/finally_a_country_responds_to_a_tech_giant_in_the/o5axuop/
+
+https://old.reddit.com/r/interesting/comments/1r4dtft/finally_a_country_responds_to_a_tech_giant_in_the/o5awtdn/
+
+https://old.reddit.com/r/interesting/comments/1r4dtft/finally_a_country_responds_to_a_tech_giant_in_the/o5b31rg/
+
+Rich and powerful people with Putin network and Epstein network is all the news every day in 2026. 
+
+https://old.reddit.com/r/interesting/comments/1r4dtft/finally_a_country_responds_to_a_tech_giant_in_the/o5b6ldn/
+
+https://old.reddit.com/r/interesting/comments/1r4dtft/finally_a_country_responds_to_a_tech_giant_in_the/o5ay8zd/
+
+https://old.reddit.com/r/interesting/comments/1r4dtft/finally_a_country_responds_to_a_tech_giant_in_the/o5b4umw/
+
+https://old.reddit.com/r/interesting/comments/1r4dtft/finally_a_country_responds_to_a_tech_giant_in_the/o5azb2b/
+
+https://old.reddit.com/r/interesting/comments/1r4dtft/finally_a_country_responds_to_a_tech_giant_in_the/o5b01en/
+
+Like I've said on this GitHub a few times in the past 10 days... hot girls in my high school would talk to each other in my classroom in front of me. I was a book nerd at age 15 when I was my first year in high school. I would hang out in school just reading alone and I never gossiped or shared rumors. So girls would sit near me and talk to each other as if i was not a threat. I was reading /  studying computer books and other nonfiction. Hot girls in my large high school were not dating other high school boys... they were talking about adult men. I linked the song "Check It Out" John Mellencamp. https://www.youtube.com/watch?v=8qxDBiiVjlQ This was in 1984, 1985, 1986 when I knew the age of these girls in my school classes. age 15, 16. to be a hot girl, you got the attention of powerful men when outside school at the mall or wherever these girls were meeting adult men.
+
+You really wonder if people can't read between the liens about politics and fiction storytelling... if they really can't see what is going on in their own city with Epstein kind of stuff. "i hate that nearly 1/10 18-24 girls have done in America."
+
+These 30 year old men who are manipulating and seducing ate 15 / age 16 girls was going on in front of me in my high school freshman and sophomore class when I knew the age of these girls. 1985, 1986. I really think people don't *listen* to what is going on around them. It isn't just "Epstein island". Powerful and manipulative men treat this as some kind of conquest and sport. The billionaire class in Bellevue, owner of sports empires... the social access that has...
+
+There are some people who don't cover up their age 14 age 15 youth in the music industry and film industry.. I mean you are in front of adults and everyone is looking at you. An attractive / hot person draws influence and power brokers. People like Donald trump are in the Miss Universe in Moscow show. Sports team owners like Paul Allen / Jody Allen... I mean that's their social power over society. the Simpsons make a joke about it... Season 11, Episode 12, "Perks of the International Waters" - but private jets and private cruise ships that billionaires own allow... bypassing a lot of scrutiny. 
+
+https://old.reddit.com/r/interesting/comments/1r4dtft/finally_a_country_responds_to_a_tech_giant_in_the/o5b21bq/
+
+https://old.reddit.com/r/interesting/comments/1r4dtft/finally_a_country_responds_to_a_tech_giant_in_the/o5b8pxk/
+
+https://old.reddit.com/r/interesting/comments/1r4dtft/finally_a_country_responds_to_a_tech_giant_in_the/o5badrx/
+
+Given the Epstein billionaire power brokering of manipulating women as a means to have access to the Epstein finance and technology development markets... this whole topic needs to be more in the open. Elon Musk is basically a professional baby-daddy who wants to repopulate the Earth... https://www.vanityfair.com/news/story/elon-musks-children-ashley-st-clair "Elon Musk’s Breeding Spree Is So Much Wilder Than You Thought"- I mean, owner of Twitter - you can not be much more high-profile as a role model for young boys who are attracted to rockets and film star and sports star celebrities on Twitter.
+
+https://old.reddit.com/r/interesting/comments/1r4dtft/finally_a_country_responds_to_a_tech_giant_in_the/o5bavoe/
+
+To me, these discussions I find it impossible to ignore how many parents are feeding their 10, 11, 12 year old children Fox News, Newsmax, and other billionaire-worship indoctrination. Wealth televangelism media systems. People do not understand Neil Postman and Marshall McLuhan media ecology. People do not have education in comparative mythology. The cults of Putin, Elon Musk and Donald Trump are very real and raging away as people worship billionaire media systems. These are extremely well financed operations! The biggest advertising and marketing agencies in the world are producing and promoting films like "Melania" 2026 to children as indoctrination. 
+
+People can not face up that the { Upanishads, Bible, Torah, Quran, Book of Mormon, L Ron Hubbard } are all science fiction storytelling. The Bible storybook is 2,000 years old and people still can't find verse "1 John 4:20" and grasp that God is a metaphor, fiction! Hamlet's ghost is fiction. Parents are handing their children over to Truth Social fiction, Russia's Internet Research Agency use of monomyth fiction patterns from The Bible / Quran / Torah.
+
+James Joyce has been in our public library long enough for us to "Wake" to "Finnegans Wake", Woke. MEDIA_WOKE to widespread cults. Putin and Trump are using fiction to run our society like a king and queen claims God endorses their bloodlines. RFK Jr is running our disease control systems (CDC), encouraging anti-science mythological thinking. Fiction storytelling cults. Cults of attractive fiction. Billionaires are leading and creating cults.
+
+* “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.”
+― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. Swat Valley Pakistani stories. Published October 8, 2013.
+
+https://old.reddit.com/r/interesting/comments/1r4dtft/finally_a_country_responds_to_a_tech_giant_in_the/o5bbfob/
+
+https://old.reddit.com/r/interesting/comments/1r4dtft/finally_a_country_responds_to_a_tech_giant_in_the/o5bburu/
+
+For the online camera performance / acting **women in Ukraine**... would you want to be raising children for Putin to kidnap / abduct / traffic? https://en.wikipedia.org/wiki/Child_abductions_in_the_Russo-Ukrainian_war No-pregnancy sex not be serving the Russian empire of indoctrination. I can not imagine being a mother and having your child kidnapped and indoctrinated into Putin's war machine. The Internet sex doesn't bring a child into the world under such billionaire-controlled Epstein / Putin / Trump / Musk sex power lording over women / abortion / women's equality. The anti-Malala Putinism since year 2013. SEE_ALSO https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/ December 20, 2013 - right before the Russian war against Ukraine in February 20, 2014. 
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3meszl66syc2m https://autistics.life/@RoundSparrow/116068985056288517 }
+
+https://old.reddit.com/r/Millennials/comments/1r4l9nv/i_mean_its_not_like_its_hurting_anyone/o5c9tci/
+
+Wellness checks, for quoting nonfiction books that don't have "LOL" ending every sentence.
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1r4o6k8/whats_the_other_meaning_peter/o5cw4uw/
+
+Unless you are like me and have Hyper Empathy and concern yourself with strangers and world peace for people in Sudan, Russia, Ukraine, Iran, Afghanistan, Pakistan, etc, etc.
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1r4o6k8/whats_the_other_meaning_peter/o5d0ep6/
+
+On the World Stage, on the planet Earth of over 8 billion people.. the most entitled asshole people will come from the USA, a population of 0.34 billion people who did not have a REDDIT_BLACkOUT and instead talk about bumper stickers with their free time and spare time instead of ANYONE capable of commenting being able to repeat and quote Dr. Bandy X Lee's 27 writers on mental health of Donald Trump. USA population who will not face their addiction to commenting unimportant topics and deal with the DANGER that Donald Trump is.
+
+Not just voters, not just Republicans, but EVERY PERSON (even those who are age 15 and too young to vote, but can use social media to comment) who has free time and spare time to comment on social media is not asserting authentic "rude awakening" messages about how SERIOUS AND DANGEROUS the situation is!
+
+* "the public trust is also violated if the profession fails in its duty to alert the public when a person who holds the power of life and death over us all shows signs of clear, dangerous mental impairment. We should pause if professionals are asked to remain silent when they have seen enough evidence to sound an alarm in every other situation. When it comes to dangerousness, should not the president of a democracy, as First Citizen, be subject to the same standards of practice as the rest of the citizenry?"
+― Bandy X. Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. Published October 3, 2017. PROLOGUE. Page 5.](https://books.google.com/books?id=g0c4DwAAQBAJ&pg=PA5&dq=dangerousness+due+to+mental+disorder+can+become+apparent+without+a+full+diagnostic+interview+and+can+be+detected+from+a+distance&hl=en&newbks=1&newbks_redir=1&sa=X)

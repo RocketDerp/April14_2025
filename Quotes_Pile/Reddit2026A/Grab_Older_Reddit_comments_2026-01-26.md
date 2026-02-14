@@ -439,3 +439,6 @@ See the downvotes on the posting?
 
 On a posting titled "Malignant normality: The psychological theory that explains naked emperors, narcissists and Nazis" with a link off-Reddit. 20% upvoted means at least 5 downvotes were on that posting.
 
+https://old.reddit.com/r/DeepSpaceNine/comments/13c76rx/comment/jjepnox/
+
+Education at the mass mind level is exhausting.

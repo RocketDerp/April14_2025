@@ -220,3 +220,134 @@ Social post { https://Bsky.App/profile/roundsparrow.bsky.social/post/3meqsmhyj5c
 https://old.reddit.com/r/circled/comments/1r3ozbf/our_president_is_a_laughing_stock_around_the_world/o55wzrz/
 
 There it is again... the **Trump hate-worship enablers on Reddit still making comments** and not REDDIT_BLACKOUT to promote serious nonfiction mental health education and teaching from Dr. Bandy X Lee assembled 27 contributors!
+
+https://old.reddit.com/r/news/comments/1r3qjln/trumps_cdc_is_canceling_600m_in_hiv_and_std_funds/o563be4/
+
+PRO_DISEASE as programmed by the Saint Petersburg Internet Research Agency from year 2014 onward. With factual evidence of mental manipulation validated by Johns Hopkins University and George Washington University. August 24, 2018 this **public information warfare warning** was covered all across the world news networks. https://www.BBC.com/news/world-us-canada-45294192
+
+https://old.reddit.com/r/news/comments/1r3qjln/trumps_cdc_is_canceling_600m_in_hiv_and_std_funds/o56j450/
+
+"Nothing changes", downplaying Surkovian information warfare. Trump and Putin get more power and wealth. This is the most sophisticated information warfare against We The People ever created / devised by humanity. See how Reddit comment section is avoiding nonfiction books on the subject. 
+
+This comment is what denial looks like. Commenting addictions look like... people avoiding nonfiction serious learning. An absence of situational awareness. The CDC and Putin / Trump Kremlin White House are doing this all for the REDDIT fandom to "froth at the mouth" over the anti-reality content:
+
+* "what Putin will do next — that he’s unpredictable and thus dangerous. We’re rendered stunned, spun, and flummoxed by the Kremlin’s weaponization of absurdity and unreality.” - year 2014. September 9, 2014 https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/therewasanattempt/comments/1r3t9a6/to_rewrite_history_by_megyn_kelly/o56r8yh/
+
+Yes. *Please* Teach remedial morality to USA population. Teach Americans remedial lessons. Start teaching and educating. Stop celebrating ignorance and celebrate intelligent comprehension. Stop making this a NFL football back and forth in a rectangle caged mindset. 
+
+Social post { https://GitHub.com/GreatSealUSA/Brainrot_Society_47/blob/main/UnderReacting_Opera/Stop_Shit_Posting_Please.md#examples-of-avoiding-shit-posting https://MidWest.Social/post/43414922 https://Bsky.App/profile/roundsparrow.bsky.social/post/3mer3cpietc2h https://Autistics.Life/@RoundSparrow/116064605461465540 }
+
+https://old.reddit.com/r/therewasanattempt/comments/1r3t9a6/to_rewrite_history_by_megyn_kelly/o56rjhm/
+
+World Love Affairs! The Who - We DID GET FOOLED, Again!
+
+https://old.reddit.com/r/therewasanattempt/comments/1r3t9a6/to_rewrite_history_by_megyn_kelly/o56shym/
+
+https://old.reddit.com/r/therewasanattempt/comments/1r3t9a6/to_rewrite_history_by_megyn_kelly/o56sqmo/
+
+The forgetting all started in year 2013 with the Internet Research Agency out of Saint Petersburg Russia invading Reddit. People stop reminding each other and started prizing conflicts of out-group. The IRA won. Surkov won.
+
+https://old.reddit.com/r/worldnews/comments/1r43nyg/russia_confirms_12_trillion_pitch_to_trump_tied/o591krp/
+
+https://old.reddit.com/r/worldnews/comments/1r43nyg/russia_confirms_12_trillion_pitch_to_trump_tied/o593jp6/
+
+https://old.reddit.com/r/worldnews/comments/1r43nyg/russia_confirms_12_trillion_pitch_to_trump_tied/o590rfj/
+
+https://old.reddit.com/r/worldnews/comments/1r43nyg/russia_confirms_12_trillion_pitch_to_trump_tied/o58yvye/
+
+https://old.reddit.com/r/worldnews/comments/1r43nyg/russia_confirms_12_trillion_pitch_to_trump_tied/o591ae9/
+
+https://old.reddit.com/r/worldnews/comments/1r43nyg/russia_confirms_12_trillion_pitch_to_trump_tied/o58zdxv/
+
+https://old.reddit.com/r/worldnews/comments/1r43nyg/russia_confirms_12_trillion_pitch_to_trump_tied/o591rir/
+
+https://old.reddit.com/r/worldnews/comments/1r43nyg/russia_confirms_12_trillion_pitch_to_trump_tied/o594wma/
+
+https://old.reddit.com/r/worldnews/comments/1r43nyg/russia_confirms_12_trillion_pitch_to_trump_tied/o58z4ws/
+
+https://old.reddit.com/r/worldnews/comments/1r43nyg/russia_confirms_12_trillion_pitch_to_trump_tied/o590v9b/
+
+https://old.reddit.com/r/worldnews/comments/1r43nyg/russia_confirms_12_trillion_pitch_to_trump_tied/o5954y8/
+
+https://old.reddit.com/r/worldnews/comments/1r43nyg/russia_confirms_12_trillion_pitch_to_trump_tied/o594t0d/
+
+https://old.reddit.com/r/politics/comments/1r4f447/starmer_britains_brexit_years_are_over_and_we/o5bid4g/
+
+World hate affairs.
+
+https://old.reddit.com/r/politics/comments/1r4f447/starmer_britains_brexit_years_are_over_and_we/o5bcfw2/
+
+Twitter-think machine-think merging of identity. High-speed reactionary social information systems. Information overload symptoms.
+
+* September 19, 1977 https://www.Organism.Earth/library/document/mcluhan-mcmanus  "No, no, I think now we’re playing backwards. We’re going back into the bicameral mind, which is tribal, collective, without any individual consciousness." 01:18 McManus "But it seems, Dr. McLuhan, that this tribal world is not friendly." 01:23 McLuhan "Oh no. Tribal people, one of their main kinds of sport is sort of butchering each other. It’s a full-time sport in tribal societies."
+
+https://old.reddit.com/r/politics/comments/1r4f447/starmer_britains_brexit_years_are_over_and_we/o5b7uhg/
+
+3 Month Reddit account. Putin, Cambridge Analytica topics.
+
+Twitter-length. No off-Reddit URL. No mention of dates, years. No quotes from nonfiction books. No author names. Serves to trivialize important complex topics. To understand Trumpism, please focus on how USA society prizes these low-effort commenting media environments now. We are in a raging crisis of Trump mass dehumanization / Putin mass dehumanization and Reddit society is anti-FAQ, anti-Wiki anti-Top-10 priority and concern weekly lists. There is no "We the People" uprising, no Reddit protests / social media protest, just commenting over and over in an ocean of low-effort comments. There is no refinement of information and understanding, instead it is drowning in "engagement" to commenting. It is a gathering to be anti-common ground in concerns and comprehending. It is considered uncool to organize a movement or agenda.
+
+https://old.reddit.com/r/politics/comments/1r4f447/starmer_britains_brexit_years_are_over_and_we/o5b6nni/
+
+Casual Putin manipulating UK. No author names, no book quotes, no of-Reddit citation links.
+
+https://old.reddit.com/r/politics/comments/1r4f447/starmer_britains_brexit_years_are_over_and_we/o5b8mgf/
+
+<img width="1070" height="1055" alt="image" src="https://github.com/user-attachments/assets/09c20bca-2c79-4125-9710-999e956b20ea" />
+
+* " If you look behind that pyramid, you see a desert. If you look before it, you see plants growing. The desert, **the tumult in Europe, wars and wars and wars** -- we have pulled ourselves out of it and created a state in the name of reason, not in the name of power, and out of that will come the flowerings of the new life. That's the sense of that part of the pyramid." - year 1987, age 83, Joseph Campbell. Skywalker Ranch. https://www.GreatSealUSA.com
+
+https://old.reddit.com/r/politics/comments/1r4f447/starmer_britains_brexit_years_are_over_and_we/o5bst71/
+
+Street-gang language, gang signs and symbols to use slang nicknames. Trump is a master of programming the favoring of nicknames and gang mentality in regard to governing of nations and social media (Truth Social, Reddit) of same.
+
+https://old.reddit.com/r/politics/comments/1r4f447/starmer_britains_brexit_years_are_over_and_we/o5c2ux3/
+
+https://old.reddit.com/r/politics/comments/1r4f447/starmer_britains_brexit_years_are_over_and_we/o5bpk0f/
+
+https://old.reddit.com/r/politics/comments/1r4f447/starmer_britains_brexit_years_are_over_and_we/o5c13m5/
+
+https://old.reddit.com/r/news/comments/1r4k9a9/alexei_navalny_died_after_being_poisoned_with/o5c4svs/
+
+https://old.reddit.com/r/news/comments/1r4k9a9/alexei_navalny_died_after_being_poisoned_with/o5c4w55/
+
+TRUMP_FANDOM on Reddit with rich white men Epstein private jet sex fandom desires.
+
+https://old.reddit.com/r/news/comments/1r4k9a9/alexei_navalny_died_after_being_poisoned_with/o5c4hcw/
+
+5 month Reddit account.
+
+https://old.reddit.com/r/worldnews/comments/1r4kadq/canada_is_now_being_joined_by_uk_and_australia_in/o5c6zyt/
+
+https://old.reddit.com/r/worldnews/comments/1r4kadq/canada_is_now_being_joined_by_uk_and_australia_in/o5c7py4/
+
+1 month Reddit account. Man, I wish I had server-side data.
+
+https://old.reddit.com/r/worldnews/comments/1r4kadq/canada_is_now_being_joined_by_uk_and_australia_in/o5c4rbj/
+
+https://old.reddit.com/r/worldnews/comments/1r4kadq/canada_is_now_being_joined_by_uk_and_australia_in/o5cad1m/
+
+https://old.reddit.com/r/worldnews/comments/1r4kadq/canada_is_now_being_joined_by_uk_and_australia_in/o5c4bz0/
+
+https://old.reddit.com/r/worldnews/comments/1r4kadq/canada_is_now_being_joined_by_uk_and_australia_in/o5caird/
+
+https://old.reddit.com/r/worldnews/comments/1r4kadq/canada_is_now_being_joined_by_uk_and_australia_in/o5c8ur6/
+
+4 month Reddit account.
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1r4iaw8/peter/o5bwke2/
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1r4iaw8/peter/o5bxaxf/
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1r4iaw8/peter/o5bwm71/
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1r4iaw8/peter/o5bxaxy/
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1r4iaw8/peter/o5by1w4/
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1r4iaw8/peter/o5c49ju/
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1r4iaw8/peter/o5c6com/
+

@@ -68,3 +68,9 @@ https://old.reddit.com/r/news/comments/1lsl81k/elon_musk_says_he_has_formed_a_ne
 This comment I ran across again today, and well. The horror is that this is exactly Neil Postman's 1985 book boiled down to an audience member of Reddit. Regarding... Elon Musk (richest man in the world) to Donald Trump (most powerful man in the world). We The People are motivated by entertainment and amusement above all else. Fuck-over children, fuck-over the future, poison the Earth - as long as to Big Name Status Symbols can entertain the fandom of MAGA via Reddit high-speed commenting systems.
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3ltaulv3ytk2n }
+
+https://old.reddit.com/r/CuratedTumblr/comments/1o1sl76/right/niis67o/
+
+<img width="1056" height="774" alt="image" src="https://github.com/user-attachments/assets/0b157cdb-f514-43c1-81ef-18ab20184039" />
+
+October 9, 2025. I featured this comment in About page of this project. https://github.com/RocketDerp/April14_2025/blob/main/Important/About/About_this_GitHub.md#abandonment-of-reality
