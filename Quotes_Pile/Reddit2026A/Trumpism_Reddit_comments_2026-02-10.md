@@ -1341,3 +1341,8 @@ Reddit users are not educated. Reddit users have not been taught that this is th
 
 * "I've seen too much hate to want to hate myself; hate is too great a burden to bear. I've seen it on the faces of too many sheriffs of the South — I've seen hate. In the faces and even the walk of too many Klansmen of the South, **I've seen hate. Hate distorts** the personality. **Hate does something to the soul that causes one to lose his objectivity.** The man **who hates can't think straight**; the man **who hates can't reason right; the man who hates can't see right**; the man who hates can't walk right. And I know now that Jesus is right, that love is the way. And this is why John said, "God is love," so that he who hates does not know God, but he who loves at that moment has the key that opens the door to the meaning of **ultimate reality**." - July 4, 1965 Atlanta, Georgia.
 
+https://old.reddit.com/r/sports/comments/1r4rczi/espn_vet_calls_jd_vance_a_demon_who_made_her_feel/o5dni5i/
+
+1 month Reddit account. Highly upvoted popular comment.
+
+This is classic extreme short-message Twitter-thinking SATIRE_SARCASM_WASHING of White House as a constant steady supply of jokes and humor. This is the Reddit fandom, Reddit cult, of jokes and memes. The cult on Reddit does not with to turn to Dr. Bandy X Lee and REMOVE JD Vance from the White House with Internet uprising of quotes and teachings for the general public / population from Dr. Lee - and instead is attracted to JD Vance content on Reddit as a way to waste time, spare time and free time, cracking jokes about how great it is to joke and be amused by the hate leadership (that Reddit fandom follows around in cult usage of their media devices).
