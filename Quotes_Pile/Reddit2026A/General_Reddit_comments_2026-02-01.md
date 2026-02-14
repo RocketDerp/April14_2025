@@ -444,3 +444,16 @@ Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3meszl66syc
 https://old.reddit.com/r/Millennials/comments/1r4l9nv/i_mean_its_not_like_its_hurting_anyone/o5c9tci/
 
 Wellness checks, for quoting nonfiction books that don't have "LOL" ending every sentence.
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1r4o6k8/whats_the_other_meaning_peter/o5cw4uw/
+
+Unless you are like me and have Hyper Empathy and concern yourself with strangers and world peace for people in Sudan, Russia, Ukraine, Iran, Afghanistan, Pakistan, etc, etc.
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1r4o6k8/whats_the_other_meaning_peter/o5d0ep6/
+
+On the World Stage, on the planet Earth of over 8 billion people.. the most entitled asshole people will come from the USA, a population of 0.34 billion people who did not have a REDDIT_BLACkOUT and instead talk about bumper stickers with their free time and spare time instead of ANYONE capable of commenting being able to repeat and quote Dr. Bandy X Lee's 27 writers on mental health of Donald Trump. USA population who will not face their addiction to commenting unimportant topics and deal with the DANGER that Donald Trump is.
+
+Not just voters, not just Republicans, but EVERY PERSON (even those who are age 15 and too young to vote, but can use social media to comment) who has free time and spare time to comment on social media is not asserting authentic "rude awakening" messages about how SERIOUS AND DANGEROUS the situation is!
+
+* "the public trust is also violated if the profession fails in its duty to alert the public when a person who holds the power of life and death over us all shows signs of clear, dangerous mental impairment. We should pause if professionals are asked to remain silent when they have seen enough evidence to sound an alarm in every other situation. When it comes to dangerousness, should not the president of a democracy, as First Citizen, be subject to the same standards of practice as the rest of the citizenry?"
+― Bandy X. Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. Published October 3, 2017. PROLOGUE. Page 5.](https://books.google.com/books?id=g0c4DwAAQBAJ&pg=PA5&dq=dangerousness+due+to+mental+disorder+can+become+apparent+without+a+full+diagnostic+interview+and+can+be+detected+from+a+distance&hl=en&newbks=1&newbks_redir=1&sa=X)
