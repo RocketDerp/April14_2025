@@ -1175,3 +1175,15 @@ https://old.reddit.com/r/UnderReportedNews/comments/1r43jl8/thomas_massie_i_am_n
 
 "LOL", laugh track for Reddit MAGA fandoms.
 
+https://old.reddit.com/r/rareinsults/comments/1r420h2/jack_white_on_joe_rogan/o58nfd2/
+
+DENIAL_ABOUNDS
+
+https://old.reddit.com/r/rareinsults/comments/1r420h2/jack_white_on_joe_rogan/o58pany/
+
+No dates, no off-Reddit links, etc.
+
+https://old.reddit.com/r/rareinsults/comments/1r420h2/jack_white_on_joe_rogan/o58l05o/
+
+25 day Reddit account. Promoting denial that people do in fact believe and trust Joe Rogan's media venue. Just as hundreds of millions of people trust and believe Donald Trump on Truth Social media venue. Downplaying the media crisis of We The People seeking out low-effort IGNORANCE_CELEBRATIONS content from Joe Rogan, Reddit commenting sections, Bluesky commenting images, etc. Media addictions run the USA, and nonfiction serious books on important critical topics are routinely avoided / untouched.
+
