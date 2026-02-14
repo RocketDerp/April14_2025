@@ -303,3 +303,9 @@ https://old.reddit.com/r/politics/comments/1r4f447/starmer_britains_brexit_years
 
 Street-gang language, gang signs and symbols to use slang nicknames. Trump is a master of programming the favoring of nicknames and gang mentality in regard to governing of nations and social media (Truth Social, Reddit) of same.
 
+https://old.reddit.com/r/politics/comments/1r4f447/starmer_britains_brexit_years_are_over_and_we/o5c2ux3/
+
+https://old.reddit.com/r/politics/comments/1r4f447/starmer_britains_brexit_years_are_over_and_we/o5bpk0f/
+
+https://old.reddit.com/r/politics/comments/1r4f447/starmer_britains_brexit_years_are_over_and_we/o5c13m5/
+
