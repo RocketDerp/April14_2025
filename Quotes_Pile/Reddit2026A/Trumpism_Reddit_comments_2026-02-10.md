@@ -1277,5 +1277,10 @@ https://old.reddit.com/r/PublicFreakout/comments/1r4lmvv/joe_rogan_says_the_epst
 
 The commenting addictions, the fandom of hate, looks terrible for the whole nation. The absence of INTERNET_BLACKOUT protesting. The absence of RESCUE MAGA promoting. "Save the USA from billionaires, we were all manipulated by the richest man on Earth, Elon Musk, and Trump" - the absence of standing up for common decency, common goodness, getting ton the same page behind Dr. Bandy X Lee's leadership since her public education book with 27 authors... nonfiction published October 3, 2017. Every day of life is a sick society of people commenting over and over and not confronting how Trump is an entertainer playing a "hate me hard" character, Tony Clifton character, and people are media "engaged" and Trump is a bad-ass influencer. Rupert Murdoch wrecked families on a smaller scale, Trump is a threat to the entire world. Children all over planet earth are being given this role model because USA social media addicts will not study and learn from Neil Postman's library of books.
 
+https://old.reddit.com/r/PublicFreakout/comments/1r4lmvv/joe_rogan_says_the_epstein_scandal_looks_fucking/o5cduc4/
+
+Joe Rogan has been a winner time and time again selling to a nation of addicts to junk media. The losers are people who have no voice. Joe Rogan has been a media venue that harmed children, programmed parents to worship terrible information sources. Joe Rogan has harmed people like a terrorist mosque in an Islamic nation leading a cult of worship of ignorance. IGNORANCE_CELEBRATIONS Living next to people who are cults of Joe Rogan media celebrity and cults of Trump hate messaging is horrific. These men who love and worship Joe Rogan not only hate women { Hillary Clinton, Kamala Harris } but avoid brave women who teach positive to the general public like Jen Senko and Dr. Bandy X Lee. It is a cult of male aggressive anti-intellectual media celebrities.
+
+
 
 
