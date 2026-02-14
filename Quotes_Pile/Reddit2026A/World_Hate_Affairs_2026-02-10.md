@@ -336,3 +336,18 @@ https://old.reddit.com/r/worldnews/comments/1r4kadq/canada_is_now_being_joined_b
 https://old.reddit.com/r/worldnews/comments/1r4kadq/canada_is_now_being_joined_by_uk_and_australia_in/o5c8ur6/
 
 4 month Reddit account.
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1r4iaw8/peter/o5bwke2/
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1r4iaw8/peter/o5bxaxf/
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1r4iaw8/peter/o5bwm71/
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1r4iaw8/peter/o5bxaxy/
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1r4iaw8/peter/o5by1w4/
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1r4iaw8/peter/o5c49ju/
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1r4iaw8/peter/o5c6com/
+
