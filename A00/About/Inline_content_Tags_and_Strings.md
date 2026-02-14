@@ -40,6 +40,8 @@ FAITH_IN_HATE
 HATE_HARDER   
 IGNORANCE_CELEBRATIONS  
 RECENCY_BIAS   
+AMUSEMENT_AS_USUAL   
+
 
 Topic_tags: media_ecology, media_deconstruction, media_environment, media_conventions    
 Topic_tags: media_ecology, reading_vs_film, morality_lessons   
