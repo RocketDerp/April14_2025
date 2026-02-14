@@ -433,3 +433,8 @@ James Joyce has been in our public library long enough for us to "Wake" to "Finn
 * “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.”
 ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. Swat Valley Pakistani stories. Published October 8, 2013.
 
+https://old.reddit.com/r/interesting/comments/1r4dtft/finally_a_country_responds_to_a_tech_giant_in_the/o5bbfob/
+
+https://old.reddit.com/r/interesting/comments/1r4dtft/finally_a_country_responds_to_a_tech_giant_in_the/o5bburu/
+
+For the online camera women in Ukraine... would you want to be raising children for Putin to kidnap? https://en.wikipedia.org/wiki/Child_abductions_in_the_Russo-Ukrainian_war No-pregnancy sex not be serving the Russian empire of indoctrination. I can not imagine being a mother and having your child kidnapped and indoctrinated into Putin's war machine. The Internet sex doesn't bring a child into the world under such billionaire-controlled Epstein / Putin / Trump / Musk sex power lording over women / abortion / women's equality. The anti-Malala Putinism since year 2013. SEE_ALSO https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/ December 20, 2013 - right before the Russian war against Ukraine in February 20, 2014. 
