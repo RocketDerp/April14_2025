@@ -1237,3 +1237,10 @@ It was Reddit audience jobs to turn the Russian topics into jokes and memes, as 
 https://old.reddit.com/r/UnderReportedNews/comments/1r44ed1/sen_kelly_the_old_world_is_gone_because_donald/o596ali/
 
 BEYOND_DENIAL. Yes. This message is striking at the core of the problem. We The People have NOT demonstrated any self-awareness that the addiction to IRA memes and Elon Musk Twitter has been at the core of the USA's abandonment of nonfiction serious books and learning for adults since year 2013. The level of reform require is a MASSIVE uprising of the ENTIRE POPULATION age 12 to age 120, voters and non-voters alike, to demonstrate a newfound serious focus on nonfiction learning on media ecology, science, intellectual pursuits. To stop the mocking and insulting of intelligence that Putin has programmed deeply into mindsets.
+
+https://old.reddit.com/r/clevercomebacks/comments/1r4kf2s/protecting_pedophiles_is_what_rank_and_file/o5c6arn/
+
+5 or 6 month Reddit account.
+
+https://old.reddit.com/r/clevercomebacks/comments/1r4kf2s/protecting_pedophiles_is_what_rank_and_file/o5c3s2f/
+
