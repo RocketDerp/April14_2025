@@ -1247,3 +1247,17 @@ https://old.reddit.com/r/clevercomebacks/comments/1r4kf2s/protecting_pedophiles_
 https://old.reddit.com/r/clevercomebacks/comments/1r4kf2s/protecting_pedophiles_is_what_rank_and_file/o5c4rmx/
 
 Fandom of dumb. Fandom of stupid. Aimee Mann ToDo song
+
+https://old.reddit.com/r/circled/comments/1r4mt96/this_needs_to_end_full_stop/o5cq7jo/
+
+https://old.reddit.com/r/circled/comments/1r4mt96/this_needs_to_end_full_stop/o5couqe/
+
+Until she was in jail.
+
+https://old.reddit.com/r/circled/comments/1r4mt96/this_needs_to_end_full_stop/o5clymi/
+
+
+https://old.reddit.com/r/circled/comments/1r4mt96/this_needs_to_end_full_stop/o5crqhu/
+
+Reddit audience can not see the crowd that draws around Trump on Reddit unlike any other politician in the entire world. Of all the World Wide Web celebrity figures, Trump draws a crowd like no other. The worship of guns. The worship of hate. A death cult. TRUMP_FANDOM
+
