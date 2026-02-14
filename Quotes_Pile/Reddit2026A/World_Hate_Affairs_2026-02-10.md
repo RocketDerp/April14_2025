@@ -249,3 +249,27 @@ https://old.reddit.com/r/therewasanattempt/comments/1r3t9a6/to_rewrite_history_b
 
 The forgetting all started in year 2013 with the Internet Research Agency out of Saint Petersburg Russia invading Reddit. People stop reminding each other and started prizing conflicts of out-group. The IRA won. Surkov won.
 
+https://old.reddit.com/r/worldnews/comments/1r43nyg/russia_confirms_12_trillion_pitch_to_trump_tied/o591krp/
+
+https://old.reddit.com/r/worldnews/comments/1r43nyg/russia_confirms_12_trillion_pitch_to_trump_tied/o593jp6/
+
+https://old.reddit.com/r/worldnews/comments/1r43nyg/russia_confirms_12_trillion_pitch_to_trump_tied/o590rfj/
+
+https://old.reddit.com/r/worldnews/comments/1r43nyg/russia_confirms_12_trillion_pitch_to_trump_tied/o58yvye/
+
+https://old.reddit.com/r/worldnews/comments/1r43nyg/russia_confirms_12_trillion_pitch_to_trump_tied/o591ae9/
+
+https://old.reddit.com/r/worldnews/comments/1r43nyg/russia_confirms_12_trillion_pitch_to_trump_tied/o58zdxv/
+
+https://old.reddit.com/r/worldnews/comments/1r43nyg/russia_confirms_12_trillion_pitch_to_trump_tied/o591rir/
+
+https://old.reddit.com/r/worldnews/comments/1r43nyg/russia_confirms_12_trillion_pitch_to_trump_tied/o594wma/
+
+https://old.reddit.com/r/worldnews/comments/1r43nyg/russia_confirms_12_trillion_pitch_to_trump_tied/o58z4ws/
+
+https://old.reddit.com/r/worldnews/comments/1r43nyg/russia_confirms_12_trillion_pitch_to_trump_tied/o590v9b/
+
+https://old.reddit.com/r/worldnews/comments/1r43nyg/russia_confirms_12_trillion_pitch_to_trump_tied/o5954y8/
+
+https://old.reddit.com/r/worldnews/comments/1r43nyg/russia_confirms_12_trillion_pitch_to_trump_tied/o594t0d/
+
