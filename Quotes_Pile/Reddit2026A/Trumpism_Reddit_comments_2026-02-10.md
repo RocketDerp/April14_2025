@@ -1357,3 +1357,16 @@ The change in behavior was extreme of how much Donald Trump / MAGA was viewed as
 
 * "r/The_Donald was a subreddit where participants created discussions and internet memes in support of U.S. president Donald Trump. Initially created in June 2015"; "The subreddit grew to be known for frequent posting of memes, especially Pepe the Frog, and frequent uses of slang terms such as "centipede" (a reference to a much-distributed Trump highlight reel featuring the Knife Party song "Centipede"), "MAGA", "nimble navigator", "no brakes", "cuck", "4D chess", and "SJW". Furthermore, users on the site referred to Trump as "God Emperor". For a period of time, the subreddit repeatedly posted an image of Hillary Clinton kissing Robert Byrd, a former member of the Ku Klux Klan. The image was accompanied by a photoshopped picture of an aged Byrd in Klan garb, which was meant to falsely portray Clinton and Byrd as Klan supporters. Byrd had severed ties with the Ku Klux Klan in 1952." - Reddit history https://en.wikipedia.org/wiki/R/The_Donald
 
+https://old.reddit.com/r/sports/comments/1r4rczi/espn_vet_calls_jd_vance_a_demon_who_made_her_feel/o5dly0w/
+
+<img width="971" height="459" alt="image" src="https://github.com/user-attachments/assets/b69d8510-9a73-41d0-bc03-b23ec9fd8007" />
+
+UNSETTLED:
+
+* "what Putin will do next — that he’s **unpredictable and thus dangerous**. We’re rendered stunned, spun, and flummoxed by the Kremlin’s weaponization of absurdity and unreality.” - year 2014. September 9, 2014 https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+And that **conditioned reaction is how Russia defeated the USA by winning hearts and minds** (of the NATO enemy USA enemy by Putin). Unsettling brain exploitation, it is PREDICTABLE_OUTCOME - Reddit is a FANDOM to this technique, Reddit comment creators are in a CULT of media that unsettles them. They have not met JD Vance in person, shaken his hand, ti is images of media systems, it is video clips that ALONE create this. Like a horror film cult audience, cult films. But this is constant, JD Vance / Trump / Putin / Musk give this sense of fiction unreality, like a fiction horror film. Mythological. Surkov cracked the Levant monomyth media patterns somewhere around year 2010 from my own reckoning. 
+
+Social post { https://autistics.life/@RoundSparrow/116070831771087624 https://bsky.app/profile/roundsparrow.bsky.social/post/3mettr3ay222f }
+
+NEW_OPERA_NAME UnsettledOpera 
