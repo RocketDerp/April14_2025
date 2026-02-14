@@ -25,4 +25,13 @@ Novelty. Sensationalism. Exotic. Unusual. Sound-track to video.
 
 People really are engaged about how much they hate the voice-over, how much they hate the music that is on a video clip.
 
-People USED TO complain about the video capture. But people now record phone screens, tiny box within box within box of photocpied video recordings. Some of this is to bypass copyright rights management systems?
+People USED TO complain about the video capture. But people now record phone screens, tiny box within box within box of photocopied video recordings. Some of this is to bypass copyright rights management systems?
+
+&nbsp;
+
+# Surkovian 
+
+Sensationalism Politics   
+Antics Politics   
+POTUS Tony Clifton (Multiple positions, not just POTUS, multiple performers, multiple stages)   
+Old White Man finds Computers acting / actor. Novelty attraction. Freak show of a White Male Executive not having his secretary or a director re-shoot the scenes. Clifton performance art.   
