@@ -370,3 +370,54 @@ In a police state, the concern is superficial English on Reddit. Not We the Peop
 
 https://old.reddit.com/r/RandomVideos/comments/1r3k810/sarcastic_senior_citizen/o54uxjr/
 
+https://old.reddit.com/r/interesting/comments/1r4dtft/finally_a_country_responds_to_a_tech_giant_in_the/o5ay3ej/
+
+https://old.reddit.com/r/interesting/comments/1r4dtft/finally_a_country_responds_to_a_tech_giant_in_the/o5axtbk/
+
+BABEL_TOWER this kind of anti-public public social postings. Generic topic community of "/r/Interesting", posting title is non-specific as to meaning other than "tech giant".  Posting creator https://old.reddit.com/user/IamTheOneWhoKnocksU is 1 month Reddit account that got to first page. Do people consider "Only Fans" a technology company...
+
+Anyway, the language usage is Tower of Babel drift. The image implies it is about girls working in Sweden, but online sex is about global reach. The customers making purchases from all over the world.
+
+https://old.reddit.com/r/interesting/comments/1r4dtft/finally_a_country_responds_to_a_tech_giant_in_the/o5b16v4/
+
+BABEL_TOWER and discussion of machine-influence on minds / culture of Reddit users. Although this could be a form of Reddit rage-bait or engagement given the 1 month account https://old.reddit.com/user/IamTheOneWhoKnocksU that posted this. The username is also provocative meme.
+
+https://old.reddit.com/r/interesting/comments/1r4dtft/finally_a_country_responds_to_a_tech_giant_in_the/o5ay8wv/
+
+Discussion replies mention religion values even if Christian religion isn't practiced as much.
+
+https://old.reddit.com/r/interesting/comments/1r4dtft/finally_a_country_responds_to_a_tech_giant_in_the/o5axx8b/
+
+https://old.reddit.com/r/interesting/comments/1r4dtft/finally_a_country_responds_to_a_tech_giant_in_the/o5axuop/
+
+https://old.reddit.com/r/interesting/comments/1r4dtft/finally_a_country_responds_to_a_tech_giant_in_the/o5awtdn/
+
+https://old.reddit.com/r/interesting/comments/1r4dtft/finally_a_country_responds_to_a_tech_giant_in_the/o5b31rg/
+
+Rich and powerful people with Putin network and Epstein network is all the news every day in 2026. 
+
+https://old.reddit.com/r/interesting/comments/1r4dtft/finally_a_country_responds_to_a_tech_giant_in_the/o5b6ldn/
+
+https://old.reddit.com/r/interesting/comments/1r4dtft/finally_a_country_responds_to_a_tech_giant_in_the/o5ay8zd/
+
+https://old.reddit.com/r/interesting/comments/1r4dtft/finally_a_country_responds_to_a_tech_giant_in_the/o5b4umw/
+
+https://old.reddit.com/r/interesting/comments/1r4dtft/finally_a_country_responds_to_a_tech_giant_in_the/o5azb2b/
+
+https://old.reddit.com/r/interesting/comments/1r4dtft/finally_a_country_responds_to_a_tech_giant_in_the/o5b01en/
+
+Like I've said on this GitHub a few times in the past 10 days... hot girls in my high school would talk to each other in my classroom in front of me. I was a book nerd at age 15 when I was my first year in high school. I would hang out in school just reading alone and I never gossiped or shared rumors. So girls would sit near me and talk to each other as if i was not a threat. I was reading /  studying computer books and other nonfiction. Hot girls in my large high school were not dating other high school boys... they were talking about adult men. I linked the song "Check It Out" John Mellencamp. https://www.youtube.com/watch?v=8qxDBiiVjlQ This was in 1984, 1985, 1986 when I knew the age of these girls in my school classes. age 15, 16. to be a hot girl, you got the attention of powerful men when outside school at the mall or wherever these girls were meeting adult men.
+
+You really wonder if people can't read between the liens about politics and fiction storytelling... if they really can't see what is going on in their own city with Epstein kind of stuff. "i hate that nearly 1/10 18-24 girls have done in America."
+
+These 30 year old men who are manipulating and seducing ate 15 / age 16 girls was going on in front of me in my high school freshman and sophomore class when I knew the age of these girls. 1985, 1986. I really think people don't *listen* to what is going on around them. It isn't just "Epstein island". Powerful and manipulative men treat this as some kind of conquest and sport. The billionaire class in Bellevue, owner of sports empires... the social access that has...
+
+There are some people who don't cover up their age 14 age 15 youth in the music industry and film industry.. I mean you are in front of adults and everyone is looking at you. An attractive / hot person draws influence and power brokers. People like Donald trump are in the Miss Universe in Moscow show. Sports team owners like Paul Allen / Jody Allen... I mean that's their social power over society. the Simpsons make a joke about it... Season 11, Episode 12, "Perks of the International Waters" - but private jets and private cruise ships that billionaires own allow... bypassing a lot of scrutiny. 
+
+https://old.reddit.com/r/interesting/comments/1r4dtft/finally_a_country_responds_to_a_tech_giant_in_the/o5b21bq/
+
+https://old.reddit.com/r/interesting/comments/1r4dtft/finally_a_country_responds_to_a_tech_giant_in_the/o5b8pxk/
+
+https://old.reddit.com/r/interesting/comments/1r4dtft/finally_a_country_responds_to_a_tech_giant_in_the/o5badrx/
+
+Given the Epstein billionaire power brokering of manipulating women as a means to have access to the Epstein finance and technology development markets... this whole topic needs to be more in the open. Elon Musk is basically a professional baby-daddy who wants to repopulate the Earth... https://www.vanityfair.com/news/story/elon-musks-children-ashley-st-clair "Elon Musk’s Breeding Spree Is So Much Wilder Than You Thought"- I mean, owner of Twitter - you can not be much more high-profile as a role model for young boys who are attracted to rockets and film star and sports star celebrities on Twitter.
