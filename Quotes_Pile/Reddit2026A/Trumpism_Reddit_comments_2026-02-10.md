@@ -1200,3 +1200,15 @@ https://old.reddit.com/r/PublicFreakout/comments/1r41i00/sanders_the_american_pe
 Mind-fucking to Reddit audience to ignore the Russia and Trump information warfare. Not **blaming "We The People" for flocking to stupid memes** and mind-dumbing media manipulation from billionaires. Surkov won since March of year 2013. The Saint Petersburg Internet Research Agency invaded Reddit and trashed so many hearts and minds to avoid serious nonfiction learning. SEE_ALSO https://GitHub.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Cambridge_Analytica_Quotes.md
 
 * Almost FIFTEEN YEARS AGO, FAR BEFORE November 2016 Trump win: “We are **engaged in an information war and we are losing that war**,” she said. China and Russia have started multi-language television networks, she said, even as the U.S. cuts back in this area. “We are paying a big price” for dismantling international communications networks after the end of the Cold War, Clinton said. -- **March 2, 2011**  -- United States Secretary of State Hillary Clinton  
+
+https://old.reddit.com/r/PublicFreakout/comments/1r41i00/sanders_the_american_people_do_not_want_this/o58ga7c/
+
+<img width="1137" height="1288" alt="image" src="https://github.com/user-attachments/assets/d3a72314-9150-4a44-a389-a3c7f5194de4" />
+
+BEYOND_DENIAL "evidently", it is "self-evident" (usage as the 1776 founding fathers used that phrase) REALITY_REAL - yet... denial is far more popular. You see replies to this comment about 75% of the population. SO MUCH DENIAL of Elon Musk purchasing Twitter, Donald Trump Truth Social, Fox News HDTV, the **extreme low-effort commenting all over Reddit**. Shit-commenting, shit-posting, EVERYWHERE in USA society! The enshitification problems and crisis! The Brain Rot problem and crisis! Donald Trump was OUT OF OFFICE for 4 years, Joe Biden took over, but the BRAIN ROT of Apple iPhone / Apple iPad / Samsung Android device users CONTINUED! Joe Biden did not address the cult issues of high-speed information systems!
+
+WHY IS REDDIT community Not doing BLACKOUTS AS PROTESTS, Internet PROTESTING, and landing on the front page of world news sections all over planet Earth? REDDIT_BLACKOUT - because anti-MAGA is a cult. Reddit audience is a **media cult** of mocking and insulting! "Leopard At Faces" cultists! Meme cult of making memes about Trump and his supporters! Cults vs. cults! Simulation vs. simulation! Surkov won since March of year 2013! THIS_GITHUB created because so many of *We The People have failed to grasp* 1950's Marshall McLuhan, 1980's Neil Postman, etc.
+
+Reply comment quote: "I don't know why anyone ever believed him" - Reddit comment 2026-02-13, denial denial denial of Russia vs. NATO. Attacking Canada as 51st state, Greenland NATO, etc. Russia defeated USA hearts and minds to believe fiction, to be attracted to shit-commenting shit-memes and shit-postings since year 2013!
+
+Social post { https://Autistics.life/@RoundSparrow/116066243490631222 https://bsky.app/profile/roundsparrow.bsky.social/post/3merslh2n5k2n }
