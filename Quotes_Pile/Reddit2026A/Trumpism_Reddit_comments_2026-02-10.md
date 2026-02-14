@@ -1402,3 +1402,8 @@ Gun-worship, hardware-worship, street-gangs slogans and messages. Anti-intellect
 https://old.reddit.com/r/circled/comments/1r4vt0v/well_then_three_it_is/o5el6ma/
 
 GULLIBLE_FANDOM Cult of mythology, Reddit is a cult of images of hate leaders. Cult of mocking, hate-watching. Followers of hate content who follow the Republican party hate leadership 24 hours a day 7 days a week - even if they don't vote for hate leaders at the elections for government official - Reddit end-users prize the hate leadership as a source of hate-rituals (commenting rituals) practice. Cult of hate followers to hate-based leadership systems.
+
+https://old.reddit.com/r/circled/comments/1r4vt0v/well_then_three_it_is/o5elect/
+
+20 day Reddit account. Programming the Reddit cult to focus on taxes, don't pay taxes, which is a MAGA values for the rich and wealthy - to not pay taxes. ANYTHING and EVERYTHING to avoid dealing with the Fox News HDTV cult crisis. The QAnon cult crisis, etc. Reddit is a cult of hating other cults. Ask yourself why Reddit isn't promoting the mental health public education by Dr. Bandy X Lee who assembled 27 people to educate the everyday public? Why isn't Reddit social staging a newsworthy serious sustained INTERNET protest, blackout, Internet uprising... REDDIT_BLACKOUT 
+
