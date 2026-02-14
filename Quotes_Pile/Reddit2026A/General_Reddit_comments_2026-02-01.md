@@ -468,3 +468,10 @@ The person says they have autism. More concerning is the community behavior... m
 
 * "the public trust is also violated if the profession fails in its duty to alert the public when a person who holds the power of life and death over us all shows signs of clear, dangerous mental impairment. We should pause if professionals are asked to remain silent when they have seen enough evidence to sound an alarm in every other situation. When it comes to dangerousness, should not the president of a democracy, as First Citizen, be subject to the same standards of practice as the rest of the citizenry?"
 ― Bandy X. Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. Published October 3, 2017. PROLOGUE. Page 5.](https://books.google.com/books?id=g0c4DwAAQBAJ&pg=PA5&dq=dangerousness+due+to+mental+disorder+can+become+apparent+without+a+full+diagnostic+interview+and+can+be+detected+from+a+distance&hl=en&newbks=1&newbks_redir=1&sa=X)
+
+https://archive.is/o/Qobgd/https://www.reddit.com/r/antimeme2/comments/1r1orz0/rcoursemedicore7998_is_an_indian_boy_proof/o4r275i/
+
+BABEL_TOWER 
+
+https://archive.is/o/Qobgd/https://www.reddit.com/r/antimeme2/comments/1r1orz0/rcoursemedicore7998_is_an_indian_boy_proof/o4r46t3/
+
