@@ -273,3 +273,12 @@ https://old.reddit.com/r/worldnews/comments/1r43nyg/russia_confirms_12_trillion_
 
 https://old.reddit.com/r/worldnews/comments/1r43nyg/russia_confirms_12_trillion_pitch_to_trump_tied/o594t0d/
 
+https://old.reddit.com/r/politics/comments/1r4f447/starmer_britains_brexit_years_are_over_and_we/o5bid4g/
+
+World hate affairs.
+
+https://old.reddit.com/r/politics/comments/1r4f447/starmer_britains_brexit_years_are_over_and_we/o5bcfw2/
+
+Twitter-think machine-think merging of identity. High-speed reactionary social information systems. Information overload symptoms.
+
+* September 19, 1977 https://www.Organism.Earth/library/document/mcluhan-mcmanus  "No, no, I think now we’re playing backwards. We’re going back into the bicameral mind, which is tribal, collective, without any individual consciousness." 01:18 McManus "But it seems, Dr. McLuhan, that this tribal world is not friendly." 01:23 McLuhan "Oh no. Tribal people, one of their main kinds of sport is sort of butchering each other. It’s a full-time sport in tribal societies."
