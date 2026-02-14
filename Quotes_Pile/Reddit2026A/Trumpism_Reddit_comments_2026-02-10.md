@@ -1365,8 +1365,8 @@ UNSETTLED:
 
 * "what Putin will do next — that he’s **unpredictable and thus dangerous**. We’re rendered stunned, spun, and flummoxed by the Kremlin’s weaponization of absurdity and unreality.” - year 2014. September 9, 2014 https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
 
-And that **conditioned reaction is how Russia defeated the USA by winning hearts and minds** (of the NATO enemy USA enemy by Putin). Unsettling brain exploitation, it is PREDICTABLE_OUTCOME - Reddit is a FANDOM to this technique, Reddit comment creators are in a CULT of media that unsettles them. They have not met JD Vance in person, shaken his hand, ti is images of media systems, it is video clips that ALONE create this. Like a horror film cult audience, cult films. But this is constant, JD Vance / Trump / Putin / Musk give this sense of fiction unreality, like a fiction horror film. Mythological. Surkov cracked the Levant monomyth media patterns somewhere around year 2010 from my own reckoning. 
+And that **conditioned reaction is how Russia defeated the USA by winning hearts and minds** (of the NATO enemy USA enemy by Putin). Unsettling brain exploitation, it is PREDICTABLE_OUTCOME - Reddit is a FANDOM to this technique, Reddit comment creators are in a CULT of media that unsettles them. They have not met JD Vance in person, shaken his hand, ti is images of media systems, it is video clips that ALONE create this. Like a horror film cult audience, cult films. But this is constant, JD Vance / Trump / Putin / Musk give this sense of fiction unreality, like a fiction horror film. Mythological. Surkov cracked the Levant monomyth media John 1:1 patterns (at least the out-group hate clergy side, anti-compassion anti-goodness, anti-empathy) somewhere around year 2010 from my own reckoning. 
 
 Social post { https://autistics.life/@RoundSparrow/116070831771087624 https://bsky.app/profile/roundsparrow.bsky.social/post/3mettr3ay222f }
 
-NEW_OPERA_NAME UnsettledOpera 
+NEW_OPERA_NAME { #UnsettledOpera #VibePsyOps } the second being irregular named.
