@@ -1244,3 +1244,6 @@ https://old.reddit.com/r/clevercomebacks/comments/1r4kf2s/protecting_pedophiles_
 
 https://old.reddit.com/r/clevercomebacks/comments/1r4kf2s/protecting_pedophiles_is_what_rank_and_file/o5c3s2f/
 
+https://old.reddit.com/r/clevercomebacks/comments/1r4kf2s/protecting_pedophiles_is_what_rank_and_file/o5c4rmx/
+
+Fandom of dumb. Fandom of stupid. Aimee Mann ToDo song
