@@ -499,3 +499,6 @@ That the country is currently split — and **our shared reality** with it — s
 
 ― Bandy X Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. October 3, 2017. Page 58.](https://books.google.com/books?id=pYaFDwAAQBAJ&pg=PA58&dq=insidious+strategy+called+gaslighting+%E2%80%94+a+term+drawn+from+the+1938+play+about+a+man+who+persuaded+his+wife+she+was+crazy+by&hl=en&newbks=1&newbks_redir=1&sa=X)
 
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1r4rxdb/peter/o5dpue1/
+
+CHOICE_MARRIAGE_HONESTY  communicating with partners and mates.  RELIGION_CULTS_MONOMYTH_PROGRAMMING many religions teach that masturbation and sexual fantasy is a "sin" against a God. Science fiction media cultists teach this as a manipulation technique to concentrate power and wealth over populations. Time-Proven system of mind exploitation. 
