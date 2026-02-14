@@ -47,6 +47,8 @@ AMUSEMENT_AS_USUAL
 LOVE_ONE_ANOTHER   
 SATIRE_SARCASM_WASHING   
 NEW_OPERA_NAME  
+CHOICE_MARRIAGE_HONESTY   
+RELIGION_CULTS_MONOMYTH_PROGRAMMING   
 
 
 Topic_tags: media_ecology, media_deconstruction, media_environment, media_conventions    
