@@ -351,3 +351,7 @@ https://old.reddit.com/r/PeterExplainsTheJoke/comments/1r4iaw8/peter/o5c49ju/
 
 https://old.reddit.com/r/PeterExplainsTheJoke/comments/1r4iaw8/peter/o5c6com/
 
+https://old.reddit.com/r/news/comments/1r4tet6/sarajevo_sniper_tourists_killed_children_by_day/o5e76x4/
+
+https://old.reddit.com/r/news/comments/1r4tet6/sarajevo_sniper_tourists_killed_children_by_day/o5e7xt3/
+
