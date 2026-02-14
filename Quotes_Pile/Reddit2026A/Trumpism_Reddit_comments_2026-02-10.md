@@ -1401,4 +1401,4 @@ Gun-worship, hardware-worship, street-gangs slogans and messages. Anti-intellect
 
 https://old.reddit.com/r/circled/comments/1r4vt0v/well_then_three_it_is/o5el6ma/
 
-Cult of mythology, Reddit is a cult of images of hate leaders. Cult of mocking, hate-watching. Followers of hate content who follow the Republican party hate leadership 24 hours a day 7 days a week - even if they don't vote for hate leaders at the elections for government official - Reddit end-users prize the hate leadership as a source of hate-rituals (commenting rituals) practice. Cult of hate followers to hate-based leadership systems.
+GULLIBLE_FANDOM Cult of mythology, Reddit is a cult of images of hate leaders. Cult of mocking, hate-watching. Followers of hate content who follow the Republican party hate leadership 24 hours a day 7 days a week - even if they don't vote for hate leaders at the elections for government official - Reddit end-users prize the hate leadership as a source of hate-rituals (commenting rituals) practice. Cult of hate followers to hate-based leadership systems.
