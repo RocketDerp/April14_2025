@@ -1410,3 +1410,35 @@ https://old.reddit.com/r/circled/comments/1r4vt0v/well_then_three_it_is/o5elect/
 https://old.reddit.com/r/Fauxmoi/comments/1r4w1ak/president_obama_when_i_was_president_i_suppose_i/o5elqca/
 
 Top-voted popular comment. Playing dumb. Ignoring Putin NATO Trump information warfare. Not asserting Dr. Bandy X Lee or equivalent. CONDITIONED_OPPOSITION
+
+https://old.reddit.com/r/Fauxmoi/comments/1r4w1ak/president_obama_when_i_was_president_i_suppose_i/o5emevv/
+
+https://old.reddit.com/r/Fauxmoi/comments/1r4w1ak/president_obama_when_i_was_president_i_suppose_i/o5en5tt/
+
+2 month Reddit account.
+
+https://old.reddit.com/r/Fauxmoi/comments/1r4w1ak/president_obama_when_i_was_president_i_suppose_i/o5enq9n/
+
+5 month Reddit account. "wild"
+
+https://old.reddit.com/r/Fauxmoi/comments/1r4w1ak/president_obama_when_i_was_president_i_suppose_i/o5eo4jh/
+
+An off-Reddit link on the topic!
+
+https://old.reddit.com/r/Fauxmoi/comments/1r4w1ak/president_obama_when_i_was_president_i_suppose_i/o5emuxe/
+
+Yes, exactly. "way they talk", fiction storytelling outsells nonfiction. People can not face up to the real reality that audiences adore Trump's fiction storytelling as an attraction. REALITY_REAL
+
+https://old.reddit.com/r/Fauxmoi/comments/1r4w1ak/president_obama_when_i_was_president_i_suppose_i/o5emel1/
+
+2 month Reddit account. Obama keyword on front page draws in a lot of talking points.
+
+https://old.reddit.com/r/Fauxmoi/comments/1r4w1ak/president_obama_when_i_was_president_i_suppose_i/o5em5e1/
+
+TRUMP_FANDOM of simple-think Tweet-length short mindset patterns.
+
+https://old.reddit.com/r/Fauxmoi/comments/1r4w1ak/president_obama_when_i_was_president_i_suppose_i/o5en287/
+
+Trump and Putin have shown that Surkov governing is very popular with Reddit media cult members. Fiction and stimulating media is very popular on Reddit. Low-effort commenting that avoids serious nonfiction on the critical and important topics.
+
+
