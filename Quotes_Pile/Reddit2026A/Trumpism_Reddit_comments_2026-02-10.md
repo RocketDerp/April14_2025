@@ -1148,3 +1148,30 @@ https://old.reddit.com/r/UnderReportedNews/comments/1r43jl8/thomas_massie_i_am_n
 https://old.reddit.com/r/UnderReportedNews/comments/1r43jl8/thomas_massie_i_am_not_suicidal/o58znaj/
 
 ANSWER: a nation of commenting addicts and like-button toching addicts, upvote-button addicts... people who avoid nonfiction learning for adults. We The People of the USA have abandoned nonfiction in favor of low-effort commenting on page after page of social media systems. Trump is a media addict leading  nation of media addictions. Surkov won since March 2013. Reddit can't face the addiction problems and have a REDDIT_BLACKOUT protest to demonstrate that We The People are the power of society - and instead people keep making shit-commenting and shit-postings and AMUSEMENT_AS_USUAL with entertainment and memes. No matter how horrific it has gotten, Reddit users can't call to get on the same page of critical and important nonfiction topics. GTA6 news and Steam sales is more a Reddit fandom concern that having an Internet protest to remove Trump and put Dr. Bandy X Lee's 27 people front and center regarding MAGA cult.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1r43jl8/thomas_massie_i_am_not_suicidal/o5932w7/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1r43jl8/thomas_massie_i_am_not_suicidal/o58yv0v/
+
+6 month Reddit account.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1r43jl8/thomas_massie_i_am_not_suicidal/o58zprd/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1r43jl8/thomas_massie_i_am_not_suicidal/o58yw7o/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1r43jl8/thomas_massie_i_am_not_suicidal/o58zpjj/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1r43jl8/thomas_massie_i_am_not_suicidal/o594la4/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1r43jl8/thomas_massie_i_am_not_suicidal/o58z3cf/
+
+"Insane". Minds constantly blown into simple-think patterns on Reddit.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1r43jl8/thomas_massie_i_am_not_suicidal/o58zfme/
+
+6 month Reddit account.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1r43jl8/thomas_massie_i_am_not_suicidal/o58zukq/
+
+"LOL", laugh track for Reddit MAGA fandoms.
+
