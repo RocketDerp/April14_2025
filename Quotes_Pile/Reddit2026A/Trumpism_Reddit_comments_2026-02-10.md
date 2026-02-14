@@ -1383,3 +1383,7 @@ https://old.reddit.com/r/MurderedByWords/comments/1r4tlxt/sounds_about_right/o5e
 
 TRUMP_FANDOM loves naming the fiction acting band / group. Cult of hate-watching media, cult of high-speed information images on Reddit is constantly stimulated by the White House Reality performances. Reddit fandom does not want to organize and rescue these women from the cult, as Reddit audience can not face their own inner cult to the total mockery that Trump and Putin lead.
 
+https://old.reddit.com/r/circled/comments/1r4vt0v/well_then_three_it_is/o5eidjp/
+
+1 month Reddit account. top-voted most popular comment. Banal, extreme short-length low-effort. FAKE_RESISTANCE IGNORANCE_CELEBRATIONS ANYTHING and EVERYTHING to avoid Dr. Bandy X Lee public education repeating, nonfiction learning for We The People on Reddit to stop living in denial of how dangerous the situation is.
+
