@@ -35,3 +35,12 @@ Sensationalism Politics
 Antics Politics   
 POTUS Tony Clifton (Multiple positions, not just POTUS, multiple performers, multiple stages)   
 Old White Man finds Computers acting / actor. Novelty attraction. Freak show of a White Male Executive not having his secretary or a director re-shoot the scenes. Clifton performance art.   
+
+&nbsp;
+
+# Competitive Structure 
+
+The competitive structure    
+https://youtu.be/-vNfoCwsixg?t=506   
+
+Speed of TCP/IP delivery and upvoting is the measure on Reddit   
