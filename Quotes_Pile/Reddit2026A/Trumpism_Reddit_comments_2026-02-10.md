@@ -1370,3 +1370,10 @@ And that **conditioned reaction is how Russia defeated the USA by winning hearts
 Social post { https://autistics.life/@RoundSparrow/116070831771087624 https://bsky.app/profile/roundsparrow.bsky.social/post/3mettr3ay222f }
 
 NEW_OPERA_NAME { #UnsettledOpera #VibePsyOps } the second being irregular named.
+
+https://old.reddit.com/r/MurderedByWords/comments/1r4tlxt/sounds_about_right/o5e24ow/
+
+10 day Reddit account. Top-upvoted most popular comment.
+
+TRUMP_FANDOM to the mentally enslaved women who are Putin puppets / actors performing for the hate media cultists of Reddit.
+
