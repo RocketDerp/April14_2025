@@ -1407,3 +1407,6 @@ https://old.reddit.com/r/circled/comments/1r4vt0v/well_then_three_it_is/o5elect/
 
 20 day Reddit account. Programming the Reddit cult to focus on taxes, don't pay taxes, which is a MAGA values for the rich and wealthy - to not pay taxes. ANYTHING and EVERYTHING to avoid dealing with the Fox News HDTV cult crisis. The QAnon cult crisis, etc. Reddit is a cult of hating other cults. Ask yourself why Reddit isn't promoting the mental health public education by Dr. Bandy X Lee who assembled 27 people to educate the everyday public? Why isn't Reddit social staging a newsworthy serious sustained INTERNET protest, blackout, Internet uprising... REDDIT_BLACKOUT 
 
+https://old.reddit.com/r/Fauxmoi/comments/1r4w1ak/president_obama_when_i_was_president_i_suppose_i/o5elqca/
+
+Top-voted popular comment. Playing dumb. Ignoring Putin NATO Trump information warfare. Not asserting Dr. Bandy X Lee or equivalent. CONDITIONED_OPPOSITION
