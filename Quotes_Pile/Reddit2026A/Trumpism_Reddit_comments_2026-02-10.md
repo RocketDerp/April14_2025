@@ -1441,4 +1441,10 @@ https://old.reddit.com/r/Fauxmoi/comments/1r4w1ak/president_obama_when_i_was_pre
 
 Trump and Putin have shown that Surkov governing is very popular with Reddit media cult members. Fiction and stimulating media is very popular on Reddit. Low-effort commenting that avoids serious nonfiction on the critical and important topics.
 
+https://old.reddit.com/r/Fauxmoi/comments/1r4w1ak/president_obama_when_i_was_president_i_suppose_i/o5eozrj/
 
+"LMAO", amused. FAKE_OPPOSITION 
+
+https://old.reddit.com/r/Fauxmoi/comments/1r4w1ak/president_obama_when_i_was_president_i_suppose_i/o5epj0m/
+
+SURKOVIAN_ONION_EATING gullible.
