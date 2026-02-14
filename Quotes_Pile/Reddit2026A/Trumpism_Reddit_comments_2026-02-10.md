@@ -1137,3 +1137,14 @@ https://old.reddit.com/r/technology/comments/1r40e0c/ftc_wants_apple_news_to_pro
 
 1 month Reddit account. No off-Reddit URL, no quotes from nonfiction sources, no author names...
 
+https://old.reddit.com/r/UnderReportedNews/comments/1r43jl8/thomas_massie_i_am_not_suicidal/o58xdrz/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1r43jl8/thomas_massie_i_am_not_suicidal/o58y8te/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1r43jl8/thomas_massie_i_am_not_suicidal/o58ymr4/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1r43jl8/thomas_massie_i_am_not_suicidal/o58zjez/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1r43jl8/thomas_massie_i_am_not_suicidal/o58znaj/
+
+ANSWER: a nation of commenting addicts and like-button toching addicts, upvote-button addicts... people who avoid nonfiction learning for adults. We The People of the USA have abandoned nonfiction in favor of low-effort commenting on page after page of social media systems. Trump is a media addict leading  nation of media addictions. Surkov won since March 2013. Reddit can't face the addiction problems and have a REDDIT_BLACKOUT protest to demonstrate that We The People are the power of society - and instead people keep making shit-commenting and shit-postings and AMUSEMENT_AS_USUAL with entertainment and memes. No matter how horrific it has gotten, Reddit users can't call to get on the same page of critical and important nonfiction topics. GTA6 news and Steam sales is more a Reddit fandom concern that having an Internet protest to remove Trump and put Dr. Bandy X Lee's 27 people front and center regarding MAGA cult.
