@@ -1212,3 +1212,7 @@ WHY IS REDDIT community Not doing BLACKOUTS AS PROTESTS, Internet PROTESTING, an
 Reply comment quote: "I don't know why anyone ever believed him" - Reddit comment 2026-02-13, denial denial denial of Russia vs. NATO. Attacking Canada as 51st state, Greenland NATO, etc. Russia defeated USA hearts and minds to believe fiction, to be attracted to shit-commenting shit-memes and shit-postings since year 2013!
 
 Social post { https://Autistics.life/@RoundSparrow/116066243490631222 https://bsky.app/profile/roundsparrow.bsky.social/post/3merslh2n5k2n }
+
+https://old.reddit.com/r/PublicFreakout/comments/1r41i00/sanders_the_american_people_do_not_want_this/o58jlso/
+
+Give up on humanism. Let billionaire Rupert Murdoch mind-fuck everyone around you. Let Putin wreck NATO all around your nation because teaching and educating nonfiction using Reddit is too much difficulty. Let the richest man in the world own Twitter and manipulate everyone into *deport harder* and block-button modern book burning / magazine burning.
