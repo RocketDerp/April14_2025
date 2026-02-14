@@ -1261,3 +1261,9 @@ https://old.reddit.com/r/circled/comments/1r4mt96/this_needs_to_end_full_stop/o5
 
 Reddit audience can not see the crowd that draws around Trump on Reddit unlike any other politician in the entire world. Of all the World Wide Web celebrity figures, Trump draws a crowd like no other. The worship of guns. The worship of hate. A death cult. TRUMP_FANDOM
 
+https://old.reddit.com/r/PoliticalHumor/comments/1r4o1dl/i_was_given_a_three_day_ban_for_saying_its_okay/o5cxma0/
+
+Love of machines, tech love, is what Charlie Chaplin pointed out in his 1940 film "The Great Dictator". machine-like power over others. Reddit cloud computing secret police. A tech billionaire worship center.
+
+* "don’t give yourselves to brutes - men who despise you - enslave you - who regiment your lives - tell you what to do - what to think and what to feel! Who drill you - diet you - treat you like cattle, use you as cannon fodder. Don’t give yourselves to these unnatural men - **machine men with machine minds** and machine hearts! **You are not machines!** You are not cattle! You are men! You have the love of humanity in your hearts! You don’t hate! Only the unloved hate - the unloved and the unnatural! Soldiers! Don’t fight for slavery! Fight for liberty! In the 17th Chapter of St Luke it is written: “the Kingdom of God is within man” - not one man nor a group of men, but in all men! In you! You, the people have the power - the power to create machines. The power to create happiness! You, the people, have the power to make this life free and beautiful, to make this life a wonderful adventure." - Year 1940 https://www.CharlieChaplin.com/en/articles/29-the-final-speech-from-the-great-dictator-
+
