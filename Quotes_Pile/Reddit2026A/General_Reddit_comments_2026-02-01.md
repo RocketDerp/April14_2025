@@ -460,3 +460,11 @@ Not just voters, not just Republicans, but EVERY PERSON (even those who are age 
 
 https://old.reddit.com/r/isthisAI/comments/1r4r9zj/woman_freeing_a_mountain_lion_from_a_trap_while/o5dpinm/
 
+https://old.reddit.com/r/antimeme/comments/1r4q7od/full_course_story_apology_mod_election/o5daul0/
+
+https://old.reddit.com/r/antimeme/comments/1r4q7od/full_course_story_apology_mod_election/o5daw48/
+
+The person says they have autism. More concerning is the community behavior... mental health crisis of MAGA takeover of the USA is a dangerous threat to the whole world and people are spending free time and spare time doing everything to avoid nonfiction serious discussions of the topic.
+
+* "the public trust is also violated if the profession fails in its duty to alert the public when a person who holds the power of life and death over us all shows signs of clear, dangerous mental impairment. We should pause if professionals are asked to remain silent when they have seen enough evidence to sound an alarm in every other situation. When it comes to dangerousness, should not the president of a democracy, as First Citizen, be subject to the same standards of practice as the rest of the citizenry?"
+― Bandy X. Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. Published October 3, 2017. PROLOGUE. Page 5.](https://books.google.com/books?id=g0c4DwAAQBAJ&pg=PA5&dq=dangerousness+due+to+mental+disorder+can+become+apparent+without+a+full+diagnostic+interview+and+can+be+detected+from+a+distance&hl=en&newbks=1&newbks_redir=1&sa=X)
