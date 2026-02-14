@@ -65,3 +65,9 @@ https://old.reddit.com/r/SipsTea/comments/1qy5dzh/_/
 Very real behaviors I have witnessed. People who will have sex hookups and affairs, but are entirely unwilling to discuss their dreams and desires and boss / workplace honestly in a marriage given months of time. People that will hook up and trust strangers to prepare their food that can poison them when traveling but won't let family members do intimate things. Let taxi drivers threaten their life, let bosses risk their lives or manipulate their family health care (USA especially), etc.
 
 The whole way people will worship a god and recommend and praise a god and pass a god to their children... that allows cancer, war, earthquakes, etc.
+
+&nbsp;
+
+https://old.reddit.com/r/science/comments/1r4p2uc/children_raised_with_authoritative_parenting/
+
+Comparative parenting systems.  
