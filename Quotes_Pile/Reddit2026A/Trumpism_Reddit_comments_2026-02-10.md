@@ -1307,4 +1307,20 @@ https://old.reddit.com/r/pics/comments/1r4qgsr/stephen_cheung_white_house_comm_d
 
 Putin has organized bullying as a leadership technique. Reddit fandom is following the lead. Flocking to every image and leader out of the white house to prize hate and prize bullying leadership. Just like Fox News HDTV fandom is not self-aware they are being manipulated by billionaires to hate, Reddit fandom is not self-aware of the prizing of content. Observe Reddit comment creators have spare time and free time to write these comments but are not organizing a protest black out or messaging campaign to make Dr. Bandy X Lee the center of topic attention and leadership AWAY from Trumpism / MAGA culture.
 
+https://old.reddit.com/r/pics/comments/1r4qgsr/stephen_cheung_white_house_comm_director_who/o5ddfbu/
 
+https://old.reddit.com/r/pics/comments/1r4qgsr/stephen_cheung_white_house_comm_director_who/o5dczl2/
+
+https://old.reddit.com/r/pics/comments/1r4qgsr/stephen_cheung_white_house_comm_director_who/o5de0x1/
+
+Street-gang language, political party gang-signs and symbols. Hate-speech communications encoding. BABEL_TOWER 
+
+https://old.reddit.com/r/pics/comments/1r4qgsr/stephen_cheung_white_house_comm_director_who/o5devsg/
+
+15 years ago. Year 2011. Language has changed since 15 years ago is what this Reddit commenting has drawn attention to.
+
+* October 20, 2011. https://www.lrb.co.uk/the-paper/v33/n20/peter-pomerantsev/putin-s-rasputin "the stage is constantly changing: the country is a dictatorship in the morning, a democracy at lunch, an oligarchy by suppertime, while, backstage, oil companies are expropriated, journalists killed, billions siphoned away. **Surkov is at the centre of the show**, sponsoring nationalist skinheads one moment, backing human rights groups the next. It’s a strategy of power based on keeping any opposition there may be constantly confused, a ceaseless shape-shifting that is unstoppable because it’s indefinable. This fusion of despotism and postmodernism, in which no truth is certain, is reflected in the craze among the **Russian elite for neuro-linguistic programming**"
+
+And then the Internet Research Agency in Saint Petersburg started exporting it to the World Wide Web, including Reddit.
+
+* "Documents Show How Russia’s Troll Army Hit America. The adventures of Russian agents like The Ghost of Marius the Giraffe, Gay Turtle, and Ass — exposed for the first time." Max Seddon; June 2, 2014 - "The trolls appear to have taken pains to **learn the sites' different commenting systems**. A report on initial efforts **to post comments discusses the types of profanity and abuse** that are allowed on some sites, but not others."; "We are trying to change reality. Reality has indeed begun to change as a result of the appearance of our information in public" - **year 2014** https://www.buzzfeednews.com/article/maxseddon/documents-show-how-russias-troll-army-hit-america
