@@ -1377,3 +1377,9 @@ https://old.reddit.com/r/MurderedByWords/comments/1r4tlxt/sounds_about_right/o5e
 
 TRUMP_FANDOM to the mentally enslaved women who are Putin puppets / actors performing for the hate media cultists of Reddit.
 
+https://old.reddit.com/r/MurderedByWords/comments/1r4tlxt/sounds_about_right/o5e2cxb/
+
+1 month Reddit account. 2nd most popular, upvoted, comment.
+
+TRUMP_FANDOM loves naming the fiction acting band / group. Cult of hate-watching media, cult of high-speed information images on Reddit is constantly stimulated by the White House Reality performances. Reddit fandom does not want to organize and rescue these women from the cult, as Reddit audience can not face their own inner cult to the total mockery that Trump and Putin lead.
+
