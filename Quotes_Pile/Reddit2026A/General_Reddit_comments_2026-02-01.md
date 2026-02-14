@@ -421,3 +421,15 @@ https://old.reddit.com/r/interesting/comments/1r4dtft/finally_a_country_responds
 https://old.reddit.com/r/interesting/comments/1r4dtft/finally_a_country_responds_to_a_tech_giant_in_the/o5badrx/
 
 Given the Epstein billionaire power brokering of manipulating women as a means to have access to the Epstein finance and technology development markets... this whole topic needs to be more in the open. Elon Musk is basically a professional baby-daddy who wants to repopulate the Earth... https://www.vanityfair.com/news/story/elon-musks-children-ashley-st-clair "Elon Musk’s Breeding Spree Is So Much Wilder Than You Thought"- I mean, owner of Twitter - you can not be much more high-profile as a role model for young boys who are attracted to rockets and film star and sports star celebrities on Twitter.
+
+https://old.reddit.com/r/interesting/comments/1r4dtft/finally_a_country_responds_to_a_tech_giant_in_the/o5bavoe/
+
+To me, these discussions I find it impossible to ignore how many parents are feeding their 10, 11, 12 year old children Fox News, Newsmax, and other billionaire-worship indoctrination. Wealth televangelism media systems. People do not understand Neil Postman and Marshall McLuhan media ecology. People do not have education in comparative mythology. The cults of Putin, Elon Musk and Donald Trump are very real and raging away as people worship billionaire media systems. These are extremely well financed operations! The biggest advertising and marketing agencies in the world are producing and promoting films like "Melania" 2026 to children as indoctrination. 
+
+People can not face up that the { Upanishads, Bible, Torah, Quran, Book of Mormon, L Ron Hubbard } are all science fiction storytelling. The Bible storybook is 2,000 years old and people still can't find verse "1 John 4:20" and grasp that God is a metaphor, fiction! Hamlet's ghost is fiction. Parents are handing their children over to Truth Social fiction, Russia's Internet Research Agency use of monomyth fiction patterns from The Bible / Quran / Torah.
+
+James Joyce has been in our public library long enough for us to "Wake" to "Finnegans Wake", Woke. MEDIA_WOKE to widespread cults. Putin and Trump are using fiction to run our society like a king and queen claims God endorses their bloodlines. RFK Jr is running our disease control systems (CDC), encouraging anti-science mythological thinking. Fiction storytelling cults. Cults of attractive fiction. Billionaires are leading and creating cults.
+
+* “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.”
+― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. Swat Valley Pakistani stories. Published October 8, 2013.
+
