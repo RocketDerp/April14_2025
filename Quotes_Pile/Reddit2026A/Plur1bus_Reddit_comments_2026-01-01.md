@@ -2479,3 +2479,8 @@ https://old.reddit.com/r/confidentlyincorrect/comments/1r435tk/we_the_people/o58
 https://old.reddit.com/r/confidentlyincorrect/comments/1r435tk/we_the_people/o58uezy/
 
 WOKE_TO_WHAT ? Exactly? This is why I keep emphasizing over and over Minute 22 of Episode One of PLUR1BUS Apple TV+ show... WOKE TO WHAT? WAKE TO WHAT? Media ecology. "Finnegans Wake is the greatest guidebook to media study ever fashioned by man." - Marshall McLuhan, Newsweek Magazine, page 56, February 28, 1966
+
+https://old.reddit.com/r/confidentlyincorrect/comments/1r435tk/we_the_people/o58u8m1/
+
+FAITH_IN_HATE anti-rescue. Followers of **Donald Trump's leadership** of hate.
+
