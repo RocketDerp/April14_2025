@@ -387,3 +387,5 @@ https://old.reddit.com/r/Epstein/comments/1r4wsre/please_lets_not_forget_naomi_c
 
 https://old.reddit.com/r/Epstein/comments/1r4wsre/please_lets_not_forget_naomi_campbell/o5eyby5/
 
+https://old.reddit.com/r/worldnews/comments/1r54lz1/we_are_f_10_ukrainians_with_drones_wipe_out_two/o5gcxys/
+
