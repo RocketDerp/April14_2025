@@ -553,3 +553,6 @@ TECH_LUST_TECH_LOVERS love for truck machine, love for the weapon system machine
 
 https://old.reddit.com/r/EngineeringPorn/comments/1r57xp4/comparison_of_fixing_nuts/o5hbtx4/
 
+https://old.reddit.com/r/AmIOverreacting/comments/1r5fo45/am_i_overreacting_new_boyfriend_was_weirdly/o5idox3/
+
+OPERA_A Lyrics: "If your vagina lands in prison, then the whole world's going to listen." "Don't play stupid, don't play dumb". https://youtu.be/Bp-KeVBNz0A
