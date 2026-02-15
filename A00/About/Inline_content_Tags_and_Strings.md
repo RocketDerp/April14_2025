@@ -59,6 +59,7 @@ ANTICS_POLITICS
 COMPREHENDING_UNDERSTANDING   
 MIND_BLOWN_BY   
 NOT_GOOD_ENOUGH { Jen Senko, Dr. Bandy X Lee, Malala, Bernie Standers, MLK Jr, Neil Postman }   
+TECH_LUST_TECH_LOVERS    
 
 
 
