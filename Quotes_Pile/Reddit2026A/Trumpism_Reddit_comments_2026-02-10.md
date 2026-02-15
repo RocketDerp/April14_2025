@@ -1621,3 +1621,15 @@ https://old.reddit.com/r/politics/comments/1r56lei/kristi_noem_says_she_will_ens
 
 20 day Reddit account. SATIRE_SARCASM_WASHING
 
+https://old.reddit.com/r/goodnews/comments/1r52kpr/trump_implicated_like_never_before_as_new_epstein/o5fznbx/
+
+HATE_HARDER messages. Anything on Reddit to promote violence. Anti-intellectual. Always avoiding nonfiction cult deprogramming and remedial morality teaching.
+
+https://old.reddit.com/r/goodnews/comments/1r52kpr/trump_implicated_like_never_before_as_new_epstein/o5ghyh7/
+
+TRUMP_FANDOM parroting the MAGA talking points on Reddit cloud computing media systems. 
+
+https://old.reddit.com/r/goodnews/comments/1r52kpr/trump_implicated_like_never_before_as_new_epstein/o5g5u8y/
+
+At least a few people BEYOND_DENIAL who recognize Trump is not lazy, Trump works incredibly hard for an age 79 man. The leadership of hate that so many follow. The leadership of mocking that so many follow. The celebrity content / celebrity influencer that so many on Reddit worship.
+
