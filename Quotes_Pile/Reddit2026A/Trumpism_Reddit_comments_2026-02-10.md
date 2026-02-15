@@ -1469,3 +1469,13 @@ Posting and comment "cult", "cults". But people can't describe media cults, cont
 https://old.reddit.com/r/PoliticalHumor/comments/1r4wyqi/kristis_comfort_blanket_was_found/o5ewtr2/
 
 Reddit is a billionaire fandom, media cultists. Reddit end-user cultists will tolerate any abuse and Trumpism if media systems keep producing stimulating images. There is no Internet protest / Internet uprising because the cult of images and memes and low-effort comment content is what Cambridge Analytica and the IRA programmed into minds. The Trump government / Kremlin system is prized as a constant source of entertainment. TRUMP_FANDOM 
+
+https://old.reddit.com/r/Epstein/comments/1r4wdjj/marjorie_taylor_greene_just_admitted_the_epstein/o5emseu/
+
+https://old.reddit.com/r/Epstein/comments/1r4wdjj/marjorie_taylor_greene_just_admitted_the_epstein/o5en0pn/
+
+"crazy". 
+
+https://old.reddit.com/r/Epstein/comments/1r4wdjj/marjorie_taylor_greene_just_admitted_the_epstein/o5eprj3/
+
+"I really can't understand this" COMPREHENDING_UNDERSTANDING People are not turning to nonfiction learning of cult behaviors and dangers. Dr. Bandy X Lee's compilation of 27 people for general public education is ignored since published October 3, 2017 describing the mental health crisis. Surkov won since March 2013.
