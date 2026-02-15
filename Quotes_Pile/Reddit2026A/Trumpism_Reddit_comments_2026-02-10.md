@@ -1663,3 +1663,11 @@ COMPREHENDING_UNDERSTANDING You want to understand Trumpism, study this line of 
 
 NOT_GOOD_ENOUGH Carl Sagan's 1990's books and writings should be repeated over and over in USA this year, but people would rather create low-effort comments and read them than in anti-intellectual favoring of "engagement" to Joe Rogan, engagement media to Donald Trump, engagement media to celebrity information than cite Carl Sagan's reformations of thinking and teaching values. People have learned zero about the details and techniques of online information warfare and manipulation since the February 20,  2014 start of the Ukraine war. How Putin has put Trump in the center of all media focus and media content because of exploiting these audience attitudes and fandom behaviors. What Putin has been doing to Ukraine children is horrific! year after year, people do not stand up for nonfiction education and teaching. https://en.wikipedia.org/wiki/Child_abductions_in_the_Russo-Ukrainian_war
 
+https://old.reddit.com/r/news/comments/1r58v7n/epstein_survivor_says_women_who_recruited_her/o5h67j6/
+
+7 month Reddit account.
+
+I've named two women that I witness get very little support. "The Little Gal" that people do not stand up for on social media. SOCIAL_MEDIA_DID_NOT name-drop Dr. Bandy X Lee and Jen Senko. Epstein got name-dropped all over Reddit commenting in year 2025. But there is no assertion of goodness. Even well-known Dr. Martin Luther King Jr's quotes are not repeated in the face of Epstein.
+
+* "I never intend to adjust myself to economic conditions that will take necessities from the many to give luxuries to the few." - "Social Justice and the Emerging New Age" address at the Herman W. Read Fieldhouse, Western Michigan University (18 December 1963). Dr. Martin Luther King Jr.
+
