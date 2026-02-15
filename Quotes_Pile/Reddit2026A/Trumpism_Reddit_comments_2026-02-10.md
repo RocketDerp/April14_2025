@@ -1769,3 +1769,8 @@ https://old.reddit.com/r/politics/comments/1r5hraz/ghislaine_maxwell_appears_to_
 https://old.reddit.com/r/videos/comments/1r5cosj/chatgpts_president_is_trumps_biggest_donor/o5ht27b/
 
 Self-centered egoism, only concerned about personal self. Top-uvoted comment. Also "LOL" mocking, amused at what Rupert Murdoch and other billionaires have done in society. CHUCKLEHEAD_NATION Hyper-competitive Reddit users who think it is entertaining, amusing, funny to watch others suffer at hands of predatory billionaires that have converged on Trump as leader. 
+
+https://old.reddit.com/r/videos/comments/1r5cosj/chatgpts_president_is_trumps_biggest_donor/o5il2n2/
+
+Billionaires are wrecking society and Reddit community comments on every billionaire media domination (including Reddit itself under the thumb of non-identity influences) **to normalize** it. SATIRE_SARCASM_WASHING
+
