@@ -60,7 +60,7 @@ COMPREHENDING_UNDERSTANDING
 MIND_BLOWN_BY   
 NOT_GOOD_ENOUGH { Jen Senko, Dr. Bandy X Lee, Malala, Bernie Standers, MLK Jr, Neil Postman }   
 TECH_LUST_TECH_LOVERS    
-
+GIVE_UP_SURRENDER   
 
 
 Topic_tags: media_ecology, media_deconstruction, media_environment, media_conventions    
