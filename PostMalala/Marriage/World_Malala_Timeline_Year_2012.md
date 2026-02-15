@@ -107,6 +107,12 @@ https://autistics.life/tags/NotGoodEnoughMalala4
 
 &nbsp;
 
+https://midwest.social/post/43495283   
+
+* "They think that God is a tiny, little conservative being who would point guns at people's heads just for going to school." - July 12, 2013. ملاله یوسفزۍ
+
+&nbsp;
+
 &nbsp;
 
 &nbsp;
