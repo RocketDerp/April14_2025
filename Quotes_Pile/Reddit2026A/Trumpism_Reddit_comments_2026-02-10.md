@@ -1645,3 +1645,13 @@ https://old.reddit.com/r/goodnews/comments/1r52kpr/trump_implicated_like_never_b
 
 And Reddit cult, cult platform of Reddit, community members are Reddit - are hell-bent on enabling Trump and other billionaires by not actually standing up and calling for everyone to follow Dr. Bandy X Lee's nonfiction leadership on mental health. The cult of content *about Trump* can not face cult deprogramming and mob mentality public education and teaching.
 
+https://old.reddit.com/r/news/comments/1r58v7n/epstein_survivor_says_women_who_recruited_her/o5i16jm/
+
+I worked on staff in 1997 for the Microsoft Board of Directors private owner content, Seattle Seahawks owner private content, Portland Trailblazers owner private content. Extreme vetting was no joke. Thee richest bachelor on planet Earth I had Edward Snowden level access to private messages. 1998 was the year wealth doubled in a single fucking year. ANY NUMBER of other people from connections could have gotten my job, but the rivalry and bad blood is probably a factor in how I got hired. https://www.LAtimes.com/archives/blogs/technology-blog/story/2011-03-30/microsoft-co-founder-paul-allen-says-bill-gates-schemed-to-dilute-his-share
+
+https://old.reddit.com/r/news/comments/1r58v7n/epstein_survivor_says_women_who_recruited_her/o5hg3z3/
+
+LAUGHTER_THE_BEST_MINDFUCK for the posting.
+
+The famous get more famous. The infamous get more famous. NOT_GOOD_ENOUGH Jen Senko and Dr. Bandy X Lee as leaders to take on the mental health and cult crisis in USA regarding worship of billionaires.
+
