@@ -511,3 +511,8 @@ https://old.reddit.com/r/worldnews/comments/1r53rm5/air_india_flight_171_crash_p
 
 TECH_LUST_TECH_LOVERS who hate human beings and want to die with their love, machines.
 
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1r54j4f/barack_obama_has_confirmed_that_aliens_are_real/o5gx7gr/
+
+Reddit is full of science fiction cultists. Cults of science fiction media who mock cults of OTHER competing science fiction stories like The Bible (it is Sunday morning as I write this, an alien sky-daddy story cult of how Father of Jesus got a virgin pregnant science fiction story). It is cult vs. cult mocking and insulting. A long Levant science fiction patter of clergy mocking clergy of competing storybooks. Mosque mocking Synagogue, Church mocking Mosque science fiction venue, etc. Reddit venue mocking Church venue...
+
+* “Do you believe in UFOs?’ I’m always struck by how the question is phrased, the suggestion that this is **a matter of belief and not of evidence**. I’m almost never asked, ‘How good is the evidence that UFOs are alien spaceships?” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark. Year 1995.
