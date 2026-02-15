@@ -82,8 +82,8 @@ Sunday, February 15, 2026
 Note the Sunday Church images in the music video opening   
 Church bell ring opening   
 
-HASHTAGS: #Protest #PutYourPussyOnADiet #PussyOnDiet 
-HASHTAGS: #Paparazzi #PaparazziRiot #InternetRiot #FWakeRiot 
+HASHTAGS: #Protest #PutYourPussyOnADiet #PussyOnDiet   
+HASHTAGS: #Paparazzi #PaparazziRiot #InternetRiot #FWakeRiot   
 
 1. "Does your vagina have a brand? Let your vagina start a band. If your vagina lands in prison. Then the world is gonna listen"
 
