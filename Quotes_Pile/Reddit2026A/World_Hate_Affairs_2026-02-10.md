@@ -424,4 +424,8 @@ Reddit users should call for Reddit corporation to return Reddit to open source 
 
 https://old.reddit.com/r/europe/comments/1r5ga51/outgoing_dutch_defense_secretary_tuinman_if_the/o5imvxu/
 
-Remote operated drones are a far better investment for the future than piloted aircraft. The cost of fighter jets with men inside is extremely high.
+Remote operated drones are a far better investment for the future than piloted aircraft. The cost of fighter jets with men inside is extremely high. China and other manufacturing societies have a real chance to leapfrog way beyond what "Top Gun" promotes, and video game training has proven so much success for Ukraine and Russia.
+
+https://old.reddit.com/r/europe/comments/1r5ga51/outgoing_dutch_defense_secretary_tuinman_if_the/o5ikb0r/
+
+4 month Reddit account.
