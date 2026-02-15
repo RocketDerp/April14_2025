@@ -1733,3 +1733,7 @@ The Reddit hive mind cult is very avoidant of comparative mythology learning and
 https://old.reddit.com/r/news/comments/1r58v7n/epstein_survivor_says_women_who_recruited_her/o5h9clq/
 
 OPERA_A Lyrics: "And as the *freedom bell* rings! They start to sing: Reveal yourself, reveal yourself... The world that you created is not mightier than our means to remake it"... "Escape this childhood"... "The higher we go, climbing up to heaven or a hell or maybe something inconceivable... It used to be unspeakable!" https://www.youtube.com/watch?v=cfm4L0TGDrw 347,129 views April 16, 2020
+
+https://old.reddit.com/r/clevercomebacks/comments/1r5fh17/ai_slop_in_the_big_26/o5izy08/
+
+Posting itself has an image with a comment "It's so funny"... CHUCKLEHEAD_NATION that billionaires are creating content images for Reddit fandom. TRUMP_FANDOM Trump family images. The more fake and fiction-based, the more Reddit cult flocks to every image of Trump family. Laughing away in the Reddit audience at the one AWESOME TALENT AND GIFT the Trump Family has - Reality TV "The Apprentice" skills and experience. Reddit cult members, Reddit account holders, can not grasp they are in a cult of high-speed image delivery of Trump. LAUGHTER_THE_BEST_MINDFUCK Neil Postman's 1985 nonfiction book "Amusing Ourselves To Death" https://en.wikipedia.org/wiki/Amusing_Ourselves_to_Death goes into detail about Reddit fandom behaviors and mental outcomes of USA.
