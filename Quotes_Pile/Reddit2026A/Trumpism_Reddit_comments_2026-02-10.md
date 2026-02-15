@@ -1597,3 +1597,27 @@ https://old.reddit.com/r/Fauxmoi/comments/1r54ssz/fox_news_is_just_pro_epstein_n
 
 "cult". Reddit is a cult of mocking and Reddit community is a cult of avoiding nonfiction serious learning for adults. Fox News media cult in competition with Reddit media cult. Both avoiding nonfiction books on paper. Neil Postman was correct in his 1985 book "Amusing Ourselves to Death" about Reddit and Fox News.
 
+https://old.reddit.com/r/politics/comments/1r56lei/kristi_noem_says_she_will_ensure_the_right_people/o5gpn11/
+
+Top-upvoted comment. Simplistic Twitter-length Tweet-thinking mindsets. DENIAL_ABOUNDS avoidance of corrupted hearts and minds in population. Upvoting shit-commenting voting up shit-postings every hour of every day all across every media system and acting as if the ADULT EDUCATION crisis is not the core problem. FAKE_RESISTANCE 
+
+https://old.reddit.com/r/politics/comments/1r56lei/kristi_noem_says_she_will_ensure_the_right_people/o5gpvbq/
+
+TRUMP_FANDOM on Reddit translating / rephrasing. Very popular MAGA cult behavior, Trump cult behavior on Reddit. Instead of promoting Dr. Bandy X Lee and her compilation of 27 mental health experts, this type of Reddit community cult behavior of media cultist rephrasing media. No call for intellectual arms, no call for cult deprogramming, as Reddit fandom to White House is just a cult of ignorance itself.
+
+https://old.reddit.com/r/politics/comments/1r56lei/kristi_noem_says_she_will_ensure_the_right_people/o5gpb3a/
+
+IGNORANCE_CELEBRATIONS Reddit community has not been hiding the { joke-washing, meme-washing, jumor-washing, comedy-washing, sane-washing, "LOL cow milking", hyper normalizing, avoidance of non-fiction serious important topics } all along. Surkov won since March 2013. People celebrate the ignorance as something to comment about, commenting celebration to avoid all getting on the same page and being serious about Dr. Bandy X Lee's leadership since year 2017.
+
+https://old.reddit.com/r/politics/comments/1r56lei/kristi_noem_says_she_will_ensure_the_right_people/o5gpjlz/
+
+Reddit community is bothering to make tiny-short commenting messages that do anything and everything to avoid turning to nonfiction serious books to educate adults out of the cults.
+
+https://old.reddit.com/r/politics/comments/1r56lei/kristi_noem_says_she_will_ensure_the_right_people/o5gqdyq/
+
+TRUMP_FANDOM loves it that media recording exists. Media cultists on Reddit love media. Trump constantly stimulates the fandom on Reddit with more media content than any other leader in human history.
+
+https://old.reddit.com/r/politics/comments/1r56lei/kristi_noem_says_she_will_ensure_the_right_people/o5gqc2h/
+
+20 day Reddit account. SATIRE_SARCASM_WASHING
+
