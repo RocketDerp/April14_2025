@@ -505,3 +505,5 @@ CHOICE_MARRIAGE_HONESTY  communicating with partners and mates.  RELIGION_CULTS_
 
 https://old.reddit.com/r/Silksong/comments/1r4yawd/e1331_has_deleted_his_account/o5f4083/
 
+https://old.reddit.com/r/Silksong/comments/1r4yawd/e1331_has_deleted_his_account/o5f42wr/
+
