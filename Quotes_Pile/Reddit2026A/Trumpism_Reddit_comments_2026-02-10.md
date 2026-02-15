@@ -1487,3 +1487,7 @@ TRUMP_FANDOM SUPER_HYPER_NORMAL CHUCKLEHEAD_NATION
 https://old.reddit.com/r/PublicFreakout/comments/1r50fq8/argentinians_are_not_happy_about_trumps_puppet/o5fj6nz/
 
 Reddit is a fandom of stupid media and stupid leaders. Reddit society is not organizing nonfiction education and teaching to combat stupid. Stupid is just acknowledged and the cure to stupid, adult education, is not seen as something We The People on Reddit need to be doing. CONDITIONED_OPPOSITION 
+
+https://old.reddit.com/r/PublicFreakout/comments/1r50fq8/argentinians_are_not_happy_about_trumps_puppet/o5fjbkc/
+
+SIMULATION_SIMULACRA
