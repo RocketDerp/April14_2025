@@ -413,3 +413,12 @@ https://old.reddit.com/r/SipsTea/comments/1r5euwi/china_reaffirms_death_penalty_
 Important topics. Why people need to stop flocking to entertaining fiction storytellers and face the addiction to fiction problems, the cult of fiction on Reddit, cult of Trump on Reddit, cult of Fox News HDTV fiction, etc.
 
 * "Finding the occasional **straw of truth awash in a great ocean of confusion and bamboozle** requires vigilance, dedication and courage. But if we don’t practice these tough habits of thought, we cannot hope to solve the truly serious problems that face us and we risk becoming **a nation of suckers**" ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995, page 38
+
+https://old.reddit.com/r/europe/comments/1r5ga51/outgoing_dutch_defense_secretary_tuinman_if_the/o5ip4i6/
+
+NATO is wrecked by Putin since March 2013. Surkov won.
+
+https://old.reddit.com/r/europe/comments/1r5ga51/outgoing_dutch_defense_secretary_tuinman_if_the/o5ip341/
+
+Reddit users should call for Reddit corporation to return Reddit to open source like it was at the start of Reddit website. There should be independent owner operators and federation backend peering and Usenet protocol peerings, a Usenet The Next Generation. And add subreddit.subredditsub.name conventions instead of one long flat list of subreddit names.
+
