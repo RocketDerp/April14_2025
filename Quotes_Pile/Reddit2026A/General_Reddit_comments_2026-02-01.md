@@ -526,3 +526,9 @@ People of the SAME RACE can't handle the slightest variation in language express
 People in THE SAME family watch Fox News HDTV fiction and can't communicate with other family members who watch MSNBC! People who read the EXACT SAME BOOK, The science fiction Quran stories from Mohammad, can't get along and fight over Shia vs. Sunni interpretations. Same skin color, same race, same city!
 
 * "Do You Speak Fox? How Donald Trump’s favorite news source became a language. By Megan Garber. September 16, 2020", "You might have come across the articles (“I Lost My Dad to Fox News” / “Lost Someone to Fox News?” / “‘Fox News Brain’: Meet the Families Torn Apart by Toxic Cable News”), or the Reddit threads, or the support groups on Facebook, as people have sought ways to mourn loved ones who are still alive. The discussions **consider a loss that Americans don’t have good language for**, in part because the loss itself is a matter of language: They describe what it’s like to find yourself suddenly unable to speak with people you’ve known your whole life. They acknowledge how easily a national crisis can become a personal one. At this point, some Americans speak English; others speak Fox." https://www.theAtlantic.com/culture/archive/2020/09/fox-news-trump-language-stelter-hoax/616309/
+
+https://old.reddit.com/r/pcmasterrace/comments/1r557x7/western_digital_runs_out_of_hdd_capacity_ceo_says/o5ghwhw/
+
+https://old.reddit.com/r/Weird/comments/1r54smt/angeline_jolie_and_her_brother_james_haven_had_a/o5gg4px/
+
+Reddit fandoms can't grasp why certain people are so attractive. Why entire population behaves like certain strangers are best friends when all they have ever seen is images or at venues. Worship of celebrity. People can't understand their attraction to Trump on the front page of /r/All every hour of every day since June 16, 2015. Celebrity cults.
