@@ -1514,3 +1514,22 @@ https://old.reddit.com/r/Fauxmoi/comments/1r54ssz/fox_news_is_just_pro_epstein_n
 
 1 month Reddit account. The entire USA is sick. People should have been spending all their available time, free time, spare time **commenting on social media with nonfiction quotes** from Jen Senko about brainwashing, Dr. Bandy X Lee about mental health and Malala about girls. Instead, Reddit is a sick diseased mindset joke-washing meme-washing platform. NOT_GOOD_ENOUGH
 
+https://old.reddit.com/r/Fauxmoi/comments/1r54ssz/fox_news_is_just_pro_epstein_now/o5gi1d9/
+
+GULLIBLE_FANDOM
+
+https://old.reddit.com/r/Fauxmoi/comments/1r54ssz/fox_news_is_just_pro_epstein_now/o5gdxfa/
+
+MIND_BLOWN_BY Fox News. Meme media cultists on Reddit are blind to how billionaires systemically use media, including funding Reddit with media marketing and sponsorships.
+
+https://old.reddit.com/r/Fauxmoi/comments/1r54ssz/fox_news_is_just_pro_epstein_now/o5ggli9/
+
+2 month Reddit account.
+
+https://old.reddit.com/r/Fauxmoi/comments/1r54ssz/fox_news_is_just_pro_epstein_now/o5gejic/
+
+22 day Reddit account. 
+
+https://old.reddit.com/r/Fauxmoi/comments/1r54ssz/fox_news_is_just_pro_epstein_now/o5go7t0/
+
+TECH_LUST_TECH_LOVERS messaging for Reddit video game tech lovers dehumanize and do not grasp their own compulsive dehumanization via media systems of Reddit TCP/IP media and Fox News HDTV media. HATE_HARDER values.
