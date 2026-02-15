@@ -62,6 +62,7 @@ NOT_GOOD_ENOUGH { Jen Senko, Dr. Bandy X Lee, Malala, Bernie Standers, MLK Jr, N
 TECH_LUST_TECH_LOVERS    
 GIVE_UP_SURRENDER   
 MAXIMUM_PUTINIZATION   
+SENSATIONAL_CONTENT   
 
 
 Topic_tags: media_ecology, media_deconstruction, media_environment, media_conventions    
