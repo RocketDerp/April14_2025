@@ -1742,3 +1742,6 @@ https://old.reddit.com/r/SipsTea/comments/1r5euwi/china_reaffirms_death_penalty_
 
 1 year Reddit account. The Reddit EPSTEIN_FANDOM commenting community does not desire to protect and defend young girls from predatory old men. Anti-Malala machine lovers (tech addicts, meme-tech lovers) of Reddit are only concerned to repeat and parrot White House propaganda / MAGA values. None of this abuse of young girls is funny in any way. FAKE_RESISTANCE AMUSING_ZOMBIES The USA nation, We The People, have sold out the soul of the nation to comedy super-star Donald Trump's leadership with amusement and jokes. This posting is China calling that out the soulless mockery mindsets, Total Mockery USA, that Reddit cult fandom has developed with IRA infiltration. SATIRE_SARCASM_WASHING
 
+https://old.reddit.com/r/politics/comments/1r5hraz/ghislaine_maxwell_appears_to_have_lied_on_her/o5iv3io/
+
+How to lead billionaires and those who can not resist compulsively following celebrity. Reddit audience itself is a cult hangout, a cult venue, of people strongly attracted to liars as leaders. DECEPTION_LEADERSHIP LIARS_AS_LEADERS
