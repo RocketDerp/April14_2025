@@ -389,3 +389,15 @@ https://old.reddit.com/r/Epstein/comments/1r4wsre/please_lets_not_forget_naomi_c
 
 https://old.reddit.com/r/worldnews/comments/1r54lz1/we_are_f_10_ukrainians_with_drones_wipe_out_two/o5gcxys/
 
+https://old.reddit.com/r/AmIOverreacting/comments/1r5fo45/am_i_overreacting_new_boyfriend_was_weirdly/o5idpj6/
+
+Relative to the posting itself: World Sex Affairs. They are HAVING SEXUAL INTERCOURSE, he has put his penis into her vagina, and he is afraid of the knowledge of good and evil about fluids out of the vagina! I have witnessed this in my life again and again, people who can not deal with INFORMATION about bodily function in their intimate relationships. They can have intercourse sex, but are unable to recognize and openly deal with information and dialog! INTERCOURSE_DIALOG these inward ego barriers of compassion are far more a crisis than "getting laid" with people. 
+
+I think billionaires SEX_SELLS_SEX_LEADERS have programmed so many adult men into hate of women. Rupert Murdoch, Paul Allen, NFL brain-damaging football **sports team** ultra-wealthy billionaire owners, NBA sports team owners, Elon Musk and his "breeding" tech-love agenda, Alex Jones, Donald Trump, Joe Rogan, ON AND ON the programming people "sex sells" controlling of women. Elon Musk: https://www.vanityfair.com/news/story/elon-musks-children-ashley-st-clair
+
+https://old.reddit.com/r/AmIOverreacting/comments/1r5fo45/am_i_overreacting_new_boyfriend_was_weirdly/o5idu8w/
+
+Having emotional reactions isn't nearly the concern as in how he used dialog. INTERCOURSE_DIALOG - this couple have joined bodies in intercourse sex, but the intercourse dialog is so fucked-up in the world. This is why "Daddy Issues" of so many men has wrecked the world. 
+
+* "The extremists are afraid of books and pens. **The power of education frightens them**. They are afraid of women. The power of **the voice of women frightens them**. This is why they killed 14 innocent students in the recent attack in Quetta. And that is why they kill female teachers. That is why they are blasting schools every day because they were and they are afraid of change and equality that we will bring to our society. And I remember that there was a boy in our school who was asked by a journalist why are the Taliban against education? He answered very simply by pointing to his book, he said, "a Talib doesn't know what is written inside this book." They **think that God is a tiny, little conservative being who would point guns at people's heads** just for going to school." - July 12, 2013 https://www.theGuardian.com/commentisfree/2013/jul/12/malala-yousafzai-united-nations-education-speech-text
+
