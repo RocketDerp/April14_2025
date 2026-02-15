@@ -1564,3 +1564,6 @@ https://old.reddit.com/r/Fauxmoi/comments/1r54ssz/fox_news_is_just_pro_epstein_n
 
 SUPER_HYPER_NORMAL Reddit comment itself is normalize it. No call to resist, just commenting away as usual on Reddit. No call for an Internet uprising, no call for REDDIT_BLACKOUT 
 
+https://old.reddit.com/r/Fauxmoi/comments/1r54ssz/fox_news_is_just_pro_epstein_now/o5ght1f/
+
+"insane". DENIAL_ABOUNDS MIND_BLOWN_BY reality and denial of Russian information media warfare. Never studied the WAR_AGAINST_REALITY that Kremlin has been waging upon Reddit users and USA / NATO since March of year 2013.
