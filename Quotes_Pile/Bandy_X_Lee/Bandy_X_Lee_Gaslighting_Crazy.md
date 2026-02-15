@@ -1,4 +1,4 @@
-# Bandy X Lee: *Gaslighitng, Crazy*
+# Bandy X Lee: *Gaslighting, Crazy*
 
 Gaslighting
 

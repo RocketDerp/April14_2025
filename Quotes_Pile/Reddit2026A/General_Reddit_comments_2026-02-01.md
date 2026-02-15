@@ -457,3 +457,106 @@ Not just voters, not just Republicans, but EVERY PERSON (even those who are age 
 
 * "the public trust is also violated if the profession fails in its duty to alert the public when a person who holds the power of life and death over us all shows signs of clear, dangerous mental impairment. We should pause if professionals are asked to remain silent when they have seen enough evidence to sound an alarm in every other situation. When it comes to dangerousness, should not the president of a democracy, as First Citizen, be subject to the same standards of practice as the rest of the citizenry?"
 ― Bandy X. Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. Published October 3, 2017. PROLOGUE. Page 5.](https://books.google.com/books?id=g0c4DwAAQBAJ&pg=PA5&dq=dangerousness+due+to+mental+disorder+can+become+apparent+without+a+full+diagnostic+interview+and+can+be+detected+from+a+distance&hl=en&newbks=1&newbks_redir=1&sa=X)
+
+https://old.reddit.com/r/isthisAI/comments/1r4r9zj/woman_freeing_a_mountain_lion_from_a_trap_while/o5dpinm/
+
+https://old.reddit.com/r/antimeme/comments/1r4q7od/full_course_story_apology_mod_election/o5daul0/
+
+https://old.reddit.com/r/antimeme/comments/1r4q7od/full_course_story_apology_mod_election/o5daw48/
+
+The person says they have autism. More concerning is the community behavior... mental health crisis of MAGA takeover of the USA is a dangerous threat to the whole world and people are spending free time and spare time doing everything to avoid nonfiction serious discussions of the topic.
+
+* "the public trust is also violated if the profession fails in its duty to alert the public when a person who holds the power of life and death over us all shows signs of clear, dangerous mental impairment. We should pause if professionals are asked to remain silent when they have seen enough evidence to sound an alarm in every other situation. When it comes to dangerousness, should not the president of a democracy, as First Citizen, be subject to the same standards of practice as the rest of the citizenry?"
+― Bandy X. Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. Published October 3, 2017. PROLOGUE. Page 5.](https://books.google.com/books?id=g0c4DwAAQBAJ&pg=PA5&dq=dangerousness+due+to+mental+disorder+can+become+apparent+without+a+full+diagnostic+interview+and+can+be+detected+from+a+distance&hl=en&newbks=1&newbks_redir=1&sa=X)
+
+https://archive.is/o/Qobgd/https://www.reddit.com/r/antimeme2/comments/1r1orz0/rcoursemedicore7998_is_an_indian_boy_proof/o4r275i/
+
+BABEL_TOWER 
+
+https://archive.is/o/Qobgd/https://www.reddit.com/r/antimeme2/comments/1r1orz0/rcoursemedicore7998_is_an_indian_boy_proof/o4r46t3/
+
+https://old.reddit.com/r/antimeme/comments/1r4q7od/full_course_story_apology_mod_election/o5dk9la/
+
+MAGA_VALUES **To understand the rise of Trumpism values / MAGA values USA, study these machine thinking behaviors, machine mindsets**. Deportation / ICE deporting people aggressively. July 6, 2011 when Trump started discovering the power Twitter machine logic had over the population. https://theoutline.com/post/2445/trump-s-first-real-tweet-was-on-july-6-2011 Trump applied his social engineering casino experience of media environments. High speed information into intimate touch-device iPhone audiences. A rising star / media icon / attractive nuisance that Trump became for Putin to cultivate as a symbol of hate leadership to lead NATO and USA into self-harm mindsets. November 8, 2013 sex show in Moscow, Russia was a key media experience / interview training / review session before the December 2013 announcement to the world of of "Conservative International" political movement lead by Putin, Trump, and Surkov students.
+
+Understand this desire to PURGE art work for confronting power and egoism of leaders. This is a symptom of what has rising to the top of values in society. ICE deport, block-happy, book-burning (Reddit content burning), MAGA values USA. People are not resisting these thinking systems that impact every hour of every day voting and downvoting on social machine systems. People are fixated on ballot voting and not the mass dehumanization programming that the IRA has fed into USA society since March 2013.
+
+https://old.reddit.com/r/antimeme/comments/1r4q7od/full_course_story_apology_mod_election/o5dk5cp/
+
+https://old.reddit.com/r/antimeme/comments/1r4q7od/full_course_story_apology_mod_election/o5df0fx/
+
+SUPER_HYPER_NORMAL "normal" behavior is people following Donald Trump images on /r/All every hour of every day since June 16, 2015. "normal" is hate-based leadership with hundreds of millions of followers. "normal" behavior is parents who have fed Fox News into their children at age 10 and feed Donald Trump as a role model of mature responsible successful leaders... without being alarmed, disturbed, calling for Dr. Bandy X Lee's assembly of 27 mental health professionals in a nonfiction book to be steady topic of everyone on the same page since October 3, 2017 publication. "normal" is the richest people in the entire world gaslighting poor and poorly educated rural with the most powerful media systems ever created by humanity.
+
+QUOTE FROM NONFICTION BOOK FOLLOWS:
+
+Often, people with NPD resort to an insidious strategy called gaslighting — a term drawn from the 1938 play about a man who persuaded his wife she was crazy by, among other means, dimming the gaslights and claiming he’d never touched them. As people with NPD become increasingly psychotic, they’re determined to **convince others that they’re the “crazy” ones who can’t see reality** for what it is. Gaslighting reassures pathological narcissists that their own grip on reality remains firm because they can’t bear to acknowledge their sanity is slipping away. We might ask if we’re seeing this now, as Trump and his closest advisers appear on TV claiming he didn’t make statements that journalists often simply play back — or if **it’s a tweet**, flash an image — to prove that he did indeed say what he said.
+
+Lately, these incidents have become commonplace. Many in the press and public at large now refer to them as alternative facts, alluding to Trump spokesperson Kellyanne Conway’s now infamous “explanation” for why Sean Spicer had berated the press for misreporting Trump’s inauguration size: “this was the largest audience to ever witness an inauguration, period, both in person and around the globe,” Spicer peevishly told a stunned press corps. This turned out to be patently false, though Conway defended the statement, saying Spicer had simply been providing “alternative facts.”
+
+Those who **embrace Trump’s reality**, where the mainstream media lies and remains “the enemy,” signify their support with red hats bearing the inscription MAGA (Make America Great Again). Those who believe what the news reports about Trump have donned the symbol of resistance — pink pussy hats, a reference to his now infamous hot mic comments about women, “I just grab ’em by the pussy…”
+
+That the country is currently split — and **our shared reality** with it — seems without question at this point.
+
+― Bandy X Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. October 3, 2017. Page 58.](https://books.google.com/books?id=pYaFDwAAQBAJ&pg=PA58&dq=insidious+strategy+called+gaslighting+%E2%80%94+a+term+drawn+from+the+1938+play+about+a+man+who+persuaded+his+wife+she+was+crazy+by&hl=en&newbks=1&newbks_redir=1&sa=X)
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1r4rxdb/peter/o5dpue1/
+
+CHOICE_MARRIAGE_HONESTY  communicating with partners and mates.  RELIGION_CULTS_MONOMYTH_PROGRAMMING many religions teach that masturbation and sexual fantasy is a "sin" against a God. Science fiction media cultists teach this as a manipulation technique to concentrate power and wealth over populations. Time-Proven system of mind exploitation. 
+
+https://old.reddit.com/r/Silksong/comments/1r4yawd/e1331_has_deleted_his_account/o5f4083/
+
+https://old.reddit.com/r/Silksong/comments/1r4yawd/e1331_has_deleted_his_account/o5f42wr/
+
+https://old.reddit.com/r/worldnews/comments/1r53rm5/air_india_flight_171_crash_pilot_deliberately_cut/o5gd4fp/
+
+TECH_LUST_TECH_LOVERS who hate human beings and want to die with their love, machines.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1r54j4f/barack_obama_has_confirmed_that_aliens_are_real/o5gx7gr/
+
+Reddit is full of science fiction cultists. Cults of science fiction media who mock cults of OTHER competing science fiction stories like The Bible (it is Sunday morning as I write this, an alien sky-daddy story cult of how Father of Jesus got a virgin pregnant science fiction story). It is cult vs. cult mocking and insulting. A long Levant science fiction patter of clergy mocking clergy of competing storybooks. Mosque mocking Synagogue, Church mocking Mosque science fiction venue, etc. Reddit venue mocking Church venue...
+
+* “Do you believe in UFOs?’ I’m always struck by how the question is phrased, the suggestion that this is **a matter of belief and not of evidence**. I’m almost never asked, ‘How good is the evidence that UFOs are alien spaceships?” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark. Year 1995.
+
+https://old.reddit.com/r/Fauxmoi/comments/1r55r0e/president_obama_about_aliens_in_a_new_interview/o5gmv4t/
+
+People of the SAME RACE can't handle the slightest variation in language expression and mental diversity. The Tower of Babel conflict metaphor is very real and serious. The same race of people fight over different favorite science fiction stories. Catholic vs. Protestant, Fox News fiction vs. Reddit fiction. Alternate universes, alternate alien, based on the media they consume.
+
+* “Today, reports of the day’s events are conveyed to the viewing public by way of **alternate universes**, The Fox News cable channel conveys its **version of reality**, while at the other end of the ideological spectrum MSNBC presents its version. They and their many counterparts on radio are more the result of an economic dynamic than a political one. Dispatching journalists into the field to gather information costs money; hiring a glib bloviator is relatively cheap, and inviting opinionated guests to vent on the air is entirely cost-free. It wouldn’t work if it weren’t popular, and audiences, it turns out, are endlessly absorbed by hearing amplified echoes of their own biases. It’s divisive and damaging to the healthy functioning of our political system, but it’s also indisputably inexpensive and, therefore, good business.” ― Ted Koppel. Lights Out: A Cyberattack, A Nation Unprepared, Surviving the Aftermath. October 27, 2015. Page 13.
+
+People in THE SAME family watch Fox News HDTV fiction and can't communicate with other family members who watch MSNBC! People who read the EXACT SAME BOOK, The science fiction Quran stories from Mohammad, can't get along and fight over Shia vs. Sunni interpretations. Same skin color, same race, same city!
+
+* "Do You Speak Fox? How Donald Trump’s favorite news source became a language. By Megan Garber. September 16, 2020", "You might have come across the articles (“I Lost My Dad to Fox News” / “Lost Someone to Fox News?” / “‘Fox News Brain’: Meet the Families Torn Apart by Toxic Cable News”), or the Reddit threads, or the support groups on Facebook, as people have sought ways to mourn loved ones who are still alive. The discussions **consider a loss that Americans don’t have good language for**, in part because the loss itself is a matter of language: They describe what it’s like to find yourself suddenly unable to speak with people you’ve known your whole life. They acknowledge how easily a national crisis can become a personal one. At this point, some Americans speak English; others speak Fox." https://www.theAtlantic.com/culture/archive/2020/09/fox-news-trump-language-stelter-hoax/616309/
+
+https://old.reddit.com/r/pcmasterrace/comments/1r557x7/western_digital_runs_out_of_hdd_capacity_ceo_says/o5ghwhw/
+
+https://old.reddit.com/r/Weird/comments/1r54smt/angeline_jolie_and_her_brother_james_haven_had_a/o5gg4px/
+
+Reddit fandoms can't grasp why certain people are so attractive. Why entire population behaves like certain strangers are best friends when all they have ever seen is images or at venues. Worship of celebrity. People can't understand their attraction to Trump on the front page of /r/All every hour of every day since June 16, 2015. Celebrity cults.
+
+https://old.reddit.com/r/confidentlyincorrect/comments/1r57epo/asking_someone_what_alternating_traffic_means/o5gvviw/
+
+SENSATIONAL_CONTENT
+
+https://old.reddit.com/r/confidentlyincorrect/comments/1r57epo/asking_someone_what_alternating_traffic_means/o5h37ia/
+
+https://old.reddit.com/r/confidentlyincorrect/comments/1r57epo/asking_someone_what_alternating_traffic_means/o5gujys/
+
+Competition. 
+
+OPERA_A Lyrics: "America spells competition, join us in our blind ambition. Get yourself a **brand new motor car**. Someday soon we'll stop to ponder what on earth's this spell we're under... We made the grade and still we wonder who the hell we are..." https://www.youtube.com/watch?v=8U1lDNrxp04 1,852 views July 8, 2023 
+
+https://old.reddit.com/r/confidentlyincorrect/comments/1r57epo/asking_someone_what_alternating_traffic_means/o5gw7be/
+
+https://old.reddit.com/r/confidentlyincorrect/comments/1r57epo/asking_someone_what_alternating_traffic_means/o5gzgti/
+
+TECH_LUST_TECH_LOVERS love for truck machine, love for the weapon system machine. LOVE_ONE_ANOTHER love thy neighbor, love thy enemy isn't optional in democracy. But humanity in USA finds the hate-based economy to produce content for Reddit.
+
+https://old.reddit.com/r/EngineeringPorn/comments/1r57xp4/comparison_of_fixing_nuts/o5hbtx4/
+
+https://old.reddit.com/r/AmIOverreacting/comments/1r5fo45/am_i_overreacting_new_boyfriend_was_weirdly/o5idox3/
+
+OPERA_A Lyrics: "If your vagina lands in prison, then the whole world's going to listen." "Don't play stupid, don't play dumb". https://youtu.be/Bp-KeVBNz0A
+
+https://old.reddit.com/r/AmIOverreacting/comments/1r5fo45/am_i_overreacting_new_boyfriend_was_weirdly/o5idu80/
+
+Daddy issues. parenting issues. Religion indoctrination. Fox News fandom issues. Trump daddy issues. Joe Rogan daddy issues. Andrew Tate daddy issues.  

@@ -17,6 +17,12 @@ Sensational news. Sensory sensations.
 
 ToDo: I'm exhausted as I write this, even for me. Trumpism MAGA USA values and the lack of REDDIT_BLACKOUT is really really grinding on me. People are so thrilled to have scoop / tea on Epstein and not wanting teach and educate morality. The Rick Roderick 1993 duke students desires https://youtube.com/clip/Ugkx-wdnST5vFx0TcbgtDtCk0ew0XFXgBSdT clip rung loud in my ears.
 
+SENSATIONAL_CONTENT
+
+* "Ecstasy is one of them. I mean, you go to see Jurassic Park or an Arnold Schwarzenegger movie for the ecstasy of communication. By that I mean for the pure neural thrill. “Wow, a T-rex!”, “Oh, a raptor!”, and it just runs through you, raptors, T-rexes. Or Arnold just beats up people that, you know, that you view as bad or coded as bad by the society and there is this visceral ecstatic feel"; "Why not be emotional with a machine? His peers are machine-like, we have already discussed that. I mean in fact what he sees on the Nintendo screen is his thrill of the day. That’s the most active he’s seen any simulated image that day." - Texan Rick Roderick https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
+
+&nbsp;
+
 # Reddit
 
 blah blah blah, exhausted

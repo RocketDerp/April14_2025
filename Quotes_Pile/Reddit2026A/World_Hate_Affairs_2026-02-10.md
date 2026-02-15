@@ -351,3 +351,54 @@ https://old.reddit.com/r/PeterExplainsTheJoke/comments/1r4iaw8/peter/o5c49ju/
 
 https://old.reddit.com/r/PeterExplainsTheJoke/comments/1r4iaw8/peter/o5c6com/
 
+https://old.reddit.com/r/news/comments/1r4tet6/sarajevo_sniper_tourists_killed_children_by_day/o5e76x4/
+
+https://old.reddit.com/r/news/comments/1r4tet6/sarajevo_sniper_tourists_killed_children_by_day/o5e7xt3/
+
+https://old.reddit.com/r/news/comments/1r4tet6/sarajevo_sniper_tourists_killed_children_by_day/o5e3fi4/
+
+https://old.reddit.com/r/olympics/comments/1r4uoyl/canadas_female_curling_team_has_a_stone_removed/o5eddzd/
+
+If you want to grasp the deep motivations Cambridge Analytica, Putinism, MAGA, USA 2026, Surkovian, Trumpism taps into... read how this draws an audience. ANTICS_POLITICS . Please study Marshall McLuhan and re-read this comment section. This is the mythology Reality TV people are { willing to die for, give up power, give up democracy, give up children's future, sacrifice marriages and authentic goodness, give up wealth to }. International conflicts / drama. Rick Roderick' 1993 Self Under Siege lectures also get into this, building up to the final 8th episode. ["Everything Is Media Ecology"](/Media_Ecology/Everything_is_ME.md)
+
+https://old.reddit.com/r/olympics/comments/1r4uoyl/canadas_female_curling_team_has_a_stone_removed/o5eagfs/
+
+https://old.reddit.com/r/Transportopia/comments/1r4zjoc/who_is_in_the_wrong_here/o5fais3/
+
+https://old.reddit.com/r/Transportopia/comments/1r4zjoc/who_is_in_the_wrong_here/o5fax3a/
+
+https://old.reddit.com/r/Transportopia/comments/1r4zjoc/who_is_in_the_wrong_here/o5fi5qm/
+
+https://old.reddit.com/r/Transportopia/comments/1r4zjoc/who_is_in_the_wrong_here/o5fbtnc/
+
+https://old.reddit.com/r/Transportopia/comments/1r4zjoc/who_is_in_the_wrong_here/o5faq0j/
+
+https://old.reddit.com/r/Transportopia/comments/1r4zjoc/who_is_in_the_wrong_here/o5ff0ji/
+
+https://old.reddit.com/r/Transportopia/comments/1r4zjoc/who_is_in_the_wrong_here/o5ff4ft/
+
+https://old.reddit.com/r/Epstein/comments/1r4wsre/please_lets_not_forget_naomi_campbell/o5f067z/
+
+OPERA_A Styx Miss America https://www.youtube.com/watch?v=xYikyYL0S00 1,954,814 views January 20, 2009
+
+https://old.reddit.com/r/Epstein/comments/1r4wsre/please_lets_not_forget_naomi_campbell/o5f2euk/
+
+https://old.reddit.com/r/Epstein/comments/1r4wsre/please_lets_not_forget_naomi_campbell/o5ez5uh/
+
+https://old.reddit.com/r/Epstein/comments/1r4wsre/please_lets_not_forget_naomi_campbell/o5eyby5/
+
+https://old.reddit.com/r/worldnews/comments/1r54lz1/we_are_f_10_ukrainians_with_drones_wipe_out_two/o5gcxys/
+
+https://old.reddit.com/r/AmIOverreacting/comments/1r5fo45/am_i_overreacting_new_boyfriend_was_weirdly/o5idpj6/
+
+Relative to the posting itself: World Sex Affairs. They are HAVING SEXUAL INTERCOURSE, he has put his penis into her vagina, and he is afraid of the knowledge of good and evil about fluids out of the vagina! I have witnessed this in my life again and again, people who can not deal with INFORMATION about bodily function in their intimate relationships. They can have intercourse sex, but are unable to recognize and openly deal with information and dialog! INTERCOURSE_DIALOG these inward ego barriers of compassion are far more a crisis than "getting laid" with people. 
+
+I think billionaires SEX_SELLS_SEX_LEADERS have programmed so many adult men into hate of women. Rupert Murdoch, Paul Allen, NFL brain-damaging football **sports team** ultra-wealthy billionaire owners, NBA sports team owners, Elon Musk and his "breeding" tech-love agenda, Alex Jones, Donald Trump, Joe Rogan, ON AND ON the programming people "sex sells" controlling of women. Elon Musk: https://www.vanityfair.com/news/story/elon-musks-children-ashley-st-clair
+
+https://old.reddit.com/r/AmIOverreacting/comments/1r5fo45/am_i_overreacting_new_boyfriend_was_weirdly/o5idu8w/
+
+Having emotional reactions isn't nearly the concern as in how he used dialog. INTERCOURSE_DIALOG - this couple have joined bodies in intercourse sex, but the intercourse dialog is so fucked-up in the world. This is why "Daddy Issues" of so many men has wrecked the world. 
+
+* "The extremists are afraid of books and pens. **The power of education frightens them**. They are afraid of women. The power of **the voice of women frightens them**. This is why they killed 14 innocent students in the recent attack in Quetta. And that is why they kill female teachers. That is why they are blasting schools every day because they were and they are **afraid of change and equality that we will bring to our society**. And I remember that there was a boy in our school who was asked by a journalist why are the Taliban against education? He answered very simply by pointing to his book, he said, "a Talib doesn't know what is written inside this book." They **think that God is a tiny, little conservative being who would point guns at people's heads** just for going to school." - July 12, 2013 https://www.theGuardian.com/commentisfree/2013/jul/12/malala-yousafzai-united-nations-education-speech-text
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mevtavb7ik2w https://midwest.social/post/43495283 https://autistics.life/@RoundSparrow/116075290283250129 }

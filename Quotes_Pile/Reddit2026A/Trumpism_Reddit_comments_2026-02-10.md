@@ -1370,3 +1370,370 @@ And that **conditioned reaction is how Russia defeated the USA by winning hearts
 Social post { https://autistics.life/@RoundSparrow/116070831771087624 https://bsky.app/profile/roundsparrow.bsky.social/post/3mettr3ay222f }
 
 NEW_OPERA_NAME { #UnsettledOpera #VibePsyOps } the second being irregular named.
+
+https://old.reddit.com/r/MurderedByWords/comments/1r4tlxt/sounds_about_right/o5e24ow/
+
+10 day Reddit account. Top-upvoted most popular comment.
+
+TRUMP_FANDOM to the mentally enslaved women who are Putin puppets / actors performing for the hate media cultists of Reddit.
+
+https://old.reddit.com/r/MurderedByWords/comments/1r4tlxt/sounds_about_right/o5e2cxb/
+
+1 month Reddit account. 2nd most popular, upvoted, comment.
+
+TRUMP_FANDOM loves naming the fiction acting band / group. Cult of hate-watching media, cult of high-speed information images on Reddit is constantly stimulated by the White House Reality performances. Reddit fandom does not want to organize and rescue these women from the cult, as Reddit audience can not face their own inner cult to the total mockery that Trump and Putin lead.
+
+https://old.reddit.com/r/circled/comments/1r4vt0v/well_then_three_it_is/o5eidjp/
+
+1 month Reddit account. top-voted most popular comment. Banal, extreme short-length low-effort. FAKE_RESISTANCE IGNORANCE_CELEBRATIONS ANYTHING and EVERYTHING to avoid Dr. Bandy X Lee public education repeating, nonfiction learning for We The People on Reddit to stop living in denial of how dangerous the situation is.
+
+https://old.reddit.com/r/circled/comments/1r4vt0v/well_then_three_it_is/o5eioa0/
+
+26 day Reddit account. 2nd most popular upvoted comment. SIMULATION_SIMULACRA 
+
+https://old.reddit.com/r/circled/comments/1r4vt0v/well_then_three_it_is/o5eiyfa/
+
+20 day Reddit account. Trivializing the situation. 
+
+https://old.reddit.com/r/circled/comments/1r4vt0v/well_then_three_it_is/o5eix1r/
+
+Gun-worship, hardware-worship, street-gangs slogans and messages. Anti-intellectual programming for Reddit cults. Messaging to Reddit community: AVOID nonfiction learning and study, stroke weapon systems. IGNORANCE_CELEBRATIONS
+
+https://old.reddit.com/r/circled/comments/1r4vt0v/well_then_three_it_is/o5el6ma/
+
+GULLIBLE_FANDOM Cult of mythology, Reddit is a cult of images of hate leaders. Cult of mocking, hate-watching. Followers of hate content who follow the Republican party hate leadership 24 hours a day 7 days a week - even if they don't vote for hate leaders at the elections for government official - Reddit end-users prize the hate leadership as a source of hate-rituals (commenting rituals) practice. Cult of hate followers to hate-based leadership systems.
+
+https://old.reddit.com/r/circled/comments/1r4vt0v/well_then_three_it_is/o5elect/
+
+20 day Reddit account. Programming the Reddit cult to focus on taxes, don't pay taxes, which is a MAGA values for the rich and wealthy - to not pay taxes. ANYTHING and EVERYTHING to avoid dealing with the Fox News HDTV cult crisis. The QAnon cult crisis, etc. Reddit is a cult of hating other cults. Ask yourself why Reddit isn't promoting the mental health public education by Dr. Bandy X Lee who assembled 27 people to educate the everyday public? Why isn't Reddit social staging a newsworthy serious sustained INTERNET protest, blackout, Internet uprising... REDDIT_BLACKOUT 
+
+https://old.reddit.com/r/Fauxmoi/comments/1r4w1ak/president_obama_when_i_was_president_i_suppose_i/o5elqca/
+
+Top-voted popular comment. Playing dumb. Ignoring Putin NATO Trump information warfare. Not asserting Dr. Bandy X Lee or equivalent. CONDITIONED_OPPOSITION
+
+https://old.reddit.com/r/Fauxmoi/comments/1r4w1ak/president_obama_when_i_was_president_i_suppose_i/o5emevv/
+
+https://old.reddit.com/r/Fauxmoi/comments/1r4w1ak/president_obama_when_i_was_president_i_suppose_i/o5en5tt/
+
+2 month Reddit account.
+
+https://old.reddit.com/r/Fauxmoi/comments/1r4w1ak/president_obama_when_i_was_president_i_suppose_i/o5enq9n/
+
+5 month Reddit account. "wild"
+
+https://old.reddit.com/r/Fauxmoi/comments/1r4w1ak/president_obama_when_i_was_president_i_suppose_i/o5eo4jh/
+
+An off-Reddit link on the topic!
+
+https://old.reddit.com/r/Fauxmoi/comments/1r4w1ak/president_obama_when_i_was_president_i_suppose_i/o5emuxe/
+
+Yes, exactly. "way they talk", fiction storytelling outsells nonfiction. People can not face up to the real reality that audiences adore Trump's fiction storytelling as an attraction. REALITY_REAL
+
+https://old.reddit.com/r/Fauxmoi/comments/1r4w1ak/president_obama_when_i_was_president_i_suppose_i/o5emel1/
+
+2 month Reddit account. Obama keyword on front page draws in a lot of talking points.
+
+https://old.reddit.com/r/Fauxmoi/comments/1r4w1ak/president_obama_when_i_was_president_i_suppose_i/o5em5e1/
+
+TRUMP_FANDOM of simple-think Tweet-length short mindset patterns.
+
+https://old.reddit.com/r/Fauxmoi/comments/1r4w1ak/president_obama_when_i_was_president_i_suppose_i/o5en287/
+
+Trump and Putin have shown that Surkov governing is very popular with Reddit media cult members. Fiction and stimulating media is very popular on Reddit. Low-effort commenting that avoids serious nonfiction on the critical and important topics.
+
+https://old.reddit.com/r/Fauxmoi/comments/1r4w1ak/president_obama_when_i_was_president_i_suppose_i/o5eozrj/
+
+"LMAO", amused. FAKE_OPPOSITION 
+
+https://old.reddit.com/r/Fauxmoi/comments/1r4w1ak/president_obama_when_i_was_president_i_suppose_i/o5epj0m/
+
+SURKOVIAN_ONION_EATING gullible.
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1r4wbpo/angela_vergara_colombian_trump_supporter_farright/o5em63g/
+
+Posting title "funny", amusing. Neil Postman was correct in year 1985 book "Amusing Ourselves To Death" about Reddit media audience behaviors and outcomes.
+
+As for the comment: PREDICTABLE_OUTCOME HATE_HARDER competitive hate. AMERICANS_HATE_AMERICANS
+
+https://old.reddit.com/r/International/comments/1r4spo0/the_current_status_of_the_right_wing/o5dw16g/
+
+https://old.reddit.com/r/International/comments/1r4spo0/the_current_status_of_the_right_wing/o5dv60i/
+
+22 day Reddit account. Trivializing the situation. ANYTHING and EVERYTHING to avoid dealing with the Fox News HDTV cult crisis. The QAnon cult crisis, etc. Reddit is a cult of hating other cults. Ask yourself why Reddit isn't promoting the mental health public education by Dr. Bandy X Lee who assembled 27 people to educate the everyday public? Why isn't Reddit social staging a newsworthy serious sustained INTERNET protest, blackout, Internet uprising... REDDIT_BLACKOUT 
+
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1r4wjny/because_cult/o5ep78i/
+
+Posting and comment "cult", "cults". But people can't describe media cults, content cults. People do not meet Mohamamd, people engage media storytelling: Quran. People do not meet god or Jesus, they encounter a wildly creative science fiction story, The Bible media. This is the Bible verse "1 John 4:20" crisis - you have only seen a story, not god. RELIGION_CULTS_MONOMYTH_PROGRAMMING
+
+https://old.reddit.com/r/PoliticalHumor/comments/1r4wyqi/kristis_comfort_blanket_was_found/o5ewtr2/
+
+Reddit is a billionaire fandom, media cultists. Reddit end-user cultists will tolerate any abuse and Trumpism if media systems keep producing stimulating images. There is no Internet protest / Internet uprising because the cult of images and memes and low-effort comment content is what Cambridge Analytica and the IRA programmed into minds. The Trump government / Kremlin system is prized as a constant source of entertainment. TRUMP_FANDOM 
+
+https://old.reddit.com/r/Epstein/comments/1r4wdjj/marjorie_taylor_greene_just_admitted_the_epstein/o5emseu/
+
+https://old.reddit.com/r/Epstein/comments/1r4wdjj/marjorie_taylor_greene_just_admitted_the_epstein/o5en0pn/
+
+"crazy". 
+
+https://old.reddit.com/r/Epstein/comments/1r4wdjj/marjorie_taylor_greene_just_admitted_the_epstein/o5eprj3/
+
+"I really can't understand this" COMPREHENDING_UNDERSTANDING People are not turning to nonfiction learning of cult behaviors and dangers. Dr. Bandy X Lee's compilation of 27 people for general public education is ignored since published October 3, 2017 describing the mental health crisis. Surkov won since March 2013.
+
+https://old.reddit.com/r/PublicFreakout/comments/1r50fq8/argentinians_are_not_happy_about_trumps_puppet/o5fji23/
+
+TRUMP_FANDOM SUPER_HYPER_NORMAL CHUCKLEHEAD_NATION
+
+https://old.reddit.com/r/PublicFreakout/comments/1r50fq8/argentinians_are_not_happy_about_trumps_puppet/o5fj6nz/
+
+Reddit is a fandom of stupid media and stupid leaders. Reddit society is not organizing nonfiction education and teaching to combat stupid. Stupid is just acknowledged and the cure to stupid, adult education, is not seen as something We The People on Reddit need to be doing. CONDITIONED_OPPOSITION 
+
+https://old.reddit.com/r/PublicFreakout/comments/1r50fq8/argentinians_are_not_happy_about_trumps_puppet/o5fjbkc/
+
+SIMULATION_SIMULACRA
+
+https://old.reddit.com/r/Fauxmoi/comments/1r54ssz/fox_news_is_just_pro_epstein_now/o5gdx1b/
+
+Top upvoted popular comment. Twitter-length short-think short-message patterns. MIND_BLOWN_BY billionaire Rupert Murdoch. Fox News has been around since October 7 of yer 1996. And Reddit community is so ignorant about media ecology of NYC, that people predictably have their minds blown about billionaires using Fox News network for control of the USA population. People on Reddit also behave as if Reddit, which is decades established, isn't overrun by Russia's IRA and Elon Musk owner of ISP Starlink, Memphis datacenter, Twitter resources, etc. Reddit community has done everything it can to avoid serous and sustained following of the lead created by Jen Senko since year 2015.
+
+https://old.reddit.com/r/Fauxmoi/comments/1r54ssz/fox_news_is_just_pro_epstein_now/o5ge70t/
+
+https://old.reddit.com/r/Fauxmoi/comments/1r54ssz/fox_news_is_just_pro_epstein_now/o5gd4rm/
+
+This is Reddit. Which has let the IRA overrun Reddit since March 2013. The anti-intellectual anti-nonfiction attitudes. Avoiding Jen Senko about brainwashing topic.  https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad people say "cult", "Fox News", "right-wing media" all over Reddit - but when "The Little Gal" stands up to right-wing media with a nonfction film. Crickets from Reddit in terms of promoting her name and film more than Epstein and more than just complain the word "cult". Putin has put Reddit into a simulation of resisting.
+
+https://old.reddit.com/r/Fauxmoi/comments/1r54ssz/fox_news_is_just_pro_epstein_now/o5ggdtd/
+
+<img width="1452" height="261" alt="image" src="https://github.com/user-attachments/assets/6ca1ed13-b863-4408-a9eb-97f343d0db47" />
+
+AMUSING_ZOMBIES CHUCKLEHEAD_NATION
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3meuz3rfwqs2r https://autistics.life/@RoundSparrow/116073459562443342 }
+
+https://old.reddit.com/r/Fauxmoi/comments/1r54ssz/fox_news_is_just_pro_epstein_now/o5ge1e9/
+
+1 month Reddit account. The entire USA is sick. People should have been spending all their available time, free time, spare time **commenting on social media with nonfiction quotes** from Jen Senko about brainwashing, Dr. Bandy X Lee about mental health and Malala about girls. Instead, Reddit is a sick diseased mindset joke-washing meme-washing platform. NOT_GOOD_ENOUGH
+
+https://old.reddit.com/r/Fauxmoi/comments/1r54ssz/fox_news_is_just_pro_epstein_now/o5gi1d9/
+
+GULLIBLE_FANDOM
+
+https://old.reddit.com/r/Fauxmoi/comments/1r54ssz/fox_news_is_just_pro_epstein_now/o5gdxfa/
+
+MIND_BLOWN_BY Fox News. Meme media cultists on Reddit are blind to how billionaires systemically use media, including funding Reddit with media marketing and sponsorships.
+
+https://old.reddit.com/r/Fauxmoi/comments/1r54ssz/fox_news_is_just_pro_epstein_now/o5ggli9/
+
+2 month Reddit account.
+
+https://old.reddit.com/r/Fauxmoi/comments/1r54ssz/fox_news_is_just_pro_epstein_now/o5gejic/
+
+22 day Reddit account. 
+
+https://old.reddit.com/r/Fauxmoi/comments/1r54ssz/fox_news_is_just_pro_epstein_now/o5go7t0/
+
+1 month Reddit account. TECH_LUST_TECH_LOVERS messaging for Reddit video game tech lovers dehumanize and do not grasp their own compulsive dehumanization via media systems of Reddit TCP/IP media and Fox News HDTV media. HATE_HARDER values.
+
+https://old.reddit.com/r/Fauxmoi/comments/1r54ssz/fox_news_is_just_pro_epstein_now/o5gfwqj/
+
+Reddit is a platform that has been joke-washing Putin, joke-washing Trump as a "LOL cow to milk" for amusement, laughs, and entertainment. NOT_GOOD_ENOUGH Neil Postman's 1985 book not good enough for Reddit to turn to nonfiction learning / teaching / assertions / preaching.
+
+* "The 40-Year-Old Book That Predicted Today’s Dystopian Politics" September 10, 2025 https://time.com/7313999/neil-postman-trump-prediction/
+
+https://old.reddit.com/r/Fauxmoi/comments/1r54ssz/fox_news_is_just_pro_epstein_now/o5gfayy/
+
+1 month Reddit account. SUPER_HYPER_NORMAL GIVE_UP_SURRENDER messaging.
+
+https://old.reddit.com/r/Fauxmoi/comments/1r54ssz/fox_news_is_just_pro_epstein_now/o5gno8o/
+
+Downplaying the defeat of USA and NATO by Putin and Trump as just a reporter being "a hack". 
+
+https://old.reddit.com/r/Fauxmoi/comments/1r54ssz/fox_news_is_just_pro_epstein_now/o5gffc1/
+
+7 month Reddit account.
+
+https://old.reddit.com/r/Fauxmoi/comments/1r54ssz/fox_news_is_just_pro_epstein_now/o5ggtrp/
+
+Reddit audience wants to sexually fuck child-fuckers. HATE_HARDER NOT_GOOD_ENOUGH Jen Senko, Neil Postman. Avoids non-fiction in favor or just pointing name-calling and mocking. 
+
+https://old.reddit.com/r/Fauxmoi/comments/1r54ssz/fox_news_is_just_pro_epstein_now/o5gf7sb/
+
+13 day Reddit account. Playing dumb. FAKE_OPPOSITION SATIRE_SARCASM_WASHING
+
+https://old.reddit.com/r/Fauxmoi/comments/1r54ssz/fox_news_is_just_pro_epstein_now/o5gj1jv/
+
+SUPER_HYPER_NORMAL Reddit comment itself is normalize it. No call to resist, just commenting away as usual on Reddit. No call for an Internet uprising, no call for REDDIT_BLACKOUT 
+
+https://old.reddit.com/r/Fauxmoi/comments/1r54ssz/fox_news_is_just_pro_epstein_now/o5ght1f/
+
+"insane". DENIAL_ABOUNDS MIND_BLOWN_BY reality and denial of Russian information media warfare. Never studied the WAR_AGAINST_REALITY that Kremlin has been waging upon Reddit users and USA / NATO since March of year 2013.
+
+https://old.reddit.com/r/Fauxmoi/comments/1r54ssz/fox_news_is_just_pro_epstein_now/o5gi5ko/
+
+19 day Reddit account. CONDITIONED_OPPOSITION playing dumb. MAXIMUM_PUTINIZATION
+
+QUOTE FROM NONFICTION BOOK FOLLOWS
+
+“Whenever I ask my Russian bosses, the older TV producers and media types who run the system, what it was like growing up in the late Soviet Union, whether they believed in the Communist ideology that surrounded them, they always laugh at me.   
+“Don’t be silly,” most answer.   
+“But you sang the songs? Were good members of the Komsomol?”   
+“Of course we did, and we felt good when we sang them. And then straight after we would listen to ‘Deep Purple’ and the BBC.”   
+“So you were dissidents? You believed in finishing the USSR?”   
+“No. It’s not like that. You just speak several languages at the same time, all the time. There’s like several ‘you’s.”   
+Seen from this perspective, the great drama of Russia is not the “transition” between communism and capitalism, between one fervently held set of beliefs and another, but that during the final decades of the USSR no one believed in communism and yet carried on living as if they did, and **now they can only create a society of simulations. For this remains the common, everyday psychology: the Ostankino producers who make news worshiping the President in the day and then switch on an opposition radio as soon as they get off work;** the political technologists who morph from role to role with liquid easeb—ba nationalist autocrat one moment and a liberal aesthete the next; the “orthodox” oligarchs who sing hymns to Russian religious conservatism — and keep their money and families in London. All cultures have differences between “public” and “private” selves, but in Russia the contradiction can be quite extreme.”
+― Peter Pomerantsev, Nothing Is True and Everything Is Possible: The Surreal Heart of the New Russia. **Year 2014**.
+
+https://old.reddit.com/r/Fauxmoi/comments/1r54ssz/fox_news_is_just_pro_epstein_now/o5gim9v/
+
+CONTEXT_BEWILDERMENT unable to grasp fiction storytelling from reality of Fox News media.
+
+https://old.reddit.com/r/Fauxmoi/comments/1r54ssz/fox_news_is_just_pro_epstein_now/o5gg7dq/
+
+https://old.reddit.com/r/Fauxmoi/comments/1r54ssz/fox_news_is_just_pro_epstein_now/o5ggu9a/
+
+SUPER_HYPER_NORMAL  
+
+https://old.reddit.com/r/Fauxmoi/comments/1r54ssz/fox_news_is_just_pro_epstein_now/o5gf8c9/
+
+"cult". Reddit is a cult of mocking and Reddit community is a cult of avoiding nonfiction serious learning for adults. Fox News media cult in competition with Reddit media cult. Both avoiding nonfiction books on paper. Neil Postman was correct in his 1985 book "Amusing Ourselves to Death" about Reddit and Fox News.
+
+https://old.reddit.com/r/politics/comments/1r56lei/kristi_noem_says_she_will_ensure_the_right_people/o5gpn11/
+
+Top-upvoted comment. Simplistic Twitter-length Tweet-thinking mindsets. DENIAL_ABOUNDS avoidance of corrupted hearts and minds in population. Upvoting shit-commenting voting up shit-postings every hour of every day all across every media system and acting as if the ADULT EDUCATION crisis is not the core problem. FAKE_RESISTANCE 
+
+https://old.reddit.com/r/politics/comments/1r56lei/kristi_noem_says_she_will_ensure_the_right_people/o5gpvbq/
+
+TRUMP_FANDOM on Reddit translating / rephrasing. Very popular MAGA cult behavior, Trump cult behavior on Reddit. Instead of promoting Dr. Bandy X Lee and her compilation of 27 mental health experts, this type of Reddit community cult behavior of media cultist rephrasing media. No call for intellectual arms, no call for cult deprogramming, as Reddit fandom to White House is just a cult of ignorance itself.
+
+https://old.reddit.com/r/politics/comments/1r56lei/kristi_noem_says_she_will_ensure_the_right_people/o5gpb3a/
+
+IGNORANCE_CELEBRATIONS Reddit community has not been hiding the { joke-washing, meme-washing, jumor-washing, comedy-washing, sane-washing, "LOL cow milking", hyper normalizing, avoidance of non-fiction serious important topics } all along. Surkov won since March 2013. People celebrate the ignorance as something to comment about, commenting celebration to avoid all getting on the same page and being serious about Dr. Bandy X Lee's leadership since year 2017.
+
+https://old.reddit.com/r/politics/comments/1r56lei/kristi_noem_says_she_will_ensure_the_right_people/o5gpjlz/
+
+Reddit community is bothering to make tiny-short commenting messages that do anything and everything to avoid turning to nonfiction serious books to educate adults out of the cults.
+
+https://old.reddit.com/r/politics/comments/1r56lei/kristi_noem_says_she_will_ensure_the_right_people/o5gqdyq/
+
+TRUMP_FANDOM loves it that media recording exists. Media cultists on Reddit love media. Trump constantly stimulates the fandom on Reddit with more media content than any other leader in human history.
+
+https://old.reddit.com/r/politics/comments/1r56lei/kristi_noem_says_she_will_ensure_the_right_people/o5gqc2h/
+
+20 day Reddit account. SATIRE_SARCASM_WASHING
+
+https://old.reddit.com/r/goodnews/comments/1r52kpr/trump_implicated_like_never_before_as_new_epstein/o5fznbx/
+
+HATE_HARDER messages. Anything on Reddit to promote violence. Anti-intellectual. Always avoiding nonfiction cult deprogramming and remedial morality teaching.
+
+https://old.reddit.com/r/goodnews/comments/1r52kpr/trump_implicated_like_never_before_as_new_epstein/o5ghyh7/
+
+TRUMP_FANDOM parroting the MAGA talking points on Reddit cloud computing media systems. 
+
+https://old.reddit.com/r/goodnews/comments/1r52kpr/trump_implicated_like_never_before_as_new_epstein/o5g5u8y/
+
+At least a few people BEYOND_DENIAL who recognize Trump is not lazy, Trump works incredibly hard for an age 79 man. The leadership of hate that so many follow. The leadership of mocking that so many follow. The celebrity content / celebrity influencer that so many on Reddit worship.
+
+https://old.reddit.com/r/goodnews/comments/1r52kpr/trump_implicated_like_never_before_as_new_epstein/o5fyt7d/
+
+TRUMP_FANDOM EPSTEIN_FANDOM fandom on Reddit promoting their favorite brand-name and the importance of naming. This is not resisting, this is fandom messaging. There is a cult of celebrity worship on Reddit that comes to Reddit as a media venue / media outlet for such content to comment upon. Media cultists are attracted to providers.
+
+https://old.reddit.com/r/goodnews/comments/1r52kpr/trump_implicated_like_never_before_as_new_epstein/o5fyk9o/
+
+Actively normalizing. SATIRE_SARCASM_WASHING
+
+https://old.reddit.com/r/goodnews/comments/1r52kpr/trump_implicated_like_never_before_as_new_epstein/o5g6a90/
+
+And Reddit cult, cult platform of Reddit, community members are Reddit - are hell-bent on enabling Trump and other billionaires by not actually standing up and calling for everyone to follow Dr. Bandy X Lee's nonfiction leadership on mental health. The cult of content *about Trump* can not face cult deprogramming and mob mentality public education and teaching.
+
+https://old.reddit.com/r/news/comments/1r58v7n/epstein_survivor_says_women_who_recruited_her/o5i16jm/
+
+I worked on staff in 1997 for the Microsoft Board of Directors private owner content, Seattle Seahawks owner private content, Portland Trailblazers owner private content. Extreme vetting was no joke. Thee richest bachelor on planet Earth I had Edward Snowden level access to private messages. 1998 was the year wealth doubled in a single fucking year. ANY NUMBER of other people from connections could have gotten my job, but the rivalry and bad blood is probably a factor in how I got hired. https://www.LAtimes.com/archives/blogs/technology-blog/story/2011-03-30/microsoft-co-founder-paul-allen-says-bill-gates-schemed-to-dilute-his-share
+
+https://old.reddit.com/r/news/comments/1r58v7n/epstein_survivor_says_women_who_recruited_her/o5hg3z3/
+
+LAUGHTER_THE_BEST_MINDFUCK for the posting.
+
+The famous get more famous. The infamous get more famous. NOT_GOOD_ENOUGH Jen Senko and Dr. Bandy X Lee as leaders to take on the mental health and cult crisis in USA regarding worship of billionaires.
+
+https://old.reddit.com/r/news/comments/1r58v7n/epstein_survivor_says_women_who_recruited_her/o5hztmr/
+
+https://old.reddit.com/r/news/comments/1r58v7n/epstein_survivor_says_women_who_recruited_her/o5h7ys0/
+
+COMPREHENDING_UNDERSTANDING You want to understand Trumpism, study this line of thinking. People are willing to die for bad things, die in ICE to protect billionaires, but few people on Reddit are willing to die by quoting Dr. Bandy X Lee and spend their spare time, free time, commenting about billionaires instead of actually educating and teaching people remedial morality. This is part of why I raveled to Africa for my fascination with the Arab Spring... and lived in the Jordan in the Middle East. People simply do not want heaven on Earth, they invent an afterlife and avoid serious dialog intercourse on critical topics. 
+
+NOT_GOOD_ENOUGH Carl Sagan's 1990's books and writings should be repeated over and over in USA this year, but people would rather create low-effort comments and read them than in anti-intellectual favoring of "engagement" to Joe Rogan, engagement media to Donald Trump, engagement media to celebrity information than cite Carl Sagan's reformations of thinking and teaching values. People have learned zero about the details and techniques of online information warfare and manipulation since the February 20,  2014 start of the Ukraine war. How Putin has put Trump in the center of all media focus and media content because of exploiting these audience attitudes and fandom behaviors. What Putin has been doing to Ukraine children is horrific! year after year, people do not stand up for nonfiction education and teaching. https://en.wikipedia.org/wiki/Child_abductions_in_the_Russo-Ukrainian_war
+
+https://old.reddit.com/r/news/comments/1r58v7n/epstein_survivor_says_women_who_recruited_her/o5h67j6/
+
+7 month Reddit account.
+
+I've named two women that I witness get very little support. "The Little Gal" that people do not stand up for on social media. SOCIAL_MEDIA_DID_NOT name-drop Dr. Bandy X Lee and Jen Senko. Epstein got name-dropped all over Reddit commenting in year 2025. But there is no assertion of goodness. Even well-known Dr. Martin Luther King Jr's quotes are not repeated in the face of Epstein. These are not just two women I plucked out of nowhere, they are HIGHLY RELEVANT to everything evil and bad about { Epstein, Donald Trump, right-wing media, Fox News }. NOT_GOOD_ENOUGH women for social media fandoms. It isn't just Kamala Harris and Hillary Clinton.
+
+* "I never intend to adjust myself to economic conditions that will take necessities from the many to give luxuries to the few." - "Social Justice and the Emerging New Age" address at the Herman W. Read Fieldhouse, Western Michigan University (18 December 1963). Dr. Martin Luther King Jr.
+
+https://old.reddit.com/r/news/comments/1r58v7n/epstein_survivor_says_women_who_recruited_her/o5h5sem/
+
+What male-thinking Elon Musk programmed into Reddit hive mind tech machine-thinking bullshit. The world is driven by science fiction addictions. Allah is male. Buddha is male. Jesus is male. Santa is male. Yahweh is male. Go study Russia and Putin. Go Read Malala's book from October 8, 2013 about Swat Valley, Pakistan.
+
+* "They say more about Deuteronomy than about women. The Hebrews were absolutely ruthless with respect to their neighbors. But this passage is an extreme statement of something that is inherent in most sociologically oriented mythologies. That is to say, love and compassion are reserved for the in-group, and aggression and abuse are projected outward on others. Compassion is to be reserved for members of your own group. The out-group is to be treated in a way described there in Deuteronomy.
+Now, today there is no out-group anymore on the planet. And the problem of a modern religion is to have such compassion work for the whole of humanity. But then what happens to the aggression? This is a problem that the world is going to, have to face—because aggression is a natural instinct just as much as, and more immediate than, compassion, and it is always going to be there. It’s a biological fact. Of course, in biblical times, when the Hebrews came in, they really wiped out the Goddess. The term for the Canaanite goddess that’s used in the Old Testament is “the Abomination.” Apparently, throughout the period represented in the Book of Kings, for example, there was a back and forth between the two cults. Many of the Hebrew kings were condemned in the Old Testament for having worshiped on the mountaintops. Those mountains were symbols of the Goddess. And there was a very strong accent against the Goddess in the Hebrew, which you do not find in the Indo-European mythologies. Here you have Zeus marrying the Goddess, and then the two play together. So it’s an **extreme case that we have in the Bible, and our own Western subjugation of the female is a function of biblical thinking**." - The Power of Myth, age 83, 1987, published year 1988
+
+https://old.reddit.com/r/news/comments/1r58v7n/epstein_survivor_says_women_who_recruited_her/o5h5zwx/
+
+THIS_GITHUB is my penance for supporting what Paul Allen, Jody Allen do with sports teams and wealth to manipulate the public into predictable mindsets. People cheer on the Superbowl win in February 2026 as they are conditioned to logically behave by this rectangle thinking system.
+
+REDDIT_BLACKOUT people on Reddit are so programmed they can't imagine originating an Internet protest! Just a SINGLE DAY protest made historical news all over the entire world! https://futurefive.co.nz/story/reddit-to-black-out-in-protest-against-sopa-updated "January 13, 2012 — The blackout will take place on January 18, from 8am to 8pm US time (2am to 2pm on the 19th NZ time)." - Trump ROSE on Twitter. But Social Media users are so stuck inside the box thinking, so logically bound to the conditioned simulation in the commenting box... WHY IS THERE NOT A MASS CAMPAIGN TO CALL FOR TRUMP REMOVAL FROM OFFICE? To stand up to joke-washing and laugh-washing and LOL-washing Donald Trump as a "LOL COW" to milk? People are not being serious. A blackout and call for seriousness is absent on Reddit fandom to Epstein and Trump!
+
+It is Sunday, Church day:
+
+* Sunday February 28, 1954: "Most **people can't stand up for their convictions, because the majority of people might not be doing it. See, everybody's not doing it, so it must be wrong.** And since everybody is doing it, it must be right. So a sort of numerical interpretation of what's right. But I'm here to say to you this morning that some things are right and some things are wrong. Eternally so, absolutely so." - MLK Jr.
+
+https://old.reddit.com/r/news/comments/1r58v7n/epstein_survivor_says_women_who_recruited_her/o5hj62b/
+
+This is happening WITH MARRIAGES. Canadian and USA marriages are broken apart. FAMILY_HONESTY Fox News families are broken apart from reality! Fox News audiences are living mythology of billionaire cults. ANTI_REALITY I know HUNDREDS of people I have met in person. People are entirely not seeing this went on during the COVID-2019 pandemic, people who were aggressive and gleeful to spread a virus and STILL TO THIS DAY can not admit they were bamboozled by Putin! 
+
+Trying to get people to break free from their fiction cult when the Arab Spring changed from online idealism of women in Tunisia / Algeria 2009 and 2010 to pro-men Islam violence in Egypt in late 2011 / early 2012 was a real eye-opening EXPERIENCE for me. Malala came on the scene in year 2012, and all the Arab Spring women I knew from 2009 and 2010 did NOT jump on the Malala leadership! Even in Iran this year, 2026, you do NOT see the promotion of Malala as a world-wide call to support young girls. Even with EPSTEIN abuse of young girls, you do not see people promoting Malala's year 2013 writings and book tour interviews / speeches! People are NOT standing up for little girls being given a voice, people are flocking to private jet rich white men discussions.
+
+Even Ukraine children are not being discussed with Putin's systemic abuse RIGHT NOW! Epstein old white powerful men are getting all the attention. https://en.wikipedia.org/wiki/Child_abductions_in_the_Russo-Ukrainian_war
+
+* "Now this is a **very serious affair. It is serious because these symbolic worlds were the supports of the civilizations, of the moralities of the civilizations**, of the self-confidence of the civilizations, of the vitality and creative power of the civilizations. And with the cutting down, the frustrating of the self-confidence that derives from images of this kind, there is a disequilibrium within the society itself. And everyone is challenged in his loyalty — are you going to be loyal to the tradition, to the form, to the **morality and myth of your society, or are you going to be loyal to truth?** They are two different things." - November 16, 1961. https://GitHub.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Specific/Joseph_Campbell_Loyalty_Myth.md
+
+People on Reddit are not WOKE, MEDIA_WOKE as to their own programming from Reddit itself.
+
+https://old.reddit.com/r/news/comments/1r58v7n/epstein_survivor_says_women_who_recruited_her/o5hn5vt/
+
+"LOL", so amused. CHUCKLEHEAD_NATION
+
+https://old.reddit.com/r/news/comments/1r58v7n/epstein_survivor_says_women_who_recruited_her/o5h6vzq/
+
+yes. When the Arab Spring changed from online idealism of women in Tunisia / Algeria 2009 and 2010 to pro-men Islam violence in Egypt in late 2011 / early 2012 was a real eye-opening EXPERIENCE for me. Malala came on the scene in year 2012, and all the Arab Spring women I knew from 2009 and 2010 did NOT jump on the Malala leadership! Even in Iran this year, 2026, you do NOT see the promotion of Malala as a world-wide call to support young girls. Even with EPSTEIN abuse of young girls, you do not see people promoting Malala's year 2013 writings and book tour interviews / speeches! People are NOT standing up for little girls being given a voice, people are flocking to private jet rich white men discussions.
+
+NOT_GOOD_ENOUGH Malala. People will not actively promote her, actively quote her books, etc.
+
+* “We felt like the Taliban saw us as like little dolls to control, telling us what to do and how to dress. I thought if God wanted us to be like that He would not have made us all different.” ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. Published October 8, 2013.
+
+https://old.reddit.com/r/news/comments/1r58v7n/epstein_survivor_says_women_who_recruited_her/o5h8yga/
+
+"LMAO", laugh-track for Reddit audiences. BANAL_WASH_LAUGH_TRACK
+
+https://old.reddit.com/r/news/comments/1r58v7n/epstein_survivor_says_women_who_recruited_her/o5h7zr9/
+
+Read the previous messages in this thread that it is "always money". Cults and religions and Fox News audience cult and Reddit audience cult are not paid money! PEOPLE PAY MONEY to Mecca, Mecca is not paying the poor girls in Pakistan! SYMBOLISM, Clergy, CONTENT, science fiction Quran, science fiction Torah + Bible! Science fiction Star Wars! Reddit cult members are a cult that thinks money ONLY is the behavior of weddings and marriages and Church, Mosque, Temple, Synagogue fighting! IGNORANCE_CELEBRATIONS on Reddit.
+
+* “We felt like the Taliban saw us as like little dolls to control, telling us what to do and how to dress. I thought if God wanted us to be like that He would not have made us all different.” ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. Published October 8, 2013.
+
+The cult of wealth lords, the cult of Elon Musk power, cult of Trump power, cult of Rupert Murdoch power on Reddit is so strong people can't grasp the MEDIA ITSELF. The absence of understanding from Marshall McLuhan at the University of Toronto. Reddit hive mind community in year 2026 is such a celebration of ignorance and compulsive media addictions.
+
+It seems LOST on so many machine-lovers of Reddit that the richest men in the world, Bill Gates and Elon Musk, were manipulated not by MONEY - but by sex of young girls. The whole Adam and Eve storytelling is lost teaching on Reddit community. Why Islamic women are forced to cover their body and hair from men. Adam / Eve. Bible verse  Genesis 3:7 self-awareness ignorance of Reddit media cultists. Reddit hive minded cult is so ignorant of the techniques of their own cult indoctrination.  Surah Al-A'raf 7:22. ٱلأعراف storytelling. RELIGION_CULTS_MONOMYTH_PROGRAMMING
+
+The Reddit hive mind cult is very avoidant of comparative mythology learning and the nonfiction 1988 book "Power of Myth" created for Star Wars fandoms at Skywalker Ranch California.
+
+* “One of the saddest lessons of history is this: If we’ve been bamboozled long enough, we tend to **reject any evidence of the bamboozle**. We’re no longer interested in finding out the truth. The bamboozle has captured us. It’s simply too painful to acknowledge, even to ourselves, that we’ve been taken. Once you give a charlatan power over you, you almost never get it back. So the old bamboozles tend to persist as the new ones rise.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, **1995**, page 241.
+
+https://old.reddit.com/r/news/comments/1r58v7n/epstein_survivor_says_women_who_recruited_her/o5h9clq/
+
+OPERA_A Lyrics: "And as the *freedom bell* rings! They start to sing: Reveal yourself, reveal yourself... The world that you created is not mightier than our means to remake it"... "Escape this childhood"... "The higher we go, climbing up to heaven or a hell or maybe something inconceivable... It used to be unspeakable!" https://www.youtube.com/watch?v=cfm4L0TGDrw 347,129 views April 16, 2020
+
+https://old.reddit.com/r/clevercomebacks/comments/1r5fh17/ai_slop_in_the_big_26/o5izy08/
+
+Posting itself has an image with a comment "It's so funny"... CHUCKLEHEAD_NATION that billionaires are creating content images for Reddit fandom. TRUMP_FANDOM Trump family images. The more fake and fiction-based, the more Reddit cult flocks to every image of Trump family. Laughing away in the Reddit audience at the one AWESOME TALENT AND GIFT the Trump Family has - Reality TV "The Apprentice" skills and experience. Reddit cult members, Reddit account holders, can not grasp they are in a cult of high-speed image delivery of Trump. LAUGHTER_THE_BEST_MINDFUCK Neil Postman's 1985 nonfiction book "Amusing Ourselves To Death" https://en.wikipedia.org/wiki/Amusing_Ourselves_to_Death goes into detail about Reddit fandom behaviors and mental outcomes of USA.
