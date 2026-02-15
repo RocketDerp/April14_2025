@@ -1655,3 +1655,11 @@ LAUGHTER_THE_BEST_MINDFUCK for the posting.
 
 The famous get more famous. The infamous get more famous. NOT_GOOD_ENOUGH Jen Senko and Dr. Bandy X Lee as leaders to take on the mental health and cult crisis in USA regarding worship of billionaires.
 
+https://old.reddit.com/r/news/comments/1r58v7n/epstein_survivor_says_women_who_recruited_her/o5hztmr/
+
+https://old.reddit.com/r/news/comments/1r58v7n/epstein_survivor_says_women_who_recruited_her/o5h7ys0/
+
+COMPREHENDING_UNDERSTANDING You want to understand Trumpism, study this line of thinking. People are willing to die for bad things, die in ICE to protect billionaires, but few people on Reddit are willing to die by quoting Dr. Bandy X Lee and spend their spare time, free time, commenting about billionaires instead of actually educating and teaching people remedial morality. This is part of why I raveled to Africa for my fascination with the Arab Spring... and lived in the Jordan in the Middle East. People simply do not want heaven on Earth, they invent an afterlife and avoid serious dialog intercourse on critical topics. 
+
+NOT_GOOD_ENOUGH Carl Sagan's 1990's books and writings should be repeated over and over in USA this year, but people would rather create low-effort comments and read them than in anti-intellectual favoring of "engagement" to Joe Rogan, engagement media to Donald Trump, engagement media to celebrity information than cite Carl Sagan's reformations of thinking and teaching values. People have learned zero about the details and techniques of online information warfare and manipulation since the February 20,  2014 start of the Ukraine war. How Putin has put Trump in the center of all media focus and media content because of exploiting these audience attitudes and fandom behaviors. What Putin has been doing to Ukraine children is horrific! year after year, people do not stand up for nonfiction education and teaching. https://en.wikipedia.org/wiki/Child_abductions_in_the_Russo-Ukrainian_war
+
