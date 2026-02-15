@@ -1745,3 +1745,14 @@ https://old.reddit.com/r/SipsTea/comments/1r5euwi/china_reaffirms_death_penalty_
 https://old.reddit.com/r/politics/comments/1r5hraz/ghislaine_maxwell_appears_to_have_lied_on_her/o5iv3io/
 
 How to lead billionaires and those who can not resist compulsively following celebrity. Reddit audience itself is a cult hangout, a cult venue, of people strongly attracted to liars as leaders. DECEPTION_LEADERSHIP LIARS_AS_LEADERS
+
+https://old.reddit.com/r/politics/comments/1r5hraz/ghislaine_maxwell_appears_to_have_lied_on_her/o5iwe5e/
+
+Anti-immigrant immigrants. Total mockery USA since March 2013. Surkov won.
+
+https://old.reddit.com/r/politics/comments/1r5hraz/ghislaine_maxwell_appears_to_have_lied_on_her/o5iw3nk/
+
+2 month Reddit account. And let's not forget how little girls, little children, are treated by billionaires in their sex and conquest trafficking and how the press treated that. The insulting, cursing, damning, shit-talking, shit-commenting, shit-posting that the USA nation does.
+
+* "There is something **strangely inconsistent about a nation** and a press that would praise you when you say, "Be nonviolent toward Jim Clark," but will **curse and damn you** when you say, "Be nonviolent toward little brown Vietnamese children." There is something **wrong** with that press." - Atlanta, Georgia. 30 April 1967. Dr. Martin Luther King, Jr.
+
