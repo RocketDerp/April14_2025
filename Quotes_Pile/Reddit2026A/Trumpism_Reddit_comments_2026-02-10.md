@@ -1540,3 +1540,7 @@ Reddit is a platform that has been joke-washing Putin, joke-washing Trump as a "
 
 * "The 40-Year-Old Book That Predicted Today’s Dystopian Politics" September 10, 2025 https://time.com/7313999/neil-postman-trump-prediction/
 
+https://old.reddit.com/r/Fauxmoi/comments/1r54ssz/fox_news_is_just_pro_epstein_now/o5gfayy/
+
+1 month Reddit account. SUPER_HYPER_NORMAL GIVE_UP_SURRENDER messaging.
+
