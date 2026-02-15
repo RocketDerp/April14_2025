@@ -60,3 +60,9 @@ https://YouTu.be/bYbQXiEmevw?t=167 into song 107 seconds. "Pictures came and *br
 We [Can't Rewind. Unified Theory of Fiction and **Non**Fiction](https://en.wikipedia.org/wiki/War_and_Peace_in_the_Global_Village).   
 We Can't Rewind. John 1:1 abounds Encrypted with Romans 11:32 ++   
 [We Can't Rewind](https://www.youtube.com/watch?v=pVqnL0nkfPY). Encrypted with Romans 11:33   
+
+&nbsp;
+
+* Year 2013: "They think that God is a tiny, **little conservative being who would point guns at people's heads** just for going to school." - [**July 12, 2013**. ملاله یوسفزۍ ](https://midwest.social/post/43495283)
+
+They think, the thinking systems. We The People are thinking in ways that need to be addressed directly.
