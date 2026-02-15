@@ -69,6 +69,9 @@ BANAL_WASH_LAUGH_TRACK
 SEX_SELLS_SEX_LEADERS  
 DECEPTION_LEADERSHIP   
 LIARS_AS_LEADERS    
+BILLIONAIRE_MIND_VIRUS   
+PLEASE_HELP_RESCUE    
+
 
 
 Topic_tags: media_ecology, media_deconstruction, media_environment, media_conventions    
