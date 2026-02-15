@@ -1781,3 +1781,9 @@ SOCIAL_MEDIA_DID_NOT Social media did not rise up. During the Trump impeachments
 https://old.reddit.com/r/TrendoraX/comments/1r5jr46/is_he_right_will_it_take_generations_to_resecure/o5jco94/
 
 ANTI_WIKI_ANTI_FAQ the USA society of social media commenting, the society, is socialized to avoid FAQ, avoid nonfiction books, avoid FAQ. Instead, people create millions and millions of high-speed low-effort commenting that puts the USA population (everyone, not just voters) all on different pages of topics. People live in filter-bubble mindsets https://en.wikipedia.org/wiki/Filter_bubble extremely critical adult education is ignored. Leaders like Dr. Bandy X Lee with serious topics. are avoided in favor of RFK Jr and other entertainment originators. Surkov won since March 2013.
+
+https://old.reddit.com/r/TrendoraX/comments/1r5jr46/is_he_right_will_it_take_generations_to_resecure/o5jb0zv/
+
+22 day Reddit account. popular upvoted comment. SURKOVIAN_CHESS game playing that this is strictly a focus on "The Democrats" and not NATO vs. Russia information warfare since March 2013. IN OTHER WORDS: The topic is only representatives, not We The People being directly manipulated to avoid nonfiction since March 2013 by the Saint Petersburg Internet Research Agency. This Reddit comment serves to blame anyone but the Reddit comment community for avoiding defense of hearts and minds. Brain rot society, Reddit brain rot, is the far larger problem that impacts people not even commenting about the urgent and critical importance to constantly be quoting Dr. Bandy X Lee, promote Jen Senko's nonfiction brainwashing film, etc.
+
+
