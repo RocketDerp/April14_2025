@@ -1633,3 +1633,15 @@ https://old.reddit.com/r/goodnews/comments/1r52kpr/trump_implicated_like_never_b
 
 At least a few people BEYOND_DENIAL who recognize Trump is not lazy, Trump works incredibly hard for an age 79 man. The leadership of hate that so many follow. The leadership of mocking that so many follow. The celebrity content / celebrity influencer that so many on Reddit worship.
 
+https://old.reddit.com/r/goodnews/comments/1r52kpr/trump_implicated_like_never_before_as_new_epstein/o5fyt7d/
+
+TRUMP_FANDOM EPSTEIN_FANDOM fandom on Reddit promoting their favorite brand-name and the importance of naming. This is not resisting, this is fandom messaging. There is a cult of celebrity worship on Reddit that comes to Reddit as a media venue / media outlet for such content to comment upon. Media cultists are attracted to providers.
+
+https://old.reddit.com/r/goodnews/comments/1r52kpr/trump_implicated_like_never_before_as_new_epstein/o5fyk9o/
+
+Actively normalizing. SATIRE_SARCASM_WASHING
+
+https://old.reddit.com/r/goodnews/comments/1r52kpr/trump_implicated_like_never_before_as_new_epstein/o5g6a90/
+
+And Reddit cult, cult platform of Reddit, community members are Reddit - are hell-bent on enabling Trump and other billionaires by not actually standing up and calling for everyone to follow Dr. Bandy X Lee's nonfiction leadership on mental health. The cult of content *about Trump* can not face cult deprogramming and mob mentality public education and teaching.
+
