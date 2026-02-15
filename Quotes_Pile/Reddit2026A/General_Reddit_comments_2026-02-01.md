@@ -502,3 +502,6 @@ That the country is currently split — and **our shared reality** with it — s
 https://old.reddit.com/r/PeterExplainsTheJoke/comments/1r4rxdb/peter/o5dpue1/
 
 CHOICE_MARRIAGE_HONESTY  communicating with partners and mates.  RELIGION_CULTS_MONOMYTH_PROGRAMMING many religions teach that masturbation and sexual fantasy is a "sin" against a God. Science fiction media cultists teach this as a manipulation technique to concentrate power and wealth over populations. Time-Proven system of mind exploitation. 
+
+https://old.reddit.com/r/Silksong/comments/1r4yawd/e1331_has_deleted_his_account/o5f4083/
+
