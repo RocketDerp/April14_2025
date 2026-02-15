@@ -1715,3 +1715,13 @@ NOT_GOOD_ENOUGH Malala. People will not actively promote her, actively quote her
 https://old.reddit.com/r/news/comments/1r58v7n/epstein_survivor_says_women_who_recruited_her/o5h8yga/
 
 "LMAO", laugh-track for Reddit audiences. BANAL_WASH_LAUGH_TRACK
+
+https://old.reddit.com/r/news/comments/1r58v7n/epstein_survivor_says_women_who_recruited_her/o5h7zr9/
+
+Read the previous messages in this thread that it is "always money". Cults and religions and Fox News audience cult and Reddit audience cult are not paid money! PEOPLE PAY MONEY to Mecca, Mecca is not paying the poor girls in Pakistan! SYMBOLISM, Clergy, CONTENT, science fiction Quran, science fiction Torah + Bible! Science fiction Star Wars! Reddit cult members are a cult that thinks money ONLY is the behavior of weddings and marriages and Church, Mosque, Temple, Synagogue fighting! IGNORANCE_CELEBRATIONS on Reddit.
+
+* “We felt like the Taliban saw us as like little dolls to control, telling us what to do and how to dress. I thought if God wanted us to be like that He would not have made us all different.” ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. Published October 8, 2013.
+
+The cult of wealth lords, the cult of Elon Musk power, cult of Trump power, cult of Rupert Murdoch power on Reddit is so strong people can't grasp the MEDIA ITSELF. The absence of understanding from Marshall McLuhan at the University of Toronto. Reddit hive mind community in year 2026 is such a celebration of ignorance and compulsive media addictions.
+
+* “One of the saddest lessons of history is this: If we’ve been bamboozled long enough, we tend to **reject any evidence of the bamboozle**. We’re no longer interested in finding out the truth. The bamboozle has captured us. It’s simply too painful to acknowledge, even to ourselves, that we’ve been taken. Once you give a charlatan power over you, you almost never get it back. So the old bamboozles tend to persist as the new ones rise.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, **1995**, page 241.
