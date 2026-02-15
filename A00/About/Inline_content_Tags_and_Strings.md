@@ -65,6 +65,7 @@ TECH_LUST_TECH_LOVERS
 GIVE_UP_SURRENDER   
 MAXIMUM_PUTINIZATION   
 SENSATIONAL_CONTENT   
+BANAL_WASH_LAUGH_TRACK   
 
 
 Topic_tags: media_ecology, media_deconstruction, media_environment, media_conventions    
