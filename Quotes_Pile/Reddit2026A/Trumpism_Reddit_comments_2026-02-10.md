@@ -1532,4 +1532,11 @@ https://old.reddit.com/r/Fauxmoi/comments/1r54ssz/fox_news_is_just_pro_epstein_n
 
 https://old.reddit.com/r/Fauxmoi/comments/1r54ssz/fox_news_is_just_pro_epstein_now/o5go7t0/
 
-TECH_LUST_TECH_LOVERS messaging for Reddit video game tech lovers dehumanize and do not grasp their own compulsive dehumanization via media systems of Reddit TCP/IP media and Fox News HDTV media. HATE_HARDER values.
+1 month Reddit account. TECH_LUST_TECH_LOVERS messaging for Reddit video game tech lovers dehumanize and do not grasp their own compulsive dehumanization via media systems of Reddit TCP/IP media and Fox News HDTV media. HATE_HARDER values.
+
+https://old.reddit.com/r/Fauxmoi/comments/1r54ssz/fox_news_is_just_pro_epstein_now/o5gfwqj/
+
+Reddit is a platform that has been joke-washing Putin, joke-washing Trump as a "LOL cow to milk" for amusement, laughs, and entertainment. NOT_GOOD_ENOUGH Neil Postman's 1985 book not good enough for Reddit to turn to nonfiction learning / teaching / assertions / preaching.
+
+* "The 40-Year-Old Book That Predicted Today’s Dystopian Politics" September 10, 2025 https://time.com/7313999/neil-postman-trump-prediction/
+
