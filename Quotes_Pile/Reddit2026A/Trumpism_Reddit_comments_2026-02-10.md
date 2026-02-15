@@ -1479,3 +1479,11 @@ https://old.reddit.com/r/Epstein/comments/1r4wdjj/marjorie_taylor_greene_just_ad
 https://old.reddit.com/r/Epstein/comments/1r4wdjj/marjorie_taylor_greene_just_admitted_the_epstein/o5eprj3/
 
 "I really can't understand this" COMPREHENDING_UNDERSTANDING People are not turning to nonfiction learning of cult behaviors and dangers. Dr. Bandy X Lee's compilation of 27 people for general public education is ignored since published October 3, 2017 describing the mental health crisis. Surkov won since March 2013.
+
+https://old.reddit.com/r/PublicFreakout/comments/1r50fq8/argentinians_are_not_happy_about_trumps_puppet/o5fji23/
+
+TRUMP_FANDOM SUPER_HYPER_NORMAL CHUCKLEHEAD_NATION
+
+https://old.reddit.com/r/PublicFreakout/comments/1r50fq8/argentinians_are_not_happy_about_trumps_puppet/o5fj6nz/
+
+Reddit is a fandom of stupid media and stupid leaders. Reddit society is not organizing nonfiction education and teaching to combat stupid. Stupid is just acknowledged and the cure to stupid, adult education, is not seen as something We The People on Reddit need to be doing. CONDITIONED_OPPOSITION 
