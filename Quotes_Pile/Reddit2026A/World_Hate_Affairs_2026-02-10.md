@@ -402,3 +402,30 @@ Having emotional reactions isn't nearly the concern as in how he used dialog. IN
 * "The extremists are afraid of books and pens. **The power of education frightens them**. They are afraid of women. The power of **the voice of women frightens them**. This is why they killed 14 innocent students in the recent attack in Quetta. And that is why they kill female teachers. That is why they are blasting schools every day because they were and they are **afraid of change and equality that we will bring to our society**. And I remember that there was a boy in our school who was asked by a journalist why are the Taliban against education? He answered very simply by pointing to his book, he said, "a Talib doesn't know what is written inside this book." They **think that God is a tiny, little conservative being who would point guns at people's heads** just for going to school." - July 12, 2013 https://www.theGuardian.com/commentisfree/2013/jul/12/malala-yousafzai-united-nations-education-speech-text
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mevtavb7ik2w https://midwest.social/post/43495283 https://autistics.life/@RoundSparrow/116075290283250129 }
+
+
+https://old.reddit.com/r/SipsTea/comments/1r5euwi/china_reaffirms_death_penalty_for_sexual_abuse_of/o5i7p3b/
+
+https://old.reddit.com/r/SipsTea/comments/1r5euwi/china_reaffirms_death_penalty_for_sexual_abuse_of/o5ia5rk/
+
+https://old.reddit.com/r/SipsTea/comments/1r5euwi/china_reaffirms_death_penalty_for_sexual_abuse_of/o5iyg3g/
+
+Important topics. Why people need to stop flocking to entertaining fiction storytellers and face the addiction to fiction problems, the cult of fiction on Reddit, cult of Trump on Reddit, cult of Fox News HDTV fiction, etc.
+
+* "Finding the occasional **straw of truth awash in a great ocean of confusion and bamboozle** requires vigilance, dedication and courage. But if we don’t practice these tough habits of thought, we cannot hope to solve the truly serious problems that face us and we risk becoming **a nation of suckers**" ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995, page 38
+
+https://old.reddit.com/r/europe/comments/1r5ga51/outgoing_dutch_defense_secretary_tuinman_if_the/o5ip4i6/
+
+NATO is wrecked by Putin since March 2013. Surkov won.
+
+https://old.reddit.com/r/europe/comments/1r5ga51/outgoing_dutch_defense_secretary_tuinman_if_the/o5ip341/
+
+Reddit users should call for Reddit corporation to return Reddit to open source like it was at the start of Reddit website. There should be independent owner operators and federation backend peering and Usenet protocol peerings, a Usenet The Next Generation. And add subreddit.subredditsub.name conventions instead of one long flat list of subreddit names. SMTP is an open system, Reddit-like Usenet-like social media should be. Lemmy has far too many scaling performance problems, but it is good to have.
+
+https://old.reddit.com/r/europe/comments/1r5ga51/outgoing_dutch_defense_secretary_tuinman_if_the/o5imvxu/
+
+Remote operated drones are a far better investment for the future than piloted aircraft. The cost of fighter jets with men inside is extremely high. China and other manufacturing societies have a real chance to leapfrog way beyond what "Top Gun" promotes, and video game training has proven so much success for Ukraine and Russia.
+
+https://old.reddit.com/r/europe/comments/1r5ga51/outgoing_dutch_defense_secretary_tuinman_if_the/o5ikb0r/
+
+4 month Reddit account.

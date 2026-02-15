@@ -1737,3 +1737,40 @@ OPERA_A Lyrics: "And as the *freedom bell* rings! They start to sing: Reveal you
 https://old.reddit.com/r/clevercomebacks/comments/1r5fh17/ai_slop_in_the_big_26/o5izy08/
 
 Posting itself has an image with a comment "It's so funny"... CHUCKLEHEAD_NATION that billionaires are creating content images for Reddit fandom. TRUMP_FANDOM Trump family images. The more fake and fiction-based, the more Reddit cult flocks to every image of Trump family. Laughing away in the Reddit audience at the one AWESOME TALENT AND GIFT the Trump Family has - Reality TV "The Apprentice" skills and experience. Reddit cult members, Reddit account holders, can not grasp they are in a cult of high-speed image delivery of Trump. LAUGHTER_THE_BEST_MINDFUCK Neil Postman's 1985 nonfiction book "Amusing Ourselves To Death" https://en.wikipedia.org/wiki/Amusing_Ourselves_to_Death goes into detail about Reddit fandom behaviors and mental outcomes of USA.
+
+https://old.reddit.com/r/MurderedByWords/comments/1r5istc/we_all_know_the_smile_is_not_real/o5j307e/
+
+Reddit is a society of tech lovers, technology workers lead so much of the Reddit community. Cults of tech images, CGI in films, etc. Media cultists. Billionaires like Trump provide so much content for the Reddit fandom that avoids nonfiction serious learning (such as Dr. Bandy X Lee's 27 nonfiction contributors to her October 3, 2017 book; such as Jen Senko's year 2015 / 2016 nonfiction film to deal with brainwashing cults of billionaires via media systems). TECH_LUST_TECH_LOVERS Reddit image cultists.
+
+
+https://old.reddit.com/r/MurderedByWords/comments/1r5istc/we_all_know_the_smile_is_not_real/o5j2fs6/
+
+Another front-page Reddit posting for cult of Trump photographs on Reddit. Instantly upvoted to /r/All. Day after day, hour after hour, cultists of images flock to celebrity Trump. Addictions drive the USA, a social media Twitter addict since June 6, of year 2011 has been leading USA society in media addictions to celebrity icons and status symbols. Trump mastered Twitter and cultivated the Reddit social fandom cravings. https://theoutline.com/post/2445/trump-s-first-real-tweet-was-on-july-6-2011 Surkov won since March 2013.
+
+
+https://old.reddit.com/r/SipsTea/comments/1r5euwi/china_reaffirms_death_penalty_for_sexual_abuse_of/o5i7y1y/
+
+1 year Reddit account. The Reddit EPSTEIN_FANDOM commenting community does not desire to protect and defend young girls from predatory old men. Anti-Malala machine lovers (tech addicts, meme-tech lovers) of Reddit are only concerned to repeat and parrot White House propaganda / MAGA values. None of this abuse of young girls is funny in any way. FAKE_RESISTANCE AMUSING_ZOMBIES The USA nation, We The People, have sold out the soul of the nation to comedy super-star Donald Trump's leadership with amusement and jokes. This posting is China calling that out the soulless mockery mindsets, Total Mockery USA, that Reddit cult fandom has developed with IRA infiltration. SATIRE_SARCASM_WASHING
+
+https://old.reddit.com/r/politics/comments/1r5hraz/ghislaine_maxwell_appears_to_have_lied_on_her/o5iv3io/
+
+How to lead billionaires and those who can not resist compulsively following celebrity. Reddit audience itself is a cult hangout, a cult venue, of people strongly attracted to liars as leaders. DECEPTION_LEADERSHIP LIARS_AS_LEADERS
+
+https://old.reddit.com/r/politics/comments/1r5hraz/ghislaine_maxwell_appears_to_have_lied_on_her/o5iwe5e/
+
+Anti-immigrant immigrants. Total mockery USA since March 2013. Surkov won.
+
+https://old.reddit.com/r/politics/comments/1r5hraz/ghislaine_maxwell_appears_to_have_lied_on_her/o5iw3nk/
+
+2 month Reddit account. And let's not forget how little girls, little children, are treated by billionaires in their sex and conquest trafficking and how the press treated that. The insulting, cursing, damning, shit-talking, shit-commenting, shit-posting that the USA nation does.
+
+* "There is something **strangely inconsistent about a nation** and a press that would praise you when you say, "Be nonviolent toward Jim Clark," but will **curse and damn you** when you say, "Be nonviolent toward little brown Vietnamese children." There is something **wrong** with that press." - Atlanta, Georgia. 30 April 1967. Dr. Martin Luther King, Jr.
+
+https://old.reddit.com/r/videos/comments/1r5cosj/chatgpts_president_is_trumps_biggest_donor/o5ht27b/
+
+Self-centered egoism, only concerned about personal self. Top-uvoted comment. Also "LOL" mocking, amused at what Rupert Murdoch and other billionaires have done in society. CHUCKLEHEAD_NATION Hyper-competitive Reddit users who think it is entertaining, amusing, funny to watch others suffer at hands of predatory billionaires that have converged on Trump as leader. 
+
+https://old.reddit.com/r/videos/comments/1r5cosj/chatgpts_president_is_trumps_biggest_donor/o5il2n2/
+
+Billionaires are wrecking society and Reddit community comments on every billionaire media domination (including Reddit itself under the thumb of non-identity influences) **to normalize** it. SATIRE_SARCASM_WASHING
+

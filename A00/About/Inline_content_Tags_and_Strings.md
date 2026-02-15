@@ -67,6 +67,8 @@ MAXIMUM_PUTINIZATION
 SENSATIONAL_CONTENT   
 BANAL_WASH_LAUGH_TRACK   
 SEX_SELLS_SEX_LEADERS  
+DECEPTION_LEADERSHIP   
+LIARS_AS_LEADERS    
 
 
 Topic_tags: media_ecology, media_deconstruction, media_environment, media_conventions    
