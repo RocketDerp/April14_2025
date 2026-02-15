@@ -47,7 +47,7 @@ Let's go over that again from the top
 &nbsp;
 
 
-Repeating again and again: Just weeks after Trump is in Moscow dominating women in November 2013 - then Putin announces that "Conservative Men" like Elon Musk / Rupert Murdoch / Donald Trump / Taliban are going to rule the world. https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/ - then shortly after that announcement, Putin's Russia starts raping Ukraine / attacking women and children and starting a war that never ends!
+Repeating again and again: Just weeks after Trump is in Moscow dominating women in November 2013 - then Putin announces that "Conservative Men" like Elon Musk / Rupert Murdoch / Donald Trump / Taliban are going to rule the world. https://www.theAtlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/ - then shortly after that announcement, Putin's Russia starts raping Ukraine / attacking women and children and starting a war that never ends!
 
 And men in the USA / MAGA prize this kind of leadership.
 
@@ -110,6 +110,7 @@ https://autistics.life/tags/NotGoodEnoughMalala4
 https://midwest.social/post/43495283   
 
 * "They think that God is a tiny, little conservative being who would point guns at people's heads just for going to school." - July 12, 2013. ملاله یوسفزۍ
+* * Given the massive Epstein media topics... I thought this Malala quote deserved more year 2026 attention globally. I added it to WikiQuotes https://en.wikiquote.org/w/index.php?title=Malala_Yousafzai&oldid=3895541
 
 &nbsp;
 
