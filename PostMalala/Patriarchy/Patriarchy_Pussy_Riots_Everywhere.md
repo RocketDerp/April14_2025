@@ -70,3 +70,28 @@ https://bsky.app/profile/7islucky.bsky.social/post/3m36wdtrhtk2y
 
 <img width="1750" height="816" alt="image" src="https://github.com/user-attachments/assets/9bae6bb0-7977-42df-a8d7-b02f2a86a2b4" />
 
+&nbsp;
+
+&nbsp;
+
+# Epstein Riot
+
+Counter-Epstein Counter-Putin Counter-Trump Counter-Musk Counter-Murdoch   
+
+Sunday, February 15, 2026   
+Note the Sunday Church images in the music video opening   
+Church bell ring opening   
+
+HASHTAGS: #Protest #PutYourPussyOnADiet #PussyOnDiet 
+HASHTAGS: #Paparazzi #PaparazziRiot #InternetRiot #FWakeRiot 
+
+1. "Does your vagina have a brand? Let your vagina start a band. If your vagina lands in prison. Then the world is gonna listen"
+
+2. "Put your pussy on a diet then paparazzi gonna start a riot" 
+
+https://youtu.be/Bp-KeVBNz0A?t=113
+
+&nbsp;
+
+https://bsky.app/profile/roundsparrow.bsky.social/post/3mevwpappis2c   
+https://autistics.life/@RoundSparrow/116075537404854962   
