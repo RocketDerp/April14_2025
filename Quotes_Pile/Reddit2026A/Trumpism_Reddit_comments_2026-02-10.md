@@ -1774,3 +1774,7 @@ https://old.reddit.com/r/videos/comments/1r5cosj/chatgpts_president_is_trumps_bi
 
 Billionaires are wrecking society and Reddit community comments on every billionaire media domination (including Reddit itself under the thumb of non-identity influences) **to normalize** it. SATIRE_SARCASM_WASHING
 
+https://old.reddit.com/r/TrendoraX/comments/1r5jr46/is_he_right_will_it_take_generations_to_resecure/o5jhjxc/
+
+SOCIAL_MEDIA_DID_NOT Social media did not rise up. During the Trump impeachments, there was no mass uprising REDDIT_BLACKOUT . Social media protesting to the World Wide Web in USA is incredibly absent. Protesting the USA government is openly mocked on Reddit. BILLIONAIRE_MIND_VIRUS people in USA are programmed by the billionaire class to prize entertainment / sports / celebrity above all else. We The People did not please to the world PLEASE_HELP_RESCUE with mental health professionals like Dr. Bandy X Lee did in getting 27 writers for her October 3, 2017 nonfiction book. Reddit society is conditioned to NOT ASK for help in a persistent organized way to rescue MAGA cult, Fox News HDTV cultists, Newsmax cultists, etc.
+
