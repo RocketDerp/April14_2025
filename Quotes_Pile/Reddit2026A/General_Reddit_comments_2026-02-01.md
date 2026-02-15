@@ -551,3 +551,5 @@ https://old.reddit.com/r/confidentlyincorrect/comments/1r57epo/asking_someone_wh
 
 TECH_LUST_TECH_LOVERS love for truck machine, love for the weapon system machine. LOVE_ONE_ANOTHER love thy neighbor, love thy enemy isn't optional in democracy. But humanity in USA finds the hate-based economy to produce content for Reddit.
 
+https://old.reddit.com/r/EngineeringPorn/comments/1r57xp4/comparison_of_fixing_nuts/o5hbtx4/
+
