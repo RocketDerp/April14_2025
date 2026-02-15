@@ -1544,3 +1544,23 @@ https://old.reddit.com/r/Fauxmoi/comments/1r54ssz/fox_news_is_just_pro_epstein_n
 
 1 month Reddit account. SUPER_HYPER_NORMAL GIVE_UP_SURRENDER messaging.
 
+https://old.reddit.com/r/Fauxmoi/comments/1r54ssz/fox_news_is_just_pro_epstein_now/o5gno8o/
+
+Downplaying the defeat of USA and NATO by Putin and Trump as just a reporter being "a hack". 
+
+https://old.reddit.com/r/Fauxmoi/comments/1r54ssz/fox_news_is_just_pro_epstein_now/o5gffc1/
+
+7 month Reddit account.
+
+https://old.reddit.com/r/Fauxmoi/comments/1r54ssz/fox_news_is_just_pro_epstein_now/o5ggtrp/
+
+Reddit audience wants to sexually fuck child-fuckers. HATE_HARDER NOT_GOOD_ENOUGH Jen Senko, Neil Postman. Avoids non-fiction in favor or just pointing name-calling and mocking. 
+
+https://old.reddit.com/r/Fauxmoi/comments/1r54ssz/fox_news_is_just_pro_epstein_now/o5gf7sb/
+
+13 day Reddit account. Playing dumb. FAKE_OPPOSITION SATIRE_SARCASM_WASHING
+
+https://old.reddit.com/r/Fauxmoi/comments/1r54ssz/fox_news_is_just_pro_epstein_now/o5gj1jv/
+
+SUPER_HYPER_NORMAL Reddit comment itself is normalize it. No call to resist, just commenting away as usual on Reddit. No call for an Internet uprising, no call for REDDIT_BLACKOUT 
+
