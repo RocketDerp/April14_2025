@@ -1766,3 +1766,6 @@ https://old.reddit.com/r/politics/comments/1r5hraz/ghislaine_maxwell_appears_to_
 
 * "There is something **strangely inconsistent about a nation** and a press that would praise you when you say, "Be nonviolent toward Jim Clark," but will **curse and damn you** when you say, "Be nonviolent toward little brown Vietnamese children." There is something **wrong** with that press." - Atlanta, Georgia. 30 April 1967. Dr. Martin Luther King, Jr.
 
+https://old.reddit.com/r/videos/comments/1r5cosj/chatgpts_president_is_trumps_biggest_donor/o5ht27b/
+
+Self-centered egoism, only concerned about personal self. Top-uvoted comment. Also "LOL" mocking, amused at what Rupert Murdoch and other billionaires have done in society. CHUCKLEHEAD_NATION Hyper-competitive Reddit users who think it is entertaining, amusing, funny to watch others suffer at hands of predatory billionaires that have converged on Trump as leader. 
