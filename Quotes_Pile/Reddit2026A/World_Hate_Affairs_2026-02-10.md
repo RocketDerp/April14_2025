@@ -433,3 +433,13 @@ https://old.reddit.com/r/europe/comments/1r5ga51/outgoing_dutch_defense_secretar
 https://old.reddit.com/r/shittymoviedetails/comments/1r5l74g/in_spiderman_2_2004_toby_maguires_neighbor_ursula/o5jrwi8/
 
 World hate affairs.
+
+https://old.reddit.com/r/nottheonion/comments/1r5n4e3/young_woman_in_india_fakes_snake_transformation/o5k2hoa/
+
+FAMILY_HONESTY ARRANGED_MARRIAGE 
+
+Native American story "Refusal of Suitors" has snake characters.
+
+https://old.reddit.com/r/nottheonion/comments/1r5n4e3/young_woman_in_india_fakes_snake_transformation/o5k2km6/
+
+World Marriage Hate Affairs.  
