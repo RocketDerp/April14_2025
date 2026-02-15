@@ -1822,3 +1822,14 @@ Hate Based Economy. Surkov won since March 2013.
 https://old.reddit.com/r/MurderedByWords/comments/1r5k4dj/republicans_try_to_not_blame_obama_challenge/o5jdj1s/
 
 "Inverted Reality" is in the image posting and this comment both. All ignoring Russia / Putin since year 2013. WAR_AGAINST_REALITY
+
+https://old.reddit.com/r/wallstreetbets/comments/1r5pdcs/us_2025_jobs_numbers_revised_down_by_over_1/o5ki7yh/
+
+BULLSHIT_EVERYWHERE ARTIFICIAL_REALITY 
+
+https://old.reddit.com/r/wallstreetbets/comments/1r5pdcs/us_2025_jobs_numbers_revised_down_by_over_1/o5kl8v3/
+
+"cult". Reddit is a cult of mocking other cults. Media cult of Fox News vs. media cult of Reddit.
+
+https://old.reddit.com/r/wallstreetbets/comments/1r5pdcs/us_2025_jobs_numbers_revised_down_by_over_1/o5kl1jq/
+
