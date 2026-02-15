@@ -359,5 +359,6 @@ https://old.reddit.com/r/news/comments/1r4tet6/sarajevo_sniper_tourists_killed_c
 
 https://old.reddit.com/r/olympics/comments/1r4uoyl/canadas_female_curling_team_has_a_stone_removed/o5eddzd/
 
-If you want to grasp the deep motivations Cambridge Analytica, Putinism, MAGA, USA 2026, Surkovian, Trumpism taps into... read how this draws an audience. ANTICS_POLITICS . Please study Marshall McLuhan and re-read this comment section. This is the mythology Reality TV people are { winning to die for, give up power, give up democracy, give up children's future, give up wealth to }. International conflicts / drama. Rick Roderick' 1993 Self Under Siege lectures also get into this, building up to the final 8th episode.
+If you want to grasp the deep motivations Cambridge Analytica, Putinism, MAGA, USA 2026, Surkovian, Trumpism taps into... read how this draws an audience. ANTICS_POLITICS . Please study Marshall McLuhan and re-read this comment section. This is the mythology Reality TV people are { willing to die for, give up power, give up democracy, give up children's future, sacrifice marriages and authentic goodness, give up wealth to }. International conflicts / drama. Rick Roderick' 1993 Self Under Siege lectures also get into this, building up to the final 8th episode. ["Everything Is Media Ecology"](/Media_Ecology/Everything_is_ME.md)
 
+https://old.reddit.com/r/olympics/comments/1r4uoyl/canadas_female_curling_team_has_a_stone_removed/o5eagfs/
