@@ -1729,3 +1729,7 @@ It seems LOST on so many machine-lovers of Reddit that the richest men in the wo
 The Reddit hive mind cult is very avoidant of comparative mythology learning and the nonfiction 1988 book "Power of Myth" created for Star Wars fandoms at Skywalker Ranch California.
 
 * “One of the saddest lessons of history is this: If we’ve been bamboozled long enough, we tend to **reject any evidence of the bamboozle**. We’re no longer interested in finding out the truth. The bamboozle has captured us. It’s simply too painful to acknowledge, even to ourselves, that we’ve been taken. Once you give a charlatan power over you, you almost never get it back. So the old bamboozles tend to persist as the new ones rise.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, **1995**, page 241.
+
+https://old.reddit.com/r/news/comments/1r58v7n/epstein_survivor_says_women_who_recruited_her/o5h9clq/
+
+OPERA_A Lyrics: "And as the *freedom bell* rings! They start to sing: Reveal yourself, reveal yourself... The world that you created is not mightier than our means to remake it"... "Escape this childhood"... "The higher we go, climbing up to heaven or a hell or maybe something inconceivable... It used to be unspeakable!" https://www.youtube.com/watch?v=cfm4L0TGDrw 347,129 views April 16, 2020
