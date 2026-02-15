@@ -1724,4 +1724,8 @@ Read the previous messages in this thread that it is "always money". Cults and r
 
 The cult of wealth lords, the cult of Elon Musk power, cult of Trump power, cult of Rupert Murdoch power on Reddit is so strong people can't grasp the MEDIA ITSELF. The absence of understanding from Marshall McLuhan at the University of Toronto. Reddit hive mind community in year 2026 is such a celebration of ignorance and compulsive media addictions.
 
+It seems LOST on so many machine-lovers of Reddit that the richest men in the world, Bill Gates and Elon Musk, were manipulated not by MONEY - but by sex of young girls. The whole Adam and Eve storytelling is lost teaching on Reddit community. Why Islamic women are forced to cover their body and hair from men. Adam / Eve. Bible verse  Genesis 3:7 self-awareness ignorance of Reddit media cultists. Reddit hive minded cult is so ignorant of the techniques of their own cult indoctrination.  Surah Al-A'raf 7:22. ٱلأعراف storytelling. RELIGION_CULTS_MONOMYTH_PROGRAMMING
+
+The Reddit hive mind cult is very avoidant of comparative mythology learning and the nonfiction 1988 book "Power of Myth" created for Star Wars fandoms at Skywalker Ranch California.
+
 * “One of the saddest lessons of history is this: If we’ve been bamboozled long enough, we tend to **reject any evidence of the bamboozle**. We’re no longer interested in finding out the truth. The bamboozle has captured us. It’s simply too painful to acknowledge, even to ourselves, that we’ve been taken. Once you give a charlatan power over you, you almost never get it back. So the old bamboozles tend to persist as the new ones rise.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, **1995**, page 241.
