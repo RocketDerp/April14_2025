@@ -1738,6 +1738,11 @@ https://old.reddit.com/r/clevercomebacks/comments/1r5fh17/ai_slop_in_the_big_26/
 
 Posting itself has an image with a comment "It's so funny"... CHUCKLEHEAD_NATION that billionaires are creating content images for Reddit fandom. TRUMP_FANDOM Trump family images. The more fake and fiction-based, the more Reddit cult flocks to every image of Trump family. Laughing away in the Reddit audience at the one AWESOME TALENT AND GIFT the Trump Family has - Reality TV "The Apprentice" skills and experience. Reddit cult members, Reddit account holders, can not grasp they are in a cult of high-speed image delivery of Trump. LAUGHTER_THE_BEST_MINDFUCK Neil Postman's 1985 nonfiction book "Amusing Ourselves To Death" https://en.wikipedia.org/wiki/Amusing_Ourselves_to_Death goes into detail about Reddit fandom behaviors and mental outcomes of USA.
 
+https://old.reddit.com/r/MurderedByWords/comments/1r5istc/we_all_know_the_smile_is_not_real/o5j307e/
+
+Reddit is a society of tech lovers, technology workers lead so much of the Reddit community. Cults of tech images, CGI in films, etc. Media cultists. Billionaires like Trump provide so much content for the Reddit fandom that avoids nonfiction serious learning (such as Dr. Bandy X Lee's 27 nonfiction contributors to her October 3, 2017 book; such as Jen Senko's year 2015 / 2016 nonfiction film to deal with brainwashing cults of billionaires via media systems). TECH_LUST_TECH_LOVERS Reddit image cultists.
+
+
 https://old.reddit.com/r/MurderedByWords/comments/1r5istc/we_all_know_the_smile_is_not_real/o5j2fs6/
 
 Another front-page Reddit posting for cult of Trump photographs on Reddit. Instantly upvoted to /r/All. Day after day, hour after hour, cultists of images flock to celebrity Trump. Addictions drive the USA, a social media Twitter addict since June 6, of year 2011 has been leading USA society in media addictions to celebrity icons and status symbols. Trump mastered Twitter and cultivated the Reddit social fandom cravings. https://theoutline.com/post/2445/trump-s-first-real-tweet-was-on-july-6-2011 Surkov won since March 2013.
