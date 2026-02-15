@@ -560,3 +560,6 @@ OPERA_A Lyrics: "If your vagina lands in prison, then the whole world's going to
 https://old.reddit.com/r/AmIOverreacting/comments/1r5fo45/am_i_overreacting_new_boyfriend_was_weirdly/o5idu80/
 
 Daddy issues. parenting issues. Religion indoctrination. Fox News fandom issues. Trump daddy issues. Joe Rogan daddy issues. Andrew Tate daddy issues.  
+
+https://old.reddit.com/r/news/comments/1r5og06/fbi_dna_recovered_from_glove_found_near_guthrie/o5kbati/
+
