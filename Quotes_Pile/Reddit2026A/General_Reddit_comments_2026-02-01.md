@@ -556,3 +556,7 @@ https://old.reddit.com/r/EngineeringPorn/comments/1r57xp4/comparison_of_fixing_n
 https://old.reddit.com/r/AmIOverreacting/comments/1r5fo45/am_i_overreacting_new_boyfriend_was_weirdly/o5idox3/
 
 OPERA_A Lyrics: "If your vagina lands in prison, then the whole world's going to listen." "Don't play stupid, don't play dumb". https://youtu.be/Bp-KeVBNz0A
+
+https://old.reddit.com/r/AmIOverreacting/comments/1r5fo45/am_i_overreacting_new_boyfriend_was_weirdly/o5idu80/
+
+Daddy issues. parenting issues. Religion indoctrination. Fox News fandom issues. Trump daddy issues. Joe Rogan daddy issues. Andrew Tate daddy issues.  
