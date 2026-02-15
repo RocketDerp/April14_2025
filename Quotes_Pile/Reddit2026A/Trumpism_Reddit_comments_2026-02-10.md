@@ -1818,3 +1818,7 @@ DENIAL_ABOUNDS within the USA, there is massive denial that MAGA is a dangerous 
 https://old.reddit.com/r/TrendoraX/comments/1r5jr46/is_he_right_will_it_take_generations_to_resecure/o5jf22j/
 
 Hate Based Economy. Surkov won since March 2013.
+
+https://old.reddit.com/r/MurderedByWords/comments/1r5k4dj/republicans_try_to_not_blame_obama_challenge/o5jdj1s/
+
+"Inverted Reality" is in the image posting and this comment both. All ignoring Russia / Putin since year 2013. WAR_AGAINST_REALITY
