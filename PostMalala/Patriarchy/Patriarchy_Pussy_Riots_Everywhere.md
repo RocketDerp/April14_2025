@@ -95,3 +95,4 @@ https://youtu.be/Bp-KeVBNz0A?t=113
 
 https://bsky.app/profile/roundsparrow.bsky.social/post/3mevwpappis2c   
 https://autistics.life/@RoundSparrow/116075537404854962   
+https://MidWest.Social/post/43497501   
