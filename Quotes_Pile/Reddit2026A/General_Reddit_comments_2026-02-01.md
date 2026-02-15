@@ -532,3 +532,22 @@ https://old.reddit.com/r/pcmasterrace/comments/1r557x7/western_digital_runs_out_
 https://old.reddit.com/r/Weird/comments/1r54smt/angeline_jolie_and_her_brother_james_haven_had_a/o5gg4px/
 
 Reddit fandoms can't grasp why certain people are so attractive. Why entire population behaves like certain strangers are best friends when all they have ever seen is images or at venues. Worship of celebrity. People can't understand their attraction to Trump on the front page of /r/All every hour of every day since June 16, 2015. Celebrity cults.
+
+https://old.reddit.com/r/confidentlyincorrect/comments/1r57epo/asking_someone_what_alternating_traffic_means/o5gvviw/
+
+SENSATIONAL_CONTENT
+
+https://old.reddit.com/r/confidentlyincorrect/comments/1r57epo/asking_someone_what_alternating_traffic_means/o5h37ia/
+
+https://old.reddit.com/r/confidentlyincorrect/comments/1r57epo/asking_someone_what_alternating_traffic_means/o5gujys/
+
+Competition. 
+
+OPERA_A Lyrics: "America spells competition, join us in our blind ambition. Get yourself a **brand new motor car**. Someday soon we'll stop to ponder what on earth's this spell we're under... We made the grade and still we wonder who the hell we are..." https://www.youtube.com/watch?v=8U1lDNrxp04 1,852 views July 8, 2023 
+
+https://old.reddit.com/r/confidentlyincorrect/comments/1r57epo/asking_someone_what_alternating_traffic_means/o5gw7be/
+
+https://old.reddit.com/r/confidentlyincorrect/comments/1r57epo/asking_someone_what_alternating_traffic_means/o5gzgti/
+
+TECH_LUST_TECH_LOVERS love for truck machine, love for the weapon system machine. LOVE_ONE_ANOTHER love thy neighbor, love thy enemy isn't optional in democracy. But humanity in USA finds the hate-based economy to produce content for Reddit.
+
