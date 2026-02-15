@@ -1688,3 +1688,14 @@ It is Sunday, Church day:
 
 * Sunday February 28, 1954: "Most **people can't stand up for their convictions, because the majority of people might not be doing it. See, everybody's not doing it, so it must be wrong.** And since everybody is doing it, it must be right. So a sort of numerical interpretation of what's right. But I'm here to say to you this morning that some things are right and some things are wrong. Eternally so, absolutely so." - MLK Jr.
 
+https://old.reddit.com/r/news/comments/1r58v7n/epstein_survivor_says_women_who_recruited_her/o5hj62b/
+
+This is happening WITH MARRIAGES. Canadian and USA marriages are broken apart. FAMILY_HONESTY Fox News families are broken apart from reality! Fox News audiences are living mythology of billionaire cults. ANTI_REALITY I know HUNDREDS of people I have met in person. People are entirely not seeing this went on during the COVID-2019 pandemic, people who were aggressive and gleeful to spread a virus and STILL TO THIS DAY can not admit they were bamboozled by Putin! 
+
+Trying to get people to break free from their fiction cult when the Arab Spring changed from online idealism of women in Tunisia / Algeria 2009 and 2010 to pro-men Islam violence in Egypt in late 2011 / early 2012 was a real eye-opening EXPERIENCE for me. Malala came on the scene in year 2012, and all the Arab Spring women I knew from 2009 and 2010 did NOT jump on the Malala leadership! Even in Iran this year, 2026, you do NOT see the promotion of Malala as a world-wide call to support young girls. Even with EPSTEIN abuse of young girls, you do not see people promoting Malala's year 2013 writings and book tour interviews / speeches! People are NOT standing up for little girls being given a voice, people are flocking to private jet rich white men discussions.
+
+Even Ukraine children are not being discussed with Putin's systemic abuse RIGHT NOW! Epstein old white powerful men are getting all the attention. https://en.wikipedia.org/wiki/Child_abductions_in_the_Russo-Ukrainian_war
+
+* "Now this is a **very serious affair. It is serious because these symbolic worlds were the supports of the civilizations, of the moralities of the civilizations**, of the self-confidence of the civilizations, of the vitality and creative power of the civilizations. And with the cutting down, the frustrating of the self-confidence that derives from images of this kind, there is a disequilibrium within the society itself. And everyone is challenged in his loyalty — are you going to be loyal to the tradition, to the form, to the **morality and myth of your society, or are you going to be loyal to truth?** They are two different things." - November 16, 1961. https://GitHub.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Specific/Joseph_Campbell_Loyalty_Myth.md
+
+People on Reddit are not WOKE, MEDIA_WOKE as to their own programming from Reddit itself.
