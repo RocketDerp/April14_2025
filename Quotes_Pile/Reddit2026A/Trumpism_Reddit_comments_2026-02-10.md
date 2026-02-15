@@ -1804,3 +1804,7 @@ USA population has learned nothing good about Quran and Mosque since September 1
 
 The same thing has basically gone wrong with MAGA. Instead of going inward and facing the crisis of Fox News TV / HDTV cult since October 3, 1996 and recognizing the terrorism mental programming that Rupert Murdoch was cultivating... we did not take serious the need for INWARD INNER meditation and self-reflection to weed out out-group hate desires. One of the most notable was **Jen Senko's crowd-funding in year 2014 year 2015 for her film about brainwashing in USA of her father**. https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad People did not see this inner-Jihad programming topic... and how certain media venues (like Mosque venues, right-wing conservative venues, Radio Mullah, Fox News, Newsmax, Reddit, Twitter, Alex Jones, Joe Rogan, Facebook) cultivate out-group hate patterns. 
 
+https://old.reddit.com/r/TrendoraX/comments/1r5jr46/is_he_right_will_it_take_generations_to_resecure/o5jdpyc/
+
+3 month Reddit account.
+
