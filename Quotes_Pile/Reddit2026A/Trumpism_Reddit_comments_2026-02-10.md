@@ -1699,3 +1699,19 @@ Even Ukraine children are not being discussed with Putin's systemic abuse RIGHT 
 * "Now this is a **very serious affair. It is serious because these symbolic worlds were the supports of the civilizations, of the moralities of the civilizations**, of the self-confidence of the civilizations, of the vitality and creative power of the civilizations. And with the cutting down, the frustrating of the self-confidence that derives from images of this kind, there is a disequilibrium within the society itself. And everyone is challenged in his loyalty — are you going to be loyal to the tradition, to the form, to the **morality and myth of your society, or are you going to be loyal to truth?** They are two different things." - November 16, 1961. https://GitHub.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Specific/Joseph_Campbell_Loyalty_Myth.md
 
 People on Reddit are not WOKE, MEDIA_WOKE as to their own programming from Reddit itself.
+
+https://old.reddit.com/r/news/comments/1r58v7n/epstein_survivor_says_women_who_recruited_her/o5hn5vt/
+
+"LOL", so amused. CHUCKLEHEAD_NATION
+
+https://old.reddit.com/r/news/comments/1r58v7n/epstein_survivor_says_women_who_recruited_her/o5h6vzq/
+
+yes. When the Arab Spring changed from online idealism of women in Tunisia / Algeria 2009 and 2010 to pro-men Islam violence in Egypt in late 2011 / early 2012 was a real eye-opening EXPERIENCE for me. Malala came on the scene in year 2012, and all the Arab Spring women I knew from 2009 and 2010 did NOT jump on the Malala leadership! Even in Iran this year, 2026, you do NOT see the promotion of Malala as a world-wide call to support young girls. Even with EPSTEIN abuse of young girls, you do not see people promoting Malala's year 2013 writings and book tour interviews / speeches! People are NOT standing up for little girls being given a voice, people are flocking to private jet rich white men discussions.
+
+NOT_GOOD_ENOUGH Malala. People will not actively promote her, actively quote her books, etc.
+
+* “We felt like the Taliban saw us as like little dolls to control, telling us what to do and how to dress. I thought if God wanted us to be like that He would not have made us all different.” ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. Published October 8, 2013.
+
+https://old.reddit.com/r/news/comments/1r58v7n/epstein_survivor_says_women_who_recruited_her/o5h8yga/
+
+"LMAO", laugh-track for Reddit audiences. BANAL_WASH_LAUGH_TRACK
