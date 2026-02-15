@@ -1502,4 +1502,15 @@ https://old.reddit.com/r/Fauxmoi/comments/1r54ssz/fox_news_is_just_pro_epstein_n
 
 This is Reddit. Which has let the IRA overrun Reddit since March 2013. The anti-intellectual anti-nonfiction attitudes. Avoiding Jen Senko about brainwashing topic.  https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad people say "cult", "Fox News", "right-wing media" all over Reddit - but when "The Little Gal" stands up to right-wing media with a nonfction film. Crickets from Reddit in terms of promoting her name and film more than Epstein and more than just complain the word "cult". Putin has put Reddit into a simulation of resisting.
 
+https://old.reddit.com/r/Fauxmoi/comments/1r54ssz/fox_news_is_just_pro_epstein_now/o5ggdtd/
+
+<img width="1452" height="261" alt="image" src="https://github.com/user-attachments/assets/6ca1ed13-b863-4408-a9eb-97f343d0db47" />
+
+AMUSING_ZOMBIES CHUCKLEHEAD_NATION
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3meuz3rfwqs2r https://autistics.life/@RoundSparrow/116073459562443342 }
+
+https://old.reddit.com/r/Fauxmoi/comments/1r54ssz/fox_news_is_just_pro_epstein_now/o5ge1e9/
+
+1 month Reddit account. The entire USA is sick. People should have been spending all their available time, free time, spare time **commenting on social media with nonfiction quotes** from Jen Senko about brainwashing, Dr. Bandy X Lee about mental health and Malala about girls. Instead, Reddit is a sick diseased mindset joke-washing meme-washing platform. NOT_GOOD_ENOUGH
 
