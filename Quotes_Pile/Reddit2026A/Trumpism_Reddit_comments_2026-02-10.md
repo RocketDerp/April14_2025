@@ -1466,4 +1466,6 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1r4wjny/because_cult/o5ep78
 
 Posting and comment "cult", "cults". But people can't describe media cults, content cults. People do not meet Mohamamd, people engage media storytelling: Quran. People do not meet god or Jesus, they encounter a wildly creative science fiction story, The Bible media. This is the Bible verse "1 John 4:20" crisis - you have only seen a story, not god. RELIGION_CULTS_MONOMYTH_PROGRAMMING
 
+https://old.reddit.com/r/PoliticalHumor/comments/1r4wyqi/kristis_comfort_blanket_was_found/o5ewtr2/
 
+Reddit is a billionaire fandom, media cultists. Reddit end-user cultists will tolerate any abuse and Trumpism if media systems keep producing stimulating images. There is no Internet protest / Internet uprising because the cult of images and memes and low-effort comment content is what Cambridge Analytica and the IRA programmed into minds. The Trump government / Kremlin system is prized as a constant source of entertainment. TRUMP_FANDOM 
