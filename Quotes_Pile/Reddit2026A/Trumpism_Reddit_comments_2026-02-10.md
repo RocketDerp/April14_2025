@@ -1491,3 +1491,15 @@ Reddit is a fandom of stupid media and stupid leaders. Reddit society is not org
 https://old.reddit.com/r/PublicFreakout/comments/1r50fq8/argentinians_are_not_happy_about_trumps_puppet/o5fjbkc/
 
 SIMULATION_SIMULACRA
+
+https://old.reddit.com/r/Fauxmoi/comments/1r54ssz/fox_news_is_just_pro_epstein_now/o5gdx1b/
+
+Top upvoted popular comment. Twitter-length short-think short-message patterns. MIND_BLOWN_BY billionaire Rupert Murdoch. Fox News has been around since October 7 of yer 1996. And Reddit community is so ignorant about media ecology of NYC, that people predictably have their minds blown about billionaires using Fox News network for control of the USA population. People on Reddit also behave as if Reddit, which is decades established, isn't overrun by Russia's IRA and Elon Musk owner of ISP Starlink, Memphis datacenter, Twitter resources, etc. Reddit community has done everything it can to avoid serous and sustained following of the lead created by Jen Senko since year 2015.
+
+https://old.reddit.com/r/Fauxmoi/comments/1r54ssz/fox_news_is_just_pro_epstein_now/o5ge70t/
+
+https://old.reddit.com/r/Fauxmoi/comments/1r54ssz/fox_news_is_just_pro_epstein_now/o5gd4rm/
+
+This is Reddit. Which has let the IRA overrun Reddit since March 2013. The anti-intellectual anti-nonfiction attitudes. Avoiding Jen Senko about brainwashing topic.  https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad people say "cult", "Fox News", "right-wing media" all over Reddit - but when "The Little Gal" stands up to right-wing media with a nonfction film. Crickets from Reddit in terms of promoting her name and film more than Epstein and more than just complain the word "cult". Putin has put Reddit into a simulation of resisting.
+
+
