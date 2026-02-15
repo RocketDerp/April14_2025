@@ -420,5 +420,8 @@ NATO is wrecked by Putin since March 2013. Surkov won.
 
 https://old.reddit.com/r/europe/comments/1r5ga51/outgoing_dutch_defense_secretary_tuinman_if_the/o5ip341/
 
-Reddit users should call for Reddit corporation to return Reddit to open source like it was at the start of Reddit website. There should be independent owner operators and federation backend peering and Usenet protocol peerings, a Usenet The Next Generation. And add subreddit.subredditsub.name conventions instead of one long flat list of subreddit names.
+Reddit users should call for Reddit corporation to return Reddit to open source like it was at the start of Reddit website. There should be independent owner operators and federation backend peering and Usenet protocol peerings, a Usenet The Next Generation. And add subreddit.subredditsub.name conventions instead of one long flat list of subreddit names. SMTP is an open system, Reddit-like Usenet-like social media should be. Lemmy has far too many scaling performance problems, but it is good to have.
 
+https://old.reddit.com/r/europe/comments/1r5ga51/outgoing_dutch_defense_secretary_tuinman_if_the/o5imvxu/
+
+Remote operated drones are a far better investment for the future than piloted aircraft. The cost of fighter jets with men inside is extremely high.
