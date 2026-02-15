@@ -507,3 +507,7 @@ https://old.reddit.com/r/Silksong/comments/1r4yawd/e1331_has_deleted_his_account
 
 https://old.reddit.com/r/Silksong/comments/1r4yawd/e1331_has_deleted_his_account/o5f42wr/
 
+https://old.reddit.com/r/worldnews/comments/1r53rm5/air_india_flight_171_crash_pilot_deliberately_cut/o5gd4fp/
+
+TECH_LUST_TECH_LOVERS who hate human beings and want to die with their love, machines.
+
