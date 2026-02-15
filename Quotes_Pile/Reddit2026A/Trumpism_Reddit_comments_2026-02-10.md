@@ -1795,3 +1795,12 @@ https://old.reddit.com/r/TrendoraX/comments/1r5jr46/is_he_right_will_it_take_gen
 DEFLECTION_FROM_BILLIONAIRES_AND_PUTINISM Predicable Americans blame Americans reaction thinking on Reddit. Messaging to Reddit cults to blame *the other cults* and not look back for origins of the anti-NATO cult creation and organized bamboozle since year 2013. 
 
 * “One of the saddest lessons of history is this: If we’ve been bamboozled long enough, we tend to **reject any evidence of the bamboozle**. We’re no longer interested in finding out the truth. The bamboozle has captured us. It’s simply too painful to acknowledge, even to ourselves, that we’ve been taken. Once you give a charlatan power over you, you almost never get it back. So the old bamboozles tend to persist as the new ones rise.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, **1995**, page 241.
+
+https://old.reddit.com/r/TrendoraX/comments/1r5jr46/is_he_right_will_it_take_generations_to_resecure/o5jblwv/
+
+USA population has learned nothing good about Quran and Mosque since September 11, 2001. 9/11 lessons of studying cult behavior. RELIGION_CULTS_MONOMYTH_PROGRAMMING 
+
+* "October 24, 2003 — "Jihad" is a loaded term — and a concept that illustrates a deep gulf of **miscommunication between Islam and the West**." https://www.nationalgeographic.com/culture/article/what-does-jihad-really-mean-to-muslims
+
+The same thing has basically gone wrong with MAGA. Instead of going inward and facing the crisis of Fox News TV / HDTV cult since October 3, 1996 and recognizing the terrorism mental programming that Rupert Murdoch was cultivating... we did not take serious the need for INWARD INNER meditation and self-reflection to weed out out-group hate desires. One of the most notable was **Jen Senko's crowd-funding in year 2014 year 2015 for her film about brainwashing in USA of her father**. https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad People did not see this inner-Jihad programming topic... and how certain media venues (like Mosque venues, right-wing conservative venues, Radio Mullah, Fox News, Newsmax, Reddit, Twitter, Alex Jones, Joe Rogan, Facebook) cultivate out-group hate patterns. 
+
