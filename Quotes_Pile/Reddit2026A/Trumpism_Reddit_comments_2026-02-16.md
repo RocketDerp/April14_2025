@@ -54,3 +54,26 @@ SUPER_HYPER_NORMAL downplaying, mocking, trivializing ICE. All predictable condi
 
 Social post { https://autistics.life/@RoundSparrow/116080457357914367 https://bsky.app/profile/roundsparrow.bsky.social/post/3mey4ke3xtk2r }
 
+https://old.reddit.com/r/MurderedByWords/comments/1r67z8l/trumps_first_amendment_is_officially_dead/o5o5xqz/
+
+19 day Reddit account. Top-upvoted most popular. "Trump Derangement Syndrome". Discussing RECENCY_BIAS but no call to intellectually organize and use information systems to make important critical topics in focus. ANTI_WIKI_ANTI_FAQ
+
+https://old.reddit.com/r/MurderedByWords/comments/1r67z8l/trumps_first_amendment_is_officially_dead/o5o7nrx/
+
+"Accept it and move on". GIVE_UP_SURRENDER
+
+https://old.reddit.com/r/MurderedByWords/comments/1r67z8l/trumps_first_amendment_is_officially_dead/o5oekoc/
+
+"Imagine". Fiction outsells nonfiction. 
+
+* October 19, 2024. "America's gullibility crisis" by Zachary Basu  https://www.axios.com/2024/10/19/musk-ackman-election-misinformation [“The truth is, it’s getting harder to describe the extent to which a **meaningful percentage of Americans have dissociated from reality**,” Charlie Warzel wrote “I’m Running Out of Ways to Explain How Bad This Is.” - October 19, 2024 - America’s gullibility crisis, Zachary Basu](https://www.axios.com/2024/10/19/musk-ackman-election-misinformation) ===:::
+
+https://old.reddit.com/r/MurderedByWords/comments/1r67z8l/trumps_first_amendment_is_officially_dead/o5o6yar/
+
+And, of course, the Reddit media and Bluesky media cults will mock the Fox News HDTV cults in a cult vs. cult total mockery. PREDICTABLE_OUTCOME - all the while thee billionaires keep manipulating the minds on Reddit to keep hating upon Fellow Americans instead of RESCUING MAGA / Rescuing Hearts and Minds from Putin.
+
+https://old.reddit.com/r/MurderedByWords/comments/1r67z8l/trumps_first_amendment_is_officially_dead/o5o7auu/
+
+Blocking people on Reddit is intimidation via billionaire media systems. Blocking on Bluesky. Casual dehumanization. **Step out of line, self-censorship**. People constantly afraid of triggering a block, walking on eggshells, because the USA in total (not just Republicans, not just MAGA, not just Fox News and Newsmax HDTV fandoms) is in a hate-harder contest. A race to the bottom of who can hate and dehumanize harder and harder. 
+
+* "Russia-watcher Catherine Fitzpatrick, who documents Kremlin disinformation for InterpreterMag . com, says just as **Moscow uses vague Internet laws to encourage self-censorship**, trolls inhibit informed debate by using crude **dialogue to change "the climate of discussion."** "If you show up at The Washington Post or New Republic sites, where there's an article that's critical of Russia, and you see that there are 200 comments that sound like they were written by 12-year-olds, then you just don't bother to comment," she says.  "You don't participate. It's a way of just driving discussion away completely," she adds. "Those kinds of tactics are meant to stop democratic debate, and **they work**." - Year 2014. Fucking year 2014. https://www.theatlantic.com/international/archive/2014/08/the-kremlins-troll-army/375932/
