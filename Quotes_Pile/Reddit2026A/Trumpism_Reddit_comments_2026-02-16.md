@@ -209,3 +209,9 @@ https://old.reddit.com/r/videos/comments/1r6duz7/massie_says_epstein_files_withh
 
 World Hate Affairs. At least how people view them.
 
+https://old.reddit.com/r/Economics/comments/1r6gild/companies_set_to_unleash_sweeping_price_hikes/o5pzba5/
+
+SOCIAL_CULT_HATE_WATCHING_FANDOM  Reddit's Trump content cult. "oh good" opening. "wondering how bad it will have to get for the gop pedo cult to dare criticize"
+
+How bad does the USA have to get before Reddit media cult members do a Reddit uprising? ROUTINE_NO_NEED_TO_RESIST_OR_ORGANIZE_INTELLECTUAL_UPRISING
+
