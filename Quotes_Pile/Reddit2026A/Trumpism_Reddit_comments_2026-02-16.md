@@ -223,3 +223,7 @@ https://old.reddit.com/r/Economics/comments/1r6gild/companies_set_to_unleash_swe
 
 "not many people know" **important and relevant topics** of macroeconomics that impact everyone in USA. Alas, people are unattractive to use numerous information systems like Reddit to organize a priority-based adult education program. MAGA is a cult that celebrates ignorance, and people have all joined in with the values of avoiding the antidote to ignorance: educating and teaching adults instead of celebrating and cheering on the failures caused by ignorance.  Why are We The People on Reddit not creating organized teaching lessons so that people comprehend and understand the crisis Trump is originating? COMPREHENDING_UNDERSTANDING
 
+https://old.reddit.com/r/politics/comments/1r6kgku/billionaire_trump_donor_closing_us_plant_and/o5qt88t/
+
+CYNICAL_ACCEPT_IT Don't resist USA. Just accept that the only thing that matters is a few hours on voting day every 4 years. Just sit back on your Reddit meme device with the Reddit app and accept the situation. Don't organize a Reddit social media protest / Reddit blackout. AVOIDING: promoting Dr. Bandy X Lee nonfiction books on paper. AVOIDING: cult deprogramming for the Fox News HDTV audience.
+
