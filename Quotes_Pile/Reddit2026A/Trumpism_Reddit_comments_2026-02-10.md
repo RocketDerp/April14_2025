@@ -1933,3 +1933,8 @@ COMPREHENDING_UNDERSTANDING Everyone, not just Republicans, not just MAGA, has b
 https://old.reddit.com/r/Fauxmoi/comments/1r5ujs4/aoc_talks_about_the_pain_and_the_vitriol_she_has/o5lm4pk/
 
 We have a population that prizes shit-commenting and shit-posting above nonfiction serious books for adult learning. It was not always this way. Surkov won since March 2013.
+
+https://old.reddit.com/r/Fauxmoi/comments/1r5ujs4/aoc_talks_about_the_pain_and_the_vitriol_she_has/o5lp2dd/
+
+The cult of celebrity and cult of deception leaders DECEPTION_LEADERSHIP runs all the way down to the 15 year-old kids. Billionaires have the 15 year old kids prizing influencers that are just as shitty in their ambitions for power as Donald Trump. Cults of low-effort commenting and mocking sources and insult sources is a problem from elderly to youth, everyone.
+
