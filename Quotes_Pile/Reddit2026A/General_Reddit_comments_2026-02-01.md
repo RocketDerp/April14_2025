@@ -569,3 +569,11 @@ https://old.reddit.com/r/Fauxmoi/comments/1r5v37z/robin_williams_on_trump_in_201
 
 Excellent films that teach important monomyth goodness patterns.
 
+https://old.reddit.com/r/LivestreamFail/comments/1r60c5e/after_spending_years_talking_about_how_daughters/o5mwm85/
+
+https://old.reddit.com/r/LivestreamFail/comments/1r60c5e/after_spending_years_talking_about_how_daughters/o5ngdk7/
+
+https://old.reddit.com/r/LivestreamFail/comments/1r60c5e/after_spending_years_talking_about_how_daughters/o5msub4/
+
+https://old.reddit.com/r/LivestreamFail/comments/1r60c5e/after_spending_years_talking_about_how_daughters/o5msui5/
+
