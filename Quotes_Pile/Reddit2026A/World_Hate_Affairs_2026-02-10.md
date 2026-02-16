@@ -460,3 +460,4 @@ https://old.reddit.com/r/videos/comments/1r68tc5/irish_citizens_tortured_by_ice_
 
 CONDITIONED_OPPOSITION messaging about future books. Media cults on Reddit want book media content. Instead of using Reddit to put an end to this Trump media content creation, people keep discussing their desires for more content about the events. This is a cult of information, history book cult. STOP MAKING HISTORY OF BADNESS, MAKE HISTORY FOR REDDIT_BLACKOUT and INTERNET_UPRISING to put an END to Trumpism and Putinism with education and teaching of nonfiction serious topics! CHANGE THE WORLD RIGHT NOW using Reddit commenting: Promote Dr. Bandy X Lee's writings. Promote Jen Senko's nonfiction film and book!
 
+https://old.reddit.com/r/okbuddycinephile/comments/1r67mk1/they_got_quentin_tarantino_dawg/o5o8x8b/
