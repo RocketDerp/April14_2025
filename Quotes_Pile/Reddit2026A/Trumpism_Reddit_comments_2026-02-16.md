@@ -42,9 +42,13 @@ Downplaying the threat. SUPER_HYPER_NORMAL  Extreme tiny-short messaging on Redd
 
 https://old.reddit.com/r/AskReddit/comments/1r679nl/if_you_have_criticized_ice_here_on_reddit_for/o5o1cb5/
 
+<img width="1211" height="535" alt="Screenshot from 2026-02-16 06-02-57" src="https://github.com/user-attachments/assets/1bdb8106-d083-40e8-bdc5-d9e7eb6797a5" />
+
 SUPER_HYPER_NORMAL downplaying, mocking, trivializing ICE. All predictable conditioned mental programming by the billionaires. Facts and reality don't matter or concern streaming meme cults /information cultists who want to mock joke inside the ICE total mockery. Everything in USA that Trump does is a source of entertainment and memes for Reddit. LOL cow milking society that has normalized Trump via joke-washing sane-washing normalizing.
 
 "I'm so unworried", highly upvoted comment, popular. CONTEXT_ASSERTION Trumpism is unstoppable. ICE USA, MAGA USA, Trump in power. Putin and Trump partnerships against Canada, NATO, etc. Billionaires are focused and organized against resistance. Project 2025 plan continues forward.
 
 * “The human brain can protect us from seeing and feeling what it believes may be **too uncomfortable for us to tolerate. It can lead us to deny, defend, minimize**, or rationalize away something that doesn’t fit our worldview.” ― Dr. Bandy X Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. Published **October 3, 2017**. Page 273. Chapter "TRUMP'S DADDY ISSUES"](https://books.google.com/books?id=g0c4DwAAQBAJ&pg=PA273&dq=%E2%80%9CThe+human+brain+can+protect+us+from+seeing+and+feeling+what+it+believes+may+be+too+uncomfortable%22&hl=en&newbks=1&newbks_redir=1&sa=X)
+
+Social post { https://autistics.life/@RoundSparrow/116080457357914367 https://bsky.app/profile/roundsparrow.bsky.social/post/3mey4ke3xtk2r }
 
