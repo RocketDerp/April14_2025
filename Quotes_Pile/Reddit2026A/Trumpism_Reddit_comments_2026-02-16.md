@@ -196,3 +196,11 @@ https://old.reddit.com/r/politics/comments/1r6gu9l/ice_traffic_stop_ends_in_deat
 
 SUPER_HYPER_NORMAL as long as the Reddit end-users get to make their mark with a digital comment on cloud servers. No resistance, normalizing it as fast as possible. The cult of Reddit is only concerned to leave a "first post", "I was here" Reddit comment message about **the mass dehumanization going on in United States of America February 2026**. This is an "ALL OK", "ALL CLEAR", egoism ("I am still here") style message to society. ROUTINE_NO_NEED_TO_RESIST_OR_ORGANIZE_INTELLECTUAL_UPRISING 
 
+https://old.reddit.com/r/videos/comments/1r6duz7/massie_says_epstein_files_withheld_over_israeli/o5pelxg/
+
+https://old.reddit.com/r/videos/comments/1r6duz7/massie_says_epstein_files_withheld_over_israeli/o5phfoz/
+
+Yes. PROGRESS_WOKE_REFORM_REMEDIAL Putin and Ukraine is raging away and Trump is clearly under the influence of Putin as a "Daddy issue" as are so many in cults to male power leaders. Powerful people following men who abuse young girls is a world-wide issue.
+
+* “We felt like the Taliban saw us as like little dolls to control, telling us what to do and how to dress. I thought if God wanted us to be like that He would not have made us all different.”
+― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. October 8, 2013.
