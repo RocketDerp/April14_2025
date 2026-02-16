@@ -215,3 +215,6 @@ SOCIAL_CULT_HATE_WATCHING_FANDOM  Reddit's Trump content cult. "oh good" opening
 
 How bad does the USA have to get before Reddit media cult members do a Reddit uprising? ROUTINE_NO_NEED_TO_RESIST_OR_ORGANIZE_INTELLECTUAL_UPRISING
 
+https://old.reddit.com/r/Economics/comments/1r6gild/companies_set_to_unleash_sweeping_price_hikes/o5q0tow/
+
+I don't think people are shocked any more than the "shock" they feel watching an episode of a fiction television show when a character dies or a fiction character is hospitalized. People in USA are avoiding the "forest for the trees" perspective, avoiding reality itself, living in personalize filter-bubbles. PERSONALIZED_FILTER_BUBBLE Trump has created economic conditions where people can go to numerous media venues and comment away how much they hate other people. It's a hate-based economy. People are incredibly concerned to make their own unique personal comments about Trump and Putin events... anything to avoid getting on the same page with other people and having a common nonfiction understanding. People are far more attracted to their own personal commenting.
