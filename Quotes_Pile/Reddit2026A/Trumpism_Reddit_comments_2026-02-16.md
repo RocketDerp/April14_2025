@@ -52,7 +52,7 @@ SUPER_HYPER_NORMAL downplaying, mocking, trivializing ICE. All predictable condi
 
 * “The phenomenon we have witnessed in Germany was nothing less than outbreak of epidemic insanity... No one knew what was happening to him, least of all of the Germans, who allowed themselves to be driven to the slaughterhouse by their leading psychopaths like hypnotized sheep.” - Dr. Carl Jung, After the Catastrophe, 1945
 
-Social post { https://autistics.life/@RoundSparrow/116080457357914367 https://bsky.app/profile/roundsparrow.bsky.social/post/3mey4ke3xtk2r }
+Social post { https://autistics.life/@RoundSparrow/116080457357914367 https://bsky.app/profile/roundsparrow.bsky.social/post/3mey4ke3xtk2r https://MidWest.Social/post/43534800 }
 
 https://old.reddit.com/r/MurderedByWords/comments/1r67z8l/trumps_first_amendment_is_officially_dead/o5o5xqz/
 
