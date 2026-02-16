@@ -132,4 +132,8 @@ https://old.reddit.com/r/LetsDiscussThis/comments/1r6a8b6/reminder_that_was_a_ph
 
 https://old.reddit.com/r/LetsDiscussThis/comments/1r6a8b6/reminder_that_was_a_photo_op/o5oljx7/
 
-3 day Reddit account. This is the SUBMITTER (Reddit terminology) of the entire front page /r/all Posting). SURKOVIAN_CHESS
+3 day Reddit account. This is the SUBMITTER (Reddit terminology) of the entire front page /r/all Posting). SURKOVIAN_CHESS Carefully crafted generic non-specific (wildcard meaning) clickbait posting title "Reminder: that was a photo op"; flair: "Lets Discuss Politics" 
+
+https://old.reddit.com/r/LetsDiscussThis/comments/1r6a8b6/reminder_that_was_a_photo_op/o5oq4im/
+
+Extreme Twitter-think, short-tiny messages in minds. Pure logic binary computer lust. "ALWAYS a lie, never the truth" thinking. Trump is a perfect always reliable source of false information. Reddit is a cult of ignorance. TECH_LUST_TECH_LOVERS 1-bit binary logical mindsets. IGNORANCE_CELEBRATIONS posting.
