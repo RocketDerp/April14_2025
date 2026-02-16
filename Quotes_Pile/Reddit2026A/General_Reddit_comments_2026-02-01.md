@@ -589,3 +589,7 @@ https://old.reddit.com/r/Unexpected/comments/1r684o5/local_wildlife_disturbing_a
 
 It is fiction content. That's what Reddit audiences desire and crave. Fiction to taste and measure and grade. Instead of doing an Internet WWW uprising to remove Donald Trump from the USA and do cult deprogramming with nonfiction books to rescue MAGA... free time and spare time is instead consuming fiction media. Nonfiction real-world reality concerns are abandoned. Because the technology of cameras and high-speed video delivery to smartphones is what matters to the population, images.
 
+https://old.reddit.com/r/Fauxmoi/comments/1r6bdml/silence_of_the_lambs_star_ted_levine_says_he/o5ovh4z/
+
+People need to admit REAL_PEOPLE_ADMIT that lavish talented performers are used to brainwash the population into out-group hate patterns. Levant science fiction stories that clergy has found so profitable and powerful. Hollywood films find profit in selling hate against genders, hate of women, exploitation of real-world relationships for profit and power concentration. Comparative mythology education is not optional.
+
