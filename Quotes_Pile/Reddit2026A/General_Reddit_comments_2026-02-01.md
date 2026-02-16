@@ -593,3 +593,6 @@ https://old.reddit.com/r/Fauxmoi/comments/1r6bdml/silence_of_the_lambs_star_ted_
 
 People need to admit REAL_PEOPLE_ADMIT that lavish talented performers are used to brainwash the population into out-group hate patterns. Levant science fiction stories that clergy has found so profitable and powerful. Hollywood films find profit in selling hate against genders, hate of women, exploitation of real-world relationships for profit and power concentration. Comparative mythology education is not optional.
 
+https://old.reddit.com/r/nottheonion/comments/1r65e7a/lawyers_increasingly_have_to_convince_clients/o5nvv1t/
+
+Similar to Rupert Murdoch, billionaire-provided media. Billionaires have invested in this new ChatGPT media system (and competitors) to cultivate a media cult. CULT_INDOCTRINATION
