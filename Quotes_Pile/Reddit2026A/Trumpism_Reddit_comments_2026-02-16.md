@@ -123,3 +123,8 @@ TRUMP_FANDOM Reddit commenting community is a cult. Trump fanaticism. The media 
 https://old.reddit.com/r/LetsDiscussThis/comments/1r6a8b6/reminder_that_was_a_photo_op/o5ookss/
 
 11 day Reddit account. Here to turn it into jokes and memes. Instead of using spare time and free time to call for people to support Dr. Bandy X Lee's nonfiction book... to REMOVE Trump. SATIRE_SARCASM_WASHING sane-washing Trump as a fun source of mocking and showing a deep faith that what we need out of Trump bullshit is *even more bullshitting*.
+
+https://old.reddit.com/r/LetsDiscussThis/comments/1r6a8b6/reminder_that_was_a_photo_op/o5op0d2/
+
+9 month Reddit account. 3 words long. Super-simple anti-intellectual. 
+
