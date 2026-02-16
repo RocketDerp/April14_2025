@@ -1991,3 +1991,11 @@ In other words, they play language games. People manipulate other people with co
 * “There is a cult of ignorance in the United States, and there has always been. The strain of anti-intellectualism has been a constant thread winding its way through our political and cultural life, nurtured by the false notion **that democracy means that 'my ignorance is just as good as your knowledge.”** ― Isaac Asimov. Year 1980.
 
 Communications timing and messages is used to create fiction, untrue, ignorant statements. Then people RACE at high speeds to Apple iPhone / Apple iPad / Android devices to comment upon that ignorance. And the commenting does not show serious and persistent concern that we all need to be focusing on Neil Postman's 1985 nonfiction book "Amusing Ourselves To Death".
+
+We are in a feedback loop, MAGA vs non-MAGA, in thousands of variations. Our computing information systems have overrun the human brain with looping shit-talking shit-commenting shit-posting. The USA invented social media, the USA invented TCP/IP. The USA is in feedback loops about Epstein and Trump.
+
+Social post { https://autistics.life/@RoundSparrow/116080043002884460 https://bsky.app/profile/roundsparrow.bsky.social/post/3mexwptbyec2i }
+
+https://old.reddit.com/r/AdviceAnimals/comments/1r5wg7m/its_so_obvious/o5nkhck/
+
+Reddit commenting section is attracted to shit information. Shit knowledge. IGNORANCE_CELEBRATIONS "Advice Animals"
