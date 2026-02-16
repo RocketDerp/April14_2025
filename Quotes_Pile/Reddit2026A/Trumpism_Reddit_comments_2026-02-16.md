@@ -227,3 +227,7 @@ https://old.reddit.com/r/politics/comments/1r6kgku/billionaire_trump_donor_closi
 
 CYNICAL_ACCEPT_IT Don't resist USA. Just accept that the only thing that matters is a few hours on voting day every 4 years. Just sit back on your Reddit meme device with the Reddit app and accept the situation. Don't organize a Reddit social media protest / Reddit blackout. AVOIDING: promoting Dr. Bandy X Lee nonfiction books on paper. AVOIDING: cult deprogramming for the Fox News HDTV audience.
 
+https://old.reddit.com/r/politics/comments/1r6kgku/billionaire_trump_donor_closing_us_plant_and/o5qsdr6/
+
+Tiny-short commenting, Twitter-length thinking, Tweet mindsets as programmed in to audiences by Twitter owner Elon Musk. BILLIONAIRE_MIND_VIRUS brain rot on Reddit commenting from prizing low-value information day in and day out. 
+
