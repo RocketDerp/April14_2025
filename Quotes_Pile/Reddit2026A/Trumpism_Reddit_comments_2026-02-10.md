@@ -1963,3 +1963,18 @@ There are thoughts in my mind in 1996 that come back to me. When I pondered if p
 
 * “Ours is the first age in which many thousands of the best-trained individual minds have made it a full-time business to get inside the collective public mind.”
 ― Marshall McLuhan, The Mechanical Bride : Folklore of Industrial Man. year 1951.
+
+https://old.reddit.com/r/AdviceAnimals/comments/1r5wg7m/its_so_obvious/o5mtfkz/
+
+People act like it is a 3 hour event to be President for 4 years. Trump could have quit before the election. He could resign at any time. the fantasy people have that Trump's travel to/front the White House is all some kind of accident is ridiculous. It takes labor and effort. Trump is not passive and inactive. Trump breaks convention on thousands and thousands of President issues. He could quit and say that that the USA is so corrupt that it should all be burned down. Such a dramatic quitting  would probably inspire We The People to wreck goodness more than we already have.
+
+The anti-goodness Trump is leading is hard work, labor. Even his media appearances and being on camera is exhausting. His mind is working at full capacity to promote hate leadership (which Reddit follows, hate harder competition, always more hate in following Trump's lead. Always more Reddit fiction and bullshit in the face of Trump's bullshit and fiction).
+
+https://old.reddit.com/r/AdviceAnimals/comments/1r5wg7m/its_so_obvious/o5ne7k7/
+
+People are drowning important topics as "Advice Animals" on Reddit /r/AdviceAnimals memes. People do have the concept of a nonfiction book, people do know what Wiki systems look like. But they would rather create comment after comment over and over and over. It's so sickening that people think all being on different pages at different times is not a "We the People" problem. The October 3, 2017 nonfiction book by Dr. Bandy X Lee with 27 contributors isn't good enough for people to find common ground to teach, educate, and quote from. NOT_GOOD_ENOUGH 
+
+
+
+
+
