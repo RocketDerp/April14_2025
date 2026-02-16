@@ -596,3 +596,11 @@ People need to admit REAL_PEOPLE_ADMIT that lavish talented performers are used 
 https://old.reddit.com/r/nottheonion/comments/1r65e7a/lawyers_increasingly_have_to_convince_clients/o5nvv1t/
 
 Similar to Rupert Murdoch, billionaire-provided media. Billionaires have invested in this new ChatGPT media system (and competitors) to cultivate a media cult. CULT_INDOCTRINATION
+
+https://old.reddit.com/r/nottheonion/comments/1r65e7a/lawyers_increasingly_have_to_convince_clients/o5ppgj8/
+
+CONTEXT_BEWILDERMENT what area of human life do these things NOT MATTER? "require correct interpretation. Context matters a lot"... this is a general society-wide information systems problem. We do not teach every person, and we outright have billionaires spending as much money and employing / contracting the most talented artists manipulating everyday people. Nation states have manipulated minds.
+
+* May 7, 2017  https://www.TheGuardian.com/technology/2017/may/07/the-great-british-brexit-robbery-hijacked-democracy This is not just a story about social psychology and data analytics. It has to be understood in terms of a military contractor using military strategies on a civilian population. Us. David Miller, a professor of sociology at Bath University and an **authority in psyops and propaganda**, says it is “an extraordinary scandal that this should be anywhere near a democracy. It should be clear to voters where information is coming from, and if it’s not transparent or open where it’s coming from, **it raises the question of whether we are actually living in a democracy or not.**” Paul and David, another ex-Cambridge Analytica employee, were working at the firm when it introduced mass data-harvesting to its psychological warfare techniques. “It brought psychology, propaganda and technology together in this **powerful new way**,” David tells me.
+
+
