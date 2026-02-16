@@ -984,3 +984,10 @@ THIS MOST POPULAR UPVOTED COMMENT is NOT RESISTING. It is a SIMULATION, an alter
 
 Reddit is a cult of mockery and mocking, lead by Donald Trump - professional media Reality TV creator working with an army of Fox News HDTV fiction authors, etc. Reddit is not RESISTING the anti-intellectual cults, Reddit is amplifying the ignorance worship and ritualizing the worship of ignorance.
 
+https://old.reddit.com/r/International/comments/1r6i4du/this_is_how_we_start_to_make_america_great_again/o5qnrii/
+
+This whole front page Reddit posting is a fake image, fantasy visual politics, this is simulation of resistance. Why is Reddit not having a blackout? ROUTINE_NO_NEED_TO_RESIST_OR_ORGANIZE_INTELLECTUAL_UPRISING
+
+https://old.reddit.com/r/International/comments/1r6i4du/this_is_how_we_start_to_make_america_great_again/o5qgknj/
+
+It's far from the ONLY problem. The major problems are that people keep COMMENTING and posting IMAGES of Donald Trump like this one. People keep commenting and more commenting with all their spare time and free time. People are stuck "inside the box thinking", over and over. Why is Reddit not promoting Dr. Bandy X Lee's nonfiction leadership and education for the general public? Why is Reddit not organizing online protesting? REDDIT_BLACKOUT 
