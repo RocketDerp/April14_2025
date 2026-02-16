@@ -9,6 +9,16 @@ https://bsky.app/profile/roundsparrow.bsky.social/post/3meyntczw3s23
 
 &nbsp;
 
+Donald Trump is a Twitter burnout. I've been a professional in social media / medium since year 1985. I have traveled to Africa and the Middle East to study Twitter / Facebook / Reddit usage in the #ArabSpring2010
+
+Donald Trump is a Twitter Burnout. His mind is conditioned into the patterns of Tweet thinking. And the people who react back at Trump are compulsively drawn into these conditioned Twitter mindsets.
+
+As a society, when #Canadian Marshall McLuhan died in year 1980 and then Neil Postman died 2003 we were not ready for year 2007 iPhone 1.
+
+&nbsp;
+
+&nbsp;
+
 ## Future 
 
 ToDo: future ...
