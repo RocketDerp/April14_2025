@@ -1865,4 +1865,13 @@ https://old.reddit.com/r/law/comments/1r5s9r6/reddit_is_voluntarily_giving_dhs_i
 
 11 month Reddit account. And expanding the point: Reddit admins and Reddit moderators behave like ICE, masked secret police, reporting and removing people without identity.
 
+https://old.reddit.com/r/videos/comments/1r5ngps/sober_people_being_arrested_nationwide_for_dui/o5kadwz/
+
+POLICE_STATE
+
+https://old.reddit.com/r/videos/comments/1r5ngps/sober_people_being_arrested_nationwide_for_dui/o5k7igu/
+
+USA lore stories on Reddit thread, lots of replies. Maximum egoism. 
+
+My experience: From August 1999 to February 2009 I lived in an RV many of those years worked from home since August 1999. Many a days working in bars on Sunday through Thursday when they are not busy to get WiFi on my laptop all over the USA at happy hour 2pm to 6pm for food specials. Then go into the parking lot and watch TV / movies / read until 11pm and go find a place to park the RV on the street. Amazing how many cities in USA you see people come in after work (or off work early) at 3:30pm to 5pm and slam down 5 to 10 drinks in 60 to 90 minutes and then go drive home. Horrific ethics. Driving in rush hour 5pm to 7pm drunk.
 
