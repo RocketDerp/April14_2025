@@ -443,3 +443,15 @@ Native American story "Refusal of Suitors" has snake characters.
 https://old.reddit.com/r/nottheonion/comments/1r5n4e3/young_woman_in_india_fakes_snake_transformation/o5k2km6/
 
 World Marriage Hate Affairs.  
+
+https://old.reddit.com/r/videos/comments/1r68tc5/irish_citizens_tortured_by_ice_detainees_gamble/o5obddk/
+
+World hate affairs.
+
+https://old.reddit.com/r/videos/comments/1r68tc5/irish_citizens_tortured_by_ice_detainees_gamble/o5oy6o0/
+
+What is **happening across all social media in the world is horrible**. Putin and Trump keep harming people over and over and over, year after year, and people keep commenting about it with original creatively written unique personalized comments. This commenting engagement is how Surkov information warfare works. Surkovian governing is about constantly keeping media consumers, media cultists, caged in their mindsets. "Inside the box" thinking. Why is Reddit and Bluesky not having an internet uprising calling for the removal of Donald Trump from office? What is happening across all the world wide web is people AVOIDING calling for Dr. Bandy X Lee's leadership in mental health professionals educating and teaching the general public. The WWW being used to address EVERYONE on planet Earth about the dangers!
+
+NOT_GOOD_ENOUGH - why are people on Reddit not alarmed enough to turn to mental health leaders and start educating everyone with quotes from nonfiction books?
+
+* "the **public trust is also violated if the profession fails in its duty to alert the public** when a person who holds the power of life and death over us all shows signs of clear, dangerous mental impairment. We should pause if professionals are asked to remain silent when they have seen enough evidence to sound an alarm in every other situation. When it comes to dangerousness, should not the president of a democracy, as First Citizen, be subject to the same standards of practice as the rest of the citizenry?" ― Bandy X. Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. Published October 3, 2017. PROLOGUE. Page 5.](https://books.google.com/books?id=g0c4DwAAQBAJ&pg=PA5&dq=dangerousness+due+to+mental+disorder+can+become+apparent+without+a+full+diagnostic+interview+and+can+be+detected+from+a+distance&hl=en&newbks=1&newbks_redir=1&sa=X)
