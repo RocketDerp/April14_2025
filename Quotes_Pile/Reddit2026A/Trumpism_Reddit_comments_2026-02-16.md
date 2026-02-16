@@ -250,3 +250,6 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1r6gayu/mtg_is_still_puttin
 
 "hilarious" to cultists of commenting on Reddit media how Americans in cults had their minds fucked-over by billionaires and Russia. CHUCKLEHEAD_NATION
 
+https://old.reddit.com/r/CuratedTumblr/comments/1r6lykp/after_2024_im_reporting_any_more_i_see_as_bots/o5r44tk/
+
+Yes. And this image-posting is cult programming to join in with MAGA values. GIVE_UP_ANTI_EDUCATION_ANTI_TEACH_ANTI_PROGRESS Anti-intellectual, anti-education, anti-teaching, anti assertion of goodness. Why isn't Reddit comment section quoting and repeating Dr. Bandy X Lee's nonfiction works over and over? 
