@@ -77,3 +77,13 @@ https://old.reddit.com/r/MurderedByWords/comments/1r67z8l/trumps_first_amendment
 Blocking people on Reddit is intimidation via billionaire media systems. Blocking on Bluesky. Casual dehumanization. **Step out of line, self-censorship**. People constantly afraid of triggering a block, walking on eggshells, because the USA in total (not just Republicans, not just MAGA, not just Fox News and Newsmax HDTV fandoms) is in a hate-harder contest. A race to the bottom of who can hate and dehumanize harder and harder. 
 
 * "Russia-watcher Catherine Fitzpatrick, who documents Kremlin disinformation for InterpreterMag . com, says just as **Moscow uses vague Internet laws to encourage self-censorship**, trolls inhibit informed debate by using crude **dialogue to change "the climate of discussion."** "If you show up at The Washington Post or New Republic sites, where there's an article that's critical of Russia, and you see that there are 200 comments that sound like they were written by 12-year-olds, then you just don't bother to comment," she says.  "You don't participate. It's a way of just driving discussion away completely," she adds. "Those kinds of tactics are meant to stop democratic debate, and **they work**." - Year 2014. Fucking year 2014. https://www.theatlantic.com/international/archive/2014/08/the-kremlins-troll-army/375932/
+
+https://old.reddit.com/r/MurderedByWords/comments/1r67z8l/trumps_first_amendment_is_officially_dead/o5o80n2/
+
+https://old.reddit.com/r/MurderedByWords/comments/1r67z8l/trumps_first_amendment_is_officially_dead/o5o7n5t/
+
+<img width="1008" height="356" alt="image" src="https://github.com/user-attachments/assets/6fa8fa3c-a2f2-435f-a0a8-db39bab1fe50" />
+
+ICE_FANDOM Reddit audience is a consumer base for selling of turd sandwiches and profiting off a constant demand. A cult of eating turds from I.C.E. and declaring how they taste that day. Instead of addressing the cult of ICE employees, addressing the Fox News HDTV cult Rupert Murdoch has created with media systems... Reddit community is a fandom of turd sandwiches. SEE_ALSO: https://GitHub.com/RocketDerp/April14_2025/blob/main/Grim_Blunt/Society_of_grading_and_ranking_turds.md
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3meyfiuloyk2y https://autistics.life/@RoundSparrow/116081083466253749 }
