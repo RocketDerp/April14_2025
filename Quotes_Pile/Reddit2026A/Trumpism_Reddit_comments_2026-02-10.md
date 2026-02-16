@@ -1857,4 +1857,12 @@ https://old.reddit.com/r/law/comments/1r5s9r6/reddit_is_voluntarily_giving_dhs_i
 
 Yes. WE THE PEOPLE have to make a case for authentic democracy and sharing. It's Sunday... LOVE_ONE_ANOTHER is not optional. We can't have cults of people whose desire is to go around with gangs of hate to wreck the lives of women. Or gangs of hate that are programmed by billionaires to fuck-over poor people and punch-down. Love and compassion are not optional. A hate-based economy is a shit place to live. The motivation that hate provides is aggressive and wrecks things for the children. Future is trashed with hate as an objective and hate-based systems. AMERICANS_HATE_AMERICANS
 
+https://old.reddit.com/r/law/comments/1r5s9r6/reddit_is_voluntarily_giving_dhs_info_of_users/o5l82oo/
+
+https://old.reddit.com/r/law/comments/1r5s9r6/reddit_is_voluntarily_giving_dhs_info_of_users/o5lbrw3/
+
+https://old.reddit.com/r/law/comments/1r5s9r6/reddit_is_voluntarily_giving_dhs_info_of_users/o5l8579/
+
+11 month Reddit account. And expanding the point: Reddit admins and Reddit moderators behave like ICE, masked secret police, reporting and removing people without identity.
+
 
