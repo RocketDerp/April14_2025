@@ -1774,3 +1774,237 @@ https://old.reddit.com/r/videos/comments/1r5cosj/chatgpts_president_is_trumps_bi
 
 Billionaires are wrecking society and Reddit community comments on every billionaire media domination (including Reddit itself under the thumb of non-identity influences) **to normalize** it. SATIRE_SARCASM_WASHING
 
+https://old.reddit.com/r/TrendoraX/comments/1r5jr46/is_he_right_will_it_take_generations_to_resecure/o5jhjxc/
+
+SOCIAL_MEDIA_DID_NOT Social media did not rise up. During the Trump impeachments, there was no mass uprising REDDIT_BLACKOUT . Social media protesting to the World Wide Web in USA is incredibly absent. Protesting the USA government is openly mocked on Reddit. BILLIONAIRE_MIND_VIRUS people in USA are programmed by the billionaire class to prize entertainment / sports / celebrity above all else. We The People did not please to the world PLEASE_HELP_RESCUE with mental health professionals like Dr. Bandy X Lee did in getting 27 writers for her October 3, 2017 nonfiction book. Reddit society is conditioned to NOT ASK for help in a persistent organized way to rescue MAGA cult, Fox News HDTV cultists, Newsmax cultists, etc.
+
+https://old.reddit.com/r/TrendoraX/comments/1r5jr46/is_he_right_will_it_take_generations_to_resecure/o5jco94/
+
+ANTI_WIKI_ANTI_FAQ the USA society of social media commenting, the society, is socialized to avoid FAQ, avoid nonfiction books, avoid FAQ. Instead, people create millions and millions of high-speed low-effort commenting that puts the USA population (everyone, not just voters) all on different pages of topics. People live in filter-bubble mindsets https://en.wikipedia.org/wiki/Filter_bubble extremely critical adult education is ignored. Leaders like Dr. Bandy X Lee with serious topics. are avoided in favor of RFK Jr and other entertainment originators. Surkov won since March 2013.
+
+https://old.reddit.com/r/TrendoraX/comments/1r5jr46/is_he_right_will_it_take_generations_to_resecure/o5jb0zv/
+
+22 day Reddit account. popular upvoted comment. SURKOVIAN_CHESS game playing that this is strictly a focus on "The Democrats" and not NATO vs. Russia information warfare since March 2013. IN OTHER WORDS: The topic is only representatives, not We The People being directly manipulated to avoid nonfiction since March 2013 by the Saint Petersburg Internet Research Agency. This Reddit comment serves to blame anyone but the Reddit comment community for avoiding defense of hearts and minds. Brain rot society, Reddit brain rot, is the far larger problem that impacts people not even commenting about the urgent and critical importance to constantly be quoting Dr. Bandy X Lee, promote Jen Senko's nonfiction brainwashing film, etc.
+
+https://old.reddit.com/r/TrendoraX/comments/1r5jr46/is_he_right_will_it_take_generations_to_resecure/o5jdd21/
+
+Gullible Reddit user calling Trump "braindead". Putin and Trump have been excellent at engaging the Reddit comment section with antics and outrageous content creation. As a influencer and celebrity, Trump has exceeded every media superstar in world history. This Reddit comment is IGNORANCE_CELEBRATIONS to downplay Trump's cult power, media camera appearance power, Trump's Reality TV acting background, etc. Reddit is a cult of denial of Reddit itself being a cult venue for Trump content. Reddit distributes Putin-Trump propaganda constantly, but Reddit users are unable to study Surkovian information warfare and Surkov governing techniques and methods. Minds are too compulsively reactionary. Rephrased another way, this Reddit user "ate the onion" and thinks Trump is "braindead" when Trump has run circles around the USA playing POTUS Tony Clifton character and using Surkov student screenplays. This linked Reddit comment is an example of SURKOVIAN_ONION_EATING - mentally downplaying reality of Trump's social power.
+
+https://old.reddit.com/r/TrendoraX/comments/1r5jr46/is_he_right_will_it_take_generations_to_resecure/o5jh99o/
+
+DEFLECTION_FROM_BILLIONAIRES_AND_PUTINISM Predicable Americans blame Americans reaction thinking on Reddit. Messaging to Reddit cults to blame *the other cults* and not look back for origins of the anti-NATO cult creation and organized bamboozle since year 2013. 
+
+* “One of the saddest lessons of history is this: If we’ve been bamboozled long enough, we tend to **reject any evidence of the bamboozle**. We’re no longer interested in finding out the truth. The bamboozle has captured us. It’s simply too painful to acknowledge, even to ourselves, that we’ve been taken. Once you give a charlatan power over you, you almost never get it back. So the old bamboozles tend to persist as the new ones rise.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, **1995**, page 241.
+
+https://old.reddit.com/r/TrendoraX/comments/1r5jr46/is_he_right_will_it_take_generations_to_resecure/o5jblwv/
+
+USA population has learned nothing good about Quran and Mosque since September 11, 2001. 9/11 lessons of studying cult behavior. RELIGION_CULTS_MONOMYTH_PROGRAMMING 
+
+* "October 24, 2003 — "Jihad" is a loaded term — and a concept that illustrates a deep gulf of **miscommunication between Islam and the West**." https://www.nationalgeographic.com/culture/article/what-does-jihad-really-mean-to-muslims
+
+The same thing has basically gone wrong with MAGA. Instead of going inward and facing the crisis of Fox News TV / HDTV cult since October 3, 1996 and recognizing the terrorism mental programming that Rupert Murdoch was cultivating... we did not take serious the need for INWARD INNER meditation and self-reflection to weed out out-group hate desires. One of the most notable was **Jen Senko's crowd-funding in year 2014 year 2015 for her film about brainwashing in USA of her father**. https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad People did not see this inner-Jihad programming topic... and how certain media venues (like Mosque venues, right-wing conservative venues, Radio Mullah, Fox News, Newsmax, Reddit, Twitter, Alex Jones, Joe Rogan, Facebook) cultivate out-group hate patterns. 
+
+https://old.reddit.com/r/TrendoraX/comments/1r5jr46/is_he_right_will_it_take_generations_to_resecure/o5jdpyc/
+
+3 month Reddit account.
+
+https://old.reddit.com/r/TrendoraX/comments/1r5jr46/is_he_right_will_it_take_generations_to_resecure/o5jc7xy/
+
+DENIAL_ABOUNDS within the USA, there is massive denial that MAGA is a dangerous cult. Denial all over Reddit, denial all over Bluesky. People are in cults of denial itself. We have nothing to fear but denial itself. Cult deprogramming, **avoiding non-fiction adult learning**, is a crisis that is impacting every intellectual and decision-making activity in the nation. We The People are in denial. We have a national, population wide, not just voters, EVERYONE crisis of mental health.
+
+* “The human brain can protect us from seeing and feeling what it believes may be too uncomfortable for us to tolerate. It can lead us to deny, defend, minimize, or rationalize away something that doesn’t fit our worldview.”
+― Dr. Bandy X Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. Published **October 3, 2017**. Page 273. Chapter "TRUMP'S DADDY ISSUES"](https://books.google.com/books?id=g0c4DwAAQBAJ&pg=PA273&dq=%E2%80%9CThe+human+brain+can+protect+us+from+seeing+and+feeling+what+it+believes+may+be+too+uncomfortable%22&hl=en&newbks=1&newbks_redir=1&sa=X)
+
+https://old.reddit.com/r/TrendoraX/comments/1r5jr46/is_he_right_will_it_take_generations_to_resecure/o5jf22j/
+
+Hate Based Economy. Surkov won since March 2013.
+
+https://old.reddit.com/r/MurderedByWords/comments/1r5k4dj/republicans_try_to_not_blame_obama_challenge/o5jdj1s/
+
+"Inverted Reality" is in the image posting and this comment both. All ignoring Russia / Putin since year 2013. WAR_AGAINST_REALITY
+
+https://old.reddit.com/r/wallstreetbets/comments/1r5pdcs/us_2025_jobs_numbers_revised_down_by_over_1/o5ki7yh/
+
+BULLSHIT_EVERYWHERE ARTIFICIAL_REALITY 
+
+https://old.reddit.com/r/wallstreetbets/comments/1r5pdcs/us_2025_jobs_numbers_revised_down_by_over_1/o5kl8v3/
+
+"cult". Reddit is a cult of mocking other cults. Media cult of Fox News vs. media cult of Reddit.
+
+https://old.reddit.com/r/wallstreetbets/comments/1r5pdcs/us_2025_jobs_numbers_revised_down_by_over_1/o5kl1jq/
+
+https://old.reddit.com/r/law/comments/1r5s9r6/reddit_is_voluntarily_giving_dhs_info_of_users/o5l6u7x/
+
+https://old.reddit.com/r/law/comments/1r5s9r6/reddit_is_voluntarily_giving_dhs_info_of_users/o5l5qdd/
+
+Yes. As that would inspire more hate following to Trump. When leading with hate, you troll Reddit into Matthew 4:19 being caught with hate chasing. Reddit follows leaders of hate. Note the absence of MLK Jr quotes and lecturing (even on today, a Sunday). Note the lack of any sentiment or concept of rescuing MAGA from Putin and Murdoch manipulation. Even with all the NATO signs in public that show Russia has wrecked people into hatting good long-term stable partnerships with USA. Attacking Canada makes no sense for USA, but it is great for Putin. Surkov won since March 2013.
+
+https://old.reddit.com/r/law/comments/1r5s9r6/reddit_is_voluntarily_giving_dhs_info_of_users/o5ld98m/
+
+BEYOND_DENIAL.  Yes. The Reddit cult fandom of Trump has been thrilled that every person in the nation is manic and engaged to Trump ideas, copying Trump behaviors. Even if they claim it is satire and sarcasm, the END RESULT is living in a nation of non-stop always-on Trumpism. Any time day or night, wild antics and breaking news. High speed BREAKING NEWS ADDICTIONS are what Reddit users dream of and why Trump has so much power. Surkovian governing.
+
+https://old.reddit.com/r/law/comments/1r5s9r6/reddit_is_voluntarily_giving_dhs_info_of_users/o5l8b64/
+
+Enough is ENOUGH. People need to stop threatening ICE. ICE employees are a cult to Fox News HDTV. Ice is a cult to Truth Social media systems. ICE is a cult to Newsmax. Start addressing the CULT and MENTAL HEALTH issues. Nobody is taking the high road of sustained education, re-education, adult education. Stand up for authentic goodness. Stop celebrating ignorance, stop celebrating MAGA failures and ICE failures as "wins", none of this is goodness. People have ABANDONED actually desiring an INTELLIGENT and REASONABLY thinking nation. Call for people to follow, teach, quote, study, repeat Dr. Bandy X Lee's 27 contributors to her October 3, 2017 nonfiction book.
+
+https://old.reddit.com/r/law/comments/1r5s9r6/reddit_is_voluntarily_giving_dhs_info_of_users/o5la1uv/
+
+"cult". Reddit is also a cult. EVERYONE is avoiding Dr. Bandy X Lee and Jen Senko's leadership. It has become a CULT of commenting over and over about the OTHER CULTS. Media cultists vs. media cultists. Everyone has fallen into the quagmire of Fox News mindsets, everyone has been dragged down to where Fox News was in year 2015. Mindsets are wrecked. TURN TO Dr. Bandy X Lee's leadership! Turn to Jen Senko's example. CRY OUT LOUD! Cry for mental health help on cults, nonfiction cult deprogramming REAL_PEOPLE_ADMIT ADMIT TO THE CULT PROBLEMS IN A SEROUS NON-SNARK NON-MOCKING WAY! End the mockery. Admit that Putin wrecked your neighbors hearts and minds. 
+
+https://old.reddit.com/r/law/comments/1r5s9r6/reddit_is_voluntarily_giving_dhs_info_of_users/o5l9aw3/
+
+https://old.reddit.com/r/law/comments/1r5s9r6/reddit_is_voluntarily_giving_dhs_info_of_users/o5l93t1/
+
+Yes. WE THE PEOPLE have to make a case for authentic democracy and sharing. It's Sunday... LOVE_ONE_ANOTHER is not optional. We can't have cults of people whose desire is to go around with gangs of hate to wreck the lives of women. Or gangs of hate that are programmed by billionaires to fuck-over poor people and punch-down. Love and compassion are not optional. A hate-based economy is a shit place to live. The motivation that hate provides is aggressive and wrecks things for the children. Future is trashed with hate as an objective and hate-based systems. AMERICANS_HATE_AMERICANS
+
+https://old.reddit.com/r/law/comments/1r5s9r6/reddit_is_voluntarily_giving_dhs_info_of_users/o5l82oo/
+
+https://old.reddit.com/r/law/comments/1r5s9r6/reddit_is_voluntarily_giving_dhs_info_of_users/o5lbrw3/
+
+https://old.reddit.com/r/law/comments/1r5s9r6/reddit_is_voluntarily_giving_dhs_info_of_users/o5l8579/
+
+11 month Reddit account. And expanding the point: Reddit admins and Reddit moderators behave like ICE, masked secret police, reporting and removing people without identity.
+
+https://old.reddit.com/r/videos/comments/1r5ngps/sober_people_being_arrested_nationwide_for_dui/o5kadwz/
+
+POLICE_STATE
+
+https://old.reddit.com/r/videos/comments/1r5ngps/sober_people_being_arrested_nationwide_for_dui/o5k7igu/
+
+USA lore stories on Reddit thread, lots of replies. Maximum egoism. 
+
+My experience: From August 1999 to February 2009 I lived in an RV many of those years worked from home since August 1999. Many a days working in bars on Sunday through Thursday when they are not busy to get WiFi on my laptop all over the USA at happy hour 2pm to 6pm for food specials. Then go into the parking lot and watch TV / movies / read until 11pm and go find a place to park the RV on the street. Amazing how many cities in USA you see people come in after work (or off work early) at 3:30pm to 5pm and slam down 5 to 10 drinks in 60 to 90 minutes and then go drive home. Horrific ethics. Driving in rush hour 5pm to 7pm drunk.
+
+https://old.reddit.com/r/videos/comments/1r5ngps/sober_people_being_arrested_nationwide_for_dui/o5lh53a/
+
+Autistic people have real trouble with police like that. People who think they can instantly detect if you are telling lies or nervous because of eye contact, gestures, speech patterns.
+
+* "Autistic individuals are roughly seven times more likely to encounter law enforcement than neurotypical peers, with nearly 20% having interactions by adulthood, often leading to, dangerous misunderstandings due to, communication differences. Behaviors like avoiding eye contact, stimming, or non-responsiveness can be misinterpreted as defiance, causing, potentially, fatal escalations."; "Misinterpretation of Behaviors: Self-stimulatory behaviors (rocking, hand-flapping) or, avoiding eye contact may be mistaken for guilt, drug use, or mental instability."; "Communication Barriers: Autistic individuals may not respond to, verbal commands instantly, or may become non-verbal (shutdown) under stress."; "Sensory Overload: Flashing lights, sirens, and, multiple officers can trigger, a, "fight-or-flight" response." - Google Search summary. 2026-02-15 evening USA.
+
+https://old.reddit.com/r/politics/comments/1r5l8k2/trumps_plot_to_steal_the_midterm_elections_is/o5jo5ru/
+
+Top-voted comment. One of the saddest things is Reddit community. You have a technically experienced community, but they are so compulsive in creating fresh unique comments all on different pages at slightly different times... they do not see the forest for the trees. Reddit community has the knowledge and skills to organize, but can not see the complete ABSENCE of organization.
+
+I've proposed "Every 47 Hours" everyday people get together (whoever is available) for 90 minutes and do a FAQ and Wiki edits. https://GitHub.com/GreatSealUSA/Brainrot_Society_47/tree/main/Every_47_Hours Publish a "top 10" or "top 15" list every 47 hours of PRIORITIES and AWARENESS education and teaching (for graphic artists, comics, etc). Start organizing an INTELLECTUAL resistance and RESCUE people from billionaire Fox News, billionaire Musk Twitter, billionaire Facebook, billionaire Truth Social, etc.
+
+We The People, no matter if eligible to vote or even in the USA, have it in our interest to organize the most important information that keeps us on a long-term path of goodness. The anti-FAQ anti-Wiki behaviors have drowned out "getting on the same page" of important topics. ANTI_WIKI_ANTI_FAQ
+
+https://old.reddit.com/r/politics/comments/1r5l8k2/trumps_plot_to_steal_the_midterm_elections_is/o5jq5fe/
+
+3 month Reddit account. Highly upvoted (2nd).
+
+https://old.reddit.com/r/politics/comments/1r5l8k2/trumps_plot_to_steal_the_midterm_elections_is/o5jnh7l/
+
+3 month Reddit account. Promoting the idea that half the country is the crisis. Why isn't "the good half" of the nation rescuing the other half? Real people ADMIT we have a MASSIVE mental health crisis in our nation. REAL_PEOPLE_ADMIT Why is Dr. Bandy X Lee being ignored and her 27 contributors to her October 3, 2017 book not being quoted over and over every day on Reddit... why isn't Reddit organizing a blackout protest? If it is only "half the nation" in a cult to Trump engagement and Trump media, why are ALL people ignoring Dr. Bandy X Lee since year 2017? 
+
+My answer is that it is a TOTAL NATION cult, 100%, not 50%, not 30%. EVERYONE, even non-voters. Because quoting and citing Dr. Bandy X Lee's leadership and calling for, begging, people to follow and support Dr. Lee's is an OBVIOUS GOODNESS MOVE. But media cultists only want to comment over and over how much they hate other Americans. This avoidance of serious nonfiction learning has been going on since year 2017 when her book was published. AMERICANS_HATE_AMERICANS
+
+https://old.reddit.com/r/politics/comments/1r5l8k2/trumps_plot_to_steal_the_midterm_elections_is/o5l81k4/
+
+The problem is people come to social platforms every day, and REACT to the White House. People are in feedback loops of reaction-commenting to Trump / MAGA / Kremlin / White House. ANTI_WIKI_ANTI_FAQ
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1r5n9aa/this_lying_sack_of_shit_and_the_weirdos_that/o5ksef0/
+
+Reddit is a cult of mocking Trump. A cult of mockery. Trump leads the mockery and Reddit cult follows the leader. TRUMP_FANDOM Why isn't there a FAQ or Wiki about this shooting? Why are these low-effort social media shit-postings and shit-commenting prized just like Truth Social is full of shit-posting and shit-commenting. After years, nobody has assembled a FAQ? ANTI_WIKI_ANTI_FAQ This is a cult of ignorance on Reddit that loves shit-commenting. A MEDIA CULT. High-speed commenting addictions. This is not "Progressive H.Q.", this shit-posting shit-commenting is behaving like ignorant MAGA.
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1r5n9aa/this_lying_sack_of_shit_and_the_weirdos_that/o5k7tv8/
+
+2 month Reddit account. "vibes‑based psyop". No evidence, no proof. Vibes media, vibe-based social media commenting. SURKOV_WARFARE There are FAR MORE IMPORTANT DANGEROUS MATTERS TO PROMOTE on Reddit right now EVERY DAY. NOT_GOOD_ENOUGH Dr. Bandy X Lee should be quoted, linked, cited constantly on Reddit to address the mental health issues of Trump!
+
+https://old.reddit.com/r/Fauxmoi/comments/1r5v37z/robin_williams_on_trump_in_2012_and_he_owns_all/o5lqvor/
+
+WE WERE LISTENING! DENIAL_ABOUNDS Russia won a psychological war! SEE_ALSO: "Настало время замечательных историй. Расскажу вам о том (теперь уже можно), как мы с Дональдом Трампом приняли решение освободить Америку и сделать её снова великой. На это нам понадобилось целых 4 года и ещё 2 дня. Всё началось ночью с 6 на 7 ноября 2012 года." https://GitHub.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Cambridge_Analytica_Quotes.md
+
+It makes zero sense why MAGA USA would INVITE a Chinese virus, a virus from Wuhan, China and not defend against it as biological warfare! People are in a cult of nonsense! We have factual evidence since year 2014, before COVID-19 https://www.bbc.com/news/world-us-canada-45294192
+
+It makes zero sense for rural farm-town Americans to believe a New Your City slickster / playboy who flies around in private jets and and is everything sleazy that rural folks do not like about city folks! He is divorced, he bullshits constantly. it is all INCREDIBLY OBVIOUS! SEE_ALSO: https://GitHub.com/RocketDerp/April14_2025/blob/main/Grim_Blunt/Donald_Trump_is_so_Obvious.md
+
+People do not get the mechanics and details of Russian information war. The signs are all there, anti-NATO attacking Canada. Anti-NATO attacking Greenland. Dropping support for Ukraine in favor of Putin. Even meeting in summer of 2025 with Putin in Alaska! But people keep blowing their minds out laughing and joking about Trump.
+
+The NONSENSE scrambled minds, the cult behaviors, people are not RESCUING MAGA. People are not teaching nonfiction cult deprogramming. People NEED to get in line and cheer and support and repeat quotes from Dr. Bandy X. Lee. Start EDUCATING and TEACHING the general public, everyday people, what Dr. Bandy X Lee has published and assembled.
+
+https://old.reddit.com/r/Fauxmoi/comments/1r5v37z/robin_williams_on_trump_in_2012_and_he_owns_all/o5lttg3/
+
+COMPREHENDING_UNDERSTANDING Everyone, not just Republicans, not just MAGA, has been manipulated by Russia. Core symptom is the avoidance of nonfiction serious learning. Dr. Bandy X Lee being ignored is a SYMPTOM of the Russian information warfare. Reddit users should be commenting about Dr. Bandy X Lee every front-page posting, every hour of every day, until MAGA cult is dealt with. Reddit's commenting about Dr. Lee should be covered in the press as a newsworthy social movement. People need to stop mocking MAGA and treat it as a rescue operation. Surkov won since year 2013.
+
+* "When NPD and psychopathy combine, they form a pattern of behavior called malignant narcissism. This isn’t a diagnosis, but a term coined by psychoanalyst Erich Fromm and elaborated on by personality disorder expert, Otto Kernberg, to describe people so driven by feeling special that they essentially see other people as **pawns in their game** of kill or be killed, whether metaphorically or literally. Hitler, who murdered millions, Kim Jong-un, who’s suspected of ordering his uncle’s and brother-in-law’s deaths, and **Vladimir Putin, who jokes about “liquidating journalists”** — no doubt all fall in the category of malignant narcissist (among possessing other pernicious traits, like sadism, or delight in hurting others)."
+― Bandy X Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. PUBLISHED October 3, 2017. Page 58.](https://books.google.com/books?id=716HDwAAQBAJ&pg=PA58&dq=%22driven+by+feeling+special+that+they+essentially+see+other+people%22&hl=en&newbks=1&newbks_redir=1&sa=X)
+
+https://old.reddit.com/r/Fauxmoi/comments/1r5ujs4/aoc_talks_about_the_pain_and_the_vitriol_she_has/o5lm4pk/
+
+We have a population that prizes shit-commenting and shit-posting above nonfiction serious books for adult learning. It was not always this way. Surkov won since March 2013.
+
+https://old.reddit.com/r/Fauxmoi/comments/1r5ujs4/aoc_talks_about_the_pain_and_the_vitriol_she_has/o5lp2dd/
+
+The cult of celebrity and cult of deception leaders DECEPTION_LEADERSHIP runs all the way down to the 15 year-old kids. Billionaires have the 15 year old kids prizing influencers that are just as shitty in their ambitions for power as Donald Trump. Cults of low-effort commenting and mocking sources and insult sources is a problem from elderly to youth, everyone. This is part of the reason I push dead authors and books on paper, people need to break free from the current values of Twitter-thinking "sound bites" as Carl Sagan called it in year 1995.
+
+https://old.reddit.com/r/Fauxmoi/comments/1r5ujs4/aoc_talks_about_the_pain_and_the_vitriol_she_has/o5lndf7/
+
+Left vs. right brain rot. People need to focus on fiction vs. nonfiction. Fiction outsells nonfiction. All our media systems large and small have bent far into Russian mythology patterns since year 2013.
+
+https://old.reddit.com/r/politics/comments/1r5u109/maga_candidate_outed_as_new_owner_of_epstein/o5ndnzl/
+
+https://old.reddit.com/r/politics/comments/1r5u109/maga_candidate_outed_as_new_owner_of_epstein/o5m6qb8/
+
+https://old.reddit.com/r/politics/comments/1r5u109/maga_candidate_outed_as_new_owner_of_epstein/o5mt1zd/
+
+https://old.reddit.com/r/politics/comments/1r5u109/maga_candidate_outed_as_new_owner_of_epstein/o5mr6ao/
+
+Bible verse "1 John 4:20" not being the introduction every Sunday (as a reminder) is perhaps the biggest cover-up in world history. It leads to bamboozle after bamboozle. People are more convinced of magical ghost spirits and UFO sightings than they are convinced of poisoning the planet might possibly harm their beloved { pet dog, pet kitten, pet cat, children, self }. How can any person think putting fire smoke into your lungs might not have some health impact, yet people defended smoking as not causing cancer or other complications. Alcohol in USA society is still treated a a non-toxic chemical. 
+
+* “One of the saddest lessons of history is this: If we’ve been bamboozled long enough, we tend to **reject any evidence of the bamboozle**. We’re no longer interested in finding out the truth. The bamboozle has captured us. It’s simply too painful to acknowledge, even to ourselves, that we’ve been taken. Once you give a charlatan power over you, you almost never get it back. So the old bamboozles tend to persist as the new ones rise.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, **1995**, page 241.
+
+
+https://old.reddit.com/r/TwoXChromosomes/comments/1r5yj7s/woman_dies_after_being_denied_health_care_because/o5mjq3y/
+
+for the record. I do indeed write 2 or 3 long paragraphs and delete them without even a temporary record. I can't even muster picking a quote from the many that echo in my head when reading these experiences.
+
+There are thoughts in my mind in 1996 that come back to me. When I pondered if people would keep building systems that were dehumanizing or if there would be a rise of social movements like Martin Luther King Jr who had made compassion popular enough that it got recorded and passed down. But would we continue to stop passing down authentic joy and goodness and keep elevating a kind of manipulating mind-tricking mindsets that concentrate power and wealth.
+
+* “Ours is the first age in which many thousands of the best-trained individual minds have made it a full-time business to get inside the collective public mind.”
+― Marshall McLuhan, The Mechanical Bride : Folklore of Industrial Man. year 1951.
+
+https://old.reddit.com/r/AdviceAnimals/comments/1r5wg7m/its_so_obvious/o5mtfkz/
+
+People act like it is a 3 hour event to be President for 4 years. Trump could have quit before the election. He could resign at any time. the fantasy people have that Trump's travel to/front the White House is all some kind of accident is ridiculous. It takes labor and effort. Trump is not passive and inactive. Trump breaks convention on thousands and thousands of President issues. He could quit and say that that the USA is so corrupt that it should all be burned down. Such a dramatic quitting  would probably inspire We The People to wreck goodness more than we already have.
+
+The anti-goodness Trump is leading is hard work, labor. Even his media appearances and being on camera is exhausting. His mind is working at full capacity to promote hate leadership (which Reddit follows, hate harder competition, always more hate in following Trump's lead. Always more Reddit fiction and bullshit in the face of Trump's bullshit and fiction).
+
+https://old.reddit.com/r/AdviceAnimals/comments/1r5wg7m/its_so_obvious/o5ne7k7/
+
+People are drowning important topics as "Advice Animals" on Reddit /r/AdviceAnimals memes. People do have the concept of a nonfiction book, people do know what Wiki systems look like. But they would rather create comment after comment over and over and over. It's so sickening that people think all being on different pages at different times is not a "We the People" problem. The October 3, 2017 nonfiction book by Dr. Bandy X Lee with 27 contributors isn't good enough for people to find common ground to teach, educate, and quote from. NOT_GOOD_ENOUGH 
+
+https://old.reddit.com/r/AdviceAnimals/comments/1r5wg7m/its_so_obvious/o5md2mg/
+
+It works. ANTI_REALITY people choose liars as leaders. The kind of serious thoughtful people who would write a book explaining a common problem are ignored, and then people can't resist their compulsive attraction to celebrity.
+
+* "By bringing together in compact form all of the arts of show business — music, drama, imagery, humor, celebrity — the television commercial has mounted the most serious assault on capitalist ideology since the publication of Das Kapital. To understand why, we must remind ourselves that capitalism, like science and liberal democracy, was an outgrowth of the Enlightenment. Its principal theorists, even its most prosperous practitioners, believed capitalism to be based on the idea that both buyer and seller are sufficiently mature, well informed and reasonable to engage in transactions of mutual self-interest. If greed was taken to be the fuel of the capitalist engine, then surely rationality was the driver. The theory states, in part, that competition in the marketplace requires that the buyer not only knows what is good for him **but also what is good**. If the seller produces nothing of value, as determined by a rational marketplace, then he loses out. It is the assumption of rationality among buyers that spurs competitors to become winners, and winners to keep on winning. Where it is assumed that a buyer is unable to make rational decisions, laws are passed to invalidate transactions, as, for example, those which prohibit children from making contracts. In America, there even exists in law a requirement that sellers must tell the truth about their products, for **if the buyer has no protection from false claims, rational decision-making is seriously impaired**." ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. Year 1985.
+
+https://old.reddit.com/r/AdviceAnimals/comments/1r5wg7m/its_so_obvious/o5mlp9z/
+
+Anti-citation, anti-quotation, anti-nonfiction. "Advice Animals".
+
+https://old.reddit.com/r/AdviceAnimals/comments/1r5wg7m/its_so_obvious/o5mjx5e/
+
+In other words, they play language games. People manipulate other people with communications timing and messaging. Yet, Reddit society does not turn to any serious nonfiction on the subject and instead favors low-effort commenting, more commenting, and commenting yet again. And the commenting does not repeat and assert that all information is not equal.  Reddit commenting is a cult.
+
+* “There is a cult of ignorance in the United States, and there has always been. The strain of anti-intellectualism has been a constant thread winding its way through our political and cultural life, nurtured by the false notion **that democracy means that 'my ignorance is just as good as your knowledge.”** ― Isaac Asimov. Year 1980.
+
+Communications timing and messages is used to create fiction, untrue, ignorant statements. Then people RACE at high speeds to Apple iPhone / Apple iPad / Android devices to comment upon that ignorance. And the commenting does not show serious and persistent concern that we all need to be focusing on Neil Postman's 1985 nonfiction book "Amusing Ourselves To Death".
+
+We are in a feedback loop, MAGA vs non-MAGA, in thousands of variations. Our computing information systems have overrun the human brain with looping shit-talking shit-commenting shit-posting. The USA invented social media, the USA invented TCP/IP. The USA is in feedback loops about Epstein and Trump.
+
+Social post { https://autistics.life/@RoundSparrow/116080043002884460 https://bsky.app/profile/roundsparrow.bsky.social/post/3mexwptbyec2i }
+
+https://old.reddit.com/r/AdviceAnimals/comments/1r5wg7m/its_so_obvious/o5nkhck/
+
+Reddit commenting section is attracted to shit information. Shit knowledge. IGNORANCE_CELEBRATIONS "Advice Animals"
+
+https://old.reddit.com/r/AdviceAnimals/comments/1r5wg7m/its_so_obvious/o5m0z6v/
+
+TRUMP_FANDOM Reddit is a cult of low-information shit-commenting and shit-posting and shit-thinking. Reddit is a cult to Trump's leadership of national enshitification. Reddit is a cult of commenting about Trump's shit. A media cult, a cult of media content. Never has one person, Trump at age 80, ever been easier to insult and mock. Reddit community has created low-effort commenting and insulting of Trump as a perpetual joking machine. Surkov won since March 2013. Infinite Jest by David Foster Wallace is proven by Reddit community perpetually commenting about Trump. Neil Postman's information media theory of 1985 proven by Reddit community.
+
+We have moved beyond television only to Reddit shit-posting shit-commenting shit-favoring mindsets. Feedback looping with Donald Trump. We are in a gaming loop of shit flinging between Trump and Reddit. High-speed commenting over and and over and over for more than a decade about how much Trump is  { moron, stupid, dumb, idiot, smelly, orange skin, retarded, dementia } because of TCP/IP medium.
+
+* "In the Huxleyan prophecy, Big Brother does not watch us, by his choice. We watch him, by ours. There is no need for wardens or gates or Ministries of Truth. When a population becomes distracted by trivia, when **cultural life is redefined as a perpetual round of entertainments, when serious public conversation becomes a form of baby-talk, when, in short, a people become an audience and their public business a vaudeville act**, then a nation finds itself at risk; culture-death is a clear possibility.
+In America, Orwell’s prophecies are of small relevance, but Huxley’s are well under way toward being realized. For America is engaged in the world’s most ambitious experiment to accommodate itself to the **technological distractions made possible by the electric plug**. This is an experiment that began slowly and modestly in the mid-nineteenth century and has now, in the latter half of the twentieth, reached a perverse maturity in America’s consuming love-affair with television. As nowhere else in the world, Americans have moved far and fast in bringing to a close the age of the slow-moving printed word, and have granted to television sovereignty over all of their institutions. By ushering in the Age of Television, America has given the world the clearest available glimpse of the Huxleyan future." ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. year 1985.

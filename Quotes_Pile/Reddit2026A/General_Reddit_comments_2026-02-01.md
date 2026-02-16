@@ -560,3 +560,52 @@ OPERA_A Lyrics: "If your vagina lands in prison, then the whole world's going to
 https://old.reddit.com/r/AmIOverreacting/comments/1r5fo45/am_i_overreacting_new_boyfriend_was_weirdly/o5idu80/
 
 Daddy issues. parenting issues. Religion indoctrination. Fox News fandom issues. Trump daddy issues. Joe Rogan daddy issues. Andrew Tate daddy issues.  
+
+https://old.reddit.com/r/news/comments/1r5og06/fbi_dna_recovered_from_glove_found_near_guthrie/o5kbati/
+
+https://old.reddit.com/r/AmIOverreacting/comments/1r5r1z3/aio_my_friends_boyfriend_posted_a_picture_on_his/o5kxckq/
+
+https://old.reddit.com/r/Fauxmoi/comments/1r5v37z/robin_williams_on_trump_in_2012_and_he_owns_all/o5lt6oy/
+
+Excellent films that teach important monomyth goodness patterns.
+
+https://old.reddit.com/r/LivestreamFail/comments/1r60c5e/after_spending_years_talking_about_how_daughters/o5mwm85/
+
+https://old.reddit.com/r/LivestreamFail/comments/1r60c5e/after_spending_years_talking_about_how_daughters/o5ngdk7/
+
+https://old.reddit.com/r/LivestreamFail/comments/1r60c5e/after_spending_years_talking_about_how_daughters/o5msub4/
+
+https://old.reddit.com/r/LivestreamFail/comments/1r60c5e/after_spending_years_talking_about_how_daughters/o5msui5/
+
+https://old.reddit.com/r/technology/comments/1r657he/ai_hard_drives_are_already_sold_out_for_the/o5o4z0n/
+
+CONTEXT_ASSERTION: my commentary here is about the whole reply context. This specific message is not what i'm addressing but the more banal messages claiming the hard drive shortage is completely fabricated. People claiming the supply is fine and only the price is being increased. The actual message I'm targeted is in response to the Reddit hive minded thinking that does not engage nonfiction.
+
+DEFLECTION_FROM_BILLIONAIRES_AND_PUTINISM the Reddit comment section is full of low-effort commenting that deflects away form what billionaires are doing to the common man. Reddit tech cultists, cults of billionaire providers, love fiction but do not assert nonfiction and reality in the face of billionaires.
+
+* April 9, 1944 USA Vice-President Henry Wallace: “The American fascists are most easily recognized by their deliberate perversion of truth and fact. Their newspapers and propaganda carefully cultivate every fissure of disunity… They claim to be super-patriots, but they would destroy every liberty guaranteed by the Constitution. They demand free enterprise, but are the spokesmen for monopoly and vested interest. Their final objective toward which all their deceit is directed is to capture political power so that, using the power of the state and the power of the market simultaneously, they may keep the common man in eternal subjection.”
+
+https://old.reddit.com/r/Unexpected/comments/1r684o5/local_wildlife_disturbing_airport_operations/o5opv4e/
+
+It is fiction content. That's what Reddit audiences desire and crave. Fiction to taste and measure and grade. Instead of doing an Internet WWW uprising to remove Donald Trump from the USA and do cult deprogramming with nonfiction books to rescue MAGA... free time and spare time is instead consuming fiction media. Nonfiction real-world reality concerns are abandoned. Because the technology of cameras and high-speed video delivery to smartphones is what matters to the population, images.
+
+https://old.reddit.com/r/Fauxmoi/comments/1r6bdml/silence_of_the_lambs_star_ted_levine_says_he/o5ovh4z/
+
+People need to admit REAL_PEOPLE_ADMIT that lavish talented performers are used to brainwash the population into out-group hate patterns. Levant science fiction stories that clergy has found so profitable and powerful. Hollywood films find profit in selling hate against genders, hate of women, exploitation of real-world relationships for profit and power concentration. Comparative mythology education is not optional.
+
+https://old.reddit.com/r/nottheonion/comments/1r65e7a/lawyers_increasingly_have_to_convince_clients/o5nvv1t/
+
+Similar to Rupert Murdoch, billionaire-provided media. Billionaires have invested in this new ChatGPT media system (and competitors) to cultivate a media cult. CULT_INDOCTRINATION
+
+https://old.reddit.com/r/nottheonion/comments/1r65e7a/lawyers_increasingly_have_to_convince_clients/o5ppgj8/
+
+CONTEXT_BEWILDERMENT what area of human life do these things NOT MATTER? "require correct interpretation. Context matters a lot"... this is a general society-wide information systems problem. We do not teach every person, and we outright have billionaires spending as much money and employing / contracting the most talented artists manipulating everyday people. Nation states have manipulated minds.
+
+* May 7, 2017  https://www.TheGuardian.com/technology/2017/may/07/the-great-british-brexit-robbery-hijacked-democracy This is not just a story about social psychology and data analytics. It has to be understood in terms of a military contractor using military strategies on a civilian population. Us. David Miller, a professor of sociology at Bath University and an **authority in psyops and propaganda**, says it is “an extraordinary scandal that this should be anywhere near a democracy. It should be clear to voters where information is coming from, and if it’s not transparent or open where it’s coming from, **it raises the question of whether we are actually living in a democracy or not.**” Paul and David, another ex-Cambridge Analytica employee, were working at the firm when it introduced mass data-harvesting to its psychological warfare techniques. “It brought psychology, propaganda and technology together in this **powerful new way**,” David tells me.
+
+https://old.reddit.com/r/Jujutsufolk/comments/1r6h32l/some_of_yall_are_just_misogynistic/o5qedgt/
+
+https://old.reddit.com/r/Jujutsufolk/comments/1r6h32l/some_of_yall_are_just_misogynistic/o5qaic3/
+
+Media cultists are always claiming the other people "can not read", when they can. People can write and create comments on social media, demonstrating they have the language skills. What they lack is comprehension and understanding. "Reading between the lines" and metaphor understanding are not the same as "literacy" and "reading". In the era of Donald Trump as a role model, so many claim that Trump can not read... when in fact, I have seen time and time again that Trump has an eye for media ecology in a way Marshall McLuhan teaches that the hate-watching fandom of Trump does not comprehend or understand. Clearly people are attracted to the unique style and unusual ways of Trump, but people can not recognize it as a mass man (Marshall McLuhan terminology) social cult behavior.  COMPREHENDING_UNDERSTANDING
+

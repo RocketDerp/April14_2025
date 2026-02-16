@@ -429,3 +429,78 @@ Remote operated drones are a far better investment for the future than piloted a
 https://old.reddit.com/r/europe/comments/1r5ga51/outgoing_dutch_defense_secretary_tuinman_if_the/o5ikb0r/
 
 4 month Reddit account.
+
+https://old.reddit.com/r/shittymoviedetails/comments/1r5l74g/in_spiderman_2_2004_toby_maguires_neighbor_ursula/o5jrwi8/
+
+World hate affairs.
+
+https://old.reddit.com/r/nottheonion/comments/1r5n4e3/young_woman_in_india_fakes_snake_transformation/o5k2hoa/
+
+FAMILY_HONESTY ARRANGED_MARRIAGE 
+
+Native American story "Refusal of Suitors" has snake characters.
+
+https://old.reddit.com/r/nottheonion/comments/1r5n4e3/young_woman_in_india_fakes_snake_transformation/o5k2km6/
+
+World Marriage Hate Affairs.  
+
+https://old.reddit.com/r/videos/comments/1r68tc5/irish_citizens_tortured_by_ice_detainees_gamble/o5obddk/
+
+World hate affairs.
+
+https://old.reddit.com/r/videos/comments/1r68tc5/irish_citizens_tortured_by_ice_detainees_gamble/o5oy6o0/
+
+What is **happening across all social media in the world is horrible**. Putin and Trump keep harming people over and over and over, year after year, and people keep commenting about it with original creatively written unique personalized comments. This commenting engagement is how Surkov information warfare works. Surkovian governing is about constantly keeping media consumers, media cultists, caged in their mindsets. "Inside the box" thinking. Why is Reddit and Bluesky not having an internet uprising calling for the removal of Donald Trump from office? What is happening across all the world wide web is people AVOIDING calling for Dr. Bandy X Lee's leadership in mental health professionals educating and teaching the general public. The WWW being used to address EVERYONE on planet Earth about the dangers!
+
+NOT_GOOD_ENOUGH - why are people on Reddit not alarmed enough to turn to mental health leaders and start educating everyone with quotes from nonfiction books?
+
+* "the **public trust is also violated if the profession fails in its duty to alert the public** when a person who holds the power of life and death over us all shows signs of clear, dangerous mental impairment. We should pause if professionals are asked to remain silent when they have seen enough evidence to sound an alarm in every other situation. When it comes to dangerousness, should not the president of a democracy, as First Citizen, be subject to the same standards of practice as the rest of the citizenry?" ― Bandy X. Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. Published October 3, 2017. PROLOGUE. Page 5.](https://books.google.com/books?id=g0c4DwAAQBAJ&pg=PA5&dq=dangerousness+due+to+mental+disorder+can+become+apparent+without+a+full+diagnostic+interview+and+can+be+detected+from+a+distance&hl=en&newbks=1&newbks_redir=1&sa=X)
+
+https://old.reddit.com/r/videos/comments/1r68tc5/irish_citizens_tortured_by_ice_detainees_gamble/o5oje2k/
+
+CONDITIONED_OPPOSITION messaging about future books. Media cults on Reddit want book media content. Instead of using Reddit to put an end to this Trump media content creation, people keep discussing their desires for more content about the events. This is a cult of information, history book cult. STOP MAKING HISTORY OF BADNESS, MAKE HISTORY FOR REDDIT_BLACKOUT and INTERNET_UPRISING to put an END to Trumpism and Putinism with education and teaching of nonfiction serious topics! CHANGE THE WORLD RIGHT NOW using Reddit commenting: Promote Dr. Bandy X Lee's writings. Promote Jen Senko's nonfiction film and book!
+
+https://old.reddit.com/r/okbuddycinephile/comments/1r67mk1/they_got_quentin_tarantino_dawg/o5o8x8b/
+
+https://old.reddit.com/r/justgalsbeingchicks/comments/1r69tu0/elizabeth_banks_on_the_continuous_fight_for/o5ok1i8/
+
+Assert Malala, promote Malala, quote Malala.
+
+* “We felt like the Taliban saw us as like little dolls to control, telling us what to do and how to dress. I thought if God wanted us to be like that He would not have made us all different.”
+― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. October 8, 2013.
+
+https://old.reddit.com/r/justgalsbeingchicks/comments/1r69tu0/elizabeth_banks_on_the_continuous_fight_for/o5p3cq2/
+
+History tells us that Putin and Trump and Hitler will keep rising up because people prize hate. History tells us that history itself is a nightmare. Stop worshiping violence, Reddit cult of action violence images, "violence porno" cults. Anti-intellectual Reddit values, pro-Trump violence, pro-ICE violence, anti-education, anti-teaching, anti-Malala. 
+
+* “History, Stephen said, is a nightmare from which I am trying to awake.”
+― James Joyce, Ulysses
+
+Reddit society LOVES to worship cool and powerful phallic weapon systems and their ejections of power.
+
+Reddit society avoids Malala. Avoids quoting and promoting Malala. Year 2013 Malala was on the world stage, **so was Trump - doing a sex show in Moscow** November 8, 2013. Guess who keeps getting repeated, quoted, mirrored, copycat on Reddit - Trump, not Malala.
+
+* "The extremists are afraid of books and pens. The power of education frightens them. They are afraid of women. The power of the voice of women frightens them." - **July 12, 2013** https://malala.org/news-and-voices/malala-un-speech
+
+https://old.reddit.com/r/International/comments/1r6dhnx/racism_and_bigotry_have_become_so_normalized_that/o5pd1b9/
+
+22 day Reddit account. Top-upvoted comment, most popular.
+
+https://old.reddit.com/r/International/comments/1r6dhnx/racism_and_bigotry_have_become_so_normalized_that/o5pc228/
+
+22 day Reddit account. SECOND top-upvoted comment. GIVE_UP_ANTI_EDUCATION_ANTI_TEACH_ANTI_PROGRESS These comments serve to say: give up on education and teaching, people can't learn messages to Reddit audience.
+
+https://old.reddit.com/r/International/comments/1r6dhnx/racism_and_bigotry_have_become_so_normalized_that/o5pbxau/
+
+8 month Reddit account. SUPER_HYPER_NORMAL - The message between the lines: everything has always been this way. The Apple iPhone and Apple iPad had no change on society. Nothing is new messaging. Don't face the cult addiction problems and that Donald Trump was not POTUS. Just view it it as normal and don't organize any kind of pro-Malala pro-education pro-teaching movement. Continue to avoid nonfiction on Reddit, just keep commenting over and over about the situations and don't be do an uprising. CYNICAL_ACCEPT_IT
+
+* “Evil comes from a failure to think. It defies thought for as soon as thought tries to engage itself with evil and examine the premises and principles from which it originates, it is frustrated because it finds nothing there. That is the banality of evil.” ― Hannah Arendt, Eichmann in Jerusalem: A Report on the Banality of Evil
+
+* "That such **remoteness from reality and such thoughtlessness can wreak more havoc than all the evil instincts taken together** which, perhaps, are inherent in man—that was, in fact, the lesson one could learn in Jerusalem.” ― Hannah Arendt, Eichmann in Jerusalem: A Report on the Banality of Evil
+
+All this spare time and free time of people commenting on Reddit. Why isn't Reddit community organizing a REDDIT_BLACKOUT in protest? Why isn't Reddit community on the front page of world news https://www.thestar.com/business/reddit-blackout-here-s-why-thousands-of-pages-went-dark-on-monday-and-how-long/article_4847569b-6784-52e1-a5eb-77b48840c626.html for protesting? Why are Reddit users so avoidant of quoting nonfiction seriously written books? why is Dr. Bandy X Lee's mental health topic books not quoted on Reddit despite the obvious thinking crisis?
+
+https://old.reddit.com/r/International/comments/1r6dhnx/racism_and_bigotry_have_become_so_normalized_that/o5por1t/
+
+1 month Reddit account. GAMERS_SIMULACRA - no concern to do more than leave a low-effort comment. 
+

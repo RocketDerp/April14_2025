@@ -984,3 +984,18 @@ THIS MOST POPULAR UPVOTED COMMENT is NOT RESISTING. It is a SIMULATION, an alter
 
 Reddit is a cult of mockery and mocking, lead by Donald Trump - professional media Reality TV creator working with an army of Fox News HDTV fiction authors, etc. Reddit is not RESISTING the anti-intellectual cults, Reddit is amplifying the ignorance worship and ritualizing the worship of ignorance.
 
+https://old.reddit.com/r/International/comments/1r6i4du/this_is_how_we_start_to_make_america_great_again/o5qnrii/
+
+This whole front page Reddit posting is a fake image, fantasy visual politics, this is simulation of resistance. Why is Reddit not having a blackout? ROUTINE_NO_NEED_TO_RESIST_OR_ORGANIZE_INTELLECTUAL_UPRISING
+
+https://old.reddit.com/r/International/comments/1r6i4du/this_is_how_we_start_to_make_america_great_again/o5qgknj/
+
+It's far from the ONLY problem. The major problems are that people keep COMMENTING and posting IMAGES of Donald Trump like this one. People keep commenting and more commenting with all their spare time and free time. People are stuck "inside the box thinking", over and over. Why is Reddit not promoting Dr. Bandy X Lee's nonfiction leadership and education for the general public? Why is Reddit not organizing online protesting? REDDIT_BLACKOUT 
+
+https://old.reddit.com/r/International/comments/1r6i4du/this_is_how_we_start_to_make_america_great_again/o5qpibe/
+
+<img width="1055" height="648" alt="image" src="https://github.com/user-attachments/assets/3e2caaed-5885-41b5-9a72-e68b8dc7aa95" />
+
+BEYOND_DENIAL Yes. Fix the Reddit community attitudes. Fix the mindsets! We The People are the problem. Stop this simulation of resisting with dumb images. Be serious, use NONFICTION, stop feeding your high-speed fiction addiction to fake images - that's exactly what billionaires are creating for you with the most powerful media systems ever created by humanity. ChatGPT fake images. And you are here posting MORE fake Photoshop and other fiction content. **The attitude towards nonfiction adult education** needs to be fixed! Dear Reddit cult of Trump images: "fix your laws and your attitude first. You had the chance as a country to vote for an actual politician, but you decided the TV star was a better politician."
+
+Social post { https://autistics.life/@RoundSparrow/116082476985909143 https://bsky.app/profile/roundsparrow.bsky.social/post/3meyzamx4sc2m }

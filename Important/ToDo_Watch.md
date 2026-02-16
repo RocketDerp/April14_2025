@@ -15,3 +15,6 @@ Chair Company
 https://www.youtube.com/watch?v=Vj5UxafN90Y   
 
 Dead Man's Wire    
+
+Good Luck, Have Fun Don't Die is FANTASTIC   
+https://www.youtube.com/watch?v=HFjXPFKOw2w   
