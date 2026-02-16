@@ -33,4 +33,10 @@ Reddit shit-posting and shit-commenting sold out the USA to shit values. People 
 
 Why is Reddit commenting community not quoting and promoting Dr. Bandy X Lee every hour of every day? ANSWER: Reddit is a cult venue for people who DESIRE Trump for the easy low-effort jokes and mockery.
 
+https://old.reddit.com/r/AskReddit/comments/1r679nl/if_you_have_criticized_ice_here_on_reddit_for/o5o3st4/
+
+Downplaying the threat. SUPER_HYPER_NORMAL  Extreme tiny-short messaging on Reddit, Twitter-think Tweet-length mindsets, to downplay and ignore all that has been happening since February 20, 2014 with Putin, Russia and information warfare on Reddit since March 2013. ANYTHING and EVERYTHING to avoid how **DANGEROUS** Trump leadership is. Shit-commenting Reddit community is commenting away all nonfiction serious learning for adults in favor of downplaying (minimizing / trivializing) and normalizing Trump's every play against We The People and technological threat to humanity that this type of organized machine logic can be.
+
+* “In an ever-changing, incomprehensible world the masses had reached the point where they would, at the same time, believe everything and nothing, think that [everything was possible and that nothing was true](https://en.wikipedia.org/wiki/Nothing_Is_True_and_Everything_Is_Possible). ... Mass propaganda discovered that its audience was ready at all times to believe the worst, no matter how absurd, and did not particularly object to being deceived because it held every statement to be a lie anyhow. The totalitarian mass leaders based their propaganda on the **correct psychological assumption** that, under such conditions, one could make people believe the most fantastic statements one day, and trust that if the next day they were given irrefutable proof of their falsehood, they would take refuge in **cynicism**; instead of deserting the leaders who had lied to them, they would protest that they had known all along that the statement was a lie and would admire the leaders for their **superior tactical cleverness**.”
+― Hannah Arendt, The Origins of Totalitarianism, 1951
 
