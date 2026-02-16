@@ -170,3 +170,13 @@ This article is more than 1 year old. Jay Feinman’s book that exposes ways ins
 
 Why isn't Reddit community using Reddit media platform itself to intelligently protest health care costs in USA? Why isn't Reddit using Reddit itself to call for nonfiction mental health education about the dangers of Donald Trump? Why are Reddit comment creators consistently avoiding non-fiction books when FULL of references to fiction television and fiction video games like Mario Brothers? Why are Reddit user ALWAYS avoiding repeating Jay Feinman book when the topic comes up of this CEO shooting? **What is it about NONFICTION BOOKS and ADULT EDUCATION that Reddit is unable to engage? Where is the REDDIT_BLACKOUT calling for betterment? Why is nonfiction books by Dr, Bandy X Lee avoided on Reddit - just like Jay Feinman nonfiction books?** ANSWER: Brain rot of We The People CAUSED by media fiction addictions. BRAIN_ROT_SOCIETY_47 
 
+https://old.reddit.com/r/politics/comments/1r6gu9l/ice_traffic_stop_ends_in_death_of_school_teacher/o5q5avb/
+
+Power and guns give them "authority". A society that **respects guns** and weapon systems far more than education and learning about cults and compassion. GUN_WORSHIP 
+
+https://old.reddit.com/r/politics/comments/1r6gu9l/ice_traffic_stop_ends_in_death_of_school_teacher/o5q28fs/
+
+Just I.C.E. Not CDC, that's not a danger to spreading diseases all over the world via airports under RFK Jr's leadership. Simple-think Tweet-length mindsets on Reddit. Just "our community". **DONALD TRUMP IS A DANGER TO THE WHOLE WORLD, PUTIN IS A DANGER TO THE WHOLE WORLD. TINY SHORT COMMENTING MINDSETS ARE A DANGER TO THE WHOLE WORLD.** People need to get on the SAME PAGE, ASAP, of MENTAL HEALTH CULT DEPROGRAMMING of MAGA / ICE / USA! Why is Reddit commenting section always avoiding promoting and repeating Dr. Bandy X Lee as a leader on the topic of DANGER?
+
+* “Assessing dangerousness is different from making a diagnosis: it is dependent on the situation, not the person. Signs of likely dangerousness due to mental disorder can become apparent without a full diagnostic interview and can be detected from a distance, and one is expected to err, if at all, on the side of safety when the risk of inaction is too great.”
+― Bandy X. Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. Published October 3, 2017. PROLOGUE. Page 5.](https://books.google.com/books?id=g0c4DwAAQBAJ&pg=PA5&dq=dangerousness+due+to+mental+disorder+can+become+apparent+without+a+full+diagnostic+interview+and+can+be+detected+from+a+distance&hl=en&newbks=1&newbks_redir=1&sa=X)
