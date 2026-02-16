@@ -565,3 +565,7 @@ https://old.reddit.com/r/news/comments/1r5og06/fbi_dna_recovered_from_glove_foun
 
 https://old.reddit.com/r/AmIOverreacting/comments/1r5r1z3/aio_my_friends_boyfriend_posted_a_picture_on_his/o5kxckq/
 
+https://old.reddit.com/r/Fauxmoi/comments/1r5v37z/robin_williams_on_trump_in_2012_and_he_owns_all/o5lt6oy/
+
+Excellent films that teach important monomyth goodness patterns.
+
