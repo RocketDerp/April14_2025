@@ -1936,5 +1936,11 @@ We have a population that prizes shit-commenting and shit-posting above nonficti
 
 https://old.reddit.com/r/Fauxmoi/comments/1r5ujs4/aoc_talks_about_the_pain_and_the_vitriol_she_has/o5lp2dd/
 
-The cult of celebrity and cult of deception leaders DECEPTION_LEADERSHIP runs all the way down to the 15 year-old kids. Billionaires have the 15 year old kids prizing influencers that are just as shitty in their ambitions for power as Donald Trump. Cults of low-effort commenting and mocking sources and insult sources is a problem from elderly to youth, everyone.
+The cult of celebrity and cult of deception leaders DECEPTION_LEADERSHIP runs all the way down to the 15 year-old kids. Billionaires have the 15 year old kids prizing influencers that are just as shitty in their ambitions for power as Donald Trump. Cults of low-effort commenting and mocking sources and insult sources is a problem from elderly to youth, everyone. This is part of the reason I push dead authors and books on paper, people need to break free from the current values of Twitter-thinking "sound bites" as Carl Sagan called it in year 1995.
+
+https://old.reddit.com/r/Fauxmoi/comments/1r5ujs4/aoc_talks_about_the_pain_and_the_vitriol_she_has/o5lndf7/
+
+Left vs. right brain rot. People need to focus on fiction vs. nonfiction. Fiction outsells nonfiction. All our media systems large and small have bent far into Russian mythology patterns since year 2013.
+
+
 
