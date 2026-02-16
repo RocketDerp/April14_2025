@@ -1899,3 +1899,6 @@ https://old.reddit.com/r/politics/comments/1r5l8k2/trumps_plot_to_steal_the_midt
 
 My answer is that it is a TOTAL NATION cult, 100%, not 50%, not 30%. EVERYONE, even non-voters. Because quoting and citing Dr. Bandy X Lee's leadership and calling for, begging, people to follow and support Dr. Lee's is an OBVIOUS GOODNESS MOVE. But media cultists only want to comment over and over how much they hate other Americans. This avoidance of serious nonfiction learning has been going on since year 2017 when her book was published. AMERICANS_HATE_AMERICANS
 
+https://old.reddit.com/r/politics/comments/1r5l8k2/trumps_plot_to_steal_the_midterm_elections_is/o5l81k4/
+
+The problem is people come to social platforms every day, and REACT to the White House. People are in feedback loops of reaction-commenting to Trump / MAGA / Kremlin / White House. ANTI_WIKI_ANTI_FAQ
