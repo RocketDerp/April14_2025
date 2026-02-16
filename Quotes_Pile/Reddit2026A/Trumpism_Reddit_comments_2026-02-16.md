@@ -97,3 +97,9 @@ https://old.reddit.com/r/circled/comments/1r69r20/richard_gere_we_have_a_preside
 DENIAL_ABOUNDS BLACKOUT_MEMORY_TIME_LOSS RECENCY_BIAS  
 In the Cambridge Analytica and IRA aftermath, there is extreme recency bias and memory loss due to so much low-effort commenting fixations. The avoidance of nonfiction reality is widespread in USA.
 
+https://old.reddit.com/r/circled/comments/1r69r20/richard_gere_we_have_a_president_whos_not_only/o5oo7e3/
+
+DEFLECTION_FROM_BILLIONAIRES_AND_PUTINISM   
+Deflection from the global conservative anti-NATO movement that many nations are reporting since year 2013. SEE_ALSO December 20, 2013 "Conservative International" global movement. https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/
+
+Reddit community likes to create original unique commenting messages with free time and spare time. Instead of using the same time seeking out NONFICTION learning. People instead create comment after comment of their own creative writing. Everybody on different pages at different times and not focused on "keeping the eye on the ball" of the most serious and important topics. Billionaires that have directly planned and organized "Conservative International" in December 2013 right before the February 20, 2014 invasion of Ukraine.
