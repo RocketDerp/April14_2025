@@ -489,3 +489,11 @@ https://old.reddit.com/r/International/comments/1r6dhnx/racism_and_bigotry_have_
 https://old.reddit.com/r/International/comments/1r6dhnx/racism_and_bigotry_have_become_so_normalized_that/o5pc228/
 
 22 day Reddit account. SECOND top-upvoted comment. GIVE_UP_ANTI_EDUCATION_ANTI_TEACH_ANTI_PROGRESS These comments serve to say: give up on education and teaching, people can't learn messages to Reddit audience.
+
+https://old.reddit.com/r/International/comments/1r6dhnx/racism_and_bigotry_have_become_so_normalized_that/o5pbxau/
+
+8 month Reddit account. SUPER_HYPER_NORMAL - The message between the lines: everything has always been this way. The Apple iPhone and Apple iPad had no change on society. Nothing is new messaging. Don't face the cult addiction problems and that Donald Trump was not POTUS. Just view it it as normal and don't organize any kind of pro-Malala pro-education pro-teaching movement. Continue to avoid nonfiction on Reddit, just keep commenting over and over about the situations and don't be do an uprising. CYNICAL_ACCEPT_IT
+
+* “Evil comes from a failure to think. It defies thought for as soon as thought tries to engage itself with evil and examine the premises and principles from which it originates, it is frustrated because it finds nothing there. That is the banality of evil.” ― Hannah Arendt, Eichmann in Jerusalem: A Report on the Banality of Evil
+
+* "That such **remoteness from reality and such thoughtlessness can wreak more havoc than all the evil instincts taken together** which, perhaps, are inherent in man—that was, in fact, the lesson one could learn in Jerusalem.” ― Hannah Arendt, Eichmann in Jerusalem: A Report on the Banality of Evil
