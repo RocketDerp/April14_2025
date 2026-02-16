@@ -119,3 +119,7 @@ So, Joe Biden, who was POTUS in July 13, 2024 *staged an assassination*, and had
 https://old.reddit.com/r/LetsDiscussThis/comments/1r6a8b6/reminder_that_was_a_photo_op/o5opuza/
 
 TRUMP_FANDOM Reddit commenting community is a cult. Trump fanaticism. The media cult is cultish about making low-effort comments. This is an example of the Twitter-length low-effort lazy commenting. A world news event of July 13, 2024 - LONG AGO - and they are still making unique original comments instead of using author names, book titles, quotes from a nonfiction book. Anti-FAQ, anti-Wiki, anti organizing of information - because the CULT BEHAVIOR is to comment over and over about their source of stimulation: Donald Trump media images and media content.  Every day, people sign on to Reddit, to comment over and over to avoid nonfiction serious books. ANTI_WIKI_ANTI_FAQ
+
+https://old.reddit.com/r/LetsDiscussThis/comments/1r6a8b6/reminder_that_was_a_photo_op/o5ookss/
+
+11 day Reddit account. Here to turn it into jokes and memes. Instead of using spare time and free time to call for people to support Dr. Bandy X Lee's nonfiction book... to REMOVE Trump. SATIRE_SARCASM_WASHING sane-washing Trump as a fun source of mocking and showing a deep faith that what we need out of Trump bullshit is *even more bullshitting*.
