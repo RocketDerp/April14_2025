@@ -584,3 +584,8 @@ CONTEXT_ASSERTION: my commentary here is about the whole reply context. This spe
 DEFLECTION_FROM_BILLIONAIRES_AND_PUTINISM the Reddit comment section is full of low-effort commenting that deflects away form what billionaires are doing to the common man. Reddit tech cultists, cults of billionaire providers, love fiction but do not assert nonfiction and reality in the face of billionaires.
 
 * April 9, 1944 USA Vice-President Henry Wallace: “The American fascists are most easily recognized by their deliberate perversion of truth and fact. Their newspapers and propaganda carefully cultivate every fissure of disunity… They claim to be super-patriots, but they would destroy every liberty guaranteed by the Constitution. They demand free enterprise, but are the spokesmen for monopoly and vested interest. Their final objective toward which all their deceit is directed is to capture political power so that, using the power of the state and the power of the market simultaneously, they may keep the common man in eternal subjection.”
+
+https://old.reddit.com/r/Unexpected/comments/1r684o5/local_wildlife_disturbing_airport_operations/o5opv4e/
+
+It is fiction content. That's what Reddit audiences desire and crave. Fiction to taste and measure and grade. Instead of doing an Internet WWW uprising to remove Donald Trump from the USA and do cult deprogramming with nonfiction books to rescue MAGA... free time and spare time is instead consuming fiction media. Nonfiction real-world reality concerns are abandoned. Because the technology of cameras and high-speed video delivery to smartphones is what matters to the population, images.
+
