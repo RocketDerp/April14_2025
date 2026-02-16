@@ -218,3 +218,8 @@ How bad does the USA have to get before Reddit media cult members do a Reddit up
 https://old.reddit.com/r/Economics/comments/1r6gild/companies_set_to_unleash_sweeping_price_hikes/o5q0tow/
 
 I don't think people are shocked any more than the "shock" they feel watching an episode of a fiction television show when a character dies or a fiction character is hospitalized. People in USA are avoiding the "forest for the trees" perspective, avoiding reality itself, living in personalize filter-bubbles. PERSONALIZED_FILTER_BUBBLE Trump has created economic conditions where people can go to numerous media venues and comment away how much they hate other people. It's a hate-based economy. People are incredibly concerned to make their own unique personal comments about Trump and Putin events... anything to avoid getting on the same page with other people and having a common nonfiction understanding. People are far more attracted to their own personal commenting.
+
+https://old.reddit.com/r/Economics/comments/1r6gild/companies_set_to_unleash_sweeping_price_hikes/o5q48wy/
+
+"not many people know" **important and relevant topics** of macroeconomics that impact everyone in USA. Alas, people are unattractive to use numerous information systems like Reddit to organize a priority-based adult education program. MAGA is a cult that celebrates ignorance, and people have all joined in with the values of avoiding the antidote to ignorance: educating and teaching adults instead of celebrating and cheering on the failures caused by ignorance.  Why are We The People on Reddit not creating organized teaching lessons so that people comprehend and understand the crisis Trump is originating? COMPREHENDING_UNDERSTANDING
+
