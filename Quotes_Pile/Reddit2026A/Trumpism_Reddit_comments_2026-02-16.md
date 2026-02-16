@@ -152,3 +152,14 @@ Trumpism USA. GUN_WORSHIP **anti-intellectual, anti-education, anti-teaching**. 
 
 Guns do not fix the Fox News HDTV cults. Guns do not fix the brain rot that has taken over USA society since year 2013 by video game logic in the minds. Surkov won since March 2013.
 
+The posting title, "perfect timeline" as if world peace and people learning from their mistakes (billionaires learning how geed impacts the entire planet Earth) are not better answers than high-speed Mario shooting sprees.
+
+
+https://old.reddit.com/r/whenthe/comments/1r6fjqc/luigi_in_the_perfect_timeline/o5q7u3x/
+
+Loves it. Cult of media on Reddit media.
+
+* "we are in a period now where I have already mentioned… And these are the phenomenon that Baudrillard examines with the most care. Incredible information overloads with information moving at incredible speed and even to the youngest children. I have talked about how **children used to learn morality from their parents** and now I think that Super Mario Brothers. They spend much more time with Super Mario Brothers and are much more emotionally involved with Nintendo than they are with their aunts, their uncles, their mothers and their fathers." - year 1993. Texan Rick Roderick https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
+
+Media cultists of video game systems are anti-humanism, anti-nonfiction. Instead of calling for global world peace, which is an issue with Putin and Trump full of nuclear weapons on a world conquest path... people in the media cult want action color-filled images. NOT_GOOD_ENOUGH Malala, Rick Roderick is not good enough for Reddit users to study either.
+
