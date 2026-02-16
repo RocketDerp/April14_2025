@@ -468,3 +468,16 @@ Assert Malala, promote Malala, quote Malala.
 
 * “We felt like the Taliban saw us as like little dolls to control, telling us what to do and how to dress. I thought if God wanted us to be like that He would not have made us all different.”
 ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. October 8, 2013.
+
+https://old.reddit.com/r/justgalsbeingchicks/comments/1r69tu0/elizabeth_banks_on_the_continuous_fight_for/o5p3cq2/
+
+History tells us that Putin and Trump and Hitler will keep rising up because people prize hate. History tells us that history itself is a nightmare. Stop worshiping violence, Reddit cult of action violence images, "violence porno" cults. Anti-intellectual Reddit values, pro-Trump violence, pro-ICE violence, anti-education, anti-teaching, anti-Malala. 
+
+* “History, Stephen said, is a nightmare from which I am trying to awake.”
+― James Joyce, Ulysses
+
+Reddit society LOVES to worship cool and powerful phallic weapon systems and their ejections of power.
+
+Reddit society avoids Malala. Avoids quoting and promoting Malala. Year 2013 Malala was on the world stage, **so was Trump - doing a sex show in Moscow** November 8, 2013. Guess who keeps getting repeated, quoted, mirrored, copycat on Reddit - Trump, not Malala.
+
+* "The extremists are afraid of books and pens. The power of education frightens them. They are afraid of women. The power of the voice of women frightens them." - **July 12, 2013** https://malala.org/news-and-voices/malala-un-speech
