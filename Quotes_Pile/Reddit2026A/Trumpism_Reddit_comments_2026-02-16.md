@@ -92,3 +92,8 @@ https://old.reddit.com/r/circled/comments/1r69r20/richard_gere_we_have_a_preside
 
 9 day Reddit account. Top-voted most popular comment. Twitter-length short-message Tweet-thinking Elon Musk programmed mindsets. Free time and spare time spent commenting over and over, day after day, hour after hour, instead of educating and teaching cult deprogramming. Dr. Bandy X Lee's October 3, 2017 book with 27 contributors rots on the nonfiction book shelf - Reddit society of shit-commenting and shit-posting over and over about Trump does not resist because it is all social "engagement" to comment on it. FAKE_RESISTANCE
 
+https://old.reddit.com/r/circled/comments/1r69r20/richard_gere_we_have_a_president_whos_not_only/o5okmyl/
+
+DENIAL_ABOUNDS BLACKOUT_MEMORY_TIME_LOSS RECENCY_BIAS  
+In the Cambridge Analytica and IRA aftermath, there is extreme recency bias and memory loss due to so much low-effort commenting fixations. The avoidance of nonfiction reality is widespread in USA.
+
