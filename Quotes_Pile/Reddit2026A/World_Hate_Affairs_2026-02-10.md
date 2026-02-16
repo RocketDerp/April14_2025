@@ -461,3 +461,10 @@ https://old.reddit.com/r/videos/comments/1r68tc5/irish_citizens_tortured_by_ice_
 CONDITIONED_OPPOSITION messaging about future books. Media cults on Reddit want book media content. Instead of using Reddit to put an end to this Trump media content creation, people keep discussing their desires for more content about the events. This is a cult of information, history book cult. STOP MAKING HISTORY OF BADNESS, MAKE HISTORY FOR REDDIT_BLACKOUT and INTERNET_UPRISING to put an END to Trumpism and Putinism with education and teaching of nonfiction serious topics! CHANGE THE WORLD RIGHT NOW using Reddit commenting: Promote Dr. Bandy X Lee's writings. Promote Jen Senko's nonfiction film and book!
 
 https://old.reddit.com/r/okbuddycinephile/comments/1r67mk1/they_got_quentin_tarantino_dawg/o5o8x8b/
+
+https://old.reddit.com/r/justgalsbeingchicks/comments/1r69tu0/elizabeth_banks_on_the_continuous_fight_for/o5ok1i8/
+
+Assert Malala, promote Malala, quote Malala.
+
+* “We felt like the Taliban saw us as like little dolls to control, telling us what to do and how to dress. I thought if God wanted us to be like that He would not have made us all different.”
+― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. October 8, 2013.
