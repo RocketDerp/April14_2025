@@ -1846,3 +1846,8 @@ BEYOND_DENIAL.  Yes. The Reddit cult fandom of Trump has been thrilled that ever
 https://old.reddit.com/r/law/comments/1r5s9r6/reddit_is_voluntarily_giving_dhs_info_of_users/o5l8b64/
 
 Enough is ENOUGH. People need to stop threatening ICE. ICE employees are a cult to Fox News HDTV. Ice is a cult to Truth Social media systems. ICE is a cult to Newsmax. Start addressing the CULT and MENTAL HEALTH issues. Nobody is taking the high road of sustained education, re-education, adult education. Stand up for authentic goodness. Stop celebrating ignorance, stop celebrating MAGA failures and ICE failures as "wins", none of this is goodness. People have ABANDONED actually desiring an INTELLIGENT and REASONABLY thinking nation. Call for people to follow, teach, quote, study, repeat Dr. Bandy X Lee's 27 contributors to her October 3, 2017 nonfiction book.
+
+https://old.reddit.com/r/law/comments/1r5s9r6/reddit_is_voluntarily_giving_dhs_info_of_users/o5la1uv/
+
+"cult". Reddit is also a cult. EVERYONE is avoiding Dr. Bandy X Lee and Jen Senko's leadership. It has become a CULT of commenting over and over about the OTHER CULTS. Media cultists vs. media cultists. Everyone has fallen into the quagmire of Fox News mindsets, everyone has been dragged down to where Fox News was in year 2015. Mindsets are wrecked. TURN TO Dr. Bandy X Lee's leadership! Turn to Jen Senko's example. CRY OUT LOUD! Cry for mental health help on cults, nonfiction cult deprogramming REAL_PEOPLE_ADMIT ADMIT TO THE CULT PROBLEMS IN A SEROUS NON-SNARK NON-MOCKING WAY! End the mockery. Admit that Putin wrecked your neighbors hearts and minds. 
+
