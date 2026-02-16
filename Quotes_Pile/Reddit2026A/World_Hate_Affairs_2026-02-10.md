@@ -488,4 +488,4 @@ https://old.reddit.com/r/International/comments/1r6dhnx/racism_and_bigotry_have_
 
 https://old.reddit.com/r/International/comments/1r6dhnx/racism_and_bigotry_have_become_so_normalized_that/o5pc228/
 
-22 day Reddit account. SECOND top-upvoted comment.
+22 day Reddit account. SECOND top-upvoted comment. GIVE_UP_ANTI_EDUCATION_ANTI_TEACH_ANTI_PROGRESS These comments serve to say: give up on education and teaching, people can't learn messages to Reddit audience.
