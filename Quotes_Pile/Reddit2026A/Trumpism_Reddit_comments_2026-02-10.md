@@ -1902,3 +1902,12 @@ My answer is that it is a TOTAL NATION cult, 100%, not 50%, not 30%. EVERYONE, e
 https://old.reddit.com/r/politics/comments/1r5l8k2/trumps_plot_to_steal_the_midterm_elections_is/o5l81k4/
 
 The problem is people come to social platforms every day, and REACT to the White House. People are in feedback loops of reaction-commenting to Trump / MAGA / Kremlin / White House. ANTI_WIKI_ANTI_FAQ
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1r5n9aa/this_lying_sack_of_shit_and_the_weirdos_that/o5ksef0/
+
+Reddit is a cult of mocking Trump. A cult of mockery. Trump leads the mockery and Reddit cult follows the leader. TRUMP_FANDOM Why isn't there a FAQ or Wiki about this shooting? Why are these low-effort social media shit-postings and shit-commenting prized just like Truth Social is full of shit-posting and shit-commenting. After years, nobody has assembled a FAQ? ANTI_WIKI_ANTI_FAQ This is a cult of ignorance on Reddit that loves shit-commenting. A MEDIA CULT. High-speed commenting addictions. This is not "Progressive H.Q.", this shit-posting shit-commenting is behaving like ignorant MAGA.
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1r5n9aa/this_lying_sack_of_shit_and_the_weirdos_that/o5k7tv8/
+
+2 month Reddit account. "vibes‑based psyop". No evidence, no proof. Vibes media, vibe-based social media commenting. SURKOV_WARFARE There are FAR MORE IMPORTANT DANGEROUS MATTERS TO PROMOTE on Reddit right now EVERY DAY. NOT_GOOD_ENOUGH Dr. Bandy X Lee should be quoted, linked, cited constantly on Reddit to address the mental health issues of Trump!
+
