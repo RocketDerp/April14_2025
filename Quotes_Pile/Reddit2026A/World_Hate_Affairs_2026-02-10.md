@@ -497,3 +497,10 @@ https://old.reddit.com/r/International/comments/1r6dhnx/racism_and_bigotry_have_
 * “Evil comes from a failure to think. It defies thought for as soon as thought tries to engage itself with evil and examine the premises and principles from which it originates, it is frustrated because it finds nothing there. That is the banality of evil.” ― Hannah Arendt, Eichmann in Jerusalem: A Report on the Banality of Evil
 
 * "That such **remoteness from reality and such thoughtlessness can wreak more havoc than all the evil instincts taken together** which, perhaps, are inherent in man—that was, in fact, the lesson one could learn in Jerusalem.” ― Hannah Arendt, Eichmann in Jerusalem: A Report on the Banality of Evil
+
+All this spare time and free time of people commenting on Reddit. Why isn't Reddit community organizing a REDDIT_BLACKOUT in protest? Why isn't Reddit community on the front page of world news https://www.thestar.com/business/reddit-blackout-here-s-why-thousands-of-pages-went-dark-on-monday-and-how-long/article_4847569b-6784-52e1-a5eb-77b48840c626.html for protesting? Why are Reddit users so avoidant of quoting nonfiction seriously written books? why is Dr. Bandy X Lee's mental health topic books not quoted on Reddit despite the obvious thinking crisis?
+
+https://old.reddit.com/r/International/comments/1r6dhnx/racism_and_bigotry_have_become_so_normalized_that/o5por1t/
+
+1 month Reddit account. GAMERS_SIMULACRA - no concern to do more than leave a low-effort comment. 
+
