@@ -235,3 +235,6 @@ https://old.reddit.com/r/politics/comments/1r6kgku/billionaire_trump_donor_closi
 
 4 month Reddit account. TRUMP_FANDOM cheering on the USA being wrecked by Putin's IRA. SATIRE_SARCASM_WASHING
 
+https://old.reddit.com/r/politics/comments/1r6kgku/billionaire_trump_donor_closing_us_plant_and/o5qteu7/
+
+Message payload: Passive do-nothing except commenting on Reddit. " When will the magats see that the Epstein billionaires have no loyalty?" when will ***We The People*** actually use information systems to stage an online Internet protest and education campaign to rescue MAGA cult members and Fox News HDTV cult members that Rupert Murdoch billionaire had mind-fucked? This comment message is a *sit passively and observe MAGA destroy the nation year after year, din't lift a finger to stop it with intellectual teaching*. GIVE_UP_ANTI_EDUCATION_ANTI_TEACH_ANTI_PROGRESS
