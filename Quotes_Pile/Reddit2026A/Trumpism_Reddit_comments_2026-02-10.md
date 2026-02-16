@@ -1833,3 +1833,16 @@ https://old.reddit.com/r/wallstreetbets/comments/1r5pdcs/us_2025_jobs_numbers_re
 
 https://old.reddit.com/r/wallstreetbets/comments/1r5pdcs/us_2025_jobs_numbers_revised_down_by_over_1/o5kl1jq/
 
+https://old.reddit.com/r/law/comments/1r5s9r6/reddit_is_voluntarily_giving_dhs_info_of_users/o5l6u7x/
+
+https://old.reddit.com/r/law/comments/1r5s9r6/reddit_is_voluntarily_giving_dhs_info_of_users/o5l5qdd/
+
+Yes. As that would inspire more hate following to Trump. When leading with hate, you troll Reddit into Matthew 4:19 being caught with hate chasing. Reddit follows leaders of hate. Note the absence of MLK Jr quotes and lecturing (even on today, a Sunday). Note the lack of any sentiment or concept of rescuing MAGA from Putin and Murdoch manipulation. Even with all the NATO signs in public that show Russia has wrecked people into hatting good long-term stable partnerships with USA. Attacking Canada makes no sense for USA, but it is great for Putin. Surkov won since March 2013.
+
+https://old.reddit.com/r/law/comments/1r5s9r6/reddit_is_voluntarily_giving_dhs_info_of_users/o5ld98m/
+
+BEYOND_DENIAL.  Yes. The Reddit cult fandom of Trump has been thrilled that every person in the nation is manic and engaged to Trump ideas, copying Trump behaviors. Even if they claim it is satire and sarcasm, the END RESULT is living in a nation of non-stop always-on Trumpism. Any time day or night, wild antics and breaking news. High speed BREAKING NEWS ADDICTIONS are what Reddit users dream of and why Trump has so much power. Surkovian governing.
+
+https://old.reddit.com/r/law/comments/1r5s9r6/reddit_is_voluntarily_giving_dhs_info_of_users/o5l8b64/
+
+Enough is ENOUGH. People need to stop threatening ICE. ICE employees are a cult to Fox News HDTV. Ice is a cult to Truth Social media systems. ICE is a cult to Newsmax. Start addressing the CULT and MENTAL HEALTH issues. Nobody is taking the high road of sustained education, re-education, adult education. Stand up for authentic goodness. Stop celebrating ignorance, stop celebrating MAGA failures and ICE failures as "wins", none of this is goodness. People have ABANDONED actually desiring an INTELLIGENT and REASONABLY thinking nation. Call for people to follow, teach, quote, study, repeat Dr. Bandy X Lee's 27 contributors to her October 3, 2017 nonfiction book.
