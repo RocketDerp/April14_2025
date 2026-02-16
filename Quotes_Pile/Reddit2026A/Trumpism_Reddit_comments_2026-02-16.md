@@ -50,5 +50,7 @@ SUPER_HYPER_NORMAL downplaying, mocking, trivializing ICE. All predictable condi
 
 * “The human brain can protect us from seeing and feeling what it believes may be **too uncomfortable for us to tolerate. It can lead us to deny, defend, minimize**, or rationalize away something that doesn’t fit our worldview.” ― Dr. Bandy X Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. Published **October 3, 2017**. Page 273. Chapter "TRUMP'S DADDY ISSUES"](https://books.google.com/books?id=g0c4DwAAQBAJ&pg=PA273&dq=%E2%80%9CThe+human+brain+can+protect+us+from+seeing+and+feeling+what+it+believes+may+be+too+uncomfortable%22&hl=en&newbks=1&newbks_redir=1&sa=X)
 
+* “The phenomenon we have witnessed in Germany was nothing less than outbreak of epidemic insanity... No one knew what was happening to him, least of all of the Germans, who allowed themselves to be driven to the slaughterhouse by their leading psychopaths like hypnotized sheep.” - Dr. Carl Jung, After the Catastrophe, 1945
+
 Social post { https://autistics.life/@RoundSparrow/116080457357914367 https://bsky.app/profile/roundsparrow.bsky.social/post/3mey4ke3xtk2r }
 
