@@ -579,6 +579,8 @@ https://old.reddit.com/r/LivestreamFail/comments/1r60c5e/after_spending_years_ta
 
 https://old.reddit.com/r/technology/comments/1r657he/ai_hard_drives_are_already_sold_out_for_the/o5o4z0n/
 
+CONTEXT_ASSERTION: my commentary here is about the whole reply context. This specific message is not what i'm addressing but the more banal messages claiming the hard drive shortage is completely fabricated. People claiming the supply is fine and only the price is being increased. The actual message I'm targeted is in response to the Reddit hive minded thinking that does not engage nonfiction.
+
 DEFLECTION_FROM_BILLIONAIRES_AND_PUTINISM the Reddit comment section is full of low-effort commenting that deflects away form what billionaires are doing to the common man. Reddit tech cultists, cults of billionaire providers, love fiction but do not assert nonfiction and reality in the face of billionaires.
 
 * April 9, 1944 USA Vice-President Henry Wallace: “The American fascists are most easily recognized by their deliberate perversion of truth and fact. Their newspapers and propaganda carefully cultivate every fissure of disunity… They claim to be super-patriots, but they would destroy every liberty guaranteed by the Constitution. They demand free enterprise, but are the spokesmen for monopoly and vested interest. Their final objective toward which all their deceit is directed is to capture political power so that, using the power of the state and the power of the market simultaneously, they may keep the common man in eternal subjection.”
