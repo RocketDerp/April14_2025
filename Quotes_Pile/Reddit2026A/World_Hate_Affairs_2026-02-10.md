@@ -481,3 +481,11 @@ Reddit society LOVES to worship cool and powerful phallic weapon systems and the
 Reddit society avoids Malala. Avoids quoting and promoting Malala. Year 2013 Malala was on the world stage, **so was Trump - doing a sex show in Moscow** November 8, 2013. Guess who keeps getting repeated, quoted, mirrored, copycat on Reddit - Trump, not Malala.
 
 * "The extremists are afraid of books and pens. The power of education frightens them. They are afraid of women. The power of the voice of women frightens them." - **July 12, 2013** https://malala.org/news-and-voices/malala-un-speech
+
+https://old.reddit.com/r/International/comments/1r6dhnx/racism_and_bigotry_have_become_so_normalized_that/o5pd1b9/
+
+22 day Reddit account. Top-upvoted comment, most popular.
+
+https://old.reddit.com/r/International/comments/1r6dhnx/racism_and_bigotry_have_become_so_normalized_that/o5pc228/
+
+22 day Reddit account. SECOND top-upvoted comment.
