@@ -87,3 +87,8 @@ https://old.reddit.com/r/MurderedByWords/comments/1r67z8l/trumps_first_amendment
 ICE_FANDOM Reddit audience is a consumer base for selling of turd sandwiches and profiting off a constant demand. A cult of eating turds from I.C.E. and declaring how they taste that day. Instead of addressing the cult of ICE employees, addressing the Fox News HDTV cult Rupert Murdoch has created with media systems... Reddit community is a fandom of turd sandwiches. SEE_ALSO: https://GitHub.com/RocketDerp/April14_2025/blob/main/Grim_Blunt/Society_of_grading_and_ranking_turds.md
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3meyfiuloyk2y https://autistics.life/@RoundSparrow/116081083466253749 }
+
+https://old.reddit.com/r/circled/comments/1r69r20/richard_gere_we_have_a_president_whos_not_only/o5okld9/
+
+9 day Reddit account. Top-voted most popular comment. Twitter-length short-message Tweet-thinking Elon Musk programmed mindsets. Free time and spare time spent commenting over and over, day after day, hour after hour, instead of educating and teaching cult deprogramming. Dr. Bandy X Lee's October 3, 2017 book with 27 contributors rots on the nonfiction book shelf - Reddit society of shit-commenting and shit-posting over and over about Trump does not resist because it is all social "engagement" to comment on it. FAKE_RESISTANCE
+
