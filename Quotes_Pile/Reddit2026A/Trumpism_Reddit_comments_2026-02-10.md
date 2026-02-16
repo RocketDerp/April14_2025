@@ -1974,7 +1974,20 @@ https://old.reddit.com/r/AdviceAnimals/comments/1r5wg7m/its_so_obvious/o5ne7k7/
 
 People are drowning important topics as "Advice Animals" on Reddit /r/AdviceAnimals memes. People do have the concept of a nonfiction book, people do know what Wiki systems look like. But they would rather create comment after comment over and over and over. It's so sickening that people think all being on different pages at different times is not a "We the People" problem. The October 3, 2017 nonfiction book by Dr. Bandy X Lee with 27 contributors isn't good enough for people to find common ground to teach, educate, and quote from. NOT_GOOD_ENOUGH 
 
+https://old.reddit.com/r/AdviceAnimals/comments/1r5wg7m/its_so_obvious/o5md2mg/
 
+It works. ANTI_REALITY people choose liars as leaders. The kind of serious thoughtful people who would write a book explaining a common problem are ignored, and then people can't resist their compulsive attraction to celebrity.
 
+* "By bringing together in compact form all of the arts of show business — music, drama, imagery, humor, celebrity — the television commercial has mounted the most serious assault on capitalist ideology since the publication of Das Kapital. To understand why, we must remind ourselves that capitalism, like science and liberal democracy, was an outgrowth of the Enlightenment. Its principal theorists, even its most prosperous practitioners, believed capitalism to be based on the idea that both buyer and seller are sufficiently mature, well informed and reasonable to engage in transactions of mutual self-interest. If greed was taken to be the fuel of the capitalist engine, then surely rationality was the driver. The theory states, in part, that competition in the marketplace requires that the buyer not only knows what is good for him **but also what is good**. If the seller produces nothing of value, as determined by a rational marketplace, then he loses out. It is the assumption of rationality among buyers that spurs competitors to become winners, and winners to keep on winning. Where it is assumed that a buyer is unable to make rational decisions, laws are passed to invalidate transactions, as, for example, those which prohibit children from making contracts. In America, there even exists in law a requirement that sellers must tell the truth about their products, for **if the buyer has no protection from false claims, rational decision-making is seriously impaired**." ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. Year 1985.
 
+https://old.reddit.com/r/AdviceAnimals/comments/1r5wg7m/its_so_obvious/o5mlp9z/
 
+Anti-citation, anti-quotation, anti-nonfiction. "Advice Animals".
+
+https://old.reddit.com/r/AdviceAnimals/comments/1r5wg7m/its_so_obvious/o5mjx5e/
+
+In other words, they play language games. People manipulate other people with communications timing and messaging. Yet, Reddit society does not turn to any serious nonfiction on the subject and instead favors low-effort commenting, more commenting, and commenting yet again. And the commenting does not repeat and assert that all information is not equal.  Reddit commenting is a cult.
+
+* “There is a cult of ignorance in the United States, and there has always been. The strain of anti-intellectualism has been a constant thread winding its way through our political and cultural life, nurtured by the false notion **that democracy means that 'my ignorance is just as good as your knowledge.”** ― Isaac Asimov. Year 1980.
+
+Communications timing and messages is used to create fiction, untrue, ignorant statements. Then people RACE at high speeds to Apple iPhone / Apple iPad / Android devices to comment upon that ignorance. And the commenting does not show serious and persistent concern that we all need to be focusing on Neil Postman's 1985 nonfiction book "Amusing Ourselves To Death".
