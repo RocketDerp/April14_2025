@@ -192,3 +192,7 @@ Your WORLD VIEW is not keeping up with REALITY REALITY_REAL that I.C.E. is ABOVE
 
 * European Consortium for Political Research (ECPR). "April 2, 2025 — We argue that **Trump's charismatic authority and cult-like following** strongly aligns with the concept of the transgressive carnival fool." - https://theLoop.ECPR.eu/explaining-the-trump-loyalty-cult-phenomenon/
 
+https://old.reddit.com/r/politics/comments/1r6gu9l/ice_traffic_stop_ends_in_death_of_school_teacher/o5q2sh7/
+
+SUPER_HYPER_NORMAL as long as the Reddit end-users get to make their mark with a digital comment on cloud servers. No resistance, normalizing it as fast as possible. The cult of Reddit is only concerned to leave a "first post", "I was here" Reddit comment message about **the mass dehumanization going on in United States of America February 2026**. This is an "ALL OK", "ALL CLEAR", egoism ("I am still here") style message to society. ROUTINE_NO_NEED_TO_RESIST_OR_ORGANIZE_INTELLECTUAL_UPRISING 
+
