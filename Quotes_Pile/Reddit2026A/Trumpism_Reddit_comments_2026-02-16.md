@@ -231,3 +231,7 @@ https://old.reddit.com/r/politics/comments/1r6kgku/billionaire_trump_donor_closi
 
 Tiny-short commenting, Twitter-length thinking, Tweet mindsets as programmed in to audiences by Twitter owner Elon Musk. BILLIONAIRE_MIND_VIRUS brain rot on Reddit commenting from prizing low-value information day in and day out. 
 
+https://old.reddit.com/r/politics/comments/1r6kgku/billionaire_trump_donor_closing_us_plant_and/o5qtkwj/
+
+4 month Reddit account. TRUMP_FANDOM cheering on the USA being wrecked by Putin's IRA. SATIRE_SARCASM_WASHING
+
