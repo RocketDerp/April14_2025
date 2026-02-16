@@ -163,3 +163,10 @@ Loves it. Cult of media on Reddit media.
 
 Media cultists of video game systems are anti-humanism, anti-nonfiction. Instead of calling for global world peace, which is an issue with Putin and Trump full of nuclear weapons on a world conquest path... people in the media cult want action color-filled images. NOT_GOOD_ENOUGH Malala, Rick Roderick is not good enough for Reddit users to study either.
 
+https://old.reddit.com/r/whenthe/comments/1r6fjqc/luigi_in_the_perfect_timeline/o5ptk7d/
+
+"Book climbs bestseller list after title was apparently cited on bullet casings at scene of CEO’s death
+This article is more than 1 year old. Jay Feinman’s book that exposes ways insurance companies avoid paying claims hit No 2 on Amazon’s nonfiction list" - December 11, 2024 https://www.theguardian.com/us-news/2024/dec/11/deny-defend-healthcare-industry-book-bestseller
+
+Why isn't Reddit community using Reddit media platform itself to intelligently protest health care costs in USA? Why isn't Reddit using Reddit itself to call for nonfiction mental health education about the dangers of Donald Trump? Why are Reddit comment creators consistently avoiding non-fiction books when FULL of references to fiction television and fiction video games like Mario Brothers? Why are Reddit user ALWAYS avoiding repeating Jay Feinman book when the topic comes up of this CEO shooting? **What is it about NONFICTION BOOKS and ADULT EDUCATION that Reddit is unable to engage? Where is the REDDIT_BLACKOUT calling for betterment? Why is nonfiction books by Dr, Bandy X Lee avoided on Reddit - just like Jay Feinman nonfiction books?** ANSWER: Brain rot of We The People CAUSED by media fiction addictions. BRAIN_ROT_SOCIETY_47 
+
