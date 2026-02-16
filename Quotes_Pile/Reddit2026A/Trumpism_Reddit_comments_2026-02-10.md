@@ -1851,3 +1851,10 @@ https://old.reddit.com/r/law/comments/1r5s9r6/reddit_is_voluntarily_giving_dhs_i
 
 "cult". Reddit is also a cult. EVERYONE is avoiding Dr. Bandy X Lee and Jen Senko's leadership. It has become a CULT of commenting over and over about the OTHER CULTS. Media cultists vs. media cultists. Everyone has fallen into the quagmire of Fox News mindsets, everyone has been dragged down to where Fox News was in year 2015. Mindsets are wrecked. TURN TO Dr. Bandy X Lee's leadership! Turn to Jen Senko's example. CRY OUT LOUD! Cry for mental health help on cults, nonfiction cult deprogramming REAL_PEOPLE_ADMIT ADMIT TO THE CULT PROBLEMS IN A SEROUS NON-SNARK NON-MOCKING WAY! End the mockery. Admit that Putin wrecked your neighbors hearts and minds. 
 
+https://old.reddit.com/r/law/comments/1r5s9r6/reddit_is_voluntarily_giving_dhs_info_of_users/o5l9aw3/
+
+https://old.reddit.com/r/law/comments/1r5s9r6/reddit_is_voluntarily_giving_dhs_info_of_users/o5l93t1/
+
+Yes. WE THE PEOPLE have to make a case for authentic democracy and sharing. It's Sunday... LOVE_ONE_ANOTHER is not optional. We can't have cults of people whose desire is to go around with gangs of hate to wreck the lives of women. Or gangs of hate that are programmed by billionaires to fuck-over poor people and punch-down. Love and compassion are not optional. A hate-based economy is a shit place to live. The motivation that hate provides is aggressive and wrecks things for the children. Future is trashed with hate as an objective and hate-based systems. AMERICANS_HATE_AMERICANS
+
+
