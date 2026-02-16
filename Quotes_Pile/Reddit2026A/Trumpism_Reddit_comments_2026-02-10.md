@@ -1911,3 +1911,14 @@ https://old.reddit.com/r/ProgressiveHQ/comments/1r5n9aa/this_lying_sack_of_shit_
 
 2 month Reddit account. "vibes‑based psyop". No evidence, no proof. Vibes media, vibe-based social media commenting. SURKOV_WARFARE There are FAR MORE IMPORTANT DANGEROUS MATTERS TO PROMOTE on Reddit right now EVERY DAY. NOT_GOOD_ENOUGH Dr. Bandy X Lee should be quoted, linked, cited constantly on Reddit to address the mental health issues of Trump!
 
+https://old.reddit.com/r/Fauxmoi/comments/1r5v37z/robin_williams_on_trump_in_2012_and_he_owns_all/o5lqvor/
+
+WE WERE LISTENING! DENIAL_ABOUNDS Russia won a psychological war! SEE_ALSO: "Настало время замечательных историй. Расскажу вам о том (теперь уже можно), как мы с Дональдом Трампом приняли решение освободить Америку и сделать её снова великой. На это нам понадобилось целых 4 года и ещё 2 дня. Всё началось ночью с 6 на 7 ноября 2012 года." https://GitHub.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Cambridge_Analytica_Quotes.md
+
+It makes zero sense why MAGA USA would INVITE a Chinese virus, a virus from Wuhan, China and not defend against it as biological warfare! People are in a cult of nonsense! We have factual evidence since year 2014, before COVID-19 https://www.bbc.com/news/world-us-canada-45294192
+
+It makes zero sense for rural farm-town Americans to believe a New Your City slickster / playboy who flies around in private jets and and is everything sleazy that rural folks do not like about city folks! He is divorced, he bullshits constantly. it is all INCREDIBLY OBVIOUS! SEE_ALSO: https://GitHub.com/RocketDerp/April14_2025/blob/main/Grim_Blunt/Donald_Trump_is_so_Obvious.md
+
+People do not get the mechanics and details of Russian information war. The signs are all there, anti-NATO attacking Canada. Anti-NATO attacking Greenland. Dropping support for Ukraine in favor of Putin. Even meeting in summer of 2025 with Putin in Alaska! But people keep blowing their minds out laughing and joking about Trump.
+
+The NONSENSE scrambled minds, the cult behaviors, people are not RESCUING MAGA. People are not teaching nonfiction cult deprogramming. People NEED to get in line and cheer and support and repeat quotes from Dr. Bandy X. Lee. Start EDUCATING and TEACHING the general public, everyday people, what Dr. Bandy X Lee has published and assembled.
