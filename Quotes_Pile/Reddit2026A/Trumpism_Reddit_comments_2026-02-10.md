@@ -1888,3 +1888,14 @@ Top-voted comment. One of the saddest things is Reddit community. You have a tec
 I've proposed "Every 47 Hours" everyday people get together (whoever is available) for 90 minutes and do a FAQ and Wiki edits. https://GitHub.com/GreatSealUSA/Brainrot_Society_47/tree/main/Every_47_Hours Publish a "top 10" or "top 15" list every 47 hours of PRIORITIES and AWARENESS education and teaching (for graphic artists, comics, etc). Start organizing an INTELLECTUAL resistance and RESCUE people from billionaire Fox News, billionaire Musk Twitter, billionaire Facebook, billionaire Truth Social, etc.
 
 We The People, no matter if eligible to vote or even in the USA, have it in our interest to organize the most important information that keeps us on a long-term path of goodness. The anti-FAQ anti-Wiki behaviors have drowned out "getting on the same page" of important topics. ANTI_WIKI_ANTI_FAQ
+
+https://old.reddit.com/r/politics/comments/1r5l8k2/trumps_plot_to_steal_the_midterm_elections_is/o5jq5fe/
+
+3 month Reddit account. Highly upvoted (2nd).
+
+https://old.reddit.com/r/politics/comments/1r5l8k2/trumps_plot_to_steal_the_midterm_elections_is/o5jnh7l/
+
+3 month Reddit account. Promoting the idea that half the country is the crisis. Why isn't "the good half" of the nation rescuing the other half? Real people ADMIT we have a MASSIVE mental health crisis in our nation. REAL_PEOPLE_ADMIT Why is Dr. Bandy X Lee being ignored and her 27 contributors to her October 3, 2017 book not being quoted over and over every day on Reddit... why isn't Reddit organizing a blackout protest? If it is only "half the nation" in a cult to Trump engagement and Trump media, why are ALL people ignoring Dr. Bandy X Lee since year 2017? 
+
+My answer is that it is a TOTAL NATION cult, 100%, not 50%, not 30%. EVERYONE, even non-voters. Because quoting and citing Dr. Bandy X Lee's leadership and calling for, begging, people to follow and support Dr. Lee's is an OBVIOUS GOODNESS MOVE. But media cultists only want to comment over and over how much they hate other Americans. This avoidance of serious nonfiction learning has been going on since year 2017 when her book was published. AMERICANS_HATE_AMERICANS
+
