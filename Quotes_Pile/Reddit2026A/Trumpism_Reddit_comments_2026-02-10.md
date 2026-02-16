@@ -1942,5 +1942,16 @@ https://old.reddit.com/r/Fauxmoi/comments/1r5ujs4/aoc_talks_about_the_pain_and_t
 
 Left vs. right brain rot. People need to focus on fiction vs. nonfiction. Fiction outsells nonfiction. All our media systems large and small have bent far into Russian mythology patterns since year 2013.
 
+https://old.reddit.com/r/politics/comments/1r5u109/maga_candidate_outed_as_new_owner_of_epstein/o5ndnzl/
+
+https://old.reddit.com/r/politics/comments/1r5u109/maga_candidate_outed_as_new_owner_of_epstein/o5m6qb8/
+
+https://old.reddit.com/r/politics/comments/1r5u109/maga_candidate_outed_as_new_owner_of_epstein/o5mt1zd/
+
+https://old.reddit.com/r/politics/comments/1r5u109/maga_candidate_outed_as_new_owner_of_epstein/o5mr6ao/
+
+Bible verse "1 John 4:20" not being the introduction every Sunday (as a reminder) is perhaps the biggest cover-up in world history. It leads to bamboozle after bamboozle. People are more convinced of magical ghost spirits and UFO sightings than they are convinced of poisoning the planet might possibly harm their beloved { pet dog, pet kitten, pet cat, children, self }. How can any person think putting fire smoke into your lungs might not have some health impact, yet people defended smoking as not causing cancer or other complications. Alcohol in USA society is still treated a a non-toxic chemical. 
+
+* “One of the saddest lessons of history is this: If we’ve been bamboozled long enough, we tend to **reject any evidence of the bamboozle**. We’re no longer interested in finding out the truth. The bamboozle has captured us. It’s simply too painful to acknowledge, even to ourselves, that we’ve been taken. Once you give a charlatan power over you, you almost never get it back. So the old bamboozles tend to persist as the new ones rise.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, **1995**, page 241.
 
 
