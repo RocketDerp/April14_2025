@@ -128,3 +128,8 @@ https://old.reddit.com/r/LetsDiscussThis/comments/1r6a8b6/reminder_that_was_a_ph
 
 9 month Reddit account. 3 words long. Super-simple anti-intellectual. 
 
+https://old.reddit.com/r/LetsDiscussThis/comments/1r6a8b6/reminder_that_was_a_photo_op/o5omjh4/
+
+https://old.reddit.com/r/LetsDiscussThis/comments/1r6a8b6/reminder_that_was_a_photo_op/o5oljx7/
+
+3 day Reddit account. This is the SUBMITTER (Reddit terminology) of the entire front page /r/all Posting). SURKOVIAN_CHESS
