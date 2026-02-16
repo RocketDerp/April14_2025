@@ -1955,3 +1955,11 @@ Bible verse "1 John 4:20" not being the introduction every Sunday (as a reminder
 * “One of the saddest lessons of history is this: If we’ve been bamboozled long enough, we tend to **reject any evidence of the bamboozle**. We’re no longer interested in finding out the truth. The bamboozle has captured us. It’s simply too painful to acknowledge, even to ourselves, that we’ve been taken. Once you give a charlatan power over you, you almost never get it back. So the old bamboozles tend to persist as the new ones rise.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, **1995**, page 241.
 
 
+https://old.reddit.com/r/TwoXChromosomes/comments/1r5yj7s/woman_dies_after_being_denied_health_care_because/o5mjq3y/
+
+for the record. I do indeed write 2 or 3 long paragraphs and delete them without even a temporary record. I can't even muster picking a quote from the many that echo in my head when reading these experiences.
+
+There are thoughts in my mind in 1996 that come back to me. When I pondered if people would keep building systems that were dehumanizing or if there would be a rise of social movements like Martin Luther King Jr who had made compassion popular enough that it got recorded and passed down. But would we continue to stop passing down authentic joy and goodness and keep elevating a kind of manipulating mind-tricking mindsets that concentrate power and wealth.
+
+* “Ours is the first age in which many thousands of the best-trained individual minds have made it a full-time business to get inside the collective public mind.”
+― Marshall McLuhan, The Mechanical Bride : Folklore of Industrial Man. year 1951.
