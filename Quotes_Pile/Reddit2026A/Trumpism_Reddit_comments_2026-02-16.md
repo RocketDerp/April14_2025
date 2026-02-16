@@ -180,3 +180,15 @@ Just I.C.E. Not CDC, that's not a danger to spreading diseases all over the worl
 
 * “Assessing dangerousness is different from making a diagnosis: it is dependent on the situation, not the person. Signs of likely dangerousness due to mental disorder can become apparent without a full diagnostic interview and can be detected from a distance, and one is expected to err, if at all, on the side of safety when the risk of inaction is too great.”
 ― Bandy X. Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. Published October 3, 2017. PROLOGUE. Page 5.](https://books.google.com/books?id=g0c4DwAAQBAJ&pg=PA5&dq=dangerousness+due+to+mental+disorder+can+become+apparent+without+a+full+diagnostic+interview+and+can+be+detected+from+a+distance&hl=en&newbks=1&newbks_redir=1&sa=X)
+
+https://old.reddit.com/r/politics/comments/1r6gu9l/ice_traffic_stop_ends_in_death_of_school_teacher/o5q8yd7/
+
+BEYOND_DENIAL. Yes. So many comments on Reddit are about tech-minded technology addicts, saying "traffic stops" technicalities. People are AVOIDING: mental health, corruption of the human brain, cult of commenting! PEOPLE ARE AVOIDING: Dr. Bandy X Lee's nonfiction book from October 3, 2017 that is about DANGERS of MIND of Donald Trump! People are in DENIAL of the Forest for the trees of little technical details.
+
+* “The human brain can protect us from seeing and feeling what it believes may be too uncomfortable for us to tolerate. It can **lead us to deny, defend, minimize**, or rationalize away something that doesn’t fit our worldview.”
+― Dr. Bandy X Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. Published **October 3, 2017**. Page 273. Chapter "TRUMP'S DADDY ISSUES"](https://books.google.com/books?id=g0c4DwAAQBAJ&pg=PA273&dq=%E2%80%9CThe+human+brain+can+protect+us+from+seeing+and+feeling+what+it+believes+may+be+too+uncomfortable%22&hl=en&newbks=1&newbks_redir=1&sa=X)
+
+Your WORLD VIEW is not keeping up with REALITY REALITY_REAL that I.C.E. is ABOVE THE LAW! Because MAGA is a CULT to authority. ICE people are in a CULT and need to be CULT DEPROGRAMMED, RESCUED from Trumpism mindsets! Surkov won since March 2013.
+
+* European Consortium for Political Research (ECPR). "April 2, 2025 — We argue that **Trump's charismatic authority and cult-like following** strongly aligns with the concept of the transgressive carnival fool." - https://theLoop.ECPR.eu/explaining-the-trump-loyalty-cult-phenomenon/
+
