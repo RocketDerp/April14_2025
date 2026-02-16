@@ -14,3 +14,11 @@ In America, Orwell’s prophecies are of small relevance, but Huxley’s are wel
 https://old.reddit.com/r/worldnews/comments/1r64kub/french_mp_%C3%A9ric_bothorel_sanctioned_by_the_united/o5ntuxh/
 
 https://old.reddit.com/r/worldnews/comments/1r64kub/french_mp_%C3%A9ric_bothorel_sanctioned_by_the_united/o5o291v/
+
+https://old.reddit.com/r/videos/comments/1r612tt/thomas_massie_says_to_abcs_this_week_hes_lost/o5n6xai/
+
+DENIAL_ABOUNDS "She wasn’t confident enough to engage in anything but name-calling in a hearing. And so no, I don’t have confidence in her.”
+
+Name-calling wins ANY debate on ANY topic. Manipulating people using the power of the White House media coverage wins ANY TOPIC no matter how complicated, by drowning out nonfiction signal with name-calling shit-talking shit-posting shit-commenting. Russia won against NATO using this technique on Reddit since March 2013! USA is in mental ruins because Russia discovered that name-calling wins ANY AND EVERY debate. Shit-commenting wins! Surkov won since March of year 2013.
+
+* "Russia-watcher Catherine Fitzpatrick, who documents Kremlin disinformation for InterpreterMag . com, says just as Moscow uses vague Internet laws to encourage self-censorship, trolls inhibit informed debate by using **crude dialogue to change "the climate of discussion."** "If you show up at The Washington Post or New Republic sites, where there's an article that's critical of Russia, and you see that **there are 200 comments that sound like they were written by 12-year-olds**, then you just don't bother to comment," she says.  "You don't participate. It's a way of just **driving discussion away** completely," she adds. "Those **kinds of tactics are meant to stop democratic debate**, and they work." - **year 2014** https://www.theatlantic.com/international/archive/2014/08/the-kremlins-troll-army/375932/
