@@ -42,7 +42,7 @@ Trump is #Celebrity - social power over superficial and shallow mindsets
 
 #PostMarriage #PostFamily #AntiImmigrant
 
-Part of what has happened you can study by the family of Donald Trump. In marriages and intimate relationships, people constantly watch for "red flags" and abandon relationships. In the #MAGA values society, people disown family members who join #FoxNews cult. Nobody is learning from mistakes.
+Part of what has happened you can study by the family of Donald Trump. In marriages and intimate relationships, people constantly watch for "red flags" and abandon relationships. In the #MAGA values society, people disown family members who join #FoxNews cult. **Nobody is learning from mistakes.**
 
 The anti-Immigrant MAGA movement is a machine-blocking idea. People are more thrilled to declare hate than compassion. People join hate fandoms, mocking fandoms, of people or music bands or hate-watching TV shows. People enjoy hating their ex-lovers more than any authentic joy of parenting and family. Does Donald Trump and Elon Musk entertain their children with consumer goods and purchases. Trump and Musk children are raised to be consumers. Conspicuous consumption.
 
@@ -53,6 +53,23 @@ Leo Buscaglia who died in year 1998 at the age of 74... was the kind of leader p
 Epstein provided the freedom to abuse the poor and weak. The freedom to abuse and freedom to use. The billionaire's programming. I worked for a bachelor billionaire. 3rd richest man in the world, who worked with the 1st richest man in the world. I was their private staff servant in year 1997 when the money doubled in a single year 1998. Single, unmarried, bachelor billionaire that was a master of controlling.
 
 Ghislaine Maxwell and Jeffrey Epstein were about formalizing and organizing that desire to abuse the poor. to hate upon your ex-lover and dispose of inward compassion-learning journey of marriage in favor of private first-class jet and private first-class island. Ghislaine Maxwell and Jeffrey Epstein were consumerist commodity brokers for billionaire anti-marriage. Poor people are the source of wealth and power, abuse the fuck out of them. That was my work experience of Paul Allen and Jody Allen in 1997, 1998, 1999 the hayday payday wealth-doubling pre-Y2K years. Exploit and abuse the poor people. Jody Allen got divorced... Paul Allen never got married. You don't grow the human compassion for all the world, you develop the hate of poor people. And Fox News HDTV has made that popular even for poor people to hate poor people. Anti-immigrants, anti-compassion, anti "liberals" who might go to university and re-discover Leo Buscaglia who died in year 1998 at the age of 74...
+
+&nbsp;
+
+## Repeating: Mistakes Experiences
+
+REPEATING_REPEATER **Nobody is learning from mistakes.** - people are programmed with the 'red flag" flee, mistake flee, anti-forgiveness, flee, block-happy behavior, self-deport, run off. Billionaires are inserting themselves into our brains, programming our minds with sports team ownership, programming our minds with advertising and marketing. Religions have been exploiting our brains for thousands of years.  It is fucking IMPOSSIBLE to not make mistakes. We are exploited in our heads. We are constantly being manipulated and tricked. And until we address this hostile society behavior globally... we need to be LEARNING from our mistakes.
+
+**Nobody is learning from mistakes.**  There was a BRIEF TIME PERIOD when the world had jet travel and we were recognized this.
+
+* "CAMPBELL: Marriage is a relationship. When you make the sacrifice in marriage, you’re sacrificing not to each other but to unity in a relationship. The Chinese image of the Tao, with the dark and light interacting—that’s the relationship of yang and yin, male and female, which is what a marriage is. And that’s what you have become when you have married. You’re no longer this one alone; your identity is in a relationship. Marriage is not a simple love affair, **it’s an ordeal, and the ordeal is the sacrifice of ego** to a relationship in which two have become one. MOYERS: So marriage is utterly incompatible with the idea of doing one’s own thing. CAMPBELL: It’s not simply one’s own thing, you see. It is, in a sense, doing one’s own thing, but the one isn’t just you, it’s the two together as one. And that’s a purely mythological image signifying the sacrifice of the visible entity for a transcendent good. This is something that becomes beautifully realized in the second stage of marriage, what I call the alchemical stage, of the two experiencing that they are one. If they are still living as they were in the primary stage of marriage, they will go apart when their children leave. Daddy will fall in love with some little nubile girl and run off, and Mother will be left with an empty house and heart, and will have to work it out on her own, in her own way." - age 83, year 1987, published year 1988. Power of Myth.
+
+**Nobody is learning from mistakes.**  There was a BRIEF TIME PERIOD when the world had jet travel and we were recognized this as an inward (every person, every relationship, global issue) problem. OPERA_A https://www.youtube.com/watch?v=VJDJs9dumZI Lyric: "I don't know **why nobody told you** how to unfold your love. I don't know how someone controlled you. **They bought and sold you**"; "I don't know how you were diverted
+You were perverted too
+I don't know how you were inverted.
+**No one alerted you**"; "With every mistake we must surely be learning" 
+
+
 
 &nbsp;
 
