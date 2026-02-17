@@ -459,8 +459,14 @@ Trivializing the adult education crisis. Trivializing what Fox News HDTV has don
 
 https://old.reddit.com/r/LeopardsAteMyFace/comments/1r761yw/ford_shuts_down_58_billion_factory_just_months/o5vd115/
 
-"How many of these terrible stories concerning lost jobs and closing facilities will we need to listen to before MAGA granny/grandpa figure out their children are right. Trump is responsible." ANSWER: DEFLECTION_FROM_BILLIONAIRES_AND_PUTINISM - this message thinks Trump did this alone. Trump is the front man. Reddit is a hate-watching cult. Hate upon Ford employees as programmed by the IRA. REDDIT_HIVE_MIND_FORGOT Reddit has forgotten: "Hillary Clinton: Putin Would 'Rather Have a Puppet as President' | NBC News" "Break up NATO". 7,675 views October 19, 2016
+"How many of these terrible stories concerning lost jobs and closing facilities will we need to listen to before MAGA granny/grandpa figure out their children are right. Trump is responsible." ANSWER: DEFLECTION_FROM_BILLIONAIRES_AND_PUTINISM - this message thinks Trump did this alone. Trump is the front man. Reddit is a hate-watching cult. Hate upon Ford employees as programmed by the IRA. REDDIT_HIVE_MIND_FORGOT Reddit has forgotten: "Hillary Clinton: Putin Would 'Rather Have a Puppet as President' | NBC News" "Break up NATO". 7,675 views October 19, 2016 https://www.youtube.com/watch?v=Cq8f8oU9wYs
 
 Reddit audience / Reddit app users have extreme information overload symptoms and chronic RECENCY_BIAS abounds. Reddit cult members of hate suffer from BLACKOUT_MEMORY_TIME_LOSS - and do not recognize their are part of the defeated by Russia.
 
 OPERA_A REPEAT_TRACK Join and rescue the USA! Ford and MAGA are the lost hearts and mind, Surkov won. "Welcome To The Black Parade" "Savior of the beaten" by Kremlin. The damned by Putin. The non-believers in goodness. The plans they have made... https://www.youtube.com/watch?v=RRKJiM9Njr8 406,358,253 views October 26, 2009 
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1r79z36/non_of_us_knew_a_threads_post/o5vw56n/
+
+Reddit cult is deflecting from reality. Twitter-length messages on Reddit to declare that all teaching, learning, news issues, the Fox News HDTV cult is simple and trivial. DEFLECTION_FROM_BILLIONAIRES_AND_PUTINISM Has this Reddit user never encountered family or co-workers who are cultists to HDTV Fox News network from Rupert Murdoch? Does this Reddit user in the tiny-short Elon Musk programmed Twitter-thinking reactionary mindsets not realize the history of world religions and how people believe science fiction stories are actual reality? That Jesus really is in outer space? Just because a poetry fiction story is so well written.
+
+This is what the cult does on Reddit day in and day out since June 16, 2015 - over a decade of ignoring the reality of MAGA as a fiction storytelling cult. Reddit is a cult of psychological denial that MAGA needs mental health support and rescue. Dr. Bandy X Lee's nonfiction book published October 3, 2017 with 27 contributors is ignored by the ignorant-seeking Reddit community. 
