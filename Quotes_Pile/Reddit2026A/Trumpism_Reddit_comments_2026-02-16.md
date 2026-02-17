@@ -307,3 +307,7 @@ Dr. Bandy X Lee assembled 27 people for a book published October 3, 2017 that th
 https://old.reddit.com/r/pics/comments/1r6so9i/oc_seen_this_weekend_at_the_ren_fair_in_phoenix/o5skrhj/
 
 Symptom of brain rot. Along with the symptom of Fox News being the most popular news network. And Reddit comments that cheer on Donald Trump as a source of constant stimulation and images. Instead of facing up to a crisis with intellectual teaching and education to the general public. Russia has won hearts and minds since year 2013, the Cambridge Analytica aftermath, people are not promoting and supporting Dr. Bandy X Lee's 27.
+
+https://old.reddit.com/r/videos/comments/1r6yc0z/colberts_legal_team_would_not_permit_him_to_air/o5trewi/
+
+LOVE_ONE_ANOTHER is essential to democracy. He has spiritual criticism. Matthew 25 quoted. He is wrong about "Love God" in "1 John 4:20". BIBLE_LITERACY wish he could drop GREAT_SEAL_USA  
