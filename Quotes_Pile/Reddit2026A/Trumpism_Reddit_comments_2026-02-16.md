@@ -291,3 +291,15 @@ https://old.reddit.com/r/Fauxmoi/comments/1r6ndop/woody_harrelson_were_going_bac
 https://old.reddit.com/r/pics/comments/1r6so9i/oc_seen_this_weekend_at_the_ren_fair_in_phoenix/o5sl6r1/
 
 SATIRE_SARCASM_WASHING normalizing horrible things, prizing Trumpism as entertainment. This has been gong on every single day since June 16, 2015. Social media image addicts feeding the Trump bonfires of morality in the minds of cult fandoms (Reddit being a cult fandom).
+
+https://old.reddit.com/r/pics/comments/1r6so9i/oc_seen_this_weekend_at_the_ren_fair_in_phoenix/o5sm16t/
+
+https://old.reddit.com/r/pics/comments/1r6so9i/oc_seen_this_weekend_at_the_ren_fair_in_phoenix/o5sts0w/
+
+"joking" anti-intellectual anti-rescue anti-cult deprogramming. 
+
+https://old.reddit.com/r/pics/comments/1r6so9i/oc_seen_this_weekend_at_the_ren_fair_in_phoenix/o5sjrph/
+
+The whole society, the entire nation of USA, needs remedial morality lessons. I started teaching them on Reddit. https://old.reddit.com/r/RemedialMorality/ April 10, 2025.
+
+Dr. Bandy X Lee assembled 27 people for a book published October 3, 2017 that the entire society needs to be teaching, repeating, and repeat teaching...
