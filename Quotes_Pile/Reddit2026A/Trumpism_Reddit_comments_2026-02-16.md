@@ -424,3 +424,7 @@ Parents have indoctrinated these children into media street gangs, Fox News HDTV
 https://old.reddit.com/r/LeopardsAteMyFace/comments/1r761yw/ford_shuts_down_58_billion_factory_just_months/o5v2nq2/
 
 11 month Reddit account. This is the post submitter. Made front page of /r/All
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1r761yw/ford_shuts_down_58_billion_factory_just_months/o5va3lz/
+
+Topics of comment: FAITH_IN_HATE FAITH_IN_MOCKERY 
