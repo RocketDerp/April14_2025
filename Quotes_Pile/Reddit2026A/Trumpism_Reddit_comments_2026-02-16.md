@@ -364,3 +364,24 @@ https://old.reddit.com/r/politics/comments/1r743qw/stephen_colbert_says_cbs_bloc
 
 No off-Reddit URL, no book title, no author name, no quotes from nonfiction learning. ANTI_WIKI_ANTI_FAQ
 
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1r75tmk/cbs_is_completely_compromised/o5v13hm/
+
+<img width="1229" height="1373" alt="image" src="https://github.com/user-attachments/assets/fdc19363-04b0-4d06-8ae9-a9088fdf533b" />
+
+ANSWER (part 1): Yes, WE, We The People can. We The People have watched Donald Trump consume and eat Twitter and digest Tweet-values like no other executive businessman. July 6, 2011 is a date we (The People) should all memorize and cite together. https://theoutline.com/post/2445/trump-s-first-real-tweet-was-on-july-6-2011  No other corporate America seller / CEO man saw the potential for an old white guy Father Daddy Sky Cloud Computing ("Allah" in the sky, CEO الله symbol / status symbol) symbolism like Donald Trump. DONALD_TRUMP_SUPERSTAR MAXIMUM_PUTINIZATION Trump has bent every media system and medium to make him the center of society. People can not grasp that a 79 year old man is running circles around the smart-ass smart-aleck snarky influencers and media practitioners, even Stephen Colbert, has had his ass handed to him. RELIGION_CULTS_MONOMYTH_PROGRAMMING
+
+* REPEATING_REPEATER Stephen Colbert should have burned his popularity and social reputation to the ground repeating his Star Wars Day (documented by Google/YouTube) upload Star Wars Day 2019. Repeating it every chance he could in year 2024 election. https://www.youtube.com/watch?v=Ju7Yt0LMiVk REPEATING_REPEATER Especially with RFK Jr and Trump paired up, EVERY DAY he should have been promoting this video over and over and over until every person in USA can quote the 3 minute 43 second video from STAR WARS DAY 2019.
+
+ANSWER (part 2): BRAIN_ROT_SOCIETY_47. The most critical problem is back in part 1 answer. Twitter. Trump's July 6, 2011. We need to STOP the hate. AMERICANS_HATE_AMERICANS We need to face our deepest faith. Our cult of technology. Stop blaming each other. Stop blaming MAGA, stop blaming Republicans, stop blaming Trump! CALL_FOR_MENTAL_HEALTH_NATIONAL_RESCUE Rescue everyone. Admit we built a bridge too far, 140 characters. https://www.FastCompany.com/3060165/a-brief-history-of-twitters-140-character-limit - blame our parenting, blame the rise on Trump on a mental pattern induced by 140 characters. Then blame August 24, 2018 story not being taken seriously when COVID-19 came around. This link should be memorized. August 24, 2018: https://www.bbc.com/news/world-us-canada-45294192 
+
+ANSWER (part 3): REAL_PEOPLE_ADMIT We The People lost touch with reality. Admit we are human. Admit we let high-speed messaging blow our minds. Become world wide web famous for teaching Marshall McLuhan, Neil Postman. CALL_TO_INTELLECTUAL_ACTION_PLAN Admit mistakes, start educating. Blame rural people for never having heard of Neil Postman. Address our Fox News problems, etc.
+
+We The People lost touch with reality. OPERA_A REPEAT_TRACK MUSIC_MUSIC_MUSIC YOU_CAN_PASS https://www.youtube.com/watch?v=XA-xjRsY71w We gotta feed it right, We The People. There is no danger we can go too far being who we are, diversity! They think We The People love is just a growing pain! Their lips are telling lies, only reality is real! Real people admit reality. Admit Twitter 140 characters blew us into unreality! We take the pressure and we throw away Conventionality and Conservative values belongs to yesterday. Start believing now in Year 250 from 1776... 
+
+OPERA_B Saturday July 4, 2026 https://www.youtube.com/watch?v=kqcwKnjMffw REPEAT_TRACK
+
+NEW_OPERA_NAME DemiseOf DirectionOf (see social posts).
+
+Social post { https://autistics.life/@RoundSparrow/116086501381731138 https://bsky.app/profile/roundsparrow.bsky.social/post/3mf2sgl2jrk2y https://MidWest.Social/post/43573234 }
+
+
