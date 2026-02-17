@@ -622,3 +622,9 @@ I live all the nightmares of Bellevue 1997, 1998, 1999 analysis of the trajector
 https://old.reddit.com/r/todayilearned/comments/1r73vdz/til_weird_al_was_set_to_a_series_of_star_wars/o5ursub/
 
 CONCERNS_OF_FINNEGANS entire reply thread about language. Unicode Dreams. My concern of why computer industry didn't develop a variable-name file-name special-use characters for dash / underscore and space so that it could be rendered different in consoles and code editors and still maintain some sanity with command-line argument and parameter spaces. No special keyboard difference would be required, as it could have been built into filename prompts and context-intelligent editors could realize when a variable name is being used. Such as: "IF A_B_C = 10 GOTO LABEL_NAME" - where this underscore is unique. And, also the issue of special quotation marks for putting words into other people's mouths - non-literal quotes of what a person might say or in the style of a person. To keep fiction vs. nonfiction. FICTION_NONFICTION   
+
+https://old.reddit.com/r/todayilearned/comments/1r73vdz/til_weird_al_was_set_to_a_series_of_star_wars/o5upf1s/
+
+COPYRIGHT_BRAIN_DAMAGE topic. Creating a religion-level story but restricting derived works. Levant monomyth power over revising stories about "The Force" and "God" spirits / ghosts. James Joyce estate does the same thing.
+
+* "what is unfortunate for us is that a lot of the people who write these stories do not have the sense of their responsibility. These stories are making and breaking lives. But the movies are made simply to make money. The kind of responsibility that goes into a priesthood with a ritual is not there. That is one of our problems today." - Skywalker Ranch summer of 1985 / 1986. Age 81 / age 82.
