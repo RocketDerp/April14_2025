@@ -646,3 +646,8 @@ https://old.reddit.com/r/technology/comments/1r78jir/discord_rival_gets_overwhel
 https://old.reddit.com/r/technology/comments/1r78jir/discord_rival_gets_overwhelmed_by_mass_exodus_of/o5vz9ul/
 
 COMPREHENDING_UNDERSTANDING How can anyone on Reddit be surprised and not understand the impact Fox News HDTV has had on USA (and the world by extension). NOT_GOOD_ENOUGH Jen Senko hasn't been good enough for Reddit users to repeat and make a household name. Neil Postman wrote a book about the Fox News crisis in year 1985 which is 11 years before Fox News spun up in 1996. We have the same problem with the classic religion cults, people can not imagine that religions are **not supernatural** - which means potentially ANYONE can capture others with patterns of books and clergy and buildings. It is LITERALLY a storybook with a cult fandom who hates people who where raised by parents on DIFFERENT storybooks. We have, as a planet, no no way "Woken Up" to this crisis. WOKE_TO_WHAT Page 581 of James Joyce's book about Dublin mindsets, Finnegans Wake "monomyth" (search for "monomyth" on page 581).
+
+https://old.reddit.com/r/technology/comments/1r78jir/discord_rival_gets_overwhelmed_by_mass_exodus_of/o5weq3o/
+
+Reddit postings are created by the end-users of Reddit and do NOT have to have "clickbait headlines", but it has become routine and normal. MEDIA_WOKE
+
