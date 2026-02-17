@@ -359,3 +359,8 @@ https://old.reddit.com/r/politics/comments/1r743qw/stephen_colbert_says_cbs_bloc
 https://old.reddit.com/r/politics/comments/1r743qw/stephen_colbert_says_cbs_blocked_james_talarico/o5urtcg/
 
 Extreme low-effort short-message Twitter-think commenting (Elon Musk Twitter programmed mindsets). ROUTINE_NO_NEED_TO_RESIST_OR_ORGANIZE_INTELLECTUAL_UPRISING
+
+https://old.reddit.com/r/politics/comments/1r743qw/stephen_colbert_says_cbs_blocked_james_talarico/o5urp2k/
+
+No off-Reddit URL, no book title, no author name, no quotes from nonfiction learning. ANTI_WIKI_ANTI_FAQ
+
