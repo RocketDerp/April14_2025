@@ -492,3 +492,8 @@ https://old.reddit.com/r/ImmigrationPathways/comments/1r7h32h/this_kid_completel
 https://old.reddit.com/r/ImmigrationPathways/comments/1r7h32h/this_kid_completely_broke_maga/o5xlye1/
 
 "LOL" FAN_PASSION_MAGA_VALUES - enthusiastic machine media consumer who thinks it is great that fiction leadership of Donald Trump and Putin is at every level of society.
+
+https://old.reddit.com/r/ImmigrationPathways/comments/1r7h32h/this_kid_completely_broke_maga/o5xkgns/
+
+The mob mentality on Reddit, the group thinking, the avoidance of Dr. Bandy X Lee's nonfiction public education with 27 mental health experts is alarming. People are NOT calling for Trump's removal, they are waiting around for violent ICE related video recordings to cheer on as a fandom. ICE_FANDOM It is the anti-intellectual every day all day behaviors of the population that is my concern with this Git project. THIS_GITHUB the nation is lashing out at Canada, lashing at at NATO, lashing out at Greenland. SHARON_STONE_WAS_CORRECT This brain rot crisis and abandonment of serious nonfiction books and giving Donald Trump as an education role model of pro-violence aggressive male behavior is sickening. Children are being harmed because people can't face their addiction to high-speed information delivery.
+
