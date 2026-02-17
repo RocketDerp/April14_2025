@@ -378,7 +378,7 @@ ANSWER (part 3): REAL_PEOPLE_ADMIT We The People lost touch with reality. Admit 
 
 We The People lost touch with reality. OPERA_A REPEAT_TRACK MUSIC_MUSIC_MUSIC YOU_CAN_PASS https://www.youtube.com/watch?v=XA-xjRsY71w We gotta feed it right, We The People. There is no danger we can go too far being who we are, diversity! They think We The People love is just a growing pain! Their lips are telling lies, only reality is real! Real people admit reality. Admit Twitter 140 characters blew us into unreality! We take the pressure and we throw away Conventionality and Conservative values belongs to yesterday. Start believing now in Year 250 from 1776... 
 
-OPERA_B Saturday July 4, 2026 https://www.youtube.com/watch?v=kqcwKnjMffw REPEAT_TRACK
+OPERA_B Saturday July 4, 2026 https://www.youtube.com/watch?v=kqcwKnjMffw REPEAT_TRACK Listen Children: All Is Not Lost! Oh No!! Every day is the 4th of July **Saturday** 2026. Just waiting for Us All. So if you want it, really want it... can you dig it?
 
 NEW_OPERA_NAME DemiseOf DirectionOf (see social posts).
 
