@@ -513,7 +513,7 @@ FAN_PASSION_MAGA_VALUES Reddit media cult can not resist parroting White House t
 
 https://old.reddit.com/r/MurderedByWords/comments/1r7jeue/fully_cleared_of_any_connection/o5xtxw3/
 
-ANTI_REALITY is popular. Fiction fandoms flock to Reddit to get their Trump fiction storytelling. Factual reality and goodness are abandoned in favor of people commenting over and over about each story plot twist in the Trump fiction-based leadership.
+ANTI_REALITY is popular. Fiction fandoms flock to Reddit to get their Trump fiction storytelling. Factual reality and goodness are abandoned in favor of people commenting over and over about each story plot twist in the Trump fiction-based leadership. Holocaust deniers will crack jokes and memes, just like people who normalize Trump. The holocaust by Nazi Germany is a source of entertainment to fiction addicts, chucklehead mindsets, just as Donald Trump and MAGA are a source of jokes and humor "Leopards eat faces", ha ha ha ha on Reddit. AMUSING_ZOMBIES Denial via comedy-washing, joke-washing the holocaust. Detachment from goodness via meme stupor / joke mindsets.
 
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1r7jmrg/nice_work_losers/o5xv1og/
 
