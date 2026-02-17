@@ -333,3 +333,16 @@ https://old.reddit.com/r/videos/comments/1r6yc0z/colberts_legal_team_would_not_p
 The real issue is if social media users will engage this and repeat it beyond the RECENCY_BIAS behaviors. Without it being news stories, but in commenting  BRAIN_ROT_SOCIETY_47 
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mf2ebjrup222 https://autistics.life/@RoundSparrow/116085502631634282 }
+
+https://old.reddit.com/r/TrendoraX/comments/1r6u1aw/hillary_clinton_just_went_on_the_bbc_and_accused/o5tnz0n/
+
+22 day Reddit account. OUT_GROUP_HATE
+
+https://old.reddit.com/r/TrendoraX/comments/1r6u1aw/hillary_clinton_just_went_on_the_bbc_and_accused/o5uo5o6/
+
+DUMB_STUPID_IDIOT_MORON_RETARDED_OTHERS
+
+https://old.reddit.com/r/TrendoraX/comments/1r6u1aw/hillary_clinton_just_went_on_the_bbc_and_accused/o5svqj2/
+
+Venue and timing of public record, public testimony.
+
