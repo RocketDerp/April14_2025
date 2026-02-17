@@ -470,3 +470,8 @@ https://old.reddit.com/r/LeopardsAteMyFace/comments/1r79z36/non_of_us_knew_a_thr
 Reddit cult is deflecting from reality. Twitter-length messages on Reddit to declare that all teaching, learning, news issues, the Fox News HDTV cult is simple and trivial. DEFLECTION_FROM_BILLIONAIRES_AND_PUTINISM Has this Reddit user never encountered family or co-workers who are cultists to HDTV Fox News network from Rupert Murdoch? Does this Reddit user in the tiny-short Elon Musk programmed Twitter-thinking reactionary mindsets not realize the history of world religions and how people believe science fiction stories are actual reality? That Jesus really is in outer space? Just because a poetry fiction story is so well written.
 
 This is what the cult does on Reddit day in and day out since June 16, 2015 - over a decade of ignoring the reality of MAGA as a fiction storytelling cult. Reddit is a cult of psychological denial that MAGA needs mental health support and rescue. Dr. Bandy X Lee's nonfiction book published October 3, 2017 with 27 contributors is ignored by the ignorant-seeking Reddit community. 
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1r79z36/non_of_us_knew_a_threads_post/o5vw34a/
+
+2 month Reddit account that creates messages encouraging the continuation of sports mentality, Twitter-length Tweet-thinking mindsets as programmed by Musk and other billionaires into Reddit cult minds. ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING
+
