@@ -346,3 +346,7 @@ https://old.reddit.com/r/TrendoraX/comments/1r6u1aw/hillary_clinton_just_went_on
 
 Venue and timing of public record, public testimony.
 
+https://old.reddit.com/r/TrendoraX/comments/1r6u1aw/hillary_clinton_just_went_on_the_bbc_and_accused/o5taeca/
+
+3 month Reddit account. Immunity if forced to testify for government investigation. THIS_GITHUB the greater problem of EVERY DAY USA, all day, every day, is the absence of people seeking / building / organizing. Anti-FAQ anti-Wiki behaviors of media consumers on Reddit. ANTI_WIKI_ANTI_FAQ
+
