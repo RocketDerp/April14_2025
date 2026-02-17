@@ -500,3 +500,9 @@ The mob mentality on Reddit, the group thinking, the avoidance of Dr. Bandy X Le
 https://old.reddit.com/r/ImmigrationPathways/comments/1r7h32h/this_kid_completely_broke_maga/o5xceec/
 
 Exactly. 1 day Reddit account. Shooting fish in a barrel how predictable the routine has become after nearly 11 years of never-ending mocking Trump / MAGA. Surkov won since March 2013.
+
+https://old.reddit.com/r/ImmigrationPathways/comments/1r7h32h/this_kid_completely_broke_maga/o5xnnlu/
+
+"If I could denounce my citizenship and find a new country to live in with my child. I definitely would. I am ashamed to call myself an american at this point, especially living in the country that we have now with the leaders that we do." - another Reddit message to GIVE_UP_SURRENDER
+
+I am ashamed how anti-intellectual society has become. All information systems are trashed by jokers who won't stop turning all serious topics into memes. Trump is a cult leader of Reddit fans who can't stop mocking and joking how fat, orange, obese, bad at golf, stupid, moron, dumb Trump is. The cult of mocking has turned the USA into predictable looping mindsets. Trump is God's gift to mockery and hate and Reddit / Bluesky / everywhere has turned into brain rot over how trivial and easy it is to mock a status symbol and how brilliantly intelligent everyone things they are that they are smarter than Donald Trump. The egoism of declaring how smart people are vs. Trump has ruined everything. Dumb jokes have destroyed CDC medical science. Putin won, Surkov won, USA minds are wrecked by infinite jesting.
