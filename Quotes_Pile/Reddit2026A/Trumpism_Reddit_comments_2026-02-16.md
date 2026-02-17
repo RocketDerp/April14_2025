@@ -288,3 +288,6 @@ https://old.reddit.com/r/Fauxmoi/comments/1r6ndop/woody_harrelson_were_going_bac
 
 3 month Reddit account. At least we got a date.
 
+https://old.reddit.com/r/pics/comments/1r6so9i/oc_seen_this_weekend_at_the_ren_fair_in_phoenix/o5sl6r1/
+
+SATIRE_SARCASM_WASHING normalizing horrible things, prizing Trumpism as entertainment. This has been gong on every single day since June 16, 2015. Social media image addicts feeding the Trump bonfires of morality in the minds of cult fandoms (Reddit being a cult fandom).
