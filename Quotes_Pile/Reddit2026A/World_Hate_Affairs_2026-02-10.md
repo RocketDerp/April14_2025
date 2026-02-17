@@ -504,3 +504,6 @@ https://old.reddit.com/r/International/comments/1r6dhnx/racism_and_bigotry_have_
 
 1 month Reddit account. GAMERS_SIMULACRA - no concern to do more than leave a low-effort comment. 
 
+https://old.reddit.com/r/whenthe/comments/1r75nz4/and_i_thought_western_gender_wars_can_get_crazy/o5v0191/
+
+WOKE_TO_WHAT EXACTLY ? CONSERVING_WHAT EXACTLY? Hate. Out-group hate. How much of women being attacked and abused by men is this kind of HAZING_RITUAL that men do to other men and such...
