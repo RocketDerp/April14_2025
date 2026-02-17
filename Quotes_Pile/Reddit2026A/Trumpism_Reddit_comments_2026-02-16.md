@@ -253,3 +253,7 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1r6gayu/mtg_is_still_puttin
 https://old.reddit.com/r/CuratedTumblr/comments/1r6lykp/after_2024_im_reporting_any_more_i_see_as_bots/o5r44tk/
 
 Yes. And this image-posting is cult programming to join in with MAGA values. GIVE_UP_ANTI_EDUCATION_ANTI_TEACH_ANTI_PROGRESS Anti-intellectual, anti-education, anti-teaching, anti assertion of goodness. Why isn't Reddit comment section quoting and repeating Dr. Bandy X Lee's nonfiction works over and over? 
+
+https://old.reddit.com/r/Fauxmoi/comments/1r6ndop/woody_harrelson_were_going_backwards_the_star/o5rhnr7/
+
+Tech-lovers of Reddit upvoted this to the top. AMERICANS_HATE_AMERICANS society now. Anti-forgiveness, ant-teaching. TARNISHED_BRAND_FOREVER_PERMANENT_BLOCK
