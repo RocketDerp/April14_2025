@@ -436,3 +436,9 @@ ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING Just mocking as us
 https://old.reddit.com/r/LeopardsAteMyFace/comments/1r761yw/ford_shuts_down_58_billion_factory_just_months/o5v2wti/
 
 RESISTING_WHAT_EXACTLY Trump convinced MAGA to mock Reddit "libtards" and people on Reddit are not resisting the anti-intellectual programming. This is not resisting what the billionaires have programmed into the minds using Cambridge Analytica and others. 
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1r761yw/ford_shuts_down_58_billion_factory_just_months/o5v63ih/
+
+ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING This Reddit comment is doing the Reddit cult routine of commenting itself. The cult describes the massive decline of the USA society and the causes, but has no concern to turn it around and resist intellectually. People jump on the bandwagon... adopting the very mechanisms that the billionaires used to first cult capture MAGA... it is cults all around. 
+
+* "Americans, like human beings everywhere, believe many things that are obviously untrue. Their most destructive untruth is that it is very easy for any American to make money. They will not acknowledge how in fact hard money is to come by, and, therefore, those who have no money blame and blame and blame themselves. This inward blame has been a treasure for the rich and powerful, who have had to do less for their poor, publicly and privately, than any other ruling class since, say Napoleonic times. Many novelties have come from America. The most startling of these, a thing without precedent, is a mass of undignified poor. They do not love one another because they do not love themselves.” ― Kurt Vonnegut, Slaughterhouse-Five. The Children's Crusade: A Duty-Dance with Death. Year 1969.
