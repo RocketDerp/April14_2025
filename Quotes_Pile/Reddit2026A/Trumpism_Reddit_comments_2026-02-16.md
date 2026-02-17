@@ -350,3 +350,12 @@ https://old.reddit.com/r/TrendoraX/comments/1r6u1aw/hillary_clinton_just_went_on
 
 3 month Reddit account. Immunity if forced to testify for government investigation. THIS_GITHUB the greater problem of EVERY DAY USA, all day, every day, is the absence of people seeking / building / organizing. Anti-FAQ anti-Wiki behaviors of media consumers on Reddit. ANTI_WIKI_ANTI_FAQ
 
+https://old.reddit.com/r/politics/comments/1r743qw/stephen_colbert_says_cbs_blocked_james_talarico/o5uojku/
+
+As for the posting itself (not just this comment tree). EVERYTHING IS MEDIA ECOLOGY https://github.com/RocketDerp/April14_2025/blob/main/Media_Ecology/Everything_is_ME.md
+
+https://old.reddit.com/r/politics/comments/1r743qw/stephen_colbert_says_cbs_blocked_james_talarico/o5uq4et/
+
+https://old.reddit.com/r/politics/comments/1r743qw/stephen_colbert_says_cbs_blocked_james_talarico/o5urtcg/
+
+Extreme low-effort short-message Twitter-think commenting (Elon Musk Twitter programmed mindsets). ROUTINE_NO_NEED_TO_RESIST_OR_ORGANIZE_INTELLECTUAL_UPRISING
