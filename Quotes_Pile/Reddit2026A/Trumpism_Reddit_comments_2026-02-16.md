@@ -478,3 +478,9 @@ https://old.reddit.com/r/LeopardsAteMyFace/comments/1r79z36/non_of_us_knew_a_thr
 https://old.reddit.com/r/LeopardsAteMyFace/comments/1r79z36/non_of_us_knew_a_threads_post/o5vvypf/
 
 Actor Donald Trump leads a nation with Reality TV mockery of governing, and Reddit fandom of Trump adds more mocking. This is the Reddit anti-intellectual fandom that is glad ignorance in society provides constant entertainment via high-speed cloud computing provided by billionaires. FAITH_IN_MOCKERY
+
+https://old.reddit.com/r/ImmigrationPathways/comments/1r7h32h/this_kid_completely_broke_maga/o5xjhh1/
+
+https://old.reddit.com/r/ImmigrationPathways/comments/1r7h32h/this_kid_completely_broke_maga/o5xijfn/
+
+1 day Reddit account
