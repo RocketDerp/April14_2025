@@ -523,3 +523,5 @@ https://old.reddit.com/r/circled/comments/1r75zpr/the_world_cares_about_whats_ha
 https://old.reddit.com/r/circled/comments/1r75zpr/the_world_cares_about_whats_happening_in_the_us/o5v8h2t/
 
 "brainwashed by Trump". REDDIT_HIVE_MIND_FORGOT Regarding Europe / EU... people caged "inside the box" thinking on Reddit (as programmed by Musk and others) think this is Trump that unleashed the brainwashing. Reddit has forgotten: "Hillary Clinton: Putin Would 'Rather Have a Puppet as President' | NBC News" "Break up NATO". 7,675 views October 19, 2016 https://www.youtube.com/watch?v=Cq8f8oU9wYs
+
+https://old.reddit.com/r/todayilearned/comments/1r7jwhj/til_toronto_spent_37_billion_on_a_new_rapid_light/o5y1kyv/
