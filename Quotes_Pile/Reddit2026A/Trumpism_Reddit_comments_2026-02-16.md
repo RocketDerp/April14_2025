@@ -484,3 +484,11 @@ https://old.reddit.com/r/ImmigrationPathways/comments/1r7h32h/this_kid_completel
 https://old.reddit.com/r/ImmigrationPathways/comments/1r7h32h/this_kid_completely_broke_maga/o5xijfn/
 
 1 day Reddit account
+
+https://old.reddit.com/r/ImmigrationPathways/comments/1r7h32h/this_kid_completely_broke_maga/o5xregc/
+
+1 day Reddit account, see replies.
+
+https://old.reddit.com/r/ImmigrationPathways/comments/1r7h32h/this_kid_completely_broke_maga/o5xlye1/
+
+"LOL" FAN_PASSION_MAGA_VALUES - enthusiastic machine media consumer who thinks it is great that fiction leadership of Donald Trump and Putin is at every level of society.
