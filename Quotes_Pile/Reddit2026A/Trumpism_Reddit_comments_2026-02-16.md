@@ -303,3 +303,7 @@ https://old.reddit.com/r/pics/comments/1r6so9i/oc_seen_this_weekend_at_the_ren_f
 The whole society, the entire nation of USA, needs remedial morality lessons. I started teaching them on Reddit. https://old.reddit.com/r/RemedialMorality/ April 10, 2025.
 
 Dr. Bandy X Lee assembled 27 people for a book published October 3, 2017 that the entire society needs to be teaching, repeating, and repeat teaching...
+
+https://old.reddit.com/r/pics/comments/1r6so9i/oc_seen_this_weekend_at_the_ren_fair_in_phoenix/o5skrhj/
+
+Symptom of brain rot. Along with the symptom of Fox News being the most popular news network. And Reddit comments that cheer on Donald Trump as a source of constant stimulation and images. Instead of facing up to a crisis with intellectual teaching and education to the general public. Russia has won hearts and minds since year 2013, the Cambridge Analytica aftermath, people are not promoting and supporting Dr. Bandy X Lee's 27.
