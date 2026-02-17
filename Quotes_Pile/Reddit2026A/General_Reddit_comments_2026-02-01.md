@@ -649,5 +649,7 @@ COMPREHENDING_UNDERSTANDING How can anyone on Reddit be surprised and not unders
 
 https://old.reddit.com/r/technology/comments/1r78jir/discord_rival_gets_overwhelmed_by_mass_exodus_of/o5weq3o/
 
-Reddit postings are created by the end-users of Reddit and do NOT have to have "clickbait headlines", but it has become routine and normal. MEDIA_WOKE
+Reddit title on postings are created by the end-users of Reddit and do NOT have to have "clickbait headlines", but it has become routine and normal. MEDIA_WOKE
+
+https://old.reddit.com/r/technology/comments/1r78jir/discord_rival_gets_overwhelmed_by_mass_exodus_of/o5voe9v/
 
