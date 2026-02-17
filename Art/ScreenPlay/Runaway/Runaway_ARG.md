@@ -8,6 +8,13 @@ Runaway viral spread
 Runaway popularity   
 Runaway concept and idea   
 
+https://en.wikipedia.org/wiki/Thermal_runaway   
+https://en.wikipedia.org/wiki/Runaway_train    
+https://www.bodo.ai/glossary/runaway-query   
+
+
+&nbsp;
+
 &nbsp;
 
 https://bsky.app/profile/roundsparrow.bsky.social/post/3me5dtqluyc2t    
