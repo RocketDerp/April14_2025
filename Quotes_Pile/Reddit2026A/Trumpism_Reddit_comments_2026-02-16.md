@@ -450,3 +450,17 @@ Comment topic: COMPREHENDING_UNDERSTANDING - alas, it's just more commenting. Th
 https://old.reddit.com/r/LeopardsAteMyFace/comments/1r761yw/ford_shuts_down_58_billion_factory_just_months/o5v4mvu/
 
 OUT_GROUP_HATE exactly as intended. Surkov won since March 2013.
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1r761yw/ford_shuts_down_58_billion_factory_just_months/o5v59f0/
+
+Trivializing the adult education crisis. Trivializing what Fox News HDTV has done to Reddit minds and Ford employee minds. The most powerful media systems ever created by mankind, USA is ground zero for electronic high speed media, have wrecked the population. Reddit users are programmed by the billionaires to respond in this way. There are no free thinkers on Reddit citing Neil Postman and Marshall McLuhan and calling for an uprising. CONDITIONED_OPPOSITION
+
+* "**How teach again, however, what has been taught correctly and incorrectly learned a thousand thousand times, throughout the millenniums of mankind’s prudent folly?** That is the hero’s ultimate difficult task. How render back into light-world language the speech-defying pronouncements of the dark? How represent on a two-dimensional surface a three-dimensional form, or in a three-dimensional image a multi-dimensional meaning?" - page 317. year 1949. Chapter: "4. The Crossing of the Return Threshold"
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1r761yw/ford_shuts_down_58_billion_factory_just_months/o5vd115/
+
+"How many of these terrible stories concerning lost jobs and closing facilities will we need to listen to before MAGA granny/grandpa figure out their children are right. Trump is responsible." ANSWER: DEFLECTION_FROM_BILLIONAIRES_AND_PUTINISM - this message thinks Trump did this alone. Trump is the front man. Reddit is a hate-watching cult. Hate upon Ford employees as programmed by the IRA. REDDIT_HIVE_MIND_FORGOT Reddit has forgotten: "Hillary Clinton: Putin Would 'Rather Have a Puppet as President' | NBC News" "Break up NATO". 7,675 views October 19, 2016
+
+Reddit audience / Reddit app users have extreme information overload symptoms and chronic RECENCY_BIAS abounds. Reddit cult members of hate suffer from BLACKOUT_MEMORY_TIME_LOSS - and do not recognize their are part of the defeated by Russia.
+
+OPERA_A REPEAT_TRACK Join and rescue the USA! Ford and MAGA are the lost hearts and mind, Surkov won. "Welcome To The Black Parade" "Savior of the beaten" by Kremlin. The damned by Putin. The non-believers in goodness. The plans they have made... https://www.youtube.com/watch?v=RRKJiM9Njr8 406,358,253 views October 26, 2009 
