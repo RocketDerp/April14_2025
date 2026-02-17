@@ -510,3 +510,8 @@ I am ashamed how anti-intellectual society has become. All information systems a
 https://old.reddit.com/r/MurderedByWords/comments/1r7jeue/fully_cleared_of_any_connection/o5xvz60/
 
 FAN_PASSION_MAGA_VALUES Reddit media cult can not resist parroting White House talking points. There is no call to resist or organize mental health rescue campaigns. Just satire-washing, sarcasm-washing, joke-washing 24 hours a day fandom on Reddit any time an image of Donald Trump / photo of Trump appears on the touch screens via high-speed Reddit delivery. Dr. Bandy X Lee's 27 authors are not good enough to use spare time and free time and be serious, the jokes are why Donald Trump has all this power. Surkov won since year 2013.
+
+https://old.reddit.com/r/MurderedByWords/comments/1r7jeue/fully_cleared_of_any_connection/o5xtxw3/
+
+ANTI_REALITY is popular. Fiction fandoms flock to Reddit to get their Trump fiction storytelling. Factual reality and goodness are abandoned in favor of people commenting over and over about each story plot twist in the Trump fiction-based leadership.
+
