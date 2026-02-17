@@ -311,3 +311,25 @@ Symptom of brain rot. Along with the symptom of Fox News being the most popular 
 https://old.reddit.com/r/videos/comments/1r6yc0z/colberts_legal_team_would_not_permit_him_to_air/o5trewi/
 
 LOVE_ONE_ANOTHER is essential to democracy. He has spiritual criticism. Matthew 25 quoted. He is wrong about "Love God" in "1 John 4:20". BIBLE_LITERACY wish he could drop GREAT_SEAL_USA  
+
+https://old.reddit.com/r/videos/comments/1r6yc0z/colberts_legal_team_would_not_permit_him_to_air/o5ts2yn/
+
+https://old.reddit.com/r/videos/comments/1r6yc0z/colberts_legal_team_would_not_permit_him_to_air/o5tolbv/
+
+the replies correct this message. It was the legal team. Nobody forbid it, they feared reaction by FCC.
+
+https://old.reddit.com/r/videos/comments/1r6yc0z/colberts_legal_team_would_not_permit_him_to_air/o5tsz5x/
+
+LOVE_ONE_ANOTHER is not optional in democracy. Sharing is essential concept.
+
+https://old.reddit.com/r/videos/comments/1r6yc0z/colberts_legal_team_would_not_permit_him_to_air/o5tqm9h/
+
+https://old.reddit.com/r/videos/comments/1r6yc0z/colberts_legal_team_would_not_permit_him_to_air/o5tsrzu/
+
+GREAT_SEAL_USA the ending of the interview he does criticize "left vs. right" vs. "up vs. down" which he m means economic class - but the real progress should be the Great Seal on that.
+
+https://old.reddit.com/r/videos/comments/1r6yc0z/colberts_legal_team_would_not_permit_him_to_air/o5tw2p1/
+
+The real issue is if social media users will engage this and repeat it beyond the RECENCY_BIAS behaviors. Without it being news stories, but in commenting  BRAIN_ROT_SOCIETY_47 
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mf2ebjrup222 https://autistics.life/@RoundSparrow/116085502631634282 }
