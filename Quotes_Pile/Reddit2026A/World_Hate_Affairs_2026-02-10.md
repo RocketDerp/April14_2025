@@ -525,3 +525,8 @@ https://old.reddit.com/r/circled/comments/1r75zpr/the_world_cares_about_whats_ha
 "brainwashed by Trump". REDDIT_HIVE_MIND_FORGOT Regarding Europe / EU... people caged "inside the box" thinking on Reddit (as programmed by Musk and others) think this is Trump that unleashed the brainwashing. Reddit has forgotten: "Hillary Clinton: Putin Would 'Rather Have a Puppet as President' | NBC News" "Break up NATO". 7,675 views October 19, 2016 https://www.youtube.com/watch?v=Cq8f8oU9wYs
 
 https://old.reddit.com/r/todayilearned/comments/1r7jwhj/til_toronto_spent_37_billion_on_a_new_rapid_light/o5y1kyv/
+
+https://old.reddit.com/r/worldnews/comments/1r7huaj/we_simply_dont_have_any_left_germany_has_run_out/o5xi8sv/
+
+Alas, the Internet Research Agency started ramping up in March of year 2013, before November 8, 2013 Trump private jet flight to Moscow for the sex show, before the December 2013 "Conservative International" movement was announced by the Kremlin. Then came the "little green men" in early year 2014. But the IRA psychological ops, psyops, already blew out hearts and minds to { downplay, chuckle, laugh, joke, mock } at what Russia was doing. Surkov won since March 2013 by turning NATO into a joke. Russia won the hearts and minds to all joke-away and LOL at serious dangers and threats. **December 5, 2014 it was called out that Russia intended to make a "Joke of NATO"**. https://github.com/RocketDerp/April14_2025/blob/main/Art/ScreenPlay/USA/Joke_of_NATO.md
+
