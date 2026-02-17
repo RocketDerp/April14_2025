@@ -401,3 +401,7 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1r75tmk/cbs_is_completely_c
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1r75tmk/cbs_is_completely_compromised/o5v2vuq/
 
 "not coming back" messaging to Reddit audience. GIVE_UP_SURRENDER on intellectual protest and nonfiction asserts.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1r75tmk/cbs_is_completely_compromised/o5v2wa0/
+
+HYPER_SIMPLE_TRIVIALIZE_BANAL_SELF_ONLY_CONCERN This Reddit user thinks this is world news because of their own personal preference in TV channels. Simplistic Twitter-thinking short-message mindsets, as programmed into Reddit audience by Elon Musk Twitter owner. No concern for the people brainwashed by CBS and Elon Musk, just give simple answers without any underlying understanding or comprehension as to what is going on at the forest levels, just move one tree and don't address the mass dehumanization ongoing via media networks and media machines.
