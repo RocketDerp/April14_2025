@@ -653,3 +653,28 @@ Reddit title on postings are created by the end-users of Reddit and do NOT have 
 
 https://old.reddit.com/r/technology/comments/1r78jir/discord_rival_gets_overwhelmed_by_mass_exodus_of/o5voe9v/
 
+https://old.reddit.com/r/Terraria/comments/1r7cobn/my_post_got_removed_after_ai_accusations/o5wffmf/
+
+TECH_LUST_TECH_LOVERS The lovers of mod-reporting to the secret automated police of Reddit.
+
+https://old.reddit.com/r/Terraria/comments/1r7cobn/my_post_got_removed_after_ai_accusations/o5wdt1n/
+
+NOT_GOOD_ENOUGH human.
+
+Published in year 1988, Power of Myth. Filmed by George Lucas for Star Wars fandom:
+
+BILL MOYERS: I cherish that image: my hometown love, the feeling you get for that place, no matter how long you’ve been away or even if you never return. That was where you first discovered people. But why do you say **you love people for their imperfections**?
+
+CAMPBELL: Aren’t children lovable because they’re falling down all the time and have little bodies with the heads too big? Didn’t Walt Disney know all about this when he did the seven dwarfs? And these funny little dogs that people have — they’re lovable because they’re so imperfect.
+
+MOYERS: Perfection would be a bore, wouldn’t it?
+
+CAMPBELL: It would have to be. It would be inhuman. **The umbilical point, the humanity, the thing that makes you human and not supernatural and immortal** — that’s what’s lovable. That is why some people have a very hard time loving God, because there’s no imperfection there. You can be in awe, but that would not be real love. It’s Christ on the cross that becomes lovable.
+
+MOYERS: What do you mean?
+
+CAMPBELL: Suffering. Suffering is imperfection, is it not?
+
+MOYERS: The story of human suffering, striving, living —
+
+CAMPBELL: — and youth coming to knowledge of itself, what it has to go through.
