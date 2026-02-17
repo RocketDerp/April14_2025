@@ -475,3 +475,6 @@ https://old.reddit.com/r/LeopardsAteMyFace/comments/1r79z36/non_of_us_knew_a_thr
 
 2 month Reddit account that creates messages encouraging the continuation of sports mentality, Twitter-length Tweet-thinking mindsets as programmed by Musk and other billionaires into Reddit cult minds. ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING
 
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1r79z36/non_of_us_knew_a_threads_post/o5vvypf/
+
+Actor Donald Trump leads a nation with Reality TV mockery of governing, and Reddit fandom of Trump adds more mocking. This is the Reddit anti-intellectual fandom that is glad ignorance in society provides constant entertainment via high-speed cloud computing provided by billionaires. FAITH_IN_MOCKERY
