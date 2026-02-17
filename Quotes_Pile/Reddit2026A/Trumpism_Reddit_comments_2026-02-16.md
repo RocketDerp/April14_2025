@@ -428,3 +428,7 @@ https://old.reddit.com/r/LeopardsAteMyFace/comments/1r761yw/ford_shuts_down_58_b
 https://old.reddit.com/r/LeopardsAteMyFace/comments/1r761yw/ford_shuts_down_58_billion_factory_just_months/o5va3lz/
 
 Topics of comment: FAITH_IN_HATE FAITH_IN_MOCKERY 
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1r761yw/ford_shuts_down_58_billion_factory_just_months/o5vrnl7/
+
+ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING Just mocking as usual. MAGA calls Reddit "libtards", and Reddit community "LOL" as Americans "have their face eaten" on this community subreddit /r/LeopardsAteMyFace - Death cults mock the other death cults in a race to the bottom of hate with name-calling and mockery all the way. Surkov won since March 2013. FEEDBACK_LOOP_MEDIA_CULTS_PLATFORM_TO_PLATFORM_MOCKERY_USA
