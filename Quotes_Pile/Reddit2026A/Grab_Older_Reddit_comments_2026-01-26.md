@@ -442,3 +442,10 @@ On a posting titled "Malignant normality: The psychological theory that explains
 https://old.reddit.com/r/DeepSpaceNine/comments/13c76rx/comment/jjepnox/
 
 Education at the mass mind level is exhausting.
+
+
+https://old.reddit.com/r/TrueFilm/comments/3jkeku/the_assumption_of_outside_knowledge_in_the_baader/cuq7xcy/
+
+My comment. Today I googled the quote and ran across a Reddit hit on Google Search... September 4, 2015 Reddit comment. Not long after I contacted the Pentagon in 2015 via telephone. Samantha. Monday, August 17, 2015 afternoon.
+
+Just hours ago today I created this GitHub repository / project around that quote. https://HitHub.com/GreatSealUSA/Pale_Blue_Dot_ARG
