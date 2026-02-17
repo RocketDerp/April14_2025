@@ -71,3 +71,5 @@ The whole way people will worship a god and recommend and praise a god and pass 
 https://old.reddit.com/r/science/comments/1r4p2uc/children_raised_with_authoritative_parenting/
 
 Comparative parenting systems.  
+
+https://old.reddit.com/r/HistoricalCapsule/comments/1r6r40f/mecca_in_1953_and_2025_a_72year_comparison/

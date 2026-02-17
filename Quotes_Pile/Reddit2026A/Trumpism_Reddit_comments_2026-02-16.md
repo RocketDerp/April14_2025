@@ -245,3 +245,122 @@ Billionaires are like video gamers who play for a score on a Bloomberg terminal 
 
 * "the public trust is also violated if the profession fails in its duty to alert the public when a person who holds the power of life and death over us all shows signs of clear, dangerous mental impairment. We should pause if professionals are asked to remain silent when they have seen enough evidence to sound an alarm in every other situation. When it comes to dangerousness, should not the president of a democracy, as First Citizen, be subject to the same standards of practice as the rest of the citizenry?"
 ― Bandy X. Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. Published October 3, 2017. PROLOGUE. Page 5.](https://books.google.com/books?id=g0c4DwAAQBAJ&pg=PA5&dq=dangerousness+due+to+mental+disorder+can+become+apparent+without+a+full+diagnostic+interview+and+can+be+detected+from+a+distance&hl=en&newbks=1&newbks_redir=1&sa=X)
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1r6gayu/mtg_is_still_putting_up_the_good_fight/o5qc87g/
+
+"hilarious" to cultists of commenting on Reddit media how Americans in cults had their minds fucked-over by billionaires and Russia. CHUCKLEHEAD_NATION
+
+https://old.reddit.com/r/CuratedTumblr/comments/1r6lykp/after_2024_im_reporting_any_more_i_see_as_bots/o5r44tk/
+
+Yes. And this image-posting is cult programming to join in with MAGA values. GIVE_UP_ANTI_EDUCATION_ANTI_TEACH_ANTI_PROGRESS Anti-intellectual, anti-education, anti-teaching, anti assertion of goodness. Why isn't Reddit comment section quoting and repeating Dr. Bandy X Lee's nonfiction works over and over? 
+
+https://old.reddit.com/r/Fauxmoi/comments/1r6ndop/woody_harrelson_were_going_backwards_the_star/o5rhnr7/
+
+Tech-lovers of Reddit upvoted this to the top. AMERICANS_HATE_AMERICANS society now. Anti-forgiveness, ant-teaching. TARNISHED_BRAND_FOREVER_PERMANENT_BLOCK These messages on Reddit are anti-constructive, they don't address the absence of crowds following great on-topic leaders like Jen Senko and Dr. Bandy X Lee - they don't offer goodness, promoting shit-commenting insulting MAGA values of media usage.
+
+https://old.reddit.com/r/Fauxmoi/comments/1r6ndop/woody_harrelson_were_going_backwards_the_star/o5ri3ro/
+
+27 day Reddit account, popular 2nd place upvoted. Russia manipulated hearts and minds on virus topics. And here is nobody addressing the learning and education crisis of adults... fed by Putin, Rupert Murdoch, Trump, and junk social media content. How does this Reddit message offer any solutions to the problems of fiction addictions when it comes to RFK Jr? Reddit is FULL of fiction addicts who won't turn to nonfiction sources like Neil Postman, Dr Bandy X Lee, and Jen Senko who cover our most serious learning problems.
+
+https://old.reddit.com/r/Fauxmoi/comments/1r6ndop/woody_harrelson_were_going_backwards_the_star/o5rj2gw/
+
+https://old.reddit.com/r/Fauxmoi/comments/1r6ndop/woody_harrelson_were_going_backwards_the_star/o5rkzyr/
+
+Why is Reddit not having a social media blackout protest and call for intellectual education to rescue cults with cult deprogramming (nonfiction) education? REDDIT_BLACKOUT has been proven to get world wide press coverage, why is there no call for social media promotion of Dr. Bandy X Lee?
+
+https://old.reddit.com/r/Fauxmoi/comments/1r6ndop/woody_harrelson_were_going_backwards_the_star/o5rickc/
+
+1 month Reddit account.
+
+https://old.reddit.com/r/Fauxmoi/comments/1r6ndop/woody_harrelson_were_going_backwards_the_star/o5ro5mb/
+
+9 month Reddit account.
+
+https://old.reddit.com/r/Fauxmoi/comments/1r6ndop/woody_harrelson_were_going_backwards_the_star/o5rp2s7/
+
+How old is it? What's the date?
+
+https://old.reddit.com/r/Fauxmoi/comments/1r6ndop/woody_harrelson_were_going_backwards_the_star/o5rr321/
+
+4 month Reddit account.
+
+https://old.reddit.com/r/Fauxmoi/comments/1r6ndop/woody_harrelson_were_going_backwards_the_star/o5rs7mx/
+
+3 month Reddit account. At least we got a date.
+
+https://old.reddit.com/r/pics/comments/1r6so9i/oc_seen_this_weekend_at_the_ren_fair_in_phoenix/o5sl6r1/
+
+SATIRE_SARCASM_WASHING normalizing horrible things, prizing Trumpism as entertainment. This has been gong on every single day since June 16, 2015. Social media image addicts feeding the Trump bonfires of morality in the minds of cult fandoms (Reddit being a cult fandom).
+
+https://old.reddit.com/r/pics/comments/1r6so9i/oc_seen_this_weekend_at_the_ren_fair_in_phoenix/o5sm16t/
+
+https://old.reddit.com/r/pics/comments/1r6so9i/oc_seen_this_weekend_at_the_ren_fair_in_phoenix/o5sts0w/
+
+"joking" anti-intellectual anti-rescue anti-cult deprogramming. 
+
+https://old.reddit.com/r/pics/comments/1r6so9i/oc_seen_this_weekend_at_the_ren_fair_in_phoenix/o5sjrph/
+
+The whole society, the entire nation of USA, needs remedial morality lessons. I started teaching them on Reddit. https://old.reddit.com/r/RemedialMorality/ April 10, 2025.
+
+Dr. Bandy X Lee assembled 27 people for a book published October 3, 2017 that the entire society needs to be teaching, repeating, and repeat teaching...
+
+https://old.reddit.com/r/pics/comments/1r6so9i/oc_seen_this_weekend_at_the_ren_fair_in_phoenix/o5skrhj/
+
+Symptom of brain rot. Along with the symptom of Fox News being the most popular news network. And Reddit comments that cheer on Donald Trump as a source of constant stimulation and images. Instead of facing up to a crisis with intellectual teaching and education to the general public. Russia has won hearts and minds since year 2013, the Cambridge Analytica aftermath, people are not promoting and supporting Dr. Bandy X Lee's 27.
+
+https://old.reddit.com/r/videos/comments/1r6yc0z/colberts_legal_team_would_not_permit_him_to_air/o5trewi/
+
+LOVE_ONE_ANOTHER is essential to democracy. He has spiritual criticism. Matthew 25 quoted. He is wrong about "Love God" in "1 John 4:20". BIBLE_LITERACY wish he could drop GREAT_SEAL_USA  
+
+https://old.reddit.com/r/videos/comments/1r6yc0z/colberts_legal_team_would_not_permit_him_to_air/o5ts2yn/
+
+https://old.reddit.com/r/videos/comments/1r6yc0z/colberts_legal_team_would_not_permit_him_to_air/o5tolbv/
+
+the replies correct this message. It was the legal team. Nobody forbid it, they feared reaction by FCC.
+
+https://old.reddit.com/r/videos/comments/1r6yc0z/colberts_legal_team_would_not_permit_him_to_air/o5tsz5x/
+
+LOVE_ONE_ANOTHER is not optional in democracy. Sharing is essential concept.
+
+https://old.reddit.com/r/videos/comments/1r6yc0z/colberts_legal_team_would_not_permit_him_to_air/o5tqm9h/
+
+https://old.reddit.com/r/videos/comments/1r6yc0z/colberts_legal_team_would_not_permit_him_to_air/o5tsrzu/
+
+GREAT_SEAL_USA the ending of the interview he does criticize "left vs. right" vs. "up vs. down" which he m means economic class - but the real progress should be the Great Seal on that.
+
+https://old.reddit.com/r/videos/comments/1r6yc0z/colberts_legal_team_would_not_permit_him_to_air/o5tw2p1/
+
+The real issue is if social media users will engage this and repeat it beyond the RECENCY_BIAS behaviors. Without it being news stories, but in commenting  BRAIN_ROT_SOCIETY_47 
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mf2ebjrup222 https://autistics.life/@RoundSparrow/116085502631634282 }
+
+https://old.reddit.com/r/TrendoraX/comments/1r6u1aw/hillary_clinton_just_went_on_the_bbc_and_accused/o5tnz0n/
+
+22 day Reddit account. OUT_GROUP_HATE
+
+https://old.reddit.com/r/TrendoraX/comments/1r6u1aw/hillary_clinton_just_went_on_the_bbc_and_accused/o5uo5o6/
+
+DUMB_STUPID_IDIOT_MORON_RETARDED_OTHERS
+
+https://old.reddit.com/r/TrendoraX/comments/1r6u1aw/hillary_clinton_just_went_on_the_bbc_and_accused/o5svqj2/
+
+Venue and timing of public record, public testimony.
+
+https://old.reddit.com/r/TrendoraX/comments/1r6u1aw/hillary_clinton_just_went_on_the_bbc_and_accused/o5taeca/
+
+3 month Reddit account. Immunity if forced to testify for government investigation. THIS_GITHUB the greater problem of EVERY DAY USA, all day, every day, is the absence of people seeking / building / organizing. Anti-FAQ anti-Wiki behaviors of media consumers on Reddit. ANTI_WIKI_ANTI_FAQ
+
+https://old.reddit.com/r/politics/comments/1r743qw/stephen_colbert_says_cbs_blocked_james_talarico/o5uojku/
+
+As for the posting itself (not just this comment tree). EVERYTHING IS MEDIA ECOLOGY https://github.com/RocketDerp/April14_2025/blob/main/Media_Ecology/Everything_is_ME.md
+
+https://old.reddit.com/r/politics/comments/1r743qw/stephen_colbert_says_cbs_blocked_james_talarico/o5uq4et/
+
+https://old.reddit.com/r/politics/comments/1r743qw/stephen_colbert_says_cbs_blocked_james_talarico/o5urtcg/
+
+Extreme low-effort short-message Twitter-think commenting (Elon Musk Twitter programmed mindsets). ROUTINE_NO_NEED_TO_RESIST_OR_ORGANIZE_INTELLECTUAL_UPRISING
+
+https://old.reddit.com/r/politics/comments/1r743qw/stephen_colbert_says_cbs_blocked_james_talarico/o5urp2k/
+
+No off-Reddit URL, no book title, no author name, no quotes from nonfiction learning. ANTI_WIKI_ANTI_FAQ
+

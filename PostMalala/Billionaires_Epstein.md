@@ -42,7 +42,7 @@ Trump is #Celebrity - social power over superficial and shallow mindsets
 
 #PostMarriage #PostFamily #AntiImmigrant
 
-Part of what has happened you can study by the family of Donald Trump. In marriages and intimate relationships, people constantly watch for "red flags" and abandon relationships. In the #MAGA values society, people disown family members who join #FoxNews cult. Nobody is learning from mistakes.
+Part of what has happened you can study by the family of Donald Trump. In marriages and intimate relationships, people constantly watch for "red flags" and abandon relationships. In the #MAGA values society, people disown family members who join #FoxNews cult. **Nobody is learning from mistakes.**
 
 The anti-Immigrant MAGA movement is a machine-blocking idea. People are more thrilled to declare hate than compassion. People join hate fandoms, mocking fandoms, of people or music bands or hate-watching TV shows. People enjoy hating their ex-lovers more than any authentic joy of parenting and family. Does Donald Trump and Elon Musk entertain their children with consumer goods and purchases. Trump and Musk children are raised to be consumers. Conspicuous consumption.
 
@@ -56,7 +56,26 @@ Ghislaine Maxwell and Jeffrey Epstein were about formalizing and organizing that
 
 &nbsp;
 
+## Repeating: Mistakes Experiences
+
+REPEATING_REPEATER **Nobody is learning from mistakes.** - people are programmed with the 'red flag" flee, mistake flee, anti-forgiveness, flee, block-happy behavior, self-deport, run off. Billionaires are inserting themselves into our brains, programming our minds with sports team ownership, programming our minds with advertising and marketing. Religions have been exploiting our brains for thousands of years.  It is fucking IMPOSSIBLE to not make mistakes. We are exploited in our heads. We are constantly being manipulated and tricked. And until we address this hostile society behavior globally... we need to be LEARNING from our mistakes.
+
+**Nobody is learning from mistakes.**  There was a BRIEF TIME PERIOD when the world had jet travel and we were recognized this.
+
+* "CAMPBELL: Marriage is a relationship. When you make the sacrifice in marriage, you’re sacrificing not to each other but to unity in a relationship. The Chinese image of the Tao, with the dark and light interacting—that’s the relationship of yang and yin, male and female, which is what a marriage is. And that’s what you have become when you have married. You’re no longer this one alone; your identity is in a relationship. Marriage is not a simple love affair, **it’s an ordeal, and the ordeal is the sacrifice of ego** to a relationship in which two have become one. MOYERS: So marriage is utterly incompatible with the idea of doing one’s own thing. CAMPBELL: It’s not simply one’s own thing, you see. It is, in a sense, doing one’s own thing, but the one isn’t just you, it’s the two together as one. And that’s a purely mythological image signifying the sacrifice of the visible entity for a transcendent good. This is something that becomes beautifully realized in the second stage of marriage, what I call the alchemical stage, of the two experiencing that they are one. If they are still living as they were in the primary stage of marriage, they will go apart when their children leave. Daddy will fall in love with some little nubile girl and run off, and Mother will be left with an empty house and heart, and will have to work it out on her own, in her own way." - age 83, year 1987, published year 1988. Power of Myth.
+
+**Nobody is learning from mistakes.**  There was a BRIEF TIME PERIOD when the world had jet travel and we were recognized this as an inward (every person, every relationship, global issue) problem. OPERA_A https://www.youtube.com/watch?v=VJDJs9dumZI Lyric: "I don't know **why nobody told you** how to unfold your love. I don't know how someone controlled you. **They bought and sold you**"; "I don't know how you were diverted
+You were perverted too
+I don't know how you were inverted.
+**No one alerted you**"; "With every mistake we must surely be learning" 
+
+
+
 &nbsp;
+
+&nbsp;
+
+## Poor people hate poor people
 
 “America is the wealthiest nation on Earth, but its people are mainly poor, and poor Americans are urged to hate themselves. To quote the American humorist Kin Hubbard, 'It ain’t no disgrace to be poor, but it might as well be.' It is in fact a crime for an American to be poor, even though America is a nation of poor. Every other nation has folk traditions of men who were poor but extremely wise and virtuous, and therefore more estimable than anyone with power and gold. No such tales are told by the American poor. They mock themselves and glorify their betters. The meanest eating or drinking establishment, owned by a man who is himself poor, is very likely to have a sign on its wall asking this cruel question: 'if you’re so smart, why ain’t you rich?' There will also be an American flag no larger than a child’s hand – glued to a lollipop stick and flying from the cash register.
 
