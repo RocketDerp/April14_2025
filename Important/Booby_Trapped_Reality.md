@@ -63,3 +63,16 @@ Newsmax is a second-source of much of these same wealth televangelism values. Es
 
 https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Specific/Campbell_True_Story_Magazines.md
 
+&nbsp;
+
+# QAnon as ARG 
+
+Analyzing QAnon / Q media cult as ARG   
+
+https://www.WashingtonPost.com/outlook/qanon-game-plays-believers/2021/05/10/31d8ea46-928b-11eb-a74e-1f4cf89fd948_story.html    
+"QAnon resembles the games I design"   
+May 11, 2021    
+Catarina Dutilh Novaes   
+"Q has specifically followed the model of an alternate reality game (ARG) using many of the same techniques"
+
+SEE_ALSO: "QAnon Russia" subreddit I created. https://old.reddit.com/r/QAnonRussia   
