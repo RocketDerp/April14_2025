@@ -628,3 +628,7 @@ https://old.reddit.com/r/todayilearned/comments/1r73vdz/til_weird_al_was_set_to_
 COPYRIGHT_BRAIN_DAMAGE topic. Creating a religion-level story but restricting derived works. Levant monomyth power over revising stories about "The Force" and "God" spirits / ghosts. James Joyce estate does the same thing.
 
 * "what is unfortunate for us is that a lot of the people who write these stories do not have the sense of their responsibility. These stories are making and breaking lives. But the movies are made simply to make money. The kind of responsibility that goes into a priesthood with a ritual is not there. That is one of our problems today." - Skywalker Ranch summer of 1985 / 1986. Age 81 / age 82.
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1r761yw/ford_shuts_down_58_billion_factory_just_months/o5v498d/
+
+See the replies too. CONCERNS_OF_FINNEGANS AUTISM_EXPERIENCE my autism experience is I can make the same language output brain issues, fix them again and again, and I still keep making them. Even in programming syntax for BASIC / PASCAL / Ada / C / Python / JavaScript / Java / etc. https://en.wikipedia.org/wiki/Hyperlexia
