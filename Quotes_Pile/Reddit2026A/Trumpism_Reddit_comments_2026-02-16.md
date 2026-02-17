@@ -446,3 +446,7 @@ ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING This Reddit commen
 https://old.reddit.com/r/LeopardsAteMyFace/comments/1r761yw/ford_shuts_down_58_billion_factory_just_months/o5v8ko5/
 
 Comment topic: COMPREHENDING_UNDERSTANDING - alas, it's just more commenting. The Anti-FAQ anti-organizing, anti-Wiki values of Reddit is to want the problems to continue, not to organize and address the crisis and save lives and save the world from Donald Trump and Putin's plans of mass dehumanization. It's Reddit commenting "engagement" to make these, but there is no rescue or defense system being created. ROUTINE_NO_NEED_TO_RESIST_OR_ORGANIZE_INTELLECTUAL_UPRISING
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1r761yw/ford_shuts_down_58_billion_factory_just_months/o5v4mvu/
+
+OUT_GROUP_HATE exactly as intended. Surkov won since March 2013.
