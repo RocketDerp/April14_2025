@@ -384,4 +384,12 @@ NEW_OPERA_NAME DemiseOf DirectionOf (see social posts).
 
 Social post { https://autistics.life/@RoundSparrow/116086501381731138 https://bsky.app/profile/roundsparrow.bsky.social/post/3mf2sgl2jrk2y https://MidWest.Social/post/43573234 }
 
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1r75tmk/cbs_is_completely_compromised/o5v0z9o/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1r75tmk/cbs_is_completely_compromised/o5v15xl/
+
+Simple-think short-message Twitter-length Tweet-thinking. ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING  This Reddit comment serves to normalize the situation and just do "news reporting" of events as a detached person. Reddit itself is state-manipulated media. https://www.bbc.com/news/technology-43301643 Surkov won since March 2013 via Reddit.
+
+
+
 
