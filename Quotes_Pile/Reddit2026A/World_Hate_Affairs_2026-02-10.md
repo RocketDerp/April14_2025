@@ -498,7 +498,7 @@ https://old.reddit.com/r/International/comments/1r6dhnx/racism_and_bigotry_have_
 
 * "That such **remoteness from reality and such thoughtlessness can wreak more havoc than all the evil instincts taken together** which, perhaps, are inherent in man—that was, in fact, the lesson one could learn in Jerusalem.” ― Hannah Arendt, Eichmann in Jerusalem: A Report on the Banality of Evil
 
-All this spare time and free time of people commenting on Reddit. Why isn't Reddit community organizing a REDDIT_BLACKOUT in protest? Why isn't Reddit community on the front page of world news https://www.thestar.com/business/reddit-blackout-here-s-why-thousands-of-pages-went-dark-on-monday-and-how-long/article_4847569b-6784-52e1-a5eb-77b48840c626.html for protesting? Why are Reddit users so avoidant of quoting nonfiction seriously written books? why is Dr. Bandy X Lee's mental health topic books not quoted on Reddit despite the obvious thinking crisis?
+All this spare time and free time of people commenting on Reddit. Why isn't Reddit community organizing a REDDIT_BLACKOUT in protest? Why isn't Reddit community on the front page of world news https://www.TheStar.com/business/reddit-blackout-here-s-why-thousands-of-pages-went-dark-on-monday-and-how-long/article_4847569b-6784-52e1-a5eb-77b48840c626.html for protesting? Why are Reddit users so avoidant of quoting nonfiction seriously written books? why is Dr. Bandy X Lee's mental health topic books not quoted on Reddit despite the obvious thinking crisis?
 
 https://old.reddit.com/r/International/comments/1r6dhnx/racism_and_bigotry_have_become_so_normalized_that/o5por1t/
 
@@ -507,3 +507,19 @@ https://old.reddit.com/r/International/comments/1r6dhnx/racism_and_bigotry_have_
 https://old.reddit.com/r/whenthe/comments/1r75nz4/and_i_thought_western_gender_wars_can_get_crazy/o5v0191/
 
 WOKE_TO_WHAT EXACTLY ? CONSERVING_WHAT EXACTLY? Hate. Out-group hate. How much of women being attacked and abused by men is this kind of HAZING_RITUAL that men do to other men and such...
+
+https://old.reddit.com/r/circled/comments/1r75zpr/the_world_cares_about_whats_happening_in_the_us/o5v89f0/
+
+https://old.reddit.com/r/circled/comments/1r75zpr/the_world_cares_about_whats_happening_in_the_us/o5vakbk/
+
+https://old.reddit.com/r/circled/comments/1r75zpr/the_world_cares_about_whats_happening_in_the_us/o5v59yf/
+
+https://old.reddit.com/r/circled/comments/1r75zpr/the_world_cares_about_whats_happening_in_the_us/o5vajqx/
+
+https://old.reddit.com/r/circled/comments/1r75zpr/the_world_cares_about_whats_happening_in_the_us/o5v3cg6/
+
+3 month Reddit account. TACTICAL_CLEVERNESS
+
+https://old.reddit.com/r/circled/comments/1r75zpr/the_world_cares_about_whats_happening_in_the_us/o5v8h2t/
+
+"brainwashed by Trump". REDDIT_HIVE_MIND_FORGOT Regarding Europe / EU... people caged "inside the box" thinking on Reddit (as programmed by Musk and others) think this is Trump that unleashed the brainwashing. Reddit has forgotten: "Hillary Clinton: Putin Would 'Rather Have a Puppet as President' | NBC News" "Break up NATO". 7,675 views October 19, 2016 https://www.youtube.com/watch?v=Cq8f8oU9wYs
