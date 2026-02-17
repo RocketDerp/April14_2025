@@ -405,3 +405,9 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1r75tmk/cbs_is_completely_c
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1r75tmk/cbs_is_completely_compromised/o5v2wa0/
 
 HYPER_SIMPLE_TRIVIALIZE_BANAL_SELF_ONLY_CONCERN This Reddit user thinks this is world news because of their own personal preference in TV channels. Simplistic Twitter-thinking short-message mindsets, as programmed into Reddit audience by Elon Musk Twitter owner. No concern for the people brainwashed by CBS and Elon Musk, just give simple answers without any underlying understanding or comprehension as to what is going on at the forest levels, just move one tree and don't address the mass dehumanization ongoing via media networks and media machines.
+
+https://old.reddit.com/r/clevercomebacks/comments/1r75y2i/this_kid_completely_broke_maga/o5v9dfu/
+
+BRAIN_ROT_LEFT_RIGHT_LIB_CON_NAME_AVOIDANCE I witness so many of these back and forth "lib vs. con", "left vs. right" discussions. Fox News ALONE has been wrecking and poisoning any specific meaning of these words. Fox News conservatives are not technology conservatives, the USA conservatives would be the Amish I grew up and worked next to in Grabill, Indiana. Fox News HDTV wealth worship. ASSERTION: people need to focus on fiction vs. nonfiction. Trumpism is storytelling fiction-based leadership, Bible is storytelling fiction-based leadership. Anti-science. AND NAME A LIST. Don't just say "leftists", "right-wing". PLEASE oh God, NAME A NATION AND TIME PERIOD. If you want year 2030 USA to be like Japan 1980, then SAY THAT.
+
+Trumpism right now seems like it wants to be Russia Putinism and Pakistan Taliban 2008 in many policies and attitude changes. Please on please communicate like this by NAMING a place and time period or even a fiction like "Star Trek The Next Generation" values. The "left" in Pakistan is nothing like the "left" in Canada.
