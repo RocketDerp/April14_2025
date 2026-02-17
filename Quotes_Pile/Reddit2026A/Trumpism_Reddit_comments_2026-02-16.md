@@ -398,3 +398,6 @@ CONTEXT_ASSERTION: Free speech topics, CBS media television media. Yes, since 19
 
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1r75tmk/cbs_is_completely_compromised/o5v27sw/
 
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1r75tmk/cbs_is_completely_compromised/o5v2vuq/
+
+"not coming back" messaging to Reddit audience. GIVE_UP_SURRENDER on intellectual protest and nonfiction asserts.
