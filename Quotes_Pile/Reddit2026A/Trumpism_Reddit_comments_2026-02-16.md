@@ -256,4 +256,35 @@ Yes. And this image-posting is cult programming to join in with MAGA values. GIV
 
 https://old.reddit.com/r/Fauxmoi/comments/1r6ndop/woody_harrelson_were_going_backwards_the_star/o5rhnr7/
 
-Tech-lovers of Reddit upvoted this to the top. AMERICANS_HATE_AMERICANS society now. Anti-forgiveness, ant-teaching. TARNISHED_BRAND_FOREVER_PERMANENT_BLOCK
+Tech-lovers of Reddit upvoted this to the top. AMERICANS_HATE_AMERICANS society now. Anti-forgiveness, ant-teaching. TARNISHED_BRAND_FOREVER_PERMANENT_BLOCK These messages on Reddit are anti-constructive, they don't address the absence of crowds following great on-topic leaders like Jen Senko and Dr. Bandy X Lee - they don't offer goodness, promoting shit-commenting insulting MAGA values of media usage.
+
+https://old.reddit.com/r/Fauxmoi/comments/1r6ndop/woody_harrelson_were_going_backwards_the_star/o5ri3ro/
+
+27 day Reddit account, popular 2nd place upvoted. Russia manipulated hearts and minds on virus topics. And here is nobody addressing the learning and education crisis of adults... fed by Putin, Rupert Murdoch, Trump, and junk social media content. How does this Reddit message offer any solutions to the problems of fiction addictions when it comes to RFK Jr? Reddit is FULL of fiction addicts who won't turn to nonfiction sources like Neil Postman, Dr Bandy X Lee, and Jen Senko who cover our most serious learning problems.
+
+https://old.reddit.com/r/Fauxmoi/comments/1r6ndop/woody_harrelson_were_going_backwards_the_star/o5rj2gw/
+
+https://old.reddit.com/r/Fauxmoi/comments/1r6ndop/woody_harrelson_were_going_backwards_the_star/o5rkzyr/
+
+Why is Reddit not having a social media blackout protest and call for intellectual education to rescue cults with cult deprogramming (nonfiction) education? REDDIT_BLACKOUT has been proven to get world wide press coverage, why is there no call for social media promotion of Dr. Bandy X Lee?
+
+https://old.reddit.com/r/Fauxmoi/comments/1r6ndop/woody_harrelson_were_going_backwards_the_star/o5rickc/
+
+1 month Reddit account.
+
+https://old.reddit.com/r/Fauxmoi/comments/1r6ndop/woody_harrelson_were_going_backwards_the_star/o5ro5mb/
+
+9 month Reddit account.
+
+https://old.reddit.com/r/Fauxmoi/comments/1r6ndop/woody_harrelson_were_going_backwards_the_star/o5rp2s7/
+
+How old is it? What's the date?
+
+https://old.reddit.com/r/Fauxmoi/comments/1r6ndop/woody_harrelson_were_going_backwards_the_star/o5rr321/
+
+4 month Reddit account.
+
+https://old.reddit.com/r/Fauxmoi/comments/1r6ndop/woody_harrelson_were_going_backwards_the_star/o5rs7mx/
+
+3 month Reddit account. At least we got a date.
+
