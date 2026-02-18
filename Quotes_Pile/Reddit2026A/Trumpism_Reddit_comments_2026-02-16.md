@@ -535,3 +535,7 @@ February 28, 1954: "Most people can't stand up for their convictions, because th
 
 "For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the **true becomes false and the false becomes true**. That's what hate does. You can't see right. **The symbol of objectivity** is lost." - Martin Luther King J
 
+https://old.reddit.com/r/science/comments/1r7h4hr/trump_support_in_2024_linked_to_white_americans/o5xo6en/
+
+Science technology lovers don't want to concern themselves human goodness such as ending wars or compassion for people who have no food or health care. The concern of science /r/Science technology to produce new plastics for toys, new science for entertainment machines. See how this message promotes hate when humanism and understanding of human conflicts is a serious topic. TECH_LUST_TECH_LOVERS
+
