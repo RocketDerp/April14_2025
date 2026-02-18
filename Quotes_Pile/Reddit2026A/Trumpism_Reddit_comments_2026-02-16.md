@@ -598,3 +598,8 @@ https://old.reddit.com/r/pics/comments/1r81910/if_ice_wants_to_dox_me_then_get_m
 https://old.reddit.com/r/pics/comments/1r81910/if_ice_wants_to_dox_me_then_get_my_good_side/o61hdfr/
 
 For MAGA image cult, NOT_GOOD_ENOUGH that a real person stands up. "Cringe". Cult of cringe on Reddit can't stand up for "The Little Guy" if you don't dress and behave to worship Trump images on /r/All year after year after year for over a decade.
+
+https://old.reddit.com/r/therewasanattempt/comments/1r81uwt/to_not_get_owned_by_your_own_ai/o6228j7/
+
+WHEN_THE_PEOPLE_HAVE_LOST_THE_ABILITY Fiction outsells nonfiction.
+
