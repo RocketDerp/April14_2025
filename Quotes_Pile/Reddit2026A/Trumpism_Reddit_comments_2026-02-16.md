@@ -573,3 +573,6 @@ People in rural areas stuck with television and game consoles and considered com
 
 Next in March 2013, the Russian military invaded USA media systems "Putin Media Invasion" I sometimes call it. The rural less-educated Republicans didn't stand a chance against Surkov students. SEE_ALSO https://www.BuzzFeedNews.com/article/maxseddon/documents-show-how-russias-troll-army-hit-america published July 2, year 2014. Surkov won, NATO lost, hearts and minds have been conditioned by Russia to self-harm USA. Especially gender topics and wrecking women. All around anti-goodness mindsets. MAXIMUM_PUTINIZATION
 
+https://old.reddit.com/r/mildlyinfuriating/comments/1r7onu7/new_yorkers_are_furious_as_melting_snowbanks/o5z3ekx/
+
+Because media cult programming into the minds.
