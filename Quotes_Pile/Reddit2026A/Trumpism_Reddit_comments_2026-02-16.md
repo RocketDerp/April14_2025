@@ -620,4 +620,10 @@ Top most upvoted comment, most popular. AMUSEMENT_COMEDY_WASHING_TRUMP_AS_FUNNY_
 
 https://old.reddit.com/r/RandomShit_ISaw/comments/1r891xx/breaking_rep_lieu_said_full_epstein_files_show/o63epsc/
 
-INFORMATION_GLUT_COMMENTING_GLUT 
+INFORMATION_GLUT_COMMENTING_GLUT see the replies to the comment. People get such an emotional rush talking about the sexual activity of Donald Trump, comment creation, that they can not engage off-Reddit content to link, quote, cite.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1r84t80/the_talarico_for_texas_campaign_raised_25_million/o629z6w/
+
+BRAIN_ROT_SOCIETY_47 - and why are Reddit community members not talking about WikiTribune ? https://en.wikipedia.org/wiki/WikiTribune Halloween 2017 - haunt the big media!
+
+
