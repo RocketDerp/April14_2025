@@ -645,3 +645,6 @@ https://old.reddit.com/r/worldnews/comments/1r845ms/kremlin_threatens_to_deploy_
 
 "amused". SURKOVIAN_ONION_EATING Reddit audience eats up Putin / Kremlin information warfare without any self-awareness. People on Reddit are unable to cite Surkov, cite NOT_GOOD_ENOUGH Peter Pomerantsev. 
 
+https://old.reddit.com/r/SipsTea/comments/1r89dyz/he_cooked/o63dc2l/
+
+5 month Reddit account is most-upvoted top. Asking a "why" question instead of declaring it bad. ANSWER: it draws an audience, which it did right on Reddit.
