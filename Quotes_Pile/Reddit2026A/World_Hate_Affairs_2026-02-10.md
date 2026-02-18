@@ -622,7 +622,7 @@ ROUTINE_NO_NEED_TO_RESIST_OR_ORGANIZE_INTELLECTUAL_UPRISING
 
 https://old.reddit.com/r/worldnews/comments/1r7v4k3/zelenskyy_unfair_that_trump_publicly_urges/o60da5e/
 
-Why are Reddit community members making low-effort comments instead of organizing an intellectual resistance? REDDIT_BLACKOUT Why are people on Reddit not promoting, quoting, repeating Dr. Bandy X Lee's nonfiction public education on Trump's mental health and DANGER to society over and over? ANSWER: Reddit is a cult of Trump and is not making serious life-saving effort to organize information and stay focused on what is important. Because the cult symptom is attraction to the actor's performance... to more Trump content, not removing Trump.
+Why are Reddit community members making low-effort comments instead of organizing an intellectual resistance? REDDIT_BLACKOUT Why are people on Reddit not promoting, quoting, repeating Dr. Bandy X Lee's nonfiction public education on Trump's mental health and DANGER to society over and over? ANSWER: Reddit is a cult of Trump and is not making serious life-saving education efforts to organize information and stay focused on what is important. Because the cult symptom is attraction to the actor's performance... to more Trump content, not removing Trump.
 
 https://old.reddit.com/r/technology/comments/1r80ynt/meta_ceo_mark_zuckerberg_to_face_jury_in_landmark/o61hfno/
 
