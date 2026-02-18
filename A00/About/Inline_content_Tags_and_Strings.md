@@ -136,6 +136,10 @@ AUTISM_EXPERIENCE
 SHARON_STONE_WAS_CORRECT   
 _WAS_RIGHT      
 
+HYPER_REAL_PRESIDENT   
+WHITE_HOUSE_HYPER_REAL   
+WHHR   
+
 
 Topic_tags: media_ecology, media_deconstruction, media_environment, media_conventions    
 Topic_tags: media_ecology, reading_vs_film, morality_lessons   
