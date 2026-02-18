@@ -640,3 +640,8 @@ https://old.reddit.com/r/technology/comments/1r80ynt/meta_ceo_mark_zuckerberg_to
 
 ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING    
 Surkov students are light-years beyond what domestic have done. Surkov won since March 2013. SEE_ALSO: https://GitHub.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Cambridge_Analytica_Quotes.md
+
+https://old.reddit.com/r/worldnews/comments/1r845ms/kremlin_threatens_to_deploy_navy_if_europe_seizes/o624ds9/
+
+"amused". SURKOVIAN_ONION_EATING Reddit audience eats up Putin / Kremlin information warfare without any self-awareness. People on Reddit are unable to cite Surkov, cite NOT_GOOD_ENOUGH Peter Pomerantsev. 
+
