@@ -734,3 +734,9 @@ https://old.reddit.com/r/politics/comments/1r8dmcm/karoline_leavitt_says_all_tru
 
 Can't understand or comprehend. GULLIBLE_FANDOM to White House content. Hangs out on Reddit, as soon as this posting appears they were commenting at extreme high speeds in a race to get their message shared.
 
+https://old.reddit.com/r/politics/comments/1r8dmcm/karoline_leavitt_says_all_truth_social_posts_are/o64b014/
+
+"It's like the **4chan presidency**.", "it's embarrassing" - this Reddit user is entirely ignorant of Surkov techniques. Reddit comment creators know Internet fandoms, but they do not engage serious nonfiction learning about Putin and Trump's relationship. Always avoiding relevant nonfiction on Reddit to put an end to the shit-show Trumpism MAGA fandom: NOT_GOOD_ENOUGH Peter Pomerantsev https://en.wikipedia.org/wiki/Peter_Pomerantsev
+
+REPEATING_REPEATER "It's like the **4chan presidency**." - HYPER_REAL_PRESIDENT WHITE_HOUSE_HYPER_REAL - Texan Rick Roderick 1993 "And I think that here we get – and, I mean, I guess my politics are showing again – but here we get the phenomenon of Reagan, the hyperreal president." Duke University SEE_ALSO https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
+
