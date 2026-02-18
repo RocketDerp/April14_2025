@@ -605,9 +605,12 @@ WHEN_THE_PEOPLE_HAVE_LOST_THE_ABILITY Fiction outsells nonfiction.
 
 https://old.reddit.com/r/news/comments/1r7wxqh/epstein_files_suggest_acts_that_may_amount_to/o60wb4k/
 
+<img width="934" height="481" alt="Screenshot from 2026-02-18 07-50-32" src="https://github.com/user-attachments/assets/6e761dde-26bc-44dc-a0d4-0e39d1d9977b" />
+
 DENIAL_ABOUNDS
 
-NEW_OPERA_NAME: #WatchingAmerica #EveryoneCanSee    
+NEW_OPERA_NAME: #WatchingAmerica #EveryoneCanSee #TrumpBlind #TrumpBlindOpera #SnowBlindOpera     
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mf5dnyamtk2d https://autistics.life/@RoundSparrow/116092223445485613 }
 
+OPERA_A https://www.youtube.com/watch?v=QurGAOzAxr8 The Bright Lights of the Apple iPhone / Apple iPad / Android device screens have blinded We The People USA to their own Trump media notification delivery addictions. REPEAT_TRACK 1,023,442 views December 12, 2018 Lyrics: "Mirror, mirror I confess... I can't escape this emptiness... No more reason to pretend!"; Second Trump term in office, third time coming... "I'm going down for the third time! 'Cause I'm snowblind, and I can't get away!" - *because* I'm smartphone blind to Surkov students.
 
