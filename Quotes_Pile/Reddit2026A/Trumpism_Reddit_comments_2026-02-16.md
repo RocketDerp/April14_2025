@@ -659,3 +659,11 @@ ELECTION_DAY_FIXATED_BRAIN_ROT_EVERY_DAY_FOX_NEWS_ETC  The Reddit community is n
 https://old.reddit.com/r/International/comments/1r8cesd/let_that_sink_in/o63vn3c/
 
 1 day account, front page post creator, top most-upvoted comment. Read the reply comments. WOKE_TO_WHAT_EXACTLY ... that GOP is a cult of junk media. This Reddit post title is horrible "Let that sink in" is entirely generic and non-specific clickbait. Promoting pro-ignorant headlines. 
+
+https://old.reddit.com/r/International/comments/1r8cesd/let_that_sink_in/o63vozt/
+
+See previous comment link in this file. Same 1-day Reddit user got 2nd-most upvoted comment on a front-page posting they created. "countless millions can go online and call him a pedophile and a child rapist, and a pants-shitter" - try quoting nonfiction and serious content from Dr. Bandy X Lee - why is Jen Senko, Dr. Bandy Lee not tpics all over Reddit? They aren't banality-washing shit-commenting shit-posting worship of shit Trump content. The diaper-fetish Epstein fetish old white men having sex cult doesn't want to remove Trump, they want more "pant-shit" diaper fetish stimulation about their media icon celebrity Trump. https://en.wikipedia.org/wiki/Diaper_fetishism
+
+Millions and millions online... "countless millions can go online and call him a pedophile and a child rapist, and a pants-shitter"...
+
+* “When a population becomes distracted by trivia, when cultural life is redefined as a perpetual round of entertainments, **when serious public conversation becomes a form of baby-talk**, when, in short, a people become an audience, and their public business a vaudeville act, then a nation finds itself at risk; culture-death is a clear possibility.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. Nonfiction book. year 1985.
