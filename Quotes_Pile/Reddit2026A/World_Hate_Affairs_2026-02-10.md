@@ -546,3 +546,8 @@ South as South can be. New Orleans white men Southern USA. I've spent 7 months t
 
 * "I've seen too much hate to want to hate myself; hate is too great a burden to bear. I've seen it on the faces of too many sheriffs of the South — I've seen hate. In the faces and even the walk of too many Klansmen of the South, **I've seen hate. Hate distorts** the personality. **Hate does something to the soul that causes one to lose his objectivity.** The man **who hates can't think straight**; the man **who hates can't reason right; the man who hates can't see right**; the man who hates can't walk right. And I know now that Jesus is right, that love is the way. And this is why John said, "God is love," so that he who hates does not know God, but he who loves at that moment has the key that opens the door to the meaning of **ultimate reality**." - July 4, 1965 Atlanta, Georgia.
 
+https://old.reddit.com/r/SipsTea/comments/1r7hva7/shia_lebeouf_hanging_out_in_new_orleans/o5xvh12/
+
+Predatory male aggression isn't just for billionaires like Musk, Trump, Murdoch. It's programmed into the USA population. Reactionary mindsets. AGGRESSIVE_ESCALATE_HATE_REACT_HARDER_MINDSETS People get a whiff of mob power and they become aggressive like the police in USA.
+
+
