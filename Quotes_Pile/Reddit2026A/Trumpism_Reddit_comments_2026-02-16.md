@@ -614,3 +614,6 @@ Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mf5dnyamtk
 
 OPERA_A https://www.youtube.com/watch?v=QurGAOzAxr8 The Bright Lights of the Apple iPhone / Apple iPad / Android device screens have blinded We The People USA to their own Trump media notification delivery addictions. REPEAT_TRACK 1,023,442 views December 12, 2018 Lyrics: "Mirror, mirror I confess... I can't escape this emptiness... No more reason to pretend!"; Second Trump term in office, third time coming... "I'm going down for the third time! 'Cause I'm snowblind, and I can't get away!" - *because* I'm smartphone blind to Surkov students.
 
+https://old.reddit.com/r/RandomShit_ISaw/comments/1r891xx/breaking_rep_lieu_said_full_epstein_files_show/o638vus/
+
+Top most upvoted comment, most popular. AMUSEMENT_COMEDY_WASHING_TRUMP_AS_FUNNY_MEDIA_SANEWASHING   
