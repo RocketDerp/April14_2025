@@ -156,3 +156,9 @@ Social post { }
 Surkov won   
 ToDo:  
 WHHR   
+
+https://old.reddit.com/r/law/comments/1r83ywj/fbi_witness_states_trump_commerce_secretary/o6258ln/
+
+... Bellevue Washington 1997 on private staff I was hired because of my Telos Federal Systems (Pentagon military information systems) Apprentice background to run the secret messaging systems and asset prep and travel data information. The social power in 1998 was staggering with sports team headlines of purchasing NFL team... ESPN Internet ... Hollywood films. "Vulcan Productions: Formed in 1997 as a film company focusing on independent films and documentaries." DreamWorks SKG. All kinds of Hollywood players / sports stars and connections on that private cruise ships and private jets.
+
+
