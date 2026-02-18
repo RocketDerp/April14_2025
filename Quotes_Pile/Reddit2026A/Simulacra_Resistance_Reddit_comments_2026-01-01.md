@@ -1011,3 +1011,8 @@ Government is shutting up Reddit users. So Reddit audience predictably demands o
 https://old.reddit.com/r/clevercomebacks/comments/1r89lky/he_only_had_good_relationships/o639lja/
 
 4 month Reddit account, top upvoted popular comment. This whole Twitter screenshot pattern is **manipulation of Reddit fandom of Charlie Kirk to simulate resisting**. What is NOT being resisted: spending free time and spare time on these low-effort tiny Twitter-think mindset patterns Elon Musk promotes. This pattern of junk "dead man Kirk is next POTUS candidate" is the killing of the "Woke Mind Virus" that Musk is doing to Reddit. SEE_ALSO: https://www.LeMonde.FR/en/international/article/2024/08/13/elon-musk-s-ambition-repopulating-the-planet-and-destroying-the-woke-virus_6714239_4.html
+
+https://old.reddit.com/r/GetNoted/comments/1r8djyo/just_lol/o645b0q/
+
+The anti-FAQ anti-Wiki culture of Reddit commenting consumes free time and spare time all on low-effort shit-postings off Twitter, simulation of resistance. Non sense of urgency to organize a serious intellectual resistance with priority topics. ANTI_WIKI_ANTI_FAQ
+
