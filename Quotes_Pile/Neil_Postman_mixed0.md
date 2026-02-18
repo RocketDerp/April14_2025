@@ -55,6 +55,9 @@ ToDo: https://www.wikiwand.com/en/quotes/Neil_Postman
 
 * "The key to all fanatical beliefs is that they are self-confirming....(some beliefs are) fanatical not because they are "false", but because they are expressed in such a way that they can never be shown to be false." - Crazy Talk, Stupid Talk : How We Defeat Ourselves by the Way We Talk and What to do About It. year 1976, p. 104
 
+NEW_OPERA_NAME #KeyToAll    
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mf5gjbnhic2u https://autistics.life/@RoundSparrow/116092411487395385 }    
+
 * "There is a difference between rape and seduction, technology can rape a culture or be forced to seduce it." - Neil Postman. "The Conservative Outlook", in Conscientious Objections : Stirring Up Trouble About Language, Technology and Education. year 1988
 
 NEW_OPERA_NAME #TechnologyCanRape    
