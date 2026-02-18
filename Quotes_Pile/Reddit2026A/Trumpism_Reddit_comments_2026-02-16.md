@@ -533,7 +533,7 @@ Putin is killing people in Ukraine. Trump supports Putin. Donald Trump trusts an
 
 February 28, 1954: "Most people can't stand up for their convictions, because the majority of people might not be doing it. See, everybody's not doing it, so it must be wrong. And since everybody is doing it, it must be right. So a sort of numerical interpretation of what's right. But I'm here to say to you this morning that some things are right and some things are wrong. Eternally so, absolutely so. **It's wrong to hate.** It always has been wrong and it always will be wrong. It's wrong in America, it's wrong in Germany, it's wrong in Russia, it's wrong in China. It was wrong in 2000 B.C., and it's wrong in 1954 A.D. It always has been wrong, and it always will be wrong." - Martin Luther King Jr.
 
-"For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the **true becomes false and the false becomes true**. That's what hate does. You can't see right. **The symbol of objectivity** is lost." - Martin Luther King J
+"For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the **true becomes false and the false becomes true**. That's what hate does. You can't see right. **The symbol of objectivity** is lost." - Martin Luther King Jr
 
 https://old.reddit.com/r/science/comments/1r7h4hr/trump_support_in_2024_linked_to_white_americans/o5xo6en/
 
@@ -542,3 +542,11 @@ Science technology lovers don't want to concern themselves human goodness such a
 https://old.reddit.com/r/science/comments/1r7h4hr/trump_support_in_2024_linked_to_white_americans/o5yhab4/
 
 ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING
+
+https://old.reddit.com/r/circled/comments/1r7jubl/talarico_yeah_no_wonder_they_wont_let_you_in_tv/o5y5exg/
+
+https://old.reddit.com/r/circled/comments/1r7jubl/talarico_yeah_no_wonder_they_wont_let_you_in_tv/o5y8duf/
+
+We should have multiple GOOD choices for elections. Something is horrible wrong that people are taught by clergy that there is "team evil" (Satan in South Park at the White House in year 2025 episodes) and "team good", and you should "find your inner desires" and join the team you prefer. What shit bi-polar logic that got us where we are. People actually believe evil leaders like Trump are perfectly acceptable choices. Evil is not a valid choice. Supporting Putin murdering people in Ukraine is not a valid choice. The whole mentality of "there are two and only two sides to every debate" logic is stupid. SEE_ALSO https://GitHub.com/GreatSealUSA/GreatSealUSA_Art/tree/main/TwoAndOnlyTw0
+
+* "For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the **true becomes false and the false becomes true**. That's what hate does. You can't see right. **The symbol of objectivity** is lost." - Martin Luther King Jr
