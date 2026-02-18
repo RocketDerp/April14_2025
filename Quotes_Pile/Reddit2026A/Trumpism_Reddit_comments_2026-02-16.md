@@ -681,3 +681,8 @@ https://old.reddit.com/r/International/comments/1r8cesd/let_that_sink_in/o642hk5
 https://old.reddit.com/r/International/comments/1r8cesd/let_that_sink_in/o64347o/
 
 Scattered all over Reddit in a disorganized reactionary explosive way, then 48 hours later everyone is on to the next topic. Drowning important topics. The anti-FAQ anti-WiKi anti-organizing non-refinement of Reddit culture is what has made Trump bubble to the top of society leadership. ANTI_WIKI_ANTI_FAQ
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1r8bu6e/i_a_gay_maga_have_betrayed_my_own_community_i/o63s203/
+
+ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING
+
