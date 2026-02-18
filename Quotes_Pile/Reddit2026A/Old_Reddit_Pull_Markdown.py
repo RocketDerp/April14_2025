@@ -34,7 +34,8 @@ from html_to_markdown import convert_to_markdown
 
 # The Python standard (defined in PEP 8, the official style guide) for variable names is to use lowercase with words separated by underscores (known as snake_case)
 
-HEADERS = {"User-Agent": "Pluribus TV project version 0.1.0"}
+HEADERS = {"User-Agent": "Pluribus TV project version 0.1.1"}
+progress_note = "not yet populated"
 error_count_b = 0
 error_fetch_count = 0
 error_parse_a_count = 0
@@ -108,10 +109,11 @@ def pause_with_quit(total_seconds):
     global error_fetch_count
     global error_parse_a_count
     global fetch_reddit_count_a
+    global progress_note
 
     ecount = error_count_b + error_fetch_count + error_parse_a_count
 
-    print(f"\nPausing {int(total_seconds)} seconds. Press 'Q' to quit, [SPACE] to end pause. fc {fetch_reddit_count_a} ecount {ecount}")
+    print(f"\nPausing {int(total_seconds)} seconds. Press 'Q' to quit, [SPACE] to end pause. fc {fetch_reddit_count_a} ecount {ecount} progress {progress_note}")
     fd = sys.stdin.fileno()
     old_settings = termios.tcgetattr(fd)
     try:
@@ -715,6 +717,7 @@ def main():
     global error_parse_a_count
     global fetch_reddit_count_a
     global post_only_count
+    global progress_note
 
     parser = argparse.ArgumentParser(description="Parse Reddit comments from markdown list.")
     parser.add_argument("--file", required=True, help="Input markdown file containing Reddit comment URLs.")
@@ -798,6 +801,7 @@ def main():
         reddit_comment = data['comment']
 
         entry_out = f"entry {idx} ({idx - start}/{total}"
+        progress_note = entry_out
         # for now, squelch the unique entry index total for updating same file
         entry_out = f"entry {idx}"
 
