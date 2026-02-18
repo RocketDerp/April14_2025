@@ -759,3 +759,7 @@ Those who **embrace Trump’s reality**, where the mainstream media lies and rem
 That the country is currently split — and **our shared reality** with it — seems without question at this point.
 
 ― Bandy X Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. October 3, 2017. Page 58.](https://books.google.com/books?id=pYaFDwAAQBAJ&pg=PA58&dq=insidious+strategy+called+gaslighting+%E2%80%94+a+term+drawn+from+the+1938+play+about+a+man+who+persuaded+his+wife+she+was+crazy+by&hl=en&newbks=1&newbks_redir=1&sa=X)
+
+https://old.reddit.com/r/law/comments/1r83ywj/fbi_witness_states_trump_commerce_secretary/o625r88/
+
+Top-upvoted most popular comment. Tweet-length. ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING there is no call for a social media uprising and call for resignations. People just keep waiting around on social devices for the next Trump news item to comment upon. Reddit is a cult of commenting. CIVIC_DUTY_WE_PEOPLE to organize FAQ and organize Wiki on serious topics is avoided in favor of scattered anti-Wiki anti-FAQ short-length commenting on different pages as "engagement" to Trump content.
