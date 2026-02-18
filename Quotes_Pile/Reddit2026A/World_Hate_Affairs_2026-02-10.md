@@ -540,4 +540,9 @@ https://old.reddit.com/r/SipsTea/comments/1r7hva7/shia_lebeouf_hanging_out_in_ne
 
 This is United States of America real-world, reality. When there is one person and a mob forms, HATE_HARDER competition programming and teaching comes to the front of mindsets. Aggression is to be met with extra strong aggression. Many USA men are taught in USA to escalate and add hate and power to every hate situation. HATE_FOR_HATE In your face male mocking and hate is what people practice over and over in USA. If you want to understand why Fox News values and Donald Trump's education is the role model parents give their children, study these comments on Reddit. PRIZING_HATE_FURTHERING_HATE
 
+https://old.reddit.com/r/SipsTea/comments/1r7hva7/shia_lebeouf_hanging_out_in_new_orleans/o5xw12n/
+
+South as South can be. New Orleans white men Southern USA. I've spent 7 months there living in the streets in an RV (3 different RV homes, different years).
+
+* "I've seen too much hate to want to hate myself; hate is too great a burden to bear. I've seen it on the faces of too many sheriffs of the South — I've seen hate. In the faces and even the walk of too many Klansmen of the South, **I've seen hate. Hate distorts** the personality. **Hate does something to the soul that causes one to lose his objectivity.** The man **who hates can't think straight**; the man **who hates can't reason right; the man who hates can't see right**; the man who hates can't walk right. And I know now that Jesus is right, that love is the way. And this is why John said, "God is love," so that he who hates does not know God, but he who loves at that moment has the key that opens the door to the meaning of **ultimate reality**." - July 4, 1965 Atlanta, Georgia.
 
