@@ -648,3 +648,7 @@ https://old.reddit.com/r/worldnews/comments/1r845ms/kremlin_threatens_to_deploy_
 https://old.reddit.com/r/SipsTea/comments/1r89dyz/he_cooked/o63dc2l/
 
 5 month Reddit account is most-upvoted top. Asking a "why" question instead of declaring it bad. ANSWER: it draws an audience, which it did right on Reddit.
+
+https://old.reddit.com/r/science/comments/1r89keb/high_iq_men_tend_to_be_less_conservative_than/o63jqqf/
+
+BRAIN_ROT_LEFT_RIGHT_LIB_CON_NAME_AVOIDANCE
