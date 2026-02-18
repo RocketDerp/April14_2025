@@ -686,3 +686,9 @@ https://old.reddit.com/r/LeopardsAteMyFace/comments/1r8bu6e/i_a_gay_maga_have_be
 
 ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING
 
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1r8bu6e/i_a_gay_maga_have_betrayed_my_own_community_i/o63sbia/
+
+CONDITIONED_OPPOSITION predictable. This is a cult of right-wing media for humor. This is a cult of mind-blowing amusement. Surkov won since March 2013. LAUGHTER_THE_BEST_MINDFUCK To understand how Surkov students defeated NATO populations, especially USA, study this attitude.
+
+* “For in the end, he was trying to tell us what afflicted the people in 'Brave New World' was not that they were laughing instead of thinking, but that they did not know what they were laughing about and why they had stopped thinking.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. year 1985. New York University (Trump's home town).
+
