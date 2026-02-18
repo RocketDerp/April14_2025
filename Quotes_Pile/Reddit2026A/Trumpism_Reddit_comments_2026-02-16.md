@@ -626,3 +626,9 @@ https://old.reddit.com/r/UnderReportedNews/comments/1r84t80/the_talarico_for_tex
 
 BRAIN_ROT_SOCIETY_47 - and why are Reddit community members not talking about WikiTribune ? https://en.wikipedia.org/wiki/WikiTribune Halloween 2017 - haunt the big media! MEDIA_WOKE - I mean LOOK at the date and timeframe of creation, **2017 when Trump had been in office for less than a year**. When it was clear that Reddit social media /r/News /r/WorldNews /r/Politics wasn't cutting it (Trump got elected!), too infiltrated, and a world-wide brand "Wiki" was needed for news... but people on Reddit can not seem to appreciate or grasp the goodness of Wiki and FAQ systems on critical important serious topics! Donation-based, revisions/edits logged, multiple people collaborating and refining information...
 
+https://old.reddit.com/r/UnderReportedNews/comments/1r84t80/the_talarico_for_texas_campaign_raised_25_million/o62itl6/
+
+DENIAL_ABOUNDS the rape and conquest of girls, conquest of women, is Trump popularity. SEX_SELLS_SEX_LEADERS - the "October Surprise" (On October 7, 2016 Putin's Birthday) was a full MONTH ahead of elections. Yet, social media did not have a blackout protest against MAGA and Trump movement. SOCIAL_MEDIA_DID_NOT make a world famous blackout or other technique protest against trump in an entire 30 days! The sex topics of Trump's November 8, 2013 private jet trip to Moscow for Miss Universe and the "pussy grabbing" power of **celerity cults** was known and open. https://en.wikipedia.org/wiki/Donald_Trump_Access_Hollywood_tape
+
+Reddit community is not facing up to the CULT issues and teaching CULT DEPROGRAMMING. We don't need more advertising and marketing campaigns that promote fiction manipulation. We need to confront the ADDICTION to TRUMP as a source of sex stimulation media for USA population!
+
