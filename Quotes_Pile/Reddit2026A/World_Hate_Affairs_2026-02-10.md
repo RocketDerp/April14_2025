@@ -597,3 +597,7 @@ https://old.reddit.com/r/PeterExplainsTheJoke/comments/1r7yp3t/petaa/o610b3y/
 February 28, 1954: "Most people can't stand up for their convictions, because the majority of people might not be doing it. See, everybody's not doing it, so it must be wrong. And since everybody is doing it, it must be right. So a sort of numerical interpretation of what's right. But I'm here to say to you this morning that some things are right and some things are wrong. Eternally so, absolutely so. **It's wrong to hate.** It always has been wrong and it always will be wrong. It's wrong in America, it's wrong in Germany, it's wrong in Russia, it's wrong in China. It was wrong in 2000 B.C., and it's wrong in 1954 A.D. It always has been wrong, and it always will be wrong." - Martin Luther King Jr.
 
 "For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the **true becomes false and the false becomes true**. That's what hate does. You can't see right. **The symbol of objectivity** is lost." - Martin Luther King Jr.
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1r7yp3t/petaa/o610f5h/
+
+They why don't people use Reddit to teach the Roma REMEDIAL_MORALITY? Why do people promote hate instead of actually teach and educate nonfiction. Why is adult education not taken serious. The cults of ignorance that are anti-teaching anti-nonfiction.
