@@ -726,3 +726,6 @@ Technology allows predators to organize and use information much more aggressive
 
 Meme mind programming power of elites. And that was published way back in year 2011, the ability billionaires / elites have developed since year 2022 with Large Language Model and image meme generation models (artificial intelligence) is stagger, the wealth **Elon Musk has invested alone in "Woke Mind Virus" manipulation of the population**. SEE_ALSO: https://www.lemonde.fr/en/international/article/2024/08/13/elon-musk-s-ambition-repopulating-the-planet-and-destroying-the-woke-virus_6714239_4.html
 
+https://old.reddit.com/r/politics/comments/1r8dmcm/karoline_leavitt_says_all_truth_social_posts_are/o645csb/
+
+Top-upvoted most popular comment. SATIRE_SARCASM_WASHING to normalize this. Fandom of Trump hangs out on Reddit in competition to wash and clean the minds, brain-wash sane-wash, the situation. This Reddit comment was the most crowd pleasing of the White House media cults.
