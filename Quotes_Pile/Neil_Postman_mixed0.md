@@ -48,3 +48,15 @@ TV sets
 
 “For in the end, he was trying to tell us what afflicted the people in 'Brave New World' was not that they were laughing instead of thinking, but that they did not know what they were laughing about and why they had stopped thinking.” ― Neil Postman, [Amusing Ourselves to Death: Public Discourse in the Age of Show Business. Year 1985. New York University (NYU). Page 163.](https://books.google.com/books?id=zGkhbPEjkRoC&pg=RA1-PA163&dq=%22they+were+laughing+instead+of+thinking,+but+that+they+did+not+know+what+they+were+laughing+about+and+why+they+had+stopped+thinking%22+inauthor:postman&hl=en&newbks=1&newbks_redir=1&sa=X)
 * SEE_ALSO Quoted by Stephen Bertman in year 1998. [Hyperculture: The Human Cost of Speed. Page 142](https://books.google.com/books?id=7DsJUHWQ3BMC&q=%22they+were+laughing+instead+of+thinking,+but+that+they+did+not+know+what+they+were+laughing+about+and+why+they+had+stopped+thinking%22&dq=%22they+were+laughing+instead+of+thinking,+but+that+they+did+not+know+what+they+were+laughing+about+and+why+they+had+stopped+thinking%22&hl=en&newbks=1&newbks_redir=1&printsec=frontcover&sa=X)
+
+&nbsp;
+
+ToDo: https://www.wikiwand.com/en/quotes/Neil_Postman  
+
+* "The key to all fanatical beliefs is that they are self-confirming....(some beliefs are) fanatical not because they are "false", but because they are expressed in such a way that they can never be shown to be false." - Crazy Talk, Stupid Talk : How We Defeat Ourselves by the Way We Talk and What to do About It. year 1976, p. 104
+
+* "There is a difference between rape and seduction, technology can rape a culture or be forced to seduce it." - Neil Postman. "The Conservative Outlook", in Conscientious Objections : Stirring Up Trouble About Language, Technology and Education. year 1988
+
+NEW_OPERA_NAME #TechnologyCanRape    
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mf5g6ryqec2i https://autistics.life/@RoundSparrow/116092400584173294 }
+
