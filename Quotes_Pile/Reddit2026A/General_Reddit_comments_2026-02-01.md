@@ -678,3 +678,7 @@ CAMPBELL: Suffering. Suffering is imperfection, is it not?
 MOYERS: The story of human suffering, striving, living —
 
 CAMPBELL: — and youth coming to knowledge of itself, what it has to go through.
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1r7n9i8/petah_what_do_they_know/o5z1rz6/
+
+People abuse the reporting system as a form of silencing others. Information warfare, trigger the banning systems.
