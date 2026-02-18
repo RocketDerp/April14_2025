@@ -778,3 +778,8 @@ https://old.reddit.com/r/PublicFreakout/comments/1r8alle/i_feel_much_safer_with_
 
 ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING
 
+https://old.reddit.com/r/PublicFreakout/comments/1r8alle/i_feel_much_safer_with_undocumented_individuals/o63owar/
+
+https://old.reddit.com/r/PublicFreakout/comments/1r8alle/i_feel_much_safer_with_undocumented_individuals/o63i1u1/
+
+GULLIBILITY_CRISIS of how billionaires are controlling Reddit.
