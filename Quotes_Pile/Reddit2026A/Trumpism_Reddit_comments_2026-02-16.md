@@ -550,3 +550,7 @@ https://old.reddit.com/r/circled/comments/1r7jubl/talarico_yeah_no_wonder_they_w
 We should have multiple GOOD choices for elections. Something is horrible wrong that people are taught by clergy that there is "team evil" (Satan in South Park at the White House in year 2025 episodes) and "team good", and you should "find your inner desires" and join the team you prefer. What shit bi-polar logic that got us where we are. People actually believe evil leaders like Trump are perfectly acceptable choices. Evil is not a valid choice. Supporting Putin murdering people in Ukraine is not a valid choice. The whole mentality of "there are two and only two sides to every debate" logic is stupid. SEE_ALSO https://GitHub.com/GreatSealUSA/GreatSealUSA_Art/tree/main/TwoAndOnlyTw0
 
 * "For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the **true becomes false and the false becomes true**. That's what hate does. You can't see right. **The symbol of objectivity** is lost." - Martin Luther King Jr
+
+https://old.reddit.com/r/circled/comments/1r7jubl/talarico_yeah_no_wonder_they_wont_let_you_in_tv/o5y2kvb/
+
+MIND_BLOWN_BY how horrific things already are, the cults of hate media.
