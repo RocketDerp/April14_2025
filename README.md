@@ -15,6 +15,8 @@ Thank you. [Love to all](Quotes_Pile/Specific/MLKjr_revolution_of_values.md).
 * "Survival is the second law of life. The first is that we are all one."
 *  - *A Joseph Campbell Companion: Reflections on the Art of Living*, page 37
  
+* "Il avait fait alors une grande démonstration de sa découverte à un Congrès International d'Astronomie. Mais personne ne l'avait cru à cause de son costume. Les grandes personnes sont comme ça." - [published year 1943. Antoine de Saint-Exupéry](/Art/ScreenPlay/Aviator/Little_Prince_Turkish_Discovery.md)
+ 
 &nbsp;
 
 "Being illiterate in the processes of any medium (language) leaves one at the mercy of those who control it. The new media — these new languages — then are among the most important "subjects" to be studied in the interests of survival." - Neil Postman on media ecology
