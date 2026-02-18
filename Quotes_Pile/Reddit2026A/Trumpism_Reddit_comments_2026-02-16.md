@@ -783,3 +783,8 @@ https://old.reddit.com/r/PublicFreakout/comments/1r8alle/i_feel_much_safer_with_
 https://old.reddit.com/r/PublicFreakout/comments/1r8alle/i_feel_much_safer_with_undocumented_individuals/o63i1u1/
 
 GULLIBILITY_CRISIS of how billionaires are controlling Reddit.
+
+https://old.reddit.com/r/PublicFreakout/comments/1r8alle/i_feel_much_safer_with_undocumented_individuals/o64b2qm/
+
+AGGRESSIVE_ESCALATE_HATE_REACT_HARDER_MINDSETS
+
