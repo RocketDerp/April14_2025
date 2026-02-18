@@ -740,3 +740,6 @@ https://old.reddit.com/r/politics/comments/1r8dmcm/karoline_leavitt_says_all_tru
 
 REPEATING_REPEATER "It's like the **4chan presidency**." - HYPER_REAL_PRESIDENT WHITE_HOUSE_HYPER_REAL - Texan Rick Roderick 1993 "And I think that here we get – and, I mean, I guess my politics are showing again – but here we get the phenomenon of Reagan, the hyperreal president." Duke University SEE_ALSO https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
 
+https://old.reddit.com/r/politics/comments/1r8dmcm/karoline_leavitt_says_all_truth_social_posts_are/o646ejw/
+
+6 month Reddit account. BRAIN_ROT_SOCIETY_47
