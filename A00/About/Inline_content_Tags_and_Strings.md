@@ -157,11 +157,3 @@ Surkov won
 ToDo:  
 WHHR   
 
-https://old.reddit.com/r/law/comments/1r83ywj/fbi_witness_states_trump_commerce_secretary/o6258ln/
-
-... Bellevue Washington 1997 on private staff I was hired because of my Telos Federal Systems (Pentagon military information systems) Apprentice background to run the secret messaging systems and asset prep and travel data information. The social power in 1998 was staggering with sports team headlines of purchasing NFL team... ESPN Internet ... Hollywood films. "Vulcan Productions: Formed in 1997 as a film company focusing on independent films and documentaries." DreamWorks SKG. All kinds of Hollywood players / sports stars and connections on that private cruise ships and private jets.
-
-The RECENCY_BIAS on Reddit has completely forgotten the Miss Universe October 8, 2013 Moscow connection. And what Putin is doing with Ukraine children of all genders. https://en.wikipedia.org/wiki/Child_abductions_in_the_Russo-Ukrainian_war Look what billionaires in Russia have been doing to girls: "In 1999 it was reported that **women in Russia earned 43 percent** of what men did." https://en.wikipedia.org/wiki/Mail-order_bride There used to be phrase in USA for that kind of systemic exploitation, "barefoot and pregnant" often associated with Dr. Arthur E. Hertzler. Putin has made it warfare to capture children, sex trade for indoctrination.  
-
-Now that Trump has gone all in with Putin values, MAGA Russian mindsets, MAXIMUM_PUTINIZATION - it must feel even worse to be a young girl or woman in Ukraine and Russia right now! State terrorism and woman bounty. OPERA_A Women... girls... "bounty on my soul"... Putin and Trump.. Putnization. https://www.youtube.com/watch?v=g31PJHmxG6o Million dollars on your soul, girls. 
-520 views  February 15, 2026
