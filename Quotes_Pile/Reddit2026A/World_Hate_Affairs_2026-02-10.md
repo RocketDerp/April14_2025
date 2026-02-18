@@ -566,3 +566,7 @@ February 28, 1954: "Most people can't stand up for their convictions, because th
 
 "For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the **true becomes false and the false becomes true**. That's what hate does. You can't see right. **The symbol of objectivity** is lost." - Martin Luther King Jr.
 
+https://old.reddit.com/r/circled/comments/1r7jubl/talarico_yeah_no_wonder_they_wont_let_you_in_tv/o5y32bb/
+
+Putin has been leading the world wide hate, organized hate, since year 2013. SEE_ALSO December 20, 2013 https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/ "**Vladimir Putin is calling on the conservatives of the world to unite** — behind him."  - Trump and MAGA are following Putin's hate leadership. DENIAL_ABOUNDS Trump trusts Putin, people trust Trump as a good source of entertainment and comedy. It is incredibly alarming that people do not see the danger and are not doing everything they can to promote Dr. Bandy X Lee's mental health leadership regarding Donald Trump and MAGA. People keep avoiding promoting and quoting Dr. Lee's essential public education.
+
