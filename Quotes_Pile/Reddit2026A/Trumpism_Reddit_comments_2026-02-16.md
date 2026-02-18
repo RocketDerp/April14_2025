@@ -539,3 +539,6 @@ https://old.reddit.com/r/science/comments/1r7h4hr/trump_support_in_2024_linked_t
 
 Science technology lovers don't want to concern themselves human goodness such as ending wars or compassion for people who have no food or health care. The concern of science /r/Science technology to produce new plastics for toys, new science for entertainment machines. See how this message promotes hate when humanism and understanding of human conflicts is a serious topic. TECH_LUST_TECH_LOVERS
 
+https://old.reddit.com/r/science/comments/1r7h4hr/trump_support_in_2024_linked_to_white_americans/o5yhab4/
+
+ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING
