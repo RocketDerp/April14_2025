@@ -451,3 +451,11 @@ My comment. Today I googled the quote and ran across a Reddit hit on Google Sear
 That comment was not long after that I contacted the Pentagon (first tine in my life) in 2015 via telephone about the Russian Saint Petersburg IRA activities on Reddit. Talked to Samantha. Monday, August 17, 2015 afternoon.
 
 Just hours ago today I created this GitHub repository / project around that quote. https://HitHub.com/GreatSealUSA/Pale_Blue_Dot_ARG
+
+https://old.reddit.com/r/help/comments/1mbft1f/this_account_will_be_baed_in_less_than_24_hours/n5lvecm/
+
+https://old.reddit.com/r/help/comments/1mbft1f/this_account_will_be_baed_in_less_than_24_hours/n5md0tr/
+
+https://old.reddit.com/r/help/comments/1mbft1f/this_account_will_be_baed_in_less_than_24_hours/n5m3fls/
+
+https://old.reddit.com/r/help/comments/1mbft1f/this_account_will_be_baed_in_less_than_24_hours/n6b0tbi/
