@@ -581,3 +581,7 @@ https://old.reddit.com/r/therewasanattempt/comments/1r7mo36/to_broadcast_an_inte
 
 https://old.reddit.com/r/therewasanattempt/comments/1r7mo36/to_broadcast_an_interview_to_the_public_with_this/o5yj4gf/
 
+https://old.reddit.com/r/politics/comments/1r7qi87/child_protective_services_called_after_parents/o5zhl9r/
+
+https://old.reddit.com/r/politics/comments/1r7qi87/child_protective_services_called_after_parents/o5zkord/
+
