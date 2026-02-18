@@ -564,3 +564,12 @@ BIBLE_LITERACY crises. Why are Bluesky and Reddit users not urgently using socia
 https://old.reddit.com/r/politics/comments/1r7bud7/bombshell_epstein_file_reveals_fbi_interviewed/o5w8wjm/
 
 COMPREHENDING_UNDERSTANDING "I just don’t understand this. How was someone with these kinds of terrifying allegations able to become elected president?" ... ANSWER: media cults. Twitter-thinking. Start with study of Neil Postman's reasonable length book, 184 pages, from year 1985. https://en.wikipedia.org/wiki/Amusing_Ourselves_to_Death Even reading just the first 50 or 60 pages is highly informative of what to look for. Then, study what happened July 6, 2011 when an old white Corporate Executive actor went all in with 140 character high-speed Twitter electric messaging system. https://theoutline.com/post/2445/trump-s-first-real-tweet-was-on-july-6-2011 - and then Russia joined in the Twitter mania in March 2013 with the "Internet Research Agency".
+
+https://old.reddit.com/r/politics/comments/1r7bud7/bombshell_epstein_file_reveals_fbi_interviewed/o5wfop4/
+
+Everything is Media Ecology. 
+
+People in rural areas stuck with television and game consoles and considered computers "nerdy". Then in year 2007 the Apple iPhone changed everything. The iPhone one in the middle of 2007 lit the culture on fire. Every aspect of society was changed top to bottom. July 6, 2011 when Donald Trump, an old white Corporate Executive actor went all in with 140 character high-speed Twitter electric messaging system. Apple iPhone 4 Release Date: June 24, 2010 when Trump was King of Pop Culture media.  https://theoutline.com/post/2445/trump-s-first-real-tweet-was-on-july-6-2011
+
+Next in March 2013, the Russian military invaded USA media systems "Putin Media Invasion" I sometimes call it. The rural less-educated Republicans didn't stand a chance against Surkov students. SEE_ALSO https://www.BuzzFeedNews.com/article/maxseddon/documents-show-how-russias-troll-army-hit-america published July 2, year 2014. Surkov won, NATO lost, hearts and minds have been conditioned by Russia to self-harm USA. Especially gender topics and wrecking women. All around anti-goodness mindsets. MAXIMUM_PUTINIZATION
+
