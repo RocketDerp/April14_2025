@@ -677,3 +677,7 @@ STAND_UP_FOR_THE_BIG_GUY
 https://old.reddit.com/r/International/comments/1r8cesd/let_that_sink_in/o642hk5/
 
 9 month Reddit account.
+
+https://old.reddit.com/r/International/comments/1r8cesd/let_that_sink_in/o64347o/
+
+Scattered all over Reddit in a disorganized reactionary explosive way, then 48 hours later everyone is on to the next topic. Drowning important topics. The anti-FAQ anti-WiKi anti-organizing non-refinement of Reddit culture is what has made Trump bubble to the top of society leadership. ANTI_WIKI_ANTI_FAQ
