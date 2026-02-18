@@ -652,3 +652,7 @@ https://old.reddit.com/r/SipsTea/comments/1r89dyz/he_cooked/o63dc2l/
 https://old.reddit.com/r/science/comments/1r89keb/high_iq_men_tend_to_be_less_conservative_than/o63jqqf/
 
 BRAIN_ROT_LEFT_RIGHT_LIB_CON_NAME_AVOIDANCE
+
+https://old.reddit.com/r/HolyShitHistory/comments/1r86z00/during_the_199296_siege_of_sarajevo_wealthy/o62r0qv/
+
+NOT_GOOD_ENOUGH Dr. Martin Luther King Jr for society to promote and keep repeating over and over, asserting again and again: The 1954 Equation https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Martin_Luther_King_Jr_quotes0.md
