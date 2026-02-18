@@ -9,7 +9,11 @@ https://old.Reddit.com/r/BeAmazed/comments/1r83jy4/apparently_a_turkish_man_inve
 
 https://gutenberg.net.au/ebooks03/0300771h.html  
 
+NEW_OPERA_NAME: #SuperShallow    
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mf5kqgqrqc2r https://autistics.life/@RoundSparrow/116092711111443966 }   
+
 &nbsp;
 
-Now, maybe he had no interest in publicity or news (Troubadours year 1210) was not a profession. Information systems were not much a concern, and people created technology all the time that we never shared far and wide. That's the lesson that The Little Price, published in year 1943, is passing down to all of us / We The People / human species of Pale Blue Dot.
+&nbsp;
 
+Now, maybe he (the man in year 1551 who created the steam engine) had no interest in publicity or news sharing (Troubadours year 1210) was not a well oiled profession. Information systems were not much a concern, and people created technology all the time that we never shared far and wide. That's the lesson that The Little Price, published in year 1943, is passing down to all of us / We The People / human species of Pale Blue Dot.
