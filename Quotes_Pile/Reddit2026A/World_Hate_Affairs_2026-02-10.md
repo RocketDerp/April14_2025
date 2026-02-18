@@ -615,3 +615,12 @@ SURKOVIAN_ONION_EATING Reddit comment creator thinks The White House is not an o
 * January 24, 2025 — "Ukrainian leader Volodymyr Zelensky on Friday, January 24, warned that his Russian counterpart **Vladimir Putin wanted to "manipulate" Donald Trump**." https://www.lemonde.fr/en/international/article/2025/01/24/zelensky-warns-putin-wants-to-manipulate-trump-on-ukraine_6737399_4.html
 
 But the USA Trump fandom on Reddit drowns out serious nonfiction learning by spending free time and spare time creating low-effort commenting as "media engagement" to Trump.
+
+https://old.reddit.com/r/worldnews/comments/1r7v4k3/zelenskyy_unfair_that_trump_publicly_urges/o60ka79/
+
+ROUTINE_NO_NEED_TO_RESIST_OR_ORGANIZE_INTELLECTUAL_UPRISING
+
+https://old.reddit.com/r/worldnews/comments/1r7v4k3/zelenskyy_unfair_that_trump_publicly_urges/o60da5e/
+
+Why are Reddit community members making low-effort comments instead of organizing an intellectual resistance? REDDIT_BLACKOUT Why are people on Reddit not promoting, quoting, repeating Dr. Bandy X Lee's nonfiction public education on Trump's mental health and DANGER to society over and over? ANSWER: Reddit is a cult of Trump and is not making serious life-saving effort to organize information and stay focused on what is important. Because the cult symptom is attraction to the actor's performance... to more Trump content, not removing Trump.
+
