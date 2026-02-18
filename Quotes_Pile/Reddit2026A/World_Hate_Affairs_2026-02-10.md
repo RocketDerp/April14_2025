@@ -535,3 +535,9 @@ https://old.reddit.com/r/worldnews/comments/1r7huaj/we_simply_dont_have_any_left
 https://old.reddit.com/r/worldnews/comments/1r7huaj/we_simply_dont_have_any_left_germany_has_run_out/o5xypbk/
 
 Jokes and more jokes. Brain rot jokers. People who claim they care about Epstein harm to girls ignore what Putin is doing to girls. https://en.wikipedia.org/wiki/Child_abductions_in_the_Russo-Ukrainian_war Well, people care, to joke when a news article appears on their touch device notifications. They have the joke mindsets constantly running. IGNORANCE_CELEBRATIONS - as the anti-FAQ anti-Wiki addictions to commenting are how Surkov students won so many hearts and minds to turn all serious topics into a source of amusement.
+
+https://old.reddit.com/r/SipsTea/comments/1r7hva7/shia_lebeouf_hanging_out_in_new_orleans/o5xz2li/
+
+This is United States of America real-world, reality. When there is one person and a mob forms, HATE_HARDER competition programming and teaching comes to the front of mindsets. Aggression is to be met with extra strong aggression. Many USA men are taught in USA to escalate and add hate and power to every hate situation. HATE_FOR_HATE In your face male mocking and hate is what people practice over and over in USA. If you want to understand why Fox News values and Donald Trump's education is the role model parents give their children, study these comments on Reddit. PRIZING_HATE_FURTHERING_HATE
+
+
