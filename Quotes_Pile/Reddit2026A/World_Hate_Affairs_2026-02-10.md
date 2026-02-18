@@ -605,3 +605,13 @@ They why don't people use Reddit to teach the Roma REMEDIAL_MORALITY? Why do peo
 https://old.reddit.com/r/worldnews/comments/1r7v4k3/zelenskyy_unfair_that_trump_publicly_urges/o60buo3/
 
 Top-upvoted popular comment. No dates specified, no quotes. ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING
+
+https://old.reddit.com/r/worldnews/comments/1r7v4k3/zelenskyy_unfair_that_trump_publicly_urges/o60apoh/
+
+SURKOVIAN_ONION_EATING Reddit comment creator thinks The White House is not an organized group following Putin's Surkov governing techniques. Gullible Reddit users who crack jokes and are unable to engage nonfiction learning on the topic. 
+
+* August 11, 2025 — "Ukraine fears that the Kremlin will try to convince President Trump at U.S.-Russian talks in Alaska that Ukraine, not Russia, is the obstacle..." https://www.nytimes.com/2025/08/11/world/europe/ukraine-russia-putin-zelensky-alaska-talks.html
+
+* January 24, 2025 — "Ukrainian leader Volodymyr Zelensky on Friday, January 24, warned that his Russian counterpart **Vladimir Putin wanted to "manipulate" Donald Trump**." https://www.lemonde.fr/en/international/article/2025/01/24/zelensky-warns-putin-wants-to-manipulate-trump-on-ukraine_6737399_4.html
+
+But the USA Trump fandom on Reddit drowns out serious nonfiction learning by spending free time and spare time creating low-effort commenting as "media engagement" to Trump.
