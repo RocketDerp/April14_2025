@@ -603,3 +603,11 @@ https://old.reddit.com/r/therewasanattempt/comments/1r81uwt/to_not_get_owned_by_
 
 WHEN_THE_PEOPLE_HAVE_LOST_THE_ABILITY Fiction outsells nonfiction.
 
+https://old.reddit.com/r/news/comments/1r7wxqh/epstein_files_suggest_acts_that_may_amount_to/o60wb4k/
+
+DENIAL_ABOUNDS
+
+NEW_OPERA_NAME: #WatchingAmerica #EveryoneCanSee    
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mf5dnyamtk2d https://autistics.life/@RoundSparrow/116092223445485613 }
+
+
