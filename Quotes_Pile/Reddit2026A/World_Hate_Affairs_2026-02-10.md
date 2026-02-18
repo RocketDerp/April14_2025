@@ -583,3 +583,9 @@ https://old.reddit.com/r/news/comments/1r7wxqh/epstein_files_suggest_acts_that_m
 PROMOTING_IGNORANCE_WORKS_PLAYING_DUMB_MOCKING  And it works. Reddit eats it up. Commenting upon it is not resisting the "playing dumb" that Putin and Trump do. Surkov governing works. And We The People on Reddit eat it up with reacting every time. Decades prove these tactics work. The anti-intellectualism on Reddit commenting, the avoidance of nonfiction books and paper and serious quotes, it works for Trump administration.
 
 * "Russia-watcher Catherine Fitzpatrick, who documents Kremlin disinformation for InterpreterMag . com, says just as Moscow uses vague Internet laws to encourage self-censorship, trolls inhibit informed debate by using **crude dialogue to change "the climate of discussion."** "If you show up at The Washington Post or New Republic sites, where there's an article that's critical of Russia, and you see that **there are 200 comments that sound like they were written by 12-year-olds**, then you just don't bother to comment," she says.  "You don't participate. It's a way of just **driving discussion away** completely," she adds. "Those **kinds of tactics are meant to stop democratic debate**, and they work." - **year 2014** https://www.theatlantic.com/international/archive/2014/08/the-kremlins-troll-army/375932/
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1r7yp3t/petaa/o60z62x/
+
+OUT_GROUP_HATE is a global problem. Eveyrone keeps ignoring Malala's October 8, 2013 book and how it relates to Palestine one decade later on October 7. Anti-intellectual in seeing it as a global problem.
+
+
