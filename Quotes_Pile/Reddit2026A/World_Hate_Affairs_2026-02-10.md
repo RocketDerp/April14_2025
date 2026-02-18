@@ -574,3 +574,7 @@ https://old.reddit.com/r/news/comments/1r7wxqh/epstein_files_suggest_acts_that_m
 
 So many people know about the Putin and Trump buddy relationship. And that Putin is killing people in Ukraine and abducting children on an industrial scale. EPSTEIN_BUT_NOT_PUTIN_UKRAINE_CHILDREN_NOT_MALALA - Putin and Trump are in power and ICE is pulling people in dramatic aggressive ways. Reddit commenting section clearly sees this... yet no REDDIT blackout. No Reddit FAQ, no Reddit Wiki of removing Trump from office. Reddit community ignores nonfiction books and allows a clear LIAR as leader,open deception White House. Reddit commenting community knows the deception but does not organize and promote Dr. Bandy X Lee as the center of attention (nonfiction books on shelf since year 2017).
 
+https://old.reddit.com/r/news/comments/1r7wxqh/epstein_files_suggest_acts_that_may_amount_to/o60zmvj/
+
+That's what people do at school shootings, shoot at government schools in USA. Timothy McVeigh took on government. It's called terrorism. I lived in Algeria, Islamic terrorist nation studying this. NOT_GOOD_ENOUGH You promote Malala, you do cult deprogramming, you promote MLK Jr, you do cult programming. Acts of terrorism and school shootings people think is a fun video game. It is not. Hate is not enjoyable. Fake joy. Support Dr. Bandy X Lee and make her public education constant topic until people see the dangers of mob mentality and faith in hate.
+
