@@ -550,4 +550,7 @@ https://old.reddit.com/r/SipsTea/comments/1r7hva7/shia_lebeouf_hanging_out_in_ne
 
 Predatory male aggression isn't just for billionaires like Musk, Trump, Murdoch. It's programmed into the USA population. Reactionary mindsets. AGGRESSIVE_ESCALATE_HATE_REACT_HARDER_MINDSETS People get a whiff of mob power and they become aggressive like the police in USA.
 
+https://old.reddit.com/r/SipsTea/comments/1r7hva7/shia_lebeouf_hanging_out_in_new_orleans/o5xzejb/
+
+Reddit fandom of violence wants to see even more video of ass-kicking. AGGRESSIVE_ESCALATE_HATE_REACT_HARDER_MINDSETS
 
