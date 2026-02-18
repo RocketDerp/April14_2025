@@ -844,3 +844,12 @@ https://old.reddit.com/r/funnyvideos/comments/1qvz0pr/comedy_gold/
 Tower of Babel first names.
 
 https://old.reddit.com/r/CuratedTumblr/comments/1qw5cee/the_wait_you_can_see_realization_is_the_funniest/
+
+&nbsp;
+
+Singsong passport   
+https://old.reddit.com/r/ireland/comments/1r74vp3/mistake_in_the_irish_passport/
+
+&nbsp;
+
+https://old.reddit.com/r/HistoryMemes/comments/1r7zlwl/haha_car_go_boom/

@@ -364,3 +364,253 @@ https://old.reddit.com/r/politics/comments/1r743qw/stephen_colbert_says_cbs_bloc
 
 No off-Reddit URL, no book title, no author name, no quotes from nonfiction learning. ANTI_WIKI_ANTI_FAQ
 
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1r75tmk/cbs_is_completely_compromised/o5v13hm/
+
+<img width="1229" height="1373" alt="image" src="https://github.com/user-attachments/assets/fdc19363-04b0-4d06-8ae9-a9088fdf533b" />
+
+ANSWER (part 1): Yes, WE, We The People can. We The People have watched Donald Trump consume and eat Twitter and digest Tweet-values like no other executive businessman. July 6, 2011 is a date we (The People) should all memorize and cite together. https://theoutline.com/post/2445/trump-s-first-real-tweet-was-on-july-6-2011  No other corporate America seller / CEO man saw the potential for an old white guy Father Daddy Sky Cloud Computing ("Allah" in the sky, CEO الله symbol / status symbol) symbolism like Donald Trump. DONALD_TRUMP_SUPERSTAR MAXIMUM_PUTINIZATION Trump has bent every media system and medium to make him the center of society. People can not grasp that a 79 year old man is running circles around the smart-ass smart-aleck snarky influencers and media practitioners, even Stephen Colbert, has had his ass handed to him. RELIGION_CULTS_MONOMYTH_PROGRAMMING
+
+* REPEATING_REPEATER Stephen Colbert should have burned his popularity and social reputation to the ground repeating his Star Wars Day (documented by Google/YouTube) upload Star Wars Day 2019. Repeating it every chance he could in year 2024 election. https://www.youtube.com/watch?v=Ju7Yt0LMiVk REPEATING_REPEATER Especially with RFK Jr and Trump paired up, EVERY DAY he should have been promoting this video over and over and over until every person in USA can quote the 3 minute 43 second video from STAR WARS DAY 2019.
+
+ANSWER (part 2): BRAIN_ROT_SOCIETY_47. The most critical problem is back in part 1 answer. Twitter. Trump's July 6, 2011. We need to STOP the hate. AMERICANS_HATE_AMERICANS We need to face our deepest faith. Our cult of technology. Stop blaming each other. Stop blaming MAGA, stop blaming Republicans, stop blaming Trump! CALL_FOR_MENTAL_HEALTH_NATIONAL_RESCUE Rescue everyone. Admit we built a bridge too far, 140 characters. https://www.FastCompany.com/3060165/a-brief-history-of-twitters-140-character-limit - blame our parenting, blame the rise on Trump on a mental pattern induced by 140 characters. Then blame August 24, 2018 story not being taken seriously when COVID-19 came around. This link should be memorized. August 24, 2018: https://www.bbc.com/news/world-us-canada-45294192 
+
+ANSWER (part 3): REAL_PEOPLE_ADMIT We The People lost touch with reality. Admit we are human. Admit we let high-speed messaging blow our minds. Become world wide web famous for teaching Marshall McLuhan, Neil Postman. CALL_TO_INTELLECTUAL_ACTION_PLAN Admit mistakes, start educating. Blame rural people for never having heard of Neil Postman. Address our Fox News problems, etc.
+
+We The People lost touch with reality. OPERA_A REPEAT_TRACK MUSIC_MUSIC_MUSIC YOU_CAN_PASS https://www.youtube.com/watch?v=XA-xjRsY71w We gotta feed it right, We The People. There is no danger we can go too far being who we are, diversity! They think We The People love is just a growing pain! Their lips are telling lies, only reality is real! Real people admit reality. Admit Twitter 140 characters blew us into unreality! We take the pressure and we throw away Conventionality and Conservative values belongs to yesterday. Start believing now in Year 250 from 1776... 
+
+OPERA_B Saturday July 4, 2026 https://www.youtube.com/watch?v=kqcwKnjMffw REPEAT_TRACK Listen Children: All Is Not Lost! Oh No!! Every day is the 4th of July **Saturday** 2026. Just waiting for Us All. So if you want it, really want it... can you dig it?
+
+NEW_OPERA_NAME DemiseOf DirectionOf (see social posts).
+
+Social post { https://autistics.life/@RoundSparrow/116086501381731138 https://bsky.app/profile/roundsparrow.bsky.social/post/3mf2sgl2jrk2y https://MidWest.Social/post/43573234 }
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1r75tmk/cbs_is_completely_compromised/o5v0z9o/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1r75tmk/cbs_is_completely_compromised/o5v15xl/
+
+Simple-think short-message Twitter-length Tweet-thinking. ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING  This Reddit comment serves to normalize the situation and just do "news reporting" of events as a detached person. Reddit itself is state-manipulated media. https://www.bbc.com/news/technology-43301643 Surkov won since March 2013 via Reddit.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1r75tmk/cbs_is_completely_compromised/o5v782e/
+
+CONTEXT_ASSERTION: Free speech topics, CBS media television media. Yes, since 1985 when this was published and articulated what had *already* happened with Second Term Republican Entertainer POTUS.
+
+* "For all his perspicacity, George Orwell would have been stymied by this situation; there is nothing “Orwellian” about it. The President does not have the press under his thumb. The New York Times and The Washington Post are not Pravda; the Associated Press is not Tass. And there is no Newspeak here. Lies have not been defined as truth nor truth as lies. **All that has happened is that the public has adjusted to incoherence and been amused** into indifference. Which is why Aldous Huxley would not in the least be surprised by the story. Indeed, he prophesied its coming. He believed that it is far more likely that the Western democracies will dance and dream themselves into oblivion than march into it, single file and manacled. Huxley grasped, as Orwell did not, that it is not necessary to conceal anything from a public insensible to contradiction and narcoticized by **tech**nological diversions. Although Huxley did not specify that television would be our main line to the drug, he would have no difficulty accepting Robert MacNeil’s observation that “Television is the soma of Aldous Huxley’s Brave New World.” Big Brother turns out to be Howdy Doody." ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, **year 1985**, page 111
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1r75tmk/cbs_is_completely_compromised/o5v27sw/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1r75tmk/cbs_is_completely_compromised/o5v2vuq/
+
+"not coming back" messaging to Reddit audience. GIVE_UP_SURRENDER on intellectual protest and nonfiction asserts.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1r75tmk/cbs_is_completely_compromised/o5v2wa0/
+
+HYPER_SIMPLE_TRIVIALIZE_BANAL_SELF_ONLY_CONCERN This Reddit user thinks this is world news because of their own personal preference in TV channels. Simplistic Twitter-thinking short-message mindsets, as programmed into Reddit audience by Elon Musk Twitter owner. No concern for the people brainwashed by CBS and Elon Musk, just give simple answers without any underlying understanding or comprehension as to what is going on at the forest levels, just move one tree and don't address the mass dehumanization ongoing via media networks and media machines.
+
+https://old.reddit.com/r/clevercomebacks/comments/1r75y2i/this_kid_completely_broke_maga/o5v9dfu/
+
+BRAIN_ROT_LEFT_RIGHT_LIB_CON_NAME_AVOIDANCE I witness so many of these back and forth "lib vs. con", "left vs. right" discussions. Fox News ALONE has been wrecking and poisoning any specific meaning of these words. Fox News conservatives are not technology conservatives, the USA conservatives would be the Amish I grew up and worked next to in Grabill, Indiana. Fox News HDTV wealth worship. ASSERTION: people need to focus on fiction vs. nonfiction. Trumpism is storytelling fiction-based leadership, Bible is storytelling fiction-based leadership. Anti-science. AND NAME A LIST. Don't just say "leftists", "right-wing". PLEASE oh God, NAME A NATION AND TIME PERIOD. If you want year 2030 USA to be like Japan 1980, then SAY THAT.
+
+Trumpism right now seems like it wants to be Russia Putinism and Pakistan Taliban 2008 in many policies and attitude changes. Please on please communicate like this by NAMING a place and time period or even a fiction like "Star Trek The Next Generation" values. The "left" in Pakistan is nothing like the "left" in Canada.
+
+https://old.reddit.com/r/clevercomebacks/comments/1r75y2i/this_kid_completely_broke_maga/o5v880e/
+
+These children in school for children have lived with parents who made Donald  Trump a role model. Trump is a role model for businessman, success, media star, dialog, religion, everything! These kids need to be EDUCATED. Being ICE_FANDOM is a result of the most powerful mental manipulation ever created by mankind, Cambridge Analytical. FIST FIGHTING just creates TERRORISM, it does not address the propaganda and billionaire ICE marketing and advertising systems! **TERRORISM VIOLENCE is what we are breeding / seeding / teaching here on media** by not aggressively and strongly addressing the CULT STREET-GANG PARENTING behaviors and CULT PROGRAMMING by billionaires! Musk Murdoch Trump programmed mob mentality is exactly WHAT we should be resisting! RESISTING_WHAT_EXACTLY
+
+Parents have indoctrinated these children into media street gangs, Fox News HDTV media cultists. HAZING_RITUAL Stop cheering on violence and start cheering on CULT DEPROGRAMMING against what the doctorates at Cambridge Analytica did to the parents and school staff since year 2013!
+
+* "What Cambridge Analytica observed was that when respondents were angry, their *need for complete and rational explanations was also significantly reduced*. In particular, anger put people in a frame of mind in which they were more indiscriminately punitive, particularly to out-groups. They would also underestimate the risk of negative outcomes. This led Cambridge Analytica to discover that even if a hypothetical trade war with China or Mexico meant the loss of American jobs and profits, **people primed with anger would tolerate that domestic economic damage if it meant they could use a trade war to punish immigrant groups** and urban liberals.”
+― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the **Plot to Break** America, page 128, **year 2019**
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1r761yw/ford_shuts_down_58_billion_factory_just_months/o5v2nq2/
+
+11 month Reddit account. This is the post submitter. Made front page of /r/All
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1r761yw/ford_shuts_down_58_billion_factory_just_months/o5va3lz/
+
+Topics of comment: FAITH_IN_HATE FAITH_IN_MOCKERY 
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1r761yw/ford_shuts_down_58_billion_factory_just_months/o5vrnl7/
+
+ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING Just mocking as usual. MAGA calls Reddit "libtards", and Reddit community "LOL" as Americans "have their face eaten" on this community subreddit /r/LeopardsAteMyFace - Death cults mock the other death cults in a race to the bottom of hate with name-calling and mockery all the way. Surkov won since March 2013. FEEDBACK_LOOP_MEDIA_CULTS_PLATFORM_TO_PLATFORM_MOCKERY_USA
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1r761yw/ford_shuts_down_58_billion_factory_just_months/o5v2wti/
+
+RESISTING_WHAT_EXACTLY Trump convinced MAGA to mock Reddit "libtards" and people on Reddit are not resisting the anti-intellectual programming. This is not resisting what the billionaires have programmed into the minds using Cambridge Analytica and others. 
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1r761yw/ford_shuts_down_58_billion_factory_just_months/o5v63ih/
+
+ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING This Reddit comment is doing the Reddit cult routine of commenting itself. The cult describes the massive decline of the USA society and the causes, but has no concern to turn it around and resist intellectually. People jump on the bandwagon... adopting the very mechanisms that the billionaires used to first cult capture MAGA... it is cults all around. 
+
+* "Americans, like human beings everywhere, believe many things that are obviously untrue. Their most destructive untruth is that it is very easy for any American to make money. They will not acknowledge how in fact hard money is to come by, and, therefore, those who have no money blame and blame and blame themselves. This inward blame has been a treasure for the rich and powerful, who have had to do less for their poor, publicly and privately, than any other ruling class since, say Napoleonic times. Many novelties have come from America. The most startling of these, a thing without precedent, is a mass of undignified poor. They do not love one another because they do not love themselves.” ― Kurt Vonnegut, Slaughterhouse-Five. The Children's Crusade: A Duty-Dance with Death. Year 1969.
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1r761yw/ford_shuts_down_58_billion_factory_just_months/o5v8ko5/
+
+Comment topic: COMPREHENDING_UNDERSTANDING - alas, it's just more commenting. The Anti-FAQ anti-organizing, anti-Wiki values of Reddit is to want the problems to continue, not to organize and address the crisis and save lives and save the world from Donald Trump and Putin's plans of mass dehumanization. It's Reddit commenting "engagement" to make these, but there is no rescue or defense system being created. ROUTINE_NO_NEED_TO_RESIST_OR_ORGANIZE_INTELLECTUAL_UPRISING
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1r761yw/ford_shuts_down_58_billion_factory_just_months/o5v4mvu/
+
+OUT_GROUP_HATE exactly as intended. Surkov won since March 2013.
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1r761yw/ford_shuts_down_58_billion_factory_just_months/o5v59f0/
+
+Trivializing the adult education crisis. Trivializing what Fox News HDTV has done to Reddit minds and Ford employee minds. The most powerful media systems ever created by mankind, USA is ground zero for electronic high speed media, have wrecked the population. Reddit users are programmed by the billionaires to respond in this way. There are no free thinkers on Reddit citing Neil Postman and Marshall McLuhan and calling for an uprising. CONDITIONED_OPPOSITION
+
+* "**How teach again, however, what has been taught correctly and incorrectly learned a thousand thousand times, throughout the millenniums of mankind’s prudent folly?** That is the hero’s ultimate difficult task. How render back into light-world language the speech-defying pronouncements of the dark? How represent on a two-dimensional surface a three-dimensional form, or in a three-dimensional image a multi-dimensional meaning?" - page 317. year 1949. Chapter: "4. The Crossing of the Return Threshold"
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1r761yw/ford_shuts_down_58_billion_factory_just_months/o5vd115/
+
+"How many of these terrible stories concerning lost jobs and closing facilities will we need to listen to before MAGA granny/grandpa figure out their children are right. Trump is responsible." ANSWER: DEFLECTION_FROM_BILLIONAIRES_AND_PUTINISM - this message thinks Trump did this alone. Trump is the front man. Reddit is a hate-watching cult. Hate upon Ford employees as programmed by the IRA. REDDIT_HIVE_MIND_FORGOT Reddit has forgotten: "Hillary Clinton: Putin Would 'Rather Have a Puppet as President' | NBC News" "Break up NATO". 7,675 views October 19, 2016 https://www.youtube.com/watch?v=Cq8f8oU9wYs
+
+Reddit audience / Reddit app users have extreme information overload symptoms and chronic RECENCY_BIAS abounds. Reddit cult members of hate suffer from BLACKOUT_MEMORY_TIME_LOSS - and do not recognize their are part of the defeated by Russia.
+
+OPERA_A REPEAT_TRACK Join and rescue the USA! Ford and MAGA are the lost hearts and mind, Surkov won. "Welcome To The Black Parade" "Savior of the beaten" by Kremlin. The damned by Putin. The non-believers in goodness. The plans they have made... https://www.youtube.com/watch?v=RRKJiM9Njr8 406,358,253 views October 26, 2009 
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1r79z36/non_of_us_knew_a_threads_post/o5vw56n/
+
+Reddit cult is deflecting from reality. Twitter-length messages on Reddit to declare that all teaching, learning, news issues, the Fox News HDTV cult is simple and trivial. DEFLECTION_FROM_BILLIONAIRES_AND_PUTINISM Has this Reddit user never encountered family or co-workers who are cultists to HDTV Fox News network from Rupert Murdoch? Does this Reddit user in the tiny-short Elon Musk programmed Twitter-thinking reactionary mindsets not realize the history of world religions and how people believe science fiction stories are actual reality? That Jesus really is in outer space? Just because a poetry fiction story is so well written.
+
+This is what the cult does on Reddit day in and day out since June 16, 2015 - over a decade of ignoring the reality of MAGA as a fiction storytelling cult. Reddit is a cult of psychological denial that MAGA needs mental health support and rescue. Dr. Bandy X Lee's nonfiction book published October 3, 2017 with 27 contributors is ignored by the ignorant-seeking Reddit community. 
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1r79z36/non_of_us_knew_a_threads_post/o5vw34a/
+
+2 month Reddit account that creates messages encouraging the continuation of sports mentality, Twitter-length Tweet-thinking mindsets as programmed by Musk and other billionaires into Reddit cult minds. ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1r79z36/non_of_us_knew_a_threads_post/o5vvypf/
+
+Actor Donald Trump leads a nation with Reality TV mockery of governing, and Reddit fandom of Trump adds more mocking. This is the Reddit anti-intellectual fandom that is glad ignorance in society provides constant entertainment via high-speed cloud computing provided by billionaires. FAITH_IN_MOCKERY
+
+https://old.reddit.com/r/ImmigrationPathways/comments/1r7h32h/this_kid_completely_broke_maga/o5xjhh1/
+
+https://old.reddit.com/r/ImmigrationPathways/comments/1r7h32h/this_kid_completely_broke_maga/o5xijfn/
+
+1 day Reddit account
+
+https://old.reddit.com/r/ImmigrationPathways/comments/1r7h32h/this_kid_completely_broke_maga/o5xregc/
+
+1 day Reddit account, see replies.
+
+https://old.reddit.com/r/ImmigrationPathways/comments/1r7h32h/this_kid_completely_broke_maga/o5xlye1/
+
+"LOL" FAN_PASSION_MAGA_VALUES - enthusiastic machine media consumer who thinks it is great that fiction leadership of Donald Trump and Putin is at every level of society.
+
+https://old.reddit.com/r/ImmigrationPathways/comments/1r7h32h/this_kid_completely_broke_maga/o5xkgns/
+
+The mob mentality on Reddit, the group thinking, the avoidance of Dr. Bandy X Lee's nonfiction public education with 27 mental health experts is alarming. People are NOT calling for Trump's removal, they are waiting around for violent ICE related video recordings to cheer on as a fandom. ICE_FANDOM It is the anti-intellectual every day all day behaviors of the population that is my concern with this Git project. THIS_GITHUB the nation is lashing out at Canada, lashing at at NATO, lashing out at Greenland. SHARON_STONE_WAS_CORRECT This brain rot crisis and abandonment of serious nonfiction books and giving Donald Trump as an education role model of pro-violence aggressive male behavior is sickening. Children are being harmed because people can't face their addiction to high-speed information delivery.
+
+https://old.reddit.com/r/ImmigrationPathways/comments/1r7h32h/this_kid_completely_broke_maga/o5xceec/
+
+Exactly. 1 day Reddit account. Shooting fish in a barrel how predictable the routine has become after nearly 11 years of never-ending mocking Trump / MAGA. Surkov won since March 2013.
+
+https://old.reddit.com/r/ImmigrationPathways/comments/1r7h32h/this_kid_completely_broke_maga/o5xnnlu/
+
+"If I could denounce my citizenship and find a new country to live in with my child. I definitely would. I am ashamed to call myself an american at this point, especially living in the country that we have now with the leaders that we do." - another Reddit message to GIVE_UP_SURRENDER
+
+I am ashamed how anti-intellectual society has become. All information systems are trashed by jokers who won't stop turning all serious topics into memes. Trump is a cult leader of Reddit fans who can't stop mocking and joking how fat, orange, obese, bad at golf, stupid, moron, dumb Trump is. The cult of mocking has turned the USA into predictable looping mindsets. Trump is God's gift to mockery and hate and Reddit / Bluesky / everywhere has turned into brain rot over how trivial and easy it is to mock a status symbol and how brilliantly intelligent everyone things they are that they are smarter than Donald Trump. The egoism of declaring how smart people are vs. Trump has ruined everything. Dumb jokes have destroyed CDC medical science. Putin won, Surkov won, USA minds are wrecked by infinite jesting.
+
+https://old.reddit.com/r/MurderedByWords/comments/1r7jeue/fully_cleared_of_any_connection/o5xvz60/
+
+FAN_PASSION_MAGA_VALUES Reddit media cult can not resist parroting White House talking points. There is no call to resist or organize mental health rescue campaigns. Just satire-washing, sarcasm-washing, joke-washing 24 hours a day fandom on Reddit any time an image of Donald Trump / photo of Trump appears on the touch screens via high-speed Reddit delivery. Dr. Bandy X Lee's 27 authors are not good enough to use spare time and free time and be serious, the jokes are why Donald Trump has all this power. Surkov won since year 2013.
+
+https://old.reddit.com/r/MurderedByWords/comments/1r7jeue/fully_cleared_of_any_connection/o5xtxw3/
+
+ANTI_REALITY is popular. Fiction fandoms flock to Reddit to get their Trump fiction storytelling. Factual reality and goodness are abandoned in favor of people commenting over and over about each story plot twist in the Trump fiction-based leadership. Holocaust deniers will crack jokes and memes, just like people who normalize Trump. The holocaust by Nazi Germany is a source of entertainment to fiction addicts, chucklehead mindsets, just as Donald Trump and MAGA are a source of jokes and humor "Leopards eat faces", ha ha ha ha on Reddit. AMUSING_ZOMBIES Denial via comedy-washing, joke-washing the holocaust. Detachment from goodness via meme stupor / joke mindsets.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1r7jmrg/nice_work_losers/o5xv1og/
+
+Then why is Reddit community not protesting the wide-spread book burning on Bluesky? The blocking of writing? They didn't have Unicode text and "block button" in Germany 1937, they had to use flame and paper. But Reddit users block each other proudly - just like book burning / magazine burning / banning of books / banning of messages against the machine-think Germany 1937 society. Dehumanizing real people as machines and cheering on the silencing of others via powerful cloud computing systems run by billionaires. People don't even have the media ecology learning from Marshall McLuhan to grasp they are banning modern equivalent of books in electric media form.
+
+Stephen Colbert ears HUGE money and is funded by massive corporations. It is the Little Guy like me who has been banned / blocked on Bluesky and Reddit and nobody stands up for me and I do not ear a single penny or sponsored / funded by anyone to promote corporate America like Colbert does.
+
+https://old.reddit.com/r/science/comments/1r7h4hr/trump_support_in_2024_linked_to_white_americans/o5xdvmr/
+
+https://old.reddit.com/r/science/comments/1r7h4hr/trump_support_in_2024_linked_to_white_americans/o5xcu4q/
+
+https://old.reddit.com/r/science/comments/1r7h4hr/trump_support_in_2024_linked_to_white_americans/o5y3bn1/
+
+Putin is killing people in Ukraine. Trump supports Putin. Donald Trump trusts and encourages Putin. Hate distorts the brain into thinking that killing people in Ukraine is fine. Hate distorts the mind into thinking forcing Canada to be the 51st stage of USA is a good idea. There are many many signs that hate is what Trump provides and people follow hate leadership to adopt hate values.
+
+**The 1954 Equation**
+
+February 28, 1954: "Most people can't stand up for their convictions, because the majority of people might not be doing it. See, everybody's not doing it, so it must be wrong. And since everybody is doing it, it must be right. So a sort of numerical interpretation of what's right. But I'm here to say to you this morning that some things are right and some things are wrong. Eternally so, absolutely so. **It's wrong to hate.** It always has been wrong and it always will be wrong. It's wrong in America, it's wrong in Germany, it's wrong in Russia, it's wrong in China. It was wrong in 2000 B.C., and it's wrong in 1954 A.D. It always has been wrong, and it always will be wrong." - Martin Luther King Jr.
+
+"For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the **true becomes false and the false becomes true**. That's what hate does. You can't see right. **The symbol of objectivity** is lost." - Martin Luther King Jr
+
+https://old.reddit.com/r/science/comments/1r7h4hr/trump_support_in_2024_linked_to_white_americans/o5xo6en/
+
+Science technology lovers don't want to concern themselves human goodness such as ending wars or compassion for people who have no food or health care. The concern of science /r/Science technology to produce new plastics for toys, new science for entertainment machines. See how this message promotes hate when humanism and understanding of human conflicts is a serious topic. TECH_LUST_TECH_LOVERS
+
+https://old.reddit.com/r/science/comments/1r7h4hr/trump_support_in_2024_linked_to_white_americans/o5yhab4/
+
+ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING
+
+https://old.reddit.com/r/circled/comments/1r7jubl/talarico_yeah_no_wonder_they_wont_let_you_in_tv/o5y5exg/
+
+https://old.reddit.com/r/circled/comments/1r7jubl/talarico_yeah_no_wonder_they_wont_let_you_in_tv/o5y8duf/
+
+We should have multiple GOOD choices for elections. Something is horrible wrong that people are taught by clergy that there is "team evil" (Satan in South Park at the White House in year 2025 episodes) and "team good", and you should "find your inner desires" and join the team you prefer. What shit bi-polar logic that got us where we are. People actually believe evil leaders like Trump are perfectly acceptable choices. Evil is not a valid choice. Supporting Putin murdering people in Ukraine is not a valid choice. The whole mentality of "there are two and only two sides to every debate" logic is stupid. SEE_ALSO https://GitHub.com/GreatSealUSA/GreatSealUSA_Art/tree/main/TwoAndOnlyTw0
+
+* "For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the **true becomes false and the false becomes true**. That's what hate does. You can't see right. **The symbol of objectivity** is lost." - Martin Luther King Jr
+
+https://old.reddit.com/r/circled/comments/1r7jubl/talarico_yeah_no_wonder_they_wont_let_you_in_tv/o5y2kvb/
+
+MIND_BLOWN_BY how horrific things already are, the cults of hate media.
+
+https://old.reddit.com/r/circled/comments/1r7jubl/talarico_yeah_no_wonder_they_wont_let_you_in_tv/o5y5xul/
+
+BIBLE_LITERACY crises. Why are Bluesky and Reddit users not urgently using social information systems for the purposes of rescuing USA with teaching Bible literacy? Rescuing hearts and mins from misunderstanding and comprehension failures. **Adult education. We The People need to be teaching Bible verse Galatians 3:28 about gender. Bible verse "1 John 4:20" about liars and hate**. This is essential science fiction literacy issues. "I love Jesus" is WRONG - "1 John 4:20" verse.
+
+* “Half the people in the world think that the metaphors of their religious traditions, for example, are facts. And the other half contends that they are not facts at all. As a result we have people who consider themselves believers because they accept metaphors as facts, and we have others who classify themselves as atheists because they think religious metaphors are lies.” ― Joseph Campbell, Thou Art That: Transforming Religious Metaphor.
+
+https://old.reddit.com/r/politics/comments/1r7bud7/bombshell_epstein_file_reveals_fbi_interviewed/o5w8wjm/
+
+COMPREHENDING_UNDERSTANDING "I just don’t understand this. How was someone with these kinds of terrifying allegations able to become elected president?" ... ANSWER: media cults. Twitter-thinking. Start with study of Neil Postman's reasonable length book, 184 pages, from year 1985. https://en.wikipedia.org/wiki/Amusing_Ourselves_to_Death Even reading just the first 50 or 60 pages is highly informative of what to look for. Then, study what happened July 6, 2011 when an old white Corporate Executive actor went all in with 140 character high-speed Twitter electric messaging system. https://theoutline.com/post/2445/trump-s-first-real-tweet-was-on-july-6-2011 - and then Russia joined in the Twitter mania in March 2013 with the "Internet Research Agency".
+
+https://old.reddit.com/r/politics/comments/1r7bud7/bombshell_epstein_file_reveals_fbi_interviewed/o5wfop4/
+
+Everything is Media Ecology. 
+
+People in rural areas stuck with television and game consoles and considered computers "nerdy". Then in year 2007 the Apple iPhone changed everything. The iPhone 1 in the middle of 2007 lit the culture on fire. Every aspect of society was changed top to bottom. July 6, 2011 when Donald Trump, an old white Corporate Executive actor went all in with 140 character high-speed Twitter electric messaging system. Apple iPhone 4 Release Date: June 24, 2010 when Trump was King of Pop Culture media.  https://TheOutline.com/post/2445/trump-s-first-real-tweet-was-on-july-6-2011
+
+Next in March 2013, the Russian military invaded USA media systems "Putin Media Invasion" I sometimes call it. The rural less-educated Republicans didn't stand a chance against Surkov students. SEE_ALSO https://www.BuzzFeedNews.com/article/maxseddon/documents-show-how-russias-troll-army-hit-america **published June 2, year 2014**. Surkov won, NATO lost, hearts and minds have been conditioned by Russia to self-harm USA. Especially gender topics and wrecking women. All around anti-goodness mindsets. MAXIMUM_PUTINIZATION
+
+https://old.reddit.com/r/mildlyinfuriating/comments/1r7onu7/new_yorkers_are_furious_as_melting_snowbanks/o5z3ekx/
+
+Because media cult programming into the minds.
+
+https://old.reddit.com/r/therewasanattempt/comments/1r7mo36/to_broadcast_an_interview_to_the_public_with_this/o5yn7kd/
+
+https://old.reddit.com/r/therewasanattempt/comments/1r7mo36/to_broadcast_an_interview_to_the_public_with_this/o5yj4gf/
+
+https://old.reddit.com/r/politics/comments/1r7qi87/child_protective_services_called_after_parents/o5zhl9r/
+
+https://old.reddit.com/r/politics/comments/1r7qi87/child_protective_services_called_after_parents/o5zkord/
+
+https://old.reddit.com/r/pics/comments/1r81910/if_ice_wants_to_dox_me_then_get_my_good_side/o61hr6u/
+
+https://old.reddit.com/r/pics/comments/1r81910/if_ice_wants_to_dox_me_then_get_my_good_side/o61i6qg/
+
+CHUCKLEHEAD_NATION Joke-washing to sane-wash Trump. Reddit is a Trump fandom that can't resist laughing "LMAO" and low-effort commenting about Trump / ICE / MAGA. Surkov won.
+
+https://old.reddit.com/r/pics/comments/1r81910/if_ice_wants_to_dox_me_then_get_my_good_side/o61hswl/
+
+"Cringe". Egoism on Reddit. Out-group conformity enforcers for MAGA values. NOT_GOOD_ENOUGH that "We The People", "The Little Guy" stands up to Trump. As Trump is a professional actor and comedy source for TRUMP_FANDOM on Reddit to "LOLCOW" milk every hour of every day since June 16, 2015 - so *cringe* that a Reddit user stands up and puts his REAL IDENTITY and REAL FACE on Reddit like Trump has his REAL FACE worshiped every hour on /r/All with photographs of Trump family... The cult of Trump images can not cope with real non-famous "The Little Guy" standing up and showing real person on Reddit in an information war. Cultists of Trump.
+
+https://old.reddit.com/r/pics/comments/1r81910/if_ice_wants_to_dox_me_then_get_my_good_side/o61hdfr/
+
+For MAGA image cult, NOT_GOOD_ENOUGH that a real person stands up. "Cringe". Cult of cringe on Reddit can't stand up for "The Little Guy" if you don't dress and behave to worship Trump images on /r/All year after year after year for over a decade.
+
+https://old.reddit.com/r/therewasanattempt/comments/1r81uwt/to_not_get_owned_by_your_own_ai/o6228j7/
+
+WHEN_THE_PEOPLE_HAVE_LOST_THE_ABILITY Fiction outsells nonfiction.
+
+https://old.reddit.com/r/news/comments/1r7wxqh/epstein_files_suggest_acts_that_may_amount_to/o60wb4k/
+
+<img width="934" height="481" alt="Screenshot from 2026-02-18 07-50-32" src="https://github.com/user-attachments/assets/6e761dde-26bc-44dc-a0d4-0e39d1d9977b" />
+
+DENIAL_ABOUNDS
+
+NEW_OPERA_NAME: #WatchingAmerica #EveryoneCanSee #TrumpBlind #TrumpBlindOpera #SnowBlindOpera     
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mf5dnyamtk2d https://autistics.life/@RoundSparrow/116092223445485613 }
+
+OPERA_A https://www.youtube.com/watch?v=QurGAOzAxr8 The Bright Lights of the Apple iPhone / Apple iPad / Android device screens have blinded We The People USA to their own Trump media notification delivery addictions. REPEAT_TRACK 1,023,442 views December 12, 2018 Lyrics: "Mirror, mirror I confess... I can't escape this emptiness... No more reason to pretend!"; Second Trump term in office, third time coming... "I'm going down for the third time! 'Cause I'm snowblind, and I can't get away!" - *because* I'm smartphone blind to Surkov students.
+

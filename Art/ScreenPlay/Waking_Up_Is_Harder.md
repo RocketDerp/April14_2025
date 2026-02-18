@@ -14,7 +14,7 @@ https://www.youtube.com/watch?v=mjg43nzSYck
 
 ### How teach again?
 
-"How teach again, however, what has been taught correctly and incorrectly learned a thousand thousand times, throughout the millenniums of mankind’s prudent folly? That is the hero’s ultimate difficult task. How render back into light-world language the speech-defying pronouncements of the dark? How represent on a two-dimensional surface a three-dimensional form, or in a three-dimensional image a multi-dimensional meaning?" - page 317. 1949. 
+"How teach again, however, what has been taught correctly and incorrectly learned a thousand thousand times, throughout the millenniums of mankind’s prudent folly? That is the hero’s ultimate difficult task. How render back into light-world language the speech-defying pronouncements of the dark? How represent on a two-dimensional surface a three-dimensional form, or in a three-dimensional image a multi-dimensional meaning?" - page 317. year 1949. Chapter: "4. The Crossing of the Return Threshold"
 
 ### Metaphor to Metaphor translation
 

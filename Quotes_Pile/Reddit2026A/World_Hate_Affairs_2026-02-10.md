@@ -498,9 +498,145 @@ https://old.reddit.com/r/International/comments/1r6dhnx/racism_and_bigotry_have_
 
 * "That such **remoteness from reality and such thoughtlessness can wreak more havoc than all the evil instincts taken together** which, perhaps, are inherent in man—that was, in fact, the lesson one could learn in Jerusalem.” ― Hannah Arendt, Eichmann in Jerusalem: A Report on the Banality of Evil
 
-All this spare time and free time of people commenting on Reddit. Why isn't Reddit community organizing a REDDIT_BLACKOUT in protest? Why isn't Reddit community on the front page of world news https://www.thestar.com/business/reddit-blackout-here-s-why-thousands-of-pages-went-dark-on-monday-and-how-long/article_4847569b-6784-52e1-a5eb-77b48840c626.html for protesting? Why are Reddit users so avoidant of quoting nonfiction seriously written books? why is Dr. Bandy X Lee's mental health topic books not quoted on Reddit despite the obvious thinking crisis?
+All this spare time and free time of people commenting on Reddit. Why isn't Reddit community organizing a REDDIT_BLACKOUT in protest? Why isn't Reddit community on the front page of world news https://www.TheStar.com/business/reddit-blackout-here-s-why-thousands-of-pages-went-dark-on-monday-and-how-long/article_4847569b-6784-52e1-a5eb-77b48840c626.html for protesting? Why are Reddit users so avoidant of quoting nonfiction seriously written books? why is Dr. Bandy X Lee's mental health topic books not quoted on Reddit despite the obvious thinking crisis?
 
 https://old.reddit.com/r/International/comments/1r6dhnx/racism_and_bigotry_have_become_so_normalized_that/o5por1t/
 
 1 month Reddit account. GAMERS_SIMULACRA - no concern to do more than leave a low-effort comment. 
 
+https://old.reddit.com/r/whenthe/comments/1r75nz4/and_i_thought_western_gender_wars_can_get_crazy/o5v0191/
+
+WOKE_TO_WHAT EXACTLY ? CONSERVING_WHAT EXACTLY? Hate. Out-group hate. How much of women being attacked and abused by men is this kind of HAZING_RITUAL that men do to other men and such...
+
+https://old.reddit.com/r/circled/comments/1r75zpr/the_world_cares_about_whats_happening_in_the_us/o5v89f0/
+
+https://old.reddit.com/r/circled/comments/1r75zpr/the_world_cares_about_whats_happening_in_the_us/o5vakbk/
+
+https://old.reddit.com/r/circled/comments/1r75zpr/the_world_cares_about_whats_happening_in_the_us/o5v59yf/
+
+https://old.reddit.com/r/circled/comments/1r75zpr/the_world_cares_about_whats_happening_in_the_us/o5vajqx/
+
+https://old.reddit.com/r/circled/comments/1r75zpr/the_world_cares_about_whats_happening_in_the_us/o5v3cg6/
+
+3 month Reddit account. TACTICAL_CLEVERNESS
+
+https://old.reddit.com/r/circled/comments/1r75zpr/the_world_cares_about_whats_happening_in_the_us/o5v8h2t/
+
+"brainwashed by Trump". REDDIT_HIVE_MIND_FORGOT Regarding Europe / EU... people caged "inside the box" thinking on Reddit (as programmed by Musk and others) think this is Trump that unleashed the brainwashing. Reddit has forgotten: "Hillary Clinton: Putin Would 'Rather Have a Puppet as President' | NBC News" "Break up NATO". 7,675 views October 19, 2016 https://www.youtube.com/watch?v=Cq8f8oU9wYs
+
+https://old.reddit.com/r/todayilearned/comments/1r7jwhj/til_toronto_spent_37_billion_on_a_new_rapid_light/o5y1kyv/
+
+https://old.reddit.com/r/worldnews/comments/1r7huaj/we_simply_dont_have_any_left_germany_has_run_out/o5xi8sv/
+
+Alas, the Internet Research Agency started ramping up in March of year 2013, before November 8, 2013 Trump private jet flight to Moscow for the sex show, before the December 2013 "Conservative International" movement was announced by the Kremlin. Then came the "little green men" in early year 2014. But the IRA psychological ops, psyops, already blew out hearts and minds to { downplay, chuckle, laugh, joke, mock } at what Russia was doing. Surkov won since March 2013 by turning NATO into a joke. Russia won the hearts and minds to all joke-away and LOL at serious dangers and threats. **December 5, 2014 it was called out that Russia intended to make a "Joke of NATO"**. https://github.com/RocketDerp/April14_2025/blob/main/Art/ScreenPlay/USA/Joke_of_NATO.md
+
+https://old.reddit.com/r/worldnews/comments/1r7huaj/we_simply_dont_have_any_left_germany_has_run_out/o5xzy5l/
+
+https://old.reddit.com/r/worldnews/comments/1r7huaj/we_simply_dont_have_any_left_germany_has_run_out/o5xypbk/
+
+Jokes and more jokes. Brain rot jokers. People who claim they care about Epstein harm to girls ignore what Putin is doing to girls. https://en.wikipedia.org/wiki/Child_abductions_in_the_Russo-Ukrainian_war Well, people care, to joke when a news article appears on their touch device notifications. They have the joke mindsets constantly running. IGNORANCE_CELEBRATIONS - as the anti-FAQ anti-Wiki addictions to commenting are how Surkov students won so many hearts and minds to turn all serious topics into a source of amusement.
+
+https://old.reddit.com/r/SipsTea/comments/1r7hva7/shia_lebeouf_hanging_out_in_new_orleans/o5xz2li/
+
+This is United States of America real-world, reality. When there is one person and a mob forms, HATE_HARDER competition programming and teaching comes to the front of mindsets. Aggression is to be met with extra strong aggression. Many USA men are taught in USA to escalate and add hate and power to every hate situation. HATE_FOR_HATE In your face male mocking and hate is what people practice over and over in USA. If you want to understand why Fox News values and Donald Trump's education is the role model parents give their children, study these comments on Reddit. PRIZING_HATE_FURTHERING_HATE
+
+https://old.reddit.com/r/SipsTea/comments/1r7hva7/shia_lebeouf_hanging_out_in_new_orleans/o5xw12n/
+
+South as South can be. New Orleans white men Southern USA. I've spent 7 months there living in the streets in an RV (3 different RV homes, different years).
+
+* "I've seen too much hate to want to hate myself; hate is too great a burden to bear. I've seen it on the faces of too many sheriffs of the South — I've seen hate. In the faces and even the walk of too many Klansmen of the South, **I've seen hate. Hate distorts** the personality. **Hate does something to the soul that causes one to lose his objectivity.** The man **who hates can't think straight**; the man **who hates can't reason right; the man who hates can't see right**; the man who hates can't walk right. And I know now that Jesus is right, that love is the way. And this is why John said, "God is love," so that he who hates does not know God, but he who loves at that moment has the key that opens the door to the meaning of **ultimate reality**." - July 4, 1965 Atlanta, Georgia.
+
+https://old.reddit.com/r/SipsTea/comments/1r7hva7/shia_lebeouf_hanging_out_in_new_orleans/o5xvh12/
+
+Predatory male aggression isn't just for billionaires like Musk, Trump, Murdoch. It's programmed into the USA population. Reactionary mindsets. AGGRESSIVE_ESCALATE_HATE_REACT_HARDER_MINDSETS People get a whiff of mob power and they become aggressive like the police in USA.
+
+https://old.reddit.com/r/SipsTea/comments/1r7hva7/shia_lebeouf_hanging_out_in_new_orleans/o5xzejb/
+
+Reddit fandom of violence wants to see even more video of ass-kicking. AGGRESSIVE_ESCALATE_HATE_REACT_HARDER_MINDSETS
+
+https://old.reddit.com/r/circled/comments/1r7jubl/talarico_yeah_no_wonder_they_wont_let_you_in_tv/o5yjcnx/
+
+https://old.reddit.com/r/circled/comments/1r7jubl/talarico_yeah_no_wonder_they_wont_let_you_in_tv/o5xyc8a/
+
+People are prizing hate in reading (or watching TV & films) many science fiction stories. People seek out hate content in social media. People seek hate leaders in every possible source of media, not just Church science fiction stories, not just the Levant imported Bible storybook, but TV news networks like Fox News provide hate leadership that people seek out. We The People need to be educated on what hate does. Parents have made Donald Trump a leader of hate, a hate role model for their children since June 16, year 2015. FAITH_IN_HATE
+
+**The 1954 Equation**
+
+February 28, 1954: "Most people can't stand up for their convictions, because the majority of people might not be doing it. See, everybody's not doing it, so it must be wrong. And since everybody is doing it, it must be right. So a sort of numerical interpretation of what's right. But I'm here to say to you this morning that some things are right and some things are wrong. Eternally so, absolutely so. **It's wrong to hate.** It always has been wrong and it always will be wrong. It's wrong in America, it's wrong in Germany, it's wrong in Russia, it's wrong in China. It was wrong in 2000 B.C., and it's wrong in 1954 A.D. It always has been wrong, and it always will be wrong." - Martin Luther King Jr.
+
+"For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the **true becomes false and the false becomes true**. That's what hate does. You can't see right. **The symbol of objectivity** is lost." - Martin Luther King Jr.
+
+https://old.reddit.com/r/circled/comments/1r7jubl/talarico_yeah_no_wonder_they_wont_let_you_in_tv/o5y32bb/
+
+Putin has been leading the world wide hate, organized hate, since year 2013. SEE_ALSO December 20, 2013 https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/ "**Vladimir Putin is calling on the conservatives of the world to unite** — behind him."  - Trump and MAGA are following Putin's hate leadership. DENIAL_ABOUNDS Trump trusts Putin, people trust Trump as a good source of entertainment and comedy. It is incredibly alarming that people do not see the danger and are not doing everything they can to promote Dr. Bandy X Lee's mental health leadership regarding Donald Trump and MAGA. People keep avoiding promoting and quoting Dr. Lee's essential public education.
+
+https://old.reddit.com/r/news/comments/1r7wxqh/epstein_files_suggest_acts_that_may_amount_to/o60snis/
+
+So many people know about the Putin and Trump buddy relationship. And that Putin is killing people in Ukraine and abducting children on an industrial scale. EPSTEIN_BUT_NOT_PUTIN_UKRAINE_CHILDREN_NOT_MALALA - Putin and Trump are in power and ICE is pulling people in dramatic aggressive ways. Reddit commenting section clearly sees this... yet no REDDIT blackout. No Reddit FAQ, no Reddit Wiki of removing Trump from office. Reddit community ignores nonfiction books and allows a clear LIAR as leader,open deception White House. Reddit commenting community knows the deception but does not organize and promote Dr. Bandy X Lee as the center of attention (nonfiction books on shelf since year 2017).
+
+https://old.reddit.com/r/news/comments/1r7wxqh/epstein_files_suggest_acts_that_may_amount_to/o60zmvj/
+
+That's what people do at school shootings, shoot at government schools in USA. Timothy McVeigh took on government. It's called terrorism. I lived in Algeria, Islamic terrorist nation studying this. NOT_GOOD_ENOUGH You promote Malala, you do cult deprogramming, you promote MLK Jr, you do cult programming. Acts of terrorism and school shootings people think is a fun video game. It is not. Hate is not enjoyable. Fake joy. Support Dr. Bandy X Lee and make her public education constant topic until people see the dangers of mob mentality and faith in hate.
+
+https://old.reddit.com/r/news/comments/1r7wxqh/epstein_files_suggest_acts_that_may_amount_to/o60nas5/
+
+PROMOTING_IGNORANCE_WORKS_PLAYING_DUMB_MOCKING  And it works. Reddit eats it up. Commenting upon it is not resisting the "playing dumb" that Putin and Trump do. Surkov governing works. And We The People on Reddit eat it up with reacting every time. Decades prove these tactics work. The anti-intellectualism on Reddit commenting, the avoidance of nonfiction books and paper and serious quotes, it works for Trump administration.
+
+* "Russia-watcher Catherine Fitzpatrick, who documents Kremlin disinformation for InterpreterMag . com, says just as Moscow uses vague Internet laws to encourage self-censorship, trolls inhibit informed debate by using **crude dialogue to change "the climate of discussion."** "If you show up at The Washington Post or New Republic sites, where there's an article that's critical of Russia, and you see that **there are 200 comments that sound like they were written by 12-year-olds**, then you just don't bother to comment," she says.  "You don't participate. It's a way of just **driving discussion away** completely," she adds. "Those **kinds of tactics are meant to stop democratic debate**, and they work." - **year 2014** https://www.theatlantic.com/international/archive/2014/08/the-kremlins-troll-army/375932/
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1r7yp3t/petaa/o60z62x/
+
+OUT_GROUP_HATE is a global problem. Eveyrone keeps ignoring Malala's October 8, 2013 book and how it relates to Palestine one decade later on October 7. Anti-intellectual in seeing it as a global problem.
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1r7yp3t/petaa/o610b3y/
+
+"Explain the Joke" topic framing, comment: "LOL" predictable Tweet-length short-message mindset reply comment. NOT_GOOD_ENOUGH MLK Jr.
+
+**The 1954 Equation**
+
+February 28, 1954: "Most people can't stand up for their convictions, because the majority of people might not be doing it. See, everybody's not doing it, so it must be wrong. And since everybody is doing it, it must be right. So a sort of numerical interpretation of what's right. But I'm here to say to you this morning that some things are right and some things are wrong. Eternally so, absolutely so. **It's wrong to hate.** It always has been wrong and it always will be wrong. It's wrong in America, it's wrong in Germany, it's wrong in Russia, it's wrong in China. It was wrong in 2000 B.C., and it's wrong in 1954 A.D. It always has been wrong, and it always will be wrong." - Martin Luther King Jr.
+
+"For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the **true becomes false and the false becomes true**. That's what hate does. You can't see right. **The symbol of objectivity** is lost." - Martin Luther King Jr.
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1r7yp3t/petaa/o610f5h/
+
+They why don't people use Reddit to teach the Roma REMEDIAL_MORALITY? Why do people promote hate instead of actually teach and educate nonfiction. Why is adult education not taken serious. The cults of ignorance that are anti-teaching anti-nonfiction.
+
+https://old.reddit.com/r/worldnews/comments/1r7v4k3/zelenskyy_unfair_that_trump_publicly_urges/o60buo3/
+
+Top-upvoted popular comment. No dates specified, no quotes. ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING
+
+https://old.reddit.com/r/worldnews/comments/1r7v4k3/zelenskyy_unfair_that_trump_publicly_urges/o60apoh/
+
+SURKOVIAN_ONION_EATING Reddit comment creator thinks The White House is not an organized group following Putin's Surkov governing techniques. Gullible Reddit users who crack jokes and are unable to engage nonfiction learning on the topic. 
+
+* August 11, 2025 — "Ukraine fears that the Kremlin will try to convince President Trump at U.S.-Russian talks in Alaska that Ukraine, not Russia, is the obstacle..." https://www.nytimes.com/2025/08/11/world/europe/ukraine-russia-putin-zelensky-alaska-talks.html
+
+* January 24, 2025 — "Ukrainian leader Volodymyr Zelensky on Friday, January 24, warned that his Russian counterpart **Vladimir Putin wanted to "manipulate" Donald Trump**." https://www.lemonde.fr/en/international/article/2025/01/24/zelensky-warns-putin-wants-to-manipulate-trump-on-ukraine_6737399_4.html
+
+But the USA Trump fandom on Reddit drowns out serious nonfiction learning by spending free time and spare time creating low-effort commenting as "media engagement" to Trump.
+
+https://old.reddit.com/r/worldnews/comments/1r7v4k3/zelenskyy_unfair_that_trump_publicly_urges/o60ka79/
+
+ROUTINE_NO_NEED_TO_RESIST_OR_ORGANIZE_INTELLECTUAL_UPRISING
+
+https://old.reddit.com/r/worldnews/comments/1r7v4k3/zelenskyy_unfair_that_trump_publicly_urges/o60da5e/
+
+Why are Reddit community members making low-effort comments instead of organizing an intellectual resistance? REDDIT_BLACKOUT Why are people on Reddit not promoting, quoting, repeating Dr. Bandy X Lee's nonfiction public education on Trump's mental health and DANGER to society over and over? ANSWER: Reddit is a cult of Trump and is not making serious life-saving effort to organize information and stay focused on what is important. Because the cult symptom is attraction to the actor's performance... to more Trump content, not removing Trump.
+
+https://old.reddit.com/r/technology/comments/1r80ynt/meta_ceo_mark_zuckerberg_to_face_jury_in_landmark/o61hfno/
+
+Programmed machine predators. Never sleeping predatory systems to manipulate everyday people. PREDATORY_BILLIONAIRE_SYSTEMS
+
+https://old.reddit.com/r/technology/comments/1r80ynt/meta_ceo_mark_zuckerberg_to_face_jury_in_landmark/o61vhmq/
+
+REMEDIAL_MORALITY
+
+https://old.reddit.com/r/technology/comments/1r80ynt/meta_ceo_mark_zuckerberg_to_face_jury_in_landmark/o61z8bg/
+
+MEDIA_CULTS_ADDICTIVE_FICTION
+
+https://old.reddit.com/r/technology/comments/1r80ynt/meta_ceo_mark_zuckerberg_to_face_jury_in_landmark/o61f0oe/
+
+ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING    
+Surkov students are light-years beyond what domestic have done. Surkov won since March 2013. SEE_ALSO: https://GitHub.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Cambridge_Analytica_Quotes.md

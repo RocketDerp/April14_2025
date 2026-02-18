@@ -1729,3 +1729,13 @@ Sex sells.
 Alan Alda on women's underwear vs. men's underwear.   
 Network Censorship war stories.   
 https://www.youtube.com/watch?v=37HXBdOMKOk&t=375s
+
+&nbsp;
+
+# Hybrid Human product seller
+
+Real-time processing at cheap rates for selling inexpensive consumer household goods.   
+
+https://old.reddit.com/r/interestingasfuck/comments/1r758lo/a_realtime_marketplace_live_transmission_in_china/
+
+* “Advertising is corporate form of art and the goal is to make an effect. Every artist - any painter, any poet or musician sets out to create an effect, he sets a trap to catch somebody`s attention. That is the nature of art.” ― Marshall McLuhan (As lesson, source quote, when? Book?)

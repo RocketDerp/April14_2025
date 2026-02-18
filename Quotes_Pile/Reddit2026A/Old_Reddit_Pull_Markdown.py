@@ -34,14 +34,15 @@ from html_to_markdown import convert_to_markdown
 
 # The Python standard (defined in PEP 8, the official style guide) for variable names is to use lowercase with words separated by underscores (known as snake_case)
 
-HEADERS = {"User-Agent": "Pluribus TV project version 0.1.0"}
+HEADERS = {"User-Agent": "Pluribus TV project version 0.1.1"}
+progress_note = "not yet populated"
 error_count_b = 0
 error_fetch_count = 0
 error_parse_a_count = 0
 fetch_reddit_count_a = 0
 post_only_count = 0
 replies_users_fetch = 0
-replies_users_max = 64
+replies_users_max = 4
 # every slowdown_every fetches kick in delay
 slowdown_every = 2
 age18_count = 0
@@ -104,7 +105,15 @@ def live_fetch_error(res, call_spot):
 
 
 def pause_with_quit(total_seconds):
-    print(f"\nPausing for {int(total_seconds)} seconds. Press 'Q' to quit app. [SPACE] to end pause.")
+    global error_count_b
+    global error_fetch_count
+    global error_parse_a_count
+    global fetch_reddit_count_a
+    global progress_note
+
+    ecount = error_count_b + error_fetch_count + error_parse_a_count
+
+    print(f"\nPausing {int(total_seconds)} seconds. Press 'Q' to quit, [SPACE] to end pause. fc {fetch_reddit_count_a} ecount {ecount} progress {progress_note}")
     fd = sys.stdin.fileno()
     old_settings = termios.tcgetattr(fd)
     try:
@@ -117,10 +126,10 @@ def pause_with_quit(total_seconds):
             if select.select([sys.stdin], [], [], 0)[0]:
                 key = sys.stdin.read(1)
                 if key.lower() == "q":
-                    print("Quit requested. Exiting.")
+                    print("Quit requested by operator. Exiting.")
                     return True
                 if key == " ":
-                    print("Pause ended by operator.")
+                    print("Pause ended early by operator.")
                     return False
         
         return False
@@ -201,6 +210,7 @@ def comment_do_one (comment_div):
         print(f"problem processing comment checkpoint A. {e}")
         #print(e)
         print(traceback.format_exc())
+        # ToDo: these vars do not exist here
         raise ValueError(f"Could not process comment {comment_id} on page {url}")
         
     if time_tag and "title" in time_tag.attrs:
@@ -566,9 +576,23 @@ def fetch_user_info_hover(username, args=None):
                 found_count = len(existing_files_all)
                 # epoc number filenames should sort highest (freshest, most recent)
                 account_filename = max(existing_files_all)
+
+                when_fetched_raw = account_filename.rsplit('△', 1)[-1].replace(".json", "")
+                # filename is string, convert to comparatble int
+                when_fetched = int(when_fetched_raw)
+
+                # 30 days arg, output: when_fetched 1767890327 expire 1768423959
+                if args.user_renew_days:
+                    if when_fetched < args.user_expire_epoch:
+                        print(f"EXPIRED user file candidate found count: {found_count} when_fetched {when_fetched} expire {args.user_expire_epoch}")
+                        dt = datetime.datetime.fromtimestamp(when_fetched, tz=datetime.timezone.utc)
+                        print(dt.isoformat()) 
+                        quit_request = pause_with_quit(24)
+                        if quit_request:
+                            sys.exit(1)
             
                 # reference above print(f"[cached] Using saved HTML for {url} file {html_filename} found count: {found_count}")
-                print(f"[cached] Using saved JSON for {username} file {account_filename} found count: {found_count}")
+                print(f"[cached] Using saved JSON for {username} file {account_filename} found count: {found_count} when_fetched {when_fetched} expire {args.user_expire_epoch}")
                 with open(account_filename, "r", encoding="utf-8") as f:
                     # account_text = f.read()
                     reddit_account_data = json.load(f)
@@ -588,11 +612,12 @@ def fetch_user_info_hover(username, args=None):
             quit_request = pause_with_quit(24)
             if quit_request:
                 sys.exit(1)
+            # ToDo: save tombstone file so no live re-fetch?
         else:
             if res.status_code != 200:
                 live_fetch_error(res, 1)
                 error_fetch_count += 1
-                print("Error encountered on Reddit account data fetch")
+                print(f"Error encountered on Reddit account data fetch status_code {res.status_code}")
                 print(res)
                 quit_request = pause_with_quit(3)
                 if quit_request:
@@ -623,7 +648,7 @@ def fetch_user_info_hover(username, args=None):
         if reddit_account_data["error"] == 404:
              # since the time of the comment capture, account now deleted
              print("since-deleted account encountered")
-             skip_condition = 1
+             skip_condition = 2
 
     if skip_condition > 0:
         # only pause if the first time, live fetch to Reddit
@@ -692,6 +717,7 @@ def main():
     global error_parse_a_count
     global fetch_reddit_count_a
     global post_only_count
+    global progress_note
 
     parser = argparse.ArgumentParser(description="Parse Reddit comments from markdown list.")
     parser.add_argument("--file", required=True, help="Input markdown file containing Reddit comment URLs.")
@@ -704,18 +730,36 @@ def main():
     parser.add_argument("--error-html-folder", default="error_pages", help="Folder to save HTML pages on error.")
     parser.add_argument("--check-saved-first", action="store_true", help="Use cached HTML if available")
     parser.add_argument("--compare-saved", action="store_true", help="Compare live fetch with saved HTML; save _N versions if changed/removed")
+    parser.add_argument("--user-renew-days", type=int, default=None, help="Live fetch the user account information if local stored is older than x days")
     args = parser.parse_args()
+
+    # massage args further
+
+    args.user_expire_epoch = 0
+
+    if args.user_renew_days:
+        # int return float value, we don't need fractions of a second
+        # ToDo: is this always UTC regardless of system?
+        current_epoch = int(time.time())
+        expire_days_in_seconds = args.user_renew_days * 24 * 60 * 60
+        print(f"user-renew-days set {args.user_renew_days} current_epoch {current_epoch} expire_days_in_seconds {expire_days_in_seconds}")
+        args.user_expire_epoch = current_epoch - expire_days_in_seconds
+        print(f"user_expire_epoch {args.user_expire_epoch}")
+        quit_request = pause_with_quit(5)
+        if quit_request:
+            sys.exit(1)
 
     entries = parse_markdown_entries(args.file)
 
     start = args.skip_to
     end = start + args.stop_after if args.stop_after else len(entries)
     entries = entries[start:end]
-    errorCountA = 0
+    error_count_a = 0
 
     total = len(entries)
     for idx, (url, commentary) in enumerate(entries, start=start + 1):
         print("=" * 80)
+        # ToDo: move entry_out variable up here earlier, clean this mess up
         print(f"Entry {idx} ({idx - start}/{total}) - URL to fetch:")
         print(url)
 
@@ -726,8 +770,8 @@ def main():
                 args=args
             )
         except Exception as e:
-            errorCountA += 1
-            print(f"\n****** ERROR fetching comment: {e}. Error count: {errorCountA}")
+            error_count_a += 1
+            print(f"\n****** ERROR fetching comment: {e}. Error count: {error_count_a}")
             print(traceback.format_exc())
             print("GOING TO PAUSE 5 seconds before saving the error")
             quit_request = pause_with_quit(5)
@@ -757,7 +801,8 @@ def main():
 
         reddit_comment = data['comment']
 
-        entry_out = f"entry {idx} ({idx - start}/{total}"
+        entry_out = f"entry {idx} ({idx - start}/{total})"
+        progress_note = entry_out
         # for now, squelch the unique entry index total for updating same file
         entry_out = f"entry {idx}"
 
@@ -785,8 +830,8 @@ def main():
 
         if commentary:
             output_lines.append("> [!NOTE]")
-            # shove the commetnary markdown into a ">" reply pattern
-            #   as github will render that all into note section
+            # shove the commentary markdown into a ">" reply pattern
+            #   as GitHub will render that all into note section
             # ToDo: currently breaks note block rendering when image is in output
             commentary_into_reply = commentary.replace("\n", "\n> ")
             output_lines.append(f"> :::::: Analysis_Thoughts Commentary: ======  ")
@@ -818,9 +863,9 @@ def main():
         summaryfile.write(f"{args.output}\n")
         summaryfile.write(f"    end {endtime_iso_with_ms}\n")
 
-        if errorCountA + error_count_b + error_fetch_count + error_parse_a_count > 0:
-            print(f"\nERRORS encountered! Final error counts, A: {errorCountA} B: {error_count_b} error_fetch_count: {error_fetch_count} error_parse_a_count: {error_parse_a_count}")
-            summaryfile.write(f"\nERRORS encountered! Final error counts, A: {errorCountA} B: {error_count_b} error_fetch_count: {error_fetch_count} error_parse_a_count: {error_parse_a_count}\n")
+        if error_count_a + error_count_b + error_fetch_count + error_parse_a_count > 0:
+            print(f"\nERRORS encountered! Final error counts, A: {error_count_a} B: {error_count_b} error_fetch_count: {error_fetch_count} error_parse_a_count: {error_parse_a_count}")
+            summaryfile.write(f"\nERRORS encountered! Final error counts, A: {error_count_a} B: {error_count_b} error_fetch_count: {error_fetch_count} error_parse_a_count: {error_parse_a_count}\n")
 
         if fetch_reddit_count_a > 0:
             print(f"Live fetch to Reddit count: {fetch_reddit_count_a}")

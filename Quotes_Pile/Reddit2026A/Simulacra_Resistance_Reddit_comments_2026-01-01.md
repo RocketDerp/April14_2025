@@ -999,3 +999,12 @@ https://old.reddit.com/r/International/comments/1r6i4du/this_is_how_we_start_to_
 BEYOND_DENIAL Yes. Fix the Reddit community attitudes. Fix the mindsets! We The People are the problem. Stop this simulation of resisting with dumb images. Be serious, use NONFICTION, stop feeding your high-speed fiction addiction to fake images - that's exactly what billionaires are creating for you with the most powerful media systems ever created by humanity. ChatGPT fake images. And you are here posting MORE fake Photoshop and other fiction content. **The attitude towards nonfiction adult education** needs to be fixed! Dear Reddit cult of Trump images: "fix your laws and your attitude first. You had the chance as a country to vote for an actual politician, but you decided the TV star was a better politician."
 
 Social post { https://autistics.life/@RoundSparrow/116082476985909143 https://bsky.app/profile/roundsparrow.bsky.social/post/3meyzamx4sc2m }
+
+https://old.reddit.com/r/MurderedByWords/comments/1r7ia9e/freedom_of_speech_in_danger/o5xmjm9/
+
+Top-voted most popular comment.
+
+https://old.reddit.com/r/MurderedByWords/comments/1r7ia9e/freedom_of_speech_in_danger/o5xlxec/
+
+Government is shutting up Reddit users. So Reddit audience predictably demands others to shut up. Everyone in agreement on the cult of silencing other people. RESISTING_WHAT_EXACTLY
+

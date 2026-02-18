@@ -618,3 +618,88 @@ I live all the nightmares of Bellevue 1997, 1998, 1999 analysis of the trajector
 * “Alfred North Whitehead summed it up best when he remarked that the greatest invention of the nineteenth century was the idea of invention itself. We had learned how to invent things, and the question of why we invent things receded in importance. The idea that if something could be done it should be done was born in the nineteenth century. And along with it, there developed a profound belief in all the principles through which invention succeeds: objectivity, efficiency, expertise, standardization, measurement, and progress. It also came to be believed that the engine of technological progress worked most efficiently when people are conceived of not as children of God or even as citizens but as consumers—that is to say, as markets.” ― Neil Postman, Technopoly: The Surrender of Culture to Technology. year 1992
 
 * “the world we live in is very nearly incomprehensible to most of us. There is almost no fact, whether actual or imagined, that will surprise us for very long, since we have no comprehensive and consistent picture of the world that would make the fact appear as an unacceptable contradiction. We believe because there is no reason not to believe.” ― Neil Postman, Technopoly: The Surrender of Culture to Technology. year 1992.
+
+https://old.reddit.com/r/todayilearned/comments/1r73vdz/til_weird_al_was_set_to_a_series_of_star_wars/o5ursub/
+
+CONCERNS_OF_FINNEGANS entire reply thread about language. Unicode Dreams. My concern of why computer industry didn't develop a variable-name file-name special-use characters for dash / underscore and space so that it could be rendered different in consoles and code editors and still maintain some sanity with command-line argument and parameter spaces. No special keyboard difference would be required, as it could have been built into filename prompts and context-intelligent editors could realize when a variable name is being used. Such as: "IF A_B_C = 10 GOTO LABEL_NAME" - where this underscore is unique. And, also the issue of special quotation marks for putting words into other people's mouths - non-literal quotes of what a person might say or in the style of a person. To keep fiction vs. nonfiction. FICTION_NONFICTION   
+
+https://old.reddit.com/r/todayilearned/comments/1r73vdz/til_weird_al_was_set_to_a_series_of_star_wars/o5upf1s/
+
+COPYRIGHT_BRAIN_DAMAGE topic. Creating a religion-level story but restricting derived works. Levant monomyth power over revising stories about "The Force" and "God" spirits / ghosts. James Joyce estate does the same thing.
+
+* "what is unfortunate for us is that a lot of the people who write these stories do not have the sense of their responsibility. These stories are making and breaking lives. But the movies are made simply to make money. The kind of responsibility that goes into a priesthood with a ritual is not there. That is one of our problems today." - Skywalker Ranch summer of 1985 / 1986. Age 81 / age 82.
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1r761yw/ford_shuts_down_58_billion_factory_just_months/o5v498d/
+
+See the replies too. CONCERNS_OF_FINNEGANS Finnegans Wake focus on the dehumanizing behavior people have with English language in correcting what they clearly understand, using language as a way to outside or demoralize people. As the Church + London systemically did in Ireland. Joyce Romans 11:33 up the ass of English language syntax dehumanizing rule-making fuckers.  AUTISM_EXPERIENCE my autism experience is I can make the same language output brain issues, fix them again and again, and I still keep making them. Even in programming syntax for BASIC / PASCAL / Ada / C / Python / JavaScript / Java / etc. https://en.wikipedia.org/wiki/Hyperlexia
+
+https://old.reddit.com/r/technology/comments/1r78jir/discord_rival_gets_overwhelmed_by_mass_exodus_of/o5vl4rx/
+
+https://old.reddit.com/r/technology/comments/1r78jir/discord_rival_gets_overwhelmed_by_mass_exodus_of/o5vn20z/
+
+https://old.reddit.com/r/technology/comments/1r78jir/discord_rival_gets_overwhelmed_by_mass_exodus_of/o5vxqdk/
+
+https://old.reddit.com/r/technology/comments/1r78jir/discord_rival_gets_overwhelmed_by_mass_exodus_of/o5vt5oj/
+
+https://old.reddit.com/r/technology/comments/1r78jir/discord_rival_gets_overwhelmed_by_mass_exodus_of/o5vps23/
+
+https://old.reddit.com/r/technology/comments/1r78jir/discord_rival_gets_overwhelmed_by_mass_exodus_of/o5vz9ul/
+
+COMPREHENDING_UNDERSTANDING How can anyone on Reddit be surprised and not understand the impact Fox News HDTV has had on USA (and the world by extension). NOT_GOOD_ENOUGH Jen Senko hasn't been good enough for Reddit users to repeat and make a household name. Neil Postman wrote a book about the Fox News crisis in year 1985 which is 11 years before Fox News spun up in 1996. We have the same problem with the classic religion cults, people can not imagine that religions are **not supernatural** - which means potentially ANYONE can capture others with patterns of books and clergy and buildings. It is LITERALLY a storybook with a cult fandom who hates people who where raised by parents on DIFFERENT storybooks. We have, as a planet, no no way "Woken Up" to this crisis. WOKE_TO_WHAT Page 581 of James Joyce's book about Dublin mindsets, Finnegans Wake "monomyth" (search for "monomyth" on page 581).
+
+https://old.reddit.com/r/technology/comments/1r78jir/discord_rival_gets_overwhelmed_by_mass_exodus_of/o5weq3o/
+
+Reddit title on postings are created by the end-users of Reddit and do NOT have to have "clickbait headlines", but it has become routine and normal. MEDIA_WOKE
+
+https://old.reddit.com/r/technology/comments/1r78jir/discord_rival_gets_overwhelmed_by_mass_exodus_of/o5voe9v/
+
+https://old.reddit.com/r/Terraria/comments/1r7cobn/my_post_got_removed_after_ai_accusations/o5wffmf/
+
+TECH_LUST_TECH_LOVERS The lovers of mod-reporting to the secret automated police of Reddit.
+
+https://old.reddit.com/r/Terraria/comments/1r7cobn/my_post_got_removed_after_ai_accusations/o5wdt1n/
+
+NOT_GOOD_ENOUGH human.
+
+Published in year 1988, Power of Myth. Filmed by George Lucas for Star Wars fandom:
+
+BILL MOYERS: I cherish that image: my hometown love, the feeling you get for that place, no matter how long you’ve been away or even if you never return. That was where you first discovered people. But why do you say **you love people for their imperfections**?
+
+CAMPBELL: Aren’t children lovable because they’re falling down all the time and have little bodies with the heads too big? Didn’t Walt Disney know all about this when he did the seven dwarfs? And these funny little dogs that people have — they’re lovable because they’re so imperfect.
+
+MOYERS: Perfection would be a bore, wouldn’t it?
+
+CAMPBELL: It would have to be. It would be inhuman. **The umbilical point, the humanity, the thing that makes you human and not supernatural and immortal** — that’s what’s lovable. That is why some people have a very hard time loving God, because there’s no imperfection there. You can be in awe, but that would not be real love. It’s Christ on the cross that becomes lovable.
+
+MOYERS: What do you mean?
+
+CAMPBELL: Suffering. Suffering is imperfection, is it not?
+
+MOYERS: The story of human suffering, striving, living —
+
+CAMPBELL: — and youth coming to knowledge of itself, what it has to go through.
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1r7n9i8/petah_what_do_they_know/o5z1rz6/
+
+People abuse the reporting system as a form of silencing others. Information warfare, trigger the banning systems.
+
+
+https://old.reddit.com/r/CuratedTumblr/comments/1r7qbi2/who_could_have_predicted_that_the_lying_machine/o5zbhet/
+
+ANTI_REALITY
+
+https://old.reddit.com/r/CuratedTumblr/comments/1r7qbi2/who_could_have_predicted_that_the_lying_machine/o5zca1b/
+
+ANTI_REALITY
+
+https://old.reddit.com/r/Wellthatsucks/comments/1r7x023/when_you_skip_validation_for_ai_generated_results/o60ptf2/
+
+GULLIBLE_FANDOM - fiction outsells nonfiction. Part of why ChatGPT works so well. The ELIZA effect. People crave fiction and avoid nonfiction. It is a GULLIBILITY_CRISIS that so many think jokes and humor can not be predatory by billionaire-created AI systems.
+
+* "Finding the occasional straw of truth awash in a great ocean of confusion and bamboozle requires vigilance, dedication and courage. But if we don’t practice these tough habits of thought, we cannot hope to solve the truly serious problems that face us and we risk becoming a nation of suckers" ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995, page 38
+
+* "when awesome technological powers are in the hands of a very few, and **no one representing the public interest can even grasp** the issues; when **the people** have lost the ability to set their own agendas or knowledgeably question those in authority" ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995, page 59
+
+WHEN_THE_PEOPLE_HAVE_LOST_THE_ABILITY   
+NEW_OPERA_NAME: #WhenThePeople    
+Social post { https://autistics.life/@RoundSparrow/116092045648074752 https://MidWest.Social/post/43613327 https://bsky.app/profile/roundsparrow.bsky.social/post/3mf5bckc4622d }

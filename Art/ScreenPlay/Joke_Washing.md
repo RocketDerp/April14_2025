@@ -24,3 +24,10 @@ Page 7 of year 1968 book references page 94 of 1939 book: "The solid man saved b
 OPERA_A Sailing away on the thin ice of a new day. Cracking away. https://www.youtube.com/watch?v=WfEnWvVJEzc 203,944 views February 9, 2017 - back in the "year one", you didn't stand a chance Son of Allah. [عيسى ابن مريم](https://ar.wikipedia.org/wiki/%D8%B9%D9%8A%D8%B3%D9%89_%D8%A8%D9%86_%D9%85%D8%B1%D9%8A%D9%85)
 
 SEE_ALSO: Parallel content [ScreenPlay : A0_Book_Title.md#crackajolking-away](A0_Book_Title.md#crackajolking-away)
+
+&nbsp;
+
+# Gen Z joke life
+
+https://www.youtube.com/shorts/rcfIs8GFnHY
+
