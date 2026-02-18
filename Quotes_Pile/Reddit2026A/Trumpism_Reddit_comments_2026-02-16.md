@@ -664,6 +664,16 @@ https://old.reddit.com/r/International/comments/1r8cesd/let_that_sink_in/o63vozt
 
 See previous comment link in this file. Same 1-day Reddit user got 2nd-most upvoted comment on a front-page posting they created. "countless millions can go online and call him a pedophile and a child rapist, and a pants-shitter" - try quoting nonfiction and serious content from Dr. Bandy X Lee - why is Jen Senko, Dr. Bandy Lee not tpics all over Reddit? They aren't banality-washing shit-commenting shit-posting worship of shit Trump content. The diaper-fetish Epstein fetish old white men having sex cult doesn't want to remove Trump, they want more "pant-shit" diaper fetish stimulation about their media icon celebrity Trump. https://en.wikipedia.org/wiki/Diaper_fetishism
 
-Millions and millions online... "countless millions can go online and call him a pedophile and a child rapist, and a pants-shitter"...
+SUPERFICIAL_SHALLOW_PRIZING_TRUMPISM_MAGA_VALUES Millions and millions online... "countless millions can go online and call him a pedophile and a child rapist, and a pants-shitter"...
 
 * “When a population becomes distracted by trivia, when cultural life is redefined as a perpetual round of entertainments, **when serious public conversation becomes a form of baby-talk**, when, in short, a people become an audience, and their public business a vaudeville act, then a nation finds itself at risk; culture-death is a clear possibility.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. Nonfiction book. year 1985.
+
+https://old.reddit.com/r/International/comments/1r8cesd/let_that_sink_in/o64bvbg/
+
+https://old.reddit.com/r/International/comments/1r8cesd/let_that_sink_in/o641n3n/
+
+STAND_UP_FOR_THE_BIG_GUY
+
+https://old.reddit.com/r/International/comments/1r8cesd/let_that_sink_in/o642hk5/
+
+9 month Reddit account.
