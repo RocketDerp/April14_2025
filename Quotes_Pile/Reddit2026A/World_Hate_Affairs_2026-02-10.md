@@ -554,3 +554,5 @@ https://old.reddit.com/r/SipsTea/comments/1r7hva7/shia_lebeouf_hanging_out_in_ne
 
 Reddit fandom of violence wants to see even more video of ass-kicking. AGGRESSIVE_ESCALATE_HATE_REACT_HARDER_MINDSETS
 
+https://old.reddit.com/r/circled/comments/1r7jubl/talarico_yeah_no_wonder_they_wont_let_you_in_tv/o5yjcnx/
+
