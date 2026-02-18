@@ -698,5 +698,8 @@ GULLIBLE_FANDOM - fiction outsells nonfiction. Part of why ChatGPT works so well
 
 * "Finding the occasional straw of truth awash in a great ocean of confusion and bamboozle requires vigilance, dedication and courage. But if we don’t practice these tough habits of thought, we cannot hope to solve the truly serious problems that face us and we risk becoming a nation of suckers" ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995, page 38
 
-NEW_OPERA_NAME #WhenThePeople    
+* "when awesome technological powers are in the hands of a very few, and **no one representing the public interest can even grasp** the issues; when **the people** have lost the ability to set their own agendas or knowledgeably question those in authority" ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995, page 59
+
+WHEN_THE_PEOPLE_HAVE_LOST_THE_ABILITY   
+NEW_OPERA_NAME: #WhenThePeople    
 Social post { https://autistics.life/@RoundSparrow/116092045648074752 https://MidWest.Social/post/43613327 https://bsky.app/profile/roundsparrow.bsky.social/post/3mf5bckc4622d }
