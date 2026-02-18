@@ -652,3 +652,7 @@ https://old.reddit.com/r/technology/comments/1r88jyb/after_censoring_cbs_trump_w
 
 Top-voted popular comment. Any citizen, age 12 to age 125, who can utilize social media who isn't promoting Dr. Bandy X Lee nonfiction, Jen Senko nonfiction,or Neil Postman nonfiction is not doing their civic duty. CIVIC_DUTY_WE_PEOPLE We The People should be making as much signal about these 3 nonfiction names as possible until all people understand the nonfiction public mindset crisis.   
 
+https://old.reddit.com/r/technology/comments/1r88jyb/after_censoring_cbs_trump_will_go_for_cnn_ive/o6326ac/
+
+ELECTION_DAY_FIXATED_BRAIN_ROT_EVERY_DAY_FOX_NEWS_ETC  The Reddit community is not using the Internet itself to protest. Disorganized commenting is not getting world attention that WE_THE_PEOPLE USA want all the mental health professionals to assist in cult deprogramming. Every day Fox News and Truth Social are getting coverage promoting self-harm and badness. Where is the Reddit community uprising of organized repeating and asserting goodness? Dr. Bandy X Lee's leadership with 27 contributors for example... social media users need to be actively using all their spare time and free time to promote nonfiction from Dr. Lee.
+
