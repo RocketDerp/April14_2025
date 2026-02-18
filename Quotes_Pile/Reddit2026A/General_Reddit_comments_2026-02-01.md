@@ -697,3 +697,6 @@ https://old.reddit.com/r/Wellthatsucks/comments/1r7x023/when_you_skip_validation
 GULLIBLE_FANDOM - fiction outsells nonfiction. Part of why ChatGPT works so well. The ELIZA effect. People crave fiction and avoid nonfiction. It is a GULLIBILITY_CRISIS that so many think jokes and humor can not be predatory by billionaire-created AI systems.
 
 * "Finding the occasional straw of truth awash in a great ocean of confusion and bamboozle requires vigilance, dedication and courage. But if we don’t practice these tough habits of thought, we cannot hope to solve the truly serious problems that face us and we risk becoming a nation of suckers" ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995, page 38
+
+NEW_OPERA_NAME #WhenThePeople    
+Social post { https://autistics.life/@RoundSparrow/116092045648074752 https://MidWest.Social/post/43613327 https://bsky.app/profile/roundsparrow.bsky.social/post/3mf5bckc4622d }
