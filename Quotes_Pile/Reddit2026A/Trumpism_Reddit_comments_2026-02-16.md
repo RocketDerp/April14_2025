@@ -632,3 +632,7 @@ DENIAL_ABOUNDS the rape and conquest of girls, conquest of women, is Trump popul
 
 Reddit community is not facing up to the CULT issues and teaching CULT DEPROGRAMMING. We don't need more advertising and marketing campaigns that promote fiction manipulation. We need to confront the ADDICTION to TRUMP as a source of sex stimulation media for USA population!
 
+https://old.reddit.com/r/UnderReportedNews/comments/1r84t80/the_talarico_for_texas_campaign_raised_25_million/o6357m6/
+
+8 month Reddit account. PROMOTING_SAVIOR_SINGLE_PERSON_OVER_DIVERSE_OPEN_THINKING_IDEAS We need to be dealing with the billionaires that tech cultists, the entire nation of smartphone users, the entire nation of tech social systems, are attracted to and addicted to. The denial of Surkovian information warfare and Cambridge Analytica is a massive crisis. Dr. Bandy X Lee is perhaps the most critical focus that THE GENERAL POPULATION, not even only USA, needs to be learning from. Dr. Lee since year 2017 has been promoting material to educate the general public - all people, We The People, with 27 contributors.
+
