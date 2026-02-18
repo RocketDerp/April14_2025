@@ -788,3 +788,6 @@ https://old.reddit.com/r/PublicFreakout/comments/1r8alle/i_feel_much_safer_with_
 
 AGGRESSIVE_ESCALATE_HATE_REACT_HARDER_MINDSETS
 
+https://old.reddit.com/r/PublicFreakout/comments/1r8alle/i_feel_much_safer_with_undocumented_individuals/o63svjq/
+
+ICE_FANDOM ... no civic duty concern to use Reddit to have a world wide web uprising. ROUTINE_NO_NEED_TO_RESIST_OR_ORGANIZE_INTELLECTUAL_UPRISING
