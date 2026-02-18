@@ -520,3 +520,18 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1r7jmrg/nice_work_losers/o5
 Then why is Reddit community not protesting the wide-spread book burning on Bluesky? The blocking of writing? They didn't have Unicode text and "block button" in Germany 1937, they had to use flame and paper. But Reddit users block each other proudly - just like book burning / magazine burning / banning of books / banning of messages against the machine-think Germany 1937 society. Dehumanizing real people as machines and cheering on the silencing of others via powerful cloud computing systems run by billionaires. People don't even have the media ecology learning from Marshall McLuhan to grasp they are banning modern equivalent of books in electric media form.
 
 Stephen Colbert ears HUGE money and is funded by massive corporations. It is the Little Guy like me who has been banned / blocked on Bluesky and Reddit and nobody stands up for me and I do not ear a single penny or sponsored / funded by anyone to promote corporate America like Colbert does.
+
+https://old.reddit.com/r/science/comments/1r7h4hr/trump_support_in_2024_linked_to_white_americans/o5xdvmr/
+
+https://old.reddit.com/r/science/comments/1r7h4hr/trump_support_in_2024_linked_to_white_americans/o5xcu4q/
+
+https://old.reddit.com/r/science/comments/1r7h4hr/trump_support_in_2024_linked_to_white_americans/o5y3bn1/
+
+Putin is killing people in Ukraine. Trump supports Putin. Donald Trump trusts and encourages Putin. Hate distorts the brain into thinking that killing people in Ukraine is fine. Hate distorts the mind into thinking forcing Canada to be the 51st stage of USA is a good idea. There are many many signs that hate is what Trump provides and people follow hate leadership to adopt hate values.
+
+**The 1954 Equation**
+
+February 28, 1954: "Most people can't stand up for their convictions, because the majority of people might not be doing it. See, everybody's not doing it, so it must be wrong. And since everybody is doing it, it must be right. So a sort of numerical interpretation of what's right. But I'm here to say to you this morning that some things are right and some things are wrong. Eternally so, absolutely so. **It's wrong to hate.** It always has been wrong and it always will be wrong. It's wrong in America, it's wrong in Germany, it's wrong in Russia, it's wrong in China. It was wrong in 2000 B.C., and it's wrong in 1954 A.D. It always has been wrong, and it always will be wrong." - Martin Luther King Jr.
+
+"For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the **true becomes false and the false becomes true**. That's what hate does. You can't see right. **The symbol of objectivity** is lost." - Martin Luther King J
+
