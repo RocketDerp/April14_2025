@@ -594,3 +594,7 @@ CHUCKLEHEAD_NATION Joke-washing to sane-wash Trump. Reddit is a Trump fandom tha
 https://old.reddit.com/r/pics/comments/1r81910/if_ice_wants_to_dox_me_then_get_my_good_side/o61hswl/
 
 "Cringe". Egoism on Reddit. Out-group conformity enforcers for MAGA values. NOT_GOOD_ENOUGH that "We The People", "The Little Guy" stands up to Trump. As Trump is a professional actor and comedy source for TRUMP_FANDOM on Reddit to "LOLCOW" milk every hour of every day since June 16, 2015 - so *cringe* that a Reddit user stands up and puts his REAL IDENTITY and REAL FACE on Reddit like Trump has his REAL FACE worshiped every hour on /r/All with photographs of Trump family... The cult of Trump images can not cope with real non-famous "The Little Guy" standing up and showing real person on Reddit in an information war. Cultists of Trump.
+
+https://old.reddit.com/r/pics/comments/1r81910/if_ice_wants_to_dox_me_then_get_my_good_side/o61hdfr/
+
+For MAGA image cult, NOT_GOOD_ENOUGH that a real person stands up. "Cringe". Cult of cringe on Reddit can't stand up for "The Little Guy" if you don't dress and behave to worship Trump images on /r/All year after year after year for over a decade.
