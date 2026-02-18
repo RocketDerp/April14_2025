@@ -67,7 +67,7 @@ OPERA_A https://www.youtube.com/watch?v=RY7S6EgSlCI جِنّ appear and fade awa
 
 &nbsp;
 
-&nbps;
+&nbsp;
 
 # Tim Finnegan Funeral
 
