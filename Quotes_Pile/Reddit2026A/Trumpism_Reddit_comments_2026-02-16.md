@@ -636,3 +636,7 @@ https://old.reddit.com/r/UnderReportedNews/comments/1r84t80/the_talarico_for_tex
 
 8 month Reddit account. PROMOTING_SAVIOR_SINGLE_PERSON_OVER_DIVERSE_OPEN_THINKING_IDEAS We need to be dealing with the billionaires that tech cultists, the entire nation of smartphone users, the entire nation of tech social systems, are attracted to and addicted to. The denial of Surkovian information warfare and Cambridge Analytica is a massive crisis. Dr. Bandy X Lee is perhaps the most critical focus that THE GENERAL POPULATION, not even only USA, needs to be learning from. Dr. Lee since year 2017 has been promoting material to educate the general public - all people, We The People, with 27 contributors.
 
+https://old.reddit.com/r/UnderReportedNews/comments/1r84t80/the_talarico_for_texas_campaign_raised_25_million/o62nzjx/
+
+RELIGION_CULTS_MONOMYTH_PROGRAMMING We need to be all urgently doing INTELLECTUAL rescue of adults in this nation by teaching emergency remedial Bible Literacy. We have all the information systems, like Reddit, but people are far too engaged commenting and reacting to politicians and celebrities and not doing adult education for all mankind / humankind. We have a lot of experience of horrible Bible interpretation that we can be sharing with the entire planet of over 8 billion people - and fragmented commenting all on different Reddit pages is not the organized teaching we need for how serious and painful these Trump cult MAGA cult lessons have been! Surkov won since year 2013.
+
