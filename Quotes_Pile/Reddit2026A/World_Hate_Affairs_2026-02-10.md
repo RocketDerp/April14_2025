@@ -635,3 +635,8 @@ REMEDIAL_MORALITY
 https://old.reddit.com/r/technology/comments/1r80ynt/meta_ceo_mark_zuckerberg_to_face_jury_in_landmark/o61z8bg/
 
 MEDIA_CULTS_ADDICTIVE_FICTION
+
+https://old.reddit.com/r/technology/comments/1r80ynt/meta_ceo_mark_zuckerberg_to_face_jury_in_landmark/o61f0oe/
+
+ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING    
+Surkov students are light-years beyond what domestic have done. Surkov won since March 2013. SEE_ALSO: https://GitHub.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Cambridge_Analytica_Quotes.md
