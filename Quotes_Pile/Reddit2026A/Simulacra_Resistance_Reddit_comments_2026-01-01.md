@@ -1008,3 +1008,6 @@ https://old.reddit.com/r/MurderedByWords/comments/1r7ia9e/freedom_of_speech_in_d
 
 Government is shutting up Reddit users. So Reddit audience predictably demands others to shut up. Everyone in agreement on the cult of silencing other people. RESISTING_WHAT_EXACTLY
 
+https://old.reddit.com/r/clevercomebacks/comments/1r89lky/he_only_had_good_relationships/o639lja/
+
+4 month Reddit account, top upvoted popular comment. This whole Twitter screenshot pattern is **manipulation of Reddit fandom of Charlie Kirk to simulate resisting**. What is NOT being resisted: spending free time and spare time on these low-effort tiny Twitter-think mindset patterns Elon Musk promotes. This pattern of junk "dead man Kirk is next POTUS candidate" is the killing of the "Woke Mind Virus" that Musk is doing to Reddit. SEE_ALSO: https://www.LeMonde.FR/en/international/article/2024/08/13/elon-musk-s-ambition-repopulating-the-planet-and-destroying-the-woke-virus_6714239_4.html

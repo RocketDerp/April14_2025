@@ -52,3 +52,11 @@ INFINITE_JESTING INFINITE_JEST_MECHANICS
 Exactly what Neil Postman is describing in year 1985 with his **nonfiction** book "Joking Ourselves To Death", New York University, Trump's home town. People can't see that EVERYBODY ALL THE TIME is laughing and mocking at the total mockery created by Surkov students. Russia won the information war exploiting this HIGHLY PREDICTABLE reaction. It blows minds to LOL away issues. Gallows humor has been weaponized. BLIND_FAITH in laughing. Instead of doing a Reddit blackout, REDDIT_BLACKOUT - people are LOL LOL LOL all day every minute of every day for over A DECADE LONG laughter shit-show at Trump! Trump shit-posts on Truth Social and Reddit end-users drag it over to Reddit for crowds frolicking in Trump's shit comedy! The POTUS Tony Clifton act works on Reddit fandom EVERY DAMN TIME!
 
 * “For in the end, he was trying to tell us what afflicted the people in 'Brave New World' was not that they were laughing instead of thinking, but that they did not know what they were laughing about and why they had stopped thinking.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. New York University.
+
+
+https://old.reddit.com/r/WreckedUSA/comments/1r8a8cn/wrecked_usa_a_hitherto_obscure_professor_lee_came/o63ea1l/
+
+I created this new /r/WreckedUSA subreddit today. 2026-02-18 Emphasis on Dr. Bandy X Lee and others not getting coverage.
+
+NEW_OPERA_NAME #WreckedUSA   
+Social post { https://autistics.life/@RoundSparrow/116093137905254759 https://bsky.app/profile/greatsealusa.bsky.social/post/3mf5qq4idzk2k }   

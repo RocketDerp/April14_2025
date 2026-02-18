@@ -614,3 +614,180 @@ Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mf5dnyamtk
 
 OPERA_A https://www.youtube.com/watch?v=QurGAOzAxr8 The Bright Lights of the Apple iPhone / Apple iPad / Android device screens have blinded We The People USA to their own Trump media notification delivery addictions. REPEAT_TRACK 1,023,442 views December 12, 2018 Lyrics: "Mirror, mirror I confess... I can't escape this emptiness... No more reason to pretend!"; Second Trump term in office, third time coming... "I'm going down for the third time! 'Cause I'm snowblind, and I can't get away!" - *because* I'm smartphone blind to Surkov students.
 
+https://old.reddit.com/r/RandomShit_ISaw/comments/1r891xx/breaking_rep_lieu_said_full_epstein_files_show/o638vus/
+
+Top most upvoted comment, most popular. AMUSEMENT_COMEDY_WASHING_TRUMP_AS_FUNNY_MEDIA_SANEWASHING   
+
+https://old.reddit.com/r/RandomShit_ISaw/comments/1r891xx/breaking_rep_lieu_said_full_epstein_files_show/o63epsc/
+
+INFORMATION_GLUT_COMMENTING_GLUT see the replies to the comment. People get such an emotional rush talking about the sexual activity of Donald Trump, comment creation, that they can not engage off-Reddit content to link, quote, cite.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1r84t80/the_talarico_for_texas_campaign_raised_25_million/o629z6w/
+
+BRAIN_ROT_SOCIETY_47 - and why are Reddit community members not talking about WikiTribune ? https://en.wikipedia.org/wiki/WikiTribune Halloween 2017 - haunt the big media! MEDIA_WOKE - I mean LOOK at the date and timeframe of creation, **2017 when Trump had been in office for less than a year**. When it was clear that Reddit social media /r/News /r/WorldNews /r/Politics wasn't cutting it (Trump got elected!), too infiltrated, and a world-wide brand "Wiki" was needed for news... but people on Reddit can not seem to appreciate or grasp the goodness of Wiki and FAQ systems on critical important serious topics! Donation-based, revisions/edits logged, multiple people collaborating and refining information...
+
+https://old.reddit.com/r/UnderReportedNews/comments/1r84t80/the_talarico_for_texas_campaign_raised_25_million/o62itl6/
+
+DENIAL_ABOUNDS the rape and conquest of girls, conquest of women, is Trump popularity. SEX_SELLS_SEX_LEADERS - the "October Surprise" (On October 7, 2016 Putin's Birthday) was a full MONTH ahead of elections. Yet, social media did not have a blackout protest against MAGA and Trump movement. SOCIAL_MEDIA_DID_NOT make a world famous blackout or other technique protest against trump in an entire 30 days! The sex topics of Trump's November 8, 2013 private jet trip to Moscow for Miss Universe and the "pussy grabbing" power of **celebrity media cults** was known and open. https://en.wikipedia.org/wiki/Donald_Trump_Access_Hollywood_tape "when you're **a star**" - Trump is a TV super star!
+
+Reddit community is not facing up to the CULT issues and teaching CULT DEPROGRAMMING. We don't need more advertising and marketing campaigns that promote fiction manipulation. We need to confront the ADDICTION to TRUMP as a source of sex stimulation media for USA population!
+
+https://old.reddit.com/r/UnderReportedNews/comments/1r84t80/the_talarico_for_texas_campaign_raised_25_million/o6357m6/
+
+8 month Reddit account. PROMOTING_SAVIOR_SINGLE_PERSON_OVER_DIVERSE_OPEN_THINKING_IDEAS We need to be dealing with the billionaires that tech cultists, the entire nation of smartphone users, the entire nation of tech social systems, are attracted to and addicted to. The denial of Surkovian information warfare and Cambridge Analytica is a massive crisis. Dr. Bandy X Lee is perhaps the most critical focus that THE GENERAL POPULATION, not even only USA, needs to be learning from. Dr. Lee since year 2017 has been promoting material to educate the general public - all people, We The People, with 27 contributors.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1r84t80/the_talarico_for_texas_campaign_raised_25_million/o62nzjx/
+
+RELIGION_CULTS_MONOMYTH_PROGRAMMING We need to be all urgently doing INTELLECTUAL rescue of adults in this nation by teaching emergency remedial Bible Literacy. We have all the information systems, like Reddit, but people are far too engaged commenting and reacting to politicians and celebrities and not doing adult education for all mankind / humankind. We have a lot of experience of horrible Bible interpretation that we can be sharing with the entire planet of over 8 billion people - and fragmented commenting all on different Reddit pages is not the organized teaching we need for how serious and painful these Trump cult MAGA cult lessons have been! Surkov won since year 2013.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1r84t80/the_talarico_for_texas_campaign_raised_25_million/o62b8yp/
+
+STAND_UP_FOR_THE_BIG_GUY this low-effort short message entirely misses the point. This is a "Big Guy" who has HUGE connections and social networks in Texas. He talks about how many generations of his family, etc. He is "The Establishment". Censorship against "The Little Guy" like Jen Senko and Dr. Bandy X Lee... social media users are still steering people towards HUGE ESTABLISHMENT BIG MONEY Stephen Colbert (estimated net worth of $75 million to $80 million.). The real censorship is intelligent "The Little Guy" like Jen Senko that Reddit society is ignoring NOT_GOOD_ENOUGH Jen Senko. https://en.wikipedia.org/wiki/Jen_Senko
+
+https://old.reddit.com/r/videos/comments/1r867x1/rep_lieu_says_epstein_files_have_allegations_of/o62kz5z/
+
+Top-upvoted most popular comment. PROMOTING_IGNORANCE_WORKS_PLAYING_DUMB_MOCKING
+
+https://old.reddit.com/r/technology/comments/1r88jyb/after_censoring_cbs_trump_will_go_for_cnn_ive/o634kvq/
+
+Top-voted popular comment. Any citizen, age 12 to age 125, who can utilize social media who isn't promoting Dr. Bandy X Lee nonfiction, Jen Senko nonfiction,or Neil Postman nonfiction is not doing their civic duty. CIVIC_DUTY_WE_PEOPLE We The People should be making as much signal about these 3 nonfiction names as possible until all people understand the nonfiction public mindset crisis.   
+
+https://old.reddit.com/r/technology/comments/1r88jyb/after_censoring_cbs_trump_will_go_for_cnn_ive/o6326ac/
+
+ELECTION_DAY_FIXATED_BRAIN_ROT_EVERY_DAY_FOX_NEWS_ETC  The Reddit community is not using the Internet itself to protest. Disorganized commenting is not getting world attention that WE_THE_PEOPLE USA want all the mental health professionals to assist in cult deprogramming. Every day Fox News and Truth Social are getting coverage promoting self-harm and badness. Where is the Reddit community uprising of organized repeating and asserting goodness? Dr. Bandy X Lee's leadership with 27 contributors for example... social media users need to be actively using all their spare time and free time to promote nonfiction from Dr. Lee.
+
+https://old.reddit.com/r/International/comments/1r8cesd/let_that_sink_in/o63vn3c/
+
+1 day account, front page post creator, top most-upvoted comment. Read the reply comments. WOKE_TO_WHAT_EXACTLY ... that GOP is a cult of junk media. This Reddit post title is horrible "Let that sink in" is entirely generic and non-specific clickbait. Promoting pro-ignorant headlines. 
+
+https://old.reddit.com/r/International/comments/1r8cesd/let_that_sink_in/o63vozt/
+
+See previous comment link in this file. Same 1-day Reddit user got 2nd-most upvoted comment on a front-page posting they created. "countless millions can go online and call him a pedophile and a child rapist, and a pants-shitter" - try quoting nonfiction and serious content from Dr. Bandy X Lee - why is Jen Senko, Dr. Bandy Lee not tpics all over Reddit? They aren't banality-washing shit-commenting shit-posting worship of shit Trump content. The diaper-fetish Epstein fetish old white men having sex cult doesn't want to remove Trump, they want more "pant-shit" diaper fetish stimulation about their media icon celebrity Trump. https://en.wikipedia.org/wiki/Diaper_fetishism
+
+SUPERFICIAL_SHALLOW_PRIZING_TRUMPISM_MAGA_VALUES Millions and millions online... "countless millions can go online and call him a pedophile and a child rapist, and a pants-shitter"...
+
+* “When a population becomes distracted by trivia, when cultural life is redefined as a perpetual round of entertainments, **when serious public conversation becomes a form of baby-talk**, when, in short, a people become an audience, and their public business a vaudeville act, then a nation finds itself at risk; culture-death is a clear possibility.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. Nonfiction book. year 1985.
+
+https://old.reddit.com/r/International/comments/1r8cesd/let_that_sink_in/o64bvbg/
+
+https://old.reddit.com/r/International/comments/1r8cesd/let_that_sink_in/o641n3n/
+
+STAND_UP_FOR_THE_BIG_GUY
+
+https://old.reddit.com/r/International/comments/1r8cesd/let_that_sink_in/o642hk5/
+
+9 month Reddit account.
+
+https://old.reddit.com/r/International/comments/1r8cesd/let_that_sink_in/o64347o/
+
+Scattered all over Reddit in a disorganized reactionary explosive way, then 48 hours later everyone is on to the next topic. Drowning important topics. The anti-FAQ anti-WiKi anti-organizing non-refinement of Reddit culture is what has made Trump bubble to the top of society leadership. ANTI_WIKI_ANTI_FAQ
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1r8bu6e/i_a_gay_maga_have_betrayed_my_own_community_i/o63s203/
+
+ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1r8bu6e/i_a_gay_maga_have_betrayed_my_own_community_i/o63sbia/
+
+CONDITIONED_OPPOSITION predictable. This is a cult of right-wing media for humor. This is a cult of mind-blowing amusement. Surkov won since March 2013. LAUGHTER_THE_BEST_MINDFUCK To understand how Surkov students defeated NATO populations, especially USA, study this attitude.
+
+* “For in the end, he was trying to tell us what afflicted the people in 'Brave New World' was not that they were laughing instead of thinking, but that they did not know what they were laughing about and why they had stopped thinking.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. year 1985. New York University (Trump's home town).
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1r8bu6e/i_a_gay_maga_have_betrayed_my_own_community_i/o63tfgj/
+
+Boss man mentality. Corporation / business owns you mentality. These Reddit comments discuss the crisis of thinking and mindsets, but this subreddit is an echo-chamber of normalizing badness at hyper speeds. ROUTINE_NO_NEED_TO_RESIST_OR_ORGANIZE_INTELLECTUAL_UPRISING
+
+* https://BillMoyers.com/story/trump-the-american-fascist/ March 11, 2016 (before election) Bill Moyers writes: Robert Reich’s essay, “Trump The American Fascist,” reminded me that back in November (2015) Reich had posted as his “Quote of the Week” an excerpt from an April 9, 1944, speech by then Vice-President Henry Wallace. Let it sink in: “The American fascists are most easily recognized by their deliberate perversion of truth and fact. Their newspapers and propaganda carefully cultivate every fissure of disunity… They claim to be super-patriots, but they would destroy every liberty guaranteed by the Constitution. They demand free enterprise, but are the spokesmen for monopoly and vested interest. Their final objective toward which all their deceit is directed is to capture political power so that, using the power of the state and the power of the market simultaneously, they may keep the common man in eternal subjection.”
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1r8bu6e/i_a_gay_maga_have_betrayed_my_own_community_i/o63sjay/
+
+Reddit comment creators who post hour after hour, day after day, engaged with MAGA / Trump / Musk programming content media... who do not have self-awareness they are in a MEDIA_CULTS_ADDICTIVE_FICTION media cult of mocking and mockery, back and forth with MAGA via high-speed TCP/IP message... are gross. They are enablers, feeding all the billionaire-crated networked media systems... without asserting cult deprogramming. Dr. Bandy X Lee's since year 2017 has been publishing about mental health but NOT_GOOD_ENOUGH for Reddit users to put an end to the shit-posting "conservative MAGA' content on Reddit and shit-commenting about it. Surkov won since March 2013 and nobody is bother to use Dr. Bandy X Lee quotes and teaching as a resistance to Surkov students!
+
+https://old.reddit.com/r/politics/comments/1r87pze/half_of_americans_think_donald_trump_was_involved/o62uc9w/
+
+We The People, celebrity cultists nation, think it is MORE than OK. It is stimulating media engagement. Al the media systems are covering every move and shake and rumor and bullshit created by Trump in his lifetime. Trump is a constant source of TCP/IP content source, never-ending perpetual media influencer. FEEDBACK_LOOP_MEDIA_CULTS_PLATFORM_TO_PLATFORM_MOCKERY_USA
+
+Donald Trump offers what no other politician in history has ever had on the planetary world stage... endless content. Joe Biden was considered incredibly boring to media-addiction driven USA population. SEE_ALSO: **September 10, 2025 - "The 40-Year-Old Book That Predicted Our Dystopian Politics"** https://Time.com/7313999/neil-postman-trump-prediction/
+
+https://old.reddit.com/r/politics/comments/1r87pze/half_of_americans_think_donald_trump_was_involved/o62ubs7/
+
+5 month Reddit account. popular upvoted comment. over half the nation has been mind-fucked by billionaires and wants to brush the extremely serious problem of billionaire media systems (Rupert Murdoch, Elon Musk Twitter, Trump Truth Social, media cult investors all) under the rug by deporting people to Cuba or Epstein's private island and the media cult growth with magically stop. The society was NOT LIKE THIS year 2012 and before, and Reddit community ignores the raging Fox News HDTV cult issues. PREDATORY_BILLIONAIRE_SYSTEMS
+
+https://old.reddit.com/r/politics/comments/1r87pze/half_of_americans_think_donald_trump_was_involved/o62ul1a/
+
+They know how to read, USA population has aggressively abandoned and do not read relevant nonfiction. We The People read low-effort short-length social **commenting and do not engage serious nonfiction books to study how billionaires use media systems to create cults** like Reddit has numerous cults of worshiping celebrity content "memes" that billionaires contract and have intellectual property rights / copyright over. READING_VS_FILM cult topics. Shit-commenting cults (USA population since year 2013) have drowned out relevant important critical topics.
+
+* Year 1985, New York University: "in Huxley's vision, no Big Brother is required to deprive people of their autonomy, maturity and history. As he saw it, people will come to love their oppression, to adore the **tech**nologies that undo their capacities to think. What Orwell feared were those who would ban books. What Huxley feared was that **there would be no reason to ban a book, for there would be no one who wanted to read one**. Orwell feared those who would deprive us of information. Huxley feared those who would give us so much that **we would be reduced to passivity and egoism**. Orwell feared that the truth would be concealed from us. Huxley feared the truth would be drowned in a sea of irrelevance."; "This book is about the possibility that Huxley, not Orwell, was right.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. Book, published year 1985, in the **nonfiction** section of the public library.
+
+https://old.reddit.com/r/SipsTea/comments/1r89yo6/sad_but_true/o63nyn0/
+
+Technology allows predators to organize and use information much more aggressively to target weak, burdened (family dependents), and distracted individuals. Business systems actively seek out "opportunity" to identify people who can be manipulated it expanding their consumerism. Children are indoctrinated into Disney Star Wars, Rupert Murdoch Fox News CULT_INDOCTRINATION , and other massive media corporations. Children are a prime target to engage at a young age to get the billionaire media programming (intellectual property) deep into their language and meme development. SEE_ALSO: Rick Roderick's SELF_UNDER_SIEGE 1993 lectures.
+
+* "It’s a strategy of **power** based on keeping any opposition there may be constantly confused, a ceaseless shape-shifting that is unstoppable because it’s indefinable This **fusion of despotism** and postmodernism, in which no truth is certain, is reflected in the craze among the Russian **elite** for **neuro-linguistic programming**" - October 20, 2011 https://www.lrb.co.uk/the-paper/v33/n20/peter-pomerantsev/putin-s-rasputin
+
+Meme mind programming power of elites. And that was published way back in year 2011, the ability billionaires / elites have developed since year 2022 with Large Language Model and image meme generation models (artificial intelligence) is stagger, the wealth **Elon Musk has invested alone in "Woke Mind Virus" manipulation of the population**. SEE_ALSO: https://www.lemonde.fr/en/international/article/2024/08/13/elon-musk-s-ambition-repopulating-the-planet-and-destroying-the-woke-virus_6714239_4.html
+
+https://old.reddit.com/r/politics/comments/1r8dmcm/karoline_leavitt_says_all_truth_social_posts_are/o645csb/
+
+Top-upvoted most popular comment. SATIRE_SARCASM_WASHING to normalize this. Fandom of Trump hangs out on Reddit in competition to wash and clean the minds, brain-wash sane-wash, the situation. This Reddit comment was the most crowd pleasing of the White House media cults.
+
+https://old.reddit.com/r/politics/comments/1r8dmcm/karoline_leavitt_says_all_truth_social_posts_are/o645ctw/
+
+Can't understand or comprehend. GULLIBLE_FANDOM to White House content. Hangs out on Reddit, as soon as this posting appears they were commenting at extreme high speeds in a race to get their message shared.
+
+https://old.reddit.com/r/politics/comments/1r8dmcm/karoline_leavitt_says_all_truth_social_posts_are/o64b014/
+
+"It's like the **4chan presidency**.", "it's embarrassing" - this Reddit user is entirely ignorant of Surkov techniques. Reddit comment creators know Internet fandoms, but they do not engage serious nonfiction learning about Putin and Trump's relationship. Always avoiding relevant nonfiction on Reddit to put an end to the shit-show Trumpism MAGA fandom: NOT_GOOD_ENOUGH Peter Pomerantsev https://en.wikipedia.org/wiki/Peter_Pomerantsev
+
+REPEATING_REPEATER "It's like the **4chan presidency**." - HYPER_REAL_PRESIDENT WHITE_HOUSE_HYPER_REAL - Texan Rick Roderick 1993 "And I think that here we get – and, I mean, I guess my politics are showing again – but here we get the phenomenon of Reagan, the hyperreal president." Duke University SEE_ALSO https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
+
+https://old.reddit.com/r/politics/comments/1r8dmcm/karoline_leavitt_says_all_truth_social_posts_are/o646ejw/
+
+6 month Reddit account. BRAIN_ROT_SOCIETY_47
+
+https://old.reddit.com/r/politics/comments/1r8dmcm/karoline_leavitt_says_all_truth_social_posts_are/o649pmk/
+
+Reddit cult of commenting avoids nonfiction learning. NOT_GOOD_ENOUGH Dr. Bandy X Lee On the topic of the inauguration crowd size...
+
+**QUOTE FROM YEAR 2017 NONFICTION BOOK FOLLOWS:**   
+
+Often, people with NPD resort to an insidious strategy called gaslighting — a term drawn from the 1938 play about a man who persuaded his wife she was crazy by, among other means, dimming the gaslights and claiming he’d never touched them. As people with NPD become increasingly psychotic, they’re determined to **convince others that they’re the “crazy” ones who can’t see reality** for what it is. Gaslighting reassures pathological narcissists that their own grip on reality remains firm because they can’t bear to acknowledge their sanity is slipping away. We might ask if we’re seeing this now, as Trump and his closest advisers appear on TV claiming he didn’t make statements that journalists often simply play back — or if **it’s a tweet**, flash an image — to prove that he did indeed say what he said.
+
+Lately, these incidents have become commonplace. Many in the press and public at large now refer to them as alternative facts, alluding to Trump spokesperson Kellyanne Conway’s now infamous “explanation” for why Sean Spicer had berated the press for **misreporting Trump’s inauguration size**: “this was the largest audience to ever witness an inauguration, period, both in person and around the globe,” Spicer peevishly told a stunned press corps. This turned out to be patently false, though Conway defended the statement, saying Spicer had simply been providing “alternative facts.”
+
+Those who **embrace Trump’s reality**, where the mainstream media lies and remains “the enemy,” signify their support with red hats bearing the inscription MAGA (Make America Great Again). Those who believe what the news reports about Trump have donned the symbol of resistance — pink pussy hats, a reference to his now infamous hot mic comments about women, “I just grab ’em by the pussy…”
+
+That the country is currently split — and **our shared reality** with it — seems without question at this point.
+
+― Bandy X Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. October 3, 2017. Page 58.](https://books.google.com/books?id=pYaFDwAAQBAJ&pg=PA58&dq=insidious+strategy+called+gaslighting+%E2%80%94+a+term+drawn+from+the+1938+play+about+a+man+who+persuaded+his+wife+she+was+crazy+by&hl=en&newbks=1&newbks_redir=1&sa=X)
+
+https://old.reddit.com/r/law/comments/1r83ywj/fbi_witness_states_trump_commerce_secretary/o625r88/
+
+Top-upvoted most popular comment. Tweet-length. ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING there is no call for a social media uprising and call for resignations. People just keep waiting around on social devices for the next Trump news item to comment upon. Reddit is a cult of commenting. CIVIC_DUTY_WE_PEOPLE to organize FAQ and organize Wiki on serious topics is avoided in favor of scattered anti-Wiki anti-FAQ short-length commenting on different pages as "engagement" to Trump content.
+
+
+https://old.reddit.com/r/law/comments/1r83ywj/fbi_witness_states_trump_commerce_secretary/o6258ln/
+
+... Bellevue Washington 1997 on private staff I was hired because of my Telos Federal Systems (Pentagon military information systems) Apprentice background to run the secret messaging systems and asset prep and travel data information. The social power in 1998 was staggering with sports team headlines of purchasing NFL team... ESPN Internet ... Hollywood films. "Vulcan Productions: Formed in 1997 as a film company focusing on independent films and documentaries." DreamWorks SKG. All kinds of Hollywood players / sports stars and connections on that private cruise ships and private jets.
+
+The RECENCY_BIAS on Reddit has completely forgotten the Miss Universe October 8, 2013 Moscow connection. And what Putin is doing with Ukraine children of all genders. https://en.wikipedia.org/wiki/Child_abductions_in_the_Russo-Ukrainian_war Look what billionaires in Russia have been doing to girls: "In 1999 it was reported that **women in Russia earned 43 percent** of what men did." https://en.wikipedia.org/wiki/Mail-order_bride There used to be phrase in USA for that kind of systemic exploitation, "barefoot and pregnant" often associated with Dr. Arthur E. Hertzler. Putin has made it warfare to capture children, sex trade for indoctrination.  
+
+Now that Trump has gone all in with Putin values, MAGA Russian mindsets, MAXIMUM_PUTINIZATION - it must feel even worse to be a young girl or woman in Ukraine and Russia right now! State terrorism and woman bounty. OPERA_A Women... girls... "bounty on my soul"... Putin and Trump.. Putnization. https://www.youtube.com/watch?v=g31PJHmxG6o Million dollars on your soul, girls. 
+520 views February 15, 2026
+
+https://old.reddit.com/r/PublicFreakout/comments/1r8alle/i_feel_much_safer_with_undocumented_individuals/o63ieod/
+
+ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING
+
+https://old.reddit.com/r/PublicFreakout/comments/1r8alle/i_feel_much_safer_with_undocumented_individuals/o63owar/
+
+https://old.reddit.com/r/PublicFreakout/comments/1r8alle/i_feel_much_safer_with_undocumented_individuals/o63i1u1/
+
+GULLIBILITY_CRISIS of how billionaires are controlling Reddit.
+
+https://old.reddit.com/r/PublicFreakout/comments/1r8alle/i_feel_much_safer_with_undocumented_individuals/o64b2qm/
+
+AGGRESSIVE_ESCALATE_HATE_REACT_HARDER_MINDSETS
+
+https://old.reddit.com/r/PublicFreakout/comments/1r8alle/i_feel_much_safer_with_undocumented_individuals/o63svjq/
+
+ICE_FANDOM ... no civic duty concern to use Reddit to have a world wide web uprising. ROUTINE_NO_NEED_TO_RESIST_OR_ORGANIZE_INTELLECTUAL_UPRISING

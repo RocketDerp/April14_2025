@@ -12,8 +12,9 @@ Thank you. [Love to all](Quotes_Pile/Specific/MLKjr_revolution_of_values.md).
 
 &nbsp;
 
-* "Survival is the second law of life. The first is that we are all one."
-*  - *A Joseph Campbell Companion: Reflections on the Art of Living*, page 37
+* "Survival is the second law of life. The first is that **we are all one**." — from *A Joseph Campbell Companion: Reflections on the Art of Living*, page 37
+ 
+* "Il avait fait alors une grande démonstration de sa découverte à un Congrès International d'Astronomie. Mais personne ne l'avait cru à cause de son costume. Les grandes personnes sont comme ça." - [published year 1943. Antoine de Saint-Exupéry](/Art/ScreenPlay/Aviator/Little_Prince_Turkish_Discovery.md)
  
 &nbsp;
 

@@ -2,7 +2,7 @@ https://old.reddit.com/r/worldnews/comments/1r112th/trump_demands_at_least_half_
 
 Reddit fandom to Trump does the same thing. 1. Hate-watch Trump constantly for notification to comment as fast as possible on meme platforms. 2. Describe Trump's behavior for social media peers. 3. Do anything and everything **to avoid these non-fiction** teachers and authors on the Reddit media cult { Dr. Bandy X Lee, New York University Neil Postman, **University of Toronto** Marshall McLuhan, Johns Hopkins University Peter Pomerantsev }. 4. Call MAGA a cult, call Fox News audience a cult... call hundreds of millions of out-group people cultists, but do not recognize the immediate Reddit cults to mocking and mockery. Media systems cultists all.
 
-Reddit users swimming in low-effort commenting, avoiding the listed authors in the previous paragraph, can not see the attraction to Reddit commenting media people swim in.
+Reddit users swimming in low-effort commenting, avoiding the listed authors in the previous paragraph, can not see the attraction to Reddit commenting media peoples swim in.
 
 * <img width="1832" height="855" alt="image" src="https://github.com/user-attachments/assets/ede547d1-9c48-4514-ab28-8f1d647ea118" />
 * * “A Message to the Fish: One thing about which fish know exactly nothing is water, since they have no anti-environment which would enable them to perceive the element they live in.” ― Marshall McLuhan, [War and Peace in the Global Village](https://en.Wikipedia.org/wiki/War_and_Peace_in_the_Global_Village). Year 1968. Page 174. Nonfiction book.
@@ -622,7 +622,7 @@ ROUTINE_NO_NEED_TO_RESIST_OR_ORGANIZE_INTELLECTUAL_UPRISING
 
 https://old.reddit.com/r/worldnews/comments/1r7v4k3/zelenskyy_unfair_that_trump_publicly_urges/o60da5e/
 
-Why are Reddit community members making low-effort comments instead of organizing an intellectual resistance? REDDIT_BLACKOUT Why are people on Reddit not promoting, quoting, repeating Dr. Bandy X Lee's nonfiction public education on Trump's mental health and DANGER to society over and over? ANSWER: Reddit is a cult of Trump and is not making serious life-saving effort to organize information and stay focused on what is important. Because the cult symptom is attraction to the actor's performance... to more Trump content, not removing Trump.
+Why are Reddit community members making low-effort comments instead of organizing an intellectual resistance? REDDIT_BLACKOUT Why are people on Reddit not promoting, quoting, repeating Dr. Bandy X Lee's nonfiction public education on Trump's mental health and DANGER to society over and over? ANSWER: Reddit is a cult of Trump and is not making serious life-saving education efforts to organize information and stay focused on what is important. Because the cult symptom is attraction to the actor's performance... to more Trump content, not removing Trump.
 
 https://old.reddit.com/r/technology/comments/1r80ynt/meta_ceo_mark_zuckerberg_to_face_jury_in_landmark/o61hfno/
 
@@ -640,3 +640,15 @@ https://old.reddit.com/r/technology/comments/1r80ynt/meta_ceo_mark_zuckerberg_to
 
 ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING    
 Surkov students are light-years beyond what domestic have done. Surkov won since March 2013. SEE_ALSO: https://GitHub.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Cambridge_Analytica_Quotes.md
+
+https://old.reddit.com/r/worldnews/comments/1r845ms/kremlin_threatens_to_deploy_navy_if_europe_seizes/o624ds9/
+
+"amused". SURKOVIAN_ONION_EATING Reddit audience eats up Putin / Kremlin information warfare without any self-awareness. People on Reddit are unable to cite Surkov, cite NOT_GOOD_ENOUGH Peter Pomerantsev. 
+
+https://old.reddit.com/r/SipsTea/comments/1r89dyz/he_cooked/o63dc2l/
+
+5 month Reddit account is most-upvoted top. Asking a "why" question instead of declaring it bad. ANSWER: it draws an audience, which it did right on Reddit.
+
+https://old.reddit.com/r/science/comments/1r89keb/high_iq_men_tend_to_be_less_conservative_than/o63jqqf/
+
+BRAIN_ROT_LEFT_RIGHT_LIB_CON_NAME_AVOIDANCE

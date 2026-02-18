@@ -64,3 +64,14 @@ OPERA_A https://www.youtube.com/watch?v=0H6re3PCP3E 11,749,234 views February 26
 * "Can't miss a beat"... ... "A Hindu text says, “A dangerous path is this, **like the edge of a razor**.” This is a motif that occurs in medieval literature, also. When Lancelot goes to rescue Guinevere from captivity, he has to cross a stream on a sword’s edge with his bare hands and feet, a torrent flowing underneath. When you are doing something that is a brand-new adventure, breaking new ground, whether it is something like a technological breakthrough or simply a way of living that is not what the community can help you with, there’s always **the danger of too much enthusiasm, of neglecting certain mechanical details**. Then you fall off. “A dangerous path is this.” When you follow the path of your desire and enthusiasm and emotion, keep your mind in control, and don’t let it pull you compulsively into disaster."
 
 OPERA_A https://www.youtube.com/watch?v=RY7S6EgSlCI جِنّ appear and fade away, go away and come back another day. جِنّ appear and fade away. 57,145,422 views May 23, 2013 day after day.. it reappears. My heartbeat shows...
+
+&nbsp;
+
+&nbsp;
+
+# Tim Finnegan Funeral
+
+HashTag #TimFinneganFuneral    
+
+https://bsky.app/profile/roundsparrow.bsky.social/post/3mf5h46stuk2p   
+https://autistics.life/@RoundSparrow/116092457594659138   
