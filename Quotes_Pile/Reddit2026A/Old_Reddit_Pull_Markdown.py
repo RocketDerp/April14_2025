@@ -754,11 +754,12 @@ def main():
     start = args.skip_to
     end = start + args.stop_after if args.stop_after else len(entries)
     entries = entries[start:end]
-    errorCountA = 0
+    error_count_a = 0
 
     total = len(entries)
     for idx, (url, commentary) in enumerate(entries, start=start + 1):
         print("=" * 80)
+        # ToDo: move entry_out variable up here earlier, clean this mess up
         print(f"Entry {idx} ({idx - start}/{total}) - URL to fetch:")
         print(url)
 
@@ -769,8 +770,8 @@ def main():
                 args=args
             )
         except Exception as e:
-            errorCountA += 1
-            print(f"\n****** ERROR fetching comment: {e}. Error count: {errorCountA}")
+            error_count_a += 1
+            print(f"\n****** ERROR fetching comment: {e}. Error count: {error_count_a}")
             print(traceback.format_exc())
             print("GOING TO PAUSE 5 seconds before saving the error")
             quit_request = pause_with_quit(5)
@@ -800,7 +801,7 @@ def main():
 
         reddit_comment = data['comment']
 
-        entry_out = f"entry {idx} ({idx - start}/{total}"
+        entry_out = f"entry {idx} ({idx - start}/{total})"
         progress_note = entry_out
         # for now, squelch the unique entry index total for updating same file
         entry_out = f"entry {idx}"
@@ -829,8 +830,8 @@ def main():
 
         if commentary:
             output_lines.append("> [!NOTE]")
-            # shove the commetnary markdown into a ">" reply pattern
-            #   as github will render that all into note section
+            # shove the commentary markdown into a ">" reply pattern
+            #   as GitHub will render that all into note section
             # ToDo: currently breaks note block rendering when image is in output
             commentary_into_reply = commentary.replace("\n", "\n> ")
             output_lines.append(f"> :::::: Analysis_Thoughts Commentary: ======  ")
@@ -862,9 +863,9 @@ def main():
         summaryfile.write(f"{args.output}\n")
         summaryfile.write(f"    end {endtime_iso_with_ms}\n")
 
-        if errorCountA + error_count_b + error_fetch_count + error_parse_a_count > 0:
-            print(f"\nERRORS encountered! Final error counts, A: {errorCountA} B: {error_count_b} error_fetch_count: {error_fetch_count} error_parse_a_count: {error_parse_a_count}")
-            summaryfile.write(f"\nERRORS encountered! Final error counts, A: {errorCountA} B: {error_count_b} error_fetch_count: {error_fetch_count} error_parse_a_count: {error_parse_a_count}\n")
+        if error_count_a + error_count_b + error_fetch_count + error_parse_a_count > 0:
+            print(f"\nERRORS encountered! Final error counts, A: {error_count_a} B: {error_count_b} error_fetch_count: {error_fetch_count} error_parse_a_count: {error_parse_a_count}")
+            summaryfile.write(f"\nERRORS encountered! Final error counts, A: {error_count_a} B: {error_count_b} error_fetch_count: {error_fetch_count} error_parse_a_count: {error_parse_a_count}\n")
 
         if fetch_reddit_count_a > 0:
             print(f"Live fetch to Reddit count: {fetch_reddit_count_a}")
