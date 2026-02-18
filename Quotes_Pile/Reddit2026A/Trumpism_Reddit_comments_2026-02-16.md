@@ -707,3 +707,7 @@ https://old.reddit.com/r/politics/comments/1r87pze/half_of_americans_think_donal
 We The People, celebrity cultists nation, think it is MORE than OK. It is stimulating media engagement. Al the media systems are covering every move and shake and rumor and bullshit created by Trump in his lifetime. Trump is a constant source of TCP/IP content source, never-ending perpetual media influencer. FEEDBACK_LOOP_MEDIA_CULTS_PLATFORM_TO_PLATFORM_MOCKERY_USA
 
 Donald Trump offers what no other politician in history has ever had on the planetary world stage... endless content. Joe Biden was considered incredibly boring to media-addiction driven USA population. SEE_ALSO: **September 10, 2025 - "The 40-Year-Old Book That Predicted Our Dystopian Politics"** https://Time.com/7313999/neil-postman-trump-prediction/
+
+https://old.reddit.com/r/politics/comments/1r87pze/half_of_americans_think_donald_trump_was_involved/o62ubs7/
+
+5 month Reddit account. popular upvoted comment. over half the nation has been mind-fucked by billionaires and wants to brush the extremely serious problem of billionaire media systems (Rupert Murdoch, Elon Musk Twitter, Trump Truth Social, media cult investors all) under the rug by deporting people to Cuba or Epstein's private island and the media cult growth with magically stop. The society was NOT LIKE THIS year 2012 and before, and Reddit community ignores the raging Fox News HDTV cult issues. PREDATORY_BILLIONAIRE_SYSTEMS
