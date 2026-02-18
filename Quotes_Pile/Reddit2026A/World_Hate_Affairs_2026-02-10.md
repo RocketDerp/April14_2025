@@ -530,3 +530,4 @@ https://old.reddit.com/r/worldnews/comments/1r7huaj/we_simply_dont_have_any_left
 
 Alas, the Internet Research Agency started ramping up in March of year 2013, before November 8, 2013 Trump private jet flight to Moscow for the sex show, before the December 2013 "Conservative International" movement was announced by the Kremlin. Then came the "little green men" in early year 2014. But the IRA psychological ops, psyops, already blew out hearts and minds to { downplay, chuckle, laugh, joke, mock } at what Russia was doing. Surkov won since March 2013 by turning NATO into a joke. Russia won the hearts and minds to all joke-away and LOL at serious dangers and threats. **December 5, 2014 it was called out that Russia intended to make a "Joke of NATO"**. https://github.com/RocketDerp/April14_2025/blob/main/Art/ScreenPlay/USA/Joke_of_NATO.md
 
+https://old.reddit.com/r/worldnews/comments/1r7huaj/we_simply_dont_have_any_left_germany_has_run_out/o5xzy5l/
