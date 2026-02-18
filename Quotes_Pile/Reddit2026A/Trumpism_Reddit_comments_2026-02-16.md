@@ -656,3 +656,6 @@ https://old.reddit.com/r/technology/comments/1r88jyb/after_censoring_cbs_trump_w
 
 ELECTION_DAY_FIXATED_BRAIN_ROT_EVERY_DAY_FOX_NEWS_ETC  The Reddit community is not using the Internet itself to protest. Disorganized commenting is not getting world attention that WE_THE_PEOPLE USA want all the mental health professionals to assist in cult deprogramming. Every day Fox News and Truth Social are getting coverage promoting self-harm and badness. Where is the Reddit community uprising of organized repeating and asserting goodness? Dr. Bandy X Lee's leadership with 27 contributors for example... social media users need to be actively using all their spare time and free time to promote nonfiction from Dr. Lee.
 
+https://old.reddit.com/r/International/comments/1r8cesd/let_that_sink_in/o63vn3c/
+
+1 day account, front page post creator, top most-upvoted comment. Read the reply comments. WOKE_TO_WHAT_EXACTLY ... that GOP is a cult of junk media. This Reddit post title is horrible "Let that sink in" is entirely generic and non-specific clickbait. Promoting pro-ignorant headlines. 
