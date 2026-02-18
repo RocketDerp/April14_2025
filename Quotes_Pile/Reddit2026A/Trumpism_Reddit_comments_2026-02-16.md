@@ -795,3 +795,9 @@ ICE_FANDOM ... no civic duty concern to use Reddit to have a world wide web upri
 https://old.reddit.com/r/PublicFreakout/comments/1r8alle/i_feel_much_safer_with_undocumented_individuals/o64ntwc/
 
 BRAIN_ROT_SOCIETY_47 
+
+https://old.reddit.com/r/law/comments/1r87p0d/colonel_sentenced_to_two_years_in_prison_for/o62z1wg/
+
+https://old.reddit.com/r/law/comments/1r87p0d/colonel_sentenced_to_two_years_in_prison_for/o631hmv/
+
+STAND_UP_FOR_THE_BIG_GUY  
