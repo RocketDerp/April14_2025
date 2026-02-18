@@ -774,3 +774,7 @@ The RECENCY_BIAS on Reddit has completely forgotten the Miss Universe October 8,
 Now that Trump has gone all in with Putin values, MAGA Russian mindsets, MAXIMUM_PUTINIZATION - it must feel even worse to be a young girl or woman in Ukraine and Russia right now! State terrorism and woman bounty. OPERA_A Women... girls... "bounty on my soul"... Putin and Trump.. Putnization. https://www.youtube.com/watch?v=g31PJHmxG6o Million dollars on your soul, girls. 
 520 views February 15, 2026
 
+https://old.reddit.com/r/PublicFreakout/comments/1r8alle/i_feel_much_safer_with_undocumented_individuals/o63ieod/
+
+ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING
+
