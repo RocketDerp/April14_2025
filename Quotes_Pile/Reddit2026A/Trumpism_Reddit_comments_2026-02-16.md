@@ -701,3 +701,9 @@ Boss man mentality. Corporation / business owns you mentality. These Reddit comm
 https://old.reddit.com/r/LeopardsAteMyFace/comments/1r8bu6e/i_a_gay_maga_have_betrayed_my_own_community_i/o63sjay/
 
 Reddit comment creators who post hour after hour, day after day, engaged with MAGA / Trump / Musk programming content media... who do not have self-awareness they are in a MEDIA_CULTS_ADDICTIVE_FICTION media cult of mocking and mockery, back and forth with MAGA via high-speed TCP/IP message... are gross. They are enablers, feeding all the billionaire-crated networked media systems... without asserting cult deprogramming. Dr. Bandy X Lee's since year 2017 has been publishing about mental health but NOT_GOOD_ENOUGH for Reddit users to put an end to the shit-posting "conservative MAGA' content on Reddit and shit-commenting about it. Surkov won since March 2013 and nobody is bother to use Dr. Bandy X Lee quotes and teaching as a resistance to Surkov students!
+
+https://old.reddit.com/r/politics/comments/1r87pze/half_of_americans_think_donald_trump_was_involved/o62uc9w/
+
+We The People, celebrity cultists nation, think it is MORE than OK. It is stimulating media engagement. Al the media systems are covering every move and shake and rumor and bullshit created by Trump in his lifetime. Trump is a constant source of TCP/IP content source, never-ending perpetual media influencer. FEEDBACK_LOOP_MEDIA_CULTS_PLATFORM_TO_PLATFORM_MOCKERY_USA
+
+Donald Trump offers what no other politician in history has ever had on the planetary world stage... endless content. Joe Biden was considered incredibly boring to media-addiction driven USA population. SEE_ALSO: **September 10, 2025 - "The 40-Year-Old Book That Predicted Our Dystopian Politics"** https://Time.com/7313999/neil-postman-trump-prediction/
