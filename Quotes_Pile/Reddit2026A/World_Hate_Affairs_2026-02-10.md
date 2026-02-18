@@ -631,3 +631,7 @@ Programmed machine predators. Never sleeping predatory systems to manipulate eve
 https://old.reddit.com/r/technology/comments/1r80ynt/meta_ceo_mark_zuckerberg_to_face_jury_in_landmark/o61vhmq/
 
 REMEDIAL_MORALITY
+
+https://old.reddit.com/r/technology/comments/1r80ynt/meta_ceo_mark_zuckerberg_to_face_jury_in_landmark/o61z8bg/
+
+MEDIA_CULTS_ADDICTIVE_FICTION
