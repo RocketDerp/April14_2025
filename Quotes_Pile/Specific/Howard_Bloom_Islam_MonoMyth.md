@@ -10,3 +10,7 @@ https://DOD.overdrive.com/media/3034837
 The Muhammad Code    
 How a Desert Prophet Brought You ISIS, al Qaeda, and Boko Haram    
 November 21, 2016   
+
+&nbsp;
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mf5fjuno7c2d https://autistics.life/@RoundSparrow/116092350861070791 }
