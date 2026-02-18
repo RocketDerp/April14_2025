@@ -656,3 +656,7 @@ BRAIN_ROT_LEFT_RIGHT_LIB_CON_NAME_AVOIDANCE
 https://old.reddit.com/r/HolyShitHistory/comments/1r86z00/during_the_199296_siege_of_sarajevo_wealthy/o62r0qv/
 
 NOT_GOOD_ENOUGH Dr. Martin Luther King Jr for society to promote and keep repeating over and over, asserting again and again: The 1954 Equation https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Martin_Luther_King_Jr_quotes0.md
+
+https://old.reddit.com/r/Michigan/comments/1r84iz0/as_seen_in_flint/o6290hw/
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mf66zo6rlk2x https://autistics.life/@RoundSparrow/116094138639822575 https://MidWest.Social/post/43630360 }
