@@ -576,3 +576,8 @@ Next in March 2013, the Russian military invaded USA media systems "Putin Media 
 https://old.reddit.com/r/mildlyinfuriating/comments/1r7onu7/new_yorkers_are_furious_as_melting_snowbanks/o5z3ekx/
 
 Because media cult programming into the minds.
+
+https://old.reddit.com/r/therewasanattempt/comments/1r7mo36/to_broadcast_an_interview_to_the_public_with_this/o5yn7kd/
+
+https://old.reddit.com/r/therewasanattempt/comments/1r7mo36/to_broadcast_an_interview_to_the_public_with_this/o5yj4gf/
+
