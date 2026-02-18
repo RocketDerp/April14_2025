@@ -601,3 +601,7 @@ February 28, 1954: "Most people can't stand up for their convictions, because th
 https://old.reddit.com/r/PeterExplainsTheJoke/comments/1r7yp3t/petaa/o610f5h/
 
 They why don't people use Reddit to teach the Roma REMEDIAL_MORALITY? Why do people promote hate instead of actually teach and educate nonfiction. Why is adult education not taken serious. The cults of ignorance that are anti-teaching anti-nonfiction.
+
+https://old.reddit.com/r/worldnews/comments/1r7v4k3/zelenskyy_unfair_that_trump_publicly_urges/o60buo3/
+
+Top-upvoted popular comment. No dates specified, no quotes. ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING
