@@ -648,3 +648,7 @@ https://old.reddit.com/r/videos/comments/1r867x1/rep_lieu_says_epstein_files_hav
 
 Top-upvoted most popular comment. PROMOTING_IGNORANCE_WORKS_PLAYING_DUMB_MOCKING
 
+https://old.reddit.com/r/technology/comments/1r88jyb/after_censoring_cbs_trump_will_go_for_cnn_ive/o634kvq/
+
+Top-voted popular comment. Any citizen, age 12 to age 125, who can utilize social media who isn't promoting Dr. Bandy X Lee nonfiction, Jen Senko nonfiction,or Neil Postman nonfiction is not doing their civic duty. CIVIC_DUTY_WE_PEOPLE We The People should be making as much signal about these 3 nonfiction names as possible until all people understand the nonfiction public mindset crisis.   
+
