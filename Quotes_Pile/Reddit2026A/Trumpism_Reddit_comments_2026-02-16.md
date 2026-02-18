@@ -643,3 +643,8 @@ RELIGION_CULTS_MONOMYTH_PROGRAMMING We need to be all urgently doing INTELLECTUA
 https://old.reddit.com/r/UnderReportedNews/comments/1r84t80/the_talarico_for_texas_campaign_raised_25_million/o62b8yp/
 
 STAND_UP_FOR_THE_BIG_GUY this low-effort short message entirely misses the point. This is a "Big Guy" who has HUGE connections and social networks in Texas. He talks about how many generations of his family, etc. He is "The Establishment". Censorship against "The Little Guy" like Jen Senko and Dr. Bandy X Lee... social media users are still steering people towards HUGE ESTABLISHMENT BIG MONEY Stephen Colbert (estimated net worth of $75 million to $80 million.). The real censorship is intelligent "The Little Guy" like Jen Senko that Reddit society is ignoring NOT_GOOD_ENOUGH Jen Senko. https://en.wikipedia.org/wiki/Jen_Senko
+
+https://old.reddit.com/r/videos/comments/1r867x1/rep_lieu_says_epstein_files_have_allegations_of/o62kz5z/
+
+Top-upvoted most popular comment. PROMOTING_IGNORANCE_WORKS_PLAYING_DUMB_MOCKING
+
