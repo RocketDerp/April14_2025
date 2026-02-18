@@ -554,3 +554,9 @@ We should have multiple GOOD choices for elections. Something is horrible wrong 
 https://old.reddit.com/r/circled/comments/1r7jubl/talarico_yeah_no_wonder_they_wont_let_you_in_tv/o5y2kvb/
 
 MIND_BLOWN_BY how horrific things already are, the cults of hate media.
+
+https://old.reddit.com/r/circled/comments/1r7jubl/talarico_yeah_no_wonder_they_wont_let_you_in_tv/o5y5xul/
+
+BIBLE_LITERACY crises. Why are Bluesky and Reddit users not urgently using social information systems for the purposes of rescuing USA with teaching Bible literacy? Rescuing hearts and mins from misunderstanding and comprehension failures. **Adult education. We The People need to be teaching Bible verse Galatians 3:28 about gender. Bible verse "1 John 4:20" about liars and hate**. This is essential science fiction literacy issues. "I love Jesus" is WRONG - "1 John 4:20" verse.
+
+* “Half the people in the world think that the metaphors of their religious traditions, for example, are facts. And the other half contends that they are not facts at all. As a result we have people who consider themselves believers because they accept metaphors as facts, and we have others who classify themselves as atheists because they think religious metaphors are lies.” ― Joseph Campbell, Thou Art That: Transforming Religious Metaphor.
