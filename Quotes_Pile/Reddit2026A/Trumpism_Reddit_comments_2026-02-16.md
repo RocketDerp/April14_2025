@@ -729,3 +729,8 @@ Meme mind programming power of elites. And that was published way back in year 2
 https://old.reddit.com/r/politics/comments/1r8dmcm/karoline_leavitt_says_all_truth_social_posts_are/o645csb/
 
 Top-upvoted most popular comment. SATIRE_SARCASM_WASHING to normalize this. Fandom of Trump hangs out on Reddit in competition to wash and clean the minds, brain-wash sane-wash, the situation. This Reddit comment was the most crowd pleasing of the White House media cults.
+
+https://old.reddit.com/r/politics/comments/1r8dmcm/karoline_leavitt_says_all_truth_social_posts_are/o645ctw/
+
+Can't understand or comprehend. GULLIBLE_FANDOM to White House content. Hangs out on Reddit, as soon as this posting appears they were commenting at extreme high speeds in a race to get their message shared.
+
