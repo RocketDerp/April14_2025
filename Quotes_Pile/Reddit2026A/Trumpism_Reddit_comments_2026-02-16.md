@@ -898,3 +898,6 @@ https://old.reddit.com/r/TikTokCringe/comments/1r8yb9f/what_they_wont_tell_you_a
 
 EVERYTHING_IS_MEDIA_ECOLOGY
 
+https://old.reddit.com/r/TikTokCringe/comments/1r8yb9f/what_they_wont_tell_you_about_harvard/o68rs2k/
+
+Please Stop making 4-word Tweet-thinking Elon Musk "mind virus" programmed tiny-short commenting messages that **do not organize and call for intellectual uprising** by We The People. BRAIN_ROT_SOCIETY_47
