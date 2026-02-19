@@ -705,5 +705,16 @@ https://old.reddit.com/r/news/comments/1r8ruym/bill_gates_cancels_keynote_speech
 
 Ahh, the private affairs of the Bellevue / Mercer Island / Redmond / Pioneer Square / Space Needle museum billionaires, board of directors when wealth was doubled in a single year. Richest men in the entire world. So many toxic memories of those years. So many sports team owner manipulation of audience mindsets power trauma.  Whoever goodness Jimi Hendrix and MLK Jr had was wrecked, I never imagined in 1998 things would be this terrible shit in 2026. I wish I had done more in 1998. Neil Postman was correct in 1970's, 1980's, 1990's about the hell we were creating.
 
+https://old.reddit.com/r/SipsTea/comments/1r8x3ep/that_was_diabolical_not_even_the_devil_himself/o686jmt/
 
+CHOICE_MARRIAGE_HONESTY 
 
+https://old.reddit.com/r/SipsTea/comments/1r8x3ep/that_was_diabolical_not_even_the_devil_himself/o68ggph/
+
+https://old.reddit.com/r/SipsTea/comments/1r8x3ep/that_was_diabolical_not_even_the_devil_himself/o6889pw/
+
+CHOICE_MARRIAGE_HONESTY About the only GOODNESS to cone out of celebrity marriages, tabloid news, is that we fond out that actors who can charm millions of people... songwriters who can create the greatest poetry... public speakers who can explain and articulate... have the same inward journey barriers as we all do. 
+
+* "BILL MOYERS: And poetry gets to the unseen reality. CAMPBELL: That which is beyond even the concept of reality, that which transcends all thought. The myth puts you there all the time, gives you a line to connect with that mystery which you are. Shakespeare said that art is a mirror held up to nature. And that’s what it is. The nature is your nature, and all of these wonderful poetic images of mythology are referring to something in you. When your mind is simply trapped by the image out there so that you never make the reference to yourself, you have misread the image." published year 1988, Power of Myth
+
+OPERA_A Styx Year 1976 story https://www.youtube.com/watch?v=IYKwpWPOA5c 2,164,623 views October 12, 2012
