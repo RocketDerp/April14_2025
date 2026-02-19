@@ -770,3 +770,6 @@ https://old.reddit.com/r/law/comments/1r950kk/trump_just_took_10_billion_from_us
 
 "How did we get here", "sickening" - brain rot with Cambridge Analytica doctorates and the Saint Petersburg Internet Research Agency since year 2013. UNDERSTANDING_TRUMPISM - low effort Reddit commenting over and over since year 2013 that drowns out any serious nonfiction learning and organized persistent learning of critical important topics that require mutual widespread understanding.
 
+https://old.reddit.com/r/law/comments/1r950kk/trump_just_took_10_billion_from_us_for_his_board/o69x6cq/
+
+Extreme tiny-short 4-word Twitter-thinking commenting on Reddit. Describes issue, but no alarm to actually rise up on social media, We The People power. ROUTINE_NO_NEED_TO_RESIST_OR_ORGANIZE_INTELLECTUAL_UPRISING
