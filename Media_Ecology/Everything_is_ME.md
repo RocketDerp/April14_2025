@@ -129,3 +129,6 @@ Joseph Campbell's Comparative Mythology was translating rituals and subconscious
 
 Did Timothy Leary say "LSD might not be necessary now"... well University of Toronto's Marshall McLuhan said ["So I have begun to feel that LSD may just be the lazy man's form of Finnegans Wake.”](https://www.youtube.com/watch?v=-f2F02gsYsk)  - and Joseph Campbell was a Joycean, as was his spouse [Joycean Jean Erdman](https://www.youtube.com/watch?v=WoiJVkdDbOo) - a pair of James Joyce enthusiasts!
 
+https://old.reddit.com/r/TikTokCringe/comments/1r8yb9f/what_they_wont_tell_you_about_harvard/o68rs2k/
+
+Please Stop making 4-word Tweet-thinking Elon-Musk programmed commenting messages that do not organize and call for intellectual uprising by We The People. BRAIN_ROT_SOCIETY_47
