@@ -721,3 +721,8 @@ MEDIA_ECOLOGY_LESSON
 https://old.reddit.com/r/NonPoliticalTwitter/comments/1r8njgm/same/o66hzcl/
 
 CONCERNS_OF_FINNEGANS overloaded luggage meaning
+
+https://old.reddit.com/r/Millennials/comments/1r8pw07/anyone_else_feel_this_way_when_writing_anything/o66xajw/
+
+The grammar problems are not as new as the "you machine" thinking. The anti-diversity. That a nonfiction book quote on Reddit means AI. When in reality, ChatGPT is terrible at quoting books and sources due to copyright infringement avoidance on training material. BRAIN_ROT_SOCIETY_47 
+
