@@ -877,3 +877,7 @@ Yes. Materialist, social cult of billionaires, cult of celebrity. Sex conquest, 
 https://old.reddit.com/r/law/comments/1r93wwy/trump_just_said_on_live_tv_that_he_likes_young/o69px4n/
 
 Expectations from the Reddit commenting fandom describing what people expect in future months of entertainment-based leadership. Reddit users hang around on social machines to comment whenever an image, photo, quote, news about their celebrity appears. Live TV appearance in this case, posted on Reddit for the fandom. All the latest Trump content. SOCIAL_CULT_HATE_WATCHING_FANDOM
+
+https://old.reddit.com/r/law/comments/1r93wwy/trump_just_said_on_live_tv_that_he_likes_young/o69qduq/
+
+Collectibles. Personal collection of favorite shock media content by Trump playing the POTUS Tony Clifton performance as his means of wealth and power concentration. Collecting personal scraps of Trump fandom material gives people conversation topics each and every day on Reddit since Trump became the center celebrity attraction of all media systems in year 2015. ANTI_WIKI_ANTI_FAQ 
