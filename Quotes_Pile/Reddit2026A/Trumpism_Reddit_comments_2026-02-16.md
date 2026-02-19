@@ -852,3 +852,6 @@ UNDERSTANDING_TRUMPISM This entire post is celebrity fandom. Kid Rock fandom, RF
 
 The USA is drowning in MAGA values and addicts to the Trump leadership of mocking / mockery / hate-based leadership. People on Reddit are compulsive addicts to the amusing ourselves to death that Trump leads. This MAGA image worship has been going on every day on Reddit since June 16, 2015 it isn't just "a joke", it is an entire venue dedicated to celebrity image worship of Reality TV star Trump photos and media content. People so addicted to trash media that they actually believe Reality TV isn't scripted and this content isn't what makes them a MAGA fandom for prizing trash leaders as "humor", haha "liberal laughs", "liberal tears". Reality TV drama laughs 🎭 and tears 🎭. https://en.wikipedia.org/wiki/Comedy_and_tragedy_masks LIBERAL_LAUGHS_LIBERAL_TEARS_COMPULSIVE_MAGA_FOLLOWERS 
 
+https://old.reddit.com/r/interesting/comments/1r8qao6/police_discover_a_very_odd_fraternity_hazing_at/o671paj/
+
+Teaching... schooling... CULT_INDOCTRINATION
