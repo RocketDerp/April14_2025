@@ -1064,3 +1064,8 @@ https://old.reddit.com/r/videos/comments/1r8ypcg/epstein_files_epsteinbannon_tex
 What kind of cult is MAGA? People think it is a cult of Donald Trump. Nope. Trump is a television cult member. Trump is a cult to Twitter and Fox News. ESSENTIAL_STUDY_MAGA July 6, 2011 when Trump embraced the Twitter media cult, a cult of 140 character media techniques. https://TheOutline.com/post/2445/trump-s-first-real-tweet-was-on-july-6-2011 
 
 Why is Reddit comment community not turning to **nonfiction books** about cult deprogramming? It is not resisting to just say "If MAGA wasn’t a cult". If MAGA is a cult of Fox News HDTV, Newsmax HDTV, /r/Conservative Reddit commenting cult - why is Reddit not RESCUING THE USA - doing CIVIC DUTY - and cult deprogramming teaching and education to put an end to the fiction cults? Why just keep commenting about cults year after year after year since year 2013 and not actually have an intellectual mental health education uprising on Reddit, sustained and repeating, until the mental fiction addiction problems are cured?
+
+https://old.reddit.com/r/International/comments/1r92gpq/_/o69h5uo/
+
+ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING
+
