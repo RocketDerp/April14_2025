@@ -689,3 +689,14 @@ https://old.reddit.com/r/30PlusSkinCare/comments/1r8hxm2/hot_take_beauty_standar
 
 https://old.reddit.com/r/30PlusSkinCare/comments/1r8hxm2/hot_take_beauty_standards_are_based_on_pdfile/o658p85/
 
+https://old.reddit.com/r/europe/comments/1r8uspb/orbans_fidesz_party_shares_aigenerated_propaganda/o67w4nm/
+
+Context of thread is simplistic Twitter-think "panic", we won mentality. SUPER_HYPER_NORMAL
+
+https://old.reddit.com/r/europe/comments/1r8uspb/orbans_fidesz_party_shares_aigenerated_propaganda/o67vjym/
+
+Downplaying the global brain rot crisis of We The People who interact with Russia. 
+
+https://old.reddit.com/r/europe/comments/1r8uspb/orbans_fidesz_party_shares_aigenerated_propaganda/o67t71j/
+
+Mentions Kremlin methods, but not Surkovian. No off-Reddit nonfiction book quotes or links. NOT_GOOD_ENOUGH Peter Pomerantsev to quote and repeat on social media to educate people about details and comprehension of Russian information warfare (such as this ANTI_REALITY video, the topic of the Reddit posting).
