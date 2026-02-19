@@ -1022,3 +1022,10 @@ EPSTEIN_FANDOM wants to have amusement parks named after Epstein. Epstein fandom
 
 * "But the Democrat’s response to this “tax and spend” is “No we don’t, nah nah na-nah nah: invest” **This is political debate in a democracy. No it’s not. It’s the simulation** of politics." - Duke University, Texan Rick Roderick. https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
 
+https://old.reddit.com/r/BuyFromEU/comments/1r8u3bd/trumps_betrayal_of_allies_has_sparked/o67nxbc/
+
+"They have no idea". Yes, they do. This is a mass dehumanization war of All. WAR_ALL_AGAINST_ALL - started by Surkov students on the World Wide Web in March 2013. People aren't resisting the war of all hate all. 
+
+https://old.reddit.com/r/BuyFromEU/comments/1r8u3bd/trumps_betrayal_of_allies_has_sparked/o67sluf/
+
+HYPER_SIMPLE_TRIVIALIZE_BANAL_SELF_ONLY_CONCERN As long as ONE person is discussing it, then that's all that matters. Egoism. Trump vales of egoism.
