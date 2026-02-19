@@ -31,3 +31,11 @@ SEE_ALSO: Parallel content [ScreenPlay : A0_Book_Title.md#crackajolking-away](A0
 
 https://www.youtube.com/shorts/rcfIs8GFnHY
 
+&nbsp;
+
+# February 19, 2026 front page Reddit
+
+In this video, she talks about age 17 and experience the boys / men doing "joke-washing" of what they do to harm and manipulate women. The mocking and humor brain-exploitation training ground of Harvard.   
+https://old.reddit.com/r/TikTokCringe/comments/1r8yb9f/what_they_wont_tell_you_about_harvard/
+
+Neil Postman was correct in his year 1985 book with his classroom NYC experiences.   
