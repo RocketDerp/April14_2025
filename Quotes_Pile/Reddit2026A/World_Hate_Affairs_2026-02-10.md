@@ -674,3 +674,18 @@ https://old.reddit.com/r/Gamingcirclejerk/comments/1r8c6hq/ladies_and_gentlemen_
 https://old.reddit.com/r/Gamingcirclejerk/comments/1r8c6hq/ladies_and_gentlemen_we_got_em/o63wc7f/
 
 https://old.reddit.com/r/Gamingcirclejerk/comments/1r8c6hq/ladies_and_gentlemen_we_got_em/o63vkdg/
+
+https://old.reddit.com/r/30PlusSkinCare/comments/1r8hxm2/hot_take_beauty_standards_are_based_on_pdfile/o65gq7q/
+
+https://old.reddit.com/r/30PlusSkinCare/comments/1r8hxm2/hot_take_beauty_standards_are_based_on_pdfile/o654n6b/
+
+https://old.reddit.com/r/30PlusSkinCare/comments/1r8hxm2/hot_take_beauty_standards_are_based_on_pdfile/o657nvd/
+
+https://old.reddit.com/r/30PlusSkinCare/comments/1r8hxm2/hot_take_beauty_standards_are_based_on_pdfile/o65661a/
+
+https://old.reddit.com/r/30PlusSkinCare/comments/1r8hxm2/hot_take_beauty_standards_are_based_on_pdfile/o656lpg/
+
+https://old.reddit.com/r/30PlusSkinCare/comments/1r8hxm2/hot_take_beauty_standards_are_based_on_pdfile/o6580l4/
+
+https://old.reddit.com/r/30PlusSkinCare/comments/1r8hxm2/hot_take_beauty_standards_are_based_on_pdfile/o658p85/
+
