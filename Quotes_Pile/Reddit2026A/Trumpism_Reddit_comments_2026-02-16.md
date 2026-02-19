@@ -965,3 +965,8 @@ https://old.reddit.com/r/videos/comments/1r9bktt/president_trump_on_arrest_of_fo
 "so afraid to even mention Epstein to him because he might yell at them and tell them they don't smile"
 
 The cult on Reddit is SO AFRAID of the PUBLIC LIBRARY NONFICTION SECTION! Over and over, drowning the world in commenting that does not take any of the thinking seriously. No author names, no call for a Reddit blackout. Just gathering around White House and Trump to report and describe Trump's actions and react-comment to TRUMP, over and over and over since June 16, 2015. It never fucking ends, the commenting and reporting people do about ONE MAN. "Journalism is dead" - Social media influencer Trump is THRIVING and TRUMP_FANDOM on the Reddit comment section CAN NEVER GET ENOUGH REACTION COMMENT CREATION AND CONSUMPTION AND UPVOTING OF SHIT-COMMENTING SHIT-POSTINGS ABOUT DONALD J. TRUMP AND TRUMP FAMILY AND TRUMP MOVES AND SHAKES AND TRUMP WORLD AND TRUMP MAGA MOVEMENT OF AN ENTIRE SOCIETY CHASING ONE MAN DOWN THE TOILET!!! ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING
+
+https://old.reddit.com/r/videos/comments/1r9bktt/president_trump_on_arrest_of_former_prince_andrew/o6bbfrm/
+
+MEDIA_CULTS_ADDICTIVE_FICTION Reddit audience member exclaiming how awesome it is to get Trump's original creative statements! Fandom of collectible (quotable, notable statements) and unusual media content. Swooning on Reddit to their prized information source. This is HELL. This is a hell that nobody will stop recording, reporting, photographing, commenting about ONE MAN, over and over and over, every hour of every day since June 16, 2026. Media mania society, Trump media coverage day and night.
+
