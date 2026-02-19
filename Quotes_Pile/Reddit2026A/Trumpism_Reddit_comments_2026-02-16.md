@@ -959,3 +959,9 @@ EPSTEIN_FANDOM Do you notice how when it comes to protecting children from sexua
 * “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.” ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. October 8, 2013
 
 * “We felt like the Taliban saw us as like little dolls to control, telling us what to do and how to dress. I thought if God wanted us to be like that He would not have made us all different.” ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. Published October 8, 2013
+
+https://old.reddit.com/r/videos/comments/1r9bktt/president_trump_on_arrest_of_former_prince_andrew/o6b8uxx/
+
+"so afraid to even mention Epstein to him because he might yell at them and tell them they don't smile"
+
+The cult on Reddit is SO AFRAID of the PUBLIC LIBRARY NONFICTION SECTION! Over and over, drowning the world in commenting that does not take any of the thinking seriously. No author names, no call for a Reddit blackout. Just gathering around White House and Trump to report and describe Trump's actions and react-comment to TRUMP, over and over and over since June 16, 2015. It never fucking ends, the commenting and reporting people do about ONE MAN. "Journalism is dead" - Social media influencer Trump is THRIVING and TRUMP_FANDOM on the Reddit comment section CAN NEVER GET ENOUGH REACTION COMMENT CREATION AND CONSUMPTION AND UPVOTING OF SHIT-COMMENTING SHIT-POSTINGS ABOUT DONALD J. TRUMP AND TRUMP FAMILY AND TRUMP MOVES AND SHAKES AND TRUMP WORLD AND TRUMP MAGA MOVEMENT OF AN ENTIRE SOCIETY CHASING ONE MAN DOWN THE TOILET!!! ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING
