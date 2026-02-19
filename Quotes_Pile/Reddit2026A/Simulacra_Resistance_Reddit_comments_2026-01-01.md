@@ -1056,3 +1056,11 @@ ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING
 https://old.reddit.com/r/videos/comments/1r8rz5o/hakeem_jeffries_on_dhs_shutdown_why_are_we_in/o67l6l5/
 
 In other words, Reddit comment is criticizing that people (Hakeem Jeffries) are in denial and avoiding the reality of the situation. Downplaying, making a mockery. WAR_AGAINST_REALITY lost... War Against Reality was won by Russia against USA. We The People in USA, **including the Reddit comment creators. are AVOIDING: Dr. Bandy X Lee, Jen Senko, Peter Pomerantsev. Nonfiction Peter Pomerantsev avoided, nonfiction Jen Senko avoided, nonfiction Dr. Lee avoided (with 27 contributors). We The People** are commenting on social systems and not commenting about the hearts and minds lost to commenting itself, avoiding calls to intellectual nonfiction teaching and learning on RELEVANT CRITICAL APPLICABLE topics.
+
+https://old.reddit.com/r/videos/comments/1r8ypcg/epstein_files_epsteinbannon_texts_spark_maga/o68rtdx/
+
+"If MAGA wasn’t a cult" ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING  
+
+What kind of cult is MAGA? People think it is a cult of Donald Trump. Nope. Trump is a television cult member. Trump is a cult to Twitter and Fox News. ESSENTIAL_STUDY_MAGA July 6, 2011 when Trump embraced the Twitter media cult, a cult of 140 character media techniques. https://TheOutline.com/post/2445/trump-s-first-real-tweet-was-on-july-6-2011 
+
+Why is Reddit comment community not turning to **nonfiction books** about cult deprogramming? It is not resisting to just say "If MAGA wasn’t a cult". If MAGA is a cult of Fox News HDTV, Newsmax HDTV, /r/Conservative Reddit commenting cult - why is Reddit not RESCUING THE USA - doing CIVIC DUTY - and cult deprogramming teaching and education to put an end to the fiction cults? Why just keep commenting about cults year after year after year since year 2013 and not actually have an intellectual mental health education uprising on Reddit, sustained and repeating, until the mental fiction addiction problems are cured?
