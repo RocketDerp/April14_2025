@@ -894,3 +894,7 @@ OPERA_A Year 1980 when I was 11 years old, I was educated how my father's work a
 
 OPERA_B parallel track. USA Navy band "The Cruisers" https://www.youtube.com/watch?v=V6Do6VWUxyg 1,731 views April 25, 2022 "the Cruisers contemporary entertainment ensemble" with Dolly Parton doing a video introduction.
 
+https://old.reddit.com/r/TikTokCringe/comments/1r8yb9f/what_they_wont_tell_you_about_harvard/o68t399/
+
+EVERYTHING_IS_MEDIA_ECOLOGY
+
