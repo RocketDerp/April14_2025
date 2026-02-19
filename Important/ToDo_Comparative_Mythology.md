@@ -73,3 +73,8 @@ https://old.reddit.com/r/science/comments/1r4p2uc/children_raised_with_authorita
 Comparative parenting systems.  
 
 https://old.reddit.com/r/HistoricalCapsule/comments/1r6r40f/mecca_in_1953_and_2025_a_72year_comparison/
+
+&nbsp;
+
+Jesus was Yeast, Mushrooms   
+https://old.reddit.com/r/BrandNewSentence/comments/1r8k1fl/man_was_yeast/
