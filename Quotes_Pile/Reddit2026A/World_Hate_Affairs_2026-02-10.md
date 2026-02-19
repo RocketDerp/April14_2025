@@ -734,3 +734,7 @@ https://old.reddit.com/r/news/comments/1r903a3/the_israeli_government_installed_
 MEDIA_CULTS_ADDICTIVE_FICTION The cults of clickbait consumerism don't seek out nonfiction. The anti-Wiki anti Wiki Tribune commenting society... since year 2017 Wiki Tribune has been put on the public media table, and Reddit instead eats off the garbage pile of corporate programming into minds.
 
 https://old.reddit.com/r/news/comments/1r903a3/the_israeli_government_installed_and_maintained/o6906lv/
+
+https://old.reddit.com/r/ForCuriousSouls/comments/1r8yrg4/ohio_mom_dumped_newborn_in_sorority_house_trash/o68kub5/
+
+I find it interesting this made front page all with huge number of comments, but a quick search of the text on page doesn't hit upvoted comments with word "church". "Muskingum University is a private liberal arts institution in New Concord, Ohio, founded in 1837 and affiliated with the Presbyterian Church (USA)". 
