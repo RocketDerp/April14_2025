@@ -732,3 +732,5 @@ The real problem of EPSTEIN_FANDOM on Reddit is how gullible they are in not act
 https://old.reddit.com/r/news/comments/1r903a3/the_israeli_government_installed_and_maintained/o68zofq/
 
 MEDIA_CULTS_ADDICTIVE_FICTION The cults of clickbait consumerism don't seek out nonfiction. The anti-Wiki anti Wiki Tribune commenting society... since year 2017 Wiki Tribune has been put on the public media table, and Reddit instead eats off the garbage pile of corporate programming into minds.
+
+https://old.reddit.com/r/news/comments/1r903a3/the_israeli_government_installed_and_maintained/o6906lv/
