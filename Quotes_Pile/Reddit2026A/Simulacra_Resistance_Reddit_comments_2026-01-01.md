@@ -1030,3 +1030,8 @@ https://old.reddit.com/r/BuyFromEU/comments/1r8u3bd/trumps_betrayal_of_allies_ha
 
 HYPER_SIMPLE_TRIVIALIZE_BANAL_SELF_ONLY_CONCERN As long as ONE person is discussing it, then that's all that matters. Egoism. Trump vales of egoism. It made the front page of /r/All because of the subreddit community. The people of USA are the ones who need to see it first thing in the morning. Because USA people are a cult of anti-reality, fiction media cult, and this is nonfiction.
 
+https://old.reddit.com/r/MurderedByWords/comments/1r8x41v/you_are_living_in_their_country_bo/o686ywd/
+
+This is a nation that can't resist satire, sarcasm, surreal comedy, absurd humor. Surkov won. Repeating: CAN NOT RESIST. Reddit community is not resisting. SATIRE_SARCASM_WASHING that Reddit community has done every single hour of every single day since June 16, 2015 has wrecked the nations. People have blown their minds in USA. Surkov students won.
+
+
