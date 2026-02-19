@@ -942,4 +942,10 @@ https://old.reddit.com/r/videos/comments/1r9bktt/president_trump_on_arrest_of_fo
 
 Gullible and ignorant Reddit comment community believes that Trump's use of media systems and messaging just "accidentally" lands him in the most powerful position in media over and over for 10 years. SURKOVIAN_ONION_EATING
 
+https://old.reddit.com/r/videos/comments/1r9bktt/president_trump_on_arrest_of_former_prince_andrew/o6b94ae/
 
+"This senile pedo pervert does it multiple times. Day and nothing but crickets" - it isn't crickets, it's is notification swarms every time Trump goes near a media device or camera or anything Trump branded at all. The entire population swoons to their beloved social media systems with intimate touch devices and comments about Trump. A cult of high speed media commenting about one man, over and over for nearly 11 full years. INFORMATION_GLUT_COMMENTING_GLUT Every media system devised is generating commentary and engaged in Trump reaction reporting.
+
+https://old.reddit.com/r/videos/comments/1r9bktt/president_trump_on_arrest_of_former_prince_andrew/o6b8abn/
+
+CONDITIONED_OPPOSITION programmed highly-predictable reacting to Trump statements by mocking. Trump mocks realty, and social media users given extreme tiny-short reaction comments back. This social device screen game of feedback loop has gone on for over 10 years. Back and forth, audience to performer. Trump stimulating the media cults. Ass is the hole where shit-commenting comes from "my ass". WANT_TO_STOP_THE_SHIT_SHOW_SHIT_COMMENTING_ADDICTIONS_MEDIA
