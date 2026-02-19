@@ -813,3 +813,7 @@ CULT_INDOCTRINATION
 https://old.reddit.com/r/creepy/comments/1r8jtej/police_raided_the_university_of_iowas_alpha_delta/o65l68z/
 
 CULT_INDOCTRINATION
+
+https://old.reddit.com/r/30PlusSkinCare/comments/1r8hxm2/hot_take_beauty_standards_are_based_on_pdfile/o654g8n/
+
+Managing the private communications and analyzing the business affairs of the richest people in the world in Bellevue in 1998 my background never prepared me for what I would see and the "masculine" domination people believe in with white men in USA. I had the resources to study and research anything I wanted, but the way sports-logic and consumer-logic was used to capture audience loyalty has changed how I view all religions and entertainment systems.
