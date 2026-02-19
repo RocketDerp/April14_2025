@@ -703,3 +703,13 @@ GULLIBLE_FANDOM - fiction outsells nonfiction. Part of why ChatGPT works so well
 WHEN_THE_PEOPLE_HAVE_LOST_THE_ABILITY   
 NEW_OPERA_NAME: #WhenThePeople    
 Social post { https://autistics.life/@RoundSparrow/116092045648074752 https://MidWest.Social/post/43613327 https://bsky.app/profile/roundsparrow.bsky.social/post/3mf5bckc4622d }
+
+https://old.reddit.com/r/Wellthatsucks/comments/1r8mkd9/just_took_the_whole_oven_apart_only_to_realize_i/o665spr/
+
+Drug use experiences. 
+
+https://old.reddit.com/r/Wellthatsucks/comments/1r8mkd9/just_took_the_whole_oven_apart_only_to_realize_i/o666jn9/
+
+https://old.reddit.com/r/Wellthatsucks/comments/1r8mkd9/just_took_the_whole_oven_apart_only_to_realize_i/o66580d/
+
+https://old.reddit.com/r/Wellthatsucks/comments/1r8mkd9/just_took_the_whole_oven_apart_only_to_realize_i/o6678bc/
