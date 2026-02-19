@@ -78,3 +78,6 @@ https://old.reddit.com/r/HistoricalCapsule/comments/1r6r40f/mecca_in_1953_and_20
 
 Jesus was Yeast, Mushrooms   
 https://old.reddit.com/r/BrandNewSentence/comments/1r8k1fl/man_was_yeast/
+
+USA religion politics    
+https://old.reddit.com/r/science/comments/1r8hsih/fifty_years_ago_republicans_exhibited_more/
