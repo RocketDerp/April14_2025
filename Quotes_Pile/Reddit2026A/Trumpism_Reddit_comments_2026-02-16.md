@@ -922,3 +922,6 @@ https://old.reddit.com/r/BlackPeopleofReddit/comments/1r9332v/fair_oaks_park_in_
 
 Top-upvoted comment. "Looking forward" to White House reaction... comedic Reddit comment opening. Reddit community is a White House fandom. SOCIAL_CULT_HATE_WATCHING_FANDOM
 
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1r9332v/fair_oaks_park_in_marietta_georgia_became_a_crime/o69hq7s/
+
+"The times we are in", UNDERSTANDING_TRUMPISM - is that July 6, 2011 Trump went all in on Twitter 140 characters, and a cult of low-effort commenting that is pro-violence and pro-hate was created. And the anti-intellectual attitudes have expanded under Putin and Trump media leadership. The answer is not more ignorance and mockery.
