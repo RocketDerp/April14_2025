@@ -864,3 +864,9 @@ BEYOND_DENIAL beyond the simulation Reddit cult fandom keeps claiming victory of
 
 https://old.reddit.com/r/videos/comments/1r8ypcg/epstein_files_epsteinbannon_texts_spark_maga/o68pjwb/
 
+https://old.reddit.com/r/videos/comments/1r8ypcg/epstein_files_epsteinbannon_texts_spark_maga/o68pz6w/
+
+https://old.reddit.com/r/Fauxmoi/comments/1r8yt3e/chris_pratt_promoting_the_hallow_app_on_his_ig/o68innk/
+
+Day after day the media consumers of apps ("Hallow app" title) and Reddit app make these comments and they do not see the urgent need to organize for teaching REMEDIAL_MORALITY to every person in USA. The Church Clergy in USA can not find Bible verse "1 John 3:17" and make it front and center (known by everyone over age 12, clearly within capabilities of the vast media outlets of Church networks using social media and congregations) to apply to Elon Musk Texas, Rupert Murdoch, Donald Trump. Why isn't "1 John 3:17" being repeated over and over to front the BIBLE_LITERACY crisis and app media crisis? Where are our spiritual leaders in confronting greedy billionaires with "1 John 3:17" verse? We The People need to stand up and teach these remedial morality lessons every day until we get on the same pages of goodness.
+
