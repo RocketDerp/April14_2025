@@ -36,13 +36,14 @@ from html_to_markdown import convert_to_markdown
 
 HEADERS = {"User-Agent": "Pluribus TV project version 0.1.1"}
 progress_note = "not yet populated"
+error_count_a = 0
 error_count_b = 0
 error_fetch_count = 0
 error_parse_a_count = 0
 fetch_reddit_count_a = 0
 post_only_count = 0
 replies_users_fetch = 0
-replies_users_max = 4
+replies_users_max = 70
 # every slowdown_every fetches kick in delay
 slowdown_every = 2
 age18_count = 0
@@ -65,7 +66,7 @@ def increment_live_fetch(caller_index):
         sleep_time = random.uniform(11, 22)
         quit_request = pause_with_quit(sleep_time)
         if quit_request:
-            sys.exit(1)
+            exit_with_code(1, 5)
 
 
 def increment_post_only(caller_index):
@@ -100,7 +101,7 @@ def live_fetch_error(res, call_spot):
     if exitcode > 0:
         print(f"HTTP Status: {res.status_code} {res.reason}")
         print(f"Response Time: {res.elapsed.total_seconds()}s")
-        sys.exit(exitcode)
+        exit_with_code(exitcode, 6)
 
 
 
@@ -589,7 +590,7 @@ def fetch_user_info_hover(username, args=None):
                         print(dt.isoformat()) 
                         quit_request = pause_with_quit(24)
                         if quit_request:
-                            sys.exit(1)
+                            exit_with_code(1, 7)
             
                 # reference above print(f"[cached] Using saved HTML for {url} file {html_filename} found count: {found_count}")
                 print(f"[cached] Using saved JSON for {username} file {account_filename} found count: {found_count} when_fetched {when_fetched} expire {args.user_expire_epoch}")
@@ -611,7 +612,7 @@ def fetch_user_info_hover(username, args=None):
             print(f"account data: {reddit_account_data}")
             quit_request = pause_with_quit(24)
             if quit_request:
-                sys.exit(1)
+                exit_with_code(1, 8)
             # ToDo: save tombstone file so no live re-fetch?
         else:
             if res.status_code != 200:
@@ -621,7 +622,7 @@ def fetch_user_info_hover(username, args=None):
                 print(res)
                 quit_request = pause_with_quit(3)
                 if quit_request:
-                    sys.exit(1)
+                    exit_with_code(1, 9)
                 return None, None, None, None, False
             reddit_account_data = res.json()["data"]
         
@@ -655,7 +656,7 @@ def fetch_user_info_hover(username, args=None):
         if live_fetch:
             quit_request = pause_with_quit(3)
             if quit_request:
-                sys.exit(1)
+                exit_with_code(1, 10)
         return None, None, None, None, False
 
     try:
@@ -672,7 +673,7 @@ def fetch_user_info_hover(username, args=None):
             print(reddit_account_data)
             quit_request = pause_with_quit(10)
             if quit_request:
-                sys.exit(1)
+                exit_with_code(1, 11)
 
         # currently user_title is not returned, so merge with bio
         if user_title:
@@ -686,7 +687,7 @@ def fetch_user_info_hover(username, args=None):
         error_parse_a_count += 1
         quit_request = pause_with_quit(15)
         if quit_request:
-            sys.exit(1)
+            exit_with_code(1, 12)
 
 
 def fetch_user_info_full(username):
@@ -710,13 +711,51 @@ def fetch_user_info_full(username):
 
 
 
-def main():
+# exit_code conventions
+#   0 normal complete batch 
+#      (possibly some parsing failures saved in error folder)
+#   1 operator quit command
+#   2 and above - actual error
+def exit_with_code(exit_code, location_code):
     global args
     global error_fetch_count
     global age18_count
     global error_parse_a_count
     global fetch_reddit_count_a
     global post_only_count
+    global error_count_a
+
+    endtime_dt_object = datetime.datetime.now(datetime.timezone.utc)
+    # Format the datetime object into an ISO 8601 string with milliseconds
+    endtime_iso_with_ms = endtime_dt_object.isoformat(timespec='milliseconds')
+
+    with open('Output/run_summary0.txt', 'a') as summaryfile:
+        summaryfile.write(f"{args.output}\n")
+        summaryfile.write(f"    end {endtime_iso_with_ms}\n")
+
+        if error_count_a + error_count_b + error_fetch_count + error_parse_a_count > 0:
+            print(f"\nERRORS encountered! Final error counts, A: {error_count_a} B: {error_count_b} error_fetch_count: {error_fetch_count} error_parse_a_count: {error_parse_a_count}")
+            summaryfile.write(f"\nERRORS encountered! Final error counts, A: {error_count_a} B: {error_count_b} error_fetch_count: {error_fetch_count} error_parse_a_count: {error_parse_a_count}\n")
+
+        if fetch_reddit_count_a > 0:
+            print(f"Live fetch to Reddit count: {fetch_reddit_count_a}")
+            summaryfile.write(f"Live fetch to Reddit count: {fetch_reddit_count_a}\n")
+
+        if age18_count > 0:
+            print(f"Could not parse, age 18 required: {age18_count}")
+            summaryfile.write(f"Could not parse, age 18 required: {age18_count}\n")
+
+        if post_only_count > 0:
+            print(f"Encountered post_only no-comment links, intentional? : {post_only_count}")
+            summaryfile.write(f"Encountered post_only no-comment links, intentional? : {post_only_count}\n")
+
+    sys.exit(exit_code)
+
+
+
+def main():
+    global args
+    global error_count_a
     global progress_note
 
     parser = argparse.ArgumentParser(description="Parse Reddit comments from markdown list.")
@@ -747,7 +786,7 @@ def main():
         print(f"user_expire_epoch {args.user_expire_epoch}")
         quit_request = pause_with_quit(5)
         if quit_request:
-            sys.exit(1)
+            exit_with_code(1, 1)
 
     entries = parse_markdown_entries(args.file)
 
@@ -776,7 +815,7 @@ def main():
             print("GOING TO PAUSE 5 seconds before saving the error")
             quit_request = pause_with_quit(5)
             if quit_request:
-                sys.exit(1)
+                exit_with_code(1, 2)
             os.makedirs(args.error_html_folder, exist_ok=True)
             html_filename = os.path.join(args.error_html_folder, f"{idx}_{url.split('/')[-1]}.html")
             try:
@@ -791,7 +830,7 @@ def main():
             print("GOING TO PAUSE 30 seconds before continuing to next entry. Rerun app to retry.")
             quit_request = pause_with_quit(30)
             if quit_request:
-                sys.exit(1)
+                exit_with_code(1, 3)
             continue
 
         # currently matches here if age18 required
@@ -853,32 +892,13 @@ def main():
                 quit_request = pause_with_quit(sleep_time)
                 if quit_request:
                     print("Exiting after pause after live fetch")
-                    sys.exit(0)
+                    exit_with_code(0, 4)
+    
+    # normal loop end exit
+    exit_with_code(0, 16)
 
-    endtime_dt_object = datetime.datetime.now(datetime.timezone.utc)
-    # Format the datetime object into an ISO 8601 string with milliseconds
-    endtime_iso_with_ms = endtime_dt_object.isoformat(timespec='milliseconds')
-
-    with open('Output/run_summary0.txt', 'a') as summaryfile:
-        summaryfile.write(f"{args.output}\n")
-        summaryfile.write(f"    end {endtime_iso_with_ms}\n")
-
-        if error_count_a + error_count_b + error_fetch_count + error_parse_a_count > 0:
-            print(f"\nERRORS encountered! Final error counts, A: {error_count_a} B: {error_count_b} error_fetch_count: {error_fetch_count} error_parse_a_count: {error_parse_a_count}")
-            summaryfile.write(f"\nERRORS encountered! Final error counts, A: {error_count_a} B: {error_count_b} error_fetch_count: {error_fetch_count} error_parse_a_count: {error_parse_a_count}\n")
-
-        if fetch_reddit_count_a > 0:
-            print(f"Live fetch to Reddit count: {fetch_reddit_count_a}")
-            summaryfile.write(f"Live fetch to Reddit count: {fetch_reddit_count_a}\n")
-
-        if age18_count > 0:
-            print(f"Could not parse, age 18 required: {age18_count}")
-            summaryfile.write(f"Could not parse, age 18 required: {age18_count}\n")
-
-        if post_only_count > 0:
-            print(f"Encountered post_only no-comment links, intentional? : {post_only_count}")
-            summaryfile.write(f"Encountered post_only no-comment links, intentional? : {post_only_count}\n")
 
 
 if __name__ == "__main__":
+    # note that main call will never return, app is exited
     main()
