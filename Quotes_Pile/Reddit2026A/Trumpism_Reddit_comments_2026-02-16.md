@@ -930,3 +930,11 @@ https://old.reddit.com/r/Fauxmoi/comments/1r98eiq/president_trump_falls_asleep_a
 
 6 month Reddit account. Most popular upvoted top comment. AMUSEMENT_COMEDY_WASHING_TRUMP_AS_FUNNY_MEDIA_SANEWASHING   
 
+https://old.reddit.com/r/videos/comments/1r9bktt/president_trump_on_arrest_of_former_prince_andrew/o6bbz2h/
+
+RECENCY_BIAS and blown minds. And the social media society abandonment of Wiki and FAQ in favor of drowning every important topic in more and more low-effort commenting.
+
+https://old.reddit.com/r/videos/comments/1r9bktt/president_trump_on_arrest_of_former_prince_andrew/o6b82s9/
+
+Reddit commenting community staring at Congress saying "why are you not doing anything!" while social media society joke-washes, humor-washes, sane-washes, comedy-washes, meme-washes Trump and MAGA as a constant source of amusement and entertainment... avoiding nonfiction serious public education from Dr. Bandy X Lee, not calling for an INTERNET WWW protest, etc. AMUSEMENT_AS_USUAL We The People of the WWwW have not stood up or organized a "We The People" open letter / protest statement. So much high-speed reaction to Trump statements commenting on different pages, so little *getting on the same page* of critical topics.
+
