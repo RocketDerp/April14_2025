@@ -817,3 +817,17 @@ CULT_INDOCTRINATION
 https://old.reddit.com/r/30PlusSkinCare/comments/1r8hxm2/hot_take_beauty_standards_are_based_on_pdfile/o654g8n/
 
 Managing the private communications and analyzing the business affairs of the richest people in the world in Bellevue in 1998 my background never prepared me for what I would see and the "masculine" domination people believe in with white men in USA. I had the resources to study and research anything I wanted, but the way sports-logic and consumer-logic was used to capture audience loyalty has changed how I view all religions and entertainment systems.
+
+https://old.reddit.com/r/30PlusSkinCare/comments/1r8hxm2/hot_take_beauty_standards_are_based_on_pdfile/o656cg2/
+
+And people are really not looking at what "MeToo Movement" https://en.wikipedia.org/wiki/MeToo_movement and the whole image-selling business. And how men behave towards Trump's image. The mental processing change of all the men in my family over Trump has been extreme, and the attraction people have to hate-leadership and hate signaling is unstoppable with Trumpism / MAXIMUM_PUTINIZATION since year 2013. The persistence people have with hate paths and hate trajectory in USA...
+
+**QUOTE FROM NONFICTION BOOK FROM AUGUST 2000 FOLLOWS:**
+
+When conformity enforcers overwhelm diversity generators, all of us are in trouble. Spartans -- fundamentalists, militia groups, fascists, and ultra-nationalists -- can freeze the machinery of collective mind. A shutdown of urban diversity devastates that exercise of collective acumen we call an economy. Christian Fundamentalism has been shown by the research of sociologists Alfred Darnell and Darren E. Sherkat to retard the learning of children raised within its grasp. Darnell and Sherkat sum up a common Fundamentalist attitude in the following words: "No schooling is better than secular schooling." Then there's the paralysis of thought which outright battle brings. When World War I erupted, Sigmund Freud was horrified by the sudden "**narrow-mindedness shown by \[even\] the best intellects, their obduracy, their inaccessibility to the most forcible arguments**." Such closings of the mind may explain why authoritarians are prone to ignore it when their approaches flop. They often goose-step from one year to another rigidly glued to backfiring ways.
+
+Global Brain: The Evolution of Mass Mind from the Big Bang to the 21st Century      
+Chapter: The Kidnap of Mass Mind     
+Page: 203-204     
+Howard Bloom    
+Published: August 14, 2000    
