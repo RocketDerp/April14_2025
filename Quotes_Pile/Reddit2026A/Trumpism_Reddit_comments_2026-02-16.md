@@ -889,3 +889,8 @@ CULT_INDOCTRINATION into Harvard. She talks about childhood billionaire society 
 https://old.reddit.com/r/TikTokCringe/comments/1r8yb9f/what_they_wont_tell_you_about_harvard/o68im9d/
 
 7 month Reddit account. Topic is basically the "old boys club" as we used to call it in the 1980's as to the domination of certain men in power. SEX_SELLS_SEX_LEADERS And what do people think Malala's movement is about with young girls in Pakistan, Afghanistan, and all over world? For being *uppity* on a WWW blog, establishment men put a bullet into Malala and her friends on a school bus in year 2012. NOT_GOOD_ENOUGH to make Malala a constant repeated topic while Epstein the king of kings man name is being repeated all over every media system. 
+
+OPERA_A Year 1980 when I was 11 years old, I was educated how my father's work as an executive for Pepsi / RKO worked. https://www.youtube.com/watch?v=qni6HOyPNBA 573,399 views March 8, 2019 - Jane Fonda knows how to stir-up society shit, and Dolly Parton fans know she so often is on the good side of history.
+
+OPERA_B parallel track. USA Navy band "The Cruisers" https://www.youtube.com/watch?v=V6Do6VWUxyg 1,731 views April 25, 2022 "the Cruisers contemporary entertainment ensemble" with Dolly Parton doing a video introduction.
+
