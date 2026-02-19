@@ -881,3 +881,7 @@ Expectations from the Reddit commenting fandom describing what people expect in 
 https://old.reddit.com/r/law/comments/1r93wwy/trump_just_said_on_live_tv_that_he_likes_young/o69qduq/
 
 Collectibles. Personal collection of favorite shock media content by Trump playing the POTUS Tony Clifton performance as his means of wealth and power concentration. Collecting personal scraps of Trump fandom material gives people conversation topics each and every day on Reddit since Trump became the center celebrity attraction of all media systems in year 2015. ANTI_WIKI_ANTI_FAQ 
+
+https://old.reddit.com/r/TikTokCringe/comments/1r8yb9f/what_they_wont_tell_you_about_harvard/o68fnmu/
+
+CULT_INDOCTRINATION into Harvard. She talks about childhood billionaire society programming that got her into that school. NAME_BRAND_UNIVERSITY_EDUCATION_EXCLUSIVE_ANTI_WIKI_ANTI_PLURIBUS
