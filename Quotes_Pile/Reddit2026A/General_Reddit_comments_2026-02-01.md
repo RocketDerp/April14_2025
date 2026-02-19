@@ -713,3 +713,11 @@ https://old.reddit.com/r/Wellthatsucks/comments/1r8mkd9/just_took_the_whole_oven
 https://old.reddit.com/r/Wellthatsucks/comments/1r8mkd9/just_took_the_whole_oven_apart_only_to_realize_i/o66580d/
 
 https://old.reddit.com/r/Wellthatsucks/comments/1r8mkd9/just_took_the_whole_oven_apart_only_to_realize_i/o6678bc/
+
+https://old.reddit.com/r/NonPoliticalTwitter/comments/1r8njgm/same/o66dneo/
+
+MEDIA_ECOLOGY_LESSON  
+
+https://old.reddit.com/r/NonPoliticalTwitter/comments/1r8njgm/same/o66hzcl/
+
+CONCERNS_OF_FINNEGANS overloaded luggage meaning
