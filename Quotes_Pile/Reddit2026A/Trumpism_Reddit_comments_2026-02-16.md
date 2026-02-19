@@ -846,4 +846,9 @@ Reply comment says: "Americans gave trump the national Jury Nullification after 
 
 Why are people not saying the Russia NATO connection behaviors are stronger than ever. SOCIAL_MEDIA_DID_NOT stand up during the impeachments. Commenting about it is not online protesting, where was the Reddit blackout? Drown in a sea of LOL LOL comedy jokes and memes about orange skin and other superficial and banal addiction to humor and amusement. We let the Kremlin win an information war since March 2013, WE THE PEOPLE. 
 
+https://old.reddit.com/r/clevercomebacks/comments/1r8o61q/name_this_band/o66hzkk/
+
+UNDERSTANDING_TRUMPISM This entire post is celebrity fandom. Kid Rock fandom, RFK Jr. fandom. Instead of promoting removal of Trump and RFK Jr from power, the cult of celebrity icons and status symbols on Reddit posts images and fantasy art naming. MAGA_FANDOM - this is the media "Celebration of Ignorance" that Carl Sagan described in his 1995 nonfiction book. IGNORANCE_CELEBRATIONS
+
+The USA is drowning in MAGA values and addicts to the Trump leadership of mocking / mockery / hate-based leadership. People on Reddit are compulsive addicts to the amusing ourselves to death that Trump leads. This MAGA image worship has been going on every day on Reddit since June 16, 2015 it isn't just "a joke", it is an entire venue dedicated to celebrity image worship of Reality TV star Trump photos and media content. People so addicted to trash media that they actually believe Reality TV isn't scripted and this content isn't what makes them a MAGA fandom for prizing trash leaders as "humor", haha "liberal laughs", "liberal tears". Reality TV drama laughs 🎭 and tears 🎭. https://en.wikipedia.org/wiki/Comedy_and_tragedy_masks LIBERAL_LAUGHS_LIBERAL_TEARS_COMPULSIVE_MAGA_FOLLOWERS 
 
