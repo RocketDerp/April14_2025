@@ -1041,3 +1041,10 @@ CONDITIONED_OPPOSITION
 https://old.reddit.com/r/videos/comments/1r8rz5o/hakeem_jeffries_on_dhs_shutdown_why_are_we_in/o679tqq/
 
 Reddit community is not resisting, they are in a simulation of resistance since March 2013 when the Saint Petersburg Internet Research Agency was ramping up, invading USA media systems commenting. DENIAL_ABOUNDS -this Reddit user is only describing - which is not *resisting*. Tiny Twitter-length message comments to avoid nonfiction learning. Trapped "inside the box", commenting box on Reddit, thinking. Surkov won. ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING
+
+https://old.reddit.com/r/videos/comments/1r8rz5o/hakeem_jeffries_on_dhs_shutdown_why_are_we_in/o67f7gd/
+
+SOCIAL_MEDIA_DID_NOT "He doesn't want to stop Republicans" - the media cult **commenting cults on Reddit do not want to stop Republicans** / MAGA... no desire to stop Trumpism. People are entirely addicted to the TCP/IP notification network delivery of back and forth mocking that Putin and Trump agreed and created. Reddit is in extreme self-denial, lacking self-awareness that they are NOT RESISTING by mocking. Reddit community does not see that everyone is scattered and fragmented in reactionary mindsets. Social media has not stood up to media addiction of Fox News HDTV because the mocking back and forth is EVERYONE, not just MAGA cult! WANT_TO_STOP_THE_SHIT_SHOW_SHIT_COMMENTING_ADDICTIONS_MEDIA
+
+OPERA_A Is anybody LISTENING? Neil Postman 1985 book, nonfiction on paper, 184 pages - EXPLAINS if you LISTEN to the book. We are in a high-speed messaging feedback loop. MAGA mocks, Reddit mocks back. Back and forth anti-listening. Surkov won since March of year 2013. Smartphones did not always exist! The Apple iPad didn't always have a central role in politics! Trump is an actor performing Kremlin screenplays. https://www.youtube.com/watch?v=yjpSoEOUgKE Dance with Neil Postman, you never dance with learning nonfiction from Neil Postman! 1,685,598 views September 18, 2014  
+
