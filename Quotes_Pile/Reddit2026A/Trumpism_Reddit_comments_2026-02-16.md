@@ -885,3 +885,7 @@ Collectibles. Personal collection of favorite shock media content by Trump playi
 https://old.reddit.com/r/TikTokCringe/comments/1r8yb9f/what_they_wont_tell_you_about_harvard/o68fnmu/
 
 CULT_INDOCTRINATION into Harvard. She talks about childhood billionaire society programming that got her into that school. NAME_BRAND_UNIVERSITY_EDUCATION_EXCLUSIVE_ANTI_WIKI_ANTI_PLURIBUS
+
+https://old.reddit.com/r/TikTokCringe/comments/1r8yb9f/what_they_wont_tell_you_about_harvard/o68im9d/
+
+7 month Reddit account. Topic is basically the "old boys club" as we used to call it in the 1980's as to the domination of certain men in power. SEX_SELLS_SEX_LEADERS And what do people think Malala's movement is about with young girls in Pakistan, Afghanistan, and all over world? For being *uppity* on a WWW blog, establishment men put a bullet into Malala and her friends on a school bus in year 2012. NOT_GOOD_ENOUGH to make Malala a constant repeated topic while Epstein the king of kings man name is being repeated all over every media system. 
