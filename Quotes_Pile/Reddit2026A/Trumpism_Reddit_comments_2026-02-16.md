@@ -873,3 +873,7 @@ Day after day the media consumers of apps ("Hallow app" title) and Reddit app ma
 https://old.reddit.com/r/law/comments/1r93wwy/trump_just_said_on_live_tv_that_he_likes_young/o69okyf/
 
 Yes. Materialist, social cult of billionaires, cult of celebrity. Sex conquest, wealth conquet. Trump leads with dehumanization and people adopt and follow his leadership. STAND_UP_FOR_THE_BIG_GUY crushing the children. The Anti-Malala anti-education anti-learning values USA. NOT_GOOD_ENOUGH Malala since year 2012. See the timeline of Malala vs. Trump for USA society choice to promote and comment about on media systems: https://GitHub.com/RocketDerp/April14_2025/blob/main/PostMalala/Marriage/World_Malala_Timeline_Year_2012.md
+
+https://old.reddit.com/r/law/comments/1r93wwy/trump_just_said_on_live_tv_that_he_likes_young/o69px4n/
+
+Expectations from the Reddit commenting fandom describing what people expect in future months of entertainment-based leadership. Reddit users hang around on social machines to comment whenever an image, photo, quote, news about their celebrity appears. Live TV appearance in this case, posted on Reddit for the fandom. All the latest Trump content. SOCIAL_CULT_HATE_WATCHING_FANDOM
