@@ -761,3 +761,7 @@ https://old.reddit.com/r/International/comments/1r92gpq/_/o69qwor/
 https://old.reddit.com/r/law/comments/1r950kk/trump_just_took_10_billion_from_us_for_his_board/o69vjz7/
 
 World Wide Web of Cult Affairs.
+
+https://old.reddit.com/r/law/comments/1r950kk/trump_just_took_10_billion_from_us_for_his_board/o69wzpy/
+
+Twitter-length short messaging on Reddit comment section. Social media "engagement" of playing dumb and asking questions to get comment replies. The "conservative" at play is Putin values, Russia, that's the example of "conservative" word meaning. But the brain rot of "conservative vs. liberal" avoids actually naming a specific time period and nation that is a role model. BRAIN_ROT_LEFT_RIGHT_LIB_CON_NAME_AVOIDANCE
