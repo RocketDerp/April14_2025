@@ -1048,3 +1048,7 @@ SOCIAL_MEDIA_DID_NOT "He doesn't want to stop Republicans" - the media cult **co
 
 OPERA_A Is anybody LISTENING? Neil Postman 1985 book, nonfiction on paper, 184 pages - EXPLAINS if you LISTEN to the book. We are in a high-speed messaging feedback loop. MAGA mocks, Reddit mocks back. Back and forth anti-listening. Surkov won since March of year 2013. Smartphones did not always exist! The Apple iPad didn't always have a central role in politics! Trump is an actor performing Kremlin screenplays. https://www.youtube.com/watch?v=yjpSoEOUgKE Dance with Neil Postman, you never dance with learning nonfiction from Neil Postman! 1,685,598 views September 18, 2014  
 
+
+https://old.reddit.com/r/videos/comments/1r8rz5o/hakeem_jeffries_on_dhs_shutdown_why_are_we_in/o68szf3/
+
+ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING
