@@ -700,3 +700,10 @@ Downplaying the global brain rot crisis of We The People who interact with Russi
 https://old.reddit.com/r/europe/comments/1r8uspb/orbans_fidesz_party_shares_aigenerated_propaganda/o67t71j/
 
 Mentions Kremlin methods, but not Surkovian. No off-Reddit nonfiction book quotes or links. NOT_GOOD_ENOUGH Peter Pomerantsev to quote and repeat on social media to educate people about details and comprehension of Russian information warfare (such as this ANTI_REALITY video, the topic of the Reddit posting).
+
+https://old.reddit.com/r/news/comments/1r8ruym/bill_gates_cancels_keynote_speech_in_india_amid/o678bz2/
+
+Ahh, the private affairs of the Bellevue / Mercer Island / Redmond / Pioneer Square / Space Needle museum billionaires, board of directors when wealth was doubled in a single year. Richest men in the entire world. So many toxic memories of those years. So many sports team owner manipulation of audience mindsets power trauma.  Whoever goodness Jimi Hendrix and MLK Jr had was wrecked, I never imagined in 1998 things would be this terrible shit in 2026. I wish I had done more in 1998. Neil Postman was correct in 1970's, 1980's, 1990's about the hell we were creating.
+
+
+
