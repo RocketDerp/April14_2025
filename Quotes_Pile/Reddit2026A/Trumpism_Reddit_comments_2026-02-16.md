@@ -855,3 +855,12 @@ The USA is drowning in MAGA values and addicts to the Trump leadership of mockin
 https://old.reddit.com/r/interesting/comments/1r8qao6/police_discover_a_very_odd_fraternity_hazing_at/o671paj/
 
 Teaching... schooling... CULT_INDOCTRINATION
+
+https://old.reddit.com/r/videos/comments/1r8ypcg/epstein_files_epsteinbannon_texts_spark_maga/o68kwgn/
+
+https://old.reddit.com/r/videos/comments/1r8ypcg/epstein_files_epsteinbannon_texts_spark_maga/o68iy5t/
+
+BEYOND_DENIAL beyond the simulation Reddit cult fandom keeps claiming victory of "We Win", "Murdered By Words!". Surkov won since March 2013. 
+
+https://old.reddit.com/r/videos/comments/1r8ypcg/epstein_files_epsteinbannon_texts_spark_maga/o68pjwb/
+
