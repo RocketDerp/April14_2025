@@ -1052,3 +1052,7 @@ OPERA_A Is anybody LISTENING? Neil Postman 1985 book, nonfiction on paper, 184 p
 https://old.reddit.com/r/videos/comments/1r8rz5o/hakeem_jeffries_on_dhs_shutdown_why_are_we_in/o68szf3/
 
 ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING
+
+https://old.reddit.com/r/videos/comments/1r8rz5o/hakeem_jeffries_on_dhs_shutdown_why_are_we_in/o67l6l5/
+
+In other words, Reddit comment is criticizing that people (Hakeem Jeffries) are in denial and avoiding the reality of the situation. Downplaying, making a mockery. WAR_AGAINST_REALITY lost... War Against Reality was won by Russia against USA. We The People in USA, **including the Reddit comment creators. are AVOIDING: Dr. Bandy X Lee, Jen Senko, Peter Pomerantsev. Nonfiction Peter Pomerantsev avoided, nonfiction Jen Senko avoided, nonfiction Dr. Lee avoided (with 27 contributors). We The People** are commenting on social systems and not commenting about the hearts and minds lost to commenting itself, avoiding calls to intellectual nonfiction teaching and learning on RELEVANT CRITICAL APPLICABLE topics.
