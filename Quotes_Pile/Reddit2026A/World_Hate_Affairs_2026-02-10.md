@@ -751,3 +751,9 @@ https://old.reddit.com/r/UnderReportedNews/comments/1r93lm6/uk_blocks_president_
 
 PROMOTING_IGNORANCE_WORKS_PLAYING_DUMB_MOCKING
 
+https://old.reddit.com/r/International/comments/1r92gpq/_/o69qwor/
+
+"Insane", NOT_GOOD_ENOUGH Dr. Bandy X Lee for Reddit social users to seek out **the nonfiction section, the non-entertainment section, of the public library** and quote a book on paper. Dr. Bandy X Lee just isn't good enough to put attention and time into. Instead, people spend their free time and spare time making comments about "insane" without taking the subject seriously in any way.
+
+* “Assessing dangerousness is different from making a diagnosis: it is dependent on the situation, not the person. Signs of likely dangerousness due to mental disorder can become apparent without a full diagnostic interview and can be detected from a distance, and one is expected to err, if at all, on the side of safety when the risk of inaction is too great.”
+― Bandy X. Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. Published October 3, 2017. PROLOGUE. Page 5.](https://books.google.com/books?id=g0c4DwAAQBAJ&pg=PA5&dq=dangerousness+due+to+mental+disorder+can+become+apparent+without+a+full+diagnostic+interview+and+can+be+detected+from+a+distance&hl=en&newbks=1&newbks_redir=1&sa=X)
