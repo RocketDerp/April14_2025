@@ -88,3 +88,6 @@ https://old.reddit.com/r/BrandNewSentence/comments/1r8vwv0/bedford_borough_counc
 COMPREHENDING_UNDERSTANDING   
 Lies vs. misunderstandings, miscommunications, Tower of Babel clashes   
 https://old.reddit.com/r/TopCharacterTropes/comments/1r8vpjv/hated_trope_thats_not_how_lying_works_at_all/
+
+Terminology of native periods.   
+https://www.youtube.com/watch?v=UuLg5nCftvY   
