@@ -913,3 +913,9 @@ https://old.reddit.com/r/TikTokCringe/comments/1r8yb9f/what_they_wont_tell_you_a
 https://old.reddit.com/r/TikTokCringe/comments/1r8yb9f/what_they_wont_tell_you_about_harvard/o6922n7/
 
 People DO NOT REMEMBER. People are commenting over and over with low-effort comments on every media platform and not compiling FAQ / Wiki on critical important topics. RECENCY_BIAS eats away at collective mindsets, people are scattered all on different pages of topic with no organized revisiting of critical important topics.
+
+https://old.reddit.com/r/pics/comments/1r956ie/new_department_of_justice_banner/o69w4ah/
+
+"hilarious", with Twitter-length commenting about it. Not resisting, just commenting. SOCIAL_CULT_HATE_WATCHING_FANDOM on Reddit just comments every hour of every day for over a decade about images of Donald Trump. No concern to organize a Reddit blackout or top-25 topics list, etc. Just describing how amusing and comedic it all is to their minds. People who can't consider that MAYBE the "hilarious" is a mind exploit that Russian information warfare uses, Putin and Trump blow minds out with antics politics. How do we get people to stop laughing and start being serious? Nearly 11 years of the USA We The People joking away our nation. CHUCKLEHEAD_NATION
+
+
