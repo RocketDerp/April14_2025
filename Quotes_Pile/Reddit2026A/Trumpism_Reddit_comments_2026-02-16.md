@@ -918,4 +918,7 @@ https://old.reddit.com/r/pics/comments/1r956ie/new_department_of_justice_banner/
 
 "hilarious", with Twitter-length commenting about it. Not resisting, just commenting. SOCIAL_CULT_HATE_WATCHING_FANDOM on Reddit just comments every hour of every day for over a decade about images of Donald Trump. No concern to organize a Reddit blackout or top-25 topics list, etc. Just describing how amusing and comedic it all is to their minds. People who can't consider that MAYBE the "hilarious" is a mind exploit that Russian information warfare uses, Putin and Trump blow minds out with antics politics. How do we get people to stop laughing and start being serious? Nearly 11 years of the USA We The People joking away our nation. CHUCKLEHEAD_NATION
 
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1r9332v/fair_oaks_park_in_marietta_georgia_became_a_crime/o69ialr/
+
+Top-upvoted comment. "Looking forward" to White House reaction... comedic Reddit comment opening. Reddit community is a White House fandom. SOCIAL_CULT_HATE_WATCHING_FANDOM
 
