@@ -652,3 +652,51 @@ https://old.reddit.com/r/SipsTea/comments/1r89dyz/he_cooked/o63dc2l/
 https://old.reddit.com/r/science/comments/1r89keb/high_iq_men_tend_to_be_less_conservative_than/o63jqqf/
 
 BRAIN_ROT_LEFT_RIGHT_LIB_CON_NAME_AVOIDANCE
+
+https://old.reddit.com/r/HolyShitHistory/comments/1r86z00/during_the_199296_siege_of_sarajevo_wealthy/o62r0qv/
+
+NOT_GOOD_ENOUGH Dr. Martin Luther King Jr for society to promote and keep repeating over and over, asserting again and again: The 1954 Equation https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Martin_Luther_King_Jr_quotes0.md
+
+https://old.reddit.com/r/Michigan/comments/1r84iz0/as_seen_in_flint/o6290hw/
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mf66zo6rlk2x https://autistics.life/@RoundSparrow/116094138639822575 https://MidWest.Social/post/43630360 }
+
+https://old.reddit.com/r/Gamingcirclejerk/comments/1r8c6hq/ladies_and_gentlemen_we_got_em/o63u5z8/
+
+Word Wide Web children abuse affairs.
+
+https://old.reddit.com/r/Gamingcirclejerk/comments/1r8c6hq/ladies_and_gentlemen_we_got_em/o63vapo/
+
+https://old.reddit.com/r/Gamingcirclejerk/comments/1r8c6hq/ladies_and_gentlemen_we_got_em/o63v77w/
+
+https://old.reddit.com/r/Gamingcirclejerk/comments/1r8c6hq/ladies_and_gentlemen_we_got_em/o63uq50/
+
+https://old.reddit.com/r/Gamingcirclejerk/comments/1r8c6hq/ladies_and_gentlemen_we_got_em/o63wc7f/
+
+https://old.reddit.com/r/Gamingcirclejerk/comments/1r8c6hq/ladies_and_gentlemen_we_got_em/o63vkdg/
+
+https://old.reddit.com/r/30PlusSkinCare/comments/1r8hxm2/hot_take_beauty_standards_are_based_on_pdfile/o65gq7q/
+
+https://old.reddit.com/r/30PlusSkinCare/comments/1r8hxm2/hot_take_beauty_standards_are_based_on_pdfile/o654n6b/
+
+https://old.reddit.com/r/30PlusSkinCare/comments/1r8hxm2/hot_take_beauty_standards_are_based_on_pdfile/o657nvd/
+
+https://old.reddit.com/r/30PlusSkinCare/comments/1r8hxm2/hot_take_beauty_standards_are_based_on_pdfile/o65661a/
+
+https://old.reddit.com/r/30PlusSkinCare/comments/1r8hxm2/hot_take_beauty_standards_are_based_on_pdfile/o656lpg/
+
+https://old.reddit.com/r/30PlusSkinCare/comments/1r8hxm2/hot_take_beauty_standards_are_based_on_pdfile/o6580l4/
+
+https://old.reddit.com/r/30PlusSkinCare/comments/1r8hxm2/hot_take_beauty_standards_are_based_on_pdfile/o658p85/
+
+https://old.reddit.com/r/europe/comments/1r8uspb/orbans_fidesz_party_shares_aigenerated_propaganda/o67w4nm/
+
+Context of thread is simplistic Twitter-think "panic", we won mentality. SUPER_HYPER_NORMAL
+
+https://old.reddit.com/r/europe/comments/1r8uspb/orbans_fidesz_party_shares_aigenerated_propaganda/o67vjym/
+
+Downplaying the global brain rot crisis of We The People who interact with Russia. 
+
+https://old.reddit.com/r/europe/comments/1r8uspb/orbans_fidesz_party_shares_aigenerated_propaganda/o67t71j/
+
+Mentions Kremlin methods, but not Surkovian. No off-Reddit nonfiction book quotes or links. NOT_GOOD_ENOUGH Peter Pomerantsev to quote and repeat on social media to educate people about details and comprehension of Russian information warfare (such as this ANTI_REALITY video, the topic of the Reddit posting).

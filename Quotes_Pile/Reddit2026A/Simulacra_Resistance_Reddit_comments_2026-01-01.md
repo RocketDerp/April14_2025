@@ -1011,3 +1011,14 @@ Government is shutting up Reddit users. So Reddit audience predictably demands o
 https://old.reddit.com/r/clevercomebacks/comments/1r89lky/he_only_had_good_relationships/o639lja/
 
 4 month Reddit account, top upvoted popular comment. This whole Twitter screenshot pattern is **manipulation of Reddit fandom of Charlie Kirk to simulate resisting**. What is NOT being resisted: spending free time and spare time on these low-effort tiny Twitter-think mindset patterns Elon Musk promotes. This pattern of junk "dead man Kirk is next POTUS candidate" is the killing of the "Woke Mind Virus" that Musk is doing to Reddit. SEE_ALSO: https://www.LeMonde.FR/en/international/article/2024/08/13/elon-musk-s-ambition-repopulating-the-planet-and-destroying-the-woke-virus_6714239_4.html
+
+https://old.reddit.com/r/GetNoted/comments/1r8djyo/just_lol/o645b0q/
+
+The anti-FAQ anti-Wiki culture of Reddit commenting consumes free time and spare time all on low-effort shit-postings off Twitter, simulation of resistance. Non sense of urgency to organize a serious intellectual resistance with priority topics. ANTI_WIKI_ANTI_FAQ
+
+https://old.reddit.com/r/International/comments/1r8rw0c/potential_war_on_iran_should_be_called_the/o67etgq/
+
+EPSTEIN_FANDOM wants to have amusement parks named after Epstein. Epstein fandom on Reddit wants his name all over everything. Cult of rich white sex men labels on everything. This is not a call for goodness, this is a cal to put famous names in media. This isn't a protest, this is a simulation of a protest.
+
+* "But the Democrat’s response to this “tax and spend” is “No we don’t, nah nah na-nah nah: invest” **This is political debate in a democracy. No it’s not. It’s the simulation** of politics." - Duke University, Texan Rick Roderick. https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
+

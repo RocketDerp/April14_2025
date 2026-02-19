@@ -703,3 +703,37 @@ GULLIBLE_FANDOM - fiction outsells nonfiction. Part of why ChatGPT works so well
 WHEN_THE_PEOPLE_HAVE_LOST_THE_ABILITY   
 NEW_OPERA_NAME: #WhenThePeople    
 Social post { https://autistics.life/@RoundSparrow/116092045648074752 https://MidWest.Social/post/43613327 https://bsky.app/profile/roundsparrow.bsky.social/post/3mf5bckc4622d }
+
+https://old.reddit.com/r/Wellthatsucks/comments/1r8mkd9/just_took_the_whole_oven_apart_only_to_realize_i/o665spr/
+
+Drug use experiences. 
+
+https://old.reddit.com/r/Wellthatsucks/comments/1r8mkd9/just_took_the_whole_oven_apart_only_to_realize_i/o666jn9/
+
+https://old.reddit.com/r/Wellthatsucks/comments/1r8mkd9/just_took_the_whole_oven_apart_only_to_realize_i/o66580d/
+
+https://old.reddit.com/r/Wellthatsucks/comments/1r8mkd9/just_took_the_whole_oven_apart_only_to_realize_i/o6678bc/
+
+https://old.reddit.com/r/NonPoliticalTwitter/comments/1r8njgm/same/o66dneo/
+
+MEDIA_ECOLOGY_LESSON  
+
+https://old.reddit.com/r/NonPoliticalTwitter/comments/1r8njgm/same/o66hzcl/
+
+CONCERNS_OF_FINNEGANS overloaded luggage meaning
+
+https://old.reddit.com/r/Millennials/comments/1r8pw07/anyone_else_feel_this_way_when_writing_anything/o66xajw/
+
+The grammar problems are not as new as the "you machine" thinking. The anti-diversity. That a nonfiction book quote on Reddit means AI. When in reality, ChatGPT is terrible at quoting books and sources due to copyright infringement avoidance on training material. BRAIN_ROT_SOCIETY_47 
+
+https://old.reddit.com/r/Millennials/comments/1r8pw07/anyone_else_feel_this_way_when_writing_anything/o66uce4/
+
+CONCERNS_OF_FINNEGANS creative use of symbols like the book title of Finnegans Wake.
+
+https://old.reddit.com/r/Millennials/comments/1r8pw07/anyone_else_feel_this_way_when_writing_anything/o66ult5/
+
+Embracing that MASS_DEHUMANIZATION_POPULAR horrors of machine logic thinking in mindsets and we are all now clankers and bots. Wealth thinking of billionaires programmed in this Reddit user... as long as it makes profit, accept the ignorance of everyone else. Billionaires have done just that with artificial intelligence investing and Fox News HDTV mindsets.
+
+https://old.reddit.com/r/Millennials/comments/1r8pw07/anyone_else_feel_this_way_when_writing_anything/o66vebf/
+
+IGNORANCE_CELEBRATIONS cult of ignorance abounds. Cults of HDTV Fox News MAGA values. Trump-speak Truth Social gilded standard.

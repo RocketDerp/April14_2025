@@ -791,3 +791,64 @@ AGGRESSIVE_ESCALATE_HATE_REACT_HARDER_MINDSETS
 https://old.reddit.com/r/PublicFreakout/comments/1r8alle/i_feel_much_safer_with_undocumented_individuals/o63svjq/
 
 ICE_FANDOM ... no civic duty concern to use Reddit to have a world wide web uprising. ROUTINE_NO_NEED_TO_RESIST_OR_ORGANIZE_INTELLECTUAL_UPRISING
+
+https://old.reddit.com/r/PublicFreakout/comments/1r8alle/i_feel_much_safer_with_undocumented_individuals/o64ntwc/
+
+BRAIN_ROT_SOCIETY_47 
+
+https://old.reddit.com/r/law/comments/1r87p0d/colonel_sentenced_to_two_years_in_prison_for/o62z1wg/
+
+https://old.reddit.com/r/law/comments/1r87p0d/colonel_sentenced_to_two_years_in_prison_for/o631hmv/
+
+STAND_UP_FOR_THE_BIG_GUY  
+
+https://old.reddit.com/r/creepy/comments/1r8jtej/police_raided_the_university_of_iowas_alpha_delta/o65lit2/
+
+HAZING_RITUAL
+
+https://old.reddit.com/r/creepy/comments/1r8jtej/police_raided_the_university_of_iowas_alpha_delta/o65nt0q/
+
+CULT_INDOCTRINATION
+
+https://old.reddit.com/r/creepy/comments/1r8jtej/police_raided_the_university_of_iowas_alpha_delta/o65l68z/
+
+CULT_INDOCTRINATION
+
+https://old.reddit.com/r/30PlusSkinCare/comments/1r8hxm2/hot_take_beauty_standards_are_based_on_pdfile/o654g8n/
+
+Managing the private communications and analyzing the business affairs of the richest people in the world in Bellevue in 1998 my background never prepared me for what I would see and the "masculine" domination people believe in with white men in USA. I had the resources to study and research anything I wanted, but the way sports-logic and consumer-logic was used to capture audience loyalty has changed how I view all religions and entertainment systems.
+
+https://old.reddit.com/r/30PlusSkinCare/comments/1r8hxm2/hot_take_beauty_standards_are_based_on_pdfile/o656cg2/
+
+And people are really not looking at what "MeToo Movement" https://en.wikipedia.org/wiki/MeToo_movement and the whole image-selling business. And how men behave towards Trump's image. The mental processing change of all the men in my family over Trump has been extreme, and the attraction people have to hate-leadership and hate signaling is unstoppable with Trumpism / MAXIMUM_PUTINIZATION since year 2013. The persistence people have with hate paths and hate trajectory in USA...
+
+**QUOTE FROM NONFICTION BOOK FROM AUGUST 2000 FOLLOWS:**
+
+When conformity enforcers overwhelm diversity generators, all of us are in trouble. Spartans -- fundamentalists, militia groups, fascists, and ultra-nationalists -- can freeze the machinery of collective mind. A shutdown of urban diversity devastates that exercise of collective acumen we call an economy. Christian Fundamentalism has been shown by the research of sociologists Alfred Darnell and Darren E. Sherkat to retard the learning of children raised within its grasp. Darnell and Sherkat sum up a common Fundamentalist attitude in the following words: "No schooling is better than secular schooling." Then there's the paralysis of thought which outright battle brings. When World War I erupted, Sigmund Freud was horrified by the sudden "**narrow-mindedness shown by \[even\] the best intellects, their obduracy, their inaccessibility to the most forcible arguments**." Such closings of the mind may explain why authoritarians are prone to ignore it when their approaches flop. They often goose-step from one year to another rigidly glued to backfiring ways.
+
+Global Brain: The Evolution of Mass Mind from the Big Bang to the 21st Century      
+Chapter: The Kidnap of Mass Mind     
+Page: 203-204     
+Howard Bloom    
+Published: August 14, 2000    
+
+https://old.reddit.com/r/law/comments/1r8shci/its_all_coincidence_probably/o67f2q9/
+
+"insanely corrupt" - look at the Reddit posting title. No mention of the family name, non-specific, generic clickbait. This is what WE THE PEOPLE create and UPVOTE on Reddit. This is how anti-specific anti-concerned anti-serious we are about the brain rot of leadership and sharing we have all become. /r/Law is educated learned peoples, and this use of information systems is every nightmare Neil Postman described in his 1985 book 'Amusing Ourselves To Death" about Reddit media ecology! We are all on different pages with creative clever titles and all avoiding learning nonfiction organization of the most important understandings and teaching for adults!
+
+https://old.reddit.com/r/law/comments/1r8shci/its_all_coincidence_probably/o67byti/
+
+And why is her name not in the Reddit posting title? Why is MAGA values of anti-understanding and anti-comprehension being carried forward. FAN_PASSION_MAGA_VALUES
+
+https://old.reddit.com/r/law/comments/1r8shci/its_all_coincidence_probably/o67f6fz/
+
+Reply comment says: "Americans gave trump the national Jury Nullification after hearing his crimes, making all of them pointless in 2024. We can speculate as to why most Americans chose to do this, but legally that is what the usa voters have done." - exactly! WE THE PEOPLE with our meme-think addiction and acceptance of MAXIMUM_PUTNIZATION since year 2013 gave Trump the green light. Where is the Reddit Blackout in February 2024 when Trump was candidate for POTUS in November 2024? Where was the July 4, 2024 social media uprising to educate a Top 25 FAQ on WHY NOT to vote Trump and Project 20025 - social media meme-think junk garbage posting titles and low-information worship values.
+
+Why are people not saying the Russia NATO connection behaviors are stronger than ever. SOCIAL_MEDIA_DID_NOT stand up during the impeachments. Commenting about it is not online protesting, where was the Reddit blackout? Drown in a sea of LOL LOL comedy jokes and memes about orange skin and other superficial and banal addiction to humor and amusement. We let the Kremlin win an information war since March 2013, WE THE PEOPLE. 
+
+https://old.reddit.com/r/clevercomebacks/comments/1r8o61q/name_this_band/o66hzkk/
+
+UNDERSTANDING_TRUMPISM This entire post is celebrity fandom. Kid Rock fandom, RFK Jr. fandom. Instead of promoting removal of Trump and RFK Jr from power, the cult of celebrity icons and status symbols on Reddit posts images and fantasy art naming. MAGA_FANDOM - this is the media "Celebration of Ignorance" that Carl Sagan described in his 1995 nonfiction book. IGNORANCE_CELEBRATIONS
+
+The USA is drowning in MAGA values and addicts to the Trump leadership of mocking / mockery / hate-based leadership. People on Reddit are compulsive addicts to the amusing ourselves to death that Trump leads. This MAGA image worship has been going on every day on Reddit since June 16, 2015 it isn't just "a joke", it is an entire venue dedicated to celebrity image worship of Reality TV star Trump photos and media content. People so addicted to trash media that they actually believe Reality TV isn't scripted and this content isn't what makes them a MAGA fandom for prizing trash leaders as "humor", haha "liberal laughs", "liberal tears". Reality TV drama laughs 🎭 and tears 🎭. https://en.wikipedia.org/wiki/Comedy_and_tragedy_masks LIBERAL_LAUGHS_LIBERAL_TEARS_COMPULSIVE_MAGA_FOLLOWERS 
+
