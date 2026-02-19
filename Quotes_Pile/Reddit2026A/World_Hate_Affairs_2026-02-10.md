@@ -728,3 +728,7 @@ https://old.reddit.com/r/news/comments/1r903a3/the_israeli_government_installed_
 This Reddit user thinks that Russia government isn't ALSO doing what Israel intelligence / government is doing. Short-length Twitter-think tiny-mindset that only ONE nation can infiltrate criminals with manipulation of their minds. Reddit users can't even tell THEY are manipulated by Russia with FACTUAL EVIDENCE presented: https://www.bbc.com/news/technology-43301643
 
 The real problem of EPSTEIN_FANDOM on Reddit is how gullible they are in not actually being able to cite { University of Toronto's Marshall McLuhan, Dr. Bandy X Lee's assembled 27 educators for the general public, New York University's Neil Postman }. Reddit meme-think users with their tiny-short messages are trivializing what Surkov students have done since March 2013 manipulating the ENTIRE INTERNET, World Wide Web, Reddit users included.
+
+https://old.reddit.com/r/news/comments/1r903a3/the_israeli_government_installed_and_maintained/o68zofq/
+
+MEDIA_CULTS_ADDICTIVE_FICTION The cults of clickbait consumerism don't seek out nonfiction. The anti-Wiki anti Wiki Tribune commenting society... since year 2017 Wiki Tribune has been put on the public media table, and Reddit instead eats off the garbage pile of corporate programming into minds.
