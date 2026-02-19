@@ -839,3 +839,11 @@ https://old.reddit.com/r/law/comments/1r8shci/its_all_coincidence_probably/o67f2
 https://old.reddit.com/r/law/comments/1r8shci/its_all_coincidence_probably/o67byti/
 
 And why is her name not in the Reddit posting title? Why is MAGA values of anti-understanding and anti-comprehension being carried forward. FAN_PASSION_MAGA_VALUES
+
+https://old.reddit.com/r/law/comments/1r8shci/its_all_coincidence_probably/o67f6fz/
+
+Reply comment says: "Americans gave trump the national Jury Nullification after hearing his crimes, making all of them pointless in 2024. We can speculate as to why most Americans chose to do this, but legally that is what the usa voters have done." - exactly! WE THE PEOPLE with our meme-think addiction and acceptance of MAXIMUM_PUTNIZATION since year 2013 gave Trump the green light. Where is the Reddit Blackout in February 2024 when Trump was candidate for POTUS in November 2024? Where was the July 4, 2024 social media uprising to educate a Top 25 FAQ on WHY NOT to vote Trump and Project 20025 - social media meme-think junk garbage posting titles and low-information worship values.
+
+Why are people not saying the Russia NATO connection behaviors are stronger than ever. SOCIAL_MEDIA_DID_NOT stand up during the impeachments. Commenting about it is not online protesting, where was the Reddit blackout? Drown in a sea of LOL LOL comedy jokes and memes about orange skin and other superficial and banal addiction to humor and amusement. We let the Kremlin win an information war since March 2013, WE THE PEOPLE. 
+
+
