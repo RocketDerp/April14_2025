@@ -738,3 +738,7 @@ https://old.reddit.com/r/news/comments/1r903a3/the_israeli_government_installed_
 https://old.reddit.com/r/ForCuriousSouls/comments/1r8yrg4/ohio_mom_dumped_newborn_in_sorority_house_trash/o68kub5/
 
 I find it interesting this made front page all with huge number of comments, but a quick search of the text on page doesn't hit upvoted comments with word "church". "Muskingum University is a private liberal arts institution in New Concord, Ohio, founded in 1837 and affiliated with the Presbyterian Church (USA)". 
+
+https://old.reddit.com/r/politics/comments/1r925y6/democratic_lawmaker_if_a_prince_can_be_held/o69ebmp/
+
+"Our repeated Petitions have been answered only by repeated injury. A Prince, whose character is thus marked by every act which may define a Tyrant, is unfit to be the ruler of a free people." - Deceleration of Independence.
