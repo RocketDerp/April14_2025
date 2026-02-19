@@ -660,3 +660,17 @@ NOT_GOOD_ENOUGH Dr. Martin Luther King Jr for society to promote and keep repeat
 https://old.reddit.com/r/Michigan/comments/1r84iz0/as_seen_in_flint/o6290hw/
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mf66zo6rlk2x https://autistics.life/@RoundSparrow/116094138639822575 https://MidWest.Social/post/43630360 }
+
+https://old.reddit.com/r/Gamingcirclejerk/comments/1r8c6hq/ladies_and_gentlemen_we_got_em/o63u5z8/
+
+Word Wide Web children abuse affairs.
+
+https://old.reddit.com/r/Gamingcirclejerk/comments/1r8c6hq/ladies_and_gentlemen_we_got_em/o63vapo/
+
+https://old.reddit.com/r/Gamingcirclejerk/comments/1r8c6hq/ladies_and_gentlemen_we_got_em/o63v77w/
+
+https://old.reddit.com/r/Gamingcirclejerk/comments/1r8c6hq/ladies_and_gentlemen_we_got_em/o63uq50/
+
+https://old.reddit.com/r/Gamingcirclejerk/comments/1r8c6hq/ladies_and_gentlemen_we_got_em/o63wc7f/
+
+https://old.reddit.com/r/Gamingcirclejerk/comments/1r8c6hq/ladies_and_gentlemen_we_got_em/o63vkdg/
