@@ -81,3 +81,6 @@ https://old.reddit.com/r/BrandNewSentence/comments/1r8k1fl/man_was_yeast/
 
 USA religion politics    
 https://old.reddit.com/r/science/comments/1r8hsih/fifty_years_ago_republicans_exhibited_more/
+
+Moon movements   
+https://old.reddit.com/r/BrandNewSentence/comments/1r8vwv0/bedford_borough_council_holds_no_authority_over/
