@@ -831,3 +831,8 @@ Chapter: The Kidnap of Mass Mind
 Page: 203-204     
 Howard Bloom    
 Published: August 14, 2000    
+
+https://old.reddit.com/r/law/comments/1r8shci/its_all_coincidence_probably/o67f2q9/
+
+"insanely corrupt" - look at the Reddit posting title. No mention of the family name, non-specific, generic clickbait. This is what WE THE PEOPLE create and UPVOTE on Reddit. This is how anti-specific anti-concerned anti-serious we are about the brain rot of leadership and sharing we have all become. /r/Law is educated learned peoples, and this use of information systems is every nightmare Neil Postman described in his 1985 book 'Amusing Ourselves To Death" about Reddit media ecology! We are all on different pages with creative clever titles and all avoiding learning nonfiction organization of the most important understandings and teaching for adults!
+
