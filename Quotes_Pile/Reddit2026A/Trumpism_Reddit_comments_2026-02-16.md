@@ -938,3 +938,8 @@ https://old.reddit.com/r/videos/comments/1r9bktt/president_trump_on_arrest_of_fo
 
 Reddit commenting community staring at Congress saying "why are you not doing anything!" while social media society joke-washes, humor-washes, sane-washes, comedy-washes, meme-washes Trump and MAGA as a constant source of amusement and entertainment... avoiding nonfiction serious public education from Dr. Bandy X Lee, not calling for an INTERNET WWW protest, etc. AMUSEMENT_AS_USUAL We The People of the WWwW have not stood up or organized a "We The People" open letter / protest statement. So much high-speed reaction to Trump statements commenting on different pages, so little *getting on the same page* of critical topics.
 
+https://old.reddit.com/r/videos/comments/1r9bktt/president_trump_on_arrest_of_former_prince_andrew/o6b83ki/
+
+Gullible and ignorant Reddit comment community believes that Trump's use of media systems and messaging just "accidentally" lands him in the most powerful position in media over and over for 10 years. SURKOVIAN_ONION_EATING
+
+
