@@ -925,3 +925,8 @@ Top-upvoted comment. "Looking forward" to White House reaction... comedic Reddit
 https://old.reddit.com/r/BlackPeopleofReddit/comments/1r9332v/fair_oaks_park_in_marietta_georgia_became_a_crime/o69hq7s/
 
 "The times we are in", UNDERSTANDING_TRUMPISM - is that July 6, 2011 Trump went all in on Twitter 140 characters, and a cult of low-effort commenting that is pro-violence and pro-hate was created. And the anti-intellectual attitudes have expanded under Putin and Trump media leadership. The answer is not more ignorance and mockery.
+
+https://old.reddit.com/r/Fauxmoi/comments/1r98eiq/president_trump_falls_asleep_at_the_inaugural/o6aixyn/
+
+6 month Reddit account. Most popular upvoted top comment. AMUSEMENT_COMEDY_WASHING_TRUMP_AS_FUNNY_MEDIA_SANEWASHING   
+
