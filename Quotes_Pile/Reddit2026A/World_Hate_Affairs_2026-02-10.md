@@ -742,3 +742,6 @@ I find it interesting this made front page all with huge number of comments, but
 https://old.reddit.com/r/politics/comments/1r925y6/democratic_lawmaker_if_a_prince_can_be_held/o69ebmp/
 
 "Our repeated Petitions have been answered only by repeated injury. A Prince, whose character is thus marked by every act which may define a Tyrant, is unfit to be the ruler of a free people." - Deceleration of Independence.
+
+https://old.reddit.com/r/interestingasfuck/comments/1r91o2k/punch_the_abandoned_monkey_has_an_awful_day_after/o699ax3/
+
