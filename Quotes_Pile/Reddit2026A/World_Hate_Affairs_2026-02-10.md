@@ -745,3 +745,9 @@ https://old.reddit.com/r/politics/comments/1r925y6/democratic_lawmaker_if_a_prin
 
 https://old.reddit.com/r/interestingasfuck/comments/1r91o2k/punch_the_abandoned_monkey_has_an_awful_day_after/o699ax3/
 
+https://old.reddit.com/r/UnderReportedNews/comments/1r93lm6/uk_blocks_president_trump_from_using_british/o69m0v2/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1r93lm6/uk_blocks_president_trump_from_using_british/o69ni5k/
+
+PROMOTING_IGNORANCE_WORKS_PLAYING_DUMB_MOCKING
+
