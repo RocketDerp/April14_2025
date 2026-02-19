@@ -718,3 +718,13 @@ CHOICE_MARRIAGE_HONESTY About the only GOODNESS to cone out of celebrity marriag
 * "BILL MOYERS: And poetry gets to the unseen reality. CAMPBELL: That which is beyond even the concept of reality, that which transcends all thought. The myth puts you there all the time, gives you a line to connect with that mystery which you are. Shakespeare said that art is a mirror held up to nature. And that’s what it is. The nature is your nature, and all of these wonderful poetic images of mythology are referring to something in you. When your mind is simply trapped by the image out there so that you never make the reference to yourself, you have misread the image." published year 1988, Power of Myth
 
 OPERA_A Styx Year 1976 story https://www.youtube.com/watch?v=IYKwpWPOA5c 2,164,623 views October 12, 2012
+
+https://old.reddit.com/r/news/comments/1r903a3/the_israeli_government_installed_and_maintained/o68t3q0/
+
+World Hate Affairs.
+
+https://old.reddit.com/r/news/comments/1r903a3/the_israeli_government_installed_and_maintained/o68yy5s/
+
+This Reddit user thinks that Russia government isn't ALSO doing what Israel intelligence / government is doing. Short-length Twitter-think tiny-mindset that only ONE nation can infiltrate criminals with manipulation of their minds. Reddit users can't even tell THEY are manipulated by Russia with FACTUAL EVIDENCE presented: https://www.bbc.com/news/technology-43301643
+
+The real problem of EPSTEIN_FANDOM on Reddit is how gullible they are in not actually being able to cite { University of Toronto's Marshall McLuhan, Dr. Bandy X Lee's assembled 27 educators for the general public, New York University's Neil Postman }. Reddit meme-think users with their tiny-short messages are trivializing what Surkov students have done since March 2013 manipulating the ENTIRE INTERNET, World Wide Web, Reddit users included.
