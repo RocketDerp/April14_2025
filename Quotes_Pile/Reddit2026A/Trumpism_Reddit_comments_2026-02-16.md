@@ -909,3 +909,7 @@ https://old.reddit.com/r/TikTokCringe/comments/1r8yb9f/what_they_wont_tell_you_a
 https://old.reddit.com/r/TikTokCringe/comments/1r8yb9f/what_they_wont_tell_you_about_harvard/o6964ro/
 
 1 month Reddit account. No off-Reddit URL, no quotes from nonfiction book. Anti-Wiki anti-FAQ culture of Reddit cult to commenting. ANTI_WIKI_ANTI_FAQ
+
+https://old.reddit.com/r/TikTokCringe/comments/1r8yb9f/what_they_wont_tell_you_about_harvard/o6922n7/
+
+People DO NOT REMEMBER. People are commenting over and over with low-effort comments on every media platform and not compiling FAQ / Wiki on critical important topics. RECENCY_BIAS eats away at collective mindsets, people are scattered all on different pages of topic with no organized revisiting of critical important topics.
