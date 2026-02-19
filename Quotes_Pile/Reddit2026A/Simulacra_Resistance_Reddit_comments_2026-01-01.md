@@ -1034,4 +1034,10 @@ https://old.reddit.com/r/MurderedByWords/comments/1r8x41v/you_are_living_in_thei
 
 This is a nation that can't resist satire, sarcasm, surreal comedy, absurd humor. Surkov won. Repeating: CAN NOT RESIST. Reddit community is not resisting. SATIRE_SARCASM_WASHING that Reddit community has done every single hour of every single day since June 16, 2015 has wrecked the nations. People have blown their minds in USA. Surkov students won.
 
+https://old.reddit.com/r/videos/comments/1r8rz5o/hakeem_jeffries_on_dhs_shutdown_why_are_we_in/o679xnp/
 
+CONDITIONED_OPPOSITION
+
+https://old.reddit.com/r/videos/comments/1r8rz5o/hakeem_jeffries_on_dhs_shutdown_why_are_we_in/o679tqq/
+
+Reddit community is not resisting, they are in a simulation of resistance since March 2013 when the Saint Petersburg Internet Research Agency was ramping up, invading USA media systems commenting. DENIAL_ABOUNDS -this Reddit user is only describing - which is not *resisting*. Tiny Twitter-length message comments to avoid nonfiction learning. Trapped "inside the box", commenting box on Reddit, thinking. Surkov won. ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING
