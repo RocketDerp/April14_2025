@@ -773,3 +773,6 @@ https://old.reddit.com/r/law/comments/1r950kk/trump_just_took_10_billion_from_us
 https://old.reddit.com/r/law/comments/1r950kk/trump_just_took_10_billion_from_us_for_his_board/o69x6cq/
 
 Extreme tiny-short 4-word Twitter-thinking commenting on Reddit. Describes issue, but no alarm to actually rise up on social media, We The People power. ROUTINE_NO_NEED_TO_RESIST_OR_ORGANIZE_INTELLECTUAL_UPRISING
+
+https://old.reddit.com/r/worldnews/comments/1r953u2/uk_refusing_to_allow_trump_to_use_raf_bases_to/o69xuyr/
+
