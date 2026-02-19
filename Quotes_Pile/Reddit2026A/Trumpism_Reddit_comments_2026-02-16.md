@@ -801,3 +801,15 @@ https://old.reddit.com/r/law/comments/1r87p0d/colonel_sentenced_to_two_years_in_
 https://old.reddit.com/r/law/comments/1r87p0d/colonel_sentenced_to_two_years_in_prison_for/o631hmv/
 
 STAND_UP_FOR_THE_BIG_GUY  
+
+https://old.reddit.com/r/creepy/comments/1r8jtej/police_raided_the_university_of_iowas_alpha_delta/o65lit2/
+
+HAZING_RITUAL
+
+https://old.reddit.com/r/creepy/comments/1r8jtej/police_raided_the_university_of_iowas_alpha_delta/o65nt0q/
+
+CULT_INDOCTRINATION
+
+https://old.reddit.com/r/creepy/comments/1r8jtej/police_raided_the_university_of_iowas_alpha_delta/o65l68z/
+
+CULT_INDOCTRINATION
