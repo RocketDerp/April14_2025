@@ -737,3 +737,9 @@ Embracing that MASS_DEHUMANIZATION_POPULAR horrors of machine logic thinking in 
 https://old.reddit.com/r/Millennials/comments/1r8pw07/anyone_else_feel_this_way_when_writing_anything/o66vebf/
 
 IGNORANCE_CELEBRATIONS cult of ignorance abounds. Cults of HDTV Fox News MAGA values. Trump-speak Truth Social gilded standard.
+
+https://old.reddit.com/r/technology/comments/1r8yv5u/judge_warns_smart_glasses_wearers_of_contempt/o68onuq/
+
+https://old.reddit.com/r/technology/comments/1r8yv5u/judge_warns_smart_glasses_wearers_of_contempt/o68salu/
+
+* "Being illiterate in the processes of any medium (language) leaves one at the mercy of those who control it. The new media — these new languages — then are among the most important "subjects" to be studied in the interests of survival." - Neil Postman on media ecology
