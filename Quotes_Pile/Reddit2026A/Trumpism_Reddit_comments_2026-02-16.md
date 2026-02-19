@@ -905,3 +905,7 @@ Please Stop making 4-word Tweet-thinking Elon Musk "mind virus" programmed tiny-
 https://old.reddit.com/r/TikTokCringe/comments/1r8yb9f/what_they_wont_tell_you_about_harvard/o68jq8n/
 
 5 months Reddit account.
+
+https://old.reddit.com/r/TikTokCringe/comments/1r8yb9f/what_they_wont_tell_you_about_harvard/o6964ro/
+
+1 month Reddit account. No off-Reddit URL, no quotes from nonfiction book. Anti-Wiki anti-FAQ culture of Reddit cult to commenting. ANTI_WIKI_ANTI_FAQ
