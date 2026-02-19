@@ -734,3 +734,6 @@ https://old.reddit.com/r/Millennials/comments/1r8pw07/anyone_else_feel_this_way_
 
 Embracing that MASS_DEHUMANIZATION_POPULAR horrors of machine logic thinking in mindsets and we are all now clankers and bots. Wealth thinking of billionaires programmed in this Reddit user... as long as it makes profit, accept the ignorance of everyone else. Billionaires have done just that with artificial intelligence investing and Fox News HDTV mindsets.
 
+https://old.reddit.com/r/Millennials/comments/1r8pw07/anyone_else_feel_this_way_when_writing_anything/o66vebf/
+
+IGNORANCE_CELEBRATIONS cult of ignorance abounds. Cults of HDTV Fox News MAGA values. Trump-speak Truth Social gilded standard.
