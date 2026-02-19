@@ -1024,8 +1024,9 @@ EPSTEIN_FANDOM wants to have amusement parks named after Epstein. Epstein fandom
 
 https://old.reddit.com/r/BuyFromEU/comments/1r8u3bd/trumps_betrayal_of_allies_has_sparked/o67nxbc/
 
-"They have no idea". Yes, they do. This is a mass dehumanization war of All. WAR_ALL_AGAINST_ALL - started by Surkov students on the World Wide Web in March 2013. People aren't resisting the war of all hate all. 
+"They have no idea". Yes, they do. This is a mass dehumanization war of All. WAR_ALL_AGAINST_ALL - started by Surkov students on the World Wide Web in March 2013. People aren't resisting the war of all hate all. This is not resisting what is happening, this is not calling for cult rescue of Russia and USA, this is behaving as conditioned in the simulation Surkov students created.
 
 https://old.reddit.com/r/BuyFromEU/comments/1r8u3bd/trumps_betrayal_of_allies_has_sparked/o67sluf/
 
-HYPER_SIMPLE_TRIVIALIZE_BANAL_SELF_ONLY_CONCERN As long as ONE person is discussing it, then that's all that matters. Egoism. Trump vales of egoism.
+HYPER_SIMPLE_TRIVIALIZE_BANAL_SELF_ONLY_CONCERN As long as ONE person is discussing it, then that's all that matters. Egoism. Trump vales of egoism. It made the front page of /r/All because of the subreddit community. The people of USA are the ones who need to see it first thing in the morning. Because USA people are a cult of anti-reality, fiction media cult, and this is nonfiction.
+
