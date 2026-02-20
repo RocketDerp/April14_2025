@@ -1,5 +1,17 @@
 # Arab Spring year 2009 Realizations
 
+https://x.com/RoundSparrow/status/1708155443   
+
+"Autism is the fastest-growing serious developmental disability in USA. It's newly diagnosed in 67 children every day."
+
+10:42 AM · May 5, 2009   
+
+&nbsp;
+
+# December 2009
+
+&nbsp;
+
 https://x.com/RoundSparrow/status/6278584287   
 December 2, 2009   
 it seems to me... Mythology is to Philosophy as....  Engineering is to Theoretical Physics    
