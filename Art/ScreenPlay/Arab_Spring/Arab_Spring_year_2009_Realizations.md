@@ -132,3 +132,11 @@ https://x.com/RoundSparrow/status/10514213034
 ❤++ is life is life is life is life is Allah is God is is Buddha is Jesus is All is Every is Love is ❤++ ❤++   
 
 5:00 AM · Mar 15, 2010   
+
+
+https://x.com/RoundSparrow/status/10514409575    
+
+The "middle path" is not free of conflict, it is constant conflict!!!!!!!!!!!!!!!!!!!!!?!!!!!   
+
+5:06 AM · Mar 15, 2010   
+
