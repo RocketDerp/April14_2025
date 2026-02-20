@@ -1,4 +1,4 @@
-# Epstein Island Alternate Realtiy Game (ARG)
+# Epstein Island Alternate Reality Game (ARG)
 
 medium massage. media ecology ARG.
 
