@@ -802,3 +802,9 @@ https://old.reddit.com/r/politics/comments/1r9cneu/the_arrest_of_former_prince_a
 https://old.reddit.com/r/StardustCrusaders/comments/1r97g15/looks_like_they_censored_the_white_mans_money_in/o6ah6v6/
 
 EVERYTHING_IS_MEDIA_ECOLOGY "regional adjustments"
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1r9axfp/what/o6b99ry/
+
+CONCERNS_OF_FINNEGANS Concerns of James Joyce's Finnegans Wake. The Tower of Babel concepts that come from people who jump to all kinds of conclusions on understanding and comprehension. We live in a world where people can't find Romans 11:32 in the Bible. I'm not talking about "belief" in Jesus or believing in God. I'm talking about LITERACY of jokes and memes. verse "1 John 4:20" BIBLE_LITERACY crisis. "I love Jesus" is WRONG - read "1 John 4:20" - you have never *seen Jesus*, you have never ***seen God***, you have seen LIVING HUMAN persons. And that manipulation of science fiction fandoms to concentrate power in the hands of the few and indoctrinate children into male-dominated abuse systems. The ASSUMPTIONS people have over humor, jokes, comprehension, understandings are horrific!
+
+* "Finnegans Wake is the greatest guidebook to media study ever fashioned by man." - Marshall McLuhan, Newsweek Magazine, p.56, February 28, 1966. University of Toronto.
