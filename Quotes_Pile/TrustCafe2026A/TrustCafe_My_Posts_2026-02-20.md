@@ -17,3 +17,9 @@ I created a GitHub project in my troubled attempts to articulate and organize un
 
 https://GitHub.com/GreatSealUSA/Brainrot_Society_47
 
+
+https://www.trustcafe.io/en/post/1771598397421-e8bef862
+
+**German press**: U.S.A. Historian Robert Kagan: "We Are Watching a Country Fall Under Dictatorship Almost Without Resistance"
+
+https://www.spiegel.de/international/world/u-s-historian-robert-kagan-we-are-watching-a-country-fall-under-dictatorship-almost-without-resistance-a-d262290b-cca0-4c2f-945d-2ef3b64c574f
