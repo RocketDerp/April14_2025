@@ -1062,3 +1062,10 @@ https://old.reddit.com/r/law/comments/1ra4yys/president_trump_imposes_a_10_globa
 https://old.reddit.com/r/law/comments/1ra4yys/president_trump_imposes_a_10_global_tariff_under/o6h9kg1/
 
 TRUMP_FOLLOWERS on Reddit, who as fast as they can, want to follow the leader, Trump. SUPER_HYPER_NORMAL
+
+https://old.reddit.com/r/law/comments/1ra4yys/president_trump_imposes_a_10_global_tariff_under/o6h8mfj/
+
+Ponder the quotes on the Reddit user's profile. Why is REDDIT ITSELF not repeating over and over quotes from Dr. Bandy X Lee about Trump's danger? Published since October 3, 2017 sitting in the nonfiction section of the public library... Read the comment message, lots of time *watching* politicians. We need those Greatful Dead quotes applied to Reddit media consumers. 
+
+OPERA_A We The People are the Dead, Dead like Tim Finnegan - we need WOKE, as in Wake, as in Finnegans Wake. https://www.youtube.com/watch?v=mzvk0fWtCs0 20,149,317 views September 21, 2012 Clocks are running late, Reddit users!
+
