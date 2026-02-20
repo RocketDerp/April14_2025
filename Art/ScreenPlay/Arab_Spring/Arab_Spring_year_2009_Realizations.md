@@ -120,3 +120,10 @@ https://x.com/RoundSparrow/status/10511595405
 Dropping a IRL friend, divorce, following on Twitter, unfriending on FaceBook. These are >= personal ::Book Burning::. It is hating ideas   
 
 3:27 AM · Mar 15, 2010    
+
+https://twitter.com/RoundSparrow/status/10513461112   
+
+A lot of us monkeys have to type a lot of bullshit to reach to Shakespeare.   
+
+4:36 AM · Mar 15, 2010
+
