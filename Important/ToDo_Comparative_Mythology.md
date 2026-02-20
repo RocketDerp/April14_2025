@@ -91,3 +91,6 @@ https://old.reddit.com/r/TopCharacterTropes/comments/1r8vpjv/hated_trope_thats_n
 
 Terminology of native periods.   
 https://www.youtube.com/watch?v=UuLg5nCftvY   
+
+Mythology of sex outside marriage, modern birth control and casual hookups    
+https://old.reddit.com/r/pics/comments/1r9y0ox/posters_made_by_students_to_promote_safe_sex/
