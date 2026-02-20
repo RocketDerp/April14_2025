@@ -140,3 +140,32 @@ The "middle path" is not free of conflict, it is constant conflict!!!!!!!!!!!!!!
 
 5:06 AM · Mar 15, 2010   
 
+https://x.com/RoundSparrow/status/10633730586    
+
+Please: STOP thinking that WORDS mean what you THINK THEY mean. Sometimes people say the wrong thing or think different!   
+
+11:50 AM · Mar 17, 2010   
+
+https://x.com/RoundSparrow/status/10673240585   
+
+There are at least two Stories to every Landslide.   
+
+7:24 AM · Mar 18, 2010   
+
+https://x.com/RoundSparrow/status/10684921010   
+
+Adam and Eve ate an Apple Computer that would distract them all the time, so they would be Fearful of Dating each other, online creeps   
+
+12:07 PM · Mar 18, 2010    
+
+https://x.com/RoundSparrow/status/10688999281   
+
+Why are people so serious about religion, There Must be Something About Mary or Buddha   
+
+1:56 PM · Mar 18, 2010
+
+https://x.com/RoundSparrow/status/10828934232   
+
+An observation is that some atheists rail against religion Facts without much consideration to religion Purpose   
+
+10:04 AM · Mar 21, 2010   
