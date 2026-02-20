@@ -1075,3 +1075,11 @@ Anti-PLURIBUS anti-We anti-us anti-Everyone anti-All - it is We The People who n
 
 NEW_OPERA_NAME #OurRepeatedPetitions    
 Social post { https://bsky.app/profile/roundsparrow.bsky.social https://autistics.life/@RoundSparrow/116105470378195874 }   
+
+https://old.reddit.com/r/FascinatingAsFuck/comments/1r9xopb/he_is_profoundly_offensively_disgusting/o6fo5o9/
+
+<img width="1252" height="821" alt="image" src="https://github.com/user-attachments/assets/da05efbc-4acf-419b-bb78-3054d02d737f" />
+
+FICTION_OUTSELLS_NONFICTION "the answer is simple: with every new low Trump descends to, conservatives imagine a brand new fictional offense that Democrats have committed." ANTI_REALITY 
+
+Social post { https://autistics.life/@RoundSparrow/116105530336833573 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfdau6exps22 }
