@@ -1036,4 +1036,12 @@ https://old.reddit.com/r/UnderReportedNews/comments/1r9tpz2/last_week_donald_tru
 
 It is not amazing in any way. The USA society has abandoned and forgotten serious nonfiction books on paper. Surkov won since March of year 2013.
 
+https://old.reddit.com/r/UnderReportedNews/comments/1r9tpz2/last_week_donald_trump_registered_the_trademark/o6espxg/
 
+<img width="1426" height="1384" alt="image" src="https://github.com/user-attachments/assets/e9695189-46a2-4118-ae3c-68ddbd24d9bb" />
+
+Yes. **"right in the public view and no one challenges it at all"** WHEN_THE_PEOPLE_HAVE_LOST_THE_ABILITY
+Creates public content, in the public view, via media systems. "No one challenges it at all", zero resistance, *especially social media* end-users who have free time and spare time to comment about every action Trump makes, every statement Donald Trump makes, every image of Donald Trump that appears on social sites, etc. SOCIAL_CULT_HATE_WATCHING_FANDOM
+
+NEW_OPERA_NAME #NoOneChallenges #PublicViewAnd   
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mfckibxabk22 https://autistics.life/@RoundSparrow/116103957237942432 }
