@@ -776,3 +776,13 @@ Extreme tiny-short 4-word Twitter-thinking commenting on Reddit. Describes issue
 
 https://old.reddit.com/r/worldnews/comments/1r953u2/uk_refusing_to_allow_trump_to_use_raf_bases_to/o69xuyr/
 
+https://old.reddit.com/r/UFOs/comments/1r9a5iv/trump_on_obamas_comments_and_alienshe_gave/o6ayayb/
+
+Yes. We spend so much labor and time commenting on the affairs of rich white men and not educating and teaching adults nonfiction books. Social media could be used to teach Carl Sagan, instead we teach the latest junk meme about Donald Trump's statements.
+
+* "Finding the occasional straw of truth awash in a great ocean of confusion and bamboozle requires vigilance, dedication and courage. But if we don’t practice these tough habits of thought, we cannot hope to solve the truly serious problems that face us and we risk becoming a nation of suckers" ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995, page 38. Nonfiction book.
+
+* “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is **no such thing as science** or literature, that dinosaurs never existed and **man never went to the moon**.”
+― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. October 8, 2013. Nonfiction book.
+
+Our hatred of nonfiction learning has wrecked a nation. The attraction to Trump as a source of mythology and wild fiction stories... has wrecked the USA.
