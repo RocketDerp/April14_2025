@@ -1069,3 +1069,7 @@ Ponder the quotes on the Reddit user's profile. Why is REDDIT ITSELF not repeati
 
 OPERA_A We The People are the Dead, Dead like Tim Finnegan - we need WOKE, as in Wake, as in Finnegans Wake. https://www.youtube.com/watch?v=mzvk0fWtCs0 20,149,317 views September 21, 2012 Clocks are running late, Reddit users!
 
+https://old.reddit.com/r/FascinatingAsFuck/comments/1r9xopb/he_is_profoundly_offensively_disgusting/o6fq88k/
+
+Anti-PLURIBUS anti-We anti-us anti-Everyone anti-All - it is We The People who need to show force of quantity. CIVIC_DUTY_WE_PEOPLE Steady repeating, every 4 hours, on Reddit and Bluesky, over and over and over, that We The People are what We want Government to serve. "In every stage of these Oppressions We have Petitioned for Redress in the most humble terms: Our repeated Petitions have been answered only by repeated injury."
+
