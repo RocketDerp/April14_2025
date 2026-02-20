@@ -74,3 +74,5 @@ Stephen Gutknecht - 👁 1776, All Equal
 @RoundSparrow   
 We don't prepare for the future and help each other with education and information, we sabotage our neighbors in the name of having a nicer house than them. Information has now become too profitable, so we give out disinformation. #WasteLandUSA    
 8:53 AM · Feb 25, 2020   
+
+Social post { https://autistics.life/@RoundSparrow/116104766315710686 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfcvzb4pak2m }
