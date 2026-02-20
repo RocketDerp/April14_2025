@@ -1,4 +1,4 @@
-# Post Credo: Having Orgams Opera
+# Post Credo: Having Orgasms Opera
 
 ::: "I was the only one having orgasms" - Taylor Tomlinson  
 https://youtu.be/JNtj_5ETrHg?t=44   
@@ -39,3 +39,11 @@ CAMPBELL: — the heart is the organ of opening up to somebody else. That’s th
 &nbsp;
 
 * “They think that God is a tiny, little conservative being who would point guns at people’s heads just for going to school.” - July 12, 2013. ملاله یوسفزۍ
+
+&nbsp;
+
+&nbsp;
+
+# ToDo: Ideas
+
+1. https://www.youtube.com/watch?v=Q2GlzCjCZwk ?
