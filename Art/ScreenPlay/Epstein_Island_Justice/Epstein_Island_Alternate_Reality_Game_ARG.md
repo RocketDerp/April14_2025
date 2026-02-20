@@ -1,4 +1,4 @@
-# Epstein Island Alternate Realtiy Game
+# Epstein Island Alternate Realtiy Game (ARG)
 
 media ecology ARG.
 
