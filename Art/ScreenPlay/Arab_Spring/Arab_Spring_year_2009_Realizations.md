@@ -35,3 +35,21 @@ https://x.com/RoundSparrow/status/7143546253
 ♪ Children, we have it right here! It's the light in my eyes... It's perfection and grace, It's the smile on my face ♫   
 
 7:13 PM · Dec 28, 2009   
+
+https://x.com/RoundSparrow/status/7446532684   
+
+Joseph Campbell in Lecture I.1.4 quotes Dante quoting Aristotle, but credits only Dante. Public speaking shortcut or oversight?   
+
+9:57 AM · Jan 6, 2010   
+
+https://twitter.com/RoundSparrow/status/7935496676    
+
+Oh beauty before me, beauty behind me, beauty to right of me, beauty to left of me, beauty above me, beauty below me, I'm on the pollen path   
+
+10:54 PM · Jan 18, 2010   
+
+https://twitter.com/RoundSparrow/status/8068498849   
+
+"Survival is the second law of life. The first is that we are all one."   
+
+6:09 AM · Jan 22, 2010   
