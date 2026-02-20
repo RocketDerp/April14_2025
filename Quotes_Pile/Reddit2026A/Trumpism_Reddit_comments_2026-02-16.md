@@ -1009,6 +1009,7 @@ Regarding the posting, spot on. "WATCHING" is KEY title. Audience, fandom, watch
 
 Social post { https://autistics.life/@RoundSparrow/116103366091771795 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfcbxo5lgc2y https://MidWest.Social/post/43695618 https://BeeHaw.org/post/24867415 https://www.TrustCafe.io/en/post/1771598397421-e8bef862 }
 
+
 https://old.reddit.com/r/politics/comments/1r9tbij/us_historian_robert_kagan_we_are_watching_a/o6etoc5/
 
 28 day Reddit account. 2nd-most popular upvoted comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
@@ -1029,6 +1030,10 @@ September 9 2014, 3:42 PM ET
 https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ 
 
 Translated from year 2013 Russia to USA year 2026: I.C.E. raids are very little violence and a lot of showboating. A lot of Reddit front-page I.C.E. raids for visual meme addicts / meme consumers. Simple-think logic polarity minds.
+
+NEW_OPERA_NAME #ChildsPlayCompared   
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mfclbkx3fs2h https://autistics.life/@RoundSparrow/116104001411925811 }
+
 
 https://old.reddit.com/r/UnderReportedNews/comments/1r9tpz2/last_week_donald_trump_registered_the_trademark/o6erl9c/
 
