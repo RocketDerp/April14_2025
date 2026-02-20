@@ -981,3 +981,9 @@ Exactly what TRUMP_FANDOM on Reddit desires. Another chance to call Trump a stup
 https://old.reddit.com/r/videos/comments/1r9iwa6/trump_just_tried_to_jail_two_senators_just_for/o6cshme/
 
 "If democrats have any integrity they’ll keep the government completely shut down until Trump is impeached and imprisoned" - We The People are addicted and captured mentally by Trump as entertainment content. why isn't Reddit shutting down? Why isn't there an Internet uprising? REDDIT_BLACKOUT
+
+https://old.reddit.com/r/law/comments/1r9kndr/trump_responds_to_question_about_prince_andrews/o6d33ez/
+
+"Alternate reality"... Top-upvoted most popular comment. ESSENTIAL_STUDY_MAGA "the dumbest Americans are like" commenting this and always avoiding the **NONFICTION SECTION OF THE PUBLIC LIBRARY**. To understand why we have Trumpism and MAGA since September 9, 2014 - it is because people keep commenting shit like t his and are FAKE_RESISTANCE - calling people *dumb* while making such a statement. Celebration of Ignorance abounds on every social commenting platform. 
+
+* From September 9, 2014 - we could have kept repeating it and defeated Putin's takeover of USA hearts and minds: https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ "Russia and the Menace of Unreality: How Vladimir Putin is revolutionizing information warfare. By Peter Pomerantsev. At the NATO summit in Wales last week, General Philip Breedlove, the military alliance’s top commander, made a bold declaration. Russia, he said, is waging “the **most amazing information warfare blitzkrieg we have ever seen in the history of information warfare.**” It was something of an underestimation. The new Russia doesn’t just deal in the petty disinformation, forgeries, lies, leaks, and cyber-sabotage usually associated with information warfare. It reinvents reality, creating mass hallucinations that then translate into political action."
