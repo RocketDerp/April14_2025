@@ -1000,3 +1000,11 @@ Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mfc22k5tt2
 https://old.reddit.com/r/law/comments/1r9kndr/trump_responds_to_question_about_prince_andrews/o6df64s/
 
 It is media systems that repeat what Trump says. It generates huge power and wealth to create "news" about every Trump statement and every Trump image. Reddit is a massive cult fandom to Trump statements and images. Reddit end-users are repeating Trump constantly. The absence of media ecology self-awareness that the entire population is addicted to Trump as a sports-like commenting discussion topic. That is Trump's power, generating news events. Information systems are constantly flowing Trump-related conversations. INFORMATION_GLUT_COMMENTING_GLUT
+
+https://old.reddit.com/r/politics/comments/1r9tbij/us_historian_robert_kagan_we_are_watching_a/o6eosg2/
+
+1 month Reddit account. Top-upvoted most-popular. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT 
+
+Regarding the posting, spot on. "WATCHING" is KEY title. Audience, fandom, watching Trump Celebrity. Cult of hate-watching. SOCIAL_CULT_HATE_WATCHING_FANDOM
+
+Social post { https://autistics.life/@RoundSparrow/116103366091771795 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfcbxo5lgc2y https://MidWest.Social/post/43695618 }
