@@ -1054,3 +1054,11 @@ Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mfckibxabk
 https://old.reddit.com/r/UnderReportedNews/comments/1r9tpz2/last_week_donald_trump_registered_the_trademark/o6eume0/
 
 10 month Reddit account. "Somehow" - yha, magically somehow there is a media cult. Billionaires control the media, and "Somehow" there is a cult of people who follow the signals put on their media devices. DEFLECTION_FROM_BILLIONAIRES_AND_PUTINISM
+
+https://old.reddit.com/r/law/comments/1ra4yys/president_trump_imposes_a_10_global_tariff_under/o6h8vqj/
+
+https://old.reddit.com/r/law/comments/1ra4yys/president_trump_imposes_a_10_global_tariff_under/o6hdkhr/
+
+https://old.reddit.com/r/law/comments/1ra4yys/president_trump_imposes_a_10_global_tariff_under/o6h9kg1/
+
+TRUMP_FOLLOWERS on Reddit, who as fast as they can, want to follow the leader, Trump. SUPER_HYPER_NORMAL
