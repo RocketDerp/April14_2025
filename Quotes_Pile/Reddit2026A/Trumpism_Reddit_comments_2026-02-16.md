@@ -977,3 +977,7 @@ Top-upvoted most popular comment. Trump is a constant source of entertainment an
 https://old.reddit.com/r/aliens/comments/1r9hnu7/its_happening/o6cjbn9/
 
 Exactly what TRUMP_FANDOM on Reddit desires. Another chance to call Trump a stupid dumb idiot over and over and over again and again. Anything but have an Internet uprising to REMOVE Trump.
+
+https://old.reddit.com/r/videos/comments/1r9iwa6/trump_just_tried_to_jail_two_senators_just_for/o6cshme/
+
+"If democrats have any integrity they’ll keep the government completely shut down until Trump is impeached and imprisoned" - We The People are addicted and captured mentally by Trump as entertainment content. why isn't Reddit shutting down? Why isn't there an Internet uprising? REDDIT_BLACKOUT
