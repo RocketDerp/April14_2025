@@ -15,7 +15,7 @@ https://bsky.app/profile/roundsparrow.bsky.social/post/3mfctd3mthk2n
 
 # Post-Credo
 
-Post-Credo: Reference to "Libedo over Credo" 1988 Power of Myth nonfiction book    
+Post-Credo: Reference to "Libedo over Credo" **year 1988** Power of Myth nonfiction book    
 
 BILL MOYERS: What did you mean when you wrote that **the beginning of romantic love** in the West was “libido over credo”?
 
