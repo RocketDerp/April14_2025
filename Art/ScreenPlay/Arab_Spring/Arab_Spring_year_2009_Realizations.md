@@ -1,5 +1,11 @@
 # Arab Spring year 2009 Realizations
 
+https://x.com/RoundSparrow/status/1612990648    
+
+200 hours of AS reading, I see clear evidence of reversed symptoms. 1 book says symptom complete opposite of another. People overcompensate?   
+
+7:41 AM · Apr 25, 2009   
+
 https://x.com/RoundSparrow/status/1708155443   
 
 "Autism is the fastest-growing serious developmental disability in USA. It's newly diagnosed in 67 children every day."
