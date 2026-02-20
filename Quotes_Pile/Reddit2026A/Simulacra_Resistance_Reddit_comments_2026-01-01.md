@@ -1022,3 +1022,50 @@ EPSTEIN_FANDOM wants to have amusement parks named after Epstein. Epstein fandom
 
 * "But the Democrat’s response to this “tax and spend” is “No we don’t, nah nah na-nah nah: invest” **This is political debate in a democracy. No it’s not. It’s the simulation** of politics." - Duke University, Texan Rick Roderick. https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
 
+https://old.reddit.com/r/BuyFromEU/comments/1r8u3bd/trumps_betrayal_of_allies_has_sparked/o67nxbc/
+
+"They have no idea". Yes, they do. This is a mass dehumanization war of All. WAR_ALL_AGAINST_ALL - started by Surkov students on the World Wide Web in March 2013. People aren't resisting the war of all hate all. This is not resisting what is happening, this is not calling for cult rescue of Russia and USA, this is behaving as conditioned in the simulation Surkov students created.
+
+https://old.reddit.com/r/BuyFromEU/comments/1r8u3bd/trumps_betrayal_of_allies_has_sparked/o67sluf/
+
+HYPER_SIMPLE_TRIVIALIZE_BANAL_SELF_ONLY_CONCERN As long as ONE person is discussing it, then that's all that matters. Egoism. Trump vales of egoism. It made the front page of /r/All because of the subreddit community. The people of USA are the ones who need to see it first thing in the morning. Because USA people are a cult of anti-reality, fiction media cult, and this is nonfiction.
+
+https://old.reddit.com/r/MurderedByWords/comments/1r8x41v/you_are_living_in_their_country_bo/o686ywd/
+
+This is a nation that can't resist satire, sarcasm, surreal comedy, absurd humor. Surkov won. Repeating: CAN NOT RESIST. Reddit community is not resisting. SATIRE_SARCASM_WASHING that Reddit community has done every single hour of every single day since June 16, 2015 has wrecked the nations. People have blown their minds in USA. Surkov students won.
+
+https://old.reddit.com/r/videos/comments/1r8rz5o/hakeem_jeffries_on_dhs_shutdown_why_are_we_in/o679xnp/
+
+CONDITIONED_OPPOSITION
+
+https://old.reddit.com/r/videos/comments/1r8rz5o/hakeem_jeffries_on_dhs_shutdown_why_are_we_in/o679tqq/
+
+Reddit community is not resisting, they are in a simulation of resistance since March 2013 when the Saint Petersburg Internet Research Agency was ramping up, invading USA media systems commenting. DENIAL_ABOUNDS -this Reddit user is only describing - which is not *resisting*. Tiny Twitter-length message comments to avoid nonfiction learning. Trapped "inside the box", commenting box on Reddit, thinking. Surkov won. ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING
+
+https://old.reddit.com/r/videos/comments/1r8rz5o/hakeem_jeffries_on_dhs_shutdown_why_are_we_in/o67f7gd/
+
+SOCIAL_MEDIA_DID_NOT "He doesn't want to stop Republicans" - the media cult **commenting cults on Reddit do not want to stop Republicans** / MAGA... no desire to stop Trumpism. People are entirely addicted to the TCP/IP notification network delivery of back and forth mocking that Putin and Trump agreed and created. Reddit is in extreme self-denial, lacking self-awareness that they are NOT RESISTING by mocking. Reddit community does not see that everyone is scattered and fragmented in reactionary mindsets. Social media has not stood up to media addiction of Fox News HDTV because the mocking back and forth is EVERYONE, not just MAGA cult! WANT_TO_STOP_THE_SHIT_SHOW_SHIT_COMMENTING_ADDICTIONS_MEDIA
+
+OPERA_A Is anybody LISTENING? Neil Postman 1985 book, nonfiction on paper, 184 pages - EXPLAINS if you LISTEN to the book. We are in a high-speed messaging feedback loop. MAGA mocks, Reddit mocks back. Back and forth anti-listening. Surkov won since March of year 2013. Smartphones did not always exist! The Apple iPad didn't always have a central role in politics! Trump is an actor performing Kremlin screenplays. https://www.youtube.com/watch?v=yjpSoEOUgKE Dance with Neil Postman, you never dance with learning nonfiction from Neil Postman! 1,685,598 views September 18, 2014  
+
+
+https://old.reddit.com/r/videos/comments/1r8rz5o/hakeem_jeffries_on_dhs_shutdown_why_are_we_in/o68szf3/
+
+ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING
+
+https://old.reddit.com/r/videos/comments/1r8rz5o/hakeem_jeffries_on_dhs_shutdown_why_are_we_in/o67l6l5/
+
+In other words, Reddit comment is criticizing that people (Hakeem Jeffries) are in denial and avoiding the reality of the situation. Downplaying, making a mockery. WAR_AGAINST_REALITY lost... War Against Reality was won by Russia against USA. We The People in USA, **including the Reddit comment creators. are AVOIDING: Dr. Bandy X Lee, Jen Senko, Peter Pomerantsev. Nonfiction Peter Pomerantsev avoided, nonfiction Jen Senko avoided, nonfiction Dr. Lee avoided (with 27 contributors). We The People** are commenting on social systems and not commenting about the hearts and minds lost to commenting itself, avoiding calls to intellectual nonfiction teaching and learning on RELEVANT CRITICAL APPLICABLE topics.
+
+https://old.reddit.com/r/videos/comments/1r8ypcg/epstein_files_epsteinbannon_texts_spark_maga/o68rtdx/
+
+"If MAGA wasn’t a cult" ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING  
+
+What kind of cult is MAGA? People think it is a cult of Donald Trump. Nope. Trump is a television cult member. Trump is a cult to Twitter and Fox News. ESSENTIAL_STUDY_MAGA July 6, 2011 when Trump embraced the Twitter media cult, a cult of 140 character media techniques. https://TheOutline.com/post/2445/trump-s-first-real-tweet-was-on-july-6-2011 
+
+Why is Reddit comment community not turning to **nonfiction books** about cult deprogramming? It is not resisting to just say "If MAGA wasn’t a cult". If MAGA is a cult of Fox News HDTV, Newsmax HDTV, /r/Conservative Reddit commenting cult - why is Reddit not RESCUING THE USA - doing CIVIC DUTY - and cult deprogramming teaching and education to put an end to the fiction cults? Why just keep commenting about cults year after year after year since year 2013 and not actually have an intellectual mental health education uprising on Reddit, sustained and repeating, until the mental fiction addiction problems are cured?
+
+https://old.reddit.com/r/International/comments/1r92gpq/_/o69h5uo/
+
+ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING
+

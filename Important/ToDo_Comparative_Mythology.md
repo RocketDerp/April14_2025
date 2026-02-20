@@ -81,3 +81,13 @@ https://old.reddit.com/r/BrandNewSentence/comments/1r8k1fl/man_was_yeast/
 
 USA religion politics    
 https://old.reddit.com/r/science/comments/1r8hsih/fifty_years_ago_republicans_exhibited_more/
+
+Moon movements   
+https://old.reddit.com/r/BrandNewSentence/comments/1r8vwv0/bedford_borough_council_holds_no_authority_over/
+
+COMPREHENDING_UNDERSTANDING   
+Lies vs. misunderstandings, miscommunications, Tower of Babel clashes   
+https://old.reddit.com/r/TopCharacterTropes/comments/1r8vpjv/hated_trope_thats_not_how_lying_works_at_all/
+
+Terminology of native periods.   
+https://www.youtube.com/watch?v=UuLg5nCftvY   

@@ -737,3 +737,30 @@ Embracing that MASS_DEHUMANIZATION_POPULAR horrors of machine logic thinking in 
 https://old.reddit.com/r/Millennials/comments/1r8pw07/anyone_else_feel_this_way_when_writing_anything/o66vebf/
 
 IGNORANCE_CELEBRATIONS cult of ignorance abounds. Cults of HDTV Fox News MAGA values. Trump-speak Truth Social gilded standard.
+
+https://old.reddit.com/r/technology/comments/1r8yv5u/judge_warns_smart_glasses_wearers_of_contempt/o68onuq/
+
+https://old.reddit.com/r/technology/comments/1r8yv5u/judge_warns_smart_glasses_wearers_of_contempt/o68salu/
+
+* "Being illiterate in the processes of any medium (language) leaves one at the mercy of those who control it. The new media — these new languages — then are among the most important "subjects" to be studied in the interests of survival." - Neil Postman on media ecology
+
+https://old.reddit.com/r/Gamingcirclejerk/comments/1r9a1qi/i_want_the_golden_age_of_video_games_back/o6avsrr/
+
+ANTI_REALITY women being dominated, abused, silenced, attacked by men still ongoing in February 2026. Where, I live in USA, a known sexual predator and bully who hates women has been the center of all society attention as a role model for boys since June 16, 2015 as a "success" and "winner" who everyone makes the center of attention and morality. Because he is good with shit-talking, shit-commenting, shit-posting on Truth Social and Twitter since July 6, of year 2011. https://theoutline.com/post/2445/trump-s-first-real-tweet-was-on-july-6-2011 - this abusive aggressive celebrity is famous the world over for abusing girls and attacking women - and t he video gamers on Reddit circle-jerk to Trump as a source of sick humaor and diseased comedy. GAMERS_SIMULACRA who downplay and trivialize just how OBVIOUS it is that billionaire men: Vladimir Putin, Rupert Murdoch, Elon Musk, Bill Gates, Donald Trump do not systemically harm and manipulate women with the most powerful machines ever created by humanity. Surkov won since March 2013.
+
+https://old.reddit.com/r/Gamingcirclejerk/comments/1r9a1qi/i_want_the_golden_age_of_video_games_back/o6bs1xm/
+
+Oh yha. Unless you are CHILDHOOD_IN_PALESTINE, childhood in Ukraine, childhood in Iran, childhood in poverty, childhood in Afghanistan, childhood in Sudan, childhood in Haiti or your parents in USA worship MAGA Fox News HDTV and abuse you with CULT_INDOCTRINATION to worship Putin and Trump as gods / Trump as Jesus. The denial of how everyone on Earth doesn't have a middle class white male privilege lifestyle... the denial of diversity of over 8 billion people on planet earth with simple ignorance. IGNORANCE_CELEBRATIONS on Reddit. the World Wide Web isn't just in white boys middle class houses like 1998 anymore. **You can actually use the WWW read a world famous blogger from January 3, 2009 tell her story about her childhood at age 11! Actual NONFICTION, not a fiction story in a video game about a magical mushroom kingdom Mario story.** https://www.BBC.com/news/magazine-19899540 
+
+https://old.reddit.com/r/Gamingcirclejerk/comments/1r9a1qi/i_want_the_golden_age_of_video_games_back/o6avtgf/
+
+10-day Reddit account.
+
+https://old.reddit.com/r/Gamingcirclejerk/comments/1r9a1qi/i_want_the_golden_age_of_video_games_back/o6avrnh/
+
+7 month Reddit account. So, he celebrates stupid and celebrates ignorance and this entire Reddit posting is typical of USA society 2026 that puts on /r/All front page the most ignorant fiction sources of content for amusement and entertainment. A shit-posting society, a shit-commenting nation, USA. Twitter-thinking nation with prizing of shit leaders for shit media. SOCIAL_CULT_HATE_WATCHING_FANDOM
+
+
+https://old.reddit.com/r/antimeme/comments/1r9bvt1/family_is_no_more_more/o6cf1ft/
+
+You know who isn't autistic? Socially popular people like Jeffery Epstein and Donald Trump. The role models people have made for their children: Donald Trump. Who has the most loyal fandom of any celebrity in all human history. No television, film, singer, sports, gaming, book star has ever inspired so much loyalty and cult following. And Trump is the opposite of autistic people. Trump golfs, Trump travels, Trump speaks in front of cameras and on stages constantly without fear. And Trump puts RFK Jr in charge of communicating to the nation on causes of autism. Which no autistic person would ever desire RFK Jr's ideas and advice.

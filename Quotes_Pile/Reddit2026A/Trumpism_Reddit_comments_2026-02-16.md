@@ -852,3 +852,159 @@ UNDERSTANDING_TRUMPISM This entire post is celebrity fandom. Kid Rock fandom, RF
 
 The USA is drowning in MAGA values and addicts to the Trump leadership of mocking / mockery / hate-based leadership. People on Reddit are compulsive addicts to the amusing ourselves to death that Trump leads. This MAGA image worship has been going on every day on Reddit since June 16, 2015 it isn't just "a joke", it is an entire venue dedicated to celebrity image worship of Reality TV star Trump photos and media content. People so addicted to trash media that they actually believe Reality TV isn't scripted and this content isn't what makes them a MAGA fandom for prizing trash leaders as "humor", haha "liberal laughs", "liberal tears". Reality TV drama laughs 🎭 and tears 🎭. https://en.wikipedia.org/wiki/Comedy_and_tragedy_masks LIBERAL_LAUGHS_LIBERAL_TEARS_COMPULSIVE_MAGA_FOLLOWERS 
 
+https://old.reddit.com/r/interesting/comments/1r8qao6/police_discover_a_very_odd_fraternity_hazing_at/o671paj/
+
+Teaching... schooling... CULT_INDOCTRINATION
+
+https://old.reddit.com/r/videos/comments/1r8ypcg/epstein_files_epsteinbannon_texts_spark_maga/o68kwgn/
+
+https://old.reddit.com/r/videos/comments/1r8ypcg/epstein_files_epsteinbannon_texts_spark_maga/o68iy5t/
+
+BEYOND_DENIAL beyond the simulation Reddit cult fandom keeps claiming victory of "We Win", "Murdered By Words!". Surkov won since March 2013. 
+
+https://old.reddit.com/r/videos/comments/1r8ypcg/epstein_files_epsteinbannon_texts_spark_maga/o68pjwb/
+
+https://old.reddit.com/r/videos/comments/1r8ypcg/epstein_files_epsteinbannon_texts_spark_maga/o68pz6w/
+
+https://old.reddit.com/r/Fauxmoi/comments/1r8yt3e/chris_pratt_promoting_the_hallow_app_on_his_ig/o68innk/
+
+Day after day the media consumers of apps ("Hallow app" title) and Reddit app make these comments and they do not see the urgent need to organize for teaching REMEDIAL_MORALITY to every person in USA. The Church Clergy in USA can not find Bible verse "1 John 3:17" and make it front and center (known by everyone over age 12, clearly within capabilities of the vast media outlets of Church networks using social media and congregations) to apply to Elon Musk Texas, Rupert Murdoch, Donald Trump. Why isn't "1 John 3:17" being repeated over and over to front the BIBLE_LITERACY crisis and app media crisis? Where are our spiritual leaders in confronting greedy billionaires with "1 John 3:17" verse? We The People need to stand up and teach these remedial morality lessons every day until we get on the same pages of goodness.
+
+https://old.reddit.com/r/law/comments/1r93wwy/trump_just_said_on_live_tv_that_he_likes_young/o69okyf/
+
+Yes. Materialist, social cult of billionaires, cult of celebrity. Sex conquest, wealth conquet. Trump leads with dehumanization and people adopt and follow his leadership. STAND_UP_FOR_THE_BIG_GUY crushing the children. The Anti-Malala anti-education anti-learning values USA. NOT_GOOD_ENOUGH Malala since year 2012. See the timeline of Malala vs. Trump for USA society choice to promote and comment about on media systems: https://GitHub.com/RocketDerp/April14_2025/blob/main/PostMalala/Marriage/World_Malala_Timeline_Year_2012.md
+
+https://old.reddit.com/r/law/comments/1r93wwy/trump_just_said_on_live_tv_that_he_likes_young/o69px4n/
+
+Expectations from the Reddit commenting fandom describing what people expect in future months of entertainment-based leadership. Reddit users hang around on social machines to comment whenever an image, photo, quote, news about their celebrity appears. Live TV appearance in this case, posted on Reddit for the fandom. All the latest Trump content. SOCIAL_CULT_HATE_WATCHING_FANDOM
+
+https://old.reddit.com/r/law/comments/1r93wwy/trump_just_said_on_live_tv_that_he_likes_young/o69qduq/
+
+Collectibles. Personal collection of favorite shock media content by Trump playing the POTUS Tony Clifton performance as his means of wealth and power concentration. Collecting personal scraps of Trump fandom material gives people conversation topics each and every day on Reddit since Trump became the center celebrity attraction of all media systems in year 2015. ANTI_WIKI_ANTI_FAQ 
+
+https://old.reddit.com/r/TikTokCringe/comments/1r8yb9f/what_they_wont_tell_you_about_harvard/o68fnmu/
+
+CULT_INDOCTRINATION into Harvard. She talks about childhood billionaire society programming that got her into that school. NAME_BRAND_UNIVERSITY_EDUCATION_EXCLUSIVE_ANTI_WIKI_ANTI_PLURIBUS
+
+https://old.reddit.com/r/TikTokCringe/comments/1r8yb9f/what_they_wont_tell_you_about_harvard/o68im9d/
+
+7 month Reddit account. Topic is basically the "old boys club" as we used to call it in the 1980's as to the domination of certain men in power. SEX_SELLS_SEX_LEADERS And what do people think Malala's movement is about with young girls in Pakistan, Afghanistan, and all over world? For being *uppity* on a WWW blog, establishment men put a bullet into Malala and her friends on a school bus in year 2012. NOT_GOOD_ENOUGH to make Malala a constant repeated topic while Epstein the king of kings man name is being repeated all over every media system. 
+
+OPERA_A Year 1980 when I was 11 years old, I was educated how my father's work as an executive for Pepsi / RKO worked. https://www.youtube.com/watch?v=qni6HOyPNBA 573,399 views March 8, 2019 - Jane Fonda knows how to stir-up society shit, and Dolly Parton fans know she so often is on the good side of history.
+
+OPERA_B parallel track. USA Navy band "The Cruisers" https://www.youtube.com/watch?v=V6Do6VWUxyg 1,731 views April 25, 2022 "the Cruisers contemporary entertainment ensemble" with Dolly Parton doing a video introduction.
+
+https://old.reddit.com/r/TikTokCringe/comments/1r8yb9f/what_they_wont_tell_you_about_harvard/o68t399/
+
+EVERYTHING_IS_MEDIA_ECOLOGY
+
+https://old.reddit.com/r/TikTokCringe/comments/1r8yb9f/what_they_wont_tell_you_about_harvard/o68rs2k/
+
+Please Stop making 4-word Tweet-thinking Elon Musk "mind virus" programmed tiny-short commenting messages that **do not organize and call for intellectual uprising** by We The People. BRAIN_ROT_SOCIETY_47
+
+https://old.reddit.com/r/TikTokCringe/comments/1r8yb9f/what_they_wont_tell_you_about_harvard/o68jq8n/
+
+5 months Reddit account.
+
+https://old.reddit.com/r/TikTokCringe/comments/1r8yb9f/what_they_wont_tell_you_about_harvard/o6964ro/
+
+1 month Reddit account. No off-Reddit URL, no quotes from nonfiction book. Anti-Wiki anti-FAQ culture of Reddit cult to commenting. ANTI_WIKI_ANTI_FAQ
+
+https://old.reddit.com/r/TikTokCringe/comments/1r8yb9f/what_they_wont_tell_you_about_harvard/o6922n7/
+
+People DO NOT REMEMBER. People are commenting over and over with low-effort comments on every media platform and not compiling FAQ / Wiki on critical important topics. RECENCY_BIAS eats away at collective mindsets, people are scattered all on different pages of topic with no organized revisiting of critical important topics.
+
+https://old.reddit.com/r/pics/comments/1r956ie/new_department_of_justice_banner/o69w4ah/
+
+"hilarious", with Twitter-length commenting about it. Not resisting, just commenting. SOCIAL_CULT_HATE_WATCHING_FANDOM on Reddit just comments every hour of every day for over a decade about images of Donald Trump. No concern to organize a Reddit blackout or top-25 topics list, etc. Just describing how amusing and comedic it all is to their minds. People who can't consider that MAYBE the "hilarious" is a mind exploit that Russian information warfare uses, Putin and Trump blow minds out with antics politics. How do we get people to stop laughing and start being serious? Nearly 11 years of the USA We The People joking away our nation. CHUCKLEHEAD_NATION
+
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1r9332v/fair_oaks_park_in_marietta_georgia_became_a_crime/o69ialr/
+
+Top-upvoted comment. "Looking forward" to White House reaction... comedic Reddit comment opening. Reddit community is a White House fandom. SOCIAL_CULT_HATE_WATCHING_FANDOM
+
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1r9332v/fair_oaks_park_in_marietta_georgia_became_a_crime/o69hq7s/
+
+"The times we are in", UNDERSTANDING_TRUMPISM - is that July 6, 2011 Trump went all in on Twitter 140 characters, and a cult of low-effort commenting that is pro-violence and pro-hate was created. And the anti-intellectual attitudes have expanded under Putin and Trump media leadership. The answer is not more ignorance and mockery.
+
+https://old.reddit.com/r/Fauxmoi/comments/1r98eiq/president_trump_falls_asleep_at_the_inaugural/o6aixyn/
+
+6 month Reddit account. Most popular upvoted top comment. AMUSEMENT_COMEDY_WASHING_TRUMP_AS_FUNNY_MEDIA_SANEWASHING   
+
+https://old.reddit.com/r/videos/comments/1r9bktt/president_trump_on_arrest_of_former_prince_andrew/o6bbz2h/
+
+RECENCY_BIAS and blown minds. And the social media society abandonment of Wiki and FAQ in favor of drowning every important topic in more and more low-effort commenting.
+
+https://old.reddit.com/r/videos/comments/1r9bktt/president_trump_on_arrest_of_former_prince_andrew/o6b82s9/
+
+Reddit commenting community staring at Congress saying "why are you not doing anything!" while social media society joke-washes, humor-washes, sane-washes, comedy-washes, meme-washes Trump and MAGA as a constant source of amusement and entertainment... avoiding nonfiction serious public education from Dr. Bandy X Lee, not calling for an INTERNET WWW protest, etc. AMUSEMENT_AS_USUAL We The People of the WWwW have not stood up or organized a "We The People" open letter / protest statement. So much high-speed reaction to Trump statements commenting on different pages, so little *getting on the same page* of critical topics.
+
+https://old.reddit.com/r/videos/comments/1r9bktt/president_trump_on_arrest_of_former_prince_andrew/o6b83ki/
+
+Gullible and ignorant Reddit comment community believes that Trump's use of media systems and messaging just "accidentally" lands him in the most powerful position in media over and over for 10 years. SURKOVIAN_ONION_EATING
+
+https://old.reddit.com/r/videos/comments/1r9bktt/president_trump_on_arrest_of_former_prince_andrew/o6b94ae/
+
+"This senile pedo pervert does it multiple times. Day and nothing but crickets" - it isn't crickets, it's is notification swarms every time Trump goes near a media device or camera or anything Trump branded at all. The entire population swoons to their beloved social media systems with intimate touch devices and comments about Trump. A cult of high speed media commenting about one man, over and over for nearly 11 full years. INFORMATION_GLUT_COMMENTING_GLUT Every media system devised is generating commentary and engaged in Trump reaction reporting.
+
+https://old.reddit.com/r/videos/comments/1r9bktt/president_trump_on_arrest_of_former_prince_andrew/o6b8abn/
+
+CONDITIONED_OPPOSITION programmed highly-predictable reacting to Trump statements by mocking. Trump mocks realty, and social media users given extreme tiny-short reaction comments back. This social device screen game of feedback loop has gone on for over 10 years. Back and forth, audience to performer. Trump stimulating the media cults. Ass is the hole where shit-commenting comes from "my ass". WANT_TO_STOP_THE_SHIT_SHOW_SHIT_COMMENTING_ADDICTIONS_MEDIA
+
+https://old.reddit.com/r/videos/comments/1r9bktt/president_trump_on_arrest_of_former_prince_andrew/o6b9eld/
+
+EPSTEIN_FANDOM Do you notice how when it comes to protecting children from sexual abuse, Reddit fandom to RICH WHITE MEN SEX PRIVATE JETS AND PRIVATE WEALTH ISLANDS *information strip tease* - does not discuss and stay focused on Ukraine children that Putin is STILL KIDNAPPING in February 2026? The absence of this Wikipedia link on Reddit being repeated over and over and a call for protests against Putin and Trump's old men leadership? https://en.wikipedia.org/wiki/Child_abductions_in_the_Russo-Ukrainian_war - And you also see an avoidance of Dr. Bandy X Lee's nonfiction published works? And an avoidance of Jen Senko's nonfiction published works? And an avoidance of saying society should support Malala's global leadership in giving voice to girls and standing up to men who abuse women all over Earth? And Malala is also promoting nonfiction learning and nonfiction education and nonfiction teaching? Not just entertainment learning about Star Wars Andor, but actual factual nonfiction science?
+
+* “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.” ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. Published October 8, 2013
+
+* “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.” ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. October 8, 2013
+
+* “We felt like the Taliban saw us as like little dolls to control, telling us what to do and how to dress. I thought if God wanted us to be like that He would not have made us all different.” ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. Published October 8, 2013
+
+https://old.reddit.com/r/videos/comments/1r9bktt/president_trump_on_arrest_of_former_prince_andrew/o6b8uxx/
+
+"so afraid to even mention Epstein to him because he might yell at them and tell them they don't smile"
+
+The cult on Reddit is SO AFRAID of the PUBLIC LIBRARY NONFICTION SECTION! Over and over, drowning the world in commenting that does not take any of the thinking seriously. No author names, no call for a Reddit blackout. Just gathering around White House and Trump to report and describe Trump's actions and react-comment to TRUMP, over and over and over since June 16, 2015. It never fucking ends, the commenting and reporting people do about ONE MAN. "Journalism is dead" - Social media influencer Trump is THRIVING and TRUMP_FANDOM on the Reddit comment section CAN NEVER GET ENOUGH REACTION COMMENT CREATION AND CONSUMPTION AND UPVOTING OF SHIT-COMMENTING SHIT-POSTINGS ABOUT DONALD J. TRUMP AND TRUMP FAMILY AND TRUMP MOVES AND SHAKES AND TRUMP WORLD AND TRUMP MAGA MOVEMENT OF AN ENTIRE SOCIETY CHASING ONE MAN DOWN THE TOILET!!! ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING
+
+https://old.reddit.com/r/videos/comments/1r9bktt/president_trump_on_arrest_of_former_prince_andrew/o6bbfrm/
+
+MEDIA_CULTS_ADDICTIVE_FICTION Reddit audience member exclaiming how awesome it is to get Trump's original creative statements! Fandom of collectible (quotable, notable statements) and unusual media content. Swooning on Reddit to their prized information source. This is HELL. This is a hell that nobody will stop recording, reporting, photographing, commenting about ONE MAN, over and over and over, every hour of every day since June 16, 2026. Media mania society, Trump media coverage day and night.
+
+https://old.reddit.com/r/UFOs/comments/1r9hpne/donald_trump_just_said_this/o6chmip/
+
+Top-upvoted most popular comment. Trump is a constant source of entertainment and amusement for USA society. People are making no sustained serious effort to deal with the mental health crisis danger. Dr. Bandy X Lee's nonfiction is avoided by the Trump fanatics on media systems constantly seeking Trump content. People repeating the White House talking points, downplaying the danger this Trump cult USA situaiton has to the world. AMUSEMENT_COMEDY_WASHING_TRUMP_AS_FUNNY_MEDIA_SANEWASHING
+
+https://old.reddit.com/r/aliens/comments/1r9hnu7/its_happening/o6cjbn9/
+
+Exactly what TRUMP_FANDOM on Reddit desires. Another chance to call Trump a stupid dumb idiot over and over and over again and again. Anything but have an Internet uprising to REMOVE Trump.
+
+https://old.reddit.com/r/videos/comments/1r9iwa6/trump_just_tried_to_jail_two_senators_just_for/o6cshme/
+
+"If democrats have any integrity they’ll keep the government completely shut down until Trump is impeached and imprisoned" - We The People are addicted and captured mentally by Trump as entertainment content. why isn't Reddit shutting down? Why isn't there an Internet uprising? REDDIT_BLACKOUT
+
+https://old.reddit.com/r/law/comments/1r9kndr/trump_responds_to_question_about_prince_andrews/o6d33ez/
+
+"Alternate reality"... Top-upvoted most popular comment. ESSENTIAL_STUDY_MAGA "the dumbest Americans are like" commenting this and always avoiding the **NONFICTION SECTION OF THE PUBLIC LIBRARY**. To understand why we have Trumpism and MAGA since September 9, 2014 - it is because people keep commenting shit like t his and are FAKE_RESISTANCE - calling people *dumb* while making such a statement. Celebration of Ignorance abounds on every social commenting platform. 
+
+* From September 9, 2014 - we could have kept repeating it and defeated Putin's takeover of USA hearts and minds: https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ "Russia and the Menace of Unreality: How Vladimir Putin is revolutionizing information warfare. By Peter Pomerantsev. At the NATO summit in Wales last week, General Philip Breedlove, the military alliance’s top commander, made a bold declaration. Russia, he said, is waging “the **most amazing information warfare blitzkrieg we have ever seen in the history of information warfare.**” It was something of an underestimation. The new Russia doesn’t just deal in the petty disinformation, forgeries, lies, leaks, and cyber-sabotage usually associated with information warfare. It reinvents reality, creating mass hallucinations that then translate into political action."
+
+https://old.reddit.com/r/law/comments/1r9kndr/trump_responds_to_question_about_prince_andrews/o6dy1o1/
+
+<img width="1439" height="511" alt="image" src="https://github.com/user-attachments/assets/95dd6e18-43fb-4d43-a2b8-1a049306bd44" />
+
+Yes. BEYOND_DENIAL beyond all the **psychological denial** that Trump has accomplished nothing, that Trump is lazy and weak and powerless. Trump has poisoned the USA minds to be spectators to his crimes. People behave as if they are watching a bad-ass casino robbery movie like Oceans 11 - that it is fiction entertainment. But these Tweet-length low-effort commenting on Reddit that describe the issue in disconnected fragmented ways are not resisting the problem! They are the very "social media engagement" to Trump that has elevated him to absolute power. Reddit is a commenting cult, always remarking about Trump's every move and shake.
+
+NEW_OPERA_NAME #TrumpSuccessful   
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mfc22k5tt22y https://autistics.life/@RoundSparrow/116102804006299129 }
+
+https://old.reddit.com/r/law/comments/1r9kndr/trump_responds_to_question_about_prince_andrews/o6df64s/
+
+It is media systems that repeat what Trump says. It generates huge power and wealth to create "news" about every Trump statement and every Trump image. Reddit is a massive cult fandom to Trump statements and images. Reddit end-users are repeating Trump constantly. The absence of media ecology self-awareness that the entire population is addicted to Trump as a sports-like commenting discussion topic. That is Trump's power, generating news events. Information systems are constantly flowing Trump-related conversations. INFORMATION_GLUT_COMMENTING_GLUT
+
+https://old.reddit.com/r/politics/comments/1r9tbij/us_historian_robert_kagan_we_are_watching_a/o6eosg2/
+
+1 month Reddit account. Top-upvoted most-popular. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT 
+
+Regarding the posting, spot on. "WATCHING" is KEY title. Audience, fandom, watching Trump Celebrity. Cult of hate-watching. SOCIAL_CULT_HATE_WATCHING_FANDOM
+
+Social post { https://autistics.life/@RoundSparrow/116103366091771795 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfcbxo5lgc2y https://MidWest.Social/post/43695618 https://BeeHaw.org/post/24867415 https://www.TrustCafe.io/en/post/1771598397421-e8bef862 }

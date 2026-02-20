@@ -8,7 +8,7 @@ https://bsky.app/profile/roundsparrow.bsky.social/post/3lw2ag6dhuk2n
 &nbsp;
 
 
-I thought people misunderstood autism - but after witnessing the past 18 months with Donald Trump in USA, I see the far deeper problem is everyday people think Donald Trump is honest, sincere, factual, accurate. The gullibility to falsehoods is huge crisis.
+I thought people misunderstood autism - but after witnessing the past 18 months with Donald Trump in USA, I see the far deeper problem is everyday people think Donald Trump is honest, sincere, factual, accurate. The gullibility to falsehoods is a widespread and huge crisis.
 
 &nbsp;
 
@@ -24,9 +24,9 @@ My use of English, my language, may seem unusual and broken to people
 
 But my god, hundred of millions of people in United States of America think Donald Trump's language is excellent and trustworthy!  People are so gullible in USA that they believe and trust Donald Trump is accurate and factual. No wonder so many people with autism, autistic persons, are so bewildered.
 
-When an entire society thinks Donald Trump at age 79 is accurate for information, what chance does a 23 year old person with autism have? When everyone in USA society treats Donald Trump as hilarious and funny - something is very sick with EACH and EVERY PERSON in the world who isn't alarmed and disturbed that a liar is being trusted by everyone around them!
+When an **entire society thinks Donald Trump at age 79 is accurate** for information, what chance does a 23 year old person with autism have? When everyone in USA society treats Donald Trump as hilarious and funny - something is very sick with EACH and EVERY PERSON in the world who isn't alarmed and disturbed that a liar is being trusted by everyone around them!
 
-Of all the people in the United States of America, people trust Donald Trump above all else for the future of their children. Gullibility of social media consumers is horrific and terrible! People trust RFK Jr too, it is out of control how gullible every person in USA has become.
+Of all the people in the United States of America, people trust Donald Trump above all else **for the future of their children. Gullibility** of social media consumers is horrific and terrible! People trust RFK Jr too, it is out of control how gullible every person in USA has become.
 
 &nbsp;
 
@@ -75,7 +75,7 @@ https://bsky.app/profile/roundsparrow.bsky.social/post/3md2lsnncds2k
 
 The gullibility people have over Trump that everything he does is an accident / mistake / dumb / idiot / stupid. I think that's part of why he likes the orange facial makeup. It makes it clear that he is an actor, a performer, putting on performance art. People fall for, addictions to hate.
 
-Trump does not TRY to avoid behaving dumb, mixing up language, gesturing in usual ways. Because he knows it gets him in the popular press. Trump has studied casinos and media for the sake of understanding how people are driven to mocking and insulting. Predictable responses of a casino customer. He wasn't owner for profit as a businessman, Trump uses casinos for experiments in entertainment an to study people's predictability. Trump's power is bullying people, tricking people, making people follow him around like he is on The Truman Show in a dome of cameras.
+Trump does not TRY to avoid behaving dumb, mixing up language, gesturing in usual ways. Trump does not avoid making mistakes and errors. Why? ANSWER: Because he knows it gets him in the popular press. Trump has studied casinos and media for the sake of understanding how people are driven to mocking and insulting. Predictable responses of a casino customer. He wasn't owner for profit as a businessman, Trump uses casinos for experiments in entertainment an to study people's predictability. Trump's power is bullying people, tricking people, making people follow him around like he is on The Truman Show in a dome of cameras.
 
 It works. People can not resist the hate that Trump prizes. Hate leadership gets hate following. People become addicted to the hate and mocking Trump cultivates.
 
@@ -106,3 +106,10 @@ Zachary Basu
 https://www.Axios.com/2024/10/19/musk-ackman-election-misinformation   
 
 [“The truth is, it’s getting harder to describe the extent to which a meaningful percentage of Americans have dissociated from reality,” Charlie Warzel wrote “I’m Running Out of Ways to Explain How Bad This Is.”](https://www.axios.com/2024/10/19/musk-ackman-election-misinformation) - October 19, 2024 - America’s gullibility crisis, Zachary Basu
+
+&nbsp;
+
+# February 19, 2026
+
+https://autistics.life/@RoundSparrow/116097546698794363   
+https://bsky.app/profile/roundsparrow.bsky.social/post/3mf7pk4oup22t   

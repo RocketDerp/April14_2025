@@ -700,3 +700,111 @@ Downplaying the global brain rot crisis of We The People who interact with Russi
 https://old.reddit.com/r/europe/comments/1r8uspb/orbans_fidesz_party_shares_aigenerated_propaganda/o67t71j/
 
 Mentions Kremlin methods, but not Surkovian. No off-Reddit nonfiction book quotes or links. NOT_GOOD_ENOUGH Peter Pomerantsev to quote and repeat on social media to educate people about details and comprehension of Russian information warfare (such as this ANTI_REALITY video, the topic of the Reddit posting).
+
+https://old.reddit.com/r/news/comments/1r8ruym/bill_gates_cancels_keynote_speech_in_india_amid/o678bz2/
+
+Ahh, the private affairs of the Bellevue / Mercer Island / Redmond / Pioneer Square / Space Needle museum billionaires, board of directors when wealth was doubled in a single year. Richest men in the entire world. So many toxic memories of those years. So many sports team owner manipulation of audience mindsets power trauma.  Whoever goodness Jimi Hendrix and MLK Jr had was wrecked, I never imagined in 1998 things would be this terrible shit in 2026. I wish I had done more in 1998. Neil Postman was correct in 1970's, 1980's, 1990's about the hell we were creating.
+
+https://old.reddit.com/r/SipsTea/comments/1r8x3ep/that_was_diabolical_not_even_the_devil_himself/o686jmt/
+
+CHOICE_MARRIAGE_HONESTY 
+
+https://old.reddit.com/r/SipsTea/comments/1r8x3ep/that_was_diabolical_not_even_the_devil_himself/o68ggph/
+
+https://old.reddit.com/r/SipsTea/comments/1r8x3ep/that_was_diabolical_not_even_the_devil_himself/o6889pw/
+
+CHOICE_MARRIAGE_HONESTY About the only GOODNESS to cone out of celebrity marriages, tabloid news, is that we fond out that actors who can charm millions of people... songwriters who can create the greatest poetry... public speakers who can explain and articulate... have the same inward journey barriers as we all do. 
+
+* "BILL MOYERS: And poetry gets to the unseen reality. CAMPBELL: That which is beyond even the concept of reality, that which transcends all thought. The myth puts you there all the time, gives you a line to connect with that mystery which you are. Shakespeare said that art is a mirror held up to nature. And that’s what it is. The nature is your nature, and all of these wonderful poetic images of mythology are referring to something in you. When your mind is simply trapped by the image out there so that you never make the reference to yourself, you have misread the image." published year 1988, Power of Myth
+
+OPERA_A Styx Year 1976 story https://www.youtube.com/watch?v=IYKwpWPOA5c 2,164,623 views October 12, 2012
+
+https://old.reddit.com/r/news/comments/1r903a3/the_israeli_government_installed_and_maintained/o68t3q0/
+
+World Hate Affairs.
+
+https://old.reddit.com/r/news/comments/1r903a3/the_israeli_government_installed_and_maintained/o68yy5s/
+
+This Reddit user thinks that Russia government isn't ALSO doing what Israel intelligence / government is doing. Short-length Twitter-think tiny-mindset that only ONE nation can infiltrate criminals with manipulation of their minds. Reddit users can't even tell THEY are manipulated by Russia with FACTUAL EVIDENCE presented: https://www.bbc.com/news/technology-43301643
+
+The real problem of EPSTEIN_FANDOM on Reddit is how gullible they are in not actually being able to cite { University of Toronto's Marshall McLuhan, Dr. Bandy X Lee's assembled 27 educators for the general public, New York University's Neil Postman }. Reddit meme-think users with their tiny-short messages are trivializing what Surkov students have done since March 2013 manipulating the ENTIRE INTERNET, World Wide Web, Reddit users included.
+
+https://old.reddit.com/r/news/comments/1r903a3/the_israeli_government_installed_and_maintained/o68zofq/
+
+MEDIA_CULTS_ADDICTIVE_FICTION The cults of clickbait consumerism don't seek out nonfiction. The anti-Wiki anti Wiki Tribune commenting society... since year 2017 Wiki Tribune has been put on the public media table, and Reddit instead eats off the garbage pile of corporate programming into minds.
+
+https://old.reddit.com/r/news/comments/1r903a3/the_israeli_government_installed_and_maintained/o6906lv/
+
+https://old.reddit.com/r/ForCuriousSouls/comments/1r8yrg4/ohio_mom_dumped_newborn_in_sorority_house_trash/o68kub5/
+
+I find it interesting this made front page all with huge number of comments, but a quick search of the text on page doesn't hit upvoted comments with word "church". "Muskingum University is a private liberal arts institution in New Concord, Ohio, founded in 1837 and affiliated with the Presbyterian Church (USA)". 
+
+https://old.reddit.com/r/politics/comments/1r925y6/democratic_lawmaker_if_a_prince_can_be_held/o69ebmp/
+
+"Our repeated Petitions have been answered only by repeated injury. A Prince, whose character is thus marked by every act which may define a Tyrant, is unfit to be the ruler of a free people." - Deceleration of Independence.
+
+https://old.reddit.com/r/interestingasfuck/comments/1r91o2k/punch_the_abandoned_monkey_has_an_awful_day_after/o699ax3/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1r93lm6/uk_blocks_president_trump_from_using_british/o69m0v2/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1r93lm6/uk_blocks_president_trump_from_using_british/o69ni5k/
+
+PROMOTING_IGNORANCE_WORKS_PLAYING_DUMB_MOCKING
+
+https://old.reddit.com/r/International/comments/1r92gpq/_/o69qwor/
+
+"Insane", NOT_GOOD_ENOUGH Dr. Bandy X Lee for Reddit social users to seek out **the nonfiction section, the non-entertainment section, of the public library** and quote a book on paper. Dr. Bandy X Lee just isn't good enough to put attention and time into. Instead, people spend their free time and spare time making comments about "insane" without taking the subject seriously in any way.
+
+* “Assessing dangerousness is different from making a diagnosis: it is dependent on the situation, not the person. Signs of likely dangerousness due to mental disorder can become apparent without a full diagnostic interview and can be detected from a distance, and one is expected to err, if at all, on the side of safety when the risk of inaction is too great.”
+― Bandy X. Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. Published October 3, 2017. PROLOGUE. Page 5.](https://books.google.com/books?id=g0c4DwAAQBAJ&pg=PA5&dq=dangerousness+due+to+mental+disorder+can+become+apparent+without+a+full+diagnostic+interview+and+can+be+detected+from+a+distance&hl=en&newbks=1&newbks_redir=1&sa=X)
+
+https://old.reddit.com/r/law/comments/1r950kk/trump_just_took_10_billion_from_us_for_his_board/o69vjz7/
+
+World Wide Web of Cult Affairs.
+
+https://old.reddit.com/r/law/comments/1r950kk/trump_just_took_10_billion_from_us_for_his_board/o69wzpy/
+
+Twitter-length short messaging on Reddit comment section. Social media "engagement" of playing dumb and asking questions to get comment replies. The "conservative" at play is Putin values, Russia, that's the example of "conservative" word meaning. But the brain rot of "conservative vs. liberal" avoids actually naming a specific time period and nation that is a role model. BRAIN_ROT_LEFT_RIGHT_LIB_CON_NAME_AVOIDANCE
+
+https://old.reddit.com/r/law/comments/1r950kk/trump_just_took_10_billion_from_us_for_his_board/o69yw6x/
+
+"How did we get here", "sickening" - brain rot with Cambridge Analytica doctorates and the Saint Petersburg Internet Research Agency since year 2013. UNDERSTANDING_TRUMPISM - low effort Reddit commenting over and over since year 2013 that drowns out any serious nonfiction learning and organized persistent learning of critical important topics that require mutual widespread understanding.
+
+https://old.reddit.com/r/law/comments/1r950kk/trump_just_took_10_billion_from_us_for_his_board/o69x6cq/
+
+Extreme tiny-short 4-word Twitter-thinking commenting on Reddit. Describes issue, but no alarm to actually rise up on social media, We The People power. ROUTINE_NO_NEED_TO_RESIST_OR_ORGANIZE_INTELLECTUAL_UPRISING
+
+https://old.reddit.com/r/worldnews/comments/1r953u2/uk_refusing_to_allow_trump_to_use_raf_bases_to/o69xuyr/
+
+https://old.reddit.com/r/UFOs/comments/1r9a5iv/trump_on_obamas_comments_and_alienshe_gave/o6ayayb/
+
+Yes. We spend so much labor and time commenting on the affairs of rich white men and not educating and teaching adults nonfiction books. Social media could be used to teach Carl Sagan, instead we teach the latest junk meme about Donald Trump's statements.
+
+* "Finding the occasional straw of truth awash in a great ocean of confusion and bamboozle requires vigilance, dedication and courage. But if we don’t practice these tough habits of thought, we cannot hope to solve the truly serious problems that face us and we risk becoming a nation of suckers" ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995, page 38. Nonfiction book.
+
+* “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is **no such thing as science** or literature, that dinosaurs never existed and **man never went to the moon**.”
+― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. October 8, 2013. Nonfiction book.
+
+Our hatred of nonfiction learning has wrecked a nation. The attraction to Trump as a source of mythology and wild fiction stories... has wrecked the USA.
+
+https://old.reddit.com/r/UFOs/comments/1r9a5iv/trump_on_obamas_comments_and_alienshe_gave/o6b5ow3/
+
+A 1.3 second short comment message on Reddit media about how "stupid" Trump media shit-posting statements are.
+
+* “Science is more than a body of knowledge; it is a way of thinking. I have a (year 1995) foreboding of an America in my children’s or grandchildren’s time — when the United States is a service and information economy; when nearly all the key manufacturing industries have slipped away to other countries; when awesome technological powers are in the hands of a very few, and no one representing the public interest can even grasp the issues; when the people have lost the ability to set their own agendas or knowledgeably question those in authority; when, clutching our crystals and nervously consulting our horoscopes, our critical faculties in decline, unable to distinguish between what feels good and what’s true, we slide, almost without noticing, back into superstition and darkness. The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the **30-second** sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but especially a kind of [celebration of ignorance](https://www.youtube.com/watch?v=wcY-x1VuWtE). As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning — not just of science, but of anything — are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995, page 59
+
+https://old.reddit.com/r/politics/comments/1r9cneu/the_arrest_of_former_prince_andrew_makes_trumps/o6bg258/
+
+10 day Reddit account has top-upvoted most popular comment. BEYOND_DENIAL 
+
+https://old.reddit.com/r/politics/comments/1r9cneu/the_arrest_of_former_prince_andrew_makes_trumps/o6bh35g/
+
+https://old.reddit.com/r/StardustCrusaders/comments/1r97g15/looks_like_they_censored_the_white_mans_money_in/o6ah6v6/
+
+EVERYTHING_IS_MEDIA_ECOLOGY "regional adjustments"
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1r9axfp/what/o6b99ry/
+
+CONCERNS_OF_FINNEGANS Concerns of James Joyce's Finnegans Wake. The Tower of Babel concepts that come from people who jump to all kinds of conclusions on understanding and comprehension. We live in a world where people can't find Romans 11:32 in the Bible. I'm not talking about "belief" in Jesus or believing in God. I'm talking about LITERACY of jokes and memes. verse "1 John 4:20" BIBLE_LITERACY crisis. "I love Jesus" is WRONG - read "1 John 4:20" - you have never *seen Jesus*, you have never ***seen God***, you have seen LIVING HUMAN persons. And that manipulation of science fiction fandoms to concentrate power in the hands of the few and indoctrinate children into male-dominated abuse systems. The ASSUMPTIONS people have over humor, jokes, comprehension, understandings are horrific!
+
+* "Finnegans Wake is the greatest guidebook to media study ever fashioned by man." - Marshall McLuhan, Newsweek Magazine, p.56, February 28, 1966. University of Toronto.
