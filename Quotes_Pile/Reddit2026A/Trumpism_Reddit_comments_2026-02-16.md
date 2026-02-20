@@ -1045,3 +1045,7 @@ Creates public content, in the public view, via media systems. "No one challenge
 
 NEW_OPERA_NAME #NoOneChallenges #PublicViewAnd   
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mfckibxabk22 https://autistics.life/@RoundSparrow/116103957237942432 }
+
+https://old.reddit.com/r/UnderReportedNews/comments/1r9tpz2/last_week_donald_trump_registered_the_trademark/o6eume0/
+
+10 month Reddit account. "Somehow" - yha, magically somehow there is a media cult. Billionaires control the media, and "Somehow" there is a cult of people who follow the signals put on their media devices. DEFLECTION_FROM_BILLIONAIRES_AND_PUTINISM
