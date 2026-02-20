@@ -970,3 +970,6 @@ https://old.reddit.com/r/videos/comments/1r9bktt/president_trump_on_arrest_of_fo
 
 MEDIA_CULTS_ADDICTIVE_FICTION Reddit audience member exclaiming how awesome it is to get Trump's original creative statements! Fandom of collectible (quotable, notable statements) and unusual media content. Swooning on Reddit to their prized information source. This is HELL. This is a hell that nobody will stop recording, reporting, photographing, commenting about ONE MAN, over and over and over, every hour of every day since June 16, 2026. Media mania society, Trump media coverage day and night.
 
+https://old.reddit.com/r/UFOs/comments/1r9hpne/donald_trump_just_said_this/o6chmip/
+
+Top-upvoted most popular comment. Trump is a constant source of entertainment and amusement for USA society. People are making no sustained serious effort to deal with the mental health crisis danger. Dr. Bandy X Lee's nonfiction is avoided by the Trump fanatics on media systems constantly seeking Trump content. People repeating the White House talking points, downplaying the danger this Trump cult USA situaiton has to the world. AMUSEMENT_COMEDY_WASHING_TRUMP_AS_FUNNY_MEDIA_SANEWASHING
