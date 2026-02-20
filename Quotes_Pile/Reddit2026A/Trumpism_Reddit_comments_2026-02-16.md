@@ -1007,4 +1007,4 @@ https://old.reddit.com/r/politics/comments/1r9tbij/us_historian_robert_kagan_we_
 
 Regarding the posting, spot on. "WATCHING" is KEY title. Audience, fandom, watching Trump Celebrity. Cult of hate-watching. SOCIAL_CULT_HATE_WATCHING_FANDOM
 
-Social post { https://autistics.life/@RoundSparrow/116103366091771795 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfcbxo5lgc2y https://MidWest.Social/post/43695618 }
+Social post { https://autistics.life/@RoundSparrow/116103366091771795 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfcbxo5lgc2y https://MidWest.Social/post/43695618 https://BeeHaw.org/post/24867415 https://www.TrustCafe.io/en/post/1771598397421-e8bef862 }
