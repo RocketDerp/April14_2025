@@ -996,3 +996,7 @@ Yes. BEYOND_DENIAL beyond all the **psychological denial** that Trump has accomp
 
 NEW_OPERA_NAME #TrumpSuccessful   
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mfc22k5tt22y https://autistics.life/@RoundSparrow/116102804006299129 }
+
+https://old.reddit.com/r/law/comments/1r9kndr/trump_responds_to_question_about_prince_andrews/o6df64s/
+
+It is media systems that repeat what Trump says. It generates huge power and wealth to create "news" about every Trump statement and every Trump image. Reddit is a massive cult fandom to Trump statements and images. Reddit end-users are repeating Trump constantly. The absence of media ecology self-awareness that the entire population is addicted to Trump as a sports-like commenting discussion topic. That is Trump's power, generating news events. Information systems are constantly flowing Trump-related conversations. INFORMATION_GLUT_COMMENTING_GLUT
