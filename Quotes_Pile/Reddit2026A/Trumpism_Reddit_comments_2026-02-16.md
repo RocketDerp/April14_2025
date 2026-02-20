@@ -1083,3 +1083,7 @@ https://old.reddit.com/r/FascinatingAsFuck/comments/1r9xopb/he_is_profoundly_off
 FICTION_OUTSELLS_NONFICTION "the answer is simple: with every new low Trump descends to, conservatives imagine a brand new fictional offense that Democrats have committed." ANTI_REALITY 
 
 Social post { https://autistics.life/@RoundSparrow/116105530336833573 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfdau6exps22 }
+
+https://old.reddit.com/r/FascinatingAsFuck/comments/1r9xopb/he_is_profoundly_offensively_disgusting/o6g2aqv/
+
+ANSWER: the power of Fox News HDTV exceeds reality. The power of mythology cult media of Rupert Murdoch and Elon Musk Twitter media. "The Power of Myth" book 1988 that George Lucas filmed for Star Wars audiences to learn these topics. MEDIA_CULTS_ADDICTIVE_FICTION
