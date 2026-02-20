@@ -1,5 +1,11 @@
 # Arab Spring year 2009 Realizations
 
+https://x.com/RoundSparrow/status/1557533990   
+
+Academia: Get a clue, Stop focus on 31 flavors. comparative mythology is about bringing people together. particularism is self indulgence.   
+
+4:41 AM · Apr 19, 2009   
+
 https://x.com/RoundSparrow/status/1612990648    
 
 200 hours of AS reading, I see clear evidence of reversed symptoms. 1 book says symptom complete opposite of another. People overcompensate?   
