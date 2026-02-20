@@ -1029,3 +1029,11 @@ September 9 2014, 3:42 PM ET
 https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ 
 
 Translated from year 2013 Russia to USA year 2026: I.C.E. raids are very little violence and a lot of showboating. A lot of Reddit front-page I.C.E. raids for visual meme addicts / meme consumers. Simple-think logic polarity minds.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1r9tpz2/last_week_donald_trump_registered_the_trademark/o6erl9c/
+
+"don't believe you". ANTI_REALITY "Amazing".
+
+It is not amazing in any way. The USA society has abandoned and forgotten serious nonfiction books on paper. Surkov won since March of year 2013.
+
+
