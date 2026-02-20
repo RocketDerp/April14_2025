@@ -1087,3 +1087,8 @@ Social post { https://autistics.life/@RoundSparrow/116105530336833573 https://bs
 https://old.reddit.com/r/FascinatingAsFuck/comments/1r9xopb/he_is_profoundly_offensively_disgusting/o6g2aqv/
 
 ANSWER: the power of Fox News HDTV exceeds reality. The power of mythology cult media of Rupert Murdoch and Elon Musk Twitter media. "The Power of Myth" book 1988 that George Lucas filmed for Star Wars audiences to learn these topics. MEDIA_CULTS_ADDICTIVE_FICTION
+
+https://old.reddit.com/r/Epstein/comments/1ra6yw0/i_quit_my_job_to_run_epsteinexposedcom_full_time/o6hw2i2/
+
+ANTI_WIKI_ANTI_FAQ Yes, there needs to be pro-FAQ pro-WIKI pro "we are all on the same page" of priority topics. People need to voluntarily cut down on unique commenting and unique writing in the service of freedom revival. Being all scattered and disorganized is a serous problem we all need to study and learn about. BRAIN_ROT_SOCIETY_47
+
