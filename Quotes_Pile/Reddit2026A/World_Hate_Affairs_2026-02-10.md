@@ -808,3 +808,26 @@ https://old.reddit.com/r/PeterExplainsTheJoke/comments/1r9axfp/what/o6b99ry/
 CONCERNS_OF_FINNEGANS Concerns of James Joyce's Finnegans Wake. The Tower of Babel concepts that come from people who jump to all kinds of conclusions on understanding and comprehension. We live in a world where people can't find Romans 11:32 in the Bible. I'm not talking about "belief" in Jesus or believing in God. I'm talking about LITERACY of jokes and memes. verse "1 John 4:20" BIBLE_LITERACY crisis. "I love Jesus" is WRONG - read "1 John 4:20" - you have never *seen Jesus*, you have never ***seen God***, you have seen LIVING HUMAN persons. And that manipulation of science fiction fandoms to concentrate power in the hands of the few and indoctrinate children into male-dominated abuse systems. The ASSUMPTIONS people have over humor, jokes, comprehension, understandings are horrific!
 
 * "Finnegans Wake is the greatest guidebook to media study ever fashioned by man." - Marshall McLuhan, Newsweek Magazine, p.56, February 28, 1966. University of Toronto.
+
+https://old.reddit.com/r/falloutnewvegas/comments/1r9t0py/white_gloves_dont_seem_like_fiction_anymore/o6eny45/
+
+* Joseph Campbell has been challenged a couple times about "myths" nonfiction teachings. I've documented them on Wikipedia (I created the Errata section). Power of Myth book, year 1988:
+* * "There is a ritual associated with the men’s societies in New Guinea that actually enacts the planting-society myth of death, resurrection, and cannibalistic consumption. There is a sacred field with drums going, and chants going, and then pauses. This goes on for four or five days, on and on. Rituals are boring, you know, they just wear you out, and then you break through to something else.
+At last comes the great moment. There has been a celebration of real sexual orgy, the breaking of all rules. The **young boys** who are being initiated into manhood"
+* * "And when the last boy is with her in full embrace, the supports are withdrawn, the logs drop, and the couple is killed. There is the union of male and female again, as they were in the beginning, before the separation took place. There is the union of begetting and death. They are both the same thing. Then the **little couple is pulled out and roasted and eaten** that very evening. The ritual is the repetition of the original act of the killing of a god followed by the coming of food from the dead savior. In the sacrifice of the Mass, you are taught that this is the body and blood of the Savior. You take it to you, and you turn inward, and there he works within you."
+  * https://Skeptics.StackExchange.com/questions/56363/did-paul-wirz-witness-ritual-cannibalism-in-new-guinea-as-described-by-joseph-ca
+  * https://old.Reddit.com/r/mythology/comments/d1p7ke/details_about_cannibalistic_ritual_described_by/
+  * "The given citation is Paul Wirz, Die Marin-anim von Hollandisch Sud-Neu-Guinea (Hamburg: L. Friedrichsen and Company, Vol. II, pp.40-44, 1925)"
+ 
+Now Campbell had access to a lot of young girls / women at Sarah Lawrence College in New York City. Campbell even married one of those young women, one of his students. Was he trying to clue us in to look at some of the rituals going on?
+
+* Jean Erdman was 22 years old (born February 20, 1916) when she married Joseph Campbell in 1938 (May 5, 1938). Joseph Campbell, who was born on March 26, 1904, was 34 years old at the time of their marriage.
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mfcnjnon2s25 https://autistics.life/@RoundSparrow/116104167520459633 }
+
+https://old.reddit.com/r/falloutnewvegas/comments/1r9t0py/white_gloves_dont_seem_like_fiction_anymore/o6f27pd/
+
+FICTION_NONFICTION
+
+Social post { https://autistics.life/@RoundSparrow/116104063378049758 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfclxo7hqc2h }
+
