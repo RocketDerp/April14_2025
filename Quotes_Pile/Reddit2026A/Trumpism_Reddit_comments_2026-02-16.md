@@ -1073,3 +1073,5 @@ https://old.reddit.com/r/FascinatingAsFuck/comments/1r9xopb/he_is_profoundly_off
 
 Anti-PLURIBUS anti-We anti-us anti-Everyone anti-All - it is We The People who need to show force of quantity. CIVIC_DUTY_WE_PEOPLE Steady repeating, every 4 hours, on Reddit and Bluesky, over and over and over, that We The People are what We want Government to serve. "In every stage of these Oppressions We have Petitioned for Redress in the most humble terms: Our repeated Petitions have been answered only by repeated injury."
 
+NEW_OPERA_NAME #OurRepeatedPetitions    
+Social post { https://bsky.app/profile/roundsparrow.bsky.social https://autistics.life/@RoundSparrow/116105470378195874 }   
