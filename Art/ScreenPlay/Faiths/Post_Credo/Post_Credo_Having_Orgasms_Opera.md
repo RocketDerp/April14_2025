@@ -17,6 +17,9 @@ https://bsky.app/profile/roundsparrow.bsky.social/post/3mfctd3mthk2n
 
 Post-Credo: Reference to "Libedo over Credo" **year 1988** Power of Myth nonfiction book    
 
+NEW_OPERA_NAME #PostCredo #PostCredoOpera #NoArguingWith   
+NEW_ARG_NAME #CredoARG   
+
 BILL MOYERS: What did you mean when you wrote that **the beginning of romantic love** in the West was “libido over credo”?
 
 CAMPBELL: Well, the credo says “I believe,” and I believe not only in the laws, but **I believe that these laws were instituted by God**, and there’s no arguing with God. **These laws are a heavy weight on me, and disobeying these is sin** and has to do with my eternal character.
