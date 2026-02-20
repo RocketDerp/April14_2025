@@ -15,7 +15,7 @@ https://bsky.app/profile/roundsparrow.bsky.social/post/3mfctd3mthk2n
 
 # Post-Credo
 
-Post-Credo: Reference to "Libedo over Credo" **year 1988** Power of Myth nonfiction book    
+Post-Credo: Reference to "Libido over Credo" **year 1988** Power of Myth nonfiction book    
 
 NEW_OPERA_NAME #PostCredo #PostCredoOpera #NoArguingWith   
 NEW_ARG_NAME #CredoARG   
@@ -47,3 +47,5 @@ CAMPBELL: — the heart is the organ of opening up to somebody else. That’s th
 # ToDo: Ideas
 
 1. https://www.youtube.com/watch?v=Q2GlzCjCZwk ?
+
+2. "OverCredo" hashtag / ARG / Opera. Over-Kill Over-Kill-Joy
