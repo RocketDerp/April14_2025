@@ -1008,3 +1008,24 @@ https://old.reddit.com/r/politics/comments/1r9tbij/us_historian_robert_kagan_we_
 Regarding the posting, spot on. "WATCHING" is KEY title. Audience, fandom, watching Trump Celebrity. Cult of hate-watching. SOCIAL_CULT_HATE_WATCHING_FANDOM
 
 Social post { https://autistics.life/@RoundSparrow/116103366091771795 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfcbxo5lgc2y https://MidWest.Social/post/43695618 https://BeeHaw.org/post/24867415 https://www.TrustCafe.io/en/post/1771598397421-e8bef862 }
+
+https://old.reddit.com/r/politics/comments/1r9tbij/us_historian_robert_kagan_we_are_watching_a/o6etoc5/
+
+28 day Reddit account. 2nd-most popular upvoted comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+
+Promotes "We The People", but no off-Reddit URL, no nonfiction quotes, no author names. 
+
+"The people of Minneapolis and St Paul have shown us what highly successful civil resistance looks like" - manipulating audience that it was "highly successful" while ICE and Trump are still in power. The entire World Wide Web Internet should be standing up. Why is there no REDDIT_BLACKOUT in calling for Trump's Removal? ANSWER: low-effort commenting of Twitter-length short messaging is the fixation people have. That's Trump's power, media power, audience fandom of Reddit to comment about ICE / MAGA / Trump day in and day out for almost 11 full years (since June 16, 2015). People could be confronting the MAGA media cult to Rupert Murdoch with Reddit comments, but instead you get these low-effort commenting that behave as as if the Internet society isn't rewarding Trump content creation and Trump stunts like dramatic arrests ICE does in Minnesota. This comment message on Reddit feeds the anti-reality media environments. Surkovian.
+
+**QUOTE FROM YEAR 2014 ARTICLE (tied to 2014 NONFICTION BOOK) FOLLOWS:**    
+
+Russia and the **Menace of Unreality**   
+How Vladimir Putin is revolutionizing information warfare   
+Peter Pomerantsev   
+September 9 2014, 3:42 PM ET   
+
+“If previous authoritarian regimes were three parts violence and one part propaganda,” argues Igor Yakovenko, a professor of journalism at the Moscow State Institute of International Relations, “this one is **virtually all propaganda and relatively little violence**. Putin only needs to make a few arrests—and then amplify the message through his total control of television.”
+
+https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ 
+
+Translated from year 2013 Russia to USA year 2026: I.C.E. raids are very little violence and a lot of showboating. A lot of Reddit front-page I.C.E. raids for visual meme addicts / meme consumers. Simple-think logic polarity minds.
