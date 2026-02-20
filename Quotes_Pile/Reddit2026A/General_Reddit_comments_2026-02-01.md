@@ -751,3 +751,14 @@ ANTI_REALITY women being dominated, abused, silenced, attacked by men still ongo
 https://old.reddit.com/r/Gamingcirclejerk/comments/1r9a1qi/i_want_the_golden_age_of_video_games_back/o6bs1xm/
 
 Oh yha. Unless you are CHILDHOOD_IN_PALESTINE, childhood in Ukraine, childhood in Iran, childhood in poverty, childhood in Afghanistan, childhood in Sudan, childhood in Haiti or your parents in USA worship MAGA Fox News HDTV and abuse you with CULT_INDOCTRINATION to worship Putin and Trump as gods / Trump as Jesus. The denial of how everyone on Earth doesn't have a middle class white male privilege lifestyle... the denial of diversity of over 8 billion people on planet earth with simple ignorance. IGNORANCE_CELEBRATIONS on Reddit. the World Wide Web isn't just in white boys middle class houses like 1998 anymore. **You can actually use the WWW read a world famous blogger from January 3, 2009 tell her story about her childhood at age 11! Actual NONFICTION, not a fiction story in a video game about a magical mushroom kingdom Mario story.** https://www.BBC.com/news/magazine-19899540 
+
+https://old.reddit.com/r/Gamingcirclejerk/comments/1r9a1qi/i_want_the_golden_age_of_video_games_back/o6avtgf/
+
+10-day Reddit account.
+
+https://old.reddit.com/r/Gamingcirclejerk/comments/1r9a1qi/i_want_the_golden_age_of_video_games_back/o6avrnh/
+
+7 month Reddit account. So, he celebrates stupid and celebrates ignorance and this entire Reddit posting is typical of USA society 2026 that puts on /r/All front page the most ignorant fiction sources of content for amusement and entertainment. A shit-posting society, a shit-commenting nation, USA. Twitter-thinking nation with prizing of shit leaders for shit media. SOCIAL_CULT_HATE_WATCHING_FANDOM
+
+
+
