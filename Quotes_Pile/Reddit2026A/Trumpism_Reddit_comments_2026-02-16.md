@@ -973,3 +973,7 @@ MEDIA_CULTS_ADDICTIVE_FICTION Reddit audience member exclaiming how awesome it i
 https://old.reddit.com/r/UFOs/comments/1r9hpne/donald_trump_just_said_this/o6chmip/
 
 Top-upvoted most popular comment. Trump is a constant source of entertainment and amusement for USA society. People are making no sustained serious effort to deal with the mental health crisis danger. Dr. Bandy X Lee's nonfiction is avoided by the Trump fanatics on media systems constantly seeking Trump content. People repeating the White House talking points, downplaying the danger this Trump cult USA situaiton has to the world. AMUSEMENT_COMEDY_WASHING_TRUMP_AS_FUNNY_MEDIA_SANEWASHING
+
+https://old.reddit.com/r/aliens/comments/1r9hnu7/its_happening/o6cjbn9/
+
+Exactly what TRUMP_FANDOM on Reddit desires. Another chance to call Trump a stupid dumb idiot over and over and over again and again. Anything but have an Internet uprising to REMOVE Trump.
