@@ -6,6 +6,8 @@ Being a clown, joking around.
 
 Turning everything into clowning around, jokes, anti-goodness, nonfiction avoidance. Comedy washing all serious important understandings away.
 
+See Also: [Peter Pomerantsev_on topic of Kremlin Joke Washing and Amusement Washing.md](/Quotes_Pile/Specific/Peter_Pomerantsev_Joke_Washing_Amusement_Washing.md)
+
 &nbsp;
 
 # War and Peace in The Global Village
