@@ -987,3 +987,12 @@ https://old.reddit.com/r/law/comments/1r9kndr/trump_responds_to_question_about_p
 "Alternate reality"... Top-upvoted most popular comment. ESSENTIAL_STUDY_MAGA "the dumbest Americans are like" commenting this and always avoiding the **NONFICTION SECTION OF THE PUBLIC LIBRARY**. To understand why we have Trumpism and MAGA since September 9, 2014 - it is because people keep commenting shit like t his and are FAKE_RESISTANCE - calling people *dumb* while making such a statement. Celebration of Ignorance abounds on every social commenting platform. 
 
 * From September 9, 2014 - we could have kept repeating it and defeated Putin's takeover of USA hearts and minds: https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ "Russia and the Menace of Unreality: How Vladimir Putin is revolutionizing information warfare. By Peter Pomerantsev. At the NATO summit in Wales last week, General Philip Breedlove, the military alliance’s top commander, made a bold declaration. Russia, he said, is waging “the **most amazing information warfare blitzkrieg we have ever seen in the history of information warfare.**” It was something of an underestimation. The new Russia doesn’t just deal in the petty disinformation, forgeries, lies, leaks, and cyber-sabotage usually associated with information warfare. It reinvents reality, creating mass hallucinations that then translate into political action."
+
+https://old.reddit.com/r/law/comments/1r9kndr/trump_responds_to_question_about_prince_andrews/o6dy1o1/
+
+<img width="1439" height="511" alt="image" src="https://github.com/user-attachments/assets/95dd6e18-43fb-4d43-a2b8-1a049306bd44" />
+
+Yes. BEYOND_DENIAL beyond all the **psychological denial** that Trump has accomplished nothing, that Trump is lazy and weak and powerless. Trump has poisoned the USA minds to be spectators to his crimes. People behave as if they are watching a bad-ass casino robbery movie like Oceans 11 - that it is fiction entertainment. But these Tweet-length low-effort commenting on Reddit that describe the issue in disconnected fragmented ways are not resisting the problem! They are the very "social media engagement" to Trump that has elevated him to absolute power. Reddit is a commenting cult, always remarking about Trump's every move and shake.
+
+NEW_OPERA_NAME #TrumpSuccessful   
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mfc22k5tt22y https://autistics.life/@RoundSparrow/116102804006299129 }
