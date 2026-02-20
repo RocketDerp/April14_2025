@@ -761,4 +761,6 @@ https://old.reddit.com/r/Gamingcirclejerk/comments/1r9a1qi/i_want_the_golden_age
 7 month Reddit account. So, he celebrates stupid and celebrates ignorance and this entire Reddit posting is typical of USA society 2026 that puts on /r/All front page the most ignorant fiction sources of content for amusement and entertainment. A shit-posting society, a shit-commenting nation, USA. Twitter-thinking nation with prizing of shit leaders for shit media. SOCIAL_CULT_HATE_WATCHING_FANDOM
 
 
+https://old.reddit.com/r/antimeme/comments/1r9bvt1/family_is_no_more_more/o6cf1ft/
 
+You know who isn't autistic? Socially popular people like Jeffery Epstein and Donald Trump. The role models people have made for their children: Donald Trump. Who has the most loyal fandom of any celebrity in all human history. No television, film, singer, sports, gaming, book star has ever inspired so much loyalty and cult following. And Trump is the opposite of autistic people. Trump golfs, Trump travels, Trump speaks in front of cameras and on stages constantly without fear. And Trump puts RFK Jr in charge of communicating to the nation on causes of autism. Which no autistic person would ever desire RFK Jr's ideas and advice.
