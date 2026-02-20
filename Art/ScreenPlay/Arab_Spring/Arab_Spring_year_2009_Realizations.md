@@ -127,3 +127,8 @@ A lot of us monkeys have to type a lot of bullshit to reach to Shakespeare.
 
 4:36 AM · Mar 15, 2010
 
+https://x.com/RoundSparrow/status/10514213034   
+
+❤++ is life is life is life is life is Allah is God is is Buddha is Jesus is All is Every is Love is ❤++ ❤++   
+
+5:00 AM · Mar 15, 2010   
