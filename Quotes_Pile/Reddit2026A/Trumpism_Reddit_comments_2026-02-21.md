@@ -161,3 +161,7 @@ ANTI_SCIENCE ANTI_NONFICTION ANTI_REALITY
 https://old.reddit.com/r/worldnews/comments/1rb4kcq/trump_imposes_15_tariffs_on_the_world/o6oee6y/
 
 BUSINESS_FANDOM HAIL_CORPORATE on Reddit audience. Top-voted popular comment. We The People are entertained, but *businesses* needs stability. Humanity serves businessman.
+
+https://old.reddit.com/r/worldnews/comments/1rb4kcq/trump_imposes_15_tariffs_on_the_world/o6onwbx/
+
+The population, 100% of the people, sold out to the Saint Petersburg Internet Research Agency mindsets for meme images and patterns of inauthentic conversation. Surkov won since year 2013.
