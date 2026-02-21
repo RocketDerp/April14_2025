@@ -73,3 +73,7 @@ https://old.reddit.com/r/politics/comments/1ravccy/trump_vows_to_raise_worldwide
 
 MEASURING_BAR_SO_LOW Reddit comment creators are fixated in feedback loops about how super-smart they are never studying Surkov information warfare and Surkovian governing techniques. ARE_YOU_SMARTER_THAN_3RD_GRADE_STUDENT_FANDOM_MEASURING A contestant deceleration that the USA is super-smart as a nation, but ONLY the Republicans consume dumb media in a Fox News HDTV cult. The Reddit media cult mocks outside media cults.
 
+https://old.reddit.com/r/politics/comments/1ravccy/trump_vows_to_raise_worldwide_tariffs_to_15/o6mfxax/
+
+CALL_FOR_ACTION_TO_DO_TRIVIAL_CHANGE This Reddit user is encouraging the Trump-content cult members on Reddit to make a trivial media-content change. To change the name of a prop in the Reality TV White House Kremlin show. The fandom does not call to arms for Dr. Bandy X Lee's mental health public education. Instead the fandom calls for screenplay changes, the name of a character. No call to REMOVE the tariffs, just to give them a different name for the audience on Reddit. This is what an engaged fandom does, this is Reddit behavior. This is fans in a crowd crying out to the performer on stage to change a line in the show! Glued to their Reddit device screens.
+
