@@ -153,3 +153,8 @@ https://old.reddit.com/r/dashcams/comments/1rb0rgz/vince_mcmahon_smashes_bentley
 https://old.reddit.com/r/dashcams/comments/1rb0rgz/vince_mcmahon_smashes_bentley_into_car_at_100mph/o6nm2yk/
 
 TECH_LUST_TECH_LOVERS the rush of expensive high-technology machines.
+
+https://old.reddit.com/r/books/comments/1raothc/the_trump_administration_is_illegally_gutting/o6l3t7t/
+
+ANTI_SCIENCE ANTI_NONFICTION ANTI_REALITY 
+
