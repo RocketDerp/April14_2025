@@ -17,3 +17,11 @@ Another gullible Reddit user. A person thinks the government of Russia and USA a
 https://old.reddit.com/r/50501/comments/1ras3va/student_led_peaceful_protest_in_quakertown/o6lr806/
 
 Abuse of children is what the EPSTEIN_FANDOM desires. it gets media coverage, stimulating media content for media cults.
+
+https://old.reddit.com/r/LetsDiscussThis/comments/1rar6r9/next_up/o6lms9o/
+
+The POSTING itself is titled, has a cult image of Donald Trump / photograph of Trump, and asks "When will America get serious about our pedophile president issue?" (again, in the posting itself, not this comment). So the Reddit user is asserting people are not serious, with an extreme short-length generic clickbait title posting of "Next Up", two words, that in no way convey the topic or subject.
+
+As for the comment: GIVE_UP_SURRENDER to the Reddit audience. Stay inside your boxed thinking patterns, inside the box of Reddit commenting. Observe the avoidance of nonfiction teaching for the general public. Absence of Dr. Bandy X Lee book quotes, etc.
+
+
