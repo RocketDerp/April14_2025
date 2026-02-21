@@ -92,3 +92,21 @@ EVERYTHING_IS_INFORMATION_SYSTEMS EVERYTHING_IS_MEME_SYSTEMS EVERYTHING_IS_MEDIA
 https://old.reddit.com/r/news/comments/1razl1o/fedex_deletes_jeffrey_epstein_account_records/o6ncr2x/
 
 Donald Trump was removed for office for 4 years and replaced by Joe Biden. However, the commenting media cults of Reddit did not disappear when Trump was not POTUS. Surkov won since March of year 2013. 3 years in the future by this Reddit user is a reference to voting, elections. Focused away from the **brain rot commenting all over every media system EVERY DAY** in the USA, but **fixated** only on the button-pushing of voting booths on rare days. ELECTION_DAY_FIXATED_BRAIN_ROT_EVERY_DAY_FOX_NEWS_ETC
+
+https://old.reddit.com/r/RandomShit_ISaw/comments/1raupp4/maria_farmer_worked_for_jeffrey_epstein_in_the/o6me4ak/
+
+"go riot", anti-intellectual messaging on Reddit. GIVE_UP_ANTI_EDUCATION_ANTI_TEACH_ANTI_PROGRESS
+
+1. Why is there no Reddit blackout calling for Trump removal?
+
+2. 2hy is social media not being used to organize FAQ and Wiki of the badness of Trump / MAGA?
+
+3. Why is Dr. Bandy X Lee's nonfiction education for the general public not being quoted constantly over and over on Reddit and Blueksy? Why are people not following a woman leader who assembled 27 contributors to a nonfiction book on paper?
+
+4. Why is it that Jen Senko's 2015 film (and later book) about brainwashing of right-wing media not discussed all the time and frequently on Reddit commenting sections?
+
+ANSWER: Reddit is a cult of media events. a "RIOT" is a media event with action and ICE-like violence. Why is it that Reddit brainwashed people can't discuss Jen Senko's brainwashing media ecology film... https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad Because the self-awareness of how billionaires have programmed Reddit audience into predictable reactions is too painful. 
+
+REDDIT SOCIETY, ANSWER:
+
+* “One of the saddest lessons of history is this: If we’ve been bamboozled long enough, we tend to reject any evidence of the bamboozle. We’re **no longer interested in finding out the truth. The bamboozle has captured us. It’s simply too painful to acknowledge, even to ourselves, that we’ve been taken**. Once you give a charlatan power over you, you almost never get it back. So the old bamboozles tend to persist as the new ones rise.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, **1995**, page 241.
