@@ -158,3 +158,6 @@ https://old.reddit.com/r/books/comments/1raothc/the_trump_administration_is_ille
 
 ANTI_SCIENCE ANTI_NONFICTION ANTI_REALITY 
 
+https://old.reddit.com/r/worldnews/comments/1rb4kcq/trump_imposes_15_tariffs_on_the_world/o6oee6y/
+
+BUSINESS_FANDOM HAIL_CORPORATE on Reddit audience. Top-voted popular comment. We The People are entertained, but *businesses* needs stability. Humanity serves businessman.
