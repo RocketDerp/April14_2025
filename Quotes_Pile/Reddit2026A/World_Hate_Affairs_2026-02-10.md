@@ -831,3 +831,9 @@ FICTION_NONFICTION
 
 Social post { https://autistics.life/@RoundSparrow/116104063378049758 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfclxo7hqc2h }
 
+https://old.reddit.com/r/unitedkingdom/comments/1raltam/dont_go_to_the_us_not_with_trump_in_charge_the_uk/o6kq4ot/
+
+https://old.reddit.com/r/unitedkingdom/comments/1raltam/dont_go_to_the_us_not_with_trump_in_charge_the_uk/o6l05pi/
+
+All out of ignoring "it's the Internet" mindset outgrowth of USA society, behaving like a monster machine that attacks and dehumanizes people like everyone is in a first person shooter video game to wreck other "players". People just accept that blocking isn't book burning. As if 1937 Germany had block buttons on Bluesky and Reddit. They had to use actual fame with paper and ink. Not pixels on a screen.
+
