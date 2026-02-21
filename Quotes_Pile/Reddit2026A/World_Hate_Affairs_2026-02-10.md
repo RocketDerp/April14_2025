@@ -194,6 +194,7 @@ Trump is a camera magnet. Center of attention! Trump got on McDonald's commercia
 
 Being **a television influencer, a Twitter influencer, a Truth social influencer, a newspaper influencer, a socialite, popularity of pop culture** is what Donald Trump is good at! MEDIA ITSELF, creating MEDIA EVENTS, is the gift and talent of Donald J. Trump! An actor doing acting, playing POTUS Tony Clifton character for laughs! It concentrates power and wealth!
 
+NEW_OPERA_NAME #SeeYouFix #WhateverTheHell #MonstrosityToPower    
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3meqrillv3k24 https://autistics.life/@RoundSparrow/116063922207138646 }
 
 
