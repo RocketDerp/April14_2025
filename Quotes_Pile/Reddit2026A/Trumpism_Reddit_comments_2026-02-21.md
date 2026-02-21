@@ -121,3 +121,7 @@ Alas, NOT_GOOD_ENOUGH Neil Postman is not good enough for Reddit users to cite, 
 
 NEW_OPERA_NAME #TrapThat #TeamThink #RakingInBillions    
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mffjeijhbk24 https://autistics.life/@RoundSparrow/116110635016525208 }  
+
+https://old.reddit.com/r/RandomShit_ISaw/comments/1raupp4/maria_farmer_worked_for_jeffrey_epstein_in_the/o6mha6w/
+
+GIVE_UP_SURRENDER messaging on Reddit media.
