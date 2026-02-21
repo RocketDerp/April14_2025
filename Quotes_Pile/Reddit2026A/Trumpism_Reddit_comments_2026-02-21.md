@@ -145,3 +145,11 @@ https://old.reddit.com/r/conservativeterrorism/comments/1ravs0e/pennsylvania_pol
 https://old.reddit.com/r/okbuddycinephile/comments/1rb2hd9/what_do_you_think_of_my_epstein_movie_fancast/o6o1c4y/
 
 The whole posting is front page EPSTEIN_FANDOM 
+
+https://old.reddit.com/r/dashcams/comments/1rb0rgz/vince_mcmahon_smashes_bentley_into_car_at_100mph/o6o108x/
+
+9 months Reddit account.  CYNICAL_ACCEPT_IT
+
+https://old.reddit.com/r/dashcams/comments/1rb0rgz/vince_mcmahon_smashes_bentley_into_car_at_100mph/o6nm2yk/
+
+TECH_LUST_TECH_LOVERS the rush of expensive high-technology machines.
