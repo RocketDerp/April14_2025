@@ -1092,3 +1092,6 @@ https://old.reddit.com/r/Epstein/comments/1ra6yw0/i_quit_my_job_to_run_epsteinex
 
 ANTI_WIKI_ANTI_FAQ Yes, there needs to be pro-FAQ pro-WIKI pro "we are all on the same page" of priority topics. People need to voluntarily cut down on unique commenting and unique writing in the service of freedom revival. Being all scattered and disorganized is a serous problem we all need to study and learn about. BRAIN_ROT_SOCIETY_47
 
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1race1x/i_dont_get_it/o6iwfci/
+
+MEASURING_BAR_SO_LOW  
