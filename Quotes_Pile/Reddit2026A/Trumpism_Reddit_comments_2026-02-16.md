@@ -1127,3 +1127,8 @@ ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING
 https://old.reddit.com/r/ABoringDystopia/comments/1ra6pxu/trump_i_am_allowed_to_cut_off_any_and_all_tradei/o6hokfa/
 
 Trump uses Reddit media to brainwash everyone and Reddit, and yet it is the Reddit users who think Putin, Surkov students, Kremlin, White House is "inept". Why is it Reddit has had no BLACKOUT protest of Trump? Why is it Reddit community can't quote Dr. Bandy X Lee's highly relevant nonfiction books... etc.
+
+https://old.reddit.com/r/ABoringDystopia/comments/1ra6pxu/trump_i_am_allowed_to_cut_off_any_and_all_tradei/o6hmdd3/
+
+1980's you say.. I was born in year 1969, I was in high school in the 1980's, I graduated in 1988. Why can't Reddit users cite Neil Postman's year 1985 book about how REDDIT ITSELF and Trump's own addiction to Twitter and Truth social is relevant? SEE_ALSO: **September 10, 2025 - "The 40-Year-Old Book That Predicted Our Dystopian Politics"** https://Time.com/7313999/neil-postman-trump-prediction/
+
