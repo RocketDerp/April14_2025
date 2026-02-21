@@ -80,3 +80,8 @@ CALL_FOR_ACTION_TO_DO_TRIVIAL_CHANGE This Reddit user is encouraging the Trump-c
 https://old.reddit.com/r/politics/comments/1ravccy/trump_vows_to_raise_worldwide_tariffs_to_15/o6mm2hb/
 
 MIND_BLOWN_BY Mind blown on Reddit by Trump's world-changing acting and performances. The POTUS Tony Clifton act blows the Reddit audience mind as to how indifferent a Tony Clifton show is to audience booing and audience mouths agape to the shock content!
+
+https://old.reddit.com/r/news/comments/1razl1o/fedex_deletes_jeffrey_epstein_account_records/o6nbt9b/
+
+To understand why Donald Trump is at the top of society and always in the media, why Trumpism rules America, study this Reddit comment. "LMAO". Top-upvoted 2nd most popular comment. "LAUGHING MY ASS OFF" mind-blowing to Reddit audiences. LAUGHTER_THE_BEST_MINDFUCK Surkovian / Surkov students won since March 2013.
+
