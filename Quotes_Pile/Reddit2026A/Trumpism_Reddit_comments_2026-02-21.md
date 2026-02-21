@@ -110,3 +110,14 @@ ANSWER: Reddit is a cult of media events. a "RIOT" is a media event with action 
 REDDIT SOCIETY, ANSWER:
 
 * “One of the saddest lessons of history is this: If we’ve been bamboozled long enough, we tend to reject any evidence of the bamboozle. We’re **no longer interested in finding out the truth. The bamboozle has captured us. It’s simply too painful to acknowledge, even to ourselves, that we’ve been taken**. Once you give a charlatan power over you, you almost never get it back. So the old bamboozles tend to persist as the new ones rise.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, **1995**, page 241.
+
+https://old.reddit.com/r/RandomShit_ISaw/comments/1raupp4/maria_farmer_worked_for_jeffrey_epstein_in_the/o6mlqp8/
+
+<img width="1163" height="812" alt="image" src="https://github.com/user-attachments/assets/1311badf-1c25-4f91-9228-a0f6e61f7336" />
+
+CORE_CONCERNS We The People: "And round and round we go." yes. RoundSparrow here. FEEDBACK_LOOP_MEDIA_CULTS_PLATFORM_TO_PLATFORM_MOCKERY_USA
+
+Alas, NOT_GOOD_ENOUGH Neil Postman is not good enough for Reddit users to cite, read, study, discuss the behaviors of electric media systems.
+
+NEW_OPERA_NAME #TrapThat #TeamThink #RakingInBillions    
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mffjeijhbk24 https://autistics.life/@RoundSparrow/116110635016525208 }  
