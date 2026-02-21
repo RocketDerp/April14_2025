@@ -59,3 +59,10 @@ https://old.reddit.com/r/clevercomebacks/comments/1rau9du/there_is_nothing_to_de
 https://old.reddit.com/r/clevercomebacks/comments/1rau9du/there_is_nothing_to_defend/o6mc08r/
 
 SATIRE_SARCASM_WASHING
+
+https://old.reddit.com/r/International/comments/1raw1vm/conservative_values_have_ruined_this_country/o6mn1yo/
+
+INFORMATION_GLUT_COMMENTING_GLUT The problem with the USA is the year 2007 introduction of the Apple iPhone. The July 6, 2011 all in move of Donald Trump to Twitter 140 characters and the Tweet-thinking reactionary mindsets of screen video gaming back and forth favoring commenting over nonfiction books on paper.
+
+
+
