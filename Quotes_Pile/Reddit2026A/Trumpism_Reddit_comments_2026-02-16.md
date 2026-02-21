@@ -1153,3 +1153,7 @@ https://old.reddit.com/r/International/comments/1ra5tib/billionaire_calls_democr
 https://old.reddit.com/r/Fauxmoi/comments/1ra6bvc/trump_after_his_sweeping_tariffs_were_ruled/o6hm7sv/
 
 ENTERTAINED_JUST_PASSIVELY_WATCHING_UNTIL_DEATH_NO_SOCIAL_MEDIA_UPRISING_WHILE_ALIVE
+
+https://old.reddit.com/r/Fauxmoi/comments/1ra6bvc/trump_after_his_sweeping_tariffs_were_ruled/o6hmdkd/
+
+It's incredibly hard for people to see, "believe", how much nonfiction relevant books from Dr. Bandy X Lee are ignored on Reddit. Instead of repeating and asserting excellent informative quotes from Dr. Lee, people spend their free time and spare time crating low-effort "reaction" content about Trump video / Trump statements. Reddit is a SOCIAL_CULT_HATE_WATCHING_FANDOM
