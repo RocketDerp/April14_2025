@@ -37,3 +37,7 @@ https://old.reddit.com/r/wallstreetbets/comments/1ravb2r/trump_says_he_will_rais
 ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING the Surkovian techniques are not called out by name on Reddit, as nonfiction about serious and relevant topics is avoided. A cult of avoiding nonfiction education and teaching to other adults (via Reddit commenting), there is no resistance (people are attracted and "engaged" by Trump's stimulation. Top-down programming of their mindsets).
 
 * "what Putin will do next — that **he’s unpredictable and thus dangerous. We’re rendered stunned, spun, and flummoxed** by the Kremlin’s weaponization of absurdity and unreality.” - **year 2014**. September 9, 2014 https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/ImmigrationPathways/comments/1raqc65/maga_police_chief_attacks_underage_students_who/o6lec5c/
+
+Top upvoted comment. ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING - behaving like news reporters on Reddit who create comments bu tin no way organize a Reddit blackout or Reddit social media uprising. Programmed to react-comment to the entertainment that flows out of Reddit servers.
