@@ -22,10 +22,11 @@ OPERA_FOCUS_NAME #WhateverTheHell #MonstrosityToPower
 7. Year 1605 https://en.wikipedia.org/wiki/Don_Quixote
 8. Year 1923 https://en.wikipedia.org/wiki/Finn%27s_Hotel
 9. Year 1939 Star Wars Day https://en.wikipedia.org/wiki/Finnegans_Wake
-10. Year 1968 https://en.wikipedia.org/wiki/War_and_Peace_in_the_Global_Village
-11. Year 1982 September https://en.wikipedia.org/wiki/It%27s_Hard
-12. Year 1985 https://en.wikipedia.org/wiki/Amusing_Ourselves_to_Death
-13. Year 1992 https://en.wikipedia.org/wiki/Infinite_Jest
+10. Year 1943 April https://en.wikipedia.org/wiki/The_Little_Prince
+11. Year 1968 https://en.wikipedia.org/wiki/War_and_Peace_in_the_Global_Village
+12. Year 1982 September https://en.wikipedia.org/wiki/It%27s_Hard
+13. Year 1985 https://en.wikipedia.org/wiki/Amusing_Ourselves_to_Death
+14. Year 1992 https://en.wikipedia.org/wiki/Infinite_Jest
 
 Supplemental 
 
