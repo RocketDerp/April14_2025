@@ -837,3 +837,7 @@ https://old.reddit.com/r/unitedkingdom/comments/1raltam/dont_go_to_the_us_not_wi
 
 All out of ignoring "it's the Internet" mindset outgrowth of USA society, behaving like a monster machine that attacks and dehumanizes people like everyone is in a first person shooter video game to wreck other "players". People just accept that blocking isn't book burning. As if 1937 Germany had block buttons on Bluesky and Reddit. They had to use actual fame with paper and ink. Not pixels on a screen.
 
+https://old.reddit.com/r/unitedkingdom/comments/1raltam/dont_go_to_the_us_not_with_trump_in_charge_the_uk/o6knyd9/
+
+Unable to recognize the dehumanization Reddit society has normalized, "bots", machines. Cults are all too human. Nazi Germany didn't have "bots", Pol Pot in Cambodia 1970's wasn't bots. People can be dehumanizing and people have avoided NOT_GOOD_ENOUGH Martin Luther King Jr's February 28, 1954 writings again and again in facing how hate it toxic no matter the reason or geography.
+
