@@ -772,3 +772,7 @@ https://old.reddit.com/r/TrendoraX/comments/1rat4ev/lauren_boebert_wants_the_ten
 https://old.reddit.com/r/TrendoraX/comments/1rat4ev/lauren_boebert_wants_the_ten_commandments_to_be/o6lyxpy/
 
 BIBLE_LITERACY lessons are urgently needed. He believes in "one perfect book", BOOK_SUPREMACY crisis of media cultists to monomyth patterns.
+
+https://old.reddit.com/r/TrendoraX/comments/1rat4ev/lauren_boebert_wants_the_ten_commandments_to_be/o6m0xom/
+
+27 day Reddit account. 4th most upvoted root comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
