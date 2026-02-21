@@ -71,7 +71,7 @@ https://old.reddit.com/r/International/comments/1raw1vm/conservative_values_have
 
 https://old.reddit.com/r/politics/comments/1ravccy/trump_vows_to_raise_worldwide_tariffs_to_15/o6mju6m/
 
-MEASURING_BAR_SO_LOW Reddit comment creators are fixated in feedback loops about how super-smart they are never studying Surkov information warfare and Surkovian governing techniques. ARE_YOU_SMARTER_THAN_3RD_GRADE_STUDENT_FANDOM_MEASURING A contestant deceleration that the USA is super-smart as a nation, but ONLY the Republicans consume dumb media in a Fox News HDTV cult. The Reddit media cult mocks outside media cults.
+MEASURING_BAR_SO_LOW Reddit comment creators are fixated in feedback loops about how super-smart they are never studying Surkov information warfare and Surkovian governing techniques. ARE_YOU_SMARTER_THAN_3RD_GRADE_STUDENT_FANDOM_MEASURING A contestant deceleration that the USA is super-smart as a nation, but ONLY the Republicans (MAGA) consume dumb media in a Fox News HDTV cult. The Reddit media cult mocks outside media cults. Dumb media vs. dumb media, all (EVERYONE in USA) avoiding serious nonfiction relevant book on paper.
 
 https://old.reddit.com/r/politics/comments/1ravccy/trump_vows_to_raise_worldwide_tariffs_to_15/o6mfxax/
 
