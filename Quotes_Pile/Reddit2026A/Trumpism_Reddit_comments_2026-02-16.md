@@ -1150,3 +1150,6 @@ https://old.reddit.com/r/politics/comments/1ra89ko/magas_reaction_to_the_epstein
 
 https://old.reddit.com/r/International/comments/1ra5tib/billionaire_calls_democracy_a_failed_experiment/o6irsw0/
 
+https://old.reddit.com/r/Fauxmoi/comments/1ra6bvc/trump_after_his_sweeping_tariffs_were_ruled/o6hm7sv/
+
+ENTERTAINED_JUST_PASSIVELY_WATCHING_UNTIL_DEATH_NO_SOCIAL_MEDIA_UPRISING_WHILE_ALIVE
