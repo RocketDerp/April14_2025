@@ -24,4 +24,7 @@ The POSTING itself is titled, has a cult image of Donald Trump / photograph of T
 
 As for the comment: GIVE_UP_SURRENDER to the Reddit audience. Stay inside your boxed thinking patterns, inside the box of Reddit commenting. Observe the avoidance of nonfiction teaching for the general public. Absence of Dr. Bandy X Lee book quotes, etc.
 
+https://old.reddit.com/r/wallstreetbets/comments/1ravb2r/trump_says_he_will_raise_us_global_tariff_rate/o6mgo8y/
+
+Predictable Twitter-length short-pattern mentally programmed reactions. "Are you not entertained?" - avoiding nonfiction in the face of Kremlin media techniques, Surkovian governing.  AMUSING_ZOMBIES
 
