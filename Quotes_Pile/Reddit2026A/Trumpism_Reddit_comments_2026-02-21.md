@@ -55,3 +55,7 @@ Writing about mental health and emotional motivations. Alas: NOT_GOOD_ENOUGH Dr.
 https://old.reddit.com/r/clevercomebacks/comments/1rau9du/there_is_nothing_to_defend/o6mb08o/
 
 10 day Reddit account, top-upvoted most popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT "Funny". Note that the (Twitter?) screen shot of the posting has dates removed, which has been a recent trend on these extreme low-effort back-forth media reaction commenting postings.
+
+https://old.reddit.com/r/clevercomebacks/comments/1rau9du/there_is_nothing_to_defend/o6mc08r/
+
+SATIRE_SARCASM_WASHING
