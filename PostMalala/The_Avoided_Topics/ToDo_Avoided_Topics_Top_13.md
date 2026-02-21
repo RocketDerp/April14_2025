@@ -87,3 +87,9 @@ Malala spread authentic love since **January 3, 2009 on her blog on WWW**. And s
 
 Islam is the newest of the new religions. Newer than Hindu, newer than Christian, newer than Jewish. Its' the new religion! Year 635, how long would it take to carry a book from Saudi Arabia Mecca to Swat Valley Pakistani using year 635 travel routs and transpiration machines.
 
+&nbsp;
+
+# Brainrot Society 47 top lists
+
+Avoided_Topics over on Brain Rot Society 47:    
+https://github.com/GreatSealUSA/Brainrot_Society_47/tree/main/Avoided_Topics    
