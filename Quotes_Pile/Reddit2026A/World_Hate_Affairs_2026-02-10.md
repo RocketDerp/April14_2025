@@ -860,3 +860,23 @@ How did **Elon Musk get his start in Africa to become the richest most powerful 
   * https://Blastar-1984.AppSpot.com/
  
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mffecd54mc2e https://autistics.life/@RoundSparrow/116110278940880751 }
+
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1raqya9/challenging_the_whitecentric_thinking_and_beliefs/o6m9u0n/
+
+White American **intelligent** boys had **bullying oppression** by the anti-book brain-damage NFL football cultists in the 1970's and 1980's. 
+
+* Newsweek magazine. **January 21, 1980 Isaac Asimov warns against a growing “cult of ignorance” in American society, where anti-intellectualism thrives and people wrongly believe their uninformed opinions hold equal weight to expert knowledge. He argues this dangerous trend undermines education**, reason, and the very foundation of democracy by dismissing science and informed discourse. https://www.organism.earth/library/document/cult-of-ignorance
+
+I personally escaped this anti-intellectual behavior of my middle school and high school by getting on social media with intelligent adults. I authored and sold my won commercial social media site software in 1985 in high school. Reading nonfiction books about computer science and software engineering was very unpopular in my sports-mentality high school in Fort Wayne, Indiana.
+
+Of course, almost all of us intellectual white boys (book nerds) **were captured into an abusive media cult by Bill Gates who was an infamous bully.** 
+
+* "March 30, 2011 — Paul Allen uses memoir to portray Bill Gates as a bully" https://www.theguardian.com/technology/2011/mar/30/microsoft-paul-allen-bill-gates
+
+A society, USA, of white male billionaire worshipers. Immigrant Elon Musk fit right into the circle of white men wealth worshipers. Corporations clubs, Incorporated, Indoctrinated. It is not difficult to locate Dr. Martin Luther King Jr's teachings about hate from February 28, 1954. But the most gifted computer researchers all seem to not be able to land on the equations. Right on WikiQuote for the whole world wide web: https://en.WikiQuote.org/wiki/Martin_Luther_King_Jr.
+
+**The 1954 Equation**
+
+February 28, 1954: "Most people can't stand up for their convictions, because the majority of people might not be doing it. See, everybody's not doing it, so it must be wrong. And since everybody is doing it, it must be right. So a sort of numerical interpretation of what's right. But I'm here to say to you this morning that some things are right and some things are wrong. Eternally so, absolutely so. **It's wrong to hate.** It always has been wrong and it always will be wrong. It's wrong in America, it's wrong in Germany, it's wrong in Russia, it's wrong in China. It was wrong in 2000 B.C., and it's wrong in 1954 A.D. It always has been wrong, and it always will be wrong." - Martin Luther King Jr.
+
+"For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the **true becomes false and the false becomes true**. That's what hate does. You can't see right. **The symbol of objectivity** is lost." - Martin Luther King Jr.
