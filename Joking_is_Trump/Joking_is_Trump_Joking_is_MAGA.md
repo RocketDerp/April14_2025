@@ -50,7 +50,7 @@ Recap:
 Joking is Trump.  
 Joking is MAGA.  
 Joking is Maximum Putinization since year 2013.    
-    * https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/
+    * https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/   
     * https://web.archive.org/web/20131221041212/https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/
     
 &nbsp;
