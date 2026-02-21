@@ -85,3 +85,6 @@ https://old.reddit.com/r/news/comments/1razl1o/fedex_deletes_jeffrey_epstein_acc
 
 To understand why Donald Trump is at the top of society and always in the media, why Trumpism rules America, study this Reddit comment. "LMAO". Top-upvoted 2nd most popular comment. "LAUGHING MY ASS OFF" mind-blowing to Reddit audiences. LAUGHTER_THE_BEST_MINDFUCK Surkovian / Surkov students won since March 2013.
 
+https://old.reddit.com/r/news/comments/1razl1o/fedex_deletes_jeffrey_epstein_account_records/o6ncxs8/
+
+EVERYTHING_IS_INFORMATION_SYSTEMS EVERYTHING_IS_MEME_SYSTEMS EVERYTHING_IS_MEDIA_ECOLOGY 
