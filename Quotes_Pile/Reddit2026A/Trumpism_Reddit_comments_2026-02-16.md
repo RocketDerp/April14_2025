@@ -1147,3 +1147,6 @@ https://old.reddit.com/r/politics/comments/1ra89ko/magas_reaction_to_the_epstein
 https://old.reddit.com/r/politics/comments/1ra89ko/magas_reaction_to_the_epstein_files_reveals_total/o6hzpga/
 
 7 month Reddit account. DEFLECTION_FROM_BILLIONAIRES_AND_PUTINISM - the empathy for rich Donald Trump and standing up for rich Elon Musk has been on display. This Reddit comment defects from cult issues and Edward Bernays / Dr. Abraham Brill / Cambridge Analytica doctors.
+
+https://old.reddit.com/r/International/comments/1ra5tib/billionaire_calls_democracy_a_failed_experiment/o6irsw0/
+
