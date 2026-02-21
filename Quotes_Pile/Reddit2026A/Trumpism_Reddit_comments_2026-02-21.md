@@ -65,4 +65,8 @@ https://old.reddit.com/r/International/comments/1raw1vm/conservative_values_have
 INFORMATION_GLUT_COMMENTING_GLUT The problem with the USA is the year 2007 introduction of the Apple iPhone. The July 6, 2011 all in move of Donald Trump to Twitter 140 characters and the Tweet-thinking reactionary mindsets of screen video gaming back and forth favoring commenting over nonfiction books on paper.
 
 
+https://old.reddit.com/r/International/comments/1raw1vm/conservative_values_have_ruined_this_country/o6mnlcl/
+
+2 day Reddit account. 3rd most popular upvoted comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT Blaming ANYTHING but media systems. Blaming ANYTHING but social media brain rot. Blaming ANYTHING but multiple-nations reporting NATO being attacked by Russia ... using social media systems. Surkov won since March 2013. "Afraid of" what people, WE The PEOPLE, are afraid of is the nonfiction serious section of the public library. To use nonfiction adult learning for adults to comprehend the cults of Fox News media. people are afraid of Jen Senko's nonfiction film from year 2015.
+
 
