@@ -1069,3 +1069,6 @@ https://old.reddit.com/r/International/comments/1r92gpq/_/o69h5uo/
 
 ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING
 
+https://old.reddit.com/r/UnderReportedNews/comments/1ran5iq/james_talarico_schools_lauren_boebert_on_how/o6kx9ub/
+
+In other words: Billionaire Rupert Murdoch has programmed MAGA to joke-away at "Liberal Laughs" and "Liberal Tears". A mass dehumanization technique of Rupert Murdoch, Putin, Musk, Trump. JOKE_COMEDY_POWER_IS_MAGA_IS_TRUMP_IS_SURKOV
