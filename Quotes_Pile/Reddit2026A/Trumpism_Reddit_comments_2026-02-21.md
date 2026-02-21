@@ -77,3 +77,6 @@ https://old.reddit.com/r/politics/comments/1ravccy/trump_vows_to_raise_worldwide
 
 CALL_FOR_ACTION_TO_DO_TRIVIAL_CHANGE This Reddit user is encouraging the Trump-content cult members on Reddit to make a trivial media-content change. To change the name of a prop in the Reality TV White House Kremlin show. The fandom does not call to arms for Dr. Bandy X Lee's mental health public education. Instead the fandom calls for screenplay changes, the name of a character. No call to REMOVE the tariffs, just to give them a different name for the audience on Reddit. This is what an engaged fandom does, this is Reddit behavior. This is fans in a crowd crying out to the performer on stage to change a line in the show! Glued to their Reddit device screens.
 
+https://old.reddit.com/r/politics/comments/1ravccy/trump_vows_to_raise_worldwide_tariffs_to_15/o6mm2hb/
+
+MIND_BLOWN_BY Mind blown on Reddit by Trump's world-changing acting and performances. The POTUS Tony Clifton act blows the Reddit audience mind as to how indifferent a Tony Clifton show is to audience booing and audience mouths agape to the shock content!
