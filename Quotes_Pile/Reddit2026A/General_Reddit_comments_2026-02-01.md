@@ -764,3 +764,7 @@ https://old.reddit.com/r/Gamingcirclejerk/comments/1r9a1qi/i_want_the_golden_age
 https://old.reddit.com/r/antimeme/comments/1r9bvt1/family_is_no_more_more/o6cf1ft/
 
 You know who isn't autistic? Socially popular people like Jeffery Epstein and Donald Trump. The role models people have made for their children: Donald Trump. Who has the most loyal fandom of any celebrity in all human history. No television, film, singer, sports, gaming, book star has ever inspired so much loyalty and cult following. And Trump is the opposite of autistic people. Trump golfs, Trump travels, Trump speaks in front of cameras and on stages constantly without fear. And Trump puts RFK Jr in charge of communicating to the nation on causes of autism. Which no autistic person would ever desire RFK Jr's ideas and advice.
+
+https://old.reddit.com/r/TrendoraX/comments/1rat4ev/lauren_boebert_wants_the_ten_commandments_to_be/o6ly1nj/
+
+15 day Reddit account. Most popular, most upovoted comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT Playing right into the mockery that MAGA creates via television, Reddit community predictably follows the mocking leadership electric media signals.
