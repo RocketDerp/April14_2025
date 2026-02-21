@@ -780,7 +780,7 @@ def main():
 
     if args.replies_users_maximum:
         print(f"overriding replies_users_max {replies_users_max} to: replies_users_maximum {args.replies_users_maximum}")
-        replies_users_max = args.replies_users.maximum
+        replies_users_max = args.replies_users_maximum
 
     if args.user_renew_days:
         # int return float value, we don't need fractions of a second
