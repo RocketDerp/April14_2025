@@ -777,7 +777,4 @@ https://old.reddit.com/r/TrendoraX/comments/1rat4ev/lauren_boebert_wants_the_ten
 
 27 day Reddit account. 4th most upvoted root comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
 
-https://old.reddit.com/r/politics/comments/1ravccy/trump_vows_to_raise_worldwide_tariffs_to_15/o6mju6m/
-
-MEASURING_BAR_SO_LOW Reddit comment creators are fixated in feedback loops about how super-smart they are never studying Surkov information warfare and Surkovian governing techniques. ARE_YOU_SMARTER_THAN_3RD_GRADE_STUDENT_FANDOM_MEASURING A contestant deceleration that the USA is super-smart as a nation, but ONLY the Republicans consume dumb media in a Fox News HDTV cult. The Reddit media cult mocks outside media cults.
 
