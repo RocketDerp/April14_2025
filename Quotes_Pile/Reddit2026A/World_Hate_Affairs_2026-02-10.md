@@ -896,4 +896,5 @@ ARTIFICIAL_REALITY WIDE_RADICAL_DOUBT_ABOUT_REAL Bill Gates investing and lectur
 
 * "The postmodern trajectory **leaves us in a situation where drawing the line between the real and the unreal is no longer merely philosophical but a practical day-to-day issue**. See, this is what I want to drive home. We are not off in some fairy land, **this is a practical day-to-day issue of figuring out what’s a simulation and what’s not**. Is this guy really an insurance salesman or is he here to rob me? You know, I mean… this is no longer Cartesian doubt that one has to conjure up in a meditation. **This is a wide radical doubt about the very ground beneath our feet and the nature of whether it’s real** or not." - Texan Rick Roderick, year 1993, Duke University https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
 
+NEW_OPERA_NAME #WideRadicalDoubt   
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mffkreeezs2r https://bsky.app/profile/roundsparrow.bsky.social/post/3mffkreeezs2r }
