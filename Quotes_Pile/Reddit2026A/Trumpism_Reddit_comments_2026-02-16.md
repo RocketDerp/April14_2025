@@ -1120,3 +1120,10 @@ https://old.reddit.com/r/ABoringDystopia/comments/1ra6pxu/trump_i_am_allowed_to_
 
 ENTERTAINED_JUST_PASSIVELY_WATCHING_UNTIL_DEATH_NO_SOCIAL_MEDIA_UPRISING_WHILE_ALIVE   
 
+https://old.reddit.com/r/ABoringDystopia/comments/1ra6pxu/trump_i_am_allowed_to_cut_off_any_and_all_tradei/o6hnrr8/
+
+ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING
+
+https://old.reddit.com/r/ABoringDystopia/comments/1ra6pxu/trump_i_am_allowed_to_cut_off_any_and_all_tradei/o6hokfa/
+
+Trump uses Reddit media to brainwash everyone and Reddit, and yet it is the Reddit users who think Putin, Surkov students, Kremlin, White House is "inept". Why is it Reddit has had no BLACKOUT protest of Trump? Why is it Reddit community can't quote Dr. Bandy X Lee's highly relevant nonfiction books... etc.
