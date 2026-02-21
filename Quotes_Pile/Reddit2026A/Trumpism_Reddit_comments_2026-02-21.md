@@ -137,3 +137,7 @@ Not just GenZ - the anti-FAQ anti-Wiki society of cult commenting drowns importa
 https://old.reddit.com/r/law/comments/1raxeo1/you_can_do_whatever_and_skirt_the_consequences/o6o1i8x/
 
 10 month Reddit account. PRIZING_HATE_FURTHERING_HATE Reddit audience follows the leadership of Trump. Trump is a **hate leader** and Reddit follows Trump.
+
+https://old.reddit.com/r/conservativeterrorism/comments/1ravs0e/pennsylvania_police_chief_attacks_teens/o6mpfdn/
+
+https://old.reddit.com/r/conservativeterrorism/comments/1ravs0e/pennsylvania_police_chief_attacks_teens/o6mvy9l/
