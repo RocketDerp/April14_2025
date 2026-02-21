@@ -1140,3 +1140,7 @@ MAGA has been Russian IRA outcomes since March of year 2013. Rural Americans do 
 
 MAGA rural animal farmers are not afraid of giving vaccinations and shots to animals and know all about virus outbreaks on farms and diseases spreading. MAGA has been Russian IRA outcomes since March of year 2013. RFK Jr is full of bullshit and declares love of USSR / Russia enemy symbol... unless MAGA people have been mentally manipulated by the most sophisticated propaganda and information warfare ever created by humanity. Surkov won. Read this from August 24, 2018 about how Russians manipulated people in USA going back to year 2014. https://www.bbc.com/news/world-us-canada-45294192
 
+https://old.reddit.com/r/politics/comments/1ra89ko/magas_reaction_to_the_epstein_files_reveals_total/o6hyznq/
+
+3 times. 2016, 2020, 2024. REMEDIAL_MORALITY is essential teaching. People (We The People) need to stop promoting low-effort commenting and start doing adult education of serious morality topics. Surkov won since March 2013.
+
