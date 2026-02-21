@@ -69,4 +69,7 @@ https://old.reddit.com/r/International/comments/1raw1vm/conservative_values_have
 
 2 day Reddit account. 3rd most popular upvoted comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT Blaming ANYTHING but media systems. Blaming ANYTHING but social media brain rot. Blaming ANYTHING but multiple-nations reporting NATO being attacked by Russia ... using social media systems. Surkov won since March 2013. "Afraid of" what people, WE The PEOPLE, are afraid of is the nonfiction serious section of the public library. To use nonfiction adult learning for adults to comprehend the cults of Fox News media. people are afraid of Jen Senko's nonfiction film from year 2015.
 
+https://old.reddit.com/r/politics/comments/1ravccy/trump_vows_to_raise_worldwide_tariffs_to_15/o6mju6m/
+
+MEASURING_BAR_SO_LOW Reddit comment creators are fixated in feedback loops about how super-smart they are never studying Surkov information warfare and Surkovian governing techniques. ARE_YOU_SMARTER_THAN_3RD_GRADE_STUDENT_FANDOM_MEASURING A contestant deceleration that the USA is super-smart as a nation, but ONLY the Republicans consume dumb media in a Fox News HDTV cult. The Reddit media cult mocks outside media cults.
 
