@@ -125,3 +125,8 @@ Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mffjeijhbk
 https://old.reddit.com/r/RandomShit_ISaw/comments/1raupp4/maria_farmer_worked_for_jeffrey_epstein_in_the/o6mha6w/
 
 GIVE_UP_SURRENDER messaging on Reddit media.
+
+https://old.reddit.com/r/law/comments/1raxeo1/you_can_do_whatever_and_skirt_the_consequences/o6mzqj9/
+
+Top-upvoted most popular comment. 6 months account. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT WAR_AGAINST_REALITY
+
