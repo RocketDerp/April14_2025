@@ -14,3 +14,6 @@ https://old.reddit.com/r/50501/comments/1ras3va/student_led_peaceful_protest_in_
 
 Another gullible Reddit user. A person thinks the government of Russia and USA are just accidentally making public scenes and creating media content for the Reddit front page. Reddit cult members do not have the cult education to recognize they are in a media consumption cult. Reddit users can't imagine comedy "The Onion" being used against the audience to trigger reactionary mindsets of name-calling the authorities as stupid and dumb via media systems. SURKOVIAN_ONION_EATING
 
+https://old.reddit.com/r/50501/comments/1ras3va/student_led_peaceful_protest_in_quakertown/o6lr806/
+
+Abuse of children is what the EPSTEIN_FANDOM desires. it gets media coverage, stimulating media content for media cults.
