@@ -88,3 +88,7 @@ To understand why Donald Trump is at the top of society and always in the media,
 https://old.reddit.com/r/news/comments/1razl1o/fedex_deletes_jeffrey_epstein_account_records/o6ncxs8/
 
 EVERYTHING_IS_INFORMATION_SYSTEMS EVERYTHING_IS_MEME_SYSTEMS EVERYTHING_IS_MEDIA_ECOLOGY 
+
+https://old.reddit.com/r/news/comments/1razl1o/fedex_deletes_jeffrey_epstein_account_records/o6ncr2x/
+
+Donald Trump was removed for office for 4 years and replaced by Joe Biden. However, the commenting media cults of Reddit did not disappear when Trump was not POTUS. Surkov won since March of year 2013. 3 years in the future by this Reddit user is a reference to voting, elections. Focused away from the **brain rot commenting all over every media system EVERY DAY** in the USA, but **fixated** only on the button-pushing of voting booths on rare days. ELECTION_DAY_FIXATED_BRAIN_ROT_EVERY_DAY_FOX_NEWS_ETC
