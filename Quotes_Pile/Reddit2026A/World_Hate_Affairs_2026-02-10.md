@@ -883,7 +883,13 @@ February 28, 1954: "Most people can't stand up for their convictions, because th
 
 https://old.reddit.com/r/pics/comments/1raz8r5/epstein_mural_in_sydney_australia/o6nbkpc/
 
-#EPSTEIN_FANDOM PREDATORY_BILLIONAIRE_SYSTEMS
+EPSTEIN_FANDOM PREDATORY_BILLIONAIRE_SYSTEMS
 
 NEW_OPERA_NAME #WorldWidePlayboys   
 Social post { https://autistics.life/@RoundSparrow/116110686862795425 https://bsky.app/profile/roundsparrow.bsky.social/post/3mffk5hnmts2r }
+
+https://old.reddit.com/r/pics/comments/1raz8r5/epstein_mural_in_sydney_australia/o6nbafx/
+
+ARTIFICIAL_REALITY WIDE_RADICAL_DOUBT_ABOUT_REAL Bill Gates investing and lecturing about the merits of Artificial Intelligence... to feed sophisticated fiction by billionaires. 
+
+* "The postmodern trajectory **leaves us in a situation where drawing the line between the real and the unreal is no longer merely philosophical but a practical day-to-day issue**. See, this is what I want to drive home. We are not off in some fairy land, **this is a practical day-to-day issue of figuring out what’s a simulation and what’s not**. Is this guy really an insurance salesman or is he here to rob me? You know, I mean… this is no longer Cartesian doubt that one has to conjure up in a meditation. **This is a wide radical doubt about the very ground beneath our feet and the nature of whether it’s real** or not." - Texan Rick Roderick, year 1993, Duke University https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
