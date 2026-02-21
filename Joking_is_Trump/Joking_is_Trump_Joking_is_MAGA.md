@@ -77,3 +77,5 @@ The viral self-harm is Trump brand.
 The viral self-harm is Trump power.   
 The viral self-harm problem is We The People. Every person.  
 The viral pigging-out on mob mentality mindsets, joke self-harm. Every person.    
+
+Social post { https://autistics.life/@RoundSparrow/116109203100984575 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfev2uc3ss2d }
