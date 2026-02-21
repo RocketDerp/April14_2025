@@ -10,3 +10,6 @@ Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mfezjwrxp2
 
 https://old.reddit.com/r/50501/comments/1ras3va/student_led_peaceful_protest_in_quakertown/o6lshtl/
 
+https://old.reddit.com/r/50501/comments/1ras3va/student_led_peaceful_protest_in_quakertown/o6lsjkq/
+
+Another gullible Reddit user. A person thinks the government of Russia and USA are just accidentally making public scenes and creating media content for the Reddit front page. Reddit cult members do not have the cult education to recognize they are in a media consumption cult. Reddit users can't imagine comedy "The Onion" being used against them own name-calling of others as stupid and dumb via media systems. SURKOVIAN_ONION_EATING
