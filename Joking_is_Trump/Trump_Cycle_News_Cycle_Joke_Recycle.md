@@ -11,7 +11,7 @@ NEW_OPERA_NAME #CitizenJokers #CitizenJokeWashing
 
 Down reply chain context, new opera entry points   
 
-https://bsky.app/profile/roundsparrow.bsky.social/post/3mff337ylbc2v   
+https://bsky.app/profile/roundsparrow.bsky.social/post/3mff3hhbvv22v   
 https://autistics.life/@RoundSparrow/116109625910083269   
 
 NEW_OPERA_NAME #ChasingTrump #TrumpJokers #TrumpStimulants #TrumpJokePeddlers  #TrumpMediaHighs #TrumpBlowsMinds   
