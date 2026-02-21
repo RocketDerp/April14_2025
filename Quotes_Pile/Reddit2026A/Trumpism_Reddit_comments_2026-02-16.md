@@ -1008,3 +1008,152 @@ https://old.reddit.com/r/politics/comments/1r9tbij/us_historian_robert_kagan_we_
 Regarding the posting, spot on. "WATCHING" is KEY title. Audience, fandom, watching Trump Celebrity. Cult of hate-watching. SOCIAL_CULT_HATE_WATCHING_FANDOM
 
 Social post { https://autistics.life/@RoundSparrow/116103366091771795 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfcbxo5lgc2y https://MidWest.Social/post/43695618 https://BeeHaw.org/post/24867415 https://www.TrustCafe.io/en/post/1771598397421-e8bef862 }
+
+
+https://old.reddit.com/r/politics/comments/1r9tbij/us_historian_robert_kagan_we_are_watching_a/o6etoc5/
+
+28 day Reddit account. 2nd-most popular upvoted comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+
+Promotes "We The People", but no off-Reddit URL, no nonfiction quotes, no author names. 
+
+"The people of Minneapolis and St Paul have shown us what highly successful civil resistance looks like" - manipulating audience that it was "highly successful" while ICE and Trump are still in power. The entire World Wide Web Internet should be standing up. Why is there no REDDIT_BLACKOUT in calling for Trump's Removal? ANSWER: low-effort commenting of Twitter-length short messaging is the fixation people have. That's Trump's power, media power, audience fandom of Reddit to comment about ICE / MAGA / Trump day in and day out for almost 11 full years (since June 16, 2015). People could be confronting the MAGA media cult to Rupert Murdoch with Reddit comments, but instead you get these low-effort commenting that behave as as if the Internet society isn't rewarding Trump content creation and Trump stunts like dramatic arrests ICE does in Minnesota. This comment message on Reddit feeds the anti-reality media environments. Surkovian.
+
+**QUOTE FROM YEAR 2014 ARTICLE (tied to 2014 NONFICTION BOOK) FOLLOWS:**    
+
+Russia and the **Menace of Unreality**   
+How Vladimir Putin is revolutionizing information warfare   
+Peter Pomerantsev   
+September 9 2014, 3:42 PM ET   
+
+“If previous authoritarian regimes were three parts violence and one part propaganda,” argues Igor Yakovenko, a professor of journalism at the Moscow State Institute of International Relations, “this one is **virtually all propaganda and relatively little violence**. Putin only needs to make a few arrests—and then amplify the message through his total control of television.”
+
+https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ 
+
+Translated from year 2013 Russia to USA year 2026: I.C.E. raids are very little violence and a lot of showboating. A lot of Reddit front-page I.C.E. raids for visual meme addicts / meme consumers. Simple-think logic polarity minds.
+
+NEW_OPERA_NAME #ChildsPlayCompared   
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mfclbkx3fs2h https://autistics.life/@RoundSparrow/116104001411925811 }
+
+
+https://old.reddit.com/r/UnderReportedNews/comments/1r9tpz2/last_week_donald_trump_registered_the_trademark/o6erl9c/
+
+"don't believe you". ANTI_REALITY "Amazing".
+
+It is not amazing in any way. The USA society has abandoned and forgotten serious nonfiction books on paper. Surkov won since March of year 2013.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1r9tpz2/last_week_donald_trump_registered_the_trademark/o6espxg/
+
+<img width="1426" height="1384" alt="image" src="https://github.com/user-attachments/assets/e9695189-46a2-4118-ae3c-68ddbd24d9bb" />
+
+Yes. **"right in the public view and no one challenges it at all"** WHEN_THE_PEOPLE_HAVE_LOST_THE_ABILITY
+Creates public content, in the public view, via media systems. "No one challenges it at all", zero resistance, *especially social media* end-users who have free time and spare time to comment about every action Trump makes, every statement Donald Trump makes, every image of Donald Trump that appears on social sites, etc. SOCIAL_CULT_HATE_WATCHING_FANDOM
+
+NEW_OPERA_NAME #NoOneChallenges #PublicViewAnd   
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mfckibxabk22 https://autistics.life/@RoundSparrow/116103957237942432 }
+
+https://old.reddit.com/r/UnderReportedNews/comments/1r9tpz2/last_week_donald_trump_registered_the_trademark/o6eume0/
+
+10 month Reddit account. "Somehow" - yha, magically somehow there is a media cult. Billionaires control the media, and "Somehow" there is a cult of people who follow the signals put on their media devices. DEFLECTION_FROM_BILLIONAIRES_AND_PUTINISM
+
+https://old.reddit.com/r/law/comments/1ra4yys/president_trump_imposes_a_10_global_tariff_under/o6h8vqj/
+
+https://old.reddit.com/r/law/comments/1ra4yys/president_trump_imposes_a_10_global_tariff_under/o6hdkhr/
+
+https://old.reddit.com/r/law/comments/1ra4yys/president_trump_imposes_a_10_global_tariff_under/o6h9kg1/
+
+TRUMP_FOLLOWERS on Reddit, who as fast as they can, want to follow the leader, Trump. SUPER_HYPER_NORMAL
+
+https://old.reddit.com/r/law/comments/1ra4yys/president_trump_imposes_a_10_global_tariff_under/o6h8mfj/
+
+Ponder the quotes on the Reddit user's profile. Why is REDDIT ITSELF not repeating over and over quotes from Dr. Bandy X Lee about Trump's danger? Published since October 3, 2017 sitting in the nonfiction section of the public library... Read the comment message, lots of time *watching* politicians. We need those Greatful Dead quotes applied to Reddit media consumers. 
+
+OPERA_A We The People are the Dead, Dead like Tim Finnegan - we need WOKE, as in Wake, as in Finnegans Wake. https://www.youtube.com/watch?v=mzvk0fWtCs0 20,149,317 views September 21, 2012 Clocks are running late, Reddit users!
+
+https://old.reddit.com/r/FascinatingAsFuck/comments/1r9xopb/he_is_profoundly_offensively_disgusting/o6fq88k/
+
+Anti-PLURIBUS anti-We anti-us anti-Everyone anti-All - it is We The People who need to show force of quantity. CIVIC_DUTY_WE_PEOPLE Steady repeating, every 4 hours, on Reddit and Bluesky, over and over and over, that We The People are what We want Government to serve. "In every stage of these Oppressions We have Petitioned for Redress in the most humble terms: Our repeated Petitions have been answered only by repeated injury."
+
+NEW_OPERA_NAME #OurRepeatedPetitions    
+Social post { https://bsky.app/profile/roundsparrow.bsky.social https://autistics.life/@RoundSparrow/116105470378195874 }   
+
+https://old.reddit.com/r/FascinatingAsFuck/comments/1r9xopb/he_is_profoundly_offensively_disgusting/o6fo5o9/
+
+<img width="1252" height="821" alt="image" src="https://github.com/user-attachments/assets/da05efbc-4acf-419b-bb78-3054d02d737f" />
+
+FICTION_OUTSELLS_NONFICTION "the answer is simple: with every new low Trump descends to, conservatives imagine a brand new fictional offense that Democrats have committed." ANTI_REALITY 
+
+Social post { https://autistics.life/@RoundSparrow/116105530336833573 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfdau6exps22 }
+
+https://old.reddit.com/r/FascinatingAsFuck/comments/1r9xopb/he_is_profoundly_offensively_disgusting/o6g2aqv/
+
+ANSWER: the power of Fox News HDTV exceeds reality. The power of mythology cult media of Rupert Murdoch and Elon Musk Twitter media. "The Power of Myth" book 1988 that George Lucas filmed for Star Wars audiences to learn these topics. MEDIA_CULTS_ADDICTIVE_FICTION
+
+https://old.reddit.com/r/Epstein/comments/1ra6yw0/i_quit_my_job_to_run_epsteinexposedcom_full_time/o6hw2i2/
+
+ANTI_WIKI_ANTI_FAQ Yes, there needs to be pro-FAQ pro-WIKI pro "we are all on the same page" of priority topics. People need to voluntarily cut down on unique commenting and unique writing in the service of freedom revival. Being all scattered and disorganized is a serous problem we all need to study and learn about. BRAIN_ROT_SOCIETY_47
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1race1x/i_dont_get_it/o6iwfci/
+
+MEASURING_BAR_SO_LOW  
+
+https://old.reddit.com/r/ABoringDystopia/comments/1ra6pxu/trump_i_am_allowed_to_cut_off_any_and_all_tradei/o6hnlh9/
+
+HATE_MOTIVATED_ECONOMY_HATE_AS_A_VIRTUE_SIGNALING
+
+https://old.reddit.com/r/ABoringDystopia/comments/1ra6pxu/trump_i_am_allowed_to_cut_off_any_and_all_tradei/o6hmuj8/
+
+I've been hospitalized since Summer 2015, I couldn't take the way people were behaving June 16, 2016 and the months that followed. Cult of hate, worship of hate, prizing of hate. Trump leads with hate, people follow.
+
+https://old.reddit.com/r/ABoringDystopia/comments/1ra6pxu/trump_i_am_allowed_to_cut_off_any_and_all_tradei/o6hlvx2/
+
+Don Trump Fans. Three Word Comments. Celebration Of Ignorance. 
+
+https://old.reddit.com/r/ABoringDystopia/comments/1ra6pxu/trump_i_am_allowed_to_cut_off_any_and_all_tradei/o6htu0f/
+
+GULLIBLE_FANDOM on Reddit who thinks "he doesn't know" that people need health care. that he doesn't know that raping children is bad. That he doesn't know taking Greenland is bad. That he doesn't know thratening to rape Canada to be 51st state is bad. That he doesn't know Biden was a good person and leader. Doesn't know that Putin is a terrible person not to trust. Doesn't know that Ukraine needs defending and what Russia is doing is evil. Doesn't know that grabbing women by the pussy is bad. Doesn't know that school shootings are bad. Extreme gullible people who believe an actor isn't acting and that there isn't evidence for 30 years that Trump "fails upward" into more and more power for behaving hyper aggressive. And Trump became the most successful when he adopted Surkov techniques of Russia. Such a gullible Reddit society that ignores relevant nonfiction books.
+
+https://old.reddit.com/r/ABoringDystopia/comments/1ra6pxu/trump_i_am_allowed_to_cut_off_any_and_all_tradei/o6hp1kv/
+
+This Reddit user comments that Trump is stupid. Trump uses Reddit media to brainwash everyone and Reddit, and yet it is the Reddit users who think Putin, Surkov students, Kremlin, White House is "stupid". Why is it Reddit has had no BLACKOUT protest of Trump? Why is it Reddit community can't quote Dr. Bandy X Lee's nonfiction - does it take more than 90 seconds to go to Goodreads and find a quote from Dr. Bandy X Lee relevant to Trump's danger? Then why are all the super-smart Reddit users not quoting Dr. Bandy X Lee's book from October 3, 2017 over and over? Why is Jen Senko's nonfiction book and film not referenced whenever the MAGA cult of Fox News HDTV common values are being discussed day after day for year after year on Reddit? Trump is an actor who is acting, playing a character called "Tony Clifton" that Reddit users can't recognize. This extreme low-effort Reddit commenting is SURKOVIAN_ONION_EATING - and why can't Reddit users cite Neil Postman's year 1985 book about how REDDIT ITSELF and Trump's own addiction to Twitter and Truth social is relevant? SEE_ALSO: **September 10, 2025 - "The 40-Year-Old Book That Predicted Our Dystopian Politics"** https://Time.com/7313999/neil-postman-trump-prediction/ as this crisis is not ONE SINGLE MAN that is "stupid", it is hundreds of millions of people who are ATTRACTED to Reality TV super-star whenever he is on camera, photographed, quoted, etc. For over a decade! But Reddit users can't quote nonfiction books on cult deprogramming or cult descriptions either. Just low-effort lazy commenting with no author names, no quotes, no citations, no links off-Reddit.
+
+https://old.reddit.com/r/ABoringDystopia/comments/1ra6pxu/trump_i_am_allowed_to_cut_off_any_and_all_tradei/o6hljnr/
+
+ENTERTAINED_JUST_PASSIVELY_WATCHING_UNTIL_DEATH_NO_SOCIAL_MEDIA_UPRISING_WHILE_ALIVE   
+
+https://old.reddit.com/r/ABoringDystopia/comments/1ra6pxu/trump_i_am_allowed_to_cut_off_any_and_all_tradei/o6hnrr8/
+
+ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING
+
+https://old.reddit.com/r/ABoringDystopia/comments/1ra6pxu/trump_i_am_allowed_to_cut_off_any_and_all_tradei/o6hokfa/
+
+Trump uses Reddit media to brainwash everyone and Reddit, and yet it is the Reddit users who think Putin, Surkov students, Kremlin, White House is "inept". Why is it Reddit has had no BLACKOUT protest of Trump? Why is it Reddit community can't quote Dr. Bandy X Lee's highly relevant nonfiction books... etc.
+
+https://old.reddit.com/r/ABoringDystopia/comments/1ra6pxu/trump_i_am_allowed_to_cut_off_any_and_all_tradei/o6hmdd3/
+
+1980's you say.. I was born in year 1969, I was in high school in the 1980's, I graduated in 1988. Why can't Reddit users cite Neil Postman's year 1985 book about how REDDIT ITSELF and Trump's own addiction to Twitter and Truth social is relevant? SEE_ALSO: **September 10, 2025 - "The 40-Year-Old Book That Predicted Our Dystopian Politics"** https://Time.com/7313999/neil-postman-trump-prediction/
+
+https://old.reddit.com/r/politics/comments/1ra89ko/magas_reaction_to_the_epstein_files_reveals_total/o6hwccm/
+
+MAGA has been Russian IRA outcomes since March of year 2013. Rural Americans do not trust a city slicker non-farmer rich land owner from New York City who is full of horse shit and declares love of USSR / Russia enemy symbol... unless MAGA people have been mentally manipulated by the most sophisticated propaganda and information warfare ever created by humanity. Surkov won. 
+
+* From September 9, 2014 - we could have kept repeating it and defeated Putin's takeover of USA hearts and minds: https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ "Russia and the Menace of Unreality: How Vladimir Putin is revolutionizing information warfare. By Peter Pomerantsev. At the NATO summit in Wales last week, General Philip Breedlove, the military alliance’s top commander, made a bold declaration. Russia, he said, is waging “the **most amazing information warfare blitzkrieg we have ever seen in the history of information warfare.**” It was something of an underestimation. The new Russia doesn’t just deal in the petty disinformation, forgeries, lies, leaks, and cyber-sabotage usually associated with information warfare. It reinvents reality, creating mass hallucinations that then translate into political action."
+
+MAGA rural animal farmers are not afraid of giving vaccinations and shots to animals and know all about virus outbreaks on farms and diseases spreading. MAGA has been Russian IRA outcomes since March of year 2013. RFK Jr is full of bullshit and declares love of USSR / Russia enemy symbol... unless MAGA people have been mentally manipulated by the most sophisticated propaganda and information warfare ever created by humanity. Surkov won. Read this from August 24, 2018 about how Russians manipulated people in USA going back to year 2014. https://www.bbc.com/news/world-us-canada-45294192
+
+https://old.reddit.com/r/politics/comments/1ra89ko/magas_reaction_to_the_epstein_files_reveals_total/o6hyznq/
+
+3 times. 2016, 2020, 2024. REMEDIAL_MORALITY is essential teaching. People (We The People) need to stop promoting low-effort commenting and start doing adult education of serious morality topics. Surkov won since March 2013.
+
+https://old.reddit.com/r/politics/comments/1ra89ko/magas_reaction_to_the_epstein_files_reveals_total/o6hzpga/
+
+7 month Reddit account. DEFLECTION_FROM_BILLIONAIRES_AND_PUTINISM - the empathy for rich Donald Trump and standing up for rich Elon Musk has been on display. This Reddit comment defects from cult issues and Edward Bernays / Dr. Abraham Brill / Cambridge Analytica doctors.
+
+https://old.reddit.com/r/International/comments/1ra5tib/billionaire_calls_democracy_a_failed_experiment/o6irsw0/
+
+https://old.reddit.com/r/Fauxmoi/comments/1ra6bvc/trump_after_his_sweeping_tariffs_were_ruled/o6hm7sv/
+
+ENTERTAINED_JUST_PASSIVELY_WATCHING_UNTIL_DEATH_NO_SOCIAL_MEDIA_UPRISING_WHILE_ALIVE
+
+https://old.reddit.com/r/Fauxmoi/comments/1ra6bvc/trump_after_his_sweeping_tariffs_were_ruled/o6hmdkd/
+
+It's incredibly hard for people to see, "believe", how much nonfiction relevant books from Dr. Bandy X Lee are ignored on Reddit. Instead of repeating and asserting excellent informative quotes from Dr. Lee, people spend their free time and spare time crating low-effort "reaction" content about Trump video / Trump statements. Reddit is a SOCIAL_CULT_HATE_WATCHING_FANDOM
