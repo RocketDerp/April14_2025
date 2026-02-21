@@ -768,3 +768,7 @@ You know who isn't autistic? Socially popular people like Jeffery Epstein and Do
 https://old.reddit.com/r/TrendoraX/comments/1rat4ev/lauren_boebert_wants_the_ten_commandments_to_be/o6ly1nj/
 
 15 day Reddit account. Most popular, most upovoted comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT Playing right into the mockery that MAGA creates via television, Reddit community predictably follows the mocking leadership electric media signals.
+
+https://old.reddit.com/r/TrendoraX/comments/1rat4ev/lauren_boebert_wants_the_ten_commandments_to_be/o6lyxpy/
+
+BIBLE_LITERACY lessons are urgently needed. He believes in "one perfect book", BOOK_SUPREMACY crisis of media cultists to monomyth patterns.
