@@ -133,3 +133,7 @@ Top-upvoted most popular comment. 6 months account. REDDIT_TOP_COMMENT_YOUNG_ACC
 https://old.reddit.com/r/law/comments/1raxeo1/you_can_do_whatever_and_skirt_the_consequences/o6nc712/
 
 Not just GenZ - the anti-FAQ anti-Wiki society of cult commenting drowns important critical nonfiction with jokes, memes, joke-cracking, humor, noise. PERSONALIZED_FILTER_BUBBLE
+
+https://old.reddit.com/r/law/comments/1raxeo1/you_can_do_whatever_and_skirt_the_consequences/o6o1i8x/
+
+10 month Reddit account. PRIZING_HATE_FURTHERING_HATE Reddit audience follows the leadership of Trump. Trump is a **hate leader** and Reddit follows Trump.
