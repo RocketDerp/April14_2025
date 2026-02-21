@@ -68,7 +68,7 @@ The viral message is Trump power.
 This is no joking matter, our minds are being exploited, again.   
 
 * "I'm getting put down! I'm getting pushed round! I'm being beaten every day! My life's fading..."
-* "You've been screwed again! If you let them do it to you.. You've got yourself to blame! It's you who feels the pain. It's you that feels ashamed."
+* "You've been screwed again! If you let them do it to you… you've got yourself to blame! It's you who feels the pain. It's you that feels ashamed."
 * "the pigs"
 *  *  https://www.youtube.com/watch?v=L0bqmIBczJI
    *  55,040 views October 23, 2008
