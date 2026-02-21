@@ -43,7 +43,7 @@ error_parse_a_count = 0
 fetch_reddit_count_a = 0
 post_only_count = 0
 replies_users_fetch = 0
-replies_users_max = 70
+replies_users_max = 16
 # every slowdown_every fetches kick in delay
 slowdown_every = 2
 age18_count = 0
@@ -757,6 +757,7 @@ def main():
     global args
     global error_count_a
     global progress_note
+    global replies_users_max
 
     parser = argparse.ArgumentParser(description="Parse Reddit comments from markdown list.")
     parser.add_argument("--file", required=True, help="Input markdown file containing Reddit comment URLs.")
@@ -770,11 +771,16 @@ def main():
     parser.add_argument("--check-saved-first", action="store_true", help="Use cached HTML if available")
     parser.add_argument("--compare-saved", action="store_true", help="Compare live fetch with saved HTML; save _N versions if changed/removed")
     parser.add_argument("--user-renew-days", type=int, default=None, help="Live fetch the user account information if local stored is older than x days")
+    parser.add_argument("--replies-users-maximum", type=int, default=None, help="For linked comment, go into replies and fetch user accounts up to maximum per link")
     args = parser.parse_args()
 
     # massage args further
 
     args.user_expire_epoch = 0
+
+    if args.replies_users_maximum:
+        print(f"overriding replies_users_max {replies_users_max} to: replies_users_maximum {args.replies_users_maximum}")
+        replies_users_max = args.replies_users.maximum
 
     if args.user_renew_days:
         # int return float value, we don't need fractions of a second
