@@ -165,3 +165,8 @@ BUSINESS_FANDOM HAIL_CORPORATE on Reddit audience. Top-voted popular comment. We
 https://old.reddit.com/r/worldnews/comments/1rb4kcq/trump_imposes_15_tariffs_on_the_world/o6onwbx/
 
 The population, 100% of the people, sold out to the Saint Petersburg Internet Research Agency mindsets for meme images and patterns of inauthentic conversation. Surkov won since year 2013.
+
+https://old.reddit.com/r/worldnews/comments/1rb4kcq/trump_imposes_15_tariffs_on_the_world/o6oigz9/
+
+REMEMBER_THE_PROGRAM_IDEAS_BILLIONAIRES_FED_REDDIT_AUDIENCE Remember what all the advertising, marketing, product placement, information warfare billionaires generated fed into our conversations.
+
