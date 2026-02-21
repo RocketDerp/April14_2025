@@ -170,3 +170,6 @@ https://old.reddit.com/r/worldnews/comments/1rb4kcq/trump_imposes_15_tariffs_on_
 
 REMEMBER_THE_PROGRAM_IDEAS_BILLIONAIRES_FED_REDDIT_AUDIENCE Remember what all the advertising, marketing, product placement, information warfare billionaires generated fed into our conversations.
 
+https://old.reddit.com/r/worldnews/comments/1rb4kcq/trump_imposes_15_tariffs_on_the_world/o6onmnf/
+
+MAGA talking point, Trump talking point: "I.Q.". https://www.politico.eu/article/stable-genius-donald-trump-iq-fixation/ May 30, 2019 "'Stable genius' **Trump has spent decades fixating on IQ**". Trump is getting front page Reddit media coverage day after day, year after year, on Reddit. Reddit users eat it up with zero self-awareness of Surkov methods. Always avoiding nonfiction serious learning of Kremlin media techniques and leadership systems. SURKOVIAN_ONION_EATING Reddit comment communtiy.
