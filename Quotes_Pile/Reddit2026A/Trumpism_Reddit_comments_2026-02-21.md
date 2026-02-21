@@ -130,3 +130,6 @@ https://old.reddit.com/r/law/comments/1raxeo1/you_can_do_whatever_and_skirt_the_
 
 Top-upvoted most popular comment. 6 months account. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT WAR_AGAINST_REALITY
 
+https://old.reddit.com/r/law/comments/1raxeo1/you_can_do_whatever_and_skirt_the_consequences/o6nc712/
+
+Not just GenZ - the anti-FAQ anti-Wiki society of cult commenting drowns important critical nonfiction with jokes, memes, joke-cracking, humor, noise. PERSONALIZED_FILTER_BUBBLE
