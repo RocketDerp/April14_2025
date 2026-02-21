@@ -1095,3 +1095,19 @@ ANTI_WIKI_ANTI_FAQ Yes, there needs to be pro-FAQ pro-WIKI pro "we are all on th
 https://old.reddit.com/r/PeterExplainsTheJoke/comments/1race1x/i_dont_get_it/o6iwfci/
 
 MEASURING_BAR_SO_LOW  
+
+https://old.reddit.com/r/ABoringDystopia/comments/1ra6pxu/trump_i_am_allowed_to_cut_off_any_and_all_tradei/o6hnlh9/
+
+HATE_MOTIVATED_ECONOMY_HATE_AS_A_VIRTUE_SIGNALING
+
+https://old.reddit.com/r/ABoringDystopia/comments/1ra6pxu/trump_i_am_allowed_to_cut_off_any_and_all_tradei/o6hmuj8/
+
+I've been hospitalized since Summer 2015, I couldn't take the way people were behaving June 16, 2016 and the months that followed. Cult of hate, worship of hate, prizing of hate. Trump leads with hate, people follow.
+
+https://old.reddit.com/r/ABoringDystopia/comments/1ra6pxu/trump_i_am_allowed_to_cut_off_any_and_all_tradei/o6hlvx2/
+
+Don Trump Fans. Three Word Comments. Celebration Of Ignorance. 
+
+https://old.reddit.com/r/ABoringDystopia/comments/1ra6pxu/trump_i_am_allowed_to_cut_off_any_and_all_tradei/o6htu0f/
+
+GULLIBLE_FANDOM on Reddit who thinks "he doesn't know" that people need health care. that he doesn't know that raping children is bad. That he doesn't know taking Greenland is bad. That he doesn't know thratening to rape Canada to be 51st state is bad. That he doesn't know Biden was a good person and leader. Doesn't know that Putin is a terrible person not to trust. Doesn't know that Ukraine needs defending and what Russia is doing is evil. Doesn't know that grabbing women by the pussy is bad. Doesn't know that school shootings are bad. Extreme gullible people who believe an actor isn't acting and that there isn't evidence for 30 years that Trump "fails upward" into more and more power for behaving hyper aggressive. And Trump became the most successful when he adopted Surkov techniques of Russia. Such a gullible Reddit society that ignores relevant nonfiction books.
