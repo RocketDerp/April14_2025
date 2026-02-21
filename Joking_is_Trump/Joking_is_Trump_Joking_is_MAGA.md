@@ -30,7 +30,8 @@ OPERA_FOCUS_NAME #WhateverTheHell #MonstrosityToPower
 
 Supplemental 
 
-1.Year 1951 "Superior Tactical Cleverness" [Hannah Arend](/Quotes_Pile/Hannah_Arendt_quotes.md)
+1. Year 1951 "Superior Tactical Cleverness" [Hannah Arend](/Quotes_Pile/Hannah_Arendt_quotes.md)
+2. Year 1951 https://en.wikipedia.org/wiki/The_Mechanical_Bride Where McLuhan's book (teaching) surfed the humor, went with the waves of joking back and forth between socities, to map out where we stand. McLuhan died NYE 1980 and in 1985 Neil Postman (number 13 on previous list) at the passing of Orwells 1984, recognized the joke-drunk crisis of history. We are fighting with technology, not each other, thw waves of medium media changes.
 
 &nbsp;
 
