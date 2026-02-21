@@ -850,10 +850,13 @@ Video clip, meme-clip, sound-bite interview media. Reddit "sound bites" low-effo
 
 https://old.reddit.com/r/BlackPeopleofReddit/comments/1raqya9/challenging_the_whitecentric_thinking_and_beliefs/o6m3hc3/
 
+<img width="1011" height="614" alt="image" src="https://github.com/user-attachments/assets/1611f347-3fb3-4d4f-b975-c3378065996a" />
+
 I grew up in the Technology Billionaires culture of white men. Two Seattle (Mercer Island, Bellevue) White Men. Bill Gates and Paul Allen, university drop-outs who founded Microsoft in year 1975. They were legendary among all the white middle class boys in the late 1970's and 1980's. I was born in year 1969 and got a Commodore 64 computer with Bill Gates and Paul Allen's Microsoft BASIC code on it. Bill Gates wrote open letters to the cult members of wealth about the importance of making rich people very rich and powerful with copyright, patents, intellectual property. https://en.wikipedia.org/wiki/An_Open_Letter_to_Hobbyists - Steve Jobs, Steve Wozniak, Bill Gates, Paul Allen - all white boys who had an aggressive emasculate programming for the young boys that have now grown up to be the business leaders of today.
 
 How did **Elon Musk get his start in Africa to become the richest most powerful white man in the entire world? Microsoft Basic 2.0 on Commode VIC-20** and he immigrated to the Land of Opportunity for followers of Bill Gates and Paul Allen (Allen did spaceship work https://www.NewYorker.com/news/postscript/paul-allen-the-quiet-space-baron like Musk, brain work like Musk).
 
 * "Self-Taught Programmer: At age 10, after seeing a computer at a store, he became obsessed with them. He taught himself how to program from a VIC-20 user manual, a process that typically took six months but which he completed in three days. "Blastar" Game (Age 12): By age 12, he had written the code for a BASIC-based video game called Blastar. Sold His Software: He sold the code for Blastar to PC and Office Technology magazine for approximately $500." - Google Search Summary 2026-02-21 noonish USA West Coast
-  * https://blastar-1984.appspot.com/
+  * https://Blastar-1984.AppSpot.com/
  
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mffecd54mc2e https://autistics.life/@RoundSparrow/116110278940880751 }
