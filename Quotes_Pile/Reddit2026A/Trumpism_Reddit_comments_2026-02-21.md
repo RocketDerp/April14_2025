@@ -41,3 +41,7 @@ ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING the Surkovian tech
 https://old.reddit.com/r/ImmigrationPathways/comments/1raqc65/maga_police_chief_attacks_underage_students_who/o6lec5c/
 
 Top upvoted comment. ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING - behaving like news reporters on Reddit who create comments bu tin no way organize a Reddit blackout or Reddit social media uprising. Programmed to react-comment to the entertainment that flows out of Reddit servers.
+
+https://old.reddit.com/r/ImmigrationPathways/comments/1raqc65/maga_police_chief_attacks_underage_students_who/o6lev4r/
+
+10 month Reddit comment. LOW_PRODUCTION_VALUES_MAGA_FANDOM A content cult member of Reddit who is complaining that the media production values could be better for their entertainment of Trumpism.   
