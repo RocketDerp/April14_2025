@@ -28,3 +28,6 @@ https://old.reddit.com/r/wallstreetbets/comments/1ravb2r/trump_says_he_will_rais
 
 Predictable Twitter-length short-pattern mentally programmed reactions. "Are you not entertained?" - avoiding nonfiction in the face of Kremlin media techniques, Surkovian governing.  AMUSING_ZOMBIES
 
+https://old.reddit.com/r/wallstreetbets/comments/1ravb2r/trump_says_he_will_raise_us_global_tariff_rate/o6meau3/
+
+TRUMP_FANDOM absolutely thrilled at the Surkovian techniques.
