@@ -898,3 +898,11 @@ ARTIFICIAL_REALITY WIDE_RADICAL_DOUBT_ABOUT_REAL Bill Gates investing and lectur
 
 NEW_OPERA_NAME #WideRadicalDoubt   
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mffkreeezs2r https://bsky.app/profile/roundsparrow.bsky.social/post/3mffkreeezs2r }
+
+https://old.reddit.com/r/wallstreetbets/comments/1razfm0/iranian_rial_has_completely_collapsed/o6nb847/
+
+SATIRE_SARCASM_WASHING
+
+https://old.reddit.com/r/wallstreetbets/comments/1razfm0/iranian_rial_has_completely_collapsed/o6ncbkl/
+
+World Money as tool of Hate Affairs
