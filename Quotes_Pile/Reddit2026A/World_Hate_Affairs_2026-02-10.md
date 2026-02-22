@@ -979,3 +979,7 @@ https://old.reddit.com/r/therewasanattempt/comments/1rbobie/to_win_the_gold_whil
 FAITH_IN_HATE and anti-MLK Jr society of Reddit commenting. Today is Sunday, and you don't see people on Reddit quoting MLK Jr and teaching how **all hate is bad**. Instead, on Reddit there is a competitive sports-mentality of "winning" with hate vs. hate. HATE_VS_HATE
 
 * "I've seen too much hate to want to hate myself; hate is too great a burden to bear. I've seen it on the faces of too many sheriffs of the South — I've seen hate. In the faces and even the walk of too many Klansmen of the South, **I've seen hate. Hate distorts** the personality. **Hate does something to the soul that causes one to lose his objectivity.** The man **who hates can't think straight**; the man **who hates can't reason right; the man who hates can't see right**; the man who hates can't walk right. And I know now that Jesus is right, that love is the way. And this is why John said, "God is love," so that he who hates does not know God, but he who loves at that moment has the key that opens the door to the meaning of **ultimate reality**." - July 4, 1965 Atlanta, Georgia.
+
+https://old.reddit.com/r/MurderedByWords/comments/1rbti7e/you_dont_hate_republicans_enough/o6tggko/
+
+This whole posting, including the Reddit user created "Hate Republicans enough" message, is HATE_HARDER religion teaching on Sunday. All religions are fiction, there is no supernatural. But there are clergy who preach the messages of competitive hate. HATE_FOR_HATE  
