@@ -516,3 +516,7 @@ Manipulating the media. Proven or not, the audience believes Trump is fixated on
 https://old.reddit.com/r/politics/comments/1rbwm8c/a_voice_sounding_like_trump_called_into_cspan_and/o6u2tqz/
 
 GULLIBLE_FANDOM  
+
+https://old.reddit.com/r/politics/comments/1rbwm8c/a_voice_sounding_like_trump_called_into_cspan_and/o6u40tb/
+
+ANTI_REALITY is news too. Fiction outsells nonfiction in the Putinism Trumpism systems.
