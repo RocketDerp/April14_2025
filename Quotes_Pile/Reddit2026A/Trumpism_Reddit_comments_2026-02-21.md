@@ -272,3 +272,10 @@ MAGA and Putin have shifted the way all people communicate in USA. There is a ho
 * ... "and perhaps this difficulty in imagining it is just my difficulty in dealing with the world as it is today – it’s difficult for me to imagine anyone taking that kind of cavalier attitude about their view of themselves."
 * https://rickroderick.org/301-paul-ricoeur-the-masters-of-suspicion-1993/
 
+https://old.reddit.com/r/MurderedByWords/comments/1rbg8b9/she_wanted_amen_she_got_annihilated/o6qobra/
+
+The social force of celebrity. Sunday morning this is on front page of Reddit, church day, The Bible. People on Reddit are extremely ignorant and pro-ignorance when it comes to COMPARATIVE_MYTHOLOGY - the study of society behaviors toward science fiction stories. Particularly the Levant science fiction trilogy { Torah, Bible, Quran, Book of Mormon, etc }. Easter, Christmas, Trump Bible, hearing magical voices in minds from reading a poetry book. If that were artificial intelligence imagining ideas in mind because of reading a book for training, we call it "hallucination" for ChatGPT. Viral imagination of book fandoms. RELIGION_CULTS_MONOMYTH_PROGRAMMING
+
+Celebrity cult leaders, Nicki Minaj are impressed with the cult leadership of Jesus fiction storytelling / song stories of Jesus / poetry of Jesus stories. And Trump has a cult audience right on Reddit comment section that will not REMOVE the cult leader, because the Reddit media cult fandom of Trump desires and craves the mockery leadership Trump provides. Mocking itself is the stimulation of Reddit community. Mocking Trump, mocking MAGA, mocking Elon Musk, etc, etc.
+
+
