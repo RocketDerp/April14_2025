@@ -337,3 +337,6 @@ https://old.reddit.com/r/politics/comments/1rbjkf2/i_can_destroy_the_country_tru
 
 Yes. SIMPLISTIC thinking, Twitter-length thinking, symptoms of complexity overload as described by Rick Roderick at Duke University in his year 1993 series "Self Under Siege".  BRAIN_ROT_SOCIETY_47 
 
+https://old.reddit.com/r/politics/comments/1rbjkf2/i_can_destroy_the_country_trumps_rant_after/o6rrwf0/
+
+Yes, Fox News may have been first October 7, 1996. But now Fox News HDTV February 2026 is in a feedback loop with Bluesky social February 2026. Fox News HDTV February 2026 is in a feedback loop with Reddit social February 2026. Media cults vs. media cults. Filter-bubble vs. Filter-bubble. https://en.wikipedia.org/wiki/Filter_bubble FEEDBACK_LOOP_MEDIA_CULTS_PLATFORM_TO_PLATFORM_MOCKERY_USA
