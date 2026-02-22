@@ -961,3 +961,8 @@ Sunday **February** 28, 1954: "Most **people can't stand up for their conviction
 
 * I think it is important to point out "people can't stand up for their convictions" that the 15 or 20 people in the photograph on Reddit did in fact stand up for their convictions. People have the bravery to stand up for military with guns, people have the bravery to stand up for hate, people have the bravery to do Islamic suicide bombings in the name of OUT_GROUP_HATE patterns. People have strong motivations to HATE_HARDER and conviction to do it in public to harm other people.
   * "Parents of children who attend two newly integrated schools in New Orleans **stage a mock funeral procession** up the Capitol steps in Baton Rouge, La., **Nov. 23, 1960** for U.S District Judge J. Skelly Wright whose order integrated the schools. Three bus loads of demonstrators, who were given the small black flags to carry, came from New Orleans to show support of legislature meeting in special session. (AP Photo)" https://www.snopes.com/fact-check/ruby-bridges-coffin/
+
+https://old.reddit.com/r/memes/comments/1rbln8l/reddit_be_like/o6rnwh1/
+
+World Wide Web Hate Affairs. TOXIC_POPULARITY in the Putinism era of the Saint Petersburg Internet Research Agency outcomes since year 2013. People on Reddit are SNOW BLIND to the brightness of the Trump content always on their screen that they can't see how toxic society in total has become since year 2013... the Forest for the Trees perspective is absent regarding *something is fundamentally wrong that Trump is the center of all media systems and camera focus all the time since June 16, 2015, year after year*. The widespread recency bias that abounds. How Trump is normalized / normal now and has been for over a decade.
+
