@@ -231,3 +231,7 @@ Social post { https://autistics.life/@RoundSparrow/116111716081615199 https://bs
 https://old.reddit.com/r/law/comments/1rb3428/well_refund_all_tariffs_plus_interest_if_found/o6o9rce/
 
 DENIAL_ABOUNDS Denial on Reddit of how much Reddit audience itself is attracted to Trump as a storytelling. Fiction storytelling far outsells and generates more wealth and power than nonfiction. GULLIBLE_FANDOM Reddit is gullible to believe that We The People are willing to face social media device addictions and turn to the nonfiction leadership of Dr. Bandy X Lee and Jen Senko on the topics of mental health and widespread brainwashing. People are far too addicted to the creation of lazy low-effort commenting as 'media engagement" around Trump news events.
+
+https://old.reddit.com/r/PoliticalHumor/comments/1rb6gie/americas_first_ladies/o6osyfn/
+
+3 month Reddit account. 3rd top voted popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT As for the comment itself, it is topic of billionaire-media of artificial reality. WIDE_RADICAL_DOUBT_ABOUT_REAL
