@@ -520,3 +520,7 @@ GULLIBLE_FANDOM
 https://old.reddit.com/r/politics/comments/1rbwm8c/a_voice_sounding_like_trump_called_into_cspan_and/o6u40tb/
 
 ANTI_REALITY is news too. Fiction outsells nonfiction in the Putinism Trumpism systems.
+
+https://old.reddit.com/r/politics/comments/1rbwm8c/a_voice_sounding_like_trump_called_into_cspan_and/o6u6eqp/
+
+TRUMP_FANDOM on Reddit calling out in public how they want more and more Trump content. Even actors playing Trump characters is craved by Reddit commenting fandom.
