@@ -189,3 +189,7 @@ GIVE_UP_ANTI_EDUCATION_ANTI_TEACH_ANTI_PROGRESS Give up, "can't fix stupid", low
 https://old.reddit.com/r/Fauxmoi/comments/1rau0mb/pope_leo_sets_aside_the_invitation_to_the_july/o6m5oxi/
 
 Entertained MAGA_FANDOM on Reddit. Instead or organizing nonfiction cult deprogramming, Reddit users want to keep the flow of stimulating entertainment out of the MAGA cult coming to their high speed media devices. SENSATIONAL_CONTENT that JD Vance, The People, and symbolism gumbo provides. Surkov won since March 2013.
+
+https://old.reddit.com/r/Fauxmoi/comments/1rau0mb/pope_leo_sets_aside_the_invitation_to_the_july/o6m5xv5/
+
+JD Vance has a huge Reddit fan base. Hate-watching aficionados. SOCIAL_CULT_HATE_WATCHING_FANDOM
