@@ -943,3 +943,21 @@ https://old.reddit.com/r/BlackPeopleofReddit/comments/1rbpww6/hatred_taught_to_c
 
 OUT_GROUP_HATE
 
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1rbpww6/hatred_taught_to_children/o6smej4/
+
+CALL_TO_INTELLECTUAL_ACTION_PLAN ? Information organization. Education information?
+
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1rbpww6/hatred_taught_to_children/o6smt6h/
+
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1rbpww6/hatred_taught_to_children/o6snd9p/
+
+CALL_FOR_ACTION_TO_DO_TRIVIAL_CHANGE of name. Today is Sunday in February. Dr. Martin Luther King Jr. made a point to not just associate hate ("hatred taught to children" is the posting title on Reddit, CONTEXT_ASSERTION) with a single nation or geography.
+
+**The 1954 Equation**
+
+Sunday **February** 28, 1954: "Most **people can't stand up for their convictions**, because the majority of people might not be doing it. See, everybody's not doing it, so it must be wrong. And since everybody is doing it, it must be right. So a sort of numerical interpretation of what's right. But I'm here to say to you this morning that some things are right and some things are wrong. Eternally so, absolutely so. **It's wrong to hate.** It always has been wrong and it always will be wrong. It's wrong in America, it's wrong in Germany, it's wrong in Russia, it's wrong in China. It was wrong in 2000 B.C., and it's wrong in 1954 A.D. It always has been wrong, and it always will be wrong." - Martin Luther King Jr.
+
+"For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the **true becomes false and the false becomes true**. That's what hate does. You can't see right. **The symbol of objectivity** is lost." - Martin Luther King Jr.
+
+* I think it is important to point out "people can't stand up for their convictions" that the 15 or 20 people in the photograph on Reddit did in fact stand up for their convictions. People have the bravery to stand up for military with guns, people have the bravery to stand up for hate, people have the bravery to do Islamic suicide bombings in the name of OUT_GROUP_HATE patterns. People have strong motivations to HATE_HARDER and conviction to do it in public to harm other people.
+  * "Parents of children who attend two newly integrated schools in New Orleans **stage a mock funeral procession** up the Capitol steps in Baton Rouge, La., **Nov. 23, 1960** for U.S District Judge J. Skelly Wright whose order integrated the schools. Three bus loads of demonstrators, who were given the small black flags to carry, came from New Orleans to show support of legislature meeting in special session. (AP Photo)" https://www.snopes.com/fact-check/ruby-bridges-coffin/
