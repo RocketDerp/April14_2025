@@ -227,3 +227,7 @@ That the country is currently split — and **our shared reality** with it — s
 ― Bandy X Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. October 3, 2017. Page 58.](https://books.google.com/books?id=pYaFDwAAQBAJ&pg=PA58&dq=insidious+strategy+called+gaslighting+%E2%80%94+a+term+drawn+from+the+1938+play+about+a+man+who+persuaded+his+wife+she+was+crazy+by&hl=en&newbks=1&newbks_redir=1&sa=X)
 
 Social post { https://autistics.life/@RoundSparrow/116111716081615199 https://bsky.app/profile/roundsparrow.bsky.social/post/3mffyrzfvak2u }
+
+https://old.reddit.com/r/law/comments/1rb3428/well_refund_all_tariffs_plus_interest_if_found/o6o9rce/
+
+DENIAL_ABOUNDS Denial on Reddit of how much Reddit audience itself is attracted to Trump as a storytelling. Fiction storytelling far outsells and generates more wealth and power than nonfiction. GULLIBLE_FANDOM Reddit is gullible to believe that We The People are willing to face social media device addictions and turn to the nonfiction leadership of Dr. Bandy X Lee and Jen Senko on the topics of mental health and widespread brainwashing. People are far too addicted to the creation of lazy low-effort commenting as 'media engagement" around Trump news events.
