@@ -428,3 +428,8 @@ Yes. And Trump's content creation immediately makes the front page of the Reddit
 * Quote ::: The popularity of the show led to Trump becoming known for his fateful catchphrase, **"You're fired!"** and for the emergence of "Trumponomics", a "portmanteau of Donald Trump and economics initially spelled 'Trump-Onomics' (2004), \[which\] started out as a bland managerial concept on cable TV, meant to convey the notion that 'impressing the boss' was the only way to 'climb the corporate ladder'." ::: https://en.Wikipedia.org/wiki/The_Apprentice_(American_TV_series)
 
 Donald Trump celebrity, Donald Trump pop star, Netflix media, Streaming medium, Truth Social streaming memes, Reddit commenting about Netflix and Trumpism... "EVERYTHING IS MEDIA ECOLOGY", SEE_ALSO https://GitHub.com/RocketDerp/April14_2025/blob/main/Media_Ecology/Everything_is_ME.md
+
+https://old.reddit.com/r/politics/comments/1rbmi16/trump_is_rage_baiting_the_us_into_a_second_civil/o6rujat/
+
+14 day Reddit account. THE most popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+
