@@ -258,3 +258,7 @@ https://old.reddit.com/r/JournalismNews/comments/1rb4j0p/trump_mercilessly_mocke
 https://old.reddit.com/r/JournalismNews/comments/1rb4j0p/trump_mercilessly_mocked_over_global_tariff/o6ouf9h/
 
 2 month Reddit account.
+
+https://old.reddit.com/r/politics/comments/1rb7tdz/donald_trump_demands_netflix_immediately_fire/o6p87vf/
+
+40% number is denial / represents a massive misunderstanding of entertainment media. DENIAL_ABOUNDS On a practical level, 100% of people react to Trump in USA. The 40% number does not account hate-watching. https://en.wikipedia.org/wiki/Hate-watching Trump leads with hate, and Reddit and Bluesky fandom FOLLOW the hate leadership. Promoting hate. Avoidance of Dr. Bandy X Lee's nonfiction, avoidance of Jen Senko's nonfiction. The hate fandom avoids relevant nonfiction. Surkov won since March 2013.
