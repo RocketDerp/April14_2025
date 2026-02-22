@@ -481,3 +481,7 @@ LEVANT_MONOMYTH_CRISIS
 https://old.reddit.com/r/BikiniBottomTwitter/comments/1rbrxr3/im_shocked_that_elmo_would_do_such_a_thing/o6t8j7m/
 
 This whole posting is MUSK_FANDOM for Reddit audiences. Anti-FAQ anti-Wiki commenting community that does not want to use free time and spare time to organizes against the billionaire media cartels (Twitter cartel, Murdoch cartel, Truth Social cartel, Facebook cartel) because Reddit app users are themselves addicts to the media content. TRICKLE_DOWN_MEDIA 
+
+https://old.reddit.com/r/Knowledge_Community/comments/1rbn84k/yikes_the_youth_are_getting_a_bit_uppity_about/o6s2yeb/
+
+COMPREHENDING_UNDERSTANDING people commenting on Reddit don't get that they are in a media cult, nor do they understand the Levant science fiction media cult fandoms. We need to teach **comparative mythology** and Marshall McLuhan to all people. The Levant science fiction trilogy has media outlets all over the planet. Mosque, Church, Temple, Synagogue media venues. Reddit media venue app consumers don't understand media cults because they are inside one they don't even recognize.
