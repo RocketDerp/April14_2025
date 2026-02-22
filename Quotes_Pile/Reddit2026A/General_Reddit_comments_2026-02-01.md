@@ -807,4 +807,5 @@ https://old.reddit.com/r/theamazingdigitalciru/comments/1rb94os/wow_just_wow_thi
 
 https://old.reddit.com/r/theamazingdigitalciru/comments/1rb94os/wow_just_wow_this_is_absolutely_disgusting_wrong/o6pgafi/
 
+https://old.reddit.com/r/CFB/comments/1rb8ocu/wlky_former_purdue_wr_rondale_moore_dies_at_25/o6pd0pl/
 
