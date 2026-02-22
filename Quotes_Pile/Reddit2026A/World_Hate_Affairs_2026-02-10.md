@@ -906,3 +906,7 @@ SATIRE_SARCASM_WASHING
 https://old.reddit.com/r/wallstreetbets/comments/1razfm0/iranian_rial_has_completely_collapsed/o6ncbkl/
 
 World Money as tool of Hate Affairs
+
+https://old.reddit.com/r/worldnews/comments/1rbj6lt/greenland_does_not_need_us_hospital_boat_sent_by/o6ra2x0/
+
+MAXIMUM_PUTINIZATION
