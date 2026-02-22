@@ -918,3 +918,7 @@ Front page of Reddit on Sunday morning, church day. Old men who hang to power. Y
 https://old.reddit.com/r/AskBrits/comments/1rbky3b/are_brits_fully_aware_of_farages_links_to_maga/o6rifiz/
 
 27 day Reddit account. Top-upvoted most popular comment. IGNORANCE_CELEBRATIONS about how "only the others" are ignorant and how it isn't a widespread global crisis of media ecology and people drowning in low-effort Twitter-length snarky commenting on high-speed information services. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+
+https://old.reddit.com/r/AskBrits/comments/1rbky3b/are_brits_fully_aware_of_farages_links_to_maga/o6rhagp/
+
+MAXIMUM_PUTINIZATION of the world. "I’m in disbelief" - Reddit comment creator, posting creator. MIND_BLOWN_BY reality itself of Russia's War Against Reality since March of year 2013.
