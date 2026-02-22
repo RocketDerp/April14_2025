@@ -817,4 +817,5 @@ Social post { https://autistics.life/@RoundSparrow/116114790537999880 https://bs
 
 https://old.reddit.com/r/HouseOfTheDragon/comments/1rbp8ac/official_hbo_account_making_fun_of_breaking_bad/o6sfd7y/
 
-MEDIA_ECOLOGY_LESSON "God" is a meme, Bible verse John 1:1, language *and ONLY language*. Show evidence of God being more than language itself? Proof? Facts. Bible verse "1 John 4:20" points this out. That "I Love God" is wrong, and "I hate a person" (ANY PERSON, ANY WHERE) is wrong.
+MEDIA_ECOLOGY_LESSON "God" is a meme, Bible verse John 1:1, language *and ONLY language*. Show evidence of God being more than language itself? Proof? Facts. Bible verse "1 John 4:20" points this out. That "I Love God" is wrong, and "I hate a person" (ANY PERSON, ANY WHERE) is wrong. - today is Sunday, church day / Bible science fiction fandom day.
+
