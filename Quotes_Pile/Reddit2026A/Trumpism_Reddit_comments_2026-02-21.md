@@ -500,5 +500,5 @@ Media addiction society from top to bottom since year 2013. Media cults vs. medi
 
 https://old.reddit.com/r/law/comments/1rbqih2/they_ransacked_the_us_capitol_and_want_the/o6svvef/
 
-MEDIA_REGURGITATION gullible people serving the media overlords, repeating the MAGA talking points, as programmed by the billionaire media systems. TRICKLE_DOWN_TALKING_POINTS_TO_SOCIETY - media cult on Reddit memorizes their talking-point lines. Claims they are joking, sarcasm, joke satire. Comedy-washing abounds. OBSERVE that the avoidance of nonfiction books on paper relevant to the topics are avoided. That is the REAL TRUTH of Reddit behavior, avoidance of nonfiction serious topics. Mindsets as programmed by billionaire media systems.
+MEDIA_REGURGITATION gullible people serving the media overlords, repeating the MAGA talking points, as programmed by the billionaire media systems. TRICKLE_DOWN_TALKING_POINTS_TO_SOCIETY - media cult on Reddit memorizes their talking-point lines. Claims they are joking, sarcasm, joke satire. Comedy-washing abounds. OBSERVE that the avoidance of nonfiction books on paper relevant to the topics are avoided. That is the REAL TRUTH of Reddit behavior, avoidance of nonfiction serious topics. Mindsets as programmed by billionaire media systems. FREE_MASONS_FREE_THINKING_SELF_AWARENESS
 
