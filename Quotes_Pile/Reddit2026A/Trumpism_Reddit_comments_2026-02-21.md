@@ -440,3 +440,13 @@ BREAD_AND_CIRCUS HUNGER_GAMES Entertainment for Reddit comment creators to comme
 https://old.reddit.com/r/politics/comments/1rbmi16/trump_is_rage_baiting_the_us_into_a_second_civil/o6s2462/
 
 REDDIT_IS_THE_MEDIA SOCIAL_MEDIA_DID_NOT where is the Reddit blackout? Where is the Reddit community FAQ and Wiki on all the reasons to remove Donald Trump? Reddit is a fandom, a fandom does not want to remove the source of TRICKLE_DOWN_MEMES_AND_MESSAGES content.
+
+https://old.reddit.com/r/news/comments/1rbqxyn/us_reverses_course_and_will_keep_tsa_precheck/o6sw577/
+
+GULLIBLE_FANDOM of White House on Reddit commenting section. Gullible people who think this isn't the actual system of operation for the government, imported Surkov system. "this **administration has no idea what the fuck it’s doing**" is a complete failure to grasp Putin's well-documented agenda. It is a celebration of ignorance on Reddit that the back and forth SURKOV_SHUFFLE isn't how Putin wrecked NATO and USA. Denial abounds on Reddit and in USA society.  Apply this Kremlin year 2014 to year 2025 Trump / year 2026 White House:
+
+* "what Putin will do next — that he’s unpredictable and thus dangerous. We’re rendered stunned, spun, and flummoxed by the Kremlin’s weaponization of absurdity and unreality.” - year 2014. September 9, 2014 https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+Exactly the kind of technique that the TSA is doing with world travel affairs. Self-harm to USA as a method of control.
+
+* "What this film is going to suggest is that that defeatist response has become a central part of a new system of political control. And to understand how this is happening, you have to look to Russia, to a man called Vladislav Surkov, who is a hero of our time." - December 31, 2014. year 2014. BBC news. https://www.youtube.com/watch?v=h9_L9GRRsQo
