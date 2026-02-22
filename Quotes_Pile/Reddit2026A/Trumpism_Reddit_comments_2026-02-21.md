@@ -433,3 +433,6 @@ https://old.reddit.com/r/politics/comments/1rbmi16/trump_is_rage_baiting_the_us_
 
 14 day Reddit account. THE most popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
 
+https://old.reddit.com/r/politics/comments/1rbmi16/trump_is_rage_baiting_the_us_into_a_second_civil/o6rt4sb/
+
+BREAD_AND_CIRCUS HUNGER_GAMES Entertainment for Reddit comment creators to comment upon. Why are Reddit users not using their free time and spare time commenting to promote Dr. Bandy X Lee's relevant nonfiction books published October 3, 2017 and onward?
