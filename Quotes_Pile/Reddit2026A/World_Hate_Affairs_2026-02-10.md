@@ -1047,3 +1047,7 @@ https://old.reddit.com/r/worldnews/comments/1rbwzot/puerto_vallarta_mexico_under
 6 month Reddit account.
 
 https://old.reddit.com/r/worldnews/comments/1rbwzot/puerto_vallarta_mexico_under_siege_after_army/o6uardl/
+
+https://old.reddit.com/r/worldnews/comments/1rbwzot/puerto_vallarta_mexico_under_siege_after_army/o6uc15w/
+
+"LOL". SENSATIONAL_CONTENT
