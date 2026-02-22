@@ -386,6 +386,10 @@ https://old.reddit.com/r/PublicFreakout/comments/1rbnnm8/i_am_allowed_to_destroy
 
 The TRUMP_FANDOM on Reddit follows the leader Trump with nicknames like "little Donnie" on the celebrity hate-watching media cult, Reddit platform. SEE_ALSO January 5, 2018 CNN https://www.CNN.com/2018/01/05/politics/trump-nickname-rankings "Definitive rankings of Trump's nicknames for enemies"
 
+NEW_OPERA_NAME #LookAtWhere   
+Social post { https://autistics.life/@RoundSparrow/116115491393003212 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfhofzt6ps2p }   
+
+
 https://old.reddit.com/r/PublicFreakout/comments/1rbnnm8/i_am_allowed_to_destroy_a_country_i_am_even/o6s2q7z/
 
 "rattled mind". NOT_GOOD_ENOUGH Dr. Lee. Reddit Trump hate-watch fandom finds it unattractive to quote Dr. Bandy X lee's nonfiction book published October 3, 2017 with 27 writers on the topic of Trump's mental health. Reddit is a cult of low-effort commenting, spending free time and spare time flocking to Donald Trump images and media statements (a media cult). The cult consistently avoids nonfiction serious relevant learning, such as Dr. Bandy X Lee's books on paper.
