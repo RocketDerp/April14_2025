@@ -494,3 +494,6 @@ https://old.reddit.com/r/law/comments/1rbqih2/they_ransacked_the_us_capitol_and_
 
 CALL_TO_INTELLECTUAL_ACTION_PLAN - but where is the meeting place? Where is organization of this action plan? Or is it just more social media commenting that isn't very serious white people treat fiction GTA6 storytelling more seriously on Reddit than they do their own nation, the USA society?
 
+https://old.reddit.com/r/law/comments/1rbqih2/they_ransacked_the_us_capitol_and_want_the/o6ss82l/
+
+Media addiction society from top to bottom since year 2013. Media cults vs. media cults from top to bottom of society, age 12 and above. Surkov won, the Saint Petersburg Internet Research Agency has won an intellectual war of wits against the tiny-short message thinking patterns of USA. The popular upvoted "Grifting from top to bottom" comment reports the facts like routine news reporting, like a news report reader. ROUTINE_NO_NEED_TO_RESIST_OR_ORGANIZE_INTELLECTUAL_UPRISING
