@@ -206,3 +206,24 @@ COMPREHENDING_UNDERSTANDING "Why do people just let this guy rob us blind?" ANSW
 
 * “This is a new type of Kremlin propaganda, less about arguing against the West with a counter-model as in the Cold War, **more about slipping inside its language to play and taunt it** from inside. In the ad for Larry King’s show, keywords associated with the journalist flash up on screen: ‘reputation’, ‘intelligence’, ‘respect’, more and more of them until they merge into a fuzz, finishing with the jokey ‘suspenders’ (i.e. braces). Then King, sitting in a studio, turns to the camera and says: ‘I would rather ask questions to people in positions of power instead of speaking on their behalf. That’s why you can find my new show, Larry King Now, **right here on RT**. Question more.”
 ― Peter Pomerantsev, [Nothing is True and Everything is Possible: Adventures in Modern Russia. Year 2014. Page 49.](https://books.google.com/books?id=OJToBAAAQBAJ&pg=PA49&dq=%E2%80%9CThis+is+a+new+type+of+Kremlin+propaganda,+less+about+arguing+against+the+West+with+a+counter-model+as+in+the+Cold+War,+more+about+slipping+inside+its+language+to+play+and+taunt+it+from+inside.%22&hl=en&newbks=1&newbks_redir=1&sa=X&ved=2ahUKEwiJhI2ss-iSAxVyLUQIHZMILCQQ6AF6BAgHEAM)
+
+
+https://old.reddit.com/r/videos/comments/1rb4x0h/president_trump_says_he_has_the_right_to_do/o6ogryb/
+
+<img width="1079" height="555" alt="image" src="https://github.com/user-attachments/assets/d6000e4e-0ab8-4eab-9658-cd3c7c48c7fd" />
+
+LIARS_AS_LEADERS Can Reddit commenting community for once and twice and persistently have a massive Reddit Blackout UPRISING? Can Reddit community stop engaging Trump antics and doing low-effort Twitter-length short-message Twitter-thinking and face that the ENTIRE POPULATION of the United States of America is avoiding the leadership of Dr. Bandy X Lee since year 2017? Again, SINCE YEAR 2017? Why is this not constantly repeated all over Reddit in commenting? To make massive hit waves on Google Search? And massive news coverage waves across the planet for an uprising?
+
+**QUOTE FROM IMPORTANT NONFICTION BOOK FOLLOWS:**   
+
+Often, people with NPD resort to an insidious strategy called gaslighting — a term drawn from the 1938 play about a man who persuaded his wife she was crazy by, among other means, dimming the gaslights and claiming he’d never touched them. As people with NPD become increasingly psychotic, they’re determined to **convince others that they’re the “crazy” ones who can’t see reality** for what it is. Gaslighting reassures pathological narcissists that their own grip on reality remains firm because they can’t bear to acknowledge their sanity is slipping away. We might ask if we’re seeing this now, as Trump and his closest advisers appear on TV claiming he didn’t make statements that journalists often simply play back — or if **it’s a tweet**, flash an image — to prove that he did indeed say what he said.
+
+Lately, these incidents have become commonplace. Many in the press and public at large now refer to them as alternative facts, alluding to Trump spokesperson Kellyanne Conway’s now infamous “explanation” for why Sean Spicer had berated the press for misreporting Trump’s inauguration size: “this was the largest audience to ever witness an inauguration, period, both in person and around the globe,” Spicer peevishly told a stunned press corps. This turned out to be patently false, though Conway defended the statement, saying Spicer had simply been providing “alternative facts.”
+
+Those who **embrace Trump’s reality**, where the mainstream media lies and remains “the enemy,” signify their support with red hats bearing the inscription MAGA (Make America Great Again). Those who believe what the news reports about Trump have donned the symbol of resistance — pink pussy hats, a reference to his now infamous hot mic comments about women, “I just grab ’em by the pussy…”
+
+That the country is currently split — and **our shared reality** with it — seems without question at this point.
+
+― Bandy X Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. October 3, 2017. Page 58.](https://books.google.com/books?id=pYaFDwAAQBAJ&pg=PA58&dq=insidious+strategy+called+gaslighting+%E2%80%94+a+term+drawn+from+the+1938+play+about+a+man+who+persuaded+his+wife+she+was+crazy+by&hl=en&newbks=1&newbks_redir=1&sa=X)
+
+Social post { https://autistics.life/@RoundSparrow/116111716081615199 https://bsky.app/profile/roundsparrow.bsky.social/post/3mffyrzfvak2u }
