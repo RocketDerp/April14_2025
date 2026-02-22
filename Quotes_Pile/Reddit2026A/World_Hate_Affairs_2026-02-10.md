@@ -1072,4 +1072,8 @@ https://old.reddit.com/r/Costco/comments/1rbydyt/the_costo_in_puerto_vallarta_is
 
 Walter White bad ass drug dealer glamour profession model of behavior. The murdering outlaw white chemistry science lord.
 
+https://old.reddit.com/r/Costco/comments/1rbydyt/the_costo_in_puerto_vallarta_is_burning_down/o6uh7ng/
 
+https://old.reddit.com/r/Costco/comments/1rbydyt/the_costo_in_puerto_vallarta_is_burning_down/o6uh4zn/
+
+MOB_MENTALITY_FIRE_DRILLS OUTBREAKS_OF_MOB_CULT_BEHAVIORS GANG_MENTALITY_OUTBREAKS are probably the most important teachings in current times. How not to go viral when terrorism and hate mindsets break out in mob mentality, gang mentality.
