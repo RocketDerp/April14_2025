@@ -1051,3 +1051,9 @@ https://old.reddit.com/r/worldnews/comments/1rbwzot/puerto_vallarta_mexico_under
 https://old.reddit.com/r/worldnews/comments/1rbwzot/puerto_vallarta_mexico_under_siege_after_army/o6uc15w/
 
 "LOL". SENSATIONAL_CONTENT
+
+https://old.reddit.com/r/worldnews/comments/1rbwzot/puerto_vallarta_mexico_under_siege_after_army/o6ufpup/
+
+AGGRESSIVE_ESCALATE_HATE_REACT_HARDER_MINDSETS - why not emergency get every **mental health worker in the entire world, World Wide Web, writing and teaching mental heat deescalation and treatment?** Why isn't every clergy professional in the world rising up to preach harder?
+
+
