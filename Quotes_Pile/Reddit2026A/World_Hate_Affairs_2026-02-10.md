@@ -842,3 +842,67 @@ https://old.reddit.com/r/unitedkingdom/comments/1raltam/dont_go_to_the_us_not_wi
 
 Unable to recognize the dehumanization Reddit society has normalized, "bots", machines. Cults are all too human. Nazi Germany didn't have "bots", Pol Pot in Cambodia 1970's wasn't bots. People can be dehumanizing and people have avoided NOT_GOOD_ENOUGH Martin Luther King Jr's February 28, 1954 writings again and again in facing how hate it toxic no matter the reason or geography.
 
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1raqya9/challenging_the_whitecentric_thinking_and_beliefs/o6lnlf2/
+
+Video clip, meme-clip, sound-bite interview media. Reddit "sound bites" low-effort commenting audience. She has a meme device in her right hand, is fully aware she is being filmed and holds her meme-think device up to her mouth to shield her curse-word. All her ideas she expresses are Rupert Murdoch HDTV / Newsmax HDTV / Elon Musk Twitter media programmed sound bites. She is doing MEDIA_REGURGITATION of what billionaires who run all the media systems have fed into... just as Reddit media cult members do. FEEDBACK_LOOP_MEDIA_CULTS_PLATFORM_TO_PLATFORM_MOCKERY_USA
+
+* “Science is more than a body of knowledge; it is a way of thinking. I have a (year 1995) foreboding of an America in my children’s or grandchildren’s time — when the United States is a service and information economy; when nearly all the key manufacturing industries have slipped away to other countries; when awesome technological powers are in the hands of a very few, and no one representing the public interest can even grasp the issues; when the people have lost the ability to set their own agendas or knowledgeably question those in authority; when, clutching our crystals and nervously consulting our horoscopes, our critical faculties in decline, unable to distinguish between what feels good and what’s true, we slide, almost without noticing, back into superstition and darkness. The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the **30-second** sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but especially a kind of [celebration of ignorance](https://www.youtube.com/watch?v=wcY-x1VuWtE). As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning — not just of science, but of anything — are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995, page 59
+
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1raqya9/challenging_the_whitecentric_thinking_and_beliefs/o6m3hc3/
+
+<img width="1011" height="614" alt="image" src="https://github.com/user-attachments/assets/1611f347-3fb3-4d4f-b975-c3378065996a" />
+
+I grew up in the Technology Billionaires culture of white men. Two Seattle (Mercer Island, Bellevue) White Men. Bill Gates and Paul Allen, university drop-outs who founded Microsoft in year 1975. They were legendary among all the white middle class boys in the late 1970's and 1980's. I was born in year 1969 and got a Commodore 64 computer with Bill Gates and Paul Allen's Microsoft BASIC code on it. Bill Gates wrote open letters to the cult members of wealth about the importance of making rich people very rich and powerful with copyright, patents, intellectual property. https://en.wikipedia.org/wiki/An_Open_Letter_to_Hobbyists - Steve Jobs, Steve Wozniak, Bill Gates, Paul Allen - all white boys who had an aggressive emasculate programming for the young boys that have now grown up to be the business leaders of today.
+
+How did **Elon Musk get his start in Africa to become the richest most powerful white man in the entire world? Microsoft Basic 2.0 on Commode VIC-20** and he immigrated to the Land of Opportunity for followers of Bill Gates and Paul Allen (Allen did spaceship work https://www.NewYorker.com/news/postscript/paul-allen-the-quiet-space-baron like Musk, brain work like Musk).
+
+* "Self-Taught Programmer: At age 10, after seeing a computer at a store, he became obsessed with them. He taught himself how to program from a VIC-20 user manual, a process that typically took six months but which he completed in three days. "Blastar" Game (Age 12): By age 12, he had written the code for a BASIC-based video game called Blastar. Sold His Software: He sold the code for Blastar to PC and Office Technology magazine for approximately $500." - Google Search Summary 2026-02-21 noonish USA West Coast
+  * https://Blastar-1984.AppSpot.com/
+ 
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mffecd54mc2e https://autistics.life/@RoundSparrow/116110278940880751 }
+
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1raqya9/challenging_the_whitecentric_thinking_and_beliefs/o6m9u0n/
+
+White American **intelligent** boys had **bullying oppression** by the anti-book brain-damage NFL football cultists in the 1970's and 1980's. 
+
+* Newsweek magazine. **January 21, 1980 Isaac Asimov warns against a growing “cult of ignorance” in American society, where anti-intellectualism thrives and people wrongly believe their uninformed opinions hold equal weight to expert knowledge. He argues this dangerous trend undermines education**, reason, and the very foundation of democracy by dismissing science and informed discourse. https://www.organism.earth/library/document/cult-of-ignorance
+
+I personally escaped this anti-intellectual behavior of my middle school and high school by getting on social media with intelligent adults. I authored and sold my won commercial social media site software in 1985 in high school. Reading nonfiction books about computer science and software engineering was very unpopular in my sports-mentality high school in Fort Wayne, Indiana.
+
+Of course, almost all of us intellectual white boys (book nerds) **were captured into an abusive media cult by Bill Gates who was an infamous bully.** 
+
+* "March 30, 2011 — Paul Allen uses memoir to portray Bill Gates as a bully" https://www.theguardian.com/technology/2011/mar/30/microsoft-paul-allen-bill-gates
+
+A society, USA, of white male billionaire worshipers. Immigrant Elon Musk fit right into the circle of white men wealth worshipers. Corporations clubs, Incorporated, Indoctrinated. It is not difficult to locate Dr. Martin Luther King Jr's teachings about hate from February 28, 1954. But the most gifted computer researchers all seem to not be able to land on the equations. Right on WikiQuote for the whole world wide web: https://en.WikiQuote.org/wiki/Martin_Luther_King_Jr.
+
+**The 1954 Equation**
+
+February 28, 1954: "Most people can't stand up for their convictions, because the majority of people might not be doing it. See, everybody's not doing it, so it must be wrong. And since everybody is doing it, it must be right. So a sort of numerical interpretation of what's right. But I'm here to say to you this morning that some things are right and some things are wrong. Eternally so, absolutely so. **It's wrong to hate.** It always has been wrong and it always will be wrong. It's wrong in America, it's wrong in Germany, it's wrong in Russia, it's wrong in China. It was wrong in 2000 B.C., and it's wrong in 1954 A.D. It always has been wrong, and it always will be wrong." - Martin Luther King Jr.
+
+"For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the **true becomes false and the false becomes true**. That's what hate does. You can't see right. **The symbol of objectivity** is lost." - Martin Luther King Jr.
+
+https://old.reddit.com/r/pics/comments/1raz8r5/epstein_mural_in_sydney_australia/o6nbkpc/
+
+EPSTEIN_FANDOM PREDATORY_BILLIONAIRE_SYSTEMS
+
+NEW_OPERA_NAME #WorldWidePlayboys   
+Social post { https://autistics.life/@RoundSparrow/116110686862795425 https://bsky.app/profile/roundsparrow.bsky.social/post/3mffk5hnmts2r }
+
+https://old.reddit.com/r/pics/comments/1raz8r5/epstein_mural_in_sydney_australia/o6nbafx/
+
+<img width="851" height="1208" alt="image" src="https://github.com/user-attachments/assets/d9225d76-dcc4-4dfb-a0d6-59cb5ba04343" />
+
+ARTIFICIAL_REALITY WIDE_RADICAL_DOUBT_ABOUT_REAL Bill Gates investing and lecturing about the merits of Artificial Intelligence... to feed sophisticated fiction by billionaires. 
+
+* "The postmodern trajectory **leaves us in a situation where drawing the line between the real and the unreal is no longer merely philosophical but a practical day-to-day issue**. See, this is what I want to drive home. We are not off in some fairy land, **this is a practical day-to-day issue of figuring out what’s a simulation and what’s not**. Is this guy really an insurance salesman or is he here to rob me? You know, I mean… this is no longer Cartesian doubt that one has to conjure up in a meditation. **This is a wide radical doubt about the very ground beneath our feet and the nature of whether it’s real** or not." - Texan Rick Roderick, year 1993, Duke University https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
+
+NEW_OPERA_NAME #WideRadicalDoubt   
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mffkreeezs2r https://bsky.app/profile/roundsparrow.bsky.social/post/3mffkreeezs2r }
+
+https://old.reddit.com/r/wallstreetbets/comments/1razfm0/iranian_rial_has_completely_collapsed/o6nb847/
+
+SATIRE_SARCASM_WASHING
+
+https://old.reddit.com/r/wallstreetbets/comments/1razfm0/iranian_rial_has_completely_collapsed/o6ncbkl/
+
+World Money as tool of Hate Affairs

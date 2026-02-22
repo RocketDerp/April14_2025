@@ -94,3 +94,5 @@ https://www.youtube.com/watch?v=UuLg5nCftvY
 
 Mythology of sex outside marriage, modern birth control and casual hookups    
 https://old.reddit.com/r/pics/comments/1r9y0ox/posters_made_by_students_to_promote_safe_sex/
+
+https://old.reddit.com/r/geography/comments/1rb1135/how_did_egypt_go_from_one_of_the_oldest_and/
