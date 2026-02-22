@@ -1030,3 +1030,5 @@ https://old.reddit.com/r/worldnews/comments/1rbtlgn/mexican_cartel_leader_nemesi
 
 https://old.reddit.com/r/worldnews/comments/1rbtlgn/mexican_cartel_leader_nemesio_el_mencho_oseguera/o6tl715/
 
+https://old.reddit.com/r/pics/comments/1rbvb8y/oc_from_the_beach_in_puerto_vallarta_this_morning/o6txdvh/
+
