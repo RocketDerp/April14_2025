@@ -1083,3 +1083,12 @@ https://old.reddit.com/r/CringeTikToks/comments/1rbwzo2/mexico_is_under_attack_r
 https://old.reddit.com/r/CringeTikToks/comments/1rbwzo2/mexico_is_under_attack_right_now_because_a_cartel/o6u5xuc/
 
 10 month Reddit account. HATE_MOTIVATED_ECONOMY_HATE_AS_A_VIRTUE_SIGNALING
+
+https://old.reddit.com/r/PublicFreakout/comments/1rbxpkx/im_from_mexico_today_maybe_is_the_worst_day_the/o6undei/
+
+https://old.reddit.com/r/PublicFreakout/comments/1rbxpkx/im_from_mexico_today_maybe_is_the_worst_day_the/o6uap7u/
+
+https://old.reddit.com/r/PublicFreakout/comments/1rbxpkx/im_from_mexico_today_maybe_is_the_worst_day_the/o6ucn3n/
+
+https://old.reddit.com/r/PublicFreakout/comments/1rbxpkx/im_from_mexico_today_maybe_is_the_worst_day_the/o6ud0jj/
+
