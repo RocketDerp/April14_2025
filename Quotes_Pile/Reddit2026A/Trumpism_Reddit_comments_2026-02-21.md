@@ -329,3 +329,11 @@ https://old.reddit.com/r/politics/comments/1rbjkf2/i_can_destroy_the_country_tru
 
 NOT_GOOD_ENOUGH why is Reddit commenting community avoiding nonfiction serious books on the USA crisis. Why is Dr. Bandy X Lee's 27 experts published October 3, 2017 not good enough to assert, repeat, and keep repeating until everyone is on the same serious **nonfiction learning** pages about Donald Trump?
  
+https://old.reddit.com/r/politics/comments/1rbjkf2/i_can_destroy_the_country_trumps_rant_after/o6revf2/
+
+WRONG. Fundamental misunderstanding of democracy. We The People are the source of power. Reddit commenting community keeps avoiding: Jen Senko, Dr. Bandy X Lee's leadership. The problem is the audience to Trump. DEFLECTION_FROM_BILLIONAIRES_AND_PUTINISM
+
+https://old.reddit.com/r/politics/comments/1rbjkf2/i_can_destroy_the_country_trumps_rant_after/o6s2bsc/
+
+Yes. SIMPLISTIC thinking, Twitter-length thinking, symptoms of complexity overload as described by Rick Roderick at Duke University in his year 1993 series "Self Under Siege".  BRAIN_ROT_SOCIETY_47 
+
