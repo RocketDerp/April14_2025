@@ -235,3 +235,14 @@ DENIAL_ABOUNDS Denial on Reddit of how much Reddit audience itself is attracted 
 https://old.reddit.com/r/PoliticalHumor/comments/1rb6gie/americas_first_ladies/o6osyfn/
 
 3 month Reddit account. 3rd top voted popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT As for the comment itself, it is topic of billionaire-media of artificial reality. WIDE_RADICAL_DOUBT_ABOUT_REAL
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rb3qnp/better_question_why_the_hell_do_all_these_guys/o6o8b12/
+
+"Why do they look and sound the same? Progrmming from rightwing media, and bad diet choices." - Saturday, February 21, 2026 Reddit comment. ANSWER: 𝄠 "You've been screwed again! If you let them do it to you… you've got yourself to blame! It's you who feels the pain. It's you that feels the shame."... **"You men should remember how you used to fight!"** - year 1973
+
+ANSWER: 
+
+OPERA_A Released: year 1973 "The Dirty Jobs" that Trump brown-nosers, Billionaire suck-ups do. I was born in Columbus, Georgia. https://www.youtube.com/watch?v=L0bqmIBczJI Lyrics: "I take miners to work, but the pits all closed today. It's easy to see that you are one of us! **Ain't it funny how we all seem to look the same?**"
+
+Social post { https://autistics.life/@RoundSparrow/116112139434739159 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfg6rnayxk2z }
+
