@@ -1068,4 +1068,8 @@ WAR_AGAINST_REALITY
 
 https://old.reddit.com/r/worldnews/comments/1rbwzot/puerto_vallarta_mexico_under_siege_after_army/o6u7bc8/
 
+https://old.reddit.com/r/Costco/comments/1rbydyt/the_costo_in_puerto_vallarta_is_burning_down/o6ufo1e/
+
+Walter White bad ass drug dealer glamour profession model of behavior. The murdering outlaw white chemistry science lord.
+
 
