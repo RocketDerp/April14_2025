@@ -469,3 +469,7 @@ TRUMP_FANDOM front page of Reddit. Fans of the Trump family brand on Reddit medi
 https://old.reddit.com/r/circled/comments/1rbs3af/donald_trumps_parents_this_explains_everything/o6t7d72/
 
 DONALD_TRUMP_ROLE_MODEL and for nearly 11 years, USA population has made Donald Trump a role model of success using Twitter and Truth Social media systems. A media celebrity that parents wish their children to admire and copy behavior from. Reddit community has adopted so many of Trump's behaviors... especially avoiding nonfiction relevant books on paper with critical and important topics.
+
+https://old.reddit.com/r/nottheonion/comments/1rbp0xc/kid_rock_predicts_god_will_cut_down_journalists/o6sdy79/
+
+Kid Rock is MAGA_FANDOM on Reddit. And GULLIBLE_FANDOM that Kid Rock isn't a media outlet for the Kremlin and White House using Surkov "The Onion" media methods. These entire comments are "eating the Surkovian Onions". SEE_ALSO: https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Reddit2025A/Surkovian_Onion_Eating.md
