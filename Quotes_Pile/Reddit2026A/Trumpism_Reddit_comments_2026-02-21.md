@@ -305,3 +305,7 @@ The Trump brand, the signing of Holy Bible, the building markings, the golf cour
 * "Scent marking, also known as territorial marking or spraying when this involves urination, is a behaviour used by animals to identify their territory. Most commonly, this is accomplished by depositing strong-smelling substances contained in the urine, faeces, or, from specialised scent glands located on various areas of the body." https://en.wikipedia.org/wiki/Territory_(animal)#Scent_marking
 
 Social post { https://autistics.life/@RoundSparrow/116114713473782463 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfhd7zpcec22 }
+
+https://old.reddit.com/r/TrendoraX/comments/1rblrxc/agree_disagree/o6rrqq3/
+
+PROMOTING_SAVIOR_SINGLE_PERSON_OVER_DIVERSE_OPEN_THINKING_IDEAS
