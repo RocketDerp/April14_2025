@@ -457,4 +457,5 @@ https://old.reddit.com/r/FascinatingAsFuck/comments/1rbrbcu/corporate_media_is_n
 
 https://old.reddit.com/r/FascinatingAsFuck/comments/1rbrbcu/corporate_media_is_nothing_but_class_warefare/o6t6zmx/
 
-Reddit is Corporate America. Since March 21, 2024 - right as the November 2024 POTUS election was hot. https://www.cNBC.com/2024/03/20/reddit-prices-ipo-at-34-per-share-sources-say.html
+Reddit is Corporate America. Since March 21, 2024 - right as the November 2024 POTUS election was hot. https://www.cNBC.com/2024/03/20/reddit-prices-ipo-at-34-per-share-sources-say.html Reddit community is CONDITIONED_OPPOSITION with secret masked police removing content and removing users.
+
