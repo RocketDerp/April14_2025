@@ -185,3 +185,7 @@ https://old.reddit.com/r/worldnews/comments/1rb4kcq/trump_imposes_15_tariffs_on_
 GIVE_UP_ANTI_EDUCATION_ANTI_TEACH_ANTI_PROGRESS Give up, "can't fix stupid", low-effort predictable programmed commenting patterns on Reddit. To avoid nonfiction and not even bother with serious books and learning.
 
 * “The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the **30-second** sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but especially a kind of [celebration of ignorance](https://www.youtube.com/watch?v=wcY-x1VuWtE). As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The **plain lesson is that study and learning — not just of science, but of anything — are avoidable, even undesirable**.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995, page 59
+
+https://old.reddit.com/r/Fauxmoi/comments/1rau0mb/pope_leo_sets_aside_the_invitation_to_the_july/o6m5oxi/
+
+Entertained MAGA_FANDOM on Reddit. Instead or organizing nonfiction cult deprogramming, Reddit users want to keep the flow of stimulating entertainment out of the MAGA cult coming to their high speed media devices. SENSATIONAL_CONTENT that JD Vance, The People, and symbolism gumbo provides. Surkov won since March 2013.
