@@ -987,3 +987,21 @@ This whole posting, including the Reddit user created "Hate Republicans enough" 
 https://old.reddit.com/r/TwoXChromosomes/comments/1rbu75d/if_i_was_a_woman_i_would_be_the_kind_of_woman/o6tlgvq/
 
 CHOICE_MARRIAGE_HONESTY 
+
+https://old.reddit.com/r/CrazyFuckingVideos/comments/1rbwpsv/mexico_after_el_menchos_fall_today/o6u4lnq/
+
+World Affairs of hate.
+
+https://old.reddit.com/r/CrazyFuckingVideos/comments/1rbwpsv/mexico_after_el_menchos_fall_today/o6u4mjx/
+
+https://old.reddit.com/r/CrazyFuckingVideos/comments/1rbwpsv/mexico_after_el_menchos_fall_today/o6u2zfm/
+
+CONTEXT_BEWILDERMENT  
+
+https://old.reddit.com/r/CrazyFuckingVideos/comments/1rbwpsv/mexico_after_el_menchos_fall_today/o6u70md/
+
+https://old.reddit.com/r/CrazyFuckingVideos/comments/1rbwpsv/mexico_after_el_menchos_fall_today/o6u2zz8/
+
+https://old.reddit.com/r/CrazyFuckingVideos/comments/1rbwpsv/mexico_after_el_menchos_fall_today/o6u5pxy/
+
+https://old.reddit.com/r/CrazyFuckingVideos/comments/1rbwpsv/mexico_after_el_menchos_fall_today/o6u3spu/
