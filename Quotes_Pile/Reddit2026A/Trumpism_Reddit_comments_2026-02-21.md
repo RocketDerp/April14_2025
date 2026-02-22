@@ -477,3 +477,7 @@ Kid Rock is MAGA_FANDOM on Reddit. And GULLIBLE_FANDOM that Kid Rock isn't a med
 https://old.reddit.com/r/videos/comments/1rboz9q/james_talarico_delivers_sermon_against_christian/o6sgbp9/
 
 LEVANT_MONOMYTH_CRISIS   
+
+https://old.reddit.com/r/BikiniBottomTwitter/comments/1rbrxr3/im_shocked_that_elmo_would_do_such_a_thing/o6t8j7m/
+
+This whole posting is MUSK_FANDOM for Reddit audiences. Anti-FAQ anti-Wiki commenting community that does not want to use free time and spare time to organizes against the billionaire media cartels (Twitter cartel, Murdoch cartel, Truth Social cartel, Facebook cartel) because Reddit app users are themselves addicts to the media content. TRICKLE_DOWN_MEDIA 
