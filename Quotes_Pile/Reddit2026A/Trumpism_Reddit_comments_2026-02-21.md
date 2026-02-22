@@ -473,3 +473,7 @@ DONALD_TRUMP_ROLE_MODEL and for nearly 11 years, USA population has made Donald 
 https://old.reddit.com/r/nottheonion/comments/1rbp0xc/kid_rock_predicts_god_will_cut_down_journalists/o6sdy79/
 
 Kid Rock is MAGA_FANDOM on Reddit. And GULLIBLE_FANDOM that Kid Rock isn't a media outlet for the Kremlin and White House using Surkov "The Onion" media methods. These entire comments are "eating the Surkovian Onions". SEE_ALSO: https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Reddit2025A/Surkovian_Onion_Eating.md
+
+https://old.reddit.com/r/videos/comments/1rboz9q/james_talarico_delivers_sermon_against_christian/o6sgbp9/
+
+LEVANT_MONOMYTH_CRISIS   
