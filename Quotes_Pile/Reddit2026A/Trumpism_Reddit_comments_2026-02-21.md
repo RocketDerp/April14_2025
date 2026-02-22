@@ -388,4 +388,11 @@ The TRUMP_FANDOM on Reddit follows the leader Trump with nicknames like "little 
 
 https://old.reddit.com/r/PublicFreakout/comments/1rbnnm8/i_am_allowed_to_destroy_a_country_i_am_even/o6s2q7z/
 
-"rattled mind". NOT_GOOD_ENOUGH to quote Dr. Bandy X lee's nonfiction book published October 3, 2017 with 27 writers on the topic of Trump's mental health. Reddit is a cult of low-effort commenting, spending free time and spare time flocking to Donald Trump images and media statements (a media cult). The cult consistently avoids nonfiction serious relevant learning, such as Dr. Bandy X Lee's books on paper.
+"rattled mind". NOT_GOOD_ENOUGH Dr. Lee. Reddit Trump hate-watch fandom finds it unattractive to quote Dr. Bandy X lee's nonfiction book published October 3, 2017 with 27 writers on the topic of Trump's mental health. Reddit is a cult of low-effort commenting, spending free time and spare time flocking to Donald Trump images and media statements (a media cult). The cult consistently avoids nonfiction serious relevant learning, such as Dr. Bandy X Lee's books on paper.
+
+https://old.reddit.com/r/PublicFreakout/comments/1rbnnm8/i_am_allowed_to_destroy_a_country_i_am_even/o6s2yek/
+
+DENIAL_ABOUNDS - psychological denial. People who are cults to fiction content, Reddit cultists, are constantly in a state of shock of factual real-world reality. Surkov students won the "War Against Reality" since March 2013 by invading Reddit and other media platforms. The IRA harmed the minds of Reddit users to prize anti-reality. https://www.BBC.com/news/technology-43301643 Now in year 2026, you witness incredible celebrations of ignorance and people who easily get their mind blown (and hence why they avoid) with real serious information. MIND_BLOWN_BY
+
+* “The human brain can protect us from seeing and feeling what it believes may be too uncomfortable for us to tolerate. It can lead us to deny, defend, minimize, or rationalize away something that doesn’t fit our worldview.”
+― Dr. Bandy X Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. Published **October 3, 2017**. Page 273. Chapter "TRUMP'S DADDY ISSUES"](https://books.google.com/books?id=g0c4DwAAQBAJ&pg=PA273&dq=%E2%80%9CThe+human+brain+can+protect+us+from+seeing+and+feeling+what+it+believes+may+be+too+uncomfortable%22&hl=en&newbks=1&newbks_redir=1&sa=X)
