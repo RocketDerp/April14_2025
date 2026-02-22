@@ -355,7 +355,12 @@ https://old.reddit.com/r/politics/comments/1rbjkf2/i_can_destroy_the_country_tru
 
 <img width="1148" height="1154" alt="image" src="https://github.com/user-attachments/assets/f7c2b7b3-b0cb-4cf9-afcc-b8aafa22123c" />
 
-CIVIC_DUTY_WE_PEOPLE We The People have a civic duty to be serious about the situation and use all available free time and spare time to quote Dr. Bandy X Lee's nonfiction books. Dr. Lee assembled 27 writers on the mental health crisis and it was published October 3, 2017. Social media Reddit users need to be repeating it, over and over, quoting her nonfiction book with 27 authors!
+CIVIC_DUTY_WE_PEOPLE We The People have a civic duty to be serious about the situation and use all available free time and spare time to quote Dr. Bandy X Lee's nonfiction books. Dr. Lee assembled 27 writers on the mental health crisis and it was published October 3, 2017. Social media Reddit users need to be repeating it, over and over, quoting her nonfiction book with 27 authors! BEYOND_DENIAL
 
 NEW_OPERA_NAME #DonaldTrumpAfter #DonaldTrumpAfterMath #IgnorantElectorate #ToFixAll   
-Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mfhj7wmaik2v https://autistics.life/@RoundSparrow/116115128091927878 }   
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mfhj7wmaik2v https://autistics.life/@RoundSparrow/116115128091927878 https://MidWest.Social/post/43787856 }   
+
+OPERA_A REPEAT_TRACK https://www.youtube.com/watch?v=eAyEb36SJYs 164,120 views January 6, 2023 Lyrics: "it seemed that life was so wonderful... A miracle, oh, it was beautiful, magical! And all the birds in the trees, well they'd be singing so happily. Oh, joyfully, oh, playfully watching me! But then they sent me away to teach me how to be sensible. Logical, oh, responsible, practical. And then they showed me a world where I could be so dependable...  Oh, clinical, oh, intellectual, cynical"; "Won't you **please, please tell me what we've learned**? I know it sounds absurd: *Please tell me*... who I am!"
+
+NEW_OPERA_NAME #PleaseTellMeWhatWe   
+
