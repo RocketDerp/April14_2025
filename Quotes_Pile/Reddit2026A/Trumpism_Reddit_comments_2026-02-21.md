@@ -255,3 +255,6 @@ https://old.reddit.com/r/JournalismNews/comments/1rb4j0p/trump_mercilessly_mocke
 
 1 month Reddit account. A fan of humiliation leadership signals that replies as soon as a Trump posting appears on media systems. Trump dominates society with media empires and Reddit fandom of media content flocks.
 
+https://old.reddit.com/r/JournalismNews/comments/1rb4j0p/trump_mercilessly_mocked_over_global_tariff/o6ouf9h/
+
+2 month Reddit account.
