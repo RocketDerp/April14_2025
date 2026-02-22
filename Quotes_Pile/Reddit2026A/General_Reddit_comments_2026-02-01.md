@@ -819,3 +819,6 @@ https://old.reddit.com/r/HouseOfTheDragon/comments/1rbp8ac/official_hbo_account_
 
 MEDIA_ECOLOGY_LESSON "God" is a meme, Bible verse John 1:1, language *and ONLY language*. Show evidence of God being more than language itself? Proof? Facts. Bible verse "1 John 4:20" points this out. That "I Love God" is wrong, and "I hate a person" (ANY PERSON, ANY WHERE) is wrong. - today is Sunday, church day / Bible science fiction fandom day.
 
+https://old.reddit.com/r/HouseOfTheDragon/comments/1rbp8ac/official_hbo_account_making_fun_of_breaking_bad/o6sfb7x/
+
+MEDIA_ECOLOGY_LESSON it is not just *any rage*, it is FICTION content. Breaking Bad is fiction fandom, Game of Thrones is fiction Fandom. HBO already knows: FICTION_VS_FICTION selling, Just as Rupert Murdoch knows in fiction vs fiction media platforms. SEE_ALSO https://GitHub.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Ted_Koppel.md
