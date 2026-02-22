@@ -785,4 +785,26 @@ https://old.reddit.com/r/theamazingdigitalciru/comments/1rb94os/wow_just_wow_thi
 
 https://old.reddit.com/r/theamazingdigitalciru/comments/1rb94os/wow_just_wow_this_is_absolutely_disgusting_wrong/o6pc2za/
 
+https://old.reddit.com/r/theamazingdigitalciru/comments/1rb94os/wow_just_wow_this_is_absolutely_disgusting_wrong/o6pdc2v/
+
+https://old.reddit.com/r/theamazingdigitalciru/comments/1rb94os/wow_just_wow_this_is_absolutely_disgusting_wrong/o6pb354/
+
+https://old.reddit.com/r/theamazingdigitalciru/comments/1rb94os/wow_just_wow_this_is_absolutely_disgusting_wrong/o6pchzi/
+
+https://old.reddit.com/r/theamazingdigitalciru/comments/1rb94os/wow_just_wow_this_is_absolutely_disgusting_wrong/o6pevoi/
+
+https://old.reddit.com/r/theamazingdigitalciru/comments/1rb94os/wow_just_wow_this_is_absolutely_disgusting_wrong/o6pe0hp/
+
+https://old.reddit.com/r/theamazingdigitalciru/comments/1rb94os/wow_just_wow_this_is_absolutely_disgusting_wrong/o6pgwsw/
+
+https://old.reddit.com/r/theamazingdigitalciru/comments/1rb94os/wow_just_wow_this_is_absolutely_disgusting_wrong/o6pcajd/
+
+https://old.reddit.com/r/theamazingdigitalciru/comments/1rb94os/wow_just_wow_this_is_absolutely_disgusting_wrong/o6pfthi/
+
+https://old.reddit.com/r/theamazingdigitalciru/comments/1rb94os/wow_just_wow_this_is_absolutely_disgusting_wrong/o6pcpw6/
+
+https://old.reddit.com/r/theamazingdigitalciru/comments/1rb94os/wow_just_wow_this_is_absolutely_disgusting_wrong/o6pd3nh/
+
+https://old.reddit.com/r/theamazingdigitalciru/comments/1rb94os/wow_just_wow_this_is_absolutely_disgusting_wrong/o6pgafi/
+
 
