@@ -340,3 +340,12 @@ Yes. SIMPLISTIC thinking, Twitter-length thinking, symptoms of complexity overlo
 https://old.reddit.com/r/politics/comments/1rbjkf2/i_can_destroy_the_country_trumps_rant_after/o6rrwf0/
 
 Yes, Fox News may have been first October 7, 1996. But now Fox News HDTV February 2026 is in a feedback loop with Bluesky social February 2026. Fox News HDTV February 2026 is in a feedback loop with Reddit social February 2026. Media cults vs. media cults. Filter-bubble vs. Filter-bubble. https://en.wikipedia.org/wiki/Filter_bubble FEEDBACK_LOOP_MEDIA_CULTS_PLATFORM_TO_PLATFORM_MOCKERY_USA
+
+
+https://old.reddit.com/r/politics/comments/1rbjkf2/i_can_destroy_the_country_trumps_rant_after/o6rgho0/
+
+<img width="1313" height="539" alt="image" src="https://github.com/user-attachments/assets/20279597-c1a8-4dbf-ab4b-5f43b24b8ee0" />
+
+DANGER_ALERT_CALL_TO_INTELLECTUAL_ARMS_BOOK_CRAM_SESSIONS Ok - where is the Bluesky and Reddit uprising? Why is my Bluesky feed and Reddit front page not full of calls for Trump's resignation? Why are all the news neetworks not covering a social media uprising? Why is the DANGER book published by Dr. Bandy X Lee with 27 authors since October 3, 2017 not being quoted constantly to raise alarm bells in specific nonfiction language to get everyone on the same page of DANGER? It's right in the title of her book! https://en.wikipedia.org/wiki/The_Dangerous_Case_of_Donald_Trump
+
+Social post { https://autistics.life/@RoundSparrow/116115052504480532 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfhi5xn5vk2t }
