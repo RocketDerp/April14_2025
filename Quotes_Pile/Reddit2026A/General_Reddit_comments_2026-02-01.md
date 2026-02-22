@@ -814,3 +814,7 @@ https://old.reddit.com/r/technology/comments/1rbgkot/the_us_spent_30_billion_to_
 BRAIN_ROT_SOCIETY_47 
 
 Social post { https://autistics.life/@RoundSparrow/116114790537999880 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfheigijs22k }
+
+https://old.reddit.com/r/HouseOfTheDragon/comments/1rbp8ac/official_hbo_account_making_fun_of_breaking_bad/o6sfd7y/
+
+MEDIA_ECOLOGY_LESSON "God" is a meme, Bible verse John 1:1, language *and ONLY language*. Show evidence of God being more than language itself? Proof? Facts. Bible verse "1 John 4:20" points this out. That "I Love God" is wrong, and "I hate a person" (ANY PERSON, ANY WHERE) is wrong.
