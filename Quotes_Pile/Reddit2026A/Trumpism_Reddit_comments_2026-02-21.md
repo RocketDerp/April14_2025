@@ -309,3 +309,9 @@ Social post { https://autistics.life/@RoundSparrow/116114713473782463 https://bs
 https://old.reddit.com/r/TrendoraX/comments/1rblrxc/agree_disagree/o6rrqq3/
 
 PROMOTING_SAVIOR_SINGLE_PERSON_OVER_DIVERSE_OPEN_THINKING_IDEAS
+
+https://old.reddit.com/r/MurderedByWords/comments/1rbmpf0/highway_to_hell/o6rvxpn/
+
+CHARLIE_KIRK_FANDOM MAGA_FANDOM constantly you see Charlie Kirk, Erica Kirk on front page /r/All of Reddit. There is a cult fandom, podcast technology cult, Reddit commenting cult. FEEDBACK_LOOP_MEDIA_CULTS_PLATFORM_TO_PLATFORM_MOCKERY_USA
+
+This is the foundation of celebrity Donald Trump family power. Celebrity Charlie Kirk family power. People in USA society can not resist their "Reality TV", "Reality Podcast" addictions. The attraction to the media delivery, the high-speed electric information systems. It is a CRISIS that we do not teach self-awareness at the levels of University of Toronto's Marshall McLuhan and New York University's Neil Postman. We need to revive these nonfiction education books! Understanding Trumpism power over the mindsets of fandoms.
