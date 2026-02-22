@@ -281,3 +281,23 @@ Celebrity cult leaders, Nicki Minaj are impressed with the cult leadership of Je
 https://old.reddit.com/r/MurderedByWords/comments/1rbg8b9/she_wanted_amen_she_got_annihilated/o6qoe2r/
 
 GULLIBLE_FANDOM on Reddit. Behaving with extreme recency bias. The constantly streaming meme programs on Reddit wipe out memory of Trump's total domination of media culture since June 2015. First, this topic has very little to do with removing Trump from power and turning life around away from the self-harm that the MAGA movement / ICE has been... it's just celebrity singer and celebrity actor and famous icon book. Second, this popular Reddit comment show the brain rot of We The People who encounter touch devices to consume media.
+
+https://old.reddit.com/r/MurderedByWords/comments/1rbg8b9/she_wanted_amen_she_got_annihilated/o6qovbk/
+
+Donald Trump grasps what Reddit users do not grasp. CULT_BEHAVIOR The cult behavior of the human species about tall buildings. The pyramid on the dollar bill / Great Seal USA. Humans may have all different spoken and written languages across Earth, and argue economic systems, argue health care systems. But one things humans all agreed on across the world were: airports, tall buildings (skyscrapers), smartphones. Reddit users drown themselves in technology of high-speed information delivery but have no grasp at all that tall buildings "branded" by Donald Trump resonates deep within the everyday man as impressive.
+
+Many rich people are collectors of exotic automobiles and are admired by men for it. Nice clothes and fashion design on women is universally attention-getting. Trump is a MASTER of icons and symbols and Trump has an eye for what crowds will flock to and photograph and cover. Standing next to places, objects, symbols that will get Trump the most media coverage is a talent and skill. Trump has an eye for juxtaposition and how to "leave his mark" and "leave his stink" like a cat or dog does.
+
+Reddit social REEKS of Donald Trump mindsets, stink, markings. Putin winning "hearts and minds" since year 2013. Cultist "Daddy" behaviors of Reddit towards Trump. Territory, domination...
+
+* Quote ::: "Mojo" refers to a magical charm (originating in Hoodoo) or, commonly, a person's magical, **irresistible power**, influence, or "groove". It often implies confidence, sex appeal, or talent. :::
+
+Reddit cult of Trump absolutely can not resist his charm. People on Reddit become slaves to Trump's persona. Very predictable mindsets of Reddit consumers in calling Donald Trump: { Fat, Dumb, Stupid, Idiot, Moron, Dementia, Insane, Nuts, Smelly, Poop, Diaper Fetish, Skin Color associations }. I lived in the Middle East studying long-standing cult behaviors for years. In my lifetime (born 1969), I have never seen a celebrity cult / sports star cult / rock musician cult behave anywhere near as strong as people do regarding Donald Trump. The ultimate "King of Pop", and I saw a Michael Jackson concern in Detroit in the mid 1980's with Pepsi (Motown, his home Gary Indiana shadow of USA music culture).
+
+Reddit comment creators and comment votes reveal a cult behavior unlike any I have seen. People who follow the hate leaership that Trump provides. People who prize hate just as Trump prizes hate. People who prize mocking and insulting just as Trump prizes mocking and insulting. People on Reddit who avoid nonfiction books on paper just as Donald Trump avoids them.
+
+* "Being illiterate in the processes of any medium (language) leaves one at the mercy of those who control it. The new media — these new languages — then are among the most important "subjects" to be studied in the interests of survival." - Neil Postman on media ecology
+
+The Trump brand, the signing of Holy Bible, the building markings, the golf course markings... Territorial. "Golf of America", not Mexico. Raping Canada and Greenland as 51st 52nd states... Reddit does not see the metaphorical scent that Trump has with every image that appears on /r/All of Reddit itself. The cult of hate. The media cult of mockery. Eating right out of Surkov student hands since year 2013 on Reddit.
+
+* "Scent marking, also known as territorial marking or spraying when this involves urination, is a behaviour used by animals to identify their territory. Most commonly, this is accomplished by depositing strong-smelling substances contained in the urine, faeces, or, from specialised scent glands located on various areas of the body." https://en.wikipedia.org/wiki/Territory_(animal)#Scent_marking
