@@ -407,5 +407,7 @@ ANSWER: The Reddit commenting community who since June 16, 2015 for nearly ELEVE
 
 REDDIT MEDIA CULTISTS AVOID NONFICTION SERIOUS RELEVANT ON-TOPIC BOOKS ABOUT TWITTER MUSK MEDIA CULTS. This is a Twitter screen shot (Elon Musk platform) on Reddit /r/All front page.
 
+https://old.reddit.com/r/clevercomebacks/comments/1rbpded/you_dont_hate_republicans_enough/o6sh18j/
 
+I've seen media that makes the front page of Reddit. I've seen fiction outsell nonfiction time and time again. I've seen people avoid Neil Postman's nonfiction education for the general public on media ecology so people would be self-aware of their own compulsive electric media behaviors. FICTION_OUTSELLS_NONFICTION and left-right brain rot abounds. Simplistic thinking and message patterns of back and forth platform to platform feedback loops of right to left, left to right. Olympics sports mentality in this mess too. Fandoms. FEEDBACK_LOOP_MEDIA_CULTS_PLATFORM_TO_PLATFORM_MOCKERY_USA
 
