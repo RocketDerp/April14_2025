@@ -414,3 +414,9 @@ I've seen media that makes the front page of Reddit. I've seen fiction outsell n
 https://old.reddit.com/r/clevercomebacks/comments/1rbpded/you_dont_hate_republicans_enough/o6sk7ka/
 
 A Twitter image on front page of Reddit. Extreme short-length comment message "Are the seething leftists in the room with us?" of under 60 characters long messaging, not even hitting the 160 length limit of old-school Twitter. I see a cult of Twitter screenshots on Reddit, a cult of mocking and mockery leadership. Elon Musk owns the hearts and minds of the Reddit cults. BILLIONAIRE_MIND_VIRUS to go back and forth "left vs. right" in satire, mocking, joking, sarcasm, irony, etc, etc, etc. RESISTING_WHAT_EXACTLY - this is MAGA values of low-effort anti-nonfiction anti-education anti-teaching free time and spare time spent engaging TRICKLE_DOWN_MEDIA from billionaires and television owners / content creator media empire owners. Reddit users are the fandom to "The Hunger Games" of bullshit leaders creating content that billionaires trickle down to Reddit audience.  
+
+https://old.reddit.com/r/clevercomebacks/comments/1rbpded/you_dont_hate_republicans_enough/o6siats/
+
+TRICKLE_DOWN_CONTENT (Billionaires "Trickle Down Economics" of images) of "The Hunger Games" for media cultists of sitting on their ass thoughtlessly observing athletic people do physical movement as fed by the billionaire global media systems all the way across the world. Reddit media cult image cultists find Neil Postman's nonfiction education on media addictions and amusements from year 1985 NOT_GOOD_ENOUGH 
+
+"Farming engagement through hate, through division." - HATE_MOTIVATED_ECONOMY_HATE_AS_A_VIRTUE_SIGNALING - the Elon Musk anti-empathy mind-virus affairs. "Destroying the Woke Virus" in the mindsets of Twitter screenshot consumers. SEE_ALSO https://www.lemonde.fr/en/international/article/2024/08/13/elon-musk-s-ambition-repopulating-the-planet-and-destroying-the-woke-virus_6714239_4.html
