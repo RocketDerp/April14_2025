@@ -250,3 +250,8 @@ Social post { https://autistics.life/@RoundSparrow/116112139434739159 https://bs
 https://old.reddit.com/r/JournalismNews/comments/1rb4j0p/trump_mercilessly_mocked_over_global_tariff/o6on2zd/
 
 Loves it, TRUMP_FANDOM that there is bullshit all the time to be excited about with /r/All front page postings every hour under Donald Trump leadership. As for the posting itself, the title, FAITH_IN_MOCKING - Total Mockery of always *mock harder* when Surkovian techniques are encountered. Surkov won since March 2013.
+
+https://old.reddit.com/r/JournalismNews/comments/1rb4j0p/trump_mercilessly_mocked_over_global_tariff/o6ou0iy/
+
+1 month Reddit account. A fan of humiliation leadership signals that replies as soon as a Trump posting appears on media systems. Trump dominates society with media empires and Reddit fandom of media content flocks.
+
