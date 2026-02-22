@@ -280,6 +280,8 @@ Celebrity cult leaders, Nicki Minaj are impressed with the cult leadership of Je
 
 https://old.reddit.com/r/MurderedByWords/comments/1rbg8b9/she_wanted_amen_she_got_annihilated/o6qoe2r/
 
+<img width="1445" height="279" alt="image" src="https://github.com/user-attachments/assets/0a7a4128-a334-4b07-b070-4b9207fbadd1" />
+
 GULLIBLE_FANDOM on Reddit. Behaving with extreme recency bias. The constantly streaming meme programs on Reddit wipe out memory of Trump's total domination of media culture since June 2015. First, this topic has very little to do with removing Trump from power and turning life around away from the self-harm that the MAGA movement / ICE has been... it's just celebrity singer and celebrity actor and famous icon book. Second, this popular Reddit comment show the brain rot of We The People who encounter touch devices to consume media.
 
 https://old.reddit.com/r/MurderedByWords/comments/1rbg8b9/she_wanted_amen_she_got_annihilated/o6qovbk/
@@ -301,3 +303,5 @@ Reddit comment creators and comment votes reveal a cult behavior unlike any I ha
 The Trump brand, the signing of Holy Bible, the building markings, the golf course markings... Territorial. "Golf of America", not Mexico. Raping Canada and Greenland as 51st 52nd states... Reddit does not see the metaphorical scent that Trump has with every image that appears on /r/All of Reddit itself. The cult of hate. The media cult of mockery. Eating right out of Surkov student hands since year 2013 on Reddit.
 
 * "Scent marking, also known as territorial marking or spraying when this involves urination, is a behaviour used by animals to identify their territory. Most commonly, this is accomplished by depositing strong-smelling substances contained in the urine, faeces, or, from specialised scent glands located on various areas of the body." https://en.wikipedia.org/wiki/Territory_(animal)#Scent_marking
+
+Social post { https://autistics.life/@RoundSparrow/116114713473782463 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfhd7zpcec22 }
