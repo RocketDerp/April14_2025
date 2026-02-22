@@ -983,3 +983,7 @@ FAITH_IN_HATE and anti-MLK Jr society of Reddit commenting. Today is Sunday, and
 https://old.reddit.com/r/MurderedByWords/comments/1rbti7e/you_dont_hate_republicans_enough/o6tggko/
 
 This whole posting, including the Reddit user created "Hate Republicans enough" message, is HATE_HARDER religion teaching on Sunday. All religions are fiction, there is no supernatural. But there are clergy who preach the messages of competitive hate. HATE_FOR_HATE  
+
+https://old.reddit.com/r/TwoXChromosomes/comments/1rbu75d/if_i_was_a_woman_i_would_be_the_kind_of_woman/o6tlgvq/
+
+CHOICE_MARRIAGE_HONESTY 
