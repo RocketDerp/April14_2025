@@ -910,3 +910,7 @@ World Money as tool of Hate Affairs
 https://old.reddit.com/r/worldnews/comments/1rbj6lt/greenland_does_not_need_us_hospital_boat_sent_by/o6ra2x0/
 
 MAXIMUM_PUTINIZATION
+
+https://old.reddit.com/r/TrendoraX/comments/1rblrxc/agree_disagree/o6rpu41/
+
+Front page of Reddit on Sunday morning, church day. Old men who hang to power. Yahweh, Jesus, Allah. RELIGION_CULTS_MONOMYTH_PROGRAMMING - go read about Malala and what the old men decided in Pakistan in year 2008, 2009, 2010, 2011, 2012. Afghanistan...
