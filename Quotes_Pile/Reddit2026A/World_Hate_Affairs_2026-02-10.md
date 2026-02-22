@@ -922,3 +922,14 @@ https://old.reddit.com/r/AskBrits/comments/1rbky3b/are_brits_fully_aware_of_fara
 https://old.reddit.com/r/AskBrits/comments/1rbky3b/are_brits_fully_aware_of_farages_links_to_maga/o6rhagp/
 
 MAXIMUM_PUTINIZATION of the world. "I’m in disbelief" - Reddit comment creator, posting creator. MIND_BLOWN_BY reality itself of Russia's War Against Reality since March of year 2013.
+
+https://old.reddit.com/r/AskBrits/comments/1rbky3b/are_brits_fully_aware_of_farages_links_to_maga/o6rsa0n/
+
+BRAIN_ROT_SOCIETY_47
+
+https://old.reddit.com/r/AskBrits/comments/1rbky3b/are_brits_fully_aware_of_farages_links_to_maga/o6sdnau/
+
+"LOL" opening. AMUSING_ZOMBIES abound. "a few more councillors on the far-right have now joined" so much brain rot caused by the programmed "left-right" mindsets. We have run that globally into the ground. Fiction vs nonfiction is more the concern. Putinism is fiction addictions put first and foremost as leadership signaling.
+
+
+
