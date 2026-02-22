@@ -423,8 +423,8 @@ TRICKLE_DOWN_CONTENT (Billionaires "Trickle Down Economics" of images) of "The H
 
 https://old.reddit.com/r/law/comments/1rbo8rs/trump_calls_for_netflix_to_fire_susan_rice_after/o6s8ppc/
 
-Yes. And Trump's content creation immediately makes the front page of the Reddit TRUMP_FANDOM media platform. The cultists of Reality TV, "The Apprentice" - this is Trump's most famous fiction content creation. His Tony Clifton character line:
+Yes. And Trump's content creation immediately makes the front page of the Reddit TRUMP_FANDOM media platform. The cultists of Reality TV, "The Apprentice" - this is Trump's most famous fiction content creation. Trump's **Tony Clifton character** catchphrase-line (being delivered to Susan Rice now):
 
-* Quote ::: The popularity of the show led to Trump becoming known for his fateful catchphrase, "You're fired!" and for the emergence of "Trumponomics", a "portmanteau of Donald Trump and economics initially spelled 'Trump-Onomics' (2004), \[which\] started out as a bland managerial concept on cable TV, meant to convey the notion that 'impressing the boss' was the only way to 'climb the corporate ladder'." ::: https://en.Wikipedia.org/wiki/The_Apprentice_(American_TV_series)
+* Quote ::: The popularity of the show led to Trump becoming known for his fateful catchphrase, **"You're fired!"** and for the emergence of "Trumponomics", a "portmanteau of Donald Trump and economics initially spelled 'Trump-Onomics' (2004), \[which\] started out as a bland managerial concept on cable TV, meant to convey the notion that 'impressing the boss' was the only way to 'climb the corporate ladder'." ::: https://en.Wikipedia.org/wiki/The_Apprentice_(American_TV_series)
 
 Donald Trump celebrity, Donald Trump pop star, Netflix media, Streaming medium, Truth Social streaming memes, Reddit commenting about Netflix and Trumpism... "EVERYTHING IS MEDIA ECOLOGY", SEE_ALSO https://GitHub.com/RocketDerp/April14_2025/blob/main/Media_Ecology/Everything_is_ME.md
