@@ -378,3 +378,10 @@ https://old.reddit.com/r/space/comments/1rbl8vs/nasa_reacts_to_donald_trumps_ufo
 
 SUPER_HYPER_NORMAL
 
+https://old.reddit.com/r/PublicFreakout/comments/1rbnnm8/i_am_allowed_to_destroy_a_country_i_am_even/o6s1ngt/
+
+<img width="1329" height="355" alt="image" src="https://github.com/user-attachments/assets/2c4daf7d-ec1c-4019-99ae-6791052b7e43" />
+
+"and look at where we are" - yes LOOK. Top-upvoted most popular comment on /r/All front page of Reddit social on a Sunday church time. We are in a media cult, fiction cult, just like The Bible is a fiction media source people love more than human persons (the "1 John 4:20" Bible verse **crisis** of learning, you ain't seen the *character God* IRL). "and look at where we are" February 2026. Drowning in Twitter-length low-effort commenting messages. An entire population glued to smartphones while avoiding nonfiction serious relevant books on paper. IGNORANCE_CELEBRATIONS are where We The People are. Trump is a symptom of brain-rot smartphone addictions, including President Trump himself a HDTV Fox News and Twitter addict. Surkov won since March of year 2013.
+
+The TRUMP_FANDOM on Reddit follows the leader Trump with nicknames like "little Donnie" on the celebrity hate-watching media cult, Reddit platform. SEE_ALSO January 5, 2018 CNN https://www.CNN.com/2018/01/05/politics/trump-nickname-rankings "Definitive rankings of Trump's nicknames for enemies"
