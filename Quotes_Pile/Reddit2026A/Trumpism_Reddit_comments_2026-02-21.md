@@ -244,5 +244,6 @@ ANSWER:
 
 OPERA_A Released: year 1973 "The Dirty Jobs" that Trump brown-nosers, Billionaire suck-ups do. I was born in Columbus, Georgia. https://www.youtube.com/watch?v=L0bqmIBczJI Lyrics: "I take miners to work, but the pits all closed today. It's easy to see that you are one of us! **Ain't it funny how we all seem to look the same?**"
 
-Social post { https://autistics.life/@RoundSparrow/116112139434739159 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfg6rnayxk2z }
+NEW_OPERA_NAME #ComplainYou #YouDisappear    
+Social post { https://autistics.life/@RoundSparrow/116112139434739159 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfg6rnayxk2z }   
 
