@@ -969,3 +969,7 @@ World Wide Web Hate Affairs. TOXIC_POPULARITY in the Putinism era of the Saint P
 https://old.reddit.com/r/memes/comments/1rbp7b2/are_billionaires_the_new_royalty/o6siq59/
 
 One of Reddit communities long-held faiths is "Fuck-You Money", when a celebrity / sports star - can say Fuck-You to coach or businessman. And billionaires do that to PLURIBUS We All, We The People All. If you are a celebrity, Reddit audience will form to watch the billionaires and their sex lives. OBSERVE that there is no call to remove Donald Trump from office on USA-centric Reddit. There is no REDDIT_BLACKOUT calls or promotion of serious nonfiction books from Dr. Bandy X Lee to educate and all get on the same page of the mental health crisis. Instead, commenting cults on Reddit want to keep the shit-show going to have a steady stream of TRICKLE_DOWN_CONTENT from billionaires ("Trickle Down Economics" of media empires feeding to the poor people on Reddit apps).
+
+https://old.reddit.com/r/therewasanattempt/comments/1rbobie/to_win_the_gold_while_supporting_genocide/o6s9t9u/
+
+Top most-upvoted popular comment message. HATE_HARDER cult, faith in hate as religion on Reddit. The Torah, Quran are all science fiction, and Reddit fandom is to promote hate as the answer to hate. Clergy promotes hate, Reddit community promoting hate. United fain in hate.
