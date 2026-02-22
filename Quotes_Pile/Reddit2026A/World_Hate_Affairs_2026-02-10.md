@@ -934,3 +934,12 @@ https://old.reddit.com/r/AskBrits/comments/1rbky3b/are_brits_fully_aware_of_fara
 https://old.reddit.com/r/AskBrits/comments/1rbky3b/are_brits_fully_aware_of_farages_links_to_maga/o6ricst/
 
 "I find it hilarious when Musk is saying" MUSK_FANDOM hate-watching media fandom of Elon Musk. https://en.wikipedia.org/wiki/Hate-watching  PEOPLE_LOVE_COMEDY_MEDIA_CONTENT_MORE_THAN_PLURIBUS_HUMANISM is at the heart of Surkovian information warfare and Surkov governing methods / Surkov media techniques.
+
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1rbpww6/hatred_taught_to_children/o6sl82b/
+
+World hate children affairs. Predatory child abuse by power-seeking cults. FUNERAL_RITUALS_WAKES    
+
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1rbpww6/hatred_taught_to_children/o6slqc2/
+
+OUT_GROUP_HATE
+
