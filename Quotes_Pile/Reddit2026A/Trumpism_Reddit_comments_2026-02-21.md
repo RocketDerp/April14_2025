@@ -278,4 +278,6 @@ The social force of celebrity. Sunday morning this is on front page of Reddit, c
 
 Celebrity cult leaders, Nicki Minaj are impressed with the cult leadership of Jesus fiction storytelling / song stories of Jesus / poetry of Jesus stories. And Trump has a cult audience right on Reddit comment section that will not REMOVE the cult leader, because the Reddit media cult fandom of Trump desires and craves the mockery leadership Trump provides. Mocking itself is the stimulation of Reddit community. Mocking Trump, mocking MAGA, mocking Elon Musk, etc, etc.
 
+https://old.reddit.com/r/MurderedByWords/comments/1rbg8b9/she_wanted_amen_she_got_annihilated/o6qoe2r/
 
+GULLIBLE_FANDOM on Reddit. Behaving with extreme recency bias. The constantly streaming meme programs on Reddit wipe out memory of Trump's total domination of media culture since June 2015. First, this topic has very little to do with removing Trump from power and turning life around away from the self-harm that the MAGA movement / ICE has been... it's just celebrity singer and celebrity actor and famous icon book. Second, this popular Reddit comment show the brain rot of We The People who encounter touch devices to consume media.
