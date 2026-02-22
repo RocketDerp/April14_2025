@@ -193,3 +193,7 @@ Entertained MAGA_FANDOM on Reddit. Instead or organizing nonfiction cult deprogr
 https://old.reddit.com/r/Fauxmoi/comments/1rau0mb/pope_leo_sets_aside_the_invitation_to_the_july/o6m5xv5/
 
 JD Vance has a huge Reddit fan base. Hate-watching aficionados. SOCIAL_CULT_HATE_WATCHING_FANDOM
+
+https://old.reddit.com/r/Fauxmoi/comments/1rau0mb/pope_leo_sets_aside_the_invitation_to_the_july/o6m6916/
+
+FAITH_IN_HATE - constantly expanding and growing more hate. JD Vance is a leader, and people on Reddit follow JD Vance's hate values and hate signals.
