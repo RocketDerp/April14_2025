@@ -400,3 +400,12 @@ DENIAL_ABOUNDS - psychological denial. People who are cults to fiction content, 
 
 * “The human brain can protect us from seeing and feeling what it believes may be too uncomfortable for us to tolerate. It can lead us to deny, defend, minimize, or rationalize away something that doesn’t fit our worldview.”
 ― Dr. Bandy X Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. Published **October 3, 2017**. Page 273. Chapter "TRUMP'S DADDY ISSUES"](https://books.google.com/books?id=g0c4DwAAQBAJ&pg=PA273&dq=%E2%80%9CThe+human+brain+can+protect+us+from+seeing+and+feeling+what+it+believes+may+be+too+uncomfortable%22&hl=en&newbks=1&newbks_redir=1&sa=X)
+
+https://old.reddit.com/r/clevercomebacks/comments/1rbpded/you_dont_hate_republicans_enough/o6sgl40/
+
+ANSWER: The Reddit commenting community who since June 16, 2015 for nearly ELEVEN YEARS, has prized right-wing Trumpism and MAGA growth as a newfound source of entertainment and amusement. Top-voted Reddit comment, most popular. SOCIAL_CULT_HATE_WATCHING_FANDOM ALWAYS AVOIDED: nonfiction relevant serious books on paper. Dr. Bandy X Lee's published October 3, 2017. Always avoided by Reddit fandom of MAGA content: Jen Senko's nonfiction film and book since year 2015 about systemic organized brainwashing of media consumers. https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad
+
+REDDIT MEDIA CULTISTS AVOID NONFICTION SERIOUS RELEVANT ON-TOPIC BOOKS ABOUT TWITTER MUSK MEDIA CULTS. This is a Twitter screen shot (Elon Musk platform) on Reddit /r/All front page.
+
+
+
