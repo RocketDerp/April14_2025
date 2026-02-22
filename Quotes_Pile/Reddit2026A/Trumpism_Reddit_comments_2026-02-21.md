@@ -490,4 +490,7 @@ https://old.reddit.com/r/law/comments/1rbqih2/they_ransacked_the_us_capitol_and_
 
 10 month Reddit account created posting, made a comment that was top-upvoted, on front page of /r/All REDDIT_TOP_COMMENT_YOUNG_ACCOUNT the comment does not make any attempt to deal with the intellectual corruption of the USA mass man. It just routinely reports these matters as content for discussion and commenting. Further normalizing January 6, 2021 events as just more routine Reddit discourse topics.
 
+https://old.reddit.com/r/law/comments/1rbqih2/they_ransacked_the_us_capitol_and_want_the/o6ss8ba/
+
+CALL_TO_INTELLECTUAL_ACTION_PLAN - but where is the meeting place? Where is organization of this action plan? Or is it just more social media commenting that isn't very serious white people treat fiction GTA6 storytelling more seriously on Reddit than they do their own nation, the USA society?
 
