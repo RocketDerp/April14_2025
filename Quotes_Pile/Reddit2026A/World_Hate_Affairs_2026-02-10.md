@@ -1032,3 +1032,6 @@ https://old.reddit.com/r/worldnews/comments/1rbtlgn/mexican_cartel_leader_nemesi
 
 https://old.reddit.com/r/pics/comments/1rbvb8y/oc_from_the_beach_in_puerto_vallarta_this_morning/o6txdvh/
 
+https://old.reddit.com/r/worldnews/comments/1rbwzot/puerto_vallarta_mexico_under_siege_after_army/o6u9igu/
+
+HATE_MOTIVATED_ECONOMY_HATE_AS_A_VIRTUE_SIGNALING
