@@ -1019,3 +1019,14 @@ https://old.reddit.com/r/news/comments/1rbsweu/mexican_army_kills_leader_of_jali
 https://old.reddit.com/r/worldnews/comments/1rbtlgn/mexican_cartel_leader_nemesio_el_mencho_oseguera/o6to7sn/
 
 3 month Reddit account. Top-upvoted, most popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+
+https://old.reddit.com/r/worldnews/comments/1rbtlgn/mexican_cartel_leader_nemesio_el_mencho_oseguera/o6tnav6/
+
+https://old.reddit.com/r/worldnews/comments/1rbtlgn/mexican_cartel_leader_nemesio_el_mencho_oseguera/o6tirsh/
+
+https://old.reddit.com/r/worldnews/comments/1rbtlgn/mexican_cartel_leader_nemesio_el_mencho_oseguera/o6tu79y/
+
+https://old.reddit.com/r/worldnews/comments/1rbtlgn/mexican_cartel_leader_nemesio_el_mencho_oseguera/o6tmnc0/
+
+https://old.reddit.com/r/worldnews/comments/1rbtlgn/mexican_cartel_leader_nemesio_el_mencho_oseguera/o6tl715/
+
