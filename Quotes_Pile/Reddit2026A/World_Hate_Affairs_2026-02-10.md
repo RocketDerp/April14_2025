@@ -1005,3 +1005,14 @@ https://old.reddit.com/r/CrazyFuckingVideos/comments/1rbwpsv/mexico_after_el_men
 https://old.reddit.com/r/CrazyFuckingVideos/comments/1rbwpsv/mexico_after_el_menchos_fall_today/o6u5pxy/
 
 https://old.reddit.com/r/CrazyFuckingVideos/comments/1rbwpsv/mexico_after_el_menchos_fall_today/o6u3spu/
+
+https://old.reddit.com/r/news/comments/1rbsweu/mexican_army_kills_leader_of_jalisco_new/o6tlqm1/
+
+https://old.reddit.com/r/news/comments/1rbsweu/mexican_army_kills_leader_of_jalisco_new/o6tez7w/
+
+https://old.reddit.com/r/news/comments/1rbsweu/mexican_army_kills_leader_of_jalisco_new/o6tft25/
+
+https://old.reddit.com/r/news/comments/1rbsweu/mexican_army_kills_leader_of_jalisco_new/o6temtc/
+
+https://old.reddit.com/r/news/comments/1rbsweu/mexican_army_kills_leader_of_jalisco_new/o6tvsoq/
+
