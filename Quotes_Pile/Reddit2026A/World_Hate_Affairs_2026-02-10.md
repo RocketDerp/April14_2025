@@ -1042,3 +1042,8 @@ MAXIMUM_PUTINIZATION since year 2013. Hate leadership keeps proving to work. Peo
 
 * “How is it that hardly any major religion has looked at science and concluded, “This is better than we thought! The Universe is much bigger than our prophets said, grander, more subtle, more elegant?” Instead they say, “No, no, no! My god is a little god, and I want him to stay that way.” A religion, old or new, that stressed the magnificence of the Universe as revealed by modern science might be able to draw forth reserves of reverence and awe hardly tapped by the conventional faiths.” ― Carl Sagan, Pale Blue Dot: A Vision of the Human Future in Space. Year 1994.
 
+https://old.reddit.com/r/worldnews/comments/1rbwzot/puerto_vallarta_mexico_under_siege_after_army/o6u5xdw/
+
+6 month Reddit account.
+
+https://old.reddit.com/r/worldnews/comments/1rbwzot/puerto_vallarta_mexico_under_siege_after_army/o6uardl/
