@@ -364,3 +364,8 @@ OPERA_A REPEAT_TRACK https://www.youtube.com/watch?v=eAyEb36SJYs 164,120 views J
 
 NEW_OPERA_NAME #PleaseTellMeWhatWe   
 
+https://old.reddit.com/r/MadeMeSmile/comments/1rbok59/texas_now_requires_all_public_school_classrooms/o6sdako/
+
+MONOMYTH_VS_MONOMYTH COMPARATIVE_MYTHOLOGY 
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mfhl72a5bc2z https://autistics.life/@RoundSparrow/116115263961182653 }
