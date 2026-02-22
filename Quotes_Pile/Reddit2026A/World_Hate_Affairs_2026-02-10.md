@@ -931,5 +931,6 @@ https://old.reddit.com/r/AskBrits/comments/1rbky3b/are_brits_fully_aware_of_fara
 
 "LOL" opening. AMUSING_ZOMBIES abound. "a few more councillors on the far-right have now joined" so much brain rot caused by the programmed "left-right" mindsets. We have run that globally into the ground. Fiction vs nonfiction is more the concern. Putinism is fiction addictions put first and foremost as leadership signaling.
 
+https://old.reddit.com/r/AskBrits/comments/1rbky3b/are_brits_fully_aware_of_farages_links_to_maga/o6ricst/
 
-
+"I find it hilarious when Musk is saying" MUSK_FANDOM hate-watching media fandom of Elon Musk. https://en.wikipedia.org/wiki/Hate-watching  PEOPLE_LOVE_COMEDY_MEDIA_CONTENT_MORE_THAN_PLURIBUS_HUMANISM is at the heart of Surkovian information warfare and Surkov governing methods / Surkov media techniques.
