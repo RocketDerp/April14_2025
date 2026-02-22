@@ -809,3 +809,8 @@ https://old.reddit.com/r/theamazingdigitalciru/comments/1rb94os/wow_just_wow_thi
 
 https://old.reddit.com/r/CFB/comments/1rb8ocu/wlky_former_purdue_wr_rondale_moore_dies_at_25/o6pd0pl/
 
+https://old.reddit.com/r/technology/comments/1rbgkot/the_us_spent_30_billion_to_ditch_textbooks_for/o6qtgeq/
+
+BRAIN_ROT_SOCIETY_47 
+
+Social post { https://autistics.life/@RoundSparrow/116114790537999880 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfheigijs22k }
