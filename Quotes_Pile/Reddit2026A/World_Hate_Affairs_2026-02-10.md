@@ -1035,3 +1035,10 @@ https://old.reddit.com/r/pics/comments/1rbvb8y/oc_from_the_beach_in_puerto_valla
 https://old.reddit.com/r/worldnews/comments/1rbwzot/puerto_vallarta_mexico_under_siege_after_army/o6u9igu/
 
 HATE_MOTIVATED_ECONOMY_HATE_AS_A_VIRTUE_SIGNALING
+
+https://old.reddit.com/r/worldnews/comments/1rbwzot/puerto_vallarta_mexico_under_siege_after_army/o6u7pv9/
+
+MAXIMUM_PUTINIZATION since year 2013. Hate leadership keeps proving to work. People prize their ex-lover hate more than they prize preachy morality learning and authentic growth. Global hate affairs is anti-expansion of compassion and love. MONOMYTH_EXPANSION avoided. Lots of avoidance of Finnegans Wake expanding the fiction realms.
+
+* “How is it that hardly any major religion has looked at science and concluded, “This is better than we thought! The Universe is much bigger than our prophets said, grander, more subtle, more elegant?” Instead they say, “No, no, no! My god is a little god, and I want him to stay that way.” A religion, old or new, that stressed the magnificence of the Universe as revealed by modern science might be able to draw forth reserves of reverence and awe hardly tapped by the conventional faiths.” ― Carl Sagan, Pale Blue Dot: A Vision of the Human Future in Space. Year 1994.
+
