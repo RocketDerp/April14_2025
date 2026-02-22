@@ -497,3 +497,8 @@ CALL_TO_INTELLECTUAL_ACTION_PLAN - but where is the meeting place? Where is orga
 https://old.reddit.com/r/law/comments/1rbqih2/they_ransacked_the_us_capitol_and_want_the/o6ss82l/
 
 Media addiction society from top to bottom since year 2013. Media cults vs. media cults from top to bottom of society, age 12 and above. Surkov won, the Saint Petersburg Internet Research Agency has won an intellectual war of wits against the tiny-short message thinking patterns of USA. The popular upvoted "Grifting from top to bottom" comment reports the facts like routine news reporting, like a news report reader. ROUTINE_NO_NEED_TO_RESIST_OR_ORGANIZE_INTELLECTUAL_UPRISING
+
+https://old.reddit.com/r/law/comments/1rbqih2/they_ransacked_the_us_capitol_and_want_the/o6svvef/
+
+MEDIA_REGURGITATION gullible people serving the media overlords, repeating the MAGA talking points, as programmed by the billionaire media systems. TRICKLE_DOWN_TALKING_POINTS_TO_SOCIETY - media cult on Reddit memorizes their talking-point lines. Claims they are joking, sarcasm, joke satire. Comedy-washing abounds. OBSERVE that the avoidance of nonfiction books on paper relevant to the topics are avoided. That is the REAL TRUTH of Reddit behavior, avoidance of nonfiction serious topics. Mindsets as programmed by billionaire media systems.
+
