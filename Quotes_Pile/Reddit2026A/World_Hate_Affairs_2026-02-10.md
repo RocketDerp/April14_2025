@@ -1077,3 +1077,9 @@ https://old.reddit.com/r/Costco/comments/1rbydyt/the_costo_in_puerto_vallarta_is
 https://old.reddit.com/r/Costco/comments/1rbydyt/the_costo_in_puerto_vallarta_is_burning_down/o6uh4zn/
 
 MOB_MENTALITY_FIRE_DRILLS OUTBREAKS_OF_MOB_CULT_BEHAVIORS GANG_MENTALITY_OUTBREAKS are probably the most important teachings in current times. How not to go viral when terrorism and hate mindsets break out in mob mentality, gang mentality.
+
+https://old.reddit.com/r/CringeTikToks/comments/1rbwzo2/mexico_is_under_attack_right_now_because_a_cartel/o6ud0ij/
+
+https://old.reddit.com/r/CringeTikToks/comments/1rbwzo2/mexico_is_under_attack_right_now_because_a_cartel/o6u5xuc/
+
+10 month Reddit account. HATE_MOTIVATED_ECONOMY_HATE_AS_A_VIRTUE_SIGNALING
