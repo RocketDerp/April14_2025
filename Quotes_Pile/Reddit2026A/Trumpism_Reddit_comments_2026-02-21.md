@@ -459,3 +459,9 @@ https://old.reddit.com/r/FascinatingAsFuck/comments/1rbrbcu/corporate_media_is_n
 
 Reddit is Corporate America. Since March 21, 2024 - right as the November 2024 POTUS election was hot. https://www.cNBC.com/2024/03/20/reddit-prices-ipo-at-34-per-share-sources-say.html Reddit community is CONDITIONED_OPPOSITION with secret masked police removing content and removing users.
 
+https://old.reddit.com/r/circled/comments/1rbs3af/donald_trumps_parents_this_explains_everything/o6t3gyz/
+
+TRUMP_FANDOM front page of Reddit. Fans of the Trump family brand on Reddit media. FAKE_RESISTANCE - instead of REMOVING Donald Trump from power, people spend their time on social machines doing low-effort trivia learning. AVOIDED BY REDDIT community is Dr. Bandy X Lee's leadership since October 3, 2017 nonfiction publication for the general public education on the mental health and "Daddy" issues of Donald Trump. There is an entire chapter in the book "TRUMP'S DADDY ISSUES".
+
+* “The human brain can protect us from seeing and feeling what it believes may be too uncomfortable for us to tolerate. It can lead us to deny, defend, minimize, or rationalize away something that doesn’t fit our worldview.”
+― Dr. Bandy X Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. Published **October 3, 2017**. Page 273. Chapter "TRUMP'S DADDY ISSUES"](https://books.google.com/books?id=g0c4DwAAQBAJ&pg=PA273&dq=%E2%80%9CThe+human+brain+can+protect+us+from+seeing+and+feeling+what+it+believes+may+be+too+uncomfortable%22&hl=en&newbks=1&newbks_redir=1&sa=X)
