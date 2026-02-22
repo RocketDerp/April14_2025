@@ -450,3 +450,11 @@ GULLIBLE_FANDOM of White House on Reddit commenting section. Gullible people who
 Exactly the kind of technique that the TSA is doing with world travel affairs. Self-harm to USA as a method of control.
 
 * "What this film is going to suggest is that that defeatist response has become a central part of a new system of political control. And to understand how this is happening, you have to look to Russia, to a man called Vladislav Surkov, who is a hero of our time." - December 31, 2014. year 2014. BBC news. https://www.youtube.com/watch?v=h9_L9GRRsQo
+
+https://old.reddit.com/r/FascinatingAsFuck/comments/1rbrbcu/corporate_media_is_nothing_but_class_warefare/o6sxehs/
+
+"EVERYTHING IS MEDIA ECOLOGY", SEE_ALSO https://GitHub.com/RocketDerp/April14_2025/blob/main/Media_Ecology/Everything_is_ME.md
+
+https://old.reddit.com/r/FascinatingAsFuck/comments/1rbrbcu/corporate_media_is_nothing_but_class_warefare/o6t6zmx/
+
+Reddit is Corporate America. Since March 21, 2024 - right as the November 2024 POTUS election was hot. https://www.cNBC.com/2024/03/20/reddit-prices-ipo-at-34-per-share-sources-say.html
