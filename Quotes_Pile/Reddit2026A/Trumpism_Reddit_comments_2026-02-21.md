@@ -485,3 +485,9 @@ This whole posting is MUSK_FANDOM for Reddit audiences. Anti-FAQ anti-Wiki comme
 https://old.reddit.com/r/Knowledge_Community/comments/1rbn84k/yikes_the_youth_are_getting_a_bit_uppity_about/o6s2yeb/
 
 COMPREHENDING_UNDERSTANDING people commenting on Reddit don't get that they are in a media cult, nor do they understand the Levant science fiction media cult fandoms. We need to teach **comparative mythology** and Marshall McLuhan to all people. The Levant science fiction trilogy has media outlets all over the planet. Mosque, Church, Temple, Synagogue media venues. Reddit media venue app consumers don't understand media cults because they are inside one they don't even recognize.
+
+https://old.reddit.com/r/law/comments/1rbqih2/they_ransacked_the_us_capitol_and_want_the/o6spwxh/
+
+10 month Reddit account created posting, made a comment that was top-upvoted, on front page of /r/All REDDIT_TOP_COMMENT_YOUNG_ACCOUNT the comment does not make any attempt to deal with the intellectual corruption of the USA mass man. It just routinely reports these matters as content for discussion and commenting. Further normalizing January 6, 2021 events as just more routine Reddit discourse topics.
+
+
