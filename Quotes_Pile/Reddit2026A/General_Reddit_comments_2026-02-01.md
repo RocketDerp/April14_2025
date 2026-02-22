@@ -777,4 +777,12 @@ https://old.reddit.com/r/TrendoraX/comments/1rat4ev/lauren_boebert_wants_the_ten
 
 27 day Reddit account. 4th most upvoted root comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
 
+https://old.reddit.com/r/theamazingdigitalciru/comments/1rb94os/wow_just_wow_this_is_absolutely_disgusting_wrong/o6pb7wi/
+
+https://old.reddit.com/r/theamazingdigitalciru/comments/1rb94os/wow_just_wow_this_is_absolutely_disgusting_wrong/o6pbwnd/
+
+https://old.reddit.com/r/theamazingdigitalciru/comments/1rb94os/wow_just_wow_this_is_absolutely_disgusting_wrong/o6pb7uq/
+
+https://old.reddit.com/r/theamazingdigitalciru/comments/1rb94os/wow_just_wow_this_is_absolutely_disgusting_wrong/o6pc2za/
+
 
