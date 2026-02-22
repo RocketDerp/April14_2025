@@ -369,3 +369,12 @@ https://old.reddit.com/r/MadeMeSmile/comments/1rbok59/texas_now_requires_all_pub
 MONOMYTH_VS_MONOMYTH COMPARATIVE_MYTHOLOGY 
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mfhl72a5bc2z https://autistics.life/@RoundSparrow/116115263961182653 }
+
+https://old.reddit.com/r/space/comments/1rbl8vs/nasa_reacts_to_donald_trumps_ufo_announcement/o6rmwhd/
+
+WAR_AGAINST_REALITY
+
+https://old.reddit.com/r/space/comments/1rbl8vs/nasa_reacts_to_donald_trumps_ufo_announcement/o6rwj4a/
+
+SUPER_HYPER_NORMAL
+
