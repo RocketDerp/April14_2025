@@ -1092,3 +1092,7 @@ https://old.reddit.com/r/PublicFreakout/comments/1rbxpkx/im_from_mexico_today_ma
 
 https://old.reddit.com/r/PublicFreakout/comments/1rbxpkx/im_from_mexico_today_maybe_is_the_worst_day_the/o6ud0jj/
 
+https://old.reddit.com/r/UrbanHell/comments/1rbuxyx/guadalajara_m%C3%A9xico/o6tvgm0/
+
+https://old.reddit.com/r/UrbanHell/comments/1rbuxyx/guadalajara_m%C3%A9xico/o6twgzt/
+
