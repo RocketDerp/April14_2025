@@ -321,3 +321,11 @@ https://old.reddit.com/r/Music/comments/1rbmv68/kid_rock_says_god_will_cut_down_
 MONOMYTH_VS_MONOMYTH Kid Rock music media monomyth cult vs. Bible monomyth media cult vs. Reddit media cult. Why is Reddit not teaching BIBLE_LITERACY of verse "1 John 4:20" and rescuing Kid Rock and his audience from such terrible reading of rock music lyrics and 2,000 year old Levant Bible stories both? "1 John 4:20" - You have never *seen God*, He is not going to smite your enemies. Reddit fandom to misunderstandings, the Kid Rock hate-watching fandom, also has this same literacy issues with Levant science fiction trilogy (Torah, Bible, Book of Mormon, Quran, etc) retcons.
 
 * “**Half the people in the world think** that the metaphors of their religious traditions, for example, are facts. And the other half contends that they are not facts at all. As a result we have people who consider themselves believers because they accept metaphors as facts, and we have others who classify themselves as atheists because they think religious metaphors are lies.” ― Joseph Campbell, Thou Art That: Transforming Religious Metaphor
+
+https://old.reddit.com/r/politics/comments/1rbjkf2/i_can_destroy_the_country_trumps_rant_after/o6r8rdi/
+
+"One would think that after such a statement, alarm bells would start ringing for all" - one would beg and plead that Reddit users with free time and spare time to comment day and night about every news report covering Donald J. Trump's statements and actions... that some would be alarmed enough to go to the nonfiction section of the public library and be more serious than Twitter-length commenting over and over. The Reddit comment talks about "Trump supporters" MEASURING_BAR_SO_LOW
+ , what about the nonfiction-avoiding community of Reddit right in front of you in the commenting section? 
+
+NOT_GOOD_ENOUGH why is Reddit commenting community avoiding nonfiction serious books on the USA crisis. Why is Dr. Bandy X Lee's 27 experts published October 3, 2017 not good enough to assert, repeat, and keep repeating until everyone is on the same serious **nonfiction learning** pages about Donald Trump?
+ 
