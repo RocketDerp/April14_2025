@@ -512,3 +512,7 @@ https://old.reddit.com/r/circled/comments/1rbpc5z/here_we_go_aliens_werent_good_
 https://old.reddit.com/r/politics/comments/1rbwm8c/a_voice_sounding_like_trump_called_into_cspan_and/o6u26h8/
 
 Manipulating the media. Proven or not, the audience believes Trump is fixated on media.  "EVERYTHING IS MEDIA ECOLOGY", SEE_ALSO https://GitHub.com/RocketDerp/April14_2025/blob/main/Media_Ecology/Everything_is_ME.md
+
+https://old.reddit.com/r/politics/comments/1rbwm8c/a_voice_sounding_like_trump_called_into_cspan_and/o6u2tqz/
+
+GULLIBLE_FANDOM  
