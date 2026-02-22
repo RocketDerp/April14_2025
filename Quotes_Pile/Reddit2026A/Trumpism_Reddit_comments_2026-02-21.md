@@ -348,4 +348,14 @@ https://old.reddit.com/r/politics/comments/1rbjkf2/i_can_destroy_the_country_tru
 
 DANGER_ALERT_CALL_TO_INTELLECTUAL_ARMS_BOOK_CRAM_SESSIONS Ok - where is the Bluesky and Reddit uprising? Why is my Bluesky feed and Reddit front page not full of calls for Trump's resignation? Why are all the news neetworks not covering a social media uprising? Why is the DANGER book published by Dr. Bandy X Lee with 27 authors since October 3, 2017 not being quoted constantly to raise alarm bells in specific nonfiction language to get everyone on the same page of DANGER? It's right in the title of her book! https://en.wikipedia.org/wiki/The_Dangerous_Case_of_Donald_Trump
 
+NEW_OPERA_NAME #AllowedToDestroy #OpenlyDeclaring   
 Social post { https://autistics.life/@RoundSparrow/116115052504480532 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfhi5xn5vk2t https://MidWest.Social/post/43786986 }
+
+https://old.reddit.com/r/politics/comments/1rbjkf2/i_can_destroy_the_country_trumps_rant_after/o6rd88w/
+
+<img width="1148" height="1154" alt="image" src="https://github.com/user-attachments/assets/f7c2b7b3-b0cb-4cf9-afcc-b8aafa22123c" />
+
+CIVIC_DUTY_WE_PEOPLE We The People have a civic duty to be serious about the situation and use all available free time and spare time to quote Dr. Bandy X Lee's nonfiction books. Dr. Lee assembled 27 writers on the mental health crisis and it was published October 3, 2017. Social media Reddit users need to be repeating it, over and over, quoting her nonfiction book with 27 authors!
+
+NEW_OPERA_NAME #DonaldTrumpAfter #DonaldTrumpAfterMath #IgnorantElectorate #ToFixAll   
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mfhj7wmaik2v https://autistics.life/@RoundSparrow/116115128091927878 }   
