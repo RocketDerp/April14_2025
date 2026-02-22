@@ -96,3 +96,7 @@ Mythology of sex outside marriage, modern birth control and casual hookups
 https://old.reddit.com/r/pics/comments/1r9y0ox/posters_made_by_students_to_promote_safe_sex/
 
 https://old.reddit.com/r/geography/comments/1rb1135/how_did_egypt_go_from_one_of_the_oldest_and/
+
+https://old.reddit.com/r/popculturechat/comments/1rb9tgl/cardi_b_on_ramadan_god_knew_not_to_make_me_no/
+
+Year 635 learning survival in the Levant wasteland without food... vs McDonald's fast food 24 hour delivery USA year 2026 Ramadan.
