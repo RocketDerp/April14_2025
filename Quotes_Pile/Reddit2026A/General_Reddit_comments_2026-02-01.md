@@ -822,3 +822,8 @@ MEDIA_ECOLOGY_LESSON "God" is a meme, Bible verse John 1:1, language *and ONLY l
 https://old.reddit.com/r/HouseOfTheDragon/comments/1rbp8ac/official_hbo_account_making_fun_of_breaking_bad/o6sfb7x/
 
 MEDIA_ECOLOGY_LESSON it is not just *any rage*, it is FICTION content. Breaking Bad is fiction fandom, Game of Thrones is fiction Fandom. HBO already knows: FICTION_VS_FICTION selling, Just as Rupert Murdoch knows in fiction vs fiction media platforms. SEE_ALSO https://GitHub.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Ted_Koppel.md
+
+https://old.reddit.com/r/whenthe/comments/1rbt045/theyre_the_real_circus/o6tatkh/
+
+One of the worst issues today is how many people believe this is "online behavior". The terminally Mosque-gong fandom did September 11, 2011 attacks, 9/11 attacks. They were "online media consumers", they were science fiction Mosque venue consumers. These behaviors of fiction fandom have been going on thousands of years. FICTION_VS_FICTION 
+
