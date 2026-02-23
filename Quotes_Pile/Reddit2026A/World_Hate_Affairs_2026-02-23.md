@@ -36,3 +36,8 @@ https://old.reddit.com/r/politics/comments/1rchae6/gunman_shot_dead_in_maralago_
 
 SUPER_HYPER_NORMAL aggressive profiteering off popularity of QAnon monomyth success and fantasy sex of wealthy men. Lifestyles of the rich and famous attraction.
 
+https://old.reddit.com/r/politics/comments/1rchae6/gunman_shot_dead_in_maralago_was_fixated_on/o6y6z4q/
+
+"Delusional" from Epstein media topics and MAGA media cult content. NOT_GOOD_ENOUGH for people on social media computers to cite NATO Breedlove on topic of organized information warfare. The consistent avoidance of serous nonfiction on Reddit commenting media enviornment. MASS_HALLUCINATIONS_SEPTEMBER_YEAR_2014_PUBLISHED   
+
+* "At the NATO summit in Wales last week, General Philip Breedlove, the military alliance’s top commander, made a bold declaration. Russia, he said, is waging “the most amazing information warfare blitzkrieg we have ever seen in the history of information warfare.” It was something of an underestimation. The new Russia doesn’t just deal in the petty disinformation, forgeries, lies, leaks, and cyber-sabotage usually associated with information warfare. It **reinvents reality, creating mass hallucinations**" - https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
