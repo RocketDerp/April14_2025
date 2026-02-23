@@ -31,3 +31,8 @@ Reddit users eat up the Saint Petersburg Internet Research Agency manipulation a
 https://old.reddit.com/r/politics/comments/1rchae6/gunman_shot_dead_in_maralago_was_fixated_on/o6y4qkp/
 
 Top-voted comment, most popular. EPSTEIN_FANDOM and MEDIA_ECOLOGY_OBSERVATION topics.
+
+https://old.reddit.com/r/politics/comments/1rchae6/gunman_shot_dead_in_maralago_was_fixated_on/o6y6n6z/
+
+SUPER_HYPER_NORMAL aggressive profiteering off popularity of QAnon monomyth success and fantasy sex of wealthy men. Lifestyles of the rich and famous attraction.
+
