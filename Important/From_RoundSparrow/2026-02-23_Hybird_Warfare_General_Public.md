@@ -92,3 +92,18 @@ https://autistics.life/@RoundSparrow/116120587070877350
 
 "Social media is the tool available to change the mind-set of masses. Hybrid war is an all-encompassing war which affects every aspect of the human society, to create panic which can only be achieved when the mind of the masses are targeted. Social media has the greatest potential in this regard. This medium can bring benefits out of proportion if utilized constructively. True and fair social media campaign provided at the appropriate time can change the mind-set of targeted audience and extend own point of view." https://Vocal.Media/journal/hybrid-warfare-vu2f08ow 
 * ASSERTION: **the inverse of this has proven far more true and popular**. And it is a major assertion of mine to constantly emphasize FICTION_OUTSELLS_NONFICTION - the monomyth patterns of science fiction leadership throughout history (as defined by James Joyce on page 581 of his year 1939 fiction book Finnegans Wake). 
+
+&nbsp;
+
+&nbsp;
+
+# Replies to my message
+
+I sent to all the e-mail addresses at the top of this page. I only got one automatic reply that the message was received.
+
+from:	KI Press <press@kyivindependent.com>    
+to:	circlebird12@gmail.com    
+date:	Feb 23, 2026, 9:48 AM   
+subject:	Thank you for your inquiry! Re: Assertion of the topic of hybrid warfare, organized manipulation of We The People. Described in year 2014, hybridwar "All Against All" 2026-02-23    
+mailed-by:	kyivindependent.com   
+signed-by:	kyivindependent-com.20230601.gappssmtp.com    
