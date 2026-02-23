@@ -1117,3 +1117,12 @@ https://old.reddit.com/r/worldnews/comments/1rbz5zz/bbc_news_zelensky_tells_bbc_
 REAL_WW3 WAR_ALL_AGAINST_ALL 
 
 * "would go on to call the Fifth World War. The first nonlinear war of all against all. Which is a description by Vladislav Surkov, who sort of the ennui ??? of Russian politics, of the current (year 2014) war around Ukraine. um, so, I started working in Russian TV"  https://YouTube.com/clip/UgkxGLMkhbMgSwzWeQK7xYIBJ-nxn_UlzOdZ Video was published December 5, 2014 about the Ukraine war and Russia.
+
+https://old.reddit.com/r/worldnews/comments/1rbz5zz/bbc_news_zelensky_tells_bbc_putin_has_started_ww3/o6uu6in/
+
+Reddit is a cult of denial. Donald Trump is constantly normalized via Reddit commenting shit-commenting jokes and humor to blow minds. Always avoiding serious mental health public education from Dr. Bandy X Lee and her assembled 27 writers since year 2017:
+
+* “The human brain can protect us from seeing and feeling what it believes may be too uncomfortable for us to tolerate. It can lead us to deny, defend, minimize, or rationalize away something that doesn’t fit our worldview.”
+― Dr. Bandy X Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. Published **October 3, 2017**. Page 273. Chapter "TRUMP'S DADDY ISSUES"](https://books.google.com/books?id=g0c4DwAAQBAJ&pg=PA273&dq=%E2%80%9CThe+human+brain+can+protect+us+from+seeing+and+feeling+what+it+believes+may+be+too+uncomfortable%22&hl=en&newbks=1&newbks_redir=1&sa=X)
+
+And I'm not saying people defend Donald Trump the person, what I'm saying is people commenting on Reddit adopt the Trump behavior of always avoiding intelligent nonfiction relevant books on paper.
