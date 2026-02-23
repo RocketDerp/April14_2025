@@ -72,3 +72,13 @@ REMEMBER_THE_PROGRAM_IDEAS_BILLIONAIRES_FED_REDDIT_AUDIENCE regurgitating the bi
 https://old.reddit.com/r/politics/comments/1rcjq18/very_inappropriate_fbi_director_kash_patel_faces/o6yvq39/
 
 "keep church", "Fucking laughable". Yes, Surkovian. Comedy, humor, mind exploitation via laughing. LIBERAL_LAUGHS_LIBERAL_TEARS_COMPULSIVE_MAGA_FOLLOWERS on Reddit media, people who race to high-speed media to mock away in a total mockery. Addictions to funny mockery rule the Reddit end-users.
+
+
+https://old.Reddit.com/r/circled/comments/1rchi5g/where_from_here/o6y73jj/
+
+Iran as a World Hate Affair. GULLIBLE_FANDOM on Reddit media. a 5 month Reddit account, top-voted most popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT with extreme tiny-short low-effort messaging. 
+
+As for the image text on the posting itself: What ignorance to say "you cannot make this stuff up". Trump is an actor who is acting. #SurkovScreenplay #FWakeSurkovScreenplay #Chess8192D #FWakeChess8192 THIS IS THE 16D Chess everyone mocks! MAKING UP BULLSHIT! Putin won! #BamboozleOpera /\ #RFP30 #Iran #FWakeIran  
+
+NEW_OPERA_NAME #MakeThisStuffUp   
+Social post { https://autistics.life/@RoundSparrow/116121631886937336 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfkfnyejg22y }   
