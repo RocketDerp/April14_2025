@@ -8,6 +8,12 @@ zsigmond.edina@uni-nke.hu
 press@nato-pa.int   
 viktorija.rusinaite@hybridcoe.fi   
 shiho.rybski@hybridcoe.fi   
+media@irregularwarfarecenter.org   
+news@theregister.com   
+tips@dw.com   
+DW.investigates@protonmail.com   
+investigation@lemonde.fr   
+investigation-lemonde@protonmail.com   
 
 An openly published copy, including revisions and development, is avaiable here: https://github.com/RocketDerp/April14_2025/blob/main/Important/From_RoundSparrow/2026-02-23_Hybird_Warfare_General_Public.md
 
