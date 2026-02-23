@@ -699,3 +699,7 @@ https://old.reddit.com/r/comics/comments/1rcgpmx/hard_to_believe/o6yngoj/
 https://old.reddit.com/r/comics/comments/1rcgpmx/hard_to_believe/o6yhmy0/
 
 "like this is normal". SUPER_HYPER_NORMAL
+
+https://old.reddit.com/r/comics/comments/1rcutka/lets_not/o70z72s/
+
+Trump fandom is a hate fandom. FAITH_IN_HATE PizzaCake's experience on Reddit is gun-worship USA social values. GUN_WORSHIP anti-intellectual to the core. Shoot every MAGA person with a gun instead of teaching cult deprogramming (serious nonfiction adult education using Reddit itself is avoided). Trump leads with hate and followers on Reddit follow the hate.
