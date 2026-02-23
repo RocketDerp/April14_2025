@@ -34,6 +34,8 @@ Phrases others have used to desribe the concern of humanity:
 
 &nbsp;
 
+&nbsp;
+
 # Scattered, Fragmented, Brain Damage abounds
 
 Scattered mindsets. Fragmented thinking. Brain damage abounds.
@@ -52,6 +54,12 @@ From Stephen Alred Gutknecht
 Born in Columbus Georgia USA on October 7, 1969.  
 
 This is my assertion. This is my payload of my message. The reason I am contacting you today. 2026-02-23
+
+In regard to the general public, what Marshall McLuhan called "being mass man", there is an alarming pattern of avoidance of serious nonfiction topics. Please excuse the use of YouTube links, but I believe the time-frame of the first public reading of a highly relevant book is essential focus for everyone world wide.
+
+1. https://www.youtube.com/clip/UgkxGLMkhbMgSwzWeQK7xYIBJ-nxn_UlzOdZ - and instead of Ukraine in the press this week calling it the "third world war" use this video clip to call it what Surkov himself calls it, "the 5th world war". "War of All against All". A social media / press / "The Media" / global fiction-storytelling brainwashing war. Media ecology warfare. Hybrid warfare of messaging and information systems, news! Propaganda.
+
+2. https://www.youtube.com/clip/UgkxsPMnrK_RCklBbjHHrPqdSuMi23zhsX_M "When I say Russia has no strategy, um. It has clearly several priorities. One is to turn the E.U. to mush. To humiliate the U.S. by showing Article 5 is a joke. Showing the world that NATO is a joke. These are all things... I don't think they add up to a strategy. They end up... sort of checklist of stuff they want to achieve. Sort of a strategy in the sense of.. this is where we want the country to be in 20 years time." - December 5, 2014
 
 
 
