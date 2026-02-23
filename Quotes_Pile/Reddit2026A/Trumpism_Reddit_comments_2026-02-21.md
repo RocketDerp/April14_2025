@@ -605,3 +605,12 @@ https://old.reddit.com/r/agedlikemilk/comments/1rcjvic/how_the_turn_tables/o6yyp
 
 2 month Reddit account. Dancing around the topic of Surkovian information warfare. SURKOV_SHUFFLE antics media. Note the screen shot use of "funny", so entertaining the Surkov student techniques to Reddit media cult members. So stimulating to the Reddit app when the Kremlin and White House do unexpected media content creation.
 
+https://old.reddit.com/r/clevercomebacks/comments/1rcm9j2/history_should_not_be_subjective/o6z83wr/
+
+As for the subject "History Should Not Be Subjective".
+
+* “History, Stephen said, is a nightmare from which I am trying to awake.” ― Irish author James Joyce, Ulysses. WAKE_WOKE
+
+As for the comment... “Everyone loved Martin Luther King!” and the anti-Wiki anti-FAQ anti-Truth values of February 2026 society that has **abandoned nonfiction learning of truth** topics. In favor of addiction and cult followings of fiction storytelling.
+
+* "Deep down in **our nonviolent creed** is the conviction that there are some things so dear, some things so precious, some things **so eternally true** that they're worth dying for. And if a man happens to be 36 years old, as I happen to be, and some great truth stands before the door of his life, some great opportunity to stand up for that which is right, he's afraid his home will get burned, or he's **afraid that he will lose his job**, or he's afraid that he will get shot or beat down by state troopers. He may go on and live until he's 80, but he's just as dead at 36 as he would be at 80. And the cessation of breathing in his life is merely the belated announcement of an earlier **death of the spirit**. He died... A man dies when he refuses to stand up for **that which is right**. A man dies when he refuses to stand up for justice. **A man dies when he refuses to take a stand for that which is true**." - March 8, 1965
