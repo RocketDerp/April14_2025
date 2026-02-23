@@ -6,3 +6,5 @@
 “The long-term implications go deeper. If all information is seen as part of a war, out go any dreams of a global information space where ideas flow freely, bolstering deliberative democracy. Instead, the best future one can hope for is an ‘information peace’, in which each side respects the other’s ‘information sovereignty’: a favoured concept of both Beijing and Moscow, and essentially a cover for enforcing censorship.”
 ― Peter Pomerantsev, This Is Not Propaganda: [Adventures in the War Against Reality, 2019, Page ???](https://books.google.com/books?id=Mt5sDwAAQBAJ&pg=PT95&dq=%E2%80%9CIf+all+information+is+seen+as+part+of+a+war,+out+go+any+dreams%22&hl=en&newbks=1&newbks_redir=1&sa=X)
 
+SCHOOLS_OF_THOUGHT_FEEDBACK_LOOPS_INSIDE_BOXED_MINDSETS   
+

@@ -777,4 +777,66 @@ https://old.reddit.com/r/TrendoraX/comments/1rat4ev/lauren_boebert_wants_the_ten
 
 27 day Reddit account. 4th most upvoted root comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
 
+https://old.reddit.com/r/theamazingdigitalciru/comments/1rb94os/wow_just_wow_this_is_absolutely_disgusting_wrong/o6pb7wi/
 
+https://old.reddit.com/r/theamazingdigitalciru/comments/1rb94os/wow_just_wow_this_is_absolutely_disgusting_wrong/o6pbwnd/
+
+https://old.reddit.com/r/theamazingdigitalciru/comments/1rb94os/wow_just_wow_this_is_absolutely_disgusting_wrong/o6pb7uq/
+
+https://old.reddit.com/r/theamazingdigitalciru/comments/1rb94os/wow_just_wow_this_is_absolutely_disgusting_wrong/o6pc2za/
+
+https://old.reddit.com/r/theamazingdigitalciru/comments/1rb94os/wow_just_wow_this_is_absolutely_disgusting_wrong/o6pdc2v/
+
+https://old.reddit.com/r/theamazingdigitalciru/comments/1rb94os/wow_just_wow_this_is_absolutely_disgusting_wrong/o6pb354/
+
+https://old.reddit.com/r/theamazingdigitalciru/comments/1rb94os/wow_just_wow_this_is_absolutely_disgusting_wrong/o6pchzi/
+
+https://old.reddit.com/r/theamazingdigitalciru/comments/1rb94os/wow_just_wow_this_is_absolutely_disgusting_wrong/o6pevoi/
+
+https://old.reddit.com/r/theamazingdigitalciru/comments/1rb94os/wow_just_wow_this_is_absolutely_disgusting_wrong/o6pe0hp/
+
+https://old.reddit.com/r/theamazingdigitalciru/comments/1rb94os/wow_just_wow_this_is_absolutely_disgusting_wrong/o6pgwsw/
+
+https://old.reddit.com/r/theamazingdigitalciru/comments/1rb94os/wow_just_wow_this_is_absolutely_disgusting_wrong/o6pcajd/
+
+https://old.reddit.com/r/theamazingdigitalciru/comments/1rb94os/wow_just_wow_this_is_absolutely_disgusting_wrong/o6pfthi/
+
+https://old.reddit.com/r/theamazingdigitalciru/comments/1rb94os/wow_just_wow_this_is_absolutely_disgusting_wrong/o6pcpw6/
+
+https://old.reddit.com/r/theamazingdigitalciru/comments/1rb94os/wow_just_wow_this_is_absolutely_disgusting_wrong/o6pd3nh/
+
+https://old.reddit.com/r/theamazingdigitalciru/comments/1rb94os/wow_just_wow_this_is_absolutely_disgusting_wrong/o6pgafi/
+
+https://old.reddit.com/r/CFB/comments/1rb8ocu/wlky_former_purdue_wr_rondale_moore_dies_at_25/o6pd0pl/
+
+https://old.reddit.com/r/technology/comments/1rbgkot/the_us_spent_30_billion_to_ditch_textbooks_for/o6qtgeq/
+
+BRAIN_ROT_SOCIETY_47 
+
+Social post { https://autistics.life/@RoundSparrow/116114790537999880 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfheigijs22k }
+
+https://old.reddit.com/r/HouseOfTheDragon/comments/1rbp8ac/official_hbo_account_making_fun_of_breaking_bad/o6sfd7y/
+
+MEDIA_ECOLOGY_LESSON "God" is a meme, Bible verse John 1:1, language *and ONLY language*. Show evidence of God being more than language itself? Proof? Facts. Bible verse "1 John 4:20" points this out. That "I Love God" is wrong, and "I hate a person" (ANY PERSON, ANY WHERE) is wrong. - today is Sunday, church day / Bible science fiction fandom day.
+
+https://old.reddit.com/r/HouseOfTheDragon/comments/1rbp8ac/official_hbo_account_making_fun_of_breaking_bad/o6sfb7x/
+
+MEDIA_ECOLOGY_LESSON it is not just *any rage*, it is FICTION content. Breaking Bad is fiction fandom, Game of Thrones is fiction Fandom. HBO already knows: FICTION_VS_FICTION selling, Just as Rupert Murdoch knows in fiction vs fiction media platforms. SEE_ALSO https://GitHub.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Ted_Koppel.md
+
+https://old.reddit.com/r/whenthe/comments/1rbt045/theyre_the_real_circus/o6tatkh/
+
+One of the worst issues today is how many people believe this is "online behavior". The terminally Mosque-gong fandom did September 11, 2011 attacks, 9/11 attacks. They were "online media consumers", they were science fiction Mosque venue consumers. These behaviors of fiction fandom have been going on thousands of years. FICTION_VS_FICTION 
+
+https://old.reddit.com/r/nottheonion/comments/1rc31dh/phoebe_gates_wants_her_185_million_ai_startup_to/o6vfy0q/
+
+https://old.reddit.com/r/nottheonion/comments/1rc31dh/phoebe_gates_wants_her_185_million_ai_startup_to/o6vftfq/
+
+Fiction outsells nonfiction. FICTION_OUTSELLS_NONFICTION the "silly story" is what Reddit prizes as content on the front page of /r/All - Trumpism. Antics business. Contradictory paradoxes.
+
+https://old.reddit.com/r/memes/comments/1rc7llt/how_it_feels_being_on_youtube/o6wg3rx/
+
+MEDIA_ECOLOGY_LESSON
+
+https://old.reddit.com/r/memes/comments/1rc7llt/how_it_feels_being_on_youtube/o6wl65q/
+
+OBSERVE: people do not call for Reddit to solve the "bots" issue. Instead, people turn on each other. This is the general attitude towards billionaires and what they create. Complain, but do not organize. THIS_GITHUB project is about showing example after example of common serious society problems created by "Conservative International 2013" mass dehumanization movement that people do not blame for the enshitification of society. Tragedy of the commons, the common mindsets are pummeled by billionaire systems. SEE_ALSO December 20, 2013 call for common mass dehumanization values https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/ in prep for the Ukraine war February 20, 2014.

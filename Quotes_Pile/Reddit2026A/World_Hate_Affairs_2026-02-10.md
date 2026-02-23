@@ -906,3 +906,247 @@ SATIRE_SARCASM_WASHING
 https://old.reddit.com/r/wallstreetbets/comments/1razfm0/iranian_rial_has_completely_collapsed/o6ncbkl/
 
 World Money as tool of Hate Affairs
+
+https://old.reddit.com/r/worldnews/comments/1rbj6lt/greenland_does_not_need_us_hospital_boat_sent_by/o6ra2x0/
+
+MAXIMUM_PUTINIZATION
+
+https://old.reddit.com/r/TrendoraX/comments/1rblrxc/agree_disagree/o6rpu41/
+
+Front page of Reddit on Sunday morning, church day. Old men who hang to power. Yahweh, Jesus, Allah. RELIGION_CULTS_MONOMYTH_PROGRAMMING - go read about Malala and what the old men decided in Pakistan in year 2008, 2009, 2010, 2011, 2012. Afghanistan...
+
+https://old.reddit.com/r/AskBrits/comments/1rbky3b/are_brits_fully_aware_of_farages_links_to_maga/o6rifiz/
+
+27 day Reddit account. Top-upvoted most popular comment. IGNORANCE_CELEBRATIONS about how "only the others" are ignorant and how it isn't a widespread global crisis of media ecology and people drowning in low-effort Twitter-length snarky commenting on high-speed information services. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+
+https://old.reddit.com/r/AskBrits/comments/1rbky3b/are_brits_fully_aware_of_farages_links_to_maga/o6rhagp/
+
+MAXIMUM_PUTINIZATION of the world. "I’m in disbelief" - Reddit comment creator, posting creator. MIND_BLOWN_BY reality itself of Russia's War Against Reality since March of year 2013.
+
+https://old.reddit.com/r/AskBrits/comments/1rbky3b/are_brits_fully_aware_of_farages_links_to_maga/o6rsa0n/
+
+BRAIN_ROT_SOCIETY_47
+
+https://old.reddit.com/r/AskBrits/comments/1rbky3b/are_brits_fully_aware_of_farages_links_to_maga/o6sdnau/
+
+"LOL" opening. AMUSING_ZOMBIES abound. "a few more councillors on the far-right have now joined" so much brain rot caused by the programmed "left-right" mindsets. We have run that globally into the ground. Fiction vs nonfiction is more the concern. Putinism is fiction addictions put first and foremost as leadership signaling.
+
+https://old.reddit.com/r/AskBrits/comments/1rbky3b/are_brits_fully_aware_of_farages_links_to_maga/o6ricst/
+
+"I find it hilarious when Musk is saying" MUSK_FANDOM hate-watching media fandom of Elon Musk. https://en.wikipedia.org/wiki/Hate-watching  PEOPLE_LOVE_COMEDY_MEDIA_CONTENT_MORE_THAN_PLURIBUS_HUMANISM is at the heart of Surkovian information warfare and Surkov governing methods / Surkov media techniques.
+
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1rbpww6/hatred_taught_to_children/o6sl82b/
+
+World hate children affairs. Predatory child abuse by power-seeking cults. FUNERAL_RITUALS_WAKES    
+
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1rbpww6/hatred_taught_to_children/o6slqc2/
+
+OUT_GROUP_HATE
+
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1rbpww6/hatred_taught_to_children/o6smej4/
+
+CALL_TO_INTELLECTUAL_ACTION_PLAN ? Information organization. Education information?
+
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1rbpww6/hatred_taught_to_children/o6smt6h/
+
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1rbpww6/hatred_taught_to_children/o6snd9p/
+
+CALL_FOR_ACTION_TO_DO_TRIVIAL_CHANGE of name. Today is Sunday in February. Dr. Martin Luther King Jr. made a point to not just associate hate ("hatred taught to children" is the posting title on Reddit, CONTEXT_ASSERTION) with a single nation or geography.
+
+**The 1954 Equation**
+
+Sunday **February** 28, 1954: "Most **people can't stand up for their convictions**, because the majority of people might not be doing it. See, everybody's not doing it, so it must be wrong. And since everybody is doing it, it must be right. So a sort of numerical interpretation of what's right. But I'm here to say to you this morning that some things are right and some things are wrong. Eternally so, absolutely so. **It's wrong to hate.** It always has been wrong and it always will be wrong. It's wrong in America, it's wrong in Germany, it's wrong in Russia, it's wrong in China. It was wrong in 2000 B.C., and it's wrong in 1954 A.D. It always has been wrong, and it always will be wrong." - Martin Luther King Jr.
+
+"For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the **true becomes false and the false becomes true**. That's what hate does. You can't see right. **The symbol of objectivity** is lost." - Martin Luther King Jr.
+
+* I think it is important to point out "people can't stand up for their convictions" that the 15 or 20 people in the photograph on Reddit did in fact stand up for their convictions. People have the bravery to stand up for military with guns, people have the bravery to stand up for hate, people have the bravery to do Islamic suicide bombings in the name of OUT_GROUP_HATE patterns. People have strong motivations to HATE_HARDER and conviction to do it in public to harm other people.
+  * "Parents of children who attend two newly integrated schools in New Orleans **stage a mock funeral procession** up the Capitol steps in Baton Rouge, La., **Nov. 23, 1960** for U.S District Judge J. Skelly Wright whose order integrated the schools. Three bus loads of demonstrators, who were given the small black flags to carry, came from New Orleans to show support of legislature meeting in special session. (AP Photo)" https://www.snopes.com/fact-check/ruby-bridges-coffin/
+
+https://old.reddit.com/r/memes/comments/1rbln8l/reddit_be_like/o6rnwh1/
+
+World Wide Web Hate Affairs. TOXIC_POPULARITY in the Putinism era of the Saint Petersburg Internet Research Agency outcomes since year 2013. People on Reddit are SNOW BLIND to the brightness of the Trump content always on their screen that they can't see how toxic society in total has become since year 2013... the Forest for the Trees perspective is absent regarding *something is fundamentally wrong that Trump is the center of all media systems and camera focus all the time since June 16, 2015, year after year*. The widespread recency bias that abounds. How Trump is normalized / normal now and has been for over a decade.
+
+https://old.reddit.com/r/memes/comments/1rbp7b2/are_billionaires_the_new_royalty/o6siq59/
+
+One of Reddit communities long-held faiths is "Fuck-You Money", when a celebrity / sports star - can say Fuck-You to coach or businessman. And billionaires do that to PLURIBUS We All, We The People All. If you are a celebrity, Reddit audience will form to watch the billionaires and their sex lives. OBSERVE that there is no call to remove Donald Trump from office on USA-centric Reddit. There is no REDDIT_BLACKOUT calls or promotion of serious nonfiction books from Dr. Bandy X Lee to educate and all get on the same page of the mental health crisis. Instead, commenting cults on Reddit want to keep the shit-show going to have a steady stream of TRICKLE_DOWN_CONTENT from billionaires ("Trickle Down Economics" of media empires feeding to the poor people on Reddit apps).
+
+https://old.reddit.com/r/therewasanattempt/comments/1rbobie/to_win_the_gold_while_supporting_genocide/o6s9t9u/
+
+Top most-upvoted popular comment message. HATE_HARDER cult, faith in hate as religion on Reddit. The Torah, Quran are all science fiction, and Reddit fandom is to promote hate as the answer to hate. Clergy promotes hate, Reddit community promoting hate. United fain in hate.
+
+https://old.reddit.com/r/therewasanattempt/comments/1rbobie/to_win_the_gold_while_supporting_genocide/o6sdxsf/
+
+FAITH_IN_HATE and anti-MLK Jr society of Reddit commenting. Today is Sunday, and you don't see people on Reddit quoting MLK Jr and teaching how **all hate is bad**. Instead, on Reddit there is a competitive sports-mentality of "winning" with hate vs. hate. HATE_VS_HATE
+
+* "I've seen too much hate to want to hate myself; hate is too great a burden to bear. I've seen it on the faces of too many sheriffs of the South — I've seen hate. In the faces and even the walk of too many Klansmen of the South, **I've seen hate. Hate distorts** the personality. **Hate does something to the soul that causes one to lose his objectivity.** The man **who hates can't think straight**; the man **who hates can't reason right; the man who hates can't see right**; the man who hates can't walk right. And I know now that Jesus is right, that love is the way. And this is why John said, "God is love," so that he who hates does not know God, but he who loves at that moment has the key that opens the door to the meaning of **ultimate reality**." - July 4, 1965 Atlanta, Georgia.
+
+https://old.reddit.com/r/MurderedByWords/comments/1rbti7e/you_dont_hate_republicans_enough/o6tggko/
+
+This whole posting, including the Reddit user created "Hate Republicans enough" message, is HATE_HARDER religion teaching on Sunday. All religions are fiction, there is no supernatural. But there are clergy who preach the messages of competitive hate. HATE_FOR_HATE  
+
+https://old.reddit.com/r/TwoXChromosomes/comments/1rbu75d/if_i_was_a_woman_i_would_be_the_kind_of_woman/o6tlgvq/
+
+CHOICE_MARRIAGE_HONESTY 
+
+https://old.reddit.com/r/CrazyFuckingVideos/comments/1rbwpsv/mexico_after_el_menchos_fall_today/o6u4lnq/
+
+World Affairs of hate.
+
+https://old.reddit.com/r/CrazyFuckingVideos/comments/1rbwpsv/mexico_after_el_menchos_fall_today/o6u4mjx/
+
+https://old.reddit.com/r/CrazyFuckingVideos/comments/1rbwpsv/mexico_after_el_menchos_fall_today/o6u2zfm/
+
+CONTEXT_BEWILDERMENT  
+
+https://old.reddit.com/r/CrazyFuckingVideos/comments/1rbwpsv/mexico_after_el_menchos_fall_today/o6u70md/
+
+https://old.reddit.com/r/CrazyFuckingVideos/comments/1rbwpsv/mexico_after_el_menchos_fall_today/o6u2zz8/
+
+https://old.reddit.com/r/CrazyFuckingVideos/comments/1rbwpsv/mexico_after_el_menchos_fall_today/o6u5pxy/
+
+https://old.reddit.com/r/CrazyFuckingVideos/comments/1rbwpsv/mexico_after_el_menchos_fall_today/o6u3spu/
+
+https://old.reddit.com/r/news/comments/1rbsweu/mexican_army_kills_leader_of_jalisco_new/o6tlqm1/
+
+https://old.reddit.com/r/news/comments/1rbsweu/mexican_army_kills_leader_of_jalisco_new/o6tez7w/
+
+https://old.reddit.com/r/news/comments/1rbsweu/mexican_army_kills_leader_of_jalisco_new/o6tft25/
+
+https://old.reddit.com/r/news/comments/1rbsweu/mexican_army_kills_leader_of_jalisco_new/o6temtc/
+
+https://old.reddit.com/r/news/comments/1rbsweu/mexican_army_kills_leader_of_jalisco_new/o6tvsoq/
+
+https://old.reddit.com/r/worldnews/comments/1rbtlgn/mexican_cartel_leader_nemesio_el_mencho_oseguera/o6to7sn/
+
+3 month Reddit account. Top-upvoted, most popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+
+https://old.reddit.com/r/worldnews/comments/1rbtlgn/mexican_cartel_leader_nemesio_el_mencho_oseguera/o6tnav6/
+
+https://old.reddit.com/r/worldnews/comments/1rbtlgn/mexican_cartel_leader_nemesio_el_mencho_oseguera/o6tirsh/
+
+https://old.reddit.com/r/worldnews/comments/1rbtlgn/mexican_cartel_leader_nemesio_el_mencho_oseguera/o6tu79y/
+
+https://old.reddit.com/r/worldnews/comments/1rbtlgn/mexican_cartel_leader_nemesio_el_mencho_oseguera/o6tmnc0/
+
+https://old.reddit.com/r/worldnews/comments/1rbtlgn/mexican_cartel_leader_nemesio_el_mencho_oseguera/o6tl715/
+
+https://old.reddit.com/r/pics/comments/1rbvb8y/oc_from_the_beach_in_puerto_vallarta_this_morning/o6txdvh/
+
+https://old.reddit.com/r/worldnews/comments/1rbwzot/puerto_vallarta_mexico_under_siege_after_army/o6u9igu/
+
+HATE_MOTIVATED_ECONOMY_HATE_AS_A_VIRTUE_SIGNALING
+
+https://old.reddit.com/r/worldnews/comments/1rbwzot/puerto_vallarta_mexico_under_siege_after_army/o6u7pv9/
+
+MAXIMUM_PUTINIZATION since year 2013. Hate leadership keeps proving to work. People prize their ex-lover hate more than they prize preachy morality learning and authentic growth. Global hate affairs is anti-expansion of compassion and love. MONOMYTH_EXPANSION avoided. Lots of avoidance of Finnegans Wake expanding the fiction realms.
+
+* “How is it that hardly any major religion has looked at science and concluded, “This is better than we thought! The Universe is much bigger than our prophets said, grander, more subtle, more elegant?” Instead they say, “No, no, no! My god is a little god, and I want him to stay that way.” A religion, old or new, that stressed the magnificence of the Universe as revealed by modern science might be able to draw forth reserves of reverence and awe hardly tapped by the conventional faiths.” ― Carl Sagan, Pale Blue Dot: A Vision of the Human Future in Space. Year 1994.
+
+https://old.reddit.com/r/worldnews/comments/1rbwzot/puerto_vallarta_mexico_under_siege_after_army/o6u5xdw/
+
+6 month Reddit account.
+
+https://old.reddit.com/r/worldnews/comments/1rbwzot/puerto_vallarta_mexico_under_siege_after_army/o6uardl/
+
+https://old.reddit.com/r/worldnews/comments/1rbwzot/puerto_vallarta_mexico_under_siege_after_army/o6uc15w/
+
+"LOL". SENSATIONAL_CONTENT
+
+https://old.reddit.com/r/worldnews/comments/1rbwzot/puerto_vallarta_mexico_under_siege_after_army/o6ufpup/
+
+AGGRESSIVE_ESCALATE_HATE_REACT_HARDER_MINDSETS - why not emergency get every **mental health worker in the entire world, World Wide Web, writing and teaching mental heat deescalation and treatment?** Why isn't every clergy professional in the world rising up to preach harder?
+
+https://old.reddit.com/r/worldnews/comments/1rbwzot/puerto_vallarta_mexico_under_siege_after_army/o6ulssp/
+
+https://old.reddit.com/r/worldnews/comments/1rbwzot/puerto_vallarta_mexico_under_siege_after_army/o6uas70/
+
+10 month Reddit account
+
+https://old.reddit.com/r/worldnews/comments/1rbwzot/puerto_vallarta_mexico_under_siege_after_army/o6u7k2k/
+
+WAR_AGAINST_REALITY 
+
+https://old.reddit.com/r/worldnews/comments/1rbwzot/puerto_vallarta_mexico_under_siege_after_army/o6u7bc8/
+
+https://old.reddit.com/r/Costco/comments/1rbydyt/the_costo_in_puerto_vallarta_is_burning_down/o6ufo1e/
+
+Walter White bad ass drug dealer glamour profession model of behavior. The murdering outlaw white chemistry science lord.
+
+https://old.reddit.com/r/Costco/comments/1rbydyt/the_costo_in_puerto_vallarta_is_burning_down/o6uh7ng/
+
+https://old.reddit.com/r/Costco/comments/1rbydyt/the_costo_in_puerto_vallarta_is_burning_down/o6uh4zn/
+
+MOB_MENTALITY_FIRE_DRILLS OUTBREAKS_OF_MOB_CULT_BEHAVIORS GANG_MENTALITY_OUTBREAKS are probably the most important teachings in current times. How not to go viral when terrorism and hate mindsets break out in mob mentality, gang mentality.
+
+https://old.reddit.com/r/CringeTikToks/comments/1rbwzo2/mexico_is_under_attack_right_now_because_a_cartel/o6ud0ij/
+
+https://old.reddit.com/r/CringeTikToks/comments/1rbwzo2/mexico_is_under_attack_right_now_because_a_cartel/o6u5xuc/
+
+10 month Reddit account. HATE_MOTIVATED_ECONOMY_HATE_AS_A_VIRTUE_SIGNALING
+
+https://old.reddit.com/r/PublicFreakout/comments/1rbxpkx/im_from_mexico_today_maybe_is_the_worst_day_the/o6undei/
+
+https://old.reddit.com/r/PublicFreakout/comments/1rbxpkx/im_from_mexico_today_maybe_is_the_worst_day_the/o6uap7u/
+
+https://old.reddit.com/r/PublicFreakout/comments/1rbxpkx/im_from_mexico_today_maybe_is_the_worst_day_the/o6ucn3n/
+
+https://old.reddit.com/r/PublicFreakout/comments/1rbxpkx/im_from_mexico_today_maybe_is_the_worst_day_the/o6ud0jj/
+
+https://old.reddit.com/r/UrbanHell/comments/1rbuxyx/guadalajara_m%C3%A9xico/o6tvgm0/
+
+https://old.reddit.com/r/UrbanHell/comments/1rbuxyx/guadalajara_m%C3%A9xico/o6twgzt/
+
+https://old.reddit.com/r/UrbanHell/comments/1rbuxyx/guadalajara_m%C3%A9xico/o6utsul/
+
+https://old.reddit.com/r/Costco/comments/1rbzodi/another_angle_of_the_costco_in_pv_mx/o6uqlk7/
+
+https://old.reddit.com/r/Costco/comments/1rbzodi/another_angle_of_the_costco_in_pv_mx/o6uxf1j/
+
+MEDIA_ECOLOGY_LESSON 
+
+https://old.reddit.com/r/europe/comments/1rbyxqz/do_not_come_to_the_us/o6uz2ce/
+
+South Park has made Trump entertainment for Reddit fiction fandoms. Truth Social fiction vs. South Park Fiction. FICTION_VS_FICTION normalization of Trump as a great source of comedy and amusement, an LOLCOW to mil for jokes and meme content. Neil Postman's 1985 nonfiction book "Amusing Ourselves to Death" is essential understanding on the Trumpism crisis. UNDERSTANDING_TRUMPISM
+
+https://old.reddit.com/r/europe/comments/1rbyxqz/do_not_come_to_the_us/o6v142o/
+
+**September 10, 2025 - "The 40-Year-Old Book That Predicted Our Dystopian Politics"** https://Time.com/7313999/neil-postman-trump-prediction/
+
+https://old.reddit.com/r/worldnews/comments/1rbz5zz/bbc_news_zelensky_tells_bbc_putin_has_started_ww3/o6uqvf3/
+
+REAL_WW3 WAR_ALL_AGAINST_ALL 
+
+* "would go on to call the Fifth World War. The first nonlinear war of all against all. Which is a description by Vladislav Surkov, who sort of the ennui ??? of Russian politics, of the current (year 2014) war around Ukraine. um, so, I started working in Russian TV"  https://YouTube.com/clip/UgkxGLMkhbMgSwzWeQK7xYIBJ-nxn_UlzOdZ Video was published December 5, 2014 about the Ukraine war and Russia.
+
+https://old.reddit.com/r/worldnews/comments/1rbz5zz/bbc_news_zelensky_tells_bbc_putin_has_started_ww3/o6uu6in/
+
+Reddit is a cult of denial. Donald Trump is constantly normalized via Reddit commenting shit-commenting jokes and humor to blow minds. Always avoiding serious mental health public education from Dr. Bandy X Lee and her assembled 27 writers since year 2017:
+
+* “The human brain can protect us from seeing and feeling what it believes may be too uncomfortable for us to tolerate. It can lead us to deny, defend, minimize, or rationalize away something that doesn’t fit our worldview.”
+― Dr. Bandy X Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. Published **October 3, 2017**. Page 273. Chapter "TRUMP'S DADDY ISSUES"](https://books.google.com/books?id=g0c4DwAAQBAJ&pg=PA273&dq=%E2%80%9CThe+human+brain+can+protect+us+from+seeing+and+feeling+what+it+believes+may+be+too+uncomfortable%22&hl=en&newbks=1&newbks_redir=1&sa=X)
+
+And I'm not saying people defend Donald Trump the person, what I'm saying is people commenting on Reddit adopt the Trump behavior of always avoiding intelligent nonfiction relevant books on paper.
+
+https://old.reddit.com/r/worldnews/comments/1rbz5zz/bbc_news_zelensky_tells_bbc_putin_has_started_ww3/o6v5nx3/
+
+Russia has proven they can convince men into self-harm and to become murders year after year.
+
+https://old.reddit.com/r/videos/comments/1rc1ugp/elon_musks_dismantling_of_usaid_over_the_last/o6v8e0j/
+
+MASS_DEHUMANIZATION_POPULAR
+
+https://old.reddit.com/r/videos/comments/1rc1ugp/elon_musks_dismantling_of_usaid_over_the_last/o6vbldm/
+
+"MAGA is a cult". They why are people letting a cult keep expanding every year since 2013? Why do people not see the need to defend against and solve cult problems. Sticking your head in the sand an letting Putin create cults with the Saint Petersburg Internet Research Agency is letting an enemy nation win hearts and minds without any resistance. Why are serious nonfiction books on mental health not being quoted, linked, repeated over and over on social media? Why is there so much anti-intellectual commenting that avoids adult education and topics with nonfiction references. ANSWER: Reddit is a cult of mocking the MAGA cults. It is media cult vs. media cult. Avoiding Jen Senko's brainwashing film since year 2015 - why are people not linking it and citing it. https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad
+
+The anti-intellectual brain rot problem is far wo
+rse than just MAGA, it is the entire nation.
+
+https://old.reddit.com/r/videos/comments/1rc1ugp/elon_musks_dismantling_of_usaid_over_the_last/o6v9wov/
+
+BILLIONAIRE_MIND_VIRUS Elon Musk openly declares there is a "woke virus" in minds that he is killing. https://www.lemonde.fr/en/international/article/2024/08/13/elon-musk-s-ambition-repopulating-the-planet-and-destroying-the-woke-virus_6714239_4.html
+
+https://old.reddit.com/r/Fauxmoi/comments/1rbyoqc/during_the_baftas_while_michael_b_jordan_and/o6uoedf/
+
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1rbybxt/michael_b_jordan_and_delroy_lindo_had_the_nword/o6uuqcy/
+
