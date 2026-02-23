@@ -116,3 +116,8 @@ By that logic.. anyone who uses billionaire media systems is accountable for Put
 https://old.reddit.com/r/worldnews/comments/1rck7tu/25_mexican_national_guard_troops_left_dead_during/o6z0rtu/
 
 If only Reddit fandom of Luigi could see that cartels, at heart are businessmen. They are powerful and wealthy businesses. Anti-compassion anti-empathy organized business. Killing a CEO does not address what We The People should be peer to peer educating, teaching, organizing against. HEALTH_CARE_GAMES the addiction to money and power over the lives of people is a big cartel kick. Same with copyright cartels, music cartels, intellectual property cartels.  
+
+https://old.reddit.com/r/antiwork/comments/1rcpn2h/epstein_victim_names_the_musk_family_bill_gates/o703vtl/
+
+29 day Reddit account. The billionaires understand Marshall McLuhan and Neil Postman media power that people on Reddit do not understand. Or they are all following Putin's lead and are not self-aware they too are ensnared in self-harm media compulsive behaviors. People just can't wrap their head on the runaway middle ages church science fiction fandom in Europe and the runaway Islamic science fiction clergy power.
+
