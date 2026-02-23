@@ -14,6 +14,8 @@ tips@dw.com
 DW.investigates@protonmail.com   
 investigation@lemonde.fr   
 investigation-lemonde@protonmail.com   
+press@kyivindependent.com   
+info@theijf.org   
 
 An openly published copy, including revisions and development, is avaiable here: https://github.com/RocketDerp/April14_2025/blob/main/Important/From_RoundSparrow/2026-02-23_Hybird_Warfare_General_Public.md
 
@@ -29,6 +31,14 @@ The Forest for the Trees not being recognized by We The People.
 Phrases others have used to desribe the concern of humanity:   
 "Hybrid warfare: The continuation of ambiguity by other means"   
 "Modern Cognitive Operations and Hybrid Warfare"   
+
+&nbsp;
+
+# Scattered, Fragmented, Brain Damage abounds
+
+Scattered mindsets. Fragmented thinking. Brain damage abounds.
+
+I personally have "hyper empathy" and the hybrid warfare since year 2013 has caused me extreme distress. "Hyper-empathy refers to a person having heightened empathy. Reasons and experiences of hyper-empathy vary. Some autistic people have reported experiencing hyper-empathy. In psychopathology, hyper-empathy is viewed as a symptom of a neurological disorder." https://en.wikipedia.org/wiki/Hyper-empathy
 
 &nbsp;
 
