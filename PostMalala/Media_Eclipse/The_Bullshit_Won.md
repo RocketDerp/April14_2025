@@ -2,7 +2,7 @@
 
 The USA [government shutdown October 2025](https://en.wikipedia.org/wiki/2025_United_States_federal_government_shutdown) a lot of blame was placed on Democrats.
 
-But I witnessed very few social media users recall December 2024.
+But I witnessed very few social media users recall December 2024. RECENCY_BIAS  
 
 Elon Musk, December 2024: https://news.bgov.com/bloomberg-government-news/year-end-funding-fight-previews-house-gop-turbulence-ahead-1     
 Elon Musk, December 2024: https://www.bbc.com/news/articles/cd0e7j94732o
@@ -15,3 +15,15 @@ The recency bias (of the population) is so bad, the constant audience loss of me
 &nbsp;
 
 “World War III is a guerrilla information war with no division between military and civilian participation.” – Marshall McLuhan, University of Toronto, year 1970, Culture is Our Business, page 66.
+
+&nbsp;
+
+&nbsp;
+
+# Bullshit Itself Won 
+
+NEW_OPERA_NAME #BullshitItself   
+
+Monday, February 23, 2026   
+https://bsky.app/profile/roundsparrow.bsky.social/post/3mfkrjqoeck22    
+https://autistics.life/@RoundSparrow/116122464752445767   
