@@ -1,5 +1,8 @@
 It is my assertion that the general public, social media users, are enabling and furthering hybrid warfare out of ignroance.
 
+Subject   
+Assertion of the topic of hybrid warfare, organized manipulation of We The People. 2026-02-23
+
 Who to contact in press:   
 contact@hybridwarfare.info   
 ICforML@gmail.com   
