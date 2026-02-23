@@ -827,3 +827,8 @@ https://old.reddit.com/r/whenthe/comments/1rbt045/theyre_the_real_circus/o6tatkh
 
 One of the worst issues today is how many people believe this is "online behavior". The terminally Mosque-gong fandom did September 11, 2011 attacks, 9/11 attacks. They were "online media consumers", they were science fiction Mosque venue consumers. These behaviors of fiction fandom have been going on thousands of years. FICTION_VS_FICTION 
 
+https://old.reddit.com/r/nottheonion/comments/1rc31dh/phoebe_gates_wants_her_185_million_ai_startup_to/o6vfy0q/
+
+https://old.reddit.com/r/nottheonion/comments/1rc31dh/phoebe_gates_wants_her_185_million_ai_startup_to/o6vftfq/
+
+Fiction outsells nonfiction. FICTION_OUTSELLS_NONFICTION the "silly story" is what Reddit prizes as content on the front page of /r/All - Trumpism. Antics business. Contradictory paradoxes.
