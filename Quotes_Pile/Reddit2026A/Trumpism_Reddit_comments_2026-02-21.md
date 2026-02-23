@@ -654,3 +654,12 @@ https://old.reddit.com/r/ProgressiveHQ/comments/1rcp30u/everyone_meet_the_future
 It is a society that celebrates ignorance and low-effort commenting instead of authentic intellectual progress and better understanding / comprehension. Anti-Malala anti-education anti-teaching reforms. The no-identity commenting on social systems is prized over authentic adult nonfiction books on paper with author names. Reddit audience is very anti-intellectual in year 2026, avoidant of FAQ and Wiki creation of organized focus "on the same page" - and instead flocks to scattered fragmented commenting messages.
 
 * "The extremists are afraid of books and pens. **The power of education frightens them**. They are afraid of women. The power of **the voice of women frightens them**. This is why they killed 14 innocent students in the recent attack in Quetta. And that is why they kill female teachers. That is why they are blasting schools every day because they were and they are **afraid of change and equality that we will bring to our society**. And I remember that there was a boy in our school who was asked by a journalist why are the Taliban against education? He answered very simply by pointing to his book, he said, "a Talib doesn't know what is written inside this book." They **think that God is a tiny, little conservative being who would point guns at people's heads** just for going to school." - July 12, 2013 https://www.theGuardian.com/commentisfree/2013/jul/12/malala-yousafzai-united-nations-education-speech-text
+
+https://old.reddit.com/r/politics/comments/1rcqc5y/trump_called_usa_hockey_team_to_congratulate_them/o707ezm/
+
+Trump leads with women-hate messaging and has a huge fandom on Reddit that follows the hate-signaling. 
+
+https://old.reddit.com/r/politics/comments/1rcqc5y/trump_called_usa_hockey_team_to_congratulate_them/o7021x0/
+
+Impeachment washing. Tony Clifton POTUS comedy style to wash-away the topic of impeachment. Reddit eats this up and front-pages it every time. Year after year, since June 16, 2015 the cult of Trump messaging media follows Trump. SATIRE_SARCASM_WASHING
+
