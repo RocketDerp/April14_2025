@@ -644,3 +644,7 @@ https://old.reddit.com/r/circled/comments/1rcrzfl/keystone_kash_koing_krime_kkk_
 https://old.reddit.com/r/WitchesVsPatriarchy/comments/1rcre11/editors_are_always_making_choices/o70a1tm/
 
 MEDIA_ECOLOGY_OBSERVATION "the commentariat"
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1rcp30u/everyone_meet_the_future_president_of_the_united/o6zrxa9/
+
+7 month Reddit account, top-upvoted most popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT messaging PROMOTING_SAVIOR_SINGLE_PERSON_OVER_DIVERSE_OPEN_THINKING_IDEAS
