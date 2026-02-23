@@ -45,7 +45,7 @@ https://old.reddit.com/r/politics/comments/1rchae6/gunman_shot_dead_in_maralago_
 
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1rchewc/how_to_immediately_taint_a_moment_of_glory/o6y5kug/
 
-ANSWER: UNDERSTANDING_TRUMPISM to blow the minds of Reddit commenting community. To blow the minds of USA audience. SYMBOLISM_WARFARE /\ SURKOV_WARFARE this is the bleeding edge of hybrid warfare. Reddit is being manipulated, people can't point on Reddit compulsively react and are unable to nonfiction on the subject.
+ANSWER: UNDERSTANDING_TRUMPISM to blow the minds of Reddit commenting community. To blow the minds of USA audience. SYMBOLISM_WARFARE /\ SURKOV_WARFARE this is the bleeding edge of hybrid warfare. Reddit is being manipulated, people using the Reddit app **compulsively react** and are unable to point to nonfiction off-Reddit serious learning on the subject.
 
 NEW_OPERA_NAME #OrganizedMediaAntics #WorldNewsMania    
 Social post { https://autistics.life/@RoundSparrow/116121335754824470 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfkbi22rn22c }   
