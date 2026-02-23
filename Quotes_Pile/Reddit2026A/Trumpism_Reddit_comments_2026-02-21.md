@@ -630,3 +630,7 @@ EPSTEIN_FANDOM fantasy of rich white men sex lives and supernatural magic that w
 https://old.reddit.com/r/LetsDiscussThis/comments/1rcrux2/someone_fixed_the_banner_in_front_of_the_doj/o70hqzg/
 
 3 month Reddit account that created the front-page /r/All posting and this upvoted comment. Cult of Trump images on Reddit. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+
+https://old.reddit.com/r/LetsDiscussThis/comments/1rcrux2/someone_fixed_the_banner_in_front_of_the_doj/o70imeq/
+
+Photoshop image cult of Reddit. Fandom of Trump fantasy images. **ANYTHING to avoid putting Dr. Bandy X Lee front and center by repeating quoting of Dr. Lee** on Reddit comment section. Instead, the fandom on Reddit wants fiction content which Trump provides. EVERYTHING_IS_MEDIA_ECOLOGY Photoshop ecology media creation.
