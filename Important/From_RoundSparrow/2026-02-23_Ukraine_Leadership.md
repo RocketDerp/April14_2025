@@ -55,7 +55,7 @@ OK, enough about my person...
 ACTION PLAN SUGGESTION    
 COUNTER-SURKOVIAN   
 
-My advice for you is to use all your avaialbe social media resources to promote as many Ukraine people to mormorize this December 5, 2014 video clip:
+My advice for you is to use all your available social media resources to promote as many Ukraine people to mormorize this December 5, 2014 video clip:
 
 1. https://www.youtube.com/clip/UgkxGLMkhbMgSwzWeQK7xYIBJ-nxn_UlzOdZ - and instead of calling it the "third world war" use this video clip to call it wat Surkov himself calls it, "the 5th world war". "War of All against All". A social media / press / "The Media" / global fiction-stroytelling brainwashing war. Media ecology warfare. Hybrid warfare of messaging and information systems, news! Propeganda.
 
