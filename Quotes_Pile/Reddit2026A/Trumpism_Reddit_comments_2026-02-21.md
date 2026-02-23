@@ -597,3 +597,6 @@ https://old.reddit.com/r/therewasanattempt/comments/1rckj9g/by_trump_to_show_off
 
 Ultra tiny-short messaging, Twitter-thinking reaction commenting. Top most upvoted (most popular) reaction comment on Reddit posting.  Trump images on front page of Reddit, extreme stardom popularity. SOCIAL_CULT_HATE_WATCHING_FANDOM
 
+https://old.reddit.com/r/therewasanattempt/comments/1rckj9g/by_trump_to_show_off_his_nonexistent_athletic/o6yswlq/
+
+8 month Reddit account, REDDIT_TOP_COMMENT_YOUNG_ACCOUNT 2nd most upvoted popular comment. CONDITIONED_OPPOSITION response, mocking back MOCK_MOCK_MOCKERY total mockery, following the Trump leadership of mocking. One of Donald Trump's favorite insults being repeated by Reddit users. https://www.cnn.com/2026/02/08/politics/hunter-hess-trump-olympics-skier adopting Trump behaviors. 
