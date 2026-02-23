@@ -106,3 +106,8 @@ https://old.reddit.com/r/worldnews/comments/1rck7tu/25_mexican_national_guard_tr
 https://old.reddit.com/r/worldnews/comments/1rck7tu/25_mexican_national_guard_troops_left_dead_during/o6z92dw/
 
 MEDIA_ECOLOGY_OBSERVATION  
+
+https://old.reddit.com/r/worldnews/comments/1rck7tu/25_mexican_national_guard_troops_left_dead_during/o6yzzzf/
+
+https://old.reddit.com/r/worldnews/comments/1rck7tu/25_mexican_national_guard_troops_left_dead_during/o6yvudm/
+
