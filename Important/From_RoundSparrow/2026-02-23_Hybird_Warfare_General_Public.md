@@ -40,6 +40,8 @@ Scattered mindsets. Fragmented thinking. Brain damage abounds.
 
 I personally have "hyper empathy" and the hybrid warfare since year 2013 has caused me extreme distress. "Hyper-empathy refers to a person having heightened empathy. Reasons and experiences of hyper-empathy vary. Some autistic people have reported experiencing hyper-empathy. In psychopathology, hyper-empathy is viewed as a symptom of a neurological disorder." https://en.wikipedia.org/wiki/Hyper-empathy
 
+"The unformulated message of an assembly of news items from every quarter of the globe is that the world today is one city. All war is civil war. All suffering is our own." - University of Toronto's Marshall McLuhan. https://en.wikiquote.org/wiki/Marshall_McLuhan
+
 &nbsp;
 
 # My Message Assertion, Payload
