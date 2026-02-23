@@ -1097,3 +1097,9 @@ https://old.reddit.com/r/UrbanHell/comments/1rbuxyx/guadalajara_m%C3%A9xico/o6tv
 https://old.reddit.com/r/UrbanHell/comments/1rbuxyx/guadalajara_m%C3%A9xico/o6twgzt/
 
 https://old.reddit.com/r/UrbanHell/comments/1rbuxyx/guadalajara_m%C3%A9xico/o6utsul/
+
+https://old.reddit.com/r/Costco/comments/1rbzodi/another_angle_of_the_costco_in_pv_mx/o6uqlk7/
+
+https://old.reddit.com/r/Costco/comments/1rbzodi/another_angle_of_the_costco_in_pv_mx/o6uxf1j/
+
+MEDIA_ECOLOGY_LESSON 
