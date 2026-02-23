@@ -836,3 +836,7 @@ Fiction outsells nonfiction. FICTION_OUTSELLS_NONFICTION the "silly story" is wh
 https://old.reddit.com/r/memes/comments/1rc7llt/how_it_feels_being_on_youtube/o6wg3rx/
 
 MEDIA_ECOLOGY_LESSON
+
+https://old.reddit.com/r/memes/comments/1rc7llt/how_it_feels_being_on_youtube/o6wl65q/
+
+OBSERVE: people do not call for Reddit to solve the "bots" issue. Instead, people turn on each other. This is the general attitude towards billionaires and what they create. Complain, but do not organize. THIS_GITHUB project is about showing example after example of common serious society problems created by "Conservative International 2013" mass dehumanization movement that people do not blame for the enshitification of society. Tragedy of the commons, the common mindsets are pummeled by billionaire systems. SEE_ALSO December 20, 2013 call for common mass dehumanization values https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/ in prep for the Ukraine war February 20, 2014.
