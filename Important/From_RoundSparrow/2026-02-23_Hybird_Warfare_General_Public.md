@@ -20,7 +20,7 @@ investigation-lemonde@protonmail.com
 press@kyivindependent.com   
 info@theijf.org   
 
-An openly published copy, including revisions and development, is avaiable here: https://github.com/RocketDerp/April14_2025/blob/main/Important/From_RoundSparrow/2026-02-23_Hybird_Warfare_General_Public.md
+An openly published copy, including revisions and development, is available here: https://github.com/RocketDerp/April14_2025/blob/main/Important/From_RoundSparrow/2026-02-23_Hybird_Warfare_General_Public.md
 
 This letter is released to the Public Domain world wide. Licensed Public Domain. No Rights Reserved. Copyright 2026 Stephen Alfred Gutknecht.
 
