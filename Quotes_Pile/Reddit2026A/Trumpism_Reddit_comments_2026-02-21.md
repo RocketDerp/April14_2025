@@ -703,3 +703,7 @@ https://old.reddit.com/r/comics/comments/1rcgpmx/hard_to_believe/o6yhmy0/
 https://old.reddit.com/r/comics/comments/1rcutka/lets_not/o70z72s/
 
 Trump fandom is a hate fandom. FAITH_IN_HATE PizzaCake's experience on Reddit is gun-worship USA social values. GUN_WORSHIP anti-intellectual to the core. Shoot every MAGA person with a gun instead of teaching cult deprogramming (serious nonfiction adult education using Reddit itself is avoided). Trump leads with hate and followers on Reddit follow the hate.
+
+https://old.reddit.com/r/WatchPeopleDieInside/comments/1rctmpx/mark_zuckerberg_cornered/o70y5m3/
+
+FAKE_RESISTANCE - but if millions of people across the World Wide Web would pledge to Neil Postman's 1985 book "Amusing Ourselves To Death" as a correct theory and REAL_PEOPLE_ADMIT that friends, family, boss men, co-workers and neighbors have been bamboozled by Fox News, Facebook, Instagram, billionaire media systems... we might have a WE THE PEOPLE realization of how our society operates. High-speed information systems, Facebook, Mark Zuckerberg...
