@@ -670,3 +670,8 @@ https://old.reddit.com/r/politics/comments/1rcqc5y/trump_called_usa_hockey_team_
 https://old.reddit.com/r/politics/comments/1rcqc5y/trump_called_usa_hockey_team_to_congratulate_them/o7026yq/
 
 IGNORANCE_CELEBRATIONS celebrating how dumb people are by asking engaging-questions in Twitter social media style. Instead of being brave and having the courage to stand up to Trump by waving Dr. Bandy X Lee's nonfiction books on Reddit, people prize and celebrate how dumb other people are. Cheering on the outcomes of Putin's IRA and Cambridge Analytica instead of actually organizing mental health education as a rescue and recovery operation. Surkov won since March 2013.
+
+https://old.reddit.com/r/hockey/comments/1rco301/quinn_hughes_deleted_story_he_reposted_of_team/o6zlkfx/
+
+IGNORANCE_CELEBRATIONS are incredibly popular in USA since year 2014. Surkov won. The avoidance of relevant nonfiction books on paper is obvious and self-evident. 
+
