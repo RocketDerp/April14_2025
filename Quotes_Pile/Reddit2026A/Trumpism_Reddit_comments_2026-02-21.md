@@ -640,3 +640,7 @@ Photoshop image cult of Reddit. Fandom of Trump fantasy images. **ANYTHING to av
 https://old.reddit.com/r/circled/comments/1rcrzfl/keystone_kash_koing_krime_kkk_k/o70eris/
 
 1 month Reddit account. top-upvoted most popular comment. HIGH_SPEED_REACTIONARY_MINDSETS This is the fandom of White House Kremlin images. Surkovian governing works by having people prize the antics images and media content. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+
+https://old.reddit.com/r/WitchesVsPatriarchy/comments/1rcre11/editors_are_always_making_choices/o70a1tm/
+
+MEDIA_ECOLOGY_OBSERVATION "the commentariat"
