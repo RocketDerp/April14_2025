@@ -61,7 +61,7 @@ In regard to the general public, what Marshall McLuhan called "being mass man", 
 
 2. https://www.youtube.com/clip/UgkxsPMnrK_RCklBbjHHrPqdSuMi23zhsX_M "When I say Russia has no strategy, um. It has clearly several priorities. One is to turn the E.U. to mush. To humiliate the U.S. by showing Article 5 is a joke. Showing the world that NATO is a joke. These are all things... I don't think they add up to a strategy. They end up... sort of checklist of stuff they want to achieve. Sort of a strategy in the sense of.. this is where we want the country to be in 20 years time." - December 5, 2014
 
-
+3. The United States of America abandonment of the World Health Organization. President Trump on January 20, 2025, announced the U.S. plan to leave the WHO. The spread of measles in USA is worsening. Why are people in the general population not associating this with documented hybrid warfare campaigns? Look closely at the August 24, 2018 https://www.BBC.com/news/world-us-canada-45294192 BBC story: "It examined thousands of tweets sent **between 2014 and 2017**. Vaccination was being used by trolls and sophisticated bots as a "wedge issue", said Mark Dredze from Johns Hopkins University." ... **year 2014** evidence. "David Broniatowski from George Washington University."
 
 &nbsp;
 
