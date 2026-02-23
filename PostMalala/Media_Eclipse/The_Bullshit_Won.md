@@ -5,7 +5,7 @@ The USA [government shutdown October 2025](https://en.wikipedia.org/wiki/2025_Un
 But I witnessed very few social media users recall December 2024. RECENCY_BIAS  
 
 Elon Musk, December 2024: https://news.bgov.com/bloomberg-government-news/year-end-funding-fight-previews-house-gop-turbulence-ahead-1     
-Elon Musk, December 2024: https://www.bbc.com/news/articles/cd0e7j94732o
+Elon Musk, December 2024: https://www.BBC.com/news/articles/cd0e7j94732o
 
 Just weeks before Donald Trump and Elon Musk even took over the White House in January 2025, they were telling the public IN PUBLIC that they wanted to create a government shutdown. Before even having official power, Musk and Trump were trying to SHUT DOWN the government! It was blatantly in the face of We The People as an intention and tactic!
 
