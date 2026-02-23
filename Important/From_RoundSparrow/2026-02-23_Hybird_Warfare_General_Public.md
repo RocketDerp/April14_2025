@@ -4,6 +4,7 @@ Who to contact in press:
 contact@hybridwarfare.info   
 ICforML@gmail.com   
 JIW@ArmisteadTec.com   
+zsigmond.edina@uni-nke.hu   
 
 An openly published copy, including revisions and development, is avaiable here: https://github.com/RocketDerp/April14_2025/blob/main/Important/From_RoundSparrow/2026-02-23_Hybird_Warfare_General_Public.md
 
@@ -16,4 +17,7 @@ Social media manipulation campaigns.
 Hyper-normalization, hyper-banalization of critical and important topics.   
 The Forest for the Trees not being recognized by We The People.  
 
- 
+Phrases others have used to desribe the concern of humanity:   
+"Hybrid warfare: The continuation of ambiguity by other means"   
+"Modern Cognitive Operations and Hybrid Warfare"   
+
