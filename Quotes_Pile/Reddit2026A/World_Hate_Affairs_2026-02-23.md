@@ -53,3 +53,14 @@ Social post { https://autistics.life/@RoundSparrow/116121335754824470 https://bs
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1rchewc/how_to_immediately_taint_a_moment_of_glory/o6y6gsz/
 
 That is the toxic popularity. Dumb shit, antics, are what make Reddit media /r/All on ANY TOPIC. If a dog or cat does something dumb and stupid, instantly the photo is on the front-page of Reddit media. That's what Surkov mastered. The title of the Reddit media posting "immediately taint", no - this is how you OWN, win hearts and minds, using hate-watching audiences (Reddit and Bluesky are hate-watching fandoms of MAGA). This is "owning" an event, dominating, rape culture of media cults. Breaking news events to overwrite-reality with hyper-reality. Surkovian techniques.
+
+https://old.reddit.com/r/politics/comments/1rcjq18/very_inappropriate_fbi_director_kash_patel_faces/o6yqffa/
+
+<img width="951" height="1298" alt="Screenshot from 2026-02-23 11-37-01" src="https://github.com/user-attachments/assets/257568dd-7f5a-4f56-a5e3-c5acfaebd745" />
+
+The backlash is both expected and conditioned. Surkov won since March of year 2013. NEW_SYSTEM_POLITICAL_CONTROL 
+
+* "What this film is **going to suggest is that that defeatist response has become a central part of a new system of political control**. And to understand how this is happening, you have to look to Russia, to a man called Vladislav Surkov, who is a hero of our time." - BBC, Adam Curtis. December 31, 2014
+
+NEW_OPERA_NAME #BacklashGoverning #BacklashPolitics #BacklashExpected #LashedFandom #BacklashProgramming    
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mfkd43gucs2c https://autistics.life/@RoundSparrow/116121448966216887 }   
