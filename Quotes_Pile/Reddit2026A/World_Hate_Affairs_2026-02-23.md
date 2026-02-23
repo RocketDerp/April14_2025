@@ -85,4 +85,5 @@ Social post { https://autistics.life/@RoundSparrow/116121631886937336 https://bs
 
 https://old.reddit.com/r/circled/comments/1rchi5g/where_from_here/o6y872o/
 
-MEDIA_ECOLOGY_OBSERVATION Here are the typical mass dehumanization messages on Reddit media. Calling cult members of other cults "machine bots" as a way to normalize "non-person" dehumanization. MAGA_VALUES media values of mass dehumanization programming. No benefit of doubt that Rupert Murdoch HDTV cult members are real people, all doubt is removed in simple-logic thinking patterns in Reddit fandom.
+MEDIA_ECOLOGY_OBSERVATION Here are the typical mass dehumanization messages on Reddit media. Calling cult members of other cults "machine bots" as a way to normalize "non-person" dehumanization. MAGA_VALUES media values of mass dehumanization programming. No benefit of doubt that Rupert Murdoch HDTV cult members are real people, all doubt is removed in simple-logic thinking patterns in Reddit fandom. FAKE_DETECTORS are common on Reddit platform. SEE_ALSO my educational subreddit, https://old.reddit.com/r/FakeDetectors which the /r/FakeDetectors subreddit got banned by Reddit owners because I as CALLING OUT people commonly messaging that people were "machine bots", dehumanizing.
+
