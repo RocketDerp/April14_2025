@@ -82,3 +82,7 @@ As for the image text on the posting itself: What ignorance to say "you cannot m
 
 NEW_OPERA_NAME #MakeThisStuffUp   
 Social post { https://autistics.life/@RoundSparrow/116121631886937336 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfkfnyejg22y }   
+
+https://old.reddit.com/r/circled/comments/1rchi5g/where_from_here/o6y872o/
+
+MEDIA_ECOLOGY_OBSERVATION Here are the typical mass dehumanization messages on Reddit media. Calling cult members of other cults "machine bots" as a way to normalize "non-person" dehumanization. MAGA_VALUES media values of mass dehumanization programming. No benefit of doubt that Rupert Murdoch HDTV cult members are real people, all doubt is removed in simple-logic thinking patterns in Reddit fandom.
