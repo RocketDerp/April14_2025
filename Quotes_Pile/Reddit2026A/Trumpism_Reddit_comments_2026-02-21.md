@@ -562,3 +562,8 @@ https://old.reddit.com/r/MurderedByWords/comments/1rcgetd/someone_forgot_how_the
 Wanting to silence people. Calling human persons "dregs", instead of the ideas / mindsets / Rupert Murdoch billionaire programming that is called out.  This Reddit comment is deflection from where these anti-AOC ideas come from.  DEFLECTION_FROM_BILLIONAIRES_AND_PUTINISM And it is Reddit audience who took a Threads screen shot and upvoted it to Reddit front page /r/All first thing on Monday. FEEDBACK_LOOP_MEDIA_CULTS_PLATFORM_TO_PLATFORM_MOCKERY_USA
 
 * "Senator John Kennedy for mocking Representative Alexandria Ocasio-Cortez's bartending experience" https://thehill.com/homenews/house/5750176-anna-luna-criticizes-kennedy/
+
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1rcinne/im_not_shocked/o6yu9ns/
+
+MEDIA_ECOLOGY_OBSERVATION posting, Trump Truth Social leads all media systems values, media mindsets, role model of media stardom. The massive success of Donald Trump's media performances leads all media practitioners. MAGA_VALUES Surkov won since March of year 2013.
+
