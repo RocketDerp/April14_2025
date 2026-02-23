@@ -32,7 +32,7 @@ press@mfa.gov.ua
 
 &nbsp;
 
-From Stephen Alred Gutknecht  
+From Stephen Alfred Gutknecht  
 Born in Columbus Georgia USA on October 7, 1969.  
 
 Dear Leaders of Ukraine. In recent days, world press coverage of decleration that we are "World War 3" has been news. Example discussion this morning on USA-centered Reddit social media (Caliifornia USA Reddit busienss) https://old.reddit.com/r/worldnews/comments/1rcbnx8/zelenskyy_putin_has_effectively_started_world_war/o6xsuy6/
