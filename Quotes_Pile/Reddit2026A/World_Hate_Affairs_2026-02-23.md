@@ -64,3 +64,7 @@ The backlash is both expected and conditioned. Surkov won since March of year 20
 
 NEW_OPERA_NAME #BacklashGoverning #BacklashPolitics #BacklashExpected #LashedFandom #BacklashProgramming    
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mfkd43gucs2c https://autistics.life/@RoundSparrow/116121448966216887 }   
+
+https://old.reddit.com/r/politics/comments/1rcjq18/very_inappropriate_fbi_director_kash_patel_faces/o6yqskp/
+
+REMEMBER_THE_PROGRAM_IDEAS_BILLIONAIRES_FED_REDDIT_AUDIENCE regurgitating the billionaire lines on Reddit media.
