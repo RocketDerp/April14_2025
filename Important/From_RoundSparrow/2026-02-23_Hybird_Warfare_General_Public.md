@@ -31,7 +31,7 @@ Social media manipulation campaigns.
 Hyper-normalization, hyper-banalization of critical and important topics.   
 The Forest for the Trees not being recognized by We The People.  
 
-Phrases others have used to desribe the concern of humanity:   
+Phrases others have used to describe the concern of humanity:   
 "Hybrid warfare: The continuation of ambiguity by other means"   
 "Modern Cognitive Operations and Hybrid Warfare"   
 
