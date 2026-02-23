@@ -1,6 +1,6 @@
 # Manipulated People Find it Funny   
 
-NEW_OPERA_NAME ManipulatedPeopleFind #AbusedPeopleFind   
+NEW_OPERA_NAME #ManipulatedPeopleFind #AbusedPeopleFind   
 
 "Manipulated people find. Abused people find it funny!"   
 
