@@ -528,3 +528,8 @@ TRUMP_FANDOM on Reddit calling out in public how they want more and more Trump c
 https://old.reddit.com/r/politics/comments/1rc095c/family_of_man_21_shot_dead_by_police_at_maralago/o6utmuf/
 
 "cult members". Cult of Fox News HDTV media. Reddit commenting section is full of cult of mocking and insulting the MAGA cult / Fox News cult. A major symptom of the cult is avoidance of nonfiction serious books on paper about cults. Avoiding Dr. Bandy X Lee's books about mental health topics of USA.
+
+https://old.reddit.com/r/politics/comments/1rc095c/family_of_man_21_shot_dead_by_police_at_maralago/o6utsem/
+
+USA population avoiding nonfiction serious learning about cult behaviors. Avoiding quoting nonfiction books and linking authors with real names, etc. Why does Reddit fandom to Trump content always avoid Dr. Bandy X Lee's books that were created for general public education on mental health related to Trump? People seem attracted to Trump's leadership of hate and mass dehumanization. It continues year after year, Trump at the center of all USA media systems / information networks as a topic.
+
