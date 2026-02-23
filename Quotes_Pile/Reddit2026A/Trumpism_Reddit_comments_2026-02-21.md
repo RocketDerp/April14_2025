@@ -576,3 +576,16 @@ https://old.reddit.com/r/BlackPeopleofReddit/comments/1rcinne/im_not_shocked/o6y
 CALL_TO_INTELLECTUAL_ACTION_PLAN why not require, going forward, beyond this... that any public broadcast that has a Tourette Syndrome audience member present, for accommodation, agree to being filmed and recorded. And if any compulsive outbursts are induced into the central broadcast of the content... then the person who did the outburst has their video released for the sake of documenting the behavior. This serves to educate the general public. It also focuses on those who broadcast being held responsible (the Tourette Syndrome audience member being identified as the source of offensive content). OTHERWISE, the accommodations for such a person would be to build some kind of soundproof seating at the live performance.
 
 Consideration should also be given even if it is not broadcast where censor cut time-delay is common. As people in the audience itself are still exposed to the messages.
+
+https://old.reddit.com/r/Epstein/comments/1rcqwbq/thomas_massie_says_the_us_government_is/o706wbj/
+
+"God bless", what is Israel controlled by? Yahweh? Synagogue clergy presenters at science fiction venue ideas of being the chosen people? LEVANT_MONOMYTH_CRISIS you got science fiction Mosque Quran empire retcon battles of Torah story. Adam / Eve / Noah all in the Quran and Torah both.
+
+https://old.reddit.com/r/Epstein/comments/1rcqwbq/thomas_massie_says_the_us_government_is/o707fzp/
+
+4 month Reddit account.
+
+https://old.reddit.com/r/TrendoraX/comments/1rch7fy/agree_disagree/o6y7oc5/
+
+4 month Reddit account, 2nd-top upvoted comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT Clickbait title on front page that does social media polling engagement with non-specific meaning to invite people to click into the image. Reddit society isn't resisting billionaire clickbait Twitter thinking.
+
