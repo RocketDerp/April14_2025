@@ -5,6 +5,7 @@ contact@hybridwarfare.info
 ICforML@gmail.com   
 JIW@ArmisteadTec.com   
 zsigmond.edina@uni-nke.hu   
+press@nato-pa.int   
 
 An openly published copy, including revisions and development, is avaiable here: https://github.com/RocketDerp/April14_2025/blob/main/Important/From_RoundSparrow/2026-02-23_Hybird_Warfare_General_Public.md
 
