@@ -13,3 +13,7 @@ The image "they are complicit". They are cult members. Every person on Reddit wh
 * Russia society values... "Back in her home town, in Donetsk(?). Mass gang rapes over a series of days" https://youtu.be/5Au332OG-M4?t=645 "It's normal, it happens to all the girls, no biggie". This is what Donald Trump admires as a society role model / system of society.
 
 Why is Reddit community not organizing blackout protests? FAQ, Wiki organized information?? BRAIN_ROT_SOCIETY_47 
+
+https://old.reddit.com/r/worldnews/comments/1rcbnx8/zelenskyy_putin_has_effectively_started_world_war/o6x7a8e/
+
+REAL_WW3 One single click away. OBSERVE_SOCIAL_MEDIA_AVOIDING_NONFICTION but the anti-FAQ anti-Wiki anti-organization values of social media users in year 2026 is to comment and comment and comment instead of get everyone on the same important relevant pages of a topic. OBSERVE what is avoided: "The **underlying aim, Surkov says, is not to win the war**, but to use the conflict to create a constant state of destabilized perception, in order to manage and control." - **December 31, 2014 BBC** - yes YEAR 2014 of the Ukraine war by Russia. https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html
