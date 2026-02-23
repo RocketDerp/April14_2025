@@ -42,3 +42,14 @@ https://old.reddit.com/r/politics/comments/1rchae6/gunman_shot_dead_in_maralago_
 "Delusional" from Epstein media topics and MAGA media cult content. NOT_GOOD_ENOUGH for people on social media computers to cite NATO Breedlove on topic of organized information warfare. The consistent avoidance of serous nonfiction on Reddit commenting media enviornment. MASS_HALLUCINATIONS_SEPTEMBER_YEAR_2014_PUBLISHED   
 
 * "At the NATO summit in Wales last week, General Philip Breedlove, the military alliance’s top commander, made a bold declaration. Russia, he said, is waging “the most amazing information warfare blitzkrieg we have ever seen in the history of information warfare.” It was something of an underestimation. The new Russia doesn’t just deal in the petty disinformation, forgeries, lies, leaks, and cyber-sabotage usually associated with information warfare. It **reinvents reality, creating mass hallucinations**" - https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rchewc/how_to_immediately_taint_a_moment_of_glory/o6y5kug/
+
+ANSWER: UNDERSTANDING_TRUMPISM to blow the minds of Reddit commenting community. To blow the minds of USA audience. SYMBOLISM_WARFARE /\ SURKOV_WARFARE this is the bleeding edge of hybrid warfare. Reddit is being manipulated, people can't point on Reddit compulsively react and are unable to nonfiction on the subject.
+
+NEW_OPERA_NAME #OrganizedMediaAntics #WorldNewsMania    
+Social post { https://autistics.life/@RoundSparrow/116121335754824470 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfkbi22rn22c }   
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rchewc/how_to_immediately_taint_a_moment_of_glory/o6y6gsz/
+
+That is the toxic popularity. Dumb shit, antics, are what make Reddit media /r/All on ANY TOPIC. If a dog or cat does something dumb and stupid, instantly the photo is on the front-page of Reddit media. That's what Surkov mastered. The title of the Reddit media posting "immediately taint", no - this is how you OWN, win hearts and minds, using hate-watching audiences (Reddit and Bluesky are hate-watching fandoms of MAGA). This is "owning" an event, dominating, rape culture of media cults. Breaking news events to overwrite-reality with hyper-reality. Surkovian techniques.
