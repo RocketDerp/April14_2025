@@ -56,9 +56,9 @@ COUNTER-SURKOVIAN
 
 My advice for you is to use all your avaialbe social media resources to promote as many Ukraine people to mormorize this December 5, 2014 video clip:
 
-1. 
+1. https://www.youtube.com/clip/UgkxGLMkhbMgSwzWeQK7xYIBJ-nxn_UlzOdZ - and instead of calling it the "third world war" use this video clip to call it wat Surkov himself calls it, "the 5th world war". "War of All against All". A social media / press / "The Media" / global fiction-stroytelling brainwashing war. Media ecology warfare. Hybrid warfare of messaging and information systems, news! Propeganda. 
 
-Further, i woudl offer a bouty of $13 or a gift mailed for any blogger, writer, influencer who spends 2 or more minutes disussing this December 5, 2014 video. Just as is done for hollywood TV shows and film industry to influencers. DICLOSE you are doing this, openly, run a magazine add to DOCUMENT you are actively promoting FACTS, TRUTH, NONFICTION!
+Further, I would suggest Ukraine and allies offer a bouty of $13 or a gift mailed for any blogger, writer, influencer who spends 2 or more minutes disussing this December 5, 2014 video. Just as is done for hollywood TV shows and film industry to influencers. DICLOSE you are doing this, openly, run a magazine add to DOCUMENT you are actively promoting FACTS, TRUTH, NONFICTION!
 
 A December 31, 2014 video clip from BBC should also be licensed. https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html
 
@@ -67,3 +67,10 @@ Neil Postman's 1985 nonfiction book, Tune Nagazine covered it last year for 40th
 If you study this rather short 184 page book deeply, you will come to recognize ahat New York University professor Neil Postman did not think there was any *intentonal* weaponization of amusement / joke-washing / entertainment. It was, in year 1985, unintentential. This quote expresses that:
 
 What Surkov / Surkov students have done since year 2011 (documented that year, but really incrementally since year 2000) is intentially exploit this aspect of the human mind. The mass man (University of Toronto's Marshall McLuhan terminology "mass man") of society, the "mass mind" of society (Howard Bloom New York City terminology, "global brain", "mass mind" defined in his August 2000 book). I point to this October 21, 2011 story about "Putin's Rasputin" to show what Neil Postman was describing as unintended in 1985 NYC as intential Moscow techniques in year 2011. https://www.lrb.co.uk/the-paper/v33/n20/peter-pomerantsev/putin-s-rasputin
+
+************ NEW SUBJECT *********
+
+Top 13 List of concerns, "Top 13 Avoided Topics" under my "Brain Rot Society 47" project.
+
+https://github.com/GreatSealUSA/Brainrot_Society_47/blob/main/Avoided_Topics/Top_13_Avoided_Topics.md
+
