@@ -675,3 +675,13 @@ https://old.reddit.com/r/hockey/comments/1rco301/quinn_hughes_deleted_story_he_r
 
 IGNORANCE_CELEBRATIONS are incredibly popular in USA since year 2014. Surkov won. The avoidance of relevant nonfiction books on paper is obvious and self-evident. 
 
+https://old.reddit.com/r/comics/comments/1rcgpmx/hard_to_believe/o6y1fxt/ 
+
+MAXIMUM_PUTINIZATION MIND_BLOWN_BY Putin and Trump since March 2013. Surkov won. 
+
+NEW_OPERA_NAME #StaggerAround #HorrifiedDisbelief #RealityDisbelief   
+Social post { https://autistics.life/@RoundSparrow/116122195043914580 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfknnvcvs22o }  
+
+https://old.reddit.com/r/comics/comments/1rcgpmx/hard_to_believe/o6y99kh/
+
+ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING
