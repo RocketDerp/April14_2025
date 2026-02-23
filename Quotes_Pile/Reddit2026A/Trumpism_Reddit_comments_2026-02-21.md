@@ -679,9 +679,15 @@ https://old.reddit.com/r/comics/comments/1rcgpmx/hard_to_believe/o6y1fxt/
 
 MAXIMUM_PUTINIZATION MIND_BLOWN_BY Putin and Trump since March 2013. Surkov won. 
 
+* "what Putin will do next — that **he’s unpredictable and thus dangerous. We’re rendered stunned, spun, and flummoxed** by the Kremlin’s weaponization of absurdity and unreality.” - **year 2014**. September 9, 2014 https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
 NEW_OPERA_NAME #StaggerAround #HorrifiedDisbelief #RealityDisbelief   
 Social post { https://autistics.life/@RoundSparrow/116122195043914580 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfknnvcvs22o }  
 
 https://old.reddit.com/r/comics/comments/1rcgpmx/hard_to_believe/o6y99kh/
 
 ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING
+
+https://old.reddit.com/r/comics/comments/1rcgpmx/hard_to_believe/o6y29gn/
+
+NEW_SYSTEM_POLITICAL_CONTROL Surkovian values.
