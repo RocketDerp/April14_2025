@@ -24,6 +24,7 @@ Next steps;
 
 emb_us@mfa.gov.ua   
 consul_us@mfa.gov.ua   
+press@mfa.gov.ua   
 
 &nbsp;
 
@@ -68,7 +69,7 @@ If you study this rather short 184 page book deeply, you will come to recognize 
 
 What Surkov / Surkov students have done since year 2011 (documented that year, but really incrementally since year 2000) is intentially exploit this aspect of the human mind. The mass man (University of Toronto's Marshall McLuhan terminology "mass man") of society, the "mass mind" of society (Howard Bloom New York City terminology, "global brain", "mass mind" defined in his August 2000 book). I point to this October 21, 2011 story about "Putin's Rasputin" to show what Neil Postman was describing as unintended in 1985 NYC as intential Moscow techniques in year 2011. https://www.lrb.co.uk/the-paper/v33/n20/peter-pomerantsev/putin-s-rasputin
 
-************ NEW SUBJECT *********
+********* NEW SUBJECT *********
 
 Top 13 List of concerns, "Top 13 Avoided Topics" under my "Brain Rot Society 47" project.
 
