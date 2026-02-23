@@ -622,3 +622,7 @@ RECENCY_BIAS abounds. People keep acting like Donald Trump just took office one 
 https://old.reddit.com/r/LetsDiscussThis/comments/1rcrux2/someone_fixed_the_banner_in_front_of_the_doj/o70hagl/
 
 2 month Reddit account. TRICKLE_DOWN_TALKING_POINTS_TO_SOCIETY - this commenting about the stock market values serves as Reddit platform echoing the billionaire mental programming and mindsets. 
+
+https://old.reddit.com/r/LetsDiscussThis/comments/1rcrux2/someone_fixed_the_banner_in_front_of_the_doj/o70fgom/
+
+EPSTEIN_FANDOM fantasy of rich white men sex lives and supernatural magic that wealth provides.
