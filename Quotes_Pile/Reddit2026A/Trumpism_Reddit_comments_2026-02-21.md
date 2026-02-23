@@ -524,3 +524,7 @@ ANTI_REALITY is news too. Fiction outsells nonfiction in the Putinism Trumpism s
 https://old.reddit.com/r/politics/comments/1rbwm8c/a_voice_sounding_like_trump_called_into_cspan_and/o6u6eqp/
 
 TRUMP_FANDOM on Reddit calling out in public how they want more and more Trump content. Even actors playing Trump characters is craved by Reddit commenting fandom.
+
+https://old.reddit.com/r/politics/comments/1rc095c/family_of_man_21_shot_dead_by_police_at_maralago/o6utmuf/
+
+"cult members". Cult of Fox News HDTV media. Reddit commenting section is full of cult of mocking and insulting the MAGA cult / Fox News cult. A major symptom of the cult is avoidance of nonfiction serious books on paper about cults. Avoiding Dr. Bandy X Lee's books about mental health topics of USA.
