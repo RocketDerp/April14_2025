@@ -18,9 +18,21 @@ https://errors.edgesuite.net/18.9694d817.1771855001.26d6856d
 
 &nbsp;
 
+&nbsp;
+
+Next steps;
+
+emb_us@mfa.gov.ua   
+consul_us@mfa.gov.ua   
+
+&nbsp;
+
 # Message
 
 &nbsp;
+
+From Stephen Alred Gutknecht
+Born in Columbus Georgia USA on October 7, 1969.
 
 Dear Leaders of Ukraine. In recent days, world press coverage of decleration that we are "World War 3" has been news. Example discussion this morning on USA-centered Reddit social media (Caliifornia USA Reddit busienss) https://old.reddit.com/r/worldnews/comments/1rcbnx8/zelenskyy_putin_has_effectively_started_world_war/o6xsuy6/
 
@@ -32,7 +44,10 @@ FULL DISCLOSURE: I suffer from autism, late-stage in my life, beyond life expeta
 
 2. I have been hspoitalized in mental institutions all over the southern and western USA since summer of  year 2015 when the Saint Petersburg Internet Research Agency invaded Reddit social / Facebook / Twitter. The falsehoods and organized information warfare *drives me crazy* that people will tolerate such abuse from Russia! Russia has been USA cold war enemy and you can not get people to take billionaire Elon Musk purchase of Twitter, Russia Today HDTV and YouTube, and Internet Research Agency topics serously!
 
-3. I was an apprentice at age 16 in high school for "Telos Federal Systems" of Santa Monica California - at their Fort Wayne, Indiana satellite office in military intelligence and software engineering systems in year 1986. Who was partnered with Magnavox in Fort Wayne https://www.dcvintagewatches.com/product-page/cold-war-1988-magnavox-dropping-sonobuoys-anti-subwarfare-sonobuoy-advert information systems technology. In my apprenticeship, I was given access to expensive military industry trade journals and magazines and self-directed my own reading (paid by the hour to read as I wish) - I was allowed to take these jouranls and magazines home and study them, often I was reading them in public school classrooms when bored. 
+3. I was an apprentice at age 16 in high school for "Telos Federal Systems" of Santa Monica California - at their Fort Wayne, Indiana satellite office in military intelligence and software engineering systems in year 1986. Who was partnered with Magnavox in Fort Wayne https://www.dcvintagewatches.com/product-page/cold-war-1988-magnavox-dropping-sonobuoys-anti-subwarfare-sonobuoy-advert information systems technology. In my apprenticeship, I was given access to expensive military industry trade journals and magazines and self-directed my own reading (paid by the hour to read as I wish) - I was allowed to take these jouranls and magazines home and study them, often I was reading them in public school classrooms when bored.
+
+I have opely shared the development of this letter public on the world wide web. https://github.com/RocketDerp/April14_2025/blob/main/Important/From_RoundSparrow/2026-02-23_Ukraine_Leadership.md
+
 
 OK, enough about my person...
 
@@ -47,4 +62,8 @@ Further, i woudl offer a bouty of $13 or a gift mailed for any blogger, writer, 
 
 A December 31, 2014 video clip from BBC should also be licensed. https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html
 
-Neil Postman's 1985 book
+Neil Postman's 1985 nonfiction book, Tune Nagazine covered it last year for 40th year. The son of the author, Andrew Postman, openly declared Trump as a focus February 2, 2017 at the start of Donald Trump's first term in office. https://www.theguardian.com/media/2017/feb/02/amusing-ourselves-to-death-neil-postman-trump-orwell-huxley
+
+If you study this rather short 184 page book deeply, you will come to recognize ahat New York University professor Neil Postman did not think there was any *intentonal* weaponization of amusement / joke-washing / entertainment. It was, in year 1985, unintentential. This quote expresses that:
+
+What Surkov / Surkov students have done since year 2011 (documented that year, but really incrementally since year 2000) is intentially exploit this aspect of the human mind. The mass man (University of Toronto's Marshall McLuhan terminology "mass man") of society, the "mass mind" of society (Howard Bloom New York City terminology, "global brain", "mass mind" defined in his August 2000 book). I point to this October 21, 2011 story about "Putin's Rasputin" to show what Neil Postman was describing as unintended in 1985 NYC as intential Moscow techniques in year 2011. https://www.lrb.co.uk/the-paper/v33/n20/peter-pomerantsev/putin-s-rasputin
