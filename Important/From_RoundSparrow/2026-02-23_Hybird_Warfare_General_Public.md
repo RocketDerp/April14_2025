@@ -9,3 +9,11 @@ An openly published copy, including revisions and development, is avaiable here:
 
 This letter is released to the Public Domain world wide. Licensed Public Domain. No Rights Reserved. Copyright 2026 Stephen Alfred Gutknecht.
 
+Topics:   
+Irregular and Hybrid Warfare   
+Social media manipulation campaigns.   
+"Celebration of Ignorance" predictable behaviors of social media society.  
+Hyper-normalization, hyper-banalization of critical and important topics.   
+The Forest for the Trees not being recognized by We The People.  
+
+ 
