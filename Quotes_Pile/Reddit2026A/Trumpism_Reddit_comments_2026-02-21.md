@@ -618,3 +618,7 @@ As for the comment... “Everyone loved Martin Luther King!” and the anti-Wiki
 https://old.reddit.com/r/clevercomebacks/comments/1rcm9j2/history_should_not_be_subjective/o6z7xsa/
 
 RECENCY_BIAS abounds. People keep acting like Donald Trump just took office one month ago. People have non sense of the planning in year 2013 that went into the global "Conservative International 2013" build up to the Ukraine war that Trump and Putin did. People can't even recall November 8, 2013 private jet trip to Moscow that Trump took right before the Ukraine war. SEE_ALSO: published December 20, 2013 https://www.theAtlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/
+
+https://old.reddit.com/r/LetsDiscussThis/comments/1rcrux2/someone_fixed_the_banner_in_front_of_the_doj/o70hagl/
+
+2 month Reddit account. TRICKLE_DOWN_TALKING_POINTS_TO_SOCIETY - this commenting about the stock market values serves as Reddit platform echoing the billionaire mental programming and mindsets. 
