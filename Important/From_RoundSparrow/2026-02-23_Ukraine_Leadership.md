@@ -57,7 +57,7 @@ COUNTER-SURKOVIAN
 
 My advice for you is to use all your available social media resources to promote as many Ukraine people to mormorize this December 5, 2014 video clip:
 
-1. https://www.youtube.com/clip/UgkxGLMkhbMgSwzWeQK7xYIBJ-nxn_UlzOdZ - and instead of calling it the "third world war" use this video clip to call it what Surkov himself calls it, "the 5th world war". "War of All against All". A social media / press / "The Media" / global fiction-stroytelling brainwashing war. Media ecology warfare. Hybrid warfare of messaging and information systems, news! Propaganda.
+1. https://www.youtube.com/clip/UgkxGLMkhbMgSwzWeQK7xYIBJ-nxn_UlzOdZ - and instead of calling it the "third world war" use this video clip to call it what Surkov himself calls it, "the 5th world war". "War of All against All". A social media / press / "The Media" / global fiction-storytelling brainwashing war. Media ecology warfare. Hybrid warfare of messaging and information systems, news! Propaganda.
 
 2. https://www.youtube.com/clip/UgkxsPMnrK_RCklBbjHHrPqdSuMi23zhsX_M "When I say Russia has no strategy, um. It has clearly several priorities. One is to turn the E.U. to mush. To humiliate the U.S. by showing Article 5 is a joke. Showing the world that NATO is a joke. These are all things... I don't think they add up to a strategy. They end up... sort of checklist of stuff they want to achieve. Sort of a strategy in the sense of.. this is where we want the country to be in 20 years time." - December 5, 2014
 
