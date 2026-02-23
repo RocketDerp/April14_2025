@@ -111,3 +111,4 @@ https://old.reddit.com/r/worldnews/comments/1rck7tu/25_mexican_national_guard_tr
 
 https://old.reddit.com/r/worldnews/comments/1rck7tu/25_mexican_national_guard_troops_left_dead_during/o6yvudm/
 
+By that logic.. anyone who uses billionaire media systems is accountable for Putin, Trump, Israel, etc. Reddit is Corporate America traded and serving shareholders. Any person who hides their real name and accountability and upvotes anonymous messages on Reddit is supporting misinformation and unverified sources. The idea of holding We The People accountable for cocaine drug abuse... why aren't We The People voting to legalize drug use? Alcohol still has raging violence crisis and because it is legal, doesn't have as much cartel (although it funds media systems for power, influence).
