@@ -78,12 +78,17 @@ Thank you for your time and attention.
 
 &nbsp;
 
+&nbsp;
+
 # Social Media Posts
 
 2026-02-23    
 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfjwrvpo7k2m   
 https://autistics.life/@RoundSparrow/116120587070877350   
 
+&nbsp;
+
 # Scraps of words, Piles of words
 
-"Social media is the tool available to change the mind-set of masses. Hybrid war is an all-encompassing war which affects every aspect of the human society, to create panic which can only be achieved when the mind of the masses are targeted. Social media has the greatest potential in this regard. This medium can bring benefits out of proportion if utilized constructively. True and fair social media campaign provided at the appropriate time can change the mind-set of targeted audience and extend own point of view." https://Vocal.Media/journal/hybrid-warfare-vu2f08ow - **the inverse of this has proven far more true and popular**. And it is a major assertion of mine to constantly emphasize FICTION_OUTSELLS_NONFICTION - the monomyth patterns of science fiction leadership throughout history (as defined by James Joyce on page 581 of his fiction book Finnegans Wake). 
+"Social media is the tool available to change the mind-set of masses. Hybrid war is an all-encompassing war which affects every aspect of the human society, to create panic which can only be achieved when the mind of the masses are targeted. Social media has the greatest potential in this regard. This medium can bring benefits out of proportion if utilized constructively. True and fair social media campaign provided at the appropriate time can change the mind-set of targeted audience and extend own point of view." https://Vocal.Media/journal/hybrid-warfare-vu2f08ow 
+* ASSERTION: **the inverse of this has proven far more true and popular**. And it is a major assertion of mine to constantly emphasize FICTION_OUTSELLS_NONFICTION - the monomyth patterns of science fiction leadership throughout history (as defined by James Joyce on page 581 of his fiction book Finnegans Wake). 
