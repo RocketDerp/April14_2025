@@ -26,5 +26,8 @@ BRAINROT_SOCIETY_47
 
 * I don't agree at all with her anti-wind anti-solar "that was insane" statement. The lack of open-source pattent-free focus for common good globally. Just like clergy of religion teaches anti-PLURIBUS and promotes out-group hate, competitive hate.
 
+"That could solve the biggest problem our species has at the very moment: which is global coordination." https://youtu.be/gBHSmwxgLfQ?t=335    
+PEOPLE_LOVE_COMEDY_MEDIA_CONTENT_MORE_THAN_PLURIBUS_HUMANISM   
 
+"We have a much bigger underlying problem: our inability to make collectively intelligent decsiions." https://youtu.be/gBHSmwxgLfQ?t=395 COLLECTIVELY_INTELLIGENT_PLURIBUS_LEARNING   
 
