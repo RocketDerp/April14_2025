@@ -53,7 +53,7 @@ I personally have "hyper empathy" and the hybrid warfare since year 2013 has cau
 
 # My Message Assertion, Payload
 
-From Stephen Alred Gutknecht  
+From Stephen Alfred Gutknecht  
 Born in Columbus Georgia USA on October 7, 1969.  
 Contact: CircleBird12@gmail.com  
 
@@ -61,11 +61,14 @@ This is my assertion. This is my payload of my message. The reason I am contacti
 
 In regard to the general public, what Marshall McLuhan called "being mass man", there is an alarming pattern of avoidance of serious nonfiction topics. (reference McLuhan year 1977 https://www.organism.earth/library/document/mcluhan-mcmanus ) Please excuse the following use of YouTube links, but I believe the time-frame of the first public reading of a highly relevant book is essential focus for everyone world wide.
 
-1. https://www.youtube.com/clip/UgkxGLMkhbMgSwzWeQK7xYIBJ-nxn_UlzOdZ - and instead of Ukraine in the press this week calling it the "third world war" use this video clip to call it what Surkov himself calls it, "the 5th world war". "War of All against All". A social media / press / "The Media" / global fiction-storytelling brainwashing war. Media ecology warfare. Hybrid warfare of messaging and information systems, news! Propaganda.
+1. https://www.youtube.com/clip/UgkxGLMkhbMgSwzWeQK7xYIBJ-nxn_UlzOdZ video December 5, 2014. "would go on to call the Fifth World War. The first nonlinear war of all against all. Which is a description by Vladislav Surkov, who sort of the ennui ??? of Russian politics, of the current (year 2014) war around Ukraine. um, so, I started working in Russian TV"
+   * ASSERTION: The general public this week (February 23) is discussing Ukraine in the press stating Russia has started the "third world war". Instead, why are people in press and social computing not using this year 2014 video clip to call it what Surkov himself calls it, "the 5th world war". "War of All against All". A social media / press / "The Media" / global fiction-storytelling brainwashing war. Media ecology warfare. Hybrid warfare of messaging and information systems, news! Propaganda.
 
 2. https://www.youtube.com/clip/UgkxsPMnrK_RCklBbjHHrPqdSuMi23zhsX_M "When I say Russia has no strategy, um. It has clearly several priorities. One is to turn the E.U. to mush. To humiliate the U.S. by showing Article 5 is a joke. Showing the world that NATO is a joke. These are all things... I don't think they add up to a strategy. They end up... sort of checklist of stuff they want to achieve. Sort of a strategy in the sense of.. this is where we want the country to be in 20 years time." - December 5, 2014
+   * ASSERTION: The general public does not grasp that "into a joke" is hybrid warfare. That having the general public constantly joking and mocking about NATO and USA was described in December 2014 about Russia's agenda for the next 20 years.
 
-3. The United States of America abandonment of the World Health Organization. President Trump on January 20, 2025, announced the U.S. plan to leave the WHO. The spread of measles in USA is worsening. Why are people in the general population not associating this with documented hybrid warfare campaigns? Look closely at the August 24, 2018 https://www.BBC.com/news/world-us-canada-45294192 BBC story: "It examined thousands of tweets sent **between 2014 and 2017**. Vaccination was being used by trolls and sophisticated bots as a "wedge issue", said Mark Dredze from Johns Hopkins University." ... **year 2014** evidence. "David Broniatowski from George Washington University."
+3. Look closely at the August 24, 2018 https://www.BBC.com/news/world-us-canada-45294192 BBC story: "It examined thousands of tweets sent **between 2014 and 2017**. Vaccination was being used by trolls and sophisticated bots as a "wedge issue", said Mark Dredze from Johns Hopkins University." ... **year 2014** evidence. "David Broniatowski from George Washington University."
+   * ASSERTION: The United States of America abandonment of the World Health Organization. President Trump on January 20, 2025, announced the U.S. plan to leave the WHO. The spread of measles in USA is worsening. Why are people in the general population not associating this with documented hybrid warfare campaigns?
 
 &nbsp;
 
@@ -83,4 +86,4 @@ https://autistics.life/@RoundSparrow/116120587070877350
 
 # Scraps of words, Piles of words
 
-"Social media is the tool available to change the mind-set of masses. Hybrid war is an all-encompassing war which affects every aspect of the human society, to create panic which can only be achieved when the mind of the masses are targeted. Social media has the greatest potential in this regard. This medium can bring benefits out of proportion if utilized constructively. True and fair social media campaign provided at the appropriate time can change the mind-set of targeted audience and extend own point of view." https://Vocal.Media/journal/hybrid-warfare-vu2f08ow - **the inverse of this has proven far more true and popular**. And it is a major assertion of mine to constantly empahsize FICTION_OUTSELLS_NONFICTION - the monomyth patterns of science fiction leadership throughout history (as defined by James Joyce on page 581 of his fiction book Finnegans Wake). 
+"Social media is the tool available to change the mind-set of masses. Hybrid war is an all-encompassing war which affects every aspect of the human society, to create panic which can only be achieved when the mind of the masses are targeted. Social media has the greatest potential in this regard. This medium can bring benefits out of proportion if utilized constructively. True and fair social media campaign provided at the appropriate time can change the mind-set of targeted audience and extend own point of view." https://Vocal.Media/journal/hybrid-warfare-vu2f08ow - **the inverse of this has proven far more true and popular**. And it is a major assertion of mine to constantly emphasize FICTION_OUTSELLS_NONFICTION - the monomyth patterns of science fiction leadership throughout history (as defined by James Joyce on page 581 of his fiction book Finnegans Wake). 
