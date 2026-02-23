@@ -712,3 +712,6 @@ https://old.reddit.com/r/WatchPeopleDieInside/comments/1rctmpx/mark_zuckerberg_c
 
 Cheering Trump fandom. TRUMP_FANDOM  celebrity fandoms! Trump has so many different cults, but all prize hate. Trump leads with hate, people follow hate. Trump leads with mockery, people follow with mocking. Trump leads with insulting, people follow with insults.
 
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1rcsw6k/peetah/o70m538/
+
+TRUMP_FANDOM discussions on Reddit. Celebrity images and lifestyle of the famous.   
