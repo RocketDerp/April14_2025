@@ -663,3 +663,6 @@ https://old.reddit.com/r/politics/comments/1rcqc5y/trump_called_usa_hockey_team_
 
 Impeachment washing. Tony Clifton POTUS comedy style to wash-away the topic of impeachment. Reddit eats this up and front-pages it every time. Year after year, since June 16, 2015 the cult of Trump messaging media follows Trump. SATIRE_SARCASM_WASHING
 
+https://old.reddit.com/r/politics/comments/1rcqc5y/trump_called_usa_hockey_team_to_congratulate_them/o7013k6/
+
+4 month Reddit account. Extreme tiny-short reactionary messages. Reacting to Trump all the time every day all across USA society to behave like Truth Social programmed mindsets ruins everything. Why does nobody follow Dr. Bandy X Lee's leadership on Reddit? Why are people not constantly quoting Dr. Lee over and over on Reddit? Because she is an intelligent woman, and the anti-intellectual short-commenting lovers of Reddit don't like a woman who uses big complex quotable words and language? Tiny short commenting on Reddit as 'engagement' to Trump. HIGH_SPEED_REACTIONARY_MINDSETS
