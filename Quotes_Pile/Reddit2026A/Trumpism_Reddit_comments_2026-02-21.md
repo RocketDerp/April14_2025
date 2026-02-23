@@ -592,3 +592,8 @@ https://old.reddit.com/r/TrendoraX/comments/1rch7fy/agree_disagree/o6y7oc5/
 https://old.reddit.com/r/TrendoraX/comments/1rch7fy/agree_disagree/o6y97su/
 
 People are anti-wake of MEDIA_WOKE - 1939 Finnegans Wake / Woke James Joyce. People are compulsively commenting on meme platforms like Reddit instead of promoting nonfiction adult education on serious and critical topics.
+
+https://old.reddit.com/r/therewasanattempt/comments/1rckj9g/by_trump_to_show_off_his_nonexistent_athletic/o6ysnbo/
+
+Ultra tiny-short messaging, Twitter-thinking reaction commenting. Top most upvoted (most popular) reaction comment on Reddit posting.  Trump images on front page of Reddit, extreme stardom popularity. SOCIAL_CULT_HATE_WATCHING_FANDOM
+
