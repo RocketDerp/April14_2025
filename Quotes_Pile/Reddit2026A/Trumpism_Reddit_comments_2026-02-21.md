@@ -547,3 +547,5 @@ MAGA_FANDOM Extreme tiny-short Twitter-length mindset and thinking as programmed
 
 The cult behavior on Reddit is that nicknames, name-calling, insulting media is far more important of a desire - constant stimulating content out of White House is prized. Instead of REMOVING Donald Trump from office by We The People having a social media uprising... cult members on Reddit are attracted to the leadership of Donald Trump. Trump leads the nation with mocking / mockery and Reddit is a following community. NAME_CALLING_INSULT_MOCKERY_FOLLOWERS_OF_LEADER_DONALD_TRUMP_SHALLOWNESS_VALUES
 
+https://old.reddit.com/r/Epstein/comments/1rcf0dl/crazy_eyes_and_epstein_thighs/o6xwmkl/
+
