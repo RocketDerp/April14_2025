@@ -1126,3 +1126,7 @@ Reddit is a cult of denial. Donald Trump is constantly normalized via Reddit com
 ― Dr. Bandy X Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. Published **October 3, 2017**. Page 273. Chapter "TRUMP'S DADDY ISSUES"](https://books.google.com/books?id=g0c4DwAAQBAJ&pg=PA273&dq=%E2%80%9CThe+human+brain+can+protect+us+from+seeing+and+feeling+what+it+believes+may+be+too+uncomfortable%22&hl=en&newbks=1&newbks_redir=1&sa=X)
 
 And I'm not saying people defend Donald Trump the person, what I'm saying is people commenting on Reddit adopt the Trump behavior of always avoiding intelligent nonfiction relevant books on paper.
+
+https://old.reddit.com/r/worldnews/comments/1rbz5zz/bbc_news_zelensky_tells_bbc_putin_has_started_ww3/o6v5nx3/
+
+Russia has proven they can convince men into self-harm and to become murders year after year.
