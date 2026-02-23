@@ -68,3 +68,7 @@ Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mfkd43gucs
 https://old.reddit.com/r/politics/comments/1rcjq18/very_inappropriate_fbi_director_kash_patel_faces/o6yqskp/
 
 REMEMBER_THE_PROGRAM_IDEAS_BILLIONAIRES_FED_REDDIT_AUDIENCE regurgitating the billionaire lines on Reddit media.
+
+https://old.reddit.com/r/politics/comments/1rcjq18/very_inappropriate_fbi_director_kash_patel_faces/o6yvq39/
+
+"keep church", "Fucking laughable". Yes, Surkovian. Comedy, humor, mind exploitation via laughing. LIBERAL_LAUGHS_LIBERAL_TEARS_COMPULSIVE_MAGA_FOLLOWERS on Reddit media, people who race to high-speed media to mock away in a total mockery. Addictions to funny mockery rule the Reddit end-users.
