@@ -562,3 +562,144 @@ https://old.reddit.com/r/MurderedByWords/comments/1rcgetd/someone_forgot_how_the
 Wanting to silence people. Calling human persons "dregs", instead of the ideas / mindsets / Rupert Murdoch billionaire programming that is called out.  This Reddit comment is deflection from where these anti-AOC ideas come from.  DEFLECTION_FROM_BILLIONAIRES_AND_PUTINISM And it is Reddit audience who took a Threads screen shot and upvoted it to Reddit front page /r/All first thing on Monday. FEEDBACK_LOOP_MEDIA_CULTS_PLATFORM_TO_PLATFORM_MOCKERY_USA
 
 * "Senator John Kennedy for mocking Representative Alexandria Ocasio-Cortez's bartending experience" https://thehill.com/homenews/house/5750176-anna-luna-criticizes-kennedy/
+
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1rcinne/im_not_shocked/o6yu9ns/
+
+MEDIA_ECOLOGY_OBSERVATION posting, Trump Truth Social leads all media systems values, media mindsets, role model of media stardom. The massive success of Donald Trump's media performances leads all media practitioners. MAGA_VALUES Surkov won since March of year 2013.
+
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1rcinne/im_not_shocked/o6yh5x0/
+
+GULLIBLE_FANDOM "I know I may sound like a cynical conspiracy theorist, but it’s hard not to be one about this. It’s exploitative of everyone involved". Alas, the Reddit community seems entirely unwilling to trace this back to the year 2012 and year 2013 agreements between Putin and Trump. SEE_ALSO December 20, 2013 shortly after the November 8, 2013 private jet to Moscow that Trump took. https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/
+
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1rcinne/im_not_shocked/o6yim37/
+
+CALL_TO_INTELLECTUAL_ACTION_PLAN why not require, going forward, beyond this... that any public broadcast that has a Tourette Syndrome audience member present, for accommodation, agree to being filmed and recorded. And if any compulsive outbursts are induced into the central broadcast of the content... then the person who did the outburst has their video released for the sake of documenting the behavior. This serves to educate the general public. It also focuses on those who broadcast being held responsible (the Tourette Syndrome audience member being identified as the source of offensive content). OTHERWISE, the accommodations for such a person would be to build some kind of soundproof seating at the live performance.
+
+Consideration should also be given even if it is not broadcast where censor cut time-delay is common. As people in the audience itself are still exposed to the messages.
+
+https://old.reddit.com/r/Epstein/comments/1rcqwbq/thomas_massie_says_the_us_government_is/o706wbj/
+
+"God bless", what is Israel controlled by? Yahweh? Synagogue clergy presenters at science fiction venue ideas of being the chosen people? LEVANT_MONOMYTH_CRISIS you got science fiction Mosque Quran empire retcon battles of Torah story. Adam / Eve / Noah all in the Quran and Torah both.
+
+https://old.reddit.com/r/Epstein/comments/1rcqwbq/thomas_massie_says_the_us_government_is/o707fzp/
+
+4 month Reddit account.
+
+https://old.reddit.com/r/TrendoraX/comments/1rch7fy/agree_disagree/o6y7oc5/
+
+4 month Reddit account, 2nd-top upvoted comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT Clickbait title on front page that does social media polling engagement with non-specific meaning to invite people to click into the image. Reddit society isn't resisting billionaire clickbait Twitter thinking.
+
+https://old.reddit.com/r/TrendoraX/comments/1rch7fy/agree_disagree/o6y97su/
+
+People are anti-wake of MEDIA_WOKE - 1939 Finnegans Wake / Woke James Joyce. People are compulsively commenting on meme platforms like Reddit instead of promoting nonfiction adult education on serious and critical topics.
+
+https://old.reddit.com/r/therewasanattempt/comments/1rckj9g/by_trump_to_show_off_his_nonexistent_athletic/o6ysnbo/
+
+Ultra tiny-short messaging, Twitter-thinking reaction commenting. Top most upvoted (most popular) reaction comment on Reddit posting.  Trump images on front page of Reddit, extreme stardom popularity. SOCIAL_CULT_HATE_WATCHING_FANDOM
+
+https://old.reddit.com/r/therewasanattempt/comments/1rckj9g/by_trump_to_show_off_his_nonexistent_athletic/o6yswlq/
+
+8 month Reddit account, REDDIT_TOP_COMMENT_YOUNG_ACCOUNT 2nd most upvoted popular comment. CONDITIONED_OPPOSITION response, mocking back MOCK_MOCK_MOCKERY total mockery, following the Trump leadership of mocking. One of Donald Trump's favorite insults being repeated by Reddit users. https://www.cnn.com/2026/02/08/politics/hunter-hess-trump-olympics-skier adopting Trump behaviors. 
+
+https://old.reddit.com/r/agedlikemilk/comments/1rcjvic/how_the_turn_tables/o6yype0/
+
+2 month Reddit account. Dancing around the topic of Surkovian information warfare. SURKOV_SHUFFLE antics media. Note the screen shot use of "funny", so entertaining the Surkov student techniques to Reddit media cult members. So stimulating to the Reddit app when the Kremlin and White House do unexpected media content creation.
+
+https://old.reddit.com/r/clevercomebacks/comments/1rcm9j2/history_should_not_be_subjective/o6z83wr/
+
+As for the subject "History Should Not Be Subjective".
+
+* “History, Stephen said, is a nightmare from which I am trying to awake.” ― Irish author James Joyce, Ulysses. WAKE_WOKE
+
+As for the comment... “Everyone loved Martin Luther King!” and the anti-Wiki anti-FAQ anti-Truth values of February 2026 society that has **abandoned nonfiction learning of truth** topics. In favor of addiction and cult followings of fiction storytelling.
+
+* "Deep down in **our nonviolent creed** is the conviction that there are some things so dear, some things so precious, some things **so eternally true** that they're worth dying for. And if a man happens to be 36 years old, as I happen to be, and some great truth stands before the door of his life, some great opportunity to stand up for that which is right, he's afraid his home will get burned, or he's **afraid that he will lose his job**, or he's afraid that he will get shot or beat down by state troopers. He may go on and live until he's 80, but he's just as dead at 36 as he would be at 80. And the cessation of breathing in his life is merely the belated announcement of an earlier **death of the spirit**. He died... A man dies when he refuses to stand up for **that which is right**. A man dies when he refuses to stand up for justice. **A man dies when he refuses to take a stand for that which is true**." - March 8, 1965
+
+https://old.reddit.com/r/clevercomebacks/comments/1rcm9j2/history_should_not_be_subjective/o6z7xsa/
+
+RECENCY_BIAS abounds. People keep acting like Donald Trump just took office one month ago. People have non sense of the planning in year 2013 that went into the global "Conservative International 2013" build up to the Ukraine war that Trump and Putin did. People can't even recall November 8, 2013 private jet trip to Moscow that Trump took right before the Ukraine war. SEE_ALSO: published December 20, 2013 https://www.theAtlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/
+
+https://old.reddit.com/r/LetsDiscussThis/comments/1rcrux2/someone_fixed_the_banner_in_front_of_the_doj/o70hagl/
+
+2 month Reddit account. TRICKLE_DOWN_TALKING_POINTS_TO_SOCIETY - this commenting about the stock market values serves as Reddit platform echoing the billionaire mental programming and mindsets. 
+
+https://old.reddit.com/r/LetsDiscussThis/comments/1rcrux2/someone_fixed_the_banner_in_front_of_the_doj/o70fgom/
+
+EPSTEIN_FANDOM fantasy of rich white men sex lives and supernatural magic that wealth provides.
+
+https://old.reddit.com/r/LetsDiscussThis/comments/1rcrux2/someone_fixed_the_banner_in_front_of_the_doj/o70hqzg/
+
+3 month Reddit account that created the front-page /r/All posting and this upvoted comment. Cult of Trump images on Reddit. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+
+https://old.reddit.com/r/LetsDiscussThis/comments/1rcrux2/someone_fixed_the_banner_in_front_of_the_doj/o70imeq/
+
+Photoshop image cult of Reddit. Fandom of Trump fantasy images. **ANYTHING to avoid putting Dr. Bandy X Lee front and center by repeating quoting of Dr. Lee** on Reddit comment section. Instead, the fandom on Reddit wants fiction content which Trump provides. EVERYTHING_IS_MEDIA_ECOLOGY Photoshop ecology media creation.
+
+* And as for the title "Fixed" with fake images. Texan Rick Roderick, Duke University: "why is that so popular? Because it reduces complexity. The complexity is very real but his little soundbites, his little conversations with Larry King help to reduce that complexity and they put another message in there: “Now I know it’s real complicated but we can fix it, Americans have always fixed it and we can fix it”. Well, **if Baudrillard’s right we have fixed it alright. We have fixed it all the way up and down**. And I mean, you know, we see other people engaging in this same, sort of, attempting to reduce complexity. I mean, the political parties, to the extent that they exist at all anymore as anything other than fund raising devices, which I don’t know. I don’t think they have any ideologies because in a postmodern situation who would have an ideology except just as a momentary thing?" https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
+
+https://old.reddit.com/r/circled/comments/1rcrzfl/keystone_kash_koing_krime_kkk_k/o70eris/
+
+1 month Reddit account. top-upvoted most popular comment. HIGH_SPEED_REACTIONARY_MINDSETS This is the fandom of White House Kremlin images. Surkovian governing works by having people prize the antics images and media content. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+
+https://old.reddit.com/r/WitchesVsPatriarchy/comments/1rcre11/editors_are_always_making_choices/o70a1tm/
+
+MEDIA_ECOLOGY_OBSERVATION "the commentariat"
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1rcp30u/everyone_meet_the_future_president_of_the_united/o6zrxa9/
+
+7 month Reddit account, top-upvoted most popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT messaging PROMOTING_SAVIOR_SINGLE_PERSON_OVER_DIVERSE_OPEN_THINKING_IDEAS
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1rcp30u/everyone_meet_the_future_president_of_the_united/o6zuafo/
+
+It is a society that celebrates ignorance and low-effort commenting instead of authentic intellectual progress and better understanding / comprehension. Anti-Malala anti-education anti-teaching reforms. The no-identity commenting on social systems is prized over authentic adult nonfiction books on paper with author names. Reddit audience is very anti-intellectual in year 2026, avoidant of FAQ and Wiki creation of organized focus "on the same page" - and instead flocks to scattered fragmented commenting messages.
+
+* "The extremists are afraid of books and pens. **The power of education frightens them**. They are afraid of women. The power of **the voice of women frightens them**. This is why they killed 14 innocent students in the recent attack in Quetta. And that is why they kill female teachers. That is why they are blasting schools every day because they were and they are **afraid of change and equality that we will bring to our society**. And I remember that there was a boy in our school who was asked by a journalist why are the Taliban against education? He answered very simply by pointing to his book, he said, "a Talib doesn't know what is written inside this book." They **think that God is a tiny, little conservative being who would point guns at people's heads** just for going to school." - July 12, 2013 https://www.theGuardian.com/commentisfree/2013/jul/12/malala-yousafzai-united-nations-education-speech-text
+
+https://old.reddit.com/r/politics/comments/1rcqc5y/trump_called_usa_hockey_team_to_congratulate_them/o707ezm/
+
+Trump leads with women-hate messaging and has a huge fandom on Reddit that follows the hate-signaling. 
+
+https://old.reddit.com/r/politics/comments/1rcqc5y/trump_called_usa_hockey_team_to_congratulate_them/o7021x0/
+
+Impeachment washing. Tony Clifton POTUS comedy style to wash-away the topic of impeachment. Reddit eats this up and front-pages it every time. Year after year, since June 16, 2015 the cult of Trump messaging media follows Trump. SATIRE_SARCASM_WASHING
+
+https://old.reddit.com/r/politics/comments/1rcqc5y/trump_called_usa_hockey_team_to_congratulate_them/o7013k6/
+
+4 month Reddit account. Extreme tiny-short reactionary messages. Reacting to Trump all the time every day all across USA society to behave like Truth Social programmed mindsets ruins everything. Why does nobody follow Dr. Bandy X Lee's leadership on Reddit? Why are people not constantly quoting Dr. Lee over and over on Reddit? Because she is an intelligent woman, and the anti-intellectual short-commenting lovers of Reddit don't like a woman who uses big complex quotable words and language? Tiny short commenting on Reddit as 'engagement' to Trump. HIGH_SPEED_REACTIONARY_MINDSETS
+
+https://old.reddit.com/r/politics/comments/1rcqc5y/trump_called_usa_hockey_team_to_congratulate_them/o7026yq/
+
+IGNORANCE_CELEBRATIONS celebrating how dumb people are by asking engaging-questions in Twitter social media style. Instead of being brave and having the courage to stand up to Trump by waving Dr. Bandy X Lee's nonfiction books on Reddit, people prize and celebrate how dumb other people are. Cheering on the outcomes of Putin's IRA and Cambridge Analytica instead of actually organizing mental health education as a rescue and recovery operation. Surkov won since March 2013.
+
+https://old.reddit.com/r/hockey/comments/1rco301/quinn_hughes_deleted_story_he_reposted_of_team/o6zlkfx/
+
+IGNORANCE_CELEBRATIONS are incredibly popular in USA since year 2014. Surkov won. The avoidance of relevant nonfiction books on paper is obvious and self-evident. 
+
+https://old.reddit.com/r/comics/comments/1rcgpmx/hard_to_believe/o6y1fxt/ 
+
+MAXIMUM_PUTINIZATION MIND_BLOWN_BY Putin and Trump since March 2013. Surkov won. 
+
+* "what Putin will do next — that **he’s unpredictable and thus dangerous. We’re rendered stunned, spun, and flummoxed** by the Kremlin’s weaponization of absurdity and unreality.” - **year 2014**. September 9, 2014 https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+NEW_OPERA_NAME #StaggerAround #HorrifiedDisbelief #RealityDisbelief   
+Social post { https://autistics.life/@RoundSparrow/116122195043914580 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfknnvcvs22o }  
+
+https://old.reddit.com/r/comics/comments/1rcgpmx/hard_to_believe/o6y99kh/
+
+ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING
+
+https://old.reddit.com/r/comics/comments/1rcgpmx/hard_to_believe/o6y29gn/
+
+NEW_SYSTEM_POLITICAL_CONTROL Surkovian values.
+
+https://old.reddit.com/r/comics/comments/1rcgpmx/hard_to_believe/o6yngoj/
+
+6 month Reddit account. 
+
+https://old.reddit.com/r/comics/comments/1rcgpmx/hard_to_believe/o6yhmy0/
+
+"like this is normal". SUPER_HYPER_NORMAL
+
+https://old.reddit.com/r/comics/comments/1rcutka/lets_not/o70z72s/
+
+Trump fandom is a hate fandom. FAITH_IN_HATE PizzaCake's experience on Reddit is gun-worship USA social values. GUN_WORSHIP anti-intellectual to the core. Shoot every MAGA person with a gun instead of teaching cult deprogramming (serious nonfiction adult education using Reddit itself is avoided). Trump leads with hate and followers on Reddit follow the hate.
