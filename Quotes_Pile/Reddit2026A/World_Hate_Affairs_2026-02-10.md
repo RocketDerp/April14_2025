@@ -1103,3 +1103,7 @@ https://old.reddit.com/r/Costco/comments/1rbzodi/another_angle_of_the_costco_in_
 https://old.reddit.com/r/Costco/comments/1rbzodi/another_angle_of_the_costco_in_pv_mx/o6uxf1j/
 
 MEDIA_ECOLOGY_LESSON 
+
+https://old.reddit.com/r/europe/comments/1rbyxqz/do_not_come_to_the_us/o6uz2ce/
+
+South Park has made Trump entertainment for Reddit fiction fandoms. Truth Social fiction vs. South Park Fiction. FICTION_VS_FICTION normalization of Trump as a great source of comedy and amusement, an LOLCOW to mil for jokes and meme content. Neil Postman's 1985 nonfiction book "Amusing Ourselves to Death" is essential understanding on the Trumpism crisis. UNDERSTANDING_TRUMPISM
