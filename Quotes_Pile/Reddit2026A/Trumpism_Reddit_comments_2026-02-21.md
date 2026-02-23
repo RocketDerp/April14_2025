@@ -589,3 +589,6 @@ https://old.reddit.com/r/TrendoraX/comments/1rch7fy/agree_disagree/o6y7oc5/
 
 4 month Reddit account, 2nd-top upvoted comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT Clickbait title on front page that does social media polling engagement with non-specific meaning to invite people to click into the image. Reddit society isn't resisting billionaire clickbait Twitter thinking.
 
+https://old.reddit.com/r/TrendoraX/comments/1rch7fy/agree_disagree/o6y97su/
+
+People are anti-wake of MEDIA_WOKE - 1939 Finnegans Wake / Woke James Joyce. People are compulsively commenting on meme platforms like Reddit instead of promoting nonfiction adult education on serious and critical topics.
