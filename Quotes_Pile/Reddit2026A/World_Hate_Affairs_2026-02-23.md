@@ -100,3 +100,9 @@ February 28, 1954: "Most people can't stand up for their convictions, because th
 https://old.reddit.com/r/worldnews/comments/1rck7tu/25_mexican_national_guard_troops_left_dead_during/o6yqvx5/
 
 REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+
+https://old.reddit.com/r/worldnews/comments/1rck7tu/25_mexican_national_guard_troops_left_dead_during/o6z8mn9/
+
+https://old.reddit.com/r/worldnews/comments/1rck7tu/25_mexican_national_guard_troops_left_dead_during/o6z92dw/
+
+MEDIA_ECOLOGY_OBSERVATION  
