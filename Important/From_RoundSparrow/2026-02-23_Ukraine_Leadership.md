@@ -35,3 +35,16 @@ FULL DISCLOSURE: I suffer from autism, late-stage in my life, beyond life expeta
 3. I was an apprentice at age 16 in high school for "Telos Federal Systems" of Santa Monica California - at their Fort Wayne, Indiana satellite office in military intelligence and software engineering systems in year 1986. Who was partnered with Magnavox in Fort Wayne https://www.dcvintagewatches.com/product-page/cold-war-1988-magnavox-dropping-sonobuoys-anti-subwarfare-sonobuoy-advert information systems technology. In my apprenticeship, I was given access to expensive military industry trade journals and magazines and self-directed my own reading (paid by the hour to read as I wish) - I was allowed to take these jouranls and magazines home and study them, often I was reading them in public school classrooms when bored. 
 
 OK, enough about my person...
+
+ACTION PLAN SUGGESTION    
+COUNTER-SURKOVIAN   
+
+My advice for you is to use all your avaialbe social media resources to promote as many Ukraine people to mormorize this December 5, 2014 video clip:
+
+1. 
+
+Further, i woudl offer a bouty of $13 or a gift mailed for any blogger, writer, influencer who spends 2 or more minutes disussing this December 5, 2014 video. Just as is done for hollywood TV shows and film industry to influencers. DICLOSE you are doing this, openly, run a magazine add to DOCUMENT you are actively promoting FACTS, TRUTH, NONFICTION!
+
+A December 31, 2014 video clip from BBC should also be licensed. https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html
+
+Neil Postman's 1985 book
