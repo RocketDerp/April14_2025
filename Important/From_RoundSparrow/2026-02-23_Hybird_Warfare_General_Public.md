@@ -2,4 +2,7 @@ It is my assertion that the general public, social media users, are enabling and
 
 Who to contact in press:   
 contact@hybridwarfare.info   
+ICforML@gmail.com   
+
+
 
