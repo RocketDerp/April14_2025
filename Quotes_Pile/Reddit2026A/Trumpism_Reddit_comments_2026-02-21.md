@@ -567,3 +567,6 @@ https://old.reddit.com/r/BlackPeopleofReddit/comments/1rcinne/im_not_shocked/o6y
 
 MEDIA_ECOLOGY_OBSERVATION posting, Trump Truth Social leads all media systems values, media mindsets, role model of media stardom. The massive success of Donald Trump's media performances leads all media practitioners. MAGA_VALUES Surkov won since March of year 2013.
 
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1rcinne/im_not_shocked/o6yh5x0/
+
+GULLIBLE_FANDOM "I know I may sound like a cynical conspiracy theorist, but it’s hard not to be one about this. It’s exploitative of everyone involved". Alas, the Reddit community seems entirely unwilling to trace this back to the year 2012 and year 2013 agreements between Putin and Trump. SEE_ALSO December 20, 2013 shortly after the November 8, 2013 private jet to Moscow that Trump took. https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/
