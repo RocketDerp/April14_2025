@@ -832,3 +832,7 @@ https://old.reddit.com/r/nottheonion/comments/1rc31dh/phoebe_gates_wants_her_185
 https://old.reddit.com/r/nottheonion/comments/1rc31dh/phoebe_gates_wants_her_185_million_ai_startup_to/o6vftfq/
 
 Fiction outsells nonfiction. FICTION_OUTSELLS_NONFICTION the "silly story" is what Reddit prizes as content on the front page of /r/All - Trumpism. Antics business. Contradictory paradoxes.
+
+https://old.reddit.com/r/memes/comments/1rc7llt/how_it_feels_being_on_youtube/o6wg3rx/
+
+MEDIA_ECOLOGY_LESSON
