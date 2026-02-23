@@ -626,3 +626,7 @@ https://old.reddit.com/r/LetsDiscussThis/comments/1rcrux2/someone_fixed_the_bann
 https://old.reddit.com/r/LetsDiscussThis/comments/1rcrux2/someone_fixed_the_banner_in_front_of_the_doj/o70fgom/
 
 EPSTEIN_FANDOM fantasy of rich white men sex lives and supernatural magic that wealth provides.
+
+https://old.reddit.com/r/LetsDiscussThis/comments/1rcrux2/someone_fixed_the_banner_in_front_of_the_doj/o70hqzg/
+
+3 month Reddit account that created the front-page /r/All posting and this upvoted comment. Cult of Trump images on Reddit. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
