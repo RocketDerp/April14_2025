@@ -107,3 +107,18 @@ I sent to all the e-mail addresses at the top of this page. I only got one autom
     subject:	Thank you for your inquiry! Re: Assertion of the topic of hybrid warfare, organized manipulation of We The People. Described in year 2014, hybridwar "All Against All" 2026-02-23    
     mailed-by:	kyivindependent.com   
     signed-by:	kyivindependent-com.20230601.gappssmtp.com    
+
+&nbsp;
+
+# Email send expanded
+
+7newsinvestigates@seven.com.au    
+nmckenzie@theage.com.au   
+nickmckenzie@protonmail.com   
+cos@sbs.com.au   
+Muckraker@protonmail.com   
+newstips@stuffdigital.co.nz   
+newsdesk@nzherald.co.nz   
+news@thepost.co.nz   
+web@nzic.govt.nz   
+news@star-times.co.nz   
