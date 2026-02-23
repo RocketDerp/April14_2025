@@ -666,3 +666,7 @@ Impeachment washing. Tony Clifton POTUS comedy style to wash-away the topic of i
 https://old.reddit.com/r/politics/comments/1rcqc5y/trump_called_usa_hockey_team_to_congratulate_them/o7013k6/
 
 4 month Reddit account. Extreme tiny-short reactionary messages. Reacting to Trump all the time every day all across USA society to behave like Truth Social programmed mindsets ruins everything. Why does nobody follow Dr. Bandy X Lee's leadership on Reddit? Why are people not constantly quoting Dr. Lee over and over on Reddit? Because she is an intelligent woman, and the anti-intellectual short-commenting lovers of Reddit don't like a woman who uses big complex quotable words and language? Tiny short commenting on Reddit as 'engagement' to Trump. HIGH_SPEED_REACTIONARY_MINDSETS
+
+https://old.reddit.com/r/politics/comments/1rcqc5y/trump_called_usa_hockey_team_to_congratulate_them/o7026yq/
+
+IGNORANCE_CELEBRATIONS celebrating how dumb people are by asking engaging-questions in Twitter social media style. Instead of being brave and having the courage to stand up to Trump by waving Dr. Bandy X Lee's nonfiction books on Reddit, people prize and celebrate how dumb other people are. Cheering on the outcomes of Putin's IRA and Cambridge Analytica instead of actually organizing mental health education as a rescue and recovery operation. Surkov won since March 2013.
