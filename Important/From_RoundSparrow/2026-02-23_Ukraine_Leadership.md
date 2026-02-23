@@ -57,7 +57,9 @@ COUNTER-SURKOVIAN
 
 My advice for you is to use all your avaialbe social media resources to promote as many Ukraine people to mormorize this December 5, 2014 video clip:
 
-1. https://www.youtube.com/clip/UgkxGLMkhbMgSwzWeQK7xYIBJ-nxn_UlzOdZ - and instead of calling it the "third world war" use this video clip to call it wat Surkov himself calls it, "the 5th world war". "War of All against All". A social media / press / "The Media" / global fiction-stroytelling brainwashing war. Media ecology warfare. Hybrid warfare of messaging and information systems, news! Propeganda. 
+1. https://www.youtube.com/clip/UgkxGLMkhbMgSwzWeQK7xYIBJ-nxn_UlzOdZ - and instead of calling it the "third world war" use this video clip to call it wat Surkov himself calls it, "the 5th world war". "War of All against All". A social media / press / "The Media" / global fiction-stroytelling brainwashing war. Media ecology warfare. Hybrid warfare of messaging and information systems, news! Propeganda.
+
+2. https://www.youtube.com/clip/UgkxsPMnrK_RCklBbjHHrPqdSuMi23zhsX_M "When I say Russia has no strategy, um. It has clearly several prorities. One is to turn the E.U. to mush. To humliate the U.S. by showing Article 5 is a joke. Showing the world that NATO is a joke. These are all things... I don't think they add up to a strategy. They end up... sort of checklist of stuff they want to achieve. Sort of a strategy in the sense of.. this is where we want the country to be in 20 years time." - December 5, 2014
 
 Further, I would suggest Ukraine and allies offer a bouty of $13 or a gift mailed for any blogger, writer, influencer who spends 2 or more minutes disussing this December 5, 2014 video. Just as is done for hollywood TV shows and film industry to influencers. DICLOSE you are doing this, openly, run a magazine add to DOCUMENT you are actively promoting FACTS, TRUTH, NONFICTION!
 
