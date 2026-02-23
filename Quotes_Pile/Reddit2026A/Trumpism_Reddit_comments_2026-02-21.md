@@ -556,3 +556,9 @@ https://old.reddit.com/r/MurderedByWords/comments/1rcgetd/someone_forgot_how_the
 https://old.reddit.com/r/MurderedByWords/comments/1rcgetd/someone_forgot_how_the_internet_works/o6xztph/
 
 MEDIA_ECOLOGY_OBSERVATION about Treads (Meta, Facebook).
+
+https://old.reddit.com/r/MurderedByWords/comments/1rcgetd/someone_forgot_how_the_internet_works/o6y35tg/
+
+Wanting to silence people. Calling human persons "dregs", instead of the ideas / mindsets / Rupert Murdoch billionaire programming that is called out.  This Reddit comment is deflection from where these anti-AOC ideas come from.  DEFLECTION_FROM_BILLIONAIRES_AND_PUTINISM And it is Reddit audience who took a Threads screen shot and upvoted it to Reddit front page /r/All first thing on Monday. FEEDBACK_LOOP_MEDIA_CULTS_PLATFORM_TO_PLATFORM_MOCKERY_USA
+
+* "Senator John Kennedy for mocking Representative Alexandria Ocasio-Cortez's bartending experience" https://thehill.com/homenews/house/5750176-anna-luna-criticizes-kennedy/
