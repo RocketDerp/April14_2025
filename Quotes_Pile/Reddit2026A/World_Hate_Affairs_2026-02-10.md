@@ -1112,3 +1112,8 @@ https://old.reddit.com/r/europe/comments/1rbyxqz/do_not_come_to_the_us/o6v142o/
 
 **September 10, 2025 - "The 40-Year-Old Book That Predicted Our Dystopian Politics"** https://Time.com/7313999/neil-postman-trump-prediction/
 
+https://old.reddit.com/r/worldnews/comments/1rbz5zz/bbc_news_zelensky_tells_bbc_putin_has_started_ww3/o6uqvf3/
+
+REAL_WW3 WAR_ALL_AGAINST_ALL 
+
+* "would go on to call the Fifth World War. The first nonlinear war of all against all. Which is a description by Vladislav Surkov, who sort of the ennui ??? of Russian politics, of the current (year 2014) war around Ukraine. um, so, I started working in Russian TV"  https://YouTube.com/clip/UgkxGLMkhbMgSwzWeQK7xYIBJ-nxn_UlzOdZ Video was published December 5, 2014 about the Ukraine war and Russia.
