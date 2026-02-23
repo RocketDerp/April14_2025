@@ -707,3 +707,8 @@ Trump fandom is a hate fandom. FAITH_IN_HATE PizzaCake's experience on Reddit is
 https://old.reddit.com/r/WatchPeopleDieInside/comments/1rctmpx/mark_zuckerberg_cornered/o70y5m3/
 
 FAKE_RESISTANCE - but if millions of people across the World Wide Web would pledge to Neil Postman's 1985 book "Amusing Ourselves To Death" as a correct theory and REAL_PEOPLE_ADMIT that friends, family, boss men, co-workers and neighbors have been bamboozled by Fox News, Facebook, Instagram, billionaire media systems... we might have a WE THE PEOPLE realization of how our society operates. High-speed information systems, Facebook, Mark Zuckerberg...
+
+https://old.reddit.com/r/WatchPeopleDieInside/comments/1rctmpx/mark_zuckerberg_cornered/o70vyrn/
+
+Cheering Trump fandom. TRUMP_FANDOM  celebrity fandoms! Trump has so many different cults, but all prize hate. Trump leads with hate, people follow hate. Trump leads with mockery, people follow with mocking. Trump leads with insulting, people follow with insults.
+
