@@ -1140,3 +1140,7 @@ https://old.reddit.com/r/videos/comments/1rc1ugp/elon_musks_dismantling_of_usaid
 "MAGA is a cult". They why are people letting a cult keep expanding every year since 2013? Why do people not see the need to defend against and solve cult problems. Sticking your head in the sand an letting Putin create cults with the Saint Petersburg Internet Research Agency is letting an enemy nation win hearts and minds without any resistance. Why are serious nonfiction books on mental health not being quoted, linked, repeated over and over on social media? Why is there so much anti-intellectual commenting that avoids adult education and topics with nonfiction references. ANSWER: Reddit is a cult of mocking the MAGA cults. It is media cult vs. media cult. Avoiding Jen Senko's brainwashing film since year 2015 - why are people not linking it and citing it. https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad
 
 The anti-intellectual brain rot problem is far worse than just MAGA, it is the entire nation.
+
+https://old.reddit.com/r/videos/comments/1rc1ugp/elon_musks_dismantling_of_usaid_over_the_last/o6v9wov/
+
+BILLIONAIRE_MIND_VIRUS Elon Musk openly declares there is a "woke virus" in minds that he is killing. https://www.lemonde.fr/en/international/article/2024/08/13/elon-musk-s-ambition-repopulating-the-planet-and-destroying-the-woke-virus_6714239_4.html
