@@ -549,3 +549,6 @@ The cult behavior on Reddit is that nicknames, name-calling, insulting media is 
 
 https://old.reddit.com/r/Epstein/comments/1rcf0dl/crazy_eyes_and_epstein_thighs/o6xwmkl/
 
+https://old.reddit.com/r/MurderedByWords/comments/1rcgetd/someone_forgot_how_the_internet_works/o6xzxnc/
+
+"I don’t adore all her policies" generic, non-specific. Typical social media Twitter-length messaging. To be a non-specific as possible as to not actually concern to organize and promote good ideas.
