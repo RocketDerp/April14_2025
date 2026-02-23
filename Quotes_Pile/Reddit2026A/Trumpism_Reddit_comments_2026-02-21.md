@@ -533,3 +533,7 @@ https://old.reddit.com/r/politics/comments/1rc095c/family_of_man_21_shot_dead_by
 
 USA population avoiding nonfiction serious learning about cult behaviors. Avoiding quoting nonfiction books and linking authors with real names, etc. Why does Reddit fandom to Trump content always avoid Dr. Bandy X Lee's books that were created for general public education on mental health related to Trump? People seem attracted to Trump's leadership of hate and mass dehumanization. It continues year after year, Trump at the center of all USA media systems / information networks as a topic.
 
+https://old.reddit.com/r/politics/comments/1rc095c/family_of_man_21_shot_dead_by_police_at_maralago/o6uwk1b/
+
+"alternate reality" media cults. WAR_AGAINST_REALITY SEE_ALSO: 2015 nonfiction book on how each channel (equivalent to subreddits, "conservative sub" in this Reddit comment) are "alternate universes". https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Ted_Koppel.md
+
