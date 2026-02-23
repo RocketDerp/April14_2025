@@ -1147,3 +1147,6 @@ https://old.reddit.com/r/videos/comments/1rc1ugp/elon_musks_dismantling_of_usaid
 BILLIONAIRE_MIND_VIRUS Elon Musk openly declares there is a "woke virus" in minds that he is killing. https://www.lemonde.fr/en/international/article/2024/08/13/elon-musk-s-ambition-repopulating-the-planet-and-destroying-the-woke-virus_6714239_4.html
 
 https://old.reddit.com/r/Fauxmoi/comments/1rbyoqc/during_the_baftas_while_michael_b_jordan_and/o6uoedf/
+
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1rbybxt/michael_b_jordan_and_delroy_lindo_had_the_nword/o6uuqcy/
+
