@@ -21,3 +21,12 @@ Phrases others have used to desribe the concern of humanity:
 "Hybrid warfare: The continuation of ambiguity by other means"   
 "Modern Cognitive Operations and Hybrid Warfare"   
 
+&nbsp;
+
+&nbsp;
+
+# Social Media Posts
+
+2026-02-23    
+https://bsky.app/profile/roundsparrow.bsky.social/post/3mfjwrvpo7k2m   
+https://autistics.life/@RoundSparrow/116120587070877350   
