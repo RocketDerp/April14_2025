@@ -101,9 +101,9 @@ https://autistics.life/@RoundSparrow/116120587070877350
 
 I sent to all the e-mail addresses at the top of this page. I only got one automatic reply that the message was received.
 
-from:	KI Press <press@kyivindependent.com>    
-to:	circlebird12@gmail.com    
-date:	Feb 23, 2026, 9:48 AM   
-subject:	Thank you for your inquiry! Re: Assertion of the topic of hybrid warfare, organized manipulation of We The People. Described in year 2014, hybridwar "All Against All" 2026-02-23    
-mailed-by:	kyivindependent.com   
-signed-by:	kyivindependent-com.20230601.gappssmtp.com    
+    from:	KI Press <press@kyivindependent.com>    
+    to:	circlebird12@gmail.com    
+    date:	Feb 23, 2026, 9:48 AM   
+    subject:	Thank you for your inquiry! Re: Assertion of the topic of hybrid warfare, organized manipulation of We The People. Described in year 2014, hybridwar "All Against All" 2026-02-23    
+    mailed-by:	kyivindependent.com   
+    signed-by:	kyivindependent-com.20230601.gappssmtp.com    
