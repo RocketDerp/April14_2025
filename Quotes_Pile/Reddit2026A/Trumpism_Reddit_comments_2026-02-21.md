@@ -691,3 +691,11 @@ ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING
 https://old.reddit.com/r/comics/comments/1rcgpmx/hard_to_believe/o6y29gn/
 
 NEW_SYSTEM_POLITICAL_CONTROL Surkovian values.
+
+https://old.reddit.com/r/comics/comments/1rcgpmx/hard_to_believe/o6yngoj/
+
+6 month Reddit account. 
+
+https://old.reddit.com/r/comics/comments/1rcgpmx/hard_to_believe/o6yhmy0/
+
+"like this is normal". SUPER_HYPER_NORMAL
