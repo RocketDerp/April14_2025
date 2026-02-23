@@ -27,6 +27,9 @@ Phrases others have used to desribe the concern of humanity:
 
 # My Message Assertion, Payload
 
+From Stephen Alred Gutknecht  
+Born in Columbus Georgia USA on October 7, 1969.  
+
 This is my assertion. This is my payload of my message. The reason I am contacting you today. 2026-02-23
 
 
