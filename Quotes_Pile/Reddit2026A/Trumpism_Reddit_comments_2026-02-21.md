@@ -570,3 +570,9 @@ MEDIA_ECOLOGY_OBSERVATION posting, Trump Truth Social leads all media systems va
 https://old.reddit.com/r/BlackPeopleofReddit/comments/1rcinne/im_not_shocked/o6yh5x0/
 
 GULLIBLE_FANDOM "I know I may sound like a cynical conspiracy theorist, but it’s hard not to be one about this. It’s exploitative of everyone involved". Alas, the Reddit community seems entirely unwilling to trace this back to the year 2012 and year 2013 agreements between Putin and Trump. SEE_ALSO December 20, 2013 shortly after the November 8, 2013 private jet to Moscow that Trump took. https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/
+
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1rcinne/im_not_shocked/o6yim37/
+
+CALL_TO_INTELLECTUAL_ACTION_PLAN why not require, going forward, beyond this... that any public broadcast that has a Tourette Syndrome audience member present, for accommodation, agree to being filmed and recorded. And if any compulsive outbursts are induced into the central broadcast of the content... then the person who did the outburst has their video released for the sake of documenting the behavior. This serves to educate the general public. It also focuses on those who broadcast being held responsible (the Tourette Syndrome audience member being identified as the source of offensive content). OTHERWISE, the accommodations for such a person would be to build some kind of soundproof seating at the live performance.
+
+Consideration should also be given even if it is not broadcast where censor cut time-delay is common. As people in the audience itself are still exposed to the messages.
