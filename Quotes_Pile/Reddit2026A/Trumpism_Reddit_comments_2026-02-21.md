@@ -715,3 +715,14 @@ Cheering Trump fandom. TRUMP_FANDOM  celebrity fandoms! Trump has so many differ
 https://old.reddit.com/r/PeterExplainsTheJoke/comments/1rcsw6k/peetah/o70m538/
 
 TRUMP_FANDOM discussions on Reddit. Celebrity images and lifestyle of the famous.   
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1rcsw6k/peetah/o70kntk/
+
+<img width="899" height="1139" alt="image" src="https://github.com/user-attachments/assets/3bc4ad98-a318-492c-a25a-08769f371a3f" />
+
+"pretending reality doesn’t exist" - alas, humanity has been doing that for thousands of years. The ignorance of comparative mythology on Reddit and society in total. Bible followers of science fiction, Torah, Quran, Mosque, Church science fiction venues, Synagogues. UNIFIED_THEORY_FICTION_NONFICTION
+
+Don't overlook the comment saying "act online", because in Israel, Palestine, Egypt they aren't "online" when they pretend at the Synagogue, Mosque... 
+
+NEW_OPERA_NAME #PretendingReality    
+Social post { https://autistics.life/@RoundSparrow/116122665947643822 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfkuel5xhs22 }   
