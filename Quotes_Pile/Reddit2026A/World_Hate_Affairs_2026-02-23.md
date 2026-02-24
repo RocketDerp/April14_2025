@@ -139,3 +139,6 @@ https://old.reddit.com/r/mildlyinfuriating/comments/1rdvfoa/someone_ripped_the_d
 
 14 day Reddit account. CONCERNS_OF_FINNEGANS ambiguity of interpretations of The Bible stories ;) Jean Erdman's interview about "Coach with the Six Inside" and multiple meanings of each sentence in Finnegans Wake. "has many many layers of meaning"; "there there are at least 20 for every sentence" https://youtu.be/WoiJVkdDbOo?t=127
 
+https://old.reddit.com/r/mildlyinfuriating/comments/1rdvfoa/someone_ripped_the_door_off_my_local_little_free/o784kc6/
+
+LEVANT_MONOMYTH_CRISIS in people not learning and understanding Bible verse "1 John 4:20" and lack of studying Irish author James Joyce.
