@@ -882,3 +882,8 @@ And this cited Reddit comment will get drowned out as everyone is commenting awa
 
 NEW_OPERA_NAME #TiredOfLies #HowNormalized   
 Social post { https://autistics.life/@RoundSparrow/116126901521200449 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfmqkmkuws2u }   
+
+https://old.reddit.com/r/worldnews/comments/1rdl280/mexico_weighs_legal_action_after_musk_links/o761svh/
+
+Twitter-think nation. MUSK_FANDOM MEDIA_ECOLOGY_OBSERVATION Musk has injected so much Tweet-thinking into mindsets. So many Reddit users behave like Truth Social fandoms and Twitter programmed audiences. Always avoiding extremely relevant nonfiction serious books on paper.
+
