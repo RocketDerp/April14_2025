@@ -898,3 +898,7 @@ That's what the billionaires have educated adults to believe. Rupert Murdoch Fox
 https://old.reddit.com/r/WorkReform/comments/1rdifhy/the_right_wing_won/o75fra9/
 
 Because the entire left-vs-right (see image of posting) and liberals-vs-conservative has become brain-rot simple-think patterns of out-group-hate. People are in year 2026 CONVINCED that there are 2 and only 2 bad answers to every problem and to think inside the box of left box right box. BRAIN_ROT_LEFT_RIGHT_LIB_CON_NAME_AVOIDANCE
+
+https://old.reddit.com/r/WorkReform/comments/1rdifhy/the_right_wing_won/o75f6h1/
+
+MEDIA_ECOLOGY_OBSERVATION on TRICKLE_DOWN_TALKING_POINTS_TO_SOCIETY about what "mainstream media' means.
