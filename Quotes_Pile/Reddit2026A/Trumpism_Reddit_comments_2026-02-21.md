@@ -890,3 +890,9 @@ Twitter-think nation. MUSK_FANDOM MEDIA_ECOLOGY_OBSERVATION Musk has injected so
 https://old.reddit.com/r/worldnews/comments/1rdl280/mexico_weighs_legal_action_after_musk_links/o763425/
 
 Observe the absence of author names, nonfiction book titles, off-Redit URL, quotes from books, etc.
+
+https://old.reddit.com/r/WorkReform/comments/1rdifhy/the_right_wing_won/o75bbyj/
+
+That's what the billionaires have educated adults to believe. Rupert Murdoch Fox News since October 7, 1996 and so forth. Adults do not learn in rectangle classrooms facing a teacher. Adults learn from Reddit, Twitter, Fox News HDTV, Joe Rogan podcast, etc.
+
+
