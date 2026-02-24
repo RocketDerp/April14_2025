@@ -130,3 +130,7 @@ https://old.reddit.com/r/mildlyinfuriating/comments/1rdvfoa/someone_ripped_the_d
 Not just Christian. Malala's reporting from Swat Valley, Pakistan shows similar patterns.
 
 * "The extremists are afraid of books and pens. The power of education frightens them. They are afraid of women. The power of the voice of women frightens them." - July 12, 2013 https://malala.org/news-and-voices/malala-un-speech
+
+https://old.reddit.com/r/mildlyinfuriating/comments/1rdvfoa/someone_ripped_the_door_off_my_local_little_free/o78740q/
+
+2 month Reddit account. CONCERNS_OF_FINNEGANS 
