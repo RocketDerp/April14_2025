@@ -776,3 +776,5 @@ It is a social movement that has spread across the world from Russia. Winning he
 https://old.reddit.com/r/GreatBritishMemes/comments/1rda5ey/they_are_so_weird/o73pa1k/
 
 using cryptic "insider knowledge", "inside jokes" on clothing creates such a curious and question-asking audience. WHEN_THE_PEOPLE_HAVE_LOST_THE_ABILITY
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mfm7g5mlyk24 https://autistics.life/@RoundSparrow/116125695210616239 }
