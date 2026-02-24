@@ -906,3 +906,12 @@ MEDIA_ECOLOGY_OBSERVATION on TRICKLE_DOWN_TALKING_POINTS_TO_SOCIETY about what "
 https://old.reddit.com/r/WorkReform/comments/1rdifhy/the_right_wing_won/o75dfz3/
 
 13 day Reddit account. Desiring silence is the whole block-happy Bluesky Reddit mentality of silencing dissent and getting people deported to not have to translate and think outside the conditioned mindsets. BLOCK_HAPPY_DEPORT_HAPPY_SILENCE_POOR_PEOPLE_SILENCE_UPPITY
+
+https://old.reddit.com/r/politics/comments/1rdh9r0/insiders_admit_trump_may_have_killed_presidency/o751wh2/
+
+<img width="1024" height="419" alt="image" src="https://github.com/user-attachments/assets/4125c2a9-2cc8-4f57-a979-815aaf5e26f6" />
+
+Yes. Trump is not alone. The abandonment of nonfiction relevant books on paper is a NATIONAL issue of THE ENTIRE POPULATION. Dr. Bandy X Lee's book from October 3, 2017 being ignored and avoided by the Reddit community, Bluesky community... I am calling out over and over and over on this GitHub project. Trump is not the only one, the Supreme Court SCOTUS is not the only ones, **it is an entire nation (population over age 12) avoiding the leadership of 27 people since October of year 2017 that Dr. Lee assembled. TRUMP_FAMILY_FIXATED_BRAIN_ROT_EVERY_DAY_FOX_NEWS_TWITTER_ETC Surkov won since March 2013. 
+
+NEW_OPERA_NAME #NotJustDonaldTrump (8 month revival) #BeSubservient   
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mfmsydjpdc2k https://autistics.life/@RoundSparrow/116127074606901012 }   
