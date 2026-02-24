@@ -887,3 +887,6 @@ https://old.reddit.com/r/worldnews/comments/1rdl280/mexico_weighs_legal_action_a
 
 Twitter-think nation. MUSK_FANDOM MEDIA_ECOLOGY_OBSERVATION Musk has injected so much Tweet-thinking into mindsets. So many Reddit users behave like Truth Social fandoms and Twitter programmed audiences. Always avoiding extremely relevant nonfiction serious books on paper.
 
+https://old.reddit.com/r/worldnews/comments/1rdl280/mexico_weighs_legal_action_after_musk_links/o763425/
+
+Observe the absence of author names, nonfiction book titles, off-Redit URL, quotes from books, etc.
