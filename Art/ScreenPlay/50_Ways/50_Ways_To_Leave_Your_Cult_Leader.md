@@ -83,3 +83,4 @@ NEW_OPERA_NAME #50WaysToLeaveDonaldTrump
 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfmboxypmc2d    
 https://autistics.life/@RoundSparrow/116125854047124834   
 
+1. Promote Neil Postman's 1985 #NonFiction book on paper. "Amusing Ourselves To Death". Quote it, repeat it, study it, social media uprising this book! be #Uppity with this book!
