@@ -834,3 +834,14 @@ DONALD_TRUMP_ROLE_MODEL Trump is the low-effort social media hate leadership tha
 https://old.reddit.com/r/science/comments/1rdfmy5/donald_trumps_2024_election_win_increased_the/o753u23/
 
 Trump is a leader of hate. Reddit and Bluesky audience follows hate. Reddit users do not quote MLK Jr or any other preacher / teacher on how all hate is bad. People form teams of hate. HATE_VS_HATE  NAME_CALLING_INSULT_MOCKERY_FOLLOWERS_OF_LEADER_DONALD_TRUMP_SHALLOWNESS_VALUES
+
+https://old.reddit.com/r/science/comments/1rdfmy5/donald_trumps_2024_election_win_increased_the/o756p1l/
+
+1 day Reddit account.
+
+https://old.reddit.com/r/science/comments/1rdfmy5/donald_trumps_2024_election_win_increased_the/o759kmi/
+
+MEDIA_ECOLOGY_OBSERVATION on Internet media systems. The less-educated Rural MAGA population was connected by TCP/IP. People who previously mocked and insulted computer "nerds" became smartphone tablet users. SEE_ALSO: https://GitHub.com/RocketDerp/April14_2025/blob/main/A00/About/Why_Highlight_Circle_Year_2011_onward.md
+
+REMEDIAL_LEARNING_TRUMP_PUTIN_INFORMATION_WARFARE_YEAR_2011_ONWARD Alas- this Reddit comment talks about year 2008 as if no seriously written nonfiction books have been published and printed on paper. The Reddit fandom of Donald Trump content consistently avoids relevant books on paper. Commenting addiction rules the mindsets and filter-bubble behaviors in February 2026.
+
