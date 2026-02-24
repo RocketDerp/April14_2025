@@ -818,3 +818,7 @@ Social post { https://autistics.life/@RoundSparrow/116126160468687962 https://bs
 https://old.reddit.com/r/politics/comments/1rd03pf/trump_melts_down_after_favorite_general_sounds/o728cor/
 
 FICTION_VS_FICTION FICTION_HARDER   
+
+https://old.reddit.com/r/circled/comments/1rdf41t/preview_of_tonights_state_of_the_union/o74rd0c/
+
+TRUMP_FANDOM - blind to WHAT exactly? RESISTING_WHAT_EXACTLY ? Meme-think, Trumpism is build on ignorance celebration. And this Reddit posting first thing on Tuesday morning is a celebration of the State of the Union ignorance. Reddit is a cult of ignorance that flocks to Trump content. Instead of authentically resisting with promotion of nonfiction book published by Dr. Bandy X Lee with 27 contributors for the general public since October 3, 2017.
