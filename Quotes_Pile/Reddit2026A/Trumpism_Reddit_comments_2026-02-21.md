@@ -895,4 +895,6 @@ https://old.reddit.com/r/WorkReform/comments/1rdifhy/the_right_wing_won/o75bbyj/
 
 That's what the billionaires have educated adults to believe. Rupert Murdoch Fox News since October 7, 1996 and so forth. Adults do not learn in rectangle classrooms facing a teacher. Adults learn from Reddit, Twitter, Fox News HDTV, Joe Rogan podcast, etc.
 
+https://old.reddit.com/r/WorkReform/comments/1rdifhy/the_right_wing_won/o75fra9/
 
+Because the entire left-vs-right (see image of posting) and liberals-vs-conservative has become brain-rot simple-think patterns of out-group-hate. People are in year 2026 CONVINCED that there are 2 and only 2 bad answers to every problem and to think inside the box of left box right box. BRAIN_ROT_LEFT_RIGHT_LIB_CON_NAME_AVOIDANCE
