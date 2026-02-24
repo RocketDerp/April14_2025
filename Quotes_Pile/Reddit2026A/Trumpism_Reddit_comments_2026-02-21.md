@@ -785,3 +785,9 @@ The top-voted most popular comment on Reddit with this posting. SOUTH_PARK_FAMIL
  South Park, Family Guy. "He's such an embarrassment". The audience who recognizes "Family Guy" animated show in Donald Trump's content says more about the audience than the POTUS Tony Clifton act that Trump is acting. If Trump is not great at economics, what is Trump's skill that puts him in the center of every media system in USA? if Trump is not good at diplomacy and trade agreements, then what exactly is the talent that Trump has in getting at the center of every conversation on Reddit for 3,906 days in a row? Does anyone remember that being a "socialite" and "influencer" on television, that being on Reality TV is the thing Donald Trump was popular January 8, 2004 on NBC? Just maybe, the problem is THE AUDIENCE, the fandom, that watches Family Guy...
 
 * "I guess the trouble was that we didn't have any self-admitted proletarians. Everyone was a temporarily embarrassed capitalist." - June 1960. Esquire magazine.
+
+https://old.reddit.com/r/SipsTea/comments/1rdaoui/hes_such_an_embarrassment/o73ute1/
+
+REMEMBER_THE_PROGRAM_IDEAS_BILLIONAIRES_FED_REDDIT_AUDIENCE Remember those Fox News Rupert Murdoch talking points! **Minds of USA population** always repeating the Fox News language and messages. 
+
+* The Atlantic September 16, 2020 ["Do You Speak Fox? How Donald Trump’s favorite news source became a language" By Megan Garber](https://www.theatlantic.com/culture/archive/2020/09/fox-news-trump-language-stelter-hoax/616309/) 
