@@ -857,3 +857,10 @@ It is important to understand: **We The People can call for impeachment and remo
 
 We The People can get drunk on memes, drunk on Apple iPhone TCP/IP power of high-speed information delivery.. but We The People can *sober up* and organize an online nonfiction book quotation of Dr. Bandy X Lee's October 3, 2017 book in October 2019 (two years later).. yet, We The People find trump so thrilling as a source of entertainment and amusement - that We The People have no evidence of a major Internet protest and blackout in Q4 2019. Right before the COVID-19 pandemic, we had a chance to REMOVE Donald Trump from office. But We The People did not stand up to Trump a an Internet cyberbully. We followed the Trump leadership of always avoiding the nonfiction section of the public library, avoiding relevant books on paper. People follow Trump's Twitter leadership behaviors instead, anti-book, anti-study, anti-learning, anti-girls, anti-women, anti Dr. Lee woman. Anti Nancy Pelosi's leadership September 24, 2019 woman. SHOW ME the widespread "we made a mistake, remove Trump, impeach Trump" Q4 2019 protests in the newspaper!
 
+https://old.reddit.com/r/UnderReportedNews/comments/1rdi68d/karoline_leavitt_the_president_will_be_making_a/o759bim/
+
+6 month Reddit account, the most popular upvoted comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT which is 140 character Twitter-length style. Provides no quote, no off-Reddit citation, just casually commenting on critical national topic.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rdi68d/karoline_leavitt_the_president_will_be_making_a/o759hwj/
+
+Which is why this Reddit comment section has people instantly racing to the app notification of a new Trump post. Reddit is a death cult, hate watching cult. Media cult members attracted to hate leadership and hate MAGA values. SOCIAL_CULT_HATE_WATCHING_FANDOM
