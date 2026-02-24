@@ -732,3 +732,9 @@ https://old.reddit.com/r/AllConspiracyTheories/comments/1rcqsx4/this_is_not_just
 "We The People" need to face up to the brain rot crisis, the short-length messaging cults. COLLECTIVELY_INTELLIGENT_PLURIBUS_LEARNING 
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mfkumbwmtc2c https://autistics.life/@RoundSparrow/116122681414488182 }   
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rcwb30/former_ice_trainer_ryan_schwank_is_telling/o71df2z/
+
+SOMEWHERE_DOWN_THE_ROAD_OF_HISTORY Reddit users / Bluesky users / Lemmy users / Mastodon users will claim they never avoided nonfiction from { Malala on giving girls equality, Systemic abuse of children by Putin, Jen Senko's year 2015 Brainwashing film on Wikipedia one click away, Dr. Bandy X Lee assembling 27 people to make a book on education of mental health of Trump } and instead will say "we all knew Trump had dementia!" - Well GUESS FUCKING WHAT, Reddit users, Ronald Reagan had dementia and he wasn't worshiping Russia information warfare! Attacking NATO Canada makes ZERO SENSE economically or for any reason other than to self-harm the future of the USA. The avoidance of NONFICTION SERIOUS BOOKS about cults and mental health (Dr. Lee) I am DOCUMENTING! Because people on Reddit will DENY and not learn the crisis of mythology leadership, fiction vs. nonfiction leadership. We The People are not standing in the street holding signs saying: "We All Need to Promote Dr. Bandy X Lee's leadership and get on the same page together as a nation!". The AVOIDANCE of RELEVANT NONFICTION BOOKS is OBVIOUS if you LOOK AROUND! SELF-EVIDENT! Screaming "Dementia, orange, poop diapers" is NOT addressing the DANGER! Waving around THIS NONFICTION BOOK is the OBVIOUS NEED: https://en.wikipedia.org/wiki/The_Dangerous_Case_of_Donald_Trump
+
+
