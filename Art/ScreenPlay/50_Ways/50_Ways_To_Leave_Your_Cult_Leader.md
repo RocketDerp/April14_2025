@@ -72,3 +72,14 @@ ToDo: Stephan A Hollar artists lecture portion
 # Make A New Plan   
 
 RITUAL_DEVELOPERS_NEEDED   
+
+&nbsp;
+
+&nbsp;
+
+# Tuesday February 24, 2026
+
+NEW_OPERA_NAME #50WaysToLeaveDonaldTrump   
+https://bsky.app/profile/roundsparrow.bsky.social/post/3mfmboxypmc2d    
+https://autistics.life/@RoundSparrow/116125854047124834   
+
