@@ -795,3 +795,11 @@ REMEMBER_THE_PROGRAM_IDEAS_BILLIONAIRES_FED_REDDIT_AUDIENCE Remember those Fox N
 https://old.reddit.com/r/politics/comments/1rd03pf/trump_melts_down_after_favorite_general_sounds/o725v7e/
 
 The top upvoted comment, the most popular. Short Twitter-style "engage the audience" playing dub with questions. ENTERTAINED_JUST_PASSIVELY_WATCHING_UNTIL_DEATH_NO_SOCIAL_MEDIA_UPRISING_WHILE_ALIVE
+
+https://old.reddit.com/r/politics/comments/1rd03pf/trump_melts_down_after_favorite_general_sounds/o72eqkr/
+
+Anti-intellectual ignorance celebration of Reddit community. Short-length Twitter-think mindset messages. ANYTHING to comment on social devices about Trump instead of turn to nonfiction learning and greater comprehension of modern warfare. REMEDIAL_LEARNING_TRUMP_PUTIN_INFORMATION_WARFARE_YEAR_2011_ONWARD
+
+1. "Winning hearts and minds is a concept occasionally expressed in the resolution of war, insurgency, and other conflicts, in which one side seeks to prevail not by the use of superior force, but by making emotional or intellectual appeals to sway supporters of the other side. The term "hearts and minds" was first used by French general Hubert Lyautey. The use of the term "hearts and minds" to reference a method of bringing a subjugated population on side, was first used by French general and colonial administrator Hubert Lyautey as part of his strategy to counter the Black Flags rebellion during the Tonkin campaign in 1895." https://en.wikipedia.org/wiki/Winning_hearts_and_minds
+
+2. SEE_ALSO: https://github.com/RocketDerp/April14_2025/blob/main/A00/About/Why_Highlight_Circle_Year_2011_onward.md
