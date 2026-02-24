@@ -772,3 +772,7 @@ https://old.reddit.com/r/GreatBritishMemes/comments/1rda5ey/they_are_so_weird/o7
 It is a social movement that has spread across the world from Russia. Winning hearts and minds to follow hate leadership of Putin. How does this idea spread? Media systems. Newspapers, magazines, newsletters, leaflets, postings, billboards, messages paid for by billionaires like Rupert Murdoch who has a global network of urgent message delivery. And, somehow, the consumers of media are convinced that the "dumb" "stupid" problem lies not with the audience. But that we need to *ban* and *block* television channels like Fox News. We should  not criticize the Reddit audience for putting MAGA hat photographs on the front page of Reddit in full color. Because no way would a man in Russia named "Surkov" have inspired a network of media systems to all behave the same way.
 
 * BBC, British Broadcasting Corporation, established in year 1927 as a public corporation... headquartered in London. On December 31, 2014 broadcast these words: "But **maybe, we have something similar emerging here in Britain. Everything we're told by journalists and politicians is confusing and contradictory. Of course, there is no Mr. Surkov in charge**, but it is an odd, non-linear world that plays into the hands of those in power." - year 2014.
+
+https://old.reddit.com/r/GreatBritishMemes/comments/1rda5ey/they_are_so_weird/o73pa1k/
+
+using cryptic "insider knowledge", "inside jokes" on clothing creates such a curious and question-asking audience. WHEN_THE_PEOPLE_HAVE_LOST_THE_ABILITY
