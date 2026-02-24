@@ -827,3 +827,7 @@ https://old.reddit.com/r/circled/comments/1rdf41t/preview_of_tonights_state_of_t
 
 1 month Reddit account. FANATICS_FANS_OF_CLOWNS_FANS_OF_MAGA_CLOWNING TRICKLE_DOWN_CONTENT
 
+https://old.reddit.com/r/science/comments/1rdfmy5/donald_trumps_2024_election_win_increased_the/o74ruvw/
+
+DONALD_TRUMP_ROLE_MODEL Trump is the low-effort social media hate leadership that people copy. So many have adopted Truth Social values and behaviors / attitudes. Notably: always avoiding nonfiction serious authors on relevant topics. Such as avoiding Dr. Bandy X Lee's nonfiction books on paper.
+
