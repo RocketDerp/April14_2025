@@ -40,6 +40,11 @@ WHAT_IS_HIDDEN_IN_DOMESTIC_ABUSE_IS_SPIRIT_OF_TRUMPISM_PUTINISM
 
 https://www.youtube.com/watch?v=VZt7J0iaUD0     
 "Suzanne Vega - Luka"   
+92,879,838 views December 14, 2010    
+
+NEW_OPERA_NAME #ArgueAnymore #WalkedInToThe #NotYourBusinessAnyway LiveOnTheSecondFloor #UpstairsFromYou #SomeKindOfTrouble #AfterThatYou    
+https://autistics.life/@RoundSparrow/116126090939032958   
+https://bsky.app/profile/roundsparrow.bsky.social/post/3mfmf2i6aw22o   
 
 TOWER_OF_BABEL_HIGHER_SECOND_FLOOR_LANGUAGE_BARRIER_METAPHORS     
 TOWER_OF_BABEL_CLIMB_METAPHORS   
