@@ -134,3 +134,8 @@ Not just Christian. Malala's reporting from Swat Valley, Pakistan shows similar 
 https://old.reddit.com/r/mildlyinfuriating/comments/1rdvfoa/someone_ripped_the_door_off_my_local_little_free/o78740q/
 
 2 month Reddit account. CONCERNS_OF_FINNEGANS 
+
+https://old.reddit.com/r/mildlyinfuriating/comments/1rdvfoa/someone_ripped_the_door_off_my_local_little_free/o785z71/
+
+14 day Reddit account. CONCERNS_OF_FINNEGANS ambiguity of interpretations of The Bible stories ;) Jean Erdman's interview about "Coach with the Six Inside" and multiple meanings of each sentence in Finnegans Wake. "has many many layers of meaning"; "there there are at least 20 for every sentence" https://youtu.be/WoiJVkdDbOo?t=127
+
