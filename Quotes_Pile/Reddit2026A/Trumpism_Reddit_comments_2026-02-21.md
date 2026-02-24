@@ -778,3 +778,10 @@ https://old.reddit.com/r/GreatBritishMemes/comments/1rda5ey/they_are_so_weird/o7
 using cryptic "insider knowledge", "inside jokes" on clothing creates such a curious and question-asking audience. WHEN_THE_PEOPLE_HAVE_LOST_THE_ABILITY
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mfm7g5mlyk24 https://autistics.life/@RoundSparrow/116125695210616239 }
+
+https://old.reddit.com/r/SipsTea/comments/1rdaoui/hes_such_an_embarrassment/o73v49j/
+
+The top-voted most popular comment on Reddit with this posting. SOUTH_PARK_FAMILY_GUY_SPONGEBOB_THE_APPRENTICE_REALITY_TELEVISION_USA   
+ South Park, Family Guy. "He's such an embarrassment". The audience who recognizes "Family Guy" animated show in Donald Trump's content says more about the audience than the POTUS Tony Clifton act that Trump is acting. If Trump is not great at economics, what is Trump's skill that puts him in the center of every media system in USA? if Trump is not good at diplomacy and trade agreements, then what exactly is the talent that Trump has in getting at the center of every conversation on Reddit for 3,906 days in a row? Does anyone remember that being a "socialite" and "influencer" on television, that being on Reality TV is the thing Donald Trump was popular January 8, 2004 on NBC? Just maybe, the problem is THE AUDIENCE, the fandom, that watches Family Guy...
+
+* "I guess the trouble was that we didn't have any self-admitted proletarians. Everyone was a temporarily embarrassed capitalist." - June 1960. Esquire magazine.
