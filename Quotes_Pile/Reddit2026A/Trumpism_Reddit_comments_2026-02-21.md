@@ -822,3 +822,8 @@ FICTION_VS_FICTION FICTION_HARDER
 https://old.reddit.com/r/circled/comments/1rdf41t/preview_of_tonights_state_of_the_union/o74rd0c/
 
 TRUMP_FANDOM - blind to WHAT exactly? RESISTING_WHAT_EXACTLY ? Meme-think, Trumpism is build on ignorance celebration. And this Reddit posting first thing on Tuesday morning is a celebration of the State of the Union ignorance. Reddit is a cult of ignorance that flocks to Trump content. Instead of authentically resisting with promotion of nonfiction book published by Dr. Bandy X Lee with 27 contributors for the general public since October 3, 2017.
+
+https://old.reddit.com/r/circled/comments/1rdf41t/preview_of_tonights_state_of_the_union/o74l758/
+
+1 month Reddit account. FANATICS_FANS_OF_CLOWNS_FANS_OF_MAGA_CLOWNING TRICKLE_DOWN_CONTENT
+
