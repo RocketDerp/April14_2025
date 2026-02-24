@@ -752,3 +752,8 @@ COVID-19 behaviors were a massive wakeup call that the Saint Petersburg Internet
 https://old.reddit.com/r/MurderedByWords/comments/1rd703j/too_emotional_was_never_a_standard_it_was_a_target/o733xf6/
 
 Top-voted comment, context about sports team, with this comment. People have zero sense on Reddit how many comments like this have been made year after year after year after year. The hockey team game is a few hours, but the Donald Trump media game is every hour of every day year after year after year. The whole "women are too emotional" is consumers repeating the programmed marketing and advertising they are unable to reject from their mind. REMEMBER_THE_PROGRAM_IDEAS_BILLIONAIRES_FED_REDDIT_AUDIENCE
+
+https://old.reddit.com/r/MurderedByWords/comments/1rd703j/too_emotional_was_never_a_standard_it_was_a_target/o733veo/
+
+"Murdered by words", you murdered Trump with all these clever mocking words. So many unique patterns of words. ANYTHING and EVERYTHING to avoid NOT_GOOD_ENOUGH woman Dr. Bandy X Lee's assembling of 27 people writing words about the DANGER Donald Trump is to the nation October 3, 2017. But the only words that people care about is commenting words. The constant avoidance of nonfiction books printed on paper is there if you look at social media users and "No Kings" protests and ICE protest. People are avoidant of learning and always engaging exactly what Donald Trump provides: Mocking, insulting, anti-learning, anti-education, anti-Malala values. The *commenting about Trump* is all people learn any more, the latest patterns of insulting, joking, mockery. When Stephen Colbert and Jimmy Fallon are the methods of communications that people think wins all debate, you get Donald Trump making videos about playing on the hockey team.
+
