@@ -74,3 +74,18 @@ https://old.reddit.com/r/CuratedTumblr/comments/1o1sl76/right/niis67o/
 <img width="1056" height="774" alt="image" src="https://github.com/user-attachments/assets/0b157cdb-f514-43c1-81ef-18ab20184039" />
 
 October 9, 2025. I featured this comment in About page of this project. https://github.com/RocketDerp/April14_2025/blob/main/Important/About/About_this_GitHub.md#abandonment-of-reality
+
+https://old.reddit.com/r/agedlikemilk/comments/1msrphv/deleted_by_user/n96oltc/
+
+Reddit cult media user loves fake Twitter images.
+
+https://old.reddit.com/r/agedlikemilk/comments/1msrphv/deleted_by_user/n98s60v/
+
+<img width="1139" height="939" alt="image" src="https://github.com/user-attachments/assets/40d20614-a45c-4ca3-872c-f563f34d8d99" />
+
+Social post { https://autistics.life/@RoundSparrow/115045115314540403 }   
+DID_BLUESKY_REMOVE_POST ? I can't find it on Bluesky from that time period. #InfiniteTrumpismARG202 missing on Bluesky? I don't tend to use even numbers for ARG. 201 does exist on Bluesky.   
+
+https://old.reddit.com/r/agedlikemilk/comments/1msrphv/deleted_by_user/n96ujxp/
+
+That is what my own search found. It was fake content on Reddit. 

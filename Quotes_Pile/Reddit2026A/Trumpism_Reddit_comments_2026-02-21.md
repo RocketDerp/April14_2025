@@ -703,3 +703,145 @@ https://old.reddit.com/r/comics/comments/1rcgpmx/hard_to_believe/o6yhmy0/
 https://old.reddit.com/r/comics/comments/1rcutka/lets_not/o70z72s/
 
 Trump fandom is a hate fandom. FAITH_IN_HATE PizzaCake's experience on Reddit is gun-worship USA social values. GUN_WORSHIP anti-intellectual to the core. Shoot every MAGA person with a gun instead of teaching cult deprogramming (serious nonfiction adult education using Reddit itself is avoided). Trump leads with hate and followers on Reddit follow the hate.
+
+https://old.reddit.com/r/WatchPeopleDieInside/comments/1rctmpx/mark_zuckerberg_cornered/o70y5m3/
+
+FAKE_RESISTANCE - but if millions of people across the World Wide Web would pledge to Neil Postman's 1985 book "Amusing Ourselves To Death" as a correct theory and REAL_PEOPLE_ADMIT that friends, family, boss men, co-workers and neighbors have been bamboozled by Fox News, Facebook, Instagram, billionaire media systems... we might have a WE THE PEOPLE realization of how our society operates. High-speed information systems, Facebook, Mark Zuckerberg...
+
+https://old.reddit.com/r/WatchPeopleDieInside/comments/1rctmpx/mark_zuckerberg_cornered/o70vyrn/
+
+Cheering Trump fandom. TRUMP_FANDOM  celebrity fandoms! Trump has so many different cults, but all prize hate. Trump leads with hate, people follow hate. Trump leads with mockery, people follow with mocking. Trump leads with insulting, people follow with insults.
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1rcsw6k/peetah/o70m538/
+
+TRUMP_FANDOM discussions on Reddit. Celebrity images and lifestyle of the famous.   
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1rcsw6k/peetah/o70kntk/
+
+<img width="899" height="1139" alt="image" src="https://github.com/user-attachments/assets/3bc4ad98-a318-492c-a25a-08769f371a3f" />
+
+"pretending reality doesn’t exist" - alas, humanity has been doing that for thousands of years. The ignorance of comparative mythology on Reddit and society in total. Bible followers of science fiction, Torah, Quran, Mosque, Church science fiction venues, Synagogues. UNIFIED_THEORY_FICTION_NONFICTION
+
+Don't overlook the comment saying "act online", because in Israel, Palestine, Egypt they aren't "online" when they pretend at the Synagogue, Mosque... 
+
+NEW_OPERA_NAME #PretendingReality    
+Social post { https://autistics.life/@RoundSparrow/116122665947643822 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfkuel5xhs22 }   
+
+https://old.reddit.com/r/AllConspiracyTheories/comments/1rcqsx4/this_is_not_just_an_atrocity_its_a_disgrace/o70gt2g/
+
+"We The People" need to face up to the brain rot crisis, the short-length messaging cults. COLLECTIVELY_INTELLIGENT_PLURIBUS_LEARNING 
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mfkumbwmtc2c https://autistics.life/@RoundSparrow/116122681414488182 }   
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rcwb30/former_ice_trainer_ryan_schwank_is_telling/o71df2z/
+
+SOMEWHERE_DOWN_THE_ROAD_OF_HISTORY Reddit users / Bluesky users / Lemmy users / Mastodon users will claim they never avoided nonfiction from { Malala on giving girls equality, Systemic abuse of children by Putin, Jen Senko's year 2015 Brainwashing film on Wikipedia one click away, Dr. Bandy X Lee assembling 27 people to make a book on education of mental health of Trump } and instead will say "we all knew Trump had dementia!" - Well GUESS FUCKING WHAT, Reddit users, Ronald Reagan had dementia and he wasn't worshiping Russia information warfare! Attacking NATO Canada makes ZERO SENSE economically or for any reason other than to self-harm the future of the USA. The avoidance of NONFICTION SERIOUS BOOKS about cults and mental health (Dr. Lee) I am DOCUMENTING! Because people on Reddit will DENY and not learn the crisis of mythology leadership, fiction vs. nonfiction leadership. We The People are not standing in the street holding signs saying: "We All Need to Promote Dr. Bandy X Lee's leadership and get on the same page together as a nation!". The AVOIDANCE of RELEVANT NONFICTION BOOKS is OBVIOUS if you LOOK AROUND! SELF-EVIDENT! Screaming "Dementia, orange, poop diapers" is NOT addressing the DANGER! Waving around THIS NONFICTION BOOK is the OBVIOUS NEED: https://en.wikipedia.org/wiki/The_Dangerous_Case_of_Donald_Trump
+
+Repeating: "because somewhere down the road of history"
+
+* "that hate for hate only intensifies the existence of hate and evil in the universe. If I hit you and you hit me and I hit you back and you hit me back and go on, you see, that goes on ad infinitum. **It just never ends. Somewhere somebody must have** a little sense, and that's the strong person. The strong person is the person who can cut off the chain of hate, the chain of evil. And that is the tragedy of hate, that it doesn't cut it off. It only intensifies the existence of hate and evil in the universe. **Somebody must have religion enough and morality enough to cut it off** and inject within the very structure of the universe that strong and powerful element of love."; "Somewhere somebody must have some sense. Men must see that force begets force, hate begets hate, toughness begets toughness. And it is all a descending spiral, ultimately ending in destruction for all and everybody. Somebody **must have sense enough and morality enough to cut off the chain of hate and the chain of evil in the universe**. And you do that by love." - November 17, 1957
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rcwb30/former_ice_trainer_ryan_schwank_is_telling/o71g3g5/
+
+8 month Reddit account. it is DENIAL. DENIAL_ABOUNDS - it is DENIAL of Russia winning information warfare since March 2013. It is DENIAL of exactly what those meme patterns and message patterns by the Saint Petersburg Internet Research Agency were doing and analyzing them trough the lensing of James Joyce's 1923 Finn's Hotel book, 1939 Finnegans Wake.. and University of Toronto's Marshall McLuhan. We have FORGOTTEN the understanding that Marshall McLuhan pollinated in the general public! Surkov students have wrecked our thinking. The avoidance of Dr. Bandy X Lee's nonfiction book from October 3, 2017 is the item I keep circling! Why is a GenX woman, Dr Lee, avoided like GenX woman Kamala Harris? What is the VOID social media people have with quoting and asserting leadership by older intelligent leading women? SILHOUETTE_VOID_AVOIDED_TOPIC_HIGHLIGHTING_OUTLINE Jen Senko too, the Baby Boomer who stood up for "The Little Guy", her dad and your dad!
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rcwb30/former_ice_trainer_ryan_schwank_is_telling/o71m566/
+
+COVID-19 behaviors were a massive wakeup call that the Saint Petersburg Internet Research Agency wasn't just making people attracted to the self-harm of Donald Trump, but the self-harm that RFK Jr and anti-science provides. Elon Musk was promoting anti-medical-science. Never forget August 24, 2018! https://www.BBC.com/news/world-us-canada-45294192 ANTI_SCIENCE_ANTI_MEDICAL_SCIENCE_ANTI_LIFE_SAVING the brain rot was clearly on display with the pandemic. People running around supporting a China biological weapon that they claim was a government, but couldn't blame the government of China but instead blamed USA government when the WHOLE WORLD was saying it originated in China, airport spreading! Even with measles spreading now in February 2026, people can't cite August 24, 2018.
+
+https://old.reddit.com/r/MurderedByWords/comments/1rd703j/too_emotional_was_never_a_standard_it_was_a_target/o733xf6/
+
+Top-voted comment, context about sports team, with this comment. People have zero sense on Reddit how many comments like this have been made year after year after year after year. The hockey team game is a few hours, but the Donald Trump media game is every hour of every day year after year after year. The whole "women are too emotional" is consumers repeating the programmed marketing and advertising they are unable to reject from their mind. REMEMBER_THE_PROGRAM_IDEAS_BILLIONAIRES_FED_REDDIT_AUDIENCE
+
+https://old.reddit.com/r/MurderedByWords/comments/1rd703j/too_emotional_was_never_a_standard_it_was_a_target/o733veo/
+
+"Murdered by words", you murdered Trump with all these clever mocking words. So many unique patterns of words. ANYTHING and EVERYTHING to avoid NOT_GOOD_ENOUGH woman Dr. Bandy X Lee's assembling of 27 people writing words about the DANGER Donald Trump is to the nation October 3, 2017. But the only words that people care about is commenting words. The constant avoidance of nonfiction books printed on paper is there if you look at social media users and "No Kings" protests and ICE protest. People are avoidant of learning and always engaging exactly what Donald Trump provides: Mocking, insulting, anti-learning, anti-education, anti-Malala values. The *commenting about Trump* is all people learn any more, the latest patterns of insulting, joking, mockery. When Stephen Colbert and Jimmy Fallon are the methods of communications that people think wins all debate, you get Donald Trump making videos about playing on the hockey team.
+
+https://old.reddit.com/r/MurderedByWords/comments/1rd703j/too_emotional_was_never_a_standard_it_was_a_target/o734y4u/
+
+The population, the society, We The People, wrecked the future of their children so they could play toy-game with an Apple iPhone and Apple iPad and Android devices using apps. An entire nation wrecked itself because of Reality Television being more important than loving neighbors in Mexico and Cuba. Because people care more about hating their "ex lover" and disappointing neighbor - they insisted to put the most terrible person up on television every day to be stimulated into having crowds form around lighted screens to discuss just how much hate is the most important thing to the future of the United States of America... and what we always dreamed up was having a machine in our hands to touch and spread hate all over the World Wide Web in the nae of waking up to beeps and vibrations that the future really needs to have more comments about how stupid and dumb one person is over and over. The population sold-out health care, education, healthy food... just so that machine held in the hand could deliver messages about a terrible person over and over in every variation and pattern imaginable.
+
+* "That shows that court orders just don't matter anymore." - Reddit comment
+
+Reddit avoidance of nonfiction books shows that the entire society has found itself so attracted to a leader of hate that goodness does not matter anymore. How many years has it been since Donald Trump became content on every media system and news platform and topic of society?
+
+Love your neighbor doesn't matter anymore. Parenting your children with good education and understanding of life outside television and life outside Trump Truth Social doesn't matter anymore. Women and what they have to say doesn't matter anymore. If I had to put my finger on what actually does matter to people, it is is fingering a touch screen to make jokes, memes, comments about one single person: Donald J. Trump, over and over and over. Like drug addicts who go to the trap house to get their fix of Trump media, Trump content. TRICKLE_DOWN_MEDIA of Trump cult stimulation.
+
+https://old.reddit.com/r/GreatBritishMemes/comments/1rda5ey/they_are_so_weird/o73oon8/
+
+It is a social movement that has spread across the world from Russia. Winning hearts and minds to follow hate leadership of Putin. How does this idea spread? Media systems. Newspapers, magazines, newsletters, leaflets, postings, billboards, messages paid for by billionaires like Rupert Murdoch who has a global network of urgent message delivery. And, somehow, the consumers of media are convinced that the "dumb" "stupid" problem lies not with the audience. But that we need to *ban* and *block* television channels like Fox News. We should  not criticize the Reddit audience for putting MAGA hat photographs on the front page of Reddit in full color. Because no way would a man in Russia named "Surkov" have inspired a network of media systems to all behave the same way.
+
+* BBC, British Broadcasting Corporation, established in year 1927 as a public corporation... headquartered in London. On December 31, 2014 broadcast these words: "But **maybe, we have something similar emerging here in Britain. Everything we're told by journalists and politicians is confusing and contradictory. Of course, there is no Mr. Surkov in charge**, but it is an odd, non-linear world that plays into the hands of those in power." - year 2014.
+
+https://old.reddit.com/r/GreatBritishMemes/comments/1rda5ey/they_are_so_weird/o73pa1k/
+
+using cryptic "insider knowledge", "inside jokes" on clothing creates such a curious and question-asking audience. WHEN_THE_PEOPLE_HAVE_LOST_THE_ABILITY
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mfm7g5mlyk24 https://autistics.life/@RoundSparrow/116125695210616239 }
+
+https://old.reddit.com/r/SipsTea/comments/1rdaoui/hes_such_an_embarrassment/o73v49j/
+
+The top-voted most popular comment on Reddit with this posting. SOUTH_PARK_FAMILY_GUY_SPONGEBOB_THE_APPRENTICE_REALITY_TELEVISION_USA   
+ South Park, Family Guy. "He's such an embarrassment". The audience who recognizes "Family Guy" animated show in Donald Trump's content says more about the audience than the POTUS Tony Clifton act that Trump is acting. If Trump is not great at economics, what is Trump's skill that puts him in the center of every media system in USA? if Trump is not good at diplomacy and trade agreements, then what exactly is the talent that Trump has in getting at the center of every conversation on Reddit for 3,906 days in a row? Does anyone remember that being a "socialite" and "influencer" on television, that being on Reality TV is the thing Donald Trump was popular January 8, 2004 on NBC? Just maybe, the problem is THE AUDIENCE, the fandom, that watches Family Guy...
+
+* "I guess the trouble was that we didn't have any self-admitted proletarians. Everyone was a temporarily embarrassed capitalist." - June 1960. Esquire magazine.
+
+https://old.reddit.com/r/SipsTea/comments/1rdaoui/hes_such_an_embarrassment/o73ute1/
+
+REMEMBER_THE_PROGRAM_IDEAS_BILLIONAIRES_FED_REDDIT_AUDIENCE Remember those Fox News Rupert Murdoch talking points! **Minds of USA population** always repeating the Fox News language and messages. 
+
+* The Atlantic September 16, 2020 ["Do You Speak Fox? How Donald Trump’s favorite news source became a language" By Megan Garber](https://www.theatlantic.com/culture/archive/2020/09/fox-news-trump-language-stelter-hoax/616309/) 
+
+https://old.reddit.com/r/politics/comments/1rd03pf/trump_melts_down_after_favorite_general_sounds/o725v7e/
+
+The top upvoted comment, the most popular. Short Twitter-style "engage the audience" playing dub with questions. ENTERTAINED_JUST_PASSIVELY_WATCHING_UNTIL_DEATH_NO_SOCIAL_MEDIA_UPRISING_WHILE_ALIVE
+
+https://old.reddit.com/r/politics/comments/1rd03pf/trump_melts_down_after_favorite_general_sounds/o72eqkr/
+
+Anti-intellectual ignorance celebration of Reddit community. Short-length Twitter-think mindset messages. ANYTHING to comment on social devices about Trump instead of turn to nonfiction learning and greater comprehension of modern warfare. REMEDIAL_LEARNING_TRUMP_PUTIN_INFORMATION_WARFARE_YEAR_2011_ONWARD
+
+1. "Winning hearts and minds is a concept occasionally expressed in the resolution of war, insurgency, and other conflicts, in which one side seeks to prevail not by the use of superior force, but by making emotional or intellectual appeals to sway supporters of the other side. The term "hearts and minds" was first used by French general Hubert Lyautey. The use of the term "hearts and minds" to reference a method of bringing a subjugated population on side, was first used by French general and colonial administrator Hubert Lyautey as part of his strategy to counter the Black Flags rebellion during the Tonkin campaign in 1895." https://en.wikipedia.org/wiki/Winning_hearts_and_minds
+
+2. SEE_ALSO: https://github.com/RocketDerp/April14_2025/blob/main/A00/About/Why_Highlight_Circle_Year_2011_onward.md
+
+The messaging of anti-reality on Reddit is what you see here. "this administration is nothing but a failure" - the ignorance celebrating of Reddit fandom to Trump. People who keep ignoring that their friends and neighbors can not resist the charming media presence of Donald Trump. The Kremlin White House administration **is not failing**, their agenda is self-harm to the entire world. The administration is programming Reddit audience members to make simple-think commenting over and over every day and avoid serious nonfiction books on paper. People on Reddit can not escape the total mockery to see the absence of nonfiction books in USA mindsets. The Kremlin White House is promoting ignorance and is winning Reddit hearts and minds to **prize ignorance** and celebrate ignorance! That is the 16D chess everyone mocks. Putin won, Surkov won the chess game.
+
+https://old.reddit.com/r/politics/comments/1rd03pf/trump_melts_down_after_favorite_general_sounds/o72a6ko/
+
+<img width="1216" height="1382" alt="image" src="https://github.com/user-attachments/assets/61b63578-145c-44f9-ba82-c29f93ebc855" />
+
+EPSTEIN_FANDOM EPSTEIN_ISLAND_ARG  (#EpsteinIslandARG) MEDIA_ECOLOGY_OBSERVATION from Trump fandom / Epstein fandom. Reddit media cult members discuss cult media centered around the rich white men sex domination of little girls. Like "cult films" media, but instad expanding into "cult televsiion" and "cult social media". INFORMATION_STRIP_TEASE 
+
+NEW_OPERA_NAME #MediaEcologyObservation #StopCaringAll   
+Social post { https://autistics.life/@RoundSparrow/116126160468687962 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfmg4qqz7k2p }   
+
+https://old.reddit.com/r/politics/comments/1rd03pf/trump_melts_down_after_favorite_general_sounds/o728cor/
+
+FICTION_VS_FICTION FICTION_HARDER   
+
+https://old.reddit.com/r/circled/comments/1rdf41t/preview_of_tonights_state_of_the_union/o74rd0c/
+
+TRUMP_FANDOM - blind to WHAT exactly? RESISTING_WHAT_EXACTLY ? Meme-think, Trumpism is build on ignorance celebration. And this Reddit posting first thing on Tuesday morning is a celebration of the State of the Union ignorance. Reddit is a cult of ignorance that flocks to Trump content. Instead of authentically resisting with promotion of nonfiction book published by Dr. Bandy X Lee with 27 contributors for the general public since October 3, 2017.
+
+https://old.reddit.com/r/circled/comments/1rdf41t/preview_of_tonights_state_of_the_union/o74l758/
+
+1 month Reddit account. FANATICS_FANS_OF_CLOWNS_FANS_OF_MAGA_CLOWNING TRICKLE_DOWN_CONTENT
+
+https://old.reddit.com/r/science/comments/1rdfmy5/donald_trumps_2024_election_win_increased_the/o74ruvw/
+
+DONALD_TRUMP_ROLE_MODEL Trump is the low-effort social media hate leadership that people copy. So many have adopted Truth Social values and behaviors / attitudes. Notably: always avoiding nonfiction serious authors on relevant topics. Such as avoiding Dr. Bandy X Lee's nonfiction books on paper.
+
+https://old.reddit.com/r/science/comments/1rdfmy5/donald_trumps_2024_election_win_increased_the/o753u23/
+
+Trump is a leader of hate. Reddit and Bluesky audience follows hate. Reddit users do not quote MLK Jr or any other preacher / teacher on how all hate is bad. People form teams of hate. HATE_VS_HATE  NAME_CALLING_INSULT_MOCKERY_FOLLOWERS_OF_LEADER_DONALD_TRUMP_SHALLOWNESS_VALUES
+
+https://old.reddit.com/r/science/comments/1rdfmy5/donald_trumps_2024_election_win_increased_the/o756p1l/
+
+1 day Reddit account.
+
+https://old.reddit.com/r/science/comments/1rdfmy5/donald_trumps_2024_election_win_increased_the/o759kmi/
+
+MEDIA_ECOLOGY_OBSERVATION on Internet media systems. The less-educated Rural MAGA population was connected by TCP/IP. People who previously mocked and insulted computer "nerds" became smartphone tablet users. SEE_ALSO: https://GitHub.com/RocketDerp/April14_2025/blob/main/A00/About/Why_Highlight_Circle_Year_2011_onward.md
+
+REMEDIAL_LEARNING_TRUMP_PUTIN_INFORMATION_WARFARE_YEAR_2011_ONWARD Alas- this Reddit comment talks about year 2008 as if no seriously written nonfiction books have been published and printed on paper. The Reddit fandom of Donald Trump content consistently avoids relevant books on paper. Commenting addiction rules the mindsets and filter-bubble behaviors in February 2026.
+

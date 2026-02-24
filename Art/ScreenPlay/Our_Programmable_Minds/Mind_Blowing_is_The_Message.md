@@ -9,9 +9,9 @@ This isn't limited to year 635 Quran poetry. It happens with year 1996 onward Fo
 
 "The Medium Is The Massage"     
 "The Medium Is The Mass Age"    
-People are attracted to the Mosque, Church, Synagogle, Temple, movie cinema. All science fiction venues.   
-People are attracted to having their minds blown by billionares making expensive Star Wars Andor TV shows in year 2025.   
-People are attracted to content that blows out thier minds. They flock to it.
+People are attracted to the Mosque, Church, Synagogue, Temple, movie cinema. All science fiction venues.   
+People are attracted to having their minds blown by billionaires making expensive Star Wars Andor TV shows in year 2025.   
+People are attracted to content that blows out their minds. They flock to it.
 
 * "In the Huxleyan prophecy, Big Brother does not watch us, by his choice. **We watch him**, by ours.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
 
