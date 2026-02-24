@@ -791,3 +791,7 @@ https://old.reddit.com/r/SipsTea/comments/1rdaoui/hes_such_an_embarrassment/o73u
 REMEMBER_THE_PROGRAM_IDEAS_BILLIONAIRES_FED_REDDIT_AUDIENCE Remember those Fox News Rupert Murdoch talking points! **Minds of USA population** always repeating the Fox News language and messages. 
 
 * The Atlantic September 16, 2020 ["Do You Speak Fox? How Donald Trump’s favorite news source became a language" By Megan Garber](https://www.theatlantic.com/culture/archive/2020/09/fox-news-trump-language-stelter-hoax/616309/) 
+
+https://old.reddit.com/r/politics/comments/1rd03pf/trump_melts_down_after_favorite_general_sounds/o725v7e/
+
+The top upvoted comment, the most popular. Short Twitter-style "engage the audience" playing dub with questions. ENTERTAINED_JUST_PASSIVELY_WATCHING_UNTIL_DEATH_NO_SOCIAL_MEDIA_UPRISING_WHILE_ALIVE
