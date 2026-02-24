@@ -814,3 +814,7 @@ EPSTEIN_FANDOM EPSTEIN_ISLAND_ARG  (#EpsteinIslandARG) MEDIA_ECOLOGY_OBSERVATION
 
 NEW_OPERA_NAME #MediaEcologyObservation #StopCaringAll   
 Social post { https://autistics.life/@RoundSparrow/116126160468687962 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfmg4qqz7k2p }   
+
+https://old.reddit.com/r/politics/comments/1rd03pf/trump_melts_down_after_favorite_general_sounds/o728cor/
+
+FICTION_VS_FICTION FICTION_HARDER   
