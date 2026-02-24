@@ -59,6 +59,10 @@ ARGUE_ANY_MORE
 
 OPERA_A https://www.youtube.com/watch?v=P5ZJui3aPoQ TOWER_OF_BABEL_CLIMB_METAPHORS Lyrics: "Once I rose above the noise and confusion... just to get a glimpse beyond this illusion" 143,233,169 views February 15, 2017
 
+"And where we had thought to find an abomination, we shall find a god" - year 1949.
+
+OPERA_B TO_LUKA_UPSTAIRS https://youtu.be/O2CIAKVTOrc?t=25 Lyrics: "Raise your head, look into my wishful eyes. That fear that's inside you will lift, give it time. I can see everything you're blind to now your prayers will be answered, let God whisper how" METAPHORS_OF_JOHN_ONE_ONE God is Language whispering. Lyrics: "I see that you're hurtin', why'd you take so long? … To tell me you need me? I see that you're bleeding!" 321,856,541 views May 6, 2022
+
 &nbsp;
 
 IMPORTANT_QUOTES_A "My old pal Putin is a power addict inflicting mass psychosis – no one else will say it" https://www.dailystar.co.uk/news/world-news/my-old-pal-putin-power-29835224 Lyudmila Narusova, age 71. “It’s just that they are afraid to speak it out loud.”
