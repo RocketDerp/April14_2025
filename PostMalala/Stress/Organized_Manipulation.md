@@ -58,3 +58,7 @@ ARGUE_ANY_MORE
 * "Centuries of husbandry, decades of diligent culling, the work of numerous hearts and hands, have gone into the hackling, sorting, and spinning of this tightly twisted yarn. Furthermore, we have not even to risk the adventure alone; for the heroes of all time have gone before us; the labyrinth is thoroughly known; we have only to follow the thread of the hero-path. **And where we had thought to find an abomination, we shall find a god**; where we had thought to slay another, we shall slay ourselves; where we had thought to travel outward, we shall come to the center of our own existence; and where we had thought to be alone, we shall be with all the world." - Year 1949.
 
 OPERA_A https://www.youtube.com/watch?v=P5ZJui3aPoQ TOWER_OF_BABEL_CLIMB_METAPHORS Lyrics: "Once I rose above the noise and confusion... just to get a glimpse beyond this illusion" 143,233,169 views February 15, 2017
+
+&nbsp;
+
+IMPORTANT_QUOTES_A "My old pal Putin is a power addict inflicting mass psychosis – no one else will say it" https://www.dailystar.co.uk/news/world-news/my-old-pal-putin-power-29835224 Lyudmila Narusova, age 71. “It’s just that they are afraid to speak it out loud.”
