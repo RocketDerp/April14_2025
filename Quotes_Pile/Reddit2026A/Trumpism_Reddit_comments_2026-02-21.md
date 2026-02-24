@@ -831,3 +831,6 @@ https://old.reddit.com/r/science/comments/1rdfmy5/donald_trumps_2024_election_wi
 
 DONALD_TRUMP_ROLE_MODEL Trump is the low-effort social media hate leadership that people copy. So many have adopted Truth Social values and behaviors / attitudes. Notably: always avoiding nonfiction serious authors on relevant topics. Such as avoiding Dr. Bandy X Lee's nonfiction books on paper.
 
+https://old.reddit.com/r/science/comments/1rdfmy5/donald_trumps_2024_election_win_increased_the/o753u23/
+
+Trump is a leader of hate. Reddit and Bluesky audience follows hate. Reddit users do not quote MLK Jr or any other preacher / teacher on how all hate is bad. People form teams of hate. HATE_VS_HATE  NAME_CALLING_INSULT_MOCKERY_FOLLOWERS_OF_LEADER_DONALD_TRUMP_SHALLOWNESS_VALUES
