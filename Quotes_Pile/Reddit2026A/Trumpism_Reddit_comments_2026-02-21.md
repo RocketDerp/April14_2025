@@ -845,3 +845,78 @@ MEDIA_ECOLOGY_OBSERVATION on Internet media systems. The less-educated Rural MAG
 
 REMEDIAL_LEARNING_TRUMP_PUTIN_INFORMATION_WARFARE_YEAR_2011_ONWARD Alas- this Reddit comment talks about year 2008 as if no seriously written nonfiction books have been published and printed on paper. The Reddit fandom of Donald Trump content consistently avoids relevant books on paper. Commenting addiction rules the mindsets and filter-bubble behaviors in February 2026.
 
+https://old.reddit.com/r/science/comments/1rdfmy5/donald_trumps_2024_election_win_increased_the/o752dh4/
+
+Despite 9/11 (September 11, 2001), we the people still think in terms of "hate crime" in very limited ways. Rupert Murdoch has been online since October 7, 1996 programming mass dehumanization into minds, yet that isn't seen as part of these statistics. Worship billionaires and hate upon poor people. PREDATORY_BILLIONAIRE_SYSTEMS
+
+https://old.reddit.com/r/science/comments/1rdfmy5/donald_trumps_2024_election_win_increased_the/o74qmsq/
+
+It is important to understand: **We The People can call for impeachment and removal**. The entire point of having a Vice President is that it is an interchangeable systems. OUTBREAKS_OF_MOB_CULT_BEHAVIORS Donald Trump is a symptom of the Saint Petersburg Internet Research Agency targeting NATO, multiple nations, that resonated most with the ignorance celebrators in USA. Trump makes no sense as a leader, ignorant rural people do not trust a "City Slicker" Playboy who lives in a Penthouse in NYC. A man in a business suit does not connect with rural less-educated "red areas" of the nation... what changed was the Apple iPhone / Apple iPad / Android smart devices reaching the rural area and allowing the St. Pete IRA into hearts and minds. DENIAL_ABOUNDS Surkov won since March 2013.
+
+It is important to understand: **We The People can call for impeachment and removal**. We can make a mistake or error. But when impeachment over Russia / Putin... "was officially announced by Speaker Nancy Pelosi on September 24, 2019" - where was the REDDIT_BLACKOUT ? When did Reddit users have an INTELLECTUAL uprising to call for truth, honesty, goodness, sincerity in government? When did We The People on Reddit social get into the world newspapers in September 2019, October 2019, November 2019, December 2019 for a massive Internet WWW protest and blackout?
+
+We The People can get drunk on memes, drunk on Apple iPhone TCP/IP power of high-speed information delivery.. but We The People can *sober up* and organize an online nonfiction book quotation of Dr. Bandy X Lee's October 3, 2017 book in October 2019 (two years later).. yet, We The People find trump so thrilling as a source of entertainment and amusement - that We The People have no evidence of a major Internet protest and blackout in Q4 2019. Right before the COVID-19 pandemic, we had a chance to REMOVE Donald Trump from office. But We The People did not stand up to Trump a an Internet cyberbully. We followed the Trump leadership of always avoiding the nonfiction section of the public library, avoiding relevant books on paper. People follow Trump's Twitter leadership behaviors instead, anti-book, anti-study, anti-learning, anti-girls, anti-women, anti Dr. Lee woman. Anti Nancy Pelosi's leadership September 24, 2019 woman. SHOW ME the widespread "we made a mistake, remove Trump, impeach Trump" Q4 2019 protests in the newspaper!
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rdi68d/karoline_leavitt_the_president_will_be_making_a/o759bim/
+
+6 month Reddit account, the most popular upvoted comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT which is 140 character Twitter-length style. Provides no quote, no off-Reddit citation, just casually commenting on critical national topic.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rdi68d/karoline_leavitt_the_president_will_be_making_a/o759hwj/
+
+Which is why this Reddit comment section has people instantly racing to the app notification of a new Trump post. Reddit is a death cult, hate watching cult. Media cult members attracted to hate leadership and hate MAGA values. SOCIAL_CULT_HATE_WATCHING_FANDOM
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rdi68d/karoline_leavitt_the_president_will_be_making_a/o759fjo/
+
+"utterly stupid at this point" - no, that was June 16, 2015 point. RECENCY_BIAS of Reddit fandom to think that the information stupid (Surkovian, Trump leadership) only capitulated to fiction-based-leadership in February 2026. People on Reddit, so addled by low-effort commenting addictions, are unable to comprehend and understand basic timelines of the USA situation since March 2013.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rdi68d/karoline_leavitt_the_president_will_be_making_a/o75a5ms/
+
+<img width="1571" height="890" alt="image" src="https://github.com/user-attachments/assets/106f1c4b-0801-474c-a877-f958320bd717" />
+
+"A torrent that began in 2014. I am so tired of lies." - YES, not 2016, but years before the election. Trumpism didn't just start after he took office in January 2017. " It's everything the 80s said was true of the USSR." - Excellent understanding. Alas, we need to connect this "the 80s" talk to Neil Postman's year 1985 book and see what issue we are up against. 
+
+* "For all his perspicacity, George Orwell would have been stymied by this situation; there is nothing “Orwellian” about it. The President does not have the press under his thumb. The New York Times and The Washington Post are not Pravda; the Associated Press is not Tass. And there is no Newspeak here. Lies have not been defined as truth nor truth as lies. **All that has happened is that the public has adjusted to incoherence and been amused** into indifference. Which is why Aldous Huxley would not in the least be surprised by the story. Indeed, he prophesied its coming. He believed that it is far more likely that the Western democracies will dance and dream themselves into oblivion than march into it, single file and manacled. Huxley grasped, as Orwell did not, that it is not necessary to conceal anything from a public insensible to contradiction and narcoticized by technological diversions. Although Huxley did not specify that television would be our main line to the drug, he would have no difficulty accepting Robert MacNeil’s observation that “Television is the soma of Aldous Huxley’s Brave New World.” Big Brother turns out to be Howdy Doody."
+― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, **year 1985**, page 111
+
+And this cited Reddit comment will get drowned out as everyone is commenting away on different sites and pages on those sites. There is no call for FAQ, no call for Wiki, no call for nonfiction books to all get on the same pages at the same times :( It is entirely normalized to avoid relevant nonfiction books on paper now in USA society.
+
+NEW_OPERA_NAME #TiredOfLies #HowNormalized   
+Social post { https://autistics.life/@RoundSparrow/116126901521200449 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfmqkmkuws2u }   
+
+https://old.reddit.com/r/worldnews/comments/1rdl280/mexico_weighs_legal_action_after_musk_links/o761svh/
+
+Twitter-think nation. MUSK_FANDOM MEDIA_ECOLOGY_OBSERVATION Musk has injected so much Tweet-thinking into mindsets. So many Reddit users behave like Truth Social fandoms and Twitter programmed audiences. Always avoiding extremely relevant nonfiction serious books on paper.
+
+https://old.reddit.com/r/worldnews/comments/1rdl280/mexico_weighs_legal_action_after_musk_links/o763425/
+
+Observe the absence of author names, nonfiction book titles, off-Redit URL, quotes from books, etc.
+
+https://old.reddit.com/r/WorkReform/comments/1rdifhy/the_right_wing_won/o75bbyj/
+
+That's what the billionaires have educated adults to believe. Rupert Murdoch Fox News since October 7, 1996 and so forth. Adults do not learn in rectangle classrooms facing a teacher. Adults learn from Reddit, Twitter, Fox News HDTV, Joe Rogan podcast, etc.
+
+https://old.reddit.com/r/WorkReform/comments/1rdifhy/the_right_wing_won/o75fra9/
+
+Because the entire left-vs-right (see image of posting) and liberals-vs-conservative has become brain-rot simple-think patterns of out-group-hate. People are in year 2026 CONVINCED that there are 2 and only 2 bad answers to every problem and to think inside the box of left box right box. BRAIN_ROT_LEFT_RIGHT_LIB_CON_NAME_AVOIDANCE
+
+https://old.reddit.com/r/WorkReform/comments/1rdifhy/the_right_wing_won/o75f6h1/
+
+MEDIA_ECOLOGY_OBSERVATION on TRICKLE_DOWN_TALKING_POINTS_TO_SOCIETY about what "mainstream media' means.
+
+https://old.reddit.com/r/WorkReform/comments/1rdifhy/the_right_wing_won/o75dfz3/
+
+13 day Reddit account. Desiring silence is the whole block-happy Bluesky Reddit mentality of silencing dissent and getting people deported to not have to translate and think outside the conditioned mindsets. BLOCK_HAPPY_DEPORT_HAPPY_SILENCE_POOR_PEOPLE_SILENCE_UPPITY
+
+https://old.reddit.com/r/politics/comments/1rdh9r0/insiders_admit_trump_may_have_killed_presidency/o751wh2/
+
+<img width="1024" height="419" alt="image" src="https://github.com/user-attachments/assets/4125c2a9-2cc8-4f57-a979-815aaf5e26f6" />
+
+Yes. Trump is not alone. The abandonment of nonfiction relevant books on paper is a NATIONAL issue of THE ENTIRE POPULATION. Dr. Bandy X Lee's book from October 3, 2017 being ignored and avoided by the Reddit community, Bluesky community... I am calling out over and over and over on this GitHub project. Trump is not the only one, the Supreme Court SCOTUS is not the only ones, **it is an entire nation (population over age 12) avoiding the leadership of 27 people since October of year 2017 that Dr. Lee assembled. TRUMP_FAMILY_FIXATED_BRAIN_ROT_EVERY_DAY_FOX_NEWS_TWITTER_ETC Surkov won since March 2013. 
+
+NEW_OPERA_NAME #NotJustDonaldTrump (8 month revival) #BeSubservient   
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mfmsydjpdc2k https://autistics.life/@RoundSparrow/116127074606901012 }   
+
+https://old.reddit.com/r/politics/comments/1rdh9r0/insiders_admit_trump_may_have_killed_presidency/o750lj3/
+
+TRUMP_FANDOM on Reddit giving prayers to God that Trump is maximum nonsense and chaos for thrilling exciting entertainment and mockery. The bewildering Tony Clifton performance is what has attracted the fandom to Trump all along since June 16, 2015. More than a decade of people prizing Trump messages and videos as a source of amusement and comedy. The best Tony Clifton character performer in history. Gullible audience thinks that what we need is FICTION_HARDER - that we need NONSENSE_HARDER cries for more and more Trump family content to comment about. Cult of ignorance. Celebrating the ignorance source and ignorance leadership Trump provides.
+

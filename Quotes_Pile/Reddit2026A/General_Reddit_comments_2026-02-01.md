@@ -844,3 +844,9 @@ OBSERVE: people do not call for Reddit to solve the "bots" issue. Instead, peopl
 https://old.reddit.com/r/CuratedTumblr/comments/1rcwfop/title/o71fssv/
 
 MEDIA_ECOLOGY_LESSON
+
+https://old.reddit.com/r/SipsTea/comments/1rdgz3t/money_really_does_solve_arguments_apparently/o752nk3/
+
+7 day Reddit account. Top-upvoted popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT 
+
+Social post { https://autistics.life/@RoundSparrow/116126944856526386 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfmr5uz4722k }   
