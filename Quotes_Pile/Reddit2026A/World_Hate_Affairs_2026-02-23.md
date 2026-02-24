@@ -124,3 +124,9 @@ https://old.reddit.com/r/antiwork/comments/1rcpn2h/epstein_victim_names_the_musk
 https://old.reddit.com/r/mildlyinfuriating/comments/1rdvfoa/someone_ripped_the_door_off_my_local_little_free/o787q5m/
 
 Living under USA society that finds symbolism inversion hilarious and funny and entertaining, as defined by Neil Postman as "amusing" in his 1985 book, this is an essential revelation to understand about the anti-book cultists of electric media app addicts. "I think it would be hilarious"
+
+https://old.reddit.com/r/mildlyinfuriating/comments/1rdvfoa/someone_ripped_the_door_off_my_local_little_free/o788d6b/
+
+Not just Christian. Malala's reporting from Swat Valley, Pakistan shows similar patterns.
+
+* "The extremists are afraid of books and pens. The power of education frightens them. They are afraid of women. The power of the voice of women frightens them." - July 12, 2013 https://malala.org/news-and-voices/malala-un-speech
