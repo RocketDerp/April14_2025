@@ -27,6 +27,7 @@ These words articulate exactly the sickening feeling. The most powerful systems 
 
 # Abusers Abound  
 
+UNDERSTANDING_TRUMPISM    
 systems of abuse abound.  
 Silence, Don't Talk About It, Denial Abounds.   
 Avoidance, Secrecy, Inward kept from public eye   
