@@ -864,3 +864,7 @@ https://old.reddit.com/r/UnderReportedNews/comments/1rdi68d/karoline_leavitt_the
 https://old.reddit.com/r/UnderReportedNews/comments/1rdi68d/karoline_leavitt_the_president_will_be_making_a/o759hwj/
 
 Which is why this Reddit comment section has people instantly racing to the app notification of a new Trump post. Reddit is a death cult, hate watching cult. Media cult members attracted to hate leadership and hate MAGA values. SOCIAL_CULT_HATE_WATCHING_FANDOM
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rdi68d/karoline_leavitt_the_president_will_be_making_a/o759fjo/
+
+"utterly stupid at this point" - no, that was June 16, 2015 point. RECENCY_BIAS of Reddit fandom to think that the information stupid (Surkovian, Trump leadership) only capitulated to fiction-based-leadership in February 2026. People on Reddit, so addled by low-effort commenting addictions, are unable to comprehend and understand basic timelines of the USA situation since March 2013.
