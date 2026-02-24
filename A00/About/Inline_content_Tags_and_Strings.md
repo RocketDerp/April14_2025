@@ -218,6 +218,7 @@ Topic_tags: media_ecology, reading_vs_film, morality_lessons
 Topic_tags: Levant_monomyth, monomyth_vs_monomyth, fiction_vs_fiction   
 Topic_tags: pro_sneaks pro_manipulators anti_democracy gang_signals social_media_gangs   
 
+FICTION_HARDER   
 
 Social post { }   
 Surkov won   
