@@ -21,3 +21,34 @@ I found professional educators at Duke University describing the experience in y
 
 These words articulate exactly the sickening feeling. The most powerful systems devised by humanity are manipulating people. The stress is enormous! So much fiction is in conflict with nonfiction reality.
 
+&nbsp;
+
+&nbsp;
+
+# Abusers Abound  
+
+systems of abuse abound.  
+Silence, Don't Talk About It, Denial Abounds.   
+Avoidance, Secrecy, Inward kept from public eye   
+The Abuse you get for speaking up in public is WORSE than the abuse inside private affairs.   
+People are more scared of being humiliated in public than being abused in private spaces.  
+People are more scared of being called "crazy" in public than solving the abuse in private.  
+THE_ARTICULATION_BARRIERS    
+WHERE_LANGUAGE_BREAKS_CLIMBING_BABEL_TOWER   
+THE_BARRICADES_OF_HEAVENS   
+WHAT_IS_HIDDEN_IN_DOMESTIC_ABUSE_IS_SPIRIT_OF_TRUMPISM_PUTINISM   
+
+https://www.youtube.com/watch?v=VZt7J0iaUD0     
+"Suzanne Vega - Luka"   
+
+TOWER_OF_BABEL_HIGHER_SECOND_FLOOR_LANGUAGE_BARRIER_METAPHORS     
+TOWER_OF_BABEL_CLIMB_METAPHORS   
+ASK_ME_WHAT_IT_WAS  
+ASK_ME_HOW_I_AM   
+BECAUSE_I_AM_CRAZY   
+NOT_YOUR_BUSINESS_ANYWAY  
+ARGUE_ANY_MORE  
+
+* "Centuries of husbandry, decades of diligent culling, the work of numerous hearts and hands, have gone into the hackling, sorting, and spinning of this tightly twisted yarn. Furthermore, we have not even to risk the adventure alone; for the heroes of all time have gone before us; the labyrinth is thoroughly known; we have only to follow the thread of the hero-path. **And where we had thought to find an abomination, we shall find a god**; where we had thought to slay another, we shall slay ourselves; where we had thought to travel outward, we shall come to the center of our own existence; and where we had thought to be alone, we shall be with all the world." - Year 1949.
+
+OPERA_A https://www.youtube.com/watch?v=P5ZJui3aPoQ TOWER_OF_BABEL_CLIMB_METAPHORS Lyrics: "Once I rose above the noise and confusion... just to get a glimpse beyond this illusion" 143,233,169 views February 15, 2017
