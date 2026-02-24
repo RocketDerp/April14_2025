@@ -9,7 +9,7 @@ REMEDIAL_LEARNING_TRUMP_PUTIN_INFORMATION_WARFARE_YEAR_2011_ONWARD
 3. July 6, 2011. Year 2011. Donald Trump and Twitter media. https://TheOutline.com/post/2445/trump-s-first-real-tweet-was-on-july-6-2011 "the tool has become an appendage of the man himself, offering a direct line of sight into his distorted and deeply troubling inner world."
     * “With the arrival of electric technology, man has extended, or set outside himself, a live model of the central nervous system itself. To the degree that this is so, it is **a development that suggests a desperate suicidal autoamputation**, as if the central nervous system could no longer depend on the physical organs to be protective buffers against the slings and arrows of outrageous mechanism. ― Marshall McLuhan, Understanding Media: The Extensions of Man. **Year 1964**.
 
-4. 
+4. October 20, 2011. London Review of Books. https://www.lrb.co.uk/the-paper/v33/n20/peter-pomerantsev/putin-s-rasputin "Putin’s Rasputin" by Peter Pomerantsev.
 
 &nbsp;
 
