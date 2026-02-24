@@ -868,3 +868,17 @@ Which is why this Reddit comment section has people instantly racing to the app 
 https://old.reddit.com/r/UnderReportedNews/comments/1rdi68d/karoline_leavitt_the_president_will_be_making_a/o759fjo/
 
 "utterly stupid at this point" - no, that was June 16, 2015 point. RECENCY_BIAS of Reddit fandom to think that the information stupid (Surkovian, Trump leadership) only capitulated to fiction-based-leadership in February 2026. People on Reddit, so addled by low-effort commenting addictions, are unable to comprehend and understand basic timelines of the USA situation since March 2013.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rdi68d/karoline_leavitt_the_president_will_be_making_a/o75a5ms/
+
+<img width="1571" height="890" alt="image" src="https://github.com/user-attachments/assets/106f1c4b-0801-474c-a877-f958320bd717" />
+
+"A torrent that began in 2014. I am so tired of lies." - YES, not 2016, but years before the election. Trumpism didn't just start after he took office in January 2017. " It's everything the 80s said was true of the USSR." - Excellent understanding. Alas, we need to connect this "the 80s" talk to Neil Postman's year 1985 book and see what issue we are up against. 
+
+* "For all his perspicacity, George Orwell would have been stymied by this situation; there is nothing “Orwellian” about it. The President does not have the press under his thumb. The New York Times and The Washington Post are not Pravda; the Associated Press is not Tass. And there is no Newspeak here. Lies have not been defined as truth nor truth as lies. **All that has happened is that the public has adjusted to incoherence and been amused** into indifference. Which is why Aldous Huxley would not in the least be surprised by the story. Indeed, he prophesied its coming. He believed that it is far more likely that the Western democracies will dance and dream themselves into oblivion than march into it, single file and manacled. Huxley grasped, as Orwell did not, that it is not necessary to conceal anything from a public insensible to contradiction and narcoticized by technological diversions. Although Huxley did not specify that television would be our main line to the drug, he would have no difficulty accepting Robert MacNeil’s observation that “Television is the soma of Aldous Huxley’s Brave New World.” Big Brother turns out to be Howdy Doody."
+― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, **year 1985**, page 111
+
+And this cited Reddit comment will get drowned out as everyone is commenting away on different sites and pages on those sites. There is no call for FAQ, no call for Wiki, no call for nonfiction books to all get on the same pages at the same times :( It is entirely normalized to avoid relevant nonfiction books on paper now in USA society.
+
+NEW_OPERA_NAME #TiredOfLies #HowNormalized   
+Social post { https://autistics.life/@RoundSparrow/116126901521200449 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfmqkmkuws2u }   
