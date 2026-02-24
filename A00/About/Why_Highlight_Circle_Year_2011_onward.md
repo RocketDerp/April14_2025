@@ -11,6 +11,8 @@ REMEDIAL_LEARNING_TRUMP_PUTIN_INFORMATION_WARFARE_YEAR_2011_ONWARD
 
 4. October 20, 2011. London Review of Books. https://www.lrb.co.uk/the-paper/v33/n20/peter-pomerantsev/putin-s-rasputin "Putin’s Rasputin" by Peter Pomerantsev.
    * "It’s the apotheosis of what has become known as ‘managed democracy’, and the ultimate triumph of the show’s writer-director, Putin’s chief ideologue and grey cardinal, Vladislav Surkov, the ‘Kremlin demiurge’. Known also as the ‘puppetmaster who privatised the Russian political system’, Surkov is the real genius of the Putin era. **Understand him and you understand** not only contemporary Russia but **a new type of power politics**, a breed of authoritarianism far subtler than the 20th-century strains." - October 20 of **year 2011**
+   * Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mfmmvbtbes22 https://autistics.life/@RoundSparrow/116126595096449243 }
+
 
 &nbsp;
 
