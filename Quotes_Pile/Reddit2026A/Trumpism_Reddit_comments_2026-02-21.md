@@ -902,3 +902,7 @@ Because the entire left-vs-right (see image of posting) and liberals-vs-conserva
 https://old.reddit.com/r/WorkReform/comments/1rdifhy/the_right_wing_won/o75f6h1/
 
 MEDIA_ECOLOGY_OBSERVATION on TRICKLE_DOWN_TALKING_POINTS_TO_SOCIETY about what "mainstream media' means.
+
+https://old.reddit.com/r/WorkReform/comments/1rdifhy/the_right_wing_won/o75dfz3/
+
+13 day Reddit account. Desiring silence is the whole block-happy Bluesky Reddit mentality of silencing dissent and getting people deported to not have to translate and think outside the conditioned mindsets. BLOCK_HAPPY_DEPORT_HAPPY_SILENCE_POOR_PEOPLE_SILENCE_UPPITY
