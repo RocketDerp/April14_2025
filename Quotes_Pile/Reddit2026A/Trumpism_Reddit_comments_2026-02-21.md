@@ -915,3 +915,8 @@ Yes. Trump is not alone. The abandonment of nonfiction relevant books on paper i
 
 NEW_OPERA_NAME #NotJustDonaldTrump (8 month revival) #BeSubservient   
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mfmsydjpdc2k https://autistics.life/@RoundSparrow/116127074606901012 }   
+
+https://old.reddit.com/r/politics/comments/1rdh9r0/insiders_admit_trump_may_have_killed_presidency/o750lj3/
+
+TRUMP_FANDOM on Reddit giving prayers to God that Trump is maximum nonsense and chaos for thrilling exciting entertainment and mockery. The bewildering Tony Clifton performance is what has attracted the fandom to Trump all along since June 16, 2015. More than a decade of people prizing Trump messages and videos as a source of amusement and comedy. The best Tony Clifton character performer in history. Gullible audience thinks that what we need is FICTION_HARDER - that we need NONSENSE_HARDER cries for more and more Trump family content to comment about. Cult of ignorance. Celebrating the ignorance source and ignorance leadership Trump provides.
+
