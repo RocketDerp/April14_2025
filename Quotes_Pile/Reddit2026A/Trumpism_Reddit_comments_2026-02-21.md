@@ -726,3 +726,9 @@ Don't overlook the comment saying "act online", because in Israel, Palestine, Eg
 
 NEW_OPERA_NAME #PretendingReality    
 Social post { https://autistics.life/@RoundSparrow/116122665947643822 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfkuel5xhs22 }   
+
+https://old.reddit.com/r/AllConspiracyTheories/comments/1rcqsx4/this_is_not_just_an_atrocity_its_a_disgrace/o70gt2g/
+
+"We The People" need to face up to the brain rot crisis, the short-length messaging cults. COLLECTIVELY_INTELLIGENT_PLURIBUS_LEARNING 
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mfkumbwmtc2c https://autistics.life/@RoundSparrow/116122681414488182 }   
