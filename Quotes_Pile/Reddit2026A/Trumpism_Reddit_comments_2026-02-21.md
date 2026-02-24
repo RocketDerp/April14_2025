@@ -923,3 +923,7 @@ TRUMP_FANDOM on Reddit giving prayers to God that Trump is maximum nonsense and 
 https://old.reddit.com/r/nextfuckinglevel/comments/1rdhjql/ricky_gervaiss_golden_globe_speech_which_has_aged/o75cmrt/
 
 AMUSEMENT_COMEDY_WASHING_TRUMP_AS_FUNNY_MEDIA_SANEWASHING Trump is in power because joke-washing and comedy-washing Trump is so incredibly popular. Popularity itself is toxic.
+
+https://old.reddit.com/r/Music/comments/1rdr3lg/melania_producer_reveals_guns_n_roses_grace_jones/o777mvq/
+
+"EVERYTHING IS MEDIA ECOLOGY", SEE_ALSO https://GitHub.com/RocketDerp/April14_2025/blob/main/Media_Ecology/Everything_is_ME.md
