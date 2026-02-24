@@ -121,3 +121,6 @@ https://old.reddit.com/r/antiwork/comments/1rcpn2h/epstein_victim_names_the_musk
 
 29 day Reddit account. The billionaires understand Marshall McLuhan and Neil Postman media power that people on Reddit do not understand. Or they are all following Putin's lead and are not self-aware they too are ensnared in self-harm media compulsive behaviors. People just can't wrap their head on the runaway middle ages church science fiction fandom in Europe and the runaway Islamic science fiction clergy power.
 
+https://old.reddit.com/r/mildlyinfuriating/comments/1rdvfoa/someone_ripped_the_door_off_my_local_little_free/o787q5m/
+
+Living under USA society that finds symbolism inversion hilarious and funny and entertaining, as defined by Neil Postman as "amusing" in his 1985 book, this is an essential revelation to understand about the anti-book cultists of electric media app addicts. "I think it would be hilarious"
