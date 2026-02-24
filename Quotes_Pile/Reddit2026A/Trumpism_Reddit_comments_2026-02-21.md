@@ -806,3 +806,11 @@ Anti-intellectual ignorance celebration of Reddit community. Short-length Twitte
 
 The messaging of anti-reality on Reddit is what you see here. "this administration is nothing but a failure" - the ignorance celebrating of Reddit fandom to Trump. People who keep ignoring that their friends and neighbors can not resist the charming media presence of Donald Trump. The Kremlin White House administration **is not failing**, their agenda is self-harm to the entire world. The administration is programming Reddit audience members to make simple-think commenting over and over every day and avoid serious nonfiction books on paper. People on Reddit can not escape the total mockery to see the absence of nonfiction books in USA mindsets. The Kremlin White House is promoting ignorance and is winning Reddit hearts and minds to **prize ignorance** and celebrate ignorance! That is the 16D chess everyone mocks. Putin won, Surkov won the chess game.
 
+https://old.reddit.com/r/politics/comments/1rd03pf/trump_melts_down_after_favorite_general_sounds/o72a6ko/
+
+<img width="1216" height="1382" alt="image" src="https://github.com/user-attachments/assets/61b63578-145c-44f9-ba82-c29f93ebc855" />
+
+EPSTEIN_FANDOM EPSTEIN_ISLAND_ARG  (#EpsteinIslandARG) MEDIA_ECOLOGY_OBSERVATION from Trump fandom / Epstein fandom. Reddit media cult members discuss cult media centered around the rich white men sex domination of little girls. Like "cult films" media, but instad expanding into "cult televsiion" and "cult social media". INFORMATION_STRIP_TEASE 
+
+NEW_OPERA_NAME #MediaEcologyObservation #StopCaringAll   
+Social post { https://autistics.life/@RoundSparrow/116126160468687962 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfmg4qqz7k2p }   
