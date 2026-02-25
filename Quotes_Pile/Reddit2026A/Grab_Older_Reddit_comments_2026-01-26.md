@@ -671,3 +671,25 @@ It seems Reddit removed this comment hzb0ivp from direct view, but it is still p
 "It's because you say dumb shit. Lol. You know this. Don't even bother responding. Whatever you type is going to sound really, incredibly sad. Just fuck off into oblivion." MAGA_VALUES of SELF_DEPORT and driving people off Reddit. Trump-values-0abuser, Epstein-values-abuser role models. "driving discussion away completely"
 
 * "Russia-watcher Catherine Fitzpatrick, who documents Kremlin disinformation for InterpreterMag . com, says just as Moscow uses vague Internet laws to encourage self-censorship, trolls inhibit informed debate by using **crude dialogue to change "the climate of discussion."** "If you show up at The Washington Post or New Republic sites, where there's an article that's critical of Russia, and you see that **there are 200 comments that sound like they were written by 12-year-olds**, then you just don't bother to comment," she says.  "You don't participate. It's a way of just **driving discussion away** completely," she adds. "Those **kinds of tactics are meant to stop democratic debate**, and they work." - **year 2014** https://www.TheAtlantic.com/international/archive/2014/08/the-kremlins-troll-army/375932/
+
+https://old.reddit.com/r/CringeNation/comments/1jlm4ux/cringe_leaders_he_sponsored_lavish_arts_festivals/mk4nkll/
+
+my subreddit to educate the general public on antics cringe politics, Surkovian Trumpism MAGA.
+
+https://old.reddit.com/r/CringeNation/comments/1jlm4ux/cringe_leaders_he_sponsored_lavish_arts_festivals/
+
+Capture the posting.
+
+https://old.reddit.com/r/CringeNation/comments/1jmt02v/after_vice_president_jd_vance_visit_denmark_tells/
+
+https://old.reddit.com/r/CringeNation/comments/1jmt02v/after_vice_president_jd_vance_visit_denmark_tells/mke92mv/
+
+https://old.reddit.com/r/CringeNation/comments/1kkvu20/white_house_president_donald_trump_claims_credit/mrxjccn/
+
+SURKOV_SIEGE aftermaths SURKOV_AFTERMATH 
+
+https://old.reddit.com/r/CringeNation/comments/1kkvu20/white_house_president_donald_trump_claims_credit/mrxji2k/
+
+https://old.reddit.com/r/CringeNation/comments/1jsy49y/elon_musk_makes_public_statements_that_the_advice/mlpzgkq/
+
+
