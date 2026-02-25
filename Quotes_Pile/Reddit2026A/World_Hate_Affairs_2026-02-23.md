@@ -142,3 +142,9 @@ https://old.reddit.com/r/mildlyinfuriating/comments/1rdvfoa/someone_ripped_the_d
 https://old.reddit.com/r/mildlyinfuriating/comments/1rdvfoa/someone_ripped_the_door_off_my_local_little_free/o784kc6/
 
 LEVANT_MONOMYTH_CRISIS in people not learning and understanding Bible verse "1 John 4:20" and lack of studying Irish author James Joyce.
+
+https://old.reddit.com/r/okbuddycinephile/comments/1rdq3jn/favorite_actor_who_is_your_philosophical_superior/o772x0n/
+
+METAPHORS_OF_JOHN_ONE_ONE - conjuring up a metaphor. "Meet The Man", https://Old.Reddit.com/r/Washington/comments/46fh2c/im_so_glad_i_met_the_man_rip_gene_porter_dixies/ I took my dad there September 2001 when he came to visit my wife Tristan and I in Renton, Washington.  The ignorance of metaphors that is so common in USA media. CONCERNS_OF_FINNEGANS people really need to study comparative mythology and Page 581 of James Joyce's Finnegans Wake (published on Star Wars Day in year 1939).  https://www.FinnegansWeb.com/wiki/index.php/Page_581
+
+* “Half the people in the world think that the metaphors of their religious traditions, for example, are facts. And the other half contends that they are not facts at all. As a result we have people who consider themselves believers because they accept metaphors as facts, and we have others who classify themselves as atheists because they think religious metaphors are lies.” ― Joseph Campbell, Thou Art That: Transforming Religious Metaphor
