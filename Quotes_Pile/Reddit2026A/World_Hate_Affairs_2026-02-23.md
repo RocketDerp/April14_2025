@@ -164,3 +164,17 @@ Social post { https://autistics.life/@RoundSparrow/116129070209526921 https://bs
 https://old.reddit.com/r/worldnews/comments/1rdyc7z/gay_and_bisexual_sydney_teenagers_lured_and/o78tvm8/
 
 MONOMYTH_VS_MONOMYTH competitive science fiction storytelling World Hate Affairs
+
+https://old.reddit.com/r/interestingasfuck/comments/1re7xh2/an_indian_officer_beating_an_alleged_assaulter_of/o7ap7ur/
+
+https://old.reddit.com/r/interestingasfuck/comments/1re7xh2/an_indian_officer_beating_an_alleged_assaulter_of/o7aoue8/
+
+https://old.reddit.com/r/interestingasfuck/comments/1re7xh2/an_indian_officer_beating_an_alleged_assaulter_of/o7axre8/
+
+https://old.reddit.com/r/interestingasfuck/comments/1re7xh2/an_indian_officer_beating_an_alleged_assaulter_of/o7axnxa/
+
+IGNORANCE_CELEBRATIONS  
+
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1re2xrp/she_knew_exactly_what_she_was_doing_weaponizing/o7ad8vu/
+
+The Internet mob mentality of audience tends to blame { drug use, race, etc }. What this entire posting points at is { confusion, shallow understanding, superficial mindsets, reactionary mindsets, comprehending, ambiguity, tiredness, CONTEXT_BEWILDERMENT } of the woman. It is like parenting and marriages in general... if people focused more on how poorly society and the human brain deals with stress, ambiguity, being tired, competition, chases we might start to recognize common conflicts all over the world as... common.

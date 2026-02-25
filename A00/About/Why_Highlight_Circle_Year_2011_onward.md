@@ -15,6 +15,7 @@ REMEDIAL_LEARNING_TRUMP_PUTIN_INFORMATION_WARFARE_YEAR_2011_ONWARD
    * NEW_OPERA_NAME #FarSubtler #FarSubtlerThan #UnderstandNotOnly   
        * Social post { https://autistics.life/@RoundSparrow/116126665528670466 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfmnstp7ls22 }   
 
+5. 4G mobile networks were introduced in the USA with Verizon launching the first large-scale 4G LTE network on December 5, 2010. The first 4G devices were USB modems (data cards) for laptops. Offering speeds up to 10 times faster than 3G. March 17, 2011 first 4G phone for sale in USA. https://broadbandbreakfast.com/verizon-launches-first-4g-phone-wins-race-with-att/ "By December 2011, only a year after launch, 200 million Americans were covered with 4G LTE, in 190 markets" https://en.wikipedia.org/wiki/Verizon_(wireless_service)
 
 &nbsp;
 
