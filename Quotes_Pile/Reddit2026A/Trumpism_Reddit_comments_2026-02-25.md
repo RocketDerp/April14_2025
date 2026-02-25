@@ -126,3 +126,11 @@ People treating social media like it is anti-reality, a video screen game. ANTI_
 https://old.reddit.com/r/MurderedByAOC/comments/1rei80f/npc_with_410_energy/o7cq7z6/
 
 MASS_DEHUMANIZATION_POPULAR   
+
+https://old.reddit.com/r/MurderedByAOC/comments/1rei80f/npc_with_410_energy/o7dex0r/
+
+MEDIA_CULTS_ADDICTIVE_FICTION Fiction addicts find it so great that politicians lead with fiction content, fiction video games, etc. Just like Donald Trump and Putin lead with fiction. AVOIDING Dr. Bandy X Lee's nonfiction again and again, because the media cult is to fiction. And there are patterns of avoiding highly-relevant and critical topics about mental health dangers. AVOIDED AGAIN AND AGAIN BY AOC, Bluesky fandom of MAGA, Reddit fandom of MAGA: https://en.wikipedia.org/wiki/The_Dangerous_Case_of_Donald_Trump - as the addiction to White House Mockery is so deep people will not stand up and have a Internet uprising. SOCIAL_MEDIA_DID_NOT_HAVE_UPRISING_SUSTAINED_FOCUSED
+
+The cult of ignorance is cheering on more video games being the topic.
+
+
