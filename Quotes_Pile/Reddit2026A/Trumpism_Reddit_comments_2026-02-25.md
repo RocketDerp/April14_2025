@@ -96,3 +96,7 @@ The addiction to fiction storytelling is unstoppable in USA since Q2 2015. What 
 OBSERVE_MEDIA_AVOIDANCE_OF_RELEVANT_NONFICTION These Reddit users share MAGA_VALUES in avoiding nonfiction relevant serious books on paper. Cult deprogramming books avoided. Dr. Bandy X Lee's nonfiction books about mental health avoided. Neil Postman's books about amusement and chuckles over bad situations being a crisis avoided. These Reddit users I am linking are eating out of the hands of the billionaires, conditioned predictable reactionary mindsets.
 
 * "How delighted would be all the kings, czars and führers of the past (and commissars of the present) to know that **censorship is not a necessity when all political discourse takes the form of a jest**.” ― Neil Postman, Amusing Ourselves to Death: [Public Discourse in the Age of Show Business. Year 1985. Nonfiction. Page 141.](https://books.google.com/books?id=oup6iagfox8C&pg=PA141&dq=%22know+that+censorship+is+not+a+necessity+when+all+political+discourse+takes+the+form+of+a+jest%22&hl=en&newbks=1&newbks_redir=1&sa=X&ved=2ahUKEwiCwYKLhvWSAxWEFDQIHbsCDhsQ6AF6BAgKEAM)
+
+https://old.reddit.com/r/therewasanattempt/comments/1ref213/to_live_in_maga_america/o7c44do/
+
+6 hour Reddit account. HYPER_BANALISATION /r/HyperBanalisation - showing zero critical thinking and instead showing mockery thinking. Anti-free thinking, showing Musk programmed 140 character Tweet-thinking hyper banal.  FREE_MASONS_FREE_THINKING_SELF_AWARENESS
