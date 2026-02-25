@@ -149,7 +149,7 @@ https://old.reddit.com/r/funny/comments/1regpq8/class_participation/o7cefpc/
 
 10 month Reddit account. Top-voted most popular. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
 
-Social post { https://autistics.life/@RoundSparrow/116133639463474311 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfpqdtdrc227 }
+Social post { https://autistics.life/@RoundSparrow/116133639463474311 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfpqdtdrc227 https://midwest.social/post/43930294 }
 
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1rejddp/as_if_there_was_ever_any_doubt/o7d0pp2/
 
