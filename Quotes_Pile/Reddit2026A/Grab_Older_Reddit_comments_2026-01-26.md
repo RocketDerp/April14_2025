@@ -599,3 +599,10 @@ OPERA_A media tracks in the Reddit comments.
 https://old.reddit.com/r/Cultreddit/comments/pes7ld/us_hate_crimes_in_2020_reached_their_highest/hazdsrs/
 
 INTERNET_RESEARCH_AGENCY my public media education self-awareness teaching on Reddit platform.
+
+https://old.reddit.com/r/Cultreddit/comments/pes7ld/us_hate_crimes_in_2020_reached_their_highest/hazdx3h/
+
+https://old.reddit.com/r/Cultreddit/comments/pes7ld/us_hate_crimes_in_2020_reached_their_highest/hazdz6f/
+
+https://old.reddit.com/r/Cultreddit/comments/pes7ld/us_hate_crimes_in_2020_reached_their_highest/hazex6y/
+
