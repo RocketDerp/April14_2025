@@ -920,3 +920,114 @@ https://old.reddit.com/r/politics/comments/1rdh9r0/insiders_admit_trump_may_have
 
 TRUMP_FANDOM on Reddit giving prayers to God that Trump is maximum nonsense and chaos for thrilling exciting entertainment and mockery. The bewildering Tony Clifton performance is what has attracted the fandom to Trump all along since June 16, 2015. More than a decade of people prizing Trump messages and videos as a source of amusement and comedy. The best Tony Clifton character performer in history. Gullible audience thinks that what we need is FICTION_HARDER - that we need NONSENSE_HARDER cries for more and more Trump family content to comment about. Cult of ignorance. Celebrating the ignorance source and ignorance leadership Trump provides.
 
+https://old.reddit.com/r/nextfuckinglevel/comments/1rdhjql/ricky_gervaiss_golden_globe_speech_which_has_aged/o75cmrt/
+
+AMUSEMENT_COMEDY_WASHING_TRUMP_AS_FUNNY_MEDIA_SANEWASHING Trump is in power because joke-washing and comedy-washing Trump is so incredibly popular. Popularity itself is toxic.
+
+https://old.reddit.com/r/Music/comments/1rdr3lg/melania_producer_reveals_guns_n_roses_grace_jones/o777mvq/
+
+"EVERYTHING IS MEDIA ECOLOGY", SEE_ALSO https://GitHub.com/RocketDerp/April14_2025/blob/main/Media_Ecology/Everything_is_ME.md
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rdua2q/another_lucky_trumpawish_kid_has_his_dream_come/o77wn1s/
+
+SYMBOLISM_GUMBO - and as if Trump is the only person in the world to figure out that having your photograph taken next to a sexy car or a sexy woman makes you popular. That tall buildings with your name on them don't get the world swooning. Putin and Trump, Saudi Arabia owners of Mecca, it is a game that fandoms never tire of it seems. Or we would all turn to comparative mythology. Trump tower buildings, golf course meeting places.
+
+* "The Power of Myth" filmed by George Lucas at the height of his popularity and cultural influence in 1985, 1986, 1987 to educate the Star Wars fandom. Nonfiction book published in year 1988. "CAMPBELL: It takes me back to a time when these spiritual principles informed the society. You can tell what’s informing a society by what the tallest building is. When you approach a medieval town, the cathedral is the tallest thing in the place. When you approach an eighteenth-century town, it is the political palace that’s the tallest thing in the place. And when you approach a modern city, the tallest places are the office buildings, the centers of economic life. **If you go to Salt Lake City, you see the whole thing illustrated right in front of your face. First the temple was built, right in the center of the city. This is the proper organization because the temple is the spiritual center from which everything flows in all directions. Then the political building, the Capitol, was built beside it, and it’s taller than the temple. And now the tallest thing is the office building that takes care of the affairs** of both the temple and the political building. That’s the history of Western civilization. From the Gothic through the princely periods of the sixteenth, seventeenth, eighteenth centuries, to this economic world that we’re in now."
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rdua2q/another_lucky_trumpawish_kid_has_his_dream_come/o77yttj/
+
+STAND_UP_FOR_THE_BIG_GUY Imagine a population of educated intelligent people who spend all their free time commenting about Donald Trump with low-effort messages. People always avoiding using the same spare time and free time to promote and quote nonfiction relevant books. Such as Dr. Bandy X Lee's nonfiction book from October 3, 2017 about the DANGER of Donald Trump and his mental health. Instead, commenting about every photograph of Donald Trump in the White House is how so many people in USA population behaves. Year after year after year, attraction to Trump images.
+
+https://old.reddit.com/r/law/comments/1rdtiol/kentucky_representative_thomas_massie_r_explodes/o77orsh/
+
+https://old.reddit.com/r/law/comments/1rdtiol/kentucky_representative_thomas_massie_r_explodes/o77r8u4/
+
+9 month Reddit account. ELECTION_DAY_FIXATED_BRAIN_ROT_EVERY_DAY_FOX_NEWS_ETC - why are people not using SOCIAL MEDIA RIGHT NOW TODAY to protest and organize FAQ, Wiki, nonfiction book reading lists? why is there no organized Reddit blackout? Why Bluesky and Reddit not in the front page of other media for having a sustained protest to impeach Trump and cult deprogram MAGA? Why is it that people are avoiding facing the anti-nonfiction crisis in USA? Why are people engaging the brain rot content every hour of every day and not seeing that poor thinking is at the heart of Donald Trump popularity? Why isn't Dr. Bandy X Lee's 27 assembled public educators in her October 3, 2017 being quoted and repeated constantly on social media?
+
+https://old.reddit.com/r/law/comments/1rdtiol/kentucky_representative_thomas_massie_r_explodes/o77s1rm/
+
+ADULT_EDUCATION_CRISIS_USA_ADULT_LEARNING_EMERGENCY It's incredibly sad how the people in /r/Law can't seem to see the ADULT education crisis in America. Pan Bondi is 60 years old, yet people on Reddit can not recognize that she is common for the poorly educated adults. People who are avoidant of continuing education via serious relevant nonfiction books. People who read extremely low-information sources such as Twitter-length commenting messages (one very media platform, including Reddit), memes, and overall vote every day on social media to favor low-information unimportant learning. https://en.wikipedia.org/wiki/Low_information_voter
+
+https://old.reddit.com/r/law/comments/1rdv94c/needs_to_die_man_vowed_to_take_out_trump_to_save/o788dps/
+
+The top-upvoted most popular comment. "I really tired of dumb" REALLY_TIRED_OF_DUMB_IGNORANCE_POPULARITY_IN_ADULTS_USA BRAIN_ROT_SOCIETY_47
+
+I am really tired of witnessing people who make Twitter-style 140 character Tweet-length reaction comments to everything centered around the word / media magnet "Trump" and White House and MAGA content attraction. Over and over, people who do not recognize the brain rot crisis of We The People adults who are fixated on a television celebrity as some very sick form of entertainment and amusement. The avoidance of mental health nonfiction book by Dr. Bandy X Lee with 27 contributors is sickening to observe hour after hour year after year since October 3, 2017 publication. 
+
+https://old.reddit.com/r/law/comments/1rdv94c/needs_to_die_man_vowed_to_take_out_trump_to_save/o78fuyb/
+
+MEDIA_ECOLOGY_OBSERVATION and a Twitter-length simple-think **REACTION TO REPUBLICANS**, reaction commenting on Reddit every minute of every hour of every day over and over and over on profitable media platforms. People are REACTING to terrible and bad ideas and not offering serious nonfiction books with far better ideas than the Republicans are sharing on the Internet in February 2026.
+
+Reddit and Bluesky: REPUBLICANS_LEAD_WITH_IGNORANCE_IDEAS_AND_FOLLOWERS_REPLY_WITH_IGNORANCE - there is a resistant Reddit community avoidance of nonfiction serious books: Neil Postman on Internet high speed media. Dr. Bandy X Lee on Donald Trump's mental health. Jen Senko's nonfiction film and book on brainwashing topic via Republican-favored media systems. There is a fixation on low-information upvoting on Reddit to Tweet-thinking comments instead of turning to on-paper serious nonfiction relevant books! Republicans lead with ignorance and Reddit community follows the ignorance.
+
+https://old.reddit.com/r/law/comments/1rdv94c/needs_to_die_man_vowed_to_take_out_trump_to_save/o782k0s/
+
+4 word Twitter-length Tweet-thinking 140 characters or less mindsets all over Reddit in February 2026 on the most important and serious topics of our time. The brain rot of adults in USA is horrific! People aren't even self-aware of their compulsive Elon Musk Twitter programmed mindsets.
+
+https://old.reddit.com/r/law/comments/1rdv94c/needs_to_die_man_vowed_to_take_out_trump_to_save/o787x7x/
+
+MICROPHONE_DROP "All I have to say" simple-think popular (media) street-gang signs and symbols. Anti-intellectual, messaging cult of ignorance gun worship on Reddit media. American gun-stroking GUN_WORSHIP and complete avoidance of nonfiction relevant books at the public library: https://en.wikipedia.org/wiki/The_Dangerous_Case_of_Donald_Trump - why is nobody on Reddit quoting Dr. Bandy X Lee's book published October 3, 2017? Because Trump is a cult leader and media system after media system has fallen into being a a celebration of anti-intellectualism cult venue. Adult education is horrible in USA society 2026.
+
+https://old.reddit.com/r/circled/comments/1rdrogr/rep_chip_roy_maybe_its_time_to_dump_all_435_in/o77agis/
+
+top-upvoted most Popular Reddit comment message. **3 words**. Not even the 140 character Tweet-thinking limit. REPUBLICANS_LEAD_WITH_IGNORANCE_IDEAS_AND_FOLLOWERS_REPLY_WITH_IGNORANCE Republicans lead with ignorant messaging and Reddit fandom is hanging on every word for tiny-think reaction commenting. "This is political debate in a democracy. No it’s not. It’s the simulation of politics" - Rick Roderick. The CRISIS is the THINKING patterns and mindsets in the ENTIRE USA POPULATION that thinks this pattern of shit-commenting shit-posting shit-messaging isn't the very crisis of Trumpism MAGA values since year 2014.
+
+* "Charles Eugene "Chip" Roy is an American attorney and politician serving as the U.S. representative for Texas's 21st congressional district. **A member of the Republican** Party" 
+
+Chip Roy is **from Texas**, let's quote **Texan Rick Roderick** on this Reddit media cult of tiny-think messaging ignorance:
+
+* "I mean, these are papers that you could legitimately expect people to write if they still read or wrote. Not many people still do either – read or write, much – but in any case; reduction of complexity. Let’s look at political parties for a moment. The Republicans with their great traditions have come up with a slogan of incredible sophistication: “No more tax and spend”. **Now any you who can quack that one out could be a Republican. And I am using that in the Orwellian sense of “quack”; you don’t need to engage higher brain functions. All you have to do is say** “Don’t take my money, and don’t spend it… well, except on me and my friends, but don’t tax and spend”. Now it’s not that the Democrats are doing any better, I don’t guess that’s news. I mean, Clinton is now less popular than Castro. If Castro ran against Clinton, Clinton would lose by a few points. I mean, he wouldn’t lose big, but he would lose, you know, by a few points. I mean, especially in a three person race with Clinton, Castro, Perot and Gaddafi. I mean, I don’t know who would win. In fact, given this postmodern world any one of the four could emerge with the biggest one fourth depending on how they ran their campaign. Probably it would depend on who could hire David Gergen. I mean, if Fidel got to Gergen first, he might win the damn thing, we don’t know. But the Democrat’s response to this “tax and spend” is “No we don’t, nah nah na-nah nah: invest”. **This is political debate in a democracy. No it’s not. It’s the simulation of politics**." - Duke University https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
+
+https://old.reddit.com/r/Economics/comments/1rdvsn5/trump_pulled_the_plug_on_bidens_funds_for/o7887ov/
+
+MEDIA_ECOLOGY_OBSERVATION TV, radio, Reddit media, Twitter media, etc. Low-information upvoters, day in day out, upvoting Joe Rogan and low-information Reddit comments. https://en.wikipedia.org/wiki/Low_information_voter You see it all over Reddit every minute of every hour of every day. People who seek out Trump content, "Trump" in the title of this posting, to feed their mind the lowest-information commenting to upvote.
+
+https://old.reddit.com/r/technology/comments/1rdvlsb/pentagon_sets_friday_deadline_for_anthropic_to/o788tt3/
+
+CONSERVING_WHAT one thing I note about American "conservative" leadership, there never is any concern about conserving technology. Conservative Neil Postman of NYC ignored again and again. The Amish I grew up with and worked next to in Grabill, Indiana actually understood "conservative".  Technology worship, weapon systems worship, GUN_WORSHIP systems of thinking is cult behavior in USA.
+
+https://old.reddit.com/r/pics/comments/1re0d4y/black_people_arent_apes/o796wfa/
+
+It is a Tweet-thinking 140 characters or less mindset reactionary nation. Cults of images, Donald Trump photographs. This is not a free-thinking nation anymore, Surkov won since year 2013. FREE_MASONS_FREE_THINKING_SELF_AWARENESS
+
+https://old.reddit.com/r/AdviceAnimals/comments/1rdphge/the_facts_speak_for_themselves/o76y0b5/
+
+Reddit front-page posting. Title: "The facts speak for themselves" and zero "facts" are shared. OBSERVE_SOCIAL_MEDIA_AVOIDING_NONFICTION Reddit is a cult of ignorance. Commenting addictions. If Trump is dangerous, why is it that Bluesky and Reddit end-users are consistently avoiding Dr. Bandy X Lee's leadership? Why is Dr. Bandy X Lee not being quoted constantly over and over in Reddit comments. ANSWER: because nonfiction serious books are avoided. The cult is of memes and images.
+
+https://old.reddit.com/r/International/comments/1rdv7qw/looks_like_the_floodgates_are_breached/o781f11/
+
+2-day Reddit account. The submitter of the posting AND the most-popular upvoted comment. Generic clickbait title, right to the front page of /r/All on Reddit. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT the message declares that some magical gates have been reached and somehow there is magical winning against Trump. EPSTEIN_FANDOM desires and promotes information, not removal of Trump, not cult deprogramming. Just cravings for dirty old men sex detail information.
+
+"How is EVERY reporter not asking!" - Reddit media comment. February 24, 2026.
+
+HOW IS EVERY Reddit comment user avoiding Dr. Bandy X Lee's nonfiction book from October 3, 2017! Is it because Dr. Lee is a woman leader? Dr. Lee assembled 27 people to educate the general public on the mental health and DANGER of Donald Trump - HOW IS EVERY REDDIT COMMENT CREATOR avoiding quoting and calling for everyone to turn to the same pages in Dr. Lee's book? Why are nonfiction books on paper so rare on Reddit commenting since year 2015? HOW IS IT THAT EVERY REDDIT USERS SEEM SO FASCINATED AND ATTRACTED TO DONALD TRUMP PHOTOGRAPHS AND WORDS THAT THEY DO NOT QUOTE DOCTOR LEE AND CALL FOR TRUMP REMOVAL?
+
+* “The human brain can protect us from seeing and feeling what it believes may be too uncomfortable for us to tolerate. It can lead us to deny, defend, minimize, or rationalize away something that doesn’t fit our worldview.” ― Dr. Bandy X Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. Published **October 3, 2017**. Page 273. Chapter "TRUMP'S DADDY ISSUES"](https://books.google.com/books?id=g0c4DwAAQBAJ&pg=PA273&dq=%E2%80%9CThe+human+brain+can+protect+us+from+seeing+and+feeling+what+it+believes+may+be+too+uncomfortable%22&hl=en&newbks=1&newbks_redir=1&sa=X)
+
+https://old.reddit.com/r/therewasanattempt/comments/1rdxng6/to_be_olympic_gold_winners_with_enough_integrity/o78jqa7/
+
+But why are Reddit commenting community, We The People, avoiding the big brain of Dr. Bandy X Lee and quoting her nonfiction book from October 3, 2017... And these men in the Oval Office is USA values: STAND_UP_FOR_FAMOUS_CELEBRITY_AND_SOCIALLY_POWERFUL_BIG_GUYS Reddit fandom upvoted this Trump and celebrity sports image right to the top! Where critical life-saving public education from Dr. Bandy X Lee, a woman, is not upvoted to the top of /r/All Reddit every day to save lives. https://en.wikipedia.org/wiki/The_Dangerous_Case_of_Donald_Trump
+
+https://old.reddit.com/r/IThinkYouShouldLeave/comments/1re0fss/all_you_had_to_do_was_do_your_stupid_speech_and/o796egv/
+
+Reddit community has a old man diaper fetish fandom. https://en.wikipedia.org/wiki/Diaper_fetishism Understanding Trumpism USA is to understand media cult users of Twitter, Reddit, Facebook, etc. Apple iPhone device, Apple iPad, Android device users who like to finger-touch images of Donald Trump day in and day out. 3,906 days of non-stop Reddit consumption of Donald Trump images and content. People who flock to shit-postings, shit-commenting above all else and have wrecked the nation by not recognizing their own attraction to Donald Trump shit Truth Social posting leadership. A cult that doesn't want the Reality TV show to ever stop, Trump is an LOLCOW to milk constantly for memes and images. WANT_TO_STOP_THE_SHIT_SHOW_SHIT_COMMENTING_ADDICTIONS_MEDIA
+
+https://old.reddit.com/r/mildlyinfuriating/comments/1re09tt/my_little_free_library_was_destroyed_again_then/o798nyb/
+
+MEDIA_ECOLOGY_OBSERVATION 
+
+https://old.reddit.com/r/politics/comments/1re2hy2/discussion_thread_responses_to_the_2026_state_of/o79mdme/
+
+BEYOND_DENIAL beyond the common denial that Trump and Putin are "weak", and not laboring very hard to harm the USA.
+
+https://old.reddit.com/r/politics/comments/1re2hy2/discussion_thread_responses_to_the_2026_state_of/o79lp5i/
+
+https://old.reddit.com/r/politics/comments/1re33py/trump_uses_state_of_the_union_to_demonize/o79qkgi/
+
+"Crazy". Donald Trump gets quoted on mind / brain issues all the time. I.Q. "crazy" tonight, etc. Reddit community quotes Donald Trump. NOT_GOOD_ENOUGH what Reddit community always seems to avoid: quoting Dr. Bandy X Lee's 27 contributors to her October 3, 2017 book about mental health. Reddit commenting community seems to not find a woman leader good enough to follow.
+
+* "As people with NPD become increasingly psychotic, they’re determined to convince others that they’re the “crazy” ones who can’t see reality for what it is. Gaslighting reassures pathological narcissists that their own grip on reality remains firm because they can’t bear to acknowledge their sanity is slipping away. We might ask if we’re seeing this now, as Trump and his closest advisers appear on TV claiming he didn’t make statements that journalists often simply play back — or if it’s a tweet, flash an image — to prove that he did indeed say what he said." ― Bandy X Lee, The Dangerous Case of Donald Trump: 27 Psychiatrists and Mental Health Experts Assess a President. October 3, 2017. Page 58.
+
+https://old.reddit.com/r/PoliticalHumor/comments/1re1mln/if_trump_could_read_he_would_be_so_mad/o79jpe2/
+
+Front page posting on Reddit. DOWNPLAYING_DANGER_MINIMIZING_THREATS - acting like Donald Trump isn't a clear and present danger. Trump clearly can read. The problem is that the entire society, not just MAGA, is **avoiding relevant serious nonfiction book reading**. OBSERVE_SOCIAL_MEDIA_AVOIDING_NONFICTION - for example: "Bandy X Lee, The Dangerous Case of Donald Trump: 27 Psychiatrists and Mental Health Experts Assess a President. October 3, 2017." Instead, people are reading Truth Social screen shots, Twitter screen shots, low-information upvoting as a source of entertainment and comedy about Trump. Trump leads, Reddit app users follow. REPUBLICANS_LEAD_WITH_IGNORANCE_IDEAS_AND_FOLLOWERS_REPLY_WITH_IGNORANCE 

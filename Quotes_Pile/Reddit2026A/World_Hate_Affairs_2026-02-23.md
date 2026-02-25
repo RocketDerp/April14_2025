@@ -121,3 +121,46 @@ https://old.reddit.com/r/antiwork/comments/1rcpn2h/epstein_victim_names_the_musk
 
 29 day Reddit account. The billionaires understand Marshall McLuhan and Neil Postman media power that people on Reddit do not understand. Or they are all following Putin's lead and are not self-aware they too are ensnared in self-harm media compulsive behaviors. People just can't wrap their head on the runaway middle ages church science fiction fandom in Europe and the runaway Islamic science fiction clergy power.
 
+https://old.reddit.com/r/mildlyinfuriating/comments/1rdvfoa/someone_ripped_the_door_off_my_local_little_free/o787q5m/
+
+Living under USA society that finds symbolism inversion hilarious and funny and entertaining, as defined by Neil Postman as "amusing" in his 1985 book, this is an essential revelation to understand about the anti-book cultists of electric media app addicts. "I think it would be hilarious"
+
+https://old.reddit.com/r/mildlyinfuriating/comments/1rdvfoa/someone_ripped_the_door_off_my_local_little_free/o788d6b/
+
+Not just Christian. Malala's reporting from Swat Valley, Pakistan shows similar patterns.
+
+* "The extremists are afraid of books and pens. The power of education frightens them. They are afraid of women. The power of the voice of women frightens them." - July 12, 2013 https://malala.org/news-and-voices/malala-un-speech
+
+https://old.reddit.com/r/mildlyinfuriating/comments/1rdvfoa/someone_ripped_the_door_off_my_local_little_free/o78740q/
+
+2 month Reddit account. CONCERNS_OF_FINNEGANS 
+
+https://old.reddit.com/r/mildlyinfuriating/comments/1rdvfoa/someone_ripped_the_door_off_my_local_little_free/o785z71/
+
+14 day Reddit account. CONCERNS_OF_FINNEGANS ambiguity of interpretations of The Bible stories ;) Jean Erdman's interview about "Coach with the Six Inside" and multiple meanings of each sentence in Finnegans Wake. "has many many layers of meaning"; "there there are at least 20 for every sentence" https://youtu.be/WoiJVkdDbOo?t=127
+
+https://old.reddit.com/r/mildlyinfuriating/comments/1rdvfoa/someone_ripped_the_door_off_my_local_little_free/o784kc6/
+
+LEVANT_MONOMYTH_CRISIS in people not learning and understanding Bible verse "1 John 4:20" and lack of studying Irish author James Joyce.
+
+https://old.reddit.com/r/okbuddycinephile/comments/1rdq3jn/favorite_actor_who_is_your_philosophical_superior/o772x0n/
+
+<img width="1320" height="1050" alt="image" src="https://github.com/user-attachments/assets/5cbad5bb-2019-40ab-91ae-89e6ad85c4fe" />
+
+METAPHORS_OF_JOHN_ONE_ONE - conjuring up a metaphor. "Meet The Man", https://Old.Reddit.com/r/Washington/comments/46fh2c/im_so_glad_i_met_the_man_rip_gene_porter_dixies/ I took my dad there September 2001 when he came to visit my wife Tristan and I in Renton, Washington.  The ignorance of metaphors that is so common in USA media. CONCERNS_OF_FINNEGANS people really need to study comparative mythology and Page 581 of James Joyce's Finnegans Wake (published on Star Wars Day in year 1939).  https://www.FinnegansWeb.com/wiki/index.php/Page_581
+
+* “Half the people in the world think that the metaphors of their religious traditions, for example, are facts. And the other half contends that they are not facts at all. As a result we have people who consider themselves believers because they accept metaphors as facts, and we have others who classify themselves as atheists because they think religious metaphors are lies.” ― Joseph Campbell, Thou Art That: Transforming Religious Metaphor
+
+NEW_OPERA_NAME #MeetTheMan   
+Social post { https://autistics.life/@RoundSparrow/116128356383019310 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfnfa3y7j22b }    
+
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1rdrlz9/the_title_was_no_beer_left_unturned/o77difr/
+
+Olympics February 2026, World Wide **Media** Coverage, World Wide Hate-Watching Affairs coverage. SOCIAL_CULT_HATE_WATCHING_FANDOM
+
+Social post { https://autistics.life/@RoundSparrow/116129070209526921 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfnpeu5gpc2q }
+
+https://old.reddit.com/r/worldnews/comments/1rdyc7z/gay_and_bisexual_sydney_teenagers_lured_and/o78tvm8/
+
+MONOMYTH_VS_MONOMYTH competitive science fiction storytelling World Hate Affairs
