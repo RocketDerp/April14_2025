@@ -953,3 +953,7 @@ https://old.reddit.com/r/law/comments/1rdv94c/needs_to_die_man_vowed_to_take_out
 The top-upvoted most popular comment. "I really tired of dumb" REALLY_TIRED_OF_DUMB_IGNORANCE_POPULARITY_IN_ADULTS_USA   
 
 I am really tired of witnessing people who make Twitter-style 140 character Tweet-length reaction comments to everything centered around the word / media magnet "Trump" and White House and MAGA content attraction. Over and over, people who do not recognize the brain rot crisis of We The People adults who are fixated on a television celebrity as some very sick form of entertainment and amusement. The avoidance of mental health nonfiction book by Dr. Bandy X Lee with 27 contributors is sickening to observe hour after hour year after year since October 3, 2017 publication. 
+
+https://old.reddit.com/r/law/comments/1rdv94c/needs_to_die_man_vowed_to_take_out_trump_to_save/o78fuyb/
+
+MEDIA_ECOLOGY_OBSERVATION and a Twitter-length simple-think **REACTION TO REPUBLICANS**, reaction commenting on Reddit every minute of every hour of every day over and over and over on profitable media platforms. People are REACTING to terrible and bad ideas and not offering serious nonfiction books with far better ideas than the Republicans are sharing on the Internet in February 2026.
