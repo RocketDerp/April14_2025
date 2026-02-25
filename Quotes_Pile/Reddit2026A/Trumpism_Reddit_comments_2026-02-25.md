@@ -47,4 +47,4 @@ https://old.reddit.com/r/International/comments/1rebnyx/didnt_mention_epstein_on
 
 https://old.reddit.com/r/International/comments/1rebnyx/didnt_mention_epstein_once_americans_react_to/o7bc99o/
 
-3rd most popular comment is the same person who created the 2nd most popular comment and the posting itself. 2 day Reddit account. And the 1st most is a 5 day Reddit account. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+3rd most popular comment is the same person who created the 2nd most popular comment and the posting itself. 2 day Reddit account. And the 1st most is a 5 day Reddit account. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT AND the top-most upvoted reply comment to this comment is a very suspicious account https://old.reddit.com/user/Chance-Upstairs6121 that has made only 8 comments total in 5 years on Reddit. And 4 of those 8 comments are all in past 24 hours.
