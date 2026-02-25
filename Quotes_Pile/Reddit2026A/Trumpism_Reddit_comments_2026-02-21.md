@@ -982,4 +982,7 @@ https://old.reddit.com/r/Economics/comments/1rdvsn5/trump_pulled_the_plug_on_bid
 
 MEDIA_ECOLOGY_OBSERVATION TV, radio, Reddit media, Twitter media, etc. Low-information upvoters, day in day out, upvoting Joe Rogan and low-information Reddit comments. https://en.wikipedia.org/wiki/Low_information_voter You see it all over Reddit every minute of every hour of every day. People who seek out Trump content, "Trump" in the title of this posting, to feed their mind the lowest-information commenting to upvote.
 
+https://old.reddit.com/r/technology/comments/1rdvlsb/pentagon_sets_friday_deadline_for_anthropic_to/o788tt3/
+
+CONSERVING_WHAT one thing I note about American "conservative" leadership, there never is any concern about conserving technology. Conservative Neil Postman of NYC ignored again and again. The Amish I grew up with and worked next to in Grabill, Indiana actually understood "conservative".  Technology worship, weapon systems worship, GUN_WORSHIP systems of thinking is cult behavior in USA.
 
