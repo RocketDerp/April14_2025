@@ -51,3 +51,16 @@ There is no thou shalt anymore. There is nothing you have to believe, nothing yo
 And if you want to play the game of the Middle Ages, go ahead, but don’t tell anybody else that that’s the only game there is. Or if you want to play the game of the [Chinese Mandate of Heaven](https://en.wikipedia.org/wiki/Mandate_of_Heaven), go ahead — those are all lovely games. And the scientific game, after all, may not be any truer, but it is vaster, and it takes in a bigger range of facts and experience.
 
 So it is this terrific moment that we face; it is a moment that has been maturing so to say since the days of the Greeks. And since the days of the Second World War, it has gone through all the planet.
+
+&nbsp;
+
+&nbsp;
+
+# Brain cells metaphor
+
+“There are something like 18 billion cells in the brain alone. There are no two brains alike; there are no two hands alike; there are no two human beings alike. You can take your instructions and your guidance from others, but you must find your own path.” - Pathways to Bliss: Mythology and Personal Transformation (2004), which was edited from his later lectures and manuscripts. Joseph Campbell died Halloween year 1987.
+
+I am not certain what year Joseph Campbell wrote that quote, but 1970's or 1980's is most likely. His point is even more dramatic that the number is nearly 10 times larger.
+
+* "The human brain contains approximately 86 billion neurons (nerve cells). In addition to these, there are roughly an equal number of non-neuronal cells, such as glial cells, bringing the **total brain cell count to over 170 billion**. These neurons form around 100 trillion synaptic connections." - Google Search summary 2026-02-25 morning USA
+
