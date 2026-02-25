@@ -204,3 +204,7 @@ https://old.reddit.com/r/worldnews/comments/1re86by/isis_sympathisers_lured_gay_
 https://old.reddit.com/r/worldnews/comments/1re86by/isis_sympathisers_lured_gay_and_bisexual/o7b5uua/
 
 HIGH_SPEED_REACTIONARY_MINDSETS tiny-short reaction commenting.
+
+https://old.reddit.com/r/worldnews/comments/1re86by/isis_sympathisers_lured_gay_and_bisexual/o7b6ozt/
+
+WIDE_RADICAL_DOUBT_ABOUT_REAL
