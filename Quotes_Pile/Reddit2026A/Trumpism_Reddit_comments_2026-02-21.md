@@ -937,3 +937,9 @@ SYMBOLISM_GUMBO - and as if Trump is the only person in the world to figure out 
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1rdua2q/another_lucky_trumpawish_kid_has_his_dream_come/o77yttj/
 
 STAND_UP_FOR_THE_BIG_GUY Imagine a population of educated intelligent people who spend all their free time commenting about Donald Trump with low-effort messages. People always avoiding using the same spare time and free time to promote and quote nonfiction relevant books. Such as Dr. Bandy X Lee's nonfiction book from October 3, 2017 about the DANGER of Donald Trump and his mental health. Instead, commenting about every photograph of Donald Trump in the White House is how so many people in USA population behaves. Year after year after year, attraction to Trump images.
+
+https://old.reddit.com/r/law/comments/1rdtiol/kentucky_representative_thomas_massie_r_explodes/o77orsh/
+
+https://old.reddit.com/r/law/comments/1rdtiol/kentucky_representative_thomas_massie_r_explodes/o77r8u4/
+
+9 month Reddit account. ELECTION_DAY_FIXATED_BRAIN_ROT_EVERY_DAY_FOX_NEWS_ETC - why are people not using SOCIAL MEDIA RIGHT NOW TODAY to protest and organize FAQ, Wiki, nonfiction book reading lists? why is there no organized Reddit blackout? Why Bluesky and Reddit not in the front page of other media for having a sustained protest to impeach Trump and cult deprogram MAGA? Why is it that people are avoiding facing the anti-nonfiction crisis in USA? Why are people engaging the brain rot content every hour of every day and not seeing that poor thinking is at the heart of Donald Trump popularity? Why isn't Dr. Bandy X Lee's 27 assembled public educators in her October 3, 2017 being quoted and repeated constantly on social media?
