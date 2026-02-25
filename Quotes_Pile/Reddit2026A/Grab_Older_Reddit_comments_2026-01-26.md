@@ -495,4 +495,6 @@ https://old.reddit.com/r/Cultreddit/comments/a1pqd/a_community_for_3_minutes/hgx
 
 SOMETHING_THAT_WILL_BE_IGNORED  predictive. The Arab Spring being ignored in November 2009... and I crossed that precipice December 16, 2009 and was in North Africa (Algeria) December 3, 2010.  https://GitHub.com/RocketDerp/April14_2025/tree/main/Art/ScreenPlay/Arab_Spring
 
-OPERA_A For I am John 1:1 Finnegan Wake educated in year 2009. a lowercase "god", not Jesus, not Allah, but Great Seal of the United States of America. 
+OPERA_A For I am John 1:1 Finnegan Wake educated in year 2009. a lowercase "god", not Jesus, not Allah, but Great Seal of the United States of America. https://www.youtube.com/watch?v=U8s_q3IaglQ "Somewhere beyond this... I know. I hope I can find the words to say... Never again, nooo!" 
+6,080,848 views October 25, 2009 - In Q1 2010 I shared this YouTube video across the ocean to Tunisia and Algeria to the women as part of the Arab Spring.
+
