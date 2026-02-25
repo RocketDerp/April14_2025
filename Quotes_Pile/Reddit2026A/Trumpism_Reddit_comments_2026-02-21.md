@@ -989,3 +989,7 @@ CONSERVING_WHAT one thing I note about American "conservative" leadership, there
 https://old.reddit.com/r/pics/comments/1re0d4y/black_people_arent_apes/o796wfa/
 
 It is a Tweet-thinking 140 characters or less mindset reactionary nation. Cults of images, Donald Trump photographs. This is not a free-thinking nation anymore, Surkov won since year 2013. FREE_MASONS_FREE_THINKING_SELF_AWARENESS
+
+https://old.reddit.com/r/AdviceAnimals/comments/1rdphge/the_facts_speak_for_themselves/o76y0b5/
+
+Reddit front-page posting. Title: "The facts speak for themselves" and zero "facts" are shared. OBSERVE_SOCIAL_MEDIA_AVOIDING_NONFICTION Reddit is a cult of ignorance. Commenting addictions. If Trump is dangerous, why is it that Bluesky and Reddit end-users are consistently avoiding Dr. Bandy X Lee's leadership? Why is Dr. Bandy X Lee not being quoted constantly over and over in Reddit comments. ANSWER: because nonfiction serious books are avoided. The cult is of memes and images.
