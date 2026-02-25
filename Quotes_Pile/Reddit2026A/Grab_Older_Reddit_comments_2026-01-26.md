@@ -507,3 +507,8 @@ https://old.reddit.com/r/Cultreddit/comments/szdqzo/identitymotivated_reasoning_
 
 MEDIA_ECOLOGY_OBSERVATION of the /r/CultReddit behaviors. Quoting a nonfiction book on paper about Cambridge Analytica was being targeted for suppression. Oh, to have Reddit's server-side logs of the user accounts that did the downvoting, time of day, IP address, browser strings, other activity on server HTTP logs for time usage patterns.
 
+https://old.reddit.com/r/Cultreddit/comments/szir72/rightwing_reddit_gun_nut_charged_with_murder_for/hy3pwr1/
+
+https://old.reddit.com/r/Cultreddit/comments/szir72/rightwing_reddit_gun_nut_charged_with_murder_for/hy3pqp2/
+
+MEDIA_ECOLOGY_OBSERVATION why does Reddit CONCEAL all the messages, ban a community, if the moderator is absent? What if a person dies (dead) who had been posting for 16 years on Reddit... they just REMOVE it all, 16 years of public writings, from Google Search and citation links because the human is no longer able to moderate? TRAGEDY_OF_THE_COMMONS that years of public links and information are black-holed for no good reason. It would be SMARTER to FREEZE the subreddit, not allow new comments or submissions, but Reddit still publish the previously allowed public content!
