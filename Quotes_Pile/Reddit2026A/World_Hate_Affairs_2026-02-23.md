@@ -221,3 +221,6 @@ https://old.reddit.com/r/Damnthatsinteresting/comments/1re6xv4/in_2021_the_austr
 
 World Fucking Affairs. Understanding the power of Putin, Trump, banal leaders lies in studying these behaviors with the sign-stealing and the attitudes of word-image addictions on Reddit commenting. ATTRACTION_TO_SHIT_CONTENT_ENSHIT_BY_DESIRE things don't just TRAGEDY_OF_THE_COMMONS themselves, it takes a inner desire to take the commons sign in the media signage symbolism mindset tragedy.
 
+https://old.reddit.com/r/technology/comments/1ree20k/ais_cant_stop_recommending_nuclear_strikes_in_war/o7btzd9/
+
+UNIFIED_THEORY_FICTION_NONFICTION War Games June 3, 1983 Artificial Intelligence topic film.
