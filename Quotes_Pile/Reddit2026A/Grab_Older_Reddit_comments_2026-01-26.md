@@ -559,3 +559,23 @@ MEDIA_ECOLOGY_OBSERVATION about **the year 2014** tone change / attitude adjustm
 https://old.reddit.com/r/Cultreddit/comments/px8l63/a_normal_day_at_reddit/hxxkbtk/
 
 Adding that quote to the GitHub project! SEE_ALSO https://GitHub.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Specific/Postman_1985_Censorship_Tyrants.md My account was banned and **much of my Reddit content censored**. 
+
+https://old.reddit.com/r/Cultreddit/comments/pwep8w/reddit_cult_behavior_i_think_has_a_lot_to_do_with/
+
+NAME_BRAND_UNIVERSITY_EDUCATION_EXCLUSIVE_ANTI_WIKI_ANTI_PLURIBUS and ANTI_WIKI_ANTI_FAQ
+MEDIA_ECOLOGY_LESSON  
+
+Monday, September 27, 2021   
+The posting:  
+
+Reddit cult behavior I think has a lot to do with the disrespect of 1) FAQ organization, 2) Wikipedia, 3) WikiQuote - common understanding. Instead, it is off-the-cuff degenerating repetition of topics
+
+In the earliest days of social media, Internet, it was obvious that people kept re-inventing the wheel when it came to peer to peer discussion.
+
+Strangers would meet on the Internet, and reinvent the wheel on the base concepts of any given topic.
+
+In the 1990's, FAQ was a common concept, Frequently Asked Questions / Topics / and established answers.
+
+It wasn't that you couldn't question the established answers, it is that you had to not flood the world day after day with scrolling off the pile of the same questions. It was the constant repetition of low-level, easily answered, basic learning that would drive down the community into least-common-denominator.
+
+But profit comes from engagement. And the easiest low-effort engagement is to re-hash and re-invent the same topics as a "fresh topic" every day.
