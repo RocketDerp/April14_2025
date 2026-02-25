@@ -587,3 +587,12 @@ ETERNAL_SEPTEMBER_DROWNED_MEDIA_SELF_AWARENESS
 https://old.reddit.com/r/Cultreddit/comments/psttj8/how_do_you_convert_reddit_screen_video_games/hdrwq4i/
 
 TRUMP_ARG ALTERNATE_REALITY_GAME on Reddit, banned now on Reddit, so I can't open the door to content.
+
+https://old.reddit.com/r/Cultreddit/comments/pihxw2/pure_and_easy_we_all_know_success_when_we_all/hbq1zde/
+
+https://old.reddit.com/r/Cultreddit/comments/pihxw2/pure_and_easy_we_all_know_success_when_we_all/hbqgphk/
+
+https://old.reddit.com/r/Cultreddit/comments/phok49/today_is_september_3_2021_twelve_years_ago_in/hbjvg34/
+
+OPERA_A media tracks in the Reddit comments.
+
