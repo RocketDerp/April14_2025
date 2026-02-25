@@ -1,0 +1,3 @@
+
+“Censorship, after all, is the tribute tyrants pay to the assumption that a public knows the difference between serious discourse and entertainment — and cares. How delighted would be all the kings, czars and führers of the past (and commissars of the present) to know that censorship is not a necessity when all political discourse takes the form of a jest.” ― Neil Postman, Amusing Ourselves to Death: [Public Discourse in the Age of Show Business. Year 1985. Nonfiction. Page 141.](https://books.google.com/books?id=oup6iagfox8C&pg=PA141&dq=%22know+that+censorship+is+not+a+necessity+when+all+political+discourse+takes+the+form+of+a+jest%22&hl=en&newbks=1&newbks_redir=1&sa=X&ved=2ahUKEwiCwYKLhvWSAxWEFDQIHbsCDhsQ6AF6BAgKEAM)
+
