@@ -478,9 +478,12 @@ https://old.reddit.com/r/ZBBS/comments/pqv3fz/rzbbs_lounge/hddvf9c/
 
 Creative Mythology making. SEE_ALSO https://en.wikipedia.org/wiki/Creative_Mythology
 
+
 https://old.reddit.com/r/Cultreddit/comments/a1pqd/a_community_for_3_minutes/hxxf6v4/
 
 November 6, 2009 creation of /r/CultReddit to discuss media cult behaviors. MEDIA_CULTS MEDIA_CULTS_ADDICTIVE_FICTION part of my Arab Spring Internet research ARAB_SPRING_2010 
+
+Social post { https://autistics.life/@RoundSparrow/116133269646028166 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfpkzdo7w22m }
 
 https://old.reddit.com/r/Cultreddit/comments/a1pqd/a_community_for_3_minutes/hhb31z8/
 
