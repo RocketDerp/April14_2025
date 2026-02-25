@@ -26,4 +26,12 @@ https://old.reddit.com/r/politics/comments/1regou2/colbert_on_silent_defiance_of
 
 Why isn't Stephen Colbert repeating and repeating his YouTube video, reminding people again and again? Just last year Trump and Putin are meeting in Alaska and the RECENCY_BIAS is horrific in USA population / We The People. STAR WARS DAY 2019, BEFORE the COVID-19 pandemic, why isn't Stephen Colbert REPEATING_REPEATER REPEAT_TRACK this video? https://old.Reddit.com/r/QAnonRussia/comments/si2yrq/may_4_2019_russian_trolls_are_fueling_the_anti/ 
 
-Headline "Colbert On Silent" - why if MEASELES are STILL SPREADING in February 2026 is Stephen Colbert SILENT? "May 4, 2019: Russian Trolls Are Fueling The Anti Vaxxer Movement. 1,076,636 views. May 4, 2019" https://www.youtube.com/watch?v=Ju7Yt0LMiVk
+Headline "Colbert On Silent" - why if MEASLES are STILL SPREADING in US in February 2026 is Stephen Colbert SILENT? "May 4, 2019: Russian Trolls Are Fueling The Anti Vaxxer Movement. 1,076,636 views. May 4, 2019" https://www.youtube.com/watch?v=Ju7Yt0LMiVk
+
+Children are being harmed and killed, and Russia and Trump are still harming Ukraine children too, why is Stephen Colbert silent? Why isn't he repeating: "Anti-vaxxers aren't just morons. Some are also Russian trolls." 1,082,719 views May 4, 2019 https://www.youtube.com/watch?v=Ju7Yt0LMiVk "this might be the scariest news I have ever heard' - and Stephen Colbert is afraid to repeat it?
+
+* "Measles is back and highly contagious. Learn about the 2025–26 spikes, the danger **for young children**" - https://www.uchealth.org/today/is-measles-deadly-why-it-is-so-dangerous/
+
+Is Stephen Colbert afraid to stand up for Young Children to Trump and Putin? Never forget August 24, 2018. https://www.BBC.com/news/world-us-canada-45294192
+
+
