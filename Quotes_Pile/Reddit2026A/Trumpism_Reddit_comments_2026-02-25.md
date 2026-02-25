@@ -43,4 +43,8 @@ https://old.reddit.com/r/International/comments/1rebnyx/didnt_mention_epstein_on
 
 https://old.reddit.com/r/International/comments/1rebnyx/didnt_mention_epstein_once_americans_react_to/o7bc80b/
 
-2 day Reddit account. The 2nd most popular comment. This 2 day account is also the creator of the front page /r/All posting. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+2 day Reddit account. The 2nd most popular comment. This 2 day account is also the creator of the front page /r/All posting. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT Short 140 character Tweet-think (billionaire Musk mental programming) message that doesn't say anything that couldn't have been in the title of the posting itself (which were both created by same person).
+
+https://old.reddit.com/r/International/comments/1rebnyx/didnt_mention_epstein_once_americans_react_to/o7bc99o/
+
+3rd most popular comment is the same person who created the 2nd most popular comment and the posting itself. 2 day Reddit account. And the 1st most is a 5 day Reddit account. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
