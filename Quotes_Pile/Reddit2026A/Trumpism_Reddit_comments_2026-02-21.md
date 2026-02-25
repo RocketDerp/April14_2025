@@ -1012,3 +1012,6 @@ https://old.reddit.com/r/IThinkYouShouldLeave/comments/1re0fss/all_you_had_to_do
 
 Reddit community has a old man diaper fetish fandom. https://en.wikipedia.org/wiki/Diaper_fetishism Understanding Trumpism USA is to understand media cult users of Twitter, Reddit, Facebook, etc. Apple iPhone device, Apple iPad, Android device users who like to finger-touch images of Donald Trump day in and day out. 3,906 days of non-stop Reddit consumption of Donald Trump images and content. People who flock to shit-postings, shit-commenting above all else and have wrecked the nation by not recognizing their own attraction to Donald Trump shit Truth Social posting leadership. A cult that doesn't want the Reality TV show to ever stop, Trump is an LOLCOW to milk constantly for memes and images. WANT_TO_STOP_THE_SHIT_SHOW_SHIT_COMMENTING_ADDICTIONS_MEDIA
 
+https://old.reddit.com/r/mildlyinfuriating/comments/1re09tt/my_little_free_library_was_destroyed_again_then/o798nyb/
+
+MEDIA_ECOLOGY_OBSERVATION 
