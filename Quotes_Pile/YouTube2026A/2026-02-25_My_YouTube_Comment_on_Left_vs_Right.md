@@ -29,3 +29,20 @@ Certainly, gentlemen, it ought to be the happiness and glory of a representative
 But, his unbiassed opinion, his mature judgment, his enlightened conscience, he ought not to sacrifice to you; to any man, or to any set of men living. These he does not derive from your pleasure; no, nor from the law and the constitution. They are a trust from Providence, for the abuse of which he is deeply answerable. Your representative owes you, not his industry only, but his judgment; and he betrays, instead of serving you, if he sacrifices it to your opinion.
 
 Edmund Burke, Speech to the electors of Bristol (1774)
+
+
+&nbsp;
+
+&nbsp;
+
+# Reply simple-think
+
+Reply saying "idiot", MEDIA_REGURGITATION  
+
+https://www.youtube.com/@lindsay6518  
+
+"Trump is an idiot. Please read a book."
+
+<img width="947" height="822" alt="image" src="https://github.com/user-attachments/assets/c9d72920-a6d4-45a9-9c53-4d80fdd3aa1d" />
+
+I didn't put my effort into my reply, but people downplaying the threat of Trump is so common of a billionaire talking point. Trump is not a danger, don't worry. Anti Dr. Bandy X Lee messaging.
