@@ -986,3 +986,6 @@ https://old.reddit.com/r/technology/comments/1rdvlsb/pentagon_sets_friday_deadli
 
 CONSERVING_WHAT one thing I note about American "conservative" leadership, there never is any concern about conserving technology. Conservative Neil Postman of NYC ignored again and again. The Amish I grew up with and worked next to in Grabill, Indiana actually understood "conservative".  Technology worship, weapon systems worship, GUN_WORSHIP systems of thinking is cult behavior in USA.
 
+https://old.reddit.com/r/pics/comments/1re0d4y/black_people_arent_apes/o796wfa/
+
+It is a Tweet-thinking 140 characters or less mindset reactionary nation. Cults of images, Donald Trump photographs. This is not a free-thinking nation anymore, Surkov won since year 2013. FREE_MASONS_FREE_THINKING_SELF_AWARENESS
