@@ -997,3 +997,9 @@ Reddit front-page posting. Title: "The facts speak for themselves" and zero "fac
 https://old.reddit.com/r/International/comments/1rdv7qw/looks_like_the_floodgates_are_breached/o781f11/
 
 2-day Reddit account. The submitter of the posting AND the most-popular upvoted comment. Generic clickbait title, right to the front page of /r/All on Reddit. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT the message declares that some magical gates have been reached and somehow there is magical winning against Trump. EPSTEIN_FANDOM desires and promotes information, not removal of Trump, not cult deprogramming. Just cravings for dirty old men sex detail information.
+
+"How is EVERY reporter not asking!" - Reddit media comment. February 24, 2026.
+
+HOW IS EVERY Reddit comment user avoiding Dr. Bandy X Lee's nonfiction book from October 3, 2017! Is it because Dr. Lee is a woman leader? Dr. Lee assembled 27 people to educate the general public on the mental health and DANGER of Donald Trump - HOW IS EVERY REDDIT COMMENT CREATOR avoiding quoting and calling for everyone to turn to the same pages in Dr. Lee's book? Why are nonfiction books on paper so rare on Reddit commenting since year 2015? HOW IS IT THAT EVERY REDDIT USERS SEEM SO FASCINATED AND ATTRACTED TO DONALD TRUMP PHOTOGRAPHS AND WORDS THAT THEY DO NOT QUOTE DOCTOR LEE AND CALL FOR TRUMP REMOVAL?
+
+* “The human brain can protect us from seeing and feeling what it believes may be too uncomfortable for us to tolerate. It can lead us to deny, defend, minimize, or rationalize away something that doesn’t fit our worldview.” ― Dr. Bandy X Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. Published **October 3, 2017**. Page 273. Chapter "TRUMP'S DADDY ISSUES"](https://books.google.com/books?id=g0c4DwAAQBAJ&pg=PA273&dq=%E2%80%9CThe+human+brain+can+protect+us+from+seeing+and+feeling+what+it+believes+may+be+too+uncomfortable%22&hl=en&newbks=1&newbks_redir=1&sa=X)
