@@ -145,4 +145,9 @@ https://old.reddit.com/r/circled/comments/1rejf24/you_cant_make_this_shit_up_tru
 
 1 month Reddit account. "this shit is hilarious" People flock to Reddit venue for these images. People compulsively addicted to the humor that Donald Trump delivers by SUBVERTING_EXPECTATIONS SYMBOLISM_INVERSION_MANIPULATION - the /r/CultReddit behavior is to prize comedy at the expense of health care, women's rights, etc. Neil Postman was correct in his 1985 nonfiction book "Amusing Ourselves To Death". No other leader in human history has provided so much hilarious shit for We The People of any nation. Surkov won since March 2013. The Tony Clifton POTUS is an irresistible fiction character for (cult film, cult television, horror films, horror story) fandoms.
 
+https://old.reddit.com/r/funny/comments/1regpq8/class_participation/o7cefpc/
+
+10 month Reddit account. Top-voted most popular. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+
+Social post { https://autistics.life/@RoundSparrow/116133639463474311 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfpqdtdrc227 }
 
