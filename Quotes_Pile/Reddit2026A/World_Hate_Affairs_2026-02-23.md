@@ -223,4 +223,4 @@ World Fucking Affairs. Understanding the power of Putin, Trump, banal leaders li
 
 https://old.reddit.com/r/technology/comments/1ree20k/ais_cant_stop_recommending_nuclear_strikes_in_war/o7btzd9/
 
-UNIFIED_THEORY_FICTION_NONFICTION War Games June 3, 1983 Artificial Intelligence topic film.
+UNIFIED_THEORY_FICTION_NONFICTION WarGames June 3, 1983 Artificial Intelligence topic film.
