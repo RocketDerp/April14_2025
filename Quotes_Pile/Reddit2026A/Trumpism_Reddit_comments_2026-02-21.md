@@ -1019,3 +1019,5 @@ MEDIA_ECOLOGY_OBSERVATION
 https://old.reddit.com/r/politics/comments/1re2hy2/discussion_thread_responses_to_the_2026_state_of/o79mdme/
 
 BEYOND_DENIAL beyond the common denial that Trump and Putin are "weak", and not laboring very hard to harm the USA.
+
+https://old.reddit.com/r/politics/comments/1re2hy2/discussion_thread_responses_to_the_2026_state_of/o79lp5i/
