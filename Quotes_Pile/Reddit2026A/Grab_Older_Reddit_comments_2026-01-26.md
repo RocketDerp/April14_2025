@@ -579,3 +579,11 @@ In the 1990's, FAQ was a common concept, Frequently Asked Questions / Topics / a
 It wasn't that you couldn't question the established answers, it is that you had to not flood the world day after day with scrolling off the pile of the same questions. It was the constant repetition of low-level, easily answered, basic learning that would drive down the community into least-common-denominator.
 
 But profit comes from engagement. And the easiest low-effort engagement is to re-hash and re-invent the same topics as a "fresh topic" every day.
+
+https://old.reddit.com/r/Cultreddit/comments/pwep8w/reddit_cult_behavior_i_think_has_a_lot_to_do_with/hegi74o/
+
+ETERNAL_SEPTEMBER_DROWNED_MEDIA_SELF_AWARENESS 
+
+https://old.reddit.com/r/Cultreddit/comments/psttj8/how_do_you_convert_reddit_screen_video_games/hdrwq4i/
+
+TRUMP_ARG ALTERNATE_REALITY_GAME on Reddit, banned now on Reddit, so I can't open the door to content.
