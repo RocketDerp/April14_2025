@@ -164,3 +164,13 @@ Social post { https://autistics.life/@RoundSparrow/116129070209526921 https://bs
 https://old.reddit.com/r/worldnews/comments/1rdyc7z/gay_and_bisexual_sydney_teenagers_lured_and/o78tvm8/
 
 MONOMYTH_VS_MONOMYTH competitive science fiction storytelling World Hate Affairs
+
+https://old.reddit.com/r/interestingasfuck/comments/1re7xh2/an_indian_officer_beating_an_alleged_assaulter_of/o7ap7ur/
+
+https://old.reddit.com/r/interestingasfuck/comments/1re7xh2/an_indian_officer_beating_an_alleged_assaulter_of/o7aoue8/
+
+https://old.reddit.com/r/interestingasfuck/comments/1re7xh2/an_indian_officer_beating_an_alleged_assaulter_of/o7axre8/
+
+https://old.reddit.com/r/interestingasfuck/comments/1re7xh2/an_indian_officer_beating_an_alleged_assaulter_of/o7axnxa/
+
+IGNORANCE_CELEBRATIONS  
