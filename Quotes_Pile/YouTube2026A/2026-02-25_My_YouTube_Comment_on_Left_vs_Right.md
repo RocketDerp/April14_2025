@@ -53,3 +53,11 @@ I think my reply got censored, so added a second reply:
 
 "@lindsay6518 One single man, Donald Trump, being an "idiot" isn't a concern to me. 300 million population who adopts his Twitter behavior is the crisis."
 
+&nbsp;
+
+So now I seem censored on YouTube across the board, I've tried 4 times, with complete page refresh, to chat on an other YouTube channel
+
+<img width="947" height="822" alt="image" src="https://github.com/user-attachments/assets/eeedb91e-2bb3-42a2-a272-d2bbe6b153f8" />
+
+https://www.youtube.com/watch?v=HCc4eRtu4Yw
+
