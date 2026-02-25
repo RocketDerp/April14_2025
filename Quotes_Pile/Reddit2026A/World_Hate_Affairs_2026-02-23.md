@@ -153,3 +153,10 @@ METAPHORS_OF_JOHN_ONE_ONE - conjuring up a metaphor. "Meet The Man", https://Old
 
 NEW_OPERA_NAME #MeetTheMan   
 Social post { https://autistics.life/@RoundSparrow/116128356383019310 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfnfa3y7j22b }    
+
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1rdrlz9/the_title_was_no_beer_left_unturned/o77difr/
+
+Olympics February 2026, World Wide **Media** Coverage, World Wide Hate-Watching Affairs coverage. SOCIAL_CULT_HATE_WATCHING_FANDOM
+
+Social post { https://autistics.life/@RoundSparrow/116129070209526921 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfnpeu5gpc2q }
