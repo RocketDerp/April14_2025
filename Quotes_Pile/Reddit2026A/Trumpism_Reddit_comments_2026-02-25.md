@@ -109,3 +109,9 @@ https://old.reddit.com/r/clevercomebacks/comments/1reawk4/read_your_own_manual_b
 
 Give up and surrender messaging on Reddit. BRAIN_ROT_LEFT_RIGHT_LIB_CON_NAME_AVOIDANCE such "clever" comebacks, framing.
 
+https://old.reddit.com/r/clevercomebacks/comments/1reawk4/read_your_own_manual_before_commenting/o7bd0lh/
+
+As soon as I saw the Bible verse in the image. BIBLE_VERSE John 18:5 “Jesus of Nazareth,” they replied. “I am he,” Jesus said. (And Judas the traitor was standing there with them.) https://BibleHub.com/john/18-5.htm
+
+The far greater issue is the programmed Tweet-thinking polarity billionaire talking points and the extreme low effort giving to addressing this crisis of billionaires overwriting previously understood Levant Bible interpretations. Reddit community is playing against an extremely low bar given the scale of the crisis. ARE_YOU_SMARTER_THAN_3RD_GRADE_STUDENT_FANDOM_MEASURING
+
