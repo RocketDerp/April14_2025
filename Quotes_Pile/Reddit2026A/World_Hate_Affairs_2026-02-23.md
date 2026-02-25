@@ -199,3 +199,8 @@ MOYERS: There is something about that on the Great Seal of the United States.
 
 CAMPBELL: That’s what the Great Seal is all about.
 
+https://old.reddit.com/r/worldnews/comments/1re86by/isis_sympathisers_lured_gay_and_bisexual/o7baq9r/
+
+https://old.reddit.com/r/worldnews/comments/1re86by/isis_sympathisers_lured_gay_and_bisexual/o7b5uua/
+
+HIGH_SPEED_REACTIONARY_MINDSETS tiny-short reaction commenting.
