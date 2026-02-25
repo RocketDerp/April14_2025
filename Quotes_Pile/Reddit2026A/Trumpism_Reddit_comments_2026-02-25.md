@@ -84,3 +84,8 @@ https://old.reddit.com/r/LetsDiscussThis/comments/1redj7a/dani_bensky_epstein_su
 https://old.reddit.com/r/UnderReportedNews/comments/1recm1a/texas_rep_tony_gonzales_refuses_to_resign_after/o7bixp1/
 
 3 month Reddit account. Top-upvoted most-popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+
+https://old.reddit.com/r/therewasanattempt/comments/1ref213/to_live_in_maga_america/o7c0y3w/
+
+TRUMP_FANDOM MAGA_FANDOM on Reddit media. 10-month Reddit account, top most popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT Not even 140 character Tweet-style thinking polarity as programmed into mins by world's most wealthy man and immigrant ladder-puller Elon Musk Twitter owner. Gleeful that the USA population is generating "Trumptard" content for Reddit app. This low-effort banal messaging serves: DEFLECTION_FROM_BILLIONAIRES_AND_PUTINISM Rupert Murdoch, Elon Musk, Mark Zuckerberg have used the most powerful machines ever created on planet Earth to program simplistic simple-think Twitter patterns into Morocco immigrants to North America, and **people on Reddit are cheering on the billionaire success** in mind-fucking everyone in USA into repetitive talking points. This is not resisting in any way shape or form, this is MAGA fandom. Pro-suffering, pro-badness. Anti-goodness. Surkov won since March 2013.
+
