@@ -542,3 +542,13 @@ Training ground for anti-learning, as what is important in the screen video game
 It is a media cult, addiction, of low-effort fast-meme fast-food for the brain. It is fast Internet electronic stimulation like /r/MarshallMcLuhan and /r/NeilPostman described in the 1970's and 1980's as so attractive to the human mind. The same commercial advertisement or re-run of the same content, repeated, to comfort. The messages, comments, and memes come in many flavors, but the clock resets the topics to fresh low-effort thinking with the 12 hour reload of new repeating topics.
 
 Like every tourist who travels to famous places who compulsively has to pose and get photographed in front of famous icons.
+
+
+https://old.reddit.com/r/Cultreddit/comments/q19qkv/cult_reddit_reddit_is_like_a_scroll_of_paper_a/hfdewr7/
+
+More media ecology lesson on the Media Cults of Reddit.
+
+https://old.reddit.com/r/Cultreddit/comments/q19qkv/cult_reddit_reddit_is_like_a_scroll_of_paper_a/hfdfbz9/
+
+METAPHORS_IN_MOTION 
+
