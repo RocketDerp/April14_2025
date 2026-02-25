@@ -65,3 +65,8 @@ Oh yha, and Jeffery Epstein leadership of "women" is on full display. Little gir
 
 NEW_OPERA_NAME #HumanityIssue   
 Social post { https://autistics.life/@RoundSparrow/116131881301773141 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfoxd6q2kc2f }   
+
+https://old.reddit.com/r/dankmemes/comments/1reamoz/changing_circumstances/o7b5eh1/
+
+NEW_OPERA_NAME #WidespreadEnshitification   
+Social post { https://autistics.life/@RoundSparrow/116131966663049287 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfoyjpj5nc2c }   
