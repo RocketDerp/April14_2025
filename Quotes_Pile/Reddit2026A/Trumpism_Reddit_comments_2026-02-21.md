@@ -1015,3 +1015,7 @@ Reddit community has a old man diaper fetish fandom. https://en.wikipedia.org/wi
 https://old.reddit.com/r/mildlyinfuriating/comments/1re09tt/my_little_free_library_was_destroyed_again_then/o798nyb/
 
 MEDIA_ECOLOGY_OBSERVATION 
+
+https://old.reddit.com/r/politics/comments/1re2hy2/discussion_thread_responses_to_the_2026_state_of/o79mdme/
+
+BEYOND_DENIAL beyond the common denial that Trump and Putin are "weak", and not laboring very hard to harm the USA.
