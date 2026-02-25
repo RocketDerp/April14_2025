@@ -80,3 +80,7 @@ https://old.reddit.com/r/LetsDiscussThis/comments/1redj7a/dani_bensky_epstein_su
 2 month Reddit account. Top-upvoted most-popular comment. 140 character Tweet-thinking commenting as conditioned by Twitter owner Elon Musk. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
 
 * "How delighted would be all the kings, czars and führers of the past (and commissars of the present) to know that **censorship is not a necessity when all political discourse takes the form of a jest**.” ― Neil Postman, Amusing Ourselves to Death: [Public Discourse in the Age of Show Business. Year 1985. Nonfiction. Page 141.](https://books.google.com/books?id=oup6iagfox8C&pg=PA141&dq=%22know+that+censorship+is+not+a+necessity+when+all+political+discourse+takes+the+form+of+a+jest%22&hl=en&newbks=1&newbks_redir=1&sa=X&ved=2ahUKEwiCwYKLhvWSAxWEFDQIHbsCDhsQ6AF6BAgKEAM)
+
+https://old.reddit.com/r/UnderReportedNews/comments/1recm1a/texas_rep_tony_gonzales_refuses_to_resign_after/o7bixp1/
+
+3 month Reddit account. Top-upvoted most-popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
