@@ -469,3 +469,30 @@ February 21, 2018 Facebook posting I made
 February 21, 2022 Reddit posting of that Facebook comment   
 
 I did not hide my real name identity and face on Reddit in the face of the Saint Petersburg Internet Research Agency, Putin Media Invasion. February 21, 2018 was the start of Donald Trump's second year in the White House, POTUS office.
+
+https://old.reddit.com/r/ZBBS/comments/pqv3fz/rzbbs_lounge/hddv64u/
+
+SOCIAL_MEDIA_LORE social media radio started out licensed, identifiable. POTUS was the same. Long distance billing, etc.   
+
+https://old.reddit.com/r/ZBBS/comments/pqv3fz/rzbbs_lounge/hddvf9c/
+
+Creative Mythology making. SEE_ALSO https://en.wikipedia.org/wiki/Creative_Mythology
+
+https://old.reddit.com/r/Cultreddit/comments/a1pqd/a_community_for_3_minutes/hxxf6v4/
+
+November 6, 2009 creation of /r/CultReddit to discuss media cult behaviors. MEDIA_CULTS MEDIA_CULTS_ADDICTIVE_FICTION part of my Arab Spring Internet research ARAB_SPRING_2010 
+
+https://old.reddit.com/r/Cultreddit/comments/a1pqd/a_community_for_3_minutes/hhb31z8/
+
+MEDIA_ECOLOGY_OBSERVATION I was making about spam filtering, automated censorship.
+
+https://old.reddit.com/r/Cultreddit/comments/a1pqd/a_community_for_3_minutes/hgx1tfx/
+
+<img width="1588" height="452" alt="image" src="https://github.com/user-attachments/assets/65d17bc5-7e58-4f78-88fa-dd697ee34bc7" />
+"submitted 16 years ago by RoundSparrow - announcement"   
+
+"You will see that the above message is unedited, posted Friday, November 6, 2009 UTC." - that message: "For I am a god, on the precipice of something that will be ignored."
+
+SOMETHING_THAT_WILL_BE_IGNORED  predictive. The Arab Spring being ignored in November 2009... and I crossed that precipice December 16, 2009 and was in North Africa (Algeria) December 3, 2010.  https://GitHub.com/RocketDerp/April14_2025/tree/main/Art/ScreenPlay/Arab_Spring
+
+OPERA_A For I am John 1:1 Finnegan Wake educated in year 2009. a lowercase "god", not Jesus, not Allah, but Great Seal of the United States of America. 
