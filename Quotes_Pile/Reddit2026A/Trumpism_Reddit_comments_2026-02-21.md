@@ -1008,4 +1008,7 @@ https://old.reddit.com/r/therewasanattempt/comments/1rdxng6/to_be_olympic_gold_w
 
 But why are Reddit commenting community, We The People, avoiding the big brain of Dr. Bandy X Lee and quoting her nonfiction book from October 3, 2017... And these men in the Oval Office is USA values: STAND_UP_FOR_FAMOUS_CELEBRITY_AND_SOCIALLY_POWERFUL_BIG_GUYS Reddit fandom upvoted this Trump and celebrity sports image right to the top! Where critical life-saving public education from Dr. Bandy X Lee, a woman, is not upvoted to the top of /r/All Reddit every day to save lives. https://en.wikipedia.org/wiki/The_Dangerous_Case_of_Donald_Trump
 
+https://old.reddit.com/r/IThinkYouShouldLeave/comments/1re0fss/all_you_had_to_do_was_do_your_stupid_speech_and/o796egv/
+
+Reddit community has a old man diaper fetish fandom. https://en.wikipedia.org/wiki/Diaper_fetishism Understanding Trumpism USA is to understand media cult users of Twitter, Reddit, Facebook, etc. Apple iPhone device, Apple iPad, Android device users who like to finger-touch images of Donald Trump day in and day out. 3,906 days of non-stop Reddit consumption of Donald Trump images and content. People who flock to shit-postings, shit-commenting above all else and have wrecked the nation by not recognizing their own attraction to Donald Trump shit Truth Social posting leadership. A cult that doesn't want the Reality TV show to ever stop, Trump is an LOLCOW to milk constantly for memes and images. WANT_TO_STOP_THE_SHIT_SHOW_SHIT_COMMENTING_ADDICTIONS_MEDIA
 
