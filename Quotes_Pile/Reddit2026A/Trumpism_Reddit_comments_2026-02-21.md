@@ -993,3 +993,7 @@ It is a Tweet-thinking 140 characters or less mindset reactionary nation. Cults 
 https://old.reddit.com/r/AdviceAnimals/comments/1rdphge/the_facts_speak_for_themselves/o76y0b5/
 
 Reddit front-page posting. Title: "The facts speak for themselves" and zero "facts" are shared. OBSERVE_SOCIAL_MEDIA_AVOIDING_NONFICTION Reddit is a cult of ignorance. Commenting addictions. If Trump is dangerous, why is it that Bluesky and Reddit end-users are consistently avoiding Dr. Bandy X Lee's leadership? Why is Dr. Bandy X Lee not being quoted constantly over and over in Reddit comments. ANSWER: because nonfiction serious books are avoided. The cult is of memes and images.
+
+https://old.reddit.com/r/International/comments/1rdv7qw/looks_like_the_floodgates_are_breached/o781f11/
+
+2-day Reddit account. The submitter of the posting AND the most-popular upvoted comment. Generic clickbait title, right to the front page of /r/All on Reddit. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT the message declares that some magical gates have been reached and somehow there is magical winning against Trump. EPSTEIN_FANDOM desires and promotes information, not removal of Trump, not cult deprogramming. Just cravings for dirty old men sex detail information.
