@@ -628,3 +628,17 @@ ARAB_SPRING_2010 Facebook posting August 28, 2010 (During Ramadan 2010)
 <img width="768" height="853" alt="image" src="https://github.com/user-attachments/assets/e96e022b-6043-45db-b2ed-9756e0c90144" />
 
 "This /r/CultReddit subreddit was created Friday, November 6, 2009. Based on decades of social media / Internet media observations on what people avoid... avoidance of topics, Turning Away, insults or becoming hateful" OBSERVE_SOCIAL_MEDIA_AVOIDING_NONFICTION OBSERVE_MEDIA_AVOIDANCE_OF_RELEVANT_NONFICTION
+
+https://old.reddit.com/r/Cultreddit/comments/pddm38/this_rcultreddit_subreddit_was_created_friday/hapafa4/
+
+https://old.reddit.com/r/Cultreddit/comments/p7m7iy/my_dad_predicted_trump_in_1985_its_not_orwell_he/h9kmsjs/
+
+"We The People" COLLECTIVELY_INTELLIGENT_PLURIBUS_LEARNING
+
+https://old.reddit.com/r/Cultreddit/comments/p7m7iy/my_dad_predicted_trump_in_1985_its_not_orwell_he/hfx8q65/
+
+HOWARD_BLOOM NEIL_POSTMAN 
+
+https://old.reddit.com/r/Cultreddit/comments/p7m7iy/my_dad_predicted_trump_in_1985_its_not_orwell_he/hqyj0iu/
+
+I give out my real identity on Reddit in the face of the Saint Petersburg Internet Research Agency prizing of shit-commenting, dick measuring, "IQ" Donald Trumpism MAGA_VALUES shit-posting society.
