@@ -160,3 +160,7 @@ https://old.reddit.com/r/PeterExplainsTheJoke/comments/1rdrlz9/the_title_was_no_
 Olympics February 2026, World Wide **Media** Coverage, World Wide Hate-Watching Affairs coverage. SOCIAL_CULT_HATE_WATCHING_FANDOM
 
 Social post { https://autistics.life/@RoundSparrow/116129070209526921 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfnpeu5gpc2q }
+
+https://old.reddit.com/r/worldnews/comments/1rdyc7z/gay_and_bisexual_sydney_teenagers_lured_and/o78tvm8/
+
+MONOMYTH_VS_MONOMYTH competitive science fiction storytelling World Hate Affairs
