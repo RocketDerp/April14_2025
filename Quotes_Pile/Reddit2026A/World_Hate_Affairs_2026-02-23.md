@@ -174,3 +174,5 @@ https://old.reddit.com/r/interestingasfuck/comments/1re7xh2/an_indian_officer_be
 https://old.reddit.com/r/interestingasfuck/comments/1re7xh2/an_indian_officer_beating_an_alleged_assaulter_of/o7axnxa/
 
 IGNORANCE_CELEBRATIONS  
+
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1re2xrp/she_knew_exactly_what_she_was_doing_weaponizing/o7ad8vu/
