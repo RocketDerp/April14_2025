@@ -459,3 +459,13 @@ https://old.reddit.com/r/help/comments/1mbft1f/this_account_will_be_baed_in_less
 https://old.reddit.com/r/help/comments/1mbft1f/this_account_will_be_baed_in_less_than_24_hours/n5m3fls/
 
 https://old.reddit.com/r/help/comments/1mbft1f/this_account_will_be_baed_in_less_than_24_hours/n6b0tbi/
+
+
+https://old.reddit.com/r/ZBBS/comments/sxrgv2/february_21_2018_how_come_the_white_house_never/hxtl46f/
+
+<img width="766" height="535" alt="image" src="https://github.com/user-attachments/assets/2aabf36e-7b74-4a76-a113-0e77357d539b" />
+
+February 21, 2018 Facebook posting I made   
+February 21, 2022 Reddit posting of that Facebook comment   
+
+I did not hide my real name identity and face on Reddit in the face of the Saint Petersburg Internet Research Agency, Putin Media Invasion. February 21, 2018 was the start of Donald Trump's second year in the White House, POTUS office.
