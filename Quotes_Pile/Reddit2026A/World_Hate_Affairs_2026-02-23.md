@@ -176,3 +176,5 @@ https://old.reddit.com/r/interestingasfuck/comments/1re7xh2/an_indian_officer_be
 IGNORANCE_CELEBRATIONS  
 
 https://old.reddit.com/r/BlackPeopleofReddit/comments/1re2xrp/she_knew_exactly_what_she_was_doing_weaponizing/o7ad8vu/
+
+The Internet mob mentality of audience tends to blame { drug use, race, etc }. What this entire posting points at is { confusion, shallow understanding, superficial mindsets, reactionary mindsets, comprehending, ambiguity, tiredness, CONTEXT_BEWILDERMENT } of the woman. It is like parenting and marriages in general... if people focused more on how poorly society and the human brain deals with stress, ambiguity, being tired, competition, chases we might start to recognize common conflicts all over the world as... common.
