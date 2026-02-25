@@ -1021,3 +1021,9 @@ https://old.reddit.com/r/politics/comments/1re2hy2/discussion_thread_responses_t
 BEYOND_DENIAL beyond the common denial that Trump and Putin are "weak", and not laboring very hard to harm the USA.
 
 https://old.reddit.com/r/politics/comments/1re2hy2/discussion_thread_responses_to_the_2026_state_of/o79lp5i/
+
+https://old.reddit.com/r/politics/comments/1re33py/trump_uses_state_of_the_union_to_demonize/o79qkgi/
+
+"Crazy". Donald Trump gets quoted on mind / brain issues all the time. I.Q. "crazy" tonight, etc. Reddit community quotes Donald Trump. NOT_GOOD_ENOUGH what Reddit community always seems to avoid: quoting Dr. Bandy X Lee's 27 contributors to her October 3, 2017 book about mental health. Reddit commenting community seems to not find a woman leader good enough to follow.
+
+* "As people with NPD become increasingly psychotic, they’re determined to convince others that they’re the “crazy” ones who can’t see reality for what it is. Gaslighting reassures pathological narcissists that their own grip on reality remains firm because they can’t bear to acknowledge their sanity is slipping away. We might ask if we’re seeing this now, as Trump and his closest advisers appear on TV claiming he didn’t make statements that journalists often simply play back — or if it’s a tweet, flash an image — to prove that he did indeed say what he said." ― Bandy X Lee, The Dangerous Case of Donald Trump: 27 Psychiatrists and Mental Health Experts Assess a President. October 3, 2017. Page 58.
