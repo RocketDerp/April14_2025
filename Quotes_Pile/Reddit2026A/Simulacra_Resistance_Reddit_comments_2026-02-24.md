@@ -21,3 +21,17 @@ REPEATING: "It's a nonsensical dissociation from reality that I will never under
 2. From September 9, 2014 which is 11 years 5 months and some 2 weeks ago, which is **more than a decade** - we could have kept repeating it and defeated Putin's capure of USA hearts and minds: https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ "Russia and the Menace of Unreality: How Vladimir Putin is revolutionizing information warfare. By Peter Pomerantsev. At the NATO summit in Wales last week, General Philip Breedlove, the military alliance’s top commander, made a bold declaration. Russia, he said, is waging “the **most amazing information warfare blitzkrieg we have ever seen in the history of information warfare.**” It was something of an underestimation. The new Russia doesn’t just deal in the petty disinformation, forgeries, lies, leaks, and cyber-sabotage usually associated with information warfare. **It reinvents reality, creating mass hallucinations** that then translate into political action."
 
 Social post { https://autistics.life/@RoundSparrow/116128913822330291 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfnn6hfn522n }   
+
+https://old.reddit.com/r/politics/comments/1regou2/colbert_on_silent_defiance_of_jeffries_during/o7cebru/
+
+Why isn't Stephen Colbert repeating and repeating his YouTube video, reminding people again and again? Just last year Trump and Putin are meeting in Alaska and the RECENCY_BIAS is horrific in USA population / We The People. STAR WARS DAY 2019, BEFORE the COVID-19 pandemic, why isn't Stephen Colbert REPEATING_REPEATER REPEAT_TRACK this video? https://old.Reddit.com/r/QAnonRussia/comments/si2yrq/may_4_2019_russian_trolls_are_fueling_the_anti/ 
+
+Headline "Colbert On Silent" - why if MEASLES are STILL SPREADING in US in February 2026 is Stephen Colbert SILENT? "May 4, 2019: Russian Trolls Are Fueling The Anti Vaxxer Movement. 1,076,636 views. May 4, 2019" https://www.youtube.com/watch?v=Ju7Yt0LMiVk
+
+Children are being harmed and killed, and Russia and Trump are still harming Ukraine children too, why is Stephen Colbert silent? Why isn't he repeating: "Anti-vaxxers aren't just morons. Some are also Russian trolls." 1,082,719 views May 4, 2019 https://www.youtube.com/watch?v=Ju7Yt0LMiVk "this might be the scariest news I have ever heard' - and Stephen Colbert is afraid to repeat it?
+
+* "Measles is back and highly contagious. Learn about the 2025–26 spikes, the danger **for young children**" - https://www.uchealth.org/today/is-measles-deadly-why-it-is-so-dangerous/
+
+Is Stephen Colbert afraid to stand up for Young Children to Trump and Putin? Never forget August 24, 2018. https://www.BBC.com/news/world-us-canada-45294192
+
+

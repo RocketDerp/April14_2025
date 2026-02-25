@@ -459,3 +459,210 @@ https://old.reddit.com/r/help/comments/1mbft1f/this_account_will_be_baed_in_less
 https://old.reddit.com/r/help/comments/1mbft1f/this_account_will_be_baed_in_less_than_24_hours/n5m3fls/
 
 https://old.reddit.com/r/help/comments/1mbft1f/this_account_will_be_baed_in_less_than_24_hours/n6b0tbi/
+
+
+https://old.reddit.com/r/ZBBS/comments/sxrgv2/february_21_2018_how_come_the_white_house_never/hxtl46f/
+
+<img width="766" height="535" alt="image" src="https://github.com/user-attachments/assets/2aabf36e-7b74-4a76-a113-0e77357d539b" />
+
+February 21, 2018 Facebook posting I made   
+February 21, 2022 Reddit posting of that Facebook comment   
+
+I did not hide my real name identity and face on Reddit in the face of the Saint Petersburg Internet Research Agency, Putin Media Invasion. February 21, 2018 was the start of Donald Trump's second year in the White House, POTUS office.
+
+https://old.reddit.com/r/ZBBS/comments/pqv3fz/rzbbs_lounge/hddv64u/
+
+SOCIAL_MEDIA_LORE social media radio started out licensed, identifiable. POTUS was the same. Long distance billing, etc.   
+
+https://old.reddit.com/r/ZBBS/comments/pqv3fz/rzbbs_lounge/hddvf9c/
+
+Creative Mythology making. SEE_ALSO https://en.wikipedia.org/wiki/Creative_Mythology
+
+https://old.reddit.com/r/Cultreddit/comments/a1pqd/a_community_for_3_minutes/hxxf6v4/
+
+November 6, 2009 creation of /r/CultReddit to discuss media cult behaviors. MEDIA_CULTS MEDIA_CULTS_ADDICTIVE_FICTION part of my Arab Spring Internet research ARAB_SPRING_2010 
+
+https://old.reddit.com/r/Cultreddit/comments/a1pqd/a_community_for_3_minutes/hhb31z8/
+
+MEDIA_ECOLOGY_OBSERVATION I was making about spam filtering, automated censorship.
+
+https://old.reddit.com/r/Cultreddit/comments/a1pqd/a_community_for_3_minutes/hgx1tfx/
+
+<img width="1588" height="452" alt="image" src="https://github.com/user-attachments/assets/65d17bc5-7e58-4f78-88fa-dd697ee34bc7" />
+"submitted 16 years ago by RoundSparrow - announcement"   
+
+"You will see that the above message is unedited, posted Friday, November 6, 2009 UTC." - that message: "For I am a god, on the precipice of something that will be ignored.". I posed that on a Friday in November in my Quran studies of Comparative Mythology. صلاة الجمعة
+
+SOMETHING_THAT_WILL_BE_IGNORED  predictive. The Arab Spring being ignored in November 2009... and I crossed that precipice December 16, 2009 and was in North Africa (Algeria) December 3, 2010.  https://GitHub.com/RocketDerp/April14_2025/tree/main/Art/ScreenPlay/Arab_Spring
+
+OPERA_A For I am John 1:1 Finnegan Wake educated in year 2009. a lowercase "god", not Jesus, not Allah, but Great Seal of the United States of America. https://www.youtube.com/watch?v=U8s_q3IaglQ "Somewhere beyond this... I know. I hope I can find the words to say... Never again, nooo!" 
+6,080,848 views October 25, 2009 - In Q1 2010 I shared this YouTube video across the ocean to Tunisia and Algeria to the women as part of the Arab Spring.
+
+
+https://old.reddit.com/r/Cultreddit/comments/szdqzo/identitymotivated_reasoning_christopher_wylie/hy2zy5z/
+
+https://old.reddit.com/r/Cultreddit/comments/szdqzo/identitymotivated_reasoning_christopher_wylie/hy2zz9u/
+
+https://old.reddit.com/r/Cultreddit/comments/szdqzo/identitymotivated_reasoning_christopher_wylie/hy313xn/
+
+MEDIA_ECOLOGY_OBSERVATION of the /r/CultReddit behaviors. Quoting a nonfiction book on paper about Cambridge Analytica was being targeted for suppression. Oh, to have Reddit's server-side logs of the user accounts that did the downvoting, time of day, IP address, browser strings, other activity on server HTTP logs for time usage patterns.
+
+https://old.reddit.com/r/Cultreddit/comments/szir72/rightwing_reddit_gun_nut_charged_with_murder_for/hy3pwr1/
+
+https://old.reddit.com/r/Cultreddit/comments/szir72/rightwing_reddit_gun_nut_charged_with_murder_for/hy3pqp2/
+
+MEDIA_ECOLOGY_OBSERVATION why does Reddit CONCEAL all the messages, ban a community, if the moderator is absent? What if a person dies (dead) who had been posting for 16 years on Reddit... they just REMOVE it all, 16 years of public writings, from Google Search and citation links because the human is no longer able to moderate? TRAGEDY_OF_THE_COMMONS that years of public links and information are black-holed for no good reason. It would be SMARTER to FREEZE the subreddit, not allow new comments or submissions, but Reddit still publish the previously allowed public content!
+
+https://old.reddit.com/r/Cultreddit/comments/szghkf/how_russian_trolls_operate/
+
+https://old.reddit.com/r/Cultreddit/comments/szevs8/everyone_in_rrussia_pretended_there_is_no_way/hy34z7z/
+
+https://old.reddit.com/r/Cultreddit/comments/szevs8/everyone_in_rrussia_pretended_there_is_no_way/hy3cyvd/
+
+"Everyone in /r/russia pretended there is no way Putin makes a move on Ukraine…" MEDIA_ECOLOGY_OBSERVATION of the /r/CultReddit behaviors. Discussing Ukraine War active measures cults on Reddit. Oh, to have Reddit's server-side logs of the user accounts that did the downvoting, time of day, IP address, browser strings, other activity on server HTTP logs for time usage patterns.
+
+https://old.reddit.com/r/Cultreddit/comments/syipz1/analyzing_five_alleged_ira_reddit_accounts/
+
+https://old.reddit.com/r/CounterConspiracy/comments/syip8d/analyzing_five_alleged_ira_reddit_accounts/hxy7xwc/
+
+https://old.reddit.com/r/Cultreddit/comments/q19qkv/cult_reddit_reddit_is_like_a_scroll_of_paper_a/
+
+MEDIA_ECOLOGY_LESSON Monday October 4, 2021 when Joe Biden / Kamala Harris were in office, it was still clear MAGA_VALUES cults on Reddit were growing. The January 6, 2021 overthrow of government / insurrection was being actively joke-washed humor-washed all over Reddit. The posting content:
+
+1. people don't read the stories
+
+2. Clickbait headlines are to be reacted to. Even when it is the same story, a different variation of the Clickbait headline revives the topic.
+
+3. Even automatic postings now mine and repeat topics. Copying from one subreddit to another or just reposting in some slight variation.
+
+4. Low-effort early, first comments are what it is about. Reset minds every day to start from zero comments, but the topics are the same, and it's just a different set of people making the same low-effort reaction comments.
+
+Training ground for anti-learning, as what is important in the screen video game of Reddit is to grind away on comments and votes over the same repetitive trending topics. Never learning anything of sustained depth and long-term thinking, but to swim in the time repetition of every 12 hours starting over on the same topics with the same low-effort commenting.
+
+It is a media cult, addiction, of low-effort fast-meme fast-food for the brain. It is fast Internet electronic stimulation like /r/MarshallMcLuhan and /r/NeilPostman described in the 1970's and 1980's as so attractive to the human mind. The same commercial advertisement or re-run of the same content, repeated, to comfort. The messages, comments, and memes come in many flavors, but the clock resets the topics to fresh low-effort thinking with the 12 hour reload of new repeating topics.
+
+Like every tourist who travels to famous places who compulsively has to pose and get photographed in front of famous icons.
+
+
+https://old.reddit.com/r/Cultreddit/comments/q19qkv/cult_reddit_reddit_is_like_a_scroll_of_paper_a/hfdewr7/
+
+More media ecology lesson on the Media Cults of Reddit.
+
+https://old.reddit.com/r/Cultreddit/comments/q19qkv/cult_reddit_reddit_is_like_a_scroll_of_paper_a/hfdfbz9/
+
+METAPHORS_IN_MOTION 
+
+https://old.reddit.com/r/Cultreddit/comments/px8l63/a_normal_day_at_reddit/helrjay/
+
+MEDIA_ECOLOGY_OBSERVATION about **the year 2014** tone change / attitude adjustment of Reddit hive mind (society mob mentality mindsets). SEE_ALSO "Russia-watcher Catherine Fitzpatrick, who documents Kremlin disinformation for InterpreterMag . com, says just as Moscow uses vague Internet laws to encourage self-censorship, trolls inhibit informed debate by using **crude dialogue to change "the climate of discussion."** "If you show up at The Washington Post or New Republic sites, where there's an article that's critical of Russia, and you see that **there are 200 comments that sound like they were written by 12-year-olds**, then you just don't bother to comment," she says.  "You don't participate. It's a way of just **driving discussion away** completely," she adds. "Those **kinds of tactics are meant to stop democratic debate**, and they work." - **year 2014** https://www.TheAtlantic.com/international/archive/2014/08/the-kremlins-troll-army/375932/
+
+https://old.reddit.com/r/Cultreddit/comments/px8l63/a_normal_day_at_reddit/hxxkbtk/
+
+Adding that quote to the GitHub project! SEE_ALSO https://GitHub.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Specific/Postman_1985_Censorship_Tyrants.md My account was banned and **much of my Reddit content censored**. 
+
+https://old.reddit.com/r/Cultreddit/comments/pwep8w/reddit_cult_behavior_i_think_has_a_lot_to_do_with/
+
+NAME_BRAND_UNIVERSITY_EDUCATION_EXCLUSIVE_ANTI_WIKI_ANTI_PLURIBUS and ANTI_WIKI_ANTI_FAQ
+MEDIA_ECOLOGY_LESSON  
+
+Monday, September 27, 2021   
+The posting:  
+
+Reddit cult behavior I think has a lot to do with the disrespect of 1) FAQ organization, 2) Wikipedia, 3) WikiQuote - common understanding. Instead, it is off-the-cuff degenerating repetition of topics
+
+In the earliest days of social media, Internet, it was obvious that people kept re-inventing the wheel when it came to peer to peer discussion.
+
+Strangers would meet on the Internet, and reinvent the wheel on the base concepts of any given topic.
+
+In the 1990's, FAQ was a common concept, Frequently Asked Questions / Topics / and established answers.
+
+It wasn't that you couldn't question the established answers, it is that you had to not flood the world day after day with scrolling off the pile of the same questions. It was the constant repetition of low-level, easily answered, basic learning that would drive down the community into least-common-denominator.
+
+But profit comes from engagement. And the easiest low-effort engagement is to re-hash and re-invent the same topics as a "fresh topic" every day.
+
+https://old.reddit.com/r/Cultreddit/comments/pwep8w/reddit_cult_behavior_i_think_has_a_lot_to_do_with/hegi74o/
+
+ETERNAL_SEPTEMBER_DROWNED_MEDIA_SELF_AWARENESS 
+
+https://old.reddit.com/r/Cultreddit/comments/psttj8/how_do_you_convert_reddit_screen_video_games/hdrwq4i/
+
+TRUMP_ARG ALTERNATE_REALITY_GAME on Reddit, banned now on Reddit, so I can't open the door to content.
+
+https://old.reddit.com/r/Cultreddit/comments/pihxw2/pure_and_easy_we_all_know_success_when_we_all/hbq1zde/
+
+https://old.reddit.com/r/Cultreddit/comments/pihxw2/pure_and_easy_we_all_know_success_when_we_all/hbqgphk/
+
+https://old.reddit.com/r/Cultreddit/comments/phok49/today_is_september_3_2021_twelve_years_ago_in/hbjvg34/
+
+OPERA_A media tracks in the Reddit comments.
+
+https://old.reddit.com/r/Cultreddit/comments/pes7ld/us_hate_crimes_in_2020_reached_their_highest/hazdsrs/
+
+INTERNET_RESEARCH_AGENCY my public media education self-awareness teaching on Reddit platform.
+
+https://old.reddit.com/r/Cultreddit/comments/pes7ld/us_hate_crimes_in_2020_reached_their_highest/hazdx3h/
+
+https://old.reddit.com/r/Cultreddit/comments/pes7ld/us_hate_crimes_in_2020_reached_their_highest/hazdz6f/
+
+https://old.reddit.com/r/Cultreddit/comments/pes7ld/us_hate_crimes_in_2020_reached_their_highest/hazex6y/
+
+https://old.reddit.com/r/Cultreddit/comments/peqgfn/rpolitics_and_the_use_of_mindless_bots_and_tons/haz192f/
+
+TECH_LUST_TECH_LOVERS
+
+https://old.reddit.com/r/Cultreddit/comments/peqgfn/rpolitics_and_the_use_of_mindless_bots_and_tons/haz1jrj/
+
+Weaponized server-side spam filters. Why does Reddit instantly spam filter account that is more than a decade old? Manipulation of the spam filters with keywords, "Surkov" often triggered it.
+
+https://old.reddit.com/r/Cultreddit/comments/peqgfn/rpolitics_and_the_use_of_mindless_bots_and_tons/haz2gjz/
+
+https://old.reddit.com/r/Cultreddit/comments/peqgfn/rpolitics_and_the_use_of_mindless_bots_and_tons/hb26s38/
+
+MEDIA_ECOLOGY_LESSON up early messages. The time-based behavior of social machine cults.
+
+
+https://old.reddit.com/r/Cultreddit/comments/pddm38/this_rcultreddit_subreddit_was_created_friday/
+
+ARAB_SPRING_2010 Facebook posting August 28, 2010 (During Ramadan 2010)   
+
+<img width="768" height="853" alt="image" src="https://github.com/user-attachments/assets/e96e022b-6043-45db-b2ed-9756e0c90144" />
+
+* "The continued and complete avoidance of something gives away the very urgent necessity for - at some point - that very same thing to be discovered, delved deeply into, and actually utilised in your life. As such, the only way out of something is often to go into it... confront, it face it, and overcome." ~ Jacquelene Close Moore
+  * I find it interesting today 2026-02-25 Google Search finds only one single hit for "The continued and complete avoidance of something gives away the very urgent necessity for" (quoted) https://ReddeerAdvocate.com/2010/04/28/an-elephant-threatening-your-relationship/ from back in April 2010 when I was running across that quote on the Internet. The quote has essentially disappeared today.
+  * <img width="2013" height="988" alt="image" src="https://github.com/user-attachments/assets/5bf11827-5bab-4114-a227-f7b092ed7431" />
+  * "Jacquelene Close Moore, author of The Thin Book of Naming Elephants: How to Surface Undiscussables for Greater Organizational Success" GoodReads Quotes has only ONE single quote populated. https://www.goodreads.com/work/quotes/334486-the-thin-book-of-naming-elephants-how-to-surface-undiscussables-for-gre
+     * “You see what you expect to see. You see what you have the labels to see. You see what you have the skills to manage. Everything else is a blur.” ― Sue Annis Hammond, The Thin Book of Naming Elephants; How to Surface Undiscussables for Greater Organizational Success
+     * "Book by Andrea B. Mayfield and Sue Annis Hammond". So it seems back in year 2010 some person was claiming the quote? Or someone got it as a quote on another and didn't dig deep enough on author names?
+     * Similar quote? ::: explain Karl Weick and Kathleen Sutcliffe explain in Managing the Unexpected. But this can be dangerous: “Trouble starts when I fail to notice that I see only whatever confirms my categories and expectations but nothing else. The trouble deepens even further if I kid myself that seeing is believing. That’s wrong. It’s the other way around. **You see what you expect to see. You see what you have the labels to see.** You see what you have the skills to manage.” ::: year 2006 https://www.FastCompany.com/919282/seeing-believing-gap
+
+"This /r/CultReddit subreddit was created Friday, November 6, 2009. Based on decades of social media / Internet media observations on what people avoid... avoidance of topics, Turning Away, insults or becoming hateful" OBSERVE_SOCIAL_MEDIA_AVOIDING_NONFICTION OBSERVE_MEDIA_AVOIDANCE_OF_RELEVANT_NONFICTION
+
+https://old.reddit.com/r/Cultreddit/comments/pddm38/this_rcultreddit_subreddit_was_created_friday/hapafa4/
+
+https://old.reddit.com/r/Cultreddit/comments/p7m7iy/my_dad_predicted_trump_in_1985_its_not_orwell_he/h9kmsjs/
+
+"We The People" COLLECTIVELY_INTELLIGENT_PLURIBUS_LEARNING
+
+https://old.reddit.com/r/Cultreddit/comments/p7m7iy/my_dad_predicted_trump_in_1985_its_not_orwell_he/hfx8q65/
+
+HOWARD_BLOOM NEIL_POSTMAN 
+
+https://old.reddit.com/r/Cultreddit/comments/p7m7iy/my_dad_predicted_trump_in_1985_its_not_orwell_he/hqyj0iu/
+
+I give out my real identity on Reddit in the face of the Saint Petersburg Internet Research Agency prizing of shit-commenting, dick measuring, "IQ" Donald Trumpism MAGA_VALUES shit-posting society.
+
+The Reddit user https://old.reddit.com/user/minddropstudios hasn't been active since March of year 2022, look at the comments they give to other users (next message):
+
+https://old.reddit.com/r/worldnews/comments/tdsq3t/britain_warns_putin_of_war_with_nato_if_russia/i0mcp4q/
+
+MAGA_VALUES WANT_TO_STOP_THE_SHIT_SHOW_SHIT_COMMENTING_ADDICTIONS_MEDIA
+
+https://old.reddit.com/r/pcmasterrace/comments/t6d2r7/elon_tech_tips/hzb0ivp/
+
+It seems Reddit removed this comment hzb0ivp from direct view, but it is still public on the user's profile:
+
+<img width="1583" height="745" alt="image" src="https://github.com/user-attachments/assets/8f64bac7-c39e-4100-aa42-c349dd438096" />
+
+"It's because you say dumb shit. Lol. You know this. Don't even bother responding. Whatever you type is going to sound really, incredibly sad. Just fuck off into oblivion." MAGA_VALUES of SELF_DEPORT and driving people off Reddit. Trump-values-0abuser, Epstein-values-abuser role models. "driving discussion away completely"
+
+* "Russia-watcher Catherine Fitzpatrick, who documents Kremlin disinformation for InterpreterMag . com, says just as Moscow uses vague Internet laws to encourage self-censorship, trolls inhibit informed debate by using **crude dialogue to change "the climate of discussion."** "If you show up at The Washington Post or New Republic sites, where there's an article that's critical of Russia, and you see that **there are 200 comments that sound like they were written by 12-year-olds**, then you just don't bother to comment," she says.  "You don't participate. It's a way of just **driving discussion away** completely," she adds. "Those **kinds of tactics are meant to stop democratic debate**, and they work." - **year 2014** https://www.TheAtlantic.com/international/archive/2014/08/the-kremlins-troll-army/375932/

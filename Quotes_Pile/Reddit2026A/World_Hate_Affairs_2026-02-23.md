@@ -178,3 +178,49 @@ IGNORANCE_CELEBRATIONS
 https://old.reddit.com/r/BlackPeopleofReddit/comments/1re2xrp/she_knew_exactly_what_she_was_doing_weaponizing/o7ad8vu/
 
 The Internet mob mentality of audience tends to blame { drug use, race, etc }. What this entire posting points at is { confusion, shallow understanding, superficial mindsets, reactionary mindsets, comprehending, ambiguity, tiredness, CONTEXT_BEWILDERMENT } of the woman. It is like parenting and marriages in general... if people focused more on how poorly society and the human brain deals with stress, ambiguity, being tired, competition, chases we might start to recognize common conflicts all over the world as... common.
+
+https://old.reddit.com/r/worldnews/comments/1re86by/isis_sympathisers_lured_gay_and_bisexual/o7b1wwr/
+
+2 month Reddit account. Extreme tiny-short commenting mindsets. Elon Musk programmed simple-think Twitter billionaire ideas. Reddit commenting community is a playground of ignorance on history of travel technology, immigration, conflicts. One of the most ignorant statements you could make. The human race is PROUD of bigotry. The clergy for Levant religions have found huge popularity promoting bigotry over favorite science fiction book. BOOK_SUPREMACY bigotry. It is a matter of pride, they have special holidays! Ramadan, Christmas, Easter!
+
+Democracy does not work without "love thy neighbor", "love thy enemy". DEMOCRACY_DOES_NOT_WORK_WITHOUT_LOVE_THY_NEIGHBOR_COMPASSION_VALUES Published year 1988 as lessons from George Lucas to Star Wars science fiction fandom, **nonfiction book**:
+
+CAMPBELL: But in the Bible, eternity withdraws, and nature is corrupt, nature has fallen. In **biblical thinking**, we live in exile.
+
+BILL MOYERS: As we sit here and talk, there is one story after another of car bombings in Beirut — by the Muslims of the Christians, by the Christians of the Muslims, and by the Christians of the Christians. It strikes me that Marshall McLuhan was right when he said that television has made a global village of the world—but he didn’t know the global village would be Beirut. What does that say to you?
+
+CAMPBELL: It says to me that they don’t know how to apply their religious ideas to contemporary life, and **to human beings rather than just to their own community**. It’s a terrible example of the failure of religion to meet the modern world. These three mythologies are fighting it out. **They have disqualified themselves for the future.**
+
+MOYERS: What kind of new myth do we need?
+
+CAMPBELL: We need myths that will identify the individual **not with his local group** but with the planet. A model for that is the United States. Here were thirteen different little colony nations that decided to act in the mutual interest, without disregarding the individual interests of any one of them.
+
+MOYERS: There is something about that on the Great Seal of the United States.
+
+CAMPBELL: That’s what the Great Seal is all about.
+
+https://old.reddit.com/r/worldnews/comments/1re86by/isis_sympathisers_lured_gay_and_bisexual/o7baq9r/
+
+https://old.reddit.com/r/worldnews/comments/1re86by/isis_sympathisers_lured_gay_and_bisexual/o7b5uua/
+
+HIGH_SPEED_REACTIONARY_MINDSETS tiny-short reaction commenting.
+
+https://old.reddit.com/r/worldnews/comments/1re86by/isis_sympathisers_lured_gay_and_bisexual/o7b6ozt/
+
+WIDE_RADICAL_DOUBT_ABOUT_REAL
+
+https://old.reddit.com/r/confidentlyincorrect/comments/1re8bxz/someone_got_their_history_tests_handed_back_face/o7apqq3/
+
+2 month Reddit account. 3rd most popular root comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT - why is Reddit community IGNORANCE_CELEBRATIONS of this screen shot. Notice there is **no date of this screen shot**, timeless presentation of it. It has been on the Reddit /r/All front page multiple times. One instance of it previously on Reddit **May 20, 2025** https://old.reddit.com/r/ShitAmericansSay/comments/1krghsa/maam_canada_didnt_even_fight_in_ww2_so_maybe_sit/(Note the dates are not removed from this older image) The original date goes back even further: January 21, 2025. More than 13 months ago. This is extreme low-information-upvoting https://en.wikipedia.org/wiki/Low_information_voter SIMULATION_SIMULACRA this is people feeling smug about *how dumb* a tiny-short message is. When there are FAR MORE SERIOUS topics. This is fiction storytelling from another media platform, far more popular than nonfiction learning. OBSERVE_SOCIAL_MEDIA_AVOIDING_NONFICTION why are people not teaching nonfiction about the cults of ignorance from high-speed media systems? 
+
+* “no one representing the public interest can even grasp the issues; when the people have lost the ability to set their own agendas or knowledgeably question those in authority; when, clutching our crystals and nervously consulting our horoscopes, our critical faculties in decline, unable to distinguish between what feels good and what’s true, we slide, almost without noticing, back into superstition and darkness. The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the **30-second** sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but especially a kind of [celebration of ignorance](https://www.youtube.com/watch?v=wcY-x1VuWtE). As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is **that study and learning — not just of science, but of anything** — are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995, page 59
+
+Also note the Reddit account that created the front-page /r/All posting was a 6 day account https://old.reddit.com/user/_BabyFever with history only going back 24 hours with extreme pro-ignorance content. REPUBLICANS_LEAD_WITH_IGNORANCE_IDEAS_AND_FOLLOWERS_REPLY_WITH_IGNORANCE
+
+https://old.reddit.com/r/Damnthatsinteresting/comments/1re6xv4/in_2021_the_austria_village_fucking_changed_its/o7agf00/
+
+World Fucking Affairs. Understanding the power of Putin, Trump, banal leaders lies in studying these behaviors with the sign-stealing and the attitudes of word-image addictions on Reddit commenting. ATTRACTION_TO_SHIT_CONTENT_ENSHIT_BY_DESIRE things don't just TRAGEDY_OF_THE_COMMONS themselves, it takes a inner desire to take the commons sign in the media signage symbolism mindset tragedy.
+
+https://old.reddit.com/r/technology/comments/1ree20k/ais_cant_stop_recommending_nuclear_strikes_in_war/o7btzd9/
+
+UNIFIED_THEORY_FICTION_NONFICTION WarGames June 3, 1983 Artificial Intelligence topic film.

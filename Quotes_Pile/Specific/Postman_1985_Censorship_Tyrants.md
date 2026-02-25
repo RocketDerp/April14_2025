@@ -1,0 +1,16 @@
+
+“Censorship, after all, is the tribute tyrants pay to the assumption that a public knows the difference between serious discourse and entertainment — and cares. How delighted would be all the kings, czars and führers of the past (and commissars of the present) to know that censorship is not a necessity when all political discourse takes the form of a jest.” ― Neil Postman, Amusing Ourselves to Death: [Public Discourse in the Age of Show Business. Year 1985. Nonfiction. Page 141.](https://books.google.com/books?id=oup6iagfox8C&pg=PA141&dq=%22know+that+censorship+is+not+a+necessity+when+all+political+discourse+takes+the+form+of+a+jest%22&hl=en&newbks=1&newbks_redir=1&sa=X&ved=2ahUKEwiCwYKLhvWSAxWEFDQIHbsCDhsQ6AF6BAgKEAM)
+
+&nbsp;
+
+Longer:
+
+For example, I would venture the opinion that the traditional civil libertarian opposition to the banning of books from school libraries and from school curricula is now largely irrelevant. Such acts of censorship are annoying, of course, and must be opposed. **But they are trivial. Even worse, they are distracting, in that they divert civil libertarians from confronting those questions that have to do with the claims of new technologies**. To put it plainly, a student’s freedom to read is not seriously injured by someone’s banning a book on Long Island or in Anaheim or anyplace else. But as Gerbner suggests, television clearly does impair the student’s freedom to read, and it does so with innocent hands, so to speak. Television does not ban books, it simply displaces them.
+
+The fight against censorship is a nineteenth-century issue which was largely won in the twentieth. What we are confronted with now is **the problem posed by the economic and symbolic structure of television**. Those who run television do not limit our access to information but in fact widen it. Our Ministry of Culture is Huxleyan, not Orwellian. It does everything possible to encourage us to watch continuously. But what we watch is a medium which **presents information in a form that renders it simplistic**, nonsubstantive, nonhistorical and noncontextual; that is to say, information packaged as entertainment. In America, we are never denied the opportunity to amuse ourselves.
+
+Tyrants of all varieties have always known about **the value of providing the masses with amusements as a means of pacifying discontent. But most of them could not have even hoped for a situation in which the masses would ignore that which does not amuse**. That is why tyrants have always relied, and still do, on censorship. Censorship, after all, is the tribute tyrants pay to the assumption that a public knows the difference between serious discourse and entertainment — and cares. How delighted would be all the kings, czars and führers of the past (and commissars of the present) **to know that censorship is not a necessity when all political discourse takes the form of a jest**.
+
+&nbsp;
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mfp4b23mcc2c https://autistics.life/@RoundSparrow/116132221470208940 }   
