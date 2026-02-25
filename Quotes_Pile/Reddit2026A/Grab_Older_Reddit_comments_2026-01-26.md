@@ -491,10 +491,19 @@ https://old.reddit.com/r/Cultreddit/comments/a1pqd/a_community_for_3_minutes/hgx
 <img width="1588" height="452" alt="image" src="https://github.com/user-attachments/assets/65d17bc5-7e58-4f78-88fa-dd697ee34bc7" />
 "submitted 16 years ago by RoundSparrow - announcement"   
 
-"You will see that the above message is unedited, posted Friday, November 6, 2009 UTC." - that message: "For I am a god, on the precipice of something that will be ignored."
+"You will see that the above message is unedited, posted Friday, November 6, 2009 UTC." - that message: "For I am a god, on the precipice of something that will be ignored.". I posed that on a Friday in November in my Quran studies of Comparative Mythology. صلاة الجمعة
 
 SOMETHING_THAT_WILL_BE_IGNORED  predictive. The Arab Spring being ignored in November 2009... and I crossed that precipice December 16, 2009 and was in North Africa (Algeria) December 3, 2010.  https://GitHub.com/RocketDerp/April14_2025/tree/main/Art/ScreenPlay/Arab_Spring
 
 OPERA_A For I am John 1:1 Finnegan Wake educated in year 2009. a lowercase "god", not Jesus, not Allah, but Great Seal of the United States of America. https://www.youtube.com/watch?v=U8s_q3IaglQ "Somewhere beyond this... I know. I hope I can find the words to say... Never again, nooo!" 
 6,080,848 views October 25, 2009 - In Q1 2010 I shared this YouTube video across the ocean to Tunisia and Algeria to the women as part of the Arab Spring.
+
+
+https://old.reddit.com/r/Cultreddit/comments/szdqzo/identitymotivated_reasoning_christopher_wylie/hy2zy5z/
+
+https://old.reddit.com/r/Cultreddit/comments/szdqzo/identitymotivated_reasoning_christopher_wylie/hy2zz9u/
+
+https://old.reddit.com/r/Cultreddit/comments/szdqzo/identitymotivated_reasoning_christopher_wylie/hy313xn/
+
+MEDIA_ECOLOGY_OBSERVATION of the /r/CultReddit behaviors. Quoting a nonfiction book on paper about Cambridge Analytica was being targeted for suppression. Oh, to have Reddit's server-side logs of the user accounts that did the downvoting, time of day, IP address, browser strings, other activity on server HTTP logs for time usage patterns.
 
