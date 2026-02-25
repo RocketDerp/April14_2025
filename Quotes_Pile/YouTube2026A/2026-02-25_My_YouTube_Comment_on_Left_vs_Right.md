@@ -9,3 +9,9 @@ Left vs. Right is brain rot. The Founding Fathers of USA made no such distinctio
 It's like the clergy teaching at the church that there is a team evil and a team good. And you can choose to follow South Park Satan in the White House. As if Satan is a VALID choice. Right-wing in France origins of seating was fiction Bible King vs. nonfiction science.
 
 Good vs. evil is not a valid choice. Evil is not a valid choice!  the 1-bit programming by Rupert Murdoch and others is basically that evil is a valid choice.
+
+&nbsp;
+
+# comment at 8:07 
+
+@8:07 how did we end up with Donald Trump? Fiction addictions. Reality TV. Donald Trump provides fiction storytelling unlike any other politician. People can not resist their attraction to Trump the creative mythology storyteller.
