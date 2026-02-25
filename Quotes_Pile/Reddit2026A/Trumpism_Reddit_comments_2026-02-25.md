@@ -22,6 +22,17 @@ This entire posting is a gullible Reddit fandom of Trump. Consumers of "The Appr
 
 https://old.reddit.com/r/SipsTea/comments/1rec1ed/this_is_so_damnn_true/o7bg19w/
 
+<img width="1182" height="467" alt="image" src="https://github.com/user-attachments/assets/8f8fda87-d5bc-4622-bf4a-cb796c89f1eb" />
+
 7-day Reddit account. TOP upvoted most popular comment. Posting title is generic clickbait. CLICKBAIT_TITLE REDDIT_TOP_COMMENT_YOUNG_ACCOUNT Asking simple "engaging" social media technique questions. PROMOTING_IGNORANCE_WORKS_PLAYING_DUMB_MOCKING There are FAR MORE IMPORTANT NONFICTION topics to be promoting on social media, such as: Jen Senko nonfiction, Dr. Bandy X Lee nonfiction, Neil Postman nonfiction! PUT AN END TO TRUMPISM, **please stop** LIVING in the toxic ocean of Trump junk mindsets!
 
-ANSWER: The addiction to commenting about politicians on media systems, celebrity fandom, is what is driving society now. What exactly do people believe Donald Trump's talent and gift to be? I see a Reality TV star, a media influencer, and a nation of media cults. Do people think he is a good business man? I think he has a charming personality that charms the pants off men, charms women into supporting nasty aggressive men (like Epstein, Elon Musk), charms money out of people, charms power out of people. A media personality, an actor who is acting a Tony Clifton performance with Surkov student boosted screenplays... TRUMP_CHARMING_ACTOR_ACTING 
+ANSWER: The addiction to commenting about politicians on media systems, celebrity fandom, is what is driving society now. What exactly do people believe Donald Trump's talent and gift to be? I see a Reality TV star, a media influencer, and a nation of media cults. Do people think he is a good business man? I think he has a charming personality that charms the pants off men, charms women into supporting nasty aggressive men (like Epstein, Elon Musk), charms money out of people, charms power out of people. A media personality, an actor who is acting a Tony Clifton performance with Surkov students boosted screenplays... TRUMP_CHARMING_ACTOR_ACTING 
+
+"Why do so many people make their entire personality about someone who does not know they exist?" ANSWER: This is an age old problem, we can name it, The Bible verse "1 John 4:20" problem. It is a CRISIS that Bible verse "1 John 4:20" spelled out 2,000 years ago! One of the most printed books in all human history. but people have such a BIBLE_LITERACY problem they can't grasp this very fundamental behavior topic. "people make their entire personality about someone who does not know they exist" - **have you seen Jesus? Have you seen God?* - Bible verse "1 John 4:20" https://biblehub.com/1_john/4-20.htm 
+
+Why oh why on why can't we all turn to "1 John 4:20" SAME_PAGE_SAME_TIME_SAME_UNDERSTANDING and grasp HOW LONG this crisis has been GOING ON! OPERA_A https://www.youtube.com/watch?v=Rhw472vpjtg 83 views February 19, 2026 Lyrics: "Well, **if friends with their fancy persuasion don't admit** that it's part of **a scheme**! But I can't help but have my suspicions... 'Cause I ain't quite as dumb as I seem" - Bible verse "1 John 4:20" repurposed song meaning... HAVE YOU SEEN GOD?
+
+"Why do so many people make their entire personality about someone who does not know they exist?" - Reddit February 25, 2026 morning!
+
+NEW_OPERA_NAME #ManyPeopleMake   
+Social post { https://autistics.life/@RoundSparrow/116131686368718893 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfouknutok2q }   
