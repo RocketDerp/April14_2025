@@ -74,3 +74,9 @@ Social post { https://autistics.life/@RoundSparrow/116131966663049287 https://bs
 https://old.reddit.com/r/pics/comments/1rehwwe/im_just_a_guy_with_a_3d_printer_trying_to_make_it/o7cn9j7/
 
 TRUMP_FANDOM Cult of Trump images. Celebrity Television cultists, Celebrity Twitter cultists. MEDIA_CULTS_ADDICTIVE_FICTION Donald Trump provides constant stimulation to audiences on high-speed information devices. Day after day a timelines casino like media culture since June 16, 2015 where Trump image will appear on Reddit and other media systems. Those that hate Trump are often the most captured to behave and think like Trump.
+
+https://old.reddit.com/r/LetsDiscussThis/comments/1redj7a/dani_bensky_epstein_survivor_why_is_the_fbi/o7bpbto/
+
+2 month Reddit account. Top-upvoted most-popular comment. 140 character Tweet-thinking commenting as conditioned by Twitter owner Elon Musk. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+
+* "How delighted would be all the kings, czars and führers of the past (and commissars of the present) to know that **censorship is not a necessity when all political discourse takes the form of a jest**.” ― Neil Postman, Amusing Ourselves to Death: [Public Discourse in the Age of Show Business. Year 1985. Nonfiction. Page 141.](https://books.google.com/books?id=oup6iagfox8C&pg=PA141&dq=%22know+that+censorship+is+not+a+necessity+when+all+political+discourse+takes+the+form+of+a+jest%22&hl=en&newbks=1&newbks_redir=1&sa=X&ved=2ahUKEwiCwYKLhvWSAxWEFDQIHbsCDhsQ6AF6BAgKEAM)
