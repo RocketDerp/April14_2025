@@ -620,3 +620,11 @@ https://old.reddit.com/r/Cultreddit/comments/peqgfn/rpolitics_and_the_use_of_min
 
 MEDIA_ECOLOGY_LESSON up early messages. The time-based behavior of social machine cults.
 
+
+https://old.reddit.com/r/Cultreddit/comments/pddm38/this_rcultreddit_subreddit_was_created_friday/
+
+ARAB_SPRING_2010 Facebook posting August 28, 2010 (During Ramadan 2010)   
+
+<img width="768" height="853" alt="image" src="https://github.com/user-attachments/assets/e96e022b-6043-45db-b2ed-9756e0c90144" />
+
+"This /r/CultReddit subreddit was created Friday, November 6, 2009. Based on decades of social media / Internet media observations on what people avoid... avoidance of topics, Turning Away, insults or becoming hateful" OBSERVE_SOCIAL_MEDIA_AVOIDING_NONFICTION OBSERVE_MEDIA_AVOIDANCE_OF_RELEVANT_NONFICTION
