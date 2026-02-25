@@ -115,3 +115,10 @@ As soon as I saw the Bible verse in the image. BIBLE_VERSE John 18:5 “Jesus of
 
 The far greater issue is the programmed Tweet-thinking polarity billionaire talking points and the extreme low effort giving to addressing this crisis of billionaires overwriting previously understood Levant Bible interpretations. Reddit community is playing against an extremely low bar given the scale of the crisis. ARE_YOU_SMARTER_THAN_3RD_GRADE_STUDENT_FANDOM_MEASURING
 
+https://old.reddit.com/r/MurderedByAOC/comments/1rei80f/npc_with_410_energy/o7cpd18/
+
+AOC repeating programmed MAGA talking points. Reddit community attracted to the dehumanization. GAMERS_SIMULACRA These are the skilled and educated people of USA society (Reddit California MAGA USA)... who spend their free time and spare time... and see no need to have a civic duty, or for sake of goodness in the world, to organize **Dr. Bandy X Lee followings against the mental health crises** of Fox News HDTV audience / MAGA USA political anti-reality, etc.
+
+People treating social media like it is anti-reality, a video screen game. ANTI_REALITY And my experience is that competition of defeating and eliminating (killing others) is a huge part of the popular video games. 
+
+* October 16, 2018 https://www.NYtimes.com/2018/10/16/us/politics/npc-twitter-ban.html - it made New York Times about "non-human players" attitude. This is BEFORE ChatGPT came in year 2022. Already aggressive dehumanization of "competition" was attitude being used in information warfare, cult programming. In other words: the richest businessmen in the entire world programming the rural (MAGA) less-educated people (MAGA) to hate upon *poor people* that are not entertaining. Poor rural people being programmed to hate upon the poor and to prize the beautiful / wealthy / those with cool hardware assets (Musk, etc).
