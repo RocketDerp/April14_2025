@@ -70,3 +70,7 @@ https://old.reddit.com/r/dankmemes/comments/1reamoz/changing_circumstances/o7b5e
 
 NEW_OPERA_NAME #WidespreadEnshitification   
 Social post { https://autistics.life/@RoundSparrow/116131966663049287 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfoyjpj5nc2c }   
+
+https://old.reddit.com/r/pics/comments/1rehwwe/im_just_a_guy_with_a_3d_printer_trying_to_make_it/o7cn9j7/
+
+TRUMP_FANDOM Cult of Trump images. Celebrity Television cultists, Celebrity Twitter cultists. MEDIA_CULTS_ADDICTIVE_FICTION Donald Trump provides constant stimulation to audiences on high-speed information devices. Day after day a timelines casino like media culture since June 16, 2015 where Trump image will appear on Reddit and other media systems. Those that hate Trump are often the most captured to behave and think like Trump.
