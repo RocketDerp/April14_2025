@@ -12,6 +12,8 @@ https://old.reddit.com/r/Economics/comments/1rdvsn5/trump_pulled_the_plug_on_bid
 
 Most popular, most upvoted comment. "It's a nonsensical dissociation from reality that I will never understand." - that's because you spend your free time and spare time commenting on Reddit with reaction comments. Low-information upvoter on Reddit media. https://en.Wikipedia.org/wiki/Low_information_voter Every hour of every day voting, not just government election days, but adult education and learning EVERY DAY, even HOLIDAYS, even WEEKENDS. Reddit cult of ignorance.
 
+This comment was made today on the SAME Reddit app, to the **Reddit commenting community, that always seems to avoid serious nonfiction books printed on paper**. When there is a serious crisis of people behaving in destructive ways in USA, the Reddit community can be counted on to avoid nonfiction books. FICTION_NONFICTION - as everyone in USA seems to far prefer low-information upvoting systems and sources.
+
 REPEATING: "It's a nonsensical dissociation from reality that I will never understand." - Tuesday, February 24, 2026 on Reddit COMPREHENDING_UNDERSTANDING
 
 1. [“The truth is, it’s getting harder to describe the extent to which a meaningful percentage of Americans have dissociated from reality,” Charlie Warzel wrote “I’m Running Out of Ways to Explain How Bad This Is.”](https://www.axios.com/2024/10/19/musk-ackman-election-misinformation) - October 19, 2024 - America’s gullibility crisis, Zachary Basu
