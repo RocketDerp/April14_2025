@@ -178,3 +178,24 @@ IGNORANCE_CELEBRATIONS
 https://old.reddit.com/r/BlackPeopleofReddit/comments/1re2xrp/she_knew_exactly_what_she_was_doing_weaponizing/o7ad8vu/
 
 The Internet mob mentality of audience tends to blame { drug use, race, etc }. What this entire posting points at is { confusion, shallow understanding, superficial mindsets, reactionary mindsets, comprehending, ambiguity, tiredness, CONTEXT_BEWILDERMENT } of the woman. It is like parenting and marriages in general... if people focused more on how poorly society and the human brain deals with stress, ambiguity, being tired, competition, chases we might start to recognize common conflicts all over the world as... common.
+
+https://old.reddit.com/r/worldnews/comments/1re86by/isis_sympathisers_lured_gay_and_bisexual/o7b1wwr/
+
+2 month Reddit account. Extreme tiny-short commenting mindsets. Elon Musk programmed simple-think Twitter billionaire ideas. Reddit commenting community is a playground of ignorance on history of travel technology, immigration, conflicts. One of the most ignorant statements you could make. The human race is PROUD of bigotry. The clergy for Levant religions have found huge popularity promoting bigotry over favorite science fiction book. BOOK_SUPREMACY bigotry. It is a matter of pride, they have special holidays! Ramadan, Christmas, Easter!
+
+Democracy does not work without "love thy neighbor", "love thy enemy". DEMOCRACY_DOES_NOT_WORK_WITHOUT_LOVE_THY_NEIGHBOR_COMPASSION_VALUES Published year 1988 as lessons from George Lucas to Star Wars science fiction fandom, **nonfiction book**:
+
+CAMPBELL: But in the Bible, eternity withdraws, and nature is corrupt, nature has fallen. In **biblical thinking**, we live in exile.
+
+BILL MOYERS: As we sit here and talk, there is one story after another of car bombings in Beirut — by the Muslims of the Christians, by the Christians of the Muslims, and by the Christians of the Christians. It strikes me that Marshall McLuhan was right when he said that television has made a global village of the world—but he didn’t know the global village would be Beirut. What does that say to you?
+
+CAMPBELL: It says to me that they don’t know how to apply their religious ideas to contemporary life, and **to human beings rather than just to their own community**. It’s a terrible example of the failure of religion to meet the modern world. These three mythologies are fighting it out. **They have disqualified themselves for the future.**
+
+MOYERS: What kind of new myth do we need?
+
+CAMPBELL: We need myths that will identify the individual **not with his local group** but with the planet. A model for that is the United States. Here were thirteen different little colony nations that decided to act in the mutual interest, without disregarding the individual interests of any one of them.
+
+MOYERS: There is something about that on the Great Seal of the United States.
+
+CAMPBELL: That’s what the Great Seal is all about.
+
