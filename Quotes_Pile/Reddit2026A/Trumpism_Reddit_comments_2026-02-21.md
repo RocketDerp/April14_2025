@@ -947,3 +947,9 @@ https://old.reddit.com/r/law/comments/1rdtiol/kentucky_representative_thomas_mas
 https://old.reddit.com/r/law/comments/1rdtiol/kentucky_representative_thomas_massie_r_explodes/o77s1rm/
 
 ADULT_EDUCATION_CRISIS_USA_ADULT_LEARNING_EMERGENCY It's incredibly sad how the people in /r/Law can't seem to see the ADULT education crisis in America. Pan Bondi is 60 years old, yet people on Reddit can not recognize that she is common for the poorly educated adults. People who are avoidant of continuing education via serious relevant nonfiction books. People who read extremely low-information sources such as Twitter-length commenting messages (one very media platform, including Reddit), memes, and overall vote every day on social media to favor low-information unimportant learning. https://en.wikipedia.org/wiki/Low_information_voter
+
+https://old.reddit.com/r/law/comments/1rdv94c/needs_to_die_man_vowed_to_take_out_trump_to_save/o788dps/
+
+The top-upvoted most popular comment. "I really tired of dumb" REALLY_TIRED_OF_DUMB_IGNORANCE_POPULARITY_IN_ADULTS_USA   
+
+I am really tired of witnessing people who make Twitter-style 140 character Tweet-length reaction comments to everything centered around the word / media magnet "Trump" and White House and MAGA content attraction. Over and over, people who do not recognize the brain rot crisis of We The People adults who are fixated on a television celebrity as some very sick form of entertainment and amusement. The avoidance of mental health nonfiction book by Dr. Bandy X Lee with 27 contributors is sickening to observe hour after hour year after year since October 3, 2017 publication. 
