@@ -606,3 +606,17 @@ https://old.reddit.com/r/Cultreddit/comments/pes7ld/us_hate_crimes_in_2020_reach
 
 https://old.reddit.com/r/Cultreddit/comments/pes7ld/us_hate_crimes_in_2020_reached_their_highest/hazex6y/
 
+https://old.reddit.com/r/Cultreddit/comments/peqgfn/rpolitics_and_the_use_of_mindless_bots_and_tons/haz192f/
+
+TECH_LUST_TECH_LOVERS
+
+https://old.reddit.com/r/Cultreddit/comments/peqgfn/rpolitics_and_the_use_of_mindless_bots_and_tons/haz1jrj/
+
+Weaponized server-side spam filters. Why does Reddit instantly spam filter account that is more than a decade old? Manipulation of the spam filters with keywords, "Surkov" often triggered it.
+
+https://old.reddit.com/r/Cultreddit/comments/peqgfn/rpolitics_and_the_use_of_mindless_bots_and_tons/haz2gjz/
+
+https://old.reddit.com/r/Cultreddit/comments/peqgfn/rpolitics_and_the_use_of_mindless_bots_and_tons/hb26s38/
+
+MEDIA_ECOLOGY_LESSON up early messages. The time-based behavior of social machine cults.
+
