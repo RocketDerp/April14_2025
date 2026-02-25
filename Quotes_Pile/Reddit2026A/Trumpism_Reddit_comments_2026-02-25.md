@@ -151,3 +151,6 @@ https://old.reddit.com/r/funny/comments/1regpq8/class_participation/o7cefpc/
 
 Social post { https://autistics.life/@RoundSparrow/116133639463474311 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfpqdtdrc227 }
 
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rejddp/as_if_there_was_ever_any_doubt/o7d0pp2/
+
+"LMAO". Trump fans on Reddit. AMUSEMENT_COMEDY_WASHING_TRUMP_AS_FUNNY_MEDIA_SANEWASHING
