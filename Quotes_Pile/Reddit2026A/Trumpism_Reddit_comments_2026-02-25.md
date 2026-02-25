@@ -133,4 +133,9 @@ MEDIA_CULTS_ADDICTIVE_FICTION Fiction addicts find it so great that politicians 
 
 The cult of ignorance is cheering on more video games being the topic.
 
+https://old.reddit.com/r/BikiniBottomTwitter/comments/1rekzy8/all_we_do_is_watch/o7dahjn/
+
+7 day Reddit account. Top-upvoted most-popular comment. 140 character Tweet-thinking commenting as conditioned by Twitter owner Elon Musk. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT Comedy Spongebob JOKE_COMEDY_POWER_IS_MAGA_IS_TRUMP_IS_SURKOV the Reddit comment just describes the crisis, in no way resisting, just like the character in the image is staring at watching and title of the posting.
+
+
 
