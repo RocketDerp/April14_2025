@@ -46,3 +46,10 @@ https://www.youtube.com/@lindsay6518
 <img width="947" height="822" alt="image" src="https://github.com/user-attachments/assets/c9d72920-a6d4-45a9-9c53-4d80fdd3aa1d" />
 
 I didn't put my effort into my reply, but people downplaying the threat of Trump is so common of a billionaire talking point. Trump is not a danger, don't worry. Anti Dr. Bandy X Lee messaging.
+
+&nbsp;
+
+I think my reply got censored, so added a second reply:
+
+"@lindsay6518 One single man, Donald Trump, being an "idiot" isn't a concern to me. 300 million population who adopts his Twitter behavior is the crisis."
+
