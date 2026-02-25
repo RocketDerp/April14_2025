@@ -520,3 +520,25 @@ https://old.reddit.com/r/Cultreddit/comments/szevs8/everyone_in_rrussia_pretende
 https://old.reddit.com/r/Cultreddit/comments/szevs8/everyone_in_rrussia_pretended_there_is_no_way/hy3cyvd/
 
 "Everyone in /r/russia pretended there is no way Putin makes a move on Ukraine…" MEDIA_ECOLOGY_OBSERVATION of the /r/CultReddit behaviors. Discussing Ukraine War active measures cults on Reddit. Oh, to have Reddit's server-side logs of the user accounts that did the downvoting, time of day, IP address, browser strings, other activity on server HTTP logs for time usage patterns.
+
+https://old.reddit.com/r/Cultreddit/comments/syipz1/analyzing_five_alleged_ira_reddit_accounts/
+
+https://old.reddit.com/r/CounterConspiracy/comments/syip8d/analyzing_five_alleged_ira_reddit_accounts/hxy7xwc/
+
+https://old.reddit.com/r/Cultreddit/comments/q19qkv/cult_reddit_reddit_is_like_a_scroll_of_paper_a/
+
+MEDIA_ECOLOGY_LESSON Monday October 4, 2021 when Joe Biden / Kamala Harris were in office, it was still clear MAGA_VALUES cults on Reddit were growing. The January 6, 2021 overthrow of government / insurrection was being actively joke-washed humor-washed all over Reddit. The posting content:
+
+1. people don't read the stories
+
+2. Clickbait headlines are to be reacted to. Even when it is the same story, a different variation of the Clickbait headline revives the topic.
+
+3. Even automatic postings now mine and repeat topics. Copying from one subreddit to another or just reposting in some slight variation.
+
+4. Low-effort early, first comments are what it is about. Reset minds every day to start from zero comments, but the topics are the same, and it's just a different set of people making the same low-effort reaction comments.
+
+Training ground for anti-learning, as what is important in the screen video game of Reddit is to grind away on comments and votes over the same repetitive trending topics. Never learning anything of sustained depth and long-term thinking, but to swim in the time repetition of every 12 hours starting over on the same topics with the same low-effort commenting.
+
+It is a media cult, addiction, of low-effort fast-meme fast-food for the brain. It is fast Internet electronic stimulation like /r/MarshallMcLuhan and /r/NeilPostman described in the 1970's and 1980's as so attractive to the human mind. The same commercial advertisement or re-run of the same content, repeated, to comfort. The messages, comments, and memes come in many flavors, but the clock resets the topics to fresh low-effort thinking with the 12 hour reload of new repeating topics.
+
+Like every tourist who travels to famous places who compulsively has to pose and get photographed in front of famous icons.
