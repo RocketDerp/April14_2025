@@ -77,3 +77,17 @@ Defending Reality
 &nbsp;
 
 * "The battlelines may be between anonymous forces that have been unleashed by technology that grew out of capital, that will be controlled in the hands of not many people" - Rick Roderick, Duke University, year 1993
+
+&nbsp;
+
+&nbsp;
+
+# November 6, 2009 Arab Spring, /r/CultReddit 
+
+https://old.reddit.com/r/Cultreddit/comments/a1pqd/a_community_for_3_minutes/hxxf6v4/
+
+<img width="2603" height="760" alt="Screenshot from 2026-02-25 13-52-50" src="https://github.com/user-attachments/assets/13de3efc-da9d-47a0-987b-62c97814d7a2" />
+
+November 6, 2009 creation of /r/CultReddit to discuss media cult behaviors. MEDIA_CULTS MEDIA_CULTS_ADDICTIVE_FICTION part of my Arab Spring Internet research ARAB_SPRING_2010 
+
+Social post { https://autistics.life/@RoundSparrow/116133269646028166 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfpkzdo7w22m }   
