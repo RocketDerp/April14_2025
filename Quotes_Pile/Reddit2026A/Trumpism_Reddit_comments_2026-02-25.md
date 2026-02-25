@@ -36,3 +36,7 @@ Why oh why on why can't we all turn to "1 John 4:20" SAME_PAGE_SAME_TIME_SAME_UN
 
 NEW_OPERA_NAME #ManyPeopleMake   
 Social post { https://autistics.life/@RoundSparrow/116131686368718893 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfouknutok2q }   
+
+https://old.reddit.com/r/International/comments/1rebnyx/didnt_mention_epstein_once_americans_react_to/o7bc44p/
+
+5 day Reddit account. The most popular top-upvoted. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
