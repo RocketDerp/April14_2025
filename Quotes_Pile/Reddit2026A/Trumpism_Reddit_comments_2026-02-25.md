@@ -137,5 +137,7 @@ https://old.reddit.com/r/BikiniBottomTwitter/comments/1rekzy8/all_we_do_is_watch
 
 7 day Reddit account. Top-upvoted most-popular comment. 140 character Tweet-thinking commenting as conditioned by Twitter owner Elon Musk. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT Comedy Spongebob JOKE_COMEDY_POWER_IS_MAGA_IS_TRUMP_IS_SURKOV the Reddit comment just describes the crisis, in no way resisting, just like the character in the image is staring at watching and title of the posting.
 
+https://old.reddit.com/r/circled/comments/1rejf24/you_cant_make_this_shit_up_trump_served_team_usa/o7d04w1/
 
+CRINGE_NATION perfect for sports-mentality sports fans and Reddit fandom of Donald Trump images. Everything Twitter-thinking mindsets prize. SEE_ALSO I created educational subreddit for public https://old.Reddit.com/r/CringeNation
 
