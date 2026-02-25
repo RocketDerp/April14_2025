@@ -866,3 +866,7 @@ But mental burnout became an extreme crisis for me in summer of 2015 and I am lu
 https://old.reddit.com/r/HolyShitHistory/comments/1redksd/in_1993_39yearold_jerry_seinfeld_was_at_the_peak/o7btwxi/
 
 But there are mindsets of men where the predatory manipulation of people and mind-fucking is prized. Jerry Seinfeld was in MEDIA_MANIA at the high of television NYC setting, he had the power of fiction cult leadership with his storytelling television in year 1993. PREDATORY_BILLIONAIRE_SYSTEMS
+
+https://old.reddit.com/r/HolyShitHistory/comments/1redksd/in_1993_39yearold_jerry_seinfeld_was_at_the_peak/o7bqy1g/
+
+MEDIA_CULTS_FICTION_FANDOM_MEDIA_POWER Paul Walker had the power of fiction storytelling cults. Just like Jerry Seinfeld fiction-playing actor, Donald Trump fiction-playing actor. The ultimate power systems is convincing other people that fiction is nonfiction, real. Trump is a god and Satan, both, for fiction fandoms. South Park year 2025 shows his Satan White House fiction power (and South Park **cashes in** on Trumpism "GOP Jesus" fiction character worship, fiction Satan character worship both).
