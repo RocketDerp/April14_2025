@@ -950,7 +950,7 @@ ADULT_EDUCATION_CRISIS_USA_ADULT_LEARNING_EMERGENCY It's incredibly sad how the 
 
 https://old.reddit.com/r/law/comments/1rdv94c/needs_to_die_man_vowed_to_take_out_trump_to_save/o788dps/
 
-The top-upvoted most popular comment. "I really tired of dumb" REALLY_TIRED_OF_DUMB_IGNORANCE_POPULARITY_IN_ADULTS_USA   
+The top-upvoted most popular comment. "I really tired of dumb" REALLY_TIRED_OF_DUMB_IGNORANCE_POPULARITY_IN_ADULTS_USA BRAIN_ROT_SOCIETY_47
 
 I am really tired of witnessing people who make Twitter-style 140 character Tweet-length reaction comments to everything centered around the word / media magnet "Trump" and White House and MAGA content attraction. Over and over, people who do not recognize the brain rot crisis of We The People adults who are fixated on a television celebrity as some very sick form of entertainment and amusement. The avoidance of mental health nonfiction book by Dr. Bandy X Lee with 27 contributors is sickening to observe hour after hour year after year since October 3, 2017 publication. 
 
@@ -960,4 +960,7 @@ MEDIA_ECOLOGY_OBSERVATION and a Twitter-length simple-think **REACTION TO REPUBL
 
 Reddit and Bluesky: REPUBLICANS_LEAD_WITH_IGNORANCE_IDEAS_AND_FOLLOWERS_REPLY_WITH_IGNORANCE - there is a resistant Reddit community avoidance of nonfiction serious books: Neil Postman on Internet high speed media. Dr. Bandy X Lee on Donald Trump's mental health. Jen Senko's nonfiction film and book on brainwashing topic via Republican-favored media systems. There is a fixation on low-information upvoting on Reddit to Tweet-thinking comments instead of turning to on-paper serious nonfiction relevant books! Republicans lead with ignorance and Reddit community follows the ignorance.
 
+https://old.reddit.com/r/law/comments/1rdv94c/needs_to_die_man_vowed_to_take_out_trump_to_save/o782k0s/
+
+4 word Twitter-length Tweet-thinking 140 characters or less mindsets all over Reddit in February 2026 on the most important and serious topics of our time. The brain rot of adults in USA is horrific! People aren't even self-aware of their compulsive Elon Musk Twitter programmed mindsets.
 
