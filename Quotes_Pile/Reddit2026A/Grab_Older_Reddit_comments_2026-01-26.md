@@ -512,3 +512,11 @@ https://old.reddit.com/r/Cultreddit/comments/szir72/rightwing_reddit_gun_nut_cha
 https://old.reddit.com/r/Cultreddit/comments/szir72/rightwing_reddit_gun_nut_charged_with_murder_for/hy3pqp2/
 
 MEDIA_ECOLOGY_OBSERVATION why does Reddit CONCEAL all the messages, ban a community, if the moderator is absent? What if a person dies (dead) who had been posting for 16 years on Reddit... they just REMOVE it all, 16 years of public writings, from Google Search and citation links because the human is no longer able to moderate? TRAGEDY_OF_THE_COMMONS that years of public links and information are black-holed for no good reason. It would be SMARTER to FREEZE the subreddit, not allow new comments or submissions, but Reddit still publish the previously allowed public content!
+
+https://old.reddit.com/r/Cultreddit/comments/szghkf/how_russian_trolls_operate/
+
+https://old.reddit.com/r/Cultreddit/comments/szevs8/everyone_in_rrussia_pretended_there_is_no_way/hy34z7z/
+
+https://old.reddit.com/r/Cultreddit/comments/szevs8/everyone_in_rrussia_pretended_there_is_no_way/hy3cyvd/
+
+"Everyone in /r/russia pretended there is no way Putin makes a move on Ukraine…" MEDIA_ECOLOGY_OBSERVATION of the /r/CultReddit behaviors. Discussing Ukraine War active measures cults on Reddit. Oh, to have Reddit's server-side logs of the user accounts that did the downvoting, time of day, IP address, browser strings, other activity on server HTTP logs for time usage patterns.
