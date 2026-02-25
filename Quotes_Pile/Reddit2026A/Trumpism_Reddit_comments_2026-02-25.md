@@ -100,3 +100,7 @@ OBSERVE_MEDIA_AVOIDANCE_OF_RELEVANT_NONFICTION These Reddit users share MAGA_VAL
 https://old.reddit.com/r/therewasanattempt/comments/1ref213/to_live_in_maga_america/o7c44do/
 
 6 hour Reddit account. HYPER_BANALISATION /r/HyperBanalisation - showing zero critical thinking and instead showing mockery thinking. Anti-free thinking, showing Musk programmed 140 character Tweet-thinking hyper banal.  FREE_MASONS_FREE_THINKING_SELF_AWARENESS
+
+https://old.reddit.com/r/clevercomebacks/comments/1reawk4/read_your_own_manual_before_commenting/o7b6p0o/
+
+LEVANT_MONOMYTH_CRISIS BIBLE_LITERACY crisis.
