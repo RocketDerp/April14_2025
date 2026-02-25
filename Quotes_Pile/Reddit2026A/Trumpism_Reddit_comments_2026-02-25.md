@@ -48,3 +48,11 @@ https://old.reddit.com/r/International/comments/1rebnyx/didnt_mention_epstein_on
 https://old.reddit.com/r/International/comments/1rebnyx/didnt_mention_epstein_once_americans_react_to/o7bc99o/
 
 3rd most popular comment is the same person who created the 2nd most popular comment and the posting itself. 2 day Reddit account. And the 1st most is a 5 day Reddit account. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT AND the top-most upvoted reply comment to this comment is a very suspicious account https://old.reddit.com/user/Chance-Upstairs6121 that has made only 8 comments total in 5 years on Reddit. And 4 of those 8 comments are all in past 24 hours.
+
+https://old.reddit.com/r/TrendoraX/comments/1re9jju/will_ferrell_is_sick_and_tired_of_trump_women_can/o7b31ed/
+
+Top-upvoted most popular comment. 7 month Reddit account. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT Extreme tiny-short banal commenting that women having power in USA society (Will Farrell and Trump is the posting title subject, CONTEXT_ASSERTION ) is not a crisis. NOT_GOOD_ENOUGH Hillary Clinton year 2016 and Trump is the choice people made. year 2024 Kamala Harris not good enough, and Trump is incredibly popular as a constant source of comedy and entertainment instead. 
+
+PROMOTING_IGNORANCE_WORKS_PLAYING_DUMB_MOCKING commenting on Reddit. Year 2015 Jen Senko not good enough on the topic of "brainwashing" by Trump cult / MAGA in society. Year 2017 Dr. Bandy X Lee leadership of 27 people not good enough on the topic of "mental health danger" of Donald Trump. **All avoided nonfiction information sources by women leaders** that billionaire computer industry (men: Bill Gates, Paul Allen, Steve Jobs, Elon Musk, Steve Huffman, Alexis Ohanian, Aaron Swartz, Chris Slowe, Rupert Murdoch) technology lovers of Reddit avoid. TECH_LUST_TECH_LOVERS 
+
+Oh yha, and Jeffery Epstein leadership of "women" is on full display. Little girls being indoctrinated into systemic abuse.
