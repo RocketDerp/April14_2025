@@ -957,3 +957,7 @@ I am really tired of witnessing people who make Twitter-style 140 character Twee
 https://old.reddit.com/r/law/comments/1rdv94c/needs_to_die_man_vowed_to_take_out_trump_to_save/o78fuyb/
 
 MEDIA_ECOLOGY_OBSERVATION and a Twitter-length simple-think **REACTION TO REPUBLICANS**, reaction commenting on Reddit every minute of every hour of every day over and over and over on profitable media platforms. People are REACTING to terrible and bad ideas and not offering serious nonfiction books with far better ideas than the Republicans are sharing on the Internet in February 2026.
+
+Reddit and Bluesky: REPUBLICANS_LEAD_WITH_IGNORANCE_IDEAS_AND_FOLLOWERS_REPLY_WITH_IGNORANCE - there is a resistant Reddit community avoidance of nonfiction serious books: Neil Postman on Internet high speed media. Dr. Bandy X Lee on Donald Trump's mental health. Jen Senko's nonfiction film and book on brainwashing topic via Republican-favored media systems. There is a fixation on low-information upvoting on Reddit to Tweet-thinking comments instead of turning to on-paper serious nonfiction relevant books! Republicans lead with ignorance and Reddit community follows the ignorance.
+
+
