@@ -627,6 +627,13 @@ ARAB_SPRING_2010 Facebook posting August 28, 2010 (During Ramadan 2010)
 
 <img width="768" height="853" alt="image" src="https://github.com/user-attachments/assets/e96e022b-6043-45db-b2ed-9756e0c90144" />
 
+* "The continued and complete avoidance of something gives away the very urgent necessity for - at some point - that very same thing to be discovered, delved deeply into, and actually utilised in your life. As such, the only way out of something is often to go into it... confront, it face it, and overcome." ~ Jacquelene Close Moore
+  * I find it interesting today 2026-02-25 Google Search finds only one single hit for "The continued and complete avoidance of something gives away the very urgent necessity for" (quoted) https://ReddeerAdvocate.com/2010/04/28/an-elephant-threatening-your-relationship/ from back in April 2010 when I was running across that quote on the Internet. The quote has essentially disappeared today.
+  * <img width="2013" height="988" alt="image" src="https://github.com/user-attachments/assets/5bf11827-5bab-4114-a227-f7b092ed7431" />
+  * "Jacquelene Close Moore, author of The Thin Book of Naming Elephants: How to Surface Undiscussables for Greater Organizational Success" GoodReads Quotes has only ONE single quote populated. https://www.goodreads.com/work/quotes/334486-the-thin-book-of-naming-elephants-how-to-surface-undiscussables-for-gre
+     * “You see what you expect to see. You see what you have the labels to see. You see what you have the skills to manage. Everything else is a blur.” ― Sue Annis Hammond, The Thin Book of Naming Elephants; How to Surface Undiscussables for Greater Organizational Success
+     * "Book by Andrea B. Mayfield and Sue Annis Hammond". So it seems back in year 2010 some person was claiming the quote? Or someone got it as a quote on another and didn't dig deep enough on author names?
+
 "This /r/CultReddit subreddit was created Friday, November 6, 2009. Based on decades of social media / Internet media observations on what people avoid... avoidance of topics, Turning Away, insults or becoming hateful" OBSERVE_SOCIAL_MEDIA_AVOIDING_NONFICTION OBSERVE_MEDIA_AVOIDANCE_OF_RELEVANT_NONFICTION
 
 https://old.reddit.com/r/Cultreddit/comments/pddm38/this_rcultreddit_subreddit_was_created_friday/hapafa4/
