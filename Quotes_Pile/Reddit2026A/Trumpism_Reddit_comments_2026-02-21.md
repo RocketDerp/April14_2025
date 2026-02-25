@@ -964,3 +964,6 @@ https://old.reddit.com/r/law/comments/1rdv94c/needs_to_die_man_vowed_to_take_out
 
 4 word Twitter-length Tweet-thinking 140 characters or less mindsets all over Reddit in February 2026 on the most important and serious topics of our time. The brain rot of adults in USA is horrific! People aren't even self-aware of their compulsive Elon Musk Twitter programmed mindsets.
 
+https://old.reddit.com/r/law/comments/1rdv94c/needs_to_die_man_vowed_to_take_out_trump_to_save/o787x7x/
+
+MICROPHONE_DROP "All I have to say" simple-think popular (media) street-gang signs and symbols. Anti-intellectual, messaging cult of ignorance gun worship on Reddit media. American gun-stroking GUN_WORSHIP and complete avoidance of nonfiction relevant books at the public library: https://en.wikipedia.org/wiki/The_Dangerous_Case_of_Donald_Trump - why is nobody on Reddit quoting Dr. Bandy X Lee's book published October 3, 2017? Because Trump is a cult leader and media system after media system has fallen into being a a celebration of anti-intellectualism cult venue. Adult education is horrible in USA society 2026.
