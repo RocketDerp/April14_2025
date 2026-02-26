@@ -162,3 +162,7 @@ https://old.reddit.com/r/law/comments/1resjjt/can_they_actually_do_this_jd_vance
 https://old.reddit.com/r/UnderReportedNews/comments/1res7tr/jd_vance_were_announcing_today_that_we_have/o7evi8q/
 
 1 month Reddit account. 2nd most popular upvoted comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+
+https://old.reddit.com/r/UnderReportedNews/comments/1res7tr/jd_vance_were_announcing_today_that_we_have/o7evzd6/
+
+5 month Reddit account. DENIAL_ABOUNDS so much psychological denial that mass dehumanization and antics haven't been the strategy all along. People behaving as if it is the first month of Trumpism. 
