@@ -289,5 +289,9 @@ https://old.reddit.com/r/news/comments/1rf829s/canadian_man_in_ice_custody_says_
 
 https://old.reddit.com/r/news/comments/1rf829s/canadian_man_in_ice_custody_says_he_thought/o7i0dzp/
 
+<img width="1060" height="256" alt="image" src="https://github.com/user-attachments/assets/ad81d240-db16-4b13-85ef-ace616cc9b10" />
+
 Reddit comment creators *ARE* the ICE_FANDOM that does not organize a REDDIT_BLACKOUT or other Internet protest. Too busy on Reddit pressing their touch-screen with low-information upvotes https://en.wikipedia.org/wiki/Low_information_voter Tiny-short 140 characters or less Tweet-thinking is the ICE fandom of ignorance and celebrating ICE as exciting "content" to *consume*.
 
+NEW_OPERA_NAME #NotResisting #FandomICE      
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mfrfbnuzok24 https://autistics.life/@RoundSparrow/116137367046149736 }   
