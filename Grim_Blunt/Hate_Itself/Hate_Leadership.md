@@ -26,11 +26,11 @@ You are not asleep., you consider yourself "Woke", but what exactly are you "wok
 
 1. The Catholic Church is a tradition of Pedophiles men abusing children
 
-2. *you follow **The Church** Pedophiles leaders
+2. *you follow* **The Church** Pedophiles **leaders**
 
 3. Mecca, Quran followers. Has nobody read Malala's book about the Taliban since year 2013?
 
-4. you follow Vlad Putin, you follow Donald Trump
+4. you **follow** Vlad Putin, you follow Donald Trump **leaders**
 
-What exactly are you WOKE To that attracts men to "alpha male" leaders of Church and State?
+What exactly are you WOKE To that attracts men and women to "alpha male" **leaders** of Church and State?
 
