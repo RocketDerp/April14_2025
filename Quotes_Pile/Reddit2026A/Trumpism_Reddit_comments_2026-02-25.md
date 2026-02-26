@@ -154,3 +154,7 @@ Social post { https://autistics.life/@RoundSparrow/116133639463474311 https://bs
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1rejddp/as_if_there_was_ever_any_doubt/o7d0pp2/
 
 "LMAO". Trump fans on Reddit. AMUSEMENT_COMEDY_WASHING_TRUMP_AS_FUNNY_MEDIA_SANEWASHING
+
+https://old.reddit.com/r/law/comments/1resjjt/can_they_actually_do_this_jd_vance_were/o7ew695/
+
+7 month Reddit account. Top-upvoted comment and account that submitted the front page posting. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
