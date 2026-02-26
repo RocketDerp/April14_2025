@@ -342,3 +342,8 @@ But people love fiction storytelling. Fiction outsells nonfiction. FICTION_OUTSE
 * "An intense experience of mystery is what one has to regard as the ultimate religious experience." - Power of Myth, year 1988, nonfiction book on paper! [You can fact-check this quote in another book, Healthy Religion: A Psychological Guide to a Mature Faith. Published July 26, 2006. Page 21](https://books.google.com/books?id=EHlMAhPMXycC&pg=PA21&dq=%22An+intense+experience+of+mystery+is+what+one+has+to+regard+as+the+ultimate+religious+experience.%22&hl=en&newbks=1&newbks_redir=1&sa=X&ved=2ahUKEwii-uH00PeSAxWcEDQIHQF9OaQQ6AF6BAgJEAM)
 
 A 4Chan media story mystery, "The Media" mystery of God Epstein / God Trump partners! Mythological driven society now in year 2026. Surkov won since March of year 2013.
+
+https://old.reddit.com/r/law/comments/1rfe8qq/4chan_knew_about_jeffrey_epsteins_death_38/o7jcw1f/
+
+The replies have off-Reddit links and citations. But notice the low-effort commenting that doesn't name any persons, no links, no quotes, just commenting upon commenting that people prize above all else. OBSERVE_MEDIA_AVOIDANCE_OF_RELEVANT_NONFICTION
+
