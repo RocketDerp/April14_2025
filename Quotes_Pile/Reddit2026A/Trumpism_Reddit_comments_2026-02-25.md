@@ -353,7 +353,10 @@ BIBLE_LITERACY And people using Reddit think low-information upvoting of simplis
 
 https://old.reddit.com/r/Music/comments/1rfcbfc/eric_ben%C3%A9t_just_called_jelly_roll_full_of_sh_on/o7iyc8v/
 
-5 word, under 140 characters, Twitter-thinking "at its finest." Anti-intellectual Reddit usage. Eating out of the hands of billionaire programming to avoid using media systems, like Jelly Roll didn't use his media systems at the Grammys microphone, on Reddit media not using written English to educate Bible literacy. WHEN_THE_PEOPLE_HAVE_LOST_THE_ABILITY
+<img width="968" height="251" alt="image" src="https://github.com/user-attachments/assets/4df7640f-1947-4fa3-a656-05d21c8133e8" />
 
+5 word, under 140 characters, Twitter-thinking "at its finest." Anti-intellectual Reddit media usage. Eating out of the hands of billionaire media programming to avoid using media systems, like Jelly Roll didn't use his media systems at the Grammys microphone, on Reddit media.. by not using written English to educate and assert Bible literacy. WHEN_THE_PEOPLE_HAVE_LOST_THE_ABILITY
 
+* BILL MOYERS: But if God is the god we have only imagined, how can we stand in awe of our own creation?
+CAMPBELL: How can we be terrified by a dream? You have to break past your image of God to get through to the connoted illumination. The psychologist Jung has a relevant saying: **“Religion is a defense against the experience of God.” The mystery has been reduced to a set of concepts and ideas**, and emphasizing these concepts and ideas can short-circuit the transcendent, connoted experience. An intense experience of mystery is what one has to regard as the ultimate religious experience. MOYERS: There are many Christians who believe that; to find out who Jesus is, you have to go past the Christian faith, past the Christian doctrine, past the Christian Church — CAMPBELL: You have to **go past the imagined image of Jesus**. Such an image of one’s god becomes a final obstruction, one’s ultimate barrier...
 
