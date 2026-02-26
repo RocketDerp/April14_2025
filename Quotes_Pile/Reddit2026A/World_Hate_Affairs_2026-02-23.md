@@ -228,3 +228,7 @@ UNIFIED_THEORY_FICTION_NONFICTION WarGames June 3, 1983 Artificial Intelligence 
 https://old.reddit.com/r/worldnews/comments/1renfrv/cuba_says_four_shot_dead_on_usregistered_speedboat/o7du5tp/
 
 2 month Reddit account. Top upvoted, most-popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+
+https://old.reddit.com/r/interestingasfuck/comments/1rfdmu4/eric_slover_the_first_chief_warrant_officer_5_to/o7k3703/
+
+World Affairs of following Power. 
