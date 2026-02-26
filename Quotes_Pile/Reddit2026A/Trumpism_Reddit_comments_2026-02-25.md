@@ -184,3 +184,7 @@ GUN_WORSHIP Fiction addicts cult vs. fiction addicts cult in no way addresses th
 https://old.reddit.com/r/videos/comments/1retbx5/breaking_jd_vance_announces_temporary_halt_to/o7f3irc/
 
 SUPERFICIAL_SHALLOW_PRIZING_TRUMPISM_MAGA_VALUES Reddit consumers will do anything and everything to avoid serious nonfiction books on paper that are relevant to the crisis and get on the same page. People are shallow and think all this is funny and adopt Trump name-calling and social media usage.
+
+https://old.reddit.com/r/circled/comments/1resakd/jd_vance_were_announcing_today_that_we_have/o7ev3hf/
+
+GULLIBILITY_CRISIS that never ends with Reddit fandom of White House.
