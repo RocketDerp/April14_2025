@@ -692,4 +692,15 @@ https://old.reddit.com/r/CringeNation/comments/1kkvu20/white_house_president_don
 
 https://old.reddit.com/r/CringeNation/comments/1jsy49y/elon_musk_makes_public_statements_that_the_advice/mlpzgkq/
 
+https://old.reddit.com/r/CuratedTumblr/comments/1kksriv/_/mrwz38j/
 
+GIVE_UP_ANTI_EDUCATION_ANTI_TEACH_ANTI_PROGRESS   
+TALIBAN_VALUES   
+MAGA_VALUES   
+
+Promoting gun worship and teaching children that violence is the reserved answer to problems. Don't die for peace, die for spreading violence. Go to Vietnam from North America and wage war. Let ignorance and hate win out! Ignore the February 28, 1954 equation from Dr. Martin Luther King Jr and prize hate and prize ignorance. Anti-intellectual pro-violence teachings. Keep passing down the NIGHTMARE_OF_HISTORY_ANTI_WOKE WOKE_TO_WHAT exactly?  
+
+* “History, Stephen said, is a nightmare from which I am trying to awake.” ― James Joyce, Ulysses
+
+REVIVE_OPERA_NAME #MoralityEducationCrisis #WhoTeachesMorality    
+Social post { https://autistics.life/@RoundSparrow/116137793505966827 https://bsky.app/profile/roundsparrow.bsky.social/post/3loyk7fuqjk2t }   
