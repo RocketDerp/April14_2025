@@ -171,3 +171,7 @@ https://old.reddit.com/r/videos/comments/1retbx5/breaking_jd_vance_announces_tem
 
 PREDICTABLE_OUTCOME kind of emotional mental stupor reactions. ANTICS_POLITICS reactions on Reddit day after day since June 16, 2015. Minds get driven deeper and deeper into denial of reality.
 
+https://old.reddit.com/r/videos/comments/1retbx5/breaking_jd_vance_announces_temporary_halt_to/o7ffq5q/
+
+GULLIBILITY_CRISIS people on Reddit are entirely unable to engage nonfiction and learn about Russian information warfare and Surkov governing. Constantly in denial that antics and shock are not deliberate organized techniques. SURKOVIAN_ONION_EATING
+
