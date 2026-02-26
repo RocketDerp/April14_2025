@@ -229,3 +229,8 @@ https://old.reddit.com/r/Fauxmoi/comments/1reywiw/sheryl_crow_i_am_past_hearing_
 
 "bro they are NAZIS" this ignorance. So is Swat Valley Pakistan in December 2008 Nazi Germany? Before year 1933 - there was nothing worse or as bad as Nazi Germany? IGNORANCE_CELEBRATIONS The Native Americans / First Peoples in North America and South America - was that Nazi Germany? It is programmed into your mind that the BRAND_NAME of evil is what matters more than recognizing the indoctrination and programming. Fox News HDTV, why does nobody on Reddit promote and mention Jen Senko's film from year 2015?
 
+https://old.reddit.com/r/Fauxmoi/comments/1reywiw/sheryl_crow_i_am_past_hearing_our_president_say/o7gbr99/
+
+"The MAGAts hate anyone who disagrees with them." - and the attackers on September 11, 2011 - 9/11 loved their enemy? HATE_THY_ENEMY preaching is all over Reddit. OUT_GROUP_HATE is Levant clergy values. Reddit users are unable to see the very education system of Reddit they are commenting on. People are so fixated on hate of Trump that their mind is corrupted in not seeing this as a universal education and teaching problem of human peoples anywhere in this world.
+
+
