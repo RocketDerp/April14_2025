@@ -208,3 +208,7 @@ CONSERVING_WHAT
 https://old.reddit.com/r/Economics/comments/1ren477/days_before_the_national_debt_is_due_to_hit_39/o7e4xe6/
 
 7 month Reddit account. Several replies all downplaying and normalizing. PROMOTING_IGNORANCE_WORKS_PLAYING_DUMB_MOCKING Observe that they do not give author name, nonfiction book title, quotes from any books, off-Reddit URL. Just commenting upon commenting.
+
+https://old.reddit.com/r/law/comments/1revkok/trump_accused_80000_americans_of_stealing_19b/o7fj2l9/
+
+Mobsters are very popular in films and television. Fiction outsells nonfiction. Extreme tiny-short commenting is the most popular upvoted, people are so entertained that they get to comment over and over and over year after year about Trump's White House.
