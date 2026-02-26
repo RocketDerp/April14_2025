@@ -212,3 +212,7 @@ https://old.reddit.com/r/Economics/comments/1ren477/days_before_the_national_deb
 https://old.reddit.com/r/law/comments/1revkok/trump_accused_80000_americans_of_stealing_19b/o7fj2l9/
 
 Mobsters are very popular in films and television. Fiction outsells nonfiction. Extreme tiny-short commenting is the most popular upvoted, people are so entertained that they get to comment over and over and over year after year about Trump's White House.
+
+https://old.reddit.com/r/Fauxmoi/comments/1reywiw/sheryl_crow_i_am_past_hearing_our_president_say/o7gbj35/
+
+Goodness is goodness. ANY_NATION_ANY_PEOPLES Why would any person think living in Ukraine or Russia right now is good for anyone. Why is Dr. Bandy X Lee's books on mental health voided by everyone on social media and "the media" (social media users who have time to post and comment) not promoting Dr. Lee's nonfiction books?
