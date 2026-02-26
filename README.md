@@ -70,4 +70,6 @@ We Can't Rewind. John 1:1 abounds Encrypted with Romans 11:32 ++
 
 They think, the thinking systems. We The People are thinking in ways that need to be addressed directly.
 
-* "The men implicated in the Epstein files reinforces that **I spend half my life explaining to men that their simplified**, optimistic view of other men doesn’t line up with the experience of women and girls trying to dodge sexual harassment, assault and abuse attempts." - Leslie Morgan Steiner
+* "The men implicated in the Epstein files reinforces that **I spend half my life explaining to men that their simplified**, optimistic view of other men doesn’t line up with the experience of women and girls trying to dodge sexual harassment, assault and abuse attempts." - [Leslie Morgan Steiner](https://www.Ted.com/talks/leslie_morgan_steiner_why_domestic_violence_victims_don_t_leave)
+
+... [50 Ways to Leave Your Cult Leader. 50 Ways to stop following bad ideas and values.](/Art/ScreenPlay/50_Ways/50_Ways_To_Leave_Your_Cult_Leader.md)
