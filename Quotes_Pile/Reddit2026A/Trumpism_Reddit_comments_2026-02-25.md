@@ -373,3 +373,11 @@ https://old.reddit.com/r/politics/comments/1rfdhm7/the_usa_mens_hockey_team_utte
 SPORTS_WASHING sports-mentality thinking patterns. I used to work as media systems analyst (Neil Postman, Marshall McLuhan) for Jody Allen / Paul Allen in Bellevue Washington in 1997, 1998, 1999 when they were sitting on more wealth than any people in the entire world. Purchasing NFL team, owners of NBA team, Microsoft Board of Directors app empire / operating system of society controllers. Jimi Hendrix museum creation. OPERA_A Are you Experienced, The Experience Music Project... https://www.youtube.com/watch?v=XxHS9lTUN4Y 3,532,987 views October 29, 2018 White People in Bellevue / Mercer Island learning from Black media culture. Lyrics: "But who in your measly little world, (-uh) **Are you tryin' to prove to that you're made out of gold and-uh, can't be sold?**" - Bellevue Redmond Trumpism values, IRA got to you all since March 2013. Lyrics: "Get your mind together" 
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mfrrapmuds2d https://autistics.life/@RoundSparrow/116138211764550161 }   
+
+https://old.reddit.com/r/comics/comments/1rfedvn/oc_the_likes_of_which_nobody_has_ever_seen_before/o7jgxzf/
+
+EPSTEIN_FANDOM This is the legacy for the entire brand of "USA", "United States of America"... because We The People on Reddit did not stand up to White House. In reality, Reddit is a FANDOM of EPSTEIN and TRUMP. There is no resisting, it is just low-information upvoting. https://en.wikipedia.org/wiki/Low_information_voter Avoidance of nonfiction relevant serious books on paper is every hour of every day for year after year on Reddit. This image itself is not RESISTING Trump, it isn't educating or teaching, it is low-information celebration, low-information voting of toxic popularity nation. It is Reddit community FOLLOWING Epstein and Trump and Putin leaderships, not resisting, not defending.
+
+
+NEW_OPERA_NAME #USALegacy #UnitedStatesOfAmericaLegacy #LegacyUSA      
+Social post { https://autistics.life/@RoundSparrow/116138577714960075 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfrwjbcdic2p }   
