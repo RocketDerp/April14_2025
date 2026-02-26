@@ -407,3 +407,7 @@ https://old.reddit.com/r/law/comments/1rfii0y/donald_trump_considers_using_natio
 https://old.reddit.com/r/agedlikemilk/comments/1rfgri9/so_much_for_the_party_of_peace/o7jv2s3/
 
 REMEMBER_THE_PROGRAM_IDEAS_BILLIONAIRES_FED_REDDIT_AUDIENCE - repeating them over and over on low-information upvoting platform. https://en.wikipedia.org/wiki/Low_information_voter - the brain rot is horrific on Reddit and using the extreme low-bar measure of Twitter-think, consuming Twitter screen shots on Reddit. Nothing can escape, get us out of the feedback loop mindsets, what the IRA unleashed in March 2013. Surkov won.
+
+https://old.reddit.com/r/interestingasfuck/comments/1rfo73e/65_year_old_woman_calls_in_and_nearly_breaks/o7ljvsd/
+
+9 month Reddit account. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT Top-upvoted comment, most popular, 140 character Elon Musk Tweet-mindsets. Simplistic statement that does not resist or organize on the ongoing crisis. CALL_TO_INTELLECTUAL_ACTION_PLAN Please stop promoting Luigi and think this is ONLY a health care crisis. Promote the JANUARY_1944_SECOND_BILL_OF_RIGHTS as food, housing, health care, university. But people love the "Luigi" kill CEO joking on Reddit instead. Anti-intellectual, eating right out of the Musk mindsets.
