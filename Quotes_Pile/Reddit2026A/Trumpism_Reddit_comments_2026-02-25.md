@@ -299,3 +299,7 @@ Reddit comment creators *ARE* the ICE_FANDOM that does not organize a REDDIT_BLA
 
 NEW_OPERA_NAME #NotResisting #FandomICE      
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mfrfbnuzok24 https://autistics.life/@RoundSparrow/116137367046149736 }   
+
+https://old.reddit.com/r/TrendoraX/comments/1rf9t7k/do_you_expect_explosive_testimony_or/o7idgw0/
+
+EPSTEIN_FANDOM with the most-popular upvoted comment. DENIAL_ABOUNDS what is happening is that Donald Trump is the center of society media systems, including Reddit media. People are making comments, millions and millions and millions of low-effort comments and images. It is so engaging, the INFORMATION_STRIP_TEASE - that is what is happening. people are spending their free time, spare time, extra time on social systems commenting and commenting and commenting about rich white old men. WE THE PEOPLE are the problem. Why are people NOT commenting about the 27 people Dr. Bandy X Lee organized in her October 3, 2017 book about the mental health public education topics around Donald Trump? And why millions, hundreds of millions, of ignorant people in USA don't grasp why Donald Trump is dangerous? Why are people seeking more and more low-effort anti-learning commenting instead of serious nonfiction learning on books, printed on paper?
