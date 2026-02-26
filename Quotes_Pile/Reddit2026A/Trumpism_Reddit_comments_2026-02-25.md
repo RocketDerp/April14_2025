@@ -351,5 +351,9 @@ https://old.reddit.com/r/Music/comments/1rfcbfc/eric_ben%C3%A9t_just_called_jell
 
 BIBLE_LITERACY And people using Reddit think low-information upvoting of simplistic questions isn't part of the Bible anti-understanding comprehension crisis. Reddit is the breeding venue for mockery and anti-comprehension. https://en.wikipedia.org/wiki/Low_information_voter
 
+https://old.reddit.com/r/Music/comments/1rfcbfc/eric_ben%C3%A9t_just_called_jelly_roll_full_of_sh_on/o7iyc8v/
+
+5 word, under 140 characters, Twitter-thinking "at its finest." Anti-intellectual Reddit usage. Eating out of the hands of billionaire programming to avoid using media systems, like Jelly Roll didn't use his media systems at the Grammys microphone, on Reddit media not using written English to educate Bible literacy. WHEN_THE_PEOPLE_HAVE_LOST_THE_ABILITY
+
 
 
