@@ -285,3 +285,9 @@ ICE_FANDOM on Reddit is thrilled to have these news stories to comment upon.
 
 https://old.reddit.com/r/news/comments/1rf829s/canadian_man_in_ice_custody_says_he_thought/o7i0hvz/
 
+https://old.reddit.com/r/news/comments/1rf829s/canadian_man_in_ice_custody_says_he_thought/o7i5n91/
+
+https://old.reddit.com/r/news/comments/1rf829s/canadian_man_in_ice_custody_says_he_thought/o7i0dzp/
+
+Reddit comment creators *ARE* the ICE_FANDOM that does not organize a REDDIT_BLACKOUT or other Internet protest. Too busy on Reddit pressing their touch-screen with low-information upvotes https://en.wikipedia.org/wiki/Low_information_voter Tiny-short 140 characters or less Tweet-thinking is the ICE fandom of ignorance and celebrating ICE as exciting "content" to *consume*.
+
