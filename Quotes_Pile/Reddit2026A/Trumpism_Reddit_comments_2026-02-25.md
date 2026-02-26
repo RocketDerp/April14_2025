@@ -335,3 +335,8 @@ https://old.reddit.com/r/law/comments/1rfe8qq/4chan_knew_about_jeffrey_epsteins_
 
 MEDIA_WOKE comment and some of the replies to this comment - but HEY, the Reddit cult of ignorance got this thrilling EPSTEIN_FANDOM story to the front page of /r/All - **Neil Postman's 1985 book "Amusing Ourselves to Death" explains the crisis of USA Trumpism MAGA society** - high-speed reactionary mindsets from blazing fast media devices. Low-information upvoter on Reddit media. https://en.Wikipedia.org/wiki/Low_information_voter SOCIAL_MEDIA_SOCIETY 
 
+https://old.reddit.com/r/law/comments/1rfe8qq/4chan_knew_about_jeffrey_epsteins_death_38/o7je2h9/
+
+But people love fiction storytelling. Fiction outsells nonfiction. FICTION_OUTSELLS_NONFICTION Reddit community is ALWAYS AVOIDING: Dr. Bandy X Lee's nonfiction serious book, printed on paper, since October 3, 2017 that should be repeated every day in commenting... why is Reddit commenting community spending free time and spare time AVOIDING quoting Dr Lee's books? ANSWER: it isn't entertaining and thrilling! it isn't mythology and fiction stories! Trump is a GOD for media cults, Epstein is a GOD of women for media cults.
+
+* "An intense experience of mystery is what one has to regard as the ultimate religious experience." - Power of Myth, year 1988, nonfiction book on paper!
