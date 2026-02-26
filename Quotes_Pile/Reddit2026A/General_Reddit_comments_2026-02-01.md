@@ -890,3 +890,7 @@ JAMES_JOYCE_LESSON "And the noise of the modern human mind, it seems to me, is a
 https://old.reddit.com/r/ayearofulysses/comments/1rdeerb/feb24_ulysses_episode_7_aeolus_part_12/o74jskv/
 
 SINGSONG_JOYCEAN
+
+https://old.reddit.com/r/nottheonion/comments/1rfl8x8/pope_leo_demands_priests_stop_using_ai_to_write/o7kvnrb/
+
+BIBLE_LITERACY 
