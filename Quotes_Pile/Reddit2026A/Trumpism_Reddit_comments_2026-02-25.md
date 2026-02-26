@@ -347,3 +347,9 @@ https://old.reddit.com/r/law/comments/1rfe8qq/4chan_knew_about_jeffrey_epsteins_
 
 The replies have off-Reddit links and citations. But notice the low-effort commenting that doesn't name any persons, no links, no quotes, just commenting upon commenting that people prize above all else. OBSERVE_MEDIA_AVOIDANCE_OF_RELEVANT_NONFICTION
 
+https://old.reddit.com/r/Music/comments/1rfcbfc/eric_ben%C3%A9t_just_called_jelly_roll_full_of_sh_on/o7j1tb7/
+
+BIBLE_LITERACY And people using Reddit think low-information upvoting of simplistic questions isn't part of the Bible anti-understanding comprehension crisis. Reddit is the breeding venue for mockery and anti-comprehension. https://en.wikipedia.org/wiki/Low_information_voter
+
+
+
