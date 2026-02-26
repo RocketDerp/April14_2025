@@ -69,3 +69,5 @@ We Can't Rewind. John 1:1 abounds Encrypted with Romans 11:32 ++
 * Year 2013: "They think that God is a tiny, **little conservative being who would point guns at people's heads** just for going to school." - [**July 12, 2013**. ملاله یوسفزۍ ](https://midwest.social/post/43495283)
 
 They think, the thinking systems. We The People are thinking in ways that need to be addressed directly.
+
+* "The men implicated in the Epstein files reinforces that **I spend half my life explaining to men that their simplified**, optimistic view of other men doesn’t line up with the experience of women and girls trying to dodge sexual harassment, assault and abuse attempts." - Leslie Morgan Steiner
