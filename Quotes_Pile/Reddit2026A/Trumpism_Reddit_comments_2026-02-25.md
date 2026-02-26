@@ -216,3 +216,7 @@ Mobsters are very popular in films and television. Fiction outsells nonfiction. 
 https://old.reddit.com/r/Fauxmoi/comments/1reywiw/sheryl_crow_i_am_past_hearing_our_president_say/o7gbj35/
 
 Goodness is goodness. ANY_NATION_ANY_PEOPLES Why would any person think living in Ukraine or Russia right now is good for anyone. Why is Dr. Bandy X Lee's books on mental health voided by everyone on social media and "the media" (social media users who have time to post and comment) not promoting Dr. Lee's nonfiction books?
+
+https://old.reddit.com/r/Fauxmoi/comments/1reywiw/sheryl_crow_i_am_past_hearing_our_president_say/o7gbhxa/
+
+We are nearing February 28, 1954 Sunday Martin Luther King Jr lecture. Alas, people have such extreme RECENCY_BIAS they do not turn to writings and teaching before Trump consumed all information attention.
