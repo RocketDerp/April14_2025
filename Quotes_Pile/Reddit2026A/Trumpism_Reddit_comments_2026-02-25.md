@@ -282,3 +282,6 @@ OUTSMARTED_TRICKED_MANIPULATED_BAMBOOZLED_BY_TRUMP_MURDOCH_PUTIN Yes. People kee
 https://old.reddit.com/r/news/comments/1rf829s/canadian_man_in_ice_custody_says_he_thought/o7i55sl/
 
 ICE_FANDOM on Reddit is thrilled to have these news stories to comment upon.
+
+https://old.reddit.com/r/news/comments/1rf829s/canadian_man_in_ice_custody_says_he_thought/o7i0hvz/
+
