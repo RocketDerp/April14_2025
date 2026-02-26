@@ -886,3 +886,7 @@ https://old.reddit.com/r/interesting/comments/1rf9x1g/a_woman_in_florida_selling
 https://old.reddit.com/r/ayearofulysses/comments/1rdeerb/feb24_ulysses_episode_7_aeolus_part_12/o759bam/
 
 JAMES_JOYCE_LESSON "And the noise of the modern human mind, it seems to me, is amplified by media" - very Marshall McLuhan University of Toronto perspective on James Joyce! "a loud and noisy passage. Besides all the shunting, clanking, thumping, and throbbing of the nonhuman mechanical world (“the loud unanswering machines”), there is also the noise of the human mind. It’s a cacophony, too" - very much THIS_GITHUB criticism of machine mindsets and media digital delivery.
+
+https://old.reddit.com/r/ayearofulysses/comments/1rdeerb/feb24_ulysses_episode_7_aeolus_part_12/o74jskv/
+
+SINGSONG_JOYCEAN
