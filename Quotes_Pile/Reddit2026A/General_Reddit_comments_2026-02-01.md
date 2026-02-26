@@ -878,3 +878,8 @@ FICTION_OUTSELLS_NONFICTION the billionaires provide! Fiction video generations 
 https://old.reddit.com/r/interesting/comments/1rf9x1g/a_woman_in_florida_selling_rare_and_expensive/o7if441/
 
 10 month Reddit account. Most-popular upvoted comment. Well within the 140 character Twitter-thinking mindset limit commenting. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+
+https://old.reddit.com/r/interesting/comments/1rf9x1g/a_woman_in_florida_selling_rare_and_expensive/o7icvhh/
+
+1 month Reddit account. Second most-popular upvoted comment. Well within the 140 character Twitter-thinking mindset limit commenting. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT Learning from the 10-month Elder success on Reddit. This comment is even shorter! Celebrating the Ignorance in Florida via commenting celebrations. IGNORANCE_CELEBRATIONS 
+
