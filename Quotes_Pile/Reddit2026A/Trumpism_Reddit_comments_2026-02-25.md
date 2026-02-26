@@ -360,3 +360,10 @@ https://old.reddit.com/r/Music/comments/1rfcbfc/eric_ben%C3%A9t_just_called_jell
 * BILL MOYERS: But if God is the god we have only imagined, how can we stand in awe of our own creation?
 CAMPBELL: How can we be terrified by a dream? You have to break past your image of God to get through to the connoted illumination. The psychologist Jung has a relevant saying: **“Religion is a defense against the experience of God.” The mystery has been reduced to a set of concepts and ideas**, and emphasizing these concepts and ideas can short-circuit the transcendent, connoted experience. An intense experience of mystery is what one has to regard as the ultimate religious experience. MOYERS: There are many Christians who believe that; to find out who Jesus is, you have to go past the Christian faith, past the Christian doctrine, past the Christian Church — CAMPBELL: You have to **go past the imagined image of Jesus**. Such an image of one’s god becomes a final obstruction, one’s ultimate barrier...
 
+https://old.reddit.com/r/politics/comments/1rfdhm7/the_usa_mens_hockey_team_utterly_failed_to_meet/o7j53br/
+
+5-month Reddit account, top-upvoted most popular comment. Not even 140 character limit thinking as programmed by Elon Musk, richest man in the world with a Tweet-thinking program media empire. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+
+https://old.reddit.com/r/politics/comments/1rfdhm7/the_usa_mens_hockey_team_utterly_failed_to_meet/o7j51ml/
+
+It speaks to the microphone media addiction of the White House fandom. The attraction of MAGA_FANDOM that draws the Reddit commenting community again and again and again since June 16, 2015 start of the race to capture that White House media platform. MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL
