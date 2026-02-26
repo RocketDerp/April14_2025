@@ -330,3 +330,8 @@ https://old.reddit.com/r/law/comments/1rfe8qq/4chan_knew_about_jeffrey_epsteins_
 https://old.reddit.com/r/law/comments/1rfe8qq/4chan_knew_about_jeffrey_epsteins_death_38/o7jeplo/
 
 This is **how critical important problems are normalized**. As long as it is amusing and entertaining to fandoms on Reddit! JOKE_COMEDY_POWER_IS_MAGA_IS_TRUMP_IS_SURKOV
+
+https://old.reddit.com/r/law/comments/1rfe8qq/4chan_knew_about_jeffrey_epsteins_death_38/o7jdj2l/
+
+MEDIA_WOKE comment and some of the replies to this comment - but HEY, the Reddit cult of ignorance got this thrilling EPSTEIN_FANDOM story to the front page of /r/All - **Neil Postman's 1985 book "Amusing Ourselves to Death" explains the crisis of USA Trumpism MAGA society** - high-speed reactionary mindsets from blazing fast media devices. Low-information upvoter on Reddit media. https://en.Wikipedia.org/wiki/Low_information_voter SOCIAL_MEDIA_SOCIETY 
+
