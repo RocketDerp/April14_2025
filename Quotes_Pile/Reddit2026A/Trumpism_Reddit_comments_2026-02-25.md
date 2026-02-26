@@ -166,3 +166,8 @@ https://old.reddit.com/r/UnderReportedNews/comments/1res7tr/jd_vance_were_announ
 https://old.reddit.com/r/UnderReportedNews/comments/1res7tr/jd_vance_were_announcing_today_that_we_have/o7evzd6/
 
 5 month Reddit account. DENIAL_ABOUNDS so much psychological denial that mass dehumanization and antics haven't been the strategy all along. People behaving as if it is the first month of Trumpism. 
+
+https://old.reddit.com/r/videos/comments/1retbx5/breaking_jd_vance_announces_temporary_halt_to/o7f2nrk/
+
+PREDICTABLE_OUTCOME kind of emotional mental stupor reactions. ANTICS_POLITICS reactions on Reddit day after day since June 16, 2015. Minds get driven deeper and deeper into denial of reality.
+
