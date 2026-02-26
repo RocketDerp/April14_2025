@@ -61,3 +61,12 @@ So now I seem censored on YouTube across the board, I've tried 4 times, with com
 
 https://www.youtube.com/watch?v=HCc4eRtu4Yw
 
+&nbsp;
+
+Got another reply on the thread
+
+<img width="948" height="307" alt="Screenshot from 2026-02-26 11-03-24" src="https://github.com/user-attachments/assets/e9d2d90c-9581-4b6f-bcc6-ba54c1d932a5" />
+
+@OyVeey replied: "​@lindsay6518that really doesn't contradict anything they said. An idiot can still tell compelling stories."
+
+Which gets to a point Trump-Fixated people can't see to grasp: If Trump is such "an idiot", why is he the center of every media system in the USA? Why is he on every media platform hour upon hour, day upon day, year upon year, decade upon decade? Why is Trump always getting his words and acting on every media system and network. Why is an entire population glued to Trump content media? MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL
