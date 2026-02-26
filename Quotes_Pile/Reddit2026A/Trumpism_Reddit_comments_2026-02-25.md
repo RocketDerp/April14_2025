@@ -403,3 +403,7 @@ Top-popular most-upvoted comment. Not even 140 characters. REMEMBER_THE_PROGRAM_
 https://old.reddit.com/r/law/comments/1rfii0y/donald_trump_considers_using_national_emergency/o7kcedz/
 
 6 words. not even 140 characters. We The People need to have a SOCIAL MEDIA UPRISING to take MEDIA EDUCATION control of the runway Elon Musk Twitter-length mindsets. BRAIN_ROT_SOCIETY_47 
+
+https://old.reddit.com/r/agedlikemilk/comments/1rfgri9/so_much_for_the_party_of_peace/o7jv2s3/
+
+REMEMBER_THE_PROGRAM_IDEAS_BILLIONAIRES_FED_REDDIT_AUDIENCE - repeating them over and over on low-information upvoting platform. https://en.wikipedia.org/wiki/Low_information_voter - the brain rot is horrific on Reddit and using the extreme low-bar measure of Twitter-think, consuming Twitter screen shots on Reddit. Nothing can escape, get us out of the feedback loop mindsets, what the IRA unleashed in March 2013. Surkov won.
