@@ -43,4 +43,4 @@ Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mfrsxrxahk
 &nbsp;
 
 * "The men implicated in the Epstein files **reinforces that I spend half my life explaining to men that their simplified**, optimistic view of other men doesn’t line up with the experience of women and girls trying to dodge sexual harassment, assault and abuse attempts." - Leslie Morgan Steiner
-* * https://bsky.app/profile/minguseyes.bsky.social/post/3mfmp4e42sc2c
+  * https://bsky.app/profile/minguseyes.bsky.social/post/3mfmp4e42sc2c
