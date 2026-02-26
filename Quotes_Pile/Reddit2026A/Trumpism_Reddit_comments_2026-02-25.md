@@ -318,3 +318,7 @@ Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mfrmdpw5zk
 https://old.reddit.com/r/Fauxmoi/comments/1rfb3wa/hilary_knight_of_usa_womens_hockey_team_on_donald/o7iqkmp/
 
 140 characters of less thinking. Celebrity sports star with fame. "It's not my responsibility" - every Reality TV fan, every social media society fan's favorite message. Every Mosque fan favorite message, "It's Gods Fault", Allah's fault. Every Church person's favorite message. STAND_UP_FOR_FAMOUS_CELEBRITY_AND_SOCIALLY_POWERFUL_BIG_GUYS
+
+https://old.reddit.com/r/Fauxmoi/comments/1rfb3wa/hilary_knight_of_usa_womens_hockey_team_on_donald/o7irafr/
+
+11 day Reddit account. Popular comment. Audience of Reddit programming: *GIVE UP*, Don't teach morality to a nation that has no morals. STAND_UP_FOR_FAMOUS_CELEBRITY_AND_SOCIALLY_POWERFUL_BIG_GUYS "A shitty joke done by shitty people. What more is there to say?" ANSWER: remedial morality lessons for a Twitter-driven Tweet-thinking nation with MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL - ignore the media crisis of "The Media" she is putting on the front page of Reddit media video world wide USA coverage of The Olympics and Trump celebrity!
