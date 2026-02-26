@@ -18,7 +18,7 @@ REVIVE_OPERA_NAME #LiarsAsLeaders
 
 I have avoided this word and fixation people have on this word. But The World of John 1:1 needs to be addressed, so dive in I go.
 
-NEW_OPERA_NAME #PowerfulMenSexGames #PedophilesRunTheChurch #PedophilesRunMecca #PedophilesAsLeaders #PedophilesFollowers #AttractionToTrump #FWakeAttractionTo 
+&nbsp;
 
 # Woke to What, EXACTLY?
 
@@ -34,3 +34,8 @@ You are not asleep., you consider yourself "Woke", but what exactly are you "wok
 
 What exactly are you WOKE To that attracts men and women to "alpha male" **leaders** of Church and State?
 
+&nbsp;
+
+
+NEW_OPERA_NAME #PowerfulMenSexGames #PedophilesRunTheChurch #PedophilesRunMecca #PedophilesAsLeaders #PedophilesFollowers #AttractionToTrump #FWakeAttractionTo  
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mfrsxrxahk2d https://autistics.life/@RoundSparrow/116138332088563725 }   
