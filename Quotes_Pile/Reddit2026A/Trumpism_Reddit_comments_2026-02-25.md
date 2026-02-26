@@ -188,3 +188,7 @@ SUPERFICIAL_SHALLOW_PRIZING_TRUMPISM_MAGA_VALUES Reddit consumers will do anythi
 https://old.reddit.com/r/circled/comments/1resakd/jd_vance_were_announcing_today_that_we_have/o7ev3hf/
 
 GULLIBILITY_CRISIS that never ends with Reddit fandom of White House.
+
+https://old.reddit.com/r/circled/comments/1resakd/jd_vance_were_announcing_today_that_we_have/o7evpcn/
+
+3 month Reddi account. ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING
