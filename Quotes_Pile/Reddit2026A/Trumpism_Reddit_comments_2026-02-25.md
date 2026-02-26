@@ -264,3 +264,12 @@ https://old.reddit.com/r/BlackPeopleofReddit/comments/1rf7gsv/tallahassee_office
 6 month Reddit account. Top-voted most popular comment. 140 characters or less Twitter-thinking tone and style of communication. Declares "facts" without any citation, off-Reddit link, author name, or quote. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT the popularity of this comment being the top if very alarming. Stating it like it is a personal opinion. THE GULLIBILITY_CRISIS in USA is to accept Reddit commenting as adult learning without downvoting claims that do not provide evidence. Do you live next door to Calvin Riley? Or are you a consumer of general social media that in February 2026 finds it incredibly popular to make 140 character or less comments that do not provide sources and facts with dates and details... SOCIAL_MEDIA_SOCIETY is why Trump is in power. People avoiding nonfiction fact-checking. Right there when pressing upvote on Reddit. Low information upvoters.  https://en.wikipedia.org/wiki/Low_information_voter
 
 "Jury finds Florida man featured in viral video guilty of driving under the influence"; "Edited police body worn camera footage of Calvin Riley’s 2023 arrest by Tallahassee Police Department officers made the rounds on social media, appearing to show an officer open a bottle of liquor, pour out the contents and place it back inside Riley’s vehicle as evidence."; "Riley, 56, was sentenced to spend 10 days in the Leon County Jail. He was also sentenced to six months of probation. As part of his sentence, Riley must also attend a DUI course, perform 50 hours of community service, participate in random breathalyzer tests and his driver’s license will be suspended for six months." https://www.cnn.com/2024/04/08/us/florida-man-dui-tallahassee-viral April 8, 2024
+
+https://old.reddit.com/r/news/comments/1rf829s/canadian_man_in_ice_custody_says_he_thought/o7i1as5/
+
+"funny", so amusing! PEOPLE_LOVE_COMEDY_MEDIA_CONTENT_MORE_THAN_PLURIBUS_HUMANISM
+
+https://old.reddit.com/r/news/comments/1rf829s/canadian_man_in_ice_custody_says_he_thought/o7i04ip/
+
+"As much as people like enjoying the consequences of the “well I never thought it would happen to me!” crowd" ENJOYMENT_OF_TRUMP_AND_MAGA_VALUES Yes, and people on Reddit are a FANDOM to Trump values and ICE. This is ICE_FANDOM enjoyment on Reddit media venue. Trump created ICE and people FOLLOW the leader, being hate-filled is the leadership people follow. FOLLOWERS_OF_LEADER_TRUMP_ACTOR_ENTERTAINER_DONALD_TRUMP_FOLLOWERS
+
