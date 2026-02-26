@@ -399,3 +399,7 @@ https://old.reddit.com/r/technology/comments/1rfarv2/burger_king_will_use_ai_to_
 https://old.reddit.com/r/law/comments/1rfii0y/donald_trump_considers_using_national_emergency/o7k9rve/
 
 Top-popular most-upvoted comment. Not even 140 characters. REMEMBER_THE_PROGRAM_IDEAS_BILLIONAIRES_FED_REDDIT_AUDIENCE - Reddit should REMEMBER what the billionaires programmed you to remember. This Reddit comment message is in no way *resisting* the billionaires. 
+
+https://old.reddit.com/r/law/comments/1rfii0y/donald_trump_considers_using_national_emergency/o7kcedz/
+
+6 words. not even 140 characters. We The People need to have a SOCIAL MEDIA UPRISING to take MEDIA EDUCATION control of the runway Elon Musk Twitter-length mindsets. BRAIN_ROT_SOCIETY_47 
