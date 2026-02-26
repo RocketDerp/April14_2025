@@ -46,3 +46,6 @@ Joseph Campbell said.. this is the mythology of the goddess The Goddess in woman
 Ok, the clip;
 
 "I think what happened in our mythology is that the symbols, the mythological archetypal symbols, became interpreted as facts. I think it starts with the Old Testament. I think with the Old Testament God is a fact, not a symbol. And the Holy Land is that place, and no other. And man is superior to their beasts and nature is fallen. With the fall in the Garden of Eden, nature is corrupt. So we do not give ourselves to nature. We will correct nature. There is GOOD and EVIL in nature. And we are supposed to be on the side of the good. So there is a tension. You don't yield to nature. What else do you have to worship? Some figment of your imagination that you've put up in the clouds. And so we have lost the symbols. Meanwhile, we need the symbols. And they come up in disturbed dreams and nightmares and so forth"
+
+NEW_OPERA_NAME (new to Mastodon) REVIVE_OPERA_NAME #TheFallOf    
+Social post { https://autistics.life/@RoundSparrow/116137746513606201 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfrl6aqb6k24 }   
