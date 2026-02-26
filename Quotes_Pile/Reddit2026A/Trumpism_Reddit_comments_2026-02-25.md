@@ -204,3 +204,7 @@ Robert De Niro's statements are BEYOND_DENIAL he isn't blind to it. Alas, the Re
 https://old.reddit.com/r/Economics/comments/1ren477/days_before_the_national_debt_is_due_to_hit_39/o7eep3e/
 
 CONSERVING_WHAT 
+
+https://old.reddit.com/r/Economics/comments/1ren477/days_before_the_national_debt_is_due_to_hit_39/o7e4xe6/
+
+7 month Reddit account. Several replies all downplaying and normalizing. PROMOTING_IGNORANCE_WORKS_PLAYING_DUMB_MOCKING Observe that they do not give author name, nonfiction book title, quotes from any books, off-Reddit URL. Just commenting upon commenting.
