@@ -367,3 +367,7 @@ https://old.reddit.com/r/politics/comments/1rfdhm7/the_usa_mens_hockey_team_utte
 https://old.reddit.com/r/politics/comments/1rfdhm7/the_usa_mens_hockey_team_utterly_failed_to_meet/o7j51ml/
 
 It speaks to the microphone media addiction of the White House fandom. The attraction of MAGA_FANDOM that draws the Reddit commenting community again and again and again since June 16, 2015 start of the race to capture that White House media platform. MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL
+
+https://old.reddit.com/r/politics/comments/1rfdhm7/the_usa_mens_hockey_team_utterly_failed_to_meet/o7j886y/
+
+SPORTS_WASHING sports-mentality thinking patterns. I used to work as media systems analyst (Neil Postman, Marshall McLuhan) for Jody Allen / Paul Allen in Bellevue Washington in 1997, 1998, 1999 when they were sitting on more wealth than any people in the entire world. Purchasing NFL team, owners of NBA team, Microsoft Board of Directors app empire / operating system of society controllers. Jimi Hendrix museum creation. OPERA_A Are you Experienced, The Experience Music Project... https://www.youtube.com/watch?v=XxHS9lTUN4Y White People in Bellevue / Mercer Island learning from Black media culture.
