@@ -220,3 +220,12 @@ Goodness is goodness. ANY_NATION_ANY_PEOPLES Why would any person think living i
 https://old.reddit.com/r/Fauxmoi/comments/1reywiw/sheryl_crow_i_am_past_hearing_our_president_say/o7gbhxa/
 
 We are nearing February 28, 1954 Sunday Martin Luther King Jr lecture. Alas, people have such extreme RECENCY_BIAS they do not turn to writings and teaching before Trump consumed all information attention.
+
+https://old.reddit.com/r/Fauxmoi/comments/1reywiw/sheryl_crow_i_am_past_hearing_our_president_say/o7gco0x/
+
+ANY_NATION_ANY_PEOPLES people in USA don't stand up for Ukraine, Russia under Putin, Sudan, Afghanistan, Iran - why would ANYONE think that ANYONE would desire living in shit values? The ignorance displayed on Reddit that someone is "winning" living in hate. GARBAGE_IN_GARBAGE_OUT - Reddit community does not want to face how much Reddit community itself has changed since year 2012. Propaganda and advertising and marketing work and not standing up for goodness itself and thinking it is fine that others suffer is badness. The pandemic January 2020 was the wake-up call that there were no fire drill or teaching in school for a disease outbreak! Year 1918 pandemic was not a rumor, it was real history, yet people  are more prepared for the death party of Donald Trump than they are prepared for a disease outbreak. May as well prepare for Heaven after death like religion has had people doing for thousands of years when people can't see how predictable diseases are spreading. Never forget August 24, 2018 and the denial people have of the influence of Twitter https://www.bbc.com/news/world-us-canada-45294192
+
+https://old.reddit.com/r/Fauxmoi/comments/1reywiw/sheryl_crow_i_am_past_hearing_our_president_say/o7gfqyz/
+
+"bro they are NAZIS" this ignorance. So is Swat Valley Pakistan in December 2008 Nazi Germany? Before year 1933 - there was nothing worse or as bad as Nazi Germany? IGNORANCE_CELEBRATIONS The Native Americans / First Peoples in North America and South America - was that Nazi Germany? It is programmed into your mind that the BRAND_NAME of evil is what matters more than recognizing the indoctrination and programming. Fox News HDTV, why does nobody on Reddit promote and mention Jen Senko's film from year 2015?
+
