@@ -303,3 +303,8 @@ Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mfrfbnuzok
 https://old.reddit.com/r/TrendoraX/comments/1rf9t7k/do_you_expect_explosive_testimony_or/o7idgw0/
 
 EPSTEIN_FANDOM with the most-popular upvoted comment. DENIAL_ABOUNDS what is happening is that Donald Trump is the center of society media systems, including Reddit media. People are making comments, millions and millions and millions of low-effort comments and images. It is so engaging, the INFORMATION_STRIP_TEASE - that is what is happening. people are spending their free time, spare time, extra time on social systems commenting and commenting and commenting about rich white old men. WE THE PEOPLE are the problem. Why are people NOT commenting about the 27 people Dr. Bandy X Lee organized in her October 3, 2017 book about the mental health public education topics around Donald Trump? And why millions, hundreds of millions, of ignorant people in USA don't grasp why Donald Trump is dangerous? Why are people seeking more and more low-effort anti-learning commenting instead of serious nonfiction learning on books, printed on paper?
+
+https://old.reddit.com/r/TrendoraX/comments/1rf9t7k/do_you_expect_explosive_testimony_or/o7idzo1/
+
+The EPSTEIN_FANDOM on Reddit wants to comment about old white men. Old white men Clinton, old white man Trump. Over and over 140 characters or less upvoted to the top of Reddit fandom venue. "should tell you everything" - about the ignorance and gullibility crisis in USA. SOCIAL_MEDIA_SOCIETY Low-information-upvotes https://en.wikipedia.org/wiki/Low_information_voter who prize ANYTHING but serious nonfiction organized books printed on paper. Such as Dr. Bandy X Lee's October 3, 2017 book with 27 contributors.
+
