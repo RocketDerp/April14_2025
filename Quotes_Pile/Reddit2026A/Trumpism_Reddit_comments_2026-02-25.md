@@ -200,3 +200,7 @@ https://old.reddit.com/r/BlackPeopleofReddit/comments/1resrru/tax_funded_racism/
 https://old.reddit.com/r/PublicFreakout/comments/1rejqz7/robert_de_niro_we_all_love_our_country_i_choke_on/o7d2yet/
 
 Robert De Niro's statements are BEYOND_DENIAL he isn't blind to it. Alas, the Reddit community just keeps returning to amusement as usual to normalize the situaiton. No call for Internet uprising, no call for Reddit blackout. Just calls for violence with guns.  We the  People have to stand on the world stage, WWW, on a scale never seen before and persist - calling for intellectual thinking reform of EVERYONE. Trump's July 6, 2011 entry into Twitter should be a central focus of how this all god so terribly bad with 140 character mindsets. Neil Postman was correct in his 1985 book.
+
+https://old.reddit.com/r/Economics/comments/1ren477/days_before_the_national_debt_is_due_to_hit_39/o7eep3e/
+
+CONSERVING_WHAT 
