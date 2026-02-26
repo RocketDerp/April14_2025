@@ -410,4 +410,9 @@ REMEMBER_THE_PROGRAM_IDEAS_BILLIONAIRES_FED_REDDIT_AUDIENCE - repeating them ove
 
 https://old.reddit.com/r/interestingasfuck/comments/1rfo73e/65_year_old_woman_calls_in_and_nearly_breaks/o7ljvsd/
 
-9 month Reddit account. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT Top-upvoted comment, most popular, 140 character Elon Musk Tweet-mindsets. Simplistic statement that does not resist or organize on the ongoing crisis. CALL_TO_INTELLECTUAL_ACTION_PLAN Please stop promoting Luigi and think this is ONLY a health care crisis. Promote the JANUARY_1944_SECOND_BILL_OF_RIGHTS as food, housing, health care, university. But people love the "Luigi" kill CEO joking on Reddit instead. Anti-intellectual, eating right out of the Musk mindsets.
+9 month Reddit account. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT Top-upvoted comment, most popular, 140 character Elon Musk Tweet-mindsets. Simplistic statement that does not resist or organize on the ongoing crisis. CALL_TO_INTELLECTUAL_ACTION_PLAN Please stop promoting Luigi and think this is ONLY a health care crisis. Promote the JANUARY_1944_SECOND_BILL_OF_RIGHTS as food, housing, health care, university. https://en.wikipedia.org/wiki/Second_Bill_of_Rights But people love the "Luigi" kill CEO gun worship joking on Reddit instead. Anti-intellectual, eating right out of the Musk mindsets.
+
+https://old.reddit.com/r/agedlikemilk/comments/1rfgri9/so_much_for_the_party_of_peace/o7jwj4l/
+
+Discussing a woman on Reddit. SUPERFICIAL_SHALLOW_PRIZING_TRUMPISM_MAGA_VALUES - MAGA values of mockery and insulting women. Extreme super tiny-short messaging, highly popular and upvoted.
+
