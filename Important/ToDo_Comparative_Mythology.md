@@ -100,3 +100,8 @@ https://old.reddit.com/r/geography/comments/1rb1135/how_did_egypt_go_from_one_of
 https://old.reddit.com/r/popculturechat/comments/1rb9tgl/cardi_b_on_ramadan_god_knew_not_to_make_me_no/
 
 Year 635 learning survival in the Levant wasteland without food... vs McDonald's fast food 24 hour delivery USA year 2026 Ramadan.
+
+https://old.reddit.com/r/todayilearned/comments/1rex8b2/til_that_the_ancient_chinese_confucian_thinker/
+
+We are patching a defective operating system installed at birth. there are so many things in life we add to it. Driving a car, flying an airplane, games and video games with unnatural scenes.
+
