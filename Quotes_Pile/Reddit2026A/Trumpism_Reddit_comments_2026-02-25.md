@@ -396,3 +396,6 @@ https://old.reddit.com/r/technology/comments/1rfarv2/burger_king_will_use_ai_to_
 
 * “Technopoly is a state of culture. It is also a state of mind. It consists in the deification of technology, which means that the culture seeks its authorization in technology, finds its satisfactions in technology, and takes its orders from technology.” ― Neil Postman, Technopoly: The Surrender of Culture to Technology. **Year 1992**, nonfiction book that is far more than "10 years ago". 
 
+https://old.reddit.com/r/law/comments/1rfii0y/donald_trump_considers_using_national_emergency/o7k9rve/
+
+Top-popular most-upvoted comment. Not even 140 characters. REMEMBER_THE_PROGRAM_IDEAS_BILLIONAIRES_FED_REDDIT_AUDIENCE - Reddit should REMEMBER what the billionaires programmed you to remember. This Reddit comment message is in no way *resisting* the billionaires. 
