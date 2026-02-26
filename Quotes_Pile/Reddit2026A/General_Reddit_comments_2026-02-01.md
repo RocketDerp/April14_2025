@@ -870,3 +870,16 @@ But there are mindsets of men where the predatory manipulation of people and min
 https://old.reddit.com/r/HolyShitHistory/comments/1redksd/in_1993_39yearold_jerry_seinfeld_was_at_the_peak/o7bqy1g/
 
 MEDIA_CULTS_FICTION_FANDOM_MEDIA_POWER Paul Walker had the power of fiction storytelling cults. Just like Jerry Seinfeld fiction-playing actor, Donald Trump fiction-playing actor. The ultimate power systems is convincing other people that fiction is nonfiction, real. Trump is a god and Satan, both, for fiction fandoms. South Park year 2025 shows his Satan White House fiction power (and South Park **cashes in** on Trumpism "GOP Jesus" fiction character worship, fiction Satan character worship both).
+
+https://old.reddit.com/r/isthisAI/comments/1reisdc/dogs_wagging_hips_to_the_woman_dancing_on_tv_and/o7dbai0/
+
+FICTION_OUTSELLS_NONFICTION the billionaires provide! Fiction video generations are the top priority investments, Surkov / Putin / Trump / Musk / Murdoch / Reddit / Bluesky have all proven that fiction is far more popular than say { Jen Senko since year 2015 nonfiction about brainwashing by billionaires using media systems, Dr. Bandy X Lee since year 2017 nonfiction about the danger and alarming mental health crisis of Donald Trump }.
+
+https://old.reddit.com/r/interesting/comments/1rf9x1g/a_woman_in_florida_selling_rare_and_expensive/o7if441/
+
+10 month Reddit account. Most-popular upvoted comment. Well within the 140 character Twitter-thinking mindset limit commenting. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+
+https://old.reddit.com/r/interesting/comments/1rf9x1g/a_woman_in_florida_selling_rare_and_expensive/o7icvhh/
+
+1 month Reddit account. Second most-popular upvoted comment. Well within the 140 character Twitter-thinking mindset limit commenting. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT Learning from the 10-month Elder success on Reddit. This comment is even shorter! Celebrating the Ignorance in Florida via commenting celebrations. IGNORANCE_CELEBRATIONS 
+

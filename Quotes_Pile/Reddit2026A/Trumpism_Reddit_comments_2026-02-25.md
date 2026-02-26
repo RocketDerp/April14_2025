@@ -133,4 +133,243 @@ MEDIA_CULTS_ADDICTIVE_FICTION Fiction addicts find it so great that politicians 
 
 The cult of ignorance is cheering on more video games being the topic.
 
+https://old.reddit.com/r/BikiniBottomTwitter/comments/1rekzy8/all_we_do_is_watch/o7dahjn/
 
+7 day Reddit account. Top-upvoted most-popular comment. 140 character Tweet-thinking commenting as conditioned by Twitter owner Elon Musk. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT Comedy Spongebob JOKE_COMEDY_POWER_IS_MAGA_IS_TRUMP_IS_SURKOV the Reddit comment just describes the crisis, in no way resisting, just like the character in the image is staring at watching and title of the posting.
+
+https://old.reddit.com/r/circled/comments/1rejf24/you_cant_make_this_shit_up_trump_served_team_usa/o7d04w1/
+
+CRINGE_NATION perfect for sports-mentality sports fans and Reddit fandom of Donald Trump images. Everything Twitter-thinking mindsets prize. SEE_ALSO I created educational subreddit for public https://old.Reddit.com/r/CringeNation
+
+https://old.reddit.com/r/circled/comments/1rejf24/you_cant_make_this_shit_up_trump_served_team_usa/o7d0cr5/
+
+1 month Reddit account. "this shit is hilarious" People flock to Reddit venue for these images. People compulsively addicted to the humor that Donald Trump delivers by SUBVERTING_EXPECTATIONS SYMBOLISM_INVERSION_MANIPULATION - the /r/CultReddit behavior is to prize comedy at the expense of health care, women's rights, etc. Neil Postman was correct in his 1985 nonfiction book "Amusing Ourselves To Death". No other leader in human history has provided so much hilarious shit for We The People of any nation. Surkov won since March 2013. The Tony Clifton POTUS is an irresistible fiction character for (cult film, cult television, horror films, horror story) fandoms.
+
+https://old.reddit.com/r/funny/comments/1regpq8/class_participation/o7cefpc/
+
+10 month Reddit account. Top-voted most popular. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+
+Social post { https://autistics.life/@RoundSparrow/116133639463474311 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfpqdtdrc227 https://midwest.social/post/43930294 }
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rejddp/as_if_there_was_ever_any_doubt/o7d0pp2/
+
+"LMAO". Trump fans on Reddit. AMUSEMENT_COMEDY_WASHING_TRUMP_AS_FUNNY_MEDIA_SANEWASHING
+
+https://old.reddit.com/r/law/comments/1resjjt/can_they_actually_do_this_jd_vance_were/o7ew695/
+
+7 month Reddit account. Top-upvoted comment and account that submitted the front page posting. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+
+https://old.reddit.com/r/UnderReportedNews/comments/1res7tr/jd_vance_were_announcing_today_that_we_have/o7evi8q/
+
+1 month Reddit account. 2nd most popular upvoted comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+
+https://old.reddit.com/r/UnderReportedNews/comments/1res7tr/jd_vance_were_announcing_today_that_we_have/o7evzd6/
+
+5 month Reddit account. DENIAL_ABOUNDS so much psychological denial that mass dehumanization and antics haven't been the strategy all along. People behaving as if it is the first month of Trumpism. 
+
+https://old.reddit.com/r/videos/comments/1retbx5/breaking_jd_vance_announces_temporary_halt_to/o7f2nrk/
+
+PREDICTABLE_OUTCOME kind of emotional mental stupor reactions. ANTICS_POLITICS reactions on Reddit day after day since June 16, 2015. Minds get driven deeper and deeper into denial of reality.
+
+https://old.reddit.com/r/videos/comments/1retbx5/breaking_jd_vance_announces_temporary_halt_to/o7ffq5q/
+
+GULLIBILITY_CRISIS people on Reddit are entirely unable to engage nonfiction and learn about Russian information warfare and Surkov governing. Constantly in denial that antics and shock are not deliberate organized techniques. SURKOVIAN_ONION_EATING
+
+https://old.reddit.com/r/videos/comments/1retbx5/breaking_jd_vance_announces_temporary_halt_to/o7fa0my/
+
+GUN_WORSHIP Fiction addicts cult vs. fiction addicts cult in no way addresses the Fox News HDTV cult problem. People have demonstrated during the pandemic that they are willing to due for nonsense. This was published BEFORE the pandemic:
+
+“Chaos and disruption, I later learned, are central tenets of Bannon's animating ideology. Before catalyzing America's dharmic rebalancing, his movement would first need to instill chaos through society so that a new order could emerge. He was an avid reader of a computer scientist and armchair philosopher who goes by the name Mencius Moldbug, a hero of the alt-right who writes long-winded essays attacking democracy and virtually everything about how modern societies are ordered. Moldbug’s views on truth influenced Bannon, and what Cambridge Analytica would become. Moldbug has written that “nonsense is a more effective organizing tool than the truth,” and Bannon embraced this. “Anyone can believe in the truth,” Moldbug writes, “to believe in nonsense is an unforgettable demonstration of loyalty. It serves as a political uniform. And if you have a uniform, you have an army.” ― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the [Plot to Break America, page 85](https://books.google.com/books?id=8OW2DwAAQBAJ&pg=PA85&dq=%22serves+as+a+political+uniform.+And+if+you+have+a+uniform,+you+have+an+army.%E2%80%9D&hl=en&newbks=1&newbks_redir=1&sa=X). **year 2019**
+
+https://old.reddit.com/r/videos/comments/1retbx5/breaking_jd_vance_announces_temporary_halt_to/o7f3irc/
+
+SUPERFICIAL_SHALLOW_PRIZING_TRUMPISM_MAGA_VALUES Reddit consumers will do anything and everything to avoid serious nonfiction books on paper that are relevant to the crisis and get on the same page. People are shallow and think all this is funny and adopt Trump name-calling and social media usage.
+
+https://old.reddit.com/r/circled/comments/1resakd/jd_vance_were_announcing_today_that_we_have/o7ev3hf/
+
+GULLIBILITY_CRISIS that never ends with Reddit fandom of White House.
+
+https://old.reddit.com/r/circled/comments/1resakd/jd_vance_were_announcing_today_that_we_have/o7evpcn/
+
+3 month Reddi account. ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING
+
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1resrru/tax_funded_racism/o7f07xh/
+
+5 month Reddit account, 2nd most popular upvoted comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+
+https://old.reddit.com/r/PublicFreakout/comments/1rejqz7/robert_de_niro_we_all_love_our_country_i_choke_on/o7d2yet/
+
+Robert De Niro's statements are BEYOND_DENIAL he isn't blind to it. Alas, the Reddit community just keeps returning to amusement as usual to normalize the situaiton. No call for Internet uprising, no call for Reddit blackout. Just calls for violence with guns.  We the  People have to stand on the world stage, WWW, on a scale never seen before and persist - calling for intellectual thinking reform of EVERYONE. Trump's July 6, 2011 entry into Twitter should be a central focus of how this all god so terribly bad with 140 character mindsets. Neil Postman was correct in his 1985 book.
+
+https://old.reddit.com/r/Economics/comments/1ren477/days_before_the_national_debt_is_due_to_hit_39/o7eep3e/
+
+CONSERVING_WHAT 
+
+https://old.reddit.com/r/Economics/comments/1ren477/days_before_the_national_debt_is_due_to_hit_39/o7e4xe6/
+
+7 month Reddit account. Several replies all downplaying and normalizing. PROMOTING_IGNORANCE_WORKS_PLAYING_DUMB_MOCKING Observe that they do not give author name, nonfiction book title, quotes from any books, off-Reddit URL. Just commenting upon commenting.
+
+https://old.reddit.com/r/law/comments/1revkok/trump_accused_80000_americans_of_stealing_19b/o7fj2l9/
+
+Mobsters are very popular in films and television. Fiction outsells nonfiction. Extreme tiny-short commenting is the most popular upvoted, people are so entertained that they get to comment over and over and over year after year about Trump's White House.
+
+https://old.reddit.com/r/Fauxmoi/comments/1reywiw/sheryl_crow_i_am_past_hearing_our_president_say/o7gbj35/
+
+Goodness is goodness. ANY_NATION_ANY_PEOPLES Why would any person think living in Ukraine or Russia right now is good for anyone. Why is Dr. Bandy X Lee's books on mental health voided by everyone on social media and "the media" (social media users who have time to post and comment) not promoting Dr. Lee's nonfiction books?
+
+https://old.reddit.com/r/Fauxmoi/comments/1reywiw/sheryl_crow_i_am_past_hearing_our_president_say/o7gbhxa/
+
+We are nearing February 28, 1954 Sunday Martin Luther King Jr lecture. Alas, people have such extreme RECENCY_BIAS they do not turn to writings and teaching before Trump consumed all information attention.
+
+https://old.reddit.com/r/Fauxmoi/comments/1reywiw/sheryl_crow_i_am_past_hearing_our_president_say/o7gco0x/
+
+ANY_NATION_ANY_PEOPLES people in USA don't stand up for Ukraine, Russia under Putin, Sudan, Afghanistan, Iran - why would ANYONE think that ANYONE would desire living in shit values? The ignorance displayed on Reddit that someone is "winning" living in hate. GARBAGE_IN_GARBAGE_OUT - Reddit community does not want to face how much Reddit community itself has changed since year 2012. Propaganda and advertising and marketing work and not standing up for goodness itself and thinking it is fine that others suffer is badness. The pandemic January 2020 was the wake-up call that there were no fire drill or teaching in school for a disease outbreak! Year 1918 pandemic was not a rumor, it was real history, yet people  are more prepared for the death party of Donald Trump than they are prepared for a disease outbreak. May as well prepare for Heaven after death like religion has had people doing for thousands of years when people can't see how predictable diseases are spreading. Never forget August 24, 2018 and the denial people have of the influence of Twitter https://www.bbc.com/news/world-us-canada-45294192
+
+https://old.reddit.com/r/Fauxmoi/comments/1reywiw/sheryl_crow_i_am_past_hearing_our_president_say/o7gfqyz/
+
+"bro they are NAZIS" this ignorance. So is Swat Valley Pakistan in December 2008 Nazi Germany? Before year 1933 - there was nothing worse or as bad as Nazi Germany? IGNORANCE_CELEBRATIONS The Native Americans / First Peoples in North America and South America - was that Nazi Germany? It is programmed into your mind that the BRAND_NAME of evil is what matters more than recognizing the indoctrination and programming. Fox News HDTV, why does nobody on Reddit promote and mention Jen Senko's film from year 2015?
+
+https://old.reddit.com/r/Fauxmoi/comments/1reywiw/sheryl_crow_i_am_past_hearing_our_president_say/o7gbr99/
+
+"The MAGAts hate anyone who disagrees with them." - and the attackers on September 11, 2011 - 9/11 loved their enemy? HATE_THY_ENEMY preaching is all over Reddit. OUT_GROUP_HATE is Levant clergy values. Reddit users are unable to see the very education system of Reddit they are commenting on. People are so fixated on hate of Trump that their mind is corrupted in not seeing this as a universal education and teaching problem of human peoples anywhere in this world.
+
+https://old.reddit.com/r/Fauxmoi/comments/1reywiw/sheryl_crow_i_am_past_hearing_our_president_say/o7gcwok/
+
+CALL_FOR_ACTION_TO_DO_TRIVIAL_CHANGE I'm pointing out the length of this comment. How simplistic. Trump is 79 years old, he is not a baby. Elon Musk is not a baby. Putin is not a baby. What the fuck does it accomplish other than your entertainment to call Trump a baby? You clearly can not face adult mind problems with ADULTS like GenX woman Dr. Bandy X Lee's nonfiction book from October 3, 2017 that is sitting in every public library! This is Reddit comment using Twitter-thinking Tweet-programmed mindsets. Being "a baby" is generally considered innocent and morally uncorrupted, not responsible for crimes. You are baby-washing Trump as innocent of his actions, his PARENTS are responsible for taking care of a baby. Trump has no living parents!
+
+https://old.reddit.com/r/Fauxmoi/comments/1reywiw/sheryl_crow_i_am_past_hearing_our_president_say/o7gd5pn/
+
+TARNISHED_BRAND_FOREVER_PERMANENT_BLOCK Her is how we got here. "Oh, New York Times one printed a story I disagreed with, so I ca not accept a good idea from New York Times". "Oh Canada as a nation did one thing I don't agree with, so I can't accept anything forever from Canada". "Oh, Sheryl Crow worked with Kid Rock one time, maybe she was trying offer goodness to Kid Rock and rescue him, but now I can not focus on the good thing she is sharing in February year 2026 because earlier she had a bad idea"... on and on. Her brand is forever and permanent bad source of ideas because process of elimination. NAME who to follow? Reddit user, NAME the list of values and person we should all listen to. I will name one: Dr. Bandy X Lee. NOT_GOOD_ENOUGH We should all get on the same page as Dr. Lee. Why sin't Sheryl Crow TODAY, TOMORROW, promoting Dr. Lee? Why isn't Stephen Colbert promoting Dr. Lee like advertising and repeating her name and books like advertising with his show?
+
+https://old.reddit.com/r/Fauxmoi/comments/1reywiw/sheryl_crow_i_am_past_hearing_our_president_say/o7gfrxp/
+
+14 day Reddit account. GIVE_UP_ANTI_EDUCATION_ANTI_TEACH_ANTI_PROGRESS Give up on goodness. Don't call for goodness, don't teach and educate goodness, just join in with MAGA_VALUES of hate and dehumanization. that's what machine-logic technology lust lovers on Reddit praise as morality. Just like the middle east hate for hate wars that clergy preach: that some magical outer-space source of love and compassion and not from human persons who teach and educate and share goodness itself. We the People are the source of love, and this Reddit comment is calling for MORE hate, more revenge, more MAGA values.
+
+https://old.reddit.com/r/Fauxmoi/comments/1reywiw/sheryl_crow_i_am_past_hearing_our_president_say/o7gg6ns/
+
+Reddit venue and Reddit commenting community:   
+Reddit likes sharing photographs of Trump.   
+Reddit likes and upvotes photographs of Trump.   
+Reddit avoids Dr. Bandy X Lee nonfiction.   
+Reddit believes simplistic tin-short message ideas are good and to create more.   
+Reddit does not do a blackout to protest Epstein and Trump.   
+Trump is one single person, and Reddit community puts this bad person on the front page hour after hour for over 10 years. Day after day.   
+Reddit is a child-raping FANDOM of a child Rapist, Trump.    
+Reddit is a venue for images of a child rapist.   
+Reddit community often behaves as TRUMP_FANDOM that does not not communicate that it is BAD or show any moral judgement in saying "Trump raped underage girls." - just declares it in a simplistic, simple, matter of fact statement.   
+I think Reddit is a rotten fandom of Trump images, Reddit is /r/CultReddit that is promoting Donald Trump for his sexual conquests, political conquests, wealth conquests. Why is Reddit not promoting and repeating over and over Dr. Bandy X Lee's assembled 27 people in her October 3, 2017 book?   
+
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1rf7gsv/tallahassee_officer_seen_on_body_cam_emptying_a/o7hwnsz/
+
+6 month Reddit account. Top-voted most popular comment. 140 characters or less Twitter-thinking tone and style of communication. Declares "facts" without any citation, off-Reddit link, author name, or quote. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT the popularity of this comment being the top if very alarming. Stating it like it is a personal opinion. THE GULLIBILITY_CRISIS in USA is to accept Reddit commenting as adult learning without downvoting claims that do not provide evidence. Do you live next door to Calvin Riley? Or are you a consumer of general social media that in February 2026 finds it incredibly popular to make 140 character or less comments that do not provide sources and facts with dates and details... SOCIAL_MEDIA_SOCIETY is why Trump is in power. People avoiding nonfiction fact-checking. Right there when pressing upvote on Reddit. Low information upvoters.  https://en.wikipedia.org/wiki/Low_information_voter
+
+"Jury finds Florida man featured in viral video guilty of driving under the influence"; "Edited police body worn camera footage of Calvin Riley’s 2023 arrest by Tallahassee Police Department officers made the rounds on social media, appearing to show an officer open a bottle of liquor, pour out the contents and place it back inside Riley’s vehicle as evidence."; "Riley, 56, was sentenced to spend 10 days in the Leon County Jail. He was also sentenced to six months of probation. As part of his sentence, Riley must also attend a DUI course, perform 50 hours of community service, participate in random breathalyzer tests and his driver’s license will be suspended for six months." https://www.cnn.com/2024/04/08/us/florida-man-dui-tallahassee-viral April 8, 2024
+
+https://old.reddit.com/r/news/comments/1rf829s/canadian_man_in_ice_custody_says_he_thought/o7i1as5/
+
+"funny", so amusing! PEOPLE_LOVE_COMEDY_MEDIA_CONTENT_MORE_THAN_PLURIBUS_HUMANISM
+
+https://old.reddit.com/r/news/comments/1rf829s/canadian_man_in_ice_custody_says_he_thought/o7i04ip/
+
+"As much as people like enjoying the consequences of the “well I never thought it would happen to me!” crowd" ENJOYMENT_OF_TRUMP_AND_MAGA_VALUES Yes, and people on Reddit are a FANDOM to Trump values and ICE. This is ICE_FANDOM enjoyment on Reddit media venue. Trump created ICE and people FOLLOW the leader, being hate-filled is the leadership people follow. FOLLOWERS_OF_LEADER_TRUMP_ACTOR_ENTERTAINER_DONALD_TRUMP_FOLLOWERS
+
+https://old.reddit.com/r/news/comments/1rf829s/canadian_man_in_ice_custody_says_he_thought/o7i9zv1/
+
+OUTSMARTED_TRICKED_MANIPULATED_BAMBOOZLED_BY_TRUMP_MURDOCH_PUTIN Yes. People keep reporting they were outsmarted, tricked, gamed, manipulated, bamboozled by Donald Trump, Rupert Murdoch, Russia and Putin. But on Reddit, people just keep commenting about it over and over... commenting. Why are people not calling out that we have a GULLIBILITY_CRISIS that has wrecked the USA? Why are people not educating and teaching to RESCUE people from gullibility and bamboozle that billionaires have dumped upon society?
+
+* “The other nine, decent, hard-working, **ordinarily intelligent and honest men, did not know before 1933 that Nazism was evil**. They did not know between 1933 and 1945 that it was evil. And they do not know it now. None of them ever knew, or now knows, Nazism as we knew and know it; and they lived under it, served it, and, indeed, made it.” ― Milton Sanford Mayer, [They Thought They Were Free: The Germans, 1933-45. Published year 1955. Page 47. Nonfiction book on paper.](https://books.google.com/books?id=axNDDwAAQBAJ&pg=PA47&dq=%E2%80%9CThe+other+nine,+decent,+hard-working,+ordinarily+intelligent+and+honest+men,+did+not+know+before+1933+that+Nazism+was+evil.%22&hl=en&newbks=1&newbks_redir=1&sa=X&ved=2ahUKEwiyn73mrveSAxWQIjQIHevAPDQQ6AF6BAgIEAM)
+
+NEW_OPERA_NAME #OrdinarilyIntelligent #NotKnowBefore    
+Social post { https://autistics.life/@RoundSparrow/116137422767493237 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfrg2ght2k24 }   
+
+
+https://old.reddit.com/r/news/comments/1rf829s/canadian_man_in_ice_custody_says_he_thought/o7i55sl/
+
+ICE_FANDOM on Reddit is thrilled to have these news stories to comment upon.
+
+https://old.reddit.com/r/news/comments/1rf829s/canadian_man_in_ice_custody_says_he_thought/o7i0hvz/
+
+https://old.reddit.com/r/news/comments/1rf829s/canadian_man_in_ice_custody_says_he_thought/o7i5n91/
+
+https://old.reddit.com/r/news/comments/1rf829s/canadian_man_in_ice_custody_says_he_thought/o7i0dzp/
+
+<img width="1060" height="256" alt="image" src="https://github.com/user-attachments/assets/ad81d240-db16-4b13-85ef-ace616cc9b10" />
+
+Reddit comment creators *ARE* the ICE_FANDOM that does not organize a REDDIT_BLACKOUT or other Internet protest. Too busy on Reddit pressing their touch-screen with low-information upvotes https://en.wikipedia.org/wiki/Low_information_voter Tiny-short 140 characters or less Tweet-thinking is the ICE fandom of ignorance and celebrating ICE as exciting "content" to *consume*.
+
+NEW_OPERA_NAME #NotResisting #FandomICE      
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mfrfbnuzok24 https://autistics.life/@RoundSparrow/116137367046149736 }   
+
+https://old.reddit.com/r/TrendoraX/comments/1rf9t7k/do_you_expect_explosive_testimony_or/o7idgw0/
+
+EPSTEIN_FANDOM with the most-popular upvoted comment. DENIAL_ABOUNDS what is happening is that Donald Trump is the center of society media systems, including Reddit media. People are making comments, millions and millions and millions of low-effort comments and images. It is so engaging, the INFORMATION_STRIP_TEASE - that is what is happening. people are spending their free time, spare time, extra time on social systems commenting and commenting and commenting about rich white old men. WE THE PEOPLE are the problem. Why are people NOT commenting about the 27 people Dr. Bandy X Lee organized in her October 3, 2017 book about the mental health public education topics around Donald Trump? And why millions, hundreds of millions, of ignorant people in USA don't grasp why Donald Trump is dangerous? Why are people seeking more and more low-effort anti-learning commenting instead of serious nonfiction learning on books, printed on paper?
+
+https://old.reddit.com/r/TrendoraX/comments/1rf9t7k/do_you_expect_explosive_testimony_or/o7idzo1/
+
+The EPSTEIN_FANDOM on Reddit wants to comment about old white men. Old white men Clinton, old white man Trump. Over and over 140 characters or less upvoted to the top of Reddit fandom venue. "should tell you everything" - about the ignorance and gullibility crisis in USA. SOCIAL_MEDIA_SOCIETY Low-information-upvotes https://en.wikipedia.org/wiki/Low_information_voter who prize ANYTHING but serious nonfiction organized books printed on paper. Such as Dr. Bandy X Lee's October 3, 2017 book with 27 contributors.
+
+https://old.reddit.com/r/Fauxmoi/comments/1rfb3wa/hilary_knight_of_usa_womens_hockey_team_on_donald/o7iosz9/
+
+6 month Reddit account, top most upvoted popular comment. Not even 140 characters, Tweet-thinking simplistic messaging. BRAIN_ROT_SOCIETY_47 The posting title is the ever-popular GIVE_UP_ANTI_EDUCATION_ANTI_TEACH_ANTI_PROGRESS Celebrity sports star with fame. "It's not my responsibility" - every Reality TV fan, every social media society fan's favorite message. A society of audience to famous people. SOCIAL_MEDIA_SOCIETY 
+
+NEW_OPERA_NAME #NotMyResponsibility #TrumpNotMyResponsibility   
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mfrmdpw5zk24  https://autistics.life/@RoundSparrow/116137862163080517 }
+
+https://old.reddit.com/r/Fauxmoi/comments/1rfb3wa/hilary_knight_of_usa_womens_hockey_team_on_donald/o7iqkmp/
+
+140 characters of less thinking. Celebrity sports star with fame. "It's not my responsibility" - every Reality TV fan, every social media society fan's favorite message. Every Mosque fan favorite message, "It's Gods Fault", Allah's fault. Every Church person's favorite message. STAND_UP_FOR_FAMOUS_CELEBRITY_AND_SOCIALLY_POWERFUL_BIG_GUYS
+
+https://old.reddit.com/r/Fauxmoi/comments/1rfb3wa/hilary_knight_of_usa_womens_hockey_team_on_donald/o7irafr/
+
+11 day Reddit account. Popular comment. Audience of Reddit programming: *GIVE UP*, Don't teach morality to a nation that has no morals. STAND_UP_FOR_FAMOUS_CELEBRITY_AND_SOCIALLY_POWERFUL_BIG_GUYS "A shitty joke done by shitty people. What more is there to say?" ANSWER: remedial morality lessons for a Twitter-driven Tweet-thinking nation with MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL - ignore the media crisis of "The Media" she is putting on the front page of Reddit media video world wide USA coverage of The Olympics and Trump celebrity! This is Reddit commenting computing doing SPORTS_WASHING of USA anti-goodness in February 2026. As long as entertainers, any evil ongoing in USA is fine sports-washing sports-thinking. "What more is there to say?" - https://en.wikipedia.org/wiki/Thought-terminating_clich%C3%A9 - denial of the reality with meme-thinking Twitter-programming of Elon Musk and other billionaires. Cult of ignorance.
+
+https://old.reddit.com/r/law/comments/1rfe8qq/4chan_knew_about_jeffrey_epsteins_death_38/o7jd3nl/
+
+"QAnon", but always blaming only ONE government, USA government. Despite all the factual disclosures with real evidence of Russia. Reddit community can't seem to share comments with this link, are they filtered out by Reddit owners in year 2026? https://www.BBC.com/news/technology-43301643 and all the self-harm USA behaviors. and cults of media, QAnon cults... I created this educational subreddit nobody can seem to locate no matter how relevant to topics of Trump Putinism QAnon PizzaGate ANTI_REALITY being systemically used to pave over facts and evidence. https://old.reddit.com/r/QAnonRussia
+
+https://old.reddit.com/r/law/comments/1rfe8qq/4chan_knew_about_jeffrey_epsteins_death_38/o7jeplo/
+
+This is **how critical important problems are normalized**. As long as it is amusing and entertaining to fandoms on Reddit! JOKE_COMEDY_POWER_IS_MAGA_IS_TRUMP_IS_SURKOV
+
+https://old.reddit.com/r/law/comments/1rfe8qq/4chan_knew_about_jeffrey_epsteins_death_38/o7jdj2l/
+
+MEDIA_WOKE comment and some of the replies to this comment - but HEY, the Reddit cult of ignorance got this thrilling EPSTEIN_FANDOM story to the front page of /r/All - **Neil Postman's 1985 book "Amusing Ourselves to Death" explains the crisis of USA Trumpism MAGA society** - high-speed reactionary mindsets from blazing fast media devices. Low-information upvoter on Reddit media. https://en.Wikipedia.org/wiki/Low_information_voter SOCIAL_MEDIA_SOCIETY 
+
+https://old.reddit.com/r/law/comments/1rfe8qq/4chan_knew_about_jeffrey_epsteins_death_38/o7je2h9/
+
+But people love fiction storytelling. Fiction outsells nonfiction. FICTION_OUTSELLS_NONFICTION Reddit community is ALWAYS AVOIDING: Dr. Bandy X Lee's nonfiction serious book, printed on paper, since October 3, 2017 that should be repeated every day in commenting... why is Reddit commenting community spending free time and spare time AVOIDING quoting Dr Lee's books? ANSWER: it isn't entertaining and thrilling! it isn't mythology and fiction stories! Trump is a GOD for media cults, Epstein is a GOD of women for media cults.
+
+* "An intense experience of mystery is what one has to regard as the ultimate religious experience." - Power of Myth, year 1988, nonfiction book on paper! [You can fact-check this quote in another book, Healthy Religion: A Psychological Guide to a Mature Faith. Published July 26, 2006. Page 21](https://books.google.com/books?id=EHlMAhPMXycC&pg=PA21&dq=%22An+intense+experience+of+mystery+is+what+one+has+to+regard+as+the+ultimate+religious+experience.%22&hl=en&newbks=1&newbks_redir=1&sa=X&ved=2ahUKEwii-uH00PeSAxWcEDQIHQF9OaQQ6AF6BAgJEAM)
+
+A 4Chan media story mystery, "The Media" mystery of God Epstein / God Trump partners! Mythological driven society now in year 2026. Surkov won since March of year 2013.
+
+https://old.reddit.com/r/law/comments/1rfe8qq/4chan_knew_about_jeffrey_epsteins_death_38/o7jcw1f/
+
+The replies have off-Reddit links and citations. But notice the low-effort commenting that doesn't name any persons, no links, no quotes, just commenting upon commenting that people prize above all else. OBSERVE_MEDIA_AVOIDANCE_OF_RELEVANT_NONFICTION
+
+https://old.reddit.com/r/Music/comments/1rfcbfc/eric_ben%C3%A9t_just_called_jelly_roll_full_of_sh_on/o7j1tb7/
+
+BIBLE_LITERACY And people using Reddit think low-information upvoting of simplistic questions isn't part of the Bible anti-understanding comprehension crisis. Reddit is the breeding venue for mockery and anti-comprehension. https://en.wikipedia.org/wiki/Low_information_voter
+
+https://old.reddit.com/r/Music/comments/1rfcbfc/eric_ben%C3%A9t_just_called_jelly_roll_full_of_sh_on/o7iyc8v/
+
+<img width="968" height="251" alt="image" src="https://github.com/user-attachments/assets/4df7640f-1947-4fa3-a656-05d21c8133e8" />
+
+5 word, under 140 characters, Twitter-thinking "at its finest." Anti-intellectual Reddit media usage. Eating out of the hands of billionaire media programming to avoid using media systems, like Jelly Roll didn't use his media systems at the Grammys microphone, on Reddit media.. by not using written English to educate and assert Bible literacy. WHEN_THE_PEOPLE_HAVE_LOST_THE_ABILITY
+
+* BILL MOYERS: But if God is the god we have only imagined, how can we stand in awe of our own creation?
+CAMPBELL: How can we be terrified by a dream? You have to break past your image of God to get through to the connoted illumination. The psychologist Jung has a relevant saying: **“Religion is a defense against the experience of God.” The mystery has been reduced to a set of concepts and ideas**, and emphasizing these concepts and ideas can short-circuit the transcendent, connoted experience. An intense experience of mystery is what one has to regard as the ultimate religious experience. MOYERS: There are many Christians who believe that; to find out who Jesus is, you have to go past the Christian faith, past the Christian doctrine, past the Christian Church — CAMPBELL: You have to **go past the imagined image of Jesus**. Such an image of one’s god becomes a final obstruction, one’s ultimate barrier...
+
+https://old.reddit.com/r/politics/comments/1rfdhm7/the_usa_mens_hockey_team_utterly_failed_to_meet/o7j53br/
+
+5-month Reddit account, top-upvoted most popular comment. Not even 140 character limit thinking as programmed by Elon Musk, richest man in the world with a Tweet-thinking program media empire. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+
+https://old.reddit.com/r/politics/comments/1rfdhm7/the_usa_mens_hockey_team_utterly_failed_to_meet/o7j51ml/
+
+It speaks to the microphone media addiction of the White House fandom. The attraction of MAGA_FANDOM that draws the Reddit commenting community again and again and again since June 16, 2015 start of the race to capture that White House media platform. MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL
+
+https://old.reddit.com/r/politics/comments/1rfdhm7/the_usa_mens_hockey_team_utterly_failed_to_meet/o7j886y/
+
+SPORTS_WASHING sports-mentality thinking patterns. I used to work as media systems analyst (Neil Postman, Marshall McLuhan) for Jody Allen / Paul Allen in Bellevue Washington in 1997, 1998, 1999 when they were sitting on more wealth than any people in the entire world. Purchasing NFL team, owners of NBA team, Microsoft Board of Directors app empire / operating system of society controllers. Jimi Hendrix museum creation. OPERA_A Are you Experienced, The Experience Music Project... https://www.youtube.com/watch?v=XxHS9lTUN4Y 3,532,987 views October 29, 2018 White People in Bellevue / Mercer Island learning from Black media culture. Lyrics: "But who in your measly little world, (-uh) **Are you tryin' to prove to that you're made out of gold and-uh, can't be sold?**" - Bellevue Redmond Trumpism values, IRA got to you all since March 2013. Lyrics: "Get your mind together" 
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mfrrapmuds2d https://autistics.life/@RoundSparrow/116138211764550161 }   

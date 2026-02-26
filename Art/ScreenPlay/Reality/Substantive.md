@@ -29,3 +29,12 @@ Thursday October 30, 2025
 Popular culture, sell well   
 
 https://www.youtube.com/watch?v=5YvPyUhjnEw
+
+&nbsp;
+
+# music live
+
+https://youtu.be/HmR1bKsu5mk?t=199    
+Steve Lukather’s UNREAL Roger Waters Story   
+
+

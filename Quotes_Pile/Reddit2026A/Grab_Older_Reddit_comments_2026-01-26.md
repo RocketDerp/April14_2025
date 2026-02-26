@@ -478,9 +478,14 @@ https://old.reddit.com/r/ZBBS/comments/pqv3fz/rzbbs_lounge/hddvf9c/
 
 Creative Mythology making. SEE_ALSO https://en.wikipedia.org/wiki/Creative_Mythology
 
+
 https://old.reddit.com/r/Cultreddit/comments/a1pqd/a_community_for_3_minutes/hxxf6v4/
 
+<img width="2603" height="760" alt="Screenshot from 2026-02-25 13-52-50" src="https://github.com/user-attachments/assets/13de3efc-da9d-47a0-987b-62c97814d7a2" />
+
 November 6, 2009 creation of /r/CultReddit to discuss media cult behaviors. MEDIA_CULTS MEDIA_CULTS_ADDICTIVE_FICTION part of my Arab Spring Internet research ARAB_SPRING_2010 
+
+Social post { https://autistics.life/@RoundSparrow/116133269646028166 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfpkzdo7w22m }
 
 https://old.reddit.com/r/Cultreddit/comments/a1pqd/a_community_for_3_minutes/hhb31z8/
 
@@ -666,3 +671,36 @@ It seems Reddit removed this comment hzb0ivp from direct view, but it is still p
 "It's because you say dumb shit. Lol. You know this. Don't even bother responding. Whatever you type is going to sound really, incredibly sad. Just fuck off into oblivion." MAGA_VALUES of SELF_DEPORT and driving people off Reddit. Trump-values-0abuser, Epstein-values-abuser role models. "driving discussion away completely"
 
 * "Russia-watcher Catherine Fitzpatrick, who documents Kremlin disinformation for InterpreterMag . com, says just as Moscow uses vague Internet laws to encourage self-censorship, trolls inhibit informed debate by using **crude dialogue to change "the climate of discussion."** "If you show up at The Washington Post or New Republic sites, where there's an article that's critical of Russia, and you see that **there are 200 comments that sound like they were written by 12-year-olds**, then you just don't bother to comment," she says.  "You don't participate. It's a way of just **driving discussion away** completely," she adds. "Those **kinds of tactics are meant to stop democratic debate**, and they work." - **year 2014** https://www.TheAtlantic.com/international/archive/2014/08/the-kremlins-troll-army/375932/
+
+https://old.reddit.com/r/CringeNation/comments/1jlm4ux/cringe_leaders_he_sponsored_lavish_arts_festivals/mk4nkll/
+
+my subreddit to educate the general public on antics cringe politics, Surkovian Trumpism MAGA.
+
+https://old.reddit.com/r/CringeNation/comments/1jlm4ux/cringe_leaders_he_sponsored_lavish_arts_festivals/
+
+Capture the posting.
+
+https://old.reddit.com/r/CringeNation/comments/1jmt02v/after_vice_president_jd_vance_visit_denmark_tells/
+
+https://old.reddit.com/r/CringeNation/comments/1jmt02v/after_vice_president_jd_vance_visit_denmark_tells/mke92mv/
+
+https://old.reddit.com/r/CringeNation/comments/1kkvu20/white_house_president_donald_trump_claims_credit/mrxjccn/
+
+SURKOV_SIEGE aftermaths SURKOV_AFTERMATH 
+
+https://old.reddit.com/r/CringeNation/comments/1kkvu20/white_house_president_donald_trump_claims_credit/mrxji2k/
+
+https://old.reddit.com/r/CringeNation/comments/1jsy49y/elon_musk_makes_public_statements_that_the_advice/mlpzgkq/
+
+https://old.reddit.com/r/CuratedTumblr/comments/1kksriv/_/mrwz38j/
+
+GIVE_UP_ANTI_EDUCATION_ANTI_TEACH_ANTI_PROGRESS   
+TALIBAN_VALUES   
+MAGA_VALUES   
+
+Promoting gun worship and teaching children that violence is the reserved answer to problems. Don't die for peace, die for spreading violence. Go to Vietnam from North America and wage war. Let ignorance and hate win out! Ignore the February 28, 1954 equation from Dr. Martin Luther King Jr and prize hate and prize ignorance. Anti-intellectual pro-violence teachings. Keep passing down the NIGHTMARE_OF_HISTORY_ANTI_WOKE WOKE_TO_WHAT exactly?  
+
+* “History, Stephen said, is a nightmare from which I am trying to awake.” ― James Joyce, Ulysses
+
+REVIVE_OPERA_NAME #MoralityEducationCrisis #WhoTeachesMorality    
+Social post { https://autistics.life/@RoundSparrow/116137793505966827 https://bsky.app/profile/roundsparrow.bsky.social/post/3loyk7fuqjk2t }   
