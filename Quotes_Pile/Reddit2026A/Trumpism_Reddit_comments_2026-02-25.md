@@ -315,3 +315,6 @@ https://old.reddit.com/r/Fauxmoi/comments/1rfb3wa/hilary_knight_of_usa_womens_ho
 NEW_OPERA_NAME #NotMyResponsibility #TrumpNotMyResponsibility   
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mfrmdpw5zk24  https://autistics.life/@RoundSparrow/116137862163080517 }
 
+https://old.reddit.com/r/Fauxmoi/comments/1rfb3wa/hilary_knight_of_usa_womens_hockey_team_on_donald/o7iqkmp/
+
+140 characters of less thinking. Celebrity sports star with fame. "It's not my responsibility" - every Reality TV fan, every social media society fan's favorite message. STAND_UP_FOR_FAMOUS_CELEBRITY_AND_SOCIALLY_POWERFUL_BIG_GUYS
