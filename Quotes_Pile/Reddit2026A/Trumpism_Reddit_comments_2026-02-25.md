@@ -247,6 +247,7 @@ https://old.reddit.com/r/Fauxmoi/comments/1reywiw/sheryl_crow_i_am_past_hearing_
 
 https://old.reddit.com/r/Fauxmoi/comments/1reywiw/sheryl_crow_i_am_past_hearing_our_president_say/o7gg6ns/
 
+Reddit venue and Reddit commenting community:   
 Reddit likes sharing photographs of Trump.   
 Reddit likes and upvotes photographs of Trump.   
 Reddit avoids Dr. Bandy X Lee nonfiction.   
@@ -255,5 +256,5 @@ Reddit does not do a blackout to protest Epstein and Trump.
 Trump is one single person, and Reddit community puts this bad person on the front page hour after hour for over 10 years. Day after day.   
 Reddit is a child-raping FANDOM of a child Rapist, Trump.    
 Reddit is a venue for images of a child rapist.   
-Reddit community does not not say that it is BAD or show any moral judgement in saying "Trump raped underage girls." - just declares it in a simplistic, simple, matter of fact statement.   
+Reddit community often behaves as TRUMP_FANDOM that does not not communicate that it is BAD or show any moral judgement in saying "Trump raped underage girls." - just declares it in a simplistic, simple, matter of fact statement.   
 I think Reddit is a rotten fandom of Trump images, Reddit is /r/CultReddit that is promoting Donald Trump for his sexual conquests, political conquests, wealth conquests. Why is Reddit not promoting and repeating over and over Dr. Bandy X Lee's assembled 27 people in her October 3, 2017 book?   
