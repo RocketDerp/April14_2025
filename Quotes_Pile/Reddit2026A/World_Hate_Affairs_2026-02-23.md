@@ -232,3 +232,6 @@ https://old.reddit.com/r/worldnews/comments/1renfrv/cuba_says_four_shot_dead_on_
 https://old.reddit.com/r/interestingasfuck/comments/1rfdmu4/eric_slover_the_first_chief_warrant_officer_5_to/o7k3703/
 
 World Affairs of following Power. 
+
+https://old.reddit.com/r/interestingasfuck/comments/1rfdmu4/eric_slover_the_first_chief_warrant_officer_5_to/o7k3m30/
+
