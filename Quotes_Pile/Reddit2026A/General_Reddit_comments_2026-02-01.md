@@ -883,3 +883,6 @@ https://old.reddit.com/r/interesting/comments/1rf9x1g/a_woman_in_florida_selling
 
 1 month Reddit account. Second most-popular upvoted comment. Well within the 140 character Twitter-thinking mindset limit commenting. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT Learning from the 10-month Elder success on Reddit. This comment is even shorter! Celebrating the Ignorance in Florida via commenting celebrations. IGNORANCE_CELEBRATIONS 
 
+https://old.reddit.com/r/ayearofulysses/comments/1rdeerb/feb24_ulysses_episode_7_aeolus_part_12/o759bam/
+
+JAMES_JOYCE_LESSON "And the noise of the modern human mind, it seems to me, is amplified by media" - very Marshall McLuhan University of Toronto perspective on James Joyce! "a loud and noisy passage. Besides all the shunting, clanking, thumping, and throbbing of the nonhuman mechanical world (“the loud unanswering machines”), there is also the noise of the human mind. It’s a cacophony, too" - very much THIS_GITHUB criticism of machine mindsets and media digital delivery.
