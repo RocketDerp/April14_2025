@@ -875,3 +875,6 @@ https://old.reddit.com/r/isthisAI/comments/1reisdc/dogs_wagging_hips_to_the_woma
 
 FICTION_OUTSELLS_NONFICTION the billionaires provide! Fiction video generations are the top priority investments, Surkov / Putin / Trump / Musk / Murdoch / Reddit / Bluesky have all proven that fiction is far more popular than say { Jen Senko since year 2015 nonfiction about brainwashing by billionaires using media systems, Dr. Bandy X Lee since year 2017 nonfiction about the danger and alarming mental health crisis of Donald Trump }.
 
+https://old.reddit.com/r/interesting/comments/1rf9x1g/a_woman_in_florida_selling_rare_and_expensive/o7if441/
+
+10 month Reddit account. Most-popular upvoted comment. Well within the 140 character Twitter-thinking mindset limit commenting. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
