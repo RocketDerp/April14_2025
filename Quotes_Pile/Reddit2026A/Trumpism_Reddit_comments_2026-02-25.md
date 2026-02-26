@@ -308,3 +308,10 @@ https://old.reddit.com/r/TrendoraX/comments/1rf9t7k/do_you_expect_explosive_test
 
 The EPSTEIN_FANDOM on Reddit wants to comment about old white men. Old white men Clinton, old white man Trump. Over and over 140 characters or less upvoted to the top of Reddit fandom venue. "should tell you everything" - about the ignorance and gullibility crisis in USA. SOCIAL_MEDIA_SOCIETY Low-information-upvotes https://en.wikipedia.org/wiki/Low_information_voter who prize ANYTHING but serious nonfiction organized books printed on paper. Such as Dr. Bandy X Lee's October 3, 2017 book with 27 contributors.
 
+https://old.reddit.com/r/Fauxmoi/comments/1rfb3wa/hilary_knight_of_usa_womens_hockey_team_on_donald/o7iosz9/
+
+6 month Reddit account, top most upvoted popular comment. Not even 140 characters, Tweet-thinking simplistic messaging. BRAIN_ROT_SOCIETY_47 The posting title is the ever-popular GIVE_UP_ANTI_EDUCATION_ANTI_TEACH_ANTI_PROGRESS Celebrity sports star with fame. "It's not my responsibility" - every Reality TV fan, every social media society fan's favorite message. A society of audience to famous people. SOCIAL_MEDIA_SOCIETY 
+
+NEW_OPERA_NAME #NotMyResponsibility #TrumpNotMyResponsibility   
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mfrmdpw5zk24  https://autistics.life/@RoundSparrow/116137862163080517 }
+
