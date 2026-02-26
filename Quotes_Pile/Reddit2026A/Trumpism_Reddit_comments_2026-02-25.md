@@ -278,3 +278,7 @@ https://old.reddit.com/r/news/comments/1rf829s/canadian_man_in_ice_custody_says_
 OUTSMARTED_TRICKED_MANIPULATED_BAMBOOZLED_BY_TRUMP_MURDOCH_PUTIN Yes. People keep reporting they were outsmarted, tricked, gamed, manipulated, bamboozled by Donald Trump, Rupert Murdoch, Russia and Putin. But on Reddit, people just keep commenting about it over and over... commenting. Why are people not calling out that we have a GULLIBILITY_CRISIS that has wrecked the USA? Why are people not educating and teaching to RESCUE people from gullibility and bamboozle that billionaires have dumped upon society?
 
 * “The other nine, decent, hard-working, **ordinarily intelligent and honest men, did not know before 1933 that Nazism was evil**. They did not know between 1933 and 1945 that it was evil. And they do not know it now. None of them ever knew, or now knows, Nazism as we knew and know it; and they lived under it, served it, and, indeed, made it.” ― Milton Sanford Mayer, They Thought They Were Free: The Germans, 1933-45. Published year 1955.
+
+https://old.reddit.com/r/news/comments/1rf829s/canadian_man_in_ice_custody_says_he_thought/o7i55sl/
+
+ICE_FANDOM on Reddit is thrilled to have these news stories to comment upon.
