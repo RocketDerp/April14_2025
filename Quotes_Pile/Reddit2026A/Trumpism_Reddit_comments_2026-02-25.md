@@ -192,3 +192,7 @@ GULLIBILITY_CRISIS that never ends with Reddit fandom of White House.
 https://old.reddit.com/r/circled/comments/1resakd/jd_vance_were_announcing_today_that_we_have/o7evpcn/
 
 3 month Reddi account. ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING
+
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1resrru/tax_funded_racism/o7f07xh/
+
+5 month Reddit account, 2nd most popular upvoted comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
