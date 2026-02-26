@@ -245,3 +245,15 @@ https://old.reddit.com/r/Fauxmoi/comments/1reywiw/sheryl_crow_i_am_past_hearing_
 
 14 day Reddit account. GIVE_UP_ANTI_EDUCATION_ANTI_TEACH_ANTI_PROGRESS Give up on goodness. Don't call for goodness, don't teach and educate goodness, just join in with MAGA_VALUES of hate and dehumanization. that's what machine-logic technology lust lovers on Reddit praise as morality. Just like the middle east hate for hate wars that clergy preach: that some magical outer-space source of love and compassion and not from human persons who teach and educate and share goodness itself. We the People are the source of love, and this Reddit comment is calling for MORE hate, more revenge, more MAGA values.
 
+https://old.reddit.com/r/Fauxmoi/comments/1reywiw/sheryl_crow_i_am_past_hearing_our_president_say/o7gg6ns/
+
+Reddit likes sharing photographs of Trump.   
+Reddit likes and upvotes photographs of Trump.   
+Reddit avoids Dr. Bandy X Lee nonfiction.   
+Reddit believes simplistic tin-short message ideas are good and to create more.   
+Reddit does not do a blackout to protest Epstein and Trump.   
+Trump is one single person, and Reddit community puts this bad person on the front page hour after hour for over 10 years. Day after day.   
+Reddit is a child-raping FANDOM of a child Rapist, Trump.    
+Reddit is a venue for images of a child rapist.   
+Reddit community does not not say that it is BAD or show any moral judgement in saying "Trump raped underage girls." - just declares it in a simplistic, simple, matter of fact statement.   
+I think Reddit is a rotten fandom of Trump images, Reddit is /r/CultReddit that is promoting Donald Trump for his sexual conquests, political conquests, wealth conquests. Why is Reddit not promoting and repeating over and over Dr. Bandy X Lee's assembled 27 people in her October 3, 2017 book?   
