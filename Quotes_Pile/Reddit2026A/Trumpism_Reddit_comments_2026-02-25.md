@@ -233,4 +233,7 @@ https://old.reddit.com/r/Fauxmoi/comments/1reywiw/sheryl_crow_i_am_past_hearing_
 
 "The MAGAts hate anyone who disagrees with them." - and the attackers on September 11, 2011 - 9/11 loved their enemy? HATE_THY_ENEMY preaching is all over Reddit. OUT_GROUP_HATE is Levant clergy values. Reddit users are unable to see the very education system of Reddit they are commenting on. People are so fixated on hate of Trump that their mind is corrupted in not seeing this as a universal education and teaching problem of human peoples anywhere in this world.
 
+https://old.reddit.com/r/Fauxmoi/comments/1reywiw/sheryl_crow_i_am_past_hearing_our_president_say/o7gcwok/
+
+CALL_FOR_ACTION_TO_DO_TRIVIAL_CHANGE I'm pointing out the length of this comment. How simplistic. Trump is 79 years old, he is not a baby. Elon Musk is not a baby. Putin is not a baby. What the fuck does it accomplish other than your entertainment to call Trump a baby? You clearly can not face adult mind problems with ADULTS like GenX woman Dr. Bandy X Lee's nonfiction book from October 3, 2017 that is sitting in every public library! This is Reddit comment using Twitter-thinking Tweet-programmed mindsets. Being "a baby" is generally considered innocent and morally uncorrupted, not responsible for crimes. You are baby-washing Trump as innocent of his actions, his PARENTS are responsible for taking care of a baby. Trump has no living parents!
 
