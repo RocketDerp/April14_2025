@@ -527,3 +527,8 @@ People still can't point at the Apple iPhone year 2007, and the July 6, 2011 all
 https://old.reddit.com/r/politics/comments/1rfwxk7/maga_billionaires_win_battle_to_buy_cnn_and_turn/o7npld3/
 
 Russia described October 2011 media-driven. MAXIMUM_PUTINIZATION SEE_ALSO: https://github.com/RocketDerp/April14_2025/blob/main/A00/About/Why_Highlight_Circle_Year_2011_onward.md
+
+https://old.reddit.com/r/circled/comments/1rg67lt/wrong_first_lady_melania_has_been_photographed/o7p2aa7/
+
+Surkovian governing. HOW_SURKOV_WON - Reddit users eat it up. Entertainment, drama. OBSERVE: Reddit users commenting on the shit-show with shit-commenting and shit-posting and zero effort to organize or call for any form of intellectual resistance or education campaign of the general public. Notably the Reddit commenting avoids any mention of books, author names, off-Reddit links on topics of: Trump mental health (Dr. Bandy X Lee and 27 contributors to a book published October 3, 2017), Jen Senko nonfiction film on brainwashing, information warfare topics of Putin and Russia (war against reality with fiction).
+
