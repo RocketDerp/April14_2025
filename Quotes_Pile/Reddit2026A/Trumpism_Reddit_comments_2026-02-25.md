@@ -586,3 +586,8 @@ Truth Social fandom on Reddit. TRUMP_FANDOM anticipation the next media content 
 https://old.reddit.com/r/UnderReportedNews/comments/1rgdhkh/morgan_freeman_on_donald_trump_we_have_somebody/o7qme56/
 
 UNDERSTANDING_TRUMPISM This very popular Reddit comment makes no effort to give an author name for more information, an off-Reddit link. It just gives low-information upvoting content. https://en.wikipedia.org/wiki/Low_information_voter the addiction to high-speed information systems delivery is not grasped on Reddit. Trump provides constant stimulation to Reddit audiences, MAGA content fandoms.
+
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1rgjcio/fake_black_maga_account_busted/o7ru64z/
+
+Downplaying the media Twitter crisis of USA society. 3 word comment,not even 140 characters. Reddit account is 4 months old and got the MOST UPVOTED popular comment on this posting. Low-information upvoters are not resisting the Truth Social and Twitter simplistic thinking programming. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT This Reddit comment is cheering on the content, in no way is it resisting or calling for We The People education in meme addictions and media addictions. Ignorance celebrations abound.
+
