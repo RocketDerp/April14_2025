@@ -1,6 +1,6 @@
 https://old.reddit.com/r/europe/comments/1rg5jog/yet_another_brexit_prediction_turns_to_dust/o7pf45y/
 
-NOTE: There are ZERO words that are original in this entire comment meessage. it is a word-for-word quote of a published news article. Yet, Reddit censored it for content and refused to publish this comment.
+NOTE: There are ZERO words that are original in this entire comment meessage. The forbidden Reddit comment is a word-for-word quote of a published news article published in The Guardian in May 2017. Yet, Reddit censored it for content and refused to publish this comment.
 
 REPLY CONTEXT: the unpublished censored comment was in reply to https://old.reddit.com/r/europe/comments/1rg5jog/yet_another_brexit_prediction_turns_to_dust/o7ozq9i/
 
