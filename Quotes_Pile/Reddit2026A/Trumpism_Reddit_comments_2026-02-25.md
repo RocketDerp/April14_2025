@@ -551,3 +551,7 @@ EPSTEIN_FANDOM GULLIBLE_FANDOM Ask yourself why are people behaving on Reddit as
 https://old.reddit.com/r/GetNoted/comments/1rg69c5/they_just_lie_about_everything/o7p1kaf/
 
 3 month Reddit account. Top-upvoted most popular comment. Downplaying the crisis. Claiming that government's can't fabricate exhaustive ANTI_REALITY warfare. Gullible Reddit users eat up this 3-month account downplaying and minimizing with 140 character Tweet-thinking. Twitter-screen shot. People keep barking at tree after tree, "community note" /r/GetNoted correction after correction without addressing DECEPTION_LEADERSHIP is the Surkovian Governing system and needs to be addressed through DANGER_ALERT_CALL_TO_INTELLECTUAL_ARMS_BOOK_CRAM_SESSIONS
+
+https://old.reddit.com/r/GetNoted/comments/1rg69c5/they_just_lie_about_everything/o7p3c8g/
+
+2nd most popular comment message. Boils down to: GIVE_UP_ANTI_EDUCATION_ANTI_TEACH_ANTI_PROGRESS give-up, do nothing, don't organize teaching and education, don't promote Dr. Bandy X Lee's 27 leaders, don't promote Jen Senko, just comment and keep commenting over and over and over every year about Fox News HDTV bullshit, White House Twitter media bullshit, and never mention Jen Senko's nonfiction year 2015 film about media bullshit. Just keep adding more and more popular commenting that says nothing can be done, give up. That is what Reddit community does to normalize Trumpism / MAGA / Twitter-thinking with screen shots off Twitter.
