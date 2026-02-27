@@ -547,3 +547,7 @@ https://old.reddit.com/r/politics/comments/1rgapzn/it_can_now_be_plainly_said_tr
 https://old.reddit.com/r/circled/comments/1rg7vyf/breaking_trumps_doj_removed_this_photo_from_the/o7qae8f/
 
 EPSTEIN_FANDOM GULLIBLE_FANDOM Ask yourself why are people behaving on Reddit as if taking his children to Epstein Island with his wife is somehow better? It seems worse to me. Taking children to the powerfully manipulative and pants-off-charming Jeffery Epstein...
+
+https://old.reddit.com/r/GetNoted/comments/1rg69c5/they_just_lie_about_everything/o7p1kaf/
+
+3 month Reddit account. Top-upvoted most popular comment. Downplaying the crisis. Claiming that government's can't fabricate exhaustive ANTI_REALITY warfare. Gullible Reddit users eat up this 3-month account downplaying and minimizing with 140 character Tweet-thinking. Twitter-screen shot. People keep barking at tree after tree, "community note" /r/GetNoted correction after correction without addressing DECEPTION_LEADERSHIP is the Surkovian Governing system and needs to be addressed through DANGER_ALERT_CALL_TO_INTELLECTUAL_ARMS_BOOK_CRAM_SESSIONS
