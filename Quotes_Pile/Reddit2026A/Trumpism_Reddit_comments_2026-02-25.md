@@ -428,3 +428,9 @@ https://old.reddit.com/r/circled/comments/1rfo46y/justice_denied_again/o7lirkd/
 
 5 month Reddit account. Top-upvoted most popular comment. Within the 140 character length limit of reactionary mindsets. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT "Congrats to all" IGNORANCE_CELEBRATION that Reddit community has been doing over a year as MAGA fandom. ANYTHING AND EVERYTHING on Reddit to avoid nonfiction serious books by Dr. Bandy X Lee, mental health, cult deprogramming. As the addiction (cult) to media high-speed information mockery back and forth in feedback loops with MAGA is prized above any goodness. Shit-commenting and shit-posting society read by Donald Trump's media shit-posting and antics. POTUS Tony Clifton is an irresistible character for the Reddit fandom.
 
+https://old.reddit.com/r/news/comments/1rfqwhv/anthropic_rejects_latest_pentagon_offer_we_cannot/o7m3r84/
+
+https://old.reddit.com/r/news/comments/1rfqwhv/anthropic_rejects_latest_pentagon_offer_we_cannot/o7m5gdd/
+
+https://old.reddit.com/r/news/comments/1rfqwhv/anthropic_rejects_latest_pentagon_offer_we_cannot/o7m6m92/
+
