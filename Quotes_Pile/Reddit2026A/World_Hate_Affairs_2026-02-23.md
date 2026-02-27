@@ -307,3 +307,6 @@ If only people would listen to Susan's work. So many World Hate Affairs would be
 
 * "Volume One of Mythos was released in 1999. Volume Two was released in 2000. Both parts are narrated by Susan Sarandon." https://en.wikipedia.org/wiki/Mythos_(film)
  
+https://old.reddit.com/r/Fauxmoi/comments/1rggzw3/oscar_winner_susan_sarandon_i_was_fired_by_my/o7rgkca/
+
+4 month Reddit account. The 2nd-most upvoted popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
