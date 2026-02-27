@@ -40,7 +40,7 @@ https://www.theguardian.com/technology/2017/may/07/the-great-british-brexit-robb
 &nbsp;
 
 
-# Also Note Unensored o7pkg99
+# Also Note Uncensored o7pkg99
 
 I created another reply comment ( o7pkg99 ) a few minutes later, shorter and with a subset of words. I added only the original words "agrees with you" at the end of words from The Guradian article. And this second comment was NOT censored by Reddit, **comment o7pkg99 was instantly published**:
 
