@@ -482,4 +482,6 @@ https://old.reddit.com/r/pics/comments/1rfk6o1/team_usa_mens_hockey_team_being_t
 
 140 characters or less comment. Trash Realty TV society, Trash Twitter society, Trash Truth Social media society, Trash Reddit commenting society. Avoiding nonfiction. Why sin't Reddit commenting community alarmed and concerned about serious matters instead of just sports stars photographs? Celebrity photographs? Why is Doctor Bandy X. Lee's nonfiction book about the danger of Donald Trump not being quoted and repeated all over Reddit and call for his removal from office? ANSWER: because mocking inside the Trump-created total mockery is all people are concerned with. Getting notification of fresh Trump photographs on Reddit. This goes on year after year after year after year.
 
+https://old.reddit.com/r/GetNoted/comments/1rfobog/now_hateful_bigots_make_use_of_ai_to_breathe_life/o7lhczh/
 
+5 month Reddit account. Top-upvoted most popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
