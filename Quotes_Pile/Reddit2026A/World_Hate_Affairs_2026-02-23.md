@@ -247,3 +247,8 @@ Military Pop Culture content creators. Alas, peace and repeating the 1954 Equati
 
 https://old.reddit.com/r/popculturechat/comments/1rfp08c/look_whos_subreddit_is_on_a_ukrainian_air_defense/o7lssgv/
 
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1rfsrol/i_kiss_the_ring_and_you_give_me_thistkachuk_gets/o7mej0a/
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1rfsrol/i_kiss_the_ring_and_you_give_me_thistkachuk_gets/o7mfzgb/
+
+if being a tool of Putin and Trump is a crime where people deserve negative outcomes, what about all the social media users doing everything they can to avoid promoting Dr. Bandy X Lee's nonfiction books since October 3, 2017 and having We The People counter Putin and Trump in an information war?
