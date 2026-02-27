@@ -2,7 +2,7 @@ https://old.reddit.com/r/europe/comments/1rg5jog/yet_another_brexit_prediction_t
 
 Comment o7pf45y reply message was instantly censored, never published, not even for 1 second.
 
-NOTE: There are ZERO words that are original in this entire comment meessage. The forbidden Reddit comment is a word-for-word quote of a published news article published in The Guardian in May 2017. Yet, Reddit censored it for content and refused to publish this comment.
+NOTE: There are ZERO words that are original in this entire comment message. The forbidden Reddit comment is a word-for-word quote of a published news article in The Guardian from May 2017. Yet, Reddit censored it for content and refused to publish this comment. No notification by Reddit servers as for reason it was never published, just black-hole disappeared.
 
 REPLY CONTEXT: the unpublished censored comment was in reply to https://old.reddit.com/r/europe/comments/1rg5jog/yet_another_brexit_prediction_turns_to_dust/o7ozq9i/
 
