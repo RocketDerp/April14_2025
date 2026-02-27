@@ -259,3 +259,7 @@ https://old.reddit.com/r/okbuddycinephile/comments/1rfvp0a/favorite_terrible_act
 
 https://old.reddit.com/r/okbuddycinephile/comments/1rfvp0a/favorite_terrible_actor_who_seems_like_a_pretty/o7naryn/
 
+https://old.reddit.com/r/europe/comments/1rg5jog/yet_another_brexit_prediction_turns_to_dust/o7ozlp0/
+
+Yes, because extremely serious topics like this are given 140 characters or less comments on Reddit. The Saint Petersburg Internet Research Agency accelerated what Neil Postman 1985 and Carl Sagan 1995 warned. And people today are so conditioned to avoid serous nonfiction books on Reddit commenting, they can't even see the extreme avoidance of providing author names, dates, timelines,details. https://en.wikipedia.org/wiki/Low_information_voter Low-information upvoting on Reddit is every single minute day and night, not just designated election days, but any minute of any day. HYPER_BANALISATION
+
