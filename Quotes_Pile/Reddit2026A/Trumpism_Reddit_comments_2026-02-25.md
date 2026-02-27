@@ -598,3 +598,7 @@ https://old.reddit.com/r/BlackPeopleofReddit/comments/1rgjcio/fake_black_maga_ac
 https://old.reddit.com/r/PoliticalHumor/comments/1rggzrl/average_republican/o7rbiop/
 
 Anti-PLURIBUS. COLLECTIVELY_INTELLIGENT_PLURIBUS_LEARNING is essential.
+
+https://old.reddit.com/r/PoliticalHumor/comments/1rggzrl/average_republican/o7rbifm/
+
+EPSTEIN_FANDOM loves SLUT SHAMING. Instead of promoting women like Dr. Bandy X Lee and Jen Senko as relevant and critical important topics to rescue USA right now, ASAP.... slut-shaming women for sharing sex with men.
