@@ -512,3 +512,7 @@ https://old.reddit.com/r/nottheonion/comments/1rfumdl/clinton_says_epstein_commi
 
 SATIRE_SARCASM_WASHING
 
+https://old.reddit.com/r/nottheonion/comments/1rfumdl/clinton_says_epstein_committee_asked_about_ufos/o7mvula/
+
+4 words, under 140 character thinking limit. HIGH_SPEED_REACTIONARY_MINDSETS
+
