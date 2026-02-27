@@ -555,3 +555,9 @@ https://old.reddit.com/r/GetNoted/comments/1rg69c5/they_just_lie_about_everythin
 https://old.reddit.com/r/GetNoted/comments/1rg69c5/they_just_lie_about_everything/o7p3c8g/
 
 2nd most popular comment message. Boils down to: GIVE_UP_ANTI_EDUCATION_ANTI_TEACH_ANTI_PROGRESS give-up, do nothing, don't organize teaching and education, don't promote Dr. Bandy X Lee's 27 leaders, don't promote Jen Senko, just comment and keep commenting over and over and over every year about Fox News HDTV bullshit, White House Twitter media bullshit, and never mention Jen Senko's nonfiction year 2015 film about media bullshit. Just keep adding more and more popular commenting that says nothing can be done, give up. That is what Reddit community does to normalize Trumpism / MAGA / Twitter-thinking with screen shots off Twitter.
+
+https://old.reddit.com/r/inflation/comments/1rg5bwb/the_ideal_temperature_range_for_banana_plants/o7ow1fq/
+
+ASK YOURSELF: how long has this shit been going on with the front page of every media system? How long has this topic been hashed and rehashed. But the MOST POPULAR most UPVOTED low-information voters on Reddit made this comment number one.  https://en.wikipedia.org/wiki/Low_information_voter ANTI_WIKI_ANTI_FAQ there is no RTFM concern, no Read-the-FAQ concern, no off-Reddit link to a 13 minute recap of the current situation and players. Instead there is **engaging** questions on Reddit media. "The Media" on Reddit asking trivial basic questions with no concern that We The People are so engaged with anti-understanding. This is Trumpism fandom, fandom of Trump ignorance. People are not resisting the ignorance by creating a FAQ or Wiki, people are engaged with the questions...
+
+
