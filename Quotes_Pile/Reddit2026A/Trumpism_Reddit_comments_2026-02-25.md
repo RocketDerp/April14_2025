@@ -543,3 +543,7 @@ There is such a deep misunderstanding of what Putin's Saint Petersburg Internet 
 https://old.reddit.com/r/politics/comments/1rgapzn/it_can_now_be_plainly_said_trump_is_planning_a/o7pzf68/
 
 "Are Americans going to push back massively **when he tries** another", **WHEN**, FUTURE!!! RESISTING_WHAT_EXACTLY ? People think the crisis is going to happen in future November 2026 - without any concern to July 4, 2026 thinking systems of 250 years. This is all about winning hearts and minds to flock to shit-commenting, shit-posting, shit-media mythological-based fiction Surkovian governing systems. EVERY HOUR of EVERY DAY. The psychological denial is sickening that people think the problem is voting booths and now low-information upvoting https://en.wikipedia.org/wiki/Low_information_voter on every media platform! Journalists and writers with any nonfiction serious teaching topics have been abandoned in favor of fiction addictions! Brain rot every day all day, USA!
+
+https://old.reddit.com/r/circled/comments/1rg7vyf/breaking_trumps_doj_removed_this_photo_from_the/o7qae8f/
+
+EPSTEIN_FANDOM GULLIBLE_FANDOM Ask yourself why are people behaving on Reddit as if taking his children to Epstein Island with his wife is somehow better? It seems worse to me. Taking children to the powerfully manipulative and pants-off-charming Jeffery Epstein...
