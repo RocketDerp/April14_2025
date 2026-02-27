@@ -560,4 +560,14 @@ https://old.reddit.com/r/inflation/comments/1rg5bwb/the_ideal_temperature_range_
 
 ASK YOURSELF: how long has this shit been going on with the front page of every media system? How long has this topic been hashed and rehashed. But the MOST POPULAR most UPVOTED low-information voters on Reddit made this comment number one.  https://en.wikipedia.org/wiki/Low_information_voter ANTI_WIKI_ANTI_FAQ there is no RTFM concern, no Read-the-FAQ concern, no off-Reddit link to a 13 minute recap of the current situation and players. Instead there is **engaging** questions on Reddit media. "The Media" on Reddit asking trivial basic questions with no concern that We The People are so engaged with anti-understanding. This is Trumpism fandom, fandom of Trump ignorance. People are not resisting the ignorance by creating a FAQ or Wiki, people are engaged with the questions...
 
+https://old.reddit.com/r/politics/comments/1rg7rq6/panic_at_cnn_as_trump_and_his_buddies_plot_to/o7pd7qs/
+
+"BINGO game", a gamers community. GAMERS_SIMULACRA Constantly treating real world reality as an entertainment... often claiming Putin isn't playing 16 dimensional chess with NATO using Trump as a chess piece.  
+
+* July 19, 2016 Reddit: "caused it to suddenly come roaring to the forefront of the incessantly repeated memes on r/politics ." this is BEFORE win of Election in November 2016. https://old.reddit.com/r/OutOfTheLoop/comments/4tm5m2/what_is_the_originsource_of_the_4d_chess_comments/
+* November 9, 2016 Reddit: "Anon on Trump's 4D Chess" https://old.reddit.com/r/4chan/comments/5c0gq3/anon_on_trumps_4d_chess/
+
+DENIAL_ABOUNDS that Putin is the one playing the chess against NATO. SURKOVIAN_CHESS 
+
+Reddit is a Trump-fandom that is gamer-washing entertainment-washing amusement-washing Donald Trump as a source of thrilling fascism BINGO. This is not resisting Donald Trump, this is attraction to Trumpism and Putinism.
 
