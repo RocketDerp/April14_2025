@@ -478,3 +478,8 @@ https://old.reddit.com/r/MurderedByWords/comments/1rfnmqk/rights_martyr_meme_def
 
 Charlie Kirk was a media celebrity. Cult media seller. FOLLOWERS_OF_LEADER_TRUMP_ACTOR_ENTERTAINER_DONALD_TRUMP_FOLLOWERS the addiction to media is in no way being addressed, cult deprogramming of Fox News is avoided. Jen Senko's leadership ignored.
 
+https://old.reddit.com/r/pics/comments/1rfk6o1/team_usa_mens_hockey_team_being_treated_to/o7kn6zo/
+
+140 characters or less comment. Trash Realty TV society, Trash Twitter society, Trash Truth Social media society, Trash Reddit commenting society. Avoiding nonfiction. Why sin't Reddit commenting community alarmed and concerned about serious matters instead of just sports stars photographs? Celebrity photographs? Why is Doctor Bandy X. Lee's nonfiction book about the danger of Donald Trump not being quoted and repeated all over Reddit and call for his removal from office? ANSWER: because mocking inside the Trump-created total mockery is all people are concerned with. Getting notification of fresh Trump photographs on Reddit. This goes on year after year after year after year.
+
+
