@@ -252,3 +252,10 @@ https://old.reddit.com/r/KidsAreFuckingStupid/comments/1rfvuaq/yes_the_whole_cup
 https://old.reddit.com/r/KidsAreFuckingStupid/comments/1rfvuaq/yes_the_whole_cup/o7n6dwa/
 
 1 month Reddit account
+
+https://old.reddit.com/r/okbuddycinephile/comments/1rfvp0a/favorite_terrible_actor_who_seems_like_a_pretty/o7o3461/
+
+6 month Reddit account
+
+https://old.reddit.com/r/okbuddycinephile/comments/1rfvp0a/favorite_terrible_actor_who_seems_like_a_pretty/o7naryn/
+
