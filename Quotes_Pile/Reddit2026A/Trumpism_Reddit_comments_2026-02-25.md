@@ -493,3 +493,13 @@ https://old.reddit.com/r/GetNoted/comments/1rfobog/now_hateful_bigots_make_use_o
 https://old.reddit.com/r/Epstein/comments/1rfr0ax/breaking_doj_just_locked_the_epstein_library_to/o7m17lv/
 
 6 month Reddit account. Top-upvoted most popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1rfsrol/i_kiss_the_ring_and_you_give_me_thistkachuk_gets/o7mej0a/
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1rfsrol/i_kiss_the_ring_and_you_give_me_thistkachuk_gets/o7mfzgb/
+
+if being a tool of Putin and Trump is a crime where people deserve negative outcomes, what about all the social media users doing everything they can to avoid promoting Dr. Bandy X Lee's nonfiction books since October 3, 2017 and having We The People counter Putin and Trump in an information war?
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1rfsrol/i_kiss_the_ring_and_you_give_me_thistkachuk_gets/o7mf2nx/
+
+"LOL", Trump White House created media is so entertaining to TRUMP_FANDOM
