@@ -244,3 +244,6 @@ World Symbolism Affairs. Capture the Symbol, capture the power. SYMBOLISM_INVERS
 https://old.reddit.com/r/popculturechat/comments/1rfp08c/look_whos_subreddit_is_on_a_ukrainian_air_defense/o7lspjy/
 
 Military Pop Culture content creators. Alas, peace and repeating the 1954 Equation from MLK Jr. is in no way popularity in the Donald Trump nation of toxic popularity. All the mental health workers should be trying to talk Russia out of war since year 2014, instead anti-intellectual pro-violence is popular.
+
+https://old.reddit.com/r/popculturechat/comments/1rfp08c/look_whos_subreddit_is_on_a_ukrainian_air_defense/o7lssgv/
+
