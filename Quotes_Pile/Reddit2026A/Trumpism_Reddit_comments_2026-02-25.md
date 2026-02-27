@@ -571,3 +571,6 @@ DENIAL_ABOUNDS that Putin is the one playing the chess against NATO. SURKOVIAN_C
 
 Reddit is a Trump-fandom that is gamer-washing entertainment-washing amusement-washing Donald Trump as a source of thrilling fascism BINGO. This is not resisting Donald Trump, this is attraction to Trumpism and Putinism.
 
+https://old.reddit.com/r/politics/comments/1rg7rq6/panic_at_cnn_as_trump_and_his_buddies_plot_to/o7pe00o/
+
+20 day Reddit account, 2nd most upvoted popular comment. Promoting everyone all go get FURTHER on different pages of media. Exactly the cause of the problem with social media consumers all flocking to extreme low-effort commenting with no author identity, no book citations, anti-book attitudes of Reddit. Not facing the widespread fiction addiction problems in USA. ASK YOURSELF: why is Reddit commenting section not quoting and repeating Dr. Bandy X Lee's 27 leaders since October 3, 2017? People are addicted to the constant flow of TRUMP NEWS and commenting on a TRUMP POSTING on Reddit media! They aren't resisting the addiction to fiction and addiction to Trump as a source of something to create low-value Reddit comments about. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
