@@ -289,3 +289,6 @@ Yes, Cambridge Analytica doctors need to be front and center. Along with Dr. Ban
 
 https://old.reddit.com/r/pics/comments/1rg9hwk/introducing_the_reddit_funded_antidrone_turret/o7ps4co/
 
+https://old.reddit.com/r/worldnews/comments/1rg6ys3/us_tells_embassy_staff_in_israel_to_leave_now_if/o7p7w18/
+
+TRUMP_FANDOM on Reddit commenting about the affairs.
