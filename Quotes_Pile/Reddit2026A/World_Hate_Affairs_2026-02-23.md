@@ -240,3 +240,7 @@ https://old.reddit.com/r/interestingasfuck/comments/1rfdmu4/eric_slover_the_firs
 World Symbolism Affairs. Capture the Symbol, capture the power. SYMBOLISM_INVERSION_MANIPULATION Invert the symbolism meaning in the minds, and everyone follows POTUS Tony Clifton. 
 
 * "All life, all thought, all meditation, is to be governed by the authority of the shepherds of the group \[the Church\]; and **there can be no doubt, from what we know of the history of this tradition**, that this authority was imposed and maintained by force. But any religious **symbol, so interpreted that it refers not to a thought-transcending mystery but to a thought-enveloping social order**, misappropriates to the lower principle the values of the higher and so (to use a theological turn of phrase) sets Satan in the seat of God." - https://TheseThingsInside.wordpress.com/2013/04/18/joseph-campbell-says-religious-literalism-sets-satan-in-the-seat-of-god/
+
+https://old.reddit.com/r/popculturechat/comments/1rfp08c/look_whos_subreddit_is_on_a_ukrainian_air_defense/o7lspjy/
+
+Military Pop Culture content creators. Alas, peace and repeating the 1954 Equation from MLK Jr. is in no way popularity in the Donald Trump nation of toxic popularity. All the mental health workers should be trying to talk Russia out of war since year 2014, instead anti-intellectual pro-violence is popular.
