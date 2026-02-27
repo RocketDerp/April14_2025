@@ -292,3 +292,7 @@ https://old.reddit.com/r/pics/comments/1rg9hwk/introducing_the_reddit_funded_ant
 https://old.reddit.com/r/worldnews/comments/1rg6ys3/us_tells_embassy_staff_in_israel_to_leave_now_if/o7p7w18/
 
 TRUMP_FANDOM on Reddit commenting about the affairs.
+
+https://old.reddit.com/r/worldnews/comments/1rg6ys3/us_tells_embassy_staff_in_israel_to_leave_now_if/o7pdufh/
+
+The 2nd-most upvoted popular comment. 140 characters or less. IGNORANCE_CELEBRATIONS of how Tony Clifton POTUS provides so much funny and amusing entertainment for Reddit media cult followers.
