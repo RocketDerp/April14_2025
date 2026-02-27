@@ -263,3 +263,16 @@ https://old.reddit.com/r/europe/comments/1rg5jog/yet_another_brexit_prediction_t
 
 Yes, because extremely serious topics like this are given 140 characters or less comments on Reddit. The Saint Petersburg Internet Research Agency accelerated what Neil Postman 1985 and Carl Sagan 1995 warned. And people today are so conditioned to avoid serous nonfiction books on Reddit commenting, they can't even see the extreme avoidance of providing author names, dates, timelines,details. https://en.wikipedia.org/wiki/Low_information_voter Low-information upvoting on Reddit is every single minute day and night, not just designated election days, but any minute of any day. HYPER_BANALISATION
 
+https://old.reddit.com/r/europe/comments/1rg5jog/yet_another_brexit_prediction_turns_to_dust/o7oydn1/
+
+MAXIMUM_PUTINIZATION
+
+https://old.reddit.com/r/europe/comments/1rg5jog/yet_another_brexit_prediction_turns_to_dust/o7p0600/
+
+Yes, I can tell from the extremely simple logic messaging that you hate. Instead of educating and teaching using high-speed information systems of Reddit, it's just predictable programmed hate reacting. FAITH_IN_HATE - today is February 27 - this was written February 28:
+
+**The 1954 Equation**
+
+February 28, 1954: "Most people can't stand up for their convictions, because the majority of people might not be doing it. See, everybody's not doing it, so it must be wrong. And since everybody is doing it, it must be right. So a sort of numerical interpretation of what's right. But I'm here to say to you this morning that some things are right and some things are wrong. Eternally so, absolutely so. **It's wrong to hate.** It always has been wrong and it always will be wrong. It's wrong in America, it's wrong in Germany, it's wrong in Russia, it's wrong in China. It was wrong in 2000 B.C., and it's wrong in 1954 A.D. It always has been wrong, and it always will be wrong." - Martin Luther King Jr.
+
+"For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the **true becomes false and the false becomes true**. That's what hate does. You can't see right. **The symbol of objectivity** is lost." - Martin Luther King Jr.
