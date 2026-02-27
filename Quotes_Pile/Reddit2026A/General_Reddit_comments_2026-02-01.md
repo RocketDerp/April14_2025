@@ -898,3 +898,7 @@ BIBLE_LITERACY
 https://old.reddit.com/r/PeterExplainsTheJoke/comments/1rfn42i/tell_them_what_peter/o7laxap/
 
 CONCERNS_OF_FINNEGANS language words to reality.
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1rfsh0p/petah_what_does_this_mean/o7mgmng/
+
+FAKE_DETECTORS discussion in replies. MEDIA_ECOLOGY_OBSERVATION 
