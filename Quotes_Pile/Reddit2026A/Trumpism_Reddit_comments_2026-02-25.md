@@ -591,3 +591,6 @@ https://old.reddit.com/r/BlackPeopleofReddit/comments/1rgjcio/fake_black_maga_ac
 
 Downplaying the media Twitter crisis of USA society. 3 word comment,not even 140 characters. Reddit account is 4 months old and got the MOST UPVOTED popular comment on this posting. Low-information upvoters are not resisting the Truth Social and Twitter simplistic thinking programming. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT This Reddit comment is cheering on the content, in no way is it resisting or calling for We The People education in meme addictions and media addictions. Ignorance celebrations abound.
 
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1rgjcio/fake_black_maga_account_busted/o7rvcnv/
+
+11 month Reddit account.
