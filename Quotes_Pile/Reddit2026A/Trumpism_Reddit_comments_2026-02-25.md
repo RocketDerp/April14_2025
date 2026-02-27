@@ -579,3 +579,6 @@ https://old.reddit.com/r/UnderReportedNews/comments/1rgdhkh/morgan_freeman_on_do
 
 ANSWER: It does not make sense to Morgan Freeman because people are not studying Surkov information warfare and Surkovian governing methods since year 2013. COMPREHENDING_UNDERSTANDING
 
+https://old.reddit.com/r/UnderReportedNews/comments/1rgdhkh/morgan_freeman_on_donald_trump_we_have_somebody/o7ql6lr/
+
+Truth Social fandom on Reddit. TRUMP_FANDOM anticipation the next media content delivery. ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING
