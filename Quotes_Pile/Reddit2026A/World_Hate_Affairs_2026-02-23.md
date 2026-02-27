@@ -296,3 +296,7 @@ TRUMP_FANDOM on Reddit commenting about the affairs.
 https://old.reddit.com/r/worldnews/comments/1rg6ys3/us_tells_embassy_staff_in_israel_to_leave_now_if/o7pdufh/
 
 The 2nd-most upvoted popular comment. 140 characters or less. IGNORANCE_CELEBRATIONS of how Tony Clifton POTUS provides so much funny and amusing entertainment for Reddit media cult followers.
+
+https://old.reddit.com/r/worldnews/comments/1rg6ys3/us_tells_embassy_staff_in_israel_to_leave_now_if/o7p7gtw/
+
+See the user's profile, fan of "Star Wars", George Lucas fan. But banalizing Levant world hate affairs, tiny-short thinking. 1988 Power of Myth book created at Skywalker Ranch, NONFICTION, avoided by tiny-short messaging fandoms on Reddit. Pro-ignorance pro-fiction leadership celebrations. Realty TV Trumpism fans.
