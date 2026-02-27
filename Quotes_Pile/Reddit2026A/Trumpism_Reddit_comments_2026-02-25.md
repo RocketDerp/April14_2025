@@ -454,3 +454,6 @@ https://old.reddit.com/r/TwoXChromosomes/comments/1rfr0zt/with_paramount_acquiri
 
 JANUARY_1944_SECOND_BILL_OF_RIGHTS got ignored again in December 2024 when Luigi gun violence was favored over nonfiction serious thinking. The problem is not only health care for all. "Freedom from unfair competition and monopolies" https://en.wikipedia.org/wiki/Second_Bill_of_Rights
 
+https://old.reddit.com/r/TwoXChromosomes/comments/1rfr0zt/with_paramount_acquiring_warner_bros_the_farright/o7m2t8z/
+
+people make their reaction comments on media platforms like Reddit and Blueksy and wake up the next day and do it over and over again, washing away any serious topic with low-information upvoting https://en.wikipedia.org/wiki/Low_information_voter - the abandonment of serious nonfiction books is there if you look for it. OBSERVE_SOCIAL_MEDIA_AVOIDING_NONFICTION
