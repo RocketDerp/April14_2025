@@ -301,3 +301,9 @@ https://old.reddit.com/r/worldnews/comments/1rg6ys3/us_tells_embassy_staff_in_is
 
 See the user's profile, fan of "Star Wars", George Lucas fan. But banalizing Levant world hate affairs, tiny-short thinking. 1988 Power of Myth book created at Skywalker Ranch, NONFICTION, avoided by tiny-short messaging fandoms on Reddit. Pro-ignorance pro-fiction leadership celebrations. Realty TV Trumpism fans. SEE_ALSO https://GitHub.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Specific/Bill_Moyers_Worship_Celebrities.md
 
+https://old.reddit.com/r/Fauxmoi/comments/1rggzw3/oscar_winner_susan_sarandon_i_was_fired_by_my/o7rfxlj/
+
+If only people would listen to Susan's work. So many World Hate Affairs would be resolved.
+
+* "Volume One of Mythos was released in 1999. Volume Two was released in 2000. Both parts are narrated by Susan Sarandon." https://en.wikipedia.org/wiki/Mythos_(film)
+ 
