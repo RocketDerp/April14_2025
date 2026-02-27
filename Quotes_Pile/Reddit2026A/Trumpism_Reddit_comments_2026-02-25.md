@@ -503,3 +503,8 @@ if being a tool of Putin and Trump is a crime where people deserve negative outc
 https://old.reddit.com/r/LeopardsAteMyFace/comments/1rfsrol/i_kiss_the_ring_and_you_give_me_thistkachuk_gets/o7mf2nx/
 
 "LOL", Trump White House created media is so entertaining to TRUMP_FANDOM
+
+https://old.reddit.com/r/nottheonion/comments/1rfumdl/clinton_says_epstein_committee_asked_about_ufos/o7myakp/
+
+SURKOV_WARFARE
+
