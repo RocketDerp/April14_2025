@@ -519,3 +519,7 @@ https://old.reddit.com/r/nottheonion/comments/1rfumdl/clinton_says_epstein_commi
 https://old.reddit.com/r/TrendoraX/comments/1rg3t85/mcgowan_theres_three_people_mentioned_most_in_the/o7on5pg/
 
 2 month Reddit account. Top-upvoted most popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+
+https://old.reddit.com/r/politics/comments/1rfwxk7/maga_billionaires_win_battle_to_buy_cnn_and_turn/o7nmdmi/
+
+People still can't point at the Apple iPhone year 2007, and the July 6, 2011 all-in that Trump did with Twitter 140 characters. https://theoutline.com/post/2445/trump-s-first-real-tweet-was-on-july-6-2011 Surkov won since March 2013.
