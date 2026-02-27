@@ -461,3 +461,8 @@ people make their reaction comments on media platforms like Reddit and Blueksy a
 https://old.reddit.com/r/okbuddycinephile/comments/1rfsak5/warner_bros_was_bought_by_paramount_yea_were/o7mbl4p/
 
 26 day Reddit account. 2nd most upvoted popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+
+https://old.reddit.com/r/Epstein/comments/1rfp0na/chuck_schumer_there_is_a_massive_coverup_going_on/o7lp462/
+
+Top most-upvoted popular comment. Anti-intellectual mockery. 140 characters or less commenting. SUPERFICIAL_SHALLOW_PRIZING_TRUMPISM_MAGA_VALUES This is the Epstein fandom on Reddit. Cracking jokes to joke-wash Epstein and Trump topic, a source of media entertainment and stimulation.
+
