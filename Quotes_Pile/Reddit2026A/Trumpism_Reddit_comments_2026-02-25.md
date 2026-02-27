@@ -434,3 +434,14 @@ https://old.reddit.com/r/news/comments/1rfqwhv/anthropic_rejects_latest_pentagon
 
 https://old.reddit.com/r/news/comments/1rfqwhv/anthropic_rejects_latest_pentagon_offer_we_cannot/o7m6m92/
 
+https://old.reddit.com/r/UnderReportedNews/comments/1rfno30/sen_rubengallego_princes_ceos_the_most_powerful/o7ldjhf/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rfno30/sen_rubengallego_princes_ceos_the_most_powerful/o7ldk43/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rfno30/sen_rubengallego_princes_ceos_the_most_powerful/o7lh3a7/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rfno30/sen_rubengallego_princes_ceos_the_most_powerful/o7lh5xe/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rfno30/sen_rubengallego_princes_ceos_the_most_powerful/o7lh3vj/
+
+ANSWER: because people can not face their addiction to commenting and media consumption about Epstein and Trump. We need to be doing massive cult deprogramming of the population with free time and spare time, not commenting over and over on different pages in a reactionary mindset.
