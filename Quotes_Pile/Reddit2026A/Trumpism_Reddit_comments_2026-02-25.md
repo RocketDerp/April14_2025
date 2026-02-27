@@ -473,3 +473,8 @@ https://old.reddit.com/r/Epstein/comments/1rfp0na/chuck_schumer_there_is_a_massi
 https://old.reddit.com/r/Epstein/comments/1rfp0na/chuck_schumer_there_is_a_massive_coverup_going_on/o7lrp1r/
 
 1 month Reddit account. 3rd most popular upvoted comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+
+https://old.reddit.com/r/MurderedByWords/comments/1rfnmqk/rights_martyr_meme_defanged/o7ldorg/
+
+Charlie Kirk was a media celebrity. Cult media seller. FOLLOWERS_OF_LEADER_TRUMP_ACTOR_ENTERTAINER_DONALD_TRUMP_FOLLOWERS the addiction to media is in no way being addressed, cult deprogramming of Fox News is avoided. Jen Senko's leadership ignored.
+
