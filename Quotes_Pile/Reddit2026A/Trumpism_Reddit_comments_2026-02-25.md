@@ -523,3 +523,7 @@ https://old.reddit.com/r/TrendoraX/comments/1rg3t85/mcgowan_theres_three_people_
 https://old.reddit.com/r/politics/comments/1rfwxk7/maga_billionaires_win_battle_to_buy_cnn_and_turn/o7nmdmi/
 
 People still can't point at the Apple iPhone year 2007, and the July 6, 2011 all-in that Trump did with Twitter 140 characters. https://theoutline.com/post/2445/trump-s-first-real-tweet-was-on-july-6-2011 Surkov won since March 2013.
+
+https://old.reddit.com/r/politics/comments/1rfwxk7/maga_billionaires_win_battle_to_buy_cnn_and_turn/o7npld3/
+
+Russia described October 2011 media-driven. MAXIMUM_PUTINIZATION SEE_ALSO: https://github.com/RocketDerp/April14_2025/blob/main/A00/About/Why_Highlight_Circle_Year_2011_onward.md
