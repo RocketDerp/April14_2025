@@ -450,3 +450,7 @@ https://old.reddit.com/r/TwoXChromosomes/comments/1rfr0zt/with_paramount_acquiri
 
 "EVERYTHING IS MEDIA ECOLOGY", SEE_ALSO https://GitHub.com/RocketDerp/April14_2025/blob/main/Media_Ecology/Everything_is_ME.md
 
+https://old.reddit.com/r/TwoXChromosomes/comments/1rfr0zt/with_paramount_acquiring_warner_bros_the_farright/o7m4xed/
+
+JANUARY_1944_SECOND_BILL_OF_RIGHTS got ignored again in December 2024 when Luigi gun violence was favored over nonfiction serious thinking. The problem is not only health care for all. "Freedom from unfair competition and monopolies" https://en.wikipedia.org/wiki/Second_Bill_of_Rights
+
