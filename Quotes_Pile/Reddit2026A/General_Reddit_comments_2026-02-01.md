@@ -902,3 +902,5 @@ CONCERNS_OF_FINNEGANS language words to reality.
 https://old.reddit.com/r/PeterExplainsTheJoke/comments/1rfsh0p/petah_what_does_this_mean/o7mgmng/
 
 FAKE_DETECTORS discussion in replies. MEDIA_ECOLOGY_OBSERVATION 
+
+https://old.reddit.com/r/ProgrammerHumor/comments/1rg0wj0/freeappidea/o7oa2kp/
