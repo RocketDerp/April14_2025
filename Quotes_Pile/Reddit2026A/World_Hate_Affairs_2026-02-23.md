@@ -286,3 +286,6 @@ https://old.reddit.com/r/europe/comments/1rg5jog/yet_another_brexit_prediction_t
 https://old.reddit.com/r/europe/comments/1rg5jog/yet_another_brexit_prediction_turns_to_dust/o7pbl1r/
 
 Yes, Cambridge Analytica doctors need to be front and center. Along with Dr. Bandy X Lee's 27 contributors to her October 3, 2017 book
+
+https://old.reddit.com/r/pics/comments/1rg9hwk/introducing_the_reddit_funded_antidrone_turret/o7ps4co/
+
