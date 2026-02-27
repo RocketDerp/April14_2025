@@ -416,3 +416,6 @@ https://old.reddit.com/r/agedlikemilk/comments/1rfgri9/so_much_for_the_party_of_
 
 Discussing a woman on Reddit. SUPERFICIAL_SHALLOW_PRIZING_TRUMPISM_MAGA_VALUES - MAGA values of mockery and insulting women. Extreme super tiny-short messaging, highly popular and upvoted.
 
+https://old.reddit.com/r/law/comments/1rfmsqu/white_house_circulating_blatantly_illegal_draft/o7l4s8v/
+
+Top-upvoted comment, submitter of posting. Actually serious and verbose. Breaking the Tweet 140 character mindset barrier. ESSENTIAL_STUDY_MAGA what's absent: a name of a leader or name of a plan (like "Project 2025" name-dropping) to rally around to actually organize and stand up for goodness. I would suggest people use Dr. Bandy X Lee's name and mention it over and over and over when White House / MAGA topics are being discussed. Just a simple like line "Please keep quoting Dr. Band X Lee's books!"
