@@ -419,3 +419,7 @@ Discussing a woman on Reddit. SUPERFICIAL_SHALLOW_PRIZING_TRUMPISM_MAGA_VALUES -
 https://old.reddit.com/r/law/comments/1rfmsqu/white_house_circulating_blatantly_illegal_draft/o7l4s8v/
 
 Top-upvoted comment, submitter of posting. Actually serious and verbose. Breaking the Tweet 140 character mindset barrier. ESSENTIAL_STUDY_MAGA what's absent: a name of a leader or name of a plan (like "Project 2025" name-dropping) to rally around to actually organize and stand up for goodness. I would suggest people use Dr. Bandy X Lee's name and mention it over and over and over when White House / MAGA topics are being discussed. Just a simple like line "Please keep quoting Dr. Band X Lee's books!"
+
+https://old.reddit.com/r/law/comments/1rfmsqu/white_house_circulating_blatantly_illegal_draft/o7lezlu/
+
+PUTIN_SURKOV_TRUMP_LONG_TERM_YEARS_PLAN Good to see people discussing forest for the trees of long-term thinking. https://en.wikipedia.org/wiki/Rex_84 my own assertions: nationalization of Reddit and Bluesky as a dramatic move, but the disappearing of users and comments and postings is also at atmosphere of ICE virtual.
