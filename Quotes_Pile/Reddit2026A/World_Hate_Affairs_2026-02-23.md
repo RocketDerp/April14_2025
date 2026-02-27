@@ -247,3 +247,5 @@ Military Pop Culture content creators. Alas, peace and repeating the 1954 Equati
 
 https://old.reddit.com/r/popculturechat/comments/1rfp08c/look_whos_subreddit_is_on_a_ukrainian_air_defense/o7lssgv/
 
+https://old.reddit.com/r/KidsAreFuckingStupid/comments/1rfvuaq/yes_the_whole_cup/o7ndrro/
+
