@@ -490,3 +490,6 @@ https://old.reddit.com/r/GetNoted/comments/1rfobog/now_hateful_bigots_make_use_o
 
 5 day Reddit account. 2nd top-upvoted most popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
 
+https://old.reddit.com/r/Epstein/comments/1rfr0ax/breaking_doj_just_locked_the_epstein_library_to/o7m17lv/
+
+6 month Reddit account. Top-upvoted most popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
