@@ -469,3 +469,7 @@ Top most-upvoted popular comment. Anti-intellectual mockery. 140 characters or l
 https://old.reddit.com/r/Epstein/comments/1rfp0na/chuck_schumer_there_is_a_massive_coverup_going_on/o7lnol2/
 
 2 month Reddit account, joined New Years Eve. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT 2nd most popular upvoted comment. EPSTEIN_FANDOM media party on Reddit. When did Reddit have a world-reported blackout protest? ANSWER: not. Reddit has gotten coverage for blackout protests against the government, but when it comes to Trump and Epstein fandoms on Reddit - the desire is always for more shitshow shit-posting shit-commenting media shit. Not serious We The People uprising. 
+
+https://old.reddit.com/r/Epstein/comments/1rfp0na/chuck_schumer_there_is_a_massive_coverup_going_on/o7lrp1r/
+
+1 month Reddit account. 3rd most popular upvoted comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
