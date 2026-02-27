@@ -594,3 +594,7 @@ Downplaying the media Twitter crisis of USA society. 3 word comment,not even 140
 https://old.reddit.com/r/BlackPeopleofReddit/comments/1rgjcio/fake_black_maga_account_busted/o7rvcnv/
 
 11 month Reddit account.
+
+https://old.reddit.com/r/PoliticalHumor/comments/1rggzrl/average_republican/o7rbiop/
+
+Anti-PLURIBUS. COLLECTIVELY_INTELLIGENT_PLURIBUS_LEARNING is essential.
