@@ -445,3 +445,8 @@ https://old.reddit.com/r/UnderReportedNews/comments/1rfno30/sen_rubengallego_pri
 https://old.reddit.com/r/UnderReportedNews/comments/1rfno30/sen_rubengallego_princes_ceos_the_most_powerful/o7lh3vj/
 
 ANSWER: because people can not face their addiction to commenting and media consumption about Epstein and Trump. We need to be doing massive cult deprogramming of the population with free time and spare time, not commenting over and over on different pages in a reactionary mindset.
+
+https://old.reddit.com/r/TwoXChromosomes/comments/1rfr0zt/with_paramount_acquiring_warner_bros_the_farright/o7m237g/
+
+"EVERYTHING IS MEDIA ECOLOGY", SEE_ALSO https://GitHub.com/RocketDerp/April14_2025/blob/main/Media_Ecology/Everything_is_ME.md
+
