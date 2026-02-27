@@ -484,7 +484,7 @@ https://old.reddit.com/r/pics/comments/1rfk6o1/team_usa_mens_hockey_team_being_t
 
 https://old.reddit.com/r/GetNoted/comments/1rfobog/now_hateful_bigots_make_use_of_ai_to_breathe_life/o7lhczh/
 
-5 month Reddit account. Top-upvoted most popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+5 month Reddit account. Top-upvoted most popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT The screen shot on Reddit is sourced from "Russia News" SURKOV_WARFARE
 
 https://old.reddit.com/r/GetNoted/comments/1rfobog/now_hateful_bigots_make_use_of_ai_to_breathe_life/o7ljo1m/
 
