@@ -582,3 +582,7 @@ ANSWER: It does not make sense to Morgan Freeman because people are not studying
 https://old.reddit.com/r/UnderReportedNews/comments/1rgdhkh/morgan_freeman_on_donald_trump_we_have_somebody/o7ql6lr/
 
 Truth Social fandom on Reddit. TRUMP_FANDOM anticipation the next media content delivery. ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rgdhkh/morgan_freeman_on_donald_trump_we_have_somebody/o7qme56/
+
+UNDERSTANDING_TRUMPISM This very popular Reddit comment makes no effort to give an author name for more information, an off-Reddit link. It just gives low-information upvoting content. https://en.wikipedia.org/wiki/Low_information_voter the addiction to high-speed information systems delivery is not grasped on Reddit. Trump provides constant stimulation to Reddit audiences, MAGA content fandoms.
