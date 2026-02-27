@@ -894,3 +894,7 @@ SINGSONG_JOYCEAN
 https://old.reddit.com/r/nottheonion/comments/1rfl8x8/pope_leo_demands_priests_stop_using_ai_to_write/o7kvnrb/
 
 BIBLE_LITERACY 
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1rfn42i/tell_them_what_peter/o7laxap/
+
+CONCERNS_OF_FINNEGANS language words to reality.
