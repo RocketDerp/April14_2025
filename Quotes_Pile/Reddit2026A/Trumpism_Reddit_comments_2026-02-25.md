@@ -532,3 +532,14 @@ https://old.reddit.com/r/circled/comments/1rg67lt/wrong_first_lady_melania_has_b
 
 Surkovian governing. HOW_SURKOV_WON - Reddit users eat it up. Entertainment, drama. OBSERVE: Reddit users commenting on the shit-show with shit-commenting and shit-posting and zero effort to organize or call for any form of intellectual resistance or education campaign of the general public. Notably the Reddit commenting avoids any mention of books, author names, off-Reddit links on topics of: Trump mental health (Dr. Bandy X Lee and 27 contributors to a book published October 3, 2017), Jen Senko nonfiction film on brainwashing, information warfare topics of Putin and Russia (war against reality with fiction).
 
+https://old.reddit.com/r/politics/comments/1rgapzn/it_can_now_be_plainly_said_trump_is_planning_a/o7pyvjm/
+
+Extremely important serious topic, one single word, not even 140 character mindset. Twitter-think nation USA. This is the most popular comment, the most upvoted by low-information upvoters. https://en.wikipedia.org/wiki/Low_information_voter HOW_SURKOV_WON - Reddit users eat it up. Shit-commenting shit-posting leader Donald Trump inspires this ignorance celebration.
+
+https://old.reddit.com/r/politics/comments/1rgapzn/it_can_now_be_plainly_said_trump_is_planning_a/o7pzfyn/
+
+There is such a deep misunderstanding of what Putin's Saint Petersburg Internet Research Agency and Cambridge Analytica have done to "Hearts and Minds". This is every hour of every day. Why are Reddit users NOT promoting Dr. Bandy X Lee's 27 leaders since October 3, 2017? ANSWER: hearts and minds are conditioned to self-harm the USA through simplistic symbolic thinking. Election day win is symbolic. The brain rot is EVERY HOUR of EVERY DAY. And the answer to brain rot is serious nonfiction adult education, teaching, learning, including Dr Lee's nonfiction books on paper! ELECTION_DAY_FIXATED_BRAIN_ROT_EVERY_DAY_FOX_NEWS_ETC
+
+https://old.reddit.com/r/politics/comments/1rgapzn/it_can_now_be_plainly_said_trump_is_planning_a/o7pzf68/
+
+RESISTING_WHAT_EXACTLY ? People think the crisis is going to happen in November 2026 - without any concern to July 4, 2026 thinking systems of 250 years. This is all about winning hearts and minds to flock to shit-commenting, shit-posting, shit-media mythological-based fiction Surkovian governing systems. EVERY HOUR of EVERY DAY. The psychological denial is sickening that people think the problem is voting booths and now low-information upvoting https://en.wikipedia.org/wiki/Low_information_voter on every media platform! Journalists and writers with any nonfiction serious teaching topics have been abandoned in favor of fiction addictions! Brain rot every day all day, USA!
