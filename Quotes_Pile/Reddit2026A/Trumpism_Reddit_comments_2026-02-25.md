@@ -647,3 +647,9 @@ MASS_DEHUMANIZATION_POPULAR technology love and praise of hate has become so nor
 https://old.reddit.com/r/politics/comments/1rgngmc/florida_suddenly_cuts_off_12000_people_from/o7so0rk/
 
 It's a virus, like measles is a virus like COVID-19 is a virus. Never forget August 24, 2018. SELF_HARM_USA
+
+https://old.reddit.com/r/pics/comments/1rh03ji/someone_remembers/o7v3716/
+
+The mocking, The mockery USA, the entertained Reddit TRUMP_FANDOM with under 140 characters programmed Tweet-thinking Twitter-length resection commenting. Generic meaningless Reddit posting title, click-bait fandom upvoted. Anti-intellectual followers of Trump on Reddit. CLICKBAIT_TITLE
+
+Social post { https://autistics.life/@RoundSparrow/116148292901442646 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfwakt6wlk2q }   
