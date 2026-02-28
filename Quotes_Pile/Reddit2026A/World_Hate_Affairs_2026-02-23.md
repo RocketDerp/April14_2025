@@ -533,3 +533,13 @@ https://old.reddit.com/r/therewasanattempt/comments/1rh8i7h/to_make_it_look_iran
 https://old.reddit.com/r/therewasanattempt/comments/1rh8i7h/to_make_it_look_iran_is_the_real_danger/o7ww5pr/
 
 February 28 today. NOT_GOOD_ENOUGH MLK Jr February 28, 1954. HATE_HARDER is the machine-lovers answer to hate, always more hate, always adding more and more hate.
+
+https://old.reddit.com/r/worldnews/comments/1rhbvdu/iranian_leader_khamenei_killed_in_strike_israeli/o7xkelr/
+
+https://old.reddit.com/r/worldnews/comments/1rhbvdu/iranian_leader_khamenei_killed_in_strike_israeli/o7xl6jx/
+
+https://old.reddit.com/r/worldnews/comments/1rhbvdu/iranian_leader_khamenei_killed_in_strike_israeli/o7xj3ys/
+
+https://old.reddit.com/r/worldnews/comments/1rhbvdu/iranian_leader_khamenei_killed_in_strike_israeli/o7xqaeh/
+
+The best day in a person's life is military killing a death. Anti-goodness. Not winning a person over to goodness, but splattering their brain.
