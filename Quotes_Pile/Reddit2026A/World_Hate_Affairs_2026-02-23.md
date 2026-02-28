@@ -358,3 +358,6 @@ https://old.reddit.com/r/interestingasfuck/comments/1rgx26o/here_we_go/o7un8sd/
 
 1 month Reddit account. Attracted to Trump fashion, like orange skin, as the topic. This is not resisting Trump. Concerned with superficial matters. SUPER_HYPER_NORMAL
 
+https://old.reddit.com/r/AskReddit/comments/1rgx06k/the_president_of_peace_just_launched_another_war/o7uo2ad/
+
+ANTI_WIKI_ANTI_FAQ the Reddit culture prizes commenting engagement that Trump provides. The avoidance of using Wiki or FAQ to get everyone on the same page in a thoughtful non-reactionary way is there if you look for it. This is a war dangerous situation,and yet again the 27 mental health people that Dr. Bandy X Lee assembled for her October 3, 2017 nonfiction books should be quoted and repeated...and Reddit commenting cult ignores relevant nonfiction books on paper.
