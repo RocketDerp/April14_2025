@@ -504,3 +504,6 @@ https://old.reddit.com/r/Music/comments/1rh5spv/jack_white_on_trumps_bombing_of_
 
 2nd most popular comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING anti-intellectual sanewashing Trump via satire, jokes, humor cracking. SATIRE_SARCASM_WASHING
 
+https://old.reddit.com/r/Music/comments/1rh5spv/jack_white_on_trumps_bombing_of_iran_behold_the/o7wcs0j/
+
+That's what TRUMP_FANDOM does, MEDIA_MANIA of repeating and parroting Trump-speak over and over. It is a cult. SOCIAL_CULT_HATE_WATCHING_FANDOM
