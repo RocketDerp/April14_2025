@@ -716,4 +716,25 @@ https://old.reddit.com/r/MonoMythWarfare/comments/1axpk8r/james_comer_and_tucker
 
 https://old.reddit.com/r/MonoMythWarfare/comments/1axpk8r/james_comer_and_tucker_carlson_arent_fooled_by/krqnrbf/
 
+Created a Reddit account for one and only one comment, then never made a comment again. Only engaged this /r MonoMythWarfare subreddit.
+
 https://old.reddit.com/r/MonoMythWarfare/comments/1axpk8r/james_comer_and_tucker_carlson_arent_fooled_by/krqsfkh/
+
+
+https://old.reddit.com/r/FoxFiction/comments/1ax5tca/james_comer_and_tucker_carlson_arent_fooled_by/krlpvt7/
+
+Same off-Reddit URL story on another subreddit, only now-deleted accounts commented. Extremely suspicious. INFORMATION_WARFARE talking points.
+
+https://old.reddit.com/r/FoxFiction/comments/1ax5tca/james_comer_and_tucker_carlson_arent_fooled_by/krmhddy/
+
+FAKE_RESISTANCE
+
+https://old.reddit.com/r/Astuff/comments/1ax7mjr/james_comer_and_tucker_carlson_arent_fooled_by/krqymhd/
+
+Created a new Reddit account to make this comment on the same off-Reddit URL story. FAKE_RESISTANCE they made two more comments then ever commented again for years. Here are the two more comments of fake resistance:
+
+https://old.reddit.com/r/AskReddit/comments/1axxjk8/people_of_reddit_what_was_the_reason_you_joined/krqz10w/
+
+all 3 comments were made on February 23, starting with James Comer tucker Carlson Russia comment.
+
+https://old.reddit.com/r/PeopleBeingAssholes/comments/1axvu0r/san_jose_bakery_loses_thousands_of_dollars_after/krqzbka/
