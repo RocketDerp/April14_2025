@@ -385,3 +385,10 @@ Outbreak of mind-fucking. People have been cheering on every outbreak since Marc
 https://old.reddit.com/r/Fauxmoi/comments/1rgt6l5/cillian_murphy_at_a_recent_qa_when_asked_by_an/o7tw8ov/
 
 11 month Reddit account, most-upvoted popular. As for the whole topic of acting fiction vs.reality and people behaving as if fiction is more difficult: UNIFIED_THEORY_FICTION_NONFICTION
+
+https://old.reddit.com/r/therewasanattempt/comments/1rgz6n3/to_criticize/o7uxds8/
+
+Trump was in (or returning from?) Moscow, Russia at the time of that Tweet. https://x.com/realDonaldTrump/status/399731975432728576 7:55 PM · Nov 10, 2013. Sunday
+November 10, 2013.
+
+https://time.com/5251484/donald-trump-flight-records-moscow-trip/ "Yet the broad timeline of Trump’s stay, stretching from Friday, Nov. 8, 2013, through the following Sunday morning, has been widely reported. And it’s substantiated by social media posts that show he slept in Moscow the night before the Miss Universe contest."
