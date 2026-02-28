@@ -738,3 +738,20 @@ https://old.reddit.com/r/AskReddit/comments/1axxjk8/people_of_reddit_what_was_th
 all 3 comments were made on February 23, starting with James Comer tucker Carlson Russia comment.
 
 https://old.reddit.com/r/PeopleBeingAssholes/comments/1axvu0r/san_jose_bakery_loses_thousands_of_dollars_after/krqzbka/
+
+https://old.reddit.com/r/Astuff/comments/1ax7mjr/james_comer_and_tucker_carlson_arent_fooled_by/krq5v6k/
+
+Joined Reddit that same say as I posted on /r/MonoMythWarfare to make one and only one comment of hyper-banal mocking of Putin. to normalize Putin as a non-threat during the year 2024 Election of Trump. HYPER_BANALISATION
+
+https://old.reddit.com/r/Astuff/comments/1ax7mjr/james_comer_and_tucker_carlson_arent_fooled_by/krpjrvy/
+
+Joined Reddit that same say as I posted on /r/MonoMythWarfare to make one and only one comment of hyper-banal mocking of Putin. to normalize Putin as a non-threat during the year 2024 Election of Trump. HYPER_BANALISATION ACTIVE_MEASURES on Reddit
+
+https://old.reddit.com/r/Astuff/comments/1ax7mjr/james_comer_and_tucker_carlson_arent_fooled_by/krqn0tt/
+
+Joined Reddit that same say as I posted on /r/MonoMythWarfare to make first comment of new account... of hyper-banal mocking of Putin. to normalize Putin as a non-threat during the year 2024 Election of Trump. HYPER_BANALISATION ACTIVE_MEASURES on Reddit. Made one more comment that virgin day and then never commented again in 2 years.
+
+https://old.reddit.com/r/AskReddit/comments/1axvsyy/what_is_your_favorite_movie/krqnh29/
+
+the only other comment made by that account whose sole purpose was to make Anti-Putin mockery comments and never active again. Extreme low-effort commenting.
+
