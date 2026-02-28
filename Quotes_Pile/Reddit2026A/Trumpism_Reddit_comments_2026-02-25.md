@@ -621,3 +621,11 @@ https://old.reddit.com/r/law/comments/1rgm095/trump_says_hes_thinking_of_putting
 
 WIDE_RADICAL_DOUBT_ABOUT_REAL
 
+https://old.reddit.com/r/scotus/comments/1rgly8z/catholic_bishops_warn_the_supreme_court_that/o7sd4wx/
+
+<img width="948" height="1133" alt="image" src="https://github.com/user-attachments/assets/845e8d7e-d9c8-4c15-8ba3-80218793fdb4" />
+
+February 28... if only American We The People gave a single shit about what Dr. Martin Luther King Jr. said on February 28, 1954. REMEDIAL_MORALITY LEVANT_MONOMYTH_CRISIS 
+
+NEW_OPERA_NAME #WTFJesus   
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mfvcmzcxv22j https://autistics.life/@RoundSparrow/116146189748401404 }   
