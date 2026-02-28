@@ -324,3 +324,6 @@ NYC Premiere: October 15, 1940. General/Wide Releases: The film rolled out in di
 https://old.reddit.com/r/Damnthatsinteresting/comments/1rgpqdn/norwegian_consumer_council_has_published_a_video/o7t64xx/
 
 Shit-posting shit-commenting following of Donald Trump all over serious topics on Reddit is what got us here. People think shit-commenting about Donald Trump is amusing and funny. Surkov won since March 2013.
+
+https://old.reddit.com/r/worldnews/comments/1rgv6a2/israeli_defense_minister_we_have_launched/o7u9eqa/
+
