@@ -731,3 +731,7 @@ https://old.reddit.com/r/ImmigrationPathways/comments/1rh59y5/in_2019_kamala_har
 https://old.reddit.com/r/conspiracy/comments/1rh81l4/bruh/o7wt7vt/
 
 Most popular, top-upvoted. 3 words. TRUMP_FANDOM waiting for Trump images. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
+
+https://old.reddit.com/r/stevehofstetter/comments/1rh31j4/start_a_war_for_another_distraction/o7vq7qs/
+
+CALL_FOR_ACTION_TO_DO_TRIVIAL_CHANGE No call to Reddit community to have a We The People Internet uprising / intellectual moral blackout of social media. No call for Trump's removal or end to the war. Just a call to change a trivial name detail of the war killing people.
