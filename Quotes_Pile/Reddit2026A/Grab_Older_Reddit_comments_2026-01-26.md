@@ -860,3 +860,16 @@ https://old.reddit.com/r/politics/comments/1ax4qkp/james_comer_and_tucker_carlso
 
 So this is the message that the previous link was responding to. This account ALSO went inactive on Reddit shortly before the November 2024 election win by Trump. Is this whole back and forth message exchange SIMULATION_SIMULACRA back in February 2024... and then they both stop using Reddit in October 2024?
 
+
+
+https://old.reddit.com/r/MonoMythWarfare/comments/1ay5tqp/alabama_chief_justice_tom_parker_who_ruled_that/kruinsz/
+
+Created a Reddit account for one and only one comment, then never made a comment again. Only engaged this /r MonoMythWarfare subreddit.
+
+https://old.reddit.com/r/MonoMythWarfare/comments/1ay5tqp/alabama_chief_justice_tom_parker_who_ruled_that/krv8242/
+
+Same pattern. Created a Reddit account for one and only one comment, then made one low-effort comment, then account stopped. Only engaged this /r MonoMythWarfare subreddit (which nobody finds by accident, they are targeted the posting URL back in that 2024 era, the activity I am sure is more intelligent these days in 2026). Here is the other comment on that newly created account:
+
+https://old.reddit.com/r/AskReddit/comments/1ayjqk4/what_is_the_most_enjoyable_part_of_your_day/krv8neo/
+
+Note that the account commented on a posting that has since been deleted. So they may specifically target postings that get removed and deleted to not draw as much attention.
