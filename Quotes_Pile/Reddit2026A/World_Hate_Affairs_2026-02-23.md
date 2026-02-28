@@ -487,3 +487,7 @@ PROMOTING_IGNORANCE_WORKS_PLAYING_DUMB_MOCKING tiny short under 140 character me
 https://old.reddit.com/r/Fauxmoi/comments/1rh3t7t/the_zionist_regime_and_the_us_have_killed_51/o7vyyih/
 
 2 month Reddit account. Playing dumb. Remember, the post was made by a 4 month Reddit account. Massive Reddit influencer with "4,793 post karma 49,883 comment karma" since January 5.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rh6711/inshallah/o7wb6ys/
+
+Why isn't Reddit community organizing a REDDIT_BLACKOUT ? Why is no social media user community protesting that bad things are bad? ANSWER: People are only concerned about the entertainment being cut off. If the Internet were shut down, no more photographs of Donald Trump to stimulate the handheld devices. The ADDICTION to Trump content is why Trump has so much power! Why is there no Reddit user-created blackout? Protest on social media? Commenting isn't protesting.
