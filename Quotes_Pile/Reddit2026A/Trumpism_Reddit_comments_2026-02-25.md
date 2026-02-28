@@ -744,3 +744,6 @@ https://old.reddit.com/r/pics/comments/1rhehy0/president_trump_monitors_us_milit
 
 "LOL", "kidding". CHUCKLEHEAD_NATION - Twitter on the screen at that meeting. A bunch of Internet addicts who are fans of Internet addict leader Trump. Always avoiding nonfiction serious books: Dr.Bandy X Lee avoided.
 
+https://old.reddit.com/r/pics/comments/1rhehy0/president_trump_monitors_us_military_operations/o7y31xw/
+
+Stupid commenting that follows a leader of stupid. The followers of stupid messaging leadership. CALL_FOR_ACTION_TO_DO_TRIVIAL_CHANGE that the only concern is that Trump not wear a hat.
