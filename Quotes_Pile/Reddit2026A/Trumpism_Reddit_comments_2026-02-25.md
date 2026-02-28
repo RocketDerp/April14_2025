@@ -602,3 +602,14 @@ Anti-PLURIBUS. COLLECTIVELY_INTELLIGENT_PLURIBUS_LEARNING is essential.
 https://old.reddit.com/r/PoliticalHumor/comments/1rggzrl/average_republican/o7rbifm/
 
 EPSTEIN_FANDOM loves SLUT SHAMING. Instead of promoting women like Dr. Bandy X Lee and Jen Senko as relevant and critical important topics to rescue USA right now, ASAP.... slut-shaming women for sharing sex with men.
+
+https://old.reddit.com/r/law/comments/1rgl7ed/trump_maybe_we_do_one_more_term_should_we_do_one/o7san5j/
+
+https://old.reddit.com/r/law/comments/1rgl7ed/trump_maybe_we_do_one_more_term_should_we_do_one/o7s6k6v/
+
+https://old.reddit.com/r/law/comments/1rgl7ed/trump_maybe_we_do_one_more_term_should_we_do_one/o7sbl38/
+
+https://old.reddit.com/r/law/comments/1rgl7ed/trump_maybe_we_do_one_more_term_should_we_do_one/o7sbaf6/
+
+https://old.reddit.com/r/law/comments/1rgl7ed/trump_maybe_we_do_one_more_term_should_we_do_one/o7sdhpy/
+
