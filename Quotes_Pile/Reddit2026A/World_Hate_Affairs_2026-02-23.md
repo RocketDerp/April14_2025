@@ -455,3 +455,7 @@ https://old.reddit.com/r/interestingasfuck/comments/1rgxu95/he_is_weak_and_ineff
 MEDIA_ECOLOGY_OBSERVATION 
 
 The video seems legit: "On Nov. 16, 2011, Trump's official YouTube channel published the video circulating online, titled "From The Desk Of Donald Trump: Iran and Occupy Wall Street." https://www.snopes.com/fact-check/video-trump-iran-obama/
+
+https://old.reddit.com/r/TrueAnon/comments/1rh0u5p/the_deputy_governor_of_hormozgan_province_in_iran/o7v7pcx/
+
+Top most upvoted comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING commenting to describe the situation isn't resisting the situation. It's just commenting about it casually.
