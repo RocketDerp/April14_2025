@@ -684,4 +684,3 @@ https://old.reddit.com/r/politics/comments/1rgwobt/trump_says_us_military_has_be
 
 "I knew he was going to do something like this" - and isn't calling for any Reddit uprising, We The People on Reddit to have a REDDIT_BLACKOUT or promote Dr. Bandy X Lee's nonfiction book, or promote Jen Senko's nonfiction film and book about brainwashing.Just keep on commenting away as if it is entertaining Reality TV that Trump is providing for Reddit fandoms. Exactly as reddit community has been doing with media for over a decade around Trump. Anti-intellectual commentary on events that avoids serious relevant nonfiction books on paper.
 
-
