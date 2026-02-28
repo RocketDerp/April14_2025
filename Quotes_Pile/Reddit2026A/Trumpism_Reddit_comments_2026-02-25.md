@@ -663,3 +663,7 @@ https://old.reddit.com/r/pics/comments/1rh03ji/someone_remembers/o7v5hh4/
 "In order to get elected Barack Obama will start a war with Iran" - Trump, November 29, 2011 https://www.Newsweek.com/trump-repeatedly-accused-obama-plotting-attack-iran-get-re-elected-1036924
 
 Year 2011, Twitter. SEE_ALSO: https://GitHub.com/RocketDerp/April14_2025/blob/main/A00/About/Why_Highlight_Circle_Year_2011_onward.md
+
+https://old.reddit.com/r/NonPoliticalTwitter/comments/1rgvcqr/we_used_to_be_a_proper_country_in_true_reality/o7ub2v0/
+
+On Reddit, we used to call this type of low-effort commenting "Twitter" 140 characters or less. Reddit allows 10,000 characters. As for the posting, this is not just real estate. WIDE_RADICAL_DOUBT_ABOUT_REAL - Trump is the role model of real estate leadership, golf courses, hotels, properties. Decades of Trump values and worship for images.
