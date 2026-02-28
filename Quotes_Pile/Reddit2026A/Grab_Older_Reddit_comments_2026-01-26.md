@@ -878,3 +878,14 @@ https://old.reddit.com/r/Astuff/comments/1aygqet/alabama_justice_who_ruled_that_
 
 Same posting off-Reddit URL on a parallel subreddit. Created a Reddit account for one and only one comment, then never made a comment again.
 
+https://old.reddit.com/r/MonoMythWarfare/comments/1ay5b4t/florida_defies_usas_center_for_disease_control_in/krvx83s/
+
+More of the same
+
+https://old.reddit.com/r/MonoMythWarfare/comments/1ay5b4t/florida_defies_usas_center_for_disease_control_in/kruw3pv/
+
+PRO_DISEASE topic ( Never forget August 24, 2018 ). Created a Reddit account for one and only one comment, then made one low-effort comment, then account stopped. Only engaged this /r MonoMythWarfare subreddit (which nobody finds by accident, they are targeted the posting URL back in that 2024 era, the activity I am sure is more intelligent these days in 2026). Here is the other comment on that newly created account:
+
+https://old.reddit.com/r/AskReddit/comments/1ayhyht/whats_the_most_bizarre_culture_in_your_country/kruvo5a/
+
+they made the low-effort comment before going into /r/MonoMythWarfare for the pro-disease comment.
