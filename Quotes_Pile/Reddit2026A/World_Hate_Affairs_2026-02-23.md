@@ -361,3 +361,11 @@ https://old.reddit.com/r/interestingasfuck/comments/1rgx26o/here_we_go/o7un8sd/
 https://old.reddit.com/r/AskReddit/comments/1rgx06k/the_president_of_peace_just_launched_another_war/o7uo2ad/
 
 ANTI_WIKI_ANTI_FAQ the Reddit culture prizes commenting engagement that Trump provides. The avoidance of using Wiki or FAQ to get everyone on the same page in a thoughtful non-reactionary way is there if you look for it. This is a war dangerous situation,and yet again the 27 mental health people that Dr. Bandy X Lee assembled for her October 3, 2017 nonfiction books should be quoted and repeated...and Reddit commenting cult ignores relevant nonfiction books on paper.
+
+https://old.reddit.com/r/AskReddit/comments/1rgx06k/the_president_of_peace_just_launched_another_war/o7ur1kc/
+
+3 month Reddit account.
+
+https://old.reddit.com/r/AskReddit/comments/1rgx06k/the_president_of_peace_just_launched_another_war/o7unfo4/
+
+FOLLOWERS_OF_LEADER_TRUMP_ACTOR_ENTERTAINER_DONALD_TRUMP_FOLLOWERS Trump leads as an actor who is acting to create entertainment, Reddit follows Trump. Entertainment Reality TV leadership, We The People on Reddit follow with entertainment mindsets.
