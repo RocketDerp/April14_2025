@@ -643,3 +643,7 @@ https://old.reddit.com/r/wallstreetbets/comments/1rgri2d/sam_altman_tonight_we_r
 https://old.reddit.com/r/politics/comments/1rgngmc/florida_suddenly_cuts_off_12000_people_from/o7so3cx/
 
 MASS_DEHUMANIZATION_POPULAR technology love and praise of hate has become so normal in USA since year 2013. As long as GTA6 and Olympics and sports teams and whatever other entertainment is what people care about more than Dr. Bandy X Lee or the January 1944 Second Bill of Rights..
+
+https://old.reddit.com/r/politics/comments/1rgngmc/florida_suddenly_cuts_off_12000_people_from/o7so0rk/
+
+It's a virus, like measles is a virus like COVID-19 is a virus. Never forget August 24, 2018. SELF_HARM_USA
