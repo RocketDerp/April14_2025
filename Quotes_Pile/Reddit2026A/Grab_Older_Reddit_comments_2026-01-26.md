@@ -704,3 +704,16 @@ Promoting gun worship and teaching children that violence is the reserved answer
 
 REVIVE_OPERA_NAME #MoralityEducationCrisis #WhoTeachesMorality    
 Social post { https://autistics.life/@RoundSparrow/116137793505966827 https://bsky.app/profile/roundsparrow.bsky.social/post/3loyk7fuqjk2t }   
+
+
+https://old.reddit.com/r/MonoMythWarfare/comments/1axpk8r/james_comer_and_tucker_carlson_arent_fooled_by/krptq1r/
+
+Some comments on my /r/MonoMythWarfare subreddit that gets no upvotes, but does get comments.
+
+https://old.reddit.com/r/MonoMythWarfare/comments/1axpk8r/james_comer_and_tucker_carlson_arent_fooled_by/krqixea/
+
+https://old.reddit.com/r/MonoMythWarfare/comments/1axpk8r/james_comer_and_tucker_carlson_arent_fooled_by/krql9d6/
+
+https://old.reddit.com/r/MonoMythWarfare/comments/1axpk8r/james_comer_and_tucker_carlson_arent_fooled_by/krqnrbf/
+
+https://old.reddit.com/r/MonoMythWarfare/comments/1axpk8r/james_comer_and_tucker_carlson_arent_fooled_by/krqsfkh/
