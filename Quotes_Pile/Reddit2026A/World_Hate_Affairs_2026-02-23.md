@@ -327,3 +327,6 @@ Shit-posting shit-commenting following of Donald Trump all over serious topics o
 
 https://old.reddit.com/r/worldnews/comments/1rgv6a2/israeli_defense_minister_we_have_launched/o7u9eqa/
 
+https://old.reddit.com/r/worldnews/comments/1rgv6a2/israeli_defense_minister_we_have_launched/o7u6zhb/
+
+5 month Reddit account. 2nd most popular upvoted comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
