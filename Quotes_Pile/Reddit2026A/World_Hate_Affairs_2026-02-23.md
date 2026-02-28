@@ -416,3 +416,10 @@ https://old.reddit.com/r/politics/comments/1rgzu5x/maga_melts_down_over_iran_war
 
 HIGH_SPEED_REACTIONARY_MINDSETS
 
+https://old.reddit.com/r/politics/comments/1rgzu5x/maga_melts_down_over_iran_war_no_one_voted_for/o7v50vw/
+
+8 month Reddit account. 2nd most popular comment.
+
+https://old.reddit.com/r/politics/comments/1rgzu5x/maga_melts_down_over_iran_war_no_one_voted_for/o7v19w2/
+
+No concern for dead people this causes that are outside USA, non-USA people. BILLIONAIRE_MIND_VIRUS talking points. 
