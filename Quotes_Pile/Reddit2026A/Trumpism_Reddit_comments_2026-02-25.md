@@ -715,3 +715,7 @@ https://old.reddit.com/r/videos/comments/1rh353g/walls_are_closing_in_on_trump_a
 https://old.reddit.com/r/videos/comments/1rh353g/walls_are_closing_in_on_trump_as_missing_epstein/o7vopz5/
 
 That's because there is no serious. Nonfiction books on paper have been abandoned. NONSENSE_HARDER is all people do. Trump does nonsense, and Reddit community posts nonsense on the front page. It is endless and has gone on since June 16, 2015 - endless anti-intellectual mocking. Trump is a source of entertainment and amusement. Neil Postman's 1985 nonfiction book "Amusing Ourselves To Death" explains this high-speed information attitude and behavior crisis.
+
+https://old.reddit.com/r/politics/comments/1rh28ht/trump_79_posts_crazed_4_am_rant_right_after/o7vh9ff/
+
+If Donald Trump were injured or killed, that would cause mass mayhem and violence. And people seen celebrating his death would likely meet a very bad cult outcome. The entire world is blaming the ENTIRE USA, not just Trump, for allowing the media addictions to Reality TV celebrity to go this far. But USA addicts to Trump content think that mocking trump isn't part of Surkovian governing. Mocking Tony Clifton POTUS character is eating the onion, adding MORE MOCKING to a total mockery is not resisting a mockery! People need to STOP social media mocking. FAITH_IN_MOCKERY And SEE_ALSO https://github.com/RocketDerp/April14_2025/blob/main/Grim_Blunt/Stop_All_Entertainment.md
