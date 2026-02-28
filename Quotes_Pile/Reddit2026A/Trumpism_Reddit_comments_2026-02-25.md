@@ -747,3 +747,11 @@ https://old.reddit.com/r/pics/comments/1rhehy0/president_trump_monitors_us_milit
 https://old.reddit.com/r/pics/comments/1rhehy0/president_trump_monitors_us_military_operations/o7y31xw/
 
 Stupid commenting that follows a leader of stupid. The followers of stupid messaging leadership. CALL_FOR_ACTION_TO_DO_TRIVIAL_CHANGE that the only concern is that Trump not wear a hat.
+
+https://old.reddit.com/r/Epstein/comments/1rh9yrc/not_all_of_the_files_referencing_trump_raping_a/o7x7i5y/
+
+"insane"
+
+https://old.reddit.com/r/Epstein/comments/1rh9yrc/not_all_of_the_files_referencing_trump_raping_a/o7xa2yc/
+
+1 month Reddit account. 3rd most upvoted popular comment. Tiny-short, not even near 140 character limit of Twitter-thinking.
