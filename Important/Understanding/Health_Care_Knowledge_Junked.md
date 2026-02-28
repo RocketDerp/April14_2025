@@ -262,3 +262,7 @@ https://old.reddit.com/r/science/comments/1qupf1g/young_adults_report_lower_life
 &nbsp;
 
 https://old.reddit.com/r/skeptic/comments/1qvpqtt/newborn_dies_after_mother_drinks_raw_milk_during/
+
+&nbsp;
+
+https://old.reddit.com/r/science/comments/1rhcpfi/carbon_dioxide_overload_detected_in_human_blood/
