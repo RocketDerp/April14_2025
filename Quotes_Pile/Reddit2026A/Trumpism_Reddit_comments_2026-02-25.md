@@ -671,3 +671,7 @@ On Reddit, we used to call this type of low-effort commenting "Twitter" 140 char
 https://old.reddit.com/r/whennews/comments/1rgxll9/literally_did_the_thing/o7umq0v/
 
 A fiction film. Reddit fandom of Trump content, the commenting community on Reddit, long ago abandoned relevant serious nonfiction. Dr.Bandy X Lee assembled 27 people in a book published October 3, 2017 - Reddit community avoids it. Dr. Lee's leadership should be commented and asserted again and again, but instead Reddit community is posting fiction film clips. FOLLOWERS_OF_LEADER_TRUMP_ACTOR_ENTERTAINER_DONALD_TRUMP_FOLLOWERS
+
+https://old.reddit.com/r/politics/comments/1rgwobt/trump_says_us_military_has_begun_major_combat/o7uh5nz/
+
+not concerned about the war, concerned about the taped recorded media on the Reddit cult media venue. 140 character Reddit outrage messages over media, not humans, but Trump media TRUMP_FANDOM crying out for LIVE video of Trump. CALL_FOR_ACTION_TO_DO_TRIVIAL_CHANGE
