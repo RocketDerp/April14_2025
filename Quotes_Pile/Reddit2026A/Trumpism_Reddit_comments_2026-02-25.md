@@ -723,3 +723,7 @@ If Donald Trump were injured or killed, that would cause mass mayhem and violenc
 https://old.reddit.com/r/ImmigrationPathways/comments/1rh59y5/in_2019_kamala_harris_warned_that_his_personal/o7w621d/
 
 The top-most upvoted popular comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING about how predictable all this is. Yes, Surkov student screenplays. Self-harm to USA for Putin. But Reddit fandom of Trump media content seems entirely unable to engage serious nonfiction learning on the topic. PREDICTABLE_OUTCOME
+
+https://old.reddit.com/r/ImmigrationPathways/comments/1rh59y5/in_2019_kamala_harris_warned_that_his_personal/o7w6t6v/
+
+10 month Reddit account, 2nd most popular upvoted comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT with 3 words, not even near the 140 Twitter-thinking length limit. Parroting Trump MAGA talking points about "her laugh" in highly conditioned mind patterns. Surkov won since March of year 2013.
