@@ -638,3 +638,5 @@ https://old.reddit.com/r/scotus/comments/1rgly8z/catholic_bishops_warn_the_supre
 
 https://old.reddit.com/r/scotus/comments/1rgly8z/catholic_bishops_warn_the_supreme_court_that/o7sch1c/
 
+https://old.reddit.com/r/wallstreetbets/comments/1rgri2d/sam_altman_tonight_we_reached_an_agreement_with/o7th7i3/
+
