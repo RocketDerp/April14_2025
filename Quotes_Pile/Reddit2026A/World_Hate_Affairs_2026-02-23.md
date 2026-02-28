@@ -369,3 +369,11 @@ https://old.reddit.com/r/AskReddit/comments/1rgx06k/the_president_of_peace_just_
 https://old.reddit.com/r/AskReddit/comments/1rgx06k/the_president_of_peace_just_launched_another_war/o7unfo4/
 
 FOLLOWERS_OF_LEADER_TRUMP_ACTOR_ENTERTAINER_DONALD_TRUMP_FOLLOWERS Trump leads as an actor who is acting to create entertainment, Reddit follows Trump. Entertainment Reality TV leadership, We The People on Reddit follow with entertainment mindsets.
+
+https://old.reddit.com/r/PublicFreakout/comments/1rgvu85/iranian_people_cheering_for_bombs_hitting_the/o7udel8/
+
+High-speed notification delivery addiction is Trumpism values. Always reacting.
+
+https://old.reddit.com/r/PublicFreakout/comments/1rgvu85/iranian_people_cheering_for_bombs_hitting_the/o7ucv3j/
+
+Fandom getting their weekend entertainment. This isn't resisting, it's extreme low-thinking 140 character Twitter reacting.
