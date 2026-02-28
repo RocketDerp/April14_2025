@@ -411,3 +411,8 @@ Number 1 popular comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER
 https://old.reddit.com/r/nottheonion/comments/1rh12bj/us_calls_strikes_on_iran_operation_epic_fury/o7v9z40/
 
 Number 2 popular comment. same  as the first. Reaction-commenting, Trump Fandom of reactionary mindsets.  REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
+
+https://old.reddit.com/r/politics/comments/1rgzu5x/maga_melts_down_over_iran_war_no_one_voted_for/o7v1bku/
+
+HIGH_SPEED_REACTIONARY_MINDSETS
+
