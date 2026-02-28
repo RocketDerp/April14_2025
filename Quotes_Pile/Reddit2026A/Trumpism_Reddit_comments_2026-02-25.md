@@ -727,3 +727,7 @@ The top-most upvoted popular comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARA
 https://old.reddit.com/r/ImmigrationPathways/comments/1rh59y5/in_2019_kamala_harris_warned_that_his_personal/o7w6t6v/
 
 10 month Reddit account, 2nd most popular upvoted comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT with 3 words, not even near the 140 Twitter-thinking length limit. Parroting Trump MAGA talking points about "her laugh" in highly conditioned mind patterns. Surkov won since March of year 2013.
+
+https://old.reddit.com/r/conspiracy/comments/1rh81l4/bruh/o7wt7vt/
+
+Most popular, top-upvoted. 3 words. TRUMP_FANDOM waiting for Trump images. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
