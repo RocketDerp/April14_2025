@@ -394,3 +394,9 @@ November 10, 2013.
 https://time.com/5251484/donald-trump-flight-records-moscow-trip/ "Yet the broad timeline of Trump’s stay, stretching from Friday, Nov. 8, 2013, through the following Sunday morning, has been widely reported. And it’s substantiated by social media posts that show he slept in Moscow the night before the Miss Universe contest."
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mfw7emztes2m https://bsky.app/profile/roundsparrow.bsky.social/post/3mfw7emztes2m https://MidWest.Social/post/44049533 }   
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rh13aq/gazza_20_unfolding_video_of_heartbreaking/o7vaoy7/
+
+Gaza topic. Most popular most-upvoted comment. Under 140 characters, 5 words Twitter-thinking. Donald Trump has a blatant disregard for humanism because he considered is non-entertaining and boring. War is media content Trump and Reddit community all find attractive. It gives Trump something to give speeches, make statements about that's exciting like fireworks and thunderstorms. It gives Reddit media addicts a chance to put in their 5-word comments and upvote them to the top concern on the topic. Trump is a media addict who has the same common behaviors as Reddit users: AVOIDING SERIOUS NONFICTION RELEVANT BOOKS. Such as a year 2013 book of nonfiction that Reddit does not find relevant, nor does Trump.
+
+* “If Christians, Hindus or Jews are really our enemies, as so many say, why are we Muslims fighting with each other?” ― Malala Yousafzai, I am Malala: The Story of the Girl Who Stood Up for Education and was Shot by the Taliban. **Published October 8, 2013** a decade before October 7, 2023.
