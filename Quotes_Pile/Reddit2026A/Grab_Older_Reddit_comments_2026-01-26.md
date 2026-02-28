@@ -889,3 +889,12 @@ PRO_DISEASE topic ( Never forget August 24, 2018 ). Created a Reddit account for
 https://old.reddit.com/r/AskReddit/comments/1ayhyht/whats_the_most_bizarre_culture_in_your_country/kruvo5a/
 
 they made the low-effort comment before going into /r/MonoMythWarfare for the pro-disease comment.
+
+
+
+https://old.reddit.com/r/WorldHateAffairs/comments/1rh8kxb/saturday_february_28_2026_in_memory_of_sunday/o7wud17/
+
+NEW_ARG_NAME #WorldHateAffairs isn't new, but new to Reddit.   
+NEW_ARG_PRIMARY_KEY o7wud17   
+My comment, I created a new subreddit today in recall of February 28, 1954 MLK Jr! WAKE_REALITY_CORE 
+
