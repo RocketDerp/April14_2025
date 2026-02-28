@@ -561,3 +561,7 @@ The most popular upvoted comment. "then you get older and realize how much chaos
 3. Is that Jason Hickel a Twitter, Elon Musk platform, screenshot on Reddit?
 
 SUPER_HYPER_NORMAL via Reddit. No-identity anti-intellectual anti-book, avoiding relevant nonfiction books on paper. October 3, 2017 about the DANGER of Donald Trump by Bandy X Lee with 27 people... but NOT_GOOD_ENOUGH for Reddit commenting creators to quote and link over and over.
+
+https://old.reddit.com/r/TrendoraX/comments/1rha7ol/greatest_threat_to_the_world/o7xbdsr/
+
+White promoting media addiction, Trump promoting celebration of ignorance, Trump promoting Twitter-think brain rot. Promoting the avoidance of nonfiction serious relevant books on paper.
