@@ -739,3 +739,8 @@ CALL_FOR_ACTION_TO_DO_TRIVIAL_CHANGE No call to Reddit community to have a We Th
 https://old.reddit.com/r/pics/comments/1rhehy0/president_trump_monitors_us_military_operations/o7y3472/
 
 MEDIA_ECOLOGY_OBSERVATION TWITTER_THINK_NATION 
+
+https://old.reddit.com/r/pics/comments/1rhehy0/president_trump_monitors_us_military_operations/o7y4z6l/
+
+"LOL", "kidding". CHUCKLEHEAD_NATION - Twitter on the screen at that meeting. A bunch of Internet addicts who are fans of Internet addict leader Trump. Always avoiding nonfiction serious books: Dr.Bandy X Lee avoided.
+
