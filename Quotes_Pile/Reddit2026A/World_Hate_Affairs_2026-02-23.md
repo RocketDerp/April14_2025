@@ -377,3 +377,7 @@ High-speed notification delivery addiction is Trumpism values. Always reacting.
 https://old.reddit.com/r/PublicFreakout/comments/1rgvu85/iranian_people_cheering_for_bombs_hitting_the/o7ucv3j/
 
 Fandom getting their weekend entertainment. This isn't resisting, it's extreme low-thinking 140 character Twitter reacting.
+
+https://old.reddit.com/r/PublicFreakout/comments/1rgvu85/iranian_people_cheering_for_bombs_hitting_the/o7ufzwx/
+
+Outbreak of mind-fucking. People have been cheering on every outbreak since March of year 2013. MOB_MENTALITY_FIRE_DRILLS
