@@ -496,3 +496,6 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1rh6711/inshallah/o7wbli5/
 
 TRUMP_FANDOM cult of Trump images crying out and begging for more Trump images. As if removing Trump from office needs more "evidence".  Also see the FIXATION on one man and not the cult of MAGA, Elon Musk cult, etc. TRUMP_FAMILY_FIXATED_BRAIN_ROT_EVERY_DAY_FOX_NEWS_TWITTER_ETC This very subreddt is a "White People Twitter", cult of Twitter content...begging for more content.
 
+https://old.reddit.com/r/Music/comments/1rh5spv/jack_white_on_trumps_bombing_of_iran_behold_the/o7w81xu/
+
+GULLIBLE_FANDOM of Trump. This isn't resisting. It's extremely low-effort statements. Trump is a media engagement cult power. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
