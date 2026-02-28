@@ -491,3 +491,8 @@ https://old.reddit.com/r/Fauxmoi/comments/1rh3t7t/the_zionist_regime_and_the_us_
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1rh6711/inshallah/o7wb6ys/
 
 Why isn't Reddit community organizing a REDDIT_BLACKOUT ? Why is no social media user community protesting that bad things are bad? ANSWER: People are only concerned about the entertainment being cut off. If the Internet were shut down, no more photographs of Donald Trump to stimulate the handheld devices. The ADDICTION to Trump content is why Trump has so much power! Why is there no Reddit user-created blackout? Protest on social media? Commenting isn't protesting.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rh6711/inshallah/o7wbli5/
+
+TRUMP_FANDOM cult of Trump images crying out and begging for more Trump images. As if removing Trump from office needs more "evidence".  Also see the FIXATION on one man and not the cult of MAGA, Elon Musk cult, etc. TRUMP_FAMILY_FIXATED_BRAIN_ROT_EVERY_DAY_FOX_NEWS_TWITTER_ETC This very subreddt is a "White People Twitter", cult of Twitter content...begging for more content.
+
