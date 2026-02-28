@@ -474,7 +474,7 @@ https://old.reddit.com/r/TrueAnon/comments/1rh0u5p/the_deputy_governor_of_hormoz
 
 https://old.reddit.com/r/Fauxmoi/comments/1rh3t7t/the_zionist_regime_and_the_us_have_killed_51/
 
-https://old.reddit.com/user/Tuturey 4 month Reddit account got this posting to the front page. Has a concealed Reddit profile that will not show their post or comment history. REDDIT_FRONT_PAGE_YOUNG_ACCOUNT
+This user https://old.reddit.com/user/Tuturey 4 month Reddit account got this posting to the front page. Has a concealed Reddit profile that will not show their post or comment history. REDDIT_FRONT_PAGE_YOUNG_ACCOUNT
 
 https://old.reddit.com/r/Fauxmoi/comments/1rh3t7t/the_zionist_regime_and_the_us_have_killed_51/o7vyaux/
 
