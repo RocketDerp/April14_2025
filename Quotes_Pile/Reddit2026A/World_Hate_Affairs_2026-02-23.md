@@ -523,3 +523,7 @@ LEVANT_MONOMYTH_CRISIS  February 28, 1954 ignored on WikiQuotes. Not Good Enough
 https://old.reddit.com/r/circled/comments/1rh5gkl/the_palm_hotel_in_dubai_hit_by_iranian_missile/o7weie1/
 
 People would rather make low-effort comments on machines over and over than turn to Dr. Bandy X Lee's nonfiction book published October 3, 2017. How many years ago was that...https://en.wikipedia.org/wiki/The_Dangerous_Case_of_Donald_Trump and why do Reddit comment creators avoid it day after day since year 2017? Because a woman organized 27 people to follow... and people rather comment about Trump than learn nonfiction and repeat it to address MAGA misunderstandings.
+
+https://old.reddit.com/r/circled/comments/1rh5gkl/the_palm_hotel_in_dubai_hit_by_iranian_missile/o7w7fls/
+
+How much more black and white and clear could it be with Trump and Putin? PUTIN_SURKOV_TRUMP_LONG_TERM_YEARS_PLAN And people can't even connect October 7, 2023 to being Putin's birthday.
