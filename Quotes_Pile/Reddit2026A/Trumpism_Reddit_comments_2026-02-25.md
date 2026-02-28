@@ -711,3 +711,7 @@ What truly matters to people is their ability to create tiny-short under 140 cha
 https://old.reddit.com/r/videos/comments/1rh353g/walls_are_closing_in_on_trump_as_missing_epstein/o7vnqgi/
 
 1st place upvoted popular comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING Donald Trump leads the USA society with anti-intellectual mocking, Reddit fandom follows Trump's leadership.
+
+https://old.reddit.com/r/videos/comments/1rh353g/walls_are_closing_in_on_trump_as_missing_epstein/o7vopz5/
+
+That's because there is no serious. Nonfiction books on paper have been abandoned. NONSENSE_HARDER is all people do. Trump does nonsense, and Reddit community posts nonsense on the front page. It is endless and has gone on since June 16, 2015 - endless anti-intellectual mocking. Trump is a source of entertainment and amusement. Neil Postman's 1985 nonfiction book "Amusing Ourselves To Death" explains this high-speed information attitude and behavior crisis.
