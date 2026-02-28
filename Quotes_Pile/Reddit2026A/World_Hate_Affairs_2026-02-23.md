@@ -423,3 +423,9 @@ https://old.reddit.com/r/politics/comments/1rgzu5x/maga_melts_down_over_iran_war
 https://old.reddit.com/r/politics/comments/1rgzu5x/maga_melts_down_over_iran_war_no_one_voted_for/o7v19w2/
 
 No concern for dead people this causes that are outside USA, non-USA people. BILLIONAIRE_MIND_VIRUS talking points. 
+
+https://old.reddit.com/r/politics/comments/1rgzu5x/maga_melts_down_over_iran_war_no_one_voted_for/o7v3vbw/
+
+Fox News. But not Reddit, not the Saint Petersburg Internet Research Agency that invaded Reddit... just concern with Fox News. OBSERVE_SOCIAL_MEDIA_AVOIDING_NONFICTION Now why is it on Reddit whenever someone criticizes Fox News,they can't seem to locate NONFICTION books and films? Why is Jen Senko not mentioned when Fox News HDTV media Rupert Murdoch billionaire platform comes up? Why is a woman, Jen Senko, not promoted about the topic of Fox News? DO YOU SEE THE AVOIDANCE OF NONFICTION? The constant engagement of low-effort commenting on Reddit? MORE THAN A DECADE, since year 2015, to learn Jen Senko's name in association with Fox News ... https://en.wikipedia.org/wiki/Jen_Senko Instead, Reddit commenting addictions mean low-effort low-information upvoting. 
+
+
