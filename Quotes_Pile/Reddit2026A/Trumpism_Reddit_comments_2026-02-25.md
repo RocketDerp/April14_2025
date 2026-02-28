@@ -675,3 +675,7 @@ A fiction film. Reddit fandom of Trump content, the commenting community on Redd
 https://old.reddit.com/r/politics/comments/1rgwobt/trump_says_us_military_has_begun_major_combat/o7uh5nz/
 
 not concerned about the war, concerned about the taped recorded media on the Reddit cult media venue. 140 character Reddit outrage messages over media, not humans, but Trump media TRUMP_FANDOM crying out for LIVE video of Trump. CALL_FOR_ACTION_TO_DO_TRIVIAL_CHANGE
+
+https://old.reddit.com/r/politics/comments/1rgwobt/trump_says_us_military_has_begun_major_combat/o7ui6vh/
+
+and the TRUMP_FANDOM on Reddit is entirely engaged with those Trump messages. OBSERVE_MEDIA_AVOIDANCE_OF_RELEVANT_NONFICTION nobody cares to call for an uprising on social media, a Reddit uprising to promoting Dr. Bandy X Lee's October 3, 2017 nonfiction book bout **DANGER*** of Donald Trump.
