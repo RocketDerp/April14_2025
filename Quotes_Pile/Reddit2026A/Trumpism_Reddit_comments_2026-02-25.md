@@ -617,3 +617,7 @@ https://old.reddit.com/r/LetsDiscussThis/comments/1rgjvdi/ice_agent_tosses_an_el
 
 https://old.reddit.com/r/movies/comments/1rghyex/netflix_says_paramount_has_paid_28_billion/o7rpfap/
 
+https://old.reddit.com/r/law/comments/1rgm095/trump_says_hes_thinking_of_putting_republican/o7spa95/
+
+WIDE_RADICAL_DOUBT_ABOUT_REAL
+
