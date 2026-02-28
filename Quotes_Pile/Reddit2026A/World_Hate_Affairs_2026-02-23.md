@@ -565,3 +565,8 @@ SUPER_HYPER_NORMAL via Reddit. No-identity anti-intellectual anti-book, avoiding
 https://old.reddit.com/r/TrendoraX/comments/1rha7ol/greatest_threat_to_the_world/o7xbdsr/
 
 White promoting media addiction, Trump promoting celebration of ignorance, Trump promoting Twitter-think brain rot. Promoting the avoidance of nonfiction serious relevant books on paper.
+
+https://old.reddit.com/r/politics/comments/1rhcgd2/usiran_strikes_iran_supreme_leader_ayatollah_ali/o7xpmbw/
+
+11 month Reddit account. Top-upvoted most popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT Today is February 28 - completely avoids the February 25, 1954 teachings of Dr. Martin Luther King Jr because NOT_GOOD_ENOUGH teacher Dr. Kink. Praises worship of hate, profile on Reddit account is *hate harder* following Trump leadership of hate. Pro-ignorance, anti-intellectual hate worship.
+
