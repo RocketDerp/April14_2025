@@ -471,3 +471,19 @@ RELIGION_CULTS_MONOMYTH_PROGRAMMING fiction, like Trump and Fox News provides, f
 https://old.reddit.com/r/TrueAnon/comments/1rh0u5p/the_deputy_governor_of_hormozgan_province_in_iran/o7va0fi/
 
 1 month Reddit account. REMEMBER_THE_PROGRAM_IDEAS_BILLIONAIRES_FED_REDDIT_AUDIENCE
+
+https://old.reddit.com/r/Fauxmoi/comments/1rh3t7t/the_zionist_regime_and_the_us_have_killed_51/
+
+https://old.reddit.com/user/Tuturey 4 month Reddit account got this posting to the front page. Has a concealed Reddit profile that will not show their post or comment history. REDDIT_FRONT_PAGE_YOUNG_ACCOUNT
+
+https://old.reddit.com/r/Fauxmoi/comments/1rh3t7t/the_zionist_regime_and_the_us_have_killed_51/o7vyaux/
+
+Top most upvoted comment conceals Reddit posting history and comment history. Has a message about lost password explaining why the account was recently revived on Reddit.
+
+https://old.reddit.com/r/Fauxmoi/comments/1rh3t7t/the_zionist_regime_and_the_us_have_killed_51/o7vzetf/
+
+PROMOTING_IGNORANCE_WORKS_PLAYING_DUMB_MOCKING tiny short under 140 character messages for media engagement. Has nobody heard of Malala's girls movement, nobody reads nonfiction. Just the stimulation of react-commenting.
+
+https://old.reddit.com/r/Fauxmoi/comments/1rh3t7t/the_zionist_regime_and_the_us_have_killed_51/o7vyyih/
+
+2 month Reddit account. Playing dumb. Remember, the post was made by a 4 month Reddit account. Massive Reddit influencer with "4,793 post karma 49,883 comment karma" since January 5.
