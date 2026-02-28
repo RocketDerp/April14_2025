@@ -684,3 +684,7 @@ https://old.reddit.com/r/politics/comments/1rgwobt/trump_says_us_military_has_be
 
 "I knew he was going to do something like this" - and isn't calling for any Reddit uprising, We The People on Reddit to have a REDDIT_BLACKOUT or promote Dr. Bandy X Lee's nonfiction book, or promote Jen Senko's nonfiction film and book about brainwashing.Just keep on commenting away as if it is entertaining Reality TV that Trump is providing for Reddit fandoms. Exactly as reddit community has been doing with media for over a decade around Trump. Anti-intellectual commentary on events that avoids serious relevant nonfiction books on paper.
 
+https://old.reddit.com/r/MurderedByWords/comments/1rh3g03/a_sacrifice_hes_willing_to_make/o7vungm/
+
+Everyone will keep saying "MURDERED, BY WORDS!!!" and commenting about Trump as has gone on for nearly 11 years endlessly on Reddit media. A celebrity of media leads a cult of media. And the whole "distraction", no Trump is ENTERTAINING. People knew about Epstein and knew about Trump's aggressive masculine behavior long long before end of February 2026. Trump on November 8, 2013 - was flying on a private jet to Moscow to parade women for men. People like the entertainment, people are attracted to Trump's content and photograph. It's February 28 today, nobody is attracted to MLK Jr's weekend message of February 28, 1954. But people sure activate their touch device to comment about Trump shit. ATTRACTION_TO_HATE_LEADERS_HATE_FOLLOWERS
+
