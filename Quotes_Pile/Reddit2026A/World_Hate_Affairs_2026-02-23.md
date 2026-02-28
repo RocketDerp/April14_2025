@@ -310,3 +310,7 @@ If only people would listen to Susan's work. So many World Hate Affairs would be
 https://old.reddit.com/r/Fauxmoi/comments/1rggzw3/oscar_winner_susan_sarandon_i_was_fired_by_my/o7rgkca/
 
 4 month Reddit account. The 2nd-most upvoted popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+
+https://old.reddit.com/r/interesting/comments/1rgl8rr/justice_has_been_served/o7spy6t/
+
+https://old.reddit.com/r/interesting/comments/1rgl8rr/justice_has_been_served/o7sb874/
