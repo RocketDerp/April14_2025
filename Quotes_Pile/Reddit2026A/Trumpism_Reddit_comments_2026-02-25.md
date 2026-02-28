@@ -653,3 +653,7 @@ https://old.reddit.com/r/pics/comments/1rh03ji/someone_remembers/o7v3716/
 The mocking, The mockery USA, the entertained Reddit TRUMP_FANDOM with under 140 characters programmed Tweet-thinking Twitter-length resection commenting. Generic meaningless Reddit posting title, click-bait fandom upvoted. Anti-intellectual followers of Trump on Reddit. CLICKBAIT_TITLE
 
 Social post { https://autistics.life/@RoundSparrow/116148292901442646 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfwakt6wlk2q }   
+
+https://old.reddit.com/r/pics/comments/1rh03ji/someone_remembers/o7v42ax/
+
+Reddit is the very venue of the idiocy. People spending free time and spare time on Reddit engaging in mockery, following the Trump mockery leadership. Non concern to promote related serious nonfiction of Dr. Bandy X Lee, Jen Senko, etc.  ADULT_EDUCATION_CRISIS_USA_ADULT_LEARNING_EMERGENCY
