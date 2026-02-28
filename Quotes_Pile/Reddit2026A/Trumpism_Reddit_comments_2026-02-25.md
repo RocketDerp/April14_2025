@@ -647,3 +647,75 @@ MASS_DEHUMANIZATION_POPULAR technology love and praise of hate has become so nor
 https://old.reddit.com/r/politics/comments/1rgngmc/florida_suddenly_cuts_off_12000_people_from/o7so0rk/
 
 It's a virus, like measles is a virus like COVID-19 is a virus. Never forget August 24, 2018. SELF_HARM_USA
+
+https://old.reddit.com/r/pics/comments/1rh03ji/someone_remembers/o7v3716/
+
+The mocking, The mockery USA, the entertained Reddit TRUMP_FANDOM with under 140 characters programmed Tweet-thinking Twitter-length resection commenting. Generic meaningless Reddit posting title, click-bait fandom upvoted. Anti-intellectual followers of Trump on Reddit. CLICKBAIT_TITLE
+
+Social post { https://autistics.life/@RoundSparrow/116148292901442646 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfwakt6wlk2q }   
+
+https://old.reddit.com/r/pics/comments/1rh03ji/someone_remembers/o7v42ax/
+
+Reddit is the very venue of the idiocy. People spending free time and spare time on Reddit engaging in mockery, following the Trump mockery leadership. Non concern to promote related serious nonfiction of Dr. Bandy X Lee, Jen Senko, etc.  ADULT_EDUCATION_CRISIS_USA_ADULT_LEARNING_EMERGENCY
+
+https://old.reddit.com/r/pics/comments/1rh03ji/someone_remembers/o7v5hh4/
+
+"In order to get elected Barack Obama will start a war with Iran" - Trump, November 29, 2011 https://www.Newsweek.com/trump-repeatedly-accused-obama-plotting-attack-iran-get-re-elected-1036924
+
+Year 2011, Twitter. SEE_ALSO: https://GitHub.com/RocketDerp/April14_2025/blob/main/A00/About/Why_Highlight_Circle_Year_2011_onward.md
+
+https://old.reddit.com/r/NonPoliticalTwitter/comments/1rgvcqr/we_used_to_be_a_proper_country_in_true_reality/o7ub2v0/
+
+On Reddit, we used to call this type of low-effort commenting "Twitter" 140 characters or less. Reddit allows 10,000 characters. As for the posting, this is not just real estate. WIDE_RADICAL_DOUBT_ABOUT_REAL - Trump is the role model of real estate leadership, golf courses, hotels, properties. Decades of Trump values and worship for images.
+
+https://old.reddit.com/r/whennews/comments/1rgxll9/literally_did_the_thing/o7umq0v/
+
+A fiction film. Reddit fandom of Trump content, the commenting community on Reddit, long ago abandoned relevant serious nonfiction. Dr.Bandy X Lee assembled 27 people in a book published October 3, 2017 - Reddit community avoids it. Dr. Lee's leadership should be commented and asserted again and again, but instead Reddit community is posting fiction film clips. FOLLOWERS_OF_LEADER_TRUMP_ACTOR_ENTERTAINER_DONALD_TRUMP_FOLLOWERS
+
+https://old.reddit.com/r/politics/comments/1rgwobt/trump_says_us_military_has_begun_major_combat/o7uh5nz/
+
+not concerned about the war, concerned about the taped recorded media on the Reddit cult media venue. 140 character Reddit outrage messages over media, not humans, but Trump media TRUMP_FANDOM crying out for LIVE video of Trump. CALL_FOR_ACTION_TO_DO_TRIVIAL_CHANGE
+
+https://old.reddit.com/r/politics/comments/1rgwobt/trump_says_us_military_has_begun_major_combat/o7ui6vh/
+
+and the TRUMP_FANDOM on Reddit is entirely engaged with those Trump messages. OBSERVE_MEDIA_AVOIDANCE_OF_RELEVANT_NONFICTION nobody cares to call for an uprising on social media, a Reddit uprising to promoting Dr. Bandy X Lee's October 3, 2017 nonfiction book about **DANGER*** of Donald Trump. https://en.wikipedia.org/wiki/The_Dangerous_Case_of_Donald_Trump
+
+https://old.reddit.com/r/politics/comments/1rgwobt/trump_says_us_military_has_begun_major_combat/o7ulejj/
+
+"I knew he was going to do something like this" - and isn't calling for any Reddit uprising, We The People on Reddit to have a REDDIT_BLACKOUT or promote Dr. Bandy X Lee's nonfiction book, or promote Jen Senko's nonfiction film and book about brainwashing.Just keep on commenting away as if it is entertaining Reality TV that Trump is providing for Reddit fandoms. Exactly as reddit community has been doing with media for over a decade around Trump. Anti-intellectual commentary on events that avoids serious relevant nonfiction books on paper.
+
+https://old.reddit.com/r/MurderedByWords/comments/1rh3g03/a_sacrifice_hes_willing_to_make/o7vungm/
+
+Everyone will keep saying "MURDERED, BY WORDS!!!" and commenting about Trump as has gone on for nearly 11 years endlessly on Reddit media. A celebrity of media leads a cult of media. And the whole "distraction", no Trump is ENTERTAINING. People knew about Epstein and knew about Trump's aggressive masculine behavior long long before end of February 2026. Trump on November 8, 2013 - was flying on a private jet to Moscow to parade women for men. People like the entertainment, people are attracted to Trump's content and photograph. It's February 28 today, nobody is attracted to MLK Jr's weekend message of February 28, 1954. But people sure activate their touch device to comment about Trump shit. ATTRACTION_TO_HATE_LEADERS_HATE_FOLLOWERS
+
+https://old.reddit.com/r/PoliticalHumor/comments/1rh55sg/the_new_weapon_unveiled_by_iran/o7w3til/
+
+REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING begging for more Trump sex smut content. Not to remove Trump, but to get more media.
+
+https://old.reddit.com/r/PoliticalHumor/comments/1rh55sg/the_new_weapon_unveiled_by_iran/o7war3q/
+
+my comment
+
+https://old.reddit.com/r/PoliticalHumor/comments/1rh55sg/the_new_weapon_unveiled_by_iran/o7w8hwq/
+
+We have a massive GULLIBILITY_CRISIS that people are getting such a media rush off this, sexually stimulated by the high-speed information prospects of more Trump sex images. INFORMATION_STRIP_TEASE
+
+https://old.reddit.com/r/PoliticalHumor/comments/1rh55sg/the_new_weapon_unveiled_by_iran/o7w818n/
+
+GULLIBLE_FANDOM of Trump content, MAGA fandom of images and pro-hate warfare on Reddit is cheering this on.
+
+https://old.reddit.com/r/PoliticalHumor/comments/1rh55sg/the_new_weapon_unveiled_by_iran/o7w4kgz/
+
+What truly matters to people is their ability to create tiny-short under 140 character comments around the circle of events and chaos created by Donald. Trump. year after year, "media engagement" of being able to comment about Trump.  That's what matters to American media consumers. OUTSMARTED_TRICKED_MANIPULATED_BAMBOOZLED_BY_TRUMP_MURDOCH_PUTIN
+
+https://old.reddit.com/r/videos/comments/1rh353g/walls_are_closing_in_on_trump_as_missing_epstein/o7vnqgi/
+
+1st place upvoted popular comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING Donald Trump leads the USA society with anti-intellectual mocking, Reddit fandom follows Trump's leadership.
+
+https://old.reddit.com/r/videos/comments/1rh353g/walls_are_closing_in_on_trump_as_missing_epstein/o7vopz5/
+
+That's because there is no serious. Nonfiction books on paper have been abandoned. NONSENSE_HARDER is all people do. Trump does nonsense, and Reddit community posts nonsense on the front page. It is endless and has gone on since June 16, 2015 - endless anti-intellectual mocking. Trump is a source of entertainment and amusement. Neil Postman's 1985 nonfiction book "Amusing Ourselves To Death" explains this high-speed information attitude and behavior crisis.
+
+https://old.reddit.com/r/politics/comments/1rh28ht/trump_79_posts_crazed_4_am_rant_right_after/o7vh9ff/
+
+If Donald Trump were injured or killed, that would cause mass mayhem and violence. And people seen celebrating his death would likely meet a very bad cult outcome. The entire world is blaming the ENTIRE USA, not just Trump, for allowing the media addictions to Reality TV celebrity to go this far. But USA addicts to Trump content think that mocking trump isn't part of Surkovian governing. Mocking Tony Clifton POTUS character is eating the onion, adding MORE MOCKING to a total mockery is not resisting a mockery! People need to STOP social media mocking. FAITH_IN_MOCKERY And SEE_ALSO https://github.com/RocketDerp/April14_2025/blob/main/Grim_Blunt/Stop_All_Entertainment.md

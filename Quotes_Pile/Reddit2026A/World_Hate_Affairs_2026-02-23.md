@@ -384,7 +384,7 @@ Outbreak of mind-fucking. People have been cheering on every outbreak since Marc
 
 https://old.reddit.com/r/Fauxmoi/comments/1rgt6l5/cillian_murphy_at_a_recent_qa_when_asked_by_an/o7tw8ov/
 
-11 month Reddit account, most-upvoted popular. As for the whole topic of acting fiction vs.reality and people behaving as if fiction is more difficult: UNIFIED_THEORY_FICTION_NONFICTION
+11 month Reddit account, most-upvoted popular. As for the whole topic of acting fiction vs. reality and people behaving as if fiction is more difficult: UNIFIED_THEORY_FICTION_NONFICTION
 
 https://old.reddit.com/r/therewasanattempt/comments/1rgz6n3/to_criticize/o7uxds8/
 
@@ -394,3 +394,116 @@ November 10, 2013.
 https://time.com/5251484/donald-trump-flight-records-moscow-trip/ "Yet the broad timeline of Trump’s stay, stretching from Friday, Nov. 8, 2013, through the following Sunday morning, has been widely reported. And it’s substantiated by social media posts that show he slept in Moscow the night before the Miss Universe contest."
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mfw7emztes2m https://bsky.app/profile/roundsparrow.bsky.social/post/3mfw7emztes2m https://MidWest.Social/post/44049533 }   
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rh13aq/gazza_20_unfolding_video_of_heartbreaking/o7vaoy7/
+
+Gaza topic. Most popular most-upvoted comment. Under 140 characters, 5 words Twitter-thinking. Donald Trump has a blatant disregard for humanism because he considered is non-entertaining and boring. War is media content Trump and Reddit community all find attractive. It gives Trump something to give speeches, make statements about that's exciting like fireworks and thunderstorms. It gives Reddit media addicts a chance to put in their 5-word comments and upvote them to the top concern on the topic. Trump is a media addict who has the same common behaviors as Reddit users: AVOIDING SERIOUS NONFICTION RELEVANT BOOKS. Such as a year 2013 book of nonfiction that Reddit does not find relevant, nor does Trump.
+
+* “If Christians, Hindus or Jews are really our enemies, as so many say, why are we Muslims fighting with each other?” ― Malala Yousafzai, I am Malala: The Story of the Girl Who Stood Up for Education and was Shot by the Taliban. **Published October 8, 2013** a decade before October 7, 2023.
+
+https://old.reddit.com/r/nottheonion/comments/1rh12bj/us_calls_strikes_on_iran_operation_epic_fury/o7v964d/
+
+Number 1 popular comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING It has nothing to do with age. But Reddit commenting cult members who upvote, low-information voters, are now all attracted to anti-intellectual commenting. Donald Trump isn't age 12, Elon Musk isn't age 12, it's the Kremlin information warfare that Reddit community can't name, Saint Petersburg Internet Research Agency since year 2013 that changed the mindsets.
+
+* "Russia-watcher Catherine Fitzpatrick, who documents Kremlin disinformation for InterpreterMag . com, says just as Moscow uses vague Internet laws to encourage self-censorship, trolls inhibit informed debate by using **crude dialogue to change "the climate of discussion."** "If you show up at The Washington Post or New Republic sites, where there's an article that's critical of Russia, and you see that **there are 200 comments that sound like they were written by 12-year-olds**, then you just don't bother to comment," she says.  "You don't participate. It's a way of just **driving discussion away** completely," she adds. "Those **kinds of tactics are meant to stop democratic debate**, and they work." - **year 2014** https://www.theatlantic.com/international/archive/2014/08/the-kremlins-troll-army/375932/
+
+
+https://old.reddit.com/r/nottheonion/comments/1rh12bj/us_calls_strikes_on_iran_operation_epic_fury/o7v9z40/
+
+Number 2 popular comment. same  as the first. Reaction-commenting, Trump Fandom of reactionary mindsets.  REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
+
+https://old.reddit.com/r/politics/comments/1rgzu5x/maga_melts_down_over_iran_war_no_one_voted_for/o7v1bku/
+
+HIGH_SPEED_REACTIONARY_MINDSETS
+
+https://old.reddit.com/r/politics/comments/1rgzu5x/maga_melts_down_over_iran_war_no_one_voted_for/o7v50vw/
+
+8 month Reddit account. 2nd most popular comment.
+
+https://old.reddit.com/r/politics/comments/1rgzu5x/maga_melts_down_over_iran_war_no_one_voted_for/o7v19w2/
+
+No concern for dead people this causes that are outside USA, non-USA people. BILLIONAIRE_MIND_VIRUS talking points. 
+
+https://old.reddit.com/r/politics/comments/1rgzu5x/maga_melts_down_over_iran_war_no_one_voted_for/o7v3vbw/
+
+Fox News. But not Reddit, not the Saint Petersburg Internet Research Agency that invaded Reddit... just concern with Fox News. OBSERVE_SOCIAL_MEDIA_AVOIDING_NONFICTION Now why is it on Reddit whenever someone criticizes Fox News,they can't seem to locate NONFICTION books and films? Why is Jen Senko not mentioned when Fox News HDTV media Rupert Murdoch billionaire platform comes up? Why is a woman, Jen Senko, not promoted about the topic of Fox News? DO YOU SEE THE AVOIDANCE OF NONFICTION? The constant engagement of low-effort commenting on Reddit? MORE THAN A DECADE, since year 2015, to learn Jen Senko's name in association with Fox News ... https://en.wikipedia.org/wiki/Jen_Senko Instead, Reddit commenting addictions mean low-effort low-information upvoting. 
+
+https://old.reddit.com/r/interestingasfuck/comments/1rgxu95/he_is_weak_and_ineffective/o7uqety/
+
+TRUMP_FANDOM loves and upvotes this posting title. CLICKBAIT_TITLE with the TRUMP_WEAK_MUSK_WEAK_DO_NOTHING_TO_RESIST_TALKING_POINTS
+
+https://old.reddit.com/r/interestingasfuck/comments/1rgxu95/he_is_weak_and_ineffective/o7uqede/
+
+World Hate Affairs. Today is February 28. "I legit hate this MF." - Saturday, February 28, 2026. ATTRACTION_TO_HATE_LEADERS_HATE_FOLLOWERS - Reddit is attracted to hate signals, hate leadership followers on Reddit.
+
+**The 1954 Equation**
+
+February 28, 1954: "Most people can't stand up for their convictions, because the majority of people might not be doing it. See, everybody's not doing it, so it must be wrong. And since everybody is doing it, it must be right. So a sort of numerical interpretation of what's right. But I'm here to say to you this morning that some things are right and some things are wrong. Eternally so, absolutely so. **It's wrong to hate.** It always has been wrong and it always will be wrong. It's wrong in America, it's wrong in Germany, it's wrong in Russia, it's wrong in China. It was wrong in 2000 B.C., and it's wrong in 1954 A.D. It always has been wrong, and it always will be wrong." - Martin Luther King Jr.
+
+"For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the **true becomes false and the false becomes true**. That's what hate does. You can't see right. **The symbol of objectivity** is lost." - Martin Luther King Jr.
+
+NEW_OPERA_NAME #SocialMediaFollows #TrumpLeadsHate #TrumpLeadsWithHate 
+#FollowersOfHate #FandomsOfHateLeaders    
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mfwekt736k27 https://autistics.life/@RoundSparrow/116148578008085240 }   
+
+https://old.reddit.com/r/interestingasfuck/comments/1rgxu95/he_is_weak_and_ineffective/
+
+Posting, not comment.  The user who posted this posting to the front page of /r/All is a 1 month Reddit account. https://old.reddit.com/user/yousefthewisee They do not even have a verified e-mail address, zero trophy on Reddit account. They are moderator of https://old.reddit.com/r/Egyptic/ - and the ONLY history of posting and comments shows: https://old.reddit.com/user/yousefthewisee/comments/1qqlrzo/%D8%A7%D9%84%D8%B5%D8%A8_%D8%A8%D8%AA%D8%A7%D8%B9%D9%8A/
+
+https://old.reddit.com/r/interestingasfuck/comments/1rgxu95/he_is_weak_and_ineffective/o7uqfly/
+
+MEDIA_ECOLOGY_OBSERVATION 
+
+The video seems legit: "On Nov. 16, 2011, Trump's official YouTube channel published the video circulating online, titled "From The Desk Of Donald Trump: Iran and Occupy Wall Street." https://www.snopes.com/fact-check/video-trump-iran-obama/
+
+https://old.reddit.com/r/TrueAnon/comments/1rh0u5p/the_deputy_governor_of_hormozgan_province_in_iran/o7v7pcx/
+
+Top most upvoted comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING commenting to describe the situation isn't resisting the situation. It's just commenting about it casually.
+
+https://old.reddit.com/r/TrueAnon/comments/1rh0u5p/the_deputy_governor_of_hormozgan_province_in_iran/o7vfllw/
+
+Reddit media cult fandom. Media cults abound. MEDIA_ECOLOGY_OBSERVATION 
+
+https://old.reddit.com/r/TrueAnon/comments/1rh0u5p/the_deputy_governor_of_hormozgan_province_in_iran/o7v8tjh/
+
+RELIGION_CULTS_MONOMYTH_PROGRAMMING fiction, like Trump and Fox News provides, fiction addictions.
+
+https://old.reddit.com/r/TrueAnon/comments/1rh0u5p/the_deputy_governor_of_hormozgan_province_in_iran/o7va0fi/
+
+1 month Reddit account. REMEMBER_THE_PROGRAM_IDEAS_BILLIONAIRES_FED_REDDIT_AUDIENCE
+
+https://old.reddit.com/r/Fauxmoi/comments/1rh3t7t/the_zionist_regime_and_the_us_have_killed_51/
+
+https://old.reddit.com/user/Tuturey 4 month Reddit account got this posting to the front page. Has a concealed Reddit profile that will not show their post or comment history. REDDIT_FRONT_PAGE_YOUNG_ACCOUNT
+
+https://old.reddit.com/r/Fauxmoi/comments/1rh3t7t/the_zionist_regime_and_the_us_have_killed_51/o7vyaux/
+
+Top most upvoted comment conceals Reddit posting history and comment history. Has a message about lost password explaining why the account was recently revived on Reddit.
+
+https://old.reddit.com/r/Fauxmoi/comments/1rh3t7t/the_zionist_regime_and_the_us_have_killed_51/o7vzetf/
+
+PROMOTING_IGNORANCE_WORKS_PLAYING_DUMB_MOCKING tiny short under 140 character messages for media engagement. Has nobody heard of Malala's girls movement, nobody reads nonfiction. Just the stimulation of react-commenting.
+
+https://old.reddit.com/r/Fauxmoi/comments/1rh3t7t/the_zionist_regime_and_the_us_have_killed_51/o7vyyih/
+
+2 month Reddit account. Playing dumb. Remember, the post was made by a 4 month Reddit account. Massive Reddit influencer with "4,793 post karma 49,883 comment karma" since January 5.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rh6711/inshallah/o7wb6ys/
+
+Why isn't Reddit community organizing a REDDIT_BLACKOUT ? Why is no social media user community protesting that bad things are bad? ANSWER: People are only concerned about the entertainment being cut off. If the Internet were shut down, no more photographs of Donald Trump to stimulate the handheld devices. The ADDICTION to Trump content is why Trump has so much power! Why is there no Reddit user-created blackout? Protest on social media? Commenting isn't protesting.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rh6711/inshallah/o7wbli5/
+
+TRUMP_FANDOM cult of Trump images crying out and begging for more Trump images. As if removing Trump from office needs more "evidence".  Also see the FIXATION on one man and not the cult of MAGA, Elon Musk cult, etc. TRUMP_FAMILY_FIXATED_BRAIN_ROT_EVERY_DAY_FOX_NEWS_TWITTER_ETC This very subreddt is a "White People Twitter", cult of Twitter content...begging for more content.
+
+https://old.reddit.com/r/Music/comments/1rh5spv/jack_white_on_trumps_bombing_of_iran_behold_the/o7w81xu/
+
+GULLIBLE_FANDOM of Trump. This isn't resisting. It's extremely low-effort statements. Trump is a media engagement cult power. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING 1st most popular comment.
+
+https://old.reddit.com/r/Music/comments/1rh5spv/jack_white_on_trumps_bombing_of_iran_behold_the/o7wa2li/
+
+2nd most popular comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING anti-intellectual sanewashing Trump via satire, jokes, humor cracking. SATIRE_SARCASM_WASHING
+
+https://old.reddit.com/r/Music/comments/1rh5spv/jack_white_on_trumps_bombing_of_iran_behold_the/o7wcs0j/
+
+That's what TRUMP_FANDOM does, MEDIA_MANIA of repeating and parroting Trump-speak over and over. It is a cult. SOCIAL_CULT_HATE_WATCHING_FANDOM
