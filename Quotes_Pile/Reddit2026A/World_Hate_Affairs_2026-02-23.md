@@ -453,3 +453,5 @@ Posting, not comment.  The user who posted this posting to the front page of /r/
 https://old.reddit.com/r/interestingasfuck/comments/1rgxu95/he_is_weak_and_ineffective/o7uqfly/
 
 MEDIA_ECOLOGY_OBSERVATION 
+
+The video seems legit: "On Nov. 16, 2011, Trump's official YouTube channel published the video circulating online, titled "From The Desk Of Donald Trump: Iran and Occupy Wall Street." https://www.snopes.com/fact-check/video-trump-iran-obama/
