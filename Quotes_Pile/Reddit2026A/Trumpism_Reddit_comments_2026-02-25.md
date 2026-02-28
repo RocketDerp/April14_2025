@@ -688,3 +688,10 @@ https://old.reddit.com/r/MurderedByWords/comments/1rh3g03/a_sacrifice_hes_willin
 
 Everyone will keep saying "MURDERED, BY WORDS!!!" and commenting about Trump as has gone on for nearly 11 years endlessly on Reddit media. A celebrity of media leads a cult of media. And the whole "distraction", no Trump is ENTERTAINING. People knew about Epstein and knew about Trump's aggressive masculine behavior long long before end of February 2026. Trump on November 8, 2013 - was flying on a private jet to Moscow to parade women for men. People like the entertainment, people are attracted to Trump's content and photograph. It's February 28 today, nobody is attracted to MLK Jr's weekend message of February 28, 1954. But people sure activate their touch device to comment about Trump shit. ATTRACTION_TO_HATE_LEADERS_HATE_FOLLOWERS
 
+https://old.reddit.com/r/PoliticalHumor/comments/1rh55sg/the_new_weapon_unveiled_by_iran/o7w3til/
+
+REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING begging for more Trump sex smut content. Not to remove Trump, but to get more media.
+
+https://old.reddit.com/r/PoliticalHumor/comments/1rh55sg/the_new_weapon_unveiled_by_iran/o7war3q/
+
+my comment
