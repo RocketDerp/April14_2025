@@ -657,3 +657,9 @@ Social post { https://autistics.life/@RoundSparrow/116148292901442646 https://bs
 https://old.reddit.com/r/pics/comments/1rh03ji/someone_remembers/o7v42ax/
 
 Reddit is the very venue of the idiocy. People spending free time and spare time on Reddit engaging in mockery, following the Trump mockery leadership. Non concern to promote related serious nonfiction of Dr. Bandy X Lee, Jen Senko, etc.  ADULT_EDUCATION_CRISIS_USA_ADULT_LEARNING_EMERGENCY
+
+https://old.reddit.com/r/pics/comments/1rh03ji/someone_remembers/o7v5hh4/
+
+"In order to get elected Barack Obama will start a war with Iran" - Trump, November 29, 2011 https://www.Newsweek.com/trump-repeatedly-accused-obama-plotting-attack-iran-get-re-elected-1036924
+
+Year 2011, Twitter. SEE_ALSO: https://GitHub.com/RocketDerp/April14_2025/blob/main/A00/About/Why_Highlight_Circle_Year_2011_onward.md
