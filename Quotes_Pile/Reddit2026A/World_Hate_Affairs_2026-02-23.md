@@ -335,3 +335,8 @@ https://old.reddit.com/r/news/comments/1rgvrtt/the_united_states_is_participatin
 
 Most popular comment, most upvoted. 140 character thinking. "LOL". AMUSEMENT_COMEDY_WASHING_TRUMP_AS_FUNNY_MEDIA_SANEWASHING and parroting Trump talking point. Gullible Reddit fandom. This incredibly popular,most upvoted,low-information upvoter message is in no way resisting Trump and cheering on Trump as a source of "LOL". DEAtH_BY_LOL https://en.wikipedia.org/wiki/Low_information_voter
 
+https://old.reddit.com/r/news/comments/1rgvrtt/the_united_states_is_participating_in_the_israeli/o7uaz8e/
+
+2nd most popular, most upvoted comment. 140 character Tweet-thinking. CHUCKLEHEAD_NATION in no way is this comment *resisting* Trump and MAGA, it is a fandom joke-washing that Trump is a great source of chuckles and amusements for high-speed notification addicts.
+
+
