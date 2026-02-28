@@ -545,3 +545,7 @@ https://old.reddit.com/r/worldnews/comments/1rhbvdu/iranian_leader_khamenei_kill
 The best day in a person's life is military killing a death. Anti-goodness. Not winning a person over to goodness, but splattering their brain.
 
 https://old.reddit.com/r/worldnews/comments/1rhbvdu/iranian_leader_khamenei_killed_in_strike_israeli/o7xkhdv/
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1rh6wgo/petah_quagmire/o7whqo3/
+
+Affairs of hating humans.
