@@ -340,3 +340,6 @@ https://old.reddit.com/r/news/comments/1rgvrtt/the_united_states_is_participatin
 2nd most popular, most upvoted comment. 140 character Tweet-thinking. CHUCKLEHEAD_NATION in no way is this comment *resisting* Trump and MAGA, it is a fandom joke-washing that Trump is a great source of chuckles and amusements for high-speed notification addicts.
 
 
+https://old.reddit.com/r/news/comments/1rgvrtt/the_united_states_is_participating_in_the_israeli/o7ub1tq/
+
+3rd most popular comment, most upvoted. 140 character Tweet-thinking. REPUBLICANS_LEAD_WITH_IGNORANCE_IDEAS_AND_FOLLOWERS_REPLY_WITH_IGNORANCE this comment is not resisting MAGA values, it describes them as routine low-effort commenting source of media stimulation and engagement.
