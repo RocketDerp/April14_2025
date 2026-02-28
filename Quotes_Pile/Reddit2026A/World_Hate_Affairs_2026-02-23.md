@@ -507,3 +507,8 @@ https://old.reddit.com/r/Music/comments/1rh5spv/jack_white_on_trumps_bombing_of_
 https://old.reddit.com/r/Music/comments/1rh5spv/jack_white_on_trumps_bombing_of_iran_behold_the/o7wcs0j/
 
 That's what TRUMP_FANDOM does, MEDIA_MANIA of repeating and parroting Trump-speak over and over. It is a cult. SOCIAL_CULT_HATE_WATCHING_FANDOM
+
+https://old.reddit.com/r/news/comments/1rh5cho/iran_strikes_us_military_bases_in_qatar_kuwait/o7wnm52/
+
+The most popular Reddit comment, the most upvoted. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING It is Donald Trump who created the topic, "Board of Peace", and Reddit community keeps repeating Trump with extreme-short chanting messages. This is not resisting, this is a Trump parroting cult of media systems.
+
