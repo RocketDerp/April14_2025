@@ -873,3 +873,8 @@ Same pattern. Created a Reddit account for one and only one comment, then made o
 https://old.reddit.com/r/AskReddit/comments/1ayjqk4/what_is_the_most_enjoyable_part_of_your_day/krv8neo/
 
 Note that the account commented on a posting that has since been deleted. So they may specifically target postings that get removed and deleted to not draw as much attention.
+
+https://old.reddit.com/r/Astuff/comments/1aygqet/alabama_justice_who_ruled_that_embryos_are/kruwluu/
+
+Same posting off-Reddit URL on a parallel subreddit. Created a Reddit account for one and only one comment, then never made a comment again.
+
