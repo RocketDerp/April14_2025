@@ -708,3 +708,6 @@ https://old.reddit.com/r/PoliticalHumor/comments/1rh55sg/the_new_weapon_unveiled
 
 What truly matters to people is their ability to create tiny-short under 140 character comments around the circle of events and chaos created by Donald. Trump. year after year, "media engagement" of being able to comment about Trump.  That's what matters to American media consumers. OUTSMARTED_TRICKED_MANIPULATED_BAMBOOZLED_BY_TRUMP_MURDOCH_PUTIN
 
+https://old.reddit.com/r/videos/comments/1rh353g/walls_are_closing_in_on_trump_as_missing_epstein/o7vnqgi/
+
+1st place upvoted popular comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING Donald Trump leads the USA society with anti-intellectual mocking, Reddit fandom follows Trump's leadership.
