@@ -320,3 +320,7 @@ https://old.reddit.com/r/Damnthatsinteresting/comments/1rgpqdn/norwegian_consume
 NYC Premiere: October 15, 1940. General/Wide Releases: The film rolled out in different regions on varying dates, such as October 23 in Philadelphia, October 25 in Pittsburgh, and October 31 in Chicago.
 
 "We want to live by each other’s happiness - not by each other’s misery. We don’t want to hate and despise one another. In this world there is room for everyone. And the good earth is rich and can provide for everyone. The way of life can be free and beautiful, but we have lost the way. Greed has poisoned men’s souls, has barricaded the world with hate, has goose-stepped us into misery and bloodshed. We have developed speed, but we have shut ourselves in. Machinery that gives abundance has left us in want. Our knowledge has made us cynical. Our cleverness, hard and unkind. We think too much and feel too little. More than machinery we need humanity. More than cleverness we need kindness and gentleness. Without these qualities, life will be violent and all will be lost…" https://www.charliechaplin.com/en/articles/29-the-final-speech-from-the-great-dictator-
+
+https://old.reddit.com/r/Damnthatsinteresting/comments/1rgpqdn/norwegian_consumer_council_has_published_a_video/o7t64xx/
+
+Shit-posting shit-commenting following of Donald Trump all over serious topics on Reddit is what got us here. People think shit-commenting about Donald Trump is amusing and funny. Surkov won since March 2013.
