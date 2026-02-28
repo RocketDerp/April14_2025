@@ -527,3 +527,9 @@ People would rather make low-effort comments on machines over and over than turn
 https://old.reddit.com/r/circled/comments/1rh5gkl/the_palm_hotel_in_dubai_hit_by_iranian_missile/o7w7fls/
 
 How much more black and white and clear could it be with Trump and Putin? PUTIN_SURKOV_TRUMP_LONG_TERM_YEARS_PLAN And people can't even connect October 7, 2023 to being Putin's birthday.
+
+https://old.reddit.com/r/therewasanattempt/comments/1rh8i7h/to_make_it_look_iran_is_the_real_danger/o7wuvsy/
+
+https://old.reddit.com/r/therewasanattempt/comments/1rh8i7h/to_make_it_look_iran_is_the_real_danger/o7ww5pr/
+
+February 28 today. NOT_GOOD_ENOUGH MLK Jr February 28, 1954. HATE_HARDER is the machine-lovers answer to hate, always more hate, always adding more and more hate.
