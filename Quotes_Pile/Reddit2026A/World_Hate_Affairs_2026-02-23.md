@@ -463,3 +463,7 @@ Top most upvoted comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER
 https://old.reddit.com/r/TrueAnon/comments/1rh0u5p/the_deputy_governor_of_hormozgan_province_in_iran/o7vfllw/
 
 Reddit media cult fandom. Media cults abound. MEDIA_ECOLOGY_OBSERVATION 
+
+https://old.reddit.com/r/TrueAnon/comments/1rh0u5p/the_deputy_governor_of_hormozgan_province_in_iran/o7v8tjh/
+
+RELIGION_CULTS_MONOMYTH_PROGRAMMING fiction, like Trump and Fox News provides, fiction addictions.
