@@ -515,3 +515,8 @@ The most popular Reddit comment, the most upvoted. REDDIT_TOP_COMMENT_SERIOUS_TO
 https://old.reddit.com/r/news/comments/1rh5cho/iran_strikes_us_military_bases_in_qatar_kuwait/o7w6yw9/
 
 For the love of god, why isn't social media having an uprising? Play by play reaction commenting is in no way resisting the media events Trump keeps creating on any and every topic day and night. REDDIT_BLACKOUT - why isn't Reddit doing a blackout protest? Like has been done before... ANSWER: We The People can't think outside the commenting box calling for Congress and stand up on social media and all get on the same page: Dr. Bandy X Lee's October 3, 2017 nonfiction book.
+
+https://old.reddit.com/r/circled/comments/1rh5gkl/the_palm_hotel_in_dubai_hit_by_iranian_missile/o7wmwzm/
+
+LEVANT_MONOMYTH_CRISIS  February 28, 1954 ignored on WikiQuotes. Not Good Enough to turn to MLK Jr today on February 28.
+
