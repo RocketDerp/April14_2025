@@ -629,3 +629,12 @@ February 28... if only American We The People gave a single shit about what Dr. 
 
 NEW_OPERA_NAME #WTFJesus   
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mfvcmzcxv22j https://autistics.life/@RoundSparrow/116146189748401404 }   
+
+https://old.reddit.com/r/scotus/comments/1rgly8z/catholic_bishops_warn_the_supreme_court_that/o7skff9/
+
+https://old.reddit.com/r/scotus/comments/1rgly8z/catholic_bishops_warn_the_supreme_court_that/o7simr4/
+
+https://old.reddit.com/r/scotus/comments/1rgly8z/catholic_bishops_warn_the_supreme_court_that/o7sgl1g/
+
+https://old.reddit.com/r/scotus/comments/1rgly8z/catholic_bishops_warn_the_supreme_court_that/o7sch1c/
+
