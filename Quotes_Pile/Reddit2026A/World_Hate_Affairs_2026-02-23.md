@@ -349,3 +349,12 @@ https://old.reddit.com/r/interestingasfuck/comments/1rgx26o/here_we_go/o7uq5j3/
 Top-most upvoted popular comment. SUPERFICIAL_SHALLOW_PRIZING_TRUMPISM_MAGA_VALUES People are going to war, and the mot **POPULAR** Reddit comment is to comment about TRUMP_FANDOM celebrity concerns of clothing and fashion. This is RIGHT OUT OF WAR_PEACE_GLOBAL_VILLAGE by Marshall McLuhan! This Reddit community isn't resisting TRUMP_CHARMING - the audience is being charmed by Trump to be as superficial about war as Trump is.
 
 * "Fashion is, as it were, the poor man's art, the usually unbought grace of life which he participates in only as a spectator. In sensory terms fashion has a kind of infallibility about it. As with hit tunes and hit pictures and hit entertainments, **fashion rushes in to fill the vacuum in our senses created by technological displacements**." - page 21. War and Peace in the Global Village, year 1968. Marshall McLuhan. SEE_ALSO: https://www.ⵠ.net/War_Peace_Global_Village (my educational website)
+
+https://old.reddit.com/r/interestingasfuck/comments/1rgx26o/here_we_go/o7une58/
+
+SATIRE_SARCASM_WASHING Reddit fandom of Trump is joke-washing sane-washing Trump.
+
+https://old.reddit.com/r/interestingasfuck/comments/1rgx26o/here_we_go/o7un8sd/
+
+1 month Reddit account. Attracted to Trump fashion, like orange skin, as the topic. This is not resisting Trump. Concerned with superficial matters. SUPER_HYPER_NORMAL
+
