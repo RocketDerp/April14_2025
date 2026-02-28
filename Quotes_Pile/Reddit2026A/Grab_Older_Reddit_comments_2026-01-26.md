@@ -706,6 +706,8 @@ REVIVE_OPERA_NAME #MoralityEducationCrisis #WhoTeachesMorality
 Social post { https://autistics.life/@RoundSparrow/116137793505966827 https://bsky.app/profile/roundsparrow.bsky.social/post/3loyk7fuqjk2t }   
 
 
+
+
 https://old.reddit.com/r/MonoMythWarfare/comments/1axpk8r/james_comer_and_tucker_carlson_arent_fooled_by/krptq1r/
 
 Some comments on my /r/MonoMythWarfare subreddit that gets no upvotes, but does get comments.
@@ -754,4 +756,107 @@ Joined Reddit that same say as I posted on /r/MonoMythWarfare to make first comm
 https://old.reddit.com/r/AskReddit/comments/1axvsyy/what_is_your_favorite_movie/krqnh29/
 
 the only other comment made by that account whose sole purpose was to make Anti-Putin mockery comments and never active again. Extreme low-effort commenting.
+
+https://old.reddit.com/r/politics/comments/1ax4qkp/james_comer_and_tucker_carlson_arent_fooled_by/krni9gy/
+
+Same posting as the one I did on /r/MonoMythWrfare - and suspicious simple-think banal comment. 
+
+https://old.reddit.com/r/politics/comments/1ax4qkp/james_comer_and_tucker_carlson_arent_fooled_by/krmvul1/
+
+Was this the source comment copied to other subreddits with parallel same-URL postings?
+
+https://old.reddit.com/r/politics/comments/1ax4qkp/james_comer_and_tucker_carlson_arent_fooled_by/krmq43n/
+
+"media CYA" one of the phrases used  in /r/MonoMythWarfare comments earlier in this list?
+
+https://old.reddit.com/r/politics/comments/1ax4qkp/james_comer_and_tucker_carlson_arent_fooled_by/krmhh7c/
+
+HYPER_BANALISATION - downplaying Putin topic, trivializing it.
+
+https://old.reddit.com/r/politics/comments/1ax4qkp/james_comer_and_tucker_carlson_arent_fooled_by/krls15d/
+
+https://old.reddit.com/r/politics/comments/1ax4qkp/james_comer_and_tucker_carlson_arent_fooled_by/krljg1t/
+
+Deleted comments abound, but some quoted comments discussion here.
+
+https://old.reddit.com/r/politics/comments/1ax4qkp/james_comer_and_tucker_carlson_arent_fooled_by/krmtpz9/
+
+https://old.reddit.com/r/politics/comments/1ax4qkp/james_comer_and_tucker_carlson_arent_fooled_by/krna1ce/
+
+The account now deleted. Notice how it only implies Russia success was TV and other media, not social media, not Reddit.
+
+https://old.reddit.com/r/politics/comments/1ax4qkp/james_comer_and_tucker_carlson_arent_fooled_by/krmbido/
+
+since deleted account.
+
+https://old.reddit.com/r/politics/comments/1ax4qkp/james_comer_and_tucker_carlson_arent_fooled_by/krlssqz/
+
+Account now gone. So much sex-talk in these hyper-banal commenting. Epstein like topic associations with Putin. Sexually forbidden mental manipulation mindsets. Right up the MonoMyth Warfare topic and focus.
+
+https://old.reddit.com/r/politics/comments/1ax4qkp/james_comer_and_tucker_carlson_arent_fooled_by/krlhdce/
+
+Discussion of the insincere account activity.
+
+https://old.reddit.com/r/politics/comments/1ax4qkp/james_comer_and_tucker_carlson_arent_fooled_by/krmtpz9/
+
+https://old.reddit.com/r/politics/comments/1ax4qkp/james_comer_and_tucker_carlson_arent_fooled_by/krna1ce/
+
+Now deleted account. Isn't this the exact same comment from another comment in this posting?
+
+https://old.reddit.com/r/politics/comments/1ax4qkp/james_comer_and_tucker_carlson_arent_fooled_by/krmbido/
+
+Same one-word comment as another already on this list. Now deleted account since comment created.
+
+https://old.reddit.com/r/politics/comments/1ax4qkp/james_comer_and_tucker_carlson_arent_fooled_by/krlssqz/
+
+Account now gone on Reddit.
+
+https://old.reddit.com/r/politics/comments/1ax4qkp/james_comer_and_tucker_carlson_arent_fooled_by/krlq3dt/
+
+Joined Reddit shortly before this posting, banal commenting, wildly popular 2 years on Reddit.
+
+https://old.reddit.com/r/politics/comments/1ax4qkp/james_comer_and_tucker_carlson_arent_fooled_by/kroe986/
+
+Account now gone on Reddit.
+
+https://old.reddit.com/r/politics/comments/1ax4qkp/james_comer_and_tucker_carlson_arent_fooled_by/krm2srh/
+
+Hyper banal, now deleted account.
+
+https://old.reddit.com/r/politics/comments/1ax4qkp/james_comer_and_tucker_carlson_arent_fooled_by/krlk48c/
+
+Hyper banal, now deleted account.
+
+https://old.reddit.com/r/politics/comments/1ax4qkp/james_comer_and_tucker_carlson_arent_fooled_by/krmbi8l/
+
+now deleted account.
+
+https://old.reddit.com/r/politics/comments/1ax4qkp/james_comer_and_tucker_carlson_arent_fooled_by/krm12v1/
+
+Account now gone on Reddit.
+
+https://old.reddit.com/r/politics/comments/1ax4qkp/james_comer_and_tucker_carlson_arent_fooled_by/krloal6/
+
+Joined Reddit shortly before this comment was made.
+
+https://old.reddit.com/r/Connecticut/comments/1rghmbg/ct_republican_coopts_no_kings_or_tries_to/o7rmcuh/
+
+This user (from previous link) is still active OUT_GROUP_HATE messaging year after year.
+
+https://old.reddit.com/r/politics/comments/1ax4qkp/james_comer_and_tucker_carlson_arent_fooled_by/krlpcu2/
+
+now deleted account.
+
+https://old.reddit.com/r/politics/comments/1ax4qkp/james_comer_and_tucker_carlson_arent_fooled_by/krlo4wo/
+
+Account now gone on Reddit.
+
+
+https://old.reddit.com/r/politics/comments/1ax4qkp/james_comer_and_tucker_carlson_arent_fooled_by/krlz1e4/
+
+This user gives a sophisticated reply. But the account on Reddit went inactive shortly before the November 2024 election win by Trump.
+
+https://old.reddit.com/r/politics/comments/1ax4qkp/james_comer_and_tucker_carlson_arent_fooled_by/krly2l5/
+
+So this is the message that the previous link was responding to. This account ALSO went inactive on Reddit shortly before the November 2024 election win by Trump. Is this whole back and forth message exchange SIMULATION_SIMULACRA back in February 2024... and then they both stop using Reddit in October 2024?
 
