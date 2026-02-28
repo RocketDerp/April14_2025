@@ -678,4 +678,10 @@ not concerned about the war, concerned about the taped recorded media on the Red
 
 https://old.reddit.com/r/politics/comments/1rgwobt/trump_says_us_military_has_begun_major_combat/o7ui6vh/
 
-and the TRUMP_FANDOM on Reddit is entirely engaged with those Trump messages. OBSERVE_MEDIA_AVOIDANCE_OF_RELEVANT_NONFICTION nobody cares to call for an uprising on social media, a Reddit uprising to promoting Dr. Bandy X Lee's October 3, 2017 nonfiction book bout **DANGER*** of Donald Trump.
+and the TRUMP_FANDOM on Reddit is entirely engaged with those Trump messages. OBSERVE_MEDIA_AVOIDANCE_OF_RELEVANT_NONFICTION nobody cares to call for an uprising on social media, a Reddit uprising to promoting Dr. Bandy X Lee's October 3, 2017 nonfiction book about **DANGER*** of Donald Trump. https://en.wikipedia.org/wiki/The_Dangerous_Case_of_Donald_Trump
+
+https://old.reddit.com/r/politics/comments/1rgwobt/trump_says_us_military_has_begun_major_combat/o7ulejj/
+
+"I knew he was going to do something like this" - and isn't calling for any Reddit uprising, We The People on Reddit to have a REDDIT_BLACKOUT or promote Dr. Bandy X Lee's nonfiction book, or promote Jen Senko's nonfiction film and book about brainwashing.Just keep on commenting away as if it is entertaining Reality TV that Trump is providing for Reddit fandoms. Exactly as reddit community has been doing with media for over a decade around Trump. Anti-intellectual commentary on events that avoids serious relevant nonfiction books on paper.
+
+
