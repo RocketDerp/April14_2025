@@ -695,3 +695,16 @@ REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING begging
 https://old.reddit.com/r/PoliticalHumor/comments/1rh55sg/the_new_weapon_unveiled_by_iran/o7war3q/
 
 my comment
+
+https://old.reddit.com/r/PoliticalHumor/comments/1rh55sg/the_new_weapon_unveiled_by_iran/o7w8hwq/
+
+We have a massive GULLIBILITY_CRISIS that people are getting such a media rush off this, sexually stimulated by the high-speed information prospects of more Trump sex images. INFORMATION_STRIP_TEASE
+
+https://old.reddit.com/r/PoliticalHumor/comments/1rh55sg/the_new_weapon_unveiled_by_iran/o7w818n/
+
+GULLIBLE_FANDOM of Trump content, MAGA fandom of images and pro-hate warfare on Reddit is cheering this on.
+
+https://old.reddit.com/r/PoliticalHumor/comments/1rh55sg/the_new_weapon_unveiled_by_iran/o7w4kgz/
+
+What truly matters to people is their ability to create tiny-short under 140 character comments around the circle of events and chaos created by Donald. Trump. year after year, "media engagement" of being able to comment about Trump.  That's what matters to American media consumers. OUTSMARTED_TRICKED_MANIPULATED_BAMBOOZLED_BY_TRUMP_MURDOCH_PUTIN
+
