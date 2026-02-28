@@ -498,4 +498,9 @@ TRUMP_FANDOM cult of Trump images crying out and begging for more Trump images. 
 
 https://old.reddit.com/r/Music/comments/1rh5spv/jack_white_on_trumps_bombing_of_iran_behold_the/o7w81xu/
 
-GULLIBLE_FANDOM of Trump. This isn't resisting. It's extremely low-effort statements. Trump is a media engagement cult power. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
+GULLIBLE_FANDOM of Trump. This isn't resisting. It's extremely low-effort statements. Trump is a media engagement cult power. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING 1st most popular comment.
+
+https://old.reddit.com/r/Music/comments/1rh5spv/jack_white_on_trumps_bombing_of_iran_behold_the/o7wa2li/
+
+2nd most popular comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING anti-intellectual sanewashing Trump via satire, jokes, humor cracking. SATIRE_SARCASM_WASHING
+
