@@ -512,3 +512,6 @@ https://old.reddit.com/r/news/comments/1rh5cho/iran_strikes_us_military_bases_in
 
 The most popular Reddit comment, the most upvoted. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING It is Donald Trump who created the topic, "Board of Peace", and Reddit community keeps repeating Trump with extreme-short chanting messages. This is not resisting, this is a Trump parroting cult of media systems.
 
+https://old.reddit.com/r/news/comments/1rh5cho/iran_strikes_us_military_bases_in_qatar_kuwait/o7w6yw9/
+
+For the love of god, why isn't social media having an uprising? Play by play reaction commenting is in no way resisting the media events Trump keeps creating on any and every topic day and night. REDDIT_BLACKOUT - why isn't Reddit doing a blackout protest? Like has been done before... ANSWER: We The People can't think outside the commenting box calling for Congress and stand up on social media and all get on the same page: Dr. Bandy X Lee's October 3, 2017 nonfiction book.
