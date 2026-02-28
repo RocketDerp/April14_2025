@@ -549,3 +549,15 @@ https://old.reddit.com/r/worldnews/comments/1rhbvdu/iranian_leader_khamenei_kill
 https://old.reddit.com/r/PeterExplainsTheJoke/comments/1rh6wgo/petah_quagmire/o7whqo3/
 
 Affairs of hating humans.
+
+https://old.reddit.com/r/TrendoraX/comments/1rha7ol/greatest_threat_to_the_world/o7xg17f/
+
+The most popular upvoted comment. "then you get older and realize how much chaos just gets normalized if it’s wrapped in the right language"
+
+1. Wrapped in the latest Internet memes
+
+2. Wrapped in clickbait headline titles like the one created by Reddit low-information upvoters. "Greatest Threat to the World" non-specific generic.
+
+3. Is that Jason Hickel a Twitter, Elon Musk platform, screenshot on Reddit?
+
+SUPER_HYPER_NORMAL via Reddit. No-identity anti-intellectual anti-book, avoiding relevant nonfiction books on paper. October 3, 2017 about the DANGER of Donald Trump by Bandy X Lee with 27 people... but NOT_GOOD_ENOUGH for Reddit commenting creators to quote and link over and over.
