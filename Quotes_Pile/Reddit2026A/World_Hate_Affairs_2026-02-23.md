@@ -467,3 +467,7 @@ Reddit media cult fandom. Media cults abound. MEDIA_ECOLOGY_OBSERVATION
 https://old.reddit.com/r/TrueAnon/comments/1rh0u5p/the_deputy_governor_of_hormozgan_province_in_iran/o7v8tjh/
 
 RELIGION_CULTS_MONOMYTH_PROGRAMMING fiction, like Trump and Fox News provides, fiction addictions.
+
+https://old.reddit.com/r/TrueAnon/comments/1rh0u5p/the_deputy_governor_of_hormozgan_province_in_iran/o7va0fi/
+
+1 month Reddit account. REMEMBER_THE_PROGRAM_IDEAS_BILLIONAIRES_FED_REDDIT_AUDIENCE
