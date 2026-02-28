@@ -445,3 +445,7 @@ February 28, 1954: "Most people can't stand up for their convictions, because th
 NEW_OPERA_NAME #SocialMediaFollows #TrumpLeadsHate #TrumpLeadsWithHate 
 #FollowersOfHate #FandomsOfHateLeaders    
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mfwekt736k27 https://autistics.life/@RoundSparrow/116148578008085240 }   
+
+https://old.reddit.com/r/interestingasfuck/comments/1rgxu95/he_is_weak_and_ineffective/
+
+Posting, not comment.  The user who posted this posting to the front page of /r/All is a 1 month Reddit account. https://old.reddit.com/user/yousefthewisee They do not even have a verified e-mail address, zero trophy on Reddit account. They are moderator of https://old.reddit.com/r/Egyptic/ - and the ONLY history of posting and comments shows: https://old.reddit.com/user/yousefthewisee/comments/1qqlrzo/%D8%A7%D9%84%D8%B5%D8%A8_%D8%A8%D8%AA%D8%A7%D8%B9%D9%8A/
