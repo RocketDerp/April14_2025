@@ -34,4 +34,6 @@ Children are being harmed and killed, and Russia and Trump are still harming Ukr
 
 Is Stephen Colbert afraid to stand up for Young Children to Trump and Putin? Never forget August 24, 2018. https://www.BBC.com/news/world-us-canada-45294192
 
+https://old.reddit.com/r/clevercomebacks/comments/1rfh5ev/more_american_than_you_think/o7jxvvd/
 
+This is not resisting. This Reddit comment, the top most-upvoted popular comment, is normalizing. This is **commenting on MAGA**, this is not RESISTING MAGA. Reddit in February 2026 is a FANDOM of MAGA that grades and comments upon MAGA media. No call to intellectual arms, no remedial morality lessons, just commenting about the Reddit vibes fandom of Twitter billionaire Elon Musk MAGA media systems. Why is Reddit commenting community not quoting and repeating Dr. Bandy X Lee, because she is a woman? Because she isn't a white woman? Why is Reddit not repeating Dr. Lee? INFORMATION_GLUT_COMMENTING_GLUT

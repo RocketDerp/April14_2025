@@ -373,3 +373,277 @@ https://old.reddit.com/r/politics/comments/1rfdhm7/the_usa_mens_hockey_team_utte
 SPORTS_WASHING sports-mentality thinking patterns. I used to work as media systems analyst (Neil Postman, Marshall McLuhan) for Jody Allen / Paul Allen in Bellevue Washington in 1997, 1998, 1999 when they were sitting on more wealth than any people in the entire world. Purchasing NFL team, owners of NBA team, Microsoft Board of Directors app empire / operating system of society controllers. Jimi Hendrix museum creation. OPERA_A Are you Experienced, The Experience Music Project... https://www.youtube.com/watch?v=XxHS9lTUN4Y 3,532,987 views October 29, 2018 White People in Bellevue / Mercer Island learning from Black media culture. Lyrics: "But who in your measly little world, (-uh) **Are you tryin' to prove to that you're made out of gold and-uh, can't be sold?**" - Bellevue Redmond Trumpism values, IRA got to you all since March 2013. Lyrics: "Get your mind together" 
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mfrrapmuds2d https://autistics.life/@RoundSparrow/116138211764550161 }   
+
+https://old.reddit.com/r/comics/comments/1rfedvn/oc_the_likes_of_which_nobody_has_ever_seen_before/o7jgxzf/
+
+EPSTEIN_FANDOM This is the legacy for the entire brand of "USA", "United States of America"... because We The People on Reddit did not stand up to White House. In reality, Reddit is a FANDOM of EPSTEIN and TRUMP. There is no resisting, it is just low-information upvoting. https://en.wikipedia.org/wiki/Low_information_voter Avoidance of nonfiction relevant serious books on paper is every hour of every day for year after year on Reddit. This image itself is not RESISTING Trump, it isn't educating or teaching, it is low-information celebration, low-information voting of toxic popularity nation. It is Reddit community FOLLOWING Epstein and Trump and Putin leaderships, not resisting, not defending.
+
+
+NEW_OPERA_NAME #USALegacy #UnitedStatesOfAmericaLegacy #LegacyUSA      
+Social post { https://autistics.life/@RoundSparrow/116138577714960075 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfrwjbcdic2p }   
+
+https://old.reddit.com/r/technology/comments/1rfarv2/burger_king_will_use_ai_to_check_if_employees_say/o7ilqys/
+
+Top-upvoted comment, fiction to wash down the reality of USA Trumpism. Not even a 2.5 second 140 character-length message. Welcome to Reddit /r/Technology where we lust and love for Technology to dehumanize people. We The People celebrate ignorance and celebrate the movie Idiocracy and the writer's other work: Beavis and Butthead. IGNORANCE_CELEBRATIONS 
+
+* “Science is more than a body of knowledge; it is a way of thinking. I have a (year 1995) foreboding of an America in my children’s or grandchildren’s time — when the United States is a service and information economy; when nearly all the key manufacturing industries have slipped away to other countries; when awesome technological powers are in the hands of a very few, and no one representing the public interest can even grasp the issues; when the people have lost the ability to set their own agendas or knowledgeably question those in authority; when, clutching our crystals and nervously consulting our horoscopes, our critical faculties in decline, unable to distinguish between what feels good and what’s true, we slide, almost without noticing, back into superstition and darkness. The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the **30-second** sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but especially a kind of [celebration of ignorance](https://www.youtube.com/watch?v=wcY-x1VuWtE). As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. **“Beavis and Butthead” remain popular (and influential)** with young TV viewers. The plain lesson is that study and learning — not just of science, but of anything — are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995, page 59
+
+https://old.reddit.com/r/technology/comments/1rfarv2/burger_king_will_use_ai_to_check_if_employees_say/o7iswll/
+
+<img width="1179" height="307" alt="image" src="https://github.com/user-attachments/assets/62b2eb07-508d-42d9-b11c-2b5519c2fd1f" />
+
+"10 years ago", year 2016 when Trump was running for POTUS. RECENCY_BIAS about this Burger King computer technology /r/Technology topic. TECH_LUST_TECH_LOVERS of Reddit in psychological denial. Reddit Username is also REDDIT_MINDFUCK 
+
+* “Technopoly is a state of culture. It is also a state of mind. It consists in the deification of technology, which means that the culture seeks its authorization in technology, finds its satisfactions in technology, and takes its orders from technology.” ― Neil Postman, Technopoly: The Surrender of Culture to Technology. **Year 1992**, nonfiction book that is far more than "10 years ago". 
+
+https://old.reddit.com/r/law/comments/1rfii0y/donald_trump_considers_using_national_emergency/o7k9rve/
+
+Top-popular most-upvoted comment. Not even 140 characters. REMEMBER_THE_PROGRAM_IDEAS_BILLIONAIRES_FED_REDDIT_AUDIENCE - Reddit should REMEMBER what the billionaires programmed you to remember. This Reddit comment message is in no way *resisting* the billionaires. 
+
+https://old.reddit.com/r/law/comments/1rfii0y/donald_trump_considers_using_national_emergency/o7kcedz/
+
+6 words. not even 140 characters. We The People need to have a SOCIAL MEDIA UPRISING to take MEDIA EDUCATION control of the runway Elon Musk Twitter-length mindsets. BRAIN_ROT_SOCIETY_47 
+
+https://old.reddit.com/r/agedlikemilk/comments/1rfgri9/so_much_for_the_party_of_peace/o7jv2s3/
+
+REMEMBER_THE_PROGRAM_IDEAS_BILLIONAIRES_FED_REDDIT_AUDIENCE - repeating them over and over on low-information upvoting platform. https://en.wikipedia.org/wiki/Low_information_voter - the brain rot is horrific on Reddit and using the extreme low-bar measure of Twitter-think, consuming Twitter screen shots on Reddit. Nothing can escape, get us out of the feedback loop mindsets, what the IRA unleashed in March 2013. Surkov won.
+
+https://old.reddit.com/r/interestingasfuck/comments/1rfo73e/65_year_old_woman_calls_in_and_nearly_breaks/o7ljvsd/
+
+9 month Reddit account. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT Top-upvoted comment, most popular, 140 character Elon Musk Tweet-mindsets. Simplistic statement that does not resist or organize on the ongoing crisis. CALL_TO_INTELLECTUAL_ACTION_PLAN Please stop promoting Luigi and think this is ONLY a health care crisis. Promote the JANUARY_1944_SECOND_BILL_OF_RIGHTS as food, housing, health care, university. https://en.wikipedia.org/wiki/Second_Bill_of_Rights But people love the "Luigi" kill CEO gun worship joking on Reddit instead. Anti-intellectual, eating right out of the Musk mindsets.
+
+https://old.reddit.com/r/agedlikemilk/comments/1rfgri9/so_much_for_the_party_of_peace/o7jwj4l/
+
+Discussing a woman on Reddit. SUPERFICIAL_SHALLOW_PRIZING_TRUMPISM_MAGA_VALUES - MAGA values of mockery and insulting women. Extreme super tiny-short messaging, highly popular and upvoted.
+
+https://old.reddit.com/r/law/comments/1rfmsqu/white_house_circulating_blatantly_illegal_draft/o7l4s8v/
+
+Top-upvoted comment, submitter of posting. Actually serious and verbose. Breaking the Tweet 140 character mindset barrier. ESSENTIAL_STUDY_MAGA what's absent: a name of a leader or name of a plan (like "Project 2025" name-dropping) to rally around to actually organize and stand up for goodness. I would suggest people use Dr. Bandy X Lee's name and mention it over and over and over when White House / MAGA topics are being discussed. Just a simple like line "Please keep quoting Dr. Band X Lee's books!"
+
+https://old.reddit.com/r/law/comments/1rfmsqu/white_house_circulating_blatantly_illegal_draft/o7lezlu/
+
+PUTIN_SURKOV_TRUMP_LONG_TERM_YEARS_PLAN Good to see people discussing forest for the trees of long-term thinking. https://en.wikipedia.org/wiki/Rex_84 my own assertions: nationalization of Reddit and Bluesky as a dramatic move, but the disappearing of users and comments and postings is also at atmosphere of ICE virtual.
+
+https://old.reddit.com/r/circled/comments/1rfo46y/justice_denied_again/o7lirkd/
+
+5 month Reddit account. Top-upvoted most popular comment. Within the 140 character length limit of reactionary mindsets. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT "Congrats to all" IGNORANCE_CELEBRATION that Reddit community has been doing over a year as MAGA fandom. ANYTHING AND EVERYTHING on Reddit to avoid nonfiction serious books by Dr. Bandy X Lee, mental health, cult deprogramming. As the addiction (cult) to media high-speed information mockery back and forth in feedback loops with MAGA is prized above any goodness. Shit-commenting and shit-posting society read by Donald Trump's media shit-posting and antics. POTUS Tony Clifton is an irresistible character for the Reddit fandom.
+
+https://old.reddit.com/r/news/comments/1rfqwhv/anthropic_rejects_latest_pentagon_offer_we_cannot/o7m3r84/
+
+https://old.reddit.com/r/news/comments/1rfqwhv/anthropic_rejects_latest_pentagon_offer_we_cannot/o7m5gdd/
+
+https://old.reddit.com/r/news/comments/1rfqwhv/anthropic_rejects_latest_pentagon_offer_we_cannot/o7m6m92/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rfno30/sen_rubengallego_princes_ceos_the_most_powerful/o7ldjhf/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rfno30/sen_rubengallego_princes_ceos_the_most_powerful/o7ldk43/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rfno30/sen_rubengallego_princes_ceos_the_most_powerful/o7lh3a7/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rfno30/sen_rubengallego_princes_ceos_the_most_powerful/o7lh5xe/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rfno30/sen_rubengallego_princes_ceos_the_most_powerful/o7lh3vj/
+
+ANSWER: because people can not face their addiction to commenting and media consumption about Epstein and Trump. We need to be doing massive cult deprogramming of the population with free time and spare time, not commenting over and over on different pages in a reactionary mindset.
+
+https://old.reddit.com/r/TwoXChromosomes/comments/1rfr0zt/with_paramount_acquiring_warner_bros_the_farright/o7m237g/
+
+"EVERYTHING IS MEDIA ECOLOGY", SEE_ALSO https://GitHub.com/RocketDerp/April14_2025/blob/main/Media_Ecology/Everything_is_ME.md
+
+https://old.reddit.com/r/TwoXChromosomes/comments/1rfr0zt/with_paramount_acquiring_warner_bros_the_farright/o7m4xed/
+
+JANUARY_1944_SECOND_BILL_OF_RIGHTS got ignored again in December 2024 when Luigi gun violence was favored over nonfiction serious thinking. The problem is not only health care for all. "Freedom from unfair competition and monopolies" https://en.wikipedia.org/wiki/Second_Bill_of_Rights
+
+https://old.reddit.com/r/TwoXChromosomes/comments/1rfr0zt/with_paramount_acquiring_warner_bros_the_farright/o7m2t8z/
+
+people make their reaction comments on media platforms like Reddit and Blueksy and wake up the next day and do it over and over again, washing away any serious topic with low-information upvoting https://en.wikipedia.org/wiki/Low_information_voter - the abandonment of serious nonfiction books is there if you look for it. OBSERVE_SOCIAL_MEDIA_AVOIDING_NONFICTION
+
+https://old.reddit.com/r/okbuddycinephile/comments/1rfsak5/warner_bros_was_bought_by_paramount_yea_were/o7mbl4p/
+
+26 day Reddit account. 2nd most upvoted popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+
+https://old.reddit.com/r/Epstein/comments/1rfp0na/chuck_schumer_there_is_a_massive_coverup_going_on/o7lp462/
+
+Top most-upvoted popular comment. Anti-intellectual mockery. 140 characters or less commenting. SUPERFICIAL_SHALLOW_PRIZING_TRUMPISM_MAGA_VALUES This is the Epstein fandom on Reddit. Cracking jokes to joke-wash Epstein and Trump topic, a source of media entertainment and stimulation.
+
+https://old.reddit.com/r/Epstein/comments/1rfp0na/chuck_schumer_there_is_a_massive_coverup_going_on/o7lnol2/
+
+2 month Reddit account, joined New Years Eve. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT 2nd most popular upvoted comment. EPSTEIN_FANDOM media party on Reddit. When did Reddit have a world-reported blackout protest? ANSWER: not. Reddit has gotten coverage for blackout protests against the government, but when it comes to Trump and Epstein fandoms on Reddit - the desire is always for more shitshow shit-posting shit-commenting media shit. Not serious We The People uprising. 
+
+https://old.reddit.com/r/Epstein/comments/1rfp0na/chuck_schumer_there_is_a_massive_coverup_going_on/o7lrp1r/
+
+1 month Reddit account. 3rd most popular upvoted comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+
+https://old.reddit.com/r/MurderedByWords/comments/1rfnmqk/rights_martyr_meme_defanged/o7ldorg/
+
+Charlie Kirk was a media celebrity. Cult media seller. FOLLOWERS_OF_LEADER_TRUMP_ACTOR_ENTERTAINER_DONALD_TRUMP_FOLLOWERS the addiction to media is in no way being addressed, cult deprogramming of Fox News is avoided. Jen Senko's leadership ignored.
+
+https://old.reddit.com/r/pics/comments/1rfk6o1/team_usa_mens_hockey_team_being_treated_to/o7kn6zo/
+
+140 characters or less comment. Trash Realty TV society, Trash Twitter society, Trash Truth Social media society, Trash Reddit commenting society. Avoiding nonfiction. Why sin't Reddit commenting community alarmed and concerned about serious matters instead of just sports stars photographs? Celebrity photographs? Why is Doctor Bandy X. Lee's nonfiction book about the danger of Donald Trump not being quoted and repeated all over Reddit and call for his removal from office? ANSWER: because mocking inside the Trump-created total mockery is all people are concerned with. Getting notification of fresh Trump photographs on Reddit. This goes on year after year after year after year.
+
+https://old.reddit.com/r/GetNoted/comments/1rfobog/now_hateful_bigots_make_use_of_ai_to_breathe_life/o7lhczh/
+
+5 month Reddit account. Top-upvoted most popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT The screen shot on Reddit is sourced from "Russia News" SURKOV_WARFARE
+
+https://old.reddit.com/r/GetNoted/comments/1rfobog/now_hateful_bigots_make_use_of_ai_to_breathe_life/o7ljo1m/
+
+5 day Reddit account. 2nd top-upvoted most popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+
+https://old.reddit.com/r/Epstein/comments/1rfr0ax/breaking_doj_just_locked_the_epstein_library_to/o7m17lv/
+
+6 month Reddit account. Top-upvoted most popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1rfsrol/i_kiss_the_ring_and_you_give_me_thistkachuk_gets/o7mej0a/
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1rfsrol/i_kiss_the_ring_and_you_give_me_thistkachuk_gets/o7mfzgb/
+
+if being a tool of Putin and Trump is a crime where people deserve negative outcomes, what about all the social media users doing everything they can to avoid promoting Dr. Bandy X Lee's nonfiction books since October 3, 2017 and having We The People counter Putin and Trump in an information war?
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1rfsrol/i_kiss_the_ring_and_you_give_me_thistkachuk_gets/o7mf2nx/
+
+"LOL", Trump White House created media is so entertaining to TRUMP_FANDOM
+
+https://old.reddit.com/r/nottheonion/comments/1rfumdl/clinton_says_epstein_committee_asked_about_ufos/o7myakp/
+
+SURKOV_WARFARE
+
+https://old.reddit.com/r/nottheonion/comments/1rfumdl/clinton_says_epstein_committee_asked_about_ufos/o7mv0gk/
+
+SATIRE_SARCASM_WASHING
+
+https://old.reddit.com/r/nottheonion/comments/1rfumdl/clinton_says_epstein_committee_asked_about_ufos/o7mvula/
+
+4 words, under 140 character thinking limit. HIGH_SPEED_REACTIONARY_MINDSETS
+
+https://old.reddit.com/r/TrendoraX/comments/1rg3t85/mcgowan_theres_three_people_mentioned_most_in_the/o7on5pg/
+
+2 month Reddit account. Top-upvoted most popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+
+https://old.reddit.com/r/politics/comments/1rfwxk7/maga_billionaires_win_battle_to_buy_cnn_and_turn/o7nmdmi/
+
+People still can't point at the Apple iPhone year 2007, and the July 6, 2011 all-in that Trump did with Twitter 140 characters. https://theoutline.com/post/2445/trump-s-first-real-tweet-was-on-july-6-2011 Surkov won since March 2013.
+
+https://old.reddit.com/r/politics/comments/1rfwxk7/maga_billionaires_win_battle_to_buy_cnn_and_turn/o7npld3/
+
+Russia described October 2011 media-driven. MAXIMUM_PUTINIZATION SEE_ALSO: https://github.com/RocketDerp/April14_2025/blob/main/A00/About/Why_Highlight_Circle_Year_2011_onward.md
+
+https://old.reddit.com/r/circled/comments/1rg67lt/wrong_first_lady_melania_has_been_photographed/o7p2aa7/
+
+Surkovian governing. HOW_SURKOV_WON - Reddit users eat it up. Entertainment, drama. OBSERVE: Reddit users commenting on the shit-show with shit-commenting and shit-posting and zero effort to organize or call for any form of intellectual resistance or education campaign of the general public. Notably the Reddit commenting avoids any mention of books, author names, off-Reddit links on topics of: Trump mental health (Dr. Bandy X Lee and 27 contributors to a book published October 3, 2017), Jen Senko nonfiction film on brainwashing, information warfare topics of Putin and Russia (war against reality with fiction).
+
+https://old.reddit.com/r/politics/comments/1rgapzn/it_can_now_be_plainly_said_trump_is_planning_a/o7pyvjm/
+
+Extremely important serious topic, one single word, not even 140 character mindset. Twitter-think nation USA. This is the most popular comment, the most upvoted by low-information upvoters. https://en.wikipedia.org/wiki/Low_information_voter HOW_SURKOV_WON - Reddit users eat it up. Shit-commenting shit-posting leader Donald Trump inspires this ignorance celebration.
+
+https://old.reddit.com/r/politics/comments/1rgapzn/it_can_now_be_plainly_said_trump_is_planning_a/o7pzfyn/
+
+There is such a deep misunderstanding of what Putin's Saint Petersburg Internet Research Agency and Cambridge Analytica have done to "Hearts and Minds". This is every hour of every day. Why are Reddit users NOT promoting Dr. Bandy X Lee's 27 leaders since October 3, 2017? ANSWER: hearts and minds are conditioned to self-harm the USA through simplistic symbolic thinking. Election day win is symbolic. The brain rot is EVERY HOUR of EVERY DAY. And the answer to brain rot is serious nonfiction adult education, teaching, learning, including Dr Lee's nonfiction books on paper! ELECTION_DAY_FIXATED_BRAIN_ROT_EVERY_DAY_FOX_NEWS_ETC
+
+https://old.reddit.com/r/politics/comments/1rgapzn/it_can_now_be_plainly_said_trump_is_planning_a/o7pzf68/
+
+"Are Americans going to push back massively **when he tries** another", **WHEN**, FUTURE!!! RESISTING_WHAT_EXACTLY ? People think the crisis is going to happen in future November 2026 - without any concern to July 4, 2026 thinking systems of 250 years. This is all about winning hearts and minds to flock to shit-commenting, shit-posting, shit-media mythological-based fiction Surkovian governing systems. EVERY HOUR of EVERY DAY. The psychological denial is sickening that people think the problem is voting booths and now low-information upvoting https://en.wikipedia.org/wiki/Low_information_voter on every media platform! Journalists and writers with any nonfiction serious teaching topics have been abandoned in favor of fiction addictions! Brain rot every day all day, USA!
+
+https://old.reddit.com/r/circled/comments/1rg7vyf/breaking_trumps_doj_removed_this_photo_from_the/o7qae8f/
+
+EPSTEIN_FANDOM GULLIBLE_FANDOM Ask yourself why are people behaving on Reddit as if taking his children to Epstein Island with his wife is somehow better? It seems worse to me. Taking children to the powerfully manipulative and pants-off-charming Jeffery Epstein...
+
+https://old.reddit.com/r/GetNoted/comments/1rg69c5/they_just_lie_about_everything/o7p1kaf/
+
+3 month Reddit account. Top-upvoted most popular comment. Downplaying the crisis. Claiming that government's can't fabricate exhaustive ANTI_REALITY warfare. Gullible Reddit users eat up this 3-month account downplaying and minimizing with 140 character Tweet-thinking. Twitter-screen shot. People keep barking at tree after tree, "community note" /r/GetNoted correction after correction without addressing DECEPTION_LEADERSHIP is the Surkovian Governing system and needs to be addressed through DANGER_ALERT_CALL_TO_INTELLECTUAL_ARMS_BOOK_CRAM_SESSIONS
+
+https://old.reddit.com/r/GetNoted/comments/1rg69c5/they_just_lie_about_everything/o7p3c8g/
+
+2nd most popular comment message. Boils down to: GIVE_UP_ANTI_EDUCATION_ANTI_TEACH_ANTI_PROGRESS give-up, do nothing, don't organize teaching and education, don't promote Dr. Bandy X Lee's 27 leaders, don't promote Jen Senko, just comment and keep commenting over and over and over every year about Fox News HDTV bullshit, White House Twitter media bullshit, and never mention Jen Senko's nonfiction year 2015 film about media bullshit. Just keep adding more and more popular commenting that says nothing can be done, give up. That is what Reddit community does to normalize Trumpism / MAGA / Twitter-thinking with screen shots off Twitter.
+
+https://old.reddit.com/r/inflation/comments/1rg5bwb/the_ideal_temperature_range_for_banana_plants/o7ow1fq/
+
+ASK YOURSELF: how long has this shit been going on with the front page of every media system? How long has this topic been hashed and rehashed. But the MOST POPULAR most UPVOTED low-information voters on Reddit made this comment number one.  https://en.wikipedia.org/wiki/Low_information_voter ANTI_WIKI_ANTI_FAQ there is no RTFM concern, no Read-the-FAQ concern, no off-Reddit link to a 13 minute recap of the current situation and players. Instead there is **engaging** questions on Reddit media. "The Media" on Reddit asking trivial basic questions with no concern that We The People are so engaged with anti-understanding. This is Trumpism fandom, fandom of Trump ignorance. People are not resisting the ignorance by creating a FAQ or Wiki, people are engaged with the questions...
+
+https://old.reddit.com/r/politics/comments/1rg7rq6/panic_at_cnn_as_trump_and_his_buddies_plot_to/o7pd7qs/
+
+"BINGO game", a gamers community. GAMERS_SIMULACRA Constantly treating real world reality as an entertainment... often claiming Putin isn't playing 16 dimensional chess with NATO using Trump as a chess piece.  
+
+* July 19, 2016 Reddit: "caused it to suddenly come roaring to the forefront of the incessantly repeated memes on r/politics ." this is BEFORE win of Election in November 2016. https://old.reddit.com/r/OutOfTheLoop/comments/4tm5m2/what_is_the_originsource_of_the_4d_chess_comments/
+* November 9, 2016 Reddit: "Anon on Trump's 4D Chess" https://old.reddit.com/r/4chan/comments/5c0gq3/anon_on_trumps_4d_chess/
+
+DENIAL_ABOUNDS that Putin is the one playing the chess against NATO. SURKOVIAN_CHESS 
+
+Reddit is a Trump-fandom that is gamer-washing entertainment-washing amusement-washing Donald Trump as a source of thrilling fascism BINGO. This is not resisting Donald Trump, this is attraction to Trumpism and Putinism.
+
+https://old.reddit.com/r/politics/comments/1rg7rq6/panic_at_cnn_as_trump_and_his_buddies_plot_to/o7pe00o/
+
+20 day Reddit account, 2nd most upvoted popular comment. Promoting everyone all go get FURTHER on different pages of media. Exactly the cause of the problem with social media consumers all flocking to extreme low-effort commenting with no author identity, no book citations, anti-book attitudes of Reddit. Not facing the widespread fiction addiction problems in USA. ASK YOURSELF: why is Reddit commenting section not quoting and repeating Dr. Bandy X Lee's 27 leaders since October 3, 2017? People are addicted to the constant flow of TRUMP NEWS and commenting on a TRUMP POSTING on Reddit media! They aren't resisting the addiction to fiction and addiction to Trump as a source of something to create low-value Reddit comments about. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rgdhkh/morgan_freeman_on_donald_trump_we_have_somebody/o7ql1nw/
+
+ANSWER: It does not make sense to Morgan Freeman because people are not studying Surkov information warfare and Surkovian governing methods since year 2013. COMPREHENDING_UNDERSTANDING
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rgdhkh/morgan_freeman_on_donald_trump_we_have_somebody/o7ql6lr/
+
+Truth Social fandom on Reddit. TRUMP_FANDOM anticipation the next media content delivery. ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rgdhkh/morgan_freeman_on_donald_trump_we_have_somebody/o7qme56/
+
+UNDERSTANDING_TRUMPISM This very popular Reddit comment makes no effort to give an author name for more information, an off-Reddit link. It just gives low-information upvoting content. https://en.wikipedia.org/wiki/Low_information_voter the addiction to high-speed information systems delivery is not grasped on Reddit. Trump provides constant stimulation to Reddit audiences, MAGA content fandoms.
+
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1rgjcio/fake_black_maga_account_busted/o7ru64z/
+
+Downplaying the media Twitter crisis of USA society. 3 word comment,not even 140 characters. Reddit account is 4 months old and got the MOST UPVOTED popular comment on this posting. Low-information upvoters are not resisting the Truth Social and Twitter simplistic thinking programming. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT This Reddit comment is cheering on the content, in no way is it resisting or calling for We The People education in meme addictions and media addictions. Ignorance celebrations abound.
+
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1rgjcio/fake_black_maga_account_busted/o7rvcnv/
+
+11 month Reddit account.
+
+https://old.reddit.com/r/PoliticalHumor/comments/1rggzrl/average_republican/o7rbiop/
+
+Anti-PLURIBUS. COLLECTIVELY_INTELLIGENT_PLURIBUS_LEARNING is essential.
+
+https://old.reddit.com/r/PoliticalHumor/comments/1rggzrl/average_republican/o7rbifm/
+
+EPSTEIN_FANDOM loves SLUT SHAMING. Instead of promoting women like Dr. Bandy X Lee and Jen Senko as relevant and critical important topics to rescue USA right now, ASAP.... slut-shaming women for sharing sex with men.
+
+https://old.reddit.com/r/law/comments/1rgl7ed/trump_maybe_we_do_one_more_term_should_we_do_one/o7san5j/
+
+https://old.reddit.com/r/law/comments/1rgl7ed/trump_maybe_we_do_one_more_term_should_we_do_one/o7s6k6v/
+
+https://old.reddit.com/r/law/comments/1rgl7ed/trump_maybe_we_do_one_more_term_should_we_do_one/o7sbl38/
+
+https://old.reddit.com/r/law/comments/1rgl7ed/trump_maybe_we_do_one_more_term_should_we_do_one/o7sbaf6/
+
+https://old.reddit.com/r/law/comments/1rgl7ed/trump_maybe_we_do_one_more_term_should_we_do_one/o7sdhpy/
+
+https://old.reddit.com/r/LetsDiscussThis/comments/1rgjvdi/ice_agent_tosses_an_elderly_american_man_to_the/o7s1024/
+
+https://old.reddit.com/r/movies/comments/1rghyex/netflix_says_paramount_has_paid_28_billion/o7rpfap/
+
+https://old.reddit.com/r/law/comments/1rgm095/trump_says_hes_thinking_of_putting_republican/o7spa95/
+
+WIDE_RADICAL_DOUBT_ABOUT_REAL
+
+https://old.reddit.com/r/scotus/comments/1rgly8z/catholic_bishops_warn_the_supreme_court_that/o7sd4wx/
+
+<img width="948" height="1133" alt="image" src="https://github.com/user-attachments/assets/845e8d7e-d9c8-4c15-8ba3-80218793fdb4" />
+
+February 28... if only American We The People gave a single shit about what Dr. Martin Luther King Jr. said on February 28, 1954. REMEDIAL_MORALITY LEVANT_MONOMYTH_CRISIS 
+
+NEW_OPERA_NAME #WTFJesus   
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mfvcmzcxv22j https://autistics.life/@RoundSparrow/116146189748401404 }   
+
+https://old.reddit.com/r/scotus/comments/1rgly8z/catholic_bishops_warn_the_supreme_court_that/o7skff9/
+
+https://old.reddit.com/r/scotus/comments/1rgly8z/catholic_bishops_warn_the_supreme_court_that/o7simr4/
+
+https://old.reddit.com/r/scotus/comments/1rgly8z/catholic_bishops_warn_the_supreme_court_that/o7sgl1g/
+
+https://old.reddit.com/r/scotus/comments/1rgly8z/catholic_bishops_warn_the_supreme_court_that/o7sch1c/
+
+https://old.reddit.com/r/wallstreetbets/comments/1rgri2d/sam_altman_tonight_we_reached_an_agreement_with/o7th7i3/
+
+https://old.reddit.com/r/politics/comments/1rgngmc/florida_suddenly_cuts_off_12000_people_from/o7so3cx/
+
+MASS_DEHUMANIZATION_POPULAR technology love and praise of hate has become so normal in USA since year 2013. As long as GTA6 and Olympics and sports teams and whatever other entertainment is what people care about more than Dr. Bandy X Lee or the January 1944 Second Bill of Rights..
+
+https://old.reddit.com/r/politics/comments/1rgngmc/florida_suddenly_cuts_off_12000_people_from/o7so0rk/
+
+It's a virus, like measles is a virus like COVID-19 is a virus. Never forget August 24, 2018. SELF_HARM_USA

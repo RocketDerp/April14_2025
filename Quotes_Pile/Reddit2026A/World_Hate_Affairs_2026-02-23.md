@@ -228,3 +228,169 @@ UNIFIED_THEORY_FICTION_NONFICTION WarGames June 3, 1983 Artificial Intelligence 
 https://old.reddit.com/r/worldnews/comments/1renfrv/cuba_says_four_shot_dead_on_usregistered_speedboat/o7du5tp/
 
 2 month Reddit account. Top upvoted, most-popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+
+https://old.reddit.com/r/interestingasfuck/comments/1rfdmu4/eric_slover_the_first_chief_warrant_officer_5_to/o7k3703/
+
+World Affairs of following Power. 
+
+https://old.reddit.com/r/interestingasfuck/comments/1rfdmu4/eric_slover_the_first_chief_warrant_officer_5_to/o7k3m30/
+
+https://old.reddit.com/r/interestingasfuck/comments/1rfdmu4/eric_slover_the_first_chief_warrant_officer_5_to/o7jhjel/
+
+World Symbolism Affairs. Capture the Symbol, capture the power. SYMBOLISM_INVERSION_MANIPULATION Invert the symbolism meaning in the minds, and everyone follows POTUS Tony Clifton. 
+
+* "All life, all thought, all meditation, is to be governed by the authority of the shepherds of the group \[the Church\]; and **there can be no doubt, from what we know of the history of this tradition**, that this authority was imposed and maintained by force. But any religious **symbol, so interpreted that it refers not to a thought-transcending mystery but to a thought-enveloping social order**, misappropriates to the lower principle the values of the higher and so (to use a theological turn of phrase) sets Satan in the seat of God." - https://TheseThingsInside.wordpress.com/2013/04/18/joseph-campbell-says-religious-literalism-sets-satan-in-the-seat-of-god/
+
+https://old.reddit.com/r/popculturechat/comments/1rfp08c/look_whos_subreddit_is_on_a_ukrainian_air_defense/o7lspjy/
+
+Military Pop Culture content creators. Alas, peace and repeating the 1954 Equation from MLK Jr. is in no way popularity in the Donald Trump nation of toxic popularity. All the mental health workers should be trying to talk Russia out of war since year 2014, instead anti-intellectual pro-violence is popular.
+
+https://old.reddit.com/r/popculturechat/comments/1rfp08c/look_whos_subreddit_is_on_a_ukrainian_air_defense/o7lssgv/
+
+https://old.reddit.com/r/KidsAreFuckingStupid/comments/1rfvuaq/yes_the_whole_cup/o7ndrro/
+
+https://old.reddit.com/r/KidsAreFuckingStupid/comments/1rfvuaq/yes_the_whole_cup/o7n6dwa/
+
+1 month Reddit account
+
+https://old.reddit.com/r/okbuddycinephile/comments/1rfvp0a/favorite_terrible_actor_who_seems_like_a_pretty/o7o3461/
+
+6 month Reddit account
+
+https://old.reddit.com/r/okbuddycinephile/comments/1rfvp0a/favorite_terrible_actor_who_seems_like_a_pretty/o7naryn/
+
+https://old.reddit.com/r/europe/comments/1rg5jog/yet_another_brexit_prediction_turns_to_dust/o7ozlp0/
+
+Yes, because extremely serious topics like this are given 140 characters or less comments on Reddit. The Saint Petersburg Internet Research Agency accelerated what Neil Postman 1985 and Carl Sagan 1995 warned. And people today are so conditioned to avoid serous nonfiction books on Reddit commenting, they can't even see the extreme avoidance of providing author names, dates, timelines,details. https://en.wikipedia.org/wiki/Low_information_voter Low-information upvoting on Reddit is every single minute day and night, not just designated election days, but any minute of any day. HYPER_BANALISATION
+
+https://old.reddit.com/r/europe/comments/1rg5jog/yet_another_brexit_prediction_turns_to_dust/o7oydn1/
+
+MAXIMUM_PUTINIZATION
+
+https://old.reddit.com/r/europe/comments/1rg5jog/yet_another_brexit_prediction_turns_to_dust/o7p0600/
+
+Yes, I can tell from the extremely simple logic messaging that you hate. Instead of educating and teaching using high-speed information systems of Reddit, it's just predictable programmed hate reacting. FAITH_IN_HATE - today is February 27 - this was written February 28:
+
+**The 1954 Equation**
+
+February 28, 1954: "Most people can't stand up for their convictions, because the majority of people might not be doing it. See, everybody's not doing it, so it must be wrong. And since everybody is doing it, it must be right. So a sort of numerical interpretation of what's right. But I'm here to say to you this morning that some things are right and some things are wrong. Eternally so, absolutely so. **It's wrong to hate.** It always has been wrong and it always will be wrong. It's wrong in America, it's wrong in Germany, it's wrong in Russia, it's wrong in China. It was wrong in 2000 B.C., and it's wrong in 1954 A.D. It always has been wrong, and it always will be wrong." - Martin Luther King Jr.
+
+"For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the **true becomes false and the false becomes true**. That's what hate does. You can't see right. **The symbol of objectivity** is lost." - Martin Luther King Jr.
+
+https://old.reddit.com/r/europe/comments/1rg5jog/yet_another_brexit_prediction_turns_to_dust/o7ozq9i/
+
+"The whole Brexit thing was a psyop from the outside" - under 140 characters, as the Elon Musk Twitter richest man in the world wants people thinking. OBSERVE_SOCIAL_MEDIA_AVOIDING_NONFICTION No links off-Reddit, message does not name "Cambridge Analytica" or Saint Petersburg "Internet Research Agency". Popular upvoted comment that normalizes psyop without any specific meaning. No lessons to learn, no education for adults needed, anti-intellectual anti-teaching Reddit fandom of said psyop. Exactly what is this Reddit comment resisting,nothing. It is pro-ignorance and pro-simple-thing. 
+
+* https://www.theguardian.com/technology/2017/may/07/the-great-british-brexit-robbery-hijacked-democracy This is not just a story about social psychology and data analytics. It has to be understood in terms of a military contractor using military strategies on a civilian population. Us. David Miller, a professor of sociology at Bath University and an authority in psyops and propaganda, says it is “an extraordinary scandal that this should be anywhere near a democracy. It should be clear to voters where information is coming from, and if it’s not transparent or open where it’s coming from, **it raises the question of whether we are actually living in a democracy or not.**” Paul and David, another ex-Cambridge Analytica employee, were working at the firm when it introduced mass data-harvesting to its psychological warfare techniques. “It brought psychology, propaganda and technology together in this **powerful new way**,” David tells me.
+
+https://old.reddit.com/r/europe/comments/1rg5jog/yet_another_brexit_prediction_turns_to_dust/o7pbl1r/
+
+Yes, Cambridge Analytica doctors need to be front and center. Along with Dr. Bandy X Lee's 27 contributors to her October 3, 2017 book
+
+https://old.reddit.com/r/pics/comments/1rg9hwk/introducing_the_reddit_funded_antidrone_turret/o7ps4co/
+
+https://old.reddit.com/r/worldnews/comments/1rg6ys3/us_tells_embassy_staff_in_israel_to_leave_now_if/o7p7w18/
+
+TRUMP_FANDOM on Reddit commenting about the affairs.
+
+https://old.reddit.com/r/worldnews/comments/1rg6ys3/us_tells_embassy_staff_in_israel_to_leave_now_if/o7pdufh/
+
+The 2nd-most upvoted popular comment. 140 characters or less. IGNORANCE_CELEBRATIONS of how Tony Clifton POTUS provides so much funny and amusing entertainment for Reddit media cult followers.
+
+https://old.reddit.com/r/worldnews/comments/1rg6ys3/us_tells_embassy_staff_in_israel_to_leave_now_if/o7p7gtw/
+
+See the user's profile, fan of "Star Wars", George Lucas fan. But banalizing Levant world hate affairs, tiny-short thinking. 1988 Power of Myth book created at Skywalker Ranch, NONFICTION, avoided by tiny-short messaging fandoms on Reddit. Pro-ignorance pro-fiction leadership celebrations. Realty TV Trumpism fans. SEE_ALSO https://GitHub.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Specific/Bill_Moyers_Worship_Celebrities.md
+
+https://old.reddit.com/r/Fauxmoi/comments/1rggzw3/oscar_winner_susan_sarandon_i_was_fired_by_my/o7rfxlj/
+
+If only people would listen to Susan's work. So many World Hate Affairs would be resolved.
+
+* "Volume One of Mythos was released in 1999. Volume Two was released in 2000. Both parts are narrated by Susan Sarandon." https://en.wikipedia.org/wiki/Mythos_(film)
+ 
+https://old.reddit.com/r/Fauxmoi/comments/1rggzw3/oscar_winner_susan_sarandon_i_was_fired_by_my/o7rgkca/
+
+4 month Reddit account. The 2nd-most upvoted popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+
+https://old.reddit.com/r/interesting/comments/1rgl8rr/justice_has_been_served/o7spy6t/
+
+https://old.reddit.com/r/interesting/comments/1rgl8rr/justice_has_been_served/o7sb874/
+
+https://old.reddit.com/r/Damnthatsinteresting/comments/1rgpqdn/norwegian_consumer_council_has_published_a_video/o7t50s7/
+
+NYC Premiere: October 15, 1940. General/Wide Releases: The film rolled out in different regions on varying dates, such as October 23 in Philadelphia, October 25 in Pittsburgh, and October 31 in Chicago.
+
+"We want to live by each other’s happiness - not by each other’s misery. We don’t want to hate and despise one another. In this world there is room for everyone. And the good earth is rich and can provide for everyone. The way of life can be free and beautiful, but we have lost the way. Greed has poisoned men’s souls, has barricaded the world with hate, has goose-stepped us into misery and bloodshed. We have developed speed, but we have shut ourselves in. Machinery that gives abundance has left us in want. Our knowledge has made us cynical. Our cleverness, hard and unkind. We think too much and feel too little. More than machinery we need humanity. More than cleverness we need kindness and gentleness. Without these qualities, life will be violent and all will be lost…" https://www.charliechaplin.com/en/articles/29-the-final-speech-from-the-great-dictator-
+
+https://old.reddit.com/r/Damnthatsinteresting/comments/1rgpqdn/norwegian_consumer_council_has_published_a_video/o7t64xx/
+
+Shit-posting shit-commenting following of Donald Trump all over serious topics on Reddit is what got us here. People think shit-commenting about Donald Trump is amusing and funny. Surkov won since March 2013.
+
+https://old.reddit.com/r/worldnews/comments/1rgv6a2/israeli_defense_minister_we_have_launched/o7u9eqa/
+
+https://old.reddit.com/r/worldnews/comments/1rgv6a2/israeli_defense_minister_we_have_launched/o7u6zhb/
+
+5 month Reddit account. 2nd most popular upvoted comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+
+https://old.reddit.com/r/news/comments/1rgvrtt/the_united_states_is_participating_in_the_israeli/o7ubh6w/
+
+Most popular comment, most upvoted. 140 character thinking. "LOL". AMUSEMENT_COMEDY_WASHING_TRUMP_AS_FUNNY_MEDIA_SANEWASHING and parroting Trump talking point. Gullible Reddit fandom. This incredibly popular,most upvoted,low-information upvoter message is in no way resisting Trump and cheering on Trump as a source of "LOL". DEAtH_BY_LOL https://en.wikipedia.org/wiki/Low_information_voter
+
+https://old.reddit.com/r/news/comments/1rgvrtt/the_united_states_is_participating_in_the_israeli/o7uaz8e/
+
+2nd most popular, most upvoted comment. 140 character Tweet-thinking. CHUCKLEHEAD_NATION in no way is this comment *resisting* Trump and MAGA, it is a fandom joke-washing that Trump is a great source of chuckles and amusements for high-speed notification addicts.
+
+
+https://old.reddit.com/r/news/comments/1rgvrtt/the_united_states_is_participating_in_the_israeli/o7ub1tq/
+
+3rd most popular comment, most upvoted. 140 character Tweet-thinking. REPUBLICANS_LEAD_WITH_IGNORANCE_IDEAS_AND_FOLLOWERS_REPLY_WITH_IGNORANCE this comment is not resisting MAGA values, it describes them as routine low-effort commenting source of media stimulation and engagement.
+
+https://old.reddit.com/r/interestingasfuck/comments/1rgx26o/here_we_go/o7uq5j3/
+
+Top-most upvoted popular comment. SUPERFICIAL_SHALLOW_PRIZING_TRUMPISM_MAGA_VALUES People are going to war, and the mot **POPULAR** Reddit comment is to comment about TRUMP_FANDOM celebrity concerns of clothing and fashion. This is RIGHT OUT OF WAR_PEACE_GLOBAL_VILLAGE by Marshall McLuhan! This Reddit community isn't resisting TRUMP_CHARMING - the audience is being charmed by Trump to be as superficial about war as Trump is.
+
+* "Fashion is, as it were, the poor man's art, the usually unbought grace of life which he participates in only as a spectator. In sensory terms fashion has a kind of infallibility about it. As with hit tunes and hit pictures and hit entertainments, **fashion rushes in to fill the vacuum in our senses created by technological displacements**." - page 21. War and Peace in the Global Village, year 1968. Marshall McLuhan. SEE_ALSO: https://www.ⵠ.net/War_Peace_Global_Village (my educational website)
+
+https://old.reddit.com/r/interestingasfuck/comments/1rgx26o/here_we_go/o7une58/
+
+SATIRE_SARCASM_WASHING Reddit fandom of Trump is joke-washing sane-washing Trump.
+
+https://old.reddit.com/r/interestingasfuck/comments/1rgx26o/here_we_go/o7un8sd/
+
+1 month Reddit account. Attracted to Trump fashion, like orange skin, as the topic. This is not resisting Trump. Concerned with superficial matters. SUPER_HYPER_NORMAL
+
+https://old.reddit.com/r/AskReddit/comments/1rgx06k/the_president_of_peace_just_launched_another_war/o7uo2ad/
+
+ANTI_WIKI_ANTI_FAQ the Reddit culture prizes commenting engagement that Trump provides. The avoidance of using Wiki or FAQ to get everyone on the same page in a thoughtful non-reactionary way is there if you look for it. This is a war dangerous situation,and yet again the 27 mental health people that Dr. Bandy X Lee assembled for her October 3, 2017 nonfiction books should be quoted and repeated...and Reddit commenting cult ignores relevant nonfiction books on paper.
+
+https://old.reddit.com/r/AskReddit/comments/1rgx06k/the_president_of_peace_just_launched_another_war/o7ur1kc/
+
+3 month Reddit account.
+
+https://old.reddit.com/r/AskReddit/comments/1rgx06k/the_president_of_peace_just_launched_another_war/o7unfo4/
+
+FOLLOWERS_OF_LEADER_TRUMP_ACTOR_ENTERTAINER_DONALD_TRUMP_FOLLOWERS Trump leads as an actor who is acting to create entertainment, Reddit follows Trump. Entertainment Reality TV leadership, We The People on Reddit follow with entertainment mindsets.
+
+https://old.reddit.com/r/PublicFreakout/comments/1rgvu85/iranian_people_cheering_for_bombs_hitting_the/o7udel8/
+
+High-speed notification delivery addiction is Trumpism values. Always reacting.
+
+https://old.reddit.com/r/PublicFreakout/comments/1rgvu85/iranian_people_cheering_for_bombs_hitting_the/o7ucv3j/
+
+Fandom getting their weekend entertainment. This isn't resisting, it's extreme low-thinking 140 character Twitter reacting.
+
+https://old.reddit.com/r/PublicFreakout/comments/1rgvu85/iranian_people_cheering_for_bombs_hitting_the/o7ufzwx/
+
+Outbreak of mind-fucking. People have been cheering on every outbreak since March of year 2013. MOB_MENTALITY_FIRE_DRILLS
+
+https://old.reddit.com/r/Fauxmoi/comments/1rgt6l5/cillian_murphy_at_a_recent_qa_when_asked_by_an/o7tw8ov/
+
+11 month Reddit account, most-upvoted popular. As for the whole topic of acting fiction vs.reality and people behaving as if fiction is more difficult: UNIFIED_THEORY_FICTION_NONFICTION
+
+https://old.reddit.com/r/therewasanattempt/comments/1rgz6n3/to_criticize/o7uxds8/
+
+Trump was in (or returning from?) Moscow, Russia at the time of that Tweet. https://x.com/realDonaldTrump/status/399731975432728576 7:55 PM · Nov 10, 2013. Sunday
+November 10, 2013.
+
+https://time.com/5251484/donald-trump-flight-records-moscow-trip/ "Yet the broad timeline of Trump’s stay, stretching from Friday, Nov. 8, 2013, through the following Sunday morning, has been widely reported. And it’s substantiated by social media posts that show he slept in Moscow the night before the Miss Universe contest."
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mfw7emztes2m https://bsky.app/profile/roundsparrow.bsky.social/post/3mfw7emztes2m https://MidWest.Social/post/44049533 }   

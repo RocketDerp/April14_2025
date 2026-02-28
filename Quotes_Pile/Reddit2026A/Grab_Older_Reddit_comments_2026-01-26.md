@@ -704,3 +704,188 @@ Promoting gun worship and teaching children that violence is the reserved answer
 
 REVIVE_OPERA_NAME #MoralityEducationCrisis #WhoTeachesMorality    
 Social post { https://autistics.life/@RoundSparrow/116137793505966827 https://bsky.app/profile/roundsparrow.bsky.social/post/3loyk7fuqjk2t }   
+
+
+
+
+https://old.reddit.com/r/MonoMythWarfare/comments/1axpk8r/james_comer_and_tucker_carlson_arent_fooled_by/krptq1r/
+
+Some comments on my /r/MonoMythWarfare subreddit that gets no upvotes, but does get comments.
+
+https://old.reddit.com/r/MonoMythWarfare/comments/1axpk8r/james_comer_and_tucker_carlson_arent_fooled_by/krqixea/
+
+https://old.reddit.com/r/MonoMythWarfare/comments/1axpk8r/james_comer_and_tucker_carlson_arent_fooled_by/krql9d6/
+
+https://old.reddit.com/r/MonoMythWarfare/comments/1axpk8r/james_comer_and_tucker_carlson_arent_fooled_by/krqnrbf/
+
+Created a Reddit account for one and only one comment, then never made a comment again. Only engaged this /r MonoMythWarfare subreddit.
+
+https://old.reddit.com/r/MonoMythWarfare/comments/1axpk8r/james_comer_and_tucker_carlson_arent_fooled_by/krqsfkh/
+
+
+https://old.reddit.com/r/FoxFiction/comments/1ax5tca/james_comer_and_tucker_carlson_arent_fooled_by/krlpvt7/
+
+Same off-Reddit URL story on another subreddit, only now-deleted accounts commented. Extremely suspicious. INFORMATION_WARFARE talking points.
+
+https://old.reddit.com/r/FoxFiction/comments/1ax5tca/james_comer_and_tucker_carlson_arent_fooled_by/krmhddy/
+
+FAKE_RESISTANCE
+
+https://old.reddit.com/r/Astuff/comments/1ax7mjr/james_comer_and_tucker_carlson_arent_fooled_by/krqymhd/
+
+Created a new Reddit account to make this comment on the same off-Reddit URL story. FAKE_RESISTANCE they made two more comments then ever commented again for years. Here are the two more comments of fake resistance:
+
+https://old.reddit.com/r/AskReddit/comments/1axxjk8/people_of_reddit_what_was_the_reason_you_joined/krqz10w/
+
+all 3 comments were made on February 23, starting with James Comer tucker Carlson Russia comment.
+
+https://old.reddit.com/r/PeopleBeingAssholes/comments/1axvu0r/san_jose_bakery_loses_thousands_of_dollars_after/krqzbka/
+
+https://old.reddit.com/r/Astuff/comments/1ax7mjr/james_comer_and_tucker_carlson_arent_fooled_by/krq5v6k/
+
+Joined Reddit that same say as I posted on /r/MonoMythWarfare to make one and only one comment of hyper-banal mocking of Putin. to normalize Putin as a non-threat during the year 2024 Election of Trump. HYPER_BANALISATION
+
+https://old.reddit.com/r/Astuff/comments/1ax7mjr/james_comer_and_tucker_carlson_arent_fooled_by/krpjrvy/
+
+Joined Reddit that same say as I posted on /r/MonoMythWarfare to make one and only one comment of hyper-banal mocking of Putin. to normalize Putin as a non-threat during the year 2024 Election of Trump. HYPER_BANALISATION ACTIVE_MEASURES on Reddit
+
+https://old.reddit.com/r/Astuff/comments/1ax7mjr/james_comer_and_tucker_carlson_arent_fooled_by/krqn0tt/
+
+Joined Reddit that same say as I posted on /r/MonoMythWarfare to make first comment of new account... of hyper-banal mocking of Putin. to normalize Putin as a non-threat during the year 2024 Election of Trump. HYPER_BANALISATION ACTIVE_MEASURES on Reddit. Made one more comment that virgin day and then never commented again in 2 years.
+
+https://old.reddit.com/r/AskReddit/comments/1axvsyy/what_is_your_favorite_movie/krqnh29/
+
+the only other comment made by that account whose sole purpose was to make Anti-Putin mockery comments and never active again. Extreme low-effort commenting.
+
+https://old.reddit.com/r/politics/comments/1ax4qkp/james_comer_and_tucker_carlson_arent_fooled_by/krni9gy/
+
+Same posting as the one I did on /r/MonoMythWrfare - and suspicious simple-think banal comment. 
+
+https://old.reddit.com/r/politics/comments/1ax4qkp/james_comer_and_tucker_carlson_arent_fooled_by/krmvul1/
+
+Was this the source comment copied to other subreddits with parallel same-URL postings?
+
+https://old.reddit.com/r/politics/comments/1ax4qkp/james_comer_and_tucker_carlson_arent_fooled_by/krmq43n/
+
+"media CYA" one of the phrases used  in /r/MonoMythWarfare comments earlier in this list?
+
+https://old.reddit.com/r/politics/comments/1ax4qkp/james_comer_and_tucker_carlson_arent_fooled_by/krmhh7c/
+
+HYPER_BANALISATION - downplaying Putin topic, trivializing it.
+
+https://old.reddit.com/r/politics/comments/1ax4qkp/james_comer_and_tucker_carlson_arent_fooled_by/krls15d/
+
+https://old.reddit.com/r/politics/comments/1ax4qkp/james_comer_and_tucker_carlson_arent_fooled_by/krljg1t/
+
+Deleted comments abound, but some quoted comments discussion here.
+
+https://old.reddit.com/r/politics/comments/1ax4qkp/james_comer_and_tucker_carlson_arent_fooled_by/krmtpz9/
+
+https://old.reddit.com/r/politics/comments/1ax4qkp/james_comer_and_tucker_carlson_arent_fooled_by/krna1ce/
+
+The account now deleted. Notice how it only implies Russia success was TV and other media, not social media, not Reddit.
+
+https://old.reddit.com/r/politics/comments/1ax4qkp/james_comer_and_tucker_carlson_arent_fooled_by/krmbido/
+
+since deleted account.
+
+https://old.reddit.com/r/politics/comments/1ax4qkp/james_comer_and_tucker_carlson_arent_fooled_by/krlssqz/
+
+Account now gone. So much sex-talk in these hyper-banal commenting. Epstein like topic associations with Putin. Sexually forbidden mental manipulation mindsets. Right up the MonoMyth Warfare topic and focus.
+
+https://old.reddit.com/r/politics/comments/1ax4qkp/james_comer_and_tucker_carlson_arent_fooled_by/krlhdce/
+
+Discussion of the insincere account activity.
+
+https://old.reddit.com/r/politics/comments/1ax4qkp/james_comer_and_tucker_carlson_arent_fooled_by/krmtpz9/
+
+https://old.reddit.com/r/politics/comments/1ax4qkp/james_comer_and_tucker_carlson_arent_fooled_by/krna1ce/
+
+Now deleted account. Isn't this the exact same comment from another comment in this posting?
+
+https://old.reddit.com/r/politics/comments/1ax4qkp/james_comer_and_tucker_carlson_arent_fooled_by/krmbido/
+
+Same one-word comment as another already on this list. Now deleted account since comment created.
+
+https://old.reddit.com/r/politics/comments/1ax4qkp/james_comer_and_tucker_carlson_arent_fooled_by/krlssqz/
+
+Account now gone on Reddit.
+
+https://old.reddit.com/r/politics/comments/1ax4qkp/james_comer_and_tucker_carlson_arent_fooled_by/krlq3dt/
+
+Joined Reddit shortly before this posting, banal commenting, wildly popular 2 years on Reddit.
+
+https://old.reddit.com/r/politics/comments/1ax4qkp/james_comer_and_tucker_carlson_arent_fooled_by/kroe986/
+
+Account now gone on Reddit.
+
+https://old.reddit.com/r/politics/comments/1ax4qkp/james_comer_and_tucker_carlson_arent_fooled_by/krm2srh/
+
+Hyper banal, now deleted account.
+
+https://old.reddit.com/r/politics/comments/1ax4qkp/james_comer_and_tucker_carlson_arent_fooled_by/krlk48c/
+
+Hyper banal, now deleted account.
+
+https://old.reddit.com/r/politics/comments/1ax4qkp/james_comer_and_tucker_carlson_arent_fooled_by/krmbi8l/
+
+now deleted account.
+
+https://old.reddit.com/r/politics/comments/1ax4qkp/james_comer_and_tucker_carlson_arent_fooled_by/krm12v1/
+
+Account now gone on Reddit.
+
+https://old.reddit.com/r/politics/comments/1ax4qkp/james_comer_and_tucker_carlson_arent_fooled_by/krloal6/
+
+Joined Reddit shortly before this comment was made.
+
+https://old.reddit.com/r/Connecticut/comments/1rghmbg/ct_republican_coopts_no_kings_or_tries_to/o7rmcuh/
+
+This user (from previous link) is still active OUT_GROUP_HATE messaging year after year.
+
+https://old.reddit.com/r/politics/comments/1ax4qkp/james_comer_and_tucker_carlson_arent_fooled_by/krlpcu2/
+
+now deleted account.
+
+https://old.reddit.com/r/politics/comments/1ax4qkp/james_comer_and_tucker_carlson_arent_fooled_by/krlo4wo/
+
+Account now gone on Reddit.
+
+
+https://old.reddit.com/r/politics/comments/1ax4qkp/james_comer_and_tucker_carlson_arent_fooled_by/krlz1e4/
+
+This user gives a sophisticated reply. But the account on Reddit went inactive shortly before the November 2024 election win by Trump.
+
+https://old.reddit.com/r/politics/comments/1ax4qkp/james_comer_and_tucker_carlson_arent_fooled_by/krly2l5/
+
+So this is the message that the previous link was responding to. This account ALSO went inactive on Reddit shortly before the November 2024 election win by Trump. Is this whole back and forth message exchange SIMULATION_SIMULACRA back in February 2024... and then they both stop using Reddit in October 2024?
+
+
+
+https://old.reddit.com/r/MonoMythWarfare/comments/1ay5tqp/alabama_chief_justice_tom_parker_who_ruled_that/kruinsz/
+
+Created a Reddit account for one and only one comment, then never made a comment again. Only engaged this /r MonoMythWarfare subreddit.
+
+https://old.reddit.com/r/MonoMythWarfare/comments/1ay5tqp/alabama_chief_justice_tom_parker_who_ruled_that/krv8242/
+
+Same pattern. Created a Reddit account for one and only one comment, then made one low-effort comment, then account stopped. Only engaged this /r MonoMythWarfare subreddit (which nobody finds by accident, they are targeted the posting URL back in that 2024 era, the activity I am sure is more intelligent these days in 2026). Here is the other comment on that newly created account:
+
+https://old.reddit.com/r/AskReddit/comments/1ayjqk4/what_is_the_most_enjoyable_part_of_your_day/krv8neo/
+
+Note that the account commented on a posting that has since been deleted. So they may specifically target postings that get removed and deleted to not draw as much attention.
+
+https://old.reddit.com/r/Astuff/comments/1aygqet/alabama_justice_who_ruled_that_embryos_are/kruwluu/
+
+Same posting off-Reddit URL on a parallel subreddit. Created a Reddit account for one and only one comment, then never made a comment again.
+
+https://old.reddit.com/r/MonoMythWarfare/comments/1ay5b4t/florida_defies_usas_center_for_disease_control_in/krvx83s/
+
+More of the same
+
+https://old.reddit.com/r/MonoMythWarfare/comments/1ay5b4t/florida_defies_usas_center_for_disease_control_in/kruw3pv/
+
+PRO_DISEASE topic ( Never forget August 24, 2018 ). Created a Reddit account for one and only one comment, then made one low-effort comment, then account stopped. Only engaged this /r MonoMythWarfare subreddit (which nobody finds by accident, they are targeted the posting URL back in that 2024 era, the activity I am sure is more intelligent these days in 2026). Here is the other comment on that newly created account:
+
+https://old.reddit.com/r/AskReddit/comments/1ayhyht/whats_the_most_bizarre_culture_in_your_country/kruvo5a/
+
+they made the low-effort comment before going into /r/MonoMythWarfare for the pro-disease comment.

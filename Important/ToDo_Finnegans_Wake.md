@@ -853,3 +853,9 @@ https://old.reddit.com/r/ireland/comments/1r74vp3/mistake_in_the_irish_passport/
 &nbsp;
 
 https://old.reddit.com/r/HistoryMemes/comments/1r7zlwl/haha_car_go_boom/
+
+&nbsp;
+
+Language teaching for Irish Defiance ;)   
+
+https://old.reddit.com/r/funny/comments/1rfegu8/the_english_teacher/
