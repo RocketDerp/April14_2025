@@ -667,3 +667,7 @@ Year 2011, Twitter. SEE_ALSO: https://GitHub.com/RocketDerp/April14_2025/blob/ma
 https://old.reddit.com/r/NonPoliticalTwitter/comments/1rgvcqr/we_used_to_be_a_proper_country_in_true_reality/o7ub2v0/
 
 On Reddit, we used to call this type of low-effort commenting "Twitter" 140 characters or less. Reddit allows 10,000 characters. As for the posting, this is not just real estate. WIDE_RADICAL_DOUBT_ABOUT_REAL - Trump is the role model of real estate leadership, golf courses, hotels, properties. Decades of Trump values and worship for images.
+
+https://old.reddit.com/r/whennews/comments/1rgxll9/literally_did_the_thing/o7umq0v/
+
+A fiction film. Reddit fandom of Trump content, the commenting community on Reddit, long ago abandoned relevant serious nonfiction. Dr.Bandy X Lee assembled 27 people in a book published October 3, 2017 - Reddit community avoids it. Dr. Lee's leadership should be commented and asserted again and again, but instead Reddit community is posting fiction film clips. FOLLOWERS_OF_LEADER_TRUMP_ACTOR_ENTERTAINER_DONALD_TRUMP_FOLLOWERS
