@@ -735,3 +735,7 @@ Most popular, top-upvoted. 3 words. TRUMP_FANDOM waiting for Trump images. REDDI
 https://old.reddit.com/r/stevehofstetter/comments/1rh31j4/start_a_war_for_another_distraction/o7vq7qs/
 
 CALL_FOR_ACTION_TO_DO_TRIVIAL_CHANGE No call to Reddit community to have a We The People Internet uprising / intellectual moral blackout of social media. No call for Trump's removal or end to the war. Just a call to change a trivial name detail of the war killing people.
+
+https://old.reddit.com/r/pics/comments/1rhehy0/president_trump_monitors_us_military_operations/o7y3472/
+
+MEDIA_ECOLOGY_OBSERVATION TWITTER_THINK_NATION 
