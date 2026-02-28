@@ -719,3 +719,7 @@ That's because there is no serious. Nonfiction books on paper have been abandone
 https://old.reddit.com/r/politics/comments/1rh28ht/trump_79_posts_crazed_4_am_rant_right_after/o7vh9ff/
 
 If Donald Trump were injured or killed, that would cause mass mayhem and violence. And people seen celebrating his death would likely meet a very bad cult outcome. The entire world is blaming the ENTIRE USA, not just Trump, for allowing the media addictions to Reality TV celebrity to go this far. But USA addicts to Trump content think that mocking trump isn't part of Surkovian governing. Mocking Tony Clifton POTUS character is eating the onion, adding MORE MOCKING to a total mockery is not resisting a mockery! People need to STOP social media mocking. FAITH_IN_MOCKERY And SEE_ALSO https://github.com/RocketDerp/April14_2025/blob/main/Grim_Blunt/Stop_All_Entertainment.md
+
+https://old.reddit.com/r/ImmigrationPathways/comments/1rh59y5/in_2019_kamala_harris_warned_that_his_personal/o7w621d/
+
+The top-most upvoted popular comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING about how predictable all this is. Yes, Surkov student screenplays. Self-harm to USA for Putin. But Reddit fandom of Trump media content seems entirely unable to engage serious nonfiction learning on the topic. PREDICTABLE_OUTCOME
