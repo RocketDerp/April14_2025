@@ -381,3 +381,7 @@ Fandom getting their weekend entertainment. This isn't resisting, it's extreme l
 https://old.reddit.com/r/PublicFreakout/comments/1rgvu85/iranian_people_cheering_for_bombs_hitting_the/o7ufzwx/
 
 Outbreak of mind-fucking. People have been cheering on every outbreak since March of year 2013. MOB_MENTALITY_FIRE_DRILLS
+
+https://old.reddit.com/r/Fauxmoi/comments/1rgt6l5/cillian_murphy_at_a_recent_qa_when_asked_by_an/o7tw8ov/
+
+11 month Reddit account, most-upvoted popular. As for the whole topic of acting fiction vs.reality and people behaving as if fiction is more difficult: UNIFIED_THEORY_FICTION_NONFICTION
