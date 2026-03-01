@@ -62,3 +62,7 @@ MEDIA_ECOLOGY_OBSERVATION
 https://old.reddit.com/r/clevercomebacks/comments/1ri35ev/no_celebration_only_grief/o836uha/
 
 MEDIA_ECOLOGY_OBSERVATION
+
+https://old.reddit.com/r/clevercomebacks/comments/1ri35ev/no_celebration_only_grief/o843laj/
+
+2 month Reddit account. Extremely simplistic, no-detail, generic message, nothing specific.
