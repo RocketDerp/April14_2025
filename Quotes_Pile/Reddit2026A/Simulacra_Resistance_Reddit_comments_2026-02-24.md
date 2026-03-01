@@ -57,3 +57,8 @@ EXPLAIN AND PONDER EXPLAIN_AND_PONDER_AND_CONTEMPLATE_FOREST_FOR_TREES why do yo
 
 SEE_ALSO See this educational website I created: https://www.IndraJāla.com/brave-new-world/mock-mock-mockery AGGRESSIVE_ESCALATE_HATE_REACT_HARDER_MINDSETS
 
+https://old.reddit.com/r/clevercomebacks/comments/1rhxm32/trump_is_now_24185230_in_hypothetical_situations/o81vu91/
+
+Framing this as "clever", it isn't. It's celebration of ignorance. It is prizing ignorant content off another platform (Twitter screen shot?) and setting an extremely low bar of measure for "clever" and really it's anti-intellectual programming. ARE_YOU_SMARTER_THAN_3RD_GRADE_STUDENT_FANDOM_MEASURING
+
+This content on Reddit isn't resisting, it's engaging, it's garbage-in garbage-out, feeding adults on Reddit ignorance. This has been ongoing with the cults of ignorance since year 2013. Surkov won since March 2013.
