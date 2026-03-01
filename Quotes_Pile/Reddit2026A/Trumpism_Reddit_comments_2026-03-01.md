@@ -53,4 +53,7 @@ https://old.reddit.com/r/politics/comments/1rhw39x/the_pentagon_says_its_lethali
 
 Top most-upvoted popular comment. Not even 140 character Twitter-think length limit. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING CONCERNS_OF_FINNEGANS Wake book, language as weapons by authoritative governments and religions. Reddit fandom of Trumpism values is eating it up that Internet street-gang language has been used by Surkov students.
 
+https://old.reddit.com/r/politics/comments/1rhw39x/the_pentagon_says_its_lethalitymaxxing_why_has/o81k19t/
+
+EPSTEIN_FANDOM all over Reddit. DO_YOU_SPEAK_FOX_NEWS_Y2020 now is Reddit-speak 4chan-speak Twitter-speak https://www.theAtlantic.com/culture/archive/2020/09/fox-news-trump-language-stelter-hoax/616309/ 
 
