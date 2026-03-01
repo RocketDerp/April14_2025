@@ -32,4 +32,8 @@ Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mfyzedyyzs
 
 https://old.reddit.com/r/Fauxmoi/comments/1rhpgvr/snls_colin_jost_on_iran_this_attack_might_be_a/o80dd36/
 
-AMUSING_ZOMBIES mind-blown by Trump actions and contents. Meme stupor audience. Neil Postman was correct in NYU book year 1985 / NYC about SNL framing of amusing news.
+<img width="1559" height="1047" alt="image" src="https://github.com/user-attachments/assets/100da689-f7e4-4c11-8f2d-a9fabe7933af" />
+
+AMUSING_ZOMBIES mind-blown by Trump actions and contents. Meme stupor audience. Neil Postman was correct in NYU book year 1985 / NYC about SNL framing of amusing news. DEATH_BY_LOL
+
+Social post { https://autistics.life/@RoundSparrow/116154580747757034 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfyzvs5pys2e }   
