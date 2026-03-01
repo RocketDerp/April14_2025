@@ -88,3 +88,7 @@ MOST POPULAR upvoted comment on Reddit. A Twitter screen shot (ignorance Tweet s
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1ri3hxl/_/o83dir0/
 
 This entire posting on Reddit is a cheering party. IGNORANCE_CELEBRATIONS parties, mocking, mockery. Normalizing MAGA and Twitter-thinking ignorance further than it already has been. 
+
+https://old.reddit.com/r/okbuddycinephile/comments/1ri0ov7/yeah_really_got_that_disabled_guy_who_got_his/o82ssso/
+
+RFK Jr. medical leadership. I see this same attitude towards autism. AUTISM_EXPERIENCE just be MAGA, just be a Trump fandom, just promote more and more ignorance and fiction! This was an awards show for FICTION, in context.
