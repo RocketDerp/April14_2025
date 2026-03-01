@@ -25,7 +25,7 @@ https://old.Reddit.com/r/WorldHateAffairs/comments/1rhklem/america_is_disintegra
 https://X.com/RoundSparrow/status/2027925851103461700   
 
 "America is Disintegrating Because of a Dangerously Mentally-Disturbed President"   
-"This was Predictable and Preventable—Indeed, We Predicted It and Tried to Prevent It"   
+"This was Predictable and Preventable — Indeed, We Predicted It and Tried to Prevent It"   
 https://bandyxlee.substack.com/p/america-is-disintegrating-because    
 PREDICTABLE_OUTCOME AVOIDED_DR_BANDY_X_LEE_PUBLIC_WRITINGS      
 NEW_OPERA_NAME #DisintegratingBecause   
