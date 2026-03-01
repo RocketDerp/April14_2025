@@ -649,3 +649,24 @@ https://old.reddit.com/r/news/comments/1rhlqes/iran_reels_as_more_than_100_child
 https://old.reddit.com/r/news/comments/1rhlqes/iran_reels_as_more_than_100_children_reportedly/o7zlyj5/
 
 5 month Reddit account.
+
+https://old.reddit.com/r/worldnews/comments/1rhmr0j/irgc_says_most_intense_operation_against_israel/o7zxchg/
+
+Top-most popular comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING Trump fandom wanting images.
+
+https://old.reddit.com/r/worldnews/comments/1rhmr0j/irgc_says_most_intense_operation_against_israel/o7ztocj/
+
+https://old.reddit.com/r/worldnews/comments/1rhmr0j/irgc_says_most_intense_operation_against_israel/o7zvaad/
+
+https://old.reddit.com/r/worldnews/comments/1rhmr0j/irgc_says_most_intense_operation_against_israel/o7zwuxg/
+
+https://old.reddit.com/r/worldnews/comments/1rhmr0j/irgc_says_most_intense_operation_against_israel/o7zu9yl/
+
+10 month Reddit account. Trump + Israel fandom cheering on.
+
+https://old.reddit.com/r/worldnews/comments/1rhmr0j/irgc_says_most_intense_operation_against_israel/o7zyxqj/
+
+https://old.reddit.com/r/worldnews/comments/1rhmr0j/irgc_says_most_intense_operation_against_israel/o7zv1x9/
+
+https://old.reddit.com/r/worldnews/comments/1rhmr0j/irgc_says_most_intense_operation_against_israel/o7zwk6a/
+
