@@ -114,3 +114,7 @@ https://old.reddit.com/r/MurderedByWords/comments/1riakr3/trump_is_blackmailed/o
 Top-most upvoted popular comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING Reddit society is very anti-Wiki anti-FAQ and everyone has scattered fragmented mindsets, all on different pages. Important serious matters are confused and drowned out by banal commenting. PROMOTING_IGNORANCE_WORKS_PLAYING_DUMB_MOCKING 
 
 Social post {  https://autistics.life/@RoundSparrow/116156456827915891 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfzuk5hk2s2b }   
+
+https://old.reddit.com/r/MurderedByWords/comments/1riakr3/trump_is_blackmailed/o84miox/
+
+Note the edits. MOCK_YOU_BLOCK_YOU - person says a pro-ignorance reply, blocks you, then Reddit servers prevent replying to the ignorance. Common tactic since it was added to Reddit. MEDIA_ECOLOGY_OBSERVATION SEE_ALSO https://news.ycombinator.com/item?id=29992584
