@@ -73,4 +73,5 @@ https://old.reddit.com/r/ImmigrationPathways/comments/1rhzmf4/trump_has_turned_c
 
 https://old.reddit.com/r/ImmigrationPathways/comments/1rhzmf4/trump_has_turned_china_into_the_good_guys/o82apj5/
 
-1 month Reddit account. 3rd most popular upvoted comment. Extreme simplistic conditioned thinking patterns. This is not resisting ignorance, this is promoting ignorance via Reddit commenting messages.
+1 month Reddit account. 3rd most popular upvoted comment. Extreme simplistic conditioned thinking patterns. This is not resisting ignorance, this is promoting ignorance via Reddit commenting messages. Also note the username of the comment creator metaphorically means "brain rot" and is promoting reactionary mindsets with the 1 month new account.
+
