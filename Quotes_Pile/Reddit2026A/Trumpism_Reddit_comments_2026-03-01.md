@@ -77,3 +77,6 @@ https://old.reddit.com/r/politics/comments/1ri5lu6/he_could_be_impeached_donald_
 
 2nd most popular comment on the posting. GIVE_UP_ANTI_EDUCATION_ANTI_TEACH_ANTI_PROGRESS entirely avoiding addressing Saint Petersburg Internet Research Agency induced brain-rot of anti-education anti-teaching social media values, avoiding dealing with Cambridge Analytica doctors who manipulated mind into seeking junk commenting for adult learning, etc. Trump's popularity and Trump being center of all media systems makes no sense unless there was a massive mental shift in USA society thinking, an it shifted in year 2013. Surkov won. This Reddit message is a "give up" message programming to Reddit audience.
 
+https://old.reddit.com/r/politics/comments/1ri5lu6/he_could_be_impeached_donald_trumps_base_revolts/o83om48/
+
+"I won't hold my breath. This is just, what, the 14,741st thing he's done that was impeachable, innit?" even higher than that 14K number. Alas, the problem in a democracy is not one single person. It's the society-wide cult to that one person's photographs, content creation, media messaging techniques and styles. It is the anti-intellectual attitude of We The People that is keeping Trump as the constant source of stimulating media content. BRAIN_ROT_SOCIETY_47
