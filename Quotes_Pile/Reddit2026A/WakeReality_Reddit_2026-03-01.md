@@ -5,3 +5,7 @@ The /r/JamesJoyce community is often hostile to associations to media ecology. "
 https://old.reddit.com/r/jamesjoyce/comments/1rgszvb/i_swear_the_play_of_the_king_in_yellow_from_the/o7u6efs/
 
 not my comment, but Wake Reality media ecology... CONTEXT_BEWILDERMENT or meaning bewilderment. Overloaded meanings.
+
+https://old.reddit.com/r/jamesjoyce/comments/1rgszvb/i_swear_the_play_of_the_king_in_yellow_from_the/o82rtq3/
+
+My comment.
