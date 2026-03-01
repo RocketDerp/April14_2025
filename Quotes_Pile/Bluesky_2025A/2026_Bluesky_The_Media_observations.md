@@ -20,3 +20,16 @@ https://bsky.app/profile/kevinmkruse.bsky.social
 
 
 Trumpism machine-logic, out-group hate, dehumanization via blocking / deportation systems. For what? having different discussions of mythology?
+
+&nbsp;
+
+# Blocked for quoting a nonfiction book
+
+I quoted a reporter on the topic of news, and I was blocked
+
+<img width="1259" height="662" alt="image" src="https://github.com/user-attachments/assets/1c764e95-ffa9-46c1-87f5-7508f9daf479" />
+
+This is my post https://bsky.app/profile/roundsparrow.bsky.social/post/3mfz7jzhydc2k that got me blocked. For quoting:
+
+“endlessly absorbed by hearing amplified echoes of their own biases. It’s divisive and damaging to the healthy functioning of our political system, but it’s also indisputably inexpensive and, therefore, good business.” ― #TedKoppel . Lights Out: A Cyberattack, A Nation... October 27, 2015. Page 13.
+
