@@ -38,3 +38,7 @@ Twitter has a huge influence on Reddit culture March 2026. Screen shots of back 
 https://old.reddit.com/r/worldnews/comments/1ri23p9/saudi_prince_quietly_lobbied_trump_for_military/o82y03d/
 
 4 month Reddit account. 2nd most popular upvoted comment. Short message. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
+
+https://old.reddit.com/r/politics/comments/1ri5lu6/he_could_be_impeached_donald_trumps_base_revolts/o83qlyu/
+
+Top most popular comment. Yes, them mockery anti-intellectual anti-education is in the media ecology room. REPUBLICANS_LEAD_WITH_IGNORANCE_IDEAS_AND_FOLLOWERS_REPLY_WITH_IGNORANCE Again,observe the absence of nonfiction serious writings in the Reddit commenting... why are Dr. Bandy X Lee's 27 assembled writers ignored from her October 3, 2017 book? Is a woman leader not good enough for Trump content consumers?
