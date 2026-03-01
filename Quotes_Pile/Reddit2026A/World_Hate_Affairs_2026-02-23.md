@@ -601,3 +601,10 @@ https://old.reddit.com/r/worldnews/comments/1rhieoc/trump_says_irans_leader_is_d
 https://old.reddit.com/r/worldnews/comments/1rhieoc/trump_says_irans_leader_is_dead/o7yyrqe/
 
 TRUMP_FANDOM like sports gambling, which was huge in Super Bowl 2026 this month, Trump fandom does not want to REMOVE TRUMP, wants more entertainment to bet and comment upon. Media cults of Reddit prize Trump as a source of stimulation.
+
+https://old.reddit.com/r/worldnews/comments/1rh9jdm/rworldnews_discussion_thread_us_and_israel_launch/o7z5p0i/
+
+https://old.reddit.com/r/worldnews/comments/1rhiubo/iran_says_us_and_israel_strikes_hit_school/o7z1wng/
+
+https://old.reddit.com/r/worldnews/comments/1rhiubo/iran_says_us_and_israel_strikes_hit_school/o7z10f3/
+
