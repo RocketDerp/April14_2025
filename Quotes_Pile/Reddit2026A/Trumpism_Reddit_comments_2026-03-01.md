@@ -108,3 +108,9 @@ Most-upvoted popular comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWI
 https://old.reddit.com/r/clevercomebacks/comments/1ri35ev/no_celebration_only_grief/o837o2n/
 
 2nd most popular upvoted comment. Messaging "Wait", do nothing! Sit around and keep commenting, don't use social media to address the massive bigotry, morality and celebration of ignorance crisis. Keep spreading Musk-think, Trump-think, Twitter-think Tweet-mindsets! REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING ENTERTAINED_JUST_PASSIVELY_WATCHING_UNTIL_DEATH_NO_SOCIAL_MEDIA_UPRISING_WHILE_ALIVE
+
+https://old.reddit.com/r/MurderedByWords/comments/1riakr3/trump_is_blackmailed/o84lyop/
+
+Top-most upvoted popular comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING Reddit society is very anti-Wiki anti-FAQ and everyone has scattered fragmented mindsets, all on different pages. Important serious matters are confused and drowned out by banal commenting. PROMOTING_IGNORANCE_WORKS_PLAYING_DUMB_MOCKING 
+
+Social post {  https://autistics.life/@RoundSparrow/116156456827915891 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfzuk5hk2s2b }   
