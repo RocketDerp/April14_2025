@@ -10,3 +10,7 @@ Nov—03—2017 12:21PM EST. More so than the pandemic of COVID-2019 in my exper
 CONTEXT_ASSERTION the video featured on SNL last night that these comments are about, was Sunday when Trump has just returned from Moscow, Russia on a private yet. https://Time.com/5251484/donald-trump-flight-records-moscow-trip/
 
 The fire was blazing by the time year 2013 came and the  Saint Petersburg Internet Research Agency and Cambridge Analytica started pouring gasoline in select spots to really get MAGA thinking, mob mentality, high-speed Twitter-think reaction minds ablazing. "Дальше оставалось только загрузить эти данные в информационные потоки и социальные сети. И мы стали искать тех, кто справился бы с этой задачей лучше других." - SEE_ALSO https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Cambridge_Analytica_Quotes.md#november-12-2016
+
+https://old.reddit.com/r/Fauxmoi/comments/1rhpgvr/snls_colin_jost_on_iran_this_attack_might_be_a/o80k0hy/
+
+SNL comedy-washing sane-washing MAGA, Trumpism. PEOPLE_LOVE_COMEDY_MEDIA_CONTENT_MORE_THAN_PLURIBUS_HUMANISM
