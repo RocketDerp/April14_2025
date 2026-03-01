@@ -633,3 +633,7 @@ Trump leads with hate leadership, everyone in USA is following hate. PRIZING_HAT
 https://old.reddit.com/r/politics/comments/1rhd1m7/only_21_of_americans_support_the_united_states/o7xxe1k/
 
 MAGA hive mind, Reddit hive mind, similar to monomyth_vs_monomyth - all prizing hate.
+
+https://old.reddit.com/r/politics/comments/1rhd1m7/only_21_of_americans_support_the_united_states/o7xs3m3/
+
+100 PERCENT of Americans call out-groups stupid, dumb, idiots, morons, etc. People promoting anti-intellectual low-effort commenting on every media platform. Despite the OBVIOUS RAGING SOCIETY CRISIS, everyone on Reddit seems to avoid Dr. Lee. AVOIDED_DR_BANDY_X_LEE_PUBLIC_WRITINGS
