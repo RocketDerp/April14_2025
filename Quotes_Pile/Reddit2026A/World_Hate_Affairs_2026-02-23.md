@@ -619,3 +619,9 @@ Audience mindset. top-upvoted most popular comment. REDDIT_TOP_COMMENT_SERIOUS_T
 https://old.reddit.com/r/worldnews/comments/1rhkfgy/iranian_state_media_say_countrys_supreme_leader/o7zc0v3/
 
 Entertained and amused Reddit fandom of Trumpism. FOLLOWERS_OF_LEADER_TRUMP_ACTOR_ENTERTAINER_DONALD_TRUMP_FOLLOWERS
+
+https://old.reddit.com/r/worldnews/comments/1rhkfgy/iranian_state_media_say_countrys_supreme_leader/o7zc1cs/
+
+https://old.reddit.com/r/worldnews/comments/1rhkfgy/iranian_state_media_say_countrys_supreme_leader/o7zdgl4/
+
+https://old.reddit.com/r/worldnews/comments/1rhkfgy/iranian_state_media_say_countrys_supreme_leader/o7zd97v/
