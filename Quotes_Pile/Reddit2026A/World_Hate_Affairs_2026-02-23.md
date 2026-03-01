@@ -625,3 +625,7 @@ https://old.reddit.com/r/worldnews/comments/1rhkfgy/iranian_state_media_say_coun
 https://old.reddit.com/r/worldnews/comments/1rhkfgy/iranian_state_media_say_countrys_supreme_leader/o7zdgl4/
 
 https://old.reddit.com/r/worldnews/comments/1rhkfgy/iranian_state_media_say_countrys_supreme_leader/o7zd97v/
+
+https://old.reddit.com/r/politics/comments/1rhd1m7/only_21_of_americans_support_the_united_states/o7xtr9r/
+
+Trump leads with hate leadership, everyone in USA is following hate. PRIZING_HATE_FURTHERING_HATE It is February 28 today, and one thing I've seen since Trump became center of all media systems focus nearly 11 years ago is the avoidance of Dr. Martin Luther King Jr's Sunday February 28, 1954 speech in Detroit, Michigan.
