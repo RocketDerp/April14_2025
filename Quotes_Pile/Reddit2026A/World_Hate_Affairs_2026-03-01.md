@@ -45,7 +45,7 @@ Top most popular comment. Yes, them mockery anti-intellectual anti-education is 
 
 https://old.reddit.com/r/pics/comments/1ri775m/that_armband_is_such_an_unnecessary_piece_of_her/o841ot1/
 
-"OC" in the posting is supposed to represent "Original Content". The posting creator https://old.reddit.com/user/brandon061416 actively conceals their Reddit history, so you can not study thier comments and posts. This type of Reddit posting creates a media culture of SIMULATION_SIMULACRA where people think commenting about this one person in the photo is resisting. Many anti-intellectual pro-violence messages are created in the reply comments. Image stimulation of audience hate.
+"OC" in the posting is supposed to represent "Original Content". The posting creator https://old.reddit.com/user/brandon061416 actively conceals their Reddit history, so you can not study history of account comments and posts. This type of Reddit posting creates a media culture of SIMULATION_SIMULACRA where people think commenting about this one person in the photo is resisting. Many anti-intellectual pro-violence messages are created in the reply comments. Image stimulation of audience hate.
 
 https://old.reddit.com/r/pics/comments/1ri775m/that_armband_is_such_an_unnecessary_piece_of_her/o83xqxq/
 
