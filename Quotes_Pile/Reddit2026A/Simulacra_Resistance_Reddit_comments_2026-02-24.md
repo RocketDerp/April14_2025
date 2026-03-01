@@ -70,3 +70,7 @@ Study the Reddit title of this posting created by Reddit community. This is the 
 https://old.reddit.com/r/ImmigrationPathways/comments/1rhzmf4/trump_has_turned_china_into_the_good_guys/o82f6xv/
 
 2nd most upvoted popular comment. Extreme tiny-short thinking patterns of binary good vs. bad. REMEDIAL_MORALITY of good vs bad is essential teaching and rescue of people. This is low-effort thoughtless simulation of 'resisting' ignorance. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
+
+https://old.reddit.com/r/ImmigrationPathways/comments/1rhzmf4/trump_has_turned_china_into_the_good_guys/o82apj5/
+
+1 month Reddit account. 3rd most popular upvoted comment. Extreme simplistic conditioned thinking patterns. This is not resisting ignorance, this is promoting ignorance via Reddit commenting messages.
