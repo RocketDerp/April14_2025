@@ -608,3 +608,6 @@ https://old.reddit.com/r/worldnews/comments/1rhiubo/iran_says_us_and_israel_stri
 
 https://old.reddit.com/r/worldnews/comments/1rhiubo/iran_says_us_and_israel_strikes_hit_school/o7z10f3/
 
+https://old.reddit.com/r/Fauxmoi/comments/1rhhtey/ms_rachel_posts_on_instagram_stop_killing_kids/o7z0wwo/
+
+1 month Reddit account. Top upvoted most popular. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
