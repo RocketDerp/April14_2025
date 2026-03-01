@@ -30,3 +30,5 @@ https://bandyxlee.substack.com/p/america-is-disintegrating-because
 PREDICTABLE_OUTCOME   
 NEW_OPERA_NAME #DisintegratingBecause   
 
+* "Then **we all** have to ask, more than ever before: What is wrong with America? And what are we going to do about it?" - Thursday February 26, 2026 Dr. Bandy Xenobia Lee. ANSWER: BRAIN_ROT_SOCIETY_47 and DANGER_ALERT_CALL_TO_INTELLECTUAL_ARMS_BOOK_CRAM_SESSIONS
+
