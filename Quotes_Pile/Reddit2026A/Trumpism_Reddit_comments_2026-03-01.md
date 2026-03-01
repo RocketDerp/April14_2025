@@ -48,3 +48,9 @@ ANSWER: Sports mentality, competitive hate. Levant tradition of out-group-hate p
 
 NEW_OPERA_NAME #LoveKilling   
 Social post { https://autistics.life/@RoundSparrow/116155106065201578 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfzben2suk2k }   
+
+https://old.reddit.com/r/politics/comments/1rhw39x/the_pentagon_says_its_lethalitymaxxing_why_has/o81jqqn/
+
+Top most-upvoted popular comment. Not even 140 character Twitter-think length limit. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING CONCERNS_OF_FINNEGANS Wake book, language as weapons by authoritative governments and religions. Reddit fandom of Trumpism values is eating it up that Internet street-gang language has been used by Surkov students.
+
+
