@@ -58,3 +58,7 @@ REALLY_TIRED_OF_DUMB_IGNORANCE_POPULARITY_IN_ADULTS_USA
 https://old.reddit.com/r/clevercomebacks/comments/1ri35ev/no_celebration_only_grief/o84ahh2/
 
 MEDIA_ECOLOGY_OBSERVATION 
+
+https://old.reddit.com/r/clevercomebacks/comments/1ri35ev/no_celebration_only_grief/o836uha/
+
+MEDIA_ECOLOGY_OBSERVATION
