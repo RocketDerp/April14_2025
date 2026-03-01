@@ -611,3 +611,7 @@ https://old.reddit.com/r/worldnews/comments/1rhiubo/iran_says_us_and_israel_stri
 https://old.reddit.com/r/Fauxmoi/comments/1rhhtey/ms_rachel_posts_on_instagram_stop_killing_kids/o7z0wwo/
 
 1 month Reddit account. Top upvoted most popular. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+
+https://old.reddit.com/r/worldnews/comments/1rhkfgy/iranian_state_media_say_countrys_supreme_leader/o7zbvf9/
+
+Audience mindset. top-upvoted most popular comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
