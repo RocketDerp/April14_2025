@@ -72,3 +72,8 @@ The crisis is not one single man in the Pentagon being stupid. The crisis is the
 https://old.reddit.com/r/politics/comments/1rhw39x/the_pentagon_says_its_lethalitymaxxing_why_has/o81kyjz/
 
 Generation Twitter. Generation Reddit media generations. New Reddit, not Old Reddit. Media cultists, video gamers, gaming players. MEDIA_ECOLOGY_TARGET_MEDIUM_TARGET_MEDIA_FORMAT_GENERATION this content is made for the meme enthusiasts mindsets active on Reddit in March 2026. Reddit is a fandom.
+
+https://old.reddit.com/r/politics/comments/1ri5lu6/he_could_be_impeached_donald_trumps_base_revolts/o83lafv/
+
+2nd most popular comment on the posting. GIVE_UP_ANTI_EDUCATION_ANTI_TEACH_ANTI_PROGRESS entirely avoiding addressing Saint Petersburg Internet Research Agency induced brain-rot of anti-education anti-teaching social media values, avoiding dealing with Cambridge Analytica doctors who manipulated mind into seeking junk commenting for adult learning, etc. Trump's popularity and Trump being center of all media systems makes no sense unless there was a massive mental shift in USA society thinking, an it shifted in year 2013. Surkov won. This Reddit message is a "give up" message programming to Reddit audience.
+
