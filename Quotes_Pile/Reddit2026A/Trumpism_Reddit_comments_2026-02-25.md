@@ -763,3 +763,7 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1rhgf3m/ill_believe_it_when
 https://old.reddit.com/r/law/comments/1rhdi86/secretary_hegseth_announces_we_will_be_halting/o7y3i5m/
 
 Top-upvoted popular comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
+
+https://old.reddit.com/r/law/comments/1rhdi86/secretary_hegseth_announces_we_will_be_halting/o7xy32k/
+
+7 month Reddit account. "LOL". BANAL_WASH_LAUGH_TRACK
