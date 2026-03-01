@@ -61,3 +61,6 @@ https://old.reddit.com/r/politics/comments/1rhw39x/the_pentagon_says_its_lethali
 
 Deflecting from the immediate media environment, Reddit media cult of White House memes and messages. People who race to these /r/All front page stories about Department of War, Trump, MAGA, Musk, etc. Media cults. WHITE_HOUSE_HYPER_REAL
 
+https://old.reddit.com/r/politics/comments/1rhw39x/the_pentagon_says_its_lethalitymaxxing_why_has/o81nx0e/
+
+Notice these Reddit comment creators... OBSERVE_MEDIA_AVOIDANCE_OF_RELEVANT_NONFICTION they avoidance of any serious nonfiction stable books, author names, off-Reddit URL, citations, quotes. It is a cult of media commenting (and upvoting said low-information voting comments) that prizes low-effort messages and avoids consistently any serious media ecology books on paper.
