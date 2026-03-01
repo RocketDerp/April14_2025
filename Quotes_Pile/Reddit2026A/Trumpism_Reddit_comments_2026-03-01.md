@@ -118,3 +118,8 @@ Social post {  https://autistics.life/@RoundSparrow/116156456827915891 https://b
 https://old.reddit.com/r/MurderedByWords/comments/1riakr3/trump_is_blackmailed/o84miox/
 
 Note the edits. MOCK_YOU_BLOCK_YOU - person says a pro-ignorance reply, blocks you, then Reddit servers prevent replying to the ignorance. Common tactic since it was added to Reddit. MEDIA_ECOLOGY_OBSERVATION SEE_ALSO https://news.ycombinator.com/item?id=29992584
+
+https://old.reddit.com/r/MurderedByWords/comments/1riakr3/trump_is_blackmailed/o84oqux/
+
+What about the far larger and more serious problem of anti-intellectual pro-ignorance that the IRA and CA has induced in the population. If Donald Trump is an "idiot", why can't people remove an Idiot? OBSERVE how nobody in the Reddit commenting section is asserting and quoting and repeating the need for all of us to focus on Dr. Bandy X Lee's 27 leaders of mental health education since year 2017. There is a pro-Trump anti-learning anti-progress attitude on social media systems. REPUBLICANS_LEAD_WITH_IGNORANCE_IDEAS_AND_FOLLOWERS_REPLY_WITH_IGNORANCE
+
