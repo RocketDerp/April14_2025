@@ -904,3 +904,6 @@ https://old.reddit.com/r/PeterExplainsTheJoke/comments/1rfsh0p/petah_what_does_t
 FAKE_DETECTORS discussion in replies. MEDIA_ECOLOGY_OBSERVATION 
 
 https://old.reddit.com/r/ProgrammerHumor/comments/1rg0wj0/freeappidea/o7oa2kp/
+
+https://old.reddit.com/r/SipsTea/comments/1rhfr7s/jim_carrey_looks_different/o7yqd52/
+
