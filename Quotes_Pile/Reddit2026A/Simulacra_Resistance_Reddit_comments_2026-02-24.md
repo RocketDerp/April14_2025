@@ -63,3 +63,6 @@ Framing this as "clever", it isn't. It's celebration of ignorance. It is prizing
 
 This content on Reddit isn't resisting, it's engaging, it's garbage-in garbage-out, feeding adults on Reddit ignorance. This has been ongoing with the cults of ignorance since year 2013. Surkov won since March 2013. Note the prized screen shot image says keyword: "Leftist" simulation back and forth simple-think mindsets. Left-right brain-rot mindsets. BRAIN_ROT_LEFT_RIGHT_LIB_CON_NAME_AVOIDANCE - as this wildcard meaning can be played with to say "pro-cancer", as in this Trump Kremlin media messaging method.
 
+https://old.reddit.com/r/ImmigrationPathways/comments/1rhzmf4/trump_has_turned_china_into_the_good_guys/o82bjgp/
+
+Study the Reddit title of this posting created by Reddit community. This is the most upvoted popular comment. It's about celebration of ignorance, prizing low-effort commenting and consistently avoiding serious nonfiction books on paper. OBSERVE_MEDIA_AVOIDANCE_OF_RELEVANT_NONFICTION People are playing a simulation game, media game of messaging on computers, back and forth at a very low level of thinking.
