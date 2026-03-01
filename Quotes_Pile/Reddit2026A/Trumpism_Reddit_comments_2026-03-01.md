@@ -144,3 +144,7 @@ https://old.reddit.com/r/Epstein/comments/1rhrcju/epstein_said_if_trump_was_corn
 https://old.reddit.com/r/Epstein/comments/1rhrcju/epstein_said_if_trump_was_cornered_as_a_rat_hed/o80rup7/
 
 Where is the REDDIT_BLACKOUT ? Why are Reddit comment creators always shit-posting and shit-commenting and not quoting Dr. Bandy X Lee's assembly of 27 doctors about Trump's mental health since year 2017? But Reddit community can't stop shit-commenting about celebrity actor Trump. ATTRACTION_TO_SHIT_CONTENT_ENSHIT_BY_DESIRE
+
+https://old.reddit.com/r/Epstein/comments/1rhrcju/epstein_said_if_trump_was_cornered_as_a_rat_hed/o80uwsj/
+
+Gullible Reddit users. People on Reddit who think that the whole point isn't to wreck the USA on the world stage. What does insulting Greenland 51st stage, Canada, 52nd stage have to do with terrorism 9/11 attack support? SELF_HARM_USA This Reddit user thinks they are doing a bad job of self-harming the USA for Putin, that is how ignorant Reddit community is about Trump and Putin's meeting last summer (summer 2025) in Alaska. People on Reddit seem extremely avoidant of nonfiction serious books on the subject of Russia media techniques and even Ukraine war being unpopular! This Reddit user is eating the Surkovian onions. SURKOVIAN_ONION_EATING
