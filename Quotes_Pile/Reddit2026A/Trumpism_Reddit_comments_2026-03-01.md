@@ -131,3 +131,7 @@ https://old.reddit.com/r/UnderReportedNews/comments/1ri997c/trump_reacts_to_dead
 
 Top-voted most popular comment. See the message ending: "😆". MOCK_MOCK_MOCKERY feedback loop, mocking back and forth to Trump's entertainment leadership. Trump is an actor acting, just what the mockery fandom on Reddit prizes. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
 
+https://old.reddit.com/r/PublicFreakout/comments/1ri9bol/trump_there_will_likely_be_more_us_casualties/o84f66f/
+
+Top-upvoted most popular comment. The Reddit fandom of Trump hangs on his every word, gesture, utterance, photograph, video. Every little trivial word-choice or style that Trump shows, most popular comment. CALL_FOR_ACTION_TO_DO_TRIVIAL_CHANGE and observe, absence of calls to remove Trump from office, because on Reddit Trump is a constant center of attention and mockery anti-intellectual leadership for Reddit followers.
+
