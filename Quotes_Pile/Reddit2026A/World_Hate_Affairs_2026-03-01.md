@@ -42,3 +42,12 @@ https://old.reddit.com/r/worldnews/comments/1ri23p9/saudi_prince_quietly_lobbied
 https://old.reddit.com/r/politics/comments/1ri5lu6/he_could_be_impeached_donald_trumps_base_revolts/o83qlyu/
 
 Top most popular comment. Yes, them mockery anti-intellectual anti-education is in the media ecology room. REPUBLICANS_LEAD_WITH_IGNORANCE_IDEAS_AND_FOLLOWERS_REPLY_WITH_IGNORANCE Again,observe the absence of nonfiction serious writings in the Reddit commenting... why are Dr. Bandy X Lee's 27 assembled writers ignored from her October 3, 2017 book? Is a woman leader not good enough for Trump content consumers?
+
+https://old.reddit.com/r/pics/comments/1ri775m/that_armband_is_such_an_unnecessary_piece_of_her/o841ot1/
+
+"OC" in the posting is supposed to represent "Original Content". The posting creator https://old.reddit.com/user/brandon061416 actively conceals their Reddit history, so you can not study thier comments and posts. This type of Reddit posting creates a media culture of SIMULATION_SIMULACRA where people think commenting about this one person in the photo is resisting. Many anti-intellectual pro-violence messages are created in the reply comments. Image stimulation of audience hate.
+
+https://old.reddit.com/r/pics/comments/1ri775m/that_armband_is_such_an_unnecessary_piece_of_her/o83xqxq/
+
+Playing dumb on Reddit commenting works. Lots of upvotes. Normalizing HATE_HARDER programming on Reddit. PROMOTING_IGNORANCE_WORKS_PLAYING_DUMB_MOCKING
+
