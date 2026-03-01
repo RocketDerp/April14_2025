@@ -84,3 +84,7 @@ https://old.reddit.com/r/politics/comments/1ri5lu6/he_could_be_impeached_donald_
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1ri3hxl/_/o837kcl/
 
 MOST POPULAR upvoted comment on Reddit. A Twitter screen shot (ignorance Tweet source) with a single character Reddit posting title, on "White People Twitter" fandom subreddit. MAGA_FANDOM MUSK_FANDOM . Don't learn anything about right-wing media methods (billionaire Musk media) that are embraced now all over Reddit in March 2026. Continue to be anti-intellectual and pro-mockery. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1ri3hxl/_/o83dir0/
+
+This entire posting on Reddit is a cheering party. IGNORANCE_CELEBRATIONS parties, mocking, mockery. Normalizing MAGA and Twitter-thinking ignorance further than it already has been. 
