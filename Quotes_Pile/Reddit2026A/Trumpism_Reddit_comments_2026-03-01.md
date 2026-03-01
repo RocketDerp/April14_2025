@@ -104,3 +104,7 @@ Most-upvoted popular comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWI
 * "The unformulated message of an assembly of news items from every quarter of the globe is that the world today is one city. All war is civil war. All suffering is our own." - University of Toronto, Marshall McLuhan. https://en.wikiquote.org/wiki/Marshall_McLuhan
 
 * "**their neighbors**. But this passage is an extreme statement of something that is inherent in most sociologically oriented mythologies. That is to say, **love and compassion are reserved for the in-group, and aggression and abuse are projected outward on others**. Compassion is to be reserved for members of your own group. The out-group is to be treated in a way described there in Deuteronomy. **Now, today there is no out-group anymore on the planet**. And the problem of a modern religion is to have such compassion work for the whole of humanity." - Power of Myth. Published year 1988. Age 83 professor Joseph Campbell.
+
+https://old.reddit.com/r/clevercomebacks/comments/1ri35ev/no_celebration_only_grief/o837o2n/
+
+2nd most popular upvoted comment. Messaging "Wait", do nothing! Sit around and keep commenting, don't use social media to address the massive bigotry, morality and celebration of ignorance crisis. Keep spreading Musk-think, Trump-think, Twitter-think Tweet-mindsets! REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING ENTERTAINED_JUST_PASSIVELY_WATCHING_UNTIL_DEATH_NO_SOCIAL_MEDIA_UPRISING_WHILE_ALIVE
