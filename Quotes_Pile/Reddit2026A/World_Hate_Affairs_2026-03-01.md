@@ -54,3 +54,7 @@ Playing dumb on Reddit commenting works. Lots of upvotes. Normalizing HATE_HARDE
 https://old.reddit.com/r/clevercomebacks/comments/1ri35ev/no_celebration_only_grief/o83erqd/
 
 REALLY_TIRED_OF_DUMB_IGNORANCE_POPULARITY_IN_ADULTS_USA
+
+https://old.reddit.com/r/clevercomebacks/comments/1ri35ev/no_celebration_only_grief/o84ahh2/
+
+MEDIA_ECOLOGY_OBSERVATION 
