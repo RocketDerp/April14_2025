@@ -70,3 +70,13 @@ https://old.reddit.com/r/clevercomebacks/comments/1ri35ev/no_celebration_only_gr
 https://old.reddit.com/r/UnderReportedNews/comments/1ri9sbd/trump_issues_statement_on_dead_soldiers_killed_by/o84gyw7/
 
 For the nation of Twitter-think reaction-commenting Reddit, Bluesky audiences and TRUMP_FANDOM of hate leadership. Year after yer, people on social media systems AVOIDING Dr. Bandy X Lee's year 2007 book. MOCK_MOCK_MOCKERY explained here: SEE_ALSO https://www.IndraJāla.com/brave-new-world/mock-mock-mockery
+
+https://old.reddit.com/r/UnderReportedNews/comments/1ri9sbd/trump_issues_statement_on_dead_soldiers_killed_by/o84h0qg/
+
+<img width="1482" height="801" alt="image" src="https://github.com/user-attachments/assets/91c46a98-6bdb-4b1f-80cd-c84cbfbcbff9" />
+
+"America is a cruel cruel joke" - a nation of ant-serious constant humor-washing meme-washing joke-washing amusement-washing. Neil Postman was correct in his 1985 nonfiction book. JOKE_COMEDY_POWER_IS_MAGA_IS_TRUMP_IS_SURKOV
+
+NEW_OPERA_NAME #CruelCruelJoke #AsLongAsJokes    
+REVIVE_OPERA_NAME #EntertainmentPolitics (1st on Mastodon)    
+Social post { https://autistics.life/@RoundSparrow/116156424247293430 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfzu2267uc2b }   
