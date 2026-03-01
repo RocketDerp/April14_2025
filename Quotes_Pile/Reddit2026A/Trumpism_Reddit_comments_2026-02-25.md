@@ -779,3 +779,19 @@ https://old.reddit.com/r/UnderReportedNews/comments/1rhfq5j/200_american_casualt
 https://old.reddit.com/r/ProgressiveHQ/comments/1rhgntj/november_cannot_get_here_soon_enough/o7yxa88/
 
 And this posting, "November cannot get here soon enough" is promoting the idea of waiting and waiting as people have. No cult deprogramming, no Dr. Bandy X Lee promoting. ELECTION_DAY_FIXATED_BRAIN_ROT_EVERY_DAY_FOX_NEWS_ETC
+
+https://old.reddit.com/r/Fauxmoi/comments/1rhkzgr/sterling_k_brown_at_the_naacp_image_awards_we_are/o7zge57/
+
+https://old.reddit.com/r/Fauxmoi/comments/1rhkzgr/sterling_k_brown_at_the_naacp_image_awards_we_are/o7zln41/
+
+https://old.reddit.com/r/Fauxmoi/comments/1rhkzgr/sterling_k_brown_at_the_naacp_image_awards_we_are/o7ztcyv/
+
+https://old.reddit.com/r/politics/comments/1rhf879/former_vice_president_kamala_harris_i/o7yx8wd/
+
+https://old.reddit.com/r/politics/comments/1rhf879/former_vice_president_kamala_harris_i/o7y9fb7/
+
+https://old.reddit.com/r/politics/comments/1rhf879/former_vice_president_kamala_harris_i/o7ydk1b/
+
+"It is all just so depressing, the reality we have now, and it never needed to be this way!" she didn't stand up to the brain rot of low-effort voting upvotes of comments. The Saint Petersburg Internet Research Agency have people favor shit on EVERY topic, not just traditional politics. Shit-posting shit-commenting. We got rid of Trump for 4 years, and it kept getting worse. ATTRACTION_TO_SHIT_CONTENT_ENSHIT_BY_DESIRE People DESIRE Trump content with self-awareness they are cheering on machines doing high-speed delivery of Trump shit.
+
+
