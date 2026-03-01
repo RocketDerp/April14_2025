@@ -34,3 +34,7 @@ https://old.reddit.com/r/worldnews/comments/1ri23p9/saudi_prince_quietly_lobbied
 * "Money talks: the deep ties between Twitter and Saudi Arabia"; "Elon Musk, then senior adviser to Donald Trump, in Saudi Arabia in May."; "Saudi Arabia’s investment in Twitter increased its influence in Silicon Valley while being used at home to shut down critics of the regime" By Jacob Silverman. Thursday 9 October 2025 https://www.TheGuardian.com/technology/2025/oct/09/twitter-saudi-arabia-deep-ties-elon-musk-prince-mohammed
 
 Twitter has a huge influence on Reddit culture March 2026. Screen shots of back and forth mocking are constantly posted on Reddit /r/All front page.
+
+https://old.reddit.com/r/worldnews/comments/1ri23p9/saudi_prince_quietly_lobbied_trump_for_military/o82y03d/
+
+4 month Reddit account. 2nd most popular upvoted comment. Short message. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
