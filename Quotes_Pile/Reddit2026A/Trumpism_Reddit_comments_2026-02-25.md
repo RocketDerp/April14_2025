@@ -759,3 +759,7 @@ https://old.reddit.com/r/Epstein/comments/1rh9yrc/not_all_of_the_files_referenci
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1rhgf3m/ill_believe_it_when_i_see_it/o7yhpjt/
 
 5 month Reddit account, most popular upvoted comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT 
+
+https://old.reddit.com/r/law/comments/1rhdi86/secretary_hegseth_announces_we_will_be_halting/o7y3i5m/
+
+Top-upvoted popular comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
