@@ -48,3 +48,12 @@ This entire posting on /r/All front page is the Reddit community celebrating the
 
 NEW_OPERA_NAME #ResistingWhatExactly #InsincereResistance     
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mfwnkaaoi22h https://autistics.life/@RoundSparrow/116149206200544436 }    
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rhywq1/where_did_america_first_go_where_is_the_zero_war/o824xdd/
+
+This entire Reddit posting is a simulation of resisting. People making low-effort patterns of questions and blaming only figureheads. The ENTIRE SOCIETY, including Reddit comment community, has largely abandoned nonfiction book reading since year 2013 in favor of low-information social upvoting and filter bubbles. SEE_ALSO https://en.Wikipedia.org/wiki/Low_information_voter and SEE_ALSO https://en.Wikipedia.org/wiki/Filter_bubble
+
+EXPLAIN AND PONDER EXPLAIN_AND_PONDER_AND_CONTEMPLATE_FOREST_FOR_TREES why do you not see Rupert Murdoch not being blamed constantly in every comment? Many White House employees are from Fox News HDTV! That is where they were trained and educated on media practitioners of what AUDIENCES desire. Reddit users are doing exactly what Fox News audiences do: mocking, avoiding nonfiction serious books on paper! Mocking and mockery against out-groups. That's the simulation. Feedback looping, game looping. Media vs. media. Mocking vs. Mocking. MOCK_MOCK_MOCKERY hate vs. hate. Out-group hate vs. out-group hate. 
+
+SEE_ALSO See this educational website I created: https://www.IndraJāla.com/brave-new-world/mock-mock-mockery AGGRESSIVE_ESCALATE_HATE_REACT_HARDER_MINDSETS
+
