@@ -80,3 +80,7 @@ https://old.reddit.com/r/UnderReportedNews/comments/1ri9sbd/trump_issues_stateme
 NEW_OPERA_NAME #CruelCruelJoke #AsLongAsJokes    
 REVIVE_OPERA_NAME #EntertainmentPolitics (1st on Mastodon)    
 Social post { https://autistics.life/@RoundSparrow/116156424247293430 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfzu2267uc2b }   
+
+https://old.reddit.com/r/UnderReportedNews/comments/1ri9sbd/trump_issues_statement_on_dead_soldiers_killed_by/o84gd4p/
+
+TRUMP_FANDOM wants to see even more war and killing in the Middle East, and to see images of Trump family there standing around the dead bodies for Reddit content and entertainment. Very sick community that will not call for an END to the mental disorder. SEE_ALSO: https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Bandy_X_Lee/Avoided_And_Ignored_Since_April_20_2017.md
