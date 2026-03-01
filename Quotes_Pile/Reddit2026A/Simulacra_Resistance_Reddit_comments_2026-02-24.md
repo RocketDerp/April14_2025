@@ -66,3 +66,7 @@ This content on Reddit isn't resisting, it's engaging, it's garbage-in garbage-o
 https://old.reddit.com/r/ImmigrationPathways/comments/1rhzmf4/trump_has_turned_china_into_the_good_guys/o82bjgp/
 
 Study the Reddit title of this posting created by Reddit community. This is the most upvoted popular comment. It's about celebration of ignorance, prizing low-effort commenting and consistently avoiding serious nonfiction books on paper. OBSERVE_MEDIA_AVOIDANCE_OF_RELEVANT_NONFICTION People are playing a simulation game, media game of messaging on computers, back and forth at a very low level of thinking.
+
+https://old.reddit.com/r/ImmigrationPathways/comments/1rhzmf4/trump_has_turned_china_into_the_good_guys/o82f6xv/
+
+2nd most upvoted popular comment. Extreme tiny-short thinking patterns of binary good vs. bad. REMEDIAL_MORALITY of good vs bad is essential teaching and rescue of people. This is low-effort thoughtless simulation of 'resisting' ignorance. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
