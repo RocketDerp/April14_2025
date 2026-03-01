@@ -123,3 +123,6 @@ https://old.reddit.com/r/MurderedByWords/comments/1riakr3/trump_is_blackmailed/o
 
 What about the far larger and more serious problem of anti-intellectual pro-ignorance that the IRA and CA has induced in the population. If Donald Trump is an "idiot", why can't people remove an Idiot? OBSERVE how nobody in the Reddit commenting section is asserting and quoting and repeating the need for all of us to focus on Dr. Bandy X Lee's 27 leaders of mental health education since year 2017. There is a pro-Trump anti-learning anti-progress attitude on social media systems. REPUBLICANS_LEAD_WITH_IGNORANCE_IDEAS_AND_FOLLOWERS_REPLY_WITH_IGNORANCE
 
+https://old.reddit.com/r/pics/comments/1ri16be/the_white_house_situation_room_yesterday/o82nqrx/
+
+Trump knows that SNL comedy and Twitter and Reddit monitoring is more important than the war itself. Everything is all about social media content and the Reddit fandoms.
