@@ -61,4 +61,5 @@ https://old.reddit.com/r/clevercomebacks/comments/1rhxm32/trump_is_now_24185230_
 
 Framing this as "clever", it isn't. It's celebration of ignorance. It is prizing ignorant content off another platform (Twitter screen shot?) and setting an extremely low bar of measure for "clever" and really it's anti-intellectual programming. ARE_YOU_SMARTER_THAN_3RD_GRADE_STUDENT_FANDOM_MEASURING
 
-This content on Reddit isn't resisting, it's engaging, it's garbage-in garbage-out, feeding adults on Reddit ignorance. This has been ongoing with the cults of ignorance since year 2013. Surkov won since March 2013.
+This content on Reddit isn't resisting, it's engaging, it's garbage-in garbage-out, feeding adults on Reddit ignorance. This has been ongoing with the cults of ignorance since year 2013. Surkov won since March 2013. Note the prized screen shot image says keyword: "Leftist" simulation back and forth simple-think mindsets. Left-right brain-rot mindsets. BRAIN_ROT_LEFT_RIGHT_LIB_CON_NAME_AVOIDANCE - as this wildcard meaning can be played with to say "pro-cancer", as in this Trump Kremlin media messaging method.
+
