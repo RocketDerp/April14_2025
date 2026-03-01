@@ -65,4 +65,5 @@ MEDIA_ECOLOGY_OBSERVATION
 
 https://old.reddit.com/r/clevercomebacks/comments/1ri35ev/no_celebration_only_grief/o843laj/
 
-2 month Reddit account. Extremely simplistic, no-detail, generic message, nothing specific.
+2 month Reddit account. Extremely simplistic, no-detail, generic message, nothing specific. It is a wildcard statement, people will agree with it for hundreds or thousands of different reasons. Very popular to comment this way and not cite the reasons. One of the huge  reasons: tiny-short reactionary mindsets are a huge crisis with high-speed Twitter-like Tweet-thinking patterns.
+
