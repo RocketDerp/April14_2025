@@ -587,3 +587,17 @@ Great for February 28. All war in all places is bad. People spend way too much t
 https://old.reddit.com/r/news/comments/1rhfnn3/iran_reportedly_closes_strait_of_hormuz_oil_and/o7yc2hd/
 
 HATE_MOTIVATED_ECONOMY_HATE_AS_A_VIRTUE_SIGNALING
+
+https://old.reddit.com/r/worldnews/comments/1rhieoc/trump_says_irans_leader_is_dead/o7z3cd8/
+
+https://old.reddit.com/r/worldnews/comments/1rhieoc/trump_says_irans_leader_is_dead/o7yw4g1/
+
+9 month Reddit account.
+
+https://old.reddit.com/r/worldnews/comments/1rhieoc/trump_says_irans_leader_is_dead/o7yzdd4/
+
+8 month Reddit account
+
+https://old.reddit.com/r/worldnews/comments/1rhieoc/trump_says_irans_leader_is_dead/o7yyrqe/
+
+TRUMP_FANDOM like sports gambling, which was huge in Super Bowl 2026 this month, Trump fandom does not want to REMOVE TRUMP, wants more entertainment to bet and comment upon. Media cults of Reddit prize Trump as a source of stimulation.
