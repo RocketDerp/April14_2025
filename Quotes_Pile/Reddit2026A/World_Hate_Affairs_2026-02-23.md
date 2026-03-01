@@ -570,3 +570,7 @@ https://old.reddit.com/r/politics/comments/1rhcgd2/usiran_strikes_iran_supreme_l
 
 11 month Reddit account. Top-upvoted most popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT Today is February 28 - completely avoids the February 25, 1954 teachings of Dr. Martin Luther King Jr because NOT_GOOD_ENOUGH teacher Dr. Kink. Praises worship of hate, profile on Reddit account is *hate harder* following Trump leadership of hate. Pro-ignorance, anti-intellectual hate worship.
 
+https://old.reddit.com/r/politics/comments/1rhcgd2/usiran_strikes_iran_supreme_leader_ayatollah_ali/o7xtwnm/
+
+TRUMP_FANDOM calling out on Reddit that they want to see Trump spread his power and world leadership over more nations. Cult of extreme tiny-short messages on Reddit is gullible and obedient to Trump programmed mindsets. There is no resisting Trump on Reddit, people avoiding nonfiction serious books with any substantial ideas relevant to removing Trump from office... observe the avoidance of Dr. Bandy X Lee's 27 leaders in Reddit commenting section in favor of fandom predictions. Reddit media cultists do not do Reddit blackout or call for social media uprising,as they have never had a leader in their lifetime provide so much thrilling and stimulating media content.
+
