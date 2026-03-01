@@ -126,3 +126,8 @@ What about the far larger and more serious problem of anti-intellectual pro-igno
 https://old.reddit.com/r/pics/comments/1ri16be/the_white_house_situation_room_yesterday/o82nqrx/
 
 Trump knows that SNL comedy and Twitter and Reddit monitoring is more important than the war itself. Everything is all about social media content and the Reddit fandoms.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1ri997c/trump_reacts_to_dead_service_members_by_boasting/o84dlgm/
+
+Top-voted most popular comment. See the message ending: "😆". MOCK_MOCK_MOCKERY feedback loop, mocking back and forth to Trump's entertainment leadership. Trump is an actor acting, just what the mockery fandom on Reddit prizes. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
+
