@@ -28,3 +28,9 @@ TRUMP_FANDOM top-most popular upvoted comment, describing the awesome power of T
 https://old.reddit.com/r/worldnews/comments/1rhymzb/former_iranian_president_mahmoud_ahmadinejad/o82ecwk/
 
 2nd most popular comment. Same commentary as the first. Fandom cheering on the action Reality TV situation created by Putin and Trump leadership of the world.
+
+https://old.reddit.com/r/worldnews/comments/1ri23p9/saudi_prince_quietly_lobbied_trump_for_military/o82ywn1/
+
+* "Money talks: the deep ties between Twitter and Saudi Arabia"; "Elon Musk, then senior adviser to Donald Trump, in Saudi Arabia in May."; "Saudi Arabia’s investment in Twitter increased its influence in Silicon Valley while being used at home to shut down critics of the regime" By Jacob Silverman. Thursday 9 October 2025 https://www.TheGuardian.com/technology/2025/oct/09/twitter-saudi-arabia-deep-ties-elon-musk-prince-mohammed
+
+Twitter has a huge influence on Reddit culture March 2026. Screen shots of back and forth mocking are constantly posted on Reddit /r/All front page.
