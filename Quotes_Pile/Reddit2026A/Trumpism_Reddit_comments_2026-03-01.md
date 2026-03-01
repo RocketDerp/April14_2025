@@ -25,4 +25,7 @@ These jokes do not write themselves, there is so much ignorance about the timeli
 
 *  **September 10, 2025 - "The 40-Year-Old Book That Predicted Our Dystopian Politics"** https://Time.com/7313999/neil-postman-trump-prediction/
 
-"Trump is a clown and the jokes write themselves." - Reddit comment. March 1, 2026 (Saturday Night Live). Is a complete failure to learn Russian politics and Trumpism. The CLOWNS are on Reddit commenting out of ignorance, avoiding nonfiction books on paper since year 2014! THE JOKES do not write themselves. PUTIN_SURKOV_TRUMP_LONG_TERM_YEARS_PLAN
+"Trump is a clown and the jokes write themselves." - Reddit comment. March 1, 2026 (Saturday Night Live). Is a complete failure to learn Russian politics and Trumpism. The CLOWNS are on Reddit commenting out of ignorance, avoiding relevant nonfiction books on paper since year 2014! https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ THE JOKES do not write themselves. PUTIN_SURKOV_TRUMP_LONG_TERM_YEARS_PLAN
+
+NEW_OPERA_NAME #JokesWriteThemselvesIgnorance    
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mfyzedyyzs2n https://autistics.life/@RoundSparrow/116154544405134759 }   
