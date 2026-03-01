@@ -14,3 +14,15 @@ The fire was blazing by the time year 2013 came and the  Saint Petersburg Intern
 https://old.reddit.com/r/Fauxmoi/comments/1rhpgvr/snls_colin_jost_on_iran_this_attack_might_be_a/o80k0hy/
 
 SNL comedy-washing sane-washing MAGA, Trumpism. PEOPLE_LOVE_COMEDY_MEDIA_CONTENT_MORE_THAN_PLURIBUS_HUMANISM
+
+https://old.reddit.com/r/Fauxmoi/comments/1rhpgvr/snls_colin_jost_on_iran_this_attack_might_be_a/o80jcll/
+
+<img width="1893" height="565" alt="image" src="https://github.com/user-attachments/assets/6f022749-14be-4223-be32-028c967756a7" />
+
+JOKES_WRITE_THEMSELVES_IGNORANCE_OF_SURKOV_STUDENTS POTUS_TONY_CLIFTON_IGNORANCE We the People are TRUMP_BLIND snow-blind that there is no grasp, understanding, comprehension of SURKOVIAN_CHESS. The endless mocking of 4D chess is because people will not face up to very important timelines and facts.  Trump made this video Sunday, right after he took a private jet to Moscow Russia on Friday. This was his big training acting big lesson November 8, 2013 weekend! **We The People** are not facing up that Trump is an actor who is acting, POTUS Tony Clifton character, with Surkov student screenplays. The Moscow Russia trip November 8, 2013 was to be on stage and get a performance - Friday, Saturday, Sunday - and then he posted his Twitter message Sunday night. 
+
+These jokes do not write themselves, there is so much ignorance about the timeline and labor that goes into these antics politics and Reality TV scripting! Tony Clifton is SNL origins, Andy Kaufman, Trump's home media training / television learning ground NYC! Fox News HDTV is in NYC! But Reddit media addicts are blind to Manhattan's Neil Postman lessons about electric media systems. Especially what Neil Postman wrote about 'jokes write themselves" and SNL comedy, amusement,and simulation of news "Weekend Update" on SNL! This long-term Moscow weekend planning is extreme-deep long-term SURKOV_SHUFFLE - say "President, Iran war bad" and video later shows up "President, Iran war good!", Surkov Shuffle contradictory vaudeville screenplay! Surkov won since March of year 2013. GULLIBLE_FANDOM
+
+*  **September 10, 2025 - "The 40-Year-Old Book That Predicted Our Dystopian Politics"** https://Time.com/7313999/neil-postman-trump-prediction/
+
+"Trump is a clown and the jokes write themselves." - Reddit comment. March 1, 2026 (Saturday Night Live). Is a complete failure to learn Russian politics and Trumpism. The CLOWNS are on Reddit commenting out of ignorance, avoiding nonfiction books on paper since year 2014! THE JOKES do not write themselves. PUTIN_SURKOV_TRUMP_LONG_TERM_YEARS_PLAN
