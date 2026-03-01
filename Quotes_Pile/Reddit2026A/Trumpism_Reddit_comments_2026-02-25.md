@@ -775,3 +775,7 @@ SOCIAL_MEDIA_DID_NOT call for blackouts, social media uprisings, etc. All people
 https://old.reddit.com/r/UnderReportedNews/comments/1rhfq5j/200_american_casualties_in_retaliation/o7yfhf9/
 
 https://old.reddit.com/r/UnderReportedNews/comments/1rhfq5j/200_american_casualties_in_retaliation/o7yfuf0/
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1rhgntj/november_cannot_get_here_soon_enough/o7yxa88/
+
+And this posting, "November cannot get here soon enough" is promoting the idea of waiting and waiting as people have. No cult deprogramming, no Dr. Bandy X Lee promoting. ELECTION_DAY_FIXATED_BRAIN_ROT_EVERY_DAY_FOX_NEWS_ETC
