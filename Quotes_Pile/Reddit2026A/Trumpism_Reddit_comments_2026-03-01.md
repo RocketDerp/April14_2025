@@ -80,3 +80,7 @@ https://old.reddit.com/r/politics/comments/1ri5lu6/he_could_be_impeached_donald_
 https://old.reddit.com/r/politics/comments/1ri5lu6/he_could_be_impeached_donald_trumps_base_revolts/o83om48/
 
 "I won't hold my breath. This is just, what, the 14,741st thing he's done that was impeachable, innit?" even higher than that 14K number. Alas, the problem in a democracy is not one single person. It's the society-wide cult to that one person's photographs, content creation, media messaging techniques and styles. It is the anti-intellectual attitude of We The People that is keeping Trump as the constant source of stimulating media content. BRAIN_ROT_SOCIETY_47
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1ri3hxl/_/o837kcl/
+
+MOST POPULAR upvoted comment on Reddit. A Twitter screen shot (ignorance Tweet source) with a single character Reddit posting title, on "White People Twitter" fandom subreddit. MAGA_FANDOM MUSK_FANDOM . Don't learn anything about right-wing media methods (billionaire Musk media) that are embraced now all over Reddit in March 2026. Continue to be anti-intellectual and pro-mockery. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
