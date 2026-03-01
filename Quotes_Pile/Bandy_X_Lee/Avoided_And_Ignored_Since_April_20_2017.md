@@ -23,6 +23,7 @@ https://bsky.app/profile/roundsparrow.bsky.social/post/3mfxmesdvok2i
 https://MidWest.Social/post/44075303   
 https://old.Reddit.com/r/WorldHateAffairs/comments/1rhklem/america_is_disintegrating_because_of_a/   
 https://X.com/RoundSparrow/status/2027925851103461700   
+https://www.TrustCafe.io/en/post/1772403800276-e501b7ff    
 
 "America is Disintegrating Because of a Dangerously Mentally-Disturbed President"   
 "This was Predictable and Preventable — Indeed, We Predicted It and Tried to Prevent It"   
