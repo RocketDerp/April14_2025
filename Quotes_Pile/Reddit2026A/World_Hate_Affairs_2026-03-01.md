@@ -21,3 +21,6 @@ Simple-think Twitter-length mindsets, Tweet-thinking. SURKOVIAN_ONION_EATING Eat
 NEW_OPERA_NAME #SimpleThinkUSA   
 Social post { https://autistics.life/@RoundSparrow/116154668561811049 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfz35cdlgs2k }    
 
+https://old.reddit.com/r/worldnews/comments/1rhymzb/former_iranian_president_mahmoud_ahmadinejad/o82653y/
+
+TRUMP_FANDOM top-most popular upvoted comment, describing the awesome power of Trumpism. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
