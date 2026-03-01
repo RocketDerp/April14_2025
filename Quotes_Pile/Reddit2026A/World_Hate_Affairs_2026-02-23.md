@@ -574,3 +574,6 @@ https://old.reddit.com/r/politics/comments/1rhcgd2/usiran_strikes_iran_supreme_l
 
 TRUMP_FANDOM calling out on Reddit that they want to see Trump spread his power and world leadership over more nations. Cult of extreme tiny-short messages on Reddit is gullible and obedient to Trump programmed mindsets. There is no resisting Trump on Reddit, people avoiding nonfiction serious books with any substantial ideas relevant to removing Trump from office... observe the avoidance of Dr. Bandy X Lee's 27 leaders in Reddit commenting section in favor of fandom predictions. Reddit media cultists do not do Reddit blackout or call for social media uprising,as they have never had a leader in their lifetime provide so much thrilling and stimulating media content.
 
+https://old.reddit.com/r/politics/comments/1rhcgd2/usiran_strikes_iran_supreme_leader_ayatollah_ali/o7xtw7a/
+
+Technology lovers of Reddit lust for Trump's media content to hate upon. Trump is always stimulating the media cult on Reddit. TECH_LUST_TECH_LOVERS - observe the avoidance of any serious nonfiction books on paper that teach cult deprogramming or mental health dangers of Donald Trump. Avoidance of Dr. Bandy X. Lee's nonfiction books, instead the cult media addicts on Reddit use spare time and free time celebrating the ignorance leadership of Donald Trump media content.
