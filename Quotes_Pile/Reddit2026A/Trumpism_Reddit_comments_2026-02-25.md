@@ -770,4 +770,8 @@ https://old.reddit.com/r/law/comments/1rhdi86/secretary_hegseth_announces_we_wil
 
 https://old.reddit.com/r/UnderReportedNews/comments/1rhfq5j/200_american_casualties_in_retaliation/o7yi3p1/
 
-SOCIAL_MEDIA_DID_NOT call for blackouts, social media uprisings, etc. All people do is day in day out, day and night, comment about Trump and MAGA. The Saint Petersburg Internet Research agency mind-fucked everyone and people have adopted the conditioned programming without organizing an intelligence resistnace.
+SOCIAL_MEDIA_DID_NOT call for blackouts, social media uprisings, etc. All people do is day in day out, day and night, comment about Trump and MAGA. The Saint Petersburg Internet Research agency mind-fucked everyone and people have adopted the conditioned programming without organizing an intelligence resistance. Anti-intellectual pro-mockery society since year 2013. Surkov won.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rhfq5j/200_american_casualties_in_retaliation/o7yfhf9/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rhfq5j/200_american_casualties_in_retaliation/o7yfuf0/
