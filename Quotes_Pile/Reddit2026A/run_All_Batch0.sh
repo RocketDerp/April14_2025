@@ -12,12 +12,14 @@ if [ $? -ne 0 ]; then
     exit 1
 fi
 
-./run_Pluribus0.sh
 
-if [ $? -ne 0 ]; then
-    echo "Error: The sub-script run_Pluribus0.sh failed. Exiting main script." >&2
-    exit 1
-fi
+# ./run_Pluribus0.sh
+
+# if [ $? -ne 0 ]; then
+#    echo "Error: The sub-script run_Pluribus0.sh failed. Exiting main script." >&2
+#    exit 1
+# fi
+
 
 ./run_Simulacra0.sh
 
