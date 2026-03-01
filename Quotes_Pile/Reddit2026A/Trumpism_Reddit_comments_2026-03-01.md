@@ -92,3 +92,7 @@ This entire posting on Reddit is a cheering party. IGNORANCE_CELEBRATIONS partie
 https://old.reddit.com/r/okbuddycinephile/comments/1ri0ov7/yeah_really_got_that_disabled_guy_who_got_his/o82ssso/
 
 RFK Jr. medical leadership. I see this same attitude towards autism. AUTISM_EXPERIENCE just be MAGA, just be a Trump fandom, just promote more and more ignorance and fiction! This was an awards show for FICTION, in context.
+
+https://old.reddit.com/r/okbuddycinephile/comments/1ri0ov7/yeah_really_got_that_disabled_guy_who_got_his/o82oied/
+
+I get this ALL the time on Reddit. Oh, you you have HyperLexia https://www.mcgill.ca/newsroom/channels/news/helping-children-autism-and-hyperlexia-learn-understand-what-they-read-333217 - you write like ChatGPT and provide quotes from nonfiction books. Take your medications kind of replies, or outright being called a machine. MASS_DEHUMANIZATION_POPULAR 
