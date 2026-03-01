@@ -637,3 +637,9 @@ MAGA hive mind, Reddit hive mind, similar to monomyth_vs_monomyth - all prizing 
 https://old.reddit.com/r/politics/comments/1rhd1m7/only_21_of_americans_support_the_united_states/o7xs3m3/
 
 100 PERCENT of Americans call out-groups stupid, dumb, idiots, morons, etc. People promoting anti-intellectual low-effort commenting on every media platform. Despite the OBVIOUS RAGING SOCIETY CRISIS, everyone on Reddit seems to avoid Dr. Lee. AVOIDED_DR_BANDY_X_LEE_PUBLIC_WRITINGS
+
+https://old.reddit.com/r/news/comments/1rhlqes/iran_reels_as_more_than_100_children_reportedly/o7zov59/
+
+https://old.reddit.com/r/news/comments/1rhlqes/iran_reels_as_more_than_100_children_reportedly/o7zlwxu/
+
+HATE_VS_HATE - Malala has been standing up for girls and children education and world peace - and in the timeline people flock to Trump and Putin instead. Social media users behave as if Trump is such an excellent source of entertainment. SEE_ALSO https://github.com/RocketDerp/April14_2025/main/working/PostMalala/Marriage/World_Malala_Timeline_Year_2012.md
