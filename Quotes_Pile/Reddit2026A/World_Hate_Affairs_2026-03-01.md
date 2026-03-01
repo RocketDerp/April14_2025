@@ -16,6 +16,8 @@ Simple-think Twitter-length mindsets, Tweet-thinking. SURKOVIAN_ONION_EATING Eat
 
 "Tore it up simply because Obama" - Sunday, March 1, 2026 Reddit media comment.
 
-* rick roderick
+* Texan Rick Roderick: "And we find ourselves in that space. And it draws us to people like Ross Perot who say “It’s just that simple… it’s just that simple… **it’s just that simple”. That’s the most powerful political rhetoric in a world with a postmodern trajectory**. God, how we would love it if someone could tell us anything was “just that simple”, and then of course when you see..." - Duke University. Year 1993. https://RickRoderick.org/308-baudrillard-fatal-strategies-1993/
 
-https://autistics.life/@RoundSparrow/116154668561811049
+NEW_OPERA_NAME #SimpleThinkUSA   
+Social post { https://autistics.life/@RoundSparrow/116154668561811049 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfz35cdlgs2k }    
+
