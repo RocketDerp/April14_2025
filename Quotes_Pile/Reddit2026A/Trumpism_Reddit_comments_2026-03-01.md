@@ -96,3 +96,11 @@ RFK Jr. medical leadership. I see this same attitude towards autism. AUTISM_EXPE
 https://old.reddit.com/r/okbuddycinephile/comments/1ri0ov7/yeah_really_got_that_disabled_guy_who_got_his/o82oied/
 
 I get this ALL the time on Reddit. Oh, you you have HyperLexia https://www.mcgill.ca/newsroom/channels/news/helping-children-autism-and-hyperlexia-learn-understand-what-they-read-333217 - you write like ChatGPT and provide quotes from nonfiction books. Take your medications kind of replies, or outright being called a machine. MASS_DEHUMANIZATION_POPULAR 
+
+https://old.reddit.com/r/clevercomebacks/comments/1ri35ev/no_celebration_only_grief/o8329wg/
+
+Most-upvoted popular comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING Not for me. Just because most Reddit users detach themselves from humanity in tribal fashion does not mean all of us do so. The pro-ignorance anti-goodness OUT_GROUP_HATE patterns of TOXIC_CLERGY teachings. 
+
+* "The unformulated message of an assembly of news items from every quarter of the globe is that the world today is one city. All war is civil war. All suffering is our own." - University of Toronto, Marshall McLuhan. https://en.wikiquote.org/wiki/Marshall_McLuhan
+
+* "**their neighbors**. But this passage is an extreme statement of something that is inherent in most sociologically oriented mythologies. That is to say, **love and compassion are reserved for the in-group, and aggression and abuse are projected outward on others**. Compassion is to be reserved for members of your own group. The out-group is to be treated in a way described there in Deuteronomy. **Now, today there is no out-group anymore on the planet**. And the problem of a modern religion is to have such compassion work for the whole of humanity." - Power of Myth. Published year 1988. Age 83 professor Joseph Campbell.
