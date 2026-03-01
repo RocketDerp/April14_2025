@@ -755,3 +755,7 @@ https://old.reddit.com/r/Epstein/comments/1rh9yrc/not_all_of_the_files_referenci
 https://old.reddit.com/r/Epstein/comments/1rh9yrc/not_all_of_the_files_referencing_trump_raping_a/o7xa2yc/
 
 1 month Reddit account. 3rd most upvoted popular comment. Tiny-short, not even near 140 character limit of Twitter-thinking.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rhgf3m/ill_believe_it_when_i_see_it/o7yhpjt/
+
+5 month Reddit account, most popular upvoted comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT 
