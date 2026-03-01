@@ -859,3 +859,8 @@ https://old.reddit.com/r/HistoryMemes/comments/1r7zlwl/haha_car_go_boom/
 Language teaching for Irish Defiance ;)   
 
 https://old.reddit.com/r/funny/comments/1rfegu8/the_english_teacher/
+
+&nbsp;
+
+Funeral Ritual, Wake Ritual    
+https://old.reddit.com/r/Damnthatsinteresting/comments/1rh9swm/the_lonely_funeral/

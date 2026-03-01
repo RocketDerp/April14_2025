@@ -719,3 +719,79 @@ That's because there is no serious. Nonfiction books on paper have been abandone
 https://old.reddit.com/r/politics/comments/1rh28ht/trump_79_posts_crazed_4_am_rant_right_after/o7vh9ff/
 
 If Donald Trump were injured or killed, that would cause mass mayhem and violence. And people seen celebrating his death would likely meet a very bad cult outcome. The entire world is blaming the ENTIRE USA, not just Trump, for allowing the media addictions to Reality TV celebrity to go this far. But USA addicts to Trump content think that mocking trump isn't part of Surkovian governing. Mocking Tony Clifton POTUS character is eating the onion, adding MORE MOCKING to a total mockery is not resisting a mockery! People need to STOP social media mocking. FAITH_IN_MOCKERY And SEE_ALSO https://github.com/RocketDerp/April14_2025/blob/main/Grim_Blunt/Stop_All_Entertainment.md
+
+https://old.reddit.com/r/ImmigrationPathways/comments/1rh59y5/in_2019_kamala_harris_warned_that_his_personal/o7w621d/
+
+The top-most upvoted popular comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING about how predictable all this is. Yes, Surkov student screenplays. Self-harm to USA for Putin. But Reddit fandom of Trump media content seems entirely unable to engage serious nonfiction learning on the topic. PREDICTABLE_OUTCOME
+
+https://old.reddit.com/r/ImmigrationPathways/comments/1rh59y5/in_2019_kamala_harris_warned_that_his_personal/o7w6t6v/
+
+10 month Reddit account, 2nd most popular upvoted comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT with 3 words, not even near the 140 Twitter-thinking length limit. Parroting Trump MAGA talking points about "her laugh" in highly conditioned mind patterns. Surkov won since March of year 2013.
+
+https://old.reddit.com/r/conspiracy/comments/1rh81l4/bruh/o7wt7vt/
+
+Most popular, top-upvoted. 3 words. TRUMP_FANDOM waiting for Trump images. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
+
+https://old.reddit.com/r/stevehofstetter/comments/1rh31j4/start_a_war_for_another_distraction/o7vq7qs/
+
+CALL_FOR_ACTION_TO_DO_TRIVIAL_CHANGE No call to Reddit community to have a We The People Internet uprising / intellectual moral blackout of social media. No call for Trump's removal or end to the war. Just a call to change a trivial name detail of the war killing people.
+
+https://old.reddit.com/r/pics/comments/1rhehy0/president_trump_monitors_us_military_operations/o7y3472/
+
+MEDIA_ECOLOGY_OBSERVATION TWITTER_THINK_NATION 
+
+https://old.reddit.com/r/pics/comments/1rhehy0/president_trump_monitors_us_military_operations/o7y4z6l/
+
+"LOL", "kidding". CHUCKLEHEAD_NATION - Twitter on the screen at that meeting. A bunch of Internet addicts who are fans of Internet addict leader Trump. Always avoiding nonfiction serious books: Dr.Bandy X Lee avoided.
+
+https://old.reddit.com/r/pics/comments/1rhehy0/president_trump_monitors_us_military_operations/o7y31xw/
+
+Stupid commenting that follows a leader of stupid. The followers of stupid messaging leadership. CALL_FOR_ACTION_TO_DO_TRIVIAL_CHANGE that the only concern is that Trump not wear a hat.
+
+https://old.reddit.com/r/Epstein/comments/1rh9yrc/not_all_of_the_files_referencing_trump_raping_a/o7x7i5y/
+
+"insane"
+
+https://old.reddit.com/r/Epstein/comments/1rh9yrc/not_all_of_the_files_referencing_trump_raping_a/o7xa2yc/
+
+1 month Reddit account. 3rd most upvoted popular comment. Tiny-short, not even near 140 character limit of Twitter-thinking.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rhgf3m/ill_believe_it_when_i_see_it/o7yhpjt/
+
+5 month Reddit account, most popular upvoted comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT 
+
+https://old.reddit.com/r/law/comments/1rhdi86/secretary_hegseth_announces_we_will_be_halting/o7y3i5m/
+
+Top-upvoted popular comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
+
+https://old.reddit.com/r/law/comments/1rhdi86/secretary_hegseth_announces_we_will_be_halting/o7xy32k/
+
+7 month Reddit account. "LOL". BANAL_WASH_LAUGH_TRACK
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rhfq5j/200_american_casualties_in_retaliation/o7yi3p1/
+
+SOCIAL_MEDIA_DID_NOT call for blackouts, social media uprisings, etc. All people do is day in day out, day and night, comment about Trump and MAGA. The Saint Petersburg Internet Research agency mind-fucked everyone and people have adopted the conditioned programming without organizing an intelligence resistance. Anti-intellectual pro-mockery society since year 2013. Surkov won.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rhfq5j/200_american_casualties_in_retaliation/o7yfhf9/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rhfq5j/200_american_casualties_in_retaliation/o7yfuf0/
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1rhgntj/november_cannot_get_here_soon_enough/o7yxa88/
+
+And this posting, "November cannot get here soon enough" is promoting the idea of waiting and waiting as people have. No cult deprogramming, no Dr. Bandy X Lee promoting. ELECTION_DAY_FIXATED_BRAIN_ROT_EVERY_DAY_FOX_NEWS_ETC
+
+https://old.reddit.com/r/Fauxmoi/comments/1rhkzgr/sterling_k_brown_at_the_naacp_image_awards_we_are/o7zge57/
+
+https://old.reddit.com/r/Fauxmoi/comments/1rhkzgr/sterling_k_brown_at_the_naacp_image_awards_we_are/o7zln41/
+
+https://old.reddit.com/r/Fauxmoi/comments/1rhkzgr/sterling_k_brown_at_the_naacp_image_awards_we_are/o7ztcyv/
+
+https://old.reddit.com/r/politics/comments/1rhf879/former_vice_president_kamala_harris_i/o7yx8wd/
+
+https://old.reddit.com/r/politics/comments/1rhf879/former_vice_president_kamala_harris_i/o7y9fb7/
+
+https://old.reddit.com/r/politics/comments/1rhf879/former_vice_president_kamala_harris_i/o7ydk1b/
+
+"It is all just so depressing, the reality we have now, and it never needed to be this way!" she didn't stand up to the brain rot of low-effort voting upvotes of comments. The Saint Petersburg Internet Research Agency have people favor shit on EVERY topic, not just traditional politics. Shit-posting shit-commenting. We got rid of Trump for 4 years, and it kept getting worse. ATTRACTION_TO_SHIT_CONTENT_ENSHIT_BY_DESIRE People DESIRE Trump content with self-awareness they are cheering on machines doing high-speed delivery of Trump shit.
+
+

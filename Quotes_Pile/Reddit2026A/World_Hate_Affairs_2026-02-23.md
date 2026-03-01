@@ -448,7 +448,7 @@ Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mfwekt736k
 
 https://old.reddit.com/r/interestingasfuck/comments/1rgxu95/he_is_weak_and_ineffective/
 
-Posting, not comment.  The user who posted this posting to the front page of /r/All is a 1 month Reddit account. https://old.reddit.com/user/yousefthewisee They do not even have a verified e-mail address, zero trophy on Reddit account. They are moderator of https://old.reddit.com/r/Egyptic/ - and the ONLY history of posting and comments shows: https://old.reddit.com/user/yousefthewisee/comments/1qqlrzo/%D8%A7%D9%84%D8%B5%D8%A8_%D8%A8%D8%AA%D8%A7%D8%B9%D9%8A/
+Posting, not comment.  The user who posted this posting to the front page of /r/All is a 1 month Reddit account. https://old.reddit.com/user/yousefthewisee They do not even have a verified e-mail address, zero trophy on Reddit account. They are moderator of https://old.reddit.com/r/Egyptic/ - and the ONLY history of posting and comments shows: https://old.reddit.com/user/yousefthewisee/comments/1qqlrzo/%D8%A7%D9%84%D8%B5%D8%A8_%D8%A8%D8%AA%D8%A7%D8%B9%D9%8A/ posting (does hidden profile still show a pinned post on Old Reddit?)
 
 https://old.reddit.com/r/interestingasfuck/comments/1rgxu95/he_is_weak_and_ineffective/o7uqfly/
 
@@ -474,7 +474,7 @@ https://old.reddit.com/r/TrueAnon/comments/1rh0u5p/the_deputy_governor_of_hormoz
 
 https://old.reddit.com/r/Fauxmoi/comments/1rh3t7t/the_zionist_regime_and_the_us_have_killed_51/
 
-https://old.reddit.com/user/Tuturey 4 month Reddit account got this posting to the front page. Has a concealed Reddit profile that will not show their post or comment history. REDDIT_FRONT_PAGE_YOUNG_ACCOUNT
+This user https://old.reddit.com/user/Tuturey 4 month Reddit account got this posting to the front page. Has a concealed Reddit profile that will not show their post or comment history. REDDIT_FRONT_PAGE_YOUNG_ACCOUNT
 
 https://old.reddit.com/r/Fauxmoi/comments/1rh3t7t/the_zionist_regime_and_the_us_have_killed_51/o7vyaux/
 
@@ -507,3 +507,166 @@ https://old.reddit.com/r/Music/comments/1rh5spv/jack_white_on_trumps_bombing_of_
 https://old.reddit.com/r/Music/comments/1rh5spv/jack_white_on_trumps_bombing_of_iran_behold_the/o7wcs0j/
 
 That's what TRUMP_FANDOM does, MEDIA_MANIA of repeating and parroting Trump-speak over and over. It is a cult. SOCIAL_CULT_HATE_WATCHING_FANDOM
+
+https://old.reddit.com/r/news/comments/1rh5cho/iran_strikes_us_military_bases_in_qatar_kuwait/o7wnm52/
+
+The most popular Reddit comment, the most upvoted. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING It is Donald Trump who created the topic, "Board of Peace", and Reddit community keeps repeating Trump with extreme-short chanting messages. This is not resisting, this is a Trump parroting cult of media systems.
+
+https://old.reddit.com/r/news/comments/1rh5cho/iran_strikes_us_military_bases_in_qatar_kuwait/o7w6yw9/
+
+For the love of god, why isn't social media having an uprising? Play by play reaction commenting is in no way resisting the media events Trump keeps creating on any and every topic day and night. REDDIT_BLACKOUT - why isn't Reddit doing a blackout protest? Like has been done before... ANSWER: We The People can't think outside the commenting box calling for Congress and stand up on social media and all get on the same page: Dr. Bandy X Lee's October 3, 2017 nonfiction book.
+
+https://old.reddit.com/r/circled/comments/1rh5gkl/the_palm_hotel_in_dubai_hit_by_iranian_missile/o7wmwzm/
+
+LEVANT_MONOMYTH_CRISIS  February 28, 1954 ignored on WikiQuotes. Not Good Enough to turn to MLK Jr today on February 28.
+
+https://old.reddit.com/r/circled/comments/1rh5gkl/the_palm_hotel_in_dubai_hit_by_iranian_missile/o7weie1/
+
+People would rather make low-effort comments on machines over and over than turn to Dr. Bandy X Lee's nonfiction book published October 3, 2017. How many years ago was that...https://en.wikipedia.org/wiki/The_Dangerous_Case_of_Donald_Trump and why do Reddit comment creators avoid it day after day since year 2017? Because a woman organized 27 people to follow... and people rather comment about Trump than learn nonfiction and repeat it to address MAGA misunderstandings.
+
+https://old.reddit.com/r/circled/comments/1rh5gkl/the_palm_hotel_in_dubai_hit_by_iranian_missile/o7w7fls/
+
+How much more black and white and clear could it be with Trump and Putin? PUTIN_SURKOV_TRUMP_LONG_TERM_YEARS_PLAN And people can't even connect October 7, 2023 to being Putin's birthday.
+
+https://old.reddit.com/r/therewasanattempt/comments/1rh8i7h/to_make_it_look_iran_is_the_real_danger/o7wuvsy/
+
+https://old.reddit.com/r/therewasanattempt/comments/1rh8i7h/to_make_it_look_iran_is_the_real_danger/o7ww5pr/
+
+February 28 today. NOT_GOOD_ENOUGH MLK Jr February 28, 1954. HATE_HARDER is the machine-lovers answer to hate, always more hate, always adding more and more hate.
+
+https://old.reddit.com/r/worldnews/comments/1rhbvdu/iranian_leader_khamenei_killed_in_strike_israeli/o7xkelr/
+
+https://old.reddit.com/r/worldnews/comments/1rhbvdu/iranian_leader_khamenei_killed_in_strike_israeli/o7xl6jx/
+
+https://old.reddit.com/r/worldnews/comments/1rhbvdu/iranian_leader_khamenei_killed_in_strike_israeli/o7xj3ys/
+
+https://old.reddit.com/r/worldnews/comments/1rhbvdu/iranian_leader_khamenei_killed_in_strike_israeli/o7xqaeh/
+
+The best day in a person's life is military killing a death. Anti-goodness. Not winning a person over to goodness, but splattering their brain.
+
+https://old.reddit.com/r/worldnews/comments/1rhbvdu/iranian_leader_khamenei_killed_in_strike_israeli/o7xkhdv/
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1rh6wgo/petah_quagmire/o7whqo3/
+
+Affairs of hating humans.
+
+https://old.reddit.com/r/TrendoraX/comments/1rha7ol/greatest_threat_to_the_world/o7xg17f/
+
+The most popular upvoted comment. "then you get older and realize how much chaos just gets normalized if it’s wrapped in the right language"
+
+1. Wrapped in the latest Internet memes
+
+2. Wrapped in clickbait headline titles like the one created by Reddit low-information upvoters. "Greatest Threat to the World" non-specific generic.
+
+3. Is that Jason Hickel a Twitter, Elon Musk platform, screenshot on Reddit?
+
+SUPER_HYPER_NORMAL via Reddit. No-identity anti-intellectual anti-book, avoiding relevant nonfiction books on paper. October 3, 2017 about the DANGER of Donald Trump by Bandy X Lee with 27 people... but NOT_GOOD_ENOUGH for Reddit commenting creators to quote and link over and over.
+
+https://old.reddit.com/r/TrendoraX/comments/1rha7ol/greatest_threat_to_the_world/o7xbdsr/
+
+White promoting media addiction, Trump promoting celebration of ignorance, Trump promoting Twitter-think brain rot. Promoting the avoidance of nonfiction serious relevant books on paper.
+
+https://old.reddit.com/r/politics/comments/1rhcgd2/usiran_strikes_iran_supreme_leader_ayatollah_ali/o7xpmbw/
+
+11 month Reddit account. Top-upvoted most popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT Today is February 28 - completely avoids the February 25, 1954 teachings of Dr. Martin Luther King Jr because NOT_GOOD_ENOUGH teacher Dr. Kink. Praises worship of hate, profile on Reddit account is *hate harder* following Trump leadership of hate. Pro-ignorance, anti-intellectual hate worship.
+
+https://old.reddit.com/r/politics/comments/1rhcgd2/usiran_strikes_iran_supreme_leader_ayatollah_ali/o7xtwnm/
+
+TRUMP_FANDOM calling out on Reddit that they want to see Trump spread his power and world leadership over more nations. Cult of extreme tiny-short messages on Reddit is gullible and obedient to Trump programmed mindsets. There is no resisting Trump on Reddit, people avoiding nonfiction serious books with any substantial ideas relevant to removing Trump from office... observe the avoidance of Dr. Bandy X Lee's 27 leaders in Reddit commenting section in favor of fandom predictions. Reddit media cultists do not do Reddit blackout or call for social media uprising,as they have never had a leader in their lifetime provide so much thrilling and stimulating media content.
+
+https://old.reddit.com/r/politics/comments/1rhcgd2/usiran_strikes_iran_supreme_leader_ayatollah_ali/o7xtw7a/
+
+Technology lovers of Reddit lust for Trump's media content to hate upon. Trump is always stimulating the media cult on Reddit. TECH_LUST_TECH_LOVERS - observe the avoidance of any serious nonfiction books on paper that teach cult deprogramming or mental health dangers of Donald Trump. Avoidance of Dr. Bandy X. Lee's nonfiction books, instead the cult media addicts on Reddit use spare time and free time celebrating the ignorance leadership of Donald Trump media content.
+
+https://old.reddit.com/r/politics/comments/1rhcgd2/usiran_strikes_iran_supreme_leader_ayatollah_ali/o7xxtfc/
+
+Great for February 28. All war in all places is bad. People spend way too much time praising bad and teaching children to behave bad or worse than their parents. February 28 today.
+
+* "The trouble isn’t so much that we don’t know enough, but it’s as if we aren’t good enough. The trouble isn’t so much that our scientific genius lags behind, but **our moral genius lags behind**. (Well) The great problem facing modern man is that, that the means by which we live, (Help him God) have outdistanced the spiritual ends for which we live. (That’s right) So we find ourselves caught in a messed-up world. (Well) The problem is with man himself and man’s soul. **We haven’t learned how to be just and honest and kind and true and loving. And that is the basis of our problem**. The real problem is that through our scientific genius we’ve made of the world a neighborhood, but through our moral and spiritual genius we’ve failed to make of it a brotherhood. (Lord have mercy) And the great danger facing us today is not so much the atomic bomb that was created by physical science. Not so much that atomic bomb that you can put in an aeroplane and drop on the heads of hundreds and thousands of people — as dangerous as that is. But **the real danger confronting civilization today is that atomic bomb which lies in the hearts and souls of men, (Lord have mercy) capable of exploding into the vilest of hate and into the most damaging selfishness**." - February 28, 1954. https://kinginstitute.stanford.edu/king-papers/documents/rediscovering-lost-values-0
+
+https://old.reddit.com/r/news/comments/1rhfnn3/iran_reportedly_closes_strait_of_hormuz_oil_and/o7yc2hd/
+
+HATE_MOTIVATED_ECONOMY_HATE_AS_A_VIRTUE_SIGNALING
+
+https://old.reddit.com/r/worldnews/comments/1rhieoc/trump_says_irans_leader_is_dead/o7z3cd8/
+
+https://old.reddit.com/r/worldnews/comments/1rhieoc/trump_says_irans_leader_is_dead/o7yw4g1/
+
+9 month Reddit account.
+
+https://old.reddit.com/r/worldnews/comments/1rhieoc/trump_says_irans_leader_is_dead/o7yzdd4/
+
+8 month Reddit account
+
+https://old.reddit.com/r/worldnews/comments/1rhieoc/trump_says_irans_leader_is_dead/o7yyrqe/
+
+TRUMP_FANDOM like sports gambling, which was huge in Super Bowl 2026 this month, Trump fandom does not want to REMOVE TRUMP, wants more entertainment to bet and comment upon. Media cults of Reddit prize Trump as a source of stimulation.
+
+https://old.reddit.com/r/worldnews/comments/1rh9jdm/rworldnews_discussion_thread_us_and_israel_launch/o7z5p0i/
+
+https://old.reddit.com/r/worldnews/comments/1rhiubo/iran_says_us_and_israel_strikes_hit_school/o7z1wng/
+
+https://old.reddit.com/r/worldnews/comments/1rhiubo/iran_says_us_and_israel_strikes_hit_school/o7z10f3/
+
+https://old.reddit.com/r/Fauxmoi/comments/1rhhtey/ms_rachel_posts_on_instagram_stop_killing_kids/o7z0wwo/
+
+1 month Reddit account. Top upvoted most popular. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+
+https://old.reddit.com/r/worldnews/comments/1rhkfgy/iranian_state_media_say_countrys_supreme_leader/o7zbvf9/
+
+Audience mindset. top-upvoted most popular comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
+
+https://old.reddit.com/r/worldnews/comments/1rhkfgy/iranian_state_media_say_countrys_supreme_leader/o7zc0v3/
+
+Entertained and amused Reddit fandom of Trumpism. FOLLOWERS_OF_LEADER_TRUMP_ACTOR_ENTERTAINER_DONALD_TRUMP_FOLLOWERS
+
+https://old.reddit.com/r/worldnews/comments/1rhkfgy/iranian_state_media_say_countrys_supreme_leader/o7zc1cs/
+
+https://old.reddit.com/r/worldnews/comments/1rhkfgy/iranian_state_media_say_countrys_supreme_leader/o7zdgl4/
+
+https://old.reddit.com/r/worldnews/comments/1rhkfgy/iranian_state_media_say_countrys_supreme_leader/o7zd97v/
+
+https://old.reddit.com/r/politics/comments/1rhd1m7/only_21_of_americans_support_the_united_states/o7xtr9r/
+
+Trump leads with hate leadership, everyone in USA is following hate. PRIZING_HATE_FURTHERING_HATE It is February 28 today, and one thing I've seen since Trump became center of all media systems focus nearly 11 years ago is the avoidance of Dr. Martin Luther King Jr's Sunday February 28, 1954 speech in Detroit, Michigan.
+
+https://old.reddit.com/r/politics/comments/1rhd1m7/only_21_of_americans_support_the_united_states/o7xxe1k/
+
+MAGA hive mind, Reddit hive mind, similar to monomyth_vs_monomyth - all prizing hate.
+
+https://old.reddit.com/r/politics/comments/1rhd1m7/only_21_of_americans_support_the_united_states/o7xs3m3/
+
+100 PERCENT of Americans call out-groups stupid, dumb, idiots, morons, etc. People promoting anti-intellectual low-effort commenting on every media platform. Despite the OBVIOUS RAGING SOCIETY CRISIS, everyone on Reddit seems to avoid Dr. Lee. AVOIDED_DR_BANDY_X_LEE_PUBLIC_WRITINGS
+
+https://old.reddit.com/r/news/comments/1rhlqes/iran_reels_as_more_than_100_children_reportedly/o7zov59/
+
+https://old.reddit.com/r/news/comments/1rhlqes/iran_reels_as_more_than_100_children_reportedly/o7zlwxu/
+
+HATE_VS_HATE - Malala has been standing up for girls and children education and world peace - and in the timeline people flock to Trump and Putin instead. Social media users behave as if Trump is such an excellent source of entertainment. SEE_ALSO https://github.com/RocketDerp/April14_2025/main/working/PostMalala/Marriage/World_Malala_Timeline_Year_2012.md
+
+https://old.reddit.com/r/news/comments/1rhlqes/iran_reels_as_more_than_100_children_reportedly/o7zpcfc/
+
+https://old.reddit.com/r/news/comments/1rhlqes/iran_reels_as_more_than_100_children_reportedly/o7zlyj5/
+
+5 month Reddit account.
+
+https://old.reddit.com/r/worldnews/comments/1rhmr0j/irgc_says_most_intense_operation_against_israel/o7zxchg/
+
+Top-most popular comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING Trump fandom wanting images.
+
+https://old.reddit.com/r/worldnews/comments/1rhmr0j/irgc_says_most_intense_operation_against_israel/o7ztocj/
+
+https://old.reddit.com/r/worldnews/comments/1rhmr0j/irgc_says_most_intense_operation_against_israel/o7zvaad/
+
+https://old.reddit.com/r/worldnews/comments/1rhmr0j/irgc_says_most_intense_operation_against_israel/o7zwuxg/
+
+https://old.reddit.com/r/worldnews/comments/1rhmr0j/irgc_says_most_intense_operation_against_israel/o7zu9yl/
+
+10 month Reddit account. Trump + Israel fandom cheering on.
+
+https://old.reddit.com/r/worldnews/comments/1rhmr0j/irgc_says_most_intense_operation_against_israel/o7zyxqj/
+
+https://old.reddit.com/r/worldnews/comments/1rhmr0j/irgc_says_most_intense_operation_against_israel/o7zv1x9/
+
+https://old.reddit.com/r/worldnews/comments/1rhmr0j/irgc_says_most_intense_operation_against_israel/o7zwk6a/
+
