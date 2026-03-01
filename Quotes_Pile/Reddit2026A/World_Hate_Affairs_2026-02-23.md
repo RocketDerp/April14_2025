@@ -643,3 +643,9 @@ https://old.reddit.com/r/news/comments/1rhlqes/iran_reels_as_more_than_100_child
 https://old.reddit.com/r/news/comments/1rhlqes/iran_reels_as_more_than_100_children_reportedly/o7zlwxu/
 
 HATE_VS_HATE - Malala has been standing up for girls and children education and world peace - and in the timeline people flock to Trump and Putin instead. Social media users behave as if Trump is such an excellent source of entertainment. SEE_ALSO https://github.com/RocketDerp/April14_2025/main/working/PostMalala/Marriage/World_Malala_Timeline_Year_2012.md
+
+https://old.reddit.com/r/news/comments/1rhlqes/iran_reels_as_more_than_100_children_reportedly/o7zpcfc/
+
+https://old.reddit.com/r/news/comments/1rhlqes/iran_reels_as_more_than_100_children_reportedly/o7zlyj5/
+
+5 month Reddit account.
