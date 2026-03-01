@@ -29,3 +29,7 @@ These jokes do not write themselves, there is so much ignorance about the timeli
 
 NEW_OPERA_NAME #JokesWriteThemselvesIgnorance    
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mfyzedyyzs2n https://autistics.life/@RoundSparrow/116154544405134759 }   
+
+https://old.reddit.com/r/Fauxmoi/comments/1rhpgvr/snls_colin_jost_on_iran_this_attack_might_be_a/o80dd36/
+
+AMUSING_ZOMBIES mind-blown by Trump actions and contents. Meme stupor audience. Neil Postman was correct in NYU book year 1985 / NYC about SNL framing of amusing news.
