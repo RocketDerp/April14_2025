@@ -135,3 +135,12 @@ https://old.reddit.com/r/PublicFreakout/comments/1ri9bol/trump_there_will_likely
 
 Top-upvoted most popular comment. The Reddit fandom of Trump hangs on his every word, gesture, utterance, photograph, video. Every little trivial word-choice or style that Trump shows, most popular comment. CALL_FOR_ACTION_TO_DO_TRIVIAL_CHANGE and observe, absence of calls to remove Trump from office, because on Reddit Trump is a constant center of attention and mockery anti-intellectual leadership for Reddit followers.
 
+https://old.reddit.com/r/Epstein/comments/1rhrcju/epstein_said_if_trump_was_cornered_as_a_rat_hed/o80wv1v/
+
+EPSTEIN_FANDOM on Reddit. Always avoiding calling for people to follow and get behind the leadership of Dr. Bandy X Lee since year 2017... as Trump provides such thrilling and stimulating media content.
+
+https://old.reddit.com/r/Epstein/comments/1rhrcju/epstein_said_if_trump_was_cornered_as_a_rat_hed/o80qaaa/
+
+https://old.reddit.com/r/Epstein/comments/1rhrcju/epstein_said_if_trump_was_cornered_as_a_rat_hed/o80rup7/
+
+Where is the REDDIT_BLACKOUT ? Why are Reddit comment creators always shit-posting and shit-commenting and not quoting Dr. Bandy X Lee's assembly of 27 doctors about Trump's mental health since year 2017? But Reddit community can't stop shit-commenting about celebrity actor Trump. ATTRACTION_TO_SHIT_CONTENT_ENSHIT_BY_DESIRE
