@@ -8,6 +8,14 @@ https://old.reddit.com/r/UnderReportedNews/comments/1rhvkya/putin_says_iran_has_
 
 https://old.reddit.com/r/UnderReportedNews/comments/1rhvkya/putin_says_iran_has_fulfilled_its_commitments_but/o81tsdw/
 
+<img width="1404" height="402" alt="image" src="https://github.com/user-attachments/assets/f8d9b523-d0e4-442a-9ba8-cce99c9e0bfe" />
+
 Simple-think Twitter-length mindsets, Tweet-thinking. SURKOVIAN_ONION_EATING Eating the Onion that Trump is acting strictly out of USA vs. USA (Trump vs. Obama) motivations. Falling for the POTUS Tony Clifton act hook, line, and sinker on Reddit. POTUS_TONY_CLIFTON_IGNORANCE All the signs of MULTIPLE NATO nations, and British exiting the EU, isn't tied to "Obama" motivation. CONTEXT_ASSERTION all these things since year 2012 have one thing in common: Russia. Social media. Media systems. Russia Today media. Information warfare.
 
 * "Researchers at the University of Edinburgh identified 419 accounts operating from the Russian Internet Research Agency (IRA) attempting to influence UK politics out of 2,752 accounts suspended by Twitter in the US."; "A day later, he tweeted: “I’m on The Sun! Thank you again, British libs! Now I’m even more famous!” Damian Collins, the chairman of the Commons culture, media and sport select committee, which is investigating fake news, said the Russian agency appeared to be attempting to divide society and destabilise politics." "Twitter told the House committee that it had suspended 2,752 accounts which were tweeting about the US election because it believed they were controlled from Russia. The committee said it **“may well be just the tip of the iceberg”**. Hundreds of paid bloggers work round the clock at the IRA to flood Russian internet forums, social networks and the comments sections of western publications – sowing disinformation, praising the country’s president, Vladimir Putin, and raging at the west." - https://www.theguardian.com/world/2017/nov/14/how-400-russia-run-fake-accounts-posted-bogus-brexit-tweets
+
+"Tore it up simply because Obama" - Sunday, March 1, 2026 Reddit media comment.
+
+* rick roderick
+
+https://autistics.life/@RoundSparrow/116154668561811049
