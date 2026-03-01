@@ -24,3 +24,7 @@ Social post { https://autistics.life/@RoundSparrow/116154668561811049 https://bs
 https://old.reddit.com/r/worldnews/comments/1rhymzb/former_iranian_president_mahmoud_ahmadinejad/o82653y/
 
 TRUMP_FANDOM top-most popular upvoted comment, describing the awesome power of Trumpism. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
+
+https://old.reddit.com/r/worldnews/comments/1rhymzb/former_iranian_president_mahmoud_ahmadinejad/o82ecwk/
+
+2nd most popular comment. Same commentary as the first. Fandom cheering on the action Reality TV situation created by Putin and Trump leadership of the world.
