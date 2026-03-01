@@ -67,3 +67,6 @@ https://old.reddit.com/r/clevercomebacks/comments/1ri35ev/no_celebration_only_gr
 
 2 month Reddit account. Extremely simplistic, no-detail, generic message, nothing specific. It is a wildcard statement, people will agree with it for hundreds or thousands of different reasons. Very popular to comment this way and not cite the reasons. One of the huge  reasons: tiny-short reactionary mindsets are a huge crisis with high-speed Twitter-like Tweet-thinking patterns.
 
+https://old.reddit.com/r/UnderReportedNews/comments/1ri9sbd/trump_issues_statement_on_dead_soldiers_killed_by/o84gyw7/
+
+For the nation of Twitter-think reaction-commenting Reddit, Bluesky audiences and TRUMP_FANDOM of hate leadership. Year after yer, people on social media systems AVOIDING Dr. Bandy X Lee's year 2007 book. MOCK_MOCK_MOCKERY explained here: SEE_ALSO https://www.IndraJāla.com/brave-new-world/mock-mock-mockery
