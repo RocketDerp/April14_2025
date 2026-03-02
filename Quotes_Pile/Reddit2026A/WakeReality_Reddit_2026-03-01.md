@@ -9,3 +9,7 @@ not my comment, but Wake Reality media ecology... CONTEXT_BEWILDERMENT or meanin
 https://old.reddit.com/r/jamesjoyce/comments/1rgszvb/i_swear_the_play_of_the_king_in_yellow_from_the/o82rtq3/
 
 My comment.
+
+https://old.reddit.com/r/jamesjoyce/comments/1renl91/why_do_most_copies_of_finnegans_wake_start_on/o88oihi/
+
+My comment.
