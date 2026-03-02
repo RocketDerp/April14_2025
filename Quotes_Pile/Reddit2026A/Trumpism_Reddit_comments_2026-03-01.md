@@ -201,3 +201,7 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1ribuln/nbc_asks_why_iran_d
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1ribuln/nbc_asks_why_iran_defends_itself/o84vquq/
 
 Audiences seek out shit-postings, shit-commenting, shit-content since year 2013. ATTRACTION_TO_SHIT_CONTENT_ENSHIT_BY_DESIRE - why are Reddit users not commenting about the avoidance of Dr. Bandy X Lee's nonfiction book with 27 people?
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1ribuln/nbc_asks_why_iran_defends_itself/o84z4y9/
+
+BRAIN_ROT_SOCIETY_47 it wasn't always this way. Cambridge Analytica and the Saint Petersburg Internet Research Agency did a number on hearts and minds to avoid serious nonfiction books on paper. People instead just comment over and over how { dumb, stupid, idiot, morn } other people are without thinking that maybe high-speed information reactionary commenting isn't what you should drown serious important nonfiction books with...
