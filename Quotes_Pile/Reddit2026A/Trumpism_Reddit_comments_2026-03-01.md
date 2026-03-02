@@ -426,3 +426,7 @@ Top upvoted most popular comment. 4 fucking words, a social media "engagement qu
 https://old.reddit.com/r/Fauxmoi/comments/1rixcu6/mark_ruffalo_applauds_aocs_threats_to_move/o894t3q/
 
 The 2nd most-upvoted low-information popular comment. TRUMP_FANDOM media cult saying how they love actors like Donald Trump! Actor love and adoring how actors speak and behave is MAGA_VALUES of ignorance. This very Reddit comment is a celebration of Trump ignorance. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
+
+https://old.reddit.com/r/Fauxmoi/comments/1rixcu6/mark_ruffalo_applauds_aocs_threats_to_move/o8978jz/
+
+3rd most popular upvoted Reddit comment. Message to USA society from Reddit messaging system: "I'm tempering my hopes on this as we've seen how effective the last 2 impeachments were." - don't stand up, don't organize, don't use Reddit media to call for impeachment, do what Reddit community has done all along since June 16, 2015 - be a fandom and comment about what Trump and MAGA is leading and don't actually stand up as WE THE PEOPLE and ASSEMBLE as a GROUP against Trump. SOCIAL_MEDIA_DID_NOT_HAVE_UPRISING_SUSTAINED_FOCUSED
