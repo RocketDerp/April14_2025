@@ -389,7 +389,7 @@ https://old.reddit.com/r/politics/comments/1rii63x/trump_should_be_impeached_rem
 BRAIN_ROT_SOCIETY_47 the /r/MurderedByWords is simulation. The REAL murder by words would be Low Sparks of High Heeled Boys by Traffic being posted MORE_THAN_EPSTEIN_NAME_DROPS ... OPERA_A https://www.youtube.com/watch?v=RziQ-kZdVJU 8,715 views March 17, 2013 Murdered by Lyrics. "But today **you just read** that the man was shot dead by a gun that didn't make any noise" - Were were Children Once playing with low-effort memes! The percentage you are paying on trade war is too high price...
 
 NEW_OPERA_NAME #FuckingBalls   
-Social post { https://autistics.life/@RoundSparrow/116160021841448351 https://bsky.app/profile/roundsparrow.bsky.social/post/3mg3hale5vc2y }    
+Social post { https://autistics.life/@RoundSparrow/116160021841448351 https://bsky.app/profile/roundsparrow.bsky.social/post/3mg3hale5vc2y https://x.com/RoundSparrow/status/2028478679169568867 }    
 
 NEW_OPERA_NAME #AnotherChanceOpera #WouldYouAsk       
-Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mg3hkbavtc27  https://autistics.life/@RoundSparrow/116160040043581009 }    
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mg3hkbavtc27  https://autistics.life/@RoundSparrow/116160040043581009 https://x.com/RoundSparrow/status/2028479475755921526 }    
