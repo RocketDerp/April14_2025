@@ -46,6 +46,8 @@ https://old.reddit.com/r/jamesjoyce/comments/1renl91/why_do_most_copies_of_finne
 
 My reply, verbose and blunt.
 
+I have edited the opening paragraph since first creation and local save capture of comment, now reads: "yes, of course. What the British / London empire was doing to Ireland was horrible enough, the Roman / Italians / Vatican were the worst of all to Irishmen and women! Living under such oppression, it's horrible! The bullshit and lies the clergy uses to enslave the minds of readers and thinkers. Dublin in 1906 was as terrible and bad as USA in North America is in year 2026 in terms of Bible story cult readers and their Church venue, clergy performers!"
+
 https://old.reddit.com/r/a:t5_3jubo/comments/1riwqvy/t5_3jubo_monday_april_3_2017_bible_verse_romans/o88xzty/
 
 Reddit systems remove subReddits it deems unworthy of preserving and conceals the database key of the subreddit name. NEW_ARG_PRIMARY_KEY t5_3jubo key in this case. So I decided to Romans 11:33 (Romans 11:32 ++) up the Reddit (Finnegans) Wake Reality places. ROMANS_11_32_PLUS_PLUS 
