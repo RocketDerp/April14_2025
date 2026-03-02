@@ -488,3 +488,7 @@ https://old.reddit.com/r/pics/comments/1rj4wzy/trump_was_spotted_with_a_large_re
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1rj07hw/trump_has_a_new_rashlike_injury_on_his_neck_today/o89osec/
 
 4 month Reddit account. Top most upvoted popular comment.REDDIT_TOP_COMMENT_YOUNG_ACCOUNT  Repeating Trump mindsets, as programmed by billionaire media systems. Trump-thinking. Reddit cult of Trump. DO_YOU_SPEAK_FOX_NEWS_Y2020
+
+https://old.reddit.com/r/news/comments/1rj5ol3/six_us_service_members_killed_in_iran_conflict_us/o8atksn/
+
+Top most-popular upvoted comment. ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING
