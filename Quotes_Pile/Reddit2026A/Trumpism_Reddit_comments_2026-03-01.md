@@ -483,4 +483,5 @@ https://old.reddit.com/r/pics/comments/1rj4wzy/trump_was_spotted_with_a_large_re
 
 Top-most upvoted popular comment. TRUMP_FANDOM cult image on front page of Reddit media cult venue. The comment repeating the MAGA talking points, as programmed by billionaire media systems. This comment in no way is resisting Trump values of media usage, anti-intellectual, pro-ignorance.
 
+https://old.reddit.com/r/pics/comments/1rj4wzy/trump_was_spotted_with_a_large_red_rash_on_his/o8asgb6/
 
