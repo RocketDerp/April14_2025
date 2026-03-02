@@ -105,3 +105,9 @@ https://old.reddit.com/r/worldnews/comments/1ria0mz/uk_will_allow_us_to_use_base
 
 https://old.reddit.com/r/worldnews/comments/1ria0mz/uk_will_allow_us_to_use_bases_to_strike_iranian/o84xvoq/
 
+https://old.reddit.com/r/clevercomebacks/comments/1ripjeb/while_the_bombs_fall_in_dubai/o87jm8q/
+
+IGNORANCE_CELEBRATIONS Reddit fandoms of ignorance leaders of Iran and USA both cheering on how awesome war and ignorance are for images and fantasy. No desire to cult deprogram Andrew Tate media cult followers and Donald Trump media cult followers, because Reddit is a media cult venue of fandoms. DEATH_CULT anti-education anti-learning anti-progress that GUN_WORSHIP weapon-systems worshipers.
+
+
+
