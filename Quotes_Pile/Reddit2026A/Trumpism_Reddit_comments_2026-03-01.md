@@ -329,3 +329,7 @@ https://old.reddit.com/r/politics/comments/1rii63x/trump_should_be_impeached_rem
 https://old.reddit.com/r/politics/comments/1rii63x/trump_should_be_impeached_removed_from_office_for/o8698w3/
 
 No concern as to WHY the situation is this way. 140 character or less Twitter-think comments. Brain rot ahoy. ROUTINE_NO_NEED_TO_RESIST_OR_ORGANIZE_INTELLECTUAL_UPRISING
+
+https://old.reddit.com/r/politics/comments/1rii63x/trump_should_be_impeached_removed_from_office_for/o86krxs/
+
+Brain rot commenting on Reddit sure works. Why not keep making more and more and more brain rot low-effort low-information upvoting and commenting on Reddit! Drown out all serious relevant  nonfiction books with brain-rot commenting! BRAIN_ROT_SOCIETY_47 Reddit community does not want to learn WHY Elon Musk purchased brain rot programming Twitter for all that money, and WHY Rupert Murdoch is so important, and why ignorance via Reddit commenting media needs to be directly discussed. Seriously. GIVE_UP_ANTI_EDUCATION_ANTI_TEACH_ANTI_PROGRESS
