@@ -61,3 +61,7 @@ My posting and comment to revive ThunderMeme.com themes and set ARG keys around.
 https://old.reddit.com/r/jamesjoyce/comments/1renl91/why_do_most_copies_of_finnegans_wake_start_on/o89gorx/
 
 After tiny-short banal "pity" message of 140 characters Twitter-logic thinking, same person relied with a long-form Reddit message. This is a pattern you get when people HYPER_BANALISATION of Jean Erdman.
+
+https://old.reddit.com/r/jamesjoyce/comments/1renl91/why_do_most_copies_of_finnegans_wake_start_on/o89k0id/
+
+As we write these comments Monday March 2, 2026... the Israel Torah fandom is bombing the Quran Iran fandom, and the USA Bible fandom bombing Quran Iran fandom too. Tower of Babel conflicts.
