@@ -373,3 +373,7 @@ GIVE_UP_SURRENDER messages, don't learn from mistakes. Keep making low-effort Re
 https://old.reddit.com/r/politics/comments/1rii63x/trump_should_be_impeached_removed_from_office_for/o874p27/
 
 The desires of the Reddit comment community is not to STAND UP on Reddit and create messages calling for Trump's removal. Instead, what you see right here. Trivial concerns about the title of a Reddit posting. Media content focused and fixated,  not on actually TAKING CONTROL of Reddit media and using it for good. But just shallow superficial desires for a "title change" word choice. CALL_FOR_ACTION_TO_DO_TRIVIAL_CHANGE - people on Reddit are boxed inside the comment box thinking.
+
+https://old.reddit.com/r/politics/comments/1rii63x/trump_should_be_impeached_removed_from_office_for/o87f75o/
+
+Congress is people who are in a Trump cult just as much as Reddit comment creators are people in a Trump content cult. The problem is the avoidance of Dr. Bandy X Lee, the problem is leaders of mental health and brainwashing topics (Jen Senko) are ignored in favor of low-effort commenting on Bluesky and Reddit. The brain rot of We The People on Internet devices is the crisis! MEDIA_CULTS_FICTION_FANDOM_MEDIA_POWER
