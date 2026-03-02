@@ -81,3 +81,8 @@ Reply to me.
 https://old.reddit.com/r/jamesjoyce/comments/1renl91/why_do_most_copies_of_finnegans_wake_start_on/o89szr2/
 
 Poetry in motion.
+
+https://old.reddit.com/r/jamesjoyce/comments/1renl91/why_do_most_copies_of_finnegans_wake_start_on/o8a06sa/
+
+My comment. "Past Eve and Adam" opening line on page 3, means PAST the whole Trinity. Torah, Bible, Quran science fiction trinity, science fiction trilogy, three. "The Fall" of mankind is on page 3, paragraph 3.
+
