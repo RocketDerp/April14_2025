@@ -78,3 +78,15 @@ https://old.reddit.com/r/ImmigrationPathways/comments/1rhzmf4/trump_has_turned_c
 https://old.reddit.com/r/International/comments/1rib4uu/leaked_footage_from_us_war_room_where_currently/o84zb2h/
 
 It is ANTI_REALITY - it is embrace of the fiction leadership of Putin, Trump, Murdoch, Musk, etc. It is why Trump has so much power. SEX_SELLS_SEX_LEADERS - and why Trump talks about Arnold Palmer's penis size and other sex acts in front of his fandom... because people will do ANYTHING and EVERYTHING to avoid nonfiction reality itself. Serous relevant books from Dr. Bandy X Lee avoided on /r/All front page of Reddit for sick fantasy sex images of Trump. AVOIDED_DR_BANDY_X_LEE_PUBLIC_WRITINGS
+
+https://old.reddit.com/r/International/comments/1rib4uu/leaked_footage_from_us_war_room_where_currently/o851hpp/
+
+9 month Reddit account.
+
+https://old.reddit.com/r/International/comments/1rib4uu/leaked_footage_from_us_war_room_where_currently/o852goc/
+
+https://old.reddit.com/r/International/comments/1rib4uu/leaked_footage_from_us_war_room_where_currently/o853hel/
+
+https://old.reddit.com/r/International/comments/1rib4uu/leaked_footage_from_us_war_room_where_currently/o8551b0/
+
+But very popular in the era of Trump followers, people who follow Trump's leadership of shit-posting shit-commenting shit leadership. An entire nation who can't turn to Dr. Bandy X Lee's nonfiction leadership since October 3, 2017. ATTRACTION_TO_SHIT_CONTENT_ENSHIT_BY_DESIRE
