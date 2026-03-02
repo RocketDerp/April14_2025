@@ -415,3 +415,7 @@ https://old.reddit.com/r/law/comments/1riwgfe/trumps_war_on_iran_violates_intern
 
 9 month Reddit account. Top-upvoted most popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
 
+https://old.reddit.com/r/law/comments/1riwgfe/trumps_war_on_iran_violates_international_law_us/o88yiu2/
+
+11 month Reddit account. 2nd top-upvoted most popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT - Why isn't Reddit community doing a famous REDDIT_BLACKOUT calling for removal of Donald Trump? ANSWER: because people can't escape their inside-the-box 140 character Twitter-thinking mindsets of reacting every minute of every day to Trump events and Trump media content.
+
