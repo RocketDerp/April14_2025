@@ -99,3 +99,6 @@ https://old.reddit.com/r/worldnews/comments/1ria0mz/uk_will_allow_us_to_use_base
 
 SUPERFICIAL_SHALLOW_PRIZING_TRUMPISM_MAGA_VALUES
 
+https://old.reddit.com/r/worldnews/comments/1ria0mz/uk_will_allow_us_to_use_bases_to_strike_iranian/o84z02s/
+
+9 month Reddit account. SUPERFICIAL_SHALLOW_PRIZING_TRUMPISM_MAGA_VALUES
