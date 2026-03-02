@@ -90,3 +90,9 @@ https://old.reddit.com/r/International/comments/1rib4uu/leaked_footage_from_us_w
 https://old.reddit.com/r/International/comments/1rib4uu/leaked_footage_from_us_war_room_where_currently/o8551b0/
 
 But very popular in the era of Trump followers, people who follow Trump's leadership of shit-posting shit-commenting shit leadership. An entire nation who can't turn to Dr. Bandy X Lee's nonfiction leadership since October 3, 2017. ATTRACTION_TO_SHIT_CONTENT_ENSHIT_BY_DESIRE
+
+
+https://old.reddit.com/r/MurderedByWords/comments/1rj38eq/i_found_one/o8aaxcd/
+
+Top-most popular upvoted comment about Tim Pool Twitter screenshot. MAGA_FANDOM behaviors of Reddit media cult. In no way is this comment *resisting* the anti-intellectual Russia manipulation PUTIN_SURKOV_TRUMP_LONG_TERM_YEARS_PLAN - it's just COMMENTING about the situation. Describing the "irony" like it's just a fiction story about some distant planet. Not facing up to the Kremlin's War Against Reality right on Reddit media!  REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
+
