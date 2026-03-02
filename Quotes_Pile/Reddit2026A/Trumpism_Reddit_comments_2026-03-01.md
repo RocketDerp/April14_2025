@@ -478,3 +478,9 @@ https://old.reddit.com/r/news/comments/1riucnx/4th_service_member_dies_from_inju
 https://old.reddit.com/r/news/comments/1riucnx/4th_service_member_dies_from_injuries_in_iran/o88qj5z/
 
 "crazy". Then why isn't Dr. Bandy X Lee's nonfiction books front and center in Reddit commenting, being quoted and repeated if we have a national mental health crisis... REMEMBER_THE_PROGRAM_IDEAS_BILLIONAIRES_FED_REDDIT_AUDIENCE
+
+https://old.reddit.com/r/pics/comments/1rj4wzy/trump_was_spotted_with_a_large_red_rash_on_his/o8ar2lf/
+
+Top-most upvoted popular comment. TRUMP_FANDOM cult image on front page of Reddit media cult venue. The comment repeating the MAGA talking points, as programmed by billionaire media systems. This comment in no way is resisting Trump values of media usage, anti-intellectual, pro-ignorance.
+
+
