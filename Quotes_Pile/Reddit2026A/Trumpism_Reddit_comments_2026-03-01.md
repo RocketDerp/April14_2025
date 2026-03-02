@@ -247,3 +247,11 @@ Hoarding wealth and power is a sing of ability to manipulate others into inequal
 https://old.reddit.com/r/Epstein/comments/1ribr3m/bill_gatess_russian_lover_is_photographed_with/o84x11y/
 
 Conservative International year 2013, Ukraine war, has been the center of the successful Russia win. Because it got the entire population of USA to endlessly talk about famous people, celebrity, status symbols, icon - without actually asserting nonfiction reality. Trump is an actor who is acting. Anyway, SEE_ALSO December 20, 2013 https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/
+
+https://old.reddit.com/r/nottheonion/comments/1riglwk/education_department_hangs_banner_of_charlie_kirk/o85ujp6/
+
+MAGA_FANDOM on Reddit puts Kirk family topics on the front page of /r/All over and over.
+
+https://old.reddit.com/r/nottheonion/comments/1riglwk/education_department_hangs_banner_of_charlie_kirk/o85uop5/
+
+6 month Reddit account, that created the front page /r/all posting. SURKOVIAN_ONION_EATING no mention of Surkov governing methods, eating the White House / Kremlin methods of media without any ability to cite nonfiction about Surkov.
