@@ -22,3 +22,9 @@ COMPREHENDING_UNDERSTANDING but deportation, ICE, and blocking on Bluesky and bl
 https://old.reddit.com/r/nottheonion/comments/1rine5g/microsoft_gets_tired_of_microslop_bans_the_word/o875vq1/
 
 CONCERNS_OF_FINNEGANS
+
+https://old.reddit.com/r/nottheonion/comments/1rine5g/microsoft_gets_tired_of_microslop_bans_the_word/o877g8j/
+
+https://old.reddit.com/r/nottheonion/comments/1rine5g/microsoft_gets_tired_of_microslop_bans_the_word/o876ayp/
+
+EVERYTHING_IS_PR - block button on Reddit sure became popular when introduced.
