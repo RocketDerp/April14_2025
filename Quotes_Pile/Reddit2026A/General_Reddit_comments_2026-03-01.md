@@ -18,3 +18,7 @@ https://old.reddit.com/r/pcmasterrace/comments/1rinifc/microsoft_gets_tired_of_m
 https://old.reddit.com/r/pcmasterrace/comments/1rinifc/microsoft_gets_tired_of_microslop_bans_the_word/o876f28/
 
 COMPREHENDING_UNDERSTANDING but deportation, ICE, and blocking on Bluesky and blocking on Reddit is incredibly popular to silence people. 
+
+https://old.reddit.com/r/nottheonion/comments/1rine5g/microsoft_gets_tired_of_microslop_bans_the_word/o875vq1/
+
+CONCERNS_OF_FINNEGANS
