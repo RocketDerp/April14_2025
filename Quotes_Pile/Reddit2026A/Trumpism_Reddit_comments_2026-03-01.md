@@ -318,3 +318,7 @@ https://old.reddit.com/r/politics/comments/1rii63x/trump_should_be_impeached_rem
 
 HATE_MOTIVATED_ECONOMY_HATE_AS_A_VIRTUE_SIGNALING twitter-thinking polarity logic. Hate fandom on Reddit, cheering on more hate. Donald Trump leads with hate, We The People (on Reddit) follow hate leadership.
 
+https://old.reddit.com/r/politics/comments/1rii63x/trump_should_be_impeached_removed_from_office_for/o86r0oy/
+
+SATIRE_SARCASM_WASHING We  The People mockery that follows Donald Trump as a leader of mocking.
+
