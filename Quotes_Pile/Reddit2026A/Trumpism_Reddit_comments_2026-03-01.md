@@ -497,3 +497,7 @@ https://old.reddit.com/r/news/comments/1rj5ol3/six_us_service_members_killed_in_
 
 Second most-popular upvoted comment. ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING Keep observing: Reddit commenting community is avoiding asserting and quoting Dr. Bandy X Lee's 27 leaders.
 
+https://old.reddit.com/r/GetNoted/comments/1rj2c7o/they_will_lie_about_literally_anything/o8a7b44/
+
+Top most-upvoted comment. 140-character Twitter-thinking. No off-Reddit URL to back up the claim being made. No call for Trump's removal, no call to organize an Internet uprising / blackout. No concern to see the forest for the trees of DECEPTION_LEADERSHIP and the widespread USA addiction to fiction storytelling, avoidance of nonfiction serious adult learning.
+
