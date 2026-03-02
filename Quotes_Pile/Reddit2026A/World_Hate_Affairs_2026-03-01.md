@@ -113,4 +113,7 @@ https://old.reddit.com/r/clevercomebacks/comments/1ripjeb/while_the_bombs_fall_i
 
 /r/Bald body shamig values. If you don't have the desired hair style for media cult image consumers on Reddit, cheer on death. Like Islamic Jihad media cults of the Quran science fiction cheer on killing of girls for not wearing proper hair covering in Iran and Afghanistan. ANTI_MALALA values. 
 
+https://old.reddit.com/r/politics/comments/1rii63x/trump_should_be_impeached_removed_from_office_for/o87l7u4/
+
+FAITH_IN_HATE  
 
