@@ -382,3 +382,11 @@ https://old.reddit.com/r/politics/comments/1rii63x/trump_should_be_impeached_rem
 
 The ENTIRE SOCIETY is complicit. SOCIAL_MEDIA_DID_NOT why is every person on social media not turning to Dr. Bandy X Lee's 27 assembled leaders? Why is there not some uprising on social media by every person capable of using a computer or device to comment and post, calling for Trump's Removal NOW? ANSWER: the entire  nation is cult after cult of media content. People are entertained that Donald Trump is constantly creating media content. A nation of people stimulated by billionaire media systems, including Reddit.
 
+https://old.reddit.com/r/politics/comments/1rii63x/trump_should_be_impeached_removed_from_office_for/o87m64k/
+
+<img width="1147" height="407" alt="image" src="https://github.com/user-attachments/assets/29f4bcd4-4b70-45aa-a150-64cfa4f76f2a" />
+
+BRAIN_ROT_SOCIETY_47 the /r/MurderedByWords is simulation. The REAL murder by words would be Low Sparks of High Heeled Boys by Traffic being posted MORE_THAN_EPSTEIN_NAME_DROPS ... OPERA_A https://www.youtube.com/watch?v=RziQ-kZdVJU 8,715 views March 17, 2013 Murdered by Lyrics. "But today **you just read** that the man was shot dead by a gun that didn't make any noise" - Were were Children Once playing with low-effort memes! The percentage you are paying on trade war is too high price...
+
+NEW_OPERA_NAME #FuckingBalls   
+Social post { https://autistics.life/@RoundSparrow/116160021841448351 https://bsky.app/profile/roundsparrow.bsky.social/post/3mg3hale5vc2y }    
