@@ -140,3 +140,7 @@ MEDIA_ECOLOGY_OBSERVATION
 https://old.reddit.com/r/ABoringDystopia/comments/1risu9o/the_imperial_media_playbook/o88h7ec/
 
 Reddit commenting, fixation on comments. Anti-FAQ anti-Wiki organization of information. Instead, people spend their spare time and free time commenting and commenting instead of taking serious topics seriously and organizing FAQ for *same page* understanding of everyone. BRAIN_ROT_SOCIETY_47
+
+https://old.reddit.com/r/PoliticalHumor/comments/1rix6jr/i_vote_for_aljazeera/o898ugy/
+
+This entire posting is MEDIA_ECOLOGY_OBSERVATION MONOMYTH_VS_MONOMYTH of filter-bubble fandoms. SEE_ALSO https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Ted_Koppel.md  
