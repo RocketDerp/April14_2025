@@ -57,3 +57,7 @@ Editing the Subreddit settings, post-name strip, reveals only the subReddit titl
 https://old.reddit.com/r/ThunderWords/comments/1rixvp5/thundermemecom_war_and_peace_in_the_global/o897gik/
 
 My posting and comment to revive ThunderMeme.com themes and set ARG keys around.
+
+https://old.reddit.com/r/jamesjoyce/comments/1renl91/why_do_most_copies_of_finnegans_wake_start_on/o89gorx/
+
+After tiny-short banal "pity" message of 140 characters Twitter-logic thinking, same person relied with a long-form Reddit message. This is a pattern you get when people HYPER_BANALISATION of Jean Erdman.
