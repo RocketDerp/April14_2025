@@ -438,3 +438,7 @@ Thinking systems are the crisis. FREE_MASONS_FREE_THINKING_SELF_AWARENESS "Perha
 https://old.reddit.com/r/UnderReportedNews/comments/1rj01dn/marjorie_taylor_greene_and_just_like_that_we_are/o89nox2/
 
 7 month Reddit comment. 2nd most POPULAR upvoted comment. "LMAO" messaging. Not even 140 character limit. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT - MAGA_VALUES Reddit users (upvoters to 2nd place comment) who find the war with the Middle East a source of "LMAO" comedy content from reality TV actor Donald Trump leadership of entertainment.
+
+https://old.reddit.com/r/MurderedByWords/comments/1riywnc/happier_or_just_less_aware/o89fpy1/
+
+Top most upvoted comment. People on Reddit LOVE IT that there is ignorance and misunderstandings caused by billionaires Elon Musk (richest man in the world, using Twitter), Donald Trump (Truth Social fiction storytelling), Rupert Murdoch (Fox News HDTV), Putin (Russia Today, Saint Petersburg Internet Research Agency IRA), etc. Thinks it is great that media cults of ignorance drive USA society! ENJOYMENT_OF_TRUMP_AND_MAGA_VALUES
