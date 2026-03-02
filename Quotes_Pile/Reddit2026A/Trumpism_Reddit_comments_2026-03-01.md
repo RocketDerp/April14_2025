@@ -213,3 +213,7 @@ Why isn't Reddit community having a REDDIT_BLACKOUT and posting nonfiction serio
 https://old.reddit.com/r/politics/comments/1ria5zw/donald_trump_isnt_the_president_of_peace_hes_the/o84ilat/
 
 "laugh about it", humor, amusement, POTUS Tony Clifton character. POTUS_TONY_CLIFTON_IGNORANCE and Reddit would create all kinds of memes, jokes, as has been drowning out serious nonfiction since Bloomsday year 2015.
+
+https://old.reddit.com/r/politics/comments/1ria5zw/donald_trump_isnt_the_president_of_peace_hes_the/o84pnx9/
+
+The brain rot of the society, the mocking, the insulting, the total mockery is the crisis. WHEN_THE_PEOPLE_HAVE_LOST_THE_ABILITY - the IRA and Cambridge Analytica influence on population needs to be directly addressed.
