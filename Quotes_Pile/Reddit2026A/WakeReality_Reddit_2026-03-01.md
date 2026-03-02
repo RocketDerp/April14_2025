@@ -73,3 +73,11 @@ Reply to me. REPEATING_REPEATER As we write these comments Monday March 2, 2026.
 https://old.reddit.com/r/jamesjoyce/comments/1renl91/why_do_most_copies_of_finnegans_wake_start_on/o89ql6t/
 
 my reply. More blunt.
+
+https://old.reddit.com/r/jamesjoyce/comments/1renl91/why_do_most_copies_of_finnegans_wake_start_on/o89s047/
+
+Reply to me.
+
+https://old.reddit.com/r/jamesjoyce/comments/1renl91/why_do_most_copies_of_finnegans_wake_start_on/o89szr2/
+
+Poetry in motion.
