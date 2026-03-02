@@ -195,3 +195,9 @@ https://old.reddit.com/r/circled/comments/1ri3c9e/no_approval_just_bombs/o83mv4z
 GIVE_UP_SURRENDER
 
 https://old.reddit.com/r/circled/comments/1ri3c9e/no_approval_just_bombs/o83u5us/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1ribuln/nbc_asks_why_iran_defends_itself/o84welj/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1ribuln/nbc_asks_why_iran_defends_itself/o84vquq/
+
+Audiences seek out shit-postings, shit-commenting, shit-content since year 2013. ATTRACTION_TO_SHIT_CONTENT_ENSHIT_BY_DESIRE - why are Reddit users not commenting about the avoidance of Dr. Bandy X Lee's nonfiction book with 27 people?
