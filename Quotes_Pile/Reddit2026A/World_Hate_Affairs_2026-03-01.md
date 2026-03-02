@@ -136,3 +136,7 @@ Reddit end-users won't see the crisis of Twitter-thinking 140 character thinking
 https://old.reddit.com/r/ABoringDystopia/comments/1risu9o/the_imperial_media_playbook/o88z54x/
 
 MEDIA_ECOLOGY_OBSERVATION
+
+https://old.reddit.com/r/ABoringDystopia/comments/1risu9o/the_imperial_media_playbook/o88h7ec/
+
+Reddit commenting, fixation on comments. Anti-FAQ anti-Wiki organization of information. Instead, people spend their spare time and free time commenting and commenting instead of taking serious topics seriously and organizing FAQ for *same page* understanding of everyone. BRAIN_ROT_SOCIETY_47
