@@ -217,3 +217,9 @@ https://old.reddit.com/r/politics/comments/1ria5zw/donald_trump_isnt_the_preside
 https://old.reddit.com/r/politics/comments/1ria5zw/donald_trump_isnt_the_president_of_peace_hes_the/o84pnx9/
 
 The brain rot of the society, the mocking, the insulting, the total mockery is the crisis. WHEN_THE_PEOPLE_HAVE_LOST_THE_ABILITY - the IRA and Cambridge Analytica influence on population needs to be directly addressed.
+
+https://old.reddit.com/r/AdviceAnimals/comments/1ricov8/israel_owns_trump_and_our_military/o854joi/
+
+MEDIA_ECOLOGY_OBSERVATION  people gave up on fact-checking and creating new methods of chain of information custody in favor of meme-shit shit-commenting shit-posting since year 2013. Before generative AI became commonplace starting Q4 2022. Social media society USA is anti-Wiki anti-FAQ and pro-commenting, low-effort low-information upvoters.
+
+
