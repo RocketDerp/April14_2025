@@ -255,3 +255,8 @@ MAGA_FANDOM on Reddit puts Kirk family topics on the front page of /r/All over a
 https://old.reddit.com/r/nottheonion/comments/1riglwk/education_department_hangs_banner_of_charlie_kirk/o85uop5/
 
 6 month Reddit account, that created the front page /r/all posting. SURKOVIAN_ONION_EATING no mention of Surkov governing methods, eating the White House / Kremlin methods of media without any ability to cite nonfiction about Surkov.
+
+https://old.reddit.com/r/nottheonion/comments/1riglwk/education_department_hangs_banner_of_charlie_kirk/o85vtqx/
+
+ANSWER: 1) hate leadership, same reason Reddit is full of Donald Trump images - hate. ATTRACTION_TO_HATE_LEADERS_HATE_FOLLOWERS 2) media cults. Certain methods of delivery of media. Reddit is full of media cults. MEDIA_CULTS_FICTION_FANDOM_MEDIA_POWER. And more than that, this whole GitHub project is about pointing out all the avoided nonfiction on these subjects: Marshall McLuhan, Neil Postman, Bill Moyers, Peter Pomerantsev, Dr. Bandy X Lee, etc.
+
