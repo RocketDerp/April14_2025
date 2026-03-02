@@ -504,3 +504,7 @@ Top most-upvoted comment. 140-character Twitter-thinking. No off-Reddit URL to b
 https://old.reddit.com/r/GetNoted/comments/1rj2c7o/they_will_lie_about_literally_anything/o8a5zqe/
 
 2nd most upvoted popular comment. "insane", mental health topic, but no call for We The People to focus Dr. Bandy X Lee 27 leaders on the mental health topics. "insane" is just casual Reddit Twitter-thinking reaction commenting language. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
+
+https://old.reddit.com/r/nottheonion/comments/1rj63wm/melania_presides_over_un_security_council_meeting/o8axvqo/
+
+The most-popular upvoted comment. Not even 140 characters. Cracking jokes to normalize it. No call for intellectual uprising to the ignorance, just short little reaction comment messaging. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
