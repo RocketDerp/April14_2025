@@ -393,3 +393,13 @@ Social post { https://autistics.life/@RoundSparrow/116160021841448351 https://bs
 
 NEW_OPERA_NAME #AnotherChanceOpera #WouldYouAsk       
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mg3hkbavtc27  https://autistics.life/@RoundSparrow/116160040043581009 https://x.com/RoundSparrow/status/2028479475755921526 }    
+
+https://old.reddit.com/r/politics/comments/1rii63x/trump_should_be_impeached_removed_from_office_for/o87p4r9/
+
+<img width="1124" height="1384" alt="image" src="https://github.com/user-attachments/assets/4d1e3cf1-2ce0-4839-b556-643e02d6cc8d" />
+
+18 year Reddit account. "If enough of us were truly concerned we would stop everything we are doing and turn our full attention" EVERY_47_HOURS_BRS47
+
+NEW_OPERA_NAME #AssertBandyXLee #WeWouldStop #StopEverything #StopEverythingWe #TurnOurFull #OurFullAttention   
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mg3juxdddc2y https://autistics.life/@RoundSparrow/116160212670266621 }   
+
