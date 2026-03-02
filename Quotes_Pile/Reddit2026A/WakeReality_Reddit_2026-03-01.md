@@ -89,3 +89,5 @@ My comment. "Past Eve and Adam" opening line on page 3, means PAST the whole Tri
 https://old.reddit.com/r/jamesjoyce/comments/1rixpg3/new_to_joyce_have_copies_of_dubliners_ulysses_and/o8aligu/
 
 My message with a sense of global urgency. LEVANT_MONOMYTH_CRISIS
+
+OOPS, had to edit the message, forgot to finish a sentence: "Humanity is running out of time and people are raging in fandoms vs. fandoms." - I also observe the REDDIT_HIVE_MIND downvoting of the user's posting. Currently: "5 points (73% upvoted)" in 4 hours. Multiple downvotes.
