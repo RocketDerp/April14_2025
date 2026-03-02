@@ -403,3 +403,10 @@ https://old.reddit.com/r/politics/comments/1rii63x/trump_should_be_impeached_rem
 NEW_OPERA_NAME #AssertBandyXLee #WeWouldStop #StopEverything #StopEverythingWe #TurnOurFull #OurFullAttention   
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mg3juxdddc2y https://autistics.life/@RoundSparrow/116160212670266621 }   
 
+https://old.reddit.com/r/agedlikemilk/comments/1riq41n/well_well_well/o87rlb3/
+
+HATE_MOTIVATED_ECONOMY_HATE_AS_A_VIRTUE_SIGNALING
+
+https://old.reddit.com/r/agedlikemilk/comments/1riq41n/well_well_well/o87towl/
+
+TRUMP_FANDOM on Reddit. JD Vance fandom on Reddit. Calling for more war and more images in the field of combat, more images of the cult Trump Vance in the middle east. AVOIDING: calling for immediate removal and thinking reformation. The society of image cults on Reddit wants more television images of warfare with their favorite performers to mock and insult.
