@@ -231,3 +231,19 @@ Never forget August 24, 2018. Information rarely repeated on Reddit media. REMED
 https://old.reddit.com/r/news/comments/1ri8o1e/measles_outbreaks_are_costing_the_us_millions_of/o84f300/
 
 6 month Reddit account. 2nd most popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT "You can’t reason with these people." - no off-Reddit link, no book quotes, no author names. You know what you can't get Americans to focus on? ANSWER: nonfiction serious books. If it's exciting thrilling fiction and fantasy - they flock and listen. Trumpism RFK Jr provides exciting thrilling fiction storytelling.
+
+https://old.reddit.com/r/Epstein/comments/1ribr3m/bill_gatess_russian_lover_is_photographed_with/o850qik/
+
+Bill Gates, the Mercer Island Bellevue scene.
+
+https://old.reddit.com/r/Epstein/comments/1ribr3m/bill_gatess_russian_lover_is_photographed_with/o84zuzo/
+
+The entire society, Reddit fandom. Observe the avoidance of nonfiction books. People really need to read Carl Sagan's 1995 book. Since year 2013, there has been an abandonment of reality in favor of fiction storytelling. Surkov won.
+
+https://old.reddit.com/r/Epstein/comments/1ribr3m/bill_gatess_russian_lover_is_photographed_with/o856bzw/
+
+Hoarding wealth and power is a sing of ability to manipulate others into inequality.
+
+https://old.reddit.com/r/Epstein/comments/1ribr3m/bill_gatess_russian_lover_is_photographed_with/o84x11y/
+
+Conservative International year 2013, Ukraine war, has been the center of the successful Russia win. Because it got the entire population of USA to endlessly talk about famous people, celebrity, status symbols, icon - without actually asserting nonfiction reality. Trump is an actor who is acting. Anyway, SEE_ALSO December 20, 2013 https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/
