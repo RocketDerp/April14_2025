@@ -410,3 +410,8 @@ HATE_MOTIVATED_ECONOMY_HATE_AS_A_VIRTUE_SIGNALING
 https://old.reddit.com/r/agedlikemilk/comments/1riq41n/well_well_well/o87towl/
 
 TRUMP_FANDOM on Reddit. JD Vance fandom on Reddit. Calling for more war and more images in the field of combat, more images of the cult Trump Vance in the middle east. AVOIDING: calling for immediate removal and thinking reformation. The society of image cults on Reddit wants more television images of warfare with their favorite performers to mock and insult.
+
+https://old.reddit.com/r/law/comments/1riwgfe/trumps_war_on_iran_violates_international_law_us/o88xl4b/
+
+9 month Reddit account. Top-upvoted most popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+
