@@ -377,3 +377,8 @@ The desires of the Reddit comment community is not to STAND UP on Reddit and cre
 https://old.reddit.com/r/politics/comments/1rii63x/trump_should_be_impeached_removed_from_office_for/o87f75o/
 
 Congress is people who are in a Trump cult just as much as Reddit comment creators are people in a Trump content cult. The problem is the avoidance of Dr. Bandy X Lee, the problem is leaders of mental health and brainwashing topics (Jen Senko) are ignored in favor of low-effort commenting on Bluesky and Reddit. The brain rot of We The People on Internet devices is the crisis! MEDIA_CULTS_FICTION_FANDOM_MEDIA_POWER
+
+https://old.reddit.com/r/politics/comments/1rii63x/trump_should_be_impeached_removed_from_office_for/o87lz80/
+
+The ENTIRE SOCIETY is complicit. SOCIAL_MEDIA_DID_NOT why is every person on social media not turning to Dr. Bandy X Lee's 27 assembled leaders? Why is there not some uprising on social media by every person capable of using a computer or device to comment and post, calling for Trump's Removal NOW? ANSWER: the entire  nation is cult after cult of media content. People are entertained that Donald Trump is constantly creating media content. A nation of people stimulated by billionaire media systems, including Reddit.
+
