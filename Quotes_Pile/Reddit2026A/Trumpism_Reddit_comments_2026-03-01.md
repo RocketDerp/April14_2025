@@ -322,3 +322,10 @@ https://old.reddit.com/r/politics/comments/1rii63x/trump_should_be_impeached_rem
 
 SATIRE_SARCASM_WASHING We  The People mockery that follows Donald Trump as a leader of mocking.
 
+https://old.reddit.com/r/politics/comments/1rii63x/trump_should_be_impeached_removed_from_office_for/o86641p/
+
+3 month Reddit account
+
+https://old.reddit.com/r/politics/comments/1rii63x/trump_should_be_impeached_removed_from_office_for/o8698w3/
+
+No concern as to WHY the situation is this way. 140 character or less Twitter-think comments. Brain rot ahoy. ROUTINE_NO_NEED_TO_RESIST_OR_ORGANIZE_INTELLECTUAL_UPRISING
