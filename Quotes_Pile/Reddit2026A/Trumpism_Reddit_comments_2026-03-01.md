@@ -338,3 +338,7 @@ https://old.reddit.com/r/politics/comments/1rii63x/trump_should_be_impeached_rem
 
 Trump fandom on Reddit does not want to remove the source of entertainment, actor Donald Trump playing POTUS Tony Clifton character. BANAL_WASH_LAUGH_TRACK This is a laugh-track "LOL" on Reddit to keep Trump at the center of all media systems for Reddit media cultists.
 
+https://old.reddit.com/r/politics/comments/1rii63x/trump_should_be_impeached_removed_from_office_for/o8665jl/
+
+5 month Reddit account. ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING - just commenting about the brain rot and disorganization of We The People, all on different pages, not organizing. EVERY_47_HOURS_BRS47  
+    
