@@ -365,3 +365,7 @@ https://old.reddit.com/r/politics/comments/1rii63x/trump_should_be_impeached_rem
 https://old.reddit.com/r/politics/comments/1rii63x/trump_should_be_impeached_removed_from_office_for/o86y2uc/
 
 We The People are all commenting away on different media systems, different pages. All avoiding getting on the same page. Something like EVERY_47_HOURS_BRS47 organization is needed. People need to see the forest for the trees, organize FAQ and WIKI systems. But this is a ANTI_WIKI_ANTI_FAQ society that is attracted to low-information upvoting. https://en.wikipedia.org/wiki/Low_information_voter
+
+https://old.reddit.com/r/politics/comments/1rii63x/trump_should_be_impeached_removed_from_office_for/o872zbu/
+
+GIVE_UP_SURRENDER messages, don't learn from mistakes. Keep making low-effort Reddit comments again and again. LOOK_AND_SEARCH - go find news articles declaring when Reddit stood up and had protests and blackouts or other news coverage during the Trump Impeachments the first 2 times? Instead, We The People kept on mocking, entertaining, joking, mocking. When has WE THE PEOPLE on Reddit stood up and protested as a society against Trump and MAGA in any kind of intellectual and intelligent way?
