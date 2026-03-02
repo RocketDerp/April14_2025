@@ -390,3 +390,6 @@ BRAIN_ROT_SOCIETY_47 the /r/MurderedByWords is simulation. The REAL murder by wo
 
 NEW_OPERA_NAME #FuckingBalls   
 Social post { https://autistics.life/@RoundSparrow/116160021841448351 https://bsky.app/profile/roundsparrow.bsky.social/post/3mg3hale5vc2y }    
+
+NEW_OPERA_NAME #AnotherChanceOpera #WouldYouAsk       
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mg3hkbavtc27  https://autistics.life/@RoundSparrow/116160040043581009 }    
