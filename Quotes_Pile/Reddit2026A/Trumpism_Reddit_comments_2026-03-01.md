@@ -423,3 +423,6 @@ https://old.reddit.com/r/Fauxmoi/comments/1rixcu6/mark_ruffalo_applauds_aocs_thr
 
 Top upvoted most popular comment. 4 fucking words, a social media "engagement question" that is the TOP of this Reddit posting comments. Extreme low-effort media and low-information upvoting. "Can we predict the future?" anti-intellectual commenting message. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING - WHY IS REDDIT commenting community not organizing a REDDIT_BLACKOUT or other form of social media intellectual uprising and pro-intellectual standing to Trump's shit-posting, shit-commenting, shit-prizing leadership of anti-intellectual values?
 
+https://old.reddit.com/r/Fauxmoi/comments/1rixcu6/mark_ruffalo_applauds_aocs_threats_to_move/o894t3q/
+
+The 2nd most-upvoted low-information popular comment. TRUMP_FANDOM media cult saying how they love actors like Donald Trump! Actor love and adoring how actors speak and behave is MAGA_VALUES of ignorance. This very Reddit comment is a celebration of Trump ignorance. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
