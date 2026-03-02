@@ -260,3 +260,6 @@ https://old.reddit.com/r/nottheonion/comments/1riglwk/education_department_hangs
 
 ANSWER: 1) hate leadership, same reason Reddit is full of Donald Trump images - hate. ATTRACTION_TO_HATE_LEADERS_HATE_FOLLOWERS 2) media cults. Certain methods of delivery of media. Reddit is full of media cults. MEDIA_CULTS_FICTION_FANDOM_MEDIA_POWER. And more than that, this whole GitHub project is about pointing out all the avoided nonfiction on these subjects: Marshall McLuhan, Neil Postman, Bill Moyers, Peter Pomerantsev, Dr. Bandy X Lee, etc.
 
+https://old.reddit.com/r/HybridWarLost/comments/1kl7ml6/president_trump_was_taking_money_from_the/o8794tn/
+
+Search engine hit on an old post? /r/HybridWarLost 
