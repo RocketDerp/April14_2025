@@ -2497,7 +2497,7 @@ CONSERVING_WHAT - exactly what are people conserving? It's such a generic non-sp
 
 https://old.reddit.com/r/meme/comments/1ris3h6/skyler/o883xgw/
 
-This entire front-page /r/All posting is Trumpism values. MAGA_VALUES VINCE_GILLIGAN_WAS_CORRECT about Internet cesspools (reddit). The mocking and hate of the actress who plays Skyler White, the wife of Walter White in Breaking Bad, is Anna Gunn. SEE_ALSO https://old.reddit.com/r/breakingbad/comments/14g2wp9/can_someone_explain_to_me_the_death_threats_anna/ SUPERFICIAL_SHALLOW_PRIZING_TRUMPISM_MAGA_VALUES
+This entire front-page /r/All posting is Trumpism values. FAN_PASSION_MAGA_VALUES and VINCE_GILLIGAN_WAS_CORRECT about Internet cesspools (Reddit media fanatics). The mocking and hate of the actress who plays Skyler White, the wife of Walter White in Breaking Bad, is Anna Gunn. SEE_ALSO https://old.reddit.com/r/breakingbad/comments/14g2wp9/can_someone_explain_to_me_the_death_threats_anna/ SUPERFICIAL_SHALLOW_PRIZING_TRUMPISM_MAGA_VALUES
 
 Today is Monday March 2, 2026. This is how USA TV show audiences (Breaking Bad is core USA ABQ show, Reddit is California USA) and film audiences are spending their time. Talking about a world famous celebrity, two of them, while worshiping a leader celebrity, Donald Trump TV star / icon status symbol. INSTEAD of calling for the removal of Trump, spending free time and spare time doing IGNORANCE_CELEBRATIONS on Reddit media information systems.
 
