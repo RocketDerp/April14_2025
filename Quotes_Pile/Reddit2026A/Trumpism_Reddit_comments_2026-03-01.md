@@ -165,3 +165,26 @@ TACTICAL_CLEVERNESS
 https://old.reddit.com/r/worldnews/comments/1ria0mz/uk_will_allow_us_to_use_bases_to_strike_iranian/o84i13n/
 
 8 month Reddit account
+
+https://old.reddit.com/r/circled/comments/1ri3c9e/no_approval_just_bombs/o836q32/
+
+https://old.reddit.com/r/circled/comments/1ri3c9e/no_approval_just_bombs/o83b0nj/
+
+https://old.reddit.com/r/circled/comments/1ri3c9e/no_approval_just_bombs/o83cmza/
+
+https://old.reddit.com/r/circled/comments/1ri3c9e/no_approval_just_bombs/o849bwl/
+
+https://old.reddit.com/r/circled/comments/1ri3c9e/no_approval_just_bombs/o83ol84/
+
+2 month Reddit account.
+
+https://old.reddit.com/r/circled/comments/1ri3c9e/no_approval_just_bombs/o84yl7q/
+
+2 month Reddit account
+
+https://old.reddit.com/r/circled/comments/1ri3c9e/no_approval_just_bombs/o836pqg/
+
+2 month Reddit account.
+
+https://old.reddit.com/r/circled/comments/1ri3c9e/no_approval_just_bombs/o836ltm/
+
