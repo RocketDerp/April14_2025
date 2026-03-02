@@ -133,3 +133,6 @@ https://old.reddit.com/r/ABoringDystopia/comments/1risu9o/the_imperial_media_pla
 
 Reddit end-users won't see the crisis of Twitter-thinking 140 character thinking patterns and low-information upvoters https://en.wikipedia.org/wiki/Low_information_voter SUPER_HYPER_NORMAL and Reddit avoidance of nonfiction relevant books printed on paper.
 
+https://old.reddit.com/r/ABoringDystopia/comments/1risu9o/the_imperial_media_playbook/o88z54x/
+
+MEDIA_ECOLOGY_OBSERVATION
