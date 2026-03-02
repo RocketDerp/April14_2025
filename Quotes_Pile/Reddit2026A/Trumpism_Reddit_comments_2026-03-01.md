@@ -222,4 +222,5 @@ https://old.reddit.com/r/AdviceAnimals/comments/1ricov8/israel_owns_trump_and_ou
 
 MEDIA_ECOLOGY_OBSERVATION  people gave up on fact-checking and creating new methods of chain of information custody in favor of meme-shit shit-commenting shit-posting since year 2013. Before generative AI became commonplace starting Q4 2022. Social media society USA is anti-Wiki anti-FAQ and pro-commenting, low-effort low-information upvoters.
 
+https://old.reddit.com/r/AdviceAnimals/comments/1ricov8/israel_owns_trump_and_our_military/o852ffn/
 
