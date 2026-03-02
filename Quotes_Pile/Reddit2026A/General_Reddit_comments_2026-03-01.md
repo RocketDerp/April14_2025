@@ -32,3 +32,8 @@ EVERYTHING_IS_PR - block button on Reddit sure became popular when introduced.
 https://old.reddit.com/r/nottheonion/comments/1rine5g/microsoft_gets_tired_of_microslop_bans_the_word/o877d4y/
 
 DEFLECTION_FROM_BILLIONAIRES_AND_PUTINISM there is this deep-seated denial on Reddit calling everything "Child" when it is billionaires following Trump and Putin strategy. It casts the richest and most powerful men in the world as child-like innocent and not responsible for adult world. note the tiny-short Twitter-thin length of the Reddit comment message. This is not children, it's billionaire programmed "inside the box" thinking. Elon Musk (most wealthy man in the  world) purchasing Twitter to control the predictable Reddit mindsets.
+
+https://old.reddit.com/r/Unexpected/comments/1riwgb9/blink_blink/o89wm9d/
+
+METAPHORS_IN_MOTION
+
