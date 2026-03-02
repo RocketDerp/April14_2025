@@ -148,3 +148,12 @@ Where is the REDDIT_BLACKOUT ? Why are Reddit comment creators always shit-posti
 https://old.reddit.com/r/Epstein/comments/1rhrcju/epstein_said_if_trump_was_cornered_as_a_rat_hed/o80uwsj/
 
 Gullible Reddit users. People on Reddit who think that the whole point isn't to wreck the USA on the world stage. What does insulting Greenland 51st stage, Canada, 52nd stage have to do with terrorism 9/11 attack support? SELF_HARM_USA This Reddit user thinks they are doing a bad job of self-harming the USA for Putin, that is how ignorant Reddit community is about Trump and Putin's meeting last summer (summer 2025) in Alaska. People on Reddit seem extremely avoidant of nonfiction serious books on the subject of Russia media techniques and even Ukraine war being unpopular! This Reddit user is eating the Surkovian onions. SURKOVIAN_ONION_EATING
+
+https://old.reddit.com/r/Epstein/comments/1rhrcju/epstein_said_if_trump_was_cornered_as_a_rat_hed/o82rsgj/
+
+<img width="1207" height="1003" alt="image" src="https://github.com/user-attachments/assets/c040a997-8f45-4121-9f33-1acbe7452cbb" />
+
+BEYOND_DENIAL beyond the denial barrier that so many live in. The cult of Trump media, the fandom of Trump, is supporters. HATE of Donald Trump without turning to: cult deprogramming nonfiction, Dr. Bandy X Lee's nonfiction, is still SUPPORTING TRUMP as a source of entertainment and amusement. People do not grasp that Reddit is a fandom, watching and commenting CONSTANTLY about Donald Trump. 
+
+NEW_OPERA_NAME #AllGoodAnd    
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mfzxcgan622b https://autistics.life/@RoundSparrow/116156652309445840 }   
