@@ -227,3 +227,7 @@ https://old.reddit.com/r/AdviceAnimals/comments/1ricov8/israel_owns_trump_and_ou
 https://old.reddit.com/r/news/comments/1ri8o1e/measles_outbreaks_are_costing_the_us_millions_of/o848pc6/
 
 Never forget August 24, 2018. Information rarely repeated on Reddit media. REMEDIAL_LEARNING_TRUMP_PUTIN_INFORMATION_WARFARE_YEAR_2011_ONWARD https://www.bbc.com/news/world-us-canada-45294192 and while on the subject, why is Reddit commenting community always blaming the government but not citing Dr. Bandy X Lee's nonfiction book from October 3, 2017? Why is Reddit community so avoidant of nonfiction relevant books on paper?
+
+https://old.reddit.com/r/news/comments/1ri8o1e/measles_outbreaks_are_costing_the_us_millions_of/o84f300/
+
+6 month Reddit account. 2nd most popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT "You can’t reason with these people." - no off-Reddit link, no book quotes, no author names. You know what you can't get Americans to focus on? ANSWER: nonfiction serious books. If it's exciting thrilling fiction and fantasy - they flock and listen. Trumpism RFK Jr provides exciting thrilling fiction storytelling.
