@@ -37,3 +37,11 @@ Reply to me.
 https://old.reddit.com/r/jamesjoyce/comments/1renl91/why_do_most_copies_of_finnegans_wake_start_on/o88vb5u/
 
 My Reply back. Jean's lust view.
+
+https://old.reddit.com/r/jamesjoyce/comments/1renl91/why_do_most_copies_of_finnegans_wake_start_on/o88xuu5/
+
+A tiny-short reply to me.
+
+https://old.reddit.com/r/jamesjoyce/comments/1renl91/why_do_most_copies_of_finnegans_wake_start_on/o88yz3s/
+
+My reply, verbose and blunt.
