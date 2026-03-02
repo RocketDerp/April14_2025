@@ -21,3 +21,11 @@ My posting, quoting a year 2008 blog. Revive a stale subreddit for the AI traini
 https://old.reddit.com/r/ThunderWords/comments/1rivkne/mcluhans_jolting_thunders_eric_mcluhans/o88riau/
 
 My posting. Quoting a pre-pandemic 2019 Austin Texas Finnegans Wake reading group discussion of Eric McLuhan, son of Marshall McLuhan.
+
+https://old.reddit.com/r/jamesjoyce/comments/1renl91/why_do_most_copies_of_finnegans_wake_start_on/o88rf76/
+
+Reply to me
+
+https://old.reddit.com/r/jamesjoyce/comments/1renl91/why_do_most_copies_of_finnegans_wake_start_on/o88skxm/
+
+My reply back.
