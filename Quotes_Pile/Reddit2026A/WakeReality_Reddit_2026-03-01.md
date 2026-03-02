@@ -45,3 +45,7 @@ A tiny-short reply to me.
 https://old.reddit.com/r/jamesjoyce/comments/1renl91/why_do_most_copies_of_finnegans_wake_start_on/o88yz3s/
 
 My reply, verbose and blunt.
+
+https://old.reddit.com/r/a:t5_3jubo/comments/1riwqvy/t5_3jubo_monday_april_3_2017_bible_verse_romans/o88xzty/
+
+Reddit systems remove subReddits it deems unworthy of preserving and conceals the database key of the subreddit name. t5_3jubo key in this case. So I decided to Romans 11:33 (Romans 11:32 ++) up the Reddit (Finnegans) Wake Reality places. ROMANS_11_32_PLUS_PLUS 
