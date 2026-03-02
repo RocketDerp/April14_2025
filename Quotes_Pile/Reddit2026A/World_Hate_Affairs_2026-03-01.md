@@ -144,3 +144,7 @@ Reddit commenting, fixation on comments. Anti-FAQ anti-Wiki organization of info
 https://old.reddit.com/r/PoliticalHumor/comments/1rix6jr/i_vote_for_aljazeera/o898ugy/
 
 This entire posting is MEDIA_ECOLOGY_OBSERVATION MONOMYTH_VS_MONOMYTH of filter-bubble fandoms. SEE_ALSO https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Ted_Koppel.md  
+
+https://old.reddit.com/r/europe/comments/1rixzjr/the_heritage_foundation_is_reportedly_working/o89ay2x/
+
+Top most-upvoted popular comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
