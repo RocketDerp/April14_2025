@@ -508,3 +508,7 @@ https://old.reddit.com/r/GetNoted/comments/1rj2c7o/they_will_lie_about_literally
 https://old.reddit.com/r/nottheonion/comments/1rj63wm/melania_presides_over_un_security_council_meeting/o8axvqo/
 
 The most-popular upvoted comment. Not even 140 characters. Cracking jokes to normalize it. No call for intellectual uprising to the ignorance, just short little reaction comment messaging. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
+
+https://old.reddit.com/r/nottheonion/comments/1rj63wm/melania_presides_over_un_security_council_meeting/o8awyti/
+
+2nd most popular upvoted comment. EPSTEIN_FANDOM talking about the Epstein Hillary Clinton testimony. The posting is about the United Nations Security Council - about Iran war, Israel, USA military. Which is not about Epstein and Hillary Clinton testimony. But the Reddit media cult of Epstein doesn't want to REMOVE Donald Trump, it is a cult of people who want more information. EPSTEIN_BUT_NOT_PUTIN_UKRAINE_CHILDREN_NOT_MALALA
