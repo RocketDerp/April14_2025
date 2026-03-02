@@ -361,3 +361,7 @@ Yes. It is all so obvious. Mind-blowing badness. Look around at all the free tim
 https://old.reddit.com/r/politics/comments/1rii63x/trump_should_be_impeached_removed_from_office_for/o86vno4/
 
 4 month Reddit account. GIVE_UP_SURRENDER programming for Reddit cults.
+
+https://old.reddit.com/r/politics/comments/1rii63x/trump_should_be_impeached_removed_from_office_for/o86y2uc/
+
+We The People are all commenting away on different media systems, different pages. All avoiding getting on the same page. Something like EVERY_47_HOURS_BRS47 organization is needed. People need to see the forest for the trees, organize FAQ and WIKI systems. But this is a ANTI_WIKI_ANTI_FAQ society that is attracted to low-information upvoting. https://en.wikipedia.org/wiki/Low_information_voter
