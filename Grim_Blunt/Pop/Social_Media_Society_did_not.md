@@ -186,6 +186,11 @@ People simply do not care for science and mental health professionals who stand 
 
 &nbsp;
 
+2026-03-01 - see new dedicated page on this topic: https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Bandy_X_Lee/Avoided_And_Ignored_Since_April_20_2017.md
+
+
+&nbsp;
+
 &nbsp;
 
 # Sunday January 18, 2026 morning
@@ -201,3 +206,12 @@ It is a TOTAL fandom to hate leadership signals. Trump leads with hate and EVERY
 Also note the reply message about drugs. Everyone on medication to deny reality with chemicals. Like weed / cannabis users who smoke up before going to a science fiction or horror film. Trump entertainment, President Tony Clifton, has them all giggles in the streaming meme audiences. Meds, drugs, brain chemistry dependence. Dr. Bandy X Lee being actively ignored by *We The People* since October 3, 2017 book published.
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mcpdhmaads2b https://autistics.life/@RoundSparrow/115916565318998832 }
+
+&nbsp;
+
+# Sunday March 1, 2026 night
+
+Social media blackout REDDIT_BLACKOUT never happen for Trump and MAGA.    
+https://bsky.app/profile/roundsparrow.bsky.social/post/3mg2a3tyrqk2f    
+https://autistics.life/@RoundSparrow/116157266922879721   
+
