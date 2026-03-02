@@ -1,6 +1,6 @@
 # Inline content Tags and Strings
 
-IMPORANT_IDEAS_FOLLOWUP_0
+IMPORTANT_IDEAS_FOLLOWUP_0    
 
 OPERA_A   
 OPERA_B   
