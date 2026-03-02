@@ -301,3 +301,15 @@ https://old.reddit.com/r/politics/comments/1rii63x/trump_should_be_impeached_rem
 
 Congress Americans, people in Congress, hear it - and area cult to Donald Trump's entertainment and mockery just as much as Reddit members are a cult. Do you hear that /r/Politics subreddit community? WE THE PEOPLE actually matter, and if everyone is in a cult of addiction to Trump media - then nobody wants to take away their addiction source. AMUSING_ZOMBIES in Congress, on Reddit, on Bluesky. OBSERVE_SOCIAL_MEDIA_AVOIDING_NONFICTION "You listening Congress? Thank you for your attention to this matter." Reddit, look around, why is EVERYONE on Bluesky and Reddit avoiding Dr. Bandy X Lee's leadership and not constantly repeating her name, quoting her books, more than the EPSTEIN cult repeats the name "Epstein"? ANSWER: Because there is no sex images and rich private islands and wealthy private jets in Dr. Lee's nonfiction books. The CULT of Donald Trump media and CULT of Epstein media content is not interested in Dr. Bandy X. Lee's nonfiction learning and education about mental health.
 
+https://old.reddit.com/r/politics/comments/1rii63x/trump_should_be_impeached_removed_from_office_for/o86atog/
+
+https://old.reddit.com/r/politics/comments/1rii63x/trump_should_be_impeached_removed_from_office_for/o86axuw/
+
+How does "showing up in person" avoid tampering? People who vote different ways all go to the same locations and lines. There is no externally visible way to indicate how people voted. Our society, USA nation, is in an extreme crisis. People keep downplaying and underplaying the crisis. STAND_UP_FOR_FAMOUS_CELEBRITY_AND_SOCIALLY_POWERFUL_BIG_GUYS
+
+CALL_TO_INTELLECTUAL_ACTION_PLAN  CALL_TO_PUBLIC_NON_PRIVACY_DECLARE_VOTE  - photograph your ballot, share your vote in public. REAL_PEOPLE_ADMIT we are in a "war against reality", and Putinism is all about abandonment of nonfiction. Stand up against the billionaire artificial reality, the large language models, the generative artificial intelligence that billionaires have unleashed upon society.
+
+Have open source developers create a GitHub style public system that uses git - and people can get a receipt for their public vote record and deceleration. Invite long-standing NATO partners Canada (OpenBSD) and UK to audit the system and apps and make it transparent / describe flaws and weaknesses. Promote Canadian OpenBSD Game of Trees (Got) system parallel. 
+
+IMPORTANT_IDEAS_FOLLOWUP_0    
+In real life meetups and meetings with digital signatures and photographs and videos. REHUMANIZE_WE_THE_PEOPLE_LITTLE_GUYS   don't let human imperfection and exploits and mistakes be hidden. The billionaire systems ALREADY crushed us, we got Putinism since year 2013 all over society. Incremental, progressive, learning. Like Reddit used to have meetups. Like church has meetups. Spiritual goodness, real flawed humans, learning from errors. Putinism was one massive error. Avoiding Marshall McLuhan and Neil Postman education in society was one massive error. Goodness already burned down.
