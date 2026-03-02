@@ -86,3 +86,6 @@ https://old.reddit.com/r/jamesjoyce/comments/1renl91/why_do_most_copies_of_finne
 
 My comment. "Past Eve and Adam" opening line on page 3, means PAST the whole Trinity. Torah, Bible, Quran science fiction trinity, science fiction trilogy, three. "The Fall" of mankind is on page 3, paragraph 3.
 
+https://old.reddit.com/r/jamesjoyce/comments/1rixpg3/new_to_joyce_have_copies_of_dubliners_ulysses_and/o8aligu/
+
+My message with a sense of global urgency. LEVANT_MONOMYTH_CRISIS
