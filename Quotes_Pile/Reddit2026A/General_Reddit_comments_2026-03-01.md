@@ -11,3 +11,5 @@ Take for example, Russia vs.Ukraine scripted war for Reddit audiences. Why is th
 
 https://old.reddit.com/r/BeAmazed/comments/1riehrf/barnacle_removal_on_crab_so_satisfying/o85s2ba/
 
+https://old.reddit.com/r/sports/comments/1rig92n/colorado_qb_dominiq_ponder_dies_in_singlecar/o85xs55/
+
