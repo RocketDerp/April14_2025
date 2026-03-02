@@ -205,3 +205,7 @@ Audiences seek out shit-postings, shit-commenting, shit-content since year 2013.
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1ribuln/nbc_asks_why_iran_defends_itself/o84z4y9/
 
 BRAIN_ROT_SOCIETY_47 it wasn't always this way. Cambridge Analytica and the Saint Petersburg Internet Research Agency did a number on hearts and minds to avoid serious nonfiction books on paper. People instead just comment over and over how { dumb, stupid, idiot, morn } other people are without thinking that maybe high-speed information reactionary commenting isn't what you should drown serious important nonfiction books with...
+
+https://old.reddit.com/r/politics/comments/1ria5zw/donald_trump_isnt_the_president_of_peace_hes_the/o84jls4/
+
+Why isn't Reddit community having a REDDIT_BLACKOUT and posting nonfiction serious books about Trump being a danger? AVOIDED_DR_BANDY_X_LEE_PUBLIC_WRITINGS The Dangerous Case of Donald Trump is a 2017 book edited by Bandy X. Lee, a forensic psychiatrist, containing essays by 27 psychiatrists, psychologists, and other mental health professionals describing the "clear and present danger" that US President Donald Trump's mental health poses to the "nation and individual well being". - published October 3, 2017. In every public library, but Reddit commenting section seems to avoid a big pile of relevant nonfiction books on paper. Is it the paywall of fee for the book? I just checked, a used copy of the 2017 book is $7 on Amazon book store.
