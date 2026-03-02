@@ -485,3 +485,6 @@ Top-most upvoted popular comment. TRUMP_FANDOM cult image on front page of Reddi
 
 https://old.reddit.com/r/pics/comments/1rj4wzy/trump_was_spotted_with_a_large_red_rash_on_his/o8asgb6/
 
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rj07hw/trump_has_a_new_rashlike_injury_on_his_neck_today/o89osec/
+
+4 month Reddit account. Top most upvoted popular comment.REDDIT_TOP_COMMENT_YOUNG_ACCOUNT  Repeating Trump mindsets, as programmed by billionaire media systems. Trump-thinking. Reddit cult of Trump. DO_YOU_SPEAK_FOX_NEWS_Y2020
