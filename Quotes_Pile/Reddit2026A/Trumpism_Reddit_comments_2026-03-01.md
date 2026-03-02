@@ -470,3 +470,8 @@ I can name one: Romans 11:32 - Jesus said sin, and Trump sins. See also: John 1:
 https://old.reddit.com/r/clevercomebacks/comments/1riuc8t/the_concept_of_equating_donald_trump_to_jesus/o88ivta/
 
 If only Reddit media users would have an uprising of organized Bible literacy education. But instead, it's all reactionary commenting. INFORMATION_GLUT_COMMENTING_GLUT
+
+https://old.reddit.com/r/news/comments/1riucnx/4th_service_member_dies_from_injuries_in_iran/o88h3q3/
+
+2nd most popular Reddit comment. Asking social media "engagement questions". Asking people to remember the media cult ideas. REMEMBER_THE_PROGRAM_IDEAS_BILLIONAIRES_FED_REDDIT_AUDIENCE
+
