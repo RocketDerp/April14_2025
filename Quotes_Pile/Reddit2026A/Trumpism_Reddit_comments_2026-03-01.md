@@ -430,3 +430,7 @@ The 2nd most-upvoted low-information popular comment. TRUMP_FANDOM media cult sa
 https://old.reddit.com/r/Fauxmoi/comments/1rixcu6/mark_ruffalo_applauds_aocs_threats_to_move/o8978jz/
 
 3rd most popular upvoted Reddit comment. Message to USA society from Reddit messaging system: "I'm tempering my hopes on this as we've seen how effective the last 2 impeachments were." - don't stand up, don't organize, don't use Reddit media to call for impeachment, do what Reddit community has done all along since June 16, 2015 - be a fandom and comment about what Trump and MAGA is leading and don't actually stand up as WE THE PEOPLE and ASSEMBLE as a GROUP against Trump. SOCIAL_MEDIA_DID_NOT_HAVE_UPRISING_SUSTAINED_FOCUSED
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rj01dn/marjorie_taylor_greene_and_just_like_that_we_are/o89nd8m/
+
+Thinking systems are the crisis. FREE_MASONS_FREE_THINKING_SELF_AWARENESS "Perhaps **she should've thought** about that" - the TOP-upvoed low-information under 140 characters Reddit comment, the most popular comment on Reddit posting. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
