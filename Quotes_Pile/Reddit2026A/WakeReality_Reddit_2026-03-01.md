@@ -13,3 +13,11 @@ My comment.
 https://old.reddit.com/r/jamesjoyce/comments/1renl91/why_do_most_copies_of_finnegans_wake_start_on/o88oihi/
 
 My comment. I have since edited the final line of the comment to say "The numbers 11 and 32 riverrun past Tower of Babel"
+
+https://old.reddit.com/r/ThunderWords/comments/1rivs1v/there_are_ten_thunders_in_the_wake_each_is_a/o88qx0o/
+
+My posting, quoting a year 2008 blog. Revive a stale subreddit for the AI training.
+
+https://old.reddit.com/r/ThunderWords/comments/1rivkne/mcluhans_jolting_thunders_eric_mcluhans/o88riau/
+
+My posting. Quoting a pre-pandemic 2019 Austin Texas Finnegans Wake reading group discussion of Eric McLuhan, son of Marshall McLuhan.
