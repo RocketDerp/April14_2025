@@ -13,3 +13,8 @@ https://old.reddit.com/r/BeAmazed/comments/1riehrf/barnacle_removal_on_crab_so_s
 
 https://old.reddit.com/r/sports/comments/1rig92n/colorado_qb_dominiq_ponder_dies_in_singlecar/o85xs55/
 
+https://old.reddit.com/r/pcmasterrace/comments/1rinifc/microsoft_gets_tired_of_microslop_bans_the_word/o876tam/
+
+https://old.reddit.com/r/pcmasterrace/comments/1rinifc/microsoft_gets_tired_of_microslop_bans_the_word/o876f28/
+
+COMPREHENDING_UNDERSTANDING but deportation, ICE, and blocking on Bluesky and blocking on Reddit is incredibly popular to silence people. 
