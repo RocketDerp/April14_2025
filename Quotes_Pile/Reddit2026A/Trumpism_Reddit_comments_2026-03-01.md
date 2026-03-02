@@ -350,3 +350,6 @@ https://old.reddit.com/r/politics/comments/1rii63x/trump_should_be_impeached_rem
 
 10 day Reddit account. /r/Politics - not the avoidance of off-Reddit URL, no quotes.
 
+https://old.reddit.com/r/politics/comments/1rii63x/trump_should_be_impeached_removed_from_office_for/o86f3gz/
+
+Surkov won. Putin won an information war and the Reddit commenting community can't even describe "Saint Petersburg Internet Research Agency" or "Doctors of Cambridge Analytica", it's a total cult of Trump and followers of Trump ignorance in avoiding relevant nonfiction books on paper. MIND_BLOWN_BY not seeing the We The People Reddit brain rot in the very commenting section. Why is Dr. Bandy X Lee's nonfiction since October 3, 2017 avoided so much on Reddit commenting and postings? ANSWER: the cult of Trump ignorance is the addictions of Reddit media consumers.
