@@ -29,3 +29,11 @@ Reply to me
 https://old.reddit.com/r/jamesjoyce/comments/1renl91/why_do_most_copies_of_finnegans_wake_start_on/o88skxm/
 
 My reply back.
+
+https://old.reddit.com/r/jamesjoyce/comments/1renl91/why_do_most_copies_of_finnegans_wake_start_on/o88sspo/
+
+Reply to me.
+
+https://old.reddit.com/r/jamesjoyce/comments/1renl91/why_do_most_copies_of_finnegans_wake_start_on/o88vb5u/
+
+My Reply back. Jean's lust view.
