@@ -492,3 +492,8 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1rj07hw/trump_has_a_new_ras
 https://old.reddit.com/r/news/comments/1rj5ol3/six_us_service_members_killed_in_iran_conflict_us/o8atksn/
 
 Top most-popular upvoted comment. ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING
+
+https://old.reddit.com/r/news/comments/1rj5ol3/six_us_service_members_killed_in_iran_conflict_us/o8au5o3/
+
+Second most-popular upvoted comment. ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING Keep observing: Reddit commenting community is avoiding asserting and quoting Dr. Bandy X Lee's 27 leaders.
+
