@@ -267,3 +267,24 @@ Search engine hit on an old post? /r/HybridWarLost
 https://old.reddit.com/r/politics/comments/1rii63x/trump_should_be_impeached_removed_from_office_for/o867zyl/
 
 27 day Reddit account. Most-popular upvoted comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT and the message in the comment is 140 character-think patterns that programs the  Reddit cult of Trump: GIVE_UP_ANTI_EDUCATION_ANTI_TEACH_ANTI_PROGRESS - just like Putin and Trump systems of Musk Twitter-think be the mindsets of  Russia and don't use teaching and education to learn from mistakes. Normalize it via Reddit jokes and give-up messages. Because entertainment addiction to Trump and other billionaires is the Reddit hive mind... inside-the-box mindsets / thinking.
+
+https://old.reddit.com/r/politics/comments/1rii63x/trump_should_be_impeached_removed_from_office_for/o86nufj/
+
+<img width="1153" height="859" alt="image" src="https://github.com/user-attachments/assets/4ca9fcee-9f89-4ca8-84ed-e4af245ba26e" />
+
+A Reddit user screaming out that the word "impeachment" and "removal" of Trump is too much! No more hundreds of millions of people ("We The People") calling for impeachment! ANNOYED_SILENCE_CALLS_FOR_TRUMP_IMPEACHMENT_REPEAT_JOKES_INSTEAD   
+
+Ask yourself this: REMEDIAL_LEARNING_TRUMP_PUTIN_INFORMATION_WARFARE_YEAR_2011_ONWARD
+
+1. How many times a day do we need to hear about Donald Trump's orange makeup / orange skin color? Yet Reddit community hive minded thinking never gets enough commenting about variations of "orange".
+
+2. How many times a day do we need to hear Trump is fat, ugly, stupid, moron, idiot, dumb? Yet the highly entertained and attracted-to-Trump as a source of mockery leadership and ignorance leadership follows with this over and over. All the things an audience of ignorance would say at a Tony Clifton public performance? 
+
+3. Why does Reddit commenting community not repeat and repeat Dr. Bandy X Lee's nonfiction serious book with 27 leaders since October 3, 2017 - and Reddit community seems to avoid nonfiction relevant serous books on paper every hour of every day?
+
+4. Why isn't Reddit community doing a REDDIT_BLACKOUT that gets world press coverage like previous Reddit blackout protests - or some new kind of protest that isn't b blackout - but sustained call for impeachment or sustained repeating of Dr. Lee's nonfiction books?
+
+This messages is demanding that Reddit community STOP asking for Trump's removal and impeachment. BRAIN_ROT_SOCIETY_47
+
+NEW_OPERA_NAME #ProblemIsThePeople   
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mg3bea3lzc24  https://autistics.life/@RoundSparrow/116159612292327238 }   
