@@ -454,3 +454,7 @@ Top most-upvoted comment. LEVANT_MONOMYTH_CRISIS "Trump is Jesus" MONOMYTH_WARFA
 https://old.reddit.com/r/clevercomebacks/comments/1riuc8t/the_concept_of_equating_donald_trump_to_jesus/o88h83g/
 
 Religion faith of Reddit. 2nd most popular comment. The Reddit faith is: ALWAYS_MORE_MOCKING Trump leads the nation with bullshit, and Reddit fandom of Trump follows the Trump leadership. FAITH_IN_MOCKERY
+
+https://old.reddit.com/r/clevercomebacks/comments/1riuc8t/the_concept_of_equating_donald_trump_to_jesus/o88k9lv/
+
+DEMOCRACY_DOES_NOT_WORK_WITHOUT_LOVE_THY_NEIGHBOR_COMPASSION_VALUES
