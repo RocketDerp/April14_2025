@@ -8,3 +8,6 @@ Take for example, Russia vs.Ukraine scripted war for Reddit audiences. Why is th
     * Repeating, year 2014: "The underlying aim, **Surkov says, is not to win the war, but to use the conflict to create a constant state of destabilized perception**"
     * https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html
     * https://www.youtube.com/watch?v=h9_L9GRRsQo
+
+https://old.reddit.com/r/BeAmazed/comments/1riehrf/barnacle_removal_on_crab_so_satisfying/o85s2ba/
+
