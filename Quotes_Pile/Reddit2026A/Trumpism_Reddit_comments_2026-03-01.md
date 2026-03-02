@@ -458,3 +458,7 @@ Religion faith of Reddit. 2nd most popular comment. The Reddit faith is: ALWAYS_
 https://old.reddit.com/r/clevercomebacks/comments/1riuc8t/the_concept_of_equating_donald_trump_to_jesus/o88k9lv/
 
 DEMOCRACY_DOES_NOT_WORK_WITHOUT_LOVE_THY_NEIGHBOR_COMPASSION_VALUES
+
+https://old.reddit.com/r/clevercomebacks/comments/1riuc8t/the_concept_of_equating_donald_trump_to_jesus/o88j45s/
+
+BIBLE_LITERACY crisis. We The People need a social media uprising: BRAIN_ROT_SOCIETY_47
