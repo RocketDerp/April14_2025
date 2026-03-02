@@ -434,3 +434,7 @@ https://old.reddit.com/r/Fauxmoi/comments/1rixcu6/mark_ruffalo_applauds_aocs_thr
 https://old.reddit.com/r/UnderReportedNews/comments/1rj01dn/marjorie_taylor_greene_and_just_like_that_we_are/o89nd8m/
 
 Thinking systems are the crisis. FREE_MASONS_FREE_THINKING_SELF_AWARENESS "Perhaps **she should've thought** about that" - the TOP-upvoed low-information under 140 characters Reddit comment, the most popular comment on Reddit posting. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rj01dn/marjorie_taylor_greene_and_just_like_that_we_are/o89nox2/
+
+7 month Reddit comment. 2nd most POPULAR upvoted comment. "LMAO" messaging. Not even 140 character limit. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT - MAGA_VALUES Reddit users (upvoters to 2nd place comment) who find the war with the Middle East a source of "LMAO" comedy content from reality TV actor Donald Trump leadership of entertainment.
