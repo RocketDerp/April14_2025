@@ -12,4 +12,4 @@ My comment.
 
 https://old.reddit.com/r/jamesjoyce/comments/1renl91/why_do_most_copies_of_finnegans_wake_start_on/o88oihi/
 
-My comment.
+My comment. I have since edited the final line of the comment to say "The numbers 11 and 32 riverrun past Tower of Babel"
