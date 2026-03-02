@@ -193,3 +193,5 @@ https://old.reddit.com/r/circled/comments/1ri3c9e/no_approval_just_bombs/o83bkqh
 https://old.reddit.com/r/circled/comments/1ri3c9e/no_approval_just_bombs/o83mv4z/
 
 GIVE_UP_SURRENDER
+
+https://old.reddit.com/r/circled/comments/1ri3c9e/no_approval_just_bombs/o83u5us/
