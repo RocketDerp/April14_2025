@@ -446,3 +446,7 @@ Top most upvoted comment. People on Reddit LOVE IT that there is ignorance and m
 https://old.reddit.com/r/MurderedByWords/comments/1riywnc/happier_or_just_less_aware/o89eo8q/
 
 CONSERVING_WHAT EXACTLY ? Fiction vs. nonfiction is a thinking path out of the conservative vs. liberal brain rot that has come to dominate USA society since year 2013. Surkov won.
+
+https://old.reddit.com/r/clevercomebacks/comments/1riuc8t/the_concept_of_equating_donald_trump_to_jesus/o88hjfs/
+
+Top most-upvoted comment. LEVANT_MONOMYTH_CRISIS "Trump is Jesus" MONOMYTH_WARFARE mass mind manipulation.
