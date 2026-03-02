@@ -342,3 +342,6 @@ https://old.reddit.com/r/politics/comments/1rii63x/trump_should_be_impeached_rem
 
 5 month Reddit account. ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING - just commenting about the brain rot and disorganization of We The People, all on different pages, not organizing. EVERY_47_HOURS_BRS47  
     
+https://old.reddit.com/r/politics/comments/1rii63x/trump_should_be_impeached_removed_from_office_for/o86p74a/
+
+CALL_TO_INTELLECTUAL_ACTION_PLAN The problem is the widespread brain rot. We removed Donald Trump from office for 4 years, but the Reddit brain rot got even worse. Joe Biden was in office for 4 years, but we did not teach Marshall McLuhan and Neil Postman. Adult education crisis. Rupert Murdoch Fox News HDTV is teaching adults all the time, Reddit low-information upvoting is teaching adults all the time, Twitter is teaching adults all the time. We are not addressing the We The Pepole, over 300 million people, problem of Trumpism MAGA values. 
