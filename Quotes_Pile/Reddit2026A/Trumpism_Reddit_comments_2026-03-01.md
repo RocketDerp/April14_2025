@@ -369,3 +369,7 @@ We The People are all commenting away on different media systems, different page
 https://old.reddit.com/r/politics/comments/1rii63x/trump_should_be_impeached_removed_from_office_for/o872zbu/
 
 GIVE_UP_SURRENDER messages, don't learn from mistakes. Keep making low-effort Reddit comments again and again. LOOK_AND_SEARCH - go find news articles declaring when Reddit stood up and had protests and blackouts or other news coverage during the Trump Impeachments the first 2 times? Instead, We The People kept on mocking, entertaining, joking, mocking. When has WE THE PEOPLE on Reddit stood up and protested as a society against Trump and MAGA in any kind of intellectual and intelligent way?
+
+https://old.reddit.com/r/politics/comments/1rii63x/trump_should_be_impeached_removed_from_office_for/o874p27/
+
+The desires of the Reddit comment community is not to STAND UP on Reddit and create messages calling for Trump's removal. Instead, what you see right here. Trivial concerns about the title of a Reddit posting. Media content focused and fixated,  not on actually TAKING CONTROL of Reddit media and using it for good. But just shallow superficial desires for a "title change" word choice. CALL_FOR_ACTION_TO_DO_TRIVIAL_CHANGE - people on Reddit are boxed inside the comment box thinking.
