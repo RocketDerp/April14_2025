@@ -313,3 +313,8 @@ Have open source developers create a GitHub style public system that uses git - 
 
 IMPORTANT_IDEAS_FOLLOWUP_0    
 In real life meetups and meetings with digital signatures and photographs and videos. REHUMANIZE_WE_THE_PEOPLE_LITTLE_GUYS   don't let human imperfection and exploits and mistakes be hidden. The billionaire systems ALREADY crushed us, we got Putinism since year 2013 all over society. Incremental, progressive, learning. Like Reddit used to have meetups. Like church has meetups. Spiritual goodness, real flawed humans, learning from errors. Putinism was one massive error. Avoiding Marshall McLuhan and Neil Postman education in society was one massive error. Goodness already burned down.
+
+https://old.reddit.com/r/politics/comments/1rii63x/trump_should_be_impeached_removed_from_office_for/o86eclk/
+
+HATE_MOTIVATED_ECONOMY_HATE_AS_A_VIRTUE_SIGNALING twitter-thinking polarity logic. Hate fandom on Reddit, cheering on more hate. Donald Trump leads with hate, We The People (on Reddit) follow hate leadership.
+
