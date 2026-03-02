@@ -117,3 +117,14 @@ https://old.reddit.com/r/politics/comments/1rii63x/trump_should_be_impeached_rem
 
 FAITH_IN_HATE  
 
+https://old.reddit.com/r/ABoringDystopia/comments/1risu9o/the_imperial_media_playbook/o88bs0z/
+
+MEDIA_ECOLOGY_OBSERVATION
+
+https://old.reddit.com/r/ABoringDystopia/comments/1risu9o/the_imperial_media_playbook/o88ay5l/
+
+MEDIA_ECOLOGY_OBSERVATION
+
+https://old.reddit.com/r/ABoringDystopia/comments/1risu9o/the_imperial_media_playbook/o887yvc/
+
+Reddit Corporation, Corporate America Reddit. REDDIT_HIVE_MIND_FORGOT
