@@ -75,3 +75,6 @@ https://old.reddit.com/r/ImmigrationPathways/comments/1rhzmf4/trump_has_turned_c
 
 1 month Reddit account. 3rd most popular upvoted comment. Extreme simplistic conditioned thinking patterns. This is not resisting ignorance, this is promoting ignorance via Reddit commenting messages. Also note the username of the comment creator metaphorically means "brain rot" and is promoting reactionary mindsets with the 1 month new account.
 
+https://old.reddit.com/r/International/comments/1rib4uu/leaked_footage_from_us_war_room_where_currently/o84zb2h/
+
+It is ANTI_REALITY - it is embrace of the fiction leadership of Putin, Trump, Murdoch, Musk, etc. It is why Trump has so much power. SEX_SELLS_SEX_LEADERS - and why Trump talks about Arnold Palmer's penis size and other sex acts in front of his fandom... because people will do ANYTHING and EVERYTHING to avoid nonfiction reality itself. Serous relevant books from Dr. Bandy X Lee avoided on /r/All front page of Reddit for sick fantasy sex images of Trump. AVOIDED_DR_BANDY_X_LEE_PUBLIC_WRITINGS
