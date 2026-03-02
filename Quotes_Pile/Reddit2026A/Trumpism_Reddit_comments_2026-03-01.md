@@ -467,3 +467,6 @@ https://old.reddit.com/r/clevercomebacks/comments/1riuc8t/the_concept_of_equatin
 
 I can name one: Romans 11:32 - Jesus said sin, and Trump sins. See also: John 1:1 how Trump uses words. Reddit community follows the Trump leading. Matthew 4:19 is what Trump does. Pro-Ignorance Reddit commenting community. REPUBLICANS_LEAD_WITH_IGNORANCE_IDEAS_AND_FOLLOWERS_REPLY_WITH_IGNORANCE
 
+https://old.reddit.com/r/clevercomebacks/comments/1riuc8t/the_concept_of_equating_donald_trump_to_jesus/o88ivta/
+
+If only Reddit media users would have an uprising of organized Bible literacy education. But instead, it's all reactionary commenting. INFORMATION_GLUT_COMMENTING_GLUT
