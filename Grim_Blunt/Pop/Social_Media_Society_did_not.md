@@ -215,3 +215,28 @@ Social media blackout REDDIT_BLACKOUT never happen for Trump and MAGA.
 https://bsky.app/profile/roundsparrow.bsky.social/post/3mg2a3tyrqk2f    
 https://autistics.life/@RoundSparrow/116157266922879721   
 
+&nbsp;
+
+# Monday March 2, 2026 afternoon
+
+Bluesky, my callout:
+
+https://bsky.app/profile/roundsparrow.bsky.social/post/3mg43h23sls2b
+
+"RT News" #RussiaToday ?
+
+Why is #Bluesky community not having an internet blackout uprising? Why is there no Bluesky protesting calling for Trump removal? Why is #Reddit social not having a blackout?
+
+ANSWER: People are addicted to the media content of #TruthSocial and mocking Trump over and over.
+
+1:22 PM · Mar 2, 2026
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+MidWest.Social my callout:
+
+https://GitHub.com/GreatSealUSA/Brainrot_Society_47/blob/main/UnderReacting_Opera/MidWest_Social/2026-03-02_Calling_out_The_Internet_Social_UnderReacting.md  
