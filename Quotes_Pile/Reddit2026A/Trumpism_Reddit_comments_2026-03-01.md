@@ -353,3 +353,7 @@ https://old.reddit.com/r/politics/comments/1rii63x/trump_should_be_impeached_rem
 https://old.reddit.com/r/politics/comments/1rii63x/trump_should_be_impeached_removed_from_office_for/o86f3gz/
 
 Surkov won. Putin won an information war and the Reddit commenting community can't even describe "Saint Petersburg Internet Research Agency" or "Doctors of Cambridge Analytica", it's a total cult of Trump and followers of Trump ignorance in avoiding relevant nonfiction books on paper. MIND_BLOWN_BY not seeing the We The People Reddit brain rot in the very commenting section. Why is Dr. Bandy X Lee's nonfiction since October 3, 2017 avoided so much on Reddit commenting and postings? ANSWER: the cult of Trump ignorance is the addictions of Reddit media consumers.
+
+https://old.reddit.com/r/politics/comments/1rii63x/trump_should_be_impeached_removed_from_office_for/o86nfs0/
+
+Yes. It is all so obvious. Mind-blowing badness. Look around at all the free time and spare time being spent on /r/All of Reddit and popular hashtags on Bluesky. OBSERVE_MEDIA_AVOIDANCE_OF_RELEVANT_NONFICTION the brain rot of We The People, over 300 million people, is the crisis. People are entirely addicted to entertainers, celebrity, stars, memes, Donald Trump as a source of comedy and LOLCOW.
