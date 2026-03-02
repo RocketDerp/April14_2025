@@ -96,3 +96,7 @@ https://old.reddit.com/r/MurderedByWords/comments/1rj38eq/i_found_one/o8aaxcd/
 
 Top-most popular upvoted comment about Tim Pool Twitter screenshot. MAGA_FANDOM behaviors of Reddit media cult. In no way is this comment *resisting* the anti-intellectual Russia manipulation PUTIN_SURKOV_TRUMP_LONG_TERM_YEARS_PLAN - it's just COMMENTING about the situation. Describing the "irony" like it's just a fiction story about some distant planet. Not facing up to the Kremlin's War Against Reality right on Reddit media!  REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
 
+https://old.reddit.com/r/MurderedByWords/comments/1rj38eq/i_found_one/o8ab6n0/
+
+ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING
+
