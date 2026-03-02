@@ -157,3 +157,11 @@ BEYOND_DENIAL beyond the denial barrier that so many live in. The cult of Trump 
 
 NEW_OPERA_NAME #AllGoodAnd    
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mfzxcgan622b https://autistics.life/@RoundSparrow/116156652309445840 }   
+
+https://old.reddit.com/r/worldnews/comments/1ria0mz/uk_will_allow_us_to_use_bases_to_strike_iranian/o84vxg1/
+
+TACTICAL_CLEVERNESS
+
+https://old.reddit.com/r/worldnews/comments/1ria0mz/uk_will_allow_us_to_use_bases_to_strike_iranian/o84i13n/
+
+8 month Reddit account
