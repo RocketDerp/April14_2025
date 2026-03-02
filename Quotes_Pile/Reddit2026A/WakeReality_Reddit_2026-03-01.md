@@ -65,3 +65,11 @@ After tiny-short banal "pity" message of 140 characters Twitter-logic thinking, 
 https://old.reddit.com/r/jamesjoyce/comments/1renl91/why_do_most_copies_of_finnegans_wake_start_on/o89k0id/
 
 As we write these comments Monday March 2, 2026... the Israel Torah fandom is bombing the Quran Iran fandom, and the USA Bible fandom bombing Quran Iran fandom too. Tower of Babel conflicts.
+
+https://old.reddit.com/r/jamesjoyce/comments/1renl91/why_do_most_copies_of_finnegans_wake_start_on/o89oojm/
+
+Reply to me. REPEATING_REPEATER As we write these comments Monday March 2, 2026... the Israel Torah fandom is bombing the Quran Iran fandom, and the USA Bible fandom bombing Quran Iran fandom too. Tower of Babel conflicts.
+
+https://old.reddit.com/r/jamesjoyce/comments/1renl91/why_do_most_copies_of_finnegans_wake_start_on/o89ql6t/
+
+my reply. More blunt.
