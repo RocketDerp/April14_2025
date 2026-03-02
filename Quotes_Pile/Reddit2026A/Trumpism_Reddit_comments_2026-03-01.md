@@ -263,3 +263,7 @@ ANSWER: 1) hate leadership, same reason Reddit is full of Donald Trump images - 
 https://old.reddit.com/r/HybridWarLost/comments/1kl7ml6/president_trump_was_taking_money_from_the/o8794tn/
 
 Search engine hit on an old post? /r/HybridWarLost 
+
+https://old.reddit.com/r/politics/comments/1rii63x/trump_should_be_impeached_removed_from_office_for/o867zyl/
+
+27 day Reddit account. Most-popular upvoted comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT and the message in the comment is 140 character-think patterns that programs the  Reddit cult of Trump: GIVE_UP_ANTI_EDUCATION_ANTI_TEACH_ANTI_PROGRESS - just like Putin and Trump systems of Musk Twitter-think be the mindsets of  Russia and don't use teaching and education to learn from mistakes. Normalize it via Reddit jokes and give-up messages. Because entertainment addiction to Trump and other billionaires is the Reddit hive mind... inside-the-box mindsets / thinking.
