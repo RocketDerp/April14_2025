@@ -53,3 +53,7 @@ https://old.reddit.com/r/a:t5_3jubo/comments/1riwqvy/t5_3jubo_monday_april_3_201
 Reddit systems remove subReddits it deems unworthy of preserving and unconceals the database key of the subreddit name. NEW_ARG_PRIMARY_KEY t5_3jubo key in this case. So I decided to Romans 11:33 (Romans 11:32 ++) up the Reddit (Finnegans) Wake Reality places. ROMANS_11_32_PLUS_PLUS 
 
 Editing the Subreddit settings, post-name strip, reveals only the subReddit title is preserved on Old Reddit interface: Elementargedanke, "Elementary Ideas"
+
+https://old.reddit.com/r/ThunderWords/comments/1rixvp5/thundermemecom_war_and_peace_in_the_global/o897gik/
+
+My posting and comment to revive ThunderMeme.com themes and set ARG keys around.
