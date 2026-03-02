@@ -84,3 +84,7 @@ Social post { https://autistics.life/@RoundSparrow/116156424247293430 https://bs
 https://old.reddit.com/r/UnderReportedNews/comments/1ri9sbd/trump_issues_statement_on_dead_soldiers_killed_by/o84gd4p/
 
 TRUMP_FANDOM wants to see even more war and killing in the Middle East, and to see images of Trump family there standing around the dead bodies for Reddit content and entertainment. Very sick community that will not call for an END to the mental disorder. SEE_ALSO: https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Bandy_X_Lee/Avoided_And_Ignored_Since_April_20_2017.md
+
+https://old.reddit.com/r/worldnews/comments/1ria0mz/uk_will_allow_us_to_use_bases_to_strike_iranian/o84vv68/
+
+World Hate Affairs.
