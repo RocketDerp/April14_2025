@@ -288,3 +288,7 @@ This messages is demanding that Reddit community STOP asking for Trump's removal
 
 NEW_OPERA_NAME #ProblemIsThePeople   
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mg3bea3lzc24  https://autistics.life/@RoundSparrow/116159612292327238 }   
+
+https://old.reddit.com/r/politics/comments/1rii63x/trump_should_be_impeached_removed_from_office_for/o867aip/
+
+/r/Politics where goodness is washed away in favor of hyper normalizing Trump. WHHR GIVE_UP_SURRENDER messages on Reddit about how impeachment was tried twice, so never use it again. Normalizing the cult of people who guzzle Trump's photographs on /r/All of Reddit, Trump-speak, Trump-messages again and again since June 16, 2015. The media cultists. When did Reddit community have a big uprising to promote Dr.Bandy X Lee since her October 3, 2017 nonfiction book was published? When did Reddit community have a big REDDIT_BLACKOUT during the two impeachment hearings. Why is Reddit so inside-the-box thinking that an Internet protest isn't done? ANSWER: Reddit is the cult fandom of cult films, cult TV, cult politicians. Hate-watching TV cult of Trump. People do not use Reddit media systems to teach cult deprogramming and promote Dr. Lee - because that would remove the source of mockery and entertaining and it would be "boring" and "sleep" like when Joe Biden or other non-entertainment politicians are leading the USA. AVOIDED_DR_BANDY_X_LEE_PUBLIC_WRITINGS
