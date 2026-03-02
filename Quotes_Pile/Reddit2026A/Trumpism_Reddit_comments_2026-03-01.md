@@ -473,5 +473,8 @@ If only Reddit media users would have an uprising of organized Bible literacy ed
 
 https://old.reddit.com/r/news/comments/1riucnx/4th_service_member_dies_from_injuries_in_iran/o88h3q3/
 
-2nd most popular Reddit comment. Asking social media "engagement questions". Asking people to remember the media cult ideas. REMEMBER_THE_PROGRAM_IDEAS_BILLIONAIRES_FED_REDDIT_AUDIENCE
+2nd most popular Reddit comment. Asking social media "engagement questions". Asking people to remember the media cult ideas. 
 
+https://old.reddit.com/r/news/comments/1riucnx/4th_service_member_dies_from_injuries_in_iran/o88qj5z/
+
+"crazy". Then why isn't Dr. Bandy X Lee's nonfiction books front and center in Reddit commenting, being quoted and repeated if we have a national mental health crisis... REMEMBER_THE_PROGRAM_IDEAS_BILLIONAIRES_FED_REDDIT_AUDIENCE
