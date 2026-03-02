@@ -462,3 +462,8 @@ DEMOCRACY_DOES_NOT_WORK_WITHOUT_LOVE_THY_NEIGHBOR_COMPASSION_VALUES
 https://old.reddit.com/r/clevercomebacks/comments/1riuc8t/the_concept_of_equating_donald_trump_to_jesus/o88j45s/
 
 BIBLE_LITERACY crisis. We The People need a social media uprising: BRAIN_ROT_SOCIETY_47
+
+https://old.reddit.com/r/clevercomebacks/comments/1riuc8t/the_concept_of_equating_donald_trump_to_jesus/o88ii57/
+
+I can name one: Romans 11:32 - Jesus said sin, and Trump sins. See also: John 1:1 how Trump uses words. Reddit community follows the Trump leading. Matthew 4:19 is what Trump does. Pro-Ignorance Reddit commenting community. REPUBLICANS_LEAD_WITH_IGNORANCE_IDEAS_AND_FOLLOWERS_REPLY_WITH_IGNORANCE
+
