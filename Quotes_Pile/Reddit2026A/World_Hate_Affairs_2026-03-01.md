@@ -109,5 +109,8 @@ https://old.reddit.com/r/clevercomebacks/comments/1ripjeb/while_the_bombs_fall_i
 
 IGNORANCE_CELEBRATIONS Reddit fandoms of ignorance leaders of Iran and USA both cheering on how awesome war and ignorance are for images and fantasy. No desire to cult deprogram Andrew Tate media cult followers and Donald Trump media cult followers, because Reddit is a media cult venue of fandoms. DEATH_CULT anti-education anti-learning anti-progress that GUN_WORSHIP weapon-systems worshipers.
 
+https://old.reddit.com/r/clevercomebacks/comments/1ripjeb/while_the_bombs_fall_in_dubai/o87lqao/
+
+/r/Bald body shamig values. If you don't have the desired hair style for media cult image consumers on Reddit, cheer on death. Like Islamic Jihad media cults of the Quran science fiction cheer on killing of girls for not wearing proper hair covering in Iran and Afghanistan. ANTI_MALALA values. 
 
 
