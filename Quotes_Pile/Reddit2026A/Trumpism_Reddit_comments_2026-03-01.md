@@ -528,3 +528,7 @@ NOT_GOOD_ENOUGH - what's the "not like" about Dr. Bandy X Lee and Jen Senko, why
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1rj64uz/literally_unreal/o8azzip/
 
 This is how people in USA are spending their free time and spare time. Unimportant commenting on Internet devices. No Internet uprising. People are too entertained by MAGA values. ARE_YOU_SMARTER_THAN_3RD_GRADE_STUDENT_FANDOM_MEASURING
+
+https://old.reddit.com/r/politics/comments/1rjocc9/trump_admits_he_has_no_war_plan_in_bombshell/o8em048/
+
+7 month Reddit account. Top-upvoted most popular. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT Trump is "idiot". Yes, but why can the entire World  Wide  Web, all all the mental health workers in every nation, not promote Dr. Bandy X Lee's 27 leaders? Why can SOCIAL_MEDIA_DID_NOT ? Trump's power never made sense, not unless the entire population made a dramatic thinking system shift to Twitter-think in year 2013. Neil Postman's books. Russia is our enemy and people suddenly think Russia is cool and fun for killing people in Ukraine since February 20, 2014. Diseases like measles are now cool and popular since year 2014. Every photograph of Donald Trump gets upvoted to the top of Reddit since year 2015.
