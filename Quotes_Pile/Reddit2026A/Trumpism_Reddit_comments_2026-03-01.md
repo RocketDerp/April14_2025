@@ -516,3 +516,7 @@ https://old.reddit.com/r/nottheonion/comments/1rj63wm/melania_presides_over_un_s
 https://old.reddit.com/r/nottheonion/comments/1rj63wm/melania_presides_over_un_security_council_meeting/o8awkf4/
 
 3rd most popular upvoted comment. MIND_BLOWN_BY Surkov Governing techniques, absurd and surreal governing methods. Surkov Students blow the Reddit meme consumer minds every day, over and over, into predictable reactionary responses. No defense has been found to get people to stop flocking and blowing their minds out day after day on Kremlin and White House mind-blowing actions and messaging.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rj64uz/literally_unreal/o8ba8fa/
+
+The entire nation has become anti-intellectual and avoids serious nonfiction relevant books on paper since year 2013. Twitter-thinking MEDIA_MANIA has taken over USA society. Everyone calling people stupid, not recognizing that 100% of the population has become stupid. Why are people on Reddit not quoting Dr. Bandy X Lee's nonfiction mental health books since October 3, 2017.. ANSWER: people are too busy engaged in uninformative mocking comment messages on meme platforms. ANTI_REALITY anti-nonfiction.
