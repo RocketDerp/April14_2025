@@ -557,3 +557,12 @@ EPSTEIN_FANDOM is fixated only on rich white men sex lives. Anti-Malala giving g
 
 NEW_OPERA_NAME #HowManyTerrible #LongStringOf     
 Social post { https://autistics.life/@RoundSparrow/116166068871802203 https://bsky.app/profile/roundsparrow.bsky.social/post/3mg655whejk2n }   
+
+https://old.reddit.com/r/MurderedByWords/comments/1rjm6e7/a_typical_liberal_question/o8e5gi1/
+
+<img width="1796" height="719" alt="Screenshot from 2026-03-03 09-30-59" src="https://github.com/user-attachments/assets/aefc2e59-46a9-47e3-be5c-316c9793d912" />
+
+DENIAL_ABOUNDS There is so much DENIAL of the outcomes of **Meme Life** in USA. Brain rot USA.
+
+NEW_OPERA_NAME #ThisIsBrainRot   
+Social post { https://autistics.life/@RoundSparrow/116166205228654965 https://bsky.app/profile/roundsparrow.bsky.social/post/3mg673whuec2t }   
