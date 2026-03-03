@@ -566,3 +566,8 @@ DENIAL_ABOUNDS There is so much DENIAL of the outcomes of **Meme Life** in USA. 
 
 NEW_OPERA_NAME #ThisIsBrainRot   
 Social post { https://autistics.life/@RoundSparrow/116166205228654965 https://bsky.app/profile/roundsparrow.bsky.social/post/3mg673whuec2t }   
+
+https://old.reddit.com/r/MurderedByWords/comments/1rjm6e7/a_typical_liberal_question/o8e4lin/
+
+It is worse than that. REMEDIAL_MORALITY anything considered "good' is called "liberal" in a bad way. SELF_HARM_USA
+
