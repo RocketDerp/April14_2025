@@ -193,3 +193,6 @@ https://old.reddit.com/r/worldnews/comments/1rjregj/donald_trump_irans_military_
 
 Reddit fandom of Trump. Trump leads with mocking, Reddit community upvotes mocking. Feedback lops of mocking back and forth with MAGA / Trump / Fox News HDTV. MOCK_MOCK_MOCKERY 
 
+https://old.reddit.com/r/worldnews/comments/1rjmuyo/trump_slams_starmer_for_not_joining_us_strikes_on/o8elo67/
+
+NEGGING_WORKS_LANGUAGE_INSULTING_WORKS_REALITY_PROGRAMMING_LANGUAGE HATE_MOTIVATED_ECONOMY_HATE_AS_A_VIRTUE_SIGNALING  People really need to study how compassion-removal works in military training camps all over the world and throughout history. how you turn everyday people into organized killing gangs.
