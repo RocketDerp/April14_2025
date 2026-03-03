@@ -574,3 +574,15 @@ It is worse than that. REMEDIAL_MORALITY anything considered "good' is called "l
 https://old.reddit.com/r/news/comments/1rjym5z/leaked_interior_department_database_reveals_us/o8gqg2m/
 
 NOT_GOOD_ENOUGH Neil Postman nonfiction 1984 ++ = 1985 - about Reddit, Twitter.
+
+https://old.reddit.com/r/news/comments/1rjym5z/leaked_interior_department_database_reveals_us/o8gr7ii/
+
+* "The word "communist" became common in the 1840s, particularly following its usage by French, British, and German radical movements, and gained widespread international prominence after the 1848 publication of The Communist Manifesto by Karl Marx and Friedrich Engels. While rooted in 18th-century French, it became a distinct political term by 1840." - Google Search summary 2026-03-03 afternoon USA
+
+https://old.reddit.com/r/news/comments/1rjym5z/leaked_interior_department_database_reveals_us/o8gqwqu/
+
+SURKOV_SHUFFLE
+
+https://old.reddit.com/r/news/comments/1rjym5z/leaked_interior_department_database_reveals_us/o8gpgna/
+
+ENTERTAINED_JUST_PASSIVELY_WATCHING_UNTIL_DEATH_NO_SOCIAL_MEDIA_UPRISING_WHILE_ALIVE
