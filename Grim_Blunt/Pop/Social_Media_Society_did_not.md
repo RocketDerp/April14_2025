@@ -240,3 +240,10 @@ ANSWER: People are addicted to the media content of #TruthSocial and mocking Tru
 MidWest.Social my callout:
 
 https://GitHub.com/GreatSealUSA/Brainrot_Society_47/blob/main/UnderReacting_Opera/MidWest_Social/2026-03-02_Calling_out_The_Internet_Social_UnderReacting.md  
+
+&nbsp;
+
+# Boycott ChatGPT
+
+Top front of /r/All   
+https://old.reddit.com/r/memes/comments/1rjnwxa/boycott_chatgpt_cancel_your_subscriptions/
