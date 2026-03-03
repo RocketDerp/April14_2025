@@ -595,3 +595,7 @@ https://old.reddit.com/r/politics/comments/1rjw3qb/military_leaders_say_iran_war
 
 BIBLE_LITERACY and why hasn't social media society, Reddit media community, not made "1 John 3:17" famous in year 2024 with Elon Musk and Donald Trump. Because books on paper learning isn't desired for goodness.
 
+https://old.reddit.com/r/politics/comments/1rjw3qb/military_leaders_say_iran_war_is_so_trump_can/o8g8jjw/
+
+Good and bad, REMEDIAL_MORALITY lessons are long overdue. Reddit front page should be education and adult learning, as if our lives all depend on mutual attraction to goodness.
+[
