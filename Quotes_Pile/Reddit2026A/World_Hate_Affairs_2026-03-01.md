@@ -387,3 +387,7 @@ Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mg6ty7uoqs
 https://old.reddit.com/r/worldnews/comments/1rjkjim/trump_suggests_friendly_takeover_of_cuba_stating/o8fe6x0/
 
 The shit-commenting on Reddit, people won't stop! The shit-posting. The anti-intellectual crap media. WANT_TO_STOP_THE_SHIT_SHOW_SHIT_COMMENTING_ADDICTIONS_MEDIA
+
+https://old.reddit.com/r/worldnews/comments/1rjkjim/trump_suggests_friendly_takeover_of_cuba_stating/o8dvcz2/
+
+Social media keeps cheering hate onward. More hate HATE_HARDER messaging from We The People, from Reddit fandoms.
