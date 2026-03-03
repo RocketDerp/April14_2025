@@ -327,3 +327,6 @@ https://old.reddit.com/r/wikipedia/comments/1rjtyu6/on_september_2025_the_holoca
 
 MASS_DEHUMANIZATION_POPULAR
 
+https://old.reddit.com/r/PublicFreakout/comments/1rjvo4l/trump_on_spain_were_gonna_cut_off_all_trade_with/o8g4jrr/
+
+Top-most upvoted popular comment, Twitter-thinking anti-education anti-intellectual. Observe the avoidance of nonfiction Dr. Bandy X Lee books and calling for removal. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING 
