@@ -641,4 +641,14 @@ https://old.reddit.com/r/politics/comments/1rjw3qb/military_leaders_say_iran_war
 
 TOXIC_POPULARITY People can't see the fiction addiction crisis as people can't see what Twitter-think going on all over society in year 2026 is doing. It isn't just 2,000 year old bible story toxic patterns, it's all media toxic patterns of fiction and attraction to hate.
 
+https://old.reddit.com/r/politics/comments/1rjw3qb/military_leaders_say_iran_war_is_so_trump_can/o8g7ubr/
+
+5 month Reddit account.
+
+https://old.reddit.com/r/politics/comments/1rjw3qb/military_leaders_say_iran_war_is_so_trump_can/o8gfcoh/
+
+https://old.reddit.com/r/politics/comments/1rjw3qb/military_leaders_say_iran_war_is_so_trump_can/o8gjd3g/
+
+"cult", of low-information upvoting, 140 character thinking patterns.
+
 
