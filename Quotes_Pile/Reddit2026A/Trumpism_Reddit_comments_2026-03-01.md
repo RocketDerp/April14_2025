@@ -520,3 +520,7 @@ https://old.reddit.com/r/nottheonion/comments/1rj63wm/melania_presides_over_un_s
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1rj64uz/literally_unreal/o8ba8fa/
 
 The entire nation has become anti-intellectual and avoids serious nonfiction relevant books on paper since year 2013. Twitter-thinking MEDIA_MANIA has taken over USA society. Everyone calling people stupid, not recognizing that 100% of the population has become stupid. Why are people on Reddit not quoting Dr. Bandy X Lee's nonfiction mental health books since October 3, 2017.. ANSWER: people are too busy engaged in uninformative mocking comment messages on meme platforms. ANTI_REALITY anti-nonfiction.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rj64uz/literally_unreal/o8ax9t0/
+
+NOT_GOOD_ENOUGH - what's the "not like" about Dr. Bandy X Lee and Jen Senko, why are people so avoidant of extremely relevant women leaders on the topics of mental health and brainwashing... and constantly attracted to Donald Trump as a topic to comment about on Internet devices...
