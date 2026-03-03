@@ -667,3 +667,6 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1rjzz47/president_trump_has
 
 Good vs. bad. REMEDIAL_MORALITY lessons are essential. Adult education.
 
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rjzz47/president_trump_has_been_anointed_by_jesus_to/o8h6li7/
+
+RELIGION_CULTS_MONOMYTH_PROGRAMMING Surkov won since year 2013.
