@@ -185,3 +185,7 @@ https://old.reddit.com/r/worldnews/comments/1rjregj/donald_trump_irans_military_
 
 2nd most popular upvoted comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING 0 this is a fandom (Reddit community) quoting (an upvoting) their favorite Reality TV celebrity lines. Observe the free time and spare time spent engaging Trump instead of quoting Dr. Bandy X Lee's 27 writers and asking everyone to get on the same page (same book) of removing dangerous Trump.
 
+https://old.reddit.com/r/worldnews/comments/1rjregj/donald_trump_irans_military_gone_too_late_for/o8fkey7/
+
+REMINDER: everyone is thrilled in hate of Donald Trump. Always MORE HATE. HATE_HARDER - being excited about badness and war and no real cult deprogramming of the Quran and Mecca MONOMYTH_WARFARE -- the Anti-Malala attitudes...
+
