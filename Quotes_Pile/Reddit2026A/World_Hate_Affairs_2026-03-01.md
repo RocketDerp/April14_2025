@@ -213,3 +213,6 @@ https://old.reddit.com/r/worldnews/comments/1rjmuyo/trump_slams_starmer_for_not_
 
 World Hate Affairs of the heart. The audience fascination, attraction to hate. ATTRACTION_TO_HATE_LEADERS_HATE_FOLLOWERS - again, why is nobody on Reddit comment section attracted to nonfiction serious books by 27 writers published by Dr. Bandy X Lee since October 3, 2017 - that is extremely relevant to our national crisis... ANSWER: attraction to Trump as a fandom of media stimulation is the force of MAGA. Surkov won.
 
+https://old.reddit.com/r/worldnews/comments/1rjmuyo/trump_slams_starmer_for_not_joining_us_strikes_on/o8e8ghn/
+
+NEGGING_WORKS_LANGUAGE_INSULTING_WORKS_REALITY_PROGRAMMING_LANGUAGE "Then Trump comes into office and insults all the people" - show me someone quoting Martin Luther King Jr that has a following in March 2026? Because hate and insulting is the cult that Surkov students created since year 2013.
