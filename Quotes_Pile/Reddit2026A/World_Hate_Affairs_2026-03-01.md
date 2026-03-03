@@ -302,3 +302,9 @@ BRAIN_ROT_SOCIETY_47 TRUMP_BLIND snow blind to Trump entertainment images.
 https://old.reddit.com/r/UnderReportedNews/comments/1rjw7ti/spains_mep_irene_montero_we_must_isolate_the_us/o8gatup/
 
 HYPER_SIMPLE_TRIVIALIZE_BANAL_SELF_ONLY_CONCERN - people are being killed in war, minds are being enslaved in USA to Trump and Putin... but not standing up and using free time and spare time on Reddit media to promote and assert Dr. Bandy X Lee's nonfiction books since October 3, 2017.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rjw7ti/spains_mep_irene_montero_we_must_isolate_the_us/o8gd1qh/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rjw7ti/spains_mep_irene_montero_we_must_isolate_the_us/o8g7nc3/
+
+Surkov won since March 2013. Total loss of hearts and minds to self-harm SURKOV_MONOMYTH 
