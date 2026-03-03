@@ -65,3 +65,7 @@ Social post { https://autistics.life/@RoundSparrow/116167052035185718 https://bs
 https://old.reddit.com/r/interestingasfuck/comments/1rk0xrp/til_theres_a_website_where_you_can_watch_any_tv/o8h6apk/
 
 MEDIA_ECOLOGY_OBSERVATION   
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1rk08ka/i_dont_get_it/o8h260a/
+
+SUPERFICIAL_SHALLOW_PRIZING_TRUMPISM_MAGA_VALUES
