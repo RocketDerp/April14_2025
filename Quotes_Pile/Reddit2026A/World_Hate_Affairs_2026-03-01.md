@@ -335,3 +335,6 @@ https://old.reddit.com/r/PublicFreakout/comments/1rjvo4l/trump_on_spain_were_gon
 
 As long as there is Super Bowl and World Cup, the media addicts to celebrity leaders enjoy their rectangle logic inside-the-box thinking that billionaires conditioned in the population. FOLLOWERS_OF_LEADER_TRUMP_ACTOR_ENTERTAINER_DONALD_TRUMP_FOLLOWERS
 
+https://old.reddit.com/r/worldnews/comments/1rjvpfd/trump_not_happy_with_spains_position_on_iran_well/o8g2qcf/
+
+Tiny-short predictable Reddit reaction-to-Trump commenting message. ARE_YOU_SMARTER_THAN_3RD_GRADE_STUDENT_FANDOM_MEASURING
