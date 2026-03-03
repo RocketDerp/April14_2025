@@ -524,3 +524,7 @@ The entire nation has become anti-intellectual and avoids serious nonfiction rel
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1rj64uz/literally_unreal/o8ax9t0/
 
 NOT_GOOD_ENOUGH - what's the "not like" about Dr. Bandy X Lee and Jen Senko, why are people so avoidant of extremely relevant women leaders on the topics of mental health and brainwashing... and constantly attracted to Donald Trump as a topic to comment about on Internet devices...
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rj64uz/literally_unreal/o8azzip/
+
+This is how people in USA are spending their free time and spare time. Unimportant commenting on Internet devices. No Internet uprising. People are too entertained by MAGA values. ARE_YOU_SMARTER_THAN_3RD_GRADE_STUDENT_FANDOM_MEASURING
