@@ -228,3 +228,8 @@ https://old.reddit.com/r/worldnews/comments/1rjmuyo/trump_slams_starmer_for_not_
 https://old.reddit.com/r/worldnews/comments/1rjmuyo/trump_slams_starmer_for_not_joining_us_strikes_on/o8e9beu/
 
 TRICKLE_DOWN_MEMES_AND_MESSAGES cults of meme-thinking Twitter-thinking billionaire message programming.
+
+https://old.reddit.com/r/worldnews/comments/1rjmuyo/trump_slams_starmer_for_not_joining_us_strikes_on/o8ea8cc/
+
+TRUMP_FANDOM wishing to be closer to Trump and have more Trump intimacy at family meals. "Wouldn't you like to be a fly on the wall when Trump was a kid and say, eating dinner with his family?" Even talks about Trump's mental health in this Reddit comment, but OBSERVE the AVOIDED_DR_BANDY_X_LEE_PUBLIC_WRITINGS
+
