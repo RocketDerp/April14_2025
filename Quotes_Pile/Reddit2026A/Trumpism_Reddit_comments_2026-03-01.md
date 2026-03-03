@@ -623,3 +623,12 @@ https://old.reddit.com/r/politics/comments/1rjw3qb/military_leaders_say_iran_war
 
 Reddit commenting community using free time and spare time... avoiding asserting and quoting Dr. Bandy X Lee's 27 writers. Avoiding a Reddit blackout. Where is the Reddit social media protest? REDDIT_BLACKOUT
 
+https://old.reddit.com/r/politics/comments/1rjw3qb/military_leaders_say_iran_war_is_so_trump_can/o8gjish/
+
+LEVANT_MONOMYTH_CRISIS
+
+https://old.reddit.com/r/politics/comments/1rjw3qb/military_leaders_say_iran_war_is_so_trump_can/o8g5fjg/
+
+https://old.reddit.com/r/politics/comments/1rjw3qb/military_leaders_say_iran_war_is_so_trump_can/o8gfj8i/
+
+LEVANT_MONOMYTH_CRISIS
