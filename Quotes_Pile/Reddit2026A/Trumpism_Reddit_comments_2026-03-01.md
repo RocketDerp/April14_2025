@@ -686,3 +686,7 @@ Carl Sagan was correct in his 1995 book. WHEN_THE_PEOPLE_HAVE_LOST_THE_ABILITY
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1rjzz47/president_trump_has_been_anointed_by_jesus_to/o8hc4bc/
 
 MASS_DEHUMANIZATION_POPULAR popularity in USA is toxic. Hate-watching Trump is popular, txoic.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rjzz47/president_trump_has_been_anointed_by_jesus_to/o8ha22a/
+
+CIVIC_DUTY_WE_PEOPLE We The People have a civic duty to assert and quote Dr. Bandy X Lee's 27 leaders, and teach cult deprogramming, and stand up for nonfiction learning for adults.
