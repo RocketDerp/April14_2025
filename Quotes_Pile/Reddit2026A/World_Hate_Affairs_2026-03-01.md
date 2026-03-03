@@ -313,3 +313,6 @@ https://old.reddit.com/r/wikipedia/comments/1rjtyu6/on_september_2025_the_holoca
 
 8 month Reddit account. Top most upvoted popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
 
+https://old.reddit.com/r/wikipedia/comments/1rjtyu6/on_september_2025_the_holocaust_museum_la_posted/o8foz83/
+
+2nd most popular comment. Asking social media "engagement questions". ANSWER: This is the timeline of Twitter-thinking, Tweet-think, mindsets of TOXIC_POPULARITY and brain rot from reactionary media popularity like this museum. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
