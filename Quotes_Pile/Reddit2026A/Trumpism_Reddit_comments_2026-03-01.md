@@ -694,3 +694,7 @@ CIVIC_DUTY_WE_PEOPLE We The People have a civic duty to assert and quote Dr. Ban
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1rjzz47/president_trump_has_been_anointed_by_jesus_to/o8h6x91/
 
 HOW_SURKOV_WON Surkov won since March 2013. NATO lost.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rjzz47/president_trump_has_been_anointed_by_jesus_to/o8h6fit/
+
+4 month Reddit account. Social media "engagement questions". SYMBOLISM_INVERSION_MANIPULATION
