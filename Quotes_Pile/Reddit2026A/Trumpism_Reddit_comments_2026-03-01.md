@@ -548,3 +548,12 @@ Very popular on Reddit. "always", very simple thinking binary logic. Programmed 
 https://old.reddit.com/r/politics/comments/1rjocc9/trump_admits_he_has_no_war_plan_in_bombshell/o8eh380/
 
 8 month Reddit account. DENIAL_ABOUNDS living in a filter bubble. https://en.wikipedia.org/wiki/Filter_bubble "I know we aren’t a serious people anymore" - Dr. Bandy X Lee's nonfiction book with 27 people leading is on the public library shelf since October 3, 2017. And it isn't just the topic of politics. Measles, COVID-19 behaviors. Anti-intellectual Reddit all over the place on topics.
+
+https://old.reddit.com/r/politics/comments/1rjocc9/trump_admits_he_has_no_war_plan_in_bombshell/o8eqax3/
+
+<img width="934" height="1384" alt="image" src="https://github.com/user-attachments/assets/e5cf9058-0a12-4ead-ab45-877c08bd01e2" />
+
+EPSTEIN_FANDOM is fixated only on rich white men sex lives. Anti-Malala giving girls a voice. Anti Dr. Bandy X Lee, they believe anything that is not more Epstein files is a distraction. Simplistic logic binary.
+
+NEW_OPERA_NAME #HowManyTerrible #LongStringOf     
+Social post { https://autistics.life/@RoundSparrow/116166068871802203 https://bsky.app/profile/roundsparrow.bsky.social/post/3mg655whejk2n }   
