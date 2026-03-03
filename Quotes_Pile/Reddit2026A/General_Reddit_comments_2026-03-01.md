@@ -40,3 +40,8 @@ METAPHORS_IN_MOTION
 https://old.reddit.com/r/SipsTea/comments/1rjkp36/she_ate_his_soul_with_that_kiss/o8durxj/
 
 INTERCOURSE_DIALOG
+
+https://old.reddit.com/r/mildlyinteresting/comments/1rjs946/bookstore_misspells_its_own_name_on_big/o8fbzrz/
+
+CONCERNS_OF_FINNEGANS
+
