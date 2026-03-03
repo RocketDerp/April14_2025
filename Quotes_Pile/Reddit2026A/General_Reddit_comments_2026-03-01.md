@@ -37,3 +37,6 @@ https://old.reddit.com/r/Unexpected/comments/1riwgb9/blink_blink/o89wm9d/
 
 METAPHORS_IN_MOTION
 
+https://old.reddit.com/r/SipsTea/comments/1rjkp36/she_ate_his_soul_with_that_kiss/o8durxj/
+
+INTERCOURSE_DIALOG
