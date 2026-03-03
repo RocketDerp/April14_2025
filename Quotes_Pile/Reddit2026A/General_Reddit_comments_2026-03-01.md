@@ -52,3 +52,12 @@ Image on the front page of Reddit /r/All and audience member says: "I don't know
 https://old.reddit.com/r/mildlyinteresting/comments/1rjs946/bookstore_misspells_its_own_name_on_big/o8fghty/
 
 TARNISHED_BRAND_FOREVER_PERMANENT_BLOCK - any reason to dehumanize "The Little Guy" compared to a team / Corporate America.
+
+https://old.reddit.com/r/rareinsults/comments/1rjv6nr/god_can_be_a_serious_procrastinator/o8g7qc1/
+
+Pretty sophisticated moderation on Reddit.
+
+https://old.reddit.com/r/rareinsults/comments/1rjv6nr/god_can_be_a_serious_procrastinator/o8g0zhj/
+
+NEW_OPERA_NAME #DaddyIssuesAbound #WomenAsPeople    
+Social post { https://autistics.life/@RoundSparrow/116167052035185718 https://bsky.app/profile/roundsparrow.bsky.social/post/3mg6l7vd3y224 }   
