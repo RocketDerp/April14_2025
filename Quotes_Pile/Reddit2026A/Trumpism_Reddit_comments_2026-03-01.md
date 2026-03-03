@@ -586,3 +586,8 @@ SURKOV_SHUFFLE
 https://old.reddit.com/r/news/comments/1rjym5z/leaked_interior_department_database_reveals_us/o8gpgna/
 
 ENTERTAINED_JUST_PASSIVELY_WATCHING_UNTIL_DEATH_NO_SOCIAL_MEDIA_UPRISING_WHILE_ALIVE
+
+https://old.reddit.com/r/politics/comments/1rjw3qb/military_leaders_say_iran_war_is_so_trump_can/o8g42za/
+
+MONOMYTH_WARFARE MIND_BLOWN_BY monomyth programming from billionaires.
+
