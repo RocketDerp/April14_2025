@@ -156,3 +156,12 @@ Top most-upvoted popular comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER
 NOT_GOOD_ENOUGH Malala.
 
 Social post { https://autistics.life/@RoundSparrow/116162320601792672 https://bsky.app/profile/roundsparrow.bsky.social/post/3mg4hxzpslc2i }   
+
+https://old.reddit.com/r/worldnews/comments/1riyug3/iran_death_toll_reaches_555_as_us_israel_escalate/o8b2dfb/
+
+https://old.reddit.com/r/worldnews/comments/1riyug3/iran_death_toll_reaches_555_as_us_israel_escalate/o89sllh/
+
+https://old.reddit.com/r/worldnews/comments/1riyug3/iran_death_toll_reaches_555_as_us_israel_escalate/o89geyz/
+
+https://old.reddit.com/r/worldnews/comments/1riyug3/iran_death_toll_reaches_555_as_us_israel_escalate/o89xt4o/
+
