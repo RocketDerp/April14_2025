@@ -655,3 +655,6 @@ https://old.reddit.com/r/politics/comments/1rjw3qb/military_leaders_say_iran_war
 
 Regardless, the anti-goodness behaviors are observable. As are the avoidance of people calling for mental health leaderships for the situation. AVOIDED_DR_BANDY_X_LEE_PUBLIC_WRITINGS
 
+https://old.reddit.com/r/popculturechat/comments/1rjzp5x/carrie_underwood_tweets_after_being_booed_on/o8h63my/
+
+LOW_PRODUCTION_VALUES_MAGA_FANDOM
