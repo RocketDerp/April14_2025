@@ -236,3 +236,8 @@ TRUMP_FANDOM wishing to be closer to Trump and have more Trump intimacy at famil
 https://old.reddit.com/r/worldnews/comments/1rjmuyo/trump_slams_starmer_for_not_joining_us_strikes_on/o8edj0l/
 
 DENIAL_ABOUNDS This Reddit upvoting and commenting community believes Trump's talent is exactly what? The only talent Trump has is negging and hating people. It clearly DOES WORK, in real reality, beyond the psychological denial of authentic reality people have on Reddit! POTUS Tony Clifton performance works! And has for over a decade. NEGGING_WORKS_LANGUAGE_INSULTING_WORKS_REALITY_PROGRAMMING_LANGUAGE
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rjv3ba/trump_cuts_ties_with_spain_and_says_he_will_use/o8fwvxe/
+
+Top-most upvoted popular comment, entertainment-washing celebrity-washing master of ceremony mindset. Observe the avoidance of nonfiction Dr. Bandy X Lee books and calling for removal. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
+
