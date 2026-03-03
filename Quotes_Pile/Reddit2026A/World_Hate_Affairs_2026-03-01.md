@@ -391,3 +391,7 @@ The shit-commenting on Reddit, people won't stop! The shit-posting. The anti-int
 https://old.reddit.com/r/worldnews/comments/1rjkjim/trump_suggests_friendly_takeover_of_cuba_stating/o8dvcz2/
 
 Social media keeps cheering hate onward. More hate HATE_HARDER messaging from We The People, from Reddit fandoms.
+
+https://old.reddit.com/r/worldnews/comments/1rjkjim/trump_suggests_friendly_takeover_of_cuba_stating/o8e82jp/
+
+It's low-information "engagement" questioning. It's what We The People choose to do with intelligence, trash it with Twitter-think patterns. PROMOTING_IGNORANCE_WORKS_PLAYING_DUMB_MOCKING
