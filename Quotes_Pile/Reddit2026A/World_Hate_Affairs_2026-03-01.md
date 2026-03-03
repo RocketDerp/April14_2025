@@ -148,3 +148,11 @@ This entire posting is MEDIA_ECOLOGY_OBSERVATION MONOMYTH_VS_MONOMYTH of filter-
 https://old.reddit.com/r/europe/comments/1rixzjr/the_heritage_foundation_is_reportedly_working/o89ay2x/
 
 Top most-upvoted popular comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
+
+https://old.reddit.com/r/PopularCultureZone/comments/1rj58ms/thoughts/o8au8gq/
+
+Top most-upvoted popular comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
+
+NOT_GOOD_ENOUGH Malala.
+
+Social post { https://autistics.life/@RoundSparrow/116162320601792672 https://bsky.app/profile/roundsparrow.bsky.social/post/3mg4hxzpslc2i }   
