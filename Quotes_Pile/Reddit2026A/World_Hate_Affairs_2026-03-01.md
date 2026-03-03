@@ -372,3 +372,14 @@ MAXIMUM_PUTINIZATION
 https://old.reddit.com/r/worldnews/comments/1rjkjim/trump_suggests_friendly_takeover_of_cuba_stating/o8dybnb/
 
 Social media did not take the high road. The cults of Trump normalized hate. THE_HIGH_ROAD_IS_DR_BANDY_X_LEE_QUOTING_REPEATING
+
+https://old.reddit.com/r/worldnews/comments/1rjkjim/trump_suggests_friendly_takeover_of_cuba_stating/o8dzelq/
+
+https://old.reddit.com/r/worldnews/comments/1rjkjim/trump_suggests_friendly_takeover_of_cuba_stating/o8fl38y/
+
+<img width="1092" height="515" alt="image" src="https://github.com/user-attachments/assets/feab0cdd-93d0-4cbf-a0de-f98a985deac4" />
+
+JOKE_COMEDY_POWER_IS_MAGA_IS_TRUMP_IS_SURKOV joke-washing USA Reddit culture. DEATH_BY_LOL  
+
+NEW_OPERA_NAME #FunnyIf #WouldBeFunny #ComicBookEvil   
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mg6ty7uoqs2h  https://autistics.life/@RoundSparrow/116167674074637069 }   
