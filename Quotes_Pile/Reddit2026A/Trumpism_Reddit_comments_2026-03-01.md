@@ -540,3 +540,7 @@ https://old.reddit.com/r/politics/comments/1rjocc9/trump_admits_he_has_no_war_pl
 People don't desire safe. Media cults want thrilling entertainment and images on their meme devices. Joe Biden was too boring for media cults. Dr. Bandy X Lee's nonfiction books are unattractive to meme device users. SAFE_DANGER_IN_2017_NONFICTION_BOOK_TITLE  
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mg64g2ls6s27 https://autistics.life/@RoundSparrow/116166016924842980 }   
+
+https://old.reddit.com/r/politics/comments/1rjocc9/trump_admits_he_has_no_war_plan_in_bombshell/o8ehop4/
+
+Very popular on Reddit. "always", very simple thinking binary logic. Programmed into machine-love tech-love minds to hate human persons. MAGA_VALUES on Reddit, OUT_GROUP_HATE values. Do not blame computer media, don't blame Twitter-thinking, don't blame Fox News, don't blame Rupert Murdoch and Elon Musk for spreading such shallow and superficial thinking like this Reddit comment. DEFLECTION_FROM_BILLIONAIRES_AND_PUTINISM
