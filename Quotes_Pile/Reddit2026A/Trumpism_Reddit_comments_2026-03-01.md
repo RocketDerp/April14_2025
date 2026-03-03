@@ -714,3 +714,7 @@ https://old.reddit.com/r/MurderedByWords/comments/1rk25x8/spoken_like_a_true_rap
 https://old.reddit.com/r/MurderedByWords/comments/1rk25x8/spoken_like_a_true_rapist/o8hhm5j/
 
 PUTIN_SURKOV_TRUMP_LONG_TERM_YEARS_PLAN Surkov won. Pro-ignorance anti-nonfiction abounds.
+
+https://old.reddit.com/r/MurderedByWords/comments/1rk25x8/spoken_like_a_true_rapist/o8hg9l6/
+
+Cult of hate leaders. cult of orange skin jokes. Cult of diaper shit-postings. Avoidance of nonfiction books. PEOPLE_LOVE_COMEDY_MEDIA_CONTENT_MORE_THAN_PLURIBUS_HUMANISM
