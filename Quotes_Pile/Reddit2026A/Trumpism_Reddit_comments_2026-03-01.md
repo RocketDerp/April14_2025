@@ -632,3 +632,7 @@ https://old.reddit.com/r/politics/comments/1rjw3qb/military_leaders_say_iran_war
 https://old.reddit.com/r/politics/comments/1rjw3qb/military_leaders_say_iran_war_is_so_trump_can/o8gfj8i/
 
 LEVANT_MONOMYTH_CRISIS
+
+https://old.reddit.com/r/politics/comments/1rjw3qb/military_leaders_say_iran_war_is_so_trump_can/o8ghfle/
+
+Surkov won since year 2013. RUNAWAY_MONOMYTH
