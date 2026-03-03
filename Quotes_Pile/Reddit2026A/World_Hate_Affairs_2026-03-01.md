@@ -343,3 +343,16 @@ https://old.reddit.com/r/worldnews/comments/1rjvpfd/trump_not_happy_with_spains_
 
 Typical Trump Fandom on Reddit. No desire to remove Donald Trump from power, because the media addiction to watching Trump exceeds all universal goodness. PRIZING_HATE_FURTHERING_HATE Surkov won since March 2013.
 
+https://old.reddit.com/r/worldnews/comments/1rjqk39/israel_sends_troops_into_southern_lebanon_as/o8fbrqn/
+
+https://old.reddit.com/r/worldnews/comments/1rjqk39/israel_sends_troops_into_southern_lebanon_as/o8fdgwk/
+
+3 month Reddit account.
+
+https://old.reddit.com/r/worldnews/comments/1rjqk39/israel_sends_troops_into_southern_lebanon_as/o8g11xc/
+
+Religion is just science fiction storytelling. Cults of Reddit, cults of Twitter, cults of Fox News HDTV, cults of Bible storytelling. Church venue, cinema venue, Apple iPhone venue... media. There is no supernatural. RELIGION_CULTS_MONOMYTH_PROGRAMMING
+
+https://old.reddit.com/r/worldnews/comments/1rjqk39/israel_sends_troops_into_southern_lebanon_as/o8h8qg0/
+
+SEE_ALSO: https://GitHub.com/RocketDerp/April14_2025/blob/working/Grim_Blunt/Cognitive_Decline_Nation.md#harlan-ellison-middle-east-8000-years "Harlan Ellison, Middle East 8000 years"   
