@@ -165,3 +165,11 @@ https://old.reddit.com/r/worldnews/comments/1riyug3/iran_death_toll_reaches_555_
 
 https://old.reddit.com/r/worldnews/comments/1riyug3/iran_death_toll_reaches_555_as_us_israel_escalate/o89xt4o/
 
+https://old.reddit.com/r/PublicFreakout/comments/1rjgv4p/israels_impenetrable_defense_umbrella_fails_to/o8d59nz/
+
+https://old.reddit.com/r/PublicFreakout/comments/1rjgv4p/israels_impenetrable_defense_umbrella_fails_to/o8d3wza/
+
+https://old.reddit.com/r/PublicFreakout/comments/1rjgv4p/israels_impenetrable_defense_umbrella_fails_to/o8d8ull/
+
+https://old.reddit.com/r/PublicFreakout/comments/1rjgv4p/israels_impenetrable_defense_umbrella_fails_to/o8d4r8f/
+
