@@ -216,3 +216,7 @@ World Hate Affairs of the heart. The audience fascination, attraction to hate. A
 https://old.reddit.com/r/worldnews/comments/1rjmuyo/trump_slams_starmer_for_not_joining_us_strikes_on/o8e8ghn/
 
 NEGGING_WORKS_LANGUAGE_INSULTING_WORKS_REALITY_PROGRAMMING_LANGUAGE "Then Trump comes into office and insults all the people" - show me someone quoting Martin Luther King Jr that has a following in March 2026? Because hate and insulting is the cult that Surkov students created since year 2013.
+
+https://old.reddit.com/r/worldnews/comments/1rjmuyo/trump_slams_starmer_for_not_joining_us_strikes_on/o8e9qng/
+
+Shit-posting shit-commenting addicts on Reddit want more shit headlines. Trivial changes. The cults on Reddit do not want to REMOVE Trump, they just want different media content to feed the shit desires. ATTRACTION_TO_SHIT_CONTENT_ENSHIT_BY_DESIRE And this Reddit comment messaging is a call for change of media, not for a call of change in values and morals. CALL_FOR_ACTION_TO_DO_TRIVIAL_CHANGE
