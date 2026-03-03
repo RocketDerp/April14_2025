@@ -264,3 +264,7 @@ Trend, Trending social media, trending /r/All anti-intellectual anti-education f
 https://old.reddit.com/r/politics/comments/1rjsxvr/kash_patel_fired_entire_team_of_iran_experts/o8fh1l6/
 
 3 words, clown population, We The People clowns. Under 140 character "engagement" questions. FANATICS_FANS_OF_CLOWNS_FANS_OF_MAGA_CLOWNING
+
+https://old.reddit.com/r/politics/comments/1rjsxvr/kash_patel_fired_entire_team_of_iran_experts/o8fkpzg/
+
+But everyone forgets to cite nonfiction on Reddit media. Never Forget August 24, 2018 DANGER_ALERT_CALL_TO_INTELLECTUAL_ARMS_BOOK_CRAM_SESSIONS https://www.BBC.com/news/world-us-canada-45294192
