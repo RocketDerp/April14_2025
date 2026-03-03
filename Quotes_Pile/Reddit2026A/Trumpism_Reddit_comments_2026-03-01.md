@@ -678,3 +678,7 @@ Russia has been programming it into media consumer minds for over a decade. SURK
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1rjzz47/president_trump_has_been_anointed_by_jesus_to/o8hd942/
 
 Bible verse Romans 11:32 ROMANS_11_32_PLUS_PLUS  
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rjzz47/president_trump_has_been_anointed_by_jesus_to/o8h74qc/
+
+Carl Sagan was correct in his 1995 book. WHEN_THE_PEOPLE_HAVE_LOST_THE_ABILITY
