@@ -224,3 +224,7 @@ Shit-posting shit-commenting addicts on Reddit want more shit headlines. Trivial
 https://old.reddit.com/r/worldnews/comments/1rjmuyo/trump_slams_starmer_for_not_joining_us_strikes_on/o8ezanj/
 
 4 month Reddit account. DENIAL_ABOUNDS of the anti-reality that USA population lives in, shit-commenting, shit-posting addictions nation.
+
+https://old.reddit.com/r/worldnews/comments/1rjmuyo/trump_slams_starmer_for_not_joining_us_strikes_on/o8e9beu/
+
+TRICKLE_DOWN_MEMES_AND_MESSAGES cults of meme-thinking Twitter-thinking billionaire message programming.
