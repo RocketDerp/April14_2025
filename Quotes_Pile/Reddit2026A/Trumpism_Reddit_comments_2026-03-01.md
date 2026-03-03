@@ -544,3 +544,7 @@ Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mg64g2ls6s
 https://old.reddit.com/r/politics/comments/1rjocc9/trump_admits_he_has_no_war_plan_in_bombshell/o8ehop4/
 
 Very popular on Reddit. "always", very simple thinking binary logic. Programmed into machine-love tech-love minds to hate human persons. MAGA_VALUES on Reddit, OUT_GROUP_HATE values. Do not blame computer media, don't blame Twitter-thinking, don't blame Fox News, don't blame Rupert Murdoch and Elon Musk for spreading such shallow and superficial thinking like this Reddit comment. DEFLECTION_FROM_BILLIONAIRES_AND_PUTINISM
+
+https://old.reddit.com/r/politics/comments/1rjocc9/trump_admits_he_has_no_war_plan_in_bombshell/o8eh380/
+
+8 month Reddit account. DENIAL_ABOUNDS living in a filter bubble. https://en.wikipedia.org/wiki/Filter_bubble "I know we aren’t a serious people anymore" - Dr. Bandy X Lee's nonfiction book with 27 people leading is on the public library shelf since October 3, 2017. And it isn't just the topic of politics. Measles, COVID-19 behaviors. Anti-intellectual Reddit all over the place on topics.
