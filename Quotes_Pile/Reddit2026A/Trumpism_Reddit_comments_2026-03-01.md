@@ -658,3 +658,12 @@ Regardless, the anti-goodness behaviors are observable. As are the avoidance of 
 https://old.reddit.com/r/popculturechat/comments/1rjzp5x/carrie_underwood_tweets_after_being_booed_on/o8h63my/
 
 LOW_PRODUCTION_VALUES_MAGA_FANDOM
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rjzz47/president_trump_has_been_anointed_by_jesus_to/o8h38rt/
+
+BIBLE_LITERACY crisis.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rjzz47/president_trump_has_been_anointed_by_jesus_to/o8hac4v/
+
+Good vs. bad. REMEDIAL_MORALITY lessons are essential. Adult education.
+
