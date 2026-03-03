@@ -710,3 +710,7 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1rjzz47/president_trump_has
 https://old.reddit.com/r/MurderedByWords/comments/1rk25x8/spoken_like_a_true_rapist/o8hf7b5/
 
 1 month Reddit account. Top-upvoted popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+
+https://old.reddit.com/r/MurderedByWords/comments/1rk25x8/spoken_like_a_true_rapist/o8hhm5j/
+
+PUTIN_SURKOV_TRUMP_LONG_TERM_YEARS_PLAN Surkov won. Pro-ignorance anti-nonfiction abounds.
