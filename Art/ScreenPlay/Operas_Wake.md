@@ -75,3 +75,23 @@ HashTag #TimFinneganFuneral
 
 https://bsky.app/profile/roundsparrow.bsky.social/post/3mf5h46stuk2p   
 https://autistics.life/@RoundSparrow/116092457594659138   
+
+&nbsp;
+
+&nbsp;
+
+# ThunderMeme.com 2026-03-02 
+
+Updated pages with playlist on subpage https://www.ThunderMeme.com/In_The_Beginning
+
+https://youtu.be/wG2S8_He-r4?list=PLNOhLGaCLLEe2HPOynXMenSm4wYD2SKUk&t=71
+
+ALP in Finnegans Wake in Paul Simon song    
+
+"Earth becomes a farm   
+Farmer takes a wife   
+**Wife becomes a river and the giver of life**   
+Man becomes machine   
+Oil runs down his face   
+Machine becomes a man with a bomb in the marketplace   
+Bomb in the marketplace, bomb in the marketplace"   

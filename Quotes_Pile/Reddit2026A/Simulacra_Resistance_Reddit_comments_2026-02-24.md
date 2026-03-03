@@ -48,3 +48,55 @@ This entire posting on /r/All front page is the Reddit community celebrating the
 
 NEW_OPERA_NAME #ResistingWhatExactly #InsincereResistance     
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mfwnkaaoi22h https://autistics.life/@RoundSparrow/116149206200544436 }    
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rhywq1/where_did_america_first_go_where_is_the_zero_war/o824xdd/
+
+This entire Reddit posting is a simulation of resisting. People making low-effort patterns of questions and blaming only figureheads. The ENTIRE SOCIETY, including Reddit comment community, has largely abandoned nonfiction book reading since year 2013 in favor of low-information social upvoting and filter bubbles. SEE_ALSO https://en.Wikipedia.org/wiki/Low_information_voter and SEE_ALSO https://en.Wikipedia.org/wiki/Filter_bubble
+
+EXPLAIN AND PONDER EXPLAIN_AND_PONDER_AND_CONTEMPLATE_FOREST_FOR_TREES why do you not see Rupert Murdoch not being blamed constantly in every comment? Many White House employees are from Fox News HDTV! That is where they were trained and educated on media practitioners of what AUDIENCES desire. Reddit users are doing exactly what Fox News audiences do: mocking, avoiding nonfiction serious books on paper! Mocking and mockery against out-groups. That's the simulation. Feedback looping, game looping. Media vs. media. Mocking vs. Mocking. MOCK_MOCK_MOCKERY hate vs. hate. Out-group hate vs. out-group hate. 
+
+SEE_ALSO See this educational website I created: https://www.IndraJāla.com/brave-new-world/mock-mock-mockery AGGRESSIVE_ESCALATE_HATE_REACT_HARDER_MINDSETS
+
+https://old.reddit.com/r/clevercomebacks/comments/1rhxm32/trump_is_now_24185230_in_hypothetical_situations/o81vu91/
+
+Framing this as "clever", it isn't. It's celebration of ignorance. It is prizing ignorant content off another platform (Twitter screen shot?) and setting an extremely low bar of measure for "clever" and really it's anti-intellectual programming. ARE_YOU_SMARTER_THAN_3RD_GRADE_STUDENT_FANDOM_MEASURING
+
+This content on Reddit isn't resisting, it's engaging, it's garbage-in garbage-out, feeding adults on Reddit ignorance. This has been ongoing with the cults of ignorance since year 2013. Surkov won since March 2013. Note the prized screen shot image says keyword: "Leftist" simulation back and forth simple-think mindsets. Left-right brain-rot mindsets. BRAIN_ROT_LEFT_RIGHT_LIB_CON_NAME_AVOIDANCE - as this wildcard meaning can be played with to say "pro-cancer", as in this Trump Kremlin media messaging method.
+
+https://old.reddit.com/r/ImmigrationPathways/comments/1rhzmf4/trump_has_turned_china_into_the_good_guys/o82bjgp/
+
+Study the Reddit title of this posting created by Reddit community. This is the most upvoted popular comment. It's about celebration of ignorance, prizing low-effort commenting and consistently avoiding serious nonfiction books on paper. OBSERVE_MEDIA_AVOIDANCE_OF_RELEVANT_NONFICTION People are playing a simulation game, media game of messaging on computers, back and forth at a very low level of thinking.
+
+https://old.reddit.com/r/ImmigrationPathways/comments/1rhzmf4/trump_has_turned_china_into_the_good_guys/o82f6xv/
+
+2nd most upvoted popular comment. Extreme tiny-short thinking patterns of binary good vs. bad. REMEDIAL_MORALITY of good vs bad is essential teaching and rescue of people. This is low-effort thoughtless simulation of 'resisting' ignorance. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
+
+https://old.reddit.com/r/ImmigrationPathways/comments/1rhzmf4/trump_has_turned_china_into_the_good_guys/o82apj5/
+
+1 month Reddit account. 3rd most popular upvoted comment. Extreme simplistic conditioned thinking patterns. This is not resisting ignorance, this is promoting ignorance via Reddit commenting messages. Also note the username of the comment creator metaphorically means "brain rot" and is promoting reactionary mindsets with the 1 month new account.
+
+https://old.reddit.com/r/International/comments/1rib4uu/leaked_footage_from_us_war_room_where_currently/o84zb2h/
+
+It is ANTI_REALITY - it is embrace of the fiction leadership of Putin, Trump, Murdoch, Musk, etc. It is why Trump has so much power. SEX_SELLS_SEX_LEADERS - and why Trump talks about Arnold Palmer's penis size and other sex acts in front of his fandom... because people will do ANYTHING and EVERYTHING to avoid nonfiction reality itself. Serous relevant books from Dr. Bandy X Lee avoided on /r/All front page of Reddit for sick fantasy sex images of Trump. AVOIDED_DR_BANDY_X_LEE_PUBLIC_WRITINGS
+
+https://old.reddit.com/r/International/comments/1rib4uu/leaked_footage_from_us_war_room_where_currently/o851hpp/
+
+9 month Reddit account.
+
+https://old.reddit.com/r/International/comments/1rib4uu/leaked_footage_from_us_war_room_where_currently/o852goc/
+
+https://old.reddit.com/r/International/comments/1rib4uu/leaked_footage_from_us_war_room_where_currently/o853hel/
+
+https://old.reddit.com/r/International/comments/1rib4uu/leaked_footage_from_us_war_room_where_currently/o8551b0/
+
+But very popular in the era of Trump followers, people who follow Trump's leadership of shit-posting shit-commenting shit leadership. An entire nation who can't turn to Dr. Bandy X Lee's nonfiction leadership since October 3, 2017. ATTRACTION_TO_SHIT_CONTENT_ENSHIT_BY_DESIRE
+
+
+https://old.reddit.com/r/MurderedByWords/comments/1rj38eq/i_found_one/o8aaxcd/
+
+Top-most popular upvoted comment about Tim Pool Twitter screenshot. MAGA_FANDOM behaviors of Reddit media cult. In no way is this comment *resisting* the anti-intellectual Russia manipulation PUTIN_SURKOV_TRUMP_LONG_TERM_YEARS_PLAN - it's just COMMENTING about the situation. Describing the "irony" like it's just a fiction story about some distant planet. Not facing up to the Kremlin's War Against Reality right on Reddit media!  REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
+
+https://old.reddit.com/r/MurderedByWords/comments/1rj38eq/i_found_one/o8ab6n0/
+
+ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING
+

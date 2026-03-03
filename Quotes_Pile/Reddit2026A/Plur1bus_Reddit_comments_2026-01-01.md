@@ -2494,3 +2494,11 @@ CONSERVING_WHAT - exactly what are people conserving? It's such a generic non-sp
 
 * “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.”
 ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. October 8, 2013. About Swat Valley Pakistan conservatives.
+
+https://old.reddit.com/r/meme/comments/1ris3h6/skyler/o883xgw/
+
+This entire front-page /r/All posting is Trumpism values. FAN_PASSION_MAGA_VALUES and VINCE_GILLIGAN_WAS_CORRECT about Internet cesspools (Reddit media fanatics). The mocking and hate of the actress who plays Skyler White, the wife of Walter White in Breaking Bad, is Anna Gunn. SEE_ALSO https://old.reddit.com/r/breakingbad/comments/14g2wp9/can_someone_explain_to_me_the_death_threats_anna/ SUPERFICIAL_SHALLOW_PRIZING_TRUMPISM_MAGA_VALUES
+
+Today is Monday March 2, 2026. This is how USA TV show audiences (Breaking Bad is core USA ABQ show, Reddit is California USA) and film audiences are spending their time. Talking about a world famous celebrity, two of them, while worshiping a leader celebrity, Donald Trump TV star / icon status symbol. INSTEAD of calling for the removal of Trump, spending free time and spare time doing IGNORANCE_CELEBRATIONS on Reddit media information systems.
+
+* “Americans no longer talk to each other, they entertain each other. They **do not exchange ideas**, they exchange images. They do not argue with propositions; **they argue with good looks, celebrities** and commercials.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. Year 1985.
