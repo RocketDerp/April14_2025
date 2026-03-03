@@ -356,3 +356,12 @@ Religion is just science fiction storytelling. Cults of Reddit, cults of Twitter
 https://old.reddit.com/r/worldnews/comments/1rjqk39/israel_sends_troops_into_southern_lebanon_as/o8h8qg0/
 
 SEE_ALSO: https://GitHub.com/RocketDerp/April14_2025/blob/working/Grim_Blunt/Cognitive_Decline_Nation.md#harlan-ellison-middle-east-8000-years "Harlan Ellison, Middle East 8000 years"   
+
+https://old.reddit.com/r/worldnews/comments/1rjkjim/trump_suggests_friendly_takeover_of_cuba_stating/o8dxgxb/
+
+Top-most upvoted popular comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
+
+https://old.reddit.com/r/worldnews/comments/1rjkjim/trump_suggests_friendly_takeover_of_cuba_stating/o8drrdg/
+
+Surkov named the war. WAR_ALL_AGAINST_ALL
+
