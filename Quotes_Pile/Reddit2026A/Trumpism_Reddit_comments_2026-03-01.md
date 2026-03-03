@@ -698,3 +698,7 @@ HOW_SURKOV_WON Surkov won since March 2013. NATO lost.
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1rjzz47/president_trump_has_been_anointed_by_jesus_to/o8h6fit/
 
 4 month Reddit account. Social media "engagement questions". SYMBOLISM_INVERSION_MANIPULATION
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rjzz47/president_trump_has_been_anointed_by_jesus_to/o8hjrhx/
+
+BEYOND_DENIAL yes. There is nothing magical or supernatural about Bible storytelling. BOOK_SUPREMACY is taught by parents to children, indoctrination with toys at Christmas, Easter Bunny, etc. People are indoctrinated into Corporate America just the same, Disney, Reddit, Fox News HDTV, etc.
