@@ -512,3 +512,7 @@ The most-popular upvoted comment. Not even 140 characters. Cracking jokes to nor
 https://old.reddit.com/r/nottheonion/comments/1rj63wm/melania_presides_over_un_security_council_meeting/o8awyti/
 
 2nd most popular upvoted comment. EPSTEIN_FANDOM talking about the Epstein Hillary Clinton testimony. The posting is about the United Nations Security Council - about Iran war, Israel, USA military. Which is not about Epstein and Hillary Clinton testimony. But the Reddit media cult of Epstein doesn't want to REMOVE Donald Trump, it is a cult of people who want more information. EPSTEIN_BUT_NOT_PUTIN_UKRAINE_CHILDREN_NOT_MALALA
+
+https://old.reddit.com/r/nottheonion/comments/1rj63wm/melania_presides_over_un_security_council_meeting/o8awkf4/
+
+3rd most popular upvoted comment. MIND_BLOWN_BY Surkov Governing techniques, absurd and surreal governing methods. Surkov Students blow the Reddit meme consumer minds every day, over and over, into predictable reactionary responses. No defense has been found to get people to stop flocking and blowing their minds out day after day on Kremlin and White House mind-blowing actions and messaging.
