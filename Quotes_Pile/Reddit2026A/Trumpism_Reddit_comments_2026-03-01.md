@@ -602,3 +602,8 @@ Good and bad, REMEDIAL_MORALITY lessons are long overdue. Reddit front page shou
 https://old.reddit.com/r/politics/comments/1rjw3qb/military_leaders_say_iran_war_is_so_trump_can/o8g4l0n/
 
 SELF_HARM_USA DEATH_CULT media cult. People willing to die for monomyth storytelling patterns.
+
+https://old.reddit.com/r/politics/comments/1rjw3qb/military_leaders_say_iran_war_is_so_trump_can/o8g4pwu/
+
+28 day Reddit account. Mental health of Trump discussed, but NOT_GOOD_ENOUGH Dr. Bandy X Lee's October 3, 2017 book with 27 educators for the general public.
+
