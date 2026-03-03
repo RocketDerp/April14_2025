@@ -706,3 +706,7 @@ BEYOND_DENIAL yes. There is nothing magical or supernatural about Bible storytel
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1rjzz47/president_trump_has_been_anointed_by_jesus_to/o8ha67y/
 
 "insane". THE_HIGH_ROAD_IS_DR_BANDY_X_LEE_QUOTING_REPEATING
+
+https://old.reddit.com/r/MurderedByWords/comments/1rk25x8/spoken_like_a_true_rapist/o8hf7b5/
+
+1 month Reddit account. Top-upvoted popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
