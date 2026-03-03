@@ -244,3 +244,7 @@ Top-most upvoted popular comment, entertainment-washing celebrity-washing master
 https://old.reddit.com/r/UnderReportedNews/comments/1rjv3ba/trump_cuts_ties_with_spain_and_says_he_will_use/o8g51v3/
 
 DECEMBER_5_2014_NATO_JOKE_ARTICLE_5_JOKE See video clip, SEE_ALSO https://www.youtube.com/clip/UgkxsPMnrK_RCklBbjHHrPqdSuMi23zhsX_M 33,699 views December 5, 2014
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rjv3ba/trump_cuts_ties_with_spain_and_says_he_will_use/o8fzih1/
+
+Reddit audience unable to organize, unable to escape the 140 character Twitter-think mindset. SCHOOLS_OF_THOUGHT_FEEDBACK_LOOPS_INSIDE_BOXED_MINDSETS
