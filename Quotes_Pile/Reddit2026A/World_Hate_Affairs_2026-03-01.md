@@ -365,3 +365,10 @@ https://old.reddit.com/r/worldnews/comments/1rjkjim/trump_suggests_friendly_take
 
 Surkov named the war. WAR_ALL_AGAINST_ALL
 
+https://old.reddit.com/r/worldnews/comments/1rjkjim/trump_suggests_friendly_takeover_of_cuba_stating/o8dw2ee/
+
+MAXIMUM_PUTINIZATION
+
+https://old.reddit.com/r/worldnews/comments/1rjkjim/trump_suggests_friendly_takeover_of_cuba_stating/o8dybnb/
+
+Social media did not take the high road. The cults of Trump normalized hate. THE_HIGH_ROAD_IS_DR_BANDY_X_LEE_QUOTING_REPEATING
