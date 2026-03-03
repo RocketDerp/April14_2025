@@ -173,3 +173,6 @@ https://old.reddit.com/r/PublicFreakout/comments/1rjgv4p/israels_impenetrable_de
 
 https://old.reddit.com/r/PublicFreakout/comments/1rjgv4p/israels_impenetrable_defense_umbrella_fails_to/o8d4r8f/
 
+https://old.reddit.com/r/PublicFreakout/comments/1rjgv4p/israels_impenetrable_defense_umbrella_fails_to/o8damuu/
+
+Fiction outsells nonfictoin.
