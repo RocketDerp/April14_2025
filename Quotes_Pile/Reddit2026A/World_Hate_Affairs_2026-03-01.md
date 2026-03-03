@@ -338,3 +338,8 @@ As long as there is Super Bowl and World Cup, the media addicts to celebrity lea
 https://old.reddit.com/r/worldnews/comments/1rjvpfd/trump_not_happy_with_spains_position_on_iran_well/o8g2qcf/
 
 Tiny-short predictable Reddit reaction-to-Trump commenting message. ARE_YOU_SMARTER_THAN_3RD_GRADE_STUDENT_FANDOM_MEASURING
+
+https://old.reddit.com/r/worldnews/comments/1rjvpfd/trump_not_happy_with_spains_position_on_iran_well/o8g2ub1/
+
+Typical Trump Fandom on Reddit. No desire to remove Donald Trump from power, because the media addiction to watching Trump exceeds all universal goodness. PRIZING_HATE_FURTHERING_HATE Surkov won since March 2013.
+
