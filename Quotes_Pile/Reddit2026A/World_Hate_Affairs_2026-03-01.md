@@ -252,3 +252,15 @@ Reddit audience unable to organize, unable to escape the 140 character Twitter-t
 https://old.reddit.com/r/UnderReportedNews/comments/1rjv3ba/trump_cuts_ties_with_spain_and_says_he_will_use/o8fz2aj/
 
 8 month Reddit account. 2 word, extreme tiny-short thinking and messaging patterns. ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING
+
+https://old.reddit.com/r/politics/comments/1rjsxvr/kash_patel_fired_entire_team_of_iran_experts/o8fgixc/
+
+Top-most upvoted popular comment, Twitter-thinking anti-education anti-intellectual. Observe the avoidance of nonfiction Dr. Bandy X Lee books and calling for removal. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
+
+https://old.reddit.com/r/politics/comments/1rjsxvr/kash_patel_fired_entire_team_of_iran_experts/o8fgj4j/
+
+Trend, Trending social media, trending /r/All anti-intellectual anti-education for adults population. TOXIC_POPULARITY of media cults to mocking and hate. Twitter-thinking USA, Fox News HDTV thinking. Media addictions, media cults are popular.
+
+https://old.reddit.com/r/politics/comments/1rjsxvr/kash_patel_fired_entire_team_of_iran_experts/o8fh1l6/
+
+3 words, clown population, We The People clowns. Under 140 character "engagement" questions. FANATICS_FANS_OF_CLOWNS_FANS_OF_MAGA_CLOWNING
