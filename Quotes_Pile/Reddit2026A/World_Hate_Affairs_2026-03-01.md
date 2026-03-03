@@ -241,3 +241,6 @@ https://old.reddit.com/r/UnderReportedNews/comments/1rjv3ba/trump_cuts_ties_with
 
 Top-most upvoted popular comment, entertainment-washing celebrity-washing master of ceremony mindset. Observe the avoidance of nonfiction Dr. Bandy X Lee books and calling for removal. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
 
+https://old.reddit.com/r/UnderReportedNews/comments/1rjv3ba/trump_cuts_ties_with_spain_and_says_he_will_use/o8g51v3/
+
+DECEMBER_5_2014_NATO_JOKE_ARTICLE_5_JOKE See video clip, SEE_ALSO https://www.youtube.com/clip/UgkxsPMnrK_RCklBbjHHrPqdSuMi23zhsX_M 33,699 views December 5, 2014
