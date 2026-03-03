@@ -204,3 +204,7 @@ RECENCY_BIAS abounds. People in USA have so much extreme information overload th
 https://old.reddit.com/r/worldnews/comments/1rjmuyo/trump_slams_starmer_for_not_joining_us_strikes_on/o8ecdrn/
 
 "LOL" to Trump messaging. PEOPLE_LOVE_COMEDY_MEDIA_CONTENT_MORE_THAN_PLURIBUS_HUMANISM
+
+https://old.reddit.com/r/worldnews/comments/1rjmuyo/trump_slams_starmer_for_not_joining_us_strikes_on/o8e9jl9/
+
+"in the middle east, thousands got injuried, and several hundreds died, over wars based on nothing" - it is Bible science fiction fandom vs. Quran retcon science fiction fandom. MONOMYTH_VS_MONOMYTH warfare. media cult vs. media cult warfare.
