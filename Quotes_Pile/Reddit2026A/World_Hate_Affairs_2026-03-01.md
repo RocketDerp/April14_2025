@@ -272,3 +272,33 @@ But everyone forgets to cite nonfiction on Reddit media. Never Forget August 24,
 https://old.reddit.com/r/UnderReportedNews/comments/1rjw7ti/spains_mep_irene_montero_we_must_isolate_the_us/o8g6qjo/
 
 Top-most upvoted popular comment, Twitter-thinking anti-education anti-intellectual. Observe the avoidance of nonfiction Dr. Bandy X Lee books and calling for removal. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING Reddit users don't "have the balls" to quote Dr. Lee and confront their mental health avoidance of nonfiction relevant books.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rjw7ti/spains_mep_irene_montero_we_must_isolate_the_us/o8g7g7g/
+
+ATTRACTION_TO_HATE_LEADERS_HATE_FOLLOWERS
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rjw7ti/spains_mep_irene_montero_we_must_isolate_the_us/o8g5q6r/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rjw7ti/spains_mep_irene_montero_we_must_isolate_the_us/o8g8418/
+
+SEX_SELLS_SEX_LEADERS
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rjw7ti/spains_mep_irene_montero_we_must_isolate_the_us/o8g81do/
+
+REMEDIAL_MORALITY education is essential for adults. Twitter-think morals are horrific since year 2013. Surkov won.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rjw7ti/spains_mep_irene_montero_we_must_isolate_the_us/o8gag13/
+
+SEX_SELLS_SEX_LEADERS
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rjw7ti/spains_mep_irene_montero_we_must_isolate_the_us/o8g9qn7/
+
+SEX_SELLS_SEX_LEADERS
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rjw7ti/spains_mep_irene_montero_we_must_isolate_the_us/o8gczxi/
+
+BRAIN_ROT_SOCIETY_47 TRUMP_BLIND snow blind to Trump entertainment images.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rjw7ti/spains_mep_irene_montero_we_must_isolate_the_us/o8gatup/
+
+HYPER_SIMPLE_TRIVIALIZE_BANAL_SELF_ONLY_CONCERN - people are being killed in war, minds are being enslaved in USA to Trump and Putin... but not standing up and using free time and spare time on Reddit media to promote and assert Dr. Bandy X Lee's nonfiction books since October 3, 2017.
