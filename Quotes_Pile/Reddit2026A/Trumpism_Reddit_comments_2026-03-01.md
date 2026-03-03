@@ -651,4 +651,7 @@ https://old.reddit.com/r/politics/comments/1rjw3qb/military_leaders_say_iran_war
 
 "cult", of low-information upvoting, 140 character thinking patterns.
 
+https://old.reddit.com/r/politics/comments/1rjw3qb/military_leaders_say_iran_war_is_so_trump_can/o8guc0e/
+
+Regardless, the anti-goodness behaviors are observable. As are the avoidance of people calling for mental health leaderships for the situation. AVOIDED_DR_BANDY_X_LEE_PUBLIC_WRITINGS
 
