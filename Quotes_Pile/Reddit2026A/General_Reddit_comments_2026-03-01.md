@@ -61,3 +61,7 @@ https://old.reddit.com/r/rareinsults/comments/1rjv6nr/god_can_be_a_serious_procr
 
 NEW_OPERA_NAME #DaddyIssuesAbound #WomenAsPeople    
 Social post { https://autistics.life/@RoundSparrow/116167052035185718 https://bsky.app/profile/roundsparrow.bsky.social/post/3mg6l7vd3y224 }   
+
+https://old.reddit.com/r/interestingasfuck/comments/1rk0xrp/til_theres_a_website_where_you_can_watch_any_tv/o8h6apk/
+
+MEDIA_ECOLOGY_OBSERVATION   
