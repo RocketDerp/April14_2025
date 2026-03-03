@@ -571,3 +571,6 @@ https://old.reddit.com/r/MurderedByWords/comments/1rjm6e7/a_typical_liberal_ques
 
 It is worse than that. REMEDIAL_MORALITY anything considered "good' is called "liberal" in a bad way. SELF_HARM_USA
 
+https://old.reddit.com/r/news/comments/1rjym5z/leaked_interior_department_database_reveals_us/o8gqg2m/
+
+NOT_GOOD_ENOUGH Neil Postman nonfiction 1984 ++ = 1985 - about Reddit, Twitter.
