@@ -176,3 +176,12 @@ https://old.reddit.com/r/PublicFreakout/comments/1rjgv4p/israels_impenetrable_de
 https://old.reddit.com/r/PublicFreakout/comments/1rjgv4p/israels_impenetrable_defense_umbrella_fails_to/o8damuu/
 
 Fiction outsells nonfictoin.
+
+https://old.reddit.com/r/worldnews/comments/1rjregj/donald_trump_irans_military_gone_too_late_for/o8ffu3b/
+
+https://old.reddit.com/r/worldnews/comments/1rjregj/donald_trump_irans_military_gone_too_late_for/o8ffq4e/
+
+https://old.reddit.com/r/worldnews/comments/1rjregj/donald_trump_irans_military_gone_too_late_for/o8f96ok/
+
+2nd most popular upvoted comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING 0 this is a fandom (Reddit community) quoting (an upvoting) their favorite Reality TV celebrity lines. Observe the free time and spare time spent engaging Trump instead of quoting Dr. Bandy X Lee's 27 writers and asking everyone to get on the same page (same book) of removing dangerous Trump.
+
