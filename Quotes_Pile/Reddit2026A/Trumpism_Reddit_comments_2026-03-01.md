@@ -702,3 +702,7 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1rjzz47/president_trump_has
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1rjzz47/president_trump_has_been_anointed_by_jesus_to/o8hjrhx/
 
 BEYOND_DENIAL yes. There is nothing magical or supernatural about Bible storytelling. BOOK_SUPREMACY is taught by parents to children, indoctrination with toys at Christmas, Easter Bunny, etc. People are indoctrinated into Corporate America just the same, Disney, Reddit, Fox News HDTV, etc.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rjzz47/president_trump_has_been_anointed_by_jesus_to/o8ha67y/
+
+"insane". THE_HIGH_ROAD_IS_DR_BANDY_X_LEE_QUOTING_REPEATING
