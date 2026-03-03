@@ -607,3 +607,14 @@ https://old.reddit.com/r/politics/comments/1rjw3qb/military_leaders_say_iran_war
 
 28 day Reddit account. Mental health of Trump discussed, but NOT_GOOD_ENOUGH Dr. Bandy X Lee's October 3, 2017 book with 27 educators for the general public.
 
+https://old.reddit.com/r/politics/comments/1rjw3qb/military_leaders_say_iran_war_is_so_trump_can/o8g4u0p/
+
+"fucking insane"
+
+https://old.reddit.com/r/politics/comments/1rjw3qb/military_leaders_say_iran_war_is_so_trump_can/o8gbbxo/
+
+"unhinged insanity"
+
+https://old.reddit.com/r/politics/comments/1rjw3qb/military_leaders_say_iran_war_is_so_trump_can/o8g4ib3/
+
+"unhinged, batshit crazy"
