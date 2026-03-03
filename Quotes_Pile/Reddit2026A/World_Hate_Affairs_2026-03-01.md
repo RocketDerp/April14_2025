@@ -268,3 +268,7 @@ https://old.reddit.com/r/politics/comments/1rjsxvr/kash_patel_fired_entire_team_
 https://old.reddit.com/r/politics/comments/1rjsxvr/kash_patel_fired_entire_team_of_iran_experts/o8fkpzg/
 
 But everyone forgets to cite nonfiction on Reddit media. Never Forget August 24, 2018 DANGER_ALERT_CALL_TO_INTELLECTUAL_ARMS_BOOK_CRAM_SESSIONS https://www.BBC.com/news/world-us-canada-45294192
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rjw7ti/spains_mep_irene_montero_we_must_isolate_the_us/o8g6qjo/
+
+Top-most upvoted popular comment, Twitter-thinking anti-education anti-intellectual. Observe the avoidance of nonfiction Dr. Bandy X Lee books and calling for removal. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING Reddit users don't "have the balls" to quote Dr. Lee and confront their mental health avoidance of nonfiction relevant books.
