@@ -45,3 +45,7 @@ https://old.reddit.com/r/mildlyinteresting/comments/1rjs946/bookstore_misspells_
 
 CONCERNS_OF_FINNEGANS
 
+https://old.reddit.com/r/mildlyinteresting/comments/1rjs946/bookstore_misspells_its_own_name_on_big/o8ff5ui/
+
+Image on the front page of Reddit /r/All and audience member says: "I don't know why anyone does anything anymore." TREND_CHASING_MEDIA_TRENDING consumers flock to unusual media symbolism. Flocking Reddit media consumers.
+
