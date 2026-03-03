@@ -208,3 +208,8 @@ https://old.reddit.com/r/worldnews/comments/1rjmuyo/trump_slams_starmer_for_not_
 https://old.reddit.com/r/worldnews/comments/1rjmuyo/trump_slams_starmer_for_not_joining_us_strikes_on/o8e9jl9/
 
 "in the middle east, thousands got injuried, and several hundreds died, over wars based on nothing" - it is Bible science fiction fandom vs. Quran retcon science fiction fandom. MONOMYTH_VS_MONOMYTH warfare. media cult vs. media cult warfare.
+
+https://old.reddit.com/r/worldnews/comments/1rjmuyo/trump_slams_starmer_for_not_joining_us_strikes_on/o8eupbz/
+
+World Hate Affairs of the heart. The audience fascination, attraction to hate. ATTRACTION_TO_HATE_LEADERS_HATE_FOLLOWERS - again, why is nobody on Reddit comment section attracted to nonfiction serious books by 27 writers published by Dr. Bandy X Lee since October 3, 2017 - that is extremely relevant to our national crisis... ANSWER: attraction to Trump as a fandom of media stimulation is the force of MAGA. Surkov won.
+
