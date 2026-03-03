@@ -189,3 +189,7 @@ https://old.reddit.com/r/worldnews/comments/1rjregj/donald_trump_irans_military_
 
 REMINDER: everyone is thrilled in hate of Donald Trump. Always MORE HATE. HATE_HARDER - being excited about badness and war and no real cult deprogramming of the Quran and Mecca MONOMYTH_WARFARE -- the Anti-Malala attitudes...
 
+https://old.reddit.com/r/worldnews/comments/1rjregj/donald_trump_irans_military_gone_too_late_for/o8f67xj/
+
+Reddit fandom of Trump. Trump leads with mocking, Reddit community upvotes mocking. Feedback lops of mocking back and forth with MAGA / Trump / Fox News HDTV. MOCK_MOCK_MOCKERY 
+
