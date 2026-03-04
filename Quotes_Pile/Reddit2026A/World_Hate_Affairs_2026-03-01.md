@@ -432,4 +432,11 @@ https://old.reddit.com/r/TikTokCringe/comments/1rkknko/the_us_and_the_rest_of_th
 
 DENIAL_ABOUNDS that Trump is just *routine*. The Apple iPhone year 2007 changed society in a way Reddit users can't see Reddit and storytelling. Surkov won since March 2013. USA population has engaged Twitter-thinking without self-awareness. Neil Postman and Marshall McLuhan levels of self-awareness have disappeared in society mass man.
 
+https://old.reddit.com/r/TikTokCringe/comments/1rkknko/the_us_and_the_rest_of_the_world_will/o8lb2yx/
+
+https://old.reddit.com/r/TikTokCringe/comments/1rkknko/the_us_and_the_rest_of_the_world_will/o8lbmq0/
+
+MEDIA_ECOLOGY_OBSERVATION   
+
+https://old.reddit.com/r/TikTokCringe/comments/1rkknko/the_us_and_the_rest_of_the_world_will/o8lwlup/
 
