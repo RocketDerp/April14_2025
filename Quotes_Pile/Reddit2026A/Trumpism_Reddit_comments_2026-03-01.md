@@ -954,3 +954,7 @@ Media cults. DENIAL_ABOUNDS MEDIA_CULTS_FICTION_FANDOM_MEDIA_POWER
 https://old.reddit.com/r/nottheonion/comments/1rkq7v3/bill_would_require_public_tn_universities_to/o8mdrpx/
 
 People need to study Marshall McLuhan and Neil Postman. SCHOOLS_OF_THOUGHT_FEEDBACK_LOOPS_INSIDE_BOXED_MINDSETS power Charlie Kirk media empire, Podcast, rock start / media star tours.
+
+https://old.reddit.com/r/comedyheaven/comments/1rkk2j2/book_of_relevations/o8l1g2p/
+
+BIBLE_LITERACY crisis. Science fiction interpretation crisis. “Half the people in the world think that the metaphors of their religious traditions, for example, are facts. And the other half contends that they are not facts at all. As a result we have people who consider themselves believers because they accept metaphors as facts, and we have others who classify themselves as atheists because they think religious metaphors are lies.” ― Joseph Campbell, Thou Art That: Transforming Religious Metaphor
