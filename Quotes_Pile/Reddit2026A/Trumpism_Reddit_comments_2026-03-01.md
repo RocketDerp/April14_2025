@@ -736,3 +736,7 @@ No off-Reddit URL, no named person, just anti-intellectual short commenting.
 https://old.reddit.com/r/antiwork/comments/1rk4me9/us_has_a_21_trillion_underground_network_for_only/o8i1r0q/
 
 GULLIBILITY_CRISIS
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rk4dn7/bernie_sanders_says_that_american_foreign_and/o8hy6j2/
+
+2 month Reddit account. Most popular upvoted comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
