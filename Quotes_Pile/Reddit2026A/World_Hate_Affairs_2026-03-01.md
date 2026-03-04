@@ -440,3 +440,10 @@ MEDIA_ECOLOGY_OBSERVATION
 
 https://old.reddit.com/r/TikTokCringe/comments/1rkknko/the_us_and_the_rest_of_the_world_will/o8lwlup/
 
+https://old.reddit.com/r/worldnews/comments/1rkjw6v/nato_intercepts_iranian_missile_heading_toward/o8kznqa/
+
+https://old.reddit.com/r/worldnews/comments/1rkjw6v/nato_intercepts_iranian_missile_heading_toward/o8lc8ku/
+
+https://old.reddit.com/r/worldnews/comments/1rkjw6v/nato_intercepts_iranian_missile_heading_toward/o8l1erq/
+
+5 month
