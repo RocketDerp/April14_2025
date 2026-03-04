@@ -740,3 +740,7 @@ GULLIBILITY_CRISIS
 https://old.reddit.com/r/UnderReportedNews/comments/1rk4dn7/bernie_sanders_says_that_american_foreign_and/o8hy6j2/
 
 2 month Reddit account. Most popular upvoted comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rk4dn7/bernie_sanders_says_that_american_foreign_and/o8i0lur/
+
+5 month Reddit account.
