@@ -943,3 +943,6 @@ https://old.reddit.com/r/JournalismNews/comments/1rklj1k/i_feel_stupid_trump_loy
 
 10 month Reddit account, 2nd most upvoted popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
 
+https://old.reddit.com/r/JournalismNews/comments/1rklj1k/i_feel_stupid_trump_loyalists_say_every_promise/o8lbm3c/
+
+We The People, the nation of USA, learned that low-effort commenting and tiny-thinking Twitter-thinking reactionary mindsets gets people to come together in "high energy" anger and hate. Surkov won since March 2013.  HIGH_SPEED_REACTIONARY_MINDSETS
