@@ -910,3 +910,7 @@ People enjoy mocking and insulting, mocking Trump. ATTRACTION_TO_HATE_LEADERS_HA
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1rkktky/america_fell_for_it_again/o8l9fb7/
 
 Yes. PUTIN_SURKOV_TRUMP_LONG_TERM_YEARS_PLAN - and God The Father Levant symbolism issues.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rkktky/america_fell_for_it_again/o8l9uil/
+
+GULLIBILITY_CRISIS Donald Trump family trusts Putin. Trusting Russia as a society while they are killing people in Ukraine since February 20, 2014.
