@@ -424,3 +424,12 @@ https://old.reddit.com/r/worldnews/comments/1rkhno3/submarine_attack_sinks_irani
 
 https://old.reddit.com/r/news/comments/1rkhgw8/us_troops_were_told_war_on_iran_was_all_part_of/o8kwjc6/
 
+https://old.reddit.com/r/TikTokCringe/comments/1rkknko/the_us_and_the_rest_of_the_world_will/o8lf87h/
+
+https://old.reddit.com/r/TikTokCringe/comments/1rkknko/the_us_and_the_rest_of_the_world_will/o8lctj3/
+
+https://old.reddit.com/r/TikTokCringe/comments/1rkknko/the_us_and_the_rest_of_the_world_will/o8lg70d/
+
+DENIAL_ABOUNDS that Trump is just *routine*. The Apple iPhone year 2007 changed society in a way Reddit users can't see Reddit and storytelling. Surkov won since March 2013. USA population has engaged Twitter-thinking without self-awareness. Neil Postman and Marshall McLuhan levels of self-awareness have disappeared in society mass man.
+
+
