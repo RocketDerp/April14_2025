@@ -864,3 +864,10 @@ https://old.reddit.com/r/funny/comments/1rfegu8/the_english_teacher/
 
 Funeral Ritual, Wake Ritual    
 https://old.reddit.com/r/Damnthatsinteresting/comments/1rh9swm/the_lonely_funeral/
+
+&nbsp;
+
+Word Choice vocabulary    
+Did Alzheimer's Impact Terry Pratchett's Discworld?   
+Rebecca Watson    
+https://www.youtube.com/watch?v=TXkzcKrS0gU
