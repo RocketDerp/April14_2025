@@ -894,3 +894,7 @@ https://old.reddit.com/r/politics/comments/1rk85e7/democrats_raise_alarms_about_
 https://old.reddit.com/r/politics/comments/1rk85e7/democrats_raise_alarms_about_trumps_war_in_iran/o8j5vgz/
 
 5 month Reddit account.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rkktky/america_fell_for_it_again/o8l6lu2/
+
+BULLSHIT_EVERYWHERE - We The People have drowned in all the falsehoods.
