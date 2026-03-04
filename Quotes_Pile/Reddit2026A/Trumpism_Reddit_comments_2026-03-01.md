@@ -783,3 +783,6 @@ https://old.reddit.com/r/worldnews/comments/1rk7kpg/us_troops_told_war_on_iran_i
 
 SURKOVIAN_CHESS Surkov won. The SURKOV_MONOMYTH has been irreversible since year 2013. Fiction motivates, hate motivates.
 
+https://old.reddit.com/r/worldnews/comments/1rk7kpg/us_troops_told_war_on_iran_is_all_part_of_gods/o8imggj/
+
+4 month Reddit account.  BLOCK_HAPPY_DEPORT_HAPPY_SILENCE_POOR_PEOPLE_SILENCE_UPPITY values of MAGA. We The People need to teach media ecology can comparative mythology. We need to learn how Surkov information warfare since year 2013 has worked to induce fiction media cults.
