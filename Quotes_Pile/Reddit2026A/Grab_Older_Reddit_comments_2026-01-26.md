@@ -1047,3 +1047,5 @@ https://old.reddit.com/r/underthesilverlake/comments/1cd37s6/explanation_for_the
 https://old.reddit.com/r/underthesilverlake/comments/1cd37s6/explanation_for_the_whole_movie/lglwyc1/
 
 https://old.reddit.com/r/underthesilverlake/comments/1cd37s6/explanation_for_the_whole_movie/n04stz3/
+
+https://old.reddit.com/r/underthesilverlake/comments/1cd37s6/explanation_for_the_whole_movie/ny1ixfv/
