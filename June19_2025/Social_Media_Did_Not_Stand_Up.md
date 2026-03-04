@@ -109,3 +109,12 @@ People have NOT done this for:
 
 4. Dr. Bandy X Lee's October 3, 2017 nonfiction book about mental health of USA / Trump / MAGA.
 
+&nbsp;
+
+## Did Not B
+
+For entertainment media, people will have day-counting hour-counting campaigns. But not against MAGA, Trump, anti-goodness mob mentality outbreaks.
+
+https://old.reddit.com/r/slaythespire/comments/1rkr3ty/six_hundred_nineteen_days/    
+
+619 days. 2026-03-04 front page of /r/All Reddit.    
