@@ -483,3 +483,7 @@ SPORTS_WASHING ENTERTAINMENT_WASHING
 https://old.reddit.com/r/nottheonion/comments/1rkrsk5/polymarket_pulls_bet_on_nuclear_detonation_in_2026/o8mqduv/
 
 RESISTING_WHAT_EXACTLY people are resisting political parties, but not resisting out-group-hate and dehumanization values.
+
+https://old.reddit.com/r/worldnews/comments/1rkw9kj/thousands_of_kurdish_fighters_launch_ground/o8nosaj/
+
+SURKOVIAN_CHESS mind exploitation, puppeting past symbolism (inverting Russia bad). Mass mind manipulation.
