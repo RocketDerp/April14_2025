@@ -773,3 +773,13 @@ https://old.reddit.com/r/worldnews/comments/1rk7kpg/us_troops_told_war_on_iran_i
 
 2 month Reddit account. RELIGION_CULTS_MONOMYTH_PROGRAMMING
 
+https://old.reddit.com/r/worldnews/comments/1rk7kpg/us_troops_told_war_on_iran_is_all_part_of_gods/o8im2kz/
+
+UNIFIED_THEORY_FICTION_NONFICTION - giving population what it desires, more fiction.
+
+https://old.reddit.com/r/worldnews/comments/1rk7kpg/us_troops_told_war_on_iran_is_all_part_of_gods/o8ikegv/
+
+https://old.reddit.com/r/worldnews/comments/1rk7kpg/us_troops_told_war_on_iran_is_all_part_of_gods/o8il9ri/
+
+SURKOVIAN_CHESS Surkov won. The SURKOV_MONOMYTH has been irreversible since year 2013. Fiction motivates, hate motivates.
+
