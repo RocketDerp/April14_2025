@@ -950,3 +950,7 @@ We The People, the nation of USA, learned that low-effort commenting and tiny-th
 https://old.reddit.com/r/nottheonion/comments/1rkq7v3/bill_would_require_public_tn_universities_to/o8mbwv6/
 
 Media cults. DENIAL_ABOUNDS MEDIA_CULTS_FICTION_FANDOM_MEDIA_POWER
+
+https://old.reddit.com/r/nottheonion/comments/1rkq7v3/bill_would_require_public_tn_universities_to/o8mdrpx/
+
+People need to study Marshall McLuhan and Neil Postman. SCHOOLS_OF_THOUGHT_FEEDBACK_LOOPS_INSIDE_BOXED_MINDSETS power Charlie Kirk media empire, Podcast, rock start / media star tours.
