@@ -457,3 +457,15 @@ https://old.reddit.com/r/UnderReportedNews/comments/1rkj5ef/spains_pm_s%C3%A1nch
 3 month Reddit account, 2nd most upvoted popular comment. Note the user profile about brain, and then the comment mentions brain. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
 
 https://old.reddit.com/r/UnderReportedNews/comments/1rkj5ef/spains_pm_s%C3%A1nchez_doubles_down_on_no_to_war/o8kvos1/
+
+https://old.reddit.com/r/Epstein/comments/1rkm9jc/analyst_says_interest_in_epstein_files_plummeted/o8li6id/
+
+EPSTEIN_FANDOM 
+
+https://old.reddit.com/r/Epstein/comments/1rkm9jc/analyst_says_interest_in_epstein_files_plummeted/o8li6id/
+
+MEDIA_ECOLOGY_OBSERVATION
+
+https://old.reddit.com/r/Epstein/comments/1rkm9jc/analyst_says_interest_in_epstein_files_plummeted/o8lmq7w/
+
+Media cults of Reddit and Bluesky LOLCOW milk Trump for memes and jokes. Observe Dr. Lee ignored and not asserted like "Epstein" name. AVOIDED_DR_BANDY_X_LEE_PUBLIC_WRITINGS
