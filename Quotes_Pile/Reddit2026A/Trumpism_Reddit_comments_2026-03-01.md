@@ -855,3 +855,10 @@ https://old.reddit.com/r/newsinterpretation/comments/1rk7jd5/president_trump_has
 
 SUPER_HYPER_NORMAL Reddit keeps treating it like normal content creator. No uprising, no Reddit blackout.
 
+https://old.reddit.com/r/videos/comments/1rk9p2i/i_just_left_a_classified_briefing_with_the_trump/o8jerbu/
+
+1 month Reddit account.
+
+https://old.reddit.com/r/videos/comments/1rk9p2i/i_just_left_a_classified_briefing_with_the_trump/o8j6j1f/
+
+Surkov won since March 2013. DENIAL_ABOUNDS ... PUTIN_SURKOV_TRUMP_LONG_TERM_YEARS_PLAN
