@@ -451,3 +451,7 @@ https://old.reddit.com/r/worldnews/comments/1rkjw6v/nato_intercepts_iranian_miss
 https://old.reddit.com/r/UnderReportedNews/comments/1rkj5ef/spains_pm_s%C3%A1nchez_doubles_down_on_no_to_war/o8kvc68/
 
 A top-voted most popular comment that promotes anti-intellectual pro-ignorance use of media systems. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rkj5ef/spains_pm_s%C3%A1nchez_doubles_down_on_no_to_war/o8kun00/
+
+3 month Reddit account, 2nd most upvoted popular comment. Note the user profile about brain, and then the comment mentions brain. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
