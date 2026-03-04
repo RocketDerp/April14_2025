@@ -978,3 +978,7 @@ Top-upvoted most popular comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER
 https://old.reddit.com/r/Fauxmoi/comments/1rkqrws/cnn_put_together_a_montage_of_conflicting/o8mkqcx/
 
 The experience is horrific since year 2013 that We The People have embraced ignorance. REALLY_TIRED_OF_DUMB_IGNORANCE_POPULARITY_IN_ADULTS_USA
+
+https://old.reddit.com/r/Fauxmoi/comments/1rkqrws/cnn_put_together_a_montage_of_conflicting/o8mlkcw/
+
+MEDIA_ECOLOGY_OBSERVATION   
