@@ -77,3 +77,7 @@ If we could make it a priority to address the cult of ignorance, rescue and clea
 https://old.reddit.com/r/formuladank/comments/1rkqcpn/my_genuine_reaction/o8mkeya/
 
 TECH_LUST_TECH_LOVERS hate human people, stand up for the big famous guys media platform.
+
+https://old.reddit.com/r/Fauxmoi/comments/1rkqrws/cnn_put_together_a_montage_of_conflicting/o8mi53k/
+
+Top-upvoted most popular comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING anti-intellectual joke-washing on Reddit and other media platforms that prize Trump as a source of constant stimulation, entertainment, jokes and memes. JOKE_COMEDY_POWER_IS_MAGA_IS_TRUMP_IS_SURKOV
