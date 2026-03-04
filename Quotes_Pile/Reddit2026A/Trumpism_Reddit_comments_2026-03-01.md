@@ -752,3 +752,8 @@ JOKE_COMEDY_POWER_IS_MAGA_IS_TRUMP_IS_SURKOV hilarious, funny to We The People w
 https://old.reddit.com/r/goodnews/comments/1rjz80z/trumps_ice_stunned_as_contracts_get_cancelled/o8ib8d0/
 
 https://old.reddit.com/r/goodnews/comments/1rjz80z/trumps_ice_stunned_as_contracts_get_cancelled/o8hmbui/
+
+https://old.reddit.com/r/worldnews/comments/1rk7kpg/us_troops_told_war_on_iran_is_all_part_of_gods/o8ik53h/
+
+Top most upvoted popular comment. Twitter-think mindsets blown on Reddit. MONOMYTH_WARFARE REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
+
