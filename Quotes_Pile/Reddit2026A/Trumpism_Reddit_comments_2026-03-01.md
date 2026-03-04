@@ -898,3 +898,7 @@ https://old.reddit.com/r/politics/comments/1rk85e7/democrats_raise_alarms_about_
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1rkktky/america_fell_for_it_again/o8l6lu2/
 
 BULLSHIT_EVERYWHERE - We The People have drowned in all the falsehoods.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rkktky/america_fell_for_it_again/o8l7mv7/
+
+And Bluesky and Reddit  users are FANDOMS of hate leadership. Saint Petersburg Internet Research Agency created hate vs. hate patterns. HATE_MOTIVATED_ECONOMY_HATE_AS_A_VIRTUE_SIGNALING
