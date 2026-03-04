@@ -395,3 +395,18 @@ Social media keeps cheering hate onward. More hate HATE_HARDER messaging from We
 https://old.reddit.com/r/worldnews/comments/1rjkjim/trump_suggests_friendly_takeover_of_cuba_stating/o8e82jp/
 
 It's low-information "engagement" questioning. It's what We The People choose to do with intelligence, trash it with Twitter-think patterns. PROMOTING_IGNORANCE_WORKS_PLAYING_DUMB_MOCKING
+
+https://old.reddit.com/r/worldnews/comments/1rk2msg/united_states_seeking_an_armed_kurdish_uprising/o8hqb8w/
+
+https://old.reddit.com/r/worldnews/comments/1rk2msg/united_states_seeking_an_armed_kurdish_uprising/o8hnd0l/
+
+WIDE_RADICAL_DOUBT_ABOUT_REAL
+
+https://old.reddit.com/r/worldnews/comments/1rk2msg/united_states_seeking_an_armed_kurdish_uprising/o8hjl86/
+
+https://old.reddit.com/r/worldnews/comments/1rk2msg/united_states_seeking_an_armed_kurdish_uprising/o8hpreo/
+
+https://old.reddit.com/r/worldnews/comments/1rk2msg/united_states_seeking_an_armed_kurdish_uprising/o8hj6io/
+
+ICE_FANDOM behaviors and attitudes. Always cheering on Trumpism. Satire-washing badness as clean because it creates comedy entertainment for meme devices.
+
