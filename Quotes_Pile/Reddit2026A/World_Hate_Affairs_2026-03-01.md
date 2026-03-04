@@ -473,3 +473,10 @@ Media cults of Reddit and Bluesky LOLCOW milk Trump for memes and jokes. Observe
 https://old.reddit.com/r/nottheonion/comments/1rkrsk5/polymarket_pulls_bet_on_nuclear_detonation_in_2026/o8mom4u/
 
 TREND_CHASING_MEDIA_TRENDING chasing the crowd media addictions.
+
+https://old.reddit.com/r/nottheonion/comments/1rkrsk5/polymarket_pulls_bet_on_nuclear_detonation_in_2026/o8mphx9/
+
+https://old.reddit.com/r/nottheonion/comments/1rkrsk5/polymarket_pulls_bet_on_nuclear_detonation_in_2026/o8msnf7/
+
+SPORTS_WASHING ENTERTAINMENT_WASHING 
+
