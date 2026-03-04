@@ -69,3 +69,7 @@ MEDIA_ECOLOGY_OBSERVATION
 https://old.reddit.com/r/PeterExplainsTheJoke/comments/1rk08ka/i_dont_get_it/o8h260a/
 
 SUPERFICIAL_SHALLOW_PRIZING_TRUMPISM_MAGA_VALUES
+
+https://old.reddit.com/r/meme/comments/1rk0nc7/the_only_way_my_son_will_take_a_bottle/o8habd1/
+
+If we could make it a priority to address the cult of ignorance, rescue and clean up Donald Trump and MAGA with Dr. Bandy X Lee's leadership... then this could be an interesting question for people. Otherwise it is AMUSEMENT_AS_USUAL 
