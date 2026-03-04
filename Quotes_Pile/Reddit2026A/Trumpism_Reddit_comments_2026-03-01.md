@@ -1012,3 +1012,7 @@ What low-effort media consumption, Fox News, tells fandoms, media cults. MEDIA_C
 https://old.reddit.com/r/UnderReportedNews/comments/1rkqlit/pete_hegseth_attacking_the_press_for_reporting_on/o8mirzh/
 
 Top most upvoted popular comment. MIND_BLOWN_BY Surkovian governing methods. Antics media politics.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rkqlit/pete_hegseth_attacking_the_press_for_reporting_on/o8mjewb/
+
+UNDERSTANDING_SURKOV_PUTINISM_TRUMPISM_HATE_HILARIOUS blown minds by contradictory Surkov student techniques.
