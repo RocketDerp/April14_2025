@@ -1000,3 +1000,11 @@ https://old.reddit.com/r/politics/comments/1rkpg2q/were_not_at_war_right_now_hou
 https://old.reddit.com/r/politics/comments/1rkpg2q/were_not_at_war_right_now_house_speaker_johnson/o8mcqd2/
 
 WHITE_HOUSE_REALITY_WARFARE_FICTION_AVOIDING_NONFICTION_ON_WARFARE Reddit users are avoiding nonfiction Dr. Bandy X Lee. SEE_ALSO https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Bandy_X_Lee/Bandy_X_Lee_Gaslighting_Crazy.md
+
+https://old.reddit.com/r/stevehofstetter/comments/1rkln0r/the_sheep_must_obey/o8le6m8/
+
+11 month Reddit account. Top-upvoted most popular. 
+
+https://old.reddit.com/r/stevehofstetter/comments/1rkln0r/the_sheep_must_obey/o8ld8bs/
+
+What low-effort media consumption, Fox News, tells fandoms, media cults. MEDIA_CULTS_FICTION_FANDOM_MEDIA_POWER
