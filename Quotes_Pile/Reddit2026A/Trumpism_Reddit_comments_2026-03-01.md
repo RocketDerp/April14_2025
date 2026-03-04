@@ -906,3 +906,7 @@ And Bluesky and Reddit  users are FANDOMS of hate leadership. Saint Petersburg I
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1rkktky/america_fell_for_it_again/o8la0ju/
 
 People enjoy mocking and insulting, mocking Trump. ATTRACTION_TO_HATE_LEADERS_HATE_FOLLOWERS
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rkktky/america_fell_for_it_again/o8l9fb7/
+
+Yes. PUTIN_SURKOV_TRUMP_LONG_TERM_YEARS_PLAN - and God The Father Levant symbolism issues.
