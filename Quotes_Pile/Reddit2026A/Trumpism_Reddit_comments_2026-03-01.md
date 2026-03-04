@@ -934,3 +934,12 @@ https://old.reddit.com/r/news/comments/1rkhgw8/us_troops_were_told_war_on_iran_w
 https://old.reddit.com/r/news/comments/1rkhgw8/us_troops_were_told_war_on_iran_was_all_part_of/o8kr2na/
 
 RELIGION_CULTS_MONOMYTH_PROGRAMMING
+
+https://old.reddit.com/r/JournalismNews/comments/1rklj1k/i_feel_stupid_trump_loyalists_say_every_promise/o8ld29w/
+
+6 month Reddit account, top upvoted most popular. The subreddit itself is 4 months old. Hit /r/All front page. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT The posting submitter is 2 month account. https://old.reddit.com/user/Confident-Role-9177
+
+https://old.reddit.com/r/JournalismNews/comments/1rklj1k/i_feel_stupid_trump_loyalists_say_every_promise/o8ldsav/
+
+10 month Reddit account, 2nd most upvoted popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+
