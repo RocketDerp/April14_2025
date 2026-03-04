@@ -992,3 +992,11 @@ https://old.reddit.com/r/PeterExplainsTheJoke/comments/1rkqc68/petahh_what_is_it
 TECH_LUST_TECH_LOVERS
 
 * Texan Rick Roderick: "Then I just had to start trying to find people who had been in the war. And sure enough I found someone in Durham who had been… you know, a lot of North Carolina people go to the war, I found a young pilot and he said oh, that no, it was very exciting and then he went on to explain to me how the sights that they used in order to, you know, **fire their smart bombs were just like the games in the arcade that he grew up with**. He said, you know, no way in the world could he have had better practice than he got in those arcades to fire smart bombs. I mean, it had passed him by that the real had happened even though he was really there. I talked to a woman who had been on the ground, in a jeep for most of it. And she went “Oh the desert is so big and the sand…”, she said, “…but I really didn’t get a feel for until I got home and saw what my husband had taped”. Why? Because **the little individual actors sink into insignificance compared to the damn spectacle of the thing**. The spectacle of it. I mean, when humans were less important than God we could understand because he built everything. When we are less important than a Nintendo we get confused. That’s when we start thinking that we are under siege. It’s when Billy says “Oh yes, you can kill mum and dad but leave the Nintendo”, then we are rightfully upset." - Duke University, year 1993 https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
+
+https://old.reddit.com/r/politics/comments/1rkpg2q/were_not_at_war_right_now_house_speaker_johnson/o8m5l3e/
+
+4 month Reddit account. Top-upvoted most popular. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+
+https://old.reddit.com/r/politics/comments/1rkpg2q/were_not_at_war_right_now_house_speaker_johnson/o8mcqd2/
+
+WHITE_HOUSE_REALITY_WARFARE_FICTION_AVOIDING_NONFICTION_ON_WARFARE Reddit users are avoiding nonfiction Dr. Bandy X Lee. SEE_ALSO https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Bandy_X_Lee/Bandy_X_Lee_Gaslighting_Crazy.md
