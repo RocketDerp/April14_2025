@@ -8,7 +8,7 @@ Incomplete, raw, unedited, unfinished, brain damaged author.
 
 Social media users / social media society / social media community did not stand up.
 
-Those with the free time and spare time to talk about films, sports, elections, entertainment, politics, kittens, television shows, video games - all the constant content of social media - did not stand up and take 20 seconds or 90 seconds of their day and stand up persistently, repeating, and annoyingly *be serious* every 12 hours and every 24 hours. Sustained assertion of goodness.
+Those with the free time and spare time to talk about films, sports, elections, entertainment, politics, kittens, television shows, video games - all the constant content of social media - did not stand up and take 20 seconds or 90 seconds of their day and stand up persistently, repeating, and annoyingly *be serious* every 12 hours and every 24 hours. Sustained assertion of goodness. BRAIN_ROT_SOCIETY_47 Every 47 hours, organize.
 
 &nbsp;
 
@@ -62,7 +62,7 @@ Neil Postman is not self centered. Carl Sagan is not self centered. Repeating an
 
 ### War Against Reality
 
-Why oh why do social media users complain about MAGA since March 2013 believing falsehoods and not repeat every 12 hours the name of Peter P?
+Why oh why do social media users complain about MAGA since March 2013 believing falsehoods and not repeat every 12 hours the name of Peter P? WAR_AGAINST_REALITY 
 
 &nbsp;
 
@@ -103,7 +103,7 @@ People have NOT done this for:
 
 1. Make Jen Senko's 2015 film a household name. Could be doing that now in 2025.
 
-2. Plaese everyone make Bible verse "1 John 3:17" known to all Christians and non-Christians age 12 to age 120 in USA and how it applies about *love* to Murdoch, Musk, Trump, Putin, etc.
+2. Please everyone make Bible verse "1 John 3:17" known to all Christians and non-Christians age 12 to age 120 in USA and how it applies about *love* to Murdoch, Musk, Trump, Putin, etc.
 
 3. Bible verse "1 John 4:20" and how "I Love Jesus" is wrong, and how to identify liars, how to judge liars.
 
