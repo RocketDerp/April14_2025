@@ -82,3 +82,6 @@ https://old.reddit.com/r/BrandNewSentence/comments/1rkk0j3/they_legally_cannot_c
 
 TRICKLE_DOWN_MEDIA
 
+https://old.reddit.com/r/BrandNewSentence/comments/1rkk0j3/they_legally_cannot_call_it_a_burger/o8lqs0t/
+
+UNDERSTANDING_TRUMPISM doing bad things draws a crowd. Fiction storytelling outsells nonfiction relevant learning.
