@@ -902,3 +902,7 @@ BULLSHIT_EVERYWHERE - We The People have drowned in all the falsehoods.
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1rkktky/america_fell_for_it_again/o8l7mv7/
 
 And Bluesky and Reddit  users are FANDOMS of hate leadership. Saint Petersburg Internet Research Agency created hate vs. hate patterns. HATE_MOTIVATED_ECONOMY_HATE_AS_A_VIRTUE_SIGNALING
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rkktky/america_fell_for_it_again/o8la0ju/
+
+People enjoy mocking and insulting, mocking Trump. ATTRACTION_TO_HATE_LEADERS_HATE_FOLLOWERS
