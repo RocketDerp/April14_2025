@@ -868,3 +868,29 @@ https://old.reddit.com/r/videos/comments/1rk9p2i/i_just_left_a_classified_briefi
 https://old.reddit.com/r/politics/comments/1rk85e7/democrats_raise_alarms_about_trumps_war_in_iran/o8iv8lh/
 
 MONOMYTH_WARFARE MONOMYTH_VS_MONOMYTH  
+
+https://old.reddit.com/r/politics/comments/1rk85e7/democrats_raise_alarms_about_trumps_war_in_iran/o8ir1ij/
+
+https://old.reddit.com/r/politics/comments/1rk85e7/democrats_raise_alarms_about_trumps_war_in_iran/o8jco1o/
+
+6 month Reddit account.
+
+https://old.reddit.com/r/politics/comments/1rk85e7/democrats_raise_alarms_about_trumps_war_in_iran/o8j0cme/
+
+1 month Reddit account.
+
+https://old.reddit.com/r/politics/comments/1rk85e7/democrats_raise_alarms_about_trumps_war_in_iran/o8izenw/
+
+"sane"
+
+https://old.reddit.com/r/politics/comments/1rk85e7/democrats_raise_alarms_about_trumps_war_in_iran/o8j5d5q/
+
+"fucking insane"
+
+https://old.reddit.com/r/politics/comments/1rk85e7/democrats_raise_alarms_about_trumps_war_in_iran/o8j9uxd/
+
+https://old.reddit.com/r/politics/comments/1rk85e7/democrats_raise_alarms_about_trumps_war_in_iran/o8jr36t/
+
+https://old.reddit.com/r/politics/comments/1rk85e7/democrats_raise_alarms_about_trumps_war_in_iran/o8j5vgz/
+
+5 month Reddit account.
