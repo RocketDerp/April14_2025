@@ -903,3 +903,138 @@ My comment, I created a new subreddit today in recall of February 28, 1954 MLK J
 https://old.reddit.com/r/WorldHateAffairs/comments/1rh9bib/the_dangerous_case_of_donald_trump_is_a_2017_book/o7x1isn/
 
 NEW_ARG_PRIMARY_KEY o7x1isn     
+
+https://old.reddit.com/r/underthesilverlake/comments/1cd37s6/explanation_for_the_whole_movie/nio219o/
+
+Sam is about to be evicted for not paying his rent, but throughout the movie makes no effort to get the money.
+
+Sarah and her bichon frisé sit by the pool. Sam looks at them through binoculars. One might think he is interested in Sarah. Actually he is interested in the dog. Sam is the dog killer and is planning to kill the dog.
+
+Sam talks to his girlfriend about his favorite issue of Playboy magazine. On the cover is a woman underwater, in a distinct pose. More on that later.
+
+There is a red can of spray paint in Sam’s room. More on that later.
+
+In the Under the Silver Lake comic, the author writes that only he knows the secrets of Silver Lake. And that one day he will reveal the truths about the mysterious crimes, murders and disappearances. The comic also mentions the dog killer. Sam tries to get in touch with the author, because Sam is worried the author knows that Sam is the dog killer and will reveal it. The author doesn’t know though, he is crazy too.
+
+Sam sees Sarah’s dog alone. Sam gives it a dog biscuit, planning to kill the dog. But then Sarah shows up, so he doesn't. Sarah asks what kind of dog Sam had, (since why else would he have a dog biscuit). Sam says his dog recently died.
+
+Sarah invites Sam in. They watch How to Marry a Millionaire, and there is a poster for that movie on the wall. The movie is about three beautiful women that want to marry a millionaire. More on that later.
+
+Sarah has an engraved bracelet. More on that later.
+
+Sarah’s two female roommates come home. Sam sees a pirate with them. The pirate is imaginary. Sarah invites Sam to meet her again the next day.
+
+Some kids have vandalized Sam’s car and other cars. Sam beets them up, suggesting he is dangerous and crazy.
+
+The next day Sam discovers Sarah and her roommates have moved away in the night. Sam thinks this is mysterious. His landlord disagrees. The landlord is right. The landlord says Sam is about to become homeless.
+
+Sam begins investigating Sarah’s disappearance. He breaks into her now mostly empty apartment. He sees a symbol on the wall. I think he imagines the symbol. (Or possibly he broke in earlier and wrote the symbol on the wall, and doesn't remember doing that.)
+
+A woman comes to the apartment and picks up a box containing some of Sarah’s things. The woman gets in a car with two other women. Sam follows them in his car.
+
+The women get out of the car, and one points to a scoreboard for some sport. Sam writes down the score on the board as if it has some secret meaning, because he is crazy.
+
+Later Sam sees the women hand over the box to the pirate. The pirate is still imaginary.
+
+Sam follows the women to Purgatory, a club. They go into a swimming pool. Sam stalks them in the pool.
+
+Going back a bit. The following are movie posters we saw in Sam’s living room. They are all hints. Abbot and Costello meets Dr. Jekyll and Mr. Hyde/ the Wolf Man: Like characters in these movies Sam has a secret dark side. He has a split personality or similar. Psycho: Sam is Psycho. Rear Window: it is about a man that spies on his neighbors like Sam did. Creature from the Black Lagoon: About a monster that goes after a swimming woman. Much like Sam is after the women in the pool. We see a couple of other women in water later, women that Sam is after.
+
+Sam follows one of the women into the ladies’ room to ask about Sarah. She knees him in the balls and runs away. Other women come in and are angry that Sam is there. They start barking at him. The barking is imaginary. Sam likes women when they are nice to him, but when they are not he thinks of them as dogs. And Sam is the dog killer.
+
+Millicent Sevens is in Purgatory. The news breaks that her famous billionaire father Jefferson is dead.
+
+The comics author calls Sam and arranges to meet him. While on the phone a shadowy man starts following Sam. The shadow man is imaginary. He appears when Sam is talking to the author, because Sam is paranoid about the author knowing Sam is the dog killer. Sam hides from the shadow man and in doing so gets sprayed by a skunk.
+
+Skipping ahead to a later scene. Sam and some women see the words “Beware the Dog Killer” sprayed in red on the street. Sam sprayed the words, remember he had a red spray can in his apartment. The woman is worried about the dog killer and they also wonder what the awful smell is. The smell is from Sam. And he acquired the smell because he is the dog killer. The stench is a metaphor for his guilt.
+
+Skipping back again. Sam watches the news about Jefferson’s Sevens death. Jefferson was found in a burned car with 3 dead women believed to be prostitutes. The news anchor says a bichon frisé was found in the purse of one of the women. Sam sees a policeman holding Sarah’s hat. Sam believes one of the women was Sarah. Sam is imagining the hat on the TV, and probably what the news anchor said about the dog. Sarah has nothing to do with Jefferson Sevens.
+
+Sam dreams that Sarah barks like a dog. This is foreshadowing.
+
+Sam sees a woman on a commercial billboard. More on that later.
+
+Sam meets the comics author. The author has a collection of life masks. One of them is of Johnny Depp. More on that later.
+
+Sam shows the author the symbol he saw on Sarah’s wall. The author says it is a hobo symbol and gives Sam a guide to hobo symbols. If Sam imagined the symbol, isn’t it a weird coincidence that the author happened to have a guide to them? I think Sam saw the symbol in the author’s comic. The author’s madness is influencing Sam’s madness.
+
+The author tells Sam about the owl’s kiss, a mysterious naked killer woman. She does not exist, the author is crazy.
+
+Sam talks with his friend. Sam thinks he is living a bad version of the life he is supposed to have. He thinks he should be successful, but does not work or do anything that would make him successful. He thinks rich people have some secret knowledge. He maybe thinks it is this knowledge that makes them successful, rather than say work or inheritance.
+
+Sam meets two prostitutes and a man with a Native American headdress. Those three get into a limo. Sam sees the pirate in the limo. The pirate has not gotten any less imaginary since the last time.
+
+Skipping to a later scene. Sam meets the prostitute again and asks who is the pirate looking guy in the limo. Since the pirate is imaginary I think the prostitute thinks he is referring to the man in the Native American headdress. With his beard and makeup he kinds of looks like Johnny Depp’s character in the Pirates of the Caribbean movies. I think the life mask we saw of Depp earlier is a hint about this. Depp’s mask has a beard, mustache and bandana like he has in those movies. The prostitute says she doesn’t know who he is, that he is anonymous. He was probably a client.
+
+The prostitute says she saw Sarah at the party at a luxurious compound. She mentions a rich songwriter lives there.
+
+Skipping back again. Sams hears a rumor that there are secret messages in the music of the local band Jesus and the Brides of Dracula. Sam finds the message “Rub deans Head” in one of the songs. But he is crazy, there is no message.
+
+Sam rubs a statue of James Dean, and the Homeless King comes. The Homeless King is imaginary. Why imagine a homeless king? Sam is subconsciously worried he is going to be homeless. When the Homeless King says who he is, Sam is happy. Because if you can be homeless and a king at the same time, being homeless isn't so bad. Sam is in denial.
+
+The Homeless King advises Sam to follow coyotes and shows Sam some stuff underground. This is also imaginary.
+
+Sam finds out the comics author is dead. Sam watches the surveillance tape from the author's house and sees the Owl’s Kiss enter. The Owl’s Kiss is imaginary. I think Sam actually sees himself on the tape, but is in denial and substituting the Owl’s kiss. Sam killed the author, because he was afraid the author was going to reveal that Sam is the dog killer.
+
+Sam attacks Jesus and asks him why he put a secret message in the song.
+
+Skipping back to an earlier scene, Sam danced to What’s the Frequency Kenneth. The song title refers to an incident when a crazy man attacked news anchor Dan Rather while asking “Kenneth, what is the frequency.” The man thought there were secret messages in the news directed at him. Much like Sam thought there were secret messages in Jesus’ music and therefore attacked him.
+
+Jesus says some mysterious song writer wrote those songs. Now there is no reason to think this is the same songwriter that the prostitute mentioned, but Sam believes it is. He gets the prostitute to take him to the house of the songwriter she mentioned. When he walks to the house, it is a matte painting. It looks nice but fake. That’s a clue that what we’re about to see isn’t real.
+
+Sam meets the songwriter. The songwriter plays him Where is My Mind. This is another clue that Sam is crazy, as that song was used in another movie with a crazy protagonist. To say which one would spoil that movie.
+
+The song writer tries to shoot Sam, but Sam beats him to death with Kurt Cobain’s guitar. Sam has blood all over him. He takes the gun. Now this didn’t actually happen, this ridiculous songwriter can’t be real. But in a later scene Sam still has the gun. He has a new shirt on, and there is a little bit of blood on it, like if some of the blood from Sam got on it. So I think Sam did indeed kill someone.
+
+The Owl’s Kiss appears in Sam's apartment. But when Sam confronts her, she immediately runs away. She can’t actually attack Sam, being imaginary. If you need more proof that Sam is Crazy, Sam looks for her in a small drawer.
+
+Sam follows a coyote to a party. Since following coyotes isn’t really a reliable way to solve mysteries, what follows is all imaginary, and therefore provides some insight into Sam’s subconscious.
+
+A woman at the party tells Sam she likes his shirt. It is a plain white shirt. Maybe symbolic for women liking Sam despite there being nothing likable about him. Or maybe his subconscious is trying to draw his attention to the bloodstains on the shirt.
+
+People at the party talk about a 12-year old girl who wrote, produced, directed and sound designed her own sitcom. Sam is jealous of other people’s success.
+
+Sam meets the woman from the commercial billboard, who treats him like an old boyfriend. Sam doesn’t really know this woman, it’s imaginary.
+
+Sam meets Millicent Sevens. They go for a walk. They talk about the dog killer. Millicent says anyone who can kill a dog could just as well kill a person. Sam disagrees. This is Sam’s subconscious trying to tell him he’s murdered humans too, and Sam being in denial.
+
+They see another homeless man. Sam is still worried about becoming homeless. But this man isn’t nice or happy like the Homeless King. Sam’s denial is starting to crack, subconsciously he’s starting to think being homeless will be bad. Sam says he hates the homeless. I think he’s projecting, he hates that he’s about to become homeless.
+
+Sam says the homeless watch people eating delicious food. More on that later
+
+Sam and Milliecent go swimming. Millicent says she thinks someone has been following her. She gives Sam a bracelet she says she found in her dad’s office. It’s Sarah’s bracelet. Milliecent is shot. Her dead body is in the same pose as the woman on Sam’s Playboy magazine. More proof that this is happening in Sam’s head.
+
+Back to reality. Sam still has the bracelet. How is that possible, if the party was imaginary? When Sam went to see the songwriter I think he met Sarah. Remember, the prostitute implied Sarah knew the songwriter. Sarah must have understood Sam was crazy, got scared and acted negatively. Maybe she pulled a gun on him. Sam doesn't like it when women don’t like him, so he killed her. He took her bracelet. Then he made up the party to explain to himself how he got it.
+
+Decoding the message on the bracelet he finds a location. He doesn’t actually decode anything, his methods are crazy. When he goes to the location everything that happens there is imaginary.
+
+Sam meets a man who explains that rich men, like him and Jefferson Sevens, get sealed in tombs, each with three beautiful women. Sam has made this up, in part from watching How to Marry a Millionaire, about three beautiful women that want to marry a millionaire. The man says that in the tombs they will have sex, watch television, eat delicious meals and drink wine. This is pretty much how Sam wants to live his life. The phrase delicious meals is similar to the phrase delicious food that Sam used earlier, because the man is made up by Sam.
+
+Then rich men and their women are to ascend to another universe. Like heaven, but real and exclusive. This comes from Sam’s jealousy of successful people. One of the women says she wishes Sam could come with them. This is Sam wishing he could go with them. The man mocks the things Sam can achieve in his life, a normal job and car etc. Says it’s worthless. This is Sam being unhappy with having an ordinary life. Sam has created a religion for himself. An unusually miserable religion where the happy afterlife is denied him.
+
+The Homeless King whistles the song Crazy. Hint nr. 83 that Sam is crazy.
+
+The Homeless King asks Sam why he has dog biscuits in his pocket. Sam says he wants to get back together with a girl that has a dog. This is a different explanation than he gave Sarah, because he is lying, he is the dog killer. And since the Homeless King is imaginary, Sam is lying to himself.
+
+Back to reality. Sam sees the commercial billboard again. The poster is being replaced by a new one and the words “I can see clearly now” is being obscured. This is symbolic, Sam does not see clearly.
+
+The landlord finds a symbol painted on Sam’s apartment wall. Sam wrote that symbol.
+
+Throughout the movie there are many codes, more than I have mentioned. Solving these is possible. If you don’t wanna do it yourself, plenty of people online have done so. But what they say isn’t about the reality of the movie. Instead we are seeing the world as Sam sees it. Since Sam thinks there are hidden codes everywhere we see the codes. But in reality those codes aren’t there.
+
+https://old.reddit.com/r/underthesilverlake/comments/1cd37s6/explanation_for_the_whole_movie/o670k80/
+
+https://old.reddit.com/r/underthesilverlake/comments/1cd37s6/explanation_for_the_whole_movie/l1c5z7n/
+
+https://old.reddit.com/r/underthesilverlake/comments/1cd37s6/explanation_for_the_whole_movie/l2fi005/
+
+https://old.reddit.com/r/underthesilverlake/comments/1cd37s6/explanation_for_the_whole_movie/nsbtrpp/
+
+https://old.reddit.com/r/underthesilverlake/comments/1cd37s6/explanation_for_the_whole_movie/l1jqqvc/
+
+https://old.reddit.com/r/underthesilverlake/comments/1cd37s6/explanation_for_the_whole_movie/l9z6bxl/
+
+https://old.reddit.com/r/underthesilverlake/comments/1cd37s6/explanation_for_the_whole_movie/n3s8wvb/
+
+https://old.reddit.com/r/underthesilverlake/comments/1cd37s6/explanation_for_the_whole_movie/lchgg7i/
+
