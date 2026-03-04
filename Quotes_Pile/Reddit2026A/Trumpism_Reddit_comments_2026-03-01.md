@@ -946,3 +946,7 @@ https://old.reddit.com/r/JournalismNews/comments/1rklj1k/i_feel_stupid_trump_loy
 https://old.reddit.com/r/JournalismNews/comments/1rklj1k/i_feel_stupid_trump_loyalists_say_every_promise/o8lbm3c/
 
 We The People, the nation of USA, learned that low-effort commenting and tiny-thinking Twitter-thinking reactionary mindsets gets people to come together in "high energy" anger and hate. Surkov won since March 2013.  HIGH_SPEED_REACTIONARY_MINDSETS
+
+https://old.reddit.com/r/nottheonion/comments/1rkq7v3/bill_would_require_public_tn_universities_to/o8mbwv6/
+
+Media cults. DENIAL_ABOUNDS MEDIA_CULTS_FICTION_FANDOM_MEDIA_POWER
