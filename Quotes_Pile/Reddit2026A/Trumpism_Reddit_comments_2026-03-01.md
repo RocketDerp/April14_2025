@@ -1016,3 +1016,5 @@ Top most upvoted popular comment. MIND_BLOWN_BY Surkovian governing methods. Ant
 https://old.reddit.com/r/UnderReportedNews/comments/1rkqlit/pete_hegseth_attacking_the_press_for_reporting_on/o8mjewb/
 
 UNDERSTANDING_SURKOV_PUTINISM_TRUMPISM_HATE_HILARIOUS blown minds by contradictory Surkov student techniques.
+
+https://old.reddit.com/r/LegalNews/comments/1rkrmqi/panicked_republicans_fear_trumps_fing_nightmare/o8mpf4i/
