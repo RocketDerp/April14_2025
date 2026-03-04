@@ -757,3 +757,7 @@ https://old.reddit.com/r/worldnews/comments/1rk7kpg/us_troops_told_war_on_iran_i
 
 Top most upvoted popular comment. Twitter-think mindsets blown on Reddit. MONOMYTH_WARFARE REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
 
+https://old.reddit.com/r/worldnews/comments/1rk7kpg/us_troops_told_war_on_iran_is_all_part_of_gods/o8in92l/
+
+9 month Reddit account. TALIBAN_VALUES 
+
