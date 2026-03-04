@@ -722,3 +722,7 @@ Cult of hate leaders. cult of orange skin jokes. Cult of diaper shit-postings. A
 https://old.reddit.com/r/Fauxmoi/comments/1rk5eq2/a_reporter_asked_mayor_mamdani_about_being_called/o8i6vxa/
 
 Look at the shit-commenting shit-posting that society prizes on Bluesky and Reddit. People embraced Kremlin media techniques since year 2013. "absolute joke of a shit show". ATTRACTION_TO_SHIT_CONTENT_ENSHIT_BY_DESIRE
+
+https://old.reddit.com/r/Fauxmoi/comments/1rk5eq2/a_reporter_asked_mayor_mamdani_about_being_called/o8iac8g/
+
+"If we allowed this absolute clown show buffoonery for the past ten years" - Reddit normalized it. Entertainment prized the MOCK_MOCK_MOCKERY patterns. Reddit community following the leaders. REPUBLICANS_LEAD_WITH_IGNORANCE_IDEAS_AND_FOLLOWERS_REPLY_WITH_IGNORANCE
