@@ -810,3 +810,15 @@ MONOMYTH_WARFARE
 https://old.reddit.com/r/UnderReportedNews/comments/1rk6o88/blumenthal_it_looks_more_and_more_likely_there/o8igle8/
 
 MEDIA_ECOLOGY_OBSERVATION
+
+https://old.reddit.com/r/therewasanattempt/comments/1rk7h3i/to_hide_that_we_are_at_war/o8ikkbq/
+
+1 month Reddit account. Top most-upvoted popular. HYPER_BANALISATION
+
+https://old.reddit.com/r/therewasanattempt/comments/1rk7h3i/to_hide_that_we_are_at_war/o8ikwbw/
+
+https://old.reddit.com/r/therewasanattempt/comments/1rk7h3i/to_hide_that_we_are_at_war/o8ilnie/
+
+https://old.reddit.com/r/newsinterpretation/comments/1rk7jd5/president_trump_has_been_anointed_by_jesus_to/o8ijq8b/
+
+Zero day account, newly created for this post, made it to front page and also top-upvoted comment. REDDIT_FRONT_PAGE_YOUNG_ACCOUNT
