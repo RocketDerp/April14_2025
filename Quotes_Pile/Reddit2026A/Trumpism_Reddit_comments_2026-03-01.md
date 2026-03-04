@@ -914,3 +914,14 @@ Yes. PUTIN_SURKOV_TRUMP_LONG_TERM_YEARS_PLAN - and God The Father Levant symboli
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1rkktky/america_fell_for_it_again/o8l9uil/
 
 GULLIBILITY_CRISIS Donald Trump family trusts Putin. Trusting Russia as a society while they are killing people in Ukraine since February 20, 2014.
+
+https://old.reddit.com/r/news/comments/1rkhgw8/us_troops_were_told_war_on_iran_was_all_part_of/o8kl091/
+
+https://old.reddit.com/r/news/comments/1rkhgw8/us_troops_were_told_war_on_iran_was_all_part_of/o8kjvj9/
+
+https://old.reddit.com/r/news/comments/1rkhgw8/us_troops_were_told_war_on_iran_was_all_part_of/o8kk8nl/
+
+https://old.reddit.com/r/news/comments/1rkhgw8/us_troops_were_told_war_on_iran_was_all_part_of/o8ljrkv/
+
+Bible verse "1 John 4:20" crisis for 2,000 years. You have not seen God. - "1 John 4:20" 
+
