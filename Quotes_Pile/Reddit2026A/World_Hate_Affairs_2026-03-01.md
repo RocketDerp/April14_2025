@@ -410,3 +410,6 @@ https://old.reddit.com/r/worldnews/comments/1rk2msg/united_states_seeking_an_arm
 
 ICE_FANDOM behaviors and attitudes. Always cheering on Trumpism. Satire-washing badness as clean because it creates comedy entertainment for meme devices.
 
+https://old.reddit.com/r/pics/comments/1rkloxe/israeli_knesset_member_with_a_noose_and_her/o8lewwh/
+
+5 month Reddit account. Most upvoted popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
