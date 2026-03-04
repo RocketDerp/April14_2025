@@ -827,4 +827,6 @@ https://old.reddit.com/r/newsinterpretation/comments/1rk7jd5/president_trump_has
 
 Zero day account. Second most popular upvoted comment (they commented multiple times). REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
 
+https://old.reddit.com/r/newsinterpretation/comments/1rk7jd5/president_trump_has_been_anointed_by_jesus_to/o8il1xy/
 
+LEVANT_MYTH_INVERTED .. SEE_ALSO https://thesethingsinside.wordpress.com/2013/04/18/joseph-campbell-says-religious-literalism-sets-satan-in-the-seat-of-god/ "there can be no doubt, from what we know of the history of this tradition, that this authority was imposed and maintained by force. But any religious symbol, so interpreted that it refers not to a thought-transcending mystery but to a thought-enveloping social order, misappropriates to the lower principle the values of the higher and so (to use a theological turn of phrase) sets Satan in the seat of God."
