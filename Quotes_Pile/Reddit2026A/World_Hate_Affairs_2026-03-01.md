@@ -421,3 +421,6 @@ https://old.reddit.com/r/pics/comments/1rkloxe/israeli_knesset_member_with_a_noo
 WIDE_RADICAL_DOUBT_ABOUT_REAL
 
 https://old.reddit.com/r/worldnews/comments/1rkhno3/submarine_attack_sinks_iranian_ship_near_sri/o8kmea4/
+
+https://old.reddit.com/r/news/comments/1rkhgw8/us_troops_were_told_war_on_iran_was_all_part_of/o8kwjc6/
+
