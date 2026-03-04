@@ -78,4 +78,7 @@ https://old.reddit.com/r/formuladank/comments/1rkqcpn/my_genuine_reaction/o8mkey
 
 TECH_LUST_TECH_LOVERS hate human people, stand up for the big famous guys media platform.
 
+https://old.reddit.com/r/BrandNewSentence/comments/1rkk0j3/they_legally_cannot_call_it_a_burger/o8l4ibm/
+
+TRICKLE_DOWN_MEDIA
 
