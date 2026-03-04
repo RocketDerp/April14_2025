@@ -925,3 +925,12 @@ https://old.reddit.com/r/news/comments/1rkhgw8/us_troops_were_told_war_on_iran_w
 
 Bible verse "1 John 4:20" crisis for 2,000 years. You have not seen God. - "1 John 4:20" 
 
+https://old.reddit.com/r/news/comments/1rkhgw8/us_troops_were_told_war_on_iran_was_all_part_of/o8kp4rs/
+
+https://old.reddit.com/r/news/comments/1rkhgw8/us_troops_were_told_war_on_iran_was_all_part_of/o8kkaao/
+
+https://old.reddit.com/r/news/comments/1rkhgw8/us_troops_were_told_war_on_iran_was_all_part_of/o8kpacp/
+
+https://old.reddit.com/r/news/comments/1rkhgw8/us_troops_were_told_war_on_iran_was_all_part_of/o8kr2na/
+
+RELIGION_CULTS_MONOMYTH_PROGRAMMING
