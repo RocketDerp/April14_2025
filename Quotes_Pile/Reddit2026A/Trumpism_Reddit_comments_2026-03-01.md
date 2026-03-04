@@ -974,3 +974,7 @@ LEVANT_MONOMYTH_CRISIS and QAnon is promoted by Russia QANON_RUSSIA
 https://old.reddit.com/r/Fauxmoi/comments/1rkqrws/cnn_put_together_a_montage_of_conflicting/o8mi53k/
 
 Top-upvoted most popular comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING anti-intellectual joke-washing on Reddit and other media platforms that prize Trump as a source of constant stimulation, entertainment, jokes and memes. JOKE_COMEDY_POWER_IS_MAGA_IS_TRUMP_IS_SURKOV
+
+https://old.reddit.com/r/Fauxmoi/comments/1rkqrws/cnn_put_together_a_montage_of_conflicting/o8mkqcx/
+
+The experience is horrific since year 2013 that We The People have embraced ignorance. REALLY_TIRED_OF_DUMB_IGNORANCE_POPULARITY_IN_ADULTS_USA
