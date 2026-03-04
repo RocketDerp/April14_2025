@@ -116,5 +116,6 @@ People have NOT done this for:
 For entertainment media, people will have day-counting hour-counting campaigns. But not against MAGA, Trump, anti-goodness mob mentality outbreaks.
 
 https://old.reddit.com/r/slaythespire/comments/1rkr3ty/six_hundred_nineteen_days/    
+https://old.reddit.com/r/slaythespire/comments/1rks6mc/day_619_of_drawing_badly_until_sts2_comes_out/  
 
 619 days. 2026-03-04 front page of /r/All Reddit.    
