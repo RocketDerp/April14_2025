@@ -786,3 +786,27 @@ SURKOVIAN_CHESS Surkov won. The SURKOV_MONOMYTH has been irreversible since year
 https://old.reddit.com/r/worldnews/comments/1rk7kpg/us_troops_told_war_on_iran_is_all_part_of_gods/o8imggj/
 
 4 month Reddit account.  BLOCK_HAPPY_DEPORT_HAPPY_SILENCE_POOR_PEOPLE_SILENCE_UPPITY values of MAGA. We The People need to teach media ecology can comparative mythology. We need to learn how Surkov information warfare since year 2013 has worked to induce fiction media cults.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rk6o88/blumenthal_it_looks_more_and_more_likely_there/o8iez0o/
+
+"insane"
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rk6o88/blumenthal_it_looks_more_and_more_likely_there/o8itiex/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rk6o88/blumenthal_it_looks_more_and_more_likely_there/o8ihyzx/
+
+"crazy"
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rk6o88/blumenthal_it_looks_more_and_more_likely_there/o8iusv9/
+
+RELIGION_CULTS_MONOMYTH_PROGRAMMING
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rk6o88/blumenthal_it_looks_more_and_more_likely_there/o8ihw7d/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rk6o88/blumenthal_it_looks_more_and_more_likely_there/o8iqgn2/
+
+MONOMYTH_WARFARE
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rk6o88/blumenthal_it_looks_more_and_more_likely_there/o8igle8/
+
+MEDIA_ECOLOGY_OBSERVATION
