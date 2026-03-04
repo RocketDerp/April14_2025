@@ -726,3 +726,6 @@ Look at the shit-commenting shit-posting that society prizes on Bluesky and Redd
 https://old.reddit.com/r/Fauxmoi/comments/1rk5eq2/a_reporter_asked_mayor_mamdani_about_being_called/o8iac8g/
 
 "If we allowed this absolute clown show buffoonery for the past ten years" - Reddit normalized it. Entertainment prized the MOCK_MOCK_MOCKERY patterns. Reddit community following the leaders. REPUBLICANS_LEAD_WITH_IGNORANCE_IDEAS_AND_FOLLOWERS_REPLY_WITH_IGNORANCE
+
+https://old.reddit.com/r/antiwork/comments/1rk4me9/us_has_a_21_trillion_underground_network_for_only/o8i8lfe/
+
