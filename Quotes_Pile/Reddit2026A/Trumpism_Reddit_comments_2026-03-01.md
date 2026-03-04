@@ -958,3 +958,7 @@ People need to study Marshall McLuhan and Neil Postman. SCHOOLS_OF_THOUGHT_FEEDB
 https://old.reddit.com/r/comedyheaven/comments/1rkk2j2/book_of_relevations/o8l1g2p/
 
 BIBLE_LITERACY crisis. Science fiction interpretation crisis. “Half the people in the world think that the metaphors of their religious traditions, for example, are facts. And the other half contends that they are not facts at all. As a result we have people who consider themselves believers because they accept metaphors as facts, and we have others who classify themselves as atheists because they think religious metaphors are lies.” ― Joseph Campbell, Thou Art That: Transforming Religious Metaphor
+
+https://old.reddit.com/r/magicTCG/comments/1rkpvma/head_designer_of_tmnt_set_goes_to_peter_thiel/o8me5ih/
+
+Everything is Media Ecology. SEE_ALSO https://github.com/RocketDerp/April14_2025/blob/main/Media_Ecology/Everything_is_ME.md
