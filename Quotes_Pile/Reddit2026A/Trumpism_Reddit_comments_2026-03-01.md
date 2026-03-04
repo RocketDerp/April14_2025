@@ -843,3 +843,6 @@ https://old.reddit.com/r/newsinterpretation/comments/1rk7jd5/president_trump_has
 
 LEVANT_MYTH_INVERTED as taught by New York Sarah Lawrence College professor, Trump's home town.
 
+https://old.reddit.com/r/newsinterpretation/comments/1rk7jd5/president_trump_has_been_anointed_by_jesus_to/o8iq6un/
+
+BIBLE_LITERACY crisis. Metaphors. “Half the people in the world think that the metaphors of their religious traditions, for example, are facts. And the other half contends that they are not facts at all. As a result we have people who consider themselves believers because they accept metaphors as facts, and we have others who classify themselves as atheists because they think religious metaphors are lies.” ― Joseph Campbell, Thou Art That: Transforming Religious Metaphor
