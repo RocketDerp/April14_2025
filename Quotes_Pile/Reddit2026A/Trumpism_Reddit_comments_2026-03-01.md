@@ -821,4 +821,10 @@ https://old.reddit.com/r/therewasanattempt/comments/1rk7h3i/to_hide_that_we_are_
 
 https://old.reddit.com/r/newsinterpretation/comments/1rk7jd5/president_trump_has_been_anointed_by_jesus_to/o8ijq8b/
 
-Zero day account, newly created for this post, made it to front page and also top-upvoted comment. REDDIT_FRONT_PAGE_YOUNG_ACCOUNT
+Zero day account, newly created for this post, made it to front page and also top-upvoted comment. REDDIT_FRONT_PAGE_YOUNG_ACCOUNT The subreddit itself is only 8 months old.
+
+https://old.reddit.com/r/newsinterpretation/comments/1rk7jd5/president_trump_has_been_anointed_by_jesus_to/o8ijsdx/
+
+Zero day account. Second most popular upvoted comment (they commented multiple times). REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+
+
