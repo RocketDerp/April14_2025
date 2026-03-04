@@ -967,3 +967,6 @@ https://old.reddit.com/r/PoliticalHumor/comments/1rkqcwy/dwight_with_the_truth/o
 
 MONOMYTH_WARFARE the SURKOV_MONOMYTH won since March 2013, lost hearts and minds in USA.
 
+https://old.reddit.com/r/PoliticalHumor/comments/1rkqcwy/dwight_with_the_truth/o8mnswq/
+
+LEVANT_MONOMYTH_CRISIS and QAnon is promoted by Russia QANON_RUSSIA 
