@@ -962,3 +962,8 @@ BIBLE_LITERACY crisis. Science fiction interpretation crisis. “Half the people
 https://old.reddit.com/r/magicTCG/comments/1rkpvma/head_designer_of_tmnt_set_goes_to_peter_thiel/o8me5ih/
 
 Everything is Media Ecology. SEE_ALSO https://github.com/RocketDerp/April14_2025/blob/main/Media_Ecology/Everything_is_ME.md
+
+https://old.reddit.com/r/PoliticalHumor/comments/1rkqcwy/dwight_with_the_truth/o8mlmzz/
+
+MONOMYTH_WARFARE the SURKOV_MONOMYTH won since March 2013, lost hearts and minds in USA.
+
