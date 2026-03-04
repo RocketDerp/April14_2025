@@ -744,3 +744,7 @@ https://old.reddit.com/r/UnderReportedNews/comments/1rk4dn7/bernie_sanders_says_
 https://old.reddit.com/r/UnderReportedNews/comments/1rk4dn7/bernie_sanders_says_that_american_foreign_and/o8i0lur/
 
 5 month Reddit account.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rk4dn7/bernie_sanders_says_that_american_foreign_and/o8ifd7c/
+
+JOKE_COMEDY_POWER_IS_MAGA_IS_TRUMP_IS_SURKOV hilarious, funny to We The People without power.
