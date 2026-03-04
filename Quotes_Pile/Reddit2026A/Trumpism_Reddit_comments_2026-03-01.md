@@ -1008,3 +1008,7 @@ https://old.reddit.com/r/stevehofstetter/comments/1rkln0r/the_sheep_must_obey/o8
 https://old.reddit.com/r/stevehofstetter/comments/1rkln0r/the_sheep_must_obey/o8ld8bs/
 
 What low-effort media consumption, Fox News, tells fandoms, media cults. MEDIA_CULTS_FICTION_FANDOM_MEDIA_POWER
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rkqlit/pete_hegseth_attacking_the_press_for_reporting_on/o8mirzh/
+
+Top most upvoted popular comment. MIND_BLOWN_BY Surkovian governing methods. Antics media politics.
