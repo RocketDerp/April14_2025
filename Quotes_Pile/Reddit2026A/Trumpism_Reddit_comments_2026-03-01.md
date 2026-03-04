@@ -761,3 +761,15 @@ https://old.reddit.com/r/worldnews/comments/1rk7kpg/us_troops_told_war_on_iran_i
 
 9 month Reddit account. TALIBAN_VALUES 
 
+https://old.reddit.com/r/worldnews/comments/1rk7kpg/us_troops_told_war_on_iran_is_all_part_of_gods/o8ilokp/
+
+12 month Reddit account. TALIBAN_VALUES 
+
+https://old.reddit.com/r/worldnews/comments/1rk7kpg/us_troops_told_war_on_iran_is_all_part_of_gods/o8iopvs/
+
+2 month Reddit account.
+
+https://old.reddit.com/r/worldnews/comments/1rk7kpg/us_troops_told_war_on_iran_is_all_part_of_gods/o8ilsh3/
+
+2 month Reddit account. RELIGION_CULTS_MONOMYTH_PROGRAMMING
+
