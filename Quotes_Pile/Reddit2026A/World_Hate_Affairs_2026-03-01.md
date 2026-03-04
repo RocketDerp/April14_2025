@@ -469,3 +469,7 @@ MEDIA_ECOLOGY_OBSERVATION
 https://old.reddit.com/r/Epstein/comments/1rkm9jc/analyst_says_interest_in_epstein_files_plummeted/o8lmq7w/
 
 Media cults of Reddit and Bluesky LOLCOW milk Trump for memes and jokes. Observe Dr. Lee ignored and not asserted like "Epstein" name. AVOIDED_DR_BANDY_X_LEE_PUBLIC_WRITINGS
+
+https://old.reddit.com/r/nottheonion/comments/1rkrsk5/polymarket_pulls_bet_on_nuclear_detonation_in_2026/o8mom4u/
+
+TREND_CHASING_MEDIA_TRENDING chasing the crowd media addictions.
