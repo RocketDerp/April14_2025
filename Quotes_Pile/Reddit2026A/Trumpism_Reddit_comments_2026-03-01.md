@@ -864,3 +864,7 @@ https://old.reddit.com/r/videos/comments/1rk9p2i/i_just_left_a_classified_briefi
 Surkov won since March 2013. DENIAL_ABOUNDS ... PUTIN_SURKOV_TRUMP_LONG_TERM_YEARS_PLAN
 
 https://old.reddit.com/r/videos/comments/1rk9p2i/i_just_left_a_classified_briefing_with_the_trump/o8j3o6r/
+
+https://old.reddit.com/r/politics/comments/1rk85e7/democrats_raise_alarms_about_trumps_war_in_iran/o8iv8lh/
+
+MONOMYTH_WARFARE MONOMYTH_VS_MONOMYTH  
