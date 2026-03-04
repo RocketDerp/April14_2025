@@ -862,3 +862,5 @@ https://old.reddit.com/r/videos/comments/1rk9p2i/i_just_left_a_classified_briefi
 https://old.reddit.com/r/videos/comments/1rk9p2i/i_just_left_a_classified_briefing_with_the_trump/o8j6j1f/
 
 Surkov won since March 2013. DENIAL_ABOUNDS ... PUTIN_SURKOV_TRUMP_LONG_TERM_YEARS_PLAN
+
+https://old.reddit.com/r/videos/comments/1rk9p2i/i_just_left_a_classified_briefing_with_the_trump/o8j3o6r/
