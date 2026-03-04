@@ -982,3 +982,7 @@ The experience is horrific since year 2013 that We The People have embraced igno
 https://old.reddit.com/r/Fauxmoi/comments/1rkqrws/cnn_put_together_a_montage_of_conflicting/o8mlkcw/
 
 MEDIA_ECOLOGY_OBSERVATION   
+
+https://old.reddit.com/r/Fauxmoi/comments/1rkqrws/cnn_put_together_a_montage_of_conflicting/o8mnfus/
+
+WAR_AGAINST_REALITY
