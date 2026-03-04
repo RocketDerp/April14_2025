@@ -748,3 +748,7 @@ https://old.reddit.com/r/UnderReportedNews/comments/1rk4dn7/bernie_sanders_says_
 https://old.reddit.com/r/UnderReportedNews/comments/1rk4dn7/bernie_sanders_says_that_american_foreign_and/o8ifd7c/
 
 JOKE_COMEDY_POWER_IS_MAGA_IS_TRUMP_IS_SURKOV hilarious, funny to We The People without power.
+
+https://old.reddit.com/r/goodnews/comments/1rjz80z/trumps_ice_stunned_as_contracts_get_cancelled/o8ib8d0/
+
+https://old.reddit.com/r/goodnews/comments/1rjz80z/trumps_ice_stunned_as_contracts_get_cancelled/o8hmbui/
