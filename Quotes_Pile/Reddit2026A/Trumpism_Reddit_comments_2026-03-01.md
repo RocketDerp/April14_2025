@@ -729,3 +729,6 @@ https://old.reddit.com/r/Fauxmoi/comments/1rk5eq2/a_reporter_asked_mayor_mamdani
 
 https://old.reddit.com/r/antiwork/comments/1rk4me9/us_has_a_21_trillion_underground_network_for_only/o8i8lfe/
 
+https://old.reddit.com/r/antiwork/comments/1rk4me9/us_has_a_21_trillion_underground_network_for_only/o8ib5s1/
+
+No off-Reddit URL, no named person, just anti-intellectual short commenting.
