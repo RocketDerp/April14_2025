@@ -65,3 +65,7 @@ https://old.reddit.com/r/TwoXChromosomes/comments/1rlgvuj/gen_z_males_twice_as_l
 https://old.reddit.com/r/TwoXChromosomes/comments/1rlgvuj/gen_z_males_twice_as_likely_as_baby_boomers_to/o8s35hk/
 
 CULT_INDOCTRINATION media storytelling, science fiction fantasy works on audiences.
+
+https://old.reddit.com/r/TwoXChromosomes/comments/1rlgvuj/gen_z_males_twice_as_likely_as_baby_boomers_to/o8rv196/
+
+MEDIA_ECOLOGY_OBSERVATION  
