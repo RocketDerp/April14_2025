@@ -503,3 +503,11 @@ https://old.reddit.com/r/europe/comments/1rlf2zi/usa_firmly_oppose_poland_develo
 https://old.reddit.com/r/justgalsbeingchicks/comments/1rle3s0/iliza_shlesinger_about_anger_against_women/o8rbc6l/
 
 CHOICE_MARRIAGE_HONESTY  
+
+https://old.reddit.com/r/worldnews/comments/1rlhilt/trump_officials_now_want_ukraines_help_to_counter/o8s0bqj/
+
+"batshit insane". But never good enough to turn to quoting Dr. Bandy X. Lee.
+
+https://old.reddit.com/r/worldnews/comments/1rlhilt/trump_officials_now_want_ukraines_help_to_counter/o8s0o8x/
+
+https://old.reddit.com/r/worldnews/comments/1rlhilt/trump_officials_now_want_ukraines_help_to_counter/o8rypzy/
