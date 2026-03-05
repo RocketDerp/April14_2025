@@ -73,3 +73,15 @@ MEDIA_ECOLOGY_OBSERVATION
 https://old.reddit.com/r/TwoXChromosomes/comments/1rlgvuj/gen_z_males_twice_as_likely_as_baby_boomers_to/o8s0xss/
 
 Parents raising children in Fox News and Internet Research Agency values. DONALD_TRUMP_ROLE_MODEL now since June 2015.
+
+https://old.reddit.com/r/politics/comments/1rlq33w/trump_fires_kristi_noem_as_homeland_security/o8tx1c0/
+
+Not without a massive change in values among the population away from fiction towards serious relevant nonfiction.
+
+https://old.reddit.com/r/politics/comments/1rlq33w/trump_fires_kristi_noem_as_homeland_security/o8tumnk/
+
+4 month Reddit account.
+
+https://old.reddit.com/r/politics/comments/1rlq33w/trump_fires_kristi_noem_as_homeland_security/o8txl60/
+
+MAGA has them laughing away again on Reddit. Entertained by MAGA. LIBERAL_LAUGHS_LIBERAL_TEARS_COMPULSIVE_MAGA_FOLLOWERS
