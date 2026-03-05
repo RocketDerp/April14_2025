@@ -119,3 +119,7 @@ Simple Twitter-thinking logic.
 https://old.reddit.com/r/ForCuriousSouls/comments/1rlnlqj/arkansas_mother_killed_herself_and_her_sixyearold/o8tsi6s/
 
 IMPORTANT_QUOTES_A Someone actually quoted in making their point.
+
+https://old.reddit.com/r/ForCuriousSouls/comments/1rlnlqj/arkansas_mother_killed_herself_and_her_sixyearold/o8tqdrl/
+
+5 day Reddit account. Watch a few television shows and you know facts of any case.
