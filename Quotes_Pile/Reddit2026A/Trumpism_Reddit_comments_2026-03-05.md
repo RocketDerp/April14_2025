@@ -47,3 +47,7 @@ https://old.reddit.com/r/stevehofstetter/comments/1rlh3r2/praise_be_somewhere_el
 https://old.reddit.com/r/stevehofstetter/comments/1rlh3r2/praise_be_somewhere_else_outside_our_government/o8s17mr/
 
 WIDE_RADICAL_DOUBT_ABOUT_REAL
+
+https://old.reddit.com/r/TwoXChromosomes/comments/1rlgvuj/gen_z_males_twice_as_likely_as_baby_boomers_to/o8rwdxy/
+
+It has been clear in terms of Steve Bannon media vs. Malala media on social media... since year 2013... that white hate-filled men are the desire of media consumers to keep repeating and ReTweeting. NOT_GOOD_ENOUGH writer and speaker Malala to keep quoting and repeaing over and over against older men dominating society. SEE_ALSO timline https://github.com/RocketDerp/April14_2025/blob/main/PostMalala/Marriage/World_Malala_Timeline_Year_2012.md
