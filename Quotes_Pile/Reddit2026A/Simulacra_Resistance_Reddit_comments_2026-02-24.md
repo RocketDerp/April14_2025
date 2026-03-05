@@ -123,3 +123,9 @@ Exiting the simulation of resistance is organizing around the JANUARY_1944_SECON
 https://old.reddit.com/r/law/comments/1rlpzs9/donald_trump_fires_head_of_dhs_kristi_noem/o8tsmlz/
 
 The most popular upvoted comment. In no way is this comment RESISTING Trump.. People BELIEVE they are resisting, but are constantly spending free time and spare time attracted to the show that Reality TV Trump star provides. FOLLOWERS_OF_LEADER_TRUMP_ACTOR_ENTERTAINER_DONALD_TRUMP_FOLLOWERS
+
+https://old.reddit.com/r/law/comments/1rlpzs9/donald_trump_fires_head_of_dhs_kristi_noem/o8tw70r/
+
+https://old.reddit.com/r/law/comments/1rlpzs9/donald_trump_fires_head_of_dhs_kristi_noem/o8ttcp0/
+
+Entertained by Donald Trump Truth Social messages and ideas. Got the liberal laughs, ha ha ha. LIBERAL_LAUGHS_LIBERAL_TEARS_COMPULSIVE_MAGA_FOLLOWERS
