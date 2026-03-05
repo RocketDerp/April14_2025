@@ -527,3 +527,7 @@ LEVANT_MONOMYTH_CRISIS the Levant Torah, Bible, Quran are made out to be role mo
 https://old.reddit.com/r/UnderReportedNews/comments/1rlld7s/president_of_brazil_lula_da_silva_my_message_to/o8svjtk/
 
 The common Reddit users lack of respect for nonfiction and asserting goodness needs to be seen and understood. People spending their free time and spare time reacting to events instead of seeing the importance of adult education and learning. Why are people not turning to Dr. Bandy X Lee and other relevant public education... THE_HIGH_ROAD_IS_DR_BANDY_X_LEE_QUOTING_REPEATING
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rlld7s/president_of_brazil_lula_da_silva_my_message_to/o8swg41/
+
+The anti-intellectual celebrations of ignorance all over social media commenting sections are not being taken serious. SOCIAL_MEDIA_DID_NOT_HAVE_UPRISING_SUSTAINED_FOCUSED on Dr. Bandy X Lee or cult deprogramming.
