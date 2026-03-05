@@ -573,3 +573,7 @@ MIND_BLOWN_BY the Reddit audience finds Trump so original and creative as a sour
 https://old.reddit.com/r/worldnews/comments/1rlmftj/trump_says_he_needs_to_be_involved_selecting/o8t1s12/
 
 10 month Reddit account. SATIRE_SARCASM_WASHING
+
+https://old.reddit.com/r/worldnews/comments/1rlmftj/trump_says_he_needs_to_be_involved_selecting/o8t67ps/
+
+Trump leads with hate, Reddit community follows the leader. ATTRACTION_TO_HATE_LEADERS_HATE_FOLLOWERS
