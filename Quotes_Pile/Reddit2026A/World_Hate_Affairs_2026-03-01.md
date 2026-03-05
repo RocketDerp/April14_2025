@@ -543,3 +543,5 @@ https://old.reddit.com/r/UnderReportedNews/comments/1rlld7s/president_of_brazil_
 https://old.reddit.com/r/UnderReportedNews/comments/1rlmsom/the_downed_iranian_warship_did_not_carry_any/o8t47tm/
 
 HATE_HARDER simplistic 2nd most popular upvoted comment. Anti-intellectual, anti-learning, pro-hate. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rlmsom/the_downed_iranian_warship_did_not_carry_any/o8t5692/
