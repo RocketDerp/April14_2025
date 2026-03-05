@@ -499,3 +499,7 @@ https://old.reddit.com/r/news/comments/1rlexs9/influencers_in_dubai_warned_they_
 https://old.reddit.com/r/europe/comments/1rlf2zi/usa_firmly_oppose_poland_developing_nuclear/o8rib35/
 
 https://old.reddit.com/r/europe/comments/1rlf2zi/usa_firmly_oppose_poland_developing_nuclear/o8rgpfp/
+
+https://old.reddit.com/r/justgalsbeingchicks/comments/1rle3s0/iliza_shlesinger_about_anger_against_women/o8rbc6l/
+
+CHOICE_MARRIAGE_HONESTY  
