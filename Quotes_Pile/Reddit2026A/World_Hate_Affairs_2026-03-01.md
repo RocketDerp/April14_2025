@@ -531,3 +531,7 @@ The common Reddit users lack of respect for nonfiction and asserting goodness ne
 https://old.reddit.com/r/UnderReportedNews/comments/1rlld7s/president_of_brazil_lula_da_silva_my_message_to/o8swg41/
 
 The anti-intellectual celebrations of ignorance all over social media commenting sections are not being taken serious. SOCIAL_MEDIA_DID_NOT_HAVE_UPRISING_SUSTAINED_FOCUSED on Dr. Bandy X Lee or cult deprogramming.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rlld7s/president_of_brazil_lula_da_silva_my_message_to/o8szzbc/
+
+The anti-intellectual pro-meme pro-antics Twitter-thinking mania is a society wide problem, age 12 to age 12, not just leaders. BRAIN_ROT_SOCIETY_47    
