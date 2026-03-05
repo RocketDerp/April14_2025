@@ -21,3 +21,7 @@ https://old.reddit.com/r/politics/comments/1rkv7zd/in_refusing_to_impeach_trump_
 https://old.reddit.com/r/politics/comments/1rkv7zd/in_refusing_to_impeach_trump_congress_has_failed/o8novwf/
 
 https://old.reddit.com/r/politics/comments/1rkv7zd/in_refusing_to_impeach_trump_congress_has_failed/o8nexz7/
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1rlewiv/arrest_on_charges_of_treason_and_blatant_failure/o8s6nwt/
+
+Worse, people do seem to care, to keep making memes and reaction comments as an attraction to gawk at. People can not resist the anti-intellectualism that Trump provides. MEASURING_BAR_SO_LOW
