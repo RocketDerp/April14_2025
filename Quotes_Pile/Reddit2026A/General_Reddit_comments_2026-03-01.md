@@ -95,3 +95,27 @@ Simple-think logic.
 https://old.reddit.com/r/ForCuriousSouls/comments/1rlnlqj/arkansas_mother_killed_herself_and_her_sixyearold/o8u0e4b/
 
 GULLIBLE_FANDOM
+
+https://old.reddit.com/r/ForCuriousSouls/comments/1rlnlqj/arkansas_mother_killed_herself_and_her_sixyearold/o8u2ykt/
+
+GULLIBLE_FANDOM
+
+https://old.reddit.com/r/ForCuriousSouls/comments/1rlnlqj/arkansas_mother_killed_herself_and_her_sixyearold/o8to05j/
+
+She was obviously abusive towards the children, the mother murdered both children with a gun. Egomania. 
+
+https://old.reddit.com/r/ForCuriousSouls/comments/1rlnlqj/arkansas_mother_killed_herself_and_her_sixyearold/o8tgguj/
+
+https://old.reddit.com/r/ForCuriousSouls/comments/1rlnlqj/arkansas_mother_killed_herself_and_her_sixyearold/o8tjfd5/
+
+https://old.reddit.com/r/ForCuriousSouls/comments/1rlnlqj/arkansas_mother_killed_herself_and_her_sixyearold/o8tipcx/
+
+No author name, no off-Reddit URL, no quotes from anyone else.
+
+https://old.reddit.com/r/ForCuriousSouls/comments/1rlnlqj/arkansas_mother_killed_herself_and_her_sixyearold/o8u6ogc/
+
+Simple Twitter-thinking logic.
+
+https://old.reddit.com/r/ForCuriousSouls/comments/1rlnlqj/arkansas_mother_killed_herself_and_her_sixyearold/o8tsi6s/
+
+IMPORTANT_QUOTES_A Someone actually quoted in making their point.
