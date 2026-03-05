@@ -1018,3 +1018,7 @@ https://old.reddit.com/r/UnderReportedNews/comments/1rkqlit/pete_hegseth_attacki
 UNDERSTANDING_SURKOV_PUTINISM_TRUMPISM_HATE_HILARIOUS blown minds by contradictory Surkov student techniques.
 
 https://old.reddit.com/r/LegalNews/comments/1rkrmqi/panicked_republicans_fear_trumps_fing_nightmare/o8mpf4i/
+
+https://old.reddit.com/r/whenthe/comments/1rkwjql/someone_i_agree_with_was_cringe_i_no_longer_agree/o8nu2t2/
+
+SUPERFICIAL_SHALLOW_PRIZING_TRUMPISM_MAGA_VALUES cringe culture, deport-happy block-happy censorship-happy society.
