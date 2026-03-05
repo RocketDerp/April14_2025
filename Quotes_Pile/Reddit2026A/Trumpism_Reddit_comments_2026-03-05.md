@@ -15,3 +15,9 @@ https://old.reddit.com/r/politics/comments/1rl58eu/gop_senator_allegedly_breaks_
 https://old.reddit.com/r/sports/comments/1rl3uyp/4time_nfl_mvp_qb_aaron_rodgers_on_kash_patel/o8pafy2/
 
 MEDIA_ECOLOGY_OBSERVATION TMZ, TV show in replies. 2 month Reddit account.
+
+https://old.reddit.com/r/politics/comments/1rkv7zd/in_refusing_to_impeach_trump_congress_has_failed/o8ndye7/
+
+https://old.reddit.com/r/politics/comments/1rkv7zd/in_refusing_to_impeach_trump_congress_has_failed/o8novwf/
+
+https://old.reddit.com/r/politics/comments/1rkv7zd/in_refusing_to_impeach_trump_congress_has_failed/o8nexz7/
