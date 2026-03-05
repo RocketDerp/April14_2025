@@ -8,8 +8,21 @@ https://en.wikipedia.org/wiki/Folie_%C3%A0_deux
 
 &nbsp;
 
+# Shared Psychosis 
+
 "The ‘Shared Psychosis’ of Donald Trump and His Loyalists"   
 "Forensic psychiatrist Bandy X. Lee explains the outgoing president’s pathological appeal and how to wean people from it"   
 By Tanya Lewis edited by Dean Visser    
 https://www.ScientificAmerican.com/article/the-shared-psychosis-of-donald-trump-and-his-loyalists/
 
+&nbsp;
+
+# Convincing stories, convincing fiction   
+
+https://youtu.be/NlQUv5oEox8?t=370    
+
+&nbsp; 
+
+## Torah, Bible, Quran mythology
+
+convincing fiction cults. Believing things that are not true. Anti-fact anti-reality. ANTI_REALITY
