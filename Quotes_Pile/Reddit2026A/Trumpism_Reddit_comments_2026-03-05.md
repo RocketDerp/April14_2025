@@ -61,3 +61,7 @@ TRICKLE_DOWN_MEDIA power of billionaires programming the population, including R
 https://old.reddit.com/r/TwoXChromosomes/comments/1rlgvuj/gen_z_males_twice_as_likely_as_baby_boomers_to/o8skn4o/
 
 2 month Reddit account. An important point about cringe-washing as entertainment (mocking Trump as cringe, mocking Joe Rogan as cringe) is a real problem to be taken seriously. Gringe makes it amusement to people. Neil Postman is essential undrestanding. AMUSEMENT_AS_USUAL
+
+https://old.reddit.com/r/TwoXChromosomes/comments/1rlgvuj/gen_z_males_twice_as_likely_as_baby_boomers_to/o8s35hk/
+
+CULT_INDOCTRINATION media storytelling, science fiction fantasy works on audiences.
