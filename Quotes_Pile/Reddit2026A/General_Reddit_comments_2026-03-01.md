@@ -40,3 +40,50 @@ METAPHORS_IN_MOTION
 https://old.reddit.com/r/SipsTea/comments/1rjkp36/she_ate_his_soul_with_that_kiss/o8durxj/
 
 INTERCOURSE_DIALOG
+
+https://old.reddit.com/r/mildlyinteresting/comments/1rjs946/bookstore_misspells_its_own_name_on_big/o8fbzrz/
+
+CONCERNS_OF_FINNEGANS
+
+https://old.reddit.com/r/mildlyinteresting/comments/1rjs946/bookstore_misspells_its_own_name_on_big/o8ff5ui/
+
+Image on the front page of Reddit /r/All and audience member says: "I don't know why anyone does anything anymore." TREND_CHASING_MEDIA_TRENDING consumers flock to unusual media symbolism. Flocking Reddit media consumers.
+
+https://old.reddit.com/r/mildlyinteresting/comments/1rjs946/bookstore_misspells_its_own_name_on_big/o8fghty/
+
+TARNISHED_BRAND_FOREVER_PERMANENT_BLOCK - any reason to dehumanize "The Little Guy" compared to a team / Corporate America.
+
+https://old.reddit.com/r/rareinsults/comments/1rjv6nr/god_can_be_a_serious_procrastinator/o8g7qc1/
+
+Pretty sophisticated moderation on Reddit.
+
+https://old.reddit.com/r/rareinsults/comments/1rjv6nr/god_can_be_a_serious_procrastinator/o8g0zhj/
+
+NEW_OPERA_NAME #DaddyIssuesAbound #WomenAsPeople    
+Social post { https://autistics.life/@RoundSparrow/116167052035185718 https://bsky.app/profile/roundsparrow.bsky.social/post/3mg6l7vd3y224 }   
+
+https://old.reddit.com/r/interestingasfuck/comments/1rk0xrp/til_theres_a_website_where_you_can_watch_any_tv/o8h6apk/
+
+MEDIA_ECOLOGY_OBSERVATION   
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1rk08ka/i_dont_get_it/o8h260a/
+
+SUPERFICIAL_SHALLOW_PRIZING_TRUMPISM_MAGA_VALUES
+
+https://old.reddit.com/r/meme/comments/1rk0nc7/the_only_way_my_son_will_take_a_bottle/o8habd1/
+
+If we could make it a priority to address the cult of ignorance, rescue and clean up Donald Trump and MAGA with Dr. Bandy X Lee's leadership... then this could be an interesting question for people. Otherwise it is AMUSEMENT_AS_USUAL 
+
+https://old.reddit.com/r/formuladank/comments/1rkqcpn/my_genuine_reaction/o8mkeya/
+
+TECH_LUST_TECH_LOVERS hate human people, stand up for the big famous guys media platform.
+
+https://old.reddit.com/r/BrandNewSentence/comments/1rkk0j3/they_legally_cannot_call_it_a_burger/o8l4ibm/
+
+TRICKLE_DOWN_MEDIA
+
+https://old.reddit.com/r/BrandNewSentence/comments/1rkk0j3/they_legally_cannot_call_it_a_burger/o8lqs0t/
+
+UNDERSTANDING_TRUMPISM doing bad things draws a crowd. Fiction storytelling outsells nonfiction relevant learning.
+
+https://old.reddit.com/r/Music/comments/1rlizte/britney_spears_arrested_in_california_for_dui/o8sffos/

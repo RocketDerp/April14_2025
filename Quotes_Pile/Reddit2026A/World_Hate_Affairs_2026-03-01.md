@@ -193,3 +193,328 @@ https://old.reddit.com/r/worldnews/comments/1rjregj/donald_trump_irans_military_
 
 Reddit fandom of Trump. Trump leads with mocking, Reddit community upvotes mocking. Feedback lops of mocking back and forth with MAGA / Trump / Fox News HDTV. MOCK_MOCK_MOCKERY 
 
+https://old.reddit.com/r/worldnews/comments/1rjmuyo/trump_slams_starmer_for_not_joining_us_strikes_on/o8elo67/
+
+NEGGING_WORKS_LANGUAGE_INSULTING_WORKS_REALITY_PROGRAMMING_LANGUAGE HATE_MOTIVATED_ECONOMY_HATE_AS_A_VIRTUE_SIGNALING  People really need to study how compassion-removal works in military training camps all over the world and throughout history. how you turn everyday people into organized killing gangs.
+
+https://old.reddit.com/r/worldnews/comments/1rjmuyo/trump_slams_starmer_for_not_joining_us_strikes_on/o8eadni/
+
+RECENCY_BIAS abounds. People in USA have so much extreme information overload the mindsets are immersed in the Trump stimulation of events, Trump images, etc.
+
+https://old.reddit.com/r/worldnews/comments/1rjmuyo/trump_slams_starmer_for_not_joining_us_strikes_on/o8ecdrn/
+
+"LOL" to Trump messaging. PEOPLE_LOVE_COMEDY_MEDIA_CONTENT_MORE_THAN_PLURIBUS_HUMANISM
+
+https://old.reddit.com/r/worldnews/comments/1rjmuyo/trump_slams_starmer_for_not_joining_us_strikes_on/o8e9jl9/
+
+"in the middle east, thousands got injuried, and several hundreds died, over wars based on nothing" - it is Bible science fiction fandom vs. Quran retcon science fiction fandom. MONOMYTH_VS_MONOMYTH warfare. media cult vs. media cult warfare.
+
+https://old.reddit.com/r/worldnews/comments/1rjmuyo/trump_slams_starmer_for_not_joining_us_strikes_on/o8eupbz/
+
+World Hate Affairs of the heart. The audience fascination, attraction to hate. ATTRACTION_TO_HATE_LEADERS_HATE_FOLLOWERS - again, why is nobody on Reddit comment section attracted to nonfiction serious books by 27 writers published by Dr. Bandy X Lee since October 3, 2017 - that is extremely relevant to our national crisis... ANSWER: attraction to Trump as a fandom of media stimulation is the force of MAGA. Surkov won.
+
+https://old.reddit.com/r/worldnews/comments/1rjmuyo/trump_slams_starmer_for_not_joining_us_strikes_on/o8e8ghn/
+
+NEGGING_WORKS_LANGUAGE_INSULTING_WORKS_REALITY_PROGRAMMING_LANGUAGE "Then Trump comes into office and insults all the people" - show me someone quoting Martin Luther King Jr that has a following in March 2026? Because hate and insulting is the cult that Surkov students created since year 2013.
+
+https://old.reddit.com/r/worldnews/comments/1rjmuyo/trump_slams_starmer_for_not_joining_us_strikes_on/o8e9qng/
+
+Shit-posting shit-commenting addicts on Reddit want more shit headlines. Trivial changes. The cults on Reddit do not want to REMOVE Trump, they just want different media content to feed the shit desires. ATTRACTION_TO_SHIT_CONTENT_ENSHIT_BY_DESIRE And this Reddit comment messaging is a call for change of media, not for a call of change in values and morals. CALL_FOR_ACTION_TO_DO_TRIVIAL_CHANGE
+
+https://old.reddit.com/r/worldnews/comments/1rjmuyo/trump_slams_starmer_for_not_joining_us_strikes_on/o8ezanj/
+
+4 month Reddit account. DENIAL_ABOUNDS of the anti-reality that USA population lives in, shit-commenting, shit-posting addictions nation.
+
+https://old.reddit.com/r/worldnews/comments/1rjmuyo/trump_slams_starmer_for_not_joining_us_strikes_on/o8e9beu/
+
+TRICKLE_DOWN_MEMES_AND_MESSAGES cults of meme-thinking Twitter-thinking billionaire message programming.
+
+https://old.reddit.com/r/worldnews/comments/1rjmuyo/trump_slams_starmer_for_not_joining_us_strikes_on/o8ea8cc/
+
+TRUMP_FANDOM wishing to be closer to Trump and have more Trump intimacy at family meals. "Wouldn't you like to be a fly on the wall when Trump was a kid and say, eating dinner with his family?" Even talks about Trump's mental health in this Reddit comment, but OBSERVE the AVOIDED_DR_BANDY_X_LEE_PUBLIC_WRITINGS
+
+https://old.reddit.com/r/worldnews/comments/1rjmuyo/trump_slams_starmer_for_not_joining_us_strikes_on/o8edj0l/
+
+DENIAL_ABOUNDS This Reddit upvoting and commenting community believes Trump's talent is exactly what? The only talent Trump has is negging and hating people. It clearly DOES WORK, in real reality, beyond the psychological denial of authentic reality people have on Reddit! POTUS Tony Clifton performance works! And has for over a decade. NEGGING_WORKS_LANGUAGE_INSULTING_WORKS_REALITY_PROGRAMMING_LANGUAGE
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rjv3ba/trump_cuts_ties_with_spain_and_says_he_will_use/o8fwvxe/
+
+Top-most upvoted popular comment, entertainment-washing celebrity-washing master of ceremony mindset. Observe the avoidance of nonfiction Dr. Bandy X Lee books and calling for removal. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rjv3ba/trump_cuts_ties_with_spain_and_says_he_will_use/o8g51v3/
+
+DECEMBER_5_2014_NATO_JOKE_ARTICLE_5_JOKE See video clip, SEE_ALSO https://www.youtube.com/clip/UgkxsPMnrK_RCklBbjHHrPqdSuMi23zhsX_M 33,699 views December 5, 2014
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rjv3ba/trump_cuts_ties_with_spain_and_says_he_will_use/o8fzih1/
+
+Reddit audience unable to organize, unable to escape the 140 character Twitter-think mindset. SCHOOLS_OF_THOUGHT_FEEDBACK_LOOPS_INSIDE_BOXED_MINDSETS
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rjv3ba/trump_cuts_ties_with_spain_and_says_he_will_use/o8fz2aj/
+
+8 month Reddit account. 2 word, extreme tiny-short thinking and messaging patterns. ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING
+
+https://old.reddit.com/r/politics/comments/1rjsxvr/kash_patel_fired_entire_team_of_iran_experts/o8fgixc/
+
+Top-most upvoted popular comment, Twitter-thinking anti-education anti-intellectual. Observe the avoidance of nonfiction Dr. Bandy X Lee books and calling for removal. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
+
+https://old.reddit.com/r/politics/comments/1rjsxvr/kash_patel_fired_entire_team_of_iran_experts/o8fgj4j/
+
+Trend, Trending social media, trending /r/All anti-intellectual anti-education for adults population. TOXIC_POPULARITY of media cults to mocking and hate. Twitter-thinking USA, Fox News HDTV thinking. Media addictions, media cults are popular.
+
+https://old.reddit.com/r/politics/comments/1rjsxvr/kash_patel_fired_entire_team_of_iran_experts/o8fh1l6/
+
+3 words, clown population, We The People clowns. Under 140 character "engagement" questions. FANATICS_FANS_OF_CLOWNS_FANS_OF_MAGA_CLOWNING
+
+https://old.reddit.com/r/politics/comments/1rjsxvr/kash_patel_fired_entire_team_of_iran_experts/o8fkpzg/
+
+But everyone forgets to cite nonfiction on Reddit media. Never Forget August 24, 2018 DANGER_ALERT_CALL_TO_INTELLECTUAL_ARMS_BOOK_CRAM_SESSIONS https://www.BBC.com/news/world-us-canada-45294192
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rjw7ti/spains_mep_irene_montero_we_must_isolate_the_us/o8g6qjo/
+
+Top-most upvoted popular comment, Twitter-thinking anti-education anti-intellectual. Observe the avoidance of nonfiction Dr. Bandy X Lee books and calling for removal. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING Reddit users don't "have the balls" to quote Dr. Lee and confront their mental health avoidance of nonfiction relevant books.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rjw7ti/spains_mep_irene_montero_we_must_isolate_the_us/o8g7g7g/
+
+ATTRACTION_TO_HATE_LEADERS_HATE_FOLLOWERS
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rjw7ti/spains_mep_irene_montero_we_must_isolate_the_us/o8g5q6r/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rjw7ti/spains_mep_irene_montero_we_must_isolate_the_us/o8g8418/
+
+SEX_SELLS_SEX_LEADERS
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rjw7ti/spains_mep_irene_montero_we_must_isolate_the_us/o8g81do/
+
+REMEDIAL_MORALITY education is essential for adults. Twitter-think morals are horrific since year 2013. Surkov won.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rjw7ti/spains_mep_irene_montero_we_must_isolate_the_us/o8gag13/
+
+SEX_SELLS_SEX_LEADERS
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rjw7ti/spains_mep_irene_montero_we_must_isolate_the_us/o8g9qn7/
+
+SEX_SELLS_SEX_LEADERS
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rjw7ti/spains_mep_irene_montero_we_must_isolate_the_us/o8gczxi/
+
+BRAIN_ROT_SOCIETY_47 TRUMP_BLIND snow blind to Trump entertainment images.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rjw7ti/spains_mep_irene_montero_we_must_isolate_the_us/o8gatup/
+
+HYPER_SIMPLE_TRIVIALIZE_BANAL_SELF_ONLY_CONCERN - people are being killed in war, minds are being enslaved in USA to Trump and Putin... but not standing up and using free time and spare time on Reddit media to promote and assert Dr. Bandy X Lee's nonfiction books since October 3, 2017.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rjw7ti/spains_mep_irene_montero_we_must_isolate_the_us/o8gd1qh/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rjw7ti/spains_mep_irene_montero_we_must_isolate_the_us/o8g7nc3/
+
+Surkov won since March 2013. Total loss of hearts and minds to self-harm SURKOV_MONOMYTH 
+
+https://old.reddit.com/r/wikipedia/comments/1rjtyu6/on_september_2025_the_holocaust_museum_la_posted/o8foy73/
+
+8 month Reddit account. Top most upvoted popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+
+https://old.reddit.com/r/wikipedia/comments/1rjtyu6/on_september_2025_the_holocaust_museum_la_posted/o8foz83/
+
+2nd most popular comment. Asking social media "engagement questions". ANSWER: This is the timeline of Twitter-thinking, Tweet-think, mindsets of TOXIC_POPULARITY and brain rot from reactionary media popularity like this museum. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
+
+https://old.reddit.com/r/wikipedia/comments/1rjtyu6/on_september_2025_the_holocaust_museum_la_posted/o8gakbz/
+
+World Hate Affairs.
+
+https://old.reddit.com/r/wikipedia/comments/1rjtyu6/on_september_2025_the_holocaust_museum_la_posted/o8fub1o/
+
+https://old.reddit.com/r/wikipedia/comments/1rjtyu6/on_september_2025_the_holocaust_museum_la_posted/o8fsxmt/
+
+MASS_DEHUMANIZATION_POPULAR
+
+https://old.reddit.com/r/PublicFreakout/comments/1rjvo4l/trump_on_spain_were_gonna_cut_off_all_trade_with/o8g4jrr/
+
+Top-most upvoted popular comment, Twitter-thinking anti-education anti-intellectual. Observe the avoidance of nonfiction Dr. Bandy X Lee books and calling for removal. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING 
+
+https://old.reddit.com/r/PublicFreakout/comments/1rjvo4l/trump_on_spain_were_gonna_cut_off_all_trade_with/o8g1o4h/
+
+As long as there is Super Bowl and World Cup, the media addicts to celebrity leaders enjoy their rectangle logic inside-the-box thinking that billionaires conditioned in the population. FOLLOWERS_OF_LEADER_TRUMP_ACTOR_ENTERTAINER_DONALD_TRUMP_FOLLOWERS
+
+https://old.reddit.com/r/worldnews/comments/1rjvpfd/trump_not_happy_with_spains_position_on_iran_well/o8g2qcf/
+
+Tiny-short predictable Reddit reaction-to-Trump commenting message. ARE_YOU_SMARTER_THAN_3RD_GRADE_STUDENT_FANDOM_MEASURING
+
+https://old.reddit.com/r/worldnews/comments/1rjvpfd/trump_not_happy_with_spains_position_on_iran_well/o8g2ub1/
+
+Typical Trump Fandom on Reddit. No desire to remove Donald Trump from power, because the media addiction to watching Trump exceeds all universal goodness. PRIZING_HATE_FURTHERING_HATE Surkov won since March 2013.
+
+https://old.reddit.com/r/worldnews/comments/1rjqk39/israel_sends_troops_into_southern_lebanon_as/o8fbrqn/
+
+https://old.reddit.com/r/worldnews/comments/1rjqk39/israel_sends_troops_into_southern_lebanon_as/o8fdgwk/
+
+3 month Reddit account.
+
+https://old.reddit.com/r/worldnews/comments/1rjqk39/israel_sends_troops_into_southern_lebanon_as/o8g11xc/
+
+Religion is just science fiction storytelling. Cults of Reddit, cults of Twitter, cults of Fox News HDTV, cults of Bible storytelling. Church venue, cinema venue, Apple iPhone venue... media. There is no supernatural. RELIGION_CULTS_MONOMYTH_PROGRAMMING
+
+https://old.reddit.com/r/worldnews/comments/1rjqk39/israel_sends_troops_into_southern_lebanon_as/o8h8qg0/
+
+SEE_ALSO: https://GitHub.com/RocketDerp/April14_2025/blob/working/Grim_Blunt/Cognitive_Decline_Nation.md#harlan-ellison-middle-east-8000-years "Harlan Ellison, Middle East 8000 years"   
+
+https://old.reddit.com/r/worldnews/comments/1rjkjim/trump_suggests_friendly_takeover_of_cuba_stating/o8dxgxb/
+
+Top-most upvoted popular comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
+
+https://old.reddit.com/r/worldnews/comments/1rjkjim/trump_suggests_friendly_takeover_of_cuba_stating/o8drrdg/
+
+Surkov named the war. WAR_ALL_AGAINST_ALL
+
+https://old.reddit.com/r/worldnews/comments/1rjkjim/trump_suggests_friendly_takeover_of_cuba_stating/o8dw2ee/
+
+MAXIMUM_PUTINIZATION
+
+https://old.reddit.com/r/worldnews/comments/1rjkjim/trump_suggests_friendly_takeover_of_cuba_stating/o8dybnb/
+
+Social media did not take the high road. The cults of Trump normalized hate. THE_HIGH_ROAD_IS_DR_BANDY_X_LEE_QUOTING_REPEATING
+
+https://old.reddit.com/r/worldnews/comments/1rjkjim/trump_suggests_friendly_takeover_of_cuba_stating/o8dzelq/
+
+https://old.reddit.com/r/worldnews/comments/1rjkjim/trump_suggests_friendly_takeover_of_cuba_stating/o8fl38y/
+
+<img width="1092" height="515" alt="image" src="https://github.com/user-attachments/assets/feab0cdd-93d0-4cbf-a0de-f98a985deac4" />
+
+JOKE_COMEDY_POWER_IS_MAGA_IS_TRUMP_IS_SURKOV joke-washing USA Reddit culture. DEATH_BY_LOL  
+
+NEW_OPERA_NAME #FunnyIf #WouldBeFunny #ComicBookEvil   
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mg6ty7uoqs2h  https://autistics.life/@RoundSparrow/116167674074637069 }   
+
+https://old.reddit.com/r/worldnews/comments/1rjkjim/trump_suggests_friendly_takeover_of_cuba_stating/o8fe6x0/
+
+The shit-commenting on Reddit, people won't stop! The shit-posting. The anti-intellectual crap media. WANT_TO_STOP_THE_SHIT_SHOW_SHIT_COMMENTING_ADDICTIONS_MEDIA
+
+https://old.reddit.com/r/worldnews/comments/1rjkjim/trump_suggests_friendly_takeover_of_cuba_stating/o8dvcz2/
+
+Social media keeps cheering hate onward. More hate HATE_HARDER messaging from We The People, from Reddit fandoms.
+
+https://old.reddit.com/r/worldnews/comments/1rjkjim/trump_suggests_friendly_takeover_of_cuba_stating/o8e82jp/
+
+It's low-information "engagement" questioning. It's what We The People choose to do with intelligence, trash it with Twitter-think patterns. PROMOTING_IGNORANCE_WORKS_PLAYING_DUMB_MOCKING
+
+https://old.reddit.com/r/worldnews/comments/1rk2msg/united_states_seeking_an_armed_kurdish_uprising/o8hqb8w/
+
+https://old.reddit.com/r/worldnews/comments/1rk2msg/united_states_seeking_an_armed_kurdish_uprising/o8hnd0l/
+
+WIDE_RADICAL_DOUBT_ABOUT_REAL
+
+https://old.reddit.com/r/worldnews/comments/1rk2msg/united_states_seeking_an_armed_kurdish_uprising/o8hjl86/
+
+https://old.reddit.com/r/worldnews/comments/1rk2msg/united_states_seeking_an_armed_kurdish_uprising/o8hpreo/
+
+https://old.reddit.com/r/worldnews/comments/1rk2msg/united_states_seeking_an_armed_kurdish_uprising/o8hj6io/
+
+ICE_FANDOM behaviors and attitudes. Always cheering on Trumpism. Satire-washing badness as clean because it creates comedy entertainment for meme devices.
+
+https://old.reddit.com/r/pics/comments/1rkloxe/israeli_knesset_member_with_a_noose_and_her/o8lewwh/
+
+5 month Reddit account. Most upvoted popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+
+https://old.reddit.com/r/pics/comments/1rkloxe/israeli_knesset_member_with_a_noose_and_her/o8lespq/
+
+https://old.reddit.com/r/pics/comments/1rkloxe/israeli_knesset_member_with_a_noose_and_her/o8lfpdq/
+
+WIDE_RADICAL_DOUBT_ABOUT_REAL
+
+https://old.reddit.com/r/worldnews/comments/1rkhno3/submarine_attack_sinks_iranian_ship_near_sri/o8kmea4/
+
+https://old.reddit.com/r/news/comments/1rkhgw8/us_troops_were_told_war_on_iran_was_all_part_of/o8kwjc6/
+
+https://old.reddit.com/r/TikTokCringe/comments/1rkknko/the_us_and_the_rest_of_the_world_will/o8lf87h/
+
+https://old.reddit.com/r/TikTokCringe/comments/1rkknko/the_us_and_the_rest_of_the_world_will/o8lctj3/
+
+https://old.reddit.com/r/TikTokCringe/comments/1rkknko/the_us_and_the_rest_of_the_world_will/o8lg70d/
+
+DENIAL_ABOUNDS that Trump is just *routine*. The Apple iPhone year 2007 changed society in a way Reddit users can't see Reddit and storytelling. Surkov won since March 2013. USA population has engaged Twitter-thinking without self-awareness. Neil Postman and Marshall McLuhan levels of self-awareness have disappeared in society mass man.
+
+https://old.reddit.com/r/TikTokCringe/comments/1rkknko/the_us_and_the_rest_of_the_world_will/o8lb2yx/
+
+https://old.reddit.com/r/TikTokCringe/comments/1rkknko/the_us_and_the_rest_of_the_world_will/o8lbmq0/
+
+MEDIA_ECOLOGY_OBSERVATION   
+
+https://old.reddit.com/r/TikTokCringe/comments/1rkknko/the_us_and_the_rest_of_the_world_will/o8lwlup/
+
+https://old.reddit.com/r/worldnews/comments/1rkjw6v/nato_intercepts_iranian_missile_heading_toward/o8kznqa/
+
+https://old.reddit.com/r/worldnews/comments/1rkjw6v/nato_intercepts_iranian_missile_heading_toward/o8lc8ku/
+
+https://old.reddit.com/r/worldnews/comments/1rkjw6v/nato_intercepts_iranian_missile_heading_toward/o8l1erq/
+
+5 month Reddit account.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rkj5ef/spains_pm_s%C3%A1nchez_doubles_down_on_no_to_war/o8kvc68/
+
+A top-voted most popular comment that promotes anti-intellectual pro-ignorance use of media systems. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rkj5ef/spains_pm_s%C3%A1nchez_doubles_down_on_no_to_war/o8kun00/
+
+3 month Reddit account, 2nd most upvoted popular comment. Note the user profile about brain, and then the comment mentions brain. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rkj5ef/spains_pm_s%C3%A1nchez_doubles_down_on_no_to_war/o8kvos1/
+
+https://old.reddit.com/r/Epstein/comments/1rkm9jc/analyst_says_interest_in_epstein_files_plummeted/o8li6id/
+
+EPSTEIN_FANDOM 
+
+https://old.reddit.com/r/Epstein/comments/1rkm9jc/analyst_says_interest_in_epstein_files_plummeted/o8li6id/
+
+MEDIA_ECOLOGY_OBSERVATION
+
+https://old.reddit.com/r/Epstein/comments/1rkm9jc/analyst_says_interest_in_epstein_files_plummeted/o8lmq7w/
+
+Media cults of Reddit and Bluesky LOLCOW milk Trump for memes and jokes. Observe Dr. Lee ignored and not asserted like "Epstein" name. AVOIDED_DR_BANDY_X_LEE_PUBLIC_WRITINGS
+
+https://old.reddit.com/r/nottheonion/comments/1rkrsk5/polymarket_pulls_bet_on_nuclear_detonation_in_2026/o8mom4u/
+
+TREND_CHASING_MEDIA_TRENDING chasing the crowd media addictions.
+
+https://old.reddit.com/r/nottheonion/comments/1rkrsk5/polymarket_pulls_bet_on_nuclear_detonation_in_2026/o8mphx9/
+
+https://old.reddit.com/r/nottheonion/comments/1rkrsk5/polymarket_pulls_bet_on_nuclear_detonation_in_2026/o8msnf7/
+
+SPORTS_WASHING ENTERTAINMENT_WASHING 
+
+https://old.reddit.com/r/nottheonion/comments/1rkrsk5/polymarket_pulls_bet_on_nuclear_detonation_in_2026/o8mqduv/
+
+RESISTING_WHAT_EXACTLY people are resisting political parties, but not resisting out-group-hate and dehumanization values.
+
+https://old.reddit.com/r/worldnews/comments/1rkw9kj/thousands_of_kurdish_fighters_launch_ground/o8nosaj/
+
+SURKOVIAN_CHESS mind exploitation, puppeting past symbolism (inverting Russia bad). Mass mind manipulation.
+
+https://old.reddit.com/r/worldnews/comments/1rl67f3/iraq_plunged_into_nationwide_blackout_as_us_tells/o8q8ync/
+
+https://old.reddit.com/r/worldnews/comments/1rl67f3/iraq_plunged_into_nationwide_blackout_as_us_tells/o8pvlo3/
+
+Right out of Twitter and Reddit.
+
+https://old.reddit.com/r/news/comments/1rlexs9/influencers_in_dubai_warned_they_face_prison_for/o8rfp7u/
+
+https://old.reddit.com/r/europe/comments/1rlf2zi/usa_firmly_oppose_poland_developing_nuclear/o8rib35/
+
+https://old.reddit.com/r/europe/comments/1rlf2zi/usa_firmly_oppose_poland_developing_nuclear/o8rgpfp/
+
+https://old.reddit.com/r/justgalsbeingchicks/comments/1rle3s0/iliza_shlesinger_about_anger_against_women/o8rbc6l/
+
+CHOICE_MARRIAGE_HONESTY  
+
+https://old.reddit.com/r/worldnews/comments/1rlhilt/trump_officials_now_want_ukraines_help_to_counter/o8s0bqj/
+
+"batshit insane". But never good enough to turn to quoting Dr. Bandy X. Lee.
+
+https://old.reddit.com/r/worldnews/comments/1rlhilt/trump_officials_now_want_ukraines_help_to_counter/o8s0o8x/
+
+https://old.reddit.com/r/worldnews/comments/1rlhilt/trump_officials_now_want_ukraines_help_to_counter/o8rypzy/
+
+https://old.reddit.com/r/worldnews/comments/1rl2uhm/carney_tells_australian_parliament_allies_must/o8pmojj/
+
+https://old.reddit.com/r/worldnews/comments/1rl2uhm/carney_tells_australian_parliament_allies_must/o8p9bac/
+
+https://old.reddit.com/r/worldnews/comments/1rl2uhm/carney_tells_australian_parliament_allies_must/o8qdpx2/
+

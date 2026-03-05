@@ -266,3 +266,8 @@ https://old.reddit.com/r/skeptic/comments/1qvpqtt/newborn_dies_after_mother_drin
 &nbsp;
 
 https://old.reddit.com/r/science/comments/1rhcpfi/carbon_dioxide_overload_detected_in_human_blood/
+
+&nbsp;
+
+Conformity vs. diversity   
+https://old.reddit.com/r/science/comments/1rjzir0/broad_claims_about_gender_and_behavior_fall_apart/

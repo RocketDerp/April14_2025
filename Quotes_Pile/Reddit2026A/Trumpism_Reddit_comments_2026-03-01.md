@@ -571,3 +571,454 @@ https://old.reddit.com/r/MurderedByWords/comments/1rjm6e7/a_typical_liberal_ques
 
 It is worse than that. REMEDIAL_MORALITY anything considered "good' is called "liberal" in a bad way. SELF_HARM_USA
 
+https://old.reddit.com/r/news/comments/1rjym5z/leaked_interior_department_database_reveals_us/o8gqg2m/
+
+NOT_GOOD_ENOUGH Neil Postman nonfiction 1984 ++ = 1985 - about Reddit, Twitter.
+
+https://old.reddit.com/r/news/comments/1rjym5z/leaked_interior_department_database_reveals_us/o8gr7ii/
+
+* "The word "communist" became common in the 1840s, particularly following its usage by French, British, and German radical movements, and gained widespread international prominence after the 1848 publication of The Communist Manifesto by Karl Marx and Friedrich Engels. While rooted in 18th-century French, it became a distinct political term by 1840." - Google Search summary 2026-03-03 afternoon USA
+
+https://old.reddit.com/r/news/comments/1rjym5z/leaked_interior_department_database_reveals_us/o8gqwqu/
+
+SURKOV_SHUFFLE
+
+https://old.reddit.com/r/news/comments/1rjym5z/leaked_interior_department_database_reveals_us/o8gpgna/
+
+ENTERTAINED_JUST_PASSIVELY_WATCHING_UNTIL_DEATH_NO_SOCIAL_MEDIA_UPRISING_WHILE_ALIVE
+
+https://old.reddit.com/r/politics/comments/1rjw3qb/military_leaders_say_iran_war_is_so_trump_can/o8g42za/
+
+MONOMYTH_WARFARE MIND_BLOWN_BY monomyth programming from billionaires.
+
+https://old.reddit.com/r/politics/comments/1rjw3qb/military_leaders_say_iran_war_is_so_trump_can/o8gcat4/
+
+BIBLE_LITERACY and why hasn't social media society, Reddit media community, not made "1 John 3:17" famous in year 2024 with Elon Musk and Donald Trump. Because books on paper learning isn't desired for goodness.
+
+https://old.reddit.com/r/politics/comments/1rjw3qb/military_leaders_say_iran_war_is_so_trump_can/o8g8jjw/
+
+Good and bad, REMEDIAL_MORALITY lessons are long overdue. Reddit front page should be education and adult learning, as if our lives all depend on mutual attraction to goodness.
+
+https://old.reddit.com/r/politics/comments/1rjw3qb/military_leaders_say_iran_war_is_so_trump_can/o8g4l0n/
+
+SELF_HARM_USA DEATH_CULT media cult. People willing to die for monomyth storytelling patterns.
+
+https://old.reddit.com/r/politics/comments/1rjw3qb/military_leaders_say_iran_war_is_so_trump_can/o8g4pwu/
+
+28 day Reddit account. Mental health of Trump discussed, but NOT_GOOD_ENOUGH Dr. Bandy X Lee's October 3, 2017 book with 27 educators for the general public.
+
+https://old.reddit.com/r/politics/comments/1rjw3qb/military_leaders_say_iran_war_is_so_trump_can/o8g4u0p/
+
+"fucking insane"
+
+https://old.reddit.com/r/politics/comments/1rjw3qb/military_leaders_say_iran_war_is_so_trump_can/o8gbbxo/
+
+"unhinged insanity"
+
+https://old.reddit.com/r/politics/comments/1rjw3qb/military_leaders_say_iran_war_is_so_trump_can/o8g4ib3/
+
+"unhinged, batshit crazy"
+
+https://old.reddit.com/r/politics/comments/1rjw3qb/military_leaders_say_iran_war_is_so_trump_can/o8g8bfv/
+
+Reddit commenting community using free time and spare time... avoiding asserting and quoting Dr. Bandy X Lee's 27 writers. Avoiding a Reddit blackout. Where is the Reddit social media protest? REDDIT_BLACKOUT
+
+https://old.reddit.com/r/politics/comments/1rjw3qb/military_leaders_say_iran_war_is_so_trump_can/o8gjish/
+
+LEVANT_MONOMYTH_CRISIS
+
+https://old.reddit.com/r/politics/comments/1rjw3qb/military_leaders_say_iran_war_is_so_trump_can/o8g5fjg/
+
+https://old.reddit.com/r/politics/comments/1rjw3qb/military_leaders_say_iran_war_is_so_trump_can/o8gfj8i/
+
+LEVANT_MONOMYTH_CRISIS
+
+https://old.reddit.com/r/politics/comments/1rjw3qb/military_leaders_say_iran_war_is_so_trump_can/o8ghfle/
+
+Surkov won since year 2013. RUNAWAY_MONOMYTH
+
+https://old.reddit.com/r/politics/comments/1rjw3qb/military_leaders_say_iran_war_is_so_trump_can/o8ggt0y/
+
+TOXIC_POPULARITY People can't see the fiction addiction crisis as people can't see what Twitter-think going on all over society in year 2026 is doing. It isn't just 2,000 year old bible story toxic patterns, it's all media toxic patterns of fiction and attraction to hate.
+
+https://old.reddit.com/r/politics/comments/1rjw3qb/military_leaders_say_iran_war_is_so_trump_can/o8g7ubr/
+
+5 month Reddit account.
+
+https://old.reddit.com/r/politics/comments/1rjw3qb/military_leaders_say_iran_war_is_so_trump_can/o8gfcoh/
+
+https://old.reddit.com/r/politics/comments/1rjw3qb/military_leaders_say_iran_war_is_so_trump_can/o8gjd3g/
+
+"cult", of low-information upvoting, 140 character thinking patterns.
+
+https://old.reddit.com/r/politics/comments/1rjw3qb/military_leaders_say_iran_war_is_so_trump_can/o8guc0e/
+
+Regardless, the anti-goodness behaviors are observable. As are the avoidance of people calling for mental health leaderships for the situation. AVOIDED_DR_BANDY_X_LEE_PUBLIC_WRITINGS
+
+https://old.reddit.com/r/popculturechat/comments/1rjzp5x/carrie_underwood_tweets_after_being_booed_on/o8h63my/
+
+LOW_PRODUCTION_VALUES_MAGA_FANDOM
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rjzz47/president_trump_has_been_anointed_by_jesus_to/o8h38rt/
+
+BIBLE_LITERACY crisis.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rjzz47/president_trump_has_been_anointed_by_jesus_to/o8hac4v/
+
+Good vs. bad. REMEDIAL_MORALITY lessons are essential. Adult education.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rjzz47/president_trump_has_been_anointed_by_jesus_to/o8h6li7/
+
+RELIGION_CULTS_MONOMYTH_PROGRAMMING Surkov won since year 2013.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rjzz47/president_trump_has_been_anointed_by_jesus_to/o8h6qim/
+
+Russia has been programming it into media consumer minds for over a decade. SURKOV_MONOMYTH 
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rjzz47/president_trump_has_been_anointed_by_jesus_to/o8hd942/
+
+Bible verse Romans 11:32 ROMANS_11_32_PLUS_PLUS  
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rjzz47/president_trump_has_been_anointed_by_jesus_to/o8h74qc/
+
+Carl Sagan was correct in his 1995 book. WHEN_THE_PEOPLE_HAVE_LOST_THE_ABILITY
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rjzz47/president_trump_has_been_anointed_by_jesus_to/o8hc4bc/
+
+MASS_DEHUMANIZATION_POPULAR popularity in USA is toxic. Hate-watching Trump is popular, txoic.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rjzz47/president_trump_has_been_anointed_by_jesus_to/o8ha22a/
+
+CIVIC_DUTY_WE_PEOPLE We The People have a civic duty to assert and quote Dr. Bandy X Lee's 27 leaders, and teach cult deprogramming, and stand up for nonfiction learning for adults.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rjzz47/president_trump_has_been_anointed_by_jesus_to/o8h6x91/
+
+HOW_SURKOV_WON Surkov won since March 2013. NATO lost.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rjzz47/president_trump_has_been_anointed_by_jesus_to/o8h6fit/
+
+4 month Reddit account. Social media "engagement questions". SYMBOLISM_INVERSION_MANIPULATION
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rjzz47/president_trump_has_been_anointed_by_jesus_to/o8hjrhx/
+
+BEYOND_DENIAL yes. There is nothing magical or supernatural about Bible storytelling. BOOK_SUPREMACY is taught by parents to children, indoctrination with toys at Christmas, Easter Bunny, etc. People are indoctrinated into Corporate America just the same, Disney, Reddit, Fox News HDTV, etc.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rjzz47/president_trump_has_been_anointed_by_jesus_to/o8ha67y/
+
+"insane". THE_HIGH_ROAD_IS_DR_BANDY_X_LEE_QUOTING_REPEATING
+
+https://old.reddit.com/r/MurderedByWords/comments/1rk25x8/spoken_like_a_true_rapist/o8hf7b5/
+
+1 month Reddit account. Top-upvoted popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+
+https://old.reddit.com/r/MurderedByWords/comments/1rk25x8/spoken_like_a_true_rapist/o8hhm5j/
+
+PUTIN_SURKOV_TRUMP_LONG_TERM_YEARS_PLAN Surkov won. Pro-ignorance anti-nonfiction abounds.
+
+https://old.reddit.com/r/MurderedByWords/comments/1rk25x8/spoken_like_a_true_rapist/o8hg9l6/
+
+Cult of hate leaders. cult of orange skin jokes. Cult of diaper shit-postings. Avoidance of nonfiction books. PEOPLE_LOVE_COMEDY_MEDIA_CONTENT_MORE_THAN_PLURIBUS_HUMANISM
+
+https://old.reddit.com/r/Fauxmoi/comments/1rk5eq2/a_reporter_asked_mayor_mamdani_about_being_called/o8i6vxa/
+
+Look at the shit-commenting shit-posting that society prizes on Bluesky and Reddit. People embraced Kremlin media techniques since year 2013. "absolute joke of a shit show". ATTRACTION_TO_SHIT_CONTENT_ENSHIT_BY_DESIRE
+
+https://old.reddit.com/r/Fauxmoi/comments/1rk5eq2/a_reporter_asked_mayor_mamdani_about_being_called/o8iac8g/
+
+"If we allowed this absolute clown show buffoonery for the past ten years" - Reddit normalized it. Entertainment prized the MOCK_MOCK_MOCKERY patterns. Reddit community following the leaders. REPUBLICANS_LEAD_WITH_IGNORANCE_IDEAS_AND_FOLLOWERS_REPLY_WITH_IGNORANCE
+
+https://old.reddit.com/r/antiwork/comments/1rk4me9/us_has_a_21_trillion_underground_network_for_only/o8i8lfe/
+
+https://old.reddit.com/r/antiwork/comments/1rk4me9/us_has_a_21_trillion_underground_network_for_only/o8ib5s1/
+
+No off-Reddit URL, no named person, just anti-intellectual short commenting.
+
+https://old.reddit.com/r/antiwork/comments/1rk4me9/us_has_a_21_trillion_underground_network_for_only/o8i1r0q/
+
+GULLIBILITY_CRISIS
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rk4dn7/bernie_sanders_says_that_american_foreign_and/o8hy6j2/
+
+2 month Reddit account. Most popular upvoted comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rk4dn7/bernie_sanders_says_that_american_foreign_and/o8i0lur/
+
+5 month Reddit account.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rk4dn7/bernie_sanders_says_that_american_foreign_and/o8ifd7c/
+
+JOKE_COMEDY_POWER_IS_MAGA_IS_TRUMP_IS_SURKOV hilarious, funny to We The People without power.
+
+https://old.reddit.com/r/goodnews/comments/1rjz80z/trumps_ice_stunned_as_contracts_get_cancelled/o8ib8d0/
+
+https://old.reddit.com/r/goodnews/comments/1rjz80z/trumps_ice_stunned_as_contracts_get_cancelled/o8hmbui/
+
+https://old.reddit.com/r/worldnews/comments/1rk7kpg/us_troops_told_war_on_iran_is_all_part_of_gods/o8ik53h/
+
+Top most upvoted popular comment. Twitter-think mindsets blown on Reddit. MONOMYTH_WARFARE REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
+
+https://old.reddit.com/r/worldnews/comments/1rk7kpg/us_troops_told_war_on_iran_is_all_part_of_gods/o8in92l/
+
+9 month Reddit account. TALIBAN_VALUES 
+
+https://old.reddit.com/r/worldnews/comments/1rk7kpg/us_troops_told_war_on_iran_is_all_part_of_gods/o8ilokp/
+
+12 month Reddit account. TALIBAN_VALUES 
+
+https://old.reddit.com/r/worldnews/comments/1rk7kpg/us_troops_told_war_on_iran_is_all_part_of_gods/o8iopvs/
+
+2 month Reddit account.
+
+https://old.reddit.com/r/worldnews/comments/1rk7kpg/us_troops_told_war_on_iran_is_all_part_of_gods/o8ilsh3/
+
+2 month Reddit account. RELIGION_CULTS_MONOMYTH_PROGRAMMING
+
+https://old.reddit.com/r/worldnews/comments/1rk7kpg/us_troops_told_war_on_iran_is_all_part_of_gods/o8im2kz/
+
+UNIFIED_THEORY_FICTION_NONFICTION - giving population what it desires, more fiction.
+
+https://old.reddit.com/r/worldnews/comments/1rk7kpg/us_troops_told_war_on_iran_is_all_part_of_gods/o8ikegv/
+
+https://old.reddit.com/r/worldnews/comments/1rk7kpg/us_troops_told_war_on_iran_is_all_part_of_gods/o8il9ri/
+
+SURKOVIAN_CHESS Surkov won. The SURKOV_MONOMYTH has been irreversible since year 2013. Fiction motivates, hate motivates.
+
+https://old.reddit.com/r/worldnews/comments/1rk7kpg/us_troops_told_war_on_iran_is_all_part_of_gods/o8imggj/
+
+4 month Reddit account.  BLOCK_HAPPY_DEPORT_HAPPY_SILENCE_POOR_PEOPLE_SILENCE_UPPITY values of MAGA. We The People need to teach media ecology can comparative mythology. We need to learn how Surkov information warfare since year 2013 has worked to induce fiction media cults.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rk6o88/blumenthal_it_looks_more_and_more_likely_there/o8iez0o/
+
+"insane"
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rk6o88/blumenthal_it_looks_more_and_more_likely_there/o8itiex/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rk6o88/blumenthal_it_looks_more_and_more_likely_there/o8ihyzx/
+
+"crazy"
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rk6o88/blumenthal_it_looks_more_and_more_likely_there/o8iusv9/
+
+RELIGION_CULTS_MONOMYTH_PROGRAMMING
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rk6o88/blumenthal_it_looks_more_and_more_likely_there/o8ihw7d/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rk6o88/blumenthal_it_looks_more_and_more_likely_there/o8iqgn2/
+
+MONOMYTH_WARFARE
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rk6o88/blumenthal_it_looks_more_and_more_likely_there/o8igle8/
+
+MEDIA_ECOLOGY_OBSERVATION
+
+https://old.reddit.com/r/therewasanattempt/comments/1rk7h3i/to_hide_that_we_are_at_war/o8ikkbq/
+
+1 month Reddit account. Top most-upvoted popular. HYPER_BANALISATION
+
+https://old.reddit.com/r/therewasanattempt/comments/1rk7h3i/to_hide_that_we_are_at_war/o8ikwbw/
+
+https://old.reddit.com/r/therewasanattempt/comments/1rk7h3i/to_hide_that_we_are_at_war/o8ilnie/
+
+https://old.reddit.com/r/newsinterpretation/comments/1rk7jd5/president_trump_has_been_anointed_by_jesus_to/o8ijq8b/
+
+Zero day account, newly created for this post, made it to front page and also top-upvoted comment. REDDIT_FRONT_PAGE_YOUNG_ACCOUNT The subreddit itself is only 8 months old.
+
+https://old.reddit.com/r/newsinterpretation/comments/1rk7jd5/president_trump_has_been_anointed_by_jesus_to/o8ijsdx/
+
+Zero day account. Second most popular upvoted comment (they commented multiple times). REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+
+https://old.reddit.com/r/newsinterpretation/comments/1rk7jd5/president_trump_has_been_anointed_by_jesus_to/o8il1xy/
+
+LEVANT_MYTH_INVERTED .. SEE_ALSO https://thesethingsinside.wordpress.com/2013/04/18/joseph-campbell-says-religious-literalism-sets-satan-in-the-seat-of-god/ "there can be no doubt, from what we know of the history of this tradition, that this authority was imposed and maintained by force. But any religious symbol, so interpreted that it refers not to a thought-transcending mystery but to a thought-enveloping social order, misappropriates to the lower principle the values of the higher and so (to use a theological turn of phrase) sets Satan in the seat of God."
+
+https://old.reddit.com/r/newsinterpretation/comments/1rk7jd5/president_trump_has_been_anointed_by_jesus_to/o8ik6he/
+
+"crazier"
+
+https://old.reddit.com/r/newsinterpretation/comments/1rk7jd5/president_trump_has_been_anointed_by_jesus_to/o8ipinr/
+
+"completely insane"
+
+https://old.reddit.com/r/newsinterpretation/comments/1rk7jd5/president_trump_has_been_anointed_by_jesus_to/o8il4w4/
+
+LEVANT_MYTH_INVERTED as taught by New York Sarah Lawrence College professor, Trump's home town.
+
+https://old.reddit.com/r/newsinterpretation/comments/1rk7jd5/president_trump_has_been_anointed_by_jesus_to/o8iq6un/
+
+BIBLE_LITERACY crisis. Metaphors. “Half the people in the world think that the metaphors of their religious traditions, for example, are facts. And the other half contends that they are not facts at all. As a result we have people who consider themselves believers because they accept metaphors as facts, and we have others who classify themselves as atheists because they think religious metaphors are lies.” ― Joseph Campbell, Thou Art That: Transforming Religious Metaphor
+
+https://old.reddit.com/r/newsinterpretation/comments/1rk7jd5/president_trump_has_been_anointed_by_jesus_to/o8ivrpm/
+
+"insanity"
+
+https://old.reddit.com/r/newsinterpretation/comments/1rk7jd5/president_trump_has_been_anointed_by_jesus_to/o8ikhff/
+
+SUPER_HYPER_NORMAL Reddit keeps treating it like normal content creator. No uprising, no Reddit blackout.
+
+https://old.reddit.com/r/videos/comments/1rk9p2i/i_just_left_a_classified_briefing_with_the_trump/o8jerbu/
+
+1 month Reddit account.
+
+https://old.reddit.com/r/videos/comments/1rk9p2i/i_just_left_a_classified_briefing_with_the_trump/o8j6j1f/
+
+Surkov won since March 2013. DENIAL_ABOUNDS ... PUTIN_SURKOV_TRUMP_LONG_TERM_YEARS_PLAN
+
+https://old.reddit.com/r/videos/comments/1rk9p2i/i_just_left_a_classified_briefing_with_the_trump/o8j3o6r/
+
+https://old.reddit.com/r/politics/comments/1rk85e7/democrats_raise_alarms_about_trumps_war_in_iran/o8iv8lh/
+
+MONOMYTH_WARFARE MONOMYTH_VS_MONOMYTH  
+
+https://old.reddit.com/r/politics/comments/1rk85e7/democrats_raise_alarms_about_trumps_war_in_iran/o8ir1ij/
+
+https://old.reddit.com/r/politics/comments/1rk85e7/democrats_raise_alarms_about_trumps_war_in_iran/o8jco1o/
+
+6 month Reddit account.
+
+https://old.reddit.com/r/politics/comments/1rk85e7/democrats_raise_alarms_about_trumps_war_in_iran/o8j0cme/
+
+1 month Reddit account.
+
+https://old.reddit.com/r/politics/comments/1rk85e7/democrats_raise_alarms_about_trumps_war_in_iran/o8izenw/
+
+"sane"
+
+https://old.reddit.com/r/politics/comments/1rk85e7/democrats_raise_alarms_about_trumps_war_in_iran/o8j5d5q/
+
+"fucking insane"
+
+https://old.reddit.com/r/politics/comments/1rk85e7/democrats_raise_alarms_about_trumps_war_in_iran/o8j9uxd/
+
+https://old.reddit.com/r/politics/comments/1rk85e7/democrats_raise_alarms_about_trumps_war_in_iran/o8jr36t/
+
+https://old.reddit.com/r/politics/comments/1rk85e7/democrats_raise_alarms_about_trumps_war_in_iran/o8j5vgz/
+
+5 month Reddit account.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rkktky/america_fell_for_it_again/o8l6lu2/
+
+BULLSHIT_EVERYWHERE - We The People have drowned in all the falsehoods.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rkktky/america_fell_for_it_again/o8l7mv7/
+
+And Bluesky and Reddit  users are FANDOMS of hate leadership. Saint Petersburg Internet Research Agency created hate vs. hate patterns. HATE_MOTIVATED_ECONOMY_HATE_AS_A_VIRTUE_SIGNALING
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rkktky/america_fell_for_it_again/o8la0ju/
+
+People enjoy mocking and insulting, mocking Trump. ATTRACTION_TO_HATE_LEADERS_HATE_FOLLOWERS
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rkktky/america_fell_for_it_again/o8l9fb7/
+
+Yes. PUTIN_SURKOV_TRUMP_LONG_TERM_YEARS_PLAN - and God The Father Levant symbolism issues.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rkktky/america_fell_for_it_again/o8l9uil/
+
+GULLIBILITY_CRISIS Donald Trump family trusts Putin. Trusting Russia as a society while they are killing people in Ukraine since February 20, 2014.
+
+https://old.reddit.com/r/news/comments/1rkhgw8/us_troops_were_told_war_on_iran_was_all_part_of/o8kl091/
+
+https://old.reddit.com/r/news/comments/1rkhgw8/us_troops_were_told_war_on_iran_was_all_part_of/o8kjvj9/
+
+https://old.reddit.com/r/news/comments/1rkhgw8/us_troops_were_told_war_on_iran_was_all_part_of/o8kk8nl/
+
+https://old.reddit.com/r/news/comments/1rkhgw8/us_troops_were_told_war_on_iran_was_all_part_of/o8ljrkv/
+
+Bible verse "1 John 4:20" crisis for 2,000 years. You have not seen God. - "1 John 4:20" 
+
+https://old.reddit.com/r/news/comments/1rkhgw8/us_troops_were_told_war_on_iran_was_all_part_of/o8kp4rs/
+
+https://old.reddit.com/r/news/comments/1rkhgw8/us_troops_were_told_war_on_iran_was_all_part_of/o8kkaao/
+
+https://old.reddit.com/r/news/comments/1rkhgw8/us_troops_were_told_war_on_iran_was_all_part_of/o8kpacp/
+
+https://old.reddit.com/r/news/comments/1rkhgw8/us_troops_were_told_war_on_iran_was_all_part_of/o8kr2na/
+
+RELIGION_CULTS_MONOMYTH_PROGRAMMING
+
+https://old.reddit.com/r/JournalismNews/comments/1rklj1k/i_feel_stupid_trump_loyalists_say_every_promise/o8ld29w/
+
+6 month Reddit account, top upvoted most popular. The subreddit itself is 4 months old. Hit /r/All front page. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT The posting submitter is 2 month account. https://old.reddit.com/user/Confident-Role-9177
+
+https://old.reddit.com/r/JournalismNews/comments/1rklj1k/i_feel_stupid_trump_loyalists_say_every_promise/o8ldsav/
+
+10 month Reddit account, 2nd most upvoted popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+
+https://old.reddit.com/r/JournalismNews/comments/1rklj1k/i_feel_stupid_trump_loyalists_say_every_promise/o8lbm3c/
+
+We The People, the nation of USA, learned that low-effort commenting and tiny-thinking Twitter-thinking reactionary mindsets gets people to come together in "high energy" anger and hate. Surkov won since March 2013.  HIGH_SPEED_REACTIONARY_MINDSETS
+
+https://old.reddit.com/r/nottheonion/comments/1rkq7v3/bill_would_require_public_tn_universities_to/o8mbwv6/
+
+Media cults. DENIAL_ABOUNDS MEDIA_CULTS_FICTION_FANDOM_MEDIA_POWER
+
+https://old.reddit.com/r/nottheonion/comments/1rkq7v3/bill_would_require_public_tn_universities_to/o8mdrpx/
+
+People need to study Marshall McLuhan and Neil Postman. SCHOOLS_OF_THOUGHT_FEEDBACK_LOOPS_INSIDE_BOXED_MINDSETS power Charlie Kirk media empire, Podcast, rock start / media star tours.
+
+https://old.reddit.com/r/comedyheaven/comments/1rkk2j2/book_of_relevations/o8l1g2p/
+
+BIBLE_LITERACY crisis. Science fiction interpretation crisis. “Half the people in the world think that the metaphors of their religious traditions, for example, are facts. And the other half contends that they are not facts at all. As a result we have people who consider themselves believers because they accept metaphors as facts, and we have others who classify themselves as atheists because they think religious metaphors are lies.” ― Joseph Campbell, Thou Art That: Transforming Religious Metaphor
+
+https://old.reddit.com/r/magicTCG/comments/1rkpvma/head_designer_of_tmnt_set_goes_to_peter_thiel/o8me5ih/
+
+Everything is Media Ecology. SEE_ALSO https://github.com/RocketDerp/April14_2025/blob/main/Media_Ecology/Everything_is_ME.md
+
+https://old.reddit.com/r/PoliticalHumor/comments/1rkqcwy/dwight_with_the_truth/o8mlmzz/
+
+MONOMYTH_WARFARE the SURKOV_MONOMYTH won since March 2013, lost hearts and minds in USA.
+
+https://old.reddit.com/r/PoliticalHumor/comments/1rkqcwy/dwight_with_the_truth/o8mnswq/
+
+LEVANT_MONOMYTH_CRISIS and QAnon is promoted by Russia QANON_RUSSIA 
+
+https://old.reddit.com/r/Fauxmoi/comments/1rkqrws/cnn_put_together_a_montage_of_conflicting/o8mi53k/
+
+Top-upvoted most popular comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING anti-intellectual joke-washing on Reddit and other media platforms that prize Trump as a source of constant stimulation, entertainment, jokes and memes. JOKE_COMEDY_POWER_IS_MAGA_IS_TRUMP_IS_SURKOV
+
+https://old.reddit.com/r/Fauxmoi/comments/1rkqrws/cnn_put_together_a_montage_of_conflicting/o8mkqcx/
+
+The experience is horrific since year 2013 that We The People have embraced ignorance. REALLY_TIRED_OF_DUMB_IGNORANCE_POPULARITY_IN_ADULTS_USA
+
+https://old.reddit.com/r/Fauxmoi/comments/1rkqrws/cnn_put_together_a_montage_of_conflicting/o8mlkcw/
+
+MEDIA_ECOLOGY_OBSERVATION   
+
+https://old.reddit.com/r/Fauxmoi/comments/1rkqrws/cnn_put_together_a_montage_of_conflicting/o8mnfus/
+
+WAR_AGAINST_REALITY
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1rkqc68/petahh_what_is_it_trying_to_convey/o8mkmye/
+
+TECH_LUST_TECH_LOVERS
+
+* Texan Rick Roderick: "Then I just had to start trying to find people who had been in the war. And sure enough I found someone in Durham who had been… you know, a lot of North Carolina people go to the war, I found a young pilot and he said oh, that no, it was very exciting and then he went on to explain to me how the sights that they used in order to, you know, **fire their smart bombs were just like the games in the arcade that he grew up with**. He said, you know, no way in the world could he have had better practice than he got in those arcades to fire smart bombs. I mean, it had passed him by that the real had happened even though he was really there. I talked to a woman who had been on the ground, in a jeep for most of it. And she went “Oh the desert is so big and the sand…”, she said, “…but I really didn’t get a feel for until I got home and saw what my husband had taped”. Why? Because **the little individual actors sink into insignificance compared to the damn spectacle of the thing**. The spectacle of it. I mean, when humans were less important than God we could understand because he built everything. When we are less important than a Nintendo we get confused. That’s when we start thinking that we are under siege. It’s when Billy says “Oh yes, you can kill mum and dad but leave the Nintendo”, then we are rightfully upset." - Duke University, year 1993 https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
+
+https://old.reddit.com/r/politics/comments/1rkpg2q/were_not_at_war_right_now_house_speaker_johnson/o8m5l3e/
+
+4 month Reddit account. Top-upvoted most popular. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+
+https://old.reddit.com/r/politics/comments/1rkpg2q/were_not_at_war_right_now_house_speaker_johnson/o8mcqd2/
+
+WHITE_HOUSE_REALITY_WARFARE_FICTION_AVOIDING_NONFICTION_ON_WARFARE Reddit users are avoiding nonfiction Dr. Bandy X Lee. SEE_ALSO https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Bandy_X_Lee/Bandy_X_Lee_Gaslighting_Crazy.md
+
+https://old.reddit.com/r/stevehofstetter/comments/1rkln0r/the_sheep_must_obey/o8le6m8/
+
+11 month Reddit account. Top-upvoted most popular. 
+
+https://old.reddit.com/r/stevehofstetter/comments/1rkln0r/the_sheep_must_obey/o8ld8bs/
+
+What low-effort media consumption, Fox News, tells fandoms, media cults. MEDIA_CULTS_FICTION_FANDOM_MEDIA_POWER
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rkqlit/pete_hegseth_attacking_the_press_for_reporting_on/o8mirzh/
+
+Top most upvoted popular comment. MIND_BLOWN_BY Surkovian governing methods. Antics media politics.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rkqlit/pete_hegseth_attacking_the_press_for_reporting_on/o8mjewb/
+
+UNDERSTANDING_SURKOV_PUTINISM_TRUMPISM_HATE_HILARIOUS blown minds by contradictory Surkov student techniques.
+
+https://old.reddit.com/r/LegalNews/comments/1rkrmqi/panicked_republicans_fear_trumps_fing_nightmare/o8mpf4i/
+
+https://old.reddit.com/r/whenthe/comments/1rkwjql/someone_i_agree_with_was_cringe_i_no_longer_agree/o8nu2t2/
+
+SUPERFICIAL_SHALLOW_PRIZING_TRUMPISM_MAGA_VALUES cringe culture, deport-happy block-happy censorship-happy society.
