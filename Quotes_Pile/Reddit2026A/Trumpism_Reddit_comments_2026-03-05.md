@@ -25,3 +25,8 @@ https://old.reddit.com/r/politics/comments/1rkv7zd/in_refusing_to_impeach_trump_
 https://old.reddit.com/r/ProgressiveHQ/comments/1rlewiv/arrest_on_charges_of_treason_and_blatant_failure/o8s6nwt/
 
 Worse, people do seem to care, to keep making memes and reaction comments as an attraction to gawk at. People can not resist the anti-intellectualism that Trump provides. MEASURING_BAR_SO_LOW
+
+https://old.reddit.com/r/clevercomebacks/comments/1rlfk00/elections_do_have_consequences/o8rklc5/
+
+7 day Reddit account. Top-upvoted popular comment. REDDIT_FRONT_PAGE_YOUNG_ACCOUNT
+
