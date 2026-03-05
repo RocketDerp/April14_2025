@@ -30,3 +30,6 @@ https://old.reddit.com/r/clevercomebacks/comments/1rlfk00/elections_do_have_cons
 
 7 day Reddit account. Top-upvoted popular comment. REDDIT_FRONT_PAGE_YOUNG_ACCOUNT
 
+https://old.reddit.com/r/clevercomebacks/comments/1rlfk00/elections_do_have_consequences/o8rn0vx/
+
+Reddit users won't apply that to ignorance on Reddit itself. There is always a very narrow focus on politicians and elections.Not upvoting low-information upvotes on Reddit. Every hour of every day ignorance has been promoted since year 2013 - it isn't just Donald Trump, one person, but an avoidance of relevant nonfiction books on paper. RESISTING_WHAT_EXACTLY people who cheer on ignorance in every area of society except the voting booth and think the lies and deception that matter are only relevant at voting booths.
