@@ -87,3 +87,11 @@ https://old.reddit.com/r/BrandNewSentence/comments/1rkk0j3/they_legally_cannot_c
 UNDERSTANDING_TRUMPISM doing bad things draws a crowd. Fiction storytelling outsells nonfiction relevant learning.
 
 https://old.reddit.com/r/Music/comments/1rlizte/britney_spears_arrested_in_california_for_dui/o8sffos/
+
+https://old.reddit.com/r/ForCuriousSouls/comments/1rlnlqj/arkansas_mother_killed_herself_and_her_sixyearold/o8tmcww/
+
+Simple-think logic.
+
+https://old.reddit.com/r/ForCuriousSouls/comments/1rlnlqj/arkansas_mother_killed_herself_and_her_sixyearold/o8u0e4b/
+
+GULLIBLE_FANDOM
