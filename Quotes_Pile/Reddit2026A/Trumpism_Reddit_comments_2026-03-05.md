@@ -69,3 +69,7 @@ CULT_INDOCTRINATION media storytelling, science fiction fantasy works on audienc
 https://old.reddit.com/r/TwoXChromosomes/comments/1rlgvuj/gen_z_males_twice_as_likely_as_baby_boomers_to/o8rv196/
 
 MEDIA_ECOLOGY_OBSERVATION  
+
+https://old.reddit.com/r/TwoXChromosomes/comments/1rlgvuj/gen_z_males_twice_as_likely_as_baby_boomers_to/o8s0xss/
+
+Parents raising children in Fox News and Internet Research Agency values. DONALD_TRUMP_ROLE_MODEL now since June 2015.
