@@ -511,3 +511,10 @@ https://old.reddit.com/r/worldnews/comments/1rlhilt/trump_officials_now_want_ukr
 https://old.reddit.com/r/worldnews/comments/1rlhilt/trump_officials_now_want_ukraines_help_to_counter/o8s0o8x/
 
 https://old.reddit.com/r/worldnews/comments/1rlhilt/trump_officials_now_want_ukraines_help_to_counter/o8rypzy/
+
+https://old.reddit.com/r/worldnews/comments/1rl2uhm/carney_tells_australian_parliament_allies_must/o8pmojj/
+
+https://old.reddit.com/r/worldnews/comments/1rl2uhm/carney_tells_australian_parliament_allies_must/o8p9bac/
+
+https://old.reddit.com/r/worldnews/comments/1rl2uhm/carney_tells_australian_parliament_allies_must/o8qdpx2/
+
