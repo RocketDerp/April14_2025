@@ -89,3 +89,8 @@ MAGA has them laughing away again on Reddit. Entertained by MAGA. LIBERAL_LAUGHS
 https://old.reddit.com/r/politics/comments/1rlq33w/trump_fires_kristi_noem_as_homeland_security/o8twexh/
 
 IGNORANCE_CELEBRATIONS abound. Reddit is a fandom of MAGA ignorance.
+
+https://old.reddit.com/r/worldnews/comments/1rln1ga/iran_is_confident_it_can_counter_a_potential_us/o8tm7iv/
+
+FANATICS_FANS_OF_CLOWNS_FANS_OF_MAGA_CLOWNING
+
