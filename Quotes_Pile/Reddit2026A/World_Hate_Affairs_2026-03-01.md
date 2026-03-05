@@ -518,3 +518,8 @@ https://old.reddit.com/r/worldnews/comments/1rl2uhm/carney_tells_australian_parl
 
 https://old.reddit.com/r/worldnews/comments/1rl2uhm/carney_tells_australian_parliament_allies_must/o8qdpx2/
 
+https://old.reddit.com/r/UnderReportedNews/comments/1rlld7s/president_of_brazil_lula_da_silva_my_message_to/o8ssa1v/
+
+LEVANT_MONOMYTH_CRISIS the Levant Torah, Bible, Quran are made out to be role models of peace and love when they often demonstrate otherwise. This is why I studied for years in Jordan during the Arab Spring to analyze the media ecology of emerging social media vs. Synagogue, Church, Mosque. GREAT_SEAL_USA people do not grasp the meaning of "Old World Order" on the great seal.
+
+* "If you look behind that pyramid, you see a desert. If you look before it, you see plants growing. The desert, the **tumult in Europe, wars and wars and wars -- we have pulled ourselves out of it and created a state in the name of reason, not in the name of power**, and out of that will come the flowerings of the new life. That's the sense of that part of the pyramid." - Age 83, year 1987 SEE_ALSO www.GreatSealUSA.com
