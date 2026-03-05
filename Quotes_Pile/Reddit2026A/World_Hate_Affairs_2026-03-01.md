@@ -540,3 +540,6 @@ https://old.reddit.com/r/UnderReportedNews/comments/1rlld7s/president_of_brazil_
 
 9 month Reddit account. "call us out on our fucking idiocy please" - the anti-intellectual Reddit popularity, Twitter-thinking. TOXIC_POPULARITY is what needs to be called out. The avoidance of nonfiction relevant books accessible at the public library from Dr. Bandy X Lee needs to be called out by every person using free time / spare time commenting. Note the user's profile message.
 
+https://old.reddit.com/r/UnderReportedNews/comments/1rlmsom/the_downed_iranian_warship_did_not_carry_any/o8t47tm/
+
+HATE_HARDER simplistic 2nd most popular upvoted comment. Anti-intellectual, anti-learning, pro-hate. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
