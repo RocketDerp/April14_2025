@@ -551,3 +551,18 @@ https://old.reddit.com/r/UnderReportedNews/comments/1rlmsom/the_downed_iranian_w
 https://old.reddit.com/r/UnderReportedNews/comments/1rlmsom/the_downed_iranian_warship_did_not_carry_any/o8tgmbz/
 
 MEDIA_ECOLOGY_OBSERVATION
+
+https://old.reddit.com/r/worldnews/comments/1rlmftj/trump_says_he_needs_to_be_involved_selecting/o8t14g6/
+
+https://old.reddit.com/r/worldnews/comments/1rlmftj/trump_says_he_needs_to_be_involved_selecting/o8t0dx6/
+
+https://old.reddit.com/r/worldnews/comments/1rlmftj/trump_says_he_needs_to_be_involved_selecting/o8t1f7r/
+
+https://old.reddit.com/r/worldnews/comments/1rlmftj/trump_says_he_needs_to_be_involved_selecting/o8t8vui/
+
+BANAL_WASH_LAUGH_TRACK
+
+https://old.reddit.com/r/worldnews/comments/1rlmftj/trump_says_he_needs_to_be_involved_selecting/o8tnmuw/
+
+Invoke the 25th with no uprising from We The People. A society full of commenting addictions that won't organize and promote Dr. Bandy X Lee's 27 leaders. AVOIDED_DR_BANDY_X_LEE_PUBLIC_WRITINGS
+
