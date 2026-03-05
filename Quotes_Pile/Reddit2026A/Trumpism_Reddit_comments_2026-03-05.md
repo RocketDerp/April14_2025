@@ -38,3 +38,12 @@ https://old.reddit.com/r/stevehofstetter/comments/1rlh3r2/praise_be_somewhere_el
 
 3 month Reddit account, top-upvoted most popular. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
 
+https://old.reddit.com/r/stevehofstetter/comments/1rlh3r2/praise_be_somewhere_else_outside_our_government/o8rz6ge/
+
+https://old.reddit.com/r/stevehofstetter/comments/1rlh3r2/praise_be_somewhere_else_outside_our_government/o8s4n6f/
+
+1 month Reddit account.
+
+https://old.reddit.com/r/stevehofstetter/comments/1rlh3r2/praise_be_somewhere_else_outside_our_government/o8s17mr/
+
+WIDE_RADICAL_DOUBT_ABOUT_REAL
