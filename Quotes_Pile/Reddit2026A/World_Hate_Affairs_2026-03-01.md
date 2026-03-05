@@ -581,3 +581,7 @@ Trump leads with hate, Reddit community follows the leader. ATTRACTION_TO_HATE_L
 https://old.reddit.com/r/worldnews/comments/1rln1ga/iran_is_confident_it_can_counter_a_potential_us/o8ucloz/
 
 World Hate Affairs. FAITH_IN_HATE
+
+https://old.reddit.com/r/worldnews/comments/1rln1ga/iran_is_confident_it_can_counter_a_potential_us/o8u2zci/
+
+CULT_BEHAVIOR "trump only cares about money" simplistic thinking. Power and religion storytelling and camera popularity clearly motivate Trump.
