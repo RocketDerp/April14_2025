@@ -115,3 +115,8 @@ Top-most upvoted comment. The "backlash" is media engagement on every media syst
 https://old.reddit.com/r/technology/comments/1rlblhn/president_bought_netflix_debt_in_january_2026/o8qtw2o/
 
 People aren't resisting antics politics. RESISTING_WHAT_EXACTLY - the Internet reaction commenting news cycle is endless September.
+
+https://old.reddit.com/r/technology/comments/1rlblhn/president_bought_netflix_debt_in_january_2026/o8qvumm/
+
+Exiting the simulation of resistance is organizing around the JANUARY_1944_SECOND_BILL_OF_RIGHTS and repeating it long-term. Admit we made mistakes in not teaching and keeping it as a living topic.
+
