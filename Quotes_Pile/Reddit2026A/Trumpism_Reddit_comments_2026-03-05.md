@@ -9,3 +9,6 @@ https://old.reddit.com/r/pics/comments/1rl7z5p/this_is_the_outcome_of_billionair
 https://old.reddit.com/r/pics/comments/1rl7z5p/this_is_the_outcome_of_billionaires_buying_out/o8q7wbi/
 
 MEDIA_ECOLOGY_OBSERVATION - very popular on year 2026 Reddit to use clickbait posting titles and remove dates from Twitter and other screenshots.
+
+https://old.reddit.com/r/politics/comments/1rl58eu/gop_senator_allegedly_breaks_marines_hand_during/o8plhkw/
+
