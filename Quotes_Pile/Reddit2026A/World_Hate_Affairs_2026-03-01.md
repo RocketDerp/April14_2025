@@ -487,3 +487,9 @@ RESISTING_WHAT_EXACTLY people are resisting political parties, but not resisting
 https://old.reddit.com/r/worldnews/comments/1rkw9kj/thousands_of_kurdish_fighters_launch_ground/o8nosaj/
 
 SURKOVIAN_CHESS mind exploitation, puppeting past symbolism (inverting Russia bad). Mass mind manipulation.
+
+https://old.reddit.com/r/worldnews/comments/1rl67f3/iraq_plunged_into_nationwide_blackout_as_us_tells/o8q8ync/
+
+https://old.reddit.com/r/worldnews/comments/1rl67f3/iraq_plunged_into_nationwide_blackout_as_us_tells/o8pvlo3/
+
+Right out of Twitter and Reddit.
