@@ -566,3 +566,6 @@ https://old.reddit.com/r/worldnews/comments/1rlmftj/trump_says_he_needs_to_be_in
 
 Invoke the 25th with no uprising from We The People. A society full of commenting addictions that won't organize and promote Dr. Bandy X Lee's 27 leaders. AVOIDED_DR_BANDY_X_LEE_PUBLIC_WRITINGS
 
+https://old.reddit.com/r/worldnews/comments/1rlmftj/trump_says_he_needs_to_be_involved_selecting/o8t79co/
+
+MIND_BLOWN_BY the Reddit audience finds Trump so original and creative as a source of entertainment and amusement. Understanding Trumpism / MAGA long-term duration is to understand Reddit is a fandom of unusual and outstanding media content. Trump provide mind-blowing content for Reddit app users. We The People are avoiding nonfiction serious relevant books by Dr. Bandy X Lee.  WHEN_THE_PEOPLE_HAVE_LOST_THE_ABILITY
