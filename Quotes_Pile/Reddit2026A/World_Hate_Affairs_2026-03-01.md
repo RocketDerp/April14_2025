@@ -493,3 +493,9 @@ https://old.reddit.com/r/worldnews/comments/1rl67f3/iraq_plunged_into_nationwide
 https://old.reddit.com/r/worldnews/comments/1rl67f3/iraq_plunged_into_nationwide_blackout_as_us_tells/o8pvlo3/
 
 Right out of Twitter and Reddit.
+
+https://old.reddit.com/r/news/comments/1rlexs9/influencers_in_dubai_warned_they_face_prison_for/o8rfp7u/
+
+https://old.reddit.com/r/europe/comments/1rlf2zi/usa_firmly_oppose_poland_developing_nuclear/o8rib35/
+
+https://old.reddit.com/r/europe/comments/1rlf2zi/usa_firmly_oppose_poland_developing_nuclear/o8rgpfp/
