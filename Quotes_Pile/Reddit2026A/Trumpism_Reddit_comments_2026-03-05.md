@@ -94,3 +94,10 @@ https://old.reddit.com/r/worldnews/comments/1rln1ga/iran_is_confident_it_can_cou
 
 FANATICS_FANS_OF_CLOWNS_FANS_OF_MAGA_CLOWNING
 
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rlrshj/nobody_told_her_shed_been_trumped/o8u86b8/
+
+Most popular comment. ICE_FANDOM TRUMP_FANDOM thrilled to see media events created by Trumpism.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rlrshj/nobody_told_her_shed_been_trumped/o8u8pcf/
+
+Not calling for reform or uprising on social media, instead desires name changes for more entertainment on Reddit. CALL_FOR_ACTION_TO_DO_TRIVIAL_CHANGE
