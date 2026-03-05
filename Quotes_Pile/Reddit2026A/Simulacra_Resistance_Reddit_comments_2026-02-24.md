@@ -111,3 +111,7 @@ This is sports-washing of billionaires. This is sports-washing entertainment-wra
 https://old.reddit.com/r/technology/comments/1rlblhn/president_bought_netflix_debt_in_january_2026/o8qxhju/
 
 Top-most upvoted comment. The "backlash" is media engagement on every media system. Commenting, low-information upvoting. people are not resisting the mockery, they are mocking back. Authentic resistance would be taking on brain rot and actually teaching that Donald Trump's behavior is a product of television brain rot via Neil Postman's nonfiction books. BRAIN_ROT_SOCIETY_47 We The People need to rescue We The People from attraction to right-wing media values, including religion clergy, addiction to fiction storytelling.
+
+https://old.reddit.com/r/technology/comments/1rlblhn/president_bought_netflix_debt_in_january_2026/o8qtw2o/
+
+People aren't resisting antics politics. RESISTING_WHAT_EXACTLY - the Internet reaction commenting news cycle is endless September.
