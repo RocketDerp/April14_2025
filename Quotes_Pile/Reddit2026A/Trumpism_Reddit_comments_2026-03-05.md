@@ -125,3 +125,15 @@ WHITE_HOUSE_REALITY_WARFARE_FICTION_AVOIDING_NONFICTION_ON_WARFARE Separation of
 https://old.reddit.com/r/pics/comments/1rm9i7z/evangelical_leaders_return_to_oval_office_to_pray/o8xtv35/
 
 Tiny-short Twitter-think fandom of Trump. No concern to address the widespraed Bible science fiction addictions in USA. FANATICS_FANS_OF_CLOWNS_FANS_OF_MAGA_CLOWNING
+
+https://old.reddit.com/r/pics/comments/1rm9i7z/evangelical_leaders_return_to_oval_office_to_pray/o8xszpg/
+
+ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING 
+
+https://old.reddit.com/r/pics/comments/1rm9i7z/evangelical_leaders_return_to_oval_office_to_pray/o8xvmfo/
+
+BIBLE_LITERACY Lessos in public, Matthew 6:5 - great. That is not celebrating the White House Ignorance and actully doing public education using social systems.
+
+https://old.reddit.com/r/pics/comments/1rm9i7z/evangelical_leaders_return_to_oval_office_to_pray/o8xtw8v/
+
+A Reddit cult of low-information upvoting. https://en.wikipedia.org/wiki/Low_information_voter OBSERVE_SOCIAL_MEDIA_AVOIDING_NONFICTION if it is a cult, why isn't anyone on Reddit calling for cult deprogramming, rescue of USA?
