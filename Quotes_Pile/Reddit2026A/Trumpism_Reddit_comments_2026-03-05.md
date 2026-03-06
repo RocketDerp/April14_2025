@@ -313,3 +313,8 @@ https://old.reddit.com/r/worldnews/comments/1rmf9ko/trump_says_there_will_be_no_
 https://old.reddit.com/r/worldnews/comments/1rmf9ko/trump_says_there_will_be_no_deal_with_iran_except/o8yyntt/
 
 Trump understands fiction. Trump understands popularity of hate. Being a hate magnet works in a machine lust society. Technology lovers. Surkov won since year 2013. PUTIN_SURKOV_TRUMP_LONG_TERM_YEARS_PLAN
+
+https://old.reddit.com/r/worldnews/comments/1rmf9ko/trump_says_there_will_be_no_deal_with_iran_except/o8z34fz/
+
+DEMENTIA_WASHING
+
