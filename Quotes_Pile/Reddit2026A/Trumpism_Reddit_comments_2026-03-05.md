@@ -403,3 +403,7 @@ https://old.reddit.com/r/ProgressiveHQ/comments/1rmkrrg/is_this_dei_pardoned_for
 https://old.reddit.com/r/ProgressiveHQ/comments/1rmkrrg/is_this_dei_pardoned_for_his_participation_in_a/o90c5pd/
 
 "who they will always be". Anti-education anti-understanding anti-progress. The entire world is going to be saying that about the USA, "Muslims are always like that" 9/11 anti-Malala simple-think logic. GIVE_UP_ANTI_EDUCATION_ANTI_TEACH_ANTI_PROGRESS
+
+https://old.reddit.com/r/NFLv2/comments/1rmlk3j/jets_finalizing_deal_with_kristi_noem_to_become/o90ae0p/
+
+Sports-mentality about world leaders. ICE_FANDOM Trump leads with entertainment, actor of Reality TV, and sports fans follow. FOLLOWERS_OF_LEADER_TRUMP_ACTOR_ENTERTAINER_DONALD_TRUMP_FOLLOWERS entertainment-washing the horrible leaders as a source of jokes - instead of using spare time and free time on social systems to educate and teach and reverse MAGA.
