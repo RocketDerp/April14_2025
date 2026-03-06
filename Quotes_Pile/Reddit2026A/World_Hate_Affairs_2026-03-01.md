@@ -631,3 +631,7 @@ DENIAL_ABOUNDS - clearly Trump is leading with hate and Reddit community follows
 https://old.reddit.com/r/politics/comments/1rmjr3k/trump_wants_to_overthrow_cuban_regime_in_a_couple/o8zz8y2/
 
 SATIRE_SARCASM_WASHING Trump is a constant source of 140 character or less reaction comments. "Media Engagement" to Trump as a source of LOL to milk, LOLCOW Reddit fandom.
+
+https://old.reddit.com/r/politics/comments/1rmjr3k/trump_wants_to_overthrow_cuban_regime_in_a_couple/o8zvxr5/
+
+Billionaire team owners at FIFA have programmed this Reddit audience. REMEMBER_THE_PROGRAM_IDEAS_BILLIONAIRES_FED_REDDIT_AUDIENCE
