@@ -291,3 +291,5 @@ AMUSEMENT_COMEDY_WASHING_TRUMP_AS_FUNNY_MEDIA_SANEWASHING
 https://old.reddit.com/r/TikTokCringe/comments/1rmg9e9/we_are_in_a_weird_timeline/o8zdfv1/
 
 ANSWER: Amusement outsells nonfiction. AMUSEMENT_AS_USUAL
+
+https://old.reddit.com/r/TikTokCringe/comments/1rmg9e9/we_are_in_a_weird_timeline/o8ziroz/
