@@ -243,3 +243,7 @@ https://old.reddit.com/r/politics/comments/1rmcgbs/most_americans_think_their_fe
 https://old.reddit.com/r/therewasanattempt/comments/1rmcrwo/to_destroy_a_theocracy_in_iran_while_building_one/o8ygofw/
 
 LEVANT_MYTH_INVERTED
+
+https://old.reddit.com/r/therewasanattempt/comments/1rmcrwo/to_destroy_a_theocracy_in_iran_while_building_one/o8ygb39/
+
+FICTION_OUTSELLS_NONFICTION Fiction still outsells nonfiction. Surkov won since year 2013.
