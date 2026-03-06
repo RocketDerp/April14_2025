@@ -141,3 +141,8 @@ https://old.reddit.com/r/SipsTea/comments/1rmj5tp/lmao/o8zuvvm/
 https://old.reddit.com/r/politics/comments/1rmh6ld/donald_trump_impeachment_odds_hit_record_high/o8zbyyc/
 
 Most popular upvoted-comment. Under 140 characters. Offers no call for resistance. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING ROUTINE_NO_NEED_TO_RESIST_OR_ORGANIZE_INTELLECTUAL_UPRISING no call for following leadership of 27 people Dr. Bandy X Lee assembled in her book.
+
+https://old.reddit.com/r/politics/comments/1rmh6ld/donald_trump_impeachment_odds_hit_record_high/o8zc30o/
+
+2 month Reddit account with 2nd most popular upvoted comment. Snark commenting, satire-washing, sarcasm-washing. CYNICAL_ACCEPT_IT REDDIT_TOP_COMMENT_YOUNG_ACCOUNT reactionary Twitter-think mindset, as programmed by Elon Musk richest man in the world.
+
