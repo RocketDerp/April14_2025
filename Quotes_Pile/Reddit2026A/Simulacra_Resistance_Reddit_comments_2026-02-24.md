@@ -146,3 +146,6 @@ https://old.reddit.com/r/politics/comments/1rmh6ld/donald_trump_impeachment_odds
 
 2 month Reddit account with 2nd most popular upvoted comment. Snark commenting, satire-washing, sarcasm-washing. CYNICAL_ACCEPT_IT REDDIT_TOP_COMMENT_YOUNG_ACCOUNT reactionary Twitter-think mindset, as programmed by Elon Musk richest man in the world.
 
+https://old.reddit.com/r/politics/comments/1rmh6ld/donald_trump_impeachment_odds_hit_record_high/o8zcdmq/
+
+2 month Reddit account with 3rd most popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT messaging to give up, normalize Truth and keep normalizing as usual. Anti-intellectual, anti-reality, anti-fact.  GIVE_UP_ANTI_EDUCATION_ANTI_TEACH_ANTI_PROGRESS
