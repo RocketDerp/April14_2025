@@ -251,3 +251,7 @@ FICTION_OUTSELLS_NONFICTION Fiction still outsells nonfiction. Surkov won since 
 https://old.reddit.com/r/TikTokCringe/comments/1rm8sc6/teachers_quitting_their_jobs/o8xqb23/
 
 ANTICS_POLITICS and role model in USA. Trump is a symptom. The adults on social media avoiding Dr. Bandy X Lee is a symptom.
+
+https://old.reddit.com/r/TikTokCringe/comments/1rm8sc6/teachers_quitting_their_jobs/o8xvnw0/
+
+Neil Postman, Neil Postman, and MORE Neil Postman. NOT_GOOD_ENOUGH - the problem is not just children in rectangle classrooms. Adult learning on Reddit favors amusement over sincere earnest understanding of imporant nonfiction topics. Entertainment "business"; we have amused ourselves to death. Trump is a symptom. Twitter-thinking leaders.
