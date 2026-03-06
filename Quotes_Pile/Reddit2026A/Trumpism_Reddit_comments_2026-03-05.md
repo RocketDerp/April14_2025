@@ -331,3 +331,7 @@ https://old.reddit.com/r/worldnews/comments/1rmf9ko/trump_says_there_will_be_no_
 https://old.reddit.com/r/worldnews/comments/1rmf9ko/trump_says_there_will_be_no_deal_with_iran_except/o8z52wn/
 
 RELIGION_CULTS_MONOMYTH_PROGRAMMING
+
+https://old.reddit.com/r/PoliticalHumor/comments/1rmgsov/average_tariff_enjoyer/o8zec9v/
+
+If the boiling water is low-information upvoting, yes. Twitter-thinking, insult-memes, entertainment leadership, Surkov governing, mockery andmocking, avodiance of nonfiction. MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL
