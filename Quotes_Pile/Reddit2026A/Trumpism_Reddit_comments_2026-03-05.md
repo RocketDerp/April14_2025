@@ -407,3 +407,12 @@ https://old.reddit.com/r/ProgressiveHQ/comments/1rmkrrg/is_this_dei_pardoned_for
 https://old.reddit.com/r/NFLv2/comments/1rmlk3j/jets_finalizing_deal_with_kristi_noem_to_become/o90ae0p/
 
 Sports-mentality about world leaders. ICE_FANDOM Trump leads with entertainment, actor of Reality TV, and sports fans follow. FOLLOWERS_OF_LEADER_TRUMP_ACTOR_ENTERTAINER_DONALD_TRUMP_FOLLOWERS entertainment-washing the horrible leaders as a source of jokes - instead of using spare time and free time on social systems to educate and teach and reverse MAGA.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rml4g8/how_are_people_still_supporting_this_guy/o907tji/
+
+A top upvoted comment that actually argues an IDEA and not a Twitter-think tiny-short meme mindset! Long-form Reddit commenting is the most popular in this case.
+
+As for the screen shot content: LEVANT_MYTH_INVERTED SURKOV_MONOMYTH - the complete self-harm ass-backwards value is MONOMYTH_WARFARE in the minds. 
+
+This is also more a Fox News HDTV cult, fiction vs. nonfiction, than just Trump personally. Trump is great at antics politics and keeping people engaged in hate following. Followers of hate, even those who hate Trump, follow Trump's lead. Trump signals hate and people follow. Surkov won since March 2013.
+
