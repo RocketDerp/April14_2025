@@ -259,3 +259,11 @@ Neil Postman, Neil Postman, and MORE Neil Postman. NOT_GOOD_ENOUGH - the problem
 https://old.reddit.com/r/law/comments/1rmfs5e/bondi_says_shes_the_bar_now/o8z60i3/
 
 See the replies too.
+
+https://old.reddit.com/r/law/comments/1rmfs5e/bondi_says_shes_the_bar_now/o8z5p3j/
+
+https://old.reddit.com/r/law/comments/1rmfs5e/bondi_says_shes_the_bar_now/o8zad7l/
+
+https://old.reddit.com/r/law/comments/1rmfs5e/bondi_says_shes_the_bar_now/o8z5td0/
+
+THE_HIGH_ROAD_IS_DR_BANDY_X_LEE_QUOTING_REPEATING
