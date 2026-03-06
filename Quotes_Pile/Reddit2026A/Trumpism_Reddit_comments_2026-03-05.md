@@ -109,3 +109,7 @@ https://old.reddit.com/r/worldnews/comments/1rlypqk/trump_says_i_guess_americans
 https://old.reddit.com/r/worldnews/comments/1rlypqk/trump_says_i_guess_americans_should_worry_about/o8vqapm/
 
 https://old.reddit.com/r/worldnews/comments/1rlypqk/trump_says_i_guess_americans_should_worry_about/o8vol6g/
+
+https://old.reddit.com/r/politics/comments/1rlvtyy/trump_says_i_guess_americans_should_worry_about/o8v5t8r/
+
+https://old.reddit.com/r/politics/comments/1rlvtyy/trump_says_i_guess_americans_should_worry_about/o8v67qu/
