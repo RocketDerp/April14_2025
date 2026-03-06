@@ -113,3 +113,8 @@ https://old.reddit.com/r/worldnews/comments/1rlypqk/trump_says_i_guess_americans
 https://old.reddit.com/r/politics/comments/1rlvtyy/trump_says_i_guess_americans_should_worry_about/o8v5t8r/
 
 https://old.reddit.com/r/politics/comments/1rlvtyy/trump_says_i_guess_americans_should_worry_about/o8v67qu/
+
+https://old.reddit.com/r/PublicFreakout/comments/1rly91s/religious_fanatics_praying_for_the_armageddon/o8vm82w/
+
+https://old.reddit.com/r/PublicFreakout/comments/1rly91s/religious_fanatics_praying_for_the_armageddon/o8vl080/
+
