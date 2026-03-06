@@ -355,3 +355,8 @@ Grateful for what? "so grateful it backfired" - Trump has more power than ever, 
 https://old.reddit.com/r/Fauxmoi/comments/1rmj9y0/in_new_epstein_files_release_from_doj_girl/o900zgu/
 
 ANSWER: how is this possible? We The People have sold out goodness for Truth Social screenshots and Reality TV stars. COMPREHENDING_UNDERSTANDING Twitter-thinking nation. Reaction commenting is not organizing intellectual resistance to media systems. Neil Postman and Marshall McLuhan understanding are not optional, Trump cults abound!
+
+https://old.reddit.com/r/Fauxmoi/comments/1rmj9y0/in_new_epstein_files_release_from_doj_girl/o9001ok/
+
+Beyond the widespread denial of the Reality TV cult behaviors of USA. CULT_BEHAVIOR to fiction storytelling. People love the back and forth conflicts over fiction stories and manipulation. The consistent patern in social media users avoidaning serious relevant nonfiction is the evidence. The anti-FAQ anti-Wiki values and favoring of low-information commenting. People do not want to get on the same pages at the same times.
+
