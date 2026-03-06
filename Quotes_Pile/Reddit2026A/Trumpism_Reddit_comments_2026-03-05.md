@@ -294,3 +294,14 @@ https://old.reddit.com/r/TikTokCringe/comments/1rmg9e9/we_are_in_a_weird_timelin
 ANSWER: Amusement outsells nonfiction. AMUSEMENT_AS_USUAL
 
 https://old.reddit.com/r/TikTokCringe/comments/1rmg9e9/we_are_in_a_weird_timeline/o8ziroz/
+
+https://old.reddit.com/r/worldnews/comments/1rmf9ko/trump_says_there_will_be_no_deal_with_iran_except/o8yx9q3/
+
+https://old.reddit.com/r/worldnews/comments/1rmf9ko/trump_says_there_will_be_no_deal_with_iran_except/o8yyklw/
+
+<img width="1064" height="767" alt="image" src="https://github.com/user-attachments/assets/00a462d7-aa39-428c-b64e-21bfd6b15ae1" />
+
+MEDIA_REGURGITATION www.MediaRegurgitation.com - fiction outsells nonfiction. MEDIA_ECOLOGY_OBSERVATION 
+
+NEW_OPERA_NAME #HeardTheWords #SoundedCool   
+Social post { https://autistics.life/@RoundSparrow/116183291138303815 https://bsky.app/profile/roundsparrow.bsky.social/post/3mgfrw4zess2g }   
