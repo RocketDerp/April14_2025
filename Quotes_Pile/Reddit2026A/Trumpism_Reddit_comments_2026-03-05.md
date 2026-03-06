@@ -247,3 +247,7 @@ LEVANT_MYTH_INVERTED
 https://old.reddit.com/r/therewasanattempt/comments/1rmcrwo/to_destroy_a_theocracy_in_iran_while_building_one/o8ygb39/
 
 FICTION_OUTSELLS_NONFICTION Fiction still outsells nonfiction. Surkov won since year 2013.
+
+https://old.reddit.com/r/TikTokCringe/comments/1rm8sc6/teachers_quitting_their_jobs/o8xqb23/
+
+ANTICS_POLITICS and role model in USA. Trump is a symptom. The adults on social media avoiding Dr. Bandy X Lee is a symptom.
