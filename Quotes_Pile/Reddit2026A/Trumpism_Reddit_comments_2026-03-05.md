@@ -335,3 +335,7 @@ RELIGION_CULTS_MONOMYTH_PROGRAMMING
 https://old.reddit.com/r/PoliticalHumor/comments/1rmgsov/average_tariff_enjoyer/o8zec9v/
 
 If the boiling water is low-information upvoting, yes. Twitter-thinking, insult-memes, entertainment leadership, Surkov governing, mockery andmocking, avodiance of nonfiction. MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL
+
+https://old.reddit.com/r/Fauxmoi/comments/1rmj9y0/in_new_epstein_files_release_from_doj_girl/o8zxf9y/
+
+7 month Reddit account, 2nd most upovoted popular comment. Amazed at Surkovian govenring methods. SURKOVIAN_CHESS
