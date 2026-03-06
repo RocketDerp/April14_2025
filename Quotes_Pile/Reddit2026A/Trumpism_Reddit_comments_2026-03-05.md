@@ -363,3 +363,7 @@ Beyond the widespread denial of the Reality TV cult behaviors of USA. CULT_BEHAV
 https://old.reddit.com/r/LeopardsAteMyFace/comments/1rml4eb/she_wants_a_country_where_women_arent_harassed_or/o907m7m/
 
 MEDIA_ECOLOGY_OBSERVATION observe that pepole do not consider Reddit to be a public space. Internet harassment and blocking and other attacks such as Truth Social messages people don't consider the public body. Fox News HDTV, etc.
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1rml4eb/she_wants_a_country_where_women_arent_harassed_or/o907kyi/
+
+Superficial and shallow concerns about women. SUPERFICIAL_SHALLOW_PRIZING_TRUMPISM_MAGA_VALUES
