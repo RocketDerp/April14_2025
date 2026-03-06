@@ -235,3 +235,7 @@ MASS_DEHUMANIZATION_POPULAR - people find it so easy to not turn to Dr. Bandy X 
 https://old.reddit.com/r/politics/comments/1rmcgbs/most_americans_think_their_fellow_citizens_are/o8yrko4/
 
 REDDIT_IS_THE_MEDIA - Reddit audience is engaged in out-group hate and avoiding serious relevant nonfiction.
+
+https://old.reddit.com/r/politics/comments/1rmcgbs/most_americans_think_their_fellow_citizens_are/o8ycd24/
+
+25 day Reddit account. AMUSEMENT_AS_USUAL the LOLCOW miling on social media normalizes all Trump acts as thrilling entertainment and source of amusement.
