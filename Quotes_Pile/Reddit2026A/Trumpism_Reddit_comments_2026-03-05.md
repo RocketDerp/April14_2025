@@ -383,3 +383,7 @@ SURKOV_WARFARE feeds right into the anti-FAQ anti-Wiki values of commenting addi
 https://old.reddit.com/r/UnderReportedNews/comments/1rminfa/epstein_file_published_by_doj_in_2019_trumps_name/o905na7/
 
 EPSTEIN_FANDOM promotes the idea that every world war has been motivated as a cover-up. Not that fiction storytelling plays a huge role in Fox News HDTV, Middle East religions, etc. Why are We The People not standing up on social media? SOCIAL_MEDIA_DID_NOT_HAVE_UPRISING_SUSTAINED_FOCUSED why is Dr. Bandy X Lee's 27 leaders in her nonfiction serious relevant book since October 3, 2017 not repeated as much as "EPSTEIN" name?
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rminfa/epstein_file_published_by_doj_in_2019_trumps_name/o8zutk8/
+
+Trump is a symptom of people who follow hate ideals and anti-intellectual ideals. REPUBLICANS_LEAD_WITH_IGNORANCE_IDEAS_AND_FOLLOWERS_REPLY_WITH_IGNORANCE
