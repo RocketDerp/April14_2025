@@ -239,3 +239,7 @@ REDDIT_IS_THE_MEDIA - Reddit audience is engaged in out-group hate and avoiding 
 https://old.reddit.com/r/politics/comments/1rmcgbs/most_americans_think_their_fellow_citizens_are/o8ycd24/
 
 25 day Reddit account. AMUSEMENT_AS_USUAL the LOLCOW miling on social media normalizes all Trump acts as thrilling entertainment and source of amusement.
+
+https://old.reddit.com/r/therewasanattempt/comments/1rmcrwo/to_destroy_a_theocracy_in_iran_while_building_one/o8ygofw/
+
+LEVANT_MYTH_INVERTED
