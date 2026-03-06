@@ -150,3 +150,10 @@ https://old.reddit.com/r/pics/comments/1rm9i7z/evangelical_leaders_return_to_ova
 
 "insane". AVOIDED_DR_BANDY_X_LEE_PUBLIC_WRITINGS
 
+https://old.reddit.com/r/pics/comments/1rm9i7z/evangelical_leaders_return_to_oval_office_to_pray/o8xv424/
+
+Observe no concern to address the brain rot of society, just keep on commenting.
+
+https://old.reddit.com/r/pics/comments/1rm9i7z/evangelical_leaders_return_to_oval_office_to_pray/o8xv325/
+
+"mindless cult", "HAHA" laughing cult. PEOPLE_LOVE_COMEDY_MEDIA_CONTENT_MORE_THAN_PLURIBUS_HUMANISM
