@@ -255,3 +255,7 @@ ANTICS_POLITICS and role model in USA. Trump is a symptom. The adults on social 
 https://old.reddit.com/r/TikTokCringe/comments/1rm8sc6/teachers_quitting_their_jobs/o8xvnw0/
 
 Neil Postman, Neil Postman, and MORE Neil Postman. NOT_GOOD_ENOUGH - the problem is not just children in rectangle classrooms. Adult learning on Reddit favors amusement over sincere earnest understanding of imporant nonfiction topics. Entertainment "business"; we have amused ourselves to death. Trump is a symptom. Twitter-thinking leaders.
+
+https://old.reddit.com/r/law/comments/1rmfs5e/bondi_says_shes_the_bar_now/o8z60i3/
+
+See the replies too.
