@@ -305,3 +305,11 @@ MEDIA_REGURGITATION www.MediaRegurgitation.com - fiction outsells nonfiction. ME
 
 NEW_OPERA_NAME #HeardTheWords #SoundedCool   
 Social post { https://autistics.life/@RoundSparrow/116183291138303815 https://bsky.app/profile/roundsparrow.bsky.social/post/3mgfrw4zess2g }   
+
+https://old.reddit.com/r/worldnews/comments/1rmf9ko/trump_says_there_will_be_no_deal_with_iran_except/o8z53ur/
+
+7 month Reddit account.
+
+https://old.reddit.com/r/worldnews/comments/1rmf9ko/trump_says_there_will_be_no_deal_with_iran_except/o8yyntt/
+
+Trump understands fiction. Trump understands popularity of hate. Being a hate magnet works in a machine lust society. Technology lovers. Surkov won since year 2013. PUTIN_SURKOV_TRUMP_LONG_TERM_YEARS_PLAN
