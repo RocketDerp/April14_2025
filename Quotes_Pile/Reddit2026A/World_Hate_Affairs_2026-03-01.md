@@ -627,3 +627,7 @@ At least someone has caught on to Mr. Beast and other Internet media trends bein
 https://old.reddit.com/r/politics/comments/1rmjr3k/trump_wants_to_overthrow_cuban_regime_in_a_couple/o8zwj25/
 
 DENIAL_ABOUNDS - clearly Trump is leading with hate and Reddit community follows with hate. Why is Reddit community not asserting and promoting nonfiction books on paper by Dr. Bandy X Lee? It is the anti-intellectualism and brain rot that Trump wield like no other person.
+
+https://old.reddit.com/r/politics/comments/1rmjr3k/trump_wants_to_overthrow_cuban_regime_in_a_couple/o8zz8y2/
+
+SATIRE_SARCASM_WASHING Trump is a constant source of 140 character or less reaction comments. "Media Engagement" to Trump as a source of LOL to milk, LOLCOW Reddit fandom.
