@@ -427,3 +427,7 @@ Screen shot of posting "You'd think you are watching SNL." Saturday Night Live c
 https://old.reddit.com/r/MurderedByWords/comments/1rmlx2c/was_it_the_communist_or_not/o90cyc2/
 
 SURKOV_STUDENTS who all see antics politics has worked for Putin. Reddit audiences eat it up. Anything to avoid turning to nonfiction serious relevant learning.
+
+https://old.reddit.com/r/politics/comments/1rmlmat/released_fbi_interview_includes_uncorroborated/o90d794/
+
+ANTI_WIKI_ANTI_FAQ social media society. People are addicted to the interactive commenting and have not organized these into **all on the same page** common understandings. BRAIN_ROT_SOCIETY_47 - also observe the lack of off-Reddit URL, no author names, no quotes from nonfiction sources. Commenting addiction, Turth Social anti-nonfiction anti-book mindsets rule society.
