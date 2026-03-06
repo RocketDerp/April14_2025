@@ -399,3 +399,7 @@ And the Reddit audience flocks itself to Trump content. JOKES_WRITE_THEMSELVES_I
 https://old.reddit.com/r/ProgressiveHQ/comments/1rmkrrg/is_this_dei_pardoned_for_his_participation_in_a/o907ruw/
 
 3 month Reddit account. 2nd most upvoted popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1rmkrrg/is_this_dei_pardoned_for_his_participation_in_a/o90c5pd/
+
+"who they will always be". Anti-education anti-understanding anti-progress. The entire world is going to be saying that about the USA, "Muslims are always like that" 9/11 anti-Malala simple-think logic. GIVE_UP_ANTI_EDUCATION_ANTI_TEACH_ANTI_PROGRESS
