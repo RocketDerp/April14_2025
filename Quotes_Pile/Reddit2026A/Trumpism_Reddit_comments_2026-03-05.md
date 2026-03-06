@@ -371,3 +371,7 @@ Superficial and shallow concerns about women. SUPERFICIAL_SHALLOW_PRIZING_TRUMPI
 https://old.reddit.com/r/UnderReportedNews/comments/1rminfa/epstein_file_published_by_doj_in_2019_trumps_name/o8zt130/
 
 4 month Reddit account, top-most upovoted comment AND the posting creator that got to /r/All front page. REDDIT_FRONT_PAGE_YOUNG_ACCOUNT
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rminfa/epstein_file_published_by_doj_in_2019_trumps_name/o8zxonl/
+
+The cults of media content, EPSTEIN_FANDOM are not addressing the brain rot society-wide everyone problem. TRUMP_FAMILY_FIXATED_BRAIN_ROT_EVERY_DAY_FOX_NEWS_TWITTER_ETC
