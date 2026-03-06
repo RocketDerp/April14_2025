@@ -212,7 +212,7 @@ https://old.reddit.com/r/politics/comments/1rmcgbs/most_americans_think_their_fe
 
 <img width="1069" height="1197" alt="image" src="https://github.com/user-attachments/assets/65534832-9334-4e22-80f0-9478119a8cba" />
 
-WAR_AGAINST_REALITY 
+WAR_AGAINST_REALITY ... UNITED_IN_BLAMING_ONE_THIRD_HATE_VS_HATE_ANTI_RESCUE   
 
 NEW_OPERA_NAME #OtherSideFell   
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mgfnazzby22w https://autistics.life/@RoundSparrow/116182963064143466 }    
