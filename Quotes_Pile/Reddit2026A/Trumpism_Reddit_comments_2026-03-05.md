@@ -387,3 +387,7 @@ EPSTEIN_FANDOM promotes the idea that every world war has been motivated as a co
 https://old.reddit.com/r/UnderReportedNews/comments/1rminfa/epstein_file_published_by_doj_in_2019_trumps_name/o8zutk8/
 
 Trump is a symptom of people who follow hate ideals and anti-intellectual ideals. REPUBLICANS_LEAD_WITH_IGNORANCE_IDEAS_AND_FOLLOWERS_REPLY_WITH_IGNORANCE
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rminfa/epstein_file_published_by_doj_in_2019_trumps_name/o90gvi3/
+
+9 month Reddit account. "staring at Reddit". Why isn't Reddit having a REDDIT_BLACKOUT protest? Why isn't social media orgnaizing FAQ and Wiki to all get on the same important priority pages...
