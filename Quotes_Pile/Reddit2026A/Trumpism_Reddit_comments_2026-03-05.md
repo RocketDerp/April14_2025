@@ -423,3 +423,7 @@ Yes, but tears didn't win the lections and constant front-page postings on /r/Al
 https://old.reddit.com/r/MurderedByWords/comments/1rmlx2c/was_it_the_communist_or_not/o90dmwt/
 
 Screen shot of posting "You'd think you are watching SNL." Saturday Night Live comedy. GULLIBLE_FANDOM of MAGA content. NOT_GOOD_ENOUGH author from NYU Neil Postman for people to catch on how this all works. It is no accident that the most powerful popular people are all behaving like NYC Fox News and NYC SNL.
+
+https://old.reddit.com/r/MurderedByWords/comments/1rmlx2c/was_it_the_communist_or_not/o90cyc2/
+
+SURKOV_STUDENTS who all see antics politics has worked for Putin. Reddit audiences eat it up. Anything to avoid turning to nonfiction serious relevant learning.
