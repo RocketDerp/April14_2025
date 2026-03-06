@@ -118,3 +118,7 @@ https://old.reddit.com/r/PublicFreakout/comments/1rly91s/religious_fanatics_pray
 
 https://old.reddit.com/r/PublicFreakout/comments/1rly91s/religious_fanatics_praying_for_the_armageddon/o8vl080/
 
+https://old.reddit.com/r/pics/comments/1rm9i7z/evangelical_leaders_return_to_oval_office_to_pray/o8xu37c/
+
+WHITE_HOUSE_REALITY_WARFARE_FICTION_AVOIDING_NONFICTION_ON_WARFARE Separation of fiction and nonfiction. People are stuck in 2,000 year old Bible science fiction and not acing up to Fox News HDTV fiction and Truth Social fiction storytelling. Separation of fiction and nonfiction is a society-wide concern. As Joseph Campbell described the crisis in generic terms, "special revelations" (not evidence based). www.GreatSealUSA.com  
+
