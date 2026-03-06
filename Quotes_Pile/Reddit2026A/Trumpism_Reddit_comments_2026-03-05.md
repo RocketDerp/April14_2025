@@ -137,3 +137,16 @@ BIBLE_LITERACY Lessos in public, Matthew 6:5 - great. That is not celebrating th
 https://old.reddit.com/r/pics/comments/1rm9i7z/evangelical_leaders_return_to_oval_office_to_pray/o8xtw8v/
 
 A Reddit cult of low-information upvoting. https://en.wikipedia.org/wiki/Low_information_voter OBSERVE_SOCIAL_MEDIA_AVOIDING_NONFICTION if it is a cult, why isn't anyone on Reddit calling for cult deprogramming, rescue of USA?
+
+https://old.reddit.com/r/pics/comments/1rm9i7z/evangelical_leaders_return_to_oval_office_to_pray/o8xytpp/
+
+"cult". SATIRE_SARCASM_WASHING anit-intelelctual games to make it all entertaining.
+
+https://old.reddit.com/r/pics/comments/1rm9i7z/evangelical_leaders_return_to_oval_office_to_pray/o8xv14e/
+
+LEVANT_MONOMYTH_CRISIS 
+
+https://old.reddit.com/r/pics/comments/1rm9i7z/evangelical_leaders_return_to_oval_office_to_pray/o8xupfz/
+
+"insane". AVOIDED_DR_BANDY_X_LEE_PUBLIC_WRITINGS
+
