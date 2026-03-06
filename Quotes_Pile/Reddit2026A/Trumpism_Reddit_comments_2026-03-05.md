@@ -101,3 +101,9 @@ Most popular comment. ICE_FANDOM TRUMP_FANDOM thrilled to see media events creat
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1rlrshj/nobody_told_her_shed_been_trumped/o8u8pcf/
 
 Not calling for reform or uprising on social media, instead desires name changes for more entertainment on Reddit. CALL_FOR_ACTION_TO_DO_TRIVIAL_CHANGE
+
+https://old.reddit.com/r/worldnews/comments/1rlypqk/trump_says_i_guess_americans_should_worry_about/o8vp2d7/
+
+https://old.reddit.com/r/worldnews/comments/1rlypqk/trump_says_i_guess_americans_should_worry_about/o8vnngm/
+
+https://old.reddit.com/r/worldnews/comments/1rlypqk/trump_says_i_guess_americans_should_worry_about/o8vqapm/
