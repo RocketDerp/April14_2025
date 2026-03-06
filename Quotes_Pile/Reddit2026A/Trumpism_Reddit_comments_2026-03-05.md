@@ -175,3 +175,7 @@ https://old.reddit.com/r/pics/comments/1rm9i7z/evangelical_leaders_return_to_ova
 https://old.reddit.com/r/pics/comments/1rm9i7z/evangelical_leaders_return_to_oval_office_to_pray/o8xuwgb/
 
 Religions are science fiction, any fiction cult is a concern.
+
+https://old.reddit.com/r/pics/comments/1rm9i7z/evangelical_leaders_return_to_oval_office_to_pray/o8xwuz8/
+
+Yes. SOCIAL_MEDIA_DID_NOT stand up and use social media to call for removal. There is no organized use of social media. People instead just engage MAGA asa source of mocking feedback loops. BRAIN_ROT_SOCIETY_47
