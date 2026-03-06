@@ -651,3 +651,9 @@ Screen shot "War is not a Movie", it is to Reddit audience. JOKES_WRITE_THEMSELV
 https://old.reddit.com/r/okbuddycinephile/comments/1rmo26v/ben_stiller_and_rob_schneider_divorce_incoming/o90z55f/
 
 SURKOV_WARFARE and UNIFIED_THEORY_FICTION_NONFICTION fiction hyper-real film / movie.
+
+https://old.reddit.com/r/AskSocialists/comments/1rmjlpg/old_men_want_war/o8zy28n/
+
+1 month Reddit account. Most-popular upvoted comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+
+Social post { https://autistics.life/@RoundSparrow/116184252577183217 https://bsky.app/profile/roundsparrow.bsky.social/post/3mgg7lcgd7c2x }   
