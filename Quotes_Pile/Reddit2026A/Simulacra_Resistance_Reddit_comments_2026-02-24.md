@@ -133,3 +133,7 @@ Entertained by Donald Trump Truth Social messages and ideas. Got the liberal lau
 https://old.reddit.com/r/SipsTea/comments/1rmj5tp/lmao/o8ztyo4/
 
 4 month Reddit account, top most-upvoted popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT this entire posting "LMAO" is not resisting Trump Family, it is furthering the Reality TV Trump family.
+
+https://old.reddit.com/r/SipsTea/comments/1rmj5tp/lmao/o8zuvvm/
+
+"lol". 4 month Reddit account, top most-upvoted popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT 
