@@ -379,3 +379,7 @@ The cults of media content, EPSTEIN_FANDOM are not addressing the brain rot soci
 https://old.reddit.com/r/UnderReportedNews/comments/1rminfa/epstein_file_published_by_doj_in_2019_trumps_name/o908wme/
 
 SURKOV_WARFARE feeds right into the anti-FAQ anti-Wiki values of commenting addictions across society.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rminfa/epstein_file_published_by_doj_in_2019_trumps_name/o905na7/
+
+EPSTEIN_FANDOM promotes the idea that every world war has been motivated as a cover-up. Not that fiction storytelling plays a huge role in Fox News HDTV, Middle East religions, etc. Why are We The People not standing up on social media? SOCIAL_MEDIA_DID_NOT_HAVE_UPRISING_SUSTAINED_FOCUSED why is Dr. Bandy X Lee's 27 leaders in her nonfiction serious relevant book since October 3, 2017 not repeated as much as "EPSTEIN" name?
