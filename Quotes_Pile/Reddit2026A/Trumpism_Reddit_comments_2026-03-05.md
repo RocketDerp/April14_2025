@@ -267,3 +267,23 @@ https://old.reddit.com/r/law/comments/1rmfs5e/bondi_says_shes_the_bar_now/o8zad7
 https://old.reddit.com/r/law/comments/1rmfs5e/bondi_says_shes_the_bar_now/o8z5td0/
 
 THE_HIGH_ROAD_IS_DR_BANDY_X_LEE_QUOTING_REPEATING
+
+https://old.reddit.com/r/TikTokCringe/comments/1rmg9e9/we_are_in_a_weird_timeline/o8z5d8k/
+
+https://old.reddit.com/r/TikTokCringe/comments/1rmg9e9/we_are_in_a_weird_timeline/o8z65nd/
+
+https://old.reddit.com/r/TikTokCringe/comments/1rmg9e9/we_are_in_a_weird_timeline/o8z8mqx/
+
+https://old.reddit.com/r/TikTokCringe/comments/1rmg9e9/we_are_in_a_weird_timeline/o8z71ep/
+
+https://old.reddit.com/r/TikTokCringe/comments/1rmg9e9/we_are_in_a_weird_timeline/o8z6xqe/
+
+https://old.reddit.com/r/TikTokCringe/comments/1rmg9e9/we_are_in_a_weird_timeline/o8z811c/
+
+https://old.reddit.com/r/TikTokCringe/comments/1rmg9e9/we_are_in_a_weird_timeline/o8z9g55/
+
+https://old.reddit.com/r/TikTokCringe/comments/1rmg9e9/we_are_in_a_weird_timeline/o8z70qa/
+
+https://old.reddit.com/r/TikTokCringe/comments/1rmg9e9/we_are_in_a_weird_timeline/o8zapbp/
+
+AMUSEMENT_COMEDY_WASHING_TRUMP_AS_FUNNY_MEDIA_SANEWASHING
