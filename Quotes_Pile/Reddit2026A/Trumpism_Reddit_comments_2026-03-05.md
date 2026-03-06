@@ -161,3 +161,17 @@ https://old.reddit.com/r/pics/comments/1rm9i7z/evangelical_leaders_return_to_ova
 https://old.reddit.com/r/pics/comments/1rm9i7z/evangelical_leaders_return_to_oval_office_to_pray/o8xw6ry/
 
 BIBLE_LITERACY Lessos in public, Matthew 6:6 - great. That is not celebrating the White House Ignorance and actully doing public education using social systems.
+
+https://old.reddit.com/r/pics/comments/1rm9i7z/evangelical_leaders_return_to_oval_office_to_pray/o8xuity/
+
+https://old.reddit.com/r/pics/comments/1rm9i7z/evangelical_leaders_return_to_oval_office_to_pray/o8xvs50/
+
+https://old.reddit.com/r/pics/comments/1rm9i7z/evangelical_leaders_return_to_oval_office_to_pray/o8xvr3c/
+
+https://old.reddit.com/r/pics/comments/1rm9i7z/evangelical_leaders_return_to_oval_office_to_pray/o8xudvi/
+
+https://old.reddit.com/r/pics/comments/1rm9i7z/evangelical_leaders_return_to_oval_office_to_pray/o8y3uht/
+
+https://old.reddit.com/r/pics/comments/1rm9i7z/evangelical_leaders_return_to_oval_office_to_pray/o8xuwgb/
+
+Religions are science fiction, any fiction cult is a concern.
