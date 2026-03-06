@@ -347,3 +347,7 @@ MEDIA_ECOLOGY_OBSERVATION
 https://old.reddit.com/r/Fauxmoi/comments/1rmj9y0/in_new_epstein_files_release_from_doj_girl/o8zygk4/
 
 SUBVERTING_EXPECTATIONS
+
+https://old.reddit.com/r/Fauxmoi/comments/1rmj9y0/in_new_epstein_files_release_from_doj_girl/o8zzk9t/
+
+Grateful for what? "so grateful it backfired" - Trump has more power than ever, minds are so blown and manipulated by all this. AVOIDED_DR_BANDY_X_LEE_PUBLIC_WRITINGS observe that free time and spare time on social media is not being used to promote Dr. Lee or some other call for removal. People are glued to the entnertainment. Infinite Jest. Surkov won since March 2013.
