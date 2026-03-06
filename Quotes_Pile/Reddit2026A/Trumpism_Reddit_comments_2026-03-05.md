@@ -339,3 +339,7 @@ If the boiling water is low-information upvoting, yes. Twitter-thinking, insult-
 https://old.reddit.com/r/Fauxmoi/comments/1rmj9y0/in_new_epstein_files_release_from_doj_girl/o8zxf9y/
 
 7 month Reddit account, 2nd most upovoted popular comment. Amazed at Surkovian govenring methods. SURKOVIAN_CHESS
+
+https://old.reddit.com/r/Fauxmoi/comments/1rmj9y0/in_new_epstein_files_release_from_doj_girl/o901egb/
+
+MEDIA_ECOLOGY_OBSERVATION
