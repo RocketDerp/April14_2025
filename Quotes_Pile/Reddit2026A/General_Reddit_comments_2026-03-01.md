@@ -127,3 +127,7 @@ https://old.reddit.com/r/ForCuriousSouls/comments/1rlnlqj/arkansas_mother_killed
 https://old.reddit.com/r/PeterExplainsTheJoke/comments/1rm11ij/petah_help_me_out_here_i_dont_get_the_last_2/o8w78j1/
 
 MEDIA_ECOLOGY_OBSERVATION about Reddit
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1rmhhhz/peter_i_dont_understand/o8zkf5e/
+
+ATTRACTION_TO_SHIT_CONTENT_ENSHIT_BY_DESIRE the media attraction of NYC Major Rudy Giuliani year 2016 who partners with NYC Trump, attraction to shit information and shit content because it is unique / outstanding / unusual. Media content attraction to fiction.
