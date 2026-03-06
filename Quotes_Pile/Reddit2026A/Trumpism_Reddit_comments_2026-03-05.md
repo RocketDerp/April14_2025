@@ -431,3 +431,8 @@ SURKOV_STUDENTS who all see antics politics has worked for Putin. Reddit audienc
 https://old.reddit.com/r/politics/comments/1rmlmat/released_fbi_interview_includes_uncorroborated/o90d794/
 
 ANTI_WIKI_ANTI_FAQ social media society. People are addicted to the interactive commenting and have not organized these into **all on the same page** common understandings. BRAIN_ROT_SOCIETY_47 - also observe the lack of off-Reddit URL, no author names, no quotes from nonfiction sources. Commenting addiction, Turth Social anti-nonfiction anti-book mindsets rule society.
+
+https://old.reddit.com/r/Fauxmoi/comments/1rmsalt/mark_ruffalo_to_rep_hakeem_jeffries_stop_taking/o91r50s/
+
+https://old.reddit.com/r/Fauxmoi/comments/1rmsalt/mark_ruffalo_to_rep_hakeem_jeffries_stop_taking/o91t1ao/
+
