@@ -123,3 +123,7 @@ IMPORTANT_QUOTES_A Someone actually quoted in making their point.
 https://old.reddit.com/r/ForCuriousSouls/comments/1rlnlqj/arkansas_mother_killed_herself_and_her_sixyearold/o8tqdrl/
 
 5 day Reddit account. Watch a few television shows and you know facts of any case.
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1rm11ij/petah_help_me_out_here_i_dont_get_the_last_2/o8w78j1/
+
+MEDIA_ECOLOGY_OBSERVATION about Reddit
