@@ -648,3 +648,6 @@ https://old.reddit.com/r/okbuddycinephile/comments/1rmo26v/ben_stiller_and_rob_s
 
 Screen shot "War is not a Movie", it is to Reddit audience. JOKES_WRITE_THEMSELVES_IGNORANCE_OF_SURKOV_STUDENTS people on Reddit are entirely ignorant of Neil Postman's teachings and Surkov in Russia. Avoiding nonfiction learning.
 
+https://old.reddit.com/r/okbuddycinephile/comments/1rmo26v/ben_stiller_and_rob_schneider_divorce_incoming/o90z55f/
+
+SURKOV_WARFARE and UNIFIED_THEORY_FICTION_NONFICTION fiction hyper-real film / movie.
