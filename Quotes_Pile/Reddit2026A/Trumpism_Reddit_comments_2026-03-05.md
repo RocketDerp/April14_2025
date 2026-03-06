@@ -360,3 +360,6 @@ https://old.reddit.com/r/Fauxmoi/comments/1rmj9y0/in_new_epstein_files_release_f
 
 Beyond the widespread denial of the Reality TV cult behaviors of USA. CULT_BEHAVIOR to fiction storytelling. People love the back and forth conflicts over fiction stories and manipulation. The consistent patern in social media users avoidaning serious relevant nonfiction is the evidence. The anti-FAQ anti-Wiki values and favoring of low-information commenting. People do not want to get on the same pages at the same times.
 
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1rml4eb/she_wants_a_country_where_women_arent_harassed_or/o907m7m/
+
+MEDIA_ECOLOGY_OBSERVATION observe that pepole do not consider Reddit to be a public space. Internet harassment and blocking and other attacks such as Truth Social messages people don't consider the public body. Fox News HDTV, etc.
