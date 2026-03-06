@@ -589,3 +589,5 @@ CULT_BEHAVIOR "trump only cares about money" simplistic thinking. Power and reli
 https://old.reddit.com/r/worldnews/comments/1rmb3g5/russia_is_providing_iran_intelligence_to_target/o8y51uw/
 
 https://old.reddit.com/r/worldnews/comments/1rmb3g5/russia_is_providing_iran_intelligence_to_target/o8y57ew/
+
+https://old.reddit.com/r/worldnews/comments/1rmb3g5/russia_is_providing_iran_intelligence_to_target/o8y5vqe/
