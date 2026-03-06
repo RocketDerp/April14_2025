@@ -8,3 +8,4 @@ https://bsky.app/profile/roundsparrow.bsky.social/post/3lrigwjhjcc2b
 Whole bunch about blaming 1/3   
 
 UNITED_IN_BLAMING_ONE_THIRD_HATE_VS_HATE_ANTI_RESCUE    
+PEOPLE_LOVE_COMEDY_MEDIA_CONTENT_MORE_THAN_PLURIBUS_HUMANISM   
