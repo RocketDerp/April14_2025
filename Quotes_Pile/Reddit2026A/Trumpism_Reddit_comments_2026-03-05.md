@@ -391,3 +391,7 @@ Trump is a symptom of people who follow hate ideals and anti-intellectual ideals
 https://old.reddit.com/r/UnderReportedNews/comments/1rminfa/epstein_file_published_by_doj_in_2019_trumps_name/o90gvi3/
 
 9 month Reddit account. "staring at Reddit". Why isn't Reddit having a REDDIT_BLACKOUT protest? Why isn't social media orgnaizing FAQ and Wiki to all get on the same important priority pages...
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rminfa/epstein_file_published_by_doj_in_2019_trumps_name/o90327j/
+
+And the Reddit audience flocks itself to Trump content. JOKES_WRITE_THEMSELVES_IGNORANCE_OF_SURKOV_STUDENTS
