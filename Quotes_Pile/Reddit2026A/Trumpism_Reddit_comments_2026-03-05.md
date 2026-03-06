@@ -395,3 +395,7 @@ https://old.reddit.com/r/UnderReportedNews/comments/1rminfa/epstein_file_publish
 https://old.reddit.com/r/UnderReportedNews/comments/1rminfa/epstein_file_published_by_doj_in_2019_trumps_name/o90327j/
 
 And the Reddit audience flocks itself to Trump content. JOKES_WRITE_THEMSELVES_IGNORANCE_OF_SURKOV_STUDENTS
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1rmkrrg/is_this_dei_pardoned_for_his_participation_in_a/o907ruw/
+
+3 month Reddit account. 2nd most upvoted popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
