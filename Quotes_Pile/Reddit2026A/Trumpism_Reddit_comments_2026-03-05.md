@@ -183,3 +183,16 @@ Yes. SOCIAL_MEDIA_DID_NOT stand up and use social media to call for removal. The
 https://old.reddit.com/r/pics/comments/1rm9i7z/evangelical_leaders_return_to_oval_office_to_pray/o8y4r8h/
 
 A cult of mocking other cults. MONOMYTH_VS_MONOMYTH
+
+https://old.reddit.com/r/pics/comments/1rm9i7z/evangelical_leaders_return_to_oval_office_to_pray/o8yjosr/
+
+ANTI_REALITY 
+
+https://old.reddit.com/r/pics/comments/1rm9i7z/evangelical_leaders_return_to_oval_office_to_pray/o8yq1dg/
+
+"insane"
+
+https://old.reddit.com/r/pics/comments/1rm9i7z/evangelical_leaders_return_to_oval_office_to_pray/o8xvy52/
+
+"collective mental illness" AVOIDED_DR_BANDY_X_LEE_PUBLIC_WRITINGS
+
