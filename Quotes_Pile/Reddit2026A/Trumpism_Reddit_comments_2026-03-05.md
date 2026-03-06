@@ -227,3 +227,7 @@ HATE_MOTIVATED_ECONOMY_HATE_AS_A_VIRTUE_SIGNALING
 https://old.reddit.com/r/politics/comments/1rmcgbs/most_americans_think_their_fellow_citizens_are/o8yftin/
 
 FOLLOWERS_OF_LEADER_TRUMP_ACTOR_ENTERTAINER_DONALD_TRUMP_FOLLOWERS people prize hae. Martin Luther King Jr is ignored by everyone. Not just 40%
+
+https://old.reddit.com/r/politics/comments/1rmcgbs/most_americans_think_their_fellow_citizens_are/o8yhpxe/
+
+MASS_DEHUMANIZATION_POPULAR - people find it so easy to not turn to Dr. Bandy X Lee and promote actual goodness and education.
