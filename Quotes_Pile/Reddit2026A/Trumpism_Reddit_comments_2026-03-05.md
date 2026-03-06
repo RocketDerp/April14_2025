@@ -343,3 +343,7 @@ https://old.reddit.com/r/Fauxmoi/comments/1rmj9y0/in_new_epstein_files_release_f
 https://old.reddit.com/r/Fauxmoi/comments/1rmj9y0/in_new_epstein_files_release_from_doj_girl/o901egb/
 
 MEDIA_ECOLOGY_OBSERVATION
+
+https://old.reddit.com/r/Fauxmoi/comments/1rmj9y0/in_new_epstein_files_release_from_doj_girl/o8zygk4/
+
+SUBVERTING_EXPECTATIONS
