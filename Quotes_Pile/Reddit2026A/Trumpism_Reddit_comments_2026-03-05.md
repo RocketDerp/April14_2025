@@ -416,3 +416,6 @@ As for the screen shot content: LEVANT_MYTH_INVERTED SURKOV_MONOMYTH - the compl
 
 This is also more a Fox News HDTV cult, fiction vs. nonfiction, than just Trump personally. Trump is great at antics politics and keeping people engaged in hate following. Followers of hate, even those who hate Trump, follow Trump's lead. Trump signals hate and people follow. Surkov won since March 2013.
 
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rml4g8/how_are_people_still_supporting_this_guy/o90amkn/
+
+Yes, but tears didn't win the lections and constant front-page postings on /r/All Reddit. "Liberal Laughs" of LOL LOL at MAGA and Trump are a huge part of the "Liberal Tears" equation. Trump mocks and people compusively mock back. No defense has been found to break people from their cravings for more and mpore mockery that Trump and Putin provide. LIBERAL_LAUGHS_LIBERAL_TEARS_COMPULSIVE_MAGA_FOLLOWERS
