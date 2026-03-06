@@ -351,3 +351,7 @@ SUBVERTING_EXPECTATIONS
 https://old.reddit.com/r/Fauxmoi/comments/1rmj9y0/in_new_epstein_files_release_from_doj_girl/o8zzk9t/
 
 Grateful for what? "so grateful it backfired" - Trump has more power than ever, minds are so blown and manipulated by all this. AVOIDED_DR_BANDY_X_LEE_PUBLIC_WRITINGS observe that free time and spare time on social media is not being used to promote Dr. Lee or some other call for removal. People are glued to the entnertainment. Infinite Jest. Surkov won since March 2013.
+
+https://old.reddit.com/r/Fauxmoi/comments/1rmj9y0/in_new_epstein_files_release_from_doj_girl/o900zgu/
+
+ANSWER: how is this possible? We The People have sold out goodness for Truth Social screenshots and Reality TV stars. COMPREHENDING_UNDERSTANDING Twitter-thinking nation. Reaction commenting is not organizing intellectual resistance to media systems. Neil Postman and Marshall McLuhan understanding are not optional, Trump cults abound!
