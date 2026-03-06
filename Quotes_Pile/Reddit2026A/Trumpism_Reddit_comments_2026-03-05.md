@@ -327,3 +327,7 @@ https://old.reddit.com/r/worldnews/comments/1rmf9ko/trump_says_there_will_be_no_
 "dream" NIGHTMARE_OF_HISTORY_ANTI_WOKE
 
 https://old.reddit.com/r/worldnews/comments/1rmf9ko/trump_says_there_will_be_no_deal_with_iran_except/o8z9lks/
+
+https://old.reddit.com/r/worldnews/comments/1rmf9ko/trump_says_there_will_be_no_deal_with_iran_except/o8z52wn/
+
+RELIGION_CULTS_MONOMYTH_PROGRAMMING
