@@ -129,3 +129,7 @@ https://old.reddit.com/r/law/comments/1rlpzs9/donald_trump_fires_head_of_dhs_kri
 https://old.reddit.com/r/law/comments/1rlpzs9/donald_trump_fires_head_of_dhs_kristi_noem/o8ttcp0/
 
 Entertained by Donald Trump Truth Social messages and ideas. Got the liberal laughs, ha ha ha. LIBERAL_LAUGHS_LIBERAL_TEARS_COMPULSIVE_MAGA_FOLLOWERS
+
+https://old.reddit.com/r/SipsTea/comments/1rmj5tp/lmao/o8ztyo4/
+
+4 month Reddit account, top most-upvoted popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT this entire posting "LMAO" is not resisting Trump Family, it is furthering the Reality TV Trump family.
