@@ -643,3 +643,8 @@ ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING
 https://old.reddit.com/r/politics/comments/1rmjr3k/trump_wants_to_overthrow_cuban_regime_in_a_couple/o8zwkn6/
 
 6 month Reddit account
+
+https://old.reddit.com/r/okbuddycinephile/comments/1rmo26v/ben_stiller_and_rob_schneider_divorce_incoming/o90ve70/
+
+Screen shot "War is not a Movie", it is to Reddit audience. JOKES_WRITE_THEMSELVES_IGNORANCE_OF_SURKOV_STUDENTS people on Reddit are entirely ignorant of Neil Postman's teachings and Surkov in Russia. Avoiding nonfiction learning.
+
