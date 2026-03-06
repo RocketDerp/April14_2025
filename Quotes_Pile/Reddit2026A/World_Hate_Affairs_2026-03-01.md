@@ -591,3 +591,7 @@ https://old.reddit.com/r/worldnews/comments/1rmb3g5/russia_is_providing_iran_int
 https://old.reddit.com/r/worldnews/comments/1rmb3g5/russia_is_providing_iran_intelligence_to_target/o8y57ew/
 
 https://old.reddit.com/r/worldnews/comments/1rmb3g5/russia_is_providing_iran_intelligence_to_target/o8y5vqe/
+
+https://old.reddit.com/r/europe/comments/1rm832t/more_patriot_missiles_used_in_middle_east_in_3/o8xpn39/
+
+How Surkov won. "would be funny". AMUSEMENT_COMEDY_WASHING_TRUMP_AS_FUNNY_MEDIA_SANEWASHING
