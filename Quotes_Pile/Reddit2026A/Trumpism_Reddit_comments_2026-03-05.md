@@ -367,3 +367,7 @@ MEDIA_ECOLOGY_OBSERVATION observe that pepole do not consider Reddit to be a pub
 https://old.reddit.com/r/LeopardsAteMyFace/comments/1rml4eb/she_wants_a_country_where_women_arent_harassed_or/o907kyi/
 
 Superficial and shallow concerns about women. SUPERFICIAL_SHALLOW_PRIZING_TRUMPISM_MAGA_VALUES
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rminfa/epstein_file_published_by_doj_in_2019_trumps_name/o8zt130/
+
+4 month Reddit account, top-most upovoted comment AND the posting creator that got to /r/All front page. REDDIT_FRONT_PAGE_YOUNG_ACCOUNT
