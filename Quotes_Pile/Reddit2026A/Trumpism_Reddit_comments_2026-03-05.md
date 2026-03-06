@@ -196,3 +196,22 @@ https://old.reddit.com/r/pics/comments/1rm9i7z/evangelical_leaders_return_to_ova
 
 "collective mental illness" AVOIDED_DR_BANDY_X_LEE_PUBLIC_WRITINGS
 
+https://old.reddit.com/r/politics/comments/1rmcgbs/most_americans_think_their_fellow_citizens_are/o8ycnim/
+
+AMERICANS_HATE_AMERICANS
+
+https://old.reddit.com/r/politics/comments/1rmcgbs/most_americans_think_their_fellow_citizens_are/o8yec3p/
+
+WOKE_TO_WHAT is the anti-goodness prizing all over USA.
+
+https://old.reddit.com/r/politics/comments/1rmcgbs/most_americans_think_their_fellow_citizens_are/o8ye9gd/
+
+3/3 of population is avoiding relevant nonfiction. Dr. Bandy X Lee should be world famous and repeated constantly until the mental helath crisis is understood by everyone. Trump's power comes from mocking and mockery and it is not only 1/3 mocking goodness and nonfiction learning.
+
+https://old.reddit.com/r/politics/comments/1rmcgbs/most_americans_think_their_fellow_citizens_are/o8ycg4n/
+
+<img width="1069" height="1197" alt="image" src="https://github.com/user-attachments/assets/65534832-9334-4e22-80f0-9478119a8cba" />
+
+WAR_AGAINST_REALITY 
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mgfnazzby22w https://autistics.life/@RoundSparrow/116182963064143466 }    
