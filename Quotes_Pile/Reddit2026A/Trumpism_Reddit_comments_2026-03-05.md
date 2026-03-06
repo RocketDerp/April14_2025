@@ -318,3 +318,6 @@ https://old.reddit.com/r/worldnews/comments/1rmf9ko/trump_says_there_will_be_no_
 
 DEMENTIA_WASHING
 
+https://old.reddit.com/r/worldnews/comments/1rmf9ko/trump_says_there_will_be_no_deal_with_iran_except/o8zeicg/
+
+It's not an absence of entertainment for Reddit commenting audiences. SURKOV_SHUFFLE 
