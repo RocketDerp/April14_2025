@@ -375,3 +375,7 @@ https://old.reddit.com/r/UnderReportedNews/comments/1rminfa/epstein_file_publish
 https://old.reddit.com/r/UnderReportedNews/comments/1rminfa/epstein_file_published_by_doj_in_2019_trumps_name/o8zxonl/
 
 The cults of media content, EPSTEIN_FANDOM are not addressing the brain rot society-wide everyone problem. TRUMP_FAMILY_FIXATED_BRAIN_ROT_EVERY_DAY_FOX_NEWS_TWITTER_ETC
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rminfa/epstein_file_published_by_doj_in_2019_trumps_name/o908wme/
+
+SURKOV_WARFARE feeds right into the anti-FAQ anti-Wiki values of commenting addictions across society.
