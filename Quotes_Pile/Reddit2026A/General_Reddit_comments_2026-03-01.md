@@ -134,4 +134,4 @@ ATTRACTION_TO_SHIT_CONTENT_ENSHIT_BY_DESIRE the media attraction of NYC Major Ru
 
 https://old.reddit.com/r/PeterExplainsTheJoke/comments/1rmhhhz/peter_i_dont_understand/o8zl5o2/
 
-Just like many of the popular comments adults learn from on social machines. Trump is a symptom. Fox News HDTV is a symptom.
+Just like many of the popular comments adults learn from on social machines. Trump is a symptom. Fox News HDTV is a symptom. IGNORANCE_CELEBRATIONS 
