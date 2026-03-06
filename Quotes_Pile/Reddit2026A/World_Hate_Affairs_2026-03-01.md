@@ -619,3 +619,7 @@ FICTION_HARDER just keep promoting more fiction and falsehoods in the face of Ru
 https://old.reddit.com/r/europe/comments/1rmasdl/russia_sending_election_operatives_to_hungary_to/o8zhqmr/
 
 Beyond the popular denial of the situation since year 2013. DECEMBER_5_2014_NATO_JOKE_ARTICLE_5_JOKE
+
+https://old.reddit.com/r/europe/comments/1rmasdl/russia_sending_election_operatives_to_hungary_to/o907tu8/
+
+At least someone has caught on to Mr. Beast and other Internet media trends being the crisis. TREND_CHASING_MEDIA_TRENDING and SYMBOLISM_GUMBO
