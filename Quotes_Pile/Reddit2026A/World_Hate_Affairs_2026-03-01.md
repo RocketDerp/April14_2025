@@ -607,3 +607,7 @@ https://old.reddit.com/r/europe/comments/1rm832t/more_patriot_missiles_used_in_m
 https://old.reddit.com/r/europe/comments/1rm832t/more_patriot_missiles_used_in_middle_east_in_3/o8xs3iy/
 
 https://old.reddit.com/r/europe/comments/1rm832t/more_patriot_missiles_used_in_middle_east_in_3/o8yte12/
+
+https://old.reddit.com/r/europe/comments/1rmasdl/russia_sending_election_operatives_to_hungary_to/o8yo9gg/
+
+Normalizing it instead of seeing this (Surkovian information warfare) as a serious threat. SATIRE_SARCASM_WASHING
