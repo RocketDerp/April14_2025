@@ -701,3 +701,7 @@ https://old.reddit.com/r/politics/comments/1rnbwvv/epstein_files_south_carolina_
 https://old.reddit.com/r/politics/comments/1rnbwvv/epstein_files_south_carolina_woman_accused_trump/o96h0jb/
 
 Why oh Why isn't Reddit commenting community having a REDDIT_BLACKOUT to protest Trump or the war? ANSWER: People are engaged in the media system, the high-speed messages. Why are people not quoting and promoting Dr. Bandy X Lee and Jen Senko... MORE_THAN_EPSTEIN_NAME_DROPS
+
+https://old.reddit.com/r/politics/comments/1rnbwvv/epstein_files_south_carolina_woman_accused_trump/o969zip/
+
+Such funny information patterns that blow Reddit minds into viewing all this as content for entertainment and amusement. Neil Postman was correct in his 1985 book. AMUSEMENT_COMEDY_WASHING_TRUMP_AS_FUNNY_MEDIA_SANEWASHING
