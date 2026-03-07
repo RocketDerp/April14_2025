@@ -517,3 +517,7 @@ Yes. Donald Trump has always been incredibly obvious bad. Which is why the crisi
 https://old.reddit.com/r/Fauxmoi/comments/1rnb1it/country_singer_maren_morris_i_dont_have/o95fyg3/
 
 REMEDIAL_MORALITY lessons society-wide are clearly needed. People are attracted to badness and self-harm. The Saint Petersburg Internet Research Agency and Cambridge Analytica aren't being taken seriously. NOT_GOOD_ENOUGH Jen Senko isn't being constantly promoted on Reddit and Bluesky. - the Fox News problem has gone on for decades. https://en.wikipedia.org/wiki/Jen_Senko Dr. Bandy X Lee should be repeated and repeated MORE_THAN_EPSTEIN_NAME_DROPS
+
+https://old.reddit.com/r/Fauxmoi/comments/1rnb1it/country_singer_maren_morris_i_dont_have/o95fzep/
+
+FAITH_IN_HATE faith in anti-forgiveness. Anti MLK Jr. Anti-Malala - exactly what Trump leads with. HATE_VS_HATE
