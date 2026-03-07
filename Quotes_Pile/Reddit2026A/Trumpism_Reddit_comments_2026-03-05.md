@@ -698,3 +698,6 @@ https://old.reddit.com/r/politics/comments/1rnbwvv/epstein_files_south_carolina_
 
 "Trump Mind Virus" BILLIONAIRE_MIND_VIRUS
 
+https://old.reddit.com/r/politics/comments/1rnbwvv/epstein_files_south_carolina_woman_accused_trump/o96h0jb/
+
+Why oh Why isn't Reddit commenting community having a REDDIT_BLACKOUT to protest Trump or the war? ANSWER: People are engaged in the media system, the high-speed messages. Why are people not quoting and promoting Dr. Bandy X Lee and Jen Senko... MORE_THAN_EPSTEIN_NAME_DROPS
