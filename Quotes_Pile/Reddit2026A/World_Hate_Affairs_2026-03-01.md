@@ -690,3 +690,7 @@ https://old.reddit.com/r/AITAH/comments/1rni3sw/aitah_for_packing_my_bags_after_
 
 The pro-hate reaction in the Reddit audience isn't fake. Even if the story is fake. There  are FAR WORSE crimes for the general public to be concerned about, such as world leaders (of wealth and power) using entertainment techniques to promote war and mass dehumanization of poor people. ANTI_REALITY fiction addictions.
 
+https://old.reddit.com/r/AITAH/comments/1rni3sw/aitah_for_packing_my_bags_after_my_boyfriends/o96vkeg/
+
+YOU_MUST_HATE_EX_LOVERS you MUST, the public insists, that you hate ex-lovers. Toxic popularity. 
+
