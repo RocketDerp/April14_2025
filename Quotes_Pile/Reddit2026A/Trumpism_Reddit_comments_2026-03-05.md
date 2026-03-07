@@ -651,3 +651,11 @@ The first most popular comment was 5 month account, now this 7 month account is 
 https://old.reddit.com/r/worldnews/comments/1rnfrh7/pentagon_believes_us_struck_iran_girls_elementary/o96c59p/
 
 Entertained audience on Reddit. NAME_CALLING_INSULT_MOCKERY_FOLLOWERS_OF_LEADER_DONALD_TRUMP_SHALLOWNESS_VALUES
+
+https://old.reddit.com/r/pics/comments/1rngsek/shopping_in_america_today/o96lj8p/
+
+SYMBOLISM_GUMBO
+
+https://old.reddit.com/r/pics/comments/1rngsek/shopping_in_america_today/o96kizz/
+
+SYMBOLISM_INVERSION_MANIPULATION on the meaning of the snake, Trumpism is NYC land lord worship. 
