@@ -455,3 +455,8 @@ Top-most upvoted popular comment. FAITH_IN_HATE and no call to reform thinking a
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1rmw0q5/jesus_iranians_that_think_theyre_going_to_live/o92j140/
 
 Reddit fandom eats it up. Anti-intellectual leadership and followers.
+
+https://old.reddit.com/r/science/comments/1rn7b89/people_with_the_least_political_knowledge_tend_to/o94n57z/
+
+MEDIA_ECOLOGY_OBSERVATION reaction-commenting and thinking to headlines.
+
