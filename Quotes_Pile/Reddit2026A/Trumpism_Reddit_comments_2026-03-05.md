@@ -607,3 +607,11 @@ MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL Magical thinking. Pe
 https://old.reddit.com/r/news/comments/1rncqs7/footage_shows_us_citizen_shot_by_ice_agent_in/o961bsu/
 
 GULLIBILITY_CRISIS people are not taking fiction addictions seriously. Reality TV "The Apprentice" fiction, Fox News HDTV fiction, anti-intellectual social media comment. NOT_GOOD_ENOUGH Jen Senko isn't good enough for social media user to promote and cite.
+
+https://old.reddit.com/r/news/comments/1rncqs7/footage_shows_us_citizen_shot_by_ice_agent_in/o95ysjl/
+
+"cult leader"
+
+https://old.reddit.com/r/news/comments/1rncqs7/footage_shows_us_citizen_shot_by_ice_agent_in/o9638lt/
+
+REHUMANIZE_WE_THE_PEOPLE_LITTLE_GUYS people do not see how "Stand Up For The Little Guy" has been wrecked in our collective mindsets.
