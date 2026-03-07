@@ -701,3 +701,5 @@ TECH_LUST_TECH_LOVERS who hate human persons and view fighting with humans and d
 https://old.reddit.com/r/mildlyinfuriating/comments/1rnj4pk/left_bag_on_airplane_tracked_to_address/o9775ra/
 
 REMEDIAL_MORALITY lessons are needed. Top to bottom of society.
+
+https://old.reddit.com/r/NewDelhi/comments/1rncmyt/what_are_your_opinions_on_this_action_taken_by/o95qmwn/
