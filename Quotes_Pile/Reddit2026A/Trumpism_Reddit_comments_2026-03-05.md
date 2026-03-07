@@ -561,3 +561,7 @@ There is a troubling attitude that people study history and march right into the
 https://old.reddit.com/r/politics/comments/1rn9vyk/donald_trumps_presidency_is_in_free_fall/o95efk2/
 
 Fox News had a cult following without Donald Trump. Being a reality TV star is more about Trump than anything. MEDIA_CULTS_ADDICTIVE_FICTION the avoidance of Jen Senko and Dr. Bandy X Lee is observable. People with free time and spare time are engaged in the media mockery and followers of Trump values.
+
+https://old.reddit.com/r/TikTokCringe/comments/1rnbdjz/combat_units_are_being_given_deployment_orders/o95lv0e/
+
+Most-popular upvoted comment. ICE_FANDOM the whole phrase "I wouldn't wish ICE on my worst enemy" comes to mind in interpreting this Twitter-thinking mindset. It eats right out of the recent "send ICE to Italy" for the Olympics. January 27, 2026 world news: https://www.bbc.com/news/articles/c5y29xzjdzvo People on Reddit think, like MAGA fans on Fox News, that their media venue is all entertainment and jokes as their minds are programmed further and further to view Trump's leadership as the ultimate entertainment.
