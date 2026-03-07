@@ -711,3 +711,13 @@ https://old.reddit.com/r/Fauxmoi/comments/1rnia3u/donald_trump_speaking_in_front
 https://old.reddit.com/r/Fauxmoi/comments/1rnia3u/donald_trump_speaking_in_front_of_latin_american/o96y9y5/
 
 22 day Reddit account. Describing SURKOV_WARFARE and Surkov governing. People on Reddit eat up the paradox patterns, blow their minds into predictable reactionary patterns.
+
+https://old.reddit.com/r/pics/comments/1rnkwwc/us_israeli_atrocities_165_school_girls_killed/o97jqmg/
+
+https://old.reddit.com/r/pics/comments/1rnkwwc/us_israeli_atrocities_165_school_girls_killed/o97k1n7/
+
+PREDICTION_A 
+
+https://old.reddit.com/r/pics/comments/1rnkwwc/us_israeli_atrocities_165_school_girls_killed/o97i77z/
+
+HATE_VS_HATE FAITH_IN_HATE   
