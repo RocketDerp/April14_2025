@@ -647,3 +647,7 @@ MASS_HALLUCINATIONS_SEPTEMBER_YEAR_2014_PUBLISHED observe that people on Reddit 
 https://old.reddit.com/r/worldnews/comments/1rnfrh7/pentagon_believes_us_struck_iran_girls_elementary/o96dxs9/
 
 The first most popular comment was 5 month account, now this 7 month account is 2nd most popular. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+
+https://old.reddit.com/r/worldnews/comments/1rnfrh7/pentagon_believes_us_struck_iran_girls_elementary/o96c59p/
+
+Entertained audience on Reddit. NAME_CALLING_INSULT_MOCKERY_FOLLOWERS_OF_LEADER_DONALD_TRUMP_SHALLOWNESS_VALUES
