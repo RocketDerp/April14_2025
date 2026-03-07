@@ -615,3 +615,7 @@ https://old.reddit.com/r/news/comments/1rncqs7/footage_shows_us_citizen_shot_by_
 https://old.reddit.com/r/news/comments/1rncqs7/footage_shows_us_citizen_shot_by_ice_agent_in/o9638lt/
 
 REHUMANIZE_WE_THE_PEOPLE_LITTLE_GUYS people do not see how "Stand Up For The Little Guy" has been wrecked in our collective mindsets.
+
+https://old.reddit.com/r/Silksong/comments/1rncw27/the_official_white_house_account_just_posted_this/o95q4us/
+
+EPSTEIN_FANDOM RESISTING_WHAT_EXACTLY
