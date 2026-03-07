@@ -623,3 +623,15 @@ EPSTEIN_FANDOM RESISTING_WHAT_EXACTLY
 https://old.reddit.com/r/Silksong/comments/1rncw27/the_official_white_house_account_just_posted_this/o95qtih/
 
 ARE_YOU_SMARTER_THAN_3RD_GRADE_STUDENT_FANDOM_MEASURING why is Reddit comment community not doing a Reddit blackout or promoting Dr. Bandy X Lee over and over... Answer: Trump fandom behaviors. Trump leads with hate ant anti-intellectualism and Reddit follows the leader.
+
+https://old.reddit.com/r/Silksong/comments/1rncw27/the_official_white_house_account_just_posted_this/o95r6jy/
+
+https://old.reddit.com/r/Silksong/comments/1rncw27/the_official_white_house_account_just_posted_this/o965rbp/
+
+https://old.reddit.com/r/Silksong/comments/1rncw27/the_official_white_house_account_just_posted_this/o95slcl/
+
+https://old.reddit.com/r/Silksong/comments/1rncw27/the_official_white_house_account_just_posted_this/o95wl63/
+
+https://old.reddit.com/r/Silksong/comments/1rncw27/the_official_white_house_account_just_posted_this/o95sgn1/
+
+MASS_HALLUCINATIONS_SEPTEMBER_YEAR_2014_PUBLISHED
