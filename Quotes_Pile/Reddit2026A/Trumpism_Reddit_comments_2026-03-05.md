@@ -558,3 +558,6 @@ PREMATURE_CELEBRATION ...  ENTERTAINED_JUST_PASSIVELY_WATCHING_UNTIL_DEATH_NO_SO
 
 There is a troubling attitude that people study history and march right into the future with the attitude that world wars end. Keep cheering on and celebrating badness because it will come to an end. The future is unwritten, and the avoidance of Jen Senko and Dr. Bandy X Lee is observable. People with free time and spare time are engaged in the media mockery and followers of Trump values.
 
+https://old.reddit.com/r/politics/comments/1rn9vyk/donald_trumps_presidency_is_in_free_fall/o95efk2/
+
+Fox News had a cult following without Donald Trump. Being a reality TV star is more about Trump than anything. MEDIA_CULTS_ADDICTIVE_FICTION the avoidance of Jen Senko and Dr. Bandy X Lee is observable. People with free time and spare time are engaged in the media mockery and followers of Trump values.
