@@ -501,3 +501,7 @@ DENIAL_ABOUNDS "this is all they have", complete denial of Russia's information 
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1rn6fz4/how_does_anyone_still_listen_to_this_guy/o957ier/
 
 MEDIA_CULTS_FICTION_FANDOM_MEDIA_POWER
+
+https://old.reddit.com/r/Fauxmoi/comments/1rnb1it/country_singer_maren_morris_i_dont_have/o95crq1/
+
+The whole post is reactionary anti-intellectual. Against MLK Jr. Against goodness. Punching down on the rural less-educated population (that have already been punched down on). MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL it is pro-hate and following the leadership of hate that Trump and Putin pushed into society. It is adding more mockery to the mocking. Observe the nonfiction avoidance. AVOIDED_DR_BANDY_X_LEE_PUBLIC_WRITINGS
