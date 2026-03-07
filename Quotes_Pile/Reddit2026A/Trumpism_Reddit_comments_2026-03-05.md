@@ -451,3 +451,7 @@ The posting title, MOCK_MOCK_MOCKERY FAITH_IN_MOCKING
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1rmw0q5/jesus_iranians_that_think_theyre_going_to_live/o92imnx/
 
 Top-most upvoted popular comment. FAITH_IN_HATE and no call to reform thinking and interpretation that lead to this, the anti-intellectual Twitter-length mindsets. A Twitter-fandom /r/WhitePeopleTwitter community.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rmw0q5/jesus_iranians_that_think_theyre_going_to_live/o92j140/
+
+Reddit fandom eats it up. Anti-intellectual leadership and followers.
