@@ -679,3 +679,7 @@ SYMBOLISM_INVERSION_MANIPULATION
 https://old.reddit.com/r/pics/comments/1rngsek/shopping_in_america_today/o96kb5w/
 
 OBSERVE_MEDIA_AVOIDANCE_OF_RELEVANT_NONFICTION Observe the many comments declaring "cult", but nobody going into any kind of nonfiction on the subject. No author names, no off-Reddit URL, no call for rescue. it is thought-terminating cliché of the MAGA_FANDOM on Reddit. People just think writing the word "cult" is all that is needed. Its programmed reactionary mindset, street-gang signs and language. https://en.wikipedia.org/wiki/Thought-terminating_clich%C3%A9
+
+https://old.reddit.com/r/pics/comments/1rngsek/shopping_in_america_today/o96l22o/
+
+"cult"
