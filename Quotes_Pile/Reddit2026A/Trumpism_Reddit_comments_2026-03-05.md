@@ -571,3 +571,13 @@ https://old.reddit.com/r/TikTokCringe/comments/1rnbdjz/combat_units_are_being_gi
 The child is Internet media. We The  People. The child is social media. People who can't face reality TV "The Apprentice" is a real addiction, that Fox News HDTV and Newsmax HDTV is an addiction. People who will not see the avoidance of nonfiction in the Reddit commenting section. MAXIMUM_PUTINIZATION this is how Surkov won since year 2013... people entertainment-washing Trump on social media. There was no Neil Postman high road taken.
 
 * "My country is in its adolescence,” Stone continued. “Adolescence is very arrogant. Adolescence thinks it knows everything. Adolescence is naive and ignorant and arrogant, and we are in our ignorant, arrogant adolescence.” - November 2024. https://www.yahoo.com/entertainment/sharon-stone-us-ignorant-arrogant-174125649.html
+
+https://old.reddit.com/r/TikTokCringe/comments/1rnbdjz/combat_units_are_being_given_deployment_orders/o95jcyo/
+
+4 month Reddit account. PREDICTION_A
+
+https://old.reddit.com/r/TikTokCringe/comments/1rnbdjz/combat_units_are_being_given_deployment_orders/o95hu9e/
+
+https://old.reddit.com/r/TikTokCringe/comments/1rnbdjz/combat_units_are_being_given_deployment_orders/o95i2yv/
+
+HIGH_SPEED_REACTIONARY_MINDSETS Reddit fandom is pro-war. Pro attacking Muslims, pro attacking Iran, anti-Malala. It's exactly this kind of amusement comedy that Putin has exploited with Surkov methods since year 2013. It's predictable mindsets at this point. People cannot resist being pro-hate and anti-MLK Jr.
