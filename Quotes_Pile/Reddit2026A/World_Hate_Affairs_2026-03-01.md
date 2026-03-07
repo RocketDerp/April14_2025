@@ -694,3 +694,6 @@ https://old.reddit.com/r/AITAH/comments/1rni3sw/aitah_for_packing_my_bags_after_
 
 YOU_MUST_HATE_EX_LOVERS you MUST, the public insists, that you hate ex-lovers. Toxic popularity. 
 
+https://old.reddit.com/r/ForCuriousSouls/comments/1rnh5p7/mma_fighter_let_daughter_starve_to_death_in_house/o96x6y8/
+
+TECH_LUST_TECH_LOVERS who hate human persons and view fighting with humans and defeating humans as some kind of sport.
