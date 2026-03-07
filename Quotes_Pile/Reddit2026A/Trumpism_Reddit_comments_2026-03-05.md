@@ -535,3 +535,8 @@ The problem continues to be WE_THE_PEOPLE_MEDIA_COMMENTING have not stood up in 
 https://old.reddit.com/r/politics/comments/1rn9vyk/donald_trumps_presidency_is_in_free_fall/o95a1jc/
 
 MAXIMUM_PUTINIZATION 
+
+https://old.reddit.com/r/politics/comments/1rn9vyk/donald_trumps_presidency_is_in_free_fall/o9585p9/
+
+Waiting around and commenting is exactly what Reddit users are doing. ENTERTAINED_JUST_PASSIVELY_WATCHING_UNTIL_DEATH_NO_SOCIAL_MEDIA_UPRISING_WHILE_ALIVE
+
