@@ -667,3 +667,11 @@ MAGA was the one laughing and mocking science all along. More mocking isn't the 
 https://old.reddit.com/r/pics/comments/1rngsek/shopping_in_america_today/o96kk8l/
 
 "mentally ill", treat it without addressing the cause. MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL
+
+https://old.reddit.com/r/pics/comments/1rngsek/shopping_in_america_today/o96jprd/
+
+3 word cult commenting... of media low-information upvoting cult. MEDIA_CULTS_FICTION_FANDOM_MEDIA_POWER
+
+https://old.reddit.com/r/pics/comments/1rngsek/shopping_in_america_today/o96l61n/
+
+SYMBOLISM_INVERSION_MANIPULATION
