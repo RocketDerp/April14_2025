@@ -271,3 +271,7 @@ https://old.reddit.com/r/science/comments/1rhcpfi/carbon_dioxide_overload_detect
 
 Conformity vs. diversity   
 https://old.reddit.com/r/science/comments/1rjzir0/broad_claims_about_gender_and_behavior_fall_apart/
+
+&nbsp;
+
+https://old.reddit.com/r/science/comments/1rndt08/experts_say_there_is_no_overdiagnosis_of_adhd/
