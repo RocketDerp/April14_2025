@@ -591,3 +591,7 @@ https://old.reddit.com/r/TikTokCringe/comments/1rnbdjz/combat_units_are_being_gi
 https://old.reddit.com/r/TikTokCringe/comments/1rnbdjz/combat_units_are_being_given_deployment_orders/o95nwk5/
 
 10 day Reddit account.
+
+https://old.reddit.com/r/news/comments/1rncqs7/footage_shows_us_citizen_shot_by_ice_agent_in/o95pw8o/
+
+MASS_PSYCHOSIS_ABOUNDS   SAFE_DANGER_IN_2017_NONFICTION_BOOK_TITLE
