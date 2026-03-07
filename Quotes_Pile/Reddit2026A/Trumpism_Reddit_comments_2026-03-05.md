@@ -565,3 +565,9 @@ Fox News had a cult following without Donald Trump. Being a reality TV star is m
 https://old.reddit.com/r/TikTokCringe/comments/1rnbdjz/combat_units_are_being_given_deployment_orders/o95lv0e/
 
 Most-popular upvoted comment. ICE_FANDOM the whole phrase "I wouldn't wish ICE on my worst enemy" comes to mind in interpreting this Twitter-thinking mindset. It eats right out of the recent "send ICE to Italy" for the Olympics. January 27, 2026 world news: https://www.bbc.com/news/articles/c5y29xzjdzvo People on Reddit think, like MAGA fans on Fox News, that their media venue is all entertainment and jokes as their minds are programmed further and further to view Trump's leadership as the ultimate entertainment.
+
+https://old.reddit.com/r/TikTokCringe/comments/1rnbdjz/combat_units_are_being_given_deployment_orders/o95k8b5/
+
+The child is Internet media. We The  People. The child is social media. People who can't face reality TV "The Apprentice" is a real addiction, that Fox News HDTV and Newsmax HDTV is an addiction. People who will not see the avoidance of nonfiction in the Reddit commenting section. MAXIMUM_PUTINIZATION this is how Surkov won since year 2013... people entertainment-washing Trump on social media. There was no Neil Postman high road taken.
+
+* "My country is in its adolescence,” Stone continued. “Adolescence is very arrogant. Adolescence thinks it knows everything. Adolescence is naive and ignorant and arrogant, and we are in our ignorant, arrogant adolescence.” - November 2024. https://www.yahoo.com/entertainment/sharon-stone-us-ignorant-arrogant-174125649.html
