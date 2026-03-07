@@ -747,3 +747,7 @@ NIGHTMARE_OF_HISTORY_ANTI_WOKE James Joyce and Marshall McLuhan spelled out the 
 https://old.reddit.com/r/Epstein/comments/1rnkwx0/epstein_claimed_the_kremlin_funneled_100m_to/o97xii5/
 
 It's less of an issue of knowledge and more an issue of desires for entertainment and media stimulation that Trump and Putin provide since year 2013. TREND_CHASING_MEDIA_TRENDING and bending all media systems is what Trump's skill / gift / power is. Media addicts on meme platforms and professional media practitioners are often the worst at recognizing the high-speed electric media issue described by Marshall McLuhan and Neil Postman. BRAIN_ROT_SOCIETY_47
+
+https://old.reddit.com/r/Epstein/comments/1rnkwx0/epstein_claimed_the_kremlin_funneled_100m_to/o97lblz/
+
+CALL_TO_INTELLECTUAL_ACTION_PLAN alas, nonfiction books get rarely asserted. And even this brief assertion offers no quote or call for people to organize information and keep repeating it until we are all on the same page of systemic issues.
