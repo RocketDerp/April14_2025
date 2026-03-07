@@ -467,3 +467,15 @@ REALITY_REAL the Bible media is not reality, the Church venue is not reality. Th
 https://old.reddit.com/r/science/comments/1rn7b89/people_with_the_least_political_knowledge_tend_to/o9522rk/
 
 TOXIC_POPULARITY 
+
+https://old.reddit.com/r/worldnews/comments/1rn7p22/trump_tells_cnn_cuba_is_soon_going_to_fall_im/o94q6eo/
+
+Top upvoted comment actually has a relevant nonfiction quote. Alas, it doesn't lead to recognizing Twitter-thinking and celebrity reality TV audience behaviors as WHY Trump is popular and the center of all media systems. Marshall McLuhan understanding. IMPORTANT_QUOTES_A
+
+https://old.reddit.com/r/worldnews/comments/1rn7p22/trump_tells_cnn_cuba_is_soon_going_to_fall_im/o94tzzu/
+
+<img width="1121" height="979" alt="image" src="https://github.com/user-attachments/assets/d26da803-2c0e-44d5-bce7-6715162f8fd0" />
+
+LOLCOW milking. Neil Postman's 1985 book "Amusing Ourselves To Death" (about politics and Reddit). AMUSEMENT_COMEDY_WASHING_TRUMP_AS_FUNNY_MEDIA_SANEWASHING
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mghyrippxs2o https://autistics.life/@RoundSparrow/116188279816550347 }   
