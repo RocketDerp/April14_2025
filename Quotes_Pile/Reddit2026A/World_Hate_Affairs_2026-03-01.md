@@ -681,3 +681,7 @@ OUT_GROUP_HATE
 https://old.reddit.com/r/SipsTea/comments/1rnct8m/tough_guy/o96bc87/
 
 IGNORANCE_CELEBRATIONS violence celebrating, bombing celebrating, entertainment-wrapping is very common. People cheering on ignorance and promoting more avoidance of serious relevant nonfiction books on paper.
+
+https://old.reddit.com/r/AITAH/comments/1rni3sw/aitah_for_packing_my_bags_after_my_boyfriends/o96trc4/
+
+"insane". TOO_MUCH_LOVE_IS_INSANE_BUT_MAD_MILITARY_DOCTRINE_AND_AVOIDANCE_NON_FICTION  And I'm not talking "what about ism". I'm talking about what people consider insane. I'm more worried about people starving without food, living in war zones, parenting in Palestine in year 2025, out-group hate, the POPULARITY of Donald Trump while people avoid Dr. Bandy X Lee's nonfiction public education, etc. Hippy values of 1967, 1968, 1969 really do not freak me out. A criminal breaking in and murdering people is insane and alarming. This is actually more amusing and funny, no hate or disrespect here. The boundaries of emotional connections and egoism. She could be drunk or high, but this is a growth opportunity for the relationship of learning people are different. This world does not need more hate and hate mongering. This is complaining of *too much love* and friendships. And I'm not just talking about the one person's story, the crowd reaction of pro-dehumanization deport-happy block-happy HATE_HARDER attitude.
