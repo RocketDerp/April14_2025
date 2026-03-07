@@ -603,3 +603,7 @@ MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL
 https://old.reddit.com/r/news/comments/1rncqs7/footage_shows_us_citizen_shot_by_ice_agent_in/o9610wv/
 
 MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL Magical thinking. People read one sentence on a Reddit comment and start making wild claims. Highly reactionary mindsets and no self-awareness at the Marshall McLuhan and Neil Postman levels of understanding Reddit media and new reporting media. 
+
+https://old.reddit.com/r/news/comments/1rncqs7/footage_shows_us_citizen_shot_by_ice_agent_in/o961bsu/
+
+GULLIBILITY_CRISIS people are not taking fiction addictions seriously. Reality TV "The Apprentice" fiction, Fox News HDTV fiction, anti-intellectual social media comment. NOT_GOOD_ENOUGH Jen Senko isn't good enough for social media user to promote and cite.
