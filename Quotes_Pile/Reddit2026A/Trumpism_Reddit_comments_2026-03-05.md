@@ -705,3 +705,7 @@ Why oh Why isn't Reddit commenting community having a REDDIT_BLACKOUT to protest
 https://old.reddit.com/r/politics/comments/1rnbwvv/epstein_files_south_carolina_woman_accused_trump/o969zip/
 
 Such funny information patterns that blow Reddit minds into viewing all this as content for entertainment and amusement. Neil Postman was correct in his 1985 book. AMUSEMENT_COMEDY_WASHING_TRUMP_AS_FUNNY_MEDIA_SANEWASHING
+
+https://old.reddit.com/r/politics/comments/1rnbwvv/epstein_files_south_carolina_woman_accused_trump/o97569e/
+
+REMEDIAL_MORALITY - the anti-intellectual worship of fiction bad-ass characters and following of terrible leaders and values. Why isn't Dr. Bandy X Lee not being quoted and repeated all over social media in year 2024, 2025, 2026?
