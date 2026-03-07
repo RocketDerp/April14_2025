@@ -443,3 +443,7 @@ MEDIA_ECOLOGY_OBSERVATION Typical dehumanization information warfare to call som
 https://old.reddit.com/r/politics/comments/1rmoo5y/us_may_have_committed_war_crime_in_sinking_of/o91y9rp/
 
 MEDIA_ECOLOGY_OBSERVATION
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rmp7mr/obama_every_day_you_wake_up_to_things_you_just/o913oi1/
+
+The posting title, MOCK_MOCK_MOCKERY FAITH_IN_MOCKING
