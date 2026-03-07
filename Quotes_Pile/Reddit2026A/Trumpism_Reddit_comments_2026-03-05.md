@@ -727,3 +727,11 @@ https://old.reddit.com/r/Epstein/comments/1rnkwx0/epstein_claimed_the_kremlin_fu
 https://old.reddit.com/r/Epstein/comments/1rnkwx0/epstein_claimed_the_kremlin_funneled_100m_to/o97ikv1/
 
 FANATICS_FANS_OF_CLOWNS_FANS_OF_MAGA_CLOWNING People are a fandom to commenting and complain about clowns. The clowns are in office because people celebrate ignorance. People are fans of reality TV, "The Apprentice", Fox News HDTV fiction, Newsmax fiction, billionaire sports team owners. Instead of playing sports with their own neighbors for fun and friendship, it's ultra-competitive billionaire content worship.
+
+https://old.reddit.com/r/Epstein/comments/1rnkwx0/epstein_claimed_the_kremlin_funneled_100m_to/o97kee9/
+
+3 month Reddit account.
+
+https://old.reddit.com/r/Epstein/comments/1rnkwx0/epstein_claimed_the_kremlin_funneled_100m_to/o97wiwr/
+
+MEDIA_ECOLOGY_OBSERVATION   
