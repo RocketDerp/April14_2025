@@ -527,3 +527,8 @@ https://old.reddit.com/r/Fauxmoi/comments/1rnb1it/country_singer_maren_morris_i_
 6 day Reddit account.
 
 https://old.reddit.com/r/Fauxmoi/comments/1rnb1it/country_singer_maren_morris_i_dont_have/o95hlp6/
+
+https://old.reddit.com/r/politics/comments/1rn9vyk/donald_trumps_presidency_is_in_free_fall/o955ul3/
+
+The problem continues to be WE_THE_PEOPLE_MEDIA_COMMENTING have not stood up in blackouts, education campaigns, calling for impeachment. People on social media have made Trump into an endless source of memes and jokes. The problem is the values: prizing Fox News, prizing Joe Rogan, prizing Trump as entertainment. The entire tone and style of favoring hate and machine tech love, antics and celebrating ignorance, needs to be a loud social movement. The avoidance of Jen Senko and Dr. Bandy X Lee is real.
+
