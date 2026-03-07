@@ -15,3 +15,17 @@ Sci-Fi Short Film "There Is No Antimemetics Division" | DUST | Starring Jasika N
 https://www.youtube.com/watch?v=kwqTNrh1aP8   
 Phillip K Dick's Terrifying Lost Cosmic Horror   
 This story appeared in a collection of short stories by Harlan Ellison called Dangerous visions. It included 33 stories by various authors. One was Faith of Our Fathers by Phillip K Dick. This was in 1967   
+&nbsp;
+
+# March 6, 2026
+
+Consume information   
+BILLIONAIRE_MIND_VIRUS   
+
+https://autistics.life/@RoundSparrow/116185335327478284    
+https://bsky.app/profile/roundsparrow.bsky.social/post/3mggoxcp5us2x   
+
+https://www.youtube.com/watch?v=xGqnfsGj4eM    
+33,420 views March 6, 2026    
+The Scariest Book I've Read in Years | There Is No Antimemetics Division    
+
