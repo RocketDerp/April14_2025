@@ -643,3 +643,7 @@ https://old.reddit.com/r/worldnews/comments/1rnfrh7/pentagon_believes_us_struck_
 https://old.reddit.com/r/worldnews/comments/1rnfrh7/pentagon_believes_us_struck_iran_girls_elementary/o96elcv/
 
 MASS_HALLUCINATIONS_SEPTEMBER_YEAR_2014_PUBLISHED observe that people on Reddit are describing how Trump is treated differently, but don't concern themselves - even after more than a decade, as to details of why. The avoidance of nonfiction on the subject. The avoidance of concern to understand or comprehend the media celebrity power of fiction.
+
+https://old.reddit.com/r/worldnews/comments/1rnfrh7/pentagon_believes_us_struck_iran_girls_elementary/o96dxs9/
+
+The first most popular comment was 5 month account, now this 7 month account is 2nd most popular. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
