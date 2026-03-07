@@ -510,3 +510,6 @@ https://old.reddit.com/r/Fauxmoi/comments/1rnb1it/country_singer_maren_morris_i_
 
 NAME_CALLING_INSULT_MOCKERY_FOLLOWERS_OF_LEADER_DONALD_TRUMP_SHALLOWNESS_VALUES
 
+https://old.reddit.com/r/Fauxmoi/comments/1rnb1it/country_singer_maren_morris_i_dont_have/o95dw49/
+
+Yes. Donald Trump has always been incredibly obvious bad. Which is why the crisis is television, memes, attraction to fiction. ATTRACTION_TO_SHIT_CONTENT_ENSHIT_BY_DESIRE ... SEE_ALSO https://github.com/RocketDerp/April14_2025/blob/main/Grim_Blunt/Donald_Trump_is_so_Obvious.md
