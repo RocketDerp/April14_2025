@@ -463,3 +463,7 @@ MEDIA_ECOLOGY_OBSERVATION reaction-commenting and thinking to headlines.
 https://old.reddit.com/r/science/comments/1rn7b89/people_with_the_least_political_knowledge_tend_to/o9557ie/
 
 REALITY_REAL the Bible media is not reality, the Church venue is not reality. The Quran is not reality, the Mosque venue is not reality. the Bible is media, Reddit is media. Torah is not Reality. Upanishads is not reality. Fox News HDTV media is not reality. Elon Musk Twitter is not reality. Truth Social is not reality. When has humanity actually desired or followed people who aren't entertaining fiction storytellers...
+
+https://old.reddit.com/r/science/comments/1rn7b89/people_with_the_least_political_knowledge_tend_to/o9522rk/
+
+TOXIC_POPULARITY 
