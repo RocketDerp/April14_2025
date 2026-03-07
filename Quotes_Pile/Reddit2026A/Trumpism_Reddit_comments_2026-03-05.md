@@ -439,3 +439,7 @@ https://old.reddit.com/r/Fauxmoi/comments/1rmsalt/mark_ruffalo_to_rep_hakeem_jef
 https://old.reddit.com/r/politics/comments/1rmoo5y/us_may_have_committed_war_crime_in_sinking_of/o91e4ld/
 
 MEDIA_ECOLOGY_OBSERVATION Typical dehumanization information warfare to call someone a non-person, immigrant dog foghorn. FAKE_DETECTORS 
+
+https://old.reddit.com/r/politics/comments/1rmoo5y/us_may_have_committed_war_crime_in_sinking_of/o91y9rp/
+
+MEDIA_ECOLOGY_OBSERVATION
