@@ -709,3 +709,7 @@ Such funny information patterns that blow Reddit minds into viewing all this as 
 https://old.reddit.com/r/politics/comments/1rnbwvv/epstein_files_south_carolina_woman_accused_trump/o97569e/
 
 REMEDIAL_MORALITY - the anti-intellectual worship of fiction bad-ass characters and following of terrible leaders and values. Why isn't Dr. Bandy X Lee not being quoted and repeated all over social media in year 2024, 2025, 2026?
+
+https://old.reddit.com/r/politics/comments/1rnbwvv/epstein_files_south_carolina_woman_accused_trump/o978528/
+
+REMEMBER_THE_PROGRAM_IDEAS_BILLIONAIRES_FED_REDDIT_AUDIENCE
