@@ -677,3 +677,7 @@ Egomania is what Musk, Trump, Murdoch, Putin lead with and so many followers. HY
 https://old.reddit.com/r/SipsTea/comments/1rnct8m/tough_guy/o96j0kq/
 
 OUT_GROUP_HATE
+
+https://old.reddit.com/r/SipsTea/comments/1rnct8m/tough_guy/o96bc87/
+
+IGNORANCE_CELEBRATIONS violence celebrating, bombing celebrating, entertainment-wrapping is very common. People cheering on ignorance and promoting more avoidance of serious relevant nonfiction books on paper.
