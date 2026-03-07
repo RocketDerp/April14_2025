@@ -505,3 +505,8 @@ MEDIA_CULTS_FICTION_FANDOM_MEDIA_POWER
 https://old.reddit.com/r/Fauxmoi/comments/1rnb1it/country_singer_maren_morris_i_dont_have/o95crq1/
 
 The whole post is reactionary anti-intellectual. Against MLK Jr. Against goodness. Punching down on the rural less-educated population (that have already been punched down on). MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL it is pro-hate and following the leadership of hate that Trump and Putin pushed into society. It is adding more mockery to the mocking. Observe the nonfiction avoidance. AVOIDED_DR_BANDY_X_LEE_PUBLIC_WRITINGS
+
+https://old.reddit.com/r/Fauxmoi/comments/1rnb1it/country_singer_maren_morris_i_dont_have/o95d7u8/
+
+NAME_CALLING_INSULT_MOCKERY_FOLLOWERS_OF_LEADER_DONALD_TRUMP_SHALLOWNESS_VALUES
+
