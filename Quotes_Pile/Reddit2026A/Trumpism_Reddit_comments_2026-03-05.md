@@ -691,3 +691,10 @@ JOKE_COMEDY_POWER_IS_MAGA_IS_TRUMP_IS_SURKOV
 https://old.reddit.com/r/WallStreetDad/comments/1rndyxf/hegseth_says_russia_assisting_iran_in_targeting/o960qvl/
 
 10 month Reddit account. Top-upvoted most popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT The messaging is programming Reddit audience with attitude is that brain rot of We The People isn't the problem, only election day. ELECTION_DAY_FIXATED_BRAIN_ROT_EVERY_DAY_FOX_NEWS_ETC and observe why isn't there a Reddit blackout protest RIGHT NOW? Today? Trump rose with social media and social media can't see the MAGA values all around. Pro-ignorance, anti-intellectual. Avoiding nonfiction books by Dr. Bandy X Lee, etc.
+
+https://old.reddit.com/r/politics/comments/1rnbwvv/epstein_files_south_carolina_woman_accused_trump/o96d24a/
+
+https://old.reddit.com/r/politics/comments/1rnbwvv/epstein_files_south_carolina_woman_accused_trump/o967xu2/
+
+"Trump Mind Virus" BILLIONAIRE_MIND_VIRUS
+
