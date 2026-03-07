@@ -683,3 +683,8 @@ OBSERVE_MEDIA_AVOIDANCE_OF_RELEVANT_NONFICTION Observe the many comments declari
 https://old.reddit.com/r/pics/comments/1rngsek/shopping_in_america_today/o96l22o/
 
 "cult"
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rnbsyu/the_files/o96ib7r/
+
+JOKE_COMEDY_POWER_IS_MAGA_IS_TRUMP_IS_SURKOV
+
