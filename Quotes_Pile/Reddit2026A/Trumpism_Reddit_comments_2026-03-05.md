@@ -735,3 +735,7 @@ https://old.reddit.com/r/Epstein/comments/1rnkwx0/epstein_claimed_the_kremlin_fu
 https://old.reddit.com/r/Epstein/comments/1rnkwx0/epstein_claimed_the_kremlin_funneled_100m_to/o97wiwr/
 
 MEDIA_ECOLOGY_OBSERVATION   
+
+https://old.reddit.com/r/Epstein/comments/1rnkwx0/epstein_claimed_the_kremlin_funneled_100m_to/o97l4cz/
+
+The ANTI_WIKI_ANTI_FAQ of social media since year 2013 has played a big role in the USA drive into fiction and mythology. People are far more engaged with commenting than they are organizing and asserting information priority information on critical same-page topics.
