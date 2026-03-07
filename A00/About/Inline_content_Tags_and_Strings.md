@@ -288,6 +288,7 @@ Topic_tags: pro_sneaks pro_manipulators anti_democracy gang_signals social_media
 
 FICTION_HARDER   
 NONSENSE_HARDER   
+YOU_MUST_HATE_EX_LOVERS    
 
 Social post { }   
 Surkov won   
