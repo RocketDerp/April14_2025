@@ -548,3 +548,10 @@ https://old.reddit.com/r/politics/comments/1rn9vyk/donald_trumps_presidency_is_i
 
 The anti-intellectual pro-ignorance meme-think Twitter-thinking has in no way stopped or reversed. MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL
 
+https://old.reddit.com/r/politics/comments/1rn9vyk/donald_trumps_presidency_is_in_free_fall/o954aao/
+
+3 month Reddit account.
+
+https://old.reddit.com/r/politics/comments/1rn9vyk/donald_trumps_presidency_is_in_free_fall/o9553dy/
+
+PREMATURE_CELEBRATION ...  ENTERTAINED_JUST_PASSIVELY_WATCHING_UNTIL_DEATH_NO_SOCIAL_MEDIA_UPRISING_WHILE_ALIVE   
