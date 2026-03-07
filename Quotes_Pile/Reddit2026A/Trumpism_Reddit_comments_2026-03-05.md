@@ -479,3 +479,18 @@ https://old.reddit.com/r/worldnews/comments/1rn7p22/trump_tells_cnn_cuba_is_soon
 LOLCOW milking. Neil Postman's 1985 book "Amusing Ourselves To Death" (about politics and Reddit). AMUSEMENT_COMEDY_WASHING_TRUMP_AS_FUNNY_MEDIA_SANEWASHING
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mghyrippxs2o https://autistics.life/@RoundSparrow/116188279816550347 }   
+
+https://old.reddit.com/r/worldnews/comments/1rn7p22/trump_tells_cnn_cuba_is_soon_going_to_fall_im/o951ipu/
+
+https://old.reddit.com/r/worldnews/comments/1rn7p22/trump_tells_cnn_cuba_is_soon_going_to_fall_im/o94w523/
+
+MAXIMUM_PUTINIZATION   
+
+https://old.reddit.com/r/worldnews/comments/1rn7p22/trump_tells_cnn_cuba_is_soon_going_to_fall_im/o94t7gk/
+
+24 day Reddit account. 
+
+https://old.reddit.com/r/worldnews/comments/1rn7p22/trump_tells_cnn_cuba_is_soon_going_to_fall_im/o94yeos/
+
+It is We the People on social machines like Reddit that keep making Trump a source of Internet humor. AMUSEMENT_COMEDY_WASHING_TRUMP_AS_FUNNY_MEDIA_SANEWASHING
+
