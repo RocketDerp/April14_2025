@@ -29,3 +29,5 @@ https://www.youtube.com/watch?v=xGqnfsGj4eM
 33,420 views March 6, 2026    
 The Scariest Book I've Read in Years | There Is No Antimemetics Division    
 
+U3125 is a metaphor    
+https://youtu.be/xGqnfsGj4eM?t=772    
