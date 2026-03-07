@@ -139,3 +139,11 @@ Just like many of the popular comments adults learn from on social machines. Tru
 https://old.reddit.com/r/PeterExplainsTheJoke/comments/1rmv4uw/peter_why_do_women_hug_us_above_the_shoulders/o92g3w2/
 
 MEDIA_ECOLOGY_OBSERVATION what's going on with these replies and bot claims?
+
+https://old.reddit.com/r/technology/comments/1rmyftp/helldivers_2_player_who_organised_a_charity/o931xn9/
+
+GAMERS_SIMULACRA
+
+https://old.reddit.com/r/technology/comments/1rmyftp/helldivers_2_player_who_organised_a_charity/o93wvzm/
+
+MEDIA_CULTS_ADDICTIVE_FICTION
