@@ -521,3 +521,7 @@ REMEDIAL_MORALITY lessons society-wide are clearly needed. People are attracted 
 https://old.reddit.com/r/Fauxmoi/comments/1rnb1it/country_singer_maren_morris_i_dont_have/o95fzep/
 
 FAITH_IN_HATE faith in anti-forgiveness. Anti MLK Jr. Anti-Malala - exactly what Trump leads with. HATE_VS_HATE
+
+https://old.reddit.com/r/Fauxmoi/comments/1rnb1it/country_singer_maren_morris_i_dont_have/o95hk5p/
+
+6 day Reddit account.
