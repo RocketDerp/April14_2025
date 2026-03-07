@@ -717,3 +717,7 @@ REMEMBER_THE_PROGRAM_IDEAS_BILLIONAIRES_FED_REDDIT_AUDIENCE
 https://old.reddit.com/r/SipsTea/comments/1rnmaw2/i_never_thought_a_day_would_come_that_i_would/o97qo66/
 
 Look at this EPSTEIN_FANDOM Reddit title. Generic clickbait Reddit user-created title, low-information upvoting to the front page /r/All. Epstein is trending topic, not removing Trump, not organizing a social media uprising of intellectual principals - but popularity of Epstein.
+
+https://old.reddit.com/r/SipsTea/comments/1rnmaw2/i_never_thought_a_day_would_come_that_i_would/o97r2h2/
+
+3 month Reddit account.
