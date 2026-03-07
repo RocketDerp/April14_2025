@@ -147,3 +147,7 @@ GAMERS_SIMULACRA
 https://old.reddit.com/r/technology/comments/1rmyftp/helldivers_2_player_who_organised_a_charity/o93wvzm/
 
 MEDIA_CULTS_ADDICTIVE_FICTION
+
+https://old.reddit.com/r/sports/comments/1rnhps9/olympic_champ_alysa_liu_withdraws_from_figure/o96ts08/
+
+2 month Reddit account.
