@@ -581,3 +581,13 @@ https://old.reddit.com/r/TikTokCringe/comments/1rnbdjz/combat_units_are_being_gi
 https://old.reddit.com/r/TikTokCringe/comments/1rnbdjz/combat_units_are_being_given_deployment_orders/o95i2yv/
 
 HIGH_SPEED_REACTIONARY_MINDSETS Reddit fandom is pro-war. Pro attacking Muslims, pro attacking Iran, anti-Malala. It's exactly this kind of amusement comedy that Putin has exploited with Surkov methods since year 2013. It's predictable mindsets at this point. People cannot resist being pro-hate and anti-MLK Jr.
+
+https://old.reddit.com/r/TikTokCringe/comments/1rnbdjz/combat_units_are_being_given_deployment_orders/o95kxcg/
+
+https://old.reddit.com/r/TikTokCringe/comments/1rnbdjz/combat_units_are_being_given_deployment_orders/o95q46k/
+
+2 month Reddit account. 
+
+https://old.reddit.com/r/TikTokCringe/comments/1rnbdjz/combat_units_are_being_given_deployment_orders/o95nwk5/
+
+10 day Reddit account.
