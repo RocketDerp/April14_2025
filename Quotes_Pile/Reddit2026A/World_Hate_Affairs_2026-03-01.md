@@ -665,3 +665,7 @@ https://old.reddit.com/r/Fauxmoi/comments/1rnfndc/northern_irish_comedian_vittor
 https://old.reddit.com/r/Fauxmoi/comments/1rnfndc/northern_irish_comedian_vittorio_angelone_to/o96o3ss/
 
 CONCERNS_OF_FINNEGANS 
+
+https://old.reddit.com/r/SipsTea/comments/1rnct8m/tough_guy/o966koj/
+
+Top-upvoted most popular comment. JOKE_COMEDY_POWER_IS_MAGA_IS_TRUMP_IS_SURKOV
