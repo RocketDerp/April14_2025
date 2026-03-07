@@ -659,3 +659,8 @@ SYMBOLISM_GUMBO
 https://old.reddit.com/r/pics/comments/1rngsek/shopping_in_america_today/o96kizz/
 
 SYMBOLISM_INVERSION_MANIPULATION on the meaning of the snake, Trumpism is NYC land lord worship. 
+
+https://old.reddit.com/r/pics/comments/1rngsek/shopping_in_america_today/o96nzhy/
+
+MAGA was the one laughing and mocking science all along. More mocking isn't the answer, that is all people have been doing since year 2013. REPUBLICANS_LEAD_WITH_IGNORANCE_IDEAS_AND_FOLLOWERS_REPLY_WITH_IGNORANCE
+
