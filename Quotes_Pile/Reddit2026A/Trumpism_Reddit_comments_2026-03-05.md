@@ -595,3 +595,11 @@ https://old.reddit.com/r/TikTokCringe/comments/1rnbdjz/combat_units_are_being_gi
 https://old.reddit.com/r/news/comments/1rncqs7/footage_shows_us_citizen_shot_by_ice_agent_in/o95pw8o/
 
 MASS_PSYCHOSIS_ABOUNDS   SAFE_DANGER_IN_2017_NONFICTION_BOOK_TITLE
+
+https://old.reddit.com/r/news/comments/1rncqs7/footage_shows_us_citizen_shot_by_ice_agent_in/o95q9ue/
+
+MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL
+
+https://old.reddit.com/r/news/comments/1rncqs7/footage_shows_us_citizen_shot_by_ice_agent_in/o9610wv/
+
+MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL Magical thinking. People read one sentence on a Reddit comment and start making wild claims. Highly reactionary mindsets and no self-awareness at the Marshall McLuhan and Neil Postman levels of understanding Reddit media and new reporting media. 
