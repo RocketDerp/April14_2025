@@ -494,3 +494,7 @@ https://old.reddit.com/r/worldnews/comments/1rn7p22/trump_tells_cnn_cuba_is_soon
 
 It is We the People on social machines like Reddit that keep making Trump a source of Internet humor. AMUSEMENT_COMEDY_WASHING_TRUMP_AS_FUNNY_MEDIA_SANEWASHING
 
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rn6fz4/how_does_anyone_still_listen_to_this_guy/o94p8vn/
+
+DENIAL_ABOUNDS "this is all they have", complete denial of Russia's information warfare. Hurricane topics, hate for Mexicans. https://www.FastCompany.com/91215986/russia-hurricane-helene-milton-disinformation-disaster-relief-fema
+
