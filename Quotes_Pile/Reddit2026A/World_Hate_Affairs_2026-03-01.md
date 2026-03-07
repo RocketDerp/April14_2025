@@ -657,3 +657,11 @@ https://old.reddit.com/r/AskSocialists/comments/1rmjlpg/old_men_want_war/o8zy28n
 1 month Reddit account. Most-popular upvoted comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
 
 Social post { https://autistics.life/@RoundSparrow/116184252577183217 https://bsky.app/profile/roundsparrow.bsky.social/post/3mgg7lcgd7c2x }   
+
+https://old.reddit.com/r/Fauxmoi/comments/1rnfndc/northern_irish_comedian_vittorio_angelone_to/o96bojm/
+
+4 month Reddit account. Most-popular upvoted comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+
+https://old.reddit.com/r/Fauxmoi/comments/1rnfndc/northern_irish_comedian_vittorio_angelone_to/o96o3ss/
+
+CONCERNS_OF_FINNEGANS 
