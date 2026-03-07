@@ -708,3 +708,6 @@ https://old.reddit.com/r/Fauxmoi/comments/1rnia3u/donald_trump_speaking_in_front
 
 7 month Reddit account. Top-upvoted most popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT Claiming "nothing happens" when the TRUMP_FANDOM on Reddit puts it on the front page of /r/All that is the consequence to Trump leading with hate. The followers. FOLLOWERS_OF_LEADER_TRUMP_ACTOR_ENTERTAINER_DONALD_TRUMP_FOLLOWERS People on Reddit aren't resisting ignorance and media addiction, they are mocking back at Donald Trump.
 
+https://old.reddit.com/r/Fauxmoi/comments/1rnia3u/donald_trump_speaking_in_front_of_latin_american/o96y9y5/
+
+22 day Reddit account. Describing SURKOV_WARFARE and Surkov governing. People on Reddit eat up the paradox patterns, blow their minds into predictable reactionary patterns.
