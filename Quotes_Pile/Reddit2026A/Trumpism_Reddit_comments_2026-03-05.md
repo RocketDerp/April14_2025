@@ -544,4 +544,7 @@ https://old.reddit.com/r/politics/comments/1rn9vyk/donald_trumps_presidency_is_i
 
 REHUMANIZE_WE_THE_PEOPLE_LITTLE_GUYS - yes. People on social media do not show self-awareness of We The People not having an intellectual rescue. People have been in feedback loops with Trump and MAGA over who can mock harder. FEEDBACK_LOOP_MEDIA_CULTS_PLATFORM_TO_PLATFORM_MOCKERY_USA observe the avoidance of Dr. Bandy X. Lee and Jen Senko as leaders. Why is it intellectual thoughtful honest people like Jen Senko and Dr. Lee are not followed and promoted?
 
+https://old.reddit.com/r/politics/comments/1rn9vyk/donald_trumps_presidency_is_in_free_fall/o95fw5z/
+
+The anti-intellectual pro-ignorance meme-think Twitter-thinking has in no way stopped or reversed. MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL
 
