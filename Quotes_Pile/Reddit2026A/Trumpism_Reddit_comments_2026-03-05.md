@@ -498,3 +498,6 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1rn6fz4/how_does_anyone_sti
 
 DENIAL_ABOUNDS "this is all they have", complete denial of Russia's information warfare. Hurricane topics, hate for Mexicans. https://www.FastCompany.com/91215986/russia-hurricane-helene-milton-disinformation-disaster-relief-fema
 
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rn6fz4/how_does_anyone_still_listen_to_this_guy/o957ier/
+
+MEDIA_CULTS_FICTION_FANDOM_MEDIA_POWER
