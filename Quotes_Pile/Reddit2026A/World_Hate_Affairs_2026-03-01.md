@@ -669,3 +669,7 @@ CONCERNS_OF_FINNEGANS
 https://old.reddit.com/r/SipsTea/comments/1rnct8m/tough_guy/o966koj/
 
 Top-upvoted most popular comment. JOKE_COMEDY_POWER_IS_MAGA_IS_TRUMP_IS_SURKOV
+
+https://old.reddit.com/r/SipsTea/comments/1rnct8m/tough_guy/o96s685/
+
+Egomania is what Musk, Trump, Murdoch, Putin lead with and so many followers. HYPER_SIMPLE_TRIVIALIZE_BANAL_SELF_ONLY_CONCERN
