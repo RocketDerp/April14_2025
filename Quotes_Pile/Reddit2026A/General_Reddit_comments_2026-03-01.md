@@ -151,3 +151,7 @@ MEDIA_CULTS_ADDICTIVE_FICTION
 https://old.reddit.com/r/sports/comments/1rnhps9/olympic_champ_alysa_liu_withdraws_from_figure/o96ts08/
 
 2 month Reddit account.
+
+https://old.reddit.com/r/Adulting/comments/1robcry/genuine_question/o9cru7n/
+
+top most upvoted popular comment. CIVIC_DUTY_WE_PEOPLE abandonment of reality and nonfiction in favor of X-Files.
