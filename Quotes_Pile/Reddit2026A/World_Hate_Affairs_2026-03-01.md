@@ -835,3 +835,8 @@ https://old.reddit.com/r/Damnthatsinteresting/comments/1robsq8/iranian_journalis
 9 month Reddit account. Top-upvoted popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT 140 characters or less reaction commenting.
 
 https://old.reddit.com/r/Damnthatsinteresting/comments/1robsq8/iranian_journalist_reports_in_front_of_the_flames/o9cqpfv/
+
+https://old.reddit.com/r/AskSocialists/comments/1ro9y1b/iran_just_dropped_a_lego_style_animation_about/o9cer3w/
+
+Top-most upvoted popular comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING the entertainment amusement of Lego toys and animated videos. AMUSING_ZOMBIES as long as it is thrilling visuals. Like South Park values USA.
+
