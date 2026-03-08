@@ -810,3 +810,12 @@ WAKE_WOKE TREND_CHASING_MEDIA_TRENDING This comment gets to the core of the DENI
 
 NEW_OPERA_NAME #AlwaysBeenThis   
 Social post { https://autistics.life/@RoundSparrow/116194695757766034 https://bsky.app/profile/roundsparrow.bsky.social/post/3mgktxq4lic2l }     
+
+https://old.reddit.com/r/politics/comments/1ro3fta/americans_arent_facing_a_democratic_collapse_were/o9bivd5/
+
+<img width="1253" height="852" alt="image" src="https://github.com/user-attachments/assets/f9eec2b8-b65a-4bd7-b585-67db597d218d" />
+
+WAR_AGAINST_REALITY lost. SAFE_DANGER_IN_2017_NONFICTION_BOOK_TITLE Danger is right in the title of the October 3, 2017 nonfiction book that everyone is avoiding. People behave as if all this is shocking in year 2026.
+
+NEW_OPERA_NAME #BlindsidedBy    
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mgkujquwys2j https://autistics.life/@RoundSparrow/116194730407245354 }    
