@@ -793,3 +793,7 @@ https://old.reddit.com/r/worldnews/comments/1ro51og/denmark_warns_of_interferenc
 https://old.reddit.com/r/worldnews/comments/1ro51og/denmark_warns_of_interference_from_russia_us_in/o9c1tl9/
 
 The Twitter-thinking reaction commenting mindsets are right in the open. The brain rot welcomed and embraced. THE_HIGH_ROAD_IS_DR_BANDY_X_LEE_QUOTING_REPEATING
+
+https://old.reddit.com/r/interestingasfuck/comments/1ro9tmo/black_rain_has_fallen_over_tehran_after_strikes/o9ce7e0/
+
+Top-most upvoted comment is pro-intellectual! IMPORTANT_QUOTES_A
