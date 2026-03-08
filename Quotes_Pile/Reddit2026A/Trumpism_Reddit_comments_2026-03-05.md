@@ -902,3 +902,7 @@ Rare for a top-upvoted most popular comment. Directions to read more.
 https://old.reddit.com/r/news/comments/1rogmf2/new_york_city_police_identify_device_outside/o9e5x1h/
 
 MEDIA_ECOLOGY_OBSERVATION   
+
+https://old.reddit.com/r/pics/comments/1rogl30/priorities_of_gop_grassroots/o9dqm3h/
+
+Top most upvoted popular comment. This comment isn't resisting mocking and ignorance. It is a simulation of resisting, not resisting. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
