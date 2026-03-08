@@ -153,3 +153,7 @@ https://old.reddit.com/r/politics/comments/1rmh6ld/donald_trump_impeachment_odds
 https://old.reddit.com/r/pics/comments/1rofcl5/as_war_rages_in_the_middle_east_gas_prices/o9dgsk9/
 
 Top-upvoted most popular comment. This isn't resisting, this is Truth Social reaction-commenting. This is media engagement, a fandom of Trump images that prizes mockery leadership. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING Observe again the avoidance of asserting non-fiction leadership from Jen Senko and Dr. Bandy X Lee. This is a right-wing media event, golf, and Reddit is the media consumers of the right-wing media. Cult of Trump images and messages.
+
+https://old.reddit.com/r/pics/comments/1rofcl5/as_war_rages_in_the_middle_east_gas_prices/o9diwca/
+
+2nd most upvoted popular comment. Pro-hate, mind-blown by hate. Simplistic commenting, predictable mindset. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING Reddit community is a hate-watching fandom that follows the Trump images and pushes them again and again to /r/All front page. ATTRACTION_TO_HATE_LEADERS_HATE_FOLLOWERS
