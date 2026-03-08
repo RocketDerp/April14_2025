@@ -783,3 +783,7 @@ Surkov won since year 2013. Top-upvoted popular comment, not resisting in any wa
 https://old.reddit.com/r/nottheonion/comments/1ro5nmw/hegseth_declares_i_only_speak_american_to_room/o9bfqoi/
 
 2nd most popular upvoted comment. 3 words. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
+
+https://old.reddit.com/r/politics/comments/1ro3fta/americans_arent_facing_a_democratic_collapse_were/o9b2z5s/
+
+Top-upvoted popular comment, not resisting in any way. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING and CONCERNS_OF_FINNEGANS
