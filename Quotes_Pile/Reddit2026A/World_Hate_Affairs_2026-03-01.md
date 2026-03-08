@@ -771,3 +771,9 @@ FICTION_NONFICTION Fiction vs. Nonfiction. Iran was run with Quran science ficti
 https://old.reddit.com/r/worldnews/comments/1ro51og/denmark_warns_of_interference_from_russia_us_in/o9bz3ay/
 
 2 month Reddit account.
+
+https://old.reddit.com/r/worldnews/comments/1ro51og/denmark_warns_of_interference_from_russia_us_in/o9bxr6a/
+
+https://old.reddit.com/r/worldnews/comments/1ro51og/denmark_warns_of_interference_from_russia_us_in/o9blzqm/
+
+24 day Reddit account.
