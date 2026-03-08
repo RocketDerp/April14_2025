@@ -759,3 +759,7 @@ https://old.reddit.com/r/law/comments/1rno2zn/milwaukee_radio_host_dan_odonnell_
 https://old.reddit.com/r/law/comments/1rno2zn/milwaukee_radio_host_dan_odonnell_posts_call_to/o982lth/
 
 https://old.reddit.com/r/law/comments/1rno2zn/milwaukee_radio_host_dan_odonnell_posts_call_to/o982eye/
+
+https://old.reddit.com/r/Fauxmoi/comments/1rnnyj3/trump_now_claims_that_the_bombing_of_a_school_in/o983lr1/
+
+8 month Reddit account. Top-upvoted most popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
