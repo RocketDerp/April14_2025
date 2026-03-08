@@ -771,3 +771,7 @@ https://old.reddit.com/r/Fauxmoi/comments/1rnnyj3/trump_now_claims_that_the_bomb
 https://old.reddit.com/r/Fauxmoi/comments/1rnnyj3/trump_now_claims_that_the_bombing_of_a_school_in/o984cuv/
 
 Why are people on social media not promoting and quoting Dr. Bandy X Lee? If you believe Trump is telling lies all the time, it is dangerous. SAFE_DANGER_IN_2017_NONFICTION_BOOK_TITLE
+
+https://old.reddit.com/r/Fauxmoi/comments/1rnnyj3/trump_now_claims_that_the_bombing_of_a_school_in/o983yhk/
+
+AVOIDED_DR_BANDY_X_LEE_PUBLIC_WRITINGS
