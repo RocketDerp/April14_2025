@@ -787,3 +787,11 @@ https://old.reddit.com/r/nottheonion/comments/1ro5nmw/hegseth_declares_i_only_sp
 https://old.reddit.com/r/politics/comments/1ro3fta/americans_arent_facing_a_democratic_collapse_were/o9b2z5s/
 
 Top-upvoted popular comment, not resisting in any way. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING and CONCERNS_OF_FINNEGANS
+
+https://old.reddit.com/r/politics/comments/1ro3fta/americans_arent_facing_a_democratic_collapse_were/o9bxa6e/
+
+https://old.reddit.com/r/politics/comments/1ro3fta/americans_arent_facing_a_democratic_collapse_were/o9c4rrv/
+
+MEDIA_ECOLOGY_OBSERVATION and also... fiction outsells nonfiction. Humanity never did Finnegans Wake, religion mythology. Hollywood is the monomyth seller. Sports games in rectangles are billionaire team owners sports-washing.
+
+
