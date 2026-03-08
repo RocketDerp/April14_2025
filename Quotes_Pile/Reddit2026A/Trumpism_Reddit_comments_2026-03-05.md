@@ -767,3 +767,7 @@ https://old.reddit.com/r/Fauxmoi/comments/1rnnyj3/trump_now_claims_that_the_bomb
 https://old.reddit.com/r/Fauxmoi/comments/1rnnyj3/trump_now_claims_that_the_bombing_of_a_school_in/o983ufb/
 
 7 month Reddit account. 2nd most popular upvoted comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+
+https://old.reddit.com/r/Fauxmoi/comments/1rnnyj3/trump_now_claims_that_the_bombing_of_a_school_in/o984cuv/
+
+Why are people on social media not promoting and quoting Dr. Bandy X Lee? If you believe Trump is telling lies all the time, it is dangerous. SAFE_DANGER_IN_2017_NONFICTION_BOOK_TITLE
