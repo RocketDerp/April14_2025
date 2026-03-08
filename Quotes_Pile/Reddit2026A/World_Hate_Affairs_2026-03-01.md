@@ -859,3 +859,7 @@ REMEDIAL_MORALITY is essential teaching to all adults, everyone over age 12. BRA
 https://old.reddit.com/r/AskSocialists/comments/1ro9y1b/iran_just_dropped_a_lego_style_animation_about/o9ceuke/
 
 MEDIA_WOKE - media addiction to fiction storytelling and hyper reality, WHHR, is core Trump MAGA values.
+
+https://old.reddit.com/r/worldnews/comments/1roey29/tehran_indicates_khameneis_son_will_be_named/o9de94t/
+
+Top most-upvoted popular comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
