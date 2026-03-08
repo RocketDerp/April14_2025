@@ -846,3 +846,7 @@ And We The People, Americans, are commenting and posting Trump's photograph over
 https://old.reddit.com/r/law/comments/1ro9nlj/trump_says_he_wont_sign_any_bills_into_law_until/o9chhaf/
 
 Yes. FAITH_IN_LEGAL people keep having when the issue is corrupted mindsets. Doctors of Cambridge Analytica have manipulated minds into self-harm and attraction to badness. This is about creating more nonsense and anti-goodness. More hate blowing out minds. ELECTION_DAY_FIXATED_BRAIN_ROT_EVERY_DAY_FOX_NEWS_ETC
+
+https://old.reddit.com/r/SipsTea/comments/1ro3y5a/just_usa_things/o9bb4i9/
+
+JANUARY_1944_SECOND_BILL_OF_RIGHTS topic for the whole posting ignored. SEE_ALSO https://github.com/RocketDerp/April14_2025/blob/main/PostMalala/Stress/Red_Tape_Stress.md
