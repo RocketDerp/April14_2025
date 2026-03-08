@@ -838,3 +838,8 @@ MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL
 https://old.reddit.com/r/law/comments/1ro9nlj/trump_says_he_wont_sign_any_bills_into_law_until/o9camx1/
 
 Top-upvoted most popular comment. Trump entertaining Reddit commenting fandom. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
+
+https://old.reddit.com/r/law/comments/1ro9nlj/trump_says_he_wont_sign_any_bills_into_law_until/o9cdmbj/
+
+And We The People, Americans, are commenting and posting Trump's photograph over and over in cult addiction to mocking. Trump leads with mocking, fandom follows the leaders. FOLLOWERS_OF_LEADER_TRUMP_ACTOR_ENTERTAINER_DONALD_TRUMP_FOLLOWERS Observe the avoidance of relevant serious nonfiction from Jen Senko, Dr. bandy X Lee, etc.
+
