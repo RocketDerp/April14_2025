@@ -819,3 +819,5 @@ DENIAL_ABOUNDS "future of the world", this is reality real.
 https://old.reddit.com/r/interestingasfuck/comments/1ro9tmo/black_rain_has_fallen_over_tehran_after_strikes/o9ckeic/
 
 We The People of the world have avoided THE_1954_EQUATION 
+
+https://old.reddit.com/r/interestingasfuck/comments/1ro9tmo/black_rain_has_fallen_over_tehran_after_strikes/o9cs7yd/
