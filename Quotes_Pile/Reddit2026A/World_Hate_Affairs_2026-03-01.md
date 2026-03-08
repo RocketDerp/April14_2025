@@ -721,3 +721,7 @@ PREDICTION_A
 https://old.reddit.com/r/pics/comments/1rnkwwc/us_israeli_atrocities_165_school_girls_killed/o97i77z/
 
 HATE_VS_HATE FAITH_IN_HATE   
+
+https://old.reddit.com/r/interestingasfuck/comments/1rnztnw/lran_has_the_highest_female_to_male_ratio_in/o9ah2e1/
+
+Yes. My experience too with the women in the Arab Spring. ARAB_SPRING_2010 https://www.nytimes.com/2007/05/26/world/africa/26algeria.html
