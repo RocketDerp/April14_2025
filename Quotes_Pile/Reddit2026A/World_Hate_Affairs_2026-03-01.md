@@ -863,3 +863,7 @@ MEDIA_WOKE - media addiction to fiction storytelling and hyper reality, WHHR, is
 https://old.reddit.com/r/worldnews/comments/1roey29/tehran_indicates_khameneis_son_will_be_named/o9de94t/
 
 Top most-upvoted popular comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
+
+https://old.reddit.com/r/worldnews/comments/1roey29/tehran_indicates_khameneis_son_will_be_named/o9dg19d/
+
+PREDICTION_A
