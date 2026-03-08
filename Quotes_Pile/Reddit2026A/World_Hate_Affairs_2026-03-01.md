@@ -811,3 +811,7 @@ https://old.reddit.com/r/interestingasfuck/comments/1ro9tmo/black_rain_has_falle
 https://old.reddit.com/r/interestingasfuck/comments/1ro9tmo/black_rain_has_fallen_over_tehran_after_strikes/o9cju2g/
 
 Heaven awaits after death. Sunday Bible science fiction planet Eden awaits. Quran believers in Iran have very similar promises of how life on Earth is not important, Heaven is.
+
+https://old.reddit.com/r/interestingasfuck/comments/1ro9tmo/black_rain_has_fallen_over_tehran_after_strikes/o9ckxbe/
+
+DENIAL_ABOUNDS "future of the world", this is reality real.
