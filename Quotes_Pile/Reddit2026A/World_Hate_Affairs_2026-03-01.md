@@ -829,3 +829,7 @@ https://old.reddit.com/r/memes/comments/1ro7gmc/its_like_a_fictional_concept_now
 https://old.reddit.com/r/memes/comments/1ro7gmc/its_like_a_fictional_concept_now/o9c3zjx/
 
 GIVE_UP_SURRENDER love isn't important, just having a technology device is.
+
+https://old.reddit.com/r/Damnthatsinteresting/comments/1robsq8/iranian_journalist_reports_in_front_of_the_flames/o9cr68f/
+
+9 month Reddit account. Top-upvoted popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT 140 characters or less reaction commenting.
