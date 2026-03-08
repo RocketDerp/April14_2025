@@ -815,3 +815,7 @@ Heaven awaits after death. Sunday Bible science fiction planet Eden awaits. Qura
 https://old.reddit.com/r/interestingasfuck/comments/1ro9tmo/black_rain_has_fallen_over_tehran_after_strikes/o9ckxbe/
 
 DENIAL_ABOUNDS "future of the world", this is reality real.
+
+https://old.reddit.com/r/interestingasfuck/comments/1ro9tmo/black_rain_has_fallen_over_tehran_after_strikes/o9ckeic/
+
+We The People of the world have avoided THE_1954_EQUATION 
