@@ -870,3 +870,11 @@ AVOIDED_DR_BANDY_X_LEE_PUBLIC_WRITINGS - observe the avoidance of asserting and 
 https://old.reddit.com/r/Gamingcirclejerk/comments/1ro322l/asmongolds_double_standards/o9bcen1/
 
 Lifetime forever blocking and dehumanizing people. Machine-thinking logic. TARNISHED_BRAND_FOREVER_PERMANENT_BLOCK Anti-compassion anti-forgiveness anti-progress.
+
+https://old.reddit.com/r/Gamingcirclejerk/comments/1ro322l/asmongolds_double_standards/o9bhw3w/
+
+MEDIA_ECOLOGY_OBSERVATION 
+
+https://old.reddit.com/r/Gamingcirclejerk/comments/1ro322l/asmongolds_double_standards/o9cxbn5/
+
+MEDIA_WOKE It's like people believe Donald Trump's hate is enjoyable. That war and hate are actually authentic fun.
