@@ -894,3 +894,7 @@ DEFLECTION_FROM_BILLIONAIRES_AND_PUTINISM people don't take the topic of adults 
 https://old.reddit.com/r/Gamingcirclejerk/comments/1ro322l/asmongolds_double_standards/o9blo49/
 
 Same as TRUMP_FANDOM - people want a very low bar of leadership measure. This Reddit comment is describing SOCIAL_CULT_HATE_WATCHING_FANDOM that Reddit itself prizes and makes center of attention, Trump Family. Media addiction to mockery and anti-intellectual mental input.
+
+https://old.reddit.com/r/news/comments/1rogmf2/new_york_city_police_identify_device_outside/o9dsej0/
+
+Rare for a top-upvoted most popular comment. Directions to read more.
