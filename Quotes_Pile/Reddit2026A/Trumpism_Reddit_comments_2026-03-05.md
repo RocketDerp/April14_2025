@@ -798,3 +798,6 @@ https://old.reddit.com/r/politics/comments/1ro3fta/americans_arent_facing_a_demo
 
 Reddit is a corporation. Reddit is Corporate America values. RESISTING_WHAT_EXACTLY   
 
+https://old.reddit.com/r/politics/comments/1ro3fta/americans_arent_facing_a_democratic_collapse_were/o9bkvk5/
+
+UNITED_IN_BLAMING_ONE_THIRD_HATE_VS_HATE_ANTI_RESCUE - the abandonment of relevant nonfiction from Jen Senko and Dr. Bandy X Lee is not just 1/3. It is all of Bluesky and Reddit and society in total.
