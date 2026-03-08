@@ -801,3 +801,12 @@ Reddit is a corporation. Reddit is Corporate America values. RESISTING_WHAT_EXAC
 https://old.reddit.com/r/politics/comments/1ro3fta/americans_arent_facing_a_democratic_collapse_were/o9bkvk5/
 
 UNITED_IN_BLAMING_ONE_THIRD_HATE_VS_HATE_ANTI_RESCUE - the abandonment of relevant nonfiction from Jen Senko and Dr. Bandy X Lee is not just 1/3. It is all of Bluesky and Reddit and society in total.
+
+https://old.reddit.com/r/politics/comments/1ro3fta/americans_arent_facing_a_democratic_collapse_were/o9b8lfw/
+
+<img width="1053" height="788" alt="image" src="https://github.com/user-attachments/assets/d9fd52f5-574a-413c-be96-bee4594f41a2" />
+
+WAKE_WOKE TREND_CHASING_MEDIA_TRENDING This comment gets to the core of the DENIAL_ABOUNDS about how drastic the change was with the Saint Petersburg Internet Research Agency and Cambridge Analytica SINCE_MARCH_2013 and how obvious it became June 16, 2015. MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL
+
+NEW_OPERA_NAME #AlwaysBeenThis   
+Social post { https://autistics.life/@RoundSparrow/116194695757766034 https://bsky.app/profile/roundsparrow.bsky.social/post/3mgktxq4lic2l }     
