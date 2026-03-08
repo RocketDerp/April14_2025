@@ -775,3 +775,7 @@ Why are people on social media not promoting and quoting Dr. Bandy X Lee? If you
 https://old.reddit.com/r/Fauxmoi/comments/1rnnyj3/trump_now_claims_that_the_bombing_of_a_school_in/o983yhk/
 
 AVOIDED_DR_BANDY_X_LEE_PUBLIC_WRITINGS
+
+https://old.reddit.com/r/nottheonion/comments/1ro5nmw/hegseth_declares_i_only_speak_american_to_room/o9bg3fg/
+
+Surkov won since year 2013. Top-upvoted popular comment, not resisting in any way. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING and CONCERNS_OF_FINNEGANS
