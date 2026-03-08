@@ -898,3 +898,7 @@ Same as TRUMP_FANDOM - people want a very low bar of leadership measure. This Re
 https://old.reddit.com/r/news/comments/1rogmf2/new_york_city_police_identify_device_outside/o9dsej0/
 
 Rare for a top-upvoted most popular comment. Directions to read more.
+
+https://old.reddit.com/r/news/comments/1rogmf2/new_york_city_police_identify_device_outside/o9e5x1h/
+
+MEDIA_ECOLOGY_OBSERVATION   
