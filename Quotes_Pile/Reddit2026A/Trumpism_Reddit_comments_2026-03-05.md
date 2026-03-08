@@ -850,3 +850,7 @@ Yes. FAITH_IN_LEGAL people keep having when the issue is corrupted mindsets. Doc
 https://old.reddit.com/r/SipsTea/comments/1ro3y5a/just_usa_things/o9bb4i9/
 
 JANUARY_1944_SECOND_BILL_OF_RIGHTS topic for the whole posting ignored. SEE_ALSO https://github.com/RocketDerp/April14_2025/blob/main/PostMalala/Stress/Red_Tape_Stress.md
+
+https://old.reddit.com/r/Gamingcirclejerk/comments/1ro322l/asmongolds_double_standards/o9bnc4g/
+
+BRAIN_ROT_SOCIETY_47 people recognize the entire USA ship is sinking, falling tide lowers all boats. Alas, people do not want to see the multiple NATO nations reporting the Saint Petersburg Internet Research Agency since year 2013. Brain rot is a society-wide crisis that requires intellectual education and teaching. The avoidance of Jen Senko and Dr. Bandy X Lee by social media users is a symptom of this widespread brain rot and anti-intellectual avoidance of adult serious nonfiction books on paper.
