@@ -777,3 +777,9 @@ https://old.reddit.com/r/worldnews/comments/1ro51og/denmark_warns_of_interferenc
 https://old.reddit.com/r/worldnews/comments/1ro51og/denmark_warns_of_interference_from_russia_us_in/o9blzqm/
 
 24 day Reddit account.
+
+https://old.reddit.com/r/worldnews/comments/1ro51og/denmark_warns_of_interference_from_russia_us_in/o9bo663/
+
+https://old.reddit.com/r/worldnews/comments/1ro51og/denmark_warns_of_interference_from_russia_us_in/o9bufqa/
+
+Pro-ignorance Twitter-thinking meme-think is MAGA Trumpism and people don't even realize it all across the world. Surkov won since March 2013. Runaway ignorance is a  threat to all humanity.
