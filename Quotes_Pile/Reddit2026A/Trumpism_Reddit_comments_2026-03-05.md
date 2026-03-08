@@ -878,3 +878,11 @@ MEDIA_ECOLOGY_OBSERVATION
 https://old.reddit.com/r/Gamingcirclejerk/comments/1ro322l/asmongolds_double_standards/o9cxbn5/
 
 MEDIA_WOKE It's like people believe Donald Trump's hate is enjoyable. That war and hate are actually authentic fun.
+
+https://old.reddit.com/r/Gamingcirclejerk/comments/1ro322l/asmongolds_double_standards/o9bou3z/
+
+3 month Reddit account. Pro-ignorance is sinking the entire USA.
+
+https://old.reddit.com/r/Gamingcirclejerk/comments/1ro322l/asmongolds_double_standards/o9bfb7r/
+
+LOW_PRODUCTION_VALUES_MAGA_FANDOM superficial and shallow. By this thinking logic, Donald Trump having gold plating all over "on the outside" can't be exploited. Wearing a business suit. SEE_ALSO https://www.BBC.com/news/articles/c1d4r9yvqzpo
