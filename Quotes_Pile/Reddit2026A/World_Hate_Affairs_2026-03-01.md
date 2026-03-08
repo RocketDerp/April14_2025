@@ -759,3 +759,7 @@ https://old.reddit.com/r/worldnews/comments/1ro51og/denmark_warns_of_interferenc
 https://old.reddit.com/r/worldnews/comments/1ro51og/denmark_warns_of_interference_from_russia_us_in/o9bo5hh/
 
 10 month Reddit account.
+
+https://old.reddit.com/r/worldnews/comments/1ro51og/denmark_warns_of_interference_from_russia_us_in/o9bg2wd/
+
+We The People have ignored and avoided THE_1954_EQUATION from Martin Luther King Jr. https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Martin_Luther_King_Jr_quotes0.md
