@@ -743,3 +743,7 @@ Why is Reddit media community not protesting? ANSWER: Cracking jokes is the powe
 https://old.reddit.com/r/PublicFreakout/comments/1rnvw1n/oil_is_reportedly_flowing_into_the_sewers_as/o99pr04/
 
 How can you see comment after comment on Bluesky and Reddit and not notice the absence of calls for mental health workers to do cult deprogramming of MAGA? So many people spending their free time and spare time avoiding nonfiction serious relevant books. AVOIDED_DR_BANDY_X_LEE_PUBLIC_WRITINGS
+
+https://old.reddit.com/r/worldnews/comments/1ro51og/denmark_warns_of_interference_from_russia_us_in/o9bbjgr/
+
+WHITE_HOUSE_REALITY_WARFARE_FICTION_AVOIDING_NONFICTION_ON_WARFARE observe the top most upvoted comment on Reddit is again avoiding relevant nonfiction. As does the news reporting. People are not intellectually resisting with intellectual education, they are doing as they have since year 2013 - reaction commenting. Surkov won.
