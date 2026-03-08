@@ -855,3 +855,7 @@ https://old.reddit.com/r/AskSocialists/comments/1ro9y1b/iran_just_dropped_a_lego
 https://old.reddit.com/r/AskSocialists/comments/1ro9y1b/iran_just_dropped_a_lego_style_animation_about/o9cx6g2/
 
 REMEDIAL_MORALITY is essential teaching to all adults, everyone over age 12. BRAIN_ROT_SOCIETY_47 
+
+https://old.reddit.com/r/AskSocialists/comments/1ro9y1b/iran_just_dropped_a_lego_style_animation_about/o9ceuke/
+
+MEDIA_WOKE - media addiction to fiction storytelling and hyper reality, WHHR, is core Trump MAGA values.
