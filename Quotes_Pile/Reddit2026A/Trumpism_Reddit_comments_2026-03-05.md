@@ -819,3 +819,14 @@ WAR_AGAINST_REALITY lost. SAFE_DANGER_IN_2017_NONFICTION_BOOK_TITLE Danger is ri
 
 NEW_OPERA_NAME #BlindsidedBy    
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mgkujquwys2j https://autistics.life/@RoundSparrow/116194730407245354 }    
+
+https://old.reddit.com/r/politics/comments/1ro3fta/americans_arent_facing_a_democratic_collapse_were/o9bth4d/
+
+<img width="1262" height="973" alt="image" src="https://github.com/user-attachments/assets/ec800c78-93ab-4475-ba66-0eb84e6fa053" />
+
+REHUMANIZE_WE_THE_PEOPLE_LITTLE_GUYS We The People are an audience now, commenting away and avoiding serious nonfiction adult education and learning.
+
+NEW_OPERA_NAME #CeremonialNow   
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mgkuz65x4k2u https://autistics.life/@RoundSparrow/116194770983223089 }    
+
+https://old.reddit.com/r/politics/comments/1ro3fta/americans_arent_facing_a_democratic_collapse_were/o9bxylq/
