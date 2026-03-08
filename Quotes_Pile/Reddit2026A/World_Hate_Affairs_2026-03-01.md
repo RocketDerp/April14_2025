@@ -783,3 +783,13 @@ https://old.reddit.com/r/worldnews/comments/1ro51og/denmark_warns_of_interferenc
 https://old.reddit.com/r/worldnews/comments/1ro51og/denmark_warns_of_interference_from_russia_us_in/o9bufqa/
 
 Pro-ignorance Twitter-thinking meme-think is MAGA Trumpism and people don't even realize it all across the world. Surkov won since March 2013. Runaway ignorance is a  threat to all humanity.
+
+https://old.reddit.com/r/worldnews/comments/1ro51og/denmark_warns_of_interference_from_russia_us_in/o9bwtju/
+
+https://old.reddit.com/r/worldnews/comments/1ro51og/denmark_warns_of_interference_from_russia_us_in/o9c1qpr/
+
+3 month Reddit account.
+
+https://old.reddit.com/r/worldnews/comments/1ro51og/denmark_warns_of_interference_from_russia_us_in/o9c1tl9/
+
+The Twitter-thinking reaction commenting mindsets are right in the open. The brain rot welcomed and embraced. THE_HIGH_ROAD_IS_DR_BANDY_X_LEE_QUOTING_REPEATING
