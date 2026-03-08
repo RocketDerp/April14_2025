@@ -747,3 +747,8 @@ How can you see comment after comment on Bluesky and Reddit and not notice the a
 https://old.reddit.com/r/worldnews/comments/1ro51og/denmark_warns_of_interference_from_russia_us_in/o9bbjgr/
 
 WHITE_HOUSE_REALITY_WARFARE_FICTION_AVOIDING_NONFICTION_ON_WARFARE observe the top most upvoted comment on Reddit is again avoiding relevant nonfiction. As does the news reporting. People are not intellectually resisting with intellectual education, they are doing as they have since year 2013 - reaction commenting. Surkov won.
+
+https://old.reddit.com/r/worldnews/comments/1ro51og/denmark_warns_of_interference_from_russia_us_in/o9bectb/
+
+WAR_AGAINST_GOODNESS WAR_ALL_AGAINST_ALL Surkov won since year 2013.
+
