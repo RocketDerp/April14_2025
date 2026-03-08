@@ -862,3 +862,7 @@ https://old.reddit.com/r/Gamingcirclejerk/comments/1ro322l/asmongolds_double_sta
 https://old.reddit.com/r/Gamingcirclejerk/comments/1ro322l/asmongolds_double_standards/o9b7z99/
 
 GAMERS_SIMULACRA Sports fans, gamer fans, live streaming media detachment. Gaming fandoms mindsets. Abandonment of reality and abandonment of goodness in favor of amusement and entertainment.
+
+https://old.reddit.com/r/Gamingcirclejerk/comments/1ro322l/asmongolds_double_standards/o9bob2n/
+
+AVOIDED_DR_BANDY_X_LEE_PUBLIC_WRITINGS - observe the avoidance of asserting and promoting serious nonfiction topics of mental health. People do not do it for Donald Trump - it's just casual insulting to call someone mentally sick or "take your medications" - when medications do not perfectly address problems! It is often because of wealthy and famous people we see suicides and struggles, but people behave like humanity hasn't always had problems with anti-compassion and avoiding THE_1954_EQUATION from Dr. Martin Luther King Jr. The topic of the posting is war being cheered on. Sick species who doesn't want to face The 1954 Equation!
