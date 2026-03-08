@@ -767,3 +767,7 @@ We The People have ignored and avoided THE_1954_EQUATION from Martin Luther King
 https://old.reddit.com/r/worldnews/comments/1ro51og/denmark_warns_of_interference_from_russia_us_in/o9br0f2/
 
 FICTION_NONFICTION Fiction vs. Nonfiction. Iran was run with Quran science fiction. USA run with Bible science fiction. Israel run with Torah science fiction. USA augments with Disney Star Wars science fiction. Reddit community is avoiding relevant nonfiction: Jen Senko, Dr. Bandy X Lee. Commenting addiction to fiction storytelling and simplistic-thinking rectangle sports games with billionaire owners rules the mindsets. FIFA, NBA, NFL, etc, etc.
+
+https://old.reddit.com/r/worldnews/comments/1ro51og/denmark_warns_of_interference_from_russia_us_in/o9bz3ay/
+
+2 month Reddit account.
