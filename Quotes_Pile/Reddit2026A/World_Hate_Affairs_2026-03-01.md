@@ -821,3 +821,11 @@ https://old.reddit.com/r/interestingasfuck/comments/1ro9tmo/black_rain_has_falle
 We The People of the world have avoided THE_1954_EQUATION 
 
 https://old.reddit.com/r/interestingasfuck/comments/1ro9tmo/black_rain_has_fallen_over_tehran_after_strikes/o9cs7yd/
+
+https://old.reddit.com/r/memes/comments/1ro7gmc/its_like_a_fictional_concept_now/o9c8gv8/
+
+https://old.reddit.com/r/memes/comments/1ro7gmc/its_like_a_fictional_concept_now/o9c4xg6/
+
+https://old.reddit.com/r/memes/comments/1ro7gmc/its_like_a_fictional_concept_now/o9c3zjx/
+
+GIVE_UP_SURRENDER love isn't important, just having a technology device is.
