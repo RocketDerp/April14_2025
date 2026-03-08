@@ -843,3 +843,6 @@ https://old.reddit.com/r/law/comments/1ro9nlj/trump_says_he_wont_sign_any_bills_
 
 And We The People, Americans, are commenting and posting Trump's photograph over and over in cult addiction to mocking. Trump leads with mocking, fandom follows the leaders. FOLLOWERS_OF_LEADER_TRUMP_ACTOR_ENTERTAINER_DONALD_TRUMP_FOLLOWERS Observe the avoidance of relevant serious nonfiction from Jen Senko, Dr. bandy X Lee, etc.
 
+https://old.reddit.com/r/law/comments/1ro9nlj/trump_says_he_wont_sign_any_bills_into_law_until/o9chhaf/
+
+Yes. FAITH_IN_LEGAL people keep having when the issue is corrupted mindsets. Doctors of Cambridge Analytica have manipulated minds into self-harm and attraction to badness. This is about creating more nonsense and anti-goodness. More hate blowing out minds. ELECTION_DAY_FIXATED_BRAIN_ROT_EVERY_DAY_FOX_NEWS_ETC
