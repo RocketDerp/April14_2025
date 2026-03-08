@@ -840,3 +840,6 @@ https://old.reddit.com/r/AskSocialists/comments/1ro9y1b/iran_just_dropped_a_lego
 
 Top-most upvoted popular comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING the entertainment amusement of Lego toys and animated videos. AMUSING_ZOMBIES as long as it is thrilling visuals. Like South Park values USA.
 
+https://old.reddit.com/r/AskSocialists/comments/1ro9y1b/iran_just_dropped_a_lego_style_animation_about/o9cimgs/
+
+LIBERAL_CHEERS of war. LIBERAL_LAUGHS_LIBERAL_TEARS_COMPULSIVE_MAGA_FOLLOWERS IGNORANCE_CELEBRATIONS 
