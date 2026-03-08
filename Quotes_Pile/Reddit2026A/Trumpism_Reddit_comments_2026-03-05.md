@@ -830,3 +830,7 @@ NEW_OPERA_NAME #CeremonialNow
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mgkuz65x4k2u https://autistics.life/@RoundSparrow/116194770983223089 }    
 
 https://old.reddit.com/r/politics/comments/1ro3fta/americans_arent_facing_a_democratic_collapse_were/o9bxylq/
+
+https://old.reddit.com/r/politics/comments/1ro3fta/americans_arent_facing_a_democratic_collapse_were/o9bxu73/
+
+MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL
