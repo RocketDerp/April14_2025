@@ -843,3 +843,7 @@ Top-most upvoted popular comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER
 https://old.reddit.com/r/AskSocialists/comments/1ro9y1b/iran_just_dropped_a_lego_style_animation_about/o9cimgs/
 
 LIBERAL_CHEERS of war. LIBERAL_LAUGHS_LIBERAL_TEARS_COMPULSIVE_MAGA_FOLLOWERS IGNORANCE_CELEBRATIONS 
+
+https://old.reddit.com/r/AskSocialists/comments/1ro9y1b/iran_just_dropped_a_lego_style_animation_about/o9chgkl/
+
+FOLLOWERS_OF_LEADER_TRUMP_ACTOR_ENTERTAINER_DONALD_TRUMP_FOLLOWERS people have been laughing all the way into Hell. Mocking and joking and joke-washing Trump as a content creator, source of milk from LOLCOW.
