@@ -834,3 +834,7 @@ https://old.reddit.com/r/politics/comments/1ro3fta/americans_arent_facing_a_demo
 https://old.reddit.com/r/politics/comments/1ro3fta/americans_arent_facing_a_democratic_collapse_were/o9bxu73/
 
 MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL
+
+https://old.reddit.com/r/law/comments/1ro9nlj/trump_says_he_wont_sign_any_bills_into_law_until/o9camx1/
+
+Top-upvoted most popular comment. Trump entertaining Reddit commenting fandom. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
