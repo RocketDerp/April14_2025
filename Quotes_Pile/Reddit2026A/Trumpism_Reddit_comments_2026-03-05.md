@@ -886,3 +886,7 @@ https://old.reddit.com/r/Gamingcirclejerk/comments/1ro322l/asmongolds_double_sta
 https://old.reddit.com/r/Gamingcirclejerk/comments/1ro322l/asmongolds_double_standards/o9bfb7r/
 
 LOW_PRODUCTION_VALUES_MAGA_FANDOM superficial and shallow. By this thinking logic, Donald Trump having gold plating all over "on the outside" can't be exploited. Wearing a business suit. SEE_ALSO https://www.BBC.com/news/articles/c1d4r9yvqzpo
+
+https://old.reddit.com/r/Gamingcirclejerk/comments/1ro322l/asmongolds_double_standards/o9c4tg7/
+
+DEFLECTION_FROM_BILLIONAIRES_AND_PUTINISM people don't take the topic of adults getting their education from Fox News HDTV and Reddit low-effort commenting seriously. NOT_GOOD_ENOUGH Neil Postman and Jen Senko aren't good enough to repeat and assert and organize around on social media with people using their free time / spare time commenting.
