@@ -858,3 +858,7 @@ BRAIN_ROT_SOCIETY_47 people recognize the entire USA ship is sinking, falling ti
 https://old.reddit.com/r/Gamingcirclejerk/comments/1ro322l/asmongolds_double_standards/o9b9kps/
 
 "Crazy"  AVOIDED_DR_BANDY_X_LEE_PUBLIC_WRITINGS
+
+https://old.reddit.com/r/Gamingcirclejerk/comments/1ro322l/asmongolds_double_standards/o9b7z99/
+
+GAMERS_SIMULACRA Sports fans, gamer fans, live streaming media detachment. Gaming fandoms mindsets. Abandonment of reality and abandonment of goodness in favor of amusement and entertainment.
