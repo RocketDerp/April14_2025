@@ -797,3 +797,17 @@ The Twitter-thinking reaction commenting mindsets are right in the open. The bra
 https://old.reddit.com/r/interestingasfuck/comments/1ro9tmo/black_rain_has_fallen_over_tehran_after_strikes/o9ce7e0/
 
 Top-most upvoted comment is pro-intellectual! IMPORTANT_QUOTES_A
+
+https://old.reddit.com/r/interestingasfuck/comments/1ro9tmo/black_rain_has_fallen_over_tehran_after_strikes/o9cf57x/
+
+https://old.reddit.com/r/interestingasfuck/comments/1ro9tmo/black_rain_has_fallen_over_tehran_after_strikes/o9cbtou/
+
+https://old.reddit.com/r/interestingasfuck/comments/1ro9tmo/black_rain_has_fallen_over_tehran_after_strikes/o9cjg6h/
+
+https://old.reddit.com/r/interestingasfuck/comments/1ro9tmo/black_rain_has_fallen_over_tehran_after_strikes/o9cj4mn/
+
+https://old.reddit.com/r/interestingasfuck/comments/1ro9tmo/black_rain_has_fallen_over_tehran_after_strikes/o9cplrp/
+
+https://old.reddit.com/r/interestingasfuck/comments/1ro9tmo/black_rain_has_fallen_over_tehran_after_strikes/o9cju2g/
+
+Heaven awaits after death. Sunday Bible science fiction planet Eden awaits. Quran believers in Iran have very similar promises of how life on Earth is not important, Heaven is.
