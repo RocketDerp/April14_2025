@@ -752,3 +752,6 @@ https://old.reddit.com/r/worldnews/comments/1ro51og/denmark_warns_of_interferenc
 
 WAR_AGAINST_GOODNESS WAR_ALL_AGAINST_ALL Surkov won since year 2013.
 
+https://old.reddit.com/r/worldnews/comments/1ro51og/denmark_warns_of_interference_from_russia_us_in/o9bepn1/
+
+3rd most popular upvoted comment. TOXIC_POPULARITY   
