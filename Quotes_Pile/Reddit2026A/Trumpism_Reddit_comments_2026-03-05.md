@@ -794,4 +794,7 @@ https://old.reddit.com/r/politics/comments/1ro3fta/americans_arent_facing_a_demo
 
 MEDIA_ECOLOGY_OBSERVATION and also... fiction outsells nonfiction. Humanity never did Finnegans Wake, religion mythology. Hollywood is the monomyth seller. Sports games in rectangles are billionaire team owners sports-washing.
 
+https://old.reddit.com/r/politics/comments/1ro3fta/americans_arent_facing_a_democratic_collapse_were/o9bf4gz/
+
+Reddit is a corporation. Reddit is Corporate America values. RESISTING_WHAT_EXACTLY   
 
