@@ -751,3 +751,9 @@ It's less of an issue of knowledge and more an issue of desires for entertainmen
 https://old.reddit.com/r/Epstein/comments/1rnkwx0/epstein_claimed_the_kremlin_funneled_100m_to/o97lblz/
 
 CALL_TO_INTELLECTUAL_ACTION_PLAN alas, nonfiction books get rarely asserted. And even this brief assertion offers no quote or call for people to organize information and keep repeating it until we are all on the same page of systemic issues.
+
+https://old.reddit.com/r/law/comments/1rno2zn/milwaukee_radio_host_dan_odonnell_posts_call_to/o981en8/
+
+https://old.reddit.com/r/law/comments/1rno2zn/milwaukee_radio_host_dan_odonnell_posts_call_to/o982qsb/
+
+https://old.reddit.com/r/law/comments/1rno2zn/milwaukee_radio_host_dan_odonnell_posts_call_to/o982lth/
