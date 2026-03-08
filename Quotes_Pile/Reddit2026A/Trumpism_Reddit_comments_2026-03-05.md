@@ -890,3 +890,7 @@ LOW_PRODUCTION_VALUES_MAGA_FANDOM superficial and shallow. By this thinking logi
 https://old.reddit.com/r/Gamingcirclejerk/comments/1ro322l/asmongolds_double_standards/o9c4tg7/
 
 DEFLECTION_FROM_BILLIONAIRES_AND_PUTINISM people don't take the topic of adults getting their education from Fox News HDTV and Reddit low-effort commenting seriously. NOT_GOOD_ENOUGH Neil Postman and Jen Senko aren't good enough to repeat and assert and organize around on social media with people using their free time / spare time commenting.
+
+https://old.reddit.com/r/Gamingcirclejerk/comments/1ro322l/asmongolds_double_standards/o9blo49/
+
+Same as TRUMP_FANDOM - people want a very low bar of leadership measure. This Reddit comment is describing SOCIAL_CULT_HATE_WATCHING_FANDOM that Reddit itself prizes and makes center of attention, Trump Family. Media addiction to mockery and anti-intellectual mental input.
