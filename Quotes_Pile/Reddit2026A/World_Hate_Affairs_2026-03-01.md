@@ -739,3 +739,7 @@ Top-upvoted most popular comment. A community of upvoters... thrilled that video
 https://old.reddit.com/r/PublicFreakout/comments/1rnvw1n/oil_is_reportedly_flowing_into_the_sewers_as/o99pxhp/
 
 Why is Reddit media community not protesting? ANSWER: Cracking jokes is the power of Trump media. Being a joke, being a meme is what engages Trump fandom on Reddit. We The People on Reddit are not having a Reddit blackout. TRUMP_FAMILY_FIXATED_BRAIN_ROT_EVERY_DAY_FOX_NEWS_TWITTER_ETC
+
+https://old.reddit.com/r/PublicFreakout/comments/1rnvw1n/oil_is_reportedly_flowing_into_the_sewers_as/o99pr04/
+
+How can you see comment after comment on Bluesky and Reddit and not notice the absence of calls for mental health workers to do cult deprogramming of MAGA? So many people spending their free time and spare time avoiding nonfiction serious relevant books. AVOIDED_DR_BANDY_X_LEE_PUBLIC_WRITINGS
