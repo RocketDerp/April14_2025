@@ -854,3 +854,7 @@ JANUARY_1944_SECOND_BILL_OF_RIGHTS topic for the whole posting ignored. SEE_ALSO
 https://old.reddit.com/r/Gamingcirclejerk/comments/1ro322l/asmongolds_double_standards/o9bnc4g/
 
 BRAIN_ROT_SOCIETY_47 people recognize the entire USA ship is sinking, falling tide lowers all boats. Alas, people do not want to see the multiple NATO nations reporting the Saint Petersburg Internet Research Agency since year 2013. Brain rot is a society-wide crisis that requires intellectual education and teaching. The avoidance of Jen Senko and Dr. Bandy X Lee by social media users is a symptom of this widespread brain rot and anti-intellectual avoidance of adult serious nonfiction books on paper.
+
+https://old.reddit.com/r/Gamingcirclejerk/comments/1ro322l/asmongolds_double_standards/o9b9kps/
+
+"Crazy"  AVOIDED_DR_BANDY_X_LEE_PUBLIC_WRITINGS
