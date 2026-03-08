@@ -54,3 +54,10 @@ Monday, March 2, 2026 05:30 am - Bluesy rounds to "2 days"
 
 NEW_OPERA_NAME #BlindSpotUSA    
 Social post { https://autistics.life/@RoundSparrow/116159743588511547 https://bsky.app/profile/roundsparrow.bsky.social/post/3mg3dckkzms2h }   
+
+&nbsp;
+
+# Sunday March 8, 2026
+
+https://bsky.app/profile/roundsparrow.bsky.social/post/3mgl5re7mgc2f    
+https://autistics.life/@RoundSparrow/116195383345956394   
