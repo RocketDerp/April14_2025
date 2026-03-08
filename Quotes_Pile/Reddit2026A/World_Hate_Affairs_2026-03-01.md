@@ -847,3 +847,11 @@ LIBERAL_CHEERS of war. LIBERAL_LAUGHS_LIBERAL_TEARS_COMPULSIVE_MAGA_FOLLOWERS IG
 https://old.reddit.com/r/AskSocialists/comments/1ro9y1b/iran_just_dropped_a_lego_style_animation_about/o9chgkl/
 
 FOLLOWERS_OF_LEADER_TRUMP_ACTOR_ENTERTAINER_DONALD_TRUMP_FOLLOWERS people have been laughing all the way into Hell. Mocking and joking and joke-washing Trump as a content creator, source of milk from LOLCOW.
+
+https://old.reddit.com/r/AskSocialists/comments/1ro9y1b/iran_just_dropped_a_lego_style_animation_about/o9chaco/
+
+"insane". It's fiction Lego fantasy, fiction.
+
+https://old.reddit.com/r/AskSocialists/comments/1ro9y1b/iran_just_dropped_a_lego_style_animation_about/o9cx6g2/
+
+REMEDIAL_MORALITY is essential teaching to all adults, everyone over age 12. BRAIN_ROT_SOCIETY_47 
