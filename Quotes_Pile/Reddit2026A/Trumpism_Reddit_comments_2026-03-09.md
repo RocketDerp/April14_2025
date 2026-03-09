@@ -86,3 +86,8 @@ VINCE_GILLIGAN_WAS_CORRECT about fandoms of Walter White on his February 15, 202
 https://old.reddit.com/r/Irony/comments/1royxe9/this_man_has_no_common_sense_or_decency/o9hd88p/
 
 "his cult", Reddit is the cult of mockery and attraction to Trump as a LOLCOW cult figure. This is the top most-upvoted popular comment. 6 month Reddit account. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT - why isn't Reddit having a REDDIT_BLACKOUT protest? Why are Reddit comment creators not organizing a social media internet protest? Why is there always an avoidance of relevant nonfiction books on paper by Dr. Bandy X Lee? ANSWER: Reddit is a media cult of mocking other media cults. SOCIAL_CULT_HATE_WATCHING_FANDOM
+
+https://old.reddit.com/r/Irony/comments/1royxe9/this_man_has_no_common_sense_or_decency/o9haop5/
+
+1 month Reddit account. DOWNPLAYING_DANGER_MINIMIZING_THREATS - just low-effort commenting about how normal and routine Trump is as discussion about his makeup, clothing, fashion, style. Trump fandom can never get enough images of Donald Trump on /r/All front page of Reddit. This has been going on with Reddit community since June 16, 2015 - nearly eleven full years of cult fandom of Trump photos and fashion.
+
