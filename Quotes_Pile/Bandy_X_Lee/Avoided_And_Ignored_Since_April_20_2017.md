@@ -61,3 +61,8 @@ Social post { https://autistics.life/@RoundSparrow/116159743588511547 https://bs
 
 https://bsky.app/profile/roundsparrow.bsky.social/post/3mgl5re7mgc2f    
 https://autistics.life/@RoundSparrow/116195383345956394   
+
+# Monday March 9, 2026
+
+https://bsky.app/profile/roundsparrow.bsky.social/post/3mgmyjgg35k2o    
+https://autistics.life/@RoundSparrow/116199519306740123    
