@@ -186,3 +186,6 @@ The key word here is priorities of free time and spare time. The commenting is t
 
 4. This is mocking into a Trump family total mockery. This isn't resisting, this is engaging the mockery and amplifying the mockery. The PRIORITY being avoided: Dr. Lee being constantly quoted for public education and a Reddit blackout protest emphasizing the need for 100% of the population to get on the same page, even people outside the USA, in promoting Dr. Lee's 27 mental health leaders.
 
+https://old.reddit.com/r/clevercomebacks/comments/1rp7w27/priorities_of_the_1/o9j2kw2/
+
+Fixated on one family. TRUMP_FAMILY_FIXATED_BRAIN_ROT_EVERY_DAY_FOX_NEWS_TWITTER_ETC
