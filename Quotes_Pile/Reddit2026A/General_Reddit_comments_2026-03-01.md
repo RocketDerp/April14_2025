@@ -155,3 +155,22 @@ https://old.reddit.com/r/sports/comments/1rnhps9/olympic_champ_alysa_liu_withdra
 https://old.reddit.com/r/Adulting/comments/1robcry/genuine_question/o9cru7n/
 
 top most upvoted popular comment. CIVIC_DUTY_WE_PEOPLE abandonment of reality and nonfiction in favor of X-Files.
+
+https://old.reddit.com/r/technology/comments/1roe1fa/were_training_students_to_write_worse_to_prove/o9d8ydt/
+
+Top most upvoted popular comment. Read the user profile as to the topic. FAKE_DETECTORS
+
+https://old.reddit.com/r/technology/comments/1roe1fa/were_training_students_to_write_worse_to_prove/o9ddkon/
+
+FAKE_DETECTORS
+
+https://old.reddit.com/r/technology/comments/1roe1fa/were_training_students_to_write_worse_to_prove/o9deg8e/
+
+https://old.reddit.com/r/technology/comments/1roe1fa/were_training_students_to_write_worse_to_prove/o9dddw8/
+
+https://old.reddit.com/r/technology/comments/1roe1fa/were_training_students_to_write_worse_to_prove/o9dxaz3/
+
+https://old.reddit.com/r/technology/comments/1roe1fa/were_training_students_to_write_worse_to_prove/o9e0x3o/
+
+"Welcome" in year 2026? NOT_GOOD_ENOUGH author Neil Postman wrote the books on it over and over. SEE_ALSO https://en.wikiquote.org/wiki/Neil_Postman
+
