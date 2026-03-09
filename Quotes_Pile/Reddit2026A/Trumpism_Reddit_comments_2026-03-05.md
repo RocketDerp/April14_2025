@@ -964,3 +964,7 @@ MOCK_MOCK_MOCKERY MEDIA_ECOLOGY_OBSERVATION
 https://old.reddit.com/r/politics/comments/1roqokb/key_details_of_13yearold_trump_accusers_accounts/o9fwbgp/
 
 EPSTEIN_FANDOM MEDIA_ECOLOGY_OBSERVATION in edit of comment message.
+
+https://old.reddit.com/r/politics/comments/1roqokb/key_details_of_13yearold_trump_accusers_accounts/o9fzk2u/
+
+EPSTEIN_FANDOM endless craving for more and more public media content about Epstein. There is never enough evidence to organize around Dr. Bandy X Lee and call for Trump's immediate removal. Instead, years more of TV content for media cults.
