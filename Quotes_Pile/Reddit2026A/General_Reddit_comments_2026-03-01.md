@@ -87,3 +87,119 @@ https://old.reddit.com/r/BrandNewSentence/comments/1rkk0j3/they_legally_cannot_c
 UNDERSTANDING_TRUMPISM doing bad things draws a crowd. Fiction storytelling outsells nonfiction relevant learning.
 
 https://old.reddit.com/r/Music/comments/1rlizte/britney_spears_arrested_in_california_for_dui/o8sffos/
+
+https://old.reddit.com/r/ForCuriousSouls/comments/1rlnlqj/arkansas_mother_killed_herself_and_her_sixyearold/o8tmcww/
+
+Simple-think logic.
+
+https://old.reddit.com/r/ForCuriousSouls/comments/1rlnlqj/arkansas_mother_killed_herself_and_her_sixyearold/o8u0e4b/
+
+GULLIBLE_FANDOM
+
+https://old.reddit.com/r/ForCuriousSouls/comments/1rlnlqj/arkansas_mother_killed_herself_and_her_sixyearold/o8u2ykt/
+
+GULLIBLE_FANDOM
+
+https://old.reddit.com/r/ForCuriousSouls/comments/1rlnlqj/arkansas_mother_killed_herself_and_her_sixyearold/o8to05j/
+
+She was obviously abusive towards the children, the mother murdered both children with a gun. Egomania. 
+
+https://old.reddit.com/r/ForCuriousSouls/comments/1rlnlqj/arkansas_mother_killed_herself_and_her_sixyearold/o8tgguj/
+
+https://old.reddit.com/r/ForCuriousSouls/comments/1rlnlqj/arkansas_mother_killed_herself_and_her_sixyearold/o8tjfd5/
+
+https://old.reddit.com/r/ForCuriousSouls/comments/1rlnlqj/arkansas_mother_killed_herself_and_her_sixyearold/o8tipcx/
+
+No author name, no off-Reddit URL, no quotes from anyone else.
+
+https://old.reddit.com/r/ForCuriousSouls/comments/1rlnlqj/arkansas_mother_killed_herself_and_her_sixyearold/o8u6ogc/
+
+Simple Twitter-thinking logic.
+
+https://old.reddit.com/r/ForCuriousSouls/comments/1rlnlqj/arkansas_mother_killed_herself_and_her_sixyearold/o8tsi6s/
+
+IMPORTANT_QUOTES_A Someone actually quoted in making their point.
+
+https://old.reddit.com/r/ForCuriousSouls/comments/1rlnlqj/arkansas_mother_killed_herself_and_her_sixyearold/o8tqdrl/
+
+5 day Reddit account. Watch a few television shows and you know facts of any case.
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1rm11ij/petah_help_me_out_here_i_dont_get_the_last_2/o8w78j1/
+
+MEDIA_ECOLOGY_OBSERVATION about Reddit
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1rmhhhz/peter_i_dont_understand/o8zkf5e/
+
+ATTRACTION_TO_SHIT_CONTENT_ENSHIT_BY_DESIRE the media attraction of NYC Major Rudy Giuliani year 2016 who partners with NYC Trump, attraction to shit information and shit content because it is unique / outstanding / unusual. Media content attraction to fiction.
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1rmhhhz/peter_i_dont_understand/o8zl5o2/
+
+Just like many of the popular comments adults learn from on social machines. Trump is a symptom. Fox News HDTV is a symptom. IGNORANCE_CELEBRATIONS 
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1rmv4uw/peter_why_do_women_hug_us_above_the_shoulders/o92g3w2/
+
+MEDIA_ECOLOGY_OBSERVATION what's going on with these replies and bot claims?
+
+https://old.reddit.com/r/technology/comments/1rmyftp/helldivers_2_player_who_organised_a_charity/o931xn9/
+
+GAMERS_SIMULACRA
+
+https://old.reddit.com/r/technology/comments/1rmyftp/helldivers_2_player_who_organised_a_charity/o93wvzm/
+
+MEDIA_CULTS_ADDICTIVE_FICTION
+
+https://old.reddit.com/r/sports/comments/1rnhps9/olympic_champ_alysa_liu_withdraws_from_figure/o96ts08/
+
+2 month Reddit account.
+
+https://old.reddit.com/r/Adulting/comments/1robcry/genuine_question/o9cru7n/
+
+top most upvoted popular comment. CIVIC_DUTY_WE_PEOPLE abandonment of reality and nonfiction in favor of X-Files.
+
+https://old.reddit.com/r/technology/comments/1roe1fa/were_training_students_to_write_worse_to_prove/o9d8ydt/
+
+Top most upvoted popular comment. Read the user profile as to the topic. FAKE_DETECTORS
+
+https://old.reddit.com/r/technology/comments/1roe1fa/were_training_students_to_write_worse_to_prove/o9ddkon/
+
+FAKE_DETECTORS
+
+https://old.reddit.com/r/technology/comments/1roe1fa/were_training_students_to_write_worse_to_prove/o9deg8e/
+
+https://old.reddit.com/r/technology/comments/1roe1fa/were_training_students_to_write_worse_to_prove/o9dddw8/
+
+https://old.reddit.com/r/technology/comments/1roe1fa/were_training_students_to_write_worse_to_prove/o9dxaz3/
+
+https://old.reddit.com/r/technology/comments/1roe1fa/were_training_students_to_write_worse_to_prove/o9e0x3o/
+
+"Welcome" in year 2026? NOT_GOOD_ENOUGH author Neil Postman wrote the books on it over and over. SEE_ALSO https://en.wikiquote.org/wiki/Neil_Postman
+
+https://old.reddit.com/r/technology/comments/1roe1fa/were_training_students_to_write_worse_to_prove/o9e2qqx/
+
+MEDIA_ECOLOGY_OBSERVATION WIDE_RADICAL_DOUBT_ABOUT_REAL
+
+https://old.reddit.com/r/technology/comments/1roe1fa/were_training_students_to_write_worse_to_prove/o9egmco/
+
+Or do most of your work live in the GitHub servers and do regular commits, including mistakes. THIS_GITHUB
+
+https://old.reddit.com/r/technology/comments/1roe1fa/were_training_students_to_write_worse_to_prove/o9dzb1c/
+
+And I am a published technical writer. People are so dehumanizing it has shredded my brain. BABEL_TOWER and CONCERNS_OF_FINNEGANS focus of the shallow-prizing mockery that billionaires have programmed into minds. Donald Trump is the role model of communications and success in USA 2026 and has been since June 16, 2015. Winning by blowing minds. Style over substance is what Trump represents. A measuring bar so low everyone can rage in their egomania how dumb Trump sounds.
+
+* "Imagine my shock as a neurodivergent teen when I first realized that using large vocabulary and eloquent speech doesn't make you less likely to be misinterpreted, rather it adds an entirely new layer of misinterpretation I had never even realized existed in the form of people thinking you're being snobbish or condescending when you're just trying to be specific" - vesper_of_roses June 23, 2023.
+
+* “English, strictly speaking, is not my first language by the way. I haven't yet discovered what my first language is so for the time being I use English words in order to say things. I expect I will always have to do it that way; regrettably I don't think my first language can be written down at all. I'm not sure it can be made external you see. I think it has to stay where it is; simmering in the elastic gloom betwixt my flickering organs.” ― Claire-Louise Bennett
+
+https://old.reddit.com/r/BrandNewSentence/comments/1romdhc/permanently_banned_for_harshing_the_village_mellow/o9ex4uc/
+
+https://old.reddit.com/r/BrandNewSentence/comments/1romdhc/permanently_banned_for_harshing_the_village_mellow/o9ezk6k/
+
+Same with being deported from USA or blocked on Bluesky or Reddit by peer accounts. Egoism. SUPERFICIAL_SHALLOW_PRIZING_TRUMPISM_MAGA_VALUES
+
+https://old.reddit.com/r/ExplainTheJoke/comments/1roxn9r/what_does_it_mean/o9h4kve/
+
+TOO_MUCH_LOVE_IS_INSANE_BUT_MAD_MILITARY_DOCTRINE_AND_AVOIDANCE_NON_FICTION
+
+https://old.reddit.com/r/whennews/comments/1rp0nbi/what_is_wrong_with_people/o9hwh01/
+
+BRAIN_ROT_SOCIETY_47 

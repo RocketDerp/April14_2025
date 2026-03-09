@@ -23,3 +23,8 @@ https://old.reddit.com/r/lotrmemes/comments/1qxp72m/autism_didnt_exist_in_my_day
 "The Wake is sturdy enough to take some extras. Additions, as long as they are by Joyce, don't hurt the book. Even if they are not yet fully-fledged Wakese" https://www.geneticjoycestudies.org/articles/GJS4/GJS4_RJE_Corrected_Text
 
 
+&nbsp;
+
+# World Choice Spell
+
+https://old.reddit.com/r/Animemes/comments/1robf26/yeah_i_have_done_this_before/

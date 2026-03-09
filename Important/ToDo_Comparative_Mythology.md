@@ -110,3 +110,13 @@ https://old.reddit.com/r/todayilearned/comments/1rfaq9y/til_that_the_switzerland
 Now somehow the morality teaching of the clergy seems to have gotten across to leaders in a way that isn't working. Like well-printed book The Bible on page / verse "1 John 3:17" that the clergy in USA can't seem to locate or expound upon.
 
 https://old.reddit.com/r/CuratedTumblr/comments/1rjpvpi/peoples_bodies_are_not_the_problem_here/
+
+&nbsp;
+
+https://www.youtube.com/watch?v=40lmQUjGJPQ    
+Excellent descriptions    
+
+&nbsp;
+
+https://old.reddit.com/r/Music/comments/1roi11g/jack_white_on_why_he_doesnt_write_political_songs/   
+Music lyrics vs. religion poetry    

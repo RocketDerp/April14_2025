@@ -107,3 +107,57 @@ Billionaires own the teams. I used to work for Paul Allen, Jody Allen, the owner
 This is sports-washing of billionaires. This is sports-washing entertainment-wrapping of HEALTH_CARE_GAMES USA - where armies of medical doctors create beautiful men to entertain with rectangle sports games (NBA, NFL) and simple thinking. A anti-education pro-igorance audience cheering on that the billionaires provide content!
 
 * "As I write, the President of the United States is a former Hollywood movie actor. One of his principal challengers in 1984 was once a featured player on television’s most glamorous show of the 1960’s, that is to say, an astronaut. Naturally, a movie has been made about his extraterrestrial adventure. Former nominee George McGovern has hosted the popular television show “Saturday Night Live.” So has a candidate of more recent vintage, the Reverend Jesse Jackson." ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. Year 1985. Chapter 1: The Medium is The Metaphor. Page 26 of 291 pages (modern edition with context intro).
+
+https://old.reddit.com/r/technology/comments/1rlblhn/president_bought_netflix_debt_in_january_2026/o8qxhju/
+
+Top-most upvoted comment. The "backlash" is media engagement on every media system. Commenting, low-information upvoting. people are not resisting the mockery, they are mocking back. Authentic resistance would be taking on brain rot and actually teaching that Donald Trump's behavior is a product of television brain rot via Neil Postman's nonfiction books. BRAIN_ROT_SOCIETY_47 We The People need to rescue We The People from attraction to right-wing media values, including religion clergy, addiction to fiction storytelling.
+
+https://old.reddit.com/r/technology/comments/1rlblhn/president_bought_netflix_debt_in_january_2026/o8qtw2o/
+
+People aren't resisting antics politics. RESISTING_WHAT_EXACTLY - the Internet reaction commenting news cycle is endless September.
+
+https://old.reddit.com/r/technology/comments/1rlblhn/president_bought_netflix_debt_in_january_2026/o8qvumm/
+
+Exiting the simulation of resistance is organizing around the JANUARY_1944_SECOND_BILL_OF_RIGHTS and repeating it long-term. Admit we made mistakes in not teaching and keeping it as a living topic.
+
+https://old.reddit.com/r/law/comments/1rlpzs9/donald_trump_fires_head_of_dhs_kristi_noem/o8tsmlz/
+
+The most popular upvoted comment. In no way is this comment RESISTING Trump.. People BELIEVE they are resisting, but are constantly spending free time and spare time attracted to the show that Reality TV Trump star provides. FOLLOWERS_OF_LEADER_TRUMP_ACTOR_ENTERTAINER_DONALD_TRUMP_FOLLOWERS
+
+https://old.reddit.com/r/law/comments/1rlpzs9/donald_trump_fires_head_of_dhs_kristi_noem/o8tw70r/
+
+https://old.reddit.com/r/law/comments/1rlpzs9/donald_trump_fires_head_of_dhs_kristi_noem/o8ttcp0/
+
+Entertained by Donald Trump Truth Social messages and ideas. Got the liberal laughs, ha ha ha. LIBERAL_LAUGHS_LIBERAL_TEARS_COMPULSIVE_MAGA_FOLLOWERS
+
+https://old.reddit.com/r/SipsTea/comments/1rmj5tp/lmao/o8ztyo4/
+
+4 month Reddit account, top most-upvoted popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT this entire posting "LMAO" is not resisting Trump Family, it is furthering the Reality TV Trump family.
+
+https://old.reddit.com/r/SipsTea/comments/1rmj5tp/lmao/o8zuvvm/
+
+"lol". 4 month Reddit account, top most-upvoted popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT 
+
+https://old.reddit.com/r/politics/comments/1rmh6ld/donald_trump_impeachment_odds_hit_record_high/o8zbyyc/
+
+Most popular upvoted-comment. Under 140 characters. Offers no call for resistance. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING ROUTINE_NO_NEED_TO_RESIST_OR_ORGANIZE_INTELLECTUAL_UPRISING no call for following leadership of 27 people Dr. Bandy X Lee assembled in her book.
+
+https://old.reddit.com/r/politics/comments/1rmh6ld/donald_trump_impeachment_odds_hit_record_high/o8zc30o/
+
+2 month Reddit account with 2nd most popular upvoted comment. Snark commenting, satire-washing, sarcasm-washing. CYNICAL_ACCEPT_IT REDDIT_TOP_COMMENT_YOUNG_ACCOUNT reactionary Twitter-think mindset, as programmed by Elon Musk richest man in the world.
+
+https://old.reddit.com/r/politics/comments/1rmh6ld/donald_trump_impeachment_odds_hit_record_high/o8zcdmq/
+
+2 month Reddit account with 3rd most popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT messaging to give up, normalize Truth and keep normalizing as usual. Anti-intellectual, anti-reality, anti-fact.  GIVE_UP_ANTI_EDUCATION_ANTI_TEACH_ANTI_PROGRESS
+
+https://old.reddit.com/r/pics/comments/1rofcl5/as_war_rages_in_the_middle_east_gas_prices/o9dgsk9/
+
+Top-upvoted most popular comment. This isn't resisting, this is Truth Social reaction-commenting. This is media engagement, a fandom of Trump images that prizes mockery leadership. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING Observe again the avoidance of asserting non-fiction leadership from Jen Senko and Dr. Bandy X Lee. This is a right-wing media event, golf, and Reddit is the media consumers of the right-wing media. Cult of Trump images and messages.
+
+https://old.reddit.com/r/pics/comments/1rofcl5/as_war_rages_in_the_middle_east_gas_prices/o9diwca/
+
+2nd most upvoted popular comment. Pro-hate, mind-blown by hate. Simplistic commenting, predictable mindset. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING Reddit community is a hate-watching fandom that follows the Trump images and pushes them again and again to /r/All front page. ATTRACTION_TO_HATE_LEADERS_HATE_FOLLOWERS
+
+https://old.reddit.com/r/nottheonion/comments/1rovbe6/white_house_sent_wtf_message_to_israel_after_iran/o9gkgu9/
+
+"These idiots", look at the comment message. In what way is it resisting "idiot" ideas and mindsets? The entire world stage of history does not care who you think the idiot is - the abandonment of non-fiction is evident right on Reddit. Why is there no Reddit blackout protest calling for Trump's removal? Why is adult education not being given on Reddit to turn around the ignorance and badness? ANSWER: Reddit is a fandom of the idiocy. Reddit is The Media covering and hosting commenting of play by play of the leaders of ignorance. Reddit fandom is followers of ignorance.

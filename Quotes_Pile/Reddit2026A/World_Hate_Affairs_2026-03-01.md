@@ -518,3 +518,378 @@ https://old.reddit.com/r/worldnews/comments/1rl2uhm/carney_tells_australian_parl
 
 https://old.reddit.com/r/worldnews/comments/1rl2uhm/carney_tells_australian_parliament_allies_must/o8qdpx2/
 
+https://old.reddit.com/r/UnderReportedNews/comments/1rlld7s/president_of_brazil_lula_da_silva_my_message_to/o8ssa1v/
+
+LEVANT_MONOMYTH_CRISIS the Levant Torah, Bible, Quran are made out to be role models of peace and love when they often demonstrate otherwise. This is why I studied for years in Jordan during the Arab Spring to analyze the media ecology of emerging social media vs. Synagogue, Church, Mosque. GREAT_SEAL_USA people do not grasp the meaning of "Old World Order" on the great seal.
+
+* "If you look behind that pyramid, you see a desert. If you look before it, you see plants growing. The desert, the **tumult in Europe, wars and wars and wars -- we have pulled ourselves out of it and created a state in the name of reason, not in the name of power**, and out of that will come the flowerings of the new life. That's the sense of that part of the pyramid." - Age 83, year 1987 SEE_ALSO www.GreatSealUSA.com
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rlld7s/president_of_brazil_lula_da_silva_my_message_to/o8svjtk/
+
+The common Reddit users lack of respect for nonfiction and asserting goodness needs to be seen and understood. People spending their free time and spare time reacting to events instead of seeing the importance of adult education and learning. Why are people not turning to Dr. Bandy X Lee and other relevant public education... THE_HIGH_ROAD_IS_DR_BANDY_X_LEE_QUOTING_REPEATING
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rlld7s/president_of_brazil_lula_da_silva_my_message_to/o8swg41/
+
+The anti-intellectual celebrations of ignorance all over social media commenting sections are not being taken serious. SOCIAL_MEDIA_DID_NOT_HAVE_UPRISING_SUSTAINED_FOCUSED on Dr. Bandy X Lee or cult deprogramming.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rlld7s/president_of_brazil_lula_da_silva_my_message_to/o8szzbc/
+
+The anti-intellectual pro-meme pro-antics Twitter-thinking mania is a society wide problem, age 12 to age 12, not just leaders. BRAIN_ROT_SOCIETY_47    
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rlld7s/president_of_brazil_lula_da_silva_my_message_to/o8sx7eq/
+
+9 month Reddit account. "call us out on our fucking idiocy please" - the anti-intellectual Reddit popularity, Twitter-thinking. TOXIC_POPULARITY is what needs to be called out. The avoidance of nonfiction relevant books accessible at the public library from Dr. Bandy X Lee needs to be called out by every person using free time / spare time commenting. Note the user's profile message.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rlmsom/the_downed_iranian_warship_did_not_carry_any/o8t47tm/
+
+HATE_HARDER simplistic 2nd most popular upvoted comment. Anti-intellectual, anti-learning, pro-hate. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rlmsom/the_downed_iranian_warship_did_not_carry_any/o8t5692/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rlmsom/the_downed_iranian_warship_did_not_carry_any/o8t93se/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rlmsom/the_downed_iranian_warship_did_not_carry_any/o8tgmbz/
+
+MEDIA_ECOLOGY_OBSERVATION
+
+https://old.reddit.com/r/worldnews/comments/1rlmftj/trump_says_he_needs_to_be_involved_selecting/o8t14g6/
+
+https://old.reddit.com/r/worldnews/comments/1rlmftj/trump_says_he_needs_to_be_involved_selecting/o8t0dx6/
+
+https://old.reddit.com/r/worldnews/comments/1rlmftj/trump_says_he_needs_to_be_involved_selecting/o8t1f7r/
+
+https://old.reddit.com/r/worldnews/comments/1rlmftj/trump_says_he_needs_to_be_involved_selecting/o8t8vui/
+
+BANAL_WASH_LAUGH_TRACK
+
+https://old.reddit.com/r/worldnews/comments/1rlmftj/trump_says_he_needs_to_be_involved_selecting/o8tnmuw/
+
+Invoke the 25th with no uprising from We The People. A society full of commenting addictions that won't organize and promote Dr. Bandy X Lee's 27 leaders. AVOIDED_DR_BANDY_X_LEE_PUBLIC_WRITINGS
+
+https://old.reddit.com/r/worldnews/comments/1rlmftj/trump_says_he_needs_to_be_involved_selecting/o8t79co/
+
+MIND_BLOWN_BY the Reddit audience finds Trump so original and creative as a source of entertainment and amusement. Understanding Trumpism / MAGA long-term duration is to understand Reddit is a fandom of unusual and outstanding media content. Trump provide mind-blowing content for Reddit app users. We The People are avoiding nonfiction serious relevant books by Dr. Bandy X Lee.  WHEN_THE_PEOPLE_HAVE_LOST_THE_ABILITY
+
+https://old.reddit.com/r/worldnews/comments/1rlmftj/trump_says_he_needs_to_be_involved_selecting/o8t1s12/
+
+10 month Reddit account. SATIRE_SARCASM_WASHING
+
+https://old.reddit.com/r/worldnews/comments/1rlmftj/trump_says_he_needs_to_be_involved_selecting/o8t67ps/
+
+Trump leads with hate, Reddit community follows the leader. ATTRACTION_TO_HATE_LEADERS_HATE_FOLLOWERS
+
+https://old.reddit.com/r/worldnews/comments/1rln1ga/iran_is_confident_it_can_counter_a_potential_us/o8ucloz/
+
+World Hate Affairs. FAITH_IN_HATE
+
+https://old.reddit.com/r/worldnews/comments/1rln1ga/iran_is_confident_it_can_counter_a_potential_us/o8u2zci/
+
+CULT_BEHAVIOR "trump only cares about money" simplistic thinking. Power and religion storytelling and camera popularity clearly motivate Trump.
+
+https://old.reddit.com/r/worldnews/comments/1rmb3g5/russia_is_providing_iran_intelligence_to_target/o8y51uw/
+
+https://old.reddit.com/r/worldnews/comments/1rmb3g5/russia_is_providing_iran_intelligence_to_target/o8y57ew/
+
+https://old.reddit.com/r/worldnews/comments/1rmb3g5/russia_is_providing_iran_intelligence_to_target/o8y5vqe/
+
+https://old.reddit.com/r/europe/comments/1rm832t/more_patriot_missiles_used_in_middle_east_in_3/o8xpn39/
+
+How Surkov won. "would be funny". AMUSEMENT_COMEDY_WASHING_TRUMP_AS_FUNNY_MEDIA_SANEWASHING
+
+https://old.reddit.com/r/europe/comments/1rm832t/more_patriot_missiles_used_in_middle_east_in_3/o8xnqh7/
+
+https://old.reddit.com/r/europe/comments/1rm832t/more_patriot_missiles_used_in_middle_east_in_3/o8xpbw7/
+
+https://old.reddit.com/r/europe/comments/1rm832t/more_patriot_missiles_used_in_middle_east_in_3/o8y181j/
+
+https://old.reddit.com/r/europe/comments/1rm832t/more_patriot_missiles_used_in_middle_east_in_3/o8xq9ie/
+
+https://old.reddit.com/r/europe/comments/1rm832t/more_patriot_missiles_used_in_middle_east_in_3/o8xs3iy/
+
+https://old.reddit.com/r/europe/comments/1rm832t/more_patriot_missiles_used_in_middle_east_in_3/o8yte12/
+
+https://old.reddit.com/r/europe/comments/1rmasdl/russia_sending_election_operatives_to_hungary_to/o8yo9gg/
+
+Normalizing it instead of seeing this (Surkovian information warfare) as a serious threat. SATIRE_SARCASM_WASHING
+
+https://old.reddit.com/r/europe/comments/1rmasdl/russia_sending_election_operatives_to_hungary_to/o8yw0o4/
+
+FICTION_HARDER just keep promoting more fiction and falsehoods in the face of Russia's fiction.
+
+https://old.reddit.com/r/europe/comments/1rmasdl/russia_sending_election_operatives_to_hungary_to/o8zhqmr/
+
+Beyond the popular denial of the situation since year 2013. DECEMBER_5_2014_NATO_JOKE_ARTICLE_5_JOKE
+
+https://old.reddit.com/r/europe/comments/1rmasdl/russia_sending_election_operatives_to_hungary_to/o907tu8/
+
+At least someone has caught on to Mr. Beast and other Internet media trends being the crisis. TREND_CHASING_MEDIA_TRENDING and SYMBOLISM_GUMBO
+
+https://old.reddit.com/r/politics/comments/1rmjr3k/trump_wants_to_overthrow_cuban_regime_in_a_couple/o8zwj25/
+
+DENIAL_ABOUNDS - clearly Trump is leading with hate and Reddit community follows with hate. Why is Reddit community not asserting and promoting nonfiction books on paper by Dr. Bandy X Lee? It is the anti-intellectualism and brain rot that Trump wield like no other person.
+
+https://old.reddit.com/r/politics/comments/1rmjr3k/trump_wants_to_overthrow_cuban_regime_in_a_couple/o8zz8y2/
+
+SATIRE_SARCASM_WASHING Trump is a constant source of 140 character or less reaction comments. "Media Engagement" to Trump as a source of LOL to milk, LOLCOW Reddit fandom.
+
+https://old.reddit.com/r/politics/comments/1rmjr3k/trump_wants_to_overthrow_cuban_regime_in_a_couple/o8zvxr5/
+
+Billionaire team owners at FIFA have programmed this Reddit audience. REMEMBER_THE_PROGRAM_IDEAS_BILLIONAIRES_FED_REDDIT_AUDIENCE
+
+https://old.reddit.com/r/politics/comments/1rmjr3k/trump_wants_to_overthrow_cuban_regime_in_a_couple/o901ews/
+
+ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING
+
+https://old.reddit.com/r/politics/comments/1rmjr3k/trump_wants_to_overthrow_cuban_regime_in_a_couple/o8zwkn6/
+
+6 month Reddit account
+
+https://old.reddit.com/r/okbuddycinephile/comments/1rmo26v/ben_stiller_and_rob_schneider_divorce_incoming/o90ve70/
+
+Screen shot "War is not a Movie", it is to Reddit audience. JOKES_WRITE_THEMSELVES_IGNORANCE_OF_SURKOV_STUDENTS people on Reddit are entirely ignorant of Neil Postman's teachings and Surkov in Russia. Avoiding nonfiction learning.
+
+https://old.reddit.com/r/okbuddycinephile/comments/1rmo26v/ben_stiller_and_rob_schneider_divorce_incoming/o90z55f/
+
+SURKOV_WARFARE and UNIFIED_THEORY_FICTION_NONFICTION fiction hyper-real film / movie.
+
+https://old.reddit.com/r/AskSocialists/comments/1rmjlpg/old_men_want_war/o8zy28n/
+
+1 month Reddit account. Most-popular upvoted comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+
+Social post { https://autistics.life/@RoundSparrow/116184252577183217 https://bsky.app/profile/roundsparrow.bsky.social/post/3mgg7lcgd7c2x }   
+
+https://old.reddit.com/r/Fauxmoi/comments/1rnfndc/northern_irish_comedian_vittorio_angelone_to/o96bojm/
+
+4 month Reddit account. Most-popular upvoted comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+
+https://old.reddit.com/r/Fauxmoi/comments/1rnfndc/northern_irish_comedian_vittorio_angelone_to/o96o3ss/
+
+CONCERNS_OF_FINNEGANS 
+
+https://old.reddit.com/r/SipsTea/comments/1rnct8m/tough_guy/o966koj/
+
+Top-upvoted most popular comment. JOKE_COMEDY_POWER_IS_MAGA_IS_TRUMP_IS_SURKOV
+
+https://old.reddit.com/r/SipsTea/comments/1rnct8m/tough_guy/o96s685/
+
+Egomania is what Musk, Trump, Murdoch, Putin lead with and so many followers. HYPER_SIMPLE_TRIVIALIZE_BANAL_SELF_ONLY_CONCERN
+
+https://old.reddit.com/r/SipsTea/comments/1rnct8m/tough_guy/o96j0kq/
+
+OUT_GROUP_HATE
+
+https://old.reddit.com/r/SipsTea/comments/1rnct8m/tough_guy/o96bc87/
+
+IGNORANCE_CELEBRATIONS violence celebrating, bombing celebrating, entertainment-wrapping is very common. People cheering on ignorance and promoting more avoidance of serious relevant nonfiction books on paper.
+
+https://old.reddit.com/r/AITAH/comments/1rni3sw/aitah_for_packing_my_bags_after_my_boyfriends/o96trc4/
+
+"insane". TOO_MUCH_LOVE_IS_INSANE_BUT_MAD_MILITARY_DOCTRINE_AND_AVOIDANCE_NON_FICTION  And I'm not talking "what about ism". I'm talking about what people consider insane. I'm more worried about people starving without food, living in war zones, parenting in Palestine in year 2025, out-group hate, the POPULARITY of Donald Trump while people avoid Dr. Bandy X Lee's nonfiction public education, etc. Hippy values of 1967, 1968, 1969 really do not freak me out. A criminal breaking in and murdering people is insane and alarming. This is actually more amusing and funny, no hate or disrespect here. The boundaries of emotional connections and egoism. She could be drunk or high, but this is a growth opportunity for the relationship of learning people are different. This world does not need more hate and hate mongering. This is complaining of *too much love* and friendships. And I'm not just talking about the one person's story, the crowd reaction of pro-dehumanization deport-happy block-happy HATE_HARDER attitude.
+
+https://old.reddit.com/r/AITAH/comments/1rni3sw/aitah_for_packing_my_bags_after_my_boyfriends/o9723jp/
+
+The pro-hate reaction in the Reddit audience isn't fake. Even if the story is fake. There  are FAR WORSE crimes for the general public to be concerned about, such as world leaders (of wealth and power) using entertainment techniques to promote war and mass dehumanization of poor people. ANTI_REALITY fiction addictions.
+
+https://old.reddit.com/r/AITAH/comments/1rni3sw/aitah_for_packing_my_bags_after_my_boyfriends/o96vkeg/
+
+YOU_MUST_HATE_EX_LOVERS you MUST, the public insists, that you hate ex-lovers. Toxic popularity. 
+
+https://old.reddit.com/r/ForCuriousSouls/comments/1rnh5p7/mma_fighter_let_daughter_starve_to_death_in_house/o96x6y8/
+
+TECH_LUST_TECH_LOVERS who hate human persons and view fighting with humans and defeating humans as some kind of sport.
+
+https://old.reddit.com/r/mildlyinfuriating/comments/1rnj4pk/left_bag_on_airplane_tracked_to_address/o9775ra/
+
+REMEDIAL_MORALITY lessons are needed. Top to bottom of society.
+
+https://old.reddit.com/r/NewDelhi/comments/1rncmyt/what_are_your_opinions_on_this_action_taken_by/o95qmwn/
+
+https://old.reddit.com/r/Fauxmoi/comments/1rnia3u/donald_trump_speaking_in_front_of_latin_american/o96vagv/
+
+7 month Reddit account. Top-upvoted most popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT Claiming "nothing happens" when the TRUMP_FANDOM on Reddit puts it on the front page of /r/All that is the consequence to Trump leading with hate. The followers. FOLLOWERS_OF_LEADER_TRUMP_ACTOR_ENTERTAINER_DONALD_TRUMP_FOLLOWERS People on Reddit aren't resisting ignorance and media addiction, they are mocking back at Donald Trump.
+
+https://old.reddit.com/r/Fauxmoi/comments/1rnia3u/donald_trump_speaking_in_front_of_latin_american/o96y9y5/
+
+22 day Reddit account. Describing SURKOV_WARFARE and Surkov governing. People on Reddit eat up the paradox patterns, blow their minds into predictable reactionary patterns.
+
+https://old.reddit.com/r/pics/comments/1rnkwwc/us_israeli_atrocities_165_school_girls_killed/o97jqmg/
+
+https://old.reddit.com/r/pics/comments/1rnkwwc/us_israeli_atrocities_165_school_girls_killed/o97k1n7/
+
+PREDICTION_A 
+
+https://old.reddit.com/r/pics/comments/1rnkwwc/us_israeli_atrocities_165_school_girls_killed/o97i77z/
+
+HATE_VS_HATE FAITH_IN_HATE   
+
+https://old.reddit.com/r/interestingasfuck/comments/1rnztnw/lran_has_the_highest_female_to_male_ratio_in/o9ah2e1/
+
+Yes. My experience too with the women in the Arab Spring. ARAB_SPRING_2010 https://www.nytimes.com/2007/05/26/world/africa/26algeria.html
+
+https://old.reddit.com/r/interestingasfuck/comments/1rnztnw/lran_has_the_highest_female_to_male_ratio_in/o9aqzo1/
+
+Long-form multiple links Reddit comment!
+
+https://old.reddit.com/r/PublicFreakout/comments/1rnvw1n/oil_is_reportedly_flowing_into_the_sewers_as/o99pl1o/
+
+Top-upvoted most popular comment. A community of upvoters... thrilled that video coverage of hate and dehumanization is available. Observe the absence of calls for mental health workers and psychologists to educate and teach why war is bad. People who think Epstein harming children's future is terrible, but murdering families and burning fires in the streets isn't something to condemn. Because, entertainment.  REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING TECH_LUST_TECH_LOVERS - this is the very power of modern Putinism. Media media media, Surkov won since March 2013.
+
+* "Then I just had to start trying to find people **who had been in the war**. And sure enough I found someone in Durham who had been… you know, a lot of North Carolina people **go to the war**, I found a young pilot and he said oh, that no, it was very exciting and then he went on to explain to me how the sights that they used in order to, you know, fire their smart bombs were just like the games in the arcade that he grew up with. He said, you know, no way in the world could he have had better practice than he got in those arcades to fire smart bombs. I mean, it had passed him by that the real had happened even though he was really there. I talked to a woman who had been on the ground, in a jeep for most of it. And she went “Oh the desert is so big and the sand…”, she said, “…but I really didn’t get a feel for until I got home and saw what my husband had taped”. **Why? Because the little individual actors sink into insignificance compared to the damn spectacle of the thing. The spectacle of it.** I mean, when humans were less important than God we could understand because he built everything. When we are less important than a Nintendo we get confused. That’s when we start thinking that we are under siege." https://RickRoderick.org/308-baudrillard-fatal-strategies-1993/
+
+https://old.reddit.com/r/PublicFreakout/comments/1rnvw1n/oil_is_reportedly_flowing_into_the_sewers_as/o99pxhp/
+
+Why is Reddit media community not protesting? ANSWER: Cracking jokes is the power of Trump media. Being a joke, being a meme is what engages Trump fandom on Reddit. We The People on Reddit are not having a Reddit blackout. TRUMP_FAMILY_FIXATED_BRAIN_ROT_EVERY_DAY_FOX_NEWS_TWITTER_ETC
+
+https://old.reddit.com/r/PublicFreakout/comments/1rnvw1n/oil_is_reportedly_flowing_into_the_sewers_as/o99pr04/
+
+How can you see comment after comment on Bluesky and Reddit and not notice the absence of calls for mental health workers to do cult deprogramming of MAGA? So many people spending their free time and spare time avoiding nonfiction serious relevant books. AVOIDED_DR_BANDY_X_LEE_PUBLIC_WRITINGS
+
+https://old.reddit.com/r/worldnews/comments/1ro51og/denmark_warns_of_interference_from_russia_us_in/o9bbjgr/
+
+WHITE_HOUSE_REALITY_WARFARE_FICTION_AVOIDING_NONFICTION_ON_WARFARE observe the top most upvoted comment on Reddit is again avoiding relevant nonfiction. As does the news reporting. People are not intellectually resisting with intellectual education, they are doing as they have since year 2013 - reaction commenting. Surkov won.
+
+https://old.reddit.com/r/worldnews/comments/1ro51og/denmark_warns_of_interference_from_russia_us_in/o9bectb/
+
+WAR_AGAINST_GOODNESS WAR_ALL_AGAINST_ALL Surkov won since year 2013.
+
+https://old.reddit.com/r/worldnews/comments/1ro51og/denmark_warns_of_interference_from_russia_us_in/o9bepn1/
+
+3rd most popular upvoted comment. TOXIC_POPULARITY   
+
+https://old.reddit.com/r/worldnews/comments/1ro51og/denmark_warns_of_interference_from_russia_us_in/o9bo5hh/
+
+10 month Reddit account.
+
+https://old.reddit.com/r/worldnews/comments/1ro51og/denmark_warns_of_interference_from_russia_us_in/o9bg2wd/
+
+We The People have ignored and avoided THE_1954_EQUATION from Martin Luther King Jr. https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Martin_Luther_King_Jr_quotes0.md
+
+https://old.reddit.com/r/worldnews/comments/1ro51og/denmark_warns_of_interference_from_russia_us_in/o9br0f2/
+
+FICTION_NONFICTION Fiction vs. Nonfiction. Iran was run with Quran science fiction. USA run with Bible science fiction. Israel run with Torah science fiction. USA augments with Disney Star Wars science fiction. Reddit community is avoiding relevant nonfiction: Jen Senko, Dr. Bandy X Lee. Commenting addiction to fiction storytelling and simplistic-thinking rectangle sports games with billionaire owners rules the mindsets. FIFA, NBA, NFL, etc, etc.
+
+https://old.reddit.com/r/worldnews/comments/1ro51og/denmark_warns_of_interference_from_russia_us_in/o9bz3ay/
+
+2 month Reddit account.
+
+https://old.reddit.com/r/worldnews/comments/1ro51og/denmark_warns_of_interference_from_russia_us_in/o9bxr6a/
+
+https://old.reddit.com/r/worldnews/comments/1ro51og/denmark_warns_of_interference_from_russia_us_in/o9blzqm/
+
+24 day Reddit account.
+
+https://old.reddit.com/r/worldnews/comments/1ro51og/denmark_warns_of_interference_from_russia_us_in/o9bo663/
+
+https://old.reddit.com/r/worldnews/comments/1ro51og/denmark_warns_of_interference_from_russia_us_in/o9bufqa/
+
+Pro-ignorance Twitter-thinking meme-think is MAGA Trumpism and people don't even realize it all across the world. Surkov won since March 2013. Runaway ignorance is a  threat to all humanity.
+
+https://old.reddit.com/r/worldnews/comments/1ro51og/denmark_warns_of_interference_from_russia_us_in/o9bwtju/
+
+https://old.reddit.com/r/worldnews/comments/1ro51og/denmark_warns_of_interference_from_russia_us_in/o9c1qpr/
+
+3 month Reddit account.
+
+https://old.reddit.com/r/worldnews/comments/1ro51og/denmark_warns_of_interference_from_russia_us_in/o9c1tl9/
+
+The Twitter-thinking reaction commenting mindsets are right in the open. The brain rot welcomed and embraced. THE_HIGH_ROAD_IS_DR_BANDY_X_LEE_QUOTING_REPEATING
+
+https://old.reddit.com/r/interestingasfuck/comments/1ro9tmo/black_rain_has_fallen_over_tehran_after_strikes/o9ce7e0/
+
+Top-most upvoted comment is pro-intellectual! IMPORTANT_QUOTES_A
+
+https://old.reddit.com/r/interestingasfuck/comments/1ro9tmo/black_rain_has_fallen_over_tehran_after_strikes/o9cf57x/
+
+https://old.reddit.com/r/interestingasfuck/comments/1ro9tmo/black_rain_has_fallen_over_tehran_after_strikes/o9cbtou/
+
+https://old.reddit.com/r/interestingasfuck/comments/1ro9tmo/black_rain_has_fallen_over_tehran_after_strikes/o9cjg6h/
+
+https://old.reddit.com/r/interestingasfuck/comments/1ro9tmo/black_rain_has_fallen_over_tehran_after_strikes/o9cj4mn/
+
+https://old.reddit.com/r/interestingasfuck/comments/1ro9tmo/black_rain_has_fallen_over_tehran_after_strikes/o9cplrp/
+
+https://old.reddit.com/r/interestingasfuck/comments/1ro9tmo/black_rain_has_fallen_over_tehran_after_strikes/o9cju2g/
+
+Heaven awaits after death. Sunday Bible science fiction planet Eden awaits. Quran believers in Iran have very similar promises of how life on Earth is not important, Heaven is.
+
+https://old.reddit.com/r/interestingasfuck/comments/1ro9tmo/black_rain_has_fallen_over_tehran_after_strikes/o9ckxbe/
+
+DENIAL_ABOUNDS "future of the world", this is reality real.
+
+https://old.reddit.com/r/interestingasfuck/comments/1ro9tmo/black_rain_has_fallen_over_tehran_after_strikes/o9ckeic/
+
+We The People of the world have avoided THE_1954_EQUATION 
+
+https://old.reddit.com/r/interestingasfuck/comments/1ro9tmo/black_rain_has_fallen_over_tehran_after_strikes/o9cs7yd/
+
+https://old.reddit.com/r/memes/comments/1ro7gmc/its_like_a_fictional_concept_now/o9c8gv8/
+
+https://old.reddit.com/r/memes/comments/1ro7gmc/its_like_a_fictional_concept_now/o9c4xg6/
+
+https://old.reddit.com/r/memes/comments/1ro7gmc/its_like_a_fictional_concept_now/o9c3zjx/
+
+GIVE_UP_SURRENDER love isn't important, just having a technology device is.
+
+https://old.reddit.com/r/Damnthatsinteresting/comments/1robsq8/iranian_journalist_reports_in_front_of_the_flames/o9cr68f/
+
+9 month Reddit account. Top-upvoted popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT 140 characters or less reaction commenting.
+
+https://old.reddit.com/r/Damnthatsinteresting/comments/1robsq8/iranian_journalist_reports_in_front_of_the_flames/o9cqpfv/
+
+https://old.reddit.com/r/AskSocialists/comments/1ro9y1b/iran_just_dropped_a_lego_style_animation_about/o9cer3w/
+
+Top-most upvoted popular comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING the entertainment amusement of Lego toys and animated videos. AMUSING_ZOMBIES as long as it is thrilling visuals. Like South Park values USA. SOUTH_PARK_FAMILY_GUY_SPONGEBOB_THE_APPRENTICE_REALITY_TELEVISION_USA
+
+https://old.reddit.com/r/AskSocialists/comments/1ro9y1b/iran_just_dropped_a_lego_style_animation_about/o9cimgs/
+
+LIBERAL_CHEERS of war. LIBERAL_LAUGHS_LIBERAL_TEARS_COMPULSIVE_MAGA_FOLLOWERS IGNORANCE_CELEBRATIONS 
+
+https://old.reddit.com/r/AskSocialists/comments/1ro9y1b/iran_just_dropped_a_lego_style_animation_about/o9chgkl/
+
+FOLLOWERS_OF_LEADER_TRUMP_ACTOR_ENTERTAINER_DONALD_TRUMP_FOLLOWERS people have been laughing all the way into Hell. Mocking and joking and joke-washing Trump as a content creator, source of milk from LOLCOW.
+
+https://old.reddit.com/r/AskSocialists/comments/1ro9y1b/iran_just_dropped_a_lego_style_animation_about/o9chaco/
+
+"insane". It's fiction Lego fantasy, fiction.
+
+https://old.reddit.com/r/AskSocialists/comments/1ro9y1b/iran_just_dropped_a_lego_style_animation_about/o9cx6g2/
+
+REMEDIAL_MORALITY is essential teaching to all adults, everyone over age 12. BRAIN_ROT_SOCIETY_47 
+
+https://old.reddit.com/r/AskSocialists/comments/1ro9y1b/iran_just_dropped_a_lego_style_animation_about/o9ceuke/
+
+MEDIA_WOKE - media addiction to fiction storytelling and hyper reality, WHHR, is core Trump MAGA values.
+
+https://old.reddit.com/r/worldnews/comments/1roey29/tehran_indicates_khameneis_son_will_be_named/o9de94t/
+
+Top most-upvoted popular comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
+
+https://old.reddit.com/r/worldnews/comments/1roey29/tehran_indicates_khameneis_son_will_be_named/o9dg19d/
+
+PREDICTION_A
+
+https://old.reddit.com/r/sports/comments/1rof0vw/impossible_situation_iranian_womens_team_sing/o9dhpha/
+
+1 month Reddit account, 2nd most popular upvoted comment. 11 month account has 1st most popular and is also submitter of the post. NOT_GOOD_ENOUGH Malala's books and promoting and supporting Malala since year 2013 on social media. People need to organize, and Malala intelligently organized the topics in year 2013 as a global topic. SEE_ALSO https://github.com/RocketDerp/April14_2025/blob/main/PostMalala/Marriage/World_Malala_Timeline_Year_2012.md
+
+https://old.reddit.com/r/sports/comments/1rof0vw/impossible_situation_iranian_womens_team_sing/o9dvwrb/
+
+MEDIA_ECOLOGY_OBSERVATION - note that the comment makes no claim who or which falsehoods or which topic... just a generic comment of how "obvious" it is. I find none of these obvious which is why I'm compiling and discussing the cult media behaviors of religions (science fictions storytelling and venues) and media ecology across decades with Marshall McLuhan and Neil Postman perspectives.
+
+https://old.reddit.com/r/sports/comments/1rof0vw/impossible_situation_iranian_womens_team_sing/o9eor7k/
+
+11 month Reddit account. Extreme generic non-specific statement.
+
+https://old.reddit.com/r/sports/comments/1rof0vw/impossible_situation_iranian_womens_team_sing/o9elhq9/
+
+https://old.reddit.com/r/Fauxmoi/comments/1rowsof/azaelia_banks_admits_she_was_paid_to_post_about/o9gu4hw/
+
+MEDIA_ECOLOGY_OBSERVATION 
+
+https://old.reddit.com/r/Fauxmoi/comments/1rowsof/azaelia_banks_admits_she_was_paid_to_post_about/o9gurmg/
+
+GULLIBLE_FANDOM - Reddit users can not see their own compulsive attraction to bad-ass leaders like ELon Musk and Donald Trump. DENIAL_ABOUNDS of the self-awareness levels of Marshall McLuhan and Neil Postman about mass media consumers (Reddit commenting creators inclusive).
+
+https://old.reddit.com/r/Fauxmoi/comments/1rowsof/azaelia_banks_admits_she_was_paid_to_post_about/o9gvpfe/
+
+The ANTI_WIKI_ANTI_FAQ behaviors of social media users (Reddit) since year 2013 have paved the way. People are so addicted to anti-organizing commenting as "engagement" that the population is all on different pages. Instead of getting on the same page of important topics using tools like Wiki and FAQ. Brain rot abounds since year 2013 with tiny short commenting that leads people all into alternate realities.
