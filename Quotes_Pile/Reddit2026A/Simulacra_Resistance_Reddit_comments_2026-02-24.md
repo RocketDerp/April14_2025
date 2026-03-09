@@ -157,3 +157,7 @@ Top-upvoted most popular comment. This isn't resisting, this is Truth Social rea
 https://old.reddit.com/r/pics/comments/1rofcl5/as_war_rages_in_the_middle_east_gas_prices/o9diwca/
 
 2nd most upvoted popular comment. Pro-hate, mind-blown by hate. Simplistic commenting, predictable mindset. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING Reddit community is a hate-watching fandom that follows the Trump images and pushes them again and again to /r/All front page. ATTRACTION_TO_HATE_LEADERS_HATE_FOLLOWERS
+
+https://old.reddit.com/r/nottheonion/comments/1rovbe6/white_house_sent_wtf_message_to_israel_after_iran/o9gkgu9/
+
+"These idiots", look at the comment message. In what way is it resisting "idiot" ideas and mindsets? The entire world stage of history does not care who you think the idiot is - the abandonment of non-fiction is evident right on Reddit. Why is there no Reddit blackout protest calling for Trump's removal? Why is adult education not being given on Reddit to turn around the ignorance and badness? ANSWER: Reddit is a fandom of the idiocy. Reddit is The Media covering and hosting commenting of play by play of the leaders of ignorance. Reddit fandom is followers of ignorance.
