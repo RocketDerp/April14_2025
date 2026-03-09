@@ -190,3 +190,6 @@ https://old.reddit.com/r/worldnews/comments/1rpa9u1/trump_tells_cbs_that_iran_wa
 
 SYMBOLISM_GUMBO Trump is a master arranger of mind-fucking patterns. Surkov students won since year 2013.
 
+https://old.reddit.com/r/worldnews/comments/1rpa9u1/trump_tells_cbs_that_iran_war_is_very_complete/o9jkmlf/
+
+TRUMP_FANDOM hanging on every Trump statement and CBS television word. Media cult of Reddit flocks to Trump content provider.
