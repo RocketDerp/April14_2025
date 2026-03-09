@@ -75,3 +75,6 @@ https://old.reddit.com/r/politics/comments/1rp2yry/peter_thiel_and_jeffrey_epste
 
 EPSTEIN_FANDOM on Reddit thrilled to have new fantasy island material. ANYTHING to avoid promoting and repeating Dr. Bandy X Lee's 27 writers in her book and reforming society. SEX_SELLS_SEX_LEADERS
 
+https://old.reddit.com/r/okbuddychicanery/comments/1rp15k1/what_did_the_white_house_mean_by_this/o9hp6n1/
+
+NONSENSE_HARDER is the constant desire of MAGA fandoms. Always wanting more fiction in society and government. That's what Trumpism provides, fiction addicts constantly amused and "circle jerking" at Trumpism.
