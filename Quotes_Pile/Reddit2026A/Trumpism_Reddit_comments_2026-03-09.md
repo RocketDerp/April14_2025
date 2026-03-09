@@ -46,3 +46,7 @@ BEYOND_DENIAL beyond the common denial.
 https://old.reddit.com/r/news/comments/1rp0a83/iran_may_be_activating_sleeper_cells_alert_says/o9hogqd/
 
 Trump and MAGA have wrapped themselves in the Levant science fiction Bible storybook. People in Iran are not going to ignore the Bible thumping fandom of USA. MONOMYTH_VS_MONOMYTH  
+
+https://old.reddit.com/r/news/comments/1rp0a83/iran_may_be_activating_sleeper_cells_alert_says/o9hq0l1/
+
+TRUMP_FANDOM using Reddit to comment is always thrilled to have LOLCOW to milk. PEOPLE_LOVE_COMEDY_MEDIA_CONTENT_MORE_THAN_PLURIBUS_HUMANISM
