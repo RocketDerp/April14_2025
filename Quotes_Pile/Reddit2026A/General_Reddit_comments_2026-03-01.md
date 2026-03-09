@@ -181,3 +181,11 @@ MEDIA_ECOLOGY_OBSERVATION WIDE_RADICAL_DOUBT_ABOUT_REAL
 https://old.reddit.com/r/technology/comments/1roe1fa/were_training_students_to_write_worse_to_prove/o9egmco/
 
 Or do most of your work live in the GitHub servers and do regular commits, including mistakes. THIS_GITHUB
+
+https://old.reddit.com/r/technology/comments/1roe1fa/were_training_students_to_write_worse_to_prove/o9dzb1c/
+
+And I am a published technical writer. People are so dehumanizing it has shredded my brain. BABEL_TOWER and CONCERNS_OF_FINNEGANS focus of the shallow-prizing mockery that billionaires have programmed into minds. Donald Trump is the role model of communications and success in USA 2026 and has been since June 16, 2015. Winning by blowing minds. Style over substance is what Trump represents. A measuring bar so low everyone can rage in their egomania how dumb Trump sounds.
+
+* "Imagine my shock as a neurodivergent teen when I first realized that using large vocabulary and eloquent speech doesn't make you less likely to be misinterpreted, rather it adds an entirely new layer of misinterpretation I had never even realized existed in the form of people thinking you're being snobbish or condescending when you're just trying to be specific" - vesper_of_roses June 23, 2023.
+
+* “English, strictly speaking, is not my first language by the way. I haven't yet discovered what my first language is so for the time being I use English words in order to say things. I expect I will always have to do it that way; regrettably I don't think my first language can be written down at all. I'm not sure it can be made external you see. I think it has to stay where it is; simmering in the elastic gloom betwixt my flickering organs.” ― Claire-Louise Bennett
