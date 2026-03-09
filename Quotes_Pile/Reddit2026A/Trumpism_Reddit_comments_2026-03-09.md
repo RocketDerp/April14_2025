@@ -98,3 +98,7 @@ https://old.reddit.com/r/Irony/comments/1royxe9/this_man_has_no_common_sense_or_
 https://old.reddit.com/r/TikTokCringe/comments/1rp4xf9/i_found_this_pretty_inspirational_right_now/o9ihurw/
 
 Top most upvoted comment on Reddit posting! IMPORTANT_QUOTES_A - alas, people need to turn to nonfiction from Neil Postman about George Orwell and Fox News, Reddit, Twitter. "Amusing Ourselves To Death" explains Trumpism celebrity fandom cults. People need to mount an intellectual rescue. BRAIN_ROT_SOCIETY_47
+
+https://old.reddit.com/r/TikTokCringe/comments/1rp4xf9/i_found_this_pretty_inspirational_right_now/o9ihiri/
+
+140 character or less Twitter-think mindset. Donald Trump is a real estate, land lord, land owner. The same as the famous Luigi answer. JANUARY_1944_SECOND_BILL_OF_RIGHTS addresses UNIVERSITY, Housing, food, farming, health care, and monopoly media power! Not just health care. Further, this message is TRUMP_FANDOM as it does not care of Trump is still in power... no call for immediate removal. Trump would add $2,800.00 a month rent increase to pay for health care and people would ignorantly cheer it on as "free" health care. The Second Bill of Rights addresses the entire equation. CALL_FOR_ACTION_TO_DO_TRIVIAL_CHANGE with Twitter-length short-message mindsets.
