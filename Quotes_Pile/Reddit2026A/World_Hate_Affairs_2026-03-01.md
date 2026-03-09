@@ -867,3 +867,7 @@ Top most-upvoted popular comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER
 https://old.reddit.com/r/worldnews/comments/1roey29/tehran_indicates_khameneis_son_will_be_named/o9dg19d/
 
 PREDICTION_A
+
+https://old.reddit.com/r/sports/comments/1rof0vw/impossible_situation_iranian_womens_team_sing/o9dhpha/
+
+1 month Reddit account, 2nd most popular upvoted comment. 11 month account has 1st most popular and is also submitter of the post. NOT_GOOD_ENOUGH Malala's books and promoting and supporting Malala since year 2013 on social media. People need to organize, and Malala intelligently organized the topics in year 2013 as a global topic. SEE_ALSO https://github.com/RocketDerp/April14_2025/blob/main/PostMalala/Marriage/World_Malala_Timeline_Year_2012.md
