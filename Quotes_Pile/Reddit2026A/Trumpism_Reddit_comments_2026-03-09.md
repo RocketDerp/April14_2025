@@ -229,3 +229,7 @@ Left vs. right brain rot. Instead of naming an EXAMPLE nation and time period. I
 https://old.reddit.com/r/Music/comments/1rpbeou/maynard_james_keenan_im_always_going_to_side/o9jx9cf/
 
 WHEN_THE_PEOPLE_HAVE_LOST_THE_ABILITY as Carl Sagan wrote in his 1995 nonfiction book.
+
+https://old.reddit.com/r/Music/comments/1rpbeou/maynard_james_keenan_im_always_going_to_side/o9k9fig/
+
+Machine lovers, technology love. MASS_DEHUMANIZATION_POPULAR and VINCE_GILLIGAN_WAS_CORRECT February 15, 2025 WGA about social media "cesspool".
