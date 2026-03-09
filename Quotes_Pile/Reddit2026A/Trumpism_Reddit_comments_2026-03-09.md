@@ -55,3 +55,6 @@ https://old.reddit.com/r/Fauxmoi/comments/1rp2g2x/kai_trump_bragging_about_makin
 
 3 month Reddit account. Top most-upvoted popular comment. Social media 140 character or less "engagement questions" to Reddit audience. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT Trump family content is very popular on Reddit /r/All front page. Reddit earns money with the Trump popularity.
 
+https://old.reddit.com/r/Fauxmoi/comments/1rp2g2x/kai_trump_bragging_about_making_her/o9hyr9r/
+
+EVERYTHING_IS_MEDIA_ECOLOGY Everything is media. Reddit users can't see their own compulsive upvoting of Trump family content.
