@@ -71,4 +71,7 @@ https://old.reddit.com/r/AskSocialists/comments/1rp1xvw/is_trump_a_traitor_to_th
 
 This posting was so incredibly popular it made it to /r/All front page. ATTRACTION_TO_SHIT_CONTENT_ENSHIT_BY_DESIRE - the brain rot of the population is Trumpism. Surkov won since year 2013. BRAIN_ROT_SOCIETY_47 observe again that the entire Reddit community is not upvoting Dr. Bandy X Lee or Jen Senko to the front page over and over like these Trump images and other fandom behaviors. There is no Reddit protest of Trump there is media engagement questions that are popular.
 
+https://old.reddit.com/r/politics/comments/1rp2yry/peter_thiel_and_jeffrey_epstein_had_a_yearslong/o9i402i/
+
+EPSTEIN_FANDOM on Reddit thrilled to have new fantasy island material. ANYTHING to avoid promoting and repeating Dr. Bandy X Lee's 27 writers in her book and reforming society. SEX_SELLS_SEX_LEADERS
 
