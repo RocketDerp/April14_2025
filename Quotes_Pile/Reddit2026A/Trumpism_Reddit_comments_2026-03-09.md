@@ -6,6 +6,8 @@ BRAIN_ROT_SOCIETY_47 Shit-commenting and shit-posting ruined the USA since year 
 
 Social post { https://autistics.life/@RoundSparrow/116200002923424692 https://bsky.app/profile/roundsparrow.bsky.social/post/3mgn7e5m62c2a }   
 
+TECHNICAL_NOTE_A I did not use the #RCCxxxx #TrumpThrillxx hashtags on these social posts, just felt like not doing it these couple of posts. I may duplicate the images and post again.
+
 https://old.reddit.com/r/news/comments/1rp0a83/iran_may_be_activating_sleeper_cells_alert_says/o9hkskb/
 
 "penalty", PENALTY? Reward! Trump has been rewarded with the camera images on /r/All front page every hour of every day since June 16, 2015. MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL Media mania, crowd frenzy, Trump fandom of hate-watching! PUNISHMENT_AND_REWARD The crowd on REDDIT is a REWARD, media cult.
