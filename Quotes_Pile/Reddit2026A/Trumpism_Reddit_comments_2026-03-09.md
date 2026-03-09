@@ -42,3 +42,7 @@ Beyond the common denial of nonfiction. People were TOLD that Russia was WW3 and
 https://old.reddit.com/r/news/comments/1rp0a83/iran_may_be_activating_sleeper_cells_alert_says/o9hklnd/
 
 BEYOND_DENIAL beyond the common denial.
+
+https://old.reddit.com/r/news/comments/1rp0a83/iran_may_be_activating_sleeper_cells_alert_says/o9hogqd/
+
+Trump and MAGA have wrapped themselves in the Levant science fiction Bible storybook. People in Iran are not going to ignore the Bible thumping fandom of USA. MONOMYTH_VS_MONOMYTH  
