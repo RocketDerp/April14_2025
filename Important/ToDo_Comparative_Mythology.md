@@ -115,3 +115,8 @@ https://old.reddit.com/r/CuratedTumblr/comments/1rjpvpi/peoples_bodies_are_not_t
 
 https://www.youtube.com/watch?v=40lmQUjGJPQ    
 Excellent descriptions    
+
+&nbsp;
+
+https://old.reddit.com/r/Music/comments/1roi11g/jack_white_on_why_he_doesnt_write_political_songs/   
+Music lyrics vs. religion poetry    
