@@ -37,4 +37,8 @@ Trump DOES give a flying-fuck, it gets him more and more attention. People are i
 
 https://old.reddit.com/r/news/comments/1rp0a83/iran_may_be_activating_sleeper_cells_alert_says/o9hwscm/
 
-Beyond the common denial of nonfiction. People were TOLD that Russia was WW3 and not Germany like WW1 and WW2. But people in USA are so TRUMP_BLIND they can't see the Trump + Putin relationship. DENIAL_ABOUNDS .. PUTIN_SURKOV_TRUMP_LONG_TERM_YEARS_PLAN
+Beyond the common denial of nonfiction. People were TOLD that Russia was WW3 and not Germany like WW1 and WW2. But people in USA are so TRUMP_BLIND they can't see the Trump + Putin relationship. DENIAL_ABOUNDS .. PUTIN_SURKOV_TRUMP_LONG_TERM_YEARS_PLAN ... REAL_WW3
+
+https://old.reddit.com/r/news/comments/1rp0a83/iran_may_be_activating_sleeper_cells_alert_says/o9hklnd/
+
+BEYOND_DENIAL beyond the common denial.
