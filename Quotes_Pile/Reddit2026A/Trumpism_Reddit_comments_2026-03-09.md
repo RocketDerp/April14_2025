@@ -225,3 +225,7 @@ NOT_GOOD_ENOUGH MLK Jr on Reddit tech lovers. 1-bit polarity logic. Must have an
 https://old.reddit.com/r/Music/comments/1rpbeou/maynard_james_keenan_im_always_going_to_side/o9jyi83/
 
 Left vs. right brain rot. Instead of naming an EXAMPLE nation and time period. Instead of creating a named Wiki or manifest with LISTED SPECIFIC values. BRAIN_ROT_LEFT_RIGHT_LIB_CON_NAME_AVOIDANCE
+
+https://old.reddit.com/r/Music/comments/1rpbeou/maynard_james_keenan_im_always_going_to_side/o9jx9cf/
+
+WHEN_THE_PEOPLE_HAVE_LOST_THE_ABILITY as Carl Sagan wrote in his 1995 nonfiction book.
