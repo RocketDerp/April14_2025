@@ -103,4 +103,14 @@ https://youtu.be/Rnpozvy2gSQ?t=6950
 
 The technology words - people  and health care in USA. The glee Fox News HDTV audiences cheer on suffering based on gender / liberal vs. conservative / outside nation / outside relition.
 
-HOw do you use John One One. Beyond words.
+How do you use John One One. Beyond words.
+
+&nbsp;
+
+# Reality via Words
+
+AvE    
+"Puke and Rinse Male Bag!"    
+https://youtu.be/UZCiHVZ_xZs?t=924     
+
+CONCERNS_OF_FINNEGANS   
