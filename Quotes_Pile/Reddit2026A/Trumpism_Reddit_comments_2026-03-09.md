@@ -181,3 +181,8 @@ MIND_BLOWN_BY all the things in 1985, Ronald Reagan's second POTUS term, Neil Po
 https://old.reddit.com/r/news/comments/1rpaj37/exclusive_ai_error_likely_led_to_iran_girls/o9jm3nh/
 
 I blame the pro-ignorance short-length top-upvoted most popular comment. Brain rot since year 2013. Surkov won. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
+
+https://old.reddit.com/r/news/comments/1rpaj37/exclusive_ai_error_likely_led_to_iran_girls/o9jmy8y/
+
+UNITED_IN_BLAMING_ONE_THIRD_HATE_VS_HATE_ANTI_RESCUE "70%" commenting. Then why isn't TODAY, right now, Reddit community not quoting nonfiction relevant books from Dr. Bandy X Lee? ANSWER: It isn't only 1/3 showing Twitter-think reactionary brain rot behaviors. it is entire society giving us ALL brain damage, 100%. Me included. Observe the avoidance of Dr. Lee. Reddit community is not having a blackout protest.
+
