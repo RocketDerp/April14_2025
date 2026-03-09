@@ -931,3 +931,8 @@ https://old.reddit.com/r/politics/comments/1roibw7/dow_jones_futures_tumble_oil_
 
 An entire nation can't admit to the brain rot of reality TV "The Apprentice" and celebrity. An entire nation can't admit to Twitter-thinking mindsets and high-speed commenting addictions. BRAIN_ROT_SOCIETY_47 observe the constant avoidance of nonfiction serious books on paper by Dr. Bandy X Lee and lack of social media blackout protests. MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL Surkov won since year 2013.
 
+https://old.reddit.com/r/politics/comments/1roibw7/dow_jones_futures_tumble_oil_tops_110_iran_names/o9e998x/
+
+https://old.reddit.com/r/politics/comments/1roibw7/dow_jones_futures_tumble_oil_tops_110_iran_names/o9e41l8/
+
+Banality commenting. Parroting the White House talking points. REMEMBER_THE_PROGRAM_IDEAS_BILLIONAIRES_FED_REDDIT_AUDIENCE Notice the avoidance of promoting Jen Senko and Dr. Bandy X Lee. People spending free time and spare time making banal fandom comments.
