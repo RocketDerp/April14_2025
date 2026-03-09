@@ -211,3 +211,7 @@ YOU_MUST_HATE_EX_LOVERS topic, see replies too.
 https://old.reddit.com/r/PeterExplainsTheJoke/comments/1rp3417/help_please/o9ifej6/
 
 COMPARATIVE_MYTHOLOGY lesson here! This is something most people do not get. John Lennon even had a song "Instant Karma" in February 1970 https://en.wikipedia.org/wiki/Instant_Karma! , with the EMPHASIS on "Instant", because traditional karma is in the next lifetime. 
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1rp3417/help_please/o9iefno/
+
+YOU_MUST_HATE_EX_LOVERS
