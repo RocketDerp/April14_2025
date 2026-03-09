@@ -91,3 +91,6 @@ https://old.reddit.com/r/Irony/comments/1royxe9/this_man_has_no_common_sense_or_
 
 1 month Reddit account. DOWNPLAYING_DANGER_MINIMIZING_THREATS - just low-effort commenting about how normal and routine Trump is as discussion about his makeup, clothing, fashion, style. Trump fandom can never get enough images of Donald Trump on /r/All front page of Reddit. This has been going on with Reddit community since June 16, 2015 - nearly eleven full years of cult fandom of Trump photos and fashion.
 
+https://old.reddit.com/r/Irony/comments/1royxe9/this_man_has_no_common_sense_or_decency/o9h94u4/
+
+5 month Reddit account. TRUMP_FANDOM believes that what people need is MORE ATTENTION on Donald Trump. NONSENSE_HARDER - messages on Reddit are encouraging even MORE toxic popularity. More cult images of Trump's unique fashion, style, charm, symbolism arranging.
