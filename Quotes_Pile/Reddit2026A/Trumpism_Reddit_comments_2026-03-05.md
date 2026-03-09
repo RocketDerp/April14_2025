@@ -948,3 +948,7 @@ CALL_FOR_ACTION_TO_DO_TRIVIAL_CHANGE instead of concern for the national mindset
 https://old.reddit.com/r/UnderReportedNews/comments/1rombnf/karoline_leavitt_white_house_press_secretary_does/o9ex2t3/
 
 Top-upvoted most popular comment. Imagine a social media device society that can't recognize that reaction-commenting about Trump and White House is not resisting. Day after day people react to Trump in predictable patterns. ROUTINE_NO_NEED_TO_RESIST_OR_ORGANIZE_INTELLECTUAL_UPRISING
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1rondjh/when_theyve_lost_matt_walsh_you_know_theyre_in/o9f3ojj/
+
+Top most upvoted popular comment. Tiny-short Twitter-logic think. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING Essentially programming the Reddit audience to give up, anti-humanism, anti-intellectual, anti-reform of mindsets, just go along with the flow of Twitter-thinking billionaire Elon Musk programmed mindsets. Just like the Fox News HDTV cult crisis, don't lift a finger and turn to nonfiction serious books on the relevant subjects. GIVE_UP_ANTI_EDUCATION_ANTI_TEACH_ANTI_PROGRESS
