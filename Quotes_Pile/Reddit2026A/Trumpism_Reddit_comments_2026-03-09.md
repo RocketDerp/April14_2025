@@ -155,3 +155,7 @@ PREDATORY_BILLIONAIRE_SYSTEMS systemic mass dehumanization. /r/Technology loves 
 https://old.reddit.com/r/technology/comments/1rp6m5d/ai_error_likely_led_to_girls_school_bombing_in/o9ive1l/
 
 Yes. Meme-culture meme-addicts meme-addled Reddit fandom is the audience of this message. South Park thinking. Twitter-think. "know your audience" in media, written just for the Reddit fandom of technology. TREND_CHASING_MEDIA_TRENDING
+
+https://old.reddit.com/r/technology/comments/1rp6m5d/ai_error_likely_led_to_girls_school_bombing_in/o9ix7pa/
+
+/r/Technology community. TECH_LUST_TECH_LOVERS
