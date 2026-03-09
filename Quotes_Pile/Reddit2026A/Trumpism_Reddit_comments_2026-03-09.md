@@ -201,3 +201,17 @@ SURKOV_SHUFFLE is often complex dance routines. Disco ball metaphor of reflectin
 https://old.reddit.com/r/SipsTea/comments/1rpb5ke/operation_epstein_fury/o9jqwyi/
 
 Top-most upvoted popular comment. As long as Trump symbolism arrangements and content provides laughs. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING CHUCKLEHEAD_NATION
+
+https://old.reddit.com/r/Music/comments/1rpbeou/maynard_james_keenan_im_always_going_to_side/o9k34zh/
+
+COMPARATIVE_MYTHOLOGY 
+
+https://old.reddit.com/r/Music/comments/1rpbeou/maynard_james_keenan_im_always_going_to_side/o9k2v05/
+
+HATE_HARDER tech machine lovers.
+
+https://old.reddit.com/r/Music/comments/1rpbeou/maynard_james_keenan_im_always_going_to_side/o9kdfi3/
+
+https://old.reddit.com/r/Music/comments/1rpbeou/maynard_james_keenan_im_always_going_to_side/o9k6z0v/
+
+SEE_ALSO https://GitHub.com/GreatSealUSA/GreatSealUSA_Art/tree/main/TwoAndOnlyTw0
