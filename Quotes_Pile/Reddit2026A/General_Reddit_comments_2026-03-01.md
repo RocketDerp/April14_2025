@@ -174,3 +174,6 @@ https://old.reddit.com/r/technology/comments/1roe1fa/were_training_students_to_w
 
 "Welcome" in year 2026? NOT_GOOD_ENOUGH author Neil Postman wrote the books on it over and over. SEE_ALSO https://en.wikiquote.org/wiki/Neil_Postman
 
+https://old.reddit.com/r/technology/comments/1roe1fa/were_training_students_to_write_worse_to_prove/o9e2qqx/
+
+MEDIA_ECOLOGY_OBSERVATION WIDE_RADICAL_DOUBT_ABOUT_REAL
