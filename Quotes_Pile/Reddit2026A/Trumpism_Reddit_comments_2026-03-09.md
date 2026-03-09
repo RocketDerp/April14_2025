@@ -78,3 +78,7 @@ EPSTEIN_FANDOM on Reddit thrilled to have new fantasy island material. ANYTHING 
 https://old.reddit.com/r/okbuddychicanery/comments/1rp15k1/what_did_the_white_house_mean_by_this/o9hp6n1/
 
 NONSENSE_HARDER is the constant desire of MAGA fandoms. Always wanting more fiction in society and government. That's what Trumpism provides, fiction addicts constantly amused and "circle jerking" at Trumpism.
+
+https://old.reddit.com/r/okbuddychicanery/comments/1rp15k1/what_did_the_white_house_mean_by_this/o9hy64c/
+
+VINCE_GILLIGAN_WAS_CORRECT about fandoms of Walter White on his February 15, 2025 WGA public speech about social media being a "cesspool".
