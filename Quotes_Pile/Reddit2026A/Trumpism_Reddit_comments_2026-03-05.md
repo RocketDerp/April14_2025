@@ -914,3 +914,7 @@ https://old.reddit.com/r/Fauxmoi/comments/1robs7j/trump_tries_his_tugofwar_hands
 https://old.reddit.com/r/Fauxmoi/comments/1robs7j/trump_tries_his_tugofwar_handshake_with_the/o9crjd5/
 
 2nd most popular upvoted comment. This isn't wanting to remove Trump from office, this is entertainment-seeking. That's Trump's profession in life, entertainer, amusement provider. CALL_FOR_ACTION_TO_DO_TRIVIAL_CHANGE
+
+https://old.reddit.com/r/Fauxmoi/comments/1robs7j/trump_tries_his_tugofwar_handshake_with_the/o9ct68r/
+
+Entertained by Trump. ENTERTAINED_JUST_PASSIVELY_WATCHING_UNTIL_DEATH_NO_SOCIAL_MEDIA_UPRISING_WHILE_ALIVE
