@@ -871,3 +871,7 @@ PREDICTION_A
 https://old.reddit.com/r/sports/comments/1rof0vw/impossible_situation_iranian_womens_team_sing/o9dhpha/
 
 1 month Reddit account, 2nd most popular upvoted comment. 11 month account has 1st most popular and is also submitter of the post. NOT_GOOD_ENOUGH Malala's books and promoting and supporting Malala since year 2013 on social media. People need to organize, and Malala intelligently organized the topics in year 2013 as a global topic. SEE_ALSO https://github.com/RocketDerp/April14_2025/blob/main/PostMalala/Marriage/World_Malala_Timeline_Year_2012.md
+
+https://old.reddit.com/r/sports/comments/1rof0vw/impossible_situation_iranian_womens_team_sing/o9dvwrb/
+
+MEDIA_ECOLOGY_OBSERVATION - note that the comment makes no claim who or which falsehoods or which topic... just a generic comment of how "obvious" it is. I find none of these obvious which is why I'm compiling and discussing the cult media behaviors of religions (science fictions storytelling and venues) and media ecology across decades with Marshall McLuhan and Neil Postman perspectives.
