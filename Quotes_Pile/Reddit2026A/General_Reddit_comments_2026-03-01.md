@@ -199,3 +199,7 @@ Same with being deported from USA or blocked on Bluesky or Reddit by peer accoun
 https://old.reddit.com/r/ExplainTheJoke/comments/1roxn9r/what_does_it_mean/o9h4kve/
 
 TOO_MUCH_LOVE_IS_INSANE_BUT_MAD_MILITARY_DOCTRINE_AND_AVOIDANCE_NON_FICTION
+
+https://old.reddit.com/r/whennews/comments/1rp0nbi/what_is_wrong_with_people/o9hwh01/
+
+BRAIN_ROT_SOCIETY_47 
