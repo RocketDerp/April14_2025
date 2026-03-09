@@ -986,3 +986,7 @@ https://old.reddit.com/r/politics/comments/1rowqmi/trump_triggers_world_financia
 https://old.reddit.com/r/politics/comments/1rowqmi/trump_triggers_world_financial_panic_as_war_chaos/o9gx5sz/
 
 1 month Reddit account. Programming the Tweet-thinking patterns in the audience that all that matters is commenting about it. "this is fine" isn't satire or sarcasm, it has gone on for over a decade on Reddit of reaction-commenting and joke-washing Trump as a source of memes and entertainment. These messages aren't sarcasm, they serve to normalize the situation. OBSERVE_MEDIA_AVOIDANCE_OF_RELEVANT_NONFICTION
+
+https://old.reddit.com/r/politics/comments/1rowqmi/trump_triggers_world_financial_panic_as_war_chaos/o9gzvya/
+
+"LOL". Amused and entertained making Twitter-thinking short message comments. TRUMP_FANDOM celebrating ignorance. WHEN_THE_PEOPLE_HAVE_LOST_THE_ABILITY
