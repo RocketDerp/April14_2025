@@ -207,3 +207,7 @@ This is a critical Reddit comment message to comprehend. The person is not askin
 https://old.reddit.com/r/LeagueOfMemes/comments/1rp3uxv/is_us_ok/o9ie9cw/
 
 SURKOVIAN_ONION_EATING on Reddit to not understand or know history of Surkov in Russia.
+
+https://old.reddit.com/r/LeagueOfMemes/comments/1rp3uxv/is_us_ok/o9iamd1/
+
+See the replies to this comment. STAND_UP_FOR_THE_BIG_GUY
