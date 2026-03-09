@@ -66,3 +66,9 @@ And every day Reddit cult of media milks ignorance for LOL comedy. LOLCOW milkin
 https://old.reddit.com/r/AskSocialists/comments/1rp1xvw/is_trump_a_traitor_to_the_american_people/o9hulch/
 
 SELF_HARM_USA - but the key thing to witness is the cult of media around the topic of Trump. This isn't new in year 2026, it has been constant media cult behavior for over a decade on media platforms.
+
+https://old.reddit.com/r/AskSocialists/comments/1rp1xvw/is_trump_a_traitor_to_the_american_people/o9hyms8/
+
+This posting was so incredibly popular it made it to /r/All front page. ATTRACTION_TO_SHIT_CONTENT_ENSHIT_BY_DESIRE - the brain rot of the population is Trumpism. Surkov won since year 2013. BRAIN_ROT_SOCIETY_47 observe again that the entire Reddit community is not upvoting Dr. Bandy X Lee or Jen Senko to the front page over and over like these Trump images and other fandom behaviors. There is no Reddit protest of Trump there is media engagement questions that are popular.
+
+
