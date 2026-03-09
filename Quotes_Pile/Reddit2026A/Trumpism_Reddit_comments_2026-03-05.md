@@ -960,3 +960,7 @@ Note the generic clickbait title of this Reddit posting, not naming the person, 
 https://old.reddit.com/r/GetNoted/comments/1roj4wb/holy_sht_both_the_aipushing_post_and_the_former/o9e96jj/
 
 MOCK_MOCK_MOCKERY MEDIA_ECOLOGY_OBSERVATION   
+
+https://old.reddit.com/r/politics/comments/1roqokb/key_details_of_13yearold_trump_accusers_accounts/o9fwbgp/
+
+EPSTEIN_FANDOM MEDIA_ECOLOGY_OBSERVATION in edit of comment message.
