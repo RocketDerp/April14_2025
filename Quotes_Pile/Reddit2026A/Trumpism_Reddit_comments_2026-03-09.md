@@ -146,3 +146,8 @@ https://old.reddit.com/r/law/comments/1rp6o6q/kristi_noem_stole_143m_of_us_tax_p
 
 GULLIBILITY_CRISIS and Elon Musk fandom talking points. REMEMBER_THE_PROGRAM_IDEAS_BILLIONAIRES_FED_REDDIT_AUDIENCE observe that these short-length comments make no call to resist, just ask simple "engagement questions" media techniques.
 
+https://old.reddit.com/r/technology/comments/1rp6m5d/ai_error_likely_led_to_girls_school_bombing_in/o9iw356/
+
+PREDATORY_BILLIONAIRE_SYSTEMS systemic mass dehumanization. /r/Technology loves it when people can blame the computers. 
+
+* “Naturally, bureaucrats can be expected to embrace a technology that helps to create the illusion that decisions are not under their control. Because of its seeming intelligence and impartiality, a computer has an almost magical tendency to direct attention away from the people in charge of bureaucratic functions and toward itself, as if the computer were the true source of authority. A bureaucrat armed with a computer is the unacknowledged legislator of our age, and a terrible burden to bear.” ― Neil Postman, Technopoly: The Surrender of Culture to Technology. year 1992.
