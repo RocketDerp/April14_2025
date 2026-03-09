@@ -15,3 +15,7 @@ https://old.reddit.com/r/news/comments/1rp0a83/iran_may_be_activating_sleeper_ce
 https://old.reddit.com/r/news/comments/1rp0a83/iran_may_be_activating_sleeper_cells_alert_says/o9hrzzt/
 
 MEDIA_ECOLOGY_OBSERVATION country music, see replies
+
+https://old.reddit.com/r/news/comments/1rp0a83/iran_may_be_activating_sleeper_cells_alert_says/o9his2k/
+
+Reddit community (MAGA fandom in reality) can not resist asserting and repeating their favorite White House bullshit messaging. While at the same time avoiding and not repeating Dr. Bandy X Lee's important and relevant nonfiction books on paper. REMEMBER_THE_PROGRAM_IDEAS_BILLIONAIRES_FED_REDDIT_AUDIENCE
