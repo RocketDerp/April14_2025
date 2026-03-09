@@ -195,3 +195,7 @@ https://old.reddit.com/r/BrandNewSentence/comments/1romdhc/permanently_banned_fo
 https://old.reddit.com/r/BrandNewSentence/comments/1romdhc/permanently_banned_for_harshing_the_village_mellow/o9ezk6k/
 
 Same with being deported from USA or blocked on Bluesky or Reddit by peer accounts. Egoism. SUPERFICIAL_SHALLOW_PRIZING_TRUMPISM_MAGA_VALUES
+
+https://old.reddit.com/r/ExplainTheJoke/comments/1roxn9r/what_does_it_mean/o9h4kve/
+
+TOO_MUCH_LOVE_IS_INSANE_BUT_MAD_MILITARY_DOCTRINE_AND_AVOIDANCE_NON_FICTION
