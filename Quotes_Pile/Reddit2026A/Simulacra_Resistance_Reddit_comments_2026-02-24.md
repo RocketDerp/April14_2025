@@ -189,3 +189,7 @@ The key word here is priorities of free time and spare time. The commenting is t
 https://old.reddit.com/r/clevercomebacks/comments/1rp7w27/priorities_of_the_1/o9j2kw2/
 
 Fixated on one family. TRUMP_FAMILY_FIXATED_BRAIN_ROT_EVERY_DAY_FOX_NEWS_TWITTER_ETC
+
+https://old.reddit.com/r/LeagueOfMemes/comments/1rp3uxv/is_us_ok/o9i8zyv/
+
+WIDE_RADICAL_DOUBT_ABOUT_REAL We the People are eating right out of the hands of media empires, gaming intellectual property owners, Trumpism. Elon Musk, richest man in the world, owns Twitter. Anti-reality pro-simulation. 
