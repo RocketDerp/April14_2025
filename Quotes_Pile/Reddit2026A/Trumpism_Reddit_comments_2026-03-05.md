@@ -944,3 +944,7 @@ Again, this commenting is not resisting the ignorance of the White House. it's f
 https://old.reddit.com/r/politics/comments/1roibw7/dow_jones_futures_tumble_oil_tops_110_iran_names/o9eqt29/
 
 CALL_FOR_ACTION_TO_DO_TRIVIAL_CHANGE instead of concern for the national mindsets and widespread brain rot in society, only fixated on messaging changes of the White House, trivialities. Not calling for intellectual reform and authentic progress, just little changes in the screenplay.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rombnf/karoline_leavitt_white_house_press_secretary_does/o9ex2t3/
+
+Top-upvoted most popular comment. Imagine a social media device society that can't recognize that reaction-commenting about Trump and White House is not resisting. Day after day people react to Trump in predictable patterns. ROUTINE_NO_NEED_TO_RESIST_OR_ORGANIZE_INTELLECTUAL_UPRISING
