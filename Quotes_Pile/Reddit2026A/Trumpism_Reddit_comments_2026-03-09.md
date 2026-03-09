@@ -19,3 +19,15 @@ MEDIA_ECOLOGY_OBSERVATION country music, see replies
 https://old.reddit.com/r/news/comments/1rp0a83/iran_may_be_activating_sleeper_cells_alert_says/o9his2k/
 
 Reddit community (MAGA fandom in reality) can not resist asserting and repeating their favorite White House bullshit messaging. While at the same time avoiding and not repeating Dr. Bandy X Lee's important and relevant nonfiction books on paper. REMEMBER_THE_PROGRAM_IDEAS_BILLIONAIRES_FED_REDDIT_AUDIENCE
+
+https://old.reddit.com/r/news/comments/1rp0a83/iran_may_be_activating_sleeper_cells_alert_says/o9hx6ur/
+
+Yes. Killing children is as bad as raping children on a private island. There are more than one form of evil that Trump is doing. He is harming the future of the entire Earth. Children's future is damaged with pollution. EPSTEIN_FANDOM thinks that information files are what motivates Donald Trump. He has documented crimes his entire adult lifetime, and even his father had housing crimes against We The People, and the family brand only has grown in strength ever since his grandfather ran away from Germany military service. 
+
+NEW_OPERA_NAME #OnToPower   
+Social post { https://autistics.life/@RoundSparrow/116200097452352274 https://bsky.app/profile/roundsparrow.bsky.social/post/3mgnanh6e6k2a }    
+
+https://old.reddit.com/r/news/comments/1rp0a83/iran_may_be_activating_sleeper_cells_alert_says/o9hzx8m/
+
+Trump DOES give a flying-fuck, it gets him more and more attention. People are in massive psychological denial of the power that these sex acts have given him as a bad-ass super-villain mythological character. Trump fandom of hate-watching! PUNISHMENT_AND_REWARD The crowd on REDDIT is a REWARD, media cult. Observe the cult of media on Reddit does not turn to relevant nonfiction such as Jen Senko and Dr. Bandy X Lee!
+
