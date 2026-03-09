@@ -193,3 +193,9 @@ Fixated on one family. TRUMP_FAMILY_FIXATED_BRAIN_ROT_EVERY_DAY_FOX_NEWS_TWITTER
 https://old.reddit.com/r/LeagueOfMemes/comments/1rp3uxv/is_us_ok/o9i8zyv/
 
 WIDE_RADICAL_DOUBT_ABOUT_REAL We the People are eating right out of the hands of media empires, gaming intellectual property owners, Trumpism. Elon Musk, richest man in the world, owns Twitter. Anti-reality pro-simulation. 
+
+https://old.reddit.com/r/LeagueOfMemes/comments/1rp3uxv/is_us_ok/o9i9qq4/
+
+https://old.reddit.com/r/LeagueOfMemes/comments/1rp3uxv/is_us_ok/o9idqvu/
+
+REAL_PEOPLE_ADMIT that the entire nation is sick and turn to Dr. Bandy X Lee's leadership.
