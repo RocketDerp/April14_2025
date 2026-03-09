@@ -125,3 +125,7 @@ Top most-upvoted popular comment. This isn't sarcasm, this has been the constant
 https://old.reddit.com/r/worldnews/comments/1rp5i3v/iran_is_ready_for_a_long_war_with_the_us_and_only/o9ilq2m/
 
 2nd most popular upvoted comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING Anti-intellectual. WE_THE_PEOPLE_MEDIA_COMMENTING
+
+https://old.reddit.com/r/law/comments/1rp6o6q/kristi_noem_stole_143m_of_us_tax_payers_money_by/o9it6el/
+
+TRUMP_FANDOM "LOL" commenting about how amusing and comedic Trump White House is for media watchers. The top-most popular upvoted comment thinks it is funny to live in this reality TV South Park year 2025 animation mockery culture. Reddit comment creators are the fandom to Trump images and stories about POTUS Tony Clifton character players, it creates constant content to stimulate the touch media devices. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
