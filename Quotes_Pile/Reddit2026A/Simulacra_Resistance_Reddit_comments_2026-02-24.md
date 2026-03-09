@@ -169,3 +169,7 @@ Top most popular upvoted comment. RESISTING nothing. The most popular comment ab
 https://old.reddit.com/r/UnderReportedNews/comments/1rp2uev/president_trump_back_to_golfing_while_the_war_on/o9i2gkn/
 
 2nd most popular upvoted comment. Shit-talking Trump. That is not RESISTING Trump. This is a hate-watching media cult on Reddit. Waiting around on Reddit for a new Trump posting, every 15 minutes, and commenting pro-hate messages. This is following the hate leadership Trump provides! Reddit is a  hate cult, a fandom of hate. https://en.wikipedia.org/wiki/Hate-watching
+
+https://old.reddit.com/r/GreatBritishMemes/comments/1rozuvz/_/o9hfwcu/
+
+Trump Fandom of images. Top most-popular upvoted comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING this is not resisting the ignorance, this is celebrating the ignorance Trump leads with. Reddit community is followers of ignorance. Trump plays POTUS Tony Clifton character and people are attracted to Trump's character! This has been gong on for over a decade!
