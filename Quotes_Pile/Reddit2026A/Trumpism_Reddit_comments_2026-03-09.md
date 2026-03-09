@@ -58,3 +58,7 @@ https://old.reddit.com/r/Fauxmoi/comments/1rp2g2x/kai_trump_bragging_about_makin
 https://old.reddit.com/r/Fauxmoi/comments/1rp2g2x/kai_trump_bragging_about_making_her/o9hyr9r/
 
 EVERYTHING_IS_MEDIA_ECOLOGY Everything is media. Reddit users can't see their own compulsive upvoting of Trump family content.
+
+https://old.reddit.com/r/law/comments/1royl96/pete_hegseth_evades_question_on_whether_us_is_at/o9h8cap/
+
+And every day Reddit cult of media milks ignorance for LOL comedy. LOLCOW milking of how ignorance has taken over the USA since year 2013 with the Putin Media Invasion. CHUCKLEHEAD_NATION - this is the most popular upvoted comment - 140 characters or less. Reddit is now a platform to celebrate ignorance with commenting celebrations. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
