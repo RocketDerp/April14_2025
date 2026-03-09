@@ -936,3 +936,8 @@ https://old.reddit.com/r/politics/comments/1roibw7/dow_jones_futures_tumble_oil_
 https://old.reddit.com/r/politics/comments/1roibw7/dow_jones_futures_tumble_oil_tops_110_iran_names/o9e41l8/
 
 Banality commenting. Parroting the White House talking points. REMEMBER_THE_PROGRAM_IDEAS_BILLIONAIRES_FED_REDDIT_AUDIENCE Notice the avoidance of promoting Jen Senko and Dr. Bandy X Lee. People spending free time and spare time making banal fandom comments.
+
+https://old.reddit.com/r/politics/comments/1roibw7/dow_jones_futures_tumble_oil_tops_110_iran_names/o9ealxr/
+
+Again, this commenting is not resisting the ignorance of the White House. it's furthering the attitude and mindsets of ignorance. Parroting the White House talking points. REMEMBER_THE_PROGRAM_IDEAS_BILLIONAIRES_FED_REDDIT_AUDIENCE Notice the avoidance of promoting Jen Senko and Dr. Bandy X Lee. People spending free time and spare time avoiding getting on the same page at the same time and asserting goodness. This is playing into the badness, just describing and commenting. It does not address the brain rot mindsets and need to RESCUE MAGA and USA from horrific thinking patterns.
+
