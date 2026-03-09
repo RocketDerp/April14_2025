@@ -906,3 +906,11 @@ MEDIA_ECOLOGY_OBSERVATION
 https://old.reddit.com/r/pics/comments/1rogl30/priorities_of_gop_grassroots/o9dqm3h/
 
 Top most upvoted popular comment. This comment isn't resisting mocking and ignorance. It is a simulation of resisting, not resisting. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
+
+https://old.reddit.com/r/Fauxmoi/comments/1robs7j/trump_tries_his_tugofwar_handshake_with_the/o9cqtqx/
+
+8 month Reddit account. Top most upvoted popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+
+https://old.reddit.com/r/Fauxmoi/comments/1robs7j/trump_tries_his_tugofwar_handshake_with_the/o9crjd5/
+
+2nd most popular upvoted comment. This isn't wanting to remove Trump from office, this is entertainment-seeking. That's Trump's profession in life, entertainer, amusement provider. CALL_FOR_ACTION_TO_DO_TRIVIAL_CHANGE
