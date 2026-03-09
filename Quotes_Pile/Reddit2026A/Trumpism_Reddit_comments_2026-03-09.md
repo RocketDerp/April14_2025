@@ -22,6 +22,8 @@ Reddit community (MAGA fandom in reality) can not resist asserting and repeating
 
 https://old.reddit.com/r/news/comments/1rp0a83/iran_may_be_activating_sleeper_cells_alert_says/o9hx6ur/
 
+<img width="1328" height="1170" alt="Screenshot from 2026-03-09 09-07-30" src="https://github.com/user-attachments/assets/6802f72e-cd12-4356-a208-e10202b9176a" />
+
 Yes. Killing children is as bad as raping children on a private island. There are more than one form of evil that Trump is doing. He is harming the future of the entire Earth. Children's future is damaged with pollution. EPSTEIN_FANDOM thinks that information files are what motivates Donald Trump. He has documented crimes his entire adult lifetime, and even his father had housing crimes against We The People, and the family brand only has grown in strength ever since his grandfather ran away from Germany military service. 
 
 NEW_OPERA_NAME #OnToPower   
