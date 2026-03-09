@@ -211,3 +211,10 @@ SURKOVIAN_ONION_EATING on Reddit to not understand or know history of Surkov in 
 https://old.reddit.com/r/LeagueOfMemes/comments/1rp3uxv/is_us_ok/o9iamd1/
 
 See the replies to this comment. STAND_UP_FOR_THE_BIG_GUY
+
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1rp9bmv/kamala_was_totally_right/o9jdptr/
+
+"Their minds are literally goop." - no. Wrong. It is 100 percent of the society. AVOIDED_DR_BANDY_X_LEE_PUBLIC_WRITINGS Reddit and Bluesky users are all avoiding Dr. Bandy X Lee's 27 leaders. Reddit users are not promoting knowledge in the face of Trump ignorance, MAGA ignorance, it's just a dick-measuring media cult attitude of "smarter than the MAGA dumb-asses". The ENTIRE NATION has become Twitter-thinking mindsets of polarity logic. MAGA may have been first, but the media commenting and taking screen shots off Twitter (Elon Musk richest man in world owner) is happening RIGHT NOW THIS MINUTE on Twitter in March 2026! BRAIN_ROT_SOCIETY_47 is EVERYONE and needs to be viewed as a national crisis, national defense and integrity issue, not just "some people", but ALL PEOPLE joining in together to address the brain rot! A rescue from brain rot operation.
+
+The answer to MAGA being bamboozled by Elon Musk Twitter and Rupert Murdoch Fox News HDTV is not more anti-intellectual prizing. Celebrating the ignorance is not resisting ignorance. The entire nation needs to get on the same page and be quoting and repeating Dr. Bandy X Lee's 27 writers of public education for adults.
+
