@@ -875,3 +875,7 @@ https://old.reddit.com/r/sports/comments/1rof0vw/impossible_situation_iranian_wo
 https://old.reddit.com/r/sports/comments/1rof0vw/impossible_situation_iranian_womens_team_sing/o9dvwrb/
 
 MEDIA_ECOLOGY_OBSERVATION - note that the comment makes no claim who or which falsehoods or which topic... just a generic comment of how "obvious" it is. I find none of these obvious which is why I'm compiling and discussing the cult media behaviors of religions (science fictions storytelling and venues) and media ecology across decades with Marshall McLuhan and Neil Postman perspectives.
+
+https://old.reddit.com/r/sports/comments/1rof0vw/impossible_situation_iranian_womens_team_sing/o9eor7k/
+
+11 month Reddit account. Extreme generic non-specific statement.
