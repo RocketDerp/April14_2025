@@ -185,3 +185,8 @@ I blame the pro-ignorance short-length top-upvoted most popular comment. Brain r
 https://old.reddit.com/r/news/comments/1rpaj37/exclusive_ai_error_likely_led_to_iran_girls/o9jmy8y/
 
 UNITED_IN_BLAMING_ONE_THIRD_HATE_VS_HATE_ANTI_RESCUE "70 million people" commenting. Then why isn't TODAY, right now, Reddit community not quoting nonfiction relevant books from Dr. Bandy X Lee? ANSWER: It isn't only 1/3 (70 million people) showing Twitter-think reactionary brain rot behaviors. it is entire society giving us ALL brain damage, 100%. Me included. Observe the avoidance of Dr. Lee. Reddit community is not having a blackout protest. MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL
+
+https://old.reddit.com/r/worldnews/comments/1rpa9u1/trump_tells_cbs_that_iran_war_is_very_complete/o9jjuev/
+
+SYMBOLISM_GUMBO Trump is a master arranger of mind-fucking patterns. Surkov students won since year 2013.
+
