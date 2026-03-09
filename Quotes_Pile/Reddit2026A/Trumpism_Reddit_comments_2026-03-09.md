@@ -94,3 +94,7 @@ https://old.reddit.com/r/Irony/comments/1royxe9/this_man_has_no_common_sense_or_
 https://old.reddit.com/r/Irony/comments/1royxe9/this_man_has_no_common_sense_or_decency/o9h94u4/
 
 5 month Reddit account. TRUMP_FANDOM believes that what people need is MORE ATTENTION on Donald Trump. NONSENSE_HARDER - messages on Reddit are encouraging even MORE toxic popularity. More cult images of Trump's unique fashion, style, charm, symbolism arranging.
+
+https://old.reddit.com/r/TikTokCringe/comments/1rp4xf9/i_found_this_pretty_inspirational_right_now/o9ihurw/
+
+Top most upvoted comment on Reddit posting! IMPORTANT_QUOTES_A - alas, people need to turn to nonfiction from Neil Postman about George Orwell and Fox News, Reddit, Twitter. "Amusing Ourselves To Death" explains Trumpism celebrity fandom cults. People need to mount an intellectual rescue. BRAIN_ROT_SOCIETY_47
