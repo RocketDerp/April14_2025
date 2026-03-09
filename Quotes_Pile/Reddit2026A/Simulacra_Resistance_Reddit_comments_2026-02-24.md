@@ -199,3 +199,7 @@ https://old.reddit.com/r/LeagueOfMemes/comments/1rp3uxv/is_us_ok/o9i9qq4/
 https://old.reddit.com/r/LeagueOfMemes/comments/1rp3uxv/is_us_ok/o9idqvu/
 
 REAL_PEOPLE_ADMIT that the entire nation is sick and turn to Dr. Bandy X Lee's leadership.
+
+https://old.reddit.com/r/LeagueOfMemes/comments/1rp3uxv/is_us_ok/o9i9hfj/
+
+This is a critical Reddit comment message to comprehend. The person is not asking for Trump to be removed. Only concerned as a Reddit media consumer that the media team of social media be replaced. The entertainment "good taste" is all the fandom is concerned with. CALL_FOR_ACTION_TO_DO_TRIVIAL_CHANGE
