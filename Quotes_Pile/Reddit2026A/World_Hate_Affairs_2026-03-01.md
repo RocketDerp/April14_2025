@@ -893,3 +893,12 @@ GULLIBLE_FANDOM - Reddit users can not see their own compulsive attraction to ba
 https://old.reddit.com/r/Fauxmoi/comments/1rowsof/azaelia_banks_admits_she_was_paid_to_post_about/o9gvpfe/
 
 The ANTI_WIKI_ANTI_FAQ behaviors of social media users (Reddit) since year 2013 have paved the way. People are so addicted to anti-organizing commenting as "engagement" that the population is all on different pages. Instead of getting on the same page of important topics using tools like Wiki and FAQ. Brain rot abounds since year 2013 with tiny short commenting that leads people all into alternate realities.
+
+https://old.reddit.com/r/worldnews/comments/1rp68cc/russia_is_sharing_intelligence_with_iran_about_us/o9ivdqn/
+
+8 month Reddit account, top most upvoted popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+
+https://old.reddit.com/r/worldnews/comments/1rp68cc/russia_is_sharing_intelligence_with_iran_about_us/o9itub3/
+
+MAGA_FANDOM that can't wait for the media stimulation of MAGA commenting. Addiction to high-speed cloud computing Reddit bullshit is core to Trumpism values.
+
