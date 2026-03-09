@@ -978,3 +978,7 @@ SCHOOLS_OF_THOUGHT_FEEDBACK_LOOPS_INSIDE_BOXED_MINDSETS craving more and more ig
 https://old.reddit.com/r/politics/comments/1roqokb/key_details_of_13yearold_trump_accusers_accounts/o9fqvvn/
 
 Reddit audience programming to give up on intellectual and stick to Twitter-length 140 character ideas and mindsets. Anti-intellectual Reddit fandom of Epstein postings. GIVE_UP_ANTI_EDUCATION_ANTI_TEACH_ANTI_PROGRESS
+
+https://old.reddit.com/r/politics/comments/1rowqmi/trump_triggers_world_financial_panic_as_war_chaos/o9gtavk/
+
+3 month Reddit account. Top most-upvoted popular comment. Twitter-length no-resistance message. Just commenting away as fandom on Reddit attracted to idiot content and commenting. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT Promoting Twitter-thinking simplistic reaction commenting mindsets.
