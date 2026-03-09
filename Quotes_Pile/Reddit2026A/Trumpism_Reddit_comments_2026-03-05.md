@@ -990,3 +990,8 @@ https://old.reddit.com/r/politics/comments/1rowqmi/trump_triggers_world_financia
 https://old.reddit.com/r/politics/comments/1rowqmi/trump_triggers_world_financial_panic_as_war_chaos/o9gzvya/
 
 "LOL". Amused and entertained making Twitter-thinking short message comments. TRUMP_FANDOM celebrating ignorance. WHEN_THE_PEOPLE_HAVE_LOST_THE_ABILITY
+
+https://old.reddit.com/r/politics/comments/1rowqmi/trump_triggers_world_financial_panic_as_war_chaos/o9h15xy/
+
+ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING
+
