@@ -922,3 +922,7 @@ Entertained by Trump. ENTERTAINED_JUST_PASSIVELY_WATCHING_UNTIL_DEATH_NO_SOCIAL_
 https://old.reddit.com/r/politics/comments/1rlrngp/cpac_head_says_iranian_schoolgirls_are_better/o8u71ha/
 
 Top most-upvoted popular comment. Well below the 140-character Twitter reaction mindset comment limit. REMEMBER_THE_PROGRAM_IDEAS_BILLIONAIRES_FED_REDDIT_AUDIENCE
+
+https://old.reddit.com/r/news/comments/1roidcl/security_lines_at_some_us_airports_hit_three/o9ed9x2/
+
+"LOL", so entertaining and amusing what MAGA and Trump provide for Reddit TRUMP_FANDOM - constant joke material for those 140-characters or less reaction mindsets and commenting. PEOPLE_LOVE_COMEDY_MEDIA_CONTENT_MORE_THAN_PLURIBUS_HUMANISM
