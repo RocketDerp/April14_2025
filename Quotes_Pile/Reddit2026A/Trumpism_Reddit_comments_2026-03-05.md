@@ -982,3 +982,7 @@ Reddit audience programming to give up on intellectual and stick to Twitter-leng
 https://old.reddit.com/r/politics/comments/1rowqmi/trump_triggers_world_financial_panic_as_war_chaos/o9gtavk/
 
 3 month Reddit account. Top most-upvoted popular comment. Twitter-length no-resistance message. Just commenting away as fandom on Reddit attracted to idiot content and commenting. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT Promoting Twitter-thinking simplistic reaction commenting mindsets.
+
+https://old.reddit.com/r/politics/comments/1rowqmi/trump_triggers_world_financial_panic_as_war_chaos/o9gx5sz/
+
+1 month Reddit account. Programming the Tweet-thinking patterns in the audience that all that matters is commenting about it. "this is fine" isn't satire or sarcasm, it has gone on for over a decade on Reddit of reaction-commenting and joke-washing Trump as a source of memes and entertainment. These messages aren't sarcasm, they serve to normalize the situation. OBSERVE_MEDIA_AVOIDANCE_OF_RELEVANT_NONFICTION
