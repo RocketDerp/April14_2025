@@ -117,3 +117,7 @@ Chapter: The Kidnap of Mass Mind
 Page: 203-204     
 Howard Bloom    
 Published: August 14, 2000    
+
+https://old.reddit.com/r/worldnews/comments/1rp5i3v/iran_is_ready_for_a_long_war_with_the_us_and_only/o9in4ag/
+
+Top most-upvoted popular comment. This isn't sarcasm, this has been the constant stimulation of media addicted society for over a decade, Trumpism. SATIRE_SARCASM_WASHING Reddit culture is an addiction to normalizing Trump as a source of media content, images, messages. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
