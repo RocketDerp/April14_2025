@@ -918,3 +918,7 @@ https://old.reddit.com/r/Fauxmoi/comments/1robs7j/trump_tries_his_tugofwar_hands
 https://old.reddit.com/r/Fauxmoi/comments/1robs7j/trump_tries_his_tugofwar_handshake_with_the/o9ct68r/
 
 Entertained by Trump. ENTERTAINED_JUST_PASSIVELY_WATCHING_UNTIL_DEATH_NO_SOCIAL_MEDIA_UPRISING_WHILE_ALIVE
+
+https://old.reddit.com/r/politics/comments/1rlrngp/cpac_head_says_iranian_schoolgirls_are_better/o8u71ha/
+
+Top most-upvoted popular comment. Well below the 140-character Twitter reaction mindset comment limit. REMEMBER_THE_PROGRAM_IDEAS_BILLIONAIRES_FED_REDDIT_AUDIENCE
