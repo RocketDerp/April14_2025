@@ -165,4 +165,11 @@ https://old.reddit.com/r/technology/comments/1rp6m5d/ai_error_likely_led_to_girl
 People love computers and hate human persons. Block button, deport people, silence people. Raging egomania. Video games, sports entertainment games, gaming, streaming movie stars, celebrity Trump content off Truth Social. MASS_DEHUMANIZATION_POPULAR
 
 * “Naturally, bureaucrats can be expected to embrace a technology that helps to create the illusion that decisions are not under their control. Because of its seeming intelligence and impartiality, a computer has an almost magical tendency to direct attention away from the people in charge of bureaucratic functions and toward itself, as if the computer were the true source of authority. A bureaucrat armed with a computer is the unacknowledged legislator of our age, and a terrible burden to bear.” ― Neil Postman, Technopoly: The Surrender of Culture to Technology. year 1992.
-* 
+ 
+https://old.reddit.com/r/Fauxmoi/comments/1rpa34m/bradley_whitford_on_billionaires_these_guys_are/o9jjfz7/
+
+Billionaire sports team owners and billionaire film studios provide TRICKLE_DOWN_CONTENT for fandoms.
+
+https://old.reddit.com/r/Fauxmoi/comments/1rpa34m/bradley_whitford_on_billionaires_these_guys_are/o9jqkof/
+
+TRICKLE_DOWN_MEDIA from Putin's Internet Research Agency in Saint Petersburg gets ignored.
