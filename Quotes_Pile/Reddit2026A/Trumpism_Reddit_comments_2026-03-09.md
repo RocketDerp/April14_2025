@@ -233,3 +233,8 @@ WHEN_THE_PEOPLE_HAVE_LOST_THE_ABILITY as Carl Sagan wrote in his 1995 nonfiction
 https://old.reddit.com/r/Music/comments/1rpbeou/maynard_james_keenan_im_always_going_to_side/o9k9fig/
 
 Machine lovers, technology love. MASS_DEHUMANIZATION_POPULAR and VINCE_GILLIGAN_WAS_CORRECT February 15, 2025 WGA about social media "cesspool".
+
+https://old.reddit.com/r/Music/comments/1rpbeou/maynard_james_keenan_im_always_going_to_side/o9k7pzd/
+
+It is a media topic, a content creator famous person topic. MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL - in the interview, he even called out smartphones and social media.
+
