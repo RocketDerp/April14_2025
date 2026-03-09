@@ -241,3 +241,9 @@ It is a media topic, a content creator famous person topic. MEDIA_MANIA_EVERYWHE
 https://old.reddit.com/r/stocks/comments/1rpabjj/oil_futures_dropping_rapidly_after_trump_claims/o9jketf/
 
 1 month Reddit account. Top most-upvoted popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+
+https://old.reddit.com/r/Music/comments/1rpeye1/donald_trump_fans_raging_after_country_singer/o9kjy84/
+
+REPUBLICANS_LEAD_WITH_IGNORANCE_IDEAS_AND_FOLLOWERS_REPLY_WITH_IGNORANCE Yes. this entire posting. 1. Having dementia brain disease isn't criminal. 2. wearing diapers isn't criminal. 
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mgnyhdnzbk2d https://autistics.life/@RoundSparrow/116201765284229452 }    
