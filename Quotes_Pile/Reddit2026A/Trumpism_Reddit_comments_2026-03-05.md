@@ -952,3 +952,11 @@ Top-upvoted most popular comment. Imagine a social media device society that can
 https://old.reddit.com/r/LeopardsAteMyFace/comments/1rondjh/when_theyve_lost_matt_walsh_you_know_theyre_in/o9f3ojj/
 
 Top most upvoted popular comment. Tiny-short Twitter-logic think. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING Essentially programming the Reddit audience to give up, anti-humanism, anti-intellectual, anti-reform of mindsets, just go along with the flow of Twitter-thinking billionaire Elon Musk programmed mindsets. Just like the Fox News HDTV cult crisis, don't lift a finger and turn to nonfiction serious books on the relevant subjects. GIVE_UP_ANTI_EDUCATION_ANTI_TEACH_ANTI_PROGRESS
+
+https://old.reddit.com/r/GetNoted/comments/1roj4wb/holy_sht_both_the_aipushing_post_and_the_former/o9e95su/
+
+Note the generic clickbait title of this Reddit posting, not naming the person, etc. It is a Twitter fandom community on Reddit.
+
+https://old.reddit.com/r/GetNoted/comments/1roj4wb/holy_sht_both_the_aipushing_post_and_the_former/o9e96jj/
+
+MOCK_MOCK_MOCKERY MEDIA_ECOLOGY_OBSERVATION   
