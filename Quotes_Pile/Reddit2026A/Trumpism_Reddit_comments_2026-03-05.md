@@ -974,3 +974,7 @@ https://old.reddit.com/r/politics/comments/1roqokb/key_details_of_13yearold_trum
 https://old.reddit.com/r/politics/comments/1roqokb/key_details_of_13yearold_trump_accusers_accounts/o9fzcmx/
 
 SCHOOLS_OF_THOUGHT_FEEDBACK_LOOPS_INSIDE_BOXED_MINDSETS craving more and more ignorance and badness for content creation. No desire to have a  social media uprising, Reddit blackout, and remove Trump first.
+
+https://old.reddit.com/r/politics/comments/1roqokb/key_details_of_13yearold_trump_accusers_accounts/o9fqvvn/
+
+Reddit audience programming to give up on intellectual and stick to Twitter-length 140 character ideas and mindsets. Anti-intellectual Reddit fandom of Epstein postings. GIVE_UP_ANTI_EDUCATION_ANTI_TEACH_ANTI_PROGRESS
