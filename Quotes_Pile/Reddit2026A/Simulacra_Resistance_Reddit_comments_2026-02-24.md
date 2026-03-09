@@ -161,3 +161,7 @@ https://old.reddit.com/r/pics/comments/1rofcl5/as_war_rages_in_the_middle_east_g
 https://old.reddit.com/r/nottheonion/comments/1rovbe6/white_house_sent_wtf_message_to_israel_after_iran/o9gkgu9/
 
 "These idiots", look at the comment message. In what way is it resisting "idiot" ideas and mindsets? The entire world stage of history does not care who you think the idiot is - the abandonment of non-fiction is evident right on Reddit. Why is there no Reddit blackout protest calling for Trump's removal? Why is adult education not being given on Reddit to turn around the ignorance and badness? ANSWER: Reddit is a fandom of the idiocy. Reddit is The Media covering and hosting commenting of play by play of the leaders of ignorance. Reddit fandom is followers of ignorance.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rp2uev/president_trump_back_to_golfing_while_the_war_on/o9i1x9u/
+
+Top most popular upvoted comment. RESISTING nothing. The most popular comment about Trump is just "generic news reporting" commenting. This is a FANDOM, this isn't resisting Trump. This is people who are addicted to the high speed information systems of Reddit to comment about a celebrity icon. This is media addiction venue for media addictions to reality TV "The Apprentice" star.
