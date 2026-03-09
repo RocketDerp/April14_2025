@@ -198,3 +198,6 @@ https://old.reddit.com/r/worldnews/comments/1rpa9u1/trump_tells_cbs_that_iran_wa
 
 SURKOV_SHUFFLE is often complex dance routines. Disco ball metaphor of reflecting the ego of ever audience member back at them. Choose your own interpretation. Even if you change your mind, a Kremlin White House media idea will already be waiting.
 
+https://old.reddit.com/r/SipsTea/comments/1rpb5ke/operation_epstein_fury/o9jqwyi/
+
+Top-most upvoted popular comment. As long as Trump symbolism arrangements and content provides laughs. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING CHUCKLEHEAD_NATION
