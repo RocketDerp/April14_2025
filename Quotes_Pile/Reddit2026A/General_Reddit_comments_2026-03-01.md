@@ -177,3 +177,7 @@ https://old.reddit.com/r/technology/comments/1roe1fa/were_training_students_to_w
 https://old.reddit.com/r/technology/comments/1roe1fa/were_training_students_to_write_worse_to_prove/o9e2qqx/
 
 MEDIA_ECOLOGY_OBSERVATION WIDE_RADICAL_DOUBT_ABOUT_REAL
+
+https://old.reddit.com/r/technology/comments/1roe1fa/were_training_students_to_write_worse_to_prove/o9egmco/
+
+Or do most of your work live in the GitHub servers and do regular commits, including mistakes. THIS_GITHUB
