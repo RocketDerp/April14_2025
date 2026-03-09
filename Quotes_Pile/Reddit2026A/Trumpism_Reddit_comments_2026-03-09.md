@@ -177,3 +177,7 @@ TRICKLE_DOWN_MEDIA from Putin's Internet Research Agency in Saint Petersburg get
 https://old.reddit.com/r/Fauxmoi/comments/1rpa34m/bradley_whitford_on_billionaires_these_guys_are/o9jqk0x/
 
 MIND_BLOWN_BY all the things in 1985, Ronald Reagan's second POTUS term, Neil Postman wrote about. High speed electric media. NOT_GOOD_ENOUGH Neil Postman, author, NYU teacher. Trump's home town.
+
+https://old.reddit.com/r/news/comments/1rpaj37/exclusive_ai_error_likely_led_to_iran_girls/o9jm3nh/
+
+I blame the pro-ignorance short-length top-upvoted most popular comment. Brain rot since year 2013. Surkov won. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
