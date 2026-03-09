@@ -881,3 +881,11 @@ https://old.reddit.com/r/sports/comments/1rof0vw/impossible_situation_iranian_wo
 11 month Reddit account. Extreme generic non-specific statement.
 
 https://old.reddit.com/r/sports/comments/1rof0vw/impossible_situation_iranian_womens_team_sing/o9elhq9/
+
+https://old.reddit.com/r/Fauxmoi/comments/1rowsof/azaelia_banks_admits_she_was_paid_to_post_about/o9gu4hw/
+
+MEDIA_ECOLOGY_OBSERVATION 
+
+https://old.reddit.com/r/Fauxmoi/comments/1rowsof/azaelia_banks_admits_she_was_paid_to_post_about/o9gurmg/
+
+GULLIBLE_FANDOM - Reddit users can not see their own compulsive attraction to bad-ass leaders like ELon Musk and Donald Trump. DENIAL_ABOUNDS of the self-awareness levels of Marshall McLuhan and Neil Postman about mass media consumers (Reddit commenting creators inclusive).
