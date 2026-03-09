@@ -133,3 +133,7 @@ TRUMP_FANDOM "LOL" commenting about how amusing and comedic Trump White House is
 https://old.reddit.com/r/law/comments/1rp6o6q/kristi_noem_stole_143m_of_us_tax_payers_money_by/o9iv4f9/
 
 "And why aren't Dems EVERY SINGLE DAY" CIVIC_DUTY_WE_PEOPLE - why are Reddit users, We The People, not having a Reddit blackout or other social media protest to call for Trump removal and pro-intellectual reform of society? AVOIDED_DR_BANDY_X_LEE_PUBLIC_WRITINGS - why are Reddit comment creators turning to serious nonfiction books in times of intellectual corruption and bad thinking? ANSWER: Reddit is a FANDOM to the situation and does not feel there is a We The People civic duty to EVERY HOUR OF EVERY DAY on Reddit quote Dr. Bandy X Lee's nonfiction books!
+
+https://old.reddit.com/r/law/comments/1rp6o6q/kristi_noem_stole_143m_of_us_tax_payers_money_by/o9j3yhh/
+
+YES. EPSTEIN_FANDOM behaviors. Files and information are not calling for the actions to stop. It is media addiction of a media addict society. INFORMATION_STRIP_TEASE
