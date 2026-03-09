@@ -62,3 +62,7 @@ EVERYTHING_IS_MEDIA_ECOLOGY Everything is media. Reddit users can't see their ow
 https://old.reddit.com/r/law/comments/1royl96/pete_hegseth_evades_question_on_whether_us_is_at/o9h8cap/
 
 And every day Reddit cult of media milks ignorance for LOL comedy. LOLCOW milking of how ignorance has taken over the USA since year 2013 with the Putin Media Invasion. CHUCKLEHEAD_NATION - this is the most popular upvoted comment - 140 characters or less. Reddit is now a platform to celebrate ignorance with commenting celebrations. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
+
+https://old.reddit.com/r/AskSocialists/comments/1rp1xvw/is_trump_a_traitor_to_the_american_people/o9hulch/
+
+SELF_HARM_USA - but the key thing to witness is the cult of media around the topic of Trump. This isn't new in year 2026, it has been constant media cult behavior for over a decade on media platforms.
