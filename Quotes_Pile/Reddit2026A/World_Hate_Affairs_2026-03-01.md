@@ -902,3 +902,6 @@ https://old.reddit.com/r/worldnews/comments/1rp68cc/russia_is_sharing_intelligen
 
 MAGA_FANDOM that can't wait for the media stimulation of MAGA commenting. Addiction to high-speed cloud computing Reddit bullshit is core to Trumpism values.
 
+https://old.reddit.com/r/worldnews/comments/1rp68cc/russia_is_sharing_intelligence_with_iran_about_us/o9ita5j/
+
+MAXIMUM_PUTINIZATION
