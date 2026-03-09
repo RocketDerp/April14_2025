@@ -82,3 +82,7 @@ NONSENSE_HARDER is the constant desire of MAGA fandoms. Always wanting more fict
 https://old.reddit.com/r/okbuddychicanery/comments/1rp15k1/what_did_the_white_house_mean_by_this/o9hy64c/
 
 VINCE_GILLIGAN_WAS_CORRECT about fandoms of Walter White on his February 15, 2025 WGA public speech about social media being a "cesspool".
+
+https://old.reddit.com/r/Irony/comments/1royxe9/this_man_has_no_common_sense_or_decency/o9hd88p/
+
+"his cult", Reddit is the cult of mockery and attraction to Trump as a LOLCOW cult figure. This is the top most-upvoted popular comment. 6 month Reddit account. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT - why isn't Reddit having a REDDIT_BLACKOUT protest? Why are Reddit comment creators not organizing a social media internet protest? Why is there always an avoidance of relevant nonfiction books on paper by Dr. Bandy X Lee? ANSWER: Reddit is a media cult of mocking other media cults. SOCIAL_CULT_HATE_WATCHING_FANDOM
