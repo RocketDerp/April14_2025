@@ -189,3 +189,9 @@ And I am a published technical writer. People are so dehumanizing it has shredde
 * "Imagine my shock as a neurodivergent teen when I first realized that using large vocabulary and eloquent speech doesn't make you less likely to be misinterpreted, rather it adds an entirely new layer of misinterpretation I had never even realized existed in the form of people thinking you're being snobbish or condescending when you're just trying to be specific" - vesper_of_roses June 23, 2023.
 
 * “English, strictly speaking, is not my first language by the way. I haven't yet discovered what my first language is so for the time being I use English words in order to say things. I expect I will always have to do it that way; regrettably I don't think my first language can be written down at all. I'm not sure it can be made external you see. I think it has to stay where it is; simmering in the elastic gloom betwixt my flickering organs.” ― Claire-Louise Bennett
+
+https://old.reddit.com/r/BrandNewSentence/comments/1romdhc/permanently_banned_for_harshing_the_village_mellow/o9ex4uc/
+
+https://old.reddit.com/r/BrandNewSentence/comments/1romdhc/permanently_banned_for_harshing_the_village_mellow/o9ezk6k/
+
+Same with being deported from USA or blocked on Bluesky or Reddit by peer accounts. Egoism. SUPERFICIAL_SHALLOW_PRIZING_TRUMPISM_MAGA_VALUES
