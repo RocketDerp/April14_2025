@@ -221,3 +221,7 @@ https://old.reddit.com/r/Music/comments/1rpbeou/maynard_james_keenan_im_always_g
 NOT_GOOD_ENOUGH MLK Jr on Reddit tech lovers. 1-bit polarity logic. Must have an out-group.
 
 * "I decided that perhaps I would like to think of myself as an extremist -- in the light of the spirit which made Jesus an extremist for love. If it sounds as though I am comparing myself to the Savior, let me remind you that all who honor themselves with the claim of being "Christians" should compare themselves to Jesus. Thus I consider myself an extremist for that brotherhood of man which Paul so nobly expressed: "There is neither Jew nor Greek, there is neither bond nor free, there is neither male nor female: for ye are all one in Christ Jesus." Love is the only force on earth that can be dispensed or received in an extreme manner, without any qualifications, without any harm to the giver or to the receiver." - Dr. Martin Luther King Jr. Playboy magazine. January 1965
+
+https://old.reddit.com/r/Music/comments/1rpbeou/maynard_james_keenan_im_always_going_to_side/o9jyi83/
+
+Left vs. right brain rot. Instead of naming an EXAMPLE nation and time period. Instead of creating a named Wiki or manifest with LISTED SPECIFIC values. BRAIN_ROT_LEFT_RIGHT_LIB_CON_NAME_AVOIDANCE
