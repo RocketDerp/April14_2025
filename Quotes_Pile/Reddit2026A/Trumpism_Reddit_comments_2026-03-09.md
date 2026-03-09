@@ -193,3 +193,8 @@ SYMBOLISM_GUMBO Trump is a master arranger of mind-fucking patterns. Surkov stud
 https://old.reddit.com/r/worldnews/comments/1rpa9u1/trump_tells_cbs_that_iran_war_is_very_complete/o9jkmlf/
 
 TRUMP_FANDOM hanging on every Trump statement and CBS television word. Media cult of Reddit flocks to Trump content provider.
+
+https://old.reddit.com/r/worldnews/comments/1rpa9u1/trump_tells_cbs_that_iran_war_is_very_complete/o9jma6w/
+
+SURKOV_SHUFFLE is often complex dance routines. Disco ball metaphor of reflecting the ego of ever audience member back at them. Choose your own interpretation. Even if you change your mind, a Kremlin White House media idea will already be waiting.
+
