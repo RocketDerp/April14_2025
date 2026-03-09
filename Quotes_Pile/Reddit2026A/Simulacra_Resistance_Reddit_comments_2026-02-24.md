@@ -218,3 +218,7 @@ https://old.reddit.com/r/BlackPeopleofReddit/comments/1rp9bmv/kamala_was_totally
 
 The answer to MAGA being bamboozled by Elon Musk Twitter and Rupert Murdoch Fox News HDTV is not more anti-intellectual prizing. Celebrating the ignorance is not resisting ignorance. The entire nation needs to get on the same page and be quoting and repeating Dr. Bandy X Lee's 27 writers of public education for adults.
 
+https://old.reddit.com/r/pics/comments/1rpdyxc/the_devolution_of_man/o9kdf90/
+
+This isn't resisting. This entire posting is a cult of images, Reddit is a society of image cults on every topic - and Donald Trump images have become every hour of every day, toxic popularity. Observe the constant avoidance of relevant nonfiction by Dr. Bandy X Lee. Donald Trump creates a mockery media enviornment, he is a media image star, and Reddit is attracted to the media Trump creates. All media systems in USA converged on Trump. This has been going on since June 16, 2015 - more than a decade, nearly eleven years of nonstop Trump images. THE AUDIENCE (the population, everyone) has devolved! SEE_ALSO https://GitHub.com/RocketDerp/April14_2025/blob/main/Grim_Blunt/Cognitive_Decline_Nation.md
+
