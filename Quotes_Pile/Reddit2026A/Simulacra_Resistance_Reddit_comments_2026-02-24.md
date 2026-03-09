@@ -165,3 +165,7 @@ https://old.reddit.com/r/nottheonion/comments/1rovbe6/white_house_sent_wtf_messa
 https://old.reddit.com/r/UnderReportedNews/comments/1rp2uev/president_trump_back_to_golfing_while_the_war_on/o9i1x9u/
 
 Top most popular upvoted comment. RESISTING nothing. The most popular comment about Trump is just "generic news reporting" commenting. This is a FANDOM, this isn't resisting Trump. This is people who are addicted to the high speed information systems of Reddit to comment about a celebrity icon. This is media addiction venue for media addictions to reality TV "The Apprentice" star.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rp2uev/president_trump_back_to_golfing_while_the_war_on/o9i2gkn/
+
+2nd most popular upvoted comment. Shit-talking Trump. That is not RESISTING Trump. This is a hate-watching media cult on Reddit. Waiting around on Reddit for a new Trump posting, every 15 minutes, and commenting pro-hate messages. This is following the hate leadership Trump provides! Reddit is a  hate cult, a fandom of hate. https://en.wikipedia.org/wiki/Hate-watching
