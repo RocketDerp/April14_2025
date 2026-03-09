@@ -173,3 +173,7 @@ Billionaire sports team owners and billionaire film studios provide TRICKLE_DOWN
 https://old.reddit.com/r/Fauxmoi/comments/1rpa34m/bradley_whitford_on_billionaires_these_guys_are/o9jqkof/
 
 TRICKLE_DOWN_MEDIA from Putin's Internet Research Agency in Saint Petersburg gets ignored.
+
+https://old.reddit.com/r/Fauxmoi/comments/1rpa34m/bradley_whitford_on_billionaires_these_guys_are/o9jqk0x/
+
+MIND_BLOWN_BY all the things in 1985, Ronald Reagan's second POTUS term, Neil Postman wrote about. High speed electric media. NOT_GOOD_ENOUGH Neil Postman, author, NYU teacher. Trump's home town.
