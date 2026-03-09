@@ -889,3 +889,7 @@ MEDIA_ECOLOGY_OBSERVATION
 https://old.reddit.com/r/Fauxmoi/comments/1rowsof/azaelia_banks_admits_she_was_paid_to_post_about/o9gurmg/
 
 GULLIBLE_FANDOM - Reddit users can not see their own compulsive attraction to bad-ass leaders like ELon Musk and Donald Trump. DENIAL_ABOUNDS of the self-awareness levels of Marshall McLuhan and Neil Postman about mass media consumers (Reddit commenting creators inclusive).
+
+https://old.reddit.com/r/Fauxmoi/comments/1rowsof/azaelia_banks_admits_she_was_paid_to_post_about/o9gvpfe/
+
+The ANTI_WIKI_ANTI_FAQ behaviors of social media users (Reddit) since year 2013 have paved the way. People are so addicted to anti-organizing commenting as "engagement" that the population is all on different pages. Instead of getting on the same page of important topics using tools like Wiki and FAQ. Brain rot abounds since year 2013 with tiny short commenting that leads people all into alternate realities.
