@@ -968,3 +968,9 @@ EPSTEIN_FANDOM MEDIA_ECOLOGY_OBSERVATION in edit of comment message.
 https://old.reddit.com/r/politics/comments/1roqokb/key_details_of_13yearold_trump_accusers_accounts/o9fzk2u/
 
 EPSTEIN_FANDOM endless craving for more and more public media content about Epstein. There is never enough evidence to organize around Dr. Bandy X Lee and call for Trump's immediate removal. Instead, years more of TV content for media cults.
+
+https://old.reddit.com/r/politics/comments/1roqokb/key_details_of_13yearold_trump_accusers_accounts/o9fsxoh/
+
+https://old.reddit.com/r/politics/comments/1roqokb/key_details_of_13yearold_trump_accusers_accounts/o9fzcmx/
+
+SCHOOLS_OF_THOUGHT_FEEDBACK_LOOPS_INSIDE_BOXED_MINDSETS craving more and more ignorance and badness for content creation. No desire to have a  social media uprising, Reddit blackout, and remove Trump first.
