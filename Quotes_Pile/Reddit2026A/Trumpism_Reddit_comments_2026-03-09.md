@@ -50,3 +50,8 @@ Trump and MAGA have wrapped themselves in the Levant science fiction Bible story
 https://old.reddit.com/r/news/comments/1rp0a83/iran_may_be_activating_sleeper_cells_alert_says/o9hq0l1/
 
 TRUMP_FANDOM using Reddit to comment is always thrilled to have LOLCOW to milk. PEOPLE_LOVE_COMEDY_MEDIA_CONTENT_MORE_THAN_PLURIBUS_HUMANISM
+
+https://old.reddit.com/r/Fauxmoi/comments/1rp2g2x/kai_trump_bragging_about_making_her/o9hyful/
+
+3 month Reddit account. Top most-upvoted popular comment. Social media 140 character or less "engagement questions" to Reddit audience. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT Trump family content is very popular on Reddit /r/All front page. Reddit earns money with the Trump popularity.
+
