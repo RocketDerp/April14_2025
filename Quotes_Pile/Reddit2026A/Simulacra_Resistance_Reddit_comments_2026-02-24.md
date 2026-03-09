@@ -173,3 +173,16 @@ https://old.reddit.com/r/UnderReportedNews/comments/1rp2uev/president_trump_back
 https://old.reddit.com/r/GreatBritishMemes/comments/1rozuvz/_/o9hfwcu/
 
 Trump Fandom of images. Top most-popular upvoted comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING this is not resisting the ignorance, this is celebrating the ignorance Trump leads with. Reddit community is followers of ignorance. Trump plays POTUS Tony Clifton character and people are attracted to Trump's character! This has been gong on for over a decade!
+
+https://old.reddit.com/r/clevercomebacks/comments/1rp7w27/priorities_of_the_1/o9j4r1v/
+
+The key word here is priorities of free time and spare time. The commenting is the evidence of free time and spare time, and commenting over and over is how We The People are behaving. Discussing Trump, commenting about Trump. In newspapers, in magazine media, in books, on television media, on social media, in-person conversations. Trump is the center of all media systems.
+
+1. Priority is to make a generic non-specific clickbait title. Just like "The Media" did before "social media" became "The Media". There is nothing "clever" about this, it is corporate America marketing-speak to call this clever and to use clickbait headline techniques. This isn't resisting Trump family thinking. This is engaging it, fandom.
+
+2. Why isn't Jen Senko and Dr. Bandy X Lee the priority of Reddit posting and commenting creators? EVERY_47_HOURS
+
+3. The 99% of people are commenting over and over about the 1% since June 16, 2015. This is how Surkov governing works, PRIORITIES_OF_THE_99_PERCENT_COMMENTING_MEDIA Surkov won. CHESS_1024D
+
+4. This is mocking into a Trump family total mockery. This isn't resisting, this is engaging the mockery and amplifying the mockery. The PRIORITY being avoided: Dr. Lee being constantly quoted for public education and a Reddit blackout protest emphasizing the need for 100% of the population to get on the same page, even people outside the USA, in promoting Dr. Lee's 27 mental health leaders.
+
