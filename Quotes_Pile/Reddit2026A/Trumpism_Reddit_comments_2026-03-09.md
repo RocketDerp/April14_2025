@@ -102,3 +102,18 @@ Top most upvoted comment on Reddit posting! IMPORTANT_QUOTES_A - alas, people ne
 https://old.reddit.com/r/TikTokCringe/comments/1rp4xf9/i_found_this_pretty_inspirational_right_now/o9ihiri/
 
 140 character or less Twitter-think mindset. Donald Trump is a real estate, land lord, land owner. The same as the famous Luigi answer. JANUARY_1944_SECOND_BILL_OF_RIGHTS addresses UNIVERSITY, Housing, food, farming, health care, and monopoly media power! Not just health care. Further, this message is TRUMP_FANDOM as it does not care of Trump is still in power... no call for immediate removal. Trump would add $2,800.00 a month rent increase to pay for health care and people would ignorantly cheer it on as "free" health care. The Second Bill of Rights addresses the entire equation. CALL_FOR_ACTION_TO_DO_TRIVIAL_CHANGE with Twitter-length short-message mindsets.
+
+https://old.reddit.com/r/technology/comments/1rp32ai/it_doesnt_feel_safemany_international_game/o9i6pfm/
+
+HATE_MOTIVATED_ECONOMY_HATE_AS_A_VIRTUE_SIGNALING  Like the constantly celebration of ignorance and joke-washing of Trump and the long-term impact of making Trump a source of constant Reddit entertainment and amusement. People can not connect the dots back to Neil Postman's 1985 nonfiction book on paper, "Amusing Ourselves To Death". https://en.wikipedia.org/wiki/Amusing_Ourselves_to_Death
+
+NONFICTION BOOK QUOTE FOLLOWS
+
+
+When conformity enforcers overwhelm diversity generators, all of us are in trouble. Spartans -- fundamentalists, militia groups, fascists, and ultra-nationalists -- can freeze the machinery of collective mind. A shutdown of urban diversity devastates that exercise of collective acumen we call an economy. Christian Fundamentalism has been shown by the research of sociologists Alfred Darnell and Darren E. Sherkat to retard the learning of children raised within its grasp. Darnell and Sherkat sum up a common Fundamentalist attitude in the following words: "No schooling is better than secular schooling." Then there's the paralysis of thought which outright battle brings. When World War I erupted, Sigmund Freud was horrified by the sudden "narrow-mindedness shown by \[even\] the best intellects, their obduracy, their inaccessibility to the most forcible arguments." Such closings of the mind may explain why authoritarians are prone to ignore it when their approaches flop. They often goose-step from one year to another rigidly glued to backfiring ways.
+
+Global Brain: The Evolution of Mass Mind from the Big Bang to the 21st Century      
+Chapter: The Kidnap of Mass Mind     
+Page: 203-204     
+Howard Bloom    
+Published: August 14, 2000    
