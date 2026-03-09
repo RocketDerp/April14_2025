@@ -238,3 +238,6 @@ https://old.reddit.com/r/Music/comments/1rpbeou/maynard_james_keenan_im_always_g
 
 It is a media topic, a content creator famous person topic. MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL - in the interview, he even called out smartphones and social media.
 
+https://old.reddit.com/r/stocks/comments/1rpabjj/oil_futures_dropping_rapidly_after_trump_claims/o9jketf/
+
+1 month Reddit account. Top most-upvoted popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
