@@ -926,3 +926,8 @@ Top most-upvoted popular comment. Well below the 140-character Twitter reaction 
 https://old.reddit.com/r/news/comments/1roidcl/security_lines_at_some_us_airports_hit_three/o9ed9x2/
 
 "LOL", so entertaining and amusing what MAGA and Trump provide for Reddit TRUMP_FANDOM - constant joke material for those 140-characters or less reaction mindsets and commenting. PEOPLE_LOVE_COMEDY_MEDIA_CONTENT_MORE_THAN_PLURIBUS_HUMANISM
+
+https://old.reddit.com/r/politics/comments/1roibw7/dow_jones_futures_tumble_oil_tops_110_iran_names/o9e2ukb/
+
+An entire nation can't admit to the brain rot of reality TV "The Apprentice" and celebrity. An entire nation can't admit to Twitter-thinking mindsets and high-speed commenting addictions. BRAIN_ROT_SOCIETY_47 observe the constant avoidance of nonfiction serious books on paper by Dr. Bandy X Lee and lack of social media blackout protests. MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL Surkov won since year 2013.
+
