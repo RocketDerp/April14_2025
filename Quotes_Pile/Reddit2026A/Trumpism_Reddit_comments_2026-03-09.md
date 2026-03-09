@@ -129,3 +129,7 @@ https://old.reddit.com/r/worldnews/comments/1rp5i3v/iran_is_ready_for_a_long_war
 https://old.reddit.com/r/law/comments/1rp6o6q/kristi_noem_stole_143m_of_us_tax_payers_money_by/o9it6el/
 
 TRUMP_FANDOM "LOL" commenting about how amusing and comedic Trump White House is for media watchers. The top-most popular upvoted comment thinks it is funny to live in this reality TV South Park year 2025 animation mockery culture. Reddit comment creators are the fandom to Trump images and stories about POTUS Tony Clifton character players, it creates constant content to stimulate the touch media devices. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
+
+https://old.reddit.com/r/law/comments/1rp6o6q/kristi_noem_stole_143m_of_us_tax_payers_money_by/o9iv4f9/
+
+"And why aren't Dems EVERY SINGLE DAY" CIVIC_DUTY_WE_PEOPLE - why are Reddit users, We The People, not having a Reddit blackout or other social media protest to call for Trump removal and pro-intellectual reform of society? AVOIDED_DR_BANDY_X_LEE_PUBLIC_WRITINGS - why are Reddit comment creators turning to serious nonfiction books in times of intellectual corruption and bad thinking? ANSWER: Reddit is a FANDOM to the situation and does not feel there is a We The People civic duty to EVERY HOUR OF EVERY DAY on Reddit quote Dr. Bandy X Lee's nonfiction books!
