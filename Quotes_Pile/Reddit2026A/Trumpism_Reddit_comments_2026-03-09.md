@@ -159,3 +159,10 @@ Yes. Meme-culture meme-addicts meme-addled Reddit fandom is the audience of this
 https://old.reddit.com/r/technology/comments/1rp6m5d/ai_error_likely_led_to_girls_school_bombing_in/o9ix7pa/
 
 /r/Technology community. TECH_LUST_TECH_LOVERS
+
+https://old.reddit.com/r/technology/comments/1rp6m5d/ai_error_likely_led_to_girls_school_bombing_in/o9izj4p/
+
+People love computers and hate human persons. Block button, deport people, silence people. Raging egomania. Video games, sports entertainment games, gaming, streaming movie stars, celebrity Trump content off Truth Social. MASS_DEHUMANIZATION_POPULAR
+
+* “Naturally, bureaucrats can be expected to embrace a technology that helps to create the illusion that decisions are not under their control. Because of its seeming intelligence and impartiality, a computer has an almost magical tendency to direct attention away from the people in charge of bureaucratic functions and toward itself, as if the computer were the true source of authority. A bureaucrat armed with a computer is the unacknowledged legislator of our age, and a terrible burden to bear.” ― Neil Postman, Technopoly: The Surrender of Culture to Technology. year 1992.
+* 
