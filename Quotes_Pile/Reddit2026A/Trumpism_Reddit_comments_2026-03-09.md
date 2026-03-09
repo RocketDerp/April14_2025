@@ -137,3 +137,7 @@ https://old.reddit.com/r/law/comments/1rp6o6q/kristi_noem_stole_143m_of_us_tax_p
 https://old.reddit.com/r/law/comments/1rp6o6q/kristi_noem_stole_143m_of_us_tax_payers_money_by/o9j3yhh/
 
 YES. EPSTEIN_FANDOM behaviors. Files and information are not calling for the actions to stop. It is media addiction of a media addict society. INFORMATION_STRIP_TEASE
+
+https://old.reddit.com/r/law/comments/1rp6o6q/kristi_noem_stole_143m_of_us_tax_payers_money_by/o9j2hd5/
+
+Exactly! People cheering on Super Bowl winner Jody Allen / Paul Allen family in February 2026. RESISTING_WHAT_EXACTLY ? Not resisting media entertainment addictions. Trump is entertaining people into meme stupors. And has been for over a decade. MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL
