@@ -879,3 +879,8 @@ https://www.youtube.com/watch?v=N8QkFFe4zMA
 Fractal Philosophy YouTube Channel    
 
 Finnegans Wake has overloaded meanings and can tell many stories based on what you focus on, like microscope zoom level. Fractal within each sentence.
+
+&nbsp;
+
+https://www.youtube.com/shorts/br6BgFQBpTU
+
