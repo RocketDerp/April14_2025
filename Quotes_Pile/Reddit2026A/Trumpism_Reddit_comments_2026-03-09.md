@@ -318,3 +318,7 @@ https://old.reddit.com/r/worldnews/comments/1rpfx3t/trump_cancels_sanctions_agai
 
 ROUTINE_NO_NEED_TO_RESIST_OR_ORGANIZE_INTELLECTUAL_UPRISING
 
+https://old.reddit.com/r/worldnews/comments/1rpfx3t/trump_cancels_sanctions_against_countries_buying/o9kxuin/
+
+Describes all the successes for harming the USA, but calls Trump dumb. SURKOVIAN_ONION_EATING that this hasn't been the plan all along by Putin. Also note this Reddit user is not resisting, just commenting in a descriptive way. No calling for an intellectual uprising, not promoting Dr. Bandy X Lee, etc.
+
