@@ -447,3 +447,6 @@ https://old.reddit.com/r/newsinterpretation/comments/1rpuf74/donald_trump_brande
 
 Reddit commenting community surely avoids relevant nonfiction books. AVOIDED_DR_BANDY_X_LEE_PUBLIC_WRITINGS
 
+https://old.reddit.com/r/newsinterpretation/comments/1rpuf74/donald_trump_branded_unstable_as_speech_leaves/o9nnwcd/
+
+HYPER_SIMPLE_TRIVIALIZE_BANAL_SELF_ONLY_CONCERN
