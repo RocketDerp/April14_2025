@@ -322,3 +322,6 @@ https://old.reddit.com/r/worldnews/comments/1rpfx3t/trump_cancels_sanctions_agai
 
 Describes all the successes for harming the USA, but calls Trump dumb. SURKOVIAN_ONION_EATING that this hasn't been the plan all along by Putin. Also note this Reddit user is not resisting, just commenting in a descriptive way. No calling for an intellectual uprising, not promoting Dr. Bandy X Lee, etc.
 
+https://old.reddit.com/r/worldnews/comments/1rpfx3t/trump_cancels_sanctions_against_countries_buying/o9kui4b/
+
+Reddit commenting community is doing everything Putin wants. AVOIDED_DR_BANDY_X_LEE_PUBLIC_WRITINGS
