@@ -582,3 +582,8 @@ https://old.reddit.com/r/law/comments/1rpzru6/trump_tells_republicans_the_save_a
 https://old.reddit.com/r/law/comments/1rpzru6/trump_tells_republicans_the_save_america_act_will/o9onwih/
 
 2nd most popular upvoted comment. HATE_HARDER messaging. Promoting ignorance and hate, following Trump's leadership of hate.  ATTRACTION_TO_HATE_LEADERS_HATE_FOLLOWERS
+
+https://old.reddit.com/r/law/comments/1rpzru6/trump_tells_republicans_the_save_america_act_will/o9ool0w/
+
+It creates content for Reddit commenting cults. PRIORITIES_OF_THE_99_PERCENT_COMMENTING_MEDIA Observe that Reddit community is not calling for a Reddit blackout protest, not promoting nonfiction relevant books on paper from Dr. Bandy X Lee since year 2017. Reddit is a venue of addiction to commenting on Trump's horrors. Dr. Bandy X Lee is not being promoted anti-intellectualism is prized in the Reddit community. Trump leads with anti-intellectual avoidance of relevant nonfiction adult books, Reddit commenting users follows Trump anti-learning anti-intelligence lead.
+
