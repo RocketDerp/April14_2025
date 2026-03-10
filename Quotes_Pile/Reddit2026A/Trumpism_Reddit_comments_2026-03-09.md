@@ -551,3 +551,6 @@ https://old.reddit.com/r/worldnews/comments/1rpvgha/iran_war_hegseth_says_tuesda
 
 LOW_PRODUCTION_VALUES_MAGA_FANDOM
 
+https://old.reddit.com/r/worldnews/comments/1rpvgha/iran_war_hegseth_says_tuesday_will_be_our_most/o9ntbt6/
+
+TRUMP_FANDOM Donald Trump leads with mocking, and the Reddit fandom follows Trump's leadership.
