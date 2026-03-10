@@ -509,4 +509,8 @@ Surkov won since year 2013.
 
 https://old.reddit.com/r/worldnews/comments/1rpsmby/russia_is_the_only_winner_of_middle_east_war_eus/o9o3gc0/
 
-SELF_HARM_USA Surkov won since year 2013.
+<img width="1078" height="627" alt="image" src="https://github.com/user-attachments/assets/91a071d9-607d-45a7-ad24-15b0636a0674" />
+
+SELF_HARM_USA Surkov won since year 2013. BEYOND_DENIAL Beyond the common denial.
+
+Social post { https://autistics.life/@RoundSparrow/116205724348636737 https://bsky.app/profile/roundsparrow.bsky.social/post/3mgpqov6drk2q }   
