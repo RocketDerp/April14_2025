@@ -10,3 +10,6 @@ Our sexual education in the 1980's when I was in school did not cover childhood 
 I was sex trafficked for years. Brothels are hidden in plain sight. | Casandra Diamond | TEDxToronto   
 https://www.youtube.com/watch?v=Rg6xCRemYw4    
 
+https://youtu.be/Rg6xCRemYw4?t=329 Did not feel wanted or valued for anything other than body.
+
+TOXIC_CLERGY society that values land and holy spots, physical, over goodness.
