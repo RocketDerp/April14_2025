@@ -247,3 +247,10 @@ https://GitHub.com/GreatSealUSA/Brainrot_Society_47/blob/main/UnderReacting_Oper
 
 Top front of /r/All   
 https://old.reddit.com/r/memes/comments/1rjnwxa/boycott_chatgpt_cancel_your_subscriptions/
+
+&nbsp;
+
+Stood up calling for trivial change:    
+https://old.reddit.com/r/AskSocialists/comments/1rpajiz/german_newspaper_bild_says_thousands_of_americans/
+
+When did social media users have millions stand up for Dr. Bandy X Lee? Jen Senko?
