@@ -554,3 +554,9 @@ LOW_PRODUCTION_VALUES_MAGA_FANDOM
 https://old.reddit.com/r/worldnews/comments/1rpvgha/iran_war_hegseth_says_tuesday_will_be_our_most/o9ntbt6/
 
 TRUMP_FANDOM Donald Trump leads with mocking, and the Reddit fandom follows Trump's leadership.
+
+https://old.reddit.com/r/nottheonion/comments/1rq455m/erika_kirk_appointed_to_air_force_academy_board/o9pi8oc/
+
+Top most upvoted popular comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING White House leads with ignorant thinking and the MAGA_FANDOM on Reddit follows the ignorant thinking. This pattern has been going on as some sick kind of "entertainment" and stimulation of thrill of high-speed information systems delivery. Anti-intellectual society that prizes low-information upvoting. For over a decade, Trump is the very low measuring bar that people strive to out-mock. The mockery is against intelligence itself.
+
+
