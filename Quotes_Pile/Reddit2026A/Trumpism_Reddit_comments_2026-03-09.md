@@ -325,3 +325,12 @@ Describes all the successes for harming the USA, but calls Trump dumb. SURKOVIAN
 https://old.reddit.com/r/worldnews/comments/1rpfx3t/trump_cancels_sanctions_against_countries_buying/o9kui4b/
 
 Reddit commenting community is doing everything Putin wants. AVOIDED_DR_BANDY_X_LEE_PUBLIC_WRITINGS
+
+https://old.reddit.com/r/worldnews/comments/1rpfx3t/trump_cancels_sanctions_against_countries_buying/o9ktn0u/
+
+https://old.reddit.com/r/worldnews/comments/1rpfx3t/trump_cancels_sanctions_against_countries_buying/o9kt3bw/
+
+https://old.reddit.com/r/worldnews/comments/1rpfx3t/trump_cancels_sanctions_against_countries_buying/o9kuqwt/
+
+TRUMP_CHARMING_ACTOR_ACTING The thing that media cult members want is stimulation and content. The clergy provides science fiction stories, Fox News provides fiction stories, Truth Social provides fiction stories, Reddit provides fiction stories from Trump. Media addicts care more about fiction than they care about human persons. Torah, Bible, Quran science fiction trilogy has shown this for thousands of years.
+
