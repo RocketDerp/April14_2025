@@ -412,3 +412,7 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1rppp8d/let_me_teach_you_ho
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1rppp8d/let_me_teach_you_how_little_girls_are_supposed_to/o9nfmwi/
 
 UNITED_IN_BLAMING_ONE_THIRD_HATE_VS_HATE_ANTI_RESCUE
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rppp8d/let_me_teach_you_how_little_girls_are_supposed_to/o9nck1e/
+
+Surkov won since year 2013.
