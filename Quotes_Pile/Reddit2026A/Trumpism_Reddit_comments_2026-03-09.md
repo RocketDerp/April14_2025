@@ -438,3 +438,7 @@ What changed was the Apple iPhone and Twitter. July 6, 2011 https://theoutline.c
 https://old.reddit.com/r/newsinterpretation/comments/1rpuf74/donald_trump_branded_unstable_as_speech_leaves/o9ntx84/
 
 SUPER_HYPER_NORMAL anti-intellectual violence and hate fandom. GUN_WORSHIP observe the avoidance of Dr. Bandy X Lee's intellectual leadership.
+
+https://old.reddit.com/r/newsinterpretation/comments/1rpuf74/donald_trump_branded_unstable_as_speech_leaves/o9nn8pk/
+
+Same commenting I've been reading since year 2013. People are entirely engaged with Putinism and Trumpism as a source of commenting topics on social devices. PRIORITIES_OF_THE_99_PERCENT_COMMENTING_MEDIA
