@@ -475,3 +475,6 @@ https://old.reddit.com/r/newsinterpretation/comments/1rpuf74/donald_trump_brande
 
 Surkov won since year 2013. MASS_PSYCHOSIS_ABOUNDS MASS_HALLUCINATIONS_SEPTEMBER_YEAR_2014_PUBLISHED
 
+https://old.reddit.com/r/newsinterpretation/comments/1rpuf74/donald_trump_branded_unstable_as_speech_leaves/o9nyk5m/
+
+PRIORITIES_OF_THE_99_PERCENT_COMMENTING_MEDIA 
