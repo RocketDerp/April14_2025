@@ -538,3 +538,7 @@ They manufacture content. Images for Reddit. There were not image devices in eve
 https://old.reddit.com/r/comics/comments/1rq0rug/current_events/o9otp9x/
 
 This isn't politics. This is abandonment of nonfiction. This is Reddit and Bluesky and Twitter and Facebook taking over the entire  nation. The Apple iPad and Apple iPhone society. This is the abandonment of reason thinking in favor of Twitter-thinking. Donald Trump created Truth Social, a Twitter-like platform. Elon Musk, richest man in the world, purchased Twitter. People do not see on Reddit the avoidance of nonfiction relevant books on paper. Commenting addiction is the population. PRIORITIES_OF_THE_99_PERCENT_COMMENTING_MEDIA
+
+https://old.reddit.com/r/comics/comments/1rq0rug/current_events/o9ot45m/
+
+Here is a massively popular Reddit user, PizzaCake, that has a loyal following. Says that things are "batshit crazy", but still avoids. Dr. Bandy X Lee asserting and repeating. LOOK and study this. AVOIDED_DR_BANDY_X_LEE_PUBLIC_WRITINGS - CORE_CONCERNS
