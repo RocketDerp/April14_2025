@@ -595,3 +595,8 @@ https://old.reddit.com/r/law/comments/1rpzru6/trump_tells_republicans_the_save_a
 
 6 month Reddit account is also the submitter of the front-page posting. REDDIT_FRONT_PAGE_YOUNG_ACCOUNT
 
+https://old.reddit.com/r/law/comments/1rpzru6/trump_tells_republicans_the_save_america_act_will/o9pczs0/
+
+DENIAL_ABOUNDS "extra funny" LIBERAL_LAUGHS_LIBERAL_TEARS_COMPULSIVE_MAGA_FOLLOWERS ADULT_EDUCATION_CRISIS_USA_ADULT_LEARNING_EMERGENCY Note the comment implies children school. "I guess no one understood those history classes." Adults learn from Elon Musk Twitter, Rupert Murdoch Fox News, Reddit commenting. We need to address adult education being a billionaire (Reddit is Corporate America) manipulation game. Just because "I guess no one understood those history classes" at age 16 doesn't mean at age 42 they haven't blown their mind out with LOL LOL LOL on Bluesky memes. Adult education and content addiction to fiction needs to be taken seriously to exit this Trumpism Putinism mess!
+
+
