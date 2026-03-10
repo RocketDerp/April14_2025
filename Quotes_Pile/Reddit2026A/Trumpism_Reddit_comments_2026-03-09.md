@@ -280,3 +280,6 @@ https://old.reddit.com/r/worldnews/comments/1rpfx3t/trump_cancels_sanctions_agai
 
 ANSWER: UNDERSTANDING_SURKOV_PUTINISM_TRUMPISM_HATE_HILARIOUS - Reddit has been anti-nonfiction Trump fandom because hate blows your mind. THE_1954_EQUATION ignored about hate.
 
+https://old.reddit.com/r/worldnews/comments/1rpfx3t/trump_cancels_sanctions_against_countries_buying/o9kr8vc/
+
+"The idiot" has people who follow ignorance leadership. Everyone in USA. ATTRACTION_TO_SHIT_CONTENT_ENSHIT_BY_DESIRE
