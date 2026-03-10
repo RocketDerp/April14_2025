@@ -336,4 +336,9 @@ TRUMP_CHARMING_ACTOR_ACTING The thing that media cult members want is stimulatio
 
 https://old.reddit.com/r/worldnews/comments/1rpfx3t/trump_cancels_sanctions_against_countries_buying/o9l347c/
 
+<img width="1201" height="1329" alt="Screenshot from 2026-03-09 18-23-48" src="https://github.com/user-attachments/assets/e5739d3e-3ce1-4c19-a5b0-db876f87f032" />
+
 "Putin is just laughing and laughing." and Reddit and Bluesky are laughing and laughing at Donald Trump's POTUS Tony Clifton show. Gullible audience who can't see that amusement is the Surkov information warfare since year 2013. LAUGHTER_THE_BEST_MINDFUCK
+
+NEW_OPERA_NAME #UkraineFalls   
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mgo7shdems2s  https://autistics.life/@RoundSparrow/116202283690577483 }   
