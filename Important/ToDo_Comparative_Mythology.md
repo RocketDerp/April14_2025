@@ -120,3 +120,5 @@ Excellent descriptions
 
 https://old.reddit.com/r/Music/comments/1roi11g/jack_white_on_why_he_doesnt_write_political_songs/   
 Music lyrics vs. religion poetry    
+
+https://old.reddit.com/r/CuratedTumblr/comments/1rpfhxn/shes_living_the_dream/
