@@ -494,3 +494,8 @@ https://old.reddit.com/r/Gamingcirclejerk/comments/1rppvqe/what_did_the_white_ho
 https://old.reddit.com/r/Gamingcirclejerk/comments/1rppvqe/what_did_the_white_house_mean_by_this/o9mnq2q/
 
 6 month Reddit account. 2nd most upvoted popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT WIDE_RADICAL_DOUBT_ABOUT_REAL
+
+https://old.reddit.com/r/Music/comments/1rpwwp6/hugh_jackman_performs_at_rupert_murdochs_95th/o9o0ots/
+
+ATTRACTION_TO_HATE_LEADERS_HATE_FOLLOWERS
+
