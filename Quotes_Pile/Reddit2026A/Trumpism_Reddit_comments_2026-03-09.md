@@ -434,3 +434,7 @@ Surkov won since March 2013. CORE_CONCERNS of this GitHub project is that maybe 
 https://old.reddit.com/r/newsinterpretation/comments/1rpuf74/donald_trump_branded_unstable_as_speech_leaves/o9nml3a/
 
 What changed was the Apple iPhone and Twitter. July 6, 2011 https://theoutline.com/post/2445/trump-s-first-real-tweet-was-on-july-6-2011 COMPREHENDING_UNDERSTANDING changed ALL people in USA. Then the IRA came online. Surkov won since year 2013.
+
+https://old.reddit.com/r/newsinterpretation/comments/1rpuf74/donald_trump_branded_unstable_as_speech_leaves/o9ntx84/
+
+SUPER_HYPER_NORMAL anti-intellectual violence and hate fandom. GUN_WORSHIP observe the avoidance of Dr. Bandy X Lee's intellectual leadership.
