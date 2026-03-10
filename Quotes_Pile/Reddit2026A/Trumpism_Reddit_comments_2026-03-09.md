@@ -271,3 +271,9 @@ HATE_MOTIVATED_ECONOMY_HATE_AS_A_VIRTUE_SIGNALING
 https://old.reddit.com/r/worldnews/comments/1rpfx3t/trump_cancels_sanctions_against_countries_buying/o9kqyiq/
 
 SURKOVIAN_CHESS that social media mocked, the 4D chess, has been Putin's all along. Surkov won since year 2013.
+
+https://old.reddit.com/r/worldnews/comments/1rpfx3t/trump_cancels_sanctions_against_countries_buying/o9krk1y/
+
+When it comes to Trump and Putin and Russia's Internet Research Agency... Reddit community was always avoiding the nonfiction relevant books printed on paper. SUPERFICIAL_SHALLOW_PRIZING_TRUMPISM_MAGA_VALUES Never forget the pandemic and August 24, 2018 https://www.BBC.com/news/world-us-canada-45294192 - every Reddit user was Putin's bitch by not calling this article out in year 2020 and year 2021. And it should have been called out in 2024 during the election of Trump for second term in office. But nobody wants to talk about the measles spreading and August 24, 2018.
+
+
