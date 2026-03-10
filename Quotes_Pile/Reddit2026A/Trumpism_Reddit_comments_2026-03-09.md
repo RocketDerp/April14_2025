@@ -607,3 +607,4 @@ https://old.reddit.com/r/Economics/comments/1rq3u8n/this_cannot_be_sustainable_t
 
 Until We The People address the anti-intellectual adult avoidance of nonfiction serous books on paper relevant to topics... OBSERVE_SOCIAL_MEDIA_AVOIDING_NONFICTION
 
+https://old.reddit.com/r/Economics/comments/1rq3u8n/this_cannot_be_sustainable_the_us_borrowed_50/o9prqze/
