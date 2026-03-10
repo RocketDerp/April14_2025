@@ -612,3 +612,8 @@ https://old.reddit.com/r/Economics/comments/1rq3u8n/this_cannot_be_sustainable_t
 https://old.reddit.com/r/Economics/comments/1rq3u8n/this_cannot_be_sustainable_the_us_borrowed_50/o9ptynq/
 
 The cult of ignorance on Reddit turns every serious topic into entertainment, jokes. SATIRE_SARCASM_WASHING
+
+https://old.reddit.com/r/PublicFreakout/comments/1rqcgee/a_passenger_on_a_cruise_freaking_out_over/o9r9zrk/
+
+SYMBOLISM_GUMBO is so funny to people. Gallows humor and mocking is what makes it to the front page of /r/All Reddit. HATE_VS_HATE cruising the world on a ship to mock humanism. 
+
