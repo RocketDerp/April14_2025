@@ -458,3 +458,7 @@ ENTERTAINED_JUST_PASSIVELY_WATCHING_UNTIL_DEATH_NO_SOCIAL_MEDIA_UPRISING_WHILE_A
 https://old.reddit.com/r/newsinterpretation/comments/1rpuf74/donald_trump_branded_unstable_as_speech_leaves/o9nu903/
 
 CIVIC_DUTY_WE_PEOPLE people keep making low-information commenting. Free time and spare time spent on Reddit commenting and commenting all while avoiding the nonfiction book section and asserting and quoting Dr. Bandy X Lee since year 2017.
+
+https://old.reddit.com/r/newsinterpretation/comments/1rpuf74/donald_trump_branded_unstable_as_speech_leaves/o9nujex/
+
+Reddit community was attracted to all that as amusement media, entertainment content creation. TRUMP_CHARMING_ACTOR_ACTING
