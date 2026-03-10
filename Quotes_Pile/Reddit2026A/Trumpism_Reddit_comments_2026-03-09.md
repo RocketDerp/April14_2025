@@ -486,3 +486,11 @@ This is the low-information upvoting and commenting since year 2014 on Reddit sy
 https://old.reddit.com/r/newsinterpretation/comments/1rpuf74/donald_trump_branded_unstable_as_speech_leaves/o9nzizq/
 
 One man's brain isn't the crisis, it is Reddit and Bluesky media attraction to Trump that is the problem. ATTRACTION_TO_SHIT_CONTENT_ENSHIT_BY_DESIRE
+
+https://old.reddit.com/r/Gamingcirclejerk/comments/1rppvqe/what_did_the_white_house_mean_by_this/o9mper9/
+
+6 month Reddit account. Top most upvoted popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT WIDE_RADICAL_DOUBT_ABOUT_REAL
+
+https://old.reddit.com/r/Gamingcirclejerk/comments/1rppvqe/what_did_the_white_house_mean_by_this/o9mnq2q/
+
+6 month Reddit account. 2nd most upvoted popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT WIDE_RADICAL_DOUBT_ABOUT_REAL
