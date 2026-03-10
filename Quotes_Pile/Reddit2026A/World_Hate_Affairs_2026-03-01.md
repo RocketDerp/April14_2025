@@ -939,3 +939,7 @@ There, someone discussed what I commented in the previous message.
 https://old.reddit.com/r/worldnews/comments/1rq5xws/report_us_detects_signs_iran_preparing_to_lay/o9qirjq/
 
 Reddit comment creator thinks this is classic "dumb". SURKOVIAN_ONION_EATING - why isn't the non-dumb Reddit commenting community promoting and quoting Dr. Bandy X Lee over and over in comments, calling for Trump's removal? ANSWER: Reddit commenting creators is a media cult of calling Trump moron, dumb, orange, etc. Reddit community is a *fandom* of dumb. ATTRACTION_TO_SHIT_CONTENT_ENSHIT_BY_DESIRE
+
+https://old.reddit.com/r/GetNoted/comments/1rq9cdj/seeing_missiles_overhead/o9r1nlk/
+
+This whole posting is full of MEDIA_ECOLOGY_OBSERVATION 
