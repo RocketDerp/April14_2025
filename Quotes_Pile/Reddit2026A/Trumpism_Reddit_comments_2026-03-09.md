@@ -354,3 +354,7 @@ Why isn't Reddit having a blackout and why isn't the Reddit comment section avoi
 https://old.reddit.com/r/worldnews/comments/1rpfx3t/trump_cancels_sanctions_against_countries_buying/o9ktr2l/
 
 CHESS_1024D - the WHOLE plan I call "Operation Matthew 4:19" to get Reddit users to mock away since year 2013 and not take anything seriously enough to go to the nonfiction section of the public library and instead react-comment in Tweet-length mindsets.
+
+https://old.reddit.com/r/worldnews/comments/1rpfx3t/trump_cancels_sanctions_against_countries_buying/o9kvclj/
+
+2 month Reddit account. And everything Reddit users do to avoid Dr. Bandy X Lee's nonfiction relevant books on paper helps Trump and Putin.
