@@ -358,3 +358,12 @@ CHESS_1024D - the WHOLE plan I call "Operation Matthew 4:19" to get Reddit users
 https://old.reddit.com/r/worldnews/comments/1rpfx3t/trump_cancels_sanctions_against_countries_buying/o9kvclj/
 
 2 month Reddit account. And everything Reddit users do to avoid Dr. Bandy X Lee's nonfiction relevant books on paper helps Trump and Putin.
+
+https://old.reddit.com/r/worldnews/comments/1rpfx3t/trump_cancels_sanctions_against_countries_buying/o9kyxls/
+
+3 month Reddit account.
+
+https://old.reddit.com/r/worldnews/comments/1rpfx3t/trump_cancels_sanctions_against_countries_buying/o9l5y8a/
+
+People don't want to even bother using Reddit for a blackout uprising. DANGER_ALERT_CALL_TO_INTELLECTUAL_ARMS_BOOK_CRAM_SESSIONS The Reddit addiction to mocking Trump and insulting MAGA far exceeds any desire to turn to Dr. Bandy X Lee for leadership and learning.
+
