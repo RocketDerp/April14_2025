@@ -871,3 +871,11 @@ Word Choice vocabulary
 Did Alzheimer's Impact Terry Pratchett's Discworld?   
 Rebecca Watson    
 https://www.youtube.com/watch?v=TXkzcKrS0gU
+
+&nbsp;
+
+https://www.youtube.com/watch?v=N8QkFFe4zMA    
+"Stories That Can't Be Told Linearly"   
+Fractal Philosophy YouTube Channel    
+
+Finnegans Wake has overloaded meanings and can tell many stories based on what you focus on, like microscope zoom level. Fractal within each sentence.
