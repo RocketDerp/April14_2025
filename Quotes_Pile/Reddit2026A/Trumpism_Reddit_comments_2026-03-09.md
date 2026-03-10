@@ -286,5 +286,9 @@ https://old.reddit.com/r/worldnews/comments/1rpfx3t/trump_cancels_sanctions_agai
 
 https://old.reddit.com/r/worldnews/comments/1rpfx3t/trump_cancels_sanctions_against_countries_buying/o9ksbeh/
 
-ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING observe the avoidance of non-fiction off-Reddit URL, book quotes, author names, etc.
+ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING observe the avoidance of non-fiction off-Reddit URL, book quotes, author names, etc. Surkov won since year 2013. These Reddit users are not resisting the anti-intellectual Trump leadership.
+
+https://old.reddit.com/r/worldnews/comments/1rpfx3t/trump_cancels_sanctions_against_countries_buying/o9kt6fq/
+
+Commenting while not asserting and repeating Dr. Bandy X Lee's relevant nonfiction, what a society-wide disgrace. WE_THE_PEOPLE_MEDIA_COMMENTING
 
