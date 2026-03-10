@@ -292,3 +292,6 @@ https://old.reddit.com/r/worldnews/comments/1rpfx3t/trump_cancels_sanctions_agai
 
 Commenting while not asserting and repeating Dr. Bandy X Lee's relevant nonfiction, what a society-wide disgrace. WE_THE_PEOPLE_MEDIA_COMMENTING
 
+https://old.reddit.com/r/worldnews/comments/1rpfx3t/trump_cancels_sanctions_against_countries_buying/o9kvgie/
+
+TRUMP_WEAK_MUSK_WEAK_DO_NOTHING_TO_RESIST_TALKING_POINTS at least SOMEONE on Reddit is commenting how Trumps harm to humanity is powerful and strong.
