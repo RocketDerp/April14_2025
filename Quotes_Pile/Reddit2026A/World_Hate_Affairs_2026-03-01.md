@@ -932,3 +932,6 @@ https://old.reddit.com/r/worldnews/comments/1rq5xws/report_us_detects_signs_iran
 
 BEYOND_DENIAL I really think people are in denial and not facing up that the USA has nuclear submarines capable of monitoring who is laying the mines and creating dramatic sinking. It would get more press coverage and the kind of "bad ass Depart of War" mindset that has been the anti-intellectual weapon-systems technology worship of the MAGA movement. The nuclear submarines and space resources can give coordinates and rockets and/or jets can deliver bombs.
 
+https://old.reddit.com/r/worldnews/comments/1rq5xws/report_us_detects_signs_iran_preparing_to_lay/o9qirjq/
+
+Reddit comment creator thinks this is classic "dumb". SURKOVIAN_ONION_EATING - why isn't the non-dumb Reddit commenting community promoting and quoting Dr. Bandy X Lee over and over in comments, calling for Trump's removal? ANSWER: Reddit commenting creators is a media cult of calling Trump moron, dumb, orange, etc. Reddit community is a *fandom* of dumb. ATTRACTION_TO_SHIT_CONTENT_ENSHIT_BY_DESIRE
