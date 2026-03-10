@@ -345,5 +345,9 @@ Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mgo7shdems
 
 https://old.reddit.com/r/worldnews/comments/1rpfx3t/trump_cancels_sanctions_against_countries_buying/o9ku2ef/
 
-What an anti-intellectual commenting section. Always avoiding Dr. Bandy X Lee's leadership.   
+What an anti-intellectual commenting section. Always avoiding Dr. Bandy X Lee's leadership.  TRUMP_FAMILY_FIXATED_BRAIN_ROT_EVERY_DAY_FOX_NEWS_TWITTER_ETC
+   
+https://old.reddit.com/r/worldnews/comments/1rpfx3t/trump_cancels_sanctions_against_countries_buying/o9kv11a/
+
+Why isn't Reddit having a blackout and why isn't the Reddit comment section avoiding Dr. Bandy X Lee's relevant nonfiction books on paper? REDDIT_BLACKOUT ANSWER : Bluesky and Reddit are fandoms to mocking and hate-watching Trump and not actually using the Internet to resist Corporate American Reddit.
 
