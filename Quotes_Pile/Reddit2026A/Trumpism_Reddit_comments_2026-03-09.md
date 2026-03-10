@@ -542,3 +542,7 @@ This isn't politics. This is abandonment of nonfiction. This is Reddit and Blues
 https://old.reddit.com/r/comics/comments/1rq0rug/current_events/o9ot45m/
 
 Here is a massively popular Reddit user, PizzaCake, that has a loyal following. Says that things are "batshit crazy", but still avoids. Dr. Bandy X Lee asserting and repeating. LOOK and study this. AVOIDED_DR_BANDY_X_LEE_PUBLIC_WRITINGS - CORE_CONCERNS
+
+https://old.reddit.com/r/Epstein/comments/1rq1806/thomas_massie_new_post_his_links_provided_below/o9p5vh2/
+
+"take to the streets" when REDDIT_BLACKOUT protest and organizing hasn't even happened. The entire power here is all media and the Reddit media users are the most caged inside the box about organizing FAQ and Wiki and online meetings.
