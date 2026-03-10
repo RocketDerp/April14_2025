@@ -910,3 +910,12 @@ https://old.reddit.com/r/GetNoted/comments/1rpf9et/smartest_nazi/o9l5agb/
 
 https://old.reddit.com/r/GetNoted/comments/1rpf9et/smartest_nazi/o9kynfr/
 
+https://old.reddit.com/r/PublicFreakout/comments/1rq0i5p/destruction_in_tel_aviv_as_a_result_of_an_iranian/o9oxg4f/
+
+https://old.reddit.com/r/PublicFreakout/comments/1rq0i5p/destruction_in_tel_aviv_as_a_result_of_an_iranian/o9ougge/
+
+9 month Reddit account.
+
+https://old.reddit.com/r/PublicFreakout/comments/1rq0i5p/destruction_in_tel_aviv_as_a_result_of_an_iranian/o9osdwl/
+
+HATE_HARDER machine logic.
