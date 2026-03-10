@@ -14,3 +14,5 @@ ToDo: locate / quote.
 
 Gnostic   
 https://www.youtube.com/watch?v=L_V2vxemwtA     
+"Donnie Darko: The Hidden Gnostic Allegory"    
+
