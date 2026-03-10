@@ -371,3 +371,44 @@ https://old.reddit.com/r/SipsTea/comments/1rphop5/reporter_you_just_suggested_th
 
 15 day Reddit account. 2nd most upvoted popular comment. Not even 140 characters. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT Anti-intellectual, following the Trump leadership of anti-intelligence.
 
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rppp8d/let_me_teach_you_how_little_girls_are_supposed_to/o9mo2v9/
+
+Top most popular upvoted comment. ROUTINE_NO_NEED_TO_RESIST_OR_ORGANIZE_INTELLECTUAL_UPRISING
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rppp8d/let_me_teach_you_how_little_girls_are_supposed_to/o9mrmoa/
+
+2nd most popular upvoted comment. 
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rppp8d/let_me_teach_you_how_little_girls_are_supposed_to/o9mx53n/
+
+REMEDIAL_MORALITY 
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rppp8d/let_me_teach_you_how_little_girls_are_supposed_to/o9myypk/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rppp8d/let_me_teach_you_how_little_girls_are_supposed_to/o9n1hag/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rppp8d/let_me_teach_you_how_little_girls_are_supposed_to/o9mvejg/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rppp8d/let_me_teach_you_how_little_girls_are_supposed_to/o9noq1f/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rppp8d/let_me_teach_you_how_little_girls_are_supposed_to/o9n7s1m/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rppp8d/let_me_teach_you_how_little_girls_are_supposed_to/o9n6smf/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rppp8d/let_me_teach_you_how_little_girls_are_supposed_to/o9myht1/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rppp8d/let_me_teach_you_how_little_girls_are_supposed_to/o9nhn2x/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rppp8d/let_me_teach_you_how_little_girls_are_supposed_to/o9nh42j/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rppp8d/let_me_teach_you_how_little_girls_are_supposed_to/o9nj6f7/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rppp8d/let_me_teach_you_how_little_girls_are_supposed_to/o9n6qpx/
+
+People are not sick of the badness, sick of Trump, they are sick of information news saying "it is over". There is a big difference between the two. TRUMP_FANDOM
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rppp8d/let_me_teach_you_how_little_girls_are_supposed_to/o9nzk0w/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rppp8d/let_me_teach_you_how_little_girls_are_supposed_to/o9nfmwi/
+
+UNITED_IN_BLAMING_ONE_THIRD_HATE_VS_HATE_ANTI_RESCUE
