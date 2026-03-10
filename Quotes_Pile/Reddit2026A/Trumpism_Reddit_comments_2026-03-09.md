@@ -562,3 +562,7 @@ Top most upvoted popular comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER
 https://old.reddit.com/r/nottheonion/comments/1rq455m/erika_kirk_appointed_to_air_force_academy_board/o9pib8d/
 
 NAME_CALLING_INSULT_MOCKERY_FOLLOWERS_OF_LEADER_DONALD_TRUMP_SHALLOWNESS_VALUES
+
+https://old.reddit.com/r/news/comments/1rq5cqy/exclusive_as_many_as_150_us_troops_wounded_so_far/o9pwzal/
+
+CONCERNS_OF_FINNEGANS Finnegans Wake Iterates.
