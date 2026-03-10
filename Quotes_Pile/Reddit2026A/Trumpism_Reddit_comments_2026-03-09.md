@@ -442,3 +442,8 @@ SUPER_HYPER_NORMAL anti-intellectual violence and hate fandom. GUN_WORSHIP obser
 https://old.reddit.com/r/newsinterpretation/comments/1rpuf74/donald_trump_branded_unstable_as_speech_leaves/o9nn8pk/
 
 Same commenting I've been reading since year 2013. People are entirely engaged with Putinism and Trumpism as a source of commenting topics on social devices. PRIORITIES_OF_THE_99_PERCENT_COMMENTING_MEDIA
+
+https://old.reddit.com/r/newsinterpretation/comments/1rpuf74/donald_trump_branded_unstable_as_speech_leaves/o9nnhgu/
+
+Reddit commenting community surely avoids relevant nonfiction books. AVOIDED_DR_BANDY_X_LEE_PUBLIC_WRITINGS
+
