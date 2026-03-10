@@ -522,3 +522,7 @@ PEOPLE_LOVE_COMEDY_MEDIA_CONTENT_MORE_THAN_PLURIBUS_HUMANISM
 https://old.reddit.com/r/comics/comments/1rq0rug/current_events/o9ossoe/
 
 "WHAT IS WRONG WITH EVERYONE!?" ANSWER: THIS_GITHUB - Surkov won since year 2013.
+
+https://old.reddit.com/r/comics/comments/1rq0rug/current_events/o9ot9dy/
+
+The symptom is the amusement, as defined in Neil Postman's 1985 book "Amusing Ourselves To Death". FANATICS_FANS_OF_CLOWNS_FANS_OF_MAGA_CLOWNING
