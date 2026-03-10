@@ -530,3 +530,7 @@ The symptom is the amusement, as defined in Neil Postman's 1985 book "Amusing Ou
 https://old.reddit.com/r/comics/comments/1rq0rug/current_events/o9p01zu/
 
 Governing and politics are two different things. Surkov and Putin made entertainment the center of politics and Trump imported the Surkov techniques to USA. JOKE_COMEDY_POWER_IS_MAGA_IS_TRUMP_IS_SURKOV
+
+https://old.reddit.com/r/comics/comments/1rq0rug/current_events/o9ov8c6/
+
+They manufacture content. Images for Reddit. There were not image devices in every hand before year 2007. Trumpism is media ecology. TRICKLE_DOWN_CONTENT
