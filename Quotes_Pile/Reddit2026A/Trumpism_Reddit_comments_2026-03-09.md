@@ -342,3 +342,8 @@ https://old.reddit.com/r/worldnews/comments/1rpfx3t/trump_cancels_sanctions_agai
 
 NEW_OPERA_NAME #UkraineFalls   
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mgo7shdems2s  https://autistics.life/@RoundSparrow/116202283690577483 }   
+
+https://old.reddit.com/r/worldnews/comments/1rpfx3t/trump_cancels_sanctions_against_countries_buying/o9ku2ef/
+
+What an anti-intellectual commenting section. Always avoiding Dr. Bandy X Lee's leadership.   
+
