@@ -282,4 +282,7 @@ ANSWER: UNDERSTANDING_SURKOV_PUTINISM_TRUMPISM_HATE_HILARIOUS - Reddit has been 
 
 https://old.reddit.com/r/worldnews/comments/1rpfx3t/trump_cancels_sanctions_against_countries_buying/o9kr8vc/
 
-"The idiot" has people who follow ignorance leadership. Everyone in USA. ATTRACTION_TO_SHIT_CONTENT_ENSHIT_BY_DESIRE
+"The idiot" has people who follow ignorance leadership. Everyone in USA. ATTRACTION_TO_SHIT_CONTENT_ENSHIT_BY_DESIRE - OBSERVE how Reddit and Bluesky are NOT asserting and repeat quoting Dr. Bandy X Lee's nonfiction. The brain rot is the entire society, not just Donald Trump. The attraction to Trump as an idiot to mock, to join a total mockery, is the crisis.
+
+
+
