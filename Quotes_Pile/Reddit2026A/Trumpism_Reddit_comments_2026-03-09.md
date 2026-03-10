@@ -546,3 +546,8 @@ Here is a massively popular Reddit user, PizzaCake, that has a loyal following. 
 https://old.reddit.com/r/Epstein/comments/1rq1806/thomas_massie_new_post_his_links_provided_below/o9p5vh2/
 
 "take to the streets" when REDDIT_BLACKOUT protest and organizing hasn't even happened. The entire power here is all media and the Reddit media users are the most caged inside the box about organizing FAQ and Wiki and online meetings.
+
+https://old.reddit.com/r/worldnews/comments/1rpvgha/iran_war_hegseth_says_tuesday_will_be_our_most/o9ns3rp/
+
+LOW_PRODUCTION_VALUES_MAGA_FANDOM
+
