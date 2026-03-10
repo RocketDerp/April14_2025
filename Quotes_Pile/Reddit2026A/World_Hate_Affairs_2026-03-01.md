@@ -919,3 +919,7 @@ https://old.reddit.com/r/PublicFreakout/comments/1rq0i5p/destruction_in_tel_aviv
 https://old.reddit.com/r/PublicFreakout/comments/1rq0i5p/destruction_in_tel_aviv_as_a_result_of_an_iranian/o9osdwl/
 
 HATE_HARDER machine logic.
+
+https://old.reddit.com/r/worldnews/comments/1rq5xws/report_us_detects_signs_iran_preparing_to_lay/o9pwu9h/
+
+2nd most popular upvoted comment. FOLLOWERS_OF_LEADER_TRUMP_ACTOR_ENTERTAINER_DONALD_TRUMP_FOLLOWERS As long as there are video games, world events are just entertainment for commenting jokes about.
