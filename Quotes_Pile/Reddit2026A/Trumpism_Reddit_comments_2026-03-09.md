@@ -506,3 +506,7 @@ MAXIMUM_PUTINIZATION
 https://old.reddit.com/r/worldnews/comments/1rpsmby/russia_is_the_only_winner_of_middle_east_war_eus/o9nfd6o/
 
 Surkov won since year 2013.
+
+https://old.reddit.com/r/worldnews/comments/1rpsmby/russia_is_the_only_winner_of_middle_east_war_eus/o9o3gc0/
+
+SELF_HARM_USA Surkov won since year 2013.
