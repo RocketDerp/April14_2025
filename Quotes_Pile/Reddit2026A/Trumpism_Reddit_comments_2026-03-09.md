@@ -482,3 +482,7 @@ PRIORITIES_OF_THE_99_PERCENT_COMMENTING_MEDIA
 https://old.reddit.com/r/newsinterpretation/comments/1rpuf74/donald_trump_branded_unstable_as_speech_leaves/o9nyt3b/
 
 This is the low-information upvoting and commenting since year 2014 on Reddit systems. The abandonment of nonfiction relevant books on paper in favor of people being attracted to the most anti-FAQ anti-Wiki commenting interactions. HOW_SURKOV_WON
+
+https://old.reddit.com/r/newsinterpretation/comments/1rpuf74/donald_trump_branded_unstable_as_speech_leaves/o9nzizq/
+
+One man's brain isn't the crisis, it is Reddit and Bluesky media attraction to Trump that is the problem. ATTRACTION_TO_SHIT_CONTENT_ENSHIT_BY_DESIRE
