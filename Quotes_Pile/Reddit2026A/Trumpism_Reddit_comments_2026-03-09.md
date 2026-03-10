@@ -599,4 +599,11 @@ https://old.reddit.com/r/law/comments/1rpzru6/trump_tells_republicans_the_save_a
 
 DENIAL_ABOUNDS "extra funny" LIBERAL_LAUGHS_LIBERAL_TEARS_COMPULSIVE_MAGA_FOLLOWERS ADULT_EDUCATION_CRISIS_USA_ADULT_LEARNING_EMERGENCY Note the comment implies children school. "I guess no one understood those history classes." Adults learn from Elon Musk Twitter, Rupert Murdoch Fox News, Reddit commenting. We need to address adult education being a billionaire (Reddit is Corporate America) manipulation game. Just because "I guess no one understood those history classes" at age 16 doesn't mean at age 42 they haven't blown their mind out with LOL LOL LOL on Bluesky memes. Adult education and content addiction to fiction needs to be taken seriously to exit this Trumpism Putinism mess!
 
+https://old.reddit.com/r/Economics/comments/1rq3u8n/this_cannot_be_sustainable_the_us_borrowed_50/o9pmzth/
+
+WAR_AGAINST_GOODNESS
+
+https://old.reddit.com/r/Economics/comments/1rq3u8n/this_cannot_be_sustainable_the_us_borrowed_50/o9po526/
+
+Until We The People address the anti-intellectual adult avoidance of nonfiction serous books on paper relevant to topics... OBSERVE_SOCIAL_MEDIA_AVOIDING_NONFICTION
 
