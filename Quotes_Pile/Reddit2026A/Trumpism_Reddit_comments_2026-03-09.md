@@ -514,3 +514,7 @@ https://old.reddit.com/r/worldnews/comments/1rpsmby/russia_is_the_only_winner_of
 SELF_HARM_USA Surkov won since year 2013. BEYOND_DENIAL Beyond the common denial.
 
 Social post { https://autistics.life/@RoundSparrow/116205724348636737 https://bsky.app/profile/roundsparrow.bsky.social/post/3mgpqov6drk2q }   
+
+https://old.reddit.com/r/comics/comments/1rq0rug/current_events/o9ouxx8/
+
+PEOPLE_LOVE_COMEDY_MEDIA_CONTENT_MORE_THAN_PLURIBUS_HUMANISM
