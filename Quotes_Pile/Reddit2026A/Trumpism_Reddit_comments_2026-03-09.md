@@ -466,3 +466,7 @@ Reddit community was attracted to all that as amusement media, entertainment con
 https://old.reddit.com/r/newsinterpretation/comments/1rpuf74/donald_trump_branded_unstable_as_speech_leaves/o9nvzis/
 
 MEDIA_ECOLOGY_OBSERVATION
+
+https://old.reddit.com/r/newsinterpretation/comments/1rpuf74/donald_trump_branded_unstable_as_speech_leaves/o9nw0ej/
+
+What is important to Reddit users is to see commenting, low-effort commenting, to comment like the one linked on Reddit. PRIORITIES_OF_THE_99_PERCENT_COMMENTING_MEDIA
