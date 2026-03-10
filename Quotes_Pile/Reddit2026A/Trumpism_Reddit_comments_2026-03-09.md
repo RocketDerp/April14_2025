@@ -470,3 +470,8 @@ MEDIA_ECOLOGY_OBSERVATION
 https://old.reddit.com/r/newsinterpretation/comments/1rpuf74/donald_trump_branded_unstable_as_speech_leaves/o9nw0ej/
 
 What is important to Reddit users is to see commenting, low-effort commenting, to comment like the one linked on Reddit. PRIORITIES_OF_THE_99_PERCENT_COMMENTING_MEDIA
+
+https://old.reddit.com/r/newsinterpretation/comments/1rpuf74/donald_trump_branded_unstable_as_speech_leaves/o9nxuvq/
+
+Surkov won since year 2013. MASS_PSYCHOSIS_ABOUNDS MASS_HALLUCINATIONS_SEPTEMBER_YEAR_2014_PUBLISHED
+
