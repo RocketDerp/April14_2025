@@ -430,3 +430,7 @@ Reddit is still full of jokes and memes an humor about Trump. Trump is the cente
 https://old.reddit.com/r/newsinterpretation/comments/1rpuf74/donald_trump_branded_unstable_as_speech_leaves/o9nkis8/
 
 Surkov won since March 2013. CORE_CONCERNS of this GitHub project is that maybe a hand full of people in the world, 3 or 4 people out of 8 billion, might actually recognize Neil Postman's 1985 book "Amusing Ourselves To Death" can be applied to Bluesky and Reddit and explain Donald Trump. And Postman was strictly taking about death by LOL as an outcome of technology. The Saint Petersburg Internet Research Agency and Cambridge Analytica did this intentionally, warfare!
+
+https://old.reddit.com/r/newsinterpretation/comments/1rpuf74/donald_trump_branded_unstable_as_speech_leaves/o9nml3a/
+
+What changed was the Apple iPhone and Twitter. July 6, 2011 https://theoutline.com/post/2445/trump-s-first-real-tweet-was-on-july-6-2011 COMPREHENDING_UNDERSTANDING changed ALL people in USA. Then the IRA came online. Surkov won since year 2013.
