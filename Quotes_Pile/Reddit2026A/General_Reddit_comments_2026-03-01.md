@@ -219,3 +219,7 @@ YOU_MUST_HATE_EX_LOVERS
 https://old.reddit.com/r/whennews/comments/1rpejcu/what_the_fuck/o9kg6y1/
 
 https://old.reddit.com/r/whennews/comments/1rpejcu/what_the_fuck/o9khqrt/
+
+https://old.reddit.com/r/lol/comments/1rqa7gb/lmao/o9qtvxv/
+
+CHOICE_MARRIAGE_HONESTY
