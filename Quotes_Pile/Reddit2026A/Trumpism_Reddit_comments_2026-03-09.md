@@ -247,3 +247,20 @@ https://old.reddit.com/r/Music/comments/1rpeye1/donald_trump_fans_raging_after_c
 REPUBLICANS_LEAD_WITH_IGNORANCE_IDEAS_AND_FOLLOWERS_REPLY_WITH_IGNORANCE Yes. this entire posting. 1. Having dementia brain disease isn't criminal. 2. wearing diapers isn't criminal. 
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mgnyhdnzbk2d https://autistics.life/@RoundSparrow/116201765284229452 }    
+
+https://old.reddit.com/r/worldnews/comments/1rpfx3t/trump_cancels_sanctions_against_countries_buying/o9kqs5v/
+
+Surkov won since year 2013.
+
+https://old.reddit.com/r/worldnews/comments/1rpfx3t/trump_cancels_sanctions_against_countries_buying/o9ktkti/
+
+PUTIN_FANDOM MAXIMUM_PUTINIZATION
+
+https://old.reddit.com/r/worldnews/comments/1rpfx3t/trump_cancels_sanctions_against_countries_buying/o9krlzu/
+
+SYMBOLISM_INVERSION_MANIPULATION Surkov won since year 2013.
+
+https://old.reddit.com/r/worldnews/comments/1rpfx3t/trump_cancels_sanctions_against_countries_buying/o9kprlb/
+
+Reddit commenting community joke-washes Trump and has since June 16, 2015. JOKE_COMEDY_POWER_IS_MAGA_IS_TRUMP_IS_SURKOV
+
