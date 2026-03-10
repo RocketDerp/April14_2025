@@ -416,3 +416,8 @@ UNITED_IN_BLAMING_ONE_THIRD_HATE_VS_HATE_ANTI_RESCUE
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1rppp8d/let_me_teach_you_how_little_girls_are_supposed_to/o9nck1e/
 
 Surkov won since year 2013.
+
+https://old.reddit.com/r/newsinterpretation/comments/1rpuf74/donald_trump_branded_unstable_as_speech_leaves/o9njofd/
+
+TRUMP_CHARMING_ACTOR_ACTING In all my world travels, I have never met people as charmed as they are with Donald Trump. People become attracted to ignorance when they encounter Donald Trump. People celebrate ignorance more than any sport or game or gaming when they consume Donald Trump images and messages. Trump can charm people to abandon all goodness. Trump leads with hate and people can not resist following.
+
