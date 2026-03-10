@@ -222,3 +222,7 @@ https://old.reddit.com/r/pics/comments/1rpdyxc/the_devolution_of_man/o9kdf90/
 
 This isn't resisting. This entire posting is a cult of images, Reddit is a society of image cults on every topic - and Donald Trump images have become every hour of every day, toxic popularity. Observe the constant avoidance of relevant nonfiction by Dr. Bandy X Lee. Donald Trump creates a mockery media enviornment, he is a media image star, and Reddit is attracted to the media Trump creates. All media systems in USA converged on Trump. This has been going on since June 16, 2015 - more than a decade, nearly eleven years of nonstop Trump images. THE AUDIENCE (the population, everyone) has devolved! SEE_ALSO https://GitHub.com/RocketDerp/April14_2025/blob/main/Grim_Blunt/Cognitive_Decline_Nation.md
 
+https://old.reddit.com/r/law/comments/1rpzru6/trump_tells_republicans_the_save_america_act_will/o9osrnf/
+
+Magical thinking. Magical Twitter-length thinking. Tiny-short little ideas that act like the entire world doesn't struggle and that this is a USA only problem. Elon Musk, owner of Twitter, richest man in the world loves this kind of IGNORANCE_CELEBRATIONS that Reddit media cult promotes. Simplistic banality of media, just like Fox News HDTV thinking patterns. SEE_ALSO https://GitHub.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Carl_Sagan_Quotes.md
+
