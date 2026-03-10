@@ -421,3 +421,12 @@ https://old.reddit.com/r/newsinterpretation/comments/1rpuf74/donald_trump_brande
 
 TRUMP_CHARMING_ACTOR_ACTING In all my world travels, I have never met people as charmed as they are with Donald Trump. People become attracted to ignorance when they encounter Donald Trump. People celebrate ignorance more than any sport or game or gaming when they consume Donald Trump images and messages. Trump can charm people to abandon all goodness. Trump leads with hate and people can not resist following.
 
+https://old.reddit.com/r/newsinterpretation/comments/1rpuf74/donald_trump_branded_unstable_as_speech_leaves/o9o55xd/
+
+https://old.reddit.com/r/newsinterpretation/comments/1rpuf74/donald_trump_branded_unstable_as_speech_leaves/o9nnic0/
+
+Reddit is still full of jokes and memes an humor about Trump. Trump is the center of all comedy and media. JOKE_COMEDY_POWER_IS_MAGA_IS_TRUMP_IS_SURKOV
+
+https://old.reddit.com/r/newsinterpretation/comments/1rpuf74/donald_trump_branded_unstable_as_speech_leaves/o9nkis8/
+
+Surkov won since March 2013. CORE_CONCERNS of this GitHub project is that maybe a hand full of people in the world, 3 or 4 people out of 8 billion, might actually recognize Neil Postman's 1985 book "Amusing Ourselves To Death" can be applied to Bluesky and Reddit and explain Donald Trump. And Postman was strictly taking about death by LOL as an outcome of technology. The Saint Petersburg Internet Research Agency and Cambridge Analytica did this intentionally, warfare!
