@@ -215,3 +215,7 @@ COMPARATIVE_MYTHOLOGY lesson here! This is something most people do not get. Joh
 https://old.reddit.com/r/PeterExplainsTheJoke/comments/1rp3417/help_please/o9iefno/
 
 YOU_MUST_HATE_EX_LOVERS
+
+https://old.reddit.com/r/whennews/comments/1rpejcu/what_the_fuck/o9kg6y1/
+
+https://old.reddit.com/r/whennews/comments/1rpejcu/what_the_fuck/o9khqrt/
