@@ -908,3 +908,5 @@ MAXIMUM_PUTINIZATION
 
 https://old.reddit.com/r/GetNoted/comments/1rpf9et/smartest_nazi/o9l5agb/
 
+https://old.reddit.com/r/GetNoted/comments/1rpf9et/smartest_nazi/o9kynfr/
+
