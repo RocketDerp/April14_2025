@@ -60,3 +60,7 @@ I created this new /r/WreckedUSA subreddit today. 2026-02-18 Emphasis on Dr. Ban
 
 NEW_OPERA_NAME #WreckedUSA   
 Social post { https://autistics.life/@RoundSparrow/116093137905254759 https://bsky.app/profile/greatsealusa.bsky.social/post/3mf5qq4idzk2k }   
+
+https://old.reddit.com/r/comics/comments/1rq0rug/current_events/o9p4hbk/
+
+My comment to a big Reddit influencer.
