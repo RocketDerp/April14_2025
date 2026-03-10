@@ -340,7 +340,7 @@ https://old.reddit.com/r/worldnews/comments/1rpfx3t/trump_cancels_sanctions_agai
 
 "Putin is just laughing and laughing." and Reddit and Bluesky are laughing and laughing at Donald Trump's POTUS Tony Clifton show. Gullible audience who can't see that amusement is the Surkov information warfare since year 2013. LAUGHTER_THE_BEST_MINDFUCK
 
-NEW_OPERA_NAME #UkraineFalls   
+NEW_OPERA_NAME #UkraineFalls #WarInstantly     
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mgo7shdems2s  https://autistics.life/@RoundSparrow/116202283690577483 }   
 
 https://old.reddit.com/r/worldnews/comments/1rpfx3t/trump_cancels_sanctions_against_countries_buying/o9ku2ef/
