@@ -499,3 +499,10 @@ https://old.reddit.com/r/Music/comments/1rpwwp6/hugh_jackman_performs_at_rupert_
 
 ATTRACTION_TO_HATE_LEADERS_HATE_FOLLOWERS
 
+https://old.reddit.com/r/worldnews/comments/1rpsmby/russia_is_the_only_winner_of_middle_east_war_eus/o9n6qxb/
+
+MAXIMUM_PUTINIZATION
+
+https://old.reddit.com/r/worldnews/comments/1rpsmby/russia_is_the_only_winner_of_middle_east_war_eus/o9nfd6o/
+
+Surkov won since year 2013.
