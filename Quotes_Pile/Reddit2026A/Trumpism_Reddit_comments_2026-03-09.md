@@ -526,3 +526,7 @@ https://old.reddit.com/r/comics/comments/1rq0rug/current_events/o9ossoe/
 https://old.reddit.com/r/comics/comments/1rq0rug/current_events/o9ot9dy/
 
 The symptom is the amusement, as defined in Neil Postman's 1985 book "Amusing Ourselves To Death". FANATICS_FANS_OF_CLOWNS_FANS_OF_MAGA_CLOWNING
+
+https://old.reddit.com/r/comics/comments/1rq0rug/current_events/o9p01zu/
+
+Governing and politics are two different things. Surkov and Putin made entertainment the center of politics and Trump imported the Surkov techniques to USA. JOKE_COMEDY_POWER_IS_MAGA_IS_TRUMP_IS_SURKOV
