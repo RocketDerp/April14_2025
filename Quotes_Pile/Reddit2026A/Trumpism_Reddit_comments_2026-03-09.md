@@ -559,4 +559,6 @@ https://old.reddit.com/r/nottheonion/comments/1rq455m/erika_kirk_appointed_to_ai
 
 Top most upvoted popular comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING White House leads with ignorant thinking and the MAGA_FANDOM on Reddit follows the ignorant thinking. This pattern has been going on as some sick kind of "entertainment" and stimulation of thrill of high-speed information systems delivery. Anti-intellectual society that prizes low-information upvoting. For over a decade, Trump is the very low measuring bar that people strive to out-mock. The mockery is against intelligence itself.
 
+https://old.reddit.com/r/nottheonion/comments/1rq455m/erika_kirk_appointed_to_air_force_academy_board/o9pib8d/
 
+NAME_CALLING_INSULT_MOCKERY_FOLLOWERS_OF_LEADER_DONALD_TRUMP_SHALLOWNESS_VALUES
