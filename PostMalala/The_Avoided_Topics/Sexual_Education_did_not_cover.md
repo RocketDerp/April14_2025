@@ -5,3 +5,8 @@ Sue Black Catches Paedophiles by Looking at the Marks on Their Hands
 
 Our sexual education in the 1980's when I was in school did not cover childhood sexual abuse as the threat it was. Drugs were more concern than psycological education about abuse.
 
+&nbsp;
+
+I was sex trafficked for years. Brothels are hidden in plain sight. | Casandra Diamond | TEDxToronto   
+https://www.youtube.com/watch?v=Rg6xCRemYw4    
+
