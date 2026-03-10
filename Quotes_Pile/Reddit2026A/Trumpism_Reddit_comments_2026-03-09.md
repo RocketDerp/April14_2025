@@ -334,3 +334,6 @@ https://old.reddit.com/r/worldnews/comments/1rpfx3t/trump_cancels_sanctions_agai
 
 TRUMP_CHARMING_ACTOR_ACTING The thing that media cult members want is stimulation and content. The clergy provides science fiction stories, Fox News provides fiction stories, Truth Social provides fiction stories, Reddit provides fiction stories from Trump. Media addicts care more about fiction than they care about human persons. Torah, Bible, Quran science fiction trilogy has shown this for thousands of years.
 
+https://old.reddit.com/r/worldnews/comments/1rpfx3t/trump_cancels_sanctions_against_countries_buying/o9l347c/
+
+"Putin is just laughing and laughing." and Reddit and Bluesky are laughing and laughing at Donald Trump's POTUS Tony Clifton show. Gullible audience who can't see that amusement is the Surkov information warfare since year 2013. LAUGHTER_THE_BEST_MINDFUCK
