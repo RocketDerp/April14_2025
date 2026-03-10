@@ -226,3 +226,6 @@ https://old.reddit.com/r/law/comments/1rpzru6/trump_tells_republicans_the_save_a
 
 Magical thinking. Magical Twitter-length thinking. Tiny-short little ideas that act like the entire world doesn't struggle and that this is a USA only problem. Elon Musk, owner of Twitter, richest man in the world loves this kind of IGNORANCE_CELEBRATIONS that Reddit media cult promotes. Simplistic banality of media, just like Fox News HDTV thinking patterns. SEE_ALSO https://GitHub.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Carl_Sagan_Quotes.md
 
+https://old.reddit.com/r/Economics/comments/1rq3u8n/this_cannot_be_sustainable_the_us_borrowed_50/o9pji50/
+
+5 month Reddit account. And the hangover may not end, people can and do live horrible lives in Afghanistan and Russia, even not during wartime. And wartime can be even worse. People have all this magical sense that World War Two was the worst of humanity, Germany had a tiny amount of technology and land compared to USA. MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL
