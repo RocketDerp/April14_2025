@@ -268,3 +268,6 @@ https://old.reddit.com/r/worldnews/comments/1rpfx3t/trump_cancels_sanctions_agai
 
 HATE_MOTIVATED_ECONOMY_HATE_AS_A_VIRTUE_SIGNALING
 
+https://old.reddit.com/r/worldnews/comments/1rpfx3t/trump_cancels_sanctions_against_countries_buying/o9kqyiq/
+
+SURKOVIAN_CHESS that social media mocked, the 4D chess, has been Putin's all along. Surkov won since year 2013.
