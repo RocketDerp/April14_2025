@@ -264,3 +264,7 @@ https://old.reddit.com/r/worldnews/comments/1rpfx3t/trump_cancels_sanctions_agai
 
 Reddit commenting community joke-washes Trump and has since June 16, 2015. JOKE_COMEDY_POWER_IS_MAGA_IS_TRUMP_IS_SURKOV
 
+https://old.reddit.com/r/worldnews/comments/1rpfx3t/trump_cancels_sanctions_against_countries_buying/o9kpxsv/
+
+HATE_MOTIVATED_ECONOMY_HATE_AS_A_VIRTUE_SIGNALING
+
