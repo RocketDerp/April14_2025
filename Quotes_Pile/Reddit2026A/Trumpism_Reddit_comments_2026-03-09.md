@@ -587,4 +587,6 @@ https://old.reddit.com/r/law/comments/1rpzru6/trump_tells_republicans_the_save_a
 
 It creates content for Reddit commenting cults. PRIORITIES_OF_THE_99_PERCENT_COMMENTING_MEDIA Observe that Reddit community is not calling for a Reddit blackout protest, not promoting nonfiction relevant books on paper from Dr. Bandy X Lee since year 2017. Reddit is a venue of addiction to commenting on Trump's horrors. Dr. Bandy X Lee is not being promoted anti-intellectualism is prized in the Reddit community. Trump leads with anti-intellectual avoidance of relevant nonfiction adult books, Reddit commenting users follows Trump anti-learning anti-intelligence lead.
 
+TECHNICAL_NOTE_A Reviewing my writing a 3rd time on screenshot on Bluesky, I do see language mistakes. "Reddit commenting users follows" double-plural of "users" "follows", but I'm so burned out and exhausted, this is the reality of my brain damage. And, of course, people will say that invalidates my criticism on intellectual avoidance given I make constant language mistakes with that center of my brain damaged.
+
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mgq7plbxxc2b https://autistics.life/@RoundSparrow/116206779859132999 }    
