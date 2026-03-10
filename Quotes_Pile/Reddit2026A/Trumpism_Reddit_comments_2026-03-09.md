@@ -518,3 +518,7 @@ Social post { https://autistics.life/@RoundSparrow/116205724348636737 https://bs
 https://old.reddit.com/r/comics/comments/1rq0rug/current_events/o9ouxx8/
 
 PEOPLE_LOVE_COMEDY_MEDIA_CONTENT_MORE_THAN_PLURIBUS_HUMANISM
+
+https://old.reddit.com/r/comics/comments/1rq0rug/current_events/o9ossoe/
+
+"WHAT IS WRONG WITH EVERYONE!?" ANSWER: THIS_GITHUB - Surkov won since year 2013.
