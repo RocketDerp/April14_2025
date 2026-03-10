@@ -923,3 +923,7 @@ HATE_HARDER machine logic.
 https://old.reddit.com/r/worldnews/comments/1rq5xws/report_us_detects_signs_iran_preparing_to_lay/o9pwu9h/
 
 2nd most popular upvoted comment. FOLLOWERS_OF_LEADER_TRUMP_ACTOR_ENTERTAINER_DONALD_TRUMP_FOLLOWERS As long as there are video games, world events are just entertainment for commenting jokes about.
+
+https://old.reddit.com/r/worldnews/comments/1rq5xws/report_us_detects_signs_iran_preparing_to_lay/o9qibog/
+
+ELECTION_DAY_FIXATED_BRAIN_ROT_EVERY_DAY_FOX_NEWS_ETC - spread more brain rot, keep making dumb emotional hate and anger the anti-intellectual mindsets of governing in USA. This is promoting adding to the brain rot.
