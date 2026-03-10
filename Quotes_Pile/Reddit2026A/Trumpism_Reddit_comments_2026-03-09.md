@@ -570,3 +570,7 @@ CONCERNS_OF_FINNEGANS Finnegans Wake Iterates.
 https://old.reddit.com/r/news/comments/1rq5cqy/exclusive_as_many_as_150_us_troops_wounded_so_far/o9psn8r/
 
 Gullible Reddit commenting community members believe SURKOV_SHUFFLE is accidental. The "accidents" and "mistakes" in public create engagement with the Reddit fandom of hate-watching. Reddit users avoid study of relevant nonfiction. NOT_GOOD_ENOUGH Peter Pomerantsev isn't good enough to study Russia and how it applies to Trump leadership techniques. https://www.youtube.com/watch?v=5Au332OG-M4
+
+https://old.reddit.com/r/news/comments/1rq5cqy/exclusive_as_many_as_150_us_troops_wounded_so_far/o9pqrcg/
+
+2nd most popular upvoted comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING messaging that waiting around for election day in year 2028 is all that Reddit society can do. No Reddit blackout, no education campaigns of promoting nonfiction from Dr. Bandy X Lee, etc. ELECTION_DAY_FIXATED_BRAIN_ROT_EVERY_DAY_FOX_NEWS_ETC
