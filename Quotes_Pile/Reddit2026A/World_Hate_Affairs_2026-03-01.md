@@ -905,3 +905,6 @@ MAGA_FANDOM that can't wait for the media stimulation of MAGA commenting. Addict
 https://old.reddit.com/r/worldnews/comments/1rp68cc/russia_is_sharing_intelligence_with_iran_about_us/o9ita5j/
 
 MAXIMUM_PUTINIZATION
+
+https://old.reddit.com/r/GetNoted/comments/1rpf9et/smartest_nazi/o9l5agb/
+
