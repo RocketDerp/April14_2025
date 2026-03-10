@@ -367,3 +367,7 @@ https://old.reddit.com/r/worldnews/comments/1rpfx3t/trump_cancels_sanctions_agai
 
 People don't want to even bother using Reddit for a blackout uprising. DANGER_ALERT_CALL_TO_INTELLECTUAL_ARMS_BOOK_CRAM_SESSIONS The Reddit addiction to mocking Trump and insulting MAGA far exceeds any desire to turn to Dr. Bandy X Lee for leadership and learning.
 
+https://old.reddit.com/r/SipsTea/comments/1rphop5/reporter_you_just_suggested_that_iran_somehow_got/o9l2flk/
+
+15 day Reddit account. 2nd most upvoted popular comment. Not even 140 characters. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT Anti-intellectual, following the Trump leadership of anti-intelligence.
+
