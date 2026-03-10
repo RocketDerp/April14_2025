@@ -534,3 +534,7 @@ Governing and politics are two different things. Surkov and Putin made entertain
 https://old.reddit.com/r/comics/comments/1rq0rug/current_events/o9ov8c6/
 
 They manufacture content. Images for Reddit. There were not image devices in every hand before year 2007. Trumpism is media ecology. TRICKLE_DOWN_CONTENT
+
+https://old.reddit.com/r/comics/comments/1rq0rug/current_events/o9otp9x/
+
+This isn't politics. This is abandonment of nonfiction. This is Reddit and Bluesky and Twitter and Facebook taking over the entire  nation. The Apple iPad and Apple iPhone society. This is the abandonment of reason thinking in favor of Twitter-thinking. Donald Trump created Truth Social, a Twitter-like platform. Elon Musk, richest man in the world, purchased Twitter. People do not see on Reddit the avoidance of nonfiction relevant books on paper. Commenting addiction is the population. PRIORITIES_OF_THE_99_PERCENT_COMMENTING_MEDIA
