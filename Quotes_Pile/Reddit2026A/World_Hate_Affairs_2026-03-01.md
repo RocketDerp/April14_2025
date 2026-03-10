@@ -927,3 +927,8 @@ https://old.reddit.com/r/worldnews/comments/1rq5xws/report_us_detects_signs_iran
 https://old.reddit.com/r/worldnews/comments/1rq5xws/report_us_detects_signs_iran_preparing_to_lay/o9qibog/
 
 ELECTION_DAY_FIXATED_BRAIN_ROT_EVERY_DAY_FOX_NEWS_ETC - spread more brain rot, keep making dumb emotional hate and anger the anti-intellectual mindsets of governing in USA. This is promoting adding to the brain rot.
+
+https://old.reddit.com/r/worldnews/comments/1rq5xws/report_us_detects_signs_iran_preparing_to_lay/o9qdglr/
+
+BEYOND_DENIAL I really think people are in denial and not facing up that the USA has nuclear submarines capable of monitoring who is laying the mines and creating dramatic sinking. It would get more press coverage and the kind of "bad ass Depart of War" mindset that has been the anti-intellectual weapon-systems technology worship of the MAGA movement. The nuclear submarines and space resources can give coordinates and rockets and/or jets can deliver bombs.
+
