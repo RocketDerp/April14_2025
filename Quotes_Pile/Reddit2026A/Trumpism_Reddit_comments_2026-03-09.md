@@ -574,3 +574,11 @@ Gullible Reddit commenting community members believe SURKOV_SHUFFLE is accidenta
 https://old.reddit.com/r/news/comments/1rq5cqy/exclusive_as_many_as_150_us_troops_wounded_so_far/o9pqrcg/
 
 2nd most popular upvoted comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING messaging that waiting around for election day in year 2028 is all that Reddit society can do. No Reddit blackout, no education campaigns of promoting nonfiction from Dr. Bandy X Lee, etc. ELECTION_DAY_FIXATED_BRAIN_ROT_EVERY_DAY_FOX_NEWS_ETC
+
+https://old.reddit.com/r/law/comments/1rpzru6/trump_tells_republicans_the_save_america_act_will/o9onku5/
+
+1st most popular comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
+
+https://old.reddit.com/r/law/comments/1rpzru6/trump_tells_republicans_the_save_america_act_will/o9onwih/
+
+2nd most popular upvoted comment. HATE_HARDER messaging. Promoting ignorance and hate, following Trump's leadership of hate.  ATTRACTION_TO_HATE_LEADERS_HATE_FOLLOWERS
