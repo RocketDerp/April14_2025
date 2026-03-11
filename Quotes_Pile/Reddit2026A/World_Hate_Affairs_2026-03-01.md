@@ -963,3 +963,7 @@ Ultimately it does not matter. It is the 99% of people behaving ignorant and avo
 https://old.reddit.com/r/worldnews/comments/1rqlwh2/zelenskyy_ukraine_now_has_cards_and_everyone/o9t57qg/
 
 Top most popular upvoted comment. Joke-washing Putin and Trump. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
+
+https://old.reddit.com/r/worldnews/comments/1rqlwh2/zelenskyy_ukraine_now_has_cards_and_everyone/o9t7wk8/
+
+JD Vance Fandom, MAGA_FANDOM on Reddit. Crying out for more content creation of the Kremlin White House performers. 7 month Reddit account, 2nd most-upvoted popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
