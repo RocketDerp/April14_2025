@@ -697,3 +697,7 @@ https://old.reddit.com/r/StrangeEarth/comments/1rqfzk7/ny_fire_commissioner_chri
 
 Yha. A NYC Fire commissioner isn't concerned about NYC Trump harming the world. WHEN_THE_PEOPLE_HAVE_LOST_THE_ABILITY
 
+https://old.reddit.com/r/interestingasfuck/comments/1rqrocc/thai_ship_attacked_in_the_strait_of_hormuz/o9ug8u8/
+
+Yha, they live in ANTI_REALITY of Reddit where people create comments like this one that are non-specific and use in-group language associations.
+
