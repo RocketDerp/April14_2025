@@ -223,3 +223,6 @@ https://old.reddit.com/r/whennews/comments/1rpejcu/what_the_fuck/o9khqrt/
 https://old.reddit.com/r/lol/comments/1rqa7gb/lmao/o9qtvxv/
 
 CHOICE_MARRIAGE_HONESTY
+
+https://old.reddit.com/r/pcmasterrace/comments/1rqdy0n/bipolar_partner_destroyed_everything/o9rk7bp/
+
