@@ -43,6 +43,7 @@ I did not watch every minute, I skipped some, but I think it avoids Peter P and 
 
 4Chan GamerGate - grep this GitHub for this link: https://autistics.life/@RoundSparrow/116211974896109466   
 
+WAR_AGAINST_REALITY   
 
 &nbsp;
 
