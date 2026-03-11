@@ -983,3 +983,7 @@ https://old.reddit.com/r/PublicFreakout/comments/1rqocbr/israeli_settlers_have_p
 https://old.reddit.com/r/PublicFreakout/comments/1rqocbr/israeli_settlers_have_poured_cement_over_water/o9tnwke/
 
 HATE_FOR_HATE - people who believe the answer is that the world always needs more hate. Machine logic welded on hate.
+
+https://old.reddit.com/r/PublicFreakout/comments/1rqocbr/israeli_settlers_have_poured_cement_over_water/o9tmngd/
+
+"he" being Germany Hitler, USA Trump, etc. Reddit fandom of mass dehumanization. MASS_DEHUMANIZATION_POPULAR with the Twitter-length Tweet-thinking mindsets.
