@@ -744,4 +744,4 @@ https://old.reddit.com/r/explainitpeter/comments/1rqywy5/found_this_on_fb_with_o
 
 TRICKLE_DOWN_TALKING_POINTS_TO_SOCIETY "Operation Matthew 4:19" GAMERS_SIMULACRA ... CULT_INDOCTRINATION BRAIN_ROT_LEFT_RIGHT_LIB_CON_NAME_AVOIDANCE BRAIN_ROT_SOCIETY_47
 
-Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mgsjhqg3fk2k https://autistics.life/@RoundSparrow/116211974896109466 }    
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mgsjhqg3fk2k https://autistics.life/@RoundSparrow/116211974896109466 https://MidWest.Social/post/44530962 }    
