@@ -729,3 +729,7 @@ FEEDBACK_LOOP_MEDIA_CULTS_PLATFORM_TO_PLATFORM_MOCKERY_USA Reddit users spent an
 
 NEW_OPERA_NAME #LotOfQuestions    
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mgsda762dc2s https://autistics.life/@RoundSparrow/116211530329895837 }    
+
+https://old.reddit.com/r/news/comments/1rqvhsq/iran_tells_world_to_get_ready_for_200_a_barrel/o9v41d8/
+
+6 month Reddit account. ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING - observe that the Reddit commenting section is not promoting Dr. Bandy X Lee's 27 leaders to remove Trump. This is a MAGA_FANDOM comment that has normalized the MAGA situation. Which did not exist before year 2013. The anti-intellectual commenting cult of Reddit.
