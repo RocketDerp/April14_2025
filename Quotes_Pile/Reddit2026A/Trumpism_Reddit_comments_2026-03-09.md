@@ -752,3 +752,7 @@ Top most popular upvoted comment. 9 day Reddit account. REDDIT_TOP_COMMENT_YOUNG
 
 This commenting on Reddit isn't resisting, it's just commenting. It is engagement culture, MAGA fandom commenting about the MAGA media. Everything is Media Ecology. EVERYTHING_IS_MEDIA_ECOLOGY
 
+https://old.reddit.com/r/explainitpeter/comments/1rqywy5/found_this_on_fb_with_of_course_zero_context_can/o9wzn4c/
+
+The avoidance of Dr. Bandy X Lee nonfiction writing, a woman, on Reddit commenting section in year 2026 I think speaks a lot for the game player attitudes on Reddit. Anti-intellectual, anti-goodness, anti-Wiki anti-FAQ. People who believe in low-effort commenting and don't want women organizing against Steve Bannon and Donald Trump. Steve Bannon worked with Cambridge Analytica, and I do not see this Reddit comment creator pointing that out. It is HIGHLY relevant to the alt-right topic of the posting from Facebook "found this on FB". PRIORITIES_OF_THE_99_PERCENT_COMMENTING_MEDIA
+
