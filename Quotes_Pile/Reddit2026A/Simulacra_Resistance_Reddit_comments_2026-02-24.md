@@ -241,3 +241,8 @@ High speed image exchange itself is the Reddit comment creator addiction. Treati
 
 * “This need to interface, to confront environments with a certain antisocial power, is manifest in the famous story, “The Emperor’s New Clothes.” “Well-adjusted” courtiers, having vested interests, saw the Emperor as beautifully appointed. The “antisocial” brat, unaccustomed to the old environment, clearly saw that the Emperor “ain’t got nothin’ on.” The new environment was clearly visible to him.”
 — Marshall McLuhan https://www.theMediumistheMassAge.com/the-book/
+
+https://old.reddit.com/r/pics/comments/1rqmxjp/marco_rubio_wearing_oversized_shoes_that_trump/o9tdiwx/
+
+Funny, amusing. Neil Postman's 1985 book explains all of Reddit-Trump fandom. Reddit i a cult of mocking Trumpism and mocking MAGA. Which was already a cult of Trump. It is a cult of mocking a mockery. That is not resisting Trump, it's abandoning all goodness to behave and follow Trump like Reddit venue groupies.
+
