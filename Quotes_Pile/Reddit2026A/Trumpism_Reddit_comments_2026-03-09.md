@@ -745,3 +745,10 @@ https://old.reddit.com/r/explainitpeter/comments/1rqywy5/found_this_on_fb_with_o
 TRICKLE_DOWN_TALKING_POINTS_TO_SOCIETY "Operation Matthew 4:19" GAMERS_SIMULACRA ... CULT_INDOCTRINATION BRAIN_ROT_LEFT_RIGHT_LIB_CON_NAME_AVOIDANCE BRAIN_ROT_SOCIETY_47
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mgsjhqg3fk2k https://autistics.life/@RoundSparrow/116211974896109466 https://MidWest.Social/post/44530962 }    
+
+https://old.reddit.com/r/Fauxmoi/comments/1rr0ojh/bernie_sanders_one_family_the_rightwing/o9w4h56/
+
+Top most popular upvoted comment. 9 day Reddit account. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT promoting 140 characters or less Twitter-media logic of the richest man in the world, Elon Musk Twitter owner. PRIORITIES_OF_THE_99_PERCENT_COMMENTING_MEDIA BRAIN_ROT_LEFT_RIGHT_LIB_CON_NAME_AVOIDANCE
+
+This commenting on Reddit isn't resisting, it's just commenting. It is engagement culture, MAGA fandom commenting about the MAGA media. Everything is Media Ecology. EVERYTHING_IS_MEDIA_ECOLOGY
+
