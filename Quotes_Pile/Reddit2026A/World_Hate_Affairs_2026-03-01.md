@@ -943,3 +943,15 @@ Reddit comment creator thinks this is classic "dumb". SURKOVIAN_ONION_EATING - w
 https://old.reddit.com/r/GetNoted/comments/1rq9cdj/seeing_missiles_overhead/o9r1nlk/
 
 This whole posting is full of MEDIA_ECOLOGY_OBSERVATION 
+
+https://old.reddit.com/r/videos/comments/1rq9h9v/white_house_press_karoline_leavitt_on_iran_and/o9qnagv/
+
+https://old.reddit.com/r/videos/comments/1rq9h9v/white_house_press_karoline_leavitt_on_iran_and/o9qnbmq/
+
+https://old.reddit.com/r/videos/comments/1rq9h9v/white_house_press_karoline_leavitt_on_iran_and/o9qmlqg/
+
+https://old.reddit.com/r/videos/comments/1rq9h9v/white_house_press_karoline_leavitt_on_iran_and/o9qqh6a/
+
+https://old.reddit.com/r/videos/comments/1rq9h9v/white_house_press_karoline_leavitt_on_iran_and/o9qudli/
+
+Yes. BRAIN_ROT_SOCIETY_47 that's the mentality of the USA now. Observe the avoidance of relevant nonfiction books by Dr. Bandy X Lee all over Reddit.
