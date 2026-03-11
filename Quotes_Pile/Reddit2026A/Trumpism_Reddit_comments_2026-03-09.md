@@ -701,3 +701,6 @@ https://old.reddit.com/r/interestingasfuck/comments/1rqrocc/thai_ship_attacked_i
 
 Yha, they live in ANTI_REALITY of Reddit where people create comments like this one that are non-specific and use in-group language associations.
 
+https://old.reddit.com/r/interestingasfuck/comments/1rqrocc/thai_ship_attacked_in_the_strait_of_hormuz/o9ub5hx/
+
+7 month Reddit account. PRIORITIES_OF_THE_99_PERCENT_COMMENTING_MEDIA
