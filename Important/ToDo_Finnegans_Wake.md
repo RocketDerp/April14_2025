@@ -884,3 +884,7 @@ Finnegans Wake has overloaded meanings and can tell many stories based on what y
 
 https://www.youtube.com/shorts/br6BgFQBpTU
 
+&nbsp;
+
+https://www.youtube.com/watch?v=bDNFXgefcg0     
+William Burroughs's Theory of Language as a Virus in "The Job" and Jacques Lacan's "Écrits"    
