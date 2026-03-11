@@ -720,3 +720,12 @@ https://old.reddit.com/r/politics/comments/1rqtmuc/hegseths_fragile_masculinity_
 WHITE_HOUSE_HYPER_REAL 
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mgschbnj422c https://autistics.life/@RoundSparrow/116211479683287799 }    
+
+https://old.reddit.com/r/politics/comments/1rqtmuc/hegseths_fragile_masculinity_has_doomed_the_us/o9uskd8/
+
+<img width="1188" height="974" alt="image" src="https://github.com/user-attachments/assets/255397c2-9064-48e2-ba2c-83b8f7fe43d4" />
+
+FEEDBACK_LOOP_MEDIA_CULTS_PLATFORM_TO_PLATFORM_MOCKERY_USA Reddit users spent an entire decade on media machines mocking away all nonfiction serious books on paper. High school is not where adults learn. Adults learn on Fox News, adults learn on Newsmax, adults learn from Alex Jones, adults learn from Reddit shit-commenting. The problem is Reddit itself. Mocking and joking about serious topics.
+
+NEW_OPERA_NAME #LotOfQuestions    
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mgsda762dc2s https://autistics.life/@RoundSparrow/116211530329895837 }    
