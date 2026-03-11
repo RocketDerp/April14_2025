@@ -629,3 +629,7 @@ https://old.reddit.com/r/technology/comments/1rqbaa9/maga_suddenly_quiet_about_o
 
 https://old.reddit.com/r/technology/comments/1rqbaa9/maga_suddenly_quiet_about_overseas_influence_now/o9r6f4k/
 
+https://old.reddit.com/r/law/comments/1rqh678/trump_is_now_blaming_hegseth_jared_witkolf_and/o9s862p/
+
+Top most popular upvoted comment. TRUMP_FANDOM behavior on Reddit. People who view all this through the perspective of entertainment (Neil Postman's 1985 book). REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
+
