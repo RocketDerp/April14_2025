@@ -229,3 +229,15 @@ Magical thinking. Magical Twitter-length thinking. Tiny-short little ideas that 
 https://old.reddit.com/r/Economics/comments/1rq3u8n/this_cannot_be_sustainable_the_us_borrowed_50/o9pji50/
 
 5 month Reddit account. And the hangover may not end, people can and do live horrible lives in Afghanistan and Russia, even not during wartime. And wartime can be even worse. People have all this magical sense that World War Two was the worst of humanity, Germany had a tiny amount of technology and land compared to USA. MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL
+
+https://old.reddit.com/r/pics/comments/1rqmxjp/marco_rubio_wearing_oversized_shoes_that_trump/o9tco9h/
+
+TRUMP_FANDOM behavior. This entire posting. Very top of /r/All front page. This is not resisting the ignorance and mockery that Donald Trump leads with. This is Celebration of Ignorance. This is celebrating Donald Trump's mistakes a a form of entertainment. The crisis here is that Reddit suffers from such a casino culture and media environment that RECENCY_BIAS saturates the minds The constant stimulation that Donald Trump content creators / reality TV mindset provides. TRUMP_CHARMING_ACTOR_ACTING
+
+High speed image exchange itself is the Reddit comment creator addiction. Treating the Kremlin White House's use of Surkov students as the most thrilling alternate reality game. A screen game of consuming Trump content creation.
+
+* “The poet, the artist, the sleuth - whoever sharpens our perception tends to be antisocial; rarely "well-adjusted", he cannot go along with currents and trends. A strange bond often exists between antisocial types in their power to see environments as they really are. This need to interface, to confront environments with a certain antisocial power is manifest in the famous story "The Emperor's New Clothes".”
+― Marshall McLuhan, The Medium is the Massage. March 1967.
+
+* “This need to interface, to confront environments with a certain antisocial power, is manifest in the famous story, “The Emperor’s New Clothes.” “Well-adjusted” courtiers, having vested interests, saw the Emperor as beautifully appointed. The “antisocial” brat, unaccustomed to the old environment, clearly saw that the Emperor “ain’t got nothin’ on.” The new environment was clearly visible to him.”
+— Marshall McLuhan https://www.theMediumistheMassAge.com/the-book/
