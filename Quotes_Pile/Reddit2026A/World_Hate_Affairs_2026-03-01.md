@@ -967,3 +967,19 @@ Top most popular upvoted comment. Joke-washing Putin and Trump. REDDIT_TOP_COMME
 https://old.reddit.com/r/worldnews/comments/1rqlwh2/zelenskyy_ukraine_now_has_cards_and_everyone/o9t7wk8/
 
 JD Vance Fandom, MAGA_FANDOM on Reddit. Crying out for more content creation of the Kremlin White House performers. 7 month Reddit account, 2nd most-upvoted popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+
+https://old.reddit.com/r/PublicFreakout/comments/1rqocbr/israeli_settlers_have_poured_cement_over_water/o9tmru5/
+
+https://old.reddit.com/r/PublicFreakout/comments/1rqocbr/israeli_settlers_have_poured_cement_over_water/o9tm7v7/
+
+https://old.reddit.com/r/PublicFreakout/comments/1rqocbr/israeli_settlers_have_poured_cement_over_water/o9tnc4z/
+
+https://old.reddit.com/r/PublicFreakout/comments/1rqocbr/israeli_settlers_have_poured_cement_over_water/o9tn659/
+
+https://old.reddit.com/r/PublicFreakout/comments/1rqocbr/israeli_settlers_have_poured_cement_over_water/o9tlmn8/
+
+https://old.reddit.com/r/PublicFreakout/comments/1rqocbr/israeli_settlers_have_poured_cement_over_water/o9tlbcz/
+
+https://old.reddit.com/r/PublicFreakout/comments/1rqocbr/israeli_settlers_have_poured_cement_over_water/o9tnwke/
+
+HATE_FOR_HATE - people who believe the answer is that the world always needs more hate. Machine logic welded on hate.
