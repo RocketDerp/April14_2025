@@ -644,3 +644,8 @@ Reddit and Bluesky media cults of mocking have been the centers of DEMENTIA_WASH
 https://old.reddit.com/r/law/comments/1rqh678/trump_is_now_blaming_hegseth_jared_witkolf_and/o9sahsn/
 
 TRUMP_TRUSTS_PUTIN what more evidence do you need than seeing Trump trust Putin all along? OUTSMARTED_TRICKED_MANIPULATED_BAMBOOZLED_BY_TRUMP_MURDOCH_PUTIN
+
+https://old.reddit.com/r/law/comments/1rqh678/trump_is_now_blaming_hegseth_jared_witkolf_and/o9sd7x2/
+
+CONSERVING_WHAT following Jesus, Allah, Yahweh science fiction stories of outer-space magical angels. Authority figure of Bible and Quran and afterlife Judgement Day authority.
+
