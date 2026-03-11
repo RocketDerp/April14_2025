@@ -249,3 +249,9 @@ Funny, amusing. Neil Postman's 1985 book explains all of Reddit-Trump fandom. Re
 https://old.reddit.com/r/pics/comments/1rqmxjp/marco_rubio_wearing_oversized_shoes_that_trump/o9tdf1y/
 
 **Spineless screen lickers** who are on Reddit app screens, flocking to every move and shake of the Kremlin White House. This is a cult of ignorance, celebrating the Trump ignorance as a source of commenting. PRIORITIES_OF_THE_99_PERCENT_COMMENTING_MEDIA
+
+https://old.reddit.com/r/pics/comments/1rqmxjp/marco_rubio_wearing_oversized_shoes_that_trump/o9tdid8/
+
+CONCERNS_OF_FINNEGANS The Fall cycle that Marshall McLuhan spent his lifetime teachings about. The 1968 book by Marshall McLuhan that predicts all this win by Surkov students in Russia. https://en.wikipedia.org/wiki/War_and_Peace_in_the_Global_Village
+
+Marshall McLuhan's focus was on Reddit media in year 1968!!!!
