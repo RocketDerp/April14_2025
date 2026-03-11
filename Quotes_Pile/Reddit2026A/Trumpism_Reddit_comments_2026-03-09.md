@@ -649,3 +649,6 @@ https://old.reddit.com/r/law/comments/1rqh678/trump_is_now_blaming_hegseth_jared
 
 CONSERVING_WHAT following Jesus, Allah, Yahweh science fiction stories of outer-space magical angels. Authority figure of Bible and Quran and afterlife Judgement Day authority.
 
+https://old.reddit.com/r/law/comments/1rqh678/trump_is_now_blaming_hegseth_jared_witkolf_and/o9s9yy2/
+
+TRUMP_FANDOM on Reddit. NYC Tony Clifton SNL POTUS character. NYC Trump, NYC SNL. SOUTH_PARK_FAMILY_GUY_SPONGEBOB_THE_APPRENTICE_REALITY_TELEVISION_USA
