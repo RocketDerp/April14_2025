@@ -238,3 +238,6 @@ https://old.reddit.com/r/SipsTea/comments/1rqj7ec/id_win_every_argument/o9sta8g/
 
 The photo is fake. But see the 28-day Reddit account https://old.reddit.com/user/CupidHot_ that took Twitter / X content and got to the front page of /r/All - Reddit prizing Elon Musk Twitter content. That isn't fake, the attraction to the richest man in the world's fake image platform. This is a Twitter screen shot on Reddit. MEDIA_ECOLOGY_OBSERVATION - the image also plays on USA fiction fandom of The Simpsons https://en.wikipedia.org/wiki/Eeny_Teeny_Maya_Moe there is even a resemblance to the animated character.
 
+https://old.reddit.com/r/nba/comments/1rr65au/the_reaction_to_bams_83point_game_is_a_perfect/o9xdv4a/
+
+Sports fandoms. GAMERS_SIMULACRA SOCIAL_CULT_HATE_WATCHING_FANDOM   
