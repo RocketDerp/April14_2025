@@ -246,3 +246,6 @@ https://old.reddit.com/r/pics/comments/1rqmxjp/marco_rubio_wearing_oversized_sho
 
 Funny, amusing. Neil Postman's 1985 book explains all of Reddit-Trump fandom. Reddit i a cult of mocking Trumpism and mocking MAGA. Which was already a cult of Trump. It is a cult of mocking a mockery. That is not resisting Trump, it's abandoning all goodness to behave and follow Trump like Reddit venue groupies.
 
+https://old.reddit.com/r/pics/comments/1rqmxjp/marco_rubio_wearing_oversized_shoes_that_trump/o9tdf1y/
+
+**Spineless screen lickers** who are on Reddit app screens, flocking to every move and shake of the Kremlin White House. This is a cult of ignorance, celebrating the Trump ignorance as a source of commenting. PRIORITIES_OF_THE_99_PERCENT_COMMENTING_MEDIA
