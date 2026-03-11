@@ -987,3 +987,7 @@ HATE_FOR_HATE - people who believe the answer is that the world always needs mor
 https://old.reddit.com/r/PublicFreakout/comments/1rqocbr/israeli_settlers_have_poured_cement_over_water/o9tmngd/
 
 "he" being Germany Hitler, USA Trump, etc. Reddit fandom of mass dehumanization. MASS_DEHUMANIZATION_POPULAR with the Twitter-length Tweet-thinking mindsets.
+
+https://old.reddit.com/r/PublicFreakout/comments/1rqocbr/israeli_settlers_have_poured_cement_over_water/o9toz08/
+
+https://www.snopes.com/fact-check/israelis-filling-water-with-concrete/ the footage seems to go back to July 2023. Notably before the October 7, 2023 terrorism attacks.
