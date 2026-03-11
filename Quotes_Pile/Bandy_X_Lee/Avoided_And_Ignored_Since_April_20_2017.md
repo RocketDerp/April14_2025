@@ -66,3 +66,12 @@ https://autistics.life/@RoundSparrow/116195383345956394
 
 https://bsky.app/profile/roundsparrow.bsky.social/post/3mgmyjgg35k2o    
 https://autistics.life/@RoundSparrow/116199519306740123    
+
+# Tuesday March 10, 2026
+
+NEW_OPERA_NAME #ShouldBeRepeated    
+https://autistics.life/@RoundSparrow/116206506132598542    
+https://bsky.app/profile/roundsparrow.bsky.social/post/3mgq3tctp3s2v    
+
+https://bsky.app/profile/roundsparrow.bsky.social/post/3mgqakojtjk2o    
+https://autistics.life/@RoundSparrow/116206838818150711    

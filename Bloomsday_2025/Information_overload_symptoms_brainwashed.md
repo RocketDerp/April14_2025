@@ -6,5 +6,14 @@ https://old.reddit.com/r/LeopardsAteMyFace/comments/1ldffgf/trump_voter_whose_te
 
 These are the symptoms of a corrupt religion. Information overload symptoms. The Information Age gone into fiction.
 
-### Neil Postamn 1985 is Today 2015 onward
+### Neil Postman 1985 is Today 2015 onward
 
+
+&nbsp;
+
+# March 2026
+
+https://www.youtube.com/watch?v=t0qq9R__XiQ    
+Your brain wasn't built to hold this much information | Richard Cytowic    
+
+INFORMATION_GLUT_COMMENTING_GLUT    

@@ -75,3 +75,680 @@ https://old.reddit.com/r/politics/comments/1rp2yry/peter_thiel_and_jeffrey_epste
 
 EPSTEIN_FANDOM on Reddit thrilled to have new fantasy island material. ANYTHING to avoid promoting and repeating Dr. Bandy X Lee's 27 writers in her book and reforming society. SEX_SELLS_SEX_LEADERS
 
+https://old.reddit.com/r/okbuddychicanery/comments/1rp15k1/what_did_the_white_house_mean_by_this/o9hp6n1/
+
+NONSENSE_HARDER is the constant desire of MAGA fandoms. Always wanting more fiction in society and government. That's what Trumpism provides, fiction addicts constantly amused and "circle jerking" at Trumpism.
+
+https://old.reddit.com/r/okbuddychicanery/comments/1rp15k1/what_did_the_white_house_mean_by_this/o9hy64c/
+
+VINCE_GILLIGAN_WAS_CORRECT about fandoms of Walter White on his February 15, 2025 WGA public speech about social media being a "cesspool".
+
+https://old.reddit.com/r/Irony/comments/1royxe9/this_man_has_no_common_sense_or_decency/o9hd88p/
+
+"his cult", Reddit is the cult of mockery and attraction to Trump as a LOLCOW cult figure. This is the top most-upvoted popular comment. 6 month Reddit account. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT - why isn't Reddit having a REDDIT_BLACKOUT protest? Why are Reddit comment creators not organizing a social media internet protest? Why is there always an avoidance of relevant nonfiction books on paper by Dr. Bandy X Lee? ANSWER: Reddit is a media cult of mocking other media cults. SOCIAL_CULT_HATE_WATCHING_FANDOM
+
+https://old.reddit.com/r/Irony/comments/1royxe9/this_man_has_no_common_sense_or_decency/o9haop5/
+
+1 month Reddit account. DOWNPLAYING_DANGER_MINIMIZING_THREATS - just low-effort commenting about how normal and routine Trump is as discussion about his makeup, clothing, fashion, style. Trump fandom can never get enough images of Donald Trump on /r/All front page of Reddit. This has been going on with Reddit community since June 16, 2015 - nearly eleven full years of cult fandom of Trump photos and fashion.
+
+https://old.reddit.com/r/Irony/comments/1royxe9/this_man_has_no_common_sense_or_decency/o9h94u4/
+
+5 month Reddit account. TRUMP_FANDOM believes that what people need is MORE ATTENTION on Donald Trump. NONSENSE_HARDER - messages on Reddit are encouraging even MORE toxic popularity. More cult images of Trump's unique fashion, style, charm, symbolism arranging.
+
+https://old.reddit.com/r/TikTokCringe/comments/1rp4xf9/i_found_this_pretty_inspirational_right_now/o9ihurw/
+
+Top most upvoted comment on Reddit posting! IMPORTANT_QUOTES_A - alas, people need to turn to nonfiction from Neil Postman about George Orwell and Fox News, Reddit, Twitter. "Amusing Ourselves To Death" explains Trumpism celebrity fandom cults. People need to mount an intellectual rescue. BRAIN_ROT_SOCIETY_47
+
+https://old.reddit.com/r/TikTokCringe/comments/1rp4xf9/i_found_this_pretty_inspirational_right_now/o9ihiri/
+
+140 character or less Twitter-think mindset. Donald Trump is a real estate, land lord, land owner. The same as the famous Luigi answer. JANUARY_1944_SECOND_BILL_OF_RIGHTS addresses UNIVERSITY, Housing, food, farming, health care, and monopoly media power! Not just health care. Further, this message is TRUMP_FANDOM as it does not care of Trump is still in power... no call for immediate removal. Trump would add $2,800.00 a month rent increase to pay for health care and people would ignorantly cheer it on as "free" health care. The Second Bill of Rights addresses the entire equation. CALL_FOR_ACTION_TO_DO_TRIVIAL_CHANGE with Twitter-length short-message mindsets.
+
+https://old.reddit.com/r/technology/comments/1rp32ai/it_doesnt_feel_safemany_international_game/o9i6pfm/
+
+HATE_MOTIVATED_ECONOMY_HATE_AS_A_VIRTUE_SIGNALING  Like the constantly celebration of ignorance and joke-washing of Trump and the long-term impact of making Trump a source of constant Reddit entertainment and amusement. People can not connect the dots back to Neil Postman's 1985 nonfiction book on paper, "Amusing Ourselves To Death". https://en.wikipedia.org/wiki/Amusing_Ourselves_to_Death
+
+NONFICTION BOOK QUOTE FOLLOWS
+
+
+When conformity enforcers overwhelm diversity generators, all of us are in trouble. Spartans -- fundamentalists, militia groups, fascists, and ultra-nationalists -- can freeze the machinery of collective mind. A shutdown of urban diversity devastates that exercise of collective acumen we call an economy. Christian Fundamentalism has been shown by the research of sociologists Alfred Darnell and Darren E. Sherkat to retard the learning of children raised within its grasp. Darnell and Sherkat sum up a common Fundamentalist attitude in the following words: "No schooling is better than secular schooling." Then there's the paralysis of thought which outright battle brings. When World War I erupted, Sigmund Freud was horrified by the sudden "narrow-mindedness shown by \[even\] the best intellects, their obduracy, their inaccessibility to the most forcible arguments." Such closings of the mind may explain why authoritarians are prone to ignore it when their approaches flop. They often goose-step from one year to another rigidly glued to backfiring ways.
+
+Global Brain: The Evolution of Mass Mind from the Big Bang to the 21st Century      
+Chapter: The Kidnap of Mass Mind     
+Page: 203-204     
+Howard Bloom    
+Published: August 14, 2000    
+
+https://old.reddit.com/r/worldnews/comments/1rp5i3v/iran_is_ready_for_a_long_war_with_the_us_and_only/o9in4ag/
+
+Top most-upvoted popular comment. This isn't sarcasm, this has been the constant stimulation of media addicted society for over a decade, Trumpism. SATIRE_SARCASM_WASHING Reddit culture is an addiction to normalizing Trump as a source of media content, images, messages. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
+
+https://old.reddit.com/r/worldnews/comments/1rp5i3v/iran_is_ready_for_a_long_war_with_the_us_and_only/o9ilq2m/
+
+2nd most popular upvoted comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING Anti-intellectual. WE_THE_PEOPLE_MEDIA_COMMENTING
+
+https://old.reddit.com/r/law/comments/1rp6o6q/kristi_noem_stole_143m_of_us_tax_payers_money_by/o9it6el/
+
+TRUMP_FANDOM "LOL" commenting about how amusing and comedic Trump White House is for media watchers. The top-most popular upvoted comment thinks it is funny to live in this reality TV South Park year 2025 animation mockery culture. Reddit comment creators are the fandom to Trump images and stories about POTUS Tony Clifton character players, it creates constant content to stimulate the touch media devices. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
+
+https://old.reddit.com/r/law/comments/1rp6o6q/kristi_noem_stole_143m_of_us_tax_payers_money_by/o9iv4f9/
+
+"And why aren't Dems EVERY SINGLE DAY" CIVIC_DUTY_WE_PEOPLE - why are Reddit users, We The People, not having a Reddit blackout or other social media protest to call for Trump removal and pro-intellectual reform of society? AVOIDED_DR_BANDY_X_LEE_PUBLIC_WRITINGS - why are Reddit comment creators turning to serious nonfiction books in times of intellectual corruption and bad thinking? ANSWER: Reddit is a FANDOM to the situation and does not feel there is a We The People civic duty to EVERY HOUR OF EVERY DAY on Reddit quote Dr. Bandy X Lee's nonfiction books!
+
+https://old.reddit.com/r/law/comments/1rp6o6q/kristi_noem_stole_143m_of_us_tax_payers_money_by/o9j3yhh/
+
+YES. EPSTEIN_FANDOM behaviors. Files and information are not calling for the actions to stop. It is media addiction of a media addict society. INFORMATION_STRIP_TEASE
+
+https://old.reddit.com/r/law/comments/1rp6o6q/kristi_noem_stole_143m_of_us_tax_payers_money_by/o9j2hd5/
+
+Exactly! People cheering on Super Bowl winner Jody Allen / Paul Allen family in February 2026. RESISTING_WHAT_EXACTLY ? Not resisting media entertainment addictions. Trump is entertaining people into meme stupors. And has been for over a decade. MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL Cheering on Star Wars Andor 2025 and South Park 2025 content creator. People need to study Neil Postman's 1985 book "Amusing Ourselves To Death" and face just how deep of a hole of jokes and memes have dug for the nation. Surkov won since year 2013. POTUS_TONY_CLIFTON_IGNORANCE
+
+https://old.reddit.com/r/law/comments/1rp6o6q/kristi_noem_stole_143m_of_us_tax_payers_money_by/o9j3sjo/
+
+GULLIBILITY_CRISIS and Elon Musk fandom talking points. REMEMBER_THE_PROGRAM_IDEAS_BILLIONAIRES_FED_REDDIT_AUDIENCE observe that these short-length comments make no call to resist, just ask simple "engagement questions" media techniques.
+
+https://old.reddit.com/r/technology/comments/1rp6m5d/ai_error_likely_led_to_girls_school_bombing_in/o9iw356/
+
+PREDATORY_BILLIONAIRE_SYSTEMS systemic mass dehumanization. /r/Technology loves it when people can blame the computers. 
+
+* “Naturally, bureaucrats can be expected to embrace a technology that helps to create the illusion that decisions are not under their control. Because of its seeming intelligence and impartiality, a computer has an almost magical tendency to direct attention away from the people in charge of bureaucratic functions and toward itself, as if the computer were the true source of authority. A bureaucrat armed with a computer is the unacknowledged legislator of our age, and a terrible burden to bear.” ― Neil Postman, Technopoly: The Surrender of Culture to Technology. year 1992.
+
+https://old.reddit.com/r/technology/comments/1rp6m5d/ai_error_likely_led_to_girls_school_bombing_in/o9ive1l/
+
+Yes. Meme-culture meme-addicts meme-addled Reddit fandom is the audience of this message. South Park thinking. Twitter-think. "know your audience" in media, written just for the Reddit fandom of technology. TREND_CHASING_MEDIA_TRENDING
+
+https://old.reddit.com/r/technology/comments/1rp6m5d/ai_error_likely_led_to_girls_school_bombing_in/o9ix7pa/
+
+/r/Technology community. TECH_LUST_TECH_LOVERS
+
+https://old.reddit.com/r/technology/comments/1rp6m5d/ai_error_likely_led_to_girls_school_bombing_in/o9izj4p/
+
+People love computers and hate human persons. Block button, deport people, silence people. Raging egomania. Video games, sports entertainment games, gaming, streaming movie stars, celebrity Trump content off Truth Social. MASS_DEHUMANIZATION_POPULAR
+
+* “Naturally, bureaucrats can be expected to embrace a technology that helps to create the illusion that decisions are not under their control. Because of its seeming intelligence and impartiality, a computer has an almost magical tendency to direct attention away from the people in charge of bureaucratic functions and toward itself, as if the computer were the true source of authority. A bureaucrat armed with a computer is the unacknowledged legislator of our age, and a terrible burden to bear.” ― Neil Postman, Technopoly: The Surrender of Culture to Technology. year 1992.
+ 
+https://old.reddit.com/r/Fauxmoi/comments/1rpa34m/bradley_whitford_on_billionaires_these_guys_are/o9jjfz7/
+
+Billionaire sports team owners and billionaire film studios provide TRICKLE_DOWN_CONTENT for fandoms.
+
+https://old.reddit.com/r/Fauxmoi/comments/1rpa34m/bradley_whitford_on_billionaires_these_guys_are/o9jqkof/
+
+TRICKLE_DOWN_MEDIA from Putin's Internet Research Agency in Saint Petersburg gets ignored.
+
+https://old.reddit.com/r/Fauxmoi/comments/1rpa34m/bradley_whitford_on_billionaires_these_guys_are/o9jqk0x/
+
+MIND_BLOWN_BY all the things in 1985, Ronald Reagan's second POTUS term, Neil Postman wrote about. High speed electric media. NOT_GOOD_ENOUGH Neil Postman, author, NYU teacher. Trump's home town.
+
+https://old.reddit.com/r/news/comments/1rpaj37/exclusive_ai_error_likely_led_to_iran_girls/o9jm3nh/
+
+I blame the pro-ignorance short-length top-upvoted most popular comment. Brain rot since year 2013. Surkov won. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
+
+https://old.reddit.com/r/news/comments/1rpaj37/exclusive_ai_error_likely_led_to_iran_girls/o9jmy8y/
+
+UNITED_IN_BLAMING_ONE_THIRD_HATE_VS_HATE_ANTI_RESCUE "70 million people" commenting. Then why isn't TODAY, right now, Reddit community not quoting nonfiction relevant books from Dr. Bandy X Lee? ANSWER: It isn't only 1/3 (70 million people) showing Twitter-think reactionary brain rot behaviors. it is entire society giving us ALL brain damage, 100%. Me included. Observe the avoidance of Dr. Lee. Reddit community is not having a blackout protest. MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL
+
+https://old.reddit.com/r/worldnews/comments/1rpa9u1/trump_tells_cbs_that_iran_war_is_very_complete/o9jjuev/
+
+SYMBOLISM_GUMBO Trump is a master arranger of mind-fucking patterns. Surkov students won since year 2013.
+
+https://old.reddit.com/r/worldnews/comments/1rpa9u1/trump_tells_cbs_that_iran_war_is_very_complete/o9jkmlf/
+
+TRUMP_FANDOM hanging on every Trump statement and CBS television word. Media cult of Reddit flocks to Trump content provider.
+
+https://old.reddit.com/r/worldnews/comments/1rpa9u1/trump_tells_cbs_that_iran_war_is_very_complete/o9jma6w/
+
+SURKOV_SHUFFLE is often complex dance routines. Disco ball metaphor of reflecting the ego of ever audience member back at them. Choose your own interpretation. Even if you change your mind, a Kremlin White House media idea will already be waiting.
+
+https://old.reddit.com/r/SipsTea/comments/1rpb5ke/operation_epstein_fury/o9jqwyi/
+
+Top-most upvoted popular comment. As long as Trump symbolism arrangements and content provides laughs. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING CHUCKLEHEAD_NATION
+
+https://old.reddit.com/r/Music/comments/1rpbeou/maynard_james_keenan_im_always_going_to_side/o9k34zh/
+
+COMPARATIVE_MYTHOLOGY 
+
+https://old.reddit.com/r/Music/comments/1rpbeou/maynard_james_keenan_im_always_going_to_side/o9k2v05/
+
+HATE_HARDER tech machine lovers.
+
+https://old.reddit.com/r/Music/comments/1rpbeou/maynard_james_keenan_im_always_going_to_side/o9kdfi3/
+
+https://old.reddit.com/r/Music/comments/1rpbeou/maynard_james_keenan_im_always_going_to_side/o9k6z0v/
+
+SEE_ALSO https://GitHub.com/GreatSealUSA/GreatSealUSA_Art/tree/main/TwoAndOnlyTw0
+
+https://old.reddit.com/r/Music/comments/1rpbeou/maynard_james_keenan_im_always_going_to_side/o9jyia7/
+
+NOT_GOOD_ENOUGH MLK Jr on Reddit tech lovers. 1-bit polarity logic. Must have an out-group.
+
+* "I decided that perhaps I would like to think of myself as an extremist -- in the light of the spirit which made Jesus an extremist for love. If it sounds as though I am comparing myself to the Savior, let me remind you that all who honor themselves with the claim of being "Christians" should compare themselves to Jesus. Thus I consider myself an extremist for that brotherhood of man which Paul so nobly expressed: "There is neither Jew nor Greek, there is neither bond nor free, there is neither male nor female: for ye are all one in Christ Jesus." Love is the only force on earth that can be dispensed or received in an extreme manner, without any qualifications, without any harm to the giver or to the receiver." - Dr. Martin Luther King Jr. Playboy magazine. January 1965
+
+https://old.reddit.com/r/Music/comments/1rpbeou/maynard_james_keenan_im_always_going_to_side/o9jyi83/
+
+Left vs. right brain rot. Instead of naming an EXAMPLE nation and time period. Instead of creating a named Wiki or manifest with LISTED SPECIFIC values. BRAIN_ROT_LEFT_RIGHT_LIB_CON_NAME_AVOIDANCE
+
+https://old.reddit.com/r/Music/comments/1rpbeou/maynard_james_keenan_im_always_going_to_side/o9jx9cf/
+
+WHEN_THE_PEOPLE_HAVE_LOST_THE_ABILITY as Carl Sagan wrote in his 1995 nonfiction book.
+
+https://old.reddit.com/r/Music/comments/1rpbeou/maynard_james_keenan_im_always_going_to_side/o9k9fig/
+
+Machine lovers, technology love. MASS_DEHUMANIZATION_POPULAR and VINCE_GILLIGAN_WAS_CORRECT February 15, 2025 WGA about social media "cesspool".
+
+https://old.reddit.com/r/Music/comments/1rpbeou/maynard_james_keenan_im_always_going_to_side/o9k7pzd/
+
+It is a media topic, a content creator famous person topic. MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL - in the interview, he even called out smartphones and social media.
+
+https://old.reddit.com/r/stocks/comments/1rpabjj/oil_futures_dropping_rapidly_after_trump_claims/o9jketf/
+
+1 month Reddit account. Top most-upvoted popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+
+https://old.reddit.com/r/Music/comments/1rpeye1/donald_trump_fans_raging_after_country_singer/o9kjy84/
+
+REPUBLICANS_LEAD_WITH_IGNORANCE_IDEAS_AND_FOLLOWERS_REPLY_WITH_IGNORANCE Yes. this entire posting. 1. Having dementia brain disease isn't criminal. 2. wearing diapers isn't criminal. 
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mgnyhdnzbk2d https://autistics.life/@RoundSparrow/116201765284229452 }    
+
+https://old.reddit.com/r/worldnews/comments/1rpfx3t/trump_cancels_sanctions_against_countries_buying/o9kqs5v/
+
+Surkov won since year 2013.
+
+https://old.reddit.com/r/worldnews/comments/1rpfx3t/trump_cancels_sanctions_against_countries_buying/o9ktkti/
+
+PUTIN_FANDOM MAXIMUM_PUTINIZATION
+
+https://old.reddit.com/r/worldnews/comments/1rpfx3t/trump_cancels_sanctions_against_countries_buying/o9krlzu/
+
+SYMBOLISM_INVERSION_MANIPULATION Surkov won since year 2013.
+
+https://old.reddit.com/r/worldnews/comments/1rpfx3t/trump_cancels_sanctions_against_countries_buying/o9kprlb/
+
+Reddit commenting community joke-washes Trump and has since June 16, 2015. JOKE_COMEDY_POWER_IS_MAGA_IS_TRUMP_IS_SURKOV
+
+https://old.reddit.com/r/worldnews/comments/1rpfx3t/trump_cancels_sanctions_against_countries_buying/o9kpxsv/
+
+HATE_MOTIVATED_ECONOMY_HATE_AS_A_VIRTUE_SIGNALING
+
+https://old.reddit.com/r/worldnews/comments/1rpfx3t/trump_cancels_sanctions_against_countries_buying/o9kqyiq/
+
+SURKOVIAN_CHESS that social media mocked, the 4D chess, has been Putin's all along. Surkov won since year 2013.
+
+https://old.reddit.com/r/worldnews/comments/1rpfx3t/trump_cancels_sanctions_against_countries_buying/o9krk1y/
+
+When it comes to Trump and Putin and Russia's Internet Research Agency... Reddit community was always avoiding the nonfiction relevant books printed on paper. SUPERFICIAL_SHALLOW_PRIZING_TRUMPISM_MAGA_VALUES Never forget the pandemic and August 24, 2018 https://www.BBC.com/news/world-us-canada-45294192 - every Reddit user was Putin's bitch by not calling this article out in year 2020 and year 2021. And it should have been called out in 2024 during the election of Trump for second term in office. But nobody wants to talk about the measles spreading and August 24, 2018.
+
+https://old.reddit.com/r/worldnews/comments/1rpfx3t/trump_cancels_sanctions_against_countries_buying/o9kw2ml/
+
+ANSWER: UNDERSTANDING_SURKOV_PUTINISM_TRUMPISM_HATE_HILARIOUS - Reddit has been anti-nonfiction Trump fandom because hate blows your mind. THE_1954_EQUATION ignored about hate.
+
+https://old.reddit.com/r/worldnews/comments/1rpfx3t/trump_cancels_sanctions_against_countries_buying/o9kr8vc/
+
+"The idiot" has people who follow ignorance leadership. Everyone in USA. ATTRACTION_TO_SHIT_CONTENT_ENSHIT_BY_DESIRE - OBSERVE how Reddit and Bluesky are NOT asserting and repeat quoting Dr. Bandy X Lee's nonfiction. The brain rot is the entire society, not just Donald Trump. The attraction to Trump as an idiot to mock, to join a total mockery, is the crisis.
+
+https://old.reddit.com/r/worldnews/comments/1rpfx3t/trump_cancels_sanctions_against_countries_buying/o9ksbeh/
+
+ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING observe the avoidance of non-fiction off-Reddit URL, book quotes, author names, etc. Surkov won since year 2013. These Reddit users are not resisting the anti-intellectual Trump leadership.
+
+https://old.reddit.com/r/worldnews/comments/1rpfx3t/trump_cancels_sanctions_against_countries_buying/o9kt6fq/
+
+Commenting while not asserting and repeating Dr. Bandy X Lee's relevant nonfiction, what a society-wide disgrace. WE_THE_PEOPLE_MEDIA_COMMENTING
+
+https://old.reddit.com/r/worldnews/comments/1rpfx3t/trump_cancels_sanctions_against_countries_buying/o9kvgie/
+
+TRUMP_WEAK_MUSK_WEAK_DO_NOTHING_TO_RESIST_TALKING_POINTS at least SOMEONE on Reddit is commenting how Trumps harm to humanity is powerful and strong.
+
+https://old.reddit.com/r/worldnews/comments/1rpfx3t/trump_cancels_sanctions_against_countries_buying/o9ks36h/
+
+SURKOVIAN_CHESS Surkov won since year 2013. There has been no intellectual resistance to Surkov information warfare techniques. People ate it up since March 2013 and continue to eat it up.
+
+https://old.reddit.com/r/worldnews/comments/1rpfx3t/trump_cancels_sanctions_against_countries_buying/o9kqtdz/
+
+4 month Reddit account.
+
+https://old.reddit.com/r/worldnews/comments/1rpfx3t/trump_cancels_sanctions_against_countries_buying/o9kt748/
+
+11 month Reddit account.
+
+https://old.reddit.com/r/worldnews/comments/1rpfx3t/trump_cancels_sanctions_against_countries_buying/o9kpyl4/
+
+PROMOTING_IGNORANCE_WORKS_PLAYING_DUMB_MOCKING
+
+https://old.reddit.com/r/worldnews/comments/1rpfx3t/trump_cancels_sanctions_against_countries_buying/o9kqo84/
+
+https://old.reddit.com/r/worldnews/comments/1rpfx3t/trump_cancels_sanctions_against_countries_buying/o9kvodb/
+
+ROUTINE_NO_NEED_TO_RESIST_OR_ORGANIZE_INTELLECTUAL_UPRISING
+
+https://old.reddit.com/r/worldnews/comments/1rpfx3t/trump_cancels_sanctions_against_countries_buying/o9kxuin/
+
+Describes all the successes for harming the USA, but calls Trump dumb. SURKOVIAN_ONION_EATING that this hasn't been the plan all along by Putin. Also note this Reddit user is not resisting, just commenting in a descriptive way. No calling for an intellectual uprising, not promoting Dr. Bandy X Lee, etc.
+
+https://old.reddit.com/r/worldnews/comments/1rpfx3t/trump_cancels_sanctions_against_countries_buying/o9kui4b/
+
+Reddit commenting community is doing everything Putin wants. AVOIDED_DR_BANDY_X_LEE_PUBLIC_WRITINGS
+
+https://old.reddit.com/r/worldnews/comments/1rpfx3t/trump_cancels_sanctions_against_countries_buying/o9ktn0u/
+
+https://old.reddit.com/r/worldnews/comments/1rpfx3t/trump_cancels_sanctions_against_countries_buying/o9kt3bw/
+
+https://old.reddit.com/r/worldnews/comments/1rpfx3t/trump_cancels_sanctions_against_countries_buying/o9kuqwt/
+
+TRUMP_CHARMING_ACTOR_ACTING The thing that media cult members want is stimulation and content. The clergy provides science fiction stories, Fox News provides fiction stories, Truth Social provides fiction stories, Reddit provides fiction stories from Trump. Media addicts care more about fiction than they care about human persons. Torah, Bible, Quran science fiction trilogy has shown this for thousands of years.
+
+https://old.reddit.com/r/worldnews/comments/1rpfx3t/trump_cancels_sanctions_against_countries_buying/o9l347c/
+
+<img width="1201" height="1329" alt="Screenshot from 2026-03-09 18-23-48" src="https://github.com/user-attachments/assets/e5739d3e-3ce1-4c19-a5b0-db876f87f032" />
+
+"Putin is just laughing and laughing." and Reddit and Bluesky are laughing and laughing at Donald Trump's POTUS Tony Clifton show. Gullible audience who can't see that amusement is the Surkov information warfare since year 2013. LAUGHTER_THE_BEST_MINDFUCK
+
+NEW_OPERA_NAME #UkraineFalls #WarInstantly     
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mgo7shdems2s  https://autistics.life/@RoundSparrow/116202283690577483 }   
+
+https://old.reddit.com/r/worldnews/comments/1rpfx3t/trump_cancels_sanctions_against_countries_buying/o9ku2ef/
+
+What an anti-intellectual commenting section. Always avoiding Dr. Bandy X Lee's leadership.  TRUMP_FAMILY_FIXATED_BRAIN_ROT_EVERY_DAY_FOX_NEWS_TWITTER_ETC
+   
+https://old.reddit.com/r/worldnews/comments/1rpfx3t/trump_cancels_sanctions_against_countries_buying/o9kv11a/
+
+Why isn't Reddit having a blackout and why isn't the Reddit comment section avoiding Dr. Bandy X Lee's relevant nonfiction books on paper? REDDIT_BLACKOUT ANSWER : Bluesky and Reddit are fandoms to mocking and hate-watching Trump and not actually using the Internet to resist Corporate American Reddit.
+
+https://old.reddit.com/r/worldnews/comments/1rpfx3t/trump_cancels_sanctions_against_countries_buying/o9ktr2l/
+
+CHESS_1024D - the WHOLE plan I call "Operation Matthew 4:19" to get Reddit users to mock away since year 2013 and not take anything seriously enough to go to the nonfiction section of the public library and instead react-comment in Tweet-length mindsets.
+
+https://old.reddit.com/r/worldnews/comments/1rpfx3t/trump_cancels_sanctions_against_countries_buying/o9kvclj/
+
+2 month Reddit account. And everything Reddit users do to avoid Dr. Bandy X Lee's nonfiction relevant books on paper helps Trump and Putin.
+
+https://old.reddit.com/r/worldnews/comments/1rpfx3t/trump_cancels_sanctions_against_countries_buying/o9kyxls/
+
+3 month Reddit account.
+
+https://old.reddit.com/r/worldnews/comments/1rpfx3t/trump_cancels_sanctions_against_countries_buying/o9l5y8a/
+
+People don't want to even bother using Reddit for a blackout uprising. DANGER_ALERT_CALL_TO_INTELLECTUAL_ARMS_BOOK_CRAM_SESSIONS The Reddit addiction to mocking Trump and insulting MAGA far exceeds any desire to turn to Dr. Bandy X Lee for leadership and learning.
+
+https://old.reddit.com/r/SipsTea/comments/1rphop5/reporter_you_just_suggested_that_iran_somehow_got/o9l2flk/
+
+15 day Reddit account. 2nd most upvoted popular comment. Not even 140 characters. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT Anti-intellectual, following the Trump leadership of anti-intelligence.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rppp8d/let_me_teach_you_how_little_girls_are_supposed_to/o9mo2v9/
+
+Top most popular upvoted comment. ROUTINE_NO_NEED_TO_RESIST_OR_ORGANIZE_INTELLECTUAL_UPRISING
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rppp8d/let_me_teach_you_how_little_girls_are_supposed_to/o9mrmoa/
+
+2nd most popular upvoted comment. 
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rppp8d/let_me_teach_you_how_little_girls_are_supposed_to/o9mx53n/
+
+REMEDIAL_MORALITY 
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rppp8d/let_me_teach_you_how_little_girls_are_supposed_to/o9myypk/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rppp8d/let_me_teach_you_how_little_girls_are_supposed_to/o9n1hag/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rppp8d/let_me_teach_you_how_little_girls_are_supposed_to/o9mvejg/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rppp8d/let_me_teach_you_how_little_girls_are_supposed_to/o9noq1f/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rppp8d/let_me_teach_you_how_little_girls_are_supposed_to/o9n7s1m/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rppp8d/let_me_teach_you_how_little_girls_are_supposed_to/o9n6smf/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rppp8d/let_me_teach_you_how_little_girls_are_supposed_to/o9myht1/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rppp8d/let_me_teach_you_how_little_girls_are_supposed_to/o9nhn2x/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rppp8d/let_me_teach_you_how_little_girls_are_supposed_to/o9nh42j/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rppp8d/let_me_teach_you_how_little_girls_are_supposed_to/o9nj6f7/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rppp8d/let_me_teach_you_how_little_girls_are_supposed_to/o9n6qpx/
+
+People are not sick of the badness, sick of Trump, they are sick of information news saying "it is over". There is a big difference between the two. TRUMP_FANDOM
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rppp8d/let_me_teach_you_how_little_girls_are_supposed_to/o9nzk0w/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rppp8d/let_me_teach_you_how_little_girls_are_supposed_to/o9nfmwi/
+
+UNITED_IN_BLAMING_ONE_THIRD_HATE_VS_HATE_ANTI_RESCUE
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rppp8d/let_me_teach_you_how_little_girls_are_supposed_to/o9nck1e/
+
+Surkov won since year 2013.
+
+https://old.reddit.com/r/newsinterpretation/comments/1rpuf74/donald_trump_branded_unstable_as_speech_leaves/o9njofd/
+
+TRUMP_CHARMING_ACTOR_ACTING In all my world travels, I have never met people as charmed as they are with Donald Trump. People become attracted to ignorance when they encounter Donald Trump. People celebrate ignorance more than any sport or game or gaming when they consume Donald Trump images and messages. Trump can charm people to abandon all goodness. Trump leads with hate and people can not resist following.
+
+https://old.reddit.com/r/newsinterpretation/comments/1rpuf74/donald_trump_branded_unstable_as_speech_leaves/o9o55xd/
+
+https://old.reddit.com/r/newsinterpretation/comments/1rpuf74/donald_trump_branded_unstable_as_speech_leaves/o9nnic0/
+
+Reddit is still full of jokes and memes an humor about Trump. Trump is the center of all comedy and media. JOKE_COMEDY_POWER_IS_MAGA_IS_TRUMP_IS_SURKOV
+
+https://old.reddit.com/r/newsinterpretation/comments/1rpuf74/donald_trump_branded_unstable_as_speech_leaves/o9nkis8/
+
+Surkov won since March 2013. CORE_CONCERNS of this GitHub project is that maybe a hand full of people in the world, 3 or 4 people out of 8 billion, might actually recognize Neil Postman's 1985 book "Amusing Ourselves To Death" can be applied to Bluesky and Reddit and explain Donald Trump. And Postman was strictly taking about death by LOL as an outcome of technology. The Saint Petersburg Internet Research Agency and Cambridge Analytica did this intentionally, warfare!
+
+https://old.reddit.com/r/newsinterpretation/comments/1rpuf74/donald_trump_branded_unstable_as_speech_leaves/o9nml3a/
+
+What changed was the Apple iPhone and Twitter. July 6, 2011 https://theoutline.com/post/2445/trump-s-first-real-tweet-was-on-july-6-2011 COMPREHENDING_UNDERSTANDING changed ALL people in USA. Then the IRA came online. Surkov won since year 2013.
+
+https://old.reddit.com/r/newsinterpretation/comments/1rpuf74/donald_trump_branded_unstable_as_speech_leaves/o9ntx84/
+
+SUPER_HYPER_NORMAL anti-intellectual violence and hate fandom. GUN_WORSHIP observe the avoidance of Dr. Bandy X Lee's intellectual leadership.
+
+https://old.reddit.com/r/newsinterpretation/comments/1rpuf74/donald_trump_branded_unstable_as_speech_leaves/o9nn8pk/
+
+Same commenting I've been reading since year 2013. People are entirely engaged with Putinism and Trumpism as a source of commenting topics on social devices. PRIORITIES_OF_THE_99_PERCENT_COMMENTING_MEDIA
+
+https://old.reddit.com/r/newsinterpretation/comments/1rpuf74/donald_trump_branded_unstable_as_speech_leaves/o9nnhgu/
+
+Reddit commenting community surely avoids relevant nonfiction books. AVOIDED_DR_BANDY_X_LEE_PUBLIC_WRITINGS
+
+https://old.reddit.com/r/newsinterpretation/comments/1rpuf74/donald_trump_branded_unstable_as_speech_leaves/o9nnwcd/
+
+HYPER_SIMPLE_TRIVIALIZE_BANAL_SELF_ONLY_CONCERN
+
+https://old.reddit.com/r/newsinterpretation/comments/1rpuf74/donald_trump_branded_unstable_as_speech_leaves/o9ntxmq/
+
+ENTERTAINED_JUST_PASSIVELY_WATCHING_UNTIL_DEATH_NO_SOCIAL_MEDIA_UPRISING_WHILE_ALIVE
+
+https://old.reddit.com/r/newsinterpretation/comments/1rpuf74/donald_trump_branded_unstable_as_speech_leaves/o9nu903/
+
+CIVIC_DUTY_WE_PEOPLE people keep making low-information commenting. Free time and spare time spent on Reddit commenting and commenting all while avoiding the nonfiction book section and asserting and quoting Dr. Bandy X Lee since year 2017.
+
+https://old.reddit.com/r/newsinterpretation/comments/1rpuf74/donald_trump_branded_unstable_as_speech_leaves/o9nujex/
+
+Reddit community was attracted to all that as amusement media, entertainment content creation. TRUMP_CHARMING_ACTOR_ACTING
+
+https://old.reddit.com/r/newsinterpretation/comments/1rpuf74/donald_trump_branded_unstable_as_speech_leaves/o9nvzis/
+
+MEDIA_ECOLOGY_OBSERVATION
+
+https://old.reddit.com/r/newsinterpretation/comments/1rpuf74/donald_trump_branded_unstable_as_speech_leaves/o9nw0ej/
+
+What is important to Reddit users is to see commenting, low-effort commenting, to comment like the one linked on Reddit. PRIORITIES_OF_THE_99_PERCENT_COMMENTING_MEDIA
+
+https://old.reddit.com/r/newsinterpretation/comments/1rpuf74/donald_trump_branded_unstable_as_speech_leaves/o9nxuvq/
+
+Surkov won since year 2013. MASS_PSYCHOSIS_ABOUNDS MASS_HALLUCINATIONS_SEPTEMBER_YEAR_2014_PUBLISHED
+
+https://old.reddit.com/r/newsinterpretation/comments/1rpuf74/donald_trump_branded_unstable_as_speech_leaves/o9nyk5m/
+
+PRIORITIES_OF_THE_99_PERCENT_COMMENTING_MEDIA 
+
+https://old.reddit.com/r/newsinterpretation/comments/1rpuf74/donald_trump_branded_unstable_as_speech_leaves/o9nyt3b/
+
+This is the low-information upvoting and commenting since year 2014 on Reddit systems. The abandonment of nonfiction relevant books on paper in favor of people being attracted to the most anti-FAQ anti-Wiki commenting interactions. HOW_SURKOV_WON
+
+https://old.reddit.com/r/newsinterpretation/comments/1rpuf74/donald_trump_branded_unstable_as_speech_leaves/o9nzizq/
+
+One man's brain isn't the crisis, it is Reddit and Bluesky media attraction to Trump that is the problem. ATTRACTION_TO_SHIT_CONTENT_ENSHIT_BY_DESIRE
+
+https://old.reddit.com/r/Gamingcirclejerk/comments/1rppvqe/what_did_the_white_house_mean_by_this/o9mper9/
+
+6 month Reddit account. Top most upvoted popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT WIDE_RADICAL_DOUBT_ABOUT_REAL
+
+https://old.reddit.com/r/Gamingcirclejerk/comments/1rppvqe/what_did_the_white_house_mean_by_this/o9mnq2q/
+
+6 month Reddit account. 2nd most upvoted popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT WIDE_RADICAL_DOUBT_ABOUT_REAL
+
+https://old.reddit.com/r/Music/comments/1rpwwp6/hugh_jackman_performs_at_rupert_murdochs_95th/o9o0ots/
+
+ATTRACTION_TO_HATE_LEADERS_HATE_FOLLOWERS
+
+https://old.reddit.com/r/worldnews/comments/1rpsmby/russia_is_the_only_winner_of_middle_east_war_eus/o9n6qxb/
+
+MAXIMUM_PUTINIZATION
+
+https://old.reddit.com/r/worldnews/comments/1rpsmby/russia_is_the_only_winner_of_middle_east_war_eus/o9nfd6o/
+
+Surkov won since year 2013.
+
+https://old.reddit.com/r/worldnews/comments/1rpsmby/russia_is_the_only_winner_of_middle_east_war_eus/o9o3gc0/
+
+<img width="1078" height="627" alt="image" src="https://github.com/user-attachments/assets/91a071d9-607d-45a7-ad24-15b0636a0674" />
+
+SELF_HARM_USA Surkov won since year 2013. BEYOND_DENIAL Beyond the common denial.
+
+Social post { https://autistics.life/@RoundSparrow/116205724348636737 https://bsky.app/profile/roundsparrow.bsky.social/post/3mgpqov6drk2q }   
+
+https://old.reddit.com/r/comics/comments/1rq0rug/current_events/o9ouxx8/
+
+PEOPLE_LOVE_COMEDY_MEDIA_CONTENT_MORE_THAN_PLURIBUS_HUMANISM
+
+https://old.reddit.com/r/comics/comments/1rq0rug/current_events/o9ossoe/
+
+"WHAT IS WRONG WITH EVERYONE!?" ANSWER: THIS_GITHUB - Surkov won since year 2013.
+
+https://old.reddit.com/r/comics/comments/1rq0rug/current_events/o9ot9dy/
+
+The symptom is the amusement, as defined in Neil Postman's 1985 book "Amusing Ourselves To Death". FANATICS_FANS_OF_CLOWNS_FANS_OF_MAGA_CLOWNING
+
+https://old.reddit.com/r/comics/comments/1rq0rug/current_events/o9p01zu/
+
+Governing and politics are two different things. Surkov and Putin made entertainment the center of politics and Trump imported the Surkov techniques to USA. JOKE_COMEDY_POWER_IS_MAGA_IS_TRUMP_IS_SURKOV
+
+https://old.reddit.com/r/comics/comments/1rq0rug/current_events/o9ov8c6/
+
+They manufacture content. Images for Reddit. There were not image devices in every hand before year 2007. Trumpism is media ecology. TRICKLE_DOWN_CONTENT
+
+https://old.reddit.com/r/comics/comments/1rq0rug/current_events/o9otp9x/
+
+This isn't politics. This is abandonment of nonfiction. This is Reddit and Bluesky and Twitter and Facebook taking over the entire  nation. The Apple iPad and Apple iPhone society. This is the abandonment of reason thinking in favor of Twitter-thinking. Donald Trump created Truth Social, a Twitter-like platform. Elon Musk, richest man in the world, purchased Twitter. People do not see on Reddit the avoidance of nonfiction relevant books on paper. Commenting addiction is the population. PRIORITIES_OF_THE_99_PERCENT_COMMENTING_MEDIA
+
+https://old.reddit.com/r/comics/comments/1rq0rug/current_events/o9ot45m/
+
+Here is a massively popular Reddit user, PizzaCake, that has a loyal following. Says that things are "batshit crazy", but still avoids. Dr. Bandy X Lee asserting and repeating. LOOK and study this. AVOIDED_DR_BANDY_X_LEE_PUBLIC_WRITINGS - CORE_CONCERNS
+
+https://old.reddit.com/r/Epstein/comments/1rq1806/thomas_massie_new_post_his_links_provided_below/o9p5vh2/
+
+"take to the streets" when REDDIT_BLACKOUT protest and organizing hasn't even happened. The entire power here is all media and the Reddit media users are the most caged inside the box about organizing FAQ and Wiki and online meetings.
+
+https://old.reddit.com/r/worldnews/comments/1rpvgha/iran_war_hegseth_says_tuesday_will_be_our_most/o9ns3rp/
+
+LOW_PRODUCTION_VALUES_MAGA_FANDOM
+
+https://old.reddit.com/r/worldnews/comments/1rpvgha/iran_war_hegseth_says_tuesday_will_be_our_most/o9ntbt6/
+
+TRUMP_FANDOM Donald Trump leads with mocking, and the Reddit fandom follows Trump's leadership.
+
+https://old.reddit.com/r/nottheonion/comments/1rq455m/erika_kirk_appointed_to_air_force_academy_board/o9pi8oc/
+
+Top most upvoted popular comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING White House leads with ignorant thinking and the MAGA_FANDOM on Reddit follows the ignorant thinking. This pattern has been going on as some sick kind of "entertainment" and stimulation of thrill of high-speed information systems delivery. Anti-intellectual society that prizes low-information upvoting. For over a decade, Trump is the very low measuring bar that people strive to out-mock. The mockery is against intelligence itself.
+
+https://old.reddit.com/r/nottheonion/comments/1rq455m/erika_kirk_appointed_to_air_force_academy_board/o9pib8d/
+
+NAME_CALLING_INSULT_MOCKERY_FOLLOWERS_OF_LEADER_DONALD_TRUMP_SHALLOWNESS_VALUES
+
+https://old.reddit.com/r/news/comments/1rq5cqy/exclusive_as_many_as_150_us_troops_wounded_so_far/o9pwzal/
+
+CONCERNS_OF_FINNEGANS Finnegans Wake Iterates.
+
+https://old.reddit.com/r/news/comments/1rq5cqy/exclusive_as_many_as_150_us_troops_wounded_so_far/o9psn8r/
+
+Gullible Reddit commenting community members believe SURKOV_SHUFFLE is accidental. The "accidents" and "mistakes" in public create engagement with the Reddit fandom of hate-watching. Reddit users avoid study of relevant nonfiction. NOT_GOOD_ENOUGH Peter Pomerantsev isn't good enough to study Russia and how it applies to Trump leadership techniques. https://www.youtube.com/watch?v=5Au332OG-M4
+
+https://old.reddit.com/r/news/comments/1rq5cqy/exclusive_as_many_as_150_us_troops_wounded_so_far/o9pqrcg/
+
+2nd most popular upvoted comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING messaging that waiting around for election day in year 2028 is all that Reddit society can do. No Reddit blackout, no education campaigns of promoting nonfiction from Dr. Bandy X Lee, etc. ELECTION_DAY_FIXATED_BRAIN_ROT_EVERY_DAY_FOX_NEWS_ETC
+
+https://old.reddit.com/r/law/comments/1rpzru6/trump_tells_republicans_the_save_america_act_will/o9onku5/
+
+1st most popular comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
+
+https://old.reddit.com/r/law/comments/1rpzru6/trump_tells_republicans_the_save_america_act_will/o9onwih/
+
+2nd most popular upvoted comment. HATE_HARDER messaging. Promoting ignorance and hate, following Trump's leadership of hate.  ATTRACTION_TO_HATE_LEADERS_HATE_FOLLOWERS
+
+https://old.reddit.com/r/law/comments/1rpzru6/trump_tells_republicans_the_save_america_act_will/o9ool0w/
+
+It creates content for Reddit commenting cults. PRIORITIES_OF_THE_99_PERCENT_COMMENTING_MEDIA Observe that Reddit community is not calling for a Reddit blackout protest, not promoting nonfiction relevant books on paper from Dr. Bandy X Lee since year 2017. Reddit is a venue of addiction to commenting on Trump's horrors. Dr. Bandy X Lee is not being promoted anti-intellectualism is prized in the Reddit community. Trump leads with anti-intellectual avoidance of relevant nonfiction adult books, Reddit commenting users follows Trump anti-learning anti-intelligence lead.
+
+TECHNICAL_NOTE_A Reviewing my writing a 3rd time on screenshot on Bluesky, I do see language mistakes. "Reddit commenting users follows" double-plural of "users" "follows", but I'm so burned out and exhausted, this is the reality of my brain damage. And, of course, people will say that invalidates my criticism on intellectual avoidance given I make constant language mistakes with that center of my brain damaged.
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mgq7plbxxc2b https://autistics.life/@RoundSparrow/116206779859132999 }    
+
+https://old.reddit.com/r/law/comments/1rpzru6/trump_tells_republicans_the_save_america_act_will/o9ovnoz/
+
+6 month Reddit account is also the submitter of the front-page posting. REDDIT_FRONT_PAGE_YOUNG_ACCOUNT
+
+https://old.reddit.com/r/law/comments/1rpzru6/trump_tells_republicans_the_save_america_act_will/o9pczs0/
+
+DENIAL_ABOUNDS "extra funny" LIBERAL_LAUGHS_LIBERAL_TEARS_COMPULSIVE_MAGA_FOLLOWERS ADULT_EDUCATION_CRISIS_USA_ADULT_LEARNING_EMERGENCY Note the comment implies children school. "I guess no one understood those history classes." Adults learn from Elon Musk Twitter, Rupert Murdoch Fox News, Reddit commenting. We need to address adult education being a billionaire (Reddit is Corporate America) manipulation game. Just because "I guess no one understood those history classes" at age 16 doesn't mean at age 42 they haven't blown their mind out with LOL LOL LOL on Bluesky memes. Adult education and content addiction to fiction needs to be taken seriously to exit this Trumpism Putinism mess!
+
+https://old.reddit.com/r/Economics/comments/1rq3u8n/this_cannot_be_sustainable_the_us_borrowed_50/o9pmzth/
+
+WAR_AGAINST_GOODNESS
+
+https://old.reddit.com/r/Economics/comments/1rq3u8n/this_cannot_be_sustainable_the_us_borrowed_50/o9po526/
+
+Until We The People address the anti-intellectual adult avoidance of nonfiction serous books on paper relevant to topics... OBSERVE_SOCIAL_MEDIA_AVOIDING_NONFICTION
+
+https://old.reddit.com/r/Economics/comments/1rq3u8n/this_cannot_be_sustainable_the_us_borrowed_50/o9prqze/
+
+https://old.reddit.com/r/Economics/comments/1rq3u8n/this_cannot_be_sustainable_the_us_borrowed_50/o9ptynq/
+
+The cult of ignorance on Reddit turns every serious topic into entertainment, jokes. SATIRE_SARCASM_WASHING
+
+https://old.reddit.com/r/PublicFreakout/comments/1rqcgee/a_passenger_on_a_cruise_freaking_out_over/o9r9zrk/
+
+SYMBOLISM_GUMBO is so funny to people. Gallows humor and mocking is what makes it to the front page of /r/All Reddit. HATE_VS_HATE cruising the world on a ship to mock humanism. 
+
+https://old.reddit.com/r/politics/comments/1rq0f9b/trump_made_massive_tactical_error_on_iran_during/o9ps4hi/
+
+People just could not resist laughing LOL away at Trump. Every media system bent to make Trump the brain rot leader. The avoidance of Dr. Bandy X Lee and other relevant nonfiction - We The People are not using information systems to organize intelligence. People are using computers to LOL at Trump in comments. PRIORITIES_OF_THE_99_PERCENT_COMMENTING_MEDIA Surkov won since year 2013.
+
+https://old.reddit.com/r/technology/comments/1rqbaa9/maga_suddenly_quiet_about_overseas_influence_now/o9r23a5/
+
+https://old.reddit.com/r/technology/comments/1rqbaa9/maga_suddenly_quiet_about_overseas_influence_now/o9rulcx/
+
+https://old.reddit.com/r/technology/comments/1rqbaa9/maga_suddenly_quiet_about_overseas_influence_now/o9r35fk/
+
+https://old.reddit.com/r/technology/comments/1rqbaa9/maga_suddenly_quiet_about_overseas_influence_now/o9r6f4k/
+
+https://old.reddit.com/r/law/comments/1rqh678/trump_is_now_blaming_hegseth_jared_witkolf_and/o9s862p/
+
+Top most popular upvoted comment. TRUMP_FANDOM behavior on Reddit. People who view all this through the perspective of entertainment (Neil Postman's 1985 book). REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
+
+https://old.reddit.com/r/law/comments/1rqh678/trump_is_now_blaming_hegseth_jared_witkolf_and/o9s8www/
+
+REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING 2nd most popular upvoted comment.  ARE_YOU_SMARTER_THAN_3RD_GRADE_STUDENT_FANDOM_MEASURING - the problem is not how dumb Donald Trump is. The problem is the avoidance of Dr. Bandy X Lee, Neil Postman, Peter Pomerantsev nonfiction relevant books on paper. The constant flocking to Trump as a LOLCOW to milk over and over for a decade plus. The Twitter-thinking cult of mockery that Trump leads, the ignorance that Trump inspires.
+
+https://old.reddit.com/r/law/comments/1rqh678/trump_is_now_blaming_hegseth_jared_witkolf_and/o9s9jmh/
+
+Reddit and Bluesky media cults of mocking have been the centers of DEMENTIA_WASHING Trump as innocent and not responsible.
+
+https://old.reddit.com/r/law/comments/1rqh678/trump_is_now_blaming_hegseth_jared_witkolf_and/o9sahsn/
+
+TRUMP_TRUSTS_PUTIN what more evidence do you need than seeing Trump trust Putin all along? OUTSMARTED_TRICKED_MANIPULATED_BAMBOOZLED_BY_TRUMP_MURDOCH_PUTIN
+
+https://old.reddit.com/r/law/comments/1rqh678/trump_is_now_blaming_hegseth_jared_witkolf_and/o9sd7x2/
+
+CONSERVING_WHAT following Jesus, Allah, Yahweh science fiction stories of outer-space magical angels. Authority figure of Bible and Quran and afterlife Judgement Day authority.
+
+https://old.reddit.com/r/law/comments/1rqh678/trump_is_now_blaming_hegseth_jared_witkolf_and/o9s9yy2/
+
+TRUMP_FANDOM on Reddit. NYC Tony Clifton SNL POTUS character. NYC Trump, NYC SNL. SOUTH_PARK_FAMILY_GUY_SPONGEBOB_THE_APPRENTICE_REALITY_TELEVISION_USA
+
+https://old.reddit.com/r/law/comments/1rqh678/trump_is_now_blaming_hegseth_jared_witkolf_and/o9sc1wu/
+
+https://old.reddit.com/r/law/comments/1rqh678/trump_is_now_blaming_hegseth_jared_witkolf_and/o9sb1tu/
+
+PREDICTABLE_OUTCOME
+
+https://old.reddit.com/r/StrangeEarth/comments/1rqfzk7/ny_fire_commissioner_christopher_gioia_says_911/o9s428t/
+
+https://old.reddit.com/r/StrangeEarth/comments/1rqfzk7/ny_fire_commissioner_christopher_gioia_says_911/o9s1bpk/
+
+https://old.reddit.com/r/StrangeEarth/comments/1rqfzk7/ny_fire_commissioner_christopher_gioia_says_911/o9s5zhm/
+
+REALITY_ABANDONED   
+
+https://old.reddit.com/r/StrangeEarth/comments/1rqfzk7/ny_fire_commissioner_christopher_gioia_says_911/o9s9izq/
+
+https://old.reddit.com/r/StrangeEarth/comments/1rqfzk7/ny_fire_commissioner_christopher_gioia_says_911/o9ryudk/
+
+IGNORANCE_CELEBRATIONS
+
+https://old.reddit.com/r/StrangeEarth/comments/1rqfzk7/ny_fire_commissioner_christopher_gioia_says_911/o9rz3am/
+
+https://old.reddit.com/r/StrangeEarth/comments/1rqfzk7/ny_fire_commissioner_christopher_gioia_says_911/o9s3l11/
+
+https://old.reddit.com/r/StrangeEarth/comments/1rqfzk7/ny_fire_commissioner_christopher_gioia_says_911/o9s3vha/
+
+https://old.reddit.com/r/StrangeEarth/comments/1rqfzk7/ny_fire_commissioner_christopher_gioia_says_911/o9s2t90/
+
+https://old.reddit.com/r/StrangeEarth/comments/1rqfzk7/ny_fire_commissioner_christopher_gioia_says_911/o9s34t8/
+
+https://old.reddit.com/r/StrangeEarth/comments/1rqfzk7/ny_fire_commissioner_christopher_gioia_says_911/o9s3x5e/
+
+https://old.reddit.com/r/StrangeEarth/comments/1rqfzk7/ny_fire_commissioner_christopher_gioia_says_911/o9s7r6h/
+
+https://old.reddit.com/r/StrangeEarth/comments/1rqfzk7/ny_fire_commissioner_christopher_gioia_says_911/o9s4z4h/
+
+https://old.reddit.com/r/StrangeEarth/comments/1rqfzk7/ny_fire_commissioner_christopher_gioia_says_911/o9s23zb/
+
+https://old.reddit.com/r/StrangeEarth/comments/1rqfzk7/ny_fire_commissioner_christopher_gioia_says_911/o9s769a/
+
+https://old.reddit.com/r/StrangeEarth/comments/1rqfzk7/ny_fire_commissioner_christopher_gioia_says_911/o9sfrmz/
+
+Yha. A NYC Fire commissioner isn't concerned about NYC Trump harming the world. WHEN_THE_PEOPLE_HAVE_LOST_THE_ABILITY
+
+https://old.reddit.com/r/interestingasfuck/comments/1rqrocc/thai_ship_attacked_in_the_strait_of_hormuz/o9ug8u8/
+
+Yha, they live in ANTI_REALITY of Reddit where people create comments like this one that are non-specific and use in-group language associations.
+
+https://old.reddit.com/r/interestingasfuck/comments/1rqrocc/thai_ship_attacked_in_the_strait_of_hormuz/o9ub5hx/
+
+7 month Reddit account. PRIORITIES_OF_THE_99_PERCENT_COMMENTING_MEDIA
+
+https://old.reddit.com/r/interestingasfuck/comments/1rqrocc/thai_ship_attacked_in_the_strait_of_hormuz/o9vav6a/
+
+<img width="1311" height="402" alt="image" src="https://github.com/user-attachments/assets/86714bed-9199-4484-916c-45ffec0537e6" />
+
+BEYOND_DENIAL beyond the common denial. CORE_CONCERNS but people in USA are so engaged on media systems commenting and information delivery that people can't see how Trump / MAGA all started February 20, 2014 with the Ukraine War, Russia March 2013 Saint Petersburg Internet Research Agency. Surkov won since year 2013.
+
+Social post { https://autistics.life/@RoundSparrow/116211320340591530 https://bsky.app/profile/roundsparrow.bsky.social/post/3mgsa7sc64s2i }   
+
+https://old.reddit.com/r/politics/comments/1rqtmuc/hegseths_fragile_masculinity_has_doomed_the_us/o9uoqoj/
+
+<img width="1169" height="880" alt="image" src="https://github.com/user-attachments/assets/b1d8e283-380c-4413-8438-92ee7be6d738" />
+
+WHITE_HOUSE_HYPER_REAL 
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mgschbnj422c https://autistics.life/@RoundSparrow/116211479683287799 }    
+
+https://old.reddit.com/r/politics/comments/1rqtmuc/hegseths_fragile_masculinity_has_doomed_the_us/o9uskd8/
+
+<img width="1188" height="974" alt="image" src="https://github.com/user-attachments/assets/255397c2-9064-48e2-ba2c-83b8f7fe43d4" />
+
+FEEDBACK_LOOP_MEDIA_CULTS_PLATFORM_TO_PLATFORM_MOCKERY_USA Reddit users spent an entire decade on media machines mocking away all nonfiction serious books on paper. High school is not where adults learn. Adults learn on Fox News, adults learn on Newsmax, adults learn from Alex Jones, adults learn from Reddit shit-commenting. The problem is Reddit itself. Mocking and joking about serious topics.
+
+NEW_OPERA_NAME #LotOfQuestions    
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mgsda762dc2s https://autistics.life/@RoundSparrow/116211530329895837 }    
+
+https://old.reddit.com/r/news/comments/1rqvhsq/iran_tells_world_to_get_ready_for_200_a_barrel/o9v41d8/
+
+6 month Reddit account. ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING - observe that the Reddit commenting section is not promoting Dr. Bandy X Lee's 27 leaders to remove Trump. This is a MAGA_FANDOM comment that has normalized the MAGA situation. Which did not exist before year 2013. The anti-intellectual commenting cult of Reddit.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rqxfrr/when_clown_shoes_goes_literal/o9vqevm/
+
+1 month Reddit account. This is White House fandom, getting images out of the oval office as "content" on high speed information systems. FANATICS_FANS_OF_CLOWNS_FANS_OF_MAGA_CLOWNING Instead of addressing the anti-intellectual attitudes in USA, people are engaging the entertainment that reality TV star "The Apprentice" super star content provided. A society of commenting media addicts following a television media addiction leader. Observe that the Reddit posting title is a Twitter fandom, brain rot Tweet fandom, and the title of the posting does not provide specifics, is generic clickbait style - created by Reddit users and upvoted by anti-intellectual users who are joke-washing the White House. Avoiding relevant serious nonfiction and removing Trump.
+
+https://old.reddit.com/r/explainitpeter/comments/1rqywy5/found_this_on_fb_with_of_course_zero_context_can/o9vqupi/
+
+<img width="1881" height="1404" alt="Screenshot from 2026-03-11 11-29-33" src="https://github.com/user-attachments/assets/bf38dde9-ad76-442f-9f90-eeed9a763189" />
+
+TRICKLE_DOWN_TALKING_POINTS_TO_SOCIETY "Operation Matthew 4:19" GAMERS_SIMULACRA ... CULT_INDOCTRINATION BRAIN_ROT_LEFT_RIGHT_LIB_CON_NAME_AVOIDANCE BRAIN_ROT_SOCIETY_47
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mgsjhqg3fk2k https://autistics.life/@RoundSparrow/116211974896109466 https://MidWest.Social/post/44530962 }    
+
+https://old.reddit.com/r/Fauxmoi/comments/1rr0ojh/bernie_sanders_one_family_the_rightwing/o9w4h56/
+
+Top most popular upvoted comment. 9 day Reddit account. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT promoting 140 characters or less Twitter-media logic of the richest man in the world, Elon Musk Twitter owner. PRIORITIES_OF_THE_99_PERCENT_COMMENTING_MEDIA BRAIN_ROT_LEFT_RIGHT_LIB_CON_NAME_AVOIDANCE
+
+This commenting on Reddit isn't resisting, it's just commenting. It is engagement culture, MAGA fandom commenting about the MAGA media. Everything is Media Ecology. EVERYTHING_IS_MEDIA_ECOLOGY
+

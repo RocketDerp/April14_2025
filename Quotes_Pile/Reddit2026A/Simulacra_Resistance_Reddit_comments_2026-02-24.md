@@ -161,3 +161,101 @@ https://old.reddit.com/r/pics/comments/1rofcl5/as_war_rages_in_the_middle_east_g
 https://old.reddit.com/r/nottheonion/comments/1rovbe6/white_house_sent_wtf_message_to_israel_after_iran/o9gkgu9/
 
 "These idiots", look at the comment message. In what way is it resisting "idiot" ideas and mindsets? The entire world stage of history does not care who you think the idiot is - the abandonment of non-fiction is evident right on Reddit. Why is there no Reddit blackout protest calling for Trump's removal? Why is adult education not being given on Reddit to turn around the ignorance and badness? ANSWER: Reddit is a fandom of the idiocy. Reddit is The Media covering and hosting commenting of play by play of the leaders of ignorance. Reddit fandom is followers of ignorance.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rp2uev/president_trump_back_to_golfing_while_the_war_on/o9i1x9u/
+
+Top most popular upvoted comment. RESISTING nothing. The most popular comment about Trump is just "generic news reporting" commenting. This is a FANDOM, this isn't resisting Trump. This is people who are addicted to the high speed information systems of Reddit to comment about a celebrity icon. This is media addiction venue for media addictions to reality TV "The Apprentice" star.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rp2uev/president_trump_back_to_golfing_while_the_war_on/o9i2gkn/
+
+2nd most popular upvoted comment. Shit-talking Trump. That is not RESISTING Trump. This is a hate-watching media cult on Reddit. Waiting around on Reddit for a new Trump posting, every 15 minutes, and commenting pro-hate messages. This is following the hate leadership Trump provides! Reddit is a  hate cult, a fandom of hate. https://en.wikipedia.org/wiki/Hate-watching
+
+https://old.reddit.com/r/GreatBritishMemes/comments/1rozuvz/_/o9hfwcu/
+
+Trump Fandom of images. Top most-popular upvoted comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING this is not resisting the ignorance, this is celebrating the ignorance Trump leads with. Reddit community is followers of ignorance. Trump plays POTUS Tony Clifton character and people are attracted to Trump's character! This has been gong on for over a decade!
+
+https://old.reddit.com/r/clevercomebacks/comments/1rp7w27/priorities_of_the_1/o9j4r1v/
+
+The key word here is priorities of free time and spare time. The commenting is the evidence of free time and spare time, and commenting over and over is how We The People are behaving. Discussing Trump, commenting about Trump. In newspapers, in magazine media, in books, on television media, on social media, in-person conversations. Trump is the center of all media systems.
+
+1. Priority is to make a generic non-specific clickbait title. Just like "The Media" did before "social media" became "The Media". There is nothing "clever" about this, it is corporate America marketing-speak to call this clever and to use clickbait headline techniques. This isn't resisting Trump family thinking. This is engaging it, fandom.
+
+2. Why isn't Jen Senko and Dr. Bandy X Lee the priority of Reddit posting and commenting creators? EVERY_47_HOURS
+
+3. The 99% of people are commenting over and over about the 1% since June 16, 2015. This is how Surkov governing works, PRIORITIES_OF_THE_99_PERCENT_COMMENTING_MEDIA Surkov won. CHESS_1024D
+
+4. This is mocking into a Trump family total mockery. This isn't resisting, this is engaging the mockery and amplifying the mockery. The PRIORITY being avoided: Dr. Lee being constantly quoted for public education and a Reddit blackout protest emphasizing the need for 100% of the population to get on the same page, even people outside the USA, in promoting Dr. Lee's 27 mental health leaders.
+
+https://old.reddit.com/r/clevercomebacks/comments/1rp7w27/priorities_of_the_1/o9j2kw2/
+
+Fixated on one family. TRUMP_FAMILY_FIXATED_BRAIN_ROT_EVERY_DAY_FOX_NEWS_TWITTER_ETC
+
+https://old.reddit.com/r/LeagueOfMemes/comments/1rp3uxv/is_us_ok/o9i8zyv/
+
+WIDE_RADICAL_DOUBT_ABOUT_REAL We the People are eating right out of the hands of media empires, gaming intellectual property owners, Trumpism. Elon Musk, richest man in the world, owns Twitter. Anti-reality pro-simulation. 
+
+https://old.reddit.com/r/LeagueOfMemes/comments/1rp3uxv/is_us_ok/o9i9qq4/
+
+https://old.reddit.com/r/LeagueOfMemes/comments/1rp3uxv/is_us_ok/o9idqvu/
+
+REAL_PEOPLE_ADMIT that the entire nation is sick and turn to Dr. Bandy X Lee's leadership.
+
+https://old.reddit.com/r/LeagueOfMemes/comments/1rp3uxv/is_us_ok/o9i9hfj/
+
+This is a critical Reddit comment message to comprehend. The person is not asking for Trump to be removed. Only concerned as a Reddit media consumer that the media team of social media be replaced. The entertainment "good taste" is all the fandom is concerned with. CALL_FOR_ACTION_TO_DO_TRIVIAL_CHANGE
+
+https://old.reddit.com/r/LeagueOfMemes/comments/1rp3uxv/is_us_ok/o9ie9cw/
+
+SURKOVIAN_ONION_EATING on Reddit to not understand or know history of Surkov in Russia.
+
+https://old.reddit.com/r/LeagueOfMemes/comments/1rp3uxv/is_us_ok/o9iamd1/
+
+See the replies to this comment. STAND_UP_FOR_THE_BIG_GUY
+
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1rp9bmv/kamala_was_totally_right/o9jdptr/
+
+"Their minds are literally goop." - no. Wrong. It is 100 percent of the society. AVOIDED_DR_BANDY_X_LEE_PUBLIC_WRITINGS Reddit and Bluesky users are all avoiding Dr. Bandy X Lee's 27 leaders. Reddit users are not promoting knowledge in the face of Trump ignorance, MAGA ignorance, it's just a dick-measuring media cult attitude of "smarter than the MAGA dumb-asses". The ENTIRE NATION has become Twitter-thinking mindsets of polarity logic. MAGA may have been first, but the media commenting and taking screen shots off Twitter (Elon Musk richest man in world owner) is happening RIGHT NOW THIS MINUTE on Twitter in March 2026! BRAIN_ROT_SOCIETY_47 is EVERYONE and needs to be viewed as a national crisis, national defense and integrity issue, not just "some people", but ALL PEOPLE joining in together to address the brain rot! A rescue from brain rot operation.
+
+The answer to MAGA being bamboozled by Elon Musk Twitter and Rupert Murdoch Fox News HDTV is not more anti-intellectual prizing. Celebrating the ignorance is not resisting ignorance. The entire nation needs to get on the same page and be quoting and repeating Dr. Bandy X Lee's 27 writers of public education for adults.
+
+https://old.reddit.com/r/pics/comments/1rpdyxc/the_devolution_of_man/o9kdf90/
+
+This isn't resisting. This entire posting is a cult of images, Reddit is a society of image cults on every topic - and Donald Trump images have become every hour of every day, toxic popularity. Observe the constant avoidance of relevant nonfiction by Dr. Bandy X Lee. Donald Trump creates a mockery media enviornment, he is a media image star, and Reddit is attracted to the media Trump creates. All media systems in USA converged on Trump. This has been going on since June 16, 2015 - more than a decade, nearly eleven years of nonstop Trump images. THE AUDIENCE (the population, everyone) has devolved! SEE_ALSO https://GitHub.com/RocketDerp/April14_2025/blob/main/Grim_Blunt/Cognitive_Decline_Nation.md
+
+https://old.reddit.com/r/law/comments/1rpzru6/trump_tells_republicans_the_save_america_act_will/o9osrnf/
+
+Magical thinking. Magical Twitter-length thinking. Tiny-short little ideas that act like the entire world doesn't struggle and that this is a USA only problem. Elon Musk, owner of Twitter, richest man in the world loves this kind of IGNORANCE_CELEBRATIONS that Reddit media cult promotes. Simplistic banality of media, just like Fox News HDTV thinking patterns. SEE_ALSO https://GitHub.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Carl_Sagan_Quotes.md
+
+https://old.reddit.com/r/Economics/comments/1rq3u8n/this_cannot_be_sustainable_the_us_borrowed_50/o9pji50/
+
+5 month Reddit account. And the hangover may not end, people can and do live horrible lives in Afghanistan and Russia, even not during wartime. And wartime can be even worse. People have all this magical sense that World War Two was the worst of humanity, Germany had a tiny amount of technology and land compared to USA. MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL
+
+https://old.reddit.com/r/pics/comments/1rqmxjp/marco_rubio_wearing_oversized_shoes_that_trump/o9tco9h/
+
+TRUMP_FANDOM behavior. This entire posting. Very top of /r/All front page. This is not resisting the ignorance and mockery that Donald Trump leads with. This is Celebration of Ignorance. This is celebrating Donald Trump's mistakes a a form of entertainment. The crisis here is that Reddit suffers from such a casino culture and media environment that RECENCY_BIAS saturates the minds The constant stimulation that Donald Trump content creators / reality TV mindset provides. TRUMP_CHARMING_ACTOR_ACTING
+
+High speed image exchange itself is the Reddit comment creator addiction. Treating the Kremlin White House's use of Surkov students as the most thrilling alternate reality game. A screen game of consuming Trump content creation.
+
+* “The poet, the artist, the sleuth - whoever sharpens our perception tends to be antisocial; rarely "well-adjusted", he cannot go along with currents and trends. A strange bond often exists between antisocial types in their power to see environments as they really are. This need to interface, to confront environments with a certain antisocial power is manifest in the famous story "The Emperor's New Clothes".”
+― Marshall McLuhan, The Medium is the Massage. March 1967.
+
+* “This need to interface, to confront environments with a certain antisocial power, is manifest in the famous story, “The Emperor’s New Clothes.” “Well-adjusted” courtiers, having vested interests, saw the Emperor as beautifully appointed. The “antisocial” brat, unaccustomed to the old environment, clearly saw that the Emperor “ain’t got nothin’ on.” The new environment was clearly visible to him.”
+— Marshall McLuhan https://www.theMediumistheMassAge.com/the-book/
+
+https://old.reddit.com/r/pics/comments/1rqmxjp/marco_rubio_wearing_oversized_shoes_that_trump/o9tdiwx/
+
+Funny, amusing. Neil Postman's 1985 book explains all of Reddit-Trump fandom. Reddit i a cult of mocking Trumpism and mocking MAGA. Which was already a cult of Trump. It is a cult of mocking a mockery. That is not resisting Trump, it's abandoning all goodness to behave and follow Trump like Reddit venue groupies.
+
+https://old.reddit.com/r/pics/comments/1rqmxjp/marco_rubio_wearing_oversized_shoes_that_trump/o9tdf1y/
+
+**Spineless screen lickers** who are on Reddit app screens, flocking to every move and shake of the Kremlin White House. This is a cult of ignorance, celebrating the Trump ignorance as a source of commenting. PRIORITIES_OF_THE_99_PERCENT_COMMENTING_MEDIA
+
+https://old.reddit.com/r/pics/comments/1rqmxjp/marco_rubio_wearing_oversized_shoes_that_trump/o9tdid8/
+
+CONCERNS_OF_FINNEGANS The Fall cycle that Marshall McLuhan spent his lifetime teachings about. The 1968 book by Marshall McLuhan that predicts all this win by Surkov students in Russia. https://en.wikipedia.org/wiki/War_and_Peace_in_the_Global_Village
+
+Marshall McLuhan's focus was on Reddit media in year 1968!!!!
+
+https://old.reddit.com/r/politics/comments/1rqw670/coalition_demands_schumer_jeffries_step_down_over/o9v5pbr/
+
+6 month Reddit account, top-most upvoted popular comment. Reddit fandom supports the White House because it is entertainment and comedy to Reddit media cult members. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT observe the lack of Reddit blackout protest. REDDIT_BLACKOUT - observe the avoidance of nonfiction serious books to the joke crowd on Reddit. Dr. Bandy X Lee's October 3, 2017 book should be quoted and repeated again and again until every person in USA is on the same page. MORE_THAN_EPSTEIN_NAME_DROPS

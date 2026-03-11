@@ -2,7 +2,7 @@ https://old.reddit.com/r/funny/comments/1rhq8gn/unexpected_customer/o80jb49/
 
 If only people cared if the Russian government and USA government were scripted Reality TV for Bluesky and Reddit audiences. It seems almost nobody on Reddit can recall the BBC or use search engines for nonfiction real world. REALITY_REAL
 
-Take for example, Russia vs.Ukraine scripted war for Reddit audiences. Why is this one sentence from the BBC reporting, covering public content from the Russia government, not given the attention of this retail store opening with two people at at door? Why isn't this year 2014 line in news story on the front page of Reddit when war is in the news?
+Take for example, Russia vs.Ukraine scripted war (Putin's mind games to downplay the real world violence and destruction) for Reddit audiences. Why is this one sentence from the BBC reporting, covering public content from the Russia government, not given the attention of this retail store opening with two people at at door? Why isn't this year 2014 line in news story on the front page of Reddit when war is in the news?
 
 * "But **the key thing was, that Surkov then let it be known that this was what he was doing, which meant that no one was sure what was real or fake**. As one journalist put it: "It is a strategy of power that keeps any opposition constantly confused." A ceaseless shape-shifting that is unstoppable because it is undefinable. It is exactly what Surkov is alleged to have done in the Ukraine this year. In typical fashion, **as the war began, Surkov published a short story** about something he called non-linear war. A war where you never know what the enemy are really up to, or even who they are. The underlying aim, **Surkov says, is not to win the war, but to use the conflict to create a constant state of destabilized perception**, in order to manage and control." - BBC, Adam Curtis. December 31, 2014.
     * Repeating, year 2014: "The underlying aim, **Surkov says, is not to win the war, but to use the conflict to create a constant state of destabilized perception**"
@@ -203,3 +203,38 @@ TOO_MUCH_LOVE_IS_INSANE_BUT_MAD_MILITARY_DOCTRINE_AND_AVOIDANCE_NON_FICTION
 https://old.reddit.com/r/whennews/comments/1rp0nbi/what_is_wrong_with_people/o9hwh01/
 
 BRAIN_ROT_SOCIETY_47 
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1rp3417/help_please/o9iairm/
+
+YOU_MUST_HATE_EX_LOVERS topic, see replies too.
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1rp3417/help_please/o9ifej6/
+
+COMPARATIVE_MYTHOLOGY lesson here! This is something most people do not get. John Lennon even had a song "Instant Karma" in February 1970 https://en.wikipedia.org/wiki/Instant_Karma! , with the EMPHASIS on "Instant", because traditional karma is in the next lifetime. 
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1rp3417/help_please/o9iefno/
+
+YOU_MUST_HATE_EX_LOVERS
+
+https://old.reddit.com/r/whennews/comments/1rpejcu/what_the_fuck/o9kg6y1/
+
+https://old.reddit.com/r/whennews/comments/1rpejcu/what_the_fuck/o9khqrt/
+
+https://old.reddit.com/r/lol/comments/1rqa7gb/lmao/o9qtvxv/
+
+CHOICE_MARRIAGE_HONESTY
+
+https://old.reddit.com/r/pcmasterrace/comments/1rqdy0n/bipolar_partner_destroyed_everything/o9rk7bp/
+
+https://old.reddit.com/r/confidentlyincorrect/comments/1rqeyvd/two_people_confidently_and_incorrectly_correcting/o9rxv4v/
+
+CONCERNS_OF_FINNEGANS 
+
+https://old.reddit.com/r/SipsTea/comments/1rqj7ec/id_win_every_argument/o9sxsgy/
+
+Front-page posting on Reddit saying that "win" a relationship by putting a woman in cages and torturing a woman because man is stronger than women physically. Anti-intellectual anti-women INTERCOURSE_DIALOG - this is Donald Trump role model values of how to treat women in a Reddit title. TALIBAN_VALUES and MAGA_VALUES in March 2026 on the cult platform of MAGA mockery, Reddit. This "win" title is created by a 28-day Reddit account https://old.reddit.com/user/CupidHot_
+
+https://old.reddit.com/r/SipsTea/comments/1rqj7ec/id_win_every_argument/o9sta8g/
+
+The photo is fake. But see the 28-day Reddit account https://old.reddit.com/user/CupidHot_ that took Twitter / X content and got to the front page of /r/All - Reddit prizing Elon Musk Twitter content. That isn't fake, the attraction to the richest man in the world's fake image platform. This is a Twitter screen shot on Reddit. MEDIA_ECOLOGY_OBSERVATION - the image also plays on USA fiction fandom of The Simpsons https://en.wikipedia.org/wiki/Eeny_Teeny_Maya_Moe there is even a resemblance to the animated character.
+

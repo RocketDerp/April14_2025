@@ -49,3 +49,10 @@ People spend all their time chanting "Epstein, LIST!" - which does not address t
 
 Education, learning, world peace, all people getting education. What Malala has pointed out since January 2009 - all mocked and considered boring, People far more concerned with "Lists" of Epstein men attraction. And sports games, video games, than actually using social media sustained focus on learning / study / nonfiction non-entertainment non-amusement concerns of humanity.
 
+&nbsp;
+
+# Marriage Understanding
+
+https://old.reddit.com/r/lol/comments/1rqa7gb/lmao/    
+
+CHOICE_MARRIAGE_HONESTY   

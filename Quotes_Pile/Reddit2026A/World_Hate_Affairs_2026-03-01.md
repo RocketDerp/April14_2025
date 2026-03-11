@@ -893,3 +893,171 @@ GULLIBLE_FANDOM - Reddit users can not see their own compulsive attraction to ba
 https://old.reddit.com/r/Fauxmoi/comments/1rowsof/azaelia_banks_admits_she_was_paid_to_post_about/o9gvpfe/
 
 The ANTI_WIKI_ANTI_FAQ behaviors of social media users (Reddit) since year 2013 have paved the way. People are so addicted to anti-organizing commenting as "engagement" that the population is all on different pages. Instead of getting on the same page of important topics using tools like Wiki and FAQ. Brain rot abounds since year 2013 with tiny short commenting that leads people all into alternate realities.
+
+https://old.reddit.com/r/worldnews/comments/1rp68cc/russia_is_sharing_intelligence_with_iran_about_us/o9ivdqn/
+
+8 month Reddit account, top most upvoted popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+
+https://old.reddit.com/r/worldnews/comments/1rp68cc/russia_is_sharing_intelligence_with_iran_about_us/o9itub3/
+
+MAGA_FANDOM that can't wait for the media stimulation of MAGA commenting. Addiction to high-speed cloud computing Reddit bullshit is core to Trumpism values.
+
+https://old.reddit.com/r/worldnews/comments/1rp68cc/russia_is_sharing_intelligence_with_iran_about_us/o9ita5j/
+
+MAXIMUM_PUTINIZATION
+
+https://old.reddit.com/r/GetNoted/comments/1rpf9et/smartest_nazi/o9l5agb/
+
+https://old.reddit.com/r/GetNoted/comments/1rpf9et/smartest_nazi/o9kynfr/
+
+https://old.reddit.com/r/PublicFreakout/comments/1rq0i5p/destruction_in_tel_aviv_as_a_result_of_an_iranian/o9oxg4f/
+
+https://old.reddit.com/r/PublicFreakout/comments/1rq0i5p/destruction_in_tel_aviv_as_a_result_of_an_iranian/o9ougge/
+
+9 month Reddit account.
+
+https://old.reddit.com/r/PublicFreakout/comments/1rq0i5p/destruction_in_tel_aviv_as_a_result_of_an_iranian/o9osdwl/
+
+HATE_HARDER machine logic.
+
+https://old.reddit.com/r/worldnews/comments/1rq5xws/report_us_detects_signs_iran_preparing_to_lay/o9pwu9h/
+
+2nd most popular upvoted comment. FOLLOWERS_OF_LEADER_TRUMP_ACTOR_ENTERTAINER_DONALD_TRUMP_FOLLOWERS As long as there are video games, world events are just entertainment for commenting jokes about.
+
+https://old.reddit.com/r/worldnews/comments/1rq5xws/report_us_detects_signs_iran_preparing_to_lay/o9qibog/
+
+ELECTION_DAY_FIXATED_BRAIN_ROT_EVERY_DAY_FOX_NEWS_ETC - spread more brain rot, keep making dumb emotional hate and anger the anti-intellectual mindsets of governing in USA. This is promoting adding to the brain rot.
+
+https://old.reddit.com/r/worldnews/comments/1rq5xws/report_us_detects_signs_iran_preparing_to_lay/o9qdglr/
+
+BEYOND_DENIAL I really think people are in denial and not facing up that the USA has nuclear submarines capable of monitoring who is laying the mines and creating dramatic sinking. It would get more press coverage and the kind of "bad ass Depart of War" mindset that has been the anti-intellectual weapon-systems technology worship of the MAGA movement. The nuclear submarines and space resources can give coordinates and rockets and/or jets can deliver bombs. SEE next comment link:
+
+https://old.reddit.com/r/worldnews/comments/1rq5xws/report_us_detects_signs_iran_preparing_to_lay/o9q3lk5/
+
+There, someone discussed what I commented in the previous message.
+
+https://old.reddit.com/r/worldnews/comments/1rq5xws/report_us_detects_signs_iran_preparing_to_lay/o9qirjq/
+
+Reddit comment creator thinks this is classic "dumb". SURKOVIAN_ONION_EATING - why isn't the non-dumb Reddit commenting community promoting and quoting Dr. Bandy X Lee over and over in comments, calling for Trump's removal? ANSWER: Reddit commenting creators is a media cult of calling Trump moron, dumb, orange, etc. Reddit community is a *fandom* of dumb. ATTRACTION_TO_SHIT_CONTENT_ENSHIT_BY_DESIRE
+
+https://old.reddit.com/r/GetNoted/comments/1rq9cdj/seeing_missiles_overhead/o9r1nlk/
+
+This whole posting is full of MEDIA_ECOLOGY_OBSERVATION 
+
+https://old.reddit.com/r/videos/comments/1rq9h9v/white_house_press_karoline_leavitt_on_iran_and/o9qnagv/
+
+https://old.reddit.com/r/videos/comments/1rq9h9v/white_house_press_karoline_leavitt_on_iran_and/o9qnbmq/
+
+https://old.reddit.com/r/videos/comments/1rq9h9v/white_house_press_karoline_leavitt_on_iran_and/o9qmlqg/
+
+https://old.reddit.com/r/videos/comments/1rq9h9v/white_house_press_karoline_leavitt_on_iran_and/o9qqh6a/
+
+https://old.reddit.com/r/videos/comments/1rq9h9v/white_house_press_karoline_leavitt_on_iran_and/o9qudli/
+
+Yes. BRAIN_ROT_SOCIETY_47 that's the mentality of the USA now. Observe the avoidance of relevant nonfiction books by Dr. Bandy X Lee all over Reddit.
+
+https://old.reddit.com/r/videos/comments/1rq9h9v/white_house_press_karoline_leavitt_on_iran_and/o9qngrm/
+
+Ultimately it does not matter. It is the 99% of people behaving ignorant and avoiding relevant serious nonfiction that is the every day all day experience of USA society now. PRIORITIES_OF_THE_99_PERCENT_COMMENTING_MEDIA
+
+https://old.reddit.com/r/worldnews/comments/1rqlwh2/zelenskyy_ukraine_now_has_cards_and_everyone/o9t57qg/
+
+Top most popular upvoted comment. Joke-washing Putin and Trump. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
+
+https://old.reddit.com/r/worldnews/comments/1rqlwh2/zelenskyy_ukraine_now_has_cards_and_everyone/o9t7wk8/
+
+JD Vance Fandom, MAGA_FANDOM on Reddit. Crying out for more content creation of the Kremlin White House performers. 7 month Reddit account, 2nd most-upvoted popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+
+https://old.reddit.com/r/PublicFreakout/comments/1rqocbr/israeli_settlers_have_poured_cement_over_water/o9tmru5/
+
+The front-page posting on Reddit is by 8-month account https://old.reddit.com/user/Used_Series3373
+
+https://old.reddit.com/r/PublicFreakout/comments/1rqocbr/israeli_settlers_have_poured_cement_over_water/o9tm7v7/
+
+https://old.reddit.com/r/PublicFreakout/comments/1rqocbr/israeli_settlers_have_poured_cement_over_water/o9tnc4z/
+
+https://old.reddit.com/r/PublicFreakout/comments/1rqocbr/israeli_settlers_have_poured_cement_over_water/o9tn659/
+
+https://old.reddit.com/r/PublicFreakout/comments/1rqocbr/israeli_settlers_have_poured_cement_over_water/o9tlmn8/
+
+https://old.reddit.com/r/PublicFreakout/comments/1rqocbr/israeli_settlers_have_poured_cement_over_water/o9tlbcz/
+
+https://old.reddit.com/r/PublicFreakout/comments/1rqocbr/israeli_settlers_have_poured_cement_over_water/o9tnwke/
+
+HATE_FOR_HATE - people who believe the answer is that the world always needs more hate. Machine logic welded on hate.
+
+https://old.reddit.com/r/PublicFreakout/comments/1rqocbr/israeli_settlers_have_poured_cement_over_water/o9tmngd/
+
+"he" being Germany Hitler, USA Trump, etc. Reddit fandom of mass dehumanization. MASS_DEHUMANIZATION_POPULAR with the Twitter-length Tweet-thinking mindsets.
+
+https://old.reddit.com/r/PublicFreakout/comments/1rqocbr/israeli_settlers_have_poured_cement_over_water/o9toz08/
+
+https://www.snopes.com/fact-check/israelis-filling-water-with-concrete/ the footage seems to go back to July 2023. Notably before the October 7, 2023 terrorism attacks.
+
+https://old.reddit.com/r/okbuddycinephile/comments/1rqn1ie/favourite_actor_that_plays_a_rebellion_hero_but/o9tgkcv/
+
+2nd most popular upvoted comment. 6 month Reddit account. BRAIN_ROT_LEFT_RIGHT_LIB_CON_NAME_AVOIDANCE REDDIT_TOP_COMMENT_YOUNG_ACCOUNT - and OBSERVE_SOCIAL_MEDIA_AVOIDING_NONFICTION - the Power of Myth 1988 nonfiction book that George Lucas filmed at Skywalker ranch. That discusses the Middle East conflicts - that Star Wars fans never seem to find relevant to Iran vs. Israel and other out-group hate patterns. www.GreatSealUSA.com 
+
+CAMPBELL: But in the Bible, eternity withdraws, and nature is corrupt, nature has fallen. In biblical thinking, we live in exile.
+
+BILL MOYERS: As we sit here and talk, there is one story after another of car bombings in Beirut—by the Muslims of the Christians, by the Christians of the Muslims, and by the Christians of the Christians. It strikes me that Marshall McLuhan was right when he said that television has made a global village of the world—but he didn’t know the global village would be Beirut. What does that say to you?
+
+CAMPBELL: It says to me that they don’t know how to apply their religious ideas to contemporary life, and to human beings rather than just to their own community. It’s a terrible example of the failure of religion to meet the modern world. **These three mythologies are fighting it out. They have disqualified themselves for the future.**
+
+MOYERS: What kind of new myth do we need?
+
+CAMPBELL: We need myths that will identify the individual not with his local group but with the planet. A model for that is the United States. Here were thirteen different little colony nations that decided to act in the mutual interest, without disregarding the individual interests of any one of them.
+
+MOYERS: There is something about that on the Great Seal of the United States.
+
+CAMPBELL: That’s what the Great Seal is all about. 
+
+https://old.reddit.com/r/okbuddycinephile/comments/1rqn1ie/favourite_actor_that_plays_a_rebellion_hero_but/o9ttykm/
+
+https://old.reddit.com/r/okbuddycinephile/comments/1rqn1ie/favourite_actor_that_plays_a_rebellion_hero_but/o9thlmc/
+
+Observe the Reddit community avoiding Dr. Martin Luther King Jr, relevant to USA California George Lucas characters. THE_1954_EQUATION that all hate is bad. Does not matter if Israel or Palestine or USA or Iran, ALL HATE. People are far more "engaged" with media of wars and real war and do not see the threat egoism and advancing military technology addictions are to humanity.
+
+**The 1954 Equation**
+
+February 28, 1954: "Most people can't stand up for their convictions, because the majority of people might not be doing it. See, everybody's not doing it, so it must be wrong. And since everybody is doing it, it must be right. So a sort of numerical interpretation of what's right. But I'm here to say to you this morning that some things are right and some things are wrong. Eternally so, absolutely so. **It's wrong to hate.** It always has been wrong and it always will be wrong. It's wrong in America, it's wrong in Germany, it's wrong in Russia, it's wrong in China. It was wrong in 2000 B.C., and it's wrong in 1954 A.D. It always has been wrong, and it always will be wrong." - Martin Luther King Jr.
+
+"For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the **true becomes false and the false becomes true**. That's what hate does. You can't see right. **The symbol of objectivity** is lost." - Martin Luther King Jr.
+
+https://old.reddit.com/r/okbuddycinephile/comments/1rqn1ie/favourite_actor_that_plays_a_rebellion_hero_but/o9tl91u/
+
+https://old.reddit.com/r/okbuddycinephile/comments/1rqn1ie/favourite_actor_that_plays_a_rebellion_hero_but/o9tp1fo/
+
+https://old.reddit.com/r/okbuddycinephile/comments/1rqn1ie/favourite_actor_that_plays_a_rebellion_hero_but/o9tp4w4/
+
+Shit-commenting shit-posting addict on Reddit. Turning war into jokes and memes.
+
+https://old.reddit.com/r/okbuddycinephile/comments/1rqn1ie/favourite_actor_that_plays_a_rebellion_hero_but/o9tvhqs/
+
+14 day Reddit account. 
+
+https://old.reddit.com/r/news/comments/1rqvhsq/iran_tells_world_to_get_ready_for_200_a_barrel/o9v2ejz/
+
+https://old.reddit.com/r/Fauxmoi/comments/1rqxp8w/an_18yearold_woman_in_queensland_faces_two_years/o9vkyiv/
+
+NOT_GOOD_ENOUGH Marshall McLuhan for electric media addicts of Reddit who have meme-washed and entertainment-washed in tech-lust all of this.
+
+* “The misleading effect of books like George Orwell's 1984 is to project into the future a state of affairs that already exists.” ― Marshall McLuhan, The Mechanical Bride : Folklore of Industrial Man. year 1951
+
+https://old.reddit.com/r/Fauxmoi/comments/1rqxp8w/an_18yearold_woman_in_queensland_faces_two_years/o9vl7o9/
+
+HATE_VS_HATE Always calling for more hate.
+
+https://old.reddit.com/r/europe/comments/1rqtuws/spain_accuses_germany_of_acting_like_a_vassal_to/o9uqlrx/
+
+https://old.reddit.com/r/europe/comments/1rqtuws/spain_accuses_germany_of_acting_like_a_vassal_to/o9uymew/
+
+"nobody likes the orange buffoon in Spain" but the crisis is We The People globally who have abandoned relevant nonfiction. Social meme addicts who won't stop joke-washing and end their attraction to following Trump's anti-intellectual leadership. NAME_CALLING_INSULT_MOCKERY_FOLLOWERS_OF_LEADER_DONALD_TRUMP_SHALLOWNESS_VALUES - Trump has wrecked intelligence for all media consumers of Television, Internet, newspapers, etc. Surkov won since year 2013.
+
+https://old.reddit.com/r/europe/comments/1rqtuws/spain_accuses_germany_of_acting_like_a_vassal_to/o9uykw3/
+
+"maddening". Surkov won since year 2013. DECEMBER_5_2014_NATO_JOKE_ARTICLE_5_JOKE "turn the EU to mush" was part of that December 5, 2014 book reading.
+
+https://old.reddit.com/r/worldnews/comments/1rqwy7z/kremlin_ran_covert_campaign_to_boost_orb%C3%A1n_ahead/o9vihn7/
+
+SURKOV_MONOMYTH 

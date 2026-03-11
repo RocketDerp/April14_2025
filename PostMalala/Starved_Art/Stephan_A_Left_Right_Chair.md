@@ -7,3 +7,12 @@ In this lecture, there is a discussion of brainrot left vs. right behaviors. Yea
 CONTEXT: A Stephan, "a" Stephen. A Joycean Stephen Hero.
 
 ToDo: locate / quote.
+
+&nbsp;
+
+# Donnie Darko
+
+Gnostic   
+https://www.youtube.com/watch?v=L_V2vxemwtA     
+"Donnie Darko: The Hidden Gnostic Allegory"    
+
