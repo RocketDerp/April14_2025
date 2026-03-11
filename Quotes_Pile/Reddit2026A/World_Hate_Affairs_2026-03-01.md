@@ -1037,3 +1037,9 @@ https://old.reddit.com/r/okbuddycinephile/comments/1rqn1ie/favourite_actor_that_
 14 day Reddit account. 
 
 https://old.reddit.com/r/news/comments/1rqvhsq/iran_tells_world_to_get_ready_for_200_a_barrel/o9v2ejz/
+
+https://old.reddit.com/r/Fauxmoi/comments/1rqxp8w/an_18yearold_woman_in_queensland_faces_two_years/o9vkyiv/
+
+NOT_GOOD_ENOUGH Marshall McLuhan for electric media addicts of Reddit who have meme-washed and entertainment-washed in tech-lust all of this.
+
+* “The misleading effect of books like George Orwell's 1984 is to project into the future a state of affairs that already exists.” ― Marshall McLuhan, The Mechanical Bride : Folklore of Industrial Man. year 1951
