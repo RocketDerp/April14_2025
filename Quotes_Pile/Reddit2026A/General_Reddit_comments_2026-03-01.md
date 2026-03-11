@@ -229,3 +229,9 @@ https://old.reddit.com/r/pcmasterrace/comments/1rqdy0n/bipolar_partner_destroyed
 https://old.reddit.com/r/confidentlyincorrect/comments/1rqeyvd/two_people_confidently_and_incorrectly_correcting/o9rxv4v/
 
 CONCERNS_OF_FINNEGANS 
+
+https://old.reddit.com/r/SipsTea/comments/1rqj7ec/id_win_every_argument/o9sxsgy/
+
+Front-page posting on Reddit saying that "win" a relationship by putting a woman in cages and torturing a woman because man is stronger than women physically. Anti-intellectual anti-women INTERCOURSE_DIALOG - this is Donald Trump role model values of how to treat women in a Reddit title. TALIBAN_VALUES and MAGA_VALUES in March 2026 on the cult platform of MAGA mockery, Reddit. This "win" title is created by a 28-day Reddit account https://old.reddit.com/user/CupidHot_
+
+
