@@ -236,5 +236,5 @@ Front-page posting on Reddit saying that "win" a relationship by putting a woman
 
 https://old.reddit.com/r/SipsTea/comments/1rqj7ec/id_win_every_argument/o9sta8g/
 
-The photo is fake. But see the 28-day Reddit account https://old.reddit.com/user/CupidHot_ that took Twitter / X content and got to the front page of /r/All - Reddit prizing Elon Musk Twitter content. That isn't fake, the attraction to the richest man in the world's fake image platform. This is a Twitter screen shot on Reddit. MEDIA_ECOLOGY_OBSERVATION
+The photo is fake. But see the 28-day Reddit account https://old.reddit.com/user/CupidHot_ that took Twitter / X content and got to the front page of /r/All - Reddit prizing Elon Musk Twitter content. That isn't fake, the attraction to the richest man in the world's fake image platform. This is a Twitter screen shot on Reddit. MEDIA_ECOLOGY_OBSERVATION - the image also plays on USA fiction fandom of The Simpsons https://en.wikipedia.org/wiki/Eeny_Teeny_Maya_Moe there is even a resemblance to the animated character.
 
