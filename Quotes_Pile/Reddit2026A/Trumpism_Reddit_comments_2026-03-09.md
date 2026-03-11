@@ -617,3 +617,7 @@ https://old.reddit.com/r/PublicFreakout/comments/1rqcgee/a_passenger_on_a_cruise
 
 SYMBOLISM_GUMBO is so funny to people. Gallows humor and mocking is what makes it to the front page of /r/All Reddit. HATE_VS_HATE cruising the world on a ship to mock humanism. 
 
+https://old.reddit.com/r/politics/comments/1rq0f9b/trump_made_massive_tactical_error_on_iran_during/o9ps4hi/
+
+People just could not resist laughing LOL away at Trump. Every media system bent to make Trump the brain rot leader. The avoidance of Dr. Bandy X Lee and other relevant nonfiction - We The People are not using information systems to organize intelligence. People are using computers to LOL at Trump in comments. PRIORITIES_OF_THE_99_PERCENT_COMMENTING_MEDIA Surkov won since year 2013.
+
