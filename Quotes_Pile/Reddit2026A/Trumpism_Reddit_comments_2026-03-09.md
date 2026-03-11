@@ -756,3 +756,7 @@ https://old.reddit.com/r/explainitpeter/comments/1rqywy5/found_this_on_fb_with_o
 
 The avoidance of Dr. Bandy X Lee nonfiction writing, a woman, on Reddit commenting section in year 2026 I think speaks a lot for the game player attitudes on Reddit. Anti-intellectual, anti-goodness, anti-Wiki anti-FAQ. People who believe in low-effort commenting and don't want women organizing against Steve Bannon and Donald Trump. Steve Bannon worked with Cambridge Analytica, and I do not see this Reddit comment creator pointing that out. It is HIGHLY relevant to the alt-right topic of the posting from Facebook "found this on FB". PRIORITIES_OF_THE_99_PERCENT_COMMENTING_MEDIA
 
+https://old.reddit.com/r/news/comments/1rr6s29/pentagon_tells_congress_first_week_of_iran_war/o9xdc8a/
+
+Top most popular upvoted comment. Joke material, social media "engagement questions". REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING This is entertainment to Reddit media cults.
+
