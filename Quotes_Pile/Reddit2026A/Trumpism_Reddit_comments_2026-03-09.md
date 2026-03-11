@@ -633,3 +633,6 @@ https://old.reddit.com/r/law/comments/1rqh678/trump_is_now_blaming_hegseth_jared
 
 Top most popular upvoted comment. TRUMP_FANDOM behavior on Reddit. People who view all this through the perspective of entertainment (Neil Postman's 1985 book). REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
 
+https://old.reddit.com/r/law/comments/1rqh678/trump_is_now_blaming_hegseth_jared_witkolf_and/o9s8www/
+
+REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING 2nd most popular upvoted comment.  ARE_YOU_SMARTER_THAN_3RD_GRADE_STUDENT_FANDOM_MEASURING - the problem is not how dumb Donald Trump is. The problem is the avoidance of Dr. Bandy X Lee, Neil Postman, Peter Pomerantsev nonfiction relevant books on paper. The constant flocking to Trump as a LOLCOW to milk over and over for a decade plus. The Twitter-thinking cult of mockery that Trump leads, the ignorance that Trump inspires.
