@@ -621,3 +621,11 @@ https://old.reddit.com/r/politics/comments/1rq0f9b/trump_made_massive_tactical_e
 
 People just could not resist laughing LOL away at Trump. Every media system bent to make Trump the brain rot leader. The avoidance of Dr. Bandy X Lee and other relevant nonfiction - We The People are not using information systems to organize intelligence. People are using computers to LOL at Trump in comments. PRIORITIES_OF_THE_99_PERCENT_COMMENTING_MEDIA Surkov won since year 2013.
 
+https://old.reddit.com/r/technology/comments/1rqbaa9/maga_suddenly_quiet_about_overseas_influence_now/o9r23a5/
+
+https://old.reddit.com/r/technology/comments/1rqbaa9/maga_suddenly_quiet_about_overseas_influence_now/o9rulcx/
+
+https://old.reddit.com/r/technology/comments/1rqbaa9/maga_suddenly_quiet_about_overseas_influence_now/o9r35fk/
+
+https://old.reddit.com/r/technology/comments/1rqbaa9/maga_suddenly_quiet_about_overseas_influence_now/o9r6f4k/
+
