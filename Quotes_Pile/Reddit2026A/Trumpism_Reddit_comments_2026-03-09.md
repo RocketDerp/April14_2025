@@ -641,3 +641,6 @@ https://old.reddit.com/r/law/comments/1rqh678/trump_is_now_blaming_hegseth_jared
 
 Reddit and Bluesky media cults of mocking have been the centers of DEMENTIA_WASHING Trump as innocent and not responsible.
 
+https://old.reddit.com/r/law/comments/1rqh678/trump_is_now_blaming_hegseth_jared_witkolf_and/o9sahsn/
+
+TRUMP_TRUSTS_PUTIN what more evidence do you need than seeing Trump trust Putin all along? OUTSMARTED_TRICKED_MANIPULATED_BAMBOOZLED_BY_TRUMP_MURDOCH_PUTIN
