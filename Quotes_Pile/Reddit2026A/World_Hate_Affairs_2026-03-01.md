@@ -1047,3 +1047,9 @@ NOT_GOOD_ENOUGH Marshall McLuhan for electric media addicts of Reddit who have m
 https://old.reddit.com/r/Fauxmoi/comments/1rqxp8w/an_18yearold_woman_in_queensland_faces_two_years/o9vl7o9/
 
 HATE_VS_HATE Always calling for more hate.
+
+https://old.reddit.com/r/europe/comments/1rqtuws/spain_accuses_germany_of_acting_like_a_vassal_to/o9uqlrx/
+
+https://old.reddit.com/r/europe/comments/1rqtuws/spain_accuses_germany_of_acting_like_a_vassal_to/o9uymew/
+
+"nobody likes the orange buffoon in Spain" but the crisis is We The People globally who have abandoned relevant nonfiction. Social meme addicts who won't stop joke-washing and end their attraction to following Trump's anti-intellectual leadership. NAME_CALLING_INSULT_MOCKERY_FOLLOWERS_OF_LEADER_DONALD_TRUMP_SHALLOWNESS_VALUES - Trump has wrecked intelligence for all media consumers of Television, Internet, newspapers, etc. Surkov won since year 2013.
