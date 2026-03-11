@@ -6,6 +6,10 @@ November 17, 1970
 
 &nbsp;
 
+Social post { https://autistics.life/@RoundSparrow/116211886585468968 https://bsky.app/profile/roundsparrow.bsky.social/post/3mgsibtnw322e }    
+
+&nbsp;
+
 CONCERNS_OF_FINNEGANS 
 
 "Another theme of the Wake \[Finnegans Wake\] that helps in the understanding of the paradoxical shift from cliché to archetype is 'past time are pastimes.' The dominant technologies of one age become the games and pastimes of a later age. In the 20th century, the number of 'past times' that are simultaneously available is so vast as to create cultural anarchy. When all the cultures of the world are simultaneously present, the work of the artist in the elucidation of form takes on new scope and new urgency. Most men are pushed into the artist's role. The artist cannot dispense with the principle of 'doubleness' or 'interplay' because this type of hendiadys dialogue is essential to the very structure of consciousness, awareness, and autonomy."
