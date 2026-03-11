@@ -704,3 +704,11 @@ Yha, they live in ANTI_REALITY of Reddit where people create comments like this 
 https://old.reddit.com/r/interestingasfuck/comments/1rqrocc/thai_ship_attacked_in_the_strait_of_hormuz/o9ub5hx/
 
 7 month Reddit account. PRIORITIES_OF_THE_99_PERCENT_COMMENTING_MEDIA
+
+https://old.reddit.com/r/interestingasfuck/comments/1rqrocc/thai_ship_attacked_in_the_strait_of_hormuz/o9vav6a/
+
+<img width="1311" height="402" alt="image" src="https://github.com/user-attachments/assets/86714bed-9199-4484-916c-45ffec0537e6" />
+
+BEYOND_DENIAL beyond the common denial. CORE_CONCERNS but people in USA are so engaged on media systems commenting and information delivery that people can't see how Trump / MAGA all started February 20, 2014 with the Ukraine War, Russia March 2013 Saint Petersburg Internet Research Agency. Surkov won since year 2013.
+
+Social post { https://autistics.life/@RoundSparrow/116211320340591530 https://bsky.app/profile/roundsparrow.bsky.social/post/3mgsa7sc64s2i }   
