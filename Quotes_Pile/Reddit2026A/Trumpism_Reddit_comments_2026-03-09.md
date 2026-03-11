@@ -736,6 +736,7 @@ https://old.reddit.com/r/news/comments/1rqvhsq/iran_tells_world_to_get_ready_for
 
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1rqxfrr/when_clown_shoes_goes_literal/o9vqevm/
 
-1 month Reddit account. This is White House fandom, getting images out of the oval office as "content" on high speed information systems. FANATICS_FANS_OF_CLOWNS_FANS_OF_MAGA_CLOWNING Instead of addressing the anti-intellectual attitudes in USA, people are engaging the entertainment that reality TV star "The Apprentice" super star content provided. A society of commenting media addicts following a television media addiction leader.
+1 month Reddit account. This is White House fandom, getting images out of the oval office as "content" on high speed information systems. FANATICS_FANS_OF_CLOWNS_FANS_OF_MAGA_CLOWNING Instead of addressing the anti-intellectual attitudes in USA, people are engaging the entertainment that reality TV star "The Apprentice" super star content provided. A society of commenting media addicts following a television media addiction leader. Observe that the Reddit posting title is a Twitter fandom, brain rot Tweet fandom, and the title of the posting does not provide specifics, is generic clickbait style - created by Reddit users and upvoted by anti-intellectual users who are joke-washing the White House. Avoiding relevant serious nonfiction and removing Trump.
+
 
 
