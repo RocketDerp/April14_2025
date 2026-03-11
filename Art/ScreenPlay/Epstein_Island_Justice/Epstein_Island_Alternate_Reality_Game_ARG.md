@@ -45,6 +45,8 @@ I did not watch every minute, I skipped some, but I think it avoids Peter P and 
 
 WAR_AGAINST_REALITY   
 
+My YouTube comment: "People need to stop fragmenting all this into different media sites. A printed book, on paper, from year 2014 describes Trumpism / MAGA before it hit the USA. Peter Pomerantsev, Nothing Is True and Everything Is Possible: The Surreal Heart of the New Russia"   
+
 &nbsp;
 
 # ToDo: Ideas
