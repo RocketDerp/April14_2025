@@ -255,3 +255,7 @@ https://old.reddit.com/r/pics/comments/1rqmxjp/marco_rubio_wearing_oversized_sho
 CONCERNS_OF_FINNEGANS The Fall cycle that Marshall McLuhan spent his lifetime teachings about. The 1968 book by Marshall McLuhan that predicts all this win by Surkov students in Russia. https://en.wikipedia.org/wiki/War_and_Peace_in_the_Global_Village
 
 Marshall McLuhan's focus was on Reddit media in year 1968!!!!
+
+https://old.reddit.com/r/politics/comments/1rqw670/coalition_demands_schumer_jeffries_step_down_over/o9v5pbr/
+
+6 month Reddit account, top-most upvoted popular comment. Reddit fandom supports the White House because it is entertainment and comedy to Reddit media cult members. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT observe the lack of Reddit blackout protest. REDDIT_BLACKOUT - observe the avoidance of nonfiction serious books to the joke crowd on Reddit. Dr. Bandy X Lee's October 3, 2017 book should be quoted and repeated again and again until every person in USA is on the same page. MORE_THAN_EPSTEIN_NAME_DROPS
