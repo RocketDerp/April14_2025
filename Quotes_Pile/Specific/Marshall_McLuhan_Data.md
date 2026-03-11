@@ -1,0 +1,3 @@
+
+“It is just when people are all engaged in snooping on themselves and one another that they become anesthetized to the whole process. Tranquilizers and anesthetics, private and corporate, become the largest business in the world just as the world is attempting to maximize every form of alert. Sound-light shows, as new cliché, are in effect mergers, retrievers of the tribal condition. It is a state that has already overtaken private enterprise, as individual businesses form into massive conglomerates. As information itself becomes the largest business in the world, data banks know more about individual people than the people do themselves. The more the data banks record about each one of us, the less we exist.”
+― Marshall McLuhan, From Cliche to Archetype
