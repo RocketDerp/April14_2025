@@ -1058,3 +1058,6 @@ https://old.reddit.com/r/europe/comments/1rqtuws/spain_accuses_germany_of_acting
 
 "maddening". Surkov won since year 2013. DECEMBER_5_2014_NATO_JOKE_ARTICLE_5_JOKE "turn the EU to mush" was part of that December 5, 2014 book reading.
 
+https://old.reddit.com/r/worldnews/comments/1rqwy7z/kremlin_ran_covert_campaign_to_boost_orb%C3%A1n_ahead/o9vihn7/
+
+SURKOV_MONOMYTH 
