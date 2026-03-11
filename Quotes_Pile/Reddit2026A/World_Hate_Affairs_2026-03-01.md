@@ -1043,3 +1043,7 @@ https://old.reddit.com/r/Fauxmoi/comments/1rqxp8w/an_18yearold_woman_in_queensla
 NOT_GOOD_ENOUGH Marshall McLuhan for electric media addicts of Reddit who have meme-washed and entertainment-washed in tech-lust all of this.
 
 * “The misleading effect of books like George Orwell's 1984 is to project into the future a state of affairs that already exists.” ― Marshall McLuhan, The Mechanical Bride : Folklore of Industrial Man. year 1951
+
+https://old.reddit.com/r/Fauxmoi/comments/1rqxp8w/an_18yearold_woman_in_queensland_faces_two_years/o9vl7o9/
+
+HATE_VS_HATE Always calling for more hate.
