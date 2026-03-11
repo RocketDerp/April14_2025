@@ -959,3 +959,7 @@ Yes. BRAIN_ROT_SOCIETY_47 that's the mentality of the USA now. Observe the avoid
 https://old.reddit.com/r/videos/comments/1rq9h9v/white_house_press_karoline_leavitt_on_iran_and/o9qngrm/
 
 Ultimately it does not matter. It is the 99% of people behaving ignorant and avoiding relevant serious nonfiction that is the every day all day experience of USA society now. PRIORITIES_OF_THE_99_PERCENT_COMMENTING_MEDIA
+
+https://old.reddit.com/r/worldnews/comments/1rqlwh2/zelenskyy_ukraine_now_has_cards_and_everyone/o9t57qg/
+
+Top most popular upvoted comment. Joke-washing Putin and Trump. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
