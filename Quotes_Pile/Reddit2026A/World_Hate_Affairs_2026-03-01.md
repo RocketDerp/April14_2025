@@ -1024,3 +1024,10 @@ February 28, 1954: "Most people can't stand up for their convictions, because th
 
 "For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the **true becomes false and the false becomes true**. That's what hate does. You can't see right. **The symbol of objectivity** is lost." - Martin Luther King Jr.
 
+https://old.reddit.com/r/okbuddycinephile/comments/1rqn1ie/favourite_actor_that_plays_a_rebellion_hero_but/o9tl91u/
+
+https://old.reddit.com/r/okbuddycinephile/comments/1rqn1ie/favourite_actor_that_plays_a_rebellion_hero_but/o9tp1fo/
+
+https://old.reddit.com/r/okbuddycinephile/comments/1rqn1ie/favourite_actor_that_plays_a_rebellion_hero_but/o9tp4w4/
+
+Shit-commenting shit-posting addict on Reddit. Turning war into jokes and memes.
