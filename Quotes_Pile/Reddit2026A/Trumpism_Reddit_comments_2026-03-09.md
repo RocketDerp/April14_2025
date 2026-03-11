@@ -712,3 +712,11 @@ https://old.reddit.com/r/interestingasfuck/comments/1rqrocc/thai_ship_attacked_i
 BEYOND_DENIAL beyond the common denial. CORE_CONCERNS but people in USA are so engaged on media systems commenting and information delivery that people can't see how Trump / MAGA all started February 20, 2014 with the Ukraine War, Russia March 2013 Saint Petersburg Internet Research Agency. Surkov won since year 2013.
 
 Social post { https://autistics.life/@RoundSparrow/116211320340591530 https://bsky.app/profile/roundsparrow.bsky.social/post/3mgsa7sc64s2i }   
+
+https://old.reddit.com/r/politics/comments/1rqtmuc/hegseths_fragile_masculinity_has_doomed_the_us/o9uoqoj/
+
+<img width="1169" height="880" alt="image" src="https://github.com/user-attachments/assets/b1d8e283-380c-4413-8438-92ee7be6d738" />
+
+WHITE_HOUSE_HYPER_REAL 
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mgschbnj422c https://autistics.life/@RoundSparrow/116211479683287799 }    
