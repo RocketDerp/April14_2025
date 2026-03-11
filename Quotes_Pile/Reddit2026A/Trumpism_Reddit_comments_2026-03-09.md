@@ -733,3 +733,9 @@ Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mgsda762dc
 https://old.reddit.com/r/news/comments/1rqvhsq/iran_tells_world_to_get_ready_for_200_a_barrel/o9v41d8/
 
 6 month Reddit account. ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING - observe that the Reddit commenting section is not promoting Dr. Bandy X Lee's 27 leaders to remove Trump. This is a MAGA_FANDOM comment that has normalized the MAGA situation. Which did not exist before year 2013. The anti-intellectual commenting cult of Reddit.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rqxfrr/when_clown_shoes_goes_literal/o9vqevm/
+
+1 month Reddit account. This is White House fandom, getting images out of the oval office as "content" on high speed information systems. FANATICS_FANS_OF_CLOWNS_FANS_OF_MAGA_CLOWNING Instead of addressing the anti-intellectual attitudes in USA, people are engaging the entertainment that reality TV star "The Apprentice" super star content provided. A society of commenting media addicts following a television media addiction leader.
+
+
