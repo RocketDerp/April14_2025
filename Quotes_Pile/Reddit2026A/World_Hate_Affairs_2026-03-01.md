@@ -955,3 +955,7 @@ https://old.reddit.com/r/videos/comments/1rq9h9v/white_house_press_karoline_leav
 https://old.reddit.com/r/videos/comments/1rq9h9v/white_house_press_karoline_leavitt_on_iran_and/o9qudli/
 
 Yes. BRAIN_ROT_SOCIETY_47 that's the mentality of the USA now. Observe the avoidance of relevant nonfiction books by Dr. Bandy X Lee all over Reddit.
+
+https://old.reddit.com/r/videos/comments/1rq9h9v/white_house_press_karoline_leavitt_on_iran_and/o9qngrm/
+
+Ultimately it does not matter. It is the 99% of people behaving ignorant and avoiding relevant serious nonfiction that is the every day all day experience of USA society now. PRIORITIES_OF_THE_99_PERCENT_COMMENTING_MEDIA
