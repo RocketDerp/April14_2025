@@ -226,3 +226,6 @@ CHOICE_MARRIAGE_HONESTY
 
 https://old.reddit.com/r/pcmasterrace/comments/1rqdy0n/bipolar_partner_destroyed_everything/o9rk7bp/
 
+https://old.reddit.com/r/confidentlyincorrect/comments/1rqeyvd/two_people_confidently_and_incorrectly_correcting/o9rxv4v/
+
+CONCERNS_OF_FINNEGANS 
