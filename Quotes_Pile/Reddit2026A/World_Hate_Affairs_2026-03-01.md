@@ -1035,3 +1035,5 @@ Shit-commenting shit-posting addict on Reddit. Turning war into jokes and memes.
 https://old.reddit.com/r/okbuddycinephile/comments/1rqn1ie/favourite_actor_that_plays_a_rebellion_hero_but/o9tvhqs/
 
 14 day Reddit account. 
+
+https://old.reddit.com/r/news/comments/1rqvhsq/iran_tells_world_to_get_ready_for_200_a_barrel/o9v2ejz/
