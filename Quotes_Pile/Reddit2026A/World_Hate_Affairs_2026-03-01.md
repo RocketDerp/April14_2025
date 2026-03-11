@@ -970,6 +970,8 @@ JD Vance Fandom, MAGA_FANDOM on Reddit. Crying out for more content creation of 
 
 https://old.reddit.com/r/PublicFreakout/comments/1rqocbr/israeli_settlers_have_poured_cement_over_water/o9tmru5/
 
+The front-page posting on Reddit is by 8-month account https://old.reddit.com/user/Used_Series3373
+
 https://old.reddit.com/r/PublicFreakout/comments/1rqocbr/israeli_settlers_have_poured_cement_over_water/o9tm7v7/
 
 https://old.reddit.com/r/PublicFreakout/comments/1rqocbr/israeli_settlers_have_poured_cement_over_water/o9tnc4z/
