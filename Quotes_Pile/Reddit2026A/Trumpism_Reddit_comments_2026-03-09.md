@@ -738,5 +738,10 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1rqxfrr/when_clown_shoes_go
 
 1 month Reddit account. This is White House fandom, getting images out of the oval office as "content" on high speed information systems. FANATICS_FANS_OF_CLOWNS_FANS_OF_MAGA_CLOWNING Instead of addressing the anti-intellectual attitudes in USA, people are engaging the entertainment that reality TV star "The Apprentice" super star content provided. A society of commenting media addicts following a television media addiction leader. Observe that the Reddit posting title is a Twitter fandom, brain rot Tweet fandom, and the title of the posting does not provide specifics, is generic clickbait style - created by Reddit users and upvoted by anti-intellectual users who are joke-washing the White House. Avoiding relevant serious nonfiction and removing Trump.
 
+https://old.reddit.com/r/explainitpeter/comments/1rqywy5/found_this_on_fb_with_of_course_zero_context_can/o9vqupi/
 
+<img width="1881" height="1404" alt="Screenshot from 2026-03-11 11-29-33" src="https://github.com/user-attachments/assets/bf38dde9-ad76-442f-9f90-eeed9a763189" />
 
+TRICKLE_DOWN_TALKING_POINTS_TO_SOCIETY "Operation Matthew 4:19" GAMERS_SIMULACRA ... CULT_INDOCTRINATION BRAIN_ROT_LEFT_RIGHT_LIB_CON_NAME_AVOIDANCE BRAIN_ROT_SOCIETY_47
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mgsjhqg3fk2k https://autistics.life/@RoundSparrow/116211974896109466 }    
