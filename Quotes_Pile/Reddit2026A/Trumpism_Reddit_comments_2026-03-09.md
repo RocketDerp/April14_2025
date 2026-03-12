@@ -825,3 +825,11 @@ Surkov won since year 2013. MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA
 https://old.reddit.com/r/MurderedByWords/comments/1rs3m8j/the_mysterious_8th_founding_father/oa43op8/
 
 BRAIN_ROT_SOCIETY_47
+
+https://old.reddit.com/r/TwoXChromosomes/comments/1rs2fqq/palantir_ceo_thinks_his_ai_technology_will_lessen/oa3uo91/
+
+SURKOV_WARFARE
+
+https://old.reddit.com/r/TwoXChromosomes/comments/1rs2fqq/palantir_ceo_thinks_his_ai_technology_will_lessen/oa3ut5o/
+
+TECH_LUST_TECH_LOVERS
