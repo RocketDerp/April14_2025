@@ -775,3 +775,7 @@ https://old.reddit.com/r/worldnews/comments/1rrbsq9/iran_says_its_ready_for_a_lo
 https://old.reddit.com/r/politics/comments/1rrn5c2/trump_79_admits_he_was_falling_asleep_during_war/oa0mt7k/
 
 Top most popular upvoted comment. AMERICANS_HATE_AMERICANS DEFLECTION_FROM_BILLIONAIRES_AND_PUTINISM REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING no call for CALL_FOR_MENTAL_HEALTH_NATIONAL_RESCUE to cults or brainwashing. Anti-intellectual MAGA values. REPUBLICANS_LEAD_WITH_IGNORANCE_IDEAS_AND_FOLLOWERS_REPLY_WITH_IGNORANCE
+
+https://old.reddit.com/r/politics/comments/1rrn5c2/trump_79_admits_he_was_falling_asleep_during_war/oa0oj7s/
+
+2nd most popular upvoted comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING this is the fandom. No leader in world history has ever been such an entertainer for fandoms. There is always crowd gathered on media devices for the reality TV star appearance and media content. NAME_CALLING_INSULT_MOCKERY_FOLLOWERS_OF_LEADER_DONALD_TRUMP_SHALLOWNESS_VALUES
