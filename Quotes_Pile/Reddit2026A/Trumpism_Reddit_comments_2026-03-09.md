@@ -779,3 +779,8 @@ Top most popular upvoted comment. AMERICANS_HATE_AMERICANS DEFLECTION_FROM_BILLI
 https://old.reddit.com/r/politics/comments/1rrn5c2/trump_79_admits_he_was_falling_asleep_during_war/oa0oj7s/
 
 2nd most popular upvoted comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING this is the fandom. No leader in world history has ever been such an entertainer for fandoms. There is always crowd gathered on media devices for the reality TV star appearance and media content. NAME_CALLING_INSULT_MOCKERY_FOLLOWERS_OF_LEADER_DONALD_TRUMP_SHALLOWNESS_VALUES
+
+https://old.reddit.com/r/politics/comments/1rrn5c2/trump_79_admits_he_was_falling_asleep_during_war/oa0nsvu/
+
+ENTERTAINED_JUST_PASSIVELY_WATCHING_UNTIL_DEATH_NO_SOCIAL_MEDIA_UPRISING_WHILE_ALIVE
+
