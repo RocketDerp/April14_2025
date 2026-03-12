@@ -809,3 +809,7 @@ Most-popular upvoted comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWI
 https://old.reddit.com/r/clevercomebacks/comments/1rrzc0p/the_reason_for_his_attack_was_the_possibility_of/oa37yn2/
 
 Most-popular upvoted comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING parroting the programmed MAGA talking points. REMEMBER_THE_PROGRAM_IDEAS_BILLIONAIRES_FED_REDDIT_AUDIENCE
+
+https://old.reddit.com/r/clevercomebacks/comments/1rrzc0p/the_reason_for_his_attack_was_the_possibility_of/oa37l1d/
+
+4 month Reddit account. 2nd most popular upvoted comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT commenting instead of calling for a Reddit blackout, We The People government. PRIORITIES_OF_THE_99_PERCENT_COMMENTING_MEDIA
