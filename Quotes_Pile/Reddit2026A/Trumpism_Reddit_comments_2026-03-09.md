@@ -833,3 +833,7 @@ SURKOV_WARFARE
 https://old.reddit.com/r/TwoXChromosomes/comments/1rs2fqq/palantir_ceo_thinks_his_ai_technology_will_lessen/oa3ut5o/
 
 TECH_LUST_TECH_LOVERS
+
+https://old.reddit.com/r/PopularCultureZone/comments/1rrzsge/can_some_please_explain_this_to_me/oa39j81/
+
+2 month Reddit account. Look at the "Popular Culture Zone" headlines on /r/All - clickbait. Look at the comments. Anti-intellectual. Brain rot. Trump is a media star, a media celebrity. Trump is on the front page of Reddit day in and day out, day and night, since June 16, 2015 as a source of entertainment. NOT_GOOD_ENOUGH nonfiction serious authors are not good enough to get on the same page, low-effort commenting is what people desire. Dr. Bandy X Lee ignored since year 2017. PRIORITIES_OF_THE_99_PERCENT_COMMENTING_MEDIA the "Woke" that people ignore is Neil Postman's nonfiction, being "Media Woke", James Joyce "Wake".
