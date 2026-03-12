@@ -1759,3 +1759,12 @@ Games have had A.I. for a long time
 https://old.reddit.com/r/CuratedTumblr/comments/1rmicf3/aisober/
 
 The ELZIA effect goes back to 1960's.
+
+&nbsp;
+
+# Connecting messages, Blacklists
+
+"We’re All Shadow Banned Now"   
+17,867 views  February 23, 2026   
+
+https://www.youtube.com/watch?v=vKuxQycuJe4   
