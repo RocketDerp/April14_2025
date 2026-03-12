@@ -760,3 +760,6 @@ https://old.reddit.com/r/news/comments/1rr6s29/pentagon_tells_congress_first_wee
 
 Top most popular upvoted comment. Joke material, social media "engagement questions". REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING This is entertainment to Reddit media cults.
 
+https://old.reddit.com/r/sportsgossips/comments/1rr9dol/donald_trump_has_completely_and_totally_endorsed/o9xwz3h/
+
+SURKOV_MONOMYTH REALITY_KREMLIN  
