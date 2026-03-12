@@ -821,3 +821,7 @@ Describing but not resisting. Like they are new reporter just describing the sit
 https://old.reddit.com/r/MurderedByWords/comments/1rs3m8j/the_mysterious_8th_founding_father/oa474c9/
 
 Surkov won since year 2013. MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL
+
+https://old.reddit.com/r/MurderedByWords/comments/1rs3m8j/the_mysterious_8th_founding_father/oa43op8/
+
+BRAIN_ROT_SOCIETY_47
