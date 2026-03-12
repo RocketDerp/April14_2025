@@ -265,3 +265,8 @@ https://old.reddit.com/r/clevercomebacks/comments/1rqz1yy/trump_open_to_cuba_tak
 People don't believe reality because they consume so much fiction. Reddit is a cult of fiction, fandom of Donald Trump's shit-postings and shit-commenting.
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mgsp5lzwg22l https://autistics.life/@RoundSparrow/116212415112445925 }    
+
+https://old.reddit.com/r/AdviceAnimals/comments/1rrf38t/start_all_the_wars_you_want_you_murderous_traitor/o9z3ysp/
+
+This entire posting is saying "start all the wars you want", IGNORANCE_CELEBRATIONS anti-intellectual pro-war bullshit. There is so much brain rot on social media that people think is sarcasm and satire when it is straight-up mind-fuck programming. "start all the wars you want!" - fucking murder people with military green light messaging!
+
