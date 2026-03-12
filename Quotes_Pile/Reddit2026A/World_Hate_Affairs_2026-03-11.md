@@ -27,3 +27,5 @@ https://old.reddit.com/r/NewIran/comments/1rrbgn7/this_exchange_should_tell_you_
 https://old.reddit.com/r/NewIran/comments/1rrbgn7/this_exchange_should_tell_you_everything_you_need/o9yeko8/
 
 https://old.reddit.com/r/NewIran/comments/1rrbgn7/this_exchange_should_tell_you_everything_you_need/o9yiopi/
+
+https://old.reddit.com/r/NewIran/comments/1rr66w7/rnewiran_not_showing_up_in_searches/o9xf5w3/
