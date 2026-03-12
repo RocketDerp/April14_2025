@@ -270,3 +270,6 @@ https://old.reddit.com/r/AdviceAnimals/comments/1rrf38t/start_all_the_wars_you_w
 
 This entire posting is saying "start all the wars you want", IGNORANCE_CELEBRATIONS anti-intellectual pro-war bullshit. There is so much brain rot on social media that people think is sarcasm and satire when it is straight-up mind-fuck programming. "start all the wars you want!" - fucking murder people with military green light messaging!
 
+https://old.reddit.com/r/PoliticalHumor/comments/1rruqqn/lil_marco_getting_mad_about_trumps_xxxl_husky/oa2p12t/
+
+Reddit audience is attracted to this White House image, Oval Office image. It is a fandom of shit-commenting and shit-posting. It isn't funny, there is no humor in this, it is celebration of ignorance, celebrating people who promote ignorance. This isn't resisting Trumpism and MAGA. ATTRACTION_TO_SHIT_CONTENT_ENSHIT_BY_DESIRE
