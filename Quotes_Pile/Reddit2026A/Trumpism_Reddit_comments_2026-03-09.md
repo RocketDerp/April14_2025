@@ -767,3 +767,7 @@ SURKOV_MONOMYTH REALITY_KREMLIN
 https://old.reddit.com/r/sportsgossips/comments/1rr9dol/donald_trump_has_completely_and_totally_endorsed/o9xx2s4/
 
 TOXIC_POPULARITY 
+
+https://old.reddit.com/r/worldnews/comments/1rrbsq9/iran_says_its_ready_for_a_long_war_that_would/o9yn1ka/
+
+26 day Reddit account.
