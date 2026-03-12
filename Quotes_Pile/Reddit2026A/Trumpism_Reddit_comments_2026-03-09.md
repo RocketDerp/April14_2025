@@ -841,3 +841,7 @@ https://old.reddit.com/r/PopularCultureZone/comments/1rrzsge/can_some_please_exp
 https://old.reddit.com/r/PopularCultureZone/comments/1rrzsge/can_some_please_explain_this_to_me/oa3tz1q/
 
 Reddit users will not follow and quote a woman, Dr. Bandy X Lee. Since year 2017. AVOIDED_DR_BANDY_X_LEE_PUBLIC_WRITINGS and Jen Senko, another woman. https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad Reddit and Bluesky users will not repeat and quote and link MORE_THAN_EPSTEIN_NAME_DROPS
+
+https://old.reddit.com/r/politics/comments/1rry0ft/this_should_be_illegal_senate_gop_uses_ai/oa2ygkd/
+
+SOCIAL_MEDIA_GANGS TOXIC_POPULARITY
