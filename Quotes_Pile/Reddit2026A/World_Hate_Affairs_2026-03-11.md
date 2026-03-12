@@ -31,3 +31,6 @@ https://old.reddit.com/r/NewIran/comments/1rrbgn7/this_exchange_should_tell_you_
 https://old.reddit.com/r/NewIran/comments/1rr66w7/rnewiran_not_showing_up_in_searches/o9xf5w3/
 
 https://old.reddit.com/r/worldnews/comments/1rrbsq9/iran_says_its_ready_for_a_long_war_that_would/o9ykvb8/
+
+https://old.reddit.com/r/worldnews/comments/1rrbsq9/iran_says_its_ready_for_a_long_war_that_would/o9ynxln/
+
