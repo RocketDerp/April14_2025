@@ -784,3 +784,6 @@ https://old.reddit.com/r/politics/comments/1rrn5c2/trump_79_admits_he_was_fallin
 
 ENTERTAINED_JUST_PASSIVELY_WATCHING_UNTIL_DEATH_NO_SOCIAL_MEDIA_UPRISING_WHILE_ALIVE
 
+https://old.reddit.com/r/politics/comments/1rrn5c2/trump_79_admits_he_was_falling_asleep_during_war/oa0skuq/
+
+Reddit fandom of Trump content, as programmed by billionaires Rupert Murdoch, Putin, Elon Musk, etc. REMEMBER_THE_PROGRAM_IDEAS_BILLIONAIRES_FED_REDDIT_AUDIENCE
