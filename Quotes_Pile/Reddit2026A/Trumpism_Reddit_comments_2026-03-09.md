@@ -805,3 +805,7 @@ Most-popular upvoted comment. MAGA_FANDOM of Trump likes to imagine crimes that 
 https://old.reddit.com/r/technology/comments/1rs00dw/palantir_ceo_makes_shocking_confession_on/oa3coco/
 
 Most-popular upvoted comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING He is playing the SURKOV_MONOMYTH with inversions. SYMBOLISM_INVERSION_MANIPULATION to SUBVERTING_EXPECTATIONS
+
+https://old.reddit.com/r/clevercomebacks/comments/1rrzc0p/the_reason_for_his_attack_was_the_possibility_of/oa37yn2/
+
+Most-popular upvoted comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING parroting the programmed MAGA talking points. REMEMBER_THE_PROGRAM_IDEAS_BILLIONAIRES_FED_REDDIT_AUDIENCE
