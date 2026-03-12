@@ -802,3 +802,6 @@ https://old.reddit.com/r/ProgressiveHQ/comments/1rrvt49/false_flag_incoming_be_r
 
 Most-popular upvoted comment. MAGA_FANDOM of Trump likes to imagine crimes that never happened. Such as immigrants doing crimes. MASS_HALLUCINATIONS_SEPTEMBER_YEAR_2014_PUBLISHED - and again observe the avoidance of mental health books from Dr. Bandy X Lee in Reddit commenting community. Observe the avoidance of any call for Reddit media blackout, Reddit media protest uprising against MAGA and Trump... because Reddit end-users are media cults, fandoms of mockery and mocking as entertainment and amusement. Neil Postman's 1985 book "Amusing Ourselves To Death" explains Reddit March 2026 fandom behaviors.
 
+https://old.reddit.com/r/technology/comments/1rs00dw/palantir_ceo_makes_shocking_confession_on/oa3coco/
+
+Most-popular upvoted comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING He is playing the SURKOV_MONOMYTH with inversions. SYMBOLISM_INVERSION_MANIPULATION to SUBVERTING_EXPECTATIONS
