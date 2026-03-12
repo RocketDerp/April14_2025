@@ -12,3 +12,6 @@ In year 1954, we had enough powered travel and enough organized communications t
 
 * “Joyce is, in the Wake, making his own Altamira cave drawings of the entire history of the human mind, in terms of its basic gestures and postures during all the phases of human culture and technology. As his title indicates, he saw that the wake of human progress can disappear again into the night of sacral or auditory man. The Finn cycle of tribal institutions can return in the electric age, but if again, then let’s make it a wake or awake or both. **Joyce could see no advantage in our remaining locked up in each cultural cycle as in a trance or dream**. He discovered the means of living simultaneously in all cultural modes while quite conscious.” — Marshall McLuhan. University of Toronto. March 1967. https://www.theMediumIstheMassAge.com/the-book/
 
+https://old.reddit.com/r/worldnews/comments/1rr78n9/outrage_in_gaza_as_hamas_kills_civilians_in/o9xvpdk/
+
+NOT_GOOD_ENOUGH Malala since year 2013. Since her October 8, 2013 book publication, the world has not come together in balancing the male aggression in the world with women's education and free thinking. SEE_ALSO https://GitHub.com/RocketDerp/April14_2025/blob/main/PostMalala/Marriage/World_Malala_Timeline_Year_2012.md
