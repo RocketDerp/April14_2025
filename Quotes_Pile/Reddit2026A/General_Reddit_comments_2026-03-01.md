@@ -241,3 +241,9 @@ The photo is fake. But see the 28-day Reddit account https://old.reddit.com/user
 https://old.reddit.com/r/nba/comments/1rr65au/the_reaction_to_bams_83point_game_is_a_perfect/o9xdv4a/
 
 Sports fandoms. GAMERS_SIMULACRA SOCIAL_CULT_HATE_WATCHING_FANDOM   
+
+https://old.reddit.com/r/OldSchoolCool/comments/1rs0zfo/kurt_cobain_eating_brownie_snl_1993_charles/oa45f5p/
+
+MEDIA_ECOLOGY_OBSERVATION
+
+* “With the arrival of electric technology, man has extended, or set outside himself, a live model of the central nervous system itself. To the degree that this is so, it is a development that suggests a desperate suicidal autoamputation, as if the central nervous system could no longer depend on the physical organs to be protective buffers against the slings and arrows of outrageous mechanism.” ― Marshall McLuhan, Understanding Media: The Extensions of Man. Year 1964
