@@ -817,3 +817,7 @@ https://old.reddit.com/r/clevercomebacks/comments/1rrzc0p/the_reason_for_his_att
 https://old.reddit.com/r/clevercomebacks/comments/1rrzc0p/the_reason_for_his_attack_was_the_possibility_of/oa3abw6/
 
 Describing but not resisting. Like they are new reporter just describing the situation. ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING
+
+https://old.reddit.com/r/MurderedByWords/comments/1rs3m8j/the_mysterious_8th_founding_father/oa474c9/
+
+Surkov won since year 2013. MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL
