@@ -787,3 +787,5 @@ ENTERTAINED_JUST_PASSIVELY_WATCHING_UNTIL_DEATH_NO_SOCIAL_MEDIA_UPRISING_WHILE_A
 https://old.reddit.com/r/politics/comments/1rrn5c2/trump_79_admits_he_was_falling_asleep_during_war/oa0skuq/
 
 Reddit fandom of Trump content, as programmed by billionaires Rupert Murdoch, Putin, Elon Musk, etc. REMEMBER_THE_PROGRAM_IDEAS_BILLIONAIRES_FED_REDDIT_AUDIENCE
+
+* "The fact that the stupid person is often stubborn must not blind us to the fact that he is not independent. In conversation with him, one virtually feels that one is dealing not at all with him as a person, but with slogans, catchwords, and the like that have taken possession of him." - https://fee.org/articles/dietrich-bonhoeffer-on-the-stupidity-that-led-to-hitler-s-third-reich/
