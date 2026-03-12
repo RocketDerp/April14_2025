@@ -794,3 +794,6 @@ https://old.reddit.com/r/LeopardsAteMyFace/comments/1rrty7h/fox_news_trump_sudde
 
 "will never learn". Anti-intellectual, anti-education, anti-Malala. Celebration of ignorance on Reddit. GIVE_UP_ANTI_EDUCATION_ANTI_TEACH_ANTI_PROGRESS Reddit is a factory of brain rot.
 
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1rrty7h/fox_news_trump_suddenly_seems_anxious_to_end_the/oa20ta7/
+
+SELF_HARM_USA do-nothing, let Trump continue as he has for over a decade and let ignorance rule the USA. ROUTINE_NO_NEED_TO_RESIST_OR_ORGANIZE_INTELLECTUAL_UPRISING
