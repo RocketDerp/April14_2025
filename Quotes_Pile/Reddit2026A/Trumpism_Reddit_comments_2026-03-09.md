@@ -797,3 +797,8 @@ https://old.reddit.com/r/LeopardsAteMyFace/comments/1rrty7h/fox_news_trump_sudde
 https://old.reddit.com/r/LeopardsAteMyFace/comments/1rrty7h/fox_news_trump_suddenly_seems_anxious_to_end_the/oa20ta7/
 
 SELF_HARM_USA do-nothing, let Trump continue as he has for over a decade and let ignorance rule the USA. ROUTINE_NO_NEED_TO_RESIST_OR_ORGANIZE_INTELLECTUAL_UPRISING
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1rrvt49/false_flag_incoming_be_ready_and_keep_an_eye_on/oa2es13/
+
+Most-popular upvoted comment. MAGA_FANDOM of Trump likes to imagine crimes that never happened. Such as immigrants doing crimes. MASS_HALLUCINATIONS_SEPTEMBER_YEAR_2014_PUBLISHED - and again observe the avoidance of mental health books from Dr. Bandy X Lee in Reddit commenting community. Observe the avoidance of any call for Reddit media blackout, Reddit media protest uprising against MAGA and Trump... because Reddit end-users are media cults, fandoms of mockery and mocking as entertainment and amusement. Neil Postman's 1985 book "Amusing Ourselves To Death" explains Reddit March 2026 fandom behaviors.
+
