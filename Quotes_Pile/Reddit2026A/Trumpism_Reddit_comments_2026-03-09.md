@@ -813,3 +813,7 @@ Most-popular upvoted comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWI
 https://old.reddit.com/r/clevercomebacks/comments/1rrzc0p/the_reason_for_his_attack_was_the_possibility_of/oa37l1d/
 
 4 month Reddit account. 2nd most popular upvoted comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT commenting instead of calling for a Reddit blackout, We The People government. PRIORITIES_OF_THE_99_PERCENT_COMMENTING_MEDIA
+
+https://old.reddit.com/r/clevercomebacks/comments/1rrzc0p/the_reason_for_his_attack_was_the_possibility_of/oa3abw6/
+
+Describing but not resisting. Like they are new reporter just describing the situation. ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING
