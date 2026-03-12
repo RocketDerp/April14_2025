@@ -17,3 +17,15 @@ https://en.wikipedia.org/wiki/Cops_(TV_program)
 "They have realised that we have become, as it were, too intoxicated with hyperreality. With, you know, Kojak and Supercops and so on, so now we just have shows like “COPS“, where you just go to Fort Worth and just film a bunch of cops being cops. That serves a good intelligent economic interest because you don’t pay cops much just for being cops. It’s not that lucrative, and it injects… well is it reality? Well it is compared only to this scale of hyperreality and only under the sign of being whatever can be simulated."   
 
 https://RickRoderick.org/308-baudrillard-fatal-strategies-1993/
+
+&nbsp;
+
+# IGNORANCE_CELEBRATIONS   
+
+I think this is Trumpism being described in year 1993. What Carl Sagan wrote in 1994, published in year 1995, "Celebration of Ignorance"
+
+MEASURING_BAR_SO_LOW    
+ARE_YOU_SMARTER_THAN_3RD_GRADE_STUDENT_FANDOM_MEASURING    
+
+It isn't exploitative as much as it is what he says early in the video.... "live had no plot". Anti MLK Jr. Willingness to die for ignorance and anti-education.   
+
