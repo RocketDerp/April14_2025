@@ -27,5 +27,5 @@ I think this is Trumpism being described in year 1993. What Carl Sagan wrote in 
 MEASURING_BAR_SO_LOW    
 ARE_YOU_SMARTER_THAN_3RD_GRADE_STUDENT_FANDOM_MEASURING    
 
-It isn't exploitative as much as it is what he says early in the video.... "live had no plot". Anti MLK Jr. Willingness to die for ignorance and anti-education.   
+It isn't exploitative as much as it is what he says early in the video.... https://youtu.be/5n0Tgt9vGoI?t=398 "life has no plot". Anti MLK Jr. Willingness to die for ignorance and anti-education.   
 
