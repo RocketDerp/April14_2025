@@ -37,3 +37,7 @@ https://old.reddit.com/r/worldnews/comments/1rrbsq9/iran_says_its_ready_for_a_lo
 https://old.reddit.com/r/politics/comments/1rrvzfj/john_fetterman_says_iran_girls_school_strike_is/oa2fi6g/
 
 Top most upvoted popular comment. Reactionary thinking. Leaders of hate message hate against girls and women, left vs. right brain rot, and the Reddit commenting audience upvotes hate. HATE_VS_HATE FAITH_IN_HATE this has been the MAGA USA pattern since year 2014. Surkov won. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING This is not resisting, this is eating out of the hands of hate.
+
+https://old.reddit.com/r/interestingasfuck/comments/1rrzjf3/massive_police_response_at_temple_in_detroit/oa39tva/
+
+LEVANT_MYTH_INVERTED
