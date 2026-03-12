@@ -763,3 +763,7 @@ Top most popular upvoted comment. Joke material, social media "engagement questi
 https://old.reddit.com/r/sportsgossips/comments/1rr9dol/donald_trump_has_completely_and_totally_endorsed/o9xwz3h/
 
 SURKOV_MONOMYTH REALITY_KREMLIN  
+
+https://old.reddit.com/r/sportsgossips/comments/1rr9dol/donald_trump_has_completely_and_totally_endorsed/o9xx2s4/
+
+TOXIC_POPULARITY 
