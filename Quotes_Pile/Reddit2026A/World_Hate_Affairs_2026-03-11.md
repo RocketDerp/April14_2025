@@ -15,3 +15,15 @@ In year 1954, we had enough powered travel and enough organized communications t
 https://old.reddit.com/r/worldnews/comments/1rr78n9/outrage_in_gaza_as_hamas_kills_civilians_in/o9xvpdk/
 
 NOT_GOOD_ENOUGH Malala since year 2013. Since her October 8, 2013 book publication, the world has not come together in balancing the male aggression in the world with women's education and free thinking. SEE_ALSO https://GitHub.com/RocketDerp/April14_2025/blob/main/PostMalala/Marriage/World_Malala_Timeline_Year_2012.md
+
+https://old.reddit.com/r/NewIran/comments/1rrbgn7/this_exchange_should_tell_you_everything_you_need/o9yc4w1/
+
+https://old.reddit.com/r/NewIran/comments/1rrbgn7/this_exchange_should_tell_you_everything_you_need/o9yf9o5/
+
+https://old.reddit.com/r/NewIran/comments/1rrbgn7/this_exchange_should_tell_you_everything_you_need/o9yefiv/
+
+https://old.reddit.com/r/NewIran/comments/1rrbgn7/this_exchange_should_tell_you_everything_you_need/o9ybldh/
+
+https://old.reddit.com/r/NewIran/comments/1rrbgn7/this_exchange_should_tell_you_everything_you_need/o9yeko8/
+
+https://old.reddit.com/r/NewIran/comments/1rrbgn7/this_exchange_should_tell_you_everything_you_need/o9yiopi/
