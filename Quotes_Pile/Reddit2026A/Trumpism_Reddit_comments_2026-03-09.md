@@ -905,3 +905,7 @@ Reddit commenting addicts race to this fresh /r/Politics posting on Reddit to ma
 https://old.reddit.com/r/politics/comments/1rsmh68/hegseth_blasts_cnn_the_sooner_david_ellison_takes/oa7to0y/
 
 EVERYTHING_IS_MEDIA_ECOLOGY
+
+https://old.reddit.com/r/news/comments/1rsraox/us_military_says_all_6_airmen_in_refueling/oa90nx3/
+
+4 month Reddit account. WE_THE_PEOPLE_MEDIA_COMMENTING
