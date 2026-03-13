@@ -893,3 +893,7 @@ https://old.reddit.com/r/stevehofstetter/comments/1rs6x0v/plot_twist_reality_is_
 https://old.reddit.com/r/politics/comments/1rskjfh/trump_outbursts_over_oil_shock_go_off_rails_as/oa7fy5z/
 
 Top most upvoted popular comment. ATTRACTION_TO_SHIT_CONTENT_ENSHIT_BY_DESIRE Attraction to Trump and avoidance of serious relevant nonfiction is the crisis. We The People are the crisis. Reddit community is not protesting with a social media blackout. Dr. Bandy X Lee nonfiction relevant books are not being quoted and repeated. The entertainment media values of calling Trump an idiot on electronic systems for over 10 years is what wrecked the USA.
+
+https://old.reddit.com/r/politics/comments/1rskjfh/trump_outbursts_over_oil_shock_go_off_rails_as/oa7g9q5/
+
+Entertainment panic, stage freight, being in the USA media spotlight. the Entire population commenting on media every hour of every day since year 2015. Media mania. MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL
