@@ -889,3 +889,7 @@ OBSERVE_MEDIA_AVOIDANCE_OF_RELEVANT_NONFICTION
 https://old.reddit.com/r/stevehofstetter/comments/1rs6x0v/plot_twist_reality_is_harsh/oa4vxwk/
 
 1 month Reddit account. REMEDIAL_LEARNING_TRUMP_PUTIN_INFORMATION_WARFARE_YEAR_2011_ONWARD
+
+https://old.reddit.com/r/politics/comments/1rskjfh/trump_outbursts_over_oil_shock_go_off_rails_as/oa7fy5z/
+
+Top most upvoted popular comment. ATTRACTION_TO_SHIT_CONTENT_ENSHIT_BY_DESIRE Attraction to Trump and avoidance of serious relevant nonfiction is the crisis. We The People are the crisis. Reddit community is not protesting with a social media blackout. Dr. Bandy X Lee nonfiction relevant books are not being quoted and repeated. The entertainment media values of calling Trump an idiot on electronic systems for over 10 years is what wrecked the USA.
