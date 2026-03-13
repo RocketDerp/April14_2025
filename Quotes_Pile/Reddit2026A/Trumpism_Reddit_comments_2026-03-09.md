@@ -945,3 +945,7 @@ https://old.reddit.com/r/MurderedByWords/comments/1rszw8o/pretend_she_died_in_a_
 https://old.reddit.com/r/MurderedByWords/comments/1rszw8o/pretend_she_died_in_a_school_shooting/oaay1t4/
 
 Reddit users fundamentally don't grasp entertainment impact on people's behavior. Team sports. FICTION_OUTSELLS_NONFICTION - people are far more engaged with fiction storytelling. Religion is science fiction magical stories about out-space planets Eden and Heaven with no proof or evidence, just a pattern of poetry and storytelling. Just like Star Wars 1977, Hamlet's Ghost, The Quran, The Bible. People don't enjoy taking real reality and comprehension seriously. Fiction is more popular.
+
+https://old.reddit.com/r/worldnews/comments/1rsztae/us_under_trump_stands_alone_against_un_womens/oaaym2z/
+
+Trump is popular with both men and women because ignorance is popular. Fox News does not bribe their audience with money, they give them fiction and pro-hate content. Used car salesmen are excellent fiction storytellers. MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL
