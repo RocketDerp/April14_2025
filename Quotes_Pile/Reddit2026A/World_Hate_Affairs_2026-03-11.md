@@ -149,3 +149,5 @@ https://old.reddit.com/r/worldnews/comments/1rsztae/us_under_trump_stands_alone_
 https://old.reddit.com/r/worldnews/comments/1rsztae/us_under_trump_stands_alone_against_un_womens/oaawlov/
 
 CHESS_1024D "chess, one-thousand twent-four d, as Surkov won since year 2013"... almost poetry line.
+
+https://old.reddit.com/r/PublicFreakout/comments/1rt059l/man_tracks_his_stolen_phone_and_confronts_the/oab5gp4/
