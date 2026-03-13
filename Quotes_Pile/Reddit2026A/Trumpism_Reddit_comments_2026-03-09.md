@@ -845,3 +845,8 @@ Reddit users will not follow and quote a woman, Dr. Bandy X Lee. Since year 2017
 https://old.reddit.com/r/politics/comments/1rry0ft/this_should_be_illegal_senate_gop_uses_ai/oa2ygkd/
 
 SOCIAL_MEDIA_GANGS TOXIC_POPULARITY
+
+https://old.reddit.com/r/politics/comments/1rry0ft/this_should_be_illegal_senate_gop_uses_ai/oa3v6lg/
+
+ANTI_REALITY Add to the bullshit, Reddit media audience wanting more fake. FOLLOWERS_OF_LEADER_TRUMP_ACTOR_ENTERTAINER_DONALD_TRUMP_FOLLOWERS FICTION_HARDER - Instead of organizing a Reddit social uprising, We The People asserting goodness, cravings are for following of Trump leadership. A FICTION_VS_FICTION warfare.
+
