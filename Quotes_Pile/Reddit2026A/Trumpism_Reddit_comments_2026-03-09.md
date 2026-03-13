@@ -873,3 +873,7 @@ Exactly what attracts media audiences in USA year 2026. ATTRACTION_TO_SHIT_CONTE
 https://old.reddit.com/r/stevehofstetter/comments/1rs6x0v/plot_twist_reality_is_harsh/oa50aj7/
 
 10 day Reddit account. Most popular upvoted comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT 
+
+https://old.reddit.com/r/stevehofstetter/comments/1rs6x0v/plot_twist_reality_is_harsh/oa4wr6o/
+
+All media platforms cover Trump constantly. Media mania abounds in the population. Anti-intellectual, a population of people all avoiding nonfiction books by Dr. Bandy X Lee. WHEN_THE_PEOPLE_HAVE_LOST_THE_ABILITY
