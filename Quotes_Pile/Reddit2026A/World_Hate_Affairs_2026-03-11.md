@@ -141,3 +141,8 @@ Promoting Dr. Bandy X Lee on Reddit media and Blueky media is good education for
 https://old.reddit.com/r/worldnews/comments/1rsztae/us_under_trump_stands_alone_against_un_womens/oab6gon/
 
 8 month Reddit account. Observe the avoidance. AVOIDED_DR_BANDY_X_LEE_PUBLIC_WRITINGS
+
+https://old.reddit.com/r/worldnews/comments/1rsztae/us_under_trump_stands_alone_against_un_womens/oaardo5/
+
+"celebrity", entertainer, content creator for Reddit. FOLLOWERS_OF_LEADER_TRUMP_ACTOR_ENTERTAINER_DONALD_TRUMP_FOLLOWERS But not just any content, ignorance is what Trump provides that makes him so popular on Reddit. Celebrating ignorance. Jen Senko's content is not popular on Reddit, but Trump is. Dr. Bandy X Lee's intelligent content is not popular on Reddit, but ignorance of Trump and MAGA and Musk is promoted constantly in shit-postings and shit-commenting.
+
