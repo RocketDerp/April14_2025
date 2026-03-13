@@ -95,3 +95,11 @@ https://old.reddit.com/r/UpliftingNews/comments/1rsjs21/china_says_it_will_donat
 https://old.reddit.com/r/UpliftingNews/comments/1rsjs21/china_says_it_will_donate_250000_to_families_of/oa7ie7g/
 
 Surkov won since year 2013. REMEDIAL_LEARNING_TRUMP_PUTIN_INFORMATION_WARFARE_YEAR_2011_ONWARD
+
+https://old.reddit.com/r/UpliftingNews/comments/1rsjs21/china_says_it_will_donate_250000_to_families_of/oa7vw2x/
+
+https://old.reddit.com/r/UpliftingNews/comments/1rsjs21/china_says_it_will_donate_250000_to_families_of/oa7xdt1/
+
+https://old.reddit.com/r/UpliftingNews/comments/1rsjs21/china_says_it_will_donate_250000_to_families_of/oa7px0d/
+
+"LMAO". Media addicts find school children being killed amusing topic. Always some angle of funny what Trump and Putin do. LIBERAL_LAUGHS_LIBERAL_TEARS_COMPULSIVE_MAGA_FOLLOWERS
