@@ -865,3 +865,7 @@ Never funny. None of this was funny. This is all symptoms of media mania. MEDIA_
 https://old.reddit.com/r/pics/comments/1rs9icu/president_trump_and_jake_paul_who_has_trumps_full/oa5c2ib/
 
 Internet Superstar of younger generation meets with the biggest media star of all human history. Low-effort Reddit commenting paved the way, taking Russia's IRA since year 2013, and turning all serious topics into jokes and memes. Celebration of ignorance and anti-intellectual content creations. FOLLOWERS_OF_LEADER_TRUMP_ACTOR_ENTERTAINER_DONALD_TRUMP_FOLLOWERS
+
+https://old.reddit.com/r/pics/comments/1rs9icu/president_trump_and_jake_paul_who_has_trumps_full/oa5dvnd/
+
+Exactly what attracts media audiences in USA year 2026. ATTRACTION_TO_SHIT_CONTENT_ENSHIT_BY_DESIRE
