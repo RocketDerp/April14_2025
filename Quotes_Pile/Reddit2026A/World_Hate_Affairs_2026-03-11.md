@@ -127,3 +127,7 @@ https://old.reddit.com/r/TwoXChromosomes/comments/1rsyzb5/only_us_votes_against_
 Why isn't the Reddit commenting community quoting and promoting woman Dr. Bandy X Lee relevant to Donald Trump's dangerous behaviors? ANSWER: People are not against ignorance that is popular in male leaders. Anti-Malala is anti-education anti-school anti-learning. Things in USA were not this bad before year 2013... the popularity of Twitter-thinking short-messages like this comment have come to dominate mindsets. High-speed delivery of information prized over deeper understanding and helping each other get on the same page of important topics.
 
 Ultimately the ignorance and abuse is a problem regardless of gender. WHEN_THE_PEOPLE_HAVE_LOST_THE_ABILITY
+
+https://old.reddit.com/r/TwoXChromosomes/comments/1rsyzb5/only_us_votes_against_womens_rights_document_at/oaapr67/
+
+Cracking jokes about MAGA and Trump, "Amusing Ourselves To Death" (1985 book by Neil Postman) is what social media users do. Attracted to jokers as leaders, entertainment fiction storytellers. AVOIDED_DR_BANDY_X_LEE_PUBLIC_WRITINGS
