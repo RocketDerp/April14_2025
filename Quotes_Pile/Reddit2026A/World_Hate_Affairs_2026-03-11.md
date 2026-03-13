@@ -64,5 +64,9 @@ Top of front page /r/All - there is no call for peace and learning THE_1954_EQUA
 
 https://old.reddit.com/r/news/comments/1rsjpz2/china_says_it_will_donate_250000_to_families_of/oa7ait8/
 
-TACTICAL_CLEVERNESS - and Reddit has cheered on this all as a source of entertainment. All this Trumpism since year 2015.
+TACTICAL_CLEVERNESS - and Reddit community has cheered on this all as a source of entertainment. All this Trumpism since year 2015.
+
+https://old.reddit.com/r/news/comments/1rsjpz2/china_says_it_will_donate_250000_to_families_of/oa7av32/
+
+DUMB_STUPID_IDIOT_MORON_RETARDED_OTHERS - why has Reddit community not had a blackout protest against Trump? Why is Reddit commenting creators not promoting nonfiction relevant books by Dr. Bandy X Lee over and over since year 2017? ANSWER: Media cult of mocking and celebrating ignorance as a form of media addiction.
 
