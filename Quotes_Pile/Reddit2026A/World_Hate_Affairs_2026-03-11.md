@@ -115,3 +115,7 @@ Observe the avoidance of off-Reddit URL, book quotes, author names.
 https://old.reddit.com/r/news/comments/1rsq3oh/thiel_brings_his_antichrist_lectures_to_the/oa8o5an/
 
 8 month Reddit account.
+
+https://old.reddit.com/r/news/comments/1rsq3oh/thiel_brings_his_antichrist_lectures_to_the/oa8m57y/
+
+LEVANT_MYTH_INVERTED
