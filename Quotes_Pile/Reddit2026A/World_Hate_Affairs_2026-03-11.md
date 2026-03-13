@@ -107,3 +107,7 @@ https://old.reddit.com/r/UpliftingNews/comments/1rsjs21/china_says_it_will_donat
 https://old.reddit.com/r/AskSocialists/comments/1rsjc2v/us_treasury_secretary_nearly_breaks_into_tears/oa871qp/
 
 25 day Reddit account. "LOL" BANAL_WASH_LAUGH_TRACK
+
+https://old.reddit.com/r/AskSocialists/comments/1rsjc2v/us_treasury_secretary_nearly_breaks_into_tears/oa7fuzp/
+
+Observe the avoidance of off-Reddit URL, book quotes, author names. 
