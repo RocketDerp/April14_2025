@@ -57,3 +57,8 @@ FAMILY_HONESTY People witness divorce and abusive parenting at every age. Parent
 https://old.reddit.com/r/PublicFreakout/comments/1rs9u3a/breaking_a_dubai_skyscraper_in_the_creek_harbour/oa5ejlz/
 
 ARTIFICIAL_REALITY
+
+https://old.reddit.com/r/pics/comments/1rshuil/message_to_trump_on_iranian_missile/oa6y3b9/
+
+Top of front page /r/All - there is no call for peace and learning THE_1954_EQUATION after two world wars. It is all entertainment for high-speed information addicts. Democracy, freedom, REDDIT_BLACKOUT is not being called for - rather the opposite. Addiction to amusement as described by Neil Postman in his 1985 book "Amusing Ourselves to Death". MASS_DEHUMANIZATION_POPULAR
+
