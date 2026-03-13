@@ -869,3 +869,7 @@ Internet Superstar of younger generation meets with the biggest media star of al
 https://old.reddit.com/r/pics/comments/1rs9icu/president_trump_and_jake_paul_who_has_trumps_full/oa5dvnd/
 
 Exactly what attracts media audiences in USA year 2026. ATTRACTION_TO_SHIT_CONTENT_ENSHIT_BY_DESIRE
+
+https://old.reddit.com/r/stevehofstetter/comments/1rs6x0v/plot_twist_reality_is_harsh/oa50aj7/
+
+10 day Reddit account. Most popular upvoted comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT 
