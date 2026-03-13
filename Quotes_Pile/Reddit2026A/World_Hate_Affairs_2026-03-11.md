@@ -103,3 +103,7 @@ https://old.reddit.com/r/UpliftingNews/comments/1rsjs21/china_says_it_will_donat
 https://old.reddit.com/r/UpliftingNews/comments/1rsjs21/china_says_it_will_donate_250000_to_families_of/oa7px0d/
 
 "LMAO". Media addicts find school children being killed amusing topic. Always some angle of funny what Trump and Putin do. LIBERAL_LAUGHS_LIBERAL_TEARS_COMPULSIVE_MAGA_FOLLOWERS
+
+https://old.reddit.com/r/AskSocialists/comments/1rsjc2v/us_treasury_secretary_nearly_breaks_into_tears/oa871qp/
+
+25 day Reddit account. "LOL" BANAL_WASH_LAUGH_TRACK
