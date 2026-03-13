@@ -931,3 +931,7 @@ https://old.reddit.com/r/worldnews/comments/1rswd2w/us_orders_2200_marines_on_th
 https://old.reddit.com/r/worldnews/comments/1rswd2w/us_orders_2200_marines_on_three_warships_to/oaa7m0g/
 
 3 month Reddit account.
+
+https://old.reddit.com/r/MurderedByWords/comments/1rszw8o/pretend_she_died_in_a_school_shooting/oaatmt3/
+
+MEDIA_ECOLOGY_OBSERVATION Fox News
