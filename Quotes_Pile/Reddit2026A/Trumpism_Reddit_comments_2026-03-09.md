@@ -897,3 +897,7 @@ Top most upvoted popular comment. ATTRACTION_TO_SHIT_CONTENT_ENSHIT_BY_DESIRE At
 https://old.reddit.com/r/politics/comments/1rskjfh/trump_outbursts_over_oil_shock_go_off_rails_as/oa7g9q5/
 
 Entertainment panic, stage freight, being in the USA media spotlight. the Entire population commenting on media every hour of every day since year 2015. Media mania. MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL
+
+https://old.reddit.com/r/politics/comments/1rskjfh/trump_outbursts_over_oil_shock_go_off_rails_as/oa7g10w/
+
+Reddit commenting addicts race to this fresh /r/Politics posting on Reddit to make these statements day in and day out. MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL All while avoiding nonfiction serious book on paper from Dr. Bandy X Lee published since October 3, 2017
