@@ -45,3 +45,7 @@ LEVANT_MYTH_INVERTED
 https://old.reddit.com/r/worldnews/comments/1rs826s/chile_marks_sharp_turn_to_the_right_as_new/oa4zr21/
 
 2 month Reddit account
+
+https://old.reddit.com/r/worldnews/comments/1rs5us7/netanyahu_says_new_irans_supreme_leader_cannot/oa4o8ti/
+
+29 day Reddit account.
