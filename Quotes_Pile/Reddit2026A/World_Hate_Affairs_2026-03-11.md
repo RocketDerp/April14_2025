@@ -111,3 +111,7 @@ https://old.reddit.com/r/AskSocialists/comments/1rsjc2v/us_treasury_secretary_ne
 https://old.reddit.com/r/AskSocialists/comments/1rsjc2v/us_treasury_secretary_nearly_breaks_into_tears/oa7fuzp/
 
 Observe the avoidance of off-Reddit URL, book quotes, author names. 
+
+https://old.reddit.com/r/news/comments/1rsq3oh/thiel_brings_his_antichrist_lectures_to_the/oa8o5an/
+
+8 month Reddit account.
