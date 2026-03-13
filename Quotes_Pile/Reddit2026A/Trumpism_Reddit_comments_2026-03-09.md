@@ -854,3 +854,6 @@ https://old.reddit.com/r/politics/comments/1rry0ft/this_should_be_illegal_senate
 
 Twitter-think tiny-short message patterns. Simplistic answers. HYPER_SIMPLE_TRIVIALIZE_BANAL_SELF_ONLY_CONCERN this is MAGA-thinking anti-intellectual brain rot mindsets.
 
+https://old.reddit.com/r/pics/comments/1rs7k8j/cbs_honors_the_dead/oa4xe3y/
+
+People joke away the real reality. ARTIFICIAL_REALITY   
