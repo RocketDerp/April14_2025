@@ -53,3 +53,7 @@ https://old.reddit.com/r/worldnews/comments/1rs5us7/netanyahu_says_new_irans_sup
 https://old.reddit.com/r/mildlyinfuriating/comments/1rs5oyv/living_with_parents_that_never_admit_when_they/oa4o534/
 
 FAMILY_HONESTY People witness divorce and abusive parenting at every age. Parents at age 28 are avoiding Dr. Bandy X Lee's nonfiction while Donald Trump rules their nation. Afghanistan society has Taliban ruling over children's life that Malala is documenting. People do not want to address hate a common human problem and discuss every conversation like it is unique to one gender, unique to one nation, unique to one age group. The clergy is toxic.
+
+https://old.reddit.com/r/PublicFreakout/comments/1rs9u3a/breaking_a_dubai_skyscraper_in_the_creek_harbour/oa5ejlz/
+
+ARTIFICIAL_REALITY
