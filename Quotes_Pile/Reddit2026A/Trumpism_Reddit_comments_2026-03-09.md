@@ -857,3 +857,8 @@ Twitter-think tiny-short message patterns. Simplistic answers. HYPER_SIMPLE_TRIV
 https://old.reddit.com/r/pics/comments/1rs7k8j/cbs_honors_the_dead/oa4xe3y/
 
 People joke away the real reality. ARTIFICIAL_REALITY   
+
+https://old.reddit.com/r/PoliticalHumor/comments/1rs1vry/its_bidens_fault/oa3sje9/
+
+Never funny. None of this was funny. This is all symptoms of media mania. MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL JOKE_COMEDY_POWER_IS_MAGA_IS_TRUMP_IS_SURKOV
+
