@@ -62,3 +62,7 @@ https://old.reddit.com/r/pics/comments/1rshuil/message_to_trump_on_iranian_missi
 
 Top of front page /r/All - there is no call for peace and learning THE_1954_EQUATION after two world wars. It is all entertainment for high-speed information addicts. Democracy, freedom, REDDIT_BLACKOUT is not being called for - rather the opposite. Addiction to amusement as described by Neil Postman in his 1985 book "Amusing Ourselves to Death". MASS_DEHUMANIZATION_POPULAR
 
+https://old.reddit.com/r/news/comments/1rsjpz2/china_says_it_will_donate_250000_to_families_of/oa7ait8/
+
+TACTICAL_CLEVERNESS - and Reddit has cheered on this all as a source of entertainment. All this Trumpism since year 2015.
+
