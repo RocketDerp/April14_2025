@@ -95,3 +95,13 @@ https://old.reddit.com/r/interestingasfuck/comments/1m81i49/south_park_at_it_onc
 <img width="1209" height="1033" alt="image" src="https://github.com/user-attachments/assets/cb0f3497-4504-448f-81b8-0673a4f12a33" />
 
 CORE_CONCERNS WAKE_REALITY_CORE
+
+ToDo: My python app won't capture NSFW posts.
+
+"Trump is beyond parody ...
+
+He's even worse than what you can joke about.
+
+It would be a stain on humanity if we just allow him to run out the clock instead of standing up to him and his enablers"
+
+Thursday, July 24, 2025   https://old.reddit.com/user/The_Fiji_Water   
