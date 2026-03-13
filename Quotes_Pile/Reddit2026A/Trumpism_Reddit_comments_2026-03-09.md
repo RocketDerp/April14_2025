@@ -942,3 +942,6 @@ https://old.reddit.com/r/MurderedByWords/comments/1rszw8o/pretend_she_died_in_a_
 
 https://old.reddit.com/r/MurderedByWords/comments/1rszw8o/pretend_she_died_in_a_school_shooting/oaav5qq/
 
+https://old.reddit.com/r/MurderedByWords/comments/1rszw8o/pretend_she_died_in_a_school_shooting/oaay1t4/
+
+Reddit users fundamentally don't grasp entertainment impact on people's behavior. Team sports. FICTION_OUTSELLS_NONFICTION - people are far more engaged with fiction storytelling. Religion is science fiction magical stories about out-space planets Eden and Heaven with no proof or evidence, just a pattern of poetry and storytelling. Just like Star Wars 1977, Hamlet's Ghost, The Quran, The Bible. People don't enjoy taking real reality and comprehension seriously. Fiction is more popular.
