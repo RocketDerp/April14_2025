@@ -77,3 +77,7 @@ That's because people care so much more about entertainment providers. Anti-Mala
 https://old.reddit.com/r/news/comments/1rsjpz2/china_says_it_will_donate_250000_to_families_of/oa7dr3c/
 
 And the anti-intellectual commenting community on Reddit and Bluesky, will continue to avoid promoting nonfiction relevant books (on paper) by Dr. Bandy X Lee with 27 people since October 3, 2017. MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL
+
+https://old.reddit.com/r/news/comments/1rsjpz2/china_says_it_will_donate_250000_to_families_of/oa7apse/
+
+SURKOVIAN_CHESS
