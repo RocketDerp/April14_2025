@@ -131,3 +131,9 @@ Ultimately the ignorance and abuse is a problem regardless of gender. WHEN_THE_P
 https://old.reddit.com/r/TwoXChromosomes/comments/1rsyzb5/only_us_votes_against_womens_rights_document_at/oaapr67/
 
 Cracking jokes about MAGA and Trump, "Amusing Ourselves To Death" (1985 book by Neil Postman) is what social media users do. Attracted to jokers as leaders, entertainment fiction storytellers. AVOIDED_DR_BANDY_X_LEE_PUBLIC_WRITINGS
+
+https://old.reddit.com/r/worldnews/comments/1rsztae/us_under_trump_stands_alone_against_un_womens/oaaqtw8/
+
+But NOT disgusted enough to recognize Donald Trump is a product of Fox News brain rot. Observe people are so disgusted they are not using Reddit media to 1) REDDIT_BLACKOUT 2) Promote Jen Senko's 2015 nonfiction film about brainwashing and billionaire media systems. 3) Promote Dr. Bandy X Lee's 27 leaders in educating the public. AVOIDED_DR_BANDY_X_LEE_PUBLIC_WRITINGS
+
+Promoting Dr. Bandy X Lee on Reddit media and Blueky media is good education for children. It is good education for adults. It addresses Putin and Trump style leadership. It gets everyone on the same page and out of all the commenting addictions and face up that Trump is excellent at creating media content and getting in front of cameras. Media addiction to trash content, that MAGA and Trump thrive on, can be seen if you look for the avoidance of asserting and repeating relevant important nonfiction.
