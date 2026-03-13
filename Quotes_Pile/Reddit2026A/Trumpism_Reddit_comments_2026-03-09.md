@@ -913,3 +913,9 @@ https://old.reddit.com/r/news/comments/1rsraox/us_military_says_all_6_airmen_in_
 https://old.reddit.com/r/news/comments/1rsraox/us_military_says_all_6_airmen_in_refueling/oa8wb0k/
 
 4 month Reddit account. REMEDIAL_LEARNING_TRUMP_PUTIN_INFORMATION_WARFARE_YEAR_2011_ONWARD Alas, these types of comments do not educate or teach any details or organize any same-page focus.
+
+https://old.reddit.com/r/PoliticalHumor/comments/1rsu31d/maga_doesnt_worship_god_they_worship_trump/oa9gdwt/
+
+Inverted. LEVANT_MYTH_INVERTED
+
+Social post { https://autistics.life/@RoundSparrow/116223469092412547 https://bsky.app/profile/roundsparrow.bsky.social/post/3mgxmuxrtg22i }    
