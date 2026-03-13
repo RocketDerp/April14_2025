@@ -901,3 +901,7 @@ Entertainment panic, stage freight, being in the USA media spotlight. the Entire
 https://old.reddit.com/r/politics/comments/1rskjfh/trump_outbursts_over_oil_shock_go_off_rails_as/oa7g10w/
 
 Reddit commenting addicts race to this fresh /r/Politics posting on Reddit to make these statements day in and day out. MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL All while avoiding nonfiction serious book on paper from Dr. Bandy X Lee published since October 3, 2017
+
+https://old.reddit.com/r/politics/comments/1rsmh68/hegseth_blasts_cnn_the_sooner_david_ellison_takes/oa7to0y/
+
+EVERYTHING_IS_MEDIA_ECOLOGY
