@@ -919,3 +919,7 @@ https://old.reddit.com/r/PoliticalHumor/comments/1rsu31d/maga_doesnt_worship_god
 Inverted. LEVANT_MYTH_INVERTED
 
 Social post { https://autistics.life/@RoundSparrow/116223469092412547 https://bsky.app/profile/roundsparrow.bsky.social/post/3mgxmuxrtg22i }    
+
+https://old.reddit.com/r/worldnews/comments/1rswd2w/us_orders_2200_marines_on_three_warships_to/oaa2cu8/
+
+REMEDIAL_LEARNING_TRUMP_PUTIN_INFORMATION_WARFARE_YEAR_2011_ONWARD
