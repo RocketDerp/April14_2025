@@ -89,3 +89,9 @@ SURKOVIAN_CHESS
 https://old.reddit.com/r/news/comments/1rsjpz2/china_says_it_will_donate_250000_to_families_of/oa7ama1/
 
 WE_THE_PEOPLE_MEDIA_COMMENTING - low-information Reddit upvoting society. Every minute of every day mocking away goodness for amusement. Anti-intellectual society USA. https://en.wikipedia.org/wiki/Low_information_voter
+
+https://old.reddit.com/r/UpliftingNews/comments/1rsjs21/china_says_it_will_donate_250000_to_families_of/oa8077f/
+
+https://old.reddit.com/r/UpliftingNews/comments/1rsjs21/china_says_it_will_donate_250000_to_families_of/oa7ie7g/
+
+Surkov won since year 2013. REMEDIAL_LEARNING_TRUMP_PUTIN_INFORMATION_WARFARE_YEAR_2011_ONWARD
