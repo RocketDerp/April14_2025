@@ -81,3 +81,7 @@ And the anti-intellectual commenting community on Reddit and Bluesky, will conti
 https://old.reddit.com/r/news/comments/1rsjpz2/china_says_it_will_donate_250000_to_families_of/oa7apse/
 
 SURKOVIAN_CHESS
+
+https://old.reddit.com/r/news/comments/1rsjpz2/china_says_it_will_donate_250000_to_families_of/oa7cr47/
+
+SURKOVIAN_CHESS
