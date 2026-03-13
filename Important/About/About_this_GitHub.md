@@ -91,3 +91,16 @@ https://old.reddit.com/r/Cultreddit/comments/a1pqd/a_community_for_3_minutes/hxx
 November 6, 2009 creation of /r/CultReddit to discuss media cult behaviors. MEDIA_CULTS MEDIA_CULTS_ADDICTIVE_FICTION part of my Arab Spring Internet research ARAB_SPRING_2010 
 
 Social post { https://autistics.life/@RoundSparrow/116133269646028166 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfpkzdo7w22m }   
+
+&nbsp;
+
+&nbsp;
+
+# Donald Trump is an addict to Twitter Television
+
+January 5, 2018     
+https://www.politico.com/magazine/story/2018/01/05/trump-media-feedback-loop-216248/    
+
+* "But here’s what is shocking: After comparing the president’s tweets with Fox's coverage every day since October, I can tell you that the Fox-Trump feedback loop is happening far more often than you think. There is no strategy to Trump’s Twitter feed; **he is not trying to distract the media. He is being distracted.** He darts with quark-like speed from topic to topic in his tweets because that’s how cable news works." - January 5, 2018. Matthew Gertz
+
+Donald Trump is a television addict leading a nation of television addicts. Neil Postman's 1985 nonfiction book explains the entire MAGA movement, Trumpism, decline of USA. High s peed electric media. https://en.wikipedia.org/wiki/Amusing_Ourselves_to_Death
