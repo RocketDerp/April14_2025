@@ -70,3 +70,6 @@ https://old.reddit.com/r/news/comments/1rsjpz2/china_says_it_will_donate_250000_
 
 DUMB_STUPID_IDIOT_MORON_RETARDED_OTHERS - why has Reddit community not had a blackout protest against Trump? Why is Reddit commenting creators not promoting nonfiction relevant books by Dr. Bandy X Lee over and over since year 2017? ANSWER: Media cult of mocking and celebrating ignorance as a form of media addiction.
 
+https://old.reddit.com/r/news/comments/1rsjpz2/china_says_it_will_donate_250000_to_families_of/oa7sqkv/
+
+That's because people care so much more about entertainment providers. Anti-Malala planet. EPSTEIN_BUT_NOT_PUTIN_UKRAINE_CHILDREN_NOT_MALALA
