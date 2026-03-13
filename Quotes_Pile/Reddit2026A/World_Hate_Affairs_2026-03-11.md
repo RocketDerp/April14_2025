@@ -41,3 +41,7 @@ Top most upvoted popular comment. Reactionary thinking. Leaders of hate message 
 https://old.reddit.com/r/interestingasfuck/comments/1rrzjf3/massive_police_response_at_temple_in_detroit/oa39tva/
 
 LEVANT_MYTH_INVERTED
+
+https://old.reddit.com/r/worldnews/comments/1rs826s/chile_marks_sharp_turn_to_the_right_as_new/oa4zr21/
+
+2 month Reddit account
