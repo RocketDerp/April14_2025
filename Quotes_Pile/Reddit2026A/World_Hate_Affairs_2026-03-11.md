@@ -146,3 +146,6 @@ https://old.reddit.com/r/worldnews/comments/1rsztae/us_under_trump_stands_alone_
 
 "celebrity", entertainer, content creator for Reddit. FOLLOWERS_OF_LEADER_TRUMP_ACTOR_ENTERTAINER_DONALD_TRUMP_FOLLOWERS But not just any content, ignorance is what Trump provides that makes him so popular on Reddit. Celebrating ignorance. Jen Senko's content is not popular on Reddit, but Trump is. Dr. Bandy X Lee's intelligent content is not popular on Reddit, but ignorance of Trump and MAGA and Musk is promoted constantly in shit-postings and shit-commenting.
 
+https://old.reddit.com/r/worldnews/comments/1rsztae/us_under_trump_stands_alone_against_un_womens/oaawlov/
+
+CHESS_1024D "chess, one-thousand twent-four d, as Surkov won since year 2013"... almost poetry line.
