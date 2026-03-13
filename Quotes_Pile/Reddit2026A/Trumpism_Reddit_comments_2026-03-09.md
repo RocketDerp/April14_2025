@@ -939,3 +939,6 @@ MEDIA_ECOLOGY_OBSERVATION Fox News
 https://old.reddit.com/r/MurderedByWords/comments/1rszw8o/pretend_she_died_in_a_school_shooting/oaaq5la/
 
 https://old.reddit.com/r/MurderedByWords/comments/1rszw8o/pretend_she_died_in_a_school_shooting/oaat3rx/
+
+https://old.reddit.com/r/MurderedByWords/comments/1rszw8o/pretend_she_died_in_a_school_shooting/oaav5qq/
+
