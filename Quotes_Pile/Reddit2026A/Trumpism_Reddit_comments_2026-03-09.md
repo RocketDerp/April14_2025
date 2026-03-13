@@ -881,3 +881,7 @@ All media platforms cover Trump constantly. Media mania abounds in the populatio
 https://old.reddit.com/r/stevehofstetter/comments/1rs6x0v/plot_twist_reality_is_harsh/oa5axik/
 
 PRIORITIES_OF_THE_99_PERCENT_COMMENTING_MEDIA
+
+https://old.reddit.com/r/stevehofstetter/comments/1rs6x0v/plot_twist_reality_is_harsh/oa4ytp7/
+
+OBSERVE_MEDIA_AVOIDANCE_OF_RELEVANT_NONFICTION
