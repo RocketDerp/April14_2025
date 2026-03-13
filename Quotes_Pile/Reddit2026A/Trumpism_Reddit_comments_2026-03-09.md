@@ -909,3 +909,7 @@ EVERYTHING_IS_MEDIA_ECOLOGY
 https://old.reddit.com/r/news/comments/1rsraox/us_military_says_all_6_airmen_in_refueling/oa90nx3/
 
 4 month Reddit account. WE_THE_PEOPLE_MEDIA_COMMENTING
+
+https://old.reddit.com/r/news/comments/1rsraox/us_military_says_all_6_airmen_in_refueling/oa8wb0k/
+
+4 month Reddit account. REMEDIAL_LEARNING_TRUMP_PUTIN_INFORMATION_WARFARE_YEAR_2011_ONWARD Alas, these types of comments do not educate or teach any details or organize any same-page focus.
