@@ -85,3 +85,7 @@ SURKOVIAN_CHESS
 https://old.reddit.com/r/news/comments/1rsjpz2/china_says_it_will_donate_250000_to_families_of/oa7cr47/
 
 SURKOVIAN_CHESS
+
+https://old.reddit.com/r/news/comments/1rsjpz2/china_says_it_will_donate_250000_to_families_of/oa7ama1/
+
+WE_THE_PEOPLE_MEDIA_COMMENTING - low-information Reddit upvoting society. Every minute of every day mocking away goodness for amusement. Anti-intellectual society USA. https://en.wikipedia.org/wiki/Low_information_voter
