@@ -119,3 +119,11 @@ https://old.reddit.com/r/news/comments/1rsq3oh/thiel_brings_his_antichrist_lectu
 https://old.reddit.com/r/news/comments/1rsq3oh/thiel_brings_his_antichrist_lectures_to_the/oa8m57y/
 
 LEVANT_MYTH_INVERTED
+
+https://old.reddit.com/r/TwoXChromosomes/comments/1rsyzb5/only_us_votes_against_womens_rights_document_at/oaahlfg/
+
+https://old.reddit.com/r/TwoXChromosomes/comments/1rsyzb5/only_us_votes_against_womens_rights_document_at/oaaono8/
+
+Why isn't the Reddit commenting community quoting and promoting woman Dr. Bandy X Lee relevant to Donald Trump's dangerous behaviors? ANSWER: People are not against ignorance that is popular in male leaders. Anti-Malala is anti-education anti-school anti-learning. Things in USA were not this bad before year 2013... the popularity of Twitter-thinking short-messages like this comment have come to dominate mindsets. High-speed delivery of information prized over deeper understanding and helping each other get on the same page of important topics.
+
+Ultimately the ignorance and abuse is a problem regardless of gender. WHEN_THE_PEOPLE_HAVE_LOST_THE_ABILITY
