@@ -885,3 +885,7 @@ PRIORITIES_OF_THE_99_PERCENT_COMMENTING_MEDIA
 https://old.reddit.com/r/stevehofstetter/comments/1rs6x0v/plot_twist_reality_is_harsh/oa4ytp7/
 
 OBSERVE_MEDIA_AVOIDANCE_OF_RELEVANT_NONFICTION
+
+https://old.reddit.com/r/stevehofstetter/comments/1rs6x0v/plot_twist_reality_is_harsh/oa4vxwk/
+
+1 month Reddit account. REMEDIAL_LEARNING_TRUMP_PUTIN_INFORMATION_WARFARE_YEAR_2011_ONWARD
