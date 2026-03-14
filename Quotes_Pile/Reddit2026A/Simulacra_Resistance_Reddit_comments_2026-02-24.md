@@ -273,3 +273,7 @@ This entire posting is saying "start all the wars you want", IGNORANCE_CELEBRATI
 https://old.reddit.com/r/PoliticalHumor/comments/1rruqqn/lil_marco_getting_mad_about_trumps_xxxl_husky/oa2p12t/
 
 Reddit audience is attracted to this White House image, Oval Office image. It is a fandom of shit-commenting and shit-posting. It isn't funny, there is no humor in this, it is celebration of ignorance, celebrating people who promote ignorance. This isn't resisting Trumpism and MAGA. ATTRACTION_TO_SHIT_CONTENT_ENSHIT_BY_DESIRE
+
+https://old.reddit.com/r/news/comments/1rtldrk/more_us_marines_and_warships_being_moved_to/oaetd3t/
+
+Yes. MAGA has owned "the libs". Everyone is following the ignorant thinking of MAGA, to crack jokes and dehumanize the people outside the nation. Immigrants and people in Iran. Followers of MAGA values on Reddit commenting section, mentally owned. LIBERAL_LAUGHS_LIBERAL_TEARS_COMPULSIVE_MAGA_FOLLOWERS
