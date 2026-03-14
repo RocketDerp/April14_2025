@@ -159,3 +159,7 @@ https://old.reddit.com/r/news/comments/1rt3gom/five_us_air_force_refueling_plane
 https://old.reddit.com/r/CrazyFuckingVideos/comments/1rt4g9x/thats_how_things_are_fixed_in_colombia/oabmyua/
 
 https://old.reddit.com/r/PeterExplainsTheJoke/comments/1rtn7s4/petahhhhh/oafeqj6/
+
+https://old.reddit.com/r/worldnews/comments/1rtlcjj/trump_calls_on_uk_and_others_to_send_warships_to/oaeretn/
+
+4 month Reddit account. Top most-upvoted popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING REMEMBER_THE_PROGRAM_IDEAS_BILLIONAIRES_FED_REDDIT_AUDIENCE
