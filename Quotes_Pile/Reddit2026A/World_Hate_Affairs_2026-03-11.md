@@ -155,3 +155,6 @@ https://old.reddit.com/r/PublicFreakout/comments/1rt059l/man_tracks_his_stolen_p
 https://old.reddit.com/r/news/comments/1rt3gom/five_us_air_force_refueling_planes_hit_in_iranian/oabfmbm/
 
 https://old.reddit.com/r/news/comments/1rt3gom/five_us_air_force_refueling_planes_hit_in_iranian/oabgtmk/
+
+https://old.reddit.com/r/CrazyFuckingVideos/comments/1rt4g9x/thats_how_things_are_fixed_in_colombia/oabmyua/
+
