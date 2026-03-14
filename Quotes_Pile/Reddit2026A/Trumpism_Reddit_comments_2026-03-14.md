@@ -19,3 +19,27 @@ RECENCY_BIAS Just now, today, Saturday March 14, 2026. Top most upvoted popular 
 
 https://old.reddit.com/r/Fauxmoi/comments/1rtl6g7/on_call_with_fox_news_trump_says_that_its_a/oaey1yy/
 
+
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mgztnufcc22u https://autistics.life/@RoundSparrow/116228449616871426 }   
+
+QUOTE FROM NONFICTION BOOK FOLLOWS  
+
+On the other side of the religious divide stood the new Fundamentalists of Racial Purity and Christianity, whose leaders skillfully manipulated conformity enforcement mechanisms which impel us to pick on those who are different. Typical among these was a group called **Russian National Unity,** which claimed an army of 70,000, snapped up members at the age of nine, enrolled them in "military patriotic clubs," dressed them in fascist uniforms, **gave them the insignia of the swastika, taught them the Nazi salute,** drilled them in combat maneuvers, honed their marksmanship, and identified the target of their weapons in their anthem:
+
+    we are going down the straight road
+    to believe, desire, and dare
+    death to the cosmopolitan dogs and Jews and masons!
+
+National Unity's founder, karate coach Alexander Barkashov, quoted yet another tune when giving interviews on the dangers of world Jewry and of the United States:
+
+    Plunge your knife in the vampire's throat  
+    And the world will become good again.
+
+Many parents welcomed National Unity's training for mass murder.
+
+Global Brain: The Evolution of Mass Mind from the Big Bang to the 21st Century   
+Chapter: The **Kidnap of Mass Mind**  
+Page: 201  
+Howard Bloom   
+Published: August 14, 2000
