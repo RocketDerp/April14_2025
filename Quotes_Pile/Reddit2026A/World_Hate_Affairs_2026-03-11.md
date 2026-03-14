@@ -176,4 +176,7 @@ https://old.reddit.com/r/politics/comments/1rtp2yj/secretary_of_defense_hegseth_
 
 MAXIMUM_PUTINIZATION 
 
+https://old.reddit.com/r/politics/comments/1rtp2yj/secretary_of_defense_hegseth_casually_promises/oafoaia/
+
+yes. Trump is a symptom of abandonment of nonfiction serious relevant books on paper. Trump is a product of Twitter-commenting thinking. HOW_THE_USA_BECAME_DUMB_STUPID_FOX_NEWS_TWITTER_THINKING
 
