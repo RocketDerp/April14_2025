@@ -8,3 +8,7 @@ Social post { https://autistics.life/@RoundSparrow/116228096281264434 https://bs
 
 NEW_OPERA_NAME #LiberalLOL   
 Social post { https://autistics.life/@RoundSparrow/116228146401582165 https://bsky.app/profile/roundsparrow.bsky.social/post/3mgzpe3nucc2g }    
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rtio8s/trump_is_the_biggest_threat_to_this_country/oaeg2gz/
+
+EVERY_47_HOURS ANTI_WIKI_ANTI_FAQ 
