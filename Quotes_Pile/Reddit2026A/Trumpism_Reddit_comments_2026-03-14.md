@@ -17,3 +17,5 @@ https://old.reddit.com/r/Fauxmoi/comments/1rtl6g7/on_call_with_fox_news_trump_sa
 
 RECENCY_BIAS Just now, today, Saturday March 14, 2026. Top most upvoted popular comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
 
+https://old.reddit.com/r/Fauxmoi/comments/1rtl6g7/on_call_with_fox_news_trump_says_that_its_a/oaey1yy/
+
