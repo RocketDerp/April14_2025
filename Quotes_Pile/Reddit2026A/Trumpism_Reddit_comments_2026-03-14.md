@@ -43,3 +43,7 @@ Chapter: The **Kidnap of Mass Mind**
 Page: 201  
 Howard Bloom   
 Published: August 14, 2000
+
+https://old.reddit.com/r/law/comments/1rtm9ny/trump_faces_impeachment_calls_after_massive/oaf36oz/
+
+EVERYTHING_IS_MEDIA_ECOLOGY
