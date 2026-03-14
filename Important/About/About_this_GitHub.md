@@ -104,3 +104,12 @@ https://www.politico.com/magazine/story/2018/01/05/trump-media-feedback-loop-216
 * "But here’s what is shocking: After comparing the president’s tweets with Fox's coverage every day since October, I can tell you that the Fox-Trump feedback loop is happening far more often than you think. There is no strategy to Trump’s Twitter feed; **he is not trying to distract the media. He is being distracted.** He darts with quark-like speed from topic to topic in his tweets because that’s how cable news works." - January 5, 2018. Matthew Gertz
 
 Donald Trump is a television addict leading a nation of television addicts. Neil Postman's 1985 nonfiction book explains the entire MAGA movement, Trumpism, decline of USA. High s peed electric media. https://en.wikipedia.org/wiki/Amusing_Ourselves_to_Death
+
+&nbsp;
+
+# What did Surkov win, exactly?
+
+Hate-based Economy    
+https://bsky.app/profile/roundsparrow.bsky.social/post/3mh24d7a2d22w    
+https://autistics.life/@RoundSparrow/116229059662333320   
+https://old.reddit.com/r/Adulting/comments/1rtoe67/the_job_market_summarised/   
