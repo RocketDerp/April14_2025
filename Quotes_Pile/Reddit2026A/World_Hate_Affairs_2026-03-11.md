@@ -158,3 +158,4 @@ https://old.reddit.com/r/news/comments/1rt3gom/five_us_air_force_refueling_plane
 
 https://old.reddit.com/r/CrazyFuckingVideos/comments/1rt4g9x/thats_how_things_are_fixed_in_colombia/oabmyua/
 
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1rtn7s4/petahhhhh/oafeqj6/
