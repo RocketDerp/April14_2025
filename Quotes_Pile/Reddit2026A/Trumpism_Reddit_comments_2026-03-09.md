@@ -952,3 +952,6 @@ Trump is popular with both men and women because ignorance is popular. Fox News 
 
 https://old.reddit.com/r/law/comments/1rt00rb/antiice_protesters_accused_of_being_part_of/oaav4ty/
 
+https://old.reddit.com/r/pics/comments/1rt89mo/the_last_3_republican_presidents_have_started_a/oacpd1u/
+
+SUPER_HYPER_NORMAL
