@@ -12,3 +12,8 @@ Social post { https://autistics.life/@RoundSparrow/116228146401582165 https://bs
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1rtio8s/trump_is_the_biggest_threat_to_this_country/oaeg2gz/
 
 EVERY_47_HOURS ANTI_WIKI_ANTI_FAQ 
+
+https://old.reddit.com/r/Fauxmoi/comments/1rtl6g7/on_call_with_fox_news_trump_says_that_its_a/oaer0ci/
+
+RECENCY_BIAS Just now, today, Saturday March 14, 2026. Top most upvoted popular comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
+
