@@ -949,3 +949,6 @@ Reddit users fundamentally don't grasp entertainment impact on people's behavior
 https://old.reddit.com/r/worldnews/comments/1rsztae/us_under_trump_stands_alone_against_un_womens/oaaym2z/
 
 Trump is popular with both men and women because ignorance is popular. Fox News does not bribe their audience with money, they give them fiction and pro-hate content. Used car salesmen are excellent fiction storytellers. MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL
+
+https://old.reddit.com/r/law/comments/1rt00rb/antiice_protesters_accused_of_being_part_of/oaav4ty/
+
