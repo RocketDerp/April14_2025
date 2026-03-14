@@ -180,3 +180,6 @@ https://old.reddit.com/r/politics/comments/1rtp2yj/secretary_of_defense_hegseth_
 
 yes. Trump is a symptom of abandonment of nonfiction serious relevant books on paper. Trump is a product of Twitter-commenting thinking. HOW_THE_USA_BECAME_DUMB_STUPID_FOX_NEWS_TWITTER_THINKING
 
+https://old.reddit.com/r/technology/comments/1rtqm1d/palantir_ceo_karp_we_support_warfare_and_we_are/oafxplt/
+
+HATE_MOTIVATED_ECONOMY_HATE_AS_A_VIRTUE_SIGNALING
