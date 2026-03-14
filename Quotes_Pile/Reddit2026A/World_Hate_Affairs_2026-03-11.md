@@ -170,4 +170,10 @@ SURKOV_SHUFFLE Reddit end-users eat this up every time since year 2013. Surkov w
 
 https://old.reddit.com/r/politics/comments/1rtp2yj/secretary_of_defense_hegseth_casually_promises/oafk1m6/
 
-5 month Reddit account. Top most-upvoted popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING 
+5 month Reddit account. Top most-upvoted popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING NAME_CALLING_INSULT_MOCKERY_FOLLOWERS_OF_LEADER_DONALD_TRUMP_SHALLOWNESS_VALUES 
+
+https://old.reddit.com/r/politics/comments/1rtp2yj/secretary_of_defense_hegseth_casually_promises/oafoevy/
+
+MAXIMUM_PUTINIZATION 
+
+
