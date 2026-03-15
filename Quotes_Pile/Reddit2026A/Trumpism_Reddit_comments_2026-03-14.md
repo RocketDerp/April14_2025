@@ -128,3 +128,7 @@ Social media brain rot elected Donald Trump in year 2016, ChatGPT didn't come al
 https://old.reddit.com/r/AskSocialists/comments/1rucofn/israel_is_going_to_do_a_false_flag_operation_in/oakc7wv/
 
 3 month Reddit account. Top most popular upvoted comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT 
+
+https://old.reddit.com/r/news/comments/1rsjpz2/china_says_it_will_donate_250000_to_families_of/oa7bz4m/
+
+CONSERVING_WHAT exactly? So much brain rot of conservative vs. liberals. Fiction vs. nonfiction explains much more. People believe fiction storytelling of Eden and Heaven after death in Bible, fiction storytelling in Reddit comments, Twitter messages of fiction, etc.
