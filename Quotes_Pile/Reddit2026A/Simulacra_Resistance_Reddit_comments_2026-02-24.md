@@ -297,3 +297,7 @@ REDDIT_BLACKOUT would be actively resisting. Promote nonfiction of Dr. Bandy X L
 https://old.reddit.com/r/clevercomebacks/comments/1rtx1xz/so_weve_moved_from_ice_detention_centers_to_ice/oahlaij/
 
 SATIRE_SARCASM_WASHING Reddit is the ocean filler of satire-washing Trump for entertainment, LOLCOW milking center of Internet.
+
+https://old.reddit.com/r/clevercomebacks/comments/1rtx1xz/so_weve_moved_from_ice_detention_centers_to_ice/oahbh5k/
+
+People om Reddit are the MAGA fandom. Never has any President or leader provided so much Reddit jokes and memes. Cult of media images of Trump. PRIORITIES_OF_THE_99_PERCENT_COMMENTING_MEDIA The USA has never been engaged with any media star more than Trump. Reddit is the fandom audience center.
