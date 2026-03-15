@@ -257,3 +257,7 @@ Only wealthy and famous people like Elon Musk and Donald Trump. STAND_UP_FOR_THE
 https://old.reddit.com/r/tattooadvice/comments/1ru3iz6/uhhh_quick_psa/oak8f9i/
 
 SATIRE_SARCASM_WASHING
+
+https://old.reddit.com/r/popculturechat/comments/1rugg3w/millie_bobby_brown_has_hosted_the_first_annual/oala7rx/
+
+MEDIA_ECOLOGY_OBSERVATION 
