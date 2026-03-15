@@ -301,3 +301,7 @@ SATIRE_SARCASM_WASHING Reddit is the ocean filler of satire-washing Trump for en
 https://old.reddit.com/r/clevercomebacks/comments/1rtx1xz/so_weve_moved_from_ice_detention_centers_to_ice/oahbh5k/
 
 People om Reddit are the MAGA fandom. Never has any President or leader provided so much Reddit jokes and memes. Cult of media images of Trump. PRIORITIES_OF_THE_99_PERCENT_COMMENTING_MEDIA The USA has never been engaged with any media star more than Trump. Reddit is the fandom audience center.
+
+https://old.reddit.com/r/clevercomebacks/comments/1rtx1xz/so_weve_moved_from_ice_detention_centers_to_ice/oahco01/
+
+The liberation needs to be from dumb ideas and dumb social media commenting. The public library has a  nonfiction section. FREE_MASONS_FREE_THINKING_SELF_AWARENESS
