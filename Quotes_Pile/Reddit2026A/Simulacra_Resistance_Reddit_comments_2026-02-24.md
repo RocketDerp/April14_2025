@@ -305,3 +305,8 @@ People om Reddit are the MAGA fandom. Never has any President or leader provided
 https://old.reddit.com/r/clevercomebacks/comments/1rtx1xz/so_weve_moved_from_ice_detention_centers_to_ice/oahco01/
 
 The liberation needs to be from dumb ideas and dumb social media commenting. The public library has a  nonfiction section. FREE_MASONS_FREE_THINKING_SELF_AWARENESS
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1ruhqq8/dan_crenshaw_who_has_spent_years_spreading_lies/oala8nb/
+
+MISINFORMATION_SYSTEMS about Texas. I still have the 2024 story on front page about Texas. https://www.MisinformationSystems.com - alas, Reddit is one such system. Top-most upvoted popular comment is shallowness about his eye patch. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING Celebration of ignorance as a source of jokes and humor. AMUSEMENT_COMEDY_WASHING_TRUMP_AS_FUNNY_MEDIA_SANEWASHING
+
