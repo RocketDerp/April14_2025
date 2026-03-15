@@ -277,3 +277,7 @@ Reddit audience is attracted to this White House image, Oval Office image. It is
 https://old.reddit.com/r/news/comments/1rtldrk/more_us_marines_and_warships_being_moved_to/oaetd3t/
 
 Yes. MAGA has owned "the libs". Everyone is following the ignorant thinking of MAGA, to crack jokes and dehumanize the people outside the nation. Immigrants and people in Iran. Followers of MAGA values on Reddit commenting section, mentally owned. LIBERAL_LAUGHS_LIBERAL_TEARS_COMPULSIVE_MAGA_FOLLOWERS
+
+https://old.reddit.com/r/clevercomebacks/comments/1rtx1xz/so_weve_moved_from_ice_detention_centers_to_ice/oahlcn8/
+
+This posting is the Reddit-popular EPSTEIN_FANDOM content, "island". 
