@@ -183,3 +183,17 @@ yes. Trump is a symptom of abandonment of nonfiction serious relevant books on p
 https://old.reddit.com/r/technology/comments/1rtqm1d/palantir_ceo_karp_we_support_warfare_and_we_are/oafxplt/
 
 HATE_MOTIVATED_ECONOMY_HATE_AS_A_VIRTUE_SIGNALING
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rudawa/ali_larijani_secretary_of_irans_supreme_national/oakfkxr/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rudawa/ali_larijani_secretary_of_irans_supreme_national/oakefk7/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rudawa/ali_larijani_secretary_of_irans_supreme_national/oaklxli/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rudawa/ali_larijani_secretary_of_irans_supreme_national/oakpeae/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rudawa/ali_larijani_secretary_of_irans_supreme_national/oakn1gb/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rudawa/ali_larijani_secretary_of_irans_supreme_national/oakpvot/
+
+MONOMYTH_VS_MONOMYTH
