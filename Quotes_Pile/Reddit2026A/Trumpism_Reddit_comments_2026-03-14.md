@@ -75,3 +75,16 @@ https://old.reddit.com/r/politics/comments/1rts1x1/trump_adviser_warns_of_possib
 https://old.reddit.com/r/politics/comments/1rtef9k/trumps_war_is_burning_through_years_worth_of/oadflh2/
 
 20 day Reddit account. 2nd most popular upvoted comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+
+https://old.reddit.com/r/MurderedByWords/comments/1rubv6a/it_was_staged_and_im_tired_of_pretending_it_wasnt/oak2kus/
+
+1 month Reddit account. Top most popular upvoted comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT The idea now being that Trump is a perfect on-stage performer and can keep his mouth shut, which is complete opposite of Trump's established behavior. This line of thinking is that Trump is some kind of robot with precision control over the topics he would and would not discuss. Not a bumbling idiot.
+
+MY EMPHASIS: This is fandom cult behavior. TRUMP_FANDOM - people on Reddit MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL can not resist discussing one man over and over. To such a degree, that commenting mania has taken over the Reddit society. The endless discussions about Donald Trump, JD Vance, Elon Musk, MAGA. Neil Postman and Marshall McLuhan self-awareness lacking in the smartphone app population. 
+
+Rick Roderick in year 1993 even used the JFK assassination of how the future would be in hyper reality. https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
+
+WAKE THE FUCK UP: Donald Trump's shooting accomplishes nothing. It manipulates media content. It creates content. It make a man who was already the center of all media systems even more the center of media. It in't a trade deal, it isn't a law change, it is nothing but an emotional media event. Which Trump is constantly on every topic! Media addiction is Donald Trump. Regardless of it is Epstein sex topics, how Trump paints his face, how Trump pulls hands when doing handshakes, how Trump goes golfing, he is ALWAYS a force of reality TV media addiction and hate-watching fandom behaviors. 
+
+The crisis is We The People being addicted to Trump as a source of constant stimulation for discussion. Trump id a shiny bauble that people compulsively comment about. We The People are avoiding Dr. Bandy X Lee's nonfiction book, a far more important and serious topic. Ignorance has taken over the population. Dangerous ignorance. Not just MAGA, but the people who hate Trump (Bluesky, Reddit, etc) are addicted to Trump to a point they are TRUMP_BLIND and can not see the urgent and long overdue need to repeat and quote Dr. Bandy X Lee and address the the nonfiction book on paper avoidance directly.
+
