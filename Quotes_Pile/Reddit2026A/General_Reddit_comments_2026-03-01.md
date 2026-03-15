@@ -253,3 +253,7 @@ https://old.reddit.com/r/tattooadvice/comments/1ru3iz6/uhhh_quick_psa/oainpfn/
 https://old.reddit.com/r/tattooadvice/comments/1ru3iz6/uhhh_quick_psa/oaisqdw/
 
 Only wealthy and famous people like Elon Musk and Donald Trump. STAND_UP_FOR_THE_BIG_GUY
+
+https://old.reddit.com/r/tattooadvice/comments/1ru3iz6/uhhh_quick_psa/oak8f9i/
+
+SATIRE_SARCASM_WASHING
