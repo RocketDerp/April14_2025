@@ -233,3 +233,7 @@ https://old.reddit.com/r/worldnews/comments/1rul6fl/iran_officially_confirms_mil
 https://old.reddit.com/r/worldnews/comments/1rul6fl/iran_officially_confirms_military_support_from/oam3ggl/
 
 1 month Reddit account. PROMOTING_IGNORANCE_WORKS_PLAYING_DUMB_MOCKING
+
+https://old.reddit.com/r/news/comments/1run71r/netanyahu_posts_video_in_response_to_iran_rumours/oamit77/
+
+WIDE_RADICAL_DOUBT_ABOUT_REAL
