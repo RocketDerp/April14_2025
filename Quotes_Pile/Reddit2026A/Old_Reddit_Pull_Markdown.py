@@ -18,6 +18,9 @@ import os
 import glob
 import traceback
 from html_to_markdown import convert_to_markdown
+import hexdump
+import string
+
 
 # ToDo:
 #
@@ -43,7 +46,8 @@ error_parse_a_count = 0
 fetch_reddit_count_a = 0
 post_only_count = 0
 replies_users_fetch = 0
-replies_users_max = 16
+replies_users_max = 1
+replies_on_index = 0
 # every slowdown_every fetches kick in delay
 slowdown_every = 2
 age18_count = 0
@@ -253,10 +257,27 @@ def check_comment_seen(comment_id):
         return False
 
 
+def replace_control_chars_translate(text, replacement=" "):
+    # Create a set of all printable ASCII characters
+    # Control characters are from U+0000-U+001F and U+007F-U+009F
+    # string.printable includes digits, ascii_letters, punctuation, and whitespace
+    printable_chars = set(string.printable)
+    
+    # Build a new string with only printable characters
+    cleaned_text = "".join(char if char in printable_chars else f" CONTROL_CHAR {ord(char)} " for char in text)
+    return cleaned_text
+
+
 def walk_comment_tree(comment_div, level=0):
     global args
     global replies_users_fetch
     global replies_users_max
+    global replies_on_index
+
+    out_this_reply = True
+
+    # App-wide index of replies to track down crashes
+    replies_on_index += 1
 
     # level 0 already printed
     if level == 0:
@@ -287,7 +308,7 @@ def walk_comment_tree(comment_div, level=0):
 
                     replies_users_fetch += 1
                     if replies_users_fetch > replies_users_max:
-                        print(f"skip fetch user info, already got {replies_users_max}, on {replies_users_fetch}")
+                        print(f"skip fetch user info, already got {replies_users_max}, on {replies_users_fetch} global on {replies_on_index}")
                         fetch_user_info = False
                     
                     account_date, bio, link_karma, comment_karma, account_live_fetch = None, None, None, None, False
@@ -304,12 +325,66 @@ def walk_comment_tree(comment_div, level=0):
    
                 else:
                     author = "[deleted]"
+
+                # BUG console ABEND on print
+                if author == "Hungry_Huia":
+                    out_this_reply = False
+
+                #if replies_on_index > 593:
+                #    if replies_on_index < 595:
+                #        out_this_reply = False
                 
-                # 'md' class contains the user's markdown text
-                text_div = entry.find("div", class_="md")
-                text = text_div.get_text(strip=True) if text_div else ""
+                if out_this_reply:
+                    # 'md' class contains the user's markdown text
+                    text_div = entry.find("div", class_="md")
+                    text = text_div.get_text(strip=True) if text_div else ""
                 
-                print("{0}- {1}: {2}...".format("  " * level, author, text[:120]))
+                    print("{0}- {1}: {2}...".format("  " * level, author, text[:120]))
+                else:
+                    print("skip-crash")
+                    print(f"skip-crash author {author} replies_on_inde {replies_on_index}")
+                    print("skip-crash")
+
+                    #
+                    # App crash cause seems to be character 157
+                    # https://stackoverflow.com/questions/70370662/trying-to-print-ascii-characters-128-to-160-why-does-it-stop-at-157
+                    #
+
+                    # 'md' class contains the user's markdown text
+                    text_div = entry.find("div", class_="md")
+                    if text_div:
+                        text = "missing?"
+                        text = text_div.get_text(strip=True)
+                        print(f"level {level} author {author}")
+                        # print(f"text: {text_div}")
+
+                        text_to_bytes = text_div.encode('utf-8')
+                        hexdump.hexdump(text_to_bytes)
+
+                        text_cleaned = replace_control_chars_translate(text, replacement=" ")
+                        if text != text_cleaned:
+                            print("hit control codes")
+                            text = text_cleaned
+
+                        i = 0
+
+                        while i < len(text):
+                            a = text[i]
+                            print(f"i {i} ord: {ord(a)} char: {a}")
+                            i += 1
+
+                        print ("after char by char loop.")
+                
+                        print(f"text: {text}")
+
+                        # print("{0}- {1}: {2}...".format("  " * level, author, text[:120]))
+                    else:
+                        print("text_div not found")
+
+                    quit_request = pause_with_quit(15)
+                    if quit_request:
+                        exit_with_code(1, 29)
+
             else:
                 print(f"skip, already processed comment {comment_id}")
         else:
@@ -906,5 +981,12 @@ def main():
 
 
 if __name__ == "__main__":
-    # note that main call will never return, app is exited
-    main()
+    
+    try:
+        # note that main call will never return, app is exited
+        main()
+    except Exception:
+        print(traceback.format_exc())
+        print("ABEND 0")
+        print("ABEND 1")
+        print("App ABEND.", flush=True)
