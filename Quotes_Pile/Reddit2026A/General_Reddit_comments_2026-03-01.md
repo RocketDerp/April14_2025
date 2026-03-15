@@ -247,3 +247,6 @@ https://old.reddit.com/r/OldSchoolCool/comments/1rs0zfo/kurt_cobain_eating_brown
 MEDIA_ECOLOGY_OBSERVATION
 
 * “With the arrival of electric technology, man has extended, or set outside himself, a live model of the central nervous system itself. To the degree that this is so, it is a development that suggests a desperate suicidal autoamputation, as if the central nervous system could no longer depend on the physical organs to be protective buffers against the slings and arrows of outrageous mechanism.” ― Marshall McLuhan, Understanding Media: The Extensions of Man. Year 1964
+
+https://old.reddit.com/r/tattooadvice/comments/1ru3iz6/uhhh_quick_psa/oainpfn/
+
