@@ -281,3 +281,19 @@ Yes. MAGA has owned "the libs". Everyone is following the ignorant thinking of M
 https://old.reddit.com/r/clevercomebacks/comments/1rtx1xz/so_weve_moved_from_ice_detention_centers_to_ice/oahlcn8/
 
 This posting is the Reddit-popular EPSTEIN_FANDOM content, "island". 
+
+https://old.reddit.com/r/clevercomebacks/comments/1rtx1xz/so_weve_moved_from_ice_detention_centers_to_ice/oahh8k6/
+
+GULLIBLE_FANDOM
+
+https://old.reddit.com/r/clevercomebacks/comments/1rtx1xz/so_weve_moved_from_ice_detention_centers_to_ice/oaha6jl/
+
+UNIFIED_THEORY_FICTION_NONFICTION
+
+https://old.reddit.com/r/clevercomebacks/comments/1rtx1xz/so_weve_moved_from_ice_detention_centers_to_ice/oahd711/
+
+REDDIT_BLACKOUT would be actively resisting. Promote nonfiction of Dr. Bandy X Lee and Jen Senko.
+
+https://old.reddit.com/r/clevercomebacks/comments/1rtx1xz/so_weve_moved_from_ice_detention_centers_to_ice/oahlaij/
+
+SATIRE_SARCASM_WASHING Reddit is the ocean filler of satire-washing Trump for entertainment, LOLCOW milking center of Internet.
