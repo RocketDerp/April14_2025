@@ -91,3 +91,9 @@ The crisis is We The People being addicted to Trump as a source of constant stim
 https://old.reddit.com/r/MurderedByWords/comments/1rubv6a/it_was_staged_and_im_tired_of_pretending_it_wasnt/oak8cxb/
 
 The emotional investment of the TOTAL USA POPULATION is dumb topics. Commenting over and over and over about a status symbol icon of New York City like people discuss movie stars and Han Solo fiction character their entire lifetime. Media addiction itself. PRIORITIES_OF_THE_99_PERCENT_COMMENTING_MEDIA
+
+https://old.reddit.com/r/MurderedByWords/comments/1rubv6a/it_was_staged_and_im_tired_of_pretending_it_wasnt/oak5q92/
+
+IN OTHER WORDS: he was attracted to Trump. An audience attracted to Trump. Just like Reddit is not REMOVING Trump with assertion of Dr Bandy X Lee and other critical nonfiction education. The hate-Trump cult vs. the love-Trump cult are all in information systems, media, feedback loops. 
+SCHOOLS_OF_THOUGHT_FEEDBACK_LOOPS_INSIDE_BOXED_MINDSETS Media mania, media delivery, television, Internet media, commenting addiction, discussion addiction about the Trump family. https://en.wikipedia.org/wiki/The_medium_is_the_message
+
