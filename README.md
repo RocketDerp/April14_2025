@@ -81,3 +81,7 @@ Year 1964
 Understanding Media : The Extensions of Man    
 University of Toronto    
 Marshall McLuhan   
+
+&nbsp;
+
+"our attempts to solve the mysteries of the heart and grasp the truth of humanity are fraught with disaster and disappointment." - https://en.Wikipedia.org/wiki/Check_It_Out_(John_Mellencamp_song)
