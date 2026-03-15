@@ -88,3 +88,6 @@ WAKE THE FUCK UP: Donald Trump's shooting accomplishes nothing. It manipulates m
 
 The crisis is We The People being addicted to Trump as a source of constant stimulation for discussion. Trump id a shiny bauble that people compulsively comment about. We The People are avoiding Dr. Bandy X Lee's nonfiction book, a far more important and serious topic. Ignorance has taken over the population. Dangerous ignorance. Not just MAGA, but the people who hate Trump (Bluesky, Reddit, etc) are addicted to Trump to a point they are TRUMP_BLIND and can not see the urgent and long overdue need to repeat and quote Dr. Bandy X Lee and address the the nonfiction book on paper avoidance directly.
 
+https://old.reddit.com/r/MurderedByWords/comments/1rubv6a/it_was_staged_and_im_tired_of_pretending_it_wasnt/oak8cxb/
+
+The emotional investment of the TOTAL USA POPULATION is dumb topics. Commenting over and over and over about a status symbol icon of New York City like people discuss movie stars and Han Solo fiction character their entire lifetime. Media addiction itself. PRIORITIES_OF_THE_99_PERCENT_COMMENTING_MEDIA
