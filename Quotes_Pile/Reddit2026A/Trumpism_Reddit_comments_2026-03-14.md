@@ -100,3 +100,7 @@ SCHOOLS_OF_THOUGHT_FEEDBACK_LOOPS_INSIDE_BOXED_MINDSETS Media mania, media deliv
 https://old.reddit.com/r/MurderedByWords/comments/1rubv6a/it_was_staged_and_im_tired_of_pretending_it_wasnt/oak4k2f/
 
 Do we honestly think Reddit doesn't have cults of commenting about every dumb and stupid topic? Do we honestly believe serious nonfiction adult learning is attractive to the population of USA? INFORMATION_GLUT_COMMENTING_GLUT
+
+https://old.reddit.com/r/SipsTea/comments/1ru8qqq/real_piece_of_work_can_we_stop_making_influencers/oajm7iq/
+
+And he was popular, an influencer. Just like Donald Trump draws an audience. MEDIA_CULTS_FICTION_FANDOM_MEDIA_POWER
