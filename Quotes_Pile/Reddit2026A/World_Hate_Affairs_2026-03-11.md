@@ -229,3 +229,7 @@ https://old.reddit.com/r/worldnews/comments/1rul6fl/iran_officially_confirms_mil
 3. Loop repeats. Entertainment addicts on Reddit can't get enough LOLCOW milking.
 
 4. Avoiding Dr. Bandy X Lee by Reddit comment creators.
+
+https://old.reddit.com/r/worldnews/comments/1rul6fl/iran_officially_confirms_military_support_from/oam3ggl/
+
+1 month Reddit account. PROMOTING_IGNORANCE_WORKS_PLAYING_DUMB_MOCKING
