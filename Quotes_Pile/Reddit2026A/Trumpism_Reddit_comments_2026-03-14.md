@@ -67,3 +67,7 @@ MEDIA_WOKE MEDIA_ECOLOGY_OBSERVATION
 https://old.reddit.com/r/politics/comments/1rts1x1/trump_adviser_warns_of_possible_israel_nuclear/oagry63/
 
 The ignorance on Reddit of always avoiding relevant non-fiction in favor of Twitter-length commenting. SAFE_DANGER_IN_2017_NONFICTION_BOOK_TITLE
+
+https://old.reddit.com/r/politics/comments/1rts1x1/trump_adviser_warns_of_possible_israel_nuclear/oagoq7s/
+
+https://old.reddit.com/r/politics/comments/1rts1x1/trump_adviser_warns_of_possible_israel_nuclear/oagvezh/
