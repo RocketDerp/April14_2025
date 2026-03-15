@@ -104,3 +104,7 @@ Do we honestly think Reddit doesn't have cults of commenting about every dumb an
 https://old.reddit.com/r/SipsTea/comments/1ru8qqq/real_piece_of_work_can_we_stop_making_influencers/oajm7iq/
 
 And he was popular, an influencer. Just like Donald Trump draws an audience. MEDIA_CULTS_FICTION_FANDOM_MEDIA_POWER
+
+https://old.reddit.com/r/technology/comments/1rucnpy/republicans_release_ai_deepfake_of_james_talarico/oak8fao/
+
+Top-most upvoted popular comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING - if it was human-created fake content or fake quotes or whatever, that would be fine. Only if machine automatically created it does it concern Reddit commenting community. Technology. Liars are still fine to people who hand-craft it.
