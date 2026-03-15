@@ -330,10 +330,6 @@ def walk_comment_tree(comment_div, level=0):
                 if author == "Hungry_Huia":
                     out_this_reply = False
 
-                #if replies_on_index > 593:
-                #    if replies_on_index < 595:
-                #        out_this_reply = False
-                
                 if out_this_reply:
                     # 'md' class contains the user's markdown text
                     text_div = entry.find("div", class_="md")
@@ -365,19 +361,8 @@ def walk_comment_tree(comment_div, level=0):
                         if text != text_cleaned:
                             print("hit control codes")
                             text = text_cleaned
-
-                        i = 0
-
-                        while i < len(text):
-                            a = text[i]
-                            print(f"i {i} ord: {ord(a)} char: {a}")
-                            i += 1
-
-                        print ("after char by char loop.")
                 
                         print(f"text: {text}")
-
-                        # print("{0}- {1}: {2}...".format("  " * level, author, text[:120]))
                     else:
                         print("text_div not found")
 
