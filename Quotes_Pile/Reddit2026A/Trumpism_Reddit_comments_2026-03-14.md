@@ -47,3 +47,12 @@ Published: August 14, 2000
 https://old.reddit.com/r/law/comments/1rtm9ny/trump_faces_impeachment_calls_after_massive/oaf36oz/
 
 EVERYTHING_IS_MEDIA_ECOLOGY
+
+https://old.reddit.com/r/interestingasfuck/comments/1rtzbhu/fight_fight_fight/oahq439/
+
+Top most-upvoted popular comment. Twitter-thinking 140 characters or less. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING Followers of MAGA Twitter-thinking. REPUBLICANS_LEAD_WITH_IGNORANCE_IDEAS_AND_FOLLOWERS_REPLY_WITH_IGNORANCE
+
+https://old.reddit.com/r/interestingasfuck/comments/1rtzbhu/fight_fight_fight/oahu5wg/
+
+FICTION_OUTSELLS_NONFICTION - instead of having an FAQ or Wiki on popular topics, fiction creates much more engaging Reddit commenting.
+
