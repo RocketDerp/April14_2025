@@ -2502,3 +2502,8 @@ This entire front-page /r/All posting is Trumpism values. FAN_PASSION_MAGA_VALUE
 Today is Monday March 2, 2026. This is how USA TV show audiences (Breaking Bad is core USA ABQ show, Reddit is California USA) and film audiences are spending their time. Talking about a world famous celebrity, two of them, while worshiping a leader celebrity, Donald Trump TV star / icon status symbol. INSTEAD of calling for the removal of Trump, spending free time and spare time doing IGNORANCE_CELEBRATIONS on Reddit media information systems.
 
 * “Americans no longer talk to each other, they entertain each other. They **do not exchange ideas**, they exchange images. They do not argue with propositions; **they argue with good looks, celebrities** and commercials.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. Year 1985.
+
+https://old.reddit.com/r/interestingasfuck/comments/1rs0vot/the_new_us_dime_design_has_removed_the_olive/oa3pbq8/
+
+GREAT_SEAL_USA SEE_ALSO https://GitHub.com/GreatSealUSA/GreatSealUSA_Art/blob/main/PLUR1BUS/Wasteland/Reddit_social_front_page_March_12_2026_dime.md
+

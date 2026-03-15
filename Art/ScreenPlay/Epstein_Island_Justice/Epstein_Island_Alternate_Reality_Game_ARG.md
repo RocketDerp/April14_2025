@@ -29,6 +29,26 @@ https://bsky.app/profile/roundsparrow.bsky.social/post/3mfcoig4fpc24
 
 &nbsp;
 
+# GamerGate 4Chan March 2026
+
+&nbsp;
+
+https://youtu.be/hvPwEWxQ_kQ?t=831    
+"The "Epstein Files" are a masterclass in propaganda"   
+struthless YouTube channel    
+440,377 views  February 27, 2026   
+
+I did not watch every minute, I skipped some, but I think it avoids Peter P and Surkov topics. Ukraine war evolution, Internet Research Agency, Cambridge Analytica.    
+
+
+4Chan GamerGate - grep this GitHub for this link: https://autistics.life/@RoundSparrow/116211974896109466   
+
+WAR_AGAINST_REALITY   
+
+My YouTube comment: "People need to stop fragmenting all this into different media sites. A printed book, on paper, from year 2014 describes Trumpism / MAGA before it hit the USA. Peter Pomerantsev, Nothing Is True and Everything Is Possible: The Surreal Heart of the New Russia"   
+
+&nbsp;
+
 # ToDo: Ideas
 
 1. Ask Yourself. Do Billionaires GIVE YOU Privacy? STAND_UP_FOR_THE_BIG_GUY

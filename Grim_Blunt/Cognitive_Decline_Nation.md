@@ -283,3 +283,11 @@ Technology-driven "golden age of stupidity" - Neil Postman's 1992 book, after Ne
 https://old.reddit.com/r/politics/comments/1odv4jy/trumps_cognitive_collapse_is_clear_psychologist/
 
 Fixated on one single person. Avoiding the Fox News cult of fiction, Bible audience of Trump, etc.
+
+&nbsp;
+
+## March 12, 2026
+
+NEW_OPERA_NAME #ClownFollowers #ClownLeaders    
+https://autistics.life/@RoundSparrow/116217265861465231    
+https://bsky.app/profile/roundsparrow.bsky.social/post/3mguuoaztmk2h    

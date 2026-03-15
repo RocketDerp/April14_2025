@@ -259,3 +259,49 @@ Marshall McLuhan's focus was on Reddit media in year 1968!!!!
 https://old.reddit.com/r/politics/comments/1rqw670/coalition_demands_schumer_jeffries_step_down_over/o9v5pbr/
 
 6 month Reddit account, top-most upvoted popular comment. Reddit fandom supports the White House because it is entertainment and comedy to Reddit media cult members. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT observe the lack of Reddit blackout protest. REDDIT_BLACKOUT - observe the avoidance of nonfiction serious books to the joke crowd on Reddit. Dr. Bandy X Lee's October 3, 2017 book should be quoted and repeated again and again until every person in USA is on the same page. MORE_THAN_EPSTEIN_NAME_DROPS
+
+https://old.reddit.com/r/clevercomebacks/comments/1rqz1yy/trump_open_to_cuba_takeover/o9vvasw/
+
+People don't believe reality because they consume so much fiction. Reddit is a cult of fiction, fandom of Donald Trump's shit-postings and shit-commenting.
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mgsp5lzwg22l https://autistics.life/@RoundSparrow/116212415112445925 }    
+
+https://old.reddit.com/r/AdviceAnimals/comments/1rrf38t/start_all_the_wars_you_want_you_murderous_traitor/o9z3ysp/
+
+This entire posting is saying "start all the wars you want", IGNORANCE_CELEBRATIONS anti-intellectual pro-war bullshit. There is so much brain rot on social media that people think is sarcasm and satire when it is straight-up mind-fuck programming. "start all the wars you want!" - fucking murder people with military green light messaging!
+
+https://old.reddit.com/r/PoliticalHumor/comments/1rruqqn/lil_marco_getting_mad_about_trumps_xxxl_husky/oa2p12t/
+
+Reddit audience is attracted to this White House image, Oval Office image. It is a fandom of shit-commenting and shit-posting. It isn't funny, there is no humor in this, it is celebration of ignorance, celebrating people who promote ignorance. This isn't resisting Trumpism and MAGA. ATTRACTION_TO_SHIT_CONTENT_ENSHIT_BY_DESIRE
+
+https://old.reddit.com/r/news/comments/1rtldrk/more_us_marines_and_warships_being_moved_to/oaetd3t/
+
+Yes. MAGA has owned "the libs". Everyone is following the ignorant thinking of MAGA, to crack jokes and dehumanize the people outside the nation. Immigrants and people in Iran. Followers of MAGA values on Reddit commenting section, mentally owned. LIBERAL_LAUGHS_LIBERAL_TEARS_COMPULSIVE_MAGA_FOLLOWERS
+
+https://old.reddit.com/r/clevercomebacks/comments/1rtx1xz/so_weve_moved_from_ice_detention_centers_to_ice/oahlcn8/
+
+This posting is the Reddit-popular EPSTEIN_FANDOM content, "island". 
+
+https://old.reddit.com/r/clevercomebacks/comments/1rtx1xz/so_weve_moved_from_ice_detention_centers_to_ice/oahh8k6/
+
+GULLIBLE_FANDOM
+
+https://old.reddit.com/r/clevercomebacks/comments/1rtx1xz/so_weve_moved_from_ice_detention_centers_to_ice/oaha6jl/
+
+UNIFIED_THEORY_FICTION_NONFICTION
+
+https://old.reddit.com/r/clevercomebacks/comments/1rtx1xz/so_weve_moved_from_ice_detention_centers_to_ice/oahd711/
+
+REDDIT_BLACKOUT would be actively resisting. Promote nonfiction of Dr. Bandy X Lee and Jen Senko.
+
+https://old.reddit.com/r/clevercomebacks/comments/1rtx1xz/so_weve_moved_from_ice_detention_centers_to_ice/oahlaij/
+
+SATIRE_SARCASM_WASHING Reddit is the ocean filler of satire-washing Trump for entertainment, LOLCOW milking center of Internet.
+
+https://old.reddit.com/r/clevercomebacks/comments/1rtx1xz/so_weve_moved_from_ice_detention_centers_to_ice/oahbh5k/
+
+People om Reddit are the MAGA fandom. Never has any President or leader provided so much Reddit jokes and memes. Cult of media images of Trump. PRIORITIES_OF_THE_99_PERCENT_COMMENTING_MEDIA The USA has never been engaged with any media star more than Trump. Reddit is the fandom audience center.
+
+https://old.reddit.com/r/clevercomebacks/comments/1rtx1xz/so_weve_moved_from_ice_detention_centers_to_ice/oahco01/
+
+The liberation needs to be from dumb ideas and dumb social media commenting. The public library has a  nonfiction section. FREE_MASONS_FREE_THINKING_SELF_AWARENESS

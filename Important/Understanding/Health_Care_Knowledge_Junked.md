@@ -279,3 +279,7 @@ https://old.reddit.com/r/science/comments/1rndt08/experts_say_there_is_no_overdi
 &nbsp;
 
 https://old.reddit.com/r/science/comments/1rpkoz1/recent_pandemic_viruses_jumped_to_humans_without/
+
+&nbsp;
+
+https://old.reddit.com/r/science/comments/1rs1ttm/spousal_loss_linked_to_higher_risk_of_dementia/

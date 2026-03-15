@@ -89,3 +89,19 @@ DID_BLUESKY_REMOVE_POST ? I can't find it on Bluesky from that time period. #Inf
 https://old.reddit.com/r/agedlikemilk/comments/1msrphv/deleted_by_user/n96ujxp/
 
 That is what my own search found. It was fake content on Reddit. 
+
+https://old.reddit.com/r/interestingasfuck/comments/1m81i49/south_park_at_it_once_again_lmao_now_this_is/n4vpvvu/
+
+<img width="1209" height="1033" alt="image" src="https://github.com/user-attachments/assets/cb0f3497-4504-448f-81b8-0673a4f12a33" />
+
+CORE_CONCERNS WAKE_REALITY_CORE
+
+ToDo: My python app won't capture NSFW posts.
+
+"Trump is beyond parody ...
+
+He's even worse than what you can joke about.
+
+It would be a stain on humanity if we just allow him to run out the clock instead of standing up to him and his enablers"
+
+Thursday, July 24, 2025   https://old.reddit.com/user/The_Fiji_Water   
