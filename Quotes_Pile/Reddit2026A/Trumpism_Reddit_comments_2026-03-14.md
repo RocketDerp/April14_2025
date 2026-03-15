@@ -125,3 +125,6 @@ https://old.reddit.com/r/Millennials/comments/1rud0xk/deductive_reasoning_is_dyi
 
 Social media brain rot elected Donald Trump in year 2016, ChatGPT didn't come along until year 2022. MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL Fox News HDTV brain rot was obvious for longer.
 
+https://old.reddit.com/r/AskSocialists/comments/1rucofn/israel_is_going_to_do_a_false_flag_operation_in/oakc7wv/
+
+3 month Reddit account. Top most popular upvoted comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT 
