@@ -108,3 +108,7 @@ And he was popular, an influencer. Just like Donald Trump draws an audience. MED
 https://old.reddit.com/r/technology/comments/1rucnpy/republicans_release_ai_deepfake_of_james_talarico/oak8fao/
 
 Top-most upvoted popular comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING - if it was human-created fake content or fake quotes or whatever, that would be fine. Only if machine automatically created it does it concern Reddit commenting community. Technology. Liars are still fine to people who hand-craft it.
+
+https://old.reddit.com/r/technology/comments/1rucnpy/republicans_release_ai_deepfake_of_james_talarico/oakioiz/
+
+FICTION_HARDER anything and everything but fill the Internet with nonfiction serious topics from Dr. Bandy X Lee and Jen Senko. MORE_THAN_EPSTEIN_NAME_DROPS
