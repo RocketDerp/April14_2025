@@ -261,3 +261,7 @@ SATIRE_SARCASM_WASHING
 https://old.reddit.com/r/popculturechat/comments/1rugg3w/millie_bobby_brown_has_hosted_the_first_annual/oala7rx/
 
 MEDIA_ECOLOGY_OBSERVATION 
+
+https://old.reddit.com/r/mildlyinfuriating/comments/1ruh9cn/my_son_won_this_at_his_schools_science_fair/oalx2td/
+
+FAKE_DETECTORS WIDE_RADICAL_DOUBT_ABOUT_REAL
