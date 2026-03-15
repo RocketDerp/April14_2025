@@ -59,3 +59,7 @@ FICTION_OUTSELLS_NONFICTION - instead of having an FAQ or Wiki on popular topics
 https://old.reddit.com/r/nottheonion/comments/1rtxgbh/pentagon_tightens_controls_over_stars_and_stripes/oahc1y5/
 
 MEDIA_WOKE information woke, Finnegans Wake.
+
+https://old.reddit.com/r/nottheonion/comments/1rtxgbh/pentagon_tightens_controls_over_stars_and_stripes/oahdsk4/
+
+MEDIA_WOKE MEDIA_ECOLOGY_OBSERVATION
