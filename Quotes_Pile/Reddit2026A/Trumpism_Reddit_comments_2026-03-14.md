@@ -97,3 +97,6 @@ https://old.reddit.com/r/MurderedByWords/comments/1rubv6a/it_was_staged_and_im_t
 IN OTHER WORDS: he was attracted to Trump. An audience attracted to Trump. Just like Reddit is not REMOVING Trump with assertion of Dr Bandy X Lee and other critical nonfiction education. The hate-Trump cult vs. the love-Trump cult are all in information systems, media, feedback loops. 
 SCHOOLS_OF_THOUGHT_FEEDBACK_LOOPS_INSIDE_BOXED_MINDSETS Media mania, media delivery, television, Internet media, commenting addiction, discussion addiction about the Trump family. https://en.wikipedia.org/wiki/The_medium_is_the_message
 
+https://old.reddit.com/r/MurderedByWords/comments/1rubv6a/it_was_staged_and_im_tired_of_pretending_it_wasnt/oak4k2f/
+
+Do we honestly think Reddit doesn't have cults of commenting about every dumb and stupid topic? Do we honestly believe serious nonfiction adult learning is attractive to the population of USA? INFORMATION_GLUT_COMMENTING_GLUT
