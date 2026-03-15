@@ -201,3 +201,7 @@ MONOMYTH_VS_MONOMYTH
 https://old.reddit.com/r/worldnews/comments/1rudw4d/taiwan_reports_largescale_chinese_military/oakqajw/
 
 2 month Reddit account. HYPER_SIMPLE_TRIVIALIZE_BANAL_SELF_ONLY_CONCERN
+
+https://old.reddit.com/r/news/comments/1ruboxc/israeli_forces_kill_palestinian_couple_and_two_of/oak4jdy/
+
+"how is it possible to reach that level of disconnect from reality where you would think that this is an okay thing to do?" ANSWER: OUT_GROUP_HATE and avoiding common ground, THE_1954_EQUATION avoidance as a serious topic.
