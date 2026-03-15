@@ -217,3 +217,15 @@ NOT_GOOD_ENOUGH Joseph Campbell was not good enough and got insulted for critici
 https://old.reddit.com/r/worldnews/comments/1rul6fl/iran_officially_confirms_military_support_from/oam7o2y/
 
 "this stupid war" , this anti-intellectual war. WAR_AGAINST_NONFICTION in favor of mockery and LOL on Reddit, Bluesky, Twitter, Facebook. Media addiction comedy nation. Trump is a constant source of comedy and humor for Reddit fandoms. CHUCKLEHEAD_NATION
+
+https://old.reddit.com/r/worldnews/comments/1rul6fl/iran_officially_confirms_military_support_from/oam487s/
+
+"absurd loop" SCHOOLS_OF_THOUGHT_FEEDBACK_LOOPS_INSIDE_BOXED_MINDSETS
+
+1. Trump does antics, wild and crazy Trump on Truth Social and Twitter
+
+2. Reddit and Bluesky LOL LOL LOL LMAO at Trump
+
+3. Loop repeats. Entertainment addicts on Reddit can't get enough LOLCOW milking.
+
+4. Avoiding Dr. Bandy X Lee by Reddit comment creators.
