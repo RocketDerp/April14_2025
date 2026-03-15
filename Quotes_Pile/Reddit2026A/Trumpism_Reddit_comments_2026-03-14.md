@@ -71,3 +71,7 @@ The ignorance on Reddit of always avoiding relevant non-fiction in favor of Twit
 https://old.reddit.com/r/politics/comments/1rts1x1/trump_adviser_warns_of_possible_israel_nuclear/oagoq7s/
 
 https://old.reddit.com/r/politics/comments/1rts1x1/trump_adviser_warns_of_possible_israel_nuclear/oagvezh/
+
+https://old.reddit.com/r/politics/comments/1rtef9k/trumps_war_is_burning_through_years_worth_of/oadflh2/
+
+20 day Reddit account. 2nd most popular upvoted comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
