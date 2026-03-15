@@ -112,3 +112,16 @@ Top-most upvoted popular comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER
 https://old.reddit.com/r/technology/comments/1rucnpy/republicans_release_ai_deepfake_of_james_talarico/oakioiz/
 
 FICTION_HARDER anything and everything but fill the Internet with nonfiction serious topics from Dr. Bandy X Lee and Jen Senko. MORE_THAN_EPSTEIN_NAME_DROPS
+
+https://old.reddit.com/r/Millennials/comments/1rud0xk/deductive_reasoning_is_dying_with_us/oakc2jt/
+
+BRAIN_ROT_SOCIETY_47
+
+https://old.reddit.com/r/Millennials/comments/1rud0xk/deductive_reasoning_is_dying_with_us/oakbeqx/
+
+ADULT_EDUCATION_CRISIS_USA_ADULT_LEARNING_EMERGENCY
+
+https://old.reddit.com/r/Millennials/comments/1rud0xk/deductive_reasoning_is_dying_with_us/oakci8t/
+
+Social media brain rot elected Donald Trump in year 2016, ChatGPT didn't come along until year 2022. MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL Fox News HDTV brain rot was obvious for longer.
+
