@@ -370,4 +370,6 @@ https://old.reddit.com/r/pics/comments/1rvdk7b/saw_this_while_getting_gasoc/oas9
 
 BRAIN_ROT_SOCIETY_47 so much brain rot leadership that people follow, including Reddit leaders of brain-rot. We The People keep fixating on one single person, Donald Trump, and not the MAGA values of image brain rot that USA 100% NOT_JUST_MAGA has become.
 
+https://old.reddit.com/r/pics/comments/1rvdk7b/saw_this_while_getting_gasoc/oas8pq4/
 
+Mocking the economy of California is a celebration of ignorance on Reddit commenting section. IGNORANCE_CELEBRATIONS Compared to Canada or Germany the USA has incredibly inexpensive retail gasoline and many MAGA_FANDOM are pro-war with Iran and pro-gasoline consumption, wishing to harm Earth and nature with pollution and inexpensive unregulated wasting of gasoline. Reddit culture in year 2026 is constantly promoting short-length 140 character ignorance and avoidance of serious science nonfiction books on paper.
