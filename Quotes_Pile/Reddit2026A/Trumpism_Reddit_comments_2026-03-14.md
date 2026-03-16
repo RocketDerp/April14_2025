@@ -169,3 +169,7 @@ At one end of the table sat one of the country’s most famous political TV pres
 
 NEW_OPERA_NAME #ChronicInconsistency    
 Social post { https://autistics.life/@RoundSparrow/116239202153150350 https://bsky.app/profile/roundsparrow.bsky.social/post/3mh6mfyrtqc2u }   
+
+https://old.reddit.com/r/politics/comments/1rv3ygn/donald_trump_stuns_with_maybe_we_shouldnt_even_be/oapujz4/
+
+10 month Reddit account. Front-page /r/All submitter. REDDIT_FRONT_PAGE_YOUNG_ACCOUNT Reddit is Trump fandom, attracted to Trump as clown to clown with on social media. FANATICS_FANS_OF_CLOWNS_FANS_OF_MAGA_CLOWNING
