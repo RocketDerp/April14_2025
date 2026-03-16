@@ -343,3 +343,8 @@ https://old.reddit.com/r/stevehofstetter/comments/1rv93tj/give_this_some_serious
 
 No, Reddit cult of memes and simple-think 140 character Twitter mindsets does not have self-awareness and realize how pro-ignorance and anti-goodness the messaging programming is. Cult of ignorance commenting section. REPUBLICANS_LEAD_WITH_IGNORANCE_IDEAS_AND_FOLLOWERS_REPLY_WITH_IGNORANCE
 
+https://old.reddit.com/r/pics/comments/1rvdk7b/saw_this_while_getting_gasoc/oartqb9/
+
+Top most upvoted popular comment. The image posting on top of /r/All is TRUMP_FANDOM - stickers showing celebrity personality Donald Trump on a gas pump. As for the comment, it describes the constant trend of Trumpism. TREND_CHASING_MEDIA_TRENDING MAGA followers chase the IRA since March 2013 and become a **media cult** / **image cult** of Trump. And now Reddit is a fandom of Trump images too. OBSERVE what is being AVOIDED here: promoting a Internet protest peaceful blackout of Reddit. OBSERVE what is being avoided here: promoting comments and quotes about Dr. Bandy X Lee's nonfiction book on paper.
+
+Reddit commenting is a media cult of shit-commenting shit-posting Trump-shit. Addicts so addicted to Trump images as a source of LOLCOW milking that they will not turn to Dr. Bandy X Lee's nonfiction books on paper. MAGA leads with ignorance, Reddit media cult of Trump images is followers of promoting ignorance. REPUBLICANS_LEAD_WITH_IGNORANCE_IDEAS_AND_FOLLOWERS_REPLY_WITH_IGNORANCE
