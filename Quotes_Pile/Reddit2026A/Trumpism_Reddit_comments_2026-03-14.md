@@ -136,3 +136,7 @@ CONSERVING_WHAT exactly? So much brain rot of conservative vs. liberals. Fiction
 https://old.reddit.com/r/pics/comments/1rusein/trump_spotted_at_a_miami_golf_course_as_iran_war/oanlyik/
 
 TRUMP_FANDOM top most-upvoted popular comment on a fresh new image of Donald Trump! Observe: no call for Reddit blackout to end war or remove Trump from office. Avoidance of non-fiction from Dr. Bandy X Lee and Jen Senko... instead, hate-watching fandom on Reddit instantly gets smartphone notifications of fresh Trump photos to engage.
+
+https://old.reddit.com/r/pics/comments/1rusein/trump_spotted_at_a_miami_golf_course_as_iran_war/oanktzk/
+
+Reddit users do not give one single shit about science nonfiction and organizing Internet education to do cult deprogramming of MAGA USA. Instead, the attraction to Trump images drives the Reddit media cult. ENJOYMENT_OF_TRUMP_AND_MAGA_VALUES Observe the avoidance of non-fiction from Dr. Bandy X Lee and Jen Senko.
