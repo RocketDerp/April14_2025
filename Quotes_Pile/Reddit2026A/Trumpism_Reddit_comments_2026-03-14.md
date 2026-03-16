@@ -144,3 +144,7 @@ Reddit users do not give one single shit about science nonfiction and organizing
 https://old.reddit.com/r/pics/comments/1rusein/trump_spotted_at_a_miami_golf_course_as_iran_war/oanjyi2/
 
 SOCIAL_CULT_HATE_WATCHING_FANDOM Imagine making stupid comments about one man for over a decade and not organizing media ecology lessons, cult deprogramming. Imagine avoiding nonfiction serious books from Dr. Bandy X Lee and not calling for Trump's removal and people all to get on the same page and be serious about more than just reaction-commenting and shit-commenting about Trump.
+
+https://old.reddit.com/r/law/comments/1rutokt/donald_trump_warns_nato_faces_very_bad_future_if/oantdsk/
+
+Top most upvoted popular comment. Donald Trump leads with ignorance and American people on social media upvote celebrations of ignorance. IGNORANCE_CELEBRATIONS Avoiding: Jen Senko, Dr. Bandy X Lee in favor of spending free time / spare time commenting about Trump's tantrums.
