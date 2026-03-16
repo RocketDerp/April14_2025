@@ -91,3 +91,7 @@ https://old.reddit.com/r/jamesjoyce/comments/1rixpg3/new_to_joyce_have_copies_of
 My message with a sense of global urgency. LEVANT_MONOMYTH_CRISIS
 
 OOPS, had to edit the message, forgot to finish a sentence: "Humanity is running out of time and people are raging in fandoms vs. fandoms." - I also observe the REDDIT_HIVE_MIND downvoting of the user's posting. Currently: "5 points (73% upvoted)" in 4 hours. Multiple downvotes.
+
+https://old.reddit.com/r/jamesjoyce/comments/1renl91/why_do_most_copies_of_finnegans_wake_start_on/oas00ps/
+
+My reply to a follow-up question.
