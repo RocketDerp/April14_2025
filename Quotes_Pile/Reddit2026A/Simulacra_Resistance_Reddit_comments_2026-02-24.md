@@ -350,3 +350,7 @@ Top most upvoted popular comment. The image posting on top of /r/All is TRUMP_FA
 Reddit commenting is a media cult of shit-commenting shit-posting Trump-shit. Addicts so addicted to Trump images as a source of LOLCOW milking that they will not turn to Dr. Bandy X Lee's nonfiction books on paper. MAGA leads with ignorance, Reddit media cult of Trump images is followers of promoting ignorance. REPUBLICANS_LEAD_WITH_IGNORANCE_IDEAS_AND_FOLLOWERS_REPLY_WITH_IGNORANCE
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mh6xr47hq22e https://autistics.life/@RoundSparrow/116240017906492627 }    
+
+https://old.reddit.com/r/pics/comments/1rvdk7b/saw_this_while_getting_gasoc/oas7kcd/
+
+Shortly after hitting top of front-page /r/All this was removed on Reddit. A screen shot of a LCD "screen" technicality? The digital display of the gasoline prices on a gas pump?
