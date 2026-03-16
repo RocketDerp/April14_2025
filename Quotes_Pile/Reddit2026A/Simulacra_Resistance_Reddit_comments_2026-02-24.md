@@ -328,3 +328,7 @@ https://old.reddit.com/r/stevehofstetter/comments/1rv93tj/give_this_some_serious
 
 Study the image of the posting. Deport MAGA messaging. BLOCK_HAPPY_DEPORT_HAPPY_SILENCE_POOR_PEOPLE_SILENCE_UPPITY - instead of focusing on the Reddit brain rot crisis of the entire population (everyone, 100%, age 12 to age 125, not just MAGA). This encourages ICE_FANDOM behaviors of deporting political opponents. This is not resisting brain rot, this is Reddit media consumers cheering on and celebrating brain rot. Observe the avoidance of nonfiction relevant books on paper by Dr. Bandy X. Lee.
 
+https://old.reddit.com/r/stevehofstetter/comments/1rv93tj/give_this_some_serious_consideration/oaqv6iy/
+
+Cheering on MAGA. MAGA_VALUES - cheering on taking guns and weapon systems to Iran and killing people in Iran. GUN_WORSHIP -this is typical Reddit fandom commenting, not resisting badness itself, not resisting the gun worship - but wishing to spread it all over Earth. We are far far far beyond satire and sarcasm, this is a Reddit cult of stupid dumb ideas (followers of MAGA on Reddit who are attracted to stupid ideas).
+
