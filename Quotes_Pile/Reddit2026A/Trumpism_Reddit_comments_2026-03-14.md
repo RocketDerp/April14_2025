@@ -166,3 +166,6 @@ https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutio
 2. "These people belong on a TV sitcom, not in the White House"
    * https://www.politico.com/magazine/story/2015/01/putin-russia-tv-113960/
 At one end of the table sat one of the country’s most famous political TV presenters. He was small and spoke fast, with a smoky voice: “We all know there will be no real politics,” he said. “But we still have to give our viewers the sense something is happening. They need to be kept entertained.” “So what should we play with?” he asked. “Shall we attack oligarchs? Who’s the enemy this week? Politics has got to feel like a movie!”
+
+NEW_OPERA_NAME #ChronicInconsistency    
+Social post { https://autistics.life/@RoundSparrow/116239202153150350 https://bsky.app/profile/roundsparrow.bsky.social/post/3mh6mfyrtqc2u }   
