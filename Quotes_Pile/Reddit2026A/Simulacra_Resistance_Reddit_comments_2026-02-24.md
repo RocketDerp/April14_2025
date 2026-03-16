@@ -373,3 +373,7 @@ BRAIN_ROT_SOCIETY_47 so much brain rot leadership that people follow, including 
 https://old.reddit.com/r/pics/comments/1rvdk7b/saw_this_while_getting_gasoc/oas8pq4/
 
 Mocking the economy of California is a celebration of ignorance on Reddit commenting section. IGNORANCE_CELEBRATIONS Compared to Canada or Germany the USA has incredibly inexpensive retail gasoline and many MAGA_FANDOM are pro-war with Iran and pro-gasoline consumption, wishing to harm Earth and nature with pollution and inexpensive unregulated wasting of gasoline. Reddit culture in year 2026 is constantly promoting short-length 140 character ignorance and avoidance of serious science nonfiction books on paper.
+
+https://old.reddit.com/r/pics/comments/1rvdk7b/saw_this_while_getting_gasoc/oas90s2/
+
+More celebrating the ignorance leadership that Trump provides and Reddit USA audience follows. People find Trump to be entertaining and thrilling hilarious content. Reddit is a fandom of Trump images and content venue for Trump ignorance. UNDERSTANDING_SURKOV_PUTINISM_TRUMPISM_HATE_HILARIOUS
