@@ -181,3 +181,8 @@ https://old.reddit.com/r/politics/comments/1rv3ygn/donald_trump_stuns_with_maybe
 https://old.reddit.com/r/okbuddycinephile/comments/1rv711d/i_would_like_to_dedicate_this_honor_to_the/oaqm4ce/
 
 We lost the WAR_AGAINST_REALITY in USA. Surkov won since March of year 2013.
+
+https://old.reddit.com/r/nottheonion/comments/1rv97u1/us_is_allowing_iranian_oil_tankers_through_strait/oaqszsz/
+
+3-word not even 140 character comment. The top upvoted most popular comment. Celebrating ignorance. https://en.wikipedia.org/wiki/Thought-terminating_clich%C3%A9 Twitter-thinking programmed Reddit mindsets. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING Surkov won since year 2013. SURKOVIAN_CHESS
+
