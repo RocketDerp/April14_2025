@@ -365,3 +365,9 @@ Someone observing the moderator removal. Power-tripping.
 https://old.reddit.com/r/pics/comments/1rvdk7b/saw_this_while_getting_gasoc/oas859x/
 
 BRAIN_ROT_LEFT_RIGHT_LIB_CON_NAME_AVOIDANCE always avoiding naming a detailed list of "right" and "left" and very popular Twitter-length 140 character brain rot commenting.
+
+https://old.reddit.com/r/pics/comments/1rvdk7b/saw_this_while_getting_gasoc/oas91y8/
+
+BRAIN_ROT_SOCIETY_47 so much brain rot leadership that people follow, including Reddit leaders of brain-rot. We The People keep fixating on one single person, Donald Trump, and not the MAGA values of image brain rot that USA 100% NOT_JUST_MAGA has become.
+
+
