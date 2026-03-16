@@ -332,3 +332,9 @@ https://old.reddit.com/r/stevehofstetter/comments/1rv93tj/give_this_some_serious
 
 Cheering on MAGA. MAGA_VALUES - cheering on taking guns and weapon systems to Iran and killing people in Iran. GUN_WORSHIP -this is typical Reddit fandom commenting, not resisting badness itself, not resisting the gun worship - but wishing to spread it all over Earth. We are far far far beyond satire and sarcasm, this is a Reddit cult of stupid dumb ideas (followers of MAGA on Reddit who are attracted to stupid ideas).
 
+See the reply message:
+
+https://old.reddit.com/r/stevehofstetter/comments/1rv93tj/give_this_some_serious_consideration/oar96nw/
+
+No, Reddit cult of memes and simple-think 140 character Twitter mindsets does not have self-awareness and realize how pro-ignorance and anti-goodness the messaging programming is. Cult of ignorance commenting section. REPUBLICANS_LEAD_WITH_IGNORANCE_IDEAS_AND_FOLLOWERS_REPLY_WITH_IGNORANCE
+
