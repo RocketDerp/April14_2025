@@ -155,7 +155,7 @@ Top-most upvoted popular comment. This comment in no way calls for Trump's remov
 
 https://old.reddit.com/r/politics/comments/1rv3ygn/donald_trump_stuns_with_maybe_we_shouldnt_even_be/oapu3i1/
 
-Screenshot from 2026-03-16 06-45-51.png
+<img width="1118" height="1012" alt="Screenshot from 2026-03-16 06-45-51" src="https://github.com/user-attachments/assets/1cf99e93-08d4-41ac-a010-b6644af06bb5" />
 
 This comment says t all. But is entirely ignorant like the entire Reddit commenting section. CORE_CONCERNS SURKOV_MONOMYTH
 
