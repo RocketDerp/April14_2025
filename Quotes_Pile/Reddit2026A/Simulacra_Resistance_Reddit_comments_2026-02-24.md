@@ -320,3 +320,6 @@ The top most upvoted comment is a Trump image. Fandom behaviors. This most-popul
 
 This is not resisting ignorance, it is embracing Trump as a leader of ignorance.
 
+https://old.reddit.com/r/law/comments/1rv9ipu/trump_melts_down_at_supreme_court_justices_in/oar0q4u/
+
+Yes. There is no "mask". POTUS_TONY_CLIFTON_IGNORANCE there are performances and characters being played by Trump. Trump is an actor who is acting. Reddit is an audience who is consuming Trump content. This Reddit posting is not resisting social media Truth Social, it is programming minds on Reddit. SOCIAL_CULT_HATE_WATCHING_FANDOM
