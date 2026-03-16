@@ -888,3 +888,8 @@ https://www.youtube.com/shorts/br6BgFQBpTU
 
 https://www.youtube.com/watch?v=bDNFXgefcg0     
 William Burroughs's Theory of Language as a Virus in "The Job" and Jacques Lacan's "Écrits"    
+
+&nbsp;
+
+Oral tradition, audio books    
+https://old.reddit.com/r/NonPoliticalTwitter/comments/1ruqz6s/this_is_the_hill_i_will_die_on/
