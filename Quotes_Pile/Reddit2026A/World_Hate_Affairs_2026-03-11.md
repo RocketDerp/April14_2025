@@ -247,3 +247,7 @@ https://old.reddit.com/r/worldnews/comments/1ruujo1/trump_warns_nato_faces_a_bad
 https://old.reddit.com/r/worldnews/comments/1ruujo1/trump_warns_nato_faces_a_bad_future_if_allies/oao249l/
 
 https://old.reddit.com/r/worldnews/comments/1ruujo1/trump_warns_nato_faces_a_bad_future_if_allies/oao3qbi/
+
+https://old.reddit.com/r/worldnews/comments/1rv048l/trump_demands_others_help_secure_strait_of_hormuz/oap9i1l/
+
+Top most upvoted popular comment. ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING
