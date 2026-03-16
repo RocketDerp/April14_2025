@@ -330,7 +330,11 @@ Study the image of the posting. Deport MAGA messaging. BLOCK_HAPPY_DEPORT_HAPPY_
 
 https://old.reddit.com/r/stevehofstetter/comments/1rv93tj/give_this_some_serious_consideration/oaqv6iy/
 
+<img width="1913" height="843" alt="Screenshot from 2026-03-16 08-39-54" src="https://github.com/user-attachments/assets/23a77a20-eee8-47bb-b8ce-08edaffbc6ad" />
+
 Cheering on MAGA. MAGA_VALUES - cheering on taking guns and weapon systems to Iran and killing people in Iran. GUN_WORSHIP -this is typical Reddit fandom commenting, not resisting badness itself, not resisting the gun worship - but wishing to spread it all over Earth. We are far far far beyond satire and sarcasm, this is a Reddit cult of stupid dumb ideas (followers of MAGA on Reddit who are attracted to stupid ideas).
+
+Social post { https://autistics.life/@RoundSparrow/116239617586462104 https://bsky.app/profile/roundsparrow.bsky.social/post/3mh6scrmde22k }   
 
 See the reply message:
 
