@@ -94,4 +94,10 @@ OOPS, had to edit the message, forgot to finish a sentence: "Humanity is running
 
 https://old.reddit.com/r/jamesjoyce/comments/1renl91/why_do_most_copies_of_finnegans_wake_start_on/oas00ps/
 
-My reply to a follow-up question.
+My reply to a follow-up question. Reddit did not published, censored. As documented here: https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Reddit2026A/Censored/2026-03-16_James_Joyce_censored.md
+
+A shorter version of my reply comment seems to have been published:
+
+https://old.reddit.com/r/jamesjoyce/comments/1renl91/why_do_most_copies_of_finnegans_wake_start_on/oas1c01/
+
+not-censored comment of mine.
