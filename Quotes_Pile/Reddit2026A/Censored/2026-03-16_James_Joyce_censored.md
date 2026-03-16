@@ -2,6 +2,15 @@ https://old.reddit.com/r/jamesjoyce/comments/1renl91/why_do_most_copies_of_finne
 
 &nbsp;
 
+Comment oas00ps was censored, never published at all, not even for a single second. A truncated version of the comment oas1c01 I made next, was published. https://old.reddit.com/r/jamesjoyce/comments/1renl91/why_do_most_copies_of_finnegans_wake_start_on/oas1c01/
+
+Overall, the more terse and banal your comment, the shorter - the more it is not censored on Reddit. Tiny short-length Twitter commenting is very common in year 2026... as longer-form serious quotes from nonfiction books get censored.
+
+&nbsp;
+
+
+&nbsp;
+
 &nbsp;
 
 &nbsp;
