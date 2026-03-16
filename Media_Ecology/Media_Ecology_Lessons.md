@@ -1770,3 +1770,13 @@ The ELZIA effect goes back to 1960's.
 https://www.youtube.com/watch?v=vKuxQycuJe4   
 
 PERSONALIZED_FILTER_BUBBLE AUTOMATIC_FILTER_BUBBLE   
+
+&nbsp;
+
+# Finnegans Wake, English Class
+
+Finnegans Wake by James Joyce. English Class.
+
+https://old.reddit.com/r/CuratedTumblr/comments/1rv4oxc/your_what_on_the_poor/
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mh6o34clb22g https://autistics.life/@RoundSparrow/116239324060131989 }   
