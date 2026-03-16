@@ -310,3 +310,6 @@ https://old.reddit.com/r/LeopardsAteMyFace/comments/1ruhqq8/dan_crenshaw_who_has
 
 MISINFORMATION_SYSTEMS about Texas. I still have the 2024 story on front page about Texas. https://www.MisinformationSystems.com - alas, Reddit is one such system. Top-most upvoted popular comment is shallowness about his eye patch. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING Celebration of ignorance as a source of jokes and humor. AMUSEMENT_COMEDY_WASHING_TRUMP_AS_FUNNY_MEDIA_SANEWASHING
 
+https://old.reddit.com/r/technology/comments/1rv7ggi/another_internet_is_possible_norway_rails_against/oaqgy5b/
+
+Top most upvoted popular comment IS enshitification. It is "social media engagement" of asking questions. 140 characters or less. This most-popular comment educates nothing, it teaches nothing, it just creates messages for low-information upvoting. https://en.wikipedia.org/wiki/Low_information_voter Reddit prizes shit-commenting and shit-postings. ATTRACTION_TO_SHIT_CONTENT_ENSHIT_BY_DESIRE
