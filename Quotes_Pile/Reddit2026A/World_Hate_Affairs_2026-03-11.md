@@ -239,3 +239,11 @@ https://old.reddit.com/r/news/comments/1run71r/netanyahu_posts_video_in_response
 WIDE_RADICAL_DOUBT_ABOUT_REAL
 
 https://old.reddit.com/r/wallstreetbets/comments/1ruqe38/wsj_exclusive_trump_administration_plans_to/oan4y6q/
+
+https://old.reddit.com/r/worldnews/comments/1ruujo1/trump_warns_nato_faces_a_bad_future_if_allies/oao0b97/
+
+https://old.reddit.com/r/worldnews/comments/1ruujo1/trump_warns_nato_faces_a_bad_future_if_allies/oanzuhh/
+
+https://old.reddit.com/r/worldnews/comments/1ruujo1/trump_warns_nato_faces_a_bad_future_if_allies/oao249l/
+
+https://old.reddit.com/r/worldnews/comments/1ruujo1/trump_warns_nato_faces_a_bad_future_if_allies/oao3qbi/
