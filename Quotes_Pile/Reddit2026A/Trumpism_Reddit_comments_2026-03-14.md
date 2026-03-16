@@ -140,3 +140,7 @@ TRUMP_FANDOM top most-upvoted popular comment on a fresh new image of Donald Tru
 https://old.reddit.com/r/pics/comments/1rusein/trump_spotted_at_a_miami_golf_course_as_iran_war/oanktzk/
 
 Reddit users do not give one single shit about science nonfiction and organizing Internet education to do cult deprogramming of MAGA USA. Instead, the attraction to Trump images drives the Reddit media cult. ENJOYMENT_OF_TRUMP_AND_MAGA_VALUES Observe the avoidance of non-fiction from Dr. Bandy X Lee and Jen Senko.
+
+https://old.reddit.com/r/pics/comments/1rusein/trump_spotted_at_a_miami_golf_course_as_iran_war/oanjyi2/
+
+SOCIAL_CULT_HATE_WATCHING_FANDOM Imagine making stupid comments about one man for over a decade and not organizing media ecology lessons, cult deprogramming. Imagine avoiding nonfiction serious books from Dr. Bandy X Lee and not calling for Trump's removal and people all to get on the same page and be serious about more than just reaction-commenting and shit-commenting about Trump.
