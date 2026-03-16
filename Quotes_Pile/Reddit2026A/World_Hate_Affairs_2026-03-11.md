@@ -251,3 +251,8 @@ https://old.reddit.com/r/worldnews/comments/1ruujo1/trump_warns_nato_faces_a_bad
 https://old.reddit.com/r/worldnews/comments/1rv048l/trump_demands_others_help_secure_strait_of_hormuz/oap9i1l/
 
 Top most upvoted popular comment. ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING
+
+https://old.reddit.com/r/europe/comments/1rv9p2p/boris_pistorius_german_defense_minister_this_is/oaqw7ov/
+
+NEW_OPERA_NAME #QuestionAskingMyself #AskingMySelf    
+Social post { https://autistics.life/@RoundSparrow/116239739429478328 https://bsky.app/profile/roundsparrow.bsky.social/post/3mh6u5llkvs23 }    
