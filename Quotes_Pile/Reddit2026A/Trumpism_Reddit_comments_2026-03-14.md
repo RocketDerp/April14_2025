@@ -186,3 +186,6 @@ https://old.reddit.com/r/nottheonion/comments/1rv97u1/us_is_allowing_iranian_oil
 
 3-word not even 140 character comment. The top upvoted most popular comment. Celebrating ignorance. https://en.wikipedia.org/wiki/Thought-terminating_clich%C3%A9 Twitter-thinking programmed Reddit mindsets. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING Surkov won since year 2013. SURKOVIAN_CHESS
 
+https://old.reddit.com/r/clevercomebacks/comments/1rvknl3/failed_to_tackle_domestic_pollution_trump_now/oatbkmp/
+
+EPSTEIN_FANDOM - of course, avoiding that Jen Senko needs to be repeated. Avoiding that Dr. Bandy X Lee needs to be repeated. That Trump needs to be removed from office needs to be repeated. MORE_THAN_EPSTEIN_NAME_DROPS - if people addressed the mental health issues of MAGA and Trump with intelligence, we might start to progress away from abusing age 13 girls. Anti-Malala anti-education anti-teaching society that favors repeating rich men private jets topics. Malala is giving voices to girls all over the planet, not just rich men.
