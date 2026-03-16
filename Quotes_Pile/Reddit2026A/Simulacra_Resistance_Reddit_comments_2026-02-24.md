@@ -323,3 +323,8 @@ This is not resisting ignorance, it is embracing Trump as a leader of ignorance.
 https://old.reddit.com/r/law/comments/1rv9ipu/trump_melts_down_at_supreme_court_justices_in/oar0q4u/
 
 Yes. There is no "mask". POTUS_TONY_CLIFTON_IGNORANCE there are performances and characters being played by Trump. Trump is an actor who is acting. Reddit is an audience who is consuming Trump content. This Reddit posting is not resisting social media Truth Social, it is programming minds on Reddit. SOCIAL_CULT_HATE_WATCHING_FANDOM
+
+https://old.reddit.com/r/stevehofstetter/comments/1rv93tj/give_this_some_serious_consideration/oaqt35t/
+
+Study the image of the posting. Deport MAGA messaging. BLOCK_HAPPY_DEPORT_HAPPY_SILENCE_POOR_PEOPLE_SILENCE_UPPITY - instead of focusing on the Reddit brain rot crisis of the entire population (everyone, 100%, age 12 to age 125, not just MAGA). This encourages ICE_FANDOM behaviors of deporting political opponents. This is not resisting brain rot, this is Reddit media consumers cheering on and celebrating brain rot. Observe the avoidance of nonfiction relevant books on paper by Dr. Bandy X. Lee.
+
