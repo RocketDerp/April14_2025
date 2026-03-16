@@ -173,3 +173,7 @@ Social post { https://autistics.life/@RoundSparrow/116239202153150350 https://bs
 https://old.reddit.com/r/politics/comments/1rv3ygn/donald_trump_stuns_with_maybe_we_shouldnt_even_be/oapujz4/
 
 10 month Reddit account. Front-page /r/All submitter. REDDIT_FRONT_PAGE_YOUNG_ACCOUNT Reddit is Trump fandom, attracted to Trump as clown to clown with on social media. FANATICS_FANS_OF_CLOWNS_FANS_OF_MAGA_CLOWNING
+
+https://old.reddit.com/r/politics/comments/1rv3ygn/donald_trump_stuns_with_maybe_we_shouldnt_even_be/oapuswm/
+
+10 month Reddit account. Front-page /r/All submitter. REDDIT_FRONT_PAGE_YOUNG_ACCOUNT Promotes on Reddit that Trump is hilarious source of entertainment and amusement. UNDERSTANDING_SURKOV_PUTINISM_TRUMPISM_HATE_HILARIOUS
