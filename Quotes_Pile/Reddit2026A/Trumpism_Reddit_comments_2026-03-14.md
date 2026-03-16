@@ -152,3 +152,17 @@ Top most upvoted popular comment. Donald Trump leads with ignorance and American
 https://old.reddit.com/r/politics/comments/1rv3ygn/donald_trump_stuns_with_maybe_we_shouldnt_even_be/oaptl13/
 
 Top-most upvoted popular comment. This comment in no way calls for Trump's removal or a Internet protest, Reddit blackout, etc. The most popular comment is tiny-short commentary. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING this is typical of Reddit commenting for a sports team (NFL, NBA) fandom or a YouTube influencer fandom. Not a democracy of We The People. There is a behavior here on Reddit of people tuned into reality TV and commenting on plot and story, not global war with real deaths. PRIORITIES_OF_THE_99_PERCENT_COMMENTING_MEDIA
+
+https://old.reddit.com/r/politics/comments/1rv3ygn/donald_trump_stuns_with_maybe_we_shouldnt_even_be/oapu3i1/
+
+Screenshot from 2026-03-16 06-45-51.png
+
+This comment says t all. But is entirely ignorant like the entire Reddit commenting section. CORE_CONCERNS SURKOV_MONOMYTH
+
+1. "chronic inconsistency of the man and his admin that makes it all so maddening" - SURKOV_SHUFFLE
+    * "what Putin will do next — that he’s unpredictable and thus dangerous. We’re rendered stunned, spun, and flummoxed by the Kremlin’s weaponization of absurdity and unreality.” - year 2014. September 9, 2014
+https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+2. "These people belong on a TV sitcom, not in the White House"
+   * https://www.politico.com/magazine/story/2015/01/putin-russia-tv-113960/
+At one end of the table sat one of the country’s most famous political TV presenters. He was small and spoke fast, with a smoky voice: “We all know there will be no real politics,” he said. “But we still have to give our viewers the sense something is happening. They need to be kept entertained.” “So what should we play with?” he asked. “Shall we attack oligarchs? Who’s the enemy this week? Politics has got to feel like a movie!”
