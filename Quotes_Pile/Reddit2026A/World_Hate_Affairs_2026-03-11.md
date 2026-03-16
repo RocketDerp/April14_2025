@@ -237,3 +237,5 @@ https://old.reddit.com/r/worldnews/comments/1rul6fl/iran_officially_confirms_mil
 https://old.reddit.com/r/news/comments/1run71r/netanyahu_posts_video_in_response_to_iran_rumours/oamit77/
 
 WIDE_RADICAL_DOUBT_ABOUT_REAL
+
+https://old.reddit.com/r/wallstreetbets/comments/1ruqe38/wsj_exclusive_trump_administration_plans_to/oan4y6q/
