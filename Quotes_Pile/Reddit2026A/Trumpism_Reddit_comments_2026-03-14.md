@@ -148,3 +148,7 @@ SOCIAL_CULT_HATE_WATCHING_FANDOM Imagine making stupid comments about one man fo
 https://old.reddit.com/r/law/comments/1rutokt/donald_trump_warns_nato_faces_very_bad_future_if/oantdsk/
 
 Top most upvoted popular comment. Donald Trump leads with ignorance and American people on social media upvote celebrations of ignorance. IGNORANCE_CELEBRATIONS Avoiding: Jen Senko, Dr. Bandy X Lee in favor of spending free time / spare time commenting about Trump's tantrums.
+
+https://old.reddit.com/r/politics/comments/1rv3ygn/donald_trump_stuns_with_maybe_we_shouldnt_even_be/oaptl13/
+
+Top-most upvoted popular comment. This comment in no way calls for Trump's removal or a Internet protest, Reddit blackout, etc. The most popular comment is tiny-short commentary. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING this is typical of Reddit commenting for a sports team (NFL, NBA) fandom or a YouTube influencer fandom. Not a democracy of We The People. There is a behavior here on Reddit of people tuned into reality TV and commenting on plot and story, not global war with real deaths. PRIORITIES_OF_THE_99_PERCENT_COMMENTING_MEDIA
