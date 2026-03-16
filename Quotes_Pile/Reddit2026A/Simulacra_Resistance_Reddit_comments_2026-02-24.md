@@ -334,6 +334,7 @@ https://old.reddit.com/r/stevehofstetter/comments/1rv93tj/give_this_some_serious
 
 Cheering on MAGA. MAGA_VALUES - cheering on taking guns and weapon systems to Iran and killing people in Iran. GUN_WORSHIP -this is typical Reddit fandom commenting, not resisting badness itself, not resisting the gun worship - but wishing to spread it all over Earth. We are far far far beyond satire and sarcasm, this is a Reddit cult of stupid dumb ideas (followers of MAGA on Reddit who are attracted to stupid ideas).
 
+NEW_OPERA_NAME #SarcasmWashing    
 Social post { https://autistics.life/@RoundSparrow/116239617586462104 https://bsky.app/profile/roundsparrow.bsky.social/post/3mh6scrmde22k }   
 
 See the reply message:
