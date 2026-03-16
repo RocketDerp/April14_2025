@@ -189,3 +189,15 @@ https://old.reddit.com/r/nottheonion/comments/1rv97u1/us_is_allowing_iranian_oil
 https://old.reddit.com/r/clevercomebacks/comments/1rvknl3/failed_to_tackle_domestic_pollution_trump_now/oatbkmp/
 
 EPSTEIN_FANDOM - of course, avoiding that Jen Senko needs to be repeated. Avoiding that Dr. Bandy X Lee needs to be repeated. That Trump needs to be removed from office needs to be repeated. MORE_THAN_EPSTEIN_NAME_DROPS - if people addressed the mental health issues of MAGA and Trump with intelligence, we might start to progress away from abusing age 13 girls. Anti-Malala anti-education anti-teaching society that favors repeating rich men private jets topics. Malala is giving voices to girls all over the planet, not just rich men.
+
+https://old.reddit.com/r/clevercomebacks/comments/1rvknl3/failed_to_tackle_domestic_pollution_trump_now/oat9ms0/
+
+<img width="1948" height="347" alt="image" src="https://github.com/user-attachments/assets/b2da3270-8c51-43b4-9d5e-eca5028bf6cf" />
+
+Even when Trump was out of office, voted out for 4 years and replaced by Biden, the low-information upvoters on Reddit https://en.wikipedia.org/wiki/Low_information_voter still mimicked and copy-cat Trump's ignorance. The entire society celebrating ignorance of Trump for jokes, memes, humor, comedy is sickening every hour of every day. So many media cults of stupid dumb Trump jokes. MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL 
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mh7nelk6e22u https://autistics.life/@RoundSparrow/116241514233647258 }   
+
+https://old.reddit.com/r/clevercomebacks/comments/1rvknl3/failed_to_tackle_domestic_pollution_trump_now/oatsyse/
+
+UNITED_IN_BLAMING_ONE_THIRD_HATE_VS_HATE_ANTI_RESCUE
