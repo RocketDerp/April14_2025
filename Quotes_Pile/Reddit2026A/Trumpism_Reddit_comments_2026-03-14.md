@@ -196,6 +196,7 @@ https://old.reddit.com/r/clevercomebacks/comments/1rvknl3/failed_to_tackle_domes
 
 Even when Trump was out of office, voted out for 4 years and replaced by Biden, the low-information upvoters on Reddit https://en.wikipedia.org/wiki/Low_information_voter still mimicked and copy-cat Trump's ignorance. The entire society celebrating ignorance of Trump for jokes, memes, humor, comedy is sickening every hour of every day. So many media cults of stupid dumb Trump jokes. MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL 
 
+NEW_OPERA_NAME #IgnoranceLeaders    
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mh7nelk6e22u https://autistics.life/@RoundSparrow/116241514233647258 }   
 
 https://old.reddit.com/r/clevercomebacks/comments/1rvknl3/failed_to_tackle_domestic_pollution_trump_now/oatsyse/
