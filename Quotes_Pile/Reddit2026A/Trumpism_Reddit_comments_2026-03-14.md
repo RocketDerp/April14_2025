@@ -132,3 +132,7 @@ https://old.reddit.com/r/AskSocialists/comments/1rucofn/israel_is_going_to_do_a_
 https://old.reddit.com/r/news/comments/1rsjpz2/china_says_it_will_donate_250000_to_families_of/oa7bz4m/
 
 CONSERVING_WHAT exactly? So much brain rot of conservative vs. liberals. Fiction vs. nonfiction explains much more. People believe fiction storytelling of Eden and Heaven after death in Bible, fiction storytelling in Reddit comments, Twitter messages of fiction, etc.
+
+https://old.reddit.com/r/pics/comments/1rusein/trump_spotted_at_a_miami_golf_course_as_iran_war/oanlyik/
+
+TRUMP_FANDOM top most-upvoted popular comment on a fresh new image of Donald Trump! Observe: no call for Reddit blackout to end war or remove Trump from office. Avoidance of non-fiction from Dr. Bandy X Lee and Jen Senko... instead, hate-watching fandom on Reddit instantly gets smartphone notifications of fresh Trump photos to engage.
