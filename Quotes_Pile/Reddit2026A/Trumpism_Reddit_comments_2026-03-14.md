@@ -177,3 +177,7 @@ https://old.reddit.com/r/politics/comments/1rv3ygn/donald_trump_stuns_with_maybe
 https://old.reddit.com/r/politics/comments/1rv3ygn/donald_trump_stuns_with_maybe_we_shouldnt_even_be/oapuswm/
 
 10 month Reddit account. Front-page /r/All submitter. REDDIT_FRONT_PAGE_YOUNG_ACCOUNT Promotes on Reddit that Trump is hilarious source of entertainment and amusement. UNDERSTANDING_SURKOV_PUTINISM_TRUMPISM_HATE_HILARIOUS
+
+https://old.reddit.com/r/okbuddycinephile/comments/1rv711d/i_would_like_to_dedicate_this_honor_to_the/oaqm4ce/
+
+We lost the WAR_AGAINST_REALITY in USA. Surkov won since March of year 2013.
