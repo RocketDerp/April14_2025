@@ -313,3 +313,10 @@ MISINFORMATION_SYSTEMS about Texas. I still have the 2024 story on front page ab
 https://old.reddit.com/r/technology/comments/1rv7ggi/another_internet_is_possible_norway_rails_against/oaqgy5b/
 
 Top most upvoted popular comment IS enshitification. It is "social media engagement" of asking questions. 140 characters or less. This most-popular comment educates nothing, it teaches nothing, it just creates messages for low-information upvoting. https://en.wikipedia.org/wiki/Low_information_voter Reddit prizes shit-commenting and shit-postings. ATTRACTION_TO_SHIT_CONTENT_ENSHIT_BY_DESIRE
+
+https://old.reddit.com/r/law/comments/1rv9ipu/trump_melts_down_at_supreme_court_justices_in/oaqvrgp/
+
+The top most upvoted comment is a Trump image. Fandom behaviors. This most-popular comment educates nothing, it teaches nothing, it just creates messages for low-information upvoting. https://en.wikipedia.org/wiki/Low_information_voter Reddit prizes shit-commenting and shit-postings. REPUBLICANS_LEAD_WITH_IGNORANCE_IDEAS_AND_FOLLOWERS_REPLY_WITH_IGNORANCE
+
+This is not resisting ignorance, it is embracing Trump as a leader of ignorance.
+
