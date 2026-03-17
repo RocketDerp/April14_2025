@@ -272,3 +272,11 @@ https://old.reddit.com/r/worldnews/comments/1rvzout/india_slams_pakistan_over_ai
 https://old.reddit.com/r/EnterShikari/comments/1rvr5tp/trying_to_find_bands_explanation_of_the_logo/oauozxa/
 
 CORE_CONCERNS
+
+https://old.reddit.com/r/worldnews/comments/1rw1v5v/iran_renews_attacks_on_us_gulf_allies_trump_says/oax6qnx/
+
+Trump is attracted to Twitter-length 140 character reaction thinking patterns. Even when he uses more words than that, the mindset is reactionary generating. People on Reddit can not resist talking about how stupid and dumb Trump is when the entire nation has become dumb. DUMB_STUPID_IDIOT_MORON_RETARDED_OTHERS
+
+https://old.reddit.com/r/worldnews/comments/1rw1v5v/iran_renews_attacks_on_us_gulf_allies_trump_says/oay0at7/
+
+Exactly. Smartphones have made everybody in USA dumber and attracted to Trump as a source of jokes, comedy, amusement, insulting, memes. AMUSEMENT_COMEDY_WASHING_TRUMP_AS_FUNNY_MEDIA_SANEWASHING
