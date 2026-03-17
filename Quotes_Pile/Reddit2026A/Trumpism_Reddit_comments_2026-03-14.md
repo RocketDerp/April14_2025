@@ -286,3 +286,7 @@ https://old.reddit.com/r/worldnews/comments/1rwcnga/we_do_not_need_the_help_of_a
 https://old.reddit.com/r/worldnews/comments/1rwcnga/we_do_not_need_the_help_of_anyone_trump_rages/oaypcw8/
 
 Reddit commenting community entertainment-washes joke-washes Trump. Constantly stimulated Reddit audience. Trump provides unique style and fashion of content. AMUSEMENT_COMEDY_WASHING_TRUMP_AS_FUNNY_MEDIA_SANEWASHING
+
+https://old.reddit.com/r/news/comments/1rw9cv0/us_says_it_may_be_forced_to_shut_down_some/oay06t1/
+
+Ignorant thinking behind ignorant comments is what is "winning", dominating society. Twitter-think meme thinking mindsets. PROMOTING_IGNORANCE_WORKS_PLAYING_DUMB_MOCKING
