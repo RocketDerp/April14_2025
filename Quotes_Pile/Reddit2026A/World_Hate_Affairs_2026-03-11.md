@@ -256,3 +256,7 @@ https://old.reddit.com/r/europe/comments/1rv9p2p/boris_pistorius_german_defense_
 
 NEW_OPERA_NAME #QuestionAskingMyself #AskingMySelf    
 Social post { https://autistics.life/@RoundSparrow/116239739429478328 https://bsky.app/profile/roundsparrow.bsky.social/post/3mh6u5llkvs23 }    
+
+https://old.reddit.com/r/worldnews/comments/1rw26ik/israel_confirms_larijani_killed_in_tehran_safe/oaxhs0b/
+
+EPSTEIN_BUT_NOT_PUTIN_UKRAINE_CHILDREN_NOT_MALALA
