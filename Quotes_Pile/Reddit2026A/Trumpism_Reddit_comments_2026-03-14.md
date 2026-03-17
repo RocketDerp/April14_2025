@@ -278,3 +278,11 @@ YOU_MUST_HATE_EX_LOVERS - which is why my attitude towards marriage is very diff
 https://old.reddit.com/r/worldnews/comments/1rw1v5v/iran_renews_attacks_on_us_gulf_allies_trump_says/oawpkgu/
 
 Congrats. Celebrating ignorance. IGNORANCE_CELEBRATIONS notice all the talk of Trump's mental disorder by no mention of Dr. Bandy X Lee's nonfiction book from October 3, 2017. People do not see that Reddit itself craves the mocking Trump cultivates and is not seeing the ignorance as a total nation of people. Not just one single man.
+
+https://old.reddit.com/r/worldnews/comments/1rwcnga/we_do_not_need_the_help_of_anyone_trump_rages/oayppa4/
+
+https://old.reddit.com/r/worldnews/comments/1rwcnga/we_do_not_need_the_help_of_anyone_trump_rages/oaypnwx/
+
+https://old.reddit.com/r/worldnews/comments/1rwcnga/we_do_not_need_the_help_of_anyone_trump_rages/oaypcw8/
+
+Reddit commenting community entertainment-washes joke-washes Trump. Constantly stimulated Reddit audience. Trump provides unique style and fashion of content. AMUSEMENT_COMEDY_WASHING_TRUMP_AS_FUNNY_MEDIA_SANEWASHING
