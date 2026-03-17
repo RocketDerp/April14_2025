@@ -220,3 +220,10 @@ https://old.reddit.com/r/Fauxmoi/comments/1rvnfbc/trump_ill_have_the_honor_of_ta
 https://old.reddit.com/r/Fauxmoi/comments/1rvnfbc/trump_ill_have_the_honor_of_taking_cuba_that/oatrba4/
 
 14 day
+
+https://old.reddit.com/r/worldnews/comments/1rvmcaj/trump_says_he_thinks_he_will_have_the_honor_of/oatiw1m/
+
+https://old.reddit.com/r/worldnews/comments/1rvmcaj/trump_says_he_thinks_he_will_have_the_honor_of/oatkfef/
+
+https://old.reddit.com/r/worldnews/comments/1rvmcaj/trump_says_he_thinks_he_will_have_the_honor_of/oatl0m0/
+
