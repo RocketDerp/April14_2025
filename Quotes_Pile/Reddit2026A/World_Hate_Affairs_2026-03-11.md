@@ -299,3 +299,4 @@ https://old.reddit.com/r/politics/comments/1rwcjn6/half_of_americans_believe_tru
 
 https://old.reddit.com/r/politics/comments/1rwcjn6/half_of_americans_believe_trump_bombed_iran/oayq1b0/
 
+https://old.reddit.com/r/politics/comments/1rwcjn6/half_of_americans_believe_trump_bombed_iran/oayy9eg/
