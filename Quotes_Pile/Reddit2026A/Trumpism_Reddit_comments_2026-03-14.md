@@ -252,3 +252,5 @@ https://old.reddit.com/r/politics/comments/1rvslt2/delusional_trump_79_falsely_c
 And the whole idea that Trump claims he knew 9/11 ... so it was an inside business deal? Not "inside government", but business men in NYC allowed it and wanted it? 
 
 https://old.reddit.com/r/law/comments/1rw690b/pete_hegseth_likely_just_broke_federal_and/oaxdlf5/
+
+https://old.reddit.com/r/KpopDemonhunters/comments/1rw4mp1/thats_our_girl/oaxfxbg/
