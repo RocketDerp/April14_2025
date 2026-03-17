@@ -294,3 +294,5 @@ Ignorant thinking behind ignorant comments is what is "winning", dominating soci
 https://old.reddit.com/r/news/comments/1rw9cv0/us_says_it_may_be_forced_to_shut_down_some/oay2q7q/
 
 The entire nation, including Trump and White House, needs to be rescued from media mania. The addiction to ignorance and feedback looping said ignorance. SCHOOLS_OF_THOUGHT_FEEDBACK_LOOPS_INSIDE_BOXED_MINDSETS
+
+https://old.reddit.com/r/politics/comments/1rwcjn6/half_of_americans_believe_trump_bombed_iran/oaywbi6/
