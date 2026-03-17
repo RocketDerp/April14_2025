@@ -273,3 +273,5 @@ https://old.reddit.com/r/PeterExplainsTheJoke/comments/1rv5qu2/petaj/oaq4d4x/
 https://old.reddit.com/r/mildlyinteresting/comments/1rvm178/honey_can_be_green_i_got_this_yesterday_at_a/oatti88/
 
 MEDIA_ECOLOGY_OBSERVATION it is simply faster, quicker to write a comment and not bother reading the existing 200 comments. It's a time-based Reddit, as Reddit platform ages out content for the next empty posting.
+
+https://old.reddit.com/r/pcmasterrace/comments/1rw29b7/thanks_nvidia/oawwnh6/
