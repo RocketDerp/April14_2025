@@ -262,3 +262,7 @@ https://old.reddit.com/r/news/comments/1rw78jg/us_national_counterterrorism_cent
 https://old.reddit.com/r/news/comments/1rw78jg/us_national_counterterrorism_center_director/oaxwp0v/
 
 Reality is so muddled now that doubt and nonsense are key engagement. Surkov won.
+
+https://old.reddit.com/r/news/comments/1rw78jg/us_national_counterterrorism_center_director/oaxu208/
+
+vibe everything. Marshall McLuhan was putting it into words in the 1950's and 1960's how people are vibe-driven.
