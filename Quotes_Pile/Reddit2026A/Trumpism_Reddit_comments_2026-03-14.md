@@ -243,3 +243,6 @@ The Reddit commenting seems to overlook elephants in the room: why elections cos
 
 We frankly treat love like trash and all fall in love with sports stars ans actors and rich people. We fall in love with the 1% and it truly isn't enjoyable and we just don't take serious that our minds were not made for recorded audio and video and photographs. We are attracted to images and parasocial relationships. And we aren't educating and teaching goodness out of some sick competitive mindset.COLLECTIVELY_INTELLIGENT_PLURIBUS_LEARNING
 
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1rw1uqm/young_trump_voters_expected_life_to_improve_but/oawix7q/
+
+The abandonment of serious nonfiction books is wrecking far more than just government.
