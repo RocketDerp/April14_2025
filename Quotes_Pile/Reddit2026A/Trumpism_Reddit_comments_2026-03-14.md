@@ -304,3 +304,7 @@ It is far far far worse. Since year 2014, the total American population decided 
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1rwciss/who_wants_to_tell_him/oaz3kem/
 
 OBSERVE: the absence of REDDIT_BLACKOUT by We The People on social media. There has been no social media protesting that has made headlines. Reddit community has had blackouts on other topics, but not Trump. People on Reddit are far too addicted to images of Donald Trump to mock and insult.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rwciss/who_wants_to_tell_him/oayr8uw/
+
+The attraction that Reddit community has to Trump. Trump leads with mocking, Reddit community follows Trump. ATTRACTION_TO_SHIT_CONTENT_ENSHIT_BY_DESIRE
