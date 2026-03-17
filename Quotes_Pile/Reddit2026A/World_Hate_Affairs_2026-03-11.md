@@ -294,3 +294,8 @@ https://old.reddit.com/r/politics/comments/1rwcjn6/half_of_americans_believe_tru
 https://old.reddit.com/r/politics/comments/1rwcjn6/half_of_americans_believe_trump_bombed_iran/oazdj3u/
 
 https://old.reddit.com/r/politics/comments/1rwcjn6/half_of_americans_believe_trump_bombed_iran/oayutgr/
+
+https://old.reddit.com/r/politics/comments/1rwcjn6/half_of_americans_believe_trump_bombed_iran/oayw9x1/
+
+https://old.reddit.com/r/politics/comments/1rwcjn6/half_of_americans_believe_trump_bombed_iran/oayq1b0/
+
