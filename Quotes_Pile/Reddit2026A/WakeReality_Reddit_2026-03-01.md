@@ -101,3 +101,7 @@ A shorter version of my reply comment seems to have been published:
 https://old.reddit.com/r/jamesjoyce/comments/1renl91/why_do_most_copies_of_finnegans_wake_start_on/oas1c01/
 
 not-censored comment of mine.
+
+https://old.reddit.com/r/jamesjoyce/comments/1rv8lba/im_in_love_with_molly_bloom_am_i_the_only_one/oauwvh6/
+
+My comment concerning Love Molly fiction.
