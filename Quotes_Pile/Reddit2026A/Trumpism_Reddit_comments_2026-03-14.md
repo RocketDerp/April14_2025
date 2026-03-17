@@ -230,3 +230,9 @@ https://old.reddit.com/r/worldnews/comments/1rvmcaj/trump_says_he_thinks_he_will
 https://old.reddit.com/r/technology/comments/1rvzbqw/peter_thiel_is_actively_convincing_billionaires/oaw776m/
 
 https://old.reddit.com/r/technology/comments/1rvzbqw/peter_thiel_is_actively_convincing_billionaires/oaw36ti/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rvud4i/newsom_responds_to_trump_calling_him_president/oaw77gg/
+
+At least someone on Reddit can escape the RECENCY_BIAS / DEMENTIA_WASHING
+
+Having dementia is not illegal or unethical. The war with Iran is bad. Health care policy is bad. The anti-science pro-pollution is bad. Putin is bad, trusting Putin is bad.
