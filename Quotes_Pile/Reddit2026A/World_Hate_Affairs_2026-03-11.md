@@ -264,3 +264,11 @@ EPSTEIN_BUT_NOT_PUTIN_UKRAINE_CHILDREN_NOT_MALALA
 https://old.reddit.com/r/worldnews/comments/1rw26ik/israel_confirms_larijani_killed_in_tehran_safe/oaxu56z/
 
 MONOMYTH_VS_MONOMYTH
+
+https://old.reddit.com/r/worldnews/comments/1rvzout/india_slams_pakistan_over_airstrikes_in_kabul/oaw5bgu/
+
+https://old.reddit.com/r/worldnews/comments/1rvzout/india_slams_pakistan_over_airstrikes_in_kabul/oax5h7r/
+
+https://old.reddit.com/r/EnterShikari/comments/1rvr5tp/trying_to_find_bands_explanation_of_the_logo/oauozxa/
+
+CORE_CONCERNS
