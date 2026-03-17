@@ -280,3 +280,7 @@ Trump is attracted to Twitter-length 140 character reaction thinking patterns. E
 https://old.reddit.com/r/worldnews/comments/1rw1v5v/iran_renews_attacks_on_us_gulf_allies_trump_says/oay0at7/
 
 Exactly. Smartphones have made everybody in USA dumber and attracted to Trump as a source of jokes, comedy, amusement, insulting, memes. AMUSEMENT_COMEDY_WASHING_TRUMP_AS_FUNNY_MEDIA_SANEWASHING
+
+https://old.reddit.com/r/worldnews/comments/1rvbc60/zelensky_says_putin_is_making_billions_from/oar9jow/
+
+1 month Reddit account. Most-popular upvoted comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
