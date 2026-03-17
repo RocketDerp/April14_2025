@@ -254,3 +254,5 @@ And the whole idea that Trump claims he knew 9/11 ... so it was an inside busine
 https://old.reddit.com/r/law/comments/1rw690b/pete_hegseth_likely_just_broke_federal_and/oaxdlf5/
 
 https://old.reddit.com/r/KpopDemonhunters/comments/1rw4mp1/thats_our_girl/oaxfxbg/
+
+https://old.reddit.com/r/news/comments/1rw78jg/us_national_counterterrorism_center_director/oaxkcs5/
