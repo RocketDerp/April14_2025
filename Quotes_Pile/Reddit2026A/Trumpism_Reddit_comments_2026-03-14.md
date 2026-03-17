@@ -246,3 +246,7 @@ We frankly treat love like trash and all fall in love with sports stars ans acto
 https://old.reddit.com/r/LeopardsAteMyFace/comments/1rw1uqm/young_trump_voters_expected_life_to_improve_but/oawix7q/
 
 The abandonment of serious nonfiction books is wrecking far more than just government.
+
+https://old.reddit.com/r/politics/comments/1rvslt2/delusional_trump_79_falsely_claims_he_predicted/oauvm7m/
+
+And the whole idea that Trump claims he knew 9/11 ... so it was an inside business deal? Not "inside government", but business men in NYC allowed it and wanted it? 
