@@ -228,3 +228,5 @@ https://old.reddit.com/r/worldnews/comments/1rvmcaj/trump_says_he_thinks_he_will
 https://old.reddit.com/r/worldnews/comments/1rvmcaj/trump_says_he_thinks_he_will_have_the_honor_of/oatl0m0/
 
 https://old.reddit.com/r/technology/comments/1rvzbqw/peter_thiel_is_actively_convincing_billionaires/oaw776m/
+
+https://old.reddit.com/r/technology/comments/1rvzbqw/peter_thiel_is_actively_convincing_billionaires/oaw36ti/
