@@ -110,3 +110,21 @@ https://old.reddit.com/r/wakepod/comments/1rvhgci/wake_cold_reading_finnegans_wa
 
 PLURIBUS! PLUR1BUS! COLLECTIVELY_INTELLIGENT_PLURIBUS_LEARNING
 
+
+
+https://old.reddit.com/r/Damnthatsinteresting/comments/1rw7e0x/newly_discovered_papyrus_scrolls_tell_the_story/oay6qik/
+
+https://old.reddit.com/r/Damnthatsinteresting/comments/1rw7e0x/newly_discovered_papyrus_scrolls_tell_the_story/oay314f/
+
+https://old.reddit.com/r/Damnthatsinteresting/comments/1rw7e0x/newly_discovered_papyrus_scrolls_tell_the_story/oaxpld0/
+
+MEDIA_ECOLOGY_OBSERVATION
+
+https://old.reddit.com/r/Damnthatsinteresting/comments/1rw7e0x/newly_discovered_papyrus_scrolls_tell_the_story/oaxowrq/
+
+https://old.reddit.com/r/Damnthatsinteresting/comments/1rw7e0x/newly_discovered_papyrus_scrolls_tell_the_story/oaxz8is/
+
+https://old.reddit.com/r/Damnthatsinteresting/comments/1rw7e0x/newly_discovered_papyrus_scrolls_tell_the_story/oaxognq/
+
+https://old.reddit.com/r/Damnthatsinteresting/comments/1rw7e0x/newly_discovered_papyrus_scrolls_tell_the_story/oaxvou6/
+
