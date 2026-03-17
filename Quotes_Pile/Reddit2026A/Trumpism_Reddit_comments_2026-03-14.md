@@ -210,3 +210,13 @@ https://old.reddit.com/r/clevercomebacks/comments/1rvknl3/failed_to_tackle_domes
 "honestly feels like we're in the worst choose your own adventure book ever" - TRUMP_ARG NEW_ARG_PRIMARY_KEY 2026-03-16 THIS_GITHUB
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mh7pf4aeh22v https://autistics.life/@RoundSparrow/116241665008222565 }    
+
+https://old.reddit.com/r/Fauxmoi/comments/1rvnfbc/trump_ill_have_the_honor_of_taking_cuba_that/oatqms7/
+
+https://old.reddit.com/r/Fauxmoi/comments/1rvnfbc/trump_ill_have_the_honor_of_taking_cuba_that/oatqjaj/
+
+7 months
+
+https://old.reddit.com/r/Fauxmoi/comments/1rvnfbc/trump_ill_have_the_honor_of_taking_cuba_that/oatrba4/
+
+14 day
