@@ -260,3 +260,7 @@ Social post { https://autistics.life/@RoundSparrow/116239739429478328 https://bs
 https://old.reddit.com/r/worldnews/comments/1rw26ik/israel_confirms_larijani_killed_in_tehran_safe/oaxhs0b/
 
 EPSTEIN_BUT_NOT_PUTIN_UKRAINE_CHILDREN_NOT_MALALA
+
+https://old.reddit.com/r/worldnews/comments/1rw26ik/israel_confirms_larijani_killed_in_tehran_safe/oaxu56z/
+
+MONOMYTH_VS_MONOMYTH
