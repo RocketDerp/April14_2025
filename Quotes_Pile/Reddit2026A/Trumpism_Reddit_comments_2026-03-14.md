@@ -271,3 +271,6 @@ https://old.reddit.com/r/news/comments/1rw78jg/us_national_counterterrorism_cent
 
 https://old.reddit.com/r/comicsbyhumans/comments/1rw5upp/death_of_a_president/oaxj699/
 
+https://old.reddit.com/r/worldnews/comments/1rw1v5v/iran_renews_attacks_on_us_gulf_allies_trump_says/oaxfhwm/
+
+YOU_MUST_HATE_EX_LOVERS - which is why my attitude towards marriage is very different from most people. I think, like Trump, it ignorance and misunderstanding explains much more than any concept of "fun" that there is in harming other people. Even Russia under Surkov and Putin I think is all based on terrible understandings of love. Like taking those romances during wartime as some great contrast that hate needs to be all around for people to find one flower growing in the poison land.
