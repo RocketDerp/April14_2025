@@ -105,3 +105,8 @@ not-censored comment of mine.
 https://old.reddit.com/r/jamesjoyce/comments/1rv8lba/im_in_love_with_molly_bloom_am_i_the_only_one/oauwvh6/
 
 My comment concerning Love Molly fiction.
+
+https://old.reddit.com/r/wakepod/comments/1rvhgci/wake_cold_reading_finnegans_wake_episode_41/oav0udn/
+
+PLURIBUS! PLUR1BUS! COLLECTIVELY_INTELLIGENT_PLURIBUS_LEARNING
+
