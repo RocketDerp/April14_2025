@@ -278,3 +278,6 @@ https://old.reddit.com/r/pcmasterrace/comments/1rw29b7/thanks_nvidia/oawwnh6/
 
 https://old.reddit.com/r/pcmasterrace/comments/1rw29b7/thanks_nvidia/oax8dfy/
 
+https://old.reddit.com/r/Millennials/comments/1rw74pz/someone_brought_up_that_one_of_the_reasons_why/oaxuwl4/
+
+People are self-harm on a national scale now. Twitter-thinking took over since year 2013. Surkov won. SELF_HARM_USA
