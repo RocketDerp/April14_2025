@@ -300,3 +300,23 @@ https://old.reddit.com/r/politics/comments/1rwcjn6/half_of_americans_believe_tru
 https://old.reddit.com/r/politics/comments/1rwcjn6/half_of_americans_believe_trump_bombed_iran/oayq1b0/
 
 https://old.reddit.com/r/politics/comments/1rwcjn6/half_of_americans_believe_trump_bombed_iran/oayy9eg/
+
+https://old.reddit.com/r/worldnews/comments/1rw9fjg/france_will_never_take_part_in_operations_to/oazitdc/
+
+https://old.reddit.com/r/worldnews/comments/1rw9fjg/france_will_never_take_part_in_operations_to/oay79w0/
+
+"unreal"
+
+https://old.reddit.com/r/worldnews/comments/1rw9fjg/france_will_never_take_part_in_operations_to/oay65p5/
+
+DECEMBER_5_2014_NATO_JOKE_ARTICLE_5_JOKE
+
+https://old.reddit.com/r/worldnews/comments/1rw9fjg/france_will_never_take_part_in_operations_to/oay1hdr/
+
+https://old.reddit.com/r/worldnews/comments/1rw9fjg/france_will_never_take_part_in_operations_to/oaycme4/
+
+https://old.reddit.com/r/worldnews/comments/1rw9fjg/france_will_never_take_part_in_operations_to/oay62nf/
+
+https://old.reddit.com/r/worldnews/comments/1rw9fjg/france_will_never_take_part_in_operations_to/oayprsm/
+
+"insane" AVOIDED_DR_BANDY_X_LEE_PUBLIC_WRITINGS
