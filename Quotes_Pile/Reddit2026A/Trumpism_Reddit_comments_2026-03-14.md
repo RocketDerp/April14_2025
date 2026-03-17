@@ -256,3 +256,9 @@ https://old.reddit.com/r/law/comments/1rw690b/pete_hegseth_likely_just_broke_fed
 https://old.reddit.com/r/KpopDemonhunters/comments/1rw4mp1/thats_our_girl/oaxfxbg/
 
 https://old.reddit.com/r/news/comments/1rw78jg/us_national_counterterrorism_center_director/oaxkcs5/
+
+https://old.reddit.com/r/news/comments/1rw78jg/us_national_counterterrorism_center_director/oaxwco6/
+
+https://old.reddit.com/r/news/comments/1rw78jg/us_national_counterterrorism_center_director/oaxwp0v/
+
+Reality is so muddled now that doubt and nonsense are key engagement. Surkov won.
