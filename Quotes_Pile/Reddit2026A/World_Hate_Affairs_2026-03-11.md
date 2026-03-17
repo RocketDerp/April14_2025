@@ -284,3 +284,13 @@ Exactly. Smartphones have made everybody in USA dumber and attracted to Trump as
 https://old.reddit.com/r/worldnews/comments/1rvbc60/zelensky_says_putin_is_making_billions_from/oar9jow/
 
 1 month Reddit account. Most-popular upvoted comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+
+https://old.reddit.com/r/politics/comments/1rwcjn6/half_of_americans_believe_trump_bombed_iran/oayske0/
+
+https://old.reddit.com/r/politics/comments/1rwcjn6/half_of_americans_believe_trump_bombed_iran/oayr019/
+
+7 months Reddit account.
+
+https://old.reddit.com/r/politics/comments/1rwcjn6/half_of_americans_believe_trump_bombed_iran/oazdj3u/
+
+https://old.reddit.com/r/politics/comments/1rwcjn6/half_of_americans_believe_trump_bombed_iran/oayutgr/
