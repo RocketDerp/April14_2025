@@ -268,3 +268,6 @@ https://old.reddit.com/r/news/comments/1rw78jg/us_national_counterterrorism_cent
 vibe everything. Marshall McLuhan was putting it into words in the 1950's and 1960's how people are vibe-driven.
 
 https://old.reddit.com/r/news/comments/1rw78jg/us_national_counterterrorism_center_director/oaxmztz/
+
+https://old.reddit.com/r/comicsbyhumans/comments/1rw5upp/death_of_a_president/oaxj699/
+
