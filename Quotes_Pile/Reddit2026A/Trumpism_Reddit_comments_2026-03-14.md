@@ -311,4 +311,8 @@ The attraction that Reddit community has to Trump. Trump leads with mocking, Red
 
 https://old.reddit.com/r/videos/comments/1rx2qid/threetime_pennsylvania_trump_voter_at_gas_station/ob3xhg1/
 
-IGNORANCE_CELEBRATIONS Top most upvoted popular comment. OBSERVE: Reddit sin't calling for online protesting and blackout, intellectual uprising. Dr. Bandy X Lee and Jen Senko should be constant topics of discussion about mental health and brainwashing.
+IGNORANCE_CELEBRATIONS Top most upvoted popular comment. OBSERVE: Reddit sin't calling for online protesting and blackout, intellectual uprising. Dr. Bandy X Lee and Jen Senko should be constant topics of discussion about mental health and brainwashing. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
+
+https://old.reddit.com/r/videos/comments/1rx2qid/threetime_pennsylvania_trump_voter_at_gas_station/ob3wvne/
+
+More celebration of ignorance as a source of mocking and amusement. REPUBLICANS_LEAD_WITH_IGNORANCE_IDEAS_AND_FOLLOWERS_REPLY_WITH_IGNORANCE
