@@ -320,3 +320,5 @@ https://old.reddit.com/r/worldnews/comments/1rw9fjg/france_will_never_take_part_
 https://old.reddit.com/r/worldnews/comments/1rw9fjg/france_will_never_take_part_in_operations_to/oayprsm/
 
 "insane" AVOIDED_DR_BANDY_X_LEE_PUBLIC_WRITINGS
+
+https://old.reddit.com/r/worldnews/comments/1rwtgqh/iran_strikes_tel_aviv_with_cluster_warheads_in/ob2k2dy/
