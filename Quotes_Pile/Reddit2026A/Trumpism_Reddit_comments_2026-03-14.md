@@ -308,3 +308,7 @@ OBSERVE: the absence of REDDIT_BLACKOUT by We The People on social media. There 
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1rwciss/who_wants_to_tell_him/oayr8uw/
 
 The attraction that Reddit community has to Trump. Trump leads with mocking, Reddit community follows Trump. ATTRACTION_TO_SHIT_CONTENT_ENSHIT_BY_DESIRE
+
+https://old.reddit.com/r/videos/comments/1rx2qid/threetime_pennsylvania_trump_voter_at_gas_station/ob3xhg1/
+
+IGNORANCE_CELEBRATIONS Top most upvoted popular comment. OBSERVE: Reddit sin't calling for online protesting and blackout, intellectual uprising. Dr. Bandy X Lee and Jen Senko should be constant topics of discussion about mental health and brainwashing.
