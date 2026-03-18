@@ -316,3 +316,7 @@ IGNORANCE_CELEBRATIONS Top most upvoted popular comment. OBSERVE: Reddit sin't c
 https://old.reddit.com/r/videos/comments/1rx2qid/threetime_pennsylvania_trump_voter_at_gas_station/ob3wvne/
 
 More celebration of ignorance as a source of mocking and amusement. REPUBLICANS_LEAD_WITH_IGNORANCE_IDEAS_AND_FOLLOWERS_REPLY_WITH_IGNORANCE
+
+https://old.reddit.com/r/videos/comments/1rx2qid/threetime_pennsylvania_trump_voter_at_gas_station/ob408ak/
+
+BRAIN_ROT_LEFT_RIGHT_LIB_CON_NAME_AVOIDANCE why you should name a list of values and abandon left vs. right brain rot.
