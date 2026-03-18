@@ -35,3 +35,11 @@ Another_Word_For_Mob_Mentality.md
 #MoronsAvoidNonfiction  
 #MoronsAvoidRelevantNonfiction   
 
+&nbsp;
+
+# Those That Hate
+
+NEW_OPERA_NAME #ThoseThatHate     
+https://autistics.life/@RoundSparrow/116252083265436237    
+https://bsky.app/profile/roundsparrow.bsky.social/post/3mhedjctepk26    
+
