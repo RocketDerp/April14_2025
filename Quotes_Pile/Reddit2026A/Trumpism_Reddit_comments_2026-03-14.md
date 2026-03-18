@@ -320,3 +320,8 @@ More celebration of ignorance as a source of mocking and amusement. REPUBLICANS_
 https://old.reddit.com/r/videos/comments/1rx2qid/threetime_pennsylvania_trump_voter_at_gas_station/ob408ak/
 
 BRAIN_ROT_LEFT_RIGHT_LIB_CON_NAME_AVOIDANCE why you should name a list of values and abandon left vs. right brain rot.
+
+https://old.reddit.com/r/videos/comments/1rx2qid/threetime_pennsylvania_trump_voter_at_gas_station/ob3xv3p/
+
+"LMFAO!!!" - Liberal laughs. So fucking predictable. MAGA_FANDOM as a source of comedy. People don't want to address the widespread adult ignorance and thinking problems in USA, they want to laugh about it. LIBERAL_LAUGHS_LIBERAL_TEARS_COMPULSIVE_MAGA_FOLLOWERS
+
