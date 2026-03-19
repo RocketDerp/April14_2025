@@ -334,3 +334,9 @@ https://old.reddit.com/r/worldnews/comments/1ry51q8/trump_says_not_putting_us_tr
 https://old.reddit.com/r/worldnews/comments/1ry51q8/trump_says_not_putting_us_troops_in_region_amid/obbv7ah/
 
 SURKOV_WARFARE but no naming, no off-Reddit URL, no quotes, no author name.
+
+https://old.reddit.com/r/law/comments/1ry6rjb/patel_says_fbi_agents_who_worked_maralago_case/obco79f/
+
+SURKOVIAN_CHESS
+
+* "I try to protest — but they just smile and pity me. To believe in something and stand by it in this world is derided, **the ability to be a shape-shifter celebrated**. Vladimir Nabokov once described a species of butterfly that at an early stage in its development had to learn how to change colors to hide from predators. The butterfly’s predators had long died off, but still it changed its colors from the sheer pleasure of transformation. Something similar has happened to the Russian elites: during the Soviet period they learned to dissimulate in order to survive; now there is no need to constantly change their colors, but they continue to do so out of a sort of dark joy, conformism raised to the level of aesthetic act. Surkov himself is the ultimate expression of this psychology." ― Peter Pomerantsev, Nothing Is True and Everything Is Possible: The Surreal Heart of the New Russia. Year 2014.
