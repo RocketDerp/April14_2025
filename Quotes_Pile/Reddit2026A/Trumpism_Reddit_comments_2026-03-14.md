@@ -360,3 +360,8 @@ https://old.reddit.com/r/politics/comments/1rxzbdh/dear_allies_of_america_please
 <img width="1198" height="351" alt="image" src="https://github.com/user-attachments/assets/1c9c0eca-55f9-4335-9eb2-82af6e827ac6" />
 
 Social post { https://autistics.life/@RoundSparrow/116256635758034971 https://bsky.app/profile/roundsparrow.bsky.social/post/3mhge7hhesk27 }   
+
+https://old.reddit.com/r/politics/comments/1rxzbdh/dear_allies_of_america_please_dont_confuse_our/obasgop/
+
+I left for 12 months to live in South America in 2004. Left for years with my second marriage / Arab Spring 2010. My experience fits what https://www.youtube.com/watch?v=5Au332OG-M4 Peter Pomerantsev describes after Arab Spring in year 2012, 2013. UK and USA changed and started to become like Russia in morality and wealth worship / wealth lords / land lords. Putinism. DECEMBER_5_2014_NATO_JOKE_ARTICLE_5_JOKE
+ 
