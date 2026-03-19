@@ -334,3 +334,7 @@ https://old.reddit.com/r/worldnews/comments/1rxvhmd/trump_threatens_to_blow_up_a
 https://old.reddit.com/r/50501/comments/1rxse7u/epstein_files_reveal_former_us_ambassador_to/ob9a6zb/
 
 The Taliban was so into abusing little girls they shot Malala and her friends on a school bus. REMEDIAL_MORALITY and education clearly need to be topics for humanity. Parents abusing their own children is probably more common than people realize.
+
+https://old.reddit.com/r/50501/comments/1rxse7u/epstein_files_reveal_former_us_ambassador_to/obap9ug/
+
+People still can't face the Russian Trump reality of power and what Russia does to Ukraine. EPSTEIN_BUT_NOT_PUTIN_UKRAINE_CHILDREN_NOT_MALALA
