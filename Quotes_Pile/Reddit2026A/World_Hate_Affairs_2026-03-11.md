@@ -340,3 +340,7 @@ https://old.reddit.com/r/law/comments/1ry6rjb/patel_says_fbi_agents_who_worked_m
 SURKOVIAN_CHESS
 
 * "I try to protest — but they just smile and pity me. To believe in something and stand by it in this world is derided, **the ability to be a shape-shifter celebrated**. Vladimir Nabokov once described a species of butterfly that at an early stage in its development had to learn how to change colors to hide from predators. The butterfly’s predators had long died off, but still it changed its colors from the sheer pleasure of transformation. Something similar has happened to the Russian elites: during the Soviet period they learned to dissimulate in order to survive; now there is no need to constantly change their colors, but they continue to do so out of a sort of dark joy, conformism raised to the level of aesthetic act. Surkov himself is the ultimate expression of this psychology." ― Peter Pomerantsev, Nothing Is True and Everything Is Possible: The Surreal Heart of the New Russia. Year 2014.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1ry5pu9/we_live_in_a_clown_world/obc0g4y/
+
+1 month Reddit account. Top most-popular upvoted comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT The entire posting is clown fandom, Reddit being the fanatics of clown images. FANATICS_FANS_OF_CLOWNS_FANS_OF_MAGA_CLOWNING Israel clown fandom of Reddit. Always adding mocking on Reddit to the mockery show.
