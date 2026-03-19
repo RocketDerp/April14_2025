@@ -7,3 +7,12 @@ https://en.wikipedia.org/wiki/Shoot_High_Aim_Low
 
 SingSong Finnegans Wake / Wave Wakes / Woke Waves
 
+&nbsp;
+
+# SingSong Opera
+
+NEW_OPERA_NAME #SingSongOpera 
+
+https://bsky.app/profile/roundsparrow.bsky.social/post/3mhfa5bfbfs23    
+https://autistics.life/@RoundSparrow/116254097547619869    
+
