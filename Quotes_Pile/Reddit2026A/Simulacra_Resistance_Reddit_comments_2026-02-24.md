@@ -396,3 +396,8 @@ https://old.reddit.com/r/Irony/comments/1rxfu3n/i_dont_want_gavin_as_president_b
 https://old.reddit.com/r/SipsTea/comments/1ry5ayo/do_you_support_this/obc1o19/
 
 This posting is at the very top of /r/All popular. Removing Donald Trump from Home Alone 2. Not removing Trump from White House, but the media cult of Reddit wanting to discuss fiction content. CALL_FOR_ACTION_TO_DO_TRIVIAL_CHANGE Observe the absence of Reddit community priority concern **nonfiction serious relevant books and films** by Jen Senko and Dr. Bandy X Lee. Instead, the highly popular engaging topic. And look at the title of the Reddit posting, that the Reddit community upvoted. Click-bait engagement generic non-specific title. "Do you support this?" An image of Trump, Reddit cult attraction. REPUBLICANS_LEAD_WITH_IGNORANCE_IDEAS_AND_FOLLOWERS_REPLY_WITH_IGNORANCE
+
+https://old.reddit.com/r/SipsTea/comments/1ry5ayo/do_you_support_this/obc2i52/
+
+"nothing better to do" ANTI_WIKI_ANTI_FAQ and NOT_GOOD_ENOUGH Jen Senko, not good enough Dr. Bandy X Lee, not good enough MLK Jr to be preaching and teaching, moralizing. Instead, free time and spare time on Reddit goes into service of low-effort commenting. People should be quoting the relevant nonfiction books on paper from Dr. Bandy X Lee and escape the cesspool of shit-commenting shit-posting MORE_THAN_EPSTEIN_NAME_DROPS Dr. Lee should be quoted comment after comment until Trump is removed.
+
