@@ -409,3 +409,6 @@ https://old.reddit.com/r/Irony/comments/1ry6m7h/this_will_be_lost_on_his_loyal_s
 
 Look at the clickbait posting Title on this front-page posting. People can't name Surkov or Adam Curtis 2014 about "Contradictory Vaudeville" https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html DECEMBER_5_2014_NATO_JOKE_ARTICLE_5_JOKE Reddit is a loyal mocking audience that AVOIDS citing Adam Curtis, Dr. Bandy X Lee, etc. Loyal to following Trump's mockery and adding to the mocking.
 
+https://old.reddit.com/r/Irony/comments/1ry6m7h/this_will_be_lost_on_his_loyal_subjects/obcppl8/
+
+BRAIN_ROT_LEFT_RIGHT_LIB_CON_NAME_AVOIDANCE ignorance is a Twitter-thinking USA problem, not just left, not just right. Brain rot nation.
