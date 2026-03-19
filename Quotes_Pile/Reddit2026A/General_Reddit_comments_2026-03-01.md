@@ -290,3 +290,7 @@ https://old.reddit.com/r/mildlyinfuriating/comments/1ry4rbd/my_sons_kindergarten
 
 MEDIA_ECOLOGY_OBSERVATION
 
+https://old.reddit.com/r/LivestreamFail/comments/1rybj2h/clavicular_ends_and_walks_out_of_his_channel_5/obdg8ga/
+
+AUTISM_EXPERIENCE
+
