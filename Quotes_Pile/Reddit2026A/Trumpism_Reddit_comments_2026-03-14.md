@@ -346,3 +346,12 @@ Why isn't Reddit having a protest? Why is Dr Bandy X Lee not being promoted in R
 https://old.reddit.com/r/politics/comments/1rxzbdh/dear_allies_of_america_please_dont_confuse_our/obarpr4/
 
 CORE_CONCERNS BRAIN_ROT_SOCIETY_47 - "Trump doesn't represent we" bullshit. Why is REDDIT commenting section not promoting Dr. Bandy X Lee serious nonfiction books on paper. Trump is an Internet and television addict who leads a nation of people who celebrate ignorance. 
+
+https://old.reddit.com/r/politics/comments/1rxzbdh/dear_allies_of_america_please_dont_confuse_our/obb0yam/
+
+<img width="1175" height="778" alt="image" src="https://github.com/user-attachments/assets/5c10f34c-544c-4132-8f12-67eb60db5c99" />
+
+And the anti-intellectual ignorance celebrating is every hour of every day. People on Bluesky and Reddit are attracted to Trump as a source of entertainment. Avoiding nonfiction from Jen Senko, Dr. Bandy X Lee, etc. MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL
+
+Social post { https://autistics.life/@RoundSparrow/116256340428461379 https://bsky.app/profile/roundsparrow.bsky.social/post/3mhg7zievz22k }   
+
