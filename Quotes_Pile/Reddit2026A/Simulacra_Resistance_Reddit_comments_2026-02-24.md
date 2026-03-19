@@ -404,3 +404,8 @@ https://old.reddit.com/r/SipsTea/comments/1ry5ayo/do_you_support_this/obc2i52/
 https://old.reddit.com/r/Fauxmoi/comments/1ry5qgr/trump_responding_to_reporter_asking_why_the_us/obc0owe/
 
 Yes. And Reddit is the front-row seating for every Trump content drop / MAGA fandom content. Top most upvoted popular comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING FANATICS_FANS_OF_CLOWNS_FANS_OF_MAGA_CLOWNING Observe, again, the avoidance of Dr. Bandy X Lee, Jen Senko, and other relevant nonfiction books on paper.
+
+https://old.reddit.com/r/Irony/comments/1ry6m7h/this_will_be_lost_on_his_loyal_subjects/obcg55u/
+
+Look at the clickbait posting Title on this front-page posting. People can't name Surkov or Adam Curtis 2014 about "Contradictory Vaudeville" https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html DECEMBER_5_2014_NATO_JOKE_ARTICLE_5_JOKE Reddit is a loyal mocking audience that AVOIDS citing Adam Curtis, Dr. Bandy X Lee, etc. Loyal to following Trump's mockery and adding to the mocking.
+
