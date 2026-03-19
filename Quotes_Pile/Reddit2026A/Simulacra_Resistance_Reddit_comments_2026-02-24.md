@@ -392,3 +392,7 @@ https://old.reddit.com/r/AdviceAnimals/comments/1rxa7qm/im_not_proud_of_it_but_i
 This entire Reddit front-page posting is celebrating that ignorance wins. Celebrating the "Advice Animals" dumb-think that created MAGA in the first place, meme-thinking, Twitter-thinking, Fox News HDTV mindsets. Media mania. IGNORANCE_CELEBRATIONS People admiring this bear image meme are not resisting ignorance. RESISTING_WHAT_EXACTLY They are cheering on human stupidity at the hands of Apple iPhone and Apple iPad and Russia's Internet Research Agency since March of year 2013.
 
 https://old.reddit.com/r/Irony/comments/1rxfu3n/i_dont_want_gavin_as_president_but_this_is/ob6rjlo/
+
+https://old.reddit.com/r/SipsTea/comments/1ry5ayo/do_you_support_this/obc1o19/
+
+This posting is at the very top of /r/All popular. Removing Donald Trump from Home Alone 2. Not removing Trump from White House, but the media cult of Reddit wanting to discuss fiction content. CALL_FOR_ACTION_TO_DO_TRIVIAL_CHANGE Observe the absence of Reddit community priority concern **nonfiction serious relevant books and films** by Jen Senko and Dr. Bandy X Lee. Instead, the highly popular engaging topic. And look at the title of the Reddit posting, that the Reddit community upvoted. Click-bait engagement generic non-specific title. "Do you support this?" An image of Trump, Reddit cult attraction. REPUBLICANS_LEAD_WITH_IGNORANCE_IDEAS_AND_FOLLOWERS_REPLY_WITH_IGNORANCE
