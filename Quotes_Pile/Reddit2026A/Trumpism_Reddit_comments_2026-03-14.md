@@ -423,3 +423,7 @@ Social post { https://autistics.life/@RoundSparrow/116257884405907126 https://bs
 https://old.reddit.com/r/politics/comments/1ry8rf1/former_trump_official_admits_that_their_goal_is/obcou42/
 
 Christianity is a media cult, a Church is a venue for science fiction fandom storytelling of The Bible science fiction. Reddit is a venue cult of hate too. Ignorance ruins Bible fandoms and Reddit meme fandoms both alike. Reddit electronic media systems vs. Bible book media systems, fiction vs. fiction. FICTION_VS_FICTION FEEDBACK_LOOP_MEDIA_CULTS_PLATFORM_TO_PLATFORM_MOCKERY_USA
+
+https://old.reddit.com/r/politics/comments/1ry8rf1/former_trump_official_admits_that_their_goal_is/obcnw9s/
+
+Shooting little girls on school bus. Swat Valley, Pakistan bloggers. TALIBAN_VALUES
