@@ -330,3 +330,7 @@ https://old.reddit.com/r/worldnews/comments/1rwtgqh/iran_strikes_tel_aviv_with_c
 https://old.reddit.com/r/worldnews/comments/1ry51q8/trump_says_not_putting_us_troops_in_region_amid/obbv7sw/
 
 3 month Reddit account. Most-popular upvoted comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING Observe the AVOIDANCE of any call for Internet (Reddit) protest such as a end-user blackout. No promoting of nonfiction serious relevant books by Dr Bandy X Lee, etc.
+
+https://old.reddit.com/r/worldnews/comments/1ry51q8/trump_says_not_putting_us_troops_in_region_amid/obbv7ah/
+
+SURKOV_WARFARE but no naming, no off-Reddit URL, no quotes, no author name.
