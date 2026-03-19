@@ -373,3 +373,8 @@ HYPER_REAL_PRESIDENT CORE_CONCERNS BRAIN_ROT_SOCIETY_47
 
 NEW_OPERA_NAME #StupidFuckingCountry    
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mhgihnagwc2m https://autistics.life/@RoundSparrow/116256940567346859 }    
+
+https://old.reddit.com/r/politics/comments/1rxztag/there_will_be_no_postpresidential_peace_for/obapk9g/
+
+5 month Reddit account. Top-most upvoted popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT banal reacting. No call for Dr. Bandy X Lee or Jen Senko, no call for Reddit blackout. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING GIVE_UP_ANTI_EDUCATION_ANTI_TEACH_ANTI_PROGRESS just keep being Brain Rot Reddit community USA.
+
