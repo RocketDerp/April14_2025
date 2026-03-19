@@ -404,3 +404,18 @@ https://old.reddit.com/r/videos/comments/1ry3034/there_was_an_oxford_psychologis
 
 DENIAL_ABOUNDS denial of Ukraine war and Putin's media invasion since March 2013. Surkov won. This Reddit comment is onion eating, that it is only Trump. Just ONE example: Tulsi Gabbard https://www.independent.co.uk/news/world/americas/us-politics/tulsi-gabbard-russian-connection-dni-trump-syria-b2692244.html DECEMBER_5_2014_NATO_JOKE_ARTICLE_5_JOKE SURKOVIAN_ONION_EATING
 
+https://old.reddit.com/r/news/comments/1ry0co9/pentagon_seeks_200_billion_in_additional_funds/obatxcj/
+
+https://old.reddit.com/r/news/comments/1ry0co9/pentagon_seeks_200_billion_in_additional_funds/obayfgv/
+
+https://old.reddit.com/r/news/comments/1ry0co9/pentagon_seeks_200_billion_in_additional_funds/obb6pcg/
+
+<img width="1602" height="996" alt="image" src="https://github.com/user-attachments/assets/bc451b0b-02cc-4812-9f77-7445b96b385d" />
+
+SURKOV_WARFARE Surkov won since March 2013.
+
+* March 20, 2014 https://foreignpolicy.com/2014/03/20/tupac-in-the-kremlin/ "Tupac in the Kremlin.
+How the martyred king of gangsta rap, a bisexual LSD-touting beat poet, and a reclusive alcoholic painter inspire a Moscow apparatchik."; "When Putin's senior advisor Vladislav Surkov learned of the U.S. sanctions being levied against him in response to Russia's annexation of Crimea, he responded: "The U.S. I am interested in is Tupac Shakur, Allen Ginsberg, and Jackson Pollock. I don't need a visa to access their work. So I lose nothing." A Kremlin veteran and possibly a chief architect of Russia's Ukraine policy, Surkov made the comment as a snarky dismissal"
+
+NEW_OPERA_NAME #SurkovTupac   
+Social post { https://autistics.life/@RoundSparrow/116257884405907126 https://bsky.app/profile/roundsparrow.bsky.social/post/3mhgvzz7l6s24 }   
