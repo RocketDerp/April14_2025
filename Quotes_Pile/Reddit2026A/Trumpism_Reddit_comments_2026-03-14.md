@@ -328,3 +328,6 @@ https://old.reddit.com/r/videos/comments/1rx2qid/threetime_pennsylvania_trump_vo
 https://old.reddit.com/r/videos/comments/1rx2qid/threetime_pennsylvania_trump_voter_at_gas_station/ob40gdt/
 
 I worked for the richest people in the world in 1997 in Bellevue, Washington. And I came to recognize that it has so much in common with video game addicts. Bloomberg terminals and "high score" reports in the press is the mentality. Like speedrunning a video game and even the fandom of speedrunning. It is just a number on a screen going higher and people PAY for video games. This area of the brain starts to become sickened. Dehumanizing of people that so much labor and time goes into solving a numerical collection greed desire. PRIORITIES_OF_THE_99_PERCENT_COMMENTING_MEDIA Study Putin's system... 
+
+https://old.reddit.com/r/worldnews/comments/1rxvhmd/trump_threatens_to_blow_up_all_of_irans_south/oba9dth/
+
