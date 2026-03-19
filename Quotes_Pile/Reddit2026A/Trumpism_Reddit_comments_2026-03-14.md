@@ -381,3 +381,6 @@ https://old.reddit.com/r/politics/comments/1rxztag/there_will_be_no_postpresiden
 https://old.reddit.com/r/worldnews/comments/1ry1etn/joint_statement_from_the_leaders_of_the_united/obbrtcf/
 
 UNITED_IN_BLAMING_ONE_THIRD_HATE_VS_HATE_ANTI_RESCUE Reddit is the clown commenting fandom center. FANATICS_FANS_OF_CLOWNS_FANS_OF_MAGA_CLOWNING
+
+https://old.reddit.com/r/worldnews/comments/1ry0vry/iran_attack_damage_wipes_out_17_of_qatars_lng/obbai23/
+
