@@ -399,3 +399,8 @@ https://old.reddit.com/r/videos/comments/1ry3034/there_was_an_oxford_psychologis
 https://old.reddit.com/r/videos/comments/1ry3034/there_was_an_oxford_psychologist_in_2016_who/obbmmfq/
 
 DOWNPLAYING_DANGER_MINIMIZING_THREATS Trump POTUS is a product of Saint Petersburg Internet Research Agency and Cambridge Analytica. Hitler was not the product of information warfare against an entire nation via IRA. Surkov won, NATO lost, since March year 2013.
+
+https://old.reddit.com/r/videos/comments/1ry3034/there_was_an_oxford_psychologist_in_2016_who/obbolwm/
+
+DENIAL_ABOUNDS denial of Ukraine war and Putin's media invasion since March 2013. Surkov won. This Reddit comment is onion eating, that it is only Trump. Just ONE example: Tulsi Gabbard https://www.independent.co.uk/news/world/americas/us-politics/tulsi-gabbard-russian-connection-dni-trump-syria-b2692244.html DECEMBER_5_2014_NATO_JOKE_ARTICLE_5_JOKE SURKOVIAN_ONION_EATING
+
