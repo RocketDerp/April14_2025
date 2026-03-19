@@ -342,3 +342,7 @@ People still can't face the Russian Trump reality of power and what Russia does 
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1rxyizd/what_else/obah1r9/
 
 Why isn't Reddit having a protest? Why is Dr Bandy X Lee not being promoted in Reddit comments? Jen Senko ignored? ANSWER: This is a cult of commenting about MAGA and Trump, time spent commenting over and over. Instead of wishing to come together, organize, and deal with the anti-intellectual pro-ignorance society problem. MAGA blames "liberals", everyone is blaming everyone else when meme-thinking Twitter-think is a 100% of society problem - avoiding Dr. Lee's nonfiction book on paper. UNITED_IN_BLAMING_ONE_THIRD_HATE_VS_HATE_ANTI_RESCUE
+
+https://old.reddit.com/r/politics/comments/1rxzbdh/dear_allies_of_america_please_dont_confuse_our/obarpr4/
+
+CORE_CONCERNS BRAIN_ROT_SOCIETY_47 - "Trump doesn't represent we" bullshit. Why is REDDIT commenting section not promoting Dr. Bandy X Lee serious nonfiction books on paper. Trump is an Internet and television addict who leads a nation of people who celebrate ignorance. 
