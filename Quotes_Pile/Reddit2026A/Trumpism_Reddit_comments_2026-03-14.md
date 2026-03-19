@@ -391,3 +391,7 @@ CORE_CONCERNS THE_HIGH_ROAD_IS_DR_BANDY_X_LEE_QUOTING_REPEATING
 https://old.reddit.com/r/videos/comments/1ry3034/there_was_an_oxford_psychologist_in_2016_who/obbfigv/
 
 2nd most popular upvoted comment. TRUMP_FANDOM who loves Trump style and fashion of thinking and playing with Trump ideas and mindsets. Reddit media cult is attracted to Trump. ATTRACTION_TO_SHIT_CONTENT_ENSHIT_BY_DESIRE
+
+https://old.reddit.com/r/videos/comments/1ry3034/there_was_an_oxford_psychologist_in_2016_who/obbirt3/
+
+4 month Reddit account. "But here we are. Being led by an evil twat." - the problem is the followers. The Reddit commenting consumers and creators who hang around and use free-time and spare-time in a cult to Trump media. Trump is a media star, a celebrity media creator, and Reddit consumes it and follows leader. FOLLOWERS_OF_LEADER_TRUMP_ACTOR_ENTERTAINER_DONALD_TRUMP_FOLLOWERS
