@@ -338,3 +338,7 @@ The Taliban was so into abusing little girls they shot Malala and her friends on
 https://old.reddit.com/r/50501/comments/1rxse7u/epstein_files_reveal_former_us_ambassador_to/obap9ug/
 
 People still can't face the Russian Trump reality of power and what Russia does to Ukraine. EPSTEIN_BUT_NOT_PUTIN_UKRAINE_CHILDREN_NOT_MALALA
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1rxyizd/what_else/obah1r9/
+
+Why isn't Reddit having a protest? Why is Dr Bandy X Lee not being promoted in Reddit comments? Jen Senko ignored? ANSWER: This is a cult of commenting about MAGA and Trump, time spent commenting over and over. Instead of wishing to come together, organize, and deal with the anti-intellectual pro-ignorance society problem. MAGA blames "liberals", everyone is blaming everyone else when meme-thinking Twitter-think is a 100% of society problem - avoiding Dr. Lee's nonfiction book on paper. UNITED_IN_BLAMING_ONE_THIRD_HATE_VS_HATE_ANTI_RESCUE
