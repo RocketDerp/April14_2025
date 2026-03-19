@@ -390,3 +390,5 @@ Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mh6ziddewk
 https://old.reddit.com/r/AdviceAnimals/comments/1rxa7qm/im_not_proud_of_it_but_its_the_first_thought_i/ob5pxp8/
 
 This entire Reddit front-page posting is celebrating that ignorance wins. Celebrating the "Advice Animals" dumb-think that created MAGA in the first place, meme-thinking, Twitter-thinking, Fox News HDTV mindsets. Media mania. IGNORANCE_CELEBRATIONS People admiring this bear image meme are not resisting ignorance. RESISTING_WHAT_EXACTLY They are cheering on human stupidity at the hands of Apple iPhone and Apple iPad and Russia's Internet Research Agency since March of year 2013.
+
+https://old.reddit.com/r/Irony/comments/1rxfu3n/i_dont_want_gavin_as_president_but_this_is/ob6rjlo/
