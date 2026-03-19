@@ -401,3 +401,6 @@ https://old.reddit.com/r/SipsTea/comments/1ry5ayo/do_you_support_this/obc2i52/
 
 "nothing better to do" ANTI_WIKI_ANTI_FAQ and NOT_GOOD_ENOUGH Jen Senko, not good enough Dr. Bandy X Lee, not good enough MLK Jr to be preaching and teaching, moralizing. Instead, free time and spare time on Reddit goes into service of low-effort commenting. People should be quoting the relevant nonfiction books on paper from Dr. Bandy X Lee and escape the cesspool of shit-commenting shit-posting MORE_THAN_EPSTEIN_NAME_DROPS Dr. Lee should be quoted comment after comment until Trump is removed.
 
+https://old.reddit.com/r/Fauxmoi/comments/1ry5qgr/trump_responding_to_reporter_asking_why_the_us/obc0owe/
+
+Yes. And Reddit is the front-row seating for every Trump content drop / MAGA fandom content. Top most upvoted popular comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING FANATICS_FANS_OF_CLOWNS_FANS_OF_MAGA_CLOWNING Observe, again, the avoidance of Dr. Bandy X Lee, Jen Senko, and other relevant nonfiction books on paper.
