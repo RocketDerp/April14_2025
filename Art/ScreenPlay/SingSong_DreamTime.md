@@ -26,3 +26,11 @@ https://autistics.life/@RoundSparrow/116254186523962001
 https://bsky.app/profile/roundsparrow.bsky.social/post/3mhfbfs5gec2f   
 
 Habakkuk 3:4 Bible verse
+
+&nbsp;
+
+# As Sure As
+
+NEW_OPERA_NAME #AsSureAs    
+https://bsky.app/profile/roundsparrow.bsky.social/post/3mhfdhqyafs2i   
+https://autistics.life/@RoundSparrow/116254331650360881    
