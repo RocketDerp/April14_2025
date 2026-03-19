@@ -344,3 +344,8 @@ SURKOVIAN_CHESS
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1ry5pu9/we_live_in_a_clown_world/obc0g4y/
 
 1 month Reddit account. Top most-popular upvoted comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT The entire posting is clown fandom, Reddit being the fanatics of clown images. FANATICS_FANS_OF_CLOWNS_FANS_OF_MAGA_CLOWNING Israel clown fandom of Reddit. Always adding mocking on Reddit to the mockery show.
+
+https://old.reddit.com/r/worldnews/comments/1ryc6cx/iran_publicly_executes_teen_champion_wrestler_for/obdfoyy/
+
+LEVANT_MONOMYTH_CRISIS Top most popular upvoted comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
+
