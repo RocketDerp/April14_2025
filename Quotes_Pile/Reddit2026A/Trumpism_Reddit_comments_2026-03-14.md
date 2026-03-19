@@ -432,3 +432,6 @@ https://old.reddit.com/r/politics/comments/1ry8rf1/former_trump_official_admits_
 
 LEVANT_MONOMYTH_CRISIS
 
+https://old.reddit.com/r/Fauxmoi/comments/1ry8z1l/we_see_genocide_being_livestreamed_to_us_edward/obcqyh3/
+
+NOT_GOOD_ENOUGH to cite author Neil Postman on media ecology. Media practitioners who profit off media addiction.
