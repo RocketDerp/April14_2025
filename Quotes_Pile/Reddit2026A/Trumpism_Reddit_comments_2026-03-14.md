@@ -395,3 +395,7 @@ https://old.reddit.com/r/videos/comments/1ry3034/there_was_an_oxford_psychologis
 https://old.reddit.com/r/videos/comments/1ry3034/there_was_an_oxford_psychologist_in_2016_who/obbirt3/
 
 4 month Reddit account. "But here we are. Being led by an evil twat." - the problem is the followers. The Reddit commenting consumers and creators who hang around and use free-time and spare-time in a cult to Trump media. Trump is a media star, a celebrity media creator, and Reddit consumes it and follows leader. FOLLOWERS_OF_LEADER_TRUMP_ACTOR_ENTERTAINER_DONALD_TRUMP_FOLLOWERS
+
+https://old.reddit.com/r/videos/comments/1ry3034/there_was_an_oxford_psychologist_in_2016_who/obbmmfq/
+
+DOWNPLAYING_DANGER_MINIMIZING_THREATS Trump POTUS is a product of Saint Petersburg Internet Research Agency and Cambridge Analytica. Hitler was not the product of information warfare against an entire nation via IRA. Surkov won, NATO lost, since March year 2013.
