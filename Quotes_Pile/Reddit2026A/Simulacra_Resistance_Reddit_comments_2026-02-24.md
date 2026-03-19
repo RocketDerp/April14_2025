@@ -412,3 +412,8 @@ Look at the clickbait posting Title on this front-page posting. People can't nam
 https://old.reddit.com/r/Irony/comments/1ry6m7h/this_will_be_lost_on_his_loyal_subjects/obcppl8/
 
 BRAIN_ROT_LEFT_RIGHT_LIB_CON_NAME_AVOIDANCE ignorance is a Twitter-thinking USA problem, not just left, not just right. Brain rot nation.
+
+https://old.reddit.com/r/Epstein/comments/1ry8lo1/do_u_think_this_woman_should_be_charged_with/obcmagw/
+
+22 day Reddit account. Top most upvoted popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT This whole posting isn't making any serious intellectual effort to remove Trump, such as promoting Jen Senko or Dr. Bandy X Lee. It's incredibly low-effort "social media engagement" with a generic clickbait posting title. "This woman" generic bait.
+
