@@ -16,3 +16,13 @@ NEW_OPERA_NAME #SingSongOpera
 https://bsky.app/profile/roundsparrow.bsky.social/post/3mhfa5bfbfs23    
 https://autistics.life/@RoundSparrow/116254097547619869    
 
+&nbsp;
+
+## Similar As This
+
+NEW_OPERA_NAME #SimilarAsThis    
+
+https://autistics.life/@RoundSparrow/116254186523962001   
+https://bsky.app/profile/roundsparrow.bsky.social/post/3mhfbfs5gec2f   
+
+Habakkuk 3:4 Bible verse
