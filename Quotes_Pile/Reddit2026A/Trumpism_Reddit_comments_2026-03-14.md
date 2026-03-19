@@ -427,3 +427,8 @@ Christianity is a media cult, a Church is a venue for science fiction fandom sto
 https://old.reddit.com/r/politics/comments/1ry8rf1/former_trump_official_admits_that_their_goal_is/obcnw9s/
 
 Shooting little girls on school bus. Swat Valley, Pakistan bloggers. TALIBAN_VALUES
+
+https://old.reddit.com/r/politics/comments/1ry8rf1/former_trump_official_admits_that_their_goal_is/obcojdk/
+
+LEVANT_MONOMYTH_CRISIS
+
