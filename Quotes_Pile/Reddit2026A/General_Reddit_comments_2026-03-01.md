@@ -285,3 +285,8 @@ People are self-harm on a national scale now. Twitter-thinking took over since y
 https://old.reddit.com/r/Millennials/comments/1rw74pz/someone_brought_up_that_one_of_the_reasons_why/oaxv09c/
 
 MEDIA_ECOLOGY_OBSERVATION
+
+https://old.reddit.com/r/mildlyinfuriating/comments/1ry4rbd/my_sons_kindergarten_class_is_being_exposed_to/obbuwz8/
+
+MEDIA_ECOLOGY_OBSERVATION
+
