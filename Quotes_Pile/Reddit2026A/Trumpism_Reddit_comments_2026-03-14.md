@@ -365,3 +365,11 @@ https://old.reddit.com/r/politics/comments/1rxzbdh/dear_allies_of_america_please
 
 I left for 12 months to live in South America in 2004. Left for years with my second marriage / Arab Spring 2010. My experience fits what https://www.youtube.com/watch?v=5Au332OG-M4 Peter Pomerantsev describes after Arab Spring in year 2012, 2013. UK and USA changed and started to become like Russia in morality and wealth worship / wealth lords / land lords. Putinism. DECEMBER_5_2014_NATO_JOKE_ARTICLE_5_JOKE
  
+https://old.reddit.com/r/politics/comments/1rxzbdh/dear_allies_of_america_please_dont_confuse_our/obatmfk/
+
+<img width="1192" height="1170" alt="image" src="https://github.com/user-attachments/assets/e59b8b72-2bfb-4efa-a343-3649356349c8" />
+
+HYPER_REAL_PRESIDENT CORE_CONCERNS BRAIN_ROT_SOCIETY_47 
+
+NEW_OPERA_NAME #StupidFuckingCountry    
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mhgihnagwc2m https://autistics.life/@RoundSparrow/116256940567346859 }    
