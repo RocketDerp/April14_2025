@@ -384,3 +384,10 @@ UNITED_IN_BLAMING_ONE_THIRD_HATE_VS_HATE_ANTI_RESCUE Reddit is the clown comment
 
 https://old.reddit.com/r/worldnews/comments/1ry0vry/iran_attack_damage_wipes_out_17_of_qatars_lng/obbai23/
 
+https://old.reddit.com/r/videos/comments/1ry3034/there_was_an_oxford_psychologist_in_2016_who/obbi0uz/
+
+CORE_CONCERNS THE_HIGH_ROAD_IS_DR_BANDY_X_LEE_QUOTING_REPEATING
+
+https://old.reddit.com/r/videos/comments/1ry3034/there_was_an_oxford_psychologist_in_2016_who/obbfigv/
+
+2nd most popular upvoted comment. TRUMP_FANDOM who loves Trump style and fashion of thinking and playing with Trump ideas and mindsets. Reddit media cult is attracted to Trump. ATTRACTION_TO_SHIT_CONTENT_ENSHIT_BY_DESIRE
