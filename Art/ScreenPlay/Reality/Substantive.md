@@ -37,4 +37,12 @@ https://www.youtube.com/watch?v=5YvPyUhjnEw
 https://youtu.be/HmR1bKsu5mk?t=199    
 Steve Lukather’s UNREAL Roger Waters Story   
 
+&nbsp;
+
+# Translation Mental Breakdowns
+
+Thursday, March 19, 2026    
+
+https://bsky.app/profile/roundsparrow.bsky.social/post/3mhgm6xgack2o   
+https://autistics.life/@RoundSparrow/116257198923639364   
 
