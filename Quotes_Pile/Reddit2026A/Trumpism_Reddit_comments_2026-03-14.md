@@ -435,3 +435,7 @@ LEVANT_MONOMYTH_CRISIS
 https://old.reddit.com/r/Fauxmoi/comments/1ry8z1l/we_see_genocide_being_livestreamed_to_us_edward/obcqyh3/
 
 NOT_GOOD_ENOUGH to cite author Neil Postman on media ecology. Media practitioners who profit off media addiction.
+
+https://old.reddit.com/r/USNEWS/comments/1ryhimj/trump_has_singlehandedly_made_america_the_most/obeibg5/
+
+TRUMP_FANDOM celebrating and cheering on ignorance of Trump. Tiny-think meme-think Twitter-length mental patterns on Reddit in year 2026. Simplistic conditioned reactionary commenting Redditors. Surkov won since year 2013. Top most popular upvoted comment, the Reddit media fandom cheering dumb-shit leadership. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING Reddit cult media followers.
