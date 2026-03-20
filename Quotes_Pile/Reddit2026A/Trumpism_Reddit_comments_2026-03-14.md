@@ -455,3 +455,7 @@ SUPERFICIAL_SHALLOW_PRIZING_TRUMPISM_MAGA_VALUES
 https://old.reddit.com/r/politics/comments/1ryz4qq/maga_has_been_swooning_over_a_beautiful_army/obi3z0d/
 
 WHITE_HOUSE_HYPER_REAL 
+
+https://old.reddit.com/r/news/comments/1rz1ydy/us_to_deploy_thousands_of_additional_troops_to/obir2uw/
+
+HATE_HARDER Trump leads MAGA with hate. Reddit follows hate. ATTRACTION_TO_HATE_LEADERS_HATE_FOLLOWERS Anti-MLKJr USA 2026.
