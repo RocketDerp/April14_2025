@@ -447,3 +447,7 @@ https://old.reddit.com/r/videos/comments/1ryykui/chuck_norris_promising_the_usa_
 https://old.reddit.com/r/videos/comments/1ryykui/chuck_norris_promising_the_usa_will_have_1000/obhzxet/
 
 HYPER_SIMPLE_TRIVIALIZE_BANAL_SELF_ONLY_CONCERN such simplistic Twitter-length thinking and mindsets. DECEMBER_5_2014_NATO_JOKE_ARTICLE_5_JOKE
+
+https://old.reddit.com/r/politics/comments/1ryz4qq/maga_has_been_swooning_over_a_beautiful_army/obi2vov/
+
+SUPERFICIAL_SHALLOW_PRIZING_TRUMPISM_MAGA_VALUES
