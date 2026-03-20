@@ -349,3 +349,11 @@ https://old.reddit.com/r/worldnews/comments/1ryc6cx/iran_publicly_executes_teen_
 
 LEVANT_MONOMYTH_CRISIS Top most popular upvoted comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
 
+https://old.reddit.com/r/worldnews/comments/1rz71ra/trump_admits_that_he_trusts_putin_more_than_uss/objthmv/
+
+https://old.reddit.com/r/worldnews/comments/1rz71ra/trump_admits_that_he_trusts_putin_more_than_uss/objt1yw/
+
+https://old.reddit.com/r/worldnews/comments/1rz71ra/trump_admits_that_he_trusts_putin_more_than_uss/objv2ot/
+
+DENIAL_ABOUNDS people will not put down their TV and Internet meme addictions and promote Dr. Bandy X Lee and Jen Senko and other relevant nonfiction.
+
