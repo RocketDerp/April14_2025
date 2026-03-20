@@ -357,3 +357,6 @@ https://old.reddit.com/r/worldnews/comments/1rz71ra/trump_admits_that_he_trusts_
 
 DENIAL_ABOUNDS people will not put down their TV and Internet meme addictions and promote Dr. Bandy X Lee and Jen Senko and other relevant nonfiction.
 
+https://old.reddit.com/r/worldnews/comments/1rz71ra/trump_admits_that_he_trusts_putin_more_than_uss/objvfdi/
+
+PRIZING_HATE_FURTHERING_HATE
