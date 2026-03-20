@@ -373,3 +373,6 @@ https://old.reddit.com/r/politics/comments/1rz6er8/we_are_hated_as_a_nation_ther
 
 3 month Reddit account. 2nd most popular upvoted comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
 
+https://old.reddit.com/r/politics/comments/1rz6er8/we_are_hated_as_a_nation_theres_one_man_to_blame/objq9ye/
+
+ATTRACTION_TO_HATE_LEADERS_HATE_FOLLOWERS
