@@ -309,3 +309,7 @@ https://old.reddit.com/r/BlackPeopleofReddit/comments/1rybhun/do_they_never_feel
 https://old.reddit.com/r/Fauxmoi/comments/1ryhp43/olivia_rodrigo_quotes_broad_city_in_response_to/obejb3k/
 
 CHOICE_MARRIAGE_HONESTY
+
+https://old.reddit.com/r/politics/comments/1ryz4qq/maga_has_been_swooning_over_a_beautiful_army/obi3z0d/
+
+WHITE_HOUSE_HYPER_REAL 
