@@ -459,3 +459,7 @@ WHITE_HOUSE_HYPER_REAL
 https://old.reddit.com/r/news/comments/1rz1ydy/us_to_deploy_thousands_of_additional_troops_to/obir2uw/
 
 HATE_HARDER Trump leads MAGA with hate. Reddit follows hate. ATTRACTION_TO_HATE_LEADERS_HATE_FOLLOWERS Anti-MLKJr USA 2026.
+
+https://old.reddit.com/r/news/comments/1rz1ydy/us_to_deploy_thousands_of_additional_troops_to/obircep/
+
+"crazy". But it creates so much commenting for Reddit servers. PRIORITIES_OF_THE_99_PERCENT_COMMENTING_MEDIA
