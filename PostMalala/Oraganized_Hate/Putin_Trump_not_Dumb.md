@@ -79,7 +79,8 @@ Putin is not stupid dumb, Trump is not stupid dumb / Twitter owner Elon Musk whe
 
 # Friday March 20, 2026
 
-https://newsukraine.rbc.ua/news/trump-admits-that-he-trusts-putin-more-than-1774033282.html
+https://newsukraine.rbc.ua/news/trump-admits-that-he-trusts-putin-more-than-1774033282.html    
+https://old.reddit.com/r/worldnews/comments/1rz71ra/trump_admits_that_he_trusts_putin_more_than_uss/   
 
 https://autistics.life/@RoundSparrow/116263535364146903   
 https://bsky.app/profile/roundsparrow.bsky.social/post/3mhjgb3l66s23   
