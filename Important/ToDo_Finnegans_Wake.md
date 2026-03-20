@@ -898,3 +898,9 @@ https://old.reddit.com/r/NonPoliticalTwitter/comments/1ruqz6s/this_is_the_hill_i
 
 TOWER_OF_BABEL Wake concerns    
 https://old.reddit.com/r/Damnthatsinteresting/comments/1rv73tv/eliezer_yehuda_reviver_of_the_hebrew_language/
+
+&nbsp;
+
+https://old.reddit.com/r/TikTokCringe/comments/1rz0hrq/family_breakup_over_the_kirks/    
+Death Celebrations. Funeral rituals.    
+
