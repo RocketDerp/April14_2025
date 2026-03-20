@@ -75,3 +75,11 @@ By Edith Olmsted on December 26, 2025/3:46 p.m. ET
 
 Putin is not stupid dumb, Trump is not stupid dumb / Twitter owner Elon Musk where this was posted is not stupid dumb. We The People are not Woke to media ecology that Jesus science fiction and Santa Claus science fiction outsell nonfiction sincere leadership. Donald Trump governs by fiction storytelling. He can say anything and do anything he wishes, because in fiction anything goes. It isn't dumb, it's what Putin mastered and how Putin leads the nation. Audiences, We The People, flock to shitpostings and fictions.
 
+&nbsp;
+
+# Friday March 20, 2026
+
+https://newsukraine.rbc.ua/news/trump-admits-that-he-trusts-putin-more-than-1774033282.html
+
+https://autistics.life/@RoundSparrow/116263535364146903   
+https://bsky.app/profile/roundsparrow.bsky.social/post/3mhjgb3l66s23   
