@@ -75,3 +75,10 @@ https://bsky.app/profile/roundsparrow.bsky.social/post/3mgq3tctp3s2v
 
 https://bsky.app/profile/roundsparrow.bsky.social/post/3mgqakojtjk2o    
 https://autistics.life/@RoundSparrow/116206838818150711    
+
+&nbsp;
+
+# Thursday March 19, 2026
+
+https://autistics.life/@RoundSparrow/116257105407262117   
+https://bsky.app/profile/roundsparrow.bsky.social/post/3mhgkvyzsg22x   

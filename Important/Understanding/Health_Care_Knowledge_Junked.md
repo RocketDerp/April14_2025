@@ -283,3 +283,11 @@ https://old.reddit.com/r/science/comments/1rpkoz1/recent_pandemic_viruses_jumped
 &nbsp;
 
 https://old.reddit.com/r/science/comments/1rs1ttm/spousal_loss_linked_to_higher_risk_of_dementia/
+
+https://old.reddit.com/r/science/comments/1rvl02w/our_brains_can_flicker_off_for_a_split_second/
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1rx1ku9/child_vaccination_rate_drops_sharply_in_michigan/
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mhdmyfyhkc2z https://autistics.life/@RoundSparrow/116250497893860844 }    

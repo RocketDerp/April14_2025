@@ -183,3 +183,169 @@ yes. Trump is a symptom of abandonment of nonfiction serious relevant books on p
 https://old.reddit.com/r/technology/comments/1rtqm1d/palantir_ceo_karp_we_support_warfare_and_we_are/oafxplt/
 
 HATE_MOTIVATED_ECONOMY_HATE_AS_A_VIRTUE_SIGNALING
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rudawa/ali_larijani_secretary_of_irans_supreme_national/oakfkxr/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rudawa/ali_larijani_secretary_of_irans_supreme_national/oakefk7/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rudawa/ali_larijani_secretary_of_irans_supreme_national/oaklxli/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rudawa/ali_larijani_secretary_of_irans_supreme_national/oakpeae/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rudawa/ali_larijani_secretary_of_irans_supreme_national/oakn1gb/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1rudawa/ali_larijani_secretary_of_irans_supreme_national/oakpvot/
+
+MONOMYTH_VS_MONOMYTH
+
+https://old.reddit.com/r/worldnews/comments/1rudw4d/taiwan_reports_largescale_chinese_military/oakqajw/
+
+2 month Reddit account. HYPER_SIMPLE_TRIVIALIZE_BANAL_SELF_ONLY_CONCERN
+
+https://old.reddit.com/r/news/comments/1ruboxc/israeli_forces_kill_palestinian_couple_and_two_of/oak4jdy/
+
+"how is it possible to reach that level of disconnect from reality where you would think that this is an okay thing to do?" ANSWER: OUT_GROUP_HATE and avoiding common ground, THE_1954_EQUATION avoidance as a serious topic.
+
+https://old.reddit.com/r/news/comments/1ruboxc/israeli_forces_kill_palestinian_couple_and_two_of/oakfhno/
+
+NOT_GOOD_ENOUGH Joseph Campbell was not good enough and got insulted for criticizing Levant religion clergy teachings. LEVANT_MYTH_INVERTED
+
+* Published 1988, Power of Myth, age 83, died in 1987. CAMPBELL: But in the Bible, eternity withdraws, and nature is corrupt, nature has fallen. In biblical thinking, we live in exile. BILL MOYERS: As we sit here and talk, there is one story after another of car bombings in Beirut—by the Muslims of the Christians, by the Christians of the Muslims, and by the Christians of the Christians. It strikes me that Marshall McLuhan was right when he said that television has made a global village of the world—but he didn’t know the global village would be Beirut. What does that say to you? CAMPBELL: It says to me that they don’t know how to apply their religious ideas to contemporary life, and to human beings rather than just to their own community. It’s a terrible example of the failure of religion to meet the modern world. These three mythologies are fighting it out. They have disqualified themselves for the future.
+
+* Published 1988, Power of Myth, age 83, died in 1987. CAMPBELL: "The Hebrews were absolutely ruthless with respect to their neighbors. But this passage is an extreme statement of something that is inherent in most sociologically oriented mythologies. That is to say, love and compassion are reserved for the in-group, and aggression and abuse are projected outward on others. Compassion is to be reserved for members of your own group. The out-group is to be treated in a way described there in Deuteronomy. Now, today there is no out-group anymore on the planet. And the problem of a modern religion is to have such compassion work for the whole of humanity. But then what happens to the aggression? This is a problem that the world is going to, have to face — because aggression is a natural instinct just as much as, and more immediate than, compassion, and it is always going to be there. It’s a biological fact. Of course, **in biblical times, when the Hebrews came in, they really wiped out the Goddess**. The term for the Canaanite goddess that’s used in the Old Testament is “the Abomination.” Apparently, throughout the period represented in the Book of Kings, for example, there was a back and forth between the two cults. Many of the Hebrew kings were condemned in the Old Testament for having worshiped on the mountaintops. Those mountains were symbols of the Goddess. And there was a very strong accent against the Goddess in the Hebrew, which you do not find in the Indo-European mythologies. Here you have Zeus marrying the Goddess, and then the two play together. So it’s an extreme case that we have in the Bible, and our **own Western subjugation of the female is a function of biblical thinking**."
+
+https://old.reddit.com/r/worldnews/comments/1rul6fl/iran_officially_confirms_military_support_from/oam7o2y/
+
+"this stupid war" , this anti-intellectual war. WAR_AGAINST_NONFICTION in favor of mockery and LOL on Reddit, Bluesky, Twitter, Facebook. Media addiction comedy nation. Trump is a constant source of comedy and humor for Reddit fandoms. CHUCKLEHEAD_NATION
+
+https://old.reddit.com/r/worldnews/comments/1rul6fl/iran_officially_confirms_military_support_from/oam487s/
+
+"absurd loop" SCHOOLS_OF_THOUGHT_FEEDBACK_LOOPS_INSIDE_BOXED_MINDSETS
+
+1. Trump does antics, wild and crazy Trump on Truth Social and Twitter
+
+2. Reddit and Bluesky LOL LOL LOL LMAO at Trump
+
+3. Loop repeats. Entertainment addicts on Reddit can't get enough LOLCOW milking.
+
+4. Avoiding Dr. Bandy X Lee by Reddit comment creators.
+
+https://old.reddit.com/r/worldnews/comments/1rul6fl/iran_officially_confirms_military_support_from/oam3ggl/
+
+1 month Reddit account. PROMOTING_IGNORANCE_WORKS_PLAYING_DUMB_MOCKING
+
+https://old.reddit.com/r/news/comments/1run71r/netanyahu_posts_video_in_response_to_iran_rumours/oamit77/
+
+WIDE_RADICAL_DOUBT_ABOUT_REAL
+
+https://old.reddit.com/r/wallstreetbets/comments/1ruqe38/wsj_exclusive_trump_administration_plans_to/oan4y6q/
+
+https://old.reddit.com/r/worldnews/comments/1ruujo1/trump_warns_nato_faces_a_bad_future_if_allies/oao0b97/
+
+https://old.reddit.com/r/worldnews/comments/1ruujo1/trump_warns_nato_faces_a_bad_future_if_allies/oanzuhh/
+
+https://old.reddit.com/r/worldnews/comments/1ruujo1/trump_warns_nato_faces_a_bad_future_if_allies/oao249l/
+
+https://old.reddit.com/r/worldnews/comments/1ruujo1/trump_warns_nato_faces_a_bad_future_if_allies/oao3qbi/
+
+https://old.reddit.com/r/worldnews/comments/1rv048l/trump_demands_others_help_secure_strait_of_hormuz/oap9i1l/
+
+Top most upvoted popular comment. ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING
+
+https://old.reddit.com/r/europe/comments/1rv9p2p/boris_pistorius_german_defense_minister_this_is/oaqw7ov/
+
+NEW_OPERA_NAME #QuestionAskingMyself #AskingMySelf    
+Social post { https://autistics.life/@RoundSparrow/116239739429478328 https://bsky.app/profile/roundsparrow.bsky.social/post/3mh6u5llkvs23 }    
+
+https://old.reddit.com/r/worldnews/comments/1rw26ik/israel_confirms_larijani_killed_in_tehran_safe/oaxhs0b/
+
+EPSTEIN_BUT_NOT_PUTIN_UKRAINE_CHILDREN_NOT_MALALA
+
+https://old.reddit.com/r/worldnews/comments/1rw26ik/israel_confirms_larijani_killed_in_tehran_safe/oaxu56z/
+
+MONOMYTH_VS_MONOMYTH
+
+https://old.reddit.com/r/worldnews/comments/1rvzout/india_slams_pakistan_over_airstrikes_in_kabul/oaw5bgu/
+
+https://old.reddit.com/r/worldnews/comments/1rvzout/india_slams_pakistan_over_airstrikes_in_kabul/oax5h7r/
+
+https://old.reddit.com/r/EnterShikari/comments/1rvr5tp/trying_to_find_bands_explanation_of_the_logo/oauozxa/
+
+CORE_CONCERNS
+
+https://old.reddit.com/r/worldnews/comments/1rw1v5v/iran_renews_attacks_on_us_gulf_allies_trump_says/oax6qnx/
+
+Trump is attracted to Twitter-length 140 character reaction thinking patterns. Even when he uses more words than that, the mindset is reactionary generating. People on Reddit can not resist talking about how stupid and dumb Trump is when the entire nation has become dumb. DUMB_STUPID_IDIOT_MORON_RETARDED_OTHERS
+
+https://old.reddit.com/r/worldnews/comments/1rw1v5v/iran_renews_attacks_on_us_gulf_allies_trump_says/oay0at7/
+
+Exactly. Smartphones have made everybody in USA dumber and attracted to Trump as a source of jokes, comedy, amusement, insulting, memes. AMUSEMENT_COMEDY_WASHING_TRUMP_AS_FUNNY_MEDIA_SANEWASHING
+
+https://old.reddit.com/r/worldnews/comments/1rvbc60/zelensky_says_putin_is_making_billions_from/oar9jow/
+
+1 month Reddit account. Most-popular upvoted comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+
+https://old.reddit.com/r/politics/comments/1rwcjn6/half_of_americans_believe_trump_bombed_iran/oayske0/
+
+https://old.reddit.com/r/politics/comments/1rwcjn6/half_of_americans_believe_trump_bombed_iran/oayr019/
+
+7 months Reddit account.
+
+https://old.reddit.com/r/politics/comments/1rwcjn6/half_of_americans_believe_trump_bombed_iran/oazdj3u/
+
+https://old.reddit.com/r/politics/comments/1rwcjn6/half_of_americans_believe_trump_bombed_iran/oayutgr/
+
+https://old.reddit.com/r/politics/comments/1rwcjn6/half_of_americans_believe_trump_bombed_iran/oayw9x1/
+
+https://old.reddit.com/r/politics/comments/1rwcjn6/half_of_americans_believe_trump_bombed_iran/oayq1b0/
+
+https://old.reddit.com/r/politics/comments/1rwcjn6/half_of_americans_believe_trump_bombed_iran/oayy9eg/
+
+https://old.reddit.com/r/worldnews/comments/1rw9fjg/france_will_never_take_part_in_operations_to/oazitdc/
+
+https://old.reddit.com/r/worldnews/comments/1rw9fjg/france_will_never_take_part_in_operations_to/oay79w0/
+
+"unreal"
+
+https://old.reddit.com/r/worldnews/comments/1rw9fjg/france_will_never_take_part_in_operations_to/oay65p5/
+
+DECEMBER_5_2014_NATO_JOKE_ARTICLE_5_JOKE
+
+https://old.reddit.com/r/worldnews/comments/1rw9fjg/france_will_never_take_part_in_operations_to/oay1hdr/
+
+https://old.reddit.com/r/worldnews/comments/1rw9fjg/france_will_never_take_part_in_operations_to/oaycme4/
+
+https://old.reddit.com/r/worldnews/comments/1rw9fjg/france_will_never_take_part_in_operations_to/oay62nf/
+
+https://old.reddit.com/r/worldnews/comments/1rw9fjg/france_will_never_take_part_in_operations_to/oayprsm/
+
+"insane" AVOIDED_DR_BANDY_X_LEE_PUBLIC_WRITINGS
+
+https://old.reddit.com/r/worldnews/comments/1rwtgqh/iran_strikes_tel_aviv_with_cluster_warheads_in/ob2k2dy/
+
+https://old.reddit.com/r/worldnews/comments/1rwtgqh/iran_strikes_tel_aviv_with_cluster_warheads_in/ob2g2tg/
+
+https://old.reddit.com/r/worldnews/comments/1rwtgqh/iran_strikes_tel_aviv_with_cluster_warheads_in/ob2du8s/
+
+https://old.reddit.com/r/worldnews/comments/1ry51q8/trump_says_not_putting_us_troops_in_region_amid/obbv7sw/
+
+3 month Reddit account. Most-popular upvoted comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING Observe the AVOIDANCE of any call for Internet (Reddit) protest such as a end-user blackout. No promoting of nonfiction serious relevant books by Dr Bandy X Lee, etc.
+
+https://old.reddit.com/r/worldnews/comments/1ry51q8/trump_says_not_putting_us_troops_in_region_amid/obbv7ah/
+
+SURKOV_WARFARE but no naming, no off-Reddit URL, no quotes, no author name.
+
+https://old.reddit.com/r/law/comments/1ry6rjb/patel_says_fbi_agents_who_worked_maralago_case/obco79f/
+
+SURKOVIAN_CHESS
+
+* "I try to protest — but they just smile and pity me. To believe in something and stand by it in this world is derided, **the ability to be a shape-shifter celebrated**. Vladimir Nabokov once described a species of butterfly that at an early stage in its development had to learn how to change colors to hide from predators. The butterfly’s predators had long died off, but still it changed its colors from the sheer pleasure of transformation. Something similar has happened to the Russian elites: during the Soviet period they learned to dissimulate in order to survive; now there is no need to constantly change their colors, but they continue to do so out of a sort of dark joy, conformism raised to the level of aesthetic act. Surkov himself is the ultimate expression of this psychology." ― Peter Pomerantsev, Nothing Is True and Everything Is Possible: The Surreal Heart of the New Russia. Year 2014.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1ry5pu9/we_live_in_a_clown_world/obc0g4y/
+
+1 month Reddit account. Top most-popular upvoted comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT The entire posting is clown fandom, Reddit being the fanatics of clown images. FANATICS_FANS_OF_CLOWNS_FANS_OF_MAGA_CLOWNING Israel clown fandom of Reddit. Always adding mocking on Reddit to the mockery show.
+
+https://old.reddit.com/r/worldnews/comments/1ryc6cx/iran_publicly_executes_teen_champion_wrestler_for/obdfoyy/
+
+LEVANT_MONOMYTH_CRISIS Top most popular upvoted comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
+

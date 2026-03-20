@@ -2507,3 +2507,6 @@ https://old.reddit.com/r/interestingasfuck/comments/1rs0vot/the_new_us_dime_desi
 
 GREAT_SEAL_USA SEE_ALSO https://GitHub.com/GreatSealUSA/GreatSealUSA_Art/blob/main/PLUR1BUS/Wasteland/Reddit_social_front_page_March_12_2026_dime.md
 
+https://old.reddit.com/r/pluribustv/comments/1p7k46r/comment/nqyr0fi/
+
+Finnegans Wake reference.

@@ -305,3 +305,115 @@ People om Reddit are the MAGA fandom. Never has any President or leader provided
 https://old.reddit.com/r/clevercomebacks/comments/1rtx1xz/so_weve_moved_from_ice_detention_centers_to_ice/oahco01/
 
 The liberation needs to be from dumb ideas and dumb social media commenting. The public library has a  nonfiction section. FREE_MASONS_FREE_THINKING_SELF_AWARENESS
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1ruhqq8/dan_crenshaw_who_has_spent_years_spreading_lies/oala8nb/
+
+MISINFORMATION_SYSTEMS about Texas. I still have the 2024 story on front page about Texas. https://www.MisinformationSystems.com - alas, Reddit is one such system. Top-most upvoted popular comment is shallowness about his eye patch. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING Celebration of ignorance as a source of jokes and humor. AMUSEMENT_COMEDY_WASHING_TRUMP_AS_FUNNY_MEDIA_SANEWASHING
+
+https://old.reddit.com/r/technology/comments/1rv7ggi/another_internet_is_possible_norway_rails_against/oaqgy5b/
+
+Top most upvoted popular comment IS enshitification. It is "social media engagement" of asking questions. 140 characters or less. This most-popular comment educates nothing, it teaches nothing, it just creates messages for low-information upvoting. https://en.wikipedia.org/wiki/Low_information_voter Reddit prizes shit-commenting and shit-postings. ATTRACTION_TO_SHIT_CONTENT_ENSHIT_BY_DESIRE
+
+https://old.reddit.com/r/law/comments/1rv9ipu/trump_melts_down_at_supreme_court_justices_in/oaqvrgp/
+
+The top most upvoted comment is a Trump image. Fandom behaviors. This most-popular comment educates nothing, it teaches nothing, it just creates messages for low-information upvoting. https://en.wikipedia.org/wiki/Low_information_voter Reddit prizes shit-commenting and shit-postings. REPUBLICANS_LEAD_WITH_IGNORANCE_IDEAS_AND_FOLLOWERS_REPLY_WITH_IGNORANCE
+
+This is not resisting ignorance, it is embracing Trump as a leader of ignorance.
+
+https://old.reddit.com/r/law/comments/1rv9ipu/trump_melts_down_at_supreme_court_justices_in/oar0q4u/
+
+Yes. There is no "mask". POTUS_TONY_CLIFTON_IGNORANCE there are performances and characters being played by Trump. Trump is an actor who is acting. Reddit is an audience who is consuming Trump content. This Reddit posting is not resisting social media Truth Social, it is programming minds on Reddit. SOCIAL_CULT_HATE_WATCHING_FANDOM
+
+https://old.reddit.com/r/stevehofstetter/comments/1rv93tj/give_this_some_serious_consideration/oaqt35t/
+
+Study the image of the posting. Deport MAGA messaging. BLOCK_HAPPY_DEPORT_HAPPY_SILENCE_POOR_PEOPLE_SILENCE_UPPITY - instead of focusing on the Reddit brain rot crisis of the entire population (everyone, 100%, age 12 to age 125, not just MAGA). This encourages ICE_FANDOM behaviors of deporting political opponents. This is not resisting brain rot, this is Reddit media consumers cheering on and celebrating brain rot. Observe the avoidance of nonfiction relevant books on paper by Dr. Bandy X. Lee.
+
+https://old.reddit.com/r/stevehofstetter/comments/1rv93tj/give_this_some_serious_consideration/oaqv6iy/
+
+<img width="1913" height="843" alt="Screenshot from 2026-03-16 08-39-54" src="https://github.com/user-attachments/assets/23a77a20-eee8-47bb-b8ce-08edaffbc6ad" />
+
+Cheering on MAGA. MAGA_VALUES - cheering on taking guns and weapon systems to Iran and killing people in Iran. GUN_WORSHIP -this is typical Reddit fandom commenting, not resisting badness itself, not resisting the gun worship - but wishing to spread it all over Earth. We are far far far beyond satire and sarcasm, this is a Reddit cult of stupid dumb ideas (followers of MAGA on Reddit who are attracted to stupid ideas).
+
+NEW_OPERA_NAME #SarcasmWashing    
+Social post { https://autistics.life/@RoundSparrow/116239617586462104 https://bsky.app/profile/roundsparrow.bsky.social/post/3mh6scrmde22k }   
+
+See the reply message:
+
+https://old.reddit.com/r/stevehofstetter/comments/1rv93tj/give_this_some_serious_consideration/oar96nw/
+
+No, Reddit cult of memes and simple-think 140 character Twitter mindsets does not have self-awareness and realize how pro-ignorance and anti-goodness the messaging programming is. Cult of ignorance commenting section. REPUBLICANS_LEAD_WITH_IGNORANCE_IDEAS_AND_FOLLOWERS_REPLY_WITH_IGNORANCE
+
+
+
+
+https://old.reddit.com/r/pics/comments/1rvdk7b/saw_this_while_getting_gasoc/oartqb9/
+
+Top most upvoted popular comment. The image posting on top of /r/All is TRUMP_FANDOM - stickers showing celebrity personality Donald Trump on a gas pump. As for the comment, it describes the constant trend of Trumpism. TREND_CHASING_MEDIA_TRENDING MAGA followers chase the IRA since March 2013 and become a **media cult** / **image cult** of Trump. And now Reddit is a fandom of Trump images too. OBSERVE what is being AVOIDED here: promoting a Internet protest peaceful blackout of Reddit. OBSERVE what is being avoided here: promoting comments and quotes about Dr. Bandy X Lee's nonfiction book on paper.
+
+Reddit commenting is a media cult of shit-commenting shit-posting Trump-shit. Addicts so addicted to Trump images as a source of LOLCOW milking that they will not turn to Dr. Bandy X Lee's nonfiction books on paper. MAGA leads with ignorance, Reddit media cult of Trump images is followers of promoting ignorance. REPUBLICANS_LEAD_WITH_IGNORANCE_IDEAS_AND_FOLLOWERS_REPLY_WITH_IGNORANCE
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mh6xr47hq22e https://autistics.life/@RoundSparrow/116240017906492627 }    
+
+https://old.reddit.com/r/pics/comments/1rvdk7b/saw_this_while_getting_gasoc/oas7kcd/
+
+Shortly after hitting top of front-page /r/All this was removed on Reddit. A screen shot of a LCD "screen" technicality? The digital display of the gasoline prices on a gas pump?
+
+https://old.reddit.com/r/pics/comments/1rvdk7b/saw_this_while_getting_gasoc/oas8crg/
+
+Someone observing the moderator removal. Power-tripping.
+
+https://old.reddit.com/r/pics/comments/1rvdk7b/saw_this_while_getting_gasoc/oas859x/
+
+BRAIN_ROT_LEFT_RIGHT_LIB_CON_NAME_AVOIDANCE always avoiding naming a detailed list of "right" and "left" and very popular Twitter-length 140 character brain rot commenting.
+
+https://old.reddit.com/r/pics/comments/1rvdk7b/saw_this_while_getting_gasoc/oas91y8/
+
+BRAIN_ROT_SOCIETY_47 so much brain rot leadership that people follow, including Reddit leaders of brain-rot. We The People keep fixating on one single person, Donald Trump, and not the MAGA values of image brain rot that USA 100% NOT_JUST_MAGA has become.
+
+https://old.reddit.com/r/pics/comments/1rvdk7b/saw_this_while_getting_gasoc/oas8pq4/
+
+Mocking the economy of California is a celebration of ignorance on Reddit commenting section. IGNORANCE_CELEBRATIONS Compared to Canada or Germany the USA has incredibly inexpensive retail gasoline and many MAGA_FANDOM are pro-war with Iran and pro-gasoline consumption, wishing to harm Earth and nature with pollution and inexpensive unregulated wasting of gasoline. Reddit culture in year 2026 is constantly promoting short-length 140 character ignorance and avoidance of serious science nonfiction books on paper.
+
+https://old.reddit.com/r/pics/comments/1rvdk7b/saw_this_while_getting_gasoc/oas90s2/
+
+<img width="1089" height="409" alt="image" src="https://github.com/user-attachments/assets/1e52a929-a654-49e6-b39c-b8e9d89426b9" />
+
+More celebrating the ignorance leadership that Trump provides and Reddit USA audience follows. People find Trump to be entertaining and thrilling hilarious content. Reddit is a fandom of Trump images and content venue for Trump ignorance. UNDERSTANDING_SURKOV_PUTINISM_TRUMPISM_HATE_HILARIOUS
+
+This 2 second Reddit comment is typical mental pattern in year 2026 USA. Trump images thrill meme consumers who have zero interest in removing Trump, as they are addicted to the constantly comedy Trump provides. Media addiction to moron content rules the USA population in year 2026.
+
+* “Science is more than a body of knowledge; it is a way of thinking. I have a (year 1995) foreboding of an America in my children’s or grandchildren’s time — when the United States is a service and information economy; when nearly all the key manufacturing industries have slipped away to other countries; when awesome technological powers are in the hands of a very few, and no one representing the public interest can even grasp the issues; when the people have lost the ability to set their own agendas or knowledgeably question those in authority; when, clutching our crystals and nervously consulting our horoscopes, our critical faculties in decline, unable to distinguish between what feels good and what’s true, we slide, almost without noticing, back into superstition and darkness. The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the **30-second** sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but especially a kind of [celebration of ignorance](https://www.youtube.com/watch?v=wcY-x1VuWtE). As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning — not just of science, but of anything — are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995, page 59
+
+NEW_OPERA_NAME #CelebratingMorons #CelebratingIgnorance    
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mh6ziddewk2e https://autistics.life/@RoundSparrow/116240123671978583 }   
+
+https://old.reddit.com/r/AdviceAnimals/comments/1rxa7qm/im_not_proud_of_it_but_its_the_first_thought_i/ob5pxp8/
+
+This entire Reddit front-page posting is celebrating that ignorance wins. Celebrating the "Advice Animals" dumb-think that created MAGA in the first place, meme-thinking, Twitter-thinking, Fox News HDTV mindsets. Media mania. IGNORANCE_CELEBRATIONS People admiring this bear image meme are not resisting ignorance. RESISTING_WHAT_EXACTLY They are cheering on human stupidity at the hands of Apple iPhone and Apple iPad and Russia's Internet Research Agency since March of year 2013.
+
+https://old.reddit.com/r/Irony/comments/1rxfu3n/i_dont_want_gavin_as_president_but_this_is/ob6rjlo/
+
+https://old.reddit.com/r/SipsTea/comments/1ry5ayo/do_you_support_this/obc1o19/
+
+This posting is at the very top of /r/All popular. Removing Donald Trump from Home Alone 2. Not removing Trump from White House, but the media cult of Reddit wanting to discuss fiction content. CALL_FOR_ACTION_TO_DO_TRIVIAL_CHANGE Observe the absence of Reddit community priority concern **nonfiction serious relevant books and films** by Jen Senko and Dr. Bandy X Lee. Instead, the highly popular engaging topic. And look at the title of the Reddit posting, that the Reddit community upvoted. Click-bait engagement generic non-specific title. "Do you support this?" An image of Trump, Reddit cult attraction. REPUBLICANS_LEAD_WITH_IGNORANCE_IDEAS_AND_FOLLOWERS_REPLY_WITH_IGNORANCE
+
+https://old.reddit.com/r/SipsTea/comments/1ry5ayo/do_you_support_this/obc2i52/
+
+"nothing better to do" ANTI_WIKI_ANTI_FAQ and NOT_GOOD_ENOUGH Jen Senko, not good enough Dr. Bandy X Lee, not good enough MLK Jr to be preaching and teaching, moralizing. Instead, free time and spare time on Reddit goes into service of low-effort commenting. People should be quoting the relevant nonfiction books on paper from Dr. Bandy X Lee and escape the cesspool of shit-commenting shit-posting MORE_THAN_EPSTEIN_NAME_DROPS Dr. Lee should be quoted comment after comment until Trump is removed.
+
+https://old.reddit.com/r/Fauxmoi/comments/1ry5qgr/trump_responding_to_reporter_asking_why_the_us/obc0owe/
+
+Yes. And Reddit is the front-row seating for every Trump content drop / MAGA fandom content. Top most upvoted popular comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING FANATICS_FANS_OF_CLOWNS_FANS_OF_MAGA_CLOWNING Observe, again, the avoidance of Dr. Bandy X Lee, Jen Senko, and other relevant nonfiction books on paper.
+
+https://old.reddit.com/r/Irony/comments/1ry6m7h/this_will_be_lost_on_his_loyal_subjects/obcg55u/
+
+Look at the clickbait posting Title on this front-page posting. People can't name Surkov or Adam Curtis 2014 about "Contradictory Vaudeville" https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html DECEMBER_5_2014_NATO_JOKE_ARTICLE_5_JOKE Reddit is a loyal mocking audience that AVOIDS citing Adam Curtis, Dr. Bandy X Lee, etc. Loyal to following Trump's mockery and adding to the mocking.
+
+https://old.reddit.com/r/Irony/comments/1ry6m7h/this_will_be_lost_on_his_loyal_subjects/obcppl8/
+
+BRAIN_ROT_LEFT_RIGHT_LIB_CON_NAME_AVOIDANCE ignorance is a Twitter-thinking USA problem, not just left, not just right. Brain rot nation.
+
+https://old.reddit.com/r/Epstein/comments/1ry8lo1/do_u_think_this_woman_should_be_charged_with/obcmagw/
+
+22 day Reddit account. Top most upvoted popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT This whole posting isn't making any serious intellectual effort to remove Trump, such as promoting Jen Senko or Dr. Bandy X Lee. It's incredibly low-effort "social media engagement" with a generic clickbait posting title. "This woman" generic bait.
+

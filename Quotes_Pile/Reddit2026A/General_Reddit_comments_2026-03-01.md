@@ -247,3 +247,65 @@ https://old.reddit.com/r/OldSchoolCool/comments/1rs0zfo/kurt_cobain_eating_brown
 MEDIA_ECOLOGY_OBSERVATION
 
 * “With the arrival of electric technology, man has extended, or set outside himself, a live model of the central nervous system itself. To the degree that this is so, it is a development that suggests a desperate suicidal autoamputation, as if the central nervous system could no longer depend on the physical organs to be protective buffers against the slings and arrows of outrageous mechanism.” ― Marshall McLuhan, Understanding Media: The Extensions of Man. Year 1964
+
+https://old.reddit.com/r/tattooadvice/comments/1ru3iz6/uhhh_quick_psa/oainpfn/
+
+https://old.reddit.com/r/tattooadvice/comments/1ru3iz6/uhhh_quick_psa/oaisqdw/
+
+Only wealthy and famous people like Elon Musk and Donald Trump. STAND_UP_FOR_THE_BIG_GUY
+
+https://old.reddit.com/r/tattooadvice/comments/1ru3iz6/uhhh_quick_psa/oak8f9i/
+
+SATIRE_SARCASM_WASHING
+
+https://old.reddit.com/r/popculturechat/comments/1rugg3w/millie_bobby_brown_has_hosted_the_first_annual/oala7rx/
+
+MEDIA_ECOLOGY_OBSERVATION 
+
+https://old.reddit.com/r/mildlyinfuriating/comments/1ruh9cn/my_son_won_this_at_his_schools_science_fair/oalx2td/
+
+FAKE_DETECTORS WIDE_RADICAL_DOUBT_ABOUT_REAL
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1rv5qu2/petaj/oaq4d4x/
+
+29 day Reddit account. Most-popular upvoted comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT as for topic posting: DENIAL_ABOUNDS that people are being mass dehumanized. That commercial for-profit workout gyms are being promoted as a solution to systemic society failure in USA (Reddit California society).
+
+https://old.reddit.com/r/mildlyinteresting/comments/1rvm178/honey_can_be_green_i_got_this_yesterday_at_a/oatti88/
+
+MEDIA_ECOLOGY_OBSERVATION it is simply faster, quicker to write a comment and not bother reading the existing 200 comments. It's a time-based Reddit, as Reddit platform ages out content for the next empty posting.
+
+https://old.reddit.com/r/pcmasterrace/comments/1rw29b7/thanks_nvidia/oawwnh6/
+
+https://old.reddit.com/r/pcmasterrace/comments/1rw29b7/thanks_nvidia/oax8dfy/
+
+https://old.reddit.com/r/Millennials/comments/1rw74pz/someone_brought_up_that_one_of_the_reasons_why/oaxuwl4/
+
+People are self-harm on a national scale now. Twitter-thinking took over since year 2013. Surkov won. SELF_HARM_USA
+
+https://old.reddit.com/r/Millennials/comments/1rw74pz/someone_brought_up_that_one_of_the_reasons_why/oaxv09c/
+
+MEDIA_ECOLOGY_OBSERVATION
+
+https://old.reddit.com/r/mildlyinfuriating/comments/1ry4rbd/my_sons_kindergarten_class_is_being_exposed_to/obbuwz8/
+
+MEDIA_ECOLOGY_OBSERVATION
+
+https://old.reddit.com/r/LivestreamFail/comments/1rybj2h/clavicular_ends_and_walks_out_of_his_channel_5/obdg8ga/
+
+AUTISM_EXPERIENCE
+
+https://old.reddit.com/r/LivestreamFail/comments/1rybj2h/clavicular_ends_and_walks_out_of_his_channel_5/obdg5xu/
+
+https://old.reddit.com/r/LivestreamFail/comments/1rybj2h/clavicular_ends_and_walks_out_of_his_channel_5/obdiea0/
+
+https://old.reddit.com/r/LivestreamFail/comments/1rybj2h/clavicular_ends_and_walks_out_of_his_channel_5/obdah76/
+
+https://old.reddit.com/r/LivestreamFail/comments/1rybj2h/clavicular_ends_and_walks_out_of_his_channel_5/obdcoaw/
+
+https://old.reddit.com/r/LivestreamFail/comments/1rybj2h/clavicular_ends_and_walks_out_of_his_channel_5/obd9xsb/
+
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1rybhun/do_they_never_feel_embrassed_like_this_is_a/obdb0uv/
+
+https://old.reddit.com/r/Fauxmoi/comments/1ryhp43/olivia_rodrigo_quotes_broad_city_in_response_to/obejb3k/
+
+CHOICE_MARRIAGE_HONESTY

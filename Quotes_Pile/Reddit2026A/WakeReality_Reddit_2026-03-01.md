@@ -91,3 +91,40 @@ https://old.reddit.com/r/jamesjoyce/comments/1rixpg3/new_to_joyce_have_copies_of
 My message with a sense of global urgency. LEVANT_MONOMYTH_CRISIS
 
 OOPS, had to edit the message, forgot to finish a sentence: "Humanity is running out of time and people are raging in fandoms vs. fandoms." - I also observe the REDDIT_HIVE_MIND downvoting of the user's posting. Currently: "5 points (73% upvoted)" in 4 hours. Multiple downvotes.
+
+https://old.reddit.com/r/jamesjoyce/comments/1renl91/why_do_most_copies_of_finnegans_wake_start_on/oas00ps/
+
+My reply to a follow-up question. Reddit did not published, censored. As documented here: https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Reddit2026A/Censored/2026-03-16_James_Joyce_censored.md
+
+A shorter version of my reply comment seems to have been published:
+
+https://old.reddit.com/r/jamesjoyce/comments/1renl91/why_do_most_copies_of_finnegans_wake_start_on/oas1c01/
+
+not-censored comment of mine.
+
+https://old.reddit.com/r/jamesjoyce/comments/1rv8lba/im_in_love_with_molly_bloom_am_i_the_only_one/oauwvh6/
+
+My comment concerning Love Molly fiction.
+
+https://old.reddit.com/r/wakepod/comments/1rvhgci/wake_cold_reading_finnegans_wake_episode_41/oav0udn/
+
+PLURIBUS! PLUR1BUS! COLLECTIVELY_INTELLIGENT_PLURIBUS_LEARNING
+
+
+
+https://old.reddit.com/r/Damnthatsinteresting/comments/1rw7e0x/newly_discovered_papyrus_scrolls_tell_the_story/oay6qik/
+
+https://old.reddit.com/r/Damnthatsinteresting/comments/1rw7e0x/newly_discovered_papyrus_scrolls_tell_the_story/oay314f/
+
+https://old.reddit.com/r/Damnthatsinteresting/comments/1rw7e0x/newly_discovered_papyrus_scrolls_tell_the_story/oaxpld0/
+
+MEDIA_ECOLOGY_OBSERVATION
+
+https://old.reddit.com/r/Damnthatsinteresting/comments/1rw7e0x/newly_discovered_papyrus_scrolls_tell_the_story/oaxowrq/
+
+https://old.reddit.com/r/Damnthatsinteresting/comments/1rw7e0x/newly_discovered_papyrus_scrolls_tell_the_story/oaxz8is/
+
+https://old.reddit.com/r/Damnthatsinteresting/comments/1rw7e0x/newly_discovered_papyrus_scrolls_tell_the_story/oaxognq/
+
+https://old.reddit.com/r/Damnthatsinteresting/comments/1rw7e0x/newly_discovered_papyrus_scrolls_tell_the_story/oaxvou6/
+

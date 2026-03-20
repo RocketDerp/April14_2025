@@ -17,6 +17,7 @@ Gooogle Search. Wednesday, October 29, 2025 morning USA.
 
 I did not hashtag the opera, so linking it here.    
 
+NEW_OPERA_NAME #SubstantiveOpera   
 https://autistics.life/@RoundSparrow/115457576393270910      
 https://bsky.app/profile/roundsparrow.bsky.social/post/3m4divx2he22s   
 
@@ -37,4 +38,21 @@ https://www.youtube.com/watch?v=5YvPyUhjnEw
 https://youtu.be/HmR1bKsu5mk?t=199    
 Steve Lukather’s UNREAL Roger Waters Story   
 
+&nbsp;
 
+&nbsp;
+
+# Translation Mental Breakdowns
+
+Thursday, March 19, 2026    
+
+https://bsky.app/profile/roundsparrow.bsky.social/post/3mhgm6xgack2o   
+https://autistics.life/@RoundSparrow/116257198923639364   
+
+&nbsp;
+
+## The Mockery Barrier
+
+NEW_OPERA_NAME (not yet posted / originated) #TheMockeryBarrier #MockeryBarrier    
+
+Like the Sound Barrier, it is nearly impossible to communicate beyond the Mockery barrier that SURKOV_STUDENTS created since March of year 2013. People do not see Twitter and Bluesky in Neil Postman's 1985 nonfiction book on paper. People do not see Dr. Bandy X Lee's October 3, 2017 nonfiction book as more important than 99% of what people are doing with free time and spare time mocking on social media.
