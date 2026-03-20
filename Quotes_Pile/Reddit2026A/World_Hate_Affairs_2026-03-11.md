@@ -360,3 +360,8 @@ DENIAL_ABOUNDS people will not put down their TV and Internet meme addictions an
 https://old.reddit.com/r/worldnews/comments/1rz71ra/trump_admits_that_he_trusts_putin_more_than_uss/objvfdi/
 
 PRIZING_HATE_FURTHERING_HATE
+
+https://old.reddit.com/r/worldnews/comments/1rz71ra/trump_admits_that_he_trusts_putin_more_than_uss/objzvxe/
+
+DECEMBER_5_2014_NATO_JOKE_ARTICLE_5_JOKE
+
