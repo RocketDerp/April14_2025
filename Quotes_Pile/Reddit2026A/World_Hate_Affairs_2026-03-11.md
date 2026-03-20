@@ -368,3 +368,8 @@ DECEMBER_5_2014_NATO_JOKE_ARTICLE_5_JOKE
 https://old.reddit.com/r/politics/comments/1rz6er8/we_are_hated_as_a_nation_theres_one_man_to_blame/objpak8/
 
 UNITED_IN_BLAMING_ONE_THIRD_HATE_VS_HATE_ANTI_RESCUE
+
+https://old.reddit.com/r/politics/comments/1rz6er8/we_are_hated_as_a_nation_theres_one_man_to_blame/objpd1j/
+
+3 month Reddit account. 2nd most popular upvoted comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+
