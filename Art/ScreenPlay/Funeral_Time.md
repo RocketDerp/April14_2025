@@ -19,3 +19,12 @@ Funeral Tapes - Music to be buried by
 Techmoan   
 30,613 views March 7, 2026    
 
+&nbsp;
+
+# TLC Year 2013
+
+https://www.youtube.com/watch?v=jkpFvJTxoMc    
+When Funeral Homes Met Reality TV: The Unraveling   
+291,056 views March 18, 2026   
+"Best Funeral Ever"   
+"Golden Gate Funeral Home", Dallas Texas   
