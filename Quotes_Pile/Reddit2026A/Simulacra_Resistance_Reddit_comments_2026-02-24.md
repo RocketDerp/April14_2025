@@ -426,3 +426,7 @@ Typical Reddit audience onion eating. "Stupid", calling Trump moron, idiot, stup
 The key information (technique) of SURKOV_STUDENTS is to wreck the media-consumer (Reddit comment creator) minds into patterns of engaging the Kremlin  White House and downplaying it as dumb and stupid (just creating mind patterns and messages, not viewing as an actual danger, but treating as a TV screen game / Reddit screen game). SAFE_DANGER_IN_2017_NONFICTION_BOOK_TITLE ANYTHING and EVERYTHING to avoid "danger" such as October 3, 2017 book title by Dr. Bandy X Lee. Calling Trump "stupid" over and over on social media is blown-mind symptom, a comfort blanket of messaging (commenting messages) denial. 
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mhl3oamwo22f https://autistics.life/@RoundSparrow/116267289548949515 }    
+
+https://old.reddit.com/r/law/comments/1rzy2od/donald_trump_cheers_former_special_counsel_robert/obpc7b4/
+
+Team sports of hate. Hate is cheered if it is for the team you are on. THE_1954_EQUATION is avoided because people think hate wins.
