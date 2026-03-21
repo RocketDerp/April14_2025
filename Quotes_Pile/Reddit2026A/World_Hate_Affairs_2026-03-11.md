@@ -376,3 +376,7 @@ https://old.reddit.com/r/politics/comments/1rz6er8/we_are_hated_as_a_nation_ther
 https://old.reddit.com/r/politics/comments/1rz6er8/we_are_hated_as_a_nation_theres_one_man_to_blame/objq9ye/
 
 ATTRACTION_TO_HATE_LEADERS_HATE_FOLLOWERS
+
+https://old.reddit.com/r/movies/comments/1rzcqk9/nicholas_brendon_buffy_the_vampire_slayer_star/obl7deu/
+
+That's the thing with THE_1954_EQUATION from MLK Jr that people don't see. A good idea from an idea man. Johnny Appleseed of good ideas. Since year 2013, since MAGA Trumpism USA - since October 8, 2013 trip to Moscow that Trump took on a private jet - people seem incredibly avoidant and have abandoned good ides and quotes. REMEDIAL_MORALITY_GOOD_IDEAS_DEVELOPMENT_ABANDONMENT
