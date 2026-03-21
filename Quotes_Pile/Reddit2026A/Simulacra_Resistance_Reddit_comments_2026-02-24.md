@@ -419,6 +419,10 @@ https://old.reddit.com/r/Epstein/comments/1ry8lo1/do_u_think_this_woman_should_b
 
 https://old.reddit.com/r/therewasanattempt/comments/1rzndmm/to_win_a_war/obnbe7f/
 
+<img width="961" height="815" alt="image" src="https://github.com/user-attachments/assets/c51f58d2-4674-4952-9d83-91fa0f05b2b6" />
+
 Typical Reddit audience onion eating. "Stupid", calling Trump moron, idiot, stupid for doing Surkov's key innovation that blows Reddit audience into avoiding nonfiction serious books printed on paper. SURKOVIAN_ONION_EATING Surkov won Reddit end-user hearts and minds since March 2013. DECEMBER_5_2014_NATO_JOKE_ARTICLE_5_JOKE
 
-The key information of SURKOV_STUDENTS is to wreck the media-consumer (Reddit comment creator) minds into patterns of engaging the Kremlin  White House and downplaying it as dumb and stupid (just creating mind patterns and messages, not viewing as an actual danger, but treating as a TV screen game / Reddit screen game). SAFE_DANGER_IN_2017_NONFICTION_BOOK_TITLE ANYTHING and EVERYTHING to avoid "danger" such as October 3, 2017 book title by Dr. Bandy X Lee. Calling Trump "stupid" over and over on social media is blown-mind symptom, a comfort blanket of messaging (commenting messages) denial. 
+The key information (technique) of SURKOV_STUDENTS is to wreck the media-consumer (Reddit comment creator) minds into patterns of engaging the Kremlin  White House and downplaying it as dumb and stupid (just creating mind patterns and messages, not viewing as an actual danger, but treating as a TV screen game / Reddit screen game). SAFE_DANGER_IN_2017_NONFICTION_BOOK_TITLE ANYTHING and EVERYTHING to avoid "danger" such as October 3, 2017 book title by Dr. Bandy X Lee. Calling Trump "stupid" over and over on social media is blown-mind symptom, a comfort blanket of messaging (commenting messages) denial. 
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mhl3oamwo22f https://autistics.life/@RoundSparrow/116267289548949515 }    
