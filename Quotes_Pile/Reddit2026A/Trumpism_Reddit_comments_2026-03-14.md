@@ -520,3 +520,6 @@ https://old.reddit.com/r/Fauxmoi/comments/1rzxh57/donald_trump_says_hes_glad_tha
 
 Most popular upvoted comment. 3 day Reddit account. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT playing dumb for engagement. Stupid questions to a dumb audience. Following Trump's lead of dumb. PROMOTING_IGNORANCE_WORKS_PLAYING_DUMB_MOCKING "big head and smaller face", shallow. SUPERFICIAL_SHALLOW_PRIZING_TRUMPISM_MAGA_VALUES
 
+https://old.reddit.com/r/Awww/comments/1s03f4i/got_banned_from_the_other_sub_for_posting_this/obqrrpz/
+
+Media mania. just like Fox News and Newsmax media manic audiences deporting people. MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL BLOCK_HAPPY_DEPORT_HAPPY_SILENCE_POOR_PEOPLE_SILENCE_UPPITY
