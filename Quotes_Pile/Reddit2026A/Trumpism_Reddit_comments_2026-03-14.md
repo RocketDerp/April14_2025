@@ -487,3 +487,7 @@ OUTBREAKS_OF_MOB_CULT_BEHAVIORS WHITE_HOUSE_REALITY_WARFARE_FICTION_AVOIDING_NON
 https://old.reddit.com/r/pics/comments/1rzh3qt/us_economy_is_definitely_fed_wonder_bread_is_4/oblz027/
 
 But media mania is a photograph on /r/All front page of Reddit, photograph mania. MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL
+
+https://old.reddit.com/r/TFE/comments/1rzh8jw/incredible_moment_as_a_us_general_refuses_to/obm2adz/
+
+11 month Reddit account. Top upvoted most popular comment. "What a time to be alive!!!" to create endless comments all avoiding Dr. Bandy X Lee's nonfiction book repeating. Comment after comment, "this is life!!!, meme life!!!" on Reddit high-speed information systems. FAN_PASSION_MAGA_VALUES REDDIT_FRONT_PAGE_YOUNG_ACCOUNT REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
