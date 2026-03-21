@@ -511,3 +511,7 @@ DEATH_WISH_LIST cheering from Trump. ENTERTAINED_JUST_PASSIVELY_WATCHING_UNTIL_D
 https://old.reddit.com/r/law/comments/1rzy2od/donald_trump_cheers_former_special_counsel_robert/obpcnvp/
 
 Ranking people. Popular, TOXIC_POPULARITY SOCIAL_CULT_HATE_WATCHING_FANDOM Trump leads with hate, draws a big crowd on media that cheers on hate.
+
+https://old.reddit.com/r/law/comments/1rzy2od/donald_trump_cheers_former_special_counsel_robert/obpfnib/
+
+ANSWER: We are avoiding nonfiction serious books from Neil Postman. We The People are commenting on high-speed notification systems. MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL
