@@ -467,3 +467,7 @@ https://old.reddit.com/r/news/comments/1rz1ydy/us_to_deploy_thousands_of_additio
 https://old.reddit.com/r/nottheonion/comments/1rzeaal/charlie_kirks_mentor_and_father_of_modern/obldj7w/
 
 BRAIN_ROT_LEFT_RIGHT_LIB_CON_NAME_AVOIDANCE media has turned it into brain rot, liberal vs. conservative wildcard meanings where people don't name a specified list of values or give an example nation and time period they want to follow. One thing conservatives in current usage never seem to avoid is Apple iPhone and Twitter, Reddit, video games. Amish in USA are authentic example of meaning of conservative (I grew up with in Grabill Indiana).
+
+https://old.reddit.com/r/politics/comments/1rz6ut3/he_needs_to_go_dems_rage_over_fettermans_dhs_vote/objs3pd/
+
+This whole headline. CORE_CONCERNS people are calling for removal from one person. Discussing it on social media. AVOIDED_DR_BANDY_X_LEE_PUBLIC_WRITINGS why are people not having a social media uprising and calling for removal of Fox News from society? Why in't Reddit community on the front page calling for Trump removal? In all the years, addicts to media entertainment and Trump stimulation can't point to sustained anything except engagement commenting to Trump. SOCIAL_MEDIA_DID_NOT_HAVE_UPRISING_SUSTAINED_FOCUSED
