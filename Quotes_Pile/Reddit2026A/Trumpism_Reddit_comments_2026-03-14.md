@@ -463,3 +463,7 @@ HATE_HARDER Trump leads MAGA with hate. Reddit follows hate. ATTRACTION_TO_HATE_
 https://old.reddit.com/r/news/comments/1rz1ydy/us_to_deploy_thousands_of_additional_troops_to/obircep/
 
 "crazy". But it creates so much commenting for Reddit servers. PRIORITIES_OF_THE_99_PERCENT_COMMENTING_MEDIA
+
+https://old.reddit.com/r/nottheonion/comments/1rzeaal/charlie_kirks_mentor_and_father_of_modern/obldj7w/
+
+BRAIN_ROT_LEFT_RIGHT_LIB_CON_NAME_AVOIDANCE media has turned it into brain rot, liberal vs. conservative wildcard meanings where people don't name a specified list of values or give an example nation and time period they want to follow. One thing conservatives in current usage never seem to avoid is Apple iPhone and Twitter, Reddit, video games. Amish in USA are authentic example of meaning of conservative (I grew up with in Grabill Indiana).
