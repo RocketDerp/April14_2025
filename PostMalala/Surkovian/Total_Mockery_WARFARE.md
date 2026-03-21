@@ -27,3 +27,12 @@ Neil Postman NYC Manhattan NYU grasped it. Pro rich children class clowns of Man
 Year 1985.   
 “Everything in our background has prepared us to know and resist a prison when the gates begin to close around us . . . But what if there are no cries of anguish to be heard? Who is prepared to take arms against a sea of amusements? To whom do we complain, and when, and in what tone of voice, when serious discourse dissolves into giggles? What is the antidote to a culture's being drained by laughter?”   
 ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business
+
+&nbsp;
+
+# MonoMyth Warfare
+
+MONOMYTH_WARFARE   
+
+"unspeakable mutilations of the spirit"   
+https://youtu.be/NNO1SNWCmEY?t=585    
