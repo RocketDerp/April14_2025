@@ -6,7 +6,7 @@ War, hate, mass dehumanization, tech love
 
 &nbsp;
 
-# Stephen Dolbert not repeating
+# Stephen Colbert not repeating
 
 Stephen Colbert not repeating his May 4, 2019 story about measles
 
