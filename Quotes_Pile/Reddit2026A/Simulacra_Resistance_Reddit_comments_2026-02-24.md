@@ -417,3 +417,8 @@ https://old.reddit.com/r/Epstein/comments/1ry8lo1/do_u_think_this_woman_should_b
 
 22 day Reddit account. Top most upvoted popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT This whole posting isn't making any serious intellectual effort to remove Trump, such as promoting Jen Senko or Dr. Bandy X Lee. It's incredibly low-effort "social media engagement" with a generic clickbait posting title. "This woman" generic bait.
 
+https://old.reddit.com/r/therewasanattempt/comments/1rzndmm/to_win_a_war/obnbe7f/
+
+Typical Reddit audience onion eating. "Stupid", calling Trump moron, idiot, stupid for doing Surkov's key innovation that blows Reddit audience into avoiding nonfiction serious books printed on paper. SURKOVIAN_ONION_EATING Surkov won Reddit end-user hearts and minds since March 2013. DECEMBER_5_2014_NATO_JOKE_ARTICLE_5_JOKE
+
+The key information of SURKOV_STUDENTS is to wreck the media-consumer (Reddit comment creator) minds into patterns of engaging the Kremlin  White House and downplaying it as dumb and stupid (just creating mind patterns and messages, not viewing as an actual danger, but treating as a TV screen game / Reddit screen game). SAFE_DANGER_IN_2017_NONFICTION_BOOK_TITLE ANYTHING and EVERYTHING to avoid "danger" such as October 3, 2017 book title by Dr. Bandy X Lee. Calling Trump "stupid" over and over on social media is blown-mind symptom, a comfort blanket of messaging (commenting messages) denial. 
