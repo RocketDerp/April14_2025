@@ -491,3 +491,8 @@ But media mania is a photograph on /r/All front page of Reddit, photograph mania
 https://old.reddit.com/r/TFE/comments/1rzh8jw/incredible_moment_as_a_us_general_refuses_to/obm2adz/
 
 11 month Reddit account. Top upvoted most popular comment. "What a time to be alive!!!" to create endless comments all avoiding Dr. Bandy X Lee's nonfiction book repeating. Comment after comment, "this is life!!!, meme life!!!" on Reddit high-speed information systems. FAN_PASSION_MAGA_VALUES REDDIT_FRONT_PAGE_YOUNG_ACCOUNT REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
+
+https://old.reddit.com/r/pics/comments/1rzrsti/japanese_prime_minister_sanae_takaichi_during_the/obo4nby/
+
+SAFE_DANGER_IN_2017_NONFICTION_BOOK_TITLE
+
