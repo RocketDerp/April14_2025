@@ -1,5 +1,7 @@
 # Total Mockery **WARFARE**
 
+NEW_OPERA_NAME #PeopleTrustMockery #FaithInMocking   
+
 https://bsky.app/profile/roundsparrow.bsky.social/post/3mdrhltc5cs2c   
 https://autistics.life/@RoundSparrow/115993412032281921   
 
