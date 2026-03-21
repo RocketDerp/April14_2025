@@ -471,3 +471,7 @@ BRAIN_ROT_LEFT_RIGHT_LIB_CON_NAME_AVOIDANCE media has turned it into brain rot, 
 https://old.reddit.com/r/politics/comments/1rz6ut3/he_needs_to_go_dems_rage_over_fettermans_dhs_vote/objs3pd/
 
 This whole headline. CORE_CONCERNS people are calling for removal from one person. Discussing it on social media. AVOIDED_DR_BANDY_X_LEE_PUBLIC_WRITINGS why are people not having a social media uprising and calling for removal of Fox News from society? Why in't Reddit community on the front page calling for Trump removal? In all the years, addicts to media entertainment and Trump stimulation can't point to sustained anything except engagement commenting to Trump. SOCIAL_MEDIA_DID_NOT_HAVE_UPRISING_SUSTAINED_FOCUSED
+
+https://old.reddit.com/r/worldnews/comments/1rzdu5s/report_iran_fires_missiles_toward_diego_garcia_in/oblbxng/
+
+TRUMP_FANDOM on Reddit is so engaged with the media content produced by the Kremlin and White House. Endlessly commenting about the patterns of ideas and words, Surkov Students feed this to Reddit audience - and the Reddit commenting community blows their minds into predictable outcomes. NEW_SYSTEM_POLITICAL_CONTROL Surkov won since year 2013. Reddit fandom eats this up, it swirls around inside the media cult (Reddit end-users) minds as Surkov discovered.
