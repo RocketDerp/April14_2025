@@ -479,3 +479,7 @@ TRUMP_FANDOM on Reddit is so engaged with the media content produced by the Krem
 https://old.reddit.com/r/NBAGossips/comments/1rzdxc5/someone_at_last_nights_spurs_game_texting_a_lot/obla4ep/
 
 WAR_ALL_AGAINST_ALL programmed rectangle sports-mentality logic patterns.
+
+https://old.reddit.com/r/pics/comments/1rzh3qt/us_economy_is_definitely_fed_wonder_bread_is_4/oblzj93/
+
+OUTBREAKS_OF_MOB_CULT_BEHAVIORS WHITE_HOUSE_REALITY_WARFARE_FICTION_AVOIDING_NONFICTION_ON_WARFARE
