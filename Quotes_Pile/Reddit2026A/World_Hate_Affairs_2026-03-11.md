@@ -385,3 +385,6 @@ https://old.reddit.com/r/movies/comments/1rzcqk9/nicholas_brendon_buffy_the_vamp
 
 MEDIA_ECOLOGY_OBSERVATION
 
+https://old.reddit.com/r/PublicFreakout/comments/1rzdljk/a_violent_israeli_in_canada_threatens_canadian/obleq0r/
+
+Canada, Israel, Palestine. People on commenting media systems go to such extreme lengths to avoid THE_1954_EQUATION that is common to all humanity. Hate is bad, condemn all hate in all places!
