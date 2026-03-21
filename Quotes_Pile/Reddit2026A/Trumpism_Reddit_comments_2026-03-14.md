@@ -503,3 +503,7 @@ https://old.reddit.com/r/news/comments/1rzxm9w/former_fbi_director_robert_muelle
 https://old.reddit.com/r/news/comments/1rzxm9w/former_fbi_director_robert_mueller_who/obpez79/
 
 Go back to the impeachment and release of the report and look for news coverage of the REDDIT_BLACKOUT and social media uprising demanding Trump's removal from We The People. It never happened. The cult of HBO The Wire on Reddit made meme after meme about "Mueller' Comin!" https://old.reddit.com/r/The_Mueller/comments/8b1krt/mueller_comin_yo/ and other celebrations of ignorance in media systems. BANAL_WASH_LAUGH_TRACK HYPER_BANALISATION
+
+https://old.reddit.com/r/law/comments/1rzy2od/donald_trump_cheers_former_special_counsel_robert/obpcdec/
+
+DEATH_WISH_LIST cheering from Trump. ENTERTAINED_JUST_PASSIVELY_WATCHING_UNTIL_DEATH_NO_SOCIAL_MEDIA_UPRISING_WHILE_ALIVE
