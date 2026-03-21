@@ -475,3 +475,7 @@ This whole headline. CORE_CONCERNS people are calling for removal from one perso
 https://old.reddit.com/r/worldnews/comments/1rzdu5s/report_iran_fires_missiles_toward_diego_garcia_in/oblbxng/
 
 TRUMP_FANDOM on Reddit is so engaged with the media content produced by the Kremlin and White House. Endlessly commenting about the patterns of ideas and words, Surkov Students feed this to Reddit audience - and the Reddit commenting community blows their minds into predictable outcomes. NEW_SYSTEM_POLITICAL_CONTROL Surkov won since year 2013. Reddit fandom eats this up, it swirls around inside the media cult (Reddit end-users) minds as Surkov discovered.
+
+https://old.reddit.com/r/NBAGossips/comments/1rzdxc5/someone_at_last_nights_spurs_game_texting_a_lot/obla4ep/
+
+WAR_ALL_AGAINST_ALL programmed rectangle sports-mentality logic patterns.
