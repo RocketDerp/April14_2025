@@ -518,4 +518,5 @@ ANSWER: We are avoiding nonfiction serious books from Neil Postman. We The Peopl
 
 https://old.reddit.com/r/Fauxmoi/comments/1rzxh57/donald_trump_says_hes_glad_that_robert_mueller/obp8klg/
 
-Most popular upvoted comment. 3 day Reddit account. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT playing dumb for engagement. Stupid questions to a dumb audience. Following Trump's lead of dumb. PROMOTING_IGNORANCE_WORKS_PLAYING_DUMB_MOCKING
+Most popular upvoted comment. 3 day Reddit account. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT playing dumb for engagement. Stupid questions to a dumb audience. Following Trump's lead of dumb. PROMOTING_IGNORANCE_WORKS_PLAYING_DUMB_MOCKING "big head and smaller face", shallow. SUPERFICIAL_SHALLOW_PRIZING_TRUMPISM_MAGA_VALUES
+
