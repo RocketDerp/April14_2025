@@ -499,3 +499,7 @@ SAFE_DANGER_IN_2017_NONFICTION_BOOK_TITLE
 https://old.reddit.com/r/news/comments/1rzxm9w/former_fbi_director_robert_mueller_who/obpdagh/
 
 "exactly what you expect", content for fandom on Reddit. Hate-watching fandom. PREDICTABLE_OUTCOME
+
+https://old.reddit.com/r/news/comments/1rzxm9w/former_fbi_director_robert_mueller_who/obpez79/
+
+Go back to the impeachment and release of the report and look for news coverage of the REDDIT_BLACKOUT and social media uprising demanding Trump's removal from We The People. It never happened. The cult of HBO The Wire on Reddit made meme after meme about "Mueller' Comin!" https://old.reddit.com/r/The_Mueller/comments/8b1krt/mueller_comin_yo/ and other celebrations of ignorance in media systems. BANAL_WASH_LAUGH_TRACK HYPER_BANALISATION
