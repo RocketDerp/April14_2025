@@ -514,4 +514,5 @@ Ranking people. Popular, TOXIC_POPULARITY SOCIAL_CULT_HATE_WATCHING_FANDOM Trump
 
 https://old.reddit.com/r/law/comments/1rzy2od/donald_trump_cheers_former_special_counsel_robert/obpfnib/
 
-ANSWER: We are avoiding nonfiction serious books from Neil Postman. We The People are commenting on high-speed notification systems. MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL
+ANSWER: We are avoiding nonfiction serious books from Neil Postman. We The People are commenting on high-speed notification systems. MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL People are addicted to commenting about the status symbol, Trump, fat white man. PRIORITIES_OF_THE_99_PERCENT_COMMENTING_MEDIA
+
