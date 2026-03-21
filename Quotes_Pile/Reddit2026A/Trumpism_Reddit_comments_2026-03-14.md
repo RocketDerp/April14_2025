@@ -483,3 +483,7 @@ WAR_ALL_AGAINST_ALL programmed rectangle sports-mentality logic patterns.
 https://old.reddit.com/r/pics/comments/1rzh3qt/us_economy_is_definitely_fed_wonder_bread_is_4/oblzj93/
 
 OUTBREAKS_OF_MOB_CULT_BEHAVIORS WHITE_HOUSE_REALITY_WARFARE_FICTION_AVOIDING_NONFICTION_ON_WARFARE
+
+https://old.reddit.com/r/pics/comments/1rzh3qt/us_economy_is_definitely_fed_wonder_bread_is_4/oblz027/
+
+But media mania is a photograph on /r/All front page of Reddit, photograph mania. MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL
