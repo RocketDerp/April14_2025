@@ -496,3 +496,6 @@ https://old.reddit.com/r/pics/comments/1rzrsti/japanese_prime_minister_sanae_tak
 
 SAFE_DANGER_IN_2017_NONFICTION_BOOK_TITLE
 
+https://old.reddit.com/r/news/comments/1rzxm9w/former_fbi_director_robert_mueller_who/obpdagh/
+
+"exactly what you expect", content for fandom on Reddit. Hate-watching fandom. PREDICTABLE_OUTCOME
