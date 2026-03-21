@@ -516,3 +516,6 @@ https://old.reddit.com/r/law/comments/1rzy2od/donald_trump_cheers_former_special
 
 ANSWER: We are avoiding nonfiction serious books from Neil Postman. We The People are commenting on high-speed notification systems. MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL People are addicted to commenting about the status symbol, Trump, fat white man. PRIORITIES_OF_THE_99_PERCENT_COMMENTING_MEDIA
 
+https://old.reddit.com/r/Fauxmoi/comments/1rzxh57/donald_trump_says_hes_glad_that_robert_mueller/obp8klg/
+
+Most popular upvoted comment. 3 day Reddit account. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT playing dumb for engagement. Stupid questions to a dumb audience. Following Trump's lead of dumb. PROMOTING_IGNORANCE_WORKS_PLAYING_DUMB_MOCKING
