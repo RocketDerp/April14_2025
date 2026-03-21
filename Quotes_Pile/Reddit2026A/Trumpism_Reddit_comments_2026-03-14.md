@@ -507,3 +507,7 @@ Go back to the impeachment and release of the report and look for news coverage 
 https://old.reddit.com/r/law/comments/1rzy2od/donald_trump_cheers_former_special_counsel_robert/obpcdec/
 
 DEATH_WISH_LIST cheering from Trump. ENTERTAINED_JUST_PASSIVELY_WATCHING_UNTIL_DEATH_NO_SOCIAL_MEDIA_UPRISING_WHILE_ALIVE
+
+https://old.reddit.com/r/law/comments/1rzy2od/donald_trump_cheers_former_special_counsel_robert/obpcnvp/
+
+Ranking people. Popular, TOXIC_POPULARITY SOCIAL_CULT_HATE_WATCHING_FANDOM Trump leads with hate, draws a big crowd on media that cheers on hate.
