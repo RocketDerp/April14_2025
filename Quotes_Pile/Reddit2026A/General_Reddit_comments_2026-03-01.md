@@ -313,3 +313,7 @@ CHOICE_MARRIAGE_HONESTY
 https://old.reddit.com/r/WTF/comments/1rzjpna/my_friend_shoulder_after_he_tried_automedicating/obmkpoq/
 
 CONCERNS_OF_FINNEGANS CORE_CONCERNS - And by "normal" person, not Trumpism Twitter-thinking where dehumanizing out-groups is not the primary egomania programming in the mind. "Immigrants don't use English correctly" Rupert Murdoch and Truth Social Trump programming into Reddit audience. NEGGING_WORKS_LANGUAGE_INSULTING_WORKS_REALITY_PROGRAMMING_LANGUAGE
+
+https://old.reddit.com/r/WTF/comments/1rzjpna/my_friend_shoulder_after_he_tried_automedicating/obmgok5/
+
+Competition warps minds into mythology. MONOMYTH_WARFARE
