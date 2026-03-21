@@ -430,3 +430,7 @@ Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mhl3oamwo2
 https://old.reddit.com/r/law/comments/1rzy2od/donald_trump_cheers_former_special_counsel_robert/obpc7b4/
 
 Team sports of hate. Hate is cheered if it is for the team you are on. THE_1954_EQUATION is avoided because people think hate wins.
+
+https://old.reddit.com/r/law/comments/1rzy2od/donald_trump_cheers_former_special_counsel_robert/obpaqst/
+
+4 month Reddit account, Trump hate-watching fandom. This is the submitter of the post, got to front page. REDDIT_FRONT_PAGE_YOUNG_ACCOUNT
