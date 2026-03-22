@@ -364,3 +364,6 @@ https://old.reddit.com/r/Fauxmoi/comments/1s0lc7y/chappell_roan_addresses_jorgin
 
 Power.
 
+https://old.reddit.com/r/Fauxmoi/comments/1s0lc7y/chappell_roan_addresses_jorginho_controversy_the/obuckso/
+
+PRIZING_HATE_FURTHERING_HATE
