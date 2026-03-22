@@ -344,3 +344,6 @@ https://old.reddit.com/r/Fauxmoi/comments/1s0lc7y/chappell_roan_addresses_jorgin
 
 "death threats" OUTBREAKS_OF_MOB_CULT_BEHAVIORS
 
+https://old.reddit.com/r/Fauxmoi/comments/1s0lc7y/chappell_roan_addresses_jorginho_controversy_the/obu2glt/
+
+TOXIC_POPULARITY
