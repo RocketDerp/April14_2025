@@ -29,3 +29,16 @@ https://bsky.app/profile/roundsparrow.bsky.social/post/3mhnsv3oxbs2r
 The heigh of the bullshit became so high July 6, 2011 and was growing and growing. ChatGPT wasn't going to be unleashed until year 2022, but the July 6, 2011 threshold was already drowning goodness.
 
 Bullshit would win every conversation, every intercourse, every intercourse dialog would drown out in bullshit. **Settle for** bullshit evertywhere. SETTLED_FOR_WE_THIS_PATH   
+
+&nbsp;
+
+## Pick Up Phones And 
+
+https://www.youtube.com/watch?v=E_WbacEDnJs    
+
+
+I Pick Up Phones And Hear My History   
+
+Every Word I say Turns Out a Sentence  
+
+TODO "Good Luck, Have Fun, Don't Die" #GLHFDD GOOD_LUCK_HAVE_FUN has a scene where he asks if anyone still memorizes phone numbers. Or TCP/IP addresses for that matter, or domain names!
