@@ -328,3 +328,6 @@ Understanding Neil Postman. UNDERSTANDING_TRUMPISM
 
 https://old.reddit.com/r/popculturechat/comments/1s0810n/the_mayor_of_rio_de_janeiro_says_chappell_roan/obsblvp/
 
+https://old.reddit.com/r/popculturechat/comments/1s0810n/the_mayor_of_rio_de_janeiro_says_chappell_roan/obrugod/
+
+EVERYTHING. WORD_CHOICE of a Reddit low-effort celebrity worship site reveals the entire soul and spirit of a person in one sentence reacting. Yet the entire WWW, every person who can spend free time and spare time on social media systems - can't apply Dr. Bandy X Lee's nonfiction book to Donald Trump and make it a critical important priority to world peace and DANGER since October 3, 2017. Peer to peer commenting, with no real identity, no information about location or age or gender - people read magical depth in sample-size of 1. MEDIA_ECOLOGY_OBSERVATION
