@@ -554,3 +554,10 @@ https://old.reddit.com/r/science/comments/1s0iuzh/american_political_discourse_h
 
 BRAIN_ROT_LEFT_RIGHT_LIB_CON_NAME_AVOIDANCE that's why I don't call myself liberal or "left" or all those variations. I specifically name Malala for education and gender and religion freedom, MLK Jr, and so often focus on media ecology / fiction vs. non-fiction. Most of what people call "conservative" is anti-education anti-reality and pro-Quran pro-Bible science fiction. I also emphasize Amish USA people I have experience with seem to be "conservative" and that Elon Musk, Donald Trump seem to have massive technology love an human hate (popular on Reddit technology cult members, entertainment gaming technology, etc) TECH_LUST_TECH_LOVERS
 
+https://old.reddit.com/r/science/comments/1s0iuzh/american_political_discourse_has_become_less/obtm2y9/
+
+UNDERSTANDING_TRUMPISM
+
+https://old.reddit.com/r/science/comments/1s0iuzh/american_political_discourse_has_become_less/obtkkqe/
+
+SELF_HARM_USA - information warfare. NATO lost. Surkov won. NEW_SYSTEM_POLITICAL_CONTROL
