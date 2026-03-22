@@ -567,3 +567,7 @@ https://old.reddit.com/r/TFE/comments/1s0mwya/top_iranian_official_drops_a_massi
 5 month Reddit account. Top most upvoted popular comment. Discussing that the problem is people trust random information and react to nonsense. From a no-identity low-information upvoting community. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT WAR_AGAINST_REALITY
 
 I will keep repeating: There is observable avoidance of nonfiction relevant serious books. Calls to "get on the same page" like some what happened with the Epstein topic (although people are still on different pages and mindsets, the word "Epstein" got asserted). MORE_THAN_EPSTEIN_NAME_DROPS Dr. Bandy X Lee's nonfiction book is an avoided priority. The very people creating these comments on Reddit with their free time and spare time are attracted to low-information all-on-different-pages commenting.
+
+https://old.reddit.com/r/JournalismNews/comments/1s0qp2a/jd_vance_just_admitted_that_he_and_donald_trump/obv9zjd/
+
+Reddit users are in a cult of mocking into a mockery. Cult vs. cult. MEDIA_CULTS_FICTION_FANDOM_MEDIA_POWER Observe there is no call or concern to do CULT_DEPROGRAMMING and Rescue of cults. Media cults. Fox News cult, Reddit cults, etc.
