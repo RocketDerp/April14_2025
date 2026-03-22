@@ -535,3 +535,22 @@ https://old.reddit.com/r/science/comments/1s0iuzh/american_political_discourse_h
 https://old.reddit.com/r/science/comments/1s0iuzh/american_political_discourse_has_become_less/obtv5m1/
 
 MEDIA_WOKE focus. Dissing, dunking, OUT_GROUP_HATE - Trump and Truth Social are successful on a scale never seen in all humanity in getting people to blow their minds into very predictable patterns. Surkov won.
+
+https://old.reddit.com/r/science/comments/1s0iuzh/american_political_discourse_has_become_less/obtr18p/
+
+WOKE_TO_WHAT
+
+https://old.reddit.com/r/science/comments/1s0iuzh/american_political_discourse_has_become_less/obtl7yo/
+
+https://old.reddit.com/r/science/comments/1s0iuzh/american_political_discourse_has_become_less/obtllvx/
+
+REPUBLICANS_LEAD_WITH_IGNORANCE_IDEAS_AND_FOLLOWERS_REPLY_WITH_IGNORANCE
+
+https://old.reddit.com/r/science/comments/1s0iuzh/american_political_discourse_has_become_less/obtnxv9/
+
+REPUBLICANS_LEAD_WITH_IGNORANCE_IDEAS_AND_FOLLOWERS_REPLY_WITH_IGNORANCE
+
+https://old.reddit.com/r/science/comments/1s0iuzh/american_political_discourse_has_become_less/obtrh37/
+
+BRAIN_ROT_LEFT_RIGHT_LIB_CON_NAME_AVOIDANCE that's why I don't call myself liberal or "left" or all those variations. I specifically name Malala for education and gender and religion freedom, MLK Jr, and so often focus on media ecology / fiction vs. non-fiction. Most of what people call "conservative" is anti-education anti-reality and pro-Quran pro-Bible science fiction. I also emphasize Amish USA people I have experience with seem to be "conservative" and that Elon Musk, Donald Trump seem to have massive technology love an human hate (popular on Reddit technology cult members, entertainment gaming technology, etc) TECH_LUST_TECH_LOVERS
+
