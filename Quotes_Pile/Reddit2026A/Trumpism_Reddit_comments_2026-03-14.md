@@ -523,3 +523,15 @@ Most popular upvoted comment. 3 day Reddit account. REDDIT_TOP_COMMENT_YOUNG_ACC
 https://old.reddit.com/r/Awww/comments/1s03f4i/got_banned_from_the_other_sub_for_posting_this/obqrrpz/
 
 Media mania. just like Fox News and Newsmax media manic audiences deporting people. MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL BLOCK_HAPPY_DEPORT_HAPPY_SILENCE_POOR_PEOPLE_SILENCE_UPPITY
+
+https://old.reddit.com/r/science/comments/1s0iuzh/american_political_discourse_has_become_less/obtjetl/
+
+MEDIA_ECOLOGY_OBSERVATION
+
+https://old.reddit.com/r/science/comments/1s0iuzh/american_political_discourse_has_become_less/obtiq3m/
+
+https://old.reddit.com/r/science/comments/1s0iuzh/american_political_discourse_has_become_less/obtx6fj/
+
+https://old.reddit.com/r/science/comments/1s0iuzh/american_political_discourse_has_become_less/obtv5m1/
+
+MEDIA_WOKE focus. Dissing, dunking, OUT_GROUP_HATE - Trump and Truth Social are successful on a scale never seen in all humanity in getting people to blow their minds into very predictable patterns. Surkov won.
