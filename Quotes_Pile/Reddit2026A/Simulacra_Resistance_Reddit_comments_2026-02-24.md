@@ -439,3 +439,6 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1s0o6d7/republicans_are_lit
 
 Twitter-length mind-patterns are super-dumb. BRAIN_ROT_SOCIETY_47 is NOT_JUST_REPUBLICANS or people who declare themselves MAGA. It is a USA problem. Surkov won since year 2013.
 
+https://old.reddit.com/r/PoliticalHumor/comments/1s0wf8o/200_billion_for_the_people/obwjj2q/
+
+Reddit audience is not resisting ignorance. Reddit community is CEREBRATING the "potato" jokes. Celebrating ignorance of real people and ignorance of real policy. This is ADDING to the ignorance. AMUSEMENT_COMEDY_WASHING_TRUMP_AS_FUNNY_MEDIA_SANEWASHING People on Reddit don't even recognize that bizarre antics leadership is Putinism! Surkov! People on Reddit are *eating the onion!*. SURKOVIAN_ONION_EATING
