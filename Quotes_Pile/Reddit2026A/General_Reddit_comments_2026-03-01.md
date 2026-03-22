@@ -322,3 +322,9 @@ https://old.reddit.com/r/interestingasfuck/comments/1s06qte/shia_labeouf_filmed_
 
 This sounds like how people interpret Donald Trump's complex behavior. Of course, Donald Trump has the power of weapon systems and economic systems that do far more harm. But the replies on this thread give insight into how people communicate in short-thinking ideas and read the woman's behavior. SUPER_HYPER_NORMAL
 
+https://old.reddit.com/r/popculturechat/comments/1s0810n/the_mayor_of_rio_de_janeiro_says_chappell_roan/obrksqh/
+
+Understanding Neil Postman. UNDERSTANDING_TRUMPISM  
+
+https://old.reddit.com/r/popculturechat/comments/1s0810n/the_mayor_of_rio_de_janeiro_says_chappell_roan/obsblvp/
+
