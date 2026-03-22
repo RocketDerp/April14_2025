@@ -561,3 +561,9 @@ UNDERSTANDING_TRUMPISM
 https://old.reddit.com/r/science/comments/1s0iuzh/american_political_discourse_has_become_less/obtkkqe/
 
 SELF_HARM_USA - information warfare. NATO lost. Surkov won. NEW_SYSTEM_POLITICAL_CONTROL
+
+https://old.reddit.com/r/TFE/comments/1s0mwya/top_iranian_official_drops_a_massive_bombshell_he/obug1du/
+
+5 month Reddit account. Top most upvoted popular comment. Discussing that the problem is people trust random information and react to nonsense. From a no-identity low-information upvoting community. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT WAR_AGAINST_REALITY
+
+I will keep repeating: There is observable avoidance of nonfiction relevant serious books. Calls to "get on the same page" like some what happened with the Epstein topic (although people are still on different pages and mindsets, the word "Epstein" got asserted). MORE_THAN_EPSTEIN_NAME_DROPS Dr. Bandy X Lee's nonfiction book is an avoided priority. The very people creating these comments on Reddit with their free time and spare time are attracted to low-information all-on-different-pages commenting.
