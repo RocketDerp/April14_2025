@@ -335,3 +335,12 @@ EVERYTHING. WORD_CHOICE of a Reddit low-effort celebrity worship site reveals th
 https://old.reddit.com/r/Fauxmoi/comments/1s0lc7y/chappell_roan_addresses_jorginho_controversy_the/obu2682/
 
 Get out a map of this mayor who banned her. Get out a map of all the players and fathers and people consuming and publishing this story. This is ALL about TCP/IP high-speed information delivery. Gender has a role on it, but high-speed reactionary media systems and "going viral" with symbolism is key. Marshall McLuhan and Neil Postman education topics. HIGH_SPEED_REACTIONARY_MINDSETS
+
+https://old.reddit.com/r/Fauxmoi/comments/1s0lc7y/chappell_roan_addresses_jorginho_controversy_the/obu4hlq/
+
+PUNISHMENT_AND_REWARD
+
+https://old.reddit.com/r/Fauxmoi/comments/1s0lc7y/chappell_roan_addresses_jorginho_controversy_the/obu4w1s/
+
+"death threats" OUTBREAKS_OF_MOB_CULT_BEHAVIORS
+
