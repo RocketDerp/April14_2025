@@ -42,3 +42,10 @@ I Pick Up Phones And Hear My History
 Every Word I say Turns Out a Sentence  
 
 TODO "Good Luck, Have Fun, Don't Die" #GLHFDD GOOD_LUCK_HAVE_FUN has a scene where he asks if anyone still memorizes phone numbers. Or TCP/IP addresses for that matter, or domain names!
+
+&nbsp;
+
+# As Spouse and Husband - my life was wrecked
+
+"I get by with a little help from my friends" would not work for me as a spouse. The combination of Trump content, Trump programming, and Twiter medium July 6, 2011. As Spouse and Husband - my life was wrecked. Crushed in the gears of monster state systems. MONSTER_STATE 
+
