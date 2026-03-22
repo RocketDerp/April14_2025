@@ -434,3 +434,8 @@ Team sports of hate. Hate is cheered if it is for the team you are on. THE_1954_
 https://old.reddit.com/r/law/comments/1rzy2od/donald_trump_cheers_former_special_counsel_robert/obpaqst/
 
 4 month Reddit account, Trump hate-watching fandom. This is the submitter of the post, got to front page. REDDIT_FRONT_PAGE_YOUNG_ACCOUNT
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1s0o6d7/republicans_are_literally_the_dumbest_humans_to/obuqp7j/
+
+Twitter-length mind-patterns are super-dumb. BRAIN_ROT_SOCIETY_47 is NOT_JUST_REPUBLICANS or people who declare themselves MAGA. It is a USA problem. Surkov won since year 2013.
+
