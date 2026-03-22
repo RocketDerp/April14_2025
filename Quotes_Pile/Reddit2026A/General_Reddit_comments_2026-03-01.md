@@ -359,3 +359,8 @@ https://old.reddit.com/r/Fauxmoi/comments/1s0lc7y/chappell_roan_addresses_jorgin
 https://old.reddit.com/r/Fauxmoi/comments/1s0lc7y/chappell_roan_addresses_jorginho_controversy_the/obume22/
 
 I mean, identifying the security guard. Hard to imagine this now world-famous 11 year old girl who hangs out with A-List sports stars and Hollywood stars doesn't have someone possibly filming this incident.
+
+https://old.reddit.com/r/Fauxmoi/comments/1s0lc7y/chappell_roan_addresses_jorginho_controversy_the/obu1px8/
+
+Power.
+
