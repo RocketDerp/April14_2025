@@ -571,3 +571,7 @@ I will keep repeating: There is observable avoidance of nonfiction relevant seri
 https://old.reddit.com/r/JournalismNews/comments/1s0qp2a/jd_vance_just_admitted_that_he_and_donald_trump/obv9zjd/
 
 Reddit users are in a cult of mocking into a mockery. Cult vs. cult. MEDIA_CULTS_FICTION_FANDOM_MEDIA_POWER Observe there is no call or concern to do CULT_DEPROGRAMMING and Rescue of cults. Media cults. Fox News cult, Reddit cults, etc.
+
+https://old.reddit.com/r/JournalismNews/comments/1s0qp2a/jd_vance_just_admitted_that_he_and_donald_trump/obv9cty/
+
+PUTIN_SURKOV_TRUMP_LONG_TERM_YEARS_PLAN 
