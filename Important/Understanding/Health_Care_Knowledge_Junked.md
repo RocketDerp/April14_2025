@@ -291,3 +291,11 @@ https://old.reddit.com/r/science/comments/1rvl02w/our_brains_can_flicker_off_for
 https://old.reddit.com/r/news/comments/1rx1ku9/child_vaccination_rate_drops_sharply_in_michigan/
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mhdmyfyhkc2z https://autistics.life/@RoundSparrow/116250497893860844 }    
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1s0roqp/its_not_just_vaccines_parents_are_refusing_other/   
+
+Shit-postings are putting shit in minds. BRAIN_ROT_SOCIETY_47   
+
+
