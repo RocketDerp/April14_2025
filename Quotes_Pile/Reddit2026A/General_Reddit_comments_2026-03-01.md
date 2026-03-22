@@ -317,3 +317,8 @@ CONCERNS_OF_FINNEGANS CORE_CONCERNS - And by "normal" person, not Trumpism Twitt
 https://old.reddit.com/r/WTF/comments/1rzjpna/my_friend_shoulder_after_he_tried_automedicating/obmgok5/
 
 Competition warps minds into mythology. MONOMYTH_WARFARE
+
+https://old.reddit.com/r/interestingasfuck/comments/1s06qte/shia_labeouf_filmed_completely_crashing_out_on_a/obrcau1/
+
+This sounds like how people interpret Donald Trump's complex behavior. Of course, Donald Trump has the power of weapon systems and economic systems that do far more harm. But the replies on this thread give insight into how people communicate in short-thinking ideas and read the woman's behavior. SUPER_HYPER_NORMAL
+
