@@ -30,3 +30,7 @@ Let's recap the basics here:
 
 https://www.youtube.com/watch?v=WonOudGMSdc
 
+&nbsp;
+
+So, my wife can make no claims that she was "too young" at age 32 to get married. We lived together for 3 years. We were experienced with each other for 3 years. We had carnal knowledge for 3 years. We had lived in small spaces, my 1 room bachelor pad in Garland, a 3 bedroom ranch house in Kirkland
+
