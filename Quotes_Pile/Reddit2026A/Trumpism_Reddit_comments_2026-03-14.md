@@ -579,3 +579,7 @@ PUTIN_SURKOV_TRUMP_LONG_TERM_YEARS_PLAN
 https://old.reddit.com/r/worldnews/comments/1s1fpj9/iran_denies_claims_we_reject_all_negotiations_us/oc0aixg/
 
 It is Reddit audience manipulation. SURKOV_WARFARE
+
+https://old.reddit.com/r/worldnews/comments/1s1fpj9/iran_denies_claims_we_reject_all_negotiations_us/oc0dnrb/
+
+SURKOVIAN_CHESS WHITE_HOUSE_REALITY_WARFARE_FICTION_AVOIDING_NONFICTION_ON_WARFARE DECEMBER_5_2014_NATO_JOKE_ARTICLE_5_JOKE
