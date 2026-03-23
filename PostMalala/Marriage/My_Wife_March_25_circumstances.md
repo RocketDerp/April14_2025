@@ -64,6 +64,8 @@ May 16, 2003 #NonFiction published 3 years after our March 25, 2000 wedding.
 
 # Long Lasting 
 
+NEW_OPERA_NAME #MySpouse    
+
 Eternal. Concrete. Stone. Long-lasting. Metaphors of the Eternal 
 
 HASHTAGS: #Wife #MyWife   #FWakeMyWife  #urinating #FWakeurinating #MySpouse #Spouse
