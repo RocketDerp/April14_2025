@@ -367,3 +367,9 @@ Power.
 https://old.reddit.com/r/Fauxmoi/comments/1s0lc7y/chappell_roan_addresses_jorginho_controversy_the/obuckso/
 
 PRIZING_HATE_FURTHERING_HATE
+
+https://old.reddit.com/r/news/comments/1s1bn9t/pilot_copilot_killed_after_air_canada_plane/obzykrh/
+
+The media itself, the method of learning. Car accidents, hotel fires, pedestrian issues, have to reach a threshold to be world news. But airline incident investigations - especially this being Canada news - get decades of overage. SUPER_HYPER_NORMAL
+
+* "is a Canadian documentary television series produced by Cineflix that recounts air crashes, near-crashes, fires, hijackings, bombings, and other mainly flight-related disasters and crises." https://en.wikipedia.org/wiki/List_of_Mayday_episodes
