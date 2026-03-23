@@ -575,3 +575,7 @@ Reddit users are in a cult of mocking into a mockery. Cult vs. cult. MEDIA_CULTS
 https://old.reddit.com/r/JournalismNews/comments/1s0qp2a/jd_vance_just_admitted_that_he_and_donald_trump/obv9cty/
 
 PUTIN_SURKOV_TRUMP_LONG_TERM_YEARS_PLAN 
+
+https://old.reddit.com/r/worldnews/comments/1s1fpj9/iran_denies_claims_we_reject_all_negotiations_us/oc0aixg/
+
+It is Reddit audience manipulation. SURKOV_WARFARE
