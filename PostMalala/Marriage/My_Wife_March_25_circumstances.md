@@ -74,3 +74,15 @@ HASHTAGS: #Wife #MyWife   #FWakeMyWife  #urinating #FWakeurinating #MySpouse #Sp
 
 https://www.youtube.com/watch?v=IWwU-KS76xg   
 582,142 views December 12, 2018   
+
+&nbsp;
+
+## Cold Blood
+
+NEW_OPERA_NAME #ColdBloodWife #OriginsOfMAGA    
+
+Now my wife #Tristan and I settled down geographically the 7th year of our marriage. Year 2007.  In Canyon Lake, Texas. #Texas 
+
+Lyrics: "She's comin'"; "My life's in jeopardy. Murdered in cold blood is what I'm gonna be. I haven't been home since Friday night and now my wife Is comin' after me" #ColdBloodWife #FWakeMySpouse ++
+
+Now in year 2007 Texas #OriginsOfTotalitarianism #OriginsOfMAGA #MAGALand 
