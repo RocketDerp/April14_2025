@@ -115,3 +115,12 @@ My wife was nearing age 40, we had been married 7 years, and #Texas #Republican 
 
 We had built a nice nestegg, $400,000 savings with no kids, no debt 2007 pre-inflation money! And having money drove my wife into year 2026 you would recognize as Donald Trump / Elon Musk mindsets. #USA #USA #USA #Greed #Power origins of MAGA, 2007 Texas.
 
+&nbsp;
+
+# Hate is Bad
+
+I have no audience #NoAudience #NoReaders  - so I may as well do what most USA people do (give up) on understanding the origins of #MAGA thinking and Republican mindsets of pro-hate anti-compassion totalitarian thinking...
+
+I love you Tristan. Metaphors of the Eternal and Forever. Hate is bad.
+
+https://www.youtube.com/watch?v=lmc6w2k28y8
