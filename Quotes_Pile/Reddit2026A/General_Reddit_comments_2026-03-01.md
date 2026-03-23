@@ -373,3 +373,7 @@ https://old.reddit.com/r/news/comments/1s1bn9t/pilot_copilot_killed_after_air_ca
 The media itself, the method of learning. Car accidents, hotel fires, pedestrian issues, have to reach a threshold to be world news. But airline incident investigations - especially this being Canada news - get decades of overage. SUPER_HYPER_NORMAL
 
 * "is a Canadian documentary television series produced by Cineflix that recounts air crashes, near-crashes, fires, hijackings, bombings, and other mainly flight-related disasters and crises." https://en.wikipedia.org/wiki/List_of_Mayday_episodes
+
+https://old.reddit.com/r/news/comments/1s1bn9t/pilot_copilot_killed_after_air_canada_plane/oc00uym/
+
+This happened in USA, New York City. Our dehumanizing health care system causes deaths every hour. USA is waging war in the Middle East to create media rage and killing people. People cheer on jokes and memes about Trump as LOLCOW to milk. Where is the REDDIT_BLACKOUT and promoting of Dr. Bandy X Lee? People love commenting more than they love standing up and halting unimportant video game, sports scores, entertainment memes.
