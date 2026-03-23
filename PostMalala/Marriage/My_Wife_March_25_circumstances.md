@@ -49,3 +49,14 @@ That is the HEART of #ChoiceMarriage - the very meaning of my wife's name #Trist
 We could have married any person we wanted. We lived together for 3 years before marriage, so we already knew each other. There was no claim of ignorance at age 32 as to who we the other person was.
 
 https://www.jcf.org/post/love-lovers-and-choices
+
+&nbsp;
+
+So, circle back to the first post in this threaded message chain.
+
+"Myths of Light: Eastern Metaphors of the Eternal"
+Book by Joseph Campbell
+May 16, 2003 #NonFiction published 3 years after our March 25, 2000 wedding.
+
+"Metaphors of the Eternal" #Eternal #MetaphorsEternal 
+
