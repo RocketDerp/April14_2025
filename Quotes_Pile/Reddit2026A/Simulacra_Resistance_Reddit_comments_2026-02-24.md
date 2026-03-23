@@ -445,4 +445,5 @@ Reddit audience is not resisting ignorance. Reddit community is CEREBRATING the 
 
 https://old.reddit.com/r/antitrump/comments/1s10jrm/we_are_shocked_right/obxgc33/
 
-There is no resisting ignorance that Trump leads with.
+There is no resisting ignorance that Trump leads with. This generic meaningless non-specific Reddit posting title. 16 day Reddit account got this posting to front page https://old.reddit.com/user/dspDOC7 REDDIT_FRONT_PAGE_YOUNG_ACCOUNT
+
