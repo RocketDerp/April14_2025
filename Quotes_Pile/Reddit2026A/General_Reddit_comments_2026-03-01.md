@@ -377,3 +377,10 @@ The media itself, the method of learning. Car accidents, hotel fires, pedestrian
 https://old.reddit.com/r/news/comments/1s1bn9t/pilot_copilot_killed_after_air_canada_plane/oc00uym/
 
 This happened in USA, New York City. Our dehumanizing health care system causes deaths every hour. USA is waging war in the Middle East to create media rage and killing people. People cheer on jokes and memes about Trump as LOLCOW to milk. Where is the REDDIT_BLACKOUT and promoting of Dr. Bandy X Lee? People love commenting more than they love standing up and halting unimportant video game, sports scores, entertainment memes.
+
+https://old.reddit.com/r/BrandNewSentence/comments/1s1l9ci/how_many_communions_do_you_have_to_do_before/oc1iltb/
+
+CONCERNS_OF_FINNEGANS BIBLE_LITERACY LEVANT_MONOMYTH_CRISIS
+
+NEW_OPERA_NAME #WholeJesus   
+Social post { https://autistics.life/@RoundSparrow/116280356395966001 https://bsky.app/profile/roundsparrow.bsky.social/post/3mhqvcfndfk2g }    
