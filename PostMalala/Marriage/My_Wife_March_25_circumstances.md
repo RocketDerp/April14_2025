@@ -86,3 +86,15 @@ Now my wife #Tristan and I settled down geographically the 7th year of our marri
 Lyrics: "She's comin'"; "My life's in jeopardy. Murdered in cold blood is what I'm gonna be. I haven't been home since Friday night and now my wife Is comin' after me" #ColdBloodWife #FWakeMySpouse ++
 
 Now in year 2007 Texas #OriginsOfTotalitarianism #OriginsOfMAGA #MAGALand 
+
+&nbsp;
+
+## MAGA values cult Texas
+
+March 25, 2007
+
+Living in #Rural #Texas #MAGA 
+
+Now "MAGA" cult didn't have the name "Make America Great Again" back in year 2007 Texas. But my wife started to really prize the breeding ground of #MAGAvalues on our 7th wedding anniversary #March25 .. the "Cultural Influence" of #CanyonLake  #TX 
+
+https://en.wikipedia.org/wiki/Camp_Mystic
