@@ -60,3 +60,15 @@ May 16, 2003 #NonFiction published 3 years after our March 25, 2000 wedding.
 
 "Metaphors of the Eternal" #Eternal #MetaphorsEternal 
 
+&nbsp;
+
+# Long Lasting 
+
+Eternal. Concrete. Stone. Long-lasting. Metaphors of the Eternal 
+
+HASHTAGS: #Wife #MyWife   #FWakeMyWife  #urinating #FWakeurinating #MySpouse #Spouse
+
+"Russell spotted a slag heap dotted by several concrete pilings, like abandoned props from 2001: A Space Odyssey." #FWake2001 #2001SpaceOdyssey
+
+https://www.youtube.com/watch?v=IWwU-KS76xg   
+582,142 views December 12, 2018   
