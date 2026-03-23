@@ -37,3 +37,15 @@ So, my wife can make no claims that she was "too young" at age 32 to get married
 &nbsp;
 
 That kind of #Freedom and #Liberty is my emphasis. My wife and I both had complete and total freedom to live where we wanted in the USA, there we no children, no previous marriages, no previous child custody. We were two mature #AdultsInTheRoom at age 30 age 32 on March 25, 2000 wedding.
+
+&nbsp;
+
+# Heart of Choice Marriage 
+
+At age 32, age 30, both of us were debt free. We were child free, no debts, no obligations. No pregnancy. Not tied down to anything.
+
+That is the HEART of #ChoiceMarriage - the very meaning of my wife's name #Tristan and the #Year1210Troubadours 
+
+We could have married any person we wanted. We lived together for 3 years before marriage, so we already knew each other. There was no claim of ignorance at age 32 as to who we the other person was.
+
+https://www.jcf.org/post/love-lovers-and-choices
