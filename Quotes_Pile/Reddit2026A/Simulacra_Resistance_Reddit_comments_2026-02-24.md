@@ -456,3 +456,7 @@ https://old.reddit.com/r/MurderedByWords/comments/1s1c7pa/dictators_rhetoric_esc
 Social post { https://autistics.life/@RoundSparrow/116279051669161016 https://bsky.app/profile/did:plc:rwyn2e7jpkbhgnmruwj5tqoq/post/3mhqct63y322x }   
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mhqf65m5t22n https://autistics.life/@RoundSparrow/116279221356407414 https://x.com/RoundSparrow/status/2036109146744070390 }   
+
+https://old.reddit.com/r/politics/comments/1s1eh2m/taco_trump_79_reveals_major_war_uturn_in/oc05lbq/
+
+Reddit got a headline with "TACO" in it!!! TRUMP_FANDOM on Reddit loves having this constant notification beeps and vibrations on meme devices. Trump provides! NAME_CALLING_INSULT_MOCKERY_FOLLOWERS_OF_LEADER_DONALD_TRUMP_SHALLOWNESS_VALUES
