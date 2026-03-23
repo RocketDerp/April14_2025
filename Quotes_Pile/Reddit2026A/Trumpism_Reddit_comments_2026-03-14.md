@@ -588,3 +588,6 @@ https://old.reddit.com/r/nottheonion/comments/1s1g8a7/former_pastor_suspended_af
 
 EPSTEIN_FANDOM thee curiosity around rich people affairs and private jets. EPSTEIN_BUT_NOT_PUTIN_UKRAINE_CHILDREN_NOT_MALALA
 
+https://old.reddit.com/r/delta/comments/1s1h14z/ice_agents_in_atl_doingnothing/oc0qyuw/
+
+Ignorance on Reddit to due this to Trump-Putin, the Buddy Relationship Trump has with Putin and the ANTI-NATO behaviors towards Canadians and other near-by allies and NATO members. Reddit mindset culture is reactionary, shit-commenting react-commenting. Airports reach the most connected and communicative traveling people of the word. This is all about "Word of Mouth" and generating billions of Twitter, Reddit comments about the airport intimidation. Reddit media cult consumers are the first to put the photographs on the front page for Trump and Putin. DECEMBER_5_2014_NATO_JOKE_ARTICLE_5_JOKE
