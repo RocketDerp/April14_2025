@@ -401,4 +401,5 @@ TRUMP_FANDOM gushing at Trump content creation on the world stage.
 
 https://old.reddit.com/r/wallstreetbets/comments/1s1f1fl/iran_denies_claims_we_reject_all_negotiations_us/oc060wk/
 
-Surkov won hearts and minds. SUPER_HYPER_NORMAL WHITE_HOUSE_HYPER_REAL EVERYTHING_IS_MEDIA_ECOLOGY news news news high-speed news.
+Surkov won hearts and minds. SUPER_HYPER_NORMAL WHITE_HOUSE_HYPER_REAL EVERYTHING_IS_MEDIA_ECOLOGY news news news high-speed news. Top most upvoted popular comment. 7 month Reddit account. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+
