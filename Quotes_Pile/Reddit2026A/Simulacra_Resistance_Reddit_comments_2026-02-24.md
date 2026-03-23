@@ -442,3 +442,7 @@ Twitter-length mind-patterns are super-dumb. BRAIN_ROT_SOCIETY_47 is NOT_JUST_RE
 https://old.reddit.com/r/PoliticalHumor/comments/1s0wf8o/200_billion_for_the_people/obwjj2q/
 
 Reddit audience is not resisting ignorance. Reddit community is CEREBRATING the "potato" jokes. Celebrating ignorance of real people and ignorance of real policy. This is ADDING to the ignorance. AMUSEMENT_COMEDY_WASHING_TRUMP_AS_FUNNY_MEDIA_SANEWASHING People on Reddit don't even recognize that bizarre antics leadership is Putinism! Surkov! People on Reddit are *eating the onion!*. SURKOVIAN_ONION_EATING
+
+https://old.reddit.com/r/antitrump/comments/1s10jrm/we_are_shocked_right/obxgc33/
+
+There is no resisting ignorance that Trump leads with.
