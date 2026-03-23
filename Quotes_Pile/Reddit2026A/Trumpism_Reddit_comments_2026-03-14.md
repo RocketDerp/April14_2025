@@ -583,3 +583,8 @@ It is Reddit audience manipulation. SURKOV_WARFARE
 https://old.reddit.com/r/worldnews/comments/1s1fpj9/iran_denies_claims_we_reject_all_negotiations_us/oc0dnrb/
 
 SURKOVIAN_CHESS WHITE_HOUSE_REALITY_WARFARE_FICTION_AVOIDING_NONFICTION_ON_WARFARE DECEMBER_5_2014_NATO_JOKE_ARTICLE_5_JOKE
+
+https://old.reddit.com/r/nottheonion/comments/1s1g8a7/former_pastor_suspended_after_church_learns_she/oc0iesg/
+
+EPSTEIN_FANDOM thee curiosity around rich people affairs and private jets. EPSTEIN_BUT_NOT_PUTIN_UKRAINE_CHILDREN_NOT_MALALA
+
