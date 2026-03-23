@@ -403,3 +403,6 @@ https://old.reddit.com/r/wallstreetbets/comments/1s1f1fl/iran_denies_claims_we_r
 
 Surkov won hearts and minds. SUPER_HYPER_NORMAL WHITE_HOUSE_HYPER_REAL EVERYTHING_IS_MEDIA_ECOLOGY news news news high-speed news. Top most upvoted popular comment. 7 month Reddit account. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
 
+https://old.reddit.com/r/wallstreetbets/comments/1s1f1fl/iran_denies_claims_we_reject_all_negotiations_us/oc05ohe/
+
+2nd most popular upvoted comment. JOKE_COMEDY_POWER_IS_MAGA_IS_TRUMP_IS_SURKOV CORE_CONCERNS TRUMP_FANDOM loves the comedy. Surkov won hearts and minds to get LOL LOL at Trump.
