@@ -447,3 +447,10 @@ https://old.reddit.com/r/antitrump/comments/1s10jrm/we_are_shocked_right/obxgc33
 
 There is no resisting ignorance that Trump leads with. This generic meaningless non-specific Reddit posting title. 16 day Reddit account got this posting to front page https://old.reddit.com/user/dspDOC7 REDDIT_FRONT_PAGE_YOUNG_ACCOUNT
 
+https://old.reddit.com/r/MurderedByWords/comments/1s1c7pa/dictators_rhetoric_escalates/obzm9h6/
+
+<img width="1896" height="680" alt="Screenshot from 2026-03-23 07-49-56" src="https://github.com/user-attachments/assets/9eee79c7-36c4-4d7a-bc9c-4083319adcf3" />
+
+"pretending", as in simulation / simulacra. Fake resistance on Reddit. Top most upvoted popular comment. FAKE_RESISTANCE - the fake bullshit of "MURDERED, BY WORDS!!!!" framing of this discussion. Trump was murdered, killed. Such bullshit fake resistance. It is Reality TV, Reality Reddit, dumb-shit. FANATICS_FANS_OF_CLOWNS_FANS_OF_MAGA_CLOWNING
+
+Social post { https://autistics.life/@RoundSparrow/116279051669161016 https://bsky.app/profile/did:plc:rwyn2e7jpkbhgnmruwj5tqoq/post/3mhqct63y322x }   
