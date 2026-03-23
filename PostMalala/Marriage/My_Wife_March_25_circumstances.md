@@ -98,3 +98,20 @@ Living in #Rural #Texas #MAGA
 Now "MAGA" cult didn't have the name "Make America Great Again" back in year 2007 Texas. But my wife started to really prize the breeding ground of #MAGAvalues on our 7th wedding anniversary #March25 .. the "Cultural Influence" of #CanyonLake  #TX 
 
 https://en.wikipedia.org/wiki/Camp_Mystic
+
+&nbsp;
+
+March 25, 2007
+
+Living in #Rural #Texas #MAGA 
+
+Now "MAGA" cult didn't have the name "Make America Great Again" back in year 2007 Texas. But my wife started to really prize the breeding ground of #MAGAvalues on our 7th wedding anniversary #March25 .. the "Cultural Influence" of #CanyonLake #TX
+
+&nbsp;
+
+HASHTAGS: #TotalitarianMarriage of #MAGAvalues thinking. March 25, 2007 our marriage was in serious trouble.
+
+My wife was nearing age 40, we had been married 7 years, and #Texas #Republican #GOP Texas 2007 started to really "rub off" on my wife. 
+
+We had built a nice nestegg, $400,000 savings with no kids, no debt 2007 pre-inflation money! And having money drove my wife into year 2026 you would recognize as Donald Trump / Elon Musk mindsets. #USA #USA #USA #Greed #Power origins of MAGA, 2007 Texas.
+
