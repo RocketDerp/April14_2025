@@ -454,3 +454,5 @@ https://old.reddit.com/r/MurderedByWords/comments/1s1c7pa/dictators_rhetoric_esc
 "pretending", as in simulation / simulacra. Fake resistance on Reddit. Top most upvoted popular comment. FAKE_RESISTANCE - the fake bullshit of "MURDERED, BY WORDS!!!!" framing of this discussion. Trump was murdered, killed. Such bullshit fake resistance. It is Reality TV, Reality Reddit, dumb-shit. FANATICS_FANS_OF_CLOWNS_FANS_OF_MAGA_CLOWNING
 
 Social post { https://autistics.life/@RoundSparrow/116279051669161016 https://bsky.app/profile/did:plc:rwyn2e7jpkbhgnmruwj5tqoq/post/3mhqct63y322x }   
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mhqf65m5t22n https://autistics.life/@RoundSparrow/116279221356407414 }   
