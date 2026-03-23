@@ -463,5 +463,5 @@ Reddit got a headline with "TACO" in it!!! TRUMP_FANDOM on Reddit loves having t
 
 https://old.reddit.com/r/politics/comments/1s1psul/the_treasury_just_declared_the_us_insolvent_the/oc2i50d/
 
-REDDIT_FANDOM top most popular upvoted comment. Cheering on the Trump bullshit. Irony, Sarcasm, Satire this is not. Any person not drunk on Trump media would be doing everything within their intellectual means on social commenting sections to promote Dr. Bandy X Lee. These are lovers of shit-commenting in their fandom of shit-postings praising the enshitification of an entire society because of 140 characters or less. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
+TRUMP_FANDOM on Reddit. Top most popular upvoted comment. Cheering on the Trump bullshit as a source of meme content. Irony, Sarcasm, Satire this is not. Any person not drunk on Trump media would be doing everything within their intellectual means on social commenting sections to promote Dr. Bandy X Lee. These are lovers of shit-commenting in their fandom of shit-postings praising the enshitification of an entire society because of 140 characters or less. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
 
