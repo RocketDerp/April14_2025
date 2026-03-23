@@ -394,3 +394,7 @@ https://old.reddit.com/r/worldnews/comments/1s15x6w/department_of_state_declares
 Notification TCP/IP content for end-users. Trump creating the fire. 
 
 OPERA_A https://youtu.be/1ihlswwvgWQ Trump is the main character in this song.
+
+https://old.reddit.com/r/worldnews/comments/1s15x6w/department_of_state_declares_security_alert/obyj4tz/
+
+TRUMP_FANDOM gushing at Trump content creation on the world stage.
