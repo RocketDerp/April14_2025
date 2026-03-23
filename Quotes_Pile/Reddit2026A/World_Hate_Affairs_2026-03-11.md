@@ -388,3 +388,9 @@ MEDIA_ECOLOGY_OBSERVATION
 https://old.reddit.com/r/PublicFreakout/comments/1rzdljk/a_violent_israeli_in_canada_threatens_canadian/obleq0r/
 
 Canada, Israel, Palestine. People on commenting media systems go to such extreme lengths to avoid THE_1954_EQUATION that is common to all humanity. Hate is bad, condemn all hate in all places!
+
+https://old.reddit.com/r/worldnews/comments/1s15x6w/department_of_state_declares_security_alert/obyhf7g/
+
+Notification TCP/IP content for end-users. Trump creating the fire. 
+
+OPERA_A https://youtu.be/1ihlswwvgWQ Trump is the main character in this song.
