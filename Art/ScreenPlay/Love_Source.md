@@ -1,6 +1,6 @@
 # Love Source
 
-Levant tradition, Swat Valley Pkakstin Quran Levant tradition, USA Levant Bible tradition...
+Levant tradition, Swat Valley Pakistan; Quran Levant tradition, USA Levant Bible tradition...
 
 Love comes from outer space. Magical gift from space aliens who beam down love to Jesus and Mohammad.
 
@@ -22,11 +22,12 @@ So many people want to claim some "space alien" invented love and compassion on 
 
 Planets that smash into each other with forces of gravity don't have compassion, love, forgiveness. You don't beg an asteroid to change course and not smash into something. But you can ask a human person to not murder, kill, bomb, poison life on Earth. It is human persons who originated, invented, shared compassion and teaching. Not some outer-space alien on Eden sending down messages to Moses.
 
-There are many confused people in this world who don't recognize their own ability to create love and compassion from scratch, to be the originator of love. Instead, they copycat hate and warfare and find action violence all so entertaining in TV, films, cinema.
+There are many confused people in this world who don't recognize their own ability to create love and compassion from scratch, to be the originator of love. Instead, they copycat hate and warfare and find action violence all so entertaining in TV, films, cinema, games. Instead of expanding compassion and love, people want to expand advanced weapon systems and military training. Thinking they are serving a commander from Planet Eden or some other unproven story.
 
 &nbsp;
 
 NEW_OPERA_NAME #HumansInventedLove #PlanetEden   
 https://autistics.life/@RoundSparrow/116282297484175170    
 https://bsky.app/profile/roundsparrow.bsky.social/post/3mhrqui53522h   
+COMPARATIVE_MYTHOLOGY   
 
