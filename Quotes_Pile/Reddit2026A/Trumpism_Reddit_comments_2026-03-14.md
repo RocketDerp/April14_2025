@@ -591,3 +591,7 @@ EPSTEIN_FANDOM thee curiosity around rich people affairs and private jets. EPSTE
 https://old.reddit.com/r/delta/comments/1s1h14z/ice_agents_in_atl_doingnothing/oc0qyuw/
 
 Ignorance on Reddit to due this to Trump-Putin, the Buddy Relationship Trump has with Putin and the ANTI-NATO behaviors towards Canadians and other near-by allies and NATO members. Reddit mindset culture is reactionary, shit-commenting react-commenting. Airports reach the most connected and communicative traveling people of the word. This is all about "Word of Mouth" and generating billions of Twitter, Reddit comments about the airport intimidation. Reddit media cult consumers are the first to put the photographs on the front page for Trump and Putin. DECEMBER_5_2014_NATO_JOKE_ARTICLE_5_JOKE
+
+https://old.reddit.com/r/Fauxmoi/comments/1s2bcza/reacher_star_alan_ritchson_posts_pointed_quote/oc7b526/
+
+STAND_UP_FOR_THE_BIG_GUY 
