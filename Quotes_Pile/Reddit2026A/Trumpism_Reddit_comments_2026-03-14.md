@@ -615,3 +615,8 @@ TRUMP_FANDOM celebrating the TACTICAL_CLEVERNESS and bamboozle. Observe the avoi
 https://old.reddit.com/r/clevercomebacks/comments/1s2he88/hes_flipflopped_a_thousand_times_since_last_week/oc81fjh/
 
 5 day Reddit account, 3rd most popular upvoted comment. Does not cite the Kremlin media techniques, Surkov by name. As that would require engaging nonfiction books on paper relevant to Trump and Putin power. NEW_SYSTEM_POLITICAL_CONTROL
+
+
+https://old.reddit.com/r/PublicFreakout/comments/1s2nqzd/hegseths_approach_to_diplomacy_we_negotiate_with/oc9dgwi/
+
+Extremely popular comment. "Dumbass" - one single word. Not even near the 140 character dumb-shit commenting limit of Twitter-think mindsets. REPUBLICANS_LEAD_WITH_IGNORANCE_IDEAS_AND_FOLLOWERS_REPLY_WITH_IGNORANCE A society that can not engage or locate nonfiction relevant books from Dr. Bandy X Lee and organize to remove Trump with intellectual education, intellect asserts, and teaching. BRAIN_ROT_SOCIETY_47
