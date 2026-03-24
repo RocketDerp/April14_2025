@@ -599,3 +599,8 @@ STAND_UP_FOR_THE_BIG_GUY
 https://old.reddit.com/r/Fauxmoi/comments/1s2bcza/reacher_star_alan_ritchson_posts_pointed_quote/oc7tudu/
 
 WIDE_RADICAL_DOUBT_ABOUT_REAL
+
+https://old.reddit.com/r/Fauxmoi/comments/1s2bcza/reacher_star_alan_ritchson_posts_pointed_quote/oc77y78/
+
+ATTRACTION_TO_HATE_LEADERS_HATE_FOLLOWERS
+
