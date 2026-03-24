@@ -466,3 +466,7 @@ https://old.reddit.com/r/politics/comments/1s1psul/the_treasury_just_declared_th
 TRUMP_FANDOM on Reddit. Top most popular upvoted comment. Cheering on the Trump bullshit as a source of meme content. Irony, Sarcasm, Satire this is not. Any person not drunk on Trump media would be doing everything within their intellectual means on social commenting sections to promote Dr. Bandy X Lee. These are lovers of shit-commenting in their fandom of shit-postings praising the enshitification of an entire society because of 140 characters or less. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mhr2znseuc2f https://autistics.life/@RoundSparrow/116280759461796447 }   
+
+https://old.reddit.com/r/pics/comments/1s20gzo/admiral_yamamoto_realizing_he_totally_forgot_to/oc4ogvb/
+
+Trump tells fiction all the time, so Reddit audience joins in with more fiction. FICTION_HARDER from the TRUMP_FANDOM on Reddit that doesn't want to remove Trump from office because no other leader provides so many memes.
