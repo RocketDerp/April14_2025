@@ -384,3 +384,11 @@ CONCERNS_OF_FINNEGANS BIBLE_LITERACY LEVANT_MONOMYTH_CRISIS
 
 NEW_OPERA_NAME #WholeJesus   
 Social post { https://autistics.life/@RoundSparrow/116280356395966001 https://bsky.app/profile/roundsparrow.bsky.social/post/3mhqvcfndfk2g }    
+
+https://old.reddit.com/r/whatisit/comments/1s2fwmi/found_tubes_in_my_pork_sausage/oc7qdlf/
+
+<img width="1055" height="411" alt="Screenshot from 2026-03-24 11-02-42" src="https://github.com/user-attachments/assets/15df1ee6-8783-444b-9b54-24a2c7c0d3c7" />
+
+METAPHORS_IN_MOTION 
+
+Social post { https://autistics.life/@RoundSparrow/116285479029523605 https://bsky.app/profile/roundsparrow.bsky.social/post/3mht5zzpqr22k }    
