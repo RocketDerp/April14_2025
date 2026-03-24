@@ -611,3 +611,7 @@ DENIAL_ABOUNDS and the whole world is behaving like spectators and fandoms towar
 https://old.reddit.com/r/clevercomebacks/comments/1s2he88/hes_flipflopped_a_thousand_times_since_last_week/oc811zd/
 
 TRUMP_FANDOM celebrating the TACTICAL_CLEVERNESS and bamboozle. Observe the avoidance of Dr. Bandy X Lee, nonfiction books on paper. woman leader. Instead, people with free time and spare time to create Reddit comments grade and measure and upvote every clever interaction of Truth Social and Twitter regarding Donald Trump! Media addicts feeding upon the garbage reality TV star's antics and media techniques, plot twisting. Trump has imported Surkov media techniques to North America / Reddit media platform content prizes it. KREMLIN_MEDIA_TECHNIQUES
+
+https://old.reddit.com/r/clevercomebacks/comments/1s2he88/hes_flipflopped_a_thousand_times_since_last_week/oc81fjh/
+
+5 day Reddit account, 3rd most popular upvoted comment. Does not cite the Kremlin media techniques, Surkov by name. As that would require engaging nonfiction books on paper relevant to Trump and Putin power. NEW_SYSTEM_POLITICAL_CONTROL
