@@ -608,3 +608,6 @@ https://old.reddit.com/r/PopularCultureZone/comments/1s2ebp6/jennifer_welch_jd_v
 
 DENIAL_ABOUNDS and the whole world is behaving like spectators and fandoms towards JD Vance. There is no call for Internet uprising and protest. SOCIAL_MEDIA_DID_NOT_HAVE_UPRISING_SUSTAINED_FOCUSED - people aren't promoting Dr. Bandy X Lee and educating / teaching of relevant nonfiction. Instead, you get amusement commenting and sharing on meme mills with spare time and free time. The couch and Kirk rumors with JD Vance have kept media cult members (society in general) thrilled and engaged.
 
+https://old.reddit.com/r/clevercomebacks/comments/1s2he88/hes_flipflopped_a_thousand_times_since_last_week/oc811zd/
+
+TRUMP_FANDOM celebrating the TACTICAL_CLEVERNESS and bamboozle. Observe the avoidance of Dr. Bandy X Lee, nonfiction books on paper. woman leader. Instead, people with free time and spare time to create Reddit comments grade and measure and upvote every clever interaction of Truth Social and Twitter regarding Donald Trump! Media addicts feeding upon the garbage reality TV star's antics and media techniques, plot twisting. Trump has imported Surkov media techniques to North America / Reddit media platform content prizes it. KREMLIN_MEDIA_TECHNIQUES
