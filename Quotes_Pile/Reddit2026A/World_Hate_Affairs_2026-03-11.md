@@ -416,3 +416,6 @@ https://old.reddit.com/r/worldnews/comments/1s28g2f/russian_commanders_are_sadis
 SURKOV_MONOMYTH SELF_HARM_RUSSIA 
 
 Social post { https://autistics.life/@RoundSparrow/116284626097371981 https://bsky.app/profile/roundsparrow.bsky.social/post/3mhsryjrvnc2q }    
+
+https://old.reddit.com/r/Fauxmoi/comments/1s2kv6k/bernie_sanders_trump_netanyahu_and_putin_plunging/oc8s8q9/
+
