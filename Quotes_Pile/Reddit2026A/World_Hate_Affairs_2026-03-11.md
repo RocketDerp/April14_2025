@@ -409,4 +409,4 @@ https://old.reddit.com/r/wallstreetbets/comments/1s1f1fl/iran_denies_claims_we_r
 
 https://old.reddit.com/r/worldnews/comments/1s21345/strikes_hit_iran_energy_sites_in_isfahan/oc4upwv/
 
-Surkov won. Surkov applies this to ALL media coverage of ALL events in government. Not just stock-market moving events, but meme market moving events. SURKOV_WARFARE SURKOV_MONOMYTH SURKOVIAN_CHESS people don't care about reality, people have learned "Everything is Media Ecology", everything is information warfare. Everything is exploiting the human brain. Everything is cognitive self-harm manipulation. EVERYTHING_IS_ME
+Surkov won. Surkov students (Surkovian thinking) applies this to ALL media coverage of ALL events in government. Not just stock-market moving events, but meme market moving events. SURKOV_WARFARE SURKOV_MONOMYTH SURKOVIAN_CHESS people don't care about reality, people have learned "Everything is Media Ecology", everything is information warfare. Everything is exploiting the human brain. Everything is cognitive self-harm manipulation. EVERYTHING_IS_ME
