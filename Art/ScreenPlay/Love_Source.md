@@ -20,7 +20,7 @@ https://old.reddit.com/r/CringeTikToks/comments/1ofok39/a_maga_oklahoma_man_put_
 
 So many people want to claim some "space alien" invented love and compassion on **Planet Eden**. Taking credit away from animals and evolution of learning on planet Earth.
 
-Planets that smash into each other with forces of gravity don't have compassion, love, forgiveness. You don't beg a asteroid to change course and not smash into something. But you can ask a human person to not murder, kill, bomb, poison life on Earth. It is human persons who originated, invented, shared compassion and teaching. Not some outer-space alien on Eden sending down messages to Moses.
+Planets that smash into each other with forces of gravity don't have compassion, love, forgiveness. You don't beg an asteroid to change course and not smash into something. But you can ask a human person to not murder, kill, bomb, poison life on Earth. It is human persons who originated, invented, shared compassion and teaching. Not some outer-space alien on Eden sending down messages to Moses.
 
 There are many confused people in this world who don't recognize their own ability to create love and compassion from scratch, to be the originator of love. Instead, they copycat hate and warfare and find action violence all so entertaining in TV, films, cinema.
 
