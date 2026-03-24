@@ -604,3 +604,7 @@ https://old.reddit.com/r/Fauxmoi/comments/1s2bcza/reacher_star_alan_ritchson_pos
 
 ATTRACTION_TO_HATE_LEADERS_HATE_FOLLOWERS
 
+https://old.reddit.com/r/PopularCultureZone/comments/1s2ebp6/jennifer_welch_jd_vance_is_married_to_a_woman_of/oc7eecy/
+
+DENIAL_ABOUNDS and the whole world is behaving like spectators and fandoms towards JD Vance. There is no call for Internet uprising and protest. SOCIAL_MEDIA_DID_NOT_HAVE_UPRISING_SUSTAINED_FOCUSED - people aren't promoting Dr. Bandy X Lee and educating / teaching of relevant nonfiction. Instead, you get amusement commenting and sharing on meme mills with spare time and free time. The couch and Kirk rumors with JD Vance have kept media cult members (society in general) thrilled and engaged.
+
