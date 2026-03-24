@@ -26,8 +26,8 @@ There are many confused people in this world who don't recognize their own abili
 
 &nbsp;
 
-NEW_OPERA_NAME #HumansInventedLove #PlanetEden   
+NEW_OPERA_NAME #HumansInventedLove #PlanetEden #WeTheLovers #WeTheCompassion      
 https://autistics.life/@RoundSparrow/116282297484175170    
-https://bsky.app/profile/roundsparrow.bsky.social/post/3mhrqui53522h   
+https://bsky.app/profile/roundsparrow.bsky.social/post/3mhrris4swk2f   
 COMPARATIVE_MYTHOLOGY   
 
