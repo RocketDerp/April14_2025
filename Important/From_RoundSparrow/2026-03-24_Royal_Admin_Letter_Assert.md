@@ -30,9 +30,9 @@ If you want to see my raw brain-damaged deep diving, I suggest my GitHub "raw du
 
 Thank you. Please assist and help if you can.
 
-Stephen Alfred Gutknecht
-Born: Columbus, Georgia USA
-October 7, 1969
+Stephen Alfred Gutknecht    
+Born: Columbus, Georgia USA    
+October 7, 1969   
 
 
 I share a cursed birthday with the Middle East terrorism and Vlad Putin.
