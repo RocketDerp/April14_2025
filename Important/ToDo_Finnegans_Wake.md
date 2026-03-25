@@ -904,3 +904,7 @@ https://old.reddit.com/r/Damnthatsinteresting/comments/1rv73tv/eliezer_yehuda_re
 https://old.reddit.com/r/TikTokCringe/comments/1rz0hrq/family_breakup_over_the_kirks/    
 Death Celebrations. Funeral rituals.    
 
+&nbsp;
+
+Night hours Brainwashing metaphores    
+https://old.reddit.com/r/todayilearned/comments/1s3fyh1/til_that_when_humans_sleep_certain_proteins_in/
