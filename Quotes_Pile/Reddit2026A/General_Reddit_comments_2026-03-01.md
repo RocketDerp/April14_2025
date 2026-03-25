@@ -392,3 +392,6 @@ https://old.reddit.com/r/whatisit/comments/1s2fwmi/found_tubes_in_my_pork_sausag
 METAPHORS_IN_MOTION 
 
 Social post { https://autistics.life/@RoundSparrow/116285479029523605 https://bsky.app/profile/roundsparrow.bsky.social/post/3mht5zzpqr22k }    
+
+https://old.reddit.com/r/technology/comments/1s2piv1/openai_will_shut_down_sora_video_platform/oca7xgf/
+
