@@ -84,3 +84,16 @@ https://bsky.app/profile/roundsparrow.bsky.social/post/3mfmboxypmc2d
 https://autistics.life/@RoundSparrow/116125854047124834   
 
 1. Promote Neil Postman's 1985 #NonFiction book on paper. "Amusing Ourselves To Death". Quote it, repeat it, study it, social media uprising this book! be #Uppity with this book!
+
+&nbsp;
+
+# Sunday March 22, 2023
+
+Extreme early morning 23:32 the night before ;)
+
+https://www.youtube.com/watch?v=nVwoNJZptls   
+
+NEW_OPERA_NAME #DivorceYourCult #TheThingWasDead #CongratulationsThisIs    
+
+https://autistics.life/@RoundSparrow/116271440759004016   
+https://bsky.app/profile/roundsparrow.bsky.social/post/3mhmwmgudrc2d   

@@ -349,3 +349,73 @@ https://old.reddit.com/r/worldnews/comments/1ryc6cx/iran_publicly_executes_teen_
 
 LEVANT_MONOMYTH_CRISIS Top most popular upvoted comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
 
+https://old.reddit.com/r/worldnews/comments/1rz71ra/trump_admits_that_he_trusts_putin_more_than_uss/objthmv/
+
+https://old.reddit.com/r/worldnews/comments/1rz71ra/trump_admits_that_he_trusts_putin_more_than_uss/objt1yw/
+
+https://old.reddit.com/r/worldnews/comments/1rz71ra/trump_admits_that_he_trusts_putin_more_than_uss/objv2ot/
+
+DENIAL_ABOUNDS people will not put down their TV and Internet meme addictions and promote Dr. Bandy X Lee and Jen Senko and other relevant nonfiction.
+
+https://old.reddit.com/r/worldnews/comments/1rz71ra/trump_admits_that_he_trusts_putin_more_than_uss/objvfdi/
+
+PRIZING_HATE_FURTHERING_HATE
+
+https://old.reddit.com/r/worldnews/comments/1rz71ra/trump_admits_that_he_trusts_putin_more_than_uss/objzvxe/
+
+DECEMBER_5_2014_NATO_JOKE_ARTICLE_5_JOKE
+
+https://old.reddit.com/r/politics/comments/1rz6er8/we_are_hated_as_a_nation_theres_one_man_to_blame/objpak8/
+
+UNITED_IN_BLAMING_ONE_THIRD_HATE_VS_HATE_ANTI_RESCUE
+
+https://old.reddit.com/r/politics/comments/1rz6er8/we_are_hated_as_a_nation_theres_one_man_to_blame/objpd1j/
+
+3 month Reddit account. 2nd most popular upvoted comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+
+https://old.reddit.com/r/politics/comments/1rz6er8/we_are_hated_as_a_nation_theres_one_man_to_blame/objq9ye/
+
+ATTRACTION_TO_HATE_LEADERS_HATE_FOLLOWERS
+
+https://old.reddit.com/r/movies/comments/1rzcqk9/nicholas_brendon_buffy_the_vampire_slayer_star/obl7deu/
+
+That's the thing with THE_1954_EQUATION from MLK Jr that people don't see. A good idea from an idea man. Johnny Appleseed of good ideas. Since year 2013, since MAGA Trumpism USA - since October 8, 2013 trip to Moscow that Trump took on a private jet - people seem incredibly avoidant and have abandoned good ides and quotes. REMEDIAL_MORALITY_GOOD_IDEAS_DEVELOPMENT_ABANDONMENT
+
+https://old.reddit.com/r/movies/comments/1rzcqk9/nicholas_brendon_buffy_the_vampire_slayer_star/obl7yxd/
+
+MEDIA_ECOLOGY_OBSERVATION
+
+https://old.reddit.com/r/PublicFreakout/comments/1rzdljk/a_violent_israeli_in_canada_threatens_canadian/obleq0r/
+
+Canada, Israel, Palestine. People on commenting media systems go to such extreme lengths to avoid THE_1954_EQUATION that is common to all humanity. Hate is bad, condemn all hate in all places!
+
+https://old.reddit.com/r/worldnews/comments/1s15x6w/department_of_state_declares_security_alert/obyhf7g/
+
+Notification TCP/IP content for end-users. Trump creating the fire. 
+
+OPERA_A https://youtu.be/1ihlswwvgWQ Trump is the main character in this song.
+
+https://old.reddit.com/r/worldnews/comments/1s15x6w/department_of_state_declares_security_alert/obyj4tz/
+
+TRUMP_FANDOM gushing at Trump content creation on the world stage.
+
+https://old.reddit.com/r/wallstreetbets/comments/1s1f1fl/iran_denies_claims_we_reject_all_negotiations_us/oc060wk/
+
+Surkov won hearts and minds. SUPER_HYPER_NORMAL WHITE_HOUSE_HYPER_REAL EVERYTHING_IS_MEDIA_ECOLOGY news news news high-speed news. Top most upvoted popular comment. 7 month Reddit account. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+
+https://old.reddit.com/r/wallstreetbets/comments/1s1f1fl/iran_denies_claims_we_reject_all_negotiations_us/oc05ohe/
+
+2nd most popular upvoted comment. JOKE_COMEDY_POWER_IS_MAGA_IS_TRUMP_IS_SURKOV CORE_CONCERNS TRUMP_FANDOM loves the comedy. Surkov won hearts and minds to get LOL LOL at Trump.
+
+https://old.reddit.com/r/worldnews/comments/1s21345/strikes_hit_iran_energy_sites_in_isfahan/oc4upwv/
+
+Surkov won. Surkov students (Surkovian thinking) applies this to ALL media coverage of ALL events in government. Not just stock-market moving events, but meme market moving events. SURKOV_WARFARE SURKOV_MONOMYTH SURKOVIAN_CHESS people don't care about reality, people have learned "Everything is Media Ecology", everything is information warfare. Everything is exploiting the human brain. Everything is cognitive self-harm manipulation. EVERYTHING_IS_ME
+
+https://old.reddit.com/r/worldnews/comments/1s28g2f/russian_commanders_are_sadistically_abusing_and/oc6m3rg/
+
+SURKOV_MONOMYTH SELF_HARM_RUSSIA 
+
+Social post { https://autistics.life/@RoundSparrow/116284626097371981 https://bsky.app/profile/roundsparrow.bsky.social/post/3mhsryjrvnc2q }    
+
+https://old.reddit.com/r/Fauxmoi/comments/1s2kv6k/bernie_sanders_trump_netanyahu_and_putin_plunging/oc8s8q9/
+

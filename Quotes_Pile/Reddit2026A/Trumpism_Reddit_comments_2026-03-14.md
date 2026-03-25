@@ -439,3 +439,184 @@ NOT_GOOD_ENOUGH to cite author Neil Postman on media ecology. Media practitioner
 https://old.reddit.com/r/USNEWS/comments/1ryhimj/trump_has_singlehandedly_made_america_the_most/obeibg5/
 
 TRUMP_FANDOM celebrating and cheering on ignorance of Trump. Tiny-think meme-think Twitter-length mental patterns on Reddit in year 2026. Simplistic conditioned reactionary commenting Redditors. Surkov won since year 2013. Top most popular upvoted comment, the Reddit media fandom cheering dumb-shit leadership. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING Reddit cult media followers.
+
+https://old.reddit.com/r/videos/comments/1ryykui/chuck_norris_promising_the_usa_will_have_1000/obhybwi/
+
+https://old.reddit.com/r/videos/comments/1ryykui/chuck_norris_promising_the_usa_will_have_1000/obhxzvx/
+
+https://old.reddit.com/r/videos/comments/1ryykui/chuck_norris_promising_the_usa_will_have_1000/obhzxet/
+
+HYPER_SIMPLE_TRIVIALIZE_BANAL_SELF_ONLY_CONCERN such simplistic Twitter-length thinking and mindsets. DECEMBER_5_2014_NATO_JOKE_ARTICLE_5_JOKE
+
+https://old.reddit.com/r/politics/comments/1ryz4qq/maga_has_been_swooning_over_a_beautiful_army/obi2vov/
+
+SUPERFICIAL_SHALLOW_PRIZING_TRUMPISM_MAGA_VALUES
+
+https://old.reddit.com/r/politics/comments/1ryz4qq/maga_has_been_swooning_over_a_beautiful_army/obi3z0d/
+
+WHITE_HOUSE_HYPER_REAL 
+
+https://old.reddit.com/r/news/comments/1rz1ydy/us_to_deploy_thousands_of_additional_troops_to/obir2uw/
+
+HATE_HARDER Trump leads MAGA with hate. Reddit follows hate. ATTRACTION_TO_HATE_LEADERS_HATE_FOLLOWERS Anti-MLKJr USA 2026.
+
+https://old.reddit.com/r/news/comments/1rz1ydy/us_to_deploy_thousands_of_additional_troops_to/obircep/
+
+"crazy". But it creates so much commenting for Reddit servers. PRIORITIES_OF_THE_99_PERCENT_COMMENTING_MEDIA
+
+https://old.reddit.com/r/nottheonion/comments/1rzeaal/charlie_kirks_mentor_and_father_of_modern/obldj7w/
+
+BRAIN_ROT_LEFT_RIGHT_LIB_CON_NAME_AVOIDANCE media has turned it into brain rot, liberal vs. conservative wildcard meanings where people don't name a specified list of values or give an example nation and time period they want to follow. One thing conservatives in current usage never seem to avoid is Apple iPhone and Twitter, Reddit, video games. Amish in USA are authentic example of meaning of conservative (I grew up with in Grabill Indiana).
+
+https://old.reddit.com/r/politics/comments/1rz6ut3/he_needs_to_go_dems_rage_over_fettermans_dhs_vote/objs3pd/
+
+This whole headline. CORE_CONCERNS people are calling for removal from one person. Discussing it on social media. AVOIDED_DR_BANDY_X_LEE_PUBLIC_WRITINGS why are people not having a social media uprising and calling for removal of Fox News from society? Why in't Reddit community on the front page calling for Trump removal? In all the years, addicts to media entertainment and Trump stimulation can't point to sustained anything except engagement commenting to Trump. SOCIAL_MEDIA_DID_NOT_HAVE_UPRISING_SUSTAINED_FOCUSED
+
+https://old.reddit.com/r/worldnews/comments/1rzdu5s/report_iran_fires_missiles_toward_diego_garcia_in/oblbxng/
+
+TRUMP_FANDOM on Reddit is so engaged with the media content produced by the Kremlin and White House. Endlessly commenting about the patterns of ideas and words, Surkov Students feed this to Reddit audience - and the Reddit commenting community blows their minds into predictable outcomes. NEW_SYSTEM_POLITICAL_CONTROL Surkov won since year 2013. Reddit fandom eats this up, it swirls around inside the media cult (Reddit end-users) minds as Surkov discovered.
+
+https://old.reddit.com/r/NBAGossips/comments/1rzdxc5/someone_at_last_nights_spurs_game_texting_a_lot/obla4ep/
+
+WAR_ALL_AGAINST_ALL programmed rectangle sports-mentality logic patterns.
+
+https://old.reddit.com/r/pics/comments/1rzh3qt/us_economy_is_definitely_fed_wonder_bread_is_4/oblzj93/
+
+OUTBREAKS_OF_MOB_CULT_BEHAVIORS WHITE_HOUSE_REALITY_WARFARE_FICTION_AVOIDING_NONFICTION_ON_WARFARE
+
+https://old.reddit.com/r/pics/comments/1rzh3qt/us_economy_is_definitely_fed_wonder_bread_is_4/oblz027/
+
+But media mania is a photograph on /r/All front page of Reddit, photograph mania. MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL
+
+https://old.reddit.com/r/TFE/comments/1rzh8jw/incredible_moment_as_a_us_general_refuses_to/obm2adz/
+
+11 month Reddit account. Top upvoted most popular comment. "What a time to be alive!!!" to create endless comments all avoiding Dr. Bandy X Lee's nonfiction book repeating. Comment after comment, "this is life!!!, meme life!!!" on Reddit high-speed information systems. FAN_PASSION_MAGA_VALUES REDDIT_FRONT_PAGE_YOUNG_ACCOUNT REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
+
+https://old.reddit.com/r/pics/comments/1rzrsti/japanese_prime_minister_sanae_takaichi_during_the/obo4nby/
+
+SAFE_DANGER_IN_2017_NONFICTION_BOOK_TITLE
+
+https://old.reddit.com/r/news/comments/1rzxm9w/former_fbi_director_robert_mueller_who/obpdagh/
+
+"exactly what you expect", content for fandom on Reddit. Hate-watching fandom. PREDICTABLE_OUTCOME
+
+https://old.reddit.com/r/news/comments/1rzxm9w/former_fbi_director_robert_mueller_who/obpez79/
+
+Go back to the impeachment and release of the report and look for news coverage of the REDDIT_BLACKOUT and social media uprising demanding Trump's removal from We The People. It never happened. The cult of HBO The Wire on Reddit made meme after meme about "Mueller' Comin!" https://old.reddit.com/r/The_Mueller/comments/8b1krt/mueller_comin_yo/ and other celebrations of ignorance in media systems. BANAL_WASH_LAUGH_TRACK HYPER_BANALISATION
+
+https://old.reddit.com/r/law/comments/1rzy2od/donald_trump_cheers_former_special_counsel_robert/obpcdec/
+
+DEATH_WISH_LIST cheering from Trump. ENTERTAINED_JUST_PASSIVELY_WATCHING_UNTIL_DEATH_NO_SOCIAL_MEDIA_UPRISING_WHILE_ALIVE
+
+https://old.reddit.com/r/law/comments/1rzy2od/donald_trump_cheers_former_special_counsel_robert/obpcnvp/
+
+Ranking people. Popular, TOXIC_POPULARITY SOCIAL_CULT_HATE_WATCHING_FANDOM Trump leads with hate, draws a big crowd on media that cheers on hate.
+
+https://old.reddit.com/r/law/comments/1rzy2od/donald_trump_cheers_former_special_counsel_robert/obpfnib/
+
+ANSWER: We are avoiding nonfiction serious books from Neil Postman. We The People are commenting on high-speed notification systems. MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL People are addicted to commenting about the status symbol, Trump, fat white man. PRIORITIES_OF_THE_99_PERCENT_COMMENTING_MEDIA
+
+https://old.reddit.com/r/Fauxmoi/comments/1rzxh57/donald_trump_says_hes_glad_that_robert_mueller/obp8klg/
+
+Most popular upvoted comment. 3 day Reddit account. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT playing dumb for engagement. Stupid questions to a dumb audience. Following Trump's lead of dumb. PROMOTING_IGNORANCE_WORKS_PLAYING_DUMB_MOCKING "big head and smaller face", shallow. SUPERFICIAL_SHALLOW_PRIZING_TRUMPISM_MAGA_VALUES
+
+https://old.reddit.com/r/Awww/comments/1s03f4i/got_banned_from_the_other_sub_for_posting_this/obqrrpz/
+
+Media mania. just like Fox News and Newsmax media manic audiences deporting people. MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL BLOCK_HAPPY_DEPORT_HAPPY_SILENCE_POOR_PEOPLE_SILENCE_UPPITY
+
+https://old.reddit.com/r/science/comments/1s0iuzh/american_political_discourse_has_become_less/obtjetl/
+
+MEDIA_ECOLOGY_OBSERVATION
+
+https://old.reddit.com/r/science/comments/1s0iuzh/american_political_discourse_has_become_less/obtiq3m/
+
+https://old.reddit.com/r/science/comments/1s0iuzh/american_political_discourse_has_become_less/obtx6fj/
+
+https://old.reddit.com/r/science/comments/1s0iuzh/american_political_discourse_has_become_less/obtv5m1/
+
+MEDIA_WOKE focus. Dissing, dunking, OUT_GROUP_HATE - Trump and Truth Social are successful on a scale never seen in all humanity in getting people to blow their minds into very predictable patterns. Surkov won.
+
+https://old.reddit.com/r/science/comments/1s0iuzh/american_political_discourse_has_become_less/obtr18p/
+
+WOKE_TO_WHAT
+
+https://old.reddit.com/r/science/comments/1s0iuzh/american_political_discourse_has_become_less/obtl7yo/
+
+https://old.reddit.com/r/science/comments/1s0iuzh/american_political_discourse_has_become_less/obtllvx/
+
+REPUBLICANS_LEAD_WITH_IGNORANCE_IDEAS_AND_FOLLOWERS_REPLY_WITH_IGNORANCE
+
+https://old.reddit.com/r/science/comments/1s0iuzh/american_political_discourse_has_become_less/obtnxv9/
+
+REPUBLICANS_LEAD_WITH_IGNORANCE_IDEAS_AND_FOLLOWERS_REPLY_WITH_IGNORANCE
+
+https://old.reddit.com/r/science/comments/1s0iuzh/american_political_discourse_has_become_less/obtrh37/
+
+BRAIN_ROT_LEFT_RIGHT_LIB_CON_NAME_AVOIDANCE that's why I don't call myself liberal or "left" or all those variations. I specifically name Malala for education and gender and religion freedom, MLK Jr, and so often focus on media ecology / fiction vs. non-fiction. Most of what people call "conservative" is anti-education anti-reality and pro-Quran pro-Bible science fiction. I also emphasize Amish USA people I have experience with seem to be "conservative" and that Elon Musk, Donald Trump seem to have massive technology love an human hate (popular on Reddit technology cult members, entertainment gaming technology, etc) TECH_LUST_TECH_LOVERS
+
+https://old.reddit.com/r/science/comments/1s0iuzh/american_political_discourse_has_become_less/obtm2y9/
+
+UNDERSTANDING_TRUMPISM
+
+https://old.reddit.com/r/science/comments/1s0iuzh/american_political_discourse_has_become_less/obtkkqe/
+
+SELF_HARM_USA - information warfare. NATO lost. Surkov won. NEW_SYSTEM_POLITICAL_CONTROL
+
+https://old.reddit.com/r/TFE/comments/1s0mwya/top_iranian_official_drops_a_massive_bombshell_he/obug1du/
+
+5 month Reddit account. Top most upvoted popular comment. Discussing that the problem is people trust random information and react to nonsense. From a no-identity low-information upvoting community. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT WAR_AGAINST_REALITY
+
+I will keep repeating: There is observable avoidance of nonfiction relevant serious books. Calls to "get on the same page" like some what happened with the Epstein topic (although people are still on different pages and mindsets, the word "Epstein" got asserted). MORE_THAN_EPSTEIN_NAME_DROPS Dr. Bandy X Lee's nonfiction book is an avoided priority. The very people creating these comments on Reddit with their free time and spare time are attracted to low-information all-on-different-pages commenting.
+
+https://old.reddit.com/r/JournalismNews/comments/1s0qp2a/jd_vance_just_admitted_that_he_and_donald_trump/obv9zjd/
+
+Reddit users are in a cult of mocking into a mockery. Cult vs. cult. MEDIA_CULTS_FICTION_FANDOM_MEDIA_POWER Observe there is no call or concern to do CULT_DEPROGRAMMING and Rescue of cults. Media cults. Fox News cult, Reddit cults, etc.
+
+https://old.reddit.com/r/JournalismNews/comments/1s0qp2a/jd_vance_just_admitted_that_he_and_donald_trump/obv9cty/
+
+PUTIN_SURKOV_TRUMP_LONG_TERM_YEARS_PLAN 
+
+https://old.reddit.com/r/worldnews/comments/1s1fpj9/iran_denies_claims_we_reject_all_negotiations_us/oc0aixg/
+
+It is Reddit audience manipulation. SURKOV_WARFARE
+
+https://old.reddit.com/r/worldnews/comments/1s1fpj9/iran_denies_claims_we_reject_all_negotiations_us/oc0dnrb/
+
+SURKOVIAN_CHESS WHITE_HOUSE_REALITY_WARFARE_FICTION_AVOIDING_NONFICTION_ON_WARFARE DECEMBER_5_2014_NATO_JOKE_ARTICLE_5_JOKE
+
+https://old.reddit.com/r/nottheonion/comments/1s1g8a7/former_pastor_suspended_after_church_learns_she/oc0iesg/
+
+EPSTEIN_FANDOM thee curiosity around rich people affairs and private jets. EPSTEIN_BUT_NOT_PUTIN_UKRAINE_CHILDREN_NOT_MALALA
+
+https://old.reddit.com/r/delta/comments/1s1h14z/ice_agents_in_atl_doingnothing/oc0qyuw/
+
+Ignorance on Reddit to due this to Trump-Putin, the Buddy Relationship Trump has with Putin and the ANTI-NATO behaviors towards Canadians and other near-by allies and NATO members. Reddit mindset culture is reactionary, shit-commenting react-commenting. Airports reach the most connected and communicative traveling people of the word. This is all about "Word of Mouth" and generating billions of Twitter, Reddit comments about the airport intimidation. Reddit media cult consumers are the first to put the photographs on the front page for Trump and Putin. DECEMBER_5_2014_NATO_JOKE_ARTICLE_5_JOKE
+
+https://old.reddit.com/r/Fauxmoi/comments/1s2bcza/reacher_star_alan_ritchson_posts_pointed_quote/oc7b526/
+
+STAND_UP_FOR_THE_BIG_GUY 
+
+https://old.reddit.com/r/Fauxmoi/comments/1s2bcza/reacher_star_alan_ritchson_posts_pointed_quote/oc7tudu/
+
+WIDE_RADICAL_DOUBT_ABOUT_REAL
+
+https://old.reddit.com/r/Fauxmoi/comments/1s2bcza/reacher_star_alan_ritchson_posts_pointed_quote/oc77y78/
+
+ATTRACTION_TO_HATE_LEADERS_HATE_FOLLOWERS
+
+https://old.reddit.com/r/PopularCultureZone/comments/1s2ebp6/jennifer_welch_jd_vance_is_married_to_a_woman_of/oc7eecy/
+
+DENIAL_ABOUNDS and the whole world is behaving like spectators and fandoms towards JD Vance. There is no call for Internet uprising and protest. SOCIAL_MEDIA_DID_NOT_HAVE_UPRISING_SUSTAINED_FOCUSED - people aren't promoting Dr. Bandy X Lee and educating / teaching of relevant nonfiction. Instead, you get amusement commenting and sharing on meme mills with spare time and free time. The couch and Kirk rumors with JD Vance have kept media cult members (society in general) thrilled and engaged.
+
+https://old.reddit.com/r/clevercomebacks/comments/1s2he88/hes_flipflopped_a_thousand_times_since_last_week/oc811zd/
+
+TRUMP_FANDOM celebrating the TACTICAL_CLEVERNESS and bamboozle. Observe the avoidance of Dr. Bandy X Lee, nonfiction books on paper. woman leader. Instead, people with free time and spare time to create Reddit comments grade and measure and upvote every clever interaction of Truth Social and Twitter regarding Donald Trump! Media addicts feeding upon the garbage reality TV star's antics and media techniques, plot twisting. Trump has imported Surkov media techniques to North America / Reddit media platform content prizes it. KREMLIN_MEDIA_TECHNIQUES
+
+https://old.reddit.com/r/clevercomebacks/comments/1s2he88/hes_flipflopped_a_thousand_times_since_last_week/oc81fjh/
+
+5 day Reddit account, 3rd most popular upvoted comment. Does not cite the Kremlin media techniques, Surkov by name. As that would require engaging nonfiction books on paper relevant to Trump and Putin power. NEW_SYSTEM_POLITICAL_CONTROL
+
+
+https://old.reddit.com/r/PublicFreakout/comments/1s2nqzd/hegseths_approach_to_diplomacy_we_negotiate_with/oc9dgwi/
+
+Extremely popular comment. "Dumbass" - one single word. Not even near the 140 character dumb-shit commenting limit of Twitter-think mindsets. REPUBLICANS_LEAD_WITH_IGNORANCE_IDEAS_AND_FOLLOWERS_REPLY_WITH_IGNORANCE A society that can not engage or locate nonfiction relevant books from Dr. Bandy X Lee and organize to remove Trump with intellectual education, intellect asserts, and teaching. BRAIN_ROT_SOCIETY_47

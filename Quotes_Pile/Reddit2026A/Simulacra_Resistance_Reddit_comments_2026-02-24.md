@@ -417,3 +417,60 @@ https://old.reddit.com/r/Epstein/comments/1ry8lo1/do_u_think_this_woman_should_b
 
 22 day Reddit account. Top most upvoted popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT This whole posting isn't making any serious intellectual effort to remove Trump, such as promoting Jen Senko or Dr. Bandy X Lee. It's incredibly low-effort "social media engagement" with a generic clickbait posting title. "This woman" generic bait.
 
+https://old.reddit.com/r/therewasanattempt/comments/1rzndmm/to_win_a_war/obnbe7f/
+
+<img width="961" height="815" alt="image" src="https://github.com/user-attachments/assets/c51f58d2-4674-4952-9d83-91fa0f05b2b6" />
+
+Typical Reddit audience onion eating. "Stupid", calling Trump moron, idiot, stupid for doing Surkov's key innovation that blows Reddit audience into avoiding nonfiction serious books printed on paper. SURKOVIAN_ONION_EATING Surkov won Reddit end-user hearts and minds since March 2013. DECEMBER_5_2014_NATO_JOKE_ARTICLE_5_JOKE
+
+The key information (technique) of SURKOV_STUDENTS is to wreck the media-consumer (Reddit comment creator) minds into patterns of engaging the Kremlin  White House and downplaying it as dumb and stupid (just creating mind patterns and messages, not viewing as an actual danger, but treating as a TV screen game / Reddit screen game). SAFE_DANGER_IN_2017_NONFICTION_BOOK_TITLE ANYTHING and EVERYTHING to avoid "danger" such as October 3, 2017 book title by Dr. Bandy X Lee. Calling Trump "stupid" over and over on social media is blown-mind symptom, a comfort blanket of messaging (commenting messages) denial. 
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mhl3oamwo22f https://autistics.life/@RoundSparrow/116267289548949515 }    
+
+https://old.reddit.com/r/law/comments/1rzy2od/donald_trump_cheers_former_special_counsel_robert/obpc7b4/
+
+Team sports of hate. Hate is cheered if it is for the team you are on. THE_1954_EQUATION is avoided because people think hate wins.
+
+https://old.reddit.com/r/law/comments/1rzy2od/donald_trump_cheers_former_special_counsel_robert/obpaqst/
+
+4 month Reddit account, Trump hate-watching fandom. This is the submitter of the post, got to front page. REDDIT_FRONT_PAGE_YOUNG_ACCOUNT
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1s0o6d7/republicans_are_literally_the_dumbest_humans_to/obuqp7j/
+
+Twitter-length mind-patterns are super-dumb. BRAIN_ROT_SOCIETY_47 is NOT_JUST_REPUBLICANS or people who declare themselves MAGA. It is a USA problem. Surkov won since year 2013.
+
+https://old.reddit.com/r/PoliticalHumor/comments/1s0wf8o/200_billion_for_the_people/obwjj2q/
+
+Reddit audience is not resisting ignorance. Reddit community is CEREBRATING the "potato" jokes. Celebrating ignorance of real people and ignorance of real policy. This is ADDING to the ignorance. AMUSEMENT_COMEDY_WASHING_TRUMP_AS_FUNNY_MEDIA_SANEWASHING People on Reddit don't even recognize that bizarre antics leadership is Putinism! Surkov! People on Reddit are *eating the onion!*. SURKOVIAN_ONION_EATING
+
+https://old.reddit.com/r/antitrump/comments/1s10jrm/we_are_shocked_right/obxgc33/
+
+There is no resisting ignorance that Trump leads with. This generic meaningless non-specific Reddit posting title. 16 day Reddit account got this posting to front page https://old.reddit.com/user/dspDOC7 REDDIT_FRONT_PAGE_YOUNG_ACCOUNT
+
+https://old.reddit.com/r/MurderedByWords/comments/1s1c7pa/dictators_rhetoric_escalates/obzm9h6/
+
+<img width="1896" height="680" alt="Screenshot from 2026-03-23 07-49-56" src="https://github.com/user-attachments/assets/9eee79c7-36c4-4d7a-bc9c-4083319adcf3" />
+
+"pretending", as in simulation / simulacra. Fake resistance on Reddit. Top most upvoted popular comment. FAKE_RESISTANCE - the fake bullshit of "MURDERED, BY WORDS!!!!" framing of this discussion. Trump was murdered, killed. Such bullshit fake resistance. It is Reality TV, Reality Reddit, dumb-shit. FANATICS_FANS_OF_CLOWNS_FANS_OF_MAGA_CLOWNING
+
+Social post { https://autistics.life/@RoundSparrow/116279051669161016 https://bsky.app/profile/did:plc:rwyn2e7jpkbhgnmruwj5tqoq/post/3mhqct63y322x }   
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mhqf65m5t22n https://autistics.life/@RoundSparrow/116279221356407414 https://x.com/RoundSparrow/status/2036109146744070390 }   
+
+https://old.reddit.com/r/politics/comments/1s1eh2m/taco_trump_79_reveals_major_war_uturn_in/oc05lbq/
+
+Reddit got a headline with "TACO" in it!!! TRUMP_FANDOM on Reddit loves having this constant notification beeps and vibrations on meme devices. Trump provides! NAME_CALLING_INSULT_MOCKERY_FOLLOWERS_OF_LEADER_DONALD_TRUMP_SHALLOWNESS_VALUES
+
+https://old.reddit.com/r/politics/comments/1s1psul/the_treasury_just_declared_the_us_insolvent_the/oc2i50d/
+
+TRUMP_FANDOM on Reddit. Top most popular upvoted comment. Cheering on the Trump bullshit as a source of meme content. Irony, Sarcasm, Satire this is not. Any person not drunk on Trump media would be doing everything within their intellectual means on social commenting sections to promote Dr. Bandy X Lee. These are lovers of shit-commenting in their fandom of shit-postings praising the enshitification of an entire society because of 140 characters or less. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mhr2znseuc2f https://autistics.life/@RoundSparrow/116280759461796447 }   
+
+https://old.reddit.com/r/pics/comments/1s20gzo/admiral_yamamoto_realizing_he_totally_forgot_to/oc4ogvb/
+
+Trump tells fiction all the time, so Reddit audience joins in with more fiction. FICTION_HARDER from the TRUMP_FANDOM on Reddit that doesn't want to remove Trump from office because no other leader provides so many memes.
+
+https://old.reddit.com/r/Irony/comments/1s38fj4/the_most_ironic_administration_in_history/ocdln9h/
+
+The "MOST IRONIC IN HISTORY!" - yes, because it blows the mind of touch device screen users. The population, We The People, blow their minds on dumb-shit and jokes and irony-cracking joke-cracking. People can not engage relevant serious non-fiction. People can not describe it specifically as Surkov methods of Russia. JOKE_COMEDY_POWER_IS_MAGA_IS_TRUMP_IS_SURKOV

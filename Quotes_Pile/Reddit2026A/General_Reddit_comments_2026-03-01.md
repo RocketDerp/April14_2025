@@ -309,3 +309,92 @@ https://old.reddit.com/r/BlackPeopleofReddit/comments/1rybhun/do_they_never_feel
 https://old.reddit.com/r/Fauxmoi/comments/1ryhp43/olivia_rodrigo_quotes_broad_city_in_response_to/obejb3k/
 
 CHOICE_MARRIAGE_HONESTY
+
+https://old.reddit.com/r/WTF/comments/1rzjpna/my_friend_shoulder_after_he_tried_automedicating/obmkpoq/
+
+CONCERNS_OF_FINNEGANS CORE_CONCERNS - And by "normal" person, not Trumpism Twitter-thinking where dehumanizing out-groups is not the primary egomania programming in the mind. "Immigrants don't use English correctly" Rupert Murdoch and Truth Social Trump programming into Reddit audience. NEGGING_WORKS_LANGUAGE_INSULTING_WORKS_REALITY_PROGRAMMING_LANGUAGE
+
+https://old.reddit.com/r/WTF/comments/1rzjpna/my_friend_shoulder_after_he_tried_automedicating/obmgok5/
+
+Competition warps minds into mythology. MONOMYTH_WARFARE
+
+https://old.reddit.com/r/interestingasfuck/comments/1s06qte/shia_labeouf_filmed_completely_crashing_out_on_a/obrcau1/
+
+This sounds like how people interpret Donald Trump's complex behavior. Of course, Donald Trump has the power of weapon systems and economic systems that do far more harm. But the replies on this thread give insight into how people communicate in short-thinking ideas and read the woman's behavior. SUPER_HYPER_NORMAL
+
+https://old.reddit.com/r/popculturechat/comments/1s0810n/the_mayor_of_rio_de_janeiro_says_chappell_roan/obrksqh/
+
+Understanding Neil Postman. UNDERSTANDING_TRUMPISM  
+
+https://old.reddit.com/r/popculturechat/comments/1s0810n/the_mayor_of_rio_de_janeiro_says_chappell_roan/obsblvp/
+
+https://old.reddit.com/r/popculturechat/comments/1s0810n/the_mayor_of_rio_de_janeiro_says_chappell_roan/obrugod/
+
+EVERYTHING. WORD_CHOICE of a Reddit low-effort celebrity worship site reveals the entire soul and spirit of a person in one sentence reacting. Yet the entire WWW, every person who can spend free time and spare time on social media systems - can't apply Dr. Bandy X Lee's nonfiction book to Donald Trump and make it a critical important priority to world peace and DANGER since October 3, 2017. Peer to peer commenting, with no real identity, no information about location or age or gender - people read magical depth in sample-size of 1. MEDIA_ECOLOGY_OBSERVATION
+
+https://old.reddit.com/r/Fauxmoi/comments/1s0lc7y/chappell_roan_addresses_jorginho_controversy_the/obu2682/
+
+Get out a map of this mayor who banned her. Get out a map of all the players and fathers and people consuming and publishing this story. This is ALL about TCP/IP high-speed information delivery. Gender has a role on it, but high-speed reactionary media systems and "going viral" with symbolism is key. Marshall McLuhan and Neil Postman education topics. HIGH_SPEED_REACTIONARY_MINDSETS
+
+https://old.reddit.com/r/Fauxmoi/comments/1s0lc7y/chappell_roan_addresses_jorginho_controversy_the/obu4hlq/
+
+PUNISHMENT_AND_REWARD
+
+https://old.reddit.com/r/Fauxmoi/comments/1s0lc7y/chappell_roan_addresses_jorginho_controversy_the/obu4w1s/
+
+"death threats" OUTBREAKS_OF_MOB_CULT_BEHAVIORS
+
+https://old.reddit.com/r/Fauxmoi/comments/1s0lc7y/chappell_roan_addresses_jorginho_controversy_the/obu2glt/
+
+TOXIC_POPULARITY
+
+https://old.reddit.com/r/Fauxmoi/comments/1s0lc7y/chappell_roan_addresses_jorginho_controversy_the/obuessc/
+
+MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL
+
+https://old.reddit.com/r/Fauxmoi/comments/1s0lc7y/chappell_roan_addresses_jorginho_controversy_the/obu1y0a/
+
+"insane" PRIZING_HATE_FURTHERING_HATE
+
+https://old.reddit.com/r/Fauxmoi/comments/1s0lc7y/chappell_roan_addresses_jorginho_controversy_the/obume22/
+
+I mean, identifying the security guard. Hard to imagine this now world-famous 11 year old girl who hangs out with A-List sports stars and Hollywood stars doesn't have someone possibly filming this incident.
+
+https://old.reddit.com/r/Fauxmoi/comments/1s0lc7y/chappell_roan_addresses_jorginho_controversy_the/obu1px8/
+
+Power.
+
+https://old.reddit.com/r/Fauxmoi/comments/1s0lc7y/chappell_roan_addresses_jorginho_controversy_the/obuckso/
+
+PRIZING_HATE_FURTHERING_HATE
+
+https://old.reddit.com/r/news/comments/1s1bn9t/pilot_copilot_killed_after_air_canada_plane/obzykrh/
+
+The media itself, the method of learning. Car accidents, hotel fires, pedestrian issues, have to reach a threshold to be world news. But airline incident investigations - especially this being Canada news - get decades of overage. SUPER_HYPER_NORMAL
+
+* "is a Canadian documentary television series produced by Cineflix that recounts air crashes, near-crashes, fires, hijackings, bombings, and other mainly flight-related disasters and crises." https://en.wikipedia.org/wiki/List_of_Mayday_episodes
+
+https://old.reddit.com/r/news/comments/1s1bn9t/pilot_copilot_killed_after_air_canada_plane/oc00uym/
+
+This happened in USA, New York City. Our dehumanizing health care system causes deaths every hour. USA is waging war in the Middle East to create media rage and killing people. People cheer on jokes and memes about Trump as LOLCOW to milk. Where is the REDDIT_BLACKOUT and promoting of Dr. Bandy X Lee? People love commenting more than they love standing up and halting unimportant video game, sports scores, entertainment memes.
+
+https://old.reddit.com/r/BrandNewSentence/comments/1s1l9ci/how_many_communions_do_you_have_to_do_before/oc1iltb/
+
+CONCERNS_OF_FINNEGANS BIBLE_LITERACY LEVANT_MONOMYTH_CRISIS
+
+NEW_OPERA_NAME #WholeJesus   
+Social post { https://autistics.life/@RoundSparrow/116280356395966001 https://bsky.app/profile/roundsparrow.bsky.social/post/3mhqvcfndfk2g }    
+
+https://old.reddit.com/r/whatisit/comments/1s2fwmi/found_tubes_in_my_pork_sausage/oc7qdlf/
+
+<img width="1055" height="411" alt="Screenshot from 2026-03-24 11-02-42" src="https://github.com/user-attachments/assets/15df1ee6-8783-444b-9b54-24a2c7c0d3c7" />
+
+METAPHORS_IN_MOTION 
+
+Social post { https://autistics.life/@RoundSparrow/116285479029523605 https://bsky.app/profile/roundsparrow.bsky.social/post/3mht5zzpqr22k }    
+
+https://old.reddit.com/r/technology/comments/1s2piv1/openai_will_shut_down_sora_video_platform/oca7xgf/
+
+https://old.reddit.com/r/SipsTea/comments/1s32mjc/did_her_husband_inform_her_that_shes_married/occgfik/
+
+Read the screen shot of the posting. The ever-popular "funny is all that matters" nihilism. Camera screen content is what matters. Instead of removing Donald Trump from office in USA, this is the topic today March 25, 2026. Because image patterns of Coldplay concert. HYPER_BANALISATION - Dr. Bandy X Lee is ignored for bravery and courage, because it isn't considered funny amusement to USA society. AMUSING_ZOMBIES who spend free time and spare time on ignorance and celebrating ignorance screen shots and music concerts. 
