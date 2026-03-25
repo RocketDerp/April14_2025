@@ -11,3 +11,4 @@ https://old.reddit.com/r/nottheonion/comments/1s3cd7a/catholic_priests_say_charg
 
 https://www.friendlyatheist.com/p/catholic-priests-say-charging-them
 
+ROMANS_11_32_PLUS_PLUS   
