@@ -1,6 +1,6 @@
 # Trump The Party Man
 
-NEW_OPERA_NAME #NeverEndingParty    
+NEW_OPERA_NAME #NeverEndingParty #WILDPARTYTRUMP   
 
 https://bsky.app/profile/roundsparrow.bsky.social/post/3mhvrdvywck2e   
 https://autistics.life/@RoundSparrow/116291337095798660  
