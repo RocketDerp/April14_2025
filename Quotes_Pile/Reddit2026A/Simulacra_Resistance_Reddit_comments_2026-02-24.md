@@ -470,3 +470,7 @@ Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mhr2znseuc
 https://old.reddit.com/r/pics/comments/1s20gzo/admiral_yamamoto_realizing_he_totally_forgot_to/oc4ogvb/
 
 Trump tells fiction all the time, so Reddit audience joins in with more fiction. FICTION_HARDER from the TRUMP_FANDOM on Reddit that doesn't want to remove Trump from office because no other leader provides so many memes.
+
+https://old.reddit.com/r/Irony/comments/1s38fj4/the_most_ironic_administration_in_history/ocdln9h/
+
+The "MOST IRONIC IN HISTORY!" - yes, because it blows the mind of touch device screen users. The population, We The People, blow their minds on dumb-shit and jokes and irony-cracking joke-cracking. People can not engage relevant serious non-fiction. People can not describe it specifically as Surkov methods of Russia. JOKE_COMEDY_POWER_IS_MAGA_IS_TRUMP_IS_SURKOV
