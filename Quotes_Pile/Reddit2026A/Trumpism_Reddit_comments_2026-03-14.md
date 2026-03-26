@@ -637,6 +637,6 @@ https://old.reddit.com/r/nottheonion/comments/1s3pbvw/pete_hegseth_prays_for_vio
 
 People on Reddit can't grasp conflicts of interpretation or comprehension. Even if 2 people watch the same film or TV show, they can interpret the same content different. It isn't an issue of "if you can read", it is an issue of words having different meanings to different people. PROMOTING_IGNORANCE_WORKS_PLAYING_DUMB_MOCKING 
 
-https://old.reddit.com/r/worldnews/comments/1s3kzye/trump_to_hit_iran_harder_if_tehran_does_not/ocgb2pt/v
+https://old.reddit.com/r/worldnews/comments/1s3kzye/trump_to_hit_iran_harder_if_tehran_does_not/ocgb2pt/
 
 CORE_CONCERNS - alas, Dr. Bandy X Lee is not findable or good enough for Bluesky and Reddit users. "Danger" is right in the title of Dr. Lee's nonfiction book. SAFE_DANGER_IN_2017_NONFICTION_BOOK_TITLE
