@@ -419,3 +419,6 @@ Social post { https://autistics.life/@RoundSparrow/116284626097371981 https://bs
 
 https://old.reddit.com/r/Fauxmoi/comments/1s2kv6k/bernie_sanders_trump_netanyahu_and_putin_plunging/oc8s8q9/
 
+https://old.reddit.com/r/news/comments/1s437t2/france_confirms_oil_crisis_says_3040_gulf_energy/ocjzmqo/
+
+ANSWER: we are making reaction-comments on Reddit and all avoiding repeating Dr. Bandy X Lee. Surkov won. DECEMBER_5_2014_NATO_JOKE_ARTICLE_5_JOKE 
