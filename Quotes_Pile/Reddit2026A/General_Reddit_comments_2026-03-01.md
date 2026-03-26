@@ -453,3 +453,6 @@ https://old.reddit.com/r/popculturechat/comments/1s3ra90/security_guard_confirms
 
 HATE_HARDER competitive hate.
 
+https://old.reddit.com/r/popculturechat/comments/1s3ra90/security_guard_confirms_he_wasnt_working_for/ochrbno/
+
+TECH_LUST_TECH_LOVERS high-speed commenting blows minds. TCP/IP notification is prized by Reddit users over human beings. People promote hate of humans and worship of fiction content. Fiction storytelling. FICTION_OUTSELLS_NONFICTION
