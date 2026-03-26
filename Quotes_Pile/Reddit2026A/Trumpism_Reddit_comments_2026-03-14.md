@@ -685,3 +685,7 @@ Observe the predictable blown mind with hate reaction. Not calling for We The Pe
 https://old.reddit.com/r/ufc/comments/1s4hun8/israel_adesanya_is_not_interested_in_attending/ocnlowe/
 
 THE_HIGH_ROAD_IS_DR_BANDY_X_LEE_QUOTING_REPEATING and repeating Dr. Martin Luther King Jr.
+
+https://old.reddit.com/r/politics/comments/1s4fhrh/joe_rogan_democrats_were_tougher_on_border_than/ocmmks1/
+
+Top most upvoted comment. Declaring how fascinating watching and listening to Joe Rogan thinking can be. MAGA_FANDOM REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
