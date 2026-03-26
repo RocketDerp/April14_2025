@@ -650,3 +650,7 @@ https://old.reddit.com/r/worldnews/comments/1s43q75/pentagon_prepares_for_massiv
 Reddit society has been intoxicated with Trump content, Trump memes, Trump photographs, Trump mockery since June 16, 2015. Media cults. MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL
 
 Social post { https://autistics.life/@RoundSparrow/116296096611237732 https://bsky.app/profile/roundsparrow.bsky.social/post/3mhxuxmthtc2e }    
+
+https://old.reddit.com/r/law/comments/1s4c4yk/senator_blumenthal_trumps_judicial_nominees_give/oclwc1s/
+
+REALITY_KREMLIN nonsense mindsets HIVE_MIND - Surkovian NONSENSE_HARDER leadership systems. Nonsense keys of Surkov students. SETTLED_FOR_WE_THIS_PATH
