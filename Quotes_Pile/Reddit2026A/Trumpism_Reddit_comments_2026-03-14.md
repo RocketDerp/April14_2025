@@ -682,3 +682,6 @@ https://old.reddit.com/r/Fauxmoi/comments/1s4kebi/trump_goes_on_another_unhinged
 
 Observe the predictable blown mind with hate reaction. Not calling for We The People to educate, teach, learn how to escape Fox News, media addiction. ROUTINE_NO_NEED_TO_RESIST_OR_ORGANIZE_INTELLECTUAL_UPRISING
 
+https://old.reddit.com/r/ufc/comments/1s4hun8/israel_adesanya_is_not_interested_in_attending/ocnlowe/
+
+THE_HIGH_ROAD_IS_DR_BANDY_X_LEE_QUOTING_REPEATING and repeating Dr. Martin Luther King Jr.
