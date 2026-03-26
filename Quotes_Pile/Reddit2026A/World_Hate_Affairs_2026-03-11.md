@@ -474,3 +474,7 @@ REMEMBER_THE_PROGRAM_IDEAS_BILLIONAIRES_FED_REDDIT_AUDIENCE these 140-character 
 https://old.reddit.com/r/worldnews/comments/1s43olh/uganda_will_join_iran_war_on_the_side_of_israel/ockjfr3/
 
 WAR_ALL_AGAINST_ALL
+
+https://old.reddit.com/r/worldnews/comments/1s4c0kv/iranian_regime_promises_25_million_for/ocltpxt/
+
+REPUBLICANS_LEAD_WITH_IGNORANCE_IDEAS_AND_FOLLOWERS_REPLY_WITH_IGNORANCE the pro-ignorance anti-intellectual meme-think crowd who thinks war is LOL comedy amusement for one-line dumb-jokes.
