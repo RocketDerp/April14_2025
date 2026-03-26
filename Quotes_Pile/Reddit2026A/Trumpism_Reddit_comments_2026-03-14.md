@@ -648,3 +648,5 @@ This is how MAGA fandom behaves. Joke-washes all badness and evil. AMUSEMENT_COM
 https://old.reddit.com/r/worldnews/comments/1s43q75/pentagon_prepares_for_massive_final_blow_of_iran/ock19lv/
 
 Reddit society has been intoxicated with Trump content, Trump memes, Trump photographs, Trump mockery since June 16, 2015. Media cults. MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL
+
+Social post { https://autistics.life/@RoundSparrow/116296096611237732 https://bsky.app/profile/roundsparrow.bsky.social/post/3mhxuxmthtc2e }    
