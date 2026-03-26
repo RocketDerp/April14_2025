@@ -467,3 +467,8 @@ https://old.reddit.com/r/whenthe/comments/1s3tuer/the_mold/ocia62k/
 
 MEDIA_CULTS_FICTION_FANDOM_MEDIA_POWER
 
+https://old.reddit.com/r/technology/comments/1s4780a/librarian_gobsmacked_after_school_use_ai_to/ocl2lyb/
+
+This subreddit, /r/Technology - is a worship center for big-tech. Video game systems, etc. TECH_LUST_TECH_LOVERS - NOT_GOOD_ENOUGH Neil Postman's 1992 book is not good enough for people to quote, cite, reference.
+
+* “Our youth must be shown that not all worthwhile things are instantly accessible and that there are levels of sensibility unknown to them.” ― Neil Postman, Technopoly: The Surrender of Culture to Technology. year 1992
