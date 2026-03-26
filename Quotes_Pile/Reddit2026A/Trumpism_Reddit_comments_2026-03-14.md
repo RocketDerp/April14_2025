@@ -624,3 +624,7 @@ Extremely popular comment. "Dumbass" - one single word. Not even near the 140 ch
 https://old.reddit.com/r/worldnews/comments/1s3i51j/mass_text_in_iran_promotes_trump_assassination/ocfqvw6/
 
 Doing as instructed by Putin. Trump is a Putin Puppet, Iran is a Putin Puppet. Surkov won since year 2013. EVERYTHING_IS_MEDIA_ECOLOGY SURKOV_WARFARE
+
+https://old.reddit.com/r/nottheonion/comments/1s3pbvw/pete_hegseth_prays_for_violence_against_those_who/och5pah/
+
+We the People should be peacefully educating and intellectually organizing to remove Trump. Not making 140 character dumb-shit jokes and comments. BRAIN_ROT_SOCIETY_47 
