@@ -654,3 +654,7 @@ Social post { https://autistics.life/@RoundSparrow/116296096611237732 https://bs
 https://old.reddit.com/r/law/comments/1s4c4yk/senator_blumenthal_trumps_judicial_nominees_give/oclwc1s/
 
 REALITY_KREMLIN nonsense mindsets HIVE_MIND - Surkovian NONSENSE_HARDER leadership systems. Nonsense keys of Surkov students. SETTLED_FOR_WE_THIS_PATH
+
+https://old.reddit.com/r/Fauxmoi/comments/1s4dq6o/trump_actually_im_the_highest_polling_person/ocmanoi/
+
+Funny, jokes, LOL Reddit audience behavior to serious topics. The comedy White House. DECEMBER_5_2014_NATO_JOKE_ARTICLE_5_JOKE PEOPLE_LOVE_COMEDY_MEDIA_CONTENT_MORE_THAN_PLURIBUS_HUMANISM JOKE_COMEDY_POWER_IS_MAGA_IS_TRUMP_IS_SURKOV it is the nation of LOL. Surkov won since year 2013.
