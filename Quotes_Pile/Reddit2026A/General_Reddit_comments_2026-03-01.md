@@ -472,3 +472,7 @@ https://old.reddit.com/r/technology/comments/1s4780a/librarian_gobsmacked_after_
 This subreddit, /r/Technology - is a worship center for big-tech. Video game systems, etc. TECH_LUST_TECH_LOVERS - NOT_GOOD_ENOUGH Neil Postman's 1992 book is not good enough for people to quote, cite, reference.
 
 * “Our youth must be shown that not all worthwhile things are instantly accessible and that there are levels of sensibility unknown to them.” ― Neil Postman, Technopoly: The Surrender of Culture to Technology. year 1992
+
+https://old.reddit.com/r/StarWars/comments/1s473cs/what_is_the_dumbest_thing_in_star_wars_in_your/ockw6zp/
+
+YES, YES, YES. George Lucas published 1988 nonfiction book for fans and nobody seems to read, remember, or otherwise understand and comprehend the book. Bill Moyers is not good enough to study and learn from. NOT_GOOD_ENOUGH The gap between fiction and nonfiction. FICTION_NONFICTION So much RELEVANT "Power of Myth" 1988 book nonfiction applies to year 2014 onward USA society. OBSERVE_MEDIA_AVOIDANCE_OF_RELEVANT_NONFICTION LEVANT_MONOMYTH_CRISIS described by Joseph Campbell in that book, the Great Seal explained in that 1988 George Lucas book. GREAT_SEAL_USA www.GreatSealUSA.com quotes that book Lucas created for Star Wars fans.
