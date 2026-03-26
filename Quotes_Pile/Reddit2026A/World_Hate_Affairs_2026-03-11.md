@@ -482,3 +482,6 @@ REPUBLICANS_LEAD_WITH_IGNORANCE_IDEAS_AND_FOLLOWERS_REPLY_WITH_IGNORANCE the pro
 https://old.reddit.com/r/worldnews/comments/1s4bogm/trump_mocks_british_aircraft_carriers_in_latest/ocls4h4/
 
 5 month Reddit account. 2nd most popular upvoted comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT Surkov won. DECEMBER_5_2014_NATO_JOKE_ARTICLE_5_JOKE
+
+https://old.reddit.com/r/worldnews/comments/1s4ip8u/trump_extends_pause_on_attacking_iran_energy/ocncfsw/
+
