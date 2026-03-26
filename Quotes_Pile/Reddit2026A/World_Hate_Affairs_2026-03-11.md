@@ -455,3 +455,10 @@ https://old.reddit.com/r/popculturechat/comments/1s45qbn/this_gutwrenching_monol
 
 World Divorce Hate Affairs. YOU_MUST_HATE_EX_LOVERS
 
+https://old.reddit.com/r/popculturechat/comments/1s45qbn/this_gutwrenching_monologue_from_laura_dern_in/ockrcy3/
+
+REALITY_REAL
+
+https://old.reddit.com/r/popculturechat/comments/1s45qbn/this_gutwrenching_monologue_from_laura_dern_in/ocl28rk/
+
+Trump is praised constantly as a source of jokes, memes, LOLCOW to milk. People are constantly attracted to Donald Trump, Elon Musk - as a source of amusement and entertainment. Intelligent women like Dr. Bandy X Lee ignored.
