@@ -628,3 +628,7 @@ Doing as instructed by Putin. Trump is a Putin Puppet, Iran is a Putin Puppet. S
 https://old.reddit.com/r/nottheonion/comments/1s3pbvw/pete_hegseth_prays_for_violence_against_those_who/och5pah/
 
 We the People should be peacefully educating and intellectually organizing to remove Trump. Not making 140 character dumb-shit jokes and comments. BRAIN_ROT_SOCIETY_47 
+
+https://old.reddit.com/r/nottheonion/comments/1s3pbvw/pete_hegseth_prays_for_violence_against_those_who/och60n1/
+
+People unsubscribe, block, ignore when you quote or mention Dr. Bandy X Lee's relevant October 3, 2017 nonfiction book about Trump. As the addicts on meme systems want the jokes more than they want Trump removed. THE_HIGH_ROAD_IS_DR_BANDY_X_LEE_QUOTING_REPEATING
