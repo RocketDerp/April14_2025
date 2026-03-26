@@ -422,3 +422,7 @@ https://old.reddit.com/r/Fauxmoi/comments/1s2kv6k/bernie_sanders_trump_netanyahu
 https://old.reddit.com/r/news/comments/1s437t2/france_confirms_oil_crisis_says_3040_gulf_energy/ocjzmqo/
 
 ANSWER: we are making reaction-comments on Reddit and all avoiding repeating Dr. Bandy X Lee. Surkov won. DECEMBER_5_2014_NATO_JOKE_ARTICLE_5_JOKE 
+
+https://old.reddit.com/r/news/comments/1s437t2/france_confirms_oil_crisis_says_3040_gulf_energy/ock6txo/
+
+Surkov won. People are so engaged on social media devices. ENTERTAINED_JUST_PASSIVELY_WATCHING_UNTIL_DEATH_NO_SOCIAL_MEDIA_UPRISING_WHILE_ALIVE
