@@ -20,3 +20,9 @@ NEW_OPERA_NAME #Romans1132Club
 
 https://autistics.life/@RoundSparrow/116293533415791258    
 https://bsky.app/profile/roundsparrow.bsky.social/post/3mhwqkmicok2q   
+
+NEW_OPERA_NAME #MakeUpSomething #SomethingQuick    
+
+https://autistics.life/@RoundSparrow/116293559983758596    
+https://bsky.app/profile/roundsparrow.bsky.social/post/3mhwqwpkruk2q  
+
