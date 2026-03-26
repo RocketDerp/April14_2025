@@ -451,3 +451,7 @@ https://old.reddit.com/r/popculturechat/comments/1s45qbn/this_gutwrenching_monol
 
 SUPERFICIAL_SHALLOW_PRIZING_TRUMPISM_MAGA_VALUES and values of religion clergy of the Levant that is discussed in the dialog.
 
+https://old.reddit.com/r/popculturechat/comments/1s45qbn/this_gutwrenching_monologue_from_laura_dern_in/ockoddo/
+
+World Divorce Hate Affairs. YOU_MUST_HATE_EX_LOVERS
+
