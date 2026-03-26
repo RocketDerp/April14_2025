@@ -470,3 +470,7 @@ LEVANT_MONOMYTH_CRISIS
 https://old.reddit.com/r/worldnews/comments/1s3yxxd/russia_hits_all_of_ukraine_with_nearly_1000/ocjwvut/
 
 REMEMBER_THE_PROGRAM_IDEAS_BILLIONAIRES_FED_REDDIT_AUDIENCE these 140-character comments on Reddit do not make any effort to organize intellectual resistance with education. Instead, just commenting away and normalizing it.
+
+https://old.reddit.com/r/worldnews/comments/1s43olh/uganda_will_join_iran_war_on_the_side_of_israel/ockjfr3/
+
+WAR_ALL_AGAINST_ALL
