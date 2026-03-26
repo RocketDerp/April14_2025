@@ -425,3 +425,31 @@ https://old.reddit.com/r/popculturechat/comments/1s3ra90/security_guard_confirms
 
 SUPER_HYPER_NORMAL GULLIBLE_FANDOM SOCIAL_CULT_HATE_WATCHING_FANDOM
 
+https://old.reddit.com/r/popculturechat/comments/1s3ra90/security_guard_confirms_he_wasnt_working_for/ochlimq/
+
+FAITH_IN_HATE
+
+https://old.reddit.com/r/popculturechat/comments/1s3ra90/security_guard_confirms_he_wasnt_working_for/ochusii/
+
+WOKE_TO_WHAT
+
+https://old.reddit.com/r/popculturechat/comments/1s3ra90/security_guard_confirms_he_wasnt_working_for/ochravy/
+
+https://old.reddit.com/r/popculturechat/comments/1s3ra90/security_guard_confirms_he_wasnt_working_for/ochotb2/
+
+ANTI_REALITY
+
+https://old.reddit.com/r/popculturechat/comments/1s3ra90/security_guard_confirms_he_wasnt_working_for/ochripy/
+
+https://old.reddit.com/r/popculturechat/comments/1s3ra90/security_guard_confirms_he_wasnt_working_for/ochzcag/
+
+BULLSHIT_EVERYWHERE
+
+https://old.reddit.com/r/popculturechat/comments/1s3ra90/security_guard_confirms_he_wasnt_working_for/ociibme/
+
+CYNICAL_ACCEPT_IT
+
+https://old.reddit.com/r/popculturechat/comments/1s3ra90/security_guard_confirms_he_wasnt_working_for/ochrs1l/
+
+HATE_HARDER competitive hate.
+
