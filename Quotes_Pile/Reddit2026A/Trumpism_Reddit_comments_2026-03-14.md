@@ -664,3 +664,6 @@ Funny, jokes, LOL Reddit audience behavior to serious topics. The comedy White H
 NEW_OPERA_NAME #TheyFuckingLaugh   
 Social post { https://autistics.life/@RoundSparrow/116297131617750648 https://bsky.app/profile/roundsparrow.bsky.social/post/3mhydnxrqrk2s }    
 
+https://old.reddit.com/r/worldnews/comments/1s4gt95/trump_iran_asked_me_to_be_supreme_leader_but_i/ocmw4pw/
+
+AMUSEMENT_COMEDY_WASHING_TRUMP_AS_FUNNY_MEDIA_SANEWASHING
