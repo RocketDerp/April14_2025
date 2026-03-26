@@ -644,3 +644,7 @@ CORE_CONCERNS - alas, Dr. Bandy X Lee is not findable or good enough for Bluesky
 https://old.reddit.com/r/worldnews/comments/1s43q75/pentagon_prepares_for_massive_final_blow_of_iran/ock3tfb/
 
 This is how MAGA fandom behaves. Joke-washes all badness and evil. AMUSEMENT_COMEDY_WASHING_TRUMP_AS_FUNNY_MEDIA_SANEWASHING all while avoiding using that spare time / free time commenting to assert Dr. Bandy X Lee's nonfiction relevant book.
+
+https://old.reddit.com/r/worldnews/comments/1s43q75/pentagon_prepares_for_massive_final_blow_of_iran/ock19lv/
+
+Reddit society has been intoxicated with Trump content, Trump memes, Trump photographs, Trump mockery since June 16, 2015. Media cults. MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL
