@@ -640,3 +640,7 @@ People on Reddit can't grasp conflicts of interpretation or comprehension. Even 
 https://old.reddit.com/r/worldnews/comments/1s3kzye/trump_to_hit_iran_harder_if_tehran_does_not/ocgb2pt/
 
 CORE_CONCERNS - alas, Dr. Bandy X Lee is not findable or good enough for Bluesky and Reddit users. "Danger" is right in the title of Dr. Lee's nonfiction book. SAFE_DANGER_IN_2017_NONFICTION_BOOK_TITLE
+
+https://old.reddit.com/r/worldnews/comments/1s43q75/pentagon_prepares_for_massive_final_blow_of_iran/ock3tfb/
+
+This is how MAGA fandom behaves. Joke-washes all badness and evil. AMUSEMENT_COMEDY_WASHING_TRUMP_AS_FUNNY_MEDIA_SANEWASHING all while avoiding using that spare time / free time commenting to assert Dr. Bandy X Lee's nonfiction relevant book.
