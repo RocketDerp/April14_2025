@@ -632,3 +632,7 @@ We the People should be peacefully educating and intellectually organizing to re
 https://old.reddit.com/r/nottheonion/comments/1s3pbvw/pete_hegseth_prays_for_violence_against_those_who/och60n1/
 
 People unsubscribe, block, ignore when you quote or mention Dr. Bandy X Lee's relevant October 3, 2017 nonfiction book about Trump. As the addicts on meme systems want the jokes more than they want Trump removed. THE_HIGH_ROAD_IS_DR_BANDY_X_LEE_QUOTING_REPEATING
+
+https://old.reddit.com/r/nottheonion/comments/1s3pbvw/pete_hegseth_prays_for_violence_against_those_who/och6eve/
+
+People on Reddit can't grasp conflicts of interpretation or comprehension. Even if 2 people watch the same film or TV show, they can interpret the same content different. It isn't an issue of "if you can read", it is an issue of words having different meanings to different people. PROMOTING_IGNORANCE_WORKS_PLAYING_DUMB_MOCKING 
