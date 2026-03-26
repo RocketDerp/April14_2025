@@ -426,3 +426,7 @@ ANSWER: we are making reaction-comments on Reddit and all avoiding repeating Dr.
 https://old.reddit.com/r/news/comments/1s437t2/france_confirms_oil_crisis_says_3040_gulf_energy/ock6txo/
 
 Surkov won. People are so engaged on social media devices. ENTERTAINED_JUST_PASSIVELY_WATCHING_UNTIL_DEATH_NO_SOCIAL_MEDIA_UPRISING_WHILE_ALIVE
+
+https://old.reddit.com/r/news/comments/1s437t2/france_confirms_oil_crisis_says_3040_gulf_energy/ock98n0/
+
+October 3, 2017. Why is Dr. Bandy X Lee not good enough for the entire World Wide Web, Canadians, USA, etc? Why is ignorance celebrated and cheered on and an intelligent woman leader ignored? ANSWER: The brain rot of social media behaviors is every day all day upvoting, not just election days. THE_HIGH_ROAD_IS_DR_BANDY_X_LEE_QUOTING_REPEATING
