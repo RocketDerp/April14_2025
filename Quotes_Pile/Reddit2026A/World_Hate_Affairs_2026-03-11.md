@@ -442,3 +442,12 @@ MASS_PSYCHOSIS_ABOUNDS - Reddit users are tricked by the Russian Internet Resear
 https://old.reddit.com/r/news/comments/1s437t2/france_confirms_oil_crisis_says_3040_gulf_energy/ocjxyd9/
 
 World Hate Affairs. Malala was on the world stage taking about the whole planet. Thinking, education, teaching, learning for the whole world. EPSTEIN_BUT_NOT_PUTIN_UKRAINE_CHILDREN_NOT_MALALA
+
+https://old.reddit.com/r/popculturechat/comments/1s45qbn/this_gutwrenching_monologue_from_laura_dern_in/ockouxb/
+
+MEDIA_ECOLOGY_OBSERVATION
+
+https://old.reddit.com/r/popculturechat/comments/1s45qbn/this_gutwrenching_monologue_from_laura_dern_in/ockrhcq/
+
+SUPERFICIAL_SHALLOW_PRIZING_TRUMPISM_MAGA_VALUES and values of religion clergy of the Levant that is discussed in the dialog.
+
