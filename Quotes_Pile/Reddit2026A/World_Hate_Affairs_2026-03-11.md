@@ -438,3 +438,7 @@ SOCIAL_MEDIA_DID_NOT_HAVE_UPRISING_SUSTAINED_FOCUSED
 https://old.reddit.com/r/news/comments/1s437t2/france_confirms_oil_crisis_says_3040_gulf_energy/ockcrqo/
 
 MASS_PSYCHOSIS_ABOUNDS - Reddit users are tricked by the Russian Internet Research Agency since March 2013. It isn't just old men on telephone. Surkov won.
+
+https://old.reddit.com/r/news/comments/1s437t2/france_confirms_oil_crisis_says_3040_gulf_energy/ocjxyd9/
+
+World Hate Affairs. Malala was on the world stage taking about the whole planet. Thinking, education, teaching, learning for the whole world. EPSTEIN_BUT_NOT_PUTIN_UKRAINE_CHILDREN_NOT_MALALA
