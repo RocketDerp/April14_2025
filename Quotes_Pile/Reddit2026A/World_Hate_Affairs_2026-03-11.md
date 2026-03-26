@@ -478,3 +478,7 @@ WAR_ALL_AGAINST_ALL
 https://old.reddit.com/r/worldnews/comments/1s4c0kv/iranian_regime_promises_25_million_for/ocltpxt/
 
 REPUBLICANS_LEAD_WITH_IGNORANCE_IDEAS_AND_FOLLOWERS_REPLY_WITH_IGNORANCE the pro-ignorance anti-intellectual meme-think crowd who thinks war is LOL comedy amusement for one-line dumb-jokes.
+
+https://old.reddit.com/r/worldnews/comments/1s4bogm/trump_mocks_british_aircraft_carriers_in_latest/ocls4h4/
+
+5 month Reddit account. 2nd most popular upvoted comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT Surkov won. DECEMBER_5_2014_NATO_JOKE_ARTICLE_5_JOKE
