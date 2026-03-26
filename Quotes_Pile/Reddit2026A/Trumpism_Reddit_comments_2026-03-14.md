@@ -657,4 +657,10 @@ REALITY_KREMLIN nonsense mindsets HIVE_MIND - Surkovian NONSENSE_HARDER leadersh
 
 https://old.reddit.com/r/Fauxmoi/comments/1s4dq6o/trump_actually_im_the_highest_polling_person/ocmanoi/
 
+<img width="1611" height="331" alt="Screenshot from 2026-03-26 12-27-09" src="https://github.com/user-attachments/assets/273bece6-08a2-4c29-98b3-047fd9cb7a34" />
+
 Funny, jokes, LOL Reddit audience behavior to serious topics. The comedy White House. DECEMBER_5_2014_NATO_JOKE_ARTICLE_5_JOKE PEOPLE_LOVE_COMEDY_MEDIA_CONTENT_MORE_THAN_PLURIBUS_HUMANISM JOKE_COMEDY_POWER_IS_MAGA_IS_TRUMP_IS_SURKOV it is the nation of LOL. Surkov won since year 2013.
+
+NEW_OPERA_NAME #TheyFuckingLaugh   
+Social post { https://autistics.life/@RoundSparrow/116297131617750648 https://bsky.app/profile/roundsparrow.bsky.social/post/3mhydnxrqrk2s }    
+
