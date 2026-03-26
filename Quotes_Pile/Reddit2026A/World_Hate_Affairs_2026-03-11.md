@@ -485,3 +485,5 @@ https://old.reddit.com/r/worldnews/comments/1s4bogm/trump_mocks_british_aircraft
 
 https://old.reddit.com/r/worldnews/comments/1s4ip8u/trump_extends_pause_on_attacking_iran_energy/ocncfsw/
 
+https://old.reddit.com/r/worldnews/comments/1s4ip8u/trump_extends_pause_on_attacking_iran_energy/ocncymx/
+
