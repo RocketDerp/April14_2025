@@ -671,3 +671,14 @@ AMUSEMENT_COMEDY_WASHING_TRUMP_AS_FUNNY_MEDIA_SANEWASHING
 https://old.reddit.com/r/politics/comments/1s4mo0e/trumps_signature_will_be_featured_on_us_paper/oco6tp7/
 
 AVOIDED_DR_BANDY_X_LEE_PUBLIC_WRITINGS
+
+https://old.reddit.com/r/Fauxmoi/comments/1s4kebi/trump_goes_on_another_unhinged_racist_rant_on/ocns03m/
+
+https://old.reddit.com/r/Fauxmoi/comments/1s4kebi/trump_goes_on_another_unhinged_racist_rant_on/ocnrugj/
+
+8 month Reddit account. 2nd most popular upvoted comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+
+https://old.reddit.com/r/Fauxmoi/comments/1s4kebi/trump_goes_on_another_unhinged_racist_rant_on/ocnsfz4/
+
+Observe the predictable blown mind with hate reaction. Not calling for We The People to educate, teach, learn how to escape Fox News, media addiction. ROUTINE_NO_NEED_TO_RESIST_OR_ORGANIZE_INTELLECTUAL_UPRISING
+
