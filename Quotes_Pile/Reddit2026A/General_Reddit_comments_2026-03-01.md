@@ -463,3 +463,7 @@ https://old.reddit.com/r/Music/comments/1s3slsx/bodyguard_at_center_of_chappell_
 
 DRUNK_ON_POWER of media power of footballer power
 
+https://old.reddit.com/r/whenthe/comments/1s3tuer/the_mold/ocia62k/
+
+MEDIA_CULTS_FICTION_FANDOM_MEDIA_POWER
+
