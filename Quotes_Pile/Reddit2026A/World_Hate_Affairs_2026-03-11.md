@@ -487,3 +487,9 @@ https://old.reddit.com/r/worldnews/comments/1s4ip8u/trump_extends_pause_on_attac
 
 https://old.reddit.com/r/worldnews/comments/1s4ip8u/trump_extends_pause_on_attacking_iran_energy/ocncymx/
 
+https://old.reddit.com/r/SipsTea/comments/1s502tb/iranian_state_media_has_released_an_aigenerated/ocqx2op/
+
+<img width="832" height="255" alt="image" src="https://github.com/user-attachments/assets/8b570f2c-7ad8-4e5f-aca2-92134f87a8ff" />
+
+TECHNICAL_NOTE my script won't process NSFW on this. But it is CORE_CONCERN topic. The ignorance of the Internet Research Agency on Reddit. Surkov won. This was at the top of/r/All popular. Anti-intellectual shit-postings sell on Reddit / USA society.
+
