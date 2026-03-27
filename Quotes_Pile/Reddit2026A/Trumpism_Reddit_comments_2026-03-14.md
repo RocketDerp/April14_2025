@@ -689,3 +689,7 @@ THE_HIGH_ROAD_IS_DR_BANDY_X_LEE_QUOTING_REPEATING and repeating Dr. Martin Luthe
 https://old.reddit.com/r/politics/comments/1s4fhrh/joe_rogan_democrats_were_tougher_on_border_than/ocmmks1/
 
 Top most upvoted comment. Declaring how fascinating watching and listening to Joe Rogan thinking can be. MAGA_FANDOM REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
+
+https://old.reddit.com/r/PublicFreakout/comments/1s4jw0z/us_secretary_of_war_pete_hegseth_at_wednesdays/ocnpdsg/
+
+LEVANT_MYTH_INVERTED they have The Bible ass-backwards in their interpretation.
