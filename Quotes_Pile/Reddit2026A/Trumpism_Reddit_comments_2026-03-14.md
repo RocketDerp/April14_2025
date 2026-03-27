@@ -760,3 +760,9 @@ https://old.reddit.com/r/politics/comments/1s4q574/the_united_states_has_become_
 
 Exactly. Left vs. Right is a media narrative. Incredibly popular brain rot, 1-bit logic. BRAIN_ROT_LEFT_RIGHT_LIB_CON_NAME_AVOIDANCE - people can not see the shift towards fiction. Nonfiction vs. fiction. Trump provides Reddit fandom fiction stories to mock and criticize based on fiction thinking.
 
+https://old.reddit.com/r/worldnews/comments/1s56i0f/fbi_director_kash_patels_personal_inbox_breached/ocsanuy/
+
+Surkov won since year 2013. INFINITE_JEST AMUSING_ZOMBIES MAGA_FANDOM JOKE_COMEDY_POWER_IS_MAGA_IS_TRUMP_IS_SURKOV SURKOV_MONOMYTH 
+
+NEW_OPERA_NAME #ConstantlyEntertained #ConstantlyAmused    
+Social post { https://autistics.life/@RoundSparrow/116301994831138101 https://bsky.app/profile/roundsparrow.bsky.social/post/3mi2iticauk27 }   
