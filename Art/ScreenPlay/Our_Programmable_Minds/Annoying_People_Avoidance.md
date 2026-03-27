@@ -16,3 +16,7 @@ Why is Dr. Bandy X Lee ignored by social media, general population, since year 2
 
 SEE_ALSO https://github.com/GreatSealUSA/Brainrot_Society_47/blob/main/Avoided_Topics/Intelligence_Avoided.md
 
+921 views January 31, 2026    
+https://www.youtube.com/watch?v=tPGBktOPVjU    
+"Power of One (Session 5)"   
+
