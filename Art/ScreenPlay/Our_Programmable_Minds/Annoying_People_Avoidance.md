@@ -12,3 +12,7 @@
 
 https://youtu.be/Z28BGIvt048?t=563
 
+Why is Dr. Bandy X Lee ignored by social media, general population, since year 2017? Dr. Lee got 27 people published October 3, 2017 - but it annoys people. Relevant nonfiction ignored. Annoying to people that they can't insult and mock and instead share and repeat a real relevant nonfiction book.
+
+SEE_ALSO https://github.com/GreatSealUSA/Brainrot_Society_47/blob/main/Avoided_Topics/Intelligence_Avoided.md
+
