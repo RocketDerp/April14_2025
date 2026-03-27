@@ -478,3 +478,8 @@ https://old.reddit.com/r/StarWars/comments/1s473cs/what_is_the_dumbest_thing_in_
 YES, YES, YES. George Lucas published 1988 nonfiction book for fans and nobody seems to read, remember, or otherwise understand and comprehend the book. Bill Moyers is not good enough to study and learn from. NOT_GOOD_ENOUGH The gap between fiction and nonfiction. FICTION_NONFICTION So much RELEVANT "Power of Myth" 1988 book nonfiction applies to year 2014 onward USA society. OBSERVE_MEDIA_AVOIDANCE_OF_RELEVANT_NONFICTION LEVANT_MONOMYTH_CRISIS described by Joseph Campbell in that book, the Great Seal explained in that 1988 George Lucas book. GREAT_SEAL_USA www.GreatSealUSA.com quotes that book Lucas created for Star Wars fans.
 
 Observing how Star Wars fans can not engage nonfiction book on paper, "Power of Myth" published year 1988, shows just how much brain rot goes back to the emergence of the Internet and ETERNAL_SEPTEMBER era. BRAIN_ROT_SOCIETY_47 
+
+
+https://old.reddit.com/r/Whatcouldgowrong/comments/1s4mtxn/running_a_red_light/ocob7v9/
+
+FAKE_DETECTORS WIDE_RADICAL_DOUBT_ABOUT_REAL
