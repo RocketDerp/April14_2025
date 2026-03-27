@@ -701,3 +701,7 @@ LEVANT_MONOMYTH_CRISIS
 https://old.reddit.com/r/law/comments/1s4lzx3/exclusive_trumps_signature_to_appear_on_us/oco34x5/
 
 Waiting, waiting. Consuming Trump enshitification. Enabling. Avoiding Dr. Bandy X Lee's leadership with intelligence. ENTERTAINED_JUST_PASSIVELY_WATCHING_UNTIL_DEATH_NO_SOCIAL_MEDIA_UPRISING_WHILE_ALIVE
+
+https://old.reddit.com/r/pics/comments/1s4lvi0/the_inaugural_america_first_award_given_to_trump/oco3jrw/
+
+Drown the world in dumb-shit and everyone became dumb. ENJOYMENT_OF_TRUMP_AND_MAGA_VALUES
