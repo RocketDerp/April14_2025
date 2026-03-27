@@ -745,3 +745,7 @@ Jesus is dead for a very long time. Mohammad is dead since year 632.
 https://old.reddit.com/r/AskReddit/comments/1s4wu11/what_do_you_think_will_immediately_happen_when/ocqa5el/
 
 Yes. Celebrating ignorance. IGNORANCE_CELEBRATIONS - as nobody stood up for Dr. Bandy X Lee's intelligent leadership. Just memes and Trump content. FUNERAL_RITUALS_WAKES
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1s52hhr/she_literally_has_done_nothing_but_smile_since_he/ocre90z/
+
+Yes, just as so much podcast / Internet media shit is normal now. Reddit shit. Where is the REDDIT_BLACKOUT protesting Trump. Meme addicts on Reddit can't go without their dumb-shit content and shit-postings. The idea of halting entertainment to rescue the USA intellectually is impossible to cult of ignorance. FUNERAL_RITUALS_WAKES and this whole post id Kirk fandom. MAGA_FANDOM   
