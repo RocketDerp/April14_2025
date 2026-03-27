@@ -495,3 +495,5 @@ TECHNICAL_NOTE my script won't process NSFW on this. But it is CORE_CONCERN topi
 
 https://old.reddit.com/r/DeepMarketScan/comments/1s5h12y/breaking_qatar_withdraws_from_the_war_iran_has/ocujqj7/
 
+https://old.reddit.com/r/interesting/comments/1s5dd61/miss_thailands_teeth_fall_out_on_stage/ocu1zff/
+
