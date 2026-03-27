@@ -483,3 +483,5 @@ Observing how Star Wars fans can not engage nonfiction book on paper, "Power of 
 https://old.reddit.com/r/Whatcouldgowrong/comments/1s4mtxn/running_a_red_light/ocob7v9/
 
 FAKE_DETECTORS WIDE_RADICAL_DOUBT_ABOUT_REAL
+
+https://old.reddit.com/r/stopdrinking/comments/1s4lhd4/woke_up_to_a_corpse/ocom4au/
