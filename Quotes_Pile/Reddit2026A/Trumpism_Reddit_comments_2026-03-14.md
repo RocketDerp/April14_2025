@@ -766,3 +766,8 @@ Surkov won since year 2013. INFINITE_JEST AMUSING_ZOMBIES MAGA_FANDOM JOKE_COMED
 
 NEW_OPERA_NAME #ConstantlyEntertained #ConstantlyAmused    
 Social post { https://autistics.life/@RoundSparrow/116301994831138101 https://bsky.app/profile/roundsparrow.bsky.social/post/3mi2iticauk27 }   
+
+https://old.reddit.com/r/Fauxmoi/comments/1s56r0e/lili_reinhart_arrives_at_a_qa_for_her_new_film/ocsakq1/
+
+Front page of Reddit. Silencing people with block-button. Deport those men who speak Spanish, not in my nation!  "Shut the fuck up!" threats of violence. Imprison people, deport people. MAGA values. BLOCK_HAPPY_DEPORT_HAPPY_SILENCE_POOR_PEOPLE_SILENCE_UPPITY Shut up the uppity educational people with dumb-shit T-shirt slogans. REPUBLICANS_LEAD_WITH_IGNORANCE_IDEAS_AND_FOLLOWERS_REPLY_WITH_IGNORANCE TALIBAN_VALUES of shutting up the opposite sex in Swat Valley, Pakistan!
+
