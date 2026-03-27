@@ -741,3 +741,7 @@ https://old.reddit.com/r/AskReddit/comments/1s4wu11/what_do_you_think_will_immed
 https://old.reddit.com/r/AskReddit/comments/1s4wu11/what_do_you_think_will_immediately_happen_when/ocqd6em/
 
 Jesus is dead for a very long time. Mohammad is dead since year 632. 
+
+https://old.reddit.com/r/AskReddit/comments/1s4wu11/what_do_you_think_will_immediately_happen_when/ocqa5el/
+
+Yes. Celebrating ignorance. IGNORANCE_CELEBRATIONS - as nobody stood up for Dr. Bandy X Lee's intelligent leadership. Just memes and Trump content. FUNERAL_RITUALS_WAKES
