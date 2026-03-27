@@ -714,3 +714,6 @@ https://old.reddit.com/r/science/comments/1s4lani/ai_chatbots_are_becoming_sycop
 
 ARTIFICIAL_REALITY
 
+https://old.reddit.com/r/PoliticalHumor/comments/1s51rbe/totally_not_a_cult/ocr8e0o/
+
+1 month Reddit account. Top-upvoted most popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT "Not a cult" generic non-specific title. Framing real world crisis as a source of humor and comedy. This is media cult fandom that adores photographs of the White House. Totally a mockery Reddit that follows the mocking leader, Trump. SOCIAL_CULT_HATE_WATCHING_FANDOM this message downplays the threat of Trump as a "child" and source of amusement. DOWNPLAYING_DANGER_MINIMIZING_THREATS
