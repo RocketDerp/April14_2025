@@ -40,3 +40,7 @@ NEW_OPERA_NAME #OceanOfShit
 
 https://bsky.app/profile/roundsparrow.bsky.social/post/3mi2jtrzlwk22    
 https://autistics.life/@RoundSparrow/116302063890441194   
+
+"I hate Elvis" - "I Hate MAGA", "I Hate Trump" fandoms    
+
+https://midwest.social/post/45218571   
