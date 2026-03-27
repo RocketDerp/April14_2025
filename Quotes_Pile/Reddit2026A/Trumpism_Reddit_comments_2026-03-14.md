@@ -749,3 +749,7 @@ Yes. Celebrating ignorance. IGNORANCE_CELEBRATIONS - as nobody stood up for Dr. 
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1s52hhr/she_literally_has_done_nothing_but_smile_since_he/ocre90z/
 
 Yes, just as so much podcast / Internet media shit is normal now. Reddit shit. Where is the REDDIT_BLACKOUT protesting Trump. Meme addicts on Reddit can't go without their dumb-shit content and shit-postings. The idea of halting entertainment to rescue the USA intellectually is impossible to cult of ignorance. FUNERAL_RITUALS_WAKES and this whole post id Kirk fandom. MAGA_FANDOM   
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1s52hhr/she_literally_has_done_nothing_but_smile_since_he/ocrfy86/
+
+As if marriages in USA are about love. Parents think Donald Trump is a great role model. Marriages who think pollution and war are good for their USA children. Parents of children have the most reason to promote education and learning, but NOT_GOOD_ENOUGH Dr. Bandy X Lee, Jen Senko for USA society. PARENTING_HONESTY
