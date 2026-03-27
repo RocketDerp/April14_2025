@@ -693,3 +693,8 @@ Top most upvoted comment. Declaring how fascinating watching and listening to Jo
 https://old.reddit.com/r/PublicFreakout/comments/1s4jw0z/us_secretary_of_war_pete_hegseth_at_wednesdays/ocnpdsg/
 
 LEVANT_MYTH_INVERTED they have The Bible ass-backwards in their interpretation.
+
+https://old.reddit.com/r/PublicFreakout/comments/1s4jw0z/us_secretary_of_war_pete_hegseth_at_wednesdays/ocnl59u/
+
+LEVANT_MONOMYTH_CRISIS
+
