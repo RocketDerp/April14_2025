@@ -705,3 +705,12 @@ Waiting, waiting. Consuming Trump enshitification. Enabling. Avoiding Dr. Bandy 
 https://old.reddit.com/r/pics/comments/1s4lvi0/the_inaugural_america_first_award_given_to_trump/oco3jrw/
 
 Drown the world in dumb-shit and everyone became dumb. ENJOYMENT_OF_TRUMP_AND_MAGA_VALUES
+
+https://old.reddit.com/r/science/comments/1s4lani/ai_chatbots_are_becoming_sycophants_to_drive/ocnxekv/
+
+BRAIN_ROT_SOCIETY_47
+
+https://old.reddit.com/r/science/comments/1s4lani/ai_chatbots_are_becoming_sycophants_to_drive/oco03s3/
+
+ARTIFICIAL_REALITY
+
