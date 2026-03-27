@@ -493,3 +493,5 @@ https://old.reddit.com/r/SipsTea/comments/1s502tb/iranian_state_media_has_releas
 
 TECHNICAL_NOTE my script won't process NSFW on this. But it is CORE_CONCERN topic. The ignorance of the Internet Research Agency on Reddit. Surkov won. This was at the top of/r/All popular. Anti-intellectual shit-postings sell on Reddit / USA society.
 
+https://old.reddit.com/r/DeepMarketScan/comments/1s5h12y/breaking_qatar_withdraws_from_the_war_iran_has/ocujqj7/
+
