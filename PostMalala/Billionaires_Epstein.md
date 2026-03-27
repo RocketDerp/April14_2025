@@ -90,5 +90,6 @@ Americans, like human beings everywhere, believe many things that are obviously 
 NEW_OPERA_NAME #PedoFans    
 https://autistics.life/@RoundSparrow/116302163456764198    
 https://bsky.app/profile/roundsparrow.bsky.social/post/3mi2l6aapbc2i   
+https://midwest.social/post/45218965   
 
 https://old.reddit.com/r/memes/comments/1s54bov/true_story/   
