@@ -752,4 +752,4 @@ Yes, just as so much podcast / Internet media shit is normal now. Reddit shit. W
 
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1s52hhr/she_literally_has_done_nothing_but_smile_since_he/ocrfy86/
 
-As if marriages in USA are about love. Parents think Donald Trump is a great role model. Marriages who think pollution and war are good for their USA children. Parents of children have the most reason to promote education and learning, but NOT_GOOD_ENOUGH Dr. Bandy X Lee, Jen Senko for USA society. PARENTING_HONESTY
+As if marriages in USA are about love. DONALD_TRUMP_ROLE_MODEL Parents think Donald Trump is a great role model. Marriages who think pollution and war are good for their USA children. Parents of children have the most reason to promote education and learning, but NOT_GOOD_ENOUGH Dr. Bandy X Lee, Jen Senko for USA society. PARENTING_HONESTY
