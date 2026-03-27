@@ -497,3 +497,5 @@ https://old.reddit.com/r/DeepMarketScan/comments/1s5h12y/breaking_qatar_withdraw
 
 https://old.reddit.com/r/interesting/comments/1s5dd61/miss_thailands_teeth_fall_out_on_stage/ocu1zff/
 
+https://old.reddit.com/r/worldnews/comments/1s5fo89/us_forces_abandon_military_bases_in_middle_east/ocuhakj/
+
