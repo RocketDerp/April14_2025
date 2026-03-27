@@ -717,3 +717,27 @@ ARTIFICIAL_REALITY
 https://old.reddit.com/r/PoliticalHumor/comments/1s51rbe/totally_not_a_cult/ocr8e0o/
 
 1 month Reddit account. Top-upvoted most popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT "Not a cult" generic non-specific title. Framing real world crisis as a source of humor and comedy. This is media cult fandom that adores photographs of the White House. Totally a mockery Reddit that follows the mocking leader, Trump. SOCIAL_CULT_HATE_WATCHING_FANDOM this message downplays the threat of Trump as a "child" and source of amusement. DOWNPLAYING_DANGER_MINIMIZING_THREATS
+
+https://old.reddit.com/r/AskReddit/comments/1s4wu11/what_do_you_think_will_immediately_happen_when/ocqc4vy/
+
+Top most upvoted popular comment. Reddit is a cult of Trump. SOCIAL_CULT_HATE_WATCHING_FANDOM ENTERTAINED_JUST_PASSIVELY_WATCHING_UNTIL_DEATH_NO_SOCIAL_MEDIA_UPRISING_WHILE_ALIVE
+
+https://old.reddit.com/r/AskReddit/comments/1s4wu11/what_do_you_think_will_immediately_happen_when/ocq932a/
+
+EVERYTHING_IS_ME TRUMP_FANDOM "we won, he died, we did nothing but mock and mock into a mockery, and the governance problem of Twitter-thinking continues"
+
+https://old.reddit.com/r/AskReddit/comments/1s4wu11/what_do_you_think_will_immediately_happen_when/ocqagvc/
+
+https://old.reddit.com/r/AskReddit/comments/1s4wu11/what_do_you_think_will_immediately_happen_when/ocqcade/
+
+"cult leader", it is a media cult. MEDIA_CULTS_ADDICTIVE_FICTION
+
+https://old.reddit.com/r/AskReddit/comments/1s4wu11/what_do_you_think_will_immediately_happen_when/ocqchn4/
+
+MAGA_FANDOM isn't just Donald Trump on Reddit.
+
+https://old.reddit.com/r/AskReddit/comments/1s4wu11/what_do_you_think_will_immediately_happen_when/ocqcdhb/
+
+https://old.reddit.com/r/AskReddit/comments/1s4wu11/what_do_you_think_will_immediately_happen_when/ocqd6em/
+
+Jesus is dead for a very long time. Mohammad is dead since year 632. 
