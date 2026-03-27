@@ -753,3 +753,10 @@ Yes, just as so much podcast / Internet media shit is normal now. Reddit shit. W
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1s52hhr/she_literally_has_done_nothing_but_smile_since_he/ocrfy86/
 
 As if marriages in USA are about love. DONALD_TRUMP_ROLE_MODEL Parents think Donald Trump is a great role model. Marriages who think pollution and war are good for their USA children. Parents of children have the most reason to promote education and learning, but NOT_GOOD_ENOUGH Dr. Bandy X Lee, Jen Senko for USA society. PARENTING_HONESTY
+
+https://old.reddit.com/r/politics/comments/1s4q574/the_united_states_has_become_a_rogue_state/ocp7y5t/
+
+https://old.reddit.com/r/politics/comments/1s4q574/the_united_states_has_become_a_rogue_state/ocox8gu/
+
+Exactly. Left vs. Right is a media narrative. Incredibly popular brain rot, 1-bit logic. BRAIN_ROT_LEFT_RIGHT_LIB_CON_NAME_AVOIDANCE - people can not see the shift towards fiction. Nonfiction vs. fiction. Trump provides Reddit fandom fiction stories to mock and criticize based on fiction thinking.
+
