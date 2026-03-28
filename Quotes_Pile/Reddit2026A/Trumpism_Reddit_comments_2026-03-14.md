@@ -812,3 +812,9 @@ sane-washing ICE.
 https://old.reddit.com/r/nottheonion/comments/1s604lz/white_house_launches_onlyfarms_website_internet/ocy9rhx/
 
 THIS_GITHUB CORE_CONCERNS is Neil Postman's 1985 book, "Amusing Ourselves To Death" about Twitter and Reddit media ecology mindsets. WHITE_HOUSE_HYPER_REAL the popularity of ignorance.
+
+https://old.reddit.com/r/PoliticalHumor/comments/1s5xhlm/a_fitting_allegory/ocxslvn/
+
+Yha, the toxic clergy teaches: There is team Satan, team Evil, and it's a perfect valid choice as Jesus created evil! Good or evil, pick your favorite team bi-polar stupid-shit logic. TOXIC_CLERGY LEVANT_MYTH_INVERTED
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mi564pzznk2v https://autistics.life/@RoundSparrow/116308000987600590 }    
