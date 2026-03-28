@@ -531,3 +531,10 @@ Ahh, the rape mentality of women being dressed to be robbed. TECH_LUST_TECH_LOVE
 https://old.reddit.com/r/LivestreamFail/comments/1s62req/twitch_streamer_musa_usa_who_runs_a_hot_dog_stand/ocz28k6/
 
 "never been blocked so fast" BLOCK_HAPPY_DEPORT_HAPPY_SILENCE_POOR_PEOPLE_SILENCE_UPPITY
+
+https://old.reddit.com/r/todayilearned/comments/1s656kd/til_a_swedish_milk_vendor_named_pilt_carin/od0by35/
+
+MEDIA_ECOLOGY_OBSERVATION
+
+OPERA_A The Tubes. https://www.youtube.com/watch?v=mQ_k_VG6Syc
+
