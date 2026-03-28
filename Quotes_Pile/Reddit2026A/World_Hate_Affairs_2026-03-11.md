@@ -502,3 +502,8 @@ https://old.reddit.com/r/worldnews/comments/1s5fo89/us_forces_abandon_military_b
 https://old.reddit.com/r/Fauxmoi/comments/1s5imjv/trump_cubas_next_by_the_way_but_pretend_i_didnt/ocuttd7/
 
 All a fucking joke to USA society. meme-jokes always. Surkov won. JOKE_COMEDY_POWER_IS_MAGA_IS_TRUMP_IS_SURKOV
+
+https://old.reddit.com/r/Fauxmoi/comments/1s5imjv/trump_cubas_next_by_the_way_but_pretend_i_didnt/ocuw0b3/
+
+Comedy and jokes always fix problems and are the most important thing, according to ignorant USA population. AMUSEMENT_COMEDY_WASHING_TRUMP_AS_FUNNY_MEDIA_SANEWASHING 
+
