@@ -499,3 +499,6 @@ https://old.reddit.com/r/interesting/comments/1s5dd61/miss_thailands_teeth_fall_
 
 https://old.reddit.com/r/worldnews/comments/1s5fo89/us_forces_abandon_military_bases_in_middle_east/ocuhakj/
 
+https://old.reddit.com/r/Fauxmoi/comments/1s5imjv/trump_cubas_next_by_the_way_but_pretend_i_didnt/ocuttd7/
+
+All a fucking joke to USA society. meme-jokes always. Surkov won. JOKE_COMEDY_POWER_IS_MAGA_IS_TRUMP_IS_SURKOV
