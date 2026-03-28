@@ -398,3 +398,90 @@ https://old.reddit.com/r/technology/comments/1s2piv1/openai_will_shut_down_sora_
 https://old.reddit.com/r/SipsTea/comments/1s32mjc/did_her_husband_inform_her_that_shes_married/occgfik/
 
 Read the screen shot of the posting. The ever-popular "funny is all that matters" nihilism. Camera screen content is what matters. Instead of removing Donald Trump from office in USA, this is the topic today March 25, 2026. Because image patterns of Coldplay concert. HYPER_BANALISATION - Dr. Bandy X Lee is ignored for bravery and courage, because it isn't considered funny amusement to USA society. AMUSING_ZOMBIES who spend free time and spare time on ignorance and celebrating ignorance screen shots and music concerts. 
+
+https://old.reddit.com/r/popculturechat/comments/1s3ra90/security_guard_confirms_he_wasnt_working_for/ochnhsg/
+
+Reddit content addicts calling for this man to be a new world leader to follow. As he provides media content. NONSENSE_HARDER
+
+https://old.reddit.com/r/popculturechat/comments/1s3ra90/security_guard_confirms_he_wasnt_working_for/ochlc6i/
+
+PRIZING_HATE_FURTHERING_HATE
+
+https://old.reddit.com/r/popculturechat/comments/1s3ra90/security_guard_confirms_he_wasnt_working_for/ochnmog/
+
+TREND_CHASING_MEDIA_TRENDING
+
+https://old.reddit.com/r/popculturechat/comments/1s3ra90/security_guard_confirms_he_wasnt_working_for/ochlz2c/
+
+https://old.reddit.com/r/popculturechat/comments/1s3ra90/security_guard_confirms_he_wasnt_working_for/ochobl6/
+
+HIGH_SPEED_REACTIONARY_MINDSETS
+
+https://old.reddit.com/r/popculturechat/comments/1s3ra90/security_guard_confirms_he_wasnt_working_for/ochpu14/
+
+https://old.reddit.com/r/popculturechat/comments/1s3ra90/security_guard_confirms_he_wasnt_working_for/ochtq9i/
+
+https://old.reddit.com/r/popculturechat/comments/1s3ra90/security_guard_confirms_he_wasnt_working_for/ochugpw/
+
+SUPER_HYPER_NORMAL GULLIBLE_FANDOM SOCIAL_CULT_HATE_WATCHING_FANDOM
+
+https://old.reddit.com/r/popculturechat/comments/1s3ra90/security_guard_confirms_he_wasnt_working_for/ochlimq/
+
+FAITH_IN_HATE
+
+https://old.reddit.com/r/popculturechat/comments/1s3ra90/security_guard_confirms_he_wasnt_working_for/ochusii/
+
+WOKE_TO_WHAT
+
+https://old.reddit.com/r/popculturechat/comments/1s3ra90/security_guard_confirms_he_wasnt_working_for/ochravy/
+
+https://old.reddit.com/r/popculturechat/comments/1s3ra90/security_guard_confirms_he_wasnt_working_for/ochotb2/
+
+ANTI_REALITY
+
+https://old.reddit.com/r/popculturechat/comments/1s3ra90/security_guard_confirms_he_wasnt_working_for/ochripy/
+
+https://old.reddit.com/r/popculturechat/comments/1s3ra90/security_guard_confirms_he_wasnt_working_for/ochzcag/
+
+BULLSHIT_EVERYWHERE
+
+https://old.reddit.com/r/popculturechat/comments/1s3ra90/security_guard_confirms_he_wasnt_working_for/ociibme/
+
+CYNICAL_ACCEPT_IT
+
+https://old.reddit.com/r/popculturechat/comments/1s3ra90/security_guard_confirms_he_wasnt_working_for/ochrs1l/
+
+HATE_HARDER competitive hate.
+
+https://old.reddit.com/r/popculturechat/comments/1s3ra90/security_guard_confirms_he_wasnt_working_for/ochrbno/
+
+TECH_LUST_TECH_LOVERS high-speed commenting blows minds. TCP/IP notification is prized by Reddit users over human beings. People promote hate of humans and worship of fiction content. Fiction storytelling. FICTION_OUTSELLS_NONFICTION
+
+https://old.reddit.com/r/Music/comments/1s3slsx/bodyguard_at_center_of_chappell_roan_controversy/ocir2l4/
+
+https://old.reddit.com/r/Music/comments/1s3slsx/bodyguard_at_center_of_chappell_roan_controversy/ociv7em/
+
+DRUNK_ON_POWER of media power of footballer power
+
+https://old.reddit.com/r/whenthe/comments/1s3tuer/the_mold/ocia62k/
+
+MEDIA_CULTS_FICTION_FANDOM_MEDIA_POWER
+
+https://old.reddit.com/r/technology/comments/1s4780a/librarian_gobsmacked_after_school_use_ai_to/ocl2lyb/
+
+This subreddit, /r/Technology - is a worship center for big-tech. Video game systems, etc. TECH_LUST_TECH_LOVERS - NOT_GOOD_ENOUGH Neil Postman's 1992 book is not good enough for people to quote, cite, reference.
+
+* “Our youth must be shown that not all worthwhile things are instantly accessible and that there are levels of sensibility unknown to them.” ― Neil Postman, Technopoly: The Surrender of Culture to Technology. year 1992
+
+https://old.reddit.com/r/StarWars/comments/1s473cs/what_is_the_dumbest_thing_in_star_wars_in_your/ockw6zp/
+
+YES, YES, YES. George Lucas published 1988 nonfiction book for fans and nobody seems to read, remember, or otherwise understand and comprehend the book. Bill Moyers is not good enough to study and learn from. NOT_GOOD_ENOUGH The gap between fiction and nonfiction. FICTION_NONFICTION So much RELEVANT "Power of Myth" 1988 book nonfiction applies to year 2014 onward USA society. OBSERVE_MEDIA_AVOIDANCE_OF_RELEVANT_NONFICTION LEVANT_MONOMYTH_CRISIS described by Joseph Campbell in that book, the Great Seal explained in that 1988 George Lucas book. GREAT_SEAL_USA www.GreatSealUSA.com quotes that book Lucas created for Star Wars fans.
+
+Observing how Star Wars fans can not engage nonfiction book on paper, "Power of Myth" published year 1988, shows just how much brain rot goes back to the emergence of the Internet and ETERNAL_SEPTEMBER era. BRAIN_ROT_SOCIETY_47 
+
+
+https://old.reddit.com/r/Whatcouldgowrong/comments/1s4mtxn/running_a_red_light/ocob7v9/
+
+FAKE_DETECTORS WIDE_RADICAL_DOUBT_ABOUT_REAL
+
+https://old.reddit.com/r/stopdrinking/comments/1s4lhd4/woke_up_to_a_corpse/ocom4au/

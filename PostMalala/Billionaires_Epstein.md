@@ -81,3 +81,15 @@ I don't know how you were inverted.
 
 Americans, like human beings everywhere, believe many things that are obviously untrue. Their most destructive untruth is that it is very easy for any American to make money. They will not acknowledge how in fact hard money is to come by, and, therefore, those who have no money blame and blame and blame themselves. This inward blame has been a treasure for the rich and powerful, who have had to do less for their poor, publicly and privately, than any other ruling class since, say Napoleonic times. Many novelties have come from America. The most startling of these, a thing without precedent, is a mass of undignified poor. They do not love one another because they do not love themselves.” ― Kurt Vonnegut, Slaughterhouse-Five. The Children's Crusade: A Duty-Dance with Death. Year 1969.
 
+&nbsp;
+
+&nbsp;
+
+# Pedo Fans
+
+NEW_OPERA_NAME #PedoFans    
+https://autistics.life/@RoundSparrow/116302163456764198    
+https://bsky.app/profile/roundsparrow.bsky.social/post/3mi2l6aapbc2i   
+https://midwest.social/post/45218965   
+
+https://old.reddit.com/r/memes/comments/1s54bov/true_story/   

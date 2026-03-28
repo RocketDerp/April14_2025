@@ -419,3 +419,91 @@ Social post { https://autistics.life/@RoundSparrow/116284626097371981 https://bs
 
 https://old.reddit.com/r/Fauxmoi/comments/1s2kv6k/bernie_sanders_trump_netanyahu_and_putin_plunging/oc8s8q9/
 
+https://old.reddit.com/r/news/comments/1s437t2/france_confirms_oil_crisis_says_3040_gulf_energy/ocjzmqo/
+
+ANSWER: we are making reaction-comments on Reddit and all avoiding repeating Dr. Bandy X Lee. Surkov won. DECEMBER_5_2014_NATO_JOKE_ARTICLE_5_JOKE 
+
+https://old.reddit.com/r/news/comments/1s437t2/france_confirms_oil_crisis_says_3040_gulf_energy/ock6txo/
+
+Surkov won. People are so engaged on social media devices. ENTERTAINED_JUST_PASSIVELY_WATCHING_UNTIL_DEATH_NO_SOCIAL_MEDIA_UPRISING_WHILE_ALIVE
+
+https://old.reddit.com/r/news/comments/1s437t2/france_confirms_oil_crisis_says_3040_gulf_energy/ock98n0/
+
+October 3, 2017. Why is Dr. Bandy X Lee not good enough for the entire World Wide Web, Canadians, USA, etc? Why is ignorance celebrated and cheered on and an intelligent woman leader ignored? ANSWER: The brain rot of social media behaviors is every day all day upvoting, not just election days. THE_HIGH_ROAD_IS_DR_BANDY_X_LEE_QUOTING_REPEATING
+
+https://old.reddit.com/r/news/comments/1s437t2/france_confirms_oil_crisis_says_3040_gulf_energy/ockc35w/
+
+SOCIAL_MEDIA_DID_NOT_HAVE_UPRISING_SUSTAINED_FOCUSED
+
+https://old.reddit.com/r/news/comments/1s437t2/france_confirms_oil_crisis_says_3040_gulf_energy/ockcrqo/
+
+MASS_PSYCHOSIS_ABOUNDS - Reddit users are tricked by the Russian Internet Research Agency since March 2013. It isn't just old men on telephone. Surkov won.
+
+https://old.reddit.com/r/news/comments/1s437t2/france_confirms_oil_crisis_says_3040_gulf_energy/ocjxyd9/
+
+World Hate Affairs. Malala was on the world stage taking about the whole planet. Thinking, education, teaching, learning for the whole world. EPSTEIN_BUT_NOT_PUTIN_UKRAINE_CHILDREN_NOT_MALALA
+
+https://old.reddit.com/r/popculturechat/comments/1s45qbn/this_gutwrenching_monologue_from_laura_dern_in/ockouxb/
+
+MEDIA_ECOLOGY_OBSERVATION
+
+https://old.reddit.com/r/popculturechat/comments/1s45qbn/this_gutwrenching_monologue_from_laura_dern_in/ockrhcq/
+
+SUPERFICIAL_SHALLOW_PRIZING_TRUMPISM_MAGA_VALUES and values of religion clergy of the Levant that is discussed in the dialog.
+
+https://old.reddit.com/r/popculturechat/comments/1s45qbn/this_gutwrenching_monologue_from_laura_dern_in/ockoddo/
+
+World Divorce Hate Affairs. YOU_MUST_HATE_EX_LOVERS
+
+https://old.reddit.com/r/popculturechat/comments/1s45qbn/this_gutwrenching_monologue_from_laura_dern_in/ockrcy3/
+
+REALITY_REAL
+
+https://old.reddit.com/r/popculturechat/comments/1s45qbn/this_gutwrenching_monologue_from_laura_dern_in/ocl28rk/
+
+Trump is praised constantly as a source of jokes, memes, LOLCOW to milk. People are constantly attracted to Donald Trump, Elon Musk - as a source of amusement and entertainment. Intelligent women like Dr. Bandy X Lee ignored.
+
+https://old.reddit.com/r/popculturechat/comments/1s45qbn/this_gutwrenching_monologue_from_laura_dern_in/ockvnmh/
+
+LEVANT_MONOMYTH_CRISIS
+
+https://old.reddit.com/r/worldnews/comments/1s3yxxd/russia_hits_all_of_ukraine_with_nearly_1000/ocjwvut/
+
+REMEMBER_THE_PROGRAM_IDEAS_BILLIONAIRES_FED_REDDIT_AUDIENCE these 140-character comments on Reddit do not make any effort to organize intellectual resistance with education. Instead, just commenting away and normalizing it.
+
+https://old.reddit.com/r/worldnews/comments/1s43olh/uganda_will_join_iran_war_on_the_side_of_israel/ockjfr3/
+
+WAR_ALL_AGAINST_ALL
+
+https://old.reddit.com/r/worldnews/comments/1s4c0kv/iranian_regime_promises_25_million_for/ocltpxt/
+
+REPUBLICANS_LEAD_WITH_IGNORANCE_IDEAS_AND_FOLLOWERS_REPLY_WITH_IGNORANCE the pro-ignorance anti-intellectual meme-think crowd who thinks war is LOL comedy amusement for one-line dumb-jokes.
+
+https://old.reddit.com/r/worldnews/comments/1s4bogm/trump_mocks_british_aircraft_carriers_in_latest/ocls4h4/
+
+5 month Reddit account. 2nd most popular upvoted comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT Surkov won. DECEMBER_5_2014_NATO_JOKE_ARTICLE_5_JOKE
+
+https://old.reddit.com/r/worldnews/comments/1s4ip8u/trump_extends_pause_on_attacking_iran_energy/ocncfsw/
+
+https://old.reddit.com/r/worldnews/comments/1s4ip8u/trump_extends_pause_on_attacking_iran_energy/ocncymx/
+
+https://old.reddit.com/r/SipsTea/comments/1s502tb/iranian_state_media_has_released_an_aigenerated/ocqx2op/
+
+<img width="832" height="255" alt="image" src="https://github.com/user-attachments/assets/8b570f2c-7ad8-4e5f-aca2-92134f87a8ff" />
+
+TECHNICAL_NOTE my script won't process NSFW on this. But it is CORE_CONCERN topic. The ignorance of the Internet Research Agency on Reddit. Surkov won. This was at the top of/r/All popular. Anti-intellectual shit-postings sell on Reddit / USA society.
+
+https://old.reddit.com/r/DeepMarketScan/comments/1s5h12y/breaking_qatar_withdraws_from_the_war_iran_has/ocujqj7/
+
+https://old.reddit.com/r/interesting/comments/1s5dd61/miss_thailands_teeth_fall_out_on_stage/ocu1zff/
+
+https://old.reddit.com/r/worldnews/comments/1s5fo89/us_forces_abandon_military_bases_in_middle_east/ocuhakj/
+
+https://old.reddit.com/r/Fauxmoi/comments/1s5imjv/trump_cubas_next_by_the_way_but_pretend_i_didnt/ocuttd7/
+
+All a fucking joke to USA society. meme-jokes always. Surkov won. JOKE_COMEDY_POWER_IS_MAGA_IS_TRUMP_IS_SURKOV
+
+https://old.reddit.com/r/Fauxmoi/comments/1s5imjv/trump_cubas_next_by_the_way_but_pretend_i_didnt/ocuw0b3/
+
+Comedy and jokes always fix problems and are the most important thing, according to ignorant USA population. AMUSEMENT_COMEDY_WASHING_TRUMP_AS_FUNNY_MEDIA_SANEWASHING 
+

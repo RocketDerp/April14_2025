@@ -104,7 +104,7 @@ I get what I (Stephen Gutknecht / RoundSparrow) get from my birthplace state of 
 
 &nbsp;
 
-Harlan Ellison's audio echos to me Nina Paley's animated music video about the Middle East too... "Thsi Land Is Mine"... https://www.youtube.com/watch?v=8tIdCsMufIY
+Harlan Ellison's audio echos to me Nina Paley's animated music video about the Middle East too... "This Land Is Mine"... https://www.youtube.com/watch?v=8tIdCsMufIY
 
 &nbsp;
 

@@ -474,3 +474,7 @@ Trump tells fiction all the time, so Reddit audience joins in with more fiction.
 https://old.reddit.com/r/Irony/comments/1s38fj4/the_most_ironic_administration_in_history/ocdln9h/
 
 The "MOST IRONIC IN HISTORY!" - yes, because it blows the mind of touch device screen users. The population, We The People, blow their minds on dumb-shit and jokes and irony-cracking joke-cracking. People can not engage relevant serious non-fiction. People can not describe it specifically as Surkov methods of Russia. JOKE_COMEDY_POWER_IS_MAGA_IS_TRUMP_IS_SURKOV
+
+https://old.reddit.com/r/dankmemes/comments/1s46kyb/absolute_cinema/ockpj0a/
+
+This whole post, about electing Barack Obama again... is pro-ignorance. PROMOTING_SAVIOR_SINGLE_PERSON_OVER_DIVERSE_OPEN_THINKING_IDEAS

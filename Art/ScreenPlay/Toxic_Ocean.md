@@ -1,8 +1,8 @@
 # Toxic Ocean
 
-USA year 2025, Toxic Ocean abounds. The ocean we swim in, the media enviornments aare all toxic, feeding of Putin Trump.
+USA year 2025, Toxic Ocean abounds. The ocean we swim in, the media environments are all toxic, feeding of Putin Trump.
 
-1. DFW lecture about fish, what is water
+1. DFW lecture about fish, what is water https://www.youtube.com/watch?v=DCbGM4mqEVw  
 
 2. Marshall McLuhan 1968 War and Peace in Global Village, the heart of Fin Wake Indra Net / WakeIndra.com project
 
@@ -32,3 +32,15 @@ https://bsky.app/profile/did:plc:rwyn2e7jpkbhgnmruwj5tqoq/post/3m25gww3uss2i
 
 Book published in year 1955. We are living it in USA in year 2025.
 
+&nbsp;
+
+# Ocean of Shit
+
+NEW_OPERA_NAME #OceanOfShit    
+
+https://bsky.app/profile/roundsparrow.bsky.social/post/3mi2jtrzlwk22    
+https://autistics.life/@RoundSparrow/116302063890441194   
+
+"I hate Elvis" - "I Hate MAGA", "I Hate Trump" fandoms    
+
+https://midwest.social/post/45218571   

@@ -620,3 +620,169 @@ https://old.reddit.com/r/clevercomebacks/comments/1s2he88/hes_flipflopped_a_thou
 https://old.reddit.com/r/PublicFreakout/comments/1s2nqzd/hegseths_approach_to_diplomacy_we_negotiate_with/oc9dgwi/
 
 Extremely popular comment. "Dumbass" - one single word. Not even near the 140 character dumb-shit commenting limit of Twitter-think mindsets. REPUBLICANS_LEAD_WITH_IGNORANCE_IDEAS_AND_FOLLOWERS_REPLY_WITH_IGNORANCE A society that can not engage or locate nonfiction relevant books from Dr. Bandy X Lee and organize to remove Trump with intellectual education, intellect asserts, and teaching. BRAIN_ROT_SOCIETY_47
+
+https://old.reddit.com/r/worldnews/comments/1s3i51j/mass_text_in_iran_promotes_trump_assassination/ocfqvw6/
+
+Doing as instructed by Putin. Trump is a Putin Puppet, Iran is a Putin Puppet. Surkov won since year 2013. EVERYTHING_IS_MEDIA_ECOLOGY SURKOV_WARFARE
+
+https://old.reddit.com/r/nottheonion/comments/1s3pbvw/pete_hegseth_prays_for_violence_against_those_who/och5pah/
+
+We the People should be peacefully educating and intellectually organizing to remove Trump. Not making 140 character dumb-shit jokes and comments. BRAIN_ROT_SOCIETY_47 
+
+https://old.reddit.com/r/nottheonion/comments/1s3pbvw/pete_hegseth_prays_for_violence_against_those_who/och60n1/
+
+People unsubscribe, block, ignore when you quote or mention Dr. Bandy X Lee's relevant October 3, 2017 nonfiction book about Trump. As the addicts on meme systems want the jokes more than they want Trump removed. THE_HIGH_ROAD_IS_DR_BANDY_X_LEE_QUOTING_REPEATING
+
+https://old.reddit.com/r/nottheonion/comments/1s3pbvw/pete_hegseth_prays_for_violence_against_those_who/och6eve/
+
+People on Reddit can't grasp conflicts of interpretation or comprehension. Even if 2 people watch the same film or TV show, they can interpret the same content different. It isn't an issue of "if you can read", it is an issue of words having different meanings to different people. PROMOTING_IGNORANCE_WORKS_PLAYING_DUMB_MOCKING 
+
+https://old.reddit.com/r/worldnews/comments/1s3kzye/trump_to_hit_iran_harder_if_tehran_does_not/ocgb2pt/
+
+CORE_CONCERNS - alas, Dr. Bandy X Lee is not findable or good enough for Bluesky and Reddit users. "Danger" is right in the title of Dr. Lee's nonfiction book. SAFE_DANGER_IN_2017_NONFICTION_BOOK_TITLE
+
+https://old.reddit.com/r/worldnews/comments/1s43q75/pentagon_prepares_for_massive_final_blow_of_iran/ock3tfb/
+
+This is how MAGA fandom behaves. Joke-washes all badness and evil. AMUSEMENT_COMEDY_WASHING_TRUMP_AS_FUNNY_MEDIA_SANEWASHING all while avoiding using that spare time / free time commenting to assert Dr. Bandy X Lee's nonfiction relevant book.
+
+https://old.reddit.com/r/worldnews/comments/1s43q75/pentagon_prepares_for_massive_final_blow_of_iran/ock19lv/
+
+Reddit society has been intoxicated with Trump content, Trump memes, Trump photographs, Trump mockery since June 16, 2015. Media cults. MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL
+
+Social post { https://autistics.life/@RoundSparrow/116296096611237732 https://bsky.app/profile/roundsparrow.bsky.social/post/3mhxuxmthtc2e }    
+
+https://old.reddit.com/r/law/comments/1s4c4yk/senator_blumenthal_trumps_judicial_nominees_give/oclwc1s/
+
+REALITY_KREMLIN nonsense mindsets HIVE_MIND - Surkovian NONSENSE_HARDER leadership systems. Nonsense keys of Surkov students. SETTLED_FOR_WE_THIS_PATH
+
+https://old.reddit.com/r/Fauxmoi/comments/1s4dq6o/trump_actually_im_the_highest_polling_person/ocmanoi/
+
+<img width="1611" height="331" alt="Screenshot from 2026-03-26 12-27-09" src="https://github.com/user-attachments/assets/273bece6-08a2-4c29-98b3-047fd9cb7a34" />
+
+Funny, jokes, LOL Reddit audience behavior to serious topics. The comedy White House. DECEMBER_5_2014_NATO_JOKE_ARTICLE_5_JOKE PEOPLE_LOVE_COMEDY_MEDIA_CONTENT_MORE_THAN_PLURIBUS_HUMANISM JOKE_COMEDY_POWER_IS_MAGA_IS_TRUMP_IS_SURKOV it is the nation of LOL. Surkov won since year 2013.
+
+NEW_OPERA_NAME #TheyFuckingLaugh   
+Social post { https://autistics.life/@RoundSparrow/116297131617750648 https://bsky.app/profile/roundsparrow.bsky.social/post/3mhydnxrqrk2s }    
+
+https://old.reddit.com/r/worldnews/comments/1s4gt95/trump_iran_asked_me_to_be_supreme_leader_but_i/ocmw4pw/
+
+AMUSEMENT_COMEDY_WASHING_TRUMP_AS_FUNNY_MEDIA_SANEWASHING
+
+https://old.reddit.com/r/politics/comments/1s4mo0e/trumps_signature_will_be_featured_on_us_paper/oco6tp7/
+
+AVOIDED_DR_BANDY_X_LEE_PUBLIC_WRITINGS
+
+https://old.reddit.com/r/Fauxmoi/comments/1s4kebi/trump_goes_on_another_unhinged_racist_rant_on/ocns03m/
+
+https://old.reddit.com/r/Fauxmoi/comments/1s4kebi/trump_goes_on_another_unhinged_racist_rant_on/ocnrugj/
+
+8 month Reddit account. 2nd most popular upvoted comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+
+https://old.reddit.com/r/Fauxmoi/comments/1s4kebi/trump_goes_on_another_unhinged_racist_rant_on/ocnsfz4/
+
+Observe the predictable blown mind with hate reaction. Not calling for We The People to educate, teach, learn how to escape Fox News, media addiction. ROUTINE_NO_NEED_TO_RESIST_OR_ORGANIZE_INTELLECTUAL_UPRISING
+
+https://old.reddit.com/r/ufc/comments/1s4hun8/israel_adesanya_is_not_interested_in_attending/ocnlowe/
+
+THE_HIGH_ROAD_IS_DR_BANDY_X_LEE_QUOTING_REPEATING and repeating Dr. Martin Luther King Jr.
+
+https://old.reddit.com/r/politics/comments/1s4fhrh/joe_rogan_democrats_were_tougher_on_border_than/ocmmks1/
+
+Top most upvoted comment. Declaring how fascinating watching and listening to Joe Rogan thinking can be. MAGA_FANDOM REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
+
+https://old.reddit.com/r/PublicFreakout/comments/1s4jw0z/us_secretary_of_war_pete_hegseth_at_wednesdays/ocnpdsg/
+
+LEVANT_MYTH_INVERTED they have The Bible ass-backwards in their interpretation.
+
+https://old.reddit.com/r/PublicFreakout/comments/1s4jw0z/us_secretary_of_war_pete_hegseth_at_wednesdays/ocnl59u/
+
+LEVANT_MONOMYTH_CRISIS
+
+https://old.reddit.com/r/law/comments/1s4lzx3/exclusive_trumps_signature_to_appear_on_us/oco34x5/
+
+Waiting, waiting. Consuming Trump enshitification. Enabling. Avoiding Dr. Bandy X Lee's leadership with intelligence. ENTERTAINED_JUST_PASSIVELY_WATCHING_UNTIL_DEATH_NO_SOCIAL_MEDIA_UPRISING_WHILE_ALIVE
+
+https://old.reddit.com/r/pics/comments/1s4lvi0/the_inaugural_america_first_award_given_to_trump/oco3jrw/
+
+Drown the world in dumb-shit and everyone became dumb. ENJOYMENT_OF_TRUMP_AND_MAGA_VALUES
+
+https://old.reddit.com/r/science/comments/1s4lani/ai_chatbots_are_becoming_sycophants_to_drive/ocnxekv/
+
+BRAIN_ROT_SOCIETY_47
+
+https://old.reddit.com/r/science/comments/1s4lani/ai_chatbots_are_becoming_sycophants_to_drive/oco03s3/
+
+ARTIFICIAL_REALITY
+
+https://old.reddit.com/r/PoliticalHumor/comments/1s51rbe/totally_not_a_cult/ocr8e0o/
+
+1 month Reddit account. Top-upvoted most popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT "Not a cult" generic non-specific title. Framing real world crisis as a source of humor and comedy. This is media cult fandom that adores photographs of the White House. Totally a mockery Reddit that follows the mocking leader, Trump. SOCIAL_CULT_HATE_WATCHING_FANDOM this message downplays the threat of Trump as a "child" and source of amusement. DOWNPLAYING_DANGER_MINIMIZING_THREATS
+
+https://old.reddit.com/r/AskReddit/comments/1s4wu11/what_do_you_think_will_immediately_happen_when/ocqc4vy/
+
+Top most upvoted popular comment. Reddit is a cult of Trump. SOCIAL_CULT_HATE_WATCHING_FANDOM ENTERTAINED_JUST_PASSIVELY_WATCHING_UNTIL_DEATH_NO_SOCIAL_MEDIA_UPRISING_WHILE_ALIVE
+
+https://old.reddit.com/r/AskReddit/comments/1s4wu11/what_do_you_think_will_immediately_happen_when/ocq932a/
+
+EVERYTHING_IS_ME TRUMP_FANDOM "we won, he died, we did nothing but mock and mock into a mockery, and the governance problem of Twitter-thinking continues"
+
+https://old.reddit.com/r/AskReddit/comments/1s4wu11/what_do_you_think_will_immediately_happen_when/ocqagvc/
+
+https://old.reddit.com/r/AskReddit/comments/1s4wu11/what_do_you_think_will_immediately_happen_when/ocqcade/
+
+"cult leader", it is a media cult. MEDIA_CULTS_ADDICTIVE_FICTION
+
+https://old.reddit.com/r/AskReddit/comments/1s4wu11/what_do_you_think_will_immediately_happen_when/ocqchn4/
+
+MAGA_FANDOM isn't just Donald Trump on Reddit.
+
+https://old.reddit.com/r/AskReddit/comments/1s4wu11/what_do_you_think_will_immediately_happen_when/ocqcdhb/
+
+https://old.reddit.com/r/AskReddit/comments/1s4wu11/what_do_you_think_will_immediately_happen_when/ocqd6em/
+
+Jesus is dead for a very long time. Mohammad is dead since year 632. 
+
+https://old.reddit.com/r/AskReddit/comments/1s4wu11/what_do_you_think_will_immediately_happen_when/ocqa5el/
+
+Yes. Celebrating ignorance. IGNORANCE_CELEBRATIONS - as nobody stood up for Dr. Bandy X Lee's intelligent leadership. Just memes and Trump content. FUNERAL_RITUALS_WAKES
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1s52hhr/she_literally_has_done_nothing_but_smile_since_he/ocre90z/
+
+Yes, just as so much podcast / Internet media shit is normal now. Reddit shit. Where is the REDDIT_BLACKOUT protesting Trump. Meme addicts on Reddit can't go without their dumb-shit content and shit-postings. The idea of halting entertainment to rescue the USA intellectually is impossible to cult of ignorance. FUNERAL_RITUALS_WAKES and this whole post id Kirk fandom. MAGA_FANDOM   
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1s52hhr/she_literally_has_done_nothing_but_smile_since_he/ocrfy86/
+
+As if marriages in USA are about love. DONALD_TRUMP_ROLE_MODEL Parents think Donald Trump is a great role model. Marriages who think pollution and war are good for their USA children. Parents of children have the most reason to promote education and learning, but NOT_GOOD_ENOUGH Dr. Bandy X Lee, Jen Senko for USA society. PARENTING_HONESTY
+
+https://old.reddit.com/r/politics/comments/1s4q574/the_united_states_has_become_a_rogue_state/ocp7y5t/
+
+https://old.reddit.com/r/politics/comments/1s4q574/the_united_states_has_become_a_rogue_state/ocox8gu/
+
+Exactly. Left vs. Right is a media narrative. Incredibly popular brain rot, 1-bit logic. BRAIN_ROT_LEFT_RIGHT_LIB_CON_NAME_AVOIDANCE - people can not see the shift towards fiction. Nonfiction vs. fiction. Trump provides Reddit fandom fiction stories to mock and criticize based on fiction thinking.
+
+https://old.reddit.com/r/worldnews/comments/1s56i0f/fbi_director_kash_patels_personal_inbox_breached/ocsanuy/
+
+Surkov won since year 2013. INFINITE_JEST AMUSING_ZOMBIES MAGA_FANDOM JOKE_COMEDY_POWER_IS_MAGA_IS_TRUMP_IS_SURKOV SURKOV_MONOMYTH 
+
+NEW_OPERA_NAME #ConstantlyEntertained #ConstantlyAmused    
+Social post { https://autistics.life/@RoundSparrow/116301994831138101 https://bsky.app/profile/roundsparrow.bsky.social/post/3mi2iticauk27 }   
+
+https://old.reddit.com/r/Fauxmoi/comments/1s56r0e/lili_reinhart_arrives_at_a_qa_for_her_new_film/ocsakq1/
+
+Front page of Reddit. Silencing people with block-button. Deport those men who speak Spanish, not in my nation!  "Shut the fuck up!" threats of violence. Imprison people, deport people. MAGA values. BLOCK_HAPPY_DEPORT_HAPPY_SILENCE_POOR_PEOPLE_SILENCE_UPPITY Shut up the uppity educational people with dumb-shit T-shirt slogans. REPUBLICANS_LEAD_WITH_IGNORANCE_IDEAS_AND_FOLLOWERS_REPLY_WITH_IGNORANCE TALIBAN_VALUES of shutting up the opposite sex in Swat Valley, Pakistan!
+
+https://old.reddit.com/r/pics/comments/1s5icdo/trump_signs_law_to_put_his_signature_on_all_us/ocv8ua2/
+
+ANTI_REALITY
+
+https://old.reddit.com/r/pics/comments/1s5icdo/trump_signs_law_to_put_his_signature_on_all_us/ocuwowt/
+
+BRAIN_ROT_LEFT_RIGHT_LIB_CON_NAME_AVOIDANCE
+
+https://old.reddit.com/r/pics/comments/1s5icdo/trump_signs_law_to_put_his_signature_on_all_us/ocusk3w/
+
+Fandoms on Reddit who always want more Trump. Always avoiding Dr. Bandy X Lee and Jen Senko and instead cheer on Trump. TRUMP_FANDOM 
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1s5m401/the_karma_of_kash_patel_firing_fbi_counter_intel/ocvk2ax/
+
+Good to see 1995 quote invoked. As for the title images and posting: UNDERSTANDING_SURKOV_PUTINISM_TRUMPISM_HATE_HILARIOUS

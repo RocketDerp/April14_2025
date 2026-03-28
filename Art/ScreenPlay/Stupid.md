@@ -19,3 +19,12 @@ https://newrepublic.com/post/207989/trump-war-iran-cause-stupidity
 https://autistics.life/@RoundSparrow/116262634402985774    
 https://bsky.app/profile/roundsparrow.bsky.social/post/3mhizigstnk2o   
 
+&nbsp;
+
+# All The Stupid
+
+NEW_OPERA_NAME #AllTheStupid   
+
+https://bsky.app/profile/roundsparrow.bsky.social/post/3mi2suheaas2f   
+https://autistics.life/@RoundSparrow/116302702634958728   
+
