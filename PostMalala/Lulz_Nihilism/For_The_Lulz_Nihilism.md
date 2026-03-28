@@ -40,3 +40,12 @@ Malala year 2013 was what Carl Sagan, John Lennon and MLK Jr were saying. #Asser
 Please apply the year 1982 lyrics to Malala year 2012 
 
 https://www.youtube.com/watch?v=gncyDkWWY_w
+
+&nbsp;
+
+# Liberal Laughs 
+
+<img width="1335" height="913" alt="Screenshot from 2026-03-28 08-20-15" src="https://github.com/user-attachments/assets/b38a7cac-91fa-4865-b508-4cc3db2673eb" />
+
+https://autistics.life/@RoundSparrow/116307511972780236    
+https://bsky.app/profile/roundsparrow.bsky.social/post/3mi4wtq3qy22n   
