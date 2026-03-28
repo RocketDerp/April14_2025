@@ -49,3 +49,13 @@ https://www.youtube.com/watch?v=gncyDkWWY_w
 
 https://autistics.life/@RoundSparrow/116307511972780236    
 https://bsky.app/profile/roundsparrow.bsky.social/post/3mi4wtq3qy22n   
+
+&nbsp;
+
+1. LOL, LOL, #Putin so dumb-stupid! LOL since February 2014 as Ukraine children raped, kidnapped, killed
+
+2. LOL LOL, #MAGA #Republicans so stupid, LOL LOL our health care a joke, LOL LOL LOL 
+
+3. LOL LOL Taliban stupid-dumb! LOL LOL
+
+Liberal Laughs in Total Mockery USA.
