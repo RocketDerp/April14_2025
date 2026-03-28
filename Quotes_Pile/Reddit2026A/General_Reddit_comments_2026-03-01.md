@@ -515,3 +515,15 @@ https://old.reddit.com/r/LivestreamFail/comments/1s62req/twitch_streamer_musa_us
 LOADED_QUESTION if you understand the MASS_MIND MASS_MAN of media (society mob mentality). The weight of the camera. The weight of the police recording. The media is the massage. Alas NOT_GOOD_ENOUGH Marshall McLuhan to understand the media situation. TREND_CHASING_MEDIA_TRENDING
 
 Racism is a real crisis, the Donald Trump hate-watcher fandom that promotes hate constantly in the name of entertainment. This has put racism at the center of every day media, sexism, mass dehumanization via Trump popularity. TOXIC_POPULARITY
+
+https://old.reddit.com/r/LivestreamFail/comments/1s62req/twitch_streamer_musa_usa_who_runs_a_hot_dog_stand/ocz0ffu/
+
+BABEL_TOWER language battles. 
+
+https://old.reddit.com/r/LivestreamFail/comments/1s62req/twitch_streamer_musa_usa_who_runs_a_hot_dog_stand/ocz083e/
+
+The "real problem" on Reddit subreddit. High-speed reactionary mindsets and entertainment thinking. Neil Postman's 1985 book "Amusing Ourselves To Death". HIGH_SPEED_REACTIONARY_MINDSETS
+
+https://old.reddit.com/r/LivestreamFail/comments/1s62req/twitch_streamer_musa_usa_who_runs_a_hot_dog_stand/ocz5m09/
+
+Ahh, the rape mentality of women being dressed to be robbed. TECH_LUST_TECH_LOVERS technical location. The camera overrides location. Basically a society honey-pot at this point. A citizen sting operation.
