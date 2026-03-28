@@ -522,3 +522,12 @@ https://old.reddit.com/r/worldnews/comments/1s5ix0v/canada_will_cancel_thousands
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1s5zus1/make_it_the_only_condition_and_see_who_rejects_it/ocydk82/
 
 UNDERSTANDING_TRUMPISM Surkov information warfare is incredibly popular, as is Trump's fiction creation. Hate of Trump is popular. Popularity itself is always more nonsense. FICTION_HARDER 
+
+https://old.reddit.com/r/Fauxmoi/comments/1s62chc/tweet_resurfaces_of_daredevil_actor_wilson_bethel/ocyv237/
+
+LEVANT_MONOMYTH_CRISIS LEVANT_MYTH_INVERTED
+
+Deuteronomy 20:16 "However, in the cities of the nations the LORD your God is giving you as an inheritance, do not leave alive anything that breathes. Completely destroy them!" #Torah 
+
+NEW_OPERA_NAME #LevantTradition    
+Social post { https://autistics.life/@RoundSparrow/116307906397555424 https://bsky.app/profile/roundsparrow.bsky.social/post/3mi54tnpfoc2q }    
