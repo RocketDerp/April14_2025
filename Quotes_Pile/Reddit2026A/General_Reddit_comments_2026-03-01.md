@@ -485,3 +485,6 @@ https://old.reddit.com/r/Whatcouldgowrong/comments/1s4mtxn/running_a_red_light/o
 FAKE_DETECTORS WIDE_RADICAL_DOUBT_ABOUT_REAL
 
 https://old.reddit.com/r/stopdrinking/comments/1s4lhd4/woke_up_to_a_corpse/ocom4au/
+
+https://old.reddit.com/r/mildyinteresting/comments/1s5hksc/kelly_osbourne_is_becoming_emaciated/ocvr23p/
+
