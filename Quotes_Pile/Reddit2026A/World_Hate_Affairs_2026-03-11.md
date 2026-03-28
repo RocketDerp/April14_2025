@@ -519,3 +519,6 @@ https://old.reddit.com/r/worldnews/comments/1s5ix0v/canada_will_cancel_thousands
 
 https://old.reddit.com/r/worldnews/comments/1s5ix0v/canada_will_cancel_thousands_of_refugee_claims/ocwg95l/
 
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1s5zus1/make_it_the_only_condition_and_see_who_rejects_it/ocydk82/
+
+UNDERSTANDING_TRUMPISM Surkov information warfare is incredibly popular, as is Trump's fiction creation. Hate of Trump is popular. Popularity itself is always more nonsense. FICTION_HARDER 
