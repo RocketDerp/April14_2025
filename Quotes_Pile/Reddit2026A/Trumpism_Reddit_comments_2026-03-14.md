@@ -771,3 +771,11 @@ https://old.reddit.com/r/Fauxmoi/comments/1s56r0e/lili_reinhart_arrives_at_a_qa_
 
 Front page of Reddit. Silencing people with block-button. Deport those men who speak Spanish, not in my nation!  "Shut the fuck up!" threats of violence. Imprison people, deport people. MAGA values. BLOCK_HAPPY_DEPORT_HAPPY_SILENCE_POOR_PEOPLE_SILENCE_UPPITY Shut up the uppity educational people with dumb-shit T-shirt slogans. REPUBLICANS_LEAD_WITH_IGNORANCE_IDEAS_AND_FOLLOWERS_REPLY_WITH_IGNORANCE TALIBAN_VALUES of shutting up the opposite sex in Swat Valley, Pakistan!
 
+https://old.reddit.com/r/pics/comments/1s5icdo/trump_signs_law_to_put_his_signature_on_all_us/ocv8ua2/
+
+ANTI_REALITY
+
+https://old.reddit.com/r/pics/comments/1s5icdo/trump_signs_law_to_put_his_signature_on_all_us/ocuwowt/
+
+BRAIN_ROT_LEFT_RIGHT_LIB_CON_NAME_AVOIDANCE
+
