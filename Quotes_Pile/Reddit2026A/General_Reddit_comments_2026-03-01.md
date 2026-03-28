@@ -527,3 +527,7 @@ The "real problem" on Reddit subreddit. High-speed reactionary mindsets and ente
 https://old.reddit.com/r/LivestreamFail/comments/1s62req/twitch_streamer_musa_usa_who_runs_a_hot_dog_stand/ocz5m09/
 
 Ahh, the rape mentality of women being dressed to be robbed. TECH_LUST_TECH_LOVERS technical location. The camera overrides location. Basically a society honey-pot at this point. A citizen sting operation.
+
+https://old.reddit.com/r/LivestreamFail/comments/1s62req/twitch_streamer_musa_usa_who_runs_a_hot_dog_stand/ocz28k6/
+
+"never been blocked so fast" BLOCK_HAPPY_DEPORT_HAPPY_SILENCE_POOR_PEOPLE_SILENCE_UPPITY
