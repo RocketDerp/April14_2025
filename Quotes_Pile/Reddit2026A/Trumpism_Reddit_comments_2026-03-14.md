@@ -805,3 +805,6 @@ Surkov won. The brain rot problem is every day all day, not just President, not 
 
 https://old.reddit.com/r/worldnews/comments/1s5ix0v/canada_will_cancel_thousands_of_refugee_claims/ocxfr1q/
 
+https://old.reddit.com/r/worldnews/comments/1s5ix0v/canada_will_cancel_thousands_of_refugee_claims/ocwbmkt/
+
+sane-washing ICE.
