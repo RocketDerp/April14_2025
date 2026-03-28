@@ -786,3 +786,7 @@ Fandoms on Reddit who always want more Trump. Always avoiding Dr. Bandy X Lee an
 https://old.reddit.com/r/LeopardsAteMyFace/comments/1s5m401/the_karma_of_kash_patel_firing_fbi_counter_intel/ocvk2ax/
 
 Good to see 1995 quote invoked. As for the title images and posting: UNDERSTANDING_SURKOV_PUTINISM_TRUMPISM_HATE_HILARIOUS
+
+https://old.reddit.com/r/Fauxmoi/comments/1s5mbi7/president_trump_perfectly_describes_his/ocvmjy4/
+
+"and people laughed." TRUMP_CHARMING_ACTOR_ACTING Neil Postman 1985. CORE_CONCERNS LIBERAL_LAUGHS_LIBERAL_TEARS_COMPULSIVE_MAGA_FOLLOWERS people keep hearing "liberal tears" and do not observe the "liberal LOL, Trump so dumb, ha ha ha" constantly for 11 years.
