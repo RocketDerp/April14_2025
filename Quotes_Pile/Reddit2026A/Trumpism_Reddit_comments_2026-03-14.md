@@ -798,3 +798,7 @@ https://old.reddit.com/r/Fauxmoi/comments/1s5mbi7/president_trump_perfectly_desc
 https://old.reddit.com/r/Fauxmoi/comments/1s5mbi7/president_trump_perfectly_describes_his/ocvmjty/
 
 Reddit audience: "LOL". BANAL_WASH_LAUGH_TRACK
+
+https://old.reddit.com/r/worldnews/comments/1s5p1dy/us_may_deploy_up_to_17000_troops_near_iran_as_war/ocwawik/
+
+Surkov won. The brain rot problem is every day all day, not just President, not just voting days. Anti-reality ideas from media sources. People fixate on elections and ignore the brain rot, people ignore Jen Senko's intelligent leadership since year 2015. ELECTION_DAY_FIXATED_BRAIN_ROT_EVERY_DAY_FOX_NEWS_ETC
