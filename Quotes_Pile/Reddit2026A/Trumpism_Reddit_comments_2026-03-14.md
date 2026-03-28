@@ -782,3 +782,7 @@ BRAIN_ROT_LEFT_RIGHT_LIB_CON_NAME_AVOIDANCE
 https://old.reddit.com/r/pics/comments/1s5icdo/trump_signs_law_to_put_his_signature_on_all_us/ocusk3w/
 
 Fandoms on Reddit who always want more Trump. Always avoiding Dr. Bandy X Lee and Jen Senko and instead cheer on Trump. TRUMP_FANDOM 
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1s5m401/the_karma_of_kash_patel_firing_fbi_counter_intel/ocvk2ax/
+
+Good to see 1995 quote invoked. As for the title images and posting: UNDERSTANDING_SURKOV_PUTINISM_TRUMPISM_HATE_HILARIOUS
