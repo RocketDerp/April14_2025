@@ -478,3 +478,9 @@ The "MOST IRONIC IN HISTORY!" - yes, because it blows the mind of touch device s
 https://old.reddit.com/r/dankmemes/comments/1s46kyb/absolute_cinema/ockpj0a/
 
 This whole post, about electing Barack Obama again... is pro-ignorance. PROMOTING_SAVIOR_SINGLE_PERSON_OVER_DIVERSE_OPEN_THINKING_IDEAS
+
+https://old.reddit.com/r/IThinkYouShouldLeave/comments/1s66r2w/her_husband_just_like_wasnt_important_like_he/oczp5uh/
+
+The image of the Reddit posting. KIRK_FANDOM right before Easter, at the start of Spring, the Reddit fandom is playing right into the game. Celebrating the life of Charlie Kirk with fireworks and cheering. Not hate. MAGA_FANDOM 
+
+* "the whole story of the crucifixion, which is a **fundamental image in the Christian tradition**, speaks of the coming of eternity into the field of time and space, where there is dismemberment. But it also speaks of the passage from the field of time and space into the field of eternal life. So we crucify our temporal and earthly bodies, let them be torn, and through that dismemberment enter the spiritual sphere which transcends all the pains of earth. There’s a form of the crucifix known as “Christ Triumphant,” where he is not with head bowed and blood pouring from him, but **with head erect and eyes open, as though having come voluntarily to the crucifixion. St. Augustine has written somewhere that Jesus went to the cross as a bride-groom to his bride.**" - Age 83, Joseph Campbell, Power of Myth
