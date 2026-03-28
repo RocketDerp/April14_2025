@@ -808,3 +808,7 @@ https://old.reddit.com/r/worldnews/comments/1s5ix0v/canada_will_cancel_thousands
 https://old.reddit.com/r/worldnews/comments/1s5ix0v/canada_will_cancel_thousands_of_refugee_claims/ocwbmkt/
 
 sane-washing ICE.
+
+https://old.reddit.com/r/nottheonion/comments/1s604lz/white_house_launches_onlyfarms_website_internet/ocy9rhx/
+
+THIS_GITHUB CORE_CONCERNS is Neil Postman's 1985 book, "Amusing Ourselves To Death" about Twitter and Reddit media ecology mindsets. WHITE_HOUSE_HYPER_REAL the popularity of ignorance.
