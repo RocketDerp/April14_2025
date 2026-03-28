@@ -779,3 +779,6 @@ https://old.reddit.com/r/pics/comments/1s5icdo/trump_signs_law_to_put_his_signat
 
 BRAIN_ROT_LEFT_RIGHT_LIB_CON_NAME_AVOIDANCE
 
+https://old.reddit.com/r/pics/comments/1s5icdo/trump_signs_law_to_put_his_signature_on_all_us/ocusk3w/
+
+Fandoms on Reddit who always want more Trump. Always avoiding Dr. Bandy X Lee and Jen Senko and instead cheer on Trump. TRUMP_FANDOM 
