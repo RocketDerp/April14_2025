@@ -27,3 +27,10 @@ Obvious bullsh*t. All of it. The last domino to topple was his "anti-war" BS. No
 Until conservatives can admit to themselves they have been scammed by Trump there's no conversation to have with them.
 
 "One of the saddest lessons of history is this: If we’ve been bamboozled long enough, we tend to reject any evidence of the bamboozle. We're no longer interested in finding out the truth. The bamboozle has captured us. It's simply too painful to acknowledge, even to ourselves, that we've been taken. Once you give a charlatan power over you, you almost never get it back". - Carl Sagan
+
+&nbsp;
+
+## My reply:
+
+Fiction outsells nonfiction. Levant silence fiction trilogy fandom (Mosque, Church, Synagogue) is heavily tied to Donald Trump and MAGA. Toxic clergy who can not find Bible verse '1 John 3:17" in their science fiction story. Even the anti-Trump people should be repeating and repeating "1 John 3:17" and promoting Dr. Bandy X Lee's nonfiction books. Alas, fiction keeps everyone entertained. Trump creates a mockery for all.
+
