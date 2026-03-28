@@ -531,3 +531,7 @@ Deuteronomy 20:16 "However, in the cities of the nations the LORD your God is gi
 
 NEW_OPERA_NAME #LevantTradition    
 Social post { https://autistics.life/@RoundSparrow/116307906397555424 https://bsky.app/profile/roundsparrow.bsky.social/post/3mi54tnpfoc2q }    
+
+https://old.reddit.com/r/videos/comments/1s68g3a/rachel_corrie_talking_about_humanity_she_was/od06w5p/
+
+LEVANT_MYTH_INVERTED
