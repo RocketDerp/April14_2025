@@ -818,3 +818,7 @@ https://old.reddit.com/r/PoliticalHumor/comments/1s5xhlm/a_fitting_allegory/ocxs
 Yha, the toxic clergy teaches: There is team Satan, team Evil, and it's a perfect valid choice as Jesus created evil! Good or evil, pick your favorite team bi-polar stupid-shit logic. TOXIC_CLERGY LEVANT_MYTH_INVERTED
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mi564pzznk2v https://autistics.life/@RoundSparrow/116308000987600590 }    
+
+https://old.reddit.com/r/PoliticalHumor/comments/1s5xhlm/a_fitting_allegory/ocy45lm/
+
+Reddit commenting is always cheering on more and more dumb. IGNORANCE_CELEBRATIONS
