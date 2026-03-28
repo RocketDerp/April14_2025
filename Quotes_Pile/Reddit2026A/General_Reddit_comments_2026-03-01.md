@@ -502,3 +502,16 @@ https://old.reddit.com/r/AskReddit/comments/1s5cffe/what_is_a_socially_mandatory
 
 Anti-compassion anti-education society. It is in the interest of every person on earth to open-source medical education and knowledge. Incentive is built-in friends and family having better treatment. CALL_TO_INTELLECTUAL_ACTION_PLAN
 
+https://old.reddit.com/r/LivestreamFail/comments/1s62req/twitch_streamer_musa_usa_who_runs_a_hot_dog_stand/ocytyku/
+
+MEDIA_ECOLOGY_OBSERVATION
+
+https://old.reddit.com/r/LivestreamFail/comments/1s62req/twitch_streamer_musa_usa_who_runs_a_hot_dog_stand/ocywlg4/
+
+PROMOTING_IGNORANCE_WORKS_PLAYING_DUMB_MOCKING
+
+https://old.reddit.com/r/LivestreamFail/comments/1s62req/twitch_streamer_musa_usa_who_runs_a_hot_dog_stand/ocywd65/
+
+LOADED_QUESTION if you understand the MASS_MIND MASS_MAN of media (society mob mentality). The weight of the camera. The weight of the police recording. The media is the massage. Alas NOT_GOOD_ENOUGH Marshall McLuhan to understand the media situation. TREND_CHASING_MEDIA_TRENDING
+
+Racism is a real crisis, the Donald Trump hate-watcher fandom that promotes hate constantly in the name of entertainment. This has put racism at the center of every day media, sexism, mass dehumanization via Trump popularity. TOXIC_POPULARITY
