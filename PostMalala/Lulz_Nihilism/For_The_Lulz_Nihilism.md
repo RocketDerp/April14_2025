@@ -19,7 +19,6 @@ Donald Trump hate-popularity, the media content popularity of hate, is Levant re
 
 3. Nobody really wants to raise difficult children. Nobody really wants to take care of difficult elderly. If they are cool and popular like Donald Trump, they are taken care of just for entertainment sake. But if life is a struggle, nobody wants struggle in children or elderly. Practical Nihilism
 
-
 We The People of social media, the Reddit, Bluesky, Twitter, Facebook, etc people - have crossed a point in time where people can no longer say "Trump is a Mistake"
 
 Even "No Kings" doesn't convey the badness of Trump. The worst king is a product of USA society. This isn't about voting and elections, this is about Twitter-thinking Truth Social - USA inventions. TCP/IP mania.
@@ -34,3 +33,10 @@ We the People would have to admit and come to terms with "For the LOL LULZ" mist
 
 2. Dr. Bandy X Lee represents intelligent education and understanding. And We The People ignored her since year 2017.
 
+3. #MalalaYousafzai book authoring, book tours, speeches are exactly what a good intelligent 15 year old child of a school teacher should have said for all of us! From January 2009 to December 2017 - Malala said all the things that needed to be said. Then she moved on.
+
+Malala year 2013 was what Carl Sagan, John Lennon and MLK Jr were saying. #AssertMalala #Peacemakers 
+
+Please apply the year 1982 lyrics to Malala year 2012 
+
+https://www.youtube.com/watch?v=gncyDkWWY_w
