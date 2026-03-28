@@ -830,3 +830,7 @@ Bill Nye's comments are about how normal has shifted. Surkov won. SUPER_HYPER_NO
 https://old.reddit.com/r/Fauxmoi/comments/1s65vig/bill_nye_the_science_guy_being_interviewed_at_the/od05bdu/
 
 yep. Sagan's books failed, Neil Postman's books failed, Andrew Postman failed. Nothing can defeat the Surkov techniques. Meme addicts will not turn to intelligent leaders Jen Senko and Dr. Bandy X Lee. Surkov won. Joe Rogan, Reddit joke-cracking joke-washing won. ADULT_EDUCATION_CRISIS_USA_ADULT_LEARNING_EMERGENCY
+
+https://old.reddit.com/r/DeepMarketScan/comments/1s6cbit/trump_we_call_it_a_military_operation_not_a_war/od0vv1c/
+
+year 2014: NEW_SYSTEM_POLITICAL_CONTROL
