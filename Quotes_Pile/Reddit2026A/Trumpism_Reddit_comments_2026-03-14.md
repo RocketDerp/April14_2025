@@ -794,3 +794,7 @@ https://old.reddit.com/r/Fauxmoi/comments/1s5mbi7/president_trump_perfectly_desc
 https://old.reddit.com/r/Fauxmoi/comments/1s5mbi7/president_trump_perfectly_describes_his/ocvmdct/
 
 10 month Reddit account. as programmed by billionaires: HATE_HARDER messages. 2nd most popular upvoted comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+
+https://old.reddit.com/r/Fauxmoi/comments/1s5mbi7/president_trump_perfectly_describes_his/ocvmjty/
+
+Reddit audience: "LOL". BANAL_WASH_LAUGH_TRACK
