@@ -822,3 +822,8 @@ Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mi564pzznk
 https://old.reddit.com/r/PoliticalHumor/comments/1s5xhlm/a_fitting_allegory/ocy45lm/
 
 Reddit commenting is always cheering on more and more dumb. IGNORANCE_CELEBRATIONS
+
+https://old.reddit.com/r/Fauxmoi/comments/1s65vig/bill_nye_the_science_guy_being_interviewed_at_the/oczjcmk/
+
+Bill Nye's comments are about how normal has shifted. Surkov won. SUPER_HYPER_NORMAL
+
