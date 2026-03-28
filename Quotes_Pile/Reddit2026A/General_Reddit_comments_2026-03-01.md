@@ -488,3 +488,17 @@ https://old.reddit.com/r/stopdrinking/comments/1s4lhd4/woke_up_to_a_corpse/ocom4
 
 https://old.reddit.com/r/mildyinteresting/comments/1s5hksc/kelly_osbourne_is_becoming_emaciated/ocvr23p/
 
+https://old.reddit.com/r/AskReddit/comments/1s5cffe/what_is_a_socially_mandatory_thing_that_we_all_do/ocv3lyn/
+
+https://old.reddit.com/r/AskReddit/comments/1s5cffe/what_is_a_socially_mandatory_thing_that_we_all_do/octqpnm/
+
+IGNORANCE_CELEBRATIONS
+
+https://old.reddit.com/r/AskReddit/comments/1s5cffe/what_is_a_socially_mandatory_thing_that_we_all_do/ocu66kn/
+
+Pretty much age 15 to age 45. Before I knew of autism at age 38. Sensory overload, quiet mornings. Good for dial-up BBS systems not being busy / when available. Before-school work. During the Arab Spring, friends and wife were on Paris time zone in Africa.
+
+https://old.reddit.com/r/AskReddit/comments/1s5cffe/what_is_a_socially_mandatory_thing_that_we_all_do/octu2pj/
+
+Anti-compassion anti-education society. It is in the interest of every person on earth to open-source medical education and knowledge. Incentive is built-in friends and family having better treatment. CALL_TO_INTELLECTUAL_ACTION_PLAN
+
