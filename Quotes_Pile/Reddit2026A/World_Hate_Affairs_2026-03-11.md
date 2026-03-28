@@ -507,3 +507,15 @@ https://old.reddit.com/r/Fauxmoi/comments/1s5imjv/trump_cubas_next_by_the_way_bu
 
 Comedy and jokes always fix problems and are the most important thing, according to ignorant USA population. AMUSEMENT_COMEDY_WASHING_TRUMP_AS_FUNNY_MEDIA_SANEWASHING 
 
+https://old.reddit.com/r/worldnews/comments/1s5ix0v/canada_will_cancel_thousands_of_refugee_claims/ocv57wb/
+
+https://old.reddit.com/r/worldnews/comments/1s5ix0v/canada_will_cancel_thousands_of_refugee_claims/ocv3q1l/
+
+Mocking.
+
+https://old.reddit.com/r/worldnews/comments/1s5ix0v/canada_will_cancel_thousands_of_refugee_claims/ocwqwro/
+
+https://old.reddit.com/r/worldnews/comments/1s5ix0v/canada_will_cancel_thousands_of_refugee_claims/ocw3u53/
+
+https://old.reddit.com/r/worldnews/comments/1s5ix0v/canada_will_cancel_thousands_of_refugee_claims/ocwg95l/
+
