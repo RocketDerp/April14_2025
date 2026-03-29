@@ -541,3 +541,9 @@ OPERA_A The Tubes. https://www.youtube.com/watch?v=mQ_k_VG6Syc
 https://old.reddit.com/r/worldnews/comments/1s6e3fp/humpback_whale_stranded_again_off_german_coast/od23vaw/
 
 Fiction Television addicts, like "The Apprentice" addicts, all over USA who want to promote famous actors constantly. Any topic, in with their Jesus Bible quotes or other fictions stories they are addicted to. MEDIA_CULTS_ADDICTIVE_FICTION
+
+https://old.reddit.com/r/todayilearned/comments/1s6udta/til_aristotle_wrote_that_women_are_deformed_males/od4lrht/
+
+COMPREHENDING_UNDERSTANDING ASSERT_MALALA 
+
+Social post { https://autistics.life/@RoundSparrow/116313181709481239 https://bsky.app/profile/roundsparrow.bsky.social/post/3mi7hsjlses2h }    
