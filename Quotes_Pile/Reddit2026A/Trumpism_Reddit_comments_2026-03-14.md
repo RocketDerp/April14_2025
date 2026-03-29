@@ -844,3 +844,7 @@ https://old.reddit.com/r/politics/comments/1s68iyh/king_trump_79_suffers_another
 Next year, 2027. ROUTINE_NO_NEED_TO_RESIST_OR_ORGANIZE_INTELLECTUAL_UPRISING
 
 https://old.reddit.com/r/politics/comments/1s6gwf4/jd_vance_says_maga_has_fewer_dorks_than_far_left/od1unyu/
+
+https://old.reddit.com/r/politics/comments/1s62f1n/trump_says_you_can_ask_me_anything_you_want_you/ocyqzvn/
+
+1 month Reddit account. Top most upvoted popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
