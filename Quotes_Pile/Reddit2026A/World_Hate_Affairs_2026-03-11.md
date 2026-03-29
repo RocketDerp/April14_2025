@@ -553,3 +553,9 @@ https://old.reddit.com/r/europe/comments/1s6s4yi/moscow_represents_corruption_an
 GULLIBILITY_CRISIS MAXIMUM_PUTINIZATION CONSERVING_WHAT 
 
 Social post { https://autistics.life/@RoundSparrow/116312966616922920 https://bsky.app/profile/roundsparrow.bsky.social/post/3mi7epxqdls2g }    
+
+https://old.reddit.com/r/news/comments/1s6z10f/israeli_police_prevent_catholic_leaders_from/od5uh76/
+
+World Hate Affairs. Palm Sunday. LEVANT_MONOMYTH_CRISIS
+
+Social post { https://autistics.life/@RoundSparrow/116313697574472762 https://bsky.app/profile/roundsparrow.bsky.social/post/3mi7p4igd322y }    
