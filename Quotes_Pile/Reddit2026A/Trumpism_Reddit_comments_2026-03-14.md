@@ -842,3 +842,5 @@ ENTERTAINED_JUST_PASSIVELY_WATCHING_UNTIL_DEATH_NO_SOCIAL_MEDIA_UPRISING_WHILE_A
 https://old.reddit.com/r/politics/comments/1s68iyh/king_trump_79_suffers_another_worldwide/od027hf/
 
 Next year, 2027. ROUTINE_NO_NEED_TO_RESIST_OR_ORGANIZE_INTELLECTUAL_UPRISING
+
+https://old.reddit.com/r/politics/comments/1s6gwf4/jd_vance_says_maga_has_fewer_dorks_than_far_left/od1unyu/
