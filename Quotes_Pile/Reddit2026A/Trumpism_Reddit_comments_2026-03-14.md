@@ -856,3 +856,7 @@ Media reality people. MEDIA_CULTS_FICTION_FANDOM_MEDIA_POWER TV star, "The Appre
 https://old.reddit.com/r/Fauxmoi/comments/1s6jkg6/john_waters_at_the_no_kings_protest_in/od2l7gi/
 
 Yes. It is horrible that the Internet commenting creation community on Bluesky, Reddit, Mastodon, Lemmy, etc - is not doing blackouts. Taking on Fox News in repeating repeat name-drops of Jen Senko. In 2015, Jen Senko wasn't that old, now she is age 71 https://en.wikipedia.org/wiki/Jen_Senko SOCIAL_MEDIA_DID_NOT_HAVE_UPRISING_SUSTAINED_FOCUSED - and Dr. Bandy X Lee instead of all the anti-intellectual casual claims of Trump as "dementia" causing harm to people.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1s6s0t0/we_hate_trump_because_hes_a_pedophile/od41jtc/
+
+This made it to the front page of Reddit because of hate motivation. Hate-based leadership ideals. FAITH_IN_HATE
