@@ -898,3 +898,11 @@ https://old.reddit.com/r/politics/comments/1s71nyk/there_are_now_over_50000_amer
 SOCIAL_MEDIA_DID_NOT_HAVE_UPRISING_SUSTAINED_FOCUSED - no Reddit blackout, no halting of entertainment and amusements. No tone of serious, always a tone of LOL mocking MAGA. Drunk on memes attitude, not a "sober up" turn to Dr. Bandy X Lee.
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mia5swmedc2x https://autistics.life/@RoundSparrow/116314733846824499 }   
+
+https://old.reddit.com/r/politics/comments/1s71nyk/there_are_now_over_50000_american_troops_in_the/od6mh0n/
+
+<img width="977" height="569" alt="image" src="https://github.com/user-attachments/assets/a6ae1faa-4d7d-420a-8a7c-8cfe518edb16" />
+
+HATE_MOTIVATED_ECONOMY_HATE_AS_A_VIRTUE_SIGNALING
+
+Social post { https://autistics.life/@RoundSparrow/116314775173067932 https://bsky.app/profile/roundsparrow.bsky.social/post/3mia6gnbbfc2x }    
