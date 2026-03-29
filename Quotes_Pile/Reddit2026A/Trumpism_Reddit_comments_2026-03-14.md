@@ -871,3 +871,6 @@ https://old.reddit.com/r/SipsTea/comments/1s6x992/ericas_own_daughter_agrees_dru
 
 The top-most upvoted popular comment. FAITH_IN_MOCKERY REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING MAGA_FANDOM This is Reddit Kirk and MAGA fandom that loves the entertainment and does not want to promote Dr. Bandy X Lee smart intelligent leadership to put in an end to the source of constant amusement (MAGA being the source). REPUBLICANS_LEAD_WITH_IGNORANCE_IDEAS_AND_FOLLOWERS_REPLY_WITH_IGNORANCE KIRK_FANDOM Reddit is a media cult venue for MAGA and Kirk content. SOCIAL_CULT_HATE_WATCHING_FANDOM
 
+https://old.reddit.com/r/videos/comments/1s6vi52/us_president_donald_trump_said_he_will_refer_to/od4qx7p/
+
+TRUMP_TRUSTS_PUTIN PLEASE_HELP_RESCUE Trump, Rescue Trump, from Putin. DECEMBER_5_2014_NATO_JOKE_ARTICLE_5_JOKE
