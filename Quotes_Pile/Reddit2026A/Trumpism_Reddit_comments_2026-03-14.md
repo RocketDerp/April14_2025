@@ -913,3 +913,8 @@ https://old.reddit.com/r/politics/comments/1s71nyk/there_are_now_over_50000_amer
 https://old.reddit.com/r/Economics/comments/1s704ey/trump_declared_inflation_defeated_now_the_us_is/od5res3/
 
 10 day Reddit account. Top most upvoted popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT SELF_HARM_USA 
+
+https://old.reddit.com/r/politics/comments/1s757k3/pentagon_petes_jesus_war_talk_freaks_out_troops/od6vksx/
+
+TALIBAN_VALUES
+
