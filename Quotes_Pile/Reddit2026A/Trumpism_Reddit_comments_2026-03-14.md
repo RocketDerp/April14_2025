@@ -874,3 +874,9 @@ The top-most upvoted popular comment. FAITH_IN_MOCKERY REDDIT_TOP_COMMENT_SERIOU
 https://old.reddit.com/r/videos/comments/1s6vi52/us_president_donald_trump_said_he_will_refer_to/od4qx7p/
 
 TRUMP_TRUSTS_PUTIN PLEASE_HELP_RESCUE Trump, Rescue Trump, from Putin. DECEMBER_5_2014_NATO_JOKE_ARTICLE_5_JOKE
+
+https://old.reddit.com/r/Dallas/comments/1s6wpnk/outside_of_first_baptist_church_this_morning/od50vxs/
+
+LEVANT_MYTH_INVERTED BIBLE_LITERACY 
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mia2aji3e223 https://autistics.life/@RoundSparrow/116314481106278986 }   
