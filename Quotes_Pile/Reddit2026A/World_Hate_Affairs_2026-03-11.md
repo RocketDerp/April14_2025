@@ -543,3 +543,8 @@ ARAB_SPRING_2010 - but then 2013 the Internet Research Agency and Cambridge Anal
 https://old.reddit.com/r/news/comments/1s6h6dp/pentagon_preparing_for_weeks_of_ground_operations/od1x1tq/
 
 BRAIN_ROT_SOCIETY_47 
+
+https://old.reddit.com/r/justincaseyoumissedit/comments/1s6nmo6/israel_is_witnessing_largest_antiwar_protests_in/od3axtv/
+
+Deuteronomy 20:16 "However, in the cities of the nations the LORD your God is giving you as an inheritance, do not leave alive anything that breathes. Completely destroy them!" - Torah LEVANT_MONOMYTH_CRISIS LEVANT_MYTH_INVERTED
+
