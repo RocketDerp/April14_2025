@@ -848,3 +848,7 @@ https://old.reddit.com/r/politics/comments/1s6gwf4/jd_vance_says_maga_has_fewer_
 https://old.reddit.com/r/politics/comments/1s62f1n/trump_says_you_can_ask_me_anything_you_want_you/ocyqzvn/
 
 1 month Reddit account. Top most upvoted popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+
+https://old.reddit.com/r/politics/comments/1s62f1n/trump_says_you_can_ask_me_anything_you_want_you/ocyr3re/
+
+Media reality people. MEDIA_CULTS_FICTION_FANDOM_MEDIA_POWER TV star, "The Apprentice"
