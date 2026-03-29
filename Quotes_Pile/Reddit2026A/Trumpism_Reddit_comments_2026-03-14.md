@@ -884,3 +884,6 @@ Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mia2aji3e2
 https://old.reddit.com/r/LosAngeles/comments/1s71dfy/ironic_and_iconic/od69d97/
 
 Social post { https://autistics.life/@RoundSparrow/116314520345770241 https://bsky.app/profile/roundsparrow.bsky.social/post/3mia2sbqavs23 }    
+
+https://old.reddit.com/r/LosAngeles/comments/1s71dfy/ironic_and_iconic/od6lbbg/
+
