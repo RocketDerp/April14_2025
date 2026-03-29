@@ -548,3 +548,8 @@ https://old.reddit.com/r/justincaseyoumissedit/comments/1s6nmo6/israel_is_witnes
 
 Deuteronomy 20:16 "However, in the cities of the nations the LORD your God is giving you as an inheritance, do not leave alive anything that breathes. Completely destroy them!" - Torah LEVANT_MONOMYTH_CRISIS LEVANT_MYTH_INVERTED
 
+https://old.reddit.com/r/europe/comments/1s6s4yi/moscow_represents_corruption_and_violence_not/od422cn/
+
+GULLIBILITY_CRISIS MAXIMUM_PUTINIZATION CONSERVING_WHAT 
+
+Social post { https://autistics.life/@RoundSparrow/116312966616922920 https://bsky.app/profile/roundsparrow.bsky.social/post/3mi7epxqdls2g }    
