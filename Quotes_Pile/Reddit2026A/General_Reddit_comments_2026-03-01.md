@@ -538,3 +538,6 @@ MEDIA_ECOLOGY_OBSERVATION
 
 OPERA_A The Tubes. https://www.youtube.com/watch?v=mQ_k_VG6Syc
 
+https://old.reddit.com/r/worldnews/comments/1s6e3fp/humpback_whale_stranded_again_off_german_coast/od23vaw/
+
+Fiction Television addicts, like "The Apprentice" addicts, all over USA who want to promote famous actors constantly. Any topic, in with their Jesus Bible quotes or other fictions stories they are addicted to. MEDIA_CULTS_ADDICTIVE_FICTION
