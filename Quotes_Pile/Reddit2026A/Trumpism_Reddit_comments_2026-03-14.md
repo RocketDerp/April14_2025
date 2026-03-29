@@ -834,3 +834,11 @@ yep. Sagan's books failed, Neil Postman's books failed, Andrew Postman failed. N
 https://old.reddit.com/r/DeepMarketScan/comments/1s6cbit/trump_we_call_it_a_military_operation_not_a_war/od0vv1c/
 
 year 2014: NEW_SYSTEM_POLITICAL_CONTROL
+
+https://old.reddit.com/r/politics/comments/1s68iyh/king_trump_79_suffers_another_worldwide/od03q2t/
+
+ENTERTAINED_JUST_PASSIVELY_WATCHING_UNTIL_DEATH_NO_SOCIAL_MEDIA_UPRISING_WHILE_ALIVE
+
+https://old.reddit.com/r/politics/comments/1s68iyh/king_trump_79_suffers_another_worldwide/od027hf/
+
+Next year, 2027. ROUTINE_NO_NEED_TO_RESIST_OR_ORGANIZE_INTELLECTUAL_UPRISING
