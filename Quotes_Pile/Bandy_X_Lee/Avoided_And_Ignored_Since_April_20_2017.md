@@ -89,3 +89,7 @@ https://bsky.app/profile/roundsparrow.bsky.social/post/3mhgkvyzsg22x
 
 https://bsky.app/profile/roundsparrow.bsky.social/post/3mi7fnictnc2g    
 https://autistics.life/@RoundSparrow/116313026454381529   
+
+NEW_OPERA_NAME #AmericasDemise    
+https://autistics.life/@RoundSparrow/116313111999740923    
+https://bsky.app/profile/roundsparrow.bsky.social/post/3mi7gqwbfks2h   
