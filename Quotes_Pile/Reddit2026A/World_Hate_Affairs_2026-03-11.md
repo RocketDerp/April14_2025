@@ -535,3 +535,11 @@ Social post { https://autistics.life/@RoundSparrow/116307906397555424 https://bs
 https://old.reddit.com/r/videos/comments/1s68g3a/rachel_corrie_talking_about_humanity_she_was/od06w5p/
 
 LEVANT_MYTH_INVERTED
+
+https://old.reddit.com/r/news/comments/1s6h6dp/pentagon_preparing_for_weeks_of_ground_operations/od1xcvo/
+
+ARAB_SPRING_2010 - but then 2013 the Internet Research Agency and Cambridge Analytica.
+
+https://old.reddit.com/r/news/comments/1s6h6dp/pentagon_preparing_for_weeks_of_ground_operations/od1x1tq/
+
+BRAIN_ROT_SOCIETY_47 
