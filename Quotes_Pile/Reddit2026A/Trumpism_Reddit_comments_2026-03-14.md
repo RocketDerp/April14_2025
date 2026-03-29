@@ -880,3 +880,7 @@ https://old.reddit.com/r/Dallas/comments/1s6wpnk/outside_of_first_baptist_church
 LEVANT_MYTH_INVERTED BIBLE_LITERACY 
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mia2aji3e223 https://autistics.life/@RoundSparrow/116314481106278986 }   
+
+https://old.reddit.com/r/LosAngeles/comments/1s71dfy/ironic_and_iconic/od69d97/
+
+Social post { https://autistics.life/@RoundSparrow/116314520345770241 https://bsky.app/profile/roundsparrow.bsky.social/post/3mia2sbqavs23 }    
