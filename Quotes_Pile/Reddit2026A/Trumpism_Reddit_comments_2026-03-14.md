@@ -887,3 +887,14 @@ Social post { https://autistics.life/@RoundSparrow/116314520345770241 https://bs
 
 https://old.reddit.com/r/LosAngeles/comments/1s71dfy/ironic_and_iconic/od6lbbg/
 
+https://old.reddit.com/r/politics/comments/1s71nyk/there_are_now_over_50000_american_troops_in_the/od682ts/
+
+https://old.reddit.com/r/politics/comments/1s71nyk/there_are_now_over_50000_american_troops_in_the/od72ua2/
+
+https://old.reddit.com/r/politics/comments/1s71nyk/there_are_now_over_50000_american_troops_in_the/od662jo/
+
+https://old.reddit.com/r/politics/comments/1s71nyk/there_are_now_over_50000_american_troops_in_the/od65i4c/
+
+SOCIAL_MEDIA_DID_NOT_HAVE_UPRISING_SUSTAINED_FOCUSED - no Reddit blackout, no halting of entertainment and amusements. No tone of serious, always a tone of LOL mocking MAGA. Drunk on memes attitude, not a "sober up" turn to Dr. Bandy X Lee.
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mia5swmedc2x https://autistics.life/@RoundSparrow/116314733846824499 }   
