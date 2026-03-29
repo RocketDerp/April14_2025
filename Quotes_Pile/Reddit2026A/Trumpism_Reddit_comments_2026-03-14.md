@@ -860,3 +860,10 @@ Yes. It is horrible that the Internet commenting creation community on Bluesky, 
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1s6s0t0/we_hate_trump_because_hes_a_pedophile/od41jtc/
 
 This made it to the front page of Reddit because of hate motivation. Hate-based leadership ideals. FAITH_IN_HATE
+
+https://old.reddit.com/r/pics/comments/1s6s39d/no_kings_rally/od432op/
+
+I sure hope people come to understand machine dehumanization and hate, created by social machines, that the Saint Petersburg Internet Research Agency seeded and cultivated since year 2013. PRIZING_HATE_FURTHERING_HATE UNDERSTANDING_TRUMPISM - Sunday morning comments. All avoiding THE_1954_EQUATION - blowing minds out on hate signs, hate messages, hate symbolism. All avoiding Dr. Bandy X Lee educated-based understanding-based leadership.
+
+Social post { https://autistics.life/@RoundSparrow/116312830456681029 https://bsky.app/profile/roundsparrow.bsky.social/post/3mi7csh7usk2l }    
+
