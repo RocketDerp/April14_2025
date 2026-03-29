@@ -42,3 +42,13 @@ https://bsky.app/profile/roundsparrow.bsky.social/post/3mi6wb7rf722j
 4. How come all the church clergy can not find "1 John 3:17" in the Bible and post it on social media and signs outside their church buildings? Has every religion leader forgotten to look in the Bible and find a Bible verse about greed and wealth? All Trump Blind, everyone!
 
 5. How many Sunday days, how many months, years, has Trump been center of attention since June 16, 2015 and Bible verse "1 John 3:17" not promoted by professional Bible readers, clergy?
+
+&nbsp;
+
+Trump Blind, Trump Blind
+
+The spiritual leaders of the USA, the professional clergy, can not read The Bible and find "1 John 3:17".
+
+Mirror, mirror on the wall. Elon Musk, Donald Trump - our national religion leaders can not find "1 John 3:17" verse in that Bible book!!!
+
+https://www.youtube.com/watch?v=CSXTu-WllZ8
