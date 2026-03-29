@@ -910,3 +910,6 @@ Social post { https://autistics.life/@RoundSparrow/116314775173067932 https://bs
 
 https://old.reddit.com/r/politics/comments/1s71nyk/there_are_now_over_50000_american_troops_in_the/od6l32y/
 
+https://old.reddit.com/r/Economics/comments/1s704ey/trump_declared_inflation_defeated_now_the_us_is/od5res3/
+
+10 day Reddit account. Top most upvoted popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT SELF_HARM_USA 
