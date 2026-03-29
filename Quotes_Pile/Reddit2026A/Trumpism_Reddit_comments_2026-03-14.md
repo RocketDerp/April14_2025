@@ -905,5 +905,5 @@ https://old.reddit.com/r/politics/comments/1s71nyk/there_are_now_over_50000_amer
 
 HATE_MOTIVATED_ECONOMY_HATE_AS_A_VIRTUE_SIGNALING
 
-NEW_OPERA_NAME #HistoryBooksWill    
+NEW_OPERA_NAME #HistoryBooksWill #BecauseOfHate    
 Social post { https://autistics.life/@RoundSparrow/116314775173067932 https://bsky.app/profile/roundsparrow.bsky.social/post/3mia6gnbbfc2x }    
