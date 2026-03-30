@@ -932,3 +932,8 @@ https://old.reddit.com/r/todayilearned/comments/1s7pjdh/til_about_the_majority_i
 
 Since people do not take seriously media ecology of Neil Postman and Marshall McLuhan (both dead now, but books are still around)... people think this is only Reddit! EVERYTHING_IS_MEDIA_ECOLOGY and note this is the most popular upvoted comment. Declaring it a source of comedy, amusement, that people are not self-aware of the conflicts caused by common sources of external media. UNDERSTANDING_SURKOV_PUTINISM_TRUMPISM_HATE_HILARIOUS people on Reddit do not show any concern if this observation can be weaponized and is the bases of modern information warfare.
 
+https://old.reddit.com/r/nottheonion/comments/1s7u22o/mtg_turns_on_fox_news_ex_rep_says_channel_is/odbyd59/
+
+POST_TRUMP needs to turn into POST_SURKOV SEE_ALSO https://github.com/RocketDerp/April14_2025/tree/main/Art/ScreenPlay/Post_Surkov MEDIA_WOKE 
+
+Social post { https://autistics.life/@RoundSparrow/116319145577922976 https://bsky.app/profile/roundsparrow.bsky.social/post/3mic4ivm7gk2g }    
