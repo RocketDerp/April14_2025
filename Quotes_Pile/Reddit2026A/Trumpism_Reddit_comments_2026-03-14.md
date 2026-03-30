@@ -927,3 +927,8 @@ Social post { https://autistics.life/@RoundSparrow/116315638044467883 https://bs
 https://old.reddit.com/r/JournalismNews/comments/1s78u12/us_marines_are_being_sent_on_a_suicide_mission/od7ukxk/
 
 It is the avoidance of goodness by EVERYONE, the entire population that's notable. NOT_GOOD_ENOUGH Dr. Bandy X Lee avoidance, Jen Senko avoidance.
+
+https://old.reddit.com/r/todayilearned/comments/1s7pjdh/til_about_the_majority_illusion_a_condition_where/odaxjfw/
+
+Since people do not take seriously media ecology of Neil Postman and Marshall McLuhan (both dead now, but books are still around)... people think this is only Reddit! EVERYTHING_IS_MEDIA_ECOLOGY and note this is the most popular upvoted comment. Declaring it a source of comedy, amusement, that people are not self-aware of the conflicts caused by common sources of external media. UNDERSTANDING_SURKOV_PUTINISM_TRUMPISM_HATE_HILARIOUS people on Reddit do not show any concern if this observation can be weaponized and is the bases of modern information warfare.
+
