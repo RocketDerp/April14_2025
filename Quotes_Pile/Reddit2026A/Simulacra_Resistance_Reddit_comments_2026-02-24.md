@@ -484,3 +484,11 @@ https://old.reddit.com/r/IThinkYouShouldLeave/comments/1s66r2w/her_husband_just_
 The image of the Reddit posting. KIRK_FANDOM right before Easter, at the start of Spring, the Reddit fandom is playing right into the game. Celebrating the life of Charlie Kirk with fireworks and cheering. Not hate. MAGA_FANDOM 
 
 * "the whole story of the crucifixion, which is a **fundamental image in the Christian tradition**, speaks of the coming of eternity into the field of time and space, where there is dismemberment. But it also speaks of the passage from the field of time and space into the field of eternal life. So we crucify our temporal and earthly bodies, let them be torn, and through that dismemberment enter the spiritual sphere which transcends all the pains of earth. There’s a form of the crucifix known as “Christ Triumphant,” where he is not with head bowed and blood pouring from him, but **with head erect and eyes open, as though having come voluntarily to the crucifixion. St. Augustine has written somewhere that Jesus went to the cross as a bride-groom to his bride.**" - Age 83, Joseph Campbell, Power of Myth
+
+https://old.reddit.com/r/WorkReform/comments/1s7qxiy/how_conservatives_see_the_left/odb8f1f/
+
+Exactly what I read on Reddit about Donald Trump. Weak, sleepy, does nothing but golf. But also being blamed for wrecking health care, strongly poisoning NATO relations, strongly ruining Canada relations, strongly raising inflation with trade deals and meme coins, etc. What I hear is 1-bit logic of left vs. right. BRAIN_ROT_SOCIETY_47 BRAIN_ROT_LEFT_RIGHT_LIB_CON_NAME_AVOIDANCE - this is the top most-upvoted popular comment.  REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
+
+This isn't resisting the ignorance leadership. This is Reddit comment creators following Trump ignorance.
+
+Social post { https://autistics.life/@RoundSparrow/116319191599806947 https://bsky.app/profile/roundsparrow.bsky.social/post/3mic56kavws2t }    
