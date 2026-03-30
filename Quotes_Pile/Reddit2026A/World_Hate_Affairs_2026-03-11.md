@@ -559,3 +559,10 @@ https://old.reddit.com/r/news/comments/1s6z10f/israeli_police_prevent_catholic_l
 World Hate Affairs. Palm Sunday. LEVANT_MONOMYTH_CRISIS
 
 Social post { https://autistics.life/@RoundSparrow/116313697574472762 https://bsky.app/profile/roundsparrow.bsky.social/post/3mi7p4igd322y }    
+
+https://old.reddit.com/r/worldnews/comments/1s7xot7/trump_threatens_to_blow_up_all_water_desalination/odcof4j/
+
+Trump Fandom loves joke-washing Trump antics. Fast on the social media system Reddit with these early comments. SATIRE_SARCASM_WASHING BANAL_WASH_LAUGH_TRACK Trump fandom commenting on Reddit.
+
+NEW_OPERA_NAME #TrumpThreatensTo    
+Social post { https://autistics.life/@RoundSparrow/116319737184023701 https://bsky.app/profile/roundsparrow.bsky.social/post/3micevfozbs2a }    
