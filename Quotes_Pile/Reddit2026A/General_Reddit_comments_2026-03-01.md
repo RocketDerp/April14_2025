@@ -547,3 +547,7 @@ https://old.reddit.com/r/todayilearned/comments/1s6udta/til_aristotle_wrote_that
 COMPREHENDING_UNDERSTANDING ASSERT_MALALA 
 
 Social post { https://autistics.life/@RoundSparrow/116313181709481239 https://bsky.app/profile/roundsparrow.bsky.social/post/3mi7hsjlses2h }    
+
+https://old.reddit.com/r/explainitpeter/comments/1s78gxz/explain_it_peter/od7l6ii/
+
+I was a processional from age 15. Age 40, severe burnout. Having zero children helped. WOKE_TO_WHAT
