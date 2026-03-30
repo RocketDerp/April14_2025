@@ -572,4 +572,9 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1s81y7v/we_didnt_like_what_
 It's the worst MINDSETS on the planet. REMEDIAL_MORALITY LEVANT_MONOMYTH_CRISIS
 
 NEW_OPERA_NAME #SurkovStage19    
-Social post { https://autistics.life/@RoundSparrow/116320517928853807 https://bsky.app/profile/did:plc:rwyn2e7jpkbhgnmruwj5tqoq/post/3micpxdl2kc2z }    
+Social post { https://autistics.life/@RoundSparrow/116320517928853807 https://bsky.app/profile/roundsparrow.bsky.social/post/3micpxdl2kc2z }    
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1s81y7v/we_didnt_like_what_you_had_to_say_so_we_had_you/oddmn68/
+
+DECEMBER_5_2014_NATO_JOKE_ARTICLE_5_JOKE
+
