@@ -563,3 +563,8 @@ Eternal loneliness? Nah. If it's Russia, Afghanistan (war with Pakistan), USA, I
 https://old.reddit.com/r/funny/comments/1s7y8b7/dont_do_that_dont_do_that/oddf9zp/
 
 That's why Trump and Surkov students mock everything. The ultimate friendship bond. out-group mockery, inside connection. OUT_GROUP_HATE
+
+https://old.reddit.com/r/funny/comments/1s7y8b7/dont_do_that_dont_do_that/odd28nu/
+
+MEDIA_ECOLOGY_OBSERVATION
+
