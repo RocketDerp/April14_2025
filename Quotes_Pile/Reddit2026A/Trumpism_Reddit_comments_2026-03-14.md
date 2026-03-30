@@ -937,3 +937,8 @@ https://old.reddit.com/r/nottheonion/comments/1s7u22o/mtg_turns_on_fox_news_ex_r
 POST_TRUMP needs to turn into POST_SURKOV SEE_ALSO https://github.com/RocketDerp/April14_2025/tree/main/Art/ScreenPlay/Post_Surkov MEDIA_WOKE 
 
 Social post { https://autistics.life/@RoundSparrow/116319145577922976 https://bsky.app/profile/roundsparrow.bsky.social/post/3mic4ivm7gk2g }    
+
+https://old.reddit.com/r/antiwork/comments/1s7xrvd/this_was_drawn_134_years_ago_seems_familiar/odcoizz/
+
+NEW_OPERA_NAME #BusinessSuitPrivilege #BusinessSuitArmor #Chicago1894     
+Social post { https://autistics.life/@RoundSparrow/116320052023118286 https://bsky.app/profile/roundsparrow.bsky.social/post/3micjf6h74c2c }    
