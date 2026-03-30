@@ -560,3 +560,6 @@ https://old.reddit.com/r/funny/comments/1s7y8b7/dont_do_that_dont_do_that/oddwzn
 
 Eternal loneliness? Nah. If it's Russia, Afghanistan (war with Pakistan), USA, Iran, Israel, Palestine - you will start warfare and promote hate and flock to liars as leaders... and history. No, plenty of men with children and wives decide killing is fun sport and to avoid any kind of preachy lecturing about peace and goodness.
 
+https://old.reddit.com/r/funny/comments/1s7y8b7/dont_do_that_dont_do_that/oddf9zp/
+
+That's why Trump and Surkov students mock everything. The ultimate friendship bond. out-group mockery, inside connection. OUT_GROUP_HATE
