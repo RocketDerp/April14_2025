@@ -1049,3 +1049,12 @@ https://old.reddit.com/r/underthesilverlake/comments/1cd37s6/explanation_for_the
 https://old.reddit.com/r/underthesilverlake/comments/1cd37s6/explanation_for_the_whole_movie/n04stz3/
 
 https://old.reddit.com/r/underthesilverlake/comments/1cd37s6/explanation_for_the_whole_movie/ny1ixfv/
+
+
+https://old.reddit.com/r/TrueFilm/comments/3cpagg/did_ava_pass_the_turing_test_in_ex_machina/cszfuc1/
+
+My comment
+
+https://old.reddit.com/r/TrueFilm/comments/3cpagg/did_ava_pass_the_turing_test_in_ex_machina/od9hmsj/
+
+Got a new reply today.
