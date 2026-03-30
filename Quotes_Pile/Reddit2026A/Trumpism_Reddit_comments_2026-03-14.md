@@ -923,3 +923,7 @@ https://old.reddit.com/r/politics/comments/1s73r3t/trump_ballroom_trashed_over_i
 Dr. Bandy X Lee ignored and not repeated on social media. SAFE_DANGER_IN_2017_NONFICTION_BOOK_TITLE
 
 Social post { https://autistics.life/@RoundSparrow/116315638044467883 https://bsky.app/profile/roundsparrow.bsky.social/post/3miakppllk22g }    
+
+https://old.reddit.com/r/JournalismNews/comments/1s78u12/us_marines_are_being_sent_on_a_suicide_mission/od7ukxk/
+
+It is the avoidance of goodness by EVERYONE, the entire population that's notable. NOT_GOOD_ENOUGH Dr. Bandy X Lee avoidance, Jen Senko avoidance.
