@@ -550,7 +550,7 @@ Social post { https://autistics.life/@RoundSparrow/116313181709481239 https://bs
 
 https://old.reddit.com/r/explainitpeter/comments/1s78gxz/explain_it_peter/od7l6ii/
 
-I was a processional from age 15. Age 40, severe burnout. Having zero children helped. WOKE_TO_WHAT
+I was an IT professional from age 15. Age 40, severe burnout. Having zero children helped. WOKE_TO_WHAT
 
 https://old.reddit.com/r/PeterExplainsTheJoke/comments/1s7oiyu/petah_what_does_tomii_mean/odavcb6/
 
