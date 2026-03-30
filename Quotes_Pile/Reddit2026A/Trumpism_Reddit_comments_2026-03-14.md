@@ -918,3 +918,8 @@ https://old.reddit.com/r/politics/comments/1s757k3/pentagon_petes_jesus_war_talk
 
 TALIBAN_VALUES
 
+https://old.reddit.com/r/politics/comments/1s73r3t/trump_ballroom_trashed_over_its_humiliating/od6rv9d/
+
+Dr. Bandy X Lee ignored and not repeated on social media. SAFE_DANGER_IN_2017_NONFICTION_BOOK_TITLE
+
+Social post { https://autistics.life/@RoundSparrow/116315638044467883 https://bsky.app/profile/roundsparrow.bsky.social/post/3miakppllk22g }    
