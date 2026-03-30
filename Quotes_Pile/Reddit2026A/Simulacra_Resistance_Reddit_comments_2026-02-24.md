@@ -492,3 +492,9 @@ Exactly what I read on Reddit about Donald Trump. Weak, sleepy, does nothing but
 This isn't resisting the ignorance leadership. This is Reddit comment creators following Trump ignorance.
 
 Social post { https://autistics.life/@RoundSparrow/116319191599806947 https://bsky.app/profile/roundsparrow.bsky.social/post/3mic56kavws2t }    
+
+https://old.reddit.com/r/clevercomebacks/comments/1s7ueom/this_is_the_political_science_we_need_vaccines_to/odcb3md/
+
+Reddit is full of bullshit lovers and fiction storytelling. FEEDBACK_LOOP_MEDIA_CULTS_PLATFORM_TO_PLATFORM_MOCKERY_USA
+
+Social post { https://autistics.life/@RoundSparrow/116319628008351058 https://bsky.app/profile/did:plc:rwyn2e7jpkbhgnmruwj5tqoq/post/3micdf6wm7s2i }    
