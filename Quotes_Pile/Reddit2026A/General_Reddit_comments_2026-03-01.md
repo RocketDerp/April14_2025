@@ -555,3 +555,8 @@ I was an IT professional from age 15. Age 40, severe burnout. Having zero childr
 https://old.reddit.com/r/PeterExplainsTheJoke/comments/1s7oiyu/petah_what_does_tomii_mean/odavcb6/
 
 BABEL_TOWER CONCERNS_OF_FINNEGANS 
+
+https://old.reddit.com/r/funny/comments/1s7y8b7/dont_do_that_dont_do_that/oddwzng/
+
+Eternal loneliness? Nah. If it's Russia, Afghanistan (war with Pakistan), USA, Iran, Israel, Palestine - you will start warfare and promote hate and flock to liars as leaders... and history. No, plenty of men with children and wives decide killing is fun sport and to avoid any kind of preachy lecturing about peace and goodness.
+
