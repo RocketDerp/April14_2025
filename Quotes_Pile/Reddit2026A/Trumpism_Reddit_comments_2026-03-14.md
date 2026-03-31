@@ -962,3 +962,7 @@ https://old.reddit.com/r/politics/comments/1s8eghy/america_is_now_a_rogue_superp
 <img width="1235" height="363" alt="image" src="https://github.com/user-attachments/assets/576ccca0-d77c-4f89-89fc-e2a06b459478" />
 
 Social post { https://autistics.life/@RoundSparrow/116324225681396245 https://bsky.app/profile/roundsparrow.bsky.social/post/3mieepc3pos2p }   
+
+https://old.reddit.com/r/politics/comments/1s8jpav/never_mind_leading_the_free_world_if_donald_trump/odh6ib0/
+
+MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL
