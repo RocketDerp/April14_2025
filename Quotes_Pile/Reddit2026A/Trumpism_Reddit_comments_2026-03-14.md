@@ -942,3 +942,7 @@ https://old.reddit.com/r/antiwork/comments/1s7xrvd/this_was_drawn_134_years_ago_
 
 NEW_OPERA_NAME #BusinessSuitPrivilege #BusinessSuitArmor #Chicago1894     
 Social post { https://autistics.life/@RoundSparrow/116320052023118286 https://bsky.app/profile/roundsparrow.bsky.social/post/3micjf6h74c2c }    
+
+https://old.reddit.com/r/politics/comments/1s7svf3/trump_military_building_a_massive_complex_under/odbvpe2/
+
+This is my view. These kind of projects take years and years. Like Air Force One takes years and years. The only thing this underground project is about is creating news events. Trump would probably be better to just move himself out of the white house. He already wrecked the rose garden. It would be even more maverick to move supreme leader to some place entirely outside of a city and she he has broken tradition. 
