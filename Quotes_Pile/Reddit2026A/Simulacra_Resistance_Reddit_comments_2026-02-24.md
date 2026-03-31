@@ -497,4 +497,9 @@ https://old.reddit.com/r/clevercomebacks/comments/1s7ueom/this_is_the_political_
 
 Reddit is full of bullshit lovers and fiction storytelling. FEEDBACK_LOOP_MEDIA_CULTS_PLATFORM_TO_PLATFORM_MOCKERY_USA
 
-Social post { https://autistics.life/@RoundSparrow/116319628008351058 https://bsky.app/profile/did:plc:rwyn2e7jpkbhgnmruwj5tqoq/post/3micdf6wm7s2i }    
+REVIVE_OPERA_NAME #MediaEcology320   
+Social post { https://autistics.life/@RoundSparrow/116319628008351058 https://bsky.app/profile/roundsparrow.bsky.social/post/3micdf6wm7s2i }    
+
+https://old.reddit.com/r/goodnews/comments/1s7yx0j/kid_rocks_shameful_military_helicopter_video/odd1k23/
+
+Every wise-cracking social media user is giving attention to Donald Trump, nonstop endless media engagement. Every TV station, every social media platform, every newspaper, every magazine: Trump, Trump Trump. The one thing people will not do is entertainment blackout. REDDIT_BLACKOUT not.
