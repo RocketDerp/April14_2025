@@ -66,4 +66,5 @@ There is a big black spot in Washington D.C. today, it is the same old thing as 
 
 There is a big black hole in the mindsets of the USA.
 
-https://www.youtube.com/watch?v=Qhas9-URo3E
+https://www.youtube.com/watch?v=Qhas9-URo3E    
+3,846 views June 17, 2022   
