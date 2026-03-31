@@ -578,3 +578,8 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1s81y7v/we_didnt_like_what_
 
 DECEMBER_5_2014_NATO_JOKE_ARTICLE_5_JOKE
 
+https://old.reddit.com/r/europe/comments/1s8jfoo/leaked_calls_expose_hungary_and_slovakia_as/odh58a8/
+
+Now look at the Reddit audience. People think Trump is only Trump. When again and again the Putin anti-NATO behaviors show up in multiple nations. Not just USA, not jut GOG. DENIAL_ABOUNDS DECEMBER_5_2014_NATO_JOKE_ARTICLE_5_JOKE This has nothing to do with "Epstein Files" and all the Reddit society attitudes towards Trump. Yet, people won't discuss Surkov media techniques, Russian information airfare other than the most simplistic "bots" words.
+
+
