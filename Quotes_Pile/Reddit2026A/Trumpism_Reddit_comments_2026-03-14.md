@@ -956,3 +956,9 @@ https://old.reddit.com/r/politics/comments/1s8eghy/america_is_now_a_rogue_superp
 DANGER_ALERT_CALL_TO_INTELLECTUAL_ARMS_BOOK_CRAM_SESSIONS
 
 Social post { https://autistics.life/@RoundSparrow/116324201679856691 https://bsky.app/profile/roundsparrow.bsky.social/post/3mieeea2scc27 }    
+
+https://old.reddit.com/r/politics/comments/1s8eghy/america_is_now_a_rogue_superpower/odglwc8/
+
+<img width="1235" height="363" alt="image" src="https://github.com/user-attachments/assets/576ccca0-d77c-4f89-89fc-e2a06b459478" />
+
+Social post { https://autistics.life/@RoundSparrow/116324225681396245 https://bsky.app/profile/roundsparrow.bsky.social/post/3mieepc3pos2p }   
