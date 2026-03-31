@@ -568,3 +568,6 @@ https://old.reddit.com/r/funny/comments/1s7y8b7/dont_do_that_dont_do_that/odd28n
 
 MEDIA_ECOLOGY_OBSERVATION
 
+https://old.reddit.com/r/nottheonion/comments/1s8ninh/paul_mccartney_banned_from_reddit_after_posting/odi0040/
+
+BLOCK_HAPPY_DEPORT_HAPPY_SILENCE_POOR_PEOPLE_SILENCE_UPPITY John Lennon Bagism. https://en.wikipedia.org/wiki/Bagism
