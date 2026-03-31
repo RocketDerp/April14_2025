@@ -503,3 +503,8 @@ Social post { https://autistics.life/@RoundSparrow/116319628008351058 https://bs
 https://old.reddit.com/r/goodnews/comments/1s7yx0j/kid_rocks_shameful_military_helicopter_video/odd1k23/
 
 Every wise-cracking social media user is giving attention to Donald Trump, nonstop endless media engagement. Every TV station, every social media platform, every newspaper, every magazine: Trump, Trump Trump. The one thing people will not do is entertainment blackout. REDDIT_BLACKOUT not.
+
+https://old.reddit.com/r/MurderedByWords/comments/1s8kyt1/im_no_millionaires_son/odhhjdm/
+
+Reddit popular clickbait title upvoted to front page. Showing images of famous GOP bad guy characters. Eating right out of the hands of the anti-reality warfare and not describing Surkov. Simulation.
+
