@@ -571,3 +571,10 @@ MEDIA_ECOLOGY_OBSERVATION
 https://old.reddit.com/r/nottheonion/comments/1s8ninh/paul_mccartney_banned_from_reddit_after_posting/odi0040/
 
 BLOCK_HAPPY_DEPORT_HAPPY_SILENCE_POOR_PEOPLE_SILENCE_UPPITY John Lennon Bagism. https://en.wikipedia.org/wiki/Bagism
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1s8m9y7/peter_whats_up_with_the_tower/odhq9zc/
+
+THIS_GITHUB CORE_CONCERNS BABEL_TOWER CONCERNS_OF_FINNEGANS 
+
+Social post { https://autistics.life/@RoundSparrow/116325009898385019 https://bsky.app/profile/roundsparrow.bsky.social/post/3miepwmbckc2v }    
+
