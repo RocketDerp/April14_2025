@@ -40,3 +40,7 @@ NEGGING_WORKS_LANGUAGE_INSULTING_WORKS_REALITY_PROGRAMMING_LANGUAGE
 CONCERNS_OF_FINNEGANS   
 
 Languages.
+
+https://autistics.life/@RoundSparrow/116331048615323617    
+https://bsky.app/profile/roundsparrow.bsky.social/post/3mihfpezsis2l   
+
