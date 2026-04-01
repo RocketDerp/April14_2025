@@ -908,3 +908,8 @@ Death Celebrations. Funeral rituals.
 
 Night hours Brainwashing metaphores    
 https://old.reddit.com/r/todayilearned/comments/1s3fyh1/til_that_when_humans_sleep_certain_proteins_in/
+
+&nbsp;
+
+https://old.reddit.com/r/CuratedTumblr/comments/1s9nzyh/american_schools_arent_teaching_phonics_anymore/
+
