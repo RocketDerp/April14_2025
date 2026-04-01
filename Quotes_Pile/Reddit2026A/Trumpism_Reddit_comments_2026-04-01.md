@@ -97,3 +97,7 @@ https://old.reddit.com/r/antiwork/comments/1s9nou5/how_is_everyone_just_working_
 https://old.reddit.com/r/antiwork/comments/1s9nou5/how_is_everyone_just_working_normally_today_the/odpnfe8/
 
 BURNOUT_ABOUNDS ANTICS_POLITICS constant audience engagement, choose your own Trump topic.
+
+https://old.reddit.com/r/antiwork/comments/1s9nou5/how_is_everyone_just_working_normally_today_the/odpvbfx/
+
+Exactly. ENTERTAINED_JUST_PASSIVELY_WATCHING_UNTIL_DEATH_NO_SOCIAL_MEDIA_UPRISING_WHILE_ALIVE people are wishing for one single man to die and don't want to face the Fox News HDTV media crisis. We the people do not assert goodness, death isn't goodness.
