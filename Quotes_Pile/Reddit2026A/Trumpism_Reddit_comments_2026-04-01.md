@@ -38,3 +38,9 @@ https://old.reddit.com/r/worldnews/comments/1s9jktu/trump_says_hes_considering_n
 
 https://old.reddit.com/r/worldnews/comments/1s9jktu/trump_says_hes_considering_nato_exit_amid_rift/odous0c/
 
+https://old.reddit.com/r/worldnews/comments/1s9jktu/trump_says_hes_considering_nato_exit_amid_rift/odoq7v6/
+
+https://old.reddit.com/r/worldnews/comments/1s9jktu/trump_says_hes_considering_nato_exit_amid_rift/odp11et/
+
+https://old.reddit.com/r/worldnews/comments/1s9jktu/trump_says_hes_considering_nato_exit_amid_rift/odornoo/
+
