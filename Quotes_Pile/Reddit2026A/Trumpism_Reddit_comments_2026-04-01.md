@@ -29,3 +29,9 @@ She probably takes mental health medication to deal with all the stress of the h
 https://old.reddit.com/r/USNEWS/comments/1s9fa5h/trump_tells_leavitt_youre_doing_a_terrible_job_as/odo4dzj/
 
 That's the White House power. The endless (boundless, inexhaustible) attraction Reddit users have to hate. ATTRACTION_TO_HATE_LEADERS_HATE_FOLLOWERS
+
+https://old.reddit.com/r/worldnews/comments/1s9jktu/trump_says_hes_considering_nato_exit_amid_rift/odos82c/
+
+https://old.reddit.com/r/worldnews/comments/1s9jktu/trump_says_hes_considering_nato_exit_amid_rift/odopihe/
+
+2 month Reddit account. 2nd most upvoted popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT PUTIN_SURKOV_TRUMP_LONG_TERM_YEARS_PLAN DECEMBER_5_2014_NATO_JOKE_ARTICLE_5_JOKE
