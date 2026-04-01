@@ -971,3 +971,6 @@ https://old.reddit.com/r/therewasanattempt/comments/1s8yzum/to_act_like_a_normal
 
 FANATICS_FANS_OF_CLOWNS_FANS_OF_MAGA_CLOWNING
 
+https://old.reddit.com/r/therewasanattempt/comments/1s8yzum/to_act_like_a_normal_president_or_even_a_normal/odkjai3/
+
+Yes. It is the outcome of brain rot Reddit, Twitter, Bluesky, etc. ENJOYMENT_OF_TRUMP_AND_MAGA_VALUES The avoidance of Dr. Bandy X Lee and Jen Senko by Reddit commenting community should be observed.
