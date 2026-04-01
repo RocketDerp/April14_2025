@@ -94,3 +94,6 @@ IGNORANCE_CELEBRATIONS the whole nation treats this like pro-ignorance sport.
 
 https://old.reddit.com/r/antiwork/comments/1s9nou5/how_is_everyone_just_working_normally_today_the/odpn9f4/
 
+https://old.reddit.com/r/antiwork/comments/1s9nou5/how_is_everyone_just_working_normally_today_the/odpnfe8/
+
+BURNOUT_ABOUNDS ANTICS_POLITICS constant audience engagement, choose your own Trump topic.
