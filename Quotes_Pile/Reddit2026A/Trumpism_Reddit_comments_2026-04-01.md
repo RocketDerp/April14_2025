@@ -6,3 +6,11 @@ https://old.reddit.com/r/politics/comments/1s9f74t/trump_interview_i_am_strongly
 
 SOCIAL_MEDIA_DID_NOT_HAVE_UPRISING_SUSTAINED_FOCUSED
 
+https://old.reddit.com/r/politics/comments/1s9f74t/trump_interview_i_am_strongly_considering_pulling/odnznux/
+
+BRAIN_ROT_SOCIETY_47
+
+https://old.reddit.com/r/politics/comments/1s9f74t/trump_interview_i_am_strongly_considering_pulling/odo6sei/
+
+CORE_CONCERNS of this GitHub
+
