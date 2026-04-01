@@ -41,7 +41,7 @@ CONCERNS_OF_FINNEGANS
 
 Languages.
 
-NEW_OPERA_NAME #LexiconTrump   
+NEW_OPERA_NAME #LexiconTrump #EmbarrassmentExploit   
 https://autistics.life/@RoundSparrow/116331048615323617    
 https://bsky.app/profile/roundsparrow.bsky.social/post/3mihfpezsis2l   
 
