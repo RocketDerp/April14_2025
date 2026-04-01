@@ -12,3 +12,14 @@ Video of Leo B speaking quote https://youtu.be/OZ2fe9rVlgg?t=792
 
 Copyright is brain damage, of YouTube video quotes to remove for a dead man, estate profits    
 https://youtu.be/ZBo-YB6ZkEk?t=794
+
+&nbsp;
+
+&nbsp;
+
+# Everyone Assumes
+
+NEW_OPERA_NAME #EveryoneAssumes    
+
+https://autistics.life/@RoundSparrow/116330911517329490   
+https://bsky.app/profile/roundsparrow.bsky.social/post/3mihdpkwcf22l    
