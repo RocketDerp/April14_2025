@@ -47,3 +47,8 @@ https://old.reddit.com/r/worldnews/comments/1s9jktu/trump_says_hes_considering_n
 https://old.reddit.com/r/SipsTea/comments/1s9k2gq/this_guy_is_trippin/odotnud/
 
 TRUMP_FANDOM on Reddit cheering on the ignorance and video game hyper reality. IGNORANCE_CELEBRATIONS Top most upvoted popular comment. Note the title of the posting made to front page, USA society is tripping out on Donald Trump photographs (this posting) and antics politics.
+
+https://old.reddit.com/r/SipsTea/comments/1s9k2gq/this_guy_is_trippin/odov0fc/
+
+ATTRACTION_TO_HATE_LEADERS_HATE_FOLLOWERS the hate-watching fandom on Reddit is attracted to hate.
+
