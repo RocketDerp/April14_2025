@@ -982,3 +982,8 @@ No, everyone is sharing video clips and watching them, like this very video clip
 https://old.reddit.com/r/therewasanattempt/comments/1s8yzum/to_act_like_a_normal_president_or_even_a_normal/odkn3pk/
 
 It works. Blows minds on Reddit. People all avoid Dr. Bandy X Lee. MIND_BLOWN_BY People won't engage relevant nonfiction learning about Surkov. Without self-awareness of 2011, 2012, 2013 Surkov learning and February 2014 Ukraine hot war... it doesn't make sense to people. OUTSMARTED_TRICKED_MANIPULATED_BAMBOOZLED_BY_TRUMP_MURDOCH_PUTIN
+
+https://old.reddit.com/r/therewasanattempt/comments/1s8yzum/to_act_like_a_normal_president_or_even_a_normal/odknbnu/
+
+People won't stop their sports games, gaming, video games, entertainment addictions and call for people to be serious about important topics. DANGER_ALERT_CALL_TO_INTELLECTUAL_ARMS_BOOK_CRAM_SESSIONS
+
