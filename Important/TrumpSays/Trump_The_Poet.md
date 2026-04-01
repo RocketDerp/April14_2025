@@ -28,3 +28,15 @@ NEW_OPERA_NAME #TrumpTheStoryteller
 https://bsky.app/profile/roundsparrow.bsky.social/post/3mhrswxm6f22o   
 https://autistics.life/@RoundSparrow/116282447276683265   
 
+&nbsp;
+
+# Lexicon of Trump
+
+"The Real Reason Trump Talks Like an Idiot: Author | The Daily Beast Podcast"    
+https://www.youtube.com/watch?v=bfEO069rxRk    
+458,824 views March 23, 2026    
+
+NEGGING_WORKS_LANGUAGE_INSULTING_WORKS_REALITY_PROGRAMMING_LANGUAGE    
+CONCERNS_OF_FINNEGANS   
+
+Languages.
