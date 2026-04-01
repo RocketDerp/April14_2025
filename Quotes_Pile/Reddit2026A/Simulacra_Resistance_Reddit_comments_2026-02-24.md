@@ -508,3 +508,7 @@ https://old.reddit.com/r/MurderedByWords/comments/1s8kyt1/im_no_millionaires_son
 
 Reddit popular clickbait title upvoted to front page. Showing images of famous GOP bad guy characters. Eating right out of the hands of the anti-reality warfare and not describing Surkov. Simulation.
 
+https://old.reddit.com/r/PoliticalHumor/comments/1s9lkd1/maga_will_still_defend_this/odp6v69/
+
+And none of the Reddit commenting users will mention Surkov and use of media like this to create contradictions for audiences. NEW_SYSTEM_POLITICAL_CONTROL
+
