@@ -76,3 +76,10 @@ https://old.reddit.com/r/politics/comments/1s9kuc4/donald_trump_is_gone_exbacker
 
 AVOIDED_DR_BANDY_X_LEE_PUBLIC_WRITINGS
 
+https://old.reddit.com/r/politics/comments/1s9olfa/humiliated_trump_storms_out_of_catastrophic/odpsmva/
+
+Most-popular upvoted comment "LMAO". IGNORANCE_CELEBRATIONS celebrating the acting that the actor does on stage POTUS Tony Clifton. AMUSEMENT_COMEDY_WASHING_TRUMP_AS_FUNNY_MEDIA_SANEWASHING
+
+https://old.reddit.com/r/politics/comments/1s9olfa/humiliated_trump_storms_out_of_catastrophic/odpt430/
+
+TRUMP_FANDOM anticipating the world's most popular content creator to have fresh Truth Social fiction for the Reddit fandom! LIBERAL_LAUGHS_LIBERAL_TEARS_COMPULSIVE_MAGA_FOLLOWERS
