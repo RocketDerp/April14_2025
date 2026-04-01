@@ -91,3 +91,6 @@ Just look at this Reddit posting headline that got to the front page /r/All - vi
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1s9o6qf/trump_rage_quits_after_he_gets_his_ass_handed_to/odpqswl/
 
 IGNORANCE_CELEBRATIONS the whole nation treats this like pro-ignorance sport.
+
+https://old.reddit.com/r/antiwork/comments/1s9nou5/how_is_everyone_just_working_normally_today_the/odpn9f4/
+
