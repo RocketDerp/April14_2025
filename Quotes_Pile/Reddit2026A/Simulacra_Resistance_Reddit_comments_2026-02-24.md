@@ -512,3 +512,7 @@ https://old.reddit.com/r/PoliticalHumor/comments/1s9lkd1/maga_will_still_defend_
 
 And none of the Reddit commenting users will mention Surkov and use of media like this to create contradictions for audiences. NEW_SYSTEM_POLITICAL_CONTROL
 
+https://old.reddit.com/r/ProgressiveHQ/comments/1s9htk5/hypocrisy_is_the_point_of_this_regime/odoghhw/
+
+9 month Reddit account, top-most upvoted popular comment. PROMOTING_IGNORANCE_WORKS_PLAYING_DUMB_MOCKING REDDIT_TOP_COMMENT_YOUNG_ACCOUNT calling the government idiots when all the commenting on Reddit is measuring against a very low bar. MEASURING_BAR_SO_LOW
+
