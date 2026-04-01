@@ -71,3 +71,8 @@ And Reddit eats up the simulation. CONDITIONED_OPPOSITION Any chance to say Trum
 https://old.reddit.com/r/politics/comments/1s9kuc4/donald_trump_is_gone_exbacker_of_president_warns/odphqzb/
 
 MAGA_FANDOM Celebrating the ignorance that MAGA / USA provides. IGNORANCE_CELEBRATIONS
+
+https://old.reddit.com/r/politics/comments/1s9kuc4/donald_trump_is_gone_exbacker_of_president_warns/odp9scz/
+
+AVOIDED_DR_BANDY_X_LEE_PUBLIC_WRITINGS
+
