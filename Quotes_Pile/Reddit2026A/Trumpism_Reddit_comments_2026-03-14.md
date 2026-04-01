@@ -978,3 +978,7 @@ Yes. It is the outcome of brain rot Reddit, Twitter, Bluesky, etc. ENJOYMENT_OF_
 https://old.reddit.com/r/therewasanattempt/comments/1s8yzum/to_act_like_a_normal_president_or_even_a_normal/odkjkd8/
 
 No, everyone is sharing video clips and watching them, like this very video clip on Reddit. Why isn't Reddit community having a blackout and promoting Dr. Bandy X Lee? REDDIT_BLACKOUT  
+
+https://old.reddit.com/r/therewasanattempt/comments/1s8yzum/to_act_like_a_normal_president_or_even_a_normal/odkn3pk/
+
+It works. Blows minds on Reddit. People all avoid Dr. Bandy X Lee. MIND_BLOWN_BY People won't engage relevant nonfiction learning about Surkov. Without self-awareness of 2011, 2012, 2013 Surkov learning and February 2014 Ukraine hot war... it doesn't make sense to people. OUTSMARTED_TRICKED_MANIPULATED_BAMBOOZLED_BY_TRUMP_MURDOCH_PUTIN
