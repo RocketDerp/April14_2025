@@ -578,3 +578,6 @@ THIS_GITHUB CORE_CONCERNS BABEL_TOWER CONCERNS_OF_FINNEGANS
 
 Social post { https://autistics.life/@RoundSparrow/116325009898385019 https://bsky.app/profile/roundsparrow.bsky.social/post/3miepwmbckc2v }    
 
+https://old.reddit.com/r/books/comments/1s9mbt5/sweden_goes_back_to_basics_swapping_screens_for/odpao4u/
+
+BRAIN_ROT_SOCIETY_47 NOT_GOOD_ENOUGH Neil Postman had so much to say about classroom and computers that has been forgotten.
