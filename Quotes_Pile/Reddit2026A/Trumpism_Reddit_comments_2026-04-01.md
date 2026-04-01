@@ -21,3 +21,7 @@ Burnout. MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL
 https://old.reddit.com/r/politics/comments/1s9f74t/trump_interview_i_am_strongly_considering_pulling/odnu32v/
 
 DECEMBER_5_2014_NATO_JOKE_ARTICLE_5_JOKE
+
+https://old.reddit.com/r/USNEWS/comments/1s9fa5h/trump_tells_leavitt_youre_doing_a_terrible_job_as/odp0x2i/
+
+She probably takes mental health medication to deal with all the stress of the hate.
