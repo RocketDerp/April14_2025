@@ -101,3 +101,8 @@ BURNOUT_ABOUNDS ANTICS_POLITICS constant audience engagement, choose your own Tr
 https://old.reddit.com/r/antiwork/comments/1s9nou5/how_is_everyone_just_working_normally_today_the/odpvbfx/
 
 Exactly. ENTERTAINED_JUST_PASSIVELY_WATCHING_UNTIL_DEATH_NO_SOCIAL_MEDIA_UPRISING_WHILE_ALIVE people are wishing for one single man to die and don't want to face the Fox News HDTV media crisis. We the people do not assert goodness, death isn't goodness.
+
+https://old.reddit.com/r/antiwork/comments/1s9nou5/how_is_everyone_just_working_normally_today_the/odpqxz8/
+
+Follow the trend, no matter how bad trending is. TREND_CHASING_MEDIA_TRENDING instead of facing the Reddit culture of cheering on celebrity Trump as entertainment (hate Trump fandom)... anti-intellectual brain rot USA.
+
