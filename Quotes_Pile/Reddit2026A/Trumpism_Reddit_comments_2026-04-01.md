@@ -56,3 +56,6 @@ https://old.reddit.com/r/law/comments/1s9m3g6/trump_in_historic_first_attends_su
 
 TRUMP_WEAK_MUSK_WEAK_DO_NOTHING_TO_RESIST_TALKING_POINTS Observe that for year and years there is a social media narrative that Trump is lazy. He is a very hard worker, especially for his age, at self-harm to USA. YouTube people claim they are exhausted creating 1 hour of content a week, Trump produces 12 hours of content every day.
 
+https://old.reddit.com/r/law/comments/1s9m3g6/trump_in_historic_first_attends_supreme_court/odpc2zu/
+
+Observe again no call for social media uprising. ROUTINE_NO_NEED_TO_RESIST_OR_ORGANIZE_INTELLECTUAL_UPRISING
