@@ -59,3 +59,8 @@ TRUMP_WEAK_MUSK_WEAK_DO_NOTHING_TO_RESIST_TALKING_POINTS Observe that for year a
 https://old.reddit.com/r/law/comments/1s9m3g6/trump_in_historic_first_attends_supreme_court/odpc2zu/
 
 Observe again no call for social media uprising. ROUTINE_NO_NEED_TO_RESIST_OR_ORGANIZE_INTELLECTUAL_UPRISING
+
+https://old.reddit.com/r/politics/comments/1s9kuc4/donald_trump_is_gone_exbacker_of_president_warns/odoyg6a/
+
+TRUMP_WEAK_MUSK_WEAK_DO_NOTHING_TO_RESIST_TALKING_POINTS Trump clearly keeps Reddit users upvoting him to /r/All every hour of every day nonstop. Engagement to reality TV media star. Media star with a cult hate following.
+
