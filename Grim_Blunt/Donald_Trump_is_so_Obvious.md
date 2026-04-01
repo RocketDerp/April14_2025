@@ -70,3 +70,13 @@ Front page of Reddit, **top upvoted comment**. Mind blown on Reddit by media cli
 https://old.reddit.com/r/UnderReportedNews/comments/1qatvnl/george_conway_donald_trump_is_a_man_who/
 
 Yes, it is all so obvious. And prizing badness is going to create bad outcomes. People unwilling to promote and quote Dr. Bandy X Lee since year 2017 when she went public... have dug a hole of mocking people who are sick of the constant cheering on of bad things.
+
+&nbsp;
+
+&nbsp;
+
+# March 2026
+
+It was always obvious he was a bullshit artist.
+
+https://youtu.be/bfEO069rxRk?t=822    
