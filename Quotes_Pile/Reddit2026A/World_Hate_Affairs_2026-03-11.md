@@ -586,4 +586,5 @@ https://old.reddit.com/r/worldnews/comments/1s8lnr7/trump_warns_uk_us_wont_be_th
 
 DECEMBER_5_2014_NATO_JOKE_ARTICLE_5_JOKE
 
+https://old.reddit.com/r/justincaseyoumissedit/comments/1s9b5kp/i_accuse_israel_of_crossing_the_red_line_i/odn4039/
 
