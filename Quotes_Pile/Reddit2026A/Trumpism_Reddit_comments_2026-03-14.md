@@ -966,3 +966,8 @@ Social post { https://autistics.life/@RoundSparrow/116324225681396245 https://bs
 https://old.reddit.com/r/politics/comments/1s8jpav/never_mind_leading_the_free_world_if_donald_trump/odh6ib0/
 
 MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL
+
+https://old.reddit.com/r/therewasanattempt/comments/1s8yzum/to_act_like_a_normal_president_or_even_a_normal/odkhx6d/
+
+FANATICS_FANS_OF_CLOWNS_FANS_OF_MAGA_CLOWNING
+
