@@ -25,3 +25,7 @@ DECEMBER_5_2014_NATO_JOKE_ARTICLE_5_JOKE
 https://old.reddit.com/r/USNEWS/comments/1s9fa5h/trump_tells_leavitt_youre_doing_a_terrible_job_as/odp0x2i/
 
 She probably takes mental health medication to deal with all the stress of the hate.
+
+https://old.reddit.com/r/USNEWS/comments/1s9fa5h/trump_tells_leavitt_youre_doing_a_terrible_job_as/odo4dzj/
+
+That's the White House power. The endless (boundless, inexhaustible) attraction Reddit users have to hate. ATTRACTION_TO_HATE_LEADERS_HATE_FOLLOWERS
