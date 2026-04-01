@@ -35,3 +35,6 @@ https://old.reddit.com/r/worldnews/comments/1s9jktu/trump_says_hes_considering_n
 https://old.reddit.com/r/worldnews/comments/1s9jktu/trump_says_hes_considering_nato_exit_amid_rift/odopihe/
 
 2 month Reddit account. 2nd most upvoted popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT PUTIN_SURKOV_TRUMP_LONG_TERM_YEARS_PLAN DECEMBER_5_2014_NATO_JOKE_ARTICLE_5_JOKE
+
+https://old.reddit.com/r/worldnews/comments/1s9jktu/trump_says_hes_considering_nato_exit_amid_rift/odous0c/
+
