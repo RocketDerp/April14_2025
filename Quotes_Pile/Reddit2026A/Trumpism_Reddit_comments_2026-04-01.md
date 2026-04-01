@@ -64,3 +64,7 @@ https://old.reddit.com/r/politics/comments/1s9kuc4/donald_trump_is_gone_exbacker
 
 TRUMP_WEAK_MUSK_WEAK_DO_NOTHING_TO_RESIST_TALKING_POINTS Trump clearly keeps Reddit users upvoting him to /r/All every hour of every day nonstop. Engagement to reality TV media star. Media star with a cult hate following.
 
+https://old.reddit.com/r/politics/comments/1s9kuc4/donald_trump_is_gone_exbacker_of_president_warns/odp5dx6/
+
+And Reddit eats up the simulation. CONDITIONED_OPPOSITION Any chance to say Trump brain dumb over and over since June 16, 2015.
+
