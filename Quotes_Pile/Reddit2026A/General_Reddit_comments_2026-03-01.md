@@ -581,3 +581,7 @@ Social post { https://autistics.life/@RoundSparrow/116325009898385019 https://bs
 https://old.reddit.com/r/books/comments/1s9mbt5/sweden_goes_back_to_basics_swapping_screens_for/odpao4u/
 
 BRAIN_ROT_SOCIETY_47 NOT_GOOD_ENOUGH Neil Postman had so much to say about classroom and computers that has been forgotten.
+
+https://old.reddit.com/r/pcmasterrace/comments/1s9nih4/gabe_newell_stepped_back_from_making_games_at/odpn0l3/
+
+Understanding Donald Trump's impact on audiences. BILLIONAIRE_MIND_VIRUS "As of early 2025, Gabe Newell's net worth is estimated at approximately $11 billion."
