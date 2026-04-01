@@ -17,3 +17,7 @@ CORE_CONCERNS of this GitHub
 https://old.reddit.com/r/politics/comments/1s9f74t/trump_interview_i_am_strongly_considering_pulling/odoa3jh/
 
 Burnout. MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL
+
+https://old.reddit.com/r/politics/comments/1s9f74t/trump_interview_i_am_strongly_considering_pulling/odnu32v/
+
+DECEMBER_5_2014_NATO_JOKE_ARTICLE_5_JOKE
