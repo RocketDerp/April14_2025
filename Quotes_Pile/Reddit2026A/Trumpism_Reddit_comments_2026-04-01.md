@@ -83,3 +83,7 @@ Most-popular upvoted comment "LMAO". IGNORANCE_CELEBRATIONS celebrating the acti
 https://old.reddit.com/r/politics/comments/1s9olfa/humiliated_trump_storms_out_of_catastrophic/odpt430/
 
 TRUMP_FANDOM anticipating the world's most popular content creator to have fresh Truth Social fiction for the Reddit fandom! LIBERAL_LAUGHS_LIBERAL_TEARS_COMPULSIVE_MAGA_FOLLOWERS
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1s9o6qf/trump_rage_quits_after_he_gets_his_ass_handed_to/odprc8m/
+
+Just look at this Reddit posting headline that got to the front page /r/All - video game "rage quit" terminology. sports mindsets. GAMERS_SIMULACRA This isn't resisting, this is sports fandoms watching their favorite hate superstar.
