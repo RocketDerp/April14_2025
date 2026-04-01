@@ -87,3 +87,7 @@ TRUMP_FANDOM anticipating the world's most popular content creator to have fresh
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1s9o6qf/trump_rage_quits_after_he_gets_his_ass_handed_to/odprc8m/
 
 Just look at this Reddit posting headline that got to the front page /r/All - video game "rage quit" terminology. sports mindsets. GAMERS_SIMULACRA This isn't resisting, this is sports fandoms watching their favorite hate superstar.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1s9o6qf/trump_rage_quits_after_he_gets_his_ass_handed_to/odpqswl/
+
+IGNORANCE_CELEBRATIONS the whole nation treats this like pro-ignorance sport.
