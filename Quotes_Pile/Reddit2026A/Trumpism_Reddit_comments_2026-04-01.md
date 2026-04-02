@@ -204,3 +204,12 @@ Because it gets to the front page of Reddit. The fandom of Trump flocks to his e
 https://old.reddit.com/r/Music/comments/1sahv06/donald_trump_calls_for_maga_boycott_against_bruce/odvujvb/
 
 ATTRACTION_TO_SHIT_CONTENT_ENSHIT_BY_DESIRE WHEN_THE_PEOPLE_HAVE_LOST_THE_ABILITY Trump has them entertained on Reddit. ARE_YOU_SMARTER_THAN_3RD_GRADE_STUDENT_FANDOM_MEASURING
+
+https://old.reddit.com/r/law/comments/1san8d2/pam_bondi_fired_by_trump_and_has_fled_home/odx1r4r/
+
+<img width="1752" height="329" alt="Screenshot from 2026-04-02 11-05-20" src="https://github.com/user-attachments/assets/584d469f-b45d-431c-90e2-43ee2d0bf8b2" />
+
+Neil Postman was correct in year 1985 with his nonfiction book "Amusing Ourselves To Death". Top most upvoted popular comment. Trump / MAGA fandom cheering on the source of amusement. LIBERAL_LAUGHS_LIBERAL_TEARS_COMPULSIVE_MAGA_FOLLOWERS
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mijse5gqi223 https://autistics.life/@RoundSparrow/116336443950724193 }    
+
