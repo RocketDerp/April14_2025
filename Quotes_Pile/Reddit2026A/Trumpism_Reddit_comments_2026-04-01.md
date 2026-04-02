@@ -117,3 +117,7 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1s9y4m6/trump_says_due_to_h
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1s9y4m6/trump_says_due_to_his_wars_the_government_cant/odrx472/
 
 "almost". SELF_HARM_USA REMEDIAL_LEARNING_TRUMP_PUTIN_INFORMATION_WARFARE_YEAR_2011_ONWARD
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1s9y4m6/trump_says_due_to_his_wars_the_government_cant/odrxnfr/
+
+Everyone supports Trump as a source of entertainment and nonstop mockery on Reddit. Addiction to mocking Trump for eleven years. ARE_YOU_SMARTER_THAN_3RD_GRADE_STUDENT_FANDOM_MEASURING
