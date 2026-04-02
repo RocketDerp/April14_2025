@@ -147,3 +147,7 @@ The most popular upvoted comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER
 https://old.reddit.com/r/Fauxmoi/comments/1s9ua7c/trump_with_some_unusual_language_while/odr296w/
 
 ENTERTAINED_JUST_PASSIVELY_WATCHING_UNTIL_DEATH_NO_SOCIAL_MEDIA_UPRISING_WHILE_ALIVE just screwing around on social media day and night mocking away USA waiting for Trump to die.
+
+https://old.reddit.com/r/politics/comments/1sa45em/trump_delivers_jawdropping_and_slurred_iran/odt32ss/
+
+This comment describes Trump. Why Trump is so popular on Reddit for comment creators. Donald Trump's constant attention in media gives people who value egoism such a boost. That is why there is no REDDIT_BLACKOUT protest to remove Trump... people are engaged mocking Trump. People can constantly create messages declaring they have won an intellectual contest against leader of the free world. ARE_YOU_SMARTER_THAN_3RD_GRADE_STUDENT_FANDOM_MEASURING
