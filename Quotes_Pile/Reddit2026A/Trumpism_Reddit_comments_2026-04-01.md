@@ -174,3 +174,7 @@ https://old.reddit.com/r/politics/comments/1s9mahx/donald_trumps_presidency_is_i
 
 NEW_OPERA_NAME #FreeFallUSA #FreedomToFall    
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mii7gnqnsk2p https://autistics.life/@RoundSparrow/116332865786832799 }   
+
+https://old.reddit.com/r/politics/comments/1s9mahx/donald_trumps_presidency_is_in_free_fall/odpqoss/
+
+CORE_CONCERNS BRAIN_ROT_SOCIETY_47 is is We All falling. SETTLED_FOR_WE_THIS_PATH
