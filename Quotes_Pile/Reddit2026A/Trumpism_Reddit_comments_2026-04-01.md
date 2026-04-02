@@ -224,3 +224,6 @@ ATTRACTION_TO_SHIT_CONTENT_ENSHIT_BY_DESIRE
 https://old.reddit.com/r/IThinkYouShouldLeave/comments/1saofz5/rconservative_celebrating_trump_firing_yet/odx9pwe/
 
 Trump is a joke factory for all of Reddit. Trump is an LOLCOW to milk on Reddit. Trump is a factory of memes and amusement for Reddit fandoms. PEOPLE_LOVE_COMEDY_MEDIA_CONTENT_MORE_THAN_PLURIBUS_HUMANISM
+
+https://old.reddit.com/r/technology/comments/1saqz2t/the_us_burned_14_years_of_missiles_in_30_days/ody4b5o/
+
