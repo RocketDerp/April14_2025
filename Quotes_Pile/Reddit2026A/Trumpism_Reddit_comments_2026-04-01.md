@@ -197,3 +197,6 @@ https://old.reddit.com/r/Fauxmoi/comments/1safnhd/the_newest_economist_cover_tit
 
 To Reddit users, it feels like cinema and popcorn entertainment. FOLLOWERS_OF_LEADER_TRUMP_ACTOR_ENTERTAINER_DONALD_TRUMP_FOLLOWERS
 
+https://old.reddit.com/r/Music/comments/1sahv06/donald_trump_calls_for_maga_boycott_against_bruce/odvtduy/
+
+Because it gets to the front page of Reddit. The fandom of Trump flocks to his every antic. ATTRACTION_TO_SHIT_CONTENT_ENSHIT_BY_DESIRE
