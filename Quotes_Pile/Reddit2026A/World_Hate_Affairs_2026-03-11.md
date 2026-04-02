@@ -594,3 +594,7 @@ https://old.reddit.com/r/videos/comments/1s9z2z5/iranian_president_pezeshkians_l
 
 https://old.reddit.com/r/videos/comments/1s9z2z5/iranian_president_pezeshkians_letter_addresses/odsz0tk/
 
+https://old.reddit.com/r/politics/comments/1sa3v5t/trump_threatens_to_hit_iran_extremely_hard_over/odt11bv/
+
+Entertainment television show. AMUSEMENT_AS_USUAL
+
