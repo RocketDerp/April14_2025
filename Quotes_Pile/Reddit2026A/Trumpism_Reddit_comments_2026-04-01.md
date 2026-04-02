@@ -126,3 +126,8 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1s9y4m6/trump_says_due_to_h
 
 If the nation were anti-intellectual and pro-ignorance, would comments on Reddit be any different? SILHOUETTE_VOID_AVOIDED_TOPIC_HIGHLIGHTING_OUTLINE Surkov won since year 2013. Social media users: always avoiding promoting intellectual learning and getting on the same page: Dr. Bandy X Lee's leadership.
 
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1s9y4m6/trump_says_due_to_his_wars_the_government_cant/odrxlc0/
+
+<img width="1107" height="459" alt="image" src="https://github.com/user-attachments/assets/b0c58b7f-04b9-4cd9-979c-969e41192837" />
+
+Social link { https://bsky.app/profile/roundsparrow.bsky.social/post/3mii4oyv7y22f https://autistics.life/@RoundSparrow/116332670445036233 }    
