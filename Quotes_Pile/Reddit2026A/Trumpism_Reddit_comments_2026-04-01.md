@@ -200,3 +200,7 @@ To Reddit users, it feels like cinema and popcorn entertainment. FOLLOWERS_OF_LE
 https://old.reddit.com/r/Music/comments/1sahv06/donald_trump_calls_for_maga_boycott_against_bruce/odvtduy/
 
 Because it gets to the front page of Reddit. The fandom of Trump flocks to his every antic. ATTRACTION_TO_SHIT_CONTENT_ENSHIT_BY_DESIRE
+
+https://old.reddit.com/r/Music/comments/1sahv06/donald_trump_calls_for_maga_boycott_against_bruce/odvujvb/
+
+ATTRACTION_TO_SHIT_CONTENT_ENSHIT_BY_DESIRE WHEN_THE_PEOPLE_HAVE_LOST_THE_ABILITY Trump has them entertained on Reddit. ARE_YOU_SMARTER_THAN_3RD_GRADE_STUDENT_FANDOM_MEASURING
