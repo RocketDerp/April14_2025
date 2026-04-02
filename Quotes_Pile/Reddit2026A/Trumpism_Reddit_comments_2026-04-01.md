@@ -144,3 +144,6 @@ https://old.reddit.com/r/Fauxmoi/comments/1s9ua7c/trump_with_some_unusual_langua
 
 The most popular upvoted comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
 
+https://old.reddit.com/r/Fauxmoi/comments/1s9ua7c/trump_with_some_unusual_language_while/odr296w/
+
+ENTERTAINED_JUST_PASSIVELY_WATCHING_UNTIL_DEATH_NO_SOCIAL_MEDIA_UPRISING_WHILE_ALIVE just screwing around on social media day and night mocking away USA waiting for Trump to die.
