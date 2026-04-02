@@ -615,3 +615,9 @@ MASS_DEHUMANIZATION_POPULAR is what it means. Mass dehumanization with modern co
 https://old.reddit.com/r/HistoricalCapsule/comments/1sagq35/at_just_14_celine_dion_sits_across_from_her/odvq569/
 
 World Power Affairs. World Grooming Affairs. It shocks many people to find that arranged marriages actually work. I lived in the house of an arranged marriage, my father and mother in law. ARRANGED_MARRIAGE
+
+https://old.reddit.com/r/HistoricalCapsule/comments/1sagq35/at_just_14_celine_dion_sits_across_from_her/odvsbul/
+
+https://old.reddit.com/r/HistoricalCapsule/comments/1sagq35/at_just_14_celine_dion_sits_across_from_her/odvl6ag/
+
+As I've said here: My high school in 1984 freshman year, if you really listened to the hottest girls in school - the ones with the makeup, fashion sense, style - they were not dating boys from high school. But people really don't listen to each other.
