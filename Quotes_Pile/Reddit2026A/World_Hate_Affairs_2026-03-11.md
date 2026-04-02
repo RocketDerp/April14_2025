@@ -612,3 +612,6 @@ https://old.reddit.com/r/politics/comments/1sa3v5t/trump_threatens_to_hit_iran_e
 
 MASS_DEHUMANIZATION_POPULAR is what it means. Mass dehumanization with modern computer technology, like Reddit cloud computing technology, vs. "stone age".
 
+https://old.reddit.com/r/HistoricalCapsule/comments/1sagq35/at_just_14_celine_dion_sits_across_from_her/odvq569/
+
+World Power Affairs. World Grooming Affairs. It shocks many people to find that arranged marriages actually work. I lived in the house of an arranged marriage, my father and mother in law. ARRANGED_MARRIAGE
