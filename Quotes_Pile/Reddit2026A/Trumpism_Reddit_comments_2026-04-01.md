@@ -155,3 +155,8 @@ This comment describes Trump. Why Trump is so popular on Reddit for comment crea
 https://old.reddit.com/r/politics/comments/1sa45em/trump_delivers_jawdropping_and_slurred_iran/odt42hq/
 
 140 character or less commenting length. Can't understand. Does not turn to nonfiction section of the public library. Dr. Bandy X Lee ignored. Jen Senko ignored. Stories and analysis about brain rot across all topics in USA ignored. TRUMP_FAMILY_FIXATED_BRAIN_ROT_EVERY_DAY_FOX_NEWS_TWITTER_ETC Surkov won since year 2013.
+
+https://old.reddit.com/r/politics/comments/1sa45em/trump_delivers_jawdropping_and_slurred_iran/odt4oyx/
+
+Reddit user, commenting about Trump on Reddit media, does not understand why influencer and media star Donald Trump created media for Reddit audience. EVERYTHING_IS_ME
+
