@@ -121,3 +121,8 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1s9y4m6/trump_says_due_to_h
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1s9y4m6/trump_says_due_to_his_wars_the_government_cant/odrxnfr/
 
 Everyone supports Trump as a source of entertainment and nonstop mockery on Reddit. Addiction to mocking Trump for eleven years. ARE_YOU_SMARTER_THAN_3RD_GRADE_STUDENT_FANDOM_MEASURING
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1s9y4m6/trump_says_due_to_his_wars_the_government_cant/ods3jrm/
+
+If the nation were anti-intellectual and pro-ignorance, would comments on Reddit be any different? SILHOUETTE_VOID_AVOIDED_TOPIC_HIGHLIGHTING_OUTLINE Surkov won since year 2013. Social media users: always avoiding promoting intellectual learning and getting on the same page: Dr. Bandy X Lee's leadership.
+
