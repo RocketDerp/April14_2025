@@ -151,3 +151,7 @@ ENTERTAINED_JUST_PASSIVELY_WATCHING_UNTIL_DEATH_NO_SOCIAL_MEDIA_UPRISING_WHILE_A
 https://old.reddit.com/r/politics/comments/1sa45em/trump_delivers_jawdropping_and_slurred_iran/odt32ss/
 
 This comment describes Trump. Why Trump is so popular on Reddit for comment creators. Donald Trump's constant attention in media gives people who value egoism such a boost. That is why there is no REDDIT_BLACKOUT protest to remove Trump... people are engaged mocking Trump. People can constantly create messages declaring they have won an intellectual contest against leader of the free world. ARE_YOU_SMARTER_THAN_3RD_GRADE_STUDENT_FANDOM_MEASURING
+
+https://old.reddit.com/r/politics/comments/1sa45em/trump_delivers_jawdropping_and_slurred_iran/odt42hq/
+
+140 character or less commenting length. Can't understand. Does not turn to nonfiction section of the public library. Dr. Bandy X Lee ignored. Jen Senko ignored. Stories and analysis about brain rot across all topics in USA ignored. TRUMP_FAMILY_FIXATED_BRAIN_ROT_EVERY_DAY_FOX_NEWS_TWITTER_ETC Surkov won since year 2013.
