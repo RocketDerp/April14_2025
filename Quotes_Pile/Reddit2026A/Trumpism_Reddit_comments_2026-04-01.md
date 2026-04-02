@@ -178,3 +178,10 @@ Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mii7gnqnsk
 https://old.reddit.com/r/politics/comments/1s9mahx/donald_trumps_presidency_is_in_free_fall/odpqoss/
 
 CORE_CONCERNS BRAIN_ROT_SOCIETY_47 is is We All falling. SETTLED_FOR_WE_THIS_PATH
+
+https://old.reddit.com/r/Fauxmoi/comments/1safnhd/the_newest_economist_cover_titled_never_interrupt/odve8d4/
+
+https://old.reddit.com/r/Fauxmoi/comments/1safnhd/the_newest_economist_cover_titled_never_interrupt/odvf4tv/
+
+"for....what exactly?" ANSWER: for mythology. The consensus that forms around an art form of Fox News HDTV audience. Trump is a Fox News Twitter addict who finds himself in agreement with the mythos of other audience members. SCHOOLS_OF_THOUGHT_FEEDBACK_LOOPS_INSIDE_BOXED_MINDSETS - as 4Chan called it "for the lulz". Video game addicts who won't stop playing adventure games. Trump could be retired on the golf course on Florida like my father retired in The Villages, Florida. Instead, he behaves like a TV camera screen gamer who keeps competing for audience attention.
+
