@@ -8,7 +8,7 @@ https://autistics.life/@RoundSparrow/116335978046012991
 
 "a tree to be desired to make one wise"   
 "desirable for gaining wisdom"     
-לְהַשְׂכִּ֔יל
+לְהַשְׂכִּ֔יל    
 Genesis 3:6 
 
 &nbsp;
