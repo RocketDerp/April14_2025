@@ -106,3 +106,7 @@ https://old.reddit.com/r/antiwork/comments/1s9nou5/how_is_everyone_just_working_
 
 Follow the trend, no matter how bad trending is. TREND_CHASING_MEDIA_TRENDING instead of facing the Reddit culture of cheering on celebrity Trump as entertainment (hate Trump fandom)... anti-intellectual brain rot USA.
 
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1s9y4m6/trump_says_due_to_his_wars_the_government_cant/odrumf2/
+
+ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING
+
