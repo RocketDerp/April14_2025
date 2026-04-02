@@ -588,3 +588,9 @@ DECEMBER_5_2014_NATO_JOKE_ARTICLE_5_JOKE
 
 https://old.reddit.com/r/justincaseyoumissedit/comments/1s9b5kp/i_accuse_israel_of_crossing_the_red_line_i/odn4039/
 
+https://old.reddit.com/r/videos/comments/1s9z2z5/iranian_president_pezeshkians_letter_addresses/ods1wme/
+
+1 month Reddit account. Top most popular upvoted comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT. World Hate Affairs.
+
+https://old.reddit.com/r/videos/comments/1s9z2z5/iranian_president_pezeshkians_letter_addresses/odsz0tk/
+
