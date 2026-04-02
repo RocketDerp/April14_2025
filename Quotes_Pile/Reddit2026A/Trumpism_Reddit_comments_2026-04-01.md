@@ -167,3 +167,10 @@ SETTLED_FOR_WE_THIS_PATH - top most upvoted popular comment. REDDIT_TOP_COMMENT_
 https://old.reddit.com/r/politics/comments/1s9mahx/donald_trumps_presidency_is_in_free_fall/odpdzou/
 
 13 day Reddit account. 2nd most popular upvoted comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT TRUMP_WEAK_MUSK_WEAK_DO_NOTHING_TO_RESIST_TALKING_POINTS at least someone points out that Trump isn't "weak" or "failing".
+
+https://old.reddit.com/r/politics/comments/1s9mahx/donald_trumps_presidency_is_in_free_fall/odpaxku/
+
+<img width="978" height="372" alt="image" src="https://github.com/user-attachments/assets/82c41809-df6e-4fea-922f-3719f96b80f6" />
+
+NEW_OPERA_NAME #FreeFallUSA #FreedomToFall    
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mii7gnqnsk2p https://autistics.life/@RoundSparrow/116332865786832799 }   
