@@ -213,3 +213,6 @@ Neil Postman was correct in year 1985 with his nonfiction book "Amusing Ourselve
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mijse5gqi223 https://autistics.life/@RoundSparrow/116336443950724193 }    
 
+https://old.reddit.com/r/politics/comments/1sangkb/megathread_trump_fires_attorney_general_bondi/odx2aat/
+
+REMEMBER_THE_PROGRAM_IDEAS_BILLIONAIRES_FED_REDDIT_AUDIENCE
