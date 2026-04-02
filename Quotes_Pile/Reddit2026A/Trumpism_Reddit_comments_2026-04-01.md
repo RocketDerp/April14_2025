@@ -110,3 +110,6 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1s9y4m6/trump_says_due_to_h
 
 ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING
 
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1s9y4m6/trump_says_due_to_his_wars_the_government_cant/odrvhth/
+
+"what a joke" JOKE_COMEDY_POWER_IS_MAGA_IS_TRUMP_IS_SURKOV
