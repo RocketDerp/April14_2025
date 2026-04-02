@@ -607,3 +607,8 @@ https://old.reddit.com/r/politics/comments/1sa3v5t/trump_threatens_to_hit_iran_e
 https://old.reddit.com/r/politics/comments/1sa3v5t/trump_threatens_to_hit_iran_extremely_hard_over/odt3chs/
 
 9 month Reddit account. ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING
+
+https://old.reddit.com/r/politics/comments/1sa3v5t/trump_threatens_to_hit_iran_extremely_hard_over/odt2e8m/
+
+MASS_DEHUMANIZATION_POPULAR is what it means. Mass dehumanization with modern computer technology, like Reddit cloud computing technology, vs. "stone age".
+
