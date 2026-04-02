@@ -139,3 +139,8 @@ What if we all started acting dumb on social media, the entire population? Most 
 https://old.reddit.com/r/UnderReportedNews/comments/1sa0vey/donald_trump_claims_us_cannot_fund_daycare/odse3qv/
 
 2nd most popular upvoted comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING Reddit audience is fans of clowns. Constantly clowning on social machines and avoiding serious nonfiction books By Dr. Bandy X Lee. FANATICS_FANS_OF_CLOWNS_FANS_OF_MAGA_CLOWNING
+
+https://old.reddit.com/r/Fauxmoi/comments/1s9ua7c/trump_with_some_unusual_language_while/odr1tui/
+
+The most popular upvoted comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
+
