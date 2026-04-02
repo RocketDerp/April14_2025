@@ -185,3 +185,6 @@ https://old.reddit.com/r/Fauxmoi/comments/1safnhd/the_newest_economist_cover_tit
 
 "for....what exactly?" ANSWER: for mythology. The consensus that forms around an art form of Fox News HDTV audience. Trump is a Fox News Twitter addict who finds himself in agreement with the mythos of other audience members. SCHOOLS_OF_THOUGHT_FEEDBACK_LOOPS_INSIDE_BOXED_MINDSETS - as 4Chan called it "for the lulz". Video game addicts who won't stop playing adventure games. Trump could be retired on the golf course on Florida like my father retired in The Villages, Florida. Instead, he behaves like a TV camera screen gamer who keeps competing for audience attention.
 
+https://old.reddit.com/r/Fauxmoi/comments/1safnhd/the_newest_economist_cover_titled_never_interrupt/odvtou6/
+
+Egomania nation. MASS_PSYCHOSIS_ABOUNDS 
