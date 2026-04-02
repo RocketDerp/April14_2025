@@ -585,3 +585,6 @@ BRAIN_ROT_SOCIETY_47 NOT_GOOD_ENOUGH Neil Postman had so much to say about class
 https://old.reddit.com/r/pcmasterrace/comments/1s9nih4/gabe_newell_stepped_back_from_making_games_at/odpn0l3/
 
 Understanding Donald Trump's impact on audiences. BILLIONAIRE_MIND_VIRUS "As of early 2025, Gabe Newell's net worth is estimated at approximately $11 billion."
+
+https://old.reddit.com/r/mildlyinteresting/comments/1sa4rjp/my_child_and_i_agree_on_what_to_name_these_but/odtdsop/
+
