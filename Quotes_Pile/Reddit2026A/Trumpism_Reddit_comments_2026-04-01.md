@@ -131,3 +131,7 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1s9y4m6/trump_says_due_to_h
 <img width="1107" height="459" alt="image" src="https://github.com/user-attachments/assets/b0c58b7f-04b9-4cd9-979c-969e41192837" />
 
 Social link { https://bsky.app/profile/roundsparrow.bsky.social/post/3mii4oyv7y22f https://autistics.life/@RoundSparrow/116332670445036233 }    
+
+https://old.reddit.com/r/UnderReportedNews/comments/1sa0vey/donald_trump_claims_us_cannot_fund_daycare/odse3zn/
+
+What if we all started acting dumb on social media, the entire population? Most popular upvoted comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
