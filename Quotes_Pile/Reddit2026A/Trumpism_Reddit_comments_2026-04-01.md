@@ -216,3 +216,7 @@ Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mijse5gqi2
 https://old.reddit.com/r/politics/comments/1sangkb/megathread_trump_fires_attorney_general_bondi/odx2aat/
 
 REMEMBER_THE_PROGRAM_IDEAS_BILLIONAIRES_FED_REDDIT_AUDIENCE
+
+https://old.reddit.com/r/scotus/comments/1sahof2/analysts_warn_amy_coney_barrett_doomed_trump_at/odvwbrv/
+
+ATTRACTION_TO_SHIT_CONTENT_ENSHIT_BY_DESIRE
