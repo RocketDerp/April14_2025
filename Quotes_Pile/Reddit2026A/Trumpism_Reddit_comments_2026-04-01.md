@@ -192,3 +192,8 @@ Egomania nation. MASS_PSYCHOSIS_ABOUNDS
 https://old.reddit.com/r/Fauxmoi/comments/1safnhd/the_newest_economist_cover_titled_never_interrupt/odvfacq/
 
 13 day Reddit account.
+
+https://old.reddit.com/r/Fauxmoi/comments/1safnhd/the_newest_economist_cover_titled_never_interrupt/odvcr8j/
+
+To Reddit users, it feels like cinema and popcorn entertainment. FOLLOWERS_OF_LEADER_TRUMP_ACTOR_ENTERTAINER_DONALD_TRUMP_FOLLOWERS
+
