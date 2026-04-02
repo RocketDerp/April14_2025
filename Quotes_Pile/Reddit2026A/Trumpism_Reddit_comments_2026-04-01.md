@@ -220,3 +220,7 @@ REMEMBER_THE_PROGRAM_IDEAS_BILLIONAIRES_FED_REDDIT_AUDIENCE
 https://old.reddit.com/r/scotus/comments/1sahof2/analysts_warn_amy_coney_barrett_doomed_trump_at/odvwbrv/
 
 ATTRACTION_TO_SHIT_CONTENT_ENSHIT_BY_DESIRE
+
+https://old.reddit.com/r/IThinkYouShouldLeave/comments/1saofz5/rconservative_celebrating_trump_firing_yet/odx9pwe/
+
+Trump is a joke factory for all of Reddit. Trump is an LOLCOW to milk on Reddit. Trump is a factory of memes and amusement for Reddit fandoms. PEOPLE_LOVE_COMEDY_MEDIA_CONTENT_MORE_THAN_PLURIBUS_HUMANISM
