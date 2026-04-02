@@ -163,3 +163,7 @@ Reddit user, commenting about Trump on Reddit media, does not understand why inf
 https://old.reddit.com/r/politics/comments/1s9mahx/donald_trumps_presidency_is_in_free_fall/odp9pb0/
 
 SETTLED_FOR_WE_THIS_PATH - top most upvoted popular comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
+
+https://old.reddit.com/r/politics/comments/1s9mahx/donald_trumps_presidency_is_in_free_fall/odpdzou/
+
+13 day Reddit account. 2nd most popular upvoted comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT TRUMP_WEAK_MUSK_WEAK_DO_NOTHING_TO_RESIST_TALKING_POINTS at least someone points out that Trump isn't "weak" or "failing".
