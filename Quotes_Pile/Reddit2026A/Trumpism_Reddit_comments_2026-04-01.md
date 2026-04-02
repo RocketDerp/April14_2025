@@ -188,3 +188,7 @@ https://old.reddit.com/r/Fauxmoi/comments/1safnhd/the_newest_economist_cover_tit
 https://old.reddit.com/r/Fauxmoi/comments/1safnhd/the_newest_economist_cover_titled_never_interrupt/odvtou6/
 
 Egomania nation. MASS_PSYCHOSIS_ABOUNDS 
+
+https://old.reddit.com/r/Fauxmoi/comments/1safnhd/the_newest_economist_cover_titled_never_interrupt/odvfacq/
+
+13 day Reddit account.
