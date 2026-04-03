@@ -264,3 +264,10 @@ UNDERSTANDING_SURKOV_PUTINISM_TRUMPISM_HATE_HILARIOUS SOCIAL_CULT_HATE_WATCHING_
 https://old.reddit.com/r/CuratedTumblr/comments/1savde2/on_hatewatching/odyswk1/
 
 HOW_SURKOV_WON SOCIAL_CULT_HATE_WATCHING_FANDOM MEDIA_CULTS_ADDICTIVE_FICTION
+
+https://old.reddit.com/r/CuratedTumblr/comments/1savde2/on_hatewatching/odyse8x/
+
+https://old.reddit.com/r/CuratedTumblr/comments/1savde2/on_hatewatching/odytxqx/
+
+https://old.reddit.com/r/CuratedTumblr/comments/1savde2/on_hatewatching/odyv83b/
+
