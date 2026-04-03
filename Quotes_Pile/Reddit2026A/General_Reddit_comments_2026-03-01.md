@@ -592,3 +592,5 @@ https://old.reddit.com/r/AITAH/comments/1sawr1x/aitah_for_not_taking_my_friends_
 
 FAKE_DETECTORS 
 
+https://old.reddit.com/r/aivideo/comments/1saxqh9/platform_67_to_dripwarts/odzewd5/
+
