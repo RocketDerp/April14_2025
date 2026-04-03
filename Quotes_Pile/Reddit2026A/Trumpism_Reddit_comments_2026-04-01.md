@@ -291,3 +291,6 @@ https://old.reddit.com/r/politics/comments/1saun8v/is_pete_hegseth_the_dumbest_m
 
 ARE_YOU_SMARTER_THAN_3RD_GRADE_STUDENT_FANDOM_MEASURING
 
+https://old.reddit.com/r/politics/comments/1saun8v/is_pete_hegseth_the_dumbest_man_in_the_trump/odynzzx/
+
+HATE_FOR_HATE Trump leads with hate, Reddit community follows the hate leadership the White House provides.
