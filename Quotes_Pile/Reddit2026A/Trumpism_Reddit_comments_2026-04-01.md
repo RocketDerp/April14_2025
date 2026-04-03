@@ -319,3 +319,15 @@ https://old.reddit.com/r/news/comments/1sazyv4/food_pantry_network_across_the_mi
 
 https://old.reddit.com/r/news/comments/1sazyv4/food_pantry_network_across_the_midwest_abruptly/oe0kxqf/
 
+https://old.reddit.com/r/politics/comments/1sawusq/trump_signs_100_tariff_on_brandname/odz342m/
+
+https://old.reddit.com/r/politics/comments/1sawusq/trump_signs_100_tariff_on_brandname/odz3y9e/
+
+https://old.reddit.com/r/politics/comments/1sawusq/trump_signs_100_tariff_on_brandname/odz385w/
+
+https://old.reddit.com/r/politics/comments/1sawusq/trump_signs_100_tariff_on_brandname/odz46v9/
+
+https://old.reddit.com/r/politics/comments/1sawusq/trump_signs_100_tariff_on_brandname/odz8no9/
+
+https://old.reddit.com/r/politics/comments/1sawusq/trump_signs_100_tariff_on_brandname/odz711n/
+
