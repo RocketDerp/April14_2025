@@ -627,3 +627,7 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1sb0qs2/the_us_made_sure_to
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1sb0qs2/the_us_made_sure_to_kill_any_first_responders_who/oe0751s/
 
 UNIFIED_THEORY_FICTION_NONFICTION
+
+https://old.reddit.com/r/insanepeoplefacebook/comments/1saz46s/this_post_is_not_subtle_at_all_about_the_racism/odznnxm/
+
+UNIFIED_THEORY_FICTION_NONFICTION
