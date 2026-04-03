@@ -311,3 +311,6 @@ https://old.reddit.com/r/whenthe/comments/1sayb5t/it_was_cooked_the_moment_4chan
 
 Understanding why Kamala Harris isn't good enough. SUPERFICIAL_SHALLOW_PRIZING_TRUMPISM_MAGA_VALUES
 
+https://old.reddit.com/r/whenthe/comments/1sayb5t/it_was_cooked_the_moment_4chan_got_involved/odzhiob/
+
+PEOPLE_LOVE_COMEDY_MEDIA_CONTENT_MORE_THAN_PLURIBUS_HUMANISM
