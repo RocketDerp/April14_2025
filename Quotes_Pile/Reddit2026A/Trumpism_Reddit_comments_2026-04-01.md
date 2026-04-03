@@ -336,3 +336,9 @@ https://old.reddit.com/r/politics/comments/1sawusq/trump_signs_100_tariff_on_bra
 https://old.reddit.com/r/nottheonion/comments/1sbd3ec/a_pound_of_ground_beef_now_costs_more_than_the/oe2w8ii/
 
 UNITED_IN_BLAMING_ONE_THIRD_HATE_VS_HATE_ANTI_RESCUE
+
+https://old.reddit.com/r/politics/comments/1sbdxz8/in_private_trump_has_plans_for_unspeakable/oe2ukyg/
+
+https://old.reddit.com/r/politics/comments/1sbdxz8/in_private_trump_has_plans_for_unspeakable/oe2xs7a/
+
+SOUTH_PARK_FAMILY_GUY_SPONGEBOB_THE_APPRENTICE_REALITY_TELEVISION_USA
