@@ -522,3 +522,7 @@ This posting title, front page of Reddit /r/All - is a "give up" command. Lay in
 
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1sbfjd5/iran_embassy_chapter_will_get_the_first_prize_for/oe39omp/
 
+https://old.reddit.com/r/MurderedByWords/comments/1sbimd6/i_support_this_idea/oe3nptk/
+
+This entire Reddit /r/All front page posting is normalizing Trump behavior. It isn't resisting Putinism and Trump leadership, it is cheering it on. Adopting Trump thinking. Morality needs to be reformed, brainwashing and cult deprogramming needs to be what people do instead of cheering on badness. Celebrating bad ideas.
+
