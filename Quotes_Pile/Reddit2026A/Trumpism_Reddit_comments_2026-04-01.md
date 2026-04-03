@@ -286,3 +286,8 @@ MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL
 https://old.reddit.com/r/LinkedInLunatics/comments/1savzu9/how_is_this_allowed_on_linkedin/odz1e61/
 
 MAGA_FANDOM 
+
+https://old.reddit.com/r/politics/comments/1saun8v/is_pete_hegseth_the_dumbest_man_in_the_trump/odyndm7/
+
+ARE_YOU_SMARTER_THAN_3RD_GRADE_STUDENT_FANDOM_MEASURING
+
