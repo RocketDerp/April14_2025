@@ -303,3 +303,6 @@ https://old.reddit.com/r/videos/comments/1sazdwt/trump_when_someone_is_nice_to_m
 
 "insane". AVOIDED_DR_BANDY_X_LEE_PUBLIC_WRITINGS Reddit community is a cult of constantly commenting about Trump instead of asserting Dr. Lee's writings to get everyone on the same page and *remove Trump*.
 
+https://old.reddit.com/r/videos/comments/1sazdwt/trump_when_someone_is_nice_to_me_i_love_that/odznsge/
+
+Why is Reddit community not calling for a REDDIT_BLACKOUT online protest?
