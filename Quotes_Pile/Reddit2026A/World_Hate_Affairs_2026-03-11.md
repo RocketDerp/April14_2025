@@ -623,3 +623,7 @@ https://old.reddit.com/r/HistoricalCapsule/comments/1sagq35/at_just_14_celine_di
 As I've said here: My high school in 1984 freshman year, if you really listened to the hottest girls in school - the ones with the makeup, fashion sense, style - they were not dating boys from high school. But people really don't listen to each other.
 
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1sb0qs2/the_us_made_sure_to_kill_any_first_responders_who/odzz11z/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1sb0qs2/the_us_made_sure_to_kill_any_first_responders_who/oe0751s/
+
+UNIFIED_THEORY_FICTION_NONFICTION
