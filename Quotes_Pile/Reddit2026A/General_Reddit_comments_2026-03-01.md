@@ -594,3 +594,4 @@ FAKE_DETECTORS
 
 https://old.reddit.com/r/aivideo/comments/1saxqh9/platform_67_to_dripwarts/odzewd5/
 
+https://old.reddit.com/r/comics/comments/1sb5fxm/dear_reddit/oe12ynb/
