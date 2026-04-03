@@ -298,3 +298,8 @@ HATE_FOR_HATE Trump leads with hate, Reddit community follows the hate leadershi
 https://old.reddit.com/r/politics/comments/1saun8v/is_pete_hegseth_the_dumbest_man_in_the_trump/odypg44/
 
 Hence the population attraction to Trump. MEASURING_BAR_SO_LOW
+
+https://old.reddit.com/r/videos/comments/1sazdwt/trump_when_someone_is_nice_to_me_i_love_that/odzocz0/
+
+"insane". AVOIDED_DR_BANDY_X_LEE_PUBLIC_WRITINGS Reddit community is a cult of constantly commenting about Trump instead of asserting Dr. Lee's writings to get everyone on the same page and *remove Trump*.
+
