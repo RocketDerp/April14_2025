@@ -331,3 +331,5 @@ https://old.reddit.com/r/politics/comments/1sawusq/trump_signs_100_tariff_on_bra
 
 https://old.reddit.com/r/politics/comments/1sawusq/trump_signs_100_tariff_on_brandname/odz711n/
 
+https://old.reddit.com/r/politics/comments/1sawusq/trump_signs_100_tariff_on_brandname/odzerws/
+
