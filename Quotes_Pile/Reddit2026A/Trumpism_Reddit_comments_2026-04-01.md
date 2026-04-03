@@ -283,3 +283,6 @@ https://old.reddit.com/r/LinkedInLunatics/comments/1savzu9/how_is_this_allowed_o
 
 MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL
 
+https://old.reddit.com/r/LinkedInLunatics/comments/1savzu9/how_is_this_allowed_on_linkedin/odz1e61/
+
+MAGA_FANDOM 
