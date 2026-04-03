@@ -306,3 +306,8 @@ https://old.reddit.com/r/videos/comments/1sazdwt/trump_when_someone_is_nice_to_m
 https://old.reddit.com/r/videos/comments/1sazdwt/trump_when_someone_is_nice_to_me_i_love_that/odznsge/
 
 Why is Reddit community not calling for a REDDIT_BLACKOUT online protest?
+
+https://old.reddit.com/r/whenthe/comments/1sayb5t/it_was_cooked_the_moment_4chan_got_involved/odzi70q/
+
+Understanding why Kamala Harris isn't good enough. SUPERFICIAL_SHALLOW_PRIZING_TRUMPISM_MAGA_VALUES
+
