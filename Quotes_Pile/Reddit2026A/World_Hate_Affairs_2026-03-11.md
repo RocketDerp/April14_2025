@@ -640,3 +640,11 @@ https://old.reddit.com/r/conspiracy/comments/1saza17/theo_von_made_joe_rogan_a_k
 
 https://old.reddit.com/r/conspiracy/comments/1saza17/theo_von_made_joe_rogan_a_known_israel_war_crimes/odzob7v/
 
+https://old.reddit.com/r/justincaseyoumissedit/comments/1sbknia/french_president_macron_calls_on_mediumsized/oe4ua5h/
+
+<img width="1070" height="406" alt="Screenshot from 2026-04-03 14-30-37" src="https://github.com/user-attachments/assets/5b12ada1-9a04-4cf5-ace3-a26571e7c827" />
+
+JOKE_COMEDY_POWER_IS_MAGA_IS_TRUMP_IS_SURKOV
+
+NEW_OPERA_NAME #JokesAboutHow    
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mimoe3imf22s https://autistics.life/@RoundSparrow/116342917970242664 }   
