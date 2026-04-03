@@ -247,3 +247,20 @@ https://old.reddit.com/r/USNEWS/comments/1sawshu/breaking_trump_administration_o
 
 That's the power of Trump. PRIZING_HATE_FURTHERING_HATE WAR_AGAINST_GOODNESS
 
+https://old.reddit.com/r/USNEWS/comments/1sawshu/breaking_trump_administration_orders_dismantling/odzhw7r/
+
+SAFE_DANGER_IN_2017_NONFICTION_BOOK_TITLE
+
+https://old.reddit.com/r/USNEWS/comments/1sawshu/breaking_trump_administration_orders_dismantling/odz5sjh/
+
+https://old.reddit.com/r/CuratedTumblr/comments/1savde2/on_hatewatching/odysbzt/
+
+UNDERSTANDING_SURKOV_PUTINISM_TRUMPISM_HATE_HILARIOUS SOCIAL_CULT_HATE_WATCHING_FANDOM
+
+https://old.reddit.com/r/CuratedTumblr/comments/1savde2/on_hatewatching/odyscmw/
+
+UNDERSTANDING_SURKOV_PUTINISM_TRUMPISM_HATE_HILARIOUS SOCIAL_CULT_HATE_WATCHING_FANDOM
+
+https://old.reddit.com/r/CuratedTumblr/comments/1savde2/on_hatewatching/odyswk1/
+
+HOW_SURKOV_WON SOCIAL_CULT_HATE_WATCHING_FANDOM MEDIA_CULTS_ADDICTIVE_FICTION
