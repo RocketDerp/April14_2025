@@ -241,3 +241,9 @@ BEYOND_DENIAL
 
 https://old.reddit.com/r/worldnews/comments/1satrzn/irgc_attacks_dubai_oracle_data_center_us_fighter/odz42cr/
 
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1sasidj/hegseth_asks_us_army_chief_of_staff_to_retire/odyfuxt/
+
+https://old.reddit.com/r/USNEWS/comments/1sawshu/breaking_trump_administration_orders_dismantling/odz2o3y/
+
+That's the power of Trump. PRIZING_HATE_FURTHERING_HATE WAR_AGAINST_GOODNESS
+
