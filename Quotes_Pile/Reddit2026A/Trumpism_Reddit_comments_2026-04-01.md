@@ -314,3 +314,8 @@ Understanding why Kamala Harris isn't good enough. SUPERFICIAL_SHALLOW_PRIZING_T
 https://old.reddit.com/r/whenthe/comments/1sayb5t/it_was_cooked_the_moment_4chan_got_involved/odzhiob/
 
 PEOPLE_LOVE_COMEDY_MEDIA_CONTENT_MORE_THAN_PLURIBUS_HUMANISM
+
+https://old.reddit.com/r/news/comments/1sazyv4/food_pantry_network_across_the_midwest_abruptly/odzs1x8/
+
+https://old.reddit.com/r/news/comments/1sazyv4/food_pantry_network_across_the_midwest_abruptly/oe0kxqf/
+
