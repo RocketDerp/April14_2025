@@ -271,3 +271,6 @@ https://old.reddit.com/r/CuratedTumblr/comments/1savde2/on_hatewatching/odytxqx/
 
 https://old.reddit.com/r/CuratedTumblr/comments/1savde2/on_hatewatching/odyv83b/
 
+https://old.reddit.com/r/golf/comments/1sau9f8/tiger_woods_called_president_donald_trump_from/odzlded/
+
+STAND_UP_FOR_FAMOUS_CELEBRITY_AND_SOCIALLY_POWERFUL_BIG_GUYS
