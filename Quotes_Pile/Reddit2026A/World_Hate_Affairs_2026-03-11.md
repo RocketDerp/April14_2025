@@ -507,3 +507,136 @@ https://old.reddit.com/r/Fauxmoi/comments/1s5imjv/trump_cubas_next_by_the_way_bu
 
 Comedy and jokes always fix problems and are the most important thing, according to ignorant USA population. AMUSEMENT_COMEDY_WASHING_TRUMP_AS_FUNNY_MEDIA_SANEWASHING 
 
+https://old.reddit.com/r/worldnews/comments/1s5ix0v/canada_will_cancel_thousands_of_refugee_claims/ocv57wb/
+
+https://old.reddit.com/r/worldnews/comments/1s5ix0v/canada_will_cancel_thousands_of_refugee_claims/ocv3q1l/
+
+Mocking.
+
+https://old.reddit.com/r/worldnews/comments/1s5ix0v/canada_will_cancel_thousands_of_refugee_claims/ocwqwro/
+
+https://old.reddit.com/r/worldnews/comments/1s5ix0v/canada_will_cancel_thousands_of_refugee_claims/ocw3u53/
+
+https://old.reddit.com/r/worldnews/comments/1s5ix0v/canada_will_cancel_thousands_of_refugee_claims/ocwg95l/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1s5zus1/make_it_the_only_condition_and_see_who_rejects_it/ocydk82/
+
+UNDERSTANDING_TRUMPISM Surkov information warfare is incredibly popular, as is Trump's fiction creation. Hate of Trump is popular. Popularity itself is always more nonsense. FICTION_HARDER 
+
+https://old.reddit.com/r/Fauxmoi/comments/1s62chc/tweet_resurfaces_of_daredevil_actor_wilson_bethel/ocyv237/
+
+LEVANT_MONOMYTH_CRISIS LEVANT_MYTH_INVERTED
+
+Deuteronomy 20:16 "However, in the cities of the nations the LORD your God is giving you as an inheritance, do not leave alive anything that breathes. Completely destroy them!" #Torah 
+
+NEW_OPERA_NAME #LevantTradition    
+Social post { https://autistics.life/@RoundSparrow/116307906397555424 https://bsky.app/profile/roundsparrow.bsky.social/post/3mi54tnpfoc2q }    
+
+https://old.reddit.com/r/videos/comments/1s68g3a/rachel_corrie_talking_about_humanity_she_was/od06w5p/
+
+LEVANT_MYTH_INVERTED
+
+https://old.reddit.com/r/news/comments/1s6h6dp/pentagon_preparing_for_weeks_of_ground_operations/od1xcvo/
+
+ARAB_SPRING_2010 - but then 2013 the Internet Research Agency and Cambridge Analytica.
+
+https://old.reddit.com/r/news/comments/1s6h6dp/pentagon_preparing_for_weeks_of_ground_operations/od1x1tq/
+
+BRAIN_ROT_SOCIETY_47 
+
+https://old.reddit.com/r/justincaseyoumissedit/comments/1s6nmo6/israel_is_witnessing_largest_antiwar_protests_in/od3axtv/
+
+Deuteronomy 20:16 "However, in the cities of the nations the LORD your God is giving you as an inheritance, do not leave alive anything that breathes. Completely destroy them!" - Torah LEVANT_MONOMYTH_CRISIS LEVANT_MYTH_INVERTED
+
+https://old.reddit.com/r/europe/comments/1s6s4yi/moscow_represents_corruption_and_violence_not/od422cn/
+
+GULLIBILITY_CRISIS MAXIMUM_PUTINIZATION CONSERVING_WHAT 
+
+Social post { https://autistics.life/@RoundSparrow/116312966616922920 https://bsky.app/profile/roundsparrow.bsky.social/post/3mi7epxqdls2g }    
+
+https://old.reddit.com/r/news/comments/1s6z10f/israeli_police_prevent_catholic_leaders_from/od5uh76/
+
+World Hate Affairs. Palm Sunday. LEVANT_MONOMYTH_CRISIS
+
+Social post { https://autistics.life/@RoundSparrow/116313697574472762 https://bsky.app/profile/roundsparrow.bsky.social/post/3mi7p4igd322y }    
+
+https://old.reddit.com/r/worldnews/comments/1s7xot7/trump_threatens_to_blow_up_all_water_desalination/odcof4j/
+
+Trump Fandom loves joke-washing Trump antics. Fast on the social media system Reddit with these early comments. SATIRE_SARCASM_WASHING BANAL_WASH_LAUGH_TRACK Trump fandom commenting on Reddit.
+
+NEW_OPERA_NAME #TrumpThreatensTo    
+Social post { https://autistics.life/@RoundSparrow/116319737184023701 https://bsky.app/profile/roundsparrow.bsky.social/post/3micevfozbs2a }    
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1s81y7v/we_didnt_like_what_you_had_to_say_so_we_had_you/oddl5qg/
+
+It's the worst MINDSETS on the planet. REMEDIAL_MORALITY LEVANT_MONOMYTH_CRISIS
+
+NEW_OPERA_NAME #SurkovStage19    
+Social post { https://autistics.life/@RoundSparrow/116320517928853807 https://bsky.app/profile/roundsparrow.bsky.social/post/3micpxdl2kc2z }    
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1s81y7v/we_didnt_like_what_you_had_to_say_so_we_had_you/oddmn68/
+
+DECEMBER_5_2014_NATO_JOKE_ARTICLE_5_JOKE
+
+https://old.reddit.com/r/europe/comments/1s8jfoo/leaked_calls_expose_hungary_and_slovakia_as/odh58a8/
+
+Now look at the Reddit audience. People think Trump is only Trump. When again and again the Putin anti-NATO behaviors show up in multiple nations. Not just USA, not jut GOG. DENIAL_ABOUNDS DECEMBER_5_2014_NATO_JOKE_ARTICLE_5_JOKE This has nothing to do with "Epstein Files" and all the Reddit society attitudes towards Trump. Yet, people won't discuss Surkov media techniques, Russian information airfare other than the most simplistic "bots" words.
+
+https://old.reddit.com/r/worldnews/comments/1s8lnr7/trump_warns_uk_us_wont_be_there_to_help_you/odhm772/
+
+DECEMBER_5_2014_NATO_JOKE_ARTICLE_5_JOKE
+
+https://old.reddit.com/r/justincaseyoumissedit/comments/1s9b5kp/i_accuse_israel_of_crossing_the_red_line_i/odn4039/
+
+https://old.reddit.com/r/videos/comments/1s9z2z5/iranian_president_pezeshkians_letter_addresses/ods1wme/
+
+1 month Reddit account. Top most popular upvoted comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT. World Hate Affairs.
+
+https://old.reddit.com/r/videos/comments/1s9z2z5/iranian_president_pezeshkians_letter_addresses/odsz0tk/
+
+https://old.reddit.com/r/politics/comments/1sa3v5t/trump_threatens_to_hit_iran_extremely_hard_over/odt11bv/
+
+Entertainment television show. AMUSEMENT_AS_USUAL
+
+https://old.reddit.com/r/politics/comments/1sa3v5t/trump_threatens_to_hit_iran_extremely_hard_over/odt2vv4/
+
+https://old.reddit.com/r/politics/comments/1sa3v5t/trump_threatens_to_hit_iran_extremely_hard_over/odt7jy7/
+
+6 month Reddit account.
+
+https://old.reddit.com/r/politics/comments/1sa3v5t/trump_threatens_to_hit_iran_extremely_hard_over/odt3chs/
+
+9 month Reddit account. ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING
+
+https://old.reddit.com/r/politics/comments/1sa3v5t/trump_threatens_to_hit_iran_extremely_hard_over/odt2e8m/
+
+MASS_DEHUMANIZATION_POPULAR is what it means. Mass dehumanization with modern computer technology, like Reddit cloud computing technology, vs. "stone age".
+
+https://old.reddit.com/r/HistoricalCapsule/comments/1sagq35/at_just_14_celine_dion_sits_across_from_her/odvq569/
+
+World Power Affairs. World Grooming Affairs. It shocks many people to find that arranged marriages actually work. I lived in the house of an arranged marriage, my father and mother in law. ARRANGED_MARRIAGE
+
+https://old.reddit.com/r/HistoricalCapsule/comments/1sagq35/at_just_14_celine_dion_sits_across_from_her/odvsbul/
+
+https://old.reddit.com/r/HistoricalCapsule/comments/1sagq35/at_just_14_celine_dion_sits_across_from_her/odvl6ag/
+
+As I've said here: My high school in 1984 freshman year, if you really listened to the hottest girls in school - the ones with the makeup, fashion sense, style - they were not dating boys from high school. But people really don't listen to each other.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1sb0qs2/the_us_made_sure_to_kill_any_first_responders_who/odzz11z/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1sb0qs2/the_us_made_sure_to_kill_any_first_responders_who/oe0751s/
+
+UNIFIED_THEORY_FICTION_NONFICTION
+
+https://old.reddit.com/r/insanepeoplefacebook/comments/1saz46s/this_post_is_not_subtle_at_all_about_the_racism/odznnxm/
+
+UNIFIED_THEORY_FICTION_NONFICTION
+
+https://old.reddit.com/r/conspiracy/comments/1saza17/theo_von_made_joe_rogan_a_known_israel_war_crimes/odzovbr/
+
+https://old.reddit.com/r/conspiracy/comments/1saza17/theo_von_made_joe_rogan_a_known_israel_war_crimes/odzsubs/
+
+https://old.reddit.com/r/conspiracy/comments/1saza17/theo_von_made_joe_rogan_a_known_israel_war_crimes/odzppqo/
+
+https://old.reddit.com/r/conspiracy/comments/1saza17/theo_von_made_joe_rogan_a_known_israel_war_crimes/odzob7v/
+

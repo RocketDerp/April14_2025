@@ -82,3 +82,15 @@ https://autistics.life/@RoundSparrow/116206838818150711
 
 https://autistics.life/@RoundSparrow/116257105407262117   
 https://bsky.app/profile/roundsparrow.bsky.social/post/3mhgkvyzsg22x   
+
+&nbsp;
+
+# Sunday March 29, 2026
+
+https://bsky.app/profile/roundsparrow.bsky.social/post/3mi7fnictnc2g    
+https://autistics.life/@RoundSparrow/116313026454381529   
+
+NEW_OPERA_NAME #AmericasDemise    
+https://autistics.life/@RoundSparrow/116313111999740923    
+https://bsky.app/profile/roundsparrow.bsky.social/post/3mi7gqwbfks2h   
+https://midwest.social/post/45293905   

@@ -786,3 +786,204 @@ Fandoms on Reddit who always want more Trump. Always avoiding Dr. Bandy X Lee an
 https://old.reddit.com/r/LeopardsAteMyFace/comments/1s5m401/the_karma_of_kash_patel_firing_fbi_counter_intel/ocvk2ax/
 
 Good to see 1995 quote invoked. As for the title images and posting: UNDERSTANDING_SURKOV_PUTINISM_TRUMPISM_HATE_HILARIOUS
+
+https://old.reddit.com/r/Fauxmoi/comments/1s5mbi7/president_trump_perfectly_describes_his/ocvmjy4/
+
+"and people laughed." TRUMP_CHARMING_ACTOR_ACTING Neil Postman 1985. CORE_CONCERNS LIBERAL_LAUGHS_LIBERAL_TEARS_COMPULSIVE_MAGA_FOLLOWERS people keep hearing "liberal tears" and do not observe the "liberal LOL, Trump so dumb, ha ha ha" constantly for 11 years.
+
+https://old.reddit.com/r/Fauxmoi/comments/1s5mbi7/president_trump_perfectly_describes_his/ocvmdct/
+
+10 month Reddit account. as programmed by billionaires: HATE_HARDER messages. 2nd most popular upvoted comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+
+https://old.reddit.com/r/Fauxmoi/comments/1s5mbi7/president_trump_perfectly_describes_his/ocvmjty/
+
+Reddit audience: "LOL". BANAL_WASH_LAUGH_TRACK
+
+https://old.reddit.com/r/worldnews/comments/1s5p1dy/us_may_deploy_up_to_17000_troops_near_iran_as_war/ocwawik/
+
+Surkov won. The brain rot problem is every day all day, not just President, not just voting days. Anti-reality ideas from media sources. People fixate on elections and ignore the brain rot, people ignore Jen Senko's intelligent leadership since year 2015. ELECTION_DAY_FIXATED_BRAIN_ROT_EVERY_DAY_FOX_NEWS_ETC
+
+https://old.reddit.com/r/worldnews/comments/1s5ix0v/canada_will_cancel_thousands_of_refugee_claims/ocxfr1q/
+
+https://old.reddit.com/r/worldnews/comments/1s5ix0v/canada_will_cancel_thousands_of_refugee_claims/ocwbmkt/
+
+sane-washing ICE.
+
+https://old.reddit.com/r/nottheonion/comments/1s604lz/white_house_launches_onlyfarms_website_internet/ocy9rhx/
+
+THIS_GITHUB CORE_CONCERNS is Neil Postman's 1985 book, "Amusing Ourselves To Death" about Twitter and Reddit media ecology mindsets. WHITE_HOUSE_HYPER_REAL the popularity of ignorance.
+
+https://old.reddit.com/r/PoliticalHumor/comments/1s5xhlm/a_fitting_allegory/ocxslvn/
+
+Yha, the toxic clergy teaches: There is team Satan, team Evil, and it's a perfect valid choice as Jesus created evil! Good or evil, pick your favorite team bi-polar stupid-shit logic. TOXIC_CLERGY LEVANT_MYTH_INVERTED
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mi564pzznk2v https://autistics.life/@RoundSparrow/116308000987600590 }    
+
+https://old.reddit.com/r/PoliticalHumor/comments/1s5xhlm/a_fitting_allegory/ocy45lm/
+
+Reddit commenting is always cheering on more and more dumb. IGNORANCE_CELEBRATIONS
+
+https://old.reddit.com/r/Fauxmoi/comments/1s65vig/bill_nye_the_science_guy_being_interviewed_at_the/oczjcmk/
+
+Bill Nye's comments are about how normal has shifted. Surkov won. SUPER_HYPER_NORMAL
+
+https://old.reddit.com/r/Fauxmoi/comments/1s65vig/bill_nye_the_science_guy_being_interviewed_at_the/od05bdu/
+
+yep. Sagan's books failed, Neil Postman's books failed, Andrew Postman failed. Nothing can defeat the Surkov techniques. Meme addicts will not turn to intelligent leaders Jen Senko and Dr. Bandy X Lee. Surkov won. Joe Rogan, Reddit joke-cracking joke-washing won. ADULT_EDUCATION_CRISIS_USA_ADULT_LEARNING_EMERGENCY
+
+https://old.reddit.com/r/DeepMarketScan/comments/1s6cbit/trump_we_call_it_a_military_operation_not_a_war/od0vv1c/
+
+year 2014: NEW_SYSTEM_POLITICAL_CONTROL
+
+https://old.reddit.com/r/politics/comments/1s68iyh/king_trump_79_suffers_another_worldwide/od03q2t/
+
+ENTERTAINED_JUST_PASSIVELY_WATCHING_UNTIL_DEATH_NO_SOCIAL_MEDIA_UPRISING_WHILE_ALIVE
+
+https://old.reddit.com/r/politics/comments/1s68iyh/king_trump_79_suffers_another_worldwide/od027hf/
+
+Next year, 2027. ROUTINE_NO_NEED_TO_RESIST_OR_ORGANIZE_INTELLECTUAL_UPRISING
+
+https://old.reddit.com/r/politics/comments/1s6gwf4/jd_vance_says_maga_has_fewer_dorks_than_far_left/od1unyu/
+
+https://old.reddit.com/r/politics/comments/1s62f1n/trump_says_you_can_ask_me_anything_you_want_you/ocyqzvn/
+
+1 month Reddit account. Top most upvoted popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+
+https://old.reddit.com/r/politics/comments/1s62f1n/trump_says_you_can_ask_me_anything_you_want_you/ocyr3re/
+
+Media reality people. MEDIA_CULTS_FICTION_FANDOM_MEDIA_POWER TV star, "The Apprentice"
+
+https://old.reddit.com/r/Fauxmoi/comments/1s6jkg6/john_waters_at_the_no_kings_protest_in/od2l7gi/
+
+Yes. It is horrible that the Internet commenting creation community on Bluesky, Reddit, Mastodon, Lemmy, etc - is not doing blackouts. Taking on Fox News in repeating repeat name-drops of Jen Senko. In 2015, Jen Senko wasn't that old, now she is age 71 https://en.wikipedia.org/wiki/Jen_Senko SOCIAL_MEDIA_DID_NOT_HAVE_UPRISING_SUSTAINED_FOCUSED - and Dr. Bandy X Lee instead of all the anti-intellectual casual claims of Trump as "dementia" causing harm to people.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1s6s0t0/we_hate_trump_because_hes_a_pedophile/od41jtc/
+
+This made it to the front page of Reddit because of hate motivation. Hate-based leadership ideals. FAITH_IN_HATE
+
+https://old.reddit.com/r/pics/comments/1s6s39d/no_kings_rally/od432op/
+
+I sure hope people come to understand machine dehumanization and hate, created by social machines, that the Saint Petersburg Internet Research Agency seeded and cultivated since year 2013. PRIZING_HATE_FURTHERING_HATE UNDERSTANDING_TRUMPISM - Sunday morning comments. All avoiding THE_1954_EQUATION - blowing minds out on hate signs, hate messages, hate symbolism. All avoiding Dr. Bandy X Lee educated-based understanding-based leadership.
+
+Social post { https://autistics.life/@RoundSparrow/116312830456681029 https://bsky.app/profile/roundsparrow.bsky.social/post/3mi7csh7usk2l }    
+
+https://old.reddit.com/r/SipsTea/comments/1s6x992/ericas_own_daughter_agrees_druskys_impersonation/od557zw/
+
+The top-most upvoted popular comment. FAITH_IN_MOCKERY REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING MAGA_FANDOM This is Reddit Kirk and MAGA fandom that loves the entertainment and does not want to promote Dr. Bandy X Lee smart intelligent leadership to put in an end to the source of constant amusement (MAGA being the source). REPUBLICANS_LEAD_WITH_IGNORANCE_IDEAS_AND_FOLLOWERS_REPLY_WITH_IGNORANCE KIRK_FANDOM Reddit is a media cult venue for MAGA and Kirk content. SOCIAL_CULT_HATE_WATCHING_FANDOM
+
+https://old.reddit.com/r/videos/comments/1s6vi52/us_president_donald_trump_said_he_will_refer_to/od4qx7p/
+
+TRUMP_TRUSTS_PUTIN PLEASE_HELP_RESCUE Trump, Rescue Trump, from Putin. DECEMBER_5_2014_NATO_JOKE_ARTICLE_5_JOKE
+
+https://old.reddit.com/r/Dallas/comments/1s6wpnk/outside_of_first_baptist_church_this_morning/od50vxs/
+
+LEVANT_MYTH_INVERTED BIBLE_LITERACY 
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mia2aji3e223 https://autistics.life/@RoundSparrow/116314481106278986 }   
+
+https://old.reddit.com/r/LosAngeles/comments/1s71dfy/ironic_and_iconic/od69d97/
+
+Social post { https://autistics.life/@RoundSparrow/116314520345770241 https://bsky.app/profile/roundsparrow.bsky.social/post/3mia2sbqavs23 }    
+
+https://old.reddit.com/r/LosAngeles/comments/1s71dfy/ironic_and_iconic/od6lbbg/
+
+https://old.reddit.com/r/politics/comments/1s71nyk/there_are_now_over_50000_american_troops_in_the/od682ts/
+
+https://old.reddit.com/r/politics/comments/1s71nyk/there_are_now_over_50000_american_troops_in_the/od72ua2/
+
+https://old.reddit.com/r/politics/comments/1s71nyk/there_are_now_over_50000_american_troops_in_the/od662jo/
+
+https://old.reddit.com/r/politics/comments/1s71nyk/there_are_now_over_50000_american_troops_in_the/od65i4c/
+
+SOCIAL_MEDIA_DID_NOT_HAVE_UPRISING_SUSTAINED_FOCUSED - no Reddit blackout, no halting of entertainment and amusements. No tone of serious, always a tone of LOL mocking MAGA. Drunk on memes attitude, not a "sober up" turn to Dr. Bandy X Lee.
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mia5swmedc2x https://autistics.life/@RoundSparrow/116314733846824499 }   
+
+https://old.reddit.com/r/politics/comments/1s71nyk/there_are_now_over_50000_american_troops_in_the/od6mh0n/
+
+<img width="977" height="569" alt="image" src="https://github.com/user-attachments/assets/a6ae1faa-4d7d-420a-8a7c-8cfe518edb16" />
+
+HATE_MOTIVATED_ECONOMY_HATE_AS_A_VIRTUE_SIGNALING
+
+NEW_OPERA_NAME #HistoryBooksWill #BecauseOfHate    
+Social post { https://autistics.life/@RoundSparrow/116314775173067932 https://bsky.app/profile/roundsparrow.bsky.social/post/3mia6gnbbfc2x }    
+
+https://old.reddit.com/r/politics/comments/1s71nyk/there_are_now_over_50000_american_troops_in_the/od6l32y/
+
+https://old.reddit.com/r/Economics/comments/1s704ey/trump_declared_inflation_defeated_now_the_us_is/od5res3/
+
+10 day Reddit account. Top most upvoted popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT SELF_HARM_USA 
+
+https://old.reddit.com/r/politics/comments/1s757k3/pentagon_petes_jesus_war_talk_freaks_out_troops/od6vksx/
+
+TALIBAN_VALUES
+
+https://old.reddit.com/r/politics/comments/1s73r3t/trump_ballroom_trashed_over_its_humiliating/od6rv9d/
+
+Dr. Bandy X Lee ignored and not repeated on social media. SAFE_DANGER_IN_2017_NONFICTION_BOOK_TITLE
+
+Social post { https://autistics.life/@RoundSparrow/116315638044467883 https://bsky.app/profile/roundsparrow.bsky.social/post/3miakppllk22g }    
+
+https://old.reddit.com/r/JournalismNews/comments/1s78u12/us_marines_are_being_sent_on_a_suicide_mission/od7ukxk/
+
+It is the avoidance of goodness by EVERYONE, the entire population that's notable. NOT_GOOD_ENOUGH Dr. Bandy X Lee avoidance, Jen Senko avoidance.
+
+https://old.reddit.com/r/todayilearned/comments/1s7pjdh/til_about_the_majority_illusion_a_condition_where/odaxjfw/
+
+Since people do not take seriously media ecology of Neil Postman and Marshall McLuhan (both dead now, but books are still around)... people think this is only Reddit! EVERYTHING_IS_MEDIA_ECOLOGY and note this is the most popular upvoted comment. Declaring it a source of comedy, amusement, that people are not self-aware of the conflicts caused by common sources of external media. UNDERSTANDING_SURKOV_PUTINISM_TRUMPISM_HATE_HILARIOUS people on Reddit do not show any concern if this observation can be weaponized and is the bases of modern information warfare.
+
+https://old.reddit.com/r/nottheonion/comments/1s7u22o/mtg_turns_on_fox_news_ex_rep_says_channel_is/odbyd59/
+
+POST_TRUMP needs to turn into POST_SURKOV SEE_ALSO https://github.com/RocketDerp/April14_2025/tree/main/Art/ScreenPlay/Post_Surkov MEDIA_WOKE 
+
+Social post { https://autistics.life/@RoundSparrow/116319145577922976 https://bsky.app/profile/roundsparrow.bsky.social/post/3mic4ivm7gk2g }    
+
+https://old.reddit.com/r/antiwork/comments/1s7xrvd/this_was_drawn_134_years_ago_seems_familiar/odcoizz/
+
+NEW_OPERA_NAME #BusinessSuitPrivilege #BusinessSuitArmor #Chicago1894     
+Social post { https://autistics.life/@RoundSparrow/116320052023118286 https://bsky.app/profile/roundsparrow.bsky.social/post/3micjf6h74c2c }    
+
+https://old.reddit.com/r/politics/comments/1s7svf3/trump_military_building_a_massive_complex_under/odbvpe2/
+
+This is my view. These kind of projects take years and years. Like Air Force One takes years and years. The only thing this underground project is about is creating news events. Trump would probably be better to just move himself out of the white house. He already wrecked the rose garden. It would be even more maverick to move supreme leader to some place entirely outside of a city and she he has broken tradition. 
+
+https://old.reddit.com/r/politics/comments/1s8l227/unflattering_photo_yanked_after_karoline_leavitt/odhkhif/
+
+https://old.reddit.com/r/politics/comments/1s8eghy/america_is_now_a_rogue_superpower/odgjf12/
+
+<img width="1211" height="623" alt="image" src="https://github.com/user-attachments/assets/8b36bbc2-b4a5-411a-92a7-e27222361d1d" />
+
+DANGER_ALERT_CALL_TO_INTELLECTUAL_ARMS_BOOK_CRAM_SESSIONS
+
+Social post { https://autistics.life/@RoundSparrow/116324201679856691 https://bsky.app/profile/roundsparrow.bsky.social/post/3mieeea2scc27 }    
+
+https://old.reddit.com/r/politics/comments/1s8eghy/america_is_now_a_rogue_superpower/odglwc8/
+
+<img width="1235" height="363" alt="image" src="https://github.com/user-attachments/assets/576ccca0-d77c-4f89-89fc-e2a06b459478" />
+
+Social post { https://autistics.life/@RoundSparrow/116324225681396245 https://bsky.app/profile/roundsparrow.bsky.social/post/3mieepc3pos2p }   
+
+https://old.reddit.com/r/politics/comments/1s8jpav/never_mind_leading_the_free_world_if_donald_trump/odh6ib0/
+
+MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL
+
+https://old.reddit.com/r/therewasanattempt/comments/1s8yzum/to_act_like_a_normal_president_or_even_a_normal/odkhx6d/
+
+FANATICS_FANS_OF_CLOWNS_FANS_OF_MAGA_CLOWNING
+
+https://old.reddit.com/r/therewasanattempt/comments/1s8yzum/to_act_like_a_normal_president_or_even_a_normal/odkjai3/
+
+Yes. It is the outcome of brain rot Reddit, Twitter, Bluesky, etc. ENJOYMENT_OF_TRUMP_AND_MAGA_VALUES The avoidance of Dr. Bandy X Lee and Jen Senko by Reddit commenting community should be observed.
+
+https://old.reddit.com/r/therewasanattempt/comments/1s8yzum/to_act_like_a_normal_president_or_even_a_normal/odkjkd8/
+
+No, everyone is sharing video clips and watching them, like this very video clip on Reddit. Why isn't Reddit community having a blackout and promoting Dr. Bandy X Lee? REDDIT_BLACKOUT  
+
+https://old.reddit.com/r/therewasanattempt/comments/1s8yzum/to_act_like_a_normal_president_or_even_a_normal/odkn3pk/
+
+It works. Blows minds on Reddit. People all avoid Dr. Bandy X Lee. MIND_BLOWN_BY People won't engage relevant nonfiction learning about Surkov. Without self-awareness of 2011, 2012, 2013 Surkov learning and February 2014 Ukraine hot war... it doesn't make sense to people. OUTSMARTED_TRICKED_MANIPULATED_BAMBOOZLED_BY_TRUMP_MURDOCH_PUTIN
+
+https://old.reddit.com/r/therewasanattempt/comments/1s8yzum/to_act_like_a_normal_president_or_even_a_normal/odknbnu/
+
+People won't stop their sports games, gaming, video games, entertainment addictions and call for people to be serious about important topics. DANGER_ALERT_CALL_TO_INTELLECTUAL_ARMS_BOOK_CRAM_SESSIONS
+

@@ -485,3 +485,113 @@ https://old.reddit.com/r/Whatcouldgowrong/comments/1s4mtxn/running_a_red_light/o
 FAKE_DETECTORS WIDE_RADICAL_DOUBT_ABOUT_REAL
 
 https://old.reddit.com/r/stopdrinking/comments/1s4lhd4/woke_up_to_a_corpse/ocom4au/
+
+https://old.reddit.com/r/mildyinteresting/comments/1s5hksc/kelly_osbourne_is_becoming_emaciated/ocvr23p/
+
+https://old.reddit.com/r/AskReddit/comments/1s5cffe/what_is_a_socially_mandatory_thing_that_we_all_do/ocv3lyn/
+
+https://old.reddit.com/r/AskReddit/comments/1s5cffe/what_is_a_socially_mandatory_thing_that_we_all_do/octqpnm/
+
+IGNORANCE_CELEBRATIONS
+
+https://old.reddit.com/r/AskReddit/comments/1s5cffe/what_is_a_socially_mandatory_thing_that_we_all_do/ocu66kn/
+
+Pretty much age 15 to age 45. Before I knew of autism at age 38. Sensory overload, quiet mornings. Good for dial-up BBS systems not being busy / when available. Before-school work. During the Arab Spring, friends and wife were on Paris time zone in Africa.
+
+https://old.reddit.com/r/AskReddit/comments/1s5cffe/what_is_a_socially_mandatory_thing_that_we_all_do/octu2pj/
+
+Anti-compassion anti-education society. It is in the interest of every person on earth to open-source medical education and knowledge. Incentive is built-in friends and family having better treatment. CALL_TO_INTELLECTUAL_ACTION_PLAN
+
+https://old.reddit.com/r/LivestreamFail/comments/1s62req/twitch_streamer_musa_usa_who_runs_a_hot_dog_stand/ocytyku/
+
+MEDIA_ECOLOGY_OBSERVATION
+
+https://old.reddit.com/r/LivestreamFail/comments/1s62req/twitch_streamer_musa_usa_who_runs_a_hot_dog_stand/ocywlg4/
+
+PROMOTING_IGNORANCE_WORKS_PLAYING_DUMB_MOCKING
+
+https://old.reddit.com/r/LivestreamFail/comments/1s62req/twitch_streamer_musa_usa_who_runs_a_hot_dog_stand/ocywd65/
+
+LOADED_QUESTION if you understand the MASS_MIND MASS_MAN of media (society mob mentality). The weight of the camera. The weight of the police recording. The media is the massage. Alas NOT_GOOD_ENOUGH Marshall McLuhan to understand the media situation. TREND_CHASING_MEDIA_TRENDING
+
+Racism is a real crisis, the Donald Trump hate-watcher fandom that promotes hate constantly in the name of entertainment. This has put racism at the center of every day media, sexism, mass dehumanization via Trump popularity. TOXIC_POPULARITY
+
+https://old.reddit.com/r/LivestreamFail/comments/1s62req/twitch_streamer_musa_usa_who_runs_a_hot_dog_stand/ocz0ffu/
+
+BABEL_TOWER language battles. 
+
+https://old.reddit.com/r/LivestreamFail/comments/1s62req/twitch_streamer_musa_usa_who_runs_a_hot_dog_stand/ocz083e/
+
+The "real problem" on Reddit subreddit. High-speed reactionary mindsets and entertainment thinking. Neil Postman's 1985 book "Amusing Ourselves To Death". HIGH_SPEED_REACTIONARY_MINDSETS
+
+https://old.reddit.com/r/LivestreamFail/comments/1s62req/twitch_streamer_musa_usa_who_runs_a_hot_dog_stand/ocz5m09/
+
+Ahh, the rape mentality of women being dressed to be robbed. TECH_LUST_TECH_LOVERS technical location. The camera overrides location. Basically a society honey-pot at this point. A citizen sting operation.
+
+https://old.reddit.com/r/LivestreamFail/comments/1s62req/twitch_streamer_musa_usa_who_runs_a_hot_dog_stand/ocz28k6/
+
+"never been blocked so fast" BLOCK_HAPPY_DEPORT_HAPPY_SILENCE_POOR_PEOPLE_SILENCE_UPPITY
+
+https://old.reddit.com/r/todayilearned/comments/1s656kd/til_a_swedish_milk_vendor_named_pilt_carin/od0by35/
+
+MEDIA_ECOLOGY_OBSERVATION
+
+OPERA_A The Tubes. https://www.youtube.com/watch?v=mQ_k_VG6Syc
+
+https://old.reddit.com/r/worldnews/comments/1s6e3fp/humpback_whale_stranded_again_off_german_coast/od23vaw/
+
+Fiction Television addicts, like "The Apprentice" addicts, all over USA who want to promote famous actors constantly. Any topic, in with their Jesus Bible quotes or other fictions stories they are addicted to. MEDIA_CULTS_ADDICTIVE_FICTION
+
+https://old.reddit.com/r/todayilearned/comments/1s6udta/til_aristotle_wrote_that_women_are_deformed_males/od4lrht/
+
+COMPREHENDING_UNDERSTANDING ASSERT_MALALA 
+
+Social post { https://autistics.life/@RoundSparrow/116313181709481239 https://bsky.app/profile/roundsparrow.bsky.social/post/3mi7hsjlses2h }    
+
+https://old.reddit.com/r/explainitpeter/comments/1s78gxz/explain_it_peter/od7l6ii/
+
+I was an IT professional from age 15. Age 40, severe burnout. Having zero children helped. WOKE_TO_WHAT
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1s7oiyu/petah_what_does_tomii_mean/odavcb6/
+
+BABEL_TOWER CONCERNS_OF_FINNEGANS 
+
+https://old.reddit.com/r/funny/comments/1s7y8b7/dont_do_that_dont_do_that/oddwzng/
+
+Eternal loneliness? Nah. If it's Russia, Afghanistan (war with Pakistan), USA, Iran, Israel, Palestine - you will start warfare and promote hate and flock to liars as leaders... and history. No, plenty of men with children and wives decide killing is fun sport and to avoid any kind of preachy lecturing about peace and goodness.
+
+https://old.reddit.com/r/funny/comments/1s7y8b7/dont_do_that_dont_do_that/oddf9zp/
+
+That's why Trump and Surkov students mock everything. The ultimate friendship bond. out-group mockery, inside connection. OUT_GROUP_HATE
+
+https://old.reddit.com/r/funny/comments/1s7y8b7/dont_do_that_dont_do_that/odd28nu/
+
+MEDIA_ECOLOGY_OBSERVATION
+
+https://old.reddit.com/r/nottheonion/comments/1s8ninh/paul_mccartney_banned_from_reddit_after_posting/odi0040/
+
+BLOCK_HAPPY_DEPORT_HAPPY_SILENCE_POOR_PEOPLE_SILENCE_UPPITY John Lennon Bagism. https://en.wikipedia.org/wiki/Bagism
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1s8m9y7/peter_whats_up_with_the_tower/odhq9zc/
+
+THIS_GITHUB CORE_CONCERNS BABEL_TOWER CONCERNS_OF_FINNEGANS 
+
+Social post { https://autistics.life/@RoundSparrow/116325009898385019 https://bsky.app/profile/roundsparrow.bsky.social/post/3miepwmbckc2v }    
+
+https://old.reddit.com/r/books/comments/1s9mbt5/sweden_goes_back_to_basics_swapping_screens_for/odpao4u/
+
+BRAIN_ROT_SOCIETY_47 NOT_GOOD_ENOUGH Neil Postman had so much to say about classroom and computers that has been forgotten.
+
+https://old.reddit.com/r/pcmasterrace/comments/1s9nih4/gabe_newell_stepped_back_from_making_games_at/odpn0l3/
+
+Understanding Donald Trump's impact on audiences. BILLIONAIRE_MIND_VIRUS "As of early 2025, Gabe Newell's net worth is estimated at approximately $11 billion."
+
+https://old.reddit.com/r/mildlyinteresting/comments/1sa4rjp/my_child_and_i_agree_on_what_to_name_these_but/odtdsop/
+
+https://old.reddit.com/r/AITAH/comments/1sawr1x/aitah_for_not_taking_my_friends_kids_last_minute/odz7rgb/
+
+FAKE_DETECTORS 
+
+https://old.reddit.com/r/aivideo/comments/1saxqh9/platform_67_to_dripwarts/odzewd5/
+
+https://old.reddit.com/r/comics/comments/1sb5fxm/dear_reddit/oe12ynb/

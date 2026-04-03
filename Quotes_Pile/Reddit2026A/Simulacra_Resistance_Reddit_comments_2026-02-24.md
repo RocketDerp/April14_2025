@@ -478,3 +478,47 @@ The "MOST IRONIC IN HISTORY!" - yes, because it blows the mind of touch device s
 https://old.reddit.com/r/dankmemes/comments/1s46kyb/absolute_cinema/ockpj0a/
 
 This whole post, about electing Barack Obama again... is pro-ignorance. PROMOTING_SAVIOR_SINGLE_PERSON_OVER_DIVERSE_OPEN_THINKING_IDEAS
+
+https://old.reddit.com/r/IThinkYouShouldLeave/comments/1s66r2w/her_husband_just_like_wasnt_important_like_he/oczp5uh/
+
+The image of the Reddit posting. KIRK_FANDOM right before Easter, at the start of Spring, the Reddit fandom is playing right into the game. Celebrating the life of Charlie Kirk with fireworks and cheering. Not hate. MAGA_FANDOM 
+
+* "the whole story of the crucifixion, which is a **fundamental image in the Christian tradition**, speaks of the coming of eternity into the field of time and space, where there is dismemberment. But it also speaks of the passage from the field of time and space into the field of eternal life. So we crucify our temporal and earthly bodies, let them be torn, and through that dismemberment enter the spiritual sphere which transcends all the pains of earth. There’s a form of the crucifix known as “Christ Triumphant,” where he is not with head bowed and blood pouring from him, but **with head erect and eyes open, as though having come voluntarily to the crucifixion. St. Augustine has written somewhere that Jesus went to the cross as a bride-groom to his bride.**" - Age 83, Joseph Campbell, Power of Myth
+
+https://old.reddit.com/r/WorkReform/comments/1s7qxiy/how_conservatives_see_the_left/odb8f1f/
+
+Exactly what I read on Reddit about Donald Trump. Weak, sleepy, does nothing but golf. But also being blamed for wrecking health care, strongly poisoning NATO relations, strongly ruining Canada relations, strongly raising inflation with trade deals and meme coins, etc. What I hear is 1-bit logic of left vs. right. BRAIN_ROT_SOCIETY_47 BRAIN_ROT_LEFT_RIGHT_LIB_CON_NAME_AVOIDANCE - this is the top most-upvoted popular comment.  REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
+
+This isn't resisting the ignorance leadership. This is Reddit comment creators following Trump ignorance.
+
+Social post { https://autistics.life/@RoundSparrow/116319191599806947 https://bsky.app/profile/roundsparrow.bsky.social/post/3mic56kavws2t }    
+
+https://old.reddit.com/r/clevercomebacks/comments/1s7ueom/this_is_the_political_science_we_need_vaccines_to/odcb3md/
+
+Reddit is full of bullshit lovers and fiction storytelling. FEEDBACK_LOOP_MEDIA_CULTS_PLATFORM_TO_PLATFORM_MOCKERY_USA
+
+REVIVE_OPERA_NAME #MediaEcology320   
+Social post { https://autistics.life/@RoundSparrow/116319628008351058 https://bsky.app/profile/roundsparrow.bsky.social/post/3micdf6wm7s2i }    
+
+https://old.reddit.com/r/goodnews/comments/1s7yx0j/kid_rocks_shameful_military_helicopter_video/odd1k23/
+
+Every wise-cracking social media user is giving attention to Donald Trump, nonstop endless media engagement. Every TV station, every social media platform, every newspaper, every magazine: Trump, Trump Trump. The one thing people will not do is entertainment blackout. REDDIT_BLACKOUT not.
+
+https://old.reddit.com/r/MurderedByWords/comments/1s8kyt1/im_no_millionaires_son/odhhjdm/
+
+Reddit popular clickbait title upvoted to front page. Showing images of famous GOP bad guy characters. Eating right out of the hands of the anti-reality warfare and not describing Surkov. Simulation.
+
+https://old.reddit.com/r/PoliticalHumor/comments/1s9lkd1/maga_will_still_defend_this/odp6v69/
+
+And none of the Reddit commenting users will mention Surkov and use of media like this to create contradictions for audiences. NEW_SYSTEM_POLITICAL_CONTROL
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1s9htk5/hypocrisy_is_the_point_of_this_regime/odoghhw/
+
+9 month Reddit account, top-most upvoted popular comment. PROMOTING_IGNORANCE_WORKS_PLAYING_DUMB_MOCKING REDDIT_TOP_COMMENT_YOUNG_ACCOUNT calling the government idiots when all the commenting on Reddit is measuring against a very low bar. MEASURING_BAR_SO_LOW
+
+https://old.reddit.com/r/MurderedByWords/comments/1sasm97/you_made_your_bed_louie_now_lay_in_it/ody7n8z/
+
+This posting title, front page of Reddit /r/All - is a "give up" command. Lay in your bed. Don't resist Trump, don't impeach Trump. GIVE_UP_SURRENDER
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1sbfjd5/iran_embassy_chapter_will_get_the_first_prize_for/oe39omp/
+

@@ -50,3 +50,21 @@ CAMPBELL: Well, it is spontaneous compassion, a suffering with.
 Trump Trusts Putin. Putin is Big Brother.   
 Left vs. Right brainrot has wrecked the mindsets of Donald Trump.    
 https://www.youtube.com/watch?v=1HEjeMBNcm8
+
+&nbsp;
+
+# White House USA
+
+NEW_OPERA_NAME #WhiteHouseUSA    
+
+https://autistics.life/@RoundSparrow/116325235014602823     
+https://bsky.app/profile/roundsparrow.bsky.social/post/3miet2rpeo22w    
+
+&nbsp;
+
+There is a big black spot in Washington D.C. today, it is the same old thing as Yesterday.
+
+There is a big black hole in the mindsets of the USA.
+
+https://www.youtube.com/watch?v=Qhas9-URo3E    
+3,846 views June 17, 2022   
