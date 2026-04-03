@@ -519,3 +519,6 @@ https://old.reddit.com/r/ProgressiveHQ/comments/1s9htk5/hypocrisy_is_the_point_o
 https://old.reddit.com/r/MurderedByWords/comments/1sasm97/you_made_your_bed_louie_now_lay_in_it/ody7n8z/
 
 This posting title, front page of Reddit /r/All - is a "give up" command. Lay in your bed. Don't resist Trump, don't impeach Trump. GIVE_UP_SURRENDER
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1sbfjd5/iran_embassy_chapter_will_get_the_first_prize_for/oe39omp/
+
