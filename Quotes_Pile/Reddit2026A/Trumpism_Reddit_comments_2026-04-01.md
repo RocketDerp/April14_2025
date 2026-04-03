@@ -274,3 +274,12 @@ https://old.reddit.com/r/CuratedTumblr/comments/1savde2/on_hatewatching/odyv83b/
 https://old.reddit.com/r/golf/comments/1sau9f8/tiger_woods_called_president_donald_trump_from/odzlded/
 
 STAND_UP_FOR_FAMOUS_CELEBRITY_AND_SOCIALLY_POWERFUL_BIG_GUYS
+
+https://old.reddit.com/r/LinkedInLunatics/comments/1savzu9/how_is_this_allowed_on_linkedin/odyxic0/
+
+MEDIA_ECOLOGY_OBSERVATION
+
+https://old.reddit.com/r/LinkedInLunatics/comments/1savzu9/how_is_this_allowed_on_linkedin/odyz33u/
+
+MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL
+
