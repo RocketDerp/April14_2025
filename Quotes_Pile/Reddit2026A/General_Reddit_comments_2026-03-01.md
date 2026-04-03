@@ -588,3 +588,7 @@ Understanding Donald Trump's impact on audiences. BILLIONAIRE_MIND_VIRUS "As of 
 
 https://old.reddit.com/r/mildlyinteresting/comments/1sa4rjp/my_child_and_i_agree_on_what_to_name_these_but/odtdsop/
 
+https://old.reddit.com/r/AITAH/comments/1sawr1x/aitah_for_not_taking_my_friends_kids_last_minute/odz7rgb/
+
+FAKE_DETECTORS 
+
