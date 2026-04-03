@@ -234,3 +234,10 @@ People on Reddit hang on every word of Donald Trump. People flock to every photo
 https://old.reddit.com/r/worldnews/comments/1satrzn/irgc_attacks_dubai_oracle_data_center_us_fighter/odys1ol/
 
 UNITED_IN_BLAMING_ONE_THIRD_HATE_VS_HATE_ANTI_RESCUE
+
+https://old.reddit.com/r/worldnews/comments/1satrzn/irgc_attacks_dubai_oracle_data_center_us_fighter/odz2ngd/
+
+BEYOND_DENIAL
+
+https://old.reddit.com/r/worldnews/comments/1satrzn/irgc_attacks_dubai_oracle_data_center_us_fighter/odz42cr/
+
