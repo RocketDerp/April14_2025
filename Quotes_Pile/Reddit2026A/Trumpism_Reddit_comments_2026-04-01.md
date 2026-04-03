@@ -227,3 +227,7 @@ Trump is a joke factory for all of Reddit. Trump is an LOLCOW to milk on Reddit.
 
 https://old.reddit.com/r/technology/comments/1saqz2t/the_us_burned_14_years_of_missiles_in_30_days/ody4b5o/
 
+https://old.reddit.com/r/worldnews/comments/1satrzn/irgc_attacks_dubai_oracle_data_center_us_fighter/odyow9w/
+
+People on Reddit hang on every word of Donald Trump. People flock to every photograph of Donald Trump posted on Reddit. It is a cult. SOCIAL_CULT_HATE_WATCHING_FANDOM
+
