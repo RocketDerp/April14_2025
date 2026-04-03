@@ -516,3 +516,6 @@ https://old.reddit.com/r/ProgressiveHQ/comments/1s9htk5/hypocrisy_is_the_point_o
 
 9 month Reddit account, top-most upvoted popular comment. PROMOTING_IGNORANCE_WORKS_PLAYING_DUMB_MOCKING REDDIT_TOP_COMMENT_YOUNG_ACCOUNT calling the government idiots when all the commenting on Reddit is measuring against a very low bar. MEASURING_BAR_SO_LOW
 
+https://old.reddit.com/r/MurderedByWords/comments/1sasm97/you_made_your_bed_louie_now_lay_in_it/ody7n8z/
+
+This posting title, front page of Reddit /r/All - is a "give up" command. Lay in your bed. Don't resist Trump, don't impeach Trump. GIVE_UP_SURRENDER
