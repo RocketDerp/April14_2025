@@ -405,3 +405,7 @@ https://old.reddit.com/r/politics/comments/1sbqano/donald_trumps_approval_rating
 
 UNITED_IN_BLAMING_ONE_THIRD_HATE_VS_HATE_ANTI_RESCUE
 
+https://old.reddit.com/r/politics/comments/1sbqano/donald_trumps_approval_rating_plunges_to_record/oe5gcu4/
+
+FAKE_OPPOSITION
+
