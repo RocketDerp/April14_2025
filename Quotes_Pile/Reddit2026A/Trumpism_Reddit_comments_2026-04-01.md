@@ -397,3 +397,6 @@ https://old.reddit.com/r/politics/comments/1sbhcyu/hegseths_wartime_firing_of_to
 
 WE_THE_PEOPLE_MEDIA_COMMENTING - media mania is the whole population. Surkov won since year 2013. OBSERVE_SOCIAL_MEDIA_AVOIDING_NONFICTION
 
+https://old.reddit.com/r/politics/comments/1sbhcyu/hegseths_wartime_firing_of_top_generals_stuns/oe3ign2/
+
+ROUTINE_NO_NEED_TO_RESIST_OR_ORGANIZE_INTELLECTUAL_UPRISING
