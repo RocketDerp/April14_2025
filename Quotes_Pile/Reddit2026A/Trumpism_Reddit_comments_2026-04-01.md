@@ -426,3 +426,16 @@ https://old.reddit.com/r/worldnews/comments/1sblagn/trump_claims_starmer_is_weak
 https://old.reddit.com/r/politics/comments/1sc7k9b/trump_voter_regret_is_clearly_registering_now/oe8r0z2/
 
 CONSERVING_WHAT ? Addiction to fiction Bible storytelling, fiction Fox News storytelling, fiction Trump media.
+
+https://old.reddit.com/r/politics/comments/1sc7k9b/trump_voter_regret_is_clearly_registering_now/oe93tjl/
+
+https://old.reddit.com/r/politics/comments/1sc7k9b/trump_voter_regret_is_clearly_registering_now/oe8sdd9/
+
+https://old.reddit.com/r/politics/comments/1sc7k9b/trump_voter_regret_is_clearly_registering_now/oe8rxho/
+
+<img width="1150" height="1253" alt="Screenshot from 2026-04-04 12-12-03" src="https://github.com/user-attachments/assets/fa340d6a-6512-4bf1-966e-81cd616d49fc" />
+
+FAITH_IN_HATE
+
+NEW_OPERA_NAME #KindaNormal #RabidWithHate    
+Social post { https://autistics.life/@RoundSparrow/116348052675205814 https://bsky.app/profile/roundsparrow.bsky.social/post/3mioxbtexj22j }    
