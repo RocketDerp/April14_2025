@@ -385,3 +385,11 @@ https://old.reddit.com/r/politics/comments/1sbo43a/pentagon_good_friday_service_
 
 OUT_GROUP_HATE
 
+https://old.reddit.com/r/politics/comments/1sbhcyu/hegseths_wartime_firing_of_top_generals_stuns/oe3c7zt/
+
+ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING
+
+https://old.reddit.com/r/politics/comments/1sbhcyu/hegseths_wartime_firing_of_top_generals_stuns/oe3eevz/
+
+"insane". OBSERVE_MEDIA_AVOIDANCE_OF_RELEVANT_NONFICTION Dr. Bandy X Lee avoided by social media users.
+
