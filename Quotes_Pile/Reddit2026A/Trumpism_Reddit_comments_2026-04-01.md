@@ -346,3 +346,31 @@ SOUTH_PARK_FAMILY_GUY_SPONGEBOB_THE_APPRENTICE_REALITY_TELEVISION_USA
 https://old.reddit.com/r/politics/comments/1sbja15/blanche_epstein_files_should_not_be_a_part_of/oe3t2x5/
 
 2 month Reddit account. Top most upvoted popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT "Insane"
+
+https://old.reddit.com/r/SipsTea/comments/1sbo7pk/ahem_ahem/oe5abx1/
+
+ANTI_REALITY
+
+https://old.reddit.com/r/SipsTea/comments/1sbo7pk/ahem_ahem/oe58sjl/
+
+IMPORTANT_QUOTES_A
+
+https://old.reddit.com/r/SipsTea/comments/1sbo7pk/ahem_ahem/oe5talx/
+
+GULLIBILITY_CRISIS
+
+https://old.reddit.com/r/SipsTea/comments/1sbo7pk/ahem_ahem/oe59o7d/
+
+https://old.reddit.com/r/SipsTea/comments/1sbo7pk/ahem_ahem/oe5ihfk/
+
+https://old.reddit.com/r/SipsTea/comments/1sbo7pk/ahem_ahem/oe5q9i3/
+
+https://old.reddit.com/r/SipsTea/comments/1sbo7pk/ahem_ahem/oe5wpqz/
+
+https://old.reddit.com/r/SipsTea/comments/1sbo7pk/ahem_ahem/oe50tjt/
+
+https://old.reddit.com/r/SipsTea/comments/1sbo7pk/ahem_ahem/oe5hoyz/
+
+https://old.reddit.com/r/SipsTea/comments/1sbo7pk/ahem_ahem/oe4zzdt/
+
+UNIFIED_THEORY_FICTION_NONFICTION
