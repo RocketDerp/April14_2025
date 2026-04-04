@@ -393,3 +393,7 @@ https://old.reddit.com/r/politics/comments/1sbhcyu/hegseths_wartime_firing_of_to
 
 "insane". OBSERVE_MEDIA_AVOIDANCE_OF_RELEVANT_NONFICTION Dr. Bandy X Lee avoided by social media users.
 
+https://old.reddit.com/r/politics/comments/1sbhcyu/hegseths_wartime_firing_of_top_generals_stuns/oe3watt/
+
+WE_THE_PEOPLE_MEDIA_COMMENTING - media mania is the whole population. Surkov won since year 2013. OBSERVE_SOCIAL_MEDIA_AVOIDING_NONFICTION
+
