@@ -422,3 +422,7 @@ Social post { https://autistics.life/@RoundSparrow/116343688181401052 https://bs
 https://old.reddit.com/r/worldnews/comments/1sblagn/trump_claims_starmer_is_weak_as_he_mocks_pm_and/oe4d5o6/
 
 "Americans are in literal hell and they've still not realized or done anything." - USA society can't resist a TV star, fiction mocking. MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL
+
+https://old.reddit.com/r/politics/comments/1sc7k9b/trump_voter_regret_is_clearly_registering_now/oe8r0z2/
+
+CONSERVING_WHAT ? Addiction to fiction Bible storytelling, fiction Fox News storytelling, fiction Trump media.
