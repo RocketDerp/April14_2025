@@ -412,3 +412,9 @@ FAKE_OPPOSITION
 https://old.reddit.com/r/politics/comments/1sbqano/donald_trumps_approval_rating_plunges_to_record/oe5o1in/
 
 DANGER_ALERT_CALL_TO_INTELLECTUAL_ARMS_BOOK_CRAM_SESSIONS the brain rot of We The People needs a massive effort. People have to actually desire goodness and work together rewriting thinking.
+
+https://old.reddit.com/r/worldnews/comments/1sblagn/trump_claims_starmer_is_weak_as_he_mocks_pm_and/oe47qg2/
+
+top most popular upvoted comment. DOWNPLAYING_DANGER_MINIMIZING_THREATS As for Trump and posting headline. FAITH_IN_MOCKERY
+
+Social post { https://autistics.life/@RoundSparrow/116343688181401052 https://bsky.app/profile/roundsparrow.bsky.social/post/3mimzcf25js2v }    
