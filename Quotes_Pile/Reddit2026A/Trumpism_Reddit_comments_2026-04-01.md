@@ -452,3 +452,7 @@ https://old.reddit.com/r/popculturechat/comments/1sc9x2j/bryan_cranston_calls_tr
 
 MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL
 
+https://old.reddit.com/r/videos/comments/1sck79r/hegseth_fires_3_top_generals_as_iran_war_continues/oebk9ry/
+
+https://old.reddit.com/r/videos/comments/1sck79r/hegseth_fires_3_top_generals_as_iran_war_continues/oebjz81/
+
