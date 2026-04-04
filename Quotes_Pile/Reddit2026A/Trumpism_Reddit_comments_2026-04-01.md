@@ -418,3 +418,7 @@ https://old.reddit.com/r/worldnews/comments/1sblagn/trump_claims_starmer_is_weak
 top most popular upvoted comment. DOWNPLAYING_DANGER_MINIMIZING_THREATS As for Trump and posting headline. FAITH_IN_MOCKERY
 
 Social post { https://autistics.life/@RoundSparrow/116343688181401052 https://bsky.app/profile/roundsparrow.bsky.social/post/3mimzcf25js2v }    
+
+https://old.reddit.com/r/worldnews/comments/1sblagn/trump_claims_starmer_is_weak_as_he_mocks_pm_and/oe4d5o6/
+
+"Americans are in literal hell and they've still not realized or done anything." - USA society can't resist a TV star, fiction mocking. MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL
