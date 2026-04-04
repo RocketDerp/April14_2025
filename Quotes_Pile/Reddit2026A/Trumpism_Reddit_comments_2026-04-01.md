@@ -439,3 +439,8 @@ FAITH_IN_HATE
 
 NEW_OPERA_NAME #KindaNormal #RabidWithHate    
 Social post { https://autistics.life/@RoundSparrow/116348052675205814 https://bsky.app/profile/roundsparrow.bsky.social/post/3mioxbtexj22j }    
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1scg5kk/losing_a_war_is_mighty_stressful/oeamq71/
+
+ENTERTAINED_JUST_PASSIVELY_WATCHING_UNTIL_DEATH_NO_SOCIAL_MEDIA_UPRISING_WHILE_ALIVE
+
