@@ -653,3 +653,6 @@ https://old.reddit.com/r/justincaseyoumissedit/comments/1sbknia/french_president
 
 MAXIMUM_PUTINIZATION
 
+https://old.reddit.com/r/Fauxmoi/comments/1scecna/liam_cunningham_the_horrors_happening_in_iran_and/oeaal7o/
+
+THE_1954_EQUATION is not popular. Every team has OUT_GROUP_HATE 
