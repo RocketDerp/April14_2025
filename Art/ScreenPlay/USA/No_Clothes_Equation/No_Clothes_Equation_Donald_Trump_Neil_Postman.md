@@ -14,6 +14,7 @@ March 30, 2026 9:16pm EDT
 NEW_OPERA_NAME #TheEmperorEquation     
 https://bsky.app/profile/roundsparrow.bsky.social/post/3min3qih45s2v    
 https://autistics.life/@RoundSparrow/116343860396284790   
+https://midwest.social/post/45517695    
 
 &nbsp;
 
