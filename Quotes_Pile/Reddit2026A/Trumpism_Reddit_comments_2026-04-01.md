@@ -400,3 +400,8 @@ WE_THE_PEOPLE_MEDIA_COMMENTING - media mania is the whole population. Surkov won
 https://old.reddit.com/r/politics/comments/1sbhcyu/hegseths_wartime_firing_of_top_generals_stuns/oe3ign2/
 
 ROUTINE_NO_NEED_TO_RESIST_OR_ORGANIZE_INTELLECTUAL_UPRISING
+
+https://old.reddit.com/r/politics/comments/1sbqano/donald_trumps_approval_rating_plunges_to_record/oe5jjf0/
+
+UNITED_IN_BLAMING_ONE_THIRD_HATE_VS_HATE_ANTI_RESCUE
+
