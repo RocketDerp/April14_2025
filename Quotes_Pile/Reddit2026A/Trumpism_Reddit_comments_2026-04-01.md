@@ -444,3 +444,11 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1scg5kk/losing_a_war_is_mig
 
 ENTERTAINED_JUST_PASSIVELY_WATCHING_UNTIL_DEATH_NO_SOCIAL_MEDIA_UPRISING_WHILE_ALIVE
 
+https://old.reddit.com/r/popculturechat/comments/1sc9x2j/bryan_cranston_calls_trump_a_demagogue_cranston/oe9bq0j/
+
+PEOPLE_LOVE_COMEDY_MEDIA_CONTENT_MORE_THAN_PLURIBUS_HUMANISM
+
+https://old.reddit.com/r/popculturechat/comments/1sc9x2j/bryan_cranston_calls_trump_a_demagogue_cranston/oe9djo5/
+
+MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL
+
