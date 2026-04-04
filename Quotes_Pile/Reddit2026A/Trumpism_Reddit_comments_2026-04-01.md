@@ -409,3 +409,6 @@ https://old.reddit.com/r/politics/comments/1sbqano/donald_trumps_approval_rating
 
 FAKE_OPPOSITION
 
+https://old.reddit.com/r/politics/comments/1sbqano/donald_trumps_approval_rating_plunges_to_record/oe5o1in/
+
+DANGER_ALERT_CALL_TO_INTELLECTUAL_ARMS_BOOK_CRAM_SESSIONS the brain rot of We The People needs a massive effort. People have to actually desire goodness and work together rewriting thinking.
