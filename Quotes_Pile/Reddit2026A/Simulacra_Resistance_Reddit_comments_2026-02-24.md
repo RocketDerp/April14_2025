@@ -526,3 +526,6 @@ https://old.reddit.com/r/MurderedByWords/comments/1sbimd6/i_support_this_idea/oe
 
 This entire Reddit /r/All front page posting is normalizing Trump behavior. It isn't resisting Putinism and Trump leadership, it is cheering it on. Adopting Trump thinking. Morality needs to be reformed, brainwashing and cult deprogramming needs to be what people do instead of cheering on badness. Celebrating bad ideas.
 
+https://old.reddit.com/r/pics/comments/1scmtnh/donald_trump_sitting_at_a_desk_with_his_head_in/oec5o9t/
+
+ARTIFICIAL_REALITY fandom photos of the hate watching media cult. SOCIAL_CULT_HATE_WATCHING_FANDOM
