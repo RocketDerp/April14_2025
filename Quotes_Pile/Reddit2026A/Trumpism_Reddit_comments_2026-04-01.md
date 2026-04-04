@@ -374,3 +374,14 @@ https://old.reddit.com/r/SipsTea/comments/1sbo7pk/ahem_ahem/oe5hoyz/
 https://old.reddit.com/r/SipsTea/comments/1sbo7pk/ahem_ahem/oe4zzdt/
 
 UNIFIED_THEORY_FICTION_NONFICTION
+
+https://old.reddit.com/r/politics/comments/1sbo43a/pentagon_good_friday_service_excluding_catholics/oe4tc5p/
+
+MONOMYTH_VS_MONOMYTH 
+
+https://old.reddit.com/r/politics/comments/1sbo43a/pentagon_good_friday_service_excluding_catholics/oe4u3k1/
+
+https://old.reddit.com/r/politics/comments/1sbo43a/pentagon_good_friday_service_excluding_catholics/oe4v9pg/
+
+OUT_GROUP_HATE
+
