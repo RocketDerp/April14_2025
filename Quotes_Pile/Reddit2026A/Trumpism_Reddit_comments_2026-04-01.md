@@ -529,3 +529,8 @@ https://old.reddit.com/r/worldnews/comments/1sd2at6/trump_to_iran_open_the_fuin_
 https://old.reddit.com/r/worldnews/comments/1sd2at6/trump_to_iran_open_the_fuin_strait_or_face/oefiatp/
 
 Always funny, permanent funny. CHUCKLEHEAD_NATION avoiding nonfiction relevant book by Dr. Bandy X Lee.
+
+https://old.reddit.com/r/worldnews/comments/1sd2at6/trump_to_iran_open_the_fuin_strait_or_face/oef8a4o/
+
+AVOIDED_DR_BANDY_X_LEE_PUBLIC_WRITINGS
+
