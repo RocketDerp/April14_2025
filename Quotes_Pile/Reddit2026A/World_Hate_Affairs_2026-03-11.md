@@ -678,3 +678,7 @@ Surkov won since year 2013. HOW_SURKOV_WON - the Internet Research Agency. CORE_
 https://old.reddit.com/r/worldnews/comments/1sd8gqe/whole_region_going_to_burn_iranian_parliament/oegnkzt/
 
 MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL
+
+https://old.reddit.com/r/videos/comments/1sd0n6e/trump_we_cant_pay_for_day_care_we_have_to_take/oeeybto/
+
+WHITE_HOUSE_HYPER_REAL HOW_SURKOV_WON SURKOV_STUDENTS Surkov won since year 2013. Neil Postman's 1985 book "Amusing Ourselves To Death" has a lot of the foundation understandings.
