@@ -703,3 +703,11 @@ MIND_BLOWN_BY SYMBOLISM_GUMBO
 https://old.reddit.com/r/law/comments/1sdbcb8/florida_attorney_general_refuses_to_enforce_state/oehit1o/
 
 LEVANT_MYTH_INVERTED
+
+https://old.reddit.com/r/GetNoted/comments/1sdcx1f/texas_governor/oehmy13/
+
+WHHR
+
+https://old.reddit.com/r/GetNoted/comments/1sdcx1f/texas_governor/oehnu0x/
+
+LEVANT_MYTH_INVERTED
