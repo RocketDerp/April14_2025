@@ -588,3 +588,7 @@ HOW_SURKOV_WON
 https://old.reddit.com/r/therewasanattempt/comments/1sd2ko5/to_be_a_mentally_stable_conservative_president/oefb2ko/
 
 DECEMBER_5_2014_NATO_JOKE_ARTICLE_5_JOKE
+
+https://old.reddit.com/r/therewasanattempt/comments/1sd2ko5/to_be_a_mentally_stable_conservative_president/oefalps/
+
+WAR_AGAINST_REALITY
