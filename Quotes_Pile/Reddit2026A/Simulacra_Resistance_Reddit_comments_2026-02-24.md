@@ -533,3 +533,7 @@ ARTIFICIAL_REALITY fandom photos of the hate watching media cult. SOCIAL_CULT_HA
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1sd4sfg/banger_after_banger_from_iranian_embassies_lol/oeftl0s/
 
 TRUMP_FANDON "LOL" at the nonstop comedy Tony Clifton POTUS character provides. Trump inspires everyone to abandon reality and avoid Dr. Bandy X Lee in favor of media addiction to Twitter messages and other shit-postings. PEOPLE_LOVE_COMEDY_MEDIA_CONTENT_MORE_THAN_PLURIBUS_HUMANISM 
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1sd4sfg/banger_after_banger_from_iranian_embassies_lol/oeghy5p/
+
+BLIND_FAITH The absolute blind faith. CONDITIONED_OPPOSITION AMUSING_ZOMBIES CHUCKLEHEAD_NATION LAUGHTER_THE_BEST_MINDFUCK ESSENTIAL_STUDY_MAGA - FAITH_IN_MOCKERY - the permanent faith that never ever gets questioned. Instead of promoting Dr. Bandy X Lee and seeing the reality of danger REALITY_REAL - continue to make this a joke for joke contest. Neil Postman's 1985 book "Amusing Ourselves To Death" via high-speed media networks gets ignored again and again in this blind-faith mindset that SURKOV_STUDENTS exploited since year 2013.
