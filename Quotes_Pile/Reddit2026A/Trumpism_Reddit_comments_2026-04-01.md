@@ -482,3 +482,6 @@ https://old.reddit.com/r/politics/comments/1scp6zd/white_house_forced_to_address
 
 ENTERTAINED_JUST_PASSIVELY_WATCHING_UNTIL_DEATH_NO_SOCIAL_MEDIA_UPRISING_WHILE_ALIVE
 
+https://old.reddit.com/r/worldnews/comments/1sctgp9/us_forces_rescue_second_crew_member_from_f15/oedtuqp/
+
+RECENCY_BIAS
