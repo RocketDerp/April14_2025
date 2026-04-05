@@ -663,3 +663,9 @@ https://old.reddit.com/r/UnderReportedNews/comments/1sd3x8y/trump_drops_fbomb_an
 
 SUBVERTING_EXPECTATIONS
 
+https://old.reddit.com/r/politics/comments/1sda4vk/trump_cabinet_urged_to_invoke_25th_amendment/oeh09lo/
+
+https://old.reddit.com/r/politics/comments/1sda4vk/trump_cabinet_urged_to_invoke_25th_amendment/oeh0nv4/
+
+MEASURING_BAR_SO_LOW
+
