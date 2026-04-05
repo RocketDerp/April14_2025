@@ -592,3 +592,10 @@ DECEMBER_5_2014_NATO_JOKE_ARTICLE_5_JOKE
 https://old.reddit.com/r/therewasanattempt/comments/1sd2ko5/to_be_a_mentally_stable_conservative_president/oefalps/
 
 WAR_AGAINST_REALITY
+
+https://old.reddit.com/r/therewasanattempt/comments/1sd2ko5/to_be_a_mentally_stable_conservative_president/oefatg0/
+
+<img width="1023" height="714" alt="image" src="https://github.com/user-attachments/assets/ae9f1b72-e745-4723-8d7d-4e0077ba1b56" />
+
+NEW_OPERA_NAME #ThisWasReal    
+Social post { https://autistics.life/@RoundSparrow/116352815694347523 https://bsky.app/profile/roundsparrow.bsky.social/post/3mir2yeqyr227 }   
