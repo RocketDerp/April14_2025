@@ -610,4 +610,8 @@ https://old.reddit.com/r/AskReddit/comments/1sd3s0e/what_is_your_take_on_trump_e
 
 https://old.reddit.com/r/AskReddit/comments/1sd3s0e/what_is_your_take_on_trump_ending_his_recent_post/oefntvt/
 
+<img width="1246" height="946" alt="image" src="https://github.com/user-attachments/assets/98703f83-6c4f-4a5c-afc8-fd2cddc826d2" />
+
 DEMENTIA_WASHING
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mir7cuakkk2q https://autistics.life/@RoundSparrow/116353121427898743 }    
