@@ -522,3 +522,6 @@ https://old.reddit.com/r/worldnews/comments/1sd2at6/trump_to_iran_open_the_fuin_
 
 MAGA_FANDOM really wants to see Trump content spread far and wide. Cheering on the nonsense. Avoiding Dr. Bandy X Lee's nonfiction books.
 
+https://old.reddit.com/r/worldnews/comments/1sd2at6/trump_to_iran_open_the_fuin_strait_or_face/oefbdyq/
+
+"LMAO". AMUSEMENT_COMEDY_WASHING_TRUMP_AS_FUNNY_MEDIA_SANEWASHING
