@@ -688,3 +688,7 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1sd9t9c/the_whole_planet_wa
 
 ENTERTAINED_JUST_PASSIVELY_WATCHING_UNTIL_DEATH_NO_SOCIAL_MEDIA_UPRISING_WHILE_ALIVE
 
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1sd9t9c/the_whole_planet_waits_in_bated_breath_for_an/oehg122/
+
+ANSWER: SURKOV_STUDENTS won. NEW_SYSTEM_POLITICAL_CONTROL - you are on a Reddit Twitter fandom /r/TwitterFans
+
