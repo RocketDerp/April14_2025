@@ -615,3 +615,8 @@ https://old.reddit.com/r/AskReddit/comments/1sd3s0e/what_is_your_take_on_trump_e
 DEMENTIA_WASHING
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mir7cuakkk2q https://autistics.life/@RoundSparrow/116353121427898743 }    
+
+https://old.reddit.com/r/AskReddit/comments/1sd3s0e/what_is_your_take_on_trump_ending_his_recent_post/oefr3ex/
+
+People are mesmerized by the constant stimulating media Trump provides. MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL
+
