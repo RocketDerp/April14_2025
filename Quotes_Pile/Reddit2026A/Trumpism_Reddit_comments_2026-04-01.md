@@ -692,3 +692,6 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1sd9t9c/the_whole_planet_wa
 
 ANSWER: SURKOV_STUDENTS won. NEW_SYSTEM_POLITICAL_CONTROL - you are on a Reddit Twitter fandom /r/TwitterFans
 
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1sdc7ae/the_conservative_sub_having_a_meltdown_over_the/oehga4d/
+
+The posting. MAGA_FANDOM on Reddit. CALL_FOR_MENTAL_HEALTH_NATIONAL_RESCUE avoided. AVOIDED_DR_BANDY_X_LEE_PUBLIC_WRITINGS - people are entirely addicted on Reddit to mocking MAGA cult. Cult of hate watching MAGA. SOCIAL_CULT_HATE_WATCHING_FANDOM
