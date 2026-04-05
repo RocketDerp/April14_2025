@@ -562,3 +562,8 @@ TRUMP_FANDOM thrilled at the unique content creation Trump provides. BINGO gamin
 https://old.reddit.com/r/politics/comments/1sd2io2/trump_79_drops_fbomb_in_unhinged_easter_morning/oef9lu5/
 
 MIND_BLOWN_BY Trump messages.
+
+https://old.reddit.com/r/politics/comments/1sd2io2/trump_79_drops_fbomb_in_unhinged_easter_morning/oefef0c/
+
+TRUMP_FANDOM finds it a great source of comedy. PEOPLE_LOVE_COMEDY_MEDIA_CONTENT_MORE_THAN_PLURIBUS_HUMANISM LEVANT_MYTH_INVERTED
+
