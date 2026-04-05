@@ -620,3 +620,15 @@ https://old.reddit.com/r/AskReddit/comments/1sd3s0e/what_is_your_take_on_trump_e
 
 People are mesmerized by the constant stimulating media Trump provides. MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL
 
+https://old.reddit.com/r/AskReddit/comments/1sd3s0e/what_is_your_take_on_trump_ending_his_recent_post/oefl9x5/
+
+FAITH_IN_MOCKERY MONOMYTH_VS_MONOMYTH MOCK_MOCK_MOCKERY 
+
+https://old.reddit.com/r/AskReddit/comments/1sd3s0e/what_is_your_take_on_trump_ending_his_recent_post/oefrap0/
+
+FEEDBACK_LOOP_MEDIA_CULTS_PLATFORM_TO_PLATFORM_MOCKERY_USA
+
+https://old.reddit.com/r/AskReddit/comments/1sd3s0e/what_is_your_take_on_trump_ending_his_recent_post/oefoo47/
+
+ROMANS_11_32_PLUS_PLUS SURKOV_MONOMYTH 
+
