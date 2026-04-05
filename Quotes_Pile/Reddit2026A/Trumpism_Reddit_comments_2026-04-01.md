@@ -711,3 +711,7 @@ WHHR
 https://old.reddit.com/r/GetNoted/comments/1sdcx1f/texas_governor/oehnu0x/
 
 LEVANT_MYTH_INVERTED
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1sdfyvo/conservatives_on_reddit_responding_to_trumps/oei9sdf/
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1sdfyvo/conservatives_on_reddit_responding_to_trumps/oeia4yx/
