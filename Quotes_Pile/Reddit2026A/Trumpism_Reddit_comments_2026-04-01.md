@@ -635,3 +635,7 @@ ROMANS_11_32_PLUS_PLUS SURKOV_MONOMYTH
 https://old.reddit.com/r/AskReddit/comments/1sd3s0e/what_is_your_take_on_trump_ending_his_recent_post/oegbsc4/
 
 1 month Reddit account. SATIRE_SARCASM_WASHING JOKE_WASHING 
+
+https://old.reddit.com/r/AskReddit/comments/1sd3s0e/what_is_your_take_on_trump_ending_his_recent_post/oefloiw/
+
+Surkov won since year 2013. JOKE_COMEDY_POWER_IS_MAGA_IS_TRUMP_IS_SURKOV
