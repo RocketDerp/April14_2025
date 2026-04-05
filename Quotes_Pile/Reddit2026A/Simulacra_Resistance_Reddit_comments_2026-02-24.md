@@ -546,3 +546,6 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1sd4sfg/banger_after_banger
 
 Exactly. This is captured opposition. FAKE_OPPOSITION the funny-bone exploit. BRAIN_ROT_LEFT_RIGHT_LIB_CON_NAME_AVOIDANCE fiction vs. nonfiction it isn't left vs. right. It is the abandonment of science and goodness in favor of Trump the reality TV star entertainment. Surkov won since year 2013. "If this is what makes you guys cheer, I’m scared for the next generation of leftists." REPUBLICANS_LEAD_WITH_IGNORANCE_IDEAS_AND_FOLLOWERS_REPLY_WITH_IGNORANCE - Iran is following Trump's lead. Surkovian information warfare works!
 
+https://old.reddit.com/r/PoliticalHumor/comments/1sd2m1t/waiting_for_that_big_beautiful_obituary_like/oefcs05/
+
+Read the image of the post. Encouraging false rumors and anti-reality. MAGA already can not distinguish Trump and Putin fiction from nonfiction. Now Reddit community is cheering on the furthering of Trumpism reality. REALITY_KREMLIN WAR_AGAINST_REALITY
