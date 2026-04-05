@@ -686,3 +686,7 @@ WHITE_HOUSE_HYPER_REAL HOW_SURKOV_WON SURKOV_STUDENTS Surkov won since year 2013
 https://old.reddit.com/r/TimesNow/comments/1sd9dvw/trump_we_need_2_billion_a_day_to_reopen_the/oegtufw/
 
 FEEDBACK_LOOP_MEDIA_CULTS_PLATFORM_TO_PLATFORM_MOCKERY_USA Top most upvoted Reddit comment.
+
+https://old.reddit.com/r/TimesNow/comments/1sd9dvw/trump_we_need_2_billion_a_day_to_reopen_the/oegwmth/
+
+REPUBLICANS_LEAD_WITH_IGNORANCE_IDEAS_AND_FOLLOWERS_REPLY_WITH_IGNORANCE Following Trump's leadership, instead of addressing the USA society-wide brain rot that is not just one 80 year old man.
