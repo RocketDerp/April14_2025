@@ -599,3 +599,7 @@ https://old.reddit.com/r/therewasanattempt/comments/1sd2ko5/to_be_a_mentally_sta
 
 NEW_OPERA_NAME #ThisWasReal    
 Social post { https://autistics.life/@RoundSparrow/116352815694347523 https://bsky.app/profile/roundsparrow.bsky.social/post/3mir2yeqyr227 }   
+
+https://old.reddit.com/r/AskReddit/comments/1sd3s0e/what_is_your_take_on_trump_ending_his_recent_post/oefp7ay/
+
+MIND_BLOWN_BY Trump media content
