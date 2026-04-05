@@ -567,3 +567,12 @@ https://old.reddit.com/r/politics/comments/1sd2io2/trump_79_drops_fbomb_in_unhin
 
 TRUMP_FANDOM finds it a great source of comedy. PEOPLE_LOVE_COMEDY_MEDIA_CONTENT_MORE_THAN_PLURIBUS_HUMANISM LEVANT_MYTH_INVERTED
 
+https://old.reddit.com/r/SipsTea/comments/1sd2mcr/its_going_all_banannas/oefejqo/
+
+MIND_BLOWN_BY meme thinking. MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL
+
+https://old.reddit.com/r/SipsTea/comments/1sd2mcr/its_going_all_banannas/oefgsiy/
+
+https://old.reddit.com/r/SipsTea/comments/1sd2mcr/its_going_all_banannas/oefagid/
+
+ANTI_REALITY
