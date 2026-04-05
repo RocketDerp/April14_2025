@@ -514,3 +514,11 @@ https://old.reddit.com/r/worldnews/comments/1sd2at6/trump_to_iran_open_the_fuin_
 
 Laughable, comedy, entertainment, amusing, thrilling for Reddit comment creators. LAUGHTER_THE_BEST_MINDFUCK Neil Postman was correct in year 1985 book. SURKOV_SHUFFLE
 
+https://old.reddit.com/r/worldnews/comments/1sd2at6/trump_to_iran_open_the_fuin_strait_or_face/oef8rfi/
+
+MONOMYTH_WARFARE
+
+https://old.reddit.com/r/worldnews/comments/1sd2at6/trump_to_iran_open_the_fuin_strait_or_face/oefcaxl/
+
+MAGA_FANDOM really wants to see Trump content spread far and wide. Cheering on the nonsense. Avoiding Dr. Bandy X Lee's nonfiction books.
+
