@@ -509,3 +509,8 @@ https://old.reddit.com/r/Fauxmoi/comments/1sd20fq/president_trump_open_the_fucki
 EPSTEIN_BUT_NOT_PUTIN_UKRAINE_CHILDREN_NOT_MALALA
 
 Social Post { https://autistics.life/@RoundSparrow/116352600876692835 https://bsky.app/profile/roundsparrow.bsky.social/post/3miqxxpz62k2y }    
+
+https://old.reddit.com/r/worldnews/comments/1sd2at6/trump_to_iran_open_the_fuin_strait_or_face/oef9trp/
+
+Laughable, comedy, entertainment, amusing, thrilling for Reddit comment creators. LAUGHTER_THE_BEST_MINDFUCK Neil Postman was correct in year 1985 book. SURKOV_SHUFFLE
+
