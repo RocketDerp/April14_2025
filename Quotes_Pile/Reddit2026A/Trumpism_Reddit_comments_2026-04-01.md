@@ -497,3 +497,7 @@ https://old.reddit.com/r/Fauxmoi/comments/1sd20fq/president_trump_open_the_fucki
 LEVANT_MONOMYTH_CRISIS MONOMYTH_WARFARE  
 
 Social Post { https://autistics.life/@RoundSparrow/116352559736233132 https://bsky.app/profile/roundsparrow.bsky.social/post/3miqxdussp22j }    
+
+https://old.reddit.com/r/Fauxmoi/comments/1sd20fq/president_trump_open_the_fuckin_strait_you_crazy/oef7d6p/
+
+WIDE_RADICAL_DOUBT_ABOUT_REAL
