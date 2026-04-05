@@ -699,3 +699,7 @@ The posting. MAGA_FANDOM on Reddit. CALL_FOR_MENTAL_HEALTH_NATIONAL_RESCUE avoid
 https://old.reddit.com/r/ThatsInsane/comments/1sd9rwm/this_is_the_most_unhinged_easter_tweet_ever/oegyav1/
 
 MIND_BLOWN_BY SYMBOLISM_GUMBO  
+
+https://old.reddit.com/r/law/comments/1sdbcb8/florida_attorney_general_refuses_to_enforce_state/oehit1o/
+
+LEVANT_MYTH_INVERTED
