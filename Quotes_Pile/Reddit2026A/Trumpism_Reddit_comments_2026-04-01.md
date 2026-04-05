@@ -695,3 +695,7 @@ ANSWER: SURKOV_STUDENTS won. NEW_SYSTEM_POLITICAL_CONTROL - you are on a Reddit 
 https://old.reddit.com/r/LeopardsAteMyFace/comments/1sdc7ae/the_conservative_sub_having_a_meltdown_over_the/oehga4d/
 
 The posting. MAGA_FANDOM on Reddit. CALL_FOR_MENTAL_HEALTH_NATIONAL_RESCUE avoided. AVOIDED_DR_BANDY_X_LEE_PUBLIC_WRITINGS - people are entirely addicted on Reddit to mocking MAGA cult. Cult of hate watching MAGA. SOCIAL_CULT_HATE_WATCHING_FANDOM
+
+https://old.reddit.com/r/ThatsInsane/comments/1sd9rwm/this_is_the_most_unhinged_easter_tweet_ever/oegyav1/
+
+MIND_BLOWN_BY SYMBOLISM_GUMBO  
