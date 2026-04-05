@@ -670,3 +670,7 @@ Appropriate for Easter Sunday. Putin has been hated for over 25 years using simi
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1sd8geu/americans_do_maga_doesnt/oegmlut/
 
 The hate-club still supports ignorance. UNITED_IN_BLAMING_ONE_THIRD_HATE_VS_HATE_ANTI_RESCUE - OUT_GROUP_HATE patterns are still the core to Iran and USA society both. Promoting hate is uniting everyone in hate. AMERICANS_HATE_AMERICANS
+
+https://old.reddit.com/r/worldnews/comments/1sd8gqe/whole_region_going_to_burn_iranian_parliament/oegmaih/
+
+Surkov won since year 2013. HOW_SURKOV_WON - the Internet Research Agency. CORE_CONCERNS - and Reddit is the fandom of every meme drop.
