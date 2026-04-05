@@ -715,3 +715,7 @@ LEVANT_MYTH_INVERTED
 https://old.reddit.com/r/LeopardsAteMyFace/comments/1sdfyvo/conservatives_on_reddit_responding_to_trumps/oei9sdf/
 
 https://old.reddit.com/r/LeopardsAteMyFace/comments/1sdfyvo/conservatives_on_reddit_responding_to_trumps/oeia4yx/
+
+https://old.reddit.com/r/politics/comments/1sd75uv/theres_a_small_possibility_we_shouldnt_have/oegcram/
+
+AVOIDED_DR_BANDY_X_LEE_PUBLIC_WRITINGS
