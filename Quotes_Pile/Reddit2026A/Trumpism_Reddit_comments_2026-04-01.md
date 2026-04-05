@@ -576,3 +576,7 @@ https://old.reddit.com/r/SipsTea/comments/1sd2mcr/its_going_all_banannas/oefgsiy
 https://old.reddit.com/r/SipsTea/comments/1sd2mcr/its_going_all_banannas/oefagid/
 
 ANTI_REALITY
+
+https://old.reddit.com/r/Fauxmoi/comments/1sd0dkk/during_her_recent_boston_show_hayley_williams/oeex13i/
+
+Like how MAGA USA finds it hilarious every time Trump promotes hate. 
