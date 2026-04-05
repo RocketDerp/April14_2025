@@ -660,3 +660,9 @@ THE_1954_EQUATION is not popular. Every team has OUT_GROUP_HATE
 https://old.reddit.com/r/PublicFreakout/comments/1sd3fve/guy_pushes_woman_from_train_breaks_her_spine/oeg31h1/
 
 EVERYTHING_IS_ME    
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1sd8geu/americans_do_maga_doesnt/oegmjj8/
+
+Appropriate for Easter Sunday. Putin has been hated for over 25 years using similar media techniques. THE_1954_EQUATION FAITH_IN_HATE And the whole title is anti-rescue "MAGA is not USA". UNITED_IN_BLAMING_ONE_THIRD_HATE_VS_HATE_ANTI_RESCUE
+
+* "For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the true becomes false and the false becomes true. That's what hate does. You can't see right. The symbol of objectivity is lost." - Martin Luther King Jr.
