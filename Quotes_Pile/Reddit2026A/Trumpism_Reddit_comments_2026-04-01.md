@@ -538,3 +538,10 @@ https://old.reddit.com/r/worldnews/comments/1sd2at6/trump_to_iran_open_the_fuin_
 
 People have been nonstop laughing and finding Trump funny since year 2015. MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL Exactly what to Reddit users think Trump's skills are other than making people LOL and mock mock mock.
 
+https://old.reddit.com/r/worldnews/comments/1sd2at6/trump_to_iran_open_the_fuin_strait_or_face/oef9o9t/
+
+<img width="951" height="543" alt="image" src="https://github.com/user-attachments/assets/cf5788d7-a97c-4c6e-94e4-a683b35ddd75" />
+
+EVERYTHING_IS_ME
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3miqz4rvgrs2y https://autistics.life/@RoundSparrow/116352682883128934 }   
