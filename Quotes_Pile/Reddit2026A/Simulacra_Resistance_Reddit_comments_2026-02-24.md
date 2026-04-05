@@ -549,3 +549,7 @@ Exactly. This is captured opposition. FAKE_OPPOSITION the funny-bone exploit. BR
 https://old.reddit.com/r/PoliticalHumor/comments/1sd2m1t/waiting_for_that_big_beautiful_obituary_like/oefcs05/
 
 Read the image of the post. Encouraging false rumors and anti-reality. MAGA already can not distinguish Trump and Putin fiction from nonfiction. Now Reddit community is cheering on the furthering of Trumpism reality. REALITY_KREMLIN WAR_AGAINST_REALITY
+
+https://old.reddit.com/r/IThinkYouShouldLeave/comments/1sdeu0n/rconservative_when_trump_ends_his_rant_in_praise/oei3a3a/
+
+TRUMP_FANDOM fans of Truth Social leadership who are anticipating more content.
