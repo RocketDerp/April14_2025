@@ -580,3 +580,11 @@ ANTI_REALITY
 https://old.reddit.com/r/Fauxmoi/comments/1sd0dkk/during_her_recent_boston_show_hayley_williams/oeex13i/
 
 Like how MAGA USA finds it hilarious every time Trump promotes hate. 
+
+https://old.reddit.com/r/therewasanattempt/comments/1sd2ko5/to_be_a_mentally_stable_conservative_president/oefa6el/
+
+HOW_SURKOV_WON
+
+https://old.reddit.com/r/therewasanattempt/comments/1sd2ko5/to_be_a_mentally_stable_conservative_president/oefb2ko/
+
+DECEMBER_5_2014_NATO_JOKE_ARTICLE_5_JOKE
