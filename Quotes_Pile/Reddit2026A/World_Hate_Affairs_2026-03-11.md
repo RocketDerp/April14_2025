@@ -682,3 +682,7 @@ MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL
 https://old.reddit.com/r/videos/comments/1sd0n6e/trump_we_cant_pay_for_day_care_we_have_to_take/oeeybto/
 
 WHITE_HOUSE_HYPER_REAL HOW_SURKOV_WON SURKOV_STUDENTS Surkov won since year 2013. Neil Postman's 1985 book "Amusing Ourselves To Death" has a lot of the foundation understandings.
+
+https://old.reddit.com/r/TimesNow/comments/1sd9dvw/trump_we_need_2_billion_a_day_to_reopen_the/oegtufw/
+
+FEEDBACK_LOOP_MEDIA_CULTS_PLATFORM_TO_PLATFORM_MOCKERY_USA Top most upvoted Reddit comment.
