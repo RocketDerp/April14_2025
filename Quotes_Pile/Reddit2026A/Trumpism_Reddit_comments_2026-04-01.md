@@ -472,3 +472,13 @@ https://old.reddit.com/r/TikTokCringe/comments/1scn6pe/i_think_as_a_society_weve
 
 https://old.reddit.com/r/TikTokCringe/comments/1scn6pe/i_think_as_a_society_weve_all_gotten_used_to/oeca78o/
 
+https://old.reddit.com/r/politics/comments/1scp6zd/white_house_forced_to_address_claims_of_trump/oecneyy/
+
+https://old.reddit.com/r/politics/comments/1scp6zd/white_house_forced_to_address_claims_of_trump/oecnul4/
+
+https://old.reddit.com/r/politics/comments/1scp6zd/white_house_forced_to_address_claims_of_trump/oeco9q6/
+
+https://old.reddit.com/r/politics/comments/1scp6zd/white_house_forced_to_address_claims_of_trump/oecmyzx/
+
+ENTERTAINED_JUST_PASSIVELY_WATCHING_UNTIL_DEATH_NO_SOCIAL_MEDIA_UPRISING_WHILE_ALIVE
+
