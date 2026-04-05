@@ -485,3 +485,15 @@ ENTERTAINED_JUST_PASSIVELY_WATCHING_UNTIL_DEATH_NO_SOCIAL_MEDIA_UPRISING_WHILE_A
 https://old.reddit.com/r/worldnews/comments/1sctgp9/us_forces_rescue_second_crew_member_from_f15/oedtuqp/
 
 RECENCY_BIAS
+
+https://old.reddit.com/r/Fauxmoi/comments/1sd20fq/president_trump_open_the_fuckin_strait_you_crazy/oef7hyh/
+
+AVOIDED_DR_BANDY_X_LEE_PUBLIC_WRITINGS
+
+https://old.reddit.com/r/Fauxmoi/comments/1sd20fq/president_trump_open_the_fuckin_strait_you_crazy/oef8uum/
+
+<img width="1906" height="413" alt="image" src="https://github.com/user-attachments/assets/96301b4c-e832-4a6a-bbb8-e12f7cdecb05" />
+
+LEVANT_MONOMYTH_CRISIS MONOMYTH_WARFARE  
+
+Social Post { https://autistics.life/@RoundSparrow/116352559736233132 https://bsky.app/profile/roundsparrow.bsky.social/post/3miqxdussp22j }    
