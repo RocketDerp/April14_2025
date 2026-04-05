@@ -669,3 +669,6 @@ https://old.reddit.com/r/politics/comments/1sda4vk/trump_cabinet_urged_to_invoke
 
 MEASURING_BAR_SO_LOW
 
+https://old.reddit.com/r/whenthe/comments/1sd7pew/reading_the_news_feels_more_like_scrolling_memes/oegjntv/
+
+HOW_SURKOV_WON Surkov won since year 2013. PEOPLE_LOVE_COMEDY_MEDIA_CONTENT_MORE_THAN_PLURIBUS_HUMANISM "The Onion, LOL LOL" Reddit society. SURKOVIAN_ONION_EATING
