@@ -728,3 +728,7 @@ https://old.reddit.com/r/politics/comments/1sd75uv/theres_a_small_possibility_we
 
 Trump knows he is entertaining to haters. Trump leads with hate and fiction, people follow. WHITE_HOUSE_REALITY_WARFARE_FICTION_AVOIDING_NONFICTION_ON_WARFARE
 
+https://old.reddit.com/r/politics/comments/1sdfkgc/trump_says_were_blowing_up_the_whole_country_if/oei99y2/
+
+That would require a population facing media addiction. Entertainment addiction to Trump content. WAR_AGAINST_GOODNESS CALL_FOR_MENTAL_HEALTH_NATIONAL_RESCUE people are all avoiding Dr. Bandy X Lee.
+
