@@ -545,3 +545,12 @@ https://old.reddit.com/r/worldnews/comments/1sd2at6/trump_to_iran_open_the_fuin_
 EVERYTHING_IS_ME
 
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3miqz4rvgrs2y https://autistics.life/@RoundSparrow/116352682883128934 }   
+
+https://old.reddit.com/r/politics/comments/1sd2io2/trump_79_drops_fbomb_in_unhinged_easter_morning/oefadmi/
+
+<img width="1054" height="711" alt="image" src="https://github.com/user-attachments/assets/2b70815d-f1cb-4425-b3a8-296d50c09fd7" />
+
+SUPER_HYPER_NORMAL
+
+NEW_OPERA_NAME #StillPretends     
+Social post { https://autistics.life/@RoundSparrow/116352708339264679 https://bsky.app/profile/roundsparrow.bsky.social/post/3miqzhmelts2s }    
