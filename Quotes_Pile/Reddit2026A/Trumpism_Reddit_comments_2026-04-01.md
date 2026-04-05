@@ -603,3 +603,7 @@ Social post { https://autistics.life/@RoundSparrow/116352815694347523 https://bs
 https://old.reddit.com/r/AskReddit/comments/1sd3s0e/what_is_your_take_on_trump_ending_his_recent_post/oefp7ay/
 
 MIND_BLOWN_BY Trump media content
+
+https://old.reddit.com/r/AskReddit/comments/1sd3s0e/what_is_your_take_on_trump_ending_his_recent_post/oefje8s/
+
+26 day Reddit account. 2nd most popular upvoted comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT - and it works Trump engagement on Reddit is constant, always Trump images and screenshots on /r/All MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL
