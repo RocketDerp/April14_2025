@@ -501,3 +501,11 @@ Social Post { https://autistics.life/@RoundSparrow/116352559736233132 https://bs
 https://old.reddit.com/r/Fauxmoi/comments/1sd20fq/president_trump_open_the_fuckin_strait_you_crazy/oef7d6p/
 
 WIDE_RADICAL_DOUBT_ABOUT_REAL
+
+https://old.reddit.com/r/Fauxmoi/comments/1sd20fq/president_trump_open_the_fuckin_strait_you_crazy/oefcpkc/
+
+<img width="1913" height="805" alt="image" src="https://github.com/user-attachments/assets/40b06ea2-28f5-40f3-ae50-f061d321cb19" />
+
+EPSTEIN_BUT_NOT_PUTIN_UKRAINE_CHILDREN_NOT_MALALA
+
+Social Post { https://autistics.life/@RoundSparrow/116352600876692835 https://bsky.app/profile/roundsparrow.bsky.social/post/3miqxxpz62k2y }    
