@@ -541,3 +541,8 @@ BLIND_FAITH The absolute blind faith. CONDITIONED_OPPOSITION AMUSING_ZOMBIES CHU
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1sd4sfg/banger_after_banger_from_iranian_embassies_lol/oegq9yt/
 
 Hilarious! AMUSEMENT_COMEDY_WASHING_TRUMP_AS_FUNNY_MEDIA_SANEWASHING
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1sd4sfg/banger_after_banger_from_iranian_embassies_lol/oegnoac/
+
+Exactly. This is captured opposition. FAKE_OPPOSITION the funny-bone exploit. BRAIN_ROT_LEFT_RIGHT_LIB_CON_NAME_AVOIDANCE fiction vs. nonfiction it isn't left vs. right. It is the abandonment of science and goodness in favor of Trump the reality TV star entertainment. Surkov won since year 2013. "If this is what makes you guys cheer, I’m scared for the next generation of leftists." REPUBLICANS_LEAD_WITH_IGNORANCE_IDEAS_AND_FOLLOWERS_REPLY_WITH_IGNORANCE - Iran is following Trump's lead. Surkovian information warfare works!
+
