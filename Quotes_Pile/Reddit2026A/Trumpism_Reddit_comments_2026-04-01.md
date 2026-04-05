@@ -735,3 +735,10 @@ That would require a population facing media addiction. Entertainment addiction 
 https://old.reddit.com/r/politics/comments/1sczt1f/a_fox_host_says_many_people_think_women_shouldnt/oegm3ca/
 
 WE_THE_PEOPLE_MEDIA_COMMENTING
+
+https://old.reddit.com/r/worldnews/comments/1sdev28/iran_now_threatening_to_close_bab_almandeb_strait/oei9xj9/
+
+https://old.reddit.com/r/worldnews/comments/1sdev28/iran_now_threatening_to_close_bab_almandeb_strait/oeifnja/
+
+CHUCKLEHEAD_NATION
+
