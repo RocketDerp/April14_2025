@@ -672,3 +672,14 @@ MEASURING_BAR_SO_LOW
 https://old.reddit.com/r/whenthe/comments/1sd7pew/reading_the_news_feels_more_like_scrolling_memes/oegjntv/
 
 HOW_SURKOV_WON Surkov won since year 2013. PEOPLE_LOVE_COMEDY_MEDIA_CONTENT_MORE_THAN_PLURIBUS_HUMANISM "The Onion, LOL LOL" Reddit society. SURKOVIAN_ONION_EATING
+
+https://old.reddit.com/r/news/comments/1sdbkrv/iran_is_piercing_israels_ballistic_missile/oehe6zq/
+
+https://old.reddit.com/r/news/comments/1sdbkrv/iran_is_piercing_israels_ballistic_missile/oehluv1/
+
+<img width="969" height="658" alt="image" src="https://github.com/user-attachments/assets/8e6ffbaa-2e4f-4241-b2f7-42f4618e132c" />
+
+JOKE_COMEDY_POWER_IS_MAGA_IS_TRUMP_IS_SURKOV
+
+NEW_OPERA_NAME #FunnyAnymore #EverySingleSerious      
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mirjpnn7ys2e https://autistics.life/@RoundSparrow/116353851763667644 }    
