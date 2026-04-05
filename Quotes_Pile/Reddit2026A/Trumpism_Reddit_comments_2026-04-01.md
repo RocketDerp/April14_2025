@@ -650,3 +650,16 @@ https://old.reddit.com/r/clevercomebacks/comments/1sd72gu/and_they_want_you_to_b
 
 REVIVE_OPERA_NAME #WorshipTheRich    
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mirc5mwzls2u https://autistics.life/@RoundSparrow/116353320748356735 }    
+
+https://old.reddit.com/r/UnderReportedNews/comments/1sd3x8y/trump_drops_fbomb_and_says_praise_to_allah_in/oefl5fl/
+
+SAFE_DANGER_IN_2017_NONFICTION_BOOK_TITLE
+
+https://old.reddit.com/r/UnderReportedNews/comments/1sd3x8y/trump_drops_fbomb_and_says_praise_to_allah_in/oefm4pv/
+
+LEVANT_MYTH_INVERTED
+
+https://old.reddit.com/r/UnderReportedNews/comments/1sd3x8y/trump_drops_fbomb_and_says_praise_to_allah_in/oeflbsq/
+
+SUBVERTING_EXPECTATIONS
+
