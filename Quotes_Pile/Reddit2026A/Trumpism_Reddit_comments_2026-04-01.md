@@ -643,3 +643,10 @@ Surkov won since year 2013. JOKE_COMEDY_POWER_IS_MAGA_IS_TRUMP_IS_SURKOV
 https://old.reddit.com/r/AskReddit/comments/1sd3s0e/what_is_your_take_on_trump_ending_his_recent_post/oeflkdd/
 
 NEGGING_WORKS_LANGUAGE_INSULTING_WORKS_REALITY_PROGRAMMING_LANGUAGE CONCERNS_OF_FINNEGANS Trump owns all English language via Truth Social (Twitter).
+
+https://old.reddit.com/r/clevercomebacks/comments/1sd72gu/and_they_want_you_to_believe_some_undocumented/oegcf5r/
+
+8 Day Reddit account. Top most upvoted comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT 
+
+REVIVE_OPERA_NAME #WorshipTheRich    
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mirc5mwzls2u https://autistics.life/@RoundSparrow/116353320748356735 }    
