@@ -462,3 +462,5 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1scjmnq/hes_just_having_tha
 
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1scjmnq/hes_just_having_that_baby/oebmzjw/
 
+https://old.reddit.com/r/TikTokCringe/comments/1scn6pe/i_think_as_a_society_weve_all_gotten_used_to/oec6un9/
+
