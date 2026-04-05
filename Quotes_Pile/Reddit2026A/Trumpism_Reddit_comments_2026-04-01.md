@@ -719,3 +719,7 @@ https://old.reddit.com/r/LeopardsAteMyFace/comments/1sdfyvo/conservatives_on_red
 https://old.reddit.com/r/politics/comments/1sd75uv/theres_a_small_possibility_we_shouldnt_have/oegcram/
 
 AVOIDED_DR_BANDY_X_LEE_PUBLIC_WRITINGS
+
+https://old.reddit.com/r/politics/comments/1sd75uv/theres_a_small_possibility_we_shouldnt_have/oege04t/
+
+SATIRE_SARCASM_WASHING
