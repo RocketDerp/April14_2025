@@ -732,3 +732,6 @@ https://old.reddit.com/r/politics/comments/1sdfkgc/trump_says_were_blowing_up_th
 
 That would require a population facing media addiction. Entertainment addiction to Trump content. WAR_AGAINST_GOODNESS CALL_FOR_MENTAL_HEALTH_NATIONAL_RESCUE people are all avoiding Dr. Bandy X Lee.
 
+https://old.reddit.com/r/politics/comments/1sczt1f/a_fox_host_says_many_people_think_women_shouldnt/oegm3ca/
+
+WE_THE_PEOPLE_MEDIA_COMMENTING
