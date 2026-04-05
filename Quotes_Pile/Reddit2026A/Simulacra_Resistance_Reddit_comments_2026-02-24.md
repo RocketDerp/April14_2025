@@ -529,3 +529,7 @@ This entire Reddit /r/All front page posting is normalizing Trump behavior. It i
 https://old.reddit.com/r/pics/comments/1scmtnh/donald_trump_sitting_at_a_desk_with_his_head_in/oec5o9t/
 
 ARTIFICIAL_REALITY fandom photos of the hate watching media cult. SOCIAL_CULT_HATE_WATCHING_FANDOM
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1sd4sfg/banger_after_banger_from_iranian_embassies_lol/oeftl0s/
+
+TRUMP_FANDON "LOL" at the nonstop comedy Tony Clifton POTUS character provides. Trump inspires everyone to abandon reality and avoid Dr. Bandy X Lee in favor of media addiction to Twitter messages and other shit-postings. PEOPLE_LOVE_COMEDY_MEDIA_CONTENT_MORE_THAN_PLURIBUS_HUMANISM 
