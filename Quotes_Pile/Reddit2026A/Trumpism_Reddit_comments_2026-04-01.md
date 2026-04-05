@@ -554,3 +554,7 @@ SUPER_HYPER_NORMAL
 
 NEW_OPERA_NAME #StillPretends     
 Social post { https://autistics.life/@RoundSparrow/116352708339264679 https://bsky.app/profile/roundsparrow.bsky.social/post/3miqzhmelts2s }    
+
+https://old.reddit.com/r/politics/comments/1sd2io2/trump_79_drops_fbomb_in_unhinged_easter_morning/oefcepw/
+
+TRUMP_FANDOM thrilled at the unique content creation Trump provides. BINGO gaming. GAMERS_SIMULACRA
