@@ -723,3 +723,8 @@ AVOIDED_DR_BANDY_X_LEE_PUBLIC_WRITINGS
 https://old.reddit.com/r/politics/comments/1sd75uv/theres_a_small_possibility_we_shouldnt_have/oege04t/
 
 SATIRE_SARCASM_WASHING
+
+https://old.reddit.com/r/politics/comments/1sd75uv/theres_a_small_possibility_we_shouldnt_have/oeh8vhr/
+
+Trump knows he is entertaining to haters. Trump leads with hate and fiction, people follow. WHITE_HOUSE_REALITY_WARFARE_FICTION_AVOIDING_NONFICTION_ON_WARFARE
+
