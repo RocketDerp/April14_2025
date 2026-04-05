@@ -683,3 +683,8 @@ JOKE_COMEDY_POWER_IS_MAGA_IS_TRUMP_IS_SURKOV
 
 NEW_OPERA_NAME #FunnyAnymore #EverySingleSerious      
 Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mirjpnn7ys2e https://autistics.life/@RoundSparrow/116353851763667644 }    
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1sd9t9c/the_whole_planet_waits_in_bated_breath_for_an/oegxg4z/
+
+ENTERTAINED_JUST_PASSIVELY_WATCHING_UNTIL_DEATH_NO_SOCIAL_MEDIA_UPRISING_WHILE_ALIVE
+
