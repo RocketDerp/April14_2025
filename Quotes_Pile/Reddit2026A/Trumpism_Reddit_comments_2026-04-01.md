@@ -534,3 +534,7 @@ https://old.reddit.com/r/worldnews/comments/1sd2at6/trump_to_iran_open_the_fuin_
 
 AVOIDED_DR_BANDY_X_LEE_PUBLIC_WRITINGS
 
+https://old.reddit.com/r/worldnews/comments/1sd2at6/trump_to_iran_open_the_fuin_strait_or_face/oef99w8/
+
+People have been nonstop laughing and finding Trump funny since year 2015. MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL Exactly what to Reddit users think Trump's skills are other than making people LOL and mock mock mock.
+
