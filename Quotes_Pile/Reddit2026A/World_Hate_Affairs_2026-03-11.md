@@ -666,3 +666,7 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1sd8geu/americans_do_maga_d
 Appropriate for Easter Sunday. Putin has been hated for over 25 years using similar media techniques. THE_1954_EQUATION FAITH_IN_HATE And the whole title is anti-rescue "MAGA is not USA". UNITED_IN_BLAMING_ONE_THIRD_HATE_VS_HATE_ANTI_RESCUE
 
 * "For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the true becomes false and the false becomes true. That's what hate does. You can't see right. The symbol of objectivity is lost." - Martin Luther King Jr.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1sd8geu/americans_do_maga_doesnt/oegmlut/
+
+The hate-club still supports ignorance. UNITED_IN_BLAMING_ONE_THIRD_HATE_VS_HATE_ANTI_RESCUE - OUT_GROUP_HATE patterns are still the core to Iran and USA society both. Promoting hate is uniting everyone in hate. AMERICANS_HATE_AMERICANS
