@@ -632,3 +632,6 @@ https://old.reddit.com/r/AskReddit/comments/1sd3s0e/what_is_your_take_on_trump_e
 
 ROMANS_11_32_PLUS_PLUS SURKOV_MONOMYTH 
 
+https://old.reddit.com/r/AskReddit/comments/1sd3s0e/what_is_your_take_on_trump_ending_his_recent_post/oegbsc4/
+
+1 month Reddit account. SATIRE_SARCASM_WASHING JOKE_WASHING 
