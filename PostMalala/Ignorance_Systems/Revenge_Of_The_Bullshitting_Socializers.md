@@ -6,3 +6,4 @@ in "Revenge of the nerds" fashion, Donald Trump July 6, 2011 rose higher and hig
 
 All the clergy and reporters and commentators and people who had gotten by on charisma and personality had thousands of years of popularity uprooted.
 
+UNDERSTANDING_TRUMPISM    
