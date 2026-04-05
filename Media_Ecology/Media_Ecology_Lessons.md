@@ -1788,3 +1788,9 @@ Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mh6o34clb2
 Long before the Sony Playstation, there has been special offers made for "new customers" and other special categories of people. Or "weekend" specials, holiday specials, discounts for a limited time.
 
 https://old.reddit.com/r/mildlyinfuriating/comments/1rx6wz7/this_playstation_game_becomes_12_more_expensive/
+
+&nbsp;
+
+# Toxic Popularity, Absurd Surreal
+
+https://old.reddit.com/r/videos/comments/1sdbf4c/mrbeast_is_what_fred_rogers_warned_us_about/    
