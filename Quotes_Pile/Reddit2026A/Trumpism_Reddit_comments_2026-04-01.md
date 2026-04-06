@@ -751,3 +751,8 @@ SATIRE_SARCASM_WASHING
 https://old.reddit.com/r/politics/comments/1sdi9j8/trumps_chances_of_being_removed_by_25th_amendment/oeir57e/
 
 Most-popular upvoted comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING - no concern for cult deprogramming, no concern to organize a social media uprising. SOCIAL_MEDIA_DID_NOT_HAVE_UPRISING_SUSTAINED_FOCUSED
+
+https://old.reddit.com/r/politics/comments/1sdi9j8/trumps_chances_of_being_removed_by_25th_amendment/oeirg6m/
+
+GIVE_UP_SURRENDER - no matter what Trump does, normalize it for memes and commenting.
+
