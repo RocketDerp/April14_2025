@@ -778,3 +778,6 @@ Why isn't Reddit community doing a REDDIT_BLACKOUT now calling for Trump removal
 
 https://old.reddit.com/r/USNEWS/comments/1sdj4nz/they_can_remove_him_trumps_25th_amendment_removal/oeiy9pr/
 
+https://old.reddit.com/r/worldnews/comments/1sdhhqa/trump_appears_to_extend_iran_deadline_in_cryptic/oeinb3b/
+
+Media addiction runs society. MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL
