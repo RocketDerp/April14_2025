@@ -771,3 +771,7 @@ CYNICAL_ACCEPT_IT
 https://old.reddit.com/r/politics/comments/1sdi9j8/trumps_chances_of_being_removed_by_25th_amendment/oeivp5t/
 
 CYNICAL_ACCEPT_IT
+
+https://old.reddit.com/r/USNEWS/comments/1sdj4nz/they_can_remove_him_trumps_25th_amendment_removal/oeiy02p/
+
+Why isn't Reddit community doing a REDDIT_BLACKOUT now calling for Trump removal? People are engaged in mocking the government, just like MAGA mocked the government under Joe Biden. Everyone believes in mockery.
