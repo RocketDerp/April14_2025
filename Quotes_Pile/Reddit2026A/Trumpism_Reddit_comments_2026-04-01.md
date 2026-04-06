@@ -783,3 +783,8 @@ https://old.reddit.com/r/worldnews/comments/1sdhhqa/trump_appears_to_extend_iran
 Media addiction runs society. MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL
 
 https://old.reddit.com/r/politics/comments/1sdj19d/white_house_melts_down_for_second_day_over_trump/oeiytni/
+
+https://old.reddit.com/r/pics/comments/1sdkldx/oc_atrump_store_with_425gallon_gas_in_the/oej9imm/
+
+Rock band t-shirts, etc. CULT_BEHAVIOR
+
