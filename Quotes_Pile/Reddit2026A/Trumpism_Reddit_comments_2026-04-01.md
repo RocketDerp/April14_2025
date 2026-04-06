@@ -744,3 +744,6 @@ CHUCKLEHEAD_NATION
 
 https://old.reddit.com/r/ProgressiveHQ/comments/1sdd3m8/invoke_the_25th_congress_you_continue_to_place/oehszci/
 
+https://old.reddit.com/r/PoliticalHumor/comments/1sdeull/she_said_no_questions_before_the_questions_even/oeijs2i/
+
+SATIRE_SARCASM_WASHING
