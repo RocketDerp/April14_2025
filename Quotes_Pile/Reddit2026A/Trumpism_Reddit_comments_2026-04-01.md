@@ -781,3 +781,5 @@ https://old.reddit.com/r/USNEWS/comments/1sdj4nz/they_can_remove_him_trumps_25th
 https://old.reddit.com/r/worldnews/comments/1sdhhqa/trump_appears_to_extend_iran_deadline_in_cryptic/oeinb3b/
 
 Media addiction runs society. MEDIA_MANIA_EVERYWHERE_SINCE_JUNE_2015_NORMALIZE_USA_DENIAL
+
+https://old.reddit.com/r/politics/comments/1sdj19d/white_house_melts_down_for_second_day_over_trump/oeiytni/
