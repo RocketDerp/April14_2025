@@ -763,3 +763,11 @@ SUPER_HYPER_NORMAL
 https://old.reddit.com/r/politics/comments/1sdi9j8/trumps_chances_of_being_removed_by_25th_amendment/oeiu55m/
 
 Sickened by these articles. Not sickened by Donald Trump and Putin, but sickened by news articles saying Trump should be removed. NEW_SYSTEM_POLITICAL_CONTROL
+
+https://old.reddit.com/r/politics/comments/1sdi9j8/trumps_chances_of_being_removed_by_25th_amendment/oeiv5or/
+
+CYNICAL_ACCEPT_IT
+
+https://old.reddit.com/r/politics/comments/1sdi9j8/trumps_chances_of_being_removed_by_25th_amendment/oeivp5t/
+
+CYNICAL_ACCEPT_IT
