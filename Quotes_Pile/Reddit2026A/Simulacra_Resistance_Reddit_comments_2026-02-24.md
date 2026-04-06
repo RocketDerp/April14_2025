@@ -553,3 +553,7 @@ Read the image of the post. Encouraging false rumors and anti-reality. MAGA alre
 https://old.reddit.com/r/IThinkYouShouldLeave/comments/1sdeu0n/rconservative_when_trump_ends_his_rant_in_praise/oei3a3a/
 
 TRUMP_FANDOM fans of Truth Social leadership who are anticipating more content.
+
+https://old.reddit.com/r/LateStageCapitalism/comments/1sdk45x/please_do_it/oejdk2n/
+
+Cheering on Trump's war as a source of comedy
