@@ -788,3 +788,6 @@ https://old.reddit.com/r/pics/comments/1sdkldx/oc_atrump_store_with_425gallon_ga
 
 Rock band t-shirts, etc. CULT_BEHAVIOR
 
+https://old.reddit.com/r/pics/comments/1sdkldx/oc_atrump_store_with_425gallon_gas_in_the/oejnfva/
+
+CULT_BEHAVIOR
