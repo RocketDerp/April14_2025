@@ -793,3 +793,5 @@ https://old.reddit.com/r/pics/comments/1sdkldx/oc_atrump_store_with_425gallon_ga
 CULT_BEHAVIOR
 
 https://old.reddit.com/r/worldnews/comments/1sdm8gi/iran_allows_15_ships_through_strait_of_hormuz/oejofwt/
+
+https://old.reddit.com/r/worldnews/comments/1sdm8gi/iran_allows_15_ships_through_strait_of_hormuz/oejn1i3/
